@@ -2,56 +2,28 @@
 ---
 
 
-## 自由车队：在新平台上筹集的资金已超过90万元
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1963141/)
+## 日本成了亚洲的代言人了
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1963260/)
 
-2022-02-05
+整理：雅典娜速记组
+编辑：皮特
+![](https://assets.gnews.org/wp-content/uploads/2022/02/日本成了收益者_01.jpg)
+直播时间：2022.01.26
 
-作者：16626
-![](https://assets.gnews.org/wp-content/uploads/2022/02/16441157511.png)图片来源：[Convoi de la liberté: plus de 1 M$ amassé sur un site apprécié de l’extrême droite](https://www.tvanouvelles.ca/2022/02/05/convoi-de-la-liberte-deja-plus-de-900-000--amasses-sur-la-nouvelle-plateforme)
-## 1600 万元的目标
+美国人吃饭，他不懂的就是吃点儿烤牛肉就不得了，法国人他是厉害，他是懂，他们是都是这个有身份。再来这个国家的文化吃文化，今天中午烤羊排啊，烤羊排黑羊排，哇塞，黑羊排。现在（大家）做饭就没有时间，大家都不拿时间做，都是什么快速微波炉啥的，没有时间都不是好东西，在灭共这件事情上，这个真是太多人做的贡献了，太多人了，在摄像机前的很多战友们，我真的没法形容这种感激。七哥要坐在这儿一直直播，我就会控制不住啊!
 
-TVA Nouvelles（2022年2月5日，下午3点45分，更新：下午5点02分）发表一篇题为《自由车队：在新平台上筹集的资金已超过90万元》的文章报道，在 GoFundMe 拒绝向全国各地示威反对强制接种疫苗的卡车司机支付筹集的资金后，他们（卡车司机）转向另一个平台，而且已经筹集了近 100 万元。
+太多人做了太多事情，影响世界，你光影响美国也没用的。美国跟它联盟一直商量，它基于各种信息，它自己的内部的信息，再加上掌握的信息，它才判断出来，它才能做出这样的决定。这是个天大的事情，这改变人类的。昨天晚上我跟那个咱们基金几个人说，他说美国不要说都撤，他说美国撤一半儿股票就是再跌20%，这就这么大啊，整个人类整个地球游戏改变。彻底完了，还有个受益者台湾、香港、新疆、西藏都是受益者。然后就是日本，日本是最大受益者，那就日本就是亚洲的代言人了是吧？
 
-据《渥太华公民报》报道，这个平台的筹集目标是 1600 万元，仅在 24 小时内已经筹集了近 100 万元。
+还挑战美国呢，就是扯淡的事情。就像踢足球，不管咱这里边儿多能你挑战郝海东去，是不是？他不扎裤腰带都把你踢飞了，你不是找死了吗？
 
-截止到周六早上晚些时候，筹集了近 911,000 元，并且一直在攀升。
+发布：*皮特*
 
-（由于捐款者激增，）新平台 GiveSendGo 很难处理其网站上的突然流量，该网站在周六曾经显示服务器错误。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-“我们知道该网站速度很慢”，该公司在社交媒体上表示，“我们正在解决这个问题”！
-
-周五，GoFundMe平台正式宣布，由于戒严状态和过去几天的暴力事件，它不会向渥太华的（反对强制接种疫苗的卡车司机）抗议者支付筹集的约 900 万元。
-
-## GiveSendGo ，一个新平台支持2022自由卡车司机的示威
-
-该GoFundMe平台在一份声明中说，筹款活动“违反了使用条款”，包括禁止宣传暴力和骚扰的第八项条款。
-
-他们（卡车司机）将 GiveSendGo 作为一个新平台。GiveSendGo是一个自称为基督教筹款领导者的组织。
-
-## Facebook 也删除了用来组织自由卡车车队前往华盛顿特区的页面
-
-Gnews（2022 年 2 月 5 ）发表一篇题为《[埃隆马斯克抨击 GoFundMe卑躬屈膝特鲁多,取消资助自由卡车司机](https://gnews.org/zh-hans/1962936/)》 的报道文章。文章报道，GoFundMe 因违反其服务条款为理由，取消了2022自由卡车车队（Freedom Convoy 2022） 筹款活动。剩余的资金 “由2022自由卡车车队 组织者选择并由 GoFundMe 验证（分配给）可信且成熟的慈善机构”。Facebook 也删除了美国卡车司机用来组织自由卡车车队前往华盛顿特区的页面。
-
-## 完全反对定性“自由车队”有“攻击性”和“破坏性”
-
-另外，Gnews（2022 年 2 月 3 日，下午20：36）发表一篇题为《[魁北克放弃“疫苗税”后，未接种疫苗的护士首次发声主流媒体](https://gnews.org/zh-hans/1957383/)》的文章报道，一位参加自由车队抗议，未接种疫苗的，前（资深）助理护士，乔安妮·拉方德（Joanne Lafond），完全反对那些定性“自由车队”有“攻击性”和“破坏性”的色彩的言论。然而，她确实承认，（自由车队中）只有少数人在做有害的事情。
-
-## 请读者参与讨论
-
-GiveSendGo 作为一个新平台支持2022自由卡车司机的示威，果真如此吗？请读者参与讨论。欢迎访问并在“加拿大温哥华圆成农场”（[https://gettr.com/user/himalayavang](https://gettr.com/user/himalayavang)）上留言。
-
-参考链接：
-
-1. [Convoi de la liberté: plus de 1 M$ amassé sur un site apprécié de l’extrême droite](https://www.tvanouvelles.ca/2022/02/05/convoi-de-la-liberte-deja-plus-de-900-000--amasses-sur-la-nouvelle-plateforme)
-
-
-编辑：LILY
-发布：肥鯮
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

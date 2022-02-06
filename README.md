@@ -15,89 +15,89 @@
 
 ---
 
-### [20220204文贵大直播：18-19世纪山茂召和蒲安臣推动中美友好交往](/content/gnews/1/README.md)
+### [七哥造成美国驻中国大使馆最长时间的大使岗位空缺历史](/content/gnews/1/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [冬奥会就是为了一个独裁者的个人政治](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
+
+### [灭共第三道大门已开](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [日本成了亚洲的代言人了](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [人生就是黄粱一梦](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [振奋人心的消息，来自美国（下）](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [珍惜别人,珍惜自己](/content/gnews/7/README.md)
+ ` 雅典娜GNotes`
+
+### [相信轮回,相信报应](/content/gnews/8/README.md)
+ ` 雅典娜GNotes`
+
+### [人类进入有信仰和无信仰的大PK时代](/content/gnews/9/README.md)
+ ` 雅典娜GNotes`
+
+### [20220204文贵大直播：18-19世纪山茂召和蒲安臣推动中美友好交往](/content/gnews/10/README.md)
  ` 秘密翻译组-原创组`
 
-### [【粤语配音】2022年2月5日： 外国友人三句话评价冬奥会](/content/gnews/2/README.md)
+### [【粤语配音】2022年2月5日： 外国友人三句话评价冬奥会](/content/gnews/11/README.md)
  ` MOS香港部`
 
-### [中南坑想掌控数字货币掌控未来](/content/gnews/3/README.md)
+### [中南坑想掌控数字货币掌控未来](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
 
-### [自由车队：在新平台上筹集的资金已超过90万元](/content/gnews/4/README.md)
+### [自由车队：在新平台上筹集的资金已超过90万元](/content/gnews/13/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [[ 聚焦港澳 ] 撕裂的香港社会](/content/gnews/5/README.md)
+### [[ 聚焦港澳 ] 撕裂的香港社会](/content/gnews/14/README.md)
  ` 澳喜农场`
 
-### [共产党的数字货币就是掠夺财富](/content/gnews/6/README.md)
+### [共产党的数字货币就是掠夺财富](/content/gnews/15/README.md)
  ` 雅典娜GNotes`
 
-### [有声|外媒指出 冬奥会来宾多为非民主政体领袖](/content/gnews/7/README.md)
+### [有声|外媒指出 冬奥会来宾多为非民主政体领袖](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [习猪头怕老百姓因为房子造反](/content/gnews/8/README.md)
+### [习猪头怕老百姓因为房子造反](/content/gnews/17/README.md)
  ` 雅典娜GNotes`
 
-### [2.04大直播后记：蒲安臣条约](/content/gnews/9/README.md)
- ` 雅典娜GNotes`
-
-### [有声|为显亲民 中共冬奥开幕式致数百群众染疫](/content/gnews/10/README.md)
+### [有声|为显亲民 中共冬奥开幕式致数百群众染疫](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [2.04大直播后记：Hpay建立新的金融标准](/content/gnews/11/README.md)
- ` 雅典娜GNotes`
-
-### [共产党让你活不了死不了](/content/gnews/12/README.md)
- ` 雅典娜GNotes`
-
-### [2.04大直播后记：中东邂逅埃及总统穆巴拉克](/content/gnews/13/README.md)
- ` 雅典娜GNotes`
-
-### [联合国秘书长与习近平会面 协商人权专员访问新疆的表演](/content/gnews/14/README.md)
+### [联合国秘书长与习近平会面 协商人权专员访问新疆的表演](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [难以置信！纽约污水中发现超过4 种冠状病毒“不明突变”](/content/gnews/15/README.md)
+### [难以置信！纽约污水中发现超过4 种冠状病毒“不明突变”](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [郭文贵先生2022年2月5日盖特视频（8分37秒）全文字版](/content/gnews/16/README.md)
+### [郭文贵先生2022年2月5日盖特视频（8分37秒）全文字版](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [珍惜家人与美丽](/content/gnews/17/README.md)
- ` 雅典娜GNotes`
-
-### [普京闪电走人，中共对台末日疯狂将至](/content/gnews/18/README.md)
+### [普京闪电走人，中共对台末日疯狂将至](/content/gnews/22/README.md)
  ` 秘密翻译组-原创组`
 
-### [各国孔子学院关闭进展迅猛](/content/gnews/19/README.md)
+### [各国孔子学院关闭进展迅猛](/content/gnews/23/README.md)
  ` NFSC News`
 
-### [商业利益集团正游说美国剥离对中共贸易](/content/gnews/20/README.md)
+### [商业利益集团正游说美国剥离对中共贸易](/content/gnews/24/README.md)
  ` NFSC News`
 
-### [美国发布外国应用软件新政策再审抖音](/content/gnews/21/README.md)
+### [美国发布外国应用软件新政策再审抖音](/content/gnews/25/README.md)
  ` NFSC News`
 
-### [美国就中共强迫劳动行为实行企业ESG检验](/content/gnews/22/README.md)
+### [美国就中共强迫劳动行为实行企业ESG检验](/content/gnews/26/README.md)
  ` NFSC News`
 
-### [2.04大直播后记：美国当年写下7个“最”表尊敬](/content/gnews/23/README.md)
- ` 雅典娜GNotes`
-
-### [文贵大直播再次预警 中共解放军准备侵台](/content/gnews/24/README.md)
- ` 纽约香草山MOS02`
-
-### [北京政府推出食品机械化以降低新冠病毒的传播](/content/gnews/25/README.md)
- ` 澳喜农场`
-
-### [有声|哭泣的母亲](/content/gnews/26/README.md)
+### [有声|哭泣的母亲](/content/gnews/27/README.md)
  ` MOSREC`
 
-### [有声|尼日利亚被迫放弃中共银行铁路贷款](/content/gnews/27/README.md)
+### [有声|尼日利亚被迫放弃中共银行铁路贷款](/content/gnews/28/README.md)
  ` MOSREC`
-
-### [7·24系列——无声无色无味的催眠武器](/content/gnews/28/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [日本感染中共病毒居家护理人数创新高](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
@@ -144,50 +144,50 @@
 ### [秘翻在线：又一次突破底线，中共科学家发明人造AI子宫](/content/gnews/43/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [长病程“中共病毒”综合征和“中共病毒疫苗”后炎症综合征治疗解说](/content/gnews/44/README.md)
- ` 香草山醫療部`
-
-### [心有千千结](/content/gnews/45/README.md)
+### [心有千千结](/content/gnews/44/README.md)
  ` 骄子`
 
-### [I have a dream](/content/gnews/46/README.md)
+### [I have a dream](/content/gnews/45/README.md)
  ` 骄子`
 
-### [2/5/2022国际财经快讯：美国债券基金连续第四周出现资金外流；比特币模仿股市涨势，创两周新高](/content/gnews/47/README.md)
+### [2/5/2022国际财经快讯：美国债券基金连续第四周出现资金外流；比特币模仿股市涨势，创两周新高](/content/gnews/46/README.md)
  ` 秘密翻译组金融团队`
 
-### [中俄联合声明贬损中华民国 台外交部严厉谴责](/content/gnews/48/README.md)
+### [中俄联合声明贬损中华民国 台外交部严厉谴责](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [卢比奥：拒绝观看实施种族灭绝的政权主办的任何奥运会](/content/gnews/49/README.md)
+### [卢比奥：拒绝观看实施种族灭绝的政权主办的任何奥运会](/content/gnews/48/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [北京冬奥被全球声讨　美众议长提醒运动员自我保护](/content/gnews/50/README.md)
+### [北京冬奥被全球声讨　美众议长提醒运动员自我保护](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [加国前亚太国务卿谴责北京冬奥 批评中共犯下反人类罪](/content/gnews/51/README.md)
+### [加国前亚太国务卿谴责北京冬奥 批评中共犯下反人类罪](/content/gnews/50/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [删除中共国间谍应用软件-My2022](/content/gnews/52/README.md)
+### [删除中共国间谍应用软件-My2022](/content/gnews/51/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [美新闻集团邮件帐户遭中共黑客入侵](/content/gnews/53/README.md)
+### [美新闻集团邮件帐户遭中共黑客入侵](/content/gnews/52/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [49名共和党议员誓言取消拜登政府的疫苗强制令经费](/content/gnews/54/README.md)
+### [49名共和党议员誓言取消拜登政府的疫苗强制令经费](/content/gnews/53/README.md)
  ` 首尔天池农场`
 
-### [人民币秒变喜美元（HDO）](/content/gnews/55/README.md)
+### [人民币秒变喜美元（HDO）](/content/gnews/54/README.md)
  ` 首尔天池农场`
 
-### [重大利好！Hpay开启人民币换HDO业务，智慧使用创造商业新模式](/content/gnews/56/README.md)
+### [重大利好！Hpay开启人民币换HDO业务，智慧使用创造商业新模式](/content/gnews/55/README.md)
  ` YALUN 亚伦`
 
-### [英国政府报告称，接种中共病毒疫苗后儿童死亡的可能性增加 52 倍](/content/gnews/57/README.md)
+### [英国政府报告称，接种中共病毒疫苗后儿童死亡的可能性增加 52 倍](/content/gnews/56/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [Hpay无中心化无条件、0交易费，秒杀PayPal的4.4%](/content/gnews/58/README.md)
+### [Hpay无中心化无条件、0交易费，秒杀PayPal的4.4%](/content/gnews/57/README.md)
  ` G-NEWS TAIWAN`
+
+### [普京公布与习近平达成的新天然气协议，莫斯科与西方国家交恶](/content/gnews/58/README.md)
+ ` 华盛顿DC-Russian`
 
 ### [美政府承认新中国联邦是中国人民的选择](/content/gnews/59/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`

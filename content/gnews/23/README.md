@@ -2,35 +2,44 @@
 ---
 
 
-## 2.04大直播后记：美国当年写下7个“最”表尊敬
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1962980/)
+## 各国孔子学院关闭进展迅猛
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1962995/)
 
-整理：雅典娜速记组
-编辑：Mohegayer K. Simon
+作者：纽约香草山农场-兰兰
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据综合消息显示，截至2022年1月18日，包括加拿大、美国、澳大利亚、法国、瑞典、德国、丹麦、比利时、瑞士、挪威以及荷兰在内的11个国家停止一切相关活动或关闭孔子学院和孔子课堂的总数高达122所。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-05-下午9.11.19.png)https://no-confucius-institutes.org/
+在美国，当地先是在1月6日通报关闭了94所孔子学院，其后，政府又在接下来的两周内关闭了另外三所。目前，全美已有97所孔子学院已经或正在关闭。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/17-1.png)图片来源：墨尔本雅典娜农场设计组614
+资料显示，自2004年起，中共政府逐步开始在海外成立孔子学院。截至2019年12月，其已在全球162个国家或地区建立了550所孔子学院以及超过一千个中小学孔子课堂。
 
+直至2013年，海外的孔子学院终于开始陆陆续续地被逐一关闭，其中，加拿大麦克马斯特大学的孔子学院成为全球第一所被关闭的孔子学院。
 
-100多年前，美帝国主义到中国去，千叮咛万嘱咐，你可别惹那块儿人呐，咱别让人家不高兴，咱别丢人呐。最后就一句话，就别上当受骗就行了，就是他们太聪明，就这个嘱咐，他说这些人文明啊，你可别粗鲁啊，可别丢咱人呐。千叮咛万嘱咐。当时去了这个人啊，叫做杉茂昭（音），然后杉茂昭回来写（报告）我没得罪他们，太文明了，到广州。兄弟姐妹们，你去查这段历史的书，你看看中国人在历史上，我们有很多值得骄傲的东西。
+2019年12月，瑞典通报关闭了其境内的4家孔子学院，并于2020年4月叫停了该国最后一个孔子课堂，成为全球第一个彻底将孔子学院和孔子课堂驱逐出境的国家。随后，德国联邦教育部长安贾·卡利泽克也于2021年10月呼吁终止该国境内所有的孔子学院。
 
-大清国齐尔敦（音），从南方到北方第一次去，他说这个国家、这个人民、这个勤劳、聪明和文明，他说是永恒的。给大清朝，给皇上写，威廉姆就是女皇的爹。这爹给他们写啊。然后杉茂昭当时给美国政府给谁写这个东西，叫罗斯福。大家知道了吧，就是小罗斯福的爷爷，就开了一个商行叫“罗斯福号”，说这个国家这个民族之文明之悠久，文明之深厚，它像太阳一样永恒，把罗斯福给搞晕了。哇塞，在什么样的地方，大英帝国，大女皇是最牛的。威廉王是最厉害的，我得去。开了第2个商户就叫罗斯福号。去之后，罗斯福家族后来出来总统啊，出来这么多人啊，深读中国文化。
+此外，法国国防部下属的军事学院战略研究所近日公布的一份 《中共国影响力行动》分析报告指出，中共政府一直透过孔子学院在海外推行统战手段并大肆宣传其意识形态。当中，该报告还详细阐述了中共近年来通过渗透海外的华人社区、媒体、外交、经济、政治、教育、文化与智库等领域，用以扩张其在全球影响力的恶劣行为。
 
-然后就是大家知道的，美国大佬洛克菲勒家族就进了中国。摩根家族，大家都看到了，我们的好哥们儿，John摩根，摩根斯丹利，摩根就进了中国。所有人到了中国以后，你看北京大学——美国人搞的，协和医院，墙上有一段话：致与我最最最最最最最，7个“最”，尊敬的中华民族，你们创造了世界上惟妙惟肖，不可思议的医药。李时珍是我的偶像，是人类文明的摇篮。《本草纲目》是我每天抱着睡觉的枕头。你看当时北京大学——当年的燕京大学，还有协和医院，费正清，这种所谓的后来的美国大通，还有斯诺记者，斯诺是第一个到达中国的美国记者，报道延安、上海，一去几年没回来呀。这哥们儿两口子，在这块儿报道中国，就被毛泽东给骗了。
+参考链接：
+1）[How Many Confucius Institutes Are in the United States?](https://www.nas.org/blogs/article/how_many_confucius_institutes_are_in_the_united_states)
+2）[https://www.nas.org/storage/app/media/New%20Documents/confucius-institutes-that-closed-updated-january-15-2022.pdf](https://www.nas.org/storage/app/media/New%20Documents/confucius-institutes-that-closed-updated-january-15-2022.pdf)
+3）[比利时大学关闭孔子学院 涉间谍指控](https://www.rfa.org/mandarin/Xinwen/11-12112019152406.html)
+4）[拒绝中共政治宣传！德国汉堡大学宣布关闭孔子学院](https://cn.vot.org/2020/07/30/%E6%8B%92%E7%BB%9D%E4%B8%AD%E5%85%B1%E6%94%BF%E6%B2%BB%E5%AE%A3%E4%BC%A0%EF%BC%81%E5%BE%B7%E5%9B%BD%E6%B1%89%E5%A0%A1%E5%A4%A7%E5%AD%A6%E5%AE%A3%E5%B8%83%E5%85%B3%E9%97%AD%E5%AD%94%E5%AD%90%E5%AD%A6/)
+5）[北欧第二国：挪威关闭孔子学院](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/cl-03192021135434.html)
+6）[法国重磅报告披露孔子学院真面目](https://www.epochtimes.com/gb/21/9/25/n13259615.htm)
 
-在这个一战二战期间，美国人在中国设多个叫基督教会、天主教会、学生会。你知道“体育”这俩字进入中国，是美国人带进去的，希望中国人学体育课，体育课是那时候开始的。后来二战以后美国人绝对跟咱站在了一起，包括日本人。在日本，在上海建立租界，是美国人支持德国人建立租借，解救了中国南京20多万人，这是真的，差点被日本给杀了。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-后来，美国人又在西安、重庆、江浙一带建了多个学校。美国人所到之处都是最最最最最最最。骨子里边就佩服中国人。罗斯福家族，就是到现在都是说，这个世界上永远记住不要与我们心中爱好和平的、善良的、可以信赖的中国人为敌，他是文明的象征。
+总编：飞虹
+编辑：静言
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-资料来源：郭先生GTV、盖特直播
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

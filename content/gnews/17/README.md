@@ -2,8 +2,8 @@
 ---
 
 
-## 珍惜家人与美丽
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1963017/)
+## 习猪头怕老百姓因为房子造反
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1963109/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

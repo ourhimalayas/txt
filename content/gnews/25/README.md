@@ -2,25 +2,32 @@
 ---
 
 
-## 北京政府推出食品机械化以降低新冠病毒的传播
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1962941/)
+## 美国发布外国应用软件新政策再审抖音
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1962993/)
 
-撰稿：小湫
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-47.png)图片来自网络 （2022年北京冬奥会开幕前，一个机器人在媒体中心的用餐区准备食物）
-根据最近《美食与美酒》的一份报告，中共国将重点放在机器人厨师和服务员上，为冬季奥运会主媒体中心的与会者准备和提供食物，以最大限度地减少新冠病毒的传播。
+作者：银河系农场—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月2日，据当地多家媒体报道，美国联邦政府正在考虑给有潜在安全风险的手机应用程序制定新的审查规则。当中，具有中共背景的抖音程序被要求提供源代码和其他数据。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-05-下午9.10.51.png)https://gamerant.com/tiktok-sue-us-government/
+据悉，此项政策将赋予政府对那些可能造成国家安全威胁的应用程序更大监督权。为此，政府或相关部门需要根据一套风险标准来评估某应用程序是否为外国对手所拥有和控制，或者受其管辖和指示。其中，需要被评估的行为包括该软件是否可被用于监控或实行间谍活动，以及是否可以被用于军事、情报搜集或扩散活动。
 
-中共国的官方媒体新华社称智能备餐和供餐系统不仅可以提高供餐效率，还可以最大限度地节省人力，避免疫情防控中过度的人际互动而引起的病毒传播。为了保证用餐者的安全，餐厅的餐桌上安装了有机玻璃屏障，当坐下时，没有服务员来迎接，而是用手机点餐。
+早先，美国政府一直在评估抖音与中共的关系，加之该公司内部人员曾透露，抖音公司位于北京的总部对其产品拥有最终决策权，因此，川普政府先前一度尝试禁止抖音在美国的运行。据报道，目前，美国商务部的提案明确指出，抖音的母公司字节跳动总部位于中共国，其已经可以被看作是隶属于“外国对手”的应用软件。
 
-在后台，一位机器人厨师准备烹饪汉堡，另一位机器人煮米饭和面条，还有一位机器人充当你的调酒师，在90秒内为你调制鸡尾酒。中共国全球电视网提供了一段视频，让人们一窥这家酒吧的内部情况。
+参考链接：[TikTok’s ties to China are under scrutiny once again as Biden weighs new rules for foreign apps](https://www.businessinsider.com/tiktoks-connection-to-china-under-scrutiny-biden-weighs-new-rules-2022-2)
 
-对于咖啡爱好者来说，还有一款专门的机器人，它不仅能磨咖啡，还能在不到四分钟的时间里煮好咖啡，而且从不抱怨。饭菜准备好后，机器手臂电子平台开始提供食物，为你提供专属个人服务。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-《华盛顿邮报》报道，任何一位来北京参加比赛的运动员、志愿者、工作人员就像进入一个独立的封闭状态，内部与外部人员无任何交集，极大程度的降低了病毒传播风险。
+总编：Irene木木
+编辑：静言
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-第15次参加奥运会的美国奥委会成员比尔·汉考克说：“对我来说，奥运会有文化方面和体育方面的体验，体育方面将一如既往。 但在文化上，这是完全不同的。 我们来这里之前都知道，你不能去街上的面条摊。 你可以在新闻中心买到面条。”
-
-消息来源：[Beijing introduces the world to ‘robo-noodles’ to limit COVID spread during the Olympics](https://www.foxnews.com/health/beijing-introduces-robo-noodles-limit-covid-spread-during-olympics)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
