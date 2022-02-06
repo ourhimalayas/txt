@@ -2,23 +2,19 @@
 ---
 
 
-## 【G时新闻】加拿大总理特鲁多感染新冠病毒
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/1962451/)
+## 战友打榜软下来中国人持续力地
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1962580/)
 
-加拿大温哥华扬帆农场 播报:Yuyu（粤语） 视频制作: Gracelshan
+#### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
-加拿大总理1月31日通过社交媒体宣布，尽管其当天的“新冠病毒”检测呈阳性，但至今感觉良好，且并无明显患病征兆。
+*发布：陶子*
 
-特鲁多在推特上表示，由于当天早上的病毒检测呈阳性，因此本周他将继续居家遵守疫情隔离规定并尽量保持远程工作，同时还不忘提请国民接种疫苗以及加强剂。
-
-报导称，在得知加拿大卡车司机的自由车队游行将于上周末抵达首都渥太华之后，总理随即宣布因接触了“新冠病毒”感染者而开始自我隔离，并在两天后称他的一个孩子病毒检测也呈阳性。
-
-据悉，由于特鲁多此前已完全接种了疫苗和加强剂，因此，其推文下有大量民众提出质疑并责问：疫苗有效吗？为什么打了三针还被病毒感染？如果疫苗无效，为什么还要继续给加拿大人接种该疫苗？
-
-盖特：[https://gnews.org/zh-hant/1947184/](https://gnews.org/zh-hant/1947184/)
-听写/翻译：LuLu1312
-字幕：圣骑士
-编辑/上传：七觉花
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

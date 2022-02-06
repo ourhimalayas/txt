@@ -2,51 +2,37 @@
 ---
 
 
-## 西喜时事新闻简报 — 中共病毒时事篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1962033/)
+## 今日盖特大V推荐 — Dr. Vladimir Zev Zelenko（弗拉基米尔·泽连科，即大胡子医生）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1962339/)
 
-**编译：文舞**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/a49ow-e7ewj.jpg)
+**盖特链接：**[https://gettr.com/user/DrZevZelenko](https://gettr.com/user/DrZevZelenko)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/loo.png)**图片来源：网络**
+**泽连科医生自述：**
 
-您若想了解全文报导内容，请点击标题链接
+唐纳德·川普认为，泽连科医生是第一位在院前环境中成功创新新冠治疗方法的美国人，称为泽连科方案。
 
-（我们不反疫苗，只针对假疫苗，我们不反科学，只针对反人类）
+**泽连科医生简介：**
 
-1. [维加诺大主教：时间会证明一切（有组织有计划欺骗全人类感染中共病毒）](https://www.thegatewaypundit.com/2022/02/archbishop-vigano-time-will-make-masks-fall-disguised-saviors-humanity-sought-subjugate-exterminate-citizens-make-chronica/)
+泽连科医生毕业于霍夫斯特拉大学(Hofstra University)化学专业。在获得学术奖学金进入纽约州立大学水牛城分校医学院学习后，他于2000年5月获得医学博士学位。2004年5月，泽连科医生在纽约州的社区医院(South Nassau Communities Hospital)完成了他的家庭医学住院医生实习。从那时起，泽连科医生在纽约的哈德逊河谷从事家庭医生工作。他被他的病人描述为成千上万个家庭的家庭成员，并且是纽约州Kiryas Joel市志愿救护队的医疗顾问。
 
+2020年3月，泽连科医生的团队是全国首批在院前环境中成功治疗数千名Covid-19患者的团队之一。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip维加诺大主教：时间会证明一切（有组织有计划欺骗全人类感染中共病毒）.png)
+2020年3月23日，泽连科医生发表了一封致美国前总统川普的公开信，他称自己已经成功地治疗了数百名COVID-19患者，他采用的是5天的羟氯喹、阿奇霉素和硫酸锌疗法。
 
-据《门户网》2022年2月2日电，来自意大利的卡洛斯·玛丽亚·维加诺大主教与我们分享了他给美国天主教主教会议（USCCB）和信仰教义部（CDF）主任的[信](https://www.scribd.com/document/556451843/Letter-from-Archbishop-Vigano-to-Church-Bishops%23from_embed)。 他还分享了马西莫·西特罗医学博士给格温妮丝·斯帕德博士的信。他还分享了他发表在《Church Militant》上的信息：梵蒂冈多次对大规模疫苗运动的认可——故意造成谎言大流行，以便支持实施灭绝人类的行为。
+泽连科医生因使用羟氯喹和锌治疗COVID-19患者而在世界范围内取得了突出的成绩，他发现使用这两种药物后，死亡率下降了8倍。他说，在头5天内用羟氯喹和锌进行治疗，可使死亡率降低85%。他制定的 “泽连科方案”，拯救了全世界无数的生命。
 
-2. [Omicron 导致一月份失去30.1万个工作岗位](https://www.usnews.com/news/economy/articles/2022-02-02/adp-omicron-causes-loss-of-301k-jobs-in-january)
+泽连科医生站在与病毒斗争的最前沿，他还坚持不懈地揭露病毒和疫苗真相，反对媒体对其人格的无情诋毁，以及对其人身的威胁。他是2021年诺贝尔和平奖提名候选人。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnipOmicron-导致一月份失去30.1万个工作岗位.png)
+**泽连科医生网站：**[https://vladimirzelenkomd.com/](https://vladimirzelenkomd.com/)
 
-据《美国新闻》2022年2月2日电，薪资公司（ADP）周三公布，私人雇主在1月份减少了30.1万个工作岗位，去年12月新增就业岗位为80.7万个（超过预期60万个）；美国服务业减少了27.5万个工作岗位，因为Omicron变种在餐馆、日间护理中心和其他亲身服务的企业中造成了严重破坏；劳工部周二（1日）发布的职位空缺报告显示，有1090万个空缺职位。
+编撰：洛杉矶盘古农场 — 郭友(文苏)
+校审：洛杉矶盘古农场 — 心照
+发布：洛杉矶盘古农场 —彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-3. [英国科学家让年轻志愿者感染中共病毒，并进行研究](https://www.bloomberg.com/news/articles/2022-02-02/u-k-covid-study-on-healthy-people-was-safe-researchers-say)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip英国科学家让年轻志愿者感染中共病毒，并进行研究.png)（封面来自[fox13.news](https://www.fox13news.com/news/omicron-why-who-skipped-nu-and-xi-in-greek-alphabet-when-naming-latest-variant)）
-据《彭博社》2022年2月2日电，Open Orphan Plc公司周三声称，英国科学家可以安全地让健康年轻人（18-29岁）接触中共病毒（Covid-19），参与者在接触中共病毒后平均约两天后，开始出现感染症状（没有重症），而且病毒在五天左右达到高峰，病毒在鼻子里明显更多；帝国理工学院传染病学教授、该试验的首席调查员Christopher Chiu说，其中有人未检测到阳性。
-
-4. [美国累计逾7500万人确诊，儿童占1100万人](https://hk.news.yahoo.com/%25E7%25BE%258E%25E5%259C%258B%25E7%25B4%25AF%25E8%25A8%2588%25E9%2580%25BE7500%25E8%2590%25AC%25E4%25BA%25BA%25E7%25A2%25BA%25E8%25A8%25BA-%25E9%2580%25BE1100%25E8%2590%25AC%25E6%2582%25A3%25E8%2580%2585%25E6%2598%25AF%25E5%2585%2592%25E7%25AB%25A5-084250091.html) （无封面）
-
-据《雅虎新闻》2022年2月2日电，美国约翰斯·霍普金斯大学数据显示，美国至今超过7500万宗中共病毒确诊案例，89万多人死亡；2022年1月新增350万宗儿童确诊案例，而全美已有超过1100万名儿童染疫。
-
-5. [大年初二香港增30宗无源头感染个案 足迹遍全港](https://hk.news.yahoo.com/%25E5%25B9%25B4%25E5%2588%259D%25E4%25BA%258C%25E5%25A2%259E-116-%25E7%25A2%25BA%25E8%25A8%25BA-%25E5%2585%25B6%25E4%25B8%25AD-30-%25E5%25AE%2597%25E6%25BA%2590%25E9%25A0%25AD%25E4%25B8%258D%25E6%2598%258E%25E5%2586%258D%25E5%2589%25B5%25E6%2596%25B0%25E9%25AB%2598-084835166.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip大年初二香港增30宗无源头感染个案-足迹遍全港.png)
-
-据《雅虎新闻》2022年2月2日电，香港卫生署卫生防护中心传染病处主任张竹君逾今日（2日）公布，本日有30宗源头不明中共病毒感染案例，未来“疫情是向上，尚未到顶”（共累计1.4442万宗）；不明源头的30宗：3宗是为德尔塔病毒感染者，居于天水围天泽邨泽星楼、屯门蝴蝶邨蝶翎楼、大围名城3期3座、其余感染者分布于港九新界。
-
-* * *
-
-***审核：Aries的星
-校对：小东
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-1.jpeg)
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

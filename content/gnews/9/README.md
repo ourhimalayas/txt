@@ -2,29 +2,19 @@
 ---
 
 
-## 今日盖特大V推荐 — Jair Messias Bolsonaro（雅伊尔·博索纳罗-巴西总统 ）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1962380/)
+## 七哥 祝战友们平安夜平安
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1962549/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/111-1.jpg)
-**盖特链接：**[https://gettr.com/user/jairbolsonaro](https://gettr.com/user/jairbolsonaro)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/771.jpg)
-**雅伊尔·博索纳罗自述：**
+#### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
-巴西陆军上尉，当选为巴西联邦共和国第38任总统。
+*发布：陶子*
 
-**雅伊尔·博索纳罗简介：**
-
-雅伊尔·梅西亚斯·博索纳罗（葡萄牙语：Jair Messias Bolsonaro，巴西葡萄牙语：ʒaˈiʁ meˈsi.ɐz bowsoˈnaɾu）1955年3月21日出生，巴西政治人物、前陆军上尉、现任巴西总统。
-
-他自1991年起担任里约热内卢州的联邦众议员。他于2018年加入社会自由党，并在2018年巴西总统选举中当选为新一任巴西总统。博索纳罗被外界称为“巴西特朗普”或“热带特朗普”。他是巴西在1985年恢复文人统治后首位由直选产生的右翼总统。
-
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友（文苏）
-发布：洛杉矶盘古农场 —彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

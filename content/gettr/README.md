@@ -19,6 +19,14 @@
 
 **:arrows_clockwise: miles 已轉發**
 
+`@jasonmillerindc 2/5/2022 11:06 PM (UTC)`
+
+Must-watch on YouTube!<br/><br/>“Who sold this U.S. Pension Fund to China?”<br/><br/>https://youtu.be/6FfkpjftT0I
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
 `@jasonmillerindc 2/5/2022 8:37 PM (UTC)`
 
 Did we tell you #GETTR would be your best place for French political news today? Yes we did!!! 🇫🇷<br/><br/>We had livestreams from @f_philippot, @zemmoureric via @Livrenoirmedia, and now an exclusive interview with Marine Le Pen! Check it out!👇👇👇
@@ -150,13 +158,6 @@ This is the BIG ONE I previewed on @WarRoom a little earlier regarding the Covid
 
 1/31/2022 Miles Guo’s Chinese New Year Live:  “The Snow Taking Down the CCP”, the New Federal  State of China’s version of “The Snow Near Northern Border”  1/31/2022 文贵虎年新春大直播：《灭共的雪》—— 新中国联邦版《塞北的雪》（中英双语版）
 ![img](https://media.gettr.com/group15/origin/2022/02/04/03/400c25b8-4239-3bfc-c5d9-0e36740d74bd/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 2/4/2022 2:44 AM (UTC)`
-
-2/3/2022 Miles Guo’s GETTR: After the launch of Himalaya Pay, the number of visitors to the Himalaya Exchange's website was three times higher than in the past. Various countries are going to blame the CCP for the COVID vaccine disaster. Mr. Bannon's family members infected with the virus were all saved by the New Federal State of China. The CCP and the dark forces will surely be retaliated against by the victims of the CCP virus and its vaccines.<br/><br/>2/3/2022 文贵盖特：H-Pay上线后喜联储网站访问量是过去的三倍；各国都要把疫苗灾难算到中共头上；班农先生家人染病后都被新中国联邦拯救；中共和黑暗势力必将遭到病毒和疫苗受害者的报复<br/>
-![img](https://media.gettr.com/group45/getter/2022/02/04/02/bd7c0df3-dccf-30ef-f3d4-62ece8aa8d86/out.jpg)
 
 ---
 
