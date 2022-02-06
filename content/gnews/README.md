@@ -15,89 +15,89 @@
 
 ---
 
-### [“卖台贼”洪秀柱在北京喊“反独促统”](/content/gnews/1/README.md)
+### [七哥回答问题续（四）](/content/gnews/1/README.md)
+ ` 雅典娜GNotes`
+
+### [北京冬奥会开幕式上的鬼影重重](/content/gnews/2/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [“卖台贼”洪秀柱在北京喊“反独促统”](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [密西根两百多名因未打疫苗而被解雇的医护对雇主提起诉](/content/gnews/2/README.md)
+### [日本厚劳省将接种后患心肌炎警报提高至“疫苗严重不良反应”](/content/gnews/4/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共秘密封城雄安，北京“气泡”爆129例有症状](/content/gnews/3/README.md)
+### [密西根两百多名因未打疫苗而被解雇的医护对雇主提起诉](/content/gnews/5/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [七哥坚信自己是有使命的](/content/gnews/4/README.md)
+### [中共秘密封城雄安，北京“气泡”爆129例有症状](/content/gnews/6/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [七哥坚信自己是有使命的](/content/gnews/7/README.md)
  ` 雅典娜GNotes`
 
-### [七哥回答问题续（三）](/content/gnews/5/README.md)
+### [七哥回答问题续（三）](/content/gnews/8/README.md)
  ` 雅典娜GNotes`
 
-### [2月5日文贵先生盖特摘要（图片](/content/gnews/6/README.md)
+### [2月5日文贵先生盖特摘要（图片](/content/gnews/9/README.md)
  ` 波士顿五月花农场`
 
-### [每日快報：印度在最後一刻對北京奧運會進行了外交抵制](/content/gnews/7/README.md)
+### [每日快報：印度在最後一刻對北京奧運會進行了外交抵制](/content/gnews/10/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [1978年中國GDP](/content/gnews/8/README.md)
+### [1978年中國GDP](/content/gnews/11/README.md)
  ` 雅典娜GNotes`
 
-### [每日快报：印度在最后一刻对北京奥运会进行了外交抵制](/content/gnews/9/README.md)
+### [每日快报：印度在最后一刻对北京奥运会进行了外交抵制](/content/gnews/12/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [为什么要追求喜马拉雅（二）](/content/gnews/10/README.md)
+### [为什么要追求喜马拉雅（二）](/content/gnews/13/README.md)
  ` 雅典娜GNotes`
 
-### [俄确诊选手爆料遭不公待遇 北京隔离餐难以下咽](/content/gnews/11/README.md)
+### [俄确诊选手爆料遭不公待遇 北京隔离餐难以下咽](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|维生素D与自然免疫被证实在疫情中更有效](/content/gnews/12/README.md)
+### [有声|维生素D与自然免疫被证实在疫情中更有效](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [中俄结盟麻烦多，白宫提醒北京小心后果](/content/gnews/13/README.md)
+### [中俄结盟麻烦多，白宫提醒北京小心后果](/content/gnews/16/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [为什么要追求喜马拉雅（一）](/content/gnews/14/README.md)
+### [为什么要追求喜马拉雅（一）](/content/gnews/17/README.md)
  ` 雅典娜GNotes`
 
-### [CCP SPY Shan Weijian,PAG(图片）](/content/gnews/15/README.md)
+### [CCP SPY Shan Weijian,PAG(图片）](/content/gnews/18/README.md)
  ` 波士顿五月花农场`
 
-### [中日财经爆|北京冬奥开幕式美国收视人数仅为上届一半](/content/gnews/16/README.md)
+### [中日财经爆|北京冬奥开幕式美国收视人数仅为上届一半](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [高僧大德分享对达赖喇嘛的看法](/content/gnews/17/README.md)
+### [高僧大德分享对达赖喇嘛的看法](/content/gnews/20/README.md)
  ` 雅典娜GNotes`
 
-### [DMED显示中共病毒疫苗后各种疾病惊人上升](/content/gnews/18/README.md)
+### [DMED显示中共病毒疫苗后各种疾病惊人上升](/content/gnews/21/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [千万不能染上Omicron](/content/gnews/19/README.md)
+### [千万不能染上Omicron](/content/gnews/22/README.md)
  ` 雅典娜GNotes`
 
-### [中国版《搏击俱乐部》结局因中共极端审查而被篡改](/content/gnews/20/README.md)
+### [中国版《搏击俱乐部》结局因中共极端审查而被篡改](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [首届印度中亚峰会召开同时，中共国突然召开中亚峰会](/content/gnews/21/README.md)
+### [首届印度中亚峰会召开同时，中共国突然召开中亚峰会](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [七哥回答问题续（二）](/content/gnews/22/README.md)
+### [七哥回答问题续（二）](/content/gnews/25/README.md)
  ` 雅典娜GNotes`
 
-### [所有山脉是怎么来的？让恶人留在噩梦里](/content/gnews/23/README.md)
+### [所有山脉是怎么来的？让恶人留在噩梦里](/content/gnews/26/README.md)
  ` 雅典娜GNotes`
 
-### [七哥讲解冬奥会和西安事件](/content/gnews/24/README.md)
- ` 雅典娜GNotes`
-
-### [黄粱一梦，如何记载梦，相片和录像](/content/gnews/25/README.md)
- ` 雅典娜GNotes`
-
-### [实施新冠疫苗强制接种的医学依据已经消失](/content/gnews/26/README.md)
+### [实施新冠疫苗强制接种的医学依据已经消失](/content/gnews/27/README.md)
  ` 喜国公民`
 
-### [美议员敦促当局警惕中共利用冬奥推广数字货币](/content/gnews/27/README.md)
+### [美议员敦促当局警惕中共利用冬奥推广数字货币](/content/gnews/28/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [美国有望监管中共国的数字人民币](/content/gnews/28/README.md)
- ` 澳喜特战旅Gnews`
 
 ### [加拿大总理特鲁多在奥运会开幕之际 批评中共国人权记录](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

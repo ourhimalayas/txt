@@ -2,33 +2,31 @@
 ---
 
 
-## 美国有望监管中共国的数字人民币
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1964109/)
+## 美议员敦促当局警惕中共利用冬奥推广数字货币
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1964127/)
 
-撰稿：小毛牛
-![](https://assets.gnews.org/wp-content/uploads/2022/02/6022.png)图片来源：Gnews
-据路透社报道：参议院的一位重量级共和党人帕特·图米正在敦促拜登政府在中共冬奥运期间密切监控中（共）国最近推出的数字货币的使用情况，因为根据这位参议院掌握的情况中共预计将向外国游客推广该项目。
+![上海一家商场交款处设有“欢迎使用数字人民币”的牌子。（2021年3月8日 法新社）](https://gdb.voanews.com/71B527A0-1A84-4455-BAF5-4E93F1C5BE8C_w1023_r1_s.jpg)上海一家商场交款处设有“欢迎使用数字人民币”的牌子。（2021年3月8日 法新社）
+据美国之音2月6日报道，美国国会参议员帕特·图米3日敦促拜登行政当局密切注意中共国在冬奥会期间使用数字货币的情况。中共国正在利用这次国际体育盛会把中共国央行数字人民币(e-CNY)推向海外。
 
-该报道源于周四致财政部长珍妮特·耶伦和国务卿安东尼·布林肯的一封信：参议员帕特·图米表达了对中共政府可能利用这一全球事件帮助其被称为 e-CNY 的数字人民币在全球站稳脚跟的担忧。他警告说，这样的努力可以用来制定跨境支付的标准，因为中国人民银行希望在开发央行数字货币的竞赛中领先于其他国家。
+中共国从1月4日开始在10个试点城市推广可在网上下载的数字人民币。图米要求财政部和国务院通报2022年冬奥会期间中共国公民和外国访问者使用数字人民币的情况、(中共国)发行电子人民币的总量、以及e-CNY的推行会给美国政府提供哪些教训等情况。美联储表示，在得到国会授权之前，不会启动相关研究。
 
-该参议员还补充说道：在全球数字经济中保持领先地位，并支持数字货币等新创新的重要性是与包括中（共）国在内的其他国家战略竞争的重要领域。
+中共在冬奥会之前启动了数字人民币系统，为了进一步洗劫人民财富和抢占国际数字金融市场。中共从来不按规则出牌，从来不遵守任何条约。中共抢先下手，如果美国和其他国家选择观望，不随后跟进，只怕会受亏损。中共从来不会给他国带来利益，只有灾难和贫穷。
 
-此外，该参议员还要求财政部和国务院报告与中国公民相比，外国游客对数字人民币的使用率、2022 年冬季奥运会期间电子人民币的总发行量，以及电子人民币的推出是否可以为美国政府正在考虑开发自己的中央银行数字货币提供启发。
+新闻参考链接：[https://www.voachinese.com/a/republican-senator-urges-u-s-to-monitor-china-s-digital-yuan-push-during-olympics-20220205/6428067.html](https://www.voachinese.com/a/republican-senator-urges-u-s-to-monitor-china-s-digital-yuan-push-during-olympics-20220205/6428067.html)
 
-截至目前，财政部发言人拒绝置评，国务院也没有回应置评请求。
+编辑：胖丁
 
-自 1 月 4 日起，数字人民币钱包应用程序的试用版已经可以在中共国的手机应用商店中下载。
+* * *
 
-从目前的情况来看，电子人民币的使用仍仅限于 10 个主要“试点”城市，以及周五正式开幕的北京冬奥会的举办地。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-可以确定的一点是：美国迄今为止仍未决定开发自己的数字货币，美联储也承诺在未经国会授权的情况下不会推进任何此类努力。
 
-新闻来源：
+编辑：【英国伦敦喜庄园编辑部】
 
-[https://www.reuters.com/world/us/republican-senator-urges-us-monitor-chinas-digital-yuan-push-during-olympics-2022-02-04/](https://www.reuters.com/world/us/republican-senator-urges-us-monitor-chinas-digital-yuan-push-during-olympics-2022-02-04/)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-*发稿：mgjxs*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,12 +2,19 @@
 ---
 
 
-## 中国版《搏击俱乐部》结局因中共极端审查而被篡改
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1964195/)
+## 高僧大德分享对达赖喇嘛的看法
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1964235/)
 
-01/26/2022 前澳大利亚外交和贸易部的中国问题学者Andrew Phelan，评论电影《搏击俱乐部》结局被篡改以适应中共国的审查制度，这体现了中共国是一个充满审查的国家。
+编辑/整理：澳雅大直播工作组视频剪辑小队
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+*发布：*Frank2021
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,13 +2,11 @@
 ---
 
 
-## DMED显示中共病毒疫苗后各种疾病惊人上升
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1964198/)
+## CCP SPY Shan Weijian,PAG(图片）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1964249/)
 
-01/27/2022 托马斯·伦斯作为三位医生的律师在国会作证有关国防部卫生机构的“国防医学流行病学数据库(DMED)”的数据泄漏，其数据显示了2021年以来各种疾病惊人的上升率，再次印证疫苗灾难！
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
-
+设计 五月花农场 水涨船高
+![](https://assets.gnews.org/wp-content/uploads/2022/02/4E2A6C94-DEB0-4961-97E4-10B5CA91EE2B.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/A0D78C03-6E23-4DB2-B5A3-B9A9807EE252.jpeg)中共高级特务，单伟建 单博通过资本控制网络、社交媒体
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

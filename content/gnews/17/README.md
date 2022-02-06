@@ -2,8 +2,8 @@
 ---
 
 
-## 高僧大德分享对达赖喇嘛的看法
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1964235/)
+## 为什么要追求喜马拉雅（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1964251/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 
