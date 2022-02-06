@@ -2,45 +2,36 @@
 ---
 
 
-## 美俄联合国舌战之际，俄罗斯从乌克兰边境撤出部分军力
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1964769/)
+## 古特雷斯说，他希望中共能让人权负责人对新疆进行 &#8220;可信的 &#8220;访问。
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/1964804/)
 
-作者：台湾宝岛农场dobi
+素材：波士顿五月花 Vicky
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-06-at-4.31.50-PM.png)图片来源：Xinhua/REX/Shutterstock
+联合国秘书长安东尼奥*–*古特雷斯周六表示，他告诉北京的领导人，他期待中共当局将允许联合国人权事务高级专员巴切莱特（*Michelle Bachelet*）对中国进行*“*可信的访问*”*，包括在新疆地区停留。
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-768x103-26.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-26.jpg)
+根据会谈纪要，古特雷斯在北京冬奥会期间会见了中共国家主席习近平和中共外交部长王毅。
 
+中共国家通讯社新华社对这次会议的解读没有提到人权问题。
 
+人权运动人士说，至少有*100*万主要是穆斯林的少数民族被关押在新疆的*“*再教育营*“*中，新疆是中国被指控广泛侵犯人权的地区，包括强迫妇女绝育和强迫劳动。
 
+在冬奥会召开之前，中共外交部在每日简报中反复强调古特雷斯对冬奥会的支持。
 
+但迄今为止，中共一直拒绝智利前总统巴切莱特对新疆进行长期寻求的独立访问。
 
-![This image has an empty alt attribute; its file name is b47c377e73a84c579cc5eeadd5bf5f2d.jpeg](https://p7.itc.cn/q_70/images03/20210409/b47c377e73a84c579cc5eeadd5bf5f2d.jpeg)（俄乌边境一处俄军营地）（图片来自搜狐网）
+美国政府和其他五个西方国家的立法者已宣布中共对新疆维吾尔人的待遇是*“*种族灭绝*”——*北京断然否认这一指控。
 
+但在开幕式上，它选择了一名年轻的维吾尔运动员、*20*岁的越野滑雪运动员迪尼格*·*依拉木江作为奥运火炬手之一，这一举动带有明显的政治色彩。
 
+人权活动家和立法者一直急切地等待着联合国关于新疆人权的报告，要求在北京奥运会前发布该报告的压力也越来越大，但该世界机构上个月底表示，在奥运会前不会发布。
 
-据台媒报导，美国驻联合国大使31日指责俄罗斯不仅侵略成性，且将乌克兰与西方国家丑化为侵略者，企图制造开战借口。
+在与习近平的会晤中，古特雷斯*“*表示希望加强联合国与中华人民共和国在本组织工作的所有支柱方面的合作*—*和平与安全、可持续发展，包括气候变化和生物多样性，以及人权*“*，联合国声明说。
 
-与此同时，俄罗斯军方宣布从乌克兰边界地区撤军9000人，但尚难以判定此次局部撤军是否代表俄方有意降低紧张态势。白俄罗斯位于乌克兰北部，是俄罗斯在东欧最忠实的盟友。白俄罗斯军方上周宣布，驻乌俄军将在2月的两国大规模联合军演之后撤离。
+参考链接：[UN’s Guterres says he expects China to let rights chief pay ‘credible’ visit to Xinjiang](https://www.theguardian.com/world/2022/feb/06/uns-guterres-says-he-expects-china-to-let-rights-chief-pay-credible-visit-to-xinjiang)
 
-此前，俄罗斯曾要求美国与北约不要对乌克兰开放门户，遭到拒绝。《华盛顿邮报》1月31日报导，针对美国与北约的方案，莫斯科也已提出书面响应，各方将持续秘密磋商。
+* * *
 
-参考链接：
-
-[https://tw.news.yahoo.com/%E7%83%8F%E5%85%8B%E8%98%AD%E5%8D%B1%E6%A9%9F-%E7%BE%8E%E4%BF%84%E8%81%AF%E5%90%88%E5%9C%8B%E5%A4%A7%E4%BD%BF%E5%94%87%E6%A7%8D%E8%88%8C%E5%8A%8D-%E4%BD%86%E4%BF%84%E7%BE%85%E6%96%AF%E6%92%A4%E8%BB%8D9000%E4%BA%BA-%E5%8F%AC%E5%9B%9E20%E8%89%98%E8%88%B9%E8%89%A6-040039390.html》](https://tw.news.yahoo.com/%E7%83%8F%E5%85%8B%E8%98%AD%E5%8D%B1%E6%A9%9F-%E7%BE%8E%E4%BF%84%E8%81%AF%E5%90%88%E5%9C%8B%E5%A4%A7%E4%BD%BF%E5%94%87%E6%A7%8D%E8%88%8C%E5%8A%8D-%E4%BD%86%E4%BF%84%E7%BE%85%E6%96%AF%E6%92%A4%E8%BB%8D9000%E4%BA%BA-%E5%8F%AC%E5%9B%9E20%E8%89%98%E8%88%B9%E8%89%A6-040039390.html》)
-
-编辑/校对/发稿：有莫举名
-
-![This image has an empty alt attribute; its file name is image-75.jpeg](https://assets.gnews.org/wp-content/uploads/2022/02/image-75.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-768x103-25.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-25.jpg)
-
-
+*编辑&发布：Vicky*
 
  
 

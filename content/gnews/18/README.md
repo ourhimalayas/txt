@@ -2,24 +2,47 @@
 ---
 
 
-## 面对可能的欺诈调查，GoFundMe同意退还加拿大卡车司机收到的捐款
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1964778/)
+## 日本国会通过关于中共人权的决议
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1964821/)
 
-#### 撰稿：彩虹
+作者：银河系农场—骄子
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-3-2.jpg)图片来源：网络图片
-2月5日，《新闻极限》报道，周六，众筹平台GoFundMe表示，在佛罗里达州州长罗恩·德桑蒂斯和其他人要采取行动对其进行欺诈调查后，它将自动退还为抗议中共病毒（COVID-19）疫苗规定的加拿大卡车司机车队筹集的约1000万美元的剩余款项。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-26.jpg)
 
-该组织在周六早些时候发布的推特（Twitter）上说：“为了简化用户的程序，我们将退还对2022年自由车队（Freedom Convoy）筹款活动的所有捐款。这种退款将自动发生，你不需要提交申请。捐赠者可以预期在7-10个工作日内看到退款。”
 
-报道说，在GoFundMe暂停通过网站上的捐款为加拿大“自由车队”筹集的约1000万美元的分配后，德桑蒂斯与其他人一道，在推特上发文谴责GoFundMe不允许抗议活动组织者提取资金，是一种“欺诈”。
 
-根据BBC的报道，1000万美元的捐款来自世界各地的12万多名捐助者，包括“许多”来自美国的。
 
-**新闻来源**
 
-[GoFundMe to Refund $10M of Canadian Trucker Donations After Fraud Probe Threat](https://www.newsmax.com/politics/canada-truckers-covid-protest/2022/02/05/id/1055642/)
+![日本国会赶在北京冬奥会前通过决议关注中国人权状况](https://gdb.voanews.com/32091DCA-A276-41B6-964D-30FFFB692A1D_w408_r1_s.jpg)（图片来自美国之音）
+
+近日，日本国会发布了针对中共人权问题的决议。决议指出，近年来，国际社会对发生在新疆、西藏、内蒙古、香港和中共大陆其他地区的压制宗教自由和强迫监禁等严重侵犯人权的状况表示关注。其中一些国家还制定了相应的法律来关注和支持受到中共迫害的人士。
+
+日本政府认为人权问题并非局限于某个国家领土范围之内的内部事务，因为人权具有普遍价值，是国际社会的合法关切。因此，日本制定了实质性和强有力的政治文件来指导人权外交工作。
+
+该文件指出，在尊重每个民族和其他群体的文化、传统和自治的同时，基于自由、民主和法治的基本价值观，首先应收集有关情况的事实资料，以确定这种严重侵犯人权状况的涉及范围。同时，应采取措施，与国际社会合作，监督并纠正相关现象。
+
+
+
+参考链接：
+
+[https://mobile.reuters.com/article/amp/idCNKBS2K62KD](https://mobile.reuters.com/article/amp/idCNKBS2K62KDhttps://news.yahoo.co.jp/articles/45846e70af87425e14b2112939e43420c565f5ed)
+
+[https://news.yahoo.co.jp/articles/45846e70af87425e14b2112939e43420c565f5ed](https://mobile.reuters.com/article/amp/idCNKBS2K62KDhttps://news.yahoo.co.jp/articles/45846e70af87425e14b2112939e43420c565f5ed)
+
+编辑/校对/发稿：有莫举名
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-75.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-25.jpg)
+
+
 
  
 
