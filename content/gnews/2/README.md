@@ -2,35 +2,30 @@
 ---
 
 
-## 有声|解析中共国虚假的进出口贸易数据
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1967350/)
+## 有声|文贵大直播再次预警 中共解放军准备侵台
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1967426/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据中共国海关总署1月14日发布的数据显示，2021年，中共国货物贸易进出口规模首次突破6万亿美元，创下历史新高。其中，外贸增量达到了1.4万亿美元，相当于2005年全年外贸规模。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-549.png)图片来自：https://idsb.tmgrup.com.tr/
-然而经过比较，我们却发现，中共国海关统计的2021年1至11月，中共国出口美国的贸易额，相较于美国统计的、同期从中共国进口的贸易额多出631亿美元。而同期，中共国统计的、从美国进口的贸易额，也比美国统计数据多出247亿美元。2021年1至11月，中共国统计的进出口总和，比美国的统计数据多出878亿美元。
+配音：香草山健身部 – 玫瑰园
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+美东时间2月4日文贵大直播，郭文贵先生得到中共军方情报，研判台海局势新动向。中共解放军战区某地部队，已经紧急战备进入“准战争”状态。
 
-而2021年影响中共国经济生产贸易的大事件，诸如疫情对供应链的冲击、全国各地的天灾人祸、夏季的能源危机、房地产暴雷冲击建筑业与进口贸易、外资企业不断撤离、全球对中共的贸易制裁不断加剧，以及中共国最近实行的一系列货币宽松政策等，均证明，中共虚假操纵其进出口贸易数据。
+2019年秋天，在揭露香港“反送中”运动时期。郭先生曾曝光中共拿下香港以后，已经在福建沿海聚集几十万部队准备侵台。因前线一名解放军大校，曝光攻台绝密计划，避免了中共对海峡两岸同胞生灵涂炭。
+2021年8月30日郭先生紧急直播，中共不顾河南‘720’大水灾中，中共解放军高炮学院-战略支援部队信息工程大学（郑州市），全军地下最大‘对台作战指挥模拟中心’遭水灾重创。人员设备惨遭毁灭恶果。中共领导人仍决意在9月初准备侵台。由于中共国9月1日接连不断发生天象异变，毛纪念塔吊灯坠落事件，天安门黑天鹅事件，中共老巢延安窑洞坍塌事件，让中共暂停了秋季侵台计划。
 
-文字版原文：[解析中共国虚假的进出口贸易数据](https://gnews.org/zh-hans/1964663/)
+文字版原链接：[文贵大直播再次预警 中共解放军准备侵台](https://gnews.org/zh-hans/1962957/)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

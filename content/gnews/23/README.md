@@ -2,46 +2,32 @@
 ---
 
 
-## 法院责令FDA于未来半年内公布辉瑞疫苗文件
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1967028/)
+## 中国独裁者的邀请
+` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/1967051/)
 
-作者：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-2月2日，德克萨斯州北区地区法院签发的一份判决书，责令美国食品和药物管理局FDA在未来的半年内，必须按期公开长度超过33万页的辉瑞中共病毒疫苗的审批文件，直到全部文件完全被公之于众。
+**恐怖的奥运盛宴**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/7-6.png)
+作者：Frank Schneider
 
-此前，FDA在回应遵守“信息自由法案 (FOIA) ”的初审判决时，请求以每月 500 页的速度公布与辉瑞疫苗相关的数十万份文件。该判决书表示，法院收到FDA要求修改排期令的动议，也收到一份联合状况报告，阐明了原、被告双方商定的时间表。法院根据这份时间表，批准了部分动议。命令：
+翻译：英喜德语组 Luckycky
+![](https://assets.gnews.org/wp-content/uploads/2022/02/pasted-image-5.tiff)图片：Shen Hong/dpa
 
-1、FDA的报告必须在每个月的第一个工作日提交；
+什么样的餐桌！ 什么样的装饰！ 宾客名单上的恐怖内阁。
 
-2、FDA在3月、4月，各提交1万页；
+中国国家元首习近平（68岁）在冬奥会开幕后的一天邀请各国元首共进晚餐–那是一场恐怖的盛宴。
 
-3、FDA在5月、6月和7月各完成8万页；在8月完成7万页；此后在每个月的第一个工作日提交5.5万页，直到公布完毕。
+宾客包括：俄罗斯总统弗拉基米尔-普京（Wladimir Putin）（68岁），他的士兵正威胁着乌克兰。在场的还有：沙特阿拉伯王储穆罕默德-本-萨勒（Mohammed bin Salman），他因在其国家驻伊斯坦布尔大使馆雇佣谋杀记者贾马尔-卡舒吉（ Jamal Khashoggi）而受到国际社会的排斥。同样受到热烈欢迎的还有哈萨克斯坦总统卡西姆-绍马特-托卡耶夫（Kassym-Schomart Tokajew），他在1月份对反政府抗议活动进行了暴力镇压，并下令开枪。
 
-该判决书还允许提前完成公布页码数量，并且将每40行算作一页，而不是之前的20行算作一页。
+中国领导人在一对一会谈后赞扬了哈萨克斯坦领导人的路线，说他支持这种 “强硬的做法”。习近平说，中国准备 “帮助哈萨克斯坦保持稳定”。官方新华社援引他的话说，一个 “独立、安全、稳定和繁荣的哈萨克斯坦 “符合共同利益。
 
-参考链接：
+许多备受瞩目的嘉宾缺席。由于与中国的紧张关系和东道国的侵犯人权行为，美国、加拿大、英国、澳大利亚和其他国家抵制了开幕式，没有派出任何政府代表。德国和日本也投了弃权票，但没有谈到抵制问题。
 
-- [https://twitter.com/disclosetv/status/1489688729778274304?s=21](https://www.newsmax.com/newsfront/johns-hopkins-researchers-lockdowns-covid/2022/02/01/id/1054965/)
-- [UNITED STATES DISTRICT COURT FOR THE NORTHERN DISTRICT OF TEXAS FORT WORTH DIVISION](https://phmpt.org/wp-content/uploads/2022/02/056-ORDER-GRANTING-IN-PART-THE-MOTION-TO-MODIFY-THE-PRODUCTION-SCHEDULE-AND-ADDOPTS-THE-JOINT-STATUS-REPORT-MODIFIED-AGREED-PRODUCTION-SCHEDULE.pdf)
-- [FDA想75年才公布完疫苗数据却被法官大提速](https://gnews.org/zh-hans/1886642/)
-- [为什么法官命令 FDA 立即发布 Covid-19 疫苗数据](https://gnews.org/zh-hans/1891996/)
+顺便说一下，人民大会堂的桌子装饰描绘了冬季的雪景。他们要吃什么，不得而知。
 
+原文链接：[https://www.bild.de/sport/olympia/olympia/china-diktator-laedt-ein-das-olympia-bankett-des-schreckens-79056836.bild.html](https://www.bild.de/sport/olympia/olympia/china-diktator-laedt-ein-das-olympia-bankett-des-schreckens-79056836.bild.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
-
-总编：文真
-编辑：Delilah小胖
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+发布：Luckycky
+![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

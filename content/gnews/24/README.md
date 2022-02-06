@@ -2,40 +2,29 @@
 ---
 
 
-## 加拿大阿省省长将于下周宣布疫苗护照结束日期
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1967027/)
+## 加拿大萨省省长: 人们了解了新冠的风险，并做好了准备承受风险而非政府对他们生活的干预，是时候结束所有的新冠限制了
+` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1967043/)
 
-作者：加拿大温哥华扬帆农场 – Spirit
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-国外媒体2月4 日报道，加拿大阿尔伯塔省省长肯尼表示，将在下周宣布结束该省中共病毒疫苗护照的日期。他还并表示，只要医院的压力继续下降，就会在本月底前结束几乎所有的中共病毒限制。
+#### 加拿大温哥华扬帆农场 视频组
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8-6.png)
+素材：文倩
+翻译：Kent
+字幕：杰尼龟
 
-据悉，因政府对抗中共病毒政策，1月份，加拿大劳动力市场减少约20万个工作岗位。一周来，肯尼省长受到了来自各方的压力，民众普遍认为疫苗护照侵犯了个人权利，必须立即被取消。
+2022年2月2日：
 
-肯尼省长发表推文表示，民众需要继续自由、快乐地生活。
+大家好，最近很多关于我们萨省是否应考虑结束现有的所有新冠措施和限制的讨论，我认为现在是时候了，这就是我所听到的，这也是我们的议员从大多数选民那里听到的。
 
-参考链接：
+这并不是因为新冠已经结束了，它肯定还没有结束，这是因为人们更了解它了，人们明白自己需要做什么，人们了解新冠的风险，并且做好了准备承受这种风险，而非做好了准备继续接受政府对他们生活的干预。
 
-- [Premier Jason Kenney to announce next week the date Alberta will end its COVID-19 vaccine passport](https://www.theglobeandmail.com/canada/article-kenney-to-announce-next-week-the-date-alberta-will-end-its-covid-19/)
-- [https://twitter.com/jkenney/status/1489635789763866624](https://twitter.com/jkenney/status/1489635789763866624)
-- [https://twitter.com/jkenney/status/1489691362794491904](https://twitter.com/jkenney/status/1489691362794491904)
-- [Canada snaps 7-month run of job gains after Omicron saps growth](https://www.bnnbloomberg.ca/canada-lost-200-100-jobs-in-january-as-omicron-hit-economy-1.1718348)
+还记得这一切刚开始的时候吗？非常久之前，当时政府颁布的措施应该只持续两个星期，但它却持续了两年，两年来萨省渡过了最有挑战性的时期，坦率地说全世界都经历了非常具有挑战性的日子。
 
+但当我们经历所有这些挑战时，我们对新冠病毒有了更多的了解，我们对如何保护自己有了更多的了解，我们学会了评估风险，学会为自己和家人做正确的选择，在这段时间里，我们可以使用的工具也在不断发展，疫苗和抗病毒治疗方法更易获得，病毒检测选项也广泛可用。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
+因此我们来到了今天，现在是时候让我们就新冠病毒和我们的前方的道路进行一次坦诚的沟通了，我将要说的话对一些人来说很激进，老实说有些人不会喜欢，但是根除新冠是不现实的，零新冠病例是遥不可及的，但使新冠正常化或与新冠共处定然可行。
 
-总编：Jack Li 文阳
-编辑：飞虹
-校正/发稿：海阔天空1
+编辑/发文：Kent
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
