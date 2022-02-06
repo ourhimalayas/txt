@@ -2,8 +2,8 @@
 ---
 
 
-## 共产党为什么要处理网红
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1964763/)
+## 习近平要做习太阳
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1964779/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

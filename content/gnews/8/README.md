@@ -2,8 +2,8 @@
 ---
 
 
-## 习近平要做习太阳
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1964779/)
+## 龙杯和龙椅的故事
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1964816/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

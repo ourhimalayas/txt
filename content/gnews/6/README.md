@@ -2,33 +2,43 @@
 ---
 
 
-## 菲律宾最高法院退休法官：中共将干预即将举行的选举
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1964797/)
+## 两名澳洲议员声援堪培拉反疫苗强制集会
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1964825/)
 
-整理/编辑：小红帽
+#### **澳洲新闻时事动态，尽在雅典娜【澳洲热点】**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/雅典娜快讯图.png)图片来源：雅典娜设计组
+整理/编辑：文泓
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/19-1.png)图片来源：Balkanstimes.eu
 
 
-根据《Inquirer.net》2月5日报道，菲律宾一位已退休的最高法院高级助理法官安东尼奥·卡皮奥（Antonio Carpio）周六表示，他认为中共可能会干预即将举行的全国大选以保护其利益。
+2月6日，据《澳洲新闻网》报道，受加拿大卡车司机大规模抗议疫苗强制活动的启发，澳洲的抗议者分别从昆士兰北部和珀斯等多地出发，并在一周前聚集在首都堪培拉。
 
-“中共会干预，因为我认为他们干预了上次总统选举，”卡皮奥在一个在线论坛上说。
+在过去一周，抗议者的队伍一直在堪培拉保持稳定，他们在那里坚持的原因是为了让政府承担责任。
 
-前外交部秘书阿尔伯特·德·德尔罗萨里奥（Albert Del Rosario）称，中共国官员一直在吹嘘他们能够影响2016年该国的投票结果，这导致了罗德里戈·杜特尔特（ Rodrigo Duterte）总统的当选。
+乔治·克里斯滕森是昆州麦凯市众议员、[昆士兰自由国家党的](https://en.wikipedia.org/wiki/Liberal_National_Party_of_Queensland)成员，他一贯以反对新冠疫苗强制接种而闻名；克雷格·凯利是昆州修斯地区参议员，原为自由党成员，自2021年8月起担任澳大利亚联合党（也称为统一党）领袖。他反对强制接种，并主张采用伊维菌素等有效的替代办法治疗新冠。这个周六，两位议员均参加了堪培拉大规模的反疫苗强制抗议集会。
 
-卡皮奥相信，中共将再次青睐一位延续杜特尔特与北京友谊的候选人。
+大批抗议者穿越堪培拉中心城区游行到旧议会大厦，要求政府结束对新冠疫情的各种限制。
 
-“因此，我们将不得不期待对我们的海域感兴趣或声称拥有我们的领土和海域的国家（中共国）会寻找一个对他们友好的候选人，就像杜特尔特一样。中共希望杜特尔特的政策得以延续”。卡皮奥指出。
+一些人高呼“不再强制接种”和“拯救澳大利亚”，而另一些人则大喊“把你的疫苗护照扔掉”。
 
-卡皮奥还引用了杜特尔特先前的声明，即他在从中共手中夺取对西菲律宾海岛屿的控制权时“无能为力”。卡皮奥说，这反映了杜特尔特在争议领土问题上的政策。
+一名男子用扩音器呼吁，停止使用疫苗护照，并要求解雇政客；有抗议者则高喊“拯救我们的孩子”。
 
-“中共希望下一任总统也采取同样的政策，这一点非常明确，”卡皮奥认为。
+克里斯滕森议员现场直播了抗议活动的实况。
 
-新闻链接：[Carpio believes China will interfere in upcoming elections](https://newsinfo.inquirer.net/1550404/carpio-believes-china-will-interfere-in-upcoming-elections)
+“这里有成千上万的人来自各行各业”，克里斯滕森在社交媒体上的一个直播中说：“他们诉说，我们是（政府心目中的）‘边缘居民’，但看看这里的所有人，他们想要的是，结束政府的这种胡说八道。”
 
-发布：tianzhihuan
+与此同时，凯利议员在人群中与抗议人士交谈。
 
-更多资讯，请关注：
+“我们希望恢复我们的自由，我们希望结束这些（强制疫苗）任务，我们希望结束医疗隔离、封锁、州边界关闭。”
+
+警方估计周六抗议活动的人群超过2000人，警察在现场维持集会秩序，直到集会人数逐渐减少。
+
+新闻链接：[George Christensen slammed after attending anti-vaccine rally in Canberra | news.com.au — Australia’s leading news site](https://www.news.com.au/national/nsw-act/news/rebel-nationals-mp-george-christensen-attends-canberra-antivax-mandate-protest/news-story/53069669648f61ee19df14bc16297111)
+
+***发布：**tianzhihuan*
+
+**更多资讯，请关注：**
 [澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)

@@ -2,8 +2,8 @@
 ---
 
 
-## 共产党为什么要关内教（育）外教（育）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1964768/)
+## 习近平的习天下
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1964796/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
