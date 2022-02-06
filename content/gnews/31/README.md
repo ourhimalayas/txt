@@ -2,18 +2,18 @@
 ---
 
 
-## 联合国秘书长：希望北京允许人权特使访新疆
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1964448/)
+## 谭德塞与李克强会面 欲勾兑中共病毒溯源
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1964467/)
 
 撰稿：东京樱花团/asket
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-540.png)
-联合国表示，秘书长古特瑞斯（Antonio Guterres）2月5日告诉北京领导人，希望当局允许联合国人权事务高级专员巴舍莱到中共国进行“可信的”访问，包括停留新疆。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-542.png)
+世界卫生组织WHO秘书长谭德塞2月5日与中共国务院总理李克强会面，讨论中共病毒（新冠病毒COVID-19）相关议题，其中也包括针对疫情起源的调查，勾兑痕迹明显。
 
-根据联合国提供的会谈内容，古特瑞斯在北京冬季奥运场边与中国国家主席习近平和外交部长王毅会面时，对两人“表示，期望联合国人权事务高级专员公署（Office of the UN High Commissioner for Human Rights, OHCHR）与中国当局的接触，能促成人权事务高级专员到中国进行可信的访问，包括新疆”。
+谭德塞发文说：“很高兴与李克强总理会面，我们讨论了中共病毒（新冠病毒COVID-19）以及今年在疫苗平权（Vaccine Equity）计划上积极努力，好让全球70%人口接种疫苗。”他补充道：“我们也讨论了在中共病毒溯源一事上加强合作的必要性，而这一切都将建立在科学与证据的基础之上。”
 
-而中共新华社发出的会谈新闻并未提及人权议题。
+WHO与中共长期勾结，由其发起的溯源调查根本就是为中共洗地。而中共病毒最早于2019年底在中共国武汉市出现，中共当局为故意放毒。
 
-信息源：[UN秘书长：盼北京允人权特使访新疆](https://www.swissinfo.ch/chi/un%E7%A7%98%E4%B9%A6%E9%95%BF-%E7%9B%BC%E5%8C%97%E4%BA%AC%E5%85%81%E4%BA%BA%E6%9D%83%E7%89%B9%E4%BD%BF%E8%AE%BF%E6%96%B0%E7%96%86/47324502)
+信息源：[谭德塞与李克强谈COVID-19 溯源亦成焦点](https://www.rfi.fr/cn/%E8%B0%AD%E5%BE%B7%E5%A1%9E%E4%B8%8E%E6%9D%8E%E5%85%8B%E5%BC%BA%E8%B0%88covid-19-%E6%BA%AF%E6%BA%90%E4%BA%A6%E6%88%90%E7%84%A6%E7%82%B9)
 
 *编辑：东京樱花团/知了知了
 发布：东京樱花团/平安卿卿*

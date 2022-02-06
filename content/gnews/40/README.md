@@ -2,19 +2,25 @@
 ---
 
 
-## 普京参加冬奥会获北京“大礼” 却缺席习近平宴会
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1963676/)
+## 加拿大总理特鲁多在奥运会开幕之际 批评中共国人权记录
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1964037/)
 
 撰稿：东京樱花团/asket
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-75.jpg)
-2月4日，俄罗斯总统普京和中国领导人习近平在北京冬奥会开幕式前进行了会晤。期间，双方签署了15项合作文件，其中包括俄罗斯向中国出口石油、天然气、小麦等大宗商品的购销协议。俄罗斯石油公司官网2月4日消息，普京率团访华期间，俄罗斯石油公司（Rosneft Oil）和中国石油天然气集团（下称中石油）签署过境哈萨克斯坦向中国供应1亿吨石油的协议，协议期为10年。俄罗斯卫星通讯社（Sputnik）报导，除上述石油供应协议外，中石油还与俄罗斯天然气工业股份有限公司（Gazprom）签订了一份天然气长期供应协议。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/4-4.jpg)
+加拿大总理贾斯汀-特鲁多在周五纪念冬奥会开幕的一份尖锐声明中，省略了对主办国的传统祝贺，而是抨击中共国的人权记录。特鲁多在总理办公室发表的一份声明中说：“在国际舞台上，加拿大一直是保护和促进人权的一个强有力的声音，我们对中国侵犯人权的报道极为关注，包括对维吾尔人的迫害。”
 
-2月5日，习近平夫妇在人民大会堂举行宴会，欢迎出席北京冬奥会开幕式的国际宾客。但中共央视报导并未提及具体有哪些宾客。根据央视画面显示，出席这次宴会的国际级政要人数约有25人，但备受瞩目的普京未列其中，引发外界猜测。
+他重申，由于中共国在人权方面的记录，加拿大将不派任何外交代表参加北京奥运会。
 
-[信息来源](https://www.epochtimes.com/gb/22/2/5/n13557271.htm)
+然而，他向参加奥运会的加拿大运动员表示祝愿，许多加拿大新闻评论员已开始将其称为“种族灭绝运动会”。
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
+特鲁多和他的内阁于去年12月宣布了抵制奥运会的决定。
+
+信息源：
+
+[Trudeau criticises China’s human rights record as Olympics begin](https://www.hindustantimes.com/world-news/trudeau-criticises-china-s-human-rights-record-as-olympics-begin-101644046160573.html)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
