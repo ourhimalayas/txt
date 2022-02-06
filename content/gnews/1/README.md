@@ -2,39 +2,29 @@
 ---
 
 
-## 埃隆马斯克抨击 GoFundMe卑躬屈膝特鲁多,取消资助自由卡车司机
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1962936/)
+## 文贵大直播再次预警 中共解放军准备侵台
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1962957/)
 
-2022-02-05
+作者：纽约香草山健身部-文鹰
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+美东时间2月4日文贵大直播，郭文贵先生得到中共军方情报，研判台海局势新动向。中共解放军战区某地部队，已经紧急战备进入“准战争”状态。
+2019年秋天，在揭露香港“反送中”运动时期。郭先生曾曝光中共拿下香港以后，已经在福建沿海聚集几十万部队准备侵台。因前线一名解放军大校，曝光攻台绝密计划，避免了中共对海峡两岸同胞生灵涂炭。
+2021年8月30日郭先生紧急直播，中共不顾河南‘720’大水灾中，中共解放军高炮学院-战略支援部队信息工程大学（郑州市），全军地下最大‘对台作战指挥模拟中心’遭水灾重创。人员设备惨遭毁灭恶果。中共领导人仍决意在9月初准备侵台。由于中共国9月1日接连不断发生天象异变，毛纪念塔吊灯坠落事件，天安门黑天鹅事件，中共老巢延安窑洞坍塌事件，让中共暂停了秋季侵台计划。
+2022年2月4日文贵大直播前，郭先生GTV短视频中，深切关注台海两岸同胞命运。0204文贵大直播期间，接中共军方战区人士情报证实，距北京5000公里的东南战区，前线部队接命令即刻起紧急战备动员，参战部队全员进入准战争状态。验证1月30日直播中，东部解放军部队开始兵力调动情报，解放军已完成侵台战争准备，集结待命随时开战。
+郭先生大直播以后，又发盖特短视频。再次忧心忡忡台湾同胞安危，同时建议新中国联邦台湾地区战友，要做好安全离台准备，以应对即将来临的台海战争突发事件。
 
-作者：16626
-![](https://assets.gnews.org/wp-content/uploads/2022/02/6A1HNKDBQM10ZO5G.png)图片来源：[Elon Musk slams GoFundMe for bowing to Trudeau and CANCELING Freedom Truckers – while allowing BLM donations: Site refuses to return $9M and will instead distribute it to charities it deems fit as Canadian PM is branded a ‘dictator’](https://www.dailymail.co.uk/news/article-10478989/GoFundMe-cancels-Freedom-Convoy-distribute-9M-donations-charities.html)
-每日邮报（娜塔莎·安德森NATASHA ANDERSON ，美国东部时间 21:46，2022 年 2 月 4 日， 更新： 2022 年 2 月 5 日，美国东部时间 01:55 ）发表一篇题为《埃隆马斯克抨击 GoFundMe卑躬屈膝特鲁多,取消资助自由卡车司机…》的报道文章。如下是文章报道的几个重点：
+校对/发稿：菩提树
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2月-2.jpg)
+**更多资讯，更多关注**
 
-1. GoFundMe 因违反其服务条款为理由，取消了2022自由卡车车队（Freedom Convoy 2022） 筹款活动
-2. 剩余的资金 “由2022自由卡车车队 组织者选择并由 GoFundMe 验证（分配给）可信且成熟的慈善机构”
-3. 该公司表示，（自由卡车）车队捐助者必须在 2 月 19 日之前提出要求退款
-4. 这一决定是在加拿大领导人要求 GoFundMe 说明如何确保捐款不被用于煽动仇恨的转天做出的
-5. 特斯拉（特斯拉科技，又称为特斯拉汽车，是美国最大的电动汽车公司）首席执行官埃隆马斯克抨击了这一决定，并指责 GoFundMe 有“双重标准”，因为它之前支持 黑命贵（Black Lives Matter）的 筹款活动
-6. 报道还称，“GoFundMe 支持和平抗议，我们相信这就是 Freedom Convoy 2022 筹款活动最初创建时的意图”…“我们现在有来自执法部门的证据表明，以前的和平示威已经（演变）成为一种占领，警方报告了暴力和其他非法活动（的出现）”
-7. Facebook 也删除了美国卡车司机用来组织车队前往华盛顿特区的页面
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-另外，Gnews（2022 年 2 月 3 日，下午20：36）发表一篇题为《[魁北克放弃“疫苗税”后，未接种疫苗的护士首次发声主流媒体](https://gnews.org/zh-hans/1957383/) 》的文章报道，一位参加自由车队抗议，未接种疫苗的，前（资深）助理护士，乔安妮·拉方德（Joanne Lafond），完全反对那些定性“自由车队”有“攻击性”和“破坏性”的色彩的言论。然而，她确实承认，（自由车队中）只有少数人在做有害的事情。
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-GoFundMe 之前支持 黑命贵（Black Lives Matter） 筹款活动，现在能真心支持2022自由卡车司机的示威吗？请读者回答。欢迎访问并在加拿大温哥华圆成农场[https://gettr.com/user/himalayavang](https://gettr.com/user/himalayavang) 上留言。
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-参考链接：
-
-1. [Elon Musk slams GoFundMe for bowing to Trudeau and CANCELING Freedom Truckers – while allowing BLM donations: Site refuses to return $9M and will instead distribute it to charities it deems fit as Canadian PM is branded a ‘dictator’](https://www.dailymail.co.uk/news/article-10478989/GoFundMe-cancels-Freedom-Convoy-distribute-9M-donations-charities.html)
-
-
-编辑：LILY
-发布：肥鯮
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,39 +2,25 @@
 ---
 
 
-## 有声|哭泣的母亲
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1962906/)
+## 北京政府推出食品机械化以降低新冠病毒的传播
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1962941/)
 
-配音：香草山健身部 – 玫瑰园
+撰稿：小湫
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-47.png)图片来自网络 （2022年北京冬奥会开幕前，一个机器人在媒体中心的用餐区准备食物）
+根据最近《美食与美酒》的一份报告，中共国将重点放在机器人厨师和服务员上，为冬季奥运会主媒体中心的与会者准备和提供食物，以最大限度地减少新冠病毒的传播。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/logo-5-768x103-6.jpg)
+中共国的官方媒体新华社称智能备餐和供餐系统不仅可以提高供餐效率，还可以最大限度地节省人力，避免疫情防控中过度的人际互动而引起的病毒传播。为了保证用餐者的安全，餐厅的餐桌上安装了有机玻璃屏障，当坐下时，没有服务员来迎接，而是用手机点餐。
 
-我的心中 必有一位温柔的母亲雕像
-她常在黑夜里独自哭泣
+在后台，一位机器人厨师准备烹饪汉堡，另一位机器人煮米饭和面条，还有一位机器人充当你的调酒师，在90秒内为你调制鸡尾酒。中共国全球电视网提供了一段视频，让人们一窥这家酒吧的内部情况。
 
-她神圣的子宫里孕育过
-稚嫩到 从未出生即死亡的希望
-如今她像被时间和人群遗忘
+对于咖啡爱好者来说，还有一款专门的机器人，它不仅能磨咖啡，还能在不到四分钟的时间里煮好咖啡，而且从不抱怨。饭菜准备好后，机器手臂电子平台开始提供食物，为你提供专属个人服务。
 
-或者，她有骄傲的儿子
-在三十年前的广场驻留
-如今她美丽的容颜褶皱苍老
+《华盛顿邮报》报道，任何一位来北京参加比赛的运动员、志愿者、工作人员就像进入一个独立的封闭状态，内部与外部人员无任何交集，极大程度的降低了病毒传播风险。
 
-文字版原文：[哭泣的母亲](https://gnews.org/zh-hans/1959134/)
+第15次参加奥运会的美国奥委会成员比尔·汉考克说：“对我来说，奥运会有文化方面和体育方面的体验，体育方面将一如既往。 但在文化上，这是完全不同的。 我们来这里之前都知道，你不能去街上的面条摊。 你可以在新闻中心买到面条。”
 
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
-
-
+消息来源：[Beijing introduces the world to ‘robo-noodles’ to limit COVID spread during the Olympics](https://www.foxnews.com/health/beijing-introduces-robo-noodles-limit-covid-spread-during-olympics)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

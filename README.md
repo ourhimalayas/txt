@@ -15,68 +15,68 @@
 
 ---
 
-### [埃隆马斯克抨击 GoFundMe卑躬屈膝特鲁多,取消资助自由卡车司机](/content/gnews/1/README.md)
+### [文贵大直播再次预警 中共解放军准备侵台](/content/gnews/1/README.md)
+ ` 纽约香草山MOS02`
+
+### [北京政府推出食品机械化以降低新冠病毒的传播](/content/gnews/2/README.md)
+ ` 澳喜农场`
+
+### [埃隆马斯克抨击 GoFundMe卑躬屈膝特鲁多,取消资助自由卡车司机](/content/gnews/3/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [有声|哭泣的母亲](/content/gnews/2/README.md)
+### [七哥爆新常委名单以及南普陀会议背后的故事（一）](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [有声|哭泣的母亲](/content/gnews/5/README.md)
  ` MOSREC`
 
-### [有声|尼日利亚被迫放弃中共银行铁路贷款](/content/gnews/3/README.md)
+### [有声|尼日利亚被迫放弃中共银行铁路贷款](/content/gnews/6/README.md)
  ` MOSREC`
 
-### [七哥爆新常委名单以及南普陀会议背后的故事（五）](/content/gnews/4/README.md)
+### [7·24系列——无声无色无味的催眠武器](/content/gnews/7/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [七哥爆新常委名单以及南普陀会议背后的故事（五）](/content/gnews/8/README.md)
  ` 雅典娜GNotes`
 
-### [有声|西方国家警告：任何入侵乌克兰的行动都将面临“严重后果”](/content/gnews/5/README.md)
+### [有声|西方国家警告：任何入侵乌克兰的行动都将面临“严重后果”](/content/gnews/9/README.md)
  ` MOSREC`
 
-### [有声|中共国八个孩子母亲的惨剧真相](/content/gnews/6/README.md)
+### [有声|中共国八个孩子母亲的惨剧真相](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [有声|美国国立卫生研究院高级官员亚当·霍特为中共工作](/content/gnews/7/README.md)
+### [有声|美国国立卫生研究院高级官员亚当·霍特为中共工作](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [HBO的目的和所求利益](/content/gnews/8/README.md)
+### [HBO的目的和所求利益](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
 
-### [西方人认可共产主义的原因](/content/gnews/9/README.md)
+### [西方人认可共产主义的原因](/content/gnews/13/README.md)
  ` 雅典娜GNotes`
 
-### [七哥爆新常委名单以及南普陀会议背后的故事（四）](/content/gnews/10/README.md)
+### [七哥爆新常委名单以及南普陀会议背后的故事（四）](/content/gnews/14/README.md)
  ` 雅典娜GNotes`
 
-### [共产主义的本质是什么 有多人真正了解](/content/gnews/11/README.md)
+### [共产主义的本质是什么 有多人真正了解](/content/gnews/15/README.md)
  ` 雅典娜GNotes`
 
-### [西方哪些人相信共产主义](/content/gnews/12/README.md)
+### [西方哪些人相信共产主义](/content/gnews/16/README.md)
  ` 雅典娜GNotes`
 
-### [有声|中共国两家银行突然宣布停办柜台现金业务](/content/gnews/13/README.md)
+### [有声|中共国两家银行突然宣布停办柜台现金业务](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [Isobel Yeung有多Low .](/content/gnews/14/README.md)
+### [Isobel Yeung有多Low .](/content/gnews/18/README.md)
  ` 雅典娜GNotes`
 
-### [忠字舞的意思](/content/gnews/15/README.md)
+### [忠字舞的意思](/content/gnews/19/README.md)
  ` 雅典娜GNotes`
 
-### [被共产党洗脑的人不认为自己在作恶](/content/gnews/16/README.md)
+### [七哥爆新常委名单以及南普陀会议背后的故事（三）](/content/gnews/20/README.md)
  ` 雅典娜GNotes`
 
-### [日本三井物产公司将推出与黄金挂钩的加密货币](/content/gnews/17/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [七哥爆新常委名单以及南普陀会议背后的故事（三）](/content/gnews/18/README.md)
- ` 雅典娜GNotes`
-
-### [日本感染中共病毒居家护理人数创新高](/content/gnews/19/README.md)
+### [日本感染中共病毒居家护理人数创新高](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [七哥不接受采访 也会有别的版本出来](/content/gnews/20/README.md)
- ` 雅典娜GNotes`
-
-### [七哥爆新常委名单以及南普陀会议背后的故事（六）](/content/gnews/21/README.md)
- ` 雅典娜GNotes`
 
 ### [扬帆每日速递2022年2月5日版（2）](/content/gnews/22/README.md)
  ` 温哥华扬帆农场`
