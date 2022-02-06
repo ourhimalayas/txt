@@ -15,107 +15,107 @@
 
 ---
 
-### [2月6日文贵大直播摘要（图片）](/content/gnews/1/README.md)
+### [有声|母爱](/content/gnews/1/README.md)
+ ` MOSREC`
+
+### [2月6日文贵大直播摘要（图片）](/content/gnews/2/README.md)
  ` 波士顿五月花农场`
 
-### [有声|土耳其单日奥密克戎确诊病例再创新高](/content/gnews/2/README.md)
+### [有声|土耳其单日奥密克戎确诊病例再创新高](/content/gnews/3/README.md)
  ` MOSREC`
 
-### [有声|商业利益集团正游说美国剥离对中共贸易](/content/gnews/3/README.md)
+### [北京种族灭绝奥运会](/content/gnews/4/README.md)
+ ` 美国政要直译推`
+
+### [有声|商业利益集团正游说美国剥离对中共贸易](/content/gnews/5/README.md)
  ` MOSREC`
 
-### [有声|美国就中共强迫劳动行为实行企业ESG检验](/content/gnews/4/README.md)
+### [有声|美国就中共强迫劳动行为实行企业ESG检验](/content/gnews/6/README.md)
  ` MOSREC`
 
-### [三个工作重心 | 新中国联邦力图阻止反华，团结人心，做好教育](/content/gnews/5/README.md)
+### [三个工作重心 | 新中国联邦力图阻止反华，团结人心，做好教育](/content/gnews/7/README.md)
  ` YALUN 亚伦`
 
-### [有声|文贵大直播再次预警 中共解放军准备侵台](/content/gnews/6/README.md)
+### [有声|文贵大直播再次预警 中共解放军准备侵台](/content/gnews/8/README.md)
  ` MOSREC`
 
-### [美国总统顾问表示，对俄罗斯的新制裁将影响中（共）国经济](/content/gnews/7/README.md)
+### [美国总统顾问表示，对俄罗斯的新制裁将影响中（共）国经济](/content/gnews/9/README.md)
  ` 纽约香草山MOS02`
 
-### [有声|日本国会通过关于中共人权的决议](/content/gnews/8/README.md)
+### [有声|日本国会通过关于中共人权的决议](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [有声|解析中共国虚假的进出口贸易数据](/content/gnews/9/README.md)
+### [有声|解析中共国虚假的进出口贸易数据](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [2022年2月6日大直播速记精萃](/content/gnews/10/README.md)
+### [2022年2月6日大直播速记精萃](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
 
-### [有声|澳洲政府要求各大学撤销与中共进行共同研究计划](/content/gnews/11/README.md)
+### [有声|澳洲政府要求各大学撤销与中共进行共同研究计划](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [战争行为：中共病毒疫苗导致美国军人癌症发病率至少翻三倍](/content/gnews/12/README.md)
+### [战争行为：中共病毒疫苗导致美国军人癌症发病率至少翻三倍](/content/gnews/14/README.md)
  ` 波士顿五月花农场`
 
-### [有声|灭共者之郭氏情报站（二十一）2022/02/04 文贵大直播](/content/gnews/13/README.md)
+### [有声|灭共者之郭氏情报站（二十一）2022/02/04 文贵大直播](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [墙内世界2022/02/03](/content/gnews/14/README.md)
+### [墙内世界2022/02/03](/content/gnews/16/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [单伟建口中的PAG](/content/gnews/15/README.md)
+### [单伟建口中的PAG](/content/gnews/17/README.md)
  ` 秘密翻译组-原创组`
 
-### [NFSC新闻、G|TV新闻访谈简报|2022年2月6日早](/content/gnews/16/README.md)
+### [NFSC新闻、G|TV新闻访谈简报|2022年2月6日早](/content/gnews/18/README.md)
  ` 纽约香草山MOS01`
 
-### [宪法自由正义中心的律师：渥太华警局局长禁止警员对和平抗议疫苗暴政的民众提供帮助，这让我回忆起过去可怕的日子](/content/gnews/17/README.md)
+### [宪法自由正义中心的律师：渥太华警局局长禁止警员对和平抗议疫苗暴政的民众提供帮助，这让我回忆起过去可怕的日子](/content/gnews/19/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [北京2022“冬眠会”开幕](/content/gnews/18/README.md)
+### [北京2022“冬眠会”开幕](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2.6.22大直播后记：中共国女性的真实地位](/content/gnews/19/README.md)
+### [2.6.22大直播后记：中共国女性的真实地位](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国立法者推动为台湾驻华盛顿代表处重新命名的法案](/content/gnews/20/README.md)
+### [美国立法者推动为台湾驻华盛顿代表处重新命名的法案](/content/gnews/22/README.md)
  ` 澳喜特战旅Gnews`
 
-### [恭祝Himalaya Pay全面上线](/content/gnews/21/README.md)
+### [恭祝Himalaya Pay全面上线](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中国在冬奥会期间加强了对异议人士的镇压：“任何人都不能乱说”](/content/gnews/22/README.md)
+### [中国在冬奥会期间加强了对异议人士的镇压：“任何人都不能乱说”](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [新疆维族火炬手，中共欲盖弥彰](/content/gnews/23/README.md)
+### [新疆维族火炬手，中共欲盖弥彰](/content/gnews/25/README.md)
  ` 澳喜特战旅Gnews`
 
-### [生物技术公司：“未发现特定批次的副作用。”](/content/gnews/24/README.md)
+### [生物技术公司：“未发现特定批次的副作用。”](/content/gnews/26/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [《华尔街日报》受到来自中共国的网络攻击](/content/gnews/25/README.md)
+### [《华尔街日报》受到来自中共国的网络攻击](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [荷兰发现超级突变 HIV 毒株](/content/gnews/26/README.md)
+### [荷兰发现超级突变 HIV 毒株](/content/gnews/28/README.md)
  ` 澳喜特战旅Gnews`
 
-### [中国独裁者的邀请](/content/gnews/27/README.md)
- ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
-
-### [2.6.22大直播后记： 新中国联邦红的由来](/content/gnews/28/README.md)
+### [2.6.22大直播后记： 新中国联邦红的由来](/content/gnews/29/README.md)
  ` 墨尔本雅典娜农场`
 
-### [法院责令FDA于未来半年内公布辉瑞疫苗文件](/content/gnews/29/README.md)
+### [法院责令FDA于未来半年内公布辉瑞疫苗文件](/content/gnews/30/README.md)
  ` NFSC News`
 
-### [加拿大阿省省长将于下周宣布疫苗护照结束日期](/content/gnews/30/README.md)
+### [加拿大阿省省长将于下周宣布疫苗护照结束日期](/content/gnews/31/README.md)
  ` NFSC News`
 
-### [奥地利成欧洲首个立法强制接种疫苗的国家](/content/gnews/31/README.md)
+### [奥地利成欧洲首个立法强制接种疫苗的国家](/content/gnews/32/README.md)
  ` NFSC News`
 
-### [国际学者呼吁中共配合疫情起源调查](/content/gnews/32/README.md)
+### [国际学者呼吁中共配合疫情起源调查](/content/gnews/33/README.md)
  ` NFSC News`
 
-### [全球食品价格接近历史最高位](/content/gnews/33/README.md)
+### [全球食品价格接近历史最高位](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中共国奥运冰球项目寄托在北美运动员身上](/content/gnews/34/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [美航空公司敦促白宫终止国际旅行中共病毒检测规则](/content/gnews/35/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`

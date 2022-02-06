@@ -2,16 +2,30 @@
 ---
 
 
-## 北京2022“冬眠会”开幕
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1967176/)
+## NFSC新闻、G|TV新闻访谈简报|2022年2月6日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1967220/)
 
-作者：Inzaghi
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-3.jpg)
 
-伴随着灭共的雪花，在习主席亲自指挥、亲自部署的“大一捅”之下，中共的“冬眠会”开幕了。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-5.png)
+文章仅代表作者本人观点，与Gnews无关
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/冬眠会_冬奥会.png)
+视频参看：
+[2022.02.06早 《NFSC新闻》](https://gtv.org/video/id=61ffcce13621aa7415d66a6e)
+[2022.02.06早 G|TV《新闻访谈》](https://gtv.org/video/id=61ffd5fd3621aa7415d680bf)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH..jpeg)
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-callendar.jpeg)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -2,32 +2,31 @@
 ---
 
 
-## 中国独裁者的邀请
-` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/1967051/)
+## 《华尔街日报》受到来自中共国的网络攻击
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1967079/)
 
-**恐怖的奥运盛宴**
+**编译：七龙珠**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip《华尔街日报》受到来自中共国的网络攻击.png)华尔街日报收到与中国有关的网络攻击 | 谷歌
+华尔街日报（TWSJ）报业背后的新闻集团解释说，网络攻击的目标，除了影响了TWSJ、纽约邮报、道琼斯及其英国新闻业务等外，还有其他不太重要的出版社。新闻集团表示，黑客访问了一些员工的电子邮件和文件，包括记者。新闻集团聘请的一位网络安全顾问认为，中共国与这次入侵有关，攻击的目的可能是为中共收集情报。
 
-作者：Frank Schneider
+这次攻击是在1月20日被发现的，新闻集团在上周五的发布会上披露了这一情况。它还通知了执法部门。据《日报》报道，该公司告诉员工，威胁似乎已经得到控制，它正在向受影响的员工提供支持。含有财务和客户数据（包括用户详细信息）的系统似乎没有受到影响。
 
-翻译：英喜德语组 Luckycky
-![](https://assets.gnews.org/wp-content/uploads/2022/02/pasted-image-5.tiff)图片：Shen Hong/dpa
+这并不是TWSJ第一次成为网络攻击的目标。该报刊称，控制国家报道的中共黑客在2013年进入其网络，对记者进行监视。
 
-什么样的餐桌！ 什么样的装饰！ 宾客名单上的恐怖内阁。
+本周，联邦调查局局长克里斯托弗-雷说，中共国是一个“大规模和复杂的黑客计划的背后，比任何其他主要国家的黑客计划的总和还要大”。雷指出，该机构有2000多项正在进行的调查，涉及据称由中共政府策划的对美国技术或信息的盗窃。联邦调查局平均每天都会开展两项此类调查。
 
-中国国家元首习近平（68岁）在冬奥会开幕后的一天邀请各国元首共进晚餐–那是一场恐怖的盛宴。
+**新闻来源**：[sport.es][El “Wall Street Journal” recibe un ciberataque vinculado con China](https://www.sport.es/es/noticias/tecnologia/wall-street-journal-recibe-ciberataque-13197876)
 
-宾客包括：俄罗斯总统弗拉基米尔-普京（Wladimir Putin）（68岁），他的士兵正威胁着乌克兰。在场的还有：沙特阿拉伯王储穆罕默德-本-萨勒（Mohammed bin Salman），他因在其国家驻伊斯坦布尔大使馆雇佣谋杀记者贾马尔-卡舒吉（ Jamal Khashoggi）而受到国际社会的排斥。同样受到热烈欢迎的还有哈萨克斯坦总统卡西姆-绍马特-托卡耶夫（Kassym-Schomart Tokajew），他在1月份对反政府抗议活动进行了暴力镇压，并下令开枪。
+* * *
 
-中国领导人在一对一会谈后赞扬了哈萨克斯坦领导人的路线，说他支持这种 “强硬的做法”。习近平说，中国准备 “帮助哈萨克斯坦保持稳定”。官方新华社援引他的话说，一个 “独立、安全、稳定和繁荣的哈萨克斯坦 “符合共同利益。
+***审核：Aries的星
+校对：阿伯塔
+发布：信心满满***
 
-许多备受瞩目的嘉宾缺席。由于与中国的紧张关系和东道国的侵犯人权行为，美国、加拿大、英国、澳大利亚和其他国家抵制了开幕式，没有派出任何政府代表。德国和日本也投了弃权票，但没有谈到抵制问题。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH..jpeg)
 
-顺便说一下，人民大会堂的桌子装饰描绘了冬季的雪景。他们要吃什么，不得而知。
 
-原文链接：[https://www.bild.de/sport/olympia/olympia/china-diktator-laedt-ein-das-olympia-bankett-des-schreckens-79056836.bild.html](https://www.bild.de/sport/olympia/olympia/china-diktator-laedt-ein-das-olympia-bankett-des-schreckens-79056836.bild.html)
 
-发布：Luckycky
-![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
