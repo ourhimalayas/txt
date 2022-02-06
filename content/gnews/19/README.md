@@ -2,24 +2,44 @@
 ---
 
 
-## 七哥爆新常委名单以及南普陀会议背后的故事（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1962928/)
+## 各国孔子学院关闭进展迅猛
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1962995/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+作者：纽约香草山农场-兰兰
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据综合消息显示，截至2022年1月18日，包括加拿大、美国、澳大利亚、法国、瑞典、德国、丹麦、比利时、瑞士、挪威以及荷兰在内的11个国家停止一切相关活动或关闭孔子学院和孔子课堂的总数高达122所。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-05-下午9.11.19.png)https://no-confucius-institutes.org/
+在美国，当地先是在1月6日通报关闭了94所孔子学院，其后，政府又在接下来的两周内关闭了另外三所。目前，全美已有97所孔子学院已经或正在关闭。
 
-海峰见谁都是一副趾高气扬的太子的样子，就见你，那时他爹是皇帝啊，（当时）没有习近平（一尊）呢，就见你从来都是规规矩矩，为啥啊？他爹他妈见我都这样，不是他见我这样是吧？这是一个人的我对他无欲无求，那时候他还没有白发呢全是黑发呢啊？那时候他在威视的时候啊，我给他讲威视的时候，我说讲光学是吧？讲这个整个全世界未来的整个（趋势），我说这个发展互联网和监控系统和识别系统，他这第一次就懵在哪儿了是吧？还有他当时搞啥？你知道搞那个刚刚的高铁，抓起来那叫刘志军吧？那个豪华的椅子，一等舱二等舱啊，在上海那是他的企业，你知道吗？我说，我说你们唯一的选择，你就好好学学火车上的椅子最好坐的还是日本啊，然后才是德国，他说那法国的也不错，我说你不要学欧洲，不行的，最好他把日本的一把椅子和欧洲一把椅子原模原样弄回去，哼他就那么服你七哥，那时候你怎么办，他说那一桌子人都在这拍马屁，国防部长，什么参谋长（全）胡说八道，因为你去个总是比他走的路见的多，今天你买看的，胡海峰未来绝对是接班人，所以说接下来的这个斗争啊，它这个出来，这个单子（常委名单），可不是最后的，这回打仗他知道了，敌人不知道在哪里？江家、孟建柱王岐山是吧，这不知道在哪里？现在知道了，这个这货这5个人已经出来了是吧？李希、陈敏尔、胡春华胡海峰、陈全国是吧？
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥爆新常委名单以及南普陀会议背后的故事（一）-.jpg)
-2022年1月7日文贵大直播
+资料显示，自2004年起，中共政府逐步开始在海外成立孔子学院。截至2019年12月，其已在全球162个国家或地区建立了550所孔子学院以及超过一千个中小学孔子课堂。
 
-*发布：tianzhihuan*
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+直至2013年，海外的孔子学院终于开始陆陆续续地被逐一关闭，其中，加拿大麦克马斯特大学的孔子学院成为全球第一所被关闭的孔子学院。
 
+2019年12月，瑞典通报关闭了其境内的4家孔子学院，并于2020年4月叫停了该国最后一个孔子课堂，成为全球第一个彻底将孔子学院和孔子课堂驱逐出境的国家。随后，德国联邦教育部长安贾·卡利泽克也于2021年10月呼吁终止该国境内所有的孔子学院。
+
+此外，法国国防部下属的军事学院战略研究所近日公布的一份 《中共国影响力行动》分析报告指出，中共政府一直透过孔子学院在海外推行统战手段并大肆宣传其意识形态。当中，该报告还详细阐述了中共近年来通过渗透海外的华人社区、媒体、外交、经济、政治、教育、文化与智库等领域，用以扩张其在全球影响力的恶劣行为。
+
+参考链接：
+1）[How Many Confucius Institutes Are in the United States?](https://www.nas.org/blogs/article/how_many_confucius_institutes_are_in_the_united_states)
+2）[https://www.nas.org/storage/app/media/New%20Documents/confucius-institutes-that-closed-updated-january-15-2022.pdf](https://www.nas.org/storage/app/media/New%20Documents/confucius-institutes-that-closed-updated-january-15-2022.pdf)
+3）[比利时大学关闭孔子学院 涉间谍指控](https://www.rfa.org/mandarin/Xinwen/11-12112019152406.html)
+4）[拒绝中共政治宣传！德国汉堡大学宣布关闭孔子学院](https://cn.vot.org/2020/07/30/%E6%8B%92%E7%BB%9D%E4%B8%AD%E5%85%B1%E6%94%BF%E6%B2%BB%E5%AE%A3%E4%BC%A0%EF%BC%81%E5%BE%B7%E5%9B%BD%E6%B1%89%E5%A0%A1%E5%A4%A7%E5%AD%A6%E5%AE%A3%E5%B8%83%E5%85%B3%E9%97%AD%E5%AD%94%E5%AD%90%E5%AD%A6/)
+5）[北欧第二国：挪威关闭孔子学院](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/cl-03192021135434.html)
+6）[法国重磅报告披露孔子学院真面目](https://www.epochtimes.com/gb/21/9/25/n13259615.htm)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+
+总编：飞虹
+编辑：静言
+校正/发稿：呼吸的雾霾（文小呼吸）
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

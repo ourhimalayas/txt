@@ -2,39 +2,25 @@
 ---
 
 
-## 埃隆马斯克抨击 GoFundMe卑躬屈膝特鲁多,取消资助自由卡车司机
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1962936/)
+## 普京闪电走人，中共对台末日疯狂将至
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1963011/)
 
-2022-02-05
+撰稿：北纬农夫
 
-作者：16626
-![](https://assets.gnews.org/wp-content/uploads/2022/02/6A1HNKDBQM10ZO5G.png)图片来源：[Elon Musk slams GoFundMe for bowing to Trudeau and CANCELING Freedom Truckers – while allowing BLM donations: Site refuses to return $9M and will instead distribute it to charities it deems fit as Canadian PM is branded a ‘dictator’](https://www.dailymail.co.uk/news/article-10478989/GoFundMe-cancels-Freedom-Convoy-distribute-9M-donations-charities.html)
-每日邮报（娜塔莎·安德森NATASHA ANDERSON ，美国东部时间 21:46，2022 年 2 月 4 日， 更新： 2022 年 2 月 5 日，美国东部时间 01:55 ）发表一篇题为《埃隆马斯克抨击 GoFundMe卑躬屈膝特鲁多,取消资助自由卡车司机…》的报道文章。如下是文章报道的几个重点：
+据路透社和半导电视台报道，2月4日北京奥运开幕当天，中国和俄罗斯发表声明，宣布建立“无限制”伙伴关系，在乌克兰和台湾问题上相互支持，并承诺加强合作对抗西方；声明写道“两国之间的友谊没有限制，没有‘禁止’的合作领域”；另外双方还签署了15项合作协议，计划在太空、气候变化、人工智能和互联网控制等一系列领域开展合作，但最让普京满意的是双方签署长达30年的1175亿美元的石油天然气合同，此消息直接提振了俄罗斯股市。
 
-1. GoFundMe 因违反其服务条款为理由，取消了2022自由卡车车队（Freedom Convoy 2022） 筹款活动
-2. 剩余的资金 “由2022自由卡车车队 组织者选择并由 GoFundMe 验证（分配给）可信且成熟的慈善机构”
-3. 该公司表示，（自由卡车）车队捐助者必须在 2 月 19 日之前提出要求退款
-4. 这一决定是在加拿大领导人要求 GoFundMe 说明如何确保捐款不被用于煽动仇恨的转天做出的
-5. 特斯拉（特斯拉科技，又称为特斯拉汽车，是美国最大的电动汽车公司）首席执行官埃隆马斯克抨击了这一决定，并指责 GoFundMe 有“双重标准”，因为它之前支持 黑命贵（Black Lives Matter）的 筹款活动
-6. 报道还称，“GoFundMe 支持和平抗议，我们相信这就是 Freedom Convoy 2022 筹款活动最初创建时的意图”…“我们现在有来自执法部门的证据表明，以前的和平示威已经（演变）成为一种占领，警方报告了暴力和其他非法活动（的出现）”
-7. Facebook 也删除了美国卡车司机用来组织车队前往华盛顿特区的页面
+就在台海和乌克兰危机引发世界关注、西方强烈谴责的焦点时刻，中共和俄罗斯的这番操作，就是抱团取暖各取所需，中共拿钱雇来俄罗斯壮胆，给自己摇摇欲坠的非法统治贴金；俄罗斯则欲借此协议大幅增加其远东石油天然气收益，平衡在与乌克兰的冲突中面临的西方制裁；同时双方还意欲在台海、乌克兰两个方面互相牵制西方军事部署。
 
+据郭文贵先生爆料，中俄签约当天，普京团队多人染疫，其所下榻的华道夫酒店三人死亡，普京相当恼怒，随即在奥运开幕式上全世界人民都看到普京很不自然的神态。在晚上中共举办的招待宴会上，人们也没有看到普京出席。实际上普京当天晚上11点就离开北京返回俄罗斯，将48小时的行程缩短到9小时，在大国正式交往史上实属罕见，这给了中共非常大的难堪！这也说明尽管中共出卖了中国人的巨大利益，而俄罗斯根本就不在乎中共的感受。
 
-另外，Gnews（2022 年 2 月 3 日，下午20：36）发表一篇题为《[魁北克放弃“疫苗税”后，未接种疫苗的护士首次发声主流媒体](https://gnews.org/zh-hans/1957383/) 》的文章报道，一位参加自由车队抗议，未接种疫苗的，前（资深）助理护士，乔安妮·拉方德（Joanne Lafond），完全反对那些定性“自由车队”有“攻击性”和“破坏性”的色彩的言论。然而，她确实承认，（自由车队中）只有少数人在做有害的事情。
+综合以上消息，普京在北京与中共签署协议拿到钱后，感受到了北京极不寻常的恐怖气氛，随即做出了‘三十六计走为上’的决定！中共跪求来参加奥运的唯一大国领导人就这样走了，可想而知，中共内心的孤独、恐惧与崩溃！此刻，中共高层在内外交困、末日将近的恐怖气氛下，发动台海战争已是无法停止的疯狂之举，甚至等不到奥运结束。
 
-GoFundMe 之前支持 黑命贵（Black Lives Matter） 筹款活动，现在能真心支持2022自由卡车司机的示威吗？请读者回答。欢迎访问并在加拿大温哥华圆成农场[https://gettr.com/user/himalayavang](https://gettr.com/user/himalayavang) 上留言。
+参考链接:
 
-参考链接：
+1、[https://www.reuters.com/article/us-olympics-2022-russia-china-politics-idCAKBN2K90TK](https://www.reuters.com/article/us-olympics-2022-russia-china-politics-idCAKBN2K90TK)
 
-1. [Elon Musk slams GoFundMe for bowing to Trudeau and CANCELING Freedom Truckers – while allowing BLM donations: Site refuses to return $9M and will instead distribute it to charities it deems fit as Canadian PM is branded a ‘dictator’](https://www.dailymail.co.uk/news/article-10478989/GoFundMe-cancels-Freedom-Convoy-distribute-9M-donations-charities.html)
+2、[https://www.aljazeera.com/economy/2022/2/4/china-and-russia-boost-energy-alliance-with-30-year-gas-contract](https://www.aljazeera.com/economy/2022/2/4/china-and-russia-boost-energy-alliance-with-30-year-gas-contract)
 
-
-编辑：LILY
-发布：肥鯮
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

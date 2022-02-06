@@ -2,32 +2,41 @@
 ---
 
 
-## 美国发布外国应用软件新政策再审抖音
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1962993/)
+## 2.04大直播后记：中东邂逅埃及总统穆巴拉克
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1963050/)
 
-作者：银河系农场—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月2日，据当地多家媒体报道，美国联邦政府正在考虑给有潜在安全风险的手机应用程序制定新的审查规则。当中，具有中共背景的抖音程序被要求提供源代码和其他数据。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-05-下午9.10.51.png)https://gamerant.com/tiktok-sue-us-government/
-据悉，此项政策将赋予政府对那些可能造成国家安全威胁的应用程序更大监督权。为此，政府或相关部门需要根据一套风险标准来评估某应用程序是否为外国对手所拥有和控制，或者受其管辖和指示。其中，需要被评估的行为包括该软件是否可被用于监控或实行间谍活动，以及是否可以被用于军事、情报搜集或扩散活动。
+整理：雅典娜速记组
+编辑：文泓
 
-早先，美国政府一直在评估抖音与中共的关系，加之该公司内部人员曾透露，抖音公司位于北京的总部对其产品拥有最终决策权，因此，川普政府先前一度尝试禁止抖音在美国的运行。据报道，目前，美国商务部的提案明确指出，抖音的母公司字节跳动总部位于中共国，其已经可以被看作是隶属于“外国对手”的应用软件。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/20-1.png)图片来源：墨尔本雅典娜农场设计组
 
-参考链接：[TikTok’s ties to China are under scrutiny once again as Biden weighs new rules for foreign apps](https://www.businessinsider.com/tiktoks-connection-to-china-under-scrutiny-biden-weighs-new-rules-2022-2)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+我去过中东埃及，有一次穆巴拉克就坐在我对面。在场的可都是大人物啊，他也看不上我，但他就老关注我，（可能）他觉得我穿的有点不一样，头发也很长。然后，突然他问我，哎，你那个墨镜很漂亮，那个埃及不戴墨镜你就出不去是吧？我说，这是我自己设计的。“啊？什么牌子的？”我说我自己设计的，爱马仕给我做的，他很有兴趣。然后，他问，你抽雪茄吗？我说我抽。他说，我也爱抽雪茄。我说，那好，我正好带2根，咱俩1人1根儿。旁边警卫还看看我，我说，你怎么怕人家的（雪茄）有毒啊？
 
-总编：Irene木木
-编辑：静言
-校正/发稿：呼吸的雾霾（文小呼吸）
+那时候我才多大？才20来岁。那时正是穆巴拉克最火的时候，我们俩就抽上雪茄了。然后，那俩翻译就跟个哈巴狗似的过来，总统问他，你给我说说，这个人啥背景啊？他怎么参加今天这个活动啊？旁边问完回来，翻译趴总统耳朵边说了半天。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+穆巴拉克问我，告诉我，中国最让你骄傲的是什么？我说，中国最让我骄傲的是我们的文化、饮食、服饰和我们的和平。他说，那你具体说说吧。我告诉他，我们没有侵略过任何国家，但是侵略我们的人都被我们给干掉了。听完后他给我鼓掌。然后，他又问，你为啥不从政呢？我说，干政治的全都是骗子。他问，这全都是骗子。那包括我吗？我说，没有一个不是骗子。他说，你觉得我是骗子？我说，没有一个不是骗子，我连说3遍。
+
+你知道他说句什么话？这个世界上不懂得尊重中国的人，他就不是人。他说，小伙子，你太棒了！但我要告诉你，他告诉翻译说，非常可怕的事情是，**中国人不尊重中国人。**哇塞，当时我的心扑噔一下子，就像电击了我一样。
+
+你看美国的历史，到今天北京冬奥会（冬眠会）开幕的时候，再回想这段历史。从欧洲的大英帝国、历史最悠久的埃及，文化上最有骄傲本钱的就是埃及，你哪个国家都别得瑟；然后，再看今天的俄罗斯，再看我们的中国人民，我们何其可怜可悲呀！
+
+一个冬奥会混到这个德行，哭爹叫娘拿着上万亿美元的这种代价，请来了全人类上鸟不拉屎的几个（国家），都是来要饭的、来要钱的。就像郭宝胜要说，我们家开粥铺，没人去。郭宝胜说今年我们能有个（免费）午餐，夏业良第一个冲过去，路大脑袋肯定冲过去。真的就这样，跟我打官司的一帮人在那儿凑了半天，跟他们——韦石、熊宪民在吃午餐打起来了，一共200多美金，吃饭时打起来了，最后就分开吃。
+
+你说，我们在对面的五星级饭店，然后看到对面街上一个咖啡馆，几个人分吃饭（还打起来），我心里啥滋味？我真想给他们1万美元，你们自己吃去吧，不用整成那样。现在的中国就这个德性，整个国家你整了一帮要饭的（参加冬奥会），你招待这帮要饭的钱哪来的呀？这就是你们想要知道的情况。
+
+兄弟姐妹们，为了要找那帮要饭的去参加这个100分钟的开幕式，此时此刻的（冬奥会）每1秒钟都是在挥霍中国老百姓无尽的财富。
+
+资料来源：郭先生GTV、盖特直播
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

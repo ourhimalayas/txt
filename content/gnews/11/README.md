@@ -2,44 +2,35 @@
 ---
 
 
-## 各国孔子学院关闭进展迅猛
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1962995/)
+## 2.04大直播后记：Hpay建立新的金融标准
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1963078/)
 
-作者：纽约香草山农场-兰兰
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据综合消息显示，截至2022年1月18日，包括加拿大、美国、澳大利亚、法国、瑞典、德国、丹麦、比利时、瑞士、挪威以及荷兰在内的11个国家停止一切相关活动或关闭孔子学院和孔子课堂的总数高达122所。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-05-下午9.11.19.png)https://no-confucius-institutes.org/
-在美国，当地先是在1月6日通报关闭了94所孔子学院，其后，政府又在接下来的两周内关闭了另外三所。目前，全美已有97所孔子学院已经或正在关闭。
+整理：雅典娜速记组
+编辑：朝花夕拾
 
-资料显示，自2004年起，中共政府逐步开始在海外成立孔子学院。截至2019年12月，其已在全球162个国家或地区建立了550所孔子学院以及超过一千个中小学孔子课堂。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/fdrdfg.png)图片来源：墨尔本雅典娜设计组
 
-直至2013年，海外的孔子学院终于开始陆陆续续地被逐一关闭，其中，加拿大麦克马斯特大学的孔子学院成为全球第一所被关闭的孔子学院。
 
-2019年12月，瑞典通报关闭了其境内的4家孔子学院，并于2020年4月叫停了该国最后一个孔子课堂，成为全球第一个彻底将孔子学院和孔子课堂驱逐出境的国家。随后，德国联邦教育部长安贾·卡利泽克也于2021年10月呼吁终止该国境内所有的孔子学院。
+你们要记住一个重点，你们未来会意识到我们的本事到了啥程度？今天我就公开告诉你共产党，除非你把你的银行全关了，除非你把人民币全都停了，只要你做不到这一点，只要你有一家银行还存在着，只要你不是只收取现金。咱们人民币到海外来几乎是无间断无阻隔。你知道为啥吗？中国共产党已经把去纸币化做到了90%以上。都是纸币的话我就傻眼了，我不能拿着麻袋给你背出来呀是吧？ 这个做不到啊。 只要是你电子化，你就无法阻断。
 
-此外，法国国防部下属的军事学院战略研究所近日公布的一份 《中共国影响力行动》分析报告指出，中共政府一直透过孔子学院在海外推行统战手段并大肆宣传其意识形态。当中，该报告还详细阐述了中共近年来通过渗透海外的华人社区、媒体、外交、经济、政治、教育、文化与智库等领域，用以扩张其在全球影响力的恶劣行为。
+第二就是中间行啊，就是所谓的中转。只要你在电脑上能过，我就在电脑上能给你留下来属于我的钱。就这么牛啊，除非把你的系统都关了。这就像我在你家里放了1000只老鼠，你除非把房子现在烧了。如果你先把这老鼠抓出去，那我再给你放一亿只老鼠。你再移出去，我再给你放10亿只老鼠。这就是咱们现在这个电子系统，大家记住，你搞防火墙，我就在你防火墙上拉移动光纤。我可以告诉大家，从昨天到现在，我们已经交易完了最起码12个亿到13个亿的人民币。而且这钱都是秒到。所有使用过的战友们都惊讶万分。有人问七哥，往外转可以，那能不能转进来呢。能转啊。 我说，你试试啊。被我们授权的战友们在黑龙江，四川，福建和辽宁转来转去。我说，你放心，共产党找到你，我负责任，他找不着你。他除非把这些都关了啊。 但是，现在没有全面给你打开，只有给那些得到我们农场授权并相信的人打开。因为，一个授权就相当于给打开了一个特殊通道。这个特殊通道是必须要有的，因为现在还不能达到普及。但是，这不会超过半年到一年的时间，绝对不会超过。 你们会看到未来喜支付会有很多币可以支付。 我就跟你说到这儿为止啊，让你惊讶万分。
 
-参考链接：
-1）[How Many Confucius Institutes Are in the United States?](https://www.nas.org/blogs/article/how_many_confucius_institutes_are_in_the_united_states)
-2）[https://www.nas.org/storage/app/media/New%20Documents/confucius-institutes-that-closed-updated-january-15-2022.pdf](https://www.nas.org/storage/app/media/New%20Documents/confucius-institutes-that-closed-updated-january-15-2022.pdf)
-3）[比利时大学关闭孔子学院 涉间谍指控](https://www.rfa.org/mandarin/Xinwen/11-12112019152406.html)
-4）[拒绝中共政治宣传！德国汉堡大学宣布关闭孔子学院](https://cn.vot.org/2020/07/30/%E6%8B%92%E7%BB%9D%E4%B8%AD%E5%85%B1%E6%94%BF%E6%B2%BB%E5%AE%A3%E4%BC%A0%EF%BC%81%E5%BE%B7%E5%9B%BD%E6%B1%89%E5%A0%A1%E5%A4%A7%E5%AD%A6%E5%AE%A3%E5%B8%83%E5%85%B3%E9%97%AD%E5%AD%94%E5%AD%90%E5%AD%A6/)
-5）[北欧第二国：挪威关闭孔子学院](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/cl-03192021135434.html)
-6）[法国重磅报告披露孔子学院真面目](https://www.epochtimes.com/gb/21/9/25/n13259615.htm)
+Hpay是百分之百的适应新中国联邦的追求和信仰，是实现人类的财务自由。 还有很重要的是，它有一个叫做新中国联邦的喜联储系统，建立新的世界的游戏标准啊，这就是金融标准。 第三个是非常非常重要的，很多战友傻乎乎地，老说他的手机信息被人知道了。 你别那么傻了，当你拿到手机的那一天起，不知道多少人盯着你。你有点常识，手机信息不重要，但是财务信息对每个人是至关重要的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+中国人并不知道怎么搞基金，也不知道怎么搞投资，也不知道怎么给海外投资，全被过去的几个所谓的基金大佬代理。 你知道会Hpay会发生什么事情吗？ 兄弟姐妹，没有任何人代表你，未来因为Hpay会出现无限个基金。关于一个基金，我告诉你风险多大，赔钱多大，项目是什么，什么时候开放，你投就投，你不投拉倒。啪一下，钱就来了。你们记住啊，除了我汇钱，还有信息沟通，这个功能给谁留呢？ 就是给有钱的人和需要钱的人沟通的，你们自己直接沟通，我不需要任何什么基金经理。Hpay可以实现无成本投机。这个意义很大。各位农场主，成立农场后首先要扩张Hpay业务。
 
-总编：飞虹
-编辑：静言
-校正/发稿：呼吸的雾霾（文小呼吸）
+喜支付给所有人带来的方便性。 就在中共国，我把我的一年的钱通过Hpay转到海外去了。Hcoin to the moon ,你的钱在月亮上呆着吧，共产党够不着。 这就是我们想追求的，我们不能让老百姓有任何的成本。大家记住，Hpay零成本。大家多用，能开发很多价值。比如基金，小规模的众筹，小规模支付，小客户临时性投资。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+发布：tianzhihuan
+
+**
+**更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,22 +2,24 @@
 ---
 
 
-## 有声|尼日利亚被迫放弃中共银行铁路贷款
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1962905/)
+## 美国发布外国应用软件新政策再审抖音
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1962993/)
 
-配音：香草山健身部 – 玫瑰园
+作者：银河系农场—骄子
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-外媒2月03日报道：尼日利亚政府被迫放弃中共进出口银行铁路贷款。
+2月2日，据当地多家媒体报道，美国联邦政府正在考虑给有潜在安全风险的手机应用程序制定新的审查规则。当中，具有中共背景的抖音程序被要求提供源代码和其他数据。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-05-下午9.10.51.png)https://gamerant.com/tiktok-sue-us-government/
+据悉，此项政策将赋予政府对那些可能造成国家安全威胁的应用程序更大监督权。为此，政府或相关部门需要根据一套风险标准来评估某应用程序是否为外国对手所拥有和控制，或者受其管辖和指示。其中，需要被评估的行为包括该软件是否可被用于监控或实行间谍活动，以及是否可以被用于军事、情报搜集或扩散活动。
 
-尼日利亚政府日前表示，不会再等待中共进出口银行为该国一个重要铁路项目继续提供贷款资金。因为根据贷款协议，中共进岀口银行应该为尼日利亚修建这条铁路提供主要贷款支持，但实际到位资金仅占投资总额的15%，导致这条从首都拉各斯到北部城市的铁路建设受到严重影响。
+早先，美国政府一直在评估抖音与中共的关系，加之该公司内部人员曾透露，抖音公司位于北京的总部对其产品拥有最终决策权，因此，川普政府先前一度尝试禁止抖音在美国的运行。据报道，目前，美国商务部的提案明确指出，抖音的母公司字节跳动总部位于中共国，其已经可以被看作是隶属于“外国对手”的应用软件。
 
-尼日利亚交通部长阿马赫对媒体表示，政府要求中共当局对其余贷款作出回应，但中共一直拖延不答复。尼日利亚被迫放弃中共贷款，转而向他国银行寻求贷款帮助。由于中共银行背信弃约，将使本届政府承诺的铁路修建计划受到严重挫折。
+参考链接：[TikTok’s ties to China are under scrutiny once again as Biden weighs new rules for foreign apps](https://www.businessinsider.com/tiktoks-connection-to-china-under-scrutiny-biden-weighs-new-rules-2022-2)
 
-文字版原文：[尼日利亚被迫放弃中共银行铁路贷款](https://gnews.org/zh-hans/1956581/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+总编：Irene木木
+编辑：静言
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -25,9 +27,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
-
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
