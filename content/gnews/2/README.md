@@ -2,8 +2,8 @@
 ---
 
 
-## 什么事情都要坚持
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1962652/)
+## 被共产党洗脑的人不认为自己在作恶
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1962770/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

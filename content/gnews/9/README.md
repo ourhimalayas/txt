@@ -2,8 +2,8 @@
 ---
 
 
-## 战友打榜软下来中国人持续力地
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1962580/)
+## 印尼大屠杀的起因，美国人不知道印尼大屠杀
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1962706/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

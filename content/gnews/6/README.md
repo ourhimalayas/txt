@@ -2,8 +2,8 @@
 ---
 
 
-## 将军问七哥的事
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1962609/)
+## 报道要彻底毁掉新中国联邦
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1962744/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

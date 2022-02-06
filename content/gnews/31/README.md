@@ -2,52 +2,50 @@
 ---
 
 
-## 西喜时事新闻简报 — 中共国国际时事篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1961835/)
+## 希腊农民举行拖拉机示威 抗议能源成本飙升
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1961937/)
 
-**编译：文舞**
+翻译：里奇
 
-您若想了解全文报导内容，请点击标题链接
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-12.jpg)图片来源：reuters.com
 
-（我们不反疫苗，只针对假疫苗，我们不反科学，只针对反人类）
+希腊拉里萨，2 月 4 日（路透社）——周五，希腊中部的农民用数百辆拖拉机抗议能源成本飙升，认为政府的支持措施不够充分，并要求提供更多帮助以应对价格上涨。
 
-1.[2022北京冬奥会，流亡藏人抗议再出发](https://www.rfi.fr/cn/%E4%B8%93%E6%A0%8F%E6%A3%80%E7%B4%A2/%E7%89%B9%E5%88%AB%E8%8A%82%E7%9B%AE/20220202-2022%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E4%BC%9A%EF%BC%8C%E6%B5%81%E4%BA%A1%E8%97%8F%E4%BA%BA%E6%8A%97%E8%AE%AE%E5%86%8D%E5%87%BA%E5%8F%91)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip2022北京冬奥会，流亡藏人抗议再出发.png)
-据《法广网》2022年2月2日电，身在法国的“自由西藏大学生”（Etudiants pour un Tibet libre）协会成员德南姆（Tenam）表示，从两次北京奥运会看到藏人的人权自由并未改善，甚至恰恰相反；中共国西藏政策的四个摧毁：一是摧毁世系传承、二是摧毁文化根基、三是破坏亲情关系、四是破坏历史叙述；中共国政府将举办奥运作为专制意识形态的宣传工具。
+农民们将拖拉机停在希腊中部拉里萨镇附近的一条国道上，在那里他们与警察对峙。
 
-2. [克里姆林宫：普京与习近平将共抒世界愿景](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220202-%E5%85%8B%E9%87%8C%E5%A7%86%E6%9E%97%E5%AE%AB-%E6%99%AE%E4%BA%AC%E4%B8%8E%E4%B9%A0%E8%BF%91%E5%B9%B3%E5%B0%86%E5%85%B1%E6%8A%92%E4%B8%96%E7%95%8C%E6%84%BF%E6%99%AF)
+Karditsa农业协会负责人Kostas Tzelas表示，燃料和电力价格上涨使生产成本增加了 50%。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip克里姆林宫：普京与习近平将共抒世界愿景.png)
+“他们没有解决我们必须维持我们的农场和村庄的基本问题，”Tzelas说。“我们要求采取实质性措施，真正解决我们的问题。”
 
-据《法广网》2022年2月2日电，俄罗斯总统普京和习近平将在北京奥运会开幕式上（4日）强调他们对国际安全的“共同愿景”，并声称中共国在乌克兰危机中向俄罗斯提供支持；其次，俄中两国计划在此期间签署一些协议，包括在天然气的战略领域。
+希腊已花费约 17 亿欧元（19.5 亿美元）补贴农民、家庭和企业的电费，以帮助他们应对不断上涨的能源价格。
 
-3. [日本国会众议院通过关切中国人权状况决议](https://www.rfi.fr/cn/%E4%BA%9A%E6%B4%B2/20220201-%E6%97%A5%E6%9C%AC%E5%9B%BD%E4%BC%9A%E4%BC%97%E8%AE%AE%E9%99%A2%E5%91%A8%E4%BA%8C%E9%80%9A%E8%BF%87%E5%85%B3%E5%88%87%E4%B8%AD%E5%9B%BD%E4%BA%BA%E6%9D%83%E7%8A%B6%E5%86%B5%E5%86%B3%E8%AE%AE)
+高昂的能源成本一直是通胀的主要驱动因素，12 月通胀率加速至 5.1%，为 11 年来该国的最高水平。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip日本国会众议院通过关切中国人权状况决议.png)
+Tzelas在希腊中部农业中心最大城市拉里萨郊外的集会上发表讲话说“这就是我们走上街头的理由，乡村将变得荒凉，村庄将荒芜，人们将无法耕种和我们将无法再在我们的村庄里生存。”
 
-据《法广网》2022年2月1日电，日本国会众议院周二（1日）通过的决议名为“关于新疆及其他地区严重人权状况的决议草案”（内容避开了中共国的国家名称或“侵犯人权”的说法）；（点击此处了解相关[决议内容](https://www.shugiin.go.jp/internet/itdb_annai.nsf/html/statics/topics/ketugi220201-1.html)）另外，中共国外交部发言人赵立坚表示，已向日方提出严正交涉，并保留采取进一步措施的权利。
+周五早些时候，政府公布了对农业部门的额外 1.7 亿欧元财政援助。
 
-4. [大陆亚马逊员工呼吁杰夫·贝佐斯帮助其推翻大陆的法律](https://www.businessinsider.com/amazon-jeff-bezos-foxconn-factory-whistleblower-torture-prison-overturn-conviction-2022-1)判决
+农业部长Spilios Livanos在电视讲话中表示，尽管财政紧张，希腊去年还是向农民提供了10亿欧元的援助。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip大陆亚马逊员工呼吁杰夫·贝佐斯帮助其推翻大陆的法律判决.png)
+“在多重重大外部危机的这个困难时刻，我们支持我们的生产者” 他说。
 
-据《商业内幕》2022年1月31日电，2019年，唐明芳（男子，Tang Mingfang）向中共国劳工观察（China Labor Watch）泄露了中共国衡阳的富士康工厂让学童非法长时间工作的文件；中共国当局指控拘留该名亚马逊员工泄露（国家）商业机密，后于9月被释放；唐写信给贝佐斯：要求亚马逊大陆工厂向其道歉，并协助当地法院撤销对其的有罪判决。
+该方案包括补贴，以支付农民在 8 月至 12 月期间面临的电费额外费用的 80%，以及 1 月和 2 月的一半费用。化肥销售税将减少 46% 至 13%。
 
-5. [多国奥运健儿抵制北京开幕式](https://www.mediaite.com/sports/olympic-athletes-from-multiple-countries-to-boycott-opening-ceremony-in-beijing-report/)
+农民们表示，最新措施还不够，他们过去曾多次针对社会保障法和养老金缴款进行抗议。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip多国奥运健儿抵制北京开幕式.png)
+农业部门占希腊产出的一小部分，但它雇用了数十万人，其中大多数是季节性工人。
 
-据《Mediaite》援引《华盛顿邮报》2022年2月2日电，来自多国的奥运会运动员将拒绝参加冬奥会开幕式及闭幕式，以声援中共政府侵犯人权行为的受害者。一些运动员说，他们会在奥运会结束后才解释他们为何缺席开幕式，在中国时保持沉默以避免惩罚。包括美国在内的一些国家已经宣布，由于中共国的人权记录，他们将在外交上抵制冬奥会。
+（1 美元 = 0.8723 欧元）
+
+**参考资料：**[reuters][Greek farmers stage tractor protest against soaring energy costs](https://www.reuters.com/world/europe/greek-farmers-stage-tractor-protest-against-soaring-energy-costs-2022-02-04/)
 
 * * *
 
-***审核：Aries的星
+*审核：文乐
 校对：阿伯塔
-发布：信心满满***
+发稿：信心的选择*
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-1.jpeg)
-
-
 
  
 
