@@ -2,19 +2,27 @@
 ---
 
 
-## 爆料革命有多重要
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1964844/)
+## 北京冬奥会假雪威胁运动员生命安全
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1964856/)
 
-#### 编辑/整理：澳雅大直播工作组视频剪辑小队
+整理编辑：东京樱花团丨peterwong
 
-*发布：陶子*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/北京冬奥会假雪威胁运动员生命安全.png)[*图片来源*](https://s.newtalk.tw/album/news/672/619f4c976df26.jpg)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+2022北京冬奥会在2月4日晚正式开幕，中共官方在宣传低碳环保的理念下，却被发现举办高山滑雪的延兴赛区使用大量的人造雪，而且会威胁到运动员的生命安全。
+
+据CNN报导，由于今年冬季奥运场馆周遭地区极度干旱，并非特别适合进行雪上运动。为确保自然保护区的赛道雪量充足，赛道上所用的雪大部分都是以造雪机所制造的人造雪。有国外地理学家估计，北京冬奥会使用了约250万立方公尺的人造雪，相当于12,000人全年的用水量。
+
+此外，2018年平昌冬奥会铜牌得主、法国越野滑雪运动员克莱芒· 帕里斯（Clément Parisse）指出，虽然在人造雪上的比赛并不少见，但它往往会变得非常光滑与冰冷，将带来更多的风险挑战。
+
+“这对运动员来说很危险，有些人已经死亡。”英国前自由滑雪运动员劳拉‧ 唐纳森（Laura Donaldson）也指出，“假雪”的结晶比天然雪坚硬许多，且更为湿滑。运动员在进行高速滑雪或高空下坠的动作时，若降落时有稍微不慎，随时有生命危险。
+
+消息来源：[**假雪威胁运动员安全！CNN : 北京冬奥用250万立方公尺人造雪**](https://newtalk.tw/news/view/2022-02-05/705854)
+
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 老黑*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
 
  
 

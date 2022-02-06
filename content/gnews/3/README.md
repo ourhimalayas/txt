@@ -2,10 +2,10 @@
 ---
 
 
-## 普京首次就俄罗斯与乌克兰冲突发表公开谈话，提出解决条件
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1965001/)
+## 甜蜜蜜运动的三个回合
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1965073/)
 
-作者：台湾宝岛农场\_阿尔道夫
+作者：纽约磐石农场—在远方
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-26.jpg)
 
@@ -13,19 +13,15 @@
 
 
 
-![](https://newsstatic.rthk.hk/images/mfile_1631609_2_L_20220202014710.jpg)（普京与匈牙利总理奥班）（美联社图片）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/甜蜜蜜-1.jpeg)
 
-据媒体报导，俄罗斯总统普京于2月1日公开批评西方忽视莫斯科的安全疑虑，希望能结束不断升温的紧张局势。这是普京首次就俄罗斯与乌克兰冲突发表公开谈话。
+在2月2日的大直播中，郭文贵先生谈到甜蜜蜜灭共运动的三个回合。 第一个回合是美国大使馆的授权撤离。第二个回合，就是今年的三首灭共歌曲，即《甜蜜蜜》、《一帘幽梦》和《塞北的雪》。第三个回合就是对着中共的冬奥会去的。郭先生在直播中宣布，他现在正式向中共高层发出战书，要把中共的冬奥会，变成冬眠会。郭先生说，明人不做暗事，他从来不使用背后的阴招。虽然共产党通过黑客技术黑了郭先生的手机，但是却无法挡住甜蜜蜜运动的强势展开。
 
-普京在莫斯科与匈牙利总理奥班（Viktor Orban）会谈后的记者会上表达了上述观点。他重申，美国及其盟友忽视了俄罗斯的首要安全关切，要求北约（NATO）拒绝乌克兰加入并从俄罗斯附近撤走武器装备。
-
-俄国要求北约就停止扩张给予有法律约束力的安全保证，以及勿在俄国边界附近部署攻击设施，还要北约将军事部署恢复至1997年以前的状态。与此同时，美国务卿布林肯于2月1日重申美国对乌克兰主权和领土完整的承诺的重要性，敦促俄国从乌克兰边界撤军，立即让情势降温。英国首相约翰逊（Boris Johnson）也敦促俄罗斯后退并以外交方式展开对话，避免造成更大的灾难。
-
-
+郭先生说，他的第三个回合，一定会把中共冬奥会打残，打成冬眠会。因为没有任何人比他更了解中共冬奥会的来龙去脉，尤其是它的选址及其致命弱点。虽然中共有230万所谓的人工造雪弹，但是郭先生绝对有办法让它们无法达到目的。
 
 参考链接：
 
-[https://www.soundofhope.org/post/589978](https://www.soundofhope.org/post/589978)
+[https://www.gettr.com/post/ps3b5jdeae](https://www.gettr.com/post/ps3b5jdeae)
 
 编辑/校对/发稿：有莫举名
 
@@ -38,7 +34,7 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-23.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-25.jpg)
 
  
 

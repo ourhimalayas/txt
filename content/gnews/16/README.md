@@ -2,8 +2,8 @@
 ---
 
 
-## 今天的中共就是当年的希特勒德国（虚假、绑架、仇恨）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1964837/)
+## 敢于面对坚持，唯真不破
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1964852/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

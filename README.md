@@ -15,52 +15,52 @@
 
 ---
 
-### [奥地利强制所有18岁及18岁以上公民接种中共病毒疫苗](/content/gnews/1/README.md)
+### [北京冬奥：中共国为夺首金被疑打压美国队](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [奥地利强制所有18岁及18岁以上公民接种中共病毒疫苗](/content/gnews/2/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [7•24系列——《美国竞争法案》，遏共威力如何？](/content/gnews/2/README.md)
+### [甜蜜蜜运动的三个回合](/content/gnews/3/README.md)
+ ` GTV News Talk`
+
+### [7•24系列——《美国竞争法案》，遏共威力如何？](/content/gnews/4/README.md)
  ` 墨尔本雅典娜农场`
 
-### [普京首次就俄罗斯与乌克兰冲突发表公开谈话，提出解决条件](/content/gnews/3/README.md)
+### [普京首次就俄罗斯与乌克兰冲突发表公开谈话，提出解决条件](/content/gnews/5/README.md)
  ` GTV News Talk`
 
-### [秘翻在线： Omicron感染了巴西87%的医生 AMB调查](/content/gnews/4/README.md)
+### [秘翻在线： Omicron感染了巴西87%的医生 AMB调查](/content/gnews/6/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [FLCCC 公布的Covid-19 恢复期治疗 以及 最新疫苗解毒方法](/content/gnews/5/README.md)
+### [FLCCC 公布的Covid-19 恢复期治疗 以及 最新疫苗解毒方法](/content/gnews/7/README.md)
  ` 香草山醫療部`
 
-### [浅谈澳大利亚国防工业 – 陆军篇](/content/gnews/6/README.md)
+### [浅谈澳大利亚国防工业 – 陆军篇](/content/gnews/8/README.md)
  ` 军情启示录`
 
-### [七哥谈法国，它需要一场革命！（二）](/content/gnews/7/README.md)
+### [七哥谈法国，它需要一场革命！（二）](/content/gnews/9/README.md)
  ` 雅典娜GNotes`
 
-### [日本《经济安全法》草案出台 对公司研究人员最高可处2年监禁](/content/gnews/8/README.md)
+### [日本《经济安全法》草案出台 对公司研究人员最高可处2年监禁](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本首相官邸接连有人确诊 感染者曾与岸田会面](/content/gnews/9/README.md)
+### [日本首相官邸接连有人确诊 感染者曾与岸田会面](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中俄签署远东石油天然气供销协议大单](/content/gnews/10/README.md)
+### [中俄签署远东石油天然气供销协议大单](/content/gnews/12/README.md)
  ` 波士顿五月花农场金融部`
 
-### [世卫称57国出现Omicron变种，放松防疫还太早](/content/gnews/11/README.md)
+### [世卫称57国出现Omicron变种，放松防疫还太早](/content/gnews/13/README.md)
  ` GTV News Talk`
 
-### [共产党的巨大人道和体育灾难一定会走向灭亡](/content/gnews/12/README.md)
+### [共产党的巨大人道和体育灾难一定会走向灭亡](/content/gnews/14/README.md)
  ` 雅典娜GNotes`
 
-### [北京冬奥会假雪威胁运动员生命安全](/content/gnews/13/README.md)
+### [北京冬奥会假雪威胁运动员生命安全](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [敢于面对坚持，唯真不破](/content/gnews/14/README.md)
- ` 雅典娜GNotes`
-
-### [爆料革命有多重要](/content/gnews/15/README.md)
- ` 雅典娜GNotes`
-
-### [今天的中共就是当年的希特勒德国（虚假、绑架、仇恨）](/content/gnews/16/README.md)
+### [敢于面对坚持，唯真不破](/content/gnews/16/README.md)
  ` 雅典娜GNotes`
 
 ### [两名澳洲议员声援堪培拉反疫苗强制集会](/content/gnews/17/README.md)
