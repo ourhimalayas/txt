@@ -2,27 +2,22 @@
 ---
 
 
-## 有声|NFSC新闻、G|TV新闻访谈简报|2022年2月4日早
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1966768/)
+## 中共狙击手忽然暴毙 普京随行人员多人染病
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1966884/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-3.png)
+文贵先生爆料！北京冬奥前，有约97个国家元首和共产党承诺会参加，但最终只有33个到来。其中两个最有权势的人，一个是普京，住华尔道夫酒店，一个是阿布扎比王子，住四季酒店。
 
+有内部情报：
 
-文字版原文：[NFSC新闻、G|TV新闻访谈简报|2022年2月4日早](https://gnews.org/zh-hans/1956605/)
+1. 中共的狙击手领头突然死在盘古酒店边上。
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+2.普京身边的陪同人员，有10多人染上病毒。华尔道夫酒店目前已有3人死亡，北京的疫情严峻。团队染病，普京大怒，抱怨中方连他们基本的安全、防疫都不能保障。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+视频来源: 20220204—郭先生大直播
+视频制作: 文星光，梦田
+文案:文星光
+上传: 零点
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

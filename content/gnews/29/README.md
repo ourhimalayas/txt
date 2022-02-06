@@ -2,34 +2,33 @@
 ---
 
 
-## 中共解放军集结东南沿海意图侵略台湾
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1966470/)
+## 【TopNews】接种三剂COVID-19 疫苗的土耳其总统埃尔多安检测呈阳性
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/1966596/)
 
-作者：美国纽约香草山农场 – 文鹰
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月4日大直播，郭文贵先生爆料称，据中共军方情报来源，得知中共解放军已经进入“准战争”状态。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-06-上午10.21.38.png)
-文贵先生在1月30日透露中共军方人士提供的情报，解放军东部战区从1月29日开始往福建沿海，进行兵力调动。此消息，随后在2月4日被中共解放军内部人士证实，距北京几千公里地区外，解放军东部战区和南部战区进入一级紧急战备，并完成开战前集结。台海战争一触即发。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/B1D98B46-8ADE-4CB3-8A53-18B2F5A57854.jpeg)
+据美联社报道，土耳其总统雷杰普·塔伊普·埃尔多安（Recep Tayyip Erdogan）周六在推特上发文称，他的 COVID-19 检测呈阳性。
 
-郭先生此前曝光中共的“双龙计划”，并多次在台湾问题上，揭露中共领导人对台发动侵略战争的意图。
+他写道：
 
-在国际社会对病毒溯源，疫苗真相的全面追责压力下，中共冬奥会惨淡收场，没能达到转移视线的目的。在内外交困中的中共领导人会更加疯狂，将不惜发动台海战争，来转移国内外矛盾。
+“今天，我和妻子的 COVID-19 检测呈阳性，症状轻微。值得庆幸的是，我们正在经历轻微的症状，我们了解到的是 omicron 变体，”。“我们正在隔离。我们将继续在家工作。我们期待您的祈祷。”
 
-参考链接：[2022年2月4日 文贵大直播](https://gtv.org/video/id=61fd1a6596ba5d73e0c28b83)
+67 岁的埃尔多安在通过视频链接出现在伊斯坦布尔的隧道开通仪式上，发送了这条消息，他取消了亲自露面。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8CFBE52E-EE2C-4584-8A83-91E5B5014ABF.jpeg)
+第一夫人艾米娜·埃尔多安（Emine Erdogan）在推特上回复说：“愿上帝保佑，我们将与塔伊普先生一起摆脱这种感染。”
+土耳其总统去年 6 月接种了第三剂疫苗。
+几位世界领导人祝愿埃尔多安和第一夫人早日康复。
+发来信息的有巴基斯坦总理伊姆兰汗、阿塞拜疆总统伊利哈姆阿利耶夫、北塞浦路斯土耳其共和国总统埃尔辛鞑靼和乌克兰总统泽连斯基。汗在他的推特账户上写道，“我代表我们的政府、巴基斯坦人民和我个人祝愿他们早日完全康复。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+土耳其最近几天出现了创纪录的 COVID-19 病例，卫生部周五报告了 111,157 例病例。12 月下旬，每日病例数约为 20,000，但由于高度传播的 omicron 变体而有所上升。
 
-总编：文真
-编辑：Ivy001
-校正/发稿：呼吸的雾霾（文小呼吸）
+该国也因 COVID-19 感染病例导致大量死亡，周五报告有 248 人死亡，这是自 10 月以来的最高水平。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[援引链接：](https://apnews.com/article/coronavirus-pandemic-health-europe-recep-tayyip-erdogan-istanbul-089ac4910697c94f50005b54b725ba7c)
+
+撰稿/米拉娅
+审阅/邱杰斯
+上传/天赐良闻
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

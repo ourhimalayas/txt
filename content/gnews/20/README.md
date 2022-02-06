@@ -2,34 +2,30 @@
 ---
 
 
-## 经济学家：美国将遭遇金融风暴
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1966747/)
+## 中共国人口老龄化问题日益严峻
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1966791/)
 
 #### 【雅典娜快讯】，紧贴时代脉搏
 
 整理：Eileen（围剿维尼熊）
 编辑：朝花夕拾
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-2.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/雅典娜快讯图.png)
 
 
 
 图片来源：雅典娜设计组
 
 
-根据WBC中文网报道：美国劳工部2月5日公布的1月就业岗位数据意外大增，这加剧了投资者对美联储更快抗击通胀的担忧，并打击市场的风险情绪。
+根据网易新闻报道：春节浙江卫健委给浙省3岁以下婴幼儿父母发问卷，其中里面有一个问题是，假设政府每个月给2胎、3胎发放补贴1000元，一直到出生后3岁为止，你是否愿意生育2胎、3胎。
 
-令人关注的是平均时薪增速高达5.7%，远超去年12月的5%，这个关键指标反映通胀压力持续存在的隐忧，这份报告显示美国的薪资通胀也来了，同时，油价也升至90美元上方，更加剧通胀压力。
+另外也有地区调查了抚养婴幼儿的成本花费，以及有没有接受来自祖辈的支持。
 
-报告公布后，华尔街对美联储加息押注进一步升温，数据显示，他们对美联储在今年3月加息50个基点概率升至44%，且是四周以来第一次达到这么高概率，3月隔夜指数掉期合约一度显示，对加息50个基点概率的预期达到接近50%，对第六次加息时间的预测开始变成12月。
+中国2021年65岁以上人口，已经占到总人口的14%多。按照联合国的标准，65岁人口超过7%即为老龄化社会。按照现有出生死亡比例预判，2050年左右中国将有近40%的老龄化人口。这势必会对现行社会运行形成大的冲击。
 
-紧接着，美国银行再次重申美联储在2022年剩余的政策会议都会加息，在华尔街主要银行中的预测最高。
+值得注意的是，中国2021年人口增长仅48万，呈断崖式下跌，抛开疫情的原因。更加深层次的原因是因为中国人的负担太重了。
 
-这也使得美国国债价格在2月5日出现大幅下跌，短期国债收益率大幅上扬，10年期国债收益率突破1.92%，触及2020年初以来高位。
-
-对此，资深经济学家彼得.希夫（Peter David Schiff）在2月4日撰文指出美国经济结构出现问题，而且滥发钞票，并预言美国将会遭遇金融风暴。
-
-参考链接：[https://mparticle.uc.cn/article.html?btifl=100&app=uc-iflow&title\_type=1&wm\_id=fca2253025fc4728992aa042053d92bc&wm\_cid=469905911733827584&pagetype=share&client=&uc\_share\_depth=1&uc\_param\_str=frdnsnpfvepcntnwprdssskt](https://mparticle.uc.cn/article.html?btifl=100&amp;app=uc-iflow&amp;title_type=1&amp;wm_id=fca2253025fc4728992aa042053d92bc&amp;wm_cid=469905911733827584&amp;pagetype=share&amp;client=&amp;uc_share_depth=1&amp;uc_param_str=frdnsnpfvepcntnwprdssskt)
+参考链接：[https://c.m.163.com/news/a/GVH214PQ0545GTLL.html?spss=today-news-hotrank](https://c.m.163.com/news/a/GVH214PQ0545GTLL.html?spss=today-news-hotrank)
 
 发布：星谕
 

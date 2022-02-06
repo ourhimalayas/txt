@@ -2,21 +2,35 @@
 ---
 
 
-## 中共狙击手忽然暴毙 普京随行人员多人染病
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1966884/)
+## 今日盖特大V推荐 — Tucker Carlson（塔克·卡尔森）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1966923/)
 
-文贵先生爆料！北京冬奥前，有约97个国家元首和共产党承诺会参加，但最终只有33个到来。其中两个最有权势的人，一个是普京，住华尔道夫酒店，一个是阿布扎比王子，住四季酒店。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-597-e1644169218224.png)
+盖特链接：[https://gettr.com/user/TuckerCarlson](https://gettr.com/user/TuckerCarlson)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-598-e1644169179385.png)图片来源：网络
+**塔克·卡尔森自述：**
 
-有内部情报：
+“Tucker Carlson Tonight”的主持人，平日晚上8点东部时间@FoxNews。
 
-1. 中共的狙击手领头突然死在盘古酒店边上。
+在TuckerCarlson.com网站上观看新的Fox Nation媒体节目Tucker Carlson Today和Originals。
 
-2.普京身边的陪同人员，有10多人染上病毒。华尔道夫酒店目前已有3人死亡，北京的疫情严峻。团队染病，普京大怒，抱怨中方连他们基本的安全、防疫都不能保障。
+**塔克·卡尔森简介：**
 
-视频来源: 20220204—郭先生大直播
-视频制作: 文星光，梦田
-文案:文星光
-上传: 零点
+塔克·卡尔森生于1969年5月16日，是美国电视主持人和保守派政治评论员，自2016年以来一直主持福克斯新闻的夜间政治脱口秀节目《卡尔森今夜秀（Tucker Carlson Tonight）》
+
+塔克·卡尔森的媒体从业者生涯开始于1990年代，为标准周刊撰稿。他在2000至2005年间曾经担任CNN的评论员。在2001至2005年间曾担任过Crossfire节目的联席主持人。在2005至2008年间，他在MSNBC主持了自己的同名晚间节目Tucker。2009年，塔克·卡尔森转投福克斯新闻频道担任政治分析员，并于2016年起在福斯新闻频道主持政论节目《卡尔森今夜秀》，他的节目受到保守派人士的喜爱。
+
+编撰：洛杉矶盘古农场 — 郭友(文苏)
+
+校审：洛杉矶盘古农场 — 心照
+
+发布：洛杉矶盘古农场 — 子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
