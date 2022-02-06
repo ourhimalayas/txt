@@ -2,8 +2,8 @@
 ---
 
 
-## 共产主义的本质是什么 有多人真正了解
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1962821/)
+## HBO的目的和所求利益
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1962838/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

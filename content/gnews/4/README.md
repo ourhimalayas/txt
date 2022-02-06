@@ -2,35 +2,23 @@
 ---
 
 
-## 有声|美国国立卫生研究院高级官员亚当·霍特为中共工作
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1962842/)
+## 七哥爆新常委名单以及南普陀会议背后的故事（五）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1962897/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美国媒体2月2日披露，美国国立卫生研究院临床测序证据生成研究分部联合主席亚当·霍特，在中共政府外国势力的美国中部美中协会担任教育委员会副主席。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-4.jpg)
-美国中部美中协会教育委员会的宗旨是：“汇集基础教育和高等教育的资源，让研究、专业知识和新工作的人致力于美中合作”。该协会与中共政府、领事馆及中共统一战线组织中美交流基金会合作密切。
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-根据霍特在领英个人资料中的披露，他自2019年以来一直担任NIH某分部联合主席，与福奇先生共同工作。
+你看看习曾之间要有一（个大）决战而不是江，南普陀会议的发起者秘密组织者就是曾，到现在曾也不敢承认说他有个南普陀会议，所有人都是说没有啊，那么你看到南普陀会议里边，集中国的宗教也就共产党的迷信啊，共产党的那当天他们都是什么？其中的3本书里边有一本书就是《三通论》呢啊，《三通论》就是中国的道家之源啊，就是中国所有的道家神神鬼鬼啊生生死死啊，道家之学说啊，就是《三通论》啊，那就是通了一切了，《三通论》作为基础啊，那是曾和江那是绝对相信三通了，接不了他不会立个观世音菩萨像南普陀，一下子成为中国最繁华的山，还要上市呢哇塞，是吧？而且在河南嵩山，我爬过嵩山最顶部的卧佛，卧佛让很多人不知道，真狠奇怪像个卧佛，卧佛山的就是那个佛口、佛胸之处有千颗老树啊，直径两三米啊，我上去过啊，你们可不知道那个，你上过那山顶上，你就知道这确实人间有神秘之处，嵩山，当时在南普陀会议上说，河南这个地方就是嵩山。这个地方我们要如何控制呢？是要施道法的，但是听说在河南嵩山（做）道法的时候，他们出了情况了，听说山上的很多白鹤自然从山上掉了，死了好多啊，这也预兆着南普陀会议很难顺利啊，这一系列的征兆让七哥看到了天机啊，我所以我坚信我能灭共！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥爆新常委名单以及南普陀会议背后的故事（五）-.jpg)
+2022年1月7日文贵大直播
 
-文字版原文：[美国国立卫生研究院高级官员亚当·霍特为中共工作](https://gnews.org/zh-hans/1956601/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+*发布：tianzhihuan*
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6) 0
 
  
 

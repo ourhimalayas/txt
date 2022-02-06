@@ -2,19 +2,41 @@
 ---
 
 
-## 西方人认可共产主义的原因
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1962834/)
+## 有声|中共国八个孩子母亲的惨剧真相
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1962882/)
 
-#### 编辑/整理：澳雅大直播工作组视频剪辑小队
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+中共国是拐卖妇女儿童最多的国家，因为贫穷，买妻成风，人贩子因为没有严惩的法律，加上暴利诱惑，合伙拐卖儿童、妇女的恶性案例只增未减！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-13.jpg)
+1月28号，中共国网上出现几个主播为赚流量，直播给一个脖子上锁的女子送吃送衣，事发地点，江苏省徐州丰县董集村一个废弃的房屋里，狭窄的空间有个破床，用狗链子锁着的女子蓬头垢面，却相貌俊秀的年轻女子，眼神空洞神智不清，牙齿几乎没有。
 
-*发布：陶子*
+由此暴露出中共国一起惨无人道的拐卖案。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+视频的发酵，网友的爆料，还原了事实真相。该女子是20多年前，14岁左右时，被已去世的董家父亲称“捡来”的，初来时还会英语，董家给34岁的儿子董志民做老婆，期间该女孩遭遇董父和其俩个儿子的强奸，不从就打，因为逃跑被锁，反抗当中遭受殴打、拔牙，折磨长达二十几年，生下了八个孩子。
+
+事发以后当地政府丰县在未经调查下，公布说该女与董志民属于领证结婚，不存在拐卖行为，引发舆论哗然，网友称既是婚姻关系，该女娘家哪里，姓啥名谁，为何被拨牙齿，既是有病为何不送医医治，既是流浪者也应该属于有关部门收留，要求查实种种质疑，此案因为当地政府的包庇和护短，目前还没有明确进展。
+
+发酵以后的网络力量越来越大，有网友出示照片，称该女子相貌体征跟四川人一个叫李莹的大学生符合，1984出生，1996年失踪，该女生的父亲因为找女痛女思女成疾已经去世。1/29，警方介入已联系李母作DNA进一步核实，此事目前还在进一步调查核实中。
+
+文字版原文：[中共国八个孩子母亲的惨剧真相](https://gnews.org/zh-hans/1958220/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
