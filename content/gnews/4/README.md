@@ -2,37 +2,31 @@
 ---
 
 
-## 有声|日本国会通过关于中共人权的决议
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1967360/)
+## 有声|美国就中共强迫劳动行为实行企业ESG检验
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1967444/)
 
-配音：香草山佛教部 – 李傻
+配音：香草山健身部 – 玫瑰园
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月3日，据当地媒体消息显示，美国联邦政府即将根据一项旨在阻止中共强迫劳动的法案，要求当地公司对其各自的全球供应链进行更加严格的审查。
 
-![日本国会赶在北京冬奥会前通过决议关注中国人权状况](https://gdb.voanews.com/32091DCA-A276-41B6-964D-30FFFB692A1D_w408_r1_s.jpg)
-近日，日本国会发布了针对中共人权问题的决议。决议指出，近年来，国际社会对发生在新疆、西藏、内蒙古、香港和中共大陆其他地区的压制宗教自由和强迫监禁等严重侵犯人权的状况表示关注。其中一些国家还制定了相应的法律来关注和支持受到中共迫害的人士。
+资料显示，长期以来，中共国新疆地区的维吾尔和其他少数民族的民众一直被中共政府胁迫在工厂、农场和矿场为中共国的各行各业提供服务，这当中包括服装公司、食品品牌、太阳能电池板制造商、电动汽车制造商和科技公司供应商等。
 
-日本政府认为人权问题并非局限于某个国家领土范围之内的内部事务，因为人权具有普遍价值，是国际社会的合法关切。因此，日本制定了实质性和强有力的政治文件来指导人权外交工作。
+对此，美国国土安全部正在寻求一项最佳做法，得以让那些严重依赖中共国提供原材料、部分成品和全成品的美国公司建立更加透明和完善的问责制。据悉，国土安全部已经开始要求海关提供关于中共国进口商品的溯源地和核查标准，以便确认这些商品是否涉及发生在中共国新疆区的强迫劳动行为。
 
-该文件指出，在尊重每个民族和其他群体的文化、传统和自治的同时，基于自由、民主和法治的基本价值观，首先应收集有关情况的事实资料，以确定这种严重侵犯人权状况的涉及范围。同时，应采取措施，与国际社会合作，监督并纠正相关现象。
+文字版原文：[美国就中共强迫劳动行为实行企业ESG检验](https://gnews.org/zh-hans/1962992/)
 
-文字版原文：[日本国会通过关于中共人权的决议](https://gnews.org/zh-hans/1964821/)
+音频处理/发稿：Daxia
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

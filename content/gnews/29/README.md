@@ -2,28 +2,37 @@
 ---
 
 
-## 国际学者呼吁中共配合疫情起源调查
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1967025/)
+## 法院责令FDA于未来半年内公布辉瑞疫苗文件
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1967028/)
 
-作者：台湾宝岛农场 – dobi
+作者：纽约香草山文艺部 – 宁文静
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-在北京冬奥会开幕前夕，20名来自欧洲、美国、澳洲、新西兰、印度和日本的国际科学研究人员，于2月4日发表公开信，要求中共不要再阻挠针对中共病毒起源的独立调查。
+2月2日，德克萨斯州北区地区法院签发的一份判决书，责令美国食品和药物管理局FDA在未来的半年内，必须按期公开长度超过33万页的辉瑞中共病毒疫苗的审批文件，直到全部文件完全被公之于众。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/10-5.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/7-6.png)
 
-在此封命名为“允许国际全面调查疫情起源才真正彰显奥运价值”的公开信中，学者们严词谴责中共政府下达“禁言令”，阻扰科学家在未获政府允许的情况下发言，或撰写任何有关疫情起源的记录，同时，学者们对中共发出警告，若不能揭露病毒真正的起源，全球将持续陷在不必要或更大的风险之中。
+此前，FDA在回应遵守“信息自由法案 (FOIA) ”的初审判决时，请求以每月 500 页的速度公布与辉瑞疫苗相关的数十万份文件。该判决书表示，法院收到FDA要求修改排期令的动议，也收到一份联合状况报告，阐明了原、被告双方商定的时间表。法院根据这份时间表，批准了部分动议。命令：
 
-同时，他们还呼吁，世界卫生组织应建立“安全吹哨人条款”，以便让科学家和专家更安全地分享关于病毒起源的信息。
+1、FDA的报告必须在每个月的第一个工作日提交；
+
+2、FDA在3月、4月，各提交1万页；
+
+3、FDA在5月、6月和7月各完成8万页；在8月完成7万页；此后在每个月的第一个工作日提交5.5万页，直到公布完毕。
+
+该判决书还允许提前完成公布页码数量，并且将每40行算作一页，而不是之前的20行算作一页。
 
 参考链接：
 
-- [北京冬奧前夕 國際學者籲中國勿阻疫情起源調查](https://udn.com/news/story/121707/6076672?from=udn-catelistnews_ch2)
+- [https://twitter.com/disclosetv/status/1489688729778274304?s=21](https://www.newsmax.com/newsfront/johns-hopkins-researchers-lockdowns-covid/2022/02/01/id/1054965/)
+- [UNITED STATES DISTRICT COURT FOR THE NORTHERN DISTRICT OF TEXAS FORT WORTH DIVISION](https://phmpt.org/wp-content/uploads/2022/02/056-ORDER-GRANTING-IN-PART-THE-MOTION-TO-MODIFY-THE-PRODUCTION-SCHEDULE-AND-ADDOPTS-THE-JOINT-STATUS-REPORT-MODIFIED-AGREED-PRODUCTION-SCHEDULE.pdf)
+- [FDA想75年才公布完疫苗数据却被法官大提速](https://gnews.org/zh-hans/1886642/)
+- [为什么法官命令 FDA 立即发布 Covid-19 疫苗数据](https://gnews.org/zh-hans/1891996/)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
 
-总编：飞虹
-编辑：飞虹
+总编：文真
+编辑：Delilah小胖
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

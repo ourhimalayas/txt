@@ -31,24 +31,6 @@
 
 ---
 
-**:arrows_clockwise: miles 已轉發**
-
-`@jasonmillerindc 2/5/2022 11:06 PM (UTC)`
-
-Must-watch on YouTube!<br/><br/>“Who sold this U.S. Pension Fund to China?”<br/><br/>https://youtu.be/6FfkpjftT0I
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@jasonmillerindc 2/5/2022 8:37 PM (UTC)`
-
-Did we tell you #GETTR would be your best place for French political news today? Yes we did!!! 🇫🇷<br/><br/>We had livestreams from @f_philippot, @zemmoureric via @Livrenoirmedia, and now an exclusive interview with Marine Le Pen! Check it out!👇👇👇
-> `@gettrenfrance 2/5/2022 8:22 PM (UTC)`<br/>Entretien exclusif pour GETTR #France avec Marine Le Pen dans les loges à la sortie de son discours de #Reims.  <br/><br/>
-![img](https://media.gettr.com/group8/getter/2022/02/05/20/ab223840-3e82-27e7-d4f5-50f2cca5d302/out.jpg)
-
----
-
 `@miles 2/5/2022 10:30 PM (UTC)`
 
 2/5/2022 Miles Guo: There are three points made by almost everyone attending the CCP’s Winter Olympics: 1) the CCP is over, 2) everything is just fake, and 3) it is absolutely a nightmare. Many people are now trying to figure out how to transfer their money out of Communist China ASAP.<br/><br/>2/5/2022 文贵盖特：所有参加中共冬眠会的人就三句话：1）中共完了，2）一切都是假的，3）这简直就是一场噩梦；很多人现在只想着如何尽快把他们的钱从中共国转出来。
@@ -159,6 +141,19 @@ This is the BIG ONE I previewed on @WarRoom a little earlier regarding the Covid
 
 2022年2月4日 文贵大直播：冬奥会媒体中心与世界冲突；灭共的雪轰轰烈烈漫山遍野；美国世界经济状况摇摇欲坠；HPay数字货币市场谁主沉浮
 ![img](https://media.gettr.com/group3/origin/2022/02/04/12/a80a61f2-2c1b-4432-3875-889d35f59eb9/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 2/4/2022 11:59 AM (UTC)`
+
+ 2月4号：尊敬的战友们好。七哥正在GTV直播，北京冬奥会出大事啦…… <br/><br/>G-TV精彩直播与您分享: <br/>https://gtv.org/broadcast/watch/61fd129696ba5d73e0c27968
+
+---
+
+`@miles 2/4/2022 3:43 AM (UTC)`
+
+1/31/2022 Miles Guo’s Chinese New Year Live:  “The Snow Taking Down the CCP”, the New Federal  State of China’s version of “The Snow Near Northern Border”  1/31/2022 文贵虎年新春大直播：《灭共的雪》—— 新中国联邦版《塞北的雪》（中英双语版）
+![img](https://media.gettr.com/group15/origin/2022/02/04/03/400c25b8-4239-3bfc-c5d9-0e36740d74bd/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

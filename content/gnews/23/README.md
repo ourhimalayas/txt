@@ -2,32 +2,25 @@
 ---
 
 
-## 中国独裁者的邀请
-` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/1967051/)
+## 新疆维族火炬手，中共欲盖弥彰
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1967127/)
 
-**恐怖的奥运盛宴**
+撰稿：小毛牛
+![](https://assets.gnews.org/wp-content/uploads/2022/01/601.jpg)网络图片
+据德国N-TV报道：新疆维吾尔族的越野滑雪运动员迪妮格尔·衣拉木江成为北京冬奥最后一棒火炬手，引起了国际社会的广泛批评。
 
-作者：Frank Schneider
+人权活动人士估计，最少有数十万的维吾尔人被关押在中共新疆的集中营。中共诡辩称其为再教育营。此外，有众多报道称：再教育营中有酷刑、虐待，和意识形态灌输。而与此同时，国际奥委会却认为北京让一名维吾尔妇女点燃奥运圣火是一个绝妙的主意。显然蓝金黄的力量是巨大的。
 
-翻译：英喜德语组 Luckycky
-![](https://assets.gnews.org/wp-content/uploads/2022/02/pasted-image-5.tiff)图片：Shen Hong/dpa
+迄今为止几乎从没有露过面的越野滑雪运动员迪尼格尔·伊拉木江在周五和另一名运动员赵嘉文一起点燃了奥运圣火。在北京冬奥会开幕式上面对众多针对使用维吾尔火炬手尖锐批评后，奥运会的领导们为他们的选择进行了诡辩。国际奥委会发言人马克·亚当斯说：她只是一名在这里参加比赛的奥林匹克运动员，她完全有资格参加火炬传递。
 
-什么样的餐桌！ 什么样的装饰！ 宾客名单上的恐怖内阁。
+维吾尔世界大会的 Zumretay Erkin 在推特上针对国际奥委会声称的奥运会是非政治性的的说法进行了回击：这是迄今为止最具政治性的举动；而人权观察人士王亚秋则说：中国正在向世界其他国家竖起中指；来自联合国秘书长安东尼奥·古特雷斯表态说：我希望这些参加本次冬奥会的国际政们要反思一下历史会如何评价他们的出席的。
 
-中国国家元首习近平（68岁）在冬奥会开幕后的一天邀请各国元首共进晚餐–那是一场恐怖的盛宴。
+负责开幕式的导演张艺谋辩解说：选择最后一位火炬手的目的是展示中华遗产是如何代代相传的。因此，此次奥运圣火传递选择了出生于 1950 年代和 2000 年代之间的运动员。
 
-宾客包括：俄罗斯总统弗拉基米尔-普京（Wladimir Putin）（68岁），他的士兵正威胁着乌克兰。在场的还有：沙特阿拉伯王储穆罕默德-本-萨勒（Mohammed bin Salman），他因在其国家驻伊斯坦布尔大使馆雇佣谋杀记者贾马尔-卡舒吉（ Jamal Khashoggi）而受到国际社会的排斥。同样受到热烈欢迎的还有哈萨克斯坦总统卡西姆-绍马特-托卡耶夫（Kassym-Schomart Tokajew），他在1月份对反政府抗议活动进行了暴力镇压，并下令开枪。
+中共意图用一个火炬手掩盖其屠杀维族人的事实？终将机关算尽枉徒然❗❗❗
 
-中国领导人在一对一会谈后赞扬了哈萨克斯坦领导人的路线，说他支持这种 “强硬的做法”。习近平说，中国准备 “帮助哈萨克斯坦保持稳定”。官方新华社援引他的话说，一个 “独立、安全、稳定和繁荣的哈萨克斯坦 “符合共同利益。
-
-许多备受瞩目的嘉宾缺席。由于与中国的紧张关系和东道国的侵犯人权行为，美国、加拿大、英国、澳大利亚和其他国家抵制了开幕式，没有派出任何政府代表。德国和日本也投了弃权票，但没有谈到抵制问题。
-
-顺便说一下，人民大会堂的桌子装饰描绘了冬季的雪景。他们要吃什么，不得而知。
-
-原文链接：[https://www.bild.de/sport/olympia/olympia/china-diktator-laedt-ein-das-olympia-bankett-des-schreckens-79056836.bild.html](https://www.bild.de/sport/olympia/olympia/china-diktator-laedt-ein-das-olympia-bankett-des-schreckens-79056836.bild.html)
-
-发布：Luckycky
-![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
+新闻来源：[Kritik an Pekings Wahl der Fackelträgerin](https://www.n-tv.de/sport/olympia/Kritik-an-Pekings-Wahl-der-Fackeltraegerin-article23107037.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
