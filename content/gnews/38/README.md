@@ -2,34 +2,51 @@
 ---
 
 
-## 土耳其单日奥密克戎确诊病例再创新高
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1961303/)
+## 希腊农民举行拖拉机示威 抗议能源成本飙升
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1961937/)
 
-作者：纽约香草山农场-Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月2日，据相关媒体报道，土耳其政府当天通报了超过11万起单日中共病毒新增确诊病例，这一数字再次刷新了当地自疫情以来的单日确诊峰值。此外，当地当天的新增中共病毒死亡患者达217人。
+翻译：里奇
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-2.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-12.jpg)图片来源：reuters.com
 
-土耳其卫生部长克扎透露，当地几乎所有的确诊病例都是由于奥密克戎变种毒株引起的。
+希腊拉里萨，2 月 4 日（路透社）——周五，希腊中部的农民用数百辆拖拉机抗议能源成本飙升，认为政府的支持措施不够充分，并要求提供更多帮助以应对价格上涨。
 
-值得注意的是，18岁以上的土耳其民众完全接种中共病毒疫苗的比例超过84.49%，另有高达92.56%的民众已经接种了一剂中共病毒疫苗，更有超过两千五百万的土耳其人接种了第三剂疫苗加强针。
+农民们将拖拉机停在希腊中部拉里萨镇附近的一条国道上，在那里他们与警察对峙。
 
-参考链接：[土耳其單日確診連破紀錄 11萬例幾全因Omicron](https://cn.rti.org.tw/news/view/id/2123691)
+Karditsa农业协会负责人Kostas Tzelas表示，燃料和电力价格上涨使生产成本增加了 50%。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+“他们没有解决我们必须维持我们的农场和村庄的基本问题，”Tzelas说。“我们要求采取实质性措施，真正解决我们的问题。”
 
-总编：Irene木木
-编辑：静言
-校正/发稿：谐趣园
+希腊已花费约 17 亿欧元（19.5 亿美元）补贴农民、家庭和企业的电费，以帮助他们应对不断上涨的能源价格。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+高昂的能源成本一直是通胀的主要驱动因素，12 月通胀率加速至 5.1%，为 11 年来该国的最高水平。
+
+Tzelas在希腊中部农业中心最大城市拉里萨郊外的集会上发表讲话说“这就是我们走上街头的理由，乡村将变得荒凉，村庄将荒芜，人们将无法耕种和我们将无法再在我们的村庄里生存。”
+
+周五早些时候，政府公布了对农业部门的额外 1.7 亿欧元财政援助。
+
+农业部长Spilios Livanos在电视讲话中表示，尽管财政紧张，希腊去年还是向农民提供了10亿欧元的援助。
+
+“在多重重大外部危机的这个困难时刻，我们支持我们的生产者” 他说。
+
+该方案包括补贴，以支付农民在 8 月至 12 月期间面临的电费额外费用的 80%，以及 1 月和 2 月的一半费用。化肥销售税将减少 46% 至 13%。
+
+农民们表示，最新措施还不够，他们过去曾多次针对社会保障法和养老金缴款进行抗议。
+
+农业部门占希腊产出的一小部分，但它雇用了数十万人，其中大多数是季节性工人。
+
+（1 美元 = 0.8723 欧元）
+
+**参考资料：**[reuters][Greek farmers stage tractor protest against soaring energy costs](https://www.reuters.com/world/europe/greek-farmers-stage-tractor-protest-against-soaring-energy-costs-2022-02-04/)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-1.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

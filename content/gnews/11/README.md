@@ -2,42 +2,44 @@
 ---
 
 
-## 有声|中共国八个孩子母亲的惨剧真相
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1962882/)
+## 各国孔子学院关闭进展迅猛
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1962995/)
 
-配音：香草山佛教部 – 李傻
+作者：纽约香草山农场-兰兰
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-中共国是拐卖妇女儿童最多的国家，因为贫穷，买妻成风，人贩子因为没有严惩的法律，加上暴利诱惑，合伙拐卖儿童、妇女的恶性案例只增未减！
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-13.jpg)
-1月28号，中共国网上出现几个主播为赚流量，直播给一个脖子上锁的女子送吃送衣，事发地点，江苏省徐州丰县董集村一个废弃的房屋里，狭窄的空间有个破床，用狗链子锁着的女子蓬头垢面，却相貌俊秀的年轻女子，眼神空洞神智不清，牙齿几乎没有。
+据综合消息显示，截至2022年1月18日，包括加拿大、美国、澳大利亚、法国、瑞典、德国、丹麦、比利时、瑞士、挪威以及荷兰在内的11个国家停止一切相关活动或关闭孔子学院和孔子课堂的总数高达122所。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-05-下午9.11.19.png)https://no-confucius-institutes.org/
+在美国，当地先是在1月6日通报关闭了94所孔子学院，其后，政府又在接下来的两周内关闭了另外三所。目前，全美已有97所孔子学院已经或正在关闭。
 
-由此暴露出中共国一起惨无人道的拐卖案。
+资料显示，自2004年起，中共政府逐步开始在海外成立孔子学院。截至2019年12月，其已在全球162个国家或地区建立了550所孔子学院以及超过一千个中小学孔子课堂。
 
-视频的发酵，网友的爆料，还原了事实真相。该女子是20多年前，14岁左右时，被已去世的董家父亲称“捡来”的，初来时还会英语，董家给34岁的儿子董志民做老婆，期间该女孩遭遇董父和其俩个儿子的强奸，不从就打，因为逃跑被锁，反抗当中遭受殴打、拔牙，折磨长达二十几年，生下了八个孩子。
+直至2013年，海外的孔子学院终于开始陆陆续续地被逐一关闭，其中，加拿大麦克马斯特大学的孔子学院成为全球第一所被关闭的孔子学院。
 
-事发以后当地政府丰县在未经调查下，公布说该女与董志民属于领证结婚，不存在拐卖行为，引发舆论哗然，网友称既是婚姻关系，该女娘家哪里，姓啥名谁，为何被拨牙齿，既是有病为何不送医医治，既是流浪者也应该属于有关部门收留，要求查实种种质疑，此案因为当地政府的包庇和护短，目前还没有明确进展。
+2019年12月，瑞典通报关闭了其境内的4家孔子学院，并于2020年4月叫停了该国最后一个孔子课堂，成为全球第一个彻底将孔子学院和孔子课堂驱逐出境的国家。随后，德国联邦教育部长安贾·卡利泽克也于2021年10月呼吁终止该国境内所有的孔子学院。
 
-发酵以后的网络力量越来越大，有网友出示照片，称该女子相貌体征跟四川人一个叫李莹的大学生符合，1984出生，1996年失踪，该女生的父亲因为找女痛女思女成疾已经去世。1/29，警方介入已联系李母作DNA进一步核实，此事目前还在进一步调查核实中。
+此外，法国国防部下属的军事学院战略研究所近日公布的一份 《中共国影响力行动》分析报告指出，中共政府一直透过孔子学院在海外推行统战手段并大肆宣传其意识形态。当中，该报告还详细阐述了中共近年来通过渗透海外的华人社区、媒体、外交、经济、政治、教育、文化与智库等领域，用以扩张其在全球影响力的恶劣行为。
 
-文字版原文：[中共国八个孩子母亲的惨剧真相](https://gnews.org/zh-hans/1958220/)
+参考链接：
+1）[How Many Confucius Institutes Are in the United States?](https://www.nas.org/blogs/article/how_many_confucius_institutes_are_in_the_united_states)
+2）[https://www.nas.org/storage/app/media/New%20Documents/confucius-institutes-that-closed-updated-january-15-2022.pdf](https://www.nas.org/storage/app/media/New%20Documents/confucius-institutes-that-closed-updated-january-15-2022.pdf)
+3）[比利时大学关闭孔子学院 涉间谍指控](https://www.rfa.org/mandarin/Xinwen/11-12112019152406.html)
+4）[拒绝中共政治宣传！德国汉堡大学宣布关闭孔子学院](https://cn.vot.org/2020/07/30/%E6%8B%92%E7%BB%9D%E4%B8%AD%E5%85%B1%E6%94%BF%E6%B2%BB%E5%AE%A3%E4%BC%A0%EF%BC%81%E5%BE%B7%E5%9B%BD%E6%B1%89%E5%A0%A1%E5%A4%A7%E5%AD%A6%E5%AE%A3%E5%B8%83%E5%85%B3%E9%97%AD%E5%AD%94%E5%AD%90%E5%AD%A6/)
+5）[北欧第二国：挪威关闭孔子学院](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/cl-03192021135434.html)
+6）[法国重磅报告披露孔子学院真面目](https://www.epochtimes.com/gb/21/9/25/n13259615.htm)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+
+总编：飞虹
+编辑：静言
+校正/发稿：呼吸的雾霾（文小呼吸）
+
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

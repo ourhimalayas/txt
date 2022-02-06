@@ -2,23 +2,35 @@
 ---
 
 
-## 【G时新闻】加拿大总理特鲁多感染新冠病毒
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/1962451/)
+## 有声|美国国立卫生研究院高级官员亚当·霍特为中共工作
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1962842/)
 
-加拿大温哥华扬帆农场 播报:Yuyu（粤语） 视频制作: Gracelshan
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国媒体2月2日披露，美国国立卫生研究院临床测序证据生成研究分部联合主席亚当·霍特，在中共政府外国势力的美国中部美中协会担任教育委员会副主席。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/12-4.jpg)
+美国中部美中协会教育委员会的宗旨是：“汇集基础教育和高等教育的资源，让研究、专业知识和新工作的人致力于美中合作”。该协会与中共政府、领事馆及中共统一战线组织中美交流基金会合作密切。
 
-加拿大总理1月31日通过社交媒体宣布，尽管其当天的“新冠病毒”检测呈阳性，但至今感觉良好，且并无明显患病征兆。
+根据霍特在领英个人资料中的披露，他自2019年以来一直担任NIH某分部联合主席，与福奇先生共同工作。
 
-特鲁多在推特上表示，由于当天早上的病毒检测呈阳性，因此本周他将继续居家遵守疫情隔离规定并尽量保持远程工作，同时还不忘提请国民接种疫苗以及加强剂。
+文字版原文：[美国国立卫生研究院高级官员亚当·霍特为中共工作](https://gnews.org/zh-hans/1956601/)
 
-报导称，在得知加拿大卡车司机的自由车队游行将于上周末抵达首都渥太华之后，总理随即宣布因接触了“新冠病毒”感染者而开始自我隔离，并在两天后称他的一个孩子病毒检测也呈阳性。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-据悉，由于特鲁多此前已完全接种了疫苗和加强剂，因此，其推文下有大量民众提出质疑并责问：疫苗有效吗？为什么打了三针还被病毒感染？如果疫苗无效，为什么还要继续给加拿大人接种该疫苗？
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-盖特：[https://gnews.org/zh-hant/1947184/](https://gnews.org/zh-hant/1947184/)
-听写/翻译：LuLu1312
-字幕：圣骑士
-编辑/上传：七觉花
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

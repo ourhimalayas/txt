@@ -2,36 +2,56 @@
 ---
 
 
-## 维生素D与自然免疫被证实在疫情中更有效
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1961375/)
+## 2.4.22大直播后记：H-pay无手续费
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1962374/)
 
-作者：银河系农场—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月2日，据综合消息显示，一份针对未接种中共病毒疫苗群体的研究报告指出，相较于疫苗接种者而言，这一群体拥有的自然免疫力在对抗中共病毒方面更加有效且持久。其中，感染中共病毒后康复的人群，其体内的病毒抗体可以持续20个月之久。
+**整理：雅典娜速记组
+编辑：Candy**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide11-2.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-420.png)
 
-此外，以色列科学家也在近期的一项研究中发现，提高人体内维生素D的水平可以有助于中共病毒患者降低疾病加剧或死亡风险。研究结果指出，维生素D对中共病毒具有良好的预防及控制作用，其作用原理在于维生素D能有效加强人体的免疫系统，从而达到防止重症和死亡的效果。
 
-研究人员也强调，维生素D的缺乏将使中共病毒住院患者的病情严重或危急的可能性增大14倍。因此，在中共病毒大流行期间，每个人都应该合理摄入适量的维生素D。
+郭先生讲到：你看H-pay，现在上线第一天，（如果）把人家干掉24%的股份，你就不叫Hpay了，你成了核武器了。
 
-参考链接：
-1）[Israeli study offers strongest proof yet of vitamin D’s power to fight COVID](https://www.timesofisrael.com/israeli-study-offers-strongest-proof-yet-of-vitamin-ds-power-to-fight-covid/)
-2）[Prevalence and Durability of SARS-CoV-2 Antibodies Among Unvaccinated US Adults by History of COVID-19](https://jamanetwork.com/journals/jama/fullarticle/2788894)
+说实话，七哥跟你说句到心窝子话：Paypal，在我们，你七哥爆料革命，咱们有H-pay那天，Paypal已经没有了。你太小看我们H-pay了！另外一个角度上，H-pay的成功，按Elon Musk说：我付钱，第三方监管，你还可以退回，他就这么成功的。咱们的GTV就被他干掉了$5000多万，三次干掉G-fashion，不让Paypal付钱，Stripe干了我们$5000多万将近$6000万。它不都是一个玩意儿嘛！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+我们现在的H-pay是啥呀？ 无中心化，千万记住叫无条件。Paypal的条件，Stripe的条件，他只是把你的脚镣，过去你带了个铁脚镣换成个铜脚镣，然后涂了点油漆，感觉给我装修过，一模一样的痛苦；而且很夸张，全是有共产党投资的钱，没有什么信息保障。他科技性，技术性，安全性，私密性已完全不等同于数字化的时代。 电子支付，他跟支付宝、跟微信都不能比，兄弟姐妹们。但因为美国没有别的，就这个。它能到几千亿，是个什么？是个笑话！
 
-总编：Irene木木
-编辑：静言
-校正/发稿：谐趣园
+H-pay上线以后（转账）秒到，秒到！战友们要记住这个词：秒到，不可查，无条件。那个Paypal条件大了去了，我真是R你八辈祖宗的，把我气死了。我们的钱，GTV的钱全部他Hold住，还不给你，不退你钱，我还要收你手续费。多少钱战友知道吗？ 6.9%啊。黑社会也没那么黑。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+你知道你啥也没干，你们有一个体谅过你七哥吗？ 文斌你们老做PPT，你们做PPT时想过吗？我们GTV啥也没干，一分钱没拿着，手续费给他付了$700万。你说还有这么抢劫的吗？你说当年的G币，一分钱没拿着，给他付$600/$700万（手续）费，钱还在那给你放着！青藤你们可能都买了，那钱还不给你退回去，你还拿手续费，Stripe, Paypal全是这样！这是为啥咱们诞生H-pay，我说一定要让我们的痛苦不再发生在任何人身上。
+
+战友们，这自然是咱们新中国联邦一再提出的思维问题。政府监督我，请问政府是哪来的呀？共产党政府是抢来的，美国的政府是哪来的呀？选出来的，一人一票。如果这个政府不支持我们，我们要选出另外一个政府。所以咱们战友的思维就是共产党人思维，以为在中国共产党让干啥就是干啥，你没有余地，我们不是的。
+
+我再告诉大家，喜联储、喜币是游戏的制定者。美国和中国，美、中、俄之间无论是战争游戏，还是地缘战略和地缘政治，还是能源战略，经济就是标准的制定权，就这么简单。
+
+如果是战友，你还这么思考问题的时候，从1到100，那你永远呆在100里边。我们是直接从天上往下看，直接砸下来。我们的喜币、喜联储制定的东西，现在都是符合全世界各国法律的，否则你上不了。
+
+你现在是先有鸡，还是先有蛋呢？ 现在你有钱了，是不是？咱跟美国有合伙人，美国现在要求跟我们投资了。投这个喜支付的，也是投Paypal的，也是投Stripe的，说：郭先生我们投进去啊，我们要不能少于9%的股份，我们要一直保持好9%的股份，这是我们投资的权利。美国的国会游说交给我们了，美国的政策落实交给我们了。
+
+我说：我可以给你介绍介绍，我没这个权利嘛，介绍给你认识。我说可以合作啊，你这个落实、这个执行，不是我们想要的。
+
+我们想要一样东西：你只要进来投资，就要把喜联储、美联储和所有的这些功能连在一起，你如何让金融机构先接受我们，然后你再去说、再去投。
+
+但是这都是小事儿，我说咱也别把小事写到合同里。我们是游戏的制定者之一，而且我们是已经诞生了。我们的每一步都在给世界制定游戏规则，而且今天你看点到点支付是符合法律的，无非是谁承担风险。
+
+Paypal是干嘛的？ 我把钱hold着，到第三方，你货到了什么地方，他当成银行了。他又当裁判，又当球员，还当守门员。我转三圈回来，这个球再决定进不进，是不是啊？ 就这么道理嘛。
+
+我们不是的，我们这个游戏非常简单：点到点。刚才那个青藤给咱妈汇了款，同时他也给他女朋友汇款。但你想再要回来，你说，妈，我后悔了，我钱要回来。你妈说：对不起儿子，我不给回你；或者女朋友：我也不给你。你要不回来了，快有快的风险。
+
+你得承担这个风险，而且不可查，当然不可查。你要隐私，你就要付出代价，最终让世界人选择你。你可以选择，有牛肉有鸡肉，你爱吃哪一口吃哪一口，对不对呀？这就是这个问题，非常的简单啊。
+
+它的诞生，到今天已经没有任何人可以比较，而且是符合法律的。
+
+发布：Candy
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
