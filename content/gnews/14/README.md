@@ -2,62 +2,30 @@
 ---
 
 
-## 浅谈澳大利亚现代国防工业 – 海军篇
-` 军情启示录` [轉載自GNews](https://gnews.org/zh-hans/1965921/)
+## MV版Hcoin To the Moon上线59天第46次位列澳门iTunes热门MV榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1966076/)
 
-**上传：**AWAC （新西兰伊甸农场）
+2/6/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线59天第46次位列澳门iTunes热门音乐视频榜榜首，第53次位列前三名
 
-**作者: **AWAC （新西兰伊甸农场）
+* * *
 
-在说完了澳军的陆空装备后,本篇将着重谈一下澳洲海军近几年来的发展。作为一个四面环海的国家,二战后澳大利亚皇家海军的规模并不大, 在1986年，皇家海军最后一艘航空母舰墨尔本号退役，并以废铁卖给了中国黄埔造船厂。在这之后的相当长一段时间内，皇家海军并未添置大吨位水面战舰。在整个90年代其主力作战舰艇是6艘以美国佩里级为蓝本的阿德莱德级巡防艦，阿德莱德级巡防艦的建造在93年完成，之后皇家海军开始量产10艘基于德国MEKO 200型的安扎克级巡防艦，其目前仍然是澳洲海军的主力舰只。在90年代初，澳大利亚和瑞典Kockums公司合作，在A19 哥特兰级潜艇的基础上研发了柯林斯级柴电潜艇，科林级共生产了6艘，虽是常规动力，但其总体性能已经逼近当时的美军洛杉矶级核潜艇。虽然在服役早期出现过一些问题， 但其先进程度在当时的亚太地区也算是首屈一指。
+[【PDF 下载】Sunday-6-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-6-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-6-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Picture7.png)
+* * *
 
-*从90年代到2000年初期，阿德莱德级，安扎克和柯林斯级共同构成了澳洲的海上主力* . 
-*图片来源：网络*
-
-从90年代到2000年初期，阿德莱德级，安扎克和柯林斯级共同构成了澳洲的海上主力， 但对于领海面积广大的澳大利亚来说，这只海军的规模确实偏小，特别是进入2010年以来，中共威胁的不断扩大，南海危机的到来也给澳大利亚带来了新的挑战。于是，新一代海军舰艇的采购很快就被提上日程。
-
-首先是新一代的宙斯盾防空驱逐舰霍巴特级的建造。霍巴特级的原型是西班牙的F100型，装备了美国雷声公司的Baseline7.1版的宙斯盾系统，换装了马力更大的燃气轮机，武器方面，48单元MK41垂发可以配备SM-2/6标准型防空导弹和海麻雀近程防空导弹，使该舰具备了完整的区域防空能力。霍巴特级的MK41垂发系统也保留了发射战斧巡航导弹的能力，但要看未来美国是否同意向澳洲出售战斧导弹。 相较于F100型，霍巴特级的满载排水量飙升到了7000吨，达到了驱逐舰吨位。虽然目前只订购了3艘，但霍巴特级的到来使澳大利亚在亚太地区，成为了除中日韩之外第四个拥有区域防空驱逐舰的国家。从2015年中期开始到2020年年中， 3艘霍巴特级都在位于阿德莱德的ASC船厂完成建造，这也是澳大利亚国舰国造又一次成功的尝试。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Picture8.png)
-
-*霍巴特级悉尼号，注意其高耸的宙斯盾相控阵雷达*
-*图片来源：网络*
-
-本文的一开始，我们提到过澳洲皇家海军在1986年退役了其最后的航空母舰墨尔本号，自那以后，澳大利亚再也没有装备过排水量过万吨的战斗舰只。不过在2009年，寂静终于被打破，澳大利亚与西班牙合作，以西班牙胡安·卡洛斯一世号为母型，开发了满载排水量达27500吨的堪培拉级两栖攻击舰，具有直通型甲板，该级舰舰艏安装有13度的滑跃甲板，在未来如有需要，可以稍加改装，搭载F35B短距起飞垂直降落战斗机，成为名副其实的轻型航空母舰。这和日本海上自卫队的出云级直升机航母有着异曲同工之妙。另外值得注意的是，堪培拉级两栖攻击舰的总装在墨尔本附近的威廉姆斯完成，这又是澳洲海军自行建造大型水面战斗舰艇的又一次成功尝试。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Picture9.jpg)
-
-堪培拉级两栖攻击舰*，注意其舰艏滑跃甲板* 
-*图片来源：网络*
-
-柯林斯级柴电潜艇虽先进，但在服役过程中一直暴露出一些问题, 所以澳大利亚在2000年后期就开始考虑替代柯林斯级的下一代潜艇方案。澳洲最早接触过日本，曾经考虑过引进日本苍龙级的先进技术。但最终在2016年，日本方案出局，法国方案入围，澳洲决定和法国海军集团合作，在法国Suffren级核潜艇的基础上设计一款常规动力潜艇，以在未来取代现有的柯林斯级。但整个合作项目进行得并不理想，修改核动力潜艇为常规动力潜艇的逆行方案也一直遭到业内质疑。在耗费了5年的人力物力之后，澳大利亚在2021年9月宣布停止和法国合作研发未来潜水艇，同时与英国，美国发表联合声明，成立军事安全伙伴关系，这就是最近炒的火热的AUKUS, 在AUKUS框架内，澳大利亚将使用英国或美国技术建立一直核动力潜艇部队，这意味着澳大利亚将续美，英，俄，法，中，印之后，成为世界上第7个拥有核动力潜水艇的国家。但目前看来，自行建造整个核潜艇部队最快也要将近20年，所以短期内最有效的方案是租用美国或英国的现役核潜艇，以快速形成临时战斗力。至于自行建造，最有可能的方案是采购美英的潜艇部件，在澳大利亚完成总装。目前广泛讨论的方案包括基于英国机敏级或美国的弗吉尼亚级进行本土化生产，或直接租用美军现役的洛杉矶级。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Picture10.png)
-*在AUKUS框架内，澳大利亚将成为世界上第7个拥有核动力潜水艇的国家*
-*图片来源：网络*
-
-AUKUS协议不仅囊括了野心勃勃的核潜艇计划，也还为澳洲获得远程打击武器开了绿灯，在AUKUS框架下，澳大利亚三军将在10年内获得战斧巡航导弹，LRASM远程反舰导弹和陆基高超音速导弹，其战略打击纵深将扩展至南中国海升至更远。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Picture12.png)
-
-*LRASM 远程反舰导弹是一款三军通用的导弹*
-*图片来源：网络*
-
-最后，我们来大致看一下澳大利亚本土国防工业的分布。全球知名军工企业基本都在澳大利亚设有分部。其中波音公司最为活跃，在昆士兰州设立了美国本土以外的第一家离岸工厂，专门用于研发并量产下一代无人战斗机Wingman。陆军方面，韩国的韩华公司近些年来较为出名，在墨尔本的吉朗设立了总装厂，用于组装澳洲自用的AS-9自行榴弹炮。澳大利亚的造船工业主要分布于西澳的珀斯和南部的阿德莱德，其中阿德莱德拥有南北两个船厂，在历史上一直承担海军重要装备的建造，例如柯林斯级潜艇和宙斯盾防空驱逐舰的建造工作，未来的AUKUS核潜艇也将在阿德莱德投产。西澳珀斯的船厂主要承接海军支援型舰艇的建造工作。但值得一提的是，美国海军的一部分滨海作战舰就是在位于西澳珀斯的Austal船厂建造的。
-
-从战略位置来看，阿德莱德处于澳洲版图南部，距离南中国海以及中共国大陆距离最远，将主要造船业集中在阿德莱德也是在战时为相关行业提供了一定的生存性保证。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Picture13-1.png)
-
-澳大利亚军工业分布
-
-**参考资料:**
-
-【1】[UK, US AND Australia launch new security partnership](https://www.gov.uk/government/news/uk-us-and-australia-launch-new-security-partnership)
-【2】[澳大利亚即将拥有核动力潜艇？可能没那么快](https://cn.nytimes.com/asia-pacific/20211105/nuclear-powered-submarines/)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-6-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-6-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-6-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-6-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-6-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-6-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-6-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_83.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-6-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_101.jpg)
 
 
+[【PDF 下载】Sunday-6-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-6-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-6-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
