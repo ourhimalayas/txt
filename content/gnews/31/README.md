@@ -2,28 +2,103 @@
 ---
 
 
-## 中日财经爆┃日本政府加大稀有金属锂和镍的投资
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1965477/)
+## GoFundMe冻结自由车队捐款 数千人聚集渥太华
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1965583/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-24.png)[图片信息](https://my-best.com/5975?utm_campaign=terrace&amp;utm_medium=organic&amp;utm_source=Yahoo#:~:text=%E3%81%97%E3%81%A6%E3%8)
-2月6日读卖新闻在线消息，日本政府将加大对私营公司的支持力度，以确保在电动汽车（EV）电池中使用的锂和镍等稀有金属的海外利益。计划最大投资额从目前的最高50%提高到100%以下。这不仅表明政府参与度的增加，将使公司更容易承担与其业务相关的风险。
+**翻译：Lulumi**
 
-随着全球脱碳趋势的加剧和资源竞争的激烈，政府旨在确保对日本的稳定供应。如果企业出现问题，增加政府投资可能会导致重大损失，所以严格评估开采量和项目的盈利能力尤为重要。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-555.png)2022年2月5日渥太华，抗议者在国会山的集会上听取演讲和表演，抗议COVID-19强制令和限制的活动仍在继续。(大纪元时报)
 
-锂和镍也被用于储能电池，以储存由太阳能和风力等可再生能源产生的电力。它们是脱碳的关键，国际能源署（IEA）估计，2040年全球锂的需求比2020年将增加13倍，达到28万吨镍的需求将增加6.5倍，达到130万吨。
+渥太华 – 2月5日，数千名抗议者再次聚集在加拿大首都，抗议中共病毒COVID-19的强制令和限制。
 
-日本几乎完全依赖从南美和东南亚的进口。从经济安全的角度来看，增加日本的海外利益非常重要。政府将通过尽可能提高日本石油天然气和金属矿产资源组织（JOGMEC）的投资上限来鼓励私营企业参与海外采矿项目。日本人的投资比例越高，越有利于权益保障。JOGMEC的内部制度也将在今年中进行修改。
+卡车司机车队的抗议活动得到农民的支持，他们带着自己的农用车车队来到渥太华参加抗议活动。
 
-在日本公司中，丰田通商在阿根廷的锂矿中拥有股份，住友金属矿业公司正在参与菲律宾和其它地方的镍矿提炼项目。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-557.png)2022年2月5日渥太华，卡车和其他车辆停在国会山附近，抗议者聚集在一起示威反对COVID-19强制令和限制。(大纪元时报)
 
-信息源：
+2月5日的抗议活动有演讲、音乐、舞蹈和唱加拿大国歌。现场还摆放了桌子，为抗议者提供免费食物和饮料。
 
-[【独自】リチウムやニッケルの海外権益確保へ政府出資拡大…脱炭素需要で獲得競争激化](https://news.yahoo.co.jp/articles/74d92738313c20809d586a8bed8ee819703b49de#:~:text=%E3%80%90%E7%8B%AC)
+在上周末，即自由车队示威的第一个周末之后，抗议者的人数有所下降，但本周末许多人再次加入。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+2月5日，在全国各地的省会城市还举行了其他几个大型抗议活动，反对COVID-19强制令。
+
+自由车队最初是为了反对联邦政府对跨境卡车司机的疫苗强制令而进行的示威，后来演变成反对所有COVID-19限制和强制令的大型运动。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-559.png)2022年2月5日，抗议者聚集在渥太华国会山，示威反对COVID-19强制令和限制。(大纪元时报)
+
+第一支车队于1月23日离开西海岸前往渥太华，最终于1月29日在国家首都举行了大型抗议活动。许多抗议者仍留在渥太华，表示他们将一直待到政府取消COVID-19的授权。
+
+在2月5日的抗议活动之前，渥太华警察局长彼得·斯洛利说，警方正在实施一项“增援和遏制战略”来应对抗议者。这包括向渥太华市中心的抗议区增派150名警察，用混凝土和重型设备障碍物封锁该地区，以及由国家、省和地方情报机构加强针对那些“资助/支持/促成非法和有害活动”的抗议者的努力。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-561.png)2022年2月5日，抗议者聚集在渥太华的国会山，示威反对COVID-19的授权和限制。(大纪元时报)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-563.png)2022年2月5日，抗议者聚集在渥太华，示威反对COVID-19的授权和限制。(大纪元时报)
+
+代表抗议活动组织者的宪法自由正义中心的律师基思·威尔逊说，渥太华警方的新措施与世界各地的压迫人民的政权所使用的措施相似。
+
+威尔逊在2月4日的一段视频中说：“（斯洛利）实际上宣布，他将剥夺加拿大人和平集会和言论自由的宪章权利。”
+
+同样在2月4日，GoFundMe说它冻结了为资助卡车司机的抗议活动而筹集的1000万加元（800万美元）的捐款。该筹款平台曾受到政治领导人和渥太华警方的压力，要求取消对抗议者的捐款资助。早些时候，它向组织者发放了100万加元，用于抗议卡车司机的燃料和食品等开支。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-565.png)2022年2月5日，抗议者聚集在渥太华，示威抗议COVID-19的授权和限制。(大纪元时报)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-567.png)2022年2月5日，抗议者聚集在渥太华国会山，示威反对COVID-19的授权和限制。(大纪元时报）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-569.png)2022年2月5日，抗议者聚集在渥太华国会山，示威反对COVID-19的授权和限制。(新唐人)
+
+GoFundMe最初曾表示，捐赠者必须要求退款，剩余资金将捐赠给GoFundMe核实的慈善机构。但在2月5日，它说所有的捐款将被自动退还。
+
+现在组织者已经在GiveSendGo上建立另外一个替代的捐赠网站，他们说这将确保资金到达抗议者手中，以帮助支付费用。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-571.png)2022年2月5日，抗议者聚集在渥太华的国会山，示威反对COVID-19的授权和限制。(新唐人)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-573.png)2022年2月5日，抗议者聚集在渥太华国会山，示威反对COVID-19的授权和限制。(新唐人)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-575.png)2022年2月5日，抗议者聚集在渥太华国会山，示威反对COVID-19的授权和限制。(新唐人)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-577.png)2022年2月5日，抗议者聚集在渥太华国会山，示威反对COVID-19的授权和限制。(新唐人)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-579.png)2022年2月5日，抗议者聚集在渥太华国会山，示威反对COVID-19的授权和限制。(新唐人)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-581.png)2022年2月5日，人们在渥太华玩街头曲棍球，抗议COVID-19的授权和限制的活动继续进行。(Simon Alary提供)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-583.png)2022年2月5日，在渥太华，志愿者为抗议COVID-19授权和限制的示威者提供免费食物和饮料。(Simon Alary提供)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-585.png)2020年2月5日，加入卡车司机车队抗议COVID-19规定的农场车辆停在渥太华。(Simon Alary提供)
+
+**素材链接：**[theepochtimes.com][Thousands Converge in Ottawa as Trucker Convoy Protest Enters Week 2](https://www.theepochtimes.com/thousands-converge-on-parliament-hill-as-trucker-convoy-protest-in-ottawa-marks-1-week_4258790.html?utm_source=newsnoe&amp;utm_campaign=breaking-2022-02-05-4&amp;utm_medium=email2&amp;est=IB7jR6tbKwUNx%2B0hTwqlcqzxFMZOyfEJ5%2BpfEnYSFvUEoBnW7EVIk2dWI9p%2FtQNwoTVt%2BBA%3D)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-1.jpeg)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

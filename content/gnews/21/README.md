@@ -2,10 +2,12 @@
 ---
 
 
-## 5月后美国经济恐将大崩溃
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1965657/)
+## CNN《中共国高墙背后》：习普两个独裁者在冬奥相聚
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1965809/)
 
-台灣寶島農場
+02/04/2022 CNN《中共国高墙背后》系列节目：习近平和普京两个独裁者在奥运会上走到了一起。
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
