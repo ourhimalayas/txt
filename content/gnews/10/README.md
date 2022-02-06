@@ -2,41 +2,31 @@
 ---
 
 
-## 有声|中共国八个孩子母亲的惨剧真相
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1962882/)
+## 有声|西方国家警告：任何入侵乌克兰的行动都将面临“严重后果”
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1962893/)
 
-配音：香草山佛教部 – 李傻
+配音：香草山健身部 – 玫瑰园
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-中共国是拐卖妇女儿童最多的国家，因为贫穷，买妻成风，人贩子因为没有严惩的法律，加上暴利诱惑，合伙拐卖儿童、妇女的恶性案例只增未减！
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-13.jpg)
-1月28号，中共国网上出现几个主播为赚流量，直播给一个脖子上锁的女子送吃送衣，事发地点，江苏省徐州丰县董集村一个废弃的房屋里，狭窄的空间有个破床，用狗链子锁着的女子蓬头垢面，却相貌俊秀的年轻女子，眼神空洞神智不清，牙齿几乎没有。
+外媒2月2日报道，俄罗斯已在与乌克兰边界集结约10万部队人员，西方国家领袖警告，任何入侵乌克兰的行动，都将面临“严重后果”。
 
-由此暴露出中共国一起惨无人道的拐卖案。
+美国国防部发言人柯比2日表示，美国计划增派3000名部队人员，强化北大西洋公约组织（NATO）在东欧的武力。其中1000名驻德国美军将驻守罗马尼亚，另有2000名部队人员将从美国前往德国及波兰进行部署。
 
-视频的发酵，网友的爆料，还原了事实真相。该女子是20多年前，14岁左右时，被已去世的董家父亲称“捡来”的，初来时还会英语，董家给34岁的儿子董志民做老婆，期间该女孩遭遇董父和其俩个儿子的强奸，不从就打，因为逃跑被锁，反抗当中遭受殴打、拔牙，折磨长达二十几年，生下了八个孩子。
+柯比指出，向俄罗斯总统普京及世界释出强烈讯息，昭告美国重视北约，这是相当重要之事。
 
-事发以后当地政府丰县在未经调查下，公布说该女与董志民属于领证结婚，不存在拐卖行为，引发舆论哗然，网友称既是婚姻关系，该女娘家哪里，姓啥名谁，为何被拨牙齿，既是有病为何不送医医治，既是流浪者也应该属于有关部门收留，要求查实种种质疑，此案因为当地政府的包庇和护短，目前还没有明确进展。
+文字版原文：[西方国家警告：任何入侵乌克兰的行动都将面临“严重后果”](https://gnews.org/zh-hans/1958219/)
 
-发酵以后的网络力量越来越大，有网友出示照片，称该女子相貌体征跟四川人一个叫李莹的大学生符合，1984出生，1996年失踪，该女生的父亲因为找女痛女思女成疾已经去世。1/29，警方介入已联系李母作DNA进一步核实，此事目前还在进一步调查核实中。
+音频处理/发稿：Daxia
 
-文字版原文：[中共国八个孩子母亲的惨剧真相](https://gnews.org/zh-hans/1958220/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -2,8 +2,8 @@
 ---
 
 
-## 西方哪些人相信共产主义
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1962813/)
+## 共产主义的本质是什么 有多人真正了解
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1962821/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
