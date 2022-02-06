@@ -2,27 +2,32 @@
 ---
 
 
-## 七哥谈哈萨克族战友（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1965112/)
+## 美军首批赴欧增援部队抵达德国
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1965191/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+**翻译:里奇**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip美军首批赴欧增援部队抵达德国.png)图片来源：reuters.com
+柏林，2 月 4 日（路透社）——美国军方欧洲司令部周五表示，在俄罗斯在乌克兰边境集结军事力量的情况下，第一批在东欧和德国增援北约盟国的美军已经抵达德国。
 
-2个月以前，他们问我的时候，他说，郭先生，你对这个事情有什么看法？我说我告诉你，一定会起来。他说，我们很担心啊，这个势力太大，我说你放心，哈萨克人有个最大的优势，就是你们的忠诚。你们对自己的文化对自己的民主对自己的兄弟姐妹很忠诚，而且你们非常讲信用。
+该司令部的一位发言人在一份声明中表示，“第18空降兵团的士兵今天抵达威斯巴登”，并补充说他们将在德国建立一个总部，以支持将部署到波兰的1,700名伞兵。
 
-我说这和现在的新疆的维族人是不一样的，我说我觉得所有人和你走下去，结果啪啪起来，王毅还没到，我就告诉了哈萨克朋友，我说你们要做好准备啊。这个事儿已经来了，而且他们会这么做，结果这人全动起来了。
+声明说：“这是五角大楼宣布增派部队从美国转移到欧洲以支持我们的北约盟国之后抵达欧洲的2,000 名士兵中的第一批。”
 
-我今天可以毫不夸张的说，未来哈萨克人一定会给新中国联邦树上一个最伟大的一个雕塑。他们爱思考雕像啊，这个爱搞雕像一定会做上去啊。纳扎尔巴耶夫的事情是我们新中国联邦走向东欧的一个里程碑。而且接下来会在乌克兰啊，看到会在乌克兰啊，包括阿塞拜疆，吉尔吉斯斯坦，都会有动作啊。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥谈哈萨克族战友（二）-.jpg)
-2022年1月7日文贵大直播
+周三，美国总统乔·拜登下令向波兰和罗马尼亚增派近3,000 名士兵，以保护东欧免受乌克兰危机的潜在影响。
 
-*发布：tianzhihuan*
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+据五角大楼称，驻扎在德国维尔塞克镇的约1,000 名美国军人组成的史赛克中队将被派往罗马尼亚，而主要来自第 82 空降师的约1,700 名军人将从北卡罗来纳州的布拉格堡部署到波兰。
+
+最重要的是，还有 300 名其他服务人员将从布拉格堡转移到德国。
+
+**新闻来源**：[reuters.com][First U.S. reinforcement troops for Europe arrive in Germany](https://www.reuters.com/world/europe/first-us-reinforcement-troops-europe-arrive-germany-2022-02-04/)
+
+* * *
+
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-1.jpeg)
 
  
 

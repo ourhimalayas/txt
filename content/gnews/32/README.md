@@ -2,28 +2,39 @@
 ---
 
 
-## 记者在北京直播连线报道冬奥会被粗暴驱赶
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1964466/)
+## 菲律宾最高法院退休法官：中共将干预即将举行的选举
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1964797/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-543.png)图片来源于本文链接
-2月4日，荷兰公共电台NOS驻京记者邓达斯(Sjoerd den Daas)在直播连线报道北京冬奥时，被中共国保安粗暴推搡驱离，该事件引发广泛关注。
+整理/编辑：小红帽
 
-周五晚上（2月4日）邓达斯与演播室连线，直播画面可以看到，他在回答主播问题时画面出现一名黑衣人，他一边用中文说“咱们啊，往前走，哥们儿！”一边拉他，邓达斯用中文说“稍等一会儿，我现在在新闻联播。” 对方并没有停止推搡动作，并说“瞅我这一脑袋汗”。邓达斯继续向镜头方向播报了几句话后，被越推越远，直播只能中断。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/雅典娜快讯图.png)图片来源：雅典娜设计组
 
-根据《时代周刊》报道，事发后NOS在推特上表示，“我们的记者……被安保拉离了摄像机。不幸的是，这正日益成为记者在中共国的日常现实。”
 
-NOS主编格劳夫(Marcel Gelauff)接受荷兰《每日汇报》(Algemeen Dagblad)采访时表示，这段视频是中共国新闻自由状况的一个“痛苦的例子”。
+根据《Inquirer.net》2月5日报道，菲律宾一位已退休的最高法院高级助理法官安东尼奥·卡皮奥（Antonio Carpio）周六表示，他认为中共可能会干预即将举行的全国大选以保护其利益。
 
-这并非是首次外国记者在中共国报道时发生不愉快的插曲。去年夏天郑州洪灾发生过后，德国记者马蒂亚斯·比林格（Mathias Bölinger）在郑州执行报道任务时曾面临当地不明人士的骚扰。比林格在郑州为德国之声做现场英语采访时，不明人士用手机拍摄他。他说有几个人还告诉他不允许拍摄。后来发现，人们把他和一位也在郑州采访的BBC记者弄混淆了。
+“中共会干预，因为我认为他们干预了上次总统选举，”卡皮奥在一个在线论坛上说。
 
-外国媒体驻华记者俱乐部（FCCC）近日发布的一份调查报告指出, 外国记者在中共国正面临“前所未有的障碍”。在北京冬奥会前夕，127名受访记者中有60%批评组织者提供的赛事信息不足。此外，记者们往往在新闻活动结束后才得知相关消息。只有10%的受访者表示，他们能得到参加奥运前相关活动的可靠信息。
+前外交部秘书阿尔伯特·德·德尔罗萨里奥（Albert Del Rosario）称，中共国官员一直在吹嘘他们能够影响2016年该国的投票结果，这导致了罗德里戈·杜特尔特（ Rodrigo Duterte）总统的当选。
 
-消息来源：[荷蘭記者北京連線時遭干擾 國際奧委會發回應](https://tw.news.yahoo.com/%E8%8D%B7%E8%98%AD%E8%A8%98%E8%80%85%E5%8C%97%E4%BA%AC%E9%80%A3%E7%B7%9A%E6%99%82%E9%81%AD%E5%B9%B2%E6%93%BE-%E5%9C%8B%E9%9A%9B%E5%A5%A7%E5%A7%94%E6%9C%83%E7%99%BC%E5%9B%9E%E6%87%89-113600069.html?guce_referrer=aHR0cHM6Ly90dy5uZXdzLnlhaG9vLmNvbS8&amp;guce_referrer_sig=AQAAABFIj2JlKUtcvuc0Ua1f9uiByAigOesjRyhTLG2fr0IzngmEflD-yv7WmFbAJVEs-s5coV0fCalyuYMNa5vQkIc52YQgi3Xv9XlF-VJR9aJ9d0SJIbjQN8Gzm8aGuJ_rok2TmhJmXCb88LsENgXwuJRnm-qjCQJqbFoOqLoVxN61&amp;_guc_consent_skip=1644128555)
+卡皮奥相信，中共将再次青睐一位延续杜特尔特与北京友谊的候选人。
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+“因此，我们将不得不期待对我们的海域感兴趣或声称拥有我们的领土和海域的国家（中共国）会寻找一个对他们友好的候选人，就像杜特尔特一样。中共希望杜特尔特的政策得以延续”。卡皮奥指出。
+
+卡皮奥还引用了杜特尔特先前的声明，即他在从中共手中夺取对西菲律宾海岛屿的控制权时“无能为力”。卡皮奥说，这反映了杜特尔特在争议领土问题上的政策。
+
+“中共希望下一任总统也采取同样的政策，这一点非常明确，”卡皮奥认为。
+
+新闻链接：[Carpio believes China will interfere in upcoming elections](https://newsinfo.inquirer.net/1550404/carpio-believes-china-will-interfere-in-upcoming-elections)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,22 +2,25 @@
 ---
 
 
-## 联合国秘书长：希望北京允许人权特使访新疆
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1964448/)
+## 面对可能的欺诈调查，GoFundMe同意退还加拿大卡车司机收到的捐款
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1964778/)
 
-撰稿：东京樱花团/asket
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-540.png)
-联合国表示，秘书长古特瑞斯（Antonio Guterres）2月5日告诉北京领导人，希望当局允许联合国人权事务高级专员巴舍莱到中共国进行“可信的”访问，包括停留新疆。
+#### 撰稿：彩虹
 
-根据联合国提供的会谈内容，古特瑞斯在北京冬季奥运场边与中国国家主席习近平和外交部长王毅会面时，对两人“表示，期望联合国人权事务高级专员公署（Office of the UN High Commissioner for Human Rights, OHCHR）与中国当局的接触，能促成人权事务高级专员到中国进行可信的访问，包括新疆”。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-3-2.jpg)图片来源：网络图片
+2月5日，《新闻极限》报道，周六，众筹平台GoFundMe表示，在佛罗里达州州长罗恩·德桑蒂斯和其他人要采取行动对其进行欺诈调查后，它将自动退还为抗议中共病毒（COVID-19）疫苗规定的加拿大卡车司机车队筹集的约1000万美元的剩余款项。
 
-而中共新华社发出的会谈新闻并未提及人权议题。
+该组织在周六早些时候发布的推特（Twitter）上说：“为了简化用户的程序，我们将退还对2022年自由车队（Freedom Convoy）筹款活动的所有捐款。这种退款将自动发生，你不需要提交申请。捐赠者可以预期在7-10个工作日内看到退款。”
 
-信息源：[UN秘书长：盼北京允人权特使访新疆](https://www.swissinfo.ch/chi/un%E7%A7%98%E4%B9%A6%E9%95%BF-%E7%9B%BC%E5%8C%97%E4%BA%AC%E5%85%81%E4%BA%BA%E6%9D%83%E7%89%B9%E4%BD%BF%E8%AE%BF%E6%96%B0%E7%96%86/47324502)
+报道说，在GoFundMe暂停通过网站上的捐款为加拿大“自由车队”筹集的约1000万美元的分配后，德桑蒂斯与其他人一道，在推特上发文谴责GoFundMe不允许抗议活动组织者提取资金，是一种“欺诈”。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+根据BBC的报道，1000万美元的捐款来自世界各地的12万多名捐助者，包括“许多”来自美国的。
+
+**新闻来源**
+
+[GoFundMe to Refund $10M of Canadian Trucker Donations After Fraud Probe Threat](https://www.newsmax.com/politics/canada-truckers-covid-protest/2022/02/05/id/1055642/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,43 +2,27 @@
 ---
 
 
-## 普京首次就俄罗斯与乌克兰冲突发表公开谈话，提出解决条件
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1965001/)
+## 七哥谈哈萨克族战友（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1965112/)
 
-作者：台湾宝岛农场\_阿尔道夫
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-26.jpg)
+2个月以前，他们问我的时候，他说，郭先生，你对这个事情有什么看法？我说我告诉你，一定会起来。他说，我们很担心啊，这个势力太大，我说你放心，哈萨克人有个最大的优势，就是你们的忠诚。你们对自己的文化对自己的民主对自己的兄弟姐妹很忠诚，而且你们非常讲信用。
 
+我说这和现在的新疆的维族人是不一样的，我说我觉得所有人和你走下去，结果啪啪起来，王毅还没到，我就告诉了哈萨克朋友，我说你们要做好准备啊。这个事儿已经来了，而且他们会这么做，结果这人全动起来了。
 
+我今天可以毫不夸张的说，未来哈萨克人一定会给新中国联邦树上一个最伟大的一个雕塑。他们爱思考雕像啊，这个爱搞雕像一定会做上去啊。纳扎尔巴耶夫的事情是我们新中国联邦走向东欧的一个里程碑。而且接下来会在乌克兰啊，看到会在乌克兰啊，包括阿塞拜疆，吉尔吉斯斯坦，都会有动作啊。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥谈哈萨克族战友（二）-.jpg)
+2022年1月7日文贵大直播
 
-
-
-![](https://newsstatic.rthk.hk/images/mfile_1631609_2_L_20220202014710.jpg)（普京与匈牙利总理奥班）（美联社图片）
-
-据媒体报导，俄罗斯总统普京于2月1日公开批评西方忽视莫斯科的安全疑虑，希望能结束不断升温的紧张局势。这是普京首次就俄罗斯与乌克兰冲突发表公开谈话。
-
-普京在莫斯科与匈牙利总理奥班（Viktor Orban）会谈后的记者会上表达了上述观点。他重申，美国及其盟友忽视了俄罗斯的首要安全关切，要求北约（NATO）拒绝乌克兰加入并从俄罗斯附近撤走武器装备。
-
-俄国要求北约就停止扩张给予有法律约束力的安全保证，以及勿在俄国边界附近部署攻击设施，还要北约将军事部署恢复至1997年以前的状态。与此同时，美国务卿布林肯于2月1日重申美国对乌克兰主权和领土完整的承诺的重要性，敦促俄国从乌克兰边界撤军，立即让情势降温。英国首相约翰逊（Boris Johnson）也敦促俄罗斯后退并以外交方式展开对话，避免造成更大的灾难。
-
-
-
-参考链接：
-
-[https://www.soundofhope.org/post/589978](https://www.soundofhope.org/post/589978)
-
-编辑/校对/发稿：有莫举名
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-77.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-23.jpg)
+*发布：tianzhihuan*
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

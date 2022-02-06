@@ -2,10 +2,10 @@
 ---
 
 
-## 中国版《搏击俱乐部》结局因中共极端审查而被篡改
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1964195/)
+## 日本厚劳省将接种后患心肌炎警报提高至“疫苗严重不良反应”
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1964315/)
 
-01/26/2022 前澳大利亚外交和贸易部的中国问题学者Andrew Phelan，评论电影《搏击俱乐部》结局被篡改以适应中共国的审查制度，这体现了中共国是一个充满审查的国家。
+01/22/2022 日本厚生劳动省已将接种后患心肌炎和心包炎的警报级别提高至“疫苗严重不良反应”。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

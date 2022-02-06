@@ -2,36 +2,33 @@
 ---
 
 
-## 北京冬奥：中共国为夺首金被疑打压美国队
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1965094/)
+## 美国新冠死亡人数破90万！一个半月内激增10万人病殁
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1965176/)
 
-作者：东京樱花团｜捆绑CCP一千年
+整理/编辑：Little Lamp
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-02-下午10.11.59-4.png)
+据法新社报导，约翰普霍金斯大学的数据显示，近一个半月以来，美国新增10万人死于新冠肺炎，截至当地时间2月4日，美国死于新冠肺炎的人数已超过 90万人，而一个半月前这个数据只是80万例。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/北京冬奥：中共国为夺首金被疑打压美国队.png)
+根据美国政府的数据，与Omicron变异毒株相关的新增病例正在减少，但单日新增的死亡人数仍然在上升，目前平均约为2400人。也就意味着，美国目前每天约有2400个家庭正在经历丧亲之痛。
 
-**中共国夺得首金引爆爱国情绪。无辜判罚的美国运动员表示“这是针对他的”处罚。显然，北京对“外交抵制”参赛国选手有不公正裁判嫌疑，而彭帅的问题在媒体反复追问下无果。美议员对此提交议案，要求惩罚奥委会高官**。
+美国CDC主任瓦伦斯基表示，住院的人数仍然很高，全国部分地区的医疗照护能力和人力已经达到极限。
 
-据中共国新华社6日消息以“惊！险！幸！”三字形容中共国短道速滑以0.016秒的优势夺得首金。但被淘汰的美国队表示不服，其中还有中华台湾国选手同时被淘汰。
+由于新冠死亡案例通常发生在[患者](https://udn.com/search/tagging/2/%E6%82%A3%E8%80%85)感染病毒的数周后，解释了为何死亡人数激增会发生在新增确诊数攀升之后。
 
-对于中共国人来说，冬季运动赛场上通往金牌的道路并不容易。“[他们最初在半决赛中排名倒数，没有晋级的资格](https://www.nytimes.com/2022/02/04/sports/olympics/china-wins-speedskating-relay-gold.html%20%0a%0a)。”奇怪的是，裁判官们对比赛的回放进行了几分钟的讨论后，将获得第二名的美国选手和第三名的俄罗斯选手资格都被取消了。“[我们滑得完美无瑕，”美国滑冰选手瑞恩·皮维罗托失望地说，违规判决是针对他的](https://www.nytimes.com/2022/02/04/sports/olympics/china-wins-speedskating-relay-gold.html%20%0a%0a)。
+根据政府的数据，以绝对值来说，美国是全球新冠死亡人数最多的国家，超越巴西和印度。
 
-- ***延展阅读：***[***国际奥委会主席托马斯·巴赫不会针对彭帅被强奸的指控进行调查***](https://www.nytimes.com/2022/02/03/sports/tennis/peng-shuai-olympics.html%0a%0a)
+文章来源：[美國新冠死亡人數破90萬！一個半月內激增10萬人病歿](https://udn.com/news/story/6811/6077166?from=udn-catebreaknews_ch2)
 
+*发布：tianzhihuan*
 
-这里存在暗箱操作吗？“[在中国正式获胜之前，其新闻媒体就已经报道该国赢得了本届奥运会的第一枚金牌](https://www.nytimes.com/2022/02/04/sports/olympics/china-wins-speedskating-relay-gold.html%0a%0a)。”这是一个明显不公正的裁决，现场唯一的被指定的中共国观众大声欢呼雀跃，违反本届冬奥会避免传播COVID中共病毒不喝彩的规则。
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-推特账号[@Tom\_Schad](https://twitter.com/Tom_Schad/status/1489954395135512577?s=19)的美国记者说：“我不确定有什么样的上诉程序可供他们使用（我是新到这里的）但如果真的有，我会猜想美国运动员一定会为此申诉。”问题是，“[在决赛中抢过美国队席位的中国队继续赢得金牌](https://twitter.com/Tom_Schad/status/1489956750065242115?s=19)。”
+#  
 
-- ***延展阅读：***[***美众议员R-WI提法案要求美国政府处理彭帅的强奸指控而惩罚奥林匹克高级官员——巴赫***](https://www.newsweek.com/rep-mike-gallagher-pushes-sanctions-against-olympics-ioc-officials-peng-shuai-bill-1670711)
-
-
-在现场采访的西方媒体询问：[彭帅在哪里](https://twitter.com/khjelmgaard/status/1490170268605501446?s=19)？现场西方媒体揭示国际奥委会虚报运动员感染中共病毒人数，截止北京时间6日，已有“10 个阳性,不是 6 个。”而媒体继续追问“[国际奥委会主席巴赫与网球明星彭帅计划的晚宴新闻发布会何时举行](https://twitter.com/khjelmgaard/status/1490168576019361792?s=19)”。
-
-2022年2月6日
-
-*校对：东京樱花团 / 文小白*
-*发布：东京樱花团 / 老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

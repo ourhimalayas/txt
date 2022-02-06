@@ -2,24 +2,43 @@
 ---
 
 
-## 土耳其总统夫妇感染奥米炕是真是假？
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1964675/)
+## 普京首次就俄罗斯与乌克兰冲突发表公开谈话，提出解决条件
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1965001/)
 
-#### 撰稿：彩虹
+作者：台湾宝岛农场\_阿尔道夫
 
-#### 责编：白夜       
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-548.png)图片来源：Bernama
-2月5日，《国会山报》引述《美联社》的报道，土耳其总统雷杰普·塔伊普·埃尔多安（Recep Tayyip Erdoğan）和他的妻子在中共病毒（COVID-19）检测中结果为阳性。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-26.jpg)
 
-周六，埃尔多安发布了一条推特说：“今天，我们的COVID-19（中共病毒）检测结果为阳性，我和妻子在出现了（中毒）轻微症状后进行了检测，值得庆幸的是，我们的病情较轻，我们了解到这是（中共）病毒变体奥米炕（Omicron）。”
 
-但是，美联社指出，埃尔多安在周六的电视讲话中并没有表现出病毒症状。并且，围绕总统健康状况的谣言和猜测一直是争议的根源，而官方却对质疑领导人健康状况的社交媒体用户展开调查。
 
-周五，土耳其的中共病毒病例激增，卫生部记录了111,157例中共病毒病例和248例死亡。
 
-**新闻来源**
 
-[Turkish president tests positive for COVID-19](https://thehill.com/policy/international/592974-turkish-president-tests-positive-for-covid-19?rl=1)
+![](https://newsstatic.rthk.hk/images/mfile_1631609_2_L_20220202014710.jpg)（普京与匈牙利总理奥班）（美联社图片）
+
+据媒体报导，俄罗斯总统普京于2月1日公开批评西方忽视莫斯科的安全疑虑，希望能结束不断升温的紧张局势。这是普京首次就俄罗斯与乌克兰冲突发表公开谈话。
+
+普京在莫斯科与匈牙利总理奥班（Viktor Orban）会谈后的记者会上表达了上述观点。他重申，美国及其盟友忽视了俄罗斯的首要安全关切，要求北约（NATO）拒绝乌克兰加入并从俄罗斯附近撤走武器装备。
+
+俄国要求北约就停止扩张给予有法律约束力的安全保证，以及勿在俄国边界附近部署攻击设施，还要北约将军事部署恢复至1997年以前的状态。与此同时，美国务卿布林肯于2月1日重申美国对乌克兰主权和领土完整的承诺的重要性，敦促俄国从乌克兰边界撤军，立即让情势降温。英国首相约翰逊（Boris Johnson）也敦促俄罗斯后退并以外交方式展开对话，避免造成更大的灾难。
+
+
+
+参考链接：
+
+[https://www.soundofhope.org/post/589978](https://www.soundofhope.org/post/589978)
+
+编辑/校对/发稿：有莫举名
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-77.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-23.jpg)
 
  
 
