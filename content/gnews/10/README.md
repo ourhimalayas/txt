@@ -2,8 +2,8 @@
 ---
 
 
-## 七哥谈情绪表达
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1964145/)
+## 为什么要追求喜马拉雅（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1964267/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

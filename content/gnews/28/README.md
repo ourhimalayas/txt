@@ -2,32 +2,33 @@
 ---
 
 
-## 有声|新中国联邦引领世界回归正道
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1963893/)
+## 美国有望监管中共国的数字人民币
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1964109/)
 
-配音：香草山巡管部– 文凯琳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月2日，在GTV《新闻访谈》节目中，主持人与嘉宾一起分享了“G系列中国人再入世”的几大要点，而这几点也正是新中国联邦人引领世界回归正道的必要因素。
+撰稿：小毛牛
+![](https://assets.gnews.org/wp-content/uploads/2022/02/6022.png)图片来源：Gnews
+据路透社报道：参议院的一位重量级共和党人帕特·图米正在敦促拜登政府在中共冬奥运期间密切监控中（共）国最近推出的数字货币的使用情况，因为根据这位参议院掌握的情况中共预计将向外国游客推广该项目。
 
-嘉宾提到，首先，《新中国联邦宣言》的公布是新中国联邦政治入世的举动。宣言所阐述的关于新中国联邦建国、治国的理念已得到了许多国家的认同。
+该报道源于周四致财政部长珍妮特·耶伦和国务卿安东尼·布林肯的一封信：参议员帕特·图米表达了对中共政府可能利用这一全球事件帮助其被称为 e-CNY 的数字人民币在全球站稳脚跟的担忧。他警告说，这样的努力可以用来制定跨境支付的标准，因为中国人民银行希望在开发央行数字货币的竞赛中领先于其他国家。
 
-其次，喜币上市推动了新中国联邦经济入世。喜联储中喜美元、喜币和喜支付的相继面世开起了世界金融的新纪元，更让全世界人民的金钱不再被剥削，从而真正实现个人金钱的自由使用权，进而告别那些“用钱难”的可悲历史。
+该参议员还补充说道：在全球数字经济中保持领先地位，并支持数字货币等新创新的重要性是与包括中（共）国在内的其他国家战略竞争的重要领域。
 
-文字版原文：[新中国联邦引领世界回归正道](https://gnews.org/zh-hans/1958276/)
+此外，该参议员还要求财政部和国务院报告与中国公民相比，外国游客对数字人民币的使用率、2022 年冬季奥运会期间电子人民币的总发行量，以及电子人民币的推出是否可以为美国政府正在考虑开发自己的中央银行数字货币提供启发。
 
-音频处理/发稿：Daxia
+截至目前，财政部发言人拒绝置评，国务院也没有回应置评请求。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+自 1 月 4 日起，数字人民币钱包应用程序的试用版已经可以在中共国的手机应用商店中下载。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+从目前的情况来看，电子人民币的使用仍仅限于 10 个主要“试点”城市，以及周五正式开幕的北京冬奥会的举办地。
 
+可以确定的一点是：美国迄今为止仍未决定开发自己的数字货币，美联储也承诺在未经国会授权的情况下不会推进任何此类努力。
 
+新闻来源：
+
+[https://www.reuters.com/world/us/republican-senator-urges-us-monitor-chinas-digital-yuan-push-during-olympics-2022-02-04/](https://www.reuters.com/world/us/republican-senator-urges-us-monitor-chinas-digital-yuan-push-during-olympics-2022-02-04/)
+
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

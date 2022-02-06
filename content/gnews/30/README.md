@@ -2,42 +2,45 @@
 ---
 
 
-## 澳洲放宽国际入境，国际留学生市场中国学生很稀少
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1963745/)
+## 单伟建的太盟集团与HBO旗下ViceMedia的深层关系
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/1963976/)
 
-#### **【雅典娜观察】和您一起洞察世界**
+加拿大温哥华扬帆农场 薇文vivien
 
-整理/编辑：文泓
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/17-2.png)图片来源：The Age
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/b-edited-scaled.jpg)图片来源：twitter
 
 
-当地时间2月4日，据《澳大利亚人报》报道，在过去的两个月里，有超过56,000名国际学生抵达澳大利亚，只有不到10%的学生来自中国，而大流行前中国留学生是留学生市场最受欢迎的。
+2017年，[太盟]以持股9.8%成为[腾讯音乐娱乐集团]（以下简称“腾讯音乐”）的第二大股东；
 
-自莫里斯政府于去年11月宣布放宽国际边界条件以来，抵达澳大利亚的最大数量的学生来自印度，有超过16,000人抵达澳大利亚。随着北京和堪培拉之间的紧张关系持续存在，在这段时间里，只有不到6000名中国学生抵达。
+2018年12月， [腾讯音乐]在[纳斯达克]上市，估值为 213 亿美元。[太盟]出售[腾讯音乐]存托凭证募资$5,700 万美元，仍持有 9% 的股份；
 
-当中国新任驻澳大使肖千于1月26日发出了“增进互信”和“促进互利交流”，“共同推动中澳关系重回正确发展轨道”的和解信号。然而，澳洲政界仍然持怀疑态度。
+当年6月，HBO因主持人嘲讽 #习近平 为“维尼熊”后，在中共当局被关闭。HBO和它的东家[华纳媒体]因此失去每年在中国流媒体年增长约50%的收入，损失惨重。
 
-防长彼得·达顿上周说，“我们希望与中国建立良好的睦邻关系，但中国正与外界处于冲突之中，不仅对我们切断市场联系和发起网络攻击，而且与菲律宾、印度、越南和许多其他国家都处于对立状态”。
+PAG抛下诱饵。
 
-在2020、2021年，中国教育部多次发布留学预警，声称澳洲存在“种族主义”倾向，警告中国学生不要返回澳大利亚。同期，中国移民管理局出台“非紧急必要，暂停出入境证件”的政策，虽然，留学签证大门还没有关，但是客观上也增加了留学生出境的难度。
+2021年3月，[腾讯音乐]宣布与[华纳音乐]成立合资唱片公司，使[华纳音乐]重返[腾讯音乐]旗下的 QQ 音乐、酷狗音乐、酷我音乐、直播平台和在线卡拉 OK 平台。其跌到最低点的股价应声走高。
 
-澳大利亚国际教育协会首席执行官菲尔·霍尼伍德说，上个月（中国多地）的封锁使一些学生难以离开中国。
+同年9月，[腾讯音乐]取消独家版权授权，放权[华纳音乐]自行向经营者授权，使[华纳音乐]的股价在随后两个月内飙升了近30%，10月底创下历史新高。
 
-澳大利亚统计局周四公布的数据显示，由于大流行病的影响，国际教育行业的价值遭受重大打击，在大流行之前，该行业产值超过400亿澳元，而12月的数据显示，该行业的价值下降到了225亿澳元。
+9月，与[中金公司]紧密合作、 孙强所在的[德太集团]，为 HBO 旗下的 ViceMedia 注资$4500万美元，助其上市。
 
-根据澳大利亚大学协会的数据，目前回澳的学生使国际留学生总数超过了16万人，但是还有131,290名学生，即占签证持有人总数的45%，仍然在海外。
+单伟建和孙强双管齐下，蓄谋已久并花费高昂代价，让ViceMedia 记者、曾经的央视主持人杨贝贝得以采访郭文贵先生。使用后期剪辑，大肆散播诋毁郭先生和爆料革命、威胁坚定灭共战友的视频。
 
-新闻链接：[大批留学生抵澳 中国学生不到10%](https://cn.theaustralian.com.au/2022/02/04/63183/)
+可悲的是，这段虚假视频播出后，华纳股价应声一路下跌。中共害怕、诋毁新中国联邦和郭文贵先生所导致的愚蠢行为，不断为灭共事业逆增上缘。
 
-**发布：**
+* * *
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+校对，发稿：硫酸羟氯喹64
+
+参考资料：
+
+1、[Tencent Music Entertainment: China’s Largest Online Music Entertainment Platform Operator](https://seekingalpha.com/article/4412340-tencent-music-entertainment-online-music-entertainment-platform-operator)
+
+2、[Warner Music Partners With Tencent on Joint Venture Record Label in China](https://www.hollywoodreporter.com/news/music-news/warner-music-partners-with-tencent-on-joint-venture-record-label-in-china-4154621/)
+
+3、[ViceMedia获TPG4.5亿美元私募股权融资](https://m.lieyunwang.com/archives/326292)
+
+4、[招股书 SEC: Tencent Music Entertainment Group2018.10](https://www.sec.gov/Archives/edgar/data/1744676/000119312518290581/d624633df1.htm)
 
  
 
