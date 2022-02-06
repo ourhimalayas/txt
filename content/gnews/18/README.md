@@ -2,45 +2,25 @@
 ---
 
 
-## G系列产品将成为全球最佳金融避险港湾
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1966037/)
+## 调查显示日本民众大多数赞成政府外交抵制冬奥会
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1966069/)
 
-作者：银河系农场 骄子
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-57.png)
+（图片源自本文链接）
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+日本读卖新闻２月６日消息：《读卖新闻》于2月4日至6日期间进行了一项民意调查。其结果，72%的受访者认为日本政府不派政府代表参加北京冬奥会的决定是“妥当的”，远远多于认为“不妥当”的17%。
 
+关于总理曾表示过“想从实际角度考虑”的”敌方基地攻击能力的保有”问题，结果是43%赞成，46%反对，几乎各占一半。
 
+这个调查结果表明，日本民众的绝大多数赞成日本政府抵制北京冬奥会。
 
-郭文贵先生在2月4日的大直播中谈到美国社会的三大基础:
+信息来源：[北京五輪への政府代表派遣見送り、「適切」７２％…読売世論調査（読売新聞オンライン） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/ad9f148695afde2752040394f9497605d7ce0d41)
 
-1. 1.5美金的面包和4美金的油价保持稳定；
-2. 律师和会计师的生活成本必须得到维持；
-3. 大企业的稳定，卡车指数等。
+校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
-
-这三个因素影响了整个美国社会的稳定与动乱。当下，虽然有些因素正在蠢蠢欲动，但大多数情况属于个体突发情况，最坏的时刻还未到来。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-06-at-10.46.16-PM.png)
-
-郭先生警示道，当信用卡和银行烂账危机同时出现之时，便是美国经济便崩塌之日，郭先生表示5月份之后这些危机会依次显现。与此同时，喜系列、G系列会有一系列的战略部署，如GVision和Gettr Pay的上线。
-
-郭先生最后提到，PayPal、Stripe等支付系统的高管已经加入HPay，喜币喜联储是数字货币时代的规则制定者。郭先生强调，我们要准备好自己拉钻石拉黄金的车，腾空自家的多个地窖，迎接美国乃至全球经济崩塌的时刻到来。
-
-参考链接：[2022年2月4日 文贵大直播](https://gtv.org/video/id=61fd1a6596ba5d73e0c28b83)@1:35:24
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-Shadow.png)
-
-编辑/总编：文特
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 

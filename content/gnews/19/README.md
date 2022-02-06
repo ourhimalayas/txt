@@ -2,41 +2,83 @@
 ---
 
 
-## 三项物价指标直指美国经济崩塌节点
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1966034/)
+## 有声|渡劫
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1966063/)
 
-作者：纽约香草山教育部 Noemi
-
+配音：香草山佛教部 – 李傻
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
+把你架在火上烤
+是共产党的心愿
+直至你灰飞烟灭
+化做尘土
 
-2月4日，郭文贵先生在大直播节目中透露，今年的三月份和五月份将是美国经济开始和加剧崩塌的两个主要节点，而汽油、面包和天然气等三项物价的变化则可以直接揭示出这一经济发展态势。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-06-at-10.33.13-PM.png)
-郭先生解释说，美国汽油、面包的价格不超过4美元，天然气价格不超过历史均价的20%，是维系普通美国民众生活稳定的三个重要因素。而这三项物价指标，是美国政治灾难具体发生的参照物。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-06-at-10.36.48-PM.png)
-据郭先生预测，美国经济将在今年三月份开始崩塌，并于五月份出现剧震。届时，疫苗灾难将不断升级，大量增发的货币会导致世界物价的飞速上涨，并促使美国经济全面走向崩溃。此次世界性的金融危机产生的破坏力不容低估，所有人应做好充足的现金和物资准备。
+几经反转
+你
+把
+共产党
+架在了火上
+熏烤
 
-参考链接：
+你带领我们
+醒来
+反洗脑
+反了一个国家
+反了一个统治阶层
+这个世界
+就发生了
+不可思议的天翻地覆
 
-1. [2022年2月4日 文贵直播](https://gtv.org/video/id=61fd129696ba5d73e0c27967)
-2. [美国失业率达到4%,文贵大直播透露美国经济崩溃时间](https://gnews.org/zh-hans/1958693/)
+我们的怒火啊
+就是烤焦共匪的火光
+他们造下的罪恶啊
+就是火堆里
+累累的柴火
+烧了它
+灭了它
+是我们共同的心愿
 
+渡劫
+就这样开始了
+考验体力
+考验心智
+考验灵魂
+历尽质疑
+历尽磨难
+历尽背叛
+历尽孤独
+灭共的人群
+越聚越多
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-Shadow.png)
+共产党灭了
+我们胜利了
+我们在欢呼
+我们也会相聚盘古
+当一切尘埃落定
+你归隐山林
+留下无尽传说
+在劫后余生的我们中
+流传
 
-编辑：DM
-总编：文特
-校正/发稿：我不在这里
+文字版原文：[渡劫](https://gnews.org/zh-hans/1960420/)
 
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
