@@ -2,24 +2,38 @@
 ---
 
 
-## 面对可能的欺诈调查，GoFundMe同意退还加拿大卡车司机收到的捐款
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1964778/)
+## 菲律宾最高法院退休法官：中共将干预即将举行的选举
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1964797/)
 
-#### 撰稿：彩虹
+整理/编辑：小红帽
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-3-2.jpg)图片来源：网络图片
-2月5日，《新闻极限》报道，周六，众筹平台GoFundMe表示，在佛罗里达州州长罗恩·德桑蒂斯和其他人要采取行动对其进行欺诈调查后，它将自动退还为抗议中共病毒（COVID-19）疫苗规定的加拿大卡车司机车队筹集的约1000万美元的剩余款项。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/雅典娜快讯图.png)图片来源：雅典娜设计组
 
-该组织在周六早些时候发布的推特（Twitter）上说：“为了简化用户的程序，我们将退还对2022年自由车队（Freedom Convoy）筹款活动的所有捐款。这种退款将自动发生，你不需要提交申请。捐赠者可以预期在7-10个工作日内看到退款。”
 
-报道说，在GoFundMe暂停通过网站上的捐款为加拿大“自由车队”筹集的约1000万美元的分配后，德桑蒂斯与其他人一道，在推特上发文谴责GoFundMe不允许抗议活动组织者提取资金，是一种“欺诈”。
+根据《Inquirer.net》2月5日报道，菲律宾一位已退休的最高法院高级助理法官安东尼奥·卡皮奥（Antonio Carpio）周六表示，他认为中共可能会干预即将举行的全国大选以保护其利益。
 
-根据BBC的报道，1000万美元的捐款来自世界各地的12万多名捐助者，包括“许多”来自美国的。
+“中共会干预，因为我认为他们干预了上次总统选举，”卡皮奥在一个在线论坛上说。
 
-**新闻来源**
+前外交部秘书阿尔伯特·德·德尔罗萨里奥（Albert Del Rosario）称，中共国官员一直在吹嘘他们能够影响2016年该国的投票结果，这导致了罗德里戈·杜特尔特（ Rodrigo Duterte）总统的当选。
 
-[GoFundMe to Refund $10M of Canadian Trucker Donations After Fraud Probe Threat](https://www.newsmax.com/politics/canada-truckers-covid-protest/2022/02/05/id/1055642/)
+卡皮奥相信，中共将再次青睐一位延续杜特尔特与北京友谊的候选人。
+
+“因此，我们将不得不期待对我们的海域感兴趣或声称拥有我们的领土和海域的国家（中共国）会寻找一个对他们友好的候选人，就像杜特尔特一样。中共希望杜特尔特的政策得以延续”。卡皮奥指出。
+
+卡皮奥还引用了杜特尔特先前的声明，即他在从中共手中夺取对西菲律宾海岛屿的控制权时“无能为力”。卡皮奥说，这反映了杜特尔特在争议领土问题上的政策。
+
+“中共希望下一任总统也采取同样的政策，这一点非常明确，”卡皮奥认为。
+
+新闻链接：[Carpio believes China will interfere in upcoming elections](https://newsinfo.inquirer.net/1550404/carpio-believes-china-will-interfere-in-upcoming-elections)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

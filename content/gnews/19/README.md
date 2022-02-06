@@ -2,36 +2,48 @@
 ---
 
 
-## 古特雷斯说，他希望中共能让人权负责人对新疆进行 &#8220;可信的 &#8220;访问。
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/1964804/)
+## 两名澳洲议员声援堪培拉反疫苗强制集会
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1964825/)
 
-素材：波士顿五月花 Vicky
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-06-at-4.31.50-PM.png)图片来源：Xinhua/REX/Shutterstock
-联合国秘书长安东尼奥*–*古特雷斯周六表示，他告诉北京的领导人，他期待中共当局将允许联合国人权事务高级专员巴切莱特（*Michelle Bachelet*）对中国进行*“*可信的访问*”*，包括在新疆地区停留。
+#### **澳洲新闻时事动态，尽在雅典娜【澳洲热点】**
 
-根据会谈纪要，古特雷斯在北京冬奥会期间会见了中共国家主席习近平和中共外交部长王毅。
+整理/编辑：文泓
 
-中共国家通讯社新华社对这次会议的解读没有提到人权问题。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/19-1.png)图片来源：Balkanstimes.eu
 
-人权运动人士说，至少有*100*万主要是穆斯林的少数民族被关押在新疆的*“*再教育营*“*中，新疆是中国被指控广泛侵犯人权的地区，包括强迫妇女绝育和强迫劳动。
 
-在冬奥会召开之前，中共外交部在每日简报中反复强调古特雷斯对冬奥会的支持。
+2月6日，据《澳洲新闻网》报道，受加拿大卡车司机大规模抗议疫苗强制活动的启发，澳洲的抗议者分别从昆士兰北部和珀斯等多地出发，并在一周前聚集在首都堪培拉。
 
-但迄今为止，中共一直拒绝智利前总统巴切莱特对新疆进行长期寻求的独立访问。
+在过去一周，抗议者的队伍一直在堪培拉保持稳定，他们在那里坚持的原因是为了让政府承担责任。
 
-美国政府和其他五个西方国家的立法者已宣布中共对新疆维吾尔人的待遇是*“*种族灭绝*”——*北京断然否认这一指控。
+乔治·克里斯滕森是昆州麦凯市众议员、[昆士兰自由国家党的](https://en.wikipedia.org/wiki/Liberal_National_Party_of_Queensland)成员，他一贯以反对新冠疫苗强制接种而闻名；克雷格·凯利是昆州修斯地区参议员，原为自由党成员，自2021年8月起担任澳大利亚联合党（也称为统一党）领袖。他反对强制接种，并主张采用伊维菌素等有效的替代办法治疗新冠。这个周六，两位议员均参加了堪培拉大规模的反疫苗强制抗议集会。
 
-但在开幕式上，它选择了一名年轻的维吾尔运动员、*20*岁的越野滑雪运动员迪尼格*·*依拉木江作为奥运火炬手之一，这一举动带有明显的政治色彩。
+大批抗议者穿越堪培拉中心城区游行到旧议会大厦，要求政府结束对新冠疫情的各种限制。
 
-人权活动家和立法者一直急切地等待着联合国关于新疆人权的报告，要求在北京奥运会前发布该报告的压力也越来越大，但该世界机构上个月底表示，在奥运会前不会发布。
+一些人高呼“不再强制接种”和“拯救澳大利亚”，而另一些人则大喊“把你的疫苗护照扔掉”。
 
-在与习近平的会晤中，古特雷斯*“*表示希望加强联合国与中华人民共和国在本组织工作的所有支柱方面的合作*—*和平与安全、可持续发展，包括气候变化和生物多样性，以及人权*“*，联合国声明说。
+一名男子用扩音器呼吁，停止使用疫苗护照，并要求解雇政客；有抗议者则高喊“拯救我们的孩子”。
 
-参考链接：[UN’s Guterres says he expects China to let rights chief pay ‘credible’ visit to Xinjiang](https://www.theguardian.com/world/2022/feb/06/uns-guterres-says-he-expects-china-to-let-rights-chief-pay-credible-visit-to-xinjiang)
+克里斯滕森议员现场直播了抗议活动的实况。
 
-* * *
+“这里有成千上万的人来自各行各业”，克里斯滕森在社交媒体上的一个直播中说：“他们诉说，我们是（政府心目中的）‘边缘居民’，但看看这里的所有人，他们想要的是，结束政府的这种胡说八道。”
 
-*编辑&发布：Vicky*
+与此同时，凯利议员在人群中与抗议人士交谈。
+
+“我们希望恢复我们的自由，我们希望结束这些（强制疫苗）任务，我们希望结束医疗隔离、封锁、州边界关闭。”
+
+警方估计周六抗议活动的人群超过2000人，警察在现场维持集会秩序，直到集会人数逐渐减少。
+
+新闻链接：[George Christensen slammed after attending anti-vaccine rally in Canberra | news.com.au — Australia’s leading news site](https://www.news.com.au/national/nsw-act/news/rebel-nationals-mp-george-christensen-attends-canberra-antivax-mandate-protest/news-story/53069669648f61ee19df14bc16297111)
+
+***发布：**tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

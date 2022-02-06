@@ -2,22 +2,32 @@
 ---
 
 
-## 谭德塞与李克强会面 欲勾兑中共病毒溯源
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1964467/)
+## H-Pay实现人民币秒变喜美元
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1964560/)
 
-撰稿：东京樱花团/asket
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-542.png)
-世界卫生组织WHO秘书长谭德塞2月5日与中共国务院总理李克强会面，讨论中共病毒（新冠病毒COVID-19）相关议题，其中也包括针对疫情起源的调查，勾兑痕迹明显。
+撰稿: 首尔天池农场
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-GTV-Gnews-HEADER-1.png)
+喜支付H-Pay是无条件、零交易成本，并无支付额度限制的、无中心化、安全的交易支付系统。早在新中国联邦春晚直播中，郭文贵先生表示，H-Pay的上线将为喜联储、喜币打通七通六脉。在2月4日的大直播中，郭先生宣布，已在中共国内指定站点，可实现人民币秒变喜美元。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-546.png)
+郭先生解释道，中共国内，90%以上的人民币已被电子化，新中国联邦正是利用中共的电子化系统，成功将人民币转移至海外，彻底击碎中共的防火墙。
 
-谭德塞发文说：“很高兴与李克强总理会面，我们讨论了中共病毒（新冠病毒COVID-19）以及今年在疫苗平权（Vaccine Equity）计划上积极努力，好让全球70%人口接种疫苗。”他补充道：“我们也讨论了在中共病毒溯源一事上加强合作的必要性，而这一切都将建立在科学与证据的基础之上。”
+视频链接：[HPAY 是无中心化，无中介，绝对隐私，无条件的](https://gettr.com/post/psl17w0f91)
 
-WHO与中共长期勾结，由其发起的溯源调查根本就是为中共洗地。而中共病毒最早于2019年底在中共国武汉市出现，中共当局为故意放毒。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-Plain-1.png)
 
-信息源：[谭德塞与李克强谈COVID-19 溯源亦成焦点](https://www.rfi.fr/cn/%E8%B0%AD%E5%BE%B7%E5%A1%9E%E4%B8%8E%E6%9D%8E%E5%85%8B%E5%BC%BA%E8%B0%88covid-19-%E6%BA%AF%E6%BA%90%E4%BA%A6%E6%88%90%E7%84%A6%E7%82%B9)
+总编：文特
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+编辑：谐趣园/雪梨
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-GTV-Gnews-HEADER-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

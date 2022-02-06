@@ -2,41 +2,47 @@
 ---
 
 
-## 世卫称57国出现Omicron变种，放松防疫还太早
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1964898/)
+## 浅谈澳大利亚国防工业 – 陆军篇
+` 军情启示录` [轉載自GNews](https://gnews.org/zh-hans/1964981/)
 
-作者：台湾宝岛农场\_dobi
+**作者: **AWAC （新西兰伊甸农场）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-26.jpg)
+作为北大西洋公约组织和五眼联盟的重要参与者，近年来澳大利亚一直处于各种地区冲突和突发事件的风口浪尖。从参与搜索马航残骸到南中国海的航行自由行动，我们看到澳大利亚海空军开始在国际军事舞台上小露锋芒。本文从三军主战装备入题，粗浅地分析一下袋鼠国的的国防工业布局以及未来军备展望。
+近年来在军事大国纷纷增设太空军的同时，澳大利亚国防军任然本分地将武装力量划分为海陆空三个传统军种。 其中澳大利亚陆军主要装备美制M1A1主站坦克59量， 增强版M113装甲运兵车431量，M777榴弹炮54部，257量瑞士水虎魚裝甲車Piranha轮式战车，等， 航空装备方面，主要有22架欧洲虎式武装直升机,和若干美制S70黑鹰，CH47支奴干，41架北约工业NH90等。 和主要军事强国相比，主站装备数量偏少，装备水平并不突出。这也是澳大利亚长期以来所受的相对温和的国际环境和地理位置所致，毕竟在中共威胁显露以前，国防军并不涉及高压军事环境，多半是配合北约进行国际维和行动。
+但我们从2020年以来的一系列军事采购项目中，可以看到未来澳洲陆军装备正在进入快速升级阶段。首先是在今年的1月，澳大利亚政府确认向美国采购75量M1A2 SEP V3 艾布拉姆斯坦克的现代化改进版本，以及52量艾布拉姆斯坦克支援车【1】。这75量M1A2 SEP V3是直接在美军封存的M1A1基础上升级，所以交货速度将非常迅速。于此同时澳大利亚陆军也将同时升级现有的M1A1型主战坦克。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-76.jpg)
 
+M1A2 SEP V3
+图片来源: 网络
 
+除了主战坦克的升级，澳大利亚陆军开始重视远程火力支援部队的扩充。澳大利亚和韩国韩华集团签订了30量K9自行火炮以及15量K10弹药补给车的采购合同，与已往采购项目不同的是，本次自行火炮的组装生产将在澳大利亚本墨尔本附近的吉朗完成，根据陆军的要求，K9也将进行一些本土化改装，包括加装挪威军工企业研发的遥控武器站，以及配备一台炮兵侦测雷达。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-22.png)
 
-![](https://pgw.udn.com.tw/gw/photo.php?u=https://uc.udn.com.tw/photo/2022/02/02/98/15733211.jpg&amp;x=0&amp;y=0&amp;sw=0&amp;sh=0&amp;sl=W&amp;fw=800&amp;exp=3600&amp;w=930)（图片来自联合新闻网）
+*韩国K9自行火炮的澳洲出口版本 AS-9* 
+*图片来源:**网络*
 
-据外媒报导，世界卫生组织表示，传播迅速且高度突变的Omicron变异株已成为全球主要流行病毒株，且更具传染力的Omicron亚型变异株BA.2也已出现在全球57国。 报导还指出，根据世卫（WHO）最新流行病学周报，过去一个月收集到的所有种类冠状病毒样本中，Omicron变异株占93%，并出现几个亚系：BA.1、BA.1.1、BA.2 及BA.3，说明该病毒仍在持续演化中。
+为了一改澳洲陆军没有重型步兵战车的历史，2017年澳大利亚陆军就开始了代号“陆地400”的国防项目，向全球招标步兵战车和支援车总计450量，其中来自德国莱茵金属公司的KF-41山猫型步兵战车最有可能入选。KF41最大的特点是采用了非常彻底的模块化设计, 和低雷达反射截面(隐身)设计，可以在通用地盘的基础上更换炮塔来实现不同任务的需要，目前KF41的有利竞争者是韩国韩华公司提交的AS21步兵战车方案，AS21和KF41一样，属于2000后的新世代陆战装备，还配备了主动防御系统, 可以击毁来袭反坦克导弹。不管陆地400招标项目的最终结果如何，配合M1A2主站坦克和K9自行火炮，澳大利亚陆军都将组建出一只世界一流的装甲战车部队，其总体装备水平将达到或超过英国陆军。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3-8.jpg)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/4-5.jpg)
 
-参考链接：
+*莱茵金属公司的KF41最大的特点是采用了模块化设计,以及隐身设计
+图片来源: 网络*
 
-[https://udn.com/news/story/121707/6074243?from=udn-catebreaknews\_ch2](https://udn.com/news/story/121707/6074243?from=udn-catebreaknews_ch2》)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/5-4.jpg)
 
-编辑/校对/发稿：有莫举名
+![](https://assets.gnews.org/wp-content/uploads/2022/02/6-5.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-75.jpeg)
+*KF41的有利竞争者是韩国韩华公司提交的AS21方案，配备了主动防御系统
+图片来源: 网络*
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+参考资料 
+【1】[https://adbr.com.au/new-m1a2-tanks-and-engineering-vehicles-for-australian-army-confirmed/](https://adbr.com.au/new-m1a2-tanks-and-engineering-vehicles-for-australian-army-confirmed/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-25.jpg)
-
-
+*上传:* *AWAC （新西兰伊甸农场）*
 
  
 
