@@ -2,12 +2,19 @@
 ---
 
 
-## 1/21文贵直播：干掉科技和金融，中共就玩完（粤语配音）
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1964138/)
+## 高僧大德分享对达赖喇嘛的看法
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1964235/)
 
-1/21/2022 文贵直播：干掉了科技和金融，中共就玩完；随着5G、6G的投入，防火墙将消失，任何人都将可以使用我们的平台；荷兰光刻机巨头取消中共25亿美元订单的背后有着怎样的故事？
+编辑/整理：澳雅大直播工作组视频剪辑小队
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+*发布：*Frank2021
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

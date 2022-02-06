@@ -2,8 +2,8 @@
 ---
 
 
-## 共产党对新中国联邦的污蔑
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1964134/)
+## 千万不能染上Omicron
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1964197/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 
