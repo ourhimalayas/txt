@@ -2,55 +2,37 @@
 ---
 
 
-## 美航空公司敦促白宫终止国际旅行中共病毒检测规则
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1966959/)
+## 奥地利成欧洲首个立法强制接种疫苗的国家
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1967026/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/B47EMQRGHRPSFFFUZQVYZESZBE-1.jpg)2020 年 11 月 24 日，为了防止冠状病毒病毒 (COVID-19) 传播而戴着防护口罩的旅客在美国科罗拉多州丹佛市的机场取回行李。路透社/凯文·莫哈特/档案照片
-《路透社》网站2月2日报道，
+作者：台湾宝岛农场 – 阿尔道夫
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+2月4日，奥地利政府签署立法，强制成人必须接种疫苗，成为欧洲第一个立法实施疫苗强制令的国家。
 
-摘要翻译：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/9-4.png)
 
-美国主要的航空公司、商业和旅游团体周三敦促白宫终止对前往美国的已接种新冠疫苗的国际乘客进行中共病毒出发前检测的要求。
+据悉，该新法的有效截至日期为2024年1月31日。新法实施后，未持有疫苗接种或豁免证明的人，可能会面临600欧元罚款，且每年可罚4次，直至新法有效期结束，一个人最高面临的罚款可达3600欧元。
 
-美国航空协会、美国商会、国际航空运输协会、航空航天工业协会、美国旅游协会和其他团体在给白宫中共病毒应对协调员杰夫·赞茨(Jeff Zients)的一封信中呼吁做出改变。他们写道：“对航空乘客的调查表明，出发前检测是决定不进行国际旅行的一个主要因素。人们根本不愿意冒将无法返回美国的风险。”
+此外，德国国会也计划在于3月底表决德国推行疫苗强制令的法案。
 
-白宫拒绝发表评论。代表美国航空、达美航空公司、美联航和其他航空公司的美国航空运输协会说，截至上周，国际航空旅行比2019年的水平下降了38%。
+参考链接：
 
-去年12月，拜登政府实施了更严厉的新规定，要求抵达美国的国际航空旅客在旅行前一天内获得中共病毒阴性检测结果。根据之前的规定，接种过新冠疫苗的国际航空旅客可以出示其出发之前三天内获得的阴性检测结果。
-
-白宫和美国疾病控制中心以前曾考虑过，但从未对美国人登上国内航班施加检测要求。
-
-信中指出，在美国有超过7430万人感染过中共病毒，这意味着至少有22%的人口感染过这种病毒。信中说：“显然，中共病毒在美国各地普遍存在，在今天的情况下，试图通过航空旅行控制其输入是不可能改变这一事实的。”
-
-信中还提到，如果出现任何新的威胁性变体，“出发前检测可以很容易地被恢复”。该信指出，欧盟建议各国取消欧洲内部的中共病毒旅行限制。英国将从2月11日起结束对已接种新冠疫苗的航空旅客进入该国的出发前中共病毒检测。
-
-这些团体表示，“旅行和航空业的复苏取决于政府采取措施，取消那些在当前情况下不再合理的旅行限制。”
-
-**简评：**
-
-旅游航空业虽然在GDP所占的比重很小，但旅游航空业经济水平下降是必会影响与其相关的机场和飞机制造业等产业的发展，还会造成就业机会减少，加剧社会不稳定因素。所以说航空业是许多其他经济活动的关键推动因素。拜登政府在新冠疫苗上的措施更加重了对该产业经济的打击。
-
-在中共病毒肆虐的近三年时间里，全世界的经济都遭受重创。为了挽救经济，欧盟的很多国家已取消疫苗强制令措施。因为疫苗强制措施不但偏离民意，更不利国家经济的复苏。如果拜登征政府能适时取消旅行限制，航空业可能会得到一时喘息，但也解决不了根本问题。因为造成全世界危机的是中共病毒，罪魁祸首就是中共。不把祸端铲除，问题还会接踵而至。
-
-新闻链接：[Airlines urge White House to end COVID international travel testing rules](https://www.reuters.com/world/us/airlines-urge-white-house-end-covid-international-travel-testing-rules-2022-02-02/)
-
-*翻译/简评:JS*
-
-*校对：Harvey（叶知秋）*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- [歐洲首例 奧地利立法強制成人打新冠疫苗](https://udn.com/news/story/121707/6076903?from=udn-catelistnews_ch2)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+总编：飞虹
+编辑：飞虹
+校正/发稿：海阔天空1
 
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

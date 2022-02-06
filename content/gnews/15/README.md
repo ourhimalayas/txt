@@ -2,46 +2,29 @@
 ---
 
 
-## 法院责令FDA于未来半年内公布辉瑞疫苗文件
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1967028/)
+## 文贵爆料 2.6：疫苗灾难的衍生品——抗议、政治陷阱和排华
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1967056/)
 
-作者：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-2月2日，德克萨斯州北区地区法院签发的一份判决书，责令美国食品和药物管理局FDA在未来的半年内，必须按期公开长度超过33万页的辉瑞中共病毒疫苗的审批文件，直到全部文件完全被公之于众。
+撰稿：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-06-at-9.02.49-PM.jpeg)
+“沉默！沉默！不在沉默中爆发，就在沉默中灭亡！”当疫苗暴政让生命进入倒计时的时候，在加拿大这片死一般静寂的大地上，终于听到了卡车的轰鸣和卡车司机的呐喊。对此，郭文贵先生在2月6日的大直播中说，大卡车事件将导致政治冲突，甚至会被定义为暴动事件，战友们不能以新中国联邦的名义参与，以免掉入中共的政治陷阱。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/7-6.png)
+在我们开始爆疫苗灾难的时候，共产党内部就说没有人相信爆料革命，没人相信郭文贵，不用在乎他。在一片不在乎中，我们成了世界上唯一的一极，并启动了疫苗灭共这项伟大的行动。
 
-此前，FDA在回应遵守“信息自由法案 (FOIA) ”的初审判决时，请求以每月 500 页的速度公布与辉瑞疫苗相关的数十万份文件。该判决书表示，法院收到FDA要求修改排期令的动议，也收到一份联合状况报告，阐明了原、被告双方商定的时间表。法院根据这份时间表，批准了部分动议。命令：
+不管你多么富有，有多好的物质条件，受过多好的教育，多有才，多有道德、多么精心保养，有多棒的身体，当你作出了一个错误的决定，打了一针疫苗后，一切就结束了。如果你打了三针，不吃青蒿素，不治疗，那你就等着吧。你的财富、伟大和思想跟你就没关系了。
 
-1、FDA的报告必须在每个月的第一个工作日提交；
+但是战友们，大卡车事件最终一定会导致政治冲突，甚至被定义为暴动事件。所以我再次呼吁，在任何国家参与当地的抗议和政治运动的战友们，不允许没经批准打着任何新中国联邦和爆料革命的名义参与，否则，这就是对战友的直接攻击，不被视为你无知，也不会视为你无意，也不会听你的解释，这就是对我们所有战友的攻击。
 
-2、FDA在3月、4月，各提交1万页；
+如果支持卡车司机，可以参加，但只能以个人的名义，并且不能使用Gtv直播。共产党就希望你用Gtv直播，它会造谣说你支持暴乱，并将此无限放大。
 
-3、FDA在5月、6月和7月各完成8万页；在8月完成7万页；此后在每个月的第一个工作日提交5.5万页，直到公布完毕。
+疫苗问题到了今天已经不是我们所能控制的，也不是我们所能影响的，没有人可以挡住疫苗对整个世界政治和经济的全面的大冲击，它只是什么形式。我们要永远站在法律范围内，以新中国联邦的利益为主。
 
-该判决书还允许提前完成公布页码数量，并且将每40行算作一页，而不是之前的20行算作一页。
+郭先生说，绝对不能让共产党的疫苗和病毒变成我们个人的灾难，排华是我现在最最担心的。我们要怎么阻止排华？如果我阻止不了西方的排华，我就没有任何能力可以灭共，灭共也没有用。
 
 参考链接：
 
-- [https://twitter.com/disclosetv/status/1489688729778274304?s=21](https://www.newsmax.com/newsfront/johns-hopkins-researchers-lockdowns-covid/2022/02/01/id/1054965/)
-- [UNITED STATES DISTRICT COURT FOR THE NORTHERN DISTRICT OF TEXAS FORT WORTH DIVISION](https://phmpt.org/wp-content/uploads/2022/02/056-ORDER-GRANTING-IN-PART-THE-MOTION-TO-MODIFY-THE-PRODUCTION-SCHEDULE-AND-ADDOPTS-THE-JOINT-STATUS-REPORT-MODIFIED-AGREED-PRODUCTION-SCHEDULE.pdf)
-- [FDA想75年才公布完疫苗数据却被法官大提速](https://gnews.org/zh-hans/1886642/)
-- [为什么法官命令 FDA 立即发布 Covid-19 疫苗数据](https://gnews.org/zh-hans/1891996/)
+[2022年2月6日 文贵直播](https://gettr.com/streaming/psu0mf2270)
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
-
-总编：文真
-编辑：Delilah小胖
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

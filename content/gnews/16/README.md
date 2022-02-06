@@ -2,40 +2,32 @@
 ---
 
 
-## 加拿大阿省省长将于下周宣布疫苗护照结束日期
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1967027/)
+## 中国独裁者的邀请
+` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/1967051/)
 
-作者：加拿大温哥华扬帆农场 – Spirit
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-国外媒体2月4 日报道，加拿大阿尔伯塔省省长肯尼表示，将在下周宣布结束该省中共病毒疫苗护照的日期。他还并表示，只要医院的压力继续下降，就会在本月底前结束几乎所有的中共病毒限制。
+**恐怖的奥运盛宴**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8-6.png)
+作者：Frank Schneider
 
-据悉，因政府对抗中共病毒政策，1月份，加拿大劳动力市场减少约20万个工作岗位。一周来，肯尼省长受到了来自各方的压力，民众普遍认为疫苗护照侵犯了个人权利，必须立即被取消。
+翻译：英喜德语组 Luckycky
+![](https://assets.gnews.org/wp-content/uploads/2022/02/pasted-image-5.tiff)图片：Shen Hong/dpa
 
-肯尼省长发表推文表示，民众需要继续自由、快乐地生活。
+什么样的餐桌！ 什么样的装饰！ 宾客名单上的恐怖内阁。
 
-参考链接：
+中国国家元首习近平（68岁）在冬奥会开幕后的一天邀请各国元首共进晚餐–那是一场恐怖的盛宴。
 
-- [Premier Jason Kenney to announce next week the date Alberta will end its COVID-19 vaccine passport](https://www.theglobeandmail.com/canada/article-kenney-to-announce-next-week-the-date-alberta-will-end-its-covid-19/)
-- [https://twitter.com/jkenney/status/1489635789763866624](https://twitter.com/jkenney/status/1489635789763866624)
-- [https://twitter.com/jkenney/status/1489691362794491904](https://twitter.com/jkenney/status/1489691362794491904)
-- [Canada snaps 7-month run of job gains after Omicron saps growth](https://www.bnnbloomberg.ca/canada-lost-200-100-jobs-in-january-as-omicron-hit-economy-1.1718348)
+宾客包括：俄罗斯总统弗拉基米尔-普京（Wladimir Putin）（68岁），他的士兵正威胁着乌克兰。在场的还有：沙特阿拉伯王储穆罕默德-本-萨勒（Mohammed bin Salman），他因在其国家驻伊斯坦布尔大使馆雇佣谋杀记者贾马尔-卡舒吉（ Jamal Khashoggi）而受到国际社会的排斥。同样受到热烈欢迎的还有哈萨克斯坦总统卡西姆-绍马特-托卡耶夫（Kassym-Schomart Tokajew），他在1月份对反政府抗议活动进行了暴力镇压，并下令开枪。
 
+中国领导人在一对一会谈后赞扬了哈萨克斯坦领导人的路线，说他支持这种 “强硬的做法”。习近平说，中国准备 “帮助哈萨克斯坦保持稳定”。官方新华社援引他的话说，一个 “独立、安全、稳定和繁荣的哈萨克斯坦 “符合共同利益。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
+许多备受瞩目的嘉宾缺席。由于与中国的紧张关系和东道国的侵犯人权行为，美国、加拿大、英国、澳大利亚和其他国家抵制了开幕式，没有派出任何政府代表。德国和日本也投了弃权票，但没有谈到抵制问题。
 
-总编：Jack Li 文阳
-编辑：飞虹
-校正/发稿：海阔天空1
+顺便说一下，人民大会堂的桌子装饰描绘了冬季的雪景。他们要吃什么，不得而知。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+原文链接：[https://www.bild.de/sport/olympia/olympia/china-diktator-laedt-ein-das-olympia-bankett-des-schreckens-79056836.bild.html](https://www.bild.de/sport/olympia/olympia/china-diktator-laedt-ein-das-olympia-bankett-des-schreckens-79056836.bild.html)
+
+发布：Luckycky
+![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
