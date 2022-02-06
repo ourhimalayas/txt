@@ -16,6 +16,8 @@
 ---
 ## 頁面 14/39 [**<**](/content/README-13.md) [1](/content/README.md) ... [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) **14** [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) ... [39](/content/README-39.md) [**>**](/content/README-15.md) [查看全部](/content/README-all.md)
 
+[文字版：5月10日郭先生GTV直播连线文欣](/content/2020/05/20200516-5917193876811912006.md)
+
 [文字版：5月11日郭先生GTV直播连线长岛伟哥](/content/2020/05/20200516-6242836971583369231.md)
 
 [文字版:郭先生5月9日GTV直播连线魔女Peace](/content/2020/05/20200514-7037618968169156768.md)
@@ -63,8 +65,6 @@
 [文字版：2020年4月9日上海首长驻地已经升级为生化战争的警卫模式 ](/content/2020/04/20200413-4060291104151405554.md)
 
 [文字版:2020年4月8日郭先生GTV直播谈国内疫情](/content/2020/04/20200413-3302995427300860720.md)
-
-[文字版：2020年4月7日郭先生GTV直播谈第三次世界大战已经开始](/content/2020/04/20200410-8094198208001085988.md)
 
 
 ## 頁面 14/39 [**<**](/content/README-13.md) [1](/content/README.md) ... [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) **14** [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) ... [39](/content/README-39.md) [**>**](/content/README-15.md) [查看全部](/content/README-all.md)

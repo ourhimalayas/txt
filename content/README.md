@@ -16,6 +16,8 @@
 ---
 ## 頁面 1/39 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [39](/content/README-39.md) [**>**](/content/README-2.md) [查看全部](/content/README-all.md)
 
+[2022年2月4日《文贵大直播》全文字版](/content/2022/02/20220204-1961700.md)
+
 [郭文贵先生2022年2月3日盖特视频（9分54秒）全文字版](/content/2022/02/20220203-1953478.md)
 
 [2022年2月2日 《文贵大直播 》全文字版](/content/2022/02/20220202-1952328.md)
@@ -63,8 +65,6 @@
 [2022年1月1日 文贵大直播 元旦特别节目“正道至善，除恶建邦”全文字版（四）](/content/2022/01/20220101-1816880.md)
 
 [2021年12月29日郭文贵先生直播全文字版](/content/2021/12/20211229-1805851.md)
-
-[郭文贵先生2021年12月28日盖特视频（9分00秒）全文字版](/content/2021/12/20211228-1800169.md)
 
 
 ## 頁面 1/39 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [39](/content/README-39.md) [**>**](/content/README-2.md) [查看全部](/content/README-all.md)

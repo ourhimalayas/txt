@@ -16,6 +16,8 @@
 ---
 ## 頁面 26/39 [**<**](/content/README-25.md) [1](/content/README.md) ... [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) **26** [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) ... [39](/content/README-39.md) [**>**](/content/README-27.md) [查看全部](/content/README-all.md)
 
+[文字版：4月16号文贵报平安直播！谈昨天让大家搜集李嘉诚10个人信息的进展！和简单谈谈维基解密解密的信息，一切都是刚刚开始！](/content/2019/04/20190417-8226491175604297051.md)
+
 [文字版：2019年4月15日接下來的爆料有些是讓人無法接受的 2019年4月15日显摆一下新＂汉挂子＂新衣服．向战友报告一点刚刚的神秘会议！](/content/2019/04/20190416-1716208713998494644.md)
 
 [文字版：2019年4月13日什么叫蓝通？为什么刘鹤将遣返战友21人做为中美贸易交易的条件！（三连播之二）](/content/2019/04/20190415-6656531151323124700.md)
@@ -63,8 +65,6 @@
 [文字版：2019年2月19日文贵直播关键的问题就郭宝胜的护照，还有袁健斌申请的绿卡，必须得让美国政府知道真相](/content/2019/02/20190222-1257758446657176479.md)
 
 [文字版：2019年2月17日文贵再谈法治基金的目的和中美之间即将发生的大事](/content/2019/02/20190220-7271469985429924299.md)
-
-[文字版：2019年2月16 日文贵和班农先生关于法治基金和法治公会基金的解读（下）](/content/2019/02/20190219-8738304753006288590.md)
 
 
 ## 頁面 26/39 [**<**](/content/README-25.md) [1](/content/README.md) ... [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) **26** [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) ... [39](/content/README-39.md) [**>**](/content/README-27.md) [查看全部](/content/README-all.md)

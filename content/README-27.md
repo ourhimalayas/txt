@@ -16,6 +16,8 @@
 ---
 ## 頁面 27/39 [**<**](/content/README-26.md) [1](/content/README.md) ... [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) **27** [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) [32](/content/README-32.md) ... [39](/content/README-39.md) [**>**](/content/README-28.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年2月16 日文贵和班农先生关于法治基金和法治公会基金的解读（下）](/content/2019/02/20190219-8738304753006288590.md)
+
 [文字版：2019年2月16 日文贵和班农先生关于法治基金和法治公会基金的解读（上）](/content/2019/02/20190219-2494851897294759550.md)
 
 [重磅新闻2月18日，社会主义就是个祸害，川普总统在佛罗里达迈阿密佛州国际大学演讲全文 ](/content/2019/02/20190219-5950789475618575573.md)
@@ -63,8 +65,6 @@
 [文字版：2019年1月10日，談袁健斌的案子，徵求春節爆猛料內幕](/content/2019/01/20190111-7236434520356507605.md)
 
 [文字版：1月8日文贵报平安视频](/content/2019/01/20190111-1742695953607571413.md)
-
-[文字版：2019年1月7日文贵报平安直播谈马云和被双规的陈刚以及烂人郭宝胜的案子](/content/2019/01/20190111-7038821530851525661.md)
 
 
 ## 頁面 27/39 [**<**](/content/README-26.md) [1](/content/README.md) ... [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) **27** [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) [32](/content/README-32.md) ... [39](/content/README-39.md) [**>**](/content/README-28.md) [查看全部](/content/README-all.md)

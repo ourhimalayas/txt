@@ -16,6 +16,8 @@
 ---
 ## 頁面 35/39 [**<**](/content/README-34.md) [1](/content/README.md) ... [30](/content/README-30.md) [31](/content/README-31.md) [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) **35** [36](/content/README-36.md) [37](/content/README-37.md) [38](/content/README-38.md) [39](/content/README-39.md) [**>**](/content/README-36.md) [查看全部](/content/README-all.md)
 
+[文字版：郭文贵先生2018年2月4日郭媒体直播](/content/2018/04/20180418-7184160832028927540.md)
+
 [2018年2月3号 文贵郭媒体报平安视频](/content/2018/04/20180418-8770803911585151936.md)
 
 [郭文贵先生01/31/18郭媒体讲话](/content/2018/04/20180418-5498166230846343860.md)
@@ -63,8 +65,6 @@
 [2017年11月27日文贵Livestream 直播谈谈纽约房子价格](/content/2018/04/20180418-8750105287106833411.md)
 
 [2017年11月26日文贵健身报平安和Livestream 试播](/content/2018/04/20180418-3536740810604337739.md)
-
-[文字版《澳洲之声》特别专题 / 袁红冰昭明对谈：棒喝伪类！什么是“袁三条”！](/content/2018/04/20180418-662686657760766543.md)
 
 
 ## 頁面 35/39 [**<**](/content/README-34.md) [1](/content/README.md) ... [30](/content/README-30.md) [31](/content/README-31.md) [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) **35** [36](/content/README-36.md) [37](/content/README-37.md) [38](/content/README-38.md) [39](/content/README-39.md) [**>**](/content/README-36.md) [查看全部](/content/README-all.md)
