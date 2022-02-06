@@ -2,25 +2,33 @@
 ---
 
 
-## 七哥爆新常委名单以及南普陀会议背后的故事（三）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1962762/)
+## 有声|中共国两家银行突然宣布停办柜台现金业务
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1962799/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+近日，中共两家银行相继宣布将停办柜面现金业务，包括营业网点柜面现钞和ATM机自助渠道。这两家银行分别为北京中关村银行和辽宁振兴银行，自4月1日和3月1日起实施。据悉，银行要求客户使用手机应用程序、微信内置程序等办理所需业务，若确有现金存付需求，可转入他行办理。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/11-3.jpg)
+评论人士指出，中共国银行无理由停办客户提现业务，显示银行现金流出现重大问题，银行备用现金已经见底。在中共国经济雪崩效应下，金融爆雷已经无法掩盖，无力应对。墙内百姓连自己的钱都无法做主的时代，即将到来。
 
-用以敌制敌，以共灭共啊！现在是共产党，绝对是这个（名单）出来就是共产党要灭共啊，以敌制敌，就是敌人正在帮助他自己树立敌人，那就让它打，这就是咱们新中国联邦已经不流一滴血，完全摆在桌面上，全是明规则，咱就把它干掉！这就是喜马拉雅山阳光出来的时候，雪山继续存在，雪莲花，蓝莲花照样孕育着八方啊哈然后呢，当黑夜的时候照样发出雪的月亮和太阳的光芒，照样孕育八方，永远屹立在那里！喜马拉雅山的雪没了，人类就不存在了，都是像进入噩梦啊，我们现在就是喜马拉雅之光，重新早上太阳升起的时候啊，看看吧，谢谢兄弟姐妹们。
+文字版原文：[中共国两家银行突然宣布停办柜台现金业务](https://gnews.org/zh-hans/1956582/)
 
-雷蒙：那我这边也想问七哥一个问题啊，就是说现在根据这个20大的这个人事安排呀，是不是说已经啊，就是偏离了原来的南普陀计划，就是原来的计划，只是说想把习当成一个傀儡吧？啊就是等时机成熟的时候换掉他。那现在很明显这个习他不愿意做一个傀儡，然后不断的现在去强化自己的这个权力，也包括现在这个能源的这个安排啊，以及呢去收回江、曾在海外的一些资产，包括在哈萨克斯坦的黄金，那这一块的话就是跟原来的南普陀计划就已经看来是有些变化了，那七哥能不能在这一块再给大家分享一下，谢谢。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥爆新常委名单以及南普陀会议背后的故事（三）-.jpg)
-2022年1月7日文贵大直播
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-*发布：tianzhihuan*
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
