@@ -2,29 +2,27 @@
 ---
 
 
-## 惊人的镜头：加拿大牛仔骑马加入抗议
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1966667/)
+## 有声|NFSC新闻、G|TV新闻访谈简报|2022年2月4日早
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1966768/)
 
-翻译： Jenny Ball
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-3.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-1-2.jpg)图片来源：CDMedia
 
-随着加拿大专制当局试图阻止卡车驶入抗议区，加拿大的牛仔们加入战斗，并骑马前往抗议地点。
+文字版原文：[NFSC新闻、G|TV新闻访谈简报|2022年2月4日早](https://gnews.org/zh-hans/1956605/)
 
-一位当地目击者宣称：“牛仔们今天在艾伯塔省库茨的美国/加拿大边境加入卡车司机和农民的行列。我的侄女正在前往加拿大另一个主要抗议地点的路上。其他抗议活动正在全国各地爆发。多伦多、魁北克市中心。昨天在新南威尔士州，州长刚刚颁布了更严格的措施，对全省任何地方的交通放缓处以高达 100,000 的罚款，对超过 10 人的聚会处以 2000 的罚款。这只能更加激励人们抗议。
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-自从 GoFundMe 昨天从卡车司机那里偷走了 1000 万美元后，新账号的捐款就捐爆了了……我打赌卡车司机会得到两倍的捐款。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-**参考资料：**[CDMedia][Amazing Footage -The Canadian Cavalry Joins The Truckers As Cowboys On Horseback Join The Protest](https://creativedestructionmedia.com/news/politics/2022/02/05/amazing-footage-the-canadian-cavalry-joins-the-truckers-as-cowboys-on-horseback-join-the-protest/)
-
-* * *
-
-*审核：文乐
-校对：信心满满
-发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH..jpeg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

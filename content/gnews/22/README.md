@@ -2,29 +2,34 @@
 ---
 
 
-## 普京闪电离京 冬奥会开幕式成了中共闭幕式
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1966538/)
+## 开幕式庆典参与各方称身处“一场噩梦”
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1966643/)
 
-撰稿：大浪小水花
-![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-06-at-9.02.49-PM.jpeg)
-郭文贵先生在2022年2月6日大直播中，向战友们详细讲解了普京只在北京短暂停留9小时的主要原因。
+作者：纽约香草山 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月5日，郭文贵先生在盖特视频中，透露了参加4日冬奥会开幕式的各阶层人士的三点反馈：这里一切都是假的，简直是一场噩梦，中共完了。
 
-第一，中共跟普京签署了两个四千六百亿，一个四千八百亿的中俄天然气管道协议，换取普京在北京待超过从四十八小时甚至到六十个小时，并且普京会在京做重大宣布——俄罗斯要把中共人民币作为俄罗斯的法币，第二货币流通，用来抵挡美国的的制裁。结果这件大事没签成。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide6-5.jpeg)
 
-第二，习对这次冬奥会疫情几乎一无所知，关于普京入驻酒店疫情情况，外交部、八局、防疫中心紧急办公室、冬奥会紧急工作小组同时向习汇报只有四人确诊，无人死亡。直到昨天习才知道有人在酒店染病死亡。
+郭先生指出，首先，开幕式的一切都透着“假大空”。看似华丽热闹的表演，但是，一切都是假的。其次，不管是组织还是个人，也无论是记者、官员，还是运动员，都感到处处透着令人恐惧的气氛，简直像是身处一场噩梦之中。第三，美国的抵制和外交撤离，让人感觉到这个国家充满了恐惧，让人感到没有任何希望。这一切表明：中共完了。
 
-普京很担心中共病毒，他要求中共保证提供绝对独立的保护和医疗措施。为了避免感染，到北京后普京连握手都环节都免掉。结果普京团队16人染上病毒，这让普京极为恼火。
+郭先生说，这些与会人员终于相信了爆料革命，纷纷打听如何使用HPay，如何从中共国迅速安全转移资产。郭先生表示，只有一心一意的灭共，和新中国联邦战友团结在一起，才能拥有一切和未来。
 
-第三，普京为了得到中共承诺的一万多亿美元，没有选择只能火中取栗，出席冬奥会。中共曾承诺任何情况下俄罗斯停止使用人民币的时候，中方将按照黄金本位计算最后保底的价值。结果普京到京以后，中共又要毁约。
+参考链接：[https://gettr.com/post/pso6vra94f](https://gettr.com/post/pso6vra94f)
 
-郭先生补充说，除了以上中共对普京的承诺全部失信以外，这次冬奥会失败的开幕式也是普京离京的一个重要原因。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-中共宣传会有一百三十个国家参会，结果仅有二十几个国家到场，出席开幕式的实力人物不超过五个……这让中共国在2008年奥运会积累的所有的成就丧失殆尽。
+总编：Ivy001
+编辑：Jack Li文阳
+校正/发稿：谐趣园
 
-郭先生强调，中共把这次冬奥会开幕式开成了中共结束的闭幕式。
-
-相关链接：[2022年2月6日 文贵大直播](https://gtv.org/broadcast/watch/61ffc26b3621aa7415d64d52)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
