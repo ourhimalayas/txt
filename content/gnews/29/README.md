@@ -2,36 +2,30 @@
 ---
 
 
-## 商业利益集团正游说美国剥离对中共贸易
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1962994/)
+## 难以置信！纽约污水中发现超过4 种冠状病毒“不明突变”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1963029/)
 
-作者：银河系农场—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月3日，据相关媒体消息显示，美国的商业利益集团正在游说美国的立法者删除那些可能损害本土企业但有利于中共贸易的法案。同时，他们希望政府可以审查美国个人或机构在中共国的私人投资，并对来自中共国的货物征收新的关税。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-05-下午9.11.00.png)https://bamanewsnow.com/
-该商业集团指出，众议院法案中的某些贸易政策会损害美国在当地的企业，并把额外的成本转嫁给美国消费者。特别是美国将军事和医疗设备等关键物资的生产转移到中共国和俄罗斯等敌对国家，这会使美国企业难以在全球市场上竞争、成长和扩张。
+撰稿：东京樱花团/向海
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-18.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fimageio.forbes.com%2Fspecials-images%2Fimageserve%2F6000e7818fbfb374a1690816%2F0x0.jpg%3Fformat%3Djpg%26width%3D1200%26fit%3Dbounds&amp;imgrefurl=https%3A%2F%2Fwww.forbes.com%2Fsites%2Fmishagajewski%2F2021%25)
+一个研究小组在纽约污水中检测到新冠病毒的四个以上的不明突变。目前还不知道它的来源。
 
-为此，该集团提出，政府应该减缓在中共国的投资，并重新评估那些在中共国开展业务的美国公司。目前，中共国在半导体和呼吸器等关键物资方面已经对美国造成了国家安全威胁。
+密苏里大学的 Mark Johnson 博士：“从污水样本中分离出 RNA，PCR 测试扩增了冠状病毒基因组的片段并确认了突变。”
 
-另一方面，该集团也强调，美国当前对中共国商品的征税方式存在巨大的漏洞，而中共政府可借由这些漏洞逃避美国的关税和监督，从而使那些非法和有害产品更容易进入美国。尤其是涉及强迫劳动和知识产权盗窃的产品正在严重威胁着美国的经济和国家安全。
+由密苏里大学约翰逊博士领导的一个研究小组自 6 月以来一直在纽约市的 14 家污水处理厂进行调查。
 
-据了解，拜登政府已经逐步重视针对中共贸易竞争的立法，以便推动美国制造业的发展和修复供应链。消息称，拜登政府正在敦促立法者尽快完成相关法案的设立。
+Mark Johnson 博士：“有时我们看到的菌株与患者确认的菌株不符。去年反复出现，似乎受地域限制。每周从同一污水处理厂发现同一菌株。 ”
 
-参考链接：[Business interests take aim at China competitiveness bill](https://thehill.com/business-a-lobbying/business-a-lobbying/592583-business-interests-take-aim-at-china-competitiveness)
+不明变异菌株来源，可以来自未经检测的患者、未经检测的胃肠道等组织、长期住院的重症患者，以及小鼠、狗等动物。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+由于这些变异病毒停留在同一个区域，目前无需担心，但像 Omicron 毒株一样，它们将来有可能会传播。
 
-总编：Irene木木
-编辑：静言
-校正/发稿：呼吸的雾霾（文小呼吸）
+信息来源：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[コロナウイルスの“未確認変異”4種類以上発見　NYの下水から](https://news.yahoo.co.jp/articles/c5cd41cf708d1f68c9aa65b348ce21ed52c8e6af)
+
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

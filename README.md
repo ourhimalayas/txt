@@ -15,128 +15,128 @@
 
 ---
 
-### [普京参加冬奥会获北京“大礼” 却缺席习近平宴会](/content/gnews/1/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [七哥谈风水与迷信（下）](/content/gnews/2/README.md)
+### [对送药的战友要负责任](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [七哥谈风水与迷信（中）](/content/gnews/3/README.md)
+### [国会和医疗机构和总统都是一个党派的](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [美国使馆撤离使中共军队可通过内部解决中南坑避免战争](/content/gnews/4/README.md)
+### [没有一家制药公司敢承担疫苗责任和后果](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [澳洲放宽国际入境，国际留学生市场中国学生很稀少](/content/gnews/4/README.md)
+ ` 走进澳洲`
+
+### [美国撤馆开启灭共第三道大门找到病毒和疫苗真相替罪羊](/content/gnews/5/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [2022年2月5日郭先生盖特 — 视频1「8分37秒」](/content/gnews/5/README.md)
+### [共产党病毒Omicron恐怖传播](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [缅甸计划发行数字货币以促进经济发展](/content/gnews/7/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [樱花头条┃Covid-19疫苗是导致24岁男子死亡的罪魁祸首](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [全世界以新中国联邦为主导的力量促成不可能的美国撤馆](/content/gnews/9/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [屡获殊荣的记者Lara Logan摒弃无良的推特、脸书、Instagram](/content/gnews/10/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [樱花头条┃德州医生玛丽-鲍登博士鼓励医疗专业人士摆脱企业医疗系统的束缚。](/content/gnews/11/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美国撤离大使馆使台湾香港新疆西藏和日本都成为受益者](/content/gnews/12/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [樱花头条┃最糟糕的数据操纵](/content/gnews/13/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [普京参加冬奥会获北京“大礼” 却缺席习近平宴会](/content/gnews/14/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [七哥谈风水与迷信（下）](/content/gnews/15/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥谈风水与迷信（中）](/content/gnews/16/README.md)
+ ` 雅典娜GNotes`
+
+### [美国使馆撤离使中共军队可通过内部解决中南坑避免战争](/content/gnews/17/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [2022年2月5日郭先生盖特 — 视频1「8分37秒」](/content/gnews/18/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [币圈新闻动态：喜币（HCN）价格目前在51.379 HDO](/content/gnews/6/README.md)
+### [币圈新闻动态：喜币（HCN）价格目前在51.379 HDO](/content/gnews/19/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [七哥谈风水与迷信（上）](/content/gnews/7/README.md)
+### [七哥谈风水与迷信（上）](/content/gnews/20/README.md)
  ` 雅典娜GNotes`
 
-### [没有美国使馆驻扎意味着失去美国保护的中共没有合法性](/content/gnews/8/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [印度加入外交抵制北京奥运会 因中共国士兵在边境冲突中的角色](/content/gnews/9/README.md)
+### [印度加入外交抵制北京奥运会 因中共国士兵在边境冲突中的角色](/content/gnews/21/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [七哥談曾庆红](/content/gnews/10/README.md)
- ` 雅典娜GNotes`
-
-### [美国大使馆撤离中共国破局开始（四）](/content/gnews/11/README.md)
- ` 雅典娜GNotes`
-
-### [刘亚洲的野心与不得志（下）](/content/gnews/12/README.md)
- ` 雅典娜GNotes`
-
-### [美国大使馆撤离中共国破局开始（三）](/content/gnews/13/README.md)
- ` 雅典娜GNotes`
-
-### [梦境显示如中共不让溯源或还有病毒再出来必然引发战争](/content/gnews/14/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [别了，普京大帝](/content/gnews/15/README.md)
- ` 银河勇气之星`
-
-### [美国媒体集团认为网络攻击属中共所为](/content/gnews/16/README.md)
+### [美国媒体集团认为网络攻击属中共所为](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2022年2月5日 晚 新中国联邦新闻、GTV新闻访谈简报](/content/gnews/17/README.md)
+### [2022年2月5日 晚 新中国联邦新闻、GTV新闻访谈简报](/content/gnews/23/README.md)
  ` 纽约香草山MOS01`
 
-### [有声|共产党为什么被称做否定历史主义者-三年大饥荒](/content/gnews/18/README.md)
+### [有声|共产党为什么被称做否定历史主义者-三年大饥荒](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [有声|吹哨人：澳洲须防中共利用社交媒体假消息干预大选](/content/gnews/19/README.md)
+### [有声|吹哨人：澳洲须防中共利用社交媒体假消息干预大选](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [喜马拉雅华盛顿DC农场2021精彩回顾](/content/gnews/20/README.md)
+### [喜马拉雅华盛顿DC农场2021精彩回顾](/content/gnews/26/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [20220204文贵大直播：18-19世纪山茂召和蒲安臣推动中美友好交往](/content/gnews/21/README.md)
+### [20220204文贵大直播：18-19世纪山茂召和蒲安臣推动中美友好交往](/content/gnews/27/README.md)
  ` 秘密翻译组-原创组`
 
-### [【粤语配音】2022年2月5日： 外国友人三句话评价冬奥会](/content/gnews/22/README.md)
- ` MOS香港部`
-
-### [有声|外媒指出 冬奥会来宾多为非民主政体领袖](/content/gnews/23/README.md)
- ` MOSREC`
-
-### [有声|为显亲民 中共冬奥开幕式致数百群众染疫](/content/gnews/24/README.md)
- ` MOSREC`
-
-### [联合国秘书长与习近平会面 协商人权专员访问新疆的表演](/content/gnews/25/README.md)
+### [联合国秘书长与习近平会面 协商人权专员访问新疆的表演](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [难以置信！纽约污水中发现超过4 种冠状病毒“不明突变”](/content/gnews/26/README.md)
+### [难以置信！纽约污水中发现超过4 种冠状病毒“不明突变”](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [普京闪电走人，中共对台末日疯狂将至](/content/gnews/27/README.md)
+### [普京闪电走人，中共对台末日疯狂将至](/content/gnews/30/README.md)
  ` 秘密翻译组-原创组`
 
-### [各国孔子学院关闭进展迅猛](/content/gnews/28/README.md)
+### [各国孔子学院关闭进展迅猛](/content/gnews/31/README.md)
  ` NFSC News`
 
-### [商业利益集团正游说美国剥离对中共贸易](/content/gnews/29/README.md)
+### [商业利益集团正游说美国剥离对中共贸易](/content/gnews/32/README.md)
  ` NFSC News`
 
-### [美国发布外国应用软件新政策再审抖音](/content/gnews/30/README.md)
+### [美国发布外国应用软件新政策再审抖音](/content/gnews/33/README.md)
  ` NFSC News`
 
-### [美国就中共强迫劳动行为实行企业ESG检验](/content/gnews/31/README.md)
+### [美国就中共强迫劳动行为实行企业ESG检验](/content/gnews/34/README.md)
  ` NFSC News`
 
-### [日本感染中共病毒居家护理人数创新高](/content/gnews/32/README.md)
+### [日本感染中共病毒居家护理人数创新高](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [扬帆每日速递2022年2月5日版（2）](/content/gnews/33/README.md)
+### [扬帆每日速递2022年2月5日版（2）](/content/gnews/36/README.md)
  ` 温哥华扬帆农场`
 
-### [扬帆每日速递2022年2月5日版（1）](/content/gnews/34/README.md)
+### [扬帆每日速递2022年2月5日版（1）](/content/gnews/37/README.md)
  ` 温哥华扬帆农场`
 
-### [漫威和迷失的女演员伊万杰琳·莉莉抨击强制接种疫苗](/content/gnews/35/README.md)
+### [漫威和迷失的女演员伊万杰琳·莉莉抨击强制接种疫苗](/content/gnews/38/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [聚焦：中共即将启动新一轮的量化宽松](/content/gnews/36/README.md)
+### [聚焦：中共即将启动新一轮的量化宽松](/content/gnews/39/README.md)
  ` 丁过`
 
-### [【G时新闻】加拿大总理特鲁多感染新冠病毒](/content/gnews/37/README.md)
+### [【G时新闻】加拿大总理特鲁多感染新冠病毒](/content/gnews/40/README.md)
  ` G-时新闻`
 
-### [习懵了 | 普京团队几乎遭新冠病毒“团灭”，对中共撂下狠话](/content/gnews/38/README.md)
+### [习懵了 | 普京团队几乎遭新冠病毒“团灭”，对中共撂下狠话](/content/gnews/41/README.md)
  ` YALUN 亚伦`
-
-### [2.4.22大直播后记：H-pay无手续费](/content/gnews/39/README.md)
- ` 墨尔本雅典娜农场`
-
-### [黑河市94轮核酸检测，无比神奇的事](/content/gnews/40/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [俄罗斯将战斗机移至波兰边境的白俄罗斯](/content/gnews/41/README.md)
- ` Shuizhuyu`
 
 ### [希腊农民举行拖拉机示威 抗议能源成本飙升](/content/gnews/42/README.md)
  ` 西班牙巴塞罗那喜悦农场`

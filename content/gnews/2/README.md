@@ -2,8 +2,8 @@
 ---
 
 
-## 七哥谈风水与迷信（下）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1963675/)
+## 国会和医疗机构和总统都是一个党派的
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1963789/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

@@ -2,46 +2,42 @@
 ---
 
 
-## 美国使馆撤离使中共军队可通过内部解决中南坑避免战争
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1963653/)
+## 澳洲放宽国际入境，国际留学生市场中国学生很稀少
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1963745/)
 
-G-TV视频链接：[https://gtv.org/video/id=61ff2e99d90bdd2085a59f2d](https://gtv.org/video/id=61ff2e99d90bdd2085a59f2d)
+#### **【雅典娜观察】和您一起洞察世界**
 
-**郭文贵先生：**说到这儿你要想到，这回军队是最大受益者，美国这么一干，中国的军队包括对台的战争很多可能都避免这场劫难。都懂的，美国人一离开了那就是，就警察撤离了你家一样，是吧？你就完了。而且长期不派大使，而且明确告诉你：“这溯源的事不整明白，你再有什么毒出来”，你发现刚才说这意思了吗？就它不敢再放毒了，你再放毒那就开战了，就不会跟你说了。
+整理/编辑：文泓
 
-就像一个人在曼哈顿他家里边成天放毒，放毒老鼠，人家警察说：“你别玩了行吗？你再玩我就撤了，谁爱揍你谁揍你，但是我要发现你再放，那我就直接灭了你了。”
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/17-2.png)图片来源：The Age
 
-这军队得最大受益，军队就可能避免了这场牺牲的战争当炮灰去了，他们内部就把他习、中南坑这些人一解决，那就解决了，解决个十个、二十个人，就避免这场战争了。
 
-美国人一撤，中国所有有钱、有权的、有脑子的就知道大势已去，共产党结束了。这事大到跟任何事都不能提，不能相提并论了。
+当地时间2月4日，据《澳大利亚人报》报道，在过去的两个月里，有超过56,000名国际学生抵达澳大利亚，只有不到10%的学生来自中国，而大流行前中国留学生是留学生市场最受欢迎的。
 
-字幕来源：[2022年1月25日郭文贵先生紧急直播全文字版](https://gnews.org/zh-hans/1912226/)
+自莫里斯政府于去年11月宣布放宽国际边界条件以来，抵达澳大利亚的最大数量的学生来自印度，有超过16,000人抵达澳大利亚。随着北京和堪培拉之间的紧张关系持续存在，在这段时间里，只有不到6000名中国学生抵达。
 
-编辑整理：Jacques；
+当中国新任驻澳大使肖千于1月26日发出了“增进互信”和“促进互利交流”，“共同推动中澳关系重回正确发展轨道”的和解信号。然而，澳洲政界仍然持怀疑态度。
 
-字幕文件制作：大好河山；
+防长彼得·达顿上周说，“我们希望与中国建立良好的睦邻关系，但中国正与外界处于冲突之中，不仅对我们切断市场联系和发起网络攻击，而且与菲律宾、印度、越南和许多其他国家都处于对立状态”。
 
-视频制作及上传：Cindy；
+在2020、2021年，中国教育部多次发布留学预警，声称澳洲存在“种族主义”倾向，警告中国学生不要返回澳大利亚。同期，中国移民管理局出台“非紧急必要，暂停出入境证件”的政策，虽然，留学签证大门还没有关，但是客观上也增加了留学生出境的难度。
 
-G-News发布：小满；
+澳大利亚国际教育协会首席执行官菲尔·霍尼伍德说，上个月（中国多地）的封锁使一些学生难以离开中国。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+澳大利亚统计局周四公布的数据显示，由于大流行病的影响，国际教育行业的价值遭受重大打击，在大流行之前，该行业产值超过400亿澳元，而12月的数据显示，该行业的价值下降到了225亿澳元。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+根据澳大利亚大学协会的数据，目前回澳的学生使国际留学生总数超过了16万人，但是还有131,290名学生，即占签证持有人总数的45%，仍然在海外。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+新闻链接：[大批留学生抵澳 中国学生不到10%](https://cn.theaustralian.com.au/2022/02/04/63183/)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+**发布：**
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

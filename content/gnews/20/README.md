@@ -2,30 +2,19 @@
 ---
 
 
-## 喜马拉雅华盛顿DC农场2021精彩回顾
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1963201/)
+## 七哥谈风水与迷信（上）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1963640/)
 
-DC农场在阿丙的带领下，2021年取得了迅速发展，农场规模从年初的 170人发展到635 人
+编辑/整理：澳雅大直播工作组视频剪辑小队
 
-5月DC农场组织战友到SEC大楼外举行历时一个多月的抗议活动，抗议SEC无端延长GTV投资的审查、非必要地冻结投资资金
+*发布：*Frank2021
 
-7月1日组织战友到中共驻美大使馆抗议示威，在中共百年冥诞给中共送终
-
-DC农场战友们锻造出多种多样灭共利器：
-
-Gnews：三票专栏、每日快报、币圈新闻动态、DC中华时事、郭先生视频重点剪辑等
-
-GTV ： 飞飞秀、大实话、我们之间，安娜贵贵电台，爆料之路、华盛顿看世界、美国时事洗练版、锵锵战友行等
-
-GETTR：Daily Beats 、DC政经圈、DC官号、三票先生、李昂纳多……
-
-农场活动：众言堂、智力竞答等
-
-形成全方位、持久性的灭共行动
-
-2022， 让我们携手再创辉煌！
-
-素材提供：小燕 ，挺郭小蚂蚁，Amber|视频制作： 文零 | 编辑&发布：断播
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

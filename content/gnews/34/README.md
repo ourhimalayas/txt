@@ -2,28 +2,34 @@
 ---
 
 
-## 扬帆每日速递2022年2月5日版（1）
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1962554/)
+## 美国就中共强迫劳动行为实行企业ESG检验
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1962992/)
 
-**加拿大温哥华扬帆农场 海报组**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-122.jpg)
-1、GoFundMe筹款平台周五正式取消了加拿大卡车司机“自由护航”和平抗议活动的筹款项目，并计划将筹款帐户中的900万美元余额捐赠给“可信且成熟的慈善机构”。GoFundMe声称“自由护航”筹款活动违反了其“禁止宣传暴力和骚扰”的服务条款。
+作者：银河系农场—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月3日，据当地媒体消息显示，美国联邦政府即将根据一项旨在阻止中共强迫劳动的法案，要求当地公司对其各自的全球供应链进行更加严格的审查。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-05-下午9.10.39.png)
+资料显示，长期以来，中共国新疆地区的维吾尔和其他少数民族的民众一直被中共政府胁迫在工厂、农场和矿场为中共国的各行各业提供服务，这当中包括服装公司、食品品牌、太阳能电池板制造商、电动汽车制造商和科技公司供应商等。
 
-2、因拒绝接种中共病毒疫苗，加拿大军队开除了58人，并向另外246人发布了“除名意向通知”。此外，有66名未接种疫苗的人自愿离开。在越来越多的国内援助请求和国际形势不稳定的情况下，这加剧了加拿大军队人员短缺。
+对此，美国国土安全部正在寻求一项最佳做法，得以让那些严重依赖中共国提供原材料、部分成品和全成品的美国公司建立更加透明和完善的问责制。据悉，国土安全部已经开始要求海关提供关于中共国进口商品的溯源地和核查标准，以便确认这些商品是否涉及发生在中共国新疆区的强迫劳动行为。
 
-3、据文贵大直播：共产党是最大的黑社会，它是有章法的，也是世界上最严谨的黑社会组织。
+此外，美国公司还将在其ESG表现方面进行调整，即在环境、社会和公司治理层面审查其供应链中是否出现强迫劳动现象。这些审查项目包括劳工标准、劳工实践、水、碳，以及其他自然资源的投入和人权等因素。
 
-4、据文贵大直播：Hpay 去中介、去中心化，秒到无中心，绝对隐私，无条件。重大好消息：国内有专门收人民币的渠道购买HDO，请和各农场联系。
+参考链接：[US law aimed at Chinese forced labor to test companies on ESG performance](https://rollcall.com/2022/02/03/us-law-aimed-at-chinese-forced-labor-to-test-companies-on-esg-performance/)
 
-5、中国驻加拿大大使馆网站2月4日消息，加拿大总理特鲁多就北京冬奥开幕发表声明，对“中国侵犯人权的报道严重关切”， 中方对此表示强烈不满和坚决反对，已向加方提出严正交涉。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-6、2月5日，特首林郑表示「围堵」是最好的抗疫政策，政府的目标仍是「动态清零」，当局在防疫上决不投降。评:绝不投降？这是一场借病毒之名控制港人的战争。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/简体模板5-1_page-0001.jpg)
-素材提供战友：Revelation熙攘、文敏、从来多难不兴邦
-编辑：文敏
-发布：风起云间（文敏）
-海报图片设计：飞天面、 Shuang
+总编：童谣
+编辑：静言
+校正/发稿：呼吸的雾霾（文小呼吸）
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

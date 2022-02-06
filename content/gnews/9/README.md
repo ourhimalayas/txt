@@ -2,40 +2,48 @@
 ---
 
 
-## 印度加入外交抵制北京奥运会 因中共国士兵在边境冲突中的角色
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1963617/)
+## 全世界以新中国联邦为主导的力量促成不可能的美国撤馆
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1963715/)
 
-据《美国有线新闻网》西蒙娜·麦卡锡（Simone McCarthy）和瑞亚·大亨（Rhea Mogul）2022年2月4日报道
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image002-1.png)2月2日，中国人民解放军团长、火炬手祁发宝在冬奥公园传递奥运圣火。（路透社）
-据(CNN)印度周四宣布对北京冬奥会进行外交抵制，因为一名参与2020年两国边境冲突的指挥官在奥运会前的火炬传递中，作为奥运火炬手出现。
+G-TV视频链接：[https://gtv.org/video/id=61ff3026d90bdd2085a59f94](https://gtv.org/video/id=61ff3026d90bdd2085a59f94)
 
-印度驻北京的最高特使在最后一刻对北京冬奥进行了抵制，这将使世界上人口最多的民主国家，加入到西方国家对北京冬奥的抵制名单中，这些国家已经以中共国的人权记录为由，发起了自己的外交拒绝，为一场有争议的奥运会定下了基调。
+**郭文贵先生：**没有任何战友知道，谁都不知道今天是啥事。我也告诉你这20多个国家的政府是我在坐在这，我等大概是9点30几分的时候我开始告诉他们。他们啥子你要干嘛？我说我马上直播，他说，欸，你等等，让我先给我的总统报告，叫我当第一去，所有人都想抢这个。
 
-印度外交部发言人阿林丹·巴奇（Arindam Bagchi）在周四的电视讲话中说：“中方选择将奥运会这样的活动政治化，这确实令人遗憾”。他宣布印度驻北京大使馆的最高外交官将不参加开幕式或闭幕式。
+但是就你刚才说到了核心，为什么全人类最早咱报告，这咱不能，发不发生咱用事实看就完了，是吧。我告诉大家，他不是美国能完成的事，他就是布林肯先生，这是个很非常非常有正义感，你看着他跟王毅，王毅在那诈唬。人家布林肯是专业世家，是真正的外交官，人家是有教养的人，知道了吗。人家布林肯先生身边的人都对他赞赏有加，那是一个非常强大的男人。
 
-在官方行动之后，印度的公共广播公司Doordarshan也宣布将不直播开幕式和闭幕式。该国今年有一名运动员参加比赛，即高山滑雪运动员阿里夫·汗。
+还有咱们战友学会不要说，要么我就是川普，要么就是川普的对手都是我的敌人，干你个鸟事啊，是吧。人家美国两党政治，谁也都是咱们朋友。我们对拜登总统致以最高得感谢。但是大家要记住，川普（拜登）在这件事，不是咱一家干成的，很多家，是吧。但是我们是最主要的推动者，这可以告诉大家。甚至可以这么说，没有我们这些事不可能发生，可以这么说。
 
-这些决定是在图片显示中共国人民解放军团长祁发宝作为约1200人中的一员，在周五晚间点燃奥运圣火之前，手持奥运火炬穿越奥运比赛区后引发的。中国篮球巨星、前NBA球员姚明和宇航员景海鹏等其他获得荣誉者，在周三接力赛开幕当天与祁发宝一起传递圣火。
+但没有人家一起，包括日本、欧盟，是吧，他是官方的给拜登的情报，是吧，这个病毒咋回事，死多少人，经济咋回事，怎么威胁你，下一步怎么弄，去你大爷的，老子就把你灭了。他不能说Miles新中国联邦信息一家，他是多家，包括新西兰。新西兰现在发现，哇塞，你们这帮孙子，在新西兰已经渗透这么厉害了，他也害怕。
 
-祁发宝在中共国被誉为英雄，因为他在参加了 2020 年在喜马拉雅有争议的边界地区，发生的致命的中印小规模冲突的战斗。该战斗造成至少20名印度士兵死亡。中共国说人民解放军损失了四名士兵。
+这我要告诉你的是，全世界以新中国联邦为主导的力量，完成了这个事情不可能的任务，一点儿不夸张，超过任何一场世界大战的第二段的任何一场战争，就这么了不起。中国大使馆区周围几十个领事馆，都会撤，全部都撤。
 
-在这场小规模冲突中，双方士兵用棍棒、石头和带钉子的竹竿进行搏斗。这是40多年来这两个拥有核武器的邻国之间最致命的边境冲突。双方都指责对方越过了事实上的边界，即沿加尔万山谷西段的实际控制线。
+字幕来源：[2022年1月25日郭文贵先生紧急直播全文字版](https://gnews.org/zh-hans/1912226/)
 
-在战斗中头部受伤的祁发宝被列入冬奥火炬手名单，这在印度引起了强烈反对，因为他们把两国之间充满矛盾的政治带到了国家间的 “和平竞争”中。
+编辑整理：Jacques；
 
-印度的举动进一步缩短了预计参加奥运会的外国外交客人名单，这也是中共国领导人习近平一年多来首次欢迎外交嘉宾来华，因为中共国一直保持严格的边境管制和严格的 “零-COVID” 政策。
+字幕文件制作：大好河山；
 
-预计将有20多位外国领导人出席这次活动，主要的民主国家将明显缺席，俄罗斯总统普京预计将成为习近平最引人注目的客人。
+视频制作及上传：Cindy；
 
-澳大利亚、英国和加拿大是加入美国领导的外交抵制奥运会的国家之一，它们指出中共国涉嫌侵犯人权，包括对中国西北地区新疆的维吾尔族，和其他穆斯林少数民族的种族灭绝。
+G-News发布：小满；
 
-外交抵制意味着政府不会派出代表团，但运动员将继续参加奥运会。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-由于大流行病和中共的COVID-19管制，其他国家已经拒绝了开幕式的邀请。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-原文链接：[https://www.cnn.com/2022/02/03/china/india-diplomatic-boycott-beijing-olympics-intl-hnk/index.html](https://www.cnn.com/2022/02/03/china/india-diplomatic-boycott-beijing-olympics-intl-hnk/index.html)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-翻译：烟波浩淼 | 校对：雨山溪桥客| 编辑&发布：断播
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
