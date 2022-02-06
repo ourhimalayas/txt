@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/6/2022 11:17 PM (UTC)`
+
+2/6/2022 Miles Guo: It was as if the athletes attending the Winter Olympics were thrown into jail by the CCP, and their food was spat on before being served. After Putin left, who will attend the closing ceremony of the Winter Olympics? The fellow fighters will make those who collude with the CCP dare not come to Communist China for the rest of their lives. I will make sure that the closing ceremony of the CCP’s Winter Olympics can never end.<br/><br/>2/6/2022 文贵直播：冬奥会运动员就像被中共关在监狱，食物竟被吐唾沫；普京走了后谁会来参加闭幕式？战友会让跟中共勾兑的人一辈子不敢来中共国；文贵要让中共的闭幕会永远无法闭幕<br/>
+![img](https://media.gettr.com/group26/getter/2022/02/06/23/5e86324f-0ecb-2f89-7df1-bb215faab05e/out.jpg)
+
+---
+
 `@miles 2/6/2022 9:15 PM (UTC)`
 
 2月6号：尊敬的战友们好！关于如何使用GTV帮助加拿大卡车反疫苗运动的几点声明！
@@ -147,13 +154,6 @@ This is the BIG ONE I previewed on @WarRoom a little earlier regarding the Covid
 `@miles 2/4/2022 11:59 AM (UTC)`
 
  2月4号：尊敬的战友们好。七哥正在GTV直播，北京冬奥会出大事啦…… <br/><br/>G-TV精彩直播与您分享: <br/>https://gtv.org/broadcast/watch/61fd129696ba5d73e0c27968
-
----
-
-`@miles 2/4/2022 3:43 AM (UTC)`
-
-1/31/2022 Miles Guo’s Chinese New Year Live:  “The Snow Taking Down the CCP”, the New Federal  State of China’s version of “The Snow Near Northern Border”  1/31/2022 文贵虎年新春大直播：《灭共的雪》—— 新中国联邦版《塞北的雪》（中英双语版）
-![img](https://media.gettr.com/group15/origin/2022/02/04/03/400c25b8-4239-3bfc-c5d9-0e36740d74bd/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
