@@ -2,8 +2,8 @@
 ---
 
 
-## 七哥 祝战友们平安夜平安
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1962549/)
+## 战友打榜软下来中国人持续力地
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1962580/)
 
 #### 编辑/整理：澳雅大直播工作组视频剪辑小队
 

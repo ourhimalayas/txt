@@ -2,29 +2,23 @@
 ---
 
 
-## 今日盖特大V推荐 — Jair Messias Bolsonaro（雅伊尔·博索纳罗-巴西总统 ）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1962380/)
+## 【G时新闻】加拿大总理特鲁多感染新冠病毒
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/1962451/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/111-1.jpg)
-**盖特链接：**[https://gettr.com/user/jairbolsonaro](https://gettr.com/user/jairbolsonaro)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/771.jpg)
-**雅伊尔·博索纳罗自述：**
+加拿大温哥华扬帆农场 播报:Yuyu（粤语） 视频制作: Gracelshan
 
-巴西陆军上尉，当选为巴西联邦共和国第38任总统。
+加拿大总理1月31日通过社交媒体宣布，尽管其当天的“新冠病毒”检测呈阳性，但至今感觉良好，且并无明显患病征兆。
 
-**雅伊尔·博索纳罗简介：**
+特鲁多在推特上表示，由于当天早上的病毒检测呈阳性，因此本周他将继续居家遵守疫情隔离规定并尽量保持远程工作，同时还不忘提请国民接种疫苗以及加强剂。
 
-雅伊尔·梅西亚斯·博索纳罗（葡萄牙语：Jair Messias Bolsonaro，巴西葡萄牙语：ʒaˈiʁ meˈsi.ɐz bowsoˈnaɾu）1955年3月21日出生，巴西政治人物、前陆军上尉、现任巴西总统。
+报导称，在得知加拿大卡车司机的自由车队游行将于上周末抵达首都渥太华之后，总理随即宣布因接触了“新冠病毒”感染者而开始自我隔离，并在两天后称他的一个孩子病毒检测也呈阳性。
 
-他自1991年起担任里约热内卢州的联邦众议员。他于2018年加入社会自由党，并在2018年巴西总统选举中当选为新一任巴西总统。博索纳罗被外界称为“巴西特朗普”或“热带特朗普”。他是巴西在1985年恢复文人统治后首位由直选产生的右翼总统。
+据悉，由于特鲁多此前已完全接种了疫苗和加强剂，因此，其推文下有大量民众提出质疑并责问：疫苗有效吗？为什么打了三针还被病毒感染？如果疫苗无效，为什么还要继续给加拿大人接种该疫苗？
 
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友（文苏）
-发布：洛杉矶盘古农场 —彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+盖特：[https://gnews.org/zh-hant/1947184/](https://gnews.org/zh-hant/1947184/)
+听写/翻译：LuLu1312
+字幕：圣骑士
+编辑/上传：七觉花
 
  
 

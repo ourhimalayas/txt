@@ -15,77 +15,77 @@
 
 ---
 
-### [隆美尔将军](/content/gnews/1/README.md)
+### [新中国联邦人的包容坚持](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [将军问七哥的事](/content/gnews/2/README.md)
+### [什么事情都要坚持](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [你去想想得值多少钱？](/content/gnews/3/README.md)
+### [七哥的歌在军中影响巨大](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [共产党名言“三个月”打榜还要继续](/content/gnews/4/README.md)
+### [灭共者之郭氏情报站（二十一）2022/02/04 文贵大直播](/content/gnews/4/README.md)
+ ` MOS Designer香草山设计部`
+
+### [隆美尔将军](/content/gnews/5/README.md)
  ` 雅典娜GNotes`
 
-### [战友打榜软下来中国人持续力地](/content/gnews/5/README.md)
+### [将军问七哥的事](/content/gnews/6/README.md)
  ` 雅典娜GNotes`
 
-### [七哥对自己是摇滚歌星的感受](/content/gnews/6/README.md)
+### [你去想想得值多少钱？](/content/gnews/7/README.md)
  ` 雅典娜GNotes`
 
-### [金正恩不参加冬奥会的原因（一）](/content/gnews/7/README.md)
+### [共产党名言“三个月”打榜还要继续](/content/gnews/8/README.md)
  ` 雅典娜GNotes`
 
-### [扬帆每日速递2022年2月5日版（1）](/content/gnews/8/README.md)
+### [战友打榜软下来中国人持续力地](/content/gnews/9/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥对自己是摇滚歌星的感受](/content/gnews/10/README.md)
+ ` 雅典娜GNotes`
+
+### [金正恩不参加冬奥会的原因（一）](/content/gnews/11/README.md)
+ ` 雅典娜GNotes`
+
+### [扬帆每日速递2022年2月5日版（1）](/content/gnews/12/README.md)
  ` 温哥华扬帆农场`
 
-### [七哥 祝战友们平安夜平安](/content/gnews/9/README.md)
+### [七哥 祝战友们平安夜平安](/content/gnews/13/README.md)
  ` 雅典娜GNotes`
 
-### [金正恩不参加冬奥会的原因（二）](/content/gnews/10/README.md)
+### [金正恩不参加冬奥会的原因（二）](/content/gnews/14/README.md)
  ` 雅典娜GNotes`
 
-### [2.04文贵大直播后记：郭文贵先生谈家教心得](/content/gnews/11/README.md)
- ` 雅典娜GNotes`
-
-### [漫威和迷失的女演员伊万杰琳·莉莉抨击强制接种疫苗](/content/gnews/12/README.md)
+### [宾夕法尼亚州法院撤销无理由邮寄投票法](/content/gnews/15/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2/5/2022 文贵盖特：所有参加中共冬眠会的人就三句话：1）中共完了，2）一切都是假的，3）这简直就是一场噩梦](/content/gnews/13/README.md)
+### [漫威和迷失的女演员伊万杰琳·莉莉抨击强制接种疫苗](/content/gnews/16/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [2/5/2022 文贵盖特：所有参加中共冬眠会的人就三句话：1）中共完了，2）一切都是假的，3）这简直就是一场噩梦](/content/gnews/17/README.md)
  ` 秘密翻译组-北美组`
 
-### [聚焦：中共即将启动新一轮的量化宽松](/content/gnews/14/README.md)
+### [聚焦：中共即将启动新一轮的量化宽松](/content/gnews/18/README.md)
  ` 丁过`
 
-### [【G时新闻】加拿大总理特鲁多感染新冠病毒](/content/gnews/15/README.md)
+### [【G时新闻】加拿大总理特鲁多感染新冠病毒](/content/gnews/19/README.md)
  ` G-时新闻`
 
-### [嘉宾分享（一）](/content/gnews/16/README.md)
- ` 雅典娜GNotes`
-
-### [习懵了 | 普京团队几乎遭新冠病毒“团灭”，对中共撂下狠话](/content/gnews/17/README.md)
+### [习懵了 | 普京团队几乎遭新冠病毒“团灭”，对中共撂下狠话](/content/gnews/20/README.md)
  ` YALUN 亚伦`
 
-### [以色列医院的院长承认新冠重症患者百分之八十完全接种了疫苗](/content/gnews/18/README.md)
+### [以色列医院的院长承认新冠重症患者百分之八十完全接种了疫苗](/content/gnews/21/README.md)
  ` xiaobaige`
 
-### [今日盖特大V推荐 — Jair Messias Bolsonaro（雅伊尔·博索纳罗-巴西总统 ）](/content/gnews/19/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [2.4.22大直播后记：H-pay无手续费](/content/gnews/20/README.md)
+### [2.4.22大直播后记：H-pay无手续费](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
-### [在2022年人类最黑暗的一年，活下来少害人让家人活好！](/content/gnews/21/README.md)
+### [在2022年人类最黑暗的一年，活下来少害人让家人活好！](/content/gnews/23/README.md)
  ` 【爆料贵语】新西兰伊甸农场`
 
-### [今日盖特大V推荐 — Dr. Vladimir Zev Zelenko（弗拉基米尔·泽连科，即大胡子医生）](/content/gnews/22/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [喜联储是真正的世界金融界的香草山](/content/gnews/23/README.md)
+### [喜联储是真正的世界金融界的香草山](/content/gnews/24/README.md)
  ` 【爆料贵语】新西兰伊甸农场`
-
-### [文贵先生盖特精要2022/02/05](/content/gnews/24/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [黑河市94轮核酸检测，无比神奇的事](/content/gnews/25/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
