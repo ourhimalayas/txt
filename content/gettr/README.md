@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/6/2022 12:44 PM (UTC)`
+
+2022年2月6日 文贵大直播：开幕式后普京愤然离去；中俄战略合作虎头蛇尾；贩卖人口中国妇女地位；反疫苗运动及美国经济
+![img](https://media.gettr.com/group48/origin/2022/02/06/12/7ef9b427-76a1-1abf-9313-5e066b984365/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@jasonmillerindc 2/5/2022 11:06 PM (UTC)`
@@ -151,13 +158,6 @@ This is the BIG ONE I previewed on @WarRoom a little earlier regarding the Covid
 `@miles 2/4/2022 11:59 AM (UTC)`
 
  2月4号：尊敬的战友们好。七哥正在GTV直播，北京冬奥会出大事啦…… <br/><br/>G-TV精彩直播与您分享: <br/>https://gtv.org/broadcast/watch/61fd129696ba5d73e0c27968
-
----
-
-`@miles 2/4/2022 3:43 AM (UTC)`
-
-1/31/2022 Miles Guo’s Chinese New Year Live:  “The Snow Taking Down the CCP”, the New Federal  State of China’s version of “The Snow Near Northern Border”  1/31/2022 文贵虎年新春大直播：《灭共的雪》—— 新中国联邦版《塞北的雪》（中英双语版）
-![img](https://media.gettr.com/group15/origin/2022/02/04/03/400c25b8-4239-3bfc-c5d9-0e36740d74bd/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
