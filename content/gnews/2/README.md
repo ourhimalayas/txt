@@ -2,8 +2,8 @@
 ---
 
 
-## 盖特是谁都挡不住的
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1964690/)
+## 对自己永远要狠一些，对敌人下手的时候要更狠一些
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1964745/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

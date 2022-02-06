@@ -2,8 +2,8 @@
 ---
 
 
-## 南普陀之地所有定乾坤的事情会被颠覆
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1964556/)
+## 不要去崇拜舍利子
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1964614/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

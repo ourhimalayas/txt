@@ -2,8 +2,8 @@
 ---
 
 
-## 每日快报：印度在最后一刻对北京奥运会进行了外交抵制
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1964276/)
+## 每日快報：印度在最後一刻對北京奧運會進行了外交抵制
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1964288/)
 
 *作者：GSeries*
 
@@ -11,87 +11,87 @@
 
 # ***今日摘要***
 
-1. **[中国士兵成为火炬手后，印度在最后一刻对北京奥运会进行了外交抵制](https://www.zerohedge.com/markets/india-stages-last-minute-diplomatic-boycott-beijing-olympics-after-chinese-soldier-made)**
-2. **[彭博社主页发布“俄罗斯入侵乌克兰”假新闻长达30分钟](https://www.zerohedge.com/geopolitical/kremlins-slams-dangerous-bloomberg-fake-headline-said-russia-invades-ukraine)**
-3. **[美众院通过法案 强化对中竞争并正名台湾代表处](https://www.cna.com.tw/news/aopl/202202050007.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)**
-4. **[热闹的北京冬奥开幕式却凸显中国与西方国家渐行渐远](https://www.voachinese.com/a/the-opening-of-winter-olympics-showed-that-the-gap-between-beijing-and-the-west-may-widen-20220225/6427989.html)**
-5. **[美国就中共强迫劳动行为实行企业ESG检验](https://gnews.org/zh-hans/1962992/)**
+1. **[中國士兵成為火炬手後，印度在最後一刻對北京奧運會進行了外交抵制](https://www.zerohedge.com/markets/india-stages-last-minute-diplomatic-boycott-beijing-olympics-after-chinese-soldier-made)**
+2. **[彭博社主頁發布「俄羅斯入侵烏克蘭」假新聞長達30分鐘](https://www.zerohedge.com/geopolitical/kremlins-slams-dangerous-bloomberg-fake-headline-said-russia-invades-ukraine)**
+3. **[美眾院通過法案 強化對中競爭並正名臺灣代表處](https://www.cna.com.tw/news/aopl/202202050007.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)**
+4. **[熱鬧的北京冬奧開幕式卻凸顯中國與西方國家漸行漸遠](https://www.voachinese.com/a/the-opening-of-winter-olympics-showed-that-the-gap-between-beijing-and-the-west-may-widen-20220225/6427989.html)**
+5. **[美國就中共強迫勞動行為實行企業ESG檢驗](https://gnews.org/zh-hans/1962992/)**
 
 
 # 重要事件
 
-- **[02.06. ZeroHedge：中国士兵成为火炬手后，印度在最后一刻对北京奥运会进行了外交抵制 India Stages Last-Minute Diplomatic Boycott of Beijing Olympics After Chinese Soldier Made Torchbearer](https://www.zerohedge.com/markets/india-stages-last-minute-diplomatic-boycott-beijing-olympics-after-chinese-soldier-made)**
+- **[02.06. ZeroHedge：中國士兵成為火炬手後，印度在最後一刻對北京奧運會進行了外交抵制 India Stages Last-Minute Diplomatic Boycott of Beijing Olympics After Chinese Soldier Made Torchbearer](https://www.zerohedge.com/markets/india-stages-last-minute-diplomatic-boycott-beijing-olympics-after-chinese-soldier-made)**
 
 
-在中国共产党（CCP）挑选了一名参与2020年与印度血腥冲突的人民解放军（PLA）士兵作为奥运会火炬传递的火炬手后，印度于2月3日宣布对北京奥运会进行外交抵制。印度的国家广播公司也因此决定不转播奥运会的开幕式和闭幕式。外交部官方发言人Arindam Bagchi周四说：”中方选择将奥运会这样的活动政治化确实令人遗憾……印度驻北京大使馆代办将不出席北京2022年冬奥会的开幕式或闭幕式。”
+在中國共產黨（CCP）挑選了一名參與2020年與印度血腥沖突的人民解放軍（PLA）士兵作為奧運會火炬傳遞的火炬手後，印度於2月3日宣布對北京奧運會進行外交抵制。印度的國家廣播公司也因此決定不轉播奧運會的開幕式和閉幕式。外交部官方發言人Arindam Bagchi周四說：”中方選擇將奧運會這樣的活動政治化確實令人遺憾……印度駐北京大使館代辦將不出席北京2022年冬奧會的開幕式或閉幕式。”
 
-直到本周，印度政府还在考虑派其高级外交官到北京参加奥运会开幕式，但随后北京在周三让解放军某团团长齐法宝成为奥运会火炬手，这让印度感到恼火。齐法宝曾于2020年6月在喜马拉雅山脉的加尔万山谷与印度士兵发生过激烈的边境冲突。在11月印度、俄罗斯和中国外长会晤后，新德里早些时候决定搁置与中国的问题，并支持被包括美国在内的许多国家抵制的奥运会。
+直到本周，印度政府還在考慮派其高級外交官到北京參加奧運會開幕式，但隨後北京在周三讓解放軍某團團長齊法寶成為奧運會火炬手，這讓印度感到惱火。齊法寶曾於2020年6月在喜馬拉雅山脈的加爾萬山谷與印度士兵發生過激烈的邊境沖突。在11月印度、俄羅斯和中國外長會晤後，新德裏早些時候決定擱置與中國的問題，並支持被包括美國在內的許多國家抵製的奧運會。
 
-新德里尼赫鲁大学中国研究教授Srikanth Kondapalli表示，这是因为传统上印度不相信将体育赛事政治化，自其存在以来从未抵制过任何体育赛事。但是，当在高尔湾冲突中头部受伤的齐某从中国四届奥运会短道速滑冠军王濛手中接过圣火时，印度被打蒙了。中国国家媒体《环球时报》报道说，在这样做的时候，两人都 “向对方行了军礼”。
+新德裏尼赫魯大學中國研究教授Srikanth Kondapalli表示，這是因為傳統上印度不相信將體育賽事政治化，自其存在以來從未抵製過任何體育賽事。但是，當在高爾灣沖突中頭部受傷的齊某從中國四屆奧運會短道速滑冠軍王濛手中接過聖火時，印度被打蒙了。中國國家媒體《環球時報》報道說，在這樣做的時候，兩人都 “向對方行了軍禮”。
 
-战略分析家、马尼帕尔高级研究小组副主席Madhav Nalapat告诉《大纪元时报》：”将一名2020年试图在加尔湾杀害印度士兵的解放军士兵纳入奥运火炬传递是一种挑衅行为，引发了抵制的决定。”尼赫鲁大学的孔达帕里说，对印度来说，齐国的参与是对奥运会的政治化，因为他被选为火炬手的唯一标准是他参与了加尔万冲突。
-
-
-
-- ** [02.06. ZeroHedge：彭博社主页发布“俄罗斯入侵乌克兰”假新闻长达30分钟 Bloomberg Had Fake Headline “Russia Invades Ukraine” On Homepage For 30 Minutes](https://www.zerohedge.com/geopolitical/kremlins-slams-dangerous-bloomberg-fake-headline-said-russia-invades-ukraine)**
-
-
-在白宫奇怪地大力推行 “俄罗斯假旗 “说法的时刻，彭博社已经为周五下午过早地在其主页顶部放置一个标题而道歉。”直播。俄罗斯入侵乌克兰”。
-
-彭博社承认，尽管 “入侵 “根本不是事实，但它还是准备好了这个标题。这家具有巨大影响力的全球金融新闻公司在周五晚些时候说。”我们为许多情况准备了标题，’俄罗斯入侵乌克兰’的标题在美东时间今天下午4点左右不慎在我们的网站上发布。我们对这个错误深感遗憾。该标题已被删除，我们正在调查原因”。
-
-鉴于对假旗的猜测和俄罗斯入侵 “迫在眉睫 “的指控（后者的措辞本周被白宫收回）已成为美国主流媒体本月的一个关键谈话点，彭博社的错误开头的标题肯定会引起一些问题。
+戰略分析家、馬尼帕爾高級研究小組副主席Madhav Nalapat告訴《大紀元時報》：”將一名2020年試圖在加爾灣殺害印度士兵的解放軍士兵納入奧運火炬傳遞是一種挑釁行為，引發了抵制的決定。」尼赫魯大學的孔達帕裏說，對印度來說，齊國的參與是對奧運會的政治化，因為他被選為火炬手的唯一標準是他參與了加爾萬沖突。
 
 
 
-- **[02.05. CNA：美众院通过法案 强化对中竞争并正名台湾代表处](https://www.cna.com.tw/news/aopl/202202050007.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)**
+- ** [02.06. ZeroHedge：彭博社主頁發布「俄羅斯入侵烏克蘭」假新聞長達30分鐘 Bloomberg Had Fake Headline “Russia Invades Ukraine” On Homepage For 30 Minutes](https://www.zerohedge.com/geopolitical/kremlins-slams-dangerous-bloomberg-fake-headline-said-russia-invades-ukraine)**
 
 
-美国众议院今天表决通过美国竞争法案，以推动高科技研究及制造，强化美国对中国的竞争力，缓解全球电脑芯片短缺带来的问题。 法案也呼吁行政部门将驻美代表处正名为“台湾驻美代表处”。
+在白宮奇怪地大力推行 “俄羅斯假旗 “說法的時刻，彭博社已經為周五下午過早地在其主頁頂部放置一個標題而道歉。”直播。俄羅斯入侵烏克蘭”。
 
-美国联邦众议院今天以222票同意、210票反对的些微差距通过全称为“2022年美国创造制造业机会和技术卓越与经济实力法”法案（America Creating Opportunities for Manufacturing， Pre-Eminence in Technology and Economic Strength Act of 2022）， 英文字母缩写为“2022年美国竞争法”法案（America COMPETES Act of 2022）。根据这项法案，美国将创立美国芯片基金，拨款520亿美元鼓励美国私营部门投资半导体生产等;授权450亿美元改善美国供应链、加强制造业、防止关键物品短缺并确保更多此类产品在美国制造。法案也意在推动美国科学研究和技术创新，以及通过经济发展、外交、人权和同盟关系，确保美国全球竞争力和领导地位。
+彭博社承認，盡管 “入侵 “根本不是事實，但它還是準備好了這個標題。這家具有巨大影響力的全球金融新聞公司在周五晚些時候說。”我們為許多情況準備了標題，’俄羅斯入侵烏克蘭’的標題在美東時間今天下午4點左右不慎在我們的網站上發布。我們對這個錯誤深感遺憾。該標題已被刪除，我們正在調查原因”。
 
-在长达超过2900页的法案内容中，也涵盖多项与台湾相关的条款，包括强化美台伙伴关系、协助台湾发展不对称防卫能力、协助台湾有意义参与包括世界卫生大会（WHA）等国际组织、强化美台双边经贸与科技合作。法案也呼吁美国国务卿协商将台湾驻美代表处名称由“台北经济文化代表处（Taipei Economic and Cultural Representative Office）”改为“台湾驻美代表处（Taiwan Representative Office in the United States）”。
-
-
-
-- **[02.06. VOAChinese：热闹的北京冬奥开幕式却凸显中国与西方国家渐行渐远](https://www.voachinese.com/a/the-opening-of-winter-olympics-showed-that-the-gap-between-beijing-and-the-west-may-widen-20220225/6427989.html)**
-
-
-2022年冬季奥运周五(2月4日)于主场馆鸟巢正式开幕后，北京也一跃成为全球唯一办过夏季与冬季奥运的双奥城市。本届冬奥会有来自91国近3000名的选手要争夺总计109枚的奖牌，竞争激烈。不过在竞技场外，俄罗斯总统普京的现身力挺中国，应对欧美多国的外交抵制，也让这场赛事成为一探中国外交处境的玻璃橱窗。此次冬奥开幕式以中国“24节气”为主题揭开序幕，场外在鸟巢上空燃放“迎客松”烟花，喜迎来自91国的选手，场内则安排76名不同种族肤色青少年的滑雪等表演，来呼应本届的主题曲《一起向未来》。
-
-双奥时隔14年 凸显中国外交难题。不过，讽刺的是，相较于2008年夏奥吸引到史上最多、超过80名国家元首或高阶官员的热络出席，本届冬奥面临多国抵制。虽然最后仍有60多国派员亲临观赛，但美国、英国、澳大利亚和加拿大等主要西方民主国家因抗议中国人权劣迹，早就发起外交抵制，拒绝派员出席；另外，新西兰、荷兰、瑞典及奥地利等国则以北京防疫管控太严为由缺席，总计近30个国家似乎以行动证明他们很难和中国一起走向未来。
-
-对此，立场被外界视为亲中的国际奥委会主席巴赫在开幕致词时，除赞扬中国实现当年的申奥承诺外，还提及联合国大会先前通过的奥林匹克休战决议，似乎意有所指地向欧美喊话。巴赫说：“本着奥林匹克和平精神，我呼吁全球各政府遵守你们对奥林匹克休战的承诺，给和平一个机会。”
+鑒於對假旗的猜測和俄羅斯入侵 “迫在眉睫 “的指控（後者的措辭本周被白宮收回）已成為美國主流媒體本月的一個關鍵談話點，彭博社的錯誤開頭的標題肯定會引起一些問題。
 
 
 
-- **[02.06. GNEWS：美国就中共强迫劳动行为实行企业ESG检验](https://gnews.org/zh-hans/1962992/)**
+- **[02.05. CNA：美眾院通過法案 強化對中競爭並正名臺灣代表處](https://www.cna.com.tw/news/aopl/202202050007.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)**
 
 
-2月3日，据当地媒体消息显示，美国联邦政府即将根据一项旨在阻止中共强迫劳动的法案，要求当地公司对其各自的全球供应链进行更加严格的审查。资料显示，长期以来，中共国新疆地区的维吾尔和其他少数民族的民众一直被中共政府胁迫在工厂、农场和矿场为中共国的各行各业提供服务，这当中包括服装公司、食品品牌、太阳能电池板制造商、电动汽车制造商和科技公司供应商等。
+美國眾議院今天表決通過美國競爭法案，以推動高科技研究及製造，強化美國對中國的競爭力，緩解全球電腦芯片短缺帶來的問題。 法案也呼籲行政部門將駐美代表處正名為「臺灣駐美代表處」。
 
-对此，美国国土安全部正在寻求一项最佳做法，得以让那些严重依赖中共国提供原材料、部分成品和全成品的美国公司建立更加透明和完善的问责制。据悉，国土安全部已经开始要求海关提供关于中共国进口商品的溯源地和核查标准，以便确认这些商品是否涉及发生在中共国新疆区的强迫劳动行为。
+美國聯邦眾議院今天以222票同意、210票反對的些微差距通過全稱為「2022年美國創造製造業機會和技術卓越與經濟實力法」法案（America Creating Opportunities for Manufacturing， Pre-Eminence in Technology and Economic Strength Act of 2022）， 英文字母縮寫為「2022年美國競爭法」法案（America COMPETES Act of 2022）。根據這項法案，美國將創立美國芯片基金，撥款520億美元鼓勵美國私營部門投資半導體生產等;授權450億美元改善美國供應鏈、加強製造業、防止關鍵物品短缺並確保更多此類產品在美國製造。法案也意在推動美國科學研究和技術創新，以及通過經濟發展、外交、人權和同盟關系，確保美國全球競爭力和領導地位。
 
-此外，美国公司还将在其ESG表现方面进行调整，即在环境、社会和公司治理层面审查其供应链中是否出现强迫劳动现象。这些审查项目包括劳工标准、劳工实践、水、碳，以及其他自然资源的投入和人权等因素。
+在長達超過2900頁的法案內容中，也涵蓋多項與臺灣相關的條款，包括強化美臺夥伴關系、協助臺灣發展不對稱防衛能力、協助臺灣有意義參與包括世界衛生大會（WHA）等國際組織、強化美臺雙邊經貿與科技合作。法案也呼籲美國國務卿協商將臺灣駐美代表處名稱由「臺北經濟文化代表處（Taipei Economic and Cultural Representative Office）」改為「臺灣駐美代表處（Taiwan Representative Office in the United States）」。
 
-# 每日文贵说
+
+
+- **[02.06. VOAChinese：熱鬧的北京冬奧開幕式卻凸顯中國與西方國家漸行漸遠](https://www.voachinese.com/a/the-opening-of-winter-olympics-showed-that-the-gap-between-beijing-and-the-west-may-widen-20220225/6427989.html)**
+
+
+2022年冬季奧運周五(2月4日)於主場館鳥巢正式開幕後，北京也一躍成為全球唯一辦過夏季與冬季奧運的雙奧城市。本屆冬奧會有來自91國近3000名的選手要爭奪總計109枚的獎牌，競爭激烈。不過在競技場外，俄羅斯總統普京的現身力挺中國，應對歐美多國的外交抵制，也讓這場賽事成為一探中國外交處境的玻璃櫥窗。此次冬奧開幕式以中國「24節氣」為主題揭開序幕，場外在鳥巢上空燃放「迎客松」煙花，喜迎來自91國的選手，場內則安排76名不同種族膚色青少年的滑雪等表演，來呼應本屆的主題曲《一起向未來》。
+
+雙奧時隔14年 凸顯中國外交難題。不過，諷刺的是，相較於2008年夏奧吸引到史上最多、超過80名國家元首或高階官員的熱絡出席，本屆冬奧面臨多國抵制。雖然最後仍有60多國派員親臨觀賽，但美國、英國、澳大利亞和加拿大等主要西方民主國家因抗議中國人權劣跡，早就發起外交抵制，拒絕派員出席；另外，新西蘭、荷蘭、瑞典及奧地利等國則以北京防疫管控太嚴為由缺席，總計近30個國家似乎以行動證明他們很難和中國一起走向未來。
+
+對此，立場被外界視為親中的國際奧委會主席巴赫在開幕致詞時，除贊揚中國實現當年的申奧承諾外，還提及聯合國大會先前通過的奧林匹克休戰決議，似乎意有所指地向歐美喊話。巴赫說：「本著奧林匹克和平精神，我呼籲全球各政府遵守你們對奧林匹克休戰的承諾，給和平一個機會。」
+
+
+
+- **[02.06. GNEWS：美國就中共強迫勞動行為實行企業ESG檢驗](https://gnews.org/zh-hans/1962992/)**
+
+
+2月3日，據當地媒體消息顯示，美國聯邦政府即將根據一項旨在阻止中共強迫勞動的法案，要求當地公司對其各自的全球供應鏈進行更加嚴格的審查。資料顯示，長期以來，中共國新疆地區的維吾爾和其他少數民族的民眾一直被中共政府脅迫在工廠、農場和礦場為中共國的各行各業提供服務，這當中包括服裝公司、食品品牌、太陽能電池板製造商、電動汽車製造商和科技公司供應商等。
+
+對此，美國國土安全部正在尋求一項最佳做法，得以讓那些嚴重依賴中共國提供原材料、部分成品和全成品的美國公司建立更加透明和完善的問責制。據悉，國土安全部已經開始要求海關提供關於中共國進口商品的溯源地和核查標準，以便確認這些商品是否涉及發生在中共國新疆區的強迫勞動行為。
+
+此外，美國公司還將在其ESG表現方面進行調整，即在環境、社會和公司治理層面審查其供應鏈中是否出現強迫勞動現象。這些審查項目包括勞工標準、勞工實踐、水、碳，以及其他自然資源的投入和人權等因素。
+
+# 每日文貴說
 ![](https://assets.gnews.org/wp-content/uploads/2021/05/G2101026_X_CN.jpg)
-# 更多要闻链接
+# 更多要聞鏈接
 
-1. [拜登延长川普光伏产品高额关税，中国商务部大为光火严厉回应](https://www.voachinese.com/a/china-criticizes-u-s-for-extending-tariffs-on-imported-solar-20220205/6427977.html)
-2. [法国专家：中俄之间与其说是友谊不如说是互不信任](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220205-%E6%B3%95%E5%9B%BD%E4%B8%93%E5%AE%B6-%E4%B8%AD%E4%BF%84%E4%B9%8B%E9%97%B4%E4%B8%8E%E5%85%B6%E8%AF%B4%E6%98%AF%E5%8F%8B%E8%B0%8A%E4%B8%8D%E5%A6%82%E8%AF%B4%E6%98%AF%E7%9B%B8%E4%BA%92%E4%B8%8D%E4%BF%A1%E4%BB%BB)
-3. [媒体揭国际奥会成员捍卫中国背后或有利益纠葛](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220205-%E5%AA%92%E4%BD%93%E6%8F%AD%E5%9B%BD%E9%99%85%E5%A5%A5%E4%BC%9A%E6%88%90%E5%91%98%E6%8D%8D%E5%8D%AB%E4%B8%AD%E5%9B%BD%E8%83%8C%E5%90%8E%E6%88%96%E6%9C%89%E5%88%A9%E7%9B%8A%E7%BA%A0%E8%91%9B)
-4. [谭德塞见到了李克强：双方说继续查新冠病毒源头](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220205-%E8%B0%AD%E5%BE%B7%E5%A1%9E%E8%A7%81%E5%88%B0%E4%BA%86%E6%9D%8E%E5%85%8B%E5%BC%BA-%E5%8F%8C%E6%96%B9%E8%AF%B4%E7%BB%A7%E7%BB%AD%E6%9F%A5%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92%E6%BA%90%E5%A4%B4)
-5. [商业利益集团正游说美国剥离对中共贸易](https://gnews.org/zh-hans/1962994/)
-6. [普京参加冬奥会获北京“大礼” 却缺席习近平宴会](https://gnews.org/zh-hans/1963676/)
+1. [拜登延長川普光伏產品高額關稅，中國商務部大為光火嚴厲回應](https://www.voachinese.com/a/china-criticizes-u-s-for-extending-tariffs-on-imported-solar-20220205/6427977.html)
+2. [法國專家：中俄之間與其說是友誼不如說是互不信任](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220205-%E6%B3%95%E5%9B%BD%E4%B8%93%E5%AE%B6-%E4%B8%AD%E4%BF%84%E4%B9%8B%E9%97%B4%E4%B8%8E%E5%85%B6%E8%AF%B4%E6%98%AF%E5%8F%8B%E8%B0%8A%E4%B8%8D%E5%A6%82%E8%AF%B4%E6%98%AF%E7%9B%B8%E4%BA%92%E4%B8%8D%E4%BF%A1%E4%BB%BB)
+3. [媒體揭國際奧會成員捍衛中國背後或有利益糾葛](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220205-%E5%AA%92%E4%BD%93%E6%8F%AD%E5%9B%BD%E9%99%85%E5%A5%A5%E4%BC%9A%E6%88%90%E5%91%98%E6%8D%8D%E5%8D%AB%E4%B8%AD%E5%9B%BD%E8%83%8C%E5%90%8E%E6%88%96%E6%9C%89%E5%88%A9%E7%9B%8A%E7%BA%A0%E8%91%9B)
+4. [譚德塞見到了李克強：雙方說繼續查新冠病毒源頭](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220205-%E8%B0%AD%E5%BE%B7%E5%A1%9E%E8%A7%81%E5%88%B0%E4%BA%86%E6%9D%8E%E5%85%8B%E5%BC%BA-%E5%8F%8C%E6%96%B9%E8%AF%B4%E7%BB%A7%E7%BB%AD%E6%9F%A5%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92%E6%BA%90%E5%A4%B4)
+5. [商業利益集團正遊說美國剝離對中共貿易](https://gnews.org/zh-hans/1962994/)
+6. [普京參加冬奧會獲北京「大禮」 卻缺席習近平宴會](https://gnews.org/zh-hans/1963676/)
 
 
 # 每日推特文摘
 
 
 
-谁把美国的养老金卖给了中国共产党？中共的走狗吸走了美国可悲的人辛苦挣来的退休储蓄。
+誰把美國的養老金賣給了中國共產黨？中共的走狗吸走了美國可悲的人辛苦掙來的退休儲蓄。
 #PAG 
 #WeijianShan 
 #CCPPonziGame #CCPs1000TalentsPlan #Gobiacquisition #BoShan #theSteal #USpensionfunds #Deplorables
@@ -109,8 +109,8 @@
 
 
 
-[#台湾](https://twitter.com/hashtag/%E5%8F%B0%E7%81%A3?src=hashtag_click) 外交部2月5日发表声明，谴责 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 和 [#俄罗斯](https://twitter.com/hashtag/%E4%BF%84%E7%BE%85%E6%96%AF?src=hashtag_click) 在北京冬奥开幕前在 [#乌克兰](https://twitter.com/hashtag/%E7%83%8F%E5%85%8B%E8%98%AD?src=hashtag_click) 局势和台湾问题上互表支持，操弄威权主义扩张，有辱 [#奥林匹克](https://twitter.com/hashtag/%E5%A5%A7%E6%9E%97%E5%8C%B9%E5%85%8B?src=hashtag_click) 和平精神 
-[#喜马拉雅华盛顿DC农场](https://twitter.com/hashtag/%E5%96%9C%E9%A6%AC%E6%8B%89%E9%9B%85%E8%8F%AF%E7%9B%9B%E9%A0%93DC%E8%BE%B2%E5%A0%B4?src=hashtag_click)
+[#臺灣](https://twitter.com/hashtag/%E5%8F%B0%E7%81%A3?src=hashtag_click) 外交部2月5日發表聲明，譴責 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 和 [#俄羅斯](https://twitter.com/hashtag/%E4%BF%84%E7%BE%85%E6%96%AF?src=hashtag_click) 在北京冬奧開幕前在 [#烏克蘭](https://twitter.com/hashtag/%E7%83%8F%E5%85%8B%E8%98%AD?src=hashtag_click) 局勢和臺灣問題上互表支持，操弄威權主義擴張，有辱 [#奧林匹克](https://twitter.com/hashtag/%E5%A5%A7%E6%9E%97%E5%8C%B9%E5%85%8B?src=hashtag_click) 和平精神 
+[#喜馬拉雅華盛頓DC農場](https://twitter.com/hashtag/%E5%96%9C%E9%A6%AC%E6%8B%89%E9%9B%85%E8%8F%AF%E7%9B%9B%E9%A0%93DC%E8%BE%B2%E5%A0%B4?src=hashtag_click)
 
 
 
@@ -126,7 +126,7 @@
 
 
 
-普京已经离开了，一亿美元买来的48小时变9小时…. 等七哥揭秘吧….
+普京已經離開了，一億美元買來的48小時變9小時…. 等七哥揭秘吧….
 
 
 
@@ -142,7 +142,7 @@
 
 
 
-第24届冬奥会开幕式4日晚在北京国家体育场举行。 特评：新华社通稿中只出现二个元首的名字：中共国家主席习近平和国际奥委会主席巴赫，可见客人稀疏，场面惨淡，冬奥会成了冬眠会。
+第24屆冬奧會開幕式4日晚在北京國家體育場舉行。 特評：新華社通稿中只出現二個元首的名字：中共國家主席習近平和國際奧委會主席巴赫，可見客人稀疏，場面慘淡，冬奧會成了冬眠會。
 
 
 
@@ -158,7 +158,7 @@
 
 
 
-笑死人了！肿国冰球队几乎全是外国人！25人中有11名加拿大人，7名米国人，1名意大利人！😅
+笑死人了！腫國冰球隊幾乎全是外國人！25人中有11名加拿大人，7名米國人，1名意大利人！😅
 
 
 
@@ -205,8 +205,8 @@
 
 
 
-*编辑：GSeries
-审核发布：文顾*
+*編輯：GSeries
+審核發布：文顧*
 
  
 

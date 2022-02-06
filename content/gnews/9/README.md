@@ -2,8 +2,8 @@
 ---
 
 
-## 法国无处不在的各种种族冲突
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1964649/)
+## 北朝鲜2个根本不可能去参加冬奥会的条件
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1964676/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 
