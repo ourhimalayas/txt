@@ -2,24 +2,37 @@
 ---
 
 
-## 联合国秘书长与习近平会面 协商人权专员访问新疆的表演
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1963042/)
+## 美国媒体集团认为网络攻击属中共所为
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1963517/)
 
-撰稿：东京樱花团/向海
-![](https://assets.gnews.org/wp-content/uploads/2022/02/4-3.jpg)
-日本每日新闻报，5日，来华出席北京冬奥会开幕式的联合国秘书长古特雷斯会见了习近平主席和国务委员兼外交部长王毅。其中就联合国高级专员米歇尔·巴切莱特关于访问新疆维吾尔自治区一事 “希望人权事务高级专员办事处与中国当局的联系能够实现可信赖的访问”。
+整理/编辑：小红帽
 
-联合国表示，古特雷斯先生感谢中国对联合国和多边主义的大力支持。他说，他“了解”中国应对气候变化的努力，但呼吁进一步努力加快向绿色经济的转型。此外，还讨论了阿富汗等问题。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/雅典娜快讯图.png)图片来源：雅典娜设计组
 
-对于北京冬奥会，批评新疆维吾尔自治区人权状况的美国和英国展开了“外交抵制”。据美媒报道，美国驻联合国大使托马斯·格林菲尔德要求古特雷斯先生缺席开幕式，但古特雷斯先生解释说不能得罪联合国主要国家中国。托马斯·格林菲尔德说，他至少呼吁关注中国的人权问题。
 
-信息来源：
+根据《RT》新闻2月5日报道，美国新闻集团(News Corp)周五声称，黑客在 1月份入侵了其记者的电子邮件账户。由新闻集团聘请的一家数字安全公司称，中共国可能参与了上个月的网络攻击。
 
-[国連事務総長、習近平氏と会談　「人権高等弁務官の新疆訪問に期待」](https://news.yahoo.co.jp/articles/f38ec13b30dde4161f78d519404bcdd527d7d9ef)
+新闻集团是一家总部位于纽约的媒体和出版公司，由鲁珀特·默多克(Rupert Murdoch)拥有。
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+据美国媒体报道，新闻集团首席技术官戴维·克莱恩（David Kline）在给员工的一封电子邮件中透露，该公司已通报这一漏洞给美国执法部门。
+
+这家媒体集团表示，旗下一些最受欢迎的媒体都受到了网络攻击的影响，包括《华尔街日报》以及英国的《太阳报》和《泰晤士报》。
+
+克莱恩在向员工发表讲话时表示：“外国政府的参与可能与这项活动有关，并且对方已经获取了一些数据。”
+
+新闻集团聘请网络安全公司 Mandiant负责处理和调查这次攻击。该公司更进一步指出了一个可能的罪魁祸首——中共国。该公司的代表称，“这些活动背后的人与中共有联系”。据称，这些黑客“参与了间谍活动，以收集有利于中共的情报”。
+
+新闻链接：[US media group cries ‘China’ over cyberattack – reports](https://www.rt.com/news/548407-news-corp-claims-chinese-hackers-breach/)
+
+*发布：tianzhihuan*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

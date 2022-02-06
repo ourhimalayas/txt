@@ -2,33 +2,18 @@
 ---
 
 
-## 2022年2月5日 晚 新中国联邦新闻、GTV新闻访谈简报
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1963265/)
+## 樱花头条┃Covid-19疫苗是导致24岁男子死亡的罪魁祸首
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1963728/)
 
-作者：香草山翻译部
+撰稿：东京樱花团/樱花传媒
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-3.jpg)
+“Covid-19疫苗的罕见并发症对洛克伍德的沃茨家庭来说是致命的。他们的儿子小乔治-瓦特在接受辉瑞生物技术公司的Covid-19疫苗后死亡，年仅24岁”。
 
+[信息来源](https://gettr.com/post/psrahdff37)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-4.png)
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-新闻：[https://gtv.org/broadcast/watch/61ff244896ba5d73e0c39928](https://gtv.org/broadcast/watch/61ff244896ba5d73e0c39928)
-访谈：[https://gtv.org/broadcast/watch/61ff2b1796ba5d73e0c39d96](https://gtv.org/broadcast/watch/61ff2b1796ba5d73e0c39d96)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-callendar.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
+*编辑：东京樱花团/唯真不破小蜜蜂*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,8 +2,8 @@
 ---
 
 
-## 对送药的战友要负责任
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1963798/)
+## 喜币币加锁说明战友太伟大
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1963967/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

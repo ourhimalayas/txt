@@ -2,28 +2,32 @@
 ---
 
 
-## 扬帆每日速递2022年2月5日版（2）
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1962630/)
+## 美国发布外国应用软件新政策再审抖音
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1962993/)
 
-**加拿大温哥华扬帆农场 海报组**
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-122.jpg)
-1、随着拖拉机环绕皇后公园和重型卡车驶入多伦多市中心以抗议安大略省长达两年的中共病毒疫情相关的封锁政策，省长道格·福特批评渥太华卡车司机自由护航抗议活动是“占领”行为。
+作者：银河系农场—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月2日，据当地多家媒体报道，美国联邦政府正在考虑给有潜在安全风险的手机应用程序制定新的审查规则。当中，具有中共背景的抖音程序被要求提供源代码和其他数据。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-05-下午9.10.51.png)https://gamerant.com/tiktok-sue-us-government/
+据悉，此项政策将赋予政府对那些可能造成国家安全威胁的应用程序更大监督权。为此，政府或相关部门需要根据一套风险标准来评估某应用程序是否为外国对手所拥有和控制，或者受其管辖和指示。其中，需要被评估的行为包括该软件是否可被用于监控或实行间谍活动，以及是否可以被用于军事、情报搜集或扩散活动。
 
-2、调查发现，自2015年以来，包括牛津和剑桥在内的英国大学接受与中共军方有关的中共国机构提供的2.4亿英镑以用于为中共制造超级武器的研究。
+早先，美国政府一直在评估抖音与中共的关系，加之该公司内部人员曾透露，抖音公司位于北京的总部对其产品拥有最终决策权，因此，川普政府先前一度尝试禁止抖音在美国的运行。据报道，目前，美国商务部的提案明确指出，抖音的母公司字节跳动总部位于中共国，其已经可以被看作是隶属于“外国对手”的应用软件。
 
-3、据文贵大直播：喜联储、喜币是游戏的制定者。美中之间无论是战争游戏，还是地缘战略和地缘政治还是能源战略、经济，喜联储都拥有未来标准的制定权。
+参考链接：[TikTok’s ties to China are under scrutiny once again as Biden weighs new rules for foreign apps](https://www.businessinsider.com/tiktoks-connection-to-china-under-scrutiny-biden-weighs-new-rules-2022-2)
 
-4、据文贵大直播：美国这次经济危机可能是历史上前所未有的黑暗，但经济恢复时间会非常快，甚至不到一年就开始反弹。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-5、中国外交部网站2月5日消息，外交部副部长乐玉成在习近平与普京会谈结束后接受媒体采访时说，中俄关系这列快车永远在路上，没有终点站，只有加油站。
+总编：Irene木木
+编辑：静言
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-6、最近沸沸扬扬的“8孩爹”董志民开抖音账号， 强奸犯变代言网红。中共此操作其目的：一是阻止丑闻继续扩散，黑幕继续被曝光，二是要保护中共的网红“八孩爹”董志民，当然最主要的还是保护中共官员。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/简体模板5-2_page-0001.jpg)
-素材提供战友：Revelation熙攘、文敏、从来多难不兴邦
-编辑：文敏
-发布：风起云间（文敏）
-海报图片设计：飞天面、 Shuang
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
