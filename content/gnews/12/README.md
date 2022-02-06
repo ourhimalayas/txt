@@ -2,32 +2,29 @@
 ---
 
 
-## 中共要求记者提前8小时集合
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1966468/)
+## 普京闪电离京 冬奥会开幕式成了中共闭幕式
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1966538/)
 
-作者：日本方舟农场 Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月5日，据日本新闻网络联盟NNN公布的一段视频，其中记录了中共在冬奥会开幕式前是如何折腾海外记者的。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-06-上午10.21.16.png)
-开幕式前8小时，中共就命令参与报道的海外记者集合，集合地距离举办开幕式的鸟巢仅30分钟车程。之后记者们被带到了另一个地方做安全检查，再又被拉回到了鸟巢周边，此时距开幕式还有整整6小时。而为了应对这种8小时的超长等待，中共当局要求记者们先填饱肚子再去集合。
+撰稿：大浪小水花
+![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-06-at-9.02.49-PM.jpeg)
+郭文贵先生在2022年2月6日大直播中，向战友们详细讲解了普京只在北京短暂停留9小时的主要原因。
 
-而日媒记者也没闲着，不仅吐槽开幕式邀请函过于简陋，还特地在转场视频中加入郭文贵先生的盘古大观画面。分析人士指出，日本记者机智地表达了对中共的不满。同时，盘古的外形与前一天习近平宣传视频中出现的龙头不一致，也引起了人们对盘古龙头的讨论。
+第一，中共跟普京签署了两个四千六百亿，一个四千八百亿的中俄天然气管道协议，换取普京在北京待超过从四十八小时甚至到六十个小时，并且普京会在京做重大宣布——俄罗斯要把中共人民币作为俄罗斯的法币，第二货币流通，用来抵挡美国的的制裁。结果这件大事没签成。
 
-参考链接：[https://www.gettr.com/post/psm7iz0431](https://www.gettr.com/post/psm7iz0431)
+第二，习对这次冬奥会疫情几乎一无所知，关于普京入驻酒店疫情情况，外交部、八局、防疫中心紧急办公室、冬奥会紧急工作小组同时向习汇报只有四人确诊，无人死亡。直到昨天习才知道有人在酒店染病死亡。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+普京很担心中共病毒，他要求中共保证提供绝对独立的保护和医疗措施。为了避免感染，到北京后普京连握手都环节都免掉。结果普京团队16人染上病毒，这让普京极为恼火。
 
-总编：文特
-编辑：DM
-校正/发稿：呼吸的雾霾（文小呼吸）
+第三，普京为了得到中共承诺的一万多亿美元，没有选择只能火中取栗，出席冬奥会。中共曾承诺任何情况下俄罗斯停止使用人民币的时候，中方将按照黄金本位计算最后保底的价值。结果普京到京以后，中共又要毁约。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭先生补充说，除了以上中共对普京的承诺全部失信以外，这次冬奥会失败的开幕式也是普京离京的一个重要原因。
+
+中共宣传会有一百三十个国家参会，结果仅有二十几个国家到场，出席开幕式的实力人物不超过五个……这让中共国在2008年奥运会积累的所有的成就丧失殆尽。
+
+郭先生强调，中共把这次冬奥会开幕式开成了中共结束的闭幕式。
+
+相关链接：[2022年2月6日 文贵大直播](https://gtv.org/broadcast/watch/61ffc26b3621aa7415d64d52)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

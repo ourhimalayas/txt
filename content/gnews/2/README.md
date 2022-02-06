@@ -2,28 +2,39 @@
 ---
 
 
-## 惊人的镜头：加拿大牛仔骑马加入抗议
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1966667/)
+## 中共国人口老龄化问题日益严峻
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1966791/)
 
-翻译： Jenny Ball
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-1-2.jpg)图片来源：CDMedia
+整理：Eileen（围剿维尼熊）
+编辑：朝花夕拾
 
-随着加拿大专制当局试图阻止卡车驶入抗议区，加拿大的牛仔们加入战斗，并骑马前往抗议地点。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/雅典娜快讯图.png)
 
-一位当地目击者宣称：“牛仔们今天在艾伯塔省库茨的美国/加拿大边境加入卡车司机和农民的行列。我的侄女正在前往加拿大另一个主要抗议地点的路上。其他抗议活动正在全国各地爆发。多伦多、魁北克市中心。昨天在新南威尔士州，州长刚刚颁布了更严格的措施，对全省任何地方的交通放缓处以高达 100,000 的罚款，对超过 10 人的聚会处以 2000 的罚款。这只能更加激励人们抗议。
 
-自从 GoFundMe 昨天从卡车司机那里偷走了 1000 万美元后，新账号的捐款就捐爆了了……我打赌卡车司机会得到两倍的捐款。”
 
-**参考资料：**[CDMedia][Amazing Footage -The Canadian Cavalry Joins The Truckers As Cowboys On Horseback Join The Protest](https://creativedestructionmedia.com/news/politics/2022/02/05/amazing-footage-the-canadian-cavalry-joins-the-truckers-as-cowboys-on-horseback-join-the-protest/)
+图片来源：雅典娜设计组
 
-* * *
 
-*审核：文乐
-校对：信心满满
-发稿：信心的选择*
+根据网易新闻报道：春节浙江卫健委给浙省3岁以下婴幼儿父母发问卷，其中里面有一个问题是，假设政府每个月给2胎、3胎发放补贴1000元，一直到出生后3岁为止，你是否愿意生育2胎、3胎。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH..jpeg)
+另外也有地区调查了抚养婴幼儿的成本花费，以及有没有接受来自祖辈的支持。
+
+中国2021年65岁以上人口，已经占到总人口的14%多。按照联合国的标准，65岁人口超过7%即为老龄化社会。按照现有出生死亡比例预判，2050年左右中国将有近40%的老龄化人口。这势必会对现行社会运行形成大的冲击。
+
+值得注意的是，中国2021年人口增长仅48万，呈断崖式下跌，抛开疫情的原因。更加深层次的原因是因为中国人的负担太重了。
+
+参考链接：[https://c.m.163.com/news/a/GVH214PQ0545GTLL.html?spss=today-news-hotrank](https://c.m.163.com/news/a/GVH214PQ0545GTLL.html?spss=today-news-hotrank)
+
+发布：星谕
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

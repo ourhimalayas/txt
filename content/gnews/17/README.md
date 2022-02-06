@@ -2,38 +2,32 @@
 ---
 
 
-## 【TopNews】克罗地亚政客将强制性Covid-19疫苗接种比作“死刑”
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/1966342/)
+## 中共要求记者提前8小时集合
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1966468/)
 
-![iu.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/195E9ED7-594B-4BB6-98AD-FD3E47B01C24.jpeg)
-法国总统伊曼纽尔·马克龙最近宣布未接种疫苗的人“不负责任”和“不再是公民”，对此克罗地亚环保部米斯拉夫·科拉库希奇 [警告说，](https://rairfoundation.com/croatian-mep-mandatory-vaccinations-represent-the-death-penalty-murder-is-murder-video/) 强制接种中共病毒疫苗是一种死刑。
+作者：日本方舟农场 Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月5日，据日本新闻网络联盟NNN公布的一段视频，其中记录了中共在冬奥会开幕式前是如何折腾海外记者的。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-06-上午10.21.16.png)
+开幕式前8小时，中共就命令参与报道的海外记者集合，集合地距离举办开幕式的鸟巢仅30分钟车程。之后记者们被带到了另一个地方做安全检查，再又被拉回到了鸟巢周边，此时距开幕式还有整整6小时。而为了应对这种8小时的超长等待，中共当局要求记者们先填饱肚子再去集合。
 
-科拉库希奇说：“你今天说你为欧洲没有死刑感到自豪，”“成千上万的公民正在死于疫苗的副作用。强制接种疫苗相当于死刑，这将导致许多公民被处决。”
+而日媒记者也没闲着，不仅吐槽开幕式邀请函过于简陋，还特地在转场视频中加入郭文贵先生的盘古大观画面。分析人士指出，日本记者机智地表达了对中共的不满。同时，盘古的外形与前一天习近平宣传视频中出现的龙头不一致，也引起了人们对盘古龙头的讨论。
 
-马克龙此前告诉《巴黎人报》，他的愿望是让未接种疫苗的公民的生活尽可能地悲惨。马克龙实际上表示，他的目标是通过拒绝未接种疫苗的人进入餐馆、剧院和电影院来“激怒”他们。
+参考链接：[https://www.gettr.com/post/psm7iz0431](https://www.gettr.com/post/psm7iz0431)
 
-许多人公开反对马克龙及其暴虐的计划和声明。毕竟，马克龙的最终目标似乎是完全隔离社会上未接种疫苗的人。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-“谋杀就是谋杀，”米斯拉夫·科拉库希奇谈到马克龙的议程时说，并补充说各种疫苗接种都应该是自愿的。米斯拉夫·科拉库希奇 还指出，欧洲药品管理局 (EMA) 的官方数据显示，中共病毒疫苗并不像声称的那样“安全有效”。
+总编：文特
+编辑：DM
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-早在 2021 年 9 月的一次议会会议上，科拉库希奇在发表讲话时指出了欧盟委员会主席乌尔苏拉·冯德莱恩侵犯人权的行为。
-
-他说，冯德莱恩的Covid病毒政策正在分裂公民，同时侵犯了他们的权利和独立科学家的科学建议。他们一直警告说，疫苗并不是他们所宣称的灵丹妙药。冯德莱恩的左翼政策侵犯了欧盟公民的“社会权利”。
-
-RAIR 基金会报道，“自纳粹主义以来的过去 80 年中，基本人权从未受到如此严重的侵犯：旅行自由、工作权、医疗保健权以及禁止对超过 5 亿人进行医学实验的权利！”
-
-“此外，每个公民都有自决权。”
-
-科拉库希奇呼吁，应该允许人们在不受政府威胁或迫害的情况下做出自己的健康决定。
-
-他在谈到欧盟的“疫苗护照”计划时补充说：“只允许接种疫苗的人自由旅行——同时他们像未接种疫苗的人一样容易传播病毒——这种“疫苗护照”是疯狂的。”他补充道，“没有人知道如果我们不结束它会发生什么！”
-
-[援引链接](https://dailyexpose.uk/2022/02/04/croatian-politician-compares-mandatory-covid-19-vaccination-to-death-penalty/)
-
-撰稿/米拉娅
-审阅/邱杰斯
-上传/天赐良闻
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

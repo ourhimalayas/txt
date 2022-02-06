@@ -2,32 +2,43 @@
 ---
 
 
-## 【TopNews】接种三剂COVID-19 疫苗的土耳其总统埃尔多安检测呈阳性
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/1966596/)
+## 经济学家：美国将遭遇金融风暴
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1966747/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/B1D98B46-8ADE-4CB3-8A53-18B2F5A57854.jpeg)
-据美联社报道，土耳其总统雷杰普·塔伊普·埃尔多安（Recep Tayyip Erdogan）周六在推特上发文称，他的 COVID-19 检测呈阳性。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-他写道：
+整理：Eileen（围剿维尼熊）
+编辑：朝花夕拾
 
-“今天，我和妻子的 COVID-19 检测呈阳性，症状轻微。值得庆幸的是，我们正在经历轻微的症状，我们了解到的是 omicron 变体，”。“我们正在隔离。我们将继续在家工作。我们期待您的祈祷。”
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-2.png)
 
-67 岁的埃尔多安在通过视频链接出现在伊斯坦布尔的隧道开通仪式上，发送了这条消息，他取消了亲自露面。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8CFBE52E-EE2C-4584-8A83-91E5B5014ABF.jpeg)
-第一夫人艾米娜·埃尔多安（Emine Erdogan）在推特上回复说：“愿上帝保佑，我们将与塔伊普先生一起摆脱这种感染。”
-土耳其总统去年 6 月接种了第三剂疫苗。
-几位世界领导人祝愿埃尔多安和第一夫人早日康复。
-发来信息的有巴基斯坦总理伊姆兰汗、阿塞拜疆总统伊利哈姆阿利耶夫、北塞浦路斯土耳其共和国总统埃尔辛鞑靼和乌克兰总统泽连斯基。汗在他的推特账户上写道，“我代表我们的政府、巴基斯坦人民和我个人祝愿他们早日完全康复。”
 
-土耳其最近几天出现了创纪录的 COVID-19 病例，卫生部周五报告了 111,157 例病例。12 月下旬，每日病例数约为 20,000，但由于高度传播的 omicron 变体而有所上升。
 
-该国也因 COVID-19 感染病例导致大量死亡，周五报告有 248 人死亡，这是自 10 月以来的最高水平。
+图片来源：雅典娜设计组
 
-[援引链接：](https://apnews.com/article/coronavirus-pandemic-health-europe-recep-tayyip-erdogan-istanbul-089ac4910697c94f50005b54b725ba7c)
 
-撰稿/米拉娅
-审阅/邱杰斯
-上传/天赐良闻
+根据WBC中文网报道：美国劳工部2月5日公布的1月就业岗位数据意外大增，这加剧了投资者对美联储更快抗击通胀的担忧，并打击市场的风险情绪。
+
+令人关注的是平均时薪增速高达5.7%，远超去年12月的5%，这个关键指标反映通胀压力持续存在的隐忧，这份报告显示美国的薪资通胀也来了，同时，油价也升至90美元上方，更加剧通胀压力。
+
+报告公布后，华尔街对美联储加息押注进一步升温，数据显示，他们对美联储在今年3月加息50个基点概率升至44%，且是四周以来第一次达到这么高概率，3月隔夜指数掉期合约一度显示，对加息50个基点概率的预期达到接近50%，对第六次加息时间的预测开始变成12月。
+
+紧接着，美国银行再次重申美联储在2022年剩余的政策会议都会加息，在华尔街主要银行中的预测最高。
+
+这也使得美国国债价格在2月5日出现大幅下跌，短期国债收益率大幅上扬，10年期国债收益率突破1.92%，触及2020年初以来高位。
+
+对此，资深经济学家彼得.希夫（Peter David Schiff）在2月4日撰文指出美国经济结构出现问题，而且滥发钞票，并预言美国将会遭遇金融风暴。
+
+参考链接：[https://mparticle.uc.cn/article.html?btifl=100&app=uc-iflow&title\_type=1&wm\_id=fca2253025fc4728992aa042053d92bc&wm\_cid=469905911733827584&pagetype=share&client=&uc\_share\_depth=1&uc\_param\_str=frdnsnpfvepcntnwprdssskt](https://mparticle.uc.cn/article.html?btifl=100&amp;app=uc-iflow&amp;title_type=1&amp;wm_id=fca2253025fc4728992aa042053d92bc&amp;wm_cid=469905911733827584&amp;pagetype=share&amp;client=&amp;uc_share_depth=1&amp;uc_param_str=frdnsnpfvepcntnwprdssskt)
+
+发布：星谕
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,32 +2,33 @@
 ---
 
 
-## 教练被隔离 花样滑冰运动员感到“茫然”
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1966469/)
+## 【TopNews】接种三剂COVID-19 疫苗的土耳其总统埃尔多安检测呈阳性
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/1966596/)
 
-作者：纽约香草山 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月5日，参加北京冬奥会的花样滑冰运动员，因其教练中共病毒检测结果呈阳性而未能成行，面临无教练指导训练的窘境。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-06-上午10.21.28.png)
-来自拉脱维亚的22岁的丹尼斯刚刚在上个月的欧洲锦标赛上赢得了铜牌。丹尼斯的瑞士教练史蒂芬·兰比尔表示，尽管完全接种，但在前往北京之前，因确诊而处于隔离状态，未能如期成行。丹尼斯说他非常需要兰比尔教练陪同参赛，随时为他提供指导和鼓励。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/B1D98B46-8ADE-4CB3-8A53-18B2F5A57854.jpeg)
+据美联社报道，土耳其总统雷杰普·塔伊普·埃尔多安（Recep Tayyip Erdogan）周六在推特上发文称，他的 COVID-19 检测呈阳性。
 
-另一位由兰比尔执教的日本选手宇野昌磨在周五的团体赛短道速滑中取得了个人最佳成绩。他在2018年奥运会上获得银牌，被视为北京冬奥会的冠亚军竞争者。尽管表现不错，宇野仍然感觉不对劲。他的动作不够敏锐，情绪也不饱满。运动员参加奥运比赛无教练陪同简直匪夷所思，但在中共疫情笼罩下，两位运动员正在为教练无法来到赛场而感到无助与茫然。
+他写道：
 
-参考链接：[Figure skating-Left coachless by COVID, some skaters feel a void](https://www.reuters.com/lifestyle/sports/figure-skating-left-coachless-by-covid-some-skaters-feel-void-2022-02-05/?taid=61fe67ef70fd090001a86035&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+“今天，我和妻子的 COVID-19 检测呈阳性，症状轻微。值得庆幸的是，我们正在经历轻微的症状，我们了解到的是 omicron 变体，”。“我们正在隔离。我们将继续在家工作。我们期待您的祈祷。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+67 岁的埃尔多安在通过视频链接出现在伊斯坦布尔的隧道开通仪式上，发送了这条消息，他取消了亲自露面。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8CFBE52E-EE2C-4584-8A83-91E5B5014ABF.jpeg)
+第一夫人艾米娜·埃尔多安（Emine Erdogan）在推特上回复说：“愿上帝保佑，我们将与塔伊普先生一起摆脱这种感染。”
+土耳其总统去年 6 月接种了第三剂疫苗。
+几位世界领导人祝愿埃尔多安和第一夫人早日康复。
+发来信息的有巴基斯坦总理伊姆兰汗、阿塞拜疆总统伊利哈姆阿利耶夫、北塞浦路斯土耳其共和国总统埃尔辛鞑靼和乌克兰总统泽连斯基。汗在他的推特账户上写道，“我代表我们的政府、巴基斯坦人民和我个人祝愿他们早日完全康复。”
 
-总编：文真
-编辑：Jack Li文阳
-校正/发稿：呼吸的雾霾（文小呼吸）
+土耳其最近几天出现了创纪录的 COVID-19 病例，卫生部周五报告了 111,157 例病例。12 月下旬，每日病例数约为 20,000，但由于高度传播的 omicron 变体而有所上升。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+该国也因 COVID-19 感染病例导致大量死亡，周五报告有 248 人死亡，这是自 10 月以来的最高水平。
+
+[援引链接：](https://apnews.com/article/coronavirus-pandemic-health-europe-recep-tayyip-erdogan-istanbul-089ac4910697c94f50005b54b725ba7c)
+
+撰稿/米拉娅
+审阅/邱杰斯
+上传/天赐良闻
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
