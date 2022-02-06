@@ -2,8 +2,8 @@
 ---
 
 
-## 共产党利用蓝金黄控制整个东欧
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1964468/)
+## 南普陀之地所有定乾坤的事情会被颠覆
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1964556/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

@@ -2,78 +2,80 @@
 ---
 
 
-## 以 9/11 调查为蓝本的COVID-19调查委员会获得了两党支持
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1964487/)
+## 参议员Johnson致函Austin要求提供美军受到COVID-19疫苗伤害的信息
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1964571/)
 
-一个广泛的、跨两党的参议员小组围绕一项计划联合起来，以成立一个独立调查小组调查冠状病毒的起源和美国的应对。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-17.png)来自北卡罗来纳的共和党参议员理查德·M·伯尔（Richard M. Burr） 和来自华盛顿的民主党参议员帕蒂·默里（Patty Murray）提议立法建立中共病毒调查委员会。史蒂芬妮·雷诺兹（Stefani Reynolds）|纽约时报
-据《纽约时报》作者谢丽尔·盖伊·斯托尔伯格（Sheryl Gay Stolberg）2022年2月4日报道
+作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏）
 
-一个广泛的、跨党派的参议员团体正在联合，以立法建立一个高级别独立委员会。该委员会以审查 9 月 11 日袭击事件的委员会为蓝本，拥有广泛的权力，来调查冠状病毒大流行的起源和川普及拜登政府的反应。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-根据参议院卫生委员会最高级别民主党人和共和党人，华盛顿参议员帕蒂·默里（Patty Murray）和北卡罗来纳州参议员理查德·M·伯尔(Richard M. Burr) 提出的一项计划，一个由 12 名成员组成的小组，将有发出传票权以 “全面了解在大流行期间出了什么问题，并对未来提出建议。” 默里女士在接受采访时说。
+2022年2月1日，美国参议员Ron Johnson致函国防部（Department of Defense，简称DoD）部长Lloyd Austin，以确认1月24日俄亥俄州律师Thomas Renz在华盛顿特区举行的《[Covid-19: A Second Opinion](https://rumble.com/vt62y6-covid-19-a-second-opinion.html)》中的陈述。Johnson参议员要求Austin部长在2022年2月15日之前提供有关军人受到COVID-19病毒疫苗伤害的信息。
 
-该立法提议作为草案分发，仍处于早期阶段。默里女士说，她希望在一个月内得到同事的反馈，然后进行听证和讨论。在这种高度两极分化的环境中，她和伯尔先生都承认这一法案可能受到政治干扰。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/556737019-U-S-Sen-Johnson-Asks-Secretary-Austin-1.jpg)
 
-即使该法案通过了国会两院并签署成为法律，该小组本身也可能陷入痛苦的党派之争，这取决于谁被任命为委员会成员。
+2022年1月24日，由多位世界知名医生和医学专家参加的《[Covid-19: A Second Opinion](https://www.thegatewaypundit.com/2022/02/sen-ron-johnson-sends-letter-sec-defense-demanding-information-high-covid-19-vaccine-injury-among-military-personnel/)》会议在华盛顿特区举行，该会议由参议员Ron Johnson主持。
 
-但在本周的采访中，两党的十几名参议员都接受了这个想法，没有人提出任何实质性的反对意见。有超过六名参议员提出了他们自己的类似提议，这些提议产生了一些奇怪的伙伴关系。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-06_13-33-49.png)
 
-“我完全赞成” ，堪萨斯州共和党参议员罗杰·马歇尔 (Roger Marshall) 说，他是一名医生，正在与纽约州民主党参议员克尔斯滕·吉利布兰德 (Kirsten Gillibrand) 及其他人一起制定一项类似法案。 “作为一名医生，如果我们不知道为什么一个病人死了，我们会做尸检。在军中，当我们遇到重大事件时，我们会回过头来弄清楚我们做对了什么，做错了什么。”
+在长达5个多小时的讨论中，几位世界知名医生和医学专家就应对COVID-19病毒全球大流行提供了不同的视角，对目前掌握的COVID-19病毒大流行早期和医院应对状况、COVID-19病毒疫苗的有效性和安全性，什么是对的、什么是错的、现在应该做什么、以及长期需要解决的问题等展开讨论。
 
-两党议员的良好反响在分裂的国会是罕见的，标志着一个重大的转变。去年在众议院和参议院提出的法案，包括缅因州共和党参议员苏珊·柯林斯（Susan Collins）和新泽西州民主党参议员鲍勃·梅南德斯（Bob Menendez）提出的一项法案，都已经停滞不前，部分原因是共和党人担心，这些法案会针对川普总统的早期应对的失败 .
+在这次会议上，俄亥俄州律师 Thomas Renz展示了Samuel Sigoloff博士、 Peter Chambers和Theresa Long等勇敢的吹哨人（whistleblowers）在他们在临床工作中，发现自匆忙推出试验性的Covid-19病毒疫苗以来，多种严重疾病在美军现役人员中呈天文数字增加，他们通过调查美国国防医学流行病学数据库 ( [Defense Medical Epidemiology Database](https://www.health.mil/Military-Health-Topics/Combat-Support/Armed-Forces-Health-Surveillance-Division/Data-Management-and-Technical-Support/Defense-Medical-Epidemiology-Database)，简称[DMED](https://www.health.mil/Military-Health-Topics/Combat-Support/Armed-Forces-Health-Surveillance-Division/Data-Management-and-Technical-Support/Defense-Medical-Epidemiology-Database))的数据发现，自一年前推出COVID-19病毒疫苗以来，美军部队现役人员的健康状况发生了令人不安的异常情况，其中最令人担忧的是癌症增加了3倍。
 
-但现在拜登总统在位的时间已经足够长，他自己也经历过失败。通过明确指出必须调查大流行的起源，默里·伯尔法案既吸引了共和党人（其中一些人认为该病毒是从中共国的实验室泄漏的），又吸引了希望搁置这一理论的民主党人。
+在Ron Johnson参议员致函国防部部长Lloyd Austin的信中，Johnson引用了Renz的报告，这些举报人发现，根据国防医学流行病学数据库([DMED](https://www.health.mil/Military-Health-Topics/Combat-Support/Armed-Forces-Health-Surveillance-Division/Data-Management-and-Technical-Support/Defense-Medical-Epidemiology-Database))的数据，与2016年~2020年2月COVID-19病毒大流行前的五年平均水平相比，2021年在[DMED](https://www.health.mil/Military-Health-Topics/Combat-Support/Armed-Forces-Health-Surveillance-Division/Data-Management-and-Technical-Support/Defense-Medical-Epidemiology-Database)登记的流产、癌症和许多其他疾病显著增加，例如，在圆桌会议上，Renz表示，登记诊断的神经系统问题增加了10倍，从五年平均值的82,000例增加到2021年的863,000例，其它疾病也有大幅增加，具体包括以下惊人的数字：
 
-领导 9/11 调查委员会并一直在为大流行调查奠定基础的律师菲利普·D·泽利科（Philip D. Zelikow）说， “这是一场令人震惊的两极分化危机，这是第一个信号，可能使民主党人和共和党人准备好合作。我认为这真的令人振奋，很多人都没有预料到。”
+高血压（Hypertension）–增加2,181%
 
-默里·伯尔法案精心起草，以避免党派分歧。该小组将由 12 名 “高素质公民” 组成。最好但不一定是相关领域的无党派主题专家，如公共卫生、医疗产品制造、供应链问题和国家安全等领域。他们不一定是政府雇员。
+神经系统疾病（Diseases of the nervous system）–增加1,048%
 
-国会中的民主党人和共和党人，将各自任命一半的成员，这些成员将任命自己的主席和副主席。而白宫不会做出任何任命。该小组将像 9/11调查小组那样，举行听证会并作证，预计将在一年内提交一份报告，并可能延长六个月。
+食道恶性肿瘤（Malignant neoplasms of esophagus）–增加894%
 
-路易斯安那州共和党参议员约翰肯尼迪说：“我认为这是一个绝妙的主意，我认为我们需要知道什么有效，什么无效。我认为我们需要为下次大流行做好准备。我特别想知道，我们看到的封锁和关闭是否有效，是否物有所值。”
+多发性硬化症（Multiple sclerosis）–增加680%
 
-该提议避免使用“委员会”（commission）一词，在一场激烈的党派辩论要成立一个委员会，来调查 1 月 6 日国会大厦袭击事件后，该词在华盛顿有了负面含义。取而代之的是，该小组被称为“工作组”，尽管默里女士交替使用了“委员会”和“工作组”这两个词。
+消化器官恶性肿瘤（Malignant neoplasms of digestive organs）–增加624%
 
-伯尔先生说：“我们试图以一种使跨党派做法变得（不）困难的方式来构建它”。
+格林-巴利综合征（Guillain-Barre syndrome）——增加551%
 
-该提案是更广泛法案的一部分，即《准备和应对现有病毒、新出现的威胁和大流行法案》或《预防大流行法案》。它要求在调查结束之前做出某些改变，包括让疾病控制和预防中心主任，成为参议院确认的职位，而不是按照总统的意愿任职。
+乳腺癌（Breast cancer）–增加487%
 
-熟悉提案人想法的人士表示，他们希望加快这项立法进程，可能会将其附加到另一项必须通过的立法中。
+脱髓鞘（Demyelinating）–增加487%
 
-拜登白宫一直不置可否。拜登的中共病毒应对协调员杰弗里·D·齐恩茨（Jeffrey D. Zients）本周表示，政府专注于当前的危机，但 “随着时间的推移，我们确实期待与国会合作回顾经验教训。”
+甲状腺和其他内分泌腺的恶性肿瘤（Malignant neoplasms of thyroid and other endocrine glands）——增加474%
 
-但拜登的大流行病首席医疗顾问安东尼·S·福奇（Anthony S. Fauci）博士表示，调查大流行的起源很重要。他说，在 2002 年导致 SARS 的冠状病毒出现后，花了数年时间才确定它几乎肯定是在中国的一个海鲜市场上，从蝙蝠或果子狸传染给人类的。他说，这导致了对海鲜市场的更严监管。
+女性不孕症（Female infertility）–增加472%
 
-9/11 委员会于 2002 年底，由最初不情愿的总统乔治·W·布什签署成为法律，是一个独立的两党小组，花了一年半的时间调查9/11袭击事件，和美国对袭击的准备情况，并举行公开听证会，这相当于全国性的清算。
+肺栓塞（Pulmonary embolism）–增加468%
 
-它以书本的形式制作了一份详尽的报告——包括详细的分析和扣人心弦的叙述，本书出人意料地畅销，改变了美国人对造成近 3,000 人死亡的袭击和恐怖主义威胁的理解。该报告导致了政府的结构性变化，评估和共享情报的方式的改变，以及联邦、州和地方机构之间的新合作。
+偏头痛（Migraines）–增加452%
 
-吉利布兰德（Gillibrand）女士说：“因为他们共同的努力，我们在我们的城市阻止了数十起恐怖袭击。” 她指的是纽约。“因此，为了阻止下一次大流行，政府需要采取相同的协同努力方法。”
+卵巢功能障碍（Ovarian dysfunction）–增加437%
 
-领导 9/11 调查小组的泽利科先生，为调查这一流行病的委员会奠定了基础，并得到了四个基金会和一名员工的财务支持，他们已经采访了数百名公共卫生专家、商界领袖、民选官员、受害者及家人。
+睾丸癌（Testicular cancer）–增加369%
 
-泽利科先生一直在与参议员伯尔和默里进行协商，说他愿意将他的所做的工作交给国会设立的一个委员会。他说，这次大流行从根本上挑战了美国人对政府的信任，一次彻底调查将是“试图重建这种信心和信任的重要桥梁”。
+心动过速（Tachycardia）–增加302%
 
-中共病毒受害者及家人（其中许多人支持成立委员会的想法）也渴望表达不满的机会，就像20 年前由 9/11 调查小组，提供给恐怖袭击的受害者那样。而且，他们说，一个无党派、严肃的调查是可能使这个国家团结起来的事情。
+在Ron Johnson参议员致函国防部部长Lloyd Austin的信中还提到，在收到Renz报告[DMED](https://www.health.mil/Military-Health-Topics/Combat-Support/Armed-Forces-Health-Surveillance-Division/Data-Management-and-Technical-Support/Defense-Medical-Epidemiology-Database)数据库中一些显示了心肌炎的数据已被删除，[DMED](https://www.health.mil/Military-Health-Topics/Combat-Support/Armed-Forces-Health-Surveillance-Division/Data-Management-and-Technical-Support/Defense-Medical-Epidemiology-Database)数据库已被篡改后，他在1月24日立即写信给Lloyd Austin，要求保留所有提及、关联或报告给DMED的记录。但至今还不知道Lloyd Austin是否遵守了这个要求。
 
-一个受害者团体 Marked by COVID 的创始人克里斯汀·乌尔基萨（Kristin Urquiza）说：“我希望看到人们经历了什么，以助将数据变得有意义，并为受害者家庭和其他人疗伤提供一个切入口。我们现在是如此分裂，但我坚信，通过我们的损失、痛苦和悲伤，这实际上是一种将彼此视为人类和美国人的途径。”
+Ron Johnson参议员警告，任何对Renz在圆桌会议上透露的Samuel Sigoloff博士、Peter Chambers和Theresa Long三位勇敢的举报人采取的报复行动，都不会被容忍，并将被立即进行调查。
 
-原文链接：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/556737019-U-S-Sen-Johnson-Asks-Secretary-Austin-2.jpg)
 
+在信的最后，参议员Ron Johnson向Lloyd Austin国务卿提出了以下问题：
 
+1.与2016年~2020年的五年平均水平相比，2021年[DMED](https://www.health.mil/Military-Health-Topics/Combat-Support/Armed-Forces-Health-Surveillance-Division/Data-Management-and-Technical-Support/Defense-Medical-Epidemiology-Database)数据库中登记诊断的流产（miscarriages）、癌症或其他疾病是否有所增加？如果情况属实，请解释国防部（DoD）采取了哪些行动来调查增加的根本原因。
 
+2.从2021年1月到2021年12月，[DMED](https://www.health.mil/Military-Health-Topics/Combat-Support/Armed-Forces-Health-Surveillance-Division/Data-Management-and-Technical-Support/Defense-Medical-Epidemiology-Database)数据库中登记诊断的心肌炎数据是否已从数据库中删除？如果是这样，请解释删除这些信息的原因和时间，并确定删除者。
 
+参考数据：
 
+[Sen. Ron Johnson Sends Letter to Sec. of Defense Demanding Information on Shockingly High COVID-19 Vaccine Injury Among Military Personnel](https://www.thegatewaypundit.com/2022/02/sen-ron-johnson-sends-letter-sec-defense-demanding-information-high-covid-19-vaccine-injury-among-military-personnel/)
 
+[U.S. Sen. Johnson Asks Secretary AustinFull description](https://www.scribd.com/document/556737019/U-S-Sen-Johnson-Asks-Secretary-Austin#download)
 
+[COVID-19: A Second Opinion](https://rumble.com/vt62y6-covid-19-a-second-opinion.html)
 
+[Whistleblowers share DOD medical data that blows vaccine safety debate wide open](https://www.theblaze.com/op-ed/horowitz-whistleblowers-share-dod-medical-data-that-blows-vaccine-safety-debate-wide-open)
 
-
-
-翻译：JS709｜校对：Nick｜编辑&发布：闪电训练
-
-
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

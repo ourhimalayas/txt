@@ -2,8 +2,8 @@
 ---
 
 
-## 哈尔巴拉耶夫的事情是新中国联邦走向东欧的一个里程碑
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1964488/)
+## 啥叫天机
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1964572/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 
