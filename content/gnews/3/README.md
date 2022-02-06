@@ -2,22 +2,35 @@
 ---
 
 
-## 秘翻在线 :俄罗斯在与中共的联合声明中表示台湾是中国的一部分
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1965847/)
+## 中共拒绝联合国赴新疆调查人权问题
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1965987/)
 
-**撰稿：William**
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-**校对：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-06-211639.jpg)图片来源：www.news9live.com
-根据印度世界一体新闻台(WION news) 的报导, 根据周五发布的俄中联合声明，俄罗斯承认台湾是中国不可分割的一部分，并反对台湾以任何形式独立。 俄方重申支持一个中国原则，确认台湾是中国不可分割的一部分，反对任何形式的台湾独立。在一份冗长的联合声明中，中共指责美国在香港煽动骚乱并推动台湾独立，而俄罗斯则指责美国以同样的方式破坏乌克兰的稳定。
+整理：Eileen（围剿维尼熊）
+编辑：朝花夕拾
 
-根据克里姆林宫发表的 5300 字联合声明，“俄罗斯和中共反对外部势力破坏其共同毗邻地区的安全与稳定的企图”。声明称，两国“将反对外部势力以任何借口干涉主权国家内政，反对颜色革命，将加强在上述领域的合作。”
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/雅典娜快讯图.png)图片来源：雅典娜设计组
 
-中共曾表示，不应将世界划分为定义了苏联和美国两个主导超级大国时代的那种权力集团。言外之意，中俄应该建立联盟来共同对抗美国。
 
-当天早些时候，俄罗斯总统弗拉基米尔•普京(Vladimir Putin)在冬奥会开幕式前在北京会见了中共国国家主席习近平。俄罗斯总统赞扬了两国的关系，称它们“在本质上是前所未有的，是相互尊重的合作的典范”。尽管与西方在乌克兰问题上的紧张局势不断升级，普京仍确定进行今年的首次海外访问。
+根据中央社报道：联合国秘书长古特瑞斯（Antonio Guterres）在北京冬季奥运场边习近平和王毅会面时，对两人表示希望允许联合国人权事务高级专员巴舍莱（Michelle Bachelet）到中国进行可信的访问，包括停留新疆。
 
-**新闻来源：**[https://www.wionews.com/world/russia-recognises-taiwan-as-part-of-china-opposes-islands-independence-450437](https://www.wionews.com/world/russia-recognises-taiwan-as-part-of-china-opposes-islands-independence-450437)
+曾有人权人士表示，至少100万人被监禁在新疆的“再教育营”，其中大部分是穆斯林。
+
+巴舍莱长期以来希望进入新疆调查维吾尔人遭虐待的指控，此事让北京与西方关系变差，美国不仅指控中国种族灭绝，更联合其他国家抵制北京冬奥会。
+
+但中国至今拒绝巴舍莱赴新疆访问。
+
+参考链接：https://udn.com/news/story/6809/6078603?from=udn\_ch2\_menu\_v2\_main\_cate
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
