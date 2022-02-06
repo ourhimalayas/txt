@@ -2,16 +2,40 @@
 ---
 
 
-## 【粤语配音】2022年2月5日： 外国友人三句话评价冬奥会
-` MOS香港部` [轉載自GNews](https://gnews.org/zh-hans/1963159/)
+## 七哥造成美国驻中国大使馆最长时间的大使岗位空缺历史
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1963295/)
 
-紐約香草山-香港部
+G-TV视频链接：[https://gtv.org/video/id=61ff27cdd90bdd2085a59cc8](https://gtv.org/video/id=61ff27cdd90bdd2085a59cc8)
 
-从昨天普京华尔道夫酒店的人，突然间整个团灭感染，到(酒店出现)死人，包括盘古北侧狙击队长突然暴毙，然后在现场就拉走了200多人阳性，结果在路上又发现了100多人，这300多号人全部是密切接触在现场，跟习主席也接触了，是吧，你们伟大的习太阳也接触了，那习主席是不是也应该隔离呢?本来普京要签署的重大合同，所谓2022年21世纪的22个合同，有两个没签，但是现在给中方撂下狠话了，“一个月以内要得到答复”，人民币在俄罗斯作为第二种法定货币使用，流通货币抵制美国的制裁，但是条件是用你的人民币，过去叫“质子”，把自己的皇帝的接班人押过去，你得把你的东西押给我，半个国土押给人家吧？可能吗？
+**郭文贵先生：**美国现在中国现在没有大使，别忘了，七哥一直让它没大使，千万别忘了！它一直没大使。大使馆从秀水街搬到了安外50号，我告诉你这是大清朝一八三几年在中国美国驻中国有机构，到了1979年美国驻中国大使馆，最长期的、最长时间的没有大使。这个是美国的第二任大使，是我的好哥儿们，绝对亲共的人，我就不具体说他名啦，这哥儿们也在这儿看直播呢。
 
-过去历史上中国都是被俄罗斯给消灭的，每次都杀人无数，但这回可能..你别看俄罗斯那么强势，可能这回就要灭在中共手里，第二个就是所有参加这个冬奥会的人，所有的各个方面三句话，Miles兄弟，“一切都是假的，这里一切都是假的，没有一样是真的”，说和2008年2010年2012年2015年，甚至过去到中国去看过的，都是完全两回事儿，一切都是假的，他说（共产党）完了，没有人开心，没有人真的激动，一切恐惧，第二句话所有人都说，“这简直是一场噩梦，简直是一场噩梦”，所有参加的组织、个人，我没听到一个人说，这太完美呀、维妙维肖..没有，所有的记者、政府官员、所谓体制内的，都是这句话：这简直是一场噩梦
+字幕来源：[2022年1月25日郭文贵先生紧急直播全文字版](https://gnews.org/zh-hans/1912226/)
 
-第三句话是什么？所有人到了现场的感觉以后说，真的是中国共产党完了，完了..完了..完了，就是美国的这次抵制，还有外交的撤离，让所有人到那块儿去都感觉到毛孔立起来了，感觉得这个城市、这个国家充满了恐惧，没有任何希望 ，说：中国完了，当然了我们就说中国共产党完了，就这三句话，中国完了，简直就是一场噩梦，一切都是假的。
+编辑整理：Jacques；
+
+字幕文件制作：大好河山；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

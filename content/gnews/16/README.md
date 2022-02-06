@@ -2,31 +2,33 @@
 ---
 
 
-## 有声|外媒指出 冬奥会来宾多为非民主政体领袖
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1963114/)
+## 有声|吹哨人：澳洲须防中共利用社交媒体假消息干预大选
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1963206/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月4日，据外媒消息显示，中共北京冬奥会开幕式于当天拉开帷幕，然而，由于中共政府在新疆地区犯下侵犯当地维吾尔及其他少数民族人权的暴行，以美国为首的多数西方国家对此次冬奥会实施外交抵制政策。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+据台媒报导，澳洲将于今年5月举行联邦大选，脸书「吹哨人」，也就是脸书的前员工郝根，于2月3日在澳「社交媒体及在线安全调查委员会」公听会中强调，中共已将社交媒体武器化，应预防有人利用社交媒体散播假消息，干预澳洲大选。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/13.png)
 
-据悉，习近平将在开幕式上接待来自21个国家的领导人，而这些这些国家多数不属于民主政体。
 
-据皮尤研究中心和洛伊研究所智库的调查指出，近年来，西方国家，尤其是民主国家的民众，对中共的评价普遍处于历史低点。
+文字版原文：[吹哨人：澳洲须防中共利用社交媒体假消息干预大选](https://gnews.org/zh-hans/1956602/)
 
-文字版原文：[外媒指出 冬奥会来宾多为非民主政体领袖](https://gnews.org/zh-hans/1959441/)
-
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
-
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

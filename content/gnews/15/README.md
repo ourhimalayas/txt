@@ -2,8 +2,8 @@
 ---
 
 
-## 共产党的数字货币就是掠夺财富
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1963132/)
+## 人生就是黄粱一梦
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1963259/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

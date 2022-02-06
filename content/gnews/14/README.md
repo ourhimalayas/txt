@@ -2,27 +2,33 @@
 ---
 
 
-## [ 聚焦港澳 ] 撕裂的香港社会
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1963133/)
+## 2022年2月5日 晚 新中国联邦新闻、GTV新闻访谈简报
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1963265/)
 
-撰稿：云彩
+作者：香草山翻译部
 
-看了香港国际关系学者沈旭晖采访原商台节目《光明顶》编剧鲍伟聪先生的视频，感到在中共模式管制下的香港社会在撕裂。
-
-节目里，鲍伟聪先生感叹香港社会的人心或者人际关系再也回不了从前。认识多年的亲朋戚友，以前与你关系很好，由于政治观点不同，对方的言论和态度让你无法接受。2019年的时候，大家虽然彼此立场不同，但还是可以在群里各自表达不同意见，不妨碍来往。自从港版《国安法》和举报机制实施，香港社会弥漫着互不相信。很多朋友不相见，心知肚明，互相之间割席，变成独立个体。
-
-看到这里，我想起大陆的文革。听父辈提起，文革前，那时的人们互相之间友好，出门不锁门也不怕被盗。高中的政治老师说，文革的时候，单位由于划分右派有硬性指标，有人开会时上趟厕所回来，就成了右派。同事之间互相揭发，子女揭发父母。恐惧，以虚假对付虚假，人与人之间的诚恳信任荡然无存。时至今日，文革对人心的毒害还在。
-
-我们把香港比喻成圣城。现在共产党在摧毁它的根基。
-
-从香港的反送中抗争到现在西方国家民众对强制疫苗政策的抗争，证明如果中国共产党还存在，香港的变化  不久也会发生在西方国家。所以，灭共是正义的必须。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-3.jpg)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-4.png)
+校对：Stay文苑
 
-参考资料：
+编辑：Stay文苑
 
-[沈旭晖先生采访鲍伟聪先生](https://www.youtube.com/watch?v=jdXNJDUb3y0&amp;t=1210s)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
+发稿：Stay文苑
+
+新闻：[https://gtv.org/broadcast/watch/61ff244896ba5d73e0c39928](https://gtv.org/broadcast/watch/61ff244896ba5d73e0c39928)
+访谈：[https://gtv.org/broadcast/watch/61ff2b1796ba5d73e0c39d96](https://gtv.org/broadcast/watch/61ff2b1796ba5d73e0c39d96)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-callendar.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

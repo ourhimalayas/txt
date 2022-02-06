@@ -2,8 +2,8 @@
 ---
 
 
-## 冬奥会就是为了一个独裁者的个人政治
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1963279/)
+## UBS银行是中国最大犯罪银行
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1963366/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

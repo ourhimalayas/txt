@@ -2,8 +2,8 @@
 ---
 
 
-## 中南坑想掌控数字货币掌控未来
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1963152/)
+## 冬奥会就是为了一个独裁者的个人政治
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1963279/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 

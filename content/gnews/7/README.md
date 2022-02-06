@@ -2,8 +2,8 @@
 ---
 
 
-## 珍惜别人,珍惜自己
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1963230/)
+## 哈尔扎耶夫是王岐山最好的哥们
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1963326/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 
