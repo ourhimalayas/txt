@@ -2,33 +2,32 @@
 ---
 
 
-## 有声|吹哨人：澳洲须防中共利用社交媒体假消息干预大选
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1963206/)
+## 2022年2月5日 晚 新中国联邦新闻、GTV新闻访谈简报
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1963265/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-据台媒报导，澳洲将于今年5月举行联邦大选，脸书「吹哨人」，也就是脸书的前员工郝根，于2月3日在澳「社交媒体及在线安全调查委员会」公听会中强调，中共已将社交媒体武器化，应预防有人利用社交媒体散播假消息，干预澳洲大选。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/13.png)
+作者：香草山翻译部
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-3.jpg)
 
 
-文字版原文：[吹哨人：澳洲须防中共利用社交媒体假消息干预大选](https://gnews.org/zh-hans/1956602/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-4.png)
+校对：Stay文苑
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+新闻：[https://gtv.org/broadcast/watch/61ff244896ba5d73e0c39928](https://gtv.org/broadcast/watch/61ff244896ba5d73e0c39928)
+访谈：[https://gtv.org/broadcast/watch/61ff2b1796ba5d73e0c39d96](https://gtv.org/broadcast/watch/61ff2b1796ba5d73e0c39d96)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-callendar.jpeg)
+
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

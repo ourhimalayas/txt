@@ -2,44 +2,30 @@
 ---
 
 
-## 各国孔子学院关闭进展迅猛
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1962995/)
+## 难以置信！纽约污水中发现超过4 种冠状病毒“不明突变”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1963029/)
 
-作者：纽约香草山农场-兰兰
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据综合消息显示，截至2022年1月18日，包括加拿大、美国、澳大利亚、法国、瑞典、德国、丹麦、比利时、瑞士、挪威以及荷兰在内的11个国家停止一切相关活动或关闭孔子学院和孔子课堂的总数高达122所。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-05-下午9.11.19.png)https://no-confucius-institutes.org/
-在美国，当地先是在1月6日通报关闭了94所孔子学院，其后，政府又在接下来的两周内关闭了另外三所。目前，全美已有97所孔子学院已经或正在关闭。
+撰稿：东京樱花团/向海
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-18.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fimageio.forbes.com%2Fspecials-images%2Fimageserve%2F6000e7818fbfb374a1690816%2F0x0.jpg%3Fformat%3Djpg%26width%3D1200%26fit%3Dbounds&amp;imgrefurl=https%3A%2F%2Fwww.forbes.com%2Fsites%2Fmishagajewski%2F2021%25)
+一个研究小组在纽约污水中检测到新冠病毒的四个以上的不明突变。目前还不知道它的来源。
 
-资料显示，自2004年起，中共政府逐步开始在海外成立孔子学院。截至2019年12月，其已在全球162个国家或地区建立了550所孔子学院以及超过一千个中小学孔子课堂。
+密苏里大学的 Mark Johnson 博士：“从污水样本中分离出 RNA，PCR 测试扩增了冠状病毒基因组的片段并确认了突变。”
 
-直至2013年，海外的孔子学院终于开始陆陆续续地被逐一关闭，其中，加拿大麦克马斯特大学的孔子学院成为全球第一所被关闭的孔子学院。
+由密苏里大学约翰逊博士领导的一个研究小组自 6 月以来一直在纽约市的 14 家污水处理厂进行调查。
 
-2019年12月，瑞典通报关闭了其境内的4家孔子学院，并于2020年4月叫停了该国最后一个孔子课堂，成为全球第一个彻底将孔子学院和孔子课堂驱逐出境的国家。随后，德国联邦教育部长安贾·卡利泽克也于2021年10月呼吁终止该国境内所有的孔子学院。
+Mark Johnson 博士：“有时我们看到的菌株与患者确认的菌株不符。去年反复出现，似乎受地域限制。每周从同一污水处理厂发现同一菌株。 ”
 
-此外，法国国防部下属的军事学院战略研究所近日公布的一份 《中共国影响力行动》分析报告指出，中共政府一直透过孔子学院在海外推行统战手段并大肆宣传其意识形态。当中，该报告还详细阐述了中共近年来通过渗透海外的华人社区、媒体、外交、经济、政治、教育、文化与智库等领域，用以扩张其在全球影响力的恶劣行为。
+不明变异菌株来源，可以来自未经检测的患者、未经检测的胃肠道等组织、长期住院的重症患者，以及小鼠、狗等动物。
 
-参考链接：
-1）[How Many Confucius Institutes Are in the United States?](https://www.nas.org/blogs/article/how_many_confucius_institutes_are_in_the_united_states)
-2）[https://www.nas.org/storage/app/media/New%20Documents/confucius-institutes-that-closed-updated-january-15-2022.pdf](https://www.nas.org/storage/app/media/New%20Documents/confucius-institutes-that-closed-updated-january-15-2022.pdf)
-3）[比利时大学关闭孔子学院 涉间谍指控](https://www.rfa.org/mandarin/Xinwen/11-12112019152406.html)
-4）[拒绝中共政治宣传！德国汉堡大学宣布关闭孔子学院](https://cn.vot.org/2020/07/30/%E6%8B%92%E7%BB%9D%E4%B8%AD%E5%85%B1%E6%94%BF%E6%B2%BB%E5%AE%A3%E4%BC%A0%EF%BC%81%E5%BE%B7%E5%9B%BD%E6%B1%89%E5%A0%A1%E5%A4%A7%E5%AD%A6%E5%AE%A3%E5%B8%83%E5%85%B3%E9%97%AD%E5%AD%94%E5%AD%90%E5%AD%A6/)
-5）[北欧第二国：挪威关闭孔子学院](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/cl-03192021135434.html)
-6）[法国重磅报告披露孔子学院真面目](https://www.epochtimes.com/gb/21/9/25/n13259615.htm)
+由于这些变异病毒停留在同一个区域，目前无需担心，但像 Omicron 毒株一样，它们将来有可能会传播。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+信息来源：
 
-总编：飞虹
-编辑：静言
-校正/发稿：呼吸的雾霾（文小呼吸）
+[コロナウイルスの“未確認変異”4種類以上発見　NYの下水から](https://news.yahoo.co.jp/articles/c5cd41cf708d1f68c9aa65b348ce21ed52c8e6af)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

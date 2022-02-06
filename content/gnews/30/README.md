@@ -2,38 +2,32 @@
 ---
 
 
-## 7·24系列——冬奥会使用的电击枪
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1962972/)
+## 美国发布外国应用软件新政策再审抖音
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1962993/)
 
-**整理：**雅典娜情报组（禄森、翼族）
-**编辑：**翼族
-![](https://assets.gnews.org/wp-content/uploads/2022/02/60658bb5a7f25252f4f2ecc3Vb5ZZOfU03.jpg)图片来源：COOLCASE
-郭文贵先生在2022年2月2日大直播中爆料（概要）：冬奥会80%是由中共军队人员来管理，冬奥会周围有三个必然装备，其中之一是“电击枪”。
+作者：银河系农场—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月2日，据当地多家媒体报道，美国联邦政府正在考虑给有潜在安全风险的手机应用程序制定新的审查规则。当中，具有中共背景的抖音程序被要求提供源代码和其他数据。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-05-下午9.10.51.png)https://gamerant.com/tiktok-sue-us-government/
+据悉，此项政策将赋予政府对那些可能造成国家安全威胁的应用程序更大监督权。为此，政府或相关部门需要根据一套风险标准来评估某应用程序是否为外国对手所拥有和控制，或者受其管辖和指示。其中，需要被评估的行为包括该软件是否可被用于监控或实行间谍活动，以及是否可以被用于军事、情报搜集或扩散活动。
 
-##### 七哥很早的时候到美国，人家给我当场演示，我当时特别傻，我说：“我不相信。” 美国人说，拿着（电击枪）对着对方一按，“吱”，百米之外那个人就跟绳儿牵着一样“哇”就倒地了，心脏疼。我说：“我不相信，那装得嘛。”“那你要不要试试？” 我说：“那我来试试。”我亲自被电，哇塞，就像有个钩儿抓着你胸部，拽得难受，叫电子枪。在（冬奥会）现场，准备了最高压的电子枪，然后是防爆设施、防爆枪。
+早先，美国政府一直在评估抖音与中共的关系，加之该公司内部人员曾透露，抖音公司位于北京的总部对其产品拥有最终决策权，因此，川普政府先前一度尝试禁止抖音在美国的运行。据报道，目前，美国商务部的提案明确指出，抖音的母公司字节跳动总部位于中共国，其已经可以被看作是隶属于“外国对手”的应用软件。
 
-电击枪，国外一般称作STUN GUN，在中共国属于违禁物品，禁止生产销售和持有。现在市场上的民用防身器材一般设计成棍状，类似于电筒，俗称“电棒”，和电击枪的原理类似，只不过外形不同而已。
+参考链接：[TikTok’s ties to China are under scrutiny once again as Biden weighs new rules for foreign apps](https://www.businessinsider.com/tiktoks-connection-to-china-under-scrutiny-biden-weighs-new-rules-2022-2)
 
-电击枪最早出现在20世纪初期的科幻小说中，也有人根据原理称其为“电休克枪”。电击枪没有子弹，而是通过发射带电“飞镖”来制服目标。枪内有一个充满氮气的气压弹夹，扣动扳机，弹夹中的高压氮气迅速释放，将枪膛中的两个电极发射出来；命中目标后，倒钩可以钩住犯罪嫌疑人的衣服，枪膛中的电池则通过绝缘铜线释放出高压，令嫌疑人浑身肌肉痉挛，缩成一团。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-电击枪里最为知名的是“泰瑟电击枪”，最早由美国泰瑟公司制造及研发，已成为警队及安保团队配备的制式枪械，其最大射程为7米，“飞镖”的速度为每秒60米。它可以隔着5厘米厚的衣服放电，并在5秒钟内多次放电，每次持续时间为百万分之一秒。一些人权组织认为用泰瑟电击枪对待犯罪嫌疑人是不人道的行为，故常引发对泰瑟枪的抗议活动。
+总编：Irene木木
+编辑：静言
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-根据郭文贵先生的爆料，冬奥会使用的是距离达百米射程的电击枪（远距离射击型高压电击枪），这种电击枪有可能使用了长距离发射的无线电镖，也称为长距离电击弹，里面带有一高压电池，可以通过12口径的枪射出，美国军方曾在2007年发明了有效距离达90米的产品。
-
-另一种可能则是“电子激光枪”，这是一种定向能武器，将交流电送入一系列增压变压器，增加电压，降低电流，最终电压高达108-109伏，可以使嫌疑人瞬间失去反抗能力。
-
-还有一种新型的等离子电击枪，使用了等离子体通道的原理，其形成大致经过以下几个步骤：激光发射器发出激光束到空中，激光束立即加热、离子化周围的空气，形成等离子体，并逐步生成导电的等离子体通道，从而达到电击目标的目的；如果激光束紧密，形成的电磁场强大，那么导电量就越大，甚至可以生成闪电、电弧，并伴有音爆。
-
-无论哪一种电击枪，都是中共邪恶暴力政权镇压老百姓和维稳的武器。科技和武器本身没有善恶之分，只是看它掌握在谁的手上，而中国人民唯有消灭邪恶至极的中共，才能将武器真正掌握在自己的手中。
-
-*发布：翼族*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

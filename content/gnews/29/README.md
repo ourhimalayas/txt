@@ -2,24 +2,26 @@
 ---
 
 
-## 美国就中共强迫劳动行为实行企业ESG检验
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1962992/)
+## 商业利益集团正游说美国剥离对中共贸易
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1962994/)
 
 作者：银河系农场—骄子
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月3日，据当地媒体消息显示，美国联邦政府即将根据一项旨在阻止中共强迫劳动的法案，要求当地公司对其各自的全球供应链进行更加严格的审查。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-05-下午9.10.39.png)
-资料显示，长期以来，中共国新疆地区的维吾尔和其他少数民族的民众一直被中共政府胁迫在工厂、农场和矿场为中共国的各行各业提供服务，这当中包括服装公司、食品品牌、太阳能电池板制造商、电动汽车制造商和科技公司供应商等。
+2月3日，据相关媒体消息显示，美国的商业利益集团正在游说美国的立法者删除那些可能损害本土企业但有利于中共贸易的法案。同时，他们希望政府可以审查美国个人或机构在中共国的私人投资，并对来自中共国的货物征收新的关税。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-05-下午9.11.00.png)https://bamanewsnow.com/
+该商业集团指出，众议院法案中的某些贸易政策会损害美国在当地的企业，并把额外的成本转嫁给美国消费者。特别是美国将军事和医疗设备等关键物资的生产转移到中共国和俄罗斯等敌对国家，这会使美国企业难以在全球市场上竞争、成长和扩张。
 
-对此，美国国土安全部正在寻求一项最佳做法，得以让那些严重依赖中共国提供原材料、部分成品和全成品的美国公司建立更加透明和完善的问责制。据悉，国土安全部已经开始要求海关提供关于中共国进口商品的溯源地和核查标准，以便确认这些商品是否涉及发生在中共国新疆区的强迫劳动行为。
+为此，该集团提出，政府应该减缓在中共国的投资，并重新评估那些在中共国开展业务的美国公司。目前，中共国在半导体和呼吸器等关键物资方面已经对美国造成了国家安全威胁。
 
-此外，美国公司还将在其ESG表现方面进行调整，即在环境、社会和公司治理层面审查其供应链中是否出现强迫劳动现象。这些审查项目包括劳工标准、劳工实践、水、碳，以及其他自然资源的投入和人权等因素。
+另一方面，该集团也强调，美国当前对中共国商品的征税方式存在巨大的漏洞，而中共政府可借由这些漏洞逃避美国的关税和监督，从而使那些非法和有害产品更容易进入美国。尤其是涉及强迫劳动和知识产权盗窃的产品正在严重威胁着美国的经济和国家安全。
 
-参考链接：[US law aimed at Chinese forced labor to test companies on ESG performance](https://rollcall.com/2022/02/03/us-law-aimed-at-chinese-forced-labor-to-test-companies-on-esg-performance/)
+据了解，拜登政府已经逐步重视针对中共贸易竞争的立法，以便推动美国制造业的发展和修复供应链。消息称，拜登政府正在敦促立法者尽快完成相关法案的设立。
+
+参考链接：[Business interests take aim at China competitiveness bill](https://thehill.com/business-a-lobbying/business-a-lobbying/592583-business-interests-take-aim-at-china-competitiveness)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-总编：童谣
+总编：Irene木木
 编辑：静言
 校正/发稿：呼吸的雾霾（文小呼吸）
 
