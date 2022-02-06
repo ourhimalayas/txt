@@ -2,52 +2,27 @@
 ---
 
 
-## 樱花灭共段子┃文貴大直播 期期有话说
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1965220/)
+## 澳洲警察恶意执法故意伤害示威人士
+` 喜国公民` [轉載自GNews](https://gnews.org/zh-hans/1965335/)
 
-作者：东京樱花团/保和
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-53.png)
-图片：东京樱花团/夏目&山竹
+By: 喜国公民
+视频来自网络
+最近，有记者拍到一名澳洲警察从背后大力推搡一名在堪培拉参加和平示威的女性，使其重重地摔倒在地。
 
-前天直播大事多 今天冬奥再说说
+自从新冠大流行爆发以来，澳州警察与抗议封锁和新冠疫苗强制接种的民众多次发生冲突，警察甚至使用胡椒喷剂对付抗议的民众。
 
-普京在华九小时 干点啥事七哥着
+这些事件助长了警察恶意执法的嚣张气焰。面对和平示威的民众，警察们变得肆无忌惮，在绝对没有必要使用武力的情况下，过度地使用暴力，对付普通民众。
 
-愤然离习不辞去 中俄合作靠吹地
+例如，媒体曾报道，[澳洲悉尼警察对几名去加油站购买口罩的平民大打出手](https://gnews.org/zh-hans/1741415/)。闭路电视视频显示，一名警察在一名男子躺在地上时用膝盖向他攻击五次。
 
-疫情面前人平等 冬奥放倒几百兵
+相信这些恶意执法的警察，会得到法律公正的审判。
 
-几百阳性往哪搁 中共灭共来宾说
+消息来源： [BREAKING: Tactical police and dog squad move in on ‘Freedom Camp’](https://www.rebelnews.com/breaking_tactical_police_and_dog_squad_move_in_on_freedom_camp)
 
-恐惧撒谎瞒天下 无雪冬奥真可笑
+[堪比香港恶警澳洲警察对平民出重手恶意执法](https://gnews.org/zh-hans/1741415/)
 
-正道主义天助力 灭共时间往前提
+[When police officers can use force in Australia and what is ‘reasonable’](https://www.abc.net.au/news/2020-06-19/when-police-officers-can-use-force-in-australia/12369404)
 
-喜币支付已开门 大把货币往外移
-
-共匪内部已乱套 七哥七哥留喜币
-
-贩卖人口多少年 邪恶政府它不管
-
-徐州铁环锁女性 全球媒体广宣传
-
-女性人权在哪里 全是假话共匪地
-
-小的事件惊天地 灭共事业都参与
-
-G系投资全民来 早灭共匪乐开怀
-
-疫苗运动全球起 新冠病毒索源去
-
-中共此事难逃脱 千万党员莫迟疑
-
-灭掉中共老杂毛 世界太平看今朝
-
-美国经济晚上说 时间不变等七哥
-
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

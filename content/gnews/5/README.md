@@ -2,48 +2,40 @@
 ---
 
 
-## GoFundMe 表示所有捐给卡车车队的款项将自动退还
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1965291/)
+## 美国16个州对联邦的中共疫苗强制令提起新的诉讼
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1965371/)
 
-**编译：Jenny Ball**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnipGoFundMe-表示所有捐给卡车车队的款项将自动退还.png)图片来源：beepochtimes.com
-GoFundMe（“请给我捐款”） 筹款平台 2 月 5 日表示，在遭到强烈反对后，它将自动退还向加拿大抗议 COVID-19 疫苗授权卡车车队提供的的捐款。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/11129607.jpg)图片来源：Just the News新闻网站
+美国Just the News新闻网站2022年2月4日报道，16个州再次挑战联邦政府针对那些在接受医疗保险和医疗补助的设施中工作的医护人员的中共病毒疫苗强制令。
 
-GoFundMe 周五表示，它正在阻止资金流向 “自由车队”（Freedom Convoy）的组织者，而是将资金汇给“经过 GoFundMe 验证的知名慈善机构”。
+周五在美国路易斯安那州西区地方法院提交的诉讼是在美国医疗保险和医疗补助中心(U.S. Centers for Medicare & Medicaid, CMS)发布关于疫苗强制令的最终指南后提出的，诉讼认为该指南是一个可复审的行动。
 
-**这个不寻常举动的理由是什么？** GoFundMe 说：“我们现在有来自执法部门的证据表明，之前的和平示威已经演变，警方报告了暴力和其他非法活动。”
+美国最高法院于1月13日以5比4的投票结果裁定，反对路易斯安那州对该强制令的最初挑战和密苏里州的类似诉讼。路易斯安那州的第一个诉讼最初导致了11月下旬的全国性禁令。在最高法院作出裁决后，一家联邦法院驳回了德克萨斯州的类似诉讼。
 
-该网站没有提供任何涉嫌暴力或非法活动的证据。
+田纳西州州长比尔·李(Bill Lee)说，他相信重新提起的诉讼。田纳西州加入了亚利桑那州、阿拉巴马州、佐治亚州、爱达荷州、印第安纳州、肯塔基州、路易斯安那州、密西西比州、蒙大拿州、俄亥俄州、俄克拉荷马州、南卡罗来纳州、犹他州、弗吉尼亚州和西弗吉尼亚州的新诉讼。
 
-代表车队组织者的法律团体宪法自由司法中心主席乔恩·卡佩 (Jon Carpay) 告诉《大纪元》，该筹款公司在没有公开证据的情况下，“没有可信度”。组织者在简报会上说，警察正在使用“压迫政权”通常使用的措施，试图剥夺卡车司机“和平集会和言论自由的权利”，媒体报道和官员错误地将外人犯下的罪行与抗议者联系起来。
+“我们正在法庭上重新挑战CMS的疫苗强制令，这样田纳西州的医护人员就有权利做出私人医疗保健决定。”李说，“这项强制令代表了联邦最严重的越权行为的同时，它也威胁到我们为设施配备人员和为老年人、残疾人和其他重点人群提供护理的能力。”
 
-“但是，由于捐助者的反馈，我们正在简化流程。我们将自动直接退还所有捐款——捐助者无需提交申请。您可以在 7-10 个工作日内看到您的退款，”该公司表示。
+CMS的规定指出，未参与诉讼的各州的工人必须在2月28日前接种疫苗，涉及裁决的工人必须在3月15日前接种疫苗。德克萨斯州的工人必须在3月21日之前完全接种疫苗。
 
-GoFundMe 的行为是审查，特别是该平台允许以前与暴力有关的人开展募捐活动。
+新诉讼中的16个州认为，中共病毒的奥密克戎(omicron)变体已经导致了卫生保健人员的配备问题，而疫苗强制令会让这个问题成倍增加。
 
-佛罗里达州州长、共和党人罗恩·德桑蒂斯 (Ron DeSantis) 表示，GoFundMe “将用于支持卡车司机的 900 万美元捐款用于他们自己选择的事业，是一种欺诈行为。”
+简评：
 
-德桑蒂斯表示，他将与佛罗里达州总检察长阿什利·穆迪（Ashley Moody）合作，“调查这些欺骗行为——这些捐赠者应该得到退款。”
+不轻言放弃，美国这十六个州针对医护人员的中共病毒疫苗强制令的再次起诉，让我们看到美国人秉承的坚持。可以看到，尽管欧美多个国家逐步开始取消中共病毒限制令，但是针对医护人员的疫苗强制令并没有看到好转。医护人员是对抗这场由中共发动的生化大战的一线工作人员，他们亲历病毒感染，现在正在对抗疫苗带来的灾难和副作用，而强加在他们身上维护自己健康与安全的权力却被剥夺。就像这十六个重新上诉为医护人员争取权利的州一样，我们爆料革命的战友更需要不遗余力地宣传中共病毒以及疫苗真相，用我们的双手去停止这场屠杀。
 
-众议院司法委员会最高共和党众议员吉姆·乔丹（Jim Jordon）也表示，该小组可能会调查所发生的事情。
-
-“GoFundMe 在西雅图推广ANTIFA 占领的 CHOP 区，但却为抗议COVID 指令的卡车司机关闭了筹款活动， 说我们有问题，”他在推特上写道，指的是被称为国会山有组织保护的自治区，该区在几次枪击事件后于 2020 年在华盛顿州被关闭。
-
-自由车队组织者最近求助于 GoFundMe 的竞争对手GiveSendGo 来筹集资金。一位女发言人通过电子邮件告诉《大纪元》，GiveSendGo 周六因“机器人网络攻击”而停机。她说，该公司正在“尽可能快地/努力地”恢复网站。
-
-**评论：**
-
-**不禁为GoFundMe感到悲哀**，**加拿大卡车司机是在为包括你们和你们的子孙后代的自由而抗争，你们却釜底抽薪！你们的后代一定不会饶恕你们**。
-
-**新闻来源**：[beepochtimes.com][GoFundMe Says All Donations to Trucker Convoy Will Be Automatically Refunded; Florida to Investigate](https://www.theepochtimes.com/gofundme-says-it-will-automatically-refund-all-donations-to-trucker-convoy-florida-to-investigate_4258597.html?utm_source=News&amp;utm_campaign=breaking-2022-02-05-3&amp;utm_medium=email&amp;est=42eMVfERd9Mhvtufd7Tc8fWUIwdwc5dfwSiBHz0dXABCkkF4a1O%2BlTW1O5wvLMN6)
+新闻链接：[Sixteen states file new lawsuit against federal COVID vaccination mandate](https://justthenews.com/nation/states/center-square/sixteen-states-file-new-lawsuit-against-federal-covid-vaccination?utm_source=justthenews.com&amp;utm_medium=feed&amp;utm_campaign=external-news-aggregators)
 
 * * *
 
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-1.jpeg)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

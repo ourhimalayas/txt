@@ -2,32 +2,44 @@
 ---
 
 
-## 美国新冠死亡人数破90万！一个半月内激增10万人病殁
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1965176/)
+## 过去一周290名完全接种马萨诸塞州居民死于COVID病毒
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1965238/)
 
-整理/编辑：Little Lamp
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-02-下午10.11.59-4.png)
-据法新社报导，约翰普霍金斯大学的数据显示，近一个半月以来，美国新增10万人死于新冠肺炎，截至当地时间2月4日，美国死于新冠肺炎的人数已超过 90万人，而一个半月前这个数据只是80万例。
+**编译: Mandel**
 
-根据美国政府的数据，与Omicron变异毒株相关的新增病例正在减少，但单日新增的死亡人数仍然在上升，目前平均约为2400人。也就意味着，美国目前每天约有2400个家庭正在经历丧亲之痛。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip过去一周290名完全接种马萨诸塞州居民死于COVID病毒.png)图片来源: Free West Media
 
-美国CDC主任瓦伦斯基表示，住院的人数仍然很高，全国部分地区的医疗照护能力和人力已经达到极限。
+在过去的一周里，马萨诸塞州有近300名完全接种疫苗的居民死于突破性COVID-19感染，即使全州的病例数已经下降。
 
-由于新冠死亡案例通常发生在[患者](https://udn.com/search/tagging/2/%E6%82%A3%E8%80%85)感染病毒的数周后，解释了为何死亡人数激增会发生在新增确诊数攀升之后。
+在1月22日至29日期间，马萨诸塞州卫生官员报告了另外290例突破性COVID-19死亡病例，使该州完全接种疫苗的总死亡人数达到1789人。这一数字占该州接种人口的0.03%。
 
-根据政府的数据，以绝对值来说，美国是全球新冠死亡人数最多的国家，超越巴西和印度。
+在同一时期，卫生官员还记录了27,530起新的突破性感染和555起额外的住院治疗。目前，该州已报告了422,132个病例和6,440名完全接种疫苗者的入院情况。根据马萨诸塞州公共卫生部的最新COVID-19疫苗数据，这些数字分别占该州接种人口的8.1%和0.12%。
 
-文章来源：[美國新冠死亡人數破90萬！一個半月內激增10萬人病歿](https://udn.com/news/story/6811/6077166?from=udn-catebreaknews_ch2)
+突破性病例是指已经完全接种或得到了COVID-19疫苗加强针的人在最后一次接种COVID-19疫苗后至少14天，检测到病毒阳性。
 
-*发布：tianzhihuan*
+尽管突破性病例的数量不断增加，公共卫生专家仍然敦促人们接种疫苗，指出注射疫苗有助于防止严重疾病、住院和死亡。卫生专家还指出，突破性病例是可以预期的，因为没有任何疫苗能100%有效地预防感染。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+CNN进行的数据分析发现，公共卫生部的报告是在马萨诸塞州在过去14天里每日新病例减少62%的情况下发布的。
 
-#  
+周三，马萨诸塞州卫生官员报告了4,973个新的确诊病例，在未接种疫苗和接种疫苗的人群中又有87人死亡。这使得该州自大流行开始以来的总体感染人数达到1,493,224人，死亡人数达到21,633人。
+
+在过去14天里，大多数病例发生在20至29岁的人身上。据报告，80岁及以上的人的病例数量最少。
+
+截至周三，马萨诸塞州共有1,799名因COVID-19而住院的病人。至少有298名患者被送入重症监护室（ICU），176人插管。
+
+根据[卫生部门的记录面板](https://www.mass.gov/info-details/covid-19-response-reporting#covid-19-interactive-data-dashboard-)，该州的七天平均测试阳性率在周三达到6.37%，低于周二报告的7.13%。 由Danielle Ong 于2022年2月2日报道。
+
+**新闻来源**：[globalresearch.ca][290 Fully Vaccinated Massachusetts Residents Died of COVID-19 Over Past Week](https://www.globalresearch.ca/290-fully-vaccinated-massachusetts-residents-died-covid-19-over-1-week/5769329)
+
+* * *
+
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-1.jpeg)
+
+
 
  
 

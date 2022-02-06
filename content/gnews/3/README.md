@@ -2,29 +2,34 @@
 ---
 
 
-## 速报┃疫情大爆发？广西百色宣布封城
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1965326/)
+## 美国警告中企不要试图帮助俄国对付美国制裁
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1965407/)
 
-撰稿：东京樱花团/知了知了
+整理：Sara9
+编辑：Little Lamp
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/疫情大爆发？广西百色宣布封城.png)[图片来源](https://www.ndrc.gov.cn/xwdt/xwfb/202004/t20200408_1225372.html?code=&amp;state=123)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/雅典娜快讯图.png)图片来源：雅典娜设计组
 
-据广西百色市官方消息，自2月4日发现第1例确诊病例以来，截至2月6日16时，广西百色市中共病毒（新冠病毒Covid-19）本轮疫情累计有确诊病例43例，其中德保县37例、右江区2例、田阳区1例、隆林县1例、靖西市2例。
 
-百色市从2月6日起实施封城，在全市范围内交通管制，原则上车辆和人员不进不出，百色市内各县（市、区）之间、各县（市、区）内各乡（镇）之间不进不出，各县（市、区）、各乡（镇）内部严格执行人员管控，非必要不流动。
+据VOA报道，美国周四向中国企业发出警告，不要试图帮助俄罗斯逃避美国对俄罗斯实施的出口控制，俄中同盟不足以对抗美国的制裁。
 
-中共对待疫情从来都只有一招，封城。从武汉，到西安，到禹州，到安阳，到天津，到现在的百色。如此铁桶牢笼下多少人民正在失去生命，正在经历人道灾难，中共不灭永远都是个迷。
+普莱斯是在中国与俄罗斯外长周四在北京会晤协调双方在乌克兰局势上的立场后发表这番评论的。美国和北约将对俄罗斯迅速实施严厉的经济制裁。
 
-信息来源：
+“如果我们发现外国公司，包括在中国的公司试图避开美国的出口管制，躲避这些行动，绕开这些行动，那么，我们就有一系列的工具可以动用。俄罗斯应该明白，俄中关系加强并不能抵消入侵乌克兰所造成的后果。”
 
-[广西百色：为防疫情外溢对确诊病例活动轨迹涉及区域进行分级管控](https://www.sohu.com/a/520931560_114988)
+“如果俄罗斯认为可以通过加强与中国的关系来减缓入侵带来的后果，那它就错了。（制裁）实际上将会在许多方面让俄罗斯经济变得更加脆弱。”
 
-[2月6日起广西百色实施全市范围交通管制 原则上车辆和人员不进不出](https://www.yicai.com/news/101308557.html)
+如果你失去了与西方进行交易的能力，失去了从西方、从欧洲、从美国获取进口的能力，那么你的生产能力和创新潜能将会大大下降，
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
+文章来源：[美国警告中企不要试图帮助俄国对付美国制裁](https://www.voachinese.com/a/u-s-warns-chinese-firms-against-helping-russia-against-potential-ukraine-sanctions-20220204/6426595.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
