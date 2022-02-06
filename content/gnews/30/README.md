@@ -2,46 +2,39 @@
 ---
 
 
-## 法院责令FDA于未来半年内公布辉瑞疫苗文件
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1967028/)
+## 荷兰发现超级突变 HIV 毒株
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1967078/)
 
-作者：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-2月2日，德克萨斯州北区地区法院签发的一份判决书，责令美国食品和药物管理局FDA在未来的半年内，必须按期公开长度超过33万页的辉瑞中共病毒疫苗的审批文件，直到全部文件完全被公之于众。
+撰稿：小毛牛
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/7-6.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/020502.jpg)
 
-此前，FDA在回应遵守“信息自由法案 (FOIA) ”的初审判决时，请求以每月 500 页的速度公布与辉瑞疫苗相关的数十万份文件。该判决书表示，法院收到FDA要求修改排期令的动议，也收到一份联合状况报告，阐明了原、被告双方商定的时间表。法院根据这份时间表，批准了部分动议。命令：
+网络图片
 
-1、FDA的报告必须在每个月的第一个工作日提交；
+最新消息：在荷兰发现了一种新的高度传染性和危险的 HIV 变种，这证实了科学家们早前的最坏预期。
 
-2、FDA在3月、4月，各提交1万页；
+由牛津大学大数据研究所的研究人员领导的一项国际合作研究，在分析了 6700 多个阳性样本后确定了 109 例新的“毒性 B 亚型”(VB) 变体。而且这个新变种的传播性和危险性更高。
 
-3、FDA在5月、6月和7月各完成8万页；在8月完成7万页；此后在每个月的第一个工作日提交5.5万页，直到公布完毕。
+该研究揭示了 VB 毒株和其他 HIV 变体之间的显著基因组差异。研究者们还补充说道：携带 VB 变体的个体的病毒载量（血液中的病毒水平）高出 正常人的3.5 到 5.5 倍。该研究成果已发表在《科学》杂志上。
 
-该判决书还允许提前完成公布页码数量，并且将每40行算作一页，而不是之前的20行算作一页。
+CD4 细胞下降的速度是 HIV 对免疫系统造成损害的标志，在携带 VB 变体的个体中发生的速度是正常HIV的两倍，这使得人们面临更容易患上艾滋病的风险。” 与此同时，携带 VB 毒株的患者将病毒传播给其他人的风险也在增加。
 
-参考链接：
+这些结论证实了长期以来的担忧，即新的突变可能使 HIV-1 病毒更具传染性和更危险。根据联合国艾滋病毒/艾滋病联合规划署的数据，自 1980 年代初艾滋病流行以来，它已经影响了全球 3800 万人，并且已经有3600 万人死于与艾滋病有关的疾病。当然已确定的 VB 病例数量相对还较少，但是实际数字可能会更高。
 
-- [https://twitter.com/disclosetv/status/1489688729778274304?s=21](https://www.newsmax.com/newsfront/johns-hopkins-researchers-lockdowns-covid/2022/02/01/id/1054965/)
-- [UNITED STATES DISTRICT COURT FOR THE NORTHERN DISTRICT OF TEXAS FORT WORTH DIVISION](https://phmpt.org/wp-content/uploads/2022/02/056-ORDER-GRANTING-IN-PART-THE-MOTION-TO-MODIFY-THE-PRODUCTION-SCHEDULE-AND-ADDOPTS-THE-JOINT-STATUS-REPORT-MODIFIED-AGREED-PRODUCTION-SCHEDULE.pdf)
-- [FDA想75年才公布完疫苗数据却被法官大提速](https://gnews.org/zh-hans/1886642/)
-- [为什么法官命令 FDA 立即发布 Covid-19 疫苗数据](https://gnews.org/zh-hans/1891996/)
+好消息是：在开始治疗后，携带 VB 变体的个体的免疫系统恢复和存活率与携带其他 HIV 变体的个体相似。
+
+另一个好消息是：根据研究人员的估计，VB 变种自1980 年代后期， 1990 年代，以及在 2000 年代传播速度一直增强，然而自 2010 年左右以来其传播速度却一直在下降。
+
+需要引起人们注意的是：由于新菌株会导致免疫系统防御系统更快恶化，所以早期诊断个体并尽快开始治疗是至关重要的。
+
+笔者相信突变不是偶然的，只有追溯突变病毒的源头，才能防止世界毁灭。
+
+新闻来源：[Super-mutant HIV strain discovered in Europe](https://www.rt.com/news/548318-discovered-mutant-hiv-strain/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
 
-总编：文真
-编辑：Delilah小胖
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

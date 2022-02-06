@@ -2,31 +2,44 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年2月6日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1967220/)
+## 有声|灭共者之郭氏情报站（二十一）2022/02/04 文贵大直播
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1967308/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-3.jpg)
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+**灭共者-郭氏情报站**
+**2022年2月4日 文贵大直播总结提炼**
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-5.png)
-文章仅代表作者本人观点，与Gnews无关
+1、今天大好的日子，普京团队16个人染上病毒。特警劫击手死掉，这意味着什么？冬奥会来了33个国家元首，33个国家力量加起来，连美国一个州都不如。今天的冬奥会，共产党怕七哥、新中国联邦和盘古。战友们要看到我们的未来。
 
-视频参看：
-[2022.02.06早 《NFSC新闻》](https://gtv.org/video/id=61ffcce13621aa7415d66a6e)
-[2022.02.06早 G|TV《新闻访谈》](https://gtv.org/video/id=61ffd5fd3621aa7415d680bf)
+2、美国有史以来，何时不尊重中国人了？现在中国人动不动玻璃心，说美国人针对你。美国外交撤离，真的是逼到一点办法没有了。然后搞出了这个精神阳痿的冬奥会。可以看到，现在冬奥会直播的摄像机，全在盘古。习的脸太吓人了。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+3、Paypal在我们发展HPAY那一天就已经没有了。Paypal和Stripe，只是把过去的铁脚镣变成了铜脚镣。他的科技性，技术性，安全性完全没有，背后都有中共的投资。HPAY上线后，转账秒到，不可查，无条件。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-callendar.jpeg)
+4、5月份后，美国经济才会大崩盘。接下来，躺平币要上线。HPAY上线后，几个功能已经更新了。PAYPAL, STRIPE，几位高管都已经过来HPAY了。看美国经济，今天的预热，如果还持有这些人的股票，在山崩之前，还有离开的机会。战友们，有美股的快撤，HPAY这个历史性的机会，不要错过。这次经济危机，会让美国迎来一次新的腾飞。
+
+5、冬奥直播角度都在盘古。这帮孙子，抢走盘古，在盘古做冬奥会直播。你看现场，习的那个感觉。新中国联邦是他最担忧的群体，冬奥会别无选择在冬奥对面开，还在盘古上面直播。
+
+6、美国的量子电脑，生物科技，太空科技，新型材料，都太厉害了。马斯克把太空的材料搞明白了。中国连飞机上耐热材料都搞不定，不可能有自研大飞机。未来人类换脑子换心换肝，说换就换了。量子电脑，已经出来了，可以在头发丝上刻出上百亿的代码，而共产党连芯片都造不出来，就这么大的差距。今天的美国和中国的差距在哪呢？中共上天的技术是偷人家苏联，美国的。全人类有史以来，精英都吸引到了美国，因为美国给全世界相对最自由的法治民主环境。
+
+7、HPAY是百分百让人类的财务自由，新中国联邦喜联储系统将建立世界的金融标准。这次HPAY，喜联储做的非常好，就是不能收手续费。未来贷款，是一定要付利息。存款，是要给利息，这两种交易是要赚钱的。未来HPAY大额，是要收 钱的，比如100万，到一个亿。HPAY将把支和付，钱进钱出的活动，零成本地完成，这个意义太大了。
+
+8、所有的，GCLUB，在半年到一年内，不会停。但卖的政策一定会调整。 比如一万的卡是否会让你升级。等功能都出来后你就明白了。不是为了卖卡，就是为了把战友分层次，分时间地和新中国联邦的未来绑在一起。
+
+文字版原文：[灭共者之郭氏情报站（二十一）2022/02/04 文贵大直播](https://gnews.org/zh-hans/1962629/)
+
+音频处理：Fei797
+发稿：Fei797
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
 
 **更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
