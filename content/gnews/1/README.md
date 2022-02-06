@@ -2,8 +2,8 @@
 ---
 
 
-## 中共病毒的起源 为何没更多人质疑
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1965445/)
+## 疫苗注射对人体免疫系统的危害
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1965502/)
 
 台灣寶島農場
 
