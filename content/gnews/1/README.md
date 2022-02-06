@@ -2,33 +2,34 @@
 ---
 
 
-## 【TopNews】接种三剂COVID-19 疫苗的土耳其总统埃尔多安检测呈阳性
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/1966596/)
+## 开幕式庆典参与各方称身处“一场噩梦”
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1966643/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/B1D98B46-8ADE-4CB3-8A53-18B2F5A57854.jpeg)
-据美联社报道，土耳其总统雷杰普·塔伊普·埃尔多安（Recep Tayyip Erdogan）周六在推特上发文称，他的 COVID-19 检测呈阳性。
+作者：纽约香草山 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月5日，郭文贵先生在盖特视频中，透露了参加4日冬奥会开幕式的各阶层人士的三点反馈：这里一切都是假的，简直是一场噩梦，中共完了。
 
-他写道：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide6-5.jpeg)
 
-“今天，我和妻子的 COVID-19 检测呈阳性，症状轻微。值得庆幸的是，我们正在经历轻微的症状，我们了解到的是 omicron 变体，”。“我们正在隔离。我们将继续在家工作。我们期待您的祈祷。”
+郭先生指出，首先，开幕式的一切都透着“假大空”。看似华丽热闹的表演，但是，一切都是假的。其次，不管是组织还是个人，也无论是记者、官员，还是运动员，都感到处处透着令人恐惧的气氛，简直像是身处一场噩梦之中。第三，美国的抵制和外交撤离，让人感觉到这个国家充满了恐惧，让人感到没有任何希望。这一切表明：中共完了。
 
-67 岁的埃尔多安在通过视频链接出现在伊斯坦布尔的隧道开通仪式上，发送了这条消息，他取消了亲自露面。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8CFBE52E-EE2C-4584-8A83-91E5B5014ABF.jpeg)
-第一夫人艾米娜·埃尔多安（Emine Erdogan）在推特上回复说：“愿上帝保佑，我们将与塔伊普先生一起摆脱这种感染。”
-土耳其总统去年 6 月接种了第三剂疫苗。
-几位世界领导人祝愿埃尔多安和第一夫人早日康复。
-发来信息的有巴基斯坦总理伊姆兰汗、阿塞拜疆总统伊利哈姆阿利耶夫、北塞浦路斯土耳其共和国总统埃尔辛鞑靼和乌克兰总统泽连斯基。汗在他的推特账户上写道，“我代表我们的政府、巴基斯坦人民和我个人祝愿他们早日完全康复。”
+郭先生说，这些与会人员终于相信了爆料革命，纷纷打听如何使用HPay，如何从中共国迅速安全转移资产。郭先生表示，只有一心一意的灭共，和新中国联邦战友团结在一起，才能拥有一切和未来。
 
-土耳其最近几天出现了创纪录的 COVID-19 病例，卫生部周五报告了 111,157 例病例。12 月下旬，每日病例数约为 20,000，但由于高度传播的 omicron 变体而有所上升。
+参考链接：[https://gettr.com/post/pso6vra94f](https://gettr.com/post/pso6vra94f)
 
-该国也因 COVID-19 感染病例导致大量死亡，周五报告有 248 人死亡，这是自 10 月以来的最高水平。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-[援引链接：](https://apnews.com/article/coronavirus-pandemic-health-europe-recep-tayyip-erdogan-istanbul-089ac4910697c94f50005b54b725ba7c)
+总编：Ivy001
+编辑：Jack Li文阳
+校正/发稿：谐趣园
 
-撰稿/米拉娅
-审阅/邱杰斯
-上传/天赐良闻
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

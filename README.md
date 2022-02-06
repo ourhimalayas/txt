@@ -15,118 +15,118 @@
 
 ---
 
-### [【TopNews】接种三剂COVID-19 疫苗的土耳其总统埃尔多安检测呈阳性](/content/gnews/1/README.md)
+### [开幕式庆典参与各方称身处“一场噩梦”](/content/gnews/1/README.md)
+ ` NFSC News`
+
+### [中共冬奥开幕式致数百名青少年演员染疫](/content/gnews/2/README.md)
+ ` NFSC News`
+
+### [揭秘中共间谍单伟健的前世今生](/content/gnews/3/README.md)
+ ` NFSC News`
+
+### [【TopNews】接种三剂COVID-19 疫苗的土耳其总统埃尔多安检测呈阳性](/content/gnews/4/README.md)
  ` topnews`
 
-### [普京闪电离京 冬奥会开幕式成了中共闭幕式](/content/gnews/2/README.md)
+### [普京闪电离京 冬奥会开幕式成了中共闭幕式](/content/gnews/5/README.md)
  ` 秘密翻译组-原创组`
 
-### [【TopNews】“主动感染”中共病毒试验结果惊人](/content/gnews/3/README.md)
+### [【TopNews】“主动感染”中共病毒试验结果惊人](/content/gnews/6/README.md)
  ` topnews`
 
-### [2022年2月6日郭先生大直播 文字同步精要](/content/gnews/4/README.md)
+### [2022年2月6日郭先生大直播 文字同步精要](/content/gnews/7/README.md)
  ` 焦點20分`
 
-### [中共解放军集结东南沿海意图侵略台湾](/content/gnews/5/README.md)
+### [中共解放军集结东南沿海意图侵略台湾](/content/gnews/8/README.md)
  ` NFSC News`
 
-### [教练被隔离 花样滑冰运动员感到“茫然”](/content/gnews/6/README.md)
+### [教练被隔离 花样滑冰运动员感到“茫然”](/content/gnews/9/README.md)
  ` NFSC News`
 
-### [中共要求记者提前8小时集合](/content/gnews/7/README.md)
+### [中共要求记者提前8小时集合](/content/gnews/10/README.md)
  ` NFSC News`
 
-### [【TopNews】日本首相官邸接连有人确诊感染者曾与岸田会面](/content/gnews/8/README.md)
+### [【TopNews】日本首相官邸接连有人确诊感染者曾与岸田会面](/content/gnews/11/README.md)
  ` topnews`
 
-### [美国及世界疫情简报 （02-06-2022）](/content/gnews/9/README.md)
+### [美国及世界疫情简报 （02-06-2022）](/content/gnews/12/README.md)
  ` 波士顿五月花农场`
 
-### [巴西Itajaí市全民测试证明 伊维菌素可降低感染、住院和死亡](/content/gnews/10/README.md)
+### [巴西Itajaí市全民测试证明 伊维菌素可降低感染、住院和死亡](/content/gnews/13/README.md)
  ` 温哥华扬帆农场`
 
-### [樱花头条┃日本首相官邸接连有人确诊 感染者曾与岸田会面](/content/gnews/11/README.md)
+### [樱花头条┃日本首相官邸接连有人确诊 感染者曾与岸田会面](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【TopNews】克罗地亚政客将强制性Covid-19疫苗接种比作“死刑”](/content/gnews/12/README.md)
+### [【TopNews】克罗地亚政客将强制性Covid-19疫苗接种比作“死刑”](/content/gnews/15/README.md)
  ` topnews`
 
-### [有声|德国、日本的中共病毒感染率再创新高](/content/gnews/13/README.md)
+### [有声|德国、日本的中共病毒感染率再创新高](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [樱花头条┃普京参加冬奥会前 获北京“大礼” 却缺席习近平宴会](/content/gnews/14/README.md)
+### [樱花头条┃普京参加冬奥会前 获北京“大礼” 却缺席习近平宴会](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [DC每日热点0206](/content/gnews/15/README.md)
+### [DC每日热点0206](/content/gnews/18/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [有声|巴赫将在北京冬奥会与彭帅会面](/content/gnews/16/README.md)
+### [有声|巴赫将在北京冬奥会与彭帅会面](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [02/06/22 香港快讯 跨境货柜车司机怀疑确诊影响货运 内地入口菜价急升](/content/gnews/17/README.md)
+### [02/06/22 香港快讯 跨境货柜车司机怀疑确诊影响货运 内地入口菜价急升](/content/gnews/20/README.md)
  ` 英喜-粵語組`
 
-### [银河快讯：日本奥委会建议运动员回国后立即删除北京冬奥专用APP；日本沙特讨论石油市场稳定](/content/gnews/18/README.md)
+### [银河快讯：日本奥委会建议运动员回国后立即删除北京冬奥专用APP；日本沙特讨论石油市场稳定](/content/gnews/21/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [有声|美众院通过议案内含呼吁正名台湾驻美代表处](/content/gnews/19/README.md)
+### [有声|美众院通过议案内含呼吁正名台湾驻美代表处](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [2022/02/06 英喜时事速递](/content/gnews/20/README.md)
+### [2022/02/06 英喜时事速递](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|藏人在奥林匹克总部抗议北京冬奥会](/content/gnews/21/README.md)
+### [有声|藏人在奥林匹克总部抗议北京冬奥会](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [文贵大直播 2/6 北京冬奥：会成为中共无法闭幕的冬眠会](/content/gnews/22/README.md)
+### [文贵大直播 2/6 北京冬奥：会成为中共无法闭幕的冬眠会](/content/gnews/25/README.md)
  ` 秘密翻译组-原创组`
 
-### [2/5银河快讯:日本长期利率暂时升至0.2%；农产品出口首次突破1万亿日元](/content/gnews/23/README.md)
+### [2/5银河快讯:日本长期利率暂时升至0.2%；农产品出口首次突破1万亿日元](/content/gnews/26/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [有声|求佛](/content/gnews/24/README.md)
+### [有声|求佛](/content/gnews/27/README.md)
  ` MOSREC`
 
-### [习近平宴会致辞，念念不忘习皇梦](/content/gnews/25/README.md)
- ` 波士顿五月花农场`
-
-### [有声|思念](/content/gnews/26/README.md)
+### [有声|思念](/content/gnews/28/README.md)
  ` MOSREC`
 
-### [爆料革命——历史的今天12月22日](/content/gnews/27/README.md)
+### [爆料革命——历史的今天12月22日](/content/gnews/29/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [2021年12月20-22日 郭先生视频部分内容整理](/content/gnews/28/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [调查显示日本民众大多数赞成政府外交抵制冬奥会](/content/gnews/29/README.md)
+### [调查显示日本民众大多数赞成政府外交抵制冬奥会](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中美初次建交，文明穿越百年](/content/gnews/30/README.md)
+### [中美初次建交，文明穿越百年](/content/gnews/31/README.md)
  ` NFSC News`
 
-### [G系列产品将成为全球最佳金融避险港湾](/content/gnews/31/README.md)
+### [G系列产品将成为全球最佳金融避险港湾](/content/gnews/32/README.md)
  ` NFSC News`
 
-### [三项物价指标直指美国经济崩塌节点](/content/gnews/32/README.md)
+### [三项物价指标直指美国经济崩塌节点](/content/gnews/33/README.md)
  ` NFSC News`
 
-### [中共治下一个妇女的价值等同于20蛤蟆](/content/gnews/33/README.md)
+### [中共治下一个妇女的价值等同于20蛤蟆](/content/gnews/34/README.md)
  ` MilesGuoLivePPT`
 
-### [坚定的伊丽莎白：女王登基70周年](/content/gnews/34/README.md)
+### [坚定的伊丽莎白：女王登基70周年](/content/gnews/35/README.md)
  ` 新西兰农场【光影传镜】`
 
-### [2/6银河快讯: 美国对部分日本钢铁免征关税；日美韩将举行外长会议讨论朝鲜导弹问题](/content/gnews/35/README.md)
+### [2/6银河快讯: 美国对部分日本钢铁免征关税；日美韩将举行外长会议讨论朝鲜导弹问题](/content/gnews/36/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [樱花头条┃加拿大总理特鲁多在奥运会开幕之际 批评中国的人权记录](/content/gnews/36/README.md)
+### [樱花头条┃加拿大总理特鲁多在奥运会开幕之际 批评中国的人权记录](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [CNN《中共国高墙背后》：习普两个独裁者在冬奥相聚](/content/gnews/37/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [两名CNN记者将从高墙两侧报道隔离下的北京](/content/gnews/38/README.md)
+### [CNN《中共国高墙背后》：习普两个独裁者在冬奥相聚](/content/gnews/38/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [2/6/2022国内经济财经周报：墙内个人存取现金超5万将遭监控；Hpay正式上线，接受墙内人名币](/content/gnews/39/README.md)
