@@ -2,45 +2,47 @@
 ---
 
 
-## 过去一周290名完全接种马萨诸塞州居民死于COVID病毒
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1965238/)
+## Himalaya生态系统（二）
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1965333/)
 
-**编译: Mandel**
+**作者：此心不变**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/11129603.jpg)
+Himalaya生态系统必将会成为人类未来和平发展的基石。Himalaya生态系统现在是互联网，未来会是数据网、区块链网，不再受任何地域、国家、空间、数据大小的限制。在Himalaya生态系统里，GFashion和GMall包括了我们人类所需的衣食住行和时尚；GTV、GNews、GETTR是我们人类的言论、学术和信仰的自由平台；喜联储和数字银行是我们的数字财富保险柜；Himalaya Exchange喜交所是我们的数字财富交易中心；喜金融、喜保险、喜抵押和喜贷款是我们的数字财富的管理工具……
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip过去一周290名完全接种马萨诸塞州居民死于COVID病毒.png)图片来源: Free West Media
+郭先生在2017年站出来爆料时说，他要保命、保财、报仇，Himalaya生态系统全做到了。Himalaya生态系统的使命就是把人权和财富自由还给每一个人，你有了人权，才能做到保命；你有了财富自由，才能做到保财；这两样你都有了，邪恶金钱力量就没有生存空间，它就啥也玩不成，那么你的仇也报了。
 
-在过去的一周里，马萨诸塞州有近300名完全接种疫苗的居民死于突破性COVID-19感染，即使全州的病例数已经下降。
+美联储控制在达沃斯党手里，那么Himalaya生态系统控制在谁的手里？GClubs是未来的身份象征和通往新世界的门票，GTV是整个G系列的控股集团, 它拥有各种G系列投资，其中包括5%的喜联储权益，5%的GETTR权益等等，所以，Himalaya生态系统将会控制在GClubs会员和GTV原始股东手里，而法治基金和法治社会是Himalaya生态系统的安全基石。达沃斯党只有极少数的1000人左右，而GClubs会员和GTV原始股东可能是几百万、几千万、甚至更多人，它不是寡头，它有庞大的人数作为基数。但是，人如果没有信仰，还是很脆弱的，所以，Himalaya生态系统还必须拥有真正的教育系统，让人类拥有正道主义信仰，世代传承，万年和平。
 
-在1月22日至29日期间，马萨诸塞州卫生官员报告了另外290例突破性COVID-19死亡病例，使该州完全接种疫苗的总死亡人数达到1789人。这一数字占该州接种人口的0.03%。
+下面我来一个一个解读。我没有金融专业知识，我只有一些基本常识。讲的不对的地方请指正。
+[![](https://express.adobe.com/page/wePt2Xy9NC7Kt/images/4df26a0f-8fc7-470b-a1de-e00dd6883d4e.png?asset_id=36843da7-fbee-4272-a1a1-69f71e595ed8&amp;img_etag=%22d3a0e93d845abd6b0325cf80ae4a9452%22&amp;size=2823)](https://express.adobe.com/page/wePt2Xy9NC7Kt/images/4df26a0f-8fc7-470b-a1de-e00dd6883d4e.png?asset_id=36843da7-fbee-4272-a1a1-69f71e595ed8&amp;img_etag=%22d3a0e93d845abd6b0325cf80ae4a9452%22&amp;size=1024)
+GMall是我们的衣食住行，满足我们的生存需要；GFashion是我们的时尚，满足我们的生活需要。
 
-在同一时期，卫生官员还记录了27,530起新的突破性感染和555起额外的住院治疗。目前，该州已报告了422,132个病例和6,440名完全接种疫苗者的入院情况。根据马萨诸塞州公共卫生部的最新COVID-19疫苗数据，这些数字分别占该州接种人口的8.1%和0.12%。
+GTV的定位目前是灭共平台，那里有爆料革命、新中国联邦人四年来唯真不破的所有记录，包括揭露中共盗国贼的盗国行径，对香港反送中运动中的香港抗争者的精神与物质的支持，还有对威胁全世界75亿人的CCP生物武器和化学武器的真相揭露。灭共后，GTV主要面向中国人民，并成为连接中西文化的桥梁。其商业价值还有在线合法赌博、娱乐、游戏，等等，将满足老中青各年龄段的庞大需求。
 
-突破性病例是指已经完全接种或得到了COVID-19疫苗加强针的人在最后一次接种COVID-19疫苗后至少14天，检测到病毒阳性。
+GNews的定位目前是用文字传播真相。灭共后，GNews的定位和将Google一样，作为搜寻和探索之用，并将开辟一个全球情报自由交换平台，真正体现、兑现情报的价值。
 
-尽管突破性病例的数量不断增加，公共卫生专家仍然敦促人们接种疫苗，指出注射疫苗有助于防止严重疾病、住院和死亡。卫生专家还指出，突破性病例是可以预期的，因为没有任何疫苗能100%有效地预防感染。
+GETTR的定位是全球的社交平台。郭先生给GETTR的发展方向是：第一，必须是正义的、广泛接受全天下不同声音的平台；第二，绝对不能分党派、分政治观点立场、分种族；第三，必须包容全球多元文化；第四，绝对不能有暴力、恐怖主义、色情、虐童、犯罪等内容；第五，绝对不能传播虚假、诈骗信息。
+[![](https://express.adobe.com/page/wePt2Xy9NC7Kt/images/42674aa4-f592-4cf7-be30-dbfa84781967.jpg?asset_id=df39b02d-220d-4aaa-aad1-60db51143613&amp;img_etag=%2251c482c3188282afb99d68aadf31ca2c%22&amp;size=1024)](https://express.adobe.com/page/wePt2Xy9NC7Kt/images/42674aa4-f592-4cf7-be30-dbfa84781967.jpg?asset_id=df39b02d-220d-4aaa-aad1-60db51143613&amp;img_etag=%2251c482c3188282afb99d68aadf31ca2c%22&amp;size=1024)
+躺平币是去中心化的社交数字货币，当用户在手机上使用了GTV、 GETTR、 Gnews，躺平币就会根据用户的使用时间自动计算好应获得躺平币数量，划分给你，再通过喜支付、GETTR支付进行搜索、交易、使用。使用即可兑换金钱，使用即为价值，这将是社交媒体的一场革命。过去，社交媒体的价值取决于广告收入，所以社交媒体被金融寡头垄断，成为他们控制世界的利器。墙内有越筑越高的防火墙，墙外有社交媒体的全面封杀和舆论引导，如此下去，这个世界将永无真相。其实社交媒体的真正价值取决于使用，越多人使用，它所产生的经济效益就越高。现在，GTV、Gnews、GETTR把这个经济效益分享给每一位付出时间的人，使用产生价值，人人都有钱赚，而且，没人再能垄断社交媒体。
 
-CNN进行的数据分析发现，公共卫生部的报告是在马萨诸塞州在过去14天里每日新病例减少62%的情况下发布的。
+躺平币的三个核心元素是去中心化的数字货币、冷钱包、天空WI-FI，用来保护用户的隐私，截断监察，所以，在墙内也能使用。躺平币还有一个灭共的使命，当有一天共产党知道有人来墙内“偷”钱了，但就是查不着、找不着、抢不走的时候，最后，他们自己就会把贪来的钱财都乖乖放进躺平币的冷钱包里储存，这样即使共产党灭亡了，中国人民的财富也不会有大的流失。
 
-周三，马萨诸塞州卫生官员报告了4,973个新的确诊病例，在未接种疫苗和接种疫苗的人群中又有87人死亡。这使得该州自大流行开始以来的总体感染人数达到1,493,224人，死亡人数达到21,633人。
+躺平币是公链，喜币是私链，它们是完全不同的两个系统。躺平币的获取不经过KYC人工审核，但是提现需要通过KYC；喜币的获取要经过KYC人工审核。躺平币的支付系统是GETTR Pay，喜币的支付系统是Himalaya Pay。躺平币推出的第一天就能买面包买油，也能买 GFashion, GClubs。躺平币到底有多厉害，现在我们还不完全清楚，但我知道，只要躺平币出来，共产党就知道自己的棺材板要钉上钉子了。
 
-在过去14天里，大多数病例发生在20至29岁的人身上。据报告，80岁及以上的人的病例数量最少。
-
-截至周三，马萨诸塞州共有1,799名因COVID-19而住院的病人。至少有298名患者被送入重症监护室（ICU），176人插管。
-
-根据[卫生部门的记录面板](https://www.mass.gov/info-details/covid-19-response-reporting#covid-19-interactive-data-dashboard-)，该州的七天平均测试阳性率在周三达到6.37%，低于周二报告的7.13%。 由Danielle Ong 于2022年2月2日报道。
-
-**新闻来源**：[globalresearch.ca][290 Fully Vaccinated Massachusetts Residents Died of COVID-19 Over Past Week](https://www.globalresearch.ca/290-fully-vaccinated-massachusetts-residents-died-covid-19-over-1-week/5769329)
-
-* * *
-
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-1.jpeg)
+1. Himalaya生态系统（一）
+2. Himalaya生态系统（三）
+3. Himalaya生态系统（四）
 
 
+*编辑：【英国伦敦喜庄园编辑部】*
 
+*校对：仙女儿-文善 | 审核：文明明  | Page: Daoiii*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+[![](https://express.adobe.com/page/wePt2Xy9NC7Kt/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://express.adobe.com/page/wePt2Xy9NC7Kt/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
