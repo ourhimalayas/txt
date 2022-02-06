@@ -2,26 +2,40 @@
 ---
 
 
-## 中日财经爆|中共国房地产交易暴降5成 深圳10年新低
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1964518/)
+## 解析中共国虚假的进出口贸易数据
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1964663/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-544.png)[图片来源](https://www.sohu.com/a/513885114_100267533)
-中共国央行近期多次降准降息、放宽银根，但除了对股市产生短暂刺激作用，房地产市场却反应乏力，最新研究报告显示，1月份中共国29个重点城市的住宅整体成交额暴降近5成。
+特约撰稿：Opal
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-GTV-Gnews-HEADER-1.png)
+据中共国海关总署1月14日发布的数据显示，2021年，中共国货物贸易进出口规模首次突破6万亿美元，创下历史新高。其中，外贸增量达到了1.4万亿美元，相当于2005年全年外贸规模。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-549.png)图片来自：https://idsb.tmgrup.com.tr/
+然而经过比较，我们却发现，中共国海关统计的2021年1至11月，中共国出口美国的贸易额，相较于美国统计的、同期从中共国进口的贸易额多出631亿美元。而同期，中共国统计的、从美国进口的贸易额，也比美国统计数据多出247亿美元。2021年1至11月，中共国统计的进出口总和，比美国的统计数据多出878亿美元。
 
-中共国克而瑞地产研究中心2月1日的报告显示，中共国29个重点城市整体成交1429万平方米，年减几乎腰斩，达到46%，其中北京、上海、广州及深圳4个城市总成交为285万平方米，与上年同期相比降幅分别达38%，和上月相比降幅达21%；二、三线城市总成交1143万平方米，月减41%，年减47%，成交量腰斩。
+而2021年影响中共国经济生产贸易的大事件，诸如疫情对供应链的冲击、全国各地的天灾人祸、夏季的能源危机、房地产暴雷冲击建筑业与进口贸易、外资企业不断撤离、全球对中共的贸易制裁不断加剧，以及中共国最近实行的一系列货币宽松政策等，均证明，中共虚假操纵其进出口贸易数据。
 
-中共国央行近期多次降准降息、放宽银行贷款，但房地产市场仍然萧条。
+【参考链接】：
 
-深圳市房地产信息平台数据显示，1月份深圳二手房市场仅成交1557套，成交面积14.73万平方米，年减高达75.04%；二手房月度成交再度跌破2000套，再创近10年历史新低。
+[【愛谈财经】解析中共国造假的进出口贸易数据](https://gtv.org/video/id=61f6af0d96ba5d73e0bf38d6)
 
-另有分析表示，过去一年，中共国大陆各个行业衰退、失业人员增加，民众购买力急速下降，住宅成交下跌是必然现象。
+[China’s Trade Surplus Hits Annual Record in 2021 — Saw Double-Digit Growth in Exports Every Month](https://www.breitbart.com/asia/2022/01/14/chinas-trade-surplus-hits-annual-record-in-2021-saw-double-digit-growth-in-exports-every-month/)
 
-消息来源：[中國大陸29城市住宅成交降5成 分析：房市續疲軟](https://tw.news.yahoo.com/%E4%B8%AD%E5%9C%8B%E5%A4%A7%E9%99%B8-29-%E5%9F%8E%E5%B8%82%E4%BD%8F%E5%AE%85%E6%88%90%E4%BA%A4%E9%99%8D-5-%E6%88%90-%E5%88%86%E6%9E%90%EF%BC%9A%E6%88%BF%E5%B8%82%E7%BA%8C%E7%96%B2%E8%BB%9F-130523754.html?guce_referrer=aHR0cHM6Ly90dy5uZXdzLnlhaG9vLmNvbS8&amp;guce_referrer_sig=AQAAABFIj2JlKUtcvuc0Ua1f9uiByAigOesjRyhTLG2fr0IzngmEflD-yv7WmFbAJVEs-s5coV0fCalyuYMNa5vQkIc52YQgi3Xv9XlF-VJR9aJ9d0SJIbjQN8Gzm8aGuJ_rok2TmhJmXCb88LsENgXwuJRnm-qjCQJqbFoOqLoVxN61&amp;_guc_consent_skip=1644127648)
+[Trade in Goods with China](https://www.census.gov/foreign-trade/balance/c5700.html)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+[习近平和彭丽媛设宴欢迎出席北京2022年冬奥会开幕式的国际贵宾](http://www.gov.cn/xinwen/2022-02/05/content_5672094.htm)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-Shadow.png)
+
+编辑：雪梨
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
