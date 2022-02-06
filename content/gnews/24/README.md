@@ -2,30 +2,30 @@
 ---
 
 
-## MV版Hcoin To the Moon上线59天第46次位列澳门iTunes热门MV榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1966076/)
+## 爆料革命——历史的今天12月22日
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1966114/)
 
-2/6/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线59天第46次位列澳门iTunes热门音乐视频榜榜首，第53次位列前三名
+**整理：Pride**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-06-224039.png)
+**2018年12月22日—**美国政府要遣返Jho Low，马来西亚以国家之力保护他。他在美国，干的坏事太多了。不仅遣返郭先生，对司法部官员行贿，是对美国司法系统的重大打击。打着马来西亚政府的名义，到其他国家担保。他认罪目的，是要把案子给平了。
 
-* * *
+他不但玩明星，还变态往人家阴道里放辣椒。人家站出来，揭发他犯罪。结果不仅中国老百姓买单，还要成为国家功臣。说是拿下马来西亚总理、公检法，是“一带一路”的桥头堡。中国政府不惜一切要保护他，甚至提出跟遣返郭文贵一样的条件。只要事能拉到，大量释放关押在中国的间谍、情报人员、犯罪人员。
 
-[【PDF 下载】Sunday-6-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-6-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-6-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+**2019年12月22日—**在美国就三帮，假民主民运，假64代表，假宗教领袖。他们打着各种名义，在国会山游说—搞假政庇。跟共产党一样，精神和肉体绑架，榨取刚从大陆奴隶社会，跑出来人的剩余价值。
 
-* * *
+猪肉贵了，中国人吃不起，但可以吃狗肉。王岐山领导的全国打狗运动，杀了几亿只狗。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-6-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-6-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-6-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-6-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-6-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-6-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-6-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_83.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-6-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_101.jpg)
+**2020年12月22日—**每到年底，共产党各信用社、商行、大银行就拉高息存款。你谋人家利息，人家谋你本金。很多人在银行工作，弄的全是假贷款。现在填不上窟窿，就临时拉外边的钱，把坑填上。他被抓了，就是“非法存款，不受人民银行保护”。一句话就完了，不能干。挣合理、合法的钱，贪暴利、不正之财，就会受惩罚。
 
+如果没有海外生存的经济实力，一定待在中国二、三线城市，甚至农村。有基础和条件的，能到海外最好。三年前听了“爆料革命”出来，现在是最完美的—因为你是最安全的，不用舔共产党的屁股。
 
-[【PDF 下载】Sunday-6-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-6-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-6-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+世界文明国家都在驱逐、拒绝中国留学生，甚至给撵回国去。共产党把中国人有可能过好日子的机会，全给弄没了。海外小粉红，害死多少人。要不是我们在海外呼吁，让外国人把共产党和中国人分开。不仅是驱逐和拒绝签证，种族灾难随时会爆发。
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+**2021年12月22日—**不管打了几针疫苗，不吃药肯定会有副作用。刺突蛋白通过淋巴、血液两个渠道，攻击身体最弱地方。没有任何人，能逃过疫苗伤害。青蒿素、伊维菌素是唯一良药，正确吃药同时检查，百分之百没问题。
+
+Facebook、Youtube为了钱，屏蔽我们。华尔街、西方主流媒体过去拿钱，现在还拿钱。我们的存在，影响它们贪婪获取最大利益和对有良知人民的洗脑。它们没有安全感，更跟邪恶站在一起。
+
+HBO在冬奥会前播出采访，就是把我们消灭，变成邪教、骗钱、暴力犯罪集团；把共产党对西方世界的骇客、蓝金黄，一带一路造成的结果，转嫁给我们；让中美勾兑取消关税，做的一场政治宣传行动。
 
  
 

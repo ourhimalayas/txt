@@ -2,67 +2,20 @@
 ---
 
 
-## 有声|求佛
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1966178/)
+## 文贵大直播 2/6 北京冬奥：会成为中共无法闭幕的冬眠会
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1966191/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在芸芸众生中
-我看见你
-在熙熙吵闹中
-我听见你
-像是一盏灯
-指引迷路人
-你万丈的光芒
-灼灼不休
-不休
-随着光前行
-心，在觉醒
+撰稿：回响 【秘翻Gnews原创组】
+![](https://assets.gnews.org/wp-content/uploads/2022/02/snapshot-1.jpg)图片来源 GTV
+北京冬奥最大的撑台者是俄罗斯普京，但已经由既定的48小时陡然变成9小时逗留便转身离去；而到场的国家领导人虽然号称33个却事实不足一巴掌；当下在现场的很多人士在体验着生不如死的痛苦……
 
-也许
-是我在佛前求了几百年
-才换得今生
-遇到你
-跟随你
-得我心愿
-了我情怀
-那光啊
-我心中永远不灭的灯
+一个让奥林匹克精神蒙羞的北京冬奥，不仅正如新中国联邦创始人郭文贵先生之前所预言，开成了“冬眠会”，而且郭先生断言，它还会成为中共无法结束、无法闭幕的噩梦冬奥。
 
-那灯啊
-永远指引迷途之人
-在佛前
-我请求赐福你身
-佑你安康
-护你完成使命
-拯救苦难芸芸
+文贵先生用他一贯通俗易懂又幽默生动的语言，在2月6号的大直播中，分享了大量不为人知的幕后种种，无论是中俄之间无法见人的邪恶交易纠葛，还是现场几百种大餐背后的不堪入目，皆令人瞠目结舌。
 
-我求
-我再求
-下一次人生
-与你相逢
-哪怕仅是擦肩而过
-亦是憧憬
-回味余生
+新中国联邦的力量，不仅在于很早就发出抵制中共冬奥的呼吁，更在于自始至终从不放弃地帮助世界看到、了解到、感受到、体验到北京冬奥的邪恶真相，唤醒世界对灭共的真切共识，越来越发挥出无法替代的巨大作用。
 
-文字版原文：[求佛](https://gnews.org/zh-hans/1960502/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+【来源链接】https://gtv.org/broadcast/watch/61ffc26b3621aa7415d64d52
 
  
 
