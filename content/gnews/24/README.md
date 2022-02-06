@@ -2,32 +2,30 @@
 ---
 
 
-## 普京团队遭下毒，中共内斗再升级
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1966008/)
+## MV版Hcoin To the Moon上线59天第46次位列澳门iTunes热门MV榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1966076/)
 
-作者：波士顿五月花 跟随战神
-![](https://assets.gnews.org/wp-content/uploads/2022/02/20220206-1.jpg)
-2022年2月4日，文贵先生在大直播中爆料，俄罗斯总统普京团队中有16人感染中共病毒，其中有保镖也有随行官员。
-
-要知道，普京总统是此次参加冬奥会排名第一的重量级人物。习近平为了邀请普京总统来京可谓是下足了功夫，花了大价钱。习近平心里清楚，自己在流氓的道路上狂奔，能取得普京总统的支持是多么的重要。这么重要的人物来京，习近平对安保工作想必是十分重视、万分小心，甚至是“亲自指挥、亲自部署”。但是，就是在这样的情况下，普京总统一行居然有16人染毒，个中缘由十分蹊跷。
-
-文贵先生爆料说，普京总统入驻的是华尔道夫酒店，该酒店离故宫和中南坑很近。在普京总统抵京之前的一周，酒店已经全部清空，想必各种安全检查和消毒程序是必不可少。而且，俄方的安保人员也会提前到酒店进行一系列检查。按理说应该是万无一失。
-
-就是在万无一失的情况下，那个“一失”还是来了，来的很迅猛。16人感染是个很恐怖的数字，普京总统一行也就几十个人，说成是团灭也不为过。而且，染毒的人中有2个是普京总统的保镖，这可非同小可。随行官员可以不在普京身边，但保镖却要形影不离，这是保镖的职责所在。可见，下毒者的目标很可能是普京总统。所以，普京总统暴怒，爆料革命战友在楼上都能听到他的咆哮。究竟是谁敢在“太岁”头上动土，真是吃了熊心豹子胆。
-
-文贵先生早就告诉我们，北京冬奥会上最危险的是习近平。简单的理解，是习近平在公共场合暴露，人身安全风险加大，但还不止于此。众所周知，习近平最大的底气之一来自俄罗斯、来自普京。习近平曾经多次在公开场合表达对普京总统的尊敬和崇拜。而此次针对俄罗斯团队的下毒，意在挑拨普京总统和习近平的关系。幕后者也知道，不一定能伤到普京，也没想伤到普京，但能伤到普京与习近平之间的关系就达到了目的。普京总统在酒店愤怒地骂人，也证明了这一点。
-
-究竟是谁下的毒？显而易见，是习近平的政治对手，而江派具有最大的可能性。根据南普陀会议，习近平只是个过渡性人物、只是个代持人、只是个傀儡。现在的习近平却成了过度集权的、把“代”字去掉的人，还想习家天下千秋万代。江派岂能放过他。习近平上台后的疯狂和倒行逆施，使他成为党内最恨的人，不只是江派，就是其派系或是他的部下动手也不足为奇。
-
-文贵先生说过，二十大前中共内部厮杀会血腥而惨烈。利用冬奥会放毒俄罗斯团队，挑拨习普关系，撤掉习近平赖以张狂的后台，是此次放毒的真实目的。而这只是刚刚开始，新中国联邦打扫战场的时候即将到来。
+2/6/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线59天第46次位列澳门iTunes热门音乐视频榜榜首，第53次位列前三名
 
 * * *
 
-*编辑：文合*
+[【PDF 下载】Sunday-6-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-6-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-6-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-*封面：霹雳鼠年*
+* * *
 
-*发布：吐纳*
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-6-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-6-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-6-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-6-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-6-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-6-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-6-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_83.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-6-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_101.jpg)
+
+
+[【PDF 下载】Sunday-6-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-6-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-6-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

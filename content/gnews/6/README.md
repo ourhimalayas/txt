@@ -2,37 +2,50 @@
 ---
 
 
-## 银河快讯：日本奥委会建议运动员回国后立即删除北京冬奥专用APP；日本沙特讨论石油市场稳定
-` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1966278/)
+## 巴西Itajaí市全民测试证明 伊维菌素可降低感染、住院和死亡
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1966404/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-21.png)[图片来源](https://www.arabnews.jp/)
-**1．日****韩****外长会谈，****确认日美韩三国在朝鲜问题上密切合作**
+作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏）
 
-[据NHK 2月3日报道，林芳正外相与韩国外长郑义溶进行了电话会谈。两位外长一致认为，朝鲜在导弹和核问题上，对地区和国际社会的和平与稳定构成威胁，并确认日本和韩国以及美国将密切合作，以解决这一问题。而会谈期间，韩国外相还对日本将佐渡岛金矿推荐登记为世界遗产深感失望和表示抗议，称其是一个让朝鲜半岛工人强迫劳动的地方。](https://www3.nhk.or.jp/news/html/20220203/k10013465241000.html?utm_int=news-politics_contents_list-items_003)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-**2****．日本****主要航运公司的集装箱短缺和物流****混乱****问题仍未解决**
+本文摘自1月15日，巴西圣保罗科尔教学研究所（Instituto Kerr de Ensino e Pesquisa, São Paulo）、圣保罗州立大学（State University of São Paulo）动物科学系、圣保罗里贝朗普雷图医疗学校（Ribeirão Preto Medical School, University of São Paulo）遗传学系、里贝朗普雷托CTAG基因组评估技术中心（Centro Técnico de Avaliação Genômica C.T.A.G, Ribeirão Preto）、巴西利亚Corpometria 研究所、加拿大多伦多大学（University of Toronto）、美国剑桥EAFIT数据分析中心（Data Analysis, Universidad EAFIT）、美国前线Covid-19重症监护联盟 (Front-Line Covid-19 Critical Care Alliance，FLCCC)和伊塔雅伊市政厅（Itajaí City Hall, Itajaí）的Flavio A.Cadegiani博士等人发表的论文《[Strictly regular use of ivermectin as prophylaxis for COVID-19 leads to a 90% reduction in COVID-19 mortality rate, in a dose-response manner: definitive results of a prospective observational study of a strictly controlled 223,128 population from a city-wide program in Southern Brazil](https://www.researchgate.net/publication/358386329_Strictly_regular_use_of_ivermectin_as_prophylaxis_for_COVID-19_leads_to_a_90_reduction_in_COVID-19_mortality_rate_in_a_dose-response_manner_definitive_results_of_a_prospective_observational_study_of_a)》。
 
-[据NHK 2月3日报道，日本邮船、商船三井和川崎汽船这三家航运巨头在3日之前的财务业绩发布会中表示，由于奥密克戎毒株的流行所导致的全球劳动力短缺依旧持续，由此产生的集装箱短缺和物流混乱解消的前景依旧不明。物流混乱导致的运输成本上升是食品和其他产品价格连续上涨的因素之一，如果混乱继续持续，价格上涨对生活的影响可能会长期存在。同时，由于集装箱短缺和运费飙升，这三家公司都预计最终利润将创下新高。](https://www3.nhk.or.jp/news/html/20220203/k10013464681000.html?utm_int=news-business_contents_list-items_008)
+文章介绍，2020年7月7日至2020年12月2日，在巴西圣卡塔琳娜州（state of Santa Catarina）伊塔雅伊市（city of Itajaí）开展一项使用伊维菌素（ivermectin）预防COVID-19的全民健康系统计划研究。本研究的目的是评估常规使用伊维菌素对预防COVID-19 感染和死亡率的影响。
 
-**3****．****日本奥委会****建议运动员****回国后立即删除北京冬奥专用****的****APP**
+测试组按每人每15天连续两天服用0.2mg/kg/天剂量的伊维菌素。在研究期间，建议被确诊的 COVID-19所有参与者不要使用伊维菌素（ivermectin）、硝唑尼特（nitazoxanide）、羟氯喹（hydroxychloroquine）、螺内酯（spironolactone）或任何其他声称对 COVID-19 有效的药物。该市也没有为感染 COVID-19 的参与者提供任何特定药物的门诊治疗。
 
-[据NHK 2月3日报道，关于美国奥委会警告4日开幕的北京冬奥防疫APP可能存在信息泄露的问题，日本内阁官房长官松野2日在新闻发布会上宣布，体育局已要求日本奥委会等机构通知运动员一系列注意事项，包括应尽量少使用该应用程序，并在返回日本后尽快删除。最好准备一个单独的设备来安装该程序，若有感到有任何问题，运动员应立即联系内阁网络安全中心。](https://www3.nhk.or.jp/news/html/20220203/k10013465571000.html?utm_int=news-politics_contents_list-items_004)
+在该市登记的223,128名居民中，61,583名因年龄不超过18岁没有被纳入研究范围。剩下18岁以上的161,545人中，1,984人因2020年7月7日之前有感染COVID-19记录也被排除在研究范围之外，最终确定159,561人纳入研究范围。
 
-**4****．****岸田首相与沙特王储讨论石油市场稳定问题**
+在这159,561人中，最终113,845人在感染COVID-19之前接受了伊维菌素计划，占研究对象的71.3%，另外45,716人在研究期间未接受或不想接受伊维菌素，包含作为预防或治疗感染COVID-19后的药物，占研究对象的28.7%。
 
-[据NHK 2月3日报道，岸田首相呼吁与在石油生产国会议OPEC+中发挥主导作用的沙特阿拉伯合作，以稳定国际石油市场。对此，穆罕默德王储说：“沙特阿拉伯将为国际石油市场的稳定作出贡献。我们希望两国在广泛的领域进一步发展双边合作，而不仅仅是在能源领域。”](https://www3.nhk.or.jp/news/html/20220203/k10013465941000.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/cureus-0014-00000021272-i01.jpg)
 
-**5****．****日本考虑向欧洲输送天然气以应对乌克兰问题的紧急情况**
+在来自伊塔雅伊市的113,845名服用伊维菌素作为预防COVID-19的参与者中，有4,197人的RT-PCR检测SARS-CoV-2病毒呈阳性，感染率为3.7%，而45,716名未服用伊维菌素的参与者中，有3,034人的RT-PCR检测SARS-CoV-2病毒呈阳性，感染率为6.6%。这7,345名感染者的信息如下：
 
-[据共同社2月4日报道，日本正在权衡，若俄罗斯在入侵乌克兰后限制对该地区的天然气供应，为应对预计的制裁，日本将把其部分天然气储备转移到欧洲。日本可能会寻求与其他国家协调以支持欧洲，因为欧洲严重依赖俄罗斯的管道天然气。一些美媒报道说，拜登政府已经与包括日本和韩国在内的亚洲主要天然气进口国的官员商谈将天然气供应转移至欧洲的问题。](https://english.kyodonews.net/news/2022/02/dae9815c3268-japan-mulls-sending-natural-gas-to-europe-in-contingency-over-ukraine.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/TABLE-1-Baseline-characteristics-of-subjects-enrolled-in-the-study-before-matching-and-after-scaled.jpg)
 
-**6****．****任天堂S****witch****全球销量超过1亿台**
+根据上面的结论，使用伊维菌素作为COVID-19预防性药物，COVID-19感染率降低了（6.6%-3.7%）÷6.6%=44%。
 
-[据朝日新闻数据部报道，任天堂2月3日宣布，家用游戏机“任天堂Switch”全球销量已超过1亿台。Switch于2017年3月推出，截至2021年12月底已售出1.0354亿台。自推出以来，该公司连续发布的人气专用软件加快了销售步伐。由于疫情造成的居家需求也在推波助澜。](https://news.yahoo.co.jp/articles/a2ec34d4e76a82d3053aa4e816cac29d62aa7e6c)
+从使用伊维菌素作为COVID-19预防性药物的COVID-19的4,197名感染者中，抽取3,034作为研究亚组，每组3,034人，共6,068人COVID-19感染者的后续调查中，使用伊维菌素作为预防药物的感染者住院44人，感染COVID-10后的住院率为1.6%，未使用伊维菌素作为预防药物的感染者的住院99人，感染COVID-10后的住院率为3.3%，使用伊维菌素作为预防药物住院率降低56%率，对变量进行调整后，住院率降低了67%。
 
-【日本银河系农场-阿尔法星球】
-作者：帆間知津
-校对：Tagomi
+![](https://assets.gnews.org/wp-content/uploads/2022/02/cureus-0014-00000021272-i02.jpg)
+
+使用伊维菌素作为预防性药物的感染者死亡25人，感染COVID-19后的死亡率为0.8%，未使用伊维菌素作为预防性药物的感染者死亡79人，死亡率为2.6%。因此，使用伊维菌素作为预防性药物，死亡率降低68%，调整后的死亡率降低了70%。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/TABLE-2-Propensity-score-matched-hospitalization-and-mortality-rate-among-ivermectin-users.jpg)
+
+在开始使用伊维菌素作为预防COVID-19计划之前和开始使用伊维菌素作为预防COVID-19期间，伊塔雅伊市COVID-19住院率比较中，感染COVID-19后，使用伊维菌素作为预防COVID-19药物的住院率从计划开始前的6.8%下降到计划开始后的1.8%，死亡率从3.4%下降到1.4%。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/TABLE-4-Hospitalization-and-mortality-rates-registered-in-the-city-of-Itajai-Brazil-before-versus.jpg)
+
+参考数据：
+
+[Ivermectin Prophylaxis Used for COVID-19: A Citywide, Prospective, Observational Study of 223,128 Subjects Using Propensity Score Matching](https://www.ncbi.nlm.nih.gov/labs/pmc/articles/PMC8765582/)
+
+[Ivermectin for preventing and treating COVID-19](https://pubmed.ncbi.nlm.nih.gov/34318930/)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

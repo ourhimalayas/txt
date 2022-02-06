@@ -2,35 +2,83 @@
 ---
 
 
-## 中共拒绝联合国赴新疆调查人权问题
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1965987/)
+## 有声|渡劫
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1966063/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
-
-整理：Eileen（围剿维尼熊）
-编辑：朝花夕拾
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/雅典娜快讯图.png)图片来源：雅典娜设计组
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
-根据中央社报道：联合国秘书长古特瑞斯（Antonio Guterres）在北京冬季奥运场边习近平和王毅会面时，对两人表示希望允许联合国人权事务高级专员巴舍莱（Michelle Bachelet）到中国进行可信的访问，包括停留新疆。
+把你架在火上烤
+是共产党的心愿
+直至你灰飞烟灭
+化做尘土
 
-曾有人权人士表示，至少100万人被监禁在新疆的“再教育营”，其中大部分是穆斯林。
+几经反转
+你
+把
+共产党
+架在了火上
+熏烤
 
-巴舍莱长期以来希望进入新疆调查维吾尔人遭虐待的指控，此事让北京与西方关系变差，美国不仅指控中国种族灭绝，更联合其他国家抵制北京冬奥会。
+你带领我们
+醒来
+反洗脑
+反了一个国家
+反了一个统治阶层
+这个世界
+就发生了
+不可思议的天翻地覆
 
-但中国至今拒绝巴舍莱赴新疆访问。
+我们的怒火啊
+就是烤焦共匪的火光
+他们造下的罪恶啊
+就是火堆里
+累累的柴火
+烧了它
+灭了它
+是我们共同的心愿
 
-参考链接：https://udn.com/news/story/6809/6078603?from=udn\_ch2\_menu\_v2\_main\_cate
+渡劫
+就这样开始了
+考验体力
+考验心智
+考验灵魂
+历尽质疑
+历尽磨难
+历尽背叛
+历尽孤独
+灭共的人群
+越聚越多
 
-*发布：tianzhihuan*
+共产党灭了
+我们胜利了
+我们在欢呼
+我们也会相聚盘古
+当一切尘埃落定
+你归隐山林
+留下无尽传说
+在劫后余生的我们中
+流传
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+文字版原文：[渡劫](https://gnews.org/zh-hans/1960420/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

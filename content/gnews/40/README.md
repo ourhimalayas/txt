@@ -2,16 +2,12 @@
 ---
 
 
-## 全球民众大觉醒
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1965479/)
+## 配合种族灭绝奥运，CNN挂出共匪百年纪念专题
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1965561/)
 
-文贵大直播20220206
+班农先生批CNN配合中共冬奥纪念共匪百年：他们不提九千万人被中共谋杀；也不提中共强制堕胎四亿；更不提在中共这一跨国犯罪组织下，中国老百姓遭受的折磨。战斗室，2022年2月1日。
 
-撰稿：莲心不染（扬帆）
-
-美工：健身建心（英喜）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide2.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide3.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide4.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide5.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide6.png)
-*发布：Theodosia*
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

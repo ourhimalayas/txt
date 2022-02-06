@@ -2,25 +2,41 @@
 ---
 
 
-## 樱花头条┃加拿大总理特鲁多在奥运会开幕之际 批评中国的人权记录
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1965903/)
+## 三项物价指标直指美国经济崩塌节点
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1966034/)
 
-撰稿：东京樱花团/樱花传媒
+作者：纽约香草山教育部 Noemi
 
-加拿大总理贾斯汀-特鲁多在周五纪念冬奥会开幕的一份尖锐声明中，省略了对主办国的传统祝贺，而是抨击中国的人权记录。特鲁多在总理办公室发表的一份声明中说：”在国际舞台上，加拿大一直是保护和促进人权的一个强有力的声音，我们对中国侵犯人权的报道极为关注，包括对维吾尔人的迫害。“
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-他重申，由于中国在人权方面的记录，加拿大将不派任何外交代表参加北京奥运会。
 
-然而，他向参加奥运会的加拿大运动员表示祝愿，许多加拿大新闻评论员已开始将其称为 “种族灭绝运动会”。
 
-信息来源：
+2月4日，郭文贵先生在大直播节目中透露，今年的三月份和五月份将是美国经济开始和加剧崩塌的两个主要节点，而汽油、面包和天然气等三项物价的变化则可以直接揭示出这一经济发展态势。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-06-at-10.33.13-PM.png)
+郭先生解释说，美国汽油、面包的价格不超过4美元，天然气价格不超过历史均价的20%，是维系普通美国民众生活稳定的三个重要因素。而这三项物价指标，是美国政治灾难具体发生的参照物。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-06-at-10.36.48-PM.png)
+据郭先生预测，美国经济将在今年三月份开始崩塌，并于五月份出现剧震。届时，疫苗灾难将不断升级，大量增发的货币会导致世界物价的飞速上涨，并促使美国经济全面走向崩溃。此次世界性的金融危机产生的破坏力不容低估，所有人应做好充足的现金和物资准备。
 
-[https://www.gettr.com/post/pssacm2e96](https://www.gettr.com/post/pssacm2e96)
+参考链接：
 
-编辑：东京樱花团/asket
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+1. [2022年2月4日 文贵直播](https://gtv.org/video/id=61fd129696ba5d73e0c27967)
+2. [美国失业率达到4%,文贵大直播透露美国经济崩溃时间](https://gnews.org/zh-hans/1958693/)
 
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-Shadow.png)
+
+编辑：DM
+总编：文特
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 
