@@ -2,10 +2,12 @@
 ---
 
 
-## 疫苗注射对人体免疫系统的危害
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1965502/)
+## 配合种族灭绝奥运，CNN挂出共匪百年纪念专题
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1965561/)
 
-台灣寶島農場
+班农先生批CNN配合中共冬奥纪念共匪百年：他们不提九千万人被中共谋杀；也不提中共强制堕胎四亿；更不提在中共这一跨国犯罪组织下，中国老百姓遭受的折磨。战斗室，2022年2月1日。
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

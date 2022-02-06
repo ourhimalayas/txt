@@ -2,8 +2,8 @@
 ---
 
 
-## H-Pay自己就能搞基金
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1965521/)
+## H-Pay的核心价值是去中心化、无中介方
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1965565/)
 
 台灣寶島農場
 

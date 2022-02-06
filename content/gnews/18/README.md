@@ -2,12 +2,19 @@
 ---
 
 
-## 随着感染病例增加，当局在冬奥会前夕进入高度戒备状态
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1965559/)
+## HPay体现人类无条件支付的本能
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1965579/)
 
-01/31/2022 WION新闻：随着中共病毒感染病例的增加，中共当局在冬奥会前夕进入高度戒备状态。
+文编：东京樱花团/樱花传媒
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+视频:东京樱花团/中文小视频组
+
+2月2日，郭文贵先生在GTV大直播透露，Hpay不是在线买卖，而是在线支付，跟交易没关系，是约定式的付款。它的支付功能有两个核心：第一、无条件交易支付；第二，无交易费用。Hpay能让你体会到财富的本能，是免费的。
+
+编辑：东京樱花团/tdownc2p
+发布：东京樱花团/ yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
 
  
 

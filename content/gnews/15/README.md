@@ -2,8 +2,8 @@
 ---
 
 
-## H-Pay的核心价值是去中心化、无中介方
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1965565/)
+## 5月后美国经济恐将大崩溃
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1965657/)
 
 台灣寶島農場
 
