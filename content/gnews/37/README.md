@@ -2,10 +2,10 @@
 ---
 
 
-## 加拿大卡车司机谈参与自由车队的原因
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1964934/)
+## 马龙博士：中共病毒疫苗不能防止感染、复制和传播
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1964936/)
 
-01/29/2022 加拿大卡车司机在塔克秀谈参与自由车队的原因。
+01/28/2022 马龙博士：中共病毒疫苗不能防止感染、复制和传播，只会进一步推动新的变种出现。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

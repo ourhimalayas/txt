@@ -2,40 +2,33 @@
 ---
 
 
-## 美国16个州对联邦的中共疫苗强制令提起新的诉讼
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1965371/)
+## 布林肯将访亚洲：抵制中国仍是华盛顿首要任务
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1965388/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/11129607.jpg)图片来源：Just the News新闻网站
-美国Just the News新闻网站2022年2月4日报道，16个州再次挑战联邦政府针对那些在接受医疗保险和医疗补助的设施中工作的医护人员的中共病毒疫苗强制令。
+整理：Sara9
+编辑：Little Lamp
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-02-下午10.11.59-4.png)
+大纪元报道，美国国务院周五（2月4日）表示，国务卿布林肯下周将前往亚洲与印太盟友进行会谈，包括与“四方安全对话”（Quad）的四国外长会晤。
 
-周五在美国路易斯安那州西区地方法院提交的诉讼是在美国医疗保险和医疗补助中心(U.S. Centers for Medicare & Medicaid, CMS)发布关于疫苗强制令的最终指南后提出的，诉讼认为该指南是一个可复审的行动。
+尽管乌克兰危机日益加剧，但布林肯仍计划这一亚洲之行。此举的目的是向印太地区表示支持，而且抵制中共不断扩大的影响力仍然是华盛顿的首要任务。
 
-美国最高法院于1月13日以5比4的投票结果裁定，反对路易斯安那州对该强制令的最初挑战和密苏里州的类似诉讼。路易斯安那州的第一个诉讼最初导致了11月下旬的全国性禁令。在最高法院作出裁决后，一家联邦法院驳回了德克萨斯州的类似诉讼。
+布林肯将于周一（2月7日）离开华盛顿，并于2月9日至12日在澳大利亚参加四方会谈（Quad）。四方会谈包括美国、日本、印度和澳大利亚。
 
-田纳西州州长比尔·李(Bill Lee)说，他相信重新提起的诉讼。田纳西州加入了亚利桑那州、阿拉巴马州、佐治亚州、爱达荷州、印第安纳州、肯塔基州、路易斯安那州、密西西比州、蒙大拿州、俄亥俄州、俄克拉荷马州、南卡罗来纳州、犹他州、弗吉尼亚州和西弗吉尼亚州的新诉讼。
+布林肯随后将在斐济会见太平洋岛国领导人，然后前往夏威夷与日本和韩国同行讨论朝鲜问题。
 
-“我们正在法庭上重新挑战CMS的疫苗强制令，这样田纳西州的医护人员就有权利做出私人医疗保健决定。”李说，“这项强制令代表了联邦最严重的越权行为的同时，它也威胁到我们为设施配备人员和为老年人、残疾人和其他重点人群提供护理的能力。”
+美国国务院表示，此行的目的是“与印太地区的盟友和合作伙伴接触，以促进整个地区的和平、复原力和繁荣，并展示这些伙伴关系的成果”。就在普京和习近平周五会面并强调合作之际，美国国务院宣布了布林肯的这次亚洲行。
 
-CMS的规定指出，未参与诉讼的各州的工人必须在2月28日前接种疫苗，涉及裁决的工人必须在3月15日前接种疫苗。德克萨斯州的工人必须在3月21日之前完全接种疫苗。
+布林肯将于2月12日在斐济与太平洋岛国领导人讨论气候危机、COVID-19、灾害援助以及“促进我们对民主、区域团结和繁荣的共同承诺的方式”。他将成为自1985年以来首位访问斐济的美国国务卿。
 
-新诉讼中的16个州认为，中共病毒的奥密克戎(omicron)变体已经导致了卫生保健人员的配备问题，而疫苗强制令会让这个问题成倍增加。
+文章来源：[布林肯将访亚洲 分析：抗共仍是美首要任务](https://www.epochtimes.com/gb/22/2/4/n13555934.htm)
 
-简评：
+*发布：tianzhihuan*
 
-不轻言放弃，美国这十六个州针对医护人员的中共病毒疫苗强制令的再次起诉，让我们看到美国人秉承的坚持。可以看到，尽管欧美多个国家逐步开始取消中共病毒限制令，但是针对医护人员的疫苗强制令并没有看到好转。医护人员是对抗这场由中共发动的生化大战的一线工作人员，他们亲历病毒感染，现在正在对抗疫苗带来的灾难和副作用，而强加在他们身上维护自己健康与安全的权力却被剥夺。就像这十六个重新上诉为医护人员争取权利的州一样，我们爆料革命的战友更需要不遗余力地宣传中共病毒以及疫苗真相，用我们的双手去停止这场屠杀。
-
-新闻链接：[Sixteen states file new lawsuit against federal COVID vaccination mandate](https://justthenews.com/nation/states/center-square/sixteen-states-file-new-lawsuit-against-federal-covid-vaccination?utm_source=justthenews.com&amp;utm_medium=feed&amp;utm_campaign=external-news-aggregators)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,36 +2,25 @@
 ---
 
 
-## 澳洲政府要求各大学撤销与中共进行共同研究计划
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1964686/)
+## 面对可能的欺诈调查，GoFundMe同意退还加拿大卡车司机收到的捐款
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1964778/)
 
-撰稿：纽约香草山医疗部-云豹
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-GTV-Gnews-HEADER-1.png)
-2月5日，澳洲政府已经明确指示，要求澳洲的大学撤销与中共共同进行的研究计划，并建议改为与五眼联盟国家进行合作。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-550.png)图片来自：https://www.studymelbourne.vic.gov.au
-据悉，澳洲八大研究型大学联会表示已经接到澳洲政府的明确指示，要求与美、英、加等、有紧密防卫合作关系的五眼联盟国家加强研究合作。并表示，已经与20多所英国著名大学联合开展有关人工智能、量子科技、和卫生健康等题目的共同研究。
+#### 撰稿：彩虹
 
-为了国家安全，澳洲政府近年来逐步推动与中共脱钩。澳洲联邦政府可依据澳洲国会在2020年12月通过的「澳洲对外关系条例2020」，否决澳洲各大学与外国官方机构所达成的任何合作协议。「八大研究型大学联会」执行长汤普森表示，澳洲各大学与五眼联盟国家的研究单位合作申请，将更容易获得澳洲政府安全部门的同意。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-3-2.jpg)图片来源：网络图片
+2月5日，《新闻极限》报道，周六，众筹平台GoFundMe表示，在佛罗里达州州长罗恩·德桑蒂斯和其他人要采取行动对其进行欺诈调查后，它将自动退还为抗议中共病毒（COVID-19）疫苗规定的加拿大卡车司机车队筹集的约1000万美元的剩余款项。
 
-新闻连接：
+该组织在周六早些时候发布的推特（Twitter）上说：“为了简化用户的程序，我们将退还对2022年自由车队（Freedom Convoy）筹款活动的所有捐款。这种退款将自动发生，你不需要提交申请。捐赠者可以预期在7-10个工作日内看到退款。”
 
-[澳洲政府指示大學應離開與中國合作研究](http://澳洲政府指示大學應離開與中國合作研究)
+报道说，在GoFundMe暂停通过网站上的捐款为加拿大“自由车队”筹集的约1000万美元的分配后，德桑蒂斯与其他人一道，在推特上发文谴责GoFundMe不允许抗议活动组织者提取资金，是一种“欺诈”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-Shadow.png)
+根据BBC的报道，1000万美元的捐款来自世界各地的12万多名捐助者，包括“许多”来自美国的。
 
-总编：飞虹
+**新闻来源**
 
-编辑：文特
+[GoFundMe to Refund $10M of Canadian Trucker Donations After Fraud Probe Threat](https://www.newsmax.com/politics/canada-truckers-covid-protest/2022/02/05/id/1055642/)
 
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-GTV-Gnews-HEADER-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

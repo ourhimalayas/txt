@@ -2,8 +2,8 @@
 ---
 
 
-## 疫苗注射对人体免疫系统的危害
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1965502/)
+## H-Pay自己就能搞基金
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1965521/)
 
 台灣寶島農場
 

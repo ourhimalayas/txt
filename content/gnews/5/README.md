@@ -2,8 +2,8 @@
 ---
 
 
-## 中共病毒的起源 为何没更多人质疑
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1965445/)
+## 中共病毒的早期治疗
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1965471/)
 
 台灣寶島農場
 
