@@ -2,34 +2,48 @@
 ---
 
 
-## 美国两党议员推动台湾驻美代表处更名
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1964628/)
+## 浅谈澳大利亚国防工业 – 陆军篇
+` 军情启示录` [轉載自GNews](https://gnews.org/zh-hans/1964981/)
 
-撰稿：纽约香草山教育部 Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-GTV-Gnews-HEADER-1.png)
-2月3日，一个由美国两党国会议员组成的团体，在参议院和众议院提出配套法案，要求美国政府通过谈判，将台湾驻华盛顿大使馆，更名为”台湾代表处”。
+**作者: **AWAC （新西兰伊甸农场）
 
-虽与台湾并无正式外交关系，但美国一直是台湾在国际社会上的最坚定的支持者。目前，台湾驻美代表处的名称是“驻美台北经济文化代表处”。该法案要求美国国务卿寻求与驻美台北经济文化代表处进行谈判，将其更名为”台湾代表处”。如果这项法案证实通过，成为法律，其他国家也将纷纷效仿，更改台湾驻各国代表处的名称，加强与台湾的关系。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-547.png)图片来自：https://gdb.voanews.com/
-目前，美中关系处在几十年来的最低点，美国正试图反击中共日益增长的经济和军事胁迫。帕帕斯议员表示：”我们必须采取这一步骤加强与台湾的外交伙伴关系，并对抗中共一再威胁和胁迫全球各国的企图。” 法案的提案人之一梅嫩德斯议员表示，该法案符合界定美国与台湾非官方关系的《台湾关系法》，并表示美国坚决支持台湾 “决定自己未来 “。
+作为北大西洋公约组织和五眼联盟的重要参与者，近年来澳大利亚一直处于各种地区冲突和突发事件的风口浪尖。从参与搜索马航残骸到南中国海的航行自由行动，我们看到澳大利亚海空军开始在国际军事舞台上小露锋芒。本文从三军主战装备入题，粗浅地分析一下袋鼠国的的国防工业布局以及未来军备展望。
+近年来在军事大国纷纷增设太空军的同时，澳大利亚国防军任然本分地将武装力量划分为海陆空三个传统军种。 其中澳大利亚陆军主要装备美制M1A1主站坦克59量， 增强版M113装甲运兵车431量，M777榴弹炮54部，257量瑞士水虎魚裝甲車Piranha轮式战车，等， 航空装备方面，主要有22架欧洲虎式武装直升机,和若干美制S70黑鹰，CH47支奴干，41架北约工业NH90等。 和主要军事强国相比，主站装备数量偏少，装备水平并不突出。这也是澳大利亚长期以来所受的相对温和的国际环境和地理位置所致，毕竟在中共威胁显露以前，国防军并不涉及高压军事环境，多半是配合北约进行国际维和行动。
+但我们从2020年以来的一系列军事采购项目中，可以看到未来澳洲陆军装备正在进入快速升级阶段。首先是在今年的1月，澳大利亚政府确认向美国采购75量M1A2 SEP V3 艾布拉姆斯坦克的现代化改进版本，以及52量艾布拉姆斯坦克支援车【1】。这75量M1A2 SEP V3是直接在美军封存的M1A1基础上升级，所以交货速度将非常迅速。于此同时澳大利亚陆军也将同时升级现有的M1A1型主战坦克。
 
-链接：[https://www.reuters.com/world/china/us-lawmakers-push-rename-taiwans-de-facto-embassy-washington-2022-02-04/](https://www.reuters.com/world/china/us-lawmakers-push-rename-taiwans-de-facto-embassy-washington-2022-02-04/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-76.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-Shadow.png)
+M1A2 SEP V3
+图片来源: 网络
 
-总编：Irene木木
+除了主战坦克的升级，澳大利亚陆军开始重视远程火力支援部队的扩充。澳大利亚和韩国韩华集团签订了30量K9自行火炮以及15量K10弹药补给车的采购合同，与已往采购项目不同的是，本次自行火炮的组装生产将在澳大利亚本墨尔本附近的吉朗完成，根据陆军的要求，K9也将进行一些本土化改装，包括加装挪威军工企业研发的遥控武器站，以及配备一台炮兵侦测雷达。
 
-编辑：Ivy001
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-22.png)
 
-校正/发稿：浪迹天涯
+*韩国K9自行火炮的澳洲出口版本 AS-9* 
+*图片来源:**网络*
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-GTV-Gnews-HEADER-1.png)
+为了一改澳洲陆军没有重型步兵战车的历史，2017年澳大利亚陆军就开始了代号“陆地400”的国防项目，向全球招标步兵战车和支援车总计450量，其中来自德国莱茵金属公司的KF-41山猫型步兵战车最有可能入选。KF41最大的特点是采用了非常彻底的模块化设计, 和低雷达反射截面(隐身)设计，可以在通用地盘的基础上更换炮塔来实现不同任务的需要，目前KF41的有利竞争者是韩国韩华公司提交的AS21步兵战车方案，AS21和KF41一样，属于2000后的新世代陆战装备，还配备了主动防御系统, 可以击毁来袭反坦克导弹。不管陆地400招标项目的最终结果如何，配合M1A2主站坦克和K9自行火炮，澳大利亚陆军都将组建出一只世界一流的装甲战车部队，其总体装备水平将达到或超过英国陆军。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3-8.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/4-5.jpg)
+
+*莱茵金属公司的KF41最大的特点是采用了模块化设计,以及隐身设计
+图片来源: 网络*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/5-4.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/6-5.jpg)
+
+*KF41的有利竞争者是韩国韩华公司提交的AS21方案，配备了主动防御系统
+图片来源: 网络*
+
+参考资料 
+【1】[https://adbr.com.au/new-m1a2-tanks-and-engineering-vehicles-for-australian-army-confirmed/](https://adbr.com.au/new-m1a2-tanks-and-engineering-vehicles-for-australian-army-confirmed/)
+
+*上传:* *AWAC （新西兰伊甸农场）*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

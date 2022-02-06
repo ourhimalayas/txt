@@ -2,49 +2,28 @@
 ---
 
 
-## GoFundMe 表示所有捐给卡车车队的款项将自动退还
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1965291/)
+## 中日财经爆┃日本政府加大稀有金属锂和镍的投资
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1965477/)
 
-**编译：Jenny Ball**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnipGoFundMe-表示所有捐给卡车车队的款项将自动退还.png)图片来源：beepochtimes.com
-GoFundMe（“请给我捐款”） 筹款平台 2 月 5 日表示，在遭到强烈反对后，它将自动退还向加拿大抗议 COVID-19 疫苗授权卡车车队提供的的捐款。
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-24.png)[图片信息](https://my-best.com/5975?utm_campaign=terrace&amp;utm_medium=organic&amp;utm_source=Yahoo#:~:text=%E3%81%97%E3%81%A6%E3%8)
+2月6日读卖新闻在线消息，日本政府将加大对私营公司的支持力度，以确保在电动汽车（EV）电池中使用的锂和镍等稀有金属的海外利益。计划最大投资额从目前的最高50%提高到100%以下。这不仅表明政府参与度的增加，将使公司更容易承担与其业务相关的风险。
 
-GoFundMe 周五表示，它正在阻止资金流向 “自由车队”（Freedom Convoy）的组织者，而是将资金汇给“经过 GoFundMe 验证的知名慈善机构”。
+随着全球脱碳趋势的加剧和资源竞争的激烈，政府旨在确保对日本的稳定供应。如果企业出现问题，增加政府投资可能会导致重大损失，所以严格评估开采量和项目的盈利能力尤为重要。
 
-**这个不寻常举动的理由是什么？** GoFundMe 说：“我们现在有来自执法部门的证据表明，之前的和平示威已经演变，警方报告了暴力和其他非法活动。”
+锂和镍也被用于储能电池，以储存由太阳能和风力等可再生能源产生的电力。它们是脱碳的关键，国际能源署（IEA）估计，2040年全球锂的需求比2020年将增加13倍，达到28万吨镍的需求将增加6.5倍，达到130万吨。
 
-该网站没有提供任何涉嫌暴力或非法活动的证据。
+日本几乎完全依赖从南美和东南亚的进口。从经济安全的角度来看，增加日本的海外利益非常重要。政府将通过尽可能提高日本石油天然气和金属矿产资源组织（JOGMEC）的投资上限来鼓励私营企业参与海外采矿项目。日本人的投资比例越高，越有利于权益保障。JOGMEC的内部制度也将在今年中进行修改。
 
-代表车队组织者的法律团体宪法自由司法中心主席乔恩·卡佩 (Jon Carpay) 告诉《大纪元》，该筹款公司在没有公开证据的情况下，“没有可信度”。组织者在简报会上说，警察正在使用“压迫政权”通常使用的措施，试图剥夺卡车司机“和平集会和言论自由的权利”，媒体报道和官员错误地将外人犯下的罪行与抗议者联系起来。
+在日本公司中，丰田通商在阿根廷的锂矿中拥有股份，住友金属矿业公司正在参与菲律宾和其它地方的镍矿提炼项目。
 
-“但是，由于捐助者的反馈，我们正在简化流程。我们将自动直接退还所有捐款——捐助者无需提交申请。您可以在 7-10 个工作日内看到您的退款，”该公司表示。
+信息源：
 
-GoFundMe 的行为是审查，特别是该平台允许以前与暴力有关的人开展募捐活动。
+[【独自】リチウムやニッケルの海外権益確保へ政府出資拡大…脱炭素需要で獲得競争激化](https://news.yahoo.co.jp/articles/74d92738313c20809d586a8bed8ee819703b49de#:~:text=%E3%80%90%E7%8B%AC)
 
-佛罗里达州州长、共和党人罗恩·德桑蒂斯 (Ron DeSantis) 表示，GoFundMe “将用于支持卡车司机的 900 万美元捐款用于他们自己选择的事业，是一种欺诈行为。”
-
-德桑蒂斯表示，他将与佛罗里达州总检察长阿什利·穆迪（Ashley Moody）合作，“调查这些欺骗行为——这些捐赠者应该得到退款。”
-
-众议院司法委员会最高共和党众议员吉姆·乔丹（Jim Jordon）也表示，该小组可能会调查所发生的事情。
-
-“GoFundMe 在西雅图推广ANTIFA 占领的 CHOP 区，但却为抗议COVID 指令的卡车司机关闭了筹款活动， 说我们有问题，”他在推特上写道，指的是被称为国会山有组织保护的自治区，该区在几次枪击事件后于 2020 年在华盛顿州被关闭。
-
-自由车队组织者最近求助于 GoFundMe 的竞争对手GiveSendGo 来筹集资金。一位女发言人通过电子邮件告诉《大纪元》，GiveSendGo 周六因“机器人网络攻击”而停机。她说，该公司正在“尽可能快地/努力地”恢复网站。
-
-**评论：**
-
-**不禁为GoFundMe感到悲哀**，**加拿大卡车司机是在为包括你们和你们的子孙后代的自由而抗争，你们却釜底抽薪！你们的后代一定不会饶恕你们**。
-
-**新闻来源**：[beepochtimes.com][GoFundMe Says All Donations to Trucker Convoy Will Be Automatically Refunded; Florida to Investigate](https://www.theepochtimes.com/gofundme-says-it-will-automatically-refund-all-donations-to-trucker-convoy-florida-to-investigate_4258597.html?utm_source=News&amp;utm_campaign=breaking-2022-02-05-3&amp;utm_medium=email&amp;est=42eMVfERd9Mhvtufd7Tc8fWUIwdwc5dfwSiBHz0dXABCkkF4a1O%2BlTW1O5wvLMN6)
-
-* * *
-
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-1.jpeg)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

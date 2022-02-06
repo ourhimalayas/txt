@@ -2,31 +2,19 @@
 ---
 
 
-## 樱花数据分析┃澳大利亚新南威尔士州：两针以上接种者感染风险为3.6～4.8倍
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1965506/)
+## 春晚的本质（二）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1965708/)
 
-撰稿：东京樱花团/TV
+文编：东京樱花团/樱花传媒
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/澳大利亚新南威尔士州：两针以上接种者感染风险为3.6～4.8倍.png)
+视频:东京樱花团/中文小视频组
 
-制图：东京樱花团/chuansang
+2月2日，郭文贵先生在GTV大直播透露，文贵先生评价春晚是精神毒药，毒了好几代人，除了洗脑，更可怕的是扼杀老百姓对政治、对知识、对世界的认知。文贵先生对李长春给出建议不要把人变成傻子，这样会出现极度危险的情况。比如：有人操纵老百姓说，中共是魔鬼，那中共就是魔鬼。
 
-2月4日澳大利亚新南威尔士州政府发布了中共病毒（新冠病毒）疫情统计数据。经计算，12岁以上两针以上（包含三针）接种者的感染风险为未接种者的3.6倍。
+编辑：东京樱花团/tdownc2p
+发布：东京樱花团/ yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
-由于计算中选取的是2月4日的疫苗接种率，并非2021年11月26日至2022年1月8的数据，为了更精确，我们按照报告中两针接种率92.7%，对未接种率估算为5.9%。由此估算感染风险约结果为4.79倍。 即两针以上接种者相对未接种者的感染风险应为3.6～4.8倍。
-
-这又是一个惊人的数字。中共病毒疫苗对我们的免疫系统做了什么？？
-
-数据来源：
-
-[16岁以上接种率，偏高，有利于疫苗有效率](https://www.health.nsw.gov.au/Infectious/covid-19/Documents/covid-19-surveillance-report-20220120.pdf)
-
-[12岁以上感染统计](https://www.health.nsw.gov.au/Infectious/covid-19/vaccine/Pages/default.aspx)
-
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
 
  
 
