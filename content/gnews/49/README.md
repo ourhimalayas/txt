@@ -2,81 +2,34 @@
 ---
 
 
-## 参议员Johnson致函Austin要求提供美军受到COVID-19疫苗伤害的信息
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1964571/)
+## 红卫兵单伟建
+` 骄子` [轉載自GNews](https://gnews.org/zh-hans/1965126/)
 
-作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏）
+文：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-06-18.24.31.png)
+单伟建是中共的特务，长期在海外配合共产党伺机而动。这个人，七哥在之前并未爆料他的名字，但是他的PAG旗下的PAX是和七哥进行法律超限战的主体。七哥之前只说吴征等人是中共的间谍特务，灭爆小组，潜伏进爆料革命的伪类，各种各样针对七哥的污蔑，网路水军，线下拉横幅，更重要的是法律上的污蔑官司，从未提起过这个单伟建。不久前才爆料出这个人的名字，里面有充分的考虑。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+单伟建这个人很早就被中共派到西方进行特务活动，此人擅长装神弄鬼，神神叨叨，在西方对中国一无所知的情况下，利用西方法律的空子，给自己笼罩了一条大佬级人物的面纱。记得七哥爆料，那些和单伟建见面的人都非常隐蔽，国外很多人都把共产党的特务单伟建当成金融大佬。毕竟他的PAG在短短那么几年之内，就暴涨了那么多倍，公司且只有8个员工，背后没有中共的支持是不可能的。单伟建甚至促成了美国的养老金被投资到中共国，这种血本无归的生意也有人和他勾兑，2017年七哥就总在说，美国的养老金，医疗金，那些必要的社会维持资金，全部都被洗到中共国了。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-06-18.27.36.png)
+千人计划就是单伟建主要推动的。千人计划的目的就是中共派遣留学生到国外偷盗先进技术，然后带回到中共国，用来进行一些邪恶目的。中共国这些年越来越狂妄，也因为三只手的偷盗之事做得太多了，很多技术的进展根本不是中共能够想象到的，所有的什么太空，高科技之类的计划都是偷盗了美国等别国的先进技术，就连这次遍布全球的中共病毒也是从美国偷盗来的。美国在很多年前已经禁止了SARS的功能增强实验研究，就是因为这个实验研究太危险了，这个条款是明令禁止的。美国的福奇用纳税人的钱资助了中共武汉病毒研究所来进行这个危害全人类的研究。但是福奇就是嘴硬，就不承认。单单从中共病毒上来说，偷盗技术并且让美国的卫生部门配合，这并不是一两个人就能轻易做到的。双方国家政府的勾兑是一方面，深层次的，都开始杀人了，居然美国社会的医疗卫生大佬福奇可以站在中共这边，整个卫生医疗系统在中共病毒一开始的时候都被禁声，可想而知中共对美国卫生系统的腐化有多严重。再者，法律系统也被中共腐化到如此严重的地步，PAX可以在众目睽睽之下，一点都不遵守法律程序，一次又一次让法律的颜面尽失，五年啊，这个官司五年了，明明一开始就完全可以判定是一个假案子，这五年七哥在面对美国司法的腐败，时时刻刻承受着超出常人的压力。
 
-2022年2月1日，美国参议员Ron Johnson致函国防部（Department of Defense，简称DoD）部长Lloyd Austin，以确认1月24日俄亥俄州律师Thomas Renz在华盛顿特区举行的《[Covid-19: A Second Opinion](https://rumble.com/vt62y6-covid-19-a-second-opinion.html)》中的陈述。Johnson参议员要求Austin部长在2022年2月15日之前提供有关军人受到COVID-19病毒疫苗伤害的信息。
+中共自己什么都造不出来，但是耍流氓手段倒是天下第一了，不仅对美国人耍流氓，更对中国人自己耍流氓。华为这种企业，用的不过就是国外的技术，没有了国外的芯片，一切什么所谓的5G，什么AI技术，都变成一张纸了。共产党觊觎台湾，主要也是因为台积电，这毕竟是一个在世界排位靠前的芯片产业。可以说，共产党拿不下台湾，也拿不下台积电，简直就是痴心妄想。不因为别的，台积电的高管都是美国的，决定台积电的并不是台湾，而是美国，这其中的各种人际关系都曾经和七哥共事。让人嘲讽的是，共产党千人计划偷技术偷了这么多年，并没有把芯片技术全部偷回来，不行就是不行。另外也说明，在高科技行业，日新月异的发展，一定要有自己的核心竞争力，像中共这样到处偷技术，一旦一个版本没偷回来，下一代要更新就很困难。打个比方，以后手机都要开始用马斯克的卫星联网了，没有支持这个技术的芯片那就造不出手机，目前国产的各种手机商都是从外观上软件上做文章，怪不得每年都有新手机发布，就是因为芯片技术发展得太快了，赶不上就是赶不上。虽然说一个电脑用几年还是可以用，一个手机也还是可以用，不要说这样的话，没芯片就是没芯片，自己没技术就是没技术，别酸。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-06-18.29.01.png)
+七哥当时爆料单伟建的时候说，就怕他听到些风声，他要做的事情停手了，那就很不利了。好比共产党的江家和王岐山曾庆红等人，他们无论从整个国际局面还是风水还是做人的一些方面，都比习近平强太多太多了。况且他们的资产和家人几乎全部都是海外，有什么事儿都不可能太敌对西方国家，尤其是美国。他们城府都深，都爱装孙子，单伟建是中共的高级特务，在海外耕耘那么多年，又怎么能不懂这个道理呢？况且单伟建的儿子也已经子承父业了，也成了中共特务，可想而知他一家人都是共产党的走狗，根本不会想着去融入西方，在西方吹吹打打那么多年，也就是因为后面有共产党的巨额资金给他撑着，你让他自己发展，在西方的公开市场经济竞争一下，他什么都不是。毕竟，红卫兵的本质就是非法劫掠，在文革期间就是那么出头的，越不讲规则反而还得到更多，这些共产党的流氓手段都被单伟建这样的中共特务推广至全球了，西方国家赖以生存的民主法治的基础也被七七八八破坏完了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/556737019-U-S-Sen-Johnson-Asks-Secretary-Austin-1.jpg)
+单伟建强推杨贝贝对七哥进行媒体造谣抹黑，污蔑所有的华人都是恐怖分子，暴徒。他一只手似乎可以决定很多人的命运，但是现在的情况是，吴征已经被FBI调查了，单伟建再神通广大，他也根本没办法停下来，他必须要一直往前走，七哥说了，他只要动，就是好事儿。希望他在作死的路上不要停，多跟习神学学踩油门。
 
-2022年1月24日，由多位世界知名医生和医学专家参加的《[Covid-19: A Second Opinion](https://www.thegatewaypundit.com/2022/02/sen-ron-johnson-sends-letter-sec-defense-demanding-information-high-covid-19-vaccine-injury-among-military-personnel/)》会议在华盛顿特区举行，该会议由参议员Ron Johnson主持。
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-06_13-33-49.png)
+作者：骄子
+发布：骄子
 
-在长达5个多小时的讨论中，几位世界知名医生和医学专家就应对COVID-19病毒全球大流行提供了不同的视角，对目前掌握的COVID-19病毒大流行早期和医院应对状况、COVID-19病毒疫苗的有效性和安全性，什么是对的、什么是错的、现在应该做什么、以及长期需要解决的问题等展开讨论。
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，欢迎加入银河系农场。欢迎各农场兄弟姐妹们坐客串门，欢迎订阅我们的我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)、[银河农场–勇气星球](https://gtv.org/user/5f0d36870cac397fcf00154c)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/345-1.jpg)
 
-在这次会议上，俄亥俄州律师 Thomas Renz展示了Samuel Sigoloff博士、 Peter Chambers和Theresa Long等勇敢的吹哨人（whistleblowers）在他们在临床工作中，发现自匆忙推出试验性的Covid-19病毒疫苗以来，多种严重疾病在美军现役人员中呈天文数字增加，他们通过调查美国国防医学流行病学数据库 ( [Defense Medical Epidemiology Database](https://www.health.mil/Military-Health-Topics/Combat-Support/Armed-Forces-Health-Surveillance-Division/Data-Management-and-Technical-Support/Defense-Medical-Epidemiology-Database)，简称[DMED](https://www.health.mil/Military-Health-Topics/Combat-Support/Armed-Forces-Health-Surveillance-Division/Data-Management-and-Technical-Support/Defense-Medical-Epidemiology-Database))的数据发现，自一年前推出COVID-19病毒疫苗以来，美军部队现役人员的健康状况发生了令人不安的异常情况，其中最令人担忧的是癌症增加了3倍。
+ 
 
-在Ron Johnson参议员致函国防部部长Lloyd Austin的信中，Johnson引用了Renz的报告，这些举报人发现，根据国防医学流行病学数据库([DMED](https://www.health.mil/Military-Health-Topics/Combat-Support/Armed-Forces-Health-Surveillance-Division/Data-Management-and-Technical-Support/Defense-Medical-Epidemiology-Database))的数据，与2016年~2020年2月COVID-19病毒大流行前的五年平均水平相比，2021年在[DMED](https://www.health.mil/Military-Health-Topics/Combat-Support/Armed-Forces-Health-Surveillance-Division/Data-Management-and-Technical-Support/Defense-Medical-Epidemiology-Database)登记的流产、癌症和许多其他疾病显著增加，例如，在圆桌会议上，Renz表示，登记诊断的神经系统问题增加了10倍，从五年平均值的82,000例增加到2021年的863,000例，其它疾病也有大幅增加，具体包括以下惊人的数字：
-
-高血压（Hypertension）–增加2,181%
-
-神经系统疾病（Diseases of the nervous system）–增加1,048%
-
-食道恶性肿瘤（Malignant neoplasms of esophagus）–增加894%
-
-多发性硬化症（Multiple sclerosis）–增加680%
-
-消化器官恶性肿瘤（Malignant neoplasms of digestive organs）–增加624%
-
-格林-巴利综合征（Guillain-Barre syndrome）——增加551%
-
-乳腺癌（Breast cancer）–增加487%
-
-脱髓鞘（Demyelinating）–增加487%
-
-甲状腺和其他内分泌腺的恶性肿瘤（Malignant neoplasms of thyroid and other endocrine glands）——增加474%
-
-女性不孕症（Female infertility）–增加472%
-
-肺栓塞（Pulmonary embolism）–增加468%
-
-偏头痛（Migraines）–增加452%
-
-卵巢功能障碍（Ovarian dysfunction）–增加437%
-
-睾丸癌（Testicular cancer）–增加369%
-
-心动过速（Tachycardia）–增加302%
-
-在Ron Johnson参议员致函国防部部长Lloyd Austin的信中还提到，在收到Renz报告[DMED](https://www.health.mil/Military-Health-Topics/Combat-Support/Armed-Forces-Health-Surveillance-Division/Data-Management-and-Technical-Support/Defense-Medical-Epidemiology-Database)数据库中一些显示了心肌炎的数据已被删除，[DMED](https://www.health.mil/Military-Health-Topics/Combat-Support/Armed-Forces-Health-Surveillance-Division/Data-Management-and-Technical-Support/Defense-Medical-Epidemiology-Database)数据库已被篡改后，他在1月24日立即写信给Lloyd Austin，要求保留所有提及、关联或报告给DMED的记录。但至今还不知道Lloyd Austin是否遵守了这个要求。
-
-Ron Johnson参议员警告，任何对Renz在圆桌会议上透露的Samuel Sigoloff博士、Peter Chambers和Theresa Long三位勇敢的举报人采取的报复行动，都不会被容忍，并将被立即进行调查。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/556737019-U-S-Sen-Johnson-Asks-Secretary-Austin-2.jpg)
-
-在信的最后，参议员Ron Johnson向Lloyd Austin国务卿提出了以下问题：
-
-1.与2016年~2020年的五年平均水平相比，2021年[DMED](https://www.health.mil/Military-Health-Topics/Combat-Support/Armed-Forces-Health-Surveillance-Division/Data-Management-and-Technical-Support/Defense-Medical-Epidemiology-Database)数据库中登记诊断的流产（miscarriages）、癌症或其他疾病是否有所增加？如果情况属实，请解释国防部（DoD）采取了哪些行动来调查增加的根本原因。
-
-2.从2021年1月到2021年12月，[DMED](https://www.health.mil/Military-Health-Topics/Combat-Support/Armed-Forces-Health-Surveillance-Division/Data-Management-and-Technical-Support/Defense-Medical-Epidemiology-Database)数据库中登记诊断的心肌炎数据是否已从数据库中删除？如果是这样，请解释删除这些信息的原因和时间，并确定删除者。
-
-参考数据：
-
-[Sen. Ron Johnson Sends Letter to Sec. of Defense Demanding Information on Shockingly High COVID-19 Vaccine Injury Among Military Personnel](https://www.thegatewaypundit.com/2022/02/sen-ron-johnson-sends-letter-sec-defense-demanding-information-high-covid-19-vaccine-injury-among-military-personnel/)
-
-[U.S. Sen. Johnson Asks Secretary AustinFull description](https://www.scribd.com/document/556737019/U-S-Sen-Johnson-Asks-Secretary-Austin#download)
-
-[COVID-19: A Second Opinion](https://rumble.com/vt62y6-covid-19-a-second-opinion.html)
-
-[Whistleblowers share DOD medical data that blows vaccine safety debate wide open](https://www.theblaze.com/op-ed/horowitz-whistleblowers-share-dod-medical-data-that-blows-vaccine-safety-debate-wide-open)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
-
+ 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

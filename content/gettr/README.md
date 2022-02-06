@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/6/2022 9:15 PM (UTC)`
+
+2月6号：尊敬的战友们好！关于如何使用GTV帮助加拿大卡车反疫苗运动的几点声明！
+![img](https://media.gettr.com/group46/getter/2022/02/06/21/a603d339-c777-36ab-1da4-8bf61d959a1b/out.jpg)
+
+---
+
 `@miles 2/6/2022 12:44 PM (UTC)`
 
 2022年2月6日 文贵大直播：开幕式后普京愤然离去；中俄战略合作虎头蛇尾；贩卖人口中国妇女地位；反疫苗运动及美国经济
@@ -152,12 +159,6 @@ This is the BIG ONE I previewed on @WarRoom a little earlier regarding the Covid
 
 2022年2月4日 文贵大直播：冬奥会媒体中心与世界冲突；灭共的雪轰轰烈烈漫山遍野；美国世界经济状况摇摇欲坠；HPay数字货币市场谁主沉浮
 ![img](https://media.gettr.com/group3/origin/2022/02/04/12/a80a61f2-2c1b-4432-3875-889d35f59eb9/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 2/4/2022 11:59 AM (UTC)`
-
- 2月4号：尊敬的战友们好。七哥正在GTV直播，北京冬奥会出大事啦…… <br/><br/>G-TV精彩直播与您分享: <br/>https://gtv.org/broadcast/watch/61fd129696ba5d73e0c27968
 
 ---
 

@@ -2,46 +2,42 @@
 ---
 
 
-## 法院责令FDA于未来半年内公布辉瑞疫苗文件
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1967028/)
+## 2.6.22大直播后记： 新中国联邦红的由来
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1967035/)
 
-作者：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-2月2日，德克萨斯州北区地区法院签发的一份判决书，责令美国食品和药物管理局FDA在未来的半年内，必须按期公开长度超过33万页的辉瑞中共病毒疫苗的审批文件，直到全部文件完全被公之于众。
+**整理：雅典娜速记组
+编辑：Candy**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/7-6.png)
-
-此前，FDA在回应遵守“信息自由法案 (FOIA) ”的初审判决时，请求以每月 500 页的速度公布与辉瑞疫苗相关的数十万份文件。该判决书表示，法院收到FDA要求修改排期令的动议，也收到一份联合状况报告，阐明了原、被告双方商定的时间表。法院根据这份时间表，批准了部分动议。命令：
-
-1、FDA的报告必须在每个月的第一个工作日提交；
-
-2、FDA在3月、4月，各提交1万页；
-
-3、FDA在5月、6月和7月各完成8万页；在8月完成7万页；此后在每个月的第一个工作日提交5.5万页，直到公布完毕。
-
-该判决书还允许提前完成公布页码数量，并且将每40行算作一页，而不是之前的20行算作一页。
-
-参考链接：
-
-- [https://twitter.com/disclosetv/status/1489688729778274304?s=21](https://www.newsmax.com/newsfront/johns-hopkins-researchers-lockdowns-covid/2022/02/01/id/1054965/)
-- [UNITED STATES DISTRICT COURT FOR THE NORTHERN DISTRICT OF TEXAS FORT WORTH DIVISION](https://phmpt.org/wp-content/uploads/2022/02/056-ORDER-GRANTING-IN-PART-THE-MOTION-TO-MODIFY-THE-PRODUCTION-SCHEDULE-AND-ADDOPTS-THE-JOINT-STATUS-REPORT-MODIFIED-AGREED-PRODUCTION-SCHEDULE.pdf)
-- [FDA想75年才公布完疫苗数据却被法官大提速](https://gnews.org/zh-hans/1886642/)
-- [为什么法官命令 FDA 立即发布 Covid-19 疫苗数据](https://gnews.org/zh-hans/1891996/)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-420.png)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
+**战友提问：**春节大直播的时候您，第一次展示那面红色的新中国联邦国旗，这背后有什么意义吗？
 
-总编：文真
-编辑：Delilah小胖
-校正/发稿：海阔天空1
+**郭先生解释如下：**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+因为原来咱们这个武当山的大师说，文贵，我给新中国联邦算过命，解了秘。你当时说这个蓝色的海洋、星空，还有49星，这个是非常对的，包括红色是血液。但是你不能把颜色给它概括（囊括）了，你可以灭共，但不能灭颜色。这个颜色是上天给的，七颜六色不是共产党发明的，是上天和人类发明的。这个红色不仅代表血液，它也是大自然密码中的一部分。你不能说共产党拿到一个钥匙偷了人家钱，你认为所有的钥匙都是不对的，这是不可以的。
+
+他说，共产党过去用的红，还有它的那个土，就咱说那个红星5星，今年对它们极不利。他说上天赐予的神秘的力量，还有红旗的力量，特别共产党是镰刀斧子这些东西，包括习的属相，各方面算完，共产党已经完球蛋了！
+
+那么为啥我建议你要用红旗呢？ 他说，里今年是水虎年，水虎年冲谁呢？ 我们新中国联邦是蓝色的旗，水很多，但是我们49星土星太少，对咱爱（容易）出是非，你也要用红（色）。
+
+你用的红好在哪儿了呢？ 他说，因为你是属狗的，今年是壬虎年，而且现在的爆料我们进入了关键时刻，你要拿到中共国的火。它（中共）崇拜的火，你要拿到这个土（克它）。所以才给建议设计两个旗出来：49星加红旗，还有一个信仰之星加红旗。 我放下电话马上就找CC嗝屁。我说，你赶快设计，这就出来了。
+
+就是说今年的水虎年，对新中国联邦有利的是火和土。水来土淹，水火不相容，但是水火交融。 共产党，咱们现在就是要对着它干。我们要改变我们的思维：红色、火色不是共产党拥有的，我们也可以使用！所以就设计了红旗，包括今天你看我穿了多少套红衣服了，十几套都不止了吧？！
+
+很多红！这就是我们大师说的，新中国联邦今年会有三个大惊喜：三个大惊喜里边两个都是要走火运，还有一个走土运。第三个现在他没告诉我，两个我已经知道了。所以说，现在我们的金融是土生金、金融财，然后是火生木，木生火，火生金，金生土，土生万物。北侧为水，东侧为木，南侧为火，西侧为金，中间为土。
+
+大师说的都是对的，百分之百，他说让我跳楼我都跳，我百分之百相信他。所以说今年改成了这个红旗49星，大家尽管的去用；还有红旗会带信仰之星的颜色，也会很快出来。谢谢！
+
+***发布：Candy***
+
+**更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

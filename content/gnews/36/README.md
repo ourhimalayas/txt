@@ -2,28 +2,24 @@
 ---
 
 
-## 惊人的镜头：加拿大牛仔骑马加入抗议
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1966667/)
+## 麦考尔的竞选广告抨击由反人类犯罪集团中共举办的北京冬奥会
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1966880/)
 
-翻译： Jenny Ball
+**采编****/翻译： 意翎  **
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-1-2.jpg)图片来源：CDMedia
+**责编：白夜**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-596.png)
+周六，《华盛顿邮报》记者约瑟夫·封立克（Joseph Clark）报道，美国德克萨斯州众议员米切尔特·麦考尔（Michael T.McCaul）发起了一场广告宣传活动，抨击中国共产党（CCP）的滥权犯罪行为，并与2022年北京冬奥会报道的同时播出。
 
-随着加拿大专制当局试图阻止卡车驶入抗议区，加拿大的牛仔们加入战斗，并骑马前往抗议地点。
+这位众议院外交事务委员会的共和党领袖，也是共和党的中国问题特别工作组（GOP’s Task Force ）的主席说，中共利用奥运会来“粉饰他们的种族灭绝、军事侵略和对本国人民的压迫……我们不会对他们奴役人民的行为睁一只眼，闭一只眼”。 麦考尔在他的竞选团队周五发布的广告中说，“CCP正在对自己的人民进行种族灭绝……他们威胁要对美国和我们的盟友进行军事侵略。他们还在继续掩盖Covid-19的起源……现在他们想让我们看奥运会，忘记他们的罪行”，他说。
 
-一位当地目击者宣称：“牛仔们今天在艾伯塔省库茨的美国/加拿大边境加入卡车司机和农民的行列。我的侄女正在前往加拿大另一个主要抗议地点的路上。其他抗议活动正在全国各地爆发。多伦多、魁北克市中心。昨天在新南威尔士州，州长刚刚颁布了更严格的措施，对全省任何地方的交通放缓处以高达 100,000 的罚款，对超过 10 人的聚会处以 2000 的罚款。这只能更加激励人们抗议。
+麦考尔置身于一个由两党组成的、旨在孰促国际奥委会(IOC)抵制中共政府在新疆的种族灭绝行为和反人类罪行的团体，一直对IOC允许北京举办奥运会的决定持批评态度。“我们会为美国队加油，同时我们也会谴责CCP和国际奥委会在道义上应受谴责的行为”，他说。
 
-自从 GoFundMe 昨天从卡车司机那里偷走了 1000 万美元后，新账号的捐款就捐爆了了……我打赌卡车司机会得到两倍的捐款。”
+在广告中，麦考尔呼吁观众，“支持运动员，不能让共产党人洗脑成功。”他在一份声明中说：“重要的是，美国人民站起来一齐对CCP的种族灭绝说不！”
 
-**参考资料：**[CDMedia][Amazing Footage -The Canadian Cavalry Joins The Truckers As Cowboys On Horseback Join The Protest](https://creativedestructionmedia.com/news/politics/2022/02/05/amazing-footage-the-canadian-cavalry-joins-the-truckers-as-cowboys-on-horseback-join-the-protest/)
+**[原文链接](https://www.washingtontimes.com/news/2022/feb/5/mccaul-campaign-runs-ad-targeting-beijing-olympics/)**
 
-* * *
 
-*审核：文乐
-校对：信心满满
-发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH..jpeg)
 
  
 
