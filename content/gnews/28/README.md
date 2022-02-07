@@ -2,30 +2,31 @@
 ---
 
 
-## 冬奥会 “一鸽都不能少” 引台民众忧虑
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1971104/)
+## 日媒指出中共冬奥会的问题 印证爆料革命观点
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1971130/)
 
-作者：纽约香草山教育部 Naughty(文行)
+作者：日本方舟农场 – Andy5
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月4日，北京冬奥开幕式上，《闪亮的雪花》节目中，有一段剧情描写掉队的小鸽子被拉回队伍。 “一鸽都不能少”这一幕被普遍认为在映射台湾回归大陆。
+当地时间2月6日，日媒用生动的剪纸画，总结了中共冬奥会的三大问题。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-4.jpeg)
 
-台湾《自由时报》称，中共对外所呈现的每个符码，都是经过精心策划的。而中共显露出来这么重要的信息，却少有台湾人关心。台湾民众对中共野心的认知如此忽视，实在令人唏嘘。
+报道指出，首先，与习近平作为筹备小组组长的08年夏季奥运会相比，参加开幕式的外国领导人人数，因为新疆人权等原因从80国锐减至25国，并且其中的11国属于强权专制国家。
 
-如果仔细剖析“一鸽都不能少”的含义，不难发现谁是那只掉队的鸽子，谁又是把掉队的鸽子抓回来的那只鸽。冬奥会这一表演透露了中共准备动手抓鸽子的心态。按着中共的本性，台湾的未来，可说凶险万分。
+其次，本次中共冬奥会的所有三个室外场地，均被设在了很少有降雪的地方，不得不使用对环境造成污染的人工降雪。
 
-郭文贵先生在2月6日大直播中，回答战友提问时指出，中共已近完结，但其灭亡前对台动武的可能性越来越高，达百分之90以上。冬奥会开幕式上的表演，实际是舆论导向宣传而已。
+最后，之所以要将冬奥会地点定在北京，也是为了取得全球首个举办双奥运城市的名头，为习近平二十大连任铺路。
 
-参考链接： 
-1. [冬奧開幕「一鴿都不能少」影射台灣？他嘆：我們還在吵總統論文](https://news.ltn.com.tw/news/politics/breakingnews/3820911)
-2. [昨夜鸟巢“一鸽都不能少”，代表台湾？](https://taiwan.huanqiu.com/article/46gqXG7slnn)
-3. [“一鸽都不能少”传到台湾，绿媒的反应酸中有忧](https://3g.163.com/dy/article/GVH45ITO0514R9OJ.html?clickfrom=channel2018_news_index_newslist#child=index&amp;offset=2)
+分析人士指出，以上三点，都是去年郭文贵先生在大直播和盖特直播中反复提及的。日媒的此番报道，标志着越来越多的人正逐渐看清中共的真实嘴脸，并认同、接纳爆料革命新中国联邦最早提出的观点。
+
+参考链接：
+1. [20220206日本TBS細數CCP冬奧會的問題](https://www.gettr.com/post/psxici6ccb)
+2. [【中】中共冬奥问题20220206](https://mega.nz/file/sUphBCjD#Q8aM2IldMyR2ZBDfF7r8550X7Qqqx3mYm1fiyBCl08A)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-总编：Jack Li文阳
-编辑：静言
+总编：Ivy001 
+编辑：谐趣园
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**

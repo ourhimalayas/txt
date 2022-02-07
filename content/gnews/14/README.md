@@ -2,28 +2,36 @@
 ---
 
 
-## 彭帅宣布退休
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1971250/)
+## 著名记者劳拉·洛根离开推特脸书 中意盖特
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1971260/)
 
-**撰稿：日本东京方舟农场  幽蘭自得**
+作者：纽约香草山农场 007
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月3日，著名女记者劳拉·洛根宣布，将离开推特、脸书及Instagram等社交媒体，留在盖特等有言论自由的平台。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-07-上午11.18.48.png)
+劳拉曾经常年在阿富汗、伊拉克等战场前线报道，屡获殊荣，包括3次获得艾美奖，9次获得艾美奖提名等等。去年11月底，她因把福奇比做臭名昭著的纳粹医生，一度引发热议。
 
-中共国网球女将彭帅在2月7日刊出的访谈中，提到了自己决定退休的消息。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-100.jpg)（图片来自中央社）
-据《中央社》报道，彭帅告诉法国体育媒体《团队报》（L’Equipe），她在北京冬季奥运上与国际奥林匹克委员会（IOC）主席巴赫（Thomas Bach）见了面。
+劳拉表示，凭着良知，她不能为那些利用剥削儿童来谋利的平台作贡献。近年来，大型科技公司因涉嫌将儿童的露骨内容平台化，并成为性交易的温床而引起争议。那些平台一边严格审查卡车司机与疫苗受害者等人的自由言论，一边却在推行这种性堕落的意识形态，而推广和美化人类最糟糕无底线的行为是错误的。
 
-彭帅说：“我们周六（5日）一起吃了顿晚餐，我们有愉快的讨论和交流。”同时，彭帅也在访谈中宣布退休。
-
-另外，彭帅在中（共）国奥林匹克委员会人员陪同下，在冬奥泡泡内的一间旅馆告诉《团队报》的两位记者，她“从未指控遭人性侵也没人间蒸发。”
-
-对此，有网友评论，卸磨杀驴确实是中共一贯的伎俩。现在北京冬奥会也开了，中共可以毫无顾虑地让彭帅宣布“退休”了。
+劳拉的选择，标示着一个有正义感的媒体人，在纷繁复杂的世界里，基于人性最基本的要求，即言论自由，尊重人权等，而做出的价值判断，而盖特正是以此为其理念的崭新媒体平台。
 
 参考链接：
-[https://www.cna.com.tw/news/aopl/202202070033.aspx](https://www.cna.com.tw/news/aopl/202202070033.aspx)
+1）[https://gettr.com/post/psb7ot75d1](https://gettr.com/post/psb7ot75d1)
+2）[Award-Winning Journalist Lara Logan Quits Twitter, Facebook, Instagram: ‘Cannot’ Stay ‘In Good Conscience’](https://www.dailywire.com/news/award-winning-journalist-lara-logan-quits-twitter-facebook-instagram-cannot-stay-in-good-conscience)
 
-素材采编：幽蘭自得
-编辑：青城道姑
-发布：爱放飞
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
+总编：Ivy001
+编辑：静言
+校正/发稿：呼吸的雾霾（文小呼吸）
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
