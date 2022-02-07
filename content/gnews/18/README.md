@@ -2,22 +2,37 @@
 ---
 
 
-## 【秘翻在线】新泽西州州长将结束学校口罩规定
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1971954/)
+## 有声|冬奥会是习近平与巴赫的个人政治秀
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1972082/)
 
-**撰稿：Grace**
+配音：香草山健身部 – 玫瑰园
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-07-at-3.47.40-PM.jpeg)图片来源：bronx.news 12
-据 Insider Paper 2月7日报道，《纽约时报》称，新泽西州州长菲尔·墨菲（Phil Murphy）预计将在3月取消州内学校对学生和员工的口罩规定。
 
-这是自中共病毒COVID-19大流行开始以来，新泽西州首次放宽其学校口罩规定，表明该州对病毒的看法发生了转变。
 
-据报道，周日，该州记录了大约1600个新病例，与一个月前33000个病例的高峰相比，有了明显的下降。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-关于在学校戴口罩的辩论一直是一个有争议的问题。报道称，去年夏天，在新学年开始之前，一些地区，包括墨菲的家乡米德镇（Middletown）提出了自己的口罩规则，挑战州长的强制口罩规定。
 
-**新闻来源： ****[New Jersey Gov. Murphy to end school mask mandate](//054F5841-01B1-4F6A-84E2-77C1443F4C0F/New%20Jersey%20Gov.%20Murphy%20to%20end%20school%20mask%20mandate)**
+
+2月3日，日本三大新闻媒体巨头密集发声，指斥北京冬奥会就是习近平和巴赫企图捞取个人政治资本的一场表演。
+
+首先，举办地的北京居民，因为要保证冬奥会的蓝天被设置了诸多限制，春节也不被允许燃放烟花爆竹，又因为疫情清零被迫无法回到故乡过年，中共奥运代表队还喊出了“跟随习近平奔向未来”的口号。这都说明冬奥会跟中国百姓无关。
+
+其次，作为国际奥委会主席的巴赫，实际上跟习拥有同样的野心，也想突破12年任期的限制，所以不顾疫情持续恶化，相继举行了东京夏季奥运会和北京冬季奥运会，希望以此作为自己的政治资本。 自今年1月以来的爆料革命大直播中，郭文贵先生反复强调，北京冬奥会，就是习近平等人的个人政治秀，跟中国老百姓没有任何关系。现在日本媒体的密集报道，更加印证了爆料革命这一观点。
+
+文字版原文：[冬奥会是习近平与巴赫的个人政治秀](https://gnews.org/zh-hans/1968372/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
 
  
 

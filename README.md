@@ -15,95 +15,95 @@
 
 ---
 
-### [有声|美俄联合国舌战之际，俄罗斯从俄罗斯边境撤出部分军力](/content/gnews/1/README.md)
+### [有声|中共解放军集结东南沿海意图侵略台湾](/content/gnews/1/README.md)
  ` MOSREC`
 
-### [有声|美国两党议员推动台湾驻美代表处更名](/content/gnews/2/README.md)
+### [澳洲派部队进驻养老院所暴露出的问题](/content/gnews/2/README.md)
+ ` 喜国公民`
+
+### [有声|中美初次建交，文明穿越百年](/content/gnews/3/README.md)
  ` MOSREC`
 
-### [【G时新闻】北京冬奥会COVID-19病例创新高](/content/gnews/3/README.md)
+### [天亮前的忧伤](/content/gnews/4/README.md)
+ ` 纽约香草山MOS03`
+
+### [有声|美俄联合国舌战之际，俄罗斯从俄罗斯边境撤出部分军力](/content/gnews/5/README.md)
+ ` MOSREC`
+
+### [有声|美国两党议员推动台湾驻美代表处更名](/content/gnews/6/README.md)
+ ` MOSREC`
+
+### [【G时新闻】北京冬奥会COVID-19病例创新高](/content/gnews/7/README.md)
  ` G-时新闻`
 
-### [贩卖妇女 | 中共治下的又一哀鸣，我们为自己而战](/content/gnews/4/README.md)
+### [贩卖妇女 | 中共治下的又一哀鸣，我们为自己而战](/content/gnews/8/README.md)
  ` YALUN 亚伦`
 
-### [文贵先生盖特精要2022/02/07](/content/gnews/5/README.md)
+### [文贵先生盖特精要2022/02/07](/content/gnews/9/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|H-Pay实现人民币秒变喜美元](/content/gnews/6/README.md)
+### [有声|H-Pay实现人民币秒变喜美元](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [全球疫情更新（毒针的黑色幽默）](/content/gnews/7/README.md)
+### [全球疫情更新（毒针的黑色幽默）](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [郭文贵精品视频-北京冬奥会鲜为人知的秘密之巨婴普京](/content/gnews/8/README.md)
+### [郭文贵精品视频-北京冬奥会鲜为人知的秘密之巨婴普京](/content/gnews/12/README.md)
  ` cindy`
 
-### [有声|世界各国的孔子学院陆续关闭](/content/gnews/9/README.md)
+### [有声|世界各国的孔子学院陆续关闭](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [有声|各国孔子学院关闭进展迅猛](/content/gnews/10/README.md)
+### [有声|各国孔子学院关闭进展迅猛](/content/gnews/14/README.md)
  ` MOSREC`
 
-### [有声|期待](/content/gnews/11/README.md)
+### [有声|期待](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [有声|烟花](/content/gnews/12/README.md)
+### [有声|烟花](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [有声|铁锤](/content/gnews/13/README.md)
+### [有声|铁锤](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [有声|冬奥会是习近平与巴赫的个人政治秀](/content/gnews/14/README.md)
+### [有声|冬奥会是习近平与巴赫的个人政治秀](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [DC大中华时事：赵立坚回应中共为什么挑选迪妮格尔担任火炬手](/content/gnews/15/README.md)
+### [DC大中华时事：赵立坚回应中共为什么挑选迪妮格尔担任火炬手](/content/gnews/19/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [有声|荷兰记者冬奥会直播被拖走](/content/gnews/16/README.md)
+### [有声|荷兰记者冬奥会直播被拖走](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [郭文贵精品视频-北京冬奥会鲜为人知的秘密之兵临城下](/content/gnews/17/README.md)
+### [郭文贵精品视频-北京冬奥会鲜为人知的秘密之兵临城下](/content/gnews/21/README.md)
  ` cindy`
 
-### [【秘翻在线】新泽西州州长将结束学校口罩规定](/content/gnews/18/README.md)
+### [【秘翻在线】新泽西州州长将结束学校口罩规定](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：花旗预测软银抛售股份，阿里巴巴股价暴跌](/content/gnews/19/README.md)
+### [秘翻在线：花旗预测软银抛售股份，阿里巴巴股价暴跌](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [北京冬奥会就是中共剥削百姓奴役全球的缩影](/content/gnews/20/README.md)
+### [那么暖心的一首歌 成了心头的一块冰](/content/gnews/24/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [北京冬奥会就是中共剥削百姓奴役全球的缩影](/content/gnews/25/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [我们是警察，不是社会的刽子手（三）](/content/gnews/21/README.md)
+### [我们是警察，不是社会的刽子手（三）](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [文贵解析美国经济的几个重要指标](/content/gnews/22/README.md)
+### [文贵解析美国经济的几个重要指标](/content/gnews/27/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [法律你我他：中共国相关法律-扫黄打非之万恶劳教制度](/content/gnews/23/README.md)
- ` 加拿大温哥华扬帆农场蓝枫法律`
-
-### [我们是警察，不是社会的刽子手（二）](/content/gnews/24/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [我们是警察，不是社会的刽子手（一）](/content/gnews/25/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [透过现象看本质：从制度层面解读猖獗的拐卖女性犯罪](/content/gnews/26/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [七哥谈“以钱灭共，以共灭共” （2022-02-02摘录）](/content/gnews/27/README.md)
+### [七哥谈“以钱灭共，以共灭共” （2022-02-02摘录）](/content/gnews/28/README.md)
  ` MG FARM`
 
-### [北京冬奥会彻底展现中共成孤家寡人穷途末路](/content/gnews/28/README.md)
+### [北京冬奥会彻底展现中共成孤家寡人穷途末路](/content/gnews/29/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [喜马拉雅真义14解：天地鬼神与新中国联邦人一起灭共灭邪恶力量](/content/gnews/29/README.md)
+### [喜马拉雅真义14解：天地鬼神与新中国联邦人一起灭共灭邪恶力量](/content/gnews/30/README.md)
  ` 秘密翻译组-原创组`
-
-### [2022月2日6日 《文贵大直播》全文字版](/content/gnews/30/README.md)
- ` 温哥华扬帆农场七哥直播全文听写组`
 
 ### [海航与PAG太盟集团合谋虚假抵押股权骗取贷款](/content/gnews/31/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`

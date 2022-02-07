@@ -2,22 +2,16 @@
 ---
 
 
-## 有声|美俄联合国舌战之际，俄罗斯从俄罗斯边境撤出部分军力
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1972335/)
+## 有声|中共解放军集结东南沿海意图侵略台湾
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1972405/)
 
 配音：香草山巡管部– 文凯琳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月4日大直播，郭文贵先生爆料称，据中共军方情报来源，得知中共解放军已经进入“准战争”状态。
 
+文贵先生在1月30日透露中共军方人士提供的情报，解放军东部战区从1月29日开始往福建沿海，进行兵力调动。此消息，随后在2月4日被中共解放军内部人士证实，距北京几千公里地区外，解放军东部战区和南部战区进入一级紧急战备，并完成开战前集结。台海战争一触即发。
 
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-768x103-26.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-26.jpg)
-
-
-
-据台媒报导，美国驻联合国大使31日指责俄罗斯不仅侵略成性，且将乌克兰与西方国家丑化为侵略者，企图制造开战借口。
-
-与此同时，俄罗斯军方宣布从乌克兰边界地区撤军9000人，但尚难以判定此次局部撤军是否代表俄方有意降低紧张态势。白俄罗斯位于乌克兰北部，是俄罗斯在东欧最忠实的盟友。白俄罗斯军方上周宣布，驻乌俄军将在2月的两国大规模联合军演之后撤离。
-
-文字版原文：[美俄联合国舌战之际，俄罗斯从乌克兰边境撤出部分军力](https://gnews.org/zh-hans/1964769/)
+文字版原文：[中共解放军集结东南沿海意图侵略台湾](https://gnews.org/zh-hans/1966470/)
 
 音频处理/发稿：Daxia
 
@@ -30,6 +24,8 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
