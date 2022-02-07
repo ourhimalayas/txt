@@ -2,51 +2,35 @@
 ---
 
 
-## 冬奥会是习近平与巴赫的个人政治秀
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1968372/)
+## 美国众议院通过《美国竞争法》法案
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1968597/)
 
-作者：日本方舟农场 – Andy5
+**【雅典娜快讯】，紧贴时代脉搏**
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/pelosi-COMPETES-Act.png)Courthouse News Service
 
 
+**整理：**Eileen（围剿维尼熊）
+**编辑：**翼族
 
-2月3日，日本三大新闻媒体巨头密集发声，指斥北京冬奥会就是习近平和巴赫企图捞取个人政治资本的一场表演。
+根据《联合报》报道：美国联邦众议院2月4日表决通过《美国竞争法》（America COMPETES Act），斥资三千五百亿美元推动美国半导体产业，强化美国对中国大陆的竞争力。法案同时呼吁行政部门将“驻美国台北经济文化代表处”（TECRO）更名为“台湾代表处”（Taiwan Representative Office）。
 
-首先，举办地的北京居民，因为要保证冬奥会的蓝天被设置了诸多限制，春节也不被允许燃放烟花爆竹，又因为疫情清零被迫无法回到故乡过年，中共奥运代表队还喊出了“跟随习近平奔向未来”的口号。这都说明冬奥会跟中国百姓无关。
+商务部长雷蒙多称，这是五十年来促进美国竞争力、制造和研发能力的最大投资案。众院科学委员会主席强森表示，这将可帮助美国与中共国“大干一场”。
 
-其次，作为国际奥委会主席的巴赫，实际上跟习拥有同样的野心，也想突破12年任期的限制，所以不顾疫情持续恶化，相继举行了东京夏季奥运会和北京冬季奥运会，希望以此作为自己的政治资本。 自今年1月以来的爆料革命大直播中，郭文贵先生反复强调，北京冬奥会，就是习近平等人的个人政治秀，跟中国老百姓没有任何关系。现在日本媒体的密集报道，更加印证了爆料革命这一观点。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-2.jpg)
-参考信息及视频链接：
-1. [20220201日媒揭露CCP冬奧會無新聞自由](https://www.gettr.com/post/psbbzz209f)
-2. [20220201日本FNN+0105七哥大直播](https://www.gettr.com/post/psehad08ea)
-3. [20220203日本TBS報導北京冬奧會就是為了巴赫和習近平而舉辦的！](https://www.gettr.com/post/pse20vc850)
+众议院通过法案后，下一步就是参众两院整合版本，分别取得多数议员支持后，才能送交白宫由拜登签署实施。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+法案涵盖多项与台湾相关的条款，包括强化美台伙伴关系、协助台湾发展不对称防卫能力、协助台湾有意义参与包括世界卫生大会（WHA）等国际组织、强化美台双边经贸与科技合作。
 
-总编：Irene木木
-编辑：飞虹，文特
-校对/发稿：为真不破20
+**参考链接**：[美眾院通過抗中挺台法案](https://udn.com/news/story/6813/6078352?from=udn-catebreaknews_ch2)
 
-**更多资讯，更多关注**
+*发布：*翼族
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

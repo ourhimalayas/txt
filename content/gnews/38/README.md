@@ -2,52 +2,24 @@
 ---
 
 
-## 荷兰记者冬奥会直播被拖走
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1968126/)
+## 立陶宛外长今访澳 坚称不会更名台湾代表处
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1968214/)
 
-作者：纽约香草山教育部 – Naughty(文行)， AT
+撰稿：东京樱花团/asket
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-617.png)[图片来源](https://newsline.news/gabrielius-landsbergis-minister-towards-authoritarian-regimes/)
+立陶宛外长蓝斯柏吉斯（Gabrielus Landsbergis）于2月6日至10日，将先后访问新加坡、澳大利亚，开拓亚洲及大洋洲市场。据自由时报2月6日引述消息报道说，立陶宛外长蓝斯柏吉斯（Gabrielus Landsbergis）重申不会屈服中共经济胁迫。
 
+立陶宛外长蓝斯柏吉斯访澳前夕，接受《澳洲金融评论报》独家专访指出，立陶宛与澳大利亚此次交流议题将聚焦中共的胁迫和贸易制裁，立澳2国将就如何处理这种情况（被中国经济霸凌）以及学到了什么，又是如何从中变得更强大等议题交换意见，并互相帮助。
 
+据该报称，蓝斯柏吉斯强调，某些国家不应使用经济等胁迫方式，迫使另一个国家改变外交政策。但当前国际商定的规则和法规，正受到“强权国家”挑战，我们正在捍卫国家主权。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+对于外界盛传台湾驻立代表处可能因中共施压而更名一事，蓝斯柏吉斯再度驳斥，他重申，“无论如何，立陶宛都不打算更名。”“他们（指台湾）的正式名称不会改变。
 
+信息源：[立陶宛外長今訪澳-堅稱台灣代表處不更名](https://www.rfi.fr/tw/%E6%AD%90%E6%B4%B2/20220206-%E7%AB%8B%E9%99%B6%E5%AE%9B%E5%A4%96%E9%95%B7%E4%BB%8A%E8%A8%AA%E6%BE%B3-%E5%A0%85%E7%A8%B1%E5%8F%B0%E7%81%A3%E4%BB%A3%E8%A1%A8%E8%99%95%E4%B8%8D%E6%9B%B4%E5%90%8D)
 
-
-据荷兰媒体报道，2月4日，在北京举行的冬奥会开幕式上，一名正在直播的荷兰记者被一名中共国安保人员拖走。
-
-不久，美国、荷兰、马来西亚等媒体接连进行了报道。
-
-媒体披露的视频画面显示，几名安保官员包围了记者，其中一人在他站在离鸟巢不远的地方时强行抓住了他。
-
-尽管国际奥委会表示，这是一起孤立事件，不会影响外媒对奥运会的报道。但相关的荷兰媒体事后表示，在中共国参与报道的记者恐怕要经常面对这种情况。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide6-1.jpg)
-参考链接：
-[荷兰电视台记者报道北京冬奥会开幕式直播，被红袖彰生生推开了！全世界都看到了这一幕！ 这是真正的中国形象！](https://www.gettr.com/post/psk9pf20b7)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-
-总编：飞虹
-编辑：文特
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
