@@ -15,101 +15,101 @@
 
 ---
 
-### [有声|冬奥会是习近平与巴赫的个人政治秀](/content/gnews/1/README.md)
+### [有声|烟花](/content/gnews/1/README.md)
  ` MOSREC`
 
-### [DC大中华时事：赵立坚回应中共为什么挑选迪妮格尔担任火炬手](/content/gnews/2/README.md)
+### [有声|铁锤](/content/gnews/2/README.md)
+ ` MOSREC`
+
+### [有声|冬奥会是习近平与巴赫的个人政治秀](/content/gnews/3/README.md)
+ ` MOSREC`
+
+### [DC大中华时事：赵立坚回应中共为什么挑选迪妮格尔担任火炬手](/content/gnews/4/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [有声|荷兰记者冬奥会直播被拖走](/content/gnews/3/README.md)
+### [有声|荷兰记者冬奥会直播被拖走](/content/gnews/5/README.md)
  ` MOSREC`
 
-### [【秘翻在线】新泽西州州长将结束学校口罩规定](/content/gnews/4/README.md)
+### [郭文贵精品视频-北京冬奥会鲜为人知的秘密之兵临城下](/content/gnews/6/README.md)
+ ` cindy`
+
+### [【秘翻在线】新泽西州州长将结束学校口罩规定](/content/gnews/7/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：花旗预测软银抛售股份，阿里巴巴股价暴跌](/content/gnews/5/README.md)
+### [秘翻在线：花旗预测软银抛售股份，阿里巴巴股价暴跌](/content/gnews/8/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [北京冬奥会就是中共剥削百姓奴役全球的缩影](/content/gnews/6/README.md)
+### [北京冬奥会就是中共剥削百姓奴役全球的缩影](/content/gnews/9/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [我们是警察，不是社会的刽子手（三）](/content/gnews/7/README.md)
+### [我们是警察，不是社会的刽子手（三）](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [文贵解析美国经济的几个重要指标](/content/gnews/8/README.md)
+### [文贵解析美国经济的几个重要指标](/content/gnews/11/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [法律你我他：中共国相关法律-扫黄打非之万恶劳教制度](/content/gnews/9/README.md)
+### [法律你我他：中共国相关法律-扫黄打非之万恶劳教制度](/content/gnews/12/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [我们是警察，不是社会的刽子手（二）](/content/gnews/10/README.md)
+### [我们是警察，不是社会的刽子手（二）](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [我们是警察，不是社会的刽子手（一）](/content/gnews/11/README.md)
+### [我们是警察，不是社会的刽子手（一）](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [透过现象看本质：从制度层面解读猖獗的拐卖女性犯罪](/content/gnews/12/README.md)
+### [透过现象看本质：从制度层面解读猖獗的拐卖女性犯罪](/content/gnews/15/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [七哥谈“以钱灭共，以共灭共” （2022-02-02摘录）](/content/gnews/13/README.md)
+### [七哥谈“以钱灭共，以共灭共” （2022-02-02摘录）](/content/gnews/16/README.md)
  ` MG FARM`
 
-### [“七哥一生的赢就赢在这儿，永不放弃，把不可能变成可能，把可能变成绝对可能” （2022-02-02摘录）](/content/gnews/14/README.md)
+### [“七哥一生的赢就赢在这儿，永不放弃，把不可能变成可能，把可能变成绝对可能” （2022-02-02摘录）](/content/gnews/17/README.md)
  ` MG FARM`
 
-### [北京冬奥会彻底展现中共成孤家寡人穷途末路](/content/gnews/15/README.md)
+### [北京冬奥会彻底展现中共成孤家寡人穷途末路](/content/gnews/18/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [七哥谈“它不一定叫金融，HPay我不一定跟你界定为金融系统” （2022-02-02摘录）](/content/gnews/16/README.md)
+### [七哥谈“它不一定叫金融，HPay我不一定跟你界定为金融系统” （2022-02-02摘录）](/content/gnews/19/README.md)
  ` MG FARM`
 
-### [喜马拉雅真义14解：天地鬼神与新中国联邦人一起灭共灭邪恶力量](/content/gnews/17/README.md)
+### [喜马拉雅真义14解：天地鬼神与新中国联邦人一起灭共灭邪恶力量](/content/gnews/20/README.md)
  ` 秘密翻译组-原创组`
 
-### [七哥说“不知道共产党埋了什么样的毒”（2022-02-02摘录）](/content/gnews/18/README.md)
+### [七哥说“不知道共产党埋了什么样的毒”（2022-02-02摘录）](/content/gnews/21/README.md)
  ` MG FARM`
 
-### [家庭反洗脑序列：第46篇 一张邮票](/content/gnews/19/README.md)
+### [家庭反洗脑序列：第46篇 一张邮票](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥谈隔空取钱（2022-02-02摘录）](/content/gnews/20/README.md)
+### [七哥谈隔空取钱（2022-02-02摘录）](/content/gnews/23/README.md)
  ` MG FARM`
 
-### [在渥太华自由车队和平示威现场听听全国民众为何而来以及对总理特鲁多有什么看法](/content/gnews/21/README.md)
+### [在渥太华自由车队和平示威现场听听全国民众为何而来以及对总理特鲁多有什么看法](/content/gnews/24/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [2022月2日6日 《文贵大直播》全文字版](/content/gnews/22/README.md)
+### [2022月2日6日 《文贵大直播》全文字版](/content/gnews/25/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [今日盖特大V推荐 — Joe Rogan（乔·罗根）](/content/gnews/23/README.md)
+### [今日盖特大V推荐 — Joe Rogan（乔·罗根）](/content/gnews/26/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [海航与PAG太盟集团合谋虚假抵押股权骗取贷款](/content/gnews/24/README.md)
+### [海航与PAG太盟集团合谋虚假抵押股权骗取贷款](/content/gnews/27/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [有声|美国总统顾问表示，对俄罗斯的新制裁将影响中（共）国经济](/content/gnews/25/README.md)
+### [有声|美国总统顾问表示，对俄罗斯的新制裁将影响中（共）国经济](/content/gnews/28/README.md)
  ` MOSREC`
 
-### [有声|NFSC新闻、G|TV新闻访谈简报|2022年2月6日早](/content/gnews/26/README.md)
+### [有声|NFSC新闻、G|TV新闻访谈简报|2022年2月6日早](/content/gnews/29/README.md)
  ` MOSREC`
 
-### [英国诸多学术机构获得中共捐赠后协助中共强大军事力量](/content/gnews/27/README.md)
+### [英国诸多学术机构获得中共捐赠后协助中共强大军事力量](/content/gnews/30/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|揭秘中共间谍单伟健的前世今生](/content/gnews/28/README.md)
- ` MOSREC`
-
-### [NFSC新闻、G|TV新闻访谈简报|2022年2月7日早](/content/gnews/29/README.md)
+### [NFSC新闻、G|TV新闻访谈简报|2022年2月7日早](/content/gnews/31/README.md)
  ` 纽约香草山MOS01`
 
-### [中共的特色社会主义之特性](/content/gnews/30/README.md)
- ` 纽约香草山MOS02`
-
-### [特魯多政府破壞「自由車隊」的籌款活動](/content/gnews/31/README.md)
+### [特魯多政府破壞「自由車隊」的籌款活動](/content/gnews/32/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [美国及世界疫情简报 （02-07-2022）](/content/gnews/32/README.md)
- ` 波士顿五月花农场`
 
 ### [解析中共国虚假的进出口贸易数据](/content/gnews/33/README.md)
  ` 经济小组`
