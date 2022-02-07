@@ -2,13 +2,30 @@
 ---
 
 
-## 天津市民揭露政府防疫造假
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1970663/)
+## 樱花灭共诗——听郭七文贵先生唱歌
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1970770/)
 
-01/30/2022 视频拍摄的天津女士说：当时我们小区(疫情)最严重的时候, 我们这帮志愿者们这么冷的天没白天没黑夜地楼上楼下的这么跑。现在小区的疫情已接近零, 上面派来了下层的干部当志愿者接替这帮老的志愿者，从而导致志愿者和领导之间发生了口角的冲突。
+撰稿：东京樱花团/小小杜
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-670.png)
+五载今开口，
 
-By:【秘密翻译组-精翻组 G-Translators/Elite Team】
+先生正道申。
 
+继承歌曲老，
+
+开创唱词新。
+
+义气惊天地，
+
+感情泣鬼神。
+
+疫中思海内，
+
+一句一沾巾。
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

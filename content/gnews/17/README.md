@@ -2,31 +2,21 @@
 ---
 
 
-## MV版Hcoin To the Moon上线60天第47次位列澳门iTunes热门MV榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1970587/)
+## 2022年2月6日《文贵大直播》关于今年要做的三个方面（精剪）
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1970687/)
 
-2/7/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线60天第47次位列澳门iTunes热门音乐视频榜榜首，第54次位列前三名
+文字&视频：历史铭记
 
-* * *
+今年任何新项目不开。咱们现在把原来的这些项目整好，咱任何新项目不开，绝对不开啊。就是绝对不能多，多到烂，我们已经够多了。我们过去2年、1年因需而发展的这些项目要搞好它，要搞强它，高质量的；然后把它影响无限大，把敌人变成一粒沙。然后，在今年是坚决不无限扩张，坚决不能犯希特勒的这种无限扩张导致的灾难。
 
-[【PDF 下载】Monday-7-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-7-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-7-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+我深思啊，然后我现在想我今年最大的灾难是什么？ 最大的挑战是什么？最大的问题是什么？ 就是排华。 新中国联邦面对最大的问题就是排华！我们怎么阻止排华？ 这是我今年心中最最重要的。我阻止不了西方的排华，我就没有任何能力可以灭共，灭共也没有用。
 
-* * *
+除此之外我干什么？ 我要叫国内更多人加入爆料革命，怎么办？ 靠什么？ 除了我们直播更多战友站出来，我们就是要把这个“币”牌打好；让国内的音乐界、教育界、军界、情报界、地方政府、企业界，让所有这些人得到真正的“喜币”和未来的“躺平币”；让他们没有任何（理由）可能拒绝。从东北的黑龙江的山沟到喜马拉雅山脉的下面，到东部的福建武夷山，到南部的深圳广东广州到香港。就（是）每一个人早晨醒来都是闻到币的味道，而且是“喜币”的味道！总有一天，我会让这些人尝尝这个鲜。这是我第2个，今年我就是用的“币招”啊。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-7-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-7-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-7-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-7-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-7-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-7-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-7-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_83.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-7-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_101.jpg)
+第3个我们要做的事情就是把中国人的未来和希望做好。就是我们这个G教育，GEDU，我们一定要做好啊，一定要做好！ 我们要做到什么？ 让所有的（新）东方那个教育的所有的失职的员工，尽量到我们这儿来，我们这个（这里）提供大量的币。现在我们可以公开的说，只要你参加GEDU的，原（新）东方的这个教育的老师们，参加到我们教育的，过去你是一块钱工资，我现在给你一块五；如果你有特殊的贡献，你可以拿到2块。 付工资是用HDO付，你也可以选择喜币。只要是加入进来的，你的工资要比原来（新）东方高1.5倍，你还可以选择HDO付款。所以说，我们现在就是什么在教育上，走新东方的路，让新东方无路可走。然后呢？ 我们再接着还要唱歌，搞音乐灭共。我们决定唱尽所有共产党流行的歌，我们决定走共产党唱歌的路，让共产党无歌可唱。
 
-
-[【PDF 下载】Monday-7-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-7-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-7-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
-
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
