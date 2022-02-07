@@ -2,33 +2,43 @@
 ---
 
 
-## 俄罗斯恢复波兰供气，俄欧关系开始缓和
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1971241/)
+## 美国众议院通过《美国竞争法》
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1971258/)
 
-作者：香草山健身部-正道新闻
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-2022年2 月 7 日，根据欧洲天然气运输运营商的数据，从2月开始波兰已恢复从俄罗斯天然气工业股份公司通过亚马尔-欧洲天然气管道输送天然气，并开始减少通过德国进口天然气。1月，波兰通过德国进口天然气5.8亿立方米。
+作者：银河系农场—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月4日华盛顿，美国众议院通过了一项针对中共的法案《美国竞争法》，具体内容包含：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-07-上午11.18.32.png)
+1. 该法案将确保美国在制造业、创新和经济实力方面处于领先地位，并能够胜过任何国家。
 
-2021年12月伊始为了强力推动北溪2号线建设，以及波兰在乌克兰上的态度问题，俄罗斯主动减少直至关闭了亚马尔-欧洲天然气管道的然气输送。
+2. 该法案包括了对中共国政府在新疆地区侵犯维吾尔人人权的制裁。追究中共对种族灭绝和使用奴隶劳工的责任，对被指控的中共新疆官员的新制裁，以及授权数百万美元的资金来反抗中共政府的言论审查和虚假信息。
 
-在这种背景下，2022年1 月，欧洲地区天然气合约价格达到了历史高位——每千立方米约1,300 美元，而市场现货价格则低于每千立方米 1,000 美元。这个月波兰几乎停止通过亚马尔欧洲接收天然气。
+3.指示总统确保该法案中，反中共的条款执行不会导致对亚裔的歧视与种族仇恨。
 
-俄罗斯此次主动放开亚马尔-欧洲管线运输天然气，而非通过北溪管线，一方面考虑到欧洲的冬季可能即将过去，天然气价格将会逐渐回落，另一方面也可以理解为俄罗斯对于欧洲方面的示好表现。随着中共国的经济持续恶化，未来，欧洲将会成为俄罗斯能源唯一主要消费地区。随着能源版图的再次改变，地缘政治结构也开始了新的局面。
+4.正式谴责中共政府实施全面的国家安全法，破坏香港既定自治权的行为，并为符合条件的香港居民提供临时受保护身份和难民地位。加强并优化与台湾的伙伴关系。
 
-[https://www.interfax.ru/business/820572 https://zh.wikipedia.org/wiki/%E4%BA%9A%E9%A9%AC%E5%B0%94-%E6%AC%A7%E6%B4%B2%E7%AE%A1%E9%81%93](https://www.interfax.ru/business/820572%20https://zh.wikipedia.org/wiki/%E4%BA%9A%E9%A9%AC%E5%B0%94-%E6%AC%A7%E6%B4%B2%E7%AE%A1%E9%81%93)
+5.抵制中共北京冬奥会。
 
-校对/发稿：菩提树
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2月-2.jpg)
+去年参议院通过了《美国创新与竞争法》，众议院和参议院的谈判代表将谈判达成一项最终法案，让两院都能通过，并提交给乔·拜登总统签署成为法律。
+
+参考链接：
+1）[US House passes the China-focused America Competes Act](https://www.scmp.com/news/china/article/3165893/us-house-passes-china-focused-america-competes-act)
+2）[The House Passes the America COMPETES Act, Including Immigration Reforms to Help the U.S. Economy](https://immigrationimpact.com/2022/02/04/house-passes-america-competes-act-immigration-reform/#.YgFHIvXMJB1)
+3）[House passes sweeping China competition bill](https://thehill.com/homenews/house/592824-house-passes-sweeping-china-competition-bill?amp)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+
+总编：Jack Li文阳
+编辑：Ivy001
+校正/发稿：呼吸的雾霾（文小呼吸）
+
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

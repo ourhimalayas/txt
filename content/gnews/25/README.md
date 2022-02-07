@@ -2,34 +2,33 @@
 ---
 
 
-## 冬奥会运动员隔离待遇凄惨
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1971238/)
+## 俄罗斯恢复波兰供气，俄欧关系开始缓和
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1971241/)
 
-作者：纽约香草山农场 – 文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月6日，郭文贵先生在大直播中透露，多个国家的冬奥会运动员因身体不适，处于隔离状态，但是境遇凄惨。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/6-7.jpg)
-韩国、俄罗斯、丹麦、卡塔尔的运动员向郭先生透露，他们隔离的房间空调不热，电力和无线网络供应不利，有人故意用唾液污染他们的饭菜。如此悲惨的遭遇，让这些运动员感到生不如死。
+作者：香草山健身部-正道新闻
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+2022年2 月 7 日，根据欧洲天然气运输运营商的数据，从2月开始波兰已恢复从俄罗斯天然气工业股份公司通过亚马尔-欧洲天然气管道输送天然气，并开始减少通过德国进口天然气。1月，波兰通过德国进口天然气5.8亿立方米。
 
-据中共内部人士提供情报，中共派专人负责收集冬奥会运动员的生物信息，如DNA和排泄物，用作优质人种的基因研究。
+2021年12月伊始为了强力推动北溪2号线建设，以及波兰在乌克兰上的态度问题，俄罗斯主动减少直至关闭了亚马尔-欧洲天然气管道的然气输送。
 
-而且，据爆料，北京冬奥会几乎没有任何有成就的运动员，只有个别过了黄金期的体育明星。这些运动员有的是被骗，有的则是想从中共捞金。中共对待这些利用过的人，弃之如敝履。
+在这种背景下，2022年1 月，欧洲地区天然气合约价格达到了历史高位——每千立方米约1,300 美元，而市场现货价格则低于每千立方米 1,000 美元。这个月波兰几乎停止通过亚马尔欧洲接收天然气。
 
-参考链接：[2022年2月6日 文贵大直播：开幕式后普金愤然离去；中俄战略合作虎头蛇尾；贩卖人口中国妇女地位；反疫苗运动及美国经济](https://gettr.com/post/psu0mf2270)
+俄罗斯此次主动放开亚马尔-欧洲管线运输天然气，而非通过北溪管线，一方面考虑到欧洲的冬季可能即将过去，天然气价格将会逐渐回落，另一方面也可以理解为俄罗斯对于欧洲方面的示好表现。随着中共国的经济持续恶化，未来，欧洲将会成为俄罗斯能源唯一主要消费地区。随着能源版图的再次改变，地缘政治结构也开始了新的局面。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+[https://www.interfax.ru/business/820572 https://zh.wikipedia.org/wiki/%E4%BA%9A%E9%A9%AC%E5%B0%94-%E6%AC%A7%E6%B4%B2%E7%AE%A1%E9%81%93](https://www.interfax.ru/business/820572%20https://zh.wikipedia.org/wiki/%E4%BA%9A%E9%A9%AC%E5%B0%94-%E6%AC%A7%E6%B4%B2%E7%AE%A1%E9%81%93)
 
-总编: 文真
-编辑：Ivy001 
-校正/发稿：Fei797
-
+校对/发稿：菩提树
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2月-2.jpg)
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
