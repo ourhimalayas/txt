@@ -2,24 +2,31 @@
 ---
 
 
-## 共和党众议院迈克尔-麦考尔 抨击NBC在奥运会期间粉饰中共的种族灭绝
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1967600/)
+## 文贵先生盖特精要2022/02/06
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1967606/)
 
-众议院外交事务委员会
-共和党—-[新闻稿](https://gop-foreignaffairs.house.gov/press-release/mccaul-blasts-nbc-for-whitewashing-ccps-genocide-during-olympics/) 
-02/05/2022
-翻译：V 在途中
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-608.png)[直播链链接](https://gettr.com/post/pswoyr9fbf)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/U.S._Congressman_Michael_McCaul_addressing_cybersecurity_at_Rice_University.jpg)
+上午直播后，关于现在加拿大温哥华卡车司机的抗议活动，我再跟大家申明一下，当然可以使用GTV做全方位的播报，并且越多越好。但有三个禁忌，请大家注意，第一：不能在GTV上打着爆料革命、新中国联邦的名义或旗帜来支持大卡车司机搞暴力行动；第二：在GTV的现场直播采访当中，不能鼓动煽动对方进行暴力行动，更不能参与暴力行动；最后一点：任何支持暴力和宣扬暴力的个人观点，都不能在GTV上发布。
 
-华盛顿特区——众议院外交事务委员会主席、共和党人迈克尔·麦考尔在 NBC 记者在北京奥运会开幕式上发表多项评论后发表了以下声明，这些评论淡化了中国共产党犯下的可怕的种族灭绝和侵犯人权行为；描述了当前美国国会、前共和党政府和现任民主党政府都表示的正在进行的种族灭绝是“被指控的”或仅仅是一种人权“侵犯”；并重申了中共的宣传，即他们认为自己是“发展中国家的拥护者”有“充分的支持”。
+GTV**绝不可以**成为鼓动和煽动暴力的媒体平台，爆料革命和新中国联邦更不可以鼓动和煽动暴力。除此之外，大家想咋播就咋播，播得越多越好！
 
-“在这些比赛开始之前，我们的委员会与 NBC 新闻进行了长时间的交谈，我们表达了我们的严重担忧，即通过转播 2022 年北京奥运会，他们将允许中共散布谎言和宣传。他们当时向我们保证，他们将确保这个严重的问题得到妥善处理。相反——正如我们所担心的那样——NBC 记者在开幕式上发表了多条评论，实质上是粉饰了中共的种族灭绝和他们对自己人民犯下的罪行。
+*听写：阿甘*
 
-“让我说清楚。中共正在进行种族灭绝。这不是“声称的”——这是事实。而中共通过奴役、监禁、酷刑、恐怖、强奸和谋杀来消灭整个文化并不是“违法行为”。这是一场种族灭绝。NBC记者任何软化中共压迫和暴行的野蛮性质的努力，只会使NBC他们成为中共的傀儡。
+*校对：小雨*
 
-审核校对：Barry Jack
-上传排版：V在途中
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

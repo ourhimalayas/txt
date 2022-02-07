@@ -2,26 +2,31 @@
 ---
 
 
-## 三个工作重心 | 新中国联邦力图阻止反华，团结人心，做好教育
-` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1967443/)
+## 有声|美国就中共强迫劳动行为实行企业ESG检验
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1967444/)
 
-新西兰伊甸农场Gnews组 财经G乐部-亚伦
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月3日，据当地媒体消息显示，美国联邦政府即将根据一项旨在阻止中共强迫劳动的法案，要求当地公司对其各自的全球供应链进行更加严格的审查。
 
-2月6日，郭文贵先生于GTV、Gettr大直播中公布今年新中国联邦的三个工作重心，并表示，人生做再多正确的决定，若做错一次，有可能一切皆毁。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/bb0bd88f0d3f6f3856a10d3712ebbd29.jpg)图片来源Gettr
+资料显示，长期以来，中共国新疆地区的维吾尔和其他少数民族的民众一直被中共政府胁迫在工厂、农场和矿场为中共国的各行各业提供服务，这当中包括服装公司、食品品牌、太阳能电池板制造商、电动汽车制造商和科技公司供应商等。
 
+对此，美国国土安全部正在寻求一项最佳做法，得以让那些严重依赖中共国提供原材料、部分成品和全成品的美国公司建立更加透明和完善的问责制。据悉，国土安全部已经开始要求海关提供关于中共国进口商品的溯源地和核查标准，以便确认这些商品是否涉及发生在中共国新疆区的强迫劳动行为。
 
-G系列生态圈是新中国联邦的核心力量，自王者GTV的诞生到Hcoin（喜币）目前500多倍的收益，再到0手续费Hpay（喜支付）的汇通天下，我们已经做的够多够优秀。所以，今年要把已有的项目做好，不再延展其他新的项目，避免无限扩张而引发灾难。这样新中国联邦可以把更多的精力集中在今年最大的挑战——排华问题，如何阻止世界范围的排华浪潮是新中国联邦的首要课题。阻止不了西方世界的排华骚乱，灭共也就失去了原本的意义。
+文字版原文：[美国就中共强迫劳动行为实行企业ESG检验](https://gnews.org/zh-hans/1962992/)
 
-第二、要让国内更多的人参与到爆料革命，除了继续做好直播、文宣的工作，还会实施B计划，即让国内音乐界、教育界、军界、情报界、地方政府、企业界等也能得到Hcoin（喜币），未来也能按照使用标准享受到“躺平币”。届时，从东北的山沟到喜马拉雅的山脚，每个人都能闻到Hcoin（喜币）和“躺平币”的味道。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/c9acc3ac59b937e9d8ba81cf013107f5.jpg)图片来源Gettr
+音频处理/发稿：Daxia
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-由于小学博士习近平自身对真理和人性认知的局限性与掌握最高权力的巨大矛盾，深刻诠释了没有和能力、权力相匹配的教育，任何的成功一定是更大的灾难。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
-所以第三、新中国联邦要把新中国人的G-EDU（G教育）做好，这是新中国的未来和希望。具体的激励政策是，凡是原新东方（或同等级别的）员工参与到G-EDU（G教育）的建设，将得到1.5倍原工资待遇，特殊贡献者甚至可以得到2倍原工资待遇，还可以选择用Hcoin（喜币）或者HDO（喜美元）支付工资，有意愿者请速与磐石农场联系。用按小时、按天、按周支付Hcoin（喜币）和HDO（喜美元）的实际行动做到走新东方的路，让新东方无路可走。
-
-魔鬼在咆哮，苍天在愤怒，G系列在拯救。世界经济和供应链的崩塌，新冠病毒和新冠毒疫苗对全人类的威胁，世界面临大重启，新中国联邦风景独好。
 
  
 

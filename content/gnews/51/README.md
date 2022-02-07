@@ -2,38 +2,81 @@
 ---
 
 
-## 习近平的大国崛起梦彻底破碎
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1963969/)
+## 参议员Johnson致函Austin要求提供美军受到COVID-19疫苗伤害的信息
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1964571/)
 
-撰稿：东京樱花团/深藏不露
-![](https://assets.gnews.org/wp-content/uploads/2022/02/6-4.jpg)图片来源于网络
-2022年2月5日，郭文贵先生在Gettr中透露，
+作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏）
 
-1、北京冬奥会刚开始俄罗斯总统普京住的华尔道夫酒店就发现新冠病毒，普京的团队几乎被团灭感染，另外冬奥会开幕式鸟巢现场当时就发现两百多人新冠病毒测试呈阳性，现在又发现一百人都被隔离，当时习近平也在鸟巢现场有所接触。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-2、俄罗斯普京总统原定要签署的22项重大合同，有2项是关于人民币在俄罗斯作为第二种法定货币流通货币没有签定，以抵制美国的制裁，但是条件是用你的币，你的把自己的皇帝的接班人压过去啊，你得把你东西压给我，半个国土压给人家！普京还给中方撂下狠话，要求在一个月内得到答复！
+2022年2月1日，美国参议员Ron Johnson致函国防部（Department of Defense，简称DoD）部长Lloyd Austin，以确认1月24日俄亥俄州律师Thomas Renz在华盛顿特区举行的《[Covid-19: A Second Opinion](https://rumble.com/vt62y6-covid-19-a-second-opinion.html)》中的陈述。Johnson参议员要求Austin部长在2022年2月15日之前提供有关军人受到COVID-19病毒疫苗伤害的信息。
 
-另外，所有参加北京冬奥的人都是郭先生的朋友，面对郭先生的问询基本都是三句话，
+![](https://assets.gnews.org/wp-content/uploads/2022/02/556737019-U-S-Sen-Johnson-Asks-Secretary-Austin-1.jpg)
 
-1、一切都是假的！北京到处充斥着恐惧。
+2022年1月24日，由多位世界知名医生和医学专家参加的《[Covid-19: A Second Opinion](https://www.thegatewaypundit.com/2022/02/sen-ron-johnson-sends-letter-sec-defense-demanding-information-high-covid-19-vaccine-injury-among-military-personnel/)》会议在华盛顿特区举行，该会议由参议员Ron Johnson主持。
 
-2、北京的冬奥会就是一场噩梦。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-06_13-33-49.png)
 
-3、中国共产党是真完了。
+在长达5个多小时的讨论中，几位世界知名医生和医学专家就应对COVID-19病毒全球大流行提供了不同的视角，对目前掌握的COVID-19病毒大流行早期和医院应对状况、COVID-19病毒疫苗的有效性和安全性，什么是对的、什么是错的、现在应该做什么、以及长期需要解决的问题等展开讨论。
 
-美国的外交抵制和授权外交撤离，冲击巨大。
+在这次会议上，俄亥俄州律师 Thomas Renz展示了Samuel Sigoloff博士、 Peter Chambers和Theresa Long等勇敢的吹哨人（whistleblowers）在他们在临床工作中，发现自匆忙推出试验性的Covid-19病毒疫苗以来，多种严重疾病在美军现役人员中呈天文数字增加，他们通过调查美国国防医学流行病学数据库 ( [Defense Medical Epidemiology Database](https://www.health.mil/Military-Health-Topics/Combat-Support/Armed-Forces-Health-Surveillance-Division/Data-Management-and-Technical-Support/Defense-Medical-Epidemiology-Database)，简称[DMED](https://www.health.mil/Military-Health-Topics/Combat-Support/Armed-Forces-Health-Surveillance-Division/Data-Management-and-Technical-Support/Defense-Medical-Epidemiology-Database))的数据发现，自一年前推出COVID-19病毒疫苗以来，美军部队现役人员的健康状况发生了令人不安的异常情况，其中最令人担忧的是癌症增加了3倍。
 
-作为北京冬奥会最重要的贵宾普京，在得知自己团队多人感染中共病毒（新冠病毒Covid-19）后暴怒大骂，说：“这么大一个国家让我们来，现在连起码的保障都没有……” 随即在奥运开幕式上全世界人民都看到普京居然睡着了，并且晚上中共习近平举办的招待宴会上，普京竟然也没有出席，完全蔑视习近平的存在！更夸张的是普京在当天晚上11点就离开北京返回俄罗斯，将原本48小时的行程缩短到9小时，这在大国正式外交史上实属罕见，这相当于结结实实给了习近平一个巨大的耳光！
+在Ron Johnson参议员致函国防部部长Lloyd Austin的信中，Johnson引用了Renz的报告，这些举报人发现，根据国防医学流行病学数据库([DMED](https://www.health.mil/Military-Health-Topics/Combat-Support/Armed-Forces-Health-Surveillance-Division/Data-Management-and-Technical-Support/Defense-Medical-Epidemiology-Database))的数据，与2016年~2020年2月COVID-19病毒大流行前的五年平均水平相比，2021年在[DMED](https://www.health.mil/Military-Health-Topics/Combat-Support/Armed-Forces-Health-Surveillance-Division/Data-Management-and-Technical-Support/Defense-Medical-Epidemiology-Database)登记的流产、癌症和许多其他疾病显著增加，例如，在圆桌会议上，Renz表示，登记诊断的神经系统问题增加了10倍，从五年平均值的82,000例增加到2021年的863,000例，其它疾病也有大幅增加，具体包括以下惊人的数字：
 
-尽管习近平出卖了中国人的巨大利益，而俄罗斯根本就没有拿习近平当兄弟，眼中只有利益吧了！据悉，习近平在得知这个情况后彻底懵圈！现在，中共内忧外患，习近平的中国梦已变成自己的一场噩梦，他的大国崛起梦已经彻底破碎……
+高血压（Hypertension）–增加2,181%
 
-信息来源：
+神经系统疾病（Diseases of the nervous system）–增加1,048%
 
-[2月5号 Miles Guo盖特视频](https://gettr.com/post/pso6vra94f)
+食道恶性肿瘤（Malignant neoplasms of esophagus）–增加894%
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+多发性硬化症（Multiple sclerosis）–增加680%
+
+消化器官恶性肿瘤（Malignant neoplasms of digestive organs）–增加624%
+
+格林-巴利综合征（Guillain-Barre syndrome）——增加551%
+
+乳腺癌（Breast cancer）–增加487%
+
+脱髓鞘（Demyelinating）–增加487%
+
+甲状腺和其他内分泌腺的恶性肿瘤（Malignant neoplasms of thyroid and other endocrine glands）——增加474%
+
+女性不孕症（Female infertility）–增加472%
+
+肺栓塞（Pulmonary embolism）–增加468%
+
+偏头痛（Migraines）–增加452%
+
+卵巢功能障碍（Ovarian dysfunction）–增加437%
+
+睾丸癌（Testicular cancer）–增加369%
+
+心动过速（Tachycardia）–增加302%
+
+在Ron Johnson参议员致函国防部部长Lloyd Austin的信中还提到，在收到Renz报告[DMED](https://www.health.mil/Military-Health-Topics/Combat-Support/Armed-Forces-Health-Surveillance-Division/Data-Management-and-Technical-Support/Defense-Medical-Epidemiology-Database)数据库中一些显示了心肌炎的数据已被删除，[DMED](https://www.health.mil/Military-Health-Topics/Combat-Support/Armed-Forces-Health-Surveillance-Division/Data-Management-and-Technical-Support/Defense-Medical-Epidemiology-Database)数据库已被篡改后，他在1月24日立即写信给Lloyd Austin，要求保留所有提及、关联或报告给DMED的记录。但至今还不知道Lloyd Austin是否遵守了这个要求。
+
+Ron Johnson参议员警告，任何对Renz在圆桌会议上透露的Samuel Sigoloff博士、Peter Chambers和Theresa Long三位勇敢的举报人采取的报复行动，都不会被容忍，并将被立即进行调查。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/556737019-U-S-Sen-Johnson-Asks-Secretary-Austin-2.jpg)
+
+在信的最后，参议员Ron Johnson向Lloyd Austin国务卿提出了以下问题：
+
+1.与2016年~2020年的五年平均水平相比，2021年[DMED](https://www.health.mil/Military-Health-Topics/Combat-Support/Armed-Forces-Health-Surveillance-Division/Data-Management-and-Technical-Support/Defense-Medical-Epidemiology-Database)数据库中登记诊断的流产（miscarriages）、癌症或其他疾病是否有所增加？如果情况属实，请解释国防部（DoD）采取了哪些行动来调查增加的根本原因。
+
+2.从2021年1月到2021年12月，[DMED](https://www.health.mil/Military-Health-Topics/Combat-Support/Armed-Forces-Health-Surveillance-Division/Data-Management-and-Technical-Support/Defense-Medical-Epidemiology-Database)数据库中登记诊断的心肌炎数据是否已从数据库中删除？如果是这样，请解释删除这些信息的原因和时间，并确定删除者。
+
+参考数据：
+
+[Sen. Ron Johnson Sends Letter to Sec. of Defense Demanding Information on Shockingly High COVID-19 Vaccine Injury Among Military Personnel](https://www.thegatewaypundit.com/2022/02/sen-ron-johnson-sends-letter-sec-defense-demanding-information-high-covid-19-vaccine-injury-among-military-personnel/)
+
+[U.S. Sen. Johnson Asks Secretary AustinFull description](https://www.scribd.com/document/556737019/U-S-Sen-Johnson-Asks-Secretary-Austin#download)
+
+[COVID-19: A Second Opinion](https://rumble.com/vt62y6-covid-19-a-second-opinion.html)
+
+[Whistleblowers share DOD medical data that blows vaccine safety debate wide open](https://www.theblaze.com/op-ed/horowitz-whistleblowers-share-dod-medical-data-that-blows-vaccine-safety-debate-wide-open)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

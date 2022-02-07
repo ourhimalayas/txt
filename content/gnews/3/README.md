@@ -2,41 +2,75 @@
 ---
 
 
-## 如何通过保护血液质量阻击微血栓和刺突蛋白？
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1967692/)
+## 2022年2月6日文贵先生直播摘要及音频—银河系农场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1967702/)
 
-**【雅典娜观察】与您一起洞察世界**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/snapshot_副本-2.jpg)
+Gettr视频连接：[2022年2月6日 文贵大直播：开幕式后普金愤然离去；中俄战略合作虎头蛇尾；贩卖人口中国妇女地位；反疫苗运动及美国经济](https://gettr.com/streaming/psu0mf2270)
 
-**整理报道：**不要代表我（Kari）
-**编辑：**小熊、翼族
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1594613085851_5394220.jpg)
-据Natural News报道，医生和研究人员正在确认一个事实——**几乎所有新冠疫苗引起的副作用及死亡均由血栓造成**。多数血栓凝块极其小，用标准医学成像设备无法轻易检测到，它们阻断脑部的小区域及全身各器官组织的血液供给，因此被称为“微血栓”。
+G-TV视频连接：[2022年2月6日 文贵大直播：开幕式后普京愤然离去；中俄战略合作虎头蛇尾；贩卖人口中国妇女地位；反疫苗运动及美国经济](https://gtv.org/video/id=61ffc26b3621aa7415d64d51)
 
-微血栓导致局部细胞死亡，身体会随之出现刺痛感、麻木感、感觉缺失、器官衰竭及认知功能丧失。大脑高级功能的丧失甚至会导致出现明显的人格变化。
+1、冬奥会运动员政要被虐待、拉肚子、不能出门；
 
-据LifeSiteNews报道，彼得·麦考洛医生（Dr.Peter McCollough）说：“数百万新冠感染者饱受病痛之苦，却一直没有有效的医治方案，新冠疫苗接种者也出现各种健康问题或死亡，很可能微血栓才是罪魁祸首……刺突蛋白本身引起了凝血或血栓，而且凝固的类型很独特：红血球粘在一起，血小板也粘在一起。我们通常在动脉和静脉中能看到血凝块，比如引起中风、心脏病发作的血凝块及腿部血管中的血凝块。而这次发现却非同寻常。意大利人大胆地做过一些尸检，并在肺部发现了微型血块。最终，我们才认识到，肺部衰竭并非因为病毒，而是因为微血栓，正是这些微血栓导致人的窒息。原来，病毒球上的孢子本身破坏了血管，造成了血液的凝结。”
+2、冬奥会闭幕会，会开成永远不能闭幕的闭幕会；
 
-文章中还引用了查尔斯·霍夫医生（Dr. Charles Hoffe）的话，霍夫医生公开了他的发现：数百名接种过新冠疫苗的患者经过测试血液中的d-二聚体，其中62%患者出现了d-二聚体数值偏高，这说明微血栓的确存在……他说，使用mRNA疫苗将“导致心脏衰竭，从而杀死大多数人”。
+3、所有这次去北京参加冬奥会的运动员和官员，他们的DNA、大小便全被中共收集；
 
-另一个引述，是来自罗马琳达大学Loma Linda University发表的一项研究： 罗马琳达大学健康研究所的研究人员发现，重症新冠患者的死因可能是肺部形成的微血栓扩至全身，对器官造成了致命伤害。这一发现与目前的观点有所不同，即新冠病毒扩散到人体各个器官并损害了它们的血管壁。而罗马琳达大学的研究却表明，一旦凝血过程开始，身体就不再与病毒作斗争，而是主要对抗凝血。
+4、普京团队十几人感染，外交部和八局报告习近平只有4人感染，更不敢提入住酒店死了4人，都是外国人；
 
-选择健康的生活方式来改善血液质量，可以保护自己免受刺突蛋白纳米颗粒（由疫苗产生）的侵害。在今天更新的播客中，我探讨了如何通过保护血液质量来防止刺突蛋白对血液造成的损害，这很大程度上取决于你吃什么。
+5、中共和俄罗斯两个4000亿天然气合同，外加先付1000亿美元，换普京来参加冬奥会48小时，结果来了不到10小时就撤了；
 
-要避免食用另一种有问题的油——芥菜油，你完全可以用正宗的橄榄油或鳄梨油代替它。不过你得知道，超市里出售的那些油绝大多数是假的，你得下足功夫去搞清楚你的食用油来源。
+6、普京愤怒离京原因：中共耍赖，事先承诺俄罗斯使用人民币，按黄金保底。普京来了，中方反悔了，普京很生气；
 
-食用油炸食品也会导致“淤血”——红细胞凝血。油炸碳水化合物中的丙烯酰胺会对血管细胞内层造成严重损害。均质化、巴氏杀菌的牛奶对血管健康也有害。为了让脂肪保持悬浮状态，均质化过程人为地改变了牛奶中的脂肪。喝这种牛奶的人会出现炎症和淤塞，有人甚至会出现便秘。如果你喜欢喝牛奶，就去买那种没有经过均质化的生鲜牛奶。
+7、中共千人计划：中共派了100名学生到美国，80%是女学生，后来由党安排全嫁给了白人；
 
-**注：**均质化是用高压去打散奶油中的脂肪分子，让细小的脂肪球均匀悬浮在牛奶中，不这么做，分离出来的脂肪就会浮在表面上。用通俗的话讲，就是把分离出来的奶油打碎后再混在牛奶里，合二为一。脂肪球颗粒变微小，口感更细腻，更易被吸收，而正是这种均质化牛奶却极有可能使人患上心血管疾病。
+8、美国经济：因为中共病毒，疫苗灾难，物价上涨，供应链断裂，肯定会下行；
 
-**原文链接：**[How to DEFEAT micro blood clots and block the spike protein by protecting the QUALITY of your blood](https://www.naturalnews.com/2022-02-04-how-to-defeat-micro-blood-clots-and-block-the-spike-protein.html)
+9、习近平的认知出了问题，挑战美国，认为美国完了，他就好了。美国经济完蛋了，最惨的就是中共国；
 
-*发布：翼族*
+10、中共交错朋友，和俄罗斯、伊朗 朝鲜、搅合在一起，加上习近平认知能力和实际实力的不匹配，中共必然走向死亡；
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+11、大卡车事件会引发政治冲突，再次警告，战友不能打着新中国联邦和爆料革命名义参加大卡车运动。 不可以使用GTV直播；
+
+12、今年的三个重点：
+
+1 ）今年不搞任何新项目，不扩张，把原有的G系列做的更有影响力，主要集中精力防止全球排华发生；
+
+2 ）让国内各界战友得到真正的喜币和躺平币，每天早上闻到币的味道；
+
+3 ）集中精力把G-EDU做好，原俞敏洪新东方老师来G-EDU工资比原来高1.5倍，可以选择HDO和HCOIN付款，可以按天按周付款。走新东方的路，让新东方无路可走；
+
+13、新中国联邦愿意解救那些被绑架的妇女，有具体方案可以联系联盟；
+
+14、G-Clubs2022年会，推迟十天左右；
+
+15、三个锦囊：第一个民心向郭习亡岐山，第二个是利用病毒，第三个是制造货币；
+
+**注：大直播音频正在制作和上传中，敬请关注——**
+
+**（大直播音频位置）**
+
+编辑整理：文俊；
+
+发布：黎明之前
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
