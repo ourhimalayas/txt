@@ -2,24 +2,35 @@
 ---
 
 
-## 这个照片儿意义太大了（三）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1969929/)
+## 瑞士信贷面临洗钱指控
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1969954/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+信息来源： 路透社
 
-猫本小哥：
-好的，刚就是我一直记得啊。七哥跟我开第一次回答 时候跟我说两句话，第一个啊，你做过啥？第二个你能做啥？就是说这两句话，我觉得为什么我记忆这么深刻啊，就是当海外欺民贼对吧，就是对七哥说啊，你这个是骗子啊，是怎么样怎么样的时候，就是我吗要看这个人的历史，如果说这个人历史一直是非常的成功，对吧，做过很多这种大的事情的时候我们就是我觉得我们就是。是完全可以信任的，而不是像那些欺民贼啥都没有，做过什么承诺都没有兑现过的。我们去相信他，那真是脑子进水了对吧。包括刚才七哥说就是这个啊Gfashion，我觉得是这样子啊，就喜币是可以让人获得财富，但是这个当这个coivd这个灾难来的时候，就人的这个生命失去了很多这种色彩，我觉得这个fashion就是他让整个人的这个精神得到升华，就是人的身就是生活都有更多的这个色彩，我觉得真的是非常重要的一点。好的，我分享完了。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/这个照片儿意义太大了.003-1.jpeg)
-2022年1月7日文贵大直播
+翻译/整理： 意大利罗马达芬奇农场 Shuizhuyu
 
-*发布：tianzhihuan*
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/FEASLB6HBJO2FFL3H2EDPE5AZY.jpg)
+
+
+图片来源： 路透社
+
+瑞士信贷将于周一在瑞士法院面临指控，指控一个涉嫌保加利亚可卡因贩运团伙洗钱数百万欧元，其中一些钱被塞进手提箱。
+
+瑞士检方称，该国第二大银行及其一名前任客户经理并未采取一切必要措施阻止涉嫌毒贩在 2004 年至 2008 年期间隐藏和洗钱。
+
+瑞信在给路透社的一份声明中表示：“瑞士信贷毫无保留地拒绝在这一遗留问题中对其提出的所有指控都是毫无根据的，并坚信其前雇员是无辜的。”
+
+在瑞士一家大型银行的首次刑事审判中，检察官正在向瑞士信贷 (CSGN.S) 寻求约 4,240 万瑞士法郎的赔偿，该银行补充说，它将“在法庭上积极为自己辩护”。
+
+此案在瑞士引起了浓厚的兴趣，被视为检方对该国银行可能采取更强硬立场的考验。
+
+起诉书长达 500 多页，主要集中在瑞士信贷及其前雇员与前保加利亚摔跤手 Evelin Banev 和多名同伙的关系上，其中两人在此案中受到指控。该案的第二份起诉书指控瑞士宝盛的一名前客户关系经理协助洗钱。
+
+根据瑞士隐私法无法透露姓名的前瑞士信贷员工的法律代表表示，此案不合理，他的客户否认有不当行为。
+
+🔗 [瑞士信贷面临洗钱指控](https://www.reuters.com/business/finance/credit-suisse-faces-money-laundering-charges-trial-bulgarian-cocaine-traffickers-2022-02-07/)
+
+编辑发布： Shuizhuyu
 
  
 

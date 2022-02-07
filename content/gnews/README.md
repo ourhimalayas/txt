@@ -15,59 +15,59 @@
 
 ---
 
-### [2022年2月6日郭先生盖特 — 视频1「2分54秒」](/content/gnews/1/README.md)
+### [虚、假、骗&#8211;中共的联欢晚会](/content/gnews/1/README.md)
+ ` 雅典娜GNotes`
+
+### [政府的虚伪（二）](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
+
+### [2022年2月6日郭先生盖特 — 视频1「2分54秒」](/content/gnews/3/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [政府的虚伪（一）](/content/gnews/2/README.md)
+### [政府的虚伪（一）](/content/gnews/4/README.md)
  ` 雅典娜GNotes`
 
-### [2.6大直播后记：七哥和女明星8964的往事](/content/gnews/3/README.md)
+### [2.6大直播后记：七哥和女明星8964的往事](/content/gnews/5/README.md)
  ` 雅典娜GNotes`
 
-### [习近平复信美国海伦·福斯特·斯诺基金会主席亚当·福斯特](/content/gnews/4/README.md)
+### [习近平复信美国海伦·福斯特·斯诺基金会主席亚当·福斯特](/content/gnews/6/README.md)
  ` 儒为`
 
-### [这个照片儿意义太大了（六）](/content/gnews/5/README.md)
+### [这个照片儿意义太大了（六）](/content/gnews/7/README.md)
  ` 雅典娜GNotes`
 
-### [美国1600万人收看北京冬奥会开幕式，比2018平昌冬奧会下降43%](/content/gnews/6/README.md)
+### [美国1600万人收看北京冬奥会开幕式，比2018平昌冬奧会下降43%](/content/gnews/8/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [漫漫平权路](/content/gnews/7/README.md)
+### [漫漫平权路](/content/gnews/9/README.md)
  ` 银河勇气之星`
 
-### [【TopNews】澳大利亚将于 2 月 21日向接种疫苗的旅行者开放边境](/content/gnews/8/README.md)
+### [【TopNews】澳大利亚将于 2 月 21日向接种疫苗的旅行者开放边境](/content/gnews/10/README.md)
  ` topnews`
 
-### [2022/02/07 英喜时事速递](/content/gnews/9/README.md)
+### [2022/02/07 英喜时事速递](/content/gnews/11/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [被掩盖的美国国防部 数据库爆炸性数据流出](/content/gnews/10/README.md)
+### [被掩盖的美国国防部 数据库爆炸性数据流出](/content/gnews/12/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [大年初一的男足，夺冠的“女”足，北京的冬奥](/content/gnews/11/README.md)
+### [大年初一的男足，夺冠的“女”足，北京的冬奥](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花灭共段子│时事短评：徐州丰县8孩母亲](/content/gnews/12/README.md)
+### [樱花灭共段子│时事短评：徐州丰县8孩母亲](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [这个照片儿意义太大了（四）](/content/gnews/13/README.md)
+### [这个照片儿意义太大了（四）](/content/gnews/15/README.md)
  ` 雅典娜GNotes`
 
-### [为冬奥会献礼](/content/gnews/14/README.md)
+### [为冬奥会献礼](/content/gnews/16/README.md)
  ` 骄子`
 
-### [樱花灭共段子│看七哥大直播有感序](/content/gnews/15/README.md)
+### [樱花灭共段子│看七哥大直播有感序](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [女拳师傅您们好](/content/gnews/16/README.md)
- ` 骄子`
-
-### [瑞士信贷面临洗钱指控](/content/gnews/17/README.md)
+### [瑞士信贷面临洗钱指控](/content/gnews/18/README.md)
  ` Shuizhuyu`
-
-### [这个照片儿意义太大了（三）](/content/gnews/18/README.md)
- ` 雅典娜GNotes`
 
 ### [【TopNews】马克龙前往莫斯科试图缓解俄罗斯乌克兰紧张局势](/content/gnews/19/README.md)
  ` topnews`
