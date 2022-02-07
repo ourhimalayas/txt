@@ -2,40 +2,19 @@
 ---
 
 
-## 有声|期待
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1972097/)
+## 有声|H-Pay实现人民币秒变喜美元
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1972225/)
 
-配音：香草山健身部 – 新世界的一员
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-期待
-像羽毛轻刷心田
-心跳节奏快了二三拍
-憧憬又憧憬
-渴望有渴望
-像挂在树枝最高点果子
-看得见
-摘不了
-如同只能
-梦里看见母亲
-她
-衰老又沧桑
+配音：香草山巡管部– 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-GTV-Gnews-HEADER-1.png)
+喜支付H-Pay是无条件、零交易成本，并无支付额度限制的、无中心化、安全的交易支付系统。早在新中国联邦春晚直播中，郭文贵先生表示，H-Pay的上线将为喜联储、喜币打通七通六脉。在2月4日的大直播中，郭先生宣布，已在中共国内指定站点，可实现人民币秒变喜美元。
 
-期待
-光明早日来到
-因为啊
-七十年的蹂躏
-这片土地满目创伤
-破败不堪
-人们的脸庞
-恐惧惊慌
-当黑暗过去
-期待笑脸
-重回他们脸庞
-
-文字版原文：[期待](https://gnews.org/zh-hans/1959675/)
+文字版原文：[H-Pay实现人民币秒变喜美元](https://gnews.org/zh-hans/1964560/)
 
 音频处理/发稿：Daxia
+
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)

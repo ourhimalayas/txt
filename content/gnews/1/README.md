@@ -2,14 +2,22 @@
 ---
 
 
-## 有声|H-Pay实现人民币秒变喜美元
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1972225/)
+## 有声|美俄联合国舌战之际，俄罗斯从俄罗斯边境撤出部分军力
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1972335/)
 
 配音：香草山巡管部– 文凯琳
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-GTV-Gnews-HEADER-1.png)
-喜支付H-Pay是无条件、零交易成本，并无支付额度限制的、无中心化、安全的交易支付系统。早在新中国联邦春晚直播中，郭文贵先生表示，H-Pay的上线将为喜联储、喜币打通七通六脉。在2月4日的大直播中，郭先生宣布，已在中共国内指定站点，可实现人民币秒变喜美元。
 
-文字版原文：[H-Pay实现人民币秒变喜美元](https://gnews.org/zh-hans/1964560/)
+
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-768x103-26.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-26.jpg)
+
+
+
+据台媒报导，美国驻联合国大使31日指责俄罗斯不仅侵略成性，且将乌克兰与西方国家丑化为侵略者，企图制造开战借口。
+
+与此同时，俄罗斯军方宣布从乌克兰边界地区撤军9000人，但尚难以判定此次局部撤军是否代表俄方有意降低紧张态势。白俄罗斯位于乌克兰北部，是俄罗斯在东欧最忠实的盟友。白俄罗斯军方上周宣布，驻乌俄军将在2月的两国大规模联合军演之后撤离。
+
+文字版原文：[美俄联合国舌战之际，俄罗斯从乌克兰边境撤出部分军力](https://gnews.org/zh-hans/1964769/)
 
 音频处理/发稿：Daxia
 
@@ -22,8 +30,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

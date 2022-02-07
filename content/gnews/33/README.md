@@ -2,22 +2,30 @@
 ---
 
 
-## 特魯多政府破壞「自由車隊」的籌款活動
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1971291/)
+## NFSC新闻、G|TV新闻访谈简报|2022年2月7日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1971342/)
 
-采編：文萊       編譯撰稿：文明(添草滅共)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/template-87-.jpg)图片来源：thepostmillennial
-據加拿大自媒體【後千禧年】2月5日報道，在美國知名眾籌平臺GoFundMe近日終止了加拿大卡車司機的[自由車隊]籌款活動後，特魯多當局對此表示贊賞並承認自己就是幕後推手。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-3.jpg)
 
-據悉，在渥太華市政府及警察局的要求下，該平臺在當天刪除了[自由車隊]籌款網頁的同時，還凍結了已籌集到的900萬美元。渥太華市長不僅對此表示支持，還呼籲所有眾籌網站都能效仿。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-6.png)
+文章仅代表作者本人观点，与Gnews无关
 
-報道稱，[自由車隊]現要求將所有被凍結的籌款退還給捐助者，並在基督教眾籌網站[GiveSendGo]上重新啟動了籌款活動，目前已籌集資金超過20萬元。
+视频参看：
+[2022.02.07早 《NFSC新闻》](https://gtv.org/video/id=62011e6b3621aa7415d72551)
+[2022.02.07早 G|TV《新闻访谈》](https://gtv.org/video/id=620125d03621aa7415d72893)
 
-校對編輯：硫酸羥氯喹64
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-發稿：文明(添草滅共)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-callendar.jpeg)
 
-[原文鏈接](https://thepostmillennial.com/ottawa-police-admit-to-lobbying-gofundme-to-withhold-funds-from-canadian-truckers)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

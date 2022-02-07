@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/7/2022 11:18 PM (UTC)`
+
+2/6/2022 Miles Guo: Our fellow fighters are everywhere at the Winter Olympics such that I can always know what is going on. Fellow fighters have helped foreign leaders and athletes understand the true nature of the CCP, and this is the fundamental reason why Putin left Communist China earlier than expected.<br/><br/>2/6/2022 文贵直播: 冬奥会无处不在的战友让现场的一切情况尽在文贵的掌握之中；新中国联邦的战友们在冬奥会让外国元首和运动员认清中共本质，这就是普京提前离开中共国的根本原因<br/>
+![img](https://media.gettr.com/group27/getter/2022/02/07/23/02f37022-a338-741d-a6a9-daebd3defc8a/out.jpg)
+
+---
+
 `@miles 2/7/2022 2:54 PM (UTC)`
 
 2月7号：尊敬的战友们好你们健身了吗？几天来，中国绑架妇女的事件……强烈的震撼了我……让我感到自责．后悔．为是那个地方的人．感到极为的可耻，我们必须消灭共产党，拯救同胞拯救人类．行动．行动．行动！
@@ -148,13 +155,6 @@ This is the BIG ONE I previewed on @WarRoom a little earlier regarding the Covid
 
 2/4/2022 Miles Guo: Unfortunately, three people have died in the Waldorf Astoria Beijing where Putin is staying, and 16 people in Putin's team are infected with the CCP virus. This sounds quite scary! I have bigger news to share with you later today.<br/><br/>2/4/2022 文贵直播：很不幸的是，普京下榻的华尔道夫酒店已有3人死亡，普京团队16人染毒，着挺吓人呐！今天还有更大的料给大家爆！<br/>
 ![img](https://media.gettr.com/group42/getter/2022/02/05/05/eeb2be46-3d3f-d0e4-68b6-6b30f3b96737/out.jpg)
-
----
-
-`@miles 2/5/2022 5:24 AM (UTC)`
-
-2/4/2022 Miles Guo: The CCP’s troops stationed 5000 kilometers away from Beijing have been ordered to instigate an emergency warfare response. A foreign friend of mine was extremely shocked by the CCP’s conversion of the Pangu Plaza’s dragon-head-shaped tower into a cockhead-shaped one. The abrupt death of a sniper on the day of the opening ceremony of the Winter Olympics and the cluster infection of the CCP virus in Putin's team are by no means accidental. Instead, these are the indications of God’s will to take down the CCP.<br/><br/>2/4/2022 文贵直播：中共军队在距北京5000公里外的地方紧急战备；参加冬奥会的文贵的外国朋友对盘古龙头改龟头感到极为震惊；冬奥会开幕式当天狙击手的暴毙和普京团队集体中招绝非偶然，这是灭共的天意<br/>
-![img](https://media.gettr.com/group36/getter/2022/02/05/05/4899e585-3989-9e6e-2000-016f0c72977c/out.jpg)
 
 ---
 

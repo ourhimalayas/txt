@@ -2,34 +2,23 @@
 ---
 
 
-## 美国众议院通过《美国竞争法》
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1971258/)
+## 美国前国安参谋长警告：中俄联盟极其危险
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1971259/)
 
 作者：银河系农场—骄子
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月4日华盛顿，美国众议院通过了一项针对中共的法案《美国竞争法》，具体内容包含：
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-07-上午11.18.32.png)
-1. 该法案将确保美国在制造业、创新和经济实力方面处于领先地位，并能够胜过任何国家。
+2月5日外媒消息，随着冬奥会在北京举办，中俄形成战略联盟。在一份联合声明中两国表示，其新关系优于冷战时期建立的，任何其他政治或军事联盟。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-07-上午11.18.40.png)
+美国第一政策研究会副主席、国家安全委员会前参谋长弗莱德- 弗利茨说，中俄此次联盟，是一个令人难以置信的危险发展，特别是随着与乌克兰紧张局势的加剧。
 
-2. 该法案包括了对中共国政府在新疆地区侵犯维吾尔人人权的制裁。追究中共对种族灭绝和使用奴隶劳工的责任，对被指控的中共新疆官员的新制裁，以及授权数百万美元的资金来反抗中共政府的言论审查和虚假信息。
+目前，美国注意的是，避免与俄罗斯开战，并且阻止中共与俄罗斯形成联盟。因为一旦中俄结成联盟，势必威胁到美国和国际社会的安全与稳定。
 
-3.指示总统确保该法案中，反中共的条款执行不会导致对亚裔的歧视与种族仇恨。
-
-4.正式谴责中共政府实施全面的国家安全法，破坏香港既定自治权的行为，并为符合条件的香港居民提供临时受保护身份和难民地位。加强并优化与台湾的伙伴关系。
-
-5.抵制中共北京冬奥会。
-
-去年参议院通过了《美国创新与竞争法》，众议院和参议院的谈判代表将谈判达成一项最终法案，让两院都能通过，并提交给乔·拜登总统签署成为法律。
-
-参考链接：
-1）[US House passes the China-focused America Competes Act](https://www.scmp.com/news/china/article/3165893/us-house-passes-china-focused-america-competes-act)
-2）[The House Passes the America COMPETES Act, Including Immigration Reforms to Help the U.S. Economy](https://immigrationimpact.com/2022/02/04/house-passes-america-competes-act-immigration-reform/#.YgFHIvXMJB1)
-3）[House passes sweeping China competition bill](https://thehill.com/homenews/house/592824-house-passes-sweeping-china-competition-bill?amp)
+参考链接：[Fred Fleitz to Newsmax: China, Russia Alliance ‘Incredibly Dangerous’](https://www.newsmax.com/newsmax-tv/fred-fleitz-alliance-vladimir-putin-xi-jinping/2022/02/05/id/1055647/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
 总编：Jack Li文阳
-编辑：Ivy001
+编辑：静言
 校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
