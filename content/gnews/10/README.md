@@ -2,37 +2,40 @@
 ---
 
 
-## 2.06大直播后记：共产党对美蓝金黄
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1971106/)
+## 日媒指出中共冬奥会的问题 印证爆料革命观点
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1971130/)
 
-整理：雅典娜速记组
-编辑：Mohegayer K. Simon
+作者：日本方舟农场 – Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月6日，日媒用生动的剪纸画，总结了中共冬奥会的三大问题。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/16-3.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-4.jpeg)
 
+报道指出，首先，与习近平作为筹备小组组长的08年夏季奥运会相比，参加开幕式的外国领导人人数，因为新疆人权等原因从80国锐减至25国，并且其中的11国属于强权专制国家。
 
+其次，本次中共冬奥会的所有三个室外场地，均被设在了很少有降雪的地方，不得不使用对环境造成污染的人工降雪。
 
-图片来源：墨尔本雅典娜农场设计组614
+最后，之所以要将冬奥会地点定在北京，也是为了取得全球首个举办双奥运城市的名头，为习近平二十大连任铺路。
 
+分析人士指出，以上三点，都是去年郭文贵先生在大直播和盖特直播中反复提及的。日媒的此番报道，标志着越来越多的人正逐渐看清中共的真实嘴脸，并认同、接纳爆料革命新中国联邦最早提出的观点。
 
-当时中共已经从对俄关系转到了对美关系，中国知道，如果中国经济要好，国家要强大，共产党要活下去，必须在美国下手。所以就派人在美国潜伏。周恩来的一个跟美国乒乓球外交叫中美大学生互换文化那个项目。还跟美国换100个女学生，美国给咱派了100个学生，咱们来的几乎都是学生，80%是女学生，好多都是我认识的，我山东老家的一个女学生，现在在美国政坛还极为活跃。到美国以后，所有人只能嫁给美国白人，嫁给谁都党中央说了算，而且在美国都生了孩子，现在已经叫做香蕉，叫做华二代华三代。
+参考链接：
+1. [20220206日本TBS細數CCP冬奧會的問題](https://www.gettr.com/post/psxici6ccb)
+2. [【中】中共冬奥问题20220206](https://mega.nz/file/sUphBCjD#Q8aM2IldMyR2ZBDfF7r8550X7Qqqx3mYm1fiyBCl08A)
 
-从那个时候，你从山茂昭，你从蒲安臣，你从史密斯，你从罗斯福，你从整个福布斯到后来的这个费正清中美关系。包括你看还有到后来的基辛格。就是中美之间，是真的是安全，就是生死与共。它有天然的利益和安全上的文化上的相互补充的。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-中美之间经济要合作，是天下最棒。中美人民没有任何历史性的冲突。我们文化是互补。但是今天你看到美国上，你看，我们来到美国，从西到夏威夷，到了阿拉斯加。过去的中国是登陆美国的犹他州，蒲安臣的条约，第一个允许欢迎中国人到美国来移民。大清政府，当时，这个大清政府觉得很奇怪，你知道我这个老百姓都去美国干嘛去，但是大清政府我还不懂呢。美国人把中国人当神一样。真的觉得是天上的神，结果中国人来了很多是福建的。在犹他州修路都是农民的，来到很多不是知识分子，几十万人呢，死在了这个美国的修1号公路和犹他州建设，这就是华人登陆美国的原因。
+总编：Ivy001 
+编辑：谐趣园
+校正/发稿：谐趣园
 
-那么今天你在看美国从东部到西部的时候，犹他州的华人登陆，蒲安臣的欢迎中国人签证，到今天，和到之后，美国帮助中国人建立北京大学和医院等等。就是因为中国人在国际的宗教上，信仰上自由度上对人的尊敬上，特别是教育上彻底输了。而美国人在这方面是有，在中美之间经济上忽高忽低。那么现在我们看到，在美国的所有的华尔街好莱坞，大家能看到好莱坞已经把中国的所有文化彻彻底替代。饮食文化麦当劳啊星巴克咖啡把中国彻底干掉。至于飞机大炮高科技啊，中国在边儿都沾不着，然后金融上美国几乎是有绝对的话语权，中国就没了。
-
-资料来源：郭先生GTV、盖特直播
-
-发布：星谕
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
