@@ -2,27 +2,46 @@
 ---
 
 
-## 有声|2022年2月5日 晚 新中国联邦新闻、GTV新闻访谈简报
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1966771/)
+## 墙内世界2022/02/03
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1967282/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-4.png)
+一、2月2日，中国北京。最繁忙的火车站由于中共政府举办冬季奥运会的严格流动限制而变得空荡荡。
+
+二、1月29日，河北保定。中共在高速路入口处出现了荷枪实弹的持枪警察，意图向百姓传达高压威慑的氛围。
+
+三、1月31日，浙江杭州。中共持续以防控疫情的借口，逐步加大各省市人员流动的限制。
+
+四、1月31日，广东深圳。凡是被中共政府通报新冠病毒确诊病例的城市，即意味着当地全体居民失去更大程度的人权和自由。
+
+五、1月31日，广东深圳。中共政府核酸检测政策的执行并不是想要真正防控疫情扩散，只是为了让百姓失去更多的话语权。
+
+六、2月1日，湖北武汉。一商场电梯突发故障，包含老人和6岁儿童的十几人被困地下二层。
+
+七、1月28日，浙江湖州。一大桥护坡深夜垮塌，十余辆轿车被砸。
+
+八、1月29日，重庆。银行门口取钱队伍排起长龙。全国银行门口频繁出现了取现金困难的场景。银行的钱都去哪儿了？
+
+九、近日 中共三部门发文：2022年3月1日起，个人存取现金超5万元需登记资金来源。百姓手里的钱自由流动将会可预见的更加困难。
+
+十、1月28日，上海。中共国没有市场经济，在中共国无证寸步难行。中共官方称一女子在没有烟花销售许可证的情况下，从外地购入烟花爆竹4箱，在网上加价转卖获利1800余元，被依法行政拘留。
+
+十一、2月1日早上7点半，陕西大荔。男子放炮后仅20秒禁放宣传车赶到，对其进行了批评教育。中共在监控人民方面从来不会缺经费和人员。
+
+*搜集：Free20200604、加油干吧总加速师、Filon |听写：trustguo | 翻译：叶知秋|校对：yyshere*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-文字版原文：[2022年2月5日 晚 新中国联邦新闻、GTV新闻访谈简报](https://gnews.org/zh-hans/1963265/)
+编辑：【英国伦敦喜庄园编辑部】
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,28 +2,25 @@
 ---
 
 
-## 英国军方最新报告警告来自太空的核攻击
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1968088/)
+## 七哥谈中共和哈萨克斯坦（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1968304/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3-10.jpg)
-图片来源：www.secretchina.com
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-零对冲网2月6日报道，随着中俄两国雄心勃勃发展更强有力的武器包括超音速导弹，可以通过发射至地球大气层后针对地球另一半的目标发起攻击，难怪更多的西方政府正在检查其能力，即在人类的“最终前沿”—-太空方面，不仅是进攻性，也包括防御性。
+我谢谢青青草原，国内很多战友都跟我说，看到了青青草原，他说真的是哈萨克族在新疆是很重要的，而且是文化的这个中心啊。那么共产党在这个哈萨克斯坦，纳扎尔巴耶夫在伦敦的房子非常非常的漂亮，非常有品位。哈萨克族的人，就像青青草原这个脸一样，他们特色很明显。就是有伊朗，那个波斯人的那种品位啊。你看到世界时尚很多人，你看我穿的衣服的美，LOUISANA（路易皮安纳）还有做这个爱马仕，平安的媳妇，所有的人几乎都是伊朗犹太人啊。还有搞古董的，记录的伊朗犹太人，那么伊朗波斯文化和中东文化，包括整个一带一路到哈萨克斯坦，整个这过去，新疆哈萨克族和新疆维族。还有土耳其，它都是连在一起的，这是一个文化的一个主脉络啊，而且历史很悠久。
 
-由英国国防部本周发布的一项新的报告，权威机构警告说攻击者可能潜在性地发展外太空的核武器，可以导致“民用设施或可能是针对目标的永久性的杀伤性武器”。
+共产党，整个真的是你想象不到，他现在竟然想着操控这一切事情，你想想，王毅去了阿富汗，阿富汗就就变成那样了。现在每天要饿死上百人，我每天醒来时候都会为他们祈福。然后你看到了，到了哈萨克斯坦，直接是不是就完了，就成这了啊。但是你要看到，无论是萨达姆，还是乌干达的阿明还是苏哈托，还是当年的日本天皇，包括希特勒把毛泽东，斯大林所有的过去，就是把国家变成家天下，就是他家族的几个人的。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥谈中共和哈萨克斯坦（一）-1-1.jpg)
+2022年1月7日文贵大直播
 
-该报告称到目前为止政府为其公民日常生活所能提供的保护，將有赖于对太空的控制。英国的对手很有可能在未来的战争中很快超越。
-
-而在“太空优势”方面的维持控制是关键的，危险来自从网络攻击和电磁攻击到外太空的核攻击，例如由卫星制导的核导弹或从太空发射的导弹等。
-
-报告的结论很明确，英国和同盟国必须计划并投资，因为决定性的“太空竞赛”已经开始了。
-
-##### 新闻来源： [UK Military Warns About Risk Of Nuclear Attacks From Space In New Report](https://www.zerohedge.com/geopolitical/uk-military-warns-about-risk-nuclear-attacks-space-new-report)
-
-#  
-
-
+*发布：tianzhihuan*
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

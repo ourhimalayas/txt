@@ -2,33 +2,25 @@
 ---
 
 
-## 有声|美国会议员提案吁台美复交渐获支持
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1966770/)
+## 麦考尔的竞选广告抨击由反人类犯罪集团中共举办的北京冬奥会
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1966880/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-当地时间2月4日媒体报导，美国共和党籍联邦众议员帝芬尼（Tom Tiffany）在上届会期曾提出呼吁台美复交、签署自由贸易协议（FTA）与支持台湾加入国际组织的决议案，当时仅获得另一位共和党籍议员联署支持。
+**采编****/翻译： 意翎  **
 
-帝芬尼众议员在本届会期再度提出此议案，至目前为止，已经获得20位共和党籍议员的联署。帝芬尼表示将寻求民主党籍议员的联署，并希望在2022年度能让此议案成为跨党派支持的法案。
+**责编：白夜**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-596.png)
+周六，《华盛顿邮报》记者约瑟夫·封立克（Joseph Clark）报道，美国德克萨斯州众议员米切尔特·麦考尔（Michael T.McCaul）发起了一场广告宣传活动，抨击中国共产党（CCP）的滥权犯罪行为，并与2022年北京冬奥会报道的同时播出。
 
-过去一年，由于中共在台海持续制造破坏现状的军事侵扰行动，已经引起国际社会的警觉，纷纷以军舰巡弋，自由航行通过台海及南海的行动，来展现护卫自己国家利益的决心。本届美国联邦议会参众两院在去年一年中就提出了51项支持台湾的议案。这数目已经超过前届议会在两年内提出的32项友台提案。
+这位众议院外交事务委员会的共和党领袖，也是共和党的中国问题特别工作组（GOP’s Task Force ）的主席说，中共利用奥运会来“粉饰他们的种族灭绝、军事侵略和对本国人民的压迫……我们不会对他们奴役人民的行为睁一只眼，闭一只眼”。 麦考尔在他的竞选团队周五发布的广告中说，“CCP正在对自己的人民进行种族灭绝……他们威胁要对美国和我们的盟友进行军事侵略。他们还在继续掩盖Covid-19的起源……现在他们想让我们看奥运会，忘记他们的罪行”，他说。
 
-台美复交的提案，已经从过去无人想提，到现在有20位联邦议员愿意联署。 随着中共的越趋疯狂，为了美国自身的利益，美国将会有更多议员关注及支持台美复交的议题。
+麦考尔置身于一个由两党组成的、旨在孰促国际奥委会(IOC)抵制中共政府在新疆的种族灭绝行为和反人类罪行的团体，一直对IOC允许北京举办奥运会的决定持批评态度。“我们会为美国队加油，同时我们也会谴责CCP和国际奥委会在道义上应受谴责的行为”，他说。
 
-文字版原文：[美国会议员提案吁台美复交渐获支持](https://gnews.org/zh-hans/1958651/)
+在广告中，麦考尔呼吁观众，“支持运动员，不能让共产党人洗脑成功。”他在一份声明中说：“重要的是，美国人民站起来一齐对CCP的种族灭绝说不！”
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+**[原文链接](https://www.washingtontimes.com/news/2022/feb/5/mccaul-campaign-runs-ad-targeting-beijing-olympics/)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,28 +2,28 @@
 ---
 
 
-## 部分感染中共病毒的韩国人将可能无法参与总统选举投票
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1968026/)
+## 中共和俄罗斯的高超音速武器威胁美国的预警系统
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1968189/)
 
-#### 撰稿：彩虹 
+#### 撰稿：彩虹       
 
 #### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-612.png)图片来源：Time
-2月6日，《国家脉动》记者娜塔莉·温特斯（Natalie Winters）发文，报道韩国感染中共病毒（COVID-19）的选民将可能无法在韩国即将举行的总统选举中投票。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-616.png)图片来源：军事
+2月6号，《新闻极限》报道，五角大楼的一位前工作人员在《金融时报》（Financial Times）发表社论说，美国必须赶上中共国和俄罗斯在高超音速武器方面的进展，否则会被这两个超级大国超越。
 
-文章引述《韩国先驱报》（The Korea Herald）的内容说：“人们对COVID-19（中共病毒）患者是否无法在第20届总统选举中投票的问题越来越关注，因为那些在邮寄选票登记期之后被确认感染病毒的人可能无法在3月9日到投票站报到。”
+威廉·施耐德（William Schneider）是哈德逊研究所（Hudson Institute）的高级研究员，曾担任过副国务卿和五角大楼的国防科学委员会主席。他认为，那些对中共国和俄罗斯的（高超音速导弹）测试不屑一顾的人是“忽略了其重要性”。
 
-报道说，韩国的国家选举委员会（National Election Commission）有一个为期五天的窗口，接受邮寄选票的申请，在治疗中心居住的中共病毒患者和那些被隔离或自我隔离的人均可以使用。
+他说：“机动高超音速飞行器不仅仅是将核弹头运送到目标的另一种手段，相反，它们是旨在击败美国预警能力的‘系统体系’的一个重要组成部分。”
 
-《韩国先驱报》解释说：“在这段时间内登记的人将能够收到邮寄的选票，并通过向选举当局寄回选票来投票。”
+施耐德警告：“中共和俄罗斯的机动高超音速导弹能力，使得这些敌对大国能够拥有击败美国预警系统的综合能力。在这种情况下，美国将对来袭的外国导弹攻击无法预警，应对能力受到极大限制。”
 
-但是，对于那些在国家选举委员会接受邮寄选票申请的窗口期之外感染了中共病毒的个人，就没有任何保障其投票选举的措施。
+据CNN报道，周四，在一次来自二十多家美国最大的国防公司首席执行官们的高级别会议上，国防部长劳埃德·奥斯汀（Lloyd Austin）鼓励他们加速高超音速武器的开发。
 
-但是，“有人警告说，到选举时，下个月每天新增的（中共病毒）病例可能超过十万例，这引起了人们的担忧，（这会导致）几十万选民无法在总统选举中投票。”对此，报道说，国家选举委员会正在讨论应对这一潜在危机的措施。
+根据报道，去年夏天，俄罗斯进行了试验高超音速的“海燕”核动力和核武装巡航导弹，该导弹具有无限的射程。而中国则测试了两枚高超音速弹道导弹，其中一枚在机动轨道飞行时释放了第二个高超音速物体。
 
 **新闻来源**
 
-[COVID Positive? In South Korea, You Might Be Barred From Voting](https://thenationalpulse.com/2022/02/06/covid-positive-people-may-be-barred-from-voting/)
+[Former Pentagon Official: Chinese, Russian Hypersonic Weapons Threaten US Early Warning System](https://www.newsmax.com/politics/china-russia-u-s-hypersonic-weapons/2022/02/06/id/1055724/)
 
  
 

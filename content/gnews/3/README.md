@@ -2,50 +2,31 @@
 ---
 
 
-## 爆料革命五年最大感受灭共容易让中国人心变好难于登天
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1968295/)
+## 澳大利亚在经过近两年的边境关闭后 终于将对国际游客开放
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1968521/)
 
-G-TV视频链接：[https://gtv.org/video/id=62007b1d585ecc15d73e584f](https://gtv.org/video/id=62007b1d585ecc15d73e584f)
+撰稿：东京樱花团/asket
 
-**郭文贵先生：**你说这五年，你往回看这感受，你见过咱爆料革命从第一天到今天除了咱们这些战友之外，有几个中国人认为海航是邪恶的？王岐山是邪恶的？孟建柱邪恶？孙力军邪恶？没有人！除了被害者之外！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/澳大利亚在经过近两年的边境关闭后-终于将对国际游客开放.png)
 
-雅各他家被欺负，他是仇恨当头。如果不是，他不认识这人是邪恶的，在中国，因为他没动我，海航也没海航我，王岐山也没“王”我，孟建柱也没“孟”我，我干嘛恨他？就咱中国人那邻居家能死人、被强奸、被轮奸，绝对视若无物。没有比中国人这心再冷的了。没有比中国人这心再冷的了。
+澳大利亚的边境在经过近两年的关闭以阻止中共病毒（新冠病毒Covid-19）的传播后，终于将于2月21日对国际游客开放。但是，游客必须接受双重疫苗接种，否则就有可能像怀疑疫苗接种的网球明星诺瓦克·德约科维奇那样被拒之门外。他在上个月的澳大利亚网球公开赛之前被送回了家。
 
-这为啥我们说台湾好？为啥我们说香港好？你到香港去，同类，你就能看到香港人，过去罗湖关，我听到最多的，过去这几十年，每个人都说：哎呀文贵呀，过了这个河，咋就天地不同呢？当年去台湾，一飞几个小时到那转悠回来，后来直通以后到台湾，为啥人家台湾的男的女的都看上去那么顺眼呢？不是别的，是人心！中国人的脑子坏了，中国人的人心坏了。
+“条件是你必须接种两次疫苗才能来澳大利亚。这就是规则，每个人都应该遵守。”总理斯科特-莫里森说，“但如果你接种了双重疫苗，我们期待着欢迎你回到澳大利亚，我知道旅游业将期待着这一点。”
 
-所以咱五年的爆料革命，不是共产党最难，真的是中国的人心！就这个授权撤离，都让七哥都不知道咋好了我都。刚才那个罗西讲了他师父的事情，让人感动。他有师父，中国人哪有求师父的？爹妈都不要了，还要什么师父？中国你见什么师父？师父是利用的，学生也是利用的，谁管你什么师父？没大没小、没老没少、没内没外，一切就是利益，就一切！宗教也是这样，一切都是利益！
+莫里森先生说，做出这个决定是因为澳大利亚现在已经被中共病毒的Omicron变体所蹂躏，这意味着国际旅行者不会构成额外的风险。
 
-你今天你把我问在这，问到今天五周年，七哥最感慨的事：灭共容易，想让中国人心变好难上加难！比登天、比登太阳系都难！所以说这是灭了共产党，灭一万回共产党，我也不会回中国活着去。我宁可在，真的在美国当狗，美国人明天就是我在大街上当狗去，我吃着狗粮，最起码我知道它没有化学的。
+“该变种已经在澳大利亚境内。对于那些即将到来的双重疫苗接种者，他们不会比那些已经在澳大利亚的人带来更大的风险。”
 
-我觉得除了中南坑，中国人没有一个粮食没有化学的。我在这块儿当狗，我也不会回中国去。还搞什么政治，新中国联邦接管，去吧，你爱谁接管谁接管，剩下内战。你八次内战，跟我都没有关系，我只负责把共产党——我肯定把它灭了。这是发自内心的，我就这么直接。
+而对未接种疫苗的签证持有者需要获得旅行豁免才能入境，并在抵达后接受各州和地区的检疫要求。
 
-字幕来源：[2022年1月27日 文贵大直播 全文字版](https://gnews.org/zh-hans/1924957/)
+信息源：
 
-编辑整理：Jacques；
+[Australia’s international border will FINALLY reopen to tourists in two weeks – but all travellers MUST be double vaccinated or face the same fate as Novak Djokovic](https://www.dailymail.co.uk/news/article-10483853/Australia-FINALLY-reopen-tourists-February-21-says-Scott-Morrison.html)
 
-字幕文件制作：大好河山；
+编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑
 
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
 
  
 

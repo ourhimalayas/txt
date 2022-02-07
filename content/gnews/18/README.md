@@ -2,28 +2,54 @@
 ---
 
 
-## 中共和俄罗斯的高超音速武器威胁美国的预警系统
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1968189/)
+## 冬奥前夕 京城疫情有加重迹象
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1968371/)
 
-#### 撰稿：彩虹       
+作者：纽约香草山农场 – Noemi
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-616.png)图片来源：军事
-2月6号，《新闻极限》报道，五角大楼的一位前工作人员在《金融时报》（Financial Times）发表社论说，美国必须赶上中共国和俄罗斯在高超音速武器方面的进展，否则会被这两个超级大国超越。
 
-威廉·施耐德（William Schneider）是哈德逊研究所（Hudson Institute）的高级研究员，曾担任过副国务卿和五角大楼的国防科学委员会主席。他认为，那些对中共国和俄罗斯的（高超音速导弹）测试不屑一顾的人是“忽略了其重要性”。
 
-他说：“机动高超音速飞行器不仅仅是将核弹头运送到目标的另一种手段，相反，它们是旨在击败美国预警能力的‘系统体系’的一个重要组成部分。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-施耐德警告：“中共和俄罗斯的机动高超音速导弹能力，使得这些敌对大国能够拥有击败美国预警系统的综合能力。在这种情况下，美国将对来袭的外国导弹攻击无法预警，应对能力受到极大限制。”
 
-据CNN报道，周四，在一次来自二十多家美国最大的国防公司首席执行官们的高级别会议上，国防部长劳埃德·奥斯汀（Lloyd Austin）鼓励他们加速高超音速武器的开发。
 
-根据报道，去年夏天，俄罗斯进行了试验高超音速的“海燕”核动力和核武装巡航导弹，该导弹具有无限的射程。而中国则测试了两枚高超音速弹道导弹，其中一枚在机动轨道飞行时释放了第二个高超音速物体。
+2月4日，媒体传出两则与北京相关的疫情消息，一是与北京紧邻的河北省廊坊市固安县突因两例确诊病例封城，确诊病例疑为由京返乡人员；二是北京地坛医院一名应急隔离区的医生在日前确诊中共病毒阳性后，该医院的门诊工作全部暂停。
 
-**新闻来源**
+在固安，城全域内所有小区、公共场所、高速路口已全部封闭，除正在进行的全员核酸检测外，所有街道空无一人。
 
-[Former Pentagon Official: Chinese, Russian Hypersonic Weapons Threaten US Early Warning System](https://www.newsmax.com/politics/china-russia-u-s-hypersonic-weapons/2022/02/06/id/1055724/)
+而地坛医院是北京市内一家主要负责接收中共病毒患者的传染病医院。在疫情发生后，该医院及其周边的店铺、酒店均已被中共当局完全封控。
+
+此前，郭文贵先生就已指出，疫情在中共国内已经失控，中共的医护人员状况更是岌岌可危。两则疫情信息似乎更加印证了郭先生这一爆料。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-2.jpg)
+参考信息：
+1. [冬奥开幕式在即，京南一县城突曝因疫情封城：2月4日上午7点30分，河北省廊坊市固安县因两例确诊病例封城，确诊病例疑为由京返乡人员。](https://www.gettr.com/post/pse7ef5cc5)
+2.[#固安疫情最新通报# #河北头条##廊坊头条# 河北固安今日7点30分对全区域进行管控，全员核酸，车辆不让进出固安县，高速口已经不允许车辆下高速，加油加油加油，很快就能战胜疫情](https://www.toutiao.com/w/a1723812693596174/?traffic_source=&amp;traffic_source=&amp;in_ogs=&amp;in_ogs=&amp;utm_source=&amp;utm_source=&amp;source=search_tab&amp;source=input&amp;utm_medium=wap_search&amp;utm_medium=wap_search&amp;original_source=&amp;original_source=&amp;in_tfs=&amp;in_tfs=&amp;channel=&amp;channel=)
+3. [固安县行政审批局召开疫情部署会议](https://3g.163.com/local/article/GVC62ELU04159CNM.html)
+4. [北京地坛医院医生染疫 所有门诊停诊](https://www.epochtimes.com/gb/22/2/4/n13554537.htm)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+
+总编：Irene木木
+编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

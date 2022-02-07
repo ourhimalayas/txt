@@ -2,51 +2,24 @@
 ---
 
 
-## 单伟健在杨贝贝虚假采访背后的金融运作
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/1968053/)
+## 秘翻在线：什么样的诱惑，能使她的父母做出了如此愚蠢的选择？
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1968229/)
 
-加拿大温哥华扬帆农场：薇文viven
+撰稿：待命（文暁）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/画像1-11.png)（图片源自本文链接）
+2月7日时事通信社消息：据法新社报道，一名参加北京冬奥会花样滑冰团体赛的中国籍选手在表演中摔倒后在社交媒体上受到严厉批评。据信中共国正在审查有关该运动员的帖子。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/a-3-edited.jpg)图片来源：weibo
+在美国出生和长大的Beverly Zhu，现中共国公民朱易，看似很紧张的出现在团体赛的女子单人滑赛场，没有发挥出预想的水平。等待发表分数时的她似乎在强忍泪水。
 
+在中共国版推特之微博上，一篇带有 “朱易摔倒 “标签的帖子被浏览了2.3亿次，但该标签后来被封，6日下午，这个帖子不再出现在搜索结果中。而另一个带有 “朱易失败 “标签的帖子仍然有效，浏览量超过8000万次。
 
-前段时间HBO Vice 散播种族歧视和恶意诋毁爆料革命和郭文贵先生的视频，背后有中共巨资借用“腾讯音乐娱乐”(TME)操作平台，利用海外金融投资公司“太盟集团”(PAG)  和“德太资本”(TPG)，通过中共特务单伟建和王岐山家族的孙强两人处心积虑运作的结果。
+于2018年更改了国籍的朱易说：因为第一跳没成功而心力交瘁，在最后一跳的落地时感到压力很大，不幸的是我失败了。
 
-单伟建的太盟在2017年持股9.8%成为 TME的第二大股东；2018年 腾讯音乐在美国上市，太盟靠出售美国存托凭证募资$5,700 万美元，并继续持股 9% ；
+然而，互联网上少见对朱易的同情，有些人还对队员的选拔提出了质疑。有个人说：“陈虹伊要好得多，我不明白为什么像她这样的人会被选入中国队”。 “另一个人补充说：”压力太大。想知道，有没有一个球员可以在不感受到国家和人民的压力的情况下参加奥运会？”。
 
-华纳公司旗下的HBO2013年与腾讯签约入驻中国，2018年因主持人嘲讽习近平为“维尼熊”后，一直被中共封杀，失去每年近50%增长的华纳损失惨重。
+翻译这篇报道，使我想起了郭先生的话：跟着共产党，走进火葬场。出生于２００２年的朱易，２０１８年的时候１６岁，还不是个成年人。她的父母把她生在了自由国家，又亲手把她送回了反人类国家。是什么样的诱惑，能使她的父母做出了如此愚蠢的选择？所以，朱易的压力，既可怜又可恨！
 
-单伟建出手使用金融手段控制华纳： TME投资 “华纳音乐”的股权2%、双方成立合资公司、允许华纳音乐向TME的经营者授权，华纳公司和华纳音乐的股价双双开始飙升。
-
-孙强运作的德太资本2017年就已投资 HBOVice 达$4.5亿，2019年，有中金资本的平台撑腰，又注资$4500万美元，助HBOVice上市，但至今未成功。
-
-中共蓄谋已久，花费高昂代价，吃准华纳和HBO逐利的贪婪本性，用单伟建和孙强两路夹击，犁庭扫穴，使之成为中共作恶的工具和替罪羊。中共因惧怕新中国联邦而导致的又一愚蠢行径，不断为全球灭共逆增上缘。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/f.jpg)图片来源：GNEWS
-
-
-参考资料：
-
-[Tencent Music Entertainment: China’s Largest Online Music Entertainment Platform Operator](https://seekingalpha.com/article/4412340-tencent-music-entertainment-online-music-entertainment-platform-operator)
-
-[HBO Website Is Down in China After John Oliver Skewers Xi Jinping on Last Week Tonight](https://time.com/5321945/hbo-china-john-oliver-xi-jinping/)
-
-[Private Capital-backed Tencent Music Raises US$1.1 Billion in Initial Public Offering (Asia)](https://www.globalprivatecapital.org/newsroom/private-capital-backed-tencent-music-raises-us1-1-billion-in-initial-public-offering-asia/)
-
-[SEC FORM F-1 Tencent Music Entertainment Group 2018.10](https://www.sec.gov/Archives/edgar/data/1744676/000119312518290581/d624633df1.htm)
-
-[Warner Music Partners With Tencent on Joint Venture Record Label in China](https://www.hollywoodreporter.com/news/music-news/warner-music-partners-with-tencent-on-joint-venture-record-label-in-china-4154621/)
-
-[腾讯音乐娱乐集团(TME)公司深度报告](http://pdf.dfcfw.com/pdf/H3_AP201901281289167588_1.pdf)
-
-[TPG与中金资本成立 “中国协同效应”平台](https://www.financialnews.com.cn/zq/pevc/201901/t20190110_152759.html)
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/e-edited.jpg)图片来源：sjmrw
-
-
-* * *
-
-编辑发稿：硫酸羟氯喹64
+信息源：[フィギュア団体で転倒、中国籍取得の選手にSNSで批判殺到（ＡＦＰ＝時事） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/b3efbbd26e9d5bc42d8f3f70a6e98eab57df8662)
 
  
 
