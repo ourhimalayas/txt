@@ -2,81 +2,28 @@
 ---
 
 
-## 参议员Johnson致函Austin要求提供美军受到COVID-19疫苗伤害的信息
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1964571/)
+## 中日财经爆┃日本政府加大稀有金属锂和镍的投资
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1965477/)
 
-作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏）
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-24.png)[图片信息](https://my-best.com/5975?utm_campaign=terrace&amp;utm_medium=organic&amp;utm_source=Yahoo#:~:text=%E3%81%97%E3%81%A6%E3%8)
+2月6日读卖新闻在线消息，日本政府将加大对私营公司的支持力度，以确保在电动汽车（EV）电池中使用的锂和镍等稀有金属的海外利益。计划最大投资额从目前的最高50%提高到100%以下。这不仅表明政府参与度的增加，将使公司更容易承担与其业务相关的风险。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+随着全球脱碳趋势的加剧和资源竞争的激烈，政府旨在确保对日本的稳定供应。如果企业出现问题，增加政府投资可能会导致重大损失，所以严格评估开采量和项目的盈利能力尤为重要。
 
-2022年2月1日，美国参议员Ron Johnson致函国防部（Department of Defense，简称DoD）部长Lloyd Austin，以确认1月24日俄亥俄州律师Thomas Renz在华盛顿特区举行的《[Covid-19: A Second Opinion](https://rumble.com/vt62y6-covid-19-a-second-opinion.html)》中的陈述。Johnson参议员要求Austin部长在2022年2月15日之前提供有关军人受到COVID-19病毒疫苗伤害的信息。
+锂和镍也被用于储能电池，以储存由太阳能和风力等可再生能源产生的电力。它们是脱碳的关键，国际能源署（IEA）估计，2040年全球锂的需求比2020年将增加13倍，达到28万吨镍的需求将增加6.5倍，达到130万吨。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/556737019-U-S-Sen-Johnson-Asks-Secretary-Austin-1.jpg)
+日本几乎完全依赖从南美和东南亚的进口。从经济安全的角度来看，增加日本的海外利益非常重要。政府将通过尽可能提高日本石油天然气和金属矿产资源组织（JOGMEC）的投资上限来鼓励私营企业参与海外采矿项目。日本人的投资比例越高，越有利于权益保障。JOGMEC的内部制度也将在今年中进行修改。
 
-2022年1月24日，由多位世界知名医生和医学专家参加的《[Covid-19: A Second Opinion](https://www.thegatewaypundit.com/2022/02/sen-ron-johnson-sends-letter-sec-defense-demanding-information-high-covid-19-vaccine-injury-among-military-personnel/)》会议在华盛顿特区举行，该会议由参议员Ron Johnson主持。
+在日本公司中，丰田通商在阿根廷的锂矿中拥有股份，住友金属矿业公司正在参与菲律宾和其它地方的镍矿提炼项目。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-06_13-33-49.png)
+信息源：
 
-在长达5个多小时的讨论中，几位世界知名医生和医学专家就应对COVID-19病毒全球大流行提供了不同的视角，对目前掌握的COVID-19病毒大流行早期和医院应对状况、COVID-19病毒疫苗的有效性和安全性，什么是对的、什么是错的、现在应该做什么、以及长期需要解决的问题等展开讨论。
+[【独自】リチウムやニッケルの海外権益確保へ政府出資拡大…脱炭素需要で獲得競争激化](https://news.yahoo.co.jp/articles/74d92738313c20809d586a8bed8ee819703b49de#:~:text=%E3%80%90%E7%8B%AC)
 
-在这次会议上，俄亥俄州律师 Thomas Renz展示了Samuel Sigoloff博士、 Peter Chambers和Theresa Long等勇敢的吹哨人（whistleblowers）在他们在临床工作中，发现自匆忙推出试验性的Covid-19病毒疫苗以来，多种严重疾病在美军现役人员中呈天文数字增加，他们通过调查美国国防医学流行病学数据库 ( [Defense Medical Epidemiology Database](https://www.health.mil/Military-Health-Topics/Combat-Support/Armed-Forces-Health-Surveillance-Division/Data-Management-and-Technical-Support/Defense-Medical-Epidemiology-Database)，简称[DMED](https://www.health.mil/Military-Health-Topics/Combat-Support/Armed-Forces-Health-Surveillance-Division/Data-Management-and-Technical-Support/Defense-Medical-Epidemiology-Database))的数据发现，自一年前推出COVID-19病毒疫苗以来，美军部队现役人员的健康状况发生了令人不安的异常情况，其中最令人担忧的是癌症增加了3倍。
-
-在Ron Johnson参议员致函国防部部长Lloyd Austin的信中，Johnson引用了Renz的报告，这些举报人发现，根据国防医学流行病学数据库([DMED](https://www.health.mil/Military-Health-Topics/Combat-Support/Armed-Forces-Health-Surveillance-Division/Data-Management-and-Technical-Support/Defense-Medical-Epidemiology-Database))的数据，与2016年~2020年2月COVID-19病毒大流行前的五年平均水平相比，2021年在[DMED](https://www.health.mil/Military-Health-Topics/Combat-Support/Armed-Forces-Health-Surveillance-Division/Data-Management-and-Technical-Support/Defense-Medical-Epidemiology-Database)登记的流产、癌症和许多其他疾病显著增加，例如，在圆桌会议上，Renz表示，登记诊断的神经系统问题增加了10倍，从五年平均值的82,000例增加到2021年的863,000例，其它疾病也有大幅增加，具体包括以下惊人的数字：
-
-高血压（Hypertension）–增加2,181%
-
-神经系统疾病（Diseases of the nervous system）–增加1,048%
-
-食道恶性肿瘤（Malignant neoplasms of esophagus）–增加894%
-
-多发性硬化症（Multiple sclerosis）–增加680%
-
-消化器官恶性肿瘤（Malignant neoplasms of digestive organs）–增加624%
-
-格林-巴利综合征（Guillain-Barre syndrome）——增加551%
-
-乳腺癌（Breast cancer）–增加487%
-
-脱髓鞘（Demyelinating）–增加487%
-
-甲状腺和其他内分泌腺的恶性肿瘤（Malignant neoplasms of thyroid and other endocrine glands）——增加474%
-
-女性不孕症（Female infertility）–增加472%
-
-肺栓塞（Pulmonary embolism）–增加468%
-
-偏头痛（Migraines）–增加452%
-
-卵巢功能障碍（Ovarian dysfunction）–增加437%
-
-睾丸癌（Testicular cancer）–增加369%
-
-心动过速（Tachycardia）–增加302%
-
-在Ron Johnson参议员致函国防部部长Lloyd Austin的信中还提到，在收到Renz报告[DMED](https://www.health.mil/Military-Health-Topics/Combat-Support/Armed-Forces-Health-Surveillance-Division/Data-Management-and-Technical-Support/Defense-Medical-Epidemiology-Database)数据库中一些显示了心肌炎的数据已被删除，[DMED](https://www.health.mil/Military-Health-Topics/Combat-Support/Armed-Forces-Health-Surveillance-Division/Data-Management-and-Technical-Support/Defense-Medical-Epidemiology-Database)数据库已被篡改后，他在1月24日立即写信给Lloyd Austin，要求保留所有提及、关联或报告给DMED的记录。但至今还不知道Lloyd Austin是否遵守了这个要求。
-
-Ron Johnson参议员警告，任何对Renz在圆桌会议上透露的Samuel Sigoloff博士、Peter Chambers和Theresa Long三位勇敢的举报人采取的报复行动，都不会被容忍，并将被立即进行调查。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/556737019-U-S-Sen-Johnson-Asks-Secretary-Austin-2.jpg)
-
-在信的最后，参议员Ron Johnson向Lloyd Austin国务卿提出了以下问题：
-
-1.与2016年~2020年的五年平均水平相比，2021年[DMED](https://www.health.mil/Military-Health-Topics/Combat-Support/Armed-Forces-Health-Surveillance-Division/Data-Management-and-Technical-Support/Defense-Medical-Epidemiology-Database)数据库中登记诊断的流产（miscarriages）、癌症或其他疾病是否有所增加？如果情况属实，请解释国防部（DoD）采取了哪些行动来调查增加的根本原因。
-
-2.从2021年1月到2021年12月，[DMED](https://www.health.mil/Military-Health-Topics/Combat-Support/Armed-Forces-Health-Surveillance-Division/Data-Management-and-Technical-Support/Defense-Medical-Epidemiology-Database)数据库中登记诊断的心肌炎数据是否已从数据库中删除？如果是这样，请解释删除这些信息的原因和时间，并确定删除者。
-
-参考数据：
-
-[Sen. Ron Johnson Sends Letter to Sec. of Defense Demanding Information on Shockingly High COVID-19 Vaccine Injury Among Military Personnel](https://www.thegatewaypundit.com/2022/02/sen-ron-johnson-sends-letter-sec-defense-demanding-information-high-covid-19-vaccine-injury-among-military-personnel/)
-
-[U.S. Sen. Johnson Asks Secretary AustinFull description](https://www.scribd.com/document/556737019/U-S-Sen-Johnson-Asks-Secretary-Austin#download)
-
-[COVID-19: A Second Opinion](https://rumble.com/vt62y6-covid-19-a-second-opinion.html)
-
-[Whistleblowers share DOD medical data that blows vaccine safety debate wide open](https://www.theblaze.com/op-ed/horowitz-whistleblowers-share-dod-medical-data-that-blows-vaccine-safety-debate-wide-open)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

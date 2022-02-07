@@ -2,31 +2,36 @@
 ---
 
 
-## 警察扣押燃料并威胁逮捕自由车队及支持者
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1969892/)
+## 瑞士信贷面临洗钱指控
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1969954/)
 
-**翻译：Lulumi**
+信息来源： 路透社
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-651.png)警方警告停在附近的自由车队支持者，要求他们离开。记者贝丝·拜斯奇在联邦公园采访抗议者
+翻译/整理： 意大利罗马达芬奇农场 Shuizhuyu
 
-渥太华市周日宣布进入紧急状态，以应对市中心持续的抗议活动，不久之后，警方宣布加强对抗议者的执法力度，并打击他们的燃料供应。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/FEASLB6HBJO2FFL3H2EDPE5AZY.jpg)
 
-Rebel News的林肯·杰伊分享的一位公民记者拍摄的视频记录了警察扣押燃料的情况。
 
-该市在一份声明中说，此举“反映正在进行的示威活动对居民的安全和安保构成的严重危险和威胁，并强调需要其他管辖区和各级政府的支持”。
+图片来源： 路透社
 
-紧急状态是在该市一些居民的愤怒情绪高涨的情况下发生的，他们受到大型半挂车和随行卡车车队的影响，某些人如安大略省长道格·福特将完全和平的抗议活动称为“占领”。
+瑞士信贷将于周一在瑞士法院面临指控，指控一个涉嫌保加利亚可卡因贩运团伙洗钱数百万欧元，其中一些钱被塞进手提箱。
 
-福特周日表示，他的政府正在支持渥太华市，并告诉媒体，该市没有要求省或联邦政府提供军事援助。
+瑞士检方称，该国第二大银行及其一名前任客户经理并未采取一切必要措施阻止涉嫌毒贩在 2004 年至 2008 年期间隐藏和洗钱。
 
-**素材链接：**[thepostmillennial.com] [BREAKING: Ottawa Police move against Freedom Convoy protesters to seize fuel supplies](Ottawa%20Police%20move%20against%20Freedom%20Convoy%20protesters%20to%20seize%20fuel%20supplies)
+瑞信在给路透社的一份声明中表示：“瑞士信贷毫无保留地拒绝在这一遗留问题中对其提出的所有指控都是毫无根据的，并坚信其前雇员是无辜的。”
 
-* * *
+在瑞士一家大型银行的首次刑事审判中，检察官正在向瑞士信贷 (CSGN.S) 寻求约 4,240 万瑞士法郎的赔偿，该银行补充说，它将“在法庭上积极为自己辩护”。
 
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH..jpeg)
+此案在瑞士引起了浓厚的兴趣，被视为检方对该国银行可能采取更强硬立场的考验。
+
+起诉书长达 500 多页，主要集中在瑞士信贷及其前雇员与前保加利亚摔跤手 Evelin Banev 和多名同伙的关系上，其中两人在此案中受到指控。该案的第二份起诉书指控瑞士宝盛的一名前客户关系经理协助洗钱。
+
+根据瑞士隐私法无法透露姓名的前瑞士信贷员工的法律代表表示，此案不合理，他的客户否认有不当行为。
+
+🔗 [瑞士信贷面临洗钱指控](https://www.reuters.com/business/finance/credit-suisse-faces-money-laundering-charges-trial-bulgarian-cocaine-traffickers-2022-02-07/)
+
+编辑发布： Shuizhuyu
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
