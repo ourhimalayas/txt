@@ -2,50 +2,35 @@
 ---
 
 
-## 澳洲即将开放国际边界，仅完全接种可以入境
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1969833/)
+## 瑞士信贷面临洗钱指控
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1969954/)
 
-**【雅典娜快讯】，紧贴时代脉搏**
+信息来源： 路透社
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-648.png)
+翻译/整理： 意大利罗马达芬奇农场 Shuizhuyu
 
-**图片来源：CNN**
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/FEASLB6HBJO2FFL3H2EDPE5AZY.jpg)
 
 
-**整理/编辑：文泓**
+图片来源： 路透社
 
-2月7日，据SBS新闻报道，澳大利亚重新开放国际边界日期已确定，在关闭国际旅行大门近两年后，已完全接种疫苗的国际游客将很快能够返回。
+瑞士信贷将于周一在瑞士法院面临指控，指控一个涉嫌保加利亚可卡因贩运团伙洗钱数百万欧元，其中一些钱被塞进手提箱。
 
-周一，澳大利亚总理斯科特·莫里森宣布，**从2月21日起，向所有完全接种疫苗的签证持有人重新开放国际边界，包括所有国际游客，将被允许在两周内返回澳洲。**
+瑞士检方称，该国第二大银行及其一名前任客户经理并未采取一切必要措施阻止涉嫌毒贩在 2004 年至 2008 年期间隐藏和洗钱。
 
-“欢迎全世界的人回来，我认为这是澳大利亚正在实现的另一个重要里程碑，”莫里森先生告诉记者。
+瑞信在给路透社的一份声明中表示：“瑞士信贷毫无保留地拒绝在这一遗留问题中对其提出的所有指控都是毫无根据的，并坚信其前雇员是无辜的。”
 
-这一决定标志着新冠旅行限制的又一次放宽，最初的旅行限制放宽是在近两年前的2020年3月20日实施。
+在瑞士一家大型银行的首次刑事审判中，检察官正在向瑞士信贷 (CSGN.S) 寻求约 4,240 万瑞士法郎的赔偿，该银行补充说，它将“在法庭上积极为自己辩护”。
 
-自去年12月以来，对国际学生、打工度假者签证持有人和技术移民的旅行限制已经放宽。**国际入境者将被要求出示完全疫苗接种证明，或出示不能接种疫苗的有效医疗豁免理由。**
+此案在瑞士引起了浓厚的兴趣，被视为检方对该国银行可能采取更强硬立场的考验。
 
-在受到持续关闭边境的影响后，本地旅游部门一直在推动国际边境重新开放能够得以确定。旅游和运输论坛首席执行官马吉·奥斯曼德对这一决定表示欢迎，但表示细节问题仍有待解决。
+起诉书长达 500 多页，主要集中在瑞士信贷及其前雇员与前保加利亚摔跤手 Evelin Banev 和多名同伙的关系上，其中两人在此案中受到指控。该案的第二份起诉书指控瑞士宝盛的一名前客户关系经理协助洗钱。
 
-澳大利亚商业理事会（BCA）也对此举表示欢迎。
+根据瑞士隐私法无法透露姓名的前瑞士信贷员工的法律代表表示，此案不合理，他的客户否认有不当行为。
 
-商业委员会首席执行官珍妮弗·韦斯塔科特说：“澳大利亚重新向世界开放，标志着我们在管理新冠疫情方面迈出了关键的一步，使我们能够为我们的经济复苏提供动力。”
+🔗 [瑞士信贷面临洗钱指控](https://www.reuters.com/business/finance/credit-suisse-faces-money-laundering-charges-trial-bulgarian-cocaine-traffickers-2022-02-07/)
 
-**基于州的检疫规则，将继续根据每个司法管辖区的情况执行。**
-
-大多数州和地区允许来自海外免于检疫的旅行，目前，只有西澳保持着两周（隔离）的要求。
-
-自从西澳州长马克·麦高恩决定推迟2月5日的最后期限后，西澳州对联邦其他地区的边境重新开放被无限期地推迟了。
-
-新闻链接：[Fully vaccinated tourists to return to Australia as international border reopening date revealed (sbs.com.au)](https://www.sbs.com.au/news/fully-vaccinated-tourists-to-return-to-australia-as-international-border-reopening-date-revealed/8390f6b8-97f1-4c53-b3db-268399e03afa)
-
-*发布：盘古相聚*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+编辑发布： Shuizhuyu
 
  
 

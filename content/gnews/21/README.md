@@ -2,31 +2,40 @@
 ---
 
 
-## 警察扣押燃料并威胁逮捕自由车队及支持者
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1969892/)
+## 【TopNews】澳大利亚将于 2 月 21日向接种疫苗的旅行者开放边境
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/1970025/)
 
-**翻译：Lulumi**
+![400.jpeg](https://assets.gnews.org/wp-content/uploads/2022/02/CFD1D3A3-0C24-4C37-B718-D3324CF1A603.jpeg)*美联社*
+2022年2月7日，据美联社报道，澳大利亚将从 2 月 21 日起向所有接种疫苗的游客和商务旅行者开放边境，以进一步放宽周一宣布的大流行限制。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-651.png)警方警告停在附近的自由车队支持者，要求他们离开。记者贝丝·拜斯奇在联邦公园采访抗议者
+澳大利亚于 2020 年 3 月开始对其公民和永久居民实施了一些世界上最严格的旅行限制，以防止他们将COVID-19 带回家。
 
-渥太华市周日宣布进入紧急状态，以应对市中心持续的抗议活动，不久之后，警方宣布加强对抗议者的执法力度，并打击他们的燃料供应。
+11 月，随着澳大利亚人口中疫苗接种率的提高，边境限制放松，其中，国际学生和技术移民被优先考虑被欢迎返回澳大利亚，但是不包括游客。
 
-Rebel News的林肯·杰伊分享的一位公民记者拍摄的视频记录了警察扣押燃料的情况。
+总理斯科特·莫里森（Scott Morrison）表示，他的高级部长周一同意，从 2 月 21 日起，边境将对所有已接种疫苗的签证持有者重新开放。
 
-该市在一份声明中说，此举“反映正在进行的示威活动对居民的安全和安保构成的严重危险和威胁，并强调需要其他管辖区和各级政府的支持”。
+莫里森说，游客必须有疫苗接种证明。他还提到，塞尔维亚网球明星[诺瓦克·德约科维奇](https://apnews.com/article/coronavirus-pandemic-australian-open-novak-djokovic-sports-health-d3f7933d3d5b9359af5e977e86c59f39)上个月被澳大利亚政府驱逐出境，因为他没有接种中共病毒疫苗。
 
-紧急状态是在该市一些居民的愤怒情绪高涨的情况下发生的，他们受到大型半挂车和随行卡车车队的影响，某些人如安大略省长道格·福特将完全和平的抗议活动称为“占领”。
+德约科维奇案表明，在前往澳大利亚之前通过自动化流程获得签证的那些游客并不能被保证他们在抵达时会满足入境要求。
 
-福特周日表示，他的政府正在支持渥太华市，并告诉媒体，该市没有要求省或联邦政府提供军事援助。
+内政部长凯伦·安德鲁斯（Karen Andrews）表示，能够提供无法接种疫苗的医疗原因证明的游客可以申请旅行豁免。
 
-**素材链接：**[thepostmillennial.com] [BREAKING: Ottawa Police move against Freedom Convoy protesters to seize fuel supplies](Ottawa%20Police%20move%20against%20Freedom%20Convoy%20protesters%20to%20seize%20fuel%20supplies)
+但是，如果前往澳大利亚的游客在全国各地移动，他们也可能不得不遵守各州的 COVID-19 规定。
 
-* * *
+澳大利亚旅游经营者一直在游说政府尽快让游客回来。南半球夏季已进入最后一个月。
 
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH..jpeg)
+代表澳洲旅游出口部门的最高行业机构澳大利亚旅游出口委员会表示，旅游业正在期待重建他们的市场。
+
+[援引链接](https://apnews.com/article/coronavirus-pandemic-health-travel-business-scott-morrison-46d5f0548f947ae289d9c709a5ba4d9d)
+
+撰稿/米拉娅
+
+审阅/邱杰斯
+
+上传/天赐良闻
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

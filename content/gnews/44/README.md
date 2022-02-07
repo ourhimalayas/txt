@@ -2,24 +2,54 @@
 ---
 
 
-## 立陶宛外长今访澳 坚称不会更名台湾代表处
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1968214/)
+## 喜马拉雅币一周分析与总结（1月31日-2月6日）
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1968380/)
 
-撰稿：东京樱花团/asket
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-617.png)[图片来源](https://newsline.news/gabrielius-landsbergis-minister-towards-authoritarian-regimes/)
-立陶宛外长蓝斯柏吉斯（Gabrielus Landsbergis）于2月6日至10日，将先后访问新加坡、澳大利亚，开拓亚洲及大洋洲市场。据自由时报2月6日引述消息报道说，立陶宛外长蓝斯柏吉斯（Gabrielus Landsbergis）重申不会屈服中共经济胁迫。
+作者：纽约香草山金融部 – ILOVE战神
 
-立陶宛外长蓝斯柏吉斯访澳前夕，接受《澳洲金融评论报》独家专访指出，立陶宛与澳大利亚此次交流议题将聚焦中共的胁迫和贸易制裁，立澳2国将就如何处理这种情况（被中国经济霸凌）以及学到了什么，又是如何从中变得更强大等议题交换意见，并互相帮助。
 
-据该报称，蓝斯柏吉斯强调，某些国家不应使用经济等胁迫方式，迫使另一个国家改变外交政策。但当前国际商定的规则和法规，正受到“强权国家”挑战，我们正在捍卫国家主权。
 
-对于外界盛传台湾驻立代表处可能因中共施压而更名一事，蓝斯柏吉斯再度驳斥，他重申，“无论如何，立陶宛都不打算更名。”“他们（指台湾）的正式名称不会改变。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-信息源：[立陶宛外長今訪澳-堅稱台灣代表處不更名](https://www.rfi.fr/tw/%E6%AD%90%E6%B4%B2/20220206-%E7%AB%8B%E9%99%B6%E5%AE%9B%E5%A4%96%E9%95%B7%E4%BB%8A%E8%A8%AA%E6%BE%B3-%E5%A0%85%E7%A8%B1%E5%8F%B0%E7%81%A3%E4%BB%A3%E8%A1%A8%E8%99%95%E4%B8%8D%E6%9B%B4%E5%90%8D)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+
+过去一周喜马拉雅币价格在51美元左右浮动，最高价格约53.8美元，平均日交易量约8万枚喜币。喜币上市以来总交易量约2720万枚 ，占今年总发行量的仅约2.72%。目前喜币交易在全球尚未完全开放，市场交易量较低，价格仍被严重低估。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide10-2.jpg)
+2月1日大年初一，喜支付APP Himalaya Pay正式上线。喜支付上线前后，全球股票市场与数字货币市场都处于大幅下跌区间，喜马拉雅币价格则持续大幅上升。Himalaya Pay支持点对点转账交易，手续费为零，交易立即到账，彻底颠覆了传统金融机构和政府对经济活动的垄断。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture-7.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Picture2-3.png)
+
+本周据郭文贵先生在大直播中透露，目前已经存在从中共国将人民币兑换为喜美元HDO的转账通道，并且立刻到账。喜支付未来也会推出多个币种的转账功能。郭先生表示，无中心化、无中介化是喜支付的核心价值。喜支付代表了新中国联邦人的信仰和追求，将帮助全人类解放生产力，实现财务的自由，并为新世界建立金融标准。喜支付将极大提升交易的安全性、经济性、便利性、隐私性，为用户开创全新的商业模式，信用体系和金融服务，并实现财富的保值和显著的投资收益。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Picture3-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/Picture4-2.png)
+参考链接：
+[喜交所 Himalaya Exchange](https://himalaya.exchange/himalaya-pay)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+
+总编：天灭中共
+编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
