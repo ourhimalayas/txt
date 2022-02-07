@@ -2,24 +2,55 @@
 ---
 
 
-## 立陶宛外长今访澳 坚称不会更名台湾代表处
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1968214/)
+## 冬奥前夕 京城疫情有加重迹象
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1968371/)
 
-撰稿：东京樱花团/asket
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-617.png)[图片来源](https://newsline.news/gabrielius-landsbergis-minister-towards-authoritarian-regimes/)
-立陶宛外长蓝斯柏吉斯（Gabrielus Landsbergis）于2月6日至10日，将先后访问新加坡、澳大利亚，开拓亚洲及大洋洲市场。据自由时报2月6日引述消息报道说，立陶宛外长蓝斯柏吉斯（Gabrielus Landsbergis）重申不会屈服中共经济胁迫。
+作者：纽约香草山农场 – Noemi
 
-立陶宛外长蓝斯柏吉斯访澳前夕，接受《澳洲金融评论报》独家专访指出，立陶宛与澳大利亚此次交流议题将聚焦中共的胁迫和贸易制裁，立澳2国将就如何处理这种情况（被中国经济霸凌）以及学到了什么，又是如何从中变得更强大等议题交换意见，并互相帮助。
 
-据该报称，蓝斯柏吉斯强调，某些国家不应使用经济等胁迫方式，迫使另一个国家改变外交政策。但当前国际商定的规则和法规，正受到“强权国家”挑战，我们正在捍卫国家主权。
 
-对于外界盛传台湾驻立代表处可能因中共施压而更名一事，蓝斯柏吉斯再度驳斥，他重申，“无论如何，立陶宛都不打算更名。”“他们（指台湾）的正式名称不会改变。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-信息源：[立陶宛外長今訪澳-堅稱台灣代表處不更名](https://www.rfi.fr/tw/%E6%AD%90%E6%B4%B2/20220206-%E7%AB%8B%E9%99%B6%E5%AE%9B%E5%A4%96%E9%95%B7%E4%BB%8A%E8%A8%AA%E6%BE%B3-%E5%A0%85%E7%A8%B1%E5%8F%B0%E7%81%A3%E4%BB%A3%E8%A1%A8%E8%99%95%E4%B8%8D%E6%9B%B4%E5%90%8D)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+
+2月4日，媒体传出两则与北京相关的疫情消息，一是与北京紧邻的河北省廊坊市固安县突因两例确诊病例封城，确诊病例疑为由京返乡人员；二是北京地坛医院一名应急隔离区的医生在日前确诊中共病毒阳性后，该医院的门诊工作全部暂停。
+
+在固安，城全域内所有小区、公共场所、高速路口已全部封闭，除正在进行的全员核酸检测外，所有街道空无一人。
+
+而地坛医院是北京市内一家主要负责接收中共病毒患者的传染病医院。在疫情发生后，该医院及其周边的店铺、酒店均已被中共当局完全封控。
+
+此前，郭文贵先生就已指出，疫情在中共国内已经失控，中共的医护人员状况更是岌岌可危。两则疫情信息似乎更加印证了郭先生这一爆料。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-2.jpg)
+参考信息：
+1. [冬奥开幕式在即，京南一县城突曝因疫情封城：2月4日上午7点30分，河北省廊坊市固安县因两例确诊病例封城，确诊病例疑为由京返乡人员。](https://www.gettr.com/post/pse7ef5cc5)
+2.[#固安疫情最新通报# #河北头条##廊坊头条# 河北固安今日7点30分对全区域进行管控，全员核酸，车辆不让进出固安县，高速口已经不允许车辆下高速，加油加油加油，很快就能战胜疫情](https://www.toutiao.com/w/a1723812693596174/?traffic_source=&amp;traffic_source=&amp;in_ogs=&amp;in_ogs=&amp;utm_source=&amp;utm_source=&amp;source=search_tab&amp;source=input&amp;utm_medium=wap_search&amp;utm_medium=wap_search&amp;original_source=&amp;original_source=&amp;in_tfs=&amp;in_tfs=&amp;channel=&amp;channel=)
+3. [固安县行政审批局召开疫情部署会议](https://3g.163.com/local/article/GVC62ELU04159CNM.html)
+4. [北京地坛医院医生染疫 所有门诊停诊](https://www.epochtimes.com/gb/22/2/4/n13554537.htm)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+
+总编：Irene木木
+编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

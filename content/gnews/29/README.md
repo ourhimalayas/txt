@@ -2,51 +2,21 @@
 ---
 
 
-## 冬奥会是习近平与巴赫的个人政治秀
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1968372/)
+## 雅典娜时报-第197期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1968467/)
 
-作者：日本方舟农场 – Andy5
+#### **《雅典娜时报》汇聚全球新闻时事**
 
+#### 编辑：精灵蓝
+排版：小蚂蚁614
+![圖片](https://media.discordapp.net/attachments/825592691433668612/940055590200291358/155_4.png?width=768&amp;height=1144)![圖片](https://media.discordapp.net/attachments/825592691433668612/940055590787481621/155_3.png?width=768&amp;height=1144)
+*发布：陶子*
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-2月3日，日本三大新闻媒体巨头密集发声，指斥北京冬奥会就是习近平和巴赫企图捞取个人政治资本的一场表演。
-
-首先，举办地的北京居民，因为要保证冬奥会的蓝天被设置了诸多限制，春节也不被允许燃放烟花爆竹，又因为疫情清零被迫无法回到故乡过年，中共奥运代表队还喊出了“跟随习近平奔向未来”的口号。这都说明冬奥会跟中国百姓无关。
-
-其次，作为国际奥委会主席的巴赫，实际上跟习拥有同样的野心，也想突破12年任期的限制，所以不顾疫情持续恶化，相继举行了东京夏季奥运会和北京冬季奥运会，希望以此作为自己的政治资本。 自今年1月以来的爆料革命大直播中，郭文贵先生反复强调，北京冬奥会，就是习近平等人的个人政治秀，跟中国老百姓没有任何关系。现在日本媒体的密集报道，更加印证了爆料革命这一观点。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-2.jpg)
-参考信息及视频链接：
-1. [20220201日媒揭露CCP冬奧會無新聞自由](https://www.gettr.com/post/psbbzz209f)
-2. [20220201日本FNN+0105七哥大直播](https://www.gettr.com/post/psehad08ea)
-3. [20220203日本TBS報導北京冬奧會就是為了巴赫和習近平而舉辦的！](https://www.gettr.com/post/pse20vc850)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-
-总编：Irene木木
-编辑：飞虹，文特
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

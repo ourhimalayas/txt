@@ -2,28 +2,51 @@
 ---
 
 
-## 以色列逐渐废除疫苗护照
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1968308/)
+## 土耳其总统埃尔多安感染中共病毒
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1968373/)
 
-撰稿：东京樱花团/立正道
+作者：纽约香草山 – 侠肝义胆
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/以色列逐渐废除疫苗护照.png)图片来源于本文视频截图
 
-随着中共病毒（新冠病毒Covid-19）感染人数的下降，以色列放宽规定，许多地方不再需要出示疫苗接种证明。
 
-在以色列，从7日起，在餐厅、电影院、健身房、酒店等场所，不再需要出示“绿色通行证”的疫苗接种证明。尽管一些室内集会活动场所和俱乐部仍然需要“绿色疫苗护照”，但将取消对户外聚会和商业设施人数的限制以及对餐厅餐桌间距的限制。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-卫生部解释说，感染高峰正在过去，即使接种过疫苗的人也会感染Omicron毒株，因此已经失去了监管的有效性。
 
-在以色列，上月底每天新增感染人数超过8.3万人，但最近已降至3.3万人左右。
 
-信息来源：
+2月5日，土耳其总统埃尔多安在其社交帐号中承认感染中共病毒。
 
-[イスラエル　レストランなどワクチン接種証明不要に](https://news.tv-asahi.co.jp/news_international/articles/000244027.html)
+埃尔多安表示，自己和妻子中共病毒检测呈阳性，并确认感染的是中共奥密克戎病毒，症状轻微，目前在家隔离，居家办公。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+乌克兰总统泽伦斯基第一时间向埃尔多安总统及夫人表示慰问，祝他们早日康复！
+
+据悉，埃尔多安2月3日刚刚对乌克兰进行了正式访问。土耳其政府正在试图化解俄罗斯和乌克兰危机。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-3.jpg)
+参考信息：
+[JUST IN – Turkey President Erdogan tests positive for Covid](https://twitter.com/TheInsiderPaper/status/1489943092274683904?t=x4QVPtXs9raUJEX)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,51 +2,17 @@
 ---
 
 
-## 土耳其总统埃尔多安感染中共病毒
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1968373/)
+## 甜蜜蜜运动使中共冬奥会成冬眠会
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1968488/)
 
-作者：纽约香草山 – 侠肝义胆
+文编：东京樱花团/樱花传媒
+视频：东京樱花团/中文小视频组
 
+2月2日，郭文贵先生在GTV大直播透露，新中国联邦的甜蜜蜜运动，与中共较量的第一回合是美国外交撤馆；第二回合是《甜蜜蜜》、《一帘幽梦》、《我爱你塞北的雪》三首灭共歌声的全球环绕；第三回合就是对着冬奥会去的！就是要把中共冬奥会变成冬眠会。
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-2月5日，土耳其总统埃尔多安在其社交帐号中承认感染中共病毒。
-
-埃尔多安表示，自己和妻子中共病毒检测呈阳性，并确认感染的是中共奥密克戎病毒，症状轻微，目前在家隔离，居家办公。
-
-乌克兰总统泽伦斯基第一时间向埃尔多安总统及夫人表示慰问，祝他们早日康复！
-
-据悉，埃尔多安2月3日刚刚对乌克兰进行了正式访问。土耳其政府正在试图化解俄罗斯和乌克兰危机。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-3.jpg)
-参考信息：
-[JUST IN – Turkey President Erdogan tests positive for Covid](https://twitter.com/TheInsiderPaper/status/1489943092274683904?t=x4QVPtXs9raUJEX)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+*编辑：东京樱花团/tdownc2p
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

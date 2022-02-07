@@ -2,24 +2,47 @@
 ---
 
 
-## 中共官媒杜撰统台故事 被台湾网民轻易识破
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1968639/)
+## 七哥65岁以后将以身证法,证明生死轮替不生不灭的法力
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1968741/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-626.png)[图片来源](https://www.sohu.com/a/521040475_120578424)
-中共统战手段花招尽出，继先前抖音洗脑歌曲《2035去台湾》后，官媒也跟进展开创作，宣称一名在福建工作的“台籍火车司机”，期盼能“亲自驾驶火车到台湾去”，文章一出随即被台湾网友发现破绽百出，引来吐槽。
+G-TV视频链接：[https://gtv.org/video/id=61ff9b70585ecc15d73df028](https://gtv.org/video/id=61ff9b70585ecc15d73df028)
 
-中共官媒《中国新闻网》2月6日下午刊登一则报导，以“在大陆开火车的台籍司机：盼驾驶火车到台湾”为题，内容称出生于1968年的何志刚，目前任职于中国铁路南昌局集团公司福州机务段，是一名火车司机，也是一名“台籍司机”，何志刚自称父亲出生于花莲县，并表示自己期盼“亲自驾驶火车到台湾去”。 先前名为《2035去台湾》的歌在网路上窜红，何志刚说：“这首歌于我有特别的意义”。
+**郭文贵先生：**我觉得我现在越来越有这种感觉，我真的是…..现在我觉得人活到就让人家伺候你的时候，我觉得真的不太好，我觉得这是一个；第二个，我觉得人吧，人类，这地球就那么大，咱们就是一粒沙中的沙，你说你这个沙子老赖在这不走，你老充鹅卵石、充钻石的你干嘛呀？你该走就走。
 
-何志刚宣称，生于花莲县的父亲，1944年到大陆生活工作，父亲常带他去漳州的海边，朝着花莲的方向瞭望， 1997年时台湾发生一场地震，让何志刚的父亲再度与花莲亲人失去联系。
+关键是人他不生不灭，你不要怕死，他不会死的，这有太多话我在这直播中不能讲。而且你放心，到65以后七哥一定会寻找一个，我到65的时候一定寻找一个（方式），让你们看到我要亲身证法，证明不生不灭的法，勇敢地面对这种生死轮替，生就是死，死就是生，生死轮替，我用生命证明给你们看。
 
-文章一出破绽百出，引来台湾网友吐槽，“漳州海边根本看不到花莲吧”、“出生和长大都在中国，装什么台籍”、“1944年你老爸还是日本人”、“1997年花莲有什么可以断通讯的地震？唬烂的报导”、“中国人连剧本都写的比台彩差XD可怜”。
+就不要（像）那些老杂毛不要脸的，天天赖在那活着。你看台湾那个连战都那个德行了，还在那赖着，天天吃药，还想搞台湾政治呢。你看台湾那些老政治老流氓从大陆去的那些国民党，那烂死了简直是，是吧？你看大陆那些老杂毛都活八九十岁，他也得死啊，他不就一万多天嘛，再多活一万多天嘛。
 
-消息来源：[中國官媒幻想文！福建台籍司機想開火車來台？網戳破「劇本超唬爛」](https://tw.news.yahoo.com/%E4%B8%AD%E5%9C%8B%E5%AE%98%E5%AA%92%E5%B9%BB%E6%83%B3%E6%96%87-%E7%A6%8F%E5%BB%BA%E5%8F%B0%E7%B1%8D%E5%8F%B8%E6%A9%9F%E6%83%B3%E9%96%8B%E7%81%AB%E8%BB%8A%E4%BE%86%E5%8F%B0-%E7%B6%B2%E6%88%B3%E7%A0%B4-%E5%8A%87%E6%9C%AC%E8%B6%85%E)
+七哥有更高维度的追求，而且我一定要以身证法，我觉得我生命最后的价值就是我要证明给人类看，你的修行、你的能力，最后你要在人类面前、在所有的宗教人面前，没有人敢证法的，我要以身证法，证明这个法力的存在，人生死轮替，不生不灭。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+字幕来源：[2022年1月27日 文贵大直播 全文字版](https://gnews.org/zh-hans/1924957/)
+
+编辑整理：Jacques；
+
+字幕文件制作：知津；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
