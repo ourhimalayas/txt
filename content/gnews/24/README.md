@@ -2,10 +2,10 @@
 ---
 
 
-## 疫苗接种对P53此抑制肿瘤主要基因的危害
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1971008/)
+## 北京冬奥委会闭幕式是大话题
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1971044/)
 
-台灣寶島農場
+台灣 寶島農場
 
  
 

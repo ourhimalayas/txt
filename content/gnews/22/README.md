@@ -2,34 +2,37 @@
 ---
 
 
-## 2.06大直播后记：灭共的三个锦囊都已打开
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1971016/)
+## 习近平冬奥会欢迎宴未见普京
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1971049/)
 
-整理：雅典娜速记组
-编辑：**Kelly**
+作者：日本方舟农场 – Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月5日，习近平和彭丽媛用中国老百姓的税金，为参加中共冬奥会的外国来宾举行欢迎会。中共并未公开参加欢迎会的嘉宾明档。从中共后来公布的视频资料中，看不到本次中共冬奥会最重磅来宾，俄罗斯总统普京的身影。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/12315456_4.png)图片来源：雅典娜设计组
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-2.jpeg)
 
+墙内自媒体爆出，普京早在2月4日跟习签署15个协议，并宛如被隔离一般的参加冬奥会开幕式后，于当晚11点火速了中共国。
 
-文真：七哥刚开始爆料革命的时候，讲到过三个锦囊，第一个锦囊，七哥打开了，说是民心向郭，习亡岐山（爻）。 后来七哥在直播里没有再提到过关于锦囊的事情了，所以玫瑰园战友就特别好奇，问另外二个锦囊，七哥这四五年来，有没有打开过？
+在2月4日的大直播中，郭先生爆料称，普京团队抵京后就有16人感染了中共病毒，其下榻的酒店内有3人死亡，这让普京对中共非常恼怒。而普京未在欢迎宴露面，也间接验证了这个消息。
 
-七哥：都已经打开了，第二个就是病毒，利用病毒。 我对病毒这个事情利用的很好， 病毒利用。 第三个就是制造货币，货币也都出来了，这三个锦囊都出来了。大家都看到了，谢谢咱们玫瑰园战友还记着。 但是，这些我在无意中都说过，但是大家都没说，就是大直播的魅力。
+参考链接：
+1.[https://www.gettr.com/post/pssbvk4709](https://www.gettr.com/post/pssbvk4709)
+2.[中俄签署一系列合作文件](http://politics.people.com.cn/n1/2022/0204/c1001-32345503.html)
+3.[https://gettr.com/post/psp8nmfc64](https://gettr.com/post/psp8nmfc64)
 
-刚才亨利说的那会儿，一回想我就是真的是浑身发抖，他的感受和我的感受，跟你们真的不一样，我们想一想过去，那种无知，我们自己就是那么无知，就是觉得这是人家的事，人家这个是抢来的，买的媳妇，真是无知。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-包括这个锦囊，这个是咱们的高人，特别是利用病毒这事，让我感触人世间一定要相信（上天），不要因为你的无知，局限了你对事情正确的判断，太深了，就这个锦囊妙计，利用病毒这一件事，我现在越想越恐怖。 第三个就是我们要制造货币，铸造货币这件事情对我的触动太深刻了，兄弟姐妹们，一步一步走过来，如果铸币那么容易，搞这个Hpay，想想谁不去搞？九指妖还想搞傻币呢，太难了，中间所有需要的元素，你就忽然发现老天爷在过去几十年都给你安排好了。第1，你需要大量的现金。第2，你需要钱买不来的人脉关系、专业的银行家、专业的金融家，你没有这种比上床还要亲密的兄弟关系是不可能（做到的），（能做到的）这样的没别人。否则，美国能找到太多这样的人才。 第3个就是你有国际关系，你没这国际关系，你什么也做不到，这些国家就把你给灭了。第4，你要有最好的时机。然后看，老天还帮不帮你，这些都发生了啊，有时间我可以好好跟大家说一说。
+总编：Jack Li文阳
+编辑：静言
+校正/发稿：谐趣园
 
-资料来源：郭先生GTV和盖特直播视频
-
-发布：星谕
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,40 +2,34 @@
 ---
 
 
-## 新中国联邦2022年的工作重点
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1970994/)
+## 2.06大直播后记：灭共的三个锦囊都已打开
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1971016/)
 
-作者：纽约香草山农场 – 文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月6日，郭文贵先生在大直播中强调，在2022年，新中国联邦建设的重点工作：
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-98.jpg)
-首先，不开展任何新项目，把现有项目完成好。过去两年，因爆料革命需要发展起来的项目，今年要做到影响无限大，避免项目多到烂，以及避免无限扩张而导致灾难。
+整理：雅典娜速记组
+编辑：**Kelly**
 
-第二，要让更多中共国内的人参与爆料革命。除了加大直播等宣传力度，还要让中共国内的军界、情报界、企业界、音乐界等人士，参与爆料革命，得到喜币、躺平币。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/12315456_4.png)图片来源：雅典娜设计组
 
-第三，做好G-EDU，中国人未来的希望是教育。会提供大量的币，吸引原新东方教育的中国老师加入GEDU，能够得到原来1.5倍工资。
 
-第四，继续以歌灭共，唱尽共产党的歌，让共产党无歌可唱。
+文真：七哥刚开始爆料革命的时候，讲到过三个锦囊，第一个锦囊，七哥打开了，说是民心向郭，习亡岐山（爻）。 后来七哥在直播里没有再提到过关于锦囊的事情了，所以玫瑰园战友就特别好奇，问另外二个锦囊，七哥这四五年来，有没有打开过？
 
-最后，郭先生特别强调，中共病毒疫苗灾难改变世界，政治经济大重启势不可挡。新中国联邦最重要的目的就是灭共，最重要的价值就是阻止在灭共过程中发生排华。
+七哥：都已经打开了，第二个就是病毒，利用病毒。 我对病毒这个事情利用的很好， 病毒利用。 第三个就是制造货币，货币也都出来了，这三个锦囊都出来了。大家都看到了，谢谢咱们玫瑰园战友还记着。 但是，这些我在无意中都说过，但是大家都没说，就是大直播的魅力。
 
-参考链接：
-1) . [2022年3重点（2月6日大直播）](https://gettr.com/post/pswfhk6911)
-2) . [文贵大直播要点（2022年2月6日）](https://gnews.org/zh-hans/1966866/)
+刚才亨利说的那会儿，一回想我就是真的是浑身发抖，他的感受和我的感受，跟你们真的不一样，我们想一想过去，那种无知，我们自己就是那么无知，就是觉得这是人家的事，人家这个是抢来的，买的媳妇，真是无知。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+包括这个锦囊，这个是咱们的高人，特别是利用病毒这事，让我感触人世间一定要相信（上天），不要因为你的无知，局限了你对事情正确的判断，太深了，就这个锦囊妙计，利用病毒这一件事，我现在越想越恐怖。 第三个就是我们要制造货币，铸造货币这件事情对我的触动太深刻了，兄弟姐妹们，一步一步走过来，如果铸币那么容易，搞这个Hpay，想想谁不去搞？九指妖还想搞傻币呢，太难了，中间所有需要的元素，你就忽然发现老天爷在过去几十年都给你安排好了。第1，你需要大量的现金。第2，你需要钱买不来的人脉关系、专业的银行家、专业的金融家，你没有这种比上床还要亲密的兄弟关系是不可能（做到的），（能做到的）这样的没别人。否则，美国能找到太多这样的人才。 第3个就是你有国际关系，你没这国际关系，你什么也做不到，这些国家就把你给灭了。第4，你要有最好的时机。然后看，老天还帮不帮你，这些都发生了啊，有时间我可以好好跟大家说一说。
 
-总编: 文真
-编辑：Ivy001
-校正/发稿：Fei797
+资料来源：郭先生GTV和盖特直播视频
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+发布：星谕
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

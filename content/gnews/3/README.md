@@ -2,32 +2,35 @@
 ---
 
 
-## 普京闪电离京 中俄战略合作虎头蛇尾
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1971218/)
+## 美国众议院通过《美国竞争法》
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1971258/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+作者：银河系农场—骄子
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生在2022年2月6日大直播中，详细讲解了普京只在北京短暂停留9小时的重要内幕。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3-11.jpg)
-第一，中共跟普京签署了价值近万亿美元的天然气管道协议，以换取普京在北京停留更长时间，并希望普京宣布，把人民币作为第二货币在俄罗斯流通。此事未果。
+2月4日华盛顿，美国众议院通过了一项针对中共的法案《美国竞争法》，具体内容包含：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-07-上午11.18.32.png)
+1. 该法案将确保美国在制造业、创新和经济实力方面处于领先地位，并能够胜过任何国家。
 
-第二，普京非常担心中共病毒，要求中共提供绝对安全的医护保障。结果到京后，普京团队16人染病，让普京极为恼火。
+2. 该法案包括了对中共国政府在新疆地区侵犯维吾尔人人权的制裁。追究中共对种族灭绝和使用奴隶劳工的责任，对被指控的中共新疆官员的新制裁，以及授权数百万美元的资金来反抗中共政府的言论审查和虚假信息。
 
-第三，中共承诺任何情况下俄罗斯停止使用人民币时，中方将按照黄金本位计算最后保底的价值。结果普京到京以后，中共毁约。
+3.指示总统确保该法案中，反中共的条款执行不会导致对亚裔的歧视与种族仇恨。
 
-此前，郭先生通过内部人士，让普京了解事情的真相，告诉普京共产党会如何找理由、耍手段戏弄他。最后逐一应验，中共对普京的承诺全部失信。
+4.正式谴责中共政府实施全面的国家安全法，破坏香港既定自治权的行为，并为符合条件的香港居民提供临时受保护身份和难民地位。加强并优化与台湾的伙伴关系。
 
-郭先生补充说，这次北京冬奥会失败的开幕式，西方民主国家对中共冬奥会的抵制，也是普京离京的一个重要原因。
+5.抵制中共北京冬奥会。
+
+去年参议院通过了《美国创新与竞争法》，众议院和参议院的谈判代表将谈判达成一项最终法案，让两院都能通过，并提交给乔·拜登总统签署成为法律。
 
 参考链接：
-1) . [2022年2月6日 文贵大直播：开幕式后普京愤然离去；中俄战略合作虎头蛇尾；贩卖人口中国妇女地位；反疫苗运动及美国经济](https://gtv.org/video/id=61ffc26b3621aa7415d64d51)
-2) . [普京闪电离京 冬奥会开幕式成了中共闭幕式](https://gnews.org/zh-hans/1966538/)
+1）[US House passes the China-focused America Competes Act](https://www.scmp.com/news/china/article/3165893/us-house-passes-china-focused-america-competes-act)
+2）[The House Passes the America COMPETES Act, Including Immigration Reforms to Help the U.S. Economy](https://immigrationimpact.com/2022/02/04/house-passes-america-competes-act-immigration-reform/#.YgFHIvXMJB1)
+3）[House passes sweeping China competition bill](https://thehill.com/homenews/house/592824-house-passes-sweeping-china-competition-bill?amp)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-总编: Jack Li文阳
+总编：Jack Li文阳
 编辑：Ivy001
-校正/发稿：Fei797
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

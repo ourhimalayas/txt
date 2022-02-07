@@ -2,24 +2,67 @@
 ---
 
 
-## 中日财经爆┃日本将立法应对中共国产品断供危机
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1970705/)
+## COVID-19病毒疫苗狂热者的黑色幽默
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1970887/)
 
-撰稿：东京樱花团/风翼
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-668.png)图片来源于网络
-据韩国媒体环球经济7日援引日经亚洲的文章报道，日本在2019年有23.3%的进口产品来自中共，而从美国和德国进口的产品比重分别统计为18.1%和8.5%。
+作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏）
 
-市场调查报告显示，日本进口中共国生产的电子产品的数量增加，但相对出口劳动密集型产品的数量却在减少。其原因是出口地区的重点已经转移到越南和印度尼西亚。从日本进口中共鞋量2009年的91%降低到2019年的66%，但随着人们对逐年增加电子产品的需求，担忧中共电子产品的供应链如果中断的话，将会严重影响国内经济。特别是，中共出口产品的任何收紧限制制度的出台都可能对日本造成严重打击。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-因此，日本政府正计划推出《经济安全保证推进法》里的改进法案，以加强供应链的稳定性。据了解，改正法案特别说明如相关公司引进重要的系统时，将有义务向主管部长提交一份“引进计划”，包括设备的概要、部件以及维护和管理的承包商，政府将审查该计划。原则上，审查期为30天，如不遵守将被“判处两年以下监禁或100万日元以下罚款”。如在提出改变或暂停计划的建议后，发出了命令但没有得到遵守，同样的处罚也适用。
+因果轮回，善恶有报，福祸相承，恶堕地狱，善升天堂，善以善待，恶以恶待，不是不报，时辰未到。众生从业而有果报，果报有三种：现世报、来世报、他世报！
 
-对于改进法案的目的，内阁办公室解释说，“如果中共的出口因供应链或运输中断而受到影响的话，日本无法立刻从其他国家进口产品，经济影响会非常大”。
+2月5日发生在美国加利福尼亚州著名喜剧演员Heather McDonald身上的事情，应当算是现世报。
 
-信息来源：[日本、中国産製品の輸入比重高まり｢供給網支障の危険性｣増加＝韓国報道](https://s.wowkorea.jp/news/read/334369/)
+2月5日，Heather McDonald正在亚利桑那州坦佩（Tempe, Arizona）一场座无虚席的演出中进行她的压轴演出。作为支持COVID-19病毒疫苗的狂热分子，McDonald正在她的第二段演出中批评或嘲笑那些拒绝注射COVID-19病毒疫苗的人。“我已经打了疫苗，两针，加强针…流感疫苗、纏腰丹疫苗（shingle shot），耶稣爱我，没有得过COVID-19”。就在这时，她突然晕倒，头部重重的摔到地板上。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/e73a64ac92d040b8b6d317ab4fbe9a88_md.jpg)
+
+所幸当时有一名急救人员和护士正好在观众席上，他们马上冲上去对她实施急救，才没有酿成更严重的后果。随后以McDonald癫痫症（seizure）发作呼叫了911，被救护车拉走。
+
+事后，Heather McDonald说，她头很痛，非常累，尽管已经接受了X光扫描和其它身体检查，但目前尚不清楚突然晕倒的具体原因。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-07_21-51-30.png)
+
+McDonald不是因炫耀自己打了COVID-19病毒疫苗而得到现世报第一个！
+
+1月3日，巴西Alterosa电视台Jornal das 7节目主持人Rafael Silva在电视直播中突然失去知觉，倒在地上，电台赶紧在Silva撞到地板上发出非常响亮的砰砰声之前切断了镜头。Silva随后被急救车送往附近的人道主义医院，他在救护车上又经历了五次心脏骤停。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/OGzHJgsJDe2r.mp4_20220207_220541.266.jpg)
+
+Silva在去年7月30日接种了第一针COVID-19病毒疫苗后在博客中写道：“我真的不知道如何解释我的感受。我哭了，我为有机会接种疫苗而欢呼雀跃。同时为超过55万没有机会接种疫苗的人感到难过。保重，继续戴口罩，疫苗万岁！”。去年8月28日，在接种第二针疫苗后，他在博客炫耀，“感谢上帝给他这个机会！”。去年12月28日，在接种了加强针后，他在博客中称，“第三针万岁！我为那些没有机会接种疫苗的人感到遗憾，疫苗拯救生命！”
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Rafael-Silva-Second2-768x742-1.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Rafael-Silva-booster.png)
+
+1月27日，新墨西哥州民主党参议员Ben Luján因头晕和疲劳，在圣达菲（Santa Fe）克里斯图斯圣文森特地区医院（Christus St. Vincent Regional Hospital）急救时被医生确诊为控制人行走、运动学习和视力的小脑中风（stroke）了。1月28日，Ben Luján被转移到新墨西哥大学医院，并在之后接受了颅内减压手术。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Ben-Lujan-cerebellum-768x692-1.png)
+
+2021年9月以来，Ben Luján曾两次推动互联网审查有关COVID-19病毒疫苗“误导信息”立法。去年自11月以来，他多次鼓励人们打加强针，他特别喜欢晒儿童被注射疫苗的照片。出事前几天，他仍在推广mRNA疫苗注射、隔离和检测。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Ben-Lujan-Vaccine2.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Ben-Lujan-censorship1.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Ben-Lujan-Jan-18.png)
+
+相信McDonald不是因炫耀自己打了COVID-19病毒疫苗而得到现世报第一个，肯定也不会是最后一个！
+
+尤其中共国那些强制人们注射中共病毒疫苗的官员，个个都该现世报！
+
+参考数据：
+
+[Comedian Collapses on Stage During Joke: “I’m vaxxed, double vaxxed, boosted, and Jesus loves me most”](https://healthimpactnews.com/2022/comedian-collapses-on-stage-during-joke-im-vaxxed-double-vaxxed-boosted-and-jesus-loves-me-most/)
+
+[HEATHER MCDONALD COLLAPSES ON STAGE … Hospitalized, Cause Unknown](https://www.tmz.com/2022/02/06/heather-mcdonald-comedian-collapses-hospitalized-show/)
+
+[Booster Blues: Brazilian reporter has heart attack on live TV, Olympian develops myocarditis, Arizona man dead six days after booster](https://thecovidblog.com/2022/01/10/booster-blues-brazilian-reporter-has-heart-attack-on-live-tv-olympian-develops-myocarditis-arizona-man-dead-six-days-after-booster/)
+
+[Democrat U.S. Senator Ben Luján has stroke after promoting masks, “vaccines” for a year, hands Republicans Senate majority while he recovers](https://thecovidblog.com/2022/02/04/democrat-u-s-senator-ben-lujan-has-stroke-after-promoting-masks-vaccines-for-a-year-hands-republicans-senate-majority-while-he-recovers/)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

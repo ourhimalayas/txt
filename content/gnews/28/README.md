@@ -2,35 +2,37 @@
 ---
 
 
-## 有声|国际学者呼吁中共配合疫情起源调查
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1970973/)
+## 沙利文就俄罗斯可能入侵乌克兰发出警告
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1971010/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在北京冬奥会开幕前夕，20名来自欧洲、美国、澳洲、新西兰、印度和日本的国际科学研究人员，于2月4日发表公开信，要求中共不要再阻挠针对中共病毒起源的独立调查。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/10-5.png)
-在此封命名为“允许国际全面调查疫情起源才真正彰显奥运价值”的公开信中，学者们严词谴责中共政府下达“禁言令”，阻扰科学家在未获政府允许的情况下发言，或撰写任何有关疫情起源的记录，同时，学者们对中共发出警告，若不能揭露病毒真正的起源，全球将持续陷在不必要或更大的风险之中。
+翻译：文舞两道
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-25.png)图片来源：[https://www3.nhk.or.jp/](https://www3.nhk.or.jp/)
+**摘要：**
 
-同时，他们还呼吁，世界卫生组织应建立“安全吹哨人条款”，以便让科学家和专家更安全地分享关于病毒起源的信息。
+国家安全顾问沙利文就乌克兰局势表示，俄罗斯总统普京即使在北京奥运会期间也有可能进行军事入侵，同时警告中国将为此付出代价。
 
-文字版原文：[国际学者呼吁中共配合疫情起源调查](https://gnews.org/zh-hans/1967025/)
+日本NHK新闻2022年2月7日报道，美国国家安全顾问沙利文就乌克兰局势表示，俄罗斯总统普京即使在北京奥运会期间也有可能进行军事入侵，同时寻求外交途径的解决方案。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+美国国家安全顾问沙利文周三（6日）在白宫接受美国广播公司电视台（ABC）采访时说，“普京总统可能已经明确下达了对乌克兰发动攻击的命令，普京总统已做好随时向乌克兰派遣军队的准备”。沙利文还说，“我们既要做好奥运会结束前俄罗斯采取军事行动制造突发事件的准备，也要为奥运会后可能出现的军事行动做好准备”。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+另一方面，沙利文表示，“与此同时，我们也明确发出寻求外交途径的解决方案”，并强调了以外交途径解决方案为首选目标的想法。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+此外，中共国国家主席习近平在北京奥运会开幕式期间会见了普京总统，并表态支持俄罗斯在乌克兰局势上的立场。对此，沙利文警告说：“如果俄罗斯采取军事行动，如果中共表示支持，那么全世界都会看的清清楚楚，中共将为此付出代价”。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+资料来源：[https://www3.nhk.or.jp/news/html/20220207/k10013470611000.html](https://www3.nhk.or.jp/news/html/20220207/k10013470611000.html)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+编辑：LILY
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+发布：面包飞上天
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+20220207
+
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3-2.jpg)
+
+
+
 
  
 
