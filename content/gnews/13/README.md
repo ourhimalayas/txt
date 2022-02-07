@@ -2,21 +2,31 @@
 ---
 
 
-## 为何选塞北的雪
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1969847/)
+## 警察扣押燃料并威胁逮捕自由车队及支持者
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1969892/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+**翻译：Lulumi**
 
-*发布：陶子*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-651.png)警方警告停在附近的自由车队支持者，要求他们离开。记者贝丝·拜斯奇在联邦公园采访抗议者
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+渥太华市周日宣布进入紧急状态，以应对市中心持续的抗议活动，不久之后，警方宣布加强对抗议者的执法力度，并打击他们的燃料供应。
 
+Rebel News的林肯·杰伊分享的一位公民记者拍摄的视频记录了警察扣押燃料的情况。
+
+该市在一份声明中说，此举“反映正在进行的示威活动对居民的安全和安保构成的严重危险和威胁，并强调需要其他管辖区和各级政府的支持”。
+
+紧急状态是在该市一些居民的愤怒情绪高涨的情况下发生的，他们受到大型半挂车和随行卡车车队的影响，某些人如安大略省长道格·福特将完全和平的抗议活动称为“占领”。
+
+福特周日表示，他的政府正在支持渥太华市，并告诉媒体，该市没有要求省或联邦政府提供军事援助。
+
+**素材链接：**[thepostmillennial.com] [BREAKING: Ottawa Police move against Freedom Convoy protesters to seize fuel supplies](Ottawa%20Police%20move%20against%20Freedom%20Convoy%20protesters%20to%20seize%20fuel%20supplies)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH..jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

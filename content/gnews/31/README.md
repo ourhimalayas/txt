@@ -2,75 +2,51 @@
 ---
 
 
-## ″加拿大总理贾斯汀·特鲁多实际上已经逃离了国会山&#8221;
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1969295/)
+## 美国航母驶入南海，台湾报道称中国进一步入侵
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1969410/)
 
-[https://gtv.org/video/id=6200567e585ecc15d73e4b49](https://gtv.org/video/id=6200567e585ecc15d73e4b49)
+**翻译：【日本东京方舟农场】乾坤一掷**
 
-David Frei (Commercial Litigator)
-大卫·弗雷（商业诉讼律师）
+台北1月24日，（路透社）- 美国国防部周一表示，两个美国航空母舰编队已进入有争议的南中国海进行训练，因为台湾报告称中共空军入侵了水路航道的上方，其中包括一个令人生畏的新型电子战飞机。
 
-Justin Trudeau the Prime Minister of Canada has literally fled Parliament Hill
-加拿大总理贾斯汀·特鲁多确切地逃离了国会山
+南中国海和自治台湾是中共最敏感的两个领土问题，两个地区都是美中关系频繁紧张的地区。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片-1-2.jpeg)（圖片來源：reuters.com）
+台北1月24日，（路透社）- 美国国防部周一表示，两个美国航空母舰编队已进入有争议的南中国海进行训练，因为台湾报告称中共空军入侵了水路航道的上方，其中包括一个令人生畏的新型电子战飞机。
 
-I mean, gone
-我的意思是，溜走了
+南中国海和自治台湾是中共最敏感的两个领土问题，两个地区都是美中关系频繁紧张的地区。
 
-I think he’s in British Columbia somewhere tweeting
-我想他是在不列颠哥伦比亚省的某个地方正在发推文
+美国海军舰艇经常在南海中共占领的岛屿附近航行，以挑战中共的主权主张，并穿越台湾海峡，激怒北京。
 
-you know from the comfort of his bunker
-你知道，从他舒适的掩体中
+美国国防部表示，由其旗舰卡尔文森号和亚伯拉罕林肯号指挥的两个美国海军航母打击群已于周日开始在南中国海开展行动。
 
-What a bunch of racists xenophobes trans
-一群变性别仇外种族主义者
+在一份声明中提到，航母编队将进行包括反潜作战、空中作战和海上拦截作战在内的演习，以加强战备。
 
-And I’m not joking, transphobes are in this protest
-而且我不是在开玩笑，变性别反抗者也在这场抗议中
+国防部补充说，培训将根据国际法在国际水域进行，但未提供细节。
 
-I mean, I walked in, I met indigenous peoples black people
-我是说，我走进人群，遇到了土著黑人
+这样的行动使我们能够提高我们的作战能力，让我们的盟友和合作伙伴放心，并展示我们作为海军确保地区稳定和反击恶意影响的决心。
 
-a trucker from Kuwait, who said that he fled Kuwait
-一个从科威特逃离的卡车司机
+周日，美国海军报告说，这两个航母编队一直在与日本海军持续在菲律宾海进行演习，该地区包括台湾以东的水域。
 
-and the tyrannical regime of Kuwait to come here
-逃离科威特的专制政权来到这里
+美国行动的消息恰逢台湾报道中共空军最近有39架飞机大规模侵入其防空识别区-在靠近台湾控制的南海北部普拉塔斯群岛的地区。
 
-and he lived in freedom for 30 years
-而且他在自由中生活了30年
+周一台湾报告说，根据台湾国防部提供的地图，该地区还有 13 架中共飞机，其中一架是 Y-8 反潜飞机，飞越将台湾与菲律宾隔开并连接太平洋和南中国海的巴士海峡。
 
-until what he sees as becoming the same tyranny that he fled
-直到他认为现政府成为他逃离的同样的暴政
+国防部补充说，两架中共 J-16D 参与了这次任务，尽管它们靠近中国海岸，但一种新型电子攻击型 J-16 战斗机旨在瞄准台湾依赖的防空防御系统。
 
-But people across the world are noticing this
-但全世界的人都注意到了这一点
+中共尚未发表评论，但此前曾表示，此类任务旨在保护其主权，并防止外部干涉其对民主管理的台湾主权主张。
 
-So, Trudeau and his state funded, state bailed out media can hide it
-所以，特鲁多和他的国家资助的、国家救助的媒体可以隐藏它
+安全消息人士此前曾告诉路透社，中国飞往台湾防区的航班也可能是对外国军事活动的回应，尤其是在台湾附近的美军，该美军警告北京正在监视该区域，且北京认为有能力处理台湾的任何突发事件。
 
-and demonize the good Canadians who are participating in this as much as they want
-并尽可能多地妖魔化参与其中的好的加拿大人
+台湾称中共反复在附近开展“灰色地带”军事活动，其目的既是为了让台湾军队反复争夺而消耗殆尽，也是为了考验台湾的反应。
 
-* * *
+台湾也声称拥有对南海重要的航道，有气田和丰富的渔场，而越南、马来西亚、文莱和菲律宾也声称拥有部分领土。
 
-Date:02/05/2022
-原视频标题: “Justin Trudeau the Prime Minister of Canada has literally fled Parliament Hill – tweeting from the comfort of his bunker, a bunch of racist xenophobic trans tweets – against people who fled tyranny.”
-“加拿大总理贾斯汀·特鲁多实际上已经逃离了国会山——在他舒适的掩体中发布推文，一堆种族主义仇外的变性别推文——反对逃离暴政的人。”
-原视频日期：2022/02/05
-原视频链接: [**https://gettr.com/post/pshlud5ee6**](https://gettr.com/post/pshlud5ee6)
-任务编号：KE385（3677）
-视频时间段 : 0:00-0:46
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+原文链接：
+[https://www.reuters.com/world/asia-pacific/two-us-carriers-enter-schina-sea-counter-malign-influence-2022-01-24/](https://www.reuters.com/world/asia-pacific/two-us-carriers-enter-schina-sea-counter-malign-influence-2022-01-24/)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+素材采编：妙喜小油鍋
+校对：妙喜小油鍋
+发布：文曦
 
  
 

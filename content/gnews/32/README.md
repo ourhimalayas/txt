@@ -2,33 +2,25 @@
 ---
 
 
-## 凯文•麦卡锡发誓要调查COVID的起源
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1969220/)
+## 澳洲政府要求大学离开与中共有关的合作研究
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1969368/)
 
-**翻译/采编: MSGZ**
+**撰稿：日本东京方舟农场 Kevin wang**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/65.jpg)图片来源：ajc
+2月5日， 澳洲「八大研究型大学联会」向媒体透露，澳洲政府已明确要求各大学离开与中共有关的合作研究计划，并改与「五眼联盟」国家加强合作。
 
+中央社2月5日报道， 「八大研究型大学联会」执行长汤普森（Vicki Thompson）透露，澳洲政府已针对澳洲各大学与中共的合作关系展开调查，她认为澳洲各大学若与「五眼联盟」国家合作进行敏感领域的研究，将会更容易获得澳洲政府安全部门的同意。虽然部分澳洲大学不一定想要「离开」目前的合作伙伴，但各大学已收到政府的明确指示，要与「五眼+联盟」（Five Eyes-plus；即美、英、加、澳、纽等以及与它们有紧密防卫合作关系的国家）加强研究合作。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片-1-1.jpeg)（图片来自网络）
+报道称，据澳洲外交暨贸易部（DFAT）网站指出，澳洲联邦政府可依据国会在2020年12月所通过「澳洲对外关系（州和领地协议）条例2020」（Australia’s Foreign Relations （State and Territory Arrangements） Act 2020），否决澳洲各大学与外国官方机构所达成的任何合作协议。
 
-众议院少数党领袖凯文- (Kevin McCarthy)表示，如果共和党在即将举行的中期选举后重新获得众议院多数席位，共和党人将对中国采取更强硬的立场并进行更多审查。
+此外，澳洲战略政策研究所（Australian Strategic Policy Institute，ASPI）执行董事詹宁斯（Peter Jennings）认为，随着AUKUS和英国自由贸易协议的出现，让澳洲各大学有机会更正过去与中共过度紧密的错误。
 
-麦卡锡表示，将成立一个两党委员会，以查清始于中国的COVID的起源。他和其他四名共和党人签署了一封信，要求对2019年底在武汉爆发的病毒进行进一步调查。
+参考链接：
+1. [https://www.cna.com.tw/news/aopl/202202050041.aspx](https://www.cna.com.tw/news/aopl/202202050041.aspx)
 
-今年1月，共和党人向总统乔·拜登提交了一封联名信，要求在调查2019年从中国武汉的一个实验室出现的COVID-19的合作中提高透明度和增加活动。此外，美国国会议员们还表示，联邦政府和军方内部的官员未能就有关该大流行病的信息作出回应。
-
-这封信由众议院议员迈克尔·麦考尔（R-Texas）签署。迈克尔·麦考尔（R-Texas）、弗兰克-卢卡斯（R-Okla）和凯西-麦克莫里斯-罗杰斯（R-Wash.）在信中对军事研究和政府情报部门缺乏公共知识表示关切。
-
-众议院外交事务委员会的共和党人在去年8月公布了他们的调查报告，该报告挖掘了COVID-19的可能来源，国会议员迈克尔·麦考尔指责中国共产党（CCP）创造了“人类历史上最大的欺骗”。
-
-参考新闻链接：[https://www.dailymail.co.uk/news/article-10483009/Kevin-McCarthy-outlines-Republicans-plan-control-China-regain-majority-House.html](https://www.dailymail.co.uk/news/article-10483009/Kevin-McCarthy-outlines-Republicans-plan-control-China-regain-majority-House.html)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+素材采编：Kevin wang
+编辑： 青城道姑
+发布： 文曦
 
  
 

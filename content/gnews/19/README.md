@@ -2,22 +2,41 @@
 ---
 
 
-## 樱花头条┃篮球明星坎特再开砲 北京冬奥网络收视少上届43％
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1969711/)
+## 关于辉瑞针对5岁以下婴幼儿的疫苗：您需要知道的事实
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1969844/)
 
-撰稿：东京樱花团/樱花传媒
+评论：***在儿童药物实验失败的情况下，辉瑞为了利润仍然推进儿童疫苗项目，这是谋杀行为。***
 
-2月7日，篮球明星坎特再度于脸书开砲，指称2022北京冬奥的开幕式仅有16Ｍ（1,600万）人观看，并且全时段直播的观众人数都很少。相较于上一次2018年2月的平昌冬奥有28.3M（2,830万）的观看人数，北京冬奥低了43％。
+据《America’s Frontline Doctors》2022年2月1日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3669-1.png)图片来自原文
+尽管临床试验失败，制药巨头仍推销幼儿疫苗。
 
-坎特也直接怒呛北京称，“这就是你们把田径比赛变成替邪恶帝国作政治宣传的结果”（This is what you get for turning athletics into propaganda for an EVIL EMPIRE.）。
+人们普遍预计辉瑞公司最早将在今天向FDA申请其 COVID-19疫苗在婴幼儿中的紧急使用授权。辉瑞与其生产 COVID 疫苗的德国合作伙伴BioNTech一起，希望从本月晚些时候在美国开始为全球6个月大的婴儿注射疫苗。
 
-他持续在贴文中表示“人们要我专注在篮球上、不要搞政治，但我从未搞政治，政治和人权存在著差别”。
+辉瑞和 FDA 正在积极推进婴幼儿疫苗注射，尽管其对5岁以下儿童的药物试验失败了。
 
-信息来源：[https://gettr.com/post/pt0egv2a4a](https://gettr.com/post/pt0egv2a4a)
+辉瑞和BioNTech在12月份报告称：“两剂儿科疫苗在 2 岁、3 岁和 4 岁儿童中未能引发与青少年和老年人相同的免疫反应。”该公司当时也确实声称：“在6个月至2岁的儿童中实现了充分的免疫反应。”
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+由于对5岁以下儿童进行两次注射方案的试验结果令人失望，辉瑞立即开始对这些儿童进行第三次注射，并修改其研究数据，以便在第二次注射后八周为每个参与的儿童提供第三次注射。
+
+辉瑞公司 (PFE) 拥有超过6亿5岁以下儿童预计接种疫苗，如果其在该年龄段的多剂量使用请求获得批准，它将大大扩大其COVID-19疫苗的市场份额。
+
+乐施会是一个与贫困和不公正作斗争的全球组织，它解释道：“……对辉瑞/BioNTech和Moderna生产的mRNA型疫苗的生产技术分析得知，这些疫苗的开发得益于83亿美元的公共资金，而这些疫苗的每剂成本仅为1.20美元。”
+
+原文有删减
+
+原文连接：[**https://americasfrontlinedoctors.org/news/post/pfizer-vaccine-for-infants-and-children-under-five-5-facts-you-need-to-know/**](https://americasfrontlinedoctors.org/news/post/pfizer-vaccine-for-infants-and-children-under-five-5-facts-you-need-to-know/)
+
+翻译：洛杉矶盘古农场- 轰炸机
+校对：洛杉矶盘古农场 – Mike Li
+评论：洛杉矶盘古农场 – 轰炸机
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
