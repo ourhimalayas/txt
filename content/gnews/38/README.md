@@ -2,27 +2,37 @@
 ---
 
 
-## 有声|NFSC新闻、G|TV新闻访谈简报|2022年2月5日早
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1966918/)
+## 特鲁多指使军队制止卡车事件的言论令世界震惊
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1966920/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/孔子学.jpg)
+编译：Cran
 
-文字版原文：[NFSC新闻、G|TV新闻访谈简报|2022年2月5日早](https://gnews.org/zh-hans/1961310/)
+责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/02/16441843321.png)Image source: [https://candicebergen.ca/](https://candicebergen.ca/)  CBCnews.ca
+“非常不幸，特鲁多所使用的有关‘军队介入’的词出自一位世界领导人之口，大大出乎公众的意料”。—格雷格利，哈特利
 
-音频处理：Fei797
-发稿：Fei797
+在2月4日的Newsmax TV 节目中，主持人格兰特.斯廷菲尔德(Grant Stinchfield)播放了两段分别由加拿大总理特鲁多(Justin Trudeau)，和新上任的保守党过渡领袖甘蒂斯，伯根(Candice Bergen)的讲话视频。并请前美军审讯官和行为举止分析专家，格雷格利，哈特利(Gregory Hartley) 对此分别进行了分析
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+特鲁多说“就目前这种状况，在部署军队参与之前还需要非常的谨慎。现在这种行动还不太可能。但是就目前情况来看还没有这个要求；这还不是要打出的牌”。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+哈特利认为视频中的特鲁多看上去表情丰富。无论他是在读稿子还是在回答问题，他眨眼的频率显示出紧张情绪。在谈到用军队来对抗加拿大人民时，他眨眼的频率加速。他的眉毛上扬似乎在要求一种确认，但又不确定听众如何理解他的意思。 非常不幸，他使用了一些很不幸的词比如“**现在**” （“**现在**还不是军队介入的时候”） 你不会预料到这个词出自一位世界领导人之口。
+
+特鲁多说“我过去参加和支持过各种抗议活动和集会别是黑命贵。因为我认同他们的担忧和目标。”
+
+主持人认为黑命贵是一个造成了极大伤害和达20亿美元损失的组织。
+
+哈特利认为他的眨眼加速眉毛上扬是不确定是否被理解。然后他的身体开始左右摇摆， 这被形容为“被锁住的大象”。他显示出正在承受压力并释放紧张情绪。他的眼神向外凝视然后切断了眼神交流。
+
+主持人介绍加拿大新任过渡保守党领袖, 甘蒂斯.伯根。他说他被她的讲话迷住了。
+
+伯根说“ 我当然感到外面加拿大人民的一种抵触情绪。他们是热爱自由和国家的人民…… 我要求他（特鲁多）现在向外面的爱国爱自由的加拿大人道歉”。
+
+哈特利认为她的发言是完美的。她表现出真实的自己。她在表达时用自己的手指指向她的目标。她露出自己的牙齿表现出愤怒。她的下巴朝上，眼球上杨表达防卫。她的语调和声调表达出了语意。在结尾时她的身体不侧重于左面（自由党的位置）。她的肢体动作和坚挺的身型表示出愤，她在情绪激昂的传达着信息。
+
+主持人：我更看好由她来取代特鲁多。
+
+[Source](https://www.youtube.com/watch?v=eJJ_lPE-S8I&amp;list=PLxPYQOuSz4P_76HDP-SjUuQzhO3w9OrwN&amp;index=63)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
