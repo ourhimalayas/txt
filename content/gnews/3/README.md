@@ -2,25 +2,44 @@
 ---
 
 
-## 我看到我自己的时候我我更加警醒我是有使命的
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1969168/)
+## 共产党恨不得向蜂拥提出撤馆要求的将近50个国家喊爹
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1969225/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+G-TV视频链接：[https://gtv.org/video/id=62008a2f585ecc15d73e5e47](https://gtv.org/video/id=62008a2f585ecc15d73e5e47)
 
-我看过多遍我跟你们说过，后来我拿他擦去。递给了信心，老师，递给我们老师擦屁股纸去了。因为那时候发了好多呀，都在那，那什么大有作为呀，是不是啊，那个邓小平个子矮呀，拿着鸡鸡当他奶呀，那是在骂邓小平，你看我们当时看到骂邓小平，最后邓小平上台，最后李先念聂荣臻杨得志汪东兴是吧，夸夸夸起来。
+**郭文贵先生：**世界的各大使馆现在已经超过最起码将近50个国家跟中共讲数了，这就是它的力量，“对不起啊，我也要撤啦！” 共产党就恨不能喊人家“爹”，这就是路大脑袋、九指妖这号人，就是一遇到强者，像Selin（塞林）这样的就亲爹啦。
 
-然后从1977的直接到1978到11大。然后打倒。林彪4人帮反党集团。然后汪东兴起来，哇塞，这个是很大。好不好？11大，今天我在看，那个时候郭文贵诞生，就是晚了几年，在早几年绝对就没有共产党了，绝对没了。我非常自信啊。我生下来我认为特别我看到我的照片，我现在看自己照片，我真的是我一看就现在就在我手机里做封面啊。我每天看着我就就鼻子酸，你想流泪，因为我很久没看到我8岁的照片了，我一看我吧，就想流泪啊。我是拿着它这个专业就在我的手机上当封面，但是我看到我自己的时候我我更加警醒我是有使命的，所以说你回答所以的问题人的到今天这个梦的来源绝对和你在做梦之前你穿啥衣服，你白天你见了啥干啥事儿，我不相信，白天你吃了猪食，晚上你做着的人梦。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/我看到我自己的时候我我更加警醒我是有使命的.001.jpeg)
-2022年1月7日文贵大直播
+真正的中国共产党在外国人面前，只要是外国人、只要皮肤跟咱们长不一样儿，它都认为比咱重要。私下里外交部给人家那个不要脸、拿钱交易、许诺，那就卑鄙至极！我可以告诉没有任何一个中国人你可以有理由相信，中国外交部在世界上有尊严、有尊重，从来没有！这50个国家这么干是真的超出了我的想象了。
 
-*发布：tianzhihuan*
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+世界上一共才有多少个国家？当年希特勒1935年的运动会和苏联，才49个国家参与所谓最盛大的、最完美的运动会，现在要50个国家要撤离。
+
+字幕来源：[2022年1月27日 文贵大直播 全文字版](https://gnews.org/zh-hans/1924957/)
+
+编辑整理：Jacques；
+
+字幕文件制作：大好河山；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

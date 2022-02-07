@@ -2,26 +2,106 @@
 ---
 
 
-## 中共认俄爹的本质和今天冬奥会的荒唐结果
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1968979/)
+## 郭先生提出的甜蜜蜜运动一定是世界级的，一场超过一场文化大革命的运动
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1969047/)
 
-#### 整理：雅典娜速记组
-编辑：开智则立
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8-45～8-50～2.png)
-刚才亨利说，共产党这么买俄爹的事儿。我告诉大家，第一，共产主义的亲爹就是俄罗斯来的。现在俄罗斯的共产党虽然没有实权，但它还是世界上最大的共产主义大本营。共产主义就是邪恶的独裁者，不受法律约束的，以为人民服务为名义的奴隶组织。大家记得国际歌吗？起来！不愿做奴隶的人们，那个歌一唱，哇塞，唱歌的人认为自己都不是奴隶，自己都是奴隶主。结果告诉你，唱歌的都是奴隶，俄罗斯就是奴隶主的创造者。中共国骨子里边儿，对白人恨，但是人家西方的白人真不跟你玩儿，没几 个跟它玩儿的，它只能选择有点儿像白人的俄罗斯。而且俄罗斯又吃它这一套，愿意勾兑，又是共产主义的来源。然后它拿着这个东西忽悠中国人，咱在世界不孤独。然后呢，特别是俄罗斯有这个武器的优越性，它就来了，如果俄罗斯人穿的吃的不是今天这个样子，像白人的生活方式和所谓的有托尔斯泰这样的大咖，要不是有《莫斯科郊外的晚上》等这些红歌和共产主义恩格斯列宁那个长相大胡子，共产党才不跟它玩儿。
+[https://gtv.org/video/id=62005605585ecc15d73e4b1e](https://gtv.org/video/id=62005605585ecc15d73e4b1e)
 
-共产党，就是找一个托儿，名正言顺，让中国人觉得这个人种比咱强，这个朋友交的比咱棒。中国人交朋友一定交有钱有权的，谁爱交穷人。中国人骨子里是崇洋媚外，欺善怕恶的。所以这一系列的文化、信仰、宗教、历史原因，就让共产党把俄爹摆来摆去，找了那么多爹，就这个爹最合适，而且这个爹虐它千遍不厌倦！它享受在其中。
+而且我告诉大家
+Además, les digo a todos
 
-那么共产党经济上无能力，组织上无能力加上内部的仇恨，就导致今天你看到冬奥会荒唐的结果。这些事情发生中国老百姓你不知道？你真的不知道？你觉得那3000多人的代表到北京开会，他们吃得就很好？没人尿他们碗里边？我告诉你哪都会有！
+这个甜蜜蜜运动
+Este movimiento dulce
 
-*发布：开智则立*
+就像所谓的茉莉花运动一样
+Así como el llamado La Revolución Tunecina
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+你会看到很多知识分子、老师、律师
+Verás a muchos intelectuales, profesores, abogados
+
+军人、音乐家、医生、很多人参加
+Militares, músicos, médicos, muchas personas asistirán
+
+现在我告诉你们
+Ahora les digo a ustedes
+
+这个运动为什么我今天敢跟你们这么说呢
+Por qué me atrevo a decirles de esta forma sobre este movimiento
+
+咱给老杂毛咱都玩儿明的, 咱不玩儿暗的
+Nosotros juguemos a lo brillante con los viejos pendejos, no juguemos a lo oscuro
+
+我就会让你看到冬奥会
+Dejaré que veas en los Juegos Olímpicos de Invierno
+
+现在你也停不下来了
+Ahora no podrás detenerte
+
+我就让你看到, 郭文贵和爆料革命
+Voy a dejarte ver Guo Wengui y su Movimiento de Denunciantes
+
+新中国联邦的甜蜜蜜运动就在你二环内发起
+El Movimiento Dulce del Nuevo Estado Federal de China se lanzará en la segunda carretera de circunvalación
+
+我现在就告诉你了
+Ahora mismo te lo estoy diciendo
+
+而且我告诉大家
+Y también les digo a todos
+
+如果发生, (但是)有1%的可能发生不了
+Si ocurre, (aunque) haya el 1% que no sucediera
+
+如果发生会告诉大家, Eglise你记住我今天说的话
+Si llega a suceder les diré a todos, Eglise, recuerda lo que dije hoy
+
+Longwood, 飞飞, 橙道, 你们做见证人
+Longwood, Feifei, Chengdao, ustedes serán los testigos
+
+是世界级的
+Es de clase mundial
+
+绝不亚于一场文化大革命这么大的力量
+Nada menos que una fuerza tan grande como la Revolución Cultural
+
+我不是给你们开玩笑
+No les estoy bromeando
+
+到那时候
+Hasta ese momento
+
+习近平他的中国梦就成为了他的中国噩梦了
+El sueño chino de Xi Jinping se convertirá en su pesadilla china
+
+他一定是”我再也不想见到你”
+Él seguramente dirá “no te quiero ver más”
+
+“啊, 我不想见到你”
+“ah, no quiero verte más”
+
+他绝对不想见到我, 因为我就是他的噩梦
+Él seguramente no me querrá ver más porque yo soy su pesadilla
+
+日期：02/04/2022
+原视频标题：郭先生提出的甜蜜蜜运动一定是世界级的，一场超过一场文化大革命的运动
+El dulce movimiento iniciado por el Sr. Guo debe ser de clase mundial, superando un movimiento de la Revolución Cultural
+
+* * *
+
+原视频日期：01/30/2022
+原视频网址：[**https://gettr.com/post/prct94f80f**](https://gettr.com/post/prct94f80f)
+任务编号：KC442（3642）
+视频时间段：0:00-01:37
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-Jambo
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/7/2022 8:09 AM (UTC)`
+
+2/6/2022 Miles Guo: The Winter Olympics is dedicated to Xi Jinping only! Everyone in the CCP hates Xi for holding the Winter Olympics and the athletes colluding with the CCP. The CCP lacks both the financial resources and capabilities to successfully host the Winter Olympics. The West started to investigate the corruption in the International Olympics Committee caused by the CCP.<br/><br/>2/6/2022 文贵直播: 冬奥会是习太阳一个人的！党内都恨习办冬奥会以及和中共同流合污的运动员；中共在财力和能力上都无法保证冬奥会成功召开；西方已开始调查国际奥委会跟中共的腐败<br/>
+![img](https://media.gettr.com/group50/getter/2022/02/07/08/f73596f6-3d04-74b6-606f-451f0ee92d61/out.jpg)
+
+---
+
 `@miles 2/7/2022 5:04 AM (UTC)`
 
 2/6/2022 Miles Guo: The CCP got a slap in the face by claiming that more than 100 countries would participate in the opening of the Winter Olympics, while in fact less than five leaders of powerful countries made it. The opening ceremony of the Winter Olympics has become the closing ceremony of the end of the CCP. Putin's girlfriend brought her own rations when visiting Communist China and has never had the food offered by the CCP because it contains chemicals.<br/><br/>2/6/2022 文贵直播：中共被打脸，号称百余国参加的冬奥会开幕却只有不到5个有实力国家的元首出席；冬奥会开幕式已成为中共结束的闭幕式；普京女友访华自带口粮，从不碰中共化学食品<br/>
@@ -148,13 +155,6 @@ This is the BIG ONE I previewed on @WarRoom a little earlier regarding the Covid
 
 2/4/2022 Miles Guo: Why is Putin staying at Waldorf Astoria Beijing? Who are the only two powerful figures attending the opening ceremony of the Winter Olympics? Four or five bodyguards of Putin have contracted the CCP virus, with a total of 16 persons in his team being infected. In addition, the CCP’s sniper leader died a sudden death at the Pangu Plaza. All these things sound extremely unusual.<br/><br/>2/4/2022 文贵直播：普京为何住在华尔道夫酒店？出席冬奥会开幕的两位大佬是谁？普京有4、5个保镖染上了病毒，其团队共16人染毒，加之中共的狙击手队长在盘古暴毙，这些事儿都非同寻常啊<br/>
 ![img](https://media.gettr.com/group17/getter/2022/02/04/23/330f2228-9d55-782b-ee35-dd078c707486/out.jpg)
-
----
-
-`@miles 2/4/2022 11:13 PM (UTC)`
-
-2/4/2022 Miles Guo: Why did the CCP disabled the comment section of a YouTube channel  where the opening ceremony of the Winter Olympics was aired live? The first person who died in the Winter Olympics was the sniper leader who collapsed near Pangu Plaza. Things like this will happen again and again. This is the will of Heaven!<br/><br/>2/4/2022 文贵直播：中共为何要关闭”冬眠会“开幕式油管直播的评论？”冬眠会“第一个死的人是在盘古旁边倒下的狙击手的头儿！这事将接二连三地发生，是天意！<br/>
-![img](https://media.gettr.com/group35/getter/2022/02/04/23/c7b8234e-cf02-8c20-62ff-c5793e5abd24/out.jpg)
 
 ---
 
