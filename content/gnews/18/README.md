@@ -2,36 +2,28 @@
 ---
 
 
-## 有声|G系列产品将成为全球最佳金融避险港湾
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1967992/)
+## 中共和俄罗斯的高超音速武器威胁美国的预警系统
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1968189/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生在2月4日的大直播中谈到美国社会的三大基础:
+#### 撰稿：彩虹       
 
-1. 1.5美金的面包和4美金的油价保持稳定；
-2. 律师和会计师的生活成本必须得到维持；
-3. 大企业的稳定，卡车指数等。
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-616.png)图片来源：军事
+2月6号，《新闻极限》报道，五角大楼的一位前工作人员在《金融时报》（Financial Times）发表社论说，美国必须赶上中共国和俄罗斯在高超音速武器方面的进展，否则会被这两个超级大国超越。
 
+威廉·施耐德（William Schneider）是哈德逊研究所（Hudson Institute）的高级研究员，曾担任过副国务卿和五角大楼的国防科学委员会主席。他认为，那些对中共国和俄罗斯的（高超音速导弹）测试不屑一顾的人是“忽略了其重要性”。
 
-这三个因素影响了整个美国社会的稳定与动乱。当下，虽然有些因素正在蠢蠢欲动，但大多数情况属于个体突发情况，最坏的时刻还未到来。
+他说：“机动高超音速飞行器不仅仅是将核弹头运送到目标的另一种手段，相反，它们是旨在击败美国预警能力的‘系统体系’的一个重要组成部分。”
 
-郭先生警示道，当信用卡和银行烂账危机同时出现之时，便是美国经济便崩塌之日，郭先生表示5月份之后这些危机会依次显现。与此同时，喜系列、G系列会有一系列的战略部署，如GVision和Gettr Pay的上线。
+施耐德警告：“中共和俄罗斯的机动高超音速导弹能力，使得这些敌对大国能够拥有击败美国预警系统的综合能力。在这种情况下，美国将对来袭的外国导弹攻击无法预警，应对能力受到极大限制。”
 
-文字版原文：[G系列产品将成为全球最佳金融避险港湾](https://gnews.org/zh-hans/1966037/)
+据CNN报道，周四，在一次来自二十多家美国最大的国防公司首席执行官们的高级别会议上，国防部长劳埃德·奥斯汀（Lloyd Austin）鼓励他们加速高超音速武器的开发。
 
-音频处理/发稿：Daxia
+根据报道，去年夏天，俄罗斯进行了试验高超音速的“海燕”核动力和核武装巡航导弹，该导弹具有无限的射程。而中国则测试了两枚高超音速弹道导弹，其中一枚在机动轨道飞行时释放了第二个高超音速物体。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+**新闻来源**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
-
+[Former Pentagon Official: Chinese, Russian Hypersonic Weapons Threaten US Early Warning System](https://www.newsmax.com/politics/china-russia-u-s-hypersonic-weapons/2022/02/06/id/1055724/)
 
  
 

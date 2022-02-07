@@ -2,33 +2,46 @@
 ---
 
 
-## 中日财经爆| 美国将中共国进口光伏设备关税延长4年
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1968066/)
+## 没有新中国联邦就没有美国授权撤离驻中共使馆这一说
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1968281/)
 
-整理编辑：东京樱花团/peterwong
+G-TV视频链接：[https://gtv.org/video/id=62007a68585ecc15d73e5817](https://gtv.org/video/id=62007a68585ecc15d73e5817)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/美国将中共国进口光伏设备关税延长4年.png)[图片来源](https://www.crushpixel.com/stock-photo/engineer-working-on-checking-maintenance-2787861.html)
+**郭文贵先生：**你看一个授权撤离，这么多战友：哎呀，七哥，会不会美国玩咱呢？会不会是谁玩咱呢？会不会谁又玩？——哎呀我的妈呀，你头都大。你太拿你爆料革命当个事儿了吧？人家美国政府撤个骗局，玩你爆料革命去，你算老几？人家乌干达那个字上都不会玩你，人家啊没事撑得了？阴谋论、虚假论、造假，天下就中国人要想走向文明，我就今天在这五年了，我特别第一个想说：那不知道有多遥远！这么大的事儿来了，就没有几个人愉悦起来。
 
-美国总统拜登周五（2月4日）将川普时期主要针对中共国的进口光伏设备关税延长四年，但作为对安装商的一项重大让步，拜登也放宽了条款，将在美国大型项目中占据主导地位的面板技术排除在征税范围之外。
+一个国家的政府敢撒谎，是吧？就赶上外交部说：中国是最安全的地方，你走什么走？这话能让死人、能把人气死了，你知道吗？是吧？然后中国人也不相信这是好事儿，然后说美国政府说叫“授权彻离”，只是病毒。你看看连个辨别能力天下没有一个——十几亿中国人。
 
-根据白宫声明，这项延长四年的关税豁免了双面太阳能板(bifacial panel)，这种电池板可以两面发电，颇受大型开发商青睐。在川普开始征收关税时，这种技术刚刚起步，但现已用于多数美国大型太阳能设施。
+你觉得人类上，看看历代，大清朝，战友们，大清朝就有美国驻中国大使馆。人家美国大使馆，一个200多年的国家看到了一个中国从大清朝的堕落，国民党、共产党到今天，没关过馆，连六四都没关过馆，啥叫授权撤离知道吗？理由是病毒。他可以说理由，他可以说理由是拜登长了个脚疮呢，他什么理由都可以说出来。但就没有人相信，有中国人和新中国联邦，我们做到了！
 
-拜登政府还为来自邻国加拿大和墨西哥的免税供应打开了通道，这两个国家目前占美国的进口量不到1%。
+没有我们，没有“授权撤离”这一说。但不是因为我们才授权撤离，我们是其中的重要一份子——就像做饭一样，没有盐，这饭没法吃。但是你不能说，因为我是吃了盐才吃上饭。就这么简单。
 
-前总统川普在2018年使用1974年贸易法案第201条规定的授权，对光伏产品进口产品实施了为期四年的关税措施，一开始税率为30%，在最后一年下降到15%，希望藉此在美国太阳能制造业创造就业机会。
+字幕来源：[2022年1月27日 文贵大直播 全文字版](https://gnews.org/zh-hans/1924957/)
 
-这些措施原定2022年2月6日到期，但一些美国太阳能制造商去年寻求延期，认为他们的产品仍然无法与海外制造的商品竞争。这些商品主要来自中共国，在美国市场占据主导地位。他们举出一些不利因素，包括公司在关税生效前的进口囤积、中共病毒（新冠)疫情的经济影响以及成本上涨等。
+编辑整理：Jacques；
 
-消息来源:
+字幕文件制作：大好河山；
 
-[拜登政府将特朗普时期光伏进口关税延长四年 但条款有所放宽](https://cn.reuters.com/article/usa-solar-tariffs-0204-fri-idCNKBS2KC00J?il=0)
+视频制作及上传：Cindy；
 
-[中日财经爆|美国考虑延长来自中共国太阳能进口关税](https://gnews.org/zh-hans/1922536/)
+G-News发布：小满；
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

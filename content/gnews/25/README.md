@@ -2,60 +2,51 @@
 ---
 
 
-## 强国奇闻(2)
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1967846/)
+## 单伟健在杨贝贝虚假采访背后的金融运作
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/1968053/)
 
-作者：香草山设计部 — 仁岩
+加拿大温哥华扬帆农场：薇文viven
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/a-3-edited.jpg)图片来源：weibo
 
 
+前段时间HBO Vice 散播种族歧视和恶意诋毁爆料革命和郭文贵先生的视频，背后有中共巨资借用“腾讯音乐娱乐”(TME)操作平台，利用海外金融投资公司“太盟集团”(PAG)  和“德太资本”(TPG)，通过中共特务单伟建和王岐山家族的孙强两人处心积虑运作的结果。
+
+单伟建的太盟在2017年持股9.8%成为 TME的第二大股东；2018年 腾讯音乐在美国上市，太盟靠出售美国存托凭证募资$5,700 万美元，并继续持股 9% ；
+
+华纳公司旗下的HBO2013年与腾讯签约入驻中国，2018年因主持人嘲讽习近平为“维尼熊”后，一直被中共封杀，失去每年近50%增长的华纳损失惨重。
+
+单伟建出手使用金融手段控制华纳： TME投资 “华纳音乐”的股权2%、双方成立合资公司、允许华纳音乐向TME的经营者授权，华纳公司和华纳音乐的股价双双开始飙升。
+
+孙强运作的德太资本2017年就已投资 HBOVice 达$4.5亿，2019年，有中金资本的平台撑腰，又注资$4500万美元，助HBOVice上市，但至今未成功。
+
+中共蓄谋已久，花费高昂代价，吃准华纳和HBO逐利的贪婪本性，用单伟建和孙强两路夹击，犁庭扫穴，使之成为中共作恶的工具和替罪羊。中共因惧怕新中国联邦而导致的又一愚蠢行径，不断为全球灭共逆增上缘。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/f.jpg)图片来源：GNEWS
 
 
+参考资料：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/墙国奇闻.png)
+[Tencent Music Entertainment: China’s Largest Online Music Entertainment Platform Operator](https://seekingalpha.com/article/4412340-tencent-music-entertainment-online-music-entertainment-platform-operator)
 
-**1.上海造中共病毒疫苗来了，年产量可达2亿剂**
+[HBO Website Is Down in China After John Oliver Skewers Xi Jinping on Last Week Tonight](https://time.com/5321945/hbo-china-john-oliver-xi-jinping/)
 
-“北京时间1月27日，上海产中共病毒疫苗“克威莎”正式量产上市，该疫苗由陈薇院士团队与上药康希诺生物共同研发，是国内获准使用的唯一一款单针中共病毒疫苗。上药康希诺宝山工作是上海第一个新冠疫苗生产基地，年产可达2亿剂。”
+[Private Capital-backed Tencent Music Raises US$1.1 Billion in Initial Public Offering (Asia)](https://www.globalprivatecapital.org/newsroom/private-capital-backed-tencent-music-raises-us1-1-billion-in-initial-public-offering-asia/)
 
-新闻链接: [https://m.weibo.cn/6066193547/4730356769229504](https://m.weibo.cn/6066193547/4730356769229504)
+[SEC FORM F-1 Tencent Music Entertainment Group 2018.10](https://www.sec.gov/Archives/edgar/data/1744676/000119312518290581/d624633df1.htm)
 
-点评:中共的疫苗超级工厂出来了，而且是陈薇少将提供的。军事级的病毒技术啊，大家要知道这都是绝对杀手级的，这个病毒疫苗那效果我估计杠杠滴，打进去保证当时犯病，当时送你上西天。我相信绝对能达到这个效果。而且是年产2亿只啊，大家要知道这就意味着冠状病毒绝对消失不了。这么大规模所谓的中共病毒疫苗的生产厂，如果他很快把病毒结束了，他这年产2亿只的疫苗打给谁啊。所以国内的战友们同胞们千万要记得，从此开始我估计中国人每3个月就要打一针疫苗，得把一年2亿只疫苗消耗掉才行，否则上海超级疫苗工厂的产品一般注射量是消耗不掉的。这就意味着注射疫苗可能成为以后中国人的常态，甚至每个月都要来一次疫苗注射以应对中共所谓的变异病毒的影响。太可怕了！太可怕了！
+[Warner Music Partners With Tencent on Joint Venture Record Label in China](https://www.hollywoodreporter.com/news/music-news/warner-music-partners-with-tencent-on-joint-venture-record-label-in-china-4154621/)
 
-**2.中俄签署合作文件　**
+[腾讯音乐娱乐集团(TME)公司深度报告](http://pdf.dfcfw.com/pdf/H3_AP201901281289167588_1.pdf)
 
-“2月4日，俄罗斯总统普京访华并出席北京冬奥会开幕式，国家主席习近平同普京举行会晤。访问期间，双方有关部门和企业签署了一系列合作文件，包括：《中华人民共和国政府与俄罗斯联邦政府反垄断执法和竞争政策领域的合作协定》、《中国卫星导航系统委员会（中华人民共和国）与俄罗斯国家航天集团（俄罗斯联邦）关于北斗和格洛纳斯全球卫星导航系统时间互操作的合作协议》、《中国石油天然气集团有限公司与俄罗斯天然气工业股份公司远东天然气购销协议》、《中国石油天然气集团有限公司与俄罗斯石油股份公司低碳发展领域合作谅解备忘录》、《信息化和数字化领域合作协议》等。”
+[TPG与中金资本成立 “中国协同效应”平台](https://www.financialnews.com.cn/zq/pevc/201901/t20190110_152759.html)
 
-新闻链接: [https://m.weibo.cn/1649173367/4733287550948569](https://m.weibo.cn/1649173367/4733287550948569)
-
-点评:出卖老百姓的全部，只为习太阳自己的臆想，看看最后这包子的下场是怎样个惨不忍睹！
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-8.jpg)
-
-编辑/校对/发稿：小鹿
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/e-edited.jpg)图片来源：sjmrw
 
 
+* * *
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+编辑发稿：硫酸羟氯喹64
 
  
 
