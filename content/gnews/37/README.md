@@ -2,40 +2,59 @@
 ---
 
 
-## 加拿大阿省省长将于下周宣布疫苗护照结束日期
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1967027/)
+## 单伟建口中的PAG
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1967281/)
 
-作者：加拿大温哥华扬帆农场 – Spirit
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-国外媒体2月4 日报道，加拿大阿尔伯塔省省长肯尼表示，将在下周宣布结束该省中共病毒疫苗护照的日期。他还并表示，只要医院的压力继续下降，就会在本月底前结束几乎所有的中共病毒限制。
+撰稿： Grace
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-06-at-2.41.34-PM.jpeg)图片来源：Goldman Sachs
+在郭先生的直播中，我们越来越多地听到郭先生提及单伟建-王歧山的一个白手套-太平联盟（PAG）的CEO。今天，我们一起听听单伟建自己是怎么描述PAG的，看看太平联盟究竟是怎样的一个公司。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8-6.png)
+**拥有足够的现金**
 
-据悉，因政府对抗中共病毒政策，1月份，加拿大劳动力市场减少约20万个工作岗位。一周来，肯尼省长受到了来自各方的压力，民众普遍认为疫苗护照侵犯了个人权利，必须立即被取消。
+2020年10月1日，单伟建在参加一个高盛的采访节目- “Insight from Great Investor”-中提到**PAG****是一个****400****亿美元**的公司， PAG的业务分为**房地产投资**、**期权回报**，其中包括**私人债务**和**公共市场战略**，然后是**私募股权**。**他还强调了自己****几乎把所有的注意力都集中在私募股权收购上。**
 
-肯尼省长发表推文表示，民众需要继续自由、快乐地生活。
+**当主持人**艾莉森·马斯（Alison Mass-高盛投资银行部的主席）**问他在**大流行病的早期，2020年1月在中共国是**如何**抓住机会时。单伟建回答说：“我们立即进入资本保全模式。。。而这样做的唯一方法是拥有足够的现金。”
 
-参考链接：
+滑稽的是，单伟建没有说明他是如何以及怎么能够在国内“拥有足够的现金”，而且他的这些大量的现金是谁给的。
 
-- [Premier Jason Kenney to announce next week the date Alberta will end its COVID-19 vaccine passport](https://www.theglobeandmail.com/canada/article-kenney-to-announce-next-week-the-date-alberta-will-end-its-covid-19/)
-- [https://twitter.com/jkenney/status/1489635789763866624](https://twitter.com/jkenney/status/1489635789763866624)
-- [https://twitter.com/jkenney/status/1489691362794491904](https://twitter.com/jkenney/status/1489691362794491904)
-- [Canada snaps 7-month run of job gains after Omicron saps growth](https://www.bnnbloomberg.ca/canada-lost-200-100-jobs-in-january-as-omicron-hit-economy-1.1718348)
+**投资的公司几乎都是低负债**
 
+单伟建还说：“幸运的是，**我们所投资的公司几乎都是低负债的，只有很少的债务或没有债务。债务非常少或根本没有债务**。 因此，我们能够削减成本，保存现金，并设法度过危机。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
+同样滑稽的是，他又没解析他所说的“低负债”中的“低”具体是指一个怎样百分比的负债率。他没能说出具体的负债数字，更没能说出这些被投资的公司的名称，很明显，他所说的“低”的可信度是很低的。
 
-总编：Jack Li 文阳
-编辑：飞虹
-校正/发稿：海阔天空1
+另一方面，从刘彦平和郭先生的对话，以及郭先生平常的爆料中，很多人大概地都了解到了普遍的中共国内企业的负债数目都不是小数目，没有债务的企业在中共的体制下基本不可能得以生存。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**不会受到贸易流中断、技术战等的影响**
+
+采访中，单伟建还表示，**PAG**专注于亚洲，只关注所投资的国家的国内和私人消费，特别是在中共国。**PAG**投资的国家包括澳大利亚、印度、日本、韩国、东南亚。
+
+接着，艾莉森·马斯再次问：“如果中美之间的紧张局势加剧，这是否会给PAG作为一个主要的本地私募股权投资者带来竞争优势？”
+
+单伟建直言， PAG“专注于国内消费或满足国内消费的企业”，因此，PAG“不会受到贸易流中断、技术战等的影响”。
+
+虽然单伟建再次地没解析他为什么会有这样的观点，但是，从郭先生的直播中，我们得知大疫情期间，生意最好的地方是医院，墓地，最好卖的商品是药，花圈和骨灰盒，而这些东西确实是不容易受到“受到贸易流中断、技术战等的影响”。
+
+**企业文化**
+
+另外，在该视频中，单伟建还提到他鼓励员工去“了解一切”，不知道这是否包括他会鼓励和帮助员工去了解王健之死的真相？以及鼓励员工去探讨他是怎么作为中共文革后第一批出国留学人员，接受中共的授命，秘密执行各项渗透任务包括千人计划？
+
+**投资合伙人****David Bonderman**
+
+在谈到对刚开始做投资的人有什么建议的时候，单伟建答道：“我很幸运，因为我能够和**大卫****·****邦德曼（****David Bonderman****）**一起工作，他是我非常尊敬的人，他非常有经验，非常聪明，而且他做了很多伟大的交易。”
+
+大卫·邦德曼是TPG资本的联合创始人和主席。据报道，单伟建大约在2000年左右加入TPG资本，担任合伙人长达12年。而接手PAG诉郭文贵先生的官司的Cahill律师事务所参与TPG资本的多个百亿收购的法律事务的期间，也正是单伟建在TPG任职的时间段，随后单伟建到PAG太盟担任集团主席兼行政总裁。
+
+##### 2020年10月1日，单伟建直言他和大卫·邦德曼一起工作，而太平联盟的案子是从2017年4月18日开始。不知道这信息是否会很容易地让读者在太平联盟案子背后看到大卫·邦德曼的身影呢？
+
+#####  
+
+参考链接： [Weijian Shan, Group Chairman and CEO of PAG](https://www.goldmansachs.com/insights/talks-at-gs/weijian-shan-2021.html)
+
+[7·24系列——单伟建、TPG资本与Cahill律师所](https://gnews.org/zh-hans/1878068/)
+
+[揭秘中共间谍单伟健的前世今生](https://gnews.org/zh-hans/1966610/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

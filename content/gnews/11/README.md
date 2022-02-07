@@ -2,33 +2,29 @@
 ---
 
 
-## 草根小哥激动的无法用言语来形容了（下）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1967827/)
+## 有声|三项物价指标直指美国经济崩塌节点
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1967969/)
 
-整理：雅典娜速记组
-编辑：皮特
-![](https://assets.gnews.org/wp-content/uploads/2022/02/草根小哥激动的无法用语言表示（下）_01.jpg)
-直播时间：2022.01.26
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月4日，郭文贵先生在大直播节目中透露，今年的三月份和五月份将是美国经济开始和加剧崩塌的两个主要节点，而汽油、面包和天然气等三项物价的变化则可以直接揭示出这一经济发展态势。
 
-还有咱们的这个甜蜜蜜行动啊，这些一定要正常举行啊！
+郭先生解释说，美国汽油、面包的价格不超过4美元，天然气价格不超过历史均价的20%，是维系普通美国民众生活稳定的三个重要因素。而这三项物价指标，是美国政治灾难具体发生的参照物。
 
-有一点就是说这个经过爆料革命这几年，我相信这个每位战友都拥有的一个常识，那就是维护政治主体（公平正义合法），不是任何产权资本家政治家的这个义务。
+文字版原文：[三项物价指标直指美国经济崩塌节点](https://gnews.org/zh-hans/1966034/)
 
-这次全世界配合七哥这次正义的这个行动，我相信七哥一定付出了太多太多的这个代价吧！
+音频处理/发稿：Daxia
 
-政治是交易的艺术，我想不到有任何一个国家任何一个组织能够做到让全世界第一大国美国与这个世界第一大人口第二大经济体的这个中国脱钩，我不相信有任何国家，对吧？
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-但是关键是郭先生一个人能够做到这件事，就是真是实在是太伟大了！
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
-我这个激动无法用言语来形容了！谢谢。
-
-发布：*皮特*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

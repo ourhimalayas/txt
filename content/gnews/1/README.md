@@ -2,29 +2,34 @@
 ---
 
 
-## 有声|三项物价指标直指美国经济崩塌节点
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1967969/)
+## 北京冬奥奥运团队开始对隔离酒店条件吐槽
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1968080/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月4日，郭文贵先生在大直播节目中透露，今年的三月份和五月份将是美国经济开始和加剧崩塌的两个主要节点，而汽油、面包和天然气等三项物价的变化则可以直接揭示出这一经济发展态势。
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-95.jpg)
+图片来源：网路图片
 
-郭先生解释说，美国汽油、面包的价格不超过4美元，天然气价格不超过历史均价的20%，是维系普通美国民众生活稳定的三个重要因素。而这三项物价指标，是美国政治灾难具体发生的参照物。
+据美联社北京2月6日报道，一些不幸在北京奥运会上被检测出中共病毒（冠状病毒）阳性的奥运运动员认为他们的隔离条件使糟糕的情况变得更糟，食物不足，无法食用的饭菜，没有训练设备。
 
-文字版原文：[三项物价指标直指美国经济崩塌节点](https://gnews.org/zh-hans/1966034/)
+俄罗斯冬季两项运动员瓦莱里娅·瓦斯涅佐娃（Valeria Vasnetsova）在Instagram上从北京的一个所谓的隔离酒店发帖说，“我的胃很痛，脸色很苍白，眼睛周围有巨大的黑眼圈，我希望这一切都能结束。我每天都在哭，实在太累了”。
 
-音频处理/发稿：Daxia
+她的问题不是病毒的任何症状，而是食物。瓦斯涅佐娃周四发布了一张她所说的 “已经吃了五天的早餐、午餐和晚餐 ”的照片，托盘上的食物包括普通意大利面、橙汁、骨头上的焦肉、一些土豆，没有蔬菜。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+她说，她主要靠几块意大利面生存，因为“不可能 ”吃其他东西，“但今天我吃了他们提供的所有脂肪，而不是肉，因为我非常饿。”她补充说，她的体重下降了很多并且骨头已经显现出来了。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+隔离酒店越来越成为此次奥运运动员及其团队的批评对象，他们正在游说组织者进行改进。隔离缺乏透明度，只有一些病毒呈阳性的运动员被迫进入其团队无法进入的隔离酒店，而处于类似情况的队友则被允许在奥运村内进行隔离。
 
+对检测出阳性的运动员的规定是，没有症状的人要到专门的酒店进行隔离。任何有症状的中共病毒患者将被送往医院。在这两种情况下，他们将不能参加比赛，直到被允许出院。
+
+各国代表队已经开始公开批评。
+
+在三届北欧综合运动会金牌得主埃里克·弗伦泽尔检测出阳性后，德国代表团团长德克·希梅尔普芬尼格（Dirk Schimmelpfennig）对 “不合理 ”的生活条件进行了抨击。他在FAZ报纸报道的评论中说，德国希望有更大、更卫生的房间，以及更正规的食物供应，以便最终被释放的运动员仍然适合参加比赛。
+
+比利时俯式雪橇运动员金·梅勒曼斯被从隔离酒店带回了运动员村的隔离区，她的主要怨言是缺乏信息。她被装进一辆救护车，在她以为自己会被释放的那一天从一个隔离设施运到另一个隔离设施。
+
+瓦斯涅佐娃在隔离区的时间发现运动员们得到的食物更差，并用一张为她同样隔离的队医提供的食物图片强调了这一点。她不明白，为什么对运动员有这种态度？
+
+新闻来源：[Olympic teams raise concerns over quarantine hotels](https://apnews.com/article/winter-olympics-quarantine-hotels-e2d2ffc60d9800cf1951cc3eaed323cb)
 
  
 

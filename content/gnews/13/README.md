@@ -2,14 +2,11 @@
 ---
 
 
-## 2022年2月7日《樱花简报》：日本新增中共病毒确诊首超10万，再创新高
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1967819/)
+## 2/6/2022 文贵直播：普京为何不跟中共签把人民币作为法币的协议就回去了呢？
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1967899/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2._7-scaled.jpg)
+秘密翻译组-北美组
 
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

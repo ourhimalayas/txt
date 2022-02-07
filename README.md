@@ -15,119 +15,119 @@
 
 ---
 
-### [有声|三项物价指标直指美国经济崩塌节点](/content/gnews/1/README.md)
+### [北京冬奥奥运团队开始对隔离酒店条件吐槽](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [拜登放弃对伊朗制裁](/content/gnews/2/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中共的邪恶是自上而下自下而上的系统犯罪! 新华社主管谈“拐卖妇女”遭封杀](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [部分感染中共病毒的韩国人将可能无法参与总统选举投票](/content/gnews/4/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [八孩女智障还是政府智障? 强奸犯的“英雄故事”被官方作为正能量来宣传](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [日本拟实现每天完成100万次的接种目标](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [华尔街日报母公司疑似被中共黑客攻击 数据被盗](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有声|中共要求记者提前8小时集合](/content/gnews/8/README.md)
  ` MOSREC`
 
-### [澳洲政府明确指示大学：远离中共并与英美加强合作](/content/gnews/2/README.md)
+### [郭文贵先生2022年2月6日盖特视频（2分54秒）全文字版](/content/gnews/9/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有声|G系列产品将成为全球最佳金融避险港湾](/content/gnews/10/README.md)
+ ` MOSREC`
+
+### [有声|三项物价指标直指美国经济崩塌节点](/content/gnews/11/README.md)
+ ` MOSREC`
+
+### [澳洲政府明确指示大学：远离中共并与英美加强合作](/content/gnews/12/README.md)
  ` 走进澳洲`
 
-### [2/6/2022 文贵直播：普京为何不跟中共签把人民币作为法币的协议就回去了呢？](/content/gnews/3/README.md)
+### [2/6/2022 文贵直播：普京为何不跟中共签把人民币作为法币的协议就回去了呢？](/content/gnews/13/README.md)
  ` 秘密翻译组-北美组`
 
-### [冬奥会忙于平息检疫隔离投诉 朱易被网暴](/content/gnews/4/README.md)
+### [冬奥会忙于平息检疫隔离投诉 朱易被网暴](/content/gnews/14/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共国无法补偿俄罗斯被制裁所遭受的损失](/content/gnews/5/README.md)
+### [中共国无法补偿俄罗斯被制裁所遭受的损失](/content/gnews/15/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【粤语配音】2022年2月6日：普京为何闪电离开冬奥会](/content/gnews/6/README.md)
+### [【粤语配音】2022年2月6日：普京为何闪电离开冬奥会](/content/gnews/16/README.md)
  ` MOS香港部`
 
-### [强国奇闻(2)](/content/gnews/7/README.md)
+### [强国奇闻(2)](/content/gnews/17/README.md)
  ` 纽约香草山MOS03`
 
-### [谈国内情况（二）](/content/gnews/8/README.md)
+### [谈国内情况（二）](/content/gnews/18/README.md)
  ` 雅典娜GNotes`
 
-### [谈国内情况（一）](/content/gnews/9/README.md)
+### [谈国内情况（一）](/content/gnews/19/README.md)
  ` 雅典娜GNotes`
 
-### [2022年2月7日《樱花快报》：美军接种中共病毒疫苗后疾病发生率急剧上升](/content/gnews/10/README.md)
+### [2022年2月7日《樱花快报》：美军接种中共病毒疫苗后疾病发生率急剧上升](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [草根小哥激动的无法用言语来形容了（下）](/content/gnews/11/README.md)
+### [草根小哥激动的无法用言语来形容了（下）](/content/gnews/21/README.md)
  ` 雅典娜GNotes`
 
-### [草根小哥激动的无法用言语来形容了（上）](/content/gnews/12/README.md)
+### [草根小哥激动的无法用言语来形容了（上）](/content/gnews/22/README.md)
  ` 雅典娜GNotes`
 
-### [2022年2月7日《樱花简报》：日本新增中共病毒确诊首超10万，再创新高](/content/gnews/13/README.md)
+### [2022年2月7日《樱花简报》：日本新增中共病毒确诊首超10万，再创新高](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [老班长发言&#8212;我觉得是：又一个历史时刻](/content/gnews/14/README.md)
+### [老班长发言&#8212;我觉得是：又一个历史时刻](/content/gnews/24/README.md)
  ` 雅典娜GNotes`
 
-### [这个世界太疯狂，耗子给猫当伴娘 江苏徐州8孩强奸爹借机代言婚庆广告](/content/gnews/15/README.md)
+### [这个世界太疯狂，耗子给猫当伴娘 江苏徐州8孩强奸爹借机代言婚庆广告](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2.06大直播后记：中共处心积虑的构陷缠诉](/content/gnews/16/README.md)
- ` 雅典娜GNotes`
-
-### [樱花头条┃世界各地的西藏人抗议北京2022年耻辱冬奥会](/content/gnews/17/README.md)
+### [樱花头条┃世界各地的西藏人抗议北京2022年耻辱冬奥会](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国撤了，就预示着安保走了](/content/gnews/18/README.md)
+### [美国撤了，就预示着安保走了](/content/gnews/27/README.md)
  ` 雅典娜GNotes`
 
-### [GoFundMe：钱进我口袋就是我说了算](/content/gnews/19/README.md)
+### [GoFundMe：钱进我口袋就是我说了算](/content/gnews/28/README.md)
  ` 澳喜特战旅Gnews`
 
-### [新中国联邦2022年发展的三个重点项目](/content/gnews/20/README.md)
+### [新中国联邦2022年发展的三个重点项目](/content/gnews/29/README.md)
  ` 首尔天池农场`
 
-### [江苏丰县八孩母亲事件是集体、全面的犯罪](/content/gnews/21/README.md)
+### [江苏丰县八孩母亲事件是集体、全面的犯罪](/content/gnews/30/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [经研究发现：封锁城市、学校和边境停课最多只能将新冠病毒死亡率降低 0.2%](/content/gnews/22/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [最新研究显示：封锁对疫情防治无效](/content/gnews/23/README.md)
+### [最新研究显示：封锁对疫情防治无效](/content/gnews/31/README.md)
  ` 澳喜特战旅Gnews`
 
-### [乔治·索罗斯谈中共国：在胡佛研究所发表的讲话](/content/gnews/24/README.md)
+### [乔治·索罗斯谈中共国：在胡佛研究所发表的讲话](/content/gnews/32/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2022年2月6日文贵先生直播摘要及音频—银河系农场](/content/gnews/25/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [如何通过保护血液质量阻击微血栓和刺突蛋白？](/content/gnews/26/README.md)
- ` 墨尔本雅典娜农场`
-
-### [乌克兰期待从德国得到更多的军备支持](/content/gnews/27/README.md)
- ` 澳喜特战旅Gnews`
-
-### [法律你我他：著名案例-贝德福德诉加拿大案](/content/gnews/28/README.md)
+### [法律你我他：著名案例-贝德福德诉加拿大案](/content/gnews/33/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [2/6/2022 文贵直播：冬奥会运动员就像被中共关在监狱，食物竟被吐唾沫；普京走了后谁会来参加闭幕式？](/content/gnews/29/README.md)
- ` 秘密翻译组-北美组`
-
-### [2022.2.6大直播后记：七哥是灭共的天选之人](/content/gnews/30/README.md)
- ` 墨尔本雅典娜农场`
-
-### [有声|母爱](/content/gnews/31/README.md)
- ` MOSREC`
-
-### [三个工作重心 | 新中国联邦力图阻止反华，团结人心，做好教育](/content/gnews/32/README.md)
+### [三个工作重心 | 新中国联邦力图阻止反华，团结人心，做好教育](/content/gnews/34/README.md)
  ` YALUN 亚伦`
 
-### [2022年2月6日大直播速记精萃](/content/gnews/33/README.md)
+### [2022年2月6日大直播速记精萃](/content/gnews/35/README.md)
  ` 雅典娜GNotes`
 
-### [墙内世界2022/02/03](/content/gnews/34/README.md)
+### [墙内世界2022/02/03](/content/gnews/36/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [单伟建口中的PAG](/content/gnews/35/README.md)
+### [单伟建口中的PAG](/content/gnews/37/README.md)
  ` 秘密翻译组-原创组`
 
-### [NFSC新闻、G|TV新闻访谈简报|2022年2月6日早](/content/gnews/36/README.md)
+### [NFSC新闻、G|TV新闻访谈简报|2022年2月6日早](/content/gnews/38/README.md)
  ` 纽约香草山MOS01`
-
-### [加拿大阿省省长将于下周宣布疫苗护照结束日期](/content/gnews/37/README.md)
- ` NFSC News`
-
-### [奥地利成欧洲首个立法强制接种疫苗的国家](/content/gnews/38/README.md)
- ` NFSC News`
 
 ### [国际学者呼吁中共配合疫情起源调查](/content/gnews/39/README.md)
  ` NFSC News`
@@ -144,26 +144,26 @@
 ### [樱花头条┃加拿大总理特鲁多在奥运会开幕之际 批评中国的人权记录](/content/gnews/43/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [讨共檄文](/content/gnews/44/README.md)
- ` 墨尔本雅典娜农场`
-
-### [2/6/2022国内经济财经周报：墙内个人存取现金超5万将遭监控；Hpay正式上线，接受墙内人名币](/content/gnews/45/README.md)
+### [2/6/2022国内经济财经周报：墙内个人存取现金超5万将遭监控；Hpay正式上线，接受墙内人名币](/content/gnews/44/README.md)
  ` 秘密翻译组金融团队`
 
-### [配合种族灭绝奥运，CNN挂出共匪百年纪念专题](/content/gnews/46/README.md)
+### [配合种族灭绝奥运，CNN挂出共匪百年纪念专题](/content/gnews/45/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中日财经爆┃日本政府加大稀有金属锂和镍的投资](/content/gnews/47/README.md)
+### [中日财经爆┃日本政府加大稀有金属锂和镍的投资](/content/gnews/46/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花深度报道┃联邦调查局局长指责中共从事针对美国科技的大规模黑客行动（下）](/content/gnews/48/README.md)
+### [樱花深度报道┃联邦调查局局长指责中共从事针对美国科技的大规模黑客行动（下）](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花深度报道┃联邦调查局局长指责中共从事针对美国科技的大规模黑客行动（中）](/content/gnews/49/README.md)
+### [樱花深度报道┃联邦调查局局长指责中共从事针对美国科技的大规模黑客行动（中）](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花深度报道┃联邦调查局局长指责中共从事针对美国科技的大规模黑客行动（上）](/content/gnews/50/README.md)
+### [樱花深度报道┃联邦调查局局长指责中共从事针对美国科技的大规模黑客行动（上）](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
+
+### [《避风港Haven》直播内容精选（第一集）](/content/gnews/50/README.md)
+ ` 喜马拉雅纽约磐石农场`
 
 ### [参议员Johnson致函Austin要求提供美军受到COVID-19疫苗伤害的信息](/content/gnews/51/README.md)
  ` 温哥华扬帆农场`
