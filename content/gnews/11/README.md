@@ -2,20 +2,22 @@
 ---
 
 
-## 新中国联邦时尚美丽真实
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1970190/)
+## 历史上的今天 2022.02.07
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1970267/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+作者：文珺追随MG
+![](https://assets.gnews.org/wp-content/uploads/2022/02/李文亮-1.jpg)[图片来自](https://www.bbc.com/zhongwen/simp/chinese-news-55945111)
+1, 1959年2月7日：《中苏经济合作协定》在苏联莫斯科签订。
+2，1962年2月7日：美国政府宣布对古巴实施全面贸易禁运，成为现代实施时间最长的经济制裁。
+3，1977年2月7日：在中国共产党中央委员会主席华国锋的授意下，《人民日报》发表社论，公开提出两个凡是。
+4，1984年2月7日：美国太空人布鲁斯·麦克坎德雷斯和罗伯特·斯图尔特完成人类首次不系绳的舱外活动。
+5，2011年2月7日： 中国之声《新闻晚高峰》报道，安徽阜阳拐卖儿童成风，残害儿童乞讨。这一报道只是中共国拐卖妇女儿童等犯罪活动的冰山一角。
+6，2020年2月7日：中共病毒“吹哨人”李文亮医生感染中共病毒经抢救无效病逝。
+7, 2021年2月7号： 文贵直播给战友们做美食，提出要用行动反击九指妖。
 
-*发布：陶子*
+* * *
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+*发布：Theodosia*
 
  
 

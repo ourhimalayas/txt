@@ -2,8 +2,8 @@
 ---
 
 
-## 虚、假、骗&#8211;中共的联欢晚会
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1970183/)
+## 中共贪官会以节日为名所谓行贿送礼
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1970250/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

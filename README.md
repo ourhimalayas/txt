@@ -15,113 +15,113 @@
 
 ---
 
-### [加勒万河谷事件是中共如何歪曲事实的一个完美范例](/content/gnews/1/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [西媒头条 — 第167期 – 西媒看天朝](/content/gnews/2/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [福奇被指是COVID-19大流行的罪魁祸首](/content/gnews/3/README.md)
- ` 澳喜特战旅Gnews`
-
-### [父亲的眼泪](/content/gnews/4/README.md)
+### [Hpay已经上线梦想成真](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [冬奥选手面临冰火两重天的待遇](/content/gnews/5/README.md)
- ` 澳喜特战旅Gnews`
-
-### [中共贪官会以节日为名所谓行贿送礼](/content/gnews/6/README.md)
+### [歌的力量音乐不会忘记永远会流传](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [新春大直播在西方的影响远远超过中国N倍](/content/gnews/7/README.md)
- ` 雅典娜GNotes`
-
-### [七哥唱歌的苦衷期投入的战友会有感觉](/content/gnews/8/README.md)
- ` 雅典娜GNotes`
-
-### [新春大直播引起国内震撼](/content/gnews/9/README.md)
- ` 雅典娜GNotes`
-
-### [中国人的年味儿哪去了？](/content/gnews/10/README.md)
- ` 澳喜农场`
-
-### [新中国联邦时尚美丽真实](/content/gnews/11/README.md)
- ` 雅典娜GNotes`
-
-### [中共为啥大肆宣扬冬奥感染人数](/content/gnews/12/README.md)
- ` 澳喜农场`
-
-### [由于股民对经济前景持悲观态度，中共股市再次暴跌](/content/gnews/13/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [虚、假、骗&#8211;中共的联欢晚会](/content/gnews/14/README.md)
- ` 雅典娜GNotes`
-
-### [【TopNews】美国共和党49名议员投票反对为疫苗授权提供任何资助](/content/gnews/15/README.md)
- ` topnews`
-
-### [政府的虚伪（二）](/content/gnews/16/README.md)
- ` 雅典娜GNotes`
-
-### [2022年2月6日郭先生盖特 — 视频1「2分54秒」](/content/gnews/17/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [政府的虚伪（一）](/content/gnews/18/README.md)
- ` 雅典娜GNotes`
-
-### [7·24系列——俄罗斯铝业大亨德里帕斯卡](/content/gnews/19/README.md)
- ` 墨尔本雅典娜农场`
-
-### [美国1600万人收看北京冬奥会开幕式，比2018平昌冬奧会下降43%](/content/gnews/20/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [【TopNews】澳大利亚将于 2 月 21日向接种疫苗的旅行者开放边境](/content/gnews/21/README.md)
- ` topnews`
-
-### [2022/02/07 英喜时事速递](/content/gnews/22/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [被掩盖的美国国防部 数据库爆炸性数据流出](/content/gnews/23/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [瑞士信贷面临洗钱指控](/content/gnews/24/README.md)
- ` Shuizhuyu`
-
-### [【TopNews】马克龙前往莫斯科试图缓解俄罗斯乌克兰紧张局势](/content/gnews/25/README.md)
- ` topnews`
-
-### [首例感染奥密克戎的南非华人，吃中药抗疫【视频自述】](/content/gnews/26/README.md)
- ` 首尔天池农场`
-
-### [法国马克龙高风险外交使团飞往莫斯科](/content/gnews/27/README.md)
- ` Shuizhuyu`
-
-### [澳洲即将开放国际边界，仅完全接种可以入境](/content/gnews/28/README.md)
- ` 走进澳洲`
-
-### [樱花头条┃篮球明星坎特再开砲 北京冬奥网络收视少上届43％](/content/gnews/29/README.md)
+### [内地党媒不满香港与病毒共存](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [科学家在荷兰发现高度传染性突变 HIV（艾滋病） 毒株](/content/gnews/30/README.md)
- ` 喜马拉雅农场新西兰站`
+### [西媒头条 — 第167期 – 西媒要闻](/content/gnews/4/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [世界经济论坛利用全球青年领袖计划渗透各国政府](/content/gnews/31/README.md)
+### [疫苗杀手辉瑞CEO艾伯特·伯拉获2022年创世纪奖](/content/gnews/5/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [随着中共病毒失控，迟早会有政府首脑住进北京重症监护室](/content/gnews/6/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [加勒万河谷事件是中共如何歪曲事实的一个完美范例](/content/gnews/7/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [西媒头条 — 第167期 – 西媒看天朝](/content/gnews/8/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [爆料革命情报 疫苗强制会停止 欧洲各国纷纷开始取消covid措施](/content/gnews/9/README.md)
+ ` 帕米尔高原水`
+
+### [福奇被指是COVID-19大流行的罪魁祸首](/content/gnews/10/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [历史上的今天 2022.02.07](/content/gnews/11/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [父亲的眼泪](/content/gnews/12/README.md)
+ ` 雅典娜GNotes`
+
+### [冬奥选手面临冰火两重天的待遇](/content/gnews/13/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [中共贪官会以节日为名所谓行贿送礼](/content/gnews/14/README.md)
+ ` 雅典娜GNotes`
+
+### [新春大直播在西方的影响远远超过中国N倍](/content/gnews/15/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥唱歌的苦衷期投入的战友会有感觉](/content/gnews/16/README.md)
+ ` 雅典娜GNotes`
+
+### [新春大直播引起国内震撼](/content/gnews/17/README.md)
+ ` 雅典娜GNotes`
+
+### [中国人的年味儿哪去了？](/content/gnews/18/README.md)
+ ` 澳喜农场`
+
+### [新中国联邦时尚美丽真实](/content/gnews/19/README.md)
+ ` 雅典娜GNotes`
+
+### [中共为啥大肆宣扬冬奥感染人数](/content/gnews/20/README.md)
+ ` 澳喜农场`
+
+### [由于股民对经济前景持悲观态度，中共股市再次暴跌](/content/gnews/21/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [秘翻在线：天津抗疫警长心脏病猝死，驭民五术对共产党员也不例外！](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [深圳石岩街道两地升级为中风险地区，大批防疫人员进入](/content/gnews/32/README.md)
+### [【TopNews】美国共和党49名议员投票反对为疫苗授权提供任何资助](/content/gnews/23/README.md)
+ ` topnews`
+
+### [7·24系列——俄罗斯铝业大亨德里帕斯卡](/content/gnews/24/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [美国1600万人收看北京冬奥会开幕式，比2018平昌冬奧会下降43%](/content/gnews/25/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [【TopNews】澳大利亚将于 2 月 21日向接种疫苗的旅行者开放边境](/content/gnews/26/README.md)
+ ` topnews`
+
+### [2022/02/07 英喜时事速递](/content/gnews/27/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [被掩盖的美国国防部 数据库爆炸性数据流出](/content/gnews/28/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [瑞士信贷面临洗钱指控](/content/gnews/29/README.md)
+ ` Shuizhuyu`
+
+### [【TopNews】马克龙前往莫斯科试图缓解俄罗斯乌克兰紧张局势](/content/gnews/30/README.md)
+ ` topnews`
+
+### [科学家在荷兰发现高度传染性突变 HIV（艾滋病） 毒株](/content/gnews/31/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [世界经济论坛利用全球青年领袖计划渗透各国政府](/content/gnews/32/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [深圳石岩街道两地升级为中风险地区，大批防疫人员进入](/content/gnews/33/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [世界卫生组织一开始就是中共隐瞒病毒真相的同谋](/content/gnews/33/README.md)
+### [世界卫生组织一开始就是中共隐瞒病毒真相的同谋](/content/gnews/34/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [当务之急是各州要立即采取行动阻止疫苗强制令](/content/gnews/34/README.md)
+### [当务之急是各州要立即采取行动阻止疫苗强制令](/content/gnews/35/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [疑似被拐卖的女性被铁链锁脖，被迫生育8个孩子](/content/gnews/35/README.md)
+### [疑似被拐卖的女性被铁链锁脖，被迫生育8个孩子](/content/gnews/36/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [″加拿大总理贾斯汀·特鲁多实际上已经逃离了国会山&#8221;](/content/gnews/36/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [纳瓦罗博士：看中共奥运，就等于参与共匪种族灭绝](/content/gnews/37/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -156,35 +156,35 @@
 ### [立陶宛外长今访澳 坚称不会更名台湾代表处](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [三个工作重心 | 新中国联邦力图阻止反华，团结人心，做好教育](/content/gnews/48/README.md)
- ` YALUN 亚伦`
-
-### [2022年2月6日大直播速记精萃](/content/gnews/49/README.md)
- ` 雅典娜GNotes`
-
-### [墙内世界2022/02/03](/content/gnews/50/README.md)
+### [墙内世界 2022/02/04](/content/gnews/48/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [麦考尔的竞选广告抨击由反人类犯罪集团中共举办的北京冬奥会](/content/gnews/51/README.md)
+### [三个工作重心 | 新中国联邦力图阻止反华，团结人心，做好教育](/content/gnews/49/README.md)
+ ` YALUN 亚伦`
+
+### [2022年2月6日大直播速记精萃](/content/gnews/50/README.md)
+ ` 雅典娜GNotes`
+
+### [墙内世界2022/02/03](/content/gnews/51/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [麦考尔的竞选广告抨击由反人类犯罪集团中共举办的北京冬奥会](/content/gnews/52/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [巴西Itajaí市全民测试证明 伊维菌素可降低感染、住院和死亡](/content/gnews/52/README.md)
+### [巴西Itajaí市全民测试证明 伊维菌素可降低感染、住院和死亡](/content/gnews/53/README.md)
  ` 温哥华扬帆农场`
 
-### [调查显示日本民众大多数赞成政府外交抵制冬奥会](/content/gnews/53/README.md)
+### [调查显示日本民众大多数赞成政府外交抵制冬奥会](/content/gnews/54/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2/6/2022国内经济财经周报：墙内个人存取现金超5万将遭监控；Hpay正式上线，接受墙内人名币](/content/gnews/54/README.md)
+### [2/6/2022国内经济财经周报：墙内个人存取现金超5万将遭监控；Hpay正式上线，接受墙内人名币](/content/gnews/55/README.md)
  ` 秘密翻译组金融团队`
 
-### [中日财经爆┃日本政府加大稀有金属锂和镍的投资](/content/gnews/55/README.md)
+### [中日财经爆┃日本政府加大稀有金属锂和镍的投资](/content/gnews/56/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [参议员Johnson致函Austin要求提供美军受到COVID-19疫苗伤害的信息](/content/gnews/56/README.md)
+### [参议员Johnson致函Austin要求提供美军受到COVID-19疫苗伤害的信息](/content/gnews/57/README.md)
  ` 温哥华扬帆农场`
-
-### [习近平的大国崛起梦彻底破碎](/content/gnews/57/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [长病程“中共病毒”综合征和“中共病毒疫苗”后炎症综合征治疗解说](/content/gnews/58/README.md)
  ` 香草山醫療部`
