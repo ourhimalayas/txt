@@ -2,17 +2,13 @@
 ---
 
 
-## Gclub卡和Hpay联系起来的意义没人能懂
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1970576/)
+## 迈克·蓬佩奥：病毒几乎可以肯定是来自武汉病毒研究所
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1970647/)
 
-文编：东京樱花团/樱花传媒
-视频：东京樱花团/中文小视频组
+02/02/2022 前国务卿迈克·蓬佩奥：很明显，这病毒几乎可以肯定是来自武汉病毒研究所。福奇博士知道美国的资金给到了生态健康联盟，几乎可以肯定是在中共国内部进行功能增强研究，很可能是为了躲避美国的限制
 
-2月2日，郭文贵先生在GTV大直播透露，未来GClub将一卡难求，Hpay和喜币只是喜马拉雅山下的一只小蚂蚁而已，当GClub卡与Hpay相连的时候，他的意义无人能懂，让你无法想像。
+By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-*编辑：东京樱花团/tdownc2p
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

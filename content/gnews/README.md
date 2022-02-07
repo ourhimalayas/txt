@@ -15,106 +15,106 @@
 
 ---
 
-### [按揭年期创新高 渐进式按揭欺哄港人](/content/gnews/1/README.md)
+### [2/6/2022 文贵直播：中共被打脸，号称百余国参加的冬奥会开幕却只有不到5个有实力国家的元首出席](/content/gnews/1/README.md)
+ ` 秘密翻译组-北美组`
+
+### [【#G时新闻】麦卡洛博士欧洲议会作证呼吁立即停止疫苗](/content/gnews/2/README.md)
+ ` G-时新闻`
+
+### [COVID-19病毒疫苗狂热者的黑色幽默](/content/gnews/3/README.md)
+ ` 温哥华扬帆农场`
+
+### [有声|加拿大阿省省长将于下周宣布疫苗护照结束日期](/content/gnews/4/README.md)
+ ` MOSREC`
+
+### [按揭年期创新高 渐进式按揭欺哄港人](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2.06大直播后记：战友不可擅自参与外国活动](/content/gnews/2/README.md)
+### [2.06大直播后记：战友不可擅自参与外国活动](/content/gnews/6/README.md)
  ` 雅典娜GNotes`
 
-### [02/07/22 香港快讯 城大收回学生会会址 指期限前未能提交账目审计报告](/content/gnews/3/README.md)
+### [02/07/22 香港快讯 城大收回学生会会址 指期限前未能提交账目审计报告](/content/gnews/7/README.md)
  ` 英喜-粵語組`
 
-### [樱花灭共诗——听郭七文贵先生唱歌](/content/gnews/4/README.md)
+### [樱花灭共诗——听郭七文贵先生唱歌](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [相信共产党，走进火葬场](/content/gnews/5/README.md)
+### [相信共产党，走进火葬场](/content/gnews/9/README.md)
  ` 银河勇气之星`
 
-### [&#8220;大多数冠状病毒的死亡涉及接种疫苗的人&#8221;](/content/gnews/6/README.md)
+### [&#8220;大多数冠状病毒的死亡涉及接种疫苗的人&#8221;](/content/gnews/10/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [中日财经爆┃日本将立法应对中共国产品断供危机](/content/gnews/7/README.md)
+### [中日财经爆┃日本将立法应对中共国产品断供危机](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2022年2月6日《文贵大直播》关于今年要做的三个方面（精剪）](/content/gnews/8/README.md)
+### [2022年2月6日《文贵大直播》关于今年要做的三个方面（精剪）](/content/gnews/12/README.md)
  ` 澳喜特战旅Gnews`
 
-### [天津市民揭露政府防疫造假](/content/gnews/9/README.md)
+### [天津市民揭露政府防疫造假](/content/gnews/13/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [迈克·蓬佩奥：病毒几乎可以肯定是来自武汉病毒研究所](/content/gnews/10/README.md)
+### [迈克·蓬佩奥：病毒几乎可以肯定是来自武汉病毒研究所](/content/gnews/14/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [于细微之处&#8211;浅谈个体心理健康与健康社会的互转](/content/gnews/11/README.md)
+### [于细微之处&#8211;浅谈个体心理健康与健康社会的互转](/content/gnews/15/README.md)
  ` 澳喜特战旅Gnews`
 
-### [2/7/2022国际财经快讯：美国“印太经济架构”旨在制衡中共国；瑞士信贷银行面临洗钱指控](/content/gnews/12/README.md)
+### [2/7/2022国际财经快讯：美国“印太经济架构”旨在制衡中共国；瑞士信贷银行面临洗钱指控](/content/gnews/16/README.md)
  ` 秘密翻译组金融团队`
 
-### [MV版Hcoin To the Moon上线60天第47次位列澳门iTunes热门MV榜首](/content/gnews/13/README.md)
+### [MV版Hcoin To the Moon上线60天第47次位列澳门iTunes热门MV榜首](/content/gnews/17/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [Gclub卡和Hpay联系起来的意义没人能懂](/content/gnews/14/README.md)
+### [Gclub卡和Hpay联系起来的意义没人能懂](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [加拿大军方开始解雇未接种疫苗的军人](/content/gnews/15/README.md)
+### [加拿大军方开始解雇未接种疫苗的军人](/content/gnews/19/README.md)
  ` 澳喜特战旅Gnews`
 
-### [2月6日大直播后记：永远不能闭幕的冬奥会](/content/gnews/16/README.md)
+### [2月6日大直播后记：永远不能闭幕的冬奥会](/content/gnews/20/README.md)
  ` 雅典娜GNotes`
 
-### [中共国一个明星的丑闻价值10亿 新疆大屠杀、杨改兰之死真相不值钱](/content/gnews/17/README.md)
+### [中共国一个明星的丑闻价值10亿 新疆大屠杀、杨改兰之死真相不值钱](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [Hpay最核心的价值](/content/gnews/18/README.md)
+### [Hpay最核心的价值](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [Hpay在任何地方都可以使用](/content/gnews/19/README.md)
+### [Hpay在任何地方都可以使用](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2.06大直播后记：魏丽红迟早被抓](/content/gnews/20/README.md)
+### [2.06大直播后记：魏丽红迟早被抓](/content/gnews/24/README.md)
  ` 雅典娜GNotes`
 
-### [[ 聚焦港澳 ] 从“洪门宴”看香港政治乱象](/content/gnews/21/README.md)
+### [[ 聚焦港澳 ] 从“洪门宴”看香港政治乱象](/content/gnews/25/README.md)
  ` 澳喜农场`
 
-### [医院夸大 COVID-19病例可获得经济奖励](/content/gnews/22/README.md)
+### [医院夸大 COVID-19病例可获得经济奖励](/content/gnews/26/README.md)
  ` 澳喜特战旅Gnews`
 
-### [2月6日大直播后记：七哥递纸巾的女老师](/content/gnews/23/README.md)
- ` 雅典娜GNotes`
-
-### [新西兰财经G乐部2022年2月7日:财经新闻整理](/content/gnews/24/README.md)
+### [新西兰财经G乐部2022年2月7日:财经新闻整理](/content/gnews/27/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [中共军方与美国的合作超过当年萨达姆军队和美方合作为人数](/content/gnews/25/README.md)
+### [中共军方与美国的合作超过当年萨达姆军队和美方合作为人数](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [北京冬奥开幕式是中共新噩梦的开始](/content/gnews/26/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [全球粮食危机正在逼近](/content/gnews/27/README.md)
+### [全球粮食危机正在逼近](/content/gnews/29/README.md)
  ` 澳喜特战旅Gnews`
 
-### [美国警告中共国公司：不要帮助俄罗斯，否则将面临后果](/content/gnews/28/README.md)
+### [美国警告中共国公司：不要帮助俄罗斯，否则将面临后果](/content/gnews/30/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [警告！ 5G 信号可能会杀死接种 COVID-19 疫苗的人](/content/gnews/29/README.md)
+### [警告！ 5G 信号可能会杀死接种 COVID-19 疫苗的人](/content/gnews/31/README.md)
  ` 澳喜特战旅Gnews`
 
-### [各国运动员正在北京体验“纳粹运动会”的独裁滋味](/content/gnews/30/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [新西兰财经G乐部-H-pay对数字货币及传统金融的影响](/content/gnews/31/README.md)
+### [新西兰财经G乐部-H-pay对数字货币及传统金融的影响](/content/gnews/32/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [西媒头条 — 第167期 – 西媒要闻](/content/gnews/32/README.md)
+### [西媒头条 — 第167期 – 西媒要闻](/content/gnews/33/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [一个中共国女性的价值几乎等同于20只癞蛤蟆](/content/gnews/33/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [疫苗杀手辉瑞CEO艾伯特·伯拉获2022年创世纪奖](/content/gnews/34/README.md)
+### [一个中共国女性的价值几乎等同于20只癞蛤蟆](/content/gnews/34/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [随着中共病毒失控，迟早会有政府首脑住进北京重症监护室](/content/gnews/35/README.md)

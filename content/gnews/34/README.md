@@ -2,10 +2,10 @@
 ---
 
 
-## 疫苗杀手辉瑞CEO艾伯特·伯拉获2022年创世纪奖
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1970301/)
+## 一个中共国女性的价值几乎等同于20只癞蛤蟆
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1970303/)
 
-02/03/2022 也许是人类史上最荒诞的一幕！疫苗杀手辉瑞CEO艾伯特·伯拉被评选为2022年创世纪奖得主。
+02/05/2022 在中共统治下的中国，一个妇女的价值几乎等同于20只癞蛤蟆，都不如一只鹦鹉珍贵,更别提拥有人权了。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

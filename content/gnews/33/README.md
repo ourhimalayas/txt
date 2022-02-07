@@ -2,12 +2,18 @@
 ---
 
 
-## 一个中共国女性的价值几乎等同于20只癞蛤蟆
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1970303/)
+## 西媒头条 — 第167期 – 西媒要闻
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1970314/)
 
-02/05/2022 在中共统治下的中国，一个妇女的价值几乎等同于20只癞蛤蟆，都不如一只鹦鹉珍贵,更别提拥有人权了。
+制作：蚂蚁兄弟
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+**关注西班牙语媒体每日新闻焦点，真实了解西方社会**。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/xm220207.001.jpeg)
+
+发稿：信心的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH..jpeg)
 
  
 

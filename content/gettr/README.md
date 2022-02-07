@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/7/2022 2:54 PM (UTC)`
+
+2月7号：尊敬的战友们好你们健身了吗？几天来，中国绑架妇女的事件……强烈的震撼了我……让我感到自责．后悔．为是那个地方的人．感到极为的可耻，我们必须消灭共产党，拯救同胞拯救人类．行动．行动．行动！
+![img](https://media.gettr.com/group18/getter/2022/02/07/14/ea60e416-bcf8-81ee-a976-bb8ce80878bd/out.jpg)
+
+---
+
 `@miles 2/7/2022 1:30 PM (UTC)`
 
 Ms. Christine Anderson said, "Whenever a political entity resorts to extortion and manipulation to push an agenda so hard, you can almost always be sure your benefit is definitely not what they had at heart. I will not be vaccinated with anything that has not been properly vetted and tested, and has shown no sound scientific evidence that the benefits outweigh the risks and that there are no long-term side effects. I will not get vaccinated because my government tells me to and promises in return I will be granted freedom. No one grants me freedom, for I am a free person."<br/><br/>欧盟议会议员 Christine Anderson 女士：每当一个政治团体如此强硬地推行他们的计划，并且为了达到目的而使用威逼利诱的手段时，你几乎可以肯定，他们的心里绝对没有你的利益。我不会注射任何没有经过适当审查和测试、没有可靠科学证据能够表明其利大于弊且不会有长期副作用的疫苗。我也绝对不会为了政府许诺给我的自由而去打疫苗。没有人可以给我自由，因为我本就是一个自由人。
@@ -148,13 +155,6 @@ This is the BIG ONE I previewed on @WarRoom a little earlier regarding the Covid
 
 2/4/2022 Miles Guo: The CCP’s troops stationed 5000 kilometers away from Beijing have been ordered to instigate an emergency warfare response. A foreign friend of mine was extremely shocked by the CCP’s conversion of the Pangu Plaza’s dragon-head-shaped tower into a cockhead-shaped one. The abrupt death of a sniper on the day of the opening ceremony of the Winter Olympics and the cluster infection of the CCP virus in Putin's team are by no means accidental. Instead, these are the indications of God’s will to take down the CCP.<br/><br/>2/4/2022 文贵直播：中共军队在距北京5000公里外的地方紧急战备；参加冬奥会的文贵的外国朋友对盘古龙头改龟头感到极为震惊；冬奥会开幕式当天狙击手的暴毙和普京团队集体中招绝非偶然，这是灭共的天意<br/>
 ![img](https://media.gettr.com/group36/getter/2022/02/05/05/4899e585-3989-9e6e-2000-016f0c72977c/out.jpg)
-
----
-
-`@miles 2/5/2022 4:21 AM (UTC)`
-
-2/4/2022 Miles Guo: The CCP attempted to stop me from constructing Pangu Plaza, turned its dragon-head-shaped tower into a cockhead-shaped one, and avoided filming the footage of Pangu Plaza during the opening ceremony of the Winter Olympics. The CCP has never been able to hide from Pangu, proving that my capability to take down the CCP is unprecedented.<br/><br/>2/4/2022 文贵直播：从当年阻挠文贵建盘古到把盘古龙头变龟头，再到冬奥会开幕式回避拍摄盘古的画面，中共自始至终都无法回避盘古，足见文贵灭共的厉害前无古人！<br/>
-![img](https://media.gettr.com/group39/getter/2022/02/05/04/92344f01-c8f8-4f11-2c03-4f7249158a68/out.jpg)
 
 ---
 
