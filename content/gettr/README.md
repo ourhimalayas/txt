@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/7/2022 1:30 PM (UTC)`
+
+Ms. Christine Anderson said, "Whenever a political entity resorts to extortion and manipulation to push an agenda so hard, you can almost always be sure your benefit is definitely not what they had at heart. I will not be vaccinated with anything that has not been properly vetted and tested, and has shown no sound scientific evidence that the benefits outweigh the risks and that there are no long-term side effects. I will not get vaccinated because my government tells me to and promises in return I will be granted freedom. No one grants me freedom, for I am a free person."<br/><br/>欧盟议会议员 Christine Anderson 女士：每当一个政治团体如此强硬地推行他们的计划，并且为了达到目的而使用威逼利诱的手段时，你几乎可以肯定，他们的心里绝对没有你的利益。我不会注射任何没有经过适当审查和测试、没有可靠科学证据能够表明其利大于弊且不会有长期副作用的疫苗。我也绝对不会为了政府许诺给我的自由而去打疫苗。没有人可以给我自由，因为我本就是一个自由人。
+![img](https://media.gettr.com/group29/origin/2022/02/07/13/214d5ce4-7260-8307-bf2f-a4a6a7c496ef/out.jpg)
+
+---
+
 `@miles 2/7/2022 8:15 AM (UTC)`
 
 2/6/2022 Miles Guo: The reason why the CCP kowtows to Russia is that the Caucasians in the West don’t want to engage with them. So, the CCP can only use the excuse that Russia is the origin of communism to fool the Chinese people. With the anger building up in the hearts of the Chinese, they can turn against the CCP once they have a chance.<br/><br/>2/6/2022 文贵直播: 中共认俄爹是因为西方白人不愿和中共交往，中共只好以俄国是共产主义发源地为由忽悠中国人；中国老百姓心中积压的怒火使得他们一有机会就会向中共动手<br/>
@@ -148,13 +155,6 @@ This is the BIG ONE I previewed on @WarRoom a little earlier regarding the Covid
 
 2/4/2022 Miles Guo: The CCP attempted to stop me from constructing Pangu Plaza, turned its dragon-head-shaped tower into a cockhead-shaped one, and avoided filming the footage of Pangu Plaza during the opening ceremony of the Winter Olympics. The CCP has never been able to hide from Pangu, proving that my capability to take down the CCP is unprecedented.<br/><br/>2/4/2022 文贵直播：从当年阻挠文贵建盘古到把盘古龙头变龟头，再到冬奥会开幕式回避拍摄盘古的画面，中共自始至终都无法回避盘古，足见文贵灭共的厉害前无古人！<br/>
 ![img](https://media.gettr.com/group39/getter/2022/02/05/04/92344f01-c8f8-4f11-2c03-4f7249158a68/out.jpg)
-
----
-
-`@miles 2/5/2022 1:17 AM (UTC)`
-
-2/4/2022 Miles Guo: The fellow fighter found a smart way to be released after being arrested due to her airing the footage of the dragon-head-shaped tower of Pangu Plaza on CCTV. The CCP’s opening ceremony of the Winter Olympics can’t hide from the Pangu Plaza, and the impact of the Whistleblowers’ Movement is everywhere. The CCP has dispatched special police and spies to the scene, indicating how fearful it is!<br/><br/>2/4/2022 文贵直播：在CCTV播放盘古龙头画面的国内战友被抓后机智脱险；中共冬眠会开幕式回避不了盘古，爆料革命的影子无处不在；中共派特警、特工到现场，足见其有多恐惧！<br/>
-![img](https://media.gettr.com/group34/getter/2022/02/05/01/c6e69703-ae1d-17f7-3fdd-a7181295cf65/out.jpg)
 
 ---
 

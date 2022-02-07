@@ -2,26 +2,46 @@
 ---
 
 
-## 美国1600万人收看北京冬奥会开幕式，比2018平昌冬奧会下降43%
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1970053/)
+## 【TopNews】美国共和党49名议员投票反对为疫苗授权提供任何资助
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/1970137/)
 
-#### 翻译/撰稿：zzballack
+![CHIPPPI.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/C33316C6-E692-4E20-895A-38FF2F353AAE.jpeg)*众议员奇普·罗伊（R-TX）于 2021 年 9 月 22 日在华盛顿特区的美国国会大厦举行的关于国防授权法案的新闻发布会上发表讲话。（凯文·迪奇/盖蒂图片社摄）*
+据OAN 新闻于2022 年 2 月 3 日（星期四）报道：**美国共和党立法者联盟发起了一项运动，旨在取消对疫苗强制执行的资助。德克萨斯州国会议员奇普·罗伊在周三表示，****49 ****名共和党国会议员投票反对为中共病毒疫苗授权（强制令）提供任何资金支持。**
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-2-4.jpg)图片来源：今日美国
-据《华尔街日报》（Wall Street Journal）2月5日报道，美国全国广播公司 (NBC) 的初步数据显示，在NBC的电视和流媒体平台上，有近1600万人观看了2月4日的北京冬奥会开幕式，比2018年平昌冬奥会的开幕式观看人数下降了大约43%。
+**该小组包括参议员兰德保罗和特德克鲁兹，以及众议员劳伦博伯特、安迪比格斯和其他一些人。立法者表示，政府对疫苗执行的资助将于**** 2 ****月**** 18 ****日到期，不得延长。**
 
-2月4日当天，NBC和流媒体服务平台Peacock直播了2次开幕式，分别在上午和黄金时段播出。NBC母公司NBC环球（NBCUniversal）的一位发言人说，近1500万观众观看了开幕式。NBC的收视率包括了来自Nielsen and Adobe Analytics公司的数据，涵盖了所有的电视转播和流媒体。
+众议员罗伊说：
 
-开幕式上一个值得注意的时刻是，来自中国新疆的20岁越野滑雪女选手迪妮格尔·衣拉木江，作为两名火炬手之一点燃了奥运圣火。这提醒人们笼罩着奥运会的地缘政治问题。美国、澳大利亚、加拿大、英国和日本等国家相继决定不派官方代表团参加冬奥会。他们的理由是中共政府侵犯人权，其中包括长达一年的强制同化运动以及将100多万维吾尔少数民族关押在新疆的集中营。
+“我们应该看看我们已经花费的预算，我们不应该在荒谬的、政治化的授权之上这样做，这些疫苗授权损害了医疗保健，而且没有科学依据。”
 
-奥运会开幕式的收视率一直在下降。2021年7月东京夏季奥运会的开幕式吸引了大约1700万美国观众，比2016年的里约热内卢夏季奥运会大约下降了36%。在最近的奥运会周期里，观众人数逐渐减少。由于新冠疫情原因，一些运动员无法参赛，而且观众不被允许进入看台观赛，东京奥运会的观众人数是NBC自1988年开始转播奥运会以来最低的。
 
-北京冬奥会几乎将不会有任何现场观众。由于中共当局严厉的新冠检测制度，NBC决定将奥运报道团队留在美国。NBC的执行制片人和奥运报道总裁莫利·所罗门 (Molly Solomon)1月份在公司的简介会上说：“我们曾说东京将是我们一生中最具挑战性的奥运会之一。现在我收回这句话，在这方面北京是独一无二的。”
 
-新闻来源：
+> "I'm fine w/ having debates & discussions about what the proper pay is for nurses & doctors at the VA…we should be looking at the budget we've already spent, & we shouldn't be doing it on top of ridiculous, politicized mandates that are hurting care & have no basis in science" [pic.twitter.com/GmYWN6e6Hu](https://t.co/GmYWN6e6Hu)
+> — Rep. Chip Roy Press Office (@RepChipRoy) [February 2, 2022](https://twitter.com/RepChipRoy/status/1488979182021496835?ref_src=twsrc%5Etfw)
 
-[Beijing Winter Olympics Opening Day Draws About 16 Million U.S. Viewers, 43% Lower Than in 2018](https://www.wsj.com/articles/bejing-winter-olympics-opening-day-draws-about-16-million-u-s-viewers-43-lower-than-in-2018-11644116908)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/074B1B23-2E4E-4B8D-AF20-235E5B60BE52.png)
+**他们的立法者补充说，疾病预防控制中心现在承认自然免疫可能比疫苗免疫更强。这意味着疫苗的授权一直是错误的。**
+
+**共和党随后指出，拜登政府已经实施了五项伤害美国的单独疫苗授权（强制令），这必须撤销。**
+
+**目前，疫苗灾难事态发展正如文贵先生之前多次谈到的一样。在2022年1月21日大直播文贵先生就谈到了，觉得疫苗这个事情是一定会停下来！文贵先生觉得它是一个反复的过程，一定是反复的过程，不可能一下子全停。共产党一定会垂死挣扎，药厂要给自己解脱，继续赚钱。它是一个机器，它是一个赚钱的机器，一个邪恶的机器。此外，关于美国和西方对于这个疫苗停止之后会出现的各种反应、各种审判，它会交叉而起。**
+
+
+
+[援引链接](https://www.oann.com/49-gop-lawmakers-pledge-to-defund-bidens-vaccine-mandates/)
+
+撰稿/米拉娅
+
+审阅/邱杰斯
+
+上传/天赐良闻
+
+
+
+> [49 GOP lawmakers pledge to defund Biden’s vaccine mandates](https://www.oann.com/49-gop-lawmakers-pledge-to-defund-bidens-vaccine-mandates/)
+
+
 
  
 
