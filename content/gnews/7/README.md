@@ -2,39 +2,32 @@
 ---
 
 
-## 冬奥会 “一鸽都不能少” 引台民众忧虑
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1971104/)
+## 中共政府挑选维族选手担任火炬手 美批其别有用心
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1971138/)
 
-作者：纽约香草山教育部 Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月4日，北京冬奥开幕式上，《闪亮的雪花》节目中，有一段剧情描写掉队的小鸽子被拉回队伍。 “一鸽都不能少”这一幕被普遍认为在映射台湾回归大陆。
+**撰稿：日本东京方舟农场 子辰**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-1.jpeg)
+据大纪元2月7日报道，北京冬奥会开幕式上，中共政府挑选了一名新疆维族运动员担任火炬手，这一安排引发谴责，美批中共政府完全是别有用心。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-99.jpg)（图片来自《大纪元》）
+2月4日北京冬奥会开幕式上，20岁的维吾尔族选手迪妮格尔‧衣拉木江（Dinigeer Yilamujiang）以担任最后两名火炬手之一的身份出现在了全球电视荧幕与鸟巢国家体育场观众面前。
 
-台湾《自由时报》称，中共对外所呈现的每个符码，都是经过精心策划的。而中共显露出来这么重要的信息，却少有台湾人关心。台湾民众对中共野心的认知如此忽视，实在令人唏嘘。
+随后，中共外交官们在衣拉木江点燃圣火后，纷纷在推特（Twitter）特意转发她家人鼓掌观看开幕式的影片。
 
-如果仔细剖析“一鸽都不能少”的含义，不难发现谁是那只掉队的鸽子，谁又是把掉队的鸽子抓回来的那只鸽。冬奥会这一表演透露了中共准备动手抓鸽子的心态。按着中共的本性，台湾的未来，可说凶险万分。
+据美国驻联合国大使琳达·托马斯- 格林菲尔德（Linda Thomas-Greenfield）周日接受美国有线电视新闻网（CNN）「State of the Union」节目采访时说，中共政府让一名维吾尔运动员在北京冬奥会上点燃奥运圣火，是为了分散人们对中共政府对穆斯林少数民族实施种族灭绝的注意力。
 
-郭文贵先生在2月6日大直播中，回答战友提问时指出，中共已近完结，但其灭亡前对台动武的可能性越来越高，达百分之90以上。冬奥会开幕式上的表演，实际是舆论导向宣传而已。
+她还强调说，必须要持续把中共人权侵犯作为关注的中心，因为我们知道那里发生了种族灭绝，反人类罪行正在中共国发生。
 
-参考链接： 
-1. [冬奧開幕「一鴿都不能少」影射台灣？他嘆：我們還在吵總統論文](https://news.ltn.com.tw/news/politics/breakingnews/3820911)
-2. [昨夜鸟巢“一鸽都不能少”，代表台湾？](https://taiwan.huanqiu.com/article/46gqXG7slnn)
-3. [“一鸽都不能少”传到台湾，绿媒的反应酸中有忧](https://3g.163.com/dy/article/GVH45ITO0514R9OJ.html?clickfrom=channel2018_news_index_newslist#child=index&amp;offset=2)
+另据，美国马里兰州霜堡州立大学（Frostburg State University）副教授、新疆问题专家马海云（Ma Haiyun）表示，中共当局选出这名火炬手就是想要回应西方所提出的中共政府对维吾尔族实施种族灭绝及迫害，以及对少数族裔实施汉化的指责。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+此前，美国、澳大利亚、加拿大和英国早已因中共政府恶劣的人权侵犯问题而宣布外交抵制北京冬奥会，而今中共此番举动，实属卑劣及别有用心。
 
-总编：Jack Li文阳
-编辑：静言
-校正/发稿：谐趣园
+参考链接：
+[https://www.epochtimes.com/b5/22/2/6/n13559004.htm](https://www.epochtimes.com/b5/22/2/6/n13559004.htm)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+素材采编：子辰
+编辑：老孙
+发布：爱放飞
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

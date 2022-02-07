@@ -2,23 +2,25 @@
 ---
 
 
-## 习近平冬奥会欢迎宴未见普京
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1971049/)
+## 冬奥会 “一鸽都不能少” 引台民众忧虑
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1971104/)
 
-作者：日本方舟农场 – Andy5
+作者：纽约香草山教育部 Naughty(文行)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月5日，习近平和彭丽媛用中国老百姓的税金，为参加中共冬奥会的外国来宾举行欢迎会。中共并未公开参加欢迎会的嘉宾明档。从中共后来公布的视频资料中，看不到本次中共冬奥会最重磅来宾，俄罗斯总统普京的身影。
+2月4日，北京冬奥开幕式上，《闪亮的雪花》节目中，有一段剧情描写掉队的小鸽子被拉回队伍。 “一鸽都不能少”这一幕被普遍认为在映射台湾回归大陆。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-2.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-1.jpeg)
 
-墙内自媒体爆出，普京早在2月4日跟习签署15个协议，并宛如被隔离一般的参加冬奥会开幕式后，于当晚11点火速了中共国。
+台湾《自由时报》称，中共对外所呈现的每个符码，都是经过精心策划的。而中共显露出来这么重要的信息，却少有台湾人关心。台湾民众对中共野心的认知如此忽视，实在令人唏嘘。
 
-在2月4日的大直播中，郭先生爆料称，普京团队抵京后就有16人感染了中共病毒，其下榻的酒店内有3人死亡，这让普京对中共非常恼怒。而普京未在欢迎宴露面，也间接验证了这个消息。
+如果仔细剖析“一鸽都不能少”的含义，不难发现谁是那只掉队的鸽子，谁又是把掉队的鸽子抓回来的那只鸽。冬奥会这一表演透露了中共准备动手抓鸽子的心态。按着中共的本性，台湾的未来，可说凶险万分。
 
-参考链接：
-1.[https://www.gettr.com/post/pssbvk4709](https://www.gettr.com/post/pssbvk4709)
-2.[中俄签署一系列合作文件](http://politics.people.com.cn/n1/2022/0204/c1001-32345503.html)
-3.[https://gettr.com/post/psp8nmfc64](https://gettr.com/post/psp8nmfc64)
+郭文贵先生在2月6日大直播中，回答战友提问时指出，中共已近完结，但其灭亡前对台动武的可能性越来越高，达百分之90以上。冬奥会开幕式上的表演，实际是舆论导向宣传而已。
+
+参考链接： 
+1. [冬奧開幕「一鴿都不能少」影射台灣？他嘆：我們還在吵總統論文](https://news.ltn.com.tw/news/politics/breakingnews/3820911)
+2. [昨夜鸟巢“一鸽都不能少”，代表台湾？](https://taiwan.huanqiu.com/article/46gqXG7slnn)
+3. [“一鸽都不能少”传到台湾，绿媒的反应酸中有忧](https://3g.163.com/dy/article/GVH45ITO0514R9OJ.html?clickfrom=channel2018_news_index_newslist#child=index&amp;offset=2)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
