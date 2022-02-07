@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/7/2022 5:04 AM (UTC)`
+
+2/6/2022 Miles Guo: The CCP got a slap in the face by claiming that more than 100 countries would participate in the opening of the Winter Olympics, while in fact less than five leaders of powerful countries made it. The opening ceremony of the Winter Olympics has become the closing ceremony of the end of the CCP. Putin's girlfriend brought her own rations when visiting Communist China and has never had the food offered by the CCP because it contains chemicals.<br/><br/>2/6/2022 文贵直播：中共被打脸，号称百余国参加的冬奥会开幕却只有不到5个有实力国家的元首出席；冬奥会开幕式已成为中共结束的闭幕式；普京女友访华自带口粮，从不碰中共化学食品<br/>
+![img](https://media.gettr.com/group3/getter/2022/02/07/05/35aa86ea-6265-0d55-ec66-2e5d5b0df84c/out.jpg)
+
+---
+
 `@miles 2/7/2022 2:12 AM (UTC)`
 
 2/6/2022 Miles Guo: The all-weather strategic partnership is essentially forming alliances. Money is the key for the CCP to maintain its relationship with Russia. Although Russia’s annual GDP is only $1 trillion, it signed gas agreements with the CCP with a total deal value of over $1 trillion. Why did Putin go back to Russia without signing the deal with the CCP to designate the RMB as Russia’s legal tender?<br/><br/>2/6/2022 文贵直播：中共全天候战略伙伴的本质是结盟；维持中俄关系全靠钱，只有1万亿美元GDP的俄罗斯从中共就签了总价值1万多亿的合同；普京为何不跟中共签把人民币作为法币的协议就回去了呢？<br/>
@@ -148,13 +155,6 @@ This is the BIG ONE I previewed on @WarRoom a little earlier regarding the Covid
 
 2/4/2022 Miles Guo: Why did the CCP disabled the comment section of a YouTube channel  where the opening ceremony of the Winter Olympics was aired live? The first person who died in the Winter Olympics was the sniper leader who collapsed near Pangu Plaza. Things like this will happen again and again. This is the will of Heaven!<br/><br/>2/4/2022 文贵直播：中共为何要关闭”冬眠会“开幕式油管直播的评论？”冬眠会“第一个死的人是在盘古旁边倒下的狙击手的头儿！这事将接二连三地发生，是天意！<br/>
 ![img](https://media.gettr.com/group35/getter/2022/02/04/23/c7b8234e-cf02-8c20-62ff-c5793e5abd24/out.jpg)
-
----
-
-`@miles 2/4/2022 12:24 PM (UTC)`
-
-2022年2月4日 文贵大直播：冬奥会媒体中心与世界冲突；灭共的雪轰轰烈烈漫山遍野；美国世界经济状况摇摇欲坠；HPay数字货币市场谁主沉浮
-![img](https://media.gettr.com/group3/origin/2022/02/04/12/a80a61f2-2c1b-4432-3875-889d35f59eb9/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
