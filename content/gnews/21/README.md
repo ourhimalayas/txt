@@ -2,44 +2,66 @@
 ---
 
 
-## 2/7/2022国际财经快讯：美国“印太经济架构”旨在制衡中共国；瑞士信贷银行面临洗钱指控
-` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1970617/)
+## COVID-19病毒疫苗狂热者的黑色幽默
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1970887/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-24.png)图片来源：REUTERS/Lars Hagberg
-**1.** **美国准备推出“印太经济架构”，旨在制衡中共国**
+作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏）
 
-[拜登(Joe Biden)政府正准备发布其首个亚太地区总体经济战略。通过新的印太经济架构(Indo-Pacific Economic Framework)，美国旨在同友邦国家在数字贸易、供应链和绿色技术等问题上更密切合作。该架构旨在填补美国2017年退出《跨太平洋伙伴关系协定》(TPP)后留下的亚洲战略漏洞。TPP是美国帮助设计的一项坚实的贸易协议，意在制衡中共国。虽然细节尚未公布，但预计该架构不会试图让美国重返TPP。来自不同领域的经济学家、外交官和贸易专家们表示，拜登政府正面临着一场硬战，需要达成一项有效的协议，将许多亚洲经济体聚集在一起，制定商业和新技术参与规则。](https://www.wsj.com/articles/u-s-readies-new-asia-pacific-economic-strategy-to-counter-china-11644148801)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-**2****.****加拿大渥太华市长宣布进入紧急状态以应对货车司机抗议示威活动**
+因果轮回，善恶有报，福祸相承，恶堕地狱，善升天堂，善以善待，恶以恶待，不是不报，时辰未到。众生从业而有果报，果报有三种：现世报、来世报、他世报！
 
-[渥太华市长吉姆-沃森周日宣布进入紧急状态，以处理卡车司机为期10天史无前例的抗议示威，目前已经关闭了加拿大首都的大部分核心区域。他在一份声明中宣称，示威活动对居民的安全和保障构成的严重危险和威胁，并强调需要其他管辖区和各级政府的支持。沃森在当天早些时候曾说，示威者的人数超过了警察，并控制了局势，他没有详细说明他可能采取的措施。“自由车队”最初是反对加拿大对跨境卡车司机的疫苗要求的运动，但现在已经变成了反对公共卫生措施和总理贾斯汀-特鲁多政府的集会点。渥太华警方周日重新安置了一些抗议者，并设置了新的路障，称他们正在 “收集财务、数字信息、车辆登记……以及其他将用于刑事起诉的证据。”](https://www.reuters.com/world/americas/protest-against-vaccine-mandates-paralyzing-canada-capital-mayor-says-2022-02-06/)
+2月5日发生在美国加利福尼亚州著名喜剧演员Heather McDonald身上的事情，应当算是现世报。
 
-**3.****澳大利亚时隔两年后向国际游客开放边境**
+2月5日，Heather McDonald正在亚利桑那州坦佩（Tempe, Arizona）一场座无虚席的演出中进行她的压轴演出。作为支持COVID-19病毒疫苗的狂热分子，McDonald正在她的第二段演出中批评或嘲笑那些拒绝注射COVID-19病毒疫苗的人。“我已经打了疫苗，两针，加强针…流感疫苗、纏腰丹疫苗（shingle shot），耶稣爱我，没有得过COVID-19”。就在这时，她突然晕倒，头部重重的摔到地板上。
 
-[澳大利亚将从2月21日起允许持有双重疫苗的签证者进入该国，结束大约两年的严格的国际边境管制，以阻止中共病毒传播。总理斯科特-莫里森周一告诉记者进入澳大利亚的条件是必须接种双重疫苗充，各州将继续制定自己的检疫规则。这是澳大利亚11月开始的国际边境限制逐步放松的最后一步。不过，在推迟国内边境重新开放后，西澳大利亚州仍然对该国其他地区关闭。允许接种疫苗的国际入境者的决定是在该国大部分地区的中共病毒感染、住院和重症监护入院人数呈下降趋势时做出的。](https://www.bloomberg.com/news/articles/2022-02-07/australia-to-open-border-to-international-visitors-after-2-years?srnd=premium-asia)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/e73a64ac92d040b8b6d317ab4fbe9a88_md.jpg)
 
-**4.****韩国1月外汇储备连续第三个月下降**
+所幸当时有一名急救人员和护士正好在观众席上，他们马上冲上去对她实施急救，才没有酿成更严重的后果。随后以McDonald癫痫症（seizure）发作呼叫了911，被救护车拉走。
 
-[韩国央行周一公布的数据显示，由于持有其他货币的美元换算价值下降，韩国 1 月份外汇储备连续第三个月萎缩。根据韩国银行 (BOK) 提供的数据，截至 1 月底，该国的外汇储备达到 4615 亿美元，比上月减少 16 亿美元。这标志着外汇储备自 10 月创下 4692 亿美元的历史新高以来连续第三个月收缩。据称1 月份下降的部分原因是，以外币计价的持股在换算成美元时价值下降。截至 12 月底，韩国是世界第八大外汇储备持有国。数据显示，中国以拥有约 3.3 万亿美元的资产领先。](http://m.koreaherald.com/amp/view.php?ud=20220207000089)
+事后，Heather McDonald说，她头很痛，非常累，尽管已经接受了X光扫描和其它身体检查，但目前尚不清楚突然晕倒的具体原因。
 
-**5.****2022年新加坡房地产价格将继续攀升，速度放缓**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-07_21-51-30.png)
 
-[新加坡房地产价格在过去两年中不断攀升，尽管政府努力为市场降温，但仍可能继续上涨。房地产机构新加坡莱坊的研究主管Leonard Tay表示，2022年私人住宅价格可能上涨1%至3%。JLL新加坡公司研究和咨询部高级总监王德辉说，预计今年的价格将上涨约2%至4%，比去年的价格增长速度要慢得多，2021年的私人住宅价格比一年前跃升了10.6%。住房和发展委员会的数据显示，去年转售市场上的公共住房价格也爆涨了12.7%。为了给红火的私人和公共住宅房地产市场降温，新加坡在12月中旬推出了新措施。这些措施包括对第二次和以后的房产购买征收更多的税，以及收紧贷款限额。](https://www.cnbc.com/2022/02/07/singapore-property-prices-rents-to-rise-in-2022-but-at-a-slower-pace.html)
+McDonald不是因炫耀自己打了COVID-19病毒疫苗而得到现世报第一个！
 
-**6****.** **瑞士信贷银行面临洗钱指控**
+1月3日，巴西Alterosa电视台Jornal das 7节目主持人Rafael Silva在电视直播中突然失去知觉，倒在地上，电台赶紧在Silva撞到地板上发出非常响亮的砰砰声之前切断了镜头。Silva随后被急救车送往附近的人道主义医院，他在救护车上又经历了五次心脏骤停。
 
-[瑞士信贷银行将于周一在瑞士法院面临指控，即允许一个被指控的保加利亚可卡因贩运团伙清洗数百万欧元。瑞士检察官称，这家瑞士第二大银行及其一名前客户经理在2004年至2008年期间没有采取所有必要的措施来防止被指控的贩毒者隐藏和清洗现金。瑞士信贷银行在给路透社的一份声明中说：”瑞士信贷银行毫无保留地拒绝在这一遗留问题上对其提出的所有指控，并确信其前雇员是无辜的。”在瑞士对一家主要银行的首次刑事审判中，检察官要求瑞士信贷(CSGN.S)赔偿约4240万瑞士法郎，瑞士信贷补充说，它将 “在法庭上积极捍卫自己”。](https://www.reuters.com/business/finance/credit-suisse-faces-money-laundering-charges-trial-bulgarian-cocaine-traffickers-2022-02-07/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/OGzHJgsJDe2r.mp4_20220207_220541.266.jpg)
 
-**7****. ****花旗：阿里巴巴向美国S****EC****提交的文件可能表明软银的出售计划**
+Silva在去年7月30日接种了第一针COVID-19病毒疫苗后在博客中写道：“我真的不知道如何解释我的感受。我哭了，我为有机会接种疫苗而欢呼雀跃。同时为超过55万没有机会接种疫苗的人感到难过。保重，继续戴口罩，疫苗万岁！”。去年8月28日，在接种第二针疫苗后，他在博客炫耀，“感谢上帝给他这个机会！”。去年12月28日，在接种了加强针后，他在博客中称，“第三针万岁！我为那些没有机会接种疫苗的人感到遗憾，疫苗拯救生命！”
 
-[阿里巴巴集团控股有限公司注册了10亿股以前没有注册过的美国存托股票，这表明软银集团公司可能打算出售其部分股份。花旗集团(Citigroup Inc.)分析师Alicia Yap在一份说明中写道，日本软银在阿里巴巴首次公开募股前就支持了该公司，因此其持有的很大一部分股份并没有登记为美国存托股票。根据花旗的计算，软银拥有阿里巴巴53.9亿股普通股，相当于6.7376亿股美国存托股票，即24.8%的股份。孙正义的软银近几个月来一直面临压力，因为许多投资组合公司的价值随着技术的衰退而下滑。软银的股价已经从去年的峰值下跌了约50%，包括滴滴出行(Didi Global Inc.)、One 97 Communications Ltd.和DoorDash Inc.在内的持股价值下降。](https://www.bloomberg.com/news/articles/2022-02-07/alibaba-sec-filing-may-signal-softbank-plans-to-sell-citi-says?srnd=premium-asia)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Rafael-Silva-Second2-768x742-1.png)
 
-**8****.**** ****中共国公司试图在美国上市,考验监管机构**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Rafael-Silva-booster.png)
 
-[六家位于中共国大陆和香港的集团公司于 1 月向美国证券交易委员会提交了新的或更新的文件，以在纳斯达克交易所进行首次公开​​募股。这是对监管机构在太平洋两岸打压后接受上市的意愿的考验。上周紧随其后的是一次性医疗器械生产商美华国际医疗科技公司，该公司在近六个月前提交初始申请后设定了目标发行价格。尽管预计每笔交易的规模都较小，但律师、交易所官员和中国专家将密切关注它们，寻找曾经繁荣的中共国上市市场仍有未来的迹象。](https://www.ft.com/content/bd9c7d38-896e-4db5-8894-1420778a0436)
+1月27日，新墨西哥州民主党参议员Ben Luján因头晕和疲劳，在圣达菲（Santa Fe）克里斯图斯圣文森特地区医院（Christus St. Vincent Regional Hospital）急救时被医生确诊为控制人行走、运动学习和视力的小脑中风（stroke）了。1月28日，Ben Luján被转移到新墨西哥大学医院，并在之后接受了颅内减压手术。
 
-By 【秘密翻译组-金融组】
-作者：Apple
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Ben-Lujan-cerebellum-768x692-1.png)
+
+2021年9月以来，Ben Luján曾两次推动互联网审查有关COVID-19病毒疫苗“误导信息”立法。去年自11月以来，他多次鼓励人们打加强针，他特别喜欢晒儿童被注射疫苗的照片。出事前几天，他仍在推广mRNA疫苗注射、隔离和检测。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Ben-Lujan-Vaccine2.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Ben-Lujan-censorship1.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Ben-Lujan-Jan-18.png)
+
+相信McDonald不是因炫耀自己打了COVID-19病毒疫苗而得到现世报第一个，肯定也不会是最后一个！
+
+尤其中共国那些强制人们注射中共病毒疫苗的官员，个个都该现世报！
+
+参考数据：
+
+[Comedian Collapses on Stage During Joke: “I’m vaxxed, double vaxxed, boosted, and Jesus loves me most”](https://healthimpactnews.com/2022/comedian-collapses-on-stage-during-joke-im-vaxxed-double-vaxxed-boosted-and-jesus-loves-me-most/)
+
+[HEATHER MCDONALD COLLAPSES ON STAGE … Hospitalized, Cause Unknown](https://www.tmz.com/2022/02/06/heather-mcdonald-comedian-collapses-hospitalized-show/)
+
+[Booster Blues: Brazilian reporter has heart attack on live TV, Olympian develops myocarditis, Arizona man dead six days after booster](https://thecovidblog.com/2022/01/10/booster-blues-brazilian-reporter-has-heart-attack-on-live-tv-olympian-develops-myocarditis-arizona-man-dead-six-days-after-booster/)
+
+[Democrat U.S. Senator Ben Luján has stroke after promoting masks, “vaccines” for a year, hands Republicans Senate majority while he recovers](https://thecovidblog.com/2022/02/04/democrat-u-s-senator-ben-lujan-has-stroke-after-promoting-masks-vaccines-for-a-year-hands-republicans-senate-majority-while-he-recovers/)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

@@ -2,10 +2,10 @@
 ---
 
 
-## 疑似被拐卖的女性被铁链锁脖，被迫生育8个孩子
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1969418/)
+## 深圳石岩街道两地升级为中风险地区，大批防疫人员进入
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1969433/)
 
-01/30/2022 这几天网上很热的视频：一名疑似被拐卖的女性被铁链锁脖，囚禁在一个破屋、零度天气只穿了一件单衣，被迫生育了8个孩子。
+02/04/2022 深圳石岩街道两地升级为中风险地区，大批防疫人员进入。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

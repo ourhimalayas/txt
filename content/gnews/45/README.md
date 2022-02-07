@@ -2,10 +2,10 @@
 ---
 
 
-## 中共国早已崛起，而且成为了占据主导地位的大国
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1969031/)
+## 疑似被拐卖的女性被铁链锁脖，被迫生育8个孩子
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1969418/)
 
-02/02/2022 乔什·海默：中共国早已崛起，而且成为了占据主导地位的大国。
+01/30/2022 这几天网上很热的视频：一名疑似被拐卖的女性被铁链锁脖，囚禁在一个破屋、零度天气只穿了一件单衣，被迫生育了8个孩子。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
