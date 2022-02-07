@@ -2,44 +2,44 @@
 ---
 
 
-## 世界经济论坛利用全球青年领袖计划渗透各国政府
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1969628/)
+## 被张高丽用假唐三彩假画骗奸的彭帅冬奥会后肯定被消失
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1969686/)
 
-#### 翻译/撰稿：zzballack
+G-TV视频链接：[https://gtv.org/video/id=62008f9c585ecc15d73e6095](https://gtv.org/video/id=62008f9c585ecc15d73e6095)
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-22.png)图片来源：The Expose UK
-据《真理卫士》（The True Defender）2月6日报道，在新冠大流行中，全球190多个国家的政府几乎步调一致地采用相同措施来应对疫情：封锁、强制口罩和疫苗护照等等，为什么会这样？答案在于世界经济论坛（WEF）主席克劳斯·施瓦布（Klaus Schwab）所管理的全球青年领袖学校（Young Global Leaders School），政界和商界领袖中的许多人在到达高层的过程中都在该学校留下过痕迹。
+**郭文贵先生：**张高丽搞彭帅说最贵的给了彭帅买了个奥迪2.6，我昨天有人跟我说。张高丽真够不要脸的，说张高丽收到的假画，还有假唐三彩，很多都给了彭帅。彭帅最后一检查，所有的唐三彩全是假的，没有一张画是真。
 
-这是一个由政治和企业领导人组成的秘密联盟，他们操纵人民、摧毁国家经济、并引入一种新的全球数字货币。这个组织包括法国总统马埃马纽埃尔·马克龙(Emmanuel Macron)、加拿大总理贾斯廷·特鲁多 (Justin Trudeau)、新西兰总理杰辛达·阿德恩 (Jacinda Ardern)和英国首相鲍里斯·约翰逊 (Boris Johnson)。克劳斯·施瓦布曾亲口说过的一段话可证实此事：“我不得不说，默克尔、弗拉基米尔·普京 (Vladimir Putin)等人都曾是世界经济论坛的全球青年领袖。但现在真正让我们感到骄傲的是年轻一代，比如特鲁多总理和阿根廷总统等人。我们渗透进了（各国政府的）内阁。我知道在特鲁多政府的内阁当中，半数人都是世界经济论坛的全球青年领袖。”
+这个王八蛋，一个国家副总理，宇宙无限大，地球是一粒沙，我想让你干啥就干啥。你说我、昨天跟我说，我说：是真的假的？他们说：“我到彭帅家，她说这个全都能拿走的。”彭帅现在是被监管状态，就失去自由状态，冬奥会一过，彭帅就得消失，肯定消失，这是党的命令，说她已经给党和国家带来了重大不确定因素。
 
-WEF是一个非政府组织，由德国工程师和经济学家克劳斯·施瓦布于1971年在瑞士创立，当时他32岁。WEF因每年1月在达沃斯举行年会而闻名于世，它是全球主义精英们在世界上最重要的网络之一，获得了成千上万家跨国企业的资助。
+完了，这哥儿们昨天告诉我的。他说：你知道有多夸张七哥，我们几个人收了半天，拉走了两三车东西，没一张画是真的，给彭帅的画，没有一个唐三彩古董玩是真的。”他说：“你给彭帅的金链子，彭帅还真不要，她不要金的，但给了一些画、艺术品全是假的。”你说他有多不要脸！
 
-WEF在1987年之前被称为欧洲管理论坛（EU Management Forum）。1992年，施瓦布建立了一个平行机构—全球明日领袖（Global Leaders for Tomorrow）学校，并在2004年重建为全球青年领袖（Young Global Leaders）学校。该学校的学员必须申请入学，而且选拔过程非常严格。1992年的第一期学员包括前德国总理安格拉·默克尔 (Angela Merkel)、前法国总统尼古拉·萨科齐 (Nicolas Sarkozy)和前英首相托尼·布莱尔 (Tony Blair)。
+字幕来源：[2022年1月27日 文贵大直播 全文字版](https://gnews.org/zh-hans/1924957/)
 
-到目前为止，总计有1300人从这所学校毕业。这些毕业生中，不乏国家卫生机构的掌管者，其中有四位是德国部长：比如延斯·史潘 (Jens Spahn)、菲利普·罗斯勒 (Philipp Rösler，前德国联邦卫生部长，[郭先生曾爆料说他是姚依林的私生孙子](https://gnews.org/zh-hans/1345351/)) 等人。一些人甚至曾经或者现在是国家元首：前奥地利总理塞巴斯蒂安·库尔茨 (Sebastian Kurz)、现任匈牙利总理欧尔班·维克托（Orbán Viktor）、前卢森堡首相和前欧盟委员会主席让-克洛德·容克 (Jean-Claude Juncker)、德国绿党领袖（German Greens）安娜莱娜·贝尔伯克 (Annalena Baerbock)等等。另外，美国加利福尼亚州州长加文·纽森和美国运输部长皮特·布蒂吉格 (Pete Buttigieg)也位列其中。
+编辑整理：Jacques；
 
-然而，这所学校不仅只限于政客，像比尔·盖茨 (Bill Gates)、杰夫·贝索斯 (Jeff Bezos)、理查德·布兰森 (Richard Branson，英国维珍集团董事长)等商界领袖也在其中。由WEF培养的领导人已经渗透到全球各国政府当中，大流行期间，他们步调一致地实施各种荒谬的限制令。
+字幕文件制作：大好河山；
 
-下面这段文字节选自洛克菲勒基金会（Rockefeller Foundation）于2010年公布的一份名为《[技术与国际发展的未来设想](https://www.nommeraadio.ee/meedia/pdf/RRS/Rockefeller%20Foundation.pdf)》（Scenarios for the Future of Technology and International Development）的文件，对原文稍加修改后（黑体字部分），几乎完美契合新冠大流行病爆发以来所发生的各种情形：
+视频制作及上传：Cindy；
 
-**“****2020****年**（原文为2012年），世界多年来一直期待的大流行病终于来了。与**2004****年的****SARS****疫情**（原文为2009年的猪流感H1NI疫情）不同，这种新的**冠状病毒**（原文为流感）菌株起源不明，具有极强的毒性和致命性。当这种病毒在世界各地肆虐时，即使是对大流行病准备最充分的国家也难以应对，短短七个月内，全球近20%的人口被感染，**数百万人**（原文为800万人）丧生。
+G-News发布：小满；
 
-这场大流行还对经济产生了致命的影响：人和货物的国际流动停滞，旅游业等行业遭受重创，全球供应链被破坏。当地通常热闹的商店和办公楼空置了数月，没有员工和顾客。这场大流行侵袭了整个地球，死在**护理机构**中（原文为非洲、东南亚和中美洲）的人难以计数，由于官方没有出台防疫协议，那里的病毒像野火一样蔓延。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-英国最初“强烈劝阻”公民乘坐飞机，但由于政策执行不力，导致了致命后果。这不仅加速了病毒在英国境内的传播，也加速了其跨境传播。然而，有几个国家的情况要好一些，特别是中共国。中共国政府迅速对所有公民实施强制隔离，并立即封闭了几乎所有边境，此举拯救了数百万人的生命，比其他国家更早地阻止了病毒的传播，大流行病后的恢复也更迅速。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-中共国政府并不是唯一采取极端措施保护其公民免受（感染）风险和接触病毒的国家。大流行期间，全球各国领导人行使其权力，实施各种严厉的规则和限制措施，比如强制人们佩戴口罩、在火车站和超市等公共场所的入口处检查体温。”
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/图片3-1.png)
-郭文贵先生在2022年1月19日的大直播中说，世界经济论坛的达沃斯党成员一千人都不到，但却拥有全人类99%的财富，而且有影响国家政治和军事的能力、控制着能左右数以亿计人的命运的财富，手上有无数条人命。该论坛就是一个奴隶主俱乐部，中共在2001年加入世贸组织后就开始控制它。这次新冠大流行中，它们充当中共的帮凶，妄图用病毒和疫苗杀死更多的人，以统治和奴役人类。这次病毒和疫苗灾难，最后要是不审判达沃斯党，它就会把地球毁掉。达沃斯党的全球布局由来已久，势力庞大，但以新中国联邦为代表的全球正义力量绝不会甘受奴役、坐以待毙，一定会与其战斗到底！
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-**新闻来源：**
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-[Secret Alliance Of Ex-WEF Global Leaders Working In Lockstep To Enforce The GREAT RESET To Include Macron, Trudeau, Ardern, And Boris Johnson!](https://thetruedefender.com/secret-alliance-of-ex-wef-global-leaders-working-in-lockstep-to-enforce-the-great-reset-to-include-macron-trudeau-ardern-and-boris-johnson/)
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-[2022.1.19大直播 郭先生爆料达沃斯党是共产党的帮凶，是世界的共产党](https://gnews.org/zh-hans/1880783/)
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-[2022年1月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1885617/)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
