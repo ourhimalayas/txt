@@ -2,23 +2,19 @@
 ---
 
 
-## 特鲁多政府破坏“自由车队”的筹款活动
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1970916/)
+## 中国人在国际上数百年积累的尊严被习近平因一己之私举办的“冬残会”毁于一旦
+` DC政经` [轉載自GNews](https://gnews.org/zh-hans/1971006/)
 
-采编：文莱       编译撰稿：文明(添草灭共)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/template-87-.jpg)
-据加拿大自媒体【后千禧年】2月5日报道，在美国知名众筹平台GoFundMe近日终止了加拿大卡车司机的[自由车队]筹款活动后，特鲁多当局对此表示赞赏并承认自己就是幕后推手。
+《2022年02月04日文贵大直播》节选
 
-据悉，在渥太华市政府及警察局的要求下，该平台在当天删除了[自由车队]筹款网页的同时，还冻结了已筹集到的900万美元。渥太华市长不仅对此表示支持，还呼吁所有众筹网站都能效仿。
+我们此时此刻每一秒钟是中国老百姓，无尽的财富要找那帮要饭的，去参加这个100分钟的开幕式，本来是三个小时180分钟，最低180分钟，你见过世界上奥运会开幕式，哪有100分钟的开幕式，你去想想，你用点脑子想想兄弟姐妹们，全人类要参加的，从1928年法国第一届冬奥会，所谓的滑雪运动定为冬奥会以后到今天，冬奥会到今天，包括韩国的奥运会，你见过有这么惨的吗？
 
-报道称，[自由车队]现要求将所有被冻结的筹款退还给捐助者，并在基督教众筹网站[GiveSendGo]上重新启动了筹款活动，目前已筹集资金超过20万元。
+* * *
 
-校对编辑：硫酸羟氯喹64
+素材，剪辑，字幕：小蜜蜂 | 发布：文零
 
-发稿：文明(添草灭共)
-
-原文链接：[https://thepostmillennial.com/ottawa-police-admit-to-lobbying-gofundme-to-withhold-funds-from-canadian-truckers](https://thepostmillennial.com/ottawa-police-admit-to-lobbying-gofundme-to-withhold-funds-from-canadian-truckers)
-
+更多新闻咨讯请访问：[DC政经Gettr账号](https://gettr.com/user/dczhengjingquan)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/DCZJ_Gnews_960_160.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

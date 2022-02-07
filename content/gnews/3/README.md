@@ -2,37 +2,32 @@
 ---
 
 
-## 习近平冬奥会欢迎宴未见普京
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1971049/)
+## 中共政府挑选维族选手担任火炬手 美批其别有用心
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1971138/)
 
-作者：日本方舟农场 – Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月5日，习近平和彭丽媛用中国老百姓的税金，为参加中共冬奥会的外国来宾举行欢迎会。中共并未公开参加欢迎会的嘉宾明档。从中共后来公布的视频资料中，看不到本次中共冬奥会最重磅来宾，俄罗斯总统普京的身影。
+**撰稿：日本东京方舟农场 子辰**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-2.jpeg)
+据大纪元2月7日报道，北京冬奥会开幕式上，中共政府挑选了一名新疆维族运动员担任火炬手，这一安排引发谴责，美批中共政府完全是别有用心。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-99.jpg)（图片来自《大纪元》）
+2月4日北京冬奥会开幕式上，20岁的维吾尔族选手迪妮格尔‧衣拉木江（Dinigeer Yilamujiang）以担任最后两名火炬手之一的身份出现在了全球电视荧幕与鸟巢国家体育场观众面前。
 
-墙内自媒体爆出，普京早在2月4日跟习签署15个协议，并宛如被隔离一般的参加冬奥会开幕式后，于当晚11点火速了中共国。
+随后，中共外交官们在衣拉木江点燃圣火后，纷纷在推特（Twitter）特意转发她家人鼓掌观看开幕式的影片。
 
-在2月4日的大直播中，郭先生爆料称，普京团队抵京后就有16人感染了中共病毒，其下榻的酒店内有3人死亡，这让普京对中共非常恼怒。而普京未在欢迎宴露面，也间接验证了这个消息。
+据美国驻联合国大使琳达·托马斯- 格林菲尔德（Linda Thomas-Greenfield）周日接受美国有线电视新闻网（CNN）「State of the Union」节目采访时说，中共政府让一名维吾尔运动员在北京冬奥会上点燃奥运圣火，是为了分散人们对中共政府对穆斯林少数民族实施种族灭绝的注意力。
+
+她还强调说，必须要持续把中共人权侵犯作为关注的中心，因为我们知道那里发生了种族灭绝，反人类罪行正在中共国发生。
+
+另据，美国马里兰州霜堡州立大学（Frostburg State University）副教授、新疆问题专家马海云（Ma Haiyun）表示，中共当局选出这名火炬手就是想要回应西方所提出的中共政府对维吾尔族实施种族灭绝及迫害，以及对少数族裔实施汉化的指责。
+
+此前，美国、澳大利亚、加拿大和英国早已因中共政府恶劣的人权侵犯问题而宣布外交抵制北京冬奥会，而今中共此番举动，实属卑劣及别有用心。
 
 参考链接：
-1.[https://www.gettr.com/post/pssbvk4709](https://www.gettr.com/post/pssbvk4709)
-2.[中俄签署一系列合作文件](http://politics.people.com.cn/n1/2022/0204/c1001-32345503.html)
-3.[https://gettr.com/post/psp8nmfc64](https://gettr.com/post/psp8nmfc64)
+[https://www.epochtimes.com/b5/22/2/6/n13559004.htm](https://www.epochtimes.com/b5/22/2/6/n13559004.htm)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+素材采编：子辰
+编辑：老孙
+发布：爱放飞
 
-总编：Jack Li文阳
-编辑：静言
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
