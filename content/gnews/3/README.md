@@ -2,44 +2,25 @@
 ---
 
 
-## 赵立坚、秦刚等中共外交人员对自己的狂妄言论深信不疑
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1969110/)
+## 我看到我自己的时候我我更加警醒我是有使命的
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1969168/)
 
-G-TV视频链接：[https://gtv.org/video/id=6200872d585ecc15d73e5d52](https://gtv.org/video/id=6200872d585ecc15d73e5d52)
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-**郭文贵先生：**你看那个外交部赵立坚那是什么，还有那“战狼”过去这些人，什么秦刚，还有什么一切的外交部人员，你一定要记住：他站那儿讲话，你别以为他以为说的是假话，他深信不疑。
+我看过多遍我跟你们说过，后来我拿他擦去。递给了信心，老师，递给我们老师擦屁股纸去了。因为那时候发了好多呀，都在那，那什么大有作为呀，是不是啊，那个邓小平个子矮呀，拿着鸡鸡当他奶呀，那是在骂邓小平，你看我们当时看到骂邓小平，最后邓小平上台，最后李先念聂荣臻杨得志汪东兴是吧，夸夸夸起来。
 
-就像当时伊拉克那个乌达那个发言人一样，说：“记住美帝国主义，明天你们家的卧室就会看到伊拉克的军队的存在！”他深信不疑的。南斯拉夫当时发言人告诉美军：“这里是你的地狱，会让你美军葬身于南斯拉夫。”  利比亚卡扎菲把那个地壳给挖了30年弄一大水引过来了，说：“这个水会淹死所有的美国人。” 他拿钱去资助那些所谓的恐怖组织去，炸掉飞机。你以为卡扎菲是疯了吗？卡扎菲深信不疑，末路是什么？最后他被干掉，解放了。
+然后从1977的直接到1978到11大。然后打倒。林彪4人帮反党集团。然后汪东兴起来，哇塞，这个是很大。好不好？11大，今天我在看，那个时候郭文贵诞生，就是晚了几年，在早几年绝对就没有共产党了，绝对没了。我非常自信啊。我生下来我认为特别我看到我的照片，我现在看自己照片，我真的是我一看就现在就在我手机里做封面啊。我每天看着我就就鼻子酸，你想流泪，因为我很久没看到我8岁的照片了，我一看我吧，就想流泪啊。我是拿着它这个专业就在我的手机上当封面，但是我看到我自己的时候我我更加警醒我是有使命的，所以说你回答所以的问题人的到今天这个梦的来源绝对和你在做梦之前你穿啥衣服，你白天你见了啥干啥事儿，我不相信，白天你吃了猪食，晚上你做着的人梦。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/我看到我自己的时候我我更加警醒我是有使命的.001.jpeg)
+2022年1月7日文贵大直播
 
-“丧心病狂”这四个字儿对待所有走极端的人都是适合的，包括路大脑袋、蛇妖闫，还有什么黄河边，还有什么九指妖、欺民贼，就“丧心病狂”，就不接受任何真实的，不能客观地看待自己，也不能看待事物的真实存在。
-
-字幕来源：[2022年1月27日 文贵大直播 全文字版](https://gnews.org/zh-hans/1924957/)
-
-编辑整理：Jacques；
-
-字幕文件制作：知津；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+*发布：tianzhihuan*
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

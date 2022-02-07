@@ -2,24 +2,20 @@
 ---
 
 
-## 阿尔伯塔省计划提前结束疫苗护照
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1968995/)
+## 我们直播一定会成功
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1969052/)
 
-采编：Spirit           编辑撰稿：硫酸羟氯喹64
-![](https://assets.gnews.org/wp-content/uploads/2022/02/moteur-ohdio-vaccin-vph.jpg)
-据加拿大[环球邮报]2月4 日报道，阿尔伯塔省政府目前正准备在全省范围内停止正在使用的疫苗护照和大部分疫情限制措施。
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-为此，省长肯尼表示，如果该省医疗系统的疫情压力持续减缓，就将分阶段在2月底之前停止现行的各项防疫措施。并声称，阿省的高疫苗接种率以及下降的病毒感染人数，使得以上决定可行。
+*发布：陶子*
 
-目前，阿省的所有酒吧，餐馆，影剧院等公共消费及娱乐场所都需要疫苗护照，尽管该措施原则上是自愿进行，但不执行该规定的商家将会在包括降低客户数量等方面受到当局的限制。
-
-据悉，近期以来，肯尼省长受到了来自各界和其他政党越来越大的压力，特别是目前正在渥太华进行的卡车司机抗议运动，都使得当局开始意识到疫苗护照因严重侵犯了个人权利，而必须立即取消。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：文明(添草灭共)
-
-[原文链接](https://www.theglobeandmail.com/canada/article-kenney-to-announce-next-week-the-date-alberta-will-end-its-covid-19/)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

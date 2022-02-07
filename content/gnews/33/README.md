@@ -2,36 +2,26 @@
 ---
 
 
-## 美国众议院通过《美国竞争法》法案
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1968597/)
+## 澳防长预警：如不对抗中共 澳将失去未来十年
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1968636/)
 
-**【雅典娜快讯】，紧贴时代脉搏**
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-625.png)[图片来源](https://asiapowerwatch.com/will-the-real-china-please-stand-up/)
+澳大利亚国防部长皮特·杜登（Peter Dutton）警告，澳大利亚及其盟国必须在南海议题上挺身抵抗中共国，否则将会“失去未来十年”。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/pelosi-COMPETES-Act.png)Courthouse News Service
+悉尼晨驱报2月7日头版报导，标题为“杜登表示我们必须挺身面对中共国”。杜登说，美国及其盟国过去一度采取“默许”态度，任由中共国在主权有争议的南海航道上兴建人工岛，以及在珊瑚礁上兴建防卫基地。
 
+杜登认为，为了确保中共国不会重覆过去十年将南海军事化的做法，澳大利亚及盟国需要向中共国表明立场；他说，假如任由目前情况发展下去，澳洲及盟国将会“失去下一个十年”。
 
-**整理：**Eileen（围剿维尼熊）
-**编辑：**翼族
+“四方安全对话”（Quad）外长会议将于本周在墨尔本举行，杜登发言与此有关。悉尼晨驱报表示，预料“四方安全对话”外长会议将会讨论美、日、澳、印四国该如何加强防卫及经济发展合作，以便对抗中共国。
 
-根据《联合报》报道：美国联邦众议院2月4日表决通过《美国竞争法》（America COMPETES Act），斥资三千五百亿美元推动美国半导体产业，强化美国对中国大陆的竞争力。法案同时呼吁行政部门将“驻美国台北经济文化代表处”（TECRO）更名为“台湾代表处”（Taiwan Representative Office）。
+报导提到，专家认为，为了协助维护印太地区和平，澳洲未来国防预算势必要增加。澳洲去年国防预算为446亿澳元，占澳洲国内生产毛额（GDP）2.1%；对于澳洲军力是否足以协助维护印太地区和平，已引起防卫专家的担心。
 
-商务部长雷蒙多称，这是五十年来促进美国竞争力、制造和研发能力的最大投资案。众院科学委员会主席强森表示，这将可帮助美国与中共国“大干一场”。
+消息来源：[**澳洲防長：南海議題須抵抗中國大陸 否則失去未來十年**](https://tw.news.yahoo.com/%E6%BE%B3%E6%B4%B2%E9%98%B2%E9%95%B7%EF%BC%9A%E5%8D%97%E6%B5%B7%E8%AD%B0%E9%A1%8C%E9%A0%88%E6%8A%B5%E6%8A%97%E4%B8%AD%E5%9C%8B%E5%A4%A7%E9%99%B8-%E5%90%A6%E5%89%87%E5%A4%B1%E5%8E%BB%E6%9C%AA%E4%BE%86%E5%8D%81%E5%B9%B4-022318642.ht)
 
-众议院通过法案后，下一步就是参众两院整合版本，分别取得多数议员支持后，才能送交白宫由拜登签署实施。
-
-法案涵盖多项与台湾相关的条款，包括强化美台伙伴关系、协助台湾发展不对称防卫能力、协助台湾有意义参与包括世界卫生大会（WHA）等国际组织、强化美台双边经贸与科技合作。
-
-**参考链接**：[美眾院通過抗中挺台法案](https://udn.com/news/story/6813/6078352?from=udn-catebreaknews_ch2)
-
-*发布：*翼族
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
