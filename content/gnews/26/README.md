@@ -2,10 +2,10 @@
 ---
 
 
-## 中共国没有宗教自由，没有言论自由，没有思想自由
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1970396/)
+## NBA明星埃内斯·坎特·自由关于中共种族灭绝奥运广告
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1970398/)
 
-02/05/2022 Hannity：中共国没有自由，没有宗教自由，没有言论自由，没有思想自由，一点自由都没有。
+02/05/2022 NBA明星埃内斯·坎特·自由关于中共种族灭绝奥运赛事的广告。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

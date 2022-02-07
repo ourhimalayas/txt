@@ -2,18 +2,12 @@
 ---
 
 
-## 西媒头条 — 第167期 – 西媒看天朝
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1970292/)
+## 随着中共病毒失控，迟早会有政府首脑住进北京重症监护室
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1970299/)
 
-制作：蚂蚁兄弟
+02/05/2022 本·哈恩威尔：随着这场中共病毒危机的失控，我们将看到总统和政府首脑和运动员一起进入北京综合医院重症监护室，而这只是时间问题。那就是恐惧，一种非常现实的恐惧。
 
-**从西班牙语外界媒体读天朝，多一个视角，多一份辨别真伪的信息。**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/xm220207.002.jpeg)
-
-发稿：信心的选择
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH..jpeg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
