@@ -2,24 +2,49 @@
 ---
 
 
-## 岸田首相为保支持率把东京和大阪推向疫苗接种最前沿
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1968839/)
+## 澳洲一国党参议员说，疫苗真实成份没有公布
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1968991/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-629.png)（图片源自本文链接）
-2月7日共同通信社消息：由自卫队运营的中共病毒(新冠病毒Covid-19)疫苗大规模接种活动于7日正式开始。东京会场每天的接种人数比前一周增加了三倍，达到2160人。大阪会场也在一栋民间建筑中开始了疫苗接种。
+#### **雅典娜【聚焦澳洲】，汇聚澳洲時事分析报道**
 
-东京10日开始，配额逐渐增加到每天5,040人。大阪也为扩大接种规模而开始选择场地。首相岸田文雄在下议院预算委员会会议上说：将在14日之前把接种者人数扩大到每天约2500人。
+整理/编辑：文泓
 
-政府希望吸引大量申请者到自卫队会场接种，呼吁加快第三轮疫苗接种，因为第三轮疫苗接种被批评拖延了。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/32.png)图片来源：8satire.com
 
-现在，与2020年初病毒刚刚开始流行时不同，已经有那么多病毒专家和医生们开始为正义发声，揭露疫苗真相了。作为一个科技先进国家的政府，难道会一点信息都没有吗？可为什么还会有人批评政府推进疫苗接种工作不够及时呢？这些人居心何在呢？作为首相的岸田，难道就那么在意来自这些人的支持率吗？
 
-信息来源：[自衛隊接種が本格稼働 東京3倍、大阪来週拡大へ (msn.com)](https://www.msn.com/ja-jp/news/national/%E8%87%AA%E8%A1%9B%E9%9A%8A%E6%8E%A5%E7%A8%AE%E3%81%8C%E6%9C%AC%E6%A0%BC%E7%A8%BC%E5%83%8D-%E6%9D%B1%E4%BA%AC3%E5%80%8D-%E5%A4%A7%E9%98%AA%E6%9D%A5%E9%80%B1%E6%8B%A1%E5%A4%A7%E3%81%B8/ar-AATxA7r?ocid=msedgntp)
+据《澳大利亚人报》报道，近日，一国党参议员马尔科姆·罗伯茨说，连薯片都提供成分清单，而新冠疫苗的成分却没有公开。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+1月13日，[罗伯茨参议员](https://www.aph.gov.au/Senators_and_Members/Parliamentarian?MPID=266524)曾发推文，“按照法律，超市里连一包薯片的成分却必须公布，为什么疫苗的成分没有公布？”
+
+回复媒体询问时，罗伯茨参议员的办公室表示，他推文所说的是新冠疫苗。
+
+在澳大利亚药品和医疗用品的管理机构TGA在[澳大利亚治疗用品登记名录](https://www.tga.gov.au/australian-register-therapeutic-goods)上公布了所有[获批新冠疫苗](https://www.tga.gov.au/covid-19-vaccines)的信息。
+
+由澳大利亚[联邦、各州和领地政府资助](https://about.healthdirect.gov.au/who-we-are)的网站Healthdirect称，[新冠疫苗的成分](https://www.healthdirect.gov.au/covid-19-vaccination/about-the-covid-19-vaccines#ingredients)根据产品不同有所差异，但可能包含以下成分：
+
+- 病毒的蛋白质片段；
+- 遗传密码（DNA或mRNA）片段；
+- 很少量毒性减弱的病毒；
+- 增强免疫反应的一种物质（称为佐剂）；
+- 注射用灭菌盐水（生理盐水）；
+- 少量防腐剂或稳定剂以确保疫苗经过储存与运输依然有效。
+
+
+在**与媒体**联络时，罗伯茨参议员的发言人承认TGA网站上公布所谓新冠疫苗的成分，但她在电子邮件中表示“关于这些成分和相关成分对病人的影响按照人们对知情同意的预期只有有限的披露或没有披露”。
+
+众所周知，处于实验阶段的新冠疫苗，目前是在紧急授权下使用。可以确定疫苗里含有信使RNA用来制造刺突蛋白，还能阻止身体清除信使RNA；还有脂质纳米颗粒、有聚乙二醇。有一位德国医生生前发现里面有氢氧化石墨烯，在血液流动中有可能破裂，引发血栓、心脏病和中风。这些深层的揭露，普通人在政府网站上是看不到的。
+
+新闻链接：[一国党参议员说疫苗“没有公布”成分信息](https://cn.theaustralian.com.au/2022/01/31/63050/)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

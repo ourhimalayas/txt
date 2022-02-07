@@ -2,26 +2,54 @@
 ---
 
 
-## 三个工作重心 | 新中国联邦力图阻止反华，团结人心，做好教育
-` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1967443/)
+## 冬奥前夕 京城疫情有加重迹象
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1968371/)
 
-新西兰伊甸农场Gnews组 财经G乐部-亚伦
-
-2月6日，郭文贵先生于GTV、Gettr大直播中公布今年新中国联邦的三个工作重心，并表示，人生做再多正确的决定，若做错一次，有可能一切皆毁。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/bb0bd88f0d3f6f3856a10d3712ebbd29.jpg)图片来源Gettr
+作者：纽约香草山农场 – Noemi
 
 
-G系列生态圈是新中国联邦的核心力量，自王者GTV的诞生到Hcoin（喜币）目前500多倍的收益，再到0手续费Hpay（喜支付）的汇通天下，我们已经做的够多够优秀。所以，今年要把已有的项目做好，不再延展其他新的项目，避免无限扩张而引发灾难。这样新中国联邦可以把更多的精力集中在今年最大的挑战——排华问题，如何阻止世界范围的排华浪潮是新中国联邦的首要课题。阻止不了西方世界的排华骚乱，灭共也就失去了原本的意义。
 
-第二、要让国内更多的人参与到爆料革命，除了继续做好直播、文宣的工作，还会实施B计划，即让国内音乐界、教育界、军界、情报界、地方政府、企业界等也能得到Hcoin（喜币），未来也能按照使用标准享受到“躺平币”。届时，从东北的山沟到喜马拉雅的山脚，每个人都能闻到Hcoin（喜币）和“躺平币”的味道。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/c9acc3ac59b937e9d8ba81cf013107f5.jpg)图片来源Gettr
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
 
-由于小学博士习近平自身对真理和人性认知的局限性与掌握最高权力的巨大矛盾，深刻诠释了没有和能力、权力相匹配的教育，任何的成功一定是更大的灾难。
 
-所以第三、新中国联邦要把新中国人的G-EDU（G教育）做好，这是新中国的未来和希望。具体的激励政策是，凡是原新东方（或同等级别的）员工参与到G-EDU（G教育）的建设，将得到1.5倍原工资待遇，特殊贡献者甚至可以得到2倍原工资待遇，还可以选择用Hcoin（喜币）或者HDO（喜美元）支付工资，有意愿者请速与磐石农场联系。用按小时、按天、按周支付Hcoin（喜币）和HDO（喜美元）的实际行动做到走新东方的路，让新东方无路可走。
+2月4日，媒体传出两则与北京相关的疫情消息，一是与北京紧邻的河北省廊坊市固安县突因两例确诊病例封城，确诊病例疑为由京返乡人员；二是北京地坛医院一名应急隔离区的医生在日前确诊中共病毒阳性后，该医院的门诊工作全部暂停。
 
-魔鬼在咆哮，苍天在愤怒，G系列在拯救。世界经济和供应链的崩塌，新冠病毒和新冠毒疫苗对全人类的威胁，世界面临大重启，新中国联邦风景独好。
+在固安，城全域内所有小区、公共场所、高速路口已全部封闭，除正在进行的全员核酸检测外，所有街道空无一人。
+
+而地坛医院是北京市内一家主要负责接收中共病毒患者的传染病医院。在疫情发生后，该医院及其周边的店铺、酒店均已被中共当局完全封控。
+
+此前，郭文贵先生就已指出，疫情在中共国内已经失控，中共的医护人员状况更是岌岌可危。两则疫情信息似乎更加印证了郭先生这一爆料。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-2.jpg)
+参考信息：
+1. [冬奥开幕式在即，京南一县城突曝因疫情封城：2月4日上午7点30分，河北省廊坊市固安县因两例确诊病例封城，确诊病例疑为由京返乡人员。](https://www.gettr.com/post/pse7ef5cc5)
+2.[#固安疫情最新通报# #河北头条##廊坊头条# 河北固安今日7点30分对全区域进行管控，全员核酸，车辆不让进出固安县，高速口已经不允许车辆下高速，加油加油加油，很快就能战胜疫情](https://www.toutiao.com/w/a1723812693596174/?traffic_source=&amp;traffic_source=&amp;in_ogs=&amp;in_ogs=&amp;utm_source=&amp;utm_source=&amp;source=search_tab&amp;source=input&amp;utm_medium=wap_search&amp;utm_medium=wap_search&amp;original_source=&amp;original_source=&amp;in_tfs=&amp;in_tfs=&amp;channel=&amp;channel=)
+3. [固安县行政审批局召开疫情部署会议](https://3g.163.com/local/article/GVC62ELU04159CNM.html)
+4. [北京地坛医院医生染疫 所有门诊停诊](https://www.epochtimes.com/gb/22/2/4/n13554537.htm)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+
+总编：Irene木木
+编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
