@@ -2,20 +2,33 @@
 ---
 
 
-## 共产党冬奥会秘密主打歌《塞北的雪》
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1969817/)
+## 【TopNews】马克龙前往莫斯科试图缓解俄罗斯乌克兰紧张局势
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/1969921/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+![400.jpeg](https://assets.gnews.org/wp-content/uploads/2022/02/0894FB1F-C822-4C91-96A1-FD7B83A98BB4.jpeg)*莫斯科（美联社）*
+据美联社2022年2月7日报道，法国总统马克龙将于本周一在莫斯科举行会谈，以帮助缓和乌克兰周围的紧张局势。
 
-*发布：陶子*
+估计有 100,000 名俄罗斯军队在乌克兰附近集结，这加剧了西方的担忧，即这预示着可能的攻势。白宫国家安全顾问[杰克沙利文周日警告](https://apnews.com/4f766b3b07014bddb9006d44a9f240b8)称，俄罗斯可能“随时”入侵乌克兰，引发一场冲突，以及“巨大的人力成本。”
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+俄罗斯否认有任何袭击邻国的计划，但敦促美国及其盟国禁止乌克兰和其他前苏联国家加入北约，停止在那里部署武器，并从东欧撤出北约部队。华盛顿和北约拒绝了这些要求。
+
+马克龙将于周二访问乌克兰之前在克里姆林宫与俄罗斯总统弗拉基米尔·普京会面，他上周表示，他的首要任务是“与俄罗斯对话和缓和局势”。
+
+在前往莫斯科之前，马克龙周日与美国总统乔拜登通了电话。白宫在一份声明中说，他们讨论了“为应对俄罗斯在乌克兰边境持续进行军事集结而进行的外交和威慑努力，并申明他们对乌克兰主权和领土完整的支持”。
+
+此外，马克龙周日在接受法国报纸 Journal du Dimanche 采访时表示，“乌克兰或任何其他欧洲国家的安全和主权不能成为妥协的主题，而俄罗斯提出自身安全问题也是合法的。”
+
+在俄罗斯军事集结的紧张局势中，来自俄罗斯、乌克兰、法国和德国四个国家的总统顾问于1月26日在巴黎举行了会谈，但他们没有取得任何明显进展，并同意两周后在柏林再次会面。
+
+上周，乌克兰国家安全和国防委员会秘书奥列克西·丹尼洛夫告诉美联社，乌克兰试图履行明斯克协议可能引发内部动荡，这将影响莫斯科。
+
+[援引链接](https://apnews.com/article/russia-ukraine-joe-biden-vladimir-putin-europe-moscow-46f8be10fa71af16bae8f3a9bd82918d)
+
+撰稿/米拉娅
+
+审阅/邱杰斯
+
+上传/天赐良闻
 
  
 

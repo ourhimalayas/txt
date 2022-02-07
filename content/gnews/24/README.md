@@ -2,10 +2,10 @@
 ---
 
 
-## 当务之急是各州要立即采取行动阻止疫苗强制令
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1969422/)
+## NBA篮球明星奥尼尔：你不该被强迫去接种你不想打的疫苗
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1969434/)
 
-02/03/2022 战斗室：当务之急是各州要立即采取行动阻止疫苗强制令。全美范围内现在有好几个好的法案。
+02/04/2022 NBA篮球明星奥尼尔：我鼓励大家注意安全，照顾好家人。你不该被强迫去接种你不想打的疫苗。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

@@ -2,27 +2,42 @@
 ---
 
 
-## 疫苗是比病毒还可怕
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1969748/)
+## GTV投资者对G系列的控股权未来要写入法律作为保证
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1969849/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+G-TV视频链接：[https://gtv.org/video/id=620092f2585ecc15d73e621f](https://gtv.org/video/id=620092f2585ecc15d73e621f)
 
-科学家他说一定是让你长期有病和让你短期死亡。
+**郭文贵先生：**那你G-TV的控股公司拥有控股权，这就是永远要记住，最早投G-TV的人就是我们新中国联邦人的亲爷爷，第一代，永远好事必须得考虑他们这些老椅子、G-Clubs，是必须的，任何东西都得给他。
 
-他说这都是生化武器，他可以做得到的。他问为什么没人小心呢？我说我也没办法爆料革命现在已经做到这一步，他说你知道，我跟这个政府国家谈，他说让我去跟他秘密作证。他给他说了不到5分钟，他说所有屋子人说，哎呀别说，你停，你停，还有他说让我们休息几分钟就到隔壁去休息去了，他休息了20分钟回来，每个人脸色铁青。
+咱新中国联邦那未来的就是这些东西都要写入到法律去，你等这个控股公司完了以后。1:10为啥送啊？1:10送了你还能够当得住，不送的话你们这点股份一对比就把你兑没了，是吧？你端着一杯水来了，觉得自己很牛的，人家“哐叽”来一大海，你还想啥呢？没了。就是让你们的份额在一定的范围内。战友们的钱就那点钱几个亿钱，你算啥嘛，是不是？才多少个币？但是要把你这个钱固定在一定股份上，拥有这个控股权（在）G系列，这个才重要。
 
-他说他们是真的是知道这个疫苗是比这个病毒还可怕的。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/疫苗是比病毒还可怕.001.jpeg)
-2022年1月7日文贵大直播
+字幕来源：[2022年1月27日 文贵大直播 全文字版](https://gnews.org/zh-hans/1924957/)
 
-*发布：tianzhihuan*
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+编辑整理：喜马拉雅的肉夹馍；
+
+字幕文件制作：大好河山；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

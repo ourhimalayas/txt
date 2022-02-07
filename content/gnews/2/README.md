@@ -2,50 +2,44 @@
 ---
 
 
-## 澳洲即将开放国际边界，仅完全接种可以入境
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1969833/)
+## FBI局长在奥运会前指责中共国“比任何时候更具破坏性”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1969925/)
 
-**【雅典娜快讯】，紧贴时代脉搏**
+据《每日来电者》白宫高级记者谢尔比·塔尔科特(Shelby Talcott)，
+2022年2月1日美国东部时间上午11:33报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-653.png)图片来源：法新社Getty图片/Oliver Douliery
+联邦调查局局长克里斯托弗·雷（Christopher Wray）周一发出严厉警告，同时指责中共国对美国进行创新盗窃。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-648.png)
+该演讲在罗纳德·里根总统图书馆发表, 恰逢即将在中共国北京举行2022年冬季奥运会。由于侵犯人权等原因，乔·拜登(Joe Biden)总统宣布对奥运会进行外交抵制，并已就美国运动员的安全向他们发出了警告。
 
-**图片来源：CNN**
+据美联社获得的一份演讲副本，雷(Wray)警告说：“没有哪个国家……对我们的思想、创新和经济安全构成了比中共国更广泛的威胁。”
+
+据美联社报道，雷(Wray)说：“中共国经济间谍活动的危害不仅在于其公司依靠非法获得的技术领先一步。” “当他们领先时，他们把我们的公司和工人推到后面。这种伤害——公司倒闭、失业——已经积累了十年，直到我们今天感到的挫败。全国各行各业的工人都感受到了这种伤害。”
+
+雷(Wray)补充说：“我今晚重点讲的是这方面[来自中共国的威胁]，因为它达到了一个新的水平——比以往任何时候都更加肆无忌惮、更具破坏性——，而且至关重要，我们所有人需要一起关注这一威胁。”
+
+据英国广播公司报道，人权观察警告参加冬奥会的运动员对中共国的侵权行为“保持沉默”。北京2022年国际关系部副主任誓言，如果运动员说出“违反中共国法律法规”的话，可能会面临“一定的惩罚”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-654.png)2022年2月1日，在北京2022年冬奥会之前，一名来自美国的运动员在张家口云顶雪地公园参加女子自由式滑雪的练习赛。图片来源：法新社Getty图片社/ Marco Bertorello
+联邦调查局还建议美国运动员将手机留在家中，而在比赛时使用临时手机。
+
+白宫新闻秘书珍·普萨基 (Jen Psaki) 周一告诉记者，在即将到来的奥运会上，政府“非常关注美国运动员的安全”。
+
+“在运动员方面，我们尽一切可能与美国奥委会合作，” 普萨基 (Psaki) 说。 “我们正在为我们的运动员、教练员和工作人员提供领事和安全服务，就像我们为海外的所有美国公民所做的那样。”
+
+新闻秘书继续说道，“此外，我们希望中共国确保我们运动员的安全和福祉，并指出会“全力支持”运动员。
+
+文章来源：[**https://dailycaller.com/2022/02/01/fbi-chief-christopher-wray-speech-hacking-stealing-china-olympics/**](https://dailycaller.com/2022/02/01/fbi-chief-christopher-wray-speech-hacking-stealing-china-olympics/)
+
+翻译：洛杉矶盘古农场 – WH
+校对：洛杉矶盘古农场 – Freeearth
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – Grace
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 
-**整理/编辑：文泓**
-
-2月7日，据SBS新闻报道，澳大利亚重新开放国际边界日期已确定，在关闭国际旅行大门近两年后，已完全接种疫苗的国际游客将很快能够返回。
-
-周一，澳大利亚总理斯科特·莫里森宣布，**从2月21日起，向所有完全接种疫苗的签证持有人重新开放国际边界，包括所有国际游客，将被允许在两周内返回澳洲。**
-
-“欢迎全世界的人回来，我认为这是澳大利亚正在实现的另一个重要里程碑，”莫里森先生告诉记者。
-
-这一决定标志着新冠旅行限制的又一次放宽，最初的旅行限制放宽是在近两年前的2020年3月20日实施。
-
-自去年12月以来，对国际学生、打工度假者签证持有人和技术移民的旅行限制已经放宽。**国际入境者将被要求出示完全疫苗接种证明，或出示不能接种疫苗的有效医疗豁免理由。**
-
-在受到持续关闭边境的影响后，本地旅游部门一直在推动国际边境重新开放能够得以确定。旅游和运输论坛首席执行官马吉·奥斯曼德对这一决定表示欢迎，但表示细节问题仍有待解决。
-
-澳大利亚商业理事会（BCA）也对此举表示欢迎。
-
-商业委员会首席执行官珍妮弗·韦斯塔科特说：“澳大利亚重新向世界开放，标志着我们在管理新冠疫情方面迈出了关键的一步，使我们能够为我们的经济复苏提供动力。”
-
-**基于州的检疫规则，将继续根据每个司法管辖区的情况执行。**
-
-大多数州和地区允许来自海外免于检疫的旅行，目前，只有西澳保持着两周（隔离）的要求。
-
-自从西澳州长马克·麦高恩决定推迟2月5日的最后期限后，西澳州对联邦其他地区的边境重新开放被无限期地推迟了。
-
-新闻链接：[Fully vaccinated tourists to return to Australia as international border reopening date revealed (sbs.com.au)](https://www.sbs.com.au/news/fully-vaccinated-tourists-to-return-to-australia-as-international-border-reopening-date-revealed/8390f6b8-97f1-4c53-b3db-268399e03afa)
-
-*发布：盘古相聚*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

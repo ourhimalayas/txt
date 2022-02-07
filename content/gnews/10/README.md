@@ -2,24 +2,22 @@
 ---
 
 
-## 这个舍利子到底是什么？
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1969765/)
+## 樱花头条┃网球名将彭帅在官员陪同下接受外媒采访 并宣布退休
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1969875/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+撰稿：东京樱花团/樱花传媒
 
-释迦摩尼，他的一个骨头的一部分，就是佛祖的，形成了舍利的一个骨头。确实是啊，完全不一样，你到看到真的舍利子，因为他做了好几个假的展示，很多都是假的啊。只有所谓的常委去了，才把真的拿出来。你真能感受到那种，真的就像磁铁的效应一样，就是能感受到的。所以我相信万佛万神的力量，我相信啊，我绝对相信。如果你不信，你就试试吧。那作死就别信。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/这个舍利子到底是什么.jpg)
-2022年1月7日文贵大直播
+中国网球名将彭帅在中共官员陪同下接受外媒采访时宣布退休，并再次否认了自己被性侵，引发各界关注。 法新社今天（2月7日）报导，彭帅接受法国体育媒体《团队报》（L’Equipe）访问时透露，她在北京冬季奥运与国际奥林匹克委员会（IOC）主席托马斯‧巴赫（Thomas Bach）见了面。
 
-*发布：tianzhihuan*
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+彭帅在访谈中表示，她从未指控任何人性侵她，她也把自己社群媒体上去年11月疑似有这样主张的发文给删除。她还表示，她从来没有“自人间蒸发”。
 
+彭帅每次发声及露面总有中共官员陪同，因此被怀疑是在中共安排下进行。各界为彭帅的人身安全担忧，认为她并未获得自由。
+
+信息来源：[https://gettr.com/post/pt0jxu2091](https://gettr.com/post/pt0jxu2091)
+
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

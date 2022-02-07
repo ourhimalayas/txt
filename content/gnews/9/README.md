@@ -2,26 +2,26 @@
 ---
 
 
-## 美国预测俄罗斯可能在几天内攫取基辅，本周将加强外交方面的努力
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/1969769/)
+## 这个照片儿意义太大了（五）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1969879/)
 
-素材：波士顿五月花 Vicky
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-07-at-5.59.46-PM.png)图片：2月5日，军事教官在乌克兰敖德萨市外的训练课上为平民授课。(Oleksandr Gimanov/AFP/Getty Images)
-美国新的情报评估，俄罗斯的全面入侵可能导致多达*50,000*名平民死亡或受伤，俄罗斯方面驳斥认为这是*“*吓唬人的*“*。
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-美国新的军事和情报评估，俄罗斯可能在几天内占领基辅，并造成多达*5*万名平民伤亡，这一信息披露表明谈判的窗口正在关闭。即便如此，阻止俄罗斯入侵乌克兰的努力仍将在本周进一步加强，世界各国领导人正在加紧推动外交解决方案。
+七哥：
+我要说一下，猫本小哥瑞秋有时候这个他属于这个说话跟七哥一样停不住的人啊，但是他有时候说话真的很重要，而且我很喜欢听。等等，这个新中国联邦议会，我就带她进深山啊。还有她先生我要跟他经常听直到把我听睡着为止。就刚才讲的很重点很。为什么美国塑造的英雄，他有三样东西，永远不会少的一个口号，是吧？will come back是吧大家都觉得Welcome back啊，you must be die啊，because you are so bad guy。你看，这都是每个都有个slogan，所以我们说一切都是刚刚开始，是吧？共产党你完了，第2个，它有一个服饰。就是这个服饰，包括西方的 ，过去的电影军装什么啊，都是服饰啊。
 
-拜登总统将于周一与德国新任总理奥拉夫*–*肖尔茨会面，肖尔茨被指责在与欧洲盟友一起应对俄罗斯的侵略方面做得不够。法国总统马克龙最近再次强调了法国对北约盟国的承诺，他将于周一在莫斯科会见俄罗斯总统普京，然后于周二前往基辅会见乌克兰总统沃洛季米尔*–*泽伦斯基。
+第三件事情，他一定有一个浪漫的故事，浪漫的故事都是男女的故事，是吧？所以说这三样就是好莱坞。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/这个照片儿意义太大了.005.jpeg)
+2022年1月7日文贵大直播
 
-*“*在乌克兰问题上，我的首要任务是与俄罗斯对话和缓和局势，*“*马克龙上周告诉记者。*“*我对当地的局势非常担心。*“*
-
-白宫周日表示，拜登和马克龙通过电话讨论了*“*正在进行的外交和威慑努力，以应对俄罗斯在乌克兰边境的持续军事集结。*”*上周末，俄罗斯高级官员驳斥了美国关于俄罗斯可能在几天内接管基辅的新情报报告，认为这是危言耸听，俄罗斯不可能接管基辅，就如同华盛顿不可能对伦敦进行打击。
-
-参考链接：[As U.S. predicts Russia could seize Kyiv in days, diplomatic efforts set to intensify this week](https://www.washingtonpost.com/world/2022/02/06/ukraine-russia-military-putin/)
-
-* * *
-
-*编辑&发布：Vicky*
+*发布：tianzhihuan*
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
