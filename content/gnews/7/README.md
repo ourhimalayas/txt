@@ -2,51 +2,46 @@
 ---
 
 
-## 美国航母驶入南海，台湾报道称中国进一步入侵
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1969410/)
+## 秦城监狱警察通过被关的当事人对七哥爆料内容逐一验证
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1969517/)
 
-**翻译：【日本东京方舟农场】乾坤一掷**
+G-TV视频链接：[https://gtv.org/video/id=62008d08585ecc15d73e5f5d](https://gtv.org/video/id=62008d08585ecc15d73e5f5d)
 
-台北1月24日，（路透社）- 美国国防部周一表示，两个美国航空母舰编队已进入有争议的南中国海进行训练，因为台湾报告称中共空军入侵了水路航道的上方，其中包括一个令人生畏的新型电子战飞机。
+**郭文贵先生：**在秦城监狱的一个退休的警察，在去年临死前通过家人给我打电话，说：“我这我也快死了，我是工作了一辈子在秦城，从江青看到现在共产党，我这孩子都是共产党员，我们是一碗饭。”
 
-南中国海和自治台湾是中共最敏感的两个领土问题，两个地区都是美中关系频繁紧张的地区。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片-1-2.jpeg)（圖片來源：reuters.com）
-台北1月24日，（路透社）- 美国国防部周一表示，两个美国航空母舰编队已进入有争议的南中国海进行训练，因为台湾报告称中共空军入侵了水路航道的上方，其中包括一个令人生畏的新型电子战飞机。
+“文贵，我在里面最大的快乐就是看你的直播，你说的真假我最清楚，一开始我不信，我拿这些视频我找到那里被抓的人找当事人核对去，都在我这关着呢，说‘这郭文贵讲的是真的’。”
 
-南中国海和自治台湾是中共最敏感的两个领土问题，两个地区都是美中关系频繁紧张的地区。
+他说：“那郭文贵咋知道你跟这一家子人家睡觉？他咋知道啊？” 他说：“因为当时安全部掌握了我的信息。安全部就给我讲数儿，我就当地省里边给他批矿、批木头、批材料、批贷款就把这事儿盖住了。可安全部有这视频掌握，郭文贵就知道了，我本人都不知道，因为他录像时候我不可能知道。”
 
-美国海军舰艇经常在南海中共占领的岛屿附近航行，以挑战中共的主权主张，并穿越台湾海峡，激怒北京。
+但是这些人后来就跟他交流，郭文贵这个人打过交道，他说：“这个人今天能干这样的事，咱没有勇气，把我放出去我也没这个胆啊。”
 
-美国国防部表示，由其旗舰卡尔文森号和亚伯拉罕林肯号指挥的两个美国海军航母打击群已于周日开始在南中国海开展行动。
+字幕来源：[2022年1月27日 文贵大直播 全文字版](https://gnews.org/zh-hans/1924957/)
 
-在一份声明中提到，航母编队将进行包括反潜作战、空中作战和海上拦截作战在内的演习，以加强战备。
+编辑整理：Jacques；
 
-国防部补充说，培训将根据国际法在国际水域进行，但未提供细节。
+字幕文件制作：大好河山；
 
-这样的行动使我们能够提高我们的作战能力，让我们的盟友和合作伙伴放心，并展示我们作为海军确保地区稳定和反击恶意影响的决心。
+视频制作及上传：Cindy；
 
-周日，美国海军报告说，这两个航母编队一直在与日本海军持续在菲律宾海进行演习，该地区包括台湾以东的水域。
+G-News发布：小满；
 
-美国行动的消息恰逢台湾报道中共空军最近有39架飞机大规模侵入其防空识别区-在靠近台湾控制的南海北部普拉塔斯群岛的地区。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-周一台湾报告说，根据台湾国防部提供的地图，该地区还有 13 架中共飞机，其中一架是 Y-8 反潜飞机，飞越将台湾与菲律宾隔开并连接太平洋和南中国海的巴士海峡。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-国防部补充说，两架中共 J-16D 参与了这次任务，尽管它们靠近中国海岸，但一种新型电子攻击型 J-16 战斗机旨在瞄准台湾依赖的防空防御系统。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-中共尚未发表评论，但此前曾表示，此类任务旨在保护其主权，并防止外部干涉其对民主管理的台湾主权主张。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-安全消息人士此前曾告诉路透社，中国飞往台湾防区的航班也可能是对外国军事活动的回应，尤其是在台湾附近的美军，该美军警告北京正在监视该区域，且北京认为有能力处理台湾的任何突发事件。
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-台湾称中共反复在附近开展“灰色地带”军事活动，其目的既是为了让台湾军队反复争夺而消耗殆尽，也是为了考验台湾的反应。
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-台湾也声称拥有对南海重要的航道，有气田和丰富的渔场，而越南、马来西亚、文莱和菲律宾也声称拥有部分领土。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-原文链接：
-[https://www.reuters.com/world/asia-pacific/two-us-carriers-enter-schina-sea-counter-malign-influence-2022-01-24/](https://www.reuters.com/world/asia-pacific/two-us-carriers-enter-schina-sea-counter-malign-influence-2022-01-24/)
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-素材采编：妙喜小油鍋
-校对：妙喜小油鍋
-发布：文曦
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

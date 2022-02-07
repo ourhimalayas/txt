@@ -2,10 +2,10 @@
 ---
 
 
-## 冬奥前夕 京城疫情有加重迹象
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1968371/)
+## 冬奥会是习近平与巴赫的个人政治秀
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1968372/)
 
-作者：纽约香草山农场 – Noemi
+作者：日本方舟农场 – Andy5
 
 
 
@@ -13,24 +13,21 @@
 
 
 
-2月4日，媒体传出两则与北京相关的疫情消息，一是与北京紧邻的河北省廊坊市固安县突因两例确诊病例封城，确诊病例疑为由京返乡人员；二是北京地坛医院一名应急隔离区的医生在日前确诊中共病毒阳性后，该医院的门诊工作全部暂停。
+2月3日，日本三大新闻媒体巨头密集发声，指斥北京冬奥会就是习近平和巴赫企图捞取个人政治资本的一场表演。
 
-在固安，城全域内所有小区、公共场所、高速路口已全部封闭，除正在进行的全员核酸检测外，所有街道空无一人。
+首先，举办地的北京居民，因为要保证冬奥会的蓝天被设置了诸多限制，春节也不被允许燃放烟花爆竹，又因为疫情清零被迫无法回到故乡过年，中共奥运代表队还喊出了“跟随习近平奔向未来”的口号。这都说明冬奥会跟中国百姓无关。
 
-而地坛医院是北京市内一家主要负责接收中共病毒患者的传染病医院。在疫情发生后，该医院及其周边的店铺、酒店均已被中共当局完全封控。
-
-此前，郭文贵先生就已指出，疫情在中共国内已经失控，中共的医护人员状况更是岌岌可危。两则疫情信息似乎更加印证了郭先生这一爆料。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-2.jpg)
-参考信息：
-1. [冬奥开幕式在即，京南一县城突曝因疫情封城：2月4日上午7点30分，河北省廊坊市固安县因两例确诊病例封城，确诊病例疑为由京返乡人员。](https://www.gettr.com/post/pse7ef5cc5)
-2.[#固安疫情最新通报# #河北头条##廊坊头条# 河北固安今日7点30分对全区域进行管控，全员核酸，车辆不让进出固安县，高速口已经不允许车辆下高速，加油加油加油，很快就能战胜疫情](https://www.toutiao.com/w/a1723812693596174/?traffic_source=&amp;traffic_source=&amp;in_ogs=&amp;in_ogs=&amp;utm_source=&amp;utm_source=&amp;source=search_tab&amp;source=input&amp;utm_medium=wap_search&amp;utm_medium=wap_search&amp;original_source=&amp;original_source=&amp;in_tfs=&amp;in_tfs=&amp;channel=&amp;channel=)
-3. [固安县行政审批局召开疫情部署会议](https://3g.163.com/local/article/GVC62ELU04159CNM.html)
-4. [北京地坛医院医生染疫 所有门诊停诊](https://www.epochtimes.com/gb/22/2/4/n13554537.htm)
+其次，作为国际奥委会主席的巴赫，实际上跟习拥有同样的野心，也想突破12年任期的限制，所以不顾疫情持续恶化，相继举行了东京夏季奥运会和北京冬季奥运会，希望以此作为自己的政治资本。 自今年1月以来的爆料革命大直播中，郭文贵先生反复强调，北京冬奥会，就是习近平等人的个人政治秀，跟中国老百姓没有任何关系。现在日本媒体的密集报道，更加印证了爆料革命这一观点。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-2.jpg)
+参考信息及视频链接：
+1. [20220201日媒揭露CCP冬奧會無新聞自由](https://www.gettr.com/post/psbbzz209f)
+2. [20220201日本FNN+0105七哥大直播](https://www.gettr.com/post/psehad08ea)
+3. [20220203日本TBS報導北京冬奧會就是為了巴赫和習近平而舉辦的！](https://www.gettr.com/post/pse20vc850)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
 
 总编：Irene木木
-编辑：飞虹
+编辑：飞虹，文特
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**

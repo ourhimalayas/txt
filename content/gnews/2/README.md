@@ -2,62 +2,44 @@
 ---
 
 
-## 中共量中华之物力结与国之欢心令希特勒斯大林望尘莫及
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1969488/)
+## 世界经济论坛利用全球青年领袖计划渗透各国政府
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1969628/)
 
-G-TV视频链接：[https://gtv.org/video/id=62008c7e585ecc15d73e5f37](https://gtv.org/video/id=62008c7e585ecc15d73e5f37)
+#### 翻译/撰稿：zzballack
 
-**郭文贵先生：**现在我从俄罗斯方了解到，就是普京去北京现在的安排，过去的是22个小时，延伸到48个小时，从人民大会堂的吃饭。然后现在普京现在有麻烦了和这个习，他现在是习和普京两个人在一个包厢，就他俩。这个“甜蜜蜜”运动一开始发生了啥事？知道吗佳佳？
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-22.png)图片来源：The Expose UK
+据《真理卫士》（The True Defender）2月6日报道，在新冠大流行中，全球190多个国家的政府几乎步调一致地采用相同措施来应对疫情：封锁、强制口罩和疫苗护照等等，为什么会这样？答案在于世界经济论坛（WEF）主席克劳斯·施瓦布（Klaus Schwab）所管理的全球青年领袖学校（Young Global Leaders School），政界和商界领袖中的许多人在到达高层的过程中都在该学校留下过痕迹。
 
-刚才你问的问题特别好，“甜蜜蜜”运动让全世界都想揍中共，都举着棒子揍，要钱要机会，所以这些人说：“你看，我们领导来…..”像埃及，埃及总统肯定来，沙特王子本萨勒曼肯定来，阿布扎比王子来。
+这是一个由政治和企业领导人组成的秘密联盟，他们操纵人民、摧毁国家经济、并引入一种新的全球数字货币。这个组织包括法国总统马埃马纽埃尔·马克龙(Emmanuel Macron)、加拿大总理贾斯廷·特鲁多 (Justin Trudeau)、新西兰总理杰辛达·阿德恩 (Jacinda Ardern)和英国首相鲍里斯·约翰逊 (Boris Johnson)。克劳斯·施瓦布曾亲口说过的一段话可证实此事：“我不得不说，默克尔、弗拉基米尔·普京 (Vladimir Putin)等人都曾是世界经济论坛的全球青年领袖。但现在真正让我们感到骄傲的是年轻一代，比如特鲁多总理和阿根廷总统等人。我们渗透进了（各国政府的）内阁。我知道在特鲁多政府的内阁当中，半数人都是世界经济论坛的全球青年领袖。”
 
-人家卖油，大家你们你看咱们战友这时候一定说了：“你看看这些人都是我们敌人。” 战友们，你们也得长长脑子啊，你像阿布扎比这样的国家，人家卖油，是吧？你知道一年几千亿美金对人家一个100万人口的国家是啥概念？
+WEF是一个非政府组织，由德国工程师和经济学家克劳斯·施瓦布于1971年在瑞士创立，当时他32岁。WEF因每年1月在达沃斯举行年会而闻名于世，它是全球主义精英们在世界上最重要的网络之一，获得了成千上万家跨国企业的资助。
 
-如果现在谁如果是给喜币投5000个亿，王岐山说：“郭文贵你过来到我那脱个裤子”，我现在就脱。我能给喜币、我给大家赚5000亿，为啥不赚？你如果不这么干，你就不配当大家这个集体领导人了，是不是？人家国家利益第一，凭啥都能骗你钱为啥不骗你去啊？5000亿了，500亿都值得来一把，是吧？给自己的国民。
+WEF在1987年之前被称为欧洲管理论坛（EU Management Forum）。1992年，施瓦布建立了一个平行机构—全球明日领袖（Global Leaders for Tomorrow）学校，并在2004年重建为全球青年领袖（Young Global Leaders）学校。该学校的学员必须申请入学，而且选拔过程非常严格。1992年的第一期学员包括前德国总理安格拉·默克尔 (Angela Merkel)、前法国总统尼古拉·萨科齐 (Nicolas Sarkozy)和前英首相托尼·布莱尔 (Tony Blair)。
 
-所以说人家这些人都去，这些人都去。巴基斯坦要去，是吧？南韩还说派议长去，南韩要派议长去，非洲说：“我要派个总统或者副总统去”。马克龙现在已经大交易了，马克龙说：“你再增加50台空客飞机，我（就）去。”
+到目前为止，总计有1300人从这所学校毕业。这些毕业生中，不乏国家卫生机构的掌管者，其中有四位是德国部长：比如延斯·史潘 (Jens Spahn)、菲利普·罗斯勒 (Philipp Rösler，前德国联邦卫生部长，[郭先生曾爆料说他是姚依林的私生孙子](https://gnews.org/zh-hans/1345351/)) 等人。一些人甚至曾经或者现在是国家元首：前奥地利总理塞巴斯蒂安·库尔茨 (Sebastian Kurz)、现任匈牙利总理欧尔班·维克托（Orbán Viktor）、前卢森堡首相和前欧盟委员会主席让-克洛德·容克 (Jean-Claude Juncker)、德国绿党领袖（German Greens）安娜莱娜·贝尔伯克 (Annalena Baerbock)等等。另外，美国加利福尼亚州州长加文·纽森和美国运输部长皮特·布蒂吉格 (Pete Buttigieg)也位列其中。
 
-德国这个总统不要脸地说：“我得去啊，我说了那么多对你不好的话，咱们卖汽车啊。”人家要去，但是：“对不起，我要跟普京和你同厢。”从过去同台，现在要同厢，就差同床了，就差点要求（跟）习同床了。
+然而，这所学校不仅只限于政客，像比尔·盖茨 (Bill Gates)、杰夫·贝索斯 (Jeff Bezos)、理查德·布兰森 (Richard Branson，英国维珍集团董事长)等商界领袖也在其中。由WEF培养的领导人已经渗透到全球各国政府当中，大流行期间，他们步调一致地实施各种荒谬的限制令。
 
-“甜蜜蜜”运动就能把他们干灭到这个程度，七哥咱们大家就在直播谈笑风声之间让他付出了钱，是百亿千亿。现在要干嘛？要给中东几国承诺未来5到10年，石油、天然气向卡塔尔给你们订购的数量全翻一倍半，我不买（的话）我愿意接受20%的罚款。
+下面这段文字节选自洛克菲勒基金会（Rockefeller Foundation）于2010年公布的一份名为《[技术与国际发展的未来设想](https://www.nommeraadio.ee/meedia/pdf/RRS/Rockefeller%20Foundation.pdf)》（Scenarios for the Future of Technology and International Development）的文件，对原文稍加修改后（黑体字部分），几乎完美契合新冠大流行病爆发以来所发生的各种情形：
 
-中国人真的是天下最可怜的！整个东北三省一年，你知道烧油烧气才多少钱？知道吗？加在一起才300亿美元。中国东北人就不用到处找柴火烧能过个暖和的冬天，都不够给一个那个穷国小国的。
+**“****2020****年**（原文为2012年），世界多年来一直期待的大流行病终于来了。与**2004****年的****SARS****疫情**（原文为2009年的猪流感H1NI疫情）不同，这种新的**冠状病毒**（原文为流感）菌株起源不明，具有极强的毒性和致命性。当这种病毒在世界各地肆虐时，即使是对大流行病准备最充分的国家也难以应对，短短七个月内，全球近20%的人口被感染，**数百万人**（原文为800万人）丧生。
 
-刚才雅各问的话，中国人是不信真的，永远信假的，这种结局是让中国人每秒每刻都在付出代价。你看东北三省的穷和东北三省的吃狗肉，和东北三省的二人转和东北三省的所谓的炖大鹅，还有杀猪菜、酸菜，还有今天到处找柴火烧，他永远不知道东北三省供应了中国的将近40%的粮食，结果你活得连猪狗都不如。
+这场大流行还对经济产生了致命的影响：人和货物的国际流动停滞，旅游业等行业遭受重创，全球供应链被破坏。当地通常热闹的商店和办公楼空置了数月，没有员工和顾客。这场大流行侵袭了整个地球，死在**护理机构**中（原文为非洲、东南亚和中美洲）的人难以计数，由于官方没有出台防疫协议，那里的病毒像野火一样蔓延。
 
-你跟猪不一样的事情，美国的猪是有棚子的，杀之前要听音乐的；中国的猪是在室外养着，吃的是野食，中国人和猪之间唯一的穿个衣服在屋里面和外边的差距。
+英国最初“强烈劝阻”公民乘坐飞机，但由于政策执行不力，导致了致命后果。这不仅加速了病毒在英国境内的传播，也加速了其跨境传播。然而，有几个国家的情况要好一些，特别是中共国。中共国政府迅速对所有公民实施强制隔离，并立即封闭了几乎所有边境，此举拯救了数百万人的生命，比其他国家更早地阻止了病毒的传播，大流行病后的恢复也更迅速。
 
-所以说这次你看看这个“甜蜜蜜”运动对共产党，它现在不要脸到啥程度？就最亲的人给弄起来，人家普京说48小时要搞点活动，是吧？弄点动静出来，交易还在商谈中。
+中共国政府并不是唯一采取极端措施保护其公民免受（感染）风险和接触病毒的国家。大流行期间，全球各国领导人行使其权力，实施各种严厉的规则和限制措施，比如强制人们佩戴口罩、在火车站和超市等公共场所的入口处检查体温。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/图片3-1.png)
+郭文贵先生在2022年1月19日的大直播中说，世界经济论坛的达沃斯党成员一千人都不到，但却拥有全人类99%的财富，而且有影响国家政治和军事的能力、控制着能左右数以亿计人的命运的财富，手上有无数条人命。该论坛就是一个奴隶主俱乐部，中共在2001年加入世贸组织后就开始控制它。这次新冠大流行中，它们充当中共的帮凶，妄图用病毒和疫苗杀死更多的人，以统治和奴役人类。这次病毒和疫苗灾难，最后要是不审判达沃斯党，它就会把地球毁掉。达沃斯党的全球布局由来已久，势力庞大，但以新中国联邦为代表的全球正义力量绝不会甘受奴役、坐以待毙，一定会与其战斗到底！
 
-人类上绝没有一个国家像共产党虐待、出卖这些国家的所有人的利益只让十几个人高兴，从来人类上，希特勒、斯大林谁都没有过。你们真的，中国人都可怜到什么程度？我用什么话形容都不为过！
+**新闻来源：**
 
-字幕来源：[2022年1月27日 文贵大直播 全文字版](https://gnews.org/zh-hans/1924957/)
+[Secret Alliance Of Ex-WEF Global Leaders Working In Lockstep To Enforce The GREAT RESET To Include Macron, Trudeau, Ardern, And Boris Johnson!](https://thetruedefender.com/secret-alliance-of-ex-wef-global-leaders-working-in-lockstep-to-enforce-the-great-reset-to-include-macron-trudeau-ardern-and-boris-johnson/)
 
-编辑整理：Jacques；
+[2022.1.19大直播 郭先生爆料达沃斯党是共产党的帮凶，是世界的共产党](https://gnews.org/zh-hans/1880783/)
 
-字幕文件制作：大好河山；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[2022年1月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1885617/)
 
  
 
