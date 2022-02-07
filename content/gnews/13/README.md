@@ -2,24 +2,32 @@
 ---
 
 
-## 我看到我自己的时候我我更加警醒我是有使命的
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1969168/)
+## 凯文•麦卡锡发誓要调查COVID的起源
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1969220/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+**翻译/采编: MSGZ**
 
-我看过多遍我跟你们说过，后来我拿他擦去。递给了信心，老师，递给我们老师擦屁股纸去了。因为那时候发了好多呀，都在那，那什么大有作为呀，是不是啊，那个邓小平个子矮呀，拿着鸡鸡当他奶呀，那是在骂邓小平，你看我们当时看到骂邓小平，最后邓小平上台，最后李先念聂荣臻杨得志汪东兴是吧，夸夸夸起来。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/65.jpg)图片来源：ajc
 
-然后从1977的直接到1978到11大。然后打倒。林彪4人帮反党集团。然后汪东兴起来，哇塞，这个是很大。好不好？11大，今天我在看，那个时候郭文贵诞生，就是晚了几年，在早几年绝对就没有共产党了，绝对没了。我非常自信啊。我生下来我认为特别我看到我的照片，我现在看自己照片，我真的是我一看就现在就在我手机里做封面啊。我每天看着我就就鼻子酸，你想流泪，因为我很久没看到我8岁的照片了，我一看我吧，就想流泪啊。我是拿着它这个专业就在我的手机上当封面，但是我看到我自己的时候我我更加警醒我是有使命的，所以说你回答所以的问题人的到今天这个梦的来源绝对和你在做梦之前你穿啥衣服，你白天你见了啥干啥事儿，我不相信，白天你吃了猪食，晚上你做着的人梦。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/我看到我自己的时候我我更加警醒我是有使命的.001.jpeg)
-2022年1月7日文贵大直播
+
+众议院少数党领袖凯文- (Kevin McCarthy)表示，如果共和党在即将举行的中期选举后重新获得众议院多数席位，共和党人将对中国采取更强硬的立场并进行更多审查。
+
+麦卡锡表示，将成立一个两党委员会，以查清始于中国的COVID的起源。他和其他四名共和党人签署了一封信，要求对2019年底在武汉爆发的病毒进行进一步调查。
+
+今年1月，共和党人向总统乔·拜登提交了一封联名信，要求在调查2019年从中国武汉的一个实验室出现的COVID-19的合作中提高透明度和增加活动。此外，美国国会议员们还表示，联邦政府和军方内部的官员未能就有关该大流行病的信息作出回应。
+
+这封信由众议院议员迈克尔·麦考尔（R-Texas）签署。迈克尔·麦考尔（R-Texas）、弗兰克-卢卡斯（R-Okla）和凯西-麦克莫里斯-罗杰斯（R-Wash.）在信中对军事研究和政府情报部门缺乏公共知识表示关切。
+
+众议院外交事务委员会的共和党人在去年8月公布了他们的调查报告，该报告挖掘了COVID-19的可能来源，国会议员迈克尔·麦考尔指责中国共产党（CCP）创造了“人类历史上最大的欺骗”。
+
+参考新闻链接：[https://www.dailymail.co.uk/news/article-10483009/Kevin-McCarthy-outlines-Republicans-plan-control-China-regain-majority-House.html](https://www.dailymail.co.uk/news/article-10483009/Kevin-McCarthy-outlines-Republicans-plan-control-China-regain-majority-House.html)
 
 *发布：tianzhihuan*
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
