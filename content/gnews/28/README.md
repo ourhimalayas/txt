@@ -2,33 +2,36 @@
 ---
 
 
-## 俄罗斯恢复波兰供气，俄欧关系开始缓和
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1971241/)
+## 著名记者劳拉·洛根离开推特脸书 中意盖特
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1971260/)
 
-作者：香草山健身部-正道新闻
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-2022年2 月 7 日，根据欧洲天然气运输运营商的数据，从2月开始波兰已恢复从俄罗斯天然气工业股份公司通过亚马尔-欧洲天然气管道输送天然气，并开始减少通过德国进口天然气。1月，波兰通过德国进口天然气5.8亿立方米。
+作者：纽约香草山农场 007
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月3日，著名女记者劳拉·洛根宣布，将离开推特、脸书及Instagram等社交媒体，留在盖特等有言论自由的平台。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-07-上午11.18.48.png)
+劳拉曾经常年在阿富汗、伊拉克等战场前线报道，屡获殊荣，包括3次获得艾美奖，9次获得艾美奖提名等等。去年11月底，她因把福奇比做臭名昭著的纳粹医生，一度引发热议。
 
-2021年12月伊始为了强力推动北溪2号线建设，以及波兰在乌克兰上的态度问题，俄罗斯主动减少直至关闭了亚马尔-欧洲天然气管道的然气输送。
+劳拉表示，凭着良知，她不能为那些利用剥削儿童来谋利的平台作贡献。近年来，大型科技公司因涉嫌将儿童的露骨内容平台化，并成为性交易的温床而引起争议。那些平台一边严格审查卡车司机与疫苗受害者等人的自由言论，一边却在推行这种性堕落的意识形态，而推广和美化人类最糟糕无底线的行为是错误的。
 
-在这种背景下，2022年1 月，欧洲地区天然气合约价格达到了历史高位——每千立方米约1,300 美元，而市场现货价格则低于每千立方米 1,000 美元。这个月波兰几乎停止通过亚马尔欧洲接收天然气。
+劳拉的选择，标示着一个有正义感的媒体人，在纷繁复杂的世界里，基于人性最基本的要求，即言论自由，尊重人权等，而做出的价值判断，而盖特正是以此为其理念的崭新媒体平台。
 
-俄罗斯此次主动放开亚马尔-欧洲管线运输天然气，而非通过北溪管线，一方面考虑到欧洲的冬季可能即将过去，天然气价格将会逐渐回落，另一方面也可以理解为俄罗斯对于欧洲方面的示好表现。随着中共国的经济持续恶化，未来，欧洲将会成为俄罗斯能源唯一主要消费地区。随着能源版图的再次改变，地缘政治结构也开始了新的局面。
+参考链接：
+1）[https://gettr.com/post/psb7ot75d1](https://gettr.com/post/psb7ot75d1)
+2）[Award-Winning Journalist Lara Logan Quits Twitter, Facebook, Instagram: ‘Cannot’ Stay ‘In Good Conscience’](https://www.dailywire.com/news/award-winning-journalist-lara-logan-quits-twitter-facebook-instagram-cannot-stay-in-good-conscience)
 
-[https://www.interfax.ru/business/820572 https://zh.wikipedia.org/wiki/%E4%BA%9A%E9%A9%AC%E5%B0%94-%E6%AC%A7%E6%B4%B2%E7%AE%A1%E9%81%93](https://www.interfax.ru/business/820572%20https://zh.wikipedia.org/wiki/%E4%BA%9A%E9%A9%AC%E5%B0%94-%E6%AC%A7%E6%B4%B2%E7%AE%A1%E9%81%93)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-校对/发稿：菩提树
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2月-2.jpg)
+总编：Ivy001
+编辑：静言
+校正/发稿：呼吸的雾霾（文小呼吸）
+
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

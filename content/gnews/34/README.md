@@ -2,28 +2,34 @@
 ---
 
 
-## 澳洲防长警告盟友需挺身抵抗中共 否则会失去未来十年
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1971187/)
+## 冬奥会运动员隔离待遇凄惨
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1971238/)
 
-**撰稿：日本东京方舟农场 Kevin wang**
+作者：纽约香草山农场 – 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月6日，郭文贵先生在大直播中透露，多个国家的冬奥会运动员因身体不适，处于隔离状态，但是境遇凄惨。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/6-7.jpg)
+韩国、俄罗斯、丹麦、卡塔尔的运动员向郭先生透露，他们隔离的房间空调不热，电力和无线网络供应不利，有人故意用唾液污染他们的饭菜。如此悲惨的遭遇，让这些运动员感到生不如死。
 
-2月7日，澳洲国防部长杜登警告称，澳洲及其盟国必须在南海议题上挺身抵抗中共，否则将会失去未来十年。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-65.png)（图片来自网络）
-中央社报道， 杜登表示，美国及其盟国过去一度采取「默许」态度，任由中共在主权有争议的南海航道上兴建人工岛，以及在珊瑚礁上兴建防卫基地。
+据中共内部人士提供情报，中共派专人负责收集冬奥会运动员的生物信息，如DNA和排泄物，用作优质人种的基因研究。
 
-杜登强调，为了确保中共不会重复过去十年将南海军事化的做法，澳洲及盟国需要向中共表明立场，他称，假如任由目前情况发展下去，澳洲及盟国将会「失去下一个十年」。
+而且，据爆料，北京冬奥会几乎没有任何有成就的运动员，只有个别过了黄金期的体育明星。这些运动员有的是被骗，有的则是想从中共捞金。中共对待这些利用过的人，弃之如敝履。
 
-报道称，杜登的发言与将于本周在墨尔本（Melbourne）举行的「四方安全对话」（Quad）外长会议有关。预料「四方安全对话」外长会议将会讨论美、日、澳、印四国该如何加强防卫及经济发展合作，以便对抗中共。
+参考链接：[2022年2月6日 文贵大直播：开幕式后普金愤然离去；中俄战略合作虎头蛇尾；贩卖人口中国妇女地位；反疫苗运动及美国经济](https://gettr.com/post/psu0mf2270)
 
-美国东亚暨太平洋事务助理国务卿康达（Daniel Kritenbrink）也表示，即将举行的「四方安全对话」外长会议的主要议题是关于如何因应「中共国所带来的挑战」。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-参考链接：
-[https://www.cna.com.tw/news/aopl/202202070037.aspx](https://www.cna.com.tw/news/aopl/202202070037.aspx)
+总编: 文真
+编辑：Ivy001 
+校正/发稿：Fei797
 
-素材采编：Kevin wang
-编辑： 老孙
-发布：爱放飞
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

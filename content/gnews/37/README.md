@@ -2,40 +2,28 @@
 ---
 
 
-## 新中国联邦2022年的工作重点
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1970994/)
+## 澳洲防长警告盟友需挺身抵抗中共 否则会失去未来十年
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1971187/)
 
-作者：纽约香草山农场 – 文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月6日，郭文贵先生在大直播中强调，在2022年，新中国联邦建设的重点工作：
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-98.jpg)
-首先，不开展任何新项目，把现有项目完成好。过去两年，因爆料革命需要发展起来的项目，今年要做到影响无限大，避免项目多到烂，以及避免无限扩张而导致灾难。
+**撰稿：日本东京方舟农场 Kevin wang**
 
-第二，要让更多中共国内的人参与爆料革命。除了加大直播等宣传力度，还要让中共国内的军界、情报界、企业界、音乐界等人士，参与爆料革命，得到喜币、躺平币。
+2月7日，澳洲国防部长杜登警告称，澳洲及其盟国必须在南海议题上挺身抵抗中共，否则将会失去未来十年。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-65.png)（图片来自网络）
+中央社报道， 杜登表示，美国及其盟国过去一度采取「默许」态度，任由中共在主权有争议的南海航道上兴建人工岛，以及在珊瑚礁上兴建防卫基地。
 
-第三，做好G-EDU，中国人未来的希望是教育。会提供大量的币，吸引原新东方教育的中国老师加入GEDU，能够得到原来1.5倍工资。
+杜登强调，为了确保中共不会重复过去十年将南海军事化的做法，澳洲及盟国需要向中共表明立场，他称，假如任由目前情况发展下去，澳洲及盟国将会「失去下一个十年」。
 
-第四，继续以歌灭共，唱尽共产党的歌，让共产党无歌可唱。
+报道称，杜登的发言与将于本周在墨尔本（Melbourne）举行的「四方安全对话」（Quad）外长会议有关。预料「四方安全对话」外长会议将会讨论美、日、澳、印四国该如何加强防卫及经济发展合作，以便对抗中共。
 
-最后，郭先生特别强调，中共病毒疫苗灾难改变世界，政治经济大重启势不可挡。新中国联邦最重要的目的就是灭共，最重要的价值就是阻止在灭共过程中发生排华。
+美国东亚暨太平洋事务助理国务卿康达（Daniel Kritenbrink）也表示，即将举行的「四方安全对话」外长会议的主要议题是关于如何因应「中共国所带来的挑战」。
 
 参考链接：
-1) . [2022年3重点（2月6日大直播）](https://gettr.com/post/pswfhk6911)
-2) . [文贵大直播要点（2022年2月6日）](https://gnews.org/zh-hans/1966866/)
+[https://www.cna.com.tw/news/aopl/202202070037.aspx](https://www.cna.com.tw/news/aopl/202202070037.aspx)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+素材采编：Kevin wang
+编辑： 老孙
+发布：爱放飞
 
-总编: 文真
-编辑：Ivy001
-校正/发稿：Fei797
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

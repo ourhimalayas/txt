@@ -2,26 +2,35 @@
 ---
 
 
-## 冬奥会运动员隔离待遇凄惨
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1971238/)
+## 美国众议院通过《美国竞争法》
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1971258/)
 
-作者：纽约香草山农场 – 文真
+作者：银河系农场—骄子
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月6日，郭文贵先生在大直播中透露，多个国家的冬奥会运动员因身体不适，处于隔离状态，但是境遇凄惨。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/6-7.jpg)
-韩国、俄罗斯、丹麦、卡塔尔的运动员向郭先生透露，他们隔离的房间空调不热，电力和无线网络供应不利，有人故意用唾液污染他们的饭菜。如此悲惨的遭遇，让这些运动员感到生不如死。
+2月4日华盛顿，美国众议院通过了一项针对中共的法案《美国竞争法》，具体内容包含：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-07-上午11.18.32.png)
+1. 该法案将确保美国在制造业、创新和经济实力方面处于领先地位，并能够胜过任何国家。
 
-据中共内部人士提供情报，中共派专人负责收集冬奥会运动员的生物信息，如DNA和排泄物，用作优质人种的基因研究。
+2. 该法案包括了对中共国政府在新疆地区侵犯维吾尔人人权的制裁。追究中共对种族灭绝和使用奴隶劳工的责任，对被指控的中共新疆官员的新制裁，以及授权数百万美元的资金来反抗中共政府的言论审查和虚假信息。
 
-而且，据爆料，北京冬奥会几乎没有任何有成就的运动员，只有个别过了黄金期的体育明星。这些运动员有的是被骗，有的则是想从中共捞金。中共对待这些利用过的人，弃之如敝履。
+3.指示总统确保该法案中，反中共的条款执行不会导致对亚裔的歧视与种族仇恨。
 
-参考链接：[2022年2月6日 文贵大直播：开幕式后普金愤然离去；中俄战略合作虎头蛇尾；贩卖人口中国妇女地位；反疫苗运动及美国经济](https://gettr.com/post/psu0mf2270)
+4.正式谴责中共政府实施全面的国家安全法，破坏香港既定自治权的行为，并为符合条件的香港居民提供临时受保护身份和难民地位。加强并优化与台湾的伙伴关系。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+5.抵制中共北京冬奥会。
 
-总编: 文真
-编辑：Ivy001 
-校正/发稿：Fei797
+去年参议院通过了《美国创新与竞争法》，众议院和参议院的谈判代表将谈判达成一项最终法案，让两院都能通过，并提交给乔·拜登总统签署成为法律。
+
+参考链接：
+1）[US House passes the China-focused America Competes Act](https://www.scmp.com/news/china/article/3165893/us-house-passes-china-focused-america-competes-act)
+2）[The House Passes the America COMPETES Act, Including Immigration Reforms to Help the U.S. Economy](https://immigrationimpact.com/2022/02/04/house-passes-america-competes-act-immigration-reform/#.YgFHIvXMJB1)
+3）[House passes sweeping China competition bill](https://thehill.com/homenews/house/592824-house-passes-sweeping-china-competition-bill?amp)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+
+总编：Jack Li文阳
+编辑：Ivy001
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
