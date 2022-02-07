@@ -2,75 +2,32 @@
 ---
 
 
-## 2022年2月6日文贵先生直播摘要及音频—银河系农场
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1967702/)
+## 最新研究显示：封锁对疫情防治无效
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1967715/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/snapshot_副本-2.jpg)
-Gettr视频连接：[2022年2月6日 文贵大直播：开幕式后普金愤然离去；中俄战略合作虎头蛇尾；贩卖人口中国妇女地位；反疫苗运动及美国经济](https://gettr.com/streaming/psu0mf2270)
+撰稿：小毛牛
 
-G-TV视频连接：[2022年2月6日 文贵大直播：开幕式后普京愤然离去；中俄战略合作虎头蛇尾；贩卖人口中国妇女地位；反疫苗运动及美国经济](https://gtv.org/video/id=61ffc26b3621aa7415d64d51)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/020512.jpg)马里兰州巴尔的摩市约翰霍普金斯大学标志特写。图片来源：iStock。
 
-1、冬奥会运动员政要被虐待、拉肚子、不能出门；
+根据约翰霍普金斯大学（Johns Hopkins University）的研究分析显示：在 2020 年春季的第一波新冠疫情期间，封锁仅将美国和欧洲的新冠肺炎死亡率降低了 0.2%。 研究者还认为，封锁对人们的身心健康没有任何好处，但封锁却被广泛的采用且给被封锁地区造成了巨大的经济和社会成本。因此，封锁政策是没有根据的，应该被拒绝作为流行病政策工具。
 
-2、冬奥会闭幕会，会开成永远不能闭幕的闭幕会；
+然而，既是意料之外又是意料之中的事是，约翰霍普金斯大学的此项研究成果并没有在五个自称自由网络中的任何一个上得到提及。根据 Grabien 的文字记录，CNN、MSNBC、ABC、CBS ，和 NBC 全都对反封锁的调查结果置若罔闻！
 
-3、所有这次去北京参加冬奥会的运动员和官员，他们的DNA、大小便全被中共收集；
+更令人惊呼的是，根据搜索结果，其他众多纸质媒体比如纽约时报、华盛顿邮报、美联社、路透社、今日美国、Axios、Politico 等也都对该该研究结果视而不见！
 
-4、普京团队十几人感染，外交部和八局报告习近平只有4人感染，更不敢提入住酒店死了4人，都是外国人；
+此外，研究人员还研究了就地庇护令以及其他锁定措施对疫情防治的影响，发现此举（限制聚会）将实际上增加了 COVID-19 的死亡率。实际上可能增加了 COVID-19 的死亡率。因为就地庇护令可能会将感染者在家中与其家人隔离，但此人会使其家人暴露在高病毒载量的环境中，从而导致家人患更严重的疾病。
 
-5、中共和俄罗斯两个4000亿天然气合同，外加先付1000亿美元，换普京来参加冬奥会48小时，结果来了不到10小时就撤了；
+通常情况下，封锁限制了人们进入海滩、公园和动物园等安全的户外场所，而迫使人们在不太安全的室内场所聚会。因此，研究人员发现降低 COVID-19 死亡率的唯一干预措施是关闭非必要业务，可以将死亡率降低了 10.6%，比如酒吧。
 
-6、普京愤怒离京原因：中共耍赖，事先承诺俄罗斯使用人民币，按黄金保底。普京来了，中方反悔了，普京很生气；
+研究人员还指出了封锁还导致其他意想不到的后果，例如失业率上升、学校教育减少、家庭暴力事件增加以及吸毒过量等。
 
-7、中共千人计划：中共派了100名学生到美国，80%是女学生，后来由党安排全嫁给了白人；
+根据 CDC 的数据，从 2020 年 5 月到 2021 年 4 月，美国记录了 100,306 例药物过量死亡，比前 12 个月期间记录的 78,056 例死亡人数增加了 28.5%。去年，全国 COVID-19 和刑事司法委员会的一项研究发现，在发布封锁令后，美国的家庭暴力事件增加了 8.1%。
 
-8、美国经济：因为中共病毒，疫苗灾难，物价上涨，供应链断裂，肯定会下行；
+约翰霍普金斯大学研究的研究人员写道：“必须将这些社会成本与封锁的好处进行比较，我们的荟萃分析表明，封锁的好处充其量是微不足道的。” “这种标准的收益成本计算得出了一个强有力的结论：应该立即拒绝将封锁作为一种流行病政策工具。”
 
-9、习近平的认知出了问题，挑战美国，认为美国完了，他就好了。美国经济完蛋了，最惨的就是中共国；
+新闻链接：[CNN, MSNBC, NYT, WaPo completely avoid Johns Hopkins study finding COVID lockdowns ineffective](https://www.foxnews.com/media/johns-hopkins-university-study-lockdowns-media-blackout)
 
-10、中共交错朋友，和俄罗斯、伊朗 朝鲜、搅合在一起，加上习近平认知能力和实际实力的不匹配，中共必然走向死亡；
-
-11、大卡车事件会引发政治冲突，再次警告，战友不能打着新中国联邦和爆料革命名义参加大卡车运动。 不可以使用GTV直播；
-
-12、今年的三个重点：
-
-1 ）今年不搞任何新项目，不扩张，把原有的G系列做的更有影响力，主要集中精力防止全球排华发生；
-
-2 ）让国内各界战友得到真正的喜币和躺平币，每天早上闻到币的味道；
-
-3 ）集中精力把G-EDU做好，原俞敏洪新东方老师来G-EDU工资比原来高1.5倍，可以选择HDO和HCOIN付款，可以按天按周付款。走新东方的路，让新东方无路可走；
-
-13、新中国联邦愿意解救那些被绑架的妇女，有具体方案可以联系联盟；
-
-14、G-Clubs2022年会，推迟十天左右；
-
-15、三个锦囊：第一个民心向郭习亡岐山，第二个是利用病毒，第三个是制造货币；
-
-**注：大直播音频正在制作和上传中，敬请关注——**
-
-**（大直播音频位置）**
-
-编辑整理：文俊；
-
-发布：黎明之前
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
 
  
 
