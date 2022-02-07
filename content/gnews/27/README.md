@@ -2,28 +2,53 @@
 ---
 
 
-## 中共和俄罗斯的高超音速武器威胁美国的预警系统
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1968189/)
+## 喜马拉雅币一周分析与总结（1月31日-2月6日）
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1968380/)
 
-#### 撰稿：彩虹       
+作者：纽约香草山金融部 – ILOVE战神
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-616.png)图片来源：军事
-2月6号，《新闻极限》报道，五角大楼的一位前工作人员在《金融时报》（Financial Times）发表社论说，美国必须赶上中共国和俄罗斯在高超音速武器方面的进展，否则会被这两个超级大国超越。
 
-威廉·施耐德（William Schneider）是哈德逊研究所（Hudson Institute）的高级研究员，曾担任过副国务卿和五角大楼的国防科学委员会主席。他认为，那些对中共国和俄罗斯的（高超音速导弹）测试不屑一顾的人是“忽略了其重要性”。
 
-他说：“机动高超音速飞行器不仅仅是将核弹头运送到目标的另一种手段，相反，它们是旨在击败美国预警能力的‘系统体系’的一个重要组成部分。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-施耐德警告：“中共和俄罗斯的机动高超音速导弹能力，使得这些敌对大国能够拥有击败美国预警系统的综合能力。在这种情况下，美国将对来袭的外国导弹攻击无法预警，应对能力受到极大限制。”
 
-据CNN报道，周四，在一次来自二十多家美国最大的国防公司首席执行官们的高级别会议上，国防部长劳埃德·奥斯汀（Lloyd Austin）鼓励他们加速高超音速武器的开发。
 
-根据报道，去年夏天，俄罗斯进行了试验高超音速的“海燕”核动力和核武装巡航导弹，该导弹具有无限的射程。而中国则测试了两枚高超音速弹道导弹，其中一枚在机动轨道飞行时释放了第二个高超音速物体。
+过去一周喜马拉雅币价格在51美元左右浮动，最高价格约53.8美元，平均日交易量约8万枚喜币。喜币上市以来总交易量约2720万枚 ，占今年总发行量的仅约2.72%。目前喜币交易在全球尚未完全开放，市场交易量较低，价格仍被严重低估。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide10-2.jpg)
+2月1日大年初一，喜支付APP Himalaya Pay正式上线。喜支付上线前后，全球股票市场与数字货币市场都处于大幅下跌区间，喜马拉雅币价格则持续大幅上升。Himalaya Pay支持点对点转账交易，手续费为零，交易立即到账，彻底颠覆了传统金融机构和政府对经济活动的垄断。
 
-**新闻来源**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture-7.jpg)
 
-[Former Pentagon Official: Chinese, Russian Hypersonic Weapons Threaten US Early Warning System](https://www.newsmax.com/politics/china-russia-u-s-hypersonic-weapons/2022/02/06/id/1055724/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Picture2-3.png)
+
+本周据郭文贵先生在大直播中透露，目前已经存在从中共国将人民币兑换为喜美元HDO的转账通道，并且立刻到账。喜支付未来也会推出多个币种的转账功能。郭先生表示，无中心化、无中介化是喜支付的核心价值。喜支付代表了新中国联邦人的信仰和追求，将帮助全人类解放生产力，实现财务的自由，并为新世界建立金融标准。喜支付将极大提升交易的安全性、经济性、便利性、隐私性，为用户开创全新的商业模式，信用体系和金融服务，并实现财富的保值和显著的投资收益。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Picture3-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/Picture4-2.png)
+参考链接：
+[喜交所 Himalaya Exchange](https://himalaya.exchange/himalaya-pay)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+
+总编：天灭中共
+编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

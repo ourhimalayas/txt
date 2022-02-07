@@ -2,17 +2,32 @@
 ---
 
 
-## 共产党企图干扰破坏新中国联邦春节大直播
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1968403/)
+## 澳大利亚在经过近两年的边境关闭后 终于将对国际游客开放
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1968521/)
 
-文编：东京樱花团/樱花传媒
-视频：东京樱花团/中文小视频组
+撰稿：东京樱花团/asket
 
-2月1日，郭文贵先生在GTV大直播透露，郭文贵先生得到情报，中共内部下令绝不让新中国联邦春晚直播成功，是最高政治要求。然而，西方很多国家、还有甜蜜蜜运动的参与者，都希望新中国联邦的春晚直播成功。新中国联邦春晚带给你想象不到的，这叫和平时期的战争。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/澳大利亚在经过近两年的边境关闭后-终于将对国际游客开放.png)
 
-*编辑：东京樱花团/tdownc2p
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+澳大利亚的边境在经过近两年的关闭以阻止中共病毒（新冠病毒Covid-19）的传播后，终于将于2月21日对国际游客开放。但是，游客必须接受双重疫苗接种，否则就有可能像怀疑疫苗接种的网球明星诺瓦克·德约科维奇那样被拒之门外。他在上个月的澳大利亚网球公开赛之前被送回了家。
+
+“条件是你必须接种两次疫苗才能来澳大利亚。这就是规则，每个人都应该遵守。”总理斯科特-莫里森说，“但如果你接种了双重疫苗，我们期待着欢迎你回到澳大利亚，我知道旅游业将期待着这一点。”
+
+莫里森先生说，做出这个决定是因为澳大利亚现在已经被中共病毒的Omicron变体所蹂躏，这意味着国际旅行者不会构成额外的风险。
+
+“该变种已经在澳大利亚境内。对于那些即将到来的双重疫苗接种者，他们不会比那些已经在澳大利亚的人带来更大的风险。”
+
+而对未接种疫苗的签证持有者需要获得旅行豁免才能入境，并在抵达后接受各州和地区的检疫要求。
+
+信息源：
+
+[Australia’s international border will FINALLY reopen to tourists in two weeks – but all travellers MUST be double vaccinated or face the same fate as Novak Djokovic](https://www.dailymail.co.uk/news/article-10483853/Australia-FINALLY-reopen-tourists-February-21-says-Scott-Morrison.html)
+
+编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
