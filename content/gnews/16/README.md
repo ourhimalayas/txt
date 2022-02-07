@@ -2,12 +2,12 @@
 ---
 
 
-## 加勒万河谷事件是中共如何歪曲事实的一个完美范例
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1970296/)
+## NBA明星埃内斯·坎特·自由关于中共种族灭绝奥运广告
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1970398/)
 
-02/02/2022 加勒万河谷事件是中共宣传战略的一个完美的范例，显示了中共是如何歪曲事实。该事件2020年被淡化处理，2021年才为公众知晓，2022年北京冬奥会又被正式承认。
+02/05/2022 NBA明星埃内斯·坎特·自由关于中共种族灭绝奥运赛事的广告。
 
-By:【秘密翻译组-精翻组 G-Translators/Elite Team】
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

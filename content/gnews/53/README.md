@@ -2,50 +2,45 @@
 ---
 
 
-## 巴西Itajaí市全民测试证明 伊维菌素可降低感染、住院和死亡
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1966404/)
+## 墙内世界2022/02/03
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1967282/)
 
-作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏）
+一、2月2日，中国北京。最繁忙的火车站由于中共政府举办冬季奥运会的严格流动限制而变得空荡荡。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+二、1月29日，河北保定。中共在高速路入口处出现了荷枪实弹的持枪警察，意图向百姓传达高压威慑的氛围。
 
-本文摘自1月15日，巴西圣保罗科尔教学研究所（Instituto Kerr de Ensino e Pesquisa, São Paulo）、圣保罗州立大学（State University of São Paulo）动物科学系、圣保罗里贝朗普雷图医疗学校（Ribeirão Preto Medical School, University of São Paulo）遗传学系、里贝朗普雷托CTAG基因组评估技术中心（Centro Técnico de Avaliação Genômica C.T.A.G, Ribeirão Preto）、巴西利亚Corpometria 研究所、加拿大多伦多大学（University of Toronto）、美国剑桥EAFIT数据分析中心（Data Analysis, Universidad EAFIT）、美国前线Covid-19重症监护联盟 (Front-Line Covid-19 Critical Care Alliance，FLCCC)和伊塔雅伊市政厅（Itajaí City Hall, Itajaí）的Flavio A.Cadegiani博士等人发表的论文《[Strictly regular use of ivermectin as prophylaxis for COVID-19 leads to a 90% reduction in COVID-19 mortality rate, in a dose-response manner: definitive results of a prospective observational study of a strictly controlled 223,128 population from a city-wide program in Southern Brazil](https://www.researchgate.net/publication/358386329_Strictly_regular_use_of_ivermectin_as_prophylaxis_for_COVID-19_leads_to_a_90_reduction_in_COVID-19_mortality_rate_in_a_dose-response_manner_definitive_results_of_a_prospective_observational_study_of_a)》。
+三、1月31日，浙江杭州。中共持续以防控疫情的借口，逐步加大各省市人员流动的限制。
 
-文章介绍，2020年7月7日至2020年12月2日，在巴西圣卡塔琳娜州（state of Santa Catarina）伊塔雅伊市（city of Itajaí）开展一项使用伊维菌素（ivermectin）预防COVID-19的全民健康系统计划研究。本研究的目的是评估常规使用伊维菌素对预防COVID-19 感染和死亡率的影响。
+四、1月31日，广东深圳。凡是被中共政府通报新冠病毒确诊病例的城市，即意味着当地全体居民失去更大程度的人权和自由。
 
-测试组按每人每15天连续两天服用0.2mg/kg/天剂量的伊维菌素。在研究期间，建议被确诊的 COVID-19所有参与者不要使用伊维菌素（ivermectin）、硝唑尼特（nitazoxanide）、羟氯喹（hydroxychloroquine）、螺内酯（spironolactone）或任何其他声称对 COVID-19 有效的药物。该市也没有为感染 COVID-19 的参与者提供任何特定药物的门诊治疗。
+五、1月31日，广东深圳。中共政府核酸检测政策的执行并不是想要真正防控疫情扩散，只是为了让百姓失去更多的话语权。
 
-在该市登记的223,128名居民中，61,583名因年龄不超过18岁没有被纳入研究范围。剩下18岁以上的161,545人中，1,984人因2020年7月7日之前有感染COVID-19记录也被排除在研究范围之外，最终确定159,561人纳入研究范围。
+六、2月1日，湖北武汉。一商场电梯突发故障，包含老人和6岁儿童的十几人被困地下二层。
 
-在这159,561人中，最终113,845人在感染COVID-19之前接受了伊维菌素计划，占研究对象的71.3%，另外45,716人在研究期间未接受或不想接受伊维菌素，包含作为预防或治疗感染COVID-19后的药物，占研究对象的28.7%。
+七、1月28日，浙江湖州。一大桥护坡深夜垮塌，十余辆轿车被砸。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/cureus-0014-00000021272-i01.jpg)
+八、1月29日，重庆。银行门口取钱队伍排起长龙。全国银行门口频繁出现了取现金困难的场景。银行的钱都去哪儿了？
 
-在来自伊塔雅伊市的113,845名服用伊维菌素作为预防COVID-19的参与者中，有4,197人的RT-PCR检测SARS-CoV-2病毒呈阳性，感染率为3.7%，而45,716名未服用伊维菌素的参与者中，有3,034人的RT-PCR检测SARS-CoV-2病毒呈阳性，感染率为6.6%。这7,345名感染者的信息如下：
+九、近日 中共三部门发文：2022年3月1日起，个人存取现金超5万元需登记资金来源。百姓手里的钱自由流动将会可预见的更加困难。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/TABLE-1-Baseline-characteristics-of-subjects-enrolled-in-the-study-before-matching-and-after-scaled.jpg)
+十、1月28日，上海。中共国没有市场经济，在中共国无证寸步难行。中共官方称一女子在没有烟花销售许可证的情况下，从外地购入烟花爆竹4箱，在网上加价转卖获利1800余元，被依法行政拘留。
 
-根据上面的结论，使用伊维菌素作为COVID-19预防性药物，COVID-19感染率降低了（6.6%-3.7%）÷6.6%=44%。
+十一、2月1日早上7点半，陕西大荔。男子放炮后仅20秒禁放宣传车赶到，对其进行了批评教育。中共在监控人民方面从来不会缺经费和人员。
 
-从使用伊维菌素作为COVID-19预防性药物的COVID-19的4,197名感染者中，抽取3,034作为研究亚组，每组3,034人，共6,068人COVID-19感染者的后续调查中，使用伊维菌素作为预防药物的感染者住院44人，感染COVID-10后的住院率为1.6%，未使用伊维菌素作为预防药物的感染者的住院99人，感染COVID-10后的住院率为3.3%，使用伊维菌素作为预防药物住院率降低56%率，对变量进行调整后，住院率降低了67%。
+*搜集：Free20200604、加油干吧总加速师、Filon |听写：trustguo | 翻译：叶知秋|校对：yyshere*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/cureus-0014-00000021272-i02.jpg)
+* * *
 
-使用伊维菌素作为预防性药物的感染者死亡25人，感染COVID-19后的死亡率为0.8%，未使用伊维菌素作为预防性药物的感染者死亡79人，死亡率为2.6%。因此，使用伊维菌素作为预防性药物，死亡率降低68%，调整后的死亡率降低了70%。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/TABLE-2-Propensity-score-matched-hospitalization-and-mortality-rate-among-ivermectin-users.jpg)
 
-在开始使用伊维菌素作为预防COVID-19计划之前和开始使用伊维菌素作为预防COVID-19期间，伊塔雅伊市COVID-19住院率比较中，感染COVID-19后，使用伊维菌素作为预防COVID-19药物的住院率从计划开始前的6.8%下降到计划开始后的1.8%，死亡率从3.4%下降到1.4%。
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/TABLE-4-Hospitalization-and-mortality-rates-registered-in-the-city-of-Itajai-Brazil-before-versus.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-参考数据：
 
-[Ivermectin Prophylaxis Used for COVID-19: A Citywide, Prospective, Observational Study of 223,128 Subjects Using Propensity Score Matching](https://www.ncbi.nlm.nih.gov/labs/pmc/articles/PMC8765582/)
-
-[Ivermectin for preventing and treating COVID-19](https://pubmed.ncbi.nlm.nih.gov/34318930/)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

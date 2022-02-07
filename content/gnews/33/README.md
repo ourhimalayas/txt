@@ -2,57 +2,46 @@
 ---
 
 
-## 科学家在荷兰发现高度传染性突变 HIV（艾滋病） 毒株
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1969706/)
+## 【TopNews】美国共和党49名议员投票反对为疫苗授权提供任何资助
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/1970137/)
 
-作者：Truth Press
-发布日期：2022年02月07日
-新闻来源：https://truthpress.news/
-翻译：V 在途中
+![CHIPPPI.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/C33316C6-E692-4E20-895A-38FF2F353AAE.jpeg)*众议员奇普·罗伊（R-TX）于 2021 年 9 月 22 日在华盛顿特区的美国国会大厦举行的关于国防授权法案的新闻发布会上发表讲话。（凯文·迪奇/盖蒂图片社摄）*
+据OAN 新闻于2022 年 2 月 3 日（星期四）报道：**美国共和党立法者联盟发起了一项运动，旨在取消对疫苗强制执行的资助。德克萨斯州国会议员奇普·罗伊在周三表示，****49 ****名共和党国会议员投票反对为中共病毒疫苗授权（强制令）提供任何资金支持。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2075.jpg)
+**该小组包括参议员兰德保罗和特德克鲁兹，以及众议员劳伦博伯特、安迪比格斯和其他一些人。立法者表示，政府对疫苗执行的资助将于**** 2 ****月**** 18 ****日到期，不得延长。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2074.jpg)
+众议员罗伊说：
 
-与牛津大学合作的科学家们刚刚在荷兰发现了一种新的高度传染性和更具破坏性的 HIV 毒株。他们称其为“新的剧毒亚型 B”——或简称为“VB”。
+“我们应该看看我们已经花费的预算，我们不应该在荒谬的、政治化的授权之上这样做，这些疫苗授权损害了医疗保健，而且没有科学依据。”
 
-由牛津大学大数据研究所的研究人员领导的一项国际研究在分析了 6,700 多份 HIV 检测呈阳性的患者样本后，确定了 109 例新变异病例。该研究的详细信息本周发表在医学杂志《科学》上。研究人员确定该变体已在荷兰流行了“数年”。
 
-他们的研究揭示了 VB 毒株和其他 HIV 变种之间的“显着”基因组差异。一是病毒载量要高得多，这意味着病毒的毒性更强，传染性更强。
 
-科学家们说：“携带 VB 变体的个体的病毒载量（血液中的病毒水平）高出 3.5 到 5.5 倍。” 他们的研究结果已发表在《科学》杂志上。
+> "I'm fine w/ having debates & discussions about what the proper pay is for nurses & doctors at the VA…we should be looking at the budget we've already spent, & we shouldn't be doing it on top of ridiculous, politicized mandates that are hurting care & have no basis in science" [pic.twitter.com/GmYWN6e6Hu](https://t.co/GmYWN6e6Hu)
+> — Rep. Chip Roy Press Office (@RepChipRoy) [February 2, 2022](https://twitter.com/RepChipRoy/status/1488979182021496835?ref_src=twsrc%5Etfw)
 
-根据这项研究，CD4 细胞衰退的速度——HIV 对免疫系统损害的标志——“在 VB 变异个体中发生的速度是两倍，使他们面临更快患上艾滋病的风险。”
 
-但也许更重要的是：感染 VB 毒株的患者也表现出将病毒传播给其他人的风险增加。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/074B1B23-2E4E-4B8D-AF20-235E5B60BE52.png)
+**他们的立法者补充说，疾病预防控制中心现在承认自然免疫可能比疫苗免疫更强。这意味着疫苗的授权一直是错误的。**
 
-这些结论证实了科学家们长期以来的担忧：新的突变毒株可能使 HIV-1 病毒更具传染性和危险性。根据联合国艾滋病毒/艾滋病联合规划署的数据，该病毒已影响全球 3800万人，自 1980 年代初期流行病开始以来，已有 3600万 人死于与艾滋病相关的疾病。
+**共和党随后指出，拜登政府已经实施了五项伤害美国的单独疫苗授权（强制令），这必须撤销。**
 
-幸运的是，现代治疗证明在抑制 VB 菌株方面同样有效，这表明感染它的患者与被诊断患有其他菌株的患者的预后没有任何差异。“没有理由对这种新的病毒变种感到震惊，”该论文的主要作者牛津流行病学家克里斯怀曼特在接受法新社采访时说。
+**目前，疫苗灾难事态发展正如文贵先生之前多次谈到的一样。在2022年1月21日大直播文贵先生就谈到了，觉得疫苗这个事情是一定会停下来！文贵先生觉得它是一个反复的过程，一定是反复的过程，不可能一下子全停。共产党一定会垂死挣扎，药厂要给自己解脱，继续赚钱。它是一个机器，它是一个赚钱的机器，一个邪恶的机器。此外，关于美国和西方对于这个疫苗停止之后会出现的各种反应、各种审判，它会交叉而起。**
 
-“令人欣慰的是，在开始治疗后，携带 VB 变体的个体的免疫系统恢复和存活率与携带其他 HIV 变体的个体相似，”该研究称。
 
-据科学家们所知，VB 实际上已经存在了一段时间——几十年。该研究的最早样本来自于 1992 年被诊断出的一名患者。
 
-然而，由于 VB 会导致免疫系统防御系统更快恶化，“这使得早期诊断个体并尽快开始治疗至关重要”，研究人员还强调了对高危个体进行频繁检测的重要性。
+[援引链接](https://www.oann.com/49-gop-lawmakers-pledge-to-defund-bidens-vaccine-mandates/)
 
-最后：VB 变种的发现应该是一个警告！我们永远不应过分自信地认为病毒只会“温和的进化”，Wymant 说。
+撰稿/米拉娅
 
-这是“科学”应该已经从 SARS-CoV-2 的 delta 变体中吸取的教训。
+审阅/邱杰斯
 
-简评：
-当疫苗灾害在各国越演越烈的时候，人们是否应该保持一份清醒，为什么现在会大规模HIV突变呢！！！
+上传/天赐良闻
 
-**疫苗（新冠疫苗）
-中共病毒（新冠病毒covid-19）**
 
-**我们不反疫苗，只针对假疫苗
-我们不反科学，只针对反人类**
 
-[新闻链接](https://truthpress.news/news/scientists-discover-highly-infectious-mutant-hiv-strain-in-the-netherlands/)
+> [49 GOP lawmakers pledge to defund Biden’s vaccine mandates](https://www.oann.com/49-gop-lawmakers-pledge-to-defund-bidens-vaccine-mandates/)
 
-审核校对：Barry Jack
-上传排版：V在途中
+
 
  
 

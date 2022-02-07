@@ -2,10 +2,10 @@
 ---
 
 
-## 中共国早已崛起，而且成为了占据主导地位的大国
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1969031/)
+## 当务之急是各州要立即采取行动阻止疫苗强制令
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1969422/)
 
-02/02/2022 乔什·海默：中共国早已崛起，而且成为了占据主导地位的大国。
+02/03/2022 战斗室：当务之急是各州要立即采取行动阻止疫苗强制令。全美范围内现在有好几个好的法案。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

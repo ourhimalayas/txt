@@ -2,10 +2,10 @@
 ---
 
 
-## 疫苗杀手辉瑞CEO艾伯特·伯拉获2022年创世纪奖
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1970301/)
+## 美国警告中共国公司：不要帮助俄罗斯，否则将面临后果
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1970401/)
 
-02/03/2022 也许是人类史上最荒诞的一幕！疫苗杀手辉瑞CEO艾伯特·伯拉被评选为2022年创世纪奖得主。
+02/04/2022 美国警告中共国公司：不要帮助俄罗斯，否则将面临后果。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

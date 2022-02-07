@@ -2,50 +2,28 @@
 ---
 
 
-## 土耳其总统埃尔多安感染中共病毒
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1968373/)
+## 福特因“持续的供应链中断 ”而关闭8家工厂
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1968735/)
 
-作者：纽约香草山 – 侠肝义胆
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-96.jpg)
+图片来源：网络截图
 
+据零对冲12月6日报道，福特汽车公司在第四季度利润和销售未达到华尔街预期后跌入熊市。首席执行官吉姆·法利（Jim Farley）警告说，“持续的供应链中断”限制了其满足强劲需求的能力。
 
+路透社报道，因为芯片短缺问题，这家底特律汽车制造商将从周一开始关闭在美国、墨西哥和加拿大的八家工厂。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+位于密歇根州、芝加哥和墨西哥库奥蒂特兰（ Cuautitlan）的工厂将暂停生产。在堪萨斯城，其F-150皮卡的生产将暂停，而Transit货车的生产将有一个班次运行。底特律汽车制造商还将在其位于肯塔基州迪尔伯恩和路易斯维尔的工厂实行单班制或减少时间表，同时取消加拿大奥克维尔工厂的加班。所有变化都将在2月7日开始的一周内实施。
 
+周五，福特股价暴跌10%，此前该汽车制造商报告的第四季度利润和销售情况均未达到预期。该公司的股价已经暴跌到熊市。
 
+美国银行证券部的约翰·墨菲（John Murphy）在周五的一份说明中告诉客户，福特的盈利不达标“是销量下降（芯片短缺/供应链中断）、原材料成本上升和移动支出增加的综合结果”。
 
-2月5日，土耳其总统埃尔多安在其社交帐号中承认感染中共病毒。
+路透社的报告描绘了该公司2022年具有挑战性的背景，因为它在采购芯片方面继续遇到麻烦，这个问题已经持续了一年多，至今仍未解决。
 
-埃尔多安表示，自己和妻子中共病毒检测呈阳性，并确认感染的是中共奥密克戎病毒，症状轻微，目前在家隔离，居家办公。
+好消息是，随着电动汽车的推出，福特的转机正在进行中。然而，它必须降低其供应链的复杂性，这一过渡并不容易。
 
-乌克兰总统泽伦斯基第一时间向埃尔多安总统及夫人表示慰问，祝他们早日康复！
-
-据悉，埃尔多安2月3日刚刚对乌克兰进行了正式访问。土耳其政府正在试图化解俄罗斯和乌克兰危机。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-3.jpg)
-参考信息：
-[JUST IN – Turkey President Erdogan tests positive for Covid](https://twitter.com/TheInsiderPaper/status/1489943092274683904?t=x4QVPtXs9raUJEX)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+新闻来源：[Ford Shutters 8 Factories Due To “Persistent Supply Chain Disruptions”](https://www.zerohedge.com/markets/ford-shutters-8-factories-due-persistent-supply-chain-disruptions)
 
  
 

@@ -2,12 +2,12 @@
 ---
 
 
-## 一个中共国女性的价值几乎等同于20只癞蛤蟆
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1970303/)
+## CNN系列报道《中共国高墙背后》 揭示其光环背后的丑陋面目
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1970431/)
 
-02/05/2022 在中共统治下的中国，一个妇女的价值几乎等同于20只癞蛤蟆，都不如一只鹦鹉珍贵,更别提拥有人权了。
+02/02/2022 在北京冬奥会开始前，CNN将开启一些列报道，叫做《中共国的高墙背后》，揭示光环后面的丑陋真相。
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
