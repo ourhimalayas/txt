@@ -2,45 +2,42 @@
 ---
 
 
-## 共产党恨不得向蜂拥提出撤馆要求的将近50个国家喊爹
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1969225/)
+## 日本应对感染激增时的医疗省力化
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1969238/)
 
-G-TV视频链接：[https://gtv.org/video/id=62008a2f585ecc15d73e5e47](https://gtv.org/video/id=62008a2f585ecc15d73e5e47)
+撰稿：东京樱花团丨立正道
+![](https://lh3.googleusercontent.com/WtYJqO0q--cxsX7As5fnA2rj3FCxNj4Pd7k5VeYH546IWrIndb-LoXuFyY5-enw5WxheCC6HV2ILEFUV9Fe9dAPW_TRrAZcNVXD4KgYJJCRQXanp8-9hJt-GJTLL6DFZSKnU29uy)[*图片来源*](https://news.yahoo.co.jp/articles/9be7f89893f64c2b6725135f80265b62a9e08ad9/images/000)
+随着中共病毒Omicron株感染的迅速传播，“检查和咨询”的初步判断治疗原则正在瓦解。在东京都和大阪府，我们引入了一种新制度，如果与感染者密切接触的同居家庭成员出现发烧症状，医生将自行决定将其视为感染者，而无需检查。 一些地方政府在通过自愿检测确认阳性结果后，允许在家中就医，无需前往医疗机构，以应对感染人数过多的情况，以节省医疗人员负担。
 
-**郭文贵先生：**世界的各大使馆现在已经超过最起码将近50个国家跟中共讲数了，这就是它的力量，“对不起啊，我也要撤啦！” 共产党就恨不能喊人家“爹”，这就是路大脑袋、九指妖这号人，就是一遇到强者，像Selin（塞林）这样的就亲爹啦。
+什么情况下是“被认定为阳性”？
 
-真正的中国共产党在外国人面前，只要是外国人、只要皮肤跟咱们长不一样儿，它都认为比咱重要。私下里外交部给人家那个不要脸、拿钱交易、许诺，那就卑鄙至极！我可以告诉没有任何一个中国人你可以有理由相信，中国外交部在世界上有尊严、有尊重，从来没有！这50个国家这么干是真的超出了我的想象了。
+您在传统的医疗体系下是出现发烧等症状时，先去医院就诊。 医生根据检测结果做出阳性诊断，并依据传染病防治法将患者通知到保健中心。 但1月份以来，因感染人数和密切接触者人数大幅增加，门诊发热和检查需求工作量急剧增加，减轻医疗机构负担成为当务之急。
 
-世界上一共才有多少个国家？当年希特勒1935年的运动会和苏联，才49个国家参与所谓最盛大的、最完美的运动会，现在要50个国家要撤离。
+■ 对应不变
 
-字幕来源：[2022年1月27日 文贵大直播 全文字版](https://gnews.org/zh-hans/1924957/)
+1月21日，神奈川省决定“如果家里有正在接受治疗的阳性者，可以省略医疗机构的检查”。24日，经当地政府酌情决定，如果与感染者密切接触的同居家庭成员出现症状，医生将不经检测根据临床症状即可诊断为新冠被感染者，并“视为阳性”以确诊。
 
-编辑整理：Jacques；
+厚生劳动省负责人解释说，“对流感也将进行同样的诊断”。 医生可以根据突起发热、乏力、全身疼痛等症状及周边地区的疫情以及是否己接触感染者，不需要做检测，即可综合诊断，以确定是否是被感染者。对于这个阳性认定标准，该领域的医生认为，“如果是密切接触者并出现症状，几乎可以肯定是阳性，所以在目前检测试剂用完的情况下，对诊断有一定的合理性。”
 
-字幕文件制作：大好河山；
+东京每天报告的新感染者约为 20,000 人，依据以上确诊方法，被认定为阳性的人数是 4 日 413 人，5 日 543 人，以及6 日人数为526人。这些患者也“一视同仁”的得到医生对患者病情的观察，并向卫生中心提交疫情报告。 还根据患者的情况，分为保健中心和当地医疗机构的健康观察，以及呼叫中心的咨询接待。该市有关负责人表示，“虽然是疑似感染者，也会得到医疗机构的第一道防线，进行观察，没有障碍的得到保护。”
 
-视频制作及上传：Cindy；
+另一方面，神奈川省于 1 月 28 日开始实施无需医生诊断即可居家医疗的“自主医疗制度”，对 6-49岁的病情恶化风险较低的人群，如果抗原检测试剂呈阳性，则可以在家中进行治疗，无需去医疗机构就诊。并且可以向单位申请“自主疗养” ，以避免感染其他人。
 
-G-News发布：小满；
+2日，政府对策小组委员会尾身茂会長及专家向厚生劳动省提出建议，建议推广全国采取与神奈川省相同的措施作为紧急疏散政策。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+■ 人命比数据重要
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+虽然省去了医生提交疫情报告和观察保健中心健康状况的麻烦，但与传统的阳性诊断不同，它不符合传染病防治法规定的感染者。 因此，不能对选择自主医疗制度的人实施就业限制。 如果感染患者不申报，当地政府甚至无法掌握其存在，新感染人数等数据的连续性就会中断，导致与实际情况出现偏差。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+但是，东京都的医务人员认为：“这是一种传统假设无法应对的紧急情况。数据对于分析很重要，但生命比数据更重要，是重中之重。这是为高危人群确保医疗资源行之有效的方法。”
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+译者评，日本在应对前所末有的感染面前所制定的医疗措施非常合理化，科学化及人性化。比较中共国的“清零”政策真是“冰火两重天”。
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+信息来源：[**みなし陽性、自主療養…崩れる「検査・受診」の原則  感染激増で医療省力化**](https://news.yahoo.co.jp/articles/9be7f89893f64c2b6725135f80265b62a9e08ad9)
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

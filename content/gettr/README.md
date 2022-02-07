@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/7/2022 8:15 AM (UTC)`
+
+2/6/2022 Miles Guo: The reason why the CCP kowtows to Russia is that the Caucasians in the West don’t want to engage with them. So, the CCP can only use the excuse that Russia is the origin of communism to fool the Chinese people. With the anger building up in the hearts of the Chinese, they can turn against the CCP once they have a chance.<br/><br/>2/6/2022 文贵直播: 中共认俄爹是因为西方白人不愿和中共交往，中共只好以俄国是共产主义发源地为由忽悠中国人；中国老百姓心中积压的怒火使得他们一有机会就会向中共动手<br/>
+![img](https://media.gettr.com/group22/getter/2022/02/07/08/3e3c1a61-cfee-7fe0-0cf7-74d7bd2d9527/out.jpg)
+
+---
+
+`@miles 2/7/2022 8:13 AM (UTC)`
+
+2/6/2022 Miles Guo: The CCP collects urine and feces from the leaders and athletes of various countries participating in the Winter Olympics to serve its evil purpose - to extract and use their genes to produce a “better” race. The CCP is racist at its core and worships superior physiques and eugenics.<br/><br/>2/6/2022 文贵直播: 中共收集参加冬奥会各国领导人和运动员的尿和大便是服务于其邪恶的目的 - 提取并用他们的基因以生出“更优秀”的种族；中共骨子里是种族主义者并且崇拜优秀人体和基因<br/>
+![img](https://media.gettr.com/group50/getter/2022/02/07/08/50de081f-5f68-5e35-0ef0-88d7d4453200/out.jpg)
+
+---
+
 `@miles 2/7/2022 8:09 AM (UTC)`
 
 2/6/2022 Miles Guo: The Winter Olympics is dedicated to Xi Jinping only! Everyone in the CCP hates Xi for holding the Winter Olympics and the athletes colluding with the CCP. The CCP lacks both the financial resources and capabilities to successfully host the Winter Olympics. The West started to investigate the corruption in the International Olympics Committee caused by the CCP.<br/><br/>2/6/2022 文贵直播: 冬奥会是习太阳一个人的！党内都恨习办冬奥会以及和中共同流合污的运动员；中共在财力和能力上都无法保证冬奥会成功召开；西方已开始调查国际奥委会跟中共的腐败<br/>
@@ -141,20 +155,6 @@ This is the BIG ONE I previewed on @WarRoom a little earlier regarding the Covid
 
 2/4/2022 Miles Guo: The fellow fighter found a smart way to be released after being arrested due to her airing the footage of the dragon-head-shaped tower of Pangu Plaza on CCTV. The CCP’s opening ceremony of the Winter Olympics can’t hide from the Pangu Plaza, and the impact of the Whistleblowers’ Movement is everywhere. The CCP has dispatched special police and spies to the scene, indicating how fearful it is!<br/><br/>2/4/2022 文贵直播：在CCTV播放盘古龙头画面的国内战友被抓后机智脱险；中共冬眠会开幕式回避不了盘古，爆料革命的影子无处不在；中共派特警、特工到现场，足见其有多恐惧！<br/>
 ![img](https://media.gettr.com/group34/getter/2022/02/05/01/c6e69703-ae1d-17f7-3fdd-a7181295cf65/out.jpg)
-
----
-
-`@miles 2/5/2022 1:11 AM (UTC)`
-
-2/4/2022 Miles Guo: CCP, the most rigorous criminal organization in the world, treated the heads of state attending the Winter Olympics in the same way as before, but the participants have all changed. Almost 90% of the people at the scene are soldiers.<br/><br/>2/4/2022 文贵直播：世界上最严谨的黑社会组织中共迎接参加冬眠会的各国元首的章法未变，但内容皆变；现场几乎90%是军人。
-![img](https://media.gettr.com/group44/getter/2022/02/05/01/b7d57b6d-1ba1-08b3-93b8-36d16222ed2f/out.jpg)
-
----
-
-`@miles 2/4/2022 11:18 PM (UTC)`
-
-2/4/2022 Miles Guo: Why is Putin staying at Waldorf Astoria Beijing? Who are the only two powerful figures attending the opening ceremony of the Winter Olympics? Four or five bodyguards of Putin have contracted the CCP virus, with a total of 16 persons in his team being infected. In addition, the CCP’s sniper leader died a sudden death at the Pangu Plaza. All these things sound extremely unusual.<br/><br/>2/4/2022 文贵直播：普京为何住在华尔道夫酒店？出席冬奥会开幕的两位大佬是谁？普京有4、5个保镖染上了病毒，其团队共16人染毒，加之中共的狙击手队长在盘古暴毙，这些事儿都非同寻常啊<br/>
-![img](https://media.gettr.com/group17/getter/2022/02/04/23/330f2228-9d55-782b-ee35-dd078c707486/out.jpg)
 
 ---
 

@@ -2,44 +2,25 @@
 ---
 
 
-## 中国苏联古巴朝鲜共产主义的本质是我没有的你也不能有
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1969149/)
+## 我看到我自己的时候我我更加警醒我是有使命的
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1969168/)
 
-G-TV视频链接：[https://gtv.org/video/id=620087d1585ecc15d73e5d80](https://gtv.org/video/id=620087d1585ecc15d73e5d80)
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-**郭文贵先生：**我们爆料革命人永远做到“唯真不破”，你得看你自己。就像昨天有人跟我说：“哎呀，Miles，你就是神哪！天下哪有你这样的人哪？几十亿人类，你轻描淡写，你看着轻轻松松你就把这个事儿搞定了，这个美国大使馆的事情多大多大！” 你知道我要有一点点儿感觉，感觉到说这话我幸福啦、我兴奋啦、我自我感觉好啦，我就该死！我不觉得是因为我，但没有我们它绝对不会有这样儿发生，但我不会觉得是因为我。这就是一个中国人你看到的。欺民贼一有啥事儿“这是我干的，这都是我干的！”
+我看过多遍我跟你们说过，后来我拿他擦去。递给了信心，老师，递给我们老师擦屁股纸去了。因为那时候发了好多呀，都在那，那什么大有作为呀，是不是啊，那个邓小平个子矮呀，拿着鸡鸡当他奶呀，那是在骂邓小平，你看我们当时看到骂邓小平，最后邓小平上台，最后李先念聂荣臻杨得志汪东兴是吧，夸夸夸起来。
 
-他看不得喜币有战友发财。你知道喜币发财有多少人心疼啊，你们一定记住：他不是说你发财他没发着，他是看不得你发财。他可以“我可以没有，你也不能有！”这就是大陆人看台湾和香港一样的道理，“我可以没有民主法治，你也不能有！” 所有人都是这病态的心态，一看到雅各你长这样儿，“凭什么你长这样脸那么好看啊？我可以没有长那么好看，你不能长那么好看！” 这才是邪恶的。
+然后从1977的直接到1978到11大。然后打倒。林彪4人帮反党集团。然后汪东兴起来，哇塞，这个是很大。好不好？11大，今天我在看，那个时候郭文贵诞生，就是晚了几年，在早几年绝对就没有共产党了，绝对没了。我非常自信啊。我生下来我认为特别我看到我的照片，我现在看自己照片，我真的是我一看就现在就在我手机里做封面啊。我每天看着我就就鼻子酸，你想流泪，因为我很久没看到我8岁的照片了，我一看我吧，就想流泪啊。我是拿着它这个专业就在我的手机上当封面，但是我看到我自己的时候我我更加警醒我是有使命的，所以说你回答所以的问题人的到今天这个梦的来源绝对和你在做梦之前你穿啥衣服，你白天你见了啥干啥事儿，我不相信，白天你吃了猪食，晚上你做着的人梦。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/我看到我自己的时候我我更加警醒我是有使命的.001.jpeg)
+2022年1月7日文贵大直播
 
-这就是没人看得了佳佳、王子在国外就长这样的，现在两个在这儿并肩齐坐，私下里边儿脚踩着还摸着腚是吧？然后就你们过着美好的生活，他亲戚都不接受，同学都不接受，“我可以没有这样儿的生活，你也不能有！” 这才是邪恶的共产主义本质。就这个世界上，老子不过美利坚式生活，是吧？你们也都不能过，这就是古巴呀，这就是北朝鲜啊，是吧？这一样的，这就是共产党、原苏联啊。
-
-字幕来源：[2022年1月27日 文贵大直播 全文字版](https://gnews.org/zh-hans/1924957/)
-
-编辑整理：Jacques；
-
-字幕文件制作：知津；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+*发布：tianzhihuan*
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

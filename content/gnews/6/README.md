@@ -2,42 +2,33 @@
 ---
 
 
-## 所有所谓严肃媒体包括大的社交媒体平台未来都会被审判
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1969208/)
+## 凯文•麦卡锡发誓要调查COVID的起源
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1969220/)
 
-G-TV视频链接：[https://gtv.org/video/id=620088dc585ecc15d73e5dca](https://gtv.org/video/id=620088dc585ecc15d73e5dca)
+**翻译/采编: MSGZ**
 
-**郭文贵先生：**你看我们爆料革命到今天可以说最牛的从不在乎别人怎么看我们，所谓的严肃媒体，我可以告诉大家，所有的严肃媒体未来都会被审判，包括大的社交媒体平台，我说过很多遍了。你看今天的加拿大，你看今天的英国，你看看整个欧美，老百姓恨这个媒体、所谓的严肃性媒体，超过了CCP，而不是CCP排第一。冬奥会之后，这些严肃媒体为此付出的代价，你去想去吧，钱赔了，几百亿没了，得多少人完蛋呢？多少平台完蛋？老百姓会声讨它们！
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/65.jpg)图片来源：ajc
 
-这就是我们爆料革命、新中国联邦最大的机会，所以你一定要放得下。如果任何一个大媒体要采访路大脑袋，路大脑袋能把他娘、能把他老婆、能把他闺女给送上当祭品去，百分之百的，生活中的路大脑袋你看那个样儿你就知道，能把他娘、能把他女儿能送一万次，他就这么个烂渣，一说大媒体他就兴奋得不行了。但是说实在话，如果新中国联邦还觉得这个世界大媒体还值得你尊重，你就根本没闹清楚什么叫新中国联邦革命。
 
-字幕来源：[2022年1月27日 文贵大直播 全文字版](https://gnews.org/zh-hans/1924957/)
+众议院少数党领袖凯文- (Kevin McCarthy)表示，如果共和党在即将举行的中期选举后重新获得众议院多数席位，共和党人将对中国采取更强硬的立场并进行更多审查。
 
-编辑整理：Jacques；
+麦卡锡表示，将成立一个两党委员会，以查清始于中国的COVID的起源。他和其他四名共和党人签署了一封信，要求对2019年底在武汉爆发的病毒进行进一步调查。
 
-字幕文件制作：大好河山；
+今年1月，共和党人向总统乔·拜登提交了一封联名信，要求在调查2019年从中国武汉的一个实验室出现的COVID-19的合作中提高透明度和增加活动。此外，美国国会议员们还表示，联邦政府和军方内部的官员未能就有关该大流行病的信息作出回应。
 
-视频制作及上传：Cindy；
+这封信由众议院议员迈克尔·麦考尔（R-Texas）签署。迈克尔·麦考尔（R-Texas）、弗兰克-卢卡斯（R-Okla）和凯西-麦克莫里斯-罗杰斯（R-Wash.）在信中对军事研究和政府情报部门缺乏公共知识表示关切。
 
-G-News发布：小满；
+众议院外交事务委员会的共和党人在去年8月公布了他们的调查报告，该报告挖掘了COVID-19的可能来源，国会议员迈克尔·麦考尔指责中国共产党（CCP）创造了“人类历史上最大的欺骗”。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+参考新闻链接：[https://www.dailymail.co.uk/news/article-10483009/Kevin-McCarthy-outlines-Republicans-plan-control-China-regain-majority-House.html](https://www.dailymail.co.uk/news/article-10483009/Kevin-McCarthy-outlines-Republicans-plan-control-China-regain-majority-House.html)
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+*发布：tianzhihuan*
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
