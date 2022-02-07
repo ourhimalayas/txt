@@ -2,76 +2,25 @@
 ---
 
 
-## 有声|母爱
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1967537/)
+## 共和党众议院迈克尔-麦考尔 抨击NBC在奥运会期间粉饰中共的种族灭绝
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1967600/)
 
-配音：香草山教育部 – 百香果
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-生我
-养我
-你不怨不悔
-风里来
-雨里去
-寒往暑来
+众议院外交事务委员会
+共和党—-[新闻稿](https://gop-foreignaffairs.house.gov/press-release/mccaul-blasts-nbc-for-whitewashing-ccps-genocide-during-olympics/) 
+02/05/2022
+翻译：V 在途中
 
-背我
-抱我
-你不离不弃
-早也罢
-晚也罢
-日日如此
+![](https://assets.gnews.org/wp-content/uploads/2022/02/U.S._Congressman_Michael_McCaul_addressing_cybersecurity_at_Rice_University.jpg)
 
-在和平破碎年代
-毒针横行
-恶魔遍地
-你为我挡了针
-阻了毒
-浑身是伤
+华盛顿特区——众议院外交事务委员会主席、共和党人迈克尔·麦考尔在 NBC 记者在北京奥运会开幕式上发表多项评论后发表了以下声明，这些评论淡化了中国共产党犯下的可怕的种族灭绝和侵犯人权行为；描述了当前美国国会、前共和党政府和现任民主党政府都表示的正在进行的种族灭绝是“被指控的”或仅仅是一种人权“侵犯”；并重申了中共的宣传，即他们认为自己是“发展中国家的拥护者”有“充分的支持”。
 
-我该拿什么回报你
-我的母亲
-我幼小心灵
-如何盛纳你如山之爱
-压重我
-难以呼吸
-我该拿什么回报你
-我的母亲
-你无私无悔
-赠与我爱
-护我长大
-无痛无灾
+“在这些比赛开始之前，我们的委员会与 NBC 新闻进行了长时间的交谈，我们表达了我们的严重担忧，即通过转播 2022 年北京奥运会，他们将允许中共散布谎言和宣传。他们当时向我们保证，他们将确保这个严重的问题得到妥善处理。相反——正如我们所担心的那样——NBC 记者在开幕式上发表了多条评论，实质上是粉饰了中共的种族灭绝和他们对自己人民犯下的罪行。
 
-等我
-母亲
-等我长大
-还你恩情
-不要离开我太早
-尽管你
-早已被迫强针
+“让我说清楚。中共正在进行种族灭绝。这不是“声称的”——这是事实。而中共通过奴役、监禁、酷刑、恐怖、强奸和谋杀来消灭整个文化并不是“违法行为”。这是一场种族灭绝。NBC记者任何软化中共压迫和暴行的野蛮性质的努力，只会使NBC他们成为中共的傀儡。
 
-等我
-母亲
-等我长大
-变壮变强
-灭了那邪魔
-灭了那恶鬼
-还人间清明
-还母亲恩情
+审核校对：Barry Jack
+上传排版：V在途中
 
-文字版原文：[母爱](https://gnews.org/zh-hans/1960788/)
-
-音频处理：Fei797
-发稿：Fei797
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
