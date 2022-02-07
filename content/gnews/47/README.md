@@ -2,10 +2,10 @@
 ---
 
 
-## 深圳石岩街道两地升级为中风险地区，大批防疫人员进入
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1969433/)
+## 当务之急是各州要立即采取行动阻止疫苗强制令
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1969422/)
 
-02/04/2022 深圳石岩街道两地升级为中风险地区，大批防疫人员进入。
+02/03/2022 战斗室：当务之急是各州要立即采取行动阻止疫苗强制令。全美范围内现在有好几个好的法案。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

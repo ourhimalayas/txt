@@ -2,48 +2,78 @@
 ---
 
 
-## 巴西Itajaí市全民测试证明 伊维菌素可降低感染、住院和死亡
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1966404/)
+## 参议员Johnson致函Austin要求提供美军受到COVID-19疫苗伤害的信息
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1964571/)
 
 作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏）
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-本文摘自1月15日，巴西圣保罗科尔教学研究所（Instituto Kerr de Ensino e Pesquisa, São Paulo）、圣保罗州立大学（State University of São Paulo）动物科学系、圣保罗里贝朗普雷图医疗学校（Ribeirão Preto Medical School, University of São Paulo）遗传学系、里贝朗普雷托CTAG基因组评估技术中心（Centro Técnico de Avaliação Genômica C.T.A.G, Ribeirão Preto）、巴西利亚Corpometria 研究所、加拿大多伦多大学（University of Toronto）、美国剑桥EAFIT数据分析中心（Data Analysis, Universidad EAFIT）、美国前线Covid-19重症监护联盟 (Front-Line Covid-19 Critical Care Alliance，FLCCC)和伊塔雅伊市政厅（Itajaí City Hall, Itajaí）的Flavio A.Cadegiani博士等人发表的论文《[Strictly regular use of ivermectin as prophylaxis for COVID-19 leads to a 90% reduction in COVID-19 mortality rate, in a dose-response manner: definitive results of a prospective observational study of a strictly controlled 223,128 population from a city-wide program in Southern Brazil](https://www.researchgate.net/publication/358386329_Strictly_regular_use_of_ivermectin_as_prophylaxis_for_COVID-19_leads_to_a_90_reduction_in_COVID-19_mortality_rate_in_a_dose-response_manner_definitive_results_of_a_prospective_observational_study_of_a)》。
+2022年2月1日，美国参议员Ron Johnson致函国防部（Department of Defense，简称DoD）部长Lloyd Austin，以确认1月24日俄亥俄州律师Thomas Renz在华盛顿特区举行的《[Covid-19: A Second Opinion](https://rumble.com/vt62y6-covid-19-a-second-opinion.html)》中的陈述。Johnson参议员要求Austin部长在2022年2月15日之前提供有关军人受到COVID-19病毒疫苗伤害的信息。
 
-文章介绍，2020年7月7日至2020年12月2日，在巴西圣卡塔琳娜州（state of Santa Catarina）伊塔雅伊市（city of Itajaí）开展一项使用伊维菌素（ivermectin）预防COVID-19的全民健康系统计划研究。本研究的目的是评估常规使用伊维菌素对预防COVID-19 感染和死亡率的影响。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/556737019-U-S-Sen-Johnson-Asks-Secretary-Austin-1.jpg)
 
-测试组按每人每15天连续两天服用0.2mg/kg/天剂量的伊维菌素。在研究期间，建议被确诊的 COVID-19所有参与者不要使用伊维菌素（ivermectin）、硝唑尼特（nitazoxanide）、羟氯喹（hydroxychloroquine）、螺内酯（spironolactone）或任何其他声称对 COVID-19 有效的药物。该市也没有为感染 COVID-19 的参与者提供任何特定药物的门诊治疗。
+2022年1月24日，由多位世界知名医生和医学专家参加的《[Covid-19: A Second Opinion](https://www.thegatewaypundit.com/2022/02/sen-ron-johnson-sends-letter-sec-defense-demanding-information-high-covid-19-vaccine-injury-among-military-personnel/)》会议在华盛顿特区举行，该会议由参议员Ron Johnson主持。
 
-在该市登记的223,128名居民中，61,583名因年龄不超过18岁没有被纳入研究范围。剩下18岁以上的161,545人中，1,984人因2020年7月7日之前有感染COVID-19记录也被排除在研究范围之外，最终确定159,561人纳入研究范围。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-06_13-33-49.png)
 
-在这159,561人中，最终113,845人在感染COVID-19之前接受了伊维菌素计划，占研究对象的71.3%，另外45,716人在研究期间未接受或不想接受伊维菌素，包含作为预防或治疗感染COVID-19后的药物，占研究对象的28.7%。
+在长达5个多小时的讨论中，几位世界知名医生和医学专家就应对COVID-19病毒全球大流行提供了不同的视角，对目前掌握的COVID-19病毒大流行早期和医院应对状况、COVID-19病毒疫苗的有效性和安全性，什么是对的、什么是错的、现在应该做什么、以及长期需要解决的问题等展开讨论。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/cureus-0014-00000021272-i01.jpg)
+在这次会议上，俄亥俄州律师 Thomas Renz展示了Samuel Sigoloff博士、 Peter Chambers和Theresa Long等勇敢的吹哨人（whistleblowers）在他们在临床工作中，发现自匆忙推出试验性的Covid-19病毒疫苗以来，多种严重疾病在美军现役人员中呈天文数字增加，他们通过调查美国国防医学流行病学数据库 ( [Defense Medical Epidemiology Database](https://www.health.mil/Military-Health-Topics/Combat-Support/Armed-Forces-Health-Surveillance-Division/Data-Management-and-Technical-Support/Defense-Medical-Epidemiology-Database)，简称[DMED](https://www.health.mil/Military-Health-Topics/Combat-Support/Armed-Forces-Health-Surveillance-Division/Data-Management-and-Technical-Support/Defense-Medical-Epidemiology-Database))的数据发现，自一年前推出COVID-19病毒疫苗以来，美军部队现役人员的健康状况发生了令人不安的异常情况，其中最令人担忧的是癌症增加了3倍。
 
-在来自伊塔雅伊市的113,845名服用伊维菌素作为预防COVID-19的参与者中，有4,197人的RT-PCR检测SARS-CoV-2病毒呈阳性，感染率为3.7%，而45,716名未服用伊维菌素的参与者中，有3,034人的RT-PCR检测SARS-CoV-2病毒呈阳性，感染率为6.6%。这7,345名感染者的信息如下：
+在Ron Johnson参议员致函国防部部长Lloyd Austin的信中，Johnson引用了Renz的报告，这些举报人发现，根据国防医学流行病学数据库([DMED](https://www.health.mil/Military-Health-Topics/Combat-Support/Armed-Forces-Health-Surveillance-Division/Data-Management-and-Technical-Support/Defense-Medical-Epidemiology-Database))的数据，与2016年~2020年2月COVID-19病毒大流行前的五年平均水平相比，2021年在[DMED](https://www.health.mil/Military-Health-Topics/Combat-Support/Armed-Forces-Health-Surveillance-Division/Data-Management-and-Technical-Support/Defense-Medical-Epidemiology-Database)登记的流产、癌症和许多其他疾病显著增加，例如，在圆桌会议上，Renz表示，登记诊断的神经系统问题增加了10倍，从五年平均值的82,000例增加到2021年的863,000例，其它疾病也有大幅增加，具体包括以下惊人的数字：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/TABLE-1-Baseline-characteristics-of-subjects-enrolled-in-the-study-before-matching-and-after-scaled.jpg)
+高血压（Hypertension）–增加2,181%
 
-根据上面的结论，使用伊维菌素作为COVID-19预防性药物，COVID-19感染率降低了（6.6%-3.7%）÷6.6%=44%。
+神经系统疾病（Diseases of the nervous system）–增加1,048%
 
-从使用伊维菌素作为COVID-19预防性药物的COVID-19的4,197名感染者中，抽取3,034作为研究亚组，每组3,034人，共6,068人COVID-19感染者的后续调查中，使用伊维菌素作为预防药物的感染者住院44人，感染COVID-10后的住院率为1.6%，未使用伊维菌素作为预防药物的感染者的住院99人，感染COVID-10后的住院率为3.3%，使用伊维菌素作为预防药物住院率降低56%率，对变量进行调整后，住院率降低了67%。
+食道恶性肿瘤（Malignant neoplasms of esophagus）–增加894%
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/cureus-0014-00000021272-i02.jpg)
+多发性硬化症（Multiple sclerosis）–增加680%
 
-使用伊维菌素作为预防性药物的感染者死亡25人，感染COVID-19后的死亡率为0.8%，未使用伊维菌素作为预防性药物的感染者死亡79人，死亡率为2.6%。因此，使用伊维菌素作为预防性药物，死亡率降低68%，调整后的死亡率降低了70%。
+消化器官恶性肿瘤（Malignant neoplasms of digestive organs）–增加624%
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/TABLE-2-Propensity-score-matched-hospitalization-and-mortality-rate-among-ivermectin-users.jpg)
+格林-巴利综合征（Guillain-Barre syndrome）——增加551%
 
-在开始使用伊维菌素作为预防COVID-19计划之前和开始使用伊维菌素作为预防COVID-19期间，伊塔雅伊市COVID-19住院率比较中，感染COVID-19后，使用伊维菌素作为预防COVID-19药物的住院率从计划开始前的6.8%下降到计划开始后的1.8%，死亡率从3.4%下降到1.4%。
+乳腺癌（Breast cancer）–增加487%
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/TABLE-4-Hospitalization-and-mortality-rates-registered-in-the-city-of-Itajai-Brazil-before-versus.jpg)
+脱髓鞘（Demyelinating）–增加487%
+
+甲状腺和其他内分泌腺的恶性肿瘤（Malignant neoplasms of thyroid and other endocrine glands）——增加474%
+
+女性不孕症（Female infertility）–增加472%
+
+肺栓塞（Pulmonary embolism）–增加468%
+
+偏头痛（Migraines）–增加452%
+
+卵巢功能障碍（Ovarian dysfunction）–增加437%
+
+睾丸癌（Testicular cancer）–增加369%
+
+心动过速（Tachycardia）–增加302%
+
+在Ron Johnson参议员致函国防部部长Lloyd Austin的信中还提到，在收到Renz报告[DMED](https://www.health.mil/Military-Health-Topics/Combat-Support/Armed-Forces-Health-Surveillance-Division/Data-Management-and-Technical-Support/Defense-Medical-Epidemiology-Database)数据库中一些显示了心肌炎的数据已被删除，[DMED](https://www.health.mil/Military-Health-Topics/Combat-Support/Armed-Forces-Health-Surveillance-Division/Data-Management-and-Technical-Support/Defense-Medical-Epidemiology-Database)数据库已被篡改后，他在1月24日立即写信给Lloyd Austin，要求保留所有提及、关联或报告给DMED的记录。但至今还不知道Lloyd Austin是否遵守了这个要求。
+
+Ron Johnson参议员警告，任何对Renz在圆桌会议上透露的Samuel Sigoloff博士、Peter Chambers和Theresa Long三位勇敢的举报人采取的报复行动，都不会被容忍，并将被立即进行调查。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/556737019-U-S-Sen-Johnson-Asks-Secretary-Austin-2.jpg)
+
+在信的最后，参议员Ron Johnson向Lloyd Austin国务卿提出了以下问题：
+
+1.与2016年~2020年的五年平均水平相比，2021年[DMED](https://www.health.mil/Military-Health-Topics/Combat-Support/Armed-Forces-Health-Surveillance-Division/Data-Management-and-Technical-Support/Defense-Medical-Epidemiology-Database)数据库中登记诊断的流产（miscarriages）、癌症或其他疾病是否有所增加？如果情况属实，请解释国防部（DoD）采取了哪些行动来调查增加的根本原因。
+
+2.从2021年1月到2021年12月，[DMED](https://www.health.mil/Military-Health-Topics/Combat-Support/Armed-Forces-Health-Surveillance-Division/Data-Management-and-Technical-Support/Defense-Medical-Epidemiology-Database)数据库中登记诊断的心肌炎数据是否已从数据库中删除？如果是这样，请解释删除这些信息的原因和时间，并确定删除者。
 
 参考数据：
 
-[Ivermectin Prophylaxis Used for COVID-19: A Citywide, Prospective, Observational Study of 223,128 Subjects Using Propensity Score Matching](https://www.ncbi.nlm.nih.gov/labs/pmc/articles/PMC8765582/)
+[Sen. Ron Johnson Sends Letter to Sec. of Defense Demanding Information on Shockingly High COVID-19 Vaccine Injury Among Military Personnel](https://www.thegatewaypundit.com/2022/02/sen-ron-johnson-sends-letter-sec-defense-demanding-information-high-covid-19-vaccine-injury-among-military-personnel/)
 
-[Ivermectin for preventing and treating COVID-19](https://pubmed.ncbi.nlm.nih.gov/34318930/)
+[U.S. Sen. Johnson Asks Secretary AustinFull description](https://www.scribd.com/document/556737019/U-S-Sen-Johnson-Asks-Secretary-Austin#download)
+
+[COVID-19: A Second Opinion](https://rumble.com/vt62y6-covid-19-a-second-opinion.html)
+
+[Whistleblowers share DOD medical data that blows vaccine safety debate wide open](https://www.theblaze.com/op-ed/horowitz-whistleblowers-share-dod-medical-data-that-blows-vaccine-safety-debate-wide-open)
 
 编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 

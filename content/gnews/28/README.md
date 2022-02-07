@@ -2,39 +2,60 @@
 ---
 
 
-## 有声|美国总统顾问表示，对俄罗斯的新制裁将影响中（共）国经济
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1971415/)
+## 海航与PAG太盟集团合谋虚假抵押股权骗取贷款
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/1971416/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-2月6日，据《国际文传电讯社》报道，美国总统国家安全顾问杰克·沙利文周日对NBC电视台说，在俄罗斯入侵乌克兰的情况下，对俄罗斯的制裁也将影响到中（共）国，而中（共）国不遵守制裁也将带来惩罚措施。
+加拿大温哥华扬帆农场：薇文viven
 
-他强调，制裁还将针对“俄罗斯的金融系统，当然，它与中（共）国的经济也有关系”。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/d-edited.jpg)图片来源：sjmrw
 
-这位美国总统顾问说，在华盛顿看来，俄罗斯可能入侵乌克兰的负面后果也会影响到中（共）国。
 
-沙利文还说，他没有直接证据表明在俄罗斯总统普京和中（共）国国家主席习近平在北京举行的会议上是否提出过乌克兰问题。
+**一，[海航]在海外的狂购潮**
 
-西方国家对俄罗斯在乌克兰边境附近的部队集结和行动表示担忧。他们认为俄罗斯可能正在计划入侵该国。俄罗斯多次表示，它没有计划对邻国进行侵略。
+2016年4月，[海航集团]在海外最后疯狂扩张中，以26.2亿港币 (约 $3.37 亿美元)的价格，从[黑石集团]手中收购香港房地产商“泰昇控股”66% 的股份。这笔交易完成后，海航对[泰昇]全面收购，[黑石集团]自2014 年收购[泰昇]控股，到2016年换手[海航]，获利 58% 后满足离开。海航改名“泰昇控股”为“香港国际建设发展管理公司”（以下简称“香港国际建投”) 成为其子公司。
 
-早些时候有报道称，美国当局正在准备制裁，以防俄罗斯攻击乌克兰，其中特别包括对俄罗斯领导人和接近克里姆林宫的人以及银行的限制。
+该公司从2016年底到2017年初五个月，以272亿港币一口气购入香港旧机场启德地段的4块地皮。
 
-PS：中共以为自己傍着俄罗斯这个大爷，可以拿下台湾，可没想到俄罗斯大爷把中共这只鸡蹂躏后，还要强迫它去赚钱。美国公布的情报与郭先生提早告知的消息遥相呼应。
+但从2017年3月，郭文贵先生开始对王岐山及[海航]等盗国贼家族进行全方位揭露后，导致[海航]在香港的股价和A股持续下跌，出现巨额债务。
 
-文字版原文：[美国总统顾问表示，对俄罗斯的新制裁将影响中（共）国经济](https://gnews.org/zh-hans/1967407/)
+**二、[海航]与PAG 合谋虚假抵押获取贷款**
 
-音频处理：Fei797
-发稿：Fei797
+[海航]为偿还一季度到期的的10亿人民币（约1.4亿美元）的到期债务和接踵而来两个季度120亿人民币(约16.4亿美元)债务，于2018年2月、3月，把[香港国际建投]核心资产的两幅启德地皮分别以159.6亿和63.5亿港币卖给[香港恒基地产]和[香港会德丰地产]。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+几乎同时，[海航]以[香港国际建投]41%的股权，作价3.96亿美元为质押物，获得 [太盟集团PAG] 一笔未公开数额的贷款。双方约定，若股价一直走低，贷款价值比低于一定门槛，PAG 可永久持有[香港发展公司] 82%的股份。这个门槛一直未公布，[香港国际建投]虚高的股价，为后续持续甩卖已质押给PAG的资产留出活口。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+紧接着2018年4月，[海航]把近30% 资产，约180亿美元转移到[贯军]名下的美国 “海南慈航基金”。
+
+2018年3月、2019年2月，[香港国际建投]将最后两幅[启德]住宅地皮分别以64亿、69亿港币，亏损7.4亿美元，再次出让给[香港会德丰地产]。[会德丰地产]由包玉刚家族经营，现任董事局主席吴宗权是包玉刚外孙。
+
+就在[香港国际建投]濒临坠崖之际，3年前赚饱钱抽身的[黑石集团]，其旗下 “时代控股”，于2019年3月全额回购[香港国际建投]股份。其中，有条件“强制全部邀约”(MGO) 股份为69.54%， HK$3/股，计70亿港币(约$8.9亿美元)；其余30.46%为无条件MGO。又让[海航]续了一阵子命。但仅三个月后，时代控股就把烫手山芋扔回给了[香港英皇国际]。
+
+至此，[香港国际建投]的港股股价，几天之内瞬间暴跌一半以上，再无回升之势。按双方约定，[PAG太盟集团]此时可永久持有是[香港国际建投]毫无价值的资产。
+
+**结语**
+
+[香港国际建投]2018年2月把近一半股权抵押给PAG，但其资产在此后的一年半里继续被抛售，很显然是[海航]和[太盟集团]合谋的结果，双方毫不掩饰地做着虚假抵押的勾当，一次次盘剥中国百姓的财富，一定会受到人类和上天最严厉的审判和惩罚。
+
+参考资料：
+
+1、[BLACKSTONE SELLS TYSAN STAKE TO HNA FOR $337 MIL](https://www.mingtiandi.com/real-estate/finance/blackstone-sells-tysan-stake-to-hna-for-337-mil/)
+
+2、[HNA PLEDGES HK$3B STAKE IN KAI TAK DEVELOPER TO PAG IN RETURN FOR LOAN](https://www.mingtiandi.com/real-estate/finance/hna-pledges-hk3b-stake-remaining-kai-tak-projects-pag-return-loan/)
+
+3、[百亿捐赠背后，海航股权结构迷雾重重](https://cn.nytimes.com/business/20170727/hna-group-billion-donation-new-york-charity/)
+
+4、[Another MGO For HKICIM As HNA Sells Stake Back To Blackstone](https://www.smartkarma.com/insights/another-mgo-for-hkicim-as-hna-sells-stake-back-to-blackstone)
+
+5、[PAG’s Private-Equity Loan to HNA Looks Safe as Houses](https://www.bloombergquint.com/china/pag-s-private-equity-loan-to-hna-looks-safe-as-houses)
+
+6、[香港国际建设投资](https://zh.wikipedia.org/wiki/%E9%A6%99%E6%B8%AF%E5%9C%8B%E9%9A%9B%E5%BB%BA%E8%A8%AD%E6%8A%95%E8%B3%87#cite_note-14)
+
+7、[BLACKSTONE UNIT SELLS HK COMMERCIAL BUILDING TO EMPEROR INTL FOR HK$595M](https://www.mingtiandi.com/real-estate/finance/blackstones-hkicim-sells-hong-kong-building-to-emperor-intl/)
+
+* * *
+
+编辑发稿：硫酸羟氯喹64
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
