@@ -2,45 +2,37 @@
 ---
 
 
-## 被张高丽用假唐三彩假画骗奸的彭帅冬奥会后肯定被消失
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1969686/)
+## Spotify上要求开除罗根的压力揭示了自由主义者的宗教：审查制度（3/3）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1969739/)
 
-G-TV视频链接：[https://gtv.org/video/id=62008f9c585ecc15d73e6095](https://gtv.org/video/id=62008f9c585ecc15d73e6095)
+翻译： Jenny Ball
 
-**郭文贵先生：**张高丽搞彭帅说最贵的给了彭帅买了个奥迪2.6，我昨天有人跟我说。张高丽真够不要脸的，说张高丽收到的假画，还有假唐三彩，很多都给了彭帅。彭帅最后一检查，所有的唐三彩全是假的，没有一张画是真。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-07-105843.jpg)图片来源：greenwald.substack.com
 
-这个王八蛋，一个国家副总理，宇宙无限大，地球是一粒沙，我想让你干啥就干啥。你说我、昨天跟我说，我说：是真的假的？他们说：“我到彭帅家，她说这个全都能拿走的。”彭帅现在是被监管状态，就失去自由状态，冬奥会一过，彭帅就得消失，肯定消失，这是党的命令，说她已经给党和国家带来了重大不确定因素。
+民主党不仅是华盛顿的主要政治派别，控制着白宫和国会两院，而且，尤其是自由派显然是媒体、学术界和好莱坞等关键机构中的霸权文化力量。这就是为什么，认为我们已经接近胜利，他们的审查将结束是错误的。更有可能的是我们才刚刚开始，因为 让别人沉默的力量令人陶醉， 一旦一个人尝到了它的力量，他们很少会自己停下来。
 
-完了，这哥儿们昨天告诉我的。他说：你知道有多夸张七哥，我们几个人收了半天，拉走了两三车东西，没一张画是真的，给彭帅的画，没有一个唐三彩古董玩是真的。”他说：“你给彭帅的金链子，彭帅还真不要，她不要金的，但给了一些画、艺术品全是假的。”你说他有多不要脸！
+事实上，曾经有人认为，沉浸在自由互联网，自由主义精神中的硅谷巨头，不会受到参与政治审查的要求（“内容适度”是自由企业媒体更喜欢的委婉说法）。但当 《纽约时报》、《华盛顿邮报》、NBC、CNN 和其他自由媒体轴心强大的扩音器联合起来，大型科技公司的高管手上沾满鲜血，并对破坏美国民主负有责任。亿万富翁和所有人类一样，是社会和政治动物，都会本能地避免排斥和社会蔑视。
 
-字幕来源：[2022年1月27日 文贵大直播 全文字版](https://gnews.org/zh-hans/1924957/)
+除了避免诽谤的个人利益之外，公司高管还可以出于自身利益而违背自己的意愿，并违反其政治意识形态进行审查。企业媒体仍然有能力使一家公司变得有毒，而民主党现在比以往任何时候都更有权力滥用其立法和监管权力，对不服从行为进行真正的惩罚，它一直威胁要这样做。Facebook 或 Spotify 被认为有毒，以至于没有好的自由主义者可以使用它们而不被攻击为法西斯主义的同谋，白人至上主义或反疫苗狂热的，那么这将严重限制公司未来的生存能力，如果不是完全破坏的话。
 
-编辑整理：Jacques；
+人们已经不信任机构、媒体和相互不信任，知道不同意见被压制会使这种不信任变得更糟。经受住审查使真理更强大，而不是更弱。
 
-字幕文件制作：大好河山；
+正如罗根的成功，以及对传统企业媒体的信心和兴趣的崩溃所证明的那样，人们对从自由媒体公司及其任性的、像羊群一样的员工的严格控制中解放出来的话语的渴望越来越大。这就是为什么其他致力于类似自由话语原则的平台，例如用于视频的 Rumble和用于播客的Callin，继续蓬勃发展。可以肯定的是，随着这些平台的发展，这些平台将继续成为制度自由主义的目标，并让更多的持不同政见者和异端得以发表意见。时间会证明他们是否也会抵制这些审查压力。
 
-视频制作及上传：Cindy；
+这并不是说美国自由派是唯一屈服于审查制度强烈诱惑的政治派别。自由主义者经常指出，围绕公立学校课程的斗争日益激烈，尤其是保守派将所谓的批判种族理论排除在公立学校之外的运动，以此证明美国右翼也是一个支持审查的派别。这是一个糟糕的例子。
 
-G-News发布：小满；
+确实有右翼审查运动的例子：其中最糟糕的是由共和党立法机构实施，并由共和党州长支持以惩罚的法律。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+在现代美国自由主义中，审查制度是一种虚拟宗教。他们根本无法接受这样一种观念，即任何想法不同或看待世界的人都应该被倾听。这就是为什么在这场将罗根从 Spotify 中移除的活动中，比这个极受欢迎的播客主持人是否会继续在那里或在另一个平台上被听到更重要的原因。如果自由主义者成功地迫使 Spotify 放弃他们最有价值的商品，这将意味着没有人能远离他们的小暴君策略。但如果他们失败了，它可以鼓励其他平台以同样的方式对抗这些欺凌策略，让我们的话语在一段时间内更加自由。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+素材链接：[greenwald.substack.com][The Pressure Campaign on Spotify to Remove Joe Rogan Reveals the Religion of Liberals: Censorship](https://greenwald.substack.com/p/the-pressure-campaign-on-spotify)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+* * *
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*审核：文乐
+校对：花羽
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH..jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,10 +2,10 @@
 ---
 
 
-## NBA球星埃内斯·坎特鼓励冬奥会运动员不要沉默
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1969430/)
+## NBA篮球明星奥尼尔：你不该被强迫去接种你不想打的疫苗
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1969434/)
 
-02/04/2022 埃内斯·坎特：运动员有表达他们内心任何想法的自由。我要鼓励他们去发声，这样才能改变事情。
+02/04/2022 NBA篮球明星奥尼尔：我鼓励大家注意安全，照顾好家人。你不该被强迫去接种你不想打的疫苗。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
