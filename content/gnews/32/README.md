@@ -2,12 +2,18 @@
 ---
 
 
-## 疫苗杀手辉瑞CEO艾伯特·伯拉获2022年创世纪奖
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1970301/)
+## 西媒头条 — 第167期 – 西媒要闻
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1970314/)
 
-02/03/2022 也许是人类史上最荒诞的一幕！疫苗杀手辉瑞CEO艾伯特·伯拉被评选为2022年创世纪奖得主。
+制作：蚂蚁兄弟
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+**关注西班牙语媒体每日新闻焦点，真实了解西方社会**。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/xm220207.001.jpeg)
+
+发稿：信心的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH..jpeg)
 
  
 
