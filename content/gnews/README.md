@@ -15,122 +15,122 @@
 
 ---
 
-### [北京冬奥奥运团队开始对隔离酒店条件吐槽](/content/gnews/1/README.md)
+### [巴布亚新几内亚总理打过3针疫苗在北京确诊阳性](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美国发出警告：中俄结盟抗美 后果严重！](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中日财经爆|中共国春节旅游人数和收入远不及疫情之前](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [英国军方最新报告警告来自太空的核攻击](/content/gnews/4/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [拜登放弃对伊朗制裁](/content/gnews/2/README.md)
+### [北京冬奥奥运团队开始对隔离酒店条件吐槽](/content/gnews/5/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共的邪恶是自上而下自下而上的系统犯罪! 新华社主管谈“拐卖妇女”遭封杀](/content/gnews/3/README.md)
+### [中日财经爆| 美国将中共国进口光伏设备关税延长4年](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [部分感染中共病毒的韩国人将可能无法参与总统选举投票](/content/gnews/4/README.md)
+### [拜登放弃对伊朗制裁](/content/gnews/7/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [八孩女智障还是政府智障? 强奸犯的“英雄故事”被官方作为正能量来宣传](/content/gnews/5/README.md)
+### [俄罗斯入侵将在几天内造成5万名乌克兰人伤亡](/content/gnews/8/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中共的邪恶是自上而下自下而上的系统犯罪! 新华社主管谈“拐卖妇女”遭封杀](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本拟实现每天完成100万次的接种目标](/content/gnews/6/README.md)
+### [部分感染中共病毒的韩国人将可能无法参与总统选举投票](/content/gnews/10/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中共统治下的人间惨剧](/content/gnews/11/README.md)
+ ` 纽约香草山MOS02`
+
+### [八孩女智障还是政府智障? 强奸犯的“英雄故事”被官方作为正能量来宣传](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [华尔街日报母公司疑似被中共黑客攻击 数据被盗](/content/gnews/7/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声|中共要求记者提前8小时集合](/content/gnews/8/README.md)
- ` MOSREC`
-
-### [郭文贵先生2022年2月6日盖特视频（2分54秒）全文字版](/content/gnews/9/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声|G系列产品将成为全球最佳金融避险港湾](/content/gnews/10/README.md)
- ` MOSREC`
-
-### [有声|三项物价指标直指美国经济崩塌节点](/content/gnews/11/README.md)
- ` MOSREC`
-
-### [澳洲政府明确指示大学：远离中共并与英美加强合作](/content/gnews/12/README.md)
- ` 走进澳洲`
-
-### [2/6/2022 文贵直播：普京为何不跟中共签把人民币作为法币的协议就回去了呢？](/content/gnews/13/README.md)
- ` 秘密翻译组-北美组`
-
-### [冬奥会忙于平息检疫隔离投诉 朱易被网暴](/content/gnews/14/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中共国无法补偿俄罗斯被制裁所遭受的损失](/content/gnews/15/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [【粤语配音】2022年2月6日：普京为何闪电离开冬奥会](/content/gnews/16/README.md)
- ` MOS香港部`
-
-### [强国奇闻(2)](/content/gnews/17/README.md)
- ` 纽约香草山MOS03`
-
-### [谈国内情况（二）](/content/gnews/18/README.md)
- ` 雅典娜GNotes`
-
-### [谈国内情况（一）](/content/gnews/19/README.md)
- ` 雅典娜GNotes`
-
-### [2022年2月7日《樱花快报》：美军接种中共病毒疫苗后疾病发生率急剧上升](/content/gnews/20/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [草根小哥激动的无法用言语来形容了（下）](/content/gnews/21/README.md)
- ` 雅典娜GNotes`
-
-### [草根小哥激动的无法用言语来形容了（上）](/content/gnews/22/README.md)
- ` 雅典娜GNotes`
-
-### [2022年2月7日《樱花简报》：日本新增中共病毒确诊首超10万，再创新高](/content/gnews/23/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [老班长发言&#8212;我觉得是：又一个历史时刻](/content/gnews/24/README.md)
- ` 雅典娜GNotes`
-
-### [这个世界太疯狂，耗子给猫当伴娘 江苏徐州8孩强奸爹借机代言婚庆广告](/content/gnews/25/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [樱花头条┃世界各地的西藏人抗议北京2022年耻辱冬奥会](/content/gnews/26/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美国撤了，就预示着安保走了](/content/gnews/27/README.md)
- ` 雅典娜GNotes`
-
-### [GoFundMe：钱进我口袋就是我说了算](/content/gnews/28/README.md)
- ` 澳喜特战旅Gnews`
-
-### [新中国联邦2022年发展的三个重点项目](/content/gnews/29/README.md)
- ` 首尔天池农场`
-
-### [江苏丰县八孩母亲事件是集体、全面的犯罪](/content/gnews/30/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [最新研究显示：封锁对疫情防治无效](/content/gnews/31/README.md)
- ` 澳喜特战旅Gnews`
-
-### [乔治·索罗斯谈中共国：在胡佛研究所发表的讲话](/content/gnews/32/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [法律你我他：著名案例-贝德福德诉加拿大案](/content/gnews/33/README.md)
- ` 加拿大温哥华扬帆农场蓝枫法律`
-
-### [三个工作重心 | 新中国联邦力图阻止反华，团结人心，做好教育](/content/gnews/34/README.md)
- ` YALUN 亚伦`
-
-### [2022年2月6日大直播速记精萃](/content/gnews/35/README.md)
- ` 雅典娜GNotes`
-
-### [墙内世界2022/02/03](/content/gnews/36/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [单伟建口中的PAG](/content/gnews/37/README.md)
- ` 秘密翻译组-原创组`
-
-### [NFSC新闻、G|TV新闻访谈简报|2022年2月6日早](/content/gnews/38/README.md)
+### [2022年2月6日 晚 新中国联邦新闻、GTV新闻访谈简报](/content/gnews/13/README.md)
  ` 纽约香草山MOS01`
 
-### [国际学者呼吁中共配合疫情起源调查](/content/gnews/39/README.md)
- ` NFSC News`
+### [日本拟实现每天完成100万次的接种目标](/content/gnews/14/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [华尔街日报母公司疑似被中共黑客攻击 数据被盗](/content/gnews/15/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有声|中共要求记者提前8小时集合](/content/gnews/16/README.md)
+ ` MOSREC`
+
+### [郭文贵先生2022年2月6日盖特视频（2分54秒）全文字版](/content/gnews/17/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有声|G系列产品将成为全球最佳金融避险港湾](/content/gnews/18/README.md)
+ ` MOSREC`
+
+### [有声|三项物价指标直指美国经济崩塌节点](/content/gnews/19/README.md)
+ ` MOSREC`
+
+### [澳洲政府明确指示大学：远离中共并与英美加强合作](/content/gnews/20/README.md)
+ ` 走进澳洲`
+
+### [2/6/2022 文贵直播：普京为何不跟中共签把人民币作为法币的协议就回去了呢？](/content/gnews/21/README.md)
+ ` 秘密翻译组-北美组`
+
+### [冬奥会忙于平息检疫隔离投诉 朱易被网暴](/content/gnews/22/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中共国无法补偿俄罗斯被制裁所遭受的损失](/content/gnews/23/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [【粤语配音】2022年2月6日：普京为何闪电离开冬奥会](/content/gnews/24/README.md)
+ ` MOS香港部`
+
+### [强国奇闻(2)](/content/gnews/25/README.md)
+ ` 纽约香草山MOS03`
+
+### [谈国内情况（二）](/content/gnews/26/README.md)
+ ` 雅典娜GNotes`
+
+### [谈国内情况（一）](/content/gnews/27/README.md)
+ ` 雅典娜GNotes`
+
+### [2022年2月7日《樱花快报》：美军接种中共病毒疫苗后疾病发生率急剧上升](/content/gnews/28/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [草根小哥激动的无法用言语来形容了（下）](/content/gnews/29/README.md)
+ ` 雅典娜GNotes`
+
+### [樱花头条┃世界各地的西藏人抗议北京2022年耻辱冬奥会](/content/gnews/30/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [GoFundMe：钱进我口袋就是我说了算](/content/gnews/31/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [新中国联邦2022年发展的三个重点项目](/content/gnews/32/README.md)
+ ` 首尔天池农场`
+
+### [江苏丰县八孩母亲事件是集体、全面的犯罪](/content/gnews/33/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [最新研究显示：封锁对疫情防治无效](/content/gnews/34/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [法律你我他：著名案例-贝德福德诉加拿大案](/content/gnews/35/README.md)
+ ` 加拿大温哥华扬帆农场蓝枫法律`
+
+### [三个工作重心 | 新中国联邦力图阻止反华，团结人心，做好教育](/content/gnews/36/README.md)
+ ` YALUN 亚伦`
+
+### [2022年2月6日大直播速记精萃](/content/gnews/37/README.md)
+ ` 雅典娜GNotes`
+
+### [墙内世界2022/02/03](/content/gnews/38/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [单伟建口中的PAG](/content/gnews/39/README.md)
+ ` 秘密翻译组-原创组`
 
 ### [麦考尔的竞选广告抨击由反人类犯罪集团中共举办的北京冬奥会](/content/gnews/40/README.md)
  ` 秘密翻譯組G-Translators`

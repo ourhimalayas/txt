@@ -2,36 +2,28 @@
 ---
 
 
-## 有声|G系列产品将成为全球最佳金融避险港湾
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1967992/)
+## 部分感染中共病毒的韩国人将可能无法参与总统选举投票
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1968026/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生在2月4日的大直播中谈到美国社会的三大基础:
+#### 撰稿：彩虹 
 
-1. 1.5美金的面包和4美金的油价保持稳定；
-2. 律师和会计师的生活成本必须得到维持；
-3. 大企业的稳定，卡车指数等。
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-612.png)图片来源：Time
+2月6日，《国家脉动》记者娜塔莉·温特斯（Natalie Winters）发文，报道韩国感染中共病毒（COVID-19）的选民将可能无法在韩国即将举行的总统选举中投票。
 
+文章引述《韩国先驱报》（The Korea Herald）的内容说：“人们对COVID-19（中共病毒）患者是否无法在第20届总统选举中投票的问题越来越关注，因为那些在邮寄选票登记期之后被确认感染病毒的人可能无法在3月9日到投票站报到。”
 
-这三个因素影响了整个美国社会的稳定与动乱。当下，虽然有些因素正在蠢蠢欲动，但大多数情况属于个体突发情况，最坏的时刻还未到来。
+报道说，韩国的国家选举委员会（National Election Commission）有一个为期五天的窗口，接受邮寄选票的申请，在治疗中心居住的中共病毒患者和那些被隔离或自我隔离的人均可以使用。
 
-郭先生警示道，当信用卡和银行烂账危机同时出现之时，便是美国经济便崩塌之日，郭先生表示5月份之后这些危机会依次显现。与此同时，喜系列、G系列会有一系列的战略部署，如GVision和Gettr Pay的上线。
+《韩国先驱报》解释说：“在这段时间内登记的人将能够收到邮寄的选票，并通过向选举当局寄回选票来投票。”
 
-文字版原文：[G系列产品将成为全球最佳金融避险港湾](https://gnews.org/zh-hans/1966037/)
+但是，对于那些在国家选举委员会接受邮寄选票申请的窗口期之外感染了中共病毒的个人，就没有任何保障其投票选举的措施。
 
-音频处理/发稿：Daxia
+但是，“有人警告说，到选举时，下个月每天新增的（中共病毒）病例可能超过十万例，这引起了人们的担忧，（这会导致）几十万选民无法在总统选举中投票。”对此，报道说，国家选举委员会正在讨论应对这一潜在危机的措施。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+**新闻来源**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
-
+[COVID Positive? In South Korea, You Might Be Barred From Voting](https://thenationalpulse.com/2022/02/06/covid-positive-people-may-be-barred-from-voting/)
 
  
 

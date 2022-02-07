@@ -2,28 +2,28 @@
 ---
 
 
-## 部分感染中共病毒的韩国人将可能无法参与总统选举投票
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1968026/)
+## 英国军方最新报告警告来自太空的核攻击
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1968088/)
 
-#### 撰稿：彩虹 
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3-10.jpg)
+图片来源：www.secretchina.com
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-612.png)图片来源：Time
-2月6日，《国家脉动》记者娜塔莉·温特斯（Natalie Winters）发文，报道韩国感染中共病毒（COVID-19）的选民将可能无法在韩国即将举行的总统选举中投票。
+零对冲网2月6日报道，随着中俄两国雄心勃勃发展更强有力的武器包括超音速导弹，可以通过发射至地球大气层后针对地球另一半的目标发起攻击，难怪更多的西方政府正在检查其能力，即在人类的“最终前沿”—-太空方面，不仅是进攻性，也包括防御性。
 
-文章引述《韩国先驱报》（The Korea Herald）的内容说：“人们对COVID-19（中共病毒）患者是否无法在第20届总统选举中投票的问题越来越关注，因为那些在邮寄选票登记期之后被确认感染病毒的人可能无法在3月9日到投票站报到。”
+由英国国防部本周发布的一项新的报告，权威机构警告说攻击者可能潜在性地发展外太空的核武器，可以导致“民用设施或可能是针对目标的永久性的杀伤性武器”。
 
-报道说，韩国的国家选举委员会（National Election Commission）有一个为期五天的窗口，接受邮寄选票的申请，在治疗中心居住的中共病毒患者和那些被隔离或自我隔离的人均可以使用。
+该报告称到目前为止政府为其公民日常生活所能提供的保护，將有赖于对太空的控制。英国的对手很有可能在未来的战争中很快超越。
 
-《韩国先驱报》解释说：“在这段时间内登记的人将能够收到邮寄的选票，并通过向选举当局寄回选票来投票。”
+而在“太空优势”方面的维持控制是关键的，危险来自从网络攻击和电磁攻击到外太空的核攻击，例如由卫星制导的核导弹或从太空发射的导弹等。
 
-但是，对于那些在国家选举委员会接受邮寄选票申请的窗口期之外感染了中共病毒的个人，就没有任何保障其投票选举的措施。
+报告的结论很明确，英国和同盟国必须计划并投资，因为决定性的“太空竞赛”已经开始了。
 
-但是，“有人警告说，到选举时，下个月每天新增的（中共病毒）病例可能超过十万例，这引起了人们的担忧，（这会导致）几十万选民无法在总统选举中投票。”对此，报道说，国家选举委员会正在讨论应对这一潜在危机的措施。
+##### 新闻来源： [UK Military Warns About Risk Of Nuclear Attacks From Space In New Report](https://www.zerohedge.com/geopolitical/uk-military-warns-about-risk-nuclear-attacks-space-new-report)
 
-**新闻来源**
+#  
 
-[COVID Positive? In South Korea, You Might Be Barred From Voting](https://thenationalpulse.com/2022/02/06/covid-positive-people-may-be-barred-from-voting/)
+
 
  
 

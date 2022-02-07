@@ -2,29 +2,36 @@
 ---
 
 
-## 谈国内情况（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1967842/)
+## 有声|G系列产品将成为全球最佳金融避险港湾
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1967992/)
 
-整理：雅典娜速记组
-编辑：皮特
-![](https://assets.gnews.org/wp-content/uploads/2022/02/谈国内情况二--scaled.jpg)
-直播时间：2022.01.26
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生在2月4日的大直播中谈到美国社会的三大基础:
 
-海东：不敢想象是吧，所有你在墙内得到的信息，以及你能接触到的东西，都是盛世太平，都是共产党的强大啊，他们粉饰的太平出来的东西你根本无法真正地窥探到他的内心。我都讲了嘛，有一次给我说共产党为什么要打台湾，那不是假的，我跟七哥都讲过，我们共同的朋友那儿在沈阳，给我和小叶进了他的办公室，没有任何人的时候，没有任何的那个告诉我们俩说，哎，你们俩得有一个准备了啊，2到3年内要打仗啊，这都是最牛逼的。
+1. 1.5美金的面包和4美金的油价保持稳定；
+2. 律师和会计师的生活成本必须得到维持；
+3. 大企业的稳定，卡车指数等。
 
-七哥：军队的人是吧？都是将军，对吧？这些那个好人的啊，那真是个好人，那是好
 
-哥们。
+这三个因素影响了整个美国社会的稳定与动乱。当下，虽然有些因素正在蠢蠢欲动，但大多数情况属于个体突发情况，最坏的时刻还未到来。
 
-海东：没错，刚才七哥说了，我跟小叶都说，小叶一直跟我讲说那绝对好人啊，因为你没有知道一个将军可以第2天吃的跑到我们俩在吃饭。因为我们下午就要走了，跟他说一声，我说我们下午走了什么的，他能掂了掂吃自己拎着东西过来，我们吃饭的地方给我们送东西，因为旁边还有一个所谓的这个北京市的一个副局长来找小叶，就是勾兑点儿嘛，就是希望我能跟那个将军说一说，因为要军民融合了嘛。他需要他们哪的呀，类似这些东西嘛，在当地，我说我要走了，我们那什么，一个将军当时穿着他的球服，临着根本不让司机拎着来给我们送（行）。
+郭先生警示道，当信用卡和银行烂账危机同时出现之时，便是美国经济便崩塌之日，郭先生表示5月份之后这些危机会依次显现。与此同时，喜系列、G系列会有一系列的战略部署，如GVision和Gettr Pay的上线。
 
-发布：*皮特*
+文字版原文：[G系列产品将成为全球最佳金融避险港湾](https://gnews.org/zh-hans/1966037/)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
 
  
 

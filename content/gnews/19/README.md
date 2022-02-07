@@ -2,25 +2,29 @@
 ---
 
 
-## 谈国内情况（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1967835/)
+## 有声|三项物价指标直指美国经济崩塌节点
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1967969/)
 
-整理：雅典娜速记组
-编辑：皮特
-![](https://assets.gnews.org/wp-content/uploads/2022/02/谈国内情况一--scaled.jpg)
-直播时间：2022.01.26
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月4日，郭文贵先生在大直播节目中透露，今年的三月份和五月份将是美国经济开始和加剧崩塌的两个主要节点，而汽油、面包和天然气等三项物价的变化则可以直接揭示出这一经济发展态势。
 
-长岛哥：我们也难以想象，那过去五年的爆料革命每一天都是有这10分钟组成的，那过去我们现在做了多少？我相信用一句话过去，我们现在讲过了一分钟我们都无法经历的事情，我想在我们现在是每天在发生，每分钟在发生，所以很感动。但是我始终相信这今天这个事情对我们来说很大的事情，但是对爆料革命对新中国联联邦队灭共来说，我相信这只是刚刚开始！未来还有更大的比这个还要大几十倍几千倍的事情会发生，我们得提前做好心理准备，迎接这个更多的重大的时刻的到来！好了，我就讲这些，那我们再请那个海东兄再给大家讲讲，刚才没讲完。
+郭先生解释说，美国汽油、面包的价格不超过4美元，天然气价格不超过历史均价的20%，是维系普通美国民众生活稳定的三个重要因素。而这三项物价指标，是美国政治灾难具体发生的参照物。
 
-海东：我们一直这个沉浸在这种喜悦当中啊，而且确实这种幸福来得太突然啊，根本这个忽然一下好像这个有点儿承受不了，是的，我都说吧，打世界杯，我们出线我都没有这么高兴过，这么开心！这么无法形容这种内心的激动，因为这种事情不是说我能去通过我的努力，如果我按照这个训练，按照这个去努力，按照这个一定会赢，一定会达到这种水平，是吧？就像这个你说在一年前五年前告诉中国人告诉我郝海东，我说过，两年啊，美国大使馆都撤了啊，都断交了，脱钩了都这是吧？！美国会拿出来一个，说反人类罪种族大屠杀认定你中国共产党是吧？
+文字版原文：[三项物价指标直指美国经济崩塌节点](https://gnews.org/zh-hans/1966034/)
 
-发布：*皮特*
+音频处理/发稿：Daxia
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
 
  
 
