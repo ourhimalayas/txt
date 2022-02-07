@@ -2,23 +2,37 @@
 ---
 
 
-## 特魯多政府破壞「自由車隊」的籌款活動
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1971291/)
+## 有声|揭秘中共间谍单伟健的前世今生
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1971364/)
 
-采編：文萊       編譯撰稿：文明(添草滅共)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/template-87-.jpg)图片来源：thepostmillennial
-據加拿大自媒體【後千禧年】2月5日報道，在美國知名眾籌平臺GoFundMe近日終止了加拿大卡車司機的[自由車隊]籌款活動後，特魯多當局對此表示贊賞並承認自己就是幕後推手。
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+据2月5日盖特消息，现居香港的经济学家和风险资本家单伟健，其真实身份是中共高级间谍，其儿子单博也是秘密间谍。
 
-據悉，在渥太華市政府及警察局的要求下，該平臺在當天刪除了[自由車隊]籌款網頁的同時，還凍結了已籌集到的900萬美元。渥太華市長不僅對此表示支持，還呼籲所有眾籌網站都能效仿。
+郭文贵先生在GTV直播中曾透露，中共外交部是国际公认的国家情报机构。早期由负责情报的周恩来和李克农担任正副部长。单伟建父亲是早期外交人员，故单出身外交世家。作为中共文革后第一批出国留学人员，单伟健接受中共组织授命，秘密执行了各项渗透任务。
 
-報道稱，[自由車隊]現要求將所有被凍結的籌款退還給捐助者，並在基督教眾籌網站[GiveSendGo]上重新啟動了籌款活動，目前已籌集資金超過20萬元。
+2008年，中共启动“千人计划”，单伟健是发起人之一。此项计划的本质就是盗窃西方发达国家的科技军事情报，为中共统治者服务。
 
-校對編輯：硫酸羥氯喹64
+2017年，单伟健开始操控西方媒体，造谣污蔑郭文贵先生，损害其名誉；插手美国司法体系，试图剥夺郭先生家族在美资产。
 
-發稿：文明(添草滅共)
+这些对郭先生及新中国联邦的一系列攻击行动，背后的主谋是中共王岐山，具体执行秘密行动负责人，就是中共海外高级间谍单伟建。他们不仅针对郭先生本人，而是要把新中国联邦，所有华人尤其海外华人推向深渊。
 
-[原文鏈接](https://thepostmillennial.com/ottawa-police-admit-to-lobbying-gofundme-to-withhold-funds-from-canadian-truckers)
+2021年，单伟健指使杨贝贝以采访郭先生为名，编辑裁剪虚假视频，歪曲事实，欺骗西方媒体与民众，煽动引导排华情绪，企图引发第二次‘印尼排华大屠杀’事件。 足见单伟健及背后的中共独裁政权，与新中国联邦及中国人民为敌，不惜使出昏庸烂招，以致狗急跳墙的本性。
 
+文字版原文：[揭秘中共间谍单伟健的前世今生](https://gnews.org/zh-hans/1966610/)
+
+音频处理：Fei797
+发稿：Fei797
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
