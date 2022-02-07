@@ -2,22 +2,68 @@
 ---
 
 
-## 有声|美国就中共强迫劳动行为实行企业ESG检验
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1967444/)
+## 有声|母爱
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1967537/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月3日，据当地媒体消息显示，美国联邦政府即将根据一项旨在阻止中共强迫劳动的法案，要求当地公司对其各自的全球供应链进行更加严格的审查。
+配音：香草山教育部 – 百香果
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+生我
+养我
+你不怨不悔
+风里来
+雨里去
+寒往暑来
 
-资料显示，长期以来，中共国新疆地区的维吾尔和其他少数民族的民众一直被中共政府胁迫在工厂、农场和矿场为中共国的各行各业提供服务，这当中包括服装公司、食品品牌、太阳能电池板制造商、电动汽车制造商和科技公司供应商等。
+背我
+抱我
+你不离不弃
+早也罢
+晚也罢
+日日如此
 
-对此，美国国土安全部正在寻求一项最佳做法，得以让那些严重依赖中共国提供原材料、部分成品和全成品的美国公司建立更加透明和完善的问责制。据悉，国土安全部已经开始要求海关提供关于中共国进口商品的溯源地和核查标准，以便确认这些商品是否涉及发生在中共国新疆区的强迫劳动行为。
+在和平破碎年代
+毒针横行
+恶魔遍地
+你为我挡了针
+阻了毒
+浑身是伤
 
-文字版原文：[美国就中共强迫劳动行为实行企业ESG检验](https://gnews.org/zh-hans/1962992/)
+我该拿什么回报你
+我的母亲
+我幼小心灵
+如何盛纳你如山之爱
+压重我
+难以呼吸
+我该拿什么回报你
+我的母亲
+你无私无悔
+赠与我爱
+护我长大
+无痛无灾
 
-音频处理/发稿：Daxia
+等我
+母亲
+等我长大
+还你恩情
+不要离开我太早
+尽管你
+早已被迫强针
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+等我
+母亲
+等我长大
+变壮变强
+灭了那邪魔
+灭了那恶鬼
+还人间清明
+还母亲恩情
+
+文字版原文：[母爱](https://gnews.org/zh-hans/1960788/)
+
+音频处理：Fei797
+发稿：Fei797
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -25,9 +71,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
-
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

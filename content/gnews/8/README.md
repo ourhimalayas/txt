@@ -2,75 +2,28 @@
 ---
 
 
-## 2022年2月6日文贵先生直播摘要及音频—银河系农场
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1967702/)
+## GoFundMe：钱进我口袋就是我说了算
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1967769/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/snapshot_副本-2.jpg)
-Gettr视频连接：[2022年2月6日 文贵大直播：开幕式后普金愤然离去；中俄战略合作虎头蛇尾；贩卖人口中国妇女地位；反疫苗运动及美国经济](https://gettr.com/streaming/psu0mf2270)
+撰稿：小毛牛
+![](https://assets.gnews.org/wp-content/uploads/2022/02/trucker-protest-gofundme-cut-stefanovich-040222.jpg)网络图片
+众筹网站GoFundMe 表示：将扣留为抗议强制疫苗的加拿大卡车司机筹集的数百万美元，理由是警方报告了司机们的暴力行为。该众筹网站在一份声明中表示，将扣留已经捐赠的款项，并退还给填写申请表的捐赠者。可喜的是，另一个在线筹款平台 GiveSendGo 已宣布为车队捐款。
 
-G-TV视频连接：[2022年2月6日 文贵大直播：开幕式后普京愤然离去；中俄战略合作虎头蛇尾；贩卖人口中国妇女地位；反疫苗运动及美国经济](https://gtv.org/video/id=61ffc26b3621aa7415d64d51)
+自上周末以来，加拿大的自由车队一直在集会，预计多伦多和渥太华将举行更多的抗议活动。据报道：在参加卡车司机抗议的几千人中，迄今已有三人被捕。其中一人因携带武器；一人被控恶作剧罪名低于 5,000 美元；另一人因在社交媒体上发出威胁而被捕。
 
-1、冬奥会运动员政要被虐待、拉肚子、不能出门；
+GoFundMe 在周五的一份声明中表示：筹款活动刚开始时示威活动是和平的，但此后违反了禁止宣传暴力和骚扰的服务条款，我们现在有来自执法部门的证据，表明以前的和平示威已经成为一种占领，警方报告了暴力和其他非法活动。
 
-2、冬奥会闭幕会，会开成永远不能闭幕的闭幕会；
+众多本地居民对卡车司机们表达了同情，比如一位女士说，她对将抗议者描述为“种族主义者、厌恶女性者，甚至恐怖分子”感到愤怒。她还说，他们是各行各业爱好和平、遵纪守法的普通公民，只是受够了政府的不尊重和欺凌。
 
-3、所有这次去北京参加冬奥会的运动员和官员，他们的DNA、大小便全被中共收集；
+斯图尔特是市中心一家餐馆的厨师说：我毫不怀疑绝大多数人是和平的。但是，正如去年在美国的抗议活动中所看到的那样，少数怀有恶意的人可以很容易地迅速使局势升级。
 
-4、普京团队十几人感染，外交部和八局报告习近平只有4人感染，更不敢提入住酒店死了4人，都是外国人；
+一名印裔加拿大律师莫妮卡·乔汉说：有些人在我们家门前成群结队地走着，戴着‘让加拿大再次伟大’的帽子。我开始觉得我不想参与其中，有一种不安的感觉。
 
-5、中共和俄罗斯两个4000亿天然气合同，外加先付1000亿美元，换普京来参加冬奥会48小时，结果来了不到10小时就撤了；
+新闻链接：[Freedom Convoy: GoFundMe seizes funds of Canada ‘occupation’](https://www.bbc.com/news/world-us-canada-60267840)
 
-6、普京愤怒离京原因：中共耍赖，事先承诺俄罗斯使用人民币，按黄金保底。普京来了，中方反悔了，普京很生气；
+![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
 
-7、中共千人计划：中共派了100名学生到美国，80%是女学生，后来由党安排全嫁给了白人；
 
-8、美国经济：因为中共病毒，疫苗灾难，物价上涨，供应链断裂，肯定会下行；
-
-9、习近平的认知出了问题，挑战美国，认为美国完了，他就好了。美国经济完蛋了，最惨的就是中共国；
-
-10、中共交错朋友，和俄罗斯、伊朗 朝鲜、搅合在一起，加上习近平认知能力和实际实力的不匹配，中共必然走向死亡；
-
-11、大卡车事件会引发政治冲突，再次警告，战友不能打着新中国联邦和爆料革命名义参加大卡车运动。 不可以使用GTV直播；
-
-12、今年的三个重点：
-
-1 ）今年不搞任何新项目，不扩张，把原有的G系列做的更有影响力，主要集中精力防止全球排华发生；
-
-2 ）让国内各界战友得到真正的喜币和躺平币，每天早上闻到币的味道；
-
-3 ）集中精力把G-EDU做好，原俞敏洪新东方老师来G-EDU工资比原来高1.5倍，可以选择HDO和HCOIN付款，可以按天按周付款。走新东方的路，让新东方无路可走；
-
-13、新中国联邦愿意解救那些被绑架的妇女，有具体方案可以联系联盟；
-
-14、G-Clubs2022年会，推迟十天左右；
-
-15、三个锦囊：第一个民心向郭习亡岐山，第二个是利用病毒，第三个是制造货币；
-
-**注：大直播音频正在制作和上传中，敬请关注——**
-
-**（大直播音频位置）**
-
-编辑整理：文俊；
-
-发布：黎明之前
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
