@@ -2,32 +2,36 @@
 ---
 
 
-## 美国前国安参谋长警告：中俄联盟极其危险
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1971259/)
+## 中共的特色社会主义之特性
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1971294/)
 
-作者：银河系农场—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月5日外媒消息，随着冬奥会在北京举办，中俄形成战略联盟。在一份联合声明中两国表示，其新关系优于冷战时期建立的，任何其他政治或军事联盟。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-07-上午11.18.40.png)
-美国第一政策研究会副主席、国家安全委员会前参谋长弗莱德- 弗利茨说，中俄此次联盟，是一个令人难以置信的危险发展，特别是随着与乌克兰紧张局势的加剧。
+推荐人：香草山健身部-新世界的一员
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+推荐语：这是网上流传的一篇文章，可惜不知是谁所总结，但是总结很到位。所谓的厉害国，实际上是这个地球上最垃圾的国家，自豪吧，厉害国！
 
-目前，美国注意的是，避免与俄罗斯开战，并且阻止中共与俄罗斯形成联盟。因为一旦中俄结成联盟，势必威胁到美国和国际社会的安全与稳定。
+中共国不一定是与邻国土地争端最多的国家，但肯定是与本国居民土地争端最多的国家。争端不是问题，问题是：对外用和平解决土地争端，对内却用暴力解决土地争端。对外土地争端你们从来没有赢过一次，对内土地争端你们从来没输过一次！
+世上有个国家，看征税像欧洲国家；看福利像非洲国家；看政府大楼像超级大国；看边远地区像山顶洞人部落；看官员生活像海湾国家；看百姓生活像食人族国家；看官员发言像君子国；看官员做事像谎话国；对政府有利的就与国际接轨；对政府不利的就装神弄鬼；对外是最负责任的国家；对内是最不负责任的国家。
+这个世界的荒唐之处是：自由世界的人们对自己拥有的自由从不满足，而不自由国家的子民却对压根沾不到边的自由表现出一副心满意足的样子。
+一个连文字都被敏感屏蔽的政党，不要相信它的任何报道；一个连言论都能将你治罪的国家，不要相信它的任何宣传；一个连良心都能把你判刑的政府，不要相信它的任何口号；一个连巨贪都能获得轻判的国家，不要相信它的任何承诺；一个连枪口都能对准百姓的国家，不要相信它的任何举措。
+有人问：不撒谎会死吗？！其实我们很多普通人真的不知道，在中国不撒谎真的会死。知识分子不撒谎，不是气死就是憋死；当官的不撒谎，不是屈死就是冤死；商人不撒谎，不是破财死就是跳楼死；老百姓不撒谎，不是穷死就是累死。近代中国，每一个所谓成功故事的背后，都藏着无尽谎言。
 
-参考链接：[Fred Fleitz to Newsmax: China, Russia Alliance ‘Incredibly Dangerous’](https://www.newsmax.com/newsmax-tv/fred-fleitz-alliance-vladimir-putin-xi-jinping/2022/02/05/id/1055647/)
+一条海峡把中国人民隔成两个政治实体。一边的公民牛X了，追着官员骂，把官员骂得低头撅腚。另一边的贪官牛X了，追着人民打，打得人民哭爹喊娘。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+大陆政府跟台湾政府的最大不同是：台湾政府无论怎么服务民众，民众都能找出他们服务不到位的地方加以批评。大陆政府则是无论怎么伤害民众，都能找出这是出自于为人民服务的好意服务很完美的理由。
+美国是移进最多、移出最少的国家，证明是最好的国家。某国是移出最多、移进最少的国家，证明是最差的国家。朝鲜是既不让移进、也不让移出的国家，证明是最邪恶的国家。无论你自称制度多么先进、自称道路多么自信、自称理论多么牛X，老百姓用脚投票来证明：这都是个屁！
 
-总编：Jack Li文阳
-编辑：静言
-校正/发稿：呼吸的雾霾（文小呼吸）
-
+校对/发稿：菩提树
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2月-2.jpg)
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,39 +2,38 @@
 ---
 
 
-## 冬奥会 “一鸽都不能少” 引台民众忧虑
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1971104/)
+## 2/7银河快讯：日银六年来首次对三菱UFJ实行负利率；日本扩大投资以确保锂和镍的海外权益
+` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1971139/)
 
-作者：纽约香草山教育部 Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月4日，北京冬奥开幕式上，《闪亮的雪花》节目中，有一段剧情描写掉队的小鸽子被拉回队伍。 “一鸽都不能少”这一幕被普遍认为在映射台湾回归大陆。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-26.png)[图片来源](https://news.yahoo.co.jp/)
+**1．日本全国昨日新增确诊8****1974****例**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-1.jpeg)
+[据FNN报道，日本全国2月6日新增中共病毒（新冠COVID-19）确诊81974例。重症患者比前一天有所增加，连续第三天超过1000人。截至6日下午5:15，确认54例死亡。同时，据厚生劳动省的数据，截至2月5日，全国重症患者人数为1134人，比前一天增加35人。](https://news.yahoo.co.jp/articles/d310a11aa66a022954d0392d5adde74b6823ab8f)
 
-台湾《自由时报》称，中共对外所呈现的每个符码，都是经过精心策划的。而中共显露出来这么重要的信息，却少有台湾人关心。台湾民众对中共野心的认知如此忽视，实在令人唏嘘。
+**2****．****日本公平交易委员会对三大医药批发商操纵投标案征收罚款4亿日元**
 
-如果仔细剖析“一鸽都不能少”的含义，不难发现谁是那只掉队的鸽子，谁又是把掉队的鸽子抓回来的那只鸽。冬奥会这一表演透露了中共准备动手抓鸽子的心态。按着中共的本性，台湾的未来，可说凶险万分。
+[据朝日新闻2月6日报道，日本公平贸易委员会即将对三大药品批发商阿尔弗雷萨（东京）、铃谦（名古屋）和东邦药品（东京）发出停止令和支付总额约为4.2亿日元的罚款令，因为它们与“地区医疗机能促进组织”一起操纵药品投标，违反了反垄断法。2020年12月，这三家公司在日本公平贸易委员会提出刑事指控后被东京地区检察官办公室起诉，去年6月，每家公司被罚款2.5亿日元，各公司合计共有7名高管被判处缓刑。](https://news.yahoo.co.jp/articles/af022a14d9849bfa34f0aacd9cad2126b00e7668)
 
-郭文贵先生在2月6日大直播中，回答战友提问时指出，中共已近完结，但其灭亡前对台动武的可能性越来越高，达百分之90以上。冬奥会开幕式上的表演，实际是舆论导向宣传而已。
+**3****．****西武控股将出售包括王子酒店在内的30个设施**
 
-参考链接： 
-1. [冬奧開幕「一鴿都不能少」影射台灣？他嘆：我們還在吵總統論文](https://news.ltn.com.tw/news/politics/breakingnews/3820911)
-2. [昨夜鸟巢“一鸽都不能少”，代表台湾？](https://taiwan.huanqiu.com/article/46gqXG7slnn)
-3. [“一鸽都不能少”传到台湾，绿媒的反应酸中有忧](https://3g.163.com/dy/article/GVH45ITO0514R9OJ.html?clickfrom=channel2018_news_index_newslist#child=index&amp;offset=2)
+[据NHK 2月6日报道，为改善因疫情恶化的财务状况，西武控股正在将其在日本的约30个设施，包括位于东京港区的东京王子公园大厦，以及滑雪场和其他休闲设施，出售给新加坡的一家主权财富基金。出售后，该集团将继续管理这些设施并保持酒店的品牌。预计出售价格约为1500亿日元。](https://www3.nhk.or.jp/news/html/20220206/k10013469231000.html?utm_int=news-business_contents_news-main_003)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+**4****．日本****政府扩大投资以确保锂和镍的海外****权益**
 
-总编：Jack Li文阳
-编辑：静言
-校正/发稿：谐趣园
+[据读卖新闻2月6日报道，随着全球去碳化趋势的加强和资源竞争的加剧，为确保对日本的稳定供应，政府将加大对私营企业的支持力度，以确保在电动汽车电池中使用的锂和镍等稀有金属的海外权益。该计划的支柱是将政府在采矿项目中的最大投资额从目前的最高50%提高到100%。](https://news.yahoo.co.jp/articles/74d92738313c20809d586a8bed8ee819703b49de)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**5****．日银****六年来首次****对****三菱UFJ实行负利率**
+
+[朝日新闻数据部2月7日发文，日本银行对三菱东京UFJ银行的一些活期账户从去年年底到今年1月实行了负利率。这是自2016年首次推出负利率政策以来，约六年来首次将其应用于一家巨型银行。如果金融机构在日本银行的活期账户存款超过一定金额，日本银行将对其超出部分收取0.1%的年利率。其目的是推动银行投资和放出更多资金。然而事实证明，这对提振经济的效果有限。](https://news.yahoo.co.jp/articles/e5f866f5a8270b6b424a54a9659c2bcbb6e01fa1)
+
+**6****．****洛桑国际芭蕾舞比赛田中月乃获得第二名**
+
+[NHK 2月6日报道，瑞士洛桑国际芭蕾舞比赛被誉为15至18岁年轻芭蕾舞者的成功之门。去年的比赛由于受到疫情影响，只是通过视频记录进行了评审。今年在瑞士西部的蒙特勒，两年来首次举办。属于瑞士的一所芭蕾舞学校、来自东大阪市17岁的田中月乃，在比赛中获得了二等奖。](https://www3.nhk.or.jp/news/html/20220206/k10013469281000.html?utm_int=news-culture_contents_list-items_001)
+
+【日本银河系农场-阿尔法星球】
+作者：帆間知津
+校对：Tagomi
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

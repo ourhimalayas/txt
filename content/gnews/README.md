@@ -15,109 +15,109 @@
 
 ---
 
-### [七哥谈隔空取钱（2022-02-02摘录）](/content/gnews/1/README.md)
- ` MG FARM`
-
-### [在渥太华自由车队和平示威现场听听全国民众为何而来以及对总理特鲁多有什么看法](/content/gnews/2/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [今日盖特大V推荐 — Joe Rogan（乔·罗根）](/content/gnews/3/README.md)
+### [北京冬奥会彻底展现中共成孤家寡人穷途末路](/content/gnews/1/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [海航与PAG太盟集团合谋虚假抵押股权骗取贷款](/content/gnews/4/README.md)
+### [七哥谈“它不一定叫金融，HPay我不一定跟你界定为金融系统” （2022-02-02摘录）](/content/gnews/2/README.md)
+ ` MG FARM`
+
+### [喜马拉雅真义14解：天地鬼神与新中国联邦人一起灭共灭邪恶力量](/content/gnews/3/README.md)
+ ` 秘密翻译组-原创组`
+
+### [七哥说“不知道共产党埋了什么样的毒”（2022-02-02摘录）](/content/gnews/4/README.md)
+ ` MG FARM`
+
+### [家庭反洗脑序列：第46篇 一张邮票](/content/gnews/5/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [七哥谈隔空取钱（2022-02-02摘录）](/content/gnews/6/README.md)
+ ` MG FARM`
+
+### [在渥太华自由车队和平示威现场听听全国民众为何而来以及对总理特鲁多有什么看法](/content/gnews/7/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [今日盖特大V推荐 — Joe Rogan（乔·罗根）](/content/gnews/8/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [海航与PAG太盟集团合谋虚假抵押股权骗取贷款](/content/gnews/9/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [有声|美国总统顾问表示，对俄罗斯的新制裁将影响中（共）国经济](/content/gnews/5/README.md)
+### [有声|美国总统顾问表示，对俄罗斯的新制裁将影响中（共）国经济](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [有声|NFSC新闻、G|TV新闻访谈简报|2022年2月6日早](/content/gnews/6/README.md)
+### [有声|NFSC新闻、G|TV新闻访谈简报|2022年2月6日早](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [英国诸多学术机构获得中共捐赠后协助中共强大军事力量](/content/gnews/7/README.md)
+### [英国诸多学术机构获得中共捐赠后协助中共强大军事力量](/content/gnews/12/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|揭秘中共间谍单伟健的前世今生](/content/gnews/8/README.md)
+### [有声|揭秘中共间谍单伟健的前世今生](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [NFSC新闻、G|TV新闻访谈简报|2022年2月7日早](/content/gnews/9/README.md)
+### [NFSC新闻、G|TV新闻访谈简报|2022年2月7日早](/content/gnews/14/README.md)
  ` 纽约香草山MOS01`
 
-### [中共的特色社会主义之特性](/content/gnews/10/README.md)
+### [中共的特色社会主义之特性](/content/gnews/15/README.md)
  ` 纽约香草山MOS02`
 
-### [特魯多政府破壞「自由車隊」的籌款活動](/content/gnews/11/README.md)
+### [特魯多政府破壞「自由車隊」的籌款活動](/content/gnews/16/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [美国及世界疫情简报 （02-07-2022）](/content/gnews/12/README.md)
+### [美国及世界疫情简报 （02-07-2022）](/content/gnews/17/README.md)
  ` 波士顿五月花农场`
 
-### [解析中共国虚假的进出口贸易数据](/content/gnews/13/README.md)
+### [解析中共国虚假的进出口贸易数据](/content/gnews/18/README.md)
  ` 经济小组`
 
-### [著名记者劳拉·洛根离开推特脸书 中意盖特](/content/gnews/14/README.md)
+### [著名记者劳拉·洛根离开推特脸书 中意盖特](/content/gnews/19/README.md)
  ` NFSC News`
 
-### [美国前国安参谋长警告：中俄联盟极其危险](/content/gnews/15/README.md)
+### [美国前国安参谋长警告：中俄联盟极其危险](/content/gnews/20/README.md)
  ` NFSC News`
 
-### [美国众议院通过《美国竞争法》](/content/gnews/16/README.md)
+### [美国众议院通过《美国竞争法》](/content/gnews/21/README.md)
  ` NFSC News`
 
-### [彭帅宣布退休](/content/gnews/17/README.md)
+### [彭帅宣布退休](/content/gnews/22/README.md)
  ` 日本东京方舟农场`
 
-### [俄罗斯恢复波兰供气，俄欧关系开始缓和](/content/gnews/18/README.md)
+### [俄罗斯恢复波兰供气，俄欧关系开始缓和](/content/gnews/23/README.md)
  ` 纽约香草山MOS02`
 
-### [2/6/2022 文贵直播：新中国联邦的战友们在冬奥会让外国元首和运动员认清中共本质，这就是普京提前离开中共国的根本原因](/content/gnews/19/README.md)
+### [2/6/2022 文贵直播：新中国联邦的战友们在冬奥会让外国元首和运动员认清中共本质，这就是普京提前离开中共国的根本原因](/content/gnews/24/README.md)
  ` 秘密翻译组-北美组`
 
-### [冬奥会运动员隔离待遇凄惨](/content/gnews/20/README.md)
+### [冬奥会运动员隔离待遇凄惨](/content/gnews/25/README.md)
  ` NFSC News`
 
-### [普京闪电离京 中俄战略合作虎头蛇尾](/content/gnews/21/README.md)
+### [普京闪电离京 中俄战略合作虎头蛇尾](/content/gnews/26/README.md)
  ` NFSC News`
 
-### [曝光：国际奥委会重要成员与中共有幕后利益纠葛](/content/gnews/22/README.md)
+### [曝光：国际奥委会重要成员与中共有幕后利益纠葛](/content/gnews/27/README.md)
  ` 日本东京方舟农场`
 
-### [大量患者是死于医疗疏忽和医疗渎职](/content/gnews/23/README.md)
+### [大量患者是死于医疗疏忽和医疗渎职](/content/gnews/28/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [澳洲防长警告盟友需挺身抵抗中共 否则会失去未来十年](/content/gnews/24/README.md)
+### [澳洲防长警告盟友需挺身抵抗中共 否则会失去未来十年](/content/gnews/29/README.md)
  ` 日本东京方舟农场`
 
-### [新中国联邦让女性获得真正的平等与尊重](/content/gnews/25/README.md)
+### [新中国联邦让女性获得真正的平等与尊重](/content/gnews/30/README.md)
  ` NFSC News`
 
-### [2/7银河快讯：日银六年来首次对三菱UFJ实行负利率；日本扩大投资以确保锂和镍的海外权益](/content/gnews/26/README.md)
+### [2/7银河快讯：日银六年来首次对三菱UFJ实行负利率；日本扩大投资以确保锂和镍的海外权益](/content/gnews/31/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [中共政府挑选维族选手担任火炬手 美批其别有用心](/content/gnews/27/README.md)
+### [中共政府挑选维族选手担任火炬手 美批其别有用心](/content/gnews/32/README.md)
  ` 日本东京方舟农场`
 
-### [日媒指出中共冬奥会的问题 印证爆料革命观点](/content/gnews/28/README.md)
+### [日媒指出中共冬奥会的问题 印证爆料革命观点](/content/gnews/33/README.md)
  ` NFSC News`
 
-### [中共疫苗导致的政治、军事、贸易、经济和金融危机将席卷全球](/content/gnews/29/README.md)
+### [中共疫苗导致的政治、军事、贸易、经济和金融危机将席卷全球](/content/gnews/34/README.md)
  ` G-NEWS TAIWAN`
 
-### [2.06大直播后记：共产党对美蓝金黄](/content/gnews/30/README.md)
- ` 雅典娜GNotes`
-
-### [冬奥会 “一鸽都不能少” 引台民众忧虑](/content/gnews/31/README.md)
- ` NFSC News`
-
-### [共产主义本质是奴隶主制度](/content/gnews/32/README.md)
- ` G-NEWS TAIWAN`
-
-### [有声|中共统治下的人间惨剧](/content/gnews/33/README.md)
- ` MOSREC`
-
-### [2.06大直播后记：邪恶将被消灭](/content/gnews/34/README.md)
- ` 雅典娜GNotes`
-
-### [习近平冬奥会欢迎宴未见普京](/content/gnews/35/README.md)
+### [冬奥会 “一鸽都不能少” 引台民众忧虑](/content/gnews/35/README.md)
  ` NFSC News`
 
 ### [疫苗接种对P53此抑制肿瘤主要基因的危害](/content/gnews/36/README.md)

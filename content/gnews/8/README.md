@@ -2,37 +2,42 @@
 ---
 
 
-## 有声|揭秘中共间谍单伟健的前世今生
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1971364/)
+## 今日盖特大V推荐 — Joe Rogan（乔·罗根）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1971442/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-据2月5日盖特消息，现居香港的经济学家和风险资本家单伟健，其真实身份是中共高级间谍，其儿子单博也是秘密间谍。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-672-e1644256706838.png)
+盖特链接：[https://gettr.com/user/Joerogan](https://gettr.com/user/Joerogan)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-673-e1644256753167.png)图片来源：网络
+**乔·罗根自述：**
 
-郭文贵先生在GTV直播中曾透露，中共外交部是国际公认的国家情报机构。早期由负责情报的周恩来和李克农担任正副部长。单伟建父亲是早期外交人员，故单出身外交世家。作为中共文革后第一批出国留学人员，单伟健接受中共组织授命，秘密执行了各项渗透任务。
+单口喜剧/综合格斗爱好者/迷幻冒险家
 
-2008年，中共启动“千人计划”，单伟健是发起人之一。此项计划的本质就是盗窃西方发达国家的科技军事情报，为中共统治者服务。
+《乔·罗根体验》主持人
 
-2017年，单伟健开始操控西方媒体，造谣污蔑郭文贵先生，损害其名誉；插手美国司法体系，试图剥夺郭先生家族在美资产。
+#FreakParty
 
-这些对郭先生及新中国联邦的一系列攻击行动，背后的主谋是中共王岐山，具体执行秘密行动负责人，就是中共海外高级间谍单伟建。他们不仅针对郭先生本人，而是要把新中国联邦，所有华人尤其海外华人推向深渊。
+[http://www.facebook.com/JOEROGAN](https://www.facebook.com/JOEROGAN)
 
-2021年，单伟健指使杨贝贝以采访郭先生为名，编辑裁剪虚假视频，歪曲事实，欺骗西方媒体与民众，煽动引导排华情绪，企图引发第二次‘印尼排华大屠杀’事件。 足见单伟健及背后的中共独裁政权，与新中国联邦及中国人民为敌，不惜使出昏庸烂招，以致狗急跳墙的本性。
+**乔·罗根简介：**
 
-文字版原文：[揭秘中共间谍单伟健的前世今生](https://gnews.org/zh-hans/1966610/)
+约瑟夫·詹姆斯·罗根（Joseph James Rogan，1967年8月11日－）是美国喜剧演员，播客主持人和综合格斗解说员。他还做过电视节目主持人和演员。
 
-音频处理：Fei797
-发稿：Fei797
+1988年8月罗根在波士顿地区开始了喜剧生涯。1994年他搬到洛杉矶，与迪士尼签署了独家发展协议，参演了Hardball和NewsRadio等多个电视节目。1997年，他开始担任终极格斗锦标（UFC）的采访人和解说员。 2000年罗根发行了他的第一部喜剧特别节目。 2001年，他成为Fear Factor节目的主持人后，便暂停了喜剧事业，直到2006年节目结束后又开始表演脱口秀。 2009年，罗根开播了他的播客《乔·罗根体验》，这档节目给他带来了名气、财富和播客超级巨星的地位。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+乔·罗根网站：[https://www.joerogan.com/](https://www.joerogan.com/)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+编撰：洛杉矶盘古农场 — 郭友(文苏)
+
+校审：洛杉矶盘古农场 — 心照
+
+发布：洛杉矶盘古农场 — 子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

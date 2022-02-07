@@ -2,31 +2,36 @@
 ---
 
 
-## 七哥谈隔空取钱（2022-02-02摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1971485/)
+## 北京冬奥会彻底展现中共成孤家寡人穷途末路
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1971592/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+新华网2022年2月5日报道：综合消息：弘扬奥林匹克精神，激励一起向未来 — 多国政界人士盛赞北京冬奥会开幕式
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-697-e1644259008567.png)图片来源：网络![](https://assets.gnews.org/wp-content/uploads/2022/02/image-698.png)
+**短评：**
 
-来源：郭先生2022-02-02直播10：08：43摘录
+2008年8月8日晚上8点整，北京夏季奥运会开幕，参赛国家及地区204个，参赛运动员11438人，共有60000多名运动员、教练员和官员参加。美国、加拿大、英国、法国、德国、葡萄牙、西班牙、澳大利亚、日本等世界文明强国均有参加。时隔14年后，北京冬奥会的参与国家和地区就锐减到了33个。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-699.png)
+文章标题口口声声说的多国政界人士盛赞，可文章从头到尾都只有“委内瑞拉总统、老挝国会副主席、巴西劳工党领袖、古巴外长、玻利维亚体育部副部长、哈萨克斯坦文化和信息部前部长、伊拉克共产党总书记和塔吉克斯坦人民民主党副主席”，其中很多还不是国家元首。这足足可见中共已是穷途末路孤家寡人。如果换做2008年的北京奥运会，文章提到的盛赞政界人士会是美国总统、加拿大总统、英国女王、法国总统、德国总统、葡萄牙总统、西班牙总统、澳大利亚总理、日本首相……中共在这次2022北京冬奥会不想提这些文明强国的政要首脑吗？为什么只提了委内瑞拉等那几个小国的外长、副部长和前部长呢？因为2022年北京冬奥会的参与国家和地区只有屈指可数的那么几个，而且还都是在中共的重金收买之下才参加的，花费了中国老百姓昂贵的血汗钱。中共硬生生不要脸地把属于全世界的奥运盛会扮成了自己家的流氓Party，所以也就没人和中共玩了。
 
-不用衡量、没有定价的规则的贸易下的交易是人类最原始最高境界。谁不服？买天买地，中间买飞机。而且即使去你干了啥事儿，只要你别杀人、别害人，只要双方同意，就必须是双方同意的，任何事是双方同意的情况下，无影无踪，踏水无痕，隔空取钱，七哥一个人取钱多不好玩呀，所有的战友们都能和我一起隔空取钱。
+北京冬奥会如此冷清的原因又是什么呢？为什么世界文明强国都不参加呢？可以说几乎没什么国家和地区参加了。当然是因为中共这两年在全球释放病毒与毒疫苗杀人放火谋财害命，妄想以此奴役全球剥削全世界。全世界人类现在都已经痛醒，世界现在已经不是不和中共一起玩那么简单；世界现在正联合起来，与郭文贵先生为代表的新中国联邦爆料革命一起，要中共的王八老命。魔鬼中共，你完蛋了；穷途末路，下地狱去吧。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+文章观点仅代表作者，与Gnews 平台无关
 
-**关注我们**
+新闻链接：[https://ms.mbd.baidu.com/r/AWcEu6O6IM?f=cp&u=934ba1215eac0c55](https://ms.mbd.baidu.com/r/AWcEu6O6IM?f=cp&amp;u=934ba1215eac0c55)
 
-Discord 账号
+素材：洛杉矶盘古农场 — 归去来兮
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+评论：洛杉矶盘古农场 — 归去来兮
 
-Gettr 账号
+编审：洛杉矶盘古农场 — 心照
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+发布：洛杉矶盘古农场 — 子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
