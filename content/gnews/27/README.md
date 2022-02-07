@@ -2,37 +2,37 @@
 ---
 
 
-## 习近平冬奥会欢迎宴未见普京
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1971049/)
+## 2.06大直播后记：共产党对美蓝金黄
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1971106/)
 
-作者：日本方舟农场 – Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月5日，习近平和彭丽媛用中国老百姓的税金，为参加中共冬奥会的外国来宾举行欢迎会。中共并未公开参加欢迎会的嘉宾明档。从中共后来公布的视频资料中，看不到本次中共冬奥会最重磅来宾，俄罗斯总统普京的身影。
+整理：雅典娜速记组
+编辑：Mohegayer K. Simon
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-2.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/16-3.png)
 
-墙内自媒体爆出，普京早在2月4日跟习签署15个协议，并宛如被隔离一般的参加冬奥会开幕式后，于当晚11点火速了中共国。
 
-在2月4日的大直播中，郭先生爆料称，普京团队抵京后就有16人感染了中共病毒，其下榻的酒店内有3人死亡，这让普京对中共非常恼怒。而普京未在欢迎宴露面，也间接验证了这个消息。
 
-参考链接：
-1.[https://www.gettr.com/post/pssbvk4709](https://www.gettr.com/post/pssbvk4709)
-2.[中俄签署一系列合作文件](http://politics.people.com.cn/n1/2022/0204/c1001-32345503.html)
-3.[https://gettr.com/post/psp8nmfc64](https://gettr.com/post/psp8nmfc64)
+图片来源：墨尔本雅典娜农场设计组614
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-总编：Jack Li文阳
-编辑：静言
-校正/发稿：谐趣园
+当时中共已经从对俄关系转到了对美关系，中国知道，如果中国经济要好，国家要强大，共产党要活下去，必须在美国下手。所以就派人在美国潜伏。周恩来的一个跟美国乒乓球外交叫中美大学生互换文化那个项目。还跟美国换100个女学生，美国给咱派了100个学生，咱们来的几乎都是学生，80%是女学生，好多都是我认识的，我山东老家的一个女学生，现在在美国政坛还极为活跃。到美国以后，所有人只能嫁给美国白人，嫁给谁都党中央说了算，而且在美国都生了孩子，现在已经叫做香蕉，叫做华二代华三代。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+从那个时候，你从山茂昭，你从蒲安臣，你从史密斯，你从罗斯福，你从整个福布斯到后来的这个费正清中美关系。包括你看还有到后来的基辛格。就是中美之间，是真的是安全，就是生死与共。它有天然的利益和安全上的文化上的相互补充的。
+
+中美之间经济要合作，是天下最棒。中美人民没有任何历史性的冲突。我们文化是互补。但是今天你看到美国上，你看，我们来到美国，从西到夏威夷，到了阿拉斯加。过去的中国是登陆美国的犹他州，蒲安臣的条约，第一个允许欢迎中国人到美国来移民。大清政府，当时，这个大清政府觉得很奇怪，你知道我这个老百姓都去美国干嘛去，但是大清政府我还不懂呢。美国人把中国人当神一样。真的觉得是天上的神，结果中国人来了很多是福建的。在犹他州修路都是农民的，来到很多不是知识分子，几十万人呢，死在了这个美国的修1号公路和犹他州建设，这就是华人登陆美国的原因。
+
+那么今天你在看美国从东部到西部的时候，犹他州的华人登陆，蒲安臣的欢迎中国人签证，到今天，和到之后，美国帮助中国人建立北京大学和医院等等。就是因为中国人在国际的宗教上，信仰上自由度上对人的尊敬上，特别是教育上彻底输了。而美国人在这方面是有，在中美之间经济上忽高忽低。那么现在我们看到，在美国的所有的华尔街好莱坞，大家能看到好莱坞已经把中国的所有文化彻彻底替代。饮食文化麦当劳啊星巴克咖啡把中国彻底干掉。至于飞机大炮高科技啊，中国在边儿都沾不着，然后金融上美国几乎是有绝对的话语权，中国就没了。
+
+资料来源：郭先生GTV、盖特直播
+
+发布：星谕
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

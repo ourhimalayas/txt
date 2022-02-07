@@ -2,10 +2,10 @@
 ---
 
 
-## 北京冬奥委会闭幕式是大话题
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1971044/)
+## 共产主义本质是奴隶主制度
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1971088/)
 
-台灣 寶島農場
+台灣寶島農場
 
  
 

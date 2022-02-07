@@ -2,40 +2,38 @@
 ---
 
 
-## 新中国联邦2022年的工作重点
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1970994/)
+## 沙利文就俄罗斯可能入侵乌克兰发出警告
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1971010/)
 
-作者：纽约香草山农场 – 文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月6日，郭文贵先生在大直播中强调，在2022年，新中国联邦建设的重点工作：
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-98.jpg)
-首先，不开展任何新项目，把现有项目完成好。过去两年，因爆料革命需要发展起来的项目，今年要做到影响无限大，避免项目多到烂，以及避免无限扩张而导致灾难。
+翻译：文舞两道
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-25.png)图片来源：[https://www3.nhk.or.jp/](https://www3.nhk.or.jp/)
+**摘要：**
 
-第二，要让更多中共国内的人参与爆料革命。除了加大直播等宣传力度，还要让中共国内的军界、情报界、企业界、音乐界等人士，参与爆料革命，得到喜币、躺平币。
+国家安全顾问沙利文就乌克兰局势表示，俄罗斯总统普京即使在北京奥运会期间也有可能进行军事入侵，同时警告中国将为此付出代价。
 
-第三，做好G-EDU，中国人未来的希望是教育。会提供大量的币，吸引原新东方教育的中国老师加入GEDU，能够得到原来1.5倍工资。
+日本NHK新闻2022年2月7日报道，美国国家安全顾问沙利文就乌克兰局势表示，俄罗斯总统普京即使在北京奥运会期间也有可能进行军事入侵，同时寻求外交途径的解决方案。
 
-第四，继续以歌灭共，唱尽共产党的歌，让共产党无歌可唱。
+美国国家安全顾问沙利文周三（6日）在白宫接受美国广播公司电视台（ABC）采访时说，“普京总统可能已经明确下达了对乌克兰发动攻击的命令，普京总统已做好随时向乌克兰派遣军队的准备”。沙利文还说，“我们既要做好奥运会结束前俄罗斯采取军事行动制造突发事件的准备，也要为奥运会后可能出现的军事行动做好准备”。
 
-最后，郭先生特别强调，中共病毒疫苗灾难改变世界，政治经济大重启势不可挡。新中国联邦最重要的目的就是灭共，最重要的价值就是阻止在灭共过程中发生排华。
+另一方面，沙利文表示，“与此同时，我们也明确发出寻求外交途径的解决方案”，并强调了以外交途径解决方案为首选目标的想法。
 
-参考链接：
-1) . [2022年3重点（2月6日大直播）](https://gettr.com/post/pswfhk6911)
-2) . [文贵大直播要点（2022年2月6日）](https://gnews.org/zh-hans/1966866/)
+此外，中共国国家主席习近平在北京奥运会开幕式期间会见了普京总统，并表态支持俄罗斯在乌克兰局势上的立场。对此，沙利文警告说：“如果俄罗斯采取军事行动，如果中共表示支持，那么全世界都会看的清清楚楚，中共将为此付出代价”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+资料来源：[https://www3.nhk.or.jp/news/html/20220207/k10013470611000.html](https://www3.nhk.or.jp/news/html/20220207/k10013470611000.html)
 
-总编: 文真
-编辑：Ivy001
-校正/发稿：Fei797
+编辑：LILY
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+发布：面包飞上天
+
+20220207
+
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3-2.jpg)
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
