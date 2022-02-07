@@ -2,18 +2,12 @@
 ---
 
 
-## 西媒头条 — 第167期 – 西媒看天朝
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1970292/)
+## 疫苗杀手辉瑞CEO艾伯特·伯拉获2022年创世纪奖
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1970301/)
 
-制作：蚂蚁兄弟
+02/03/2022 也许是人类史上最荒诞的一幕！疫苗杀手辉瑞CEO艾伯特·伯拉被评选为2022年创世纪奖得主。
 
-**从西班牙语外界媒体读天朝，多一个视角，多一份辨别真伪的信息。**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/xm220207.002.jpeg)
-
-发稿：信心的选择
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH..jpeg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
