@@ -2,22 +2,23 @@
 ---
 
 
-## 有声|美国就中共强迫劳动行为实行企业ESG检验
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1967444/)
+## 有声|土耳其单日奥密克戎确诊病例再创新高
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1967487/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月3日，据当地媒体消息显示，美国联邦政府即将根据一项旨在阻止中共强迫劳动的法案，要求当地公司对其各自的全球供应链进行更加严格的审查。
+配音：香草山教育部 – 百香果
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+当地时间2月2日，据相关媒体报道，土耳其政府当天通报了超过11万起单日中共病毒新增确诊病例，这一数字再次刷新了当地自疫情以来的单日确诊峰值。此外，当地当天的新增中共病毒死亡患者达217人。
 
-资料显示，长期以来，中共国新疆地区的维吾尔和其他少数民族的民众一直被中共政府胁迫在工厂、农场和矿场为中共国的各行各业提供服务，这当中包括服装公司、食品品牌、太阳能电池板制造商、电动汽车制造商和科技公司供应商等。
+土耳其卫生部长克扎透露，当地几乎所有的确诊病例都是由于奥密克戎变种毒株引起的。
 
-对此，美国国土安全部正在寻求一项最佳做法，得以让那些严重依赖中共国提供原材料、部分成品和全成品的美国公司建立更加透明和完善的问责制。据悉，国土安全部已经开始要求海关提供关于中共国进口商品的溯源地和核查标准，以便确认这些商品是否涉及发生在中共国新疆区的强迫劳动行为。
+值得注意的是，18岁以上的土耳其民众完全接种中共病毒疫苗的比例超过84.49%，另有高达92.56%的民众已经接种了一剂中共病毒疫苗，更有超过两千五百万的土耳其人接种了第三剂疫苗加强针。
 
-文字版原文：[美国就中共强迫劳动行为实行企业ESG检验](https://gnews.org/zh-hans/1962992/)
+文字版原文：[土耳其单日奥密克戎确诊病例再创新高](https://gnews.org/zh-hans/1961303/)
 
-音频处理/发稿：Daxia
+音频处理：Fei797
+发稿：Fei797
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -25,9 +26,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
-
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

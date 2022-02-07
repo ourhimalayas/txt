@@ -15,92 +15,92 @@
 
 ---
 
-### [最新研究显示：封锁对疫情防治无效](/content/gnews/1/README.md)
+### [GoFundMe：钱进我口袋就是我说了算](/content/gnews/1/README.md)
  ` 澳喜特战旅Gnews`
 
-### [乔治·索罗斯谈中共国：在胡佛研究所发表的讲话](/content/gnews/2/README.md)
+### [江苏丰县八孩母亲事件是集体、全面的犯罪](/content/gnews/2/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2022年2月6日文贵先生直播摘要及音频—银河系农场](/content/gnews/3/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [如何通过保护血液质量阻击微血栓和刺突蛋白？](/content/gnews/4/README.md)
- ` 墨尔本雅典娜农场`
-
-### [乌克兰期待从德国得到更多的军备支持](/content/gnews/5/README.md)
- ` 澳喜特战旅Gnews`
-
-### [法律你我他：著名案例-贝德福德诉加拿大案](/content/gnews/6/README.md)
- ` 加拿大温哥华扬帆农场蓝枫法律`
-
-### [普京在边界部署了70%兵力作为筹码或实施入侵计划](/content/gnews/7/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [2/6/2022 文贵直播：冬奥会运动员就像被中共关在监狱，食物竟被吐唾沫；普京走了后谁会来参加闭幕式？](/content/gnews/8/README.md)
- ` 秘密翻译组-北美组`
-
-### [2022.2.6大直播后记：七哥是灭共的天选之人](/content/gnews/9/README.md)
- ` 墨尔本雅典娜农场`
-
-### [扬帆每日速递2022年2月6日版（1）](/content/gnews/10/README.md)
- ` 温哥华扬帆农场`
-
-### [文贵先生盖特精要2022/02/06](/content/gnews/11/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [共和党众议院迈克尔-麦考尔 抨击NBC在奥运会期间粉饰中共的种族灭绝](/content/gnews/12/README.md)
+### [经研究发现：封锁城市、学校和边境停课最多只能将新冠病毒死亡率降低 0.2%](/content/gnews/3/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [全球疫情更新（禁止使用伊维菌素令死亡风险增十倍）](/content/gnews/13/README.md)
+### [最新研究显示：封锁对疫情防治无效](/content/gnews/4/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [乔治·索罗斯谈中共国：在胡佛研究所发表的讲话](/content/gnews/5/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [2022年2月6日文贵先生直播摘要及音频—银河系农场](/content/gnews/6/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [如何通过保护血液质量阻击微血栓和刺突蛋白？](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [“对不起，我们失职了”——丹麦报纸为没有质疑政府的新冠虚假宣传而道歉](/content/gnews/14/README.md)
- ` 温哥华圆成农场🇨🇦`
+### [乌克兰期待从德国得到更多的军备支持](/content/gnews/8/README.md)
+ ` 澳喜特战旅Gnews`
 
-### [文贵先生直播重点大纲2022/02/06](/content/gnews/15/README.md)
+### [法律你我他：著名案例-贝德福德诉加拿大案](/content/gnews/9/README.md)
+ ` 加拿大温哥华扬帆农场蓝枫法律`
+
+### [普京在边界部署了70%兵力作为筹码或实施入侵计划](/content/gnews/10/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [2/6/2022 文贵直播：冬奥会运动员就像被中共关在监狱，食物竟被吐唾沫；普京走了后谁会来参加闭幕式？](/content/gnews/11/README.md)
+ ` 秘密翻译组-北美组`
+
+### [2022.2.6大直播后记：七哥是灭共的天选之人](/content/gnews/12/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [扬帆每日速递2022年2月6日版（1）](/content/gnews/13/README.md)
+ ` 温哥华扬帆农场`
+
+### [文贵先生盖特精要2022/02/06](/content/gnews/14/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|母爱](/content/gnews/16/README.md)
- ` MOSREC`
+### [共和党众议院迈克尔-麦考尔 抨击NBC在奥运会期间粉饰中共的种族灭绝](/content/gnews/15/README.md)
+ ` 喜马拉雅农场新西兰站`
 
-### [2.6.22大直播后记：无知的代价](/content/gnews/17/README.md)
+### [全球疫情更新（禁止使用伊维菌素令死亡风险增十倍）](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2月6日文贵大直播摘要（图片）](/content/gnews/18/README.md)
+### [“对不起，我们失职了”——丹麦报纸为没有质疑政府的新冠虚假宣传而道歉](/content/gnews/17/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [文贵先生直播重点大纲2022/02/06](/content/gnews/18/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [有声|母爱](/content/gnews/19/README.md)
+ ` MOSREC`
+
+### [2.6.22大直播后记：无知的代价](/content/gnews/20/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [2月6日文贵大直播摘要（图片）](/content/gnews/21/README.md)
  ` 波士顿五月花农场`
 
-### [有声|土耳其单日奥密克戎确诊病例再创新高](/content/gnews/19/README.md)
+### [有声|土耳其单日奥密克戎确诊病例再创新高](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [北京种族灭绝奥运会](/content/gnews/20/README.md)
+### [北京种族灭绝奥运会](/content/gnews/23/README.md)
  ` 美国政要直译推`
 
-### [有声|商业利益集团正游说美国剥离对中共贸易](/content/gnews/21/README.md)
+### [有声|商业利益集团正游说美国剥离对中共贸易](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [有声|美国就中共强迫劳动行为实行企业ESG检验](/content/gnews/22/README.md)
+### [有声|美国就中共强迫劳动行为实行企业ESG检验](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [三个工作重心 | 新中国联邦力图阻止反华，团结人心，做好教育](/content/gnews/23/README.md)
+### [三个工作重心 | 新中国联邦力图阻止反华，团结人心，做好教育](/content/gnews/26/README.md)
  ` YALUN 亚伦`
 
-### [有声|文贵大直播再次预警 中共解放军准备侵台](/content/gnews/24/README.md)
+### [有声|文贵大直播再次预警 中共解放军准备侵台](/content/gnews/27/README.md)
  ` MOSREC`
 
-### [美国总统顾问表示，对俄罗斯的新制裁将影响中（共）国经济](/content/gnews/25/README.md)
+### [美国总统顾问表示，对俄罗斯的新制裁将影响中（共）国经济](/content/gnews/28/README.md)
  ` 纽约香草山MOS02`
 
-### [有声|日本国会通过关于中共人权的决议](/content/gnews/26/README.md)
- ` MOSREC`
-
-### [有声|解析中共国虚假的进出口贸易数据](/content/gnews/27/README.md)
- ` MOSREC`
-
-### [2022年2月6日大直播速记精萃](/content/gnews/28/README.md)
+### [2022年2月6日大直播速记精萃](/content/gnews/29/README.md)
  ` 雅典娜GNotes`
-
-### [有声|澳洲政府要求各大学撤销与中共进行共同研究计划](/content/gnews/29/README.md)
- ` MOSREC`
 
 ### [战争行为：中共病毒疫苗导致美国军人癌症发病率至少翻三倍](/content/gnews/30/README.md)
  ` 波士顿五月花农场`
