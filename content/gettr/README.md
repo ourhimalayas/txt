@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/7/2022 2:12 AM (UTC)`
+
+2/6/2022 Miles Guo: The all-weather strategic partnership is essentially forming alliances. Money is the key for the CCP to maintain its relationship with Russia. Although Russia’s annual GDP is only $1 trillion, it signed gas agreements with the CCP with a total deal value of over $1 trillion. Why did Putin go back to Russia without signing the deal with the CCP to designate the RMB as Russia’s legal tender?<br/><br/>2/6/2022 文贵直播：中共全天候战略伙伴的本质是结盟；维持中俄关系全靠钱，只有1万亿美元GDP的俄罗斯从中共就签了总价值1万多亿的合同；普京为何不跟中共签把人民币作为法币的协议就回去了呢？<br/>
+![img](https://media.gettr.com/group50/getter/2022/02/07/02/5e5f3d95-0210-9798-d2d7-2a30a9dd378b/out.jpg)
+
+---
+
 `@miles 2/6/2022 11:17 PM (UTC)`
 
 2/6/2022 Miles Guo: It was as if the athletes attending the Winter Olympics were thrown into jail by the CCP, and their food was spat on before being served. After Putin left, who will attend the closing ceremony of the Winter Olympics? The fellow fighters will make those who collude with the CCP dare not come to Communist China for the rest of their lives. I will make sure that the closing ceremony of the CCP’s Winter Olympics can never end.<br/><br/>2/6/2022 文贵直播：冬奥会运动员就像被中共关在监狱，食物竟被吐唾沫；普京走了后谁会来参加闭幕式？战友会让跟中共勾兑的人一辈子不敢来中共国；文贵要让中共的闭幕会永远无法闭幕<br/>
@@ -148,12 +155,6 @@ This is the BIG ONE I previewed on @WarRoom a little earlier regarding the Covid
 
 2022年2月4日 文贵大直播：冬奥会媒体中心与世界冲突；灭共的雪轰轰烈烈漫山遍野；美国世界经济状况摇摇欲坠；HPay数字货币市场谁主沉浮
 ![img](https://media.gettr.com/group3/origin/2022/02/04/12/a80a61f2-2c1b-4432-3875-889d35f59eb9/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 2/4/2022 11:59 AM (UTC)`
-
- 2月4号：尊敬的战友们好。七哥正在GTV直播，北京冬奥会出大事啦…… <br/><br/>G-TV精彩直播与您分享: <br/>https://gtv.org/broadcast/watch/61fd129696ba5d73e0c27968
 
 ---
 
