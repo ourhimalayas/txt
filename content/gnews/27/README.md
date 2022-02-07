@@ -2,27 +2,37 @@
 ---
 
 
-## 日本计划将部分液化天然气转移至欧洲
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1971043/)
+## 习近平冬奥会欢迎宴未见普京
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1971049/)
 
-**撰稿：日本东京方舟农场  海星**
+作者：日本方舟农场 – Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月5日，习近平和彭丽媛用中国老百姓的税金，为参加中共冬奥会的外国来宾举行欢迎会。中共并未公开参加欢迎会的嘉宾明档。从中共后来公布的视频资料中，看不到本次中共冬奥会最重磅来宾，俄罗斯总统普京的身影。
 
-据《NHK国际新闻》2月4日报导，日本政府计划将其进口的部分液化天然气转移到欧洲，防止俄罗斯中断对欧洲的天然气供应。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-97.jpg)（图片来源：日经亚洲）
-该报导指出，由于欧洲一直从俄罗斯进口液化天然气，一旦对该国实施制裁，可能会遭到其报复，中断天然气的供应，影响发电。因此，美国请求日本将其进口的部分液化天然气转移至欧洲。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-2.jpeg)
 
-该报导表示，日本政府正在仔细研究美国提出的请求，而且该国的公用事业公司一直试图获得更多的液化天然气，为今年冬天可能出现的需求增加做准备。
+墙内自媒体爆出，普京早在2月4日跟习签署15个协议，并宛如被隔离一般的参加冬奥会开幕式后，于当晚11点火速了中共国。
 
-据悉，俄罗斯在乌克兰边境聚集了12.7万名士兵，随时准备入侵乌克兰。美国及欧盟各国相继表示，如果俄罗斯入侵乌克兰，将对其实施制裁。
+在2月4日的大直播中，郭先生爆料称，普京团队抵京后就有16人感染了中共病毒，其下榻的酒店内有3人死亡，这让普京对中共非常恼怒。而普京未在欢迎宴露面，也间接验证了这个消息。
 
 参考链接：
-1.[https://www3.nhk.or.jp/nhkworld/en/news/20220204\_15/](https://www3.nhk.or.jp/nhkworld/en/news/20220204_15/)
-2.[https://gnews.org/zh-hans/1936322/](https://gnews.org/zh-hans/1936322/)
+1.[https://www.gettr.com/post/pssbvk4709](https://www.gettr.com/post/pssbvk4709)
+2.[中俄签署一系列合作文件](http://politics.people.com.cn/n1/2022/0204/c1001-32345503.html)
+3.[https://gettr.com/post/psp8nmfc64](https://gettr.com/post/psp8nmfc64)
 
-素材采编：海星
-编辑：老孙
-发布：爱放飞
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
+总编：Jack Li文阳
+编辑：静言
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

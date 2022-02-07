@@ -2,8 +2,8 @@
 ---
 
 
-## 共产主义本质是奴隶主制度
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1971088/)
+## 中共疫苗导致的政治、军事、贸易、经济和金融危机将席卷全球
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1971125/)
 
 台灣寶島農場
 

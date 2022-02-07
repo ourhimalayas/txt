@@ -2,28 +2,29 @@
 ---
 
 
-## 著名记者劳拉·洛根离开推特脸书 中意盖特
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1971260/)
+## 有声|揭秘中共间谍单伟健的前世今生
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1971364/)
 
-作者：纽约香草山农场 007
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月3日，著名女记者劳拉·洛根宣布，将离开推特、脸书及Instagram等社交媒体，留在盖特等有言论自由的平台。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-07-上午11.18.48.png)
-劳拉曾经常年在阿富汗、伊拉克等战场前线报道，屡获殊荣，包括3次获得艾美奖，9次获得艾美奖提名等等。去年11月底，她因把福奇比做臭名昭著的纳粹医生，一度引发热议。
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+据2月5日盖特消息，现居香港的经济学家和风险资本家单伟健，其真实身份是中共高级间谍，其儿子单博也是秘密间谍。
 
-劳拉表示，凭着良知，她不能为那些利用剥削儿童来谋利的平台作贡献。近年来，大型科技公司因涉嫌将儿童的露骨内容平台化，并成为性交易的温床而引起争议。那些平台一边严格审查卡车司机与疫苗受害者等人的自由言论，一边却在推行这种性堕落的意识形态，而推广和美化人类最糟糕无底线的行为是错误的。
+郭文贵先生在GTV直播中曾透露，中共外交部是国际公认的国家情报机构。早期由负责情报的周恩来和李克农担任正副部长。单伟建父亲是早期外交人员，故单出身外交世家。作为中共文革后第一批出国留学人员，单伟健接受中共组织授命，秘密执行了各项渗透任务。
 
-劳拉的选择，标示着一个有正义感的媒体人，在纷繁复杂的世界里，基于人性最基本的要求，即言论自由，尊重人权等，而做出的价值判断，而盖特正是以此为其理念的崭新媒体平台。
+2008年，中共启动“千人计划”，单伟健是发起人之一。此项计划的本质就是盗窃西方发达国家的科技军事情报，为中共统治者服务。
 
-参考链接：
-1）[https://gettr.com/post/psb7ot75d1](https://gettr.com/post/psb7ot75d1)
-2）[Award-Winning Journalist Lara Logan Quits Twitter, Facebook, Instagram: ‘Cannot’ Stay ‘In Good Conscience’](https://www.dailywire.com/news/award-winning-journalist-lara-logan-quits-twitter-facebook-instagram-cannot-stay-in-good-conscience)
+2017年，单伟健开始操控西方媒体，造谣污蔑郭文贵先生，损害其名誉；插手美国司法体系，试图剥夺郭先生家族在美资产。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+这些对郭先生及新中国联邦的一系列攻击行动，背后的主谋是中共王岐山，具体执行秘密行动负责人，就是中共海外高级间谍单伟建。他们不仅针对郭先生本人，而是要把新中国联邦，所有华人尤其海外华人推向深渊。
 
-总编：Ivy001
-编辑：静言
-校正/发稿：呼吸的雾霾（文小呼吸）
+2021年，单伟健指使杨贝贝以采访郭先生为名，编辑裁剪虚假视频，歪曲事实，欺骗西方媒体与民众，煽动引导排华情绪，企图引发第二次‘印尼排华大屠杀’事件。 足见单伟健及背后的中共独裁政权，与新中国联邦及中国人民为敌，不惜使出昏庸烂招，以致狗急跳墙的本性。
+
+文字版原文：[揭秘中共间谍单伟健的前世今生](https://gnews.org/zh-hans/1966610/)
+
+音频处理：Fei797
+发稿：Fei797
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

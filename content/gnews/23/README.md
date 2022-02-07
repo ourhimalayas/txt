@@ -2,39 +2,39 @@
 ---
 
 
-## 2.06大直播后记：邪恶将被消灭
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1971054/)
+## 冬奥会 “一鸽都不能少” 引台民众忧虑
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1971104/)
 
-整理：雅典娜速记组
-编辑：Mohegayer K. Simon
+作者：纽约香草山教育部 Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月4日，北京冬奥开幕式上，《闪亮的雪花》节目中，有一段剧情描写掉队的小鸽子被拉回队伍。 “一鸽都不能少”这一幕被普遍认为在映射台湾回归大陆。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/16-3.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-1.jpeg)
 
+台湾《自由时报》称，中共对外所呈现的每个符码，都是经过精心策划的。而中共显露出来这么重要的信息，却少有台湾人关心。台湾民众对中共野心的认知如此忽视，实在令人唏嘘。
 
+如果仔细剖析“一鸽都不能少”的含义，不难发现谁是那只掉队的鸽子，谁又是把掉队的鸽子抓回来的那只鸽。冬奥会这一表演透露了中共准备动手抓鸽子的心态。按着中共的本性，台湾的未来，可说凶险万分。
 
-图片来源：墨尔本雅典娜农场设计组614
+郭文贵先生在2月6日大直播中，回答战友提问时指出，中共已近完结，但其灭亡前对台动武的可能性越来越高，达百分之90以上。冬奥会开幕式上的表演，实际是舆论导向宣传而已。
 
+参考链接： 
+1. [冬奧開幕「一鴿都不能少」影射台灣？他嘆：我們還在吵總統論文](https://news.ltn.com.tw/news/politics/breakingnews/3820911)
+2. [昨夜鸟巢“一鸽都不能少”，代表台湾？](https://taiwan.huanqiu.com/article/46gqXG7slnn)
+3. [“一鸽都不能少”传到台湾，绿媒的反应酸中有忧](https://3g.163.com/dy/article/GVH45ITO0514R9OJ.html?clickfrom=channel2018_news_index_newslist#child=index&amp;offset=2)
 
-最后要看到就是加拿大的土豆大卡车事件，还有全世界的农民抗议事件等，这七哥在一年前，16个月前的时候就说过。疫苗次生灾难、疫苗造成的政治危机、军事危机、技术危机、贸易危机、经济金融危机会席卷全球，而且是从今年的5月份开始。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-例如七哥是从2020年1、2月份就说过。我不是神仙，我不能预测。就是我知道共产党的计划和计划的具体细节和基本掌握的情报。这是我得出的结果。所以说，战友们当看到美国经济战的时候，你们要想一想。我们未来到底该怎么来面对着这2022的水虎年啊？我们每个人都面临这样的威胁。
+总编：Jack Li文阳
+编辑：静言
+校正/发稿：谐趣园
 
-当你有病，你会孤独的在一个房子里边，你多需要一个温柔的手来帮帮你，多需要有个热乎乎的饭。可是我们，你知道每个人面对威胁的时候你还要搞钱吗，搞金融搞经济吗？说到这时候，你觉得美国经济会好？世界经济会好？能够好吗？
-
-所以，最后的结论：经济的崩塌，人类面对的健康恐惧的威胁，世界的整个贸易供应量大崩溃，最后都会找共产党算账。我告诉你们，你可以看到冬奥会开幕式上，你会看到的未来，比卢奥斯库还要惨。就是整个台上习和他旁边这些人， 哪个人都会比他们惨，你们没有感觉，七哥很有感觉。
-
-就是内部那些参加冬奥会的，现在正在服务的所谓义工们，那些恨那些恼怒，那些没办法。绑在手上的脚镣，强迫着做义工。我真感觉大地在颤抖，苍天在愤怒，魔鬼在呼啸！人类到了一个大重启的时侯。邪恶必将被消灭！
-
-资料来源：郭先生GTV、盖特直播
-
-发布：星谕
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
