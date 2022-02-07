@@ -2,26 +2,55 @@
 ---
 
 
-## 有声|中美初次建交，文明穿越百年
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1972361/)
+## Antifa激进分子开车撞伤温尼伯自由车队抗议者
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1972425/)
 
-配音：香草山巡管部– 文凯琳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月4日文贵大直播中，郭先生回顾中美两国人民的友谊之路时，告诉同胞，中美初次通商始于大清年间。彼时的美国是一个刚刚独立的国家，为了区别于大英帝国，亟需在世界上建立外交关系与贸易。美国人乘坐“中国皇后号”远航，第一个远东外交目的地就是中国广州。他们为中国带去了西洋参和白银，从中国带回了茶叶、瓷器及火药。经此次贸易，中美两国人民建立了深厚的友谊。中国人遵守规则，勤劳朴实；官员聪慧；中国食物丰富美味；尤其中国女性极为干净，眼神坚定。彼时中国的高度文明，吸引美国派驻中国的大使，蒲安臣是美国派去中国的大使，设立驻中国大使馆。后来，蒲安臣还代表中国大清政府参与大清外交事务，据此诞生了著名的美国游说文化。
+**编译: 真北007**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-761.png)图片来源：[Gateway Pubdit](https://www.thegatewaypundit.com/2022/02/update-man-rammed-car-winnipeg-freedom-convoy-protesters-antifa-activist/)
+来自GATEWAY PUNDIT二月七日的新闻报道:
 
-文字版原文：[中美初次建交，文明穿越百年](https://gnews.org/zh-hans/1966038/)
+上周六，在加拿大温尼伯市（Winnipeg），一辆汽车似乎故意撞上一辆卡车并碾过至少一名支持卡车自由运动的抗议者并撞伤其他几名抗议者，这是一次残酷的袭击。
 
-音频处理/发稿：Daxia
+但惊人的是，袭击的蒙面男子是一名激进的ANTIFA 活动分子，名叫戴夫·泽加拉克（Dave Zegarac）。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+袭击发生一小时后，戴夫在与警方进行了短暂的斗争后被捕并被拘留。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+据 Rebel News 报道，David Zegarac 是一名极左的 Antifa 活动家。他是来自温尼伯的 43 岁音乐家，自称是原住民、塞尔维亚和爱尔兰人混血 ，是加拿大朋克乐队 The Brat Attack、Dead Peasants Revolt、The Black Mass Brigade 和 Class War Kids 的主唱。
+
+来自REBEL NEWS 的SHEILA GUNN REID 女士的评论如下：
+
+“从任何可衡量的定义来看，这都是一种仇恨和恐怖行为，从这次袭击中可以直接看出贾斯汀·特鲁多和主流媒体对所谓“反疫苗者”的分裂言论。
+
+在过去的几个月里，特鲁多诋毁了任何公开反对 COVID 限制并支持自由车队的人。 特鲁多称他们为种族主义者和厌恶女性者，甚至声称他们“占用空间”并询问他们是否应该被“容忍”。
+
+而主流媒体也一直在现场照搬他的说法并点头表示同意，对这种疯子疑犯实施暴力行为默许。
+
+感谢上帝，没有撞死人。
+
+然而，泽加拉克面临的所有指控都无异于危险驾驶。警方将这一事件视为普通的肇事逃逸，而不是出于仇恨动机的谋杀未遂。
+
+而且，当然主流媒体都保持沉默。他们宁愿谴责和平的卡车司机建立充气城堡并倡导恢复所有加拿大人的自由，也不愿报道这个故事。
+
+如果这是一个右翼分子驾驶他们的车参加 BLM 抗议活动怎么办？ 主流媒体都准备好了！
+
+他们会将此视为该国最大的故事，然后将通过动议谴责这种仇恨行为，政客们将急于制定新法律以反对偏见。
+
+羞耻！
+
+**注**：ANTIFA 由美国川普总统定义为恐怖组织。
+
+**原文链接：
+**[The Gateway Pundit: UPDATE: Man Who Rammed Car into Winnipeg Freedom Convoy Protesters is Antifa Activist David Zegarac](https://www.thegatewaypundit.com/2022/02/update-man-rammed-car-winnipeg-freedom-convoy-protesters-antifa-activist/)
+
+**编辑：LILY**
+
+**发布：MQ**
+
+20220207
+
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
