@@ -2,10 +2,10 @@
 ---
 
 
-## 民主党人推动与中共国的竞争
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1975114/)
+## 加拿大部分省份正在撤销疫苗强制令
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1975267/)
 
-02/01/2022 福克斯新闻报道：民主党人在“重建美好家园”法案以及投票立法失败后，转而推动法案以帮助美国面临来自中共国的经济和间谍威胁。
+02/05/2022 战斗室：加拿大部分省份迫于自由车队的压力，开始撤回疫苗强制令。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

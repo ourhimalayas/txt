@@ -2,92 +2,30 @@
 ---
 
 
-## 中日财经爆┃美国加强对中共出口管制 33家实体上榜
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1973444/)
+## 中日财经爆|美司法部指控海能达窃取摩托罗拉技术
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1973958/)
 
-撰稿：东京樱花团/asket
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-777.png)[**图片来源**](https://gbcode.rthk.hk/TuniS/news.rthk.hk/rthk/ch/component/k2/1621343-20211125.htm)
-美国商务部2月7日宣布，将33家中共实体列入“未经核实名单”(Unverified List)。这些实体获得美国产品，将必须接受更严格的出口管控。美国商务部发表的声明说，美国官员无法对清单中这些实体进行核查，以确定这些实体的“善意”(bona fides)，因此必须对这些公司从美国出口商那裡获取产品实施新的限制。
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-782.png)[图片来源](https://m.c114.com.cn/w3542-1116189.html)
+美国司法部周一（2月7日）表示，已对总部位于中共国深圳市的海能达通信股份有限公司提出刑事指控，指控该公司与摩托罗拉系统公司前员工合谋窃取摩托罗拉的数字移动无线电技术。
 
-被纳入出口管制清单的33家中国实体，大多数是电子企业、光学公司、涡轮叶片公司、大学的国家实验室和其他企业。包括中国航发南方工业有限公司（AECC South Industry Co., Ltd）、北京世维通科技公司（Beijing SWT Science）、济南邦德激光（Jinan Bodor CNC Machine）、湖南大学（Hunan University）等。
+在伊利诺伊州北区公布的一份隐去部分内容的起诉书中，美国政府指控海能达招聘摩托罗拉员工，窃取有关无线电、即“对讲机”的专有商业数据。
 
-1. AECC South Industry Co., Ltd.
+摩托罗拉执行副总裁兼总法律顾问Mark Hacker在一份声明中表示，对海能达的指控“突显了这家中共国公司的非法行为是精心策划、经过深思熟虑的”。
 
-2. Beijing SWT Science
+“我们将继续在世界各地的司法管辖区对海能达提起民事诉讼，以防止该公司连续侵权，并为摩托罗拉索赔数亿美元。”Hacker补充道。
 
-3. Beijing Zhonghehangxun Technology Co., Ltd.
+2020年2月，陪审团在摩托罗拉诉海能达的窃取商业机密和版权侵权案中对摩托罗拉做出了有利裁决，后者获赔7.46亿美元。芝加哥一个陪审团裁定，总部位于深圳的海能达利用摩托罗拉的机密文件和受版权保护的源代码在双向无线电通信市场上展开竞争。海能达曾是摩托罗拉的分销商，当时该公司对陪审团称，相关产品是自主开放的。
 
-4. China National Erzhong Group Deyang Wanhang Die Forging Co., Ltd.
-
-5. Chuzhou HKC Optoelectronics Technology Co., Ltd.
-
-6. Dongguan Durun Optical Technology Co., Ltd.
-
-7. Dongguan Huiqun Electronic Co., Ltd.
-
-8. Guangdong Guanghua Sci-Tech Co.
-
-9. Guangxi Intai Technology Co., Ltd.
-
-10. Guangzhou Hymson Laser Tehnology Co., Ltd.
-
-11. Harbin Xinguang Feitian
-
-12. Hefei Anxin Reed Precision Co., Ltd.
-
-13. Heshan Deren Electronic Technology Co., Ltd.
-
-14. Hubei Longchang Optical Co., Ltd.
-
-15. Hubei Sinophorus Electronic Materials Co., Ltd.
-
-16. Hunan University
-
-17. Jinan Bodor CNC Machine Co., Ltd.
-
-18. Jiutian Intelligent Equipment Co., Ltd.
-
-19. Kunshan Heng Rui Cheng Industrial Technology Co., Ltd.
-
-20. Shanghai Fansheng Optoelectronic Science & Technology Co., Ltd.
-
-21. Shanghai Micro Electronics Equipment (Group) Co., Ltd.
-
-22. Shuang Xiang (Fujian) Electronics
-
-23. Southern University of Science and Technology
-
-24. Suzhou Chaowei Jingna Optoelectric Co., Ltd.
-
-25. Suzhou Gyz Electronic Technology Co., Ltd.
-
-26. Suzhou Lylap Mould Technology Co., Ltd.
-
-27. Wuxi Biologics Co., Ltd.
-
-28. Wuxi Biologics (Shanghai) Co., Ltd.
-
-29. Wuxi Turbine Blade Co., Ltd.
-
-30. Yunnan Fs Optics Co., Ltd.
-
-31. Yunnan Tianhe Optoelectronic Co., Ltd.
-
-32. Zhengzhou Baiwai Intelligent Automation
-
-33. Zhuzhou CRRC Special Equipment Technology Co.
-
-截止目前，这份名单上的实体总数大约达到了175个。
-
-商务部负责出口执法的助理部长，马修‧阿克塞尔罗德（Matthew Axelrod）在声明中说：“通过及时完成最终用途核查，来核实外国当事方的合法性与可靠性，是我们出口管控制度的一项核心原则。”他表示，将33家中国实体加入“未经核实名单”，将协助美国出口商从事尽职调查并评估风险，并向中共政府发出信号，表明他们在安排最终用户核查方面予以配合的重要性。
-
-美国商务部要求，美国公司与纳入名单的实体进行交易，必须进行额外的尽职调查，包括提交更多的文件。按照限制措施，美国出口商若想与被列入名单的中国公司交易，必须获得许可证。同时，美方提醒被列入清单上的公司必须证明自己是合法的，并且愿意遵守美国法规才能继续接收货物。
-
-信息来源： [**美国加强对华出口管制**** 33家中国实体上榜**](https://www.ntdtv.com/b5/2022/02/08/a103342431.html)
+消息来源：[美司法部指控中国电信公司海能达 称其与前摩托罗拉员工合谋窃取技术](https://cn.reuters.com/article/usa-doj-accuses-hytera-0207-mon-idCNKBS2KD016?il=0)
 
 *编辑：东京樱花团/知了知了
 发布：东京樱花团/平安卿卿*
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+#  
+
+#  
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

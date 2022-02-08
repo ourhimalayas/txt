@@ -2,30 +2,29 @@
 ---
 
 
-## 川普前国家安全顾问指责习近平在南海进行“历史上最大规模的土地掠夺”
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1975239/)
+## 柳叶刀：研究人员警告Covid-19 疫苗可能会增加 HIV 感染的风险
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1975361/)
 
-撰稿：台湾宝岛农场 – 新中国联邦静
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-5.png)
-退休中将麦克马斯特(HR McMaster) 于 2017 年至 2018 年为川普政府工作，美东6日他在CBS新闻的采访呼吁中国进行一系列侵犯人权行为，包括逮捕被指控策划抗议北京奥运会的人；美国国务院最近的报告称，中国“非法声称对南海大部分地区拥有主权或某种形式的专属管辖权”。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-802.png)
-北京声称对那里的绝大多数海域拥有主权，而中国在该地区积极增加军事存在和增加演习，已经使那里的美国盟友以及美国国内的官员感到震惊和愤怒。与此同时，2022年冬奥会目前正在中国进行，美国、英国、澳大利亚、加拿大、丹麦、爱沙尼亚和立陶宛都以政府侵犯人权为由对奥运会进行了外交抵制。麦克马斯特说：中国正试图扩大其在南海的主张，并正在将该地区的岛屿“武器化”；现在他们正在给他们的一些海军海岸警卫队的舰艇涂上颜色，这样他们就可以真正宣称这是南中国海历史上最大的土地掠夺。 麦克马斯特说：因此，我认为，自由世界团结起来再次增强我们的信心并与这些极权主义政权沟通，他们无法以我们为代价实现其目标，这一点非常重要，当然，台湾可能是最危险的爆发点，我们也看到了他们在那里的侵略性。南海和自治台湾是中国最敏感的两个领土问题，都是美中关系紧张的频繁地区。 麦克马斯特列举了习近平领导下的中国政府有条不紊地打击个人自由的方式 : “中国在扩大和加强其对内部权力的排他性控制方面已经越来越咄咄逼人。你已经看到他们如何跨越经济部门，继续在新疆进行种族灭绝运动，在香港消灭人类自由，迫害记者，任何可能在奥运会期间批评中国政府的人都被恐吓或监禁。
+**翻译：日本东京方舟农场  JIHO**
 
-新闻连接：[Ex-Trump national security adviser accuses Xi Jinping of staging the ‘biggest land grab in history’ in the South China Sea as controversial Winter Olympics get underway in Beijing](https://www.dailymail.co.uk/news/article-10482697/Ex-Trump-adviser-accuses-Beijing-staging-biggest-land-grab-history-South-China-Sea.html)
+周一《柳叶刀》医学杂志上的一组研究人员警告说，目前正在开发的一些 Covid-19 中共病毒疫苗可能会增加感染 HIV 的风险，随着疫苗向世界各地易感人群推出，可能导致感染增加。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-78.png)图片来自福克斯新闻网
+根据福布斯2020年的一篇报导，研究人员警告说，十多年前研制艾滋病毒疫苗的努力有一个“警示故事”，其中一个有希望的候选疫苗实际上增加了一些男性感染病毒的风险。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-24.jpg)
+该疫苗利用一种被称为腺病毒 5 (Ad5) 的改良病毒作为载体，将一些 HIV 的遗传物质运送到体内。
 
-总编：飞虹
+该疫苗究竟如何增加 HIV 传播的风险目前尚不清楚，但美国国立卫生研究院召开的一次会议建议不要在 HIV 疫苗中进一步使用 Ad5 作为疫苗的载体（Anthony Fauci 博士是概述这一立场的论文的主要作者。)
 
-校正/发稿：浪迹天涯
+Ad5 被用作某些 Covid-19 疫苗的载体——《科学》杂志确定了四种此类候选疫苗，目前正在包括美国在内的世界各国进行临床试验，其中两类正在俄罗斯和巴基斯坦进行大规模的 3 期试验。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-5.png)
+研究人员强调，在开发和部署使用含该载体的疫苗之前，有必要了解 Ad5 在增加易感人群感染 HIV 风险方面可能发挥的作用。
+
+参考链接：
+[https://www.forbes.com/sites/roberthart/2020/10/20/researchers-warn-some-covid-19-vaccines-could-increase-risk-of-hiv-infection/?sh=1b19b1d33740](https://www.forbes.com/sites/roberthart/2020/10/20/researchers-warn-some-covid-19-vaccines-could-increase-risk-of-hiv-infection/?sh=1b19b1d33740)
+
+编辑：老孙
+发布：爱放飞
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

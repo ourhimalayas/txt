@@ -2,20 +2,27 @@
 ---
 
 
-## 七哥的三次阳痿（三）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1974971/)
+## 新年期间：大陆民众消费大幅下滑
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1975110/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+**撰稿：日本东京方舟农场 子辰**
 
-*发布：陶子*
+据大纪元2月8日报道，有大陆分析师提出警告，受疫情期间和旅行限令等影响，中共国内民众在新年假期期间的消费远不及疫情前，这种下滑趋势预示着未来经济将会更加糟糕。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-118.jpg)（图片来自大纪元）
+据中共文化旅游部公布的数字，在2月6日结束的7天新年假期中，中共国消费者的国内旅游出游为2.51亿人次，比去年减少2％，较2019年降低26.1％，旅游收入为约2892亿元（454亿美元），同比减少3.9％，只恢复到2019年的56.3％。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+另据交通部的统计，在民工返乡过年的高峰期间，乘坐主要交通工具的人数，同比增加了47.6%，但仍比2019年降低了64.6%。
+
+作为主要消费指标之一的电影票房也同比下降。据国家电影局2月7日发布的数据，1月31日除夕至2月6日正月初6，电影票房为60.35亿元人民币，少于2021年的78亿元人民币。观影人数比2021年下跌近30%。
+
+此外，据野村证券发布的一份报告中表示，尽管新年期间返乡人数同比上升了48%，但是电影票房及旅游收入的减少说明，这并没有变成更高的消费需求，反而可能是经济状况更加糟糕所造成。
+
+参考链接：
+[https://www.epochtimes.com/b5/22/2/8/n13562524.htm](https://www.epochtimes.com/b5/22/2/8/n13562524.htm)
+
+素材采编：子辰
+编辑：老孙
+发布：爱放飞
 
  
 
