@@ -15,98 +15,98 @@
 
 ---
 
-### [普京与马克龙会谈表示愿努力与欧美达成一致](/content/gnews/1/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [新疆集中营幸存者：NBC播放北京东奥会=支持种族灭绝](/content/gnews/2/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [数据显示COVID 疫苗使“癌症正像野火一样蔓延”](/content/gnews/3/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [FB再降5% 现在称之为元空间也无济于事](/content/gnews/4/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [战友实例分享离岸私人信托的设立（一）](/content/gnews/5/README.md)
- ` 喜马拉雅德国纽伦堡正义农场`
-
-### [新中国联邦将是美国经济崩盘后重建的受益者](/content/gnews/6/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [众议院通过了一项旨在让美国比中共国更具竞争力的法案](/content/gnews/7/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [美出生运动员朱易摔倒后在社交媒体上遭猛击](/content/gnews/8/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [基思·凯洛格将军：俄罗斯、中共、伊朗联手](/content/gnews/9/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中共实行极端审查企图以此快速达到全球主导地位](/content/gnews/10/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中国人权问题让冬奥会运动员陷入两难](/content/gnews/11/README.md)
+### [徐州丰县“铁链八孩女”事件三发通告，前后不一，漏洞百出](/content/gnews/1/README.md)
  ` 墨尔本雅典娜农场`
 
-### [班农先生：任何亲自到场的政府官员，都不是追求推动自由的](/content/gnews/12/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [美国发言人称我们的注意力不会从中共国侵犯人权行为上移开](/content/gnews/2/README.md)
+ ` 温哥华圆成农场🇨🇦`
 
-### [麦考洛医生：研究证实儿童的心脏受到新冠疫苗的毁坏](/content/gnews/13/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [普京与马克龙会谈表示愿努力与欧美达成一致](/content/gnews/3/README.md)
+ ` 温哥华圆成农场🇨🇦`
 
-### [币圈新闻动态：加拿大的 &#8220;自由 &#8220;抗议活动在美国引起共鸣](/content/gnews/14/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [新疆集中营幸存者：NBC播放北京东奥会=支持种族灭绝](/content/gnews/4/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [中共的冬奥会将是习近平断魂的开幕式](/content/gnews/15/README.md)
+### [数据显示COVID 疫苗使“癌症正像野火一样蔓延”](/content/gnews/5/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [FB再降5% 现在称之为元空间也无济于事](/content/gnews/6/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [战友实例分享离岸私人信托的设立（一）](/content/gnews/7/README.md)
+ ` 喜马拉雅德国纽伦堡正义农场`
+
+### [新中国联邦将是美国经济崩盘后重建的受益者](/content/gnews/8/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [七哥说“只有新中国联邦给你未来、给你平安、给你健康”（2022-02-02摘录）](/content/gnews/16/README.md)
- ` MG FARM`
+### [众议院通过了一项旨在让美国比中共国更具竞争力的法案](/content/gnews/9/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [七哥谈“就因为我们过去穷，我们才想富呢” （2022-02-02摘录）](/content/gnews/17/README.md)
- ` MG FARM`
+### [美出生运动员朱易摔倒后在社交媒体上遭猛击](/content/gnews/10/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [以色列“疫苗护照”政策发生重大变更](/content/gnews/18/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
+### [基思·凯洛格将军：俄罗斯、中共、伊朗联手](/content/gnews/11/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [七哥谈“如何智慧扩展无限范围的使用Hpay”（2022-02-02摘录）](/content/gnews/19/README.md)
- ` MG FARM`
+### [中共实行极端审查企图以此快速达到全球主导地位](/content/gnews/12/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [七哥谈“Hpay的上线战友们要做以下三件事儿”（2022-02-02摘录）](/content/gnews/20/README.md)
- ` MG FARM`
+### [中国人权问题让冬奥会运动员陷入两难](/content/gnews/13/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [七哥谈“依法的以穷赚大钱”（2022-02-02摘录）](/content/gnews/21/README.md)
- ` MG FARM`
+### [班农先生：任何亲自到场的政府官员，都不是追求推动自由的](/content/gnews/14/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [七哥谈“数字货币的诞生是人类的一切一切的改变”（2022-02-02摘录）](/content/gnews/22/README.md)
- ` MG FARM`
+### [麦考洛医生：研究证实儿童的心脏受到新冠疫苗的毁坏](/content/gnews/15/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共的体制邪恶到你无法想象的程度](/content/gnews/23/README.md)
+### [币圈新闻动态：加拿大的 &#8220;自由 &#8220;抗议活动在美国引起共鸣](/content/gnews/16/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [五月花简报（02/08/2022）](/content/gnews/24/README.md)
+### [中共的冬奥会将是习近平断魂的开幕式](/content/gnews/17/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [七哥说“只有新中国联邦给你未来、给你平安、给你健康”（2022-02-02摘录）](/content/gnews/18/README.md)
+ ` MG FARM`
+
+### [七哥谈“就因为我们过去穷，我们才想富呢” （2022-02-02摘录）](/content/gnews/19/README.md)
+ ` MG FARM`
+
+### [以色列“疫苗护照”政策发生重大变更](/content/gnews/20/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [七哥谈“如何智慧扩展无限范围的使用Hpay”（2022-02-02摘录）](/content/gnews/21/README.md)
+ ` MG FARM`
+
+### [七哥谈“Hpay的上线战友们要做以下三件事儿”（2022-02-02摘录）](/content/gnews/22/README.md)
+ ` MG FARM`
+
+### [七哥谈“依法的以穷赚大钱”（2022-02-02摘录）](/content/gnews/23/README.md)
+ ` MG FARM`
+
+### [七哥谈“数字货币的诞生是人类的一切一切的改变”（2022-02-02摘录）](/content/gnews/24/README.md)
+ ` MG FARM`
+
+### [中共的体制邪恶到你无法想象的程度](/content/gnews/25/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [五月花简报（02/08/2022）](/content/gnews/26/README.md)
  ` mayflowertranslate`
 
-### [七哥谈“人类最新的文明”（2022-02-02摘录）](/content/gnews/25/README.md)
- ` MG FARM`
-
-### [新西兰财经G乐部2022年2月8日:财经新闻整理](/content/gnews/26/README.md)
+### [新西兰财经G乐部2022年2月8日:财经新闻整理](/content/gnews/27/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [卡普里岛反绿色护照！店主拒绝要求客人出示绿色护照](/content/gnews/27/README.md)
+### [卡普里岛反绿色护照！店主拒绝要求客人出示绿色护照](/content/gnews/28/README.md)
  ` xiaobaige`
 
-### [《美国竞争法案》中被中共蓝金黄掉的重要条款](/content/gnews/28/README.md)
+### [《美国竞争法案》中被中共蓝金黄掉的重要条款](/content/gnews/29/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [以色列“疫苗护照”政策发生重大变更](/content/gnews/29/README.md)
+### [以色列“疫苗护照”政策发生重大变更](/content/gnews/30/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [加拿大阿省议员：当世界上大部分国家取消疫苗限制时，特鲁多仍在尝试将无效的疫苗政策永久化，加拿大正在迅速变成一个异类](/content/gnews/30/README.md)
+### [加拿大阿省议员：当世界上大部分国家取消疫苗限制时，特鲁多仍在尝试将无效的疫苗政策永久化，加拿大正在迅速变成一个异类](/content/gnews/31/README.md)
  ` 加拿大温哥华扬帆农场视频组`
-
-### [中共利用冬奥会窃取各国运动员DNA](/content/gnews/31/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
 ### [加拿大国防部抛弃未接种疫苗军人](/content/gnews/32/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`

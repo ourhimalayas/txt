@@ -2,25 +2,18 @@
 ---
 
 
-## 《美国竞争法案》中被中共蓝金黄掉的重要条款
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1976213/)
+## 卡普里岛反绿色护照！店主拒绝要求客人出示绿色护照
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1976219/)
 
-加拿大温哥华扬帆农场 枫叶快讯：硫酸羟氯喹64
+#### 翻译                                 意大利达芬奇农场                小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-08-alle-18.43.54.png)图片来源：mag24.es
+卡普里岛对疫苗护照说“不”，站在了反对疫苗护照的一方。政策代表一个方面，社会却代表另一方。卡普里岛不愿接受强制实行绿色护照政策。在卡普里岛一些商店的橱窗里贴出了这样一些带有争议性的字句：“歧视是耻辱”。正像安莎社报道的那样， 一些店家展示了一张海报， 海报上两只张开的手上放着一颗燃烧的红心，上面写着“ 爱的通行证，一个没有歧视的世界。”
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot_20220208-120020-1.jpg)图片来源：GTV
+在卡普里岛一条非常优雅的国际名牌店街上，有一家商店的橱窗里贴着这样一张醒目的告示：本店自开业58年以来一直欢迎所有客人光顾。还写着“不要绿色通行证，不要歧视，不要种族法。禁止某些人入内是可耻的。”
 
+原文链接：[https://www.mag24.es/2022/02/04/capri-in-rivolta-contro-il-green-pass-il-rifiuto-totale-dei-commercianti-di-richiedere-ai-clienti-il-lasciapassare-affissi-cartelli-in-tutte-le-vetrine-dellisola/](https://www.mag24.es/2022/02/04/capri-in-rivolta-contro-il-green-pass-il-rifiuto-totale-dei-commercianti-di-richiedere-ai-clienti-il-lasciapassare-affissi-cartelli-in-tutte-le-vetrine-dellisola/)
 
-据2月6日GTV文贵大直播消息透露，在美国众议院刚刚通过针对遏制中共扩张的《美国竞争法案》中，有部分涉及台湾安全的关键性条款，在中共蓝金黄势力的游说之下被迫删除。
-
-消息称，这些被取消的条款包括：习近平当局若武力攻台，美国政府不仅会立即公开和查封中南坑盗国贼家族的全部海外资产，还将与中共的经济彻底脱钩并断绝双边外交关系等措施。
-
-对此，文贵先生表示：尽管中共利用其在美国的深度渗透和游说能力，看似成功取消了以上重要条款，但却无法根本影响在美台关系中起主导作用的[美国立法会]。该法案事实上已明确了美国政府将保护台湾不受中共武力入侵的基本立场，并使美方在中共未来发动台海战争之时，拥有更多军事反击的行动空间。因此，中共如继续执意攻打台湾，必将自取灭亡！
-
-新闻来源：[https://gtv.org/video/id=61ffc26b3621aa7415d64d51](https://gtv.org/video/id=61ffc26b3621aa7415d64d51)
-
-* * *
-
-编辑撰稿，发稿：硫酸羟氯喹64
+编辑、上传：  Xiao  baige
 
  
 
