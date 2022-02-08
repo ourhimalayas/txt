@@ -2,31 +2,33 @@
 ---
 
 
-## 按照中共的防疫清零政策冬奥会开幕式参加者都需要隔离
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1975678/)
+## 有声|联合国秘书长盼北京允人权特使访新疆
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1975757/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-33.png)
-（图片源自本文链接）
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月6日，联合国秘书长古特瑞斯在冬奥期间与中共主席习近平和外交部长王毅会面时提出，期望中共允许联合国人权事务高级专员巴舍莱进入新疆，调查维吾尔人遭虐待的指控，对中共进行可信的访问，包括在新疆停留。
 
-2月8日Q电视新闻消息：出席了北京冬奥会开幕式的巴布亚新几内亚总理马拉佩被确诊感染中共病毒(新冠病毒Covid-19)。
+据悉，巴舍莱曾多次表达过希望进入新疆访问、追查真相的愿望，但一直遭到但中共的拒绝。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide11-2-1536x864-1.jpg)
+文字版原文：[联合国秘书长盼北京允人权特使访新疆](https://gnews.org/zh-hans/1973650/)
 
-根据中共国外交部的消息，马拉佩于本月3日抵达北京，随后的PCR测试结果呈阳性，接受了检查和治疗。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-马拉佩出席了4日的开幕式，但随后与中共国总理李克强的会晤是通过网络在线进行的。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-中共国外交部强调，来自巴布亚新几内亚的访问团在北京逗留期间遵守了疫情防控管理规定。因此，不会带来影响。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-这说明北京冬奥会会场内，明明白白的进去了感染者。那么，按照中共国迄今为止对武汉、西安等地居民实施的“一人感染全楼隔离”的清零政策，是不是包括习近平在内的所有参加了冬奥开幕式的人，都是密切接触者，都该隔离呢？
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-信息来源：[パプアニューギニア首相がコロナ感染　北京五輪の開会式に出席（日テレNEWS） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/ede2b7715b9441291f593d16d496a170d4ef50cf)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

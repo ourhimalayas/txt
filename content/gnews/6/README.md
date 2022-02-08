@@ -2,10 +2,15 @@
 ---
 
 
-## CCTV还在欺骗民众习大神和普京的“甜蜜蜜”约会
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1975862/)
+## 郝董谈自身转会经历，反映出HPAY对未来体育界的革命性影响
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1975895/)
 
-**视频制作：逍遥小哥**
+**H-Pay 将彻底改变金融游戏规则**
+视频制作：文双
+
+翻译：秋刀鱼
+
+上传排版：文勇
 
  
 

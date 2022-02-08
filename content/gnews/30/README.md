@@ -2,37 +2,27 @@
 ---
 
 
-## 有声|著名记者劳拉·洛根离开推特脸书 中意盖特
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1975618/)
+## 三笠宮瑤子公主染疫 日本皇室首例中共病毒确诊
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1975643/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-2月3日，著名女记者劳拉·洛根宣布，将离开推特、脸书及Instagram等社交媒体，留在盖特等有言论自由的平台。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E6%88%AA%E5%B1%8F2022-02-07-%E4%B8%8A%E5%8D%8811.18.48.png)
-劳拉曾经常年在阿富汗、伊拉克等战场前线报道，屡获殊荣，包括3次获得艾美奖，9次获得艾美奖提名等等。去年11月底，她因把福奇比做臭名昭著的纳粹医生，一度引发热议。
+撰稿：东京樱花团｜盖特第一批注册
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-2-2.png)
+[*图片来源*](https://www3.nhk.or.jp/news/html/20220208/K10013474531_2202081929_2202081954_01_02.jpg)
 
-劳拉表示，凭着良知，她不能为那些利用剥削儿童来谋利的平台作贡献。近年来，大型科技公司因涉嫌将儿童的露骨内容平台化，并成为性交易的温床而引起争议。那些平台一边严格审查卡车司机与疫苗受害者等人的自由言论，一边却在推行这种性堕落的意识形态，而推广和美化人类最糟糕无底线的行为是错误的。
+三笠宮瑤子公主殿下被证实感染了中共（新冠）病毒，于1月8日晚被送入皇室医院，这是日本皇室首例确诊。
 
-劳拉的选择，标示着一个有正义感的媒体人，在纷繁复杂的世界里，基于人性最基本的要求，即言论自由，尊重人权等，而做出的价值判断，而盖特正是以此为其理念的崭新媒体平台。
+瑤子公主（38岁）在7日出现喉咙痛，8日下午，皇家医院派医生到公主的赤坂住所探诊，并将标本带回进行PCR检测，确诊染疫。
 
-文字版原文：[著名记者劳拉·洛根离开推特脸书 中意盖特](https://gnews.org/zh-hans/1971260/)
+虽然瑤子公主除了喉咙痛之外没有其他症状，但是为了慎重起见，8日晚7点半前住进了皇室医院观察治疗。近几日与她有过接触的姐姐虽无任何症状也将接受检查。瑤子公主独自生活，感染的途径无从查明。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+这是第一次在皇室中确认感染中共病毒，日本皇室表示，将继续采取彻底的措施防止感染，接受专家的建议。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+信息来源：[**三笠宮瑤子さま 新型コロナに感染確認 皇室で感染確認は初**](https://www3.nhk.or.jp/news/html/20220208/k10013474531000.html)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / yuxingcao01*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
