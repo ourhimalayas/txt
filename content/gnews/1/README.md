@@ -3,7 +3,7 @@
 
 
 ## 七哥的三次阳痿（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1974925/)
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1974940/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

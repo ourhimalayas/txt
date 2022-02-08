@@ -2,28 +2,34 @@
 ---
 
 
-## 中国银行未能履行在澳洲为一家中共国公司提供高达5750万澳元的担保
-` 喜国公民` [轉載自GNews](https://gnews.org/zh-hans/1974529/)
+## 短视频：我们不需要那该死的疫苗！
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1974633/)
 
-By：喜国公民
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-798.png)图片来自网络
-澳大利亚新州开发商The Gosford与中共国山西建设投资集团下属的信达科技公司曾经签订了合同，在新州中央海岸郊区设计和建造一座价值1.85亿澳元的项目。
+翻译：不要代表我Kari
+校对：枳实
+剪辑字幕：qingjing
+ 编辑：文泓
 
-信达科技公司同意为该项目向中央海岸的开发商提供3750万澳元的资金，并由中国银行对该资金提供担保。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/811.png)图片来源：视频截屏
 
-随后，信达科技公司未能履行3750万美元的付款，同时，中国银行拒绝履行担保协议。新州开发商向新南威尔士州最高法院提起诉讼，控告中国银行未能履行担保承诺。
 
-中国银行认为新南威尔士州最高法院对该案件不具备审理管辖权，因为中国银行出具的担保是由中共国山西省的中国银行提供的 ，认为该案件应该由中共国的法院来审理。
+谢谢你，作为一个非裔美国人，我来自对疫苗最为犹豫的群体（指非裔群体），来到这里参加集会，事实上，唯一接近疫苗犹豫的另一个群体的正是我们生物医学科学博士们。
 
-新州最高法院法官詹姆斯·史蒂文森在上周末的一项决定中拒绝撤销该案件，认为新州法院对此案具有管辖权。他认为，尽管中国银行的担保是在中共国的山西省提供的，但工程项目是在新洲，与新州的发展有关。
+因为我们知道生命是复杂的，对于很多事情我们一无所知，我们没有傲慢到认为我们的科学可以和上帝相提并论。
 
-信达科技公司期望案件能在中共国审理，因为中共国的法院有可能做出对该公司有利的的判决，而新南威尔士州最高法院可以做出强迫中国银行支付担保金的判决。
+非裔美国人在这个国家被边缘化了。而我们实际上已经被当作了试验对象。而布朗博士的演讲我也认真做了研究，但他所提到的并没有阐明整个事情。
 
-根据郭文贵先生爆料，中国银行是一个间谍系统，洗钱系统，其坏账率高达45%。中国的银行中风险最大的就是中国银行。
+他谈到了鲍比·肯尼迪给他带来的疫苗副作用启示，在2002年，美国疾病控制与预防中心（CDC）做了一个研究，你知道，自闭症研究，接种麻疹、腮腺炎和风疹MMR三联疫苗是否会导致自闭症？
 
-消息来源：[Bank of China loses bid to toss $37m lawsuit by NSW developer The Gosford](https://www.theaustralian.com.au/business/bank-of-china-loses-bid-to-toss-37m-lawsuit-by-nsw-developer-the-gosford/news-story/bca5d5252fc9917dab3f54e0910f66cd)
+视频链接：[Zach (nine meals from anarchy) 在 Twitter: “Dr. Christina Parks speaks at #DefeatTheMandatesDC on behalf of African-Americans. “We don’t want their f\*cking vaccine!!” 🔥 https://t.co/YFaUQTruq0” / Twitter](https://twitter.com/just___zach/status/1485396249843056646?s=21)
 
-[文贵与班农接受著名对冲基金经理采访](https://www.youtube.com/watch?v=8HIQVJ7C8OM)[,讲述中共政治黑幕和孟宏伟失踪事件](https://www.youtube.com/watch?v=8HIQVJ7C8OM)
+发布：文泓
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
