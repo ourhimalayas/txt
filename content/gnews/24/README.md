@@ -2,27 +2,17 @@
 ---
 
 
-## 政客们通过强制接种，蚕食民众心理防线
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1973186/)
+## 新中国联邦只有灭共才有价值
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1973208/)
 
-##### 翻译：Lish
-校对：枳实
-剪辑|字幕：向上James
-编辑：Mttfly
+文编：东京樱花团/樱花传媒
+视频：东京樱花团/中文小视频组
 
-临床心理学家乔丹·彼得森（Jordan Peterson）在2016年就解释了这种行径是如何慢慢侵蚀民众自由的。政府只侵占到你开始抗议的地方，然后停止，等待民众怒气平息。然后再次侵占，以此往复。民众在不知不觉中被侵蚀的自由越来越大。在信息自由法案的（FOIA）的要求下，FDA竟然想用55年时间来公布关于疫苗的数据。如果你不支持接种新冠疫苗，就会被左派认为是反疫苗者。人民的自由被不断蚕食，不要服从，否则你将丧失基本的人权。
+2月6日，郭文贵先生在GTV大直播透露，在中共国，好人往往没好报，坏人总是不会受惩罚，什么都是党的，人民活得不如猪狗。只要中共不灭，被坑害的百姓，被拐卖的妇女儿童事件就会层出不穷，救也救不完。新中国联邦的最大价值和意义，就是要彻底消灭和铲除共产党在中国的统治。
 
-视频来源：[Dan Bongino: Why the COVID goalposts keep moving](https://video.foxnews.com/v/6286396874001#sp=show-clips)
-
-*发布：Mttfly*
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团/tdownc2p*
+*发布：东京樱花团/ 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

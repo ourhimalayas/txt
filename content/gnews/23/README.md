@@ -2,22 +2,37 @@
 ---
 
 
-## 依照新中国联邦宣言改变未来灭共后的中国
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1973194/)
+## 巴布亚新几内亚总理在北京感染新冠
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1973209/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+**【雅典娜快讯】，紧贴时事脉搏**
 
-那么关于这个新中国联邦未来在灭掉共产党以后怎么让中国回去，我可以告诉你新中国联邦宣言里边给了你一切答案。按照这个做啊，一天能达到精神上流水的感觉，你就不需要第2天，到了第2天就说明你智商出了问题，就是被共产党的那个给已经整成病了，你不应该去搞创伤了，不应该看心理医生了，应该进真正的医院了就治病去了，就是物理上有病了，只要物理上身体上没有大创伤，这个就分分钟解你所有的共产党的病毒，相信我这里有一切的答案。你会无限的快乐， 你会精神上各方面天天流水的感觉，而让别人感到流水的快乐，因为这真的是美好的，真的是快乐。不要开玩笑啊，真的很重要啊。人生不快乐，不健康不安全，你什么快乐感都没有。这就是我们在跟随爆料革命的决心跟勇气。而现在我们爆料革命已经进入了新的阶段，相对于韩国的数字货币市场，我相信了解数字货币的应该知道韩 的市场是非常大的，技术也都非常的好。说我们现在呢，也真的是跟韩国很像。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/依照新中国联邦宣言改变未来灭共后的中国-.png)
-2022年1月1日文贵大直播
+**整理报道：**小熊
+**编辑：**翼族
 
-*发布：tianzhihuan*
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/753dfc4102384ac7a2fc9fae2c52c331.jpg)CGTN
+
+
+巴布亚新几内亚总理詹姆斯·马拉佩（James Marape）出席北京冬奥会开幕式期间中共病毒（COVID-19）检测呈阳性，将无法参加接下来在法国举行的印度与太平洋峰会。
+
+巴布亚新几内亚总理办公室说，马拉佩总理上周四赴北京参加冬奥会开幕式，抵京后检测出阳性，赴法国参加印度与太平洋峰会的行程也被取消。
+
+马拉佩总理原定从北京前往法国西北部，出席2月9日至11日的海洋峰会，该峰会在联合国协助下由法国出任欧盟理事会主席。而上周更早的时间，马拉佩总理办公室曾表示，原定计划里还有一个马拉佩总理与法国总统马克龙先生的会面安排。
+
+“因疫情旅行禁令，马拉佩总理将取消前往法国的行程，原因是上周四晚总理被测试出阳性。”总理办公室在其脸书上声明。
+
+办公室说，马拉佩总理于上周日返回巴布亚新几内亚，进一步细节未予披露。
+
+巴布亚新几内亚新冠疫情控制中心网站有一则声明说，为预防新冠病毒，早在1月24日马拉佩总理已接种过新冠疫苗。
+
+**新闻链接**：[PNG PM James Marape gets COVID-19 in Beijing, cancels attendance for Indo-Pacific summit](https://www.sbs.com.au/news/png-pm-james-marape-gets-covid-19-in-beijing-cancels-attendance-for-indo-pacific-summit/376907ab-943e-4368-aa3d-85256615f84e)
+
+*发布：翼族*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
