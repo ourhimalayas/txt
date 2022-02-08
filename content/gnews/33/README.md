@@ -2,23 +2,27 @@
 ---
 
 
-## 欧盟及英国在世贸组织提诉中共违规行为
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1976085/)
+## 多名美国顶尖滑雪选手在冬奥赛道摔倒
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1976084/)
 
-作者：纽约香草山 医疗部 云豹
+作者：纽约香草山文艺部 – 宁文静
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月7日，英国国际贸易大臣屈维瑞安表示，将加入欧盟向世贸组织提诉中共的行动，要求参与后续的咨商会议。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-08-上午11.56.38.png)
-1月27日，欧盟向世贸组织提出诉讼，指控中共当局因政治因素，对立陶宛实行贸易抵制。去年下旬，立陶宛曾在国际上多次声援台湾，11月21日，駐立陶宛台灣代表處正式成立。欧盟表示，中共此种「歧视性贸易作为」已影响整个欧盟供应链，也违反关税暨贸易总协议（GATT）的多项国际协议。
+2月7日，北京冬奥会刚开始，就传出多位美国滑雪运动员在比赛中滑倒，面临出局和受伤的双重风险。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-08-上午11.56.31.png)
+当天，卫冕冠军美国选手米凯拉·希弗林在第一轮中摔倒，爆冷提前出局。希弗林在前两届冬季奥运会上获得了三枚奖牌，两枚金牌一枚银牌。如果这次拿到两枚金牌，就有望与另两名选手并列成为高山滑雪界的最多金牌拥有者。希弗林在该项目上历来都是稳定的典范。她说，前四个闸口感觉良好。但当她绕过第五道门时，突然就失去了平衡，导致了出局。
 
-英国政府指责中共当局作为世界第二大经济体，却仍在享受「发展中国家」的优惠待遇早。英国政府表示，英国一向拥护遵守规则的贸易体系，及在此体系下的自由、公平贸易。英国将要求以第三方身分参与欧盟在世贸组织的咨商程序，以共同对抗来自于中共的经贸胁迫。英国将是继美国、澳洲后，第3个要求参与该咨商程序的非欧盟国家。
+第二轮比赛中，美国女子大回转的头号选手尼娜·奥布莱恩在终点线前坠落，她的左腿受了重伤，被担架抬出赛道。当她身体失去平衡的瞬间，正是速度最快的时候。在终点区观看的其他选手惊恐万分。24岁的奥布莱恩去年在该项目中赢得了美国冠军。连损两位最有实力的选手，美国高山滑雪项目面临困境。
 
-参考链接：[歐盟在WTO提訴中國 英國要求參與諮商支持立陶宛](https://www.cna.com.tw/news/aopl/202202070317.aspx)
+据悉，当天参赛的82名选手中有33人没能完赛。有分析人士称，这些匪夷所思的失误，可能与北京冬奥滑雪赛道上完全是人工雪有关。人工雪比真雪颗粒大，又硬又滑。其质地、弹性、阻力，与真雪有很大的不同。运动员在这种人工雪地上运动，很难掌控速度和动作的幅度，进而为自身和他人的安全带来隐患。
+
+参考链接：
+1）[Nina O’Brien taken off giant slalom course on stretcher at 2022 Beijing Olympics](https://www.usatoday.com/story/sports/olympics/2022/02/07/nina-obrien-taken-off-course-stretcher-after-giant-slalom-crash/6687627001/)
+2）[Two-time Olympic champion Mikaela Shiffrin out of giant slalom at Beijing Olympics](https://www.usatoday.com/story/sports/olympics/beijing/2022/02/07/american-mikaela-shiffrin-out-giant-slalom-beijing-olympics/6683121001/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-总编：文特
-编辑：Zion文恩
+总编：Zion文恩
+编辑：谐趣园
 校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**

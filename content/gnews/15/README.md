@@ -2,10 +2,10 @@
 ---
 
 
-## 麦考洛医生：研究证实儿童的心脏受到新冠疫苗的毁坏
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1976414/)
+## 众议院通过了一项旨在让美国比中共国更具竞争力的法案
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1976447/)
 
-02/05/2022 麦考洛医生：研究证实儿童的心脏受到新冠疫苗的毁坏。接种疫苗后儿童很可能会在青春期之前患上心肌炎。
+02/04/2022 众议院通过了一项旨在让美国比中共国更具竞争力的法案
 
 By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 
