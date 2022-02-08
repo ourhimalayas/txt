@@ -2,30 +2,49 @@
 ---
 
 
-## 约旦探索中央银行数字货币，未来将其合法化
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1973567/)
+## 以色列取消大部分疫苗通行证要求
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1973574/)
 
-整理/编辑：小红帽
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-614.png)图片来源：雅典娜设计组
+作者：纽约香草山农场 – 宁文静
 
 
-根据《COINGEEK》2月8日报道，约旦已成为最新一个宣布有兴趣开发中央银行数字货币（CBDC）的国家。据报道，该国央行一直在探索数字第纳尔的可行性。行长甚至表示，如果有适当的法规和准则，政府可能会将数字货币交易合法化。
 
-根据当地媒体的报道，约旦中央银行（CBJ）行长Adel Al Sharkas在最近的一次会议上透露了中央银行数字货币的计划，其中数字货币是讨论的重点。《Unblock Media》报道说，Al Sharkas宣布，约旦中央银行希望加入中共国和巴哈马这样的国家，因它们都在中央银行数字货币方面取得了重大进展。巴哈马是全球第一个推出中央银行数字货币的国家。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-会议由下议院经济和投资委员会组织，主要议程是数字货币在这个中东国家的未来。在这方面，行长表示，中央银行没有什么特别反对比特币的地方。相反，他完全专注于保护约旦的投资者。因此，只有当立法者发布保护投资者的法律时，才能支持数字货币交易的合法化。
 
-新闻链接：[Jordan exploring CBDC, legalizing digital currency trading in the future](https://coingeek.com/jordan-exploring-cbdc-legalizing-digital-currency-trading-in-the-future-report/)
 
-发布： tianzhihuan
+2月4日，国外媒体报道，作为疫苗接种先锋的以色列，几乎取消了疫苗通行证在普通人群和场所的所有使用。这个政策还是在高感染率、高死亡率的背景下作出的根本改变。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+从2月7日开始，以色列人在进入酒店、餐馆、剧院和健身房等场所时，不再需要出示疫苗接种证明。但所谓的“高风险”活动，如婚礼和聚会，仍然需要证明。以色列政府还将继续保持一些限制措施，包括戴口罩，以及未接种疫苗者在“教育机构”每48小时提供一次阴性测试证明等。另外，没有接种疫苗的人士也可以从以色列登机，不再需要进行中共病毒测试，只要目的地国家不要求阴性证明即可。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-3.jpg)
+媒体称，这是一个戏剧性的变化，证明了疫情应对措施和政策的全面改变。以色列是世界上加强针，甚至第四针接种率最高的国家。然而，在1月底，中共病毒感染率、死亡率创下历史最高。流行病学家纳达夫·戴维维奇是为政府提供建议的专家小组成员，他说形势在变化，疫苗通行证政策的转变具有现实意义。
+
+参考信息：
+1. [Israel Green Pass Goes Away, Easing Covid Restrictions Despite a Rise in Infections](https://trialsitenews.com/israel-green-pass-goes-away-easing-covid-restrictions-despite-a-rise-in-infections/)
+2. [Vaccine passport pioneer Israel to curb use of ‘green pass’](https://www.straitstimes.com/world/middle-east/vaccine-passport-pioneer-israel-to-curb-use-of-green-pass)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

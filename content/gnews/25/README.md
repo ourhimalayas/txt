@@ -2,25 +2,50 @@
 ---
 
 
-## 澳洲维多利亚地区过半5-11岁儿童已接种CCP病毒疫苗
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1973669/)
+## 中共在冬奥会中收集运动员的基因
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1973673/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2022/02/803.jpg)图片来自网络
-根据澳大利亚媒体第九新闻的最新报道，截至当地时间周一（2月7日），澳大利亚维多利亚州5至11岁的儿童群体，已经有超过一半接种了CCP病毒疫苗。
+作者：日本方舟农场 – Andy5
 
-不过维多利亚教育部长James Merlino对于这样的疫苗接种进度似乎仍然不太满意，他表示接下来“还有很长的一段路要走”。这或许意味着政府期待儿童疫苗接种率很可能在90%甚至95%以上，即几乎所有无特殊情况的5-11岁儿童都要接种疫苗。
 
-于此同时，在该州的成年人群体中，也已经有45%接种第三剂CCP病毒疫苗加强针。
 
-从澳大利亚全国范围内的数据来看，目前全国也已经有将近45%的5-11岁儿童接种了第一针CCP病毒疫苗。而在12-15岁的青少年群体中，这一数字已超过84%，同时有77%的青少年已经接种了第二针。16岁以上的成年人当中，已经有超过43%的居民接种了CCP病毒疫苗的加强针。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-目前，澳大利亚总共接种的CCP病毒疫苗已经超过了5100万剂次，接种数量在各个国家中排在第31位，而接种比例则在全球范围内排行第21位。而全球疫苗总接种剂次已经突破100亿大关，全球超过半数人口接种了至少两剂CCP病毒疫苗。
 
-新闻参考链接：[9 News](https://www.9news.com.au/national/elective-surgery-resumes-in-victorias-private-hospitals-as-victorias-covid19-hospitalisations-drop/8435f323-a4e2-4a7c-a02d-28b8ec2781c2)
 
-*发稿：mgjxs*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
+当地时间2月6日，前国务卿蓬佩奥在接受媒体采访时表示，他之所以抵制北京冬奥会不在于让运动员们失去竞技的机会，而是为所有去北京的运动员感到担忧。
+
+这个担忧来自三个方面。首先，美国认为奥运会只是一项活动，而中共却将奥运会当作宣传的工具，并且中共想要用奥运会来给自己洗白。其次，到达北京的运动员面临手机被监控，以及无法自由言论的危险。第三，蓬佩奥最担心的是除了数据信息，中共还将收集运动员的DNA信息，甚至将这些信息交给中共军方。
+
+而在同一天的大直播中，郭先生也爆料称，中共之所以收集基因，就是因为其根深蒂固的人种崇拜、基因崇拜，并据此给全世界的人类划定阶级。甚至认为用这些基因跟中共一起，交配出所谓更优质的人种就能变成巨大的财富。而这些都是因为中共本身就是一个种族主义、阶级主义的邪恶政权。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide10-3.jpg)
+参考信息：
+1. [2022年2月6日 文贵大直播：开幕式后普京愤然离去；中俄战略合作虎头蛇尾；贩卖人口中国妇女地位；反疫苗运动及美国经济](https://gtv.org/video/id=61ffc26b3621aa7415d64d51)
+2. [20220206蓬佩奧國務卿和七哥同時提到CCP將收集運動員DNA](https://www.gettr.com/post/pt012ncee1)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+
+总编/编辑：DM
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
