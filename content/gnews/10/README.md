@@ -2,28 +2,28 @@
 ---
 
 
-## 从污水中的病毒含量掌控疫情 日本一新公司横空出世
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1975480/)
+## 有声|习近平冬奥会欢迎宴未见普京
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1975747/)
 
-撰稿：东京樱花团｜麗子
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-1-4.png)
-[*图片来源*](https://www3.nhk.or.jp/news/html/20220208/K10013474161_2202081807_2202081816_01_02.jpg)
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月5日，习近平和彭丽媛用中国老百姓的税金，为参加中共冬奥会的外国来宾举行欢迎会。中共并未公开参加欢迎会的嘉宾明档。从中共后来公布的视频资料中，看不到本次中共冬奥会最重磅来宾，俄罗斯总统普京的身影。
 
-盐野义制药与岛津制作所联合成立了一家新公司，主要方向是从污水中调查中共（新冠）病毒，他们将通过测试污水处理厂和医院等设施的污水中中共病毒含量来提供公共健康风险评估。这两家公司希望利用双方在传染病研究和理化技术方面的优势，帮助判断中共病毒是否扩散或是否得到有效遏制。
+墙内自媒体爆出，普京早在2月4日跟习签署15个协议，并宛如被隔离一般的参加冬奥会开幕式后，于当晚11点火速了中共国。
 
-新公司名为AdvanSentinel，社长古贺正敏表示，没有症状或尚未发病的人所在区域可以作为一个群体进行监测。如果该监测系统能够被纳入基础设施，将有望为未来大流行病的预防发挥积极作用。
+文字版原文：[习近平冬奥会欢迎宴未见普京](https://gnews.org/zh-hans/1971049/)
 
-新公司的目标是在几年后实现年销售额10亿日元，并希望今后不仅针对治疗中共病毒，而且能够在预防治疗其他流行病，如流感和脊髓灰质炎等方面起到重要作用。盐野义制药公司的新冠药物也即将在日本发售。
+音频处理/发稿：Daxia
 
-俗话说，商人的嗅觉最敏锐，看来未来很长一段时间，人类很有可能与各种传染性病毒共存了，尤其是一次次打入人体的疫苗还会造成S蛋白脱落，影响深远啊！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-信息来源：[**塩野義製薬と島津製作所が新会社設立  下水処理場や病院の下水での新型コロナウイルスを調査**](https://news.yahoo.co.jp/articles/4ffeb92fe2e2218518ca7adad42da6507387a8c5)
-
-校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
 
  

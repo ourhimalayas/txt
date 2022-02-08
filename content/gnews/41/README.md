@@ -2,24 +2,34 @@
 ---
 
 
-## 日本《自卫队法》修正案获批，意指共台开战可营救台湾人民
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1974555/)
+## 中美初次建交的真实历史
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1975053/)
 
-撰稿：东京樱花团/风翼
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-75.png)图片来源于网络
-据JIJI.COM媒体报道，日本政府8月8日批准了一项自卫队法修正案草案，允许自卫队飞机在外国发生灾难、骚乱或其他紧急情况时仅运送外国国民。并表示还将修改确保运输安全的具体要件和要求。
+撰稿：香草山-新世界的一员
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-5.png)
+2月4日，郭文贵先生在直播中透露，中美两国第一次外交发生在1783年，形成大清朝的蒲安臣条约。 当时，美国人乘坐中国皇后号，给大清送去人参与白银，在广州登陆。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-800.png)
+美国人发现中国政府官员极为智慧，治理井井有条，与世界通商。女性勤劳智慧，素雅洁净。广州商业中心迎来客往，24小时开门，灯火辉煌，歌舞升平。 当时的中国人文明程度之高，是外国人心中的文明摇篮。
 
-防卫大臣岸信夫在关于《自卫队修正案》的新闻发布会上强调，拟议的修正案，在未来的各种海外紧急情况下，能够更迅速和灵活地进行运输。并举例去年8月塔利班在阿富汗夺取政权时，政府向该地区派遣了自卫队飞机，但只有一名日本人撤离，而且大多数申请者是在日本大使馆工作的阿富汗人，但因自卫队法的盲点，而无法执行更人道的救助。
+美国人带回去的是大清朝的火药，茶叶和瓷器。美国人赚钱后，随即派出公使。第一个公使叫蒲安臣，条约的名称也因他而得名。此人精通中文，还请了两个中国女秘书。他是唯一一位既担任过美国驻华公使，又担任过中国使节的美国人。
 
-从日本首相岸田文雄对与台湾相近的与那国岛进行的模拟难民接收训练，到积极修改自卫队修正案，不难看出是对中共如侵犯台湾所作的一系列准备。
+抚今追昔，中美关系走到今天的地步， 是中共独裁野心，邪恶扩张导致的结果。中国老百姓被蒙骗无知，一旦醒来就会发现，中美两国的友好往来渊源流长。
 
-信息来源：
+新闻链接：[2022年2月4日 文贵大直播](https://gettr.com/post/psg0ix4b78)
 
-[緊急時、外国人だけの輸送可能に　自衛隊法改正案を閣議決定](https://www.jiji.com/sp/article?k=2022020800136&amp;g=pol)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-23.jpg)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+总编：文真
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-5.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
