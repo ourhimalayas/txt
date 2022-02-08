@@ -2,32 +2,53 @@
 ---
 
 
-## 欧盟及英国在世贸组织提诉中共违规行为
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1976085/)
+## 新中国联邦2022年发展的三个重点项目
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1976116/)
 
-作者：纽约香草山 医疗部 云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月7日，英国国际贸易大臣屈维瑞安表示，将加入欧盟向世贸组织提诉中共的行动，要求参与后续的咨商会议。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-08-上午11.56.38.png)
-1月27日，欧盟向世贸组织提出诉讼，指控中共当局因政治因素，对立陶宛实行贸易抵制。去年下旬，立陶宛曾在国际上多次声援台湾，11月21日，駐立陶宛台灣代表處正式成立。欧盟表示，中共此种「歧视性贸易作为」已影响整个欧盟供应链，也违反关税暨贸易总协议（GATT）的多项国际协议。
+作者：首尔天池农场-追着曙光跑
 
-英国政府指责中共当局作为世界第二大经济体，却仍在享受「发展中国家」的优惠待遇早。英国政府表示，英国一向拥护遵守规则的贸易体系，及在此体系下的自由、公平贸易。英国将要求以第三方身分参与欧盟在世贸组织的咨商程序，以共同对抗来自于中共的经贸胁迫。英国将是继美国、澳洲后，第3个要求参与该咨商程序的非欧盟国家。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-26.jpg)
 
-参考链接：[歐盟在WTO提訴中國 英國要求參與諮商支持立陶宛](https://www.cna.com.tw/news/aopl/202202070317.aspx)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-总编：文特
-编辑：Zion文恩
-校正/发稿：呼吸的雾霾（文小呼吸）
+
+
+2月6日，郭先生在大直播上强调，新中国联邦2022年发展的三个重点项目。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/rzhang99-ChineseNewYear-.jpg)
+
+第一，阻止排华事件的发生，这是新中国联邦今年的重中之重。如果新中国联邦阻止不了西方的排华，那么即使灭共了也没什么意义。现在需要计划用币，鼓励国内的各界人士站出来，形成全国灭共的趋势，让他们在灭共中真正得到喜币和躺平币。
+
+第二，把现有的项目做强做大，坚决不犯希特勒那样因无限扩张导致灾难性的错误。今年不会再立任何新项目，目标就是把现有的项目搞好做强，然后扩大在全球的影响力。
+
+第三、做好新中国联邦教育（GEDU）。教育是立国之本，是中国人未来的希望。新中国联邦会提供喜币或喜美元，吸引国内的教育工作者加入GEDU。套用一句俗语：走新东方的路，让新东方无路可走。 2022年，新中国联邦无论是在国际还是国内，影响力都将会更强。
+
+新闻链接：
+
+[https://gettr.com/post/psu0mf2270](https://gettr.com/post/psu0mf2270)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-9.jpg)
+
+编辑/校对发稿：遍地开花
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-22.jpg)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

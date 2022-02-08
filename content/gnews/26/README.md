@@ -2,28 +2,30 @@
 ---
 
 
-## 中共利用冬奥会窃取各国运动员DNA
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1976143/)
+## 以色列“疫苗护照”政策发生重大变更
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1976185/)
 
-采编：风云小哥                编译撰稿：文莱
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2021-01-30T120811Z_1_LYNXMPEH0T0A2_RTROPTP_4_CHINA-GENOMICS-MILITARY-1200x779-1-edited.jpg)图片来源：theepochtimes
-据美国相关媒体近日报道，为争夺生物经济的主导地位，中共正在开发一个庞大的生物数据库，其中包含来自世界各地人种的医疗、健康和遗传信息。
+加拿大温哥华杨帆农场枫叶快讯
 
-报道称，中共正利用各国的生物科技公司，耗费巨资收集当地人群的基因数据，并将这些数据与其顶级的军事超级计算能力相结合，通过发现不同族裔的基因遗传弱点，最终以此来开发生物病毒武器。
+采编/ 翻译编辑：  自由法兰西
 
-目前，越来越多的高科技企业参与到中共生物军事研究之中。例如，[华大基因公司]此前就提出在美国设立“新冠病毒”检测中心，尽管此举已被美方断然拒绝，但至少有18个其他国家都允许该公司在当地设立检测和研究中心。
 
-为此，GTV在最近的报道中指出，北京冬奥会将成为习近平当局收集各国参赛运动员和政要名人DNA数据的绝佳机会，并且中共早已为该项邪恶计划做好了各项充分的准备。
+![](https://static1.straitstimes.com.sg/s3fs-public/styles/large30x20/public/articles/2022/02/02/yq-isrvac-02022022.jpg?VersionId=nb_w3Vh8FiLXNfffA9v1VwLLrCDHEkzE&amp;itok=rb3H8S2i)
 
-校对编辑：硫酸羟氯喹64
 
-发稿：文明(添草灭共)
+据新加坡《海峡时报》近日报道，以色列政府表示，作为首批推行疫苗护照的国家之一，该国将开始逐步停止使用疫苗护照。
+
+报道称，以色列政府的疫情工作组最近决定，除了“公众密集聚会的高风险场所外”，餐馆、酒吧、健身房和酒店等大部分公共场所，都将放弃使用疫苗护照。此外，未接种疫苗者也可在不做病毒测试的情况下直接登机旅行。
+
+据悉，该决定是以色列当局在“新冠病毒”感染人数持续保持历史高位的情况下做出的。目前该国的日均新增感染个案已超过6万例。
+
+对此，相关流行病专家指出，以色列政府的上述决定是明智的，因为事实表明，已接种者仍然在被反复感染，而继续推广疫苗护照只是自欺欺人之举。
 
 原文链接：
 
-[https://www.theepochtimes.com/chinese-military-linked-firm-gathers-american-dna-provides-covid-tests\_4250811.html](https://www.theepochtimes.com/chinese-military-linked-firm-gathers-american-dna-provides-covid-tests_4250811.html)
+[https://www.straitstimes.com/world/middle-east/vaccine-passport-pioneer-israel-to-curb-use-of-green-pass](https://www.straitstimes.com/world/middle-east/vaccine-passport-pioneer-israel-to-curb-use-of-green-pass)
 
-[https://gtv.org/video/id=61fd1a6596ba5d73e0c28b83](https://gtv.org/video/id=61fd1a6596ba5d73e0c28b83)
+校对编辑：硫酸羟氯喹64 发稿：青青
 
  
 
