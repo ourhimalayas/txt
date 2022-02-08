@@ -15,143 +15,143 @@
 
 ---
 
-### [美方要求中共国兑现第一阶段贸易协议承诺](/content/gnews/1/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [2月6日文贵大直播摘要（图片）](/content/gnews/1/README.md)
+ ` 波士顿五月花农场`
 
-### [欧盟在WTO提诉中共 英国要求参与谘商](/content/gnews/2/README.md)
+### [美国呼吁中共尽快兑现贸易协议承诺](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [邪恶的中共政权才是万恶之源](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [DC农场的阿炳的言行对农场战友诠释了 新中国联邦宣言——尊重个人、法治和信仰自由（一）](/content/gnews/3/README.md)
+### [约旦探索中央银行数字货币，未来将其合法化](/content/gnews/4/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [2月6日文贵大直播摘要（图片）](/content/gnews/5/README.md)
+ ` 波士顿五月花农场`
+
+### [文贵先生直播精要2022/02/06](/content/gnews/6/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [美方要求中共国兑现第一阶段贸易协议承诺](/content/gnews/7/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [欧盟在WTO提诉中共 英国要求参与谘商](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [DC农场的阿炳的言行对农场战友诠释了 新中国联邦宣言——尊重个人、法治和信仰自由（一）](/content/gnews/9/README.md)
  ` 雅典娜GNotes`
 
-### [哈耶克如何看计划经济及极权主义](/content/gnews/4/README.md)
+### [哈耶克如何看计划经济及极权主义](/content/gnews/10/README.md)
  ` 澳喜特战旅Gnews`
 
-### [中日财经爆┃美国加强对中共出口管制 33家实体上榜](/content/gnews/5/README.md)
+### [中日财经爆┃美国加强对中共出口管制 33家实体上榜](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [DC农场的阿炳的言行对农场战友诠释了新中国联邦宣言——尊重个人、法治和信仰自由（二）](/content/gnews/6/README.md)
+### [DC农场的阿炳的言行对农场战友诠释了新中国联邦宣言——尊重个人、法治和信仰自由（二）](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
 
-### [郭文贵精品视频-2022年新中国联邦的战友们要谨记的《郭七条》](/content/gnews/7/README.md)
+### [郭文贵精品视频-2022年新中国联邦的战友们要谨记的《郭七条》](/content/gnews/13/README.md)
  ` cindy`
 
-### [校长认错：美国大学封杀“抵制北京冬奥”海报](/content/gnews/8/README.md)
+### [校长认错：美国大学封杀“抵制北京冬奥”海报](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线：退出北京冬奥会后，普京在做什么？](/content/gnews/9/README.md)
+### [秘翻在线：退出北京冬奥会后，普京在做什么？](/content/gnews/15/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [比特币一定会消失，未来的机会和市场只有我们](/content/gnews/10/README.md)
+### [比特币一定会消失，未来的机会和市场只有我们](/content/gnews/16/README.md)
  ` 雅典娜GNotes`
 
-### [日文网站上关于北京冬奥会开幕式上的中俄首脑的评说](/content/gnews/11/README.md)
+### [日文网站上关于北京冬奥会开幕式上的中俄首脑的评说](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆┃病毒影响零部件采购，亚洲供应链拟“可视化”](/content/gnews/12/README.md)
+### [中日财经爆┃病毒影响零部件采购，亚洲供应链拟“可视化”](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [Eglise医生](/content/gnews/13/README.md)
+### [Eglise医生](/content/gnews/19/README.md)
  ` 雅典娜GNotes`
 
-### [串珠572:可喜可贺青蒿素鸡尾酒疗法获突破性进展](/content/gnews/14/README.md)
- ` 郭爆料串珠`
+### [有声|新中国联邦让女性获得真正的平等与尊重](/content/gnews/20/README.md)
+ ` MOSREC`
 
-### [日本将大力推进第3剂疫苗接种](/content/gnews/15/README.md)
+### [有声|新中国联邦2022年的工作重点](/content/gnews/21/README.md)
+ ` MOSREC`
+
+### [有声|俄罗斯恢复波兰供气，俄欧关系开始缓和](/content/gnews/22/README.md)
+ ` MOSREC`
+
+### [有声|法院责令FDA于未来半年内公布辉瑞疫苗文件](/content/gnews/23/README.md)
+ ` MOSREC`
+
+### [有声|中共冬奥开幕式致数百名青少年演员染疫](/content/gnews/24/README.md)
+ ` MOSREC`
+
+### [有声|教练被隔离 花样滑冰运动员感到“茫然”](/content/gnews/25/README.md)
+ ` MOSREC`
+
+### [有声|世卫称57国出现Omicron变种，放松防疫还太早](/content/gnews/26/README.md)
+ ` MOSREC`
+
+### [有声|美国发布外国应用软件新政策再审抖音](/content/gnews/27/README.md)
+ ` MOSREC`
+
+### [韩国疫情或在2月底达到最高峰](/content/gnews/28/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|教练被隔离 花样滑冰运动员感到“茫然”](/content/gnews/16/README.md)
- ` MOSREC`
-
-### [有声|世卫称57国出现Omicron变种，放松防疫还太早](/content/gnews/17/README.md)
- ` MOSREC`
-
-### [有声|美国发布外国应用软件新政策再审抖音](/content/gnews/18/README.md)
- ` MOSREC`
-
-### [2021多灾多难，2022我们一定会赢](/content/gnews/19/README.md)
- ` 雅典娜GNotes`
-
-### [2022年会非常的精彩但也会有巨大的挑战（三）](/content/gnews/20/README.md)
- ` 雅典娜GNotes`
-
-### [中国男足为啥叫“白斩鸡”？](/content/gnews/21/README.md)
- ` 澳喜农场`
-
-### [数字货币的诞生是新人类一切的开始](/content/gnews/22/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [2022年会非常的精彩但也会有巨大的挑战（二）](/content/gnews/23/README.md)
- ` 雅典娜GNotes`
-
-### [比特币和以太坊没做到的事，喜币做到了](/content/gnews/24/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [Hpay给用户的是最干净直接的信和用，没有任何中间商](/content/gnews/25/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [韩国疫情或在2月底达到最高峰](/content/gnews/26/README.md)
- ` 墨尔本雅典娜农场`
-
-### [微软、英特尔、通用电气向中共军方及安全机构提供支持](/content/gnews/27/README.md)
+### [微软、英特尔、通用电气向中共军方及安全机构提供支持](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [雅典娜时报-第198期](/content/gnews/28/README.md)
+### [雅典娜时报-第198期](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
 
-### [巴布亚新几内亚总理在北京感染新冠](/content/gnews/29/README.md)
+### [巴布亚新几内亚总理在北京感染新冠](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【新闻速递】特鲁多的私人安保和阻击手布尔福德辞职](/content/gnews/30/README.md)
+### [【新闻速递】特鲁多的私人安保和阻击手布尔福德辞职](/content/gnews/32/README.md)
  ` 温哥华扬帆农场`
 
-### [乐购老板预测即将到来的通货膨胀将“挤压”英国穷人](/content/gnews/31/README.md)
+### [乐购老板预测即将到来的通货膨胀将“挤压”英国穷人](/content/gnews/33/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [不对抗中共，澳大利亚将“失去未来十年”](/content/gnews/32/README.md)
+### [不对抗中共，澳大利亚将“失去未来十年”](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [币圈新闻动态：喜币（HCN）价格目前在48.695 HDO](/content/gnews/33/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [2022年2月7日 晚 新中国联邦新闻、GTV新闻访谈简报](/content/gnews/34/README.md)
+### [2022年2月7日 晚 新中国联邦新闻、GTV新闻访谈简报](/content/gnews/35/README.md)
  ` 纽约香草山MOS01`
 
-### [樱花头条┃CDC终于承认自然免疫比疫苗更有效](/content/gnews/35/README.md)
+### [樱花头条┃CDC终于承认自然免疫比疫苗更有效](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [聚焦：通胀和无效市场是中共的两道鬼门关](/content/gnews/36/README.md)
+### [聚焦：通胀和无效市场是中共的两道鬼门关](/content/gnews/37/README.md)
  ` 丁过`
 
-### [中共国与世不同的行事规则让所有人都付出代价](/content/gnews/37/README.md)
+### [中共国与世不同的行事规则让所有人都付出代价](/content/gnews/38/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [贩卖妇女 | 中共治下的又一哀鸣，我们为自己而战](/content/gnews/38/README.md)
+### [贩卖妇女 | 中共治下的又一哀鸣，我们为自己而战](/content/gnews/39/README.md)
  ` YALUN 亚伦`
 
-### [美国为何领先世界及与中国的差距](/content/gnews/39/README.md)
+### [美国为何领先世界及与中国的差距](/content/gnews/40/README.md)
  ` NFSC News`
 
-### [郭文贵先生谈家庭教育](/content/gnews/40/README.md)
+### [郭文贵先生谈家庭教育](/content/gnews/41/README.md)
  ` NFSC News`
 
-### [美国经济至暗时刻过后 将迎来快速反弹](/content/gnews/41/README.md)
+### [美国经济至暗时刻过后 将迎来快速反弹](/content/gnews/42/README.md)
  ` NFSC News`
 
-### [中共做恶必将自食其果](/content/gnews/42/README.md)
+### [中共做恶必将自食其果](/content/gnews/43/README.md)
  ` NFSC News`
 
-### [秘翻在线：花旗预测软银抛售股份，阿里巴巴股价暴跌](/content/gnews/43/README.md)
+### [秘翻在线：花旗预测软银抛售股份，阿里巴巴股价暴跌](/content/gnews/44/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [澳洲防长警告盟友需挺身抵抗中共 否则会失去未来十年](/content/gnews/44/README.md)
+### [澳洲防长警告盟友需挺身抵抗中共 否则会失去未来十年](/content/gnews/45/README.md)
  ` 日本东京方舟农场`
 
-### [天津市民揭露政府防疫造假](/content/gnews/45/README.md)
+### [天津市民揭露政府防疫造假](/content/gnews/46/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [2/7/2022国际财经快讯：美国“印太经济架构”旨在制衡中共国；瑞士信贷银行面临洗钱指控](/content/gnews/46/README.md)
- ` 秘密翻译组金融团队`
 
 ### [新西兰财经G乐部-H-pay对数字货币及传统金融的影响](/content/gnews/47/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`

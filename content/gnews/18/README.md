@@ -2,33 +2,24 @@
 ---
 
 
-## 有声|美国发布外国应用软件新政策再审抖音
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1973344/)
+## 中日财经爆┃病毒影响零部件采购，亚洲供应链拟“可视化”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1973407/)
 
-配音：香草山巡管部 – 格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-2月2日，据当地多家媒体报道，美国联邦政府正在考虑给有潜在安全风险的手机应用程序制定新的审查规则。当中，具有中共背景的抖音程序被要求提供源代码和其他数据。
+撰稿：东京樱花团/文小白
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-774.png)图片来源于本文链接
+据2022年2月8日NHK消息，由于中共病毒（新冠病毒Covid-19）感染在全球的扩大，亚洲的零部件生产出现停滞，与家庭生活密切相关的如汽车、家用热水器等的生产受到极大的影响，甚至出现停产的事态。
 
-据悉，此项政策将赋予政府对那些可能造成国家安全威胁的应用程序更大监督权。为此，政府或相关部门需要根据一套风险标准来评估某应用程序是否为外国对手所拥有和控制，或者受其管辖和指示。其中，需要被评估的行为包括该软件是否可被用于监控或实行间谍活动，以及是否可以被用于军事、情报搜集或扩散活动。
+日本经济产业省（METI）决定与许多同日本公司开展业务的亚洲国家合作，建立一个新的系统，将亚洲的供应链“可视化”并识别风险。以便在发生传染病或重大灾难时将影响降到最低。
 
-早先，美国政府一直在评估抖音与中共的关系，加之该公司内部人员曾透露，抖音公司位于北京的总部对其产品拥有最终决策权，因此，川普政府先前一度尝试禁止抖音在美国的运行。据报道，目前，美国商务部的提案明确指出，抖音的母公司字节跳动总部位于中共国，其已经可以被看作是隶属于“外国对手”的应用软件。
+在某个国家或地区发生传染病或重大灾害扰乱供应链的情况下，目的是通过迅速确保替代供应来源将影响降到最低，同时通过灵活的采购来提高日本公司的竞争力，即使在正常时期也能应对客户需求的变化。
 
+此外，经济产业省（METI）将在今年春天成立一个由公司和专家组成的理事会，讨论该系统的细节，目的是将其作为一种机制，确认公司是否考虑到人权和环境问题。
 
+信息来源：[コロナで部品調達に影響 アジアでの供給網 “見える化”へ](https://www3.nhk.or.jp/news/html/20220208/k10013472301000.html)
 
-文字版原文：[美国发布外国应用软件新政策再审抖音](https://gnews.org/zh-hans/1962993/)
-
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

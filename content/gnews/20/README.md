@@ -2,24 +2,35 @@
 ---
 
 
-## 2022年会非常的精彩但也会有巨大的挑战（三）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1973317/)
+## 有声|新中国联邦让女性获得真正的平等与尊重
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1973351/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+配音：香草山巡管部 – 格格
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+在2月6日的大直播中，郭文贵谈到，徐州被拐妇女遭受的非人虐待，以及整个社会对犯罪行为的纵容。郭先生揭示了，中共国所谓妇女平等的假象，指出只有灭掉中共，妇女儿童才能得到真正的保护和尊重。
 
-我们要尽情的享受我们的劳动，劳动的结果和我们的汗水。一个更重要的事情，我们要坚持的“唯真不破”，什么事情都别忘了，只要能灭共和不灭共什么都不存在这条， 千万别忘了！你大卫看到这个不顺眼，小鸟看那个不顺眼，潇亦看着不过，这都不重要。昨天晚上我直播完了好多战友给我发信息，谁谁谁怎么样，我就发个信息就回去了，你说这大过年的，你说你啥时候你说这，刚刚那么好的节目，这个不对那个不好的，你说这干什么呢？是不是啊？我们少看别人哪不行，你就一个基础，对灭共有没有利，对灭共有利咱全干，对共没有利的一样都不干，没有什么对错，只有对灭共有没有利。啊，所以说兄弟姐妹，我今天坐在这里的时候跟大家这个，今天上午的上半场直播已经是到时间了，非常非常的开心，然后呢，每个人在画面上我们展示真实的自己，就像在刚才防木的很感人的话，还有法治萌芽，这个刚才2PAC,文科，小鸟， 你们说的每一句话都是发自内心的，但没有一个人编排，每句话都是未来，在几年后都会成为中国人和全世界了解中国人一个教科书（式）的题材啊，上天保佑所有的每个战友啊，再次祝大家新年快乐！
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2022年会非常的精彩但也会有巨大的挑战3.jpg)
-2022年1月1日文贵大直播
+几十年来，在中共国的农村就存在贩卖妇女儿童的现象，一直延续至今。中共国对女性的定位，就是生育工具和劳动力商品。改革开放之后，在中共的舆论控制下，营造出男女平等的假象中，女性似乎得到平等了。实际上，工作待遇和晋升机会，都无法和男性相比，明显存在歧视。中国女性从女童，到母亲，再到各种社会角色，从没被公平对待过。
 
-*发布：tianzhihuan*
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+郭先生为之动容，为之愤怒。他说，只有灭掉邪恶的中共，才能彻底解救被绑架被虐待的妇孺。而这正是爆料革命的使命和价值所在。
 
+在新中国联邦这个团队中，女性战友占了大半边天，以每天的勤勉工作，无私奉献，获得了平等和尊重。今年的Gclub年会，主题是，为中国女性发声。郭先生将准备演唱两首歌曲，一首献给中国女性，一首献给天下母亲。
+
+
+
+文字版原文：[新中国联邦让女性获得真正的平等与尊重](https://gnews.org/zh-hans/1971184/)
+
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

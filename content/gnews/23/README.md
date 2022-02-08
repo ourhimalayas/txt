@@ -2,24 +2,37 @@
 ---
 
 
-## 2022年会非常的精彩但也会有巨大的挑战（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1973295/)
+## 有声|法院责令FDA于未来半年内公布辉瑞疫苗文件
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1973348/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+配音：香草山巡管部 – 格格
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+2月2日，德克萨斯州北区地区法院签发的一份判决书，责令美国食品和药物管理局FDA在未来的半年内，必须按期公开长度超过33万页的辉瑞中共病毒疫苗的审批文件，直到全部文件完全被公之于众。
 
-你们千万千万记住，你们只能做到最好，一定要做到最好，因为欧洲对我们太重要了，而且接下来共产党在欧洲对我们的攻击，就像对待日本一样啊，这基本上是美国欧洲日本这些地方就是猛烈攻击的地方，要做好充足的心理准备。所以说兄弟姐妹2022年会非常的精彩啊，会有巨大的挑战。就凭今年年末共产党给送来的大礼，老天给我们送来的大礼， 2022年，我们绝对又是一个巨大的收获年，不仅是充满了希望，我希望是更多的是收获，但是我们一定要心里准备着收获之前，你是要付出汗水的啊，汗水啊，别搞错了啊，付出汗水的啊，你才能得到了眼睛的愉悦的水，还能得到下面高兴的啊，这个情不自禁的啊，兴奋之水你才能高起来，你才能高潮起来，你才能开嗨起来啊！
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2022年会非常的精彩但也会有巨大的挑战2.jpg)
-2022年1月1日文贵大直播
+此前，FDA在回应遵守“信息自由法案 (FOIA) ”的初审判决时，请求以每月 500 页的速度公布与辉瑞疫苗相关的数十万份文件。该判决书表示，法院收到FDA要求修改排期令的动议，也收到一份联合状况报告，阐明了原、被告双方商定的时间表。法院根据这份时间表，批准了部分动议。命令：
 
-*发布：tianzhihuan*
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+1、FDA的报告必须在每个月的第一个工作日提交；
 
+2、FDA在3月、4月，各提交1万页；
+
+3、FDA在5月、6月和7月各完成8万页；在8月完成7万页；此后在每个月的第一个工作日提交5.5万页，直到公布完毕。
+
+该判决书还允许提前完成公布页码数量，并且将每40行算作一页，而不是之前的20行算作一页。
+
+文字版原文：[法院责令FDA于未来半年内公布辉瑞疫苗文件](https://gnews.org/zh-hans/1967028/)
+
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
