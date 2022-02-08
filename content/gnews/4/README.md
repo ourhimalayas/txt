@@ -2,36 +2,34 @@
 ---
 
 
-## PayPal股价大跌的背后
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1975006/)
+## 中美初次建交的真实历史
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1975053/)
 
-撰稿: 银河系农场—骄子
+撰稿：香草山-新世界的一员
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/good-5.png)
-郭先生在2月4日大直播中谈到，最近Paypal股价大跌与Hpay上线没有任何关系，早在喜币准备诞生的时候，PayPal已经消失了。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-799.png)
+2月4日，郭文贵先生在直播中透露，中美两国第一次外交发生在1783年，形成大清朝的蒲安臣条约。 当时，美国人乘坐中国皇后号，给大清送去人参与白银，在广州登陆。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-800.png)
+美国人发现中国政府官员极为智慧，治理井井有条，与世界通商。女性勤劳智慧，素雅洁净。广州商业中心迎来客往，24小时开门，灯火辉煌，歌舞升平。 当时的中国人文明程度之高，是外国人心中的文明摇篮。
 
+美国人带回去的是大清朝的火药，茶叶和瓷器。美国人赚钱后，随即派出公使。第一个公使叫蒲安臣，条约的名称也因他而得名。此人精通中文，还请了两个中国女秘书。他是唯一一位既担任过美国驻华公使，又担任过中国使节的美国人。
 
-据郭先生透露，PayPal当年为了阻止战友投资G系列，无所不用其极，吞掉GTV5000万，三次拒绝Gfashion付款，不仅不退钱还要收取高昂的手续费，黑社会也没这么黑。PayPal背后有共产党的投资，根本没有任何隐私保护，其科技性也大大落后，从根本上来说是一个带着脚镣的支付方式，必须通过中转，无法保证即刻到账，付款一点都不自由，有些方面还比不上国内的微信和支付宝。
+抚今追昔，中美关系走到今天的地步， 是中共独裁野心，邪恶扩张导致的结果。中国老百姓被蒙骗无知，一旦醒来就会发现，中美两国的友好往来渊源流长。
 
-郭先生最后强调，反观Hpay无论是从科技上，还是从客户隐私保护，安全性，更重要的是付款的自由度，点对点且秒到，超出PayPal不是一点半点。数字货币时代的浪潮一定会淘汰PayPal这样的流氓支付方式。
-
-新闻来源：[2022年2月4日 文贵大直播](https://gtv.org/video/id=61fd1a6596ba5d73e0c28b83)
+新闻链接：[2022年2月4日 文贵大直播](https://gettr.com/post/psg0ix4b78)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-23.jpg)
 
-总编/编辑： 文特
+总编：文真
 
 校正/发稿：浪迹天涯
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/good-5.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

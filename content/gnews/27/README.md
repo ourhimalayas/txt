@@ -2,103 +2,24 @@
 ---
 
 
-## 沙克·奥尼尔对强制疫苗发表意见
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1974433/)
+## 日本《自卫队法》修正案获批，意指共台开战可营救台湾人民
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1974555/)
 
-[https://gtv.org/video/id=6201dc6b585ecc15d73ed4c0](https://gtv.org/video/id=6201dc6b585ecc15d73ed4c0)
+撰稿：东京樱花团/风翼
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-75.png)图片来源于网络
+据JIJI.COM媒体报道，日本政府8月8日批准了一项自卫队法修正案草案，允许自卫队飞机在外国发生灾难、骚乱或其他紧急情况时仅运送外国国民。并表示还将修改确保运输安全的具体要件和要求。
 
-Shaq O’Neal
-沙克·奥尼尔
+防卫大臣岸信夫在关于《自卫队修正案》的新闻发布会上强调，拟议的修正案，在未来的各种海外紧急情况下，能够更迅速和灵活地进行运输。并举例去年8月塔利班在阿富汗夺取政权时，政府向该地区派遣了自卫队飞机，但只有一名日本人撤离，而且大多数申请者是在日本大使馆工作的阿富汗人，但因自卫队法的盲点，而无法执行更人道的救助。
 
-Look, I encourage everybody to be safe and take care of your family
-听着，我鼓励大家注意安全并照顾好你的家人
+从日本首相岸田文雄对与台湾相近的与那国岛进行的模拟难民接收训练，到积极修改自卫队修正案，不难看出是对中共如侵犯台湾所作的一系列准备。
 
-I do, but there’s still some people that don’t wanna take it
-我接受疫苗，但仍有一些人不想接受它
+信息来源：
 
-And you shouldn’t have to be forced to take something you don’t want
-你不应该被迫接受你不想要的东西
+[緊急時、外国人だけの輸送可能に　自衛隊法改正案を閣議決定](https://www.jiji.com/sp/article?k=2022020800136&amp;g=pol)
 
-Turner
-特纳
-
-I don’t think people are being forced to take …
-我不认为人们是被迫接受的……
-
-Well, there are some …
-嗯，有一些……
-
-There are, I mean, listen we have a mandate at CBS
-我的意思是，听着我们在CBS有强制
-
-Shaq O’Neal
-沙克·奥尼尔
-
-That’s forced
-那是强迫
-
-Turner
-特纳
-
-We have a mandate at CBS
-我们在CBS有强制
-
-But my, but my point …
-但是我的，但是我的观点……
-
-Shaq O’Neal
-沙克·奥尼尔
-
-That’s forced
-那是强迫
-
-Turner
-特纳
-
-where I wholeheartedly …
-我全心全意地…
-
-Shaq O’Neal
-沙克·奥尼尔
-
-That’s forced
-那是强迫
-
-Turner
-特纳
-
-No, it’s not forced
-不， 它不是强迫
-
-Shaq O’Neal
-沙克·奥尼尔
-
-It is forced
-它是强迫
-
-because if the man don’t take it, the man gonna get fired
-因为如果这个人不接受，这个人就会被解雇
-
-* * *
-
-Date:02/04/2022
-原视频标题: Shaq O’Neal weighs in on vaccine mandates
-沙克·奥尼尔对强制疫苗发表意见
-原视频日期：2022/02/04
-原视频链接: **[https://twitter.com/ginacarano/status/1489421001918083073?s=24](https://twitter.com/ginacarano/status/1489421001918083073?s=24)**
-任务编号：3666
-视频时间段 : 0:00-0:27
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场- 文新
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,39 +2,21 @@
 ---
 
 
-## 新州首席卫生官表示以后可能会建议第四针
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1974901/)
+## 七哥的三次阳痿（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1974940/)
 
-翻译&评论：金生水
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-77.png)图片来自网络
-澳大利亚媒体《ABC News》近日报道，新南威尔士州首席卫生官表示，可能会向公众推荐额外的新冠疫苗剂量，因为疫情还在持续。
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-凯丽·钱特强调，普通人在接种3针新冠疫苗之前，免疫力低下的人在接种4针疫苗之前，不应该认为自己已经有了“最佳保护”。
+*发布：陶子*
 
-她说，在昨天下午 4 点之前的 24 小时内死于新冠的 18 人中，只有 3 人接受了加强注射。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-“我要向民众说，我们在过渡期间，疫情还在持续。”钱特说。
-
-“我们可能会在未来几个月根据 ATAGI（澳大利亚免疫技术咨询小组）的指导建议施打额外的新冠疫苗。
-
-“与其说我们（的计划）是一步到位，不如说我们是在不断学习、不断应对挑战”。
-
-“但是新冠疫苗是有用的。新冠疫苗非常有效。所以，请你们出门，去打加强针”。
-
-在新南威尔士州的最新死亡病例中，有 12 名男性和 6 名女性。
-
-2人60多岁，5人70多岁，6人80多岁，5人90多岁。
-
-新南威尔士州卫生局表示，年龄较大是导致新冠严重疾病和死亡的重要风险因素，尤其是在与严重的预先存在的健康问题相结合的情况下。
-
-3 人接种了 3 剂新冠疫苗，10 人接种了 2 剂新冠疫苗，5 人未接种新冠疫苗。
-
-一切都是很早以前就计划好了的，那就别遮遮掩掩，从一开始就订购了人均十针的量，所以别好像每次推广前都经过了深思熟虑似的。目前官方的说法一直是接种新冠疫苗可以防重症，所以在推第四针之前能不能先解释一下为什么几位完全接种新冠疫苗的人仍然死亡了呢？
-
-参考链接：
-
-[https://www.abc.net.au/news/2022-02-08/nsw-covid-update-18-deaths-9690-cases/100812434](https://www.abc.net.au/news/2022-02-08/nsw-covid-update-18-deaths-9690-cases/100812434)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

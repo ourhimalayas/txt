@@ -2,99 +2,96 @@
 ---
 
 
-## 中共利用奥运会作为宣传工具，来宣扬维吾尔人在中国与其他人一样受到对待的谎言
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1974345/)
+## 沙克·奥尼尔对强制疫苗发表意见
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1974433/)
 
-[https://gtv.org/video/id=6201db32585ecc15d73ed443](https://gtv.org/video/id=6201db32585ecc15d73ed443)
+[https://gtv.org/video/id=6201dc6b585ecc15d73ed4c0](https://gtv.org/video/id=6201dc6b585ecc15d73ed4c0)
 
-Translator
-翻译
+Shaq O’Neal
+沙克·奥尼尔
 
-I’m Uyghur，over the last three years
-我是维吾尔人，在过去的三年中
+Look, I encourage everybody to be safe and take care of your family
+听着，我鼓励大家注意安全并照顾好你的家人
 
-I was taken to China’s government detention centers three times
-我被三次带到中国政府的看守所
+I do, but there’s still some people that don’t wanna take it
+我接受疫苗，但仍有一些人不想接受它
 
-Now I would like to tell you about what I experienced in these camps
-现在我想告诉你我在这些营地的经历
+And you shouldn’t have to be forced to take something you don’t want
+你不应该被迫接受你不想要的东西
 
-I was arrested at the airport and my two month old triplets were taken away
-我在机场被捕并且我的两个月大的三胞胎被带走
+Turner
+特纳
 
-The officers handcuff me, put a dark sack over my head
-警察给我戴上手铐，在我头上套上一个黑布袋
+I don’t think people are being forced to take …
+我不认为人们是被迫接受的……
 
-and took me to a detention center
-并带我去了看守所
+Well, there are some …
+嗯，有一些……
 
-My oldest son had died in their hands
-我的大儿子死在他们手中
+There are, I mean, listen we have a mandate at CBS
+我的意思是，听着我们在CBS有强制
 
-In April 2017, I was taken to a detention center for the second time
-2017年4月，我第二次被带到看守所
+Shaq O’Neal
+沙克·奥尼尔
 
-I was interrogated for four days and nights without sleep
-我被审问了四天四夜，不眠不休
+That’s forced
+那是强迫
 
-We had to sing songs hailing the Communist Party
-我们不得不唱歌颂共产党的歌
+Turner
+特纳
 
-we had to repeat in Chinese “ Long live Xi Jinping”
-我们不得不用中文重复“习近平万岁”
+We have a mandate at CBS
+我们在CBS有强制
 
-Anyone who could not memorize a book of slogans and rules within 14
-任何不能在14 天内记不住口号书的人
+But my, but my point …
+但是我的，但是我的观点……
 
-days, would be denied food or beaten
-将被剥夺食物或殴打
+Shaq O’Neal
+沙克·奥尼尔
 
-I also experienced torture in a “tiger chair”
-我也经历过“老虎凳”的折磨
+That’s forced
+那是强迫
 
-The second time I was detained
-我第二次被拘留
+Turner
+特纳
 
-I was taken to a special room and a place in a highchair
-我被带到一个特殊的房间和有一个高脚椅的地方
+where I wholeheartedly …
+我全心全意地…
 
-The guards put the helmet on my shaved head
-警卫把头盔戴在我剃光的头上
+Shaq O’Neal
+沙克·奥尼尔
 
-Each time I was electrocuted, my whole body would shake violently
-每次我被电击全身都会剧烈颤抖
+That’s forced
+那是强迫
 
-And I could feel the pain in my veins
-我能感觉到我血管里的疼痛
+Turner
+特纳
 
-I thought I would rather die than go through this torture
-我以为我宁愿死也不愿经历这种折磨
+No, it’s not forced
+不， 它不是强迫
 
-I begged them to kill me
-我求他们杀了我
+Shaq O’Neal
+沙克·奥尼尔
 
-I still remember the words of the officers
-我还记得那些警察的话
+It is forced
+它是强迫
 
-And I asked what my crime was
-我问我犯了什么罪
-
-They said: “being a Uyghur is a crime”
-他们说：“做为一名维吾尔人是一种犯罪”
+because if the man don’t take it, the man gonna get fired
+因为如果这个人不接受，这个人就会被解雇
 
 * * *
 
-Date:02/06/2022
-原视频标题: The CCP is using the Olympics as a propaganda tool to push the lie that Uyghurs are treated like everyone else in China
-中共利用奥运会作为宣传工具，来宣扬维吾尔人在中国与其他人一样受到对待的谎言
-原视频日期：2022/02/06
-原视频链接:https://twitter.com/morganortagus/status/1489782348401061895?s=24
-任务编号：KE386（3683）
-视频时间段 : 0:00-1:42
+Date:02/04/2022
+原视频标题: Shaq O’Neal weighs in on vaccine mandates
+沙克·奥尼尔对强制疫苗发表意见
+原视频日期：2022/02/04
+原视频链接: **[https://twitter.com/ginacarano/status/1489421001918083073?s=24](https://twitter.com/ginacarano/status/1489421001918083073?s=24)**
+任务编号：3666
+视频时间段 : 0:00-0:27
 英听校：洛杉矶盘古农场 – Layka
 翻译：洛杉矶盘古农场 – Layka
 翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-青梅煮酒
+字幕+视频制作：洛杉矶盘古农场- 文新
 审片：洛杉矶盘古农场-银龙
 发布：洛杉矶盘古农场-恩典
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)

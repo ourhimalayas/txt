@@ -2,34 +2,36 @@
 ---
 
 
-## 短视频：我们不需要那该死的疫苗！
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1974633/)
+## CNN现在已经彻底崩溃
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1974719/)
 
-翻译：不要代表我Kari
-校对：枳实
-剪辑字幕：qingjing
- 编辑：文泓
+编译： Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-14.jpg)图片来源：republicbrief.com
+正如川普总统所预测的那样，CNN 在彻底的耻辱中完成了“一夜暴富”的旅程。然而，主流媒体将完全忽略川普及其支持者，在推动不受左翼宣传欢迎的问题上是正确的。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/811.png)图片来源：视频截屏
+正如 《国会山报》(The Hill) 报道的那样，这可能是“川普诅咒”，但 CNN 长期以来一直在走向灾难，尽管 CNN初创是还很不错。
 
+“直到 2002 年，在有线电视新闻竞赛中CNN 一直位居榜首排名第一。但竞争永远结束了CNN的主导地位，竞争在之前是不存在的，主要以福克斯新闻的形式，和在较小程度上的MSNBC。据 The Hill 周一报道，尽管有收视结果，但 CNN 继续将自己标榜为一个可信的、以事实为先的诚信网络，该网络严重依赖可靠的报道，并通过“拉里·金秀”(Larry King Live) 和“交火”（Crossfire）等节目，混合观点和信息的娱乐 。
 
-谢谢你，作为一个非裔美国人，我来自对疫苗最为犹豫的群体（指非裔群体），来到这里参加集会，事实上，唯一接近疫苗犹豫的另一个群体的正是我们生物医学科学博士们。
+在最近的记忆中，由杰夫·扎克领导的 CNN ，只不过是左翼的不断攻击的机器，只专注于诋毁川普，并试图边缘化和打击他的支持者。
 
-因为我们知道生命是复杂的，对于很多事情我们一无所知，我们没有傲慢到认为我们的科学可以和上帝相提并论。
+现在，扎克和整个新闻网络都看到了疏远大量人群的后果。
 
-非裔美国人在这个国家被边缘化了。而我们实际上已经被当作了试验对象。而布朗博士的演讲我也认真做了研究，但他所提到的并没有阐明整个事情。
+扎克试图引导有关 COVID 病毒的内容，是为了提拔激进的左翼纽约州长安德鲁·库莫（Andrew Cuomo），后者后来被迫下台：
 
-他谈到了鲍比·肯尼迪给他带来的疫苗副作用启示，在2002年，美国疾病控制与预防中心（CDC）做了一个研究，你知道，自闭症研究，接种麻疹、腮腺炎和风疹MMR三联疫苗是否会导致自闭症？
+为了证明 CNN 已经彻底垮台，孔查（Concha）写道：
 
-视频链接：[Zach (nine meals from anarchy) 在 Twitter: “Dr. Christina Parks speaks at #DefeatTheMandatesDC on behalf of African-Americans. “We don’t want their f\*cking vaccine!!” 🔥 https://t.co/YFaUQTruq0” / Twitter](https://twitter.com/just___zach/status/1485396249843056646?s=21)
+“我希望看到 CNN 恢复到最初的那种新闻业，并拥有真正的记者，这将是独特而令人耳目一新的，”马龙最近在 CNBC 播出的一次采访中说。
 
-发布：文泓
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**参考资料：**[republicbrief][CNN’s collapse is now complete](http://republicbrief.com/cnns-collapse-is-now-complete/)
+
+* * *
+
+*审核：文乐
+校对：花羽
+发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH..jpeg)
 
  
 

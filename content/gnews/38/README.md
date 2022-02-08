@@ -2,46 +2,35 @@
 ---
 
 
-## 短视频：伊维菌素、青蒿素、绝对能铲除疫苗
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1974030/)
+## 美国法律草案旨在遏制中国和俄罗斯的影响力
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1974144/)
 
-翻译：Julia Gao
-校对：精靈藍
-剪辑字幕：清净
-编辑：文泓
+信息来源： 德国世界报
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/2-1-2.png)图片来源：视频截屏
+翻译/整理： 意大利罗马达芬奇农场 Shuizhuyu
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Wohnen-in-der-Grossstadt-Mexiko.jpg)
 
 
-我说世界在三到五年内得癌症的（因疫苗的）和因疫苗死亡的，对人类的影响绝对就像当年恐龙灭绝时候那么大，这不是开半点玩笑的。
+图片来源： DPA
 
-兄弟姐妹们，可以再次重申，你没有打疫苗有多么的伟大，绝对是你自己一生中最正确的决定。
+美国国会关于拉丁美洲问题的两个主要声音已经提出了两党立法，以加强美国在该地区的合作，以对抗中国和俄罗斯在该地区日益增长的影响力。
 
-When I say that the COVID vaccines will result in cancer and death worldwide within three to five years, its impact on humanity will be as great as the extinction of the dinosaurs. This is not a joke at all.
+佛罗里达州共和党参议员、情报委员会高级成员马尔科·卢比奥和参议院外交关系委员会主席鲍勃·梅南德斯周一提出了一项法案，他们称之为《西半球安全战略法案》。该法案旨在对抗中国和俄罗斯在拉丁美洲的“有害和恶意影响”。
 
-Fellow brothers and sisters, I would like to reiterate again how great it is that you are not vaccinated.
+参议员们认为，北京和莫斯科威权政府的“破坏稳定”影响对美国的国家安全利益和该地区的福祉构成了独特的威胁。
 
-You have certainly made the best decision of your life.
+如果获得通过，该法案将要求国务院和国防部在 180 天内共同提出一项战略，以增加在西半球针对毒品贩运和跨国犯罪等领域的外交接触和安全援助。具体步骤将包括增加与伙伴国家的军事演习。
 
-即使打了两针，你吃青蒿素、伊维菌素一定会帮你干掉（疫苗病毒）；
+马尔科·卢比奥说“在我们地区，没有比俄罗斯和中国对拉丁美洲和加勒比地区日益增加的干预更大的威胁了，”。鲍勃·梅南德斯补充说：“美国必须在加强与美国民主国家的安全伙伴关系方面采取战略性和积极主动性。”该法案承认拉丁美洲的地缘政治重要性。
 
-伊维菌素现在能证明，真的几乎是百分之百的管用，只是管用到什么程度；
+近年来，中国已取代美国成为拉美多个国家的主要贸易伙伴，同时为包括推出移动网络在内的大量基础设施投资提供资金。美国认为这是一种安全风险。
 
-青蒿素百分之百管用，只要吃对药，伊维菌素、青蒿素绝对能铲除疫苗，一定要传播，而且绝对能救你的命。
+俄罗斯是古巴、尼加拉瓜和委内瑞拉的主要军事支持和武器供应国——这三个美国在该地区的主要敌人被几代美国政客称为华盛顿的后院。
 
-Even though some people have been double-vaccinated, artemisinin and ivermectin will help to kill the poisonous substances stored in your body after the vaccination.
+🔗[美国法律草案旨在遏制中国和俄罗斯的影响力](https://www.welt.de/politik/ausland/article236750269/USA-Gesetzentwurf-will-Chinas-und-Russlands-Einfluss-eindaemmen.html)
 
-It has now been proved that ivermectin is almost 100 percent effective in dealing with the symptoms caused by the vaccines, however differing in its levels of effectiveness depending on the severity of the symptoms. Artemisinin works to treat people with vaccines 100 percent of the time, if you take the right medicine. Both ivermectin and artemisinin can eradicate the poisonous effects of the vaccines, and this information must be spread widely as it can save people’s life.
-
-视频链接：郭先生GTV盖特直播
-
-发布：文泓
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+编辑发布： Shuizhuyu
 
  
 
