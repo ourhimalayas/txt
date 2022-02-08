@@ -2,123 +2,45 @@
 ---
 
 
-## 未来中共国会有2亿人左右死于毒疫苗，一半房子将无人居住
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1972541/)
+## 有声|中共统治下的人间惨剧
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1972607/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/apa1d-0xvla.jpg)
-[https://gtv.org/video/id=62014d33585ecc15d73eab32](https://gtv.org/video/id=62014d33585ecc15d73eab32)
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+江苏丰县“八个孩子妈妈被虐待精神失常疑遭拐卖事件”持续在社交媒体发酵，阅读量高达近16亿次。但除官方通报与一众自媒体外，权威机构媒体——特别是以调查或深度报道见长的媒体，几乎集体失声。 由此1988年一个叫武勤英记者经过亲自查证撰写了《女研究生如何被拐骗?》——采访《沉重的思考——对11位女研究生被骗案的追踪采访》被再次挖掘，出现在公众面前。
+这是一篇在全国曾经引起过轰动的报道，一个女研究生因为撰写论文去农村采风，体验，被人贩子拐卖以后，被锁在屋中71天，屋里的床没有床板，是用高粱秆当床铺，上面铺了一床旧粗布单子。屋里没有一张桌子，一块破水泥板下面垫上一摞土坯就是一张桌子了，桌子上荡满了灰尘，来自上海的女研究生就在这样的环境下，被逼着与一个大字不识的、满脸萎琐的、窝窝囊囊的老农民结婚，她当然要拼死相争，就遭到了村里人的群殴，身强力壮的几个汉子揪住她的头发，扒掉她的鞋子，把她强行摁到床上强行进行奸污之事。
+悲剧的发生竟然是一个纯真、善良、毫无识别能力的高级知识分子遇见了一个因贫困而变的邪恶，无知加贪婪、就铤而走险的这么一个文盲的不法分子。无本钱的利润驱使下演绎出的这一个难以想象，是任何人听了都感觉激愤，撕心裂肺、痛不欲生的人间悲剧。
+花2480元就能买到一个水灵灵的大姑娘，在如此明显犯罪的实施中，买家和卖家竟然没有任何阻碍，而且在反抗时还有帮凶，逃跑就被锁住，这是有法律有法治的社会吗，这是中国共产党带来的惨无人道的流氓社会。
+如果买卖婚姻是被例入为犯罪，是必须被判重刑的话，是可以杜绝的，如果不是当地政府部门睁一只眼闭一只眼，是不可能被非法长时间关锁的，如果中共选的村干部但反有一点点人性，就不可能出现村里几个人合帮的奸污罪事，如果农村不是如此贫困如此封闭，就不会有如此惨剧的发生，农民在文化、经济、精神的三重贫困下造成的愚昧，犯下了这惨无人道的罪恶。
+是中共践踏文化，控制经济，法律虚设，导致悲剧重复重演，中共不灭，地狱之门永无法关闭。
+据武勤英当时查看的郓城县公安局1988年《关于打击拐卖人口、解救妇女儿童的情况报告》里面有这样的记载：
+在我县被拐卖的妇女中，有9名因抗拒成婚，不堪受辱而自杀。”在大人乡徐庄村、王井乡王皮村，两名少女都是在卖身的5天之内自杀的。至今尚未查明死者的身份和地址。
+一位怀孕7个月的外地妇女来菏泽看牡丹花会，被犯罪分子骗卖。因不同意与买主同居，而被买主兄弟数人扒光衣服按在床上，当众让买主强奸。
+郭屯镇傅宦屯村傅东良，男30岁，以800元钱买一11岁的幼女(四川人)同宿奸淫半年之久。”
+由于拐卖人口的犯罪活动，杀人、伤害、强奸等刑事案件不断发生。杨庄集乡程屯村一男青年将买来不从逼婚的‘媳妇’连砍7刀，造成重伤。”
+被拐卖女方不从逼婚而被转手倒卖的案件也时有发生。湖北省红安县一38岁妇女被拐卖到郓城后，半年时间被倒卖8次，每次转卖都抬高价格，由最初的700元抬到1700元。
+这份公开的报告上记载着这样的数字：自1978年至今(1988年)，共有2700余名外地妇女流入该县。其中14岁以下16名，14—18岁75名，18岁以上1900余名。其中未婚妇女占70%，已婚的占30%。
+而这些数据还是几十年前的数据，在伟光正的党旗下，贩卖人口的案例一路有增无减，如今怕是连真实数据都未必能得到。
+针对如此的社会丑恶现象，竟然数十年不曾改变过，多少家庭因此家破人亡，良知的笔尖流淌出来的是带血的笔锋，唯有发挥出匕首投枪般的锋利，才是射向共产党心脏的子弹！
 
-**郭文贵**
-Miles Guo
+文字版原文：[中共统治下的人间惨剧](https://gnews.org/zh-hans/1968025/)
 
-在今天的疫苗灾难之前，你知道我最大的痛苦是什么吗？
-Facing the vaccine disaster today, do you know what has been my biggest suffering?
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-中国的男人能不能有一次当回男人？
-All men in China, could you be the real men once?
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-你挑起一个当爹的、当男人的基本的一个责任
-To assume the basic responsibility of being a father and a man
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-有基本的脑子判断不要让你的孩子打了疫苗
-to have a basic knowledge to judge and not let your children get vaccinated
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-打了疫苗吃青蒿素、吃伊维菌素
-If they have been vaccinated, have them take Artemisinin or Ivermectin
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-或者你有什么这素那素、你能让孩子不死的素
-or whatever medicines that you have to keep them alive
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-非得要看到自己家人死去
-Why do you have to wait until family members die？
-
-然后你抹几天眼泪
-then you cry a couple of days
-
-然后再给自己找理由解脱吗？
-and then find an excuse for yourself to be relieved?
-
-七哥真的这些天最大的痛苦莫过于如此
-All these are the biggest suffers that I have had during these days
-
-就看着我们同胞在文化大革命饿死
-I have watched our brothers and sisters starve to death during the Cultural Revolution
-
-生产队群居
-the production teams lived in groups
-
-三反五反
-the Three-anti Campaign (1951) and Five-anti Campaign (1952)
-
-然后搞土改
-then the Land Reform Movement
-
-杀了两百多万地主
-executed more than two million landlords
-
-结果死了6千多万老百姓
-and ended up killing more than 60 million ordinary people
-
-文化大革命把中国老祖宗的五千年的一切毁于一旦
-The Cultural Revolution had destroyed everything at once in the five thousand years of China’s ancestors
-
-然后还享受其中
-They (the CCP) even enjoyed all these
-
-然后是八九六四
-Then, the June 4th, 1989 (Tiananmen Square protests and massacre)
-
-然后计划生育死了几亿人（胎儿）
-and then the Family Planning that killed hundreds of millions (fetuses)
-
-现在又在搞这个疫苗，结果你真的打了
-And now they are doing this vaccine scam, and it turns out you are vaccinated
-
-国内真的是我现在告诉大家
-I’ll tell you now that domestic (China) is really…
-
-国内的房子未来我这觉得，可能真的一半的房子没人住
-I think that half of the houses in China may be unoccupied in the future
-
-一半的房子没人住
-Half of the houses in China would be unoccupied
-
-中国真的可能要死2亿人左右, 要死2亿人左右！
-China really may have about 200 million people die, about 200 million people have to die
-
-那是个什么样的灾难结果呀？
-What kind of catastrophe outcome is that?
-
-哎呀
-My God!
-
-七哥说实在话心很大
-I’m telling the truth, I have a strong heart
-
-但到那个时候七哥真是能受得住吗？你想想
-but think about it, could I really bear it when that moment comes?
-
-Date: 02/01/2022
-原视频标题:
-历数中共斑々劣迹，三反五反、土改、大跃进、大饥荒，让千百万人成了孤魂野鬼；文化大革命把老祖宗五千年的一切毁于一旦；计划生育弄死了几亿胎儿；8964及香港运动，镇压了多少渴望民主自由的青年；如今的强制疫苗，更是蒙骗杀戮百姓于无形。未来中共国会有2亿人左右死于毒疫苗，一半的房子将无人居住！
-The CCP’s bad deeds: the Three Antis and Five Antis, Land Reform, the Great Leap Forward, the Great Famine, the Cultural Revolution, the Family Planning, the June 4th movement, the Hong Kong movement, and the COVID vaccine disaster. The CCP China will be about 200 million people dying and leaving half of the houses unoccupied in the future.
-
-**原视频链接**: [https://gettr.com/post/prs3rmcce3](https://gettr.com/post/prs3rmcce3)
-
-原视频日期：2022/01/30
-原视频链接: https://gettr.com/post/prs3rmcce3
-任务编号：KC439（3652）
-视频时间段 : 0:00-02:01
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译: 洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-文新
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -2,22 +2,89 @@
 ---
 
 
-## 【秘翻在线】新泽西州州长将结束学校口罩规定
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1971954/)
+## 全球疫情更新（毒针的黑色幽默）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1972219/)
 
-**撰稿：Grace**
+**整理/编辑：枳实**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-755.png)图片：雅典娜农场设计组 精灵蓝
+雅典娜疫情更新（2022年 2月7日）
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-07-at-3.47.40-PM.jpeg)图片来源：bronx.news 12
-据 Insider Paper 2月7日报道，《纽约时报》称，新泽西州州长菲尔·墨菲（Phil Murphy）预计将在3月取消州内学校对学生和员工的口罩规定。
+[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-这是自中共病毒COVID-19大流行开始以来，新泽西州首次放宽其学校口罩规定，表明该州对病毒的看法发生了转变。
+**一，全球疫情基本数据**
 
-据报道，周日，该州记录了大约1600个新病例，与一个月前33000个病例的高峰相比，有了明显的下降。
+感染总数：394,598,105（日新增2,842,882人，14天增幅-14%）
 
-关于在学校戴口罩的辩论一直是一个有争议的问题。报道称，去年夏天，在新学年开始之前，一些地区，包括墨菲的家乡米德镇（Middletown）提出了自己的口罩规则，挑战州长的强制口罩规定。
+死亡总数：5,737,372（日新增10,597 人，14天增幅 +32%）
 
-**新闻来源： ****[New Jersey Gov. Murphy to end school mask mandate](//054F5841-01B1-4F6A-84E2-77C1443F4C0F/New%20Jersey%20Gov.%20Murphy%20to%20end%20school%20mask%20mandate)**
+**二，全球“疫苗”毒针统计数据**
+
+“疫苗”毒针注射总数：102亿
+
+完全“接种”：42亿人
+
+完全“接种”百分比：53.9%
+
+**三，澳洲疫情和“疫苗”数据**** **
+
+感染总数：2,752,238（今日新增23,169人）
+
+死亡总数：4,247人（今日新增 46人）
+
+每万人感染人数：1067.3506人
+
+“疫苗”毒针注射总数：51,152,055（今日新增70,718  针）
+
+完全“接种”：19,321,803人
+
+第二针“接种”百分比：78.9%
+
+16岁以上人口接种至少一剂疫苗的比例：&gt;95%
+
+16岁以上人口接种至少两剂疫苗的比例：93.7%
+
+加强针总数：8,997,661（日新增：56,141针）
+
+**四，毒针的黑色幽默**
+
+“疫苗”毒针给人们带来了无尽的眼泪和死亡。各国政府利用大疫情带来的额外公权力大搞强制疫苗，尤其是利用疫情限制措施强迫孩子们注射毒针之时，本应针砭时弊的喜剧演员没有嘲讽这些，却不幸被迫用生命来嘲讽了“安全”“有效”的毒针。
+
+3周前刚刚接受加强针注射的美国喜剧演员希瑟·麦克唐纳（Heather McDonald）[周六晚上在一场单口喜剧表演中晕倒后导致颅骨骨折而住院](https://stevekirsch.substack.com/p/did-the-covid-vaccine-cause-heather)。她当时正在打趣：[“我接种了，打完双针，又打了加强针……还打过流感疫苗，也打过带状疱疹疫苗，至今还没有得过COVID，耶稣最爱我！”](https://thecovidworld.com/comedian-heather-mcdonald-collapses-on-stage-fractures-skull-after-saying-im-vaxxed-double-vaxxed-boosted-and-flu-shot/) ，话音未落，她就晕倒了。
+
+后来她在病床上，向她的粉丝透露，她这辈子从未晕倒过。医生也没有找到原因，她演出前全天并没有饮酒。但是我们都知道，这种晕倒甚至猝死正是毒疫苗副作用的一种常见的临床表现。
+
+就在不到24小时之内，另外一位戏剧脱口秀女演员，同样是打了第三针毒针的切尔西·汉德勒（ [Chelsea Handler](https://www.yahoo.com/entertainment/chelsea-handler-hospitalized-cancels-comedy-shows-173233139.html)）也倒下了，她不得不住院，并取消了其余的节目。她的节目叫做“接种了，长角了”（ *Vaccinated and Horny，*这个节目名称从字面上看，意在嘲讽一些“反疫苗”者，因为他们认为接种基因治疗“疫苗”，是将异种基因混入人类基因组，如同被印上了魔鬼的印记，兽角在基督教文化中即代表魔鬼的形象）。
+
+这难道不是很讽刺吗？ 不管大众如何听信大媒体和政府的虚假宣传，纷纷继续注射那些毒针，最终这些摆在眼前，发生在身边的事实会让绝大多数能存活下来的人们觉醒，意识到这些所谓的“疫苗”，其实是后患无穷的毒针。
+
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+
+数据来源：
+
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+
+[covidlive.com.au](https://covidlive.com.au/)
+
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：Lish
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
 
  
 
