@@ -2,42 +2,30 @@
 ---
 
 
-## FB再降5% 现在称之为元空间也无济于事
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1976461/)
+## 今日盖特大V推荐 — Natalie Winters（娜塔莉·温特斯）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1976598/)
 
-编译： Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3427-a7x16-do3qr-7.jpg)
+**盖特链接**：[https://gettr.com/user/nataliegwinters](https://gettr.com/user/nataliegwinters)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unknown-2.jpg)图片来源：creativedestructionmedia.com
+**娜塔莉·温特斯自述：**
 
-我们经常写到，在过去的几年里，看着大型科技硅谷真的在摧毁它的客户群是多么令人惊奇。Facebook、Twitter、谷歌、LinkedIn 等都进行了全面的共产主义审查，这实际上迫使一半的国家离开他们的平台，永远不会回来。
+**《国家脉搏》调查记者**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/muo.jpg)图片来源：网络
+**娜塔莉·温特斯简介：**
 
-现在，“我的空间”MySpace 的小鸡要回家栖息了。
+娜塔莉·温特斯（Natalie Winters）是美国《国家脉搏》调查记者，史蒂芬·班农战斗室嘉宾，新中国联邦支持者。
+2021年6月4日“新中国联邦一周年”庆典上，娜塔莉·温特斯发表演讲时表示：灭共至关重要；只有灭共才能查清病毒真相，并改变对精英而非老百姓有利的国际体系（[https://youtu.be/wqDLtmXSuYw](https://youtu.be/wqDLtmXSuYw)）。
 
-上周五，Facebook（现在叫做元空间 ）承认不可避免，并报告其在美国的用户群在第四季度下降了 100 万。该公司的大部分广告收入来自北美。
+**郭文贵先生评价她是美国新一代的希望。**
 
-周五收盘后，该股下跌了约 23%。
+编撰：洛杉矶盘古农场 — 心照
+校审：洛杉矶盘古农场 — 郭友(文苏)
+发布：洛杉矶盘古农场 — 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-另一点，美国人需要明白的是，这些平台，虽然最初是为了帮助生活方便，连接他人。但现在无非是监视和审查，与中共杀手一起摧毁我们的国家。
-
-尽管据报道 Meta 第四季度的收入仍然强劲，但华尔街最密切关注的是增长，这家前身为 Facebook (FB) 的公司现在已经超越了鲨鱼“我的空间”。
-
-Facebook 被指控为面部识别，收集面部数据，促进恋童癖和人口贩卖，以及医疗暴政。
-
-现在，用户正在删除他们的个人资料，并转移到无数其他可行平台的运动正在发展。
-
-今天FB又下跌了5%。
-
-**评论：我相信一定有上天在看着世间的一切，facebook用中文音译翻译就是“非死不可”，新名称Meta更惨，翻译为“ 没它  ”，天注定这些为共产主义审核并摧毁自由民主信仰大爱的大型科技不会在文明社会生存，“没它”更好！**
-
-**参考资料：**[CD media][FB Down Another 5% — Let’s Call It MetaSpace From Now On](https://creativedestructionmedia.com/news/business/2022/02/07/fb-down-another-5-lets-call-it-metaspace-from-now-on/)
-
-* * *
-
-*审核：文乐
-校对：信心满满
-发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH..jpeg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

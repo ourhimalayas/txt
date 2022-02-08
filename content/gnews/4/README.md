@@ -2,32 +2,41 @@
 ---
 
 
-## 拜登威胁要关闭北溪 2 号管道
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1976646/)
+## 加拿大“自由”卡车司机疫苗强制令抗议车队可能打破世界纪录
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1976759/)
 
-**整理/编辑：Little Lamp**
+**• 贾斯汀·特鲁多（Justin Trudeau）称抗议者为“边缘少数”。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-836.png)
+**据《福克斯新闻》记者：Emma Colton, 报道：**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3427-a7x16-do3qr-9.jpg)
+2022年1月26日，星期三，卡车和车辆游行穿过安大略省桑德贝（Thunder Bay）外的卡卡贝卡瀑布（Kakabeka Falls）。支持者对跨境卡车抗议者欢呼雀跃。图片来源：加拿大新闻社记者大卫·杰克逊（David Jackson ）通过美联社刊发
 
-美国总统乔拜登表示，俄罗斯入侵乌克兰将结束北溪 2 号管道项目。
+加拿大的卡车司机正在抗议对他们行业的疫苗强制令，他们的车队可能会打破世界纪录。
 
-美国总统乔拜登威胁说，如果俄罗斯军队越过边境进入乌克兰，将关闭一条至关重要的德俄管道北溪 2号。拜登周一在白宫举行的联合新闻发布会上与德国总理奥拉夫·肖尔茨（Olaf Scholz）一起发表讲话时发出了威胁。
+自由车队2022（Freedom Convoy 2022）的发言人本杰明·迪希特 (Benjamin Dichter) 告诉《多伦多太阳报》，“车队有 70 公里长，我看过从飞机上拍的短片。令人印象深刻。”
 
-“我们将结束它，”拜登谈到管道时说。当一名记者询问华盛顿究竟如何能够阻止该项目，因为它“在德国的控制范围内”时，拜登拒绝详细说明，只说：“我们会的，我向你保证，我们将能够做到。 ”
+自由车队（Freedom Convoy）周日从温哥华出发前往渥太华，抗议联邦政府对跨境卡车司机实施疫苗强制令，该命令于1月15日生效。加拿大卡车运输联盟（Canadian Trucking Alliance）估计，该国大约15%的卡车司机没有完全接种疫苗，大约16,000名卡车司机。
 
-然而，尚不清楚 Scholz 是否同意这个想法。当直接被问及如果俄罗斯入侵乌克兰，该项目的命运时，这位德国领导人没有点名提及该管道。
+《吉尼斯世界纪录》显示，最长的车队记录发生在2020年的埃及，长达近5英里。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/sdf.png)
+2022年1月25日，家人、朋友和邻居聚集在加拿大萨斯喀彻温省（Saskatchewan）格伦费尔（Grenfell）横贯加拿大的高速公路边，表达对自由车队的支持。图片来源：马克·迪姆勒（Mark Dimler）通过路透社刊发
 
-这位德国总理说：“我们已经做好一切准备，准备好采取必要的制裁措施，如果发生对乌克兰的军事侵略，”他补充说，他不会透露具体细节，“因为俄罗斯应该明白，未来可能还会有更多。”
+车队计划周六前抵达渥太华进行抗议。
 
-文章来源：[Biden threatens to shut down Nord Stream 2 pipeline](https://www.rt.com/news/548599-biden-russia-ukraine-americans/)
+加拿大总理贾斯汀·特鲁多（Justin Trudeau）表示，“抗议的参与者是一小部分正在前往渥太华的边缘少数群体，他们持有不可接受的观点。”
 
-*发布：盘古相聚*
+他继续补充：“我们完全不能接受这个车队某些人士所表达的信息。”
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**文章来源：**[https://www.foxnews.com/world/freedom-truckers-convoy-records-protest-vaccine-mandate-canada](https://www.foxnews.com/world/freedom-truckers-convoy-records-protest-vaccine-mandate-canada)
+
+翻译：洛杉矶盘古农场 – WH
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 –彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

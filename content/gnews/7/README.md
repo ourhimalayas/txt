@@ -2,30 +2,23 @@
 ---
 
 
-## 今日盖特大V推荐 — Natalie Winters（娜塔莉·温特斯）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1976598/)
+## 郭文贵精品视频-北京冬奥会普京乘兴而来 愤怒而归
+` cindy` [轉載自GNews](https://gnews.org/zh-hans/1976701/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3427-a7x16-do3qr-7.jpg)
-**盖特链接**：[https://gettr.com/user/nataliegwinters](https://gettr.com/user/nataliegwinters)
+撰稿：澳喜cindy
 
-**娜塔莉·温特斯自述：**
+2022年北京冬奥会普京作为习近平心目中最重要的撑场子的人，在参加会议之前已与中方达成了共22项重要的天然气项目的贸易合同及俄罗斯防止美国对其进行经济制裁而部分使用人民币等重要合同。
 
-**《国家脉搏》调查记者**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/muo.jpg)图片来源：网络
-**娜塔莉·温特斯简介：**
+俄方说，我用了你的人民币，如果有一天人民币消失了怎么办？这个假设不是假想而是中共确实将面临的主要问题。那么“黄金本位下的最后保底的价值”的问题至关重要，也是中俄双方争论的焦点。俄方说，你的人民币变成纸没事儿，你得给我黄金。中共国不干。普京说，我来之前你干，我来了你就不干了？
 
-娜塔莉·温特斯（Natalie Winters）是美国《国家脉搏》调查记者，史蒂芬·班农战斗室嘉宾，新中国联邦支持者。
-2021年6月4日“新中国联邦一周年”庆典上，娜塔莉·温特斯发表演讲时表示：灭共至关重要；只有灭共才能查清病毒真相，并改变对精英而非老百姓有利的国际体系（[https://youtu.be/wqDLtmXSuYw](https://youtu.be/wqDLtmXSuYw)）。
+郭先生精通金融又非常了解善于假、骗、偷恶习的中共，所以直击此次习普的重要交易合同-人民币在俄罗斯使用的关键环节上。郭先生通过国内战友的情报事先得知中共在此关键环节中的欺骗伎俩因此提前告诉了普京事情的真相。普京当时拿到其中两张纸说：“如果这里边儿有任何一句话有人跟我提起，我会转身就走”。当然事情的发生就如普京被告知的一样发生了。
 
-**郭文贵先生评价她是美国新一代的希望。**
+“新中国联邦人这次可以这么说，主导了整个冬奥会的开幕式。我们很成功地让这些国家的运动员和这些元首们看清了中共、看清了冬奥会。让他们一生不会再参加共产党的任何所谓的国际仪式。
 
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 — 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+*编辑：cindy*
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+【[澳喜文章1](https://gnews.org/zh-hans/author/aujenny/)】
+【[澳喜文章2](https://gnews.org/zh-hans/author/himalaya-australia/)】
 
  
 

@@ -2,30 +2,34 @@
 ---
 
 
-## 美国发言人称我们的注意力不会从中共国侵犯人权行为上移开
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1976548/)
+## 今日盖特大V推荐 — Maria Bartiromo（玛丽亚·巴蒂罗姆）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1976654/)
 
-**编译：文舞两道**
-![ ](https://assets.gnews.org/wp-content/uploads/2022/02/B2196863-4351-4DED-94C3-F4E8B92925AB.jpeg)图片来源:https://www3.nhk.or.jp
-据2022年2月8日日本NHK消息，美国白宫发言人萨基在7日的新闻发布会上，就新疆和中国其他地区的人权状况批评中国政府，称一名维吾尔族运动员被选为北京奥运会开幕式的火炬手后，”转移对中国发生的侵犯人权行为的注意力是不可接受的”。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/E0C92EA5-06C6-49C0-9A5E-57201CA75CF0.jpeg)
-在本月4日举行的北京奥运会开幕式上，一名维吾尔族女运动员与一名汉族男运动员一起成为火炬传递的最后跑者。因为新疆维吾尔自治区的人权受到侵犯，人们认为这是中共国政府希望显示民族融合以及对人权的尊重。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3427-a7x16-do3qr-8.jpg)
+**盖特链接：**[https://gettr.com/user/mtg4america](https://gettr.com/user/mtg4america)
 
-在本届奥运会上，美国和其他国家宣布 “外交抵制”，不派政府官员参加。萨基说：”将注意力从中国部分地区的人权侵犯和种族灭绝行为上转移开是不可接受的。正是因为这些问题，我们没有派出外交代表团”他说，并重申了对中共国政府的批评。
+**玛丽亚·巴蒂罗姆自述：**
 
-**原文链接：**
+《与玛丽亚早安》节目的主播，全球市场编辑，周一至周五，上午6点至9点在@FoxBusiness和@SundayFutures 周日，上午10:00点 @FoxNews #foxnews #foxbusiness
+![](https://assets.gnews.org/wp-content/uploads/2022/02/111-2.jpg)**图片来源：网络**
+**玛丽亚·巴蒂罗姆简介：**
 
-[米報道官「中国での人権侵害から注意そらすことは許されない」](https://www3.nhk.or.jp/news/html/20220208/k10013472591000.html?utm_int=news-international_contents_list-items_014)
+玛丽亚·巴蒂罗姆（Maria Sara Bartiromo），1967年9月11日出生于纽约，毕业于纽约大学。美国电视新闻从业人员、杂志专栏作家，以及三本出版物作者。
 
-**编辑：LILY**
+她是福克斯商业新闻网《与玛丽亚早安（Mornings with Maria）》节目主持人，全球市场编辑，同时也是福克斯新闻频道《Sunday Morning Futures with Maria Bartiromo》节目主持人。
 
-**发布：歪桑**
+玛丽亚·巴蒂罗姆曾在CNN作为制片人工作5年。1993年加入CNBC电视之后，曾任《关闭钟声（Closing Bell）》节目主持人，以及《与玛丽亚·巴蒂罗姆谈钱（On the Money with Maria Bartiromo）》主持人暨总编辑，也是首位在纽约证券交易所进行现场直播的记者。2013 年，她离开 CNBC 为福克斯频道主持节目。
 
-20220208
+玛丽亚·巴蒂罗姆横跨各种不同类型电视节目，并因此获得许多新闻奖项，甚至登上有线电视名人堂。
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3-2.jpg)
+编撰：洛杉矶盘古农场 — 心照
+校审：洛杉矶盘古农场 — 郭友(文苏)
+发布：洛杉矶盘古农场 —彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
