@@ -15,119 +15,119 @@
 
 ---
 
-### [有声|中美初次建交，文明穿越百年](/content/gnews/1/README.md)
+### [特鲁多政府破坏“自由车队”的筹款活动](/content/gnews/1/README.md)
+ ` 扬帆枫叶快讯`
+
+### [阿尔伯塔省计划提前结束疫苗护照](/content/gnews/2/README.md)
+ ` 扬帆枫叶快讯`
+
+### [这个镇上没有人在谈论美国经济的整个结构以及坦率地说，我们是如何沉迷于轻松赚钱](/content/gnews/3/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [加拿大渥太华市长宣布进入紧急状态以应对卡车封锁](/content/gnews/4/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [有声|中共统治下的人间惨剧](/content/gnews/5/README.md)
  ` MOSREC`
 
-### [短视频：新冠疫苗通行证只会造成一个隔离的社会](/content/gnews/2/README.md)
+### [有声|强国奇闻(2)](/content/gnews/6/README.md)
+ ` MOSREC`
+
+### [2022年2月8日《樱花简报》：日本研究发现繁殖能力强的病毒更易存活](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有声|中美初次建交，文明穿越百年](/content/gnews/8/README.md)
+ ` MOSREC`
+
+### [2022.2.6大直播后记：中共会打台湾吗?](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [灭共者之郭氏情报站（二十二）2022/02/06 文贵大直播](/content/gnews/3/README.md)
+### [未来中共国会有2亿人左右死于毒疫苗，一半房子将无人居住](/content/gnews/10/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [短视频：新冠疫苗通行证只会造成一个隔离的社会](/content/gnews/11/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [灭共者之郭氏情报站（二十二）2022/02/06 文贵大直播](/content/gnews/12/README.md)
  ` MOS Designer香草山设计部`
 
-### [聚焦：通胀和无效市场是中共的两道鬼门关](/content/gnews/4/README.md)
+### [聚焦：通胀和无效市场是中共的两道鬼门关](/content/gnews/13/README.md)
  ` 丁过`
 
-### [新不伦瑞克省法院：中止未接种疫苗的父亲的监护权，称疫苗安全性和有效性“众所周知”](/content/gnews/5/README.md)
+### [新不伦瑞克省法院：中止未接种疫苗的父亲的监护权，称疫苗安全性和有效性“众所周知”](/content/gnews/14/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [2/6/2022 文贵直播：中共让各国际组织、华尔街、好莱坞等在中共国被蓝金黄并享受着特权，中共把中国变成了冒险家的乐园](/content/gnews/6/README.md)
+### [2/6/2022 文贵直播：中共让各国际组织、华尔街、好莱坞等在中共国被蓝金黄并享受着特权，中共把中国变成了冒险家的乐园](/content/gnews/15/README.md)
  ` 秘密翻译组-北美组`
 
-### [中共国与世不同的行事规则让所有人都付出代价](/content/gnews/7/README.md)
+### [中共国与世不同的行事规则让所有人都付出代价](/content/gnews/16/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [共产党家族拥有特权](/content/gnews/8/README.md)
+### [共产党家族拥有特权](/content/gnews/17/README.md)
  ` 雅典娜GNotes`
 
-### [有声|开幕式庆典参与各方称身处“一场噩梦”](/content/gnews/9/README.md)
+### [有声|开幕式庆典参与各方称身处“一场噩梦”](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [中美历史上一直都交好](/content/gnews/10/README.md)
+### [中美历史上一直都交好](/content/gnews/19/README.md)
  ` 雅典娜GNotes`
 
-### [Antifa激进分子开车撞伤温尼伯自由车队抗议者](/content/gnews/11/README.md)
+### [Antifa激进分子开车撞伤温尼伯自由车队抗议者](/content/gnews/20/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [有声|中共解放军集结东南沿海意图侵略台湾](/content/gnews/12/README.md)
+### [有声|中共解放军集结东南沿海意图侵略台湾](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [对沈凌先生的文章《美国政府借鸡生蛋？中国怎么办？》之想法一](/content/gnews/13/README.md)
+### [对沈凌先生的文章《美国政府借鸡生蛋？中国怎么办？》之想法一](/content/gnews/22/README.md)
  ` 澳喜特战旅Gnews`
 
-### [澳洲派部队进驻养老院所暴露出的问题](/content/gnews/14/README.md)
+### [澳洲派部队进驻养老院所暴露出的问题](/content/gnews/23/README.md)
  ` 喜国公民`
 
-### [有声|中美初次建交，文明穿越百年](/content/gnews/15/README.md)
+### [有声|中美初次建交，文明穿越百年](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [天亮前的忧伤](/content/gnews/16/README.md)
+### [天亮前的忧伤](/content/gnews/25/README.md)
  ` 纽约香草山MOS03`
 
-### [有声|美俄联合国舌战之际，俄罗斯从俄罗斯边境撤出部分军力](/content/gnews/17/README.md)
- ` MOSREC`
-
-### [有声|美国两党议员推动台湾驻美代表处更名](/content/gnews/18/README.md)
- ` MOSREC`
-
-### [【G时新闻】北京冬奥会COVID-19病例创新高](/content/gnews/19/README.md)
+### [【G时新闻】北京冬奥会COVID-19病例创新高](/content/gnews/26/README.md)
  ` G-时新闻`
 
-### [贩卖妇女 | 中共治下的又一哀鸣，我们为自己而战](/content/gnews/20/README.md)
+### [贩卖妇女 | 中共治下的又一哀鸣，我们为自己而战](/content/gnews/27/README.md)
  ` YALUN 亚伦`
 
-### [文贵先生盖特精要2022/02/07](/content/gnews/21/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [有声|H-Pay实现人民币秒变喜美元](/content/gnews/22/README.md)
- ` MOSREC`
-
-### [全球疫情更新（毒针的黑色幽默）](/content/gnews/23/README.md)
+### [全球疫情更新（毒针的黑色幽默）](/content/gnews/28/README.md)
  ` 墨尔本雅典娜农场`
 
-### [郭文贵精品视频-北京冬奥会鲜为人知的秘密之巨婴普京](/content/gnews/24/README.md)
- ` cindy`
-
-### [有声|世界各国的孔子学院陆续关闭](/content/gnews/25/README.md)
- ` MOSREC`
-
-### [有声|各国孔子学院关闭进展迅猛](/content/gnews/26/README.md)
- ` MOSREC`
-
-### [有声|期待](/content/gnews/27/README.md)
- ` MOSREC`
-
-### [DC大中华时事：赵立坚回应中共为什么挑选迪妮格尔担任火炬手](/content/gnews/28/README.md)
+### [DC大中华时事：赵立坚回应中共为什么挑选迪妮格尔担任火炬手](/content/gnews/29/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [【秘翻在线】新泽西州州长将结束学校口罩规定](/content/gnews/29/README.md)
+### [【秘翻在线】新泽西州州长将结束学校口罩规定](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：花旗预测软银抛售股份，阿里巴巴股价暴跌](/content/gnews/30/README.md)
+### [秘翻在线：花旗预测软银抛售股份，阿里巴巴股价暴跌](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [那么暖心的一首歌 成了心头的一块冰](/content/gnews/31/README.md)
+### [那么暖心的一首歌 成了心头的一块冰](/content/gnews/32/README.md)
  ` 墨尔本雅典娜农场`
 
-### [北京冬奥会就是中共剥削百姓奴役全球的缩影](/content/gnews/32/README.md)
+### [北京冬奥会就是中共剥削百姓奴役全球的缩影](/content/gnews/33/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [北京冬奥会彻底展现中共成孤家寡人穷途末路](/content/gnews/33/README.md)
+### [北京冬奥会彻底展现中共成孤家寡人穷途末路](/content/gnews/34/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [喜马拉雅真义14解：天地鬼神与新中国联邦人一起灭共灭邪恶力量](/content/gnews/34/README.md)
+### [喜马拉雅真义14解：天地鬼神与新中国联邦人一起灭共灭邪恶力量](/content/gnews/35/README.md)
  ` 秘密翻译组-原创组`
 
-### [海航与PAG太盟集团合谋虚假抵押股权骗取贷款](/content/gnews/35/README.md)
+### [海航与PAG太盟集团合谋虚假抵押股权骗取贷款](/content/gnews/36/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [英国诸多学术机构获得中共捐赠后协助中共强大军事力量](/content/gnews/36/README.md)
+### [英国诸多学术机构获得中共捐赠后协助中共强大军事力量](/content/gnews/37/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [NFSC新闻、G|TV新闻访谈简报|2022年2月7日早](/content/gnews/37/README.md)
+### [NFSC新闻、G|TV新闻访谈简报|2022年2月7日早](/content/gnews/38/README.md)
  ` 纽约香草山MOS01`
-
-### [特魯多政府破壞「自由車隊」的籌款活動](/content/gnews/38/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
 ### [著名记者劳拉·洛根离开推特脸书 中意盖特](/content/gnews/39/README.md)
  ` NFSC News`

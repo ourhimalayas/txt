@@ -2,34 +2,22 @@
 ---
 
 
-## 短视频：新冠疫苗通行证只会造成一个隔离的社会
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1972510/)
+## 阿尔伯塔省计划提前结束疫苗护照
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/1972632/)
 
-翻译：Fulin
-校对：枳实|
-剪辑字幕：小强
-编辑：文泓
+加拿大温哥华扬帆农场    平民正道
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/2-1-1.png)图片来源：视频截屏
+据加拿大[环球邮报]2月4 日报道，阿尔伯塔省政府目前正准备在全省范围内停止正在使用的疫苗护照和大部分疫情限制措施。
 
+为此，省长肯尼表示，如果该省医疗系统的疫情压力持续减缓，就将分阶段在2月底之前停止现行的各项防疫措施。并声称，阿省的高疫苗接种率以及下降的病毒感染人数，使得以上决定可行。
 
-（英国议会讨论新冠疫苗通行证）
-议长先生，有媒体报道说，今天下午有一个内阁会议和新闻发布会，以启动新冠冬季B计划，但根本没有提到议会的参与。
+目前，阿省的所有酒吧，餐馆，影剧院等公共消费及娱乐场所都需要疫苗护照，尽管该措施原则上是自愿进行，但不执行该规定的商家将会在包括降低客户数量等方面受到当局的限制。
 
-新冠通行证不会提高疫苗的接种率，只会造就一个分裂的社会。我尊敬的朋友和首相，您是否知道，几乎不会有人会被这种转移注意力的策略所说服。
+据悉，近期以来，肯尼省长受到了来自各界和其他政党越来越大的压力，特别是目前正在渥太华进行的卡车司机抗议运动，都使得当局开始意识到疫苗护照因严重侵犯了个人权利，而必须立即取消。
 
-（鲍里斯·约翰逊首相）
-议长先生，在没有咨询内阁的情况下，我不会做出任何决定。
+* * *
 
-视频链接：[Protest News 在 Twitter: “”Covid passes will not increase uptake of the vaccine but will create a segregated society.” Clapping hands sign @William\_Wragg tells Boris Johnson at #PMQs why there should be #NoVaccinePassports. https://t.co/ewaI9CsXvl” / Twitter](https://twitter.com/ProtestNews_EN/status/1469678980907290631?t=snalGtomvNK35zPGmGfOkQ&amp;s=19)
-
-发布：文泓
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+编辑： 平民正道    发布：平民正道
 
  
 

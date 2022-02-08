@@ -2,29 +2,35 @@
 ---
 
 
-## 有声|开幕式庆典参与各方称身处“一场噩梦”
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1972440/)
+## 2022.2.6大直播后记：中共会打台湾吗?
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1972557/)
 
-配音：香草山巡管部– 文凯琳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月5日，郭文贵先生在盖特视频中，透露了参加4日冬奥会开幕式的各阶层人士的三点反馈：这里一切都是假的，简直是一场噩梦，中共完了。
+**整理：雅典娜速记组
+编辑：Candy**
 
-郭先生指出，首先，开幕式的一切都透着“假大空”。看似华丽热闹的表演，但是，一切都是假的。其次，不管是组织还是个人，也无论是记者、官员，还是运动员，都感到处处透着令人恐惧的气氛，简直像是身处一场噩梦之中。第三，美国的抵制和外交撤离，让人感觉到这个国家充满了恐惧，让人感到没有任何希望。这一切表明：中共完了。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-420.png)
 
-文字版原文：[开幕式庆典参与各方称身处“一场噩梦”](https://gnews.org/zh-hans/1966643/)
 
-音频处理/发稿：Daxia
+**文真：**最后一个问题是我们的文鹰战友问七哥。因为文鹰战友可能对中国军队的体系比较了解，可能比较关心台海局势，七哥在最近几次的直播中，隐隐约约地透露了台湾的局势非常严重，七哥方不方便再多给一些细节。今天我们也看到了，《美国竞争法案》里边有很大一部分， 相比去年关于台湾的初次方案，我觉得美国为了他自己的利益，他要保护台湾。请七哥简短的给文鹰战友做一些具体的解答吧。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+**七哥：**我还是那句话，打台湾超过90%的可能性，他打台湾共产党就完蛋了。 太具体的细节没有，而且一切都在变化中。美国这个所谓的《法案》，我认为有好的，当然跟历史比很棒，但是说明了共产党的势力不可小觑， 它在美国影响很大。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+这个《法案》其中有三、四条最关键的（条款），全部都给取消了。例如，打台以后自动生效的各种法，打台湾就自动把什么账目公开，跟中共彻底脱钩，外交断交等等，这都没了，都没都被拿下去了。中共的游说能力你可见一斑。包括美国，共产党在西方的所有资产自动被查封，这全都取消了， 但他毕竟有了《法案》。打台湾的事情我认为超过90%。谢谢！
 
+文真：我个人认为，因为美国是三权分立的体制，议会，国会是有权独立宣战的。 所以说，如果已经有了一个法律在前，是不是就为他后面的宣战做好准备了呢？
+
+七哥：很大的帮助啊。对台，给他留下了行动的更多的空间，而且把对台的这个话语权、一直以来美台关系是由立法会，就是国会山来搞的，都是以它来主导的。那这一次能看出来：他不但主导了，而且非常明确，会把总统，还有让整个美国的民众提前预知了。如果有一天发生事情的时候，我们就不用再那么啰嗦了，已经准备好了。
+
+这个是很大的帮助，但是，就是跟我们想象的（比）没那么够（力度）。 原来我觉得，今年春节前会发生的《法案》它没发生， 晚了几天。 另外一个就是《法案》的几个重要条件，它给删除了，但是毕竟有这个《法案》还是很好的。谢谢！
+
+***发布：Candy***
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

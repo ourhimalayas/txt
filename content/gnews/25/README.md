@@ -2,37 +2,63 @@
 ---
 
 
-## 有声|世界各国的孔子学院陆续关闭
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1972209/)
+## 天亮前的忧伤
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1972359/)
 
-配音：香草山巡管部– 文凯琳
+作者：香草山健身部-新世界的一员
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+古老的民族像羽毛一样的凌乱
+救命车疲惫不堪的总是出现在路上
+超市的货架空荡荡
+琳琅满目的叹息声
+隐隐约约的哭骂声
+汇集成一个个只有小说里才有的悲伤故事
+抖落出阴暗潮湿的丑陋味
+昨天那城封了 今天这城封了
+我不知小镇的安静时间还剩多少
+这个缺爱缺真缺少信任
+唯独不缺自私的社会
+明明是乱世
+依然今朝有酒今朝醉
+无知而迷茫的同胞们
+话题依然离不开打过苗的成就感
+层层加码的真相无力的挣扎在蛛网中
+任凭黑暗覆盖
+我屹立在高处着急
+可危墙之下的人们贪婪于虚设的岁月静好
+嘲笑着我脸上忧伤的表情
+被拒绝接近的我
+伸出手，我使劲的伸出手
+太远了，够不到，也拉不着
+我大声的呼喊着，嘶哑着呼喊
+他们听不见，
+肆虐的狂风吹没了微弱的声音
+我悲伤的看着坠落的片片绿叶
+受风挟裹飘零在空中
+然后，掉进废墟的污垢里
+无声无息，无风无浪
+小镇，你可会得天独厚
+不要到在阎王殿前的泥泞之中
+小镇，你可会早知早觉
+不要跌到在彩虹出现前
+无端的风雨总会停止
+蓝旗飘扬的日子越来越近
+她宽阔的胸怀会包容着你
+她温暖的怀抱会拥抱着你
+等待吧，耐心的等待
+等待灭共的雪飘飘洒洒漫天遍野！
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-2.jpg)
-
-
-
-#### 摘 要
-
-中共孔子学院自2004年成立。截至2019年12月，中共在162个国家（地区）建立了550所孔子学院和1172个中小学孔子课堂。
-
-然而自2013年开始，海外孔子学院陆陆续续关闭。2013年，加拿大麦克马斯特大学孔子学院关闭，成为全球第一所关闭的孔子学院。2019年12月，瑞典关闭了其境内的4家孔子学院，并于2020年4月关闭了最后一个孔子课堂。瑞典成为全球第一个彻底将孔子学院和孔子课堂驱逐出境的国家。2021年10月31日，德国联邦教育部长Anja Karliczek更是呼吁终止德国所有孔子学院。
-
-文字版原文：[世界各国的孔子学院陆续关闭](https://gnews.org/zh-hans/1961212/)
-
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
-
+校对/发稿：菩提树
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-17.jpg)
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
