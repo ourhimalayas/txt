@@ -2,32 +2,47 @@
 ---
 
 
-## 美方要求中共国兑现第一阶段贸易协议承诺
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1973486/)
+## 以色列取消大部分疫苗通行证要求
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1973574/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/9BC2DE8F-190C-40F4-AF0F-008C057ADA3A_w1023_r1_s.jpg)2020年1月15日，时任美国总统特朗普与中国副总理刘鹤在白宫签署第一阶段经贸协议。档案图片：路透社。
-编辑摘要：
-
-据美国之音2月7日报道，美国官员们称没有迹象显示中共国会兑现第一阶段美中贸易协议中购买美国产品的承诺，华盛顿正在失去耐心。美国统计局将要公布2021年贸易数据，届时会对中共国未能兑现承诺的情况提供具体数据。中共国海关此前的数据显示2021年对美国的贸易顺差大增至3966亿美元。
-
-川普政府2020年1月与中共政府签订了为期两年的第一阶段贸易协议，承诺在2020年和 2021年间将美国农产品、制造业产品、能源和服务产品的进口额在2017年的基础上增加2000亿美元。但是到去年11月底，中共只实现了60%的目标。第一阶段贸易协议保留了双方针对对方数千亿美元的产品进口实施的关税，但阻止了美中已经持续了将近三年的贸易战进一步升级。
-
-美国总统拜登上星期批准将川普总统任内对进口中共国光伏设备加征高额关税，延长四年。此举受到北京的抨击。中共反对和抨击的继续做下去，中共赞扬和支持的及时终止，这就是对付中共的方法。中共一向损人第一，但凡亲近中共的国家，最后的结局一定是经济崩溃、人民穷困潦倒，最后国家破产、丧失主权。中共不信守承诺，美国有权利反击。对付中共这种流氓，拳头比道理管用。
-
-新闻参考链接：[美官员们要求中国兑现第一阶段贸易协议承诺 称正对北京失去耐心](https://www.voachinese.com/a/us-china-trade-20220207/6430580.html)
-
-*编辑：胖丁*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+作者：纽约香草山农场 – 宁文静
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+2月4日，国外媒体报道，作为疫苗接种先锋的以色列，几乎取消了疫苗通行证在普通人群和场所的所有使用。这个政策还是在高感染率、高死亡率的背景下作出的根本改变。
+
+从2月7日开始，以色列人在进入酒店、餐馆、剧院和健身房等场所时，不再需要出示疫苗接种证明。但所谓的“高风险”活动，如婚礼和聚会，仍然需要证明。以色列政府还将继续保持一些限制措施，包括戴口罩，以及未接种疫苗者在“教育机构”每48小时提供一次阴性测试证明等。另外，没有接种疫苗的人士也可以从以色列登机，不再需要进行中共病毒测试，只要目的地国家不要求阴性证明即可。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-3.jpg)
+媒体称，这是一个戏剧性的变化，证明了疫情应对措施和政策的全面改变。以色列是世界上加强针，甚至第四针接种率最高的国家。然而，在1月底，中共病毒感染率、死亡率创下历史最高。流行病学家纳达夫·戴维维奇是为政府提供建议的专家小组成员，他说形势在变化，疫苗通行证政策的转变具有现实意义。
+
+参考信息：
+1. [Israel Green Pass Goes Away, Easing Covid Restrictions Despite a Rise in Infections](https://trialsitenews.com/israel-green-pass-goes-away-easing-covid-restrictions-despite-a-rise-in-infections/)
+2. [Vaccine passport pioneer Israel to curb use of ‘green pass’](https://www.straitstimes.com/world/middle-east/vaccine-passport-pioneer-israel-to-curb-use-of-green-pass)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
 
 

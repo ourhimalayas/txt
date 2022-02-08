@@ -2,10 +2,10 @@
 ---
 
 
-## 以色列取消大部分疫苗通行证要求
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1973574/)
+## 联合国秘书长盼北京允人权特使访新疆
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1973650/)
 
-作者：纽约香草山农场 – 宁文静
+作者：台湾宝岛农场 – 阿尔道夫
 
 
 
@@ -13,15 +13,12 @@
 
 
 
-2月4日，国外媒体报道，作为疫苗接种先锋的以色列，几乎取消了疫苗通行证在普通人群和场所的所有使用。这个政策还是在高感染率、高死亡率的背景下作出的根本改变。
+2月6日，联合国秘书长古特瑞斯在冬奥期间与中共主席习近平和外交部长王毅会面时提出，期望中共允许联合国人权事务高级专员巴舍莱进入新疆，调查维吾尔人遭虐待的指控，对中共进行可信的访问，包括在新疆停留。
 
-从2月7日开始，以色列人在进入酒店、餐馆、剧院和健身房等场所时，不再需要出示疫苗接种证明。但所谓的“高风险”活动，如婚礼和聚会，仍然需要证明。以色列政府还将继续保持一些限制措施，包括戴口罩，以及未接种疫苗者在“教育机构”每48小时提供一次阴性测试证明等。另外，没有接种疫苗的人士也可以从以色列登机，不再需要进行中共病毒测试，只要目的地国家不要求阴性证明即可。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-3.jpg)
-媒体称，这是一个戏剧性的变化，证明了疫情应对措施和政策的全面改变。以色列是世界上加强针，甚至第四针接种率最高的国家。然而，在1月底，中共病毒感染率、死亡率创下历史最高。流行病学家纳达夫·戴维维奇是为政府提供建议的专家小组成员，他说形势在变化，疫苗通行证政策的转变具有现实意义。
-
+据悉，巴舍莱曾多次表达过希望进入新疆访问、追查真相的愿望，但一直遭到但中共的拒绝。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide11-2.jpg)
 参考信息：
-1. [Israel Green Pass Goes Away, Easing Covid Restrictions Despite a Rise in Infections](https://trialsitenews.com/israel-green-pass-goes-away-easing-covid-restrictions-despite-a-rise-in-infections/)
-2. [Vaccine passport pioneer Israel to curb use of ‘green pass’](https://www.straitstimes.com/world/middle-east/vaccine-passport-pioneer-israel-to-curb-use-of-green-pass)
+1. [聯合國秘書長：盼北京允人權特使訪新疆](https://udn.com/news/story/6809/6078603?from=udn-catebreaknews_ch2)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
 

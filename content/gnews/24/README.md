@@ -2,8 +2,8 @@
 ---
 
 
-## 美众议院领袖发誓调查中共病毒起源
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1973569/)
+## 英国官方 儿童接种中共病毒疫苗死亡率超三倍
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1973614/)
 
 作者：纽约香草山 – 侠肝义胆
 
@@ -13,19 +13,22 @@
 
 
 
-外媒2月7日报道，日前，美国众议院共和党领袖凯文·麦卡锡提出了共和党未来的计划，发誓要调查中共病毒的起源。他还表示，如果共和党在今年中期选举中重新获得众议院多数党席位，将对中共采取更强硬的立场，进行更多严格审查。
+据外媒2月5日报道，英国卫生安全局发布的最新数据显示，完全接种疫苗的儿童死于中共病毒的可能性是未接种疫苗儿童的3倍多。
 
-麦卡锡在接受媒体采访时强调，国会最终将成立一个两党中共国问题委员会，其中最关键问题将是调查中共病毒大流行的起源。
+根据相关数据，接种了中共病毒疫苗的人在接触该病毒时，与未接种疫苗的人相比，会表现出某种形式的疫苗相关强化疾病，而受这种影响最严重的年龄组是儿童。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-4.jpg)
+英国卫生安全局似乎在试图掩盖这些讯息。根据惯例，他们每周都会公布接种两针疫苗和三针疫苗的病例数、住院人数以及每10万人的发病率，但在2022年第3周的报告中，他们没有公布接种两针疫苗人群的每10万人死亡率数据。
 
-正如郭文贵先生此前爆料所称，美国两党政客都无法回避中共病毒给美国带来的巨大灾难，坚决追查中共病毒真相，将是美国两党未来别无选择的共同政治诉求。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-3.jpg)
+不过，英国卫生安全局在第5周报告中还是公布了两针疫苗人群的每10万人死亡率数据，媒体据此计算出，未接种疫苗的18岁以下感染者每10万人死亡率为0.01，而接种两针疫苗的18岁以下感染者每10万人死亡率为0.33 。
+
 参考信息：
-[Kevin McCarthy vows to investigate COVID origins as he lays out Republicans’ plan for more scrutiny of China if GOP regains House majority after midterm elections](https://www.dailymail.co.uk/news/article-10483009/Kevin-McCarthy-outlines-Republicans-plan-control-China-regain-majority-House.html)
+1. [2/6/2022 文贵直播: 中共认俄爹是因为西方白人不愿和中共交往，中共只好以俄国是共产主义发源地为由忽悠中国人；中国老百姓心中积压的怒火使得他们一有机会就会向中共动手](https://www.gettr.com/post/pt0ef10ad5)
+2. [Official Data shows Fully Vaccinated Children are 3.3 times more likely to die of Covid-19 than Unvaccinated Children and the UKHSA is trying to hide it](https://dailyexpose.uk/2022/02/05/ukhsa-data-vaccinated-children-3x-more-likely-die-covid/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
 
-总编：DM
-编辑：静言
+总编：Jack Li文阳
+编辑：飞虹
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**
