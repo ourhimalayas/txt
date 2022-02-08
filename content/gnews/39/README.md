@@ -2,36 +2,23 @@
 ---
 
 
-## 著名记者劳拉·洛根离开推特脸书 中意盖特
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1971260/)
+## 【秘翻在线】新泽西州州长将结束学校口罩规定
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1971954/)
 
-作者：纽约香草山农场 007
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月3日，著名女记者劳拉·洛根宣布，将离开推特、脸书及Instagram等社交媒体，留在盖特等有言论自由的平台。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-07-上午11.18.48.png)
-劳拉曾经常年在阿富汗、伊拉克等战场前线报道，屡获殊荣，包括3次获得艾美奖，9次获得艾美奖提名等等。去年11月底，她因把福奇比做臭名昭著的纳粹医生，一度引发热议。
+**撰稿：Grace**
 
-劳拉表示，凭着良知，她不能为那些利用剥削儿童来谋利的平台作贡献。近年来，大型科技公司因涉嫌将儿童的露骨内容平台化，并成为性交易的温床而引起争议。那些平台一边严格审查卡车司机与疫苗受害者等人的自由言论，一边却在推行这种性堕落的意识形态，而推广和美化人类最糟糕无底线的行为是错误的。
+**校对：Grace**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-07-at-3.47.40-PM.jpeg)图片来源：bronx.news 12
+据 Insider Paper 2月7日报道，《纽约时报》称，新泽西州州长菲尔·墨菲（Phil Murphy）预计将在3月取消州内学校对学生和员工的口罩规定。
 
-劳拉的选择，标示着一个有正义感的媒体人，在纷繁复杂的世界里，基于人性最基本的要求，即言论自由，尊重人权等，而做出的价值判断，而盖特正是以此为其理念的崭新媒体平台。
+这是自中共病毒COVID-19大流行开始以来，新泽西州首次放宽其学校口罩规定，表明该州对病毒的看法发生了转变。
 
-参考链接：
-1）[https://gettr.com/post/psb7ot75d1](https://gettr.com/post/psb7ot75d1)
-2）[Award-Winning Journalist Lara Logan Quits Twitter, Facebook, Instagram: ‘Cannot’ Stay ‘In Good Conscience’](https://www.dailywire.com/news/award-winning-journalist-lara-logan-quits-twitter-facebook-instagram-cannot-stay-in-good-conscience)
+据报道，周日，该州记录了大约1600个新病例，与一个月前33000个病例的高峰相比，有了明显的下降。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+关于在学校戴口罩的辩论一直是一个有争议的问题。报道称，去年夏天，在新学年开始之前，一些地区，包括墨菲的家乡米德镇（Middletown）提出了自己的口罩规则，挑战州长的强制口罩规定。
 
-总编：Ivy001
-编辑：静言
-校正/发稿：呼吸的雾霾（文小呼吸）
+**新闻来源： ****[New Jersey Gov. Murphy to end school mask mandate](//054F5841-01B1-4F6A-84E2-77C1443F4C0F/New%20Jersey%20Gov.%20Murphy%20to%20end%20school%20mask%20mandate)**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

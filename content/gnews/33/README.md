@@ -2,89 +2,28 @@
 ---
 
 
-## 全球疫情更新（毒针的黑色幽默）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1972219/)
+## 中共国与世不同的行事规则让所有人都付出代价
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1972474/)
 
-**整理/编辑：枳实**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-755.png)图片：雅典娜农场设计组 精灵蓝
-雅典娜疫情更新（2022年 2月7日）
+#### 翻译/撰稿：文旺 | 校对：沙拉猫
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-07-181845.png)图片来源：www.economist.com
+美国“国会山报”（The Hill）2月6日发表了一篇“兰德”（Rand）智库深资学者克里斯托弗·保罗（Christopher Paul）的专文，指责中共国正以其他所有人的利益为代价推行其独有的规则。
 
-[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+文章细数了中共靠阴谋诡计行事让其他所有人都付出代价的邪恶行径。文章指出，美国的民主体制不仅允许竞争对手不受限制地进入其市场，而且还允许对手进入象征民主第四根支柱的媒体生态系统。中共便利用这一点，让中共国的公司成功地进入了美国的媒体系统，而几乎没有受到美国监管机构的抵制。这些中共国的公司不仅能够访问美国的传播媒介，而且逐渐获得了拥有、控制和影响内容的全面能力，尤其是在广播电台方面。
 
-**一，全球疫情基本数据**
+文章披露，中共国营的“中国国际广播电台” (CRI) 已获得 14 个国家至少 33 个广播电台的控股权——包括华盛顿特区的新闻广播公司 WCRW——以播放支持中共国的中文节目和报道有利于中国共产党的事件。战略与国际研究中心（Center for Strategic and International Studies）2020 年的一份报告发现，“美国几乎所有的中文新闻媒体要么归中共所有，要么与中共有密切合作——而且这种情况也开始发生在英文媒体里。美国人现在可以从全国各地十几个城市的广播电台的调频广播中，听到微妙的亲北京宣传。”
 
-感染总数：394,598,105（日新增2,842,882人，14天增幅-14%）
+文章指出，中共的官员要不在这些公司的董事会任职，要不直接就是公司的老板。而在美国，政治人物在当选时会放弃或至少放弃对其商业利益的某些控制。另外，所有中共国的公司在某种程度上都是国营的，或者至少是受国家影响或服从国家的，这在美国是难以理解的。
 
-死亡总数：5,737,372（日新增10,597 人，14天增幅 +32%）
+文章称，尽管美国联邦通讯委员会（FCC） 确实有权监控外国机构对国内广播电台的控制，但中共国的 CRI 通过混淆手断使这些审查复杂化，那就是，通过空壳公司购买，或通过获得美国媒体集团的部分股权（或数个部分股权）来掩盖其真实目的，同时让 FCC 觉得中共国在美国媒体机构的利益低于 25%。
 
-**二，全球“疫苗”毒针统计数据**
+文章认为，虽然中共国充分利用了自由市场的机会收购西方国家的媒体公司，但外国媒体公司却被中共国拒绝进入。中共的国有媒体锁住了国内市场，几乎不允许外国媒体有控制、投入或影响的机会。这种不平等为美国领导人向中共提出互惠条件提供了机会：除非中共国把其媒体市场的投资和所有权向外国开放，否则美国媒体公司就应该剥离中共国公司在美国的股份。
 
-“疫苗”毒针注射总数：102亿
+虽然文章承认这种要求有点不切实际，因为中共永远不会向外国势力开放其广播媒体，但认为这样的举动不仅可以为美国要求中共从美国媒体撤资提供一个公平合理的理由，还可以促使FCC更积极地打击和调查媒体背后的所有权资金链和影响力。文章最后指出，在虚假信息和不信任日益增加的时代，保护美国的媒体免受外国反民主力量的侵害无疑是值得迈出的一步。
 
-完全“接种”：42亿人
+评：郭文贵先生在直播中早就指出，中共把媒体和宣传视为比核弹还厉害的武器，一直通过蓝金黄手段，收买和控制西方国家特别是美国的媒体，释放迷惑人心的信息烟雾弹，美化邪恶的独裁统治，企图让美国人民在不知不觉中慢慢被中共弱化，最后被中共国取代。但爆料革命和新中国联邦横空出世，揭露了中共的伎俩，让越来越多的美国有识之士认识到，如果不对中共的海外宣传机器进行反击，后果会越来越严重。这篇文章就是一个很好的例证，愿更多的美国民众能有文章作者这样的认识。
 
-完全“接种”百分比：53.9%
-
-**三，澳洲疫情和“疫苗”数据**** **
-
-感染总数：2,752,238（今日新增23,169人）
-
-死亡总数：4,247人（今日新增 46人）
-
-每万人感染人数：1067.3506人
-
-“疫苗”毒针注射总数：51,152,055（今日新增70,718  针）
-
-完全“接种”：19,321,803人
-
-第二针“接种”百分比：78.9%
-
-16岁以上人口接种至少一剂疫苗的比例：&gt;95%
-
-16岁以上人口接种至少两剂疫苗的比例：93.7%
-
-加强针总数：8,997,661（日新增：56,141针）
-
-**四，毒针的黑色幽默**
-
-“疫苗”毒针给人们带来了无尽的眼泪和死亡。各国政府利用大疫情带来的额外公权力大搞强制疫苗，尤其是利用疫情限制措施强迫孩子们注射毒针之时，本应针砭时弊的喜剧演员没有嘲讽这些，却不幸被迫用生命来嘲讽了“安全”“有效”的毒针。
-
-3周前刚刚接受加强针注射的美国喜剧演员希瑟·麦克唐纳（Heather McDonald）[周六晚上在一场单口喜剧表演中晕倒后导致颅骨骨折而住院](https://stevekirsch.substack.com/p/did-the-covid-vaccine-cause-heather)。她当时正在打趣：[“我接种了，打完双针，又打了加强针……还打过流感疫苗，也打过带状疱疹疫苗，至今还没有得过COVID，耶稣最爱我！”](https://thecovidworld.com/comedian-heather-mcdonald-collapses-on-stage-fractures-skull-after-saying-im-vaxxed-double-vaxxed-boosted-and-flu-shot/) ，话音未落，她就晕倒了。
-
-后来她在病床上，向她的粉丝透露，她这辈子从未晕倒过。医生也没有找到原因，她演出前全天并没有饮酒。但是我们都知道，这种晕倒甚至猝死正是毒疫苗副作用的一种常见的临床表现。
-
-就在不到24小时之内，另外一位戏剧脱口秀女演员，同样是打了第三针毒针的切尔西·汉德勒（ [Chelsea Handler](https://www.yahoo.com/entertainment/chelsea-handler-hospitalized-cancels-comedy-shows-173233139.html)）也倒下了，她不得不住院，并取消了其余的节目。她的节目叫做“接种了，长角了”（ *Vaccinated and Horny，*这个节目名称从字面上看，意在嘲讽一些“反疫苗”者，因为他们认为接种基因治疗“疫苗”，是将异种基因混入人类基因组，如同被印上了魔鬼的印记，兽角在基督教文化中即代表魔鬼的形象）。
-
-这难道不是很讽刺吗？ 不管大众如何听信大媒体和政府的虚假宣传，纷纷继续注射那些毒针，最终这些摆在眼前，发生在身边的事实会让绝大多数能存活下来的人们觉醒，意识到这些所谓的“疫苗”，其实是后患无穷的毒针。
-
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
-
-数据来源：
-
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：Lish
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
-
+消息来源：[How China plays by different rules — at everyone else’s expense](https://thehill.com/opinion/technology/592998-how-china-plays-by-different-rules-at-everyone-elses-expense?rl=1)
 
  
 

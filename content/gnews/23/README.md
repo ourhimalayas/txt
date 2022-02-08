@@ -2,61 +2,26 @@
 ---
 
 
-## 这个镇上没有人在谈论美国经济的整个结构以及坦率地说，我们是如何沉迷于轻松赚钱
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1972618/)
+## 农历新年后，多个亚洲国家中共病毒感染病例激增
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1972750/)
 
-[https://gtv.org/video/id=62014e15585ecc15d73eab75](https://gtv.org/video/id=62014e15585ecc15d73eab75)
+#### 撰稿：彩虹 
 
-**Steve Bannon**
-**史蒂夫·班农**
+#### 责编：白夜 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-766.png)图片来源：CTV News
+2月7日，《国会山报》引述相关报道，指在农历新年庆祝活动结束大约一周后，多个亚洲国家报告了中共病毒（COVID-19）病例数激增。
 
-Since 2008, in the great financial crash
-自2008年以来，在大金融危机中
+据美联社报道，周日，日本报告了9万个中共病毒病例，其中仅在东京就有超过17,500个。印度尼西亚则报告了36,057个每日病例，比一个月前的533例有所增加。
 
-the strategy of the Fed and the central banks have been essentially zero interest rates
-美联储和中央银行的策略基本上是以零利率
+在香港，所有中共病毒病例都需要住院治疗，该地报告的病例数达到了614例，创下新高。周一，香港卫生防护中心（Hong Kong’s Centre for Health）的一名官员Edwin Tsui告诉美联社记者说：“我们预计几天后会有更多病例出现，我们认为这是在节日活动和聚会后的一些影响。以我们目前的遏制措施，希望仍然能够控制住这种疾病。”
 
-to push up assets
-来推高资产
+周一，香港当局还宣布，从周二开始，任何与病毒检测结果呈阳性的人有过密切接触的人都要在家隔离。
 
-We’re coming to the end of that
-我们即将结束这种方式
+同时，新加坡的病例自假期以来增加了两倍，达到了周五报告的13,000例。但是到了周日，新增病例减少到了7,752例。
 
-And there’s no one today is having a sophisticate
-而且今天没有人拥有一个成熟的
+**新闻来源**
 
-where they say that their deplorable are so dumb and stupid
-他们说他们的小人物是如此愚蠢和愚蠢
-
-Nobody in this town is having a an adult conversation
-这个镇上没有人在进行成年人的谈话
-
-about the entire structure of the American economy, and how quite frankly
-关于美国经济的整个结构，坦率地说
-
-we’re addicted to easy money and we’re addicted to zero interest rates
-我们沉迷于轻松赚钱并且我们沉迷于零利率
-
-**原视频链接:**[https://gettr.com/post/pshgmh2283](https://gettr.com/post/pshgmh2283)
-
-Date:02/05/2022
-原视频标题: “Nobody in this town is having an adult conversation about the entire structure of the American economy and how, quite frankly, we’re addicted to easy money.”
-“这个镇上没有人在谈论美国经济的整个结构以及坦率地说，我们是如何沉迷于轻松赚钱的。”
-原视频日期：2022/02/05
-原视频链接: https://gettr.com/post/pshgmh2283
-任务编号：KE384（3676）
-视频时间段 : 0:00-0:29
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场- 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[COVID-19 cases spike in Asia after Lunar New Year](https://thehill.com/policy/international/asia-pacific/593176-covid-19-cases-spike-in-asia-after-lunar-new-year?rl=1)
 
  
 

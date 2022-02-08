@@ -2,22 +2,22 @@
 ---
 
 
-## 冬奥会开幕式在疫情恐惧下始乱终弃
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/1972674/)
+## HpayHdo秒转账秒支付并且拥有最安全的保密系统
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1972822/)
 
-加拿大温哥华扬帆农场    平民正道
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-据2月4日GTV文贵大直播报道，就在冬奥会开幕式之前，负责主席台安全的特警队狙击手队长，疑因此前接种了“中共病毒”疫苗，而猝死于盘古龙头之下，成为首个被天意祭旗的中共亡魂。党魁习近平则因此手足无措，惊恐莫名。
+*发布：陶子*
 
-据悉，当天入住北京华尔道夫酒店的普京冬奥会团队，传出已有16人染疫，酒店内3人病亡。为此，普京在惶恐之余，悲愤斥责习近平当局连最基本的健康保障都无法提供。同时，在距北京5000公里外的习家军也因受此事影响，现已进入战备状态。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-此外，原计划出席冬奥会开幕式的97位国家元首，目前只有35位如约前来。其中，多个参会的外国使团，以“立即撤走参赛运动员”为要挟，逼迫中共立刻支付其更多的出场费用。
 
-至此，[新中国联邦]近期发动的甜蜜蜜灭共战役已初获胜果。而习近平痴梦以求，万国来朝的冬奥会，已被正式官宣进入自戕的冬眠状态。
-
-* * *
-
-编辑： 平民正道    发布：平民正道
 
  
 

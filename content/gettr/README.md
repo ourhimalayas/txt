@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/8/2022 2:43 AM (UTC)`
+
+2/6/2022 Miles Guo: The current economic situation in the US indicates that the CCP virus and the COVID vaccine disasters have destroyed the supply chains. I have said in early 2020 that the secondary disasters and crises caused by the CCP virus and COVID vaccines will start this May. This is the conclusion I draw based upon the intelligence I have about the CCP.<br/><br/>2/6/2022 文贵直播：美国目前的经济说明中共病毒和疫苗灾难摧毁了供应链；文贵在2020年初就说病毒和疫苗造成的次生灾难和危机将于今年5月开始，这是文贵基于所掌握的中共情报而作出的判断<br/>
+![img](https://media.gettr.com/group41/getter/2022/02/08/02/dee84e88-a4e8-ca02-44aa-4a405eb8c549/out.jpg)
+
+---
+
+`@miles 2/8/2022 2:38 AM (UTC)`
+
+2/6/2022 Miles Guo: Why did the CCP let Weijian Shan go abroad during the Cultural Revolution? How did the CCP infiltrate the US by using the Ping-pong diplomacy?<br/>China and the US depend on each other for security and complement each other in terms of culture, and there is no historical conflict between the two. The Sino-US economic cooperation will be the best in the world!<br/><br/>2/6/2022 文贵直播: 中共为什么在文革期间让单伟建出国？中共是如何用乒乓外交渗透美国的？中美之间生死与共、文化互补、无历史冲突，中美经济合作必将是天下第一！<br/>
+![img](https://media.gettr.com/group37/getter/2022/02/08/02/d4257da9-5ebc-d3bd-129e-1e2e66866727/out.jpg)
+
+---
+
 `@miles 2/7/2022 11:18 PM (UTC)`
 
 2/6/2022 Miles Guo: Our fellow fighters are everywhere at the Winter Olympics such that I can always know what is going on. Fellow fighters have helped foreign leaders and athletes understand the true nature of the CCP, and this is the fundamental reason why Putin left Communist China earlier than expected.<br/><br/>2/6/2022 文贵直播: 冬奥会无处不在的战友让现场的一切情况尽在文贵的掌握之中；新中国联邦的战友们在冬奥会让外国元首和运动员认清中共本质，这就是普京提前离开中共国的根本原因<br/>
@@ -141,20 +155,6 @@ This is the BIG ONE I previewed on @WarRoom a little earlier regarding the Covid
 
 2月5号：在中共国生存的女人．连20只癞蛤蟆的价值都不如……这不是今天．也不是昨天，是一直以来都这样，我们都是女人生的，在这样的国家还有自信，还有人权？还有希望吗？
 ![img](https://media.gettr.com/group16/getter/2022/02/05/14/99b6a8bb-1e35-3ae0-ea18-91d3563031d0/out.jpg)
-
----
-
-`@miles 2/5/2022 5:44 AM (UTC)`
-
-2/4/2022 Miles Guo: I was deeply shocked by Mubarak’s statement that “it is the Chinese themselves who don’t respect their fellow Chinese”. The CCP took the Chinese people's hard-earned money and invited a bunch of leaders who were begging for food and money to attend the opening ceremony of the Winter Olympics which lasted only 100 minutes. In contrast, the US, which has respected the Chinese people since the Qing Dynasty, authorized the diplomatic departure of its embassy. How pathetic it is!<br/><br/>2/4/2022 文贵直播：穆巴拉克说“中国人不尊敬中国人”深深地震撼了文贵；中共拿中国人的血汗钱请一帮要饭的领导人参加只有100分钟的冬奥会开幕式，而早在清朝就尊敬中国人的美国却授权其使馆外交撤离，可悲啊！<br/>
-![img](https://media.gettr.com/group16/getter/2022/02/05/05/9171effe-f71a-d3f1-ea54-bbf8ab77cb21/out.jpg)
-
----
-
-`@miles 2/5/2022 5:40 AM (UTC)`
-
-2/4/2022 Miles Guo: Unfortunately, three people have died in the Waldorf Astoria Beijing where Putin is staying, and 16 people in Putin's team are infected with the CCP virus. This sounds quite scary! I have bigger news to share with you later today.<br/><br/>2/4/2022 文贵直播：很不幸的是，普京下榻的华尔道夫酒店已有3人死亡，普京团队16人染毒，着挺吓人呐！今天还有更大的料给大家爆！<br/>
-![img](https://media.gettr.com/group42/getter/2022/02/05/05/eeb2be46-3d3f-d0e4-68b6-6b30f3b96737/out.jpg)
 
 ---
 

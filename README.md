@@ -15,152 +15,152 @@
 
 ---
 
-### [喜币最大的交易是俄罗斯和乌克兰](/content/gnews/1/README.md)
+### [塞北的雪（四）](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [2月6日文贵大直播摘要（图片）](/content/gnews/2/README.md)
- ` 波士顿五月花农场`
-
-### [每日快报：运动员们在地狱般的隔离中“疯狂地哭泣”](/content/gnews/3/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [2月6日文贵大直播摘要（图片）](/content/gnews/4/README.md)
- ` 波士顿五月花农场`
-
-### [2月6日大直播后记：中共国是西方冒险家的乐园](/content/gnews/5/README.md)
+### [2.06大直播后记：习太阳和大国脆弱的私人关系](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [美商务部将33家中共国实体纳入“未经核实名单”](/content/gnews/6/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [农历新年后，多个亚洲国家中共病毒感染病例激增](/content/gnews/7/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [战争临近，拜登正式建议在乌克兰非美国外交人员离境](/content/gnews/8/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [共产党蓝金黄（一）](/content/gnews/9/README.md)
- ` 雅典娜GNotes`
-
-### [澳大利亚必须与中共国抗衡，否则将“失去下一个十年”](/content/gnews/10/README.md)
- ` 走进澳洲`
-
-### [共产党对美关系（二）](/content/gnews/11/README.md)
- ` 雅典娜GNotes`
-
-### [GTV股票和数字资产G-Coin、G-Dollar款项退款分配方案要点](/content/gnews/12/README.md)
+### [2/6/2022 文贵直播：文贵在2020年初就说病毒和疫苗造成的次生灾难和危机将于今年5月开始，这是文贵基于所掌握的中共情报而作出的判断](/content/gnews/3/README.md)
  ` 秘密翻译组-北美组`
 
-### [2022年2月8日《樱花快报》：美专家建议取消中共病毒疫情限制措施](/content/gnews/13/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共利用冬奥会窃取各国运动员DNA](/content/gnews/14/README.md)
- ` 扬帆枫叶快讯`
-
-### [俄罗斯总统普京提前紧急撤离北京冬奥会](/content/gnews/15/README.md)
- ` 扬帆枫叶快讯`
-
-### [冬奥会开幕式在疫情恐惧下始乱终弃](/content/gnews/16/README.md)
- ` 扬帆枫叶快讯`
-
-### [美国众议院通过《美国竞争法案》](/content/gnews/17/README.md)
- ` 扬帆枫叶快讯`
-
-### [加拿大总督被强烈要求罢免总理特鲁多](/content/gnews/18/README.md)
- ` 扬帆枫叶快讯`
-
-### [特鲁多政府破坏“自由车队”的筹款活动](/content/gnews/19/README.md)
- ` 扬帆枫叶快讯`
-
-### [7/24系列：中美友好的记忆——蒲安臣及蒲安臣条约](/content/gnews/20/README.md)
- ` 墨尔本雅典娜农场`
-
-### [阿尔伯塔省计划提前结束疫苗护照](/content/gnews/21/README.md)
- ` 扬帆枫叶快讯`
-
-### [疫情何时结束？ 科学家说，这很复杂](/content/gnews/22/README.md)
- ` 澳喜特战旅Gnews`
-
-### [这个镇上没有人在谈论美国经济的整个结构以及坦率地说，我们是如何沉迷于轻松赚钱](/content/gnews/23/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [加拿大渥太华市长宣布进入紧急状态以应对卡车封锁](/content/gnews/24/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [有声|中共统治下的人间惨剧](/content/gnews/25/README.md)
- ` MOSREC`
-
-### [2022.2.6大直播后记：中共会打台湾吗?](/content/gnews/26/README.md)
- ` 墨尔本雅典娜农场`
-
-### [共产党对美关系（一）](/content/gnews/27/README.md)
+### [塞北的雪（三）](/content/gnews/4/README.md)
  ` 雅典娜GNotes`
 
-### [聚焦：通胀和无效市场是中共的两道鬼门关](/content/gnews/28/README.md)
- ` 丁过`
+### [中共国一电信公司在美被起诉串谋盗窃商业秘密](/content/gnews/5/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [新不伦瑞克省法院：中止未接种疫苗的父亲的监护权，称疫苗安全性和有效性“众所周知”](/content/gnews/29/README.md)
- ` 温哥华圆成农场🇨🇦`
+### [塞北的雪（二）](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
 
-### [中共国与世不同的行事规则让所有人都付出代价](/content/gnews/30/README.md)
- ` 秘密翻譯組G-Translators`
+### [2/6/2022 文贵直播：中共为什么在文革期间让单伟建出国？中共是如何用乒乓外交渗透美国的？](/content/gnews/7/README.md)
+ ` 秘密翻译组-北美组`
 
-### [Antifa激进分子开车撞伤温尼伯自由车队抗议者](/content/gnews/31/README.md)
- ` 温哥华圆成农场🇨🇦`
+### [塞北的雪（一）](/content/gnews/8/README.md)
+ ` 雅典娜GNotes`
 
-### [贩卖妇女 | 中共治下的又一哀鸣，我们为自己而战](/content/gnews/32/README.md)
- ` YALUN 亚伦`
+### [沉默的战友](/content/gnews/9/README.md)
+ ` 雅典娜GNotes`
 
-### [全球疫情更新（毒针的黑色幽默）](/content/gnews/33/README.md)
+### [有品格的外国人不来](/content/gnews/10/README.md)
+ ` 雅典娜GNotes`
+
+### [樱花头条┃CDC终于承认自然免疫比疫苗更有效](/content/gnews/11/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [币的交易信息只有喜联储才知道](/content/gnews/12/README.md)
+ ` 雅典娜GNotes`
+
+### [2月6日文贵大直播摘要（图片）](/content/gnews/13/README.md)
+ ` 波士顿五月花农场`
+
+### [美国宣布取消部分对日本的钢铁关税](/content/gnews/14/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [哈佛新研究证明新冠疫苗会增加感染和死亡人数](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [DC大中华时事：赵立坚回应中共为什么挑选迪妮格尔担任火炬手](/content/gnews/34/README.md)
+### [HpayHdo秒转账秒支付并且拥有最安全的保密系统](/content/gnews/16/README.md)
+ ` 雅典娜GNotes`
+
+### [郭文贵先生2022年2月7日盖特视频（6分51秒）全文字版](/content/gnews/17/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [共产党蓝金黄（三）](/content/gnews/18/README.md)
+ ` 雅典娜GNotes`
+
+### [北京2022年冬奥会变成饥饿游戏，参赛明星抱怨没有热饭吃](/content/gnews/19/README.md)
+ ` 波士顿五月花农场金融部`
+
+### [美商务部将33家中共国公司列入风险交易实体清单](/content/gnews/20/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [每日快报：运动员们在地狱般的隔离中“疯狂地哭泣”](/content/gnews/21/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [【秘翻在线】新泽西州州长将结束学校口罩规定](/content/gnews/35/README.md)
+### [美商务部将33家中共国实体纳入“未经核实名单”](/content/gnews/22/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [农历新年后，多个亚洲国家中共病毒感染病例激增](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：花旗预测软银抛售股份，阿里巴巴股价暴跌](/content/gnews/36/README.md)
+### [战争临近，拜登正式建议在乌克兰非美国外交人员离境](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [喜马拉雅真义14解：天地鬼神与新中国联邦人一起灭共灭邪恶力量](/content/gnews/37/README.md)
- ` 秘密翻译组-原创组`
+### [澳大利亚必须与中共国抗衡，否则将“失去下一个十年”](/content/gnews/25/README.md)
+ ` 走进澳洲`
 
-### [NFSC新闻、G|TV新闻访谈简报|2022年2月7日早](/content/gnews/38/README.md)
- ` 纽约香草山MOS01`
+### [2022年2月8日《樱花快报》：美专家建议取消中共病毒疫情限制措施](/content/gnews/26/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [著名记者劳拉·洛根离开推特脸书 中意盖特](/content/gnews/39/README.md)
+### [中共利用冬奥会窃取各国运动员DNA](/content/gnews/27/README.md)
+ ` 扬帆枫叶快讯`
+
+### [俄罗斯总统普京提前紧急撤离北京冬奥会](/content/gnews/28/README.md)
+ ` 扬帆枫叶快讯`
+
+### [冬奥会开幕式在疫情恐惧下始乱终弃](/content/gnews/29/README.md)
+ ` 扬帆枫叶快讯`
+
+### [疫情何时结束？ 科学家说，这很复杂](/content/gnews/30/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [聚焦：通胀和无效市场是中共的两道鬼门关](/content/gnews/31/README.md)
+ ` 丁过`
+
+### [新不伦瑞克省法院：中止未接种疫苗的父亲的监护权，称疫苗安全性和有效性“众所周知”](/content/gnews/32/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [中共国与世不同的行事规则让所有人都付出代价](/content/gnews/33/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [贩卖妇女 | 中共治下的又一哀鸣，我们为自己而战](/content/gnews/34/README.md)
+ ` YALUN 亚伦`
+
+### [美国为何领先世界及与中国的差距](/content/gnews/35/README.md)
  ` NFSC News`
 
-### [美国前国安参谋长警告：中俄联盟极其危险](/content/gnews/40/README.md)
+### [郭文贵先生谈家庭教育](/content/gnews/36/README.md)
  ` NFSC News`
+
+### [美国经济至暗时刻过后 将迎来快速反弹](/content/gnews/37/README.md)
+ ` NFSC News`
+
+### [中共做恶必将自食其果](/content/gnews/38/README.md)
+ ` NFSC News`
+
+### [【秘翻在线】新泽西州州长将结束学校口罩规定](/content/gnews/39/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [秘翻在线：花旗预测软银抛售股份，阿里巴巴股价暴跌](/content/gnews/40/README.md)
+ ` 秘密翻譯組G-Translators`
 
 ### [澳洲防长警告盟友需挺身抵抗中共 否则会失去未来十年](/content/gnews/41/README.md)
  ` 日本东京方舟农场`
 
-### [2/7/2022国际财经快讯：美国“印太经济架构”旨在制衡中共国；瑞士信贷银行面临洗钱指控](/content/gnews/42/README.md)
+### [天津市民揭露政府防疫造假](/content/gnews/42/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [2/7/2022国际财经快讯：美国“印太经济架构”旨在制衡中共国；瑞士信贷银行面临洗钱指控](/content/gnews/43/README.md)
  ` 秘密翻译组金融团队`
 
-### [新西兰财经G乐部2022年2月7日:财经新闻整理](/content/gnews/43/README.md)
+### [新西兰财经G乐部2022年2月7日:财经新闻整理](/content/gnews/44/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [新西兰财经G乐部-H-pay对数字货币及传统金融的影响](/content/gnews/44/README.md)
+### [新西兰财经G乐部-H-pay对数字货币及传统金融的影响](/content/gnews/45/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [一个中共国女性的价值几乎等同于20只癞蛤蟆](/content/gnews/45/README.md)
+### [一个中共国女性的价值几乎等同于20只癞蛤蟆](/content/gnews/46/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [随着中共病毒失控，迟早会有政府首脑住进北京重症监护室](/content/gnews/46/README.md)
+### [随着中共病毒失控，迟早会有政府首脑住进北京重症监护室](/content/gnews/47/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [被掩盖的美国国防部 数据库爆炸性数据流出](/content/gnews/47/README.md)
+### [被掩盖的美国国防部 数据库爆炸性数据流出](/content/gnews/48/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [科学家在荷兰发现高度传染性突变 HIV（艾滋病） 毒株](/content/gnews/48/README.md)
+### [科学家在荷兰发现高度传染性突变 HIV（艾滋病） 毒株](/content/gnews/49/README.md)
  ` 喜马拉雅农场新西兰站`
-
-### [深圳石岩街道两地升级为中风险地区，大批防疫人员进入](/content/gnews/49/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [当务之急是各州要立即采取行动阻止疫苗强制令](/content/gnews/50/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
