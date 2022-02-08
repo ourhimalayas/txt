@@ -2,34 +2,40 @@
 ---
 
 
-## 有声|铁锤
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1972091/)
+## 有声|期待
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1972097/)
 
 配音：香草山健身部 – 新世界的一员
 ![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-铁锤
-捶开这紧锁大门
-让互联网
-自由通行
+期待
+像羽毛轻刷心田
+心跳节奏快了二三拍
+憧憬又憧憬
+渴望有渴望
+像挂在树枝最高点果子
+看得见
+摘不了
+如同只能
+梦里看见母亲
+她
+衰老又沧桑
 
-铁锤
-捶开这封闭空间
-让卷缩肢体
-伸展舒畅
+期待
+光明早日来到
+因为啊
+七十年的蹂躏
+这片土地满目创伤
+破败不堪
+人们的脸庞
+恐惧惊慌
+当黑暗过去
+期待笑脸
+重回他们脸庞
 
-铁锤
-捶死这魔鬼横行
-结束这指鹿为马时代
-开启民主宪政
-一人一票
-是喜马拉雅指引光芒
-
-文字版原文：[铁锤](https://gnews.org/zh-hans/1959677/)
+文字版原文：[期待](https://gnews.org/zh-hans/1959675/)
 
 音频处理/发稿：Daxia
-
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
-
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)

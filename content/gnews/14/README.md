@@ -2,63 +2,26 @@
 ---
 
 
-## 天亮前的忧伤
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1972359/)
+## 澳洲派部队进驻养老院所暴露出的问题
+` 喜国公民` [轉載自GNews](https://gnews.org/zh-hans/1972371/)
 
-作者：香草山健身部-新世界的一员
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-古老的民族像羽毛一样的凌乱
-救命车疲惫不堪的总是出现在路上
-超市的货架空荡荡
-琳琅满目的叹息声
-隐隐约约的哭骂声
-汇集成一个个只有小说里才有的悲伤故事
-抖落出阴暗潮湿的丑陋味
-昨天那城封了 今天这城封了
-我不知小镇的安静时间还剩多少
-这个缺爱缺真缺少信任
-唯独不缺自私的社会
-明明是乱世
-依然今朝有酒今朝醉
-无知而迷茫的同胞们
-话题依然离不开打过苗的成就感
-层层加码的真相无力的挣扎在蛛网中
-任凭黑暗覆盖
-我屹立在高处着急
-可危墙之下的人们贪婪于虚设的岁月静好
-嘲笑着我脸上忧伤的表情
-被拒绝接近的我
-伸出手，我使劲的伸出手
-太远了，够不到，也拉不着
-我大声的呼喊着，嘶哑着呼喊
-他们听不见，
-肆虐的狂风吹没了微弱的声音
-我悲伤的看着坠落的片片绿叶
-受风挟裹飘零在空中
-然后，掉进废墟的污垢里
-无声无息，无风无浪
-小镇，你可会得天独厚
-不要到在阎王殿前的泥泞之中
-小镇，你可会早知早觉
-不要跌到在彩虹出现前
-无端的风雨总会停止
-蓝旗飘扬的日子越来越近
-她宽阔的胸怀会包容着你
-她温暖的怀抱会拥抱着你
-等待吧，耐心的等待
-等待灭共的雪飘飘洒洒漫天遍野！
+By：喜国公民
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-70.png)图片来自网络
+一支由1700名澳大利亚国防军工作人员组成的突击队将被派往养老院，向受新冠病毒影响的养老院提供 “有针对性的支持”，因为这些养老院出现了护理人员的严重短缺。
 
-校对/发稿：菩提树
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-17.jpg)
-**更多资讯，更多关注**
+今年已经有530名新冠阳性的老年养老院居民死亡，近1200家养老院正在发生疫情，5900名护理人员因病毒而停工，估计每周有25%的护理职位无法填补。澳洲政府宣布，澳大利亚国防军的专业团队将被调来帮助受影响最严重的养老院。
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+部队进驻养老院说明养老院的新冠疫情已经失控。值得注意的是，澳洲政府早在2021年9月17日，就强制性地要求所有在养老院工作的护理人员必须完全接种新冠疫苗，作为他们的就业条件。养老院的居民更是在这之前就全部接种了新冠疫苗。
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+新冠疫情失控说明新冠疫苗根本不能防止感染新冠病毒和阻止新冠病毒的传播。大批养老院人员死亡说明新冠疫苗并不能阻止感染新冠病毒后不出现重症或死亡。另外，新冠疫苗接种率为100%的养老院出现新冠疫情失控，更令人怀疑新冠疫苗本身就是致命的毒药。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+澳洲政府说，国防军不是老年护理部门的代用劳动力，不会提供专业护理支持。他们将充当门卫，限制来访客人的进入，并协助提供膳食，快速测试和个人防护设备。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+可以预测，国防军进驻养老院也无法缓解养老院失控的新冠疫情，因为澳洲政府还在鼓励接种加强针新冠疫苗，并没有意识到是新冠疫苗造成了正在失控的局面。
+
+消息来源：[Aged care sector welcomes deployment of defence personnel in nursing homes](https://www.theguardian.com/australia-news/2022/feb/07/aged-care-sector-welcomes-deployment-of-defence-personnel-in-nursing-homes)
+
+[Mandatory COVID-19 vaccination in aged care](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/information-for-aged-care-providers-workers-and-residents-about-covid-19-vaccines/mandatory-covid-19-vaccination-in-aged-care)
 
  
 

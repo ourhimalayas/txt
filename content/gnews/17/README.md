@@ -2,38 +2,34 @@
 ---
 
 
-## 【G时新闻】北京冬奥会COVID-19病例创新高
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/1972298/)
+## 有声|美俄联合国舌战之际，俄罗斯从俄罗斯边境撤出部分军力
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1972335/)
 
-加拿大温哥华扬帆农场 播报： 七彩虹 视频制作: Geacelshan
-
-据路透社报道北京医学专家组主席周四表示，2月2日，在奥运会相关人员中发现了55例新的COVID-19感染病例，这是迄今为止最高的单日记录。
-
-布赖恩·麦克洛斯基在奥运会开幕前的一次国际奥委会会议上表示，在机场抵达者中发现29例病例；在与公众隔开的参会人员“闭环”中，有26例病例。
-
-“我们相信这个（闭环）系统会起作用。但我们并没有放松，我们保持所有措施到位。” 麦克洛斯基说。
-
-北京参赛者被限制在一个“闭环”内，以防止与公众接触，乘坐官方交通工具在住宿地点和奥运场馆之间通勤。每个奥运会参与者每天都接受病毒检测，以快速识别闭环内的任何感染。
-
-与许多寻求与中共病毒共存的国家相比，中共采取了零容忍政策，包括严格的边境管制和取消国际航班。所有奥运参会者都乘坐包机抵达。
-
-但情况不容乐观。
-
-在北美2月4日早晨的GTV直播中，新中国联邦的缔造者和领导人郭文贵先生爆料说，下榻于北京华尔道夫酒店的俄国总统普京的团队中已有16人感染新冠病毒，而该酒店近几天已有3名人员死亡，但并未确定是否包括普京总统团队人员。
-
-就在冬奥会开幕前几个小时，一位值守在盘古酒店执行保卫任务的狙击手在工作位置上突然发病死亡。
-
-冬奥会伊始，新冠疫情堪忧，新冠病毒就像挥之不去的阴魂环绕在北京上空。
-
-盖特：[https://gettr.com/post/psk78325f0](https://gettr.com/post/psk78325f0)
-听写/翻译：LuLu1312
-字幕：圣骑士
-编辑/上传：七觉花
+配音：香草山巡管部– 文凯琳
 
 
 
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-768x103-26.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-26.jpg)
 
 
+
+据台媒报导，美国驻联合国大使31日指责俄罗斯不仅侵略成性，且将乌克兰与西方国家丑化为侵略者，企图制造开战借口。
+
+与此同时，俄罗斯军方宣布从乌克兰边界地区撤军9000人，但尚难以判定此次局部撤军是否代表俄方有意降低紧张态势。白俄罗斯位于乌克兰北部，是俄罗斯在东欧最忠实的盟友。白俄罗斯军方上周宣布，驻乌俄军将在2月的两国大规模联合军演之后撤离。
+
+文字版原文：[美俄联合国舌战之际，俄罗斯从乌克兰边境撤出部分军力](https://gnews.org/zh-hans/1964769/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

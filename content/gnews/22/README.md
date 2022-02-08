@@ -2,23 +2,27 @@
 ---
 
 
-## 郭文贵精品视频-北京冬奥会鲜为人知的秘密之巨婴普京
-` cindy` [轉載自GNews](https://gnews.org/zh-hans/1972213/)
+## 有声|H-Pay实现人民币秒变喜美元
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1972225/)
 
-撰稿：澳喜cindy
+配音：香草山巡管部– 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-GTV-Gnews-HEADER-1.png)
+喜支付H-Pay是无条件、零交易成本，并无支付额度限制的、无中心化、安全的交易支付系统。早在新中国联邦春晚直播中，郭文贵先生表示，H-Pay的上线将为喜联储、喜币打通七通六脉。在2月4日的大直播中，郭先生宣布，已在中共国内指定站点，可实现人民币秒变喜美元。
 
-习近平寄予厚望的2022年北京冬奥会，本来梦想着在中共二十大前，有一个万邦来朝的完美盛会，对他在党内和老百姓的心中的威望会有很大提升，顺利实现继续连任的目标。没想到几年前，在郭先生率领的新中国联邦的大力推动下，在世界多国坚持正义、自由、法制的人士和组织的共同努力下，抵制邪恶侵犯人权政府举办的北京冬奥会的倡议得到了以美国为首的西方大部分政府的支持，并决定不会派出政府人员参加冬奥会。
+文字版原文：[H-Pay实现人民币秒变喜美元](https://gnews.org/zh-hans/1964560/)
 
-被世界文明国家孤立的中共为在百姓面前继续伪装，只好到处许愿和承诺用利益换得一些国家的 官员前来捧场。习近平面对喂不饱的“巨婴”普京，实在是无奈。在党内和中国老百姓面前怎么也要有普京这个“洋爹”来撑这个场子。精明的普京怎能错过这次绝佳的机会来再虐一次爱面子的习大神。能捞多少就捞多少。
+音频处理/发稿：Daxia
 
-俄爹虐他一万遍中共这个儿子也不厌倦？他们不是不厌倦而是不得已而为之。因为中共在世界各国已经没有朋友了。为了实现共同的共产主义的理想吗？要做75亿人的奴隶主？这可能只是习大神的黄粱美梦。习大神心存侥幸心理认为普京会和他一样“胸怀大志”作世界老大。精明的普京未必这么想。习大神就像是“奶娘”，永远喂不饱普京这个“巨婴”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-普京和习近平彻底翻脸之时也就是习近平精神的支柱倒塌之时，这对中国人民、台湾人民和世界和平、安宁是天大的好事。所以我们智慧的文贵先生，对共产党发的战书：“要让北京的冬奥会变成冬眠会”实施的方案中最重要的棋子就是“普京”吧？
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
-*编辑：cindy*
-
-【[澳喜文章1](https://gnews.org/zh-hans/author/aujenny/)】
-【[澳喜文章2](https://gnews.org/zh-hans/author/himalaya-australia/)】
 
  
 
