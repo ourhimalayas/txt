@@ -2,37 +2,24 @@
 ---
 
 
-## 有声|新中国联邦2022年的工作重点
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1973350/)
+## 中日财经爆┃病毒影响零部件采购，亚洲供应链拟“可视化”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1973407/)
 
-配音：香草山巡管部 – 格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-2月6日，郭文贵先生在大直播中强调，在2022年，新中国联邦建设的重点工作：
+撰稿：东京樱花团/文小白
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-774.png)图片来源于本文链接
+据2022年2月8日NHK消息，由于中共病毒（新冠病毒Covid-19）感染在全球的扩大，亚洲的零部件生产出现停滞，与家庭生活密切相关的如汽车、家用热水器等的生产受到极大的影响，甚至出现停产的事态。
 
-首先，不开展任何新项目，把现有项目完成好。过去两年，因爆料革命需要发展起来的项目，今年要做到影响无限大，避免项目多到烂，以及避免无限扩张而导致灾难。
+日本经济产业省（METI）决定与许多同日本公司开展业务的亚洲国家合作，建立一个新的系统，将亚洲的供应链“可视化”并识别风险。以便在发生传染病或重大灾难时将影响降到最低。
 
-第二，要让更多中共国内的人参与爆料革命。除了加大直播等宣传力度，还要让中共国内的军界、情报界、企业界、音乐界等人士，参与爆料革命，得到喜币、躺平币。
+在某个国家或地区发生传染病或重大灾害扰乱供应链的情况下，目的是通过迅速确保替代供应来源将影响降到最低，同时通过灵活的采购来提高日本公司的竞争力，即使在正常时期也能应对客户需求的变化。
 
-第三，做好G-EDU，中国人未来的希望是教育。会提供大量的币，吸引原新东方教育的中国老师加入GEDU，能够得到原来1.5倍工资。
+此外，经济产业省（METI）将在今年春天成立一个由公司和专家组成的理事会，讨论该系统的细节，目的是将其作为一种机制，确认公司是否考虑到人权和环境问题。
 
-第四，继续以歌灭共，唱尽共产党的歌，让共产党无歌可唱。
+信息来源：[コロナで部品調達に影響 アジアでの供給網 “見える化”へ](https://www3.nhk.or.jp/news/html/20220208/k10013472301000.html)
 
-最后，郭先生特别强调，中共病毒疫苗灾难改变世界，政治经济大重启势不可挡。新中国联邦最重要的目的就是灭共，最重要的价值就是阻止在灭共过程中发生排华。
-
-文字版原文：[新中国联邦2022年的工作重点](https://gnews.org/zh-hans/1970994/)
-
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

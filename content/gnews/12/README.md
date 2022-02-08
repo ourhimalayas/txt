@@ -2,52 +2,32 @@
 ---
 
 
-## 英国官方 儿童接种中共病毒疫苗死亡率超三倍
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1973614/)
+## 美司法部起诉中国海能达公司窃摩托罗拉无线电技术
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1973739/)
 
-作者：纽约香草山 – 侠肝义胆
+**撰稿：日本东京方舟农场  幽蘭自得**
 
+2月7日，美国司法部表示，已对海能达提出刑事诉讼，指控这家中（共）国电信公司与摩托罗拉系统公司前员工合谋，窃取摩托罗拉的数字行动无线电技术。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-113.jpg)（图片来自阿波罗新闻网）
+据《中央社》报道，在芝加哥公布部分删节的起诉书中，美国政府指控海能达（Hytera）招聘摩托罗拉系统公司（Motorola Solutions Inc）马来西亚员工，窃取无线电相关专利商业数据。
 
+起诉书指公开对海能达提出指控，但隐去本案其他共同被告名字，其中至少有一些是海能达被控招聘、现已离职的摩托罗拉员工。起诉书称，海能达在2007至2020年间招聘这些摩托罗拉员工，提供比摩托罗拉更好的薪资和福利，换取他们窃取商业机密。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+据悉，海能达面临21项刑事指控，包括合谋窃取商业机密、拥有或试图保存被盗的商业信息等。海能达与其他未指出姓名的被告也被控占有或试图占有窃取来的商业机密。若遭定罪，海能达将面临相当于窃得商业机密价值3倍的刑事罚款。
 
+另外，摩托罗拉运行副总裁兼法律顾问哈克(Mark Hacker)通过声明表示，海能达面临的指控突显出该公司已做出和蓄意做出的非法行为，“我们将持续在世界各地的司法管辖区对海能达提出民事诉讼，防止该公司继续侵权，并要追回该公司欠摩托罗拉公司的数亿元。”
 
+起诉书指出，摩托罗拉公司前员工在入职和离职时都签署了保密协议，但有证据显示，某些前员工仍从他们数据库偷取摩托罗拉的商业机密。
 
-据外媒2月5日报道，英国卫生安全局发布的最新数据显示，完全接种疫苗的儿童死于中共病毒的可能性是未接种疫苗儿童的3倍多。
+据了解，该刑事诉讼是海能达在美国面临的最新法律挑战。去年11月总统拜登签署法案，阻止海能达和其他被视为对美国有安全威胁的中共国公司获得美国监管机构发放的许可证，而前总统川普也禁止接受联邦资金的部门使用海能达制造的通信设备。
 
-根据相关数据，接种了中共病毒疫苗的人在接触该病毒时，与未接种疫苗的人相比，会表现出某种形式的疫苗相关强化疾病，而受这种影响最严重的年龄组是儿童。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-4.jpg)
-英国卫生安全局似乎在试图掩盖这些讯息。根据惯例，他们每周都会公布接种两针疫苗和三针疫苗的病例数、住院人数以及每10万人的发病率，但在2022年第3周的报告中，他们没有公布接种两针疫苗人群的每10万人死亡率数据。
+参考链接：
+1.[https://www.cna.com.tw/news/aopl/202202080124.aspx](https://www.cna.com.tw/news/aopl/202202080124.aspx)
+2.[https://hk.aboluowang.com/2022/0208/1705933.html](https://hk.aboluowang.com/2022/0208/1705933.html)
 
-不过，英国卫生安全局在第5周报告中还是公布了两针疫苗人群的每10万人死亡率数据，媒体据此计算出，未接种疫苗的18岁以下感染者每10万人死亡率为0.01，而接种两针疫苗的18岁以下感染者每10万人死亡率为0.33 。
-
-参考信息：
-1. [2/6/2022 文贵直播: 中共认俄爹是因为西方白人不愿和中共交往，中共只好以俄国是共产主义发源地为由忽悠中国人；中国老百姓心中积压的怒火使得他们一有机会就会向中共动手](https://www.gettr.com/post/pt0ef10ad5)
-2. [Official Data shows Fully Vaccinated Children are 3.3 times more likely to die of Covid-19 than Unvaccinated Children and the UKHSA is trying to hide it](https://dailyexpose.uk/2022/02/05/ukhsa-data-vaccinated-children-3x-more-likely-die-covid/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-
-总编：Jack Li文阳
-编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+素材采编：幽蘭自得
+编辑：青城道姑
+发布：爱放飞
 
  
 

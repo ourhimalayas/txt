@@ -2,31 +2,49 @@
 ---
 
 
-## DC农场的阿炳的言行对农场战友诠释了 新中国联邦宣言——尊重个人、法治和信仰自由（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1973465/)
+## 美众议院领袖发誓调查中共病毒起源
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1973569/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+作者：纽约香草山 – 侠肝义胆
 
-我们今天这个画面，实际上很多战友们今天经历很多画面了，这个我必须佩服七哥自己，怎么能记住那么多位战友。
 
-华盛顿DC有一个农场主叫阿炳，阿炳几乎是农场主最少言寡语之人，但是行动是巨大的， 她的包容性和她的这个人的个性大家能看得出来。阿炳一路走来，她是一个爆料革命的教科书，她经历过否定，否定，肯定，再否定，再肯定，背叛，再背叛，再回来。
 
-阿炳的个人背景，我是知道的，她面临着巨大挑战走到今天，她流的眼泪她自己最知道。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-你们看看阿炳这个人，不抢名，不抢利，她每次问问题几乎百分之九十九都是为战友问的。这就是你们的阿炳，这个DC，很有意思。
 
-然后今天我看到汤姆啊，还有我们这个密翻组的Rosemary。流行音乐就来自于个人，个人的成长不一定都符合某种标准，你看到美东是最初最包容的，现在出现了几个小杂音， 那太正常不过了，为啥不让有杂音呢？如果没有怀疑，没有否定，甚至没有革命，它怎么可能有文明，有真相呢？
-![](https://assets.gnews.org/wp-content/uploads/2022/02/DC农场的阿炳的言行对农场战友诠释了-新中国联邦宣言——尊重个人、法治和信仰自由（一）-.jpg)
-2022年1月1日文贵大直播
 
-*发布：tianzhihuan*
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+外媒2月7日报道，日前，美国众议院共和党领袖凯文·麦卡锡提出了共和党未来的计划，发誓要调查中共病毒的起源。他还表示，如果共和党在今年中期选举中重新获得众议院多数党席位，将对中共采取更强硬的立场，进行更多严格审查。
+
+麦卡锡在接受媒体采访时强调，国会最终将成立一个两党中共国问题委员会，其中最关键问题将是调查中共病毒大流行的起源。
+
+正如郭文贵先生此前爆料所称，美国两党政客都无法回避中共病毒给美国带来的巨大灾难，坚决追查中共病毒真相，将是美国两党未来别无选择的共同政治诉求。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-3.jpg)
+参考信息：
+[Kevin McCarthy vows to investigate COVID origins as he lays out Republicans’ plan for more scrutiny of China if GOP regains House majority after midterm elections](https://www.dailymail.co.uk/news/article-10483009/Kevin-McCarthy-outlines-Republicans-plan-control-China-regain-majority-House.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+
+总编：DM
+编辑：静言
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

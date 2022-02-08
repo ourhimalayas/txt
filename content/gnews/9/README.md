@@ -2,25 +2,20 @@
 ---
 
 
-## 美日宣布达成钢铁关税协议 共同应对中共
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1973656/)
+## 中国人的思想彻底被阉奸
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1973831/)
 
-**撰稿：日本东京方舟农场  老孙**
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-2月8日美国之声报道，美日双方周一宣布达成协议，减免特朗普时期对日本进口钢材征收的关税。这项协议将允许每年大约125万吨的日本进口钢材免征关税，但必须完全由日本国内生产，才能享受免关税待遇，以减少中国钢铁绕道日本以躲避美国关税制裁的风险。该协议将在4月1日生效。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-112.jpg)（图片取自美国之声）
-美国和日本的联合声明说，日本将在六个月内开始落实国内措施，例如反倾销、反补贴关税和安全保障措施或其它等效措施，为钢铁领域创造更具市场导向的条件。
+*发布：陶子*
 
-美国商务部在宣布美日达成关税协议时说，这项协议是拜登总统与我们关键的盟友和伙伴加强关系，并与他们一起应对中国等国家的不公平做法。
-
-美国商务部长雷蒙多在声明中说：“今天的宣布建立在我们与欧盟达成的协议的基础之上，在我们抗击中国不公平的做法并为美国家庭、公司和工人营造一个更具竞争性的全球经济之际，将进一步帮助重建我们与世界各地的盟友的关系。”
-
-参考链接：
-[https://www.voachinese.com/a/6431993.html](https://www.voachinese.com/a/6431993.html)
-
-素材采编：老孙
-编辑：青城道姑 
-发布：爱放飞
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,29 +2,92 @@
 ---
 
 
-## 秘翻在线：退出北京冬奥会后，普京在做什么？
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1973434/)
+## 中日财经爆┃美国加强对中共出口管制 33家实体上榜
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1973444/)
 
-**撰稿：Billwilliam**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/111-1.png)图片来源：aljazeera
-俄罗斯总统普京在北京冬奥会只逗留了9个小时就回去了，那他现在在做什么呢？据《零对冲》报道，法国总统马克龙今天周一正在莫斯科同普京会谈，议程包括避免在乌克兰的战争以及能源安全。据称双方将进行“实质的、相当长的”对话。德国和法国正领导努力试图通过外交解决乌克兰问题。
+撰稿：东京樱花团/asket
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-777.png)[**图片来源**](https://gbcode.rthk.hk/TuniS/news.rthk.hk/rthk/ch/component/k2/1621343-20211125.htm)
+美国商务部2月7日宣布，将33家中共实体列入“未经核实名单”(Unverified List)。这些实体获得美国产品，将必须接受更严格的出口管控。美国商务部发表的声明说，美国官员无法对清单中这些实体进行核查，以确定这些实体的“善意”(bona fides)，因此必须对这些公司从美国出口商那裡获取产品实施新的限制。
 
-在飞抵莫斯科之前，马克龙上周末接受《星期日报》（Le Journal du Dimanche）采访并表示，“俄罗斯今天的地缘政治目标明显不是乌克兰，而是澄清其与北约和欧盟共存的规则“。虽然马克龙不能代表北约或欧盟向俄罗斯做出任何妥协，但希望此举有助于缓解当前的紧张局势。马克龙说会商讨缓解局势的条件，但也强调要符合现实。马克龙称不会达成单边姿态，但在建立相互信任的机制和姿态前，这是必不可少的防止局势恶化的行动。马克龙认为他与普京有深刻的交谈，并称普京也对达成解决方案持开放态度。
+被纳入出口管制清单的33家中国实体，大多数是电子企业、光学公司、涡轮叶片公司、大学的国家实验室和其他企业。包括中国航发南方工业有限公司（AECC South Industry Co., Ltd）、北京世维通科技公司（Beijing SWT Science）、济南邦德激光（Jinan Bodor CNC Machine）、湖南大学（Hunan University）等。
 
-北约内部以及乌克兰政府都认为俄罗斯进行大规模军事入侵的可能性不高。北约盟军最高军事将领罗伯·鲍尔（Rob Bauer）海军中将甚至表示，“直到现在为止，我们没有看到意图，我们没有预期俄罗斯对北约领土进行打击—不论直接或是通过白俄罗斯。”
+1. AECC South Industry Co., Ltd.
 
-美国国家安全顾问苏利文则持相反态度，他星期日在采访中称俄罗斯现在任何一天都可能军事入侵乌克兰，可能明天发生或者过几周。
+2. Beijing SWT Science
 
-同时，欧洲的天然气和能源供应也将是重要议题（不论是马克龙、普京会谈，还是欧盟、美国会谈）。欧盟最高外交代表约瑟夫·波利尔（Josep Borrell）将与美国磋商，保证短期内向欧洲海运额外的液化天然气，如果俄罗斯的供气管线出现问题。波利尔周一下午将与美国国务卿布林肯会面。
+3. Beijing Zhonghehangxun Technology Co., Ltd.
 
-北京冬奥会（冬眠会）的一系列事件似乎对俄爹和中共之间的关系造成了裂缝。首先，中共原先承诺同俄罗斯签署两个4600亿美元和一个4800亿美元的购买天然气大单，但是后来又反悔。而且俄罗斯要求中共用黄金担保人民币的本位价值，中共也不同意。没挣到钱普京当然不高兴。第二，郭文贵先生爆料称普京团队16人在北京感染病毒，一位替普京谈判的外籍人士还病死了。恼怒之下，普京提前退出了冬眠会。如果按原定的60小时访问，普京可能现在才刚刚离开北京。
+4. China National Erzhong Group Deyang Wanhang Die Forging Co., Ltd.
 
-普京离开中共国就接见马克龙也反映俄罗斯这只双头鹰可能在做两手准备。中共是一个不可信任的流氓政权，为什么要与它为伍呢？
+5. Chuzhou HKC Optoelectronics Technology Co., Ltd.
 
-**新闻来源：**
+6. Dongguan Durun Optical Technology Co., Ltd.
 
-[https://www.zerohedge.com/geopolitical/macron-seeks-ukraine-deescalation-expected-substantive-prolonged-putin-talks-kick](https://www.zerohedge.com/geopolitical/macron-seeks-ukraine-deescalation-expected-substantive-prolonged-putin-talks-kick)
+7. Dongguan Huiqun Electronic Co., Ltd.
 
+8. Guangdong Guanghua Sci-Tech Co.
+
+9. Guangxi Intai Technology Co., Ltd.
+
+10. Guangzhou Hymson Laser Tehnology Co., Ltd.
+
+11. Harbin Xinguang Feitian
+
+12. Hefei Anxin Reed Precision Co., Ltd.
+
+13. Heshan Deren Electronic Technology Co., Ltd.
+
+14. Hubei Longchang Optical Co., Ltd.
+
+15. Hubei Sinophorus Electronic Materials Co., Ltd.
+
+16. Hunan University
+
+17. Jinan Bodor CNC Machine Co., Ltd.
+
+18. Jiutian Intelligent Equipment Co., Ltd.
+
+19. Kunshan Heng Rui Cheng Industrial Technology Co., Ltd.
+
+20. Shanghai Fansheng Optoelectronic Science & Technology Co., Ltd.
+
+21. Shanghai Micro Electronics Equipment (Group) Co., Ltd.
+
+22. Shuang Xiang (Fujian) Electronics
+
+23. Southern University of Science and Technology
+
+24. Suzhou Chaowei Jingna Optoelectric Co., Ltd.
+
+25. Suzhou Gyz Electronic Technology Co., Ltd.
+
+26. Suzhou Lylap Mould Technology Co., Ltd.
+
+27. Wuxi Biologics Co., Ltd.
+
+28. Wuxi Biologics (Shanghai) Co., Ltd.
+
+29. Wuxi Turbine Blade Co., Ltd.
+
+30. Yunnan Fs Optics Co., Ltd.
+
+31. Yunnan Tianhe Optoelectronic Co., Ltd.
+
+32. Zhengzhou Baiwai Intelligent Automation
+
+33. Zhuzhou CRRC Special Equipment Technology Co.
+
+截止目前，这份名单上的实体总数大约达到了175个。
+
+商务部负责出口执法的助理部长，马修‧阿克塞尔罗德（Matthew Axelrod）在声明中说：“通过及时完成最终用途核查，来核实外国当事方的合法性与可靠性，是我们出口管控制度的一项核心原则。”他表示，将33家中国实体加入“未经核实名单”，将协助美国出口商从事尽职调查并评估风险，并向中共政府发出信号，表明他们在安排最终用户核查方面予以配合的重要性。
+
+美国商务部要求，美国公司与纳入名单的实体进行交易，必须进行额外的尽职调查，包括提交更多的文件。按照限制措施，美国出口商若想与被列入名单的中国公司交易，必须获得许可证。同时，美方提醒被列入清单上的公司必须证明自己是合法的，并且愿意遵守美国法规才能继续接收货物。
+
+信息来源： [**美国加强对华出口管制**** 33家中国实体上榜**](https://www.ntdtv.com/b5/2022/02/08/a103342431.html)
+
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
