@@ -2,30 +2,24 @@
 ---
 
 
-## 以色列“疫苗护照”政策发生重大变更
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1976339/)
+## 中共的冬奥会将是习近平断魂的开幕式
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1976357/)
 
-加拿大溫哥華楊帆農場楓葉快訊
+加拿大温哥华杨帆农场枫叶快讯
 
-采編/ 翻譯編輯：  自由法蘭西
+采编：风云小哥    翻译：文莱
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GettyImages-1237970843-scaled-1-400x225.jpg)
+据英国【每日邮报】2月4日报道，中共政权在举行冬奥会的数日之后，日益高涨的国际舆论声讨浪潮，已导致中共同时遭遇其喉舌媒体与金钱外交的集体“滑铁卢”。
 
+报道称，尽管中共选择了一名维吾尔族运动员在开幕式上点燃奥运圣火，企图以此掩饰该政权的族灭绝罪行，但西方民主国家早已认定了中共的各项反人类罪名。因此，针对本次冬奥会的外交抵制将愈演愈烈。
 
-![](https://static1.straitstimes.com.sg/s3fs-public/styles/large30x20/public/articles/2022/02/02/yq-isrvac-02022022.jpg?VersionId=nb_w3Vh8FiLXNfffA9v1VwLLrCDHEkzE&amp;itok=rb3H8S2i)
+此外，据2月6日文贵大直播透露，由于参加奥运开幕式的外交团队集体染疫，加之习近平未能履行早前已和俄罗斯达成的有关人民币流通以及等量价值黄金抵押的双边协议，总统普京已愤然提前返回俄罗斯。并导致中俄所谓战略伙伴关系以及习近平和普京的私人关系都遭到重创。
 
+对此，文贵先生表示，冬奥会将会成为加速葬送中共政权的冬眠会，同时也将是习近平当局噩梦的开始，而且不久后的冬奥会闭幕式也将成为永远无法闭幕的中共追悼会
 
-據新加坡《海峽時報》近日報道，以色列政府表示，作為首批推行疫苗護照的國家之一，該國將開始逐步停止使用疫苗護照。
+原文链接：China chooses Uyghur athlete light flame at Winter Olympics in a bid to deflect genocide accusations | Daily Mail Onlin
 
-報道稱，以色列政府的疫情工作組最近決定，除了「公眾密集聚會的高風險場所外」，餐館、酒吧、健身房和酒店等大部分公共場所，都將放棄使用疫苗護照。此外，未接種疫苗者也可在不做病毒測試的情況下直接登機旅行。
-
-據悉，該決定是以色列當局在「新冠病毒」感染人數持續保持歷史高位的情況下做出的。目前該國的日均新增感染個案已超過6萬例。
-
-對此，相關流行病專家指出，以色列政府的上述決定是明智的，因為事實表明，已接種者仍然在被反復感染，而繼續推廣疫苗護照只是自欺欺人之舉。
-
-原文鏈接：
-
-[https://www.straitstimes.com/world/middle-east/vaccine-passport-pioneer-israel-to-curb-use-of-green-pass](https://www.straitstimes.com/world/middle-east/vaccine-passport-pioneer-israel-to-curb-use-of-green-pass)
-
-校對編輯：硫酸羥氯喹64 發稿：青青
+校对编辑：硫酸羟氯喹64 发稿：青青
 
  
 

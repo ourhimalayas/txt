@@ -2,25 +2,31 @@
 ---
 
 
-## 《美国竞争法案》中被中共蓝金黄掉的重要条款
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1976213/)
+## 七哥谈“人类最新的文明”（2022-02-02摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1976266/)
 
-加拿大温哥华扬帆农场 枫叶快讯：硫酸羟氯喹64
+文编：Hima
+听写：叮叮
+视频：七哥
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot_20220208-120020-1.jpg)图片来源：GTV
+来源：郭先生2022-02-02直播10：42：07摘录
 
+我告诉大家这不叫金融。喜联储我从第一天告诉大家，这是超越国家主权、超越信仰、超越物理世界、人与人之间，最新的、最重要的、是人类最新的文明。解放生产力、开发人的智慧、缩短、几乎消灭人与人之间的距离、超出人类信仰，这样的互相相信的关系。这是为什么新中国联邦让大家一定要有增加辨别真假和善恶的能力，你别把自己毁了。
 
-据2月6日GTV文贵大直播消息透露，在美国众议院刚刚通过针对遏制中共扩张的《美国竞争法案》中，有部分涉及台湾安全的关键性条款，在中共蓝金黄势力的游说之下被迫删除。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-消息称，这些被取消的条款包括：习近平当局若武力攻台，美国政府不仅会立即公开和查封中南坑盗国贼家族的全部海外资产，还将与中共的经济彻底脱钩并断绝双边外交关系等措施。
+**关注我们**
 
-对此，文贵先生表示：尽管中共利用其在美国的深度渗透和游说能力，看似成功取消了以上重要条款，但却无法根本影响在美台关系中起主导作用的[美国立法会]。该法案事实上已明确了美国政府将保护台湾不受中共武力入侵的基本立场，并使美方在中共未来发动台海战争之时，拥有更多军事反击的行动空间。因此，中共如继续执意攻打台湾，必将自取灭亡！
+Discord 账号
 
-新闻来源：[https://gtv.org/video/id=61ffc26b3621aa7415d64d51](https://gtv.org/video/id=61ffc26b3621aa7415d64d51)
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-* * *
+Gettr 账号
 
-编辑撰稿，发稿：硫酸羟氯喹64
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

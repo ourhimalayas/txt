@@ -2,24 +2,30 @@
 ---
 
 
-## 冬奥会开幕式在疫情恐惧下始乱终弃
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1975996/)
+## NFSC新闻、G|TV新闻访谈简报|2022年2月8日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1976029/)
 
-采编：Quitman        编辑撰稿：硫酸羟氯喹64
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot_20220208-114014.jpg)
-据2月4日GTV文贵大直播报道，就在冬奥会开幕式之前，负责主席台安全的特警队狙击手队长，疑因此前接种了“中共病毒”疫苗，而猝死于盘古龙头之下，成为首个被天意祭旗的中共亡魂。党魁习近平则因此手足无措，惊恐莫名。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-4.jpg)
 
-据悉，当天入住北京华尔道夫酒店的普京冬奥会团队，传出已有16人染疫，酒店内3人病亡。为此，普京在惶恐之余，悲愤斥责习近平当局连最基本的健康保障都无法提供。同时，在距北京5000公里外的习家军也因受此事影响，现已进入战备状态。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-7.png)
+文章仅代表作者本人观点，与Gnews无关
 
-此外，原计划出席冬奥会开幕式的97位国家元首，目前只有35位如约前来。其中，多个参会的外国使团，以“立即撤走参赛运动员”为要挟，逼迫中共立刻支付其更多的出场费用。
+视频参看：
+[2022.02.08早 《NFSC新闻》](https://gtv.org/video/id=620270173621aa7415d79f7a)
+[2022.02.08早 G|TV《新闻访谈》](https://gtv.org/video/id=620278393621aa7415d7a38a)
 
-至此，[新中国联邦]近期发动的甜蜜蜜灭共战役已初获胜果。而习近平痴梦以求，万国来朝的冬奥会，已被正式官宣进入自戕的冬眠状态。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-校对编辑：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2022/02/calendar-1.png)
 
-发稿：文明(添草灭共)
-
-新闻来源：[https://gtv.org/video/id=61fd1a6596ba5d73e0c28b83](https://gtv.org/video/id=61fd1a6596ba5d73e0c28b83)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
