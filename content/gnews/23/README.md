@@ -2,26 +2,30 @@
 ---
 
 
-## 农历新年后，多个亚洲国家中共病毒感染病例激增
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1972750/)
+## 美商务部将33家中共国实体纳入“未经核实名单”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1972759/)
 
-#### 撰稿：彩虹 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Unknown-7.jpg)美商务部将33家中共国实体纳入“未经核实名单” 网络图片
+据美国之音2月8日报道，美国商务部的工业与安全局(BIS)7日宣布将33个总部在中共国的实体列入“未经核实名单”，对这些实体公司实施新的限制，并要求与这些公司有业务往来的美国公司进行额外调查。此次被纳入名单的多数是电子公司。纳入这33个实体后，该榜单上的公司总数达到了175个。
 
-#### 责编：白夜 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-766.png)图片来源：CTV News
-2月7日，《国会山报》引述相关报道，指在农历新年庆祝活动结束大约一周后，多个亚洲国家报告了中共病毒（COVID-19）病例数激增。
+按照限制措施，美国出口商若想向这些公司发货，必须获得许可证。而这些公司若希望继续接受美国的货物，必须证明其合法性、真实性和可靠性，而且愿意遵守美国的法规，在接收美国产品之后不会将其挪作他用。美国政府尤其担心产品到了中共国后会被挪作军用。
 
-据美联社报道，周日，日本报告了9万个中共病毒病例，其中仅在东京就有超过17,500个。印度尼西亚则报告了36,057个每日病例，比一个月前的533例有所增加。
+这些检查通常需要与中共政府协调进行。当美国无法检查或核实后，便可能将其纳入“未经核实名单”。如果同意接受检查并证明其合法，该公司有可能被移除出名单。中共从前像八爪鱼一样四处渗透美国，各行各业都布置了暗藏的力量。美国开始出台一系列法规，通过一系列措施来斩断和挖掘中共国延伸进来的和潜伏的力量。中共靠偷和骗招摇过市的好日子一去不复返了，尤其是病毒和疫苗灾难对全世界的伤害，中共即将面对全世界的追责，制裁只是第一步。
 
-在香港，所有中共病毒病例都需要住院治疗，该地报告的病例数达到了614例，创下新高。周一，香港卫生防护中心（Hong Kong’s Centre for Health）的一名官员Edwin Tsui告诉美联社记者说：“我们预计几天后会有更多病例出现，我们认为这是在节日活动和聚会后的一些影响。以我们目前的遏制措施，希望仍然能够控制住这种疾病。”
+新闻参考链接：[https://www.voachinese.com/a/commerce-department-adds-33-parties-in-prc-to-unverified-list-20220207/6431365.html](https://www.voachinese.com/a/commerce-department-adds-33-parties-in-prc-to-unverified-list-20220207/6431365.html)
 
-周一，香港当局还宣布，从周二开始，任何与病毒检测结果呈阳性的人有过密切接触的人都要在家隔离。
+* * *
 
-同时，新加坡的病例自假期以来增加了两倍，达到了周五报告的13,000例。但是到了周日，新增病例减少到了7,752例。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-**新闻来源**
 
-[COVID-19 cases spike in Asia after Lunar New Year](https://thehill.com/policy/international/asia-pacific/593176-covid-19-cases-spike-in-asia-after-lunar-new-year?rl=1)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

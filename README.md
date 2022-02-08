@@ -15,101 +15,101 @@
 
 ---
 
-### [塞北的雪（四）](/content/gnews/1/README.md)
- ` 雅典娜GNotes`
+### [新闻集团遭黑客入侵 部分电邮和文件被中共关联人员窃取](/content/gnews/1/README.md)
+ ` 日本东京方舟农场`
 
-### [2.06大直播后记：习太阳和大国脆弱的私人关系](/content/gnews/2/README.md)
- ` 雅典娜GNotes`
-
-### [2/6/2022 文贵直播：文贵在2020年初就说病毒和疫苗造成的次生灾难和危机将于今年5月开始，这是文贵基于所掌握的中共情报而作出的判断](/content/gnews/3/README.md)
- ` 秘密翻译组-北美组`
-
-### [塞北的雪（三）](/content/gnews/4/README.md)
- ` 雅典娜GNotes`
-
-### [中共国一电信公司在美被起诉串谋盗窃商业秘密](/content/gnews/5/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [塞北的雪（二）](/content/gnews/6/README.md)
- ` 雅典娜GNotes`
-
-### [2/6/2022 文贵直播：中共为什么在文革期间让单伟建出国？中共是如何用乒乓外交渗透美国的？](/content/gnews/7/README.md)
- ` 秘密翻译组-北美组`
-
-### [塞北的雪（一）](/content/gnews/8/README.md)
- ` 雅典娜GNotes`
-
-### [沉默的战友](/content/gnews/9/README.md)
- ` 雅典娜GNotes`
-
-### [有品格的外国人不来](/content/gnews/10/README.md)
- ` 雅典娜GNotes`
-
-### [樱花头条┃CDC终于承认自然免疫比疫苗更有效](/content/gnews/11/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [币的交易信息只有喜联储才知道](/content/gnews/12/README.md)
- ` 雅典娜GNotes`
-
-### [2月6日文贵大直播摘要（图片）](/content/gnews/13/README.md)
- ` 波士顿五月花农场`
-
-### [美国宣布取消部分对日本的钢铁关税](/content/gnews/14/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [哈佛新研究证明新冠疫苗会增加感染和死亡人数](/content/gnews/15/README.md)
+### [奥运会无法拯救中国，改变体制才是出路](/content/gnews/2/README.md)
  ` 墨尔本雅典娜农场`
 
-### [HpayHdo秒转账秒支付并且拥有最安全的保密系统](/content/gnews/16/README.md)
+### [法院对渥太华市中心发出 10 天的鸣喇叭禁令](/content/gnews/3/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [新中国联邦会实现邓丽君小姐的遗愿](/content/gnews/4/README.md)
  ` 雅典娜GNotes`
 
-### [郭文贵先生2022年2月7日盖特视频（6分51秒）全文字版](/content/gnews/17/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [落实新郭七条跟着文贵先生一心一意灭共](/content/gnews/5/README.md)
+ ` 纽约香草山MOS03`
 
-### [共产党蓝金黄（三）](/content/gnews/18/README.md)
+### [七哥唱歌《一帘幽梦》](/content/gnews/6/README.md)
  ` 雅典娜GNotes`
 
-### [北京2022年冬奥会变成饥饿游戏，参赛明星抱怨没有热饭吃](/content/gnews/19/README.md)
- ` 波士顿五月花农场金融部`
+### [七哥唱歌《甜蜜蜜》](/content/gnews/7/README.md)
+ ` 雅典娜GNotes`
 
-### [美商务部将33家中共国公司列入风险交易实体清单](/content/gnews/20/README.md)
- ` 秘密翻譯組G-Translators`
+### [沙利文：若俄罗斯入侵乌克兰 中共亦将付出代价](/content/gnews/8/README.md)
+ ` 日本东京方舟农场`
 
-### [每日快报：运动员们在地狱般的隔离中“疯狂地哭泣”](/content/gnews/21/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [塞北的雪 （五）](/content/gnews/9/README.md)
+ ` 雅典娜GNotes`
 
-### [美商务部将33家中共国实体纳入“未经核实名单”](/content/gnews/22/README.md)
+### [塞北的雪（四）](/content/gnews/10/README.md)
+ ` 雅典娜GNotes`
+
+### [2.06大直播后记：习太阳和大国脆弱的私人关系](/content/gnews/11/README.md)
+ ` 雅典娜GNotes`
+
+### [2/6/2022 文贵直播：文贵在2020年初就说病毒和疫苗造成的次生灾难和危机将于今年5月开始，这是文贵基于所掌握的中共情报而作出的判断](/content/gnews/12/README.md)
+ ` 秘密翻译组-北美组`
+
+### [无知之后必须付出的成功的代价（一）](/content/gnews/13/README.md)
+ ` 雅典娜GNotes`
+
+### [塞北的雪（三）](/content/gnews/14/README.md)
+ ` 雅典娜GNotes`
+
+### [中共国一电信公司在美被起诉串谋盗窃商业秘密](/content/gnews/15/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [农历新年后，多个亚洲国家中共病毒感染病例激增](/content/gnews/23/README.md)
- ` 秘密翻譯組G-Translators`
+### [塞北的雪（二）](/content/gnews/16/README.md)
+ ` 雅典娜GNotes`
 
-### [战争临近，拜登正式建议在乌克兰非美国外交人员离境](/content/gnews/24/README.md)
- ` 秘密翻譯組G-Translators`
+### [2/6/2022 文贵直播：中共为什么在文革期间让单伟建出国？中共是如何用乒乓外交渗透美国的？](/content/gnews/17/README.md)
+ ` 秘密翻译组-北美组`
 
-### [澳大利亚必须与中共国抗衡，否则将“失去下一个十年”](/content/gnews/25/README.md)
- ` 走进澳洲`
+### [有品格的外国人不来](/content/gnews/18/README.md)
+ ` 雅典娜GNotes`
 
-### [2022年2月8日《樱花快报》：美专家建议取消中共病毒疫情限制措施](/content/gnews/26/README.md)
+### [樱花头条┃CDC终于承认自然免疫比疫苗更有效](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共利用冬奥会窃取各国运动员DNA](/content/gnews/27/README.md)
+### [哈佛新研究证明新冠疫苗会增加感染和死亡人数](/content/gnews/20/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [美商务部将33家中共国公司列入风险交易实体清单](/content/gnews/21/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [每日快报：运动员们在地狱般的隔离中“疯狂地哭泣”](/content/gnews/22/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [美商务部将33家中共国实体纳入“未经核实名单”](/content/gnews/23/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [农历新年后，多个亚洲国家中共病毒感染病例激增](/content/gnews/24/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [战争临近，拜登正式建议在乌克兰非美国外交人员离境](/content/gnews/25/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [澳大利亚必须与中共国抗衡，否则将“失去下一个十年”](/content/gnews/26/README.md)
+ ` 走进澳洲`
+
+### [2022年2月8日《樱花快报》：美专家建议取消中共病毒疫情限制措施](/content/gnews/27/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共利用冬奥会窃取各国运动员DNA](/content/gnews/28/README.md)
  ` 扬帆枫叶快讯`
 
-### [俄罗斯总统普京提前紧急撤离北京冬奥会](/content/gnews/28/README.md)
+### [俄罗斯总统普京提前紧急撤离北京冬奥会](/content/gnews/29/README.md)
  ` 扬帆枫叶快讯`
 
-### [冬奥会开幕式在疫情恐惧下始乱终弃](/content/gnews/29/README.md)
+### [冬奥会开幕式在疫情恐惧下始乱终弃](/content/gnews/30/README.md)
  ` 扬帆枫叶快讯`
 
-### [疫情何时结束？ 科学家说，这很复杂](/content/gnews/30/README.md)
+### [疫情何时结束？ 科学家说，这很复杂](/content/gnews/31/README.md)
  ` 澳喜特战旅Gnews`
 
-### [聚焦：通胀和无效市场是中共的两道鬼门关](/content/gnews/31/README.md)
+### [聚焦：通胀和无效市场是中共的两道鬼门关](/content/gnews/32/README.md)
  ` 丁过`
-
-### [新不伦瑞克省法院：中止未接种疫苗的父亲的监护权，称疫苗安全性和有效性“众所周知”](/content/gnews/32/README.md)
- ` 温哥华圆成农场🇨🇦`
 
 ### [中共国与世不同的行事规则让所有人都付出代价](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`

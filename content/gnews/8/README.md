@@ -2,20 +2,31 @@
 ---
 
 
-## 塞北的雪（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1972946/)
+## 沙利文：若俄罗斯入侵乌克兰 中共亦将付出代价
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1973017/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+**撰稿：日本东京方舟农场  幽蘭自得**
 
-*发布：陶子*
+2月6日，白宫国家安全顾问杰克·沙利文（Jake Sulliwan）警告中共，若支持俄罗斯入侵乌克兰，中共也将付出代价。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-107.jpg)图为2021年12月7日，沙利文在白宫布雷迪简报室的每日新闻发布会上发言。（图片来自NICHOLAS KAMM/AFP via Getty Images）
+据《大纪元》报道，在上周与俄罗斯的一份联合声明中，中共称反对北约扩张，指责美国加剧了紧张局势，并表示支持克里姆林宫向西方索取其要求的安全保证。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+沙利文在接受美国全国广播公司（NBC）政论节目《会晤新闻界》（Meet the Press）的采访时表示：“我们认为，北京（中共）最终将承担俄罗斯入侵乌克兰的部分成本，他们在未来几周与俄罗斯政府的接触时应该考虑这一点。”
+
+另外，在采访中，当被问及“如果他们（中共）帮助俄罗斯绕过制裁，将受到何种惩罚？”时，沙利文表示，针对俄罗斯的制裁可能会同时对中共产生直接影响，因为制裁将针对俄罗斯的金融体系，而这当然也会影响中共国经济。
+
+沙利文补充说，“中（共）国将可以选择是否接受制裁，都会有相应的处罚。”
+
+同日，沙利文还在美国广播公司（ABC）《本周》（This Week）节目中说，他相信中共明白，它没有能力“补偿俄罗斯因我们的制裁而造成的经济损失”。
+
+他指出，如果俄罗斯真的选择向前迈进，那么这会让俄罗斯付出战略代价，如果中共国被视为在支持俄罗斯，那么在世界的眼中、在欧洲的眼中、在其它国家的眼中，中共国也将付出一定代价。这些国家现在正在观望，并发出一个明确的信息，即他们更希望看到外交而不是战争。
+
+参考链接：
+[https://www.epochtimes.com/b5/22/2/6/n13559224.htm](https://www.epochtimes.com/b5/22/2/6/n13559224.htm)
+
+素材采编：幽蘭自得
+编辑：老孙
+发布：爱放飞
 
  
 

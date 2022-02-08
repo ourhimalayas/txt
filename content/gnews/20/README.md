@@ -2,34 +2,26 @@
 ---
 
 
-## 美商务部将33家中共国公司列入风险交易实体清单
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1972804/)
+## 哈佛新研究证明新冠疫苗会增加感染和死亡人数
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1972829/)
 
-#### 撰稿：彩虹       
+##### 翻译：Julia Gao
+校对：枳实
+剪辑|字幕：文驰
+编辑：Mttfly
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-767.png)图片来源：BizToc
-2月7日，《新闻极限》引述美联社报道，拜登政府正在对33家合法性无法核对的中共国公司标记为“风险交易”（Red Flag），要求与它们做生意的美国公司进行额外调查。
+哈佛大学在《欧洲流行病学杂志》上发表了一个对68个国家和美国29个州、2900个县的研究报告。该报告批驳了新冠疫苗可以有效阻止疫情传播的观点。贝克尔新闻在9月份指出，一个国家的疫苗接种水平和新冠病毒的发病率之间存在正相关关系。仅仅通过原始数据就可以得出：地球上接种疫苗最多的国家， 新冠病毒发病率也最高。据InfoWars分析，NBA已达97%的疫苗接种率，在今年强制疫苗的情况下，NBA将会有更多的新冠病例产生。
 
-周一，商务部表示，它正在将这些公司列入“未经核实名单”（Unverified List），这是一份全球企业的名册，因为由于美国官员无法对这些企业进行常规的检查，这些企业将受到更为严格的出口控制。
+视频链接：[New Harvard Study Proves Vaccines Increasing COVID](https://www.brighteon.com/fd882b58-d316-4b0b-9405-52673e56b2d4)
 
-商务部负责出口执法的助理部长马修·阿克塞尔罗德（Matthew Axelrod）在一份声明中说：“及时完成最终用途检查来验证接受美国出口的外国方的合法性和可靠性的能力，是我们出口管制系统的一个核心原则。”
-
-他说，将中共国的33个当事方列入未核实名单，“将有助于美国出口商进行尽职调查和评估交易风险，并向中国政府表明他们在安排最终用途检查方面进行合作的重要性。”
-
-报道说，此前，联邦调查局局长克里斯托弗·雷（Christopher Wray）在上周的一次演讲中表示，该局大约每12小时就会展开与中国情报行动有关的调查，并警告说，“没有任何国家比中国对我们的思想、创新和经济安全构成更广泛的威胁。”
-
-但是，中共国一再拒绝美国政府的指控，说华盛顿是毫无根据的攻击和恶意的抹黑。
-
-报道认为，商务部此举旨在告知中共国，如果它想让这些公司从名单上消失，它必须允许美国对这些公司进行检查和审视。
-
-文章披露，这些周一被标记为“风险交易”的大多数公司是电子企业，但也包括光学公司、一家涡轮叶片公司、大学里的国家实验室和其他企业。
-
-截至目前，“风险交易”实体清单上的中共国公司总数达到了约175家。
-
-**新闻来源**
-
-[Commerce Dept. Adds 33 Chinese Companies to Red Flag List](https://www.newsmax.com/newsfront/chinese-companies-red-flag-list/2022/02/07/id/1055866/)
+*发布：Mttfly*
+**
+更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

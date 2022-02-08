@@ -2,24 +2,26 @@
 ---
 
 
-## 战争临近，拜登正式建议在乌克兰非美国外交人员离境
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1972731/)
+## 农历新年后，多个亚洲国家中共病毒感染病例激增
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1972750/)
 
-#### 撰稿：彩虹       
+#### 撰稿：彩虹 
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-765.png)图片来源：雅虎
-2月7日，《国会山报》报道，周一，拜登总统正式建议身在乌克兰的美国人离开该国，原因是如果俄罗斯入侵他们会有暴力风险。
+#### 责编：白夜 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-766.png)图片来源：CTV News
+2月7日，《国会山报》引述相关报道，指在农历新年庆祝活动结束大约一周后，多个亚洲国家报告了中共病毒（COVID-19）病例数激增。
 
-根据报道，拜登在与德国总理奥拉夫·肖尔茨（Olaf Scholz）举行的联合新闻发布会上，在澄清不是指外交人员的情况下，说：“我认为离开这个国家是明智的……如果（俄罗斯）真的入侵，我不愿看到他们陷入交火之中。没有必要这样做，如果有任何人在那里，我会建议他们离开。”
+据美联社报道，周日，日本报告了9万个中共病毒病例，其中仅在东京就有超过17,500个。印度尼西亚则报告了36,057个每日病例，比一个月前的533例有所增加。
 
-拜登和肖尔茨的会晤正值美国试图与盟国展示统一战线，计划反击俄罗斯进一步入侵乌克兰的任何努力。
+在香港，所有中共病毒病例都需要住院治疗，该地报告的病例数达到了614例，创下新高。周一，香港卫生防护中心（Hong Kong’s Centre for Health）的一名官员Edwin Tsui告诉美联社记者说：“我们预计几天后会有更多病例出现，我们认为这是在节日活动和聚会后的一些影响。以我们目前的遏制措施，希望仍然能够控制住这种疾病。”
 
-拜登承认俄罗斯有能力入侵乌克兰，但他说不确定俄罗斯总统弗拉基米尔·普京（Vladimir Putin）是否会接下来如此做，说“我不知道他（普京）知道自己要做什么。而且我认为他必须认识到，对乌克兰采取行动将是一个巨大的错误，对欧洲和世界其他地区的影响将是毁灭性的，他将付出沉重的代价。”
+周一，香港当局还宣布，从周二开始，任何与病毒检测结果呈阳性的人有过密切接触的人都要在家隔离。
+
+同时，新加坡的病例自假期以来增加了两倍，达到了周五报告的13,000例。但是到了周日，新增病例减少到了7,752例。
 
 **新闻来源**
 
-[Biden advises Americans in Ukraine to leave the country](https://thehill.com/homenews/administration/593155-biden-advises-americans-in-ukraine-to-leave-the-country)
+[COVID-19 cases spike in Asia after Lunar New Year](https://thehill.com/policy/international/asia-pacific/593176-covid-19-cases-spike-in-asia-after-lunar-new-year?rl=1)
 
  
 
