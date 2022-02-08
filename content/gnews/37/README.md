@@ -2,92 +2,35 @@
 ---
 
 
-## 中日财经爆┃美国加强对中共出口管制 33家实体上榜
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1973444/)
+## 美国呼吁中共尽快兑现贸易协议承诺
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1973575/)
 
-撰稿：东京樱花团/asket
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-777.png)[**图片来源**](https://gbcode.rthk.hk/TuniS/news.rthk.hk/rthk/ch/component/k2/1621343-20211125.htm)
-美国商务部2月7日宣布，将33家中共实体列入“未经核实名单”(Unverified List)。这些实体获得美国产品，将必须接受更严格的出口管控。美国商务部发表的声明说，美国官员无法对清单中这些实体进行核查，以确定这些实体的“善意”(bona fides)，因此必须对这些公司从美国出口商那裡获取产品实施新的限制。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-被纳入出口管制清单的33家中国实体，大多数是电子企业、光学公司、涡轮叶片公司、大学的国家实验室和其他企业。包括中国航发南方工业有限公司（AECC South Industry Co., Ltd）、北京世维通科技公司（Beijing SWT Science）、济南邦德激光（Jinan Bodor CNC Machine）、湖南大学（Hunan University）等。
+整理：Eileen（围剿维尼熊）
+编辑：朝花夕拾
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-614.png)
+根据经济日报2月7日报道：路透社报道，美国官员周一呼吁中共国兑现川普时期签署的“第一阶段”贸易协议—“于2020和2021年加码购买2000亿美元美国商品和服务”的承诺。
 
-1. AECC South Industry Co., Ltd.
+美国官员表示，华盛顿对北京正逐渐失去耐性，北京近几个月并未展现有意缩减前两年采购差额的迹象。
 
-2. Beijing SWT Science
+有分析师估计，美国即将发布的全年贸易数据会显示中共国在增加采购美国农产品、工业制品、能源和服务上，与中共所承诺有巨大落差。
 
-3. Beijing Zhonghehangxun Technology Co., Ltd.
+根据彼得森国际经济研究所（PIIE）研究员Chad Bown汇整的贸易数据，截至11月，中共仅达成约60%的目标。
 
-4. China National Erzhong Group Deyang Wanhang Die Forging Co., Ltd.
+另外美方表示会就协议约定继续向中共国施压。
 
-5. Chuzhou HKC Optoelectronics Technology Co., Ltd.
+参考链接：https://udn.com/news/story/6813/6080830?from=udn\_ch2\_menu\_v2\_main\_cate
 
-6. Dongguan Durun Optical Technology Co., Ltd.
+*发布：tianzhihuan*
 
-7. Dongguan Huiqun Electronic Co., Ltd.
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-8. Guangdong Guanghua Sci-Tech Co.
-
-9. Guangxi Intai Technology Co., Ltd.
-
-10. Guangzhou Hymson Laser Tehnology Co., Ltd.
-
-11. Harbin Xinguang Feitian
-
-12. Hefei Anxin Reed Precision Co., Ltd.
-
-13. Heshan Deren Electronic Technology Co., Ltd.
-
-14. Hubei Longchang Optical Co., Ltd.
-
-15. Hubei Sinophorus Electronic Materials Co., Ltd.
-
-16. Hunan University
-
-17. Jinan Bodor CNC Machine Co., Ltd.
-
-18. Jiutian Intelligent Equipment Co., Ltd.
-
-19. Kunshan Heng Rui Cheng Industrial Technology Co., Ltd.
-
-20. Shanghai Fansheng Optoelectronic Science & Technology Co., Ltd.
-
-21. Shanghai Micro Electronics Equipment (Group) Co., Ltd.
-
-22. Shuang Xiang (Fujian) Electronics
-
-23. Southern University of Science and Technology
-
-24. Suzhou Chaowei Jingna Optoelectric Co., Ltd.
-
-25. Suzhou Gyz Electronic Technology Co., Ltd.
-
-26. Suzhou Lylap Mould Technology Co., Ltd.
-
-27. Wuxi Biologics Co., Ltd.
-
-28. Wuxi Biologics (Shanghai) Co., Ltd.
-
-29. Wuxi Turbine Blade Co., Ltd.
-
-30. Yunnan Fs Optics Co., Ltd.
-
-31. Yunnan Tianhe Optoelectronic Co., Ltd.
-
-32. Zhengzhou Baiwai Intelligent Automation
-
-33. Zhuzhou CRRC Special Equipment Technology Co.
-
-截止目前，这份名单上的实体总数大约达到了175个。
-
-商务部负责出口执法的助理部长，马修‧阿克塞尔罗德（Matthew Axelrod）在声明中说：“通过及时完成最终用途核查，来核实外国当事方的合法性与可靠性，是我们出口管控制度的一项核心原则。”他表示，将33家中国实体加入“未经核实名单”，将协助美国出口商从事尽职调查并评估风险，并向中共政府发出信号，表明他们在安排最终用户核查方面予以配合的重要性。
-
-美国商务部要求，美国公司与纳入名单的实体进行交易，必须进行额外的尽职调查，包括提交更多的文件。按照限制措施，美国出口商若想与被列入名单的中国公司交易，必须获得许可证。同时，美方提醒被列入清单上的公司必须证明自己是合法的，并且愿意遵守美国法规才能继续接收货物。
-
-信息来源： [**美国加强对华出口管制**** 33家中国实体上榜**](https://www.ntdtv.com/b5/2022/02/08/a103342431.html)
-
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

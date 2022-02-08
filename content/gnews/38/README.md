@@ -2,35 +2,22 @@
 ---
 
 
-## 有声|新中国联邦让女性获得真正的平等与尊重
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1973351/)
+## 欧盟在WTO提诉中共 英国要求参与谘商
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1973475/)
 
-配音：香草山巡管部 – 格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-在2月6日的大直播中，郭文贵谈到，徐州被拐妇女遭受的非人虐待，以及整个社会对犯罪行为的纵容。郭先生揭示了，中共国所谓妇女平等的假象，指出只有灭掉中共，妇女儿童才能得到真正的保护和尊重。
+撰稿：东京樱花团/asket
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-778.png)[**图片来源**](https://www.rti.org.tw/news/view/id/2123972)** 图为**英国国际贸易大臣屈维里安(Anne-Marie Trevelyan)
+去年，立陶宛因不满中共侵犯人权和不公平贸易等作为，率先宣布退出中共国与中东欧国家的17+1互动机制，并允许台湾在立国首都维尔纽斯（Vilnius）设立名为“台湾代表处”的驻外机构，随后遭到了中共在外交和经济贸易等方面的打击报复。针对中共政府的上述霸凌行为，欧盟于1月27日向世贸组织提诉。按程序这场诉讼正处于“谘商”阶段。
 
-几十年来，在中共国的农村就存在贩卖妇女儿童的现象，一直延续至今。中共国对女性的定位，就是生育工具和劳动力商品。改革开放之后，在中共的舆论控制下，营造出男女平等的假象中，女性似乎得到平等了。实际上，工作待遇和晋升机会，都无法和男性相比，明显存在歧视。中国女性从女童，到母亲，再到各种社会角色，从没被公平对待过。
+周一（7日），英国国际贸易大臣屈维里安在其推特帐号上发文表示，英国支持立陶宛和欧洲联盟抵抗中共政府的胁迫性贸易行为，为确保与盟友共同对抗中共的经贸胁迫，英国将要求以第三方身分参与欧盟在WTO的谘商程序。
 
-郭先生为之动容，为之愤怒。他说，只有灭掉邪恶的中共，才能彻底解救被绑架被虐待的妇孺。而这正是爆料革命的使命和价值所在。
+这意味著，英国将成为继美国和澳大利亚后，第三个要求参与相关谘商程序的非欧盟国家。
 
-在新中国联邦这个团队中，女性战友占了大半边天，以每天的勤勉工作，无私奉献，获得了平等和尊重。今年的Gclub年会，主题是，为中国女性发声。郭先生将准备演唱两首歌曲，一首献给中国女性，一首献给天下母亲。
+信息来源： [欧盟在WTO提诉中共 英国要求参与谘商](https://www.ntdtv.com/b5/2022/02/07/a103342177.html)
 
-
-
-文字版原文：[新中国联邦让女性获得真正的平等与尊重](https://gnews.org/zh-hans/1971184/)
-
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

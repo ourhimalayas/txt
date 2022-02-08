@@ -2,29 +2,28 @@
 ---
 
 
-## 中日财经爆|中共国企在秘鲁铜矿遭当地民众抗议将停摆
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1973956/)
+## 疫苗灾情｜美国 20 岁女模特接种疫苗后心脏骤停 双腿截肢保命
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1974005/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-784.png)[图片来源](https://bowenpress.com/news/bowen_205621.html)
-路透社2月7日报道，根据未报告的用电量数据和公司消息人士，上月底抗议者堵路后，中共国企五矿资源旗下秘鲁邦巴斯(Las Bambas)铜矿的采矿活动已经开始急剧下降。该铜矿产量占全球供应量的2%。
+**撰文/ 疫情关注组｜发布日期/ 08/02/2022**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2c82b8914a2be6279ef40e51a3db53e5.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/post/pl6k0218bf](https://gettr.com/post/pl6k0218bf)**
 
-邦巴斯铜矿自2016年开始运营以来，一直是抗议活动的热点。五矿资源周一警告称，如堵路持续，预计秘鲁邦巴斯铜矿的生产将于2月20日停止。然而路透看到的该矿的用电需求数据显示，2月2日该矿的活动已经开始骤减。公司的一位消息人士证实，这是由于堵路对该矿活动的影响。
+美国佛罗里达州一名 20 岁的女模特 Claire Bridges 在接种完第二剂 COVID-19 疫苗后，因腿部剧烈疼痛被送入坦帕综合医院诊治，先后确诊患上心肌炎、横纹肌溶解症、肺炎、酸中毒等疾病。
 
-2014年4月，中资企业五矿资源以近60亿美元的价格从瑞士的嘉能可（Glencore）手中收购了该矿。五矿资源的最终控股股东为中共国国有企业集团中国五矿集团公司。
+入院治疗期间，Claire 一度发生心脏骤停，虽然经心肺复甦术后，得以保命，但由于因肾脏衰竭而持续经历的透析治疗加重了她腿部的压力，血液无法正常流动，她必须切除坏死的双腿。
 
-该铜矿命自2015以来便一直面临断断续续的抗议和道路封锁，居民抱怨运输铜矿的卡车污染了他们的农作物，杀死了他们的牲畜，而且该矿没有为当地社区的福祉做出经济贡献。当年9月，就有超过一万名周边居民聚集抗议铜矿项目，并与警方发生激烈冲突，导致四人死亡，当局宣布实施紧急状态。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/美國-20-歲女模特接種疫苗後心臟驟停-雙腿截肢保命.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/美國-20-歲女模特接種疫苗後心臟驟停-雙腿截肢保命-2.jpeg)
 
-消息来源:独家：[五矿资源旗下秘鲁邦巴斯铜矿采矿活动骤降–数据和消息](https://cn.reuters.com/article/minmetals-peru-copper-mine-0208-idCNKBS2KD04P?il=0)
 
-[秘鲁中资铜矿遭居民围堵被迫停产 该国总理忧国家陷入困境](https://www.bbc.com/zhongwen/simp/world-59754557)
+Claire 的父亲 Wayne 在 facebook 上写道：“当她看到自己失去双腿的那一刻时，Claire 笑着轻声说到『我想我需要义肢了』。”
 
-*编辑：东京樱花团/知了知了*
-*发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
-#  
+父亲续指，虽然 Claire 的康复之路还很长，但作为父亲，希望她能够继续坚强战斗，并继续做想做的事。
 
-#  
+根据最新情况显示，Claire 情况并不乐观，还有一场手术将于2 月 8 日进行，她的父亲呼吁所有有心人能为 Claire 祈祷。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/美國-20-歲女模特接種疫苗後心臟驟停-雙腿截肢保命-1.jpg)
+来源｜[WTSP](https://www.wtsp.com/article/news/local/st-pete-woman-loses-both-legs-now-another-surgery/67-1ed03bb6-e944-4cc4-a0b8-63a364d2adce)
 
  
 

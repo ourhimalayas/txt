@@ -2,30 +2,26 @@
 ---
 
 
-## 拜登政府上周五解除了对伊朗核计划的制裁
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1974160/)
+## 日本拟在鹿儿岛部署美军无人机部队应对中共
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1974204/)
 
-作者：纽约香草山农场 – Delilah小胖
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-2.png)
+作者：纽约磐石农场—在远方
 
 
-盖特消息，拜登政府上周五恢复了对伊朗的所谓“民用核武器”豁免，允许非美国公司在伊朗从事所谓的民用核项目，而不会遭致美国政府的报复。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Happy_Lunar_New_Year.png)
-早前川普政府在2020年5月退出了伊朗核协议，并对与伊朗开展核计划关联业务的中共、俄罗斯和欧洲公司进行制裁。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-3.png)
 
-对于本次拜登政府解除对伊朗的核计划制裁，前国务卿迈克·蓬佩奥先生在其周六的盖文中表示：伊朗不会给予任何回报，以色列将面临更大的风险，美国人会为此付出代价。
 
-更有分析人士指出，从实质上对支持伊朗发展核武器、不断为伊朗的核武器研发输血的中共政权进行制裁，是阻止伊朗核计划发展，以及维护世界和平的根本。
+台媒2022年2月7日报道，鉴于中共在日本西南群岛一带活动频繁，日美两国政府正在考虑在日本鹿儿岛海上自卫队基地部署美军无人侦察机部队。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-file-1-scaled.jpg)
+据悉，去年2至7月，中共海警船连续157天航行在日本邻接海域，创最多天记录。去年8月，中共军方无人机连续3天飞航在宫古海峡。同样在宫古海峡，去年中共航母辽宁号，首度一年之内2次穿越。
+
+日本防卫省九州防卫局主管于1月27日造访鹿屋市表示，为了加强美日同盟威吓力与应对能力，有必要提升美国同盟的警戒监视能力。评论认为，美日双方在鹿屋部署美军无人侦察机部队一事，既可让日本加强西南群岛防卫的力度，也可让美军将鹿儿岛作为后勤支援据点。
 
 参考来源：
 
-1.[https://gettr.com/post/psnk12c3a7](https://gettr.com/post/psnk12c3a7)
+[防中國奪島 日本擬在鹿兒島部署美軍無人機部隊](https://cn.rti.org.tw/news/view/id/2123877)
 
-2.[https://gettr.com/post/psnw0533b4](https://gettr.com/post/psnw0533b4)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-20.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-21.jpg)
 
 编辑/校对/发稿：兰兰
 
@@ -42,7 +38,7 @@
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-2.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-4.png)
 
 
  
