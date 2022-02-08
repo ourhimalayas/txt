@@ -2,41 +2,55 @@
 ---
 
 
-## 加拿大“自由”卡车司机疫苗强制令抗议车队可能打破世界纪录
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1976759/)
+## “我觉得自己是最幸运的人”：汽车驶过客厅后，维多利亚女子安然无恙
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1976803/)
 
-**• 贾斯汀·特鲁多（Justin Trudeau）称抗议者为“边缘少数”。**
+作者：Adam Chan
+翻译：KK
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-83.png)
+日前BC省Victoria市发生一起事故，一名女子在家看电视的时候，突然一辆汽车冲了进来。
 
-**据《福克斯新闻》记者：Emma Colton, 报道：**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3427-a7x16-do3qr-9.jpg)
-2022年1月26日，星期三，卡车和车辆游行穿过安大略省桑德贝（Thunder Bay）外的卡卡贝卡瀑布（Kakabeka Falls）。支持者对跨境卡车抗议者欢呼雀跃。图片来源：加拿大新闻社记者大卫·杰克逊（David Jackson ）通过美联社刊发
+这起事故发生在上周六5日晚上。一辆汽车突然从路上撞进了一栋位于Lee Avenue与Fort Street十字路口附近的公寓。
 
-加拿大的卡车司机正在抗议对他们行业的疫苗强制令，他们的车队可能会打破世界纪录。
+“我听说最近有人喜欢在这条Fort Street街上找点刺激，加速转动汽车引擎，” 居民Lita Moth表示。
 
-自由车队2022（Freedom Convoy 2022）的发言人本杰明·迪希特 (Benjamin Dichter) 告诉《多伦多太阳报》，“车队有 70 公里长，我看过从飞机上拍的短片。令人印象深刻。”
+“但这一次，引擎转动的声音一直没有停过，直到发生这起事故，这辆车直接从我家客厅的窗户冲了进来，” 她说道。
 
-自由车队（Freedom Convoy）周日从温哥华出发前往渥太华，抗议联邦政府对跨境卡车司机实施疫苗强制令，该命令于1月15日生效。加拿大卡车运输联盟（Canadian Trucking Alliance）估计，该国大约15%的卡车司机没有完全接种疫苗，大约16,000名卡车司机。
+Moth回忆说，那时候她正坐在沙发上看电视。
 
-《吉尼斯世界纪录》显示，最长的车队记录发生在2020年的埃及，长达近5英里。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/sdf.png)
-2022年1月25日，家人、朋友和邻居聚集在加拿大萨斯喀彻温省（Saskatchewan）格伦费尔（Grenfell）横贯加拿大的高速公路边，表达对自由车队的支持。图片来源：马克·迪姆勒（Mark Dimler）通过路透社刊发
+“后来刚好进了广告，” 她说道，“我给我妈妈发了短信，放下手机站起身，刚走出客厅，车就冲进来了。”
 
-车队计划周六前抵达渥太华进行抗议。
+Moth形容当时她脑海里出现的第一感受是震惊，完全不能相信，还担心驾车者的安危。
 
-加拿大总理贾斯汀·特鲁多（Justin Trudeau）表示，“抗议的参与者是一小部分正在前往渥太华的边缘少数群体，他们持有不可接受的观点。”
+后来驾车的年轻男子自己下了车，Moth这才放心，他没有受伤。
 
-他继续补充：“我们完全不能接受这个车队某些人士所表达的信息。”
+当地警方确认，这起事故没有造成人员受伤，现在已先排除了醉酒驾车的因素，事件起因还有待进一步调查。
 
-**文章来源：**[https://www.foxnews.com/world/freedom-truckers-convoy-records-protest-vaccine-mandate-canada](https://www.foxnews.com/world/freedom-truckers-convoy-records-protest-vaccine-mandate-canada)
+不过警方也表示，当抵达事发地后，现场的情况还是让人捏了把汗。
 
-翻译：洛杉矶盘古农场 – WH
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 –彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+警方发言人Bowen Osoko表示，“这辆车完全冲进了这间公寓，万幸没有人受伤。”
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+Moth还表示，很感激事故发生后，邻居、家人、朋友和来到现场的急救人员所给予的支持。
+
+“过去几天我觉得我是这个地球上最幸运的人，” 她说道，“我很感激自己能活下来。”
+
+来源：https://vancouverisland.ctvnews.ca/i-feel-like-the-luckiest-person-victoria-woman-unharmed-after-car-drives-through-living-room-1.5773022
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

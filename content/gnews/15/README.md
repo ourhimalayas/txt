@@ -2,32 +2,33 @@
 ---
 
 
-## 拜登威胁要关闭北溪 2 号管道
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1976646/)
+## 今日盖特大V推荐 — Maria Bartiromo（玛丽亚·巴蒂罗姆）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1976654/)
 
-**整理/编辑：Little Lamp**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3427-a7x16-do3qr-8.jpg)
+**盖特链接：**[https://gettr.com/user/mtg4america](https://gettr.com/user/mtg4america)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-836.png)
+**玛丽亚·巴蒂罗姆自述：**
 
-美国总统乔拜登表示，俄罗斯入侵乌克兰将结束北溪 2 号管道项目。
+《与玛丽亚早安》节目的主播，全球市场编辑，周一至周五，上午6点至9点在@FoxBusiness和@SundayFutures 周日，上午10:00点 @FoxNews #foxnews #foxbusiness
+![](https://assets.gnews.org/wp-content/uploads/2022/02/111-2.jpg)**图片来源：网络**
+**玛丽亚·巴蒂罗姆简介：**
 
-美国总统乔拜登威胁说，如果俄罗斯军队越过边境进入乌克兰，将关闭一条至关重要的德俄管道北溪 2号。拜登周一在白宫举行的联合新闻发布会上与德国总理奥拉夫·肖尔茨（Olaf Scholz）一起发表讲话时发出了威胁。
+玛丽亚·巴蒂罗姆（Maria Sara Bartiromo），1967年9月11日出生于纽约，毕业于纽约大学。美国电视新闻从业人员、杂志专栏作家，以及三本出版物作者。
 
-“我们将结束它，”拜登谈到管道时说。当一名记者询问华盛顿究竟如何能够阻止该项目，因为它“在德国的控制范围内”时，拜登拒绝详细说明，只说：“我们会的，我向你保证，我们将能够做到。 ”
+她是福克斯商业新闻网《与玛丽亚早安（Mornings with Maria）》节目主持人，全球市场编辑，同时也是福克斯新闻频道《Sunday Morning Futures with Maria Bartiromo》节目主持人。
 
-然而，尚不清楚 Scholz 是否同意这个想法。当直接被问及如果俄罗斯入侵乌克兰，该项目的命运时，这位德国领导人没有点名提及该管道。
+玛丽亚·巴蒂罗姆曾在CNN作为制片人工作5年。1993年加入CNBC电视之后，曾任《关闭钟声（Closing Bell）》节目主持人，以及《与玛丽亚·巴蒂罗姆谈钱（On the Money with Maria Bartiromo）》主持人暨总编辑，也是首位在纽约证券交易所进行现场直播的记者。2013 年，她离开 CNBC 为福克斯频道主持节目。
 
-这位德国总理说：“我们已经做好一切准备，准备好采取必要的制裁措施，如果发生对乌克兰的军事侵略，”他补充说，他不会透露具体细节，“因为俄罗斯应该明白，未来可能还会有更多。”
+玛丽亚·巴蒂罗姆横跨各种不同类型电视节目，并因此获得许多新闻奖项，甚至登上有线电视名人堂。
 
-文章来源：[Biden threatens to shut down Nord Stream 2 pipeline](https://www.rt.com/news/548599-biden-russia-ukraine-americans/)
+编撰：洛杉矶盘古农场 — 心照
+校审：洛杉矶盘古农场 — 郭友(文苏)
+发布：洛杉矶盘古农场 —彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-*发布：盘古相聚*
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

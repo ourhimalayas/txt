@@ -2,27 +2,39 @@
 ---
 
 
-## 今日盖特大V推荐 — Marjorie Taylor Greene（玛乔丽·泰勒·格林）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1976826/)
+## 安大略省财政监督机构预测预算赤字会减少
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1976870/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/aj8jz-dzqer.jpg)
-**盖特链接：**[https://gettr.com/user/mtg4america](https://gettr.com/user/mtg4america)
+作者： The Canadian Press
+翻译：KK
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-130.jpg)
+安省财政监管机构预测，由于收入增长强劲，与安省政府预算中预测相比，未来几年安省的预算赤字会大幅减少。
 
-**玛乔丽·泰勒·格林自述：**
+据报道，安省财务问责办公室最新发表的报告显示，预计到2023-24财政年末，安省的赤字会从本财政年度的160亿元大幅降低到28亿元。
 
-国会女议员 (R-GA)、基督徒、妻子、妈妈、小企业主、自豪的美国人， 100%支撑生命、支持枪支支持特朗普。 美国优先！ 拯救美国。 停止共产主义！
-![](https://assets.gnews.org/wp-content/uploads/2022/02/fgh.jpg)**图片来源：网络**
-**玛乔丽·泰勒·格林简介：**
+相比之下，省府预测的同期预算赤字为114亿元。
 
-马乔丽·泰勒·格林（英语：Marjorie Taylor Greene，1974年5月21日－）是美国政客、商人，被有些人认为是阴谋论者，是佐治亚州第十四国会选区的现任美国众议员。格林的政治立场被认为是极右翼，她曾在Facebook视频中表达了对极右翼阴谋论匿名者Q的支持，但后来试图与阴谋论远离。
+监管机构报告还预测，到2023-24财政年度，安省收入会比省府计划中的总金额高出76亿元。
 
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 —彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+该报告对截至2024财政年度的支出预测与安省政府的支出预测相近，报告强调了省府计划中的资金短缺将可以利用“大量未分配资金”来弥补。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+财务问责办公室的报告是在安省政府选举年预算之前发布的，该预算预计将在下个月底之前发布。
+
+来源：https://www.cp24.com/news/ontario-fiscal-watchdog-projects-smaller-budget-deficits-than-government-1.5772336
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
