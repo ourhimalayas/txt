@@ -15,88 +15,88 @@
 
 ---
 
-### [联合国报告：朝鲜无视国际制裁，继续推进武器研发](/content/gnews/1/README.md)
- ` 墨尔本雅典娜农场`
-
-### [德国新总理首度访美 协调对俄乌问题立场](/content/gnews/2/README.md)
- ` 日本东京方舟农场`
-
-### [2月7日0时起，广西百色全员居家隔离](/content/gnews/3/README.md)
+### [乐购老板预测即将到来的通货膨胀将“挤压”英国穷人](/content/gnews/1/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [币圈新闻动态：喜币（HCN）价格目前在48.695 HDO](/content/gnews/4/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [不对抗中共，澳大利亚将“失去未来十年”](/content/gnews/2/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [新闻集团遭黑客入侵 部分电邮和文件被中共关联人员窃取](/content/gnews/5/README.md)
- ` 日本东京方舟农场`
-
-### [奥运会无法拯救中国，改变体制才是出路](/content/gnews/6/README.md)
+### [联合国报告：朝鲜无视国际制裁，继续推进武器研发](/content/gnews/3/README.md)
  ` 墨尔本雅典娜农场`
 
-### [无知之后必须付出的成功的代价（二）](/content/gnews/7/README.md)
+### [德国新总理首度访美 协调对俄乌问题立场](/content/gnews/4/README.md)
+ ` 日本东京方舟农场`
+
+### [2月7日0时起，广西百色全员居家隔离](/content/gnews/5/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [币圈新闻动态：喜币（HCN）价格目前在48.695 HDO](/content/gnews/6/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [2022年2月7日 晚 新中国联邦新闻、GTV新闻访谈简报](/content/gnews/7/README.md)
+ ` 纽约香草山MOS01`
+
+### [新闻集团遭黑客入侵 部分电邮和文件被中共关联人员窃取](/content/gnews/8/README.md)
+ ` 日本东京方舟农场`
+
+### [奥运会无法拯救中国，改变体制才是出路](/content/gnews/9/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [无知之后必须付出的成功的代价（二）](/content/gnews/10/README.md)
  ` 雅典娜GNotes`
 
-### [法院对渥太华市中心发出 10 天的鸣喇叭禁令](/content/gnews/8/README.md)
+### [法院对渥太华市中心发出 10 天的鸣喇叭禁令](/content/gnews/11/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [新中国联邦会实现邓丽君小姐的遗愿](/content/gnews/9/README.md)
+### [新中国联邦会实现邓丽君小姐的遗愿](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
 
-### [落实新郭七条跟着文贵先生一心一意灭共](/content/gnews/10/README.md)
+### [落实新郭七条跟着文贵先生一心一意灭共](/content/gnews/13/README.md)
  ` 纽约香草山MOS03`
 
-### [七哥唱歌《一帘幽梦》](/content/gnews/11/README.md)
+### [七哥唱歌《一帘幽梦》](/content/gnews/14/README.md)
  ` 雅典娜GNotes`
 
-### [政府对权力的渴望胜过一切，退让只会让它变本加厉](/content/gnews/12/README.md)
+### [政府对权力的渴望胜过一切，退让只会让它变本加厉](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [七哥唱歌《甜蜜蜜》](/content/gnews/13/README.md)
+### [七哥唱歌《甜蜜蜜》](/content/gnews/16/README.md)
  ` 雅典娜GNotes`
 
-### [沙利文：若俄罗斯入侵乌克兰 中共亦将付出代价](/content/gnews/14/README.md)
+### [沙利文：若俄罗斯入侵乌克兰 中共亦将付出代价](/content/gnews/17/README.md)
  ` 日本东京方舟农场`
 
-### [塞北的雪 （五）](/content/gnews/15/README.md)
+### [塞北的雪 （五）](/content/gnews/18/README.md)
  ` 雅典娜GNotes`
 
-### [塞北的雪（四）](/content/gnews/16/README.md)
+### [塞北的雪（四）](/content/gnews/19/README.md)
  ` 雅典娜GNotes`
 
-### [2.06大直播后记：习太阳和大国脆弱的私人关系](/content/gnews/17/README.md)
- ` 雅典娜GNotes`
-
-### [2/6/2022 文贵直播：文贵在2020年初就说病毒和疫苗造成的次生灾难和危机将于今年5月开始，这是文贵基于所掌握的中共情报而作出的判断](/content/gnews/18/README.md)
+### [2/6/2022 文贵直播：文贵在2020年初就说病毒和疫苗造成的次生灾难和危机将于今年5月开始，这是文贵基于所掌握的中共情报而作出的判断](/content/gnews/20/README.md)
  ` 秘密翻译组-北美组`
 
-### [无知之后必须付出的成功的代价（一）](/content/gnews/19/README.md)
+### [无知之后必须付出的成功的代价（一）](/content/gnews/21/README.md)
  ` 雅典娜GNotes`
 
-### [中共国一电信公司在美被起诉串谋盗窃商业秘密](/content/gnews/20/README.md)
+### [中共国一电信公司在美被起诉串谋盗窃商业秘密](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2/6/2022 文贵直播：中共为什么在文革期间让单伟建出国？中共是如何用乒乓外交渗透美国的？](/content/gnews/21/README.md)
+### [2/6/2022 文贵直播：中共为什么在文革期间让单伟建出国？中共是如何用乒乓外交渗透美国的？](/content/gnews/23/README.md)
  ` 秘密翻译组-北美组`
 
-### [樱花头条┃CDC终于承认自然免疫比疫苗更有效](/content/gnews/22/README.md)
+### [樱花头条┃CDC终于承认自然免疫比疫苗更有效](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [哈佛新研究证明新冠疫苗会增加感染和死亡人数](/content/gnews/23/README.md)
+### [哈佛新研究证明新冠疫苗会增加感染和死亡人数](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美商务部将33家中共国公司列入风险交易实体清单](/content/gnews/24/README.md)
+### [美商务部将33家中共国公司列入风险交易实体清单](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [每日快报：运动员们在地狱般的隔离中“疯狂地哭泣”](/content/gnews/25/README.md)
+### [每日快报：运动员们在地狱般的隔离中“疯狂地哭泣”](/content/gnews/27/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [美商务部将33家中共国实体纳入“未经核实名单”](/content/gnews/26/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [农历新年后，多个亚洲国家中共病毒感染病例激增](/content/gnews/27/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [战争临近，拜登正式建议在乌克兰非美国外交人员离境](/content/gnews/28/README.md)
+### [农历新年后，多个亚洲国家中共病毒感染病例激增](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
 ### [2022年2月8日《樱花快报》：美专家建议取消中共病毒疫情限制措施](/content/gnews/29/README.md)
@@ -114,23 +114,23 @@
 ### [中共国与世不同的行事规则让所有人都付出代价](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [贩卖妇女 | 中共治下的又一哀鸣，我们为自己而战](/content/gnews/34/README.md)
+### [7·24系列——《美国竞争法案》剑指半导体芯片产业](/content/gnews/34/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [贩卖妇女 | 中共治下的又一哀鸣，我们为自己而战](/content/gnews/35/README.md)
  ` YALUN 亚伦`
 
-### [美国为何领先世界及与中国的差距](/content/gnews/35/README.md)
+### [美国为何领先世界及与中国的差距](/content/gnews/36/README.md)
  ` NFSC News`
 
-### [郭文贵先生谈家庭教育](/content/gnews/36/README.md)
+### [郭文贵先生谈家庭教育](/content/gnews/37/README.md)
  ` NFSC News`
 
-### [美国经济至暗时刻过后 将迎来快速反弹](/content/gnews/37/README.md)
+### [美国经济至暗时刻过后 将迎来快速反弹](/content/gnews/38/README.md)
  ` NFSC News`
 
-### [中共做恶必将自食其果](/content/gnews/38/README.md)
+### [中共做恶必将自食其果](/content/gnews/39/README.md)
  ` NFSC News`
-
-### [【秘翻在线】新泽西州州长将结束学校口罩规定](/content/gnews/39/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [秘翻在线：花旗预测软银抛售股份，阿里巴巴股价暴跌](/content/gnews/40/README.md)
  ` 秘密翻譯組G-Translators`

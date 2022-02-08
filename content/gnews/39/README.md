@@ -2,22 +2,31 @@
 ---
 
 
-## 【秘翻在线】新泽西州州长将结束学校口罩规定
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1971954/)
+## 中共做恶必将自食其果
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1972002/)
 
-**撰稿：Grace**
+作者：纽约磐石农场—在远方
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+2月3日，郭文贵先生在盖特上说，Hpay在2月1日上线以后，客户通过它购买摩托车、汽车、房子、转款和做担保的所有业务，都已经顺利完成。喜联储的访问量，在一天内增加到了原来的3倍，将来还会继续增加。在Hpay上线的第二天，FaceBook、Twitter和Paypal股票大跌，跌幅达到20%—30%，将来还会继续下跌。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-2.jpg)
+现在逐渐可以看到，美国、加拿大、欧洲和非洲的许多民众，将会把疫苗灾难完全归咎到共产党身上。他们不仅要找本国政府算账，更要跟共产党算账。今天早上班农先生告诉郭先生，他的弟弟、侄子、女儿、妹妹、妹夫等家人，全部感染了中共病毒，也都是被新中国联邦所救。我们在柬埔寨和越南的战友，全家人染病后，也是新中国联邦的战友，紧急送药而救了他们。郭先生指出，所有这一切，都是共产党带来的灾难，中共给全人类带来的浩劫。我们绝不会忘记共产党制造了生化病毒，和制造疫苗灾难的仇恨。 最后，郭先生充满信心的说，目前好消息很多，都表明共产党灭亡在即。虽然中共还在继续的疯狂，很多和中共勾兑的黑暗力量，他们仍抱有侥幸心理，例如西方媒体的平台。但随着时间的推移，在2022年水虎年，一定会灭掉中国共产党。
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-07-at-3.47.40-PM.jpeg)图片来源：bronx.news 12
-据 Insider Paper 2月7日报道，《纽约时报》称，新泽西州州长菲尔·墨菲（Phil Murphy）预计将在3月取消州内学校对学生和员工的口罩规定。
+参考链接：[中共做恶必将自食其果](https://www.gettr.com/post/psana972a2)
 
-这是自中共病毒COVID-19大流行开始以来，新泽西州首次放宽其学校口罩规定，表明该州对病毒的看法发生了转变。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
-据报道，周日，该州记录了大约1600个新病例，与一个月前33000个病例的高峰相比，有了明显的下降。
+总编：Irene木木
+编辑：Ivy001
+校对/发稿：Hetangyuese
 
-关于在学校戴口罩的辩论一直是一个有争议的问题。报道称，去年夏天，在新学年开始之前，一些地区，包括墨菲的家乡米德镇（Middletown）提出了自己的口罩规则，挑战州长的强制口罩规定。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-**新闻来源： ****[New Jersey Gov. Murphy to end school mask mandate](//054F5841-01B1-4F6A-84E2-77C1443F4C0F/New%20Jersey%20Gov.%20Murphy%20to%20end%20school%20mask%20mandate)**
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

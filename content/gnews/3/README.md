@@ -2,30 +2,45 @@
 ---
 
 
-## 2月7日0时起，广西百色全员居家隔离
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1973103/)
+## 联合国报告：朝鲜无视国际制裁，继续推进武器研发
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1973110/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Unknown-9.jpg)2月7日0时起，广西百色全员居家隔离 网络图片
-据澎湃新闻2月7日报道，中共国广西百色市新冠肺炎疫情防控工作领导小组指挥部发布《关于全员居家隔离的通告》，百色市从2月7日0时起全员居家隔离，解除时间视疫情另行通告。
+整理报道:Sara9
+编辑：文泓
 
-居家隔离期间，学校和各类培训机构全部停课、公共交通停运。除了购买必须的生活物资以及进行核酸检测外，非必要不出门。购买生活物资尽量选择配送服务。除保供应的超市、农贸市场、医院、药店外，其他经营场所一律停业。保障防疫、医疗服务、志愿者等人员持特定通行证可以在百色市通行。
-
-新中国联邦的郭文贵先生曾经爆料过，中共国的防疫和隔离都是政治需要，从来不是疫情需要，因为中共从来不在于老百姓的生命。有需要就满足需求，隔离到饿死、病死人，死多少人都在所不惜。中共的邪恶本质在这场病毒和疫苗事件中显露无疑，中共国人民如果再不起来反抗，不推翻中共，中国人民的灾难不会停止。
-
-新闻参考链接：[http://www.thepaper.cn/newsDetail\_forward\_16593394](https://www.thepaper.cn/newsDetail_forward_16593394)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/dfdr.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+图片来源：Sputniknews.cn
 
 
+当地时间2月6日，据美国之音报道，根据法新社看到的一份联合国机密报告，尽管受到国际社会制裁，但去年朝鲜仍继续发展其核计划和导弹计划。
+
+目前，因其武器计划朝鲜受到重大制裁，包括禁止煤炭、铁、铅、纺织品、海产品等商品的出口。虽然去年没有朝鲜进行核试验或洲际弹道导弹试射的报道，但平壤在继续发展“核裂变材料的生产能力”。
+
+报告指出，朝鲜“仍在继续维护和发展其核及弹道导弹基础设施，并为这些项目继续在海外寻找材料、技术和知识，包括通过网络手段和联合科学研究。”
+
+朝鲜还发起网络攻击，尤其是针对加密货币资产，以此作为朝鲜政权财政收入的主要来源。
+
+同时，联合国专家注意到，朝鲜非法进口的精炼油质量急剧提高
+
+虽然西方国家不断向平壤加大施压，但是北京和莫斯科却呼吁，基于人道主义的原因，放松对朝鲜的制裁，并且敦促西方国家在与朝鲜领导人金正恩打交道时，要更加灵活。
+
+今年1月，朝鲜进行了前所未有的7次武器试验，包括试射了2017年以来威力最大、射程最远的中程弹道导弹。平壤曾暗示，要重启核试验和远程弹道导弹试验。
+
+众所周知，朝鲜最大的金主就是中共国，在中共的授意下，朝鲜配合中共在台海、南海的军事行动，导弹试射频率不断提升。因此，让朝鲜肆无忌惮的原因依然是中共国。
+
+新闻链接：[联合国报告：朝鲜无视制裁 继续推进武器研发](https://www.voachinese.com/a/north-korea-presses-ahead-with-weapons-development-despite-sanctions-un-report-20220206/6429551.html)
+
+发布：星谕
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
