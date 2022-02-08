@@ -2,22 +2,30 @@
 ---
 
 
-## 共产党蓝金黄（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1972727/)
+## 美商务部将33家中共国实体纳入“未经核实名单”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1972759/)
 
-#### 整理：雅典娜速记组
-编辑：开智则立
-![](https://assets.gnews.org/wp-content/uploads/2022/02/9-009-10-2-一-scaled.jpg)
-事实上从任何角度，现在中国人跟美国人想作对的条件一点都没有。你最自信的当时对西方的饮食文化和历史都没了。这个时候你看到中国和俄罗斯好，纯粹是作死。从经济来看，俄罗斯1万亿美元的GDP加在一起，它能给你带来好处，也就几百亿都不给他做了，都给你做，他能给你啥？就现在，亨利文真啊，今天你们几个把你们所有赚钱都给七哥你都不够七哥吃顿饭的。你说我要你的钱干啥去对吧？我要你的钱干啥去？最简单道理他疯了。那么中国和美国，一年搞人家5000亿美元。虽然中国2000年加入的，得到奥运会和世贸协议把中国的1.5万亿GDP提升到今天的15万亿，你没有美国这几千亿的外汇，你不可能。那美国在给中国的这几千亿外汇当中，美国得到了什么呢？大量的工厂被关闭，所谓全球化，美国大量的工人失业，而且美国发展高科技的同时，把自己的像罩口罩啊、轻工产品、生活产品全部都移到中国去，特别像耐克这些企业。更重要的是，由于共产党的一党独裁，西方的像奥林匹克组织，NGO组织，联合国组织他在美国，美国没有腐败的机会。你搞女人，女人告你就把你送到法庭上去，你想玩性奴玩儿童，你照样被抓起来。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Unknown-7.jpg)美商务部将33家中共国实体纳入“未经核实名单” 网络图片
+据美国之音2月8日报道，美国商务部的工业与安全局(BIS)7日宣布将33个总部在中共国的实体列入“未经核实名单”，对这些实体公司实施新的限制，并要求与这些公司有业务往来的美国公司进行额外调查。此次被纳入名单的多数是电子公司。纳入这33个实体后，该榜单上的公司总数达到了175个。
 
-*发布：开智则立*
+按照限制措施，美国出口商若想向这些公司发货，必须获得许可证。而这些公司若希望继续接受美国的货物，必须证明其合法性、真实性和可靠性，而且愿意遵守美国的法规，在接收美国产品之后不会将其挪作他用。美国政府尤其担心产品到了中共国后会被挪作军用。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+这些检查通常需要与中共政府协调进行。当美国无法检查或核实后，便可能将其纳入“未经核实名单”。如果同意接受检查并证明其合法，该公司有可能被移除出名单。中共从前像八爪鱼一样四处渗透美国，各行各业都布置了暗藏的力量。美国开始出台一系列法规，通过一系列措施来斩断和挖掘中共国延伸进来的和潜伏的力量。中共靠偷和骗招摇过市的好日子一去不复返了，尤其是病毒和疫苗灾难对全世界的伤害，中共即将面对全世界的追责，制裁只是第一步。
+
+新闻参考链接：[https://www.voachinese.com/a/commerce-department-adds-33-parties-in-prc-to-unverified-list-20220207/6431365.html](https://www.voachinese.com/a/commerce-department-adds-33-parties-in-prc-to-unverified-list-20220207/6431365.html)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 
