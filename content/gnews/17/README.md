@@ -2,31 +2,31 @@
 ---
 
 
-## 拜登威胁要关闭北溪 2 号管道
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1976646/)
+## 加拿大反疫苗示威面临失控风险
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1976691/)
 
-**整理/编辑：Little Lamp**
+**整理：Eileen（围剿维尼熊）**
+**编辑：守望黎明**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-836.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/加拿大.jpeg)
 
-美国总统乔拜登表示，俄罗斯入侵乌克兰将结束北溪 2 号管道项目。
+图片来源：Toronto Star
 
-美国总统乔拜登威胁说，如果俄罗斯军队越过边境进入乌克兰，将关闭一条至关重要的德俄管道北溪 2号。拜登周一在白宫举行的联合新闻发布会上与德国总理奥拉夫·肖尔茨（Olaf Scholz）一起发表讲话时发出了威胁。
 
-“我们将结束它，”拜登谈到管道时说。当一名记者询问华盛顿究竟如何能够阻止该项目，因为它“在德国的控制范围内”时，拜登拒绝详细说明，只说：“我们会的，我向你保证，我们将能够做到。 ”
+根据《经济日报》2月8日报道，加拿大首都渥太华6日宣布进入紧急状态，因为反对强制接种疫苗的示威活动已经失控，甚至在其他国家发酵。在澳洲首都堪培拉也出现类似的抗议冲突。各国民众逐渐对防疫措施失去耐心。
 
-然而，尚不清楚 Scholz 是否同意这个想法。当直接被问及如果俄罗斯入侵乌克兰，该项目的命运时，这位德国领导人没有点名提及该管道。
+渥太华市长华森声称，示威活动对市民安全及保障造成严重危险与威胁。数百辆卡车继续占领国会附近地区，没有迹象显示抗议者打算撤离。
 
-这位德国总理说：“我们已经做好一切准备，准备好采取必要的制裁措施，如果发生对乌克兰的军事侵略，”他补充说，他不会透露具体细节，“因为俄罗斯应该明白，未来可能还会有更多。”
+这场名为“自由车队”（Freedom Convoy）的抗争行动，是针对加拿大与美国1月生效的法律，该法律规定往返两国边境的卡车司机须接种至少两针疫苗，抗争后来演变为加拿大全国反对防疫措施和反对总理杜鲁多政府的集会。
 
-文章来源：[Biden threatens to shut down Nord Stream 2 pipeline](https://www.rt.com/news/548599-biden-russia-ukraine-americans/)
+参考链接：[https://udn.com/news/story/121707/6082058?from=udn-catebreaknews\_ch2](https://udn.com/news/story/121707/6082058?from=udn-catebreaknews_ch2)
 
 *发布：盘古相聚*
 
-**更多资讯，请关注：****
+**更多资讯，请关注：
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  

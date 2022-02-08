@@ -2,32 +2,27 @@
 ---
 
 
-## 加拿大反疫苗示威面临失控风险
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1976691/)
+## 今日盖特大V推荐 — Marjorie Taylor Greene（玛乔丽·泰勒·格林）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1976826/)
 
-**整理：Eileen（围剿维尼熊）**
-**编辑：守望黎明**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/aj8jz-dzqer.jpg)
+**盖特链接：**[https://gettr.com/user/mtg4america](https://gettr.com/user/mtg4america)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/加拿大.jpeg)
+**玛乔丽·泰勒·格林自述：**
 
-图片来源：Toronto Star
+国会女议员 (R-GA)、基督徒、妻子、妈妈、小企业主、自豪的美国人， 100%支撑生命、支持枪支支持特朗普。 美国优先！ 拯救美国。 停止共产主义！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/fgh.jpg)**图片来源：网络**
+**玛乔丽·泰勒·格林简介：**
 
+马乔丽·泰勒·格林（英语：Marjorie Taylor Greene，1974年5月21日－）是美国政客、商人，被有些人认为是阴谋论者，是佐治亚州第十四国会选区的现任美国众议员。格林的政治立场被认为是极右翼，她曾在Facebook视频中表达了对极右翼阴谋论匿名者Q的支持，但后来试图与阴谋论远离。
 
-根据《经济日报》2月8日报道，加拿大首都渥太华6日宣布进入紧急状态，因为反对强制接种疫苗的示威活动已经失控，甚至在其他国家发酵。在澳洲首都堪培拉也出现类似的抗议冲突。各国民众逐渐对防疫措施失去耐心。
+编撰：洛杉矶盘古农场 — 心照
+校审：洛杉矶盘古农场 — 郭友(文苏)
+发布：洛杉矶盘古农场 —彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-渥太华市长华森声称，示威活动对市民安全及保障造成严重危险与威胁。数百辆卡车继续占领国会附近地区，没有迹象显示抗议者打算撤离。
-
-这场名为“自由车队”（Freedom Convoy）的抗争行动，是针对加拿大与美国1月生效的法律，该法律规定往返两国边境的卡车司机须接种至少两针疫苗，抗争后来演变为加拿大全国反对防疫措施和反对总理杜鲁多政府的集会。
-
-参考链接：[https://udn.com/news/story/121707/6082058?from=udn-catebreaknews\_ch2](https://udn.com/news/story/121707/6082058?from=udn-catebreaknews_ch2)
-
-*发布：盘古相聚*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

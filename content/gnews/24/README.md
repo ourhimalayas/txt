@@ -2,43 +2,32 @@
 ---
 
 
-## FB再降5% 现在称之为元空间也无济于事
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1976461/)
+## 普京与马克龙会谈表示愿努力与欧美达成一致
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1976546/)
 
-编译： Jenny Ball
+**編譯：文明志**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/73720D22-9C4E-484B-87FB-6A41FB4C3B49.png)图片来源：https://news.yahoo.co.jp
+据時事通讯社莫斯科2月8日凌晨报道，俄罗斯普京总统7日就乌克兰问题与法国马克龙总统在莫斯科举行了会谈。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unknown-2.jpg)图片来源：creativedestructionmedia.com
+会谈结束后，双方共同举行了记者招待会。会上，普京表示，在乌克兰问题上，为了寻求与美欧达成妥协，普京“愿意做任何事”。
 
-我们经常写到，在过去的几年里，看着大型科技硅谷真的在摧毁它的客户群是多么令人惊奇。Facebook、Twitter、谷歌、LinkedIn 等都进行了全面的共产主义审查，这实际上迫使一半的国家离开他们的平台，永远不会回来。
+马克龙总统针对俄方关于安全保障的诉求，强调将具体协助予以构建。双方在会谈中为缓和紧张关系显然尽可能地展开了讨价还价。
 
-现在，“我的空间”MySpace 的小鸡要回家栖息了。
+普京在提及乌克兰问题上马克龙向俄方提出了建议之后，表示这极有可能作为今后“共同维护的安保措施的基础。”尽管双方均未透露马克龙提议的内容，但彼此就马克龙8日结束访问乌克兰之后将通过电话会议落实提议的具体内容达成了一致。
 
-上周五，Facebook（现在叫做元空间 ）承认不可避免，并报告其在美国的用户群在第四季度下降了 100 万。该公司的大部分广告收入来自北美。
+**原文链接：**
 
-周五收盘后，该股下跌了约 23%。
+[仏ロ首脳、ウクライナ緊張緩和模索　「安全の保証」焦点](https://news.yahoo.co.jp/articles/37e0957f8eca907b0e92fc02c8623949bb79b3f2)
 
-另一点，美国人需要明白的是，这些平台，虽然最初是为了帮助生活方便，连接他人。但现在无非是监视和审查，与中共杀手一起摧毁我们的国家。
+**编辑：LILY**
 
-尽管据报道 Meta 第四季度的收入仍然强劲，但华尔街最密切关注的是增长，这家前身为 Facebook (FB) 的公司现在已经超越了鲨鱼“我的空间”。
+**发布：歪桑**
 
-Facebook 被指控为面部识别，收集面部数据，促进恋童癖和人口贩卖，以及医疗暴政。
+20220208
 
-现在，用户正在删除他们的个人资料，并转移到无数其他可行平台的运动正在发展。
-
-今天FB又下跌了5%。
-
-**评论：我相信一定有上天在看着世间的一切，facebook用中文音译翻译就是“非死不可”，新名称Meta更惨，翻译为“ 没它  ”，天注定这些为共产主义审核并摧毁自由民主信仰大爱的大型科技不会在文明社会生存，“没它”更好！**
-
-**参考资料：**[CD media][FB Down Another 5% — Let’s Call It MetaSpace From Now On](https://creativedestructionmedia.com/news/business/2022/02/07/fb-down-another-5-lets-call-it-metaspace-from-now-on/)
-
-* * *
-
-*审核：文乐
-校对：信心满满
-发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH..jpeg)
-
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

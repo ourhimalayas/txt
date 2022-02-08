@@ -2,43 +2,37 @@
 ---
 
 
-## 特鲁多恶意坚持结束卡车司机的自由抗议活动
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1976514/)
+## 战友实例分享离岸私人信托的设立（二）
+` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/1976558/)
 
-翻译：不要代表我Kari
-编辑/校对：Candy
+整理：德国纽伦堡正义农场 中华联邦公民
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-819.png)
+**节目背景简介：**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/土豆.png)图片来源：thepostmillennial.com
+本期嘉宾“武装的羔羊”与大家分享离岸信托的设立，他本人已通过与律师的沟通正在进行此事，目前还没有完全完成，但已亲身经历了许多过程。武装的羔羊本人并没有金融、法律方面的从业经验，给大家分享的都是其个人在探索私人信托过程中的一点经验与个人见解，请各位一定要亲自与专业律师、会计师沟通，然后再作决定。在分享过程中出于个人隐私的保护，有些环节不能讲的过于具体，还请见谅。由于各国不同的法律，在了解操作过程之后还是要与信托公司所在国的律师进行沟通，在所在国的法律框架内进行此事。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-825.png)
+信托的种类主要体现在控制权方面（还有一些没有列出，因为与我们关系不大）
+
+- 可撤销/不可撤销
+- 能否投资/投资决策
+- 私人信托
 
 
-**特鲁多说：“渥太华和全国人民应该得到他们的安全和尊重，应该恢复他们的正常生活。”**
+可撤销/不可撤销信托 以及 能否投资/投资决策
 
-总理贾斯汀·特鲁多（Justin Trudeau）在远离聚光灯数日后公开露面，因为抗议者们坚持要求结束联邦政府强制疫苗，渥太华仍然出于僵局状态。
+信托在设立时有信托条款，规定了信托的条条框框，按照信托的条款是否可以变更，可分为可撤销信托与不可撤销信托。
 
-周一早些时候，新民主党领袖贾格米特·辛格（Jagmeet Singh）召集紧急会议，总理在这个紧急辩论中讲到：
+可撤销信托在设立之后可以修改部分条款，或中止信托。可撤销信托在报税方面有许多便利，但它不能达到保护资产的目的，因此这种信托不是我们的最终目标，严格来讲这种信托中的资产还是属于个人的资产，不能隔离资产。
 
-“一小撮人正试图封锁我们的经济、我们的民主、和我们同胞的日常生活——这必须停止。渥太华人民不应该在他们自己的社区受到骚扰，不应该面对街角的有暴力特征的纳粹标志或联盟旗帜，或者仅仅因为他们佩戴国旗而受到侮辱和嘲笑。这不是加拿大或加拿大人，这不是加拿大人在过去两年里所诠释的那样。”
+不可撤销信托，一旦资产移入其中，我们就失去了对资产绝大多数的控制权，比如我们把GTV股票放入之后，某一天我们想买入更多GTV股票，但信托管理人并不一定会同意这么做，因为他可能会觉得风险大，在决策方面会很保守，股票的卖与不卖都是由他们决定的。保守的好处就是能避免亏钱，但也会丧失一些机会，比如下一年喜币发行时我们有些战友有30%的折扣，想用现有的喜币进行质押，换到钱再进行新一轮投资。但如果采用了不可撤销信托，管理者不一定会同意你的投资策略。因此采用这种信托在今后的资产操作方面是不太方便的，同时把大量的资产交到别人手上也不是所有人能认同的，此时私人信托就能很好地解决这个问题。
 
-特鲁多说：“渥太华和全国各地的人民应该得到应有的安全和尊重，应该恢复他们正常的生活。”
+私人信托
 
-总理此前曾将抗议民众称为“边缘少数群体”，他说：“在前往渥太华途中的少数边缘群体所持的观点是不可接受的，并不代表加拿大人的观点。 每个人都知道遵循科学，并加强对彼此保护，是继续确保我们作为一个国家的自由、权利和价值观的最佳方式。”
+私人信托既能隔离资产，又能让原所有者保留控制权，这是私人信托非常吸引人的地方。我们以BVI为例，首先我们需要在BVI注册一家私人信托公司（Privt Trust Company，缩写为PTC），以这个PTC作为信托的管理人，我们通过PTC间接地控制资产，就好比资产从左手转到了右手，还是在自己的手中，因此在投资策略上可以全权决定。我们自己可能就是PTC唯一的董事，完全可以自己决定是否增资、质押、加仓，同时还有很多便利之处。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-826.png)
+**问答环节：**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-828.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/image-829.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/image-830.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/image-831.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/农场二维码.png)
 
-特鲁多此前还称那些反对当局疫苗强制令的人，是性别歧视者和种族主义者；称“作为领导人，作为一个国家，我们必须做出选择。我们是否继续容忍这些人？因为超过 80% 的人已经尽了他们的义务接种了疫苗。”
-
-布莱恩·利利（Brian Lilley)发推：“就此次会议外抗议活动的紧急辩论中，总理特鲁多根本没有试图平息局势。他和他的部长们在火上浇油，把所有抗议他的政府的和平示威者，都打成了种族主义者和纳粹。”
-
-\*备注：confederate flag在美国通常被称为联盟旗（The Confederate Flag），有时又被称作反叛旗（Rebel Flag）或迪克西旗（Dixie Flag）
-
-原文链接：[https://thepostmillennial.com/breaking-trudeau-doubles-down-on-division-in-response-to-truckers-freedom-protests](https://thepostmillennial.com/breaking-trudeau-doubles-down-on-division-in-response-to-truckers-freedom-protests)
-
-***发布：Candy***
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

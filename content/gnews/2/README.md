@@ -2,57 +2,51 @@
 ---
 
 
-## 萨省月底前取消所有防疫措施
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1976904/)
+## 南卡罗来纳州法律草案定义询问疫苗接种状况的行为非法
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1977080/)
 
-作者： Brendan Eills, Stefanie Davis, Drew Postey
-翻译：KK
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-132.jpg)
-萨斯喀彻温省政府宣布，将在月底前取消该省COVID-19疫苗接种证明和强制口罩政策。
+据《福克斯新闻》作者：[Marisa Schultz](https://www.foxnews.com/person/s/marisa-schultz)，2022年1月25日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-845.png)CDC COVID-19疫苗接种记录卡。
+图片来源：Ben Hasty/MediaNews Group/Reading Eagle via Getty Images
+询问疫苗接种状况的行为将被处以1.4万美元的罚款和最多一年的监禁。
 
-省长Scott Moe在星期二的新闻发布会上宣布，疫苗接种证明政策将从2月14日0点取消。强制口罩政策将继续有效，直到2月底。
+**南卡罗来纳州共和党立法者提出立法，规定雇主询问冠状病毒疫苗接种情况是非法的，因为这属于个人医疗隐私。**
 
-Moe说：”我们之所以取消这项政策，是因为它已经达到了目的。该政策出台以来，我们省的疫苗接种率大幅提高。”
+该法案的发起者认为，之所以需要立法，是因为未接种疫苗的人正在遭受影响。
 
-但疫苗接种记录证明和二维码仍然会在省外以及国际旅行期间，或在其他管辖区使用。
+法案提案人迈克-伯恩斯议员告诉福克斯新闻，“在南卡罗来纳州有一些人正在失去他们的工作，因为他们必须向雇主报告没有接种疫苗；而另一些人的保险费率被列入不同的类别。他们每周比接种疫苗的人多支付100美元。做这种事情绝对是疯狂的。”
 
-Moe说，疫苗接种证明的政策在萨省造成很大的对立分歧，但他指出，其好处”确实超过了付出的成本”。
+这项立法，即H.4848，于1月20日提出。该法案将规定，任何雇主、企业、非营利组织或公共实体询问某人的COVID-19疫苗接种情况都是犯罪行为。
 
-Moe说：”今天我们面对的是一个非常不同的变种病毒，即Omicron变种。相比较我们付出的成本，进入室内需要疫苗护照已经不具备任何优势。”
+伯恩斯说，询问疫苗接种情况应该是禁区，就像询问一个女人的怀孕情况一样。
 
-疫苗接种证明或阴性测试政策是在9月份实施的，当时是处于”非常严重的Delta疫情”。
+伯恩斯告诉福克斯新闻，“我是你的雇主，我问你是否怀孕，我不能这么做，我不能问你是否在考虑怀孕。我不能问你是否感染性病或艾滋病毒。我不能问任何这些私人医疗问题，但不知何故，因为我没有接种这种紧急使用的疫苗，就可以终止人们的工作。这是荒谬的。”
 
-萨省在一份新闻稿中说：”COVID-19的Omicron变体更具传播性，而且潜伏期更短，许多病例为无症状。”
+伯恩斯与其他共和党议员帕特里克-哈登（Patrick Haddon）、史蒂文-朗（Steven Long）、马萨诸塞州州长（Marc Jacobs）一起提出这项立法。
 
-萨省的首席医疗卫生官员Saqib Shahab鼓励居民开始做好准备，一旦这些规则被取消，如果照顾好自己和家人。
+**该立法将询问疫苗接种情况定为轻罪，可处以最高14,000美元的罚款和/或一年的监禁。**
 
-Shahab说：”如果新冠疫情继续这样变化下去，总有一天，口罩将不再是一项强制性命令。我们应该开始考虑在工作中、在学校里，我们将为自己和孩子做出什么样的决定。”
+虽然最高法院最近禁止了拜登政府对某些雇员超过100人的雇主实行“要么接种，要么测试”的联邦授权。该立法如果颁布，将阻止南卡罗来纳州雇主自愿执行疫苗要求。
 
-萨省还表示，所有萨斯喀彻温省的居民，包括12-17岁的人现在都可以接种mRNA COVID-19疫苗的加强剂量。
+**伯恩斯承认这项立法成为法律的机会不大，因为只有“大约5%的法案”被提交成为法律。然而，伯恩斯说，他想采取行动，因为“人们对这些强制规定感到非常厌恶和厌倦”。**
 
-但Moe强调，萨斯喀彻温省居民需要自己对新冠风险保持评估。
+根据美国疾病控制和预防中心（CDC）的数据，美国所有5岁以上的人群中有80%以上至少接种过一剂冠状病毒疫苗。南卡罗来纳州的疫苗接种率低于全国平均水平，根据南卡罗来纳州卫生和环境控制部的数据，所有符合条件的居民中约有62%至少接种了一剂疫苗。
 
-周一，萨省取消了每日病例更新和COVID-19数据，取而代之是每周更新。
+原文连接：[https://www.foxnews.com/politics/south-carolina-bill-illegal-ask-vaccine-status](https://www.foxnews.com/politics/south-carolina-bill-illegal-ask-vaccine-status)
 
-Moe说，强制性自我隔离规则是附在即将到期的公共卫生令上的，也将在本月底停止。
+翻译：洛杉矶盘古农场 – TrueSky
 
-目前的公共卫生命令定于2月底到期。
+校对：洛杉矶盘古农场 – 轰炸机
 
-来源：https://regina.ctvnews.ca/sask-to-remove-proof-of-vaccination-policy-monday-masking-rules-expiring-at-the-end-of-the-month-1.5772651
+编辑：洛杉矶盘古农场 – WenXiong
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+发布：洛杉矶盘古农场–子萍
 
-**关注我们**
 
-Discord 账号
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
