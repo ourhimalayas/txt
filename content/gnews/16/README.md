@@ -2,35 +2,30 @@
 ---
 
 
-## 有声|中共在冬奥会中收集运动员的基因
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1976125/)
+## 以色列“疫苗护照”政策发生重大变更
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1976185/)
 
-配音：香草山巡管部– 文凯琳
+加拿大温哥华杨帆农场枫叶快讯
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+采编/ 翻译编辑：  自由法兰西
 
 
+![](https://static1.straitstimes.com.sg/s3fs-public/styles/large30x20/public/articles/2022/02/02/yq-isrvac-02022022.jpg?VersionId=nb_w3Vh8FiLXNfffA9v1VwLLrCDHEkzE&amp;itok=rb3H8S2i)
 
-当地时间2月6日，前国务卿蓬佩奥在接受媒体采访时表示，他之所以抵制北京冬奥会不在于让运动员们失去竞技的机会，而是为所有去北京的运动员感到担忧。
 
-这个担忧来自三个方面。首先，美国认为奥运会只是一项活动，而中共却将奥运会当作宣传的工具，并且中共想要用奥运会来给自己洗白。其次，到达北京的运动员面临手机被监控，以及无法自由言论的危险。第三，蓬佩奥最担心的是除了数据信息，中共还将收集运动员的DNA信息，甚至将这些信息交给中共军方。
+据新加坡《海峡时报》近日报道，以色列政府表示，作为首批推行疫苗护照的国家之一，该国将开始逐步停止使用疫苗护照。
 
-文字版原文：[中共在冬奥会中收集运动员的基因](https://gnews.org/zh-hans/1973673/)
+报道称，以色列政府的疫情工作组最近决定，除了“公众密集聚会的高风险场所外”，餐馆、酒吧、健身房和酒店等大部分公共场所，都将放弃使用疫苗护照。此外，未接种疫苗者也可在不做病毒测试的情况下直接登机旅行。
 
-音频处理/发稿：Daxia
+据悉，该决定是以色列当局在“新冠病毒”感染人数持续保持历史高位的情况下做出的。目前该国的日均新增感染个案已超过6万例。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+对此，相关流行病专家指出，以色列政府的上述决定是明智的，因为事实表明，已接种者仍然在被反复感染，而继续推广疫苗护照只是自欺欺人之举。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+原文链接：
 
+[https://www.straitstimes.com/world/middle-east/vaccine-passport-pioneer-israel-to-curb-use-of-green-pass](https://www.straitstimes.com/world/middle-east/vaccine-passport-pioneer-israel-to-curb-use-of-green-pass)
+
+校对编辑：硫酸羟氯喹64 发稿：青青
 
  
 

@@ -2,28 +2,31 @@
 ---
 
 
-## 中共利用冬奥会窃取各国运动员DNA
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1976143/)
+## 七哥谈“信”和“用”（2022-02-02摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1976200/)
 
-采编：风云小哥                编译撰稿：文莱
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2021-01-30T120811Z_1_LYNXMPEH0T0A2_RTROPTP_4_CHINA-GENOMICS-MILITARY-1200x779-1-edited.jpg)图片来源：theepochtimes
-据美国相关媒体近日报道，为争夺生物经济的主导地位，中共正在开发一个庞大的生物数据库，其中包含来自世界各地人种的医疗、健康和遗传信息。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-报道称，中共正利用各国的生物科技公司，耗费巨资收集当地人群的基因数据，并将这些数据与其顶级的军事超级计算能力相结合，通过发现不同族裔的基因遗传弱点，最终以此来开发生物病毒武器。
+来源：郭先生2022-02-02直播10：36：15摘录
 
-目前，越来越多的高科技企业参与到中共生物军事研究之中。例如，[华大基因公司]此前就提出在美国设立“新冠病毒”检测中心，尽管此举已被美方断然拒绝，但至少有18个其他国家都允许该公司在当地设立检测和研究中心。
+我们给大家要的什么？就是信和用。千叶妹妹相信七哥：“你给我1000个币，现在给我1000个币，我今天就把上衣给你脱了。” 那就脱了，那就这事儿完了！我干吗我非得给德华就要交20%的税去？为什么？那千叶妹妹说：“七哥，我现在给你1000个币，你把你上衣脱了” “行，七哥把裤子都脱了。” 那就是完成了这交易，它有什么问题？什么叫信用？所有的信用，所有的金融体系是政府掠夺财富纳税的需要，统治的需要。但这个系统里边儿，没有统治、没有纳税，没有剥削的需要。所有的价值就是你我之间双方的“信”和“用”。你信吗？信！用吗？用！信、用：咱俩完成。我就是把你信用完成这个工具叫Hpay，喜币、喜美元。喜美元是让你变法币去了。咱俩玩完了不行啊，千叶草说：“哥我给你脱衣了，你也给我宽衣解带了。我得吃饭呢，我得买面包去啊。” 你拿到这个币怎么换成法币！你也可以换成美元，也可以换成加拿大元，或者什么元。这个时候大家记住了啊，Hpay现在战友每个人要做的事情，加大Hpay的推广量。我说台湾大牛有鸭子店，不是“男鸭”店，是真正的吃的鸭子店。高氏鸭子；巴黎在台北搞了一个汽车行；就你增加包括酒店又多接受，这就七哥一再说的。一年前我说你们一定要买喜币的时候，你们觉得我忽悠，甚至小Sarah买了喜币，好像“七哥我给你面子”。有人跟我很多发“七哥，我信你，我买喜币了”，我哭笑不得。觉得你买喜币吃了多大亏似的。现在你觉得是不是笑话。我再告诉你，你们的人生当中，最重要的事情，一定要在…还有各农场，在你的国家所有地方，推广起喜支付。你推广的越多，你的整个的回报率不是1乘以1等于1，也不是1乘以11等于11。我告诉你是无限变大，而且是你在当地未来所有的支付权利，代理权利，接下来的喜支付有N个权。最主要的跟下来是什么？Hpay的贷款、存款。德华现在我有余富钱，我搁这儿我这一年绝大多钱不动，我就存在这儿了，7%的回报。然后呢，这个时候千叶草妹妹说，你看我现在急需，我要买架飞机，钱不够，我就贷款。你积累的Hpay的能力，和Hpay的钱和你的信用，永远的它会成为正比。就能买，瞬间完成，就像支付一样，瞬间完成，根本不会有人，没有人…完全这个信用体系。就是咱们之间的信用体系,它瞬间就告诉你能贷多少，什么时间，马上钱给你。这个中间还有个很重要的，未来钱的支付。
 
-为此，GTV在最近的报道中指出，北京冬奥会将成为习近平当局收集各国参赛运动员和政要名人DNA数据的绝佳机会，并且中共早已为该项邪恶计划做好了各项充分的准备。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-校对编辑：硫酸羟氯喹64
+**关注我们**
 
-发稿：文明(添草灭共)
+Discord 账号
 
-原文链接：
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-[https://www.theepochtimes.com/chinese-military-linked-firm-gathers-american-dna-provides-covid-tests\_4250811.html](https://www.theepochtimes.com/chinese-military-linked-firm-gathers-american-dna-provides-covid-tests_4250811.html)
+Gettr 账号
 
-[https://gtv.org/video/id=61fd1a6596ba5d73e0c28b83](https://gtv.org/video/id=61fd1a6596ba5d73e0c28b83)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

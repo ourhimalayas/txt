@@ -2,24 +2,35 @@
 ---
 
 
-## 加拿大国防部抛弃未接种疫苗军人
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1976099/)
+## 有声|中共在冬奥会中收集运动员的基因
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1976125/)
 
-加拿大杨帆农场枫叶快讯
+配音：香草山巡管部– 文凯琳
 
-采编/翻译：文莱
-![canadian military](https://www.ctvnews.ca/polopoly_fs/1.4963013.1591001210!/httpImage/image.jpg_gen/derivatives/landscape_960/image.jpg)
-据[渥太华太阳报]近日报道，加拿大武装部队已解雇了数十位未接种“新冠病毒”疫苗的服役人员，而其他针对数百名军人的解雇程序正在进行中。
 
-报道称，[加拿大国防部]在疫情期间大量开除未接种现役军人之举，势必将会加剧国防人员严重短缺的恶况。而且由于防疫措施的限制，目前大部分军队的招募中心和培训学校都已被迫关闭或暂停。
 
-据国防部的数据显示，目前加拿大军队的现役人数约为1万人，另有1万名人员因未受过训练或伤病而无法执行任务。因此，面对国际间急剧变化的军情，加拿大国防部的应对能力现已捉襟见肘。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-此外，之前遭到解雇的部分军人已于去年底对国防部的疫苗强制接种政策提起了诉讼，理由是该政策不仅违宪，还严重侵害了个人对健康的绝对选择权。
 
-原文链接:[Canadian military cuts dozens of unvaccinated troops, puts hundreds more on notice | Ottawa Citizen](https://ottawacitizen.com/pmn/news-pmn/canada-news-pmn/canadian-military-cuts-dozens-of-unvaccinated-troops-puts-hundreds-more-on-notice)
 
-校对编辑：硫酸羟氯喹64 发稿：青青
+当地时间2月6日，前国务卿蓬佩奥在接受媒体采访时表示，他之所以抵制北京冬奥会不在于让运动员们失去竞技的机会，而是为所有去北京的运动员感到担忧。
+
+这个担忧来自三个方面。首先，美国认为奥运会只是一项活动，而中共却将奥运会当作宣传的工具，并且中共想要用奥运会来给自己洗白。其次，到达北京的运动员面临手机被监控，以及无法自由言论的危险。第三，蓬佩奥最担心的是除了数据信息，中共还将收集运动员的DNA信息，甚至将这些信息交给中共军方。
+
+文字版原文：[中共在冬奥会中收集运动员的基因](https://gnews.org/zh-hans/1973673/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
 
  
 
