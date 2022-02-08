@@ -2,29 +2,46 @@
 ---
 
 
-## 中日财经爆|美司法部指控海能达窃取摩托罗拉技术
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1973958/)
+## 短视频：伊维菌素、青蒿素、绝对能铲除疫苗
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1974030/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-782.png)[图片来源](https://m.c114.com.cn/w3542-1116189.html)
-美国司法部周一（2月7日）表示，已对总部位于中共国深圳市的海能达通信股份有限公司提出刑事指控，指控该公司与摩托罗拉系统公司前员工合谋窃取摩托罗拉的数字移动无线电技术。
+翻译：Julia Gao
+校对：精靈藍
+剪辑字幕：清净
+编辑：文泓
 
-在伊利诺伊州北区公布的一份隐去部分内容的起诉书中，美国政府指控海能达招聘摩托罗拉员工，窃取有关无线电、即“对讲机”的专有商业数据。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/2-1-2.png)图片来源：视频截屏
 
-摩托罗拉执行副总裁兼总法律顾问Mark Hacker在一份声明中表示，对海能达的指控“突显了这家中共国公司的非法行为是精心策划、经过深思熟虑的”。
 
-“我们将继续在世界各地的司法管辖区对海能达提起民事诉讼，以防止该公司连续侵权，并为摩托罗拉索赔数亿美元。”Hacker补充道。
+我说世界在三到五年内得癌症的（因疫苗的）和因疫苗死亡的，对人类的影响绝对就像当年恐龙灭绝时候那么大，这不是开半点玩笑的。
 
-2020年2月，陪审团在摩托罗拉诉海能达的窃取商业机密和版权侵权案中对摩托罗拉做出了有利裁决，后者获赔7.46亿美元。芝加哥一个陪审团裁定，总部位于深圳的海能达利用摩托罗拉的机密文件和受版权保护的源代码在双向无线电通信市场上展开竞争。海能达曾是摩托罗拉的分销商，当时该公司对陪审团称，相关产品是自主开放的。
+兄弟姐妹们，可以再次重申，你没有打疫苗有多么的伟大，绝对是你自己一生中最正确的决定。
 
-消息来源：[美司法部指控中国电信公司海能达 称其与前摩托罗拉员工合谋窃取技术](https://cn.reuters.com/article/usa-doj-accuses-hytera-0207-mon-idCNKBS2KD016?il=0)
+When I say that the COVID vaccines will result in cancer and death worldwide within three to five years, its impact on humanity will be as great as the extinction of the dinosaurs. This is not a joke at all.
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
-#  
+Fellow brothers and sisters, I would like to reiterate again how great it is that you are not vaccinated.
 
-#  
+You have certainly made the best decision of your life.
+
+即使打了两针，你吃青蒿素、伊维菌素一定会帮你干掉（疫苗病毒）；
+
+伊维菌素现在能证明，真的几乎是百分之百的管用，只是管用到什么程度；
+
+青蒿素百分之百管用，只要吃对药，伊维菌素、青蒿素绝对能铲除疫苗，一定要传播，而且绝对能救你的命。
+
+Even though some people have been double-vaccinated, artemisinin and ivermectin will help to kill the poisonous substances stored in your body after the vaccination.
+
+It has now been proved that ivermectin is almost 100 percent effective in dealing with the symptoms caused by the vaccines, however differing in its levels of effectiveness depending on the severity of the symptoms. Artemisinin works to treat people with vaccines 100 percent of the time, if you take the right medicine. Both ivermectin and artemisinin can eradicate the poisonous effects of the vaccines, and this information must be spread widely as it can save people’s life.
+
+视频链接：郭先生GTV盖特直播
+
+发布：文泓
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

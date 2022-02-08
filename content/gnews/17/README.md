@@ -2,23 +2,46 @@
 ---
 
 
-## 中国网球运动员在中共监视下接受媒体采访
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1974161/)
+## 美国卫生部不再要求医院向联邦政府报告中共病毒死亡病例
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1974352/)
 
-编译：赵圣欢
+作者：纽约香草山教育部—Naughty(文行)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2081.gif)
 
-在北京，中国网球运动员彭帅接受了法国体育报纸《L’Equipe》的采访，而一名中国奥运官员站在附近。当被问及她对一名前中国共产党高级成员的性侵犯指控时，她说，国际上对她人身安全和着落的担忧是『一个巨大的误解』。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-5.png)
 
-彭帅还与国际奥会主席汤玛斯•巴赫（Thomas Bach）当面会晤，这无疑是为了减轻国际上对这位网球明星的担忧。当被问及国际奥委会是否认为彭的言论受到控制时，国际奥会发言人在新闻发布会上说，虽然他们追求的是『个人和安静的外交』，这不是我们能够以单一方式做出判断的，就像你也不能判断一样。
 
-有这样的声明撑腰，中共的策略似乎正在奏效——播下足够的模棱两可、混乱和怀疑的种子，最终，问题不了了之。
+在美国中共病毒死亡病例接近90万之际，美国卫生与公众服务部 (HHS) 上周三正式停止要求医院报告冠状病毒死亡人数，联邦政府将从CDC继续获取中共病毒死亡人数。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/172825.jpg)
+据报道，该规则变更最初于 1 月制定，直到上周三才生效。而在同一天，英国政府宣布将停止要求医院在复活节前报告冠状病毒死亡人数。
 
-[新闻链接：](https://www.nationalreview.com/corner/chinese-tennis-star-speaks-to-press-under-ccp-supervision/)
+一位联邦卫生官员称这一变化“令人费解”，称医院向联邦政府报告的中共病毒死亡人数是最准确的，而CDC是从验尸官和法医报告中收集各州的数据，这个过程会非常缓慢。而且很多验尸官往往不会把死因归于中共病毒。
 
-审核校对：Barry Jack
-上传排版：V在途中
+美国医院协会副会长南希·福斯特持有不同的看法，声称CDC会将医院之外的中共病毒死亡人数包括在内，提供的信息更加准确。
+
+参考来源：
+
+[U.S. Department of Health Stops Requiring Hospitals to Report Coronavirus Deaths to Federal Government](https://www.breitbart.com/politics/2022/02/07/u-s-department-of-health-stops-requiring-hospitals-to-report-coronavirus-deaths-to-federal-government/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-24.jpg)
+
+编辑/校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-5.png)
+
 
  
 

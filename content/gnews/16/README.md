@@ -2,24 +2,44 @@
 ---
 
 
-## 彼得·纳瓦罗：毫无疑问中共病毒来自武毒所，福奇对此早已心知肚明
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1974169/)
+## 短视频：印第安纳州医生因拒绝接种新冠疫苗被迫停职
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1974360/)
 
-#### 翻译/撰稿：zzballack
+翻译：Annabelle
+校对：精靈藍|
+剪辑字幕：Biggod
+编辑：文泓
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-9.jpg)图片来源：CNN
-据《新闻极限》（Newsmax）2月7日报道，曾在川普政府担任贸易顾问的彼得·纳瓦罗 (Peter Navarro) 2月7日在接受Newsmax采访时说，毫无疑问，美国国家过敏和传染病研究所（NIAID）所长、总统首席医疗顾问安东尼·福奇(Anthony Fauci)知道中共病毒来自武汉病毒研究所。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/2-1-4.png)图片来源：视频截屏
 
-纳瓦罗指着一张武毒所的图片告诉主持人埃里克·博林 (Eric Bolling)：“毫无疑问，这就是中共病毒的起源之地，它离病毒爆发的地方只有咫尺之遥。福奇在2020年1月就知道他资助了武毒所的功能增强实验，这将使得中共能够通过基因改造工程制造生物武器，也就是所谓的中共病毒（SARS-CoV-2）。”
 
-《国家脉动》（National Pulse）2021年9月的一篇报道说，生态健康联盟主席彼得·达萨克 (Peter Daszak)2017年在全球健康大学联盟（The Consortium of Universities for Global Health）的一次会议上宣称，他在中共国的冠状病毒研究工作是在美国国立卫生研究院的资助下进行的。
+他是在印第安那波利斯市一个遵循科学的儿科医生，但是因为拒绝服从他们医院的强制疫苗政策而被停职。
 
-要想解决新冠疫情以及灭共，病毒朔源是重中之重。无论主流媒体、政客以及黑暗势力再怎么打压病毒真相，不可辩驳的证据终将会让事实大白于天下，中共以及福奇等等与中共狼狈为奸的人一定会受到正义的审判和制裁。
+接下来有请Paul Halczenko博士，
 
-新闻来源：
+博士非常感谢来我们这里。现在我们知道疫苗不会阻止Omicron的传播，可医院为什么非要强迫你打呢？
 
-[Peter Navarro to Newsmax: Fauci Knew COVID-19 Came From Wuhan Lab](https://www.newsmax.com/newsmax-tv/anthony-fauci-wuhan-covid19/2022/02/07/id/1055878/)
+呃，早上好，我也没有答案啊，先生。
+
+**我同意你说的，科学已经详尽地阐述了疫苗根本不可能阻止（病毒）传播。**
+
+你也看到在不少的法律诉讼案里讲到的案例，以及许多我们医疗领域的带头人做的这方面信息的声明。
+
+如果一个妈妈因为你没打疫苗而不敢带她的孩子去见你，你会怎么说呢？
+
+我首先会说，自从大瘟疫以来我一直都在给儿童看病，一直都在使用医疗领域所称的个人防护设备。
+
+我们能够阻止被传染的病人和健康护理人员之间的传播，反过来也一样。而我确实是按照科学按照医院的个人防护措施设备来做的。
+
+视频链接：[Indiana doctor placed on leave from hospital for refusing COVID vaccine | On Air Videos | Fox News](https://video.foxnews.com/v/6290444175001#sp=show-clips)
+
+发布：文泓
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

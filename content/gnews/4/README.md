@@ -2,46 +2,20 @@
 ---
 
 
-## 美国卫生部不再要求医院向联邦政府报告中共病毒死亡病例
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1974352/)
+## 美国的官僚会为此付出血的代价
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1974504/)
 
-作者：纽约香草山教育部—Naughty(文行)
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
+*发布：陶子*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-5.png)
-
-
-在美国中共病毒死亡病例接近90万之际，美国卫生与公众服务部 (HHS) 上周三正式停止要求医院报告冠状病毒死亡人数，联邦政府将从CDC继续获取中共病毒死亡人数。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/172825.jpg)
-据报道，该规则变更最初于 1 月制定，直到上周三才生效。而在同一天，英国政府宣布将停止要求医院在复活节前报告冠状病毒死亡人数。
-
-一位联邦卫生官员称这一变化“令人费解”，称医院向联邦政府报告的中共病毒死亡人数是最准确的，而CDC是从验尸官和法医报告中收集各州的数据，这个过程会非常缓慢。而且很多验尸官往往不会把死因归于中共病毒。
-
-美国医院协会副会长南希·福斯特持有不同的看法，声称CDC会将医院之外的中共病毒死亡人数包括在内，提供的信息更加准确。
-
-参考来源：
-
-[U.S. Department of Health Stops Requiring Hospitals to Report Coronavirus Deaths to Federal Government](https://www.breitbart.com/politics/2022/02/07/u-s-department-of-health-stops-requiring-hospitals-to-report-coronavirus-deaths-to-federal-government/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-24.jpg)
-
-编辑/校对/发稿：兰兰
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-5.png)
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

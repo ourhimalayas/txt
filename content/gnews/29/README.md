@@ -2,26 +2,22 @@
 ---
 
 
-## 新冠病毒政策的制定是没有科学根据的
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1974056/)
+## 渥太华在“为自由护航”抗议强制疫苗中宣布紧急状态
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1974128/)
 
-##### 翻译：Julia Gao
-校对：枳实
-剪辑|字幕：文驰
-编辑：Mttfly
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-23.jpg)
+图片来源：
 
-美东时间2021年11月21日，美国参议员兰德·保罗（Rand Paul）在接受福克斯新闻采访时表示，当科学被政府所控制，或者被一些像福奇这样古板、嗜权的个人控制时，这就真的与科学没有任何关系了。这实际上都是为了驯服美国民众服从政府。据一位名为玛丽波尔·杜阿特（Maribel Duarte）的母亲透露，她的儿子被偷偷打了疫苗，并不被允许告诉父母。这是令人难以置信的，是非常危险的。
+美国合众社2月7日报道，加拿大首都渥太华称因许多卡车司机周末聚集抗强制疫苗使得抗议者，警察和居民之间的紧张关系而宣布紧急状态。渥太华警察因连续两个周末许多抗议者基本占据了市中心而进入联邦和省权力机构。基姆·沃特森市长宣布紧急状态，权力机构说卡车司机和其他抗改者的“为自由护航”已经给公众带来危险。
 
-视频链接：[COVID rules haven’t been about science for a long time: Sen. Rand Paul](https://video.foxnews.com/v/6286396878001#sp=show-clips)
+渥太华警察长戴安娜·丁恩说“他们恐吓了我们的居民，用不断的按喇叭折磨居民，威胁他们并不让他们进行正常的生活。”
 
-*发布：Mttfly*
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+抗议组织者说他们要待到加拿大政府放弃疫情强制措施。社交媒体#加拿大卡车司机，尤其是推特，帮抗议者发布在渥太华抗议人群的视频和照片。
+
+##### 新闻来源： [Ottawa declares emergency over ‘Freedom Convoy’ protests against COVID-19 mandates](https://www.upi.com/Top_News/World-News/2022/02/07/canada-emergency-freedom-convoy-covid/9211644252448/)
+
+#  
 
  
 

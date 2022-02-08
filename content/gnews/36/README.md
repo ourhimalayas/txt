@@ -2,51 +2,31 @@
 ---
 
 
-## 彭帅再次回应性侵事件并声称不再参加任何比赛
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1973674/)
+## 中日财经爆|药明生物被美国制裁 股价暴跌
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1973984/)
 
-作者：纽约香草山教育部 – Noemi
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-785.png)[图片来源](https://m.jiemian.com/article/7081635.html)
+中共国企业药明生物多间关连企业被美国商务部纳入“未经核实”实体名单（Unverified List），包括药明生物关联企业无锡药明生物与上海药明生物都将被制裁，随后药明生物股价暴跌。
 
+药明生物CEO陈智胜在周二投资者会上表示，对本次受影响出口产品，美国要求进口方不能转售或再出口，且美国有相应流程来核查进口方；本次受影响的两类产品，生物反应器的硬件控制器和超滤膜包，正在此列。
 
+受消息拖累，该股今早低开14.76%，报68.7元，成交额2.42亿元。其他跌势加深，现挫25.25%，报60.25元，而同系的药明康德﹙2359﹚现泻25.17%，报85元，药明巨诺则泻4.9%，报8.76元。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+美国商务部周一（7日）宣布，把33家中共国企业纳入“未经核实”实体名单（Unverified List），指该批企业在合符法规方面存在问题，因此禁止美国企业向有关企业输出受管制技术，或进行业务往来。根据美国商务部声明，美国无法核实涉事中共国企业的公司背景及可信度，因此作出相关处置。
 
+美国商务部上次把中共国企业纳入“未经核实”实体名单，是在2019年4月，当时两国处于贸易战期间。
 
+消息来源：[美國再制裁中企！　藥明生物瀉25%　偕另外32間企業被納禁運名單](https://www.hk01.com/%E8%B2%A1%E7%B6%93%E5%BF%AB%E8%A8%8A/732996/%E7%BE%8E%E5%9C%8B%E5%86%8D%E5%88%B6%E8%A3%81%E4%B8%AD%E4%BC%81-%E8%97%A5%E6%98%8E%E7%94%9F%E7%89%A9%E7%80%8925-%E5%81%95%E5%8F%A6%E5%A4%9632%E9%96%93%E4%BC%81%E6%A5%AD%E8%A2%AB%E7%B4%8D%E7%A6%81%E9%81%8B%E5%90%8D%E5%96%AE)
 
-2月7日消息，中共国网球名将彭帅在日前接受了一家国外媒体采访。采访期间，彭帅再次声明自己从未说过有人以任何方式对自己进行过性侵犯，但在谈到具体问题时，她则拒绝详述。随后，彭帅还声称，自己因年龄、伤病等原因将不会再参加任何的网球赛事。
+[药明生物称“未经核实的名单”非美国“实体名单” 计划明天与美国商务部谈判（更新版）](https://cn.reuters.com/article/wuxi-bio-responses-usa-0208-tues-idCNKBS2KD08L?il=0)
 
-据了解，自彭帅在墙内公开指证张高丽曾对她进行过长期性侵犯以后，相关消息就立刻遭到了中共当局的全面封杀，彭帅的个人安全也成为了全球关注的焦点。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide12-1.jpg)
-此前，彭帅在一次采访中，就曾改口称自己与张高丽发生关系是出于自愿。但据视频资料显示，彭帅在接受采访时的神态、举止都显得极其紧张。此次，彭帅再次谈及性侵事件相关问题时，则完全引用了外媒在去年12月报道该事件的评论原文，并称不希望媒体继续炒作此事。彭帅在两次采访中极为反常的表现，都使采访内容的真实性一再遭到公众的质疑，并加深了外界对于其个人安全问题的广泛担忧。
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+#  
 
-郭文贵先生也在该事件发生之初就曾指出，彭帅在后续所接受的一切采访都将会是受中共当局的安排和胁迫的，一切的澄清声明都将是中共虚假的谎言。
-
-参考信息：
-1. [中国网球女将彭帅现身上海城市越野滑雪赛 接受《联合早报》采访](https://www.zaobao.com.sg/realtime/china/story20211219-1224709)
-2. [Chinese tennis player Peng denies making accusation of sexual assault](https://www.reuters.com/world/china/chinese-tennis-player-peng-denies-making-accusation-sexual-assault-2022-02-07/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-
-总编/编辑：DM
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+#  
 
  
 

@@ -2,46 +2,54 @@
 ---
 
 
-## 短视频：伊维菌素、青蒿素、绝对能铲除疫苗
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1974030/)
+## 前美海军官员：打捞F-35C事关美中科技较量
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1974072/)
 
-翻译：Julia Gao
-校对：精靈藍
-剪辑字幕：清净
-编辑：文泓
+**【雅典娜观察】和您一起洞察世界**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/2-1-2.png)图片来源：视频截屏
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-789.png)图片来源：Theaviationgeeclub.com
 
+**整理报道：Sara9
+编辑：文泓**
 
-我说世界在三到五年内得癌症的（因疫苗的）和因疫苗死亡的，对人类的影响绝对就像当年恐龙灭绝时候那么大，这不是开半点玩笑的。
+当地时间1月31日，美国第七舰队告诉美国海军研究所新闻网，美国海军正在准备对1月24日在南海坠毁的F-35C闪电II联合攻击战斗机展开打捞行动。
 
-兄弟姐妹们，可以再次重申，你没有打疫苗有多么的伟大，绝对是你自己一生中最正确的决定。
+美国海军前官员声称，[打捞](https://www.epochtimes.com/gb/tag/%E6%89%93%E6%8D%9E.html)F-35C首要目的是防止它落入敌对国家手中。不过他指出，中共国并没能力打捞这架飞机。
 
-When I say that the COVID vaccines will result in cancer and death worldwide within three to five years, its impact on humanity will be as great as the extinction of the dinosaurs. This is not a joke at all.
+但日本海上保安厅在1月29日发布航行警告，打捞作业正在南海北部，菲律宾以西约185英里和永兴岛以东350英里的西沙群岛（海域）进行,该地点的水深约为11,800英尺。
 
-Fellow brothers and sisters, I would like to reiterate again how great it is that you are not vaccinated.
+美国海军前官员舒斯特说，从深海打捞一架重达7万磅的飞机的代价是高昂的，耗资约1000万到2000万美元，再将飞机恢复到可操作状态，又需再花2000万到3000万美元。
 
-You have certainly made the best decision of your life.
+舒斯特说，在大多数情况下，打捞是得不偿失的。但是，如果打捞的目的是阻止敌对国获得，并对其进行逆向工程或复制相关技术，或找到击败该技术的方法，那么答案是肯定的。
 
-即使打了两针，你吃青蒿素、伊维菌素一定会帮你干掉（疫苗病毒）；
+分析人士认为，中共几乎肯定对这架坠毁的F-35C深感兴趣，美军需要阻止中共抢先一步打捞。
 
-伊维菌素现在能证明，真的几乎是百分之百的管用，只是管用到什么程度；
+F-35闪电II是世界上最先进的第五代隐形战斗机，斯诺登的文件说，中共盗窃了F-35C的雷达设计，包括模块的数量和类型，详细的发动机示意图，包括冷却气体的方法、前缘和后缘处理以及后甲板加热轮廓地图等等。
 
-青蒿素百分之百管用，只要吃对药，伊维菌素、青蒿素绝对能铲除疫苗，一定要传播，而且绝对能救你的命。
+坠毁的F-35C上的一切都是最先进的技术，包括转向、发动机、机身、航空电子设备、数据链路和雷达的技术。
 
-Even though some people have been double-vaccinated, artemisinin and ivermectin will help to kill the poisonous substances stored in your body after the vaccination.
+“不过，中共没有这个打捞能力”，舒斯特说：“中共过去海底打捞的最深记录是1,500到2,000英尺，而现在F-35C躺在11,800英尺深海底。
 
-It has now been proved that ivermectin is almost 100 percent effective in dealing with the symptoms caused by the vaccines, however differing in its levels of effectiveness depending on the severity of the symptoms. Artemisinin works to treat people with vaccines 100 percent of the time, if you take the right medicine. Both ivermectin and artemisinin can eradicate the poisonous effects of the vaccines, and this information must be spread widely as it can save people’s life.
+而且，南海海底情况复杂。美国要打捞这架F-35C完全没有问题，我们曾经从15,000英尺的深度打捞飞机。”
 
-视频链接：郭先生GTV盖特直播
+舒斯特认为，中共可能会在坠机周围采集水样，建立一个计算机模型，坠机周围的水样告诉你飞机上含有什么矿物质。这使你对飞机的构造方式有所了解，并知道使用了哪些材料。
 
-发布：文泓
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+除了F-35，中共黑客还窃取了美国空军F-22猛禽和B-2隐形轰炸机、天基激光器、导弹导航和跟踪系统及与核潜艇和防空导弹相关设计的信息。
+
+舒斯特认为，中共过去通过间谍活动已经获得F-35C百分之六十的图纸信息。如果中共将坠毁飞机打捞起来，他们将再获得百分之三十到四十的图纸信息。
+
+新闻链接：[前美军官员：打捞F-35C涉美中科技较量](https://www.epochtimes.com/gb/22/2/6/n13558191.htm)
+
+*发布：盘古相聚*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
 
  
 

@@ -2,28 +2,102 @@
 ---
 
 
-## 美司法部指控中共公司海能达合谋前摩托罗拉员工窃取通信技术
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1974252/)
+## 沙克·奥尼尔对强制疫苗发表意见
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1974433/)
 
-#### 翻译/撰稿：zzballack
+[https://gtv.org/video/id=6201dc6b585ecc15d73ed4c0](https://gtv.org/video/id=6201dc6b585ecc15d73ed4c0)
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-2-1.png)图片来源：雅虎新闻
-据《路透社》（Reuters）2月7日报道，美国司法部2月7日表示，它已对总部位于深圳的中国无线电通信制造商海能达(Hytera)提出刑事诉讼，指控该公司与摩托罗拉系统公司（Motorola Solutions）前员工合谋窃取美国的数字移动无线电技术。
+Shaq O’Neal
+沙克·奥尼尔
 
-司法部的起诉书指出，海能达在马拉西亚招募摩托罗拉员工以窃取对讲机所用的无线电技术。起诉书点名了海能达公司，但删去了其他被吿者名字，包括一些被海能达招募的前摩托罗拉员工。根据法律文件，海能达在2007年至2020年间以高薪挖角摩托罗拉员工，从而换取商业机密。
+Look, I encourage everybody to be safe and take care of your family
+听着，我鼓励大家注意安全并照顾好你的家人
 
-海能达面临21项刑事指控，包括合谋盗窃商业机密、拥有或试图保存被盗的商业资讯等，若罪名成立，海能达将被处以相当于被盗商业机密价值三倍的刑事罚款。
+I do, but there’s still some people that don’t wanna take it
+我接受疫苗，但仍有一些人不想接受它
 
-摩托罗拉的执行副总裁兼法律顾问马克·哈克(Mark Hacker)在一份声明中说：“对海能达的指控凸显了该公司的非法行为是精心设计和故意的，我们将继续在世界各地的司法管辖区对海能达提出民事诉讼，以防止其继续侵权，并要该公司对摩托罗拉所造成的伤害赔偿数亿美元。”
+And you shouldn’t have to be forced to take something you don’t want
+你不应该被迫接受你不想要的东西
 
-起诉书说，摩托罗拉前员工在入职和离职时都签署了保密协议，但有证据显示，某些前员工通过他们在过去从未使用的数据库偷取摩托罗拉的商业机密。
+Turner
+特纳
 
-海能达是摩托罗拉产品的前经销商。2020年2月，在一起针对海能达的商业机密盗窃和版权侵权案中，陪审团裁决摩托罗拉公司赢得7亿6460万元。芝加哥的一个联邦陪审团发现，海能达在无线电通信中使用了摩托罗拉公司的机密文档和受版权保护的技术，但海能达表示该技术由其自行研发。
+I don’t think people are being forced to take …
+我不认为人们是被迫接受的……
 
-这起刑事诉讼是海能达在美国面临的最新法律挑战，去年11月总统拜登签署法案，阻止海能达和其他被视为对美国有安全威胁的中共公司获得美国监管机构发放的许可证，前总统川普也禁止接受联邦资金的单位使用海能达制造的通信设备。
+Well, there are some …
+嗯，有一些……
 
-新闻来源：[U.S. charges China’s Hytera with conspiring with ex-Motorola staff to steal technology](https://www.reuters.com/business/media-telecom/us-charges-chinese-company-with-conspiring-with-ex-motorola-staff-steal-2022-02-07/)
+There are, I mean, listen we have a mandate at CBS
+我的意思是，听着我们在CBS有强制
+
+Shaq O’Neal
+沙克·奥尼尔
+
+That’s forced
+那是强迫
+
+Turner
+特纳
+
+We have a mandate at CBS
+我们在CBS有强制
+
+But my, but my point …
+但是我的，但是我的观点……
+
+Shaq O’Neal
+沙克·奥尼尔
+
+That’s forced
+那是强迫
+
+Turner
+特纳
+
+where I wholeheartedly …
+我全心全意地…
+
+Shaq O’Neal
+沙克·奥尼尔
+
+That’s forced
+那是强迫
+
+Turner
+特纳
+
+No, it’s not forced
+不， 它不是强迫
+
+Shaq O’Neal
+沙克·奥尼尔
+
+It is forced
+它是强迫
+
+because if the man don’t take it, the man gonna get fired
+因为如果这个人不接受，这个人就会被解雇
+
+* * *
+
+Date:02/04/2022
+原视频标题: Shaq O’Neal weighs in on vaccine mandates
+沙克·奥尼尔对强制疫苗发表意见
+原视频日期：2022/02/04
+原视频链接: **[https://twitter.com/ginacarano/status/1489421001918083073?s=24](https://twitter.com/ginacarano/status/1489421001918083073?s=24)**
+任务编号：3666
+视频时间段 : 0:00-0:27
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场- 文新
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
