@@ -2,10 +2,10 @@
 ---
 
 
-## 基思·凯洛格将军：俄罗斯、中共、伊朗联手
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1976431/)
+## 众议院通过了一项旨在让美国比中共国更具竞争力的法案
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1976447/)
 
-02/04/2022 基思·凯洛格将军：俄罗斯、中共、伊朗联手，上一次类似情形是1940年的《德意日三国同盟条约》。
+02/04/2022 众议院通过了一项旨在让美国比中共国更具竞争力的法案
 
 By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 

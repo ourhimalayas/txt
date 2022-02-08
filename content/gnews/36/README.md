@@ -2,15 +2,30 @@
 ---
 
 
-## 郝董谈自身转会经历，反映出HPAY对未来体育界的革命性影响
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1975895/)
+## NFSC新闻、G|TV新闻访谈简报|2022年2月8日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1976029/)
 
-**H-Pay 将彻底改变金融游戏规则**
-视频制作：文双
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-4.jpg)
 
-翻译：秋刀鱼
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-7.png)
+文章仅代表作者本人观点，与Gnews无关
 
-上传排版：文勇
+视频参看：
+[2022.02.08早 《NFSC新闻》](https://gtv.org/video/id=620270173621aa7415d79f7a)
+[2022.02.08早 G|TV《新闻访谈》](https://gtv.org/video/id=620278393621aa7415d7a38a)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/calendar-1.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
