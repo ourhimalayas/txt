@@ -2,26 +2,25 @@
 ---
 
 
-## 有声|中美初次建交，文明穿越百年
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1972361/)
+## 共产党家族拥有特权
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1972469/)
 
-配音：香草山巡管部– 文凯琳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月4日文贵大直播中，郭先生回顾中美两国人民的友谊之路时，告诉同胞，中美初次通商始于大清年间。彼时的美国是一个刚刚独立的国家，为了区别于大英帝国，亟需在世界上建立外交关系与贸易。美国人乘坐“中国皇后号”远航，第一个远东外交目的地就是中国广州。他们为中国带去了西洋参和白银，从中国带回了茶叶、瓷器及火药。经此次贸易，中美两国人民建立了深厚的友谊。中国人遵守规则，勤劳朴实；官员聪慧；中国食物丰富美味；尤其中国女性极为干净，眼神坚定。彼时中国的高度文明，吸引美国派驻中国的大使，蒲安臣是美国派去中国的大使，设立驻中国大使馆。后来，蒲安臣还代表中国大清政府参与大清外交事务，据此诞生了著名的美国游说文化。
+#### 整理：雅典娜速记组
+编辑：开智则立
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8-50～9-00～2.png)
+刚才亨利小哥说的就是不知道谁搞不懂，到底是中共魔怔了还是个人被威胁了 ？被俄罗斯这种，爱上俄梦从来没带来过好处。除了刚才我说的那些原因之外，还有一个就是俄罗斯是世界上最会抓住政治把柄，搞政治黑社会是全人类第一，没人喊第二。当然了，就共产党所有在俄罗斯搞的武器交易，没有不拿巨额回扣的，跟俄罗斯做石油贸易交易没有不拿回扣的。而美国人跟中国人做事，作为文化交流、精神交流，绝对是实际利益交流。
 
-文字版原文：[中美初次建交，文明穿越百年](https://gnews.org/zh-hans/1966038/)
+这个时候大家可以看到，单伟建TPG和PAG，你不说别人，就说大家现在同心同框的这几个人，除了亨利小哥能说出个123来你们都不懂，特别是你在国内没有接触过共产党的，那个时候所谓的共产党家族，被下放的人能回到北京城，还能出国，那是天大的事情，那是佼佼者中的佼佼者。就像当时在我盘古摩根中心做CEO的林强，林强他们哥儿俩，人家爹是最高的情报头子，人家的叔叔是第一任派到联合国的中国代表叫林清，人家的表妹是李小龙朋友，人家主爷是林则徐。你往上捋去，郭文贵的爷爷长工，郭文贵的爹农民，郭文贵的娘农民。人家共产党把所有的中国都垄断了。就这样的人，林强是周恩来派人接回来的，开着伏尔加轿车。然后一个安全部，一个公安部，一个搞政治保卫，一个搞对美情报。都是这个时候啊，跟单伟建出来的。那时中国下放的知识青年六千万啊！几千万个家庭被害，为啥就选他了？一样的，就是当时中共已经从对俄关系转到了对美关系。
 
-音频处理/发稿：Daxia
+*发布：开智则立*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

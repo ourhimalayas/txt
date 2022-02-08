@@ -2,35 +2,61 @@
 ---
 
 
-## 2022.2.6大直播后记：中共会打台湾吗?
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1972557/)
+## 这个镇上没有人在谈论美国经济的整个结构以及坦率地说，我们是如何沉迷于轻松赚钱
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1972618/)
 
-**整理：雅典娜速记组
-编辑：Candy**
+[https://gtv.org/video/id=62014e15585ecc15d73eab75](https://gtv.org/video/id=62014e15585ecc15d73eab75)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-420.png)
+**Steve Bannon**
+**史蒂夫·班农**
 
+Since 2008, in the great financial crash
+自2008年以来，在大金融危机中
 
-**文真：**最后一个问题是我们的文鹰战友问七哥。因为文鹰战友可能对中国军队的体系比较了解，可能比较关心台海局势，七哥在最近几次的直播中，隐隐约约地透露了台湾的局势非常严重，七哥方不方便再多给一些细节。今天我们也看到了，《美国竞争法案》里边有很大一部分， 相比去年关于台湾的初次方案，我觉得美国为了他自己的利益，他要保护台湾。请七哥简短的给文鹰战友做一些具体的解答吧。
+the strategy of the Fed and the central banks have been essentially zero interest rates
+美联储和中央银行的策略基本上是以零利率
 
-**七哥：**我还是那句话，打台湾超过90%的可能性，他打台湾共产党就完蛋了。 太具体的细节没有，而且一切都在变化中。美国这个所谓的《法案》，我认为有好的，当然跟历史比很棒，但是说明了共产党的势力不可小觑， 它在美国影响很大。
+to push up assets
+来推高资产
 
-这个《法案》其中有三、四条最关键的（条款），全部都给取消了。例如，打台以后自动生效的各种法，打台湾就自动把什么账目公开，跟中共彻底脱钩，外交断交等等，这都没了，都没都被拿下去了。中共的游说能力你可见一斑。包括美国，共产党在西方的所有资产自动被查封，这全都取消了， 但他毕竟有了《法案》。打台湾的事情我认为超过90%。谢谢！
+We’re coming to the end of that
+我们即将结束这种方式
 
-文真：我个人认为，因为美国是三权分立的体制，议会，国会是有权独立宣战的。 所以说，如果已经有了一个法律在前，是不是就为他后面的宣战做好准备了呢？
+And there’s no one today is having a sophisticate
+而且今天没有人拥有一个成熟的
 
-七哥：很大的帮助啊。对台，给他留下了行动的更多的空间，而且把对台的这个话语权、一直以来美台关系是由立法会，就是国会山来搞的，都是以它来主导的。那这一次能看出来：他不但主导了，而且非常明确，会把总统，还有让整个美国的民众提前预知了。如果有一天发生事情的时候，我们就不用再那么啰嗦了，已经准备好了。
+where they say that their deplorable are so dumb and stupid
+他们说他们的小人物是如此愚蠢和愚蠢
 
-这个是很大的帮助，但是，就是跟我们想象的（比）没那么够（力度）。 原来我觉得，今年春节前会发生的《法案》它没发生， 晚了几天。 另外一个就是《法案》的几个重要条件，它给删除了，但是毕竟有这个《法案》还是很好的。谢谢！
+Nobody in this town is having a an adult conversation
+这个镇上没有人在进行成年人的谈话
 
-***发布：Candy***
+about the entire structure of the American economy, and how quite frankly
+关于美国经济的整个结构，坦率地说
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+we’re addicted to easy money and we’re addicted to zero interest rates
+我们沉迷于轻松赚钱并且我们沉迷于零利率
+
+**原视频链接:**[https://gettr.com/post/pshgmh2283](https://gettr.com/post/pshgmh2283)
+
+Date:02/05/2022
+原视频标题: “Nobody in this town is having an adult conversation about the entire structure of the American economy and how, quite frankly, we’re addicted to easy money.”
+“这个镇上没有人在谈论美国经济的整个结构以及坦率地说，我们是如何沉迷于轻松赚钱的。”
+原视频日期：2022/02/05
+原视频链接: https://gettr.com/post/pshgmh2283
+任务编号：KE384（3676）
+视频时间段 : 0:00-0:29
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场- 银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

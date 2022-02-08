@@ -2,28 +2,123 @@
 ---
 
 
-## 中共国与世不同的行事规则让所有人都付出代价
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1972474/)
+## 未来中共国会有2亿人左右死于毒疫苗，一半房子将无人居住
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1972541/)
 
-#### 翻译/撰稿：文旺 | 校对：沙拉猫
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-07-181845.png)图片来源：www.economist.com
-美国“国会山报”（The Hill）2月6日发表了一篇“兰德”（Rand）智库深资学者克里斯托弗·保罗（Christopher Paul）的专文，指责中共国正以其他所有人的利益为代价推行其独有的规则。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/apa1d-0xvla.jpg)
+[https://gtv.org/video/id=62014d33585ecc15d73eab32](https://gtv.org/video/id=62014d33585ecc15d73eab32)
 
-文章细数了中共靠阴谋诡计行事让其他所有人都付出代价的邪恶行径。文章指出，美国的民主体制不仅允许竞争对手不受限制地进入其市场，而且还允许对手进入象征民主第四根支柱的媒体生态系统。中共便利用这一点，让中共国的公司成功地进入了美国的媒体系统，而几乎没有受到美国监管机构的抵制。这些中共国的公司不仅能够访问美国的传播媒介，而且逐渐获得了拥有、控制和影响内容的全面能力，尤其是在广播电台方面。
+**郭文贵**
+Miles Guo
 
-文章披露，中共国营的“中国国际广播电台” (CRI) 已获得 14 个国家至少 33 个广播电台的控股权——包括华盛顿特区的新闻广播公司 WCRW——以播放支持中共国的中文节目和报道有利于中国共产党的事件。战略与国际研究中心（Center for Strategic and International Studies）2020 年的一份报告发现，“美国几乎所有的中文新闻媒体要么归中共所有，要么与中共有密切合作——而且这种情况也开始发生在英文媒体里。美国人现在可以从全国各地十几个城市的广播电台的调频广播中，听到微妙的亲北京宣传。”
+在今天的疫苗灾难之前，你知道我最大的痛苦是什么吗？
+Facing the vaccine disaster today, do you know what has been my biggest suffering?
 
-文章指出，中共的官员要不在这些公司的董事会任职，要不直接就是公司的老板。而在美国，政治人物在当选时会放弃或至少放弃对其商业利益的某些控制。另外，所有中共国的公司在某种程度上都是国营的，或者至少是受国家影响或服从国家的，这在美国是难以理解的。
+中国的男人能不能有一次当回男人？
+All men in China, could you be the real men once?
 
-文章称，尽管美国联邦通讯委员会（FCC） 确实有权监控外国机构对国内广播电台的控制，但中共国的 CRI 通过混淆手断使这些审查复杂化，那就是，通过空壳公司购买，或通过获得美国媒体集团的部分股权（或数个部分股权）来掩盖其真实目的，同时让 FCC 觉得中共国在美国媒体机构的利益低于 25%。
+你挑起一个当爹的、当男人的基本的一个责任
+To assume the basic responsibility of being a father and a man
 
-文章认为，虽然中共国充分利用了自由市场的机会收购西方国家的媒体公司，但外国媒体公司却被中共国拒绝进入。中共的国有媒体锁住了国内市场，几乎不允许外国媒体有控制、投入或影响的机会。这种不平等为美国领导人向中共提出互惠条件提供了机会：除非中共国把其媒体市场的投资和所有权向外国开放，否则美国媒体公司就应该剥离中共国公司在美国的股份。
+有基本的脑子判断不要让你的孩子打了疫苗
+to have a basic knowledge to judge and not let your children get vaccinated
 
-虽然文章承认这种要求有点不切实际，因为中共永远不会向外国势力开放其广播媒体，但认为这样的举动不仅可以为美国要求中共从美国媒体撤资提供一个公平合理的理由，还可以促使FCC更积极地打击和调查媒体背后的所有权资金链和影响力。文章最后指出，在虚假信息和不信任日益增加的时代，保护美国的媒体免受外国反民主力量的侵害无疑是值得迈出的一步。
+打了疫苗吃青蒿素、吃伊维菌素
+If they have been vaccinated, have them take Artemisinin or Ivermectin
 
-评：郭文贵先生在直播中早就指出，中共把媒体和宣传视为比核弹还厉害的武器，一直通过蓝金黄手段，收买和控制西方国家特别是美国的媒体，释放迷惑人心的信息烟雾弹，美化邪恶的独裁统治，企图让美国人民在不知不觉中慢慢被中共弱化，最后被中共国取代。但爆料革命和新中国联邦横空出世，揭露了中共的伎俩，让越来越多的美国有识之士认识到，如果不对中共的海外宣传机器进行反击，后果会越来越严重。这篇文章就是一个很好的例证，愿更多的美国民众能有文章作者这样的认识。
+或者你有什么这素那素、你能让孩子不死的素
+or whatever medicines that you have to keep them alive
 
-消息来源：[How China plays by different rules — at everyone else’s expense](https://thehill.com/opinion/technology/592998-how-china-plays-by-different-rules-at-everyone-elses-expense?rl=1)
+非得要看到自己家人死去
+Why do you have to wait until family members die？
+
+然后你抹几天眼泪
+then you cry a couple of days
+
+然后再给自己找理由解脱吗？
+and then find an excuse for yourself to be relieved?
+
+七哥真的这些天最大的痛苦莫过于如此
+All these are the biggest suffers that I have had during these days
+
+就看着我们同胞在文化大革命饿死
+I have watched our brothers and sisters starve to death during the Cultural Revolution
+
+生产队群居
+the production teams lived in groups
+
+三反五反
+the Three-anti Campaign (1951) and Five-anti Campaign (1952)
+
+然后搞土改
+then the Land Reform Movement
+
+杀了两百多万地主
+executed more than two million landlords
+
+结果死了6千多万老百姓
+and ended up killing more than 60 million ordinary people
+
+文化大革命把中国老祖宗的五千年的一切毁于一旦
+The Cultural Revolution had destroyed everything at once in the five thousand years of China’s ancestors
+
+然后还享受其中
+They (the CCP) even enjoyed all these
+
+然后是八九六四
+Then, the June 4th, 1989 (Tiananmen Square protests and massacre)
+
+然后计划生育死了几亿人（胎儿）
+and then the Family Planning that killed hundreds of millions (fetuses)
+
+现在又在搞这个疫苗，结果你真的打了
+And now they are doing this vaccine scam, and it turns out you are vaccinated
+
+国内真的是我现在告诉大家
+I’ll tell you now that domestic (China) is really…
+
+国内的房子未来我这觉得，可能真的一半的房子没人住
+I think that half of the houses in China may be unoccupied in the future
+
+一半的房子没人住
+Half of the houses in China would be unoccupied
+
+中国真的可能要死2亿人左右, 要死2亿人左右！
+China really may have about 200 million people die, about 200 million people have to die
+
+那是个什么样的灾难结果呀？
+What kind of catastrophe outcome is that?
+
+哎呀
+My God!
+
+七哥说实在话心很大
+I’m telling the truth, I have a strong heart
+
+但到那个时候七哥真是能受得住吗？你想想
+but think about it, could I really bear it when that moment comes?
+
+Date: 02/01/2022
+原视频标题:
+历数中共斑々劣迹，三反五反、土改、大跃进、大饥荒，让千百万人成了孤魂野鬼；文化大革命把老祖宗五千年的一切毁于一旦；计划生育弄死了几亿胎儿；8964及香港运动，镇压了多少渴望民主自由的青年；如今的强制疫苗，更是蒙骗杀戮百姓于无形。未来中共国会有2亿人左右死于毒疫苗，一半的房子将无人居住！
+The CCP’s bad deeds: the Three Antis and Five Antis, Land Reform, the Great Leap Forward, the Great Famine, the Cultural Revolution, the Family Planning, the June 4th movement, the Hong Kong movement, and the COVID vaccine disaster. The CCP China will be about 200 million people dying and leaving half of the houses unoccupied in the future.
+
+**原视频链接**: [https://gettr.com/post/prs3rmcce3](https://gettr.com/post/prs3rmcce3)
+
+原视频日期：2022/01/30
+原视频链接: https://gettr.com/post/prs3rmcce3
+任务编号：KC439（3652）
+视频时间段 : 0:00-02:01
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译: 洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-文新
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

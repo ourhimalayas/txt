@@ -2,89 +2,32 @@
 ---
 
 
-## 全球疫情更新（毒针的黑色幽默）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1972219/)
+## 贩卖妇女 | 中共治下的又一哀鸣，我们为自己而战
+` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1972275/)
 
-**整理/编辑：枳实**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-755.png)图片：雅典娜农场设计组 精灵蓝
-雅典娜疫情更新（2022年 2月7日）
+新西兰伊甸农场Gnews组 财经G乐部-亚伦
 
-[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
-
-**一，全球疫情基本数据**
-
-感染总数：394,598,105（日新增2,842,882人，14天增幅-14%）
-
-死亡总数：5,737,372（日新增10,597 人，14天增幅 +32%）
-
-**二，全球“疫苗”毒针统计数据**
-
-“疫苗”毒针注射总数：102亿
-
-完全“接种”：42亿人
-
-完全“接种”百分比：53.9%
-
-**三，澳洲疫情和“疫苗”数据**** **
-
-感染总数：2,752,238（今日新增23,169人）
-
-死亡总数：4,247人（今日新增 46人）
-
-每万人感染人数：1067.3506人
-
-“疫苗”毒针注射总数：51,152,055（今日新增70,718  针）
-
-完全“接种”：19,321,803人
-
-第二针“接种”百分比：78.9%
-
-16岁以上人口接种至少一剂疫苗的比例：&gt;95%
-
-16岁以上人口接种至少两剂疫苗的比例：93.7%
-
-加强针总数：8,997,661（日新增：56,141针）
-
-**四，毒针的黑色幽默**
-
-“疫苗”毒针给人们带来了无尽的眼泪和死亡。各国政府利用大疫情带来的额外公权力大搞强制疫苗，尤其是利用疫情限制措施强迫孩子们注射毒针之时，本应针砭时弊的喜剧演员没有嘲讽这些，却不幸被迫用生命来嘲讽了“安全”“有效”的毒针。
-
-3周前刚刚接受加强针注射的美国喜剧演员希瑟·麦克唐纳（Heather McDonald）[周六晚上在一场单口喜剧表演中晕倒后导致颅骨骨折而住院](https://stevekirsch.substack.com/p/did-the-covid-vaccine-cause-heather)。她当时正在打趣：[“我接种了，打完双针，又打了加强针……还打过流感疫苗，也打过带状疱疹疫苗，至今还没有得过COVID，耶稣最爱我！”](https://thecovidworld.com/comedian-heather-mcdonald-collapses-on-stage-fractures-skull-after-saying-im-vaxxed-double-vaxxed-boosted-and-flu-shot/) ，话音未落，她就晕倒了。
-
-后来她在病床上，向她的粉丝透露，她这辈子从未晕倒过。医生也没有找到原因，她演出前全天并没有饮酒。但是我们都知道，这种晕倒甚至猝死正是毒疫苗副作用的一种常见的临床表现。
-
-就在不到24小时之内，另外一位戏剧脱口秀女演员，同样是打了第三针毒针的切尔西·汉德勒（ [Chelsea Handler](https://www.yahoo.com/entertainment/chelsea-handler-hospitalized-cancels-comedy-shows-173233139.html)）也倒下了，她不得不住院，并取消了其余的节目。她的节目叫做“接种了，长角了”（ *Vaccinated and Horny，*这个节目名称从字面上看，意在嘲讽一些“反疫苗”者，因为他们认为接种基因治疗“疫苗”，是将异种基因混入人类基因组，如同被印上了魔鬼的印记，兽角在基督教文化中即代表魔鬼的形象）。
-
-这难道不是很讽刺吗？ 不管大众如何听信大媒体和政府的虚假宣传，纷纷继续注射那些毒针，最终这些摆在眼前，发生在身边的事实会让绝大多数能存活下来的人们觉醒，意识到这些所谓的“疫苗”，其实是后患无穷的毒针。
-
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
-
-数据来源：
-
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：Lish
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+近日，徐州丰县欢口镇董集村被铁链拴住脖子的“八孩母亲”的悲惨遭遇牵动了所有人的心，这位疑似遭贩卖的母亲脸上只有茫然，尽管正值隆冬气温接近0度却身着单衣。这段毛骨悚然的视频令人震惊，也让世界聚焦在中共国社会的女性权益问题。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture-8.jpg)图片来源微博视频截图
 
 
+2月6日，郭文贵先生于GTV、Gettr大直播中作出回应道，曾亲眼目睹河南台前县、范县的现场买卖妇女的情形，那些妇女都是裸体的（怕她们逃跑）在地下室，被脚镣手铐拴着。
+
+妇女价格最高的是女学生3000人民币，年龄偏大一些或者是不能生育的妇女只要500-1000人民币。很多妇女就是被麻袋直接绑架走，而绝大多数被贩卖的人口来自四川和湖北。遭绑架后，这些妇女被实施强奸、凌辱、虐待，等全村的人“享用”完再被卖掉去别处。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture111.jpg)图片为这位母亲旁边的床，放着还未进食的“饭”
+
+
+而购买这些妇女（很多未成年）的消费者大多都是40-60岁娶不上老婆的贫困户，有些甚至精神都不正常具有反社会人格，所以当被贩卖的妇女落在这些人手里的悲惨遭遇难以想象。在中共国的社会里，女性的定位只是解决性欲和生育的工具，是可以自由买卖的商品。
+
+在中共国的法律体系下，几乎认为贩卖人口是合理的、习以为常的事，这是对人权和中共“依法治国”的巨大讽刺。据悉，2017年美国就曾把中共国列为人口贩卖最严重的国家之一，而徐州市姜集村曾是苏北最大的“人口批发市场”。根据《中共国走失人口白皮书(2020)》统计数据显示，仅在2020年，“走失”人次达到了100万，而2016年的数字是394万。
+
+在西藏和中共种族灭绝的新疆，但凡有点姿色的妇女都会被甄选出来，以音乐团或文工团的形式成为地方官员、封疆大吏和中南海老杂毛们的供品，他们纵情地享受的这些年轻妇女的青春和美丽。
+
+在注重男权社会的中共国，女性从来没有被公平对待过。绑架贩卖妇女折射出中共治下社会的道德坍塌，信仰的缺失，对人权的蔑视和社会资源分配不均导致的城乡差距过大。贫困地区的男人为“妇女批发市场”生意兴隆提供了巨大的市场需求，中共腐败的司法体系给妇女贩卖提供保护伞助长了这一黑色产业链的发展，不择手段的人口增长考核让中共地方官员给这一行为连开绿灯。
+
+说到底，一切源于中共的邪恶统治和成功的愚民政策，造成国人的麻木不仁，缺乏对是非曲直的判断，不尊重和藐视人的基本权益。这位拴链妇女不仅是新闻里的悲惨人物，中共不灭，她就有可能是我们自己的亲人，甚至是我们未成年的女儿被绑架、被强奸、成为精神病和沦为生育的工具，忍受着比狗还不如的吃食和冰冷的锁链。中共默许的合法奴役政策，让所有人都生活在大集中营里，只是还未临到你而已。
+
+所以，拯救被贩卖妇女，打击贩卖人口产业链，推翻中共不是为了新闻人物，是为我们自己而战。
 
  
 
