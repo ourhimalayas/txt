@@ -2,26 +2,33 @@
 ---
 
 
-## 2021多灾多难，2022我们一定会赢
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1973343/)
+## 有声|美国发布外国应用软件新政策再审抖音
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1973344/)
 
-整理：雅典娜速记组
-编辑：tianzhihuan
+配音：香草山巡管部 – 格格
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+2月2日，据当地多家媒体报道，美国联邦政府正在考虑给有潜在安全风险的手机应用程序制定新的审查规则。当中，具有中共背景的抖音程序被要求提供源代码和其他数据。
 
-2021是一个多难多灾的，充满希望的，充满了成就的一年。2022,绝对是共产党的大灾之年，我相信中国的自然灾害，水灾、农作物之灾，包括共产党的20大选举，这几乎可以决定中国和全世界人民的命运。我相 信中共内部的政治会充满了血腥和较量和屠杀，不到最后1分钟都很难定局。另外一个我觉得世界能黑暗到什么程度，比刚刚落下的这个太阳的黑夜还要黑。大家要记住，我们大家的团结，我们的信仰，我们的坚定，我们还得靠自己。
+据悉，此项政策将赋予政府对那些可能造成国家安全威胁的应用程序更大监督权。为此，政府或相关部门需要根据一套风险标准来评估某应用程序是否为外国对手所拥有和控制，或者受其管辖和指示。其中，需要被评估的行为包括该软件是否可被用于监控或实行间谍活动，以及是否可以被用于军事、情报搜集或扩散活动。
 
-就像我们今天，小的汤姆、大的山姆、三百年的飞飞、万年的安平、 Longwoods加拿大的翌珊、大神级的Rosemary,我们无穷尽的，干劲儿十足的阿炳这样的战友，我们团结在一起，用行动，行动，行动，建立我们一个又一个的基础，把整个G系列强大起来，把我们最核心的金 融板块、媒体板块做大做强，今年是一个收割年，是一个充满了神秘和神奇力量的一年，一定会的。不是说该我们赢了，我们一定会赢，2022。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2022我们一定会赢.png)
-2022年1月1日文贵大直播
+早先，美国政府一直在评估抖音与中共的关系，加之该公司内部人员曾透露，抖音公司位于北京的总部对其产品拥有最终决策权，因此，川普政府先前一度尝试禁止抖音在美国的运行。据报道，目前，美国商务部的提案明确指出，抖音的母公司字节跳动总部位于中共国，其已经可以被看作是隶属于“外国对手”的应用软件。
 
-*发布：tianzhihuan*
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
+
+文字版原文：[美国发布外国应用软件新政策再审抖音](https://gnews.org/zh-hans/1962993/)
+
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

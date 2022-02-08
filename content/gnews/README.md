@@ -60,34 +60,34 @@
 ### [日本将大力推进第3剂疫苗接种](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|世卫称57国出现Omicron变种，放松防疫还太早](/content/gnews/16/README.md)
+### [有声|教练被隔离 花样滑冰运动员感到“茫然”](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [有声|美国发布外国应用软件新政策再审抖音](/content/gnews/17/README.md)
+### [有声|世卫称57国出现Omicron变种，放松防疫还太早](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [2021多灾多难，2022我们一定会赢](/content/gnews/18/README.md)
+### [有声|美国发布外国应用软件新政策再审抖音](/content/gnews/18/README.md)
+ ` MOSREC`
+
+### [2021多灾多难，2022我们一定会赢](/content/gnews/19/README.md)
  ` 雅典娜GNotes`
 
-### [2022年会非常的精彩但也会有巨大的挑战（三）](/content/gnews/19/README.md)
+### [2022年会非常的精彩但也会有巨大的挑战（三）](/content/gnews/20/README.md)
  ` 雅典娜GNotes`
 
-### [中国男足为啥叫“白斩鸡”？](/content/gnews/20/README.md)
+### [中国男足为啥叫“白斩鸡”？](/content/gnews/21/README.md)
  ` 澳喜农场`
 
-### [数字货币的诞生是新人类一切的开始](/content/gnews/21/README.md)
+### [数字货币的诞生是新人类一切的开始](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2022年会非常的精彩但也会有巨大的挑战（二）](/content/gnews/22/README.md)
+### [2022年会非常的精彩但也会有巨大的挑战（二）](/content/gnews/23/README.md)
  ` 雅典娜GNotes`
 
-### [比特币和以太坊没做到的事，喜币做到了](/content/gnews/23/README.md)
+### [比特币和以太坊没做到的事，喜币做到了](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [Hpay给用户的是最干净直接的信和用，没有任何中间商](/content/gnews/24/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [大力推广Hpay将为您带来无限权益](/content/gnews/25/README.md)
+### [Hpay给用户的是最干净直接的信和用，没有任何中间商](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [韩国疫情或在2月底达到最高峰](/content/gnews/26/README.md)
