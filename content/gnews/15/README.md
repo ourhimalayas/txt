@@ -2,21 +2,24 @@
 ---
 
 
-## 有声|中共的特色社会主义之特性
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1976064/)
+## 欧盟及英国在世贸组织提诉中共违规行为
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1976085/)
 
-配音：香草山巡管部– 文凯琳
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-推荐语：这是网上流传的一篇文章，可惜不知是谁所总结，但是总结很到位。所谓的厉害国，实际上是这个地球上最垃圾的国家，自豪吧，厉害国！
+作者：纽约香草山 医疗部 云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月7日，英国国际贸易大臣屈维瑞安表示，将加入欧盟向世贸组织提诉中共的行动，要求参与后续的咨商会议。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-08-上午11.56.38.png)
+1月27日，欧盟向世贸组织提出诉讼，指控中共当局因政治因素，对立陶宛实行贸易抵制。去年下旬，立陶宛曾在国际上多次声援台湾，11月21日，駐立陶宛台灣代表處正式成立。欧盟表示，中共此种「歧视性贸易作为」已影响整个欧盟供应链，也违反关税暨贸易总协议（GATT）的多项国际协议。
 
-中共国不一定是与邻国土地争端最多的国家，但肯定是与本国居民土地争端最多的国家。争端不是问题，问题是：对外用和平解决土地争端，对内却用暴力解决土地争端。对外土地争端你们从来没有赢过一次，对内土地争端你们从来没输过一次！
-世上有个国家，看征税像欧洲国家；看福利像非洲国家；看政府大楼像超级大国；看边远地区像山顶洞人部落；看官员生活像海湾国家；看百姓生活像食人族国家；看官员发言像君子国；看官员做事像谎话国；对政府有利的就与国际接轨；对政府不利的就装神弄鬼；对外是最负责任的国家；对内是最不负责任的国家。
+英国政府指责中共当局作为世界第二大经济体，却仍在享受「发展中国家」的优惠待遇早。英国政府表示，英国一向拥护遵守规则的贸易体系，及在此体系下的自由、公平贸易。英国将要求以第三方身分参与欧盟在世贸组织的咨商程序，以共同对抗来自于中共的经贸胁迫。英国将是继美国、澳洲后，第3个要求参与该咨商程序的非欧盟国家。
 
-文字版原文：[中共的特色社会主义之特性](https://gnews.org/zh-hans/1971294/)
+参考链接：[歐盟在WTO提訴中國 英國要求參與諮商支持立陶宛](https://www.cna.com.tw/news/aopl/202202070317.aspx)
 
-音频处理/发稿：Daxia
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+总编：文特
+编辑：Zion文恩
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -24,7 +27,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,36 +2,31 @@
 ---
 
 
-## 有声|英国官方 儿童接种中共病毒疫苗死亡率超三倍
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1976112/)
+## 以色列“疫苗护照”政策发生重大变更
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1976185/)
 
-配音：香草山巡管部– 文凯琳
+加拿大温哥华杨帆农场枫叶快讯
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+采编/ 翻译编辑：  自由法兰西
 
 
+![](https://static1.straitstimes.com.sg/s3fs-public/styles/large30x20/public/articles/2022/02/02/yq-isrvac-02022022.jpg?VersionId=nb_w3Vh8FiLXNfffA9v1VwLLrCDHEkzE&amp;itok=rb3H8S2i)
 
-据外媒2月5日报道，英国卫生安全局发布的最新数据显示，完全接种疫苗的儿童死于中共病毒的可能性是未接种疫苗儿童的3倍多。
 
-根据相关数据，接种了中共病毒疫苗的人在接触该病毒时，与未接种疫苗的人相比，会表现出某种形式的疫苗相关强化疾病，而受这种影响最严重的年龄组是儿童。
+据新加坡《海峡时报》近日报道，以色列政府表示，作为首批推行疫苗护照的国家之一，该国将开始逐步停止使用疫苗护照。
 
-英国卫生安全局似乎在试图掩盖这些讯息。根据惯例，他们每周都会公布接种两针疫苗和三针疫苗的病例数、住院人数以及每10万人的发病率，但在2022年第3周的报告中，他们没有公布接种两针疫苗人群的每10万人死亡率数据。
+报道称，以色列政府的疫情工作组最近决定，除了“公众密集聚会的高风险场所外”，餐馆、酒吧、健身房和酒店等大部分公共场所，都将放弃使用疫苗护照。此外，未接种疫苗者也可在不做病毒测试的情况下直接登机旅行。
 
-文字版原文：[英国官方 儿童接种中共病毒疫苗死亡率超三倍](https://gnews.org/zh-hans/1973614/)
+据悉，该决定是以色列当局在“新冠病毒”感染人数持续保持历史高位的情况下做出的。目前该国的日均新增感染个案已超过6万例。
 
-音频处理/发稿：Daxia
+对此，相关流行病专家指出，以色列政府的上述决定是明智的，因为事实表明，已接种者仍然在被反复感染，而继续推广疫苗护照只是自欺欺人之举。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+原文链接：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+[https://www.straitstimes.com/world/middle-east/vaccine-passport-pioneer-israel-to-curb-use-of-green-pass](https://www.straitstimes.com/world/middle-east/vaccine-passport-pioneer-israel-to-curb-use-of-green-pass)
+
+校对编辑：硫酸羟氯喹64 发稿：青青
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

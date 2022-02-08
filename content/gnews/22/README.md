@@ -2,22 +2,18 @@
 ---
 
 
-## 有声|喜马拉雅币一周分析与总结（1月31日-2月6日）
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1975988/)
+## 有声|美国众议院通过《美国竞争法》
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1976050/)
 
 配音：香草山巡管部– 文凯琳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月4日华盛顿，美国众议院通过了一项针对中共的法案《美国竞争法》，具体内容包含：
 
+1. 该法案将确保美国在制造业、创新和经济实力方面处于领先地位，并能够胜过任何国家。
 
+2. 该法案包括了对中共国政府在新疆地区侵犯维吾尔人人权的制裁。追究中共对种族灭绝和使用奴隶劳工的责任，对被指控的中共新疆官员的新制裁，以及授权数百万美元的资金来反抗中共政府的言论审查和虚假信息。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-过去一周喜马拉雅币价格在51美元左右浮动，最高价格约53.8美元，平均日交易量约8万枚喜币。喜币上市以来总交易量约2720万枚 ，占今年总发行量的仅约2.72%。目前喜币交易在全球尚未完全开放，市场交易量较低，价格仍被严重低估。
-
-2月1日大年初一，喜支付APP Himalaya Pay正式上线。喜支付上线前后，全球股票市场与数字货币市场都处于大幅下跌区间，喜马拉雅币价格则持续大幅上升。
-
-文字版原文：[喜马拉雅币一周分析与总结（1月31日-2月6日）](https://gnews.org/zh-hans/1968380/)
+文字版原文：[美国众议院通过《美国竞争法》](https://gnews.org/zh-hans/1971258/)
 
 音频处理/发稿：Daxia
 
@@ -30,8 +26,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

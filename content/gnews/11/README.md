@@ -2,36 +2,53 @@
 ---
 
 
-## 中共在冬奥期间收集运动员基因信息
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1976083/)
+## 新中国联邦2022年发展的三个重点项目
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1976116/)
 
-作者：日本方舟农场 – Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美国前国务卿蓬佩奥2月6日在接受福克斯新闻玛丽亚采访时表示，他之所以呼吁抵制北京冬奥会，不是为了让运动员们失去竞技的机会，而是为所有去参加中共冬奥会的运动员们感到担忧。蓬佩奥称，他的这个担忧来自三个方面。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-08-上午11.56.22.png)
-第一，在美国看来奥运会只是一项活动，而中共却将奥运视作一种宣传工具。并且中共想要利用举办奥运来给自己的人权劣迹洗白。
+作者：首尔天池农场-追着曙光跑
 
-第二，到达北京的运动员面临手机被监控，以及自由言论带来的风险。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-26.jpg)
 
-第三，蓬佩奥国务卿最担心的除了数据信息，中共还将收集运动员们的DNA信息，并且会将这些信息交给中共军方数据库储存多年。 同一天的文贵大直播中，郭先生也爆料称，参加冬奥会运动员们的大小便甚至都将被收集。中共之所以收集运动员们的基因，就是因为中共根深蒂固的人种崇拜、基因崇拜，并据此给全世界的人类划定阶级。甚至认为用这些基因跟中共一起，交配出所谓更优质的人种就能变成巨大的财富。而这些都是因为中共本身就是一个种族主义、阶级主义的邪恶政权。
 
-参考链接：
-1）[2022年2月6日 文贵大直播](https://gtv.org/video/id=61ffc26b3621aa7415d64d51)
-2）[https://www.gettr.com/post/pt012ncee1](https://www.gettr.com/post/pt012ncee1)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-总编：文特
-编辑：Delilah小胖
-校正/发稿：呼吸的雾霾（文小呼吸）
+
+2月6日，郭先生在大直播上强调，新中国联邦2022年发展的三个重点项目。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/rzhang99-ChineseNewYear-.jpg)
+
+第一，阻止排华事件的发生，这是新中国联邦今年的重中之重。如果新中国联邦阻止不了西方的排华，那么即使灭共了也没什么意义。现在需要计划用币，鼓励国内的各界人士站出来，形成全国灭共的趋势，让他们在灭共中真正得到喜币和躺平币。
+
+第二，把现有的项目做强做大，坚决不犯希特勒那样因无限扩张导致灾难性的错误。今年不会再立任何新项目，目标就是把现有的项目搞好做强，然后扩大在全球的影响力。
+
+第三、做好新中国联邦教育（GEDU）。教育是立国之本，是中国人未来的希望。新中国联邦会提供喜币或喜美元，吸引国内的教育工作者加入GEDU。套用一句俗语：走新东方的路，让新东方无路可走。 2022年，新中国联邦无论是在国际还是国内，影响力都将会更强。
+
+新闻链接：
+
+[https://gettr.com/post/psu0mf2270](https://gettr.com/post/psu0mf2270)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-9.jpg)
+
+编辑/校对发稿：遍地开花
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-22.jpg)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

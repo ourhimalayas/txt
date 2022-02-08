@@ -2,26 +2,32 @@
 ---
 
 
-## 中共关于彭帅的报道将境内境外彻底分开
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1975753/)
+## 归化女子花滑运动员首秀失败遭抨击
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1975889/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3-26.png)
-（图片源自本文链接）
+作者：纽约香草山金融部 – AT
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月7日，在为期两天的女子花样滑冰比赛中，放弃美国国籍代表中共国出征的运动员朱怡，因多次严重失误导致团体提前无缘奖牌，遭到大陆网民的猛烈嘲笑和批评。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/6-9.jpg)
+6日，朱怡在进行三转空翻动作时摔倒，之后又三周跳起空，因此得到全场最低分，使中国队在6日的积分榜上从第三位跌至第五位，惊险晋级。不料，7日的比赛中，她再次两轮摔倒，最后一次还撞到墙上，其糟糕的冬奥会首秀，直接导致女子团体出局。引发了中国社交媒体上的舆论风暴。网友质疑这位出生在加州的运动员入选中国队“走后门”，而同时，朱怡因中文不流利而受抨击。一位微博网友嘲笑道，请先学好中文，再谈爱国。
 
-2月8日共同社北京消息：女子网球运动员彭爽，在爆出中共国一位前副总理强迫她与之发生性关系后，一时下落不明。然而，中共当局却允许彭帅接受法国媒体的采访，旨在向国际社会展示她活得很好。可直至８日，中共国内却没有任何相关报道。这说明，中共当局在境内和境外传播不同的信息方面做得很彻底。
+相关热议很快遭到当局网络审查，被全网封禁。
 
-因为彭帅爆出的是涉及共产党最高领导层威信的敏感问题。所以，她在网站上发表的简短的帖子，立即就被中共当局封锁了。
+参考链接：[California-born figure skater Beverly Zu, 19, is slammed on Chinese social media after finishing LAST on the ice having given up her US citizenship to compete for Communist Beijing in Winter Olympics](https://www.dailymail.co.uk/news/article-10482257/US-born-Chinese-Olympic-figure-skater-Zhu-Yi-slammed-social-media-team-event-flop.html)
 
-另一方面，8日，中共中央电视台播放了国际奥委会主席巴赫在滑雪场与彭女士聊天的场景，但没有解释巴赫的聊天对象是彭帅。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-信息来源：[中国国内で彭帥さんの面会報じず　国外への対応と二重基準徹底（共同通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/56ae13631ef37c1eee0d0e6a1d6d2bffe8357aa4)
+总编: 文特
+编辑：宁文静
+校正/发稿：Fei797
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

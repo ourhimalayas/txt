@@ -2,30 +2,24 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年2月8日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1976029/)
+## 俄罗斯总统普京提前紧急撤离北京冬奥会
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1976077/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-4.jpg)
+采编：Quitman               编辑撰稿：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot_20220208-120020.jpg)
+据2月6日GTV文贵大直播消息，参加冬奥会开幕式的俄罗斯总统普京，因其外交团队集体染疫，以及习近平的违约行为而紧急提前离开北京。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-7.png)
-文章仅代表作者本人观点，与Gnews无关
+消息称，俄总统原计划在北京停留48小时，并将参加与习近平当局的一系列外交和经贸活动。但普京在2月4日抵达北京不到10小时后，就以其随行人员感染中共病毒为由，随即乘机紧急返回俄罗斯。
 
-视频参看：
-[2022.02.08早 《NFSC新闻》](https://gtv.org/video/id=620270173621aa7415d79f7a)
-[2022.02.08早 G|TV《新闻访谈》](https://gtv.org/video/id=620278393621aa7415d7a38a)
+据悉，普京此行已为俄罗斯从中共国牟取了约1400亿美元的油气供应及天燃气管道输送合同，他本人也因此得到上亿美元的出席费用。然而，习近平却没能达成此前曾向普京承诺过的，一旦人民币在俄罗斯停用后将用等价黄金来做抵押交易的协议。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+为此，[新中国联邦]已提前向俄罗斯当局警告过，中共必将在几个贸易项目上背弃承诺。普京则对文贵先生表示：如果习近平但凡有任何违约，他将毫不犹豫地立即离开北京。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/calendar-1.png)
+校对编辑：硫酸羟氯喹64
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+发稿：文明(添草灭共)
+
+新闻来源：[https://gettr.com/post/psu0mf2270](https://gettr.com/post/psu0mf2270)
 
  
 

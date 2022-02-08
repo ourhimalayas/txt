@@ -2,33 +2,25 @@
 ---
 
 
-## 有声|彭帅再次回应性侵事件并声称不再参加任何比赛
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1976067/)
+## 加拿大国防部抛弃未接种疫苗军人
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1976099/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-2月7日消息，中共国网球名将彭帅在日前接受了一家国外媒体采访。采访期间，彭帅再次声明自己从未说过有人以任何方式对自己进行过性侵犯，但在谈到具体问题时，她则拒绝详述。随后，彭帅还声称，自己因年龄、伤病等原因将不会再参加任何的网球赛事。
+加拿大杨帆农场枫叶快讯
 
-据了解，自彭帅在墙内公开指证张高丽曾对她进行过长期性侵犯以后，相关消息就立刻遭到了中共当局的全面封杀，彭帅的个人安全也成为了全球关注的焦点。
+采编/翻译：文莱
+![canadian military](https://www.ctvnews.ca/polopoly_fs/1.4963013.1591001210!/httpImage/image.jpg_gen/derivatives/landscape_960/image.jpg)
+据[渥太华太阳报]近日报道，加拿大武装部队已解雇了数十位未接种“新冠病毒”疫苗的服役人员，而其他针对数百名军人的解雇程序正在进行中。
 
-此前，彭帅在一次采访中，就曾改口称自己与张高丽发生关系是出于自愿。但据视频资料显示，彭帅在接受采访时的神态、举止都显得极其紧张。此次，彭帅再次谈及性侵事件相关问题时，则完全引用了外媒在去年12月报道该事件的评论原文，并称不希望媒体继续炒作此事。彭帅在两次采访中极为反常的表现，都使采访内容的真实性一再遭到公众的质疑，并加深了外界对于其个人安全问题的广泛担忧。
+报道称，[加拿大国防部]在疫情期间大量开除未接种现役军人之举，势必将会加剧国防人员严重短缺的恶况。而且由于防疫措施的限制，目前大部分军队的招募中心和培训学校都已被迫关闭或暂停。
 
-郭文贵先生也在该事件发生之初就曾指出，彭帅在后续所接受的一切采访都将会是受中共当局的安排和胁迫的，一切的澄清声明都将是中共虚假的谎言。
+据国防部的数据显示，目前加拿大军队的现役人数约为1万人，另有1万名人员因未受过训练或伤病而无法执行任务。因此，面对国际间急剧变化的军情，加拿大国防部的应对能力现已捉襟见肘。
 
-文字版原文：[彭帅再次回应性侵事件并声称不再参加任何比赛](https://gnews.org/zh-hans/1973674/)
+此外，之前遭到解雇的部分军人已于去年底对国防部的疫苗强制接种政策提起了诉讼，理由是该政策不仅违宪，还严重侵害了个人对健康的绝对选择权。
 
-音频处理：Fei797
-发稿：Fei797
+原文链接:[Canadian military cuts dozens of unvaccinated troops, puts hundreds more on notice | Ottawa Citizen](https://ottawacitizen.com/pmn/news-pmn/canada-news-pmn/canadian-military-cuts-dozens-of-unvaccinated-troops-puts-hundreds-more-on-notice)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+校对编辑：硫酸羟氯喹64 发稿：青青
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

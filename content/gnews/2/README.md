@@ -2,24 +2,18 @@
 ---
 
 
-## 加拿大阿省议员：当世界上大部分国家取消疫苗限制时，特鲁多仍在尝试将无效的疫苗政策永久化，加拿大正在迅速变成一个异类
-` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1976183/)
+## 卡普里岛反绿色护照！店主拒绝要求客人出示绿色护照
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1976219/)
 
-#### 加拿大温哥华扬帆农场 视频组
+#### 翻译                                 意大利达芬奇农场                小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-08-alle-18.43.54.png)图片来源：mag24.es
+卡普里岛对疫苗护照说“不”，站在了反对疫苗护照的一方。政策代表一个方面，社会却代表另一方。卡普里岛不愿接受强制实行绿色护照政策。在卡普里岛一些商店的橱窗里贴出了这样一些带有争议性的字句：“歧视是耻辱”。正像安莎社报道的那样， 一些店家展示了一张海报， 海报上两只张开的手上放着一颗燃烧的红心，上面写着“ 爱的通行证，一个没有歧视的世界。”
 
-素材：文倩
-翻译：Kent
-字幕：文雅
+在卡普里岛一条非常优雅的国际名牌店街上，有一家商店的橱窗里贴着这样一张醒目的告示：本店自开业58年以来一直欢迎所有客人光顾。还写着“不要绿色通行证，不要歧视，不要种族法。禁止某些人入内是可耻的。”
 
-这些疫苗强制别无其他，它们只是惩罚性的，歧视性的，是违背加拿大价值观的，并且它们是不合时宜的。
+原文链接：[https://www.mag24.es/2022/02/04/capri-in-rivolta-contro-il-green-pass-il-rifiuto-totale-dei-commercianti-di-richiedere-ai-clienti-il-lasciapassare-affissi-cartelli-in-tutte-le-vetrine-dellisola/](https://www.mag24.es/2022/02/04/capri-in-rivolta-contro-il-green-pass-il-rifiuto-totale-dei-commercianti-di-richiedere-ai-clienti-il-lasciapassare-affissi-cartelli-in-tutte-le-vetrine-dellisola/)
 
-议长女士，因为在世界的其他地方，政府正朝着相反的方向发展，议长女士，但对这位总理（特鲁多）来说，这无关科学，无关数据，无关保护加拿大人的安全。
-
-它是为了短期的政治利益而分裂加拿大人，并欲以新冠为借口大幅扩张极权政府的规模、范围和控制。
-
-议长女士，事态并非必须这样发展，在世界上其他地方，情况并非如此，在议院的这一方，我们将尽一切努力确保它不会继续恶化，我们要让加拿大人能够再次控制他们的生活，并反对这种大范围的国家的过度统治，谢谢你议长女士。
-
-编辑/发文：Kent
+编辑、上传：  Xiao  baige
 
  
 

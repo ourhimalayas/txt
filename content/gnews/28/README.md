@@ -2,35 +2,35 @@
 ---
 
 
-## 有声|江苏被锁八孩母亲绝非个例
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1975818/)
+## 有声|喜马拉雅币一周分析与总结（1月31日-2月6日）
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1975988/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2022年2月4日大直播中郭先生提及，近日网络热议的话题，中共国江苏省一位被多次强奸而生育了八个孩子的母亲，被锁在小黑屋里过着猪狗不如的生活。郭先生指出，此事绝非个例。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/192809.png)
-在中共暴虐统治下，没有一个中国人活得像个人样。郭先生回顾在他的老家台前县，买卖媳妇的事司空见惯。即使今日站在老家屋顶上，随处可见像江苏省八孩母亲那样被锁链锁起来的女性，一眼望去，十个八个，像狗一样被拴十几至二十年。其中生出的孩子，有些还在盘古打工。
+配音：香草山巡管部– 文凯琳
 
-可悲可恨可怜的中国人，被共产党篡改了历史、蒙蔽了双眼，更被共产党毁掉了未来。既然不知道过去，还奢谈什么现在，又能看到什么未来。中国人现在无路可走，唯有灭共，才有未来。
 
-文字版原文：[江苏被锁八孩母亲绝非个例](https://gnews.org/zh-hans/1974090/)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+过去一周喜马拉雅币价格在51美元左右浮动，最高价格约53.8美元，平均日交易量约8万枚喜币。喜币上市以来总交易量约2720万枚 ，占今年总发行量的仅约2.72%。目前喜币交易在全球尚未完全开放，市场交易量较低，价格仍被严重低估。
+
+2月1日大年初一，喜支付APP Himalaya Pay正式上线。喜支付上线前后，全球股票市场与数字货币市场都处于大幅下跌区间，喜马拉雅币价格则持续大幅上升。
+
+文字版原文：[喜马拉雅币一周分析与总结（1月31日-2月6日）](https://gnews.org/zh-hans/1968380/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
