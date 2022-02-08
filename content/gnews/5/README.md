@@ -2,33 +2,24 @@
 ---
 
 
-## 七哥谈“Hpay的上线战友们要做以下三件事儿”（2022-02-02摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1976319/)
+## 中共的冬奥会将是习近平断魂的开幕式
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1976357/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+加拿大温哥华杨帆农场枫叶快讯
 
-来源：郭先生2022-02-02直播11:18:17摘录
+采编：风云小哥    翻译：文莱
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GettyImages-1237970843-scaled-1-400x225.jpg)
+据英国【每日邮报】2月4日报道，中共政权在举行冬奥会的数日之后，日益高涨的国际舆论声讨浪潮，已导致中共同时遭遇其喉舌媒体与金钱外交的集体“滑铁卢”。
 
-Hpay的上线战友们要做以下三件事儿：每天无时无刻的要宣传Hpay、使用Hpay；第二，想尽一切办法用你自己的一切关系，除了别以身推广喜币之外什么都要干，都要合法的去推广喜币、增加喜支付的使用，是所以全球农场的第一任务；第三件事儿，大家要记住，连自己现在要认真研究、自己独创这个Hpay的各种使用领域和方法。我只能点到这儿为止，因为Hpay是个什么支付系统？不是支付宝、不是微信、什么发红包，它是跟法币连在一起的，它是没办法，它没有铸币权、货币发行权，咱先有货币发行、咱有喜币的情况下咱是独立的，这是跟任何人不一样的。那么你这个Hpay你可以无限的放大，想干啥就干啥。
+报道称，尽管中共选择了一名维吾尔族运动员在开幕式上点燃奥运圣火，企图以此掩饰该政权的族灭绝罪行，但西方民主国家早已认定了中共的各项反人类罪名。因此，针对本次冬奥会的外交抵制将愈演愈烈。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+此外，据2月6日文贵大直播透露，由于参加奥运开幕式的外交团队集体染疫，加之习近平未能履行早前已和俄罗斯达成的有关人民币流通以及等量价值黄金抵押的双边协议，总统普京已愤然提前返回俄罗斯。并导致中俄所谓战略伙伴关系以及习近平和普京的私人关系都遭到重创。
 
-**关注我们**
+对此，文贵先生表示，冬奥会将会成为加速葬送中共政权的冬眠会，同时也将是习近平当局噩梦的开始，而且不久后的冬奥会闭幕式也将成为永远无法闭幕的中共追悼会
 
-Discord 账号
+原文链接：China chooses Uyghur athlete light flame at Winter Olympics in a bid to deflect genocide accusations | Daily Mail Onlin
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
-
-
+校对编辑：硫酸羟氯喹64 发稿：青青
 
  
 

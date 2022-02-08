@@ -2,28 +2,33 @@
 ---
 
 
-## 中共利用冬奥会窃取各国运动员DNA
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1976143/)
+## 七哥谈未来钱的支付（2022-02-02摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1976212/)
 
-采编：风云小哥                编译撰稿：文莱
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2021-01-30T120811Z_1_LYNXMPEH0T0A2_RTROPTP_4_CHINA-GENOMICS-MILITARY-1200x779-1-edited.jpg)图片来源：theepochtimes
-据美国相关媒体近日报道，为争夺生物经济的主导地位，中共正在开发一个庞大的生物数据库，其中包含来自世界各地人种的医疗、健康和遗传信息。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-报道称，中共正利用各国的生物科技公司，耗费巨资收集当地人群的基因数据，并将这些数据与其顶级的军事超级计算能力相结合，通过发现不同族裔的基因遗传弱点，最终以此来开发生物病毒武器。
+来源：郭先生2022-02-02直播10：39：41摘录
 
-目前，越来越多的高科技企业参与到中共生物军事研究之中。例如，[华大基因公司]此前就提出在美国设立“新冠病毒”检测中心，尽管此举已被美方断然拒绝，但至少有18个其他国家都允许该公司在当地设立检测和研究中心。
+这个中间还有个很重要的，未来钱的支付。所以你看，我跟Eric咱两已经交易完了，1000个币，Eric陪我睡了一觉，是吧，都睡完了，Eric说: “我这钱，七哥我提现了，但是呢，我下一步我还有其他想法，” 还有什么想法？“1000我要去买点其他东西。我要贷款”。贷款也贷了，支付也支付完了，那你还想干什么呀？说“我得要干点儿邪事儿，我要拿一千个币，我要进行投资，我拿出200个币进行投资去。”兄弟姐妹们，这个时候喜币和喜支付在全球推广就是战友们一定要做得到的，我们有独立的投资环境。好，说 “我先把我这一千币花成剩二百了，我这二百在里边一放，有什么投资机会？我在明天下午没花出去之前 ，我就自动进入了下一个投资机会。 我在明天下午，我设定几点抛出，我就抛出。 更重要的说我想要提现七哥，我明天我挣了，我这二百个我要提现，我要换成日元，我得需要日元法币怎么办？”我告诉你很快，根据比例，大家可以从现在的一次提十万可以到百万到千万，甚至可以到亿。我可以告诉大家，一次性提现，就是给你的信用和你的的存款数。小Sarah一共1000个币，你提一个亿，根本不可能给你一个亿呀，是吧。你有1000个币，你可以拿走你的比如说50％、20%、30%，一次性拿走，很快就会有。全世界提现、转账最大、最快、额度最不限制的就是喜币支付系统、喜联储。打破人类的一切过去设定的万年以来的金融原则。我们这不叫金融，大家不要忘了，谁拿金融看喜联储、喜支付，你爱滚哪儿滚哪儿去，回到你猪圈睡觉去。
 
-为此，GTV在最近的报道中指出，北京冬奥会将成为习近平当局收集各国参赛运动员和政要名人DNA数据的绝佳机会，并且中共早已为该项邪恶计划做好了各项充分的准备。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-校对编辑：硫酸羟氯喹64
+**关注我们**
 
-发稿：文明(添草灭共)
+Discord 账号
 
-原文链接：
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-[https://www.theepochtimes.com/chinese-military-linked-firm-gathers-american-dna-provides-covid-tests\_4250811.html](https://www.theepochtimes.com/chinese-military-linked-firm-gathers-american-dna-provides-covid-tests_4250811.html)
+Gettr 账号
 
-[https://gtv.org/video/id=61fd1a6596ba5d73e0c28b83](https://gtv.org/video/id=61fd1a6596ba5d73e0c28b83)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
+
 
  
 
