@@ -2,34 +2,25 @@
 ---
 
 
-## 冬奥会伊始已恶评如潮
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1975860/)
+## 冬奥会开幕式在疫情恐惧下始乱终弃
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1975996/)
 
-作者：纽约香草山 – 宁文静
+采编：Quitman        编辑撰稿：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot_20220208-114014.jpg)
+据2月4日GTV文贵大直播报道，就在冬奥会开幕式之前，负责主席台安全的特警队狙击手队长，疑因此前接种了“中共病毒”疫苗，而猝死于盘古龙头之下，成为首个被天意祭旗的中共亡魂。党魁习近平则因此手足无措，惊恐莫名。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据悉，当天入住北京华尔道夫酒店的普京冬奥会团队，传出已有16人染疫，酒店内3人病亡。为此，普京在惶恐之余，悲愤斥责习近平当局连最基本的健康保障都无法提供。同时，在距北京5000公里外的习家军也因受此事影响，现已进入战备状态。
 
-当地时间2月7日，北京冬奥会刚进入正式赛程，来自各国运动员的批评已经如潮水般涌向组委会。自诩提供678道菜的“舌尖上的冬奥会”，被指责成了现实版“饥饿游戏”。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/5-6.jpg)
-瑞典越野队抱怨比赛所在的山区太冷了，而且不能提供热的食物或饮料，无法为运动员保证必需的能量。德国滑雪教练施魏格尔愤怒地说，奥委会根本没有能力提供热餐。
+此外，原计划出席冬奥会开幕式的97位国家元首，目前只有35位如约前来。其中，多个参会的外国使团，以“立即撤走参赛运动员”为要挟，逼迫中共立刻支付其更多的出场费用。
 
-2月6日，原定于11时开始的高山滑雪男子滑降比赛因延庆的强风而推迟。当天张家口的气温加上风寒，骤降到零下20摄氏度以下。瑞典队的弗里达·卡尔松在女子滑雪比赛中，因寒冷而全身颤抖，教练贝斯特罗姆说，弗里达被寒冷完全摧毁了。他质问，国际滑雪联合会规定，比赛天气的寒冷极限为-20℃，但这里体感温度远远低于这个数值。 来自芬兰、俄罗斯和波兰的运动员和官员也指责北京方面采用了极端的隔离协议，给运动员带来了心理创伤。芬兰男子冰球队的教练称，前NHL明星马尔科-安蒂拉无缘无故被隔离，毫无人权。俄罗斯运动员瓦莱里娅自诉每天都在哭，她说，这一切像是噩梦，希望早一点结束。
+至此，[新中国联邦]近期发动的甜蜜蜜灭共战役已初获胜果。而习近平痴梦以求，万国来朝的冬奥会，已被正式官宣进入自戕的冬眠状态。
 
-参考链接：[Beijing 2022 Winter Olympics turns into Hunger Games as stars complain about ‘no hot meals’](https://www.mirror.co.uk/sport/other-sports/beijing-2022-winter-olympics-complaints-26156771)
+校对编辑：硫酸羟氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+发稿：文明(添草灭共)
 
-总编: 文特
-编辑：文真
-校正/发稿：Fei797
+新闻来源：[https://gtv.org/video/id=61fd1a6596ba5d73e0c28b83](https://gtv.org/video/id=61fd1a6596ba5d73e0c28b83)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,34 +2,34 @@
 ---
 
 
-## 有声|联合国秘书长盼北京允人权特使访新疆
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1975757/)
+## 冬奥会伊始已恶评如潮
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1975860/)
 
-配音：香草山佛教部 – 李傻
+作者：纽约香草山 – 宁文静
+
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月6日，联合国秘书长古特瑞斯在冬奥期间与中共主席习近平和外交部长王毅会面时提出，期望中共允许联合国人权事务高级专员巴舍莱进入新疆，调查维吾尔人遭虐待的指控，对中共进行可信的访问，包括在新疆停留。
 
-据悉，巴舍莱曾多次表达过希望进入新疆访问、追查真相的愿望，但一直遭到但中共的拒绝。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide11-2-1536x864-1.jpg)
-文字版原文：[联合国秘书长盼北京允人权特使访新疆](https://gnews.org/zh-hans/1973650/)
+当地时间2月7日，北京冬奥会刚进入正式赛程，来自各国运动员的批评已经如潮水般涌向组委会。自诩提供678道菜的“舌尖上的冬奥会”，被指责成了现实版“饥饿游戏”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/5-6.jpg)
+瑞典越野队抱怨比赛所在的山区太冷了，而且不能提供热的食物或饮料，无法为运动员保证必需的能量。德国滑雪教练施魏格尔愤怒地说，奥委会根本没有能力提供热餐。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+2月6日，原定于11时开始的高山滑雪男子滑降比赛因延庆的强风而推迟。当天张家口的气温加上风寒，骤降到零下20摄氏度以下。瑞典队的弗里达·卡尔松在女子滑雪比赛中，因寒冷而全身颤抖，教练贝斯特罗姆说，弗里达被寒冷完全摧毁了。他质问，国际滑雪联合会规定，比赛天气的寒冷极限为-20℃，但这里体感温度远远低于这个数值。 来自芬兰、俄罗斯和波兰的运动员和官员也指责北京方面采用了极端的隔离协议，给运动员带来了心理创伤。芬兰男子冰球队的教练称，前NHL明星马尔科-安蒂拉无缘无故被隔离，毫无人权。俄罗斯运动员瓦莱里娅自诉每天都在哭，她说，这一切像是噩梦，希望早一点结束。
+
+参考链接：[Beijing 2022 Winter Olympics turns into Hunger Games as stars complain about ‘no hot meals’](https://www.mirror.co.uk/sport/other-sports/beijing-2022-winter-olympics-complaints-26156771)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+
+总编: 文特
+编辑：文真
+校正/发稿：Fei797
+
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

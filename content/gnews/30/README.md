@@ -2,25 +2,33 @@
 ---
 
 
-## 局面失控 渥太华宣布进入紧急状态
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1975657/)
+## 有声|联合国秘书长盼北京允人权特使访新疆
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1975757/)
 
-整理编辑：东京樱花团｜上善若水
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-3-2.png)
-[*图片来源*](https://cdn.hk01.com/di/media/images/dw/20220207/567257983189520384195642.jpeg/Jr-tjXlrBaEO6oT5j8IYszrlxAl3Cr8pTYRLTU2ES00?v=w1920)
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月6日，联合国秘书长古特瑞斯在冬奥期间与中共主席习近平和外交部长王毅会面时提出，期望中共允许联合国人权事务高级专员巴舍莱进入新疆，调查维吾尔人遭虐待的指控，对中共进行可信的访问，包括在新疆停留。
 
-加拿大首都渥太华反对新冠抗疫措施大规模示威活动已延续一周，市长沃森宣布进入紧急状态以控制局势，保障市民及首都安全。他强调，此举反映出，示威活动已对当地居民安全构成“严重危险和威胁”。沃森称，局势有可能“完全失控”，渥太华需要“其它司法手段和政府层面的支持”。
+据悉，巴舍莱曾多次表达过希望进入新疆访问、追查真相的愿望，但一直遭到但中共的拒绝。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide11-2-1536x864-1.jpg)
+文字版原文：[联合国秘书长盼北京允人权特使访新疆](https://gnews.org/zh-hans/1973650/)
 
-此间，千百辆货车继续封锁渥太华市中心的道路，货车司机从上月下旬起在全国范围发动取名为“自由车队”的抗议活动，最初是要求当局取消对从美运货的加拿大卡车司机返回时须提交接种疫苗证明的规定，但现在抗议对象已扩大至特鲁多政府的抗疫政策。警方再度呼吁抗议者离开市中心，并已拘留多人。当局称，对近 100 起案件展开了调查，其中涉及散步仇恨言论。另外，警方已开出数百份罚单，包括危险驾驶和噪音污染。沃森市长称卡车司机“摁喇叭、鸣警笛、放鞭炮，把示威当派对活动”。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-信息来源：[**局面失控 渥太华宣布进入紧急状态**](https://www.dw.com/zh/%E5%B1%80%E9%9D%A2%E5%A4%B1%E6%8E%A7-%E6%B8%A5%E5%A4%AA%E5%8D%8E%E5%AE%A3%E5%B8%83%E8%BF%9B%E5%85%A5%E7%B4%A7%E6%80%A5%E7%8A%B6%E6%80%81/a-60683901)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / yuxingcao01*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
