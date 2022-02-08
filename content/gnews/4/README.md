@@ -2,29 +2,35 @@
 ---
 
 
-## 从污水中的病毒含量掌控疫情 日本一新公司横空出世
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1975480/)
+## 有声|美国前国安参谋长警告：中俄联盟极其危险
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1975579/)
 
-撰稿：东京樱花团｜麗子
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-1-4.png)
-[*图片来源*](https://www3.nhk.or.jp/news/html/20220208/K10013474161_2202081807_2202081816_01_02.jpg)
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+2月5日外媒消息，随着冬奥会在北京举办，中俄形成战略联盟。在一份联合声明中两国表示，其新关系优于冷战时期建立的，任何其他政治或军事联盟。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E6%88%AA%E5%B1%8F2022-02-07-%E4%B8%8A%E5%8D%8811.18.40.png)
+美国第一政策研究会副主席、国家安全委员会前参谋长弗莱德- 弗利茨说，中俄此次联盟，是一个令人难以置信的危险发展，特别是随着与乌克兰紧张局势的加剧。
 
-盐野义制药与岛津制作所联合成立了一家新公司，主要方向是从污水中调查中共（新冠）病毒，他们将通过测试污水处理厂和医院等设施的污水中中共病毒含量来提供公共健康风险评估。这两家公司希望利用双方在传染病研究和理化技术方面的优势，帮助判断中共病毒是否扩散或是否得到有效遏制。
+目前，美国注意的是，避免与俄罗斯开战，并且阻止中共与俄罗斯形成联盟。因为一旦中俄结成联盟，势必威胁到美国和国际社会的安全与稳定。
 
-新公司名为AdvanSentinel，社长古贺正敏表示，没有症状或尚未发病的人所在区域可以作为一个群体进行监测。如果该监测系统能够被纳入基础设施，将有望为未来大流行病的预防发挥积极作用。
+文字版原文：[美国前国安参谋长警告：中俄联盟极其危险](https://gnews.org/zh-hans/1971259/)
 
-新公司的目标是在几年后实现年销售额10亿日元，并希望今后不仅针对治疗中共病毒，而且能够在预防治疗其他流行病，如流感和脊髓灰质炎等方面起到重要作用。盐野义制药公司的新冠药物也即将在日本发售。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-俗话说，商人的嗅觉最敏锐，看来未来很长一段时间，人类很有可能与各种传染性病毒共存了，尤其是一次次打入人体的疫苗还会造成S蛋白脱落，影响深远啊！
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-信息来源：[**塩野義製薬と島津製作所が新会社設立  下水処理場や病院の下水での新型コロナウイルスを調査**](https://news.yahoo.co.jp/articles/4ffeb92fe2e2218518ca7adad42da6507387a8c5)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
