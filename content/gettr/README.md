@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/8/2022 8:19 PM (UTC)`
+
+2月8号：尊敬的战友们好！今天早上发出盖特以后，很多战友关心是我要公布什么事？七哥要公布是很小很小的个人事儿，只是和我个人有关……和其他没有关系，请大家不要多想，谢谢！
+![img](https://media.gettr.com/group9/getter/2022/02/08/20/6a404868-8d25-6947-ba4c-be12b02fe551/out.jpg)
+
+---
+
 `@miles 2/8/2022 2:56 PM (UTC)`
 
 2月8号：尊敬的战友们好，你们健身了吗？传播C C P病毒．疫苗解药的真相了吗？今天可能将是我文贵人生的前半生和后半生的分水岭的一天．今天我将有个很大的决定，明天直播时再向大家汇报，一切都已经开始！
@@ -148,13 +155,6 @@ This is the BIG ONE I previewed on @WarRoom a little earlier regarding the Covid
 
 2月5号：尊敬的战友们好！所谓的冬奥会开幕式后，所有的参加的外国来宾和现场的战友们的反馈，就是这．三句话……
 ![img](https://media.gettr.com/group13/getter/2022/02/05/15/c620a5a0-c68e-fa1f-8bb6-2ea934e6f2fc/out.jpg)
-
----
-
-`@miles 2/5/2022 2:42 PM (UTC)`
-
-<br/> 2月5号悲哀呀悲哀［在中共国，买一个或多个女人均判3年以下有期徒刑，但是买一个鹦鹉都要判5年以下，买2个鹦鹉要判5年以上，买20只癞蛤蟆判3年，所以中国人的命在共产党眼里连鸟都不如，与癞蛤蟆等价。In China, buying one or more women is punishable by up to three years in prison, but buying one parrot is punishable by up to five years, buying two parrots is punishable by more than five years, and buying 20 toads is punishable by three years, so the lives of Chinese people are worse than birds in the eyes of the Communists and are equal to those of toads.］
-![img](https://media.gettr.com/group27/getter/2022/02/05/14/ee056309-4a4d-027b-6c11-65f4c884110c/out.jpg)
 
 ---
 
