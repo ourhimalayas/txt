@@ -15,95 +15,95 @@
 
 ---
 
-### [从污水中的病毒含量掌控疫情 日本一新公司横空出世](/content/gnews/1/README.md)
+### [有声|普京闪电离京 中俄战略合作虎头蛇尾](/content/gnews/1/README.md)
+ ` MOSREC`
+
+### [揭露中共的洗脑教育](/content/gnews/2/README.md)
+ ` 焦點20分`
+
+### [单伟健的太平联盟就是犯罪组织](/content/gnews/3/README.md)
+ ` 焦點20分`
+
+### [从污水中的病毒含量掌控疫情 日本一新公司横空出世](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2/6/2022 文贵直播：西方基金大佬最近都面临破产，不得不卖卖卖，现在的重中之重是如何停止病毒和疫苗及其对全世界造成的灾难](/content/gnews/2/README.md)
+### [2/6/2022 文贵直播：西方基金大佬最近都面临破产，不得不卖卖卖，现在的重中之重是如何停止病毒和疫苗及其对全世界造成的灾难](/content/gnews/5/README.md)
  ` 秘密翻译组-北美组`
 
-### [DC每日热点0208](/content/gnews/3/README.md)
+### [DC每日热点0208](/content/gnews/6/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [北京冬奥：美国顶级华裔选手谷爱凌和陈内森分别代表正义与邪恶](/content/gnews/4/README.md)
+### [北京冬奥：美国顶级华裔选手谷爱凌和陈内森分别代表正义与邪恶](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2/6/2022 文贵直播：习太阳对世界的认知、管理国家的能力和所受的教育跟他的权力完全不匹配，中共还交错了朋友，妄图跟俄罗斯勾结以挑战世界，中共没有未来](/content/gnews/5/README.md)
+### [2/6/2022 文贵直播：习太阳对世界的认知、管理国家的能力和所受的教育跟他的权力完全不匹配，中共还交错了朋友，妄图跟俄罗斯勾结以挑战世界，中共没有未来](/content/gnews/8/README.md)
  ` 秘密翻译组-北美组`
 
-### [香港新冠确诊人数接连创新高](/content/gnews/6/README.md)
+### [香港新冠确诊人数接连创新高](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [徐州把我们都当傻子了](/content/gnews/7/README.md)
+### [徐州把我们都当傻子了](/content/gnews/10/README.md)
  ` 纽约香草山MOS02`
 
-### [02/08/22 香港快讯 美籍银行律师袭警罪成囚4个半月 高院驳回上诉须即时服刑](/content/gnews/8/README.md)
+### [02/08/22 香港快讯 美籍银行律师袭警罪成囚4个半月 高院驳回上诉须即时服刑](/content/gnews/11/README.md)
  ` 英喜-粵語組`
 
-### [从上到下都是强奸犯](/content/gnews/9/README.md)
+### [从上到下都是强奸犯](/content/gnews/12/README.md)
  ` 银河勇气之星`
 
-### [中国男子驾驶特斯拉汽车进入医院，被禁止入内](/content/gnews/10/README.md)
+### [中国男子驾驶特斯拉汽车进入医院，被禁止入内](/content/gnews/13/README.md)
  ` 首尔天池农场`
 
-### [柳叶刀：研究人员警告Covid-19 疫苗可能会增加 HIV 感染的风险](/content/gnews/11/README.md)
+### [柳叶刀：研究人员警告Covid-19 疫苗可能会增加 HIV 感染的风险](/content/gnews/14/README.md)
  ` 日本东京方舟农场`
 
-### [文明之殇：谁来打破禁锢中共国女性千年的牢笼？](/content/gnews/12/README.md)
+### [文明之殇：谁来打破禁锢中共国女性千年的牢笼？](/content/gnews/15/README.md)
  ` 纽约香草山MOS02`
 
-### [因为回扣，特鲁多订购的疫苗量是加拿大人口加驼鹿的十倍](/content/gnews/13/README.md)
+### [因为回扣，特鲁多订购的疫苗量是加拿大人口加驼鹿的十倍](/content/gnews/16/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [不能再向中共国市场注入美元](/content/gnews/14/README.md)
+### [不能再向中共国市场注入美元](/content/gnews/17/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [任何付钱给这个跨国犯罪组织的人都要付出代价](/content/gnews/15/README.md)
+### [任何付钱给这个跨国犯罪组织的人都要付出代价](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [已经对疫苗的紧急授权使用和错误标识提起诉讼](/content/gnews/16/README.md)
+### [已经对疫苗的紧急授权使用和错误标识提起诉讼](/content/gnews/19/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [加拿大部分省份正在撤销疫苗强制令](/content/gnews/17/README.md)
+### [加拿大部分省份正在撤销疫苗强制令](/content/gnews/20/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共深夜通告“八孩女”事件 墙内舆论大翻车](/content/gnews/18/README.md)
+### [中共深夜通告“八孩女”事件 墙内舆论大翻车](/content/gnews/21/README.md)
  ` 纽约香草山MOS02`
 
-### [2/8/2022国际财经快讯：美日达成协议削减对日钢铁关税；华尔街收盘走低，因Meta平台受重压](/content/gnews/19/README.md)
+### [2/8/2022国际财经快讯：美日达成协议削减对日钢铁关税；华尔街收盘走低，因Meta平台受重压](/content/gnews/22/README.md)
  ` 秘密翻译组金融团队`
 
-### [川普前国家安全顾问指责习近平在南海进行“历史上最大规模的土地掠夺”](/content/gnews/20/README.md)
+### [川普前国家安全顾问指责习近平在南海进行“历史上最大规模的土地掠夺”](/content/gnews/23/README.md)
  ` GTV News Talk`
 
-### [德国恐成俄乌问题最大变数](/content/gnews/21/README.md)
+### [德国恐成俄乌问题最大变数](/content/gnews/24/README.md)
  ` 纽约香草山MOS02`
 
-### [佩洛西担心公开反对中共的冬奥会美国运动员的人身安全](/content/gnews/22/README.md)
+### [佩洛西担心公开反对中共的冬奥会美国运动员的人身安全](/content/gnews/25/README.md)
  ` GTV News Talk`
 
-### [中俄共同对抗美国；卫报淡化运动员感染](/content/gnews/23/README.md)
+### [中俄共同对抗美国；卫报淡化运动员感染](/content/gnews/26/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [国际奥委会对中共国侵犯人权行为视而不见](/content/gnews/24/README.md)
+### [国际奥委会对中共国侵犯人权行为视而不见](/content/gnews/27/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [纳瓦罗博士：希望每位美国获奖选手声讨种族灭绝中共](/content/gnews/25/README.md)
+### [纳瓦罗博士：希望每位美国获奖选手声讨种族灭绝中共](/content/gnews/28/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [民主党人推动与中共国的竞争](/content/gnews/26/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [新年期间：大陆民众消费大幅下滑](/content/gnews/27/README.md)
+### [新年期间：大陆民众消费大幅下滑](/content/gnews/29/README.md)
  ` 日本东京方舟农场`
 
-### [唱共产党的歌，让共产党无歌可唱](/content/gnews/28/README.md)
- ` 骄子`
-
-### [中美初次建交的真实历史](/content/gnews/29/README.md)
+### [中美初次建交的真实历史](/content/gnews/30/README.md)
  ` GTV News Talk`
-
-### [人口拐卖的范围很大](/content/gnews/30/README.md)
- ` 骄子`
 
 ### [渥太华宣布因中共病毒抗议活动而进入紧急状态](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
@@ -171,17 +171,17 @@
 ### [美日宣布达成钢铁关税协议 共同应对中共](/content/gnews/52/README.md)
  ` 日本东京方舟农场`
 
-### [欧盟在WTO提诉中共 英国要求参与谘商](/content/gnews/53/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [微软、英特尔、通用电气向中共军方及安全机构提供支持](/content/gnews/54/README.md)
+### [微软、英特尔、通用电气向中共军方及安全机构提供支持](/content/gnews/53/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [贩卖妇女 | 中共治下的又一哀鸣，我们为自己而战](/content/gnews/55/README.md)
+### [贩卖妇女 | 中共治下的又一哀鸣，我们为自己而战](/content/gnews/54/README.md)
  ` YALUN 亚伦`
 
-### [秘翻在线：花旗预测软银抛售股份，阿里巴巴股价暴跌](/content/gnews/56/README.md)
+### [秘翻在线：花旗预测软银抛售股份，阿里巴巴股价暴跌](/content/gnews/55/README.md)
  ` 秘密翻譯組G-Translators`
+
+### [阿爾伯塔省計劃提前結束疫苗護照](/content/gnews/56/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
 ### [天津市民揭露政府防疫造假](/content/gnews/57/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`

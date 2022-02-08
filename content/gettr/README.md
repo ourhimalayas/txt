@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/8/2022 2:56 PM (UTC)`
+
+2月8号：尊敬的战友们好，你们健身了吗？传播C C P病毒．疫苗解药的真相了吗？今天可能将是我文贵人生的前半生和后半生的分水岭的一天．今天我将有个很大的决定，明天直播时再向大家汇报，一切都已经开始！
+![img](https://media.gettr.com/group4/getter/2022/02/08/14/53412ce1-4adc-2d5b-ff56-2f204a2c0ee4/out.jpg)
+
+---
+
 `@miles 2/8/2022 2:43 AM (UTC)`
 
 2/6/2022 Miles Guo: The current economic situation in the US indicates that the CCP virus and the COVID vaccine disasters have destroyed the supply chains. I have said in early 2020 that the secondary disasters and crises caused by the CCP virus and COVID vaccines will start this May. This is the conclusion I draw based upon the intelligence I have about the CCP.<br/><br/>2/6/2022 文贵直播：美国目前的经济说明中共病毒和疫苗灾难摧毁了供应链；文贵在2020年初就说病毒和疫苗造成的次生灾难和危机将于今年5月开始，这是文贵基于所掌握的中共情报而作出的判断<br/>
@@ -148,13 +155,6 @@ This is the BIG ONE I previewed on @WarRoom a little earlier regarding the Covid
 
 <br/> 2月5号悲哀呀悲哀［在中共国，买一个或多个女人均判3年以下有期徒刑，但是买一个鹦鹉都要判5年以下，买2个鹦鹉要判5年以上，买20只癞蛤蟆判3年，所以中国人的命在共产党眼里连鸟都不如，与癞蛤蟆等价。In China, buying one or more women is punishable by up to three years in prison, but buying one parrot is punishable by up to five years, buying two parrots is punishable by more than five years, and buying 20 toads is punishable by three years, so the lives of Chinese people are worse than birds in the eyes of the Communists and are equal to those of toads.］
 ![img](https://media.gettr.com/group27/getter/2022/02/05/14/ee056309-4a4d-027b-6c11-65f4c884110c/out.jpg)
-
----
-
-`@miles 2/5/2022 2:31 PM (UTC)`
-
-2月5号：在中共国生存的女人．连20只癞蛤蟆的价值都不如……这不是今天．也不是昨天，是一直以来都这样，我们都是女人生的，在这样的国家还有自信，还有人权？还有希望吗？
-![img](https://media.gettr.com/group16/getter/2022/02/05/14/99b6a8bb-1e35-3ae0-ea18-91d3563031d0/out.jpg)
 
 ---
 

@@ -2,10 +2,10 @@
 ---
 
 
-## 已经对疫苗的紧急授权使用和错误标识提起诉讼
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1975269/)
+## 因为回扣，特鲁多订购的疫苗量是加拿大人口加驼鹿的十倍
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1975275/)
 
-02/05/2022 战斗室：已经对疫苗的紧急授权使用和错误标识提起诉讼。
+02/02/2022因为有回扣，特鲁多订购的疫苗量是加拿大人口加驼鹿的十倍。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
