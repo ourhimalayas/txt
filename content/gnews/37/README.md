@@ -2,24 +2,12 @@
 ---
 
 
-## 加拿大卡车司机继续抗争渥太华宣布紧急状态
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1975426/)
+## 不能再向中共国市场注入美元
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1975273/)
 
-加拿大杨帆农场枫叶快讯
+02/05/2022 知名主持人鲁·道博在战斗室采访中表示：不能再向中共国市场注入美元。
 
-原文采编：文莱             翻译编辑：文所未闻                   校对编辑：硫酸羟氯喹64
-![](https://i.cbc.ca/1.6341953.1644217714!/fileImage/httpImage/image.JPG_gen/derivatives/16x9_780/coventry-road.JPG)
-据加拿大《CTV新闻》2月6日报道，随着卡车司机反抗特鲁多当局强制疫苗护照的活动不断扩大，渥太华市日前宣布进入紧急状态。
-
-对此，渥太华市长声称，紧急状态将有利于当局获得一切必要的资源。同时，渥太华警方宣布，任何向抗议者提供物质援助，例如燃料和食品的人都可能被逮捕。
-
-报道称，本次抗议活动已进入第11天，尽管渥太华警方已因此至少拘捕了7人，还有超过60项刑事调查正在进行中，但渥太华的抗议活动并没有停止的迹象。卡车司机的组织者表示，他们将在该市集结抗争到底，直到特鲁多政府取消疫苗护照和相关限制措施为止。
-
-原文链接：
-
-[https://www.cbc.ca/news/politics/convoy-protest-ottawa-sunday-impasse-1.6341548](https://www.cbc.ca/news/politics/convoy-protest-ottawa-sunday-impasse-1.6341548)
-
-校对编辑：硫酸羟氯喹64 发稿：青青
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

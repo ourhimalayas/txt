@@ -2,26 +2,28 @@
 ---
 
 
-## 有声|以色列取消大部分疫苗通行证要求
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1976078/)
+## 中共在冬奥期间收集运动员基因信息
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1976083/)
 
-配音：香草山巡管部– 文凯琳
+作者：日本方舟农场 – Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国前国务卿蓬佩奥2月6日在接受福克斯新闻玛丽亚采访时表示，他之所以呼吁抵制北京冬奥会，不是为了让运动员们失去竞技的机会，而是为所有去参加中共冬奥会的运动员们感到担忧。蓬佩奥称，他的这个担忧来自三个方面。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-08-上午11.56.22.png)
+第一，在美国看来奥运会只是一项活动，而中共却将奥运视作一种宣传工具。并且中共想要利用举办奥运来给自己的人权劣迹洗白。
 
+第二，到达北京的运动员面临手机被监控，以及自由言论带来的风险。
 
+第三，蓬佩奥国务卿最担心的除了数据信息，中共还将收集运动员们的DNA信息，并且会将这些信息交给中共军方数据库储存多年。 同一天的文贵大直播中，郭先生也爆料称，参加冬奥会运动员们的大小便甚至都将被收集。中共之所以收集运动员们的基因，就是因为中共根深蒂固的人种崇拜、基因崇拜，并据此给全世界的人类划定阶级。甚至认为用这些基因跟中共一起，交配出所谓更优质的人种就能变成巨大的财富。而这些都是因为中共本身就是一个种族主义、阶级主义的邪恶政权。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+参考链接：
+1）[2022年2月6日 文贵大直播](https://gtv.org/video/id=61ffc26b3621aa7415d64d51)
+2）[https://www.gettr.com/post/pt012ncee1](https://www.gettr.com/post/pt012ncee1)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-
-2月4日，国外媒体报道，作为疫苗接种先锋的以色列，几乎取消了疫苗通行证在普通人群和场所的所有使用。这个政策还是在高感染率、高死亡率的背景下作出的根本改变。
-
-从2月7日开始，以色列人在进入酒店、餐馆、剧院和健身房等场所时，不再需要出示疫苗接种证明。但所谓的“高风险”活动，如婚礼和聚会，仍然需要证明。以色列政府还将继续保持一些限制措施，包括戴口罩，以及未接种疫苗者在“教育机构”每48小时提供一次阴性测试证明等。另外，没有接种疫苗的人士也可以从以色列登机，不再需要进行中共病毒测试，只要目的地国家不要求阴性证明即可。
-
-文字版原文：[以色列取消大部分疫苗通行证要求](https://gnews.org/zh-hans/1973574/)
-
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+总编：文特
+编辑：Delilah小胖
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -29,7 +31,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,22 +2,24 @@
 ---
 
 
-## 加拿大总督被强烈要求罢免总理特鲁多
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1975574/)
+## 加拿大卡车司机继续抗争渥太华宣布紧急状态
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1975426/)
 
-采编/ 翻译编辑：   薇文
-![](https://assets.gnews.org/wp-content/uploads/2021/12/02-image-7.jpg)
-据加拿大[行动党通讯]2月5日报道，卡车司机反疫苗护照的抗议运动发生后，英国驻加拿大总督办公室已收到无数希望解散自由党政府，废黜总理特鲁多的请求。
+加拿大杨帆农场枫叶快讯
 
-报道称，总督办公司最近每天都会收到超过数千个投诉电话，显示要求罢免总理的民意之强烈已到了白热化程度。尽管当局现已过渡到了小型的独裁统治政权，但除了一小撮政客外，民意早已唾弃了企图连任三届总理的特鲁多。
+原文采编：文莱             翻译编辑：文所未闻                   校对编辑：硫酸羟氯喹64
+![](https://i.cbc.ca/1.6341953.1644217714!/fileImage/httpImage/image.JPG_gen/derivatives/16x9_780/coventry-road.JPG)
+据加拿大《CTV新闻》2月6日报道，随着卡车司机反抗特鲁多当局强制疫苗护照的活动不断扩大，渥太华市日前宣布进入紧急状态。
 
-虽然加拿大公民或总督无权罢免现任总理，但只要下议院能成功通过对总理的不信任投票，那么总督将接受总理的辞呈，然后邀请其他政党在下议院组建新的联邦政府。
+对此，渥太华市长声称，紧急状态将有利于当局获得一切必要的资源。同时，渥太华警方宣布，任何向抗议者提供物质援助，例如燃料和食品的人都可能被逮捕。
 
-校对编辑：硫酸羟氯喹64
+报道称，本次抗议活动已进入第11天，尽管渥太华警方已因此至少拘捕了7人，还有超过60项刑事调查正在进行中，但渥太华的抗议活动并没有停止的迹象。卡车司机的组织者表示，他们将在该市集结抗争到底，直到特鲁多政府取消疫苗护照和相关限制措施为止。
 
-发稿：文明(添草灭共)
+原文链接：
 
-原文链接：[Governor General Overwhelmed By Demand To Remove Trudeau From Office](https://bradsalzberg.substack.com/p/governor-general-overwhelmed-by-demand)
+[https://www.cbc.ca/news/politics/convoy-protest-ottawa-sunday-impasse-1.6341548](https://www.cbc.ca/news/politics/convoy-protest-ottawa-sunday-impasse-1.6341548)
+
+校对编辑：硫酸羟氯喹64 发稿：青青
 
  
 
