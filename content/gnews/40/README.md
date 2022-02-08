@@ -2,26 +2,31 @@
 ---
 
 
-## 奥地利政府颁布更严厉的疫苗强制令，未接种者将被罚款
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1973838/)
+## 中日财经爆|药明生物被美国制裁 股价暴跌
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1973984/)
 
-#### 翻译/撰稿：zzballack
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-785.png)[图片来源](https://m.jiemian.com/article/7081635.html)
+中共国企业药明生物多间关连企业被美国商务部纳入“未经核实”实体名单（Unverified List），包括药明生物关联企业无锡药明生物与上海药明生物都将被制裁，随后药明生物股价暴跌。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-2-5.jpg)图片来源：美联社
-据《网关专家》(Gateway Pundit) 2月7日报道，本周，奥地利总统亚历山大·范德贝伦 (Alexander Van der Bellen) 实施了新的新冠限制令，要求该国的所有成年人必须完全接种新冠疫苗以及加强针，否则将面临被罚款的风险。
+药明生物CEO陈智胜在周二投资者会上表示，对本次受影响出口产品，美国要求进口方不能转售或再出口，且美国有相应流程来核查进口方；本次受影响的两类产品，生物反应器的硬件控制器和超滤膜包，正在此列。
 
-欧洲疾控中心的数据显示，奥地利73%的人口接种了两剂疫苗，仅有超过54%的人接种了加强针，这意味着近380万奥地利人将受到这项新法律的影响。该法律3月15日生效，并将持续到2024年1月。执法部门将通过随机拦截交通和抽查的方式来检查人们的疫苗接种状况，以便找出违令者。任何被发现违反疫苗强制令的人都可能被罚款，一年的受罚次数最多可达四次。罚款数额随着违规次数的增加而增加，第一次违规的罚款为600欧元，到第四次时，罚款可能高达3400欧元。
+受消息拖累，该股今早低开14.76%，报68.7元，成交额2.42亿元。其他跌势加深，现挫25.25%，报60.25元，而同系的药明康德﹙2359﹚现泻25.17%，报85元，药明巨诺则泻4.9%，报8.76元。
 
-该法律还允许奥地利政府建立一个秘密的疫苗登记册，以记录每一个接种了疫苗的人，并给那些被发现不遵守强制令的人一个截止日期，要求他们必须在该日期之前接种疫苗，而且允许政府对他们进行重复罚款。
+美国商务部周一（7日）宣布，把33家中共国企业纳入“未经核实”实体名单（Unverified List），指该批企业在合符法规方面存在问题，因此禁止美国企业向有关企业输出受管制技术，或进行业务往来。根据美国商务部声明，美国无法核实涉事中共国企业的公司背景及可信度，因此作出相关处置。
 
-《申根签证信息新闻》（SchengenVisaInfo News）报道说，只有某些人可以获得疫苗豁免，包括孕妇、之前曾感染过新冠以及疫苗会影响身体健康状况的人。不幸的是，并非所有的人都能提供自然免疫证明。即使把所有未记录的新冠病例计算在内，仍然有无数的奥地利人会因为没有接种实验性疫苗、加强针甚至下一剂加强针等等而受到惩罚。
+美国商务部上次把中共国企业纳入“未经核实”实体名单，是在2019年4月，当时两国处于贸易战期间。
 
-另外，奥地利政府缩短了疫苗的有效期限。现在，奥地利公民需要比之前提前90天接种下一剂疫苗。奥地利当局解释说，从2022年2月1日开始，奥地利两剂疫苗的有效期只有180天（18岁以下孩子的有效期为210天），入境人士的疫苗有效期仍为270天。对接种了加强针的人来说，这两种情形的疫苗有效期均为270天。”
+消息来源：[美國再制裁中企！　藥明生物瀉25%　偕另外32間企業被納禁運名單](https://www.hk01.com/%E8%B2%A1%E7%B6%93%E5%BF%AB%E8%A8%8A/732996/%E7%BE%8E%E5%9C%8B%E5%86%8D%E5%88%B6%E8%A3%81%E4%B8%AD%E4%BC%81-%E8%97%A5%E6%98%8E%E7%94%9F%E7%89%A9%E7%80%8925-%E5%81%95%E5%8F%A6%E5%A4%9632%E9%96%93%E4%BC%81%E6%A5%AD%E8%A2%AB%E7%B4%8D%E7%A6%81%E9%81%8B%E5%90%8D%E5%96%AE)
 
-在奥地利当局加紧镇压异议人士的同时，欧盟的其他几个国家已经开始取消新冠限制令，丹麦、瑞典和芬兰等国甚至完全解除了限制令。
+[药明生物称“未经核实的名单”非美国“实体名单” 计划明天与美国商务部谈判（更新版）](https://cn.reuters.com/article/wuxi-bio-responses-usa-0208-tues-idCNKBS2KD08L?il=0)
 
-新闻来源：[INSANE: Austrian Government Authorizes Dystopian Vaccine Registry and Imposes COVID Restrictions Through January 2024 – Will Begin Pulling Drivers Over at RANDOM and FINING UN-BOOSTED Citizens Next Month](https://www.thegatewaypundit.com/2022/02/insane-austrian-government-authorizes-dystopian-vaccine-registry-imposes-covid-restrictions-january-2024-will-begin-pulling-drivers-random-fining-un-boosted-citizens-next-mo/)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+#  
+
+#  
 
  
 
