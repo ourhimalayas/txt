@@ -2,28 +2,20 @@
 ---
 
 
-## 中共间谍单伟健的斑斑劣迹
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1975856/)
+## 有声|猪窝里的老人，何时能有个避风躲雨的屋檐
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1975961/)
 
-作者：银河系农场—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月6日郭先生在大直播中爆料，中共文革时期已在考虑，将中俄关系调整为中美关系，因为中共认识到，只有耕耘中美关系，共产党才能维系其统治。文革期间，6000万无辜知识青年被下放到农村。其中能重新回到北京，还能出国的人，绝不是出身普通家庭者能够做到的，单伟健就是其佼佼者。
+配音：香草山巡管部– 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good.png)
+寒冬凛然，一位垂暮的老人住在没有门窗、没有取暖设施的像猪圈一样的房子里，一大帮穿着红色义工服的人围着破房子唱歌祝福。一个手拿拿照相机的人焦点对着抹眼泪的老奶奶，一个老爷爷被挤出房子外面，团缩着身子哭笑不得地看着这一大帮人视频源自网络
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide3-4.jpeg)
+这样的视频，让我的汗毛根根竖起。在这样寒冷的天气里，在这样没有门窗没有吃穿的环境下，她们竟然唱着祝福你快乐祝福你长寿的歌曲，可怜可悲的中国人呀，被中共的假大空灌输得没有了半点道德、常识，失去了真正的善良；又蠢又笨又无知的人们呀，要到什么时候才会停止这样滑稽的做秀，做出点实事，干出点实际性行动？又或者不要去打扰已经够可怜的老人家了。
 
-中共在美国特务活动的展开，破坏美国的法治民主，单伟健担任重要戏份。他不仅钻美国法律的空子，赢得美国对当时空白的中国市场趋之若鹜，还大力推行中共窃取美国高端科技和军事技术的“千人计划”。美国很多大资本都和单伟健的PAG有关，就连川普总统都被带进这场骗局之中。美国的养老金经他手被洗走了，现在市面上大型社交媒体网络都被此人控制。
+文字版原文：[猪窝里的老人，何时能有个避风躲雨的屋檐](https://gnews.org/zh-hans/1968167/)
 
-2017年郭先生开始爆料后，单伟健公司就开始各种对郭先生的污蔑与缠诉，且和吴征等人时时处处迫害爆料革命战友，更派出HBO吃狗肉女杨贝贝，污蔑华裔为恐怖分子和邪教成员。用法律超限战，媒体超限战等手段，无所不用其极，竭尽全力陷害郭先生，毁灭爆料革命与新中国联邦，充分体现了中共红卫兵的流氓做派——不讲规则，在全球尽显流氓作为。郭先生表示，若单伟健之流这类典型的中共红卫兵不被绳之以法，中共对全球的渗透和对海外华人的栽赃嫁祸将不会终止，世界也将永无宁日。
+音频处理/发稿：Daxia
 
-参考链接： 
-1. [2022年2月6日 文贵大直播：开幕式后普京愤然离去；中俄战略合作虎头蛇尾；贩卖人口中国妇女地位；反疫苗运动及美国经济](https://gtv.org/video/id=61ffc26b3621aa7415d64d51)
-2. [https://gettr.com/post/psn3w2a9f3](https://gettr.com/post/psn3w2a9f3)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
-
-总编：文特
-编辑：静言
-校正/发稿：谐趣园
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -31,7 +23,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
