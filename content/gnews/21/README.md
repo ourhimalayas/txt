@@ -2,26 +2,28 @@
 ---
 
 
-## 三笠宮瑤子公主染疫 日本皇室首例中共病毒确诊
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1975643/)
+## 有声|习近平冬奥会欢迎宴未见普京
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1975747/)
 
-撰稿：东京樱花团｜盖特第一批注册
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-2-2.png)
-[*图片来源*](https://www3.nhk.or.jp/news/html/20220208/K10013474531_2202081929_2202081954_01_02.jpg)
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月5日，习近平和彭丽媛用中国老百姓的税金，为参加中共冬奥会的外国来宾举行欢迎会。中共并未公开参加欢迎会的嘉宾明档。从中共后来公布的视频资料中，看不到本次中共冬奥会最重磅来宾，俄罗斯总统普京的身影。
 
-三笠宮瑤子公主殿下被证实感染了中共（新冠）病毒，于1月8日晚被送入皇室医院，这是日本皇室首例确诊。
+墙内自媒体爆出，普京早在2月4日跟习签署15个协议，并宛如被隔离一般的参加冬奥会开幕式后，于当晚11点火速了中共国。
 
-瑤子公主（38岁）在7日出现喉咙痛，8日下午，皇家医院派医生到公主的赤坂住所探诊，并将标本带回进行PCR检测，确诊染疫。
+文字版原文：[习近平冬奥会欢迎宴未见普京](https://gnews.org/zh-hans/1971049/)
 
-虽然瑤子公主除了喉咙痛之外没有其他症状，但是为了慎重起见，8日晚7点半前住进了皇室医院观察治疗。近几日与她有过接触的姐姐虽无任何症状也将接受检查。瑤子公主独自生活，感染的途径无从查明。
+音频处理/发稿：Daxia
 
-这是第一次在皇室中确认感染中共病毒，日本皇室表示，将继续采取彻底的措施防止感染，接受专家的建议。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-信息来源：[**三笠宮瑤子さま 新型コロナに感染確認 皇室で感染確認は初**](https://www3.nhk.or.jp/news/html/20220208/k10013474531000.html)
-
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / yuxingcao01*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
 
  

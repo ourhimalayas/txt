@@ -2,70 +2,25 @@
 ---
 
 
-## 有声|天亮前的忧伤
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1975644/)
+## 中共关于彭帅的报道将境内境外彻底分开
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1975753/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-古老的民族像羽毛一样的凌乱
-救命车疲惫不堪的总是出现在路上
-超市的货架空荡荡
-琳琅满目的叹息声
-隐隐约约的哭骂声
-汇集成一个个只有小说里才有的悲伤故事
-抖落出阴暗潮湿的丑陋味
-昨天那城封了 今天这城封了
-我不知小镇的安静时间还剩多少
-这个缺爱缺真缺少信任
-唯独不缺自私的社会
-明明是乱世
-依然今朝有酒今朝醉
-无知而迷茫的同胞们
-话题依然离不开打过苗的成就感
-层层加码的真相无力的挣扎在蛛网中
-任凭黑暗覆盖
-我屹立在高处着急
-可危墙之下的人们贪婪于虚设的岁月静好
-嘲笑着我脸上忧伤的表情
-被拒绝接近的我
-伸出手，我使劲的伸出手
-太远了，够不到，也拉不着
-我大声的呼喊着，嘶哑着呼喊
-他们听不见，
-肆虐的狂风吹没了微弱的声音
-我悲伤的看着坠落的片片绿叶
-受风挟裹飘零在空中
-然后，掉进废墟的污垢里
-无声无息，无风无浪
-小镇，你可会得天独厚
-不要到在阎王殿前的泥泞之中
-小镇，你可会早知早觉
-不要跌到在彩虹出现前
-无端的风雨总会停止
-蓝旗飘扬的日子越来越近
-她宽阔的胸怀会包容着你
-她温暖的怀抱会拥抱着你
-等待吧，耐心的等待
-等待灭共的雪飘飘洒洒漫天遍野！
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3-26.png)
+（图片源自本文链接）
 
-文字版原文：[天亮前的忧伤](https://gnews.org/zh-hans/1972359/)
+2月8日共同社北京消息：女子网球运动员彭爽，在爆出中共国一位前副总理强迫她与之发生性关系后，一时下落不明。然而，中共当局却允许彭帅接受法国媒体的采访，旨在向国际社会展示她活得很好。可直至８日，中共国内却没有任何相关报道。这说明，中共当局在境内和境外传播不同的信息方面做得很彻底。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+因为彭帅爆出的是涉及共产党最高领导层威信的敏感问题。所以，她在网站上发表的简短的帖子，立即就被中共当局封锁了。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+另一方面，8日，中共中央电视台播放了国际奥委会主席巴赫在滑雪场与彭女士聊天的场景，但没有解释巴赫的聊天对象是彭帅。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+信息来源：[中国国内で彭帥さんの面会報じず　国外への対応と二重基準徹底（共同通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/56ae13631ef37c1eee0d0e6a1d6d2bffe8357aa4)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

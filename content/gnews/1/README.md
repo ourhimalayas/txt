@@ -2,16 +2,26 @@
 ---
 
 
-## 有声|读物美国卫生部不再要求医院向联邦政府报告中共病毒死亡病例
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1975869/)
+## 有声|土耳其总统埃尔多安感染中共病毒
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1975985/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-5.png)
-在美国中共病毒死亡病例接近90万之际，美国卫生与公众服务部 (HHS) 上周三正式停止要求医院报告冠状病毒死亡人数，联邦政府将从CDC继续获取中共病毒死亡人数。
+配音：香草山巡管部– 文凯琳
 
-据报道，该规则变更最初于 1 月制定，直到上周三才生效。而在同一天，英国政府宣布将停止要求医院在复活节前报告冠状病毒死亡人数。
 
-文字版原文：[读物美国卫生部不再要求医院向联邦政府报告中共病毒死亡病例](https://gnews.org/zh-hans/1974352/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+2月5日，土耳其总统埃尔多安在其社交帐号中承认感染中共病毒。
+
+埃尔多安表示，自己和妻子中共病毒检测呈阳性，并确认感染的是中共奥密克戎病毒，症状轻微，目前在家隔离，居家办公。
+
+乌克兰总统泽伦斯基第一时间向埃尔多安总统及夫人表示慰问，祝他们早日康复！
+
+据悉，埃尔多安2月3日刚刚对乌克兰进行了正式访问。土耳其政府正在试图化解俄罗斯和乌克兰危机。
+
+文字版原文：[土耳其总统埃尔多安感染中共病毒](https://gnews.org/zh-hans/1968373/)
 
 音频处理/发稿：Daxia
 
@@ -24,8 +34,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
