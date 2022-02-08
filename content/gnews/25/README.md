@@ -2,35 +2,25 @@
 ---
 
 
-## 美国呼吁中共尽快兑现贸易协议承诺
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1973575/)
+## 澳洲维多利亚地区过半5-11岁儿童已接种CCP病毒疫苗
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1973669/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/02/803.jpg)图片来自网络
+根据澳大利亚媒体第九新闻的最新报道，截至当地时间周一（2月7日），澳大利亚维多利亚州5至11岁的儿童群体，已经有超过一半接种了CCP病毒疫苗。
 
-整理：Eileen（围剿维尼熊）
-编辑：朝花夕拾
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-614.png)
-根据经济日报2月7日报道：路透社报道，美国官员周一呼吁中共国兑现川普时期签署的“第一阶段”贸易协议—“于2020和2021年加码购买2000亿美元美国商品和服务”的承诺。
+不过维多利亚教育部长James Merlino对于这样的疫苗接种进度似乎仍然不太满意，他表示接下来“还有很长的一段路要走”。这或许意味着政府期待儿童疫苗接种率很可能在90%甚至95%以上，即几乎所有无特殊情况的5-11岁儿童都要接种疫苗。
 
-美国官员表示，华盛顿对北京正逐渐失去耐性，北京近几个月并未展现有意缩减前两年采购差额的迹象。
+于此同时，在该州的成年人群体中，也已经有45%接种第三剂CCP病毒疫苗加强针。
 
-有分析师估计，美国即将发布的全年贸易数据会显示中共国在增加采购美国农产品、工业制品、能源和服务上，与中共所承诺有巨大落差。
+从澳大利亚全国范围内的数据来看，目前全国也已经有将近45%的5-11岁儿童接种了第一针CCP病毒疫苗。而在12-15岁的青少年群体中，这一数字已超过84%，同时有77%的青少年已经接种了第二针。16岁以上的成年人当中，已经有超过43%的居民接种了CCP病毒疫苗的加强针。
 
-根据彼得森国际经济研究所（PIIE）研究员Chad Bown汇整的贸易数据，截至11月，中共仅达成约60%的目标。
+目前，澳大利亚总共接种的CCP病毒疫苗已经超过了5100万剂次，接种数量在各个国家中排在第31位，而接种比例则在全球范围内排行第21位。而全球疫苗总接种剂次已经突破100亿大关，全球超过半数人口接种了至少两剂CCP病毒疫苗。
 
-另外美方表示会就协议约定继续向中共国施压。
+新闻参考链接：[9 News](https://www.9news.com.au/national/elective-surgery-resumes-in-victorias-private-hospitals-as-victorias-covid19-hospitalisations-drop/8435f323-a4e2-4a7c-a02d-28b8ec2781c2)
 
-参考链接：https://udn.com/news/story/6813/6080830?from=udn\_ch2\_menu\_v2\_main\_cate
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

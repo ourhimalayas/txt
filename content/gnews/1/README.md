@@ -2,43 +2,24 @@
 ---
 
 
-## 18岁女孩接种强生疫苗后，出现脑出血和血栓
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1973970/)
+## 中共国靠“黑哨”赢得男子短道速冠军 韩国不服将申诉
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1974023/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-787.png)[图片来源](https://www.163.com/dy/article/GVLUC0PN0514R9OJ.html)
+韩国周二（2月8日）称，拟将其短道速滑运动员在北京冬奥会赛场上，遭遇不公正判罚一事诉诸国际体育仲裁法庭(CAS)，韩国公众对此事感到愤怒。
 
-整理/编辑：小鱼儿
+在周一举行的北京冬奥会短道速滑男子1000米半决赛中，韩国选手黄大宪和李俊瑞分别因“违规超越”和变道导致身体接触，被取消比赛成绩。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-614.png)图片来源：雅典娜设计组
+韩国体育和奥林匹克委员会(KSOC)表示，将就这个不公判罚向CAS和国际奥委会(IOC)提出申诉。
 
+许多韩国人质疑判罚，特别是黄大宪第一个通过终点线。韩国选手被取消比赛成绩后，中共国运动员在决赛中包揽了冠亚军。、
 
-（新闻战争/infowars）当地时间 2 月 7 日，据美国前线医生制作的一部迷你纪录片：一名 18 岁的健康高中生，在接种了一剂强生公司的新冠疫苗后，现在只能坐在轮椅上。
+消息来源：[韩国决定将北京冬奥男子短道速滑判罚诉诸国际体育仲裁法庭](https://cn.reuters.com/article/beijing-olympics-kr-protest-0208-idCNKBS2KD0G1?il=0)
 
-去年六月，艾玛·伯基 (Emma Burkey) 正要和妈妈一起去夏威夷旅行——庆祝她的高中毕业——但这时她出现疫苗副作用。
-
-艾玛说：“三月份，我接种了强生疫苗。因为我在托儿所做志愿者，而且我还照看孩子，我不想让婴儿处于危险之中。”
-
-但接种后，很快，她开始发烧和呕吐——据说医生认为，这是正常现象。
-
-4 月 2 日，艾玛说她头痛得很厉害，“感觉我的头在颤抖”。艾玛接下来开始出现不能控制的颈部晃动和吐血的状况。
-
-随后她被送往医院，急救人员认为她癫痫发作。但医生后来得知：她因中风而出现脑部出血。经历三次脑部手术、四次中风、插管和气管切开术，艾玛奇迹般地活下来，并在父母的帮助下，慢慢重新学习如何走路。
-
-艾玛说：“强生疫苗引起我的脑出血和血栓。如果我知道这可能发生在我身上，我就不会接种，”并补充道，“他们(强生公司）希望人们继续（接种疫苗）。”
-
-现在，她的家人面临着帮助艾玛应对新的痛苦，并面临支付她不断增加的、医疗费用的挑战。
-
-参考新闻：[Healthy 18-Year-Old Girl Wheelchair-Bound After Devastating J&J Vaccine Injury](https://www.infowars.com/posts/healthy-18-year-old-girl-wheelchair-bound-after-devastating-jj-vaccine-injury/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

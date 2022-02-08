@@ -2,29 +2,28 @@
 ---
 
 
-## 中日财经爆|美司法部指控海能达窃取摩托罗拉技术
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1973958/)
+## 疫苗灾情｜美国 20 岁女模特接种疫苗后心脏骤停 双腿截肢保命
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1974005/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-782.png)[图片来源](https://m.c114.com.cn/w3542-1116189.html)
-美国司法部周一（2月7日）表示，已对总部位于中共国深圳市的海能达通信股份有限公司提出刑事指控，指控该公司与摩托罗拉系统公司前员工合谋窃取摩托罗拉的数字移动无线电技术。
+**撰文/ 疫情关注组｜发布日期/ 08/02/2022**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2c82b8914a2be6279ef40e51a3db53e5.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/post/pl6k0218bf](https://gettr.com/post/pl6k0218bf)**
 
-在伊利诺伊州北区公布的一份隐去部分内容的起诉书中，美国政府指控海能达招聘摩托罗拉员工，窃取有关无线电、即“对讲机”的专有商业数据。
+美国佛罗里达州一名 20 岁的女模特 Claire Bridges 在接种完第二剂 COVID-19 疫苗后，因腿部剧烈疼痛被送入坦帕综合医院诊治，先后确诊患上心肌炎、横纹肌溶解症、肺炎、酸中毒等疾病。
 
-摩托罗拉执行副总裁兼总法律顾问Mark Hacker在一份声明中表示，对海能达的指控“突显了这家中共国公司的非法行为是精心策划、经过深思熟虑的”。
+入院治疗期间，Claire 一度发生心脏骤停，虽然经心肺复甦术后，得以保命，但由于因肾脏衰竭而持续经历的透析治疗加重了她腿部的压力，血液无法正常流动，她必须切除坏死的双腿。
 
-“我们将继续在世界各地的司法管辖区对海能达提起民事诉讼，以防止该公司连续侵权，并为摩托罗拉索赔数亿美元。”Hacker补充道。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/美國-20-歲女模特接種疫苗後心臟驟停-雙腿截肢保命.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/美國-20-歲女模特接種疫苗後心臟驟停-雙腿截肢保命-2.jpeg)
 
-2020年2月，陪审团在摩托罗拉诉海能达的窃取商业机密和版权侵权案中对摩托罗拉做出了有利裁决，后者获赔7.46亿美元。芝加哥一个陪审团裁定，总部位于深圳的海能达利用摩托罗拉的机密文件和受版权保护的源代码在双向无线电通信市场上展开竞争。海能达曾是摩托罗拉的分销商，当时该公司对陪审团称，相关产品是自主开放的。
 
-消息来源：[美司法部指控中国电信公司海能达 称其与前摩托罗拉员工合谋窃取技术](https://cn.reuters.com/article/usa-doj-accuses-hytera-0207-mon-idCNKBS2KD016?il=0)
+Claire 的父亲 Wayne 在 facebook 上写道：“当她看到自己失去双腿的那一刻时，Claire 笑着轻声说到『我想我需要义肢了』。”
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
-#  
+父亲续指，虽然 Claire 的康复之路还很长，但作为父亲，希望她能够继续坚强战斗，并继续做想做的事。
 
-#  
+根据最新情况显示，Claire 情况并不乐观，还有一场手术将于2 月 8 日进行，她的父亲呼吁所有有心人能为 Claire 祈祷。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/美國-20-歲女模特接種疫苗後心臟驟停-雙腿截肢保命-1.jpg)
+来源｜[WTSP](https://www.wtsp.com/article/news/local/st-pete-woman-loses-both-legs-now-another-surgery/67-1ed03bb6-e944-4cc4-a0b8-63a364d2adce)
 
  
 
