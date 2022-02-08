@@ -2,24 +2,32 @@
 ---
 
 
-## 中共关于彭帅的报道将境内境外彻底分开
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1975753/)
+## 有声|冬奥会 “一鸽都不能少” 引台民众忧虑
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1975803/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3-26.png)
-（图片源自本文链接）
+配音：香草山健身部 – 玫瑰园
 
-2月8日共同社北京消息：女子网球运动员彭爽，在爆出中共国一位前副总理强迫她与之发生性关系后，一时下落不明。然而，中共当局却允许彭帅接受法国媒体的采访，旨在向国际社会展示她活得很好。可直至８日，中共国内却没有任何相关报道。这说明，中共当局在境内和境外传播不同的信息方面做得很彻底。
 
-因为彭帅爆出的是涉及共产党最高领导层威信的敏感问题。所以，她在网站上发表的简短的帖子，立即就被中共当局封锁了。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月4日，北京冬奥开幕式上，《闪亮的雪花》节目中，有一段剧情描写掉队的小鸽子被拉回队伍。 “一鸽都不能少”这一幕被普遍认为在映射台湾回归大陆。
 
-另一方面，8日，中共中央电视台播放了国际奥委会主席巴赫在滑雪场与彭女士聊天的场景，但没有解释巴赫的聊天对象是彭帅。
+台湾《自由时报》称，中共对外所呈现的每个符码，都是经过精心策划的。而中共显露出来这么重要的信息，却少有台湾人关心。台湾民众对中共野心的认知如此忽视，实在令人唏嘘。
 
-信息来源：[中国国内で彭帥さんの面会報じず　国外への対応と二重基準徹底（共同通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/56ae13631ef37c1eee0d0e6a1d6d2bffe8357aa4)
+如果仔细剖析“一鸽都不能少”的含义，不难发现谁是那只掉队的鸽子，谁又是把掉队的鸽子抓回来的那只鸽。冬奥会这一表演透露了中共准备动手抓鸽子的心态。按着中共的本性，台湾的未来，可说凶险万分。
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+文字版原文：[冬奥会 “一鸽都不能少” 引台民众忧虑](https://gnews.org/zh-hans/1971104/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
 
  

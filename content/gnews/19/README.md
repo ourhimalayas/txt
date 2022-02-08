@@ -2,35 +2,25 @@
 ---
 
 
-## 有声|美国前国安参谋长警告：中俄联盟极其危险
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1975579/)
+## 局面失控 渥太华宣布进入紧急状态
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1975657/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-2月5日外媒消息，随着冬奥会在北京举办，中俄形成战略联盟。在一份联合声明中两国表示，其新关系优于冷战时期建立的，任何其他政治或军事联盟。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E6%88%AA%E5%B1%8F2022-02-07-%E4%B8%8A%E5%8D%8811.18.40.png)
-美国第一政策研究会副主席、国家安全委员会前参谋长弗莱德- 弗利茨说，中俄此次联盟，是一个令人难以置信的危险发展，特别是随着与乌克兰紧张局势的加剧。
+整理编辑：东京樱花团｜上善若水
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-3-2.png)
+[*图片来源*](https://cdn.hk01.com/di/media/images/dw/20220207/567257983189520384195642.jpeg/Jr-tjXlrBaEO6oT5j8IYszrlxAl3Cr8pTYRLTU2ES00?v=w1920)
 
-目前，美国注意的是，避免与俄罗斯开战，并且阻止中共与俄罗斯形成联盟。因为一旦中俄结成联盟，势必威胁到美国和国际社会的安全与稳定。
+加拿大首都渥太华反对新冠抗疫措施大规模示威活动已延续一周，市长沃森宣布进入紧急状态以控制局势，保障市民及首都安全。他强调，此举反映出，示威活动已对当地居民安全构成“严重危险和威胁”。沃森称，局势有可能“完全失控”，渥太华需要“其它司法手段和政府层面的支持”。
 
-文字版原文：[美国前国安参谋长警告：中俄联盟极其危险](https://gnews.org/zh-hans/1971259/)
+此间，千百辆货车继续封锁渥太华市中心的道路，货车司机从上月下旬起在全国范围发动取名为“自由车队”的抗议活动，最初是要求当局取消对从美运货的加拿大卡车司机返回时须提交接种疫苗证明的规定，但现在抗议对象已扩大至特鲁多政府的抗疫政策。警方再度呼吁抗议者离开市中心，并已拘留多人。当局称，对近 100 起案件展开了调查，其中涉及散步仇恨言论。另外，警方已开出数百份罚单，包括危险驾驶和噪音污染。沃森市长称卡车司机“摁喇叭、鸣警笛、放鞭炮，把示威当派对活动”。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+信息来源：[**局面失控 渥太华宣布进入紧急状态**](https://www.dw.com/zh/%E5%B1%80%E9%9D%A2%E5%A4%B1%E6%8E%A7-%E6%B8%A5%E5%A4%AA%E5%8D%8E%E5%AE%A3%E5%B8%83%E8%BF%9B%E5%85%A5%E7%B4%A7%E6%80%A5%E7%8A%B6%E6%80%81/a-60683901)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / yuxingcao01*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
