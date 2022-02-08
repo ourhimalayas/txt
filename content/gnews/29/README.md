@@ -2,52 +2,28 @@
 ---
 
 
-## 彭帅再次回应性侵事件并声称不再参加任何比赛
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1973674/)
+## 冬奥选手教练抱怨北京冬奥会供餐不足
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1973955/)
 
-作者：纽约香草山教育部 – Noemi
+撰稿：东京樱花团/asket
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-783.png)[**图片来源**](https://www.epochtimes.com/gb/22/2/7/n13561348.htm)
+据路透社报导，对大部分人来说，一天要吃下近24盘意大利面或许是不可能的任务；但对冬奥选手来说却非难事，尤其是越野滑雪选手。加拿大越野滑雪选手卓立德（Remi Drolet）便表示：“我每15到20分钟就要吃东西，以确保我的肌肉肝糖尽可能充满。”爱尔兰越野滑雪选手韦斯特加德（Thomas Maloney Westgaard）也自曝一天要吃下7000卡路里，包括“很多盘意面，还有甜点。这让我保持动力。”
 
+越野滑雪选手要在零下低温进行令人精疲力竭的竞赛，需要摄取碳水化合物来补充能量。研究显示，男性越野滑雪运动员平均一天进食量相当于20盘千层面。
 
+冬季奥运参赛选手不仅在训练和竞赛时宛如超人，他们在参赛期间的食量也相当惊人。为在冰雪环境下保持体力，他们得不断进食补充能量。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+然而，德国队高山滑雪教练史威格（Christian Schwaiger）指出，选手若在训练和竞赛期间进食量不够，表现就会受到影响。史威格抱怨北京冬奥高山滑雪比赛场地的食物供应不足，他说：“那根本不算供餐，没有热食，只有洋芋片、一些坚果和巧克力，其它什么都没有。这显示出缺乏对竞技运动的重视。”
 
+无独有偶，芬兰冰上曲棍球队教练贾罗能（Jukka Jalonen）则表示，隔离中的队员安蒂拉（Marko Anttila）“没有得到很好的伙食，而他非常高壮。他会希望在那里能摄取更多能量以及有更好的伙食。”
 
+本次北京冬奥会对国外参赛运动员的食物后勤供应如此欠缺，受到各国亲历者抱怨指摘，实在不符合“大国风范”。加上之前各国运动员哭诉隔离酒店条件和饭菜，以及世界主要国家领导人缺席开幕式，看来习总加速师这次为实现个人政治理想而举办的冬奥会，让其“颜面殆尽”的事件正逐一暴露显现。
 
-2月7日消息，中共国网球名将彭帅在日前接受了一家国外媒体采访。采访期间，彭帅再次声明自己从未说过有人以任何方式对自己进行过性侵犯，但在谈到具体问题时，她则拒绝详述。随后，彭帅还声称，自己因年龄、伤病等原因将不会再参加任何的网球赛事。
+信息来源： [冬奥选手需大量食物 外籍教练抱怨供餐不足](https://www.epochtimes.com/gb/22/2/7/n13561348.htm)
 
-据了解，自彭帅在墙内公开指证张高丽曾对她进行过长期性侵犯以后，相关消息就立刻遭到了中共当局的全面封杀，彭帅的个人安全也成为了全球关注的焦点。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide12-1.jpg)
-此前，彭帅在一次采访中，就曾改口称自己与张高丽发生关系是出于自愿。但据视频资料显示，彭帅在接受采访时的神态、举止都显得极其紧张。此次，彭帅再次谈及性侵事件相关问题时，则完全引用了外媒在去年12月报道该事件的评论原文，并称不希望媒体继续炒作此事。彭帅在两次采访中极为反常的表现，都使采访内容的真实性一再遭到公众的质疑，并加深了外界对于其个人安全问题的广泛担忧。
-
-郭文贵先生也在该事件发生之初就曾指出，彭帅在后续所接受的一切采访都将会是受中共当局的安排和胁迫的，一切的澄清声明都将是中共虚假的谎言。
-
-参考信息：
-1. [中国网球女将彭帅现身上海城市越野滑雪赛 接受《联合早报》采访](https://www.zaobao.com.sg/realtime/china/story20211219-1224709)
-2. [Chinese tennis player Peng denies making accusation of sexual assault](https://www.reuters.com/world/china/chinese-tennis-player-peng-denies-making-accusation-sexual-assault-2022-02-07/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-
-总编/编辑：DM
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

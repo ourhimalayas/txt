@@ -2,29 +2,26 @@
 ---
 
 
-## 中日财经爆|美司法部指控海能达窃取摩托罗拉技术
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1973958/)
+## 新冠病毒政策的制定是没有科学根据的
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1974056/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-782.png)[图片来源](https://m.c114.com.cn/w3542-1116189.html)
-美国司法部周一（2月7日）表示，已对总部位于中共国深圳市的海能达通信股份有限公司提出刑事指控，指控该公司与摩托罗拉系统公司前员工合谋窃取摩托罗拉的数字移动无线电技术。
+##### 翻译：Julia Gao
+校对：枳实
+剪辑|字幕：文驰
+编辑：Mttfly
 
-在伊利诺伊州北区公布的一份隐去部分内容的起诉书中，美国政府指控海能达招聘摩托罗拉员工，窃取有关无线电、即“对讲机”的专有商业数据。
+美东时间2021年11月21日，美国参议员兰德·保罗（Rand Paul）在接受福克斯新闻采访时表示，当科学被政府所控制，或者被一些像福奇这样古板、嗜权的个人控制时，这就真的与科学没有任何关系了。这实际上都是为了驯服美国民众服从政府。据一位名为玛丽波尔·杜阿特（Maribel Duarte）的母亲透露，她的儿子被偷偷打了疫苗，并不被允许告诉父母。这是令人难以置信的，是非常危险的。
 
-摩托罗拉执行副总裁兼总法律顾问Mark Hacker在一份声明中表示，对海能达的指控“突显了这家中共国公司的非法行为是精心策划、经过深思熟虑的”。
+视频链接：[COVID rules haven’t been about science for a long time: Sen. Rand Paul](https://video.foxnews.com/v/6286396878001#sp=show-clips)
 
-“我们将继续在世界各地的司法管辖区对海能达提起民事诉讼，以防止该公司连续侵权，并为摩托罗拉索赔数亿美元。”Hacker补充道。
-
-2020年2月，陪审团在摩托罗拉诉海能达的窃取商业机密和版权侵权案中对摩托罗拉做出了有利裁决，后者获赔7.46亿美元。芝加哥一个陪审团裁定，总部位于深圳的海能达利用摩托罗拉的机密文件和受版权保护的源代码在双向无线电通信市场上展开竞争。海能达曾是摩托罗拉的分销商，当时该公司对陪审团称，相关产品是自主开放的。
-
-消息来源：[美司法部指控中国电信公司海能达 称其与前摩托罗拉员工合谋窃取技术](https://cn.reuters.com/article/usa-doj-accuses-hytera-0207-mon-idCNKBS2KD016?il=0)
-
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
-#  
-
-#  
+*发布：Mttfly*
+**
+更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

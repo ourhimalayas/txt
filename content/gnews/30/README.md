@@ -2,49 +2,26 @@
 ---
 
 
-## 中共在冬奥会中收集运动员的基因
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1973673/)
+## 奥地利政府颁布更严厉的疫苗强制令，未接种者将被罚款
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1973838/)
 
-作者：日本方舟农场 – Andy5
+#### 翻译/撰稿：zzballack
 
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-2-5.jpg)图片来源：美联社
+据《网关专家》(Gateway Pundit) 2月7日报道，本周，奥地利总统亚历山大·范德贝伦 (Alexander Van der Bellen) 实施了新的新冠限制令，要求该国的所有成年人必须完全接种新冠疫苗以及加强针，否则将面临被罚款的风险。
 
+欧洲疾控中心的数据显示，奥地利73%的人口接种了两剂疫苗，仅有超过54%的人接种了加强针，这意味着近380万奥地利人将受到这项新法律的影响。该法律3月15日生效，并将持续到2024年1月。执法部门将通过随机拦截交通和抽查的方式来检查人们的疫苗接种状况，以便找出违令者。任何被发现违反疫苗强制令的人都可能被罚款，一年的受罚次数最多可达四次。罚款数额随着违规次数的增加而增加，第一次违规的罚款为600欧元，到第四次时，罚款可能高达3400欧元。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+该法律还允许奥地利政府建立一个秘密的疫苗登记册，以记录每一个接种了疫苗的人，并给那些被发现不遵守强制令的人一个截止日期，要求他们必须在该日期之前接种疫苗，而且允许政府对他们进行重复罚款。
 
+《申根签证信息新闻》（SchengenVisaInfo News）报道说，只有某些人可以获得疫苗豁免，包括孕妇、之前曾感染过新冠以及疫苗会影响身体健康状况的人。不幸的是，并非所有的人都能提供自然免疫证明。即使把所有未记录的新冠病例计算在内，仍然有无数的奥地利人会因为没有接种实验性疫苗、加强针甚至下一剂加强针等等而受到惩罚。
 
+另外，奥地利政府缩短了疫苗的有效期限。现在，奥地利公民需要比之前提前90天接种下一剂疫苗。奥地利当局解释说，从2022年2月1日开始，奥地利两剂疫苗的有效期只有180天（18岁以下孩子的有效期为210天），入境人士的疫苗有效期仍为270天。对接种了加强针的人来说，这两种情形的疫苗有效期均为270天。”
 
-当地时间2月6日，前国务卿蓬佩奥在接受媒体采访时表示，他之所以抵制北京冬奥会不在于让运动员们失去竞技的机会，而是为所有去北京的运动员感到担忧。
+在奥地利当局加紧镇压异议人士的同时，欧盟的其他几个国家已经开始取消新冠限制令，丹麦、瑞典和芬兰等国甚至完全解除了限制令。
 
-这个担忧来自三个方面。首先，美国认为奥运会只是一项活动，而中共却将奥运会当作宣传的工具，并且中共想要用奥运会来给自己洗白。其次，到达北京的运动员面临手机被监控，以及无法自由言论的危险。第三，蓬佩奥最担心的是除了数据信息，中共还将收集运动员的DNA信息，甚至将这些信息交给中共军方。
-
-而在同一天的大直播中，郭先生也爆料称，中共之所以收集基因，就是因为其根深蒂固的人种崇拜、基因崇拜，并据此给全世界的人类划定阶级。甚至认为用这些基因跟中共一起，交配出所谓更优质的人种就能变成巨大的财富。而这些都是因为中共本身就是一个种族主义、阶级主义的邪恶政权。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide10-3.jpg)
-参考信息：
-1. [2022年2月6日 文贵大直播：开幕式后普京愤然离去；中俄战略合作虎头蛇尾；贩卖人口中国妇女地位；反疫苗运动及美国经济](https://gtv.org/video/id=61ffc26b3621aa7415d64d51)
-2. [20220206蓬佩奧國務卿和七哥同時提到CCP將收集運動員DNA](https://www.gettr.com/post/pt012ncee1)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-
-总编/编辑：DM
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+新闻来源：[INSANE: Austrian Government Authorizes Dystopian Vaccine Registry and Imposes COVID Restrictions Through January 2024 – Will Begin Pulling Drivers Over at RANDOM and FINING UN-BOOSTED Citizens Next Month](https://www.thegatewaypundit.com/2022/02/insane-austrian-government-authorizes-dystopian-vaccine-registry-imposes-covid-restrictions-january-2024-will-begin-pulling-drivers-random-fining-un-boosted-citizens-next-mo/)
 
  
 

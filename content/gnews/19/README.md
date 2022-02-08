@@ -2,20 +2,29 @@
 ---
 
 
-## 普京大怒
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1973957/)
+## 拜登和德国总理在白宫会面
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1974048/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+信息来源： 德国世界报
 
-*发布：陶子*
+翻译/整理： 意大利罗马达芬奇农场 Shuizhuyu
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0045.jpg)
+
+
+图片来源： 视频截图
+
+德国总理舒尔茨在对美国的首次访问中明确表示，俄罗斯在乌克兰冲突中的进一步升级将付出“非常、非常高的代价”。 “如果有军事侵略，就会有严厉、普遍、全面的制裁。”舒尔茨补充说：“我认为这个信息已经传到了俄罗斯。”
+
+美国总统乔·拜登最初表达了更加谨慎的态度。他说，舒尔茨和他一致认为，外交是解决俄乌冲突的最佳途径。
+
+但是：美国总统随后强调，入侵乌克兰也将意味着北溪二期的终结。 “我们将结束它。我向你保证，在这种情况下会发生这种情况，”拜登在被问及美国打算如何确保这一点时强调。舒尔茨补充说，他们将“共同行动”，但在被问到时拒绝再次重复具体措施和威胁。
+
+总的来说，拜登谈到了与舒尔茨的“非常富有成效的对话”，德国是“绝对可靠的伙伴”，他对此毫不怀疑。在谈话中也很快清楚地表明，两人在领导力和价值观方面都有非常相似的方法。拜登特别提到了尊重他人的价值。
+
+🔗[拜登和德国总理在白宫会面](https://www.welt.de/politik/ausland/article236749309/Scholz-in-Washington-Bei-russischem-Einmarsch-Ende-von-Nord-Stream-2-droht-Biden.html)
+
+编辑发布： Shuizhuyu
 
  
 

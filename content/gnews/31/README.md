@@ -2,25 +2,52 @@
 ---
 
 
-## 澳洲维多利亚地区过半5-11岁儿童已接种CCP病毒疫苗
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1973669/)
+## 彭帅再次回应性侵事件并声称不再参加任何比赛
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1973674/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2022/02/803.jpg)图片来自网络
-根据澳大利亚媒体第九新闻的最新报道，截至当地时间周一（2月7日），澳大利亚维多利亚州5至11岁的儿童群体，已经有超过一半接种了CCP病毒疫苗。
+作者：纽约香草山教育部 – Noemi
 
-不过维多利亚教育部长James Merlino对于这样的疫苗接种进度似乎仍然不太满意，他表示接下来“还有很长的一段路要走”。这或许意味着政府期待儿童疫苗接种率很可能在90%甚至95%以上，即几乎所有无特殊情况的5-11岁儿童都要接种疫苗。
 
-于此同时，在该州的成年人群体中，也已经有45%接种第三剂CCP病毒疫苗加强针。
 
-从澳大利亚全国范围内的数据来看，目前全国也已经有将近45%的5-11岁儿童接种了第一针CCP病毒疫苗。而在12-15岁的青少年群体中，这一数字已超过84%，同时有77%的青少年已经接种了第二针。16岁以上的成年人当中，已经有超过43%的居民接种了CCP病毒疫苗的加强针。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-目前，澳大利亚总共接种的CCP病毒疫苗已经超过了5100万剂次，接种数量在各个国家中排在第31位，而接种比例则在全球范围内排行第21位。而全球疫苗总接种剂次已经突破100亿大关，全球超过半数人口接种了至少两剂CCP病毒疫苗。
 
-新闻参考链接：[9 News](https://www.9news.com.au/national/elective-surgery-resumes-in-victorias-private-hospitals-as-victorias-covid19-hospitalisations-drop/8435f323-a4e2-4a7c-a02d-28b8ec2781c2)
 
-*发稿：mgjxs*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
+2月7日消息，中共国网球名将彭帅在日前接受了一家国外媒体采访。采访期间，彭帅再次声明自己从未说过有人以任何方式对自己进行过性侵犯，但在谈到具体问题时，她则拒绝详述。随后，彭帅还声称，自己因年龄、伤病等原因将不会再参加任何的网球赛事。
+
+据了解，自彭帅在墙内公开指证张高丽曾对她进行过长期性侵犯以后，相关消息就立刻遭到了中共当局的全面封杀，彭帅的个人安全也成为了全球关注的焦点。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide12-1.jpg)
+此前，彭帅在一次采访中，就曾改口称自己与张高丽发生关系是出于自愿。但据视频资料显示，彭帅在接受采访时的神态、举止都显得极其紧张。此次，彭帅再次谈及性侵事件相关问题时，则完全引用了外媒在去年12月报道该事件的评论原文，并称不希望媒体继续炒作此事。彭帅在两次采访中极为反常的表现，都使采访内容的真实性一再遭到公众的质疑，并加深了外界对于其个人安全问题的广泛担忧。
+
+郭文贵先生也在该事件发生之初就曾指出，彭帅在后续所接受的一切采访都将会是受中共当局的安排和胁迫的，一切的澄清声明都将是中共虚假的谎言。
+
+参考信息：
+1. [中国网球女将彭帅现身上海城市越野滑雪赛 接受《联合早报》采访](https://www.zaobao.com.sg/realtime/china/story20211219-1224709)
+2. [Chinese tennis player Peng denies making accusation of sexual assault](https://www.reuters.com/world/china/chinese-tennis-player-peng-denies-making-accusation-sexual-assault-2022-02-07/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+
+总编/编辑：DM
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,46 +2,25 @@
 ---
 
 
-## 联合国秘书长盼北京允人权特使访新疆
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1973650/)
+## 美日宣布达成钢铁关税协议 共同应对中共
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1973656/)
 
-作者：台湾宝岛农场 – 阿尔道夫
+**撰稿：日本东京方舟农场  老孙**
 
+2月8日美国之声报道，美日双方周一宣布达成协议，减免特朗普时期对日本进口钢材征收的关税。这项协议将允许每年大约125万吨的日本进口钢材免征关税，但必须完全由日本国内生产，才能享受免关税待遇，以减少中国钢铁绕道日本以躲避美国关税制裁的风险。该协议将在4月1日生效。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-112.jpg)（图片取自美国之声）
+美国和日本的联合声明说，日本将在六个月内开始落实国内措施，例如反倾销、反补贴关税和安全保障措施或其它等效措施，为钢铁领域创造更具市场导向的条件。
 
+美国商务部在宣布美日达成关税协议时说，这项协议是拜登总统与我们关键的盟友和伙伴加强关系，并与他们一起应对中国等国家的不公平做法。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+美国商务部长雷蒙多在声明中说：“今天的宣布建立在我们与欧盟达成的协议的基础之上，在我们抗击中国不公平的做法并为美国家庭、公司和工人营造一个更具竞争性的全球经济之际，将进一步帮助重建我们与世界各地的盟友的关系。”
 
+参考链接：
+[https://www.voachinese.com/a/6431993.html](https://www.voachinese.com/a/6431993.html)
 
-
-2月6日，联合国秘书长古特瑞斯在冬奥期间与中共主席习近平和外交部长王毅会面时提出，期望中共允许联合国人权事务高级专员巴舍莱进入新疆，调查维吾尔人遭虐待的指控，对中共进行可信的访问，包括在新疆停留。
-
-据悉，巴舍莱曾多次表达过希望进入新疆访问、追查真相的愿望，但一直遭到但中共的拒绝。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide11-2.jpg)
-参考信息：
-1. [聯合國秘書長：盼北京允人權特使訪新疆](https://udn.com/news/story/6809/6078603?from=udn-catebreaknews_ch2)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+素材采编：老孙
+编辑：青城道姑 
+发布：爱放飞
 
  
 

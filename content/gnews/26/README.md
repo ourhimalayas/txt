@@ -2,30 +2,29 @@
 ---
 
 
-## 中共紧急救市对房地产项目有条件松绑
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/1973843/)
+## 中日财经爆|美司法部指控海能达窃取摩托罗拉技术
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1973958/)
 
-作者：波士顿五月花 Frankie 背靠背
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-08-at-4.17.58-PM.png)图片来源：互联网
-2022年02月08日，中共国中国人民银行 中国银行保险监督管理委员会下发通知《中国人民银行 中国银行保险监督管理委员会关于保障性租赁住房有关贷款不纳入房地产贷款集中度管理的通知》。[【1】](http://www.pbc.gov.cn/zhengwugongkai/4081330/4081344/4081395/4081686/4466262/index.html)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-08-at-4.12.18-PM.png)图片来源：互联网
-该通知印发当日即执行，时间紧急。从通知内容第一项，银行业金融机构向持有保障性租赁住房项目认定书的保障性租赁住房项目发放的有关贷款不纳入房地产贷款集中度管理。一方面，只要房地产项目认定有保障性租赁住房性质就更可能获取银行金融机构贷款，另一方面，这也成为房地产项目权力寻租新土壤新战场，房地产项目想获得资金续命将付出更大代价，成本更高。
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-782.png)[图片来源](https://m.c114.com.cn/w3542-1116189.html)
+美国司法部周一（2月7日）表示，已对总部位于中共国深圳市的海能达通信股份有限公司提出刑事指控，指控该公司与摩托罗拉系统公司前员工合谋窃取摩托罗拉的数字移动无线电技术。
 
-房地产贷款集中度管理是中共12月31日发出通知《中国人民银行 中国银行保险监督管理委员会关于建立银行业金融机构房地产贷款集中度管理制度的通知》，管理境内设立的中资法人银行业金融机构，其房地产贷款余额占比及个人住房贷款余额占比。2021年1月1日执行。[【2】](http://www.cbirc.gov.cn/cn/view/pages/ItemDetail.html?docId=955098&amp;itemId=928&amp;generaltype=0)
+在伊利诺伊州北区公布的一份隐去部分内容的起诉书中，美国政府指控海能达招聘摩托罗拉员工，窃取有关无线电、即“对讲机”的专有商业数据。
 
-计算方法如下所示：
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-08-at-4.20.19-PM.png)
-分五个档次和比例如下图所示：
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-08-at-4.13.43-PM.png)图片来源：保险监督委员会网站[【2】](http://www.cbirc.gov.cn/cn/view/pages/ItemDetail.html?docId=955098&amp;itemId=928&amp;generaltype=0)
+摩托罗拉执行副总裁兼总法律顾问Mark Hacker在一份声明中表示，对海能达的指控“突显了这家中共国公司的非法行为是精心策划、经过深思熟虑的”。
 
+“我们将继续在世界各地的司法管辖区对海能达提起民事诉讼，以防止该公司连续侵权，并为摩托罗拉索赔数亿美元。”Hacker补充道。
 
-[【1】中国人民银行 中国银行保险监督管理委员会关于保障性租赁住房有关贷款不纳入房地产贷款集中度管理的通知](http://www.pbc.gov.cn/zhengwugongkai/4081330/4081344/4081395/4081686/4466262/index.html)
+2020年2月，陪审团在摩托罗拉诉海能达的窃取商业机密和版权侵权案中对摩托罗拉做出了有利裁决，后者获赔7.46亿美元。芝加哥一个陪审团裁定，总部位于深圳的海能达利用摩托罗拉的机密文件和受版权保护的源代码在双向无线电通信市场上展开竞争。海能达曾是摩托罗拉的分销商，当时该公司对陪审团称，相关产品是自主开放的。
 
-[【2】中国人民银行 中国银行保险监督管理委员会关于建立银行业金融机构房地产贷款集中度管理制度的通知](http://www.cbirc.gov.cn/cn/view/pages/ItemDetail.html?docId=955098&amp;itemId=928&amp;generaltype=0)
+消息来源：[美司法部指控中国电信公司海能达 称其与前摩托罗拉员工合谋窃取技术](https://cn.reuters.com/article/usa-doj-accuses-hytera-0207-mon-idCNKBS2KD016?il=0)
 
-* * *
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+#  
 
-*编辑&发布：Vicky*
+#  
 
  
 

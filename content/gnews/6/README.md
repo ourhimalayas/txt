@@ -2,46 +2,23 @@
 ---
 
 
-## 江苏被锁八孩母亲绝非个例
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1974090/)
+## 中国网球运动员在中共监视下接受媒体采访
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1974161/)
 
-作者：银河系农场—骄子
+编译：赵圣欢
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2081.gif)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-2.png)
-2022年2月4日大直播中郭先生提及，近日网络热议的话题，中共国江苏省一位被多次强奸而生育了八个孩子的母亲，被锁在小黑屋里过着猪狗不如的生活。郭先生指出，此事绝非个例。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/192809.png)
-在中共暴虐统治下，没有一个中国人活得像个人样。郭先生回顾在他的老家台前县，买卖媳妇的事司空见惯。即使今日站在老家屋顶上，随处可见像江苏省八孩母亲那样被锁链锁起来的女性，一眼望去，十个八个，像狗一样被拴十几至二十年。其中生出的孩子，有些还在盘古打工。
+在北京，中国网球运动员彭帅接受了法国体育报纸《L’Equipe》的采访，而一名中国奥运官员站在附近。当被问及她对一名前中国共产党高级成员的性侵犯指控时，她说，国际上对她人身安全和着落的担忧是『一个巨大的误解』。
 
-可悲可恨可怜的中国人，被共产党篡改了历史、蒙蔽了双眼，更被共产党毁掉了未来。既然不知道过去，还奢谈什么现在，又能看到什么未来。中国人现在无路可走，唯有灭共，才有未来。
+彭帅还与国际奥会主席汤玛斯•巴赫（Thomas Bach）当面会晤，这无疑是为了减轻国际上对这位网球明星的担忧。当被问及国际奥委会是否认为彭的言论受到控制时，国际奥会发言人在新闻发布会上说，虽然他们追求的是『个人和安静的外交』，这不是我们能够以单一方式做出判断的，就像你也不能判断一样。
 
-参考来源：
+有这样的声明撑腰，中共的策略似乎正在奏效——播下足够的模棱两可、混乱和怀疑的种子，最终，问题不了了之。
 
-[https://gtv.org/video/id=61fd1a6596ba5d73e0c28b83](https://gtv.org/video/id=61fd1a6596ba5d73e0c28b83)
+[新闻链接：](https://www.nationalreview.com/corner/chinese-tennis-star-speaks-to-press-under-ccp-supervision/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-18.jpg)
-
-
-
-编辑：静言
-
-校对/发稿：兰兰
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-2.png)
-
+审核校对：Barry Jack
+上传排版：V在途中
 
  
 
