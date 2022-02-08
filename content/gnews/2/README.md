@@ -2,42 +2,37 @@
 ---
 
 
-## 美情报官员：俄军加强了全面入侵乌克兰的准备
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1973179/)
+## 巴布亚新几内亚总理在北京感染新冠
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1973209/)
 
-#### **【雅典娜快讯】，紧贴时代脉搏**
+**【雅典娜快讯】，紧贴时事脉搏**
 
-整理报道：Sara9
-编辑：文泓
+**整理报道：**小熊
+**编辑：**翼族
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/ewrwe.jpg)
-
-
-
-图片来源：CNBC
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/753dfc4102384ac7a2fc9fae2c52c331.jpg)CGTN
 
 
-当地时间2月7日，据美国之音报道，美国官员援引情报评估表示，俄罗斯目前加强了全面入侵乌克兰的军事准备。目前，还不清楚莫斯科是否已经决定真的采取入侵行动。在2月中旬，普京将汇集全面入侵乌克兰所需要的大约15万军队。
+巴布亚新几内亚总理詹姆斯·马拉佩（James Marape）出席北京冬奥会开幕式期间中共病毒（COVID-19）检测呈阳性，将无法参加接下来在法国举行的印度与太平洋峰会。
 
-美国官员说，如果俄罗斯决定全面入侵，俄军可在48小时内夺取乌克兰首都基辅，推翻乌克兰总统弗拉基米尔·泽连斯基。
+巴布亚新几内亚总理办公室说，马拉佩总理上周四赴北京参加冬奥会开幕式，抵京后检测出阳性，赴法国参加印度与太平洋峰会的行程也被取消。
 
-周四，美国情报官员说，有证据显示俄罗斯正在制作一个虚假视频，声称受到乌克兰的攻击，作为俄罗斯真正入侵乌克兰的借口。
+马拉佩总理原定从北京前往法国西北部，出席2月9日至11日的海洋峰会，该峰会在联合国协助下由法国出任欧盟理事会主席。而上周更早的时间，马拉佩总理办公室曾表示，原定计划里还有一个马拉佩总理与法国总统马克龙先生的会面安排。
 
-美国官员还表示，普京希望采取的选项，包括在乌克兰亲俄罗斯的东部顿巴斯地区发动有限的攻势到全面入侵。不过，俄罗斯至今否认计划入侵乌克兰。
+“因疫情旅行禁令，马拉佩总理将取消前往法国的行程，原因是上周四晚总理被测试出阳性。”总理办公室在其脸书上声明。
 
-在各国外交官们竭力试图劝说俄罗斯从乌克兰边境撤离部队之际，美国总统拜登下令向波兰派遣美军保护北约成员国。第一批美军已于2月5日抵达。
+办公室说，马拉佩总理于上周日返回巴布亚新几内亚，进一步细节未予披露。
 
-同时，俄罗斯也宣布与白俄罗斯举行联合军演，向白俄境内位于基辅北部的布列斯特地区派遣了几个营的兵力。同时，俄罗斯在靠近乌克兰的地区部署了战斗机、轰炸机、导弹及防空导弹系统。
+巴布亚新几内亚新冠疫情控制中心网站有一则声明说，为预防新冠病毒，早在1月24日马拉佩总理已接种过新冠疫苗。
 
-新闻链接：[美情报评估：俄军正做好全面入侵乌克兰准备](https://www.voachinese.com/a/us-says-russia-preparing-full-scale-invasion-of-ukraine-20220206/6429852.html)
+**新闻链接**：[PNG PM James Marape gets COVID-19 in Beijing, cancels attendance for Indo-Pacific summit](https://www.sbs.com.au/news/png-pm-james-marape-gets-covid-19-in-beijing-cancels-attendance-for-indo-pacific-summit/376907ab-943e-4368-aa3d-85256615f84e)
 
-发布：星谕
+*发布：翼族*
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  

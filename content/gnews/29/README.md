@@ -2,26 +2,26 @@
 ---
 
 
-## 农历新年后，多个亚洲国家中共病毒感染病例激增
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1972750/)
+## 哈佛新研究证明新冠疫苗会增加感染和死亡人数
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1972829/)
 
-#### 撰稿：彩虹 
+##### 翻译：Julia Gao
+校对：枳实
+剪辑|字幕：文驰
+编辑：Mttfly
 
-#### 责编：白夜 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-766.png)图片来源：CTV News
-2月7日，《国会山报》引述相关报道，指在农历新年庆祝活动结束大约一周后，多个亚洲国家报告了中共病毒（COVID-19）病例数激增。
+哈佛大学在《欧洲流行病学杂志》上发表了一个对68个国家和美国29个州、2900个县的研究报告。该报告批驳了新冠疫苗可以有效阻止疫情传播的观点。贝克尔新闻在9月份指出，一个国家的疫苗接种水平和新冠病毒的发病率之间存在正相关关系。仅仅通过原始数据就可以得出：地球上接种疫苗最多的国家， 新冠病毒发病率也最高。据InfoWars分析，NBA已达97%的疫苗接种率，在今年强制疫苗的情况下，NBA将会有更多的新冠病例产生。
 
-据美联社报道，周日，日本报告了9万个中共病毒病例，其中仅在东京就有超过17,500个。印度尼西亚则报告了36,057个每日病例，比一个月前的533例有所增加。
+视频链接：[New Harvard Study Proves Vaccines Increasing COVID](https://www.brighteon.com/fd882b58-d316-4b0b-9405-52673e56b2d4)
 
-在香港，所有中共病毒病例都需要住院治疗，该地报告的病例数达到了614例，创下新高。周一，香港卫生防护中心（Hong Kong’s Centre for Health）的一名官员Edwin Tsui告诉美联社记者说：“我们预计几天后会有更多病例出现，我们认为这是在节日活动和聚会后的一些影响。以我们目前的遏制措施，希望仍然能够控制住这种疾病。”
-
-周一，香港当局还宣布，从周二开始，任何与病毒检测结果呈阳性的人有过密切接触的人都要在家隔离。
-
-同时，新加坡的病例自假期以来增加了两倍，达到了周五报告的13,000例。但是到了周日，新增病例减少到了7,752例。
-
-**新闻来源**
-
-[COVID-19 cases spike in Asia after Lunar New Year](https://thehill.com/policy/international/asia-pacific/593176-covid-19-cases-spike-in-asia-after-lunar-new-year?rl=1)
+*发布：Mttfly*
+**
+更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

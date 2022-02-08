@@ -2,30 +2,43 @@
 ---
 
 
-## 2月7日0时起，广西百色全员居家隔离
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1973103/)
+## 美情报官员：俄军加强了全面入侵乌克兰的准备
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1973179/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Unknown-9.jpg)2月7日0时起，广西百色全员居家隔离 网络图片
-据澎湃新闻2月7日报道，中共国广西百色市新冠肺炎疫情防控工作领导小组指挥部发布《关于全员居家隔离的通告》，百色市从2月7日0时起全员居家隔离，解除时间视疫情另行通告。
+#### **【雅典娜快讯】，紧贴时代脉搏**
 
-居家隔离期间，学校和各类培训机构全部停课、公共交通停运。除了购买必须的生活物资以及进行核酸检测外，非必要不出门。购买生活物资尽量选择配送服务。除保供应的超市、农贸市场、医院、药店外，其他经营场所一律停业。保障防疫、医疗服务、志愿者等人员持特定通行证可以在百色市通行。
+整理报道：Sara9
+编辑：文泓
 
-新中国联邦的郭文贵先生曾经爆料过，中共国的防疫和隔离都是政治需要，从来不是疫情需要，因为中共从来不在于老百姓的生命。有需要就满足需求，隔离到饿死、病死人，死多少人都在所不惜。中共的邪恶本质在这场病毒和疫苗事件中显露无疑，中共国人民如果再不起来反抗，不推翻中共，中国人民的灾难不会停止。
-
-新闻参考链接：[http://www.thepaper.cn/newsDetail\_forward\_16593394](https://www.thepaper.cn/newsDetail_forward_16593394)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/ewrwe.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+图片来源：CNBC
 
 
+当地时间2月7日，据美国之音报道，美国官员援引情报评估表示，俄罗斯目前加强了全面入侵乌克兰的军事准备。目前，还不清楚莫斯科是否已经决定真的采取入侵行动。在2月中旬，普京将汇集全面入侵乌克兰所需要的大约15万军队。
+
+美国官员说，如果俄罗斯决定全面入侵，俄军可在48小时内夺取乌克兰首都基辅，推翻乌克兰总统弗拉基米尔·泽连斯基。
+
+周四，美国情报官员说，有证据显示俄罗斯正在制作一个虚假视频，声称受到乌克兰的攻击，作为俄罗斯真正入侵乌克兰的借口。
+
+美国官员还表示，普京希望采取的选项，包括在乌克兰亲俄罗斯的东部顿巴斯地区发动有限的攻势到全面入侵。不过，俄罗斯至今否认计划入侵乌克兰。
+
+在各国外交官们竭力试图劝说俄罗斯从乌克兰边境撤离部队之际，美国总统拜登下令向波兰派遣美军保护北约成员国。第一批美军已于2月5日抵达。
+
+同时，俄罗斯也宣布与白俄罗斯举行联合军演，向白俄境内位于基辅北部的布列斯特地区派遣了几个营的兵力。同时，俄罗斯在靠近乌克兰的地区部署了战斗机、轰炸机、导弹及防空导弹系统。
+
+新闻链接：[美情报评估：俄军正做好全面入侵乌克兰准备](https://www.voachinese.com/a/us-says-russia-preparing-full-scale-invasion-of-ukraine-20220206/6429852.html)
+
+发布：星谕
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
