@@ -2,24 +2,23 @@
 ---
 
 
-## 中共国靠“黑哨”赢得男子短道速冠军 韩国不服将申诉
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1974023/)
+## 渥太华在“为自由护航”抗议强制疫苗中宣布紧急状态
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1974128/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-787.png)[图片来源](https://www.163.com/dy/article/GVLUC0PN0514R9OJ.html)
-韩国周二（2月8日）称，拟将其短道速滑运动员在北京冬奥会赛场上，遭遇不公正判罚一事诉诸国际体育仲裁法庭(CAS)，韩国公众对此事感到愤怒。
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-23.jpg)
+图片来源：
 
-在周一举行的北京冬奥会短道速滑男子1000米半决赛中，韩国选手黄大宪和李俊瑞分别因“违规超越”和变道导致身体接触，被取消比赛成绩。
+美国合众社2月7日报道，加拿大首都渥太华称因许多卡车司机周末聚集抗强制疫苗使得抗议者，警察和居民之间的紧张关系而宣布紧急状态。渥太华警察因连续两个周末许多抗议者基本占据了市中心而进入联邦和省权力机构。基姆·沃特森市长宣布紧急状态，权力机构说卡车司机和其他抗改者的“为自由护航”已经给公众带来危险。
 
-韩国体育和奥林匹克委员会(KSOC)表示，将就这个不公判罚向CAS和国际奥委会(IOC)提出申诉。
+渥太华警察长戴安娜·丁恩说“他们恐吓了我们的居民，用不断的按喇叭折磨居民，威胁他们并不让他们进行正常的生活。”
 
-许多韩国人质疑判罚，特别是黄大宪第一个通过终点线。韩国选手被取消比赛成绩后，中共国运动员在决赛中包揽了冠亚军。、
+抗议组织者说他们要待到加拿大政府放弃疫情强制措施。社交媒体#加拿大卡车司机，尤其是推特，帮抗议者发布在渥太华抗议人群的视频和照片。
 
-消息来源：[韩国决定将北京冬奥男子短道速滑判罚诉诸国际体育仲裁法庭](https://cn.reuters.com/article/beijing-olympics-kr-protest-0208-idCNKBS2KD0G1?il=0)
+##### 新闻来源： [Ottawa declares emergency over ‘Freedom Convoy’ protests against COVID-19 mandates](https://www.upi.com/Top_News/World-News/2022/02/07/canada-emergency-freedom-convoy-covid/9211644252448/)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+#  
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

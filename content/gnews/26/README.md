@@ -2,25 +2,31 @@
 ---
 
 
-## 澳洲维多利亚地区过半5-11岁儿童已接种CCP病毒疫苗
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1973669/)
+## 中共紧急救市对房地产项目有条件松绑
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/1973843/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2022/02/803.jpg)图片来自网络
-根据澳大利亚媒体第九新闻的最新报道，截至当地时间周一（2月7日），澳大利亚维多利亚州5至11岁的儿童群体，已经有超过一半接种了CCP病毒疫苗。
+作者：波士顿五月花 Frankie 背靠背
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-08-at-4.17.58-PM.png)图片来源：互联网
+2022年02月08日，中共国中国人民银行 中国银行保险监督管理委员会下发通知《中国人民银行 中国银行保险监督管理委员会关于保障性租赁住房有关贷款不纳入房地产贷款集中度管理的通知》。[【1】](http://www.pbc.gov.cn/zhengwugongkai/4081330/4081344/4081395/4081686/4466262/index.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-08-at-4.12.18-PM.png)图片来源：互联网
+该通知印发当日即执行，时间紧急。从通知内容第一项，银行业金融机构向持有保障性租赁住房项目认定书的保障性租赁住房项目发放的有关贷款不纳入房地产贷款集中度管理。一方面，只要房地产项目认定有保障性租赁住房性质就更可能获取银行金融机构贷款，另一方面，这也成为房地产项目权力寻租新土壤新战场，房地产项目想获得资金续命将付出更大代价，成本更高。
 
-不过维多利亚教育部长James Merlino对于这样的疫苗接种进度似乎仍然不太满意，他表示接下来“还有很长的一段路要走”。这或许意味着政府期待儿童疫苗接种率很可能在90%甚至95%以上，即几乎所有无特殊情况的5-11岁儿童都要接种疫苗。
+房地产贷款集中度管理是中共12月31日发出通知《中国人民银行 中国银行保险监督管理委员会关于建立银行业金融机构房地产贷款集中度管理制度的通知》，管理境内设立的中资法人银行业金融机构，其房地产贷款余额占比及个人住房贷款余额占比。2021年1月1日执行。[【2】](http://www.cbirc.gov.cn/cn/view/pages/ItemDetail.html?docId=955098&amp;itemId=928&amp;generaltype=0)
 
-于此同时，在该州的成年人群体中，也已经有45%接种第三剂CCP病毒疫苗加强针。
+计算方法如下所示：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-08-at-4.20.19-PM.png)
+分五个档次和比例如下图所示：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-08-at-4.13.43-PM.png)图片来源：保险监督委员会网站[【2】](http://www.cbirc.gov.cn/cn/view/pages/ItemDetail.html?docId=955098&amp;itemId=928&amp;generaltype=0)
 
-从澳大利亚全国范围内的数据来看，目前全国也已经有将近45%的5-11岁儿童接种了第一针CCP病毒疫苗。而在12-15岁的青少年群体中，这一数字已超过84%，同时有77%的青少年已经接种了第二针。16岁以上的成年人当中，已经有超过43%的居民接种了CCP病毒疫苗的加强针。
 
-目前，澳大利亚总共接种的CCP病毒疫苗已经超过了5100万剂次，接种数量在各个国家中排在第31位，而接种比例则在全球范围内排行第21位。而全球疫苗总接种剂次已经突破100亿大关，全球超过半数人口接种了至少两剂CCP病毒疫苗。
+[【1】中国人民银行 中国银行保险监督管理委员会关于保障性租赁住房有关贷款不纳入房地产贷款集中度管理的通知](http://www.pbc.gov.cn/zhengwugongkai/4081330/4081344/4081395/4081686/4466262/index.html)
 
-新闻参考链接：[9 News](https://www.9news.com.au/national/elective-surgery-resumes-in-victorias-private-hospitals-as-victorias-covid19-hospitalisations-drop/8435f323-a4e2-4a7c-a02d-28b8ec2781c2)
+[【2】中国人民银行 中国银行保险监督管理委员会关于建立银行业金融机构房地产贷款集中度管理制度的通知](http://www.cbirc.gov.cn/cn/view/pages/ItemDetail.html?docId=955098&amp;itemId=928&amp;generaltype=0)
 
-*发稿：mgjxs*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
+* * *
+
+*编辑&发布：Vicky*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

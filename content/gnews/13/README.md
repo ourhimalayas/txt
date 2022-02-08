@@ -2,20 +2,14 @@
 ---
 
 
-## 中俄勾兑关系
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1973931/)
+## 五月花简报（02/07/2022）
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/1974018/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+编辑：波士顿五月花—-冲天一怒
 
-*发布：陶子*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/847D3B2C-E256-4B15-A39B-DE30596F53E5.jpeg)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+*发布：思澈*
 
  
 

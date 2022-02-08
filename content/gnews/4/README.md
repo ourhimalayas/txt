@@ -2,29 +2,22 @@
 ---
 
 
-## 疫苗灾情｜美国 20 岁女模特接种疫苗后心脏骤停 双腿截肢保命
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1974005/)
+## 北京冬奥会女子跳台项目被曝判决不公
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1974108/)
 
-**撰文/ 疫情关注组｜发布日期/ 08/02/2022**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2c82b8914a2be6279ef40e51a3db53e5.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/post/pl6k0218bf](https://gettr.com/post/pl6k0218bf)**
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-794.png)[图片来源](https://olympics.com/zh/news/exclusive-sara-takanashi-to-put-body-and-soul-into-olympic-medal)
+北京冬奥会争议不断，日本滑雪女神高梨沙罗才在跳台滑雪混合项目第一跳拿下103公尺好成绩，没想到却被判服装违规，成绩直接被取消，包括德国、奥地利、挪威等5名选手也因为服装违规遭取消成绩。
 
-美国佛罗里达州一名 20 岁的女模特 Claire Bridges 在接种完第二剂 COVID-19 疫苗后，因腿部剧烈疼痛被送入坦帕综合医院诊治，先后确诊患上心肌炎、横纹肌溶解症、肺炎、酸中毒等疾病。
+25岁的高梨沙罗在世界杯系列赛取得61冠纪录，有“滑雪女神”之称，也被视为本届奥运夺门热门，2月7日打头阵，第一跳拿下103公尺好成绩，不料还没进行第二跳，就因为大腿紧身衣“宽松2公分”被取消成绩，让高梨沙罗当场落泪，而失去这一跳成绩也让日本队掉到第4名，痛失夺牌机会。
 
-入院治疗期间，Claire 一度发生心脏骤停，虽然经心肺复甦术后，得以保命，但由于因肾脏衰竭而持续经历的透析治疗加重了她腿部的压力，血液无法正常流动，她必须切除坏死的双腿。
+包括德国、奥地利、挪威等5名选手也因为服装违规被取消成绩，被取消资格的挪威选手奥普塞特（Silje Opseth）告诉该国媒体《VG》，大会以完全不同方式测量服装，且被告知用与以往不同的方式站立。欧洲媒体《Eurosport》采访德国教练霍恩加赫（Stefan Horngacher），他表示，被取消资格的女孩们赢得许多世界杯比赛，直呼实在太扯。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/美國-20-歲女模特接種疫苗後心臟驟停-雙腿截肢保命.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/美國-20-歲女模特接種疫苗後心臟驟停-雙腿截肢保命-2.jpeg)
+消息来源：[北京冬奧爭議再起！日本滑雪女神被判失格淚崩 5人也遭取消成績](http://mirrormedia.mg/story/20220208edi036/)
 
-
-Claire 的父亲 Wayne 在 facebook 上写道：“当她看到自己失去双腿的那一刻时，Claire 笑着轻声说到『我想我需要义肢了』。”
-
-父亲续指，虽然 Claire 的康复之路还很长，但作为父亲，希望她能够继续坚强战斗，并继续做想做的事。
-
-根据最新情况显示，Claire 情况并不乐观，还有一场手术将于2 月 8 日进行，她的父亲呼吁所有有心人能为 Claire 祈祷。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/美國-20-歲女模特接種疫苗後心臟驟停-雙腿截肢保命-1.jpg)
-来源｜[WTSP](https://www.wtsp.com/article/news/local/st-pete-woman-loses-both-legs-now-another-surgery/67-1ed03bb6-e944-4cc4-a0b8-63a364d2adce)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

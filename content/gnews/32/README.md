@@ -2,30 +2,25 @@
 ---
 
 
-## 约旦探索中央银行数字货币，未来将其合法化
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1973567/)
+## 美日宣布达成钢铁关税协议 共同应对中共
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1973656/)
 
-整理/编辑：小红帽
+**撰稿：日本东京方舟农场  老孙**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-614.png)图片来源：雅典娜设计组
+2月8日美国之声报道，美日双方周一宣布达成协议，减免特朗普时期对日本进口钢材征收的关税。这项协议将允许每年大约125万吨的日本进口钢材免征关税，但必须完全由日本国内生产，才能享受免关税待遇，以减少中国钢铁绕道日本以躲避美国关税制裁的风险。该协议将在4月1日生效。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-112.jpg)（图片取自美国之声）
+美国和日本的联合声明说，日本将在六个月内开始落实国内措施，例如反倾销、反补贴关税和安全保障措施或其它等效措施，为钢铁领域创造更具市场导向的条件。
 
+美国商务部在宣布美日达成关税协议时说，这项协议是拜登总统与我们关键的盟友和伙伴加强关系，并与他们一起应对中国等国家的不公平做法。
 
-根据《COINGEEK》2月8日报道，约旦已成为最新一个宣布有兴趣开发中央银行数字货币（CBDC）的国家。据报道，该国央行一直在探索数字第纳尔的可行性。行长甚至表示，如果有适当的法规和准则，政府可能会将数字货币交易合法化。
+美国商务部长雷蒙多在声明中说：“今天的宣布建立在我们与欧盟达成的协议的基础之上，在我们抗击中国不公平的做法并为美国家庭、公司和工人营造一个更具竞争性的全球经济之际，将进一步帮助重建我们与世界各地的盟友的关系。”
 
-根据当地媒体的报道，约旦中央银行（CBJ）行长Adel Al Sharkas在最近的一次会议上透露了中央银行数字货币的计划，其中数字货币是讨论的重点。《Unblock Media》报道说，Al Sharkas宣布，约旦中央银行希望加入中共国和巴哈马这样的国家，因它们都在中央银行数字货币方面取得了重大进展。巴哈马是全球第一个推出中央银行数字货币的国家。
+参考链接：
+[https://www.voachinese.com/a/6431993.html](https://www.voachinese.com/a/6431993.html)
 
-会议由下议院经济和投资委员会组织，主要议程是数字货币在这个中东国家的未来。在这方面，行长表示，中央银行没有什么特别反对比特币的地方。相反，他完全专注于保护约旦的投资者。因此，只有当立法者发布保护投资者的法律时，才能支持数字货币交易的合法化。
-
-新闻链接：[Jordan exploring CBDC, legalizing digital currency trading in the future](https://coingeek.com/jordan-exploring-cbdc-legalizing-digital-currency-trading-in-the-future-report/)
-
-发布： tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+素材采编：老孙
+编辑：青城道姑 
+发布：爱放飞
 
  
 

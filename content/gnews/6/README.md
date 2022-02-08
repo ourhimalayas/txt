@@ -2,28 +2,47 @@
 ---
 
 
-## 日本众议院通过决议谴责俄罗斯武力入侵乌克兰的企图
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1973983/)
+## 江苏被锁八孩母亲绝非个例
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1974090/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-786.png)[图片来源](https://m.soundofhope.org/post/491057)
-日本众议院周二（2月8日）通过了一项关于乌克兰紧张局势加剧的决议，谴责俄罗斯以武力改变现状的企图，并敦促首相岸田文雄的政府尽其所能帮助乌克兰实现和平。
+作者：银河系农场—骄子
 
-目前正值俄罗斯在俄乌边界集结逾10万兵力，引发了对爆发战争的担忧。
 
-议会在决议中表示：“议会对局势深表关切，宣布其始终与希望国家和地区稳定的乌克兰人民站在一起。任何国家用武力改变现状都是不可接受的。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-2.png)
+2022年2月4日大直播中郭先生提及，近日网络热议的话题，中共国江苏省一位被多次强奸而生育了八个孩子的母亲，被锁在小黑屋里过着猪狗不如的生活。郭先生指出，此事绝非个例。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/192809.png)
+在中共暴虐统治下，没有一个中国人活得像个人样。郭先生回顾在他的老家台前县，买卖媳妇的事司空见惯。即使今日站在老家屋顶上，随处可见像江苏省八孩母亲那样被锁链锁起来的女性，一眼望去，十个八个，像狗一样被拴十几至二十年。其中生出的孩子，有些还在盘古打工。
 
-日本多名政府官员2月5日透露，如果俄罗斯军队入侵乌克兰，日本政府已经开始考虑对俄罗斯实施制裁。俄军在乌克兰边境大规模部署，紧张局势不断升级，日本计划与七国集团（G7）一致应对，外务省、经济产业省和内阁官房正在列出制裁清单。
+可悲可恨可怜的中国人，被共产党篡改了历史、蒙蔽了双眼，更被共产党毁掉了未来。既然不知道过去，还奢谈什么现在，又能看到什么未来。中国人现在无路可走，唯有灭共，才有未来。
 
-在上个月的一次线上会议中，岸田和美国总统拜登承诺共同努力阻止俄罗斯对乌克兰的侵略，首相承诺与美国和国际社会密切协调，采取有力行动应对任何攻击。据美日外交消息人士称，双方正在讨论外交路线上的制裁清单。
+参考来源：
 
-消息来源：[日本众议院通过乌克兰相关决议 谴责以武力改变现状](https://cn.reuters.com/article/japan-parliament-ukraine-resolution-0208-idCNKBS2KD0E0?il=0)
+[https://gtv.org/video/id=61fd1a6596ba5d73e0c28b83](https://gtv.org/video/id=61fd1a6596ba5d73e0c28b83)
 
-[＜独自＞日本、対露制裁を検討　ウクライナ侵攻ならＧ７で協調](https://news.yahoo.co.jp/articles/a9b8de853db60242ba728f1001d1513fc30a08e5)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-18.jpg)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+
+
+编辑：静言
+
+校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-2.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

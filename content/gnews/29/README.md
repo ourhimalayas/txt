@@ -2,10 +2,10 @@
 ---
 
 
-## 英国官方 儿童接种中共病毒疫苗死亡率超三倍
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1973614/)
+## 彭帅再次回应性侵事件并声称不再参加任何比赛
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1973674/)
 
-作者：纽约香草山 – 侠肝义胆
+作者：纽约香草山教育部 – Noemi
 
 
 
@@ -13,22 +13,21 @@
 
 
 
-据外媒2月5日报道，英国卫生安全局发布的最新数据显示，完全接种疫苗的儿童死于中共病毒的可能性是未接种疫苗儿童的3倍多。
+2月7日消息，中共国网球名将彭帅在日前接受了一家国外媒体采访。采访期间，彭帅再次声明自己从未说过有人以任何方式对自己进行过性侵犯，但在谈到具体问题时，她则拒绝详述。随后，彭帅还声称，自己因年龄、伤病等原因将不会再参加任何的网球赛事。
 
-根据相关数据，接种了中共病毒疫苗的人在接触该病毒时，与未接种疫苗的人相比，会表现出某种形式的疫苗相关强化疾病，而受这种影响最严重的年龄组是儿童。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-4.jpg)
-英国卫生安全局似乎在试图掩盖这些讯息。根据惯例，他们每周都会公布接种两针疫苗和三针疫苗的病例数、住院人数以及每10万人的发病率，但在2022年第3周的报告中，他们没有公布接种两针疫苗人群的每10万人死亡率数据。
+据了解，自彭帅在墙内公开指证张高丽曾对她进行过长期性侵犯以后，相关消息就立刻遭到了中共当局的全面封杀，彭帅的个人安全也成为了全球关注的焦点。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide12-1.jpg)
+此前，彭帅在一次采访中，就曾改口称自己与张高丽发生关系是出于自愿。但据视频资料显示，彭帅在接受采访时的神态、举止都显得极其紧张。此次，彭帅再次谈及性侵事件相关问题时，则完全引用了外媒在去年12月报道该事件的评论原文，并称不希望媒体继续炒作此事。彭帅在两次采访中极为反常的表现，都使采访内容的真实性一再遭到公众的质疑，并加深了外界对于其个人安全问题的广泛担忧。
 
-不过，英国卫生安全局在第5周报告中还是公布了两针疫苗人群的每10万人死亡率数据，媒体据此计算出，未接种疫苗的18岁以下感染者每10万人死亡率为0.01，而接种两针疫苗的18岁以下感染者每10万人死亡率为0.33 。
+郭文贵先生也在该事件发生之初就曾指出，彭帅在后续所接受的一切采访都将会是受中共当局的安排和胁迫的，一切的澄清声明都将是中共虚假的谎言。
 
 参考信息：
-1. [2/6/2022 文贵直播: 中共认俄爹是因为西方白人不愿和中共交往，中共只好以俄国是共产主义发源地为由忽悠中国人；中国老百姓心中积压的怒火使得他们一有机会就会向中共动手](https://www.gettr.com/post/pt0ef10ad5)
-2. [Official Data shows Fully Vaccinated Children are 3.3 times more likely to die of Covid-19 than Unvaccinated Children and the UKHSA is trying to hide it](https://dailyexpose.uk/2022/02/05/ukhsa-data-vaccinated-children-3x-more-likely-die-covid/)
+1. [中国网球女将彭帅现身上海城市越野滑雪赛 接受《联合早报》采访](https://www.zaobao.com.sg/realtime/china/story20211219-1224709)
+2. [Chinese tennis player Peng denies making accusation of sexual assault](https://www.reuters.com/world/china/chinese-tennis-player-peng-denies-making-accusation-sexual-assault-2022-02-07/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
 
-总编：Jack Li文阳
-编辑：飞虹
+总编/编辑：DM
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**
