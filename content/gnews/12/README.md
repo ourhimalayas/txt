@@ -2,48 +2,16 @@
 ---
 
 
-## 拜登政府上周五解除了对伊朗核计划的制裁
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1974160/)
+## 以色列承认接种疫苗者多被感染
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1974221/)
 
-作者：纽约香草山农场 – Delilah小胖
+#### 翻译/字幕：波士顿五月花 Rock小哥
 
+以色列承认接种疫苗的人很多被感染，患重症并死亡，并且数目在上升
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-2.png)
+* * *
 
-
-盖特消息，拜登政府上周五恢复了对伊朗的所谓“民用核武器”豁免，允许非美国公司在伊朗从事所谓的民用核项目，而不会遭致美国政府的报复。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Happy_Lunar_New_Year.png)
-早前川普政府在2020年5月退出了伊朗核协议，并对与伊朗开展核计划关联业务的中共、俄罗斯和欧洲公司进行制裁。
-
-对于本次拜登政府解除对伊朗的核计划制裁，前国务卿迈克·蓬佩奥先生在其周六的盖文中表示：伊朗不会给予任何回报，以色列将面临更大的风险，美国人会为此付出代价。
-
-更有分析人士指出，从实质上对支持伊朗发展核武器、不断为伊朗的核武器研发输血的中共政权进行制裁，是阻止伊朗核计划发展，以及维护世界和平的根本。
-
-参考来源：
-
-1.[https://gettr.com/post/psnk12c3a7](https://gettr.com/post/psnk12c3a7)
-
-2.[https://gettr.com/post/psnw0533b4](https://gettr.com/post/psnw0533b4)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-20.jpg)
-
-编辑/校对/发稿：兰兰
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-2.png)
-
+*编辑/发布：霹雳鼠年*
 
  
 

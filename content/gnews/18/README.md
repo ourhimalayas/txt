@@ -2,30 +2,32 @@
 ---
 
 
-## 江苏被锁八孩母亲绝非个例
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1974090/)
+## 拜登政府上周五解除了对伊朗核计划的制裁
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1974160/)
 
-作者：银河系农场—骄子
+作者：纽约香草山农场 – Delilah小胖
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/good-2.png)
-2022年2月4日大直播中郭先生提及，近日网络热议的话题，中共国江苏省一位被多次强奸而生育了八个孩子的母亲，被锁在小黑屋里过着猪狗不如的生活。郭先生指出，此事绝非个例。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/192809.png)
-在中共暴虐统治下，没有一个中国人活得像个人样。郭先生回顾在他的老家台前县，买卖媳妇的事司空见惯。即使今日站在老家屋顶上，随处可见像江苏省八孩母亲那样被锁链锁起来的女性，一眼望去，十个八个，像狗一样被拴十几至二十年。其中生出的孩子，有些还在盘古打工。
 
-可悲可恨可怜的中国人，被共产党篡改了历史、蒙蔽了双眼，更被共产党毁掉了未来。既然不知道过去，还奢谈什么现在，又能看到什么未来。中国人现在无路可走，唯有灭共，才有未来。
+
+盖特消息，拜登政府上周五恢复了对伊朗的所谓“民用核武器”豁免，允许非美国公司在伊朗从事所谓的民用核项目，而不会遭致美国政府的报复。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Happy_Lunar_New_Year.png)
+早前川普政府在2020年5月退出了伊朗核协议，并对与伊朗开展核计划关联业务的中共、俄罗斯和欧洲公司进行制裁。
+
+对于本次拜登政府解除对伊朗的核计划制裁，前国务卿迈克·蓬佩奥先生在其周六的盖文中表示：伊朗不会给予任何回报，以色列将面临更大的风险，美国人会为此付出代价。
+
+更有分析人士指出，从实质上对支持伊朗发展核武器、不断为伊朗的核武器研发输血的中共政权进行制裁，是阻止伊朗核计划发展，以及维护世界和平的根本。
 
 参考来源：
 
-[https://gtv.org/video/id=61fd1a6596ba5d73e0c28b83](https://gtv.org/video/id=61fd1a6596ba5d73e0c28b83)
+1.[https://gettr.com/post/psnk12c3a7](https://gettr.com/post/psnk12c3a7)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-18.jpg)
+2.[https://gettr.com/post/psnw0533b4](https://gettr.com/post/psnw0533b4)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-20.jpg)
 
-
-编辑：静言
-
-校对/发稿：兰兰
+编辑/校对/发稿：兰兰
 
 **更多资讯，更多关注**
 

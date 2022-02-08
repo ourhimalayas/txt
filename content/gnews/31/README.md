@@ -2,36 +2,40 @@
 ---
 
 
-## 18岁女孩接种强生疫苗后，出现脑出血和血栓
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1973970/)
+## 短视频：伊维菌素、青蒿素、绝对能铲除疫苗
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1974030/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+翻译：Julia Gao
+校对：精靈藍
+剪辑字幕：清净
+编辑：文泓
 
-整理/编辑：小鱼儿
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-614.png)图片来源：雅典娜设计组
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/2-1-2.png)图片来源：视频截屏
 
 
-（新闻战争/infowars）当地时间 2 月 7 日，据美国前线医生制作的一部迷你纪录片：一名 18 岁的健康高中生，在接种了一剂强生公司的新冠疫苗后，现在只能坐在轮椅上。
+我说世界在三到五年内得癌症的（因疫苗的）和因疫苗死亡的，对人类的影响绝对就像当年恐龙灭绝时候那么大，这不是开半点玩笑的。
 
-去年六月，艾玛·伯基 (Emma Burkey) 正要和妈妈一起去夏威夷旅行——庆祝她的高中毕业——但这时她出现疫苗副作用。
+兄弟姐妹们，可以再次重申，你没有打疫苗有多么的伟大，绝对是你自己一生中最正确的决定。
 
-艾玛说：“三月份，我接种了强生疫苗。因为我在托儿所做志愿者，而且我还照看孩子，我不想让婴儿处于危险之中。”
+When I say that the COVID vaccines will result in cancer and death worldwide within three to five years, its impact on humanity will be as great as the extinction of the dinosaurs. This is not a joke at all.
 
-但接种后，很快，她开始发烧和呕吐——据说医生认为，这是正常现象。
+Fellow brothers and sisters, I would like to reiterate again how great it is that you are not vaccinated.
 
-4 月 2 日，艾玛说她头痛得很厉害，“感觉我的头在颤抖”。艾玛接下来开始出现不能控制的颈部晃动和吐血的状况。
+You have certainly made the best decision of your life.
 
-随后她被送往医院，急救人员认为她癫痫发作。但医生后来得知：她因中风而出现脑部出血。经历三次脑部手术、四次中风、插管和气管切开术，艾玛奇迹般地活下来，并在父母的帮助下，慢慢重新学习如何走路。
+即使打了两针，你吃青蒿素、伊维菌素一定会帮你干掉（疫苗病毒）；
 
-艾玛说：“强生疫苗引起我的脑出血和血栓。如果我知道这可能发生在我身上，我就不会接种，”并补充道，“他们(强生公司）希望人们继续（接种疫苗）。”
+伊维菌素现在能证明，真的几乎是百分之百的管用，只是管用到什么程度；
 
-现在，她的家人面临着帮助艾玛应对新的痛苦，并面临支付她不断增加的、医疗费用的挑战。
+青蒿素百分之百管用，只要吃对药，伊维菌素、青蒿素绝对能铲除疫苗，一定要传播，而且绝对能救你的命。
 
-参考新闻：[Healthy 18-Year-Old Girl Wheelchair-Bound After Devastating J&J Vaccine Injury](https://www.infowars.com/posts/healthy-18-year-old-girl-wheelchair-bound-after-devastating-jj-vaccine-injury/)
+Even though some people have been double-vaccinated, artemisinin and ivermectin will help to kill the poisonous substances stored in your body after the vaccination.
 
-发布：tianzhihuan
+It has now been proved that ivermectin is almost 100 percent effective in dealing with the symptoms caused by the vaccines, however differing in its levels of effectiveness depending on the severity of the symptoms. Artemisinin works to treat people with vaccines 100 percent of the time, if you take the right medicine. Both ivermectin and artemisinin can eradicate the poisonous effects of the vaccines, and this information must be spread widely as it can save people’s life.
 
+视频链接：郭先生GTV盖特直播
+
+发布：文泓
 更多资讯，请关注：**
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena

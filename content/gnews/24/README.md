@@ -2,29 +2,46 @@
 ---
 
 
-## 拜登和德国总理在白宫会面
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1974048/)
+## 江苏被锁八孩母亲绝非个例
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1974090/)
 
-信息来源： 德国世界报
-
-翻译/整理： 意大利罗马达芬奇农场 Shuizhuyu
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0045.jpg)
+作者：银河系农场—骄子
 
 
-图片来源： 视频截图
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-2.png)
+2022年2月4日大直播中郭先生提及，近日网络热议的话题，中共国江苏省一位被多次强奸而生育了八个孩子的母亲，被锁在小黑屋里过着猪狗不如的生活。郭先生指出，此事绝非个例。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/192809.png)
+在中共暴虐统治下，没有一个中国人活得像个人样。郭先生回顾在他的老家台前县，买卖媳妇的事司空见惯。即使今日站在老家屋顶上，随处可见像江苏省八孩母亲那样被锁链锁起来的女性，一眼望去，十个八个，像狗一样被拴十几至二十年。其中生出的孩子，有些还在盘古打工。
 
-德国总理舒尔茨在对美国的首次访问中明确表示，俄罗斯在乌克兰冲突中的进一步升级将付出“非常、非常高的代价”。 “如果有军事侵略，就会有严厉、普遍、全面的制裁。”舒尔茨补充说：“我认为这个信息已经传到了俄罗斯。”
+可悲可恨可怜的中国人，被共产党篡改了历史、蒙蔽了双眼，更被共产党毁掉了未来。既然不知道过去，还奢谈什么现在，又能看到什么未来。中国人现在无路可走，唯有灭共，才有未来。
 
-美国总统乔·拜登最初表达了更加谨慎的态度。他说，舒尔茨和他一致认为，外交是解决俄乌冲突的最佳途径。
+参考来源：
 
-但是：美国总统随后强调，入侵乌克兰也将意味着北溪二期的终结。 “我们将结束它。我向你保证，在这种情况下会发生这种情况，”拜登在被问及美国打算如何确保这一点时强调。舒尔茨补充说，他们将“共同行动”，但在被问到时拒绝再次重复具体措施和威胁。
+[https://gtv.org/video/id=61fd1a6596ba5d73e0c28b83](https://gtv.org/video/id=61fd1a6596ba5d73e0c28b83)
 
-总的来说，拜登谈到了与舒尔茨的“非常富有成效的对话”，德国是“绝对可靠的伙伴”，他对此毫不怀疑。在谈话中也很快清楚地表明，两人在领导力和价值观方面都有非常相似的方法。拜登特别提到了尊重他人的价值。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-18.jpg)
 
-🔗[拜登和德国总理在白宫会面](https://www.welt.de/politik/ausland/article236749309/Scholz-in-Washington-Bei-russischem-Einmarsch-Ende-von-Nord-Stream-2-droht-Biden.html)
 
-编辑发布： Shuizhuyu
+
+编辑：静言
+
+校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-2.png)
+
 
  
 
