@@ -2,32 +2,18 @@
 ---
 
 
-## 巴布亚新几内亚总理在北京感染新冠
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1973209/)
+## 雅典娜时报-第198期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1973231/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
+#### **《雅典娜时报》汇聚全球新闻时事**
 
-**整理报道：**小熊
-**编辑：**翼族
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/753dfc4102384ac7a2fc9fae2c52c331.jpg)CGTN
-
-
-巴布亚新几内亚总理詹姆斯·马拉佩（James Marape）出席北京冬奥会开幕式期间中共病毒（COVID-19）检测呈阳性，将无法参加接下来在法国举行的印度与太平洋峰会。
-
-巴布亚新几内亚总理办公室说，马拉佩总理上周四赴北京参加冬奥会开幕式，抵京后检测出阳性，赴法国参加印度与太平洋峰会的行程也被取消。
-
-马拉佩总理原定从北京前往法国西北部，出席2月9日至11日的海洋峰会，该峰会在联合国协助下由法国出任欧盟理事会主席。而上周更早的时间，马拉佩总理办公室曾表示，原定计划里还有一个马拉佩总理与法国总统马克龙先生的会面安排。
-
-“因疫情旅行禁令，马拉佩总理将取消前往法国的行程，原因是上周四晚总理被测试出阳性。”总理办公室在其脸书上声明。
-
-办公室说，马拉佩总理于上周日返回巴布亚新几内亚，进一步细节未予披露。
-
-巴布亚新几内亚新冠疫情控制中心网站有一则声明说，为预防新冠病毒，早在1月24日马拉佩总理已接种过新冠疫苗。
-
-**新闻链接**：[PNG PM James Marape gets COVID-19 in Beijing, cancels attendance for Indo-Pacific summit](https://www.sbs.com.au/news/png-pm-james-marape-gets-covid-19-in-beijing-cancels-attendance-for-indo-pacific-summit/376907ab-943e-4368-aa3d-85256615f84e)
-
-*发布：翼族*
+#### 编辑：精灵蓝
+排版：小蚂蚁614
+![Hpay建立新的金融标准
+邪恶将被消灭
+暖心的一首歌
+共产党对美国的关系（一）](https://media.discordapp.net/attachments/825592691433668612/940442964575002676/155.png?width=818&amp;height=1218)![圖片](https://media.discordapp.net/attachments/825592691433668612/940442964969275422/155_1.png?width=818&amp;height=1218)
+*发布：陶子*
 
 **更多资讯，请关注：
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
