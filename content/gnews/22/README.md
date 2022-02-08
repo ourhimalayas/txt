@@ -2,42 +2,43 @@
 ---
 
 
-## FB再降5% 现在称之为元空间也无济于事
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1976461/)
+## 特鲁多恶意坚持结束卡车司机的自由抗议活动
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1976514/)
 
-编译： Jenny Ball
+翻译：不要代表我Kari
+编辑/校对：Candy
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unknown-2.jpg)图片来源：creativedestructionmedia.com
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/土豆.png)图片来源：thepostmillennial.com
 
-我们经常写到，在过去的几年里，看着大型科技硅谷真的在摧毁它的客户群是多么令人惊奇。Facebook、Twitter、谷歌、LinkedIn 等都进行了全面的共产主义审查，这实际上迫使一半的国家离开他们的平台，永远不会回来。
 
-现在，“我的空间”MySpace 的小鸡要回家栖息了。
+**特鲁多说：“渥太华和全国人民应该得到他们的安全和尊重，应该恢复他们的正常生活。”**
 
-上周五，Facebook（现在叫做元空间 ）承认不可避免，并报告其在美国的用户群在第四季度下降了 100 万。该公司的大部分广告收入来自北美。
+总理贾斯汀·特鲁多（Justin Trudeau）在远离聚光灯数日后公开露面，因为抗议者们坚持要求结束联邦政府强制疫苗，渥太华仍然出于僵局状态。
 
-周五收盘后，该股下跌了约 23%。
+周一早些时候，新民主党领袖贾格米特·辛格（Jagmeet Singh）召集紧急会议，总理在这个紧急辩论中讲到：
 
-另一点，美国人需要明白的是，这些平台，虽然最初是为了帮助生活方便，连接他人。但现在无非是监视和审查，与中共杀手一起摧毁我们的国家。
+“一小撮人正试图封锁我们的经济、我们的民主、和我们同胞的日常生活——这必须停止。渥太华人民不应该在他们自己的社区受到骚扰，不应该面对街角的有暴力特征的纳粹标志或联盟旗帜，或者仅仅因为他们佩戴国旗而受到侮辱和嘲笑。这不是加拿大或加拿大人，这不是加拿大人在过去两年里所诠释的那样。”
 
-尽管据报道 Meta 第四季度的收入仍然强劲，但华尔街最密切关注的是增长，这家前身为 Facebook (FB) 的公司现在已经超越了鲨鱼“我的空间”。
+特鲁多说：“渥太华和全国各地的人民应该得到应有的安全和尊重，应该恢复他们正常的生活。”
 
-Facebook 被指控为面部识别，收集面部数据，促进恋童癖和人口贩卖，以及医疗暴政。
+总理此前曾将抗议民众称为“边缘少数群体”，他说：“在前往渥太华途中的少数边缘群体所持的观点是不可接受的，并不代表加拿大人的观点。 每个人都知道遵循科学，并加强对彼此保护，是继续确保我们作为一个国家的自由、权利和价值观的最佳方式。”
 
-现在，用户正在删除他们的个人资料，并转移到无数其他可行平台的运动正在发展。
+特鲁多此前还称那些反对当局疫苗强制令的人，是性别歧视者和种族主义者；称“作为领导人，作为一个国家，我们必须做出选择。我们是否继续容忍这些人？因为超过 80% 的人已经尽了他们的义务接种了疫苗。”
 
-今天FB又下跌了5%。
+布莱恩·利利（Brian Lilley)发推：“就此次会议外抗议活动的紧急辩论中，总理特鲁多根本没有试图平息局势。他和他的部长们在火上浇油，把所有抗议他的政府的和平示威者，都打成了种族主义者和纳粹。”
 
-**评论：我相信一定有上天在看着世间的一切，facebook用中文音译翻译就是“非死不可”，新名称Meta更惨，翻译为“ 没它  ”，天注定这些为共产主义审核并摧毁自由民主信仰大爱的大型科技不会在文明社会生存，“没它”更好！**
+\*备注：confederate flag在美国通常被称为联盟旗（The Confederate Flag），有时又被称作反叛旗（Rebel Flag）或迪克西旗（Dixie Flag）
 
-**参考资料：**[CD media][FB Down Another 5% — Let’s Call It MetaSpace From Now On](https://creativedestructionmedia.com/news/business/2022/02/07/fb-down-another-5-lets-call-it-metaspace-from-now-on/)
+原文链接：[https://thepostmillennial.com/breaking-trudeau-doubles-down-on-division-in-response-to-truckers-freedom-protests](https://thepostmillennial.com/breaking-trudeau-doubles-down-on-division-in-response-to-truckers-freedom-protests)
 
-* * *
+***发布：Candy***
 
-*审核：文乐
-校对：信心满满
-发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH..jpeg)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,57 +2,67 @@
 ---
 
 
-## 杰夫-扎克的传奇：CNN老板的爆炸性闪辞
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1976724/)
+## 自由党议员称政府“妖魔化”加拿大人
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1976764/)
 
-**评论：***MSNBC对CNN的丑闻选择性忽视，这是“主流”媒体之间沆瀣一气、相互勾结的真实体现。*
+作者： The Canadian Press
+翻译：KK
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-81.png)
+一名联邦自由党的国会议员今天公开批驳杜鲁多政府在疫情问题上的态度和做法。
 
-据《福克斯新闻》作者：[Joseph A. Wulfsohn](https://www.foxnews.com/person/w/joseph-a-wulfsohn)，2022年2月3日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-839-e1644357623208.png)前CNN全球总裁杰夫-扎克出席了第13届CNN英雄年会。2019年12月8日，在纽约市的美国自然历史博物馆。(照片：ANGELA WEISS/AFP via Getty Images）（ANGELA WEISS/AFP via Getty Images）
-MSNBC对困扰其主要竞争对手CNN的丑闻视而不见。
+魁北克议员Joël Lightbound表示，政府是时候停止在COVID-19大流行问题上分裂加拿大人了。他告诉记者，杜鲁多领导的政府继续“妖魔化”那些对大流行管理方式提出正当批评的人。
 
-CNN总裁杰夫-扎克周三宣布他立即向员工辞职，震惊了媒体界。
+Lightbound说杜鲁多领导的自由党政府制定了分裂的基调和政策，有可能破坏公众信任。
 
-“作为对克里斯-库莫在CNN任职期间的调查的一部分，我被问及与我最亲密的同事，一个与我共事超过20年的人的自愿关系。我承认这种关系在最近几年有所发展。当它开始时，我被要求披露它，但我没有。我错了。因此，我今天要辞职。”扎克写道。
+“我听到很多人在问，为什么就在一年前，我们还团结在一起。现在我们是世界上接种疫苗最多的人群之一，我们从未如此分裂过。”
 
-CNN的媒体记者Brian Stelter承认，扎克的同事是CNN的首席营销官Allison Gollust，他将继续留在公司工作。
+他说，政府必须为加拿大人提供一个明确和可衡量的路线图，详细说明何时取消与大流行有关的联邦限制。
 
-“我是2013年1月28日来到CNN的。我们一起度过了九年的美好时光。我当然希望我在这里的任期能以不同方式结束。但这是一个令人惊叹的决定。我喜欢每一分钟。”扎克继续说。“我感谢数以千计才华横溢的CNN和特纳体育的员工，他们帮助我实现了这样的快乐，并使我们所有人取得了这样的成功。我祝愿你们每个人在未来的日子里都能取得最好的成绩。”
+他说：“我不认为应该取消所有措施，但我们必须有一个明确和可衡量的基准，来确定何时取消措施。
 
-然而，根据Grabien的记录，MSNBC避免了对扎克下台的任何突发新闻报道，此后数小时内对CNN丑闻的报道为零。
+Lightbound代表魁北克市Louis-Hébert选区，他在自由党内阁会议计划召开的同时对记者发表了讲话。就在一天前，议员们针对国会大厦外的卡车司机抗议活动举行了紧急辩论。
 
-甚至CNN本身也对自己的丑闻进行了比MSNBC更多的报道，其媒体记者Brian Stelter多次出面向观众介绍他的前老板。
+Lightbound谴责了抗议中的仇恨符号，但他指责政府对所有抗议者一概而论，不愿调整政策，以反映疫情科学的演变。
 
-然而，NBC新闻确实在其网站以及周三晚间的“NBC晚间新闻”节目中报道了扎克的辞职。
+他说，卡车司机必须接种疫苗，这一政策“违反了世卫组织(WTO)最近的建议，而且从流行病学的角度来看，我们对这一建议没有具体的数据。”
 
-福克斯新闻与MSNBC联系，询问主播和主持人是否被指示不要提及扎克的辞职。MSNBC没有回应这一评论请求。
+他说：“世卫组织最近建议取消许多边境措施，包括疫苗要求，因为这些措施已被证明在对抗Omicron变种的传播方面是无效的。”
 
-值得注意的是，扎克之前作为NBC环球公司的总裁兼首席执行官监督MSNBC，直到他在该公司工作了24年后于2010年离职。
+**疫苗接种率较低的国家取消了所有限制**
 
-MSNBC此前推迟了对困扰CNN前主播克里斯-库莫(Chris Cuomo)的争议的报道，去年好几天都在回避他被停职的问题，只是对他被解雇一事进行了突发新闻报道。
+他说，加拿大人感到困惑的是，其他疫苗接种率较低的国家取消了所有限制，比如冰岛和西班牙，并补充说，居民们不知道加拿大的未来。
 
-全国领先的性别公正组织UltraViolet呼吁CNN立即解雇Chris Cuomo。(CNN)
+Lightbound说：“人们担心，那些本应是特殊的、时间有限的措施正在被正常化，没有尽头，比如疫苗护照、对旅行者的命令和要求。”
 
-CNN和MSNBC之间似乎有某种条约，关于这两个自由派的竞争对手对另一个网络发生的戏剧性事件视而不见。
+“他们很担心，因为他们觉得越来越难知道公共卫生的起点和政治的起点。”
 
-在资深电视制作人雪莉-罗斯(Shelley Ross)出面声称CNN主播2005年在ABC新闻工作时对她进行了性骚扰后，MSNBC此前对克里斯-库莫本人面临的性骚扰指控置之不理。MSNBC也避免了CNN的首席法律分析员和Zoom masturbation明星Jeffrey Toobin的尴尬回归。作为回报，CNN几乎从不报道MSNBC的争议和离奇的评论。
+杜鲁多在周二晚告诉记者，他的政府和全国其他地方实施的限制已经奏效。
 
-MSNBC同样推迟了对困扰“观点”节目共同主持人乌比-戈德堡（Whoopi Goldberg）的争议的任何提及，后者因其对大屠杀的评论而被ABC新闻网停播两周。
+杜鲁多说：“本届政府的每一步都专注于遵循最好的科学，遵循最好的公共卫生建议，以尽可能保持安全。”
 
-在周一和周二完全回避这个话题之后，MSNBC终于在周三上午处理了戈德堡的评论，对这位自由派电视人进行了同情性的报道。
+我们发现加拿大的曲线比其他地方要低。我们看到了更低的死亡率，我们看到了更快的经济复苏，因为加拿大人加快了步伐，因为加拿大人接种了疫苗。我可以理解对疫苗令的失望，但这是避免进一步限制或不得不限制的途径。”
 
-文章来源: [https://www.foxnews.com/media/cnn-jeff-zucker-resignation-https://www.foxnews.com/media/cnn-jeff-zucker-resignation-msnbc-coverage](https://www.foxnews.com/media/cnn-jeff-zucker-resignation-msnbc-coverage)
+政府首席党鞭Steven MacKinnon告诉记者，他将在晚些时候与Lightbound会面。
 
-翻译：洛杉矶盘古农场 – Mike Li
-校对：洛杉矶盘古农场 – 轰炸机
-评论：洛杉矶盘古农场 –轰炸机
-编辑：洛杉矶盘古农场 –柯镇恶
+Lightbound则表示，他不打算离开自由党，并且仍然希望政府会改变其做法。
 
+来源：https://nationalpost.com/pmn/news-pmn/canada-news-pmn/liberal-mp-breaks-ranks-party-on-covid-19-says-government-demonizes-canadians
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+（文章仅代表作者个人观点）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

@@ -2,41 +2,47 @@
 ---
 
 
-## 加拿大“自由”卡车司机疫苗强制令抗议车队可能打破世界纪录
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1976759/)
+## 多伦多发生大规模停电，大量社区受到影响
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1976821/)
 
-**• 贾斯汀·特鲁多（Justin Trudeau）称抗议者为“边缘少数”。**
+作者： Patrick John Gilson
+翻译：KK
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-129.jpg)
+周二早上，多伦多发生大规模停电事件，导致数百名居民处于寒冷和黑暗中，预计问题将持续到下午。
 
-**据《福克斯新闻》记者：Emma Colton, 报道：**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3427-a7x16-do3qr-9.jpg)
-2022年1月26日，星期三，卡车和车辆游行穿过安大略省桑德贝（Thunder Bay）外的卡卡贝卡瀑布（Kakabeka Falls）。支持者对跨境卡车抗议者欢呼雀跃。图片来源：加拿大新闻社记者大卫·杰克逊（David Jackson ）通过美联社刊发
+据Toronto Hydro称，停电事件影响了Spadina东至Mount Pleasant和Eglinton南至Bloor边界内的社区。
 
-加拿大的卡车司机正在抗议对他们行业的疫苗强制令，他们的车队可能会打破世界纪录。
+工作人员正在现场调查此事，据说这是由地下电缆故障引起的。
 
-自由车队2022（Freedom Convoy 2022）的发言人本杰明·迪希特 (Benjamin Dichter) 告诉《多伦多太阳报》，“车队有 70 公里长，我看过从飞机上拍的短片。令人印象深刻。”
+Toronto Hydro网站每10分钟更新一次，显示停电事件于2月8日星期二凌晨12:19 左右开始，预计将持续到下午12:30。
 
-自由车队（Freedom Convoy）周日从温哥华出发前往渥太华，抗议联邦政府对跨境卡车司机实施疫苗强制令，该命令于1月15日生效。加拿大卡车运输联盟（Canadian Trucking Alliance）估计，该国大约15%的卡车司机没有完全接种疫苗，大约16,000名卡车司机。
+Toronto Hydro说，粗略估计有501到1,000名客户受到停电的影响。
 
-《吉尼斯世界纪录》显示，最长的车队记录发生在2020年的埃及，长达近5英里。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/sdf.png)
-2022年1月25日，家人、朋友和邻居聚集在加拿大萨斯喀彻温省（Saskatchewan）格伦费尔（Grenfell）横贯加拿大的高速公路边，表达对自由车队的支持。图片来源：马克·迪姆勒（Mark Dimler）通过路透社刊发
+Toronto Hydro在推文中写道：我们按米来计算客户，我们的停电地图将一米计为一个客户。我们知道停电可能会影响比地图上显示的更多的居民。
 
-车队计划周六前抵达渥太华进行抗议。
+受影响的居民被告知要为停电时间延长到下午做准备，以便工作人员有时间解决问题。
 
-加拿大总理贾斯汀·特鲁多（Justin Trudeau）表示，“抗议的参与者是一小部分正在前往渥太华的边缘少数群体，他们持有不可接受的观点。”
+一些顾客已经八小时没有取暖了，并表示担心更寒冷天气。
 
-他继续补充：“我们完全不能接受这个车队某些人士所表达的信息。”
+电力公司发言人回应说，我们知道没有电很难，尤其是在寒冷的天气里，我们非常感谢您一直以来的耐心。请放心，工作人员正在尽可能快速和安全地抢修。
 
-**文章来源：**[https://www.foxnews.com/world/freedom-truckers-convoy-records-protest-vaccine-mandate-canada](https://www.foxnews.com/world/freedom-truckers-convoy-records-protest-vaccine-mandate-canada)
+截至下午2点，Toronto Hydro在推文中写道，大部分客户已经恢复供电，工作人员还在继续抢修，感谢大家的耐心。
 
-翻译：洛杉矶盘古农场 – WH
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 –彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+来源：https://www.narcity.com/toronto/a-massive-power-outage-is-happening-in-toronto-loads-of-neighbourhoods-are-affected
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

@@ -2,33 +2,25 @@
 ---
 
 
-## 多伦多发生大规模停电，大量社区受到影响
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1976821/)
+## 安大略省财政监督机构预测预算赤字会减少
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1976870/)
 
-作者： Patrick John Gilson
+作者： The Canadian Press
 翻译：KK
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-129.jpg)
-周二早上，多伦多发生大规模停电事件，导致数百名居民处于寒冷和黑暗中，预计问题将持续到下午。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-130.jpg)
+安省财政监管机构预测，由于收入增长强劲，与安省政府预算中预测相比，未来几年安省的预算赤字会大幅减少。
 
-据Toronto Hydro称，停电事件影响了Spadina东至Mount Pleasant和Eglinton南至Bloor边界内的社区。
+据报道，安省财务问责办公室最新发表的报告显示，预计到2023-24财政年末，安省的赤字会从本财政年度的160亿元大幅降低到28亿元。
 
-工作人员正在现场调查此事，据说这是由地下电缆故障引起的。
+相比之下，省府预测的同期预算赤字为114亿元。
 
-Toronto Hydro网站每10分钟更新一次，显示停电事件于2月8日星期二凌晨12:19 左右开始，预计将持续到下午12:30。
+监管机构报告还预测，到2023-24财政年度，安省收入会比省府计划中的总金额高出76亿元。
 
-Toronto Hydro说，粗略估计有501到1,000名客户受到停电的影响。
+该报告对截至2024财政年度的支出预测与安省政府的支出预测相近，报告强调了省府计划中的资金短缺将可以利用“大量未分配资金”来弥补。
 
-Toronto Hydro在推文中写道：我们按米来计算客户，我们的停电地图将一米计为一个客户。我们知道停电可能会影响比地图上显示的更多的居民。
+财务问责办公室的报告是在安省政府选举年预算之前发布的，该预算预计将在下个月底之前发布。
 
-受影响的居民被告知要为停电时间延长到下午做准备，以便工作人员有时间解决问题。
-
-一些顾客已经八小时没有取暖了，并表示担心更寒冷天气。
-
-电力公司发言人回应说，我们知道没有电很难，尤其是在寒冷的天气里，我们非常感谢您一直以来的耐心。请放心，工作人员正在尽可能快速和安全地抢修。
-
-截至下午2点，Toronto Hydro在推文中写道，大部分客户已经恢复供电，工作人员还在继续抢修，感谢大家的耐心。
-
-来源：https://www.narcity.com/toronto/a-massive-power-outage-is-happening-in-toronto-loads-of-neighbourhoods-are-affected
+来源：https://www.cp24.com/news/ontario-fiscal-watchdog-projects-smaller-budget-deficits-than-government-1.5772336
 
 **免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 ![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
