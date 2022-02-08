@@ -2,50 +2,23 @@
 ---
 
 
-## 以色列取消大部分疫苗通行证要求
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1973574/)
+## 路易斯华夏二月三日的谈话
+` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/1973621/)
 
-作者：纽约香草山农场 – 宁文静
+署名：路易斯华夏
 
+整理：德国纽伦堡正义农场 文华
 
+二月三日GTV文峰和John的直播结束前谈到战友们要团结，怎么样提高做人的素质。他们敢面对目前战友们普遍存在的问题，我很赞赏。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+七哥在直播中经常感慨地谈到怎么样做人做事，但战友们在公共舆论上反响甚微。我们从墙内出来的，多少留点余毒，在爆料革命中我们也经历了很多，从东京爆协到路大头等丑陋之事，他们相同之处就是为了利益什么事都敢做，尤其是大头，见到七哥唯唯诺诺，对战友高傲、利用、没有真爱。
 
+我们要基于团结，互爱的原则，要大谈特谈。战友们在工作中相互碰到矛盾一定要用高档处理的方式。例如在工作中有分歧要真诚的沟通，如还不行请示上级，再说旁观者清。如上级认同甲方的想法，乙方要乐意的去配合做，甲方感谢乙方的配合。如经过实践不妥，还是采用乙方想法去做，那时甲方要向乙方表示歉意，乙方要真诚，谦虚的理解。中档，就是采取相互回避，面和心不和。低档，就是面上就不和，甚至翻脸。我们要在各农场打造这高档的氛围，要打造成就像我过去刚到法国，坐地铁在车厢里老外基本上都在看书，我们大声说话，老外那惊讶的眼神，使我马上感到我们好像是另类一样。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-781.png)
+七哥为战友们打造的平台在世上五大组织七大机构之上，经济上由于七哥的大爱战友们没有后顾之忧，再说七哥就在我们身边示范大师的风范，他创导的唯真不破是战友们的生命，我们没有理由做不到。
 
-
-2月4日，国外媒体报道，作为疫苗接种先锋的以色列，几乎取消了疫苗通行证在普通人群和场所的所有使用。这个政策还是在高感染率、高死亡率的背景下作出的根本改变。
-
-从2月7日开始，以色列人在进入酒店、餐馆、剧院和健身房等场所时，不再需要出示疫苗接种证明。但所谓的“高风险”活动，如婚礼和聚会，仍然需要证明。以色列政府还将继续保持一些限制措施，包括戴口罩，以及未接种疫苗者在“教育机构”每48小时提供一次阴性测试证明等。另外，没有接种疫苗的人士也可以从以色列登机，不再需要进行中共病毒测试，只要目的地国家不要求阴性证明即可。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-3.jpg)
-媒体称，这是一个戏剧性的变化，证明了疫情应对措施和政策的全面改变。以色列是世界上加强针，甚至第四针接种率最高的国家。然而，在1月底，中共病毒感染率、死亡率创下历史最高。流行病学家纳达夫·戴维维奇是为政府提供建议的专家小组成员，他说形势在变化，疫苗通行证政策的转变具有现实意义。
-
-参考信息：
-1. [Israel Green Pass Goes Away, Easing Covid Restrictions Despite a Rise in Infections](https://trialsitenews.com/israel-green-pass-goes-away-easing-covid-restrictions-despite-a-rise-in-infections/)
-2. [Vaccine passport pioneer Israel to curb use of ‘green pass’](https://www.straitstimes.com/world/middle-east/vaccine-passport-pioneer-israel-to-curb-use-of-green-pass)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+发稿：德国纽伦堡正义农场 何乐而为
+![](https://assets.gnews.org/wp-content/uploads/2022/02/农场二维码.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

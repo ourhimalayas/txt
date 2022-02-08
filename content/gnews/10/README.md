@@ -2,34 +2,46 @@
 ---
 
 
-## 美国呼吁中共尽快兑现贸易协议承诺
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1973575/)
+## 联合国秘书长盼北京允人权特使访新疆
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1973650/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+作者：台湾宝岛农场 – 阿尔道夫
 
-整理：Eileen（围剿维尼熊）
-编辑：朝花夕拾
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-614.png)
-根据经济日报2月7日报道：路透社报道，美国官员周一呼吁中共国兑现川普时期签署的“第一阶段”贸易协议—“于2020和2021年加码购买2000亿美元美国商品和服务”的承诺。
 
-美国官员表示，华盛顿对北京正逐渐失去耐性，北京近几个月并未展现有意缩减前两年采购差额的迹象。
 
-有分析师估计，美国即将发布的全年贸易数据会显示中共国在增加采购美国农产品、工业制品、能源和服务上，与中共所承诺有巨大落差。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-根据彼得森国际经济研究所（PIIE）研究员Chad Bown汇整的贸易数据，截至11月，中共仅达成约60%的目标。
 
-另外美方表示会就协议约定继续向中共国施压。
 
-参考链接：https://udn.com/news/story/6813/6080830?from=udn\_ch2\_menu\_v2\_main\_cate
+2月6日，联合国秘书长古特瑞斯在冬奥期间与中共主席习近平和外交部长王毅会面时提出，期望中共允许联合国人权事务高级专员巴舍莱进入新疆，调查维吾尔人遭虐待的指控，对中共进行可信的访问，包括在新疆停留。
 
-*发布：tianzhihuan*
+据悉，巴舍莱曾多次表达过希望进入新疆访问、追查真相的愿望，但一直遭到但中共的拒绝。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide11-2.jpg)
+参考信息：
+1. [聯合國秘書長：盼北京允人權特使訪新疆](https://udn.com/news/story/6809/6078603?from=udn-catebreaknews_ch2)
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

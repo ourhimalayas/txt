@@ -2,37 +2,32 @@
 ---
 
 
-## 有声|新中国联邦2022年的工作重点
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1973350/)
+## 郭文贵精品视频-2022年新中国联邦的战友们要谨记的《郭七条》
+` cindy` [轉載自GNews](https://gnews.org/zh-hans/1973442/)
 
-配音：香草山巡管部 – 格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-2月6日，郭文贵先生在大直播中强调，在2022年，新中国联邦建设的重点工作：
+撰稿：澳喜cindy
 
-首先，不开展任何新项目，把现有项目完成好。过去两年，因爆料革命需要发展起来的项目，今年要做到影响无限大，避免项目多到烂，以及避免无限扩张而导致灾难。
+1，一心一意灭共。
 
-第二，要让更多中共国内的人参与爆料革命。除了加大直播等宣传力度，还要让中共国内的军界、情报界、企业界、音乐界等人士，参与爆料革命，得到喜币、躺平币。
+2，全力以赴扩大新中国联邦，被国际各个国家主权认可度。
 
-第三，做好G-EDU，中国人未来的希望是教育。会提供大量的币，吸引原新东方教育的中国老师加入GEDU，能够得到原来1.5倍工资。
+3，全力以赴建设更多的新农场。
 
-第四，继续以歌灭共，唱尽共产党的歌，让共产党无歌可唱。
+4，把国内更多的战友救出来，同时让更多的中国人知道新中国联邦。
 
-最后，郭先生特别强调，中共病毒疫苗灾难改变世界，政治经济大重启势不可挡。新中国联邦最重要的目的就是灭共，最重要的价值就是阻止在灭共过程中发生排华。
+5，让新中国联邦战友在G系列财富增值，有更多的投资机会。
 
-文字版原文：[新中国联邦2022年的工作重点](https://gnews.org/zh-hans/1970994/)
+6，联合全世界爱好正义的人，让受疫苗伤害的人找到病毒真相，找到毒疫苗的解决办法，让更多的人和我们联合在一起。让遭经济威胁和超限战伤害的人团结在新中国联邦真相媒体中 。
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+7，全体战友统一作战目标统一行动，“保命保财报仇”共同渡过至暗时代。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+全球的新中国联邦的战友们，让我们坚定信念，牢记郭先生的战略部署。为了全世界的人民安宁与和平作出贡献。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+*编辑：cindy*
+
+【[澳喜文章1](https://gnews.org/zh-hans/author/aujenny/)】
+【[澳喜文章2](https://gnews.org/zh-hans/author/himalaya-australia/)】
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

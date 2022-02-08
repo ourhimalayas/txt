@@ -15,134 +15,134 @@
 
 ---
 
-### [美司法部起诉中国海能达公司窃摩托罗拉无线电技术](/content/gnews/1/README.md)
+### [老师在中共国基本没好下场](/content/gnews/1/README.md)
+ ` 雅典娜GNotes`
+
+### [英国支持欧盟在世贸对中共的起诉 反对贸易胁迫](/content/gnews/2/README.md)
  ` 日本东京方舟农场`
 
-### [拜登警告普京若入侵乌克兰 必断北溪2号管线](/content/gnews/2/README.md)
+### [美司法部起诉中国海能达公司窃摩托罗拉无线电技术](/content/gnews/3/README.md)
  ` 日本东京方舟农场`
 
-### [澳洲维多利亚地区过半5-11岁儿童已接种CCP病毒疫苗](/content/gnews/3/README.md)
+### [拜登警告普京若入侵乌克兰 必断北溪2号管线](/content/gnews/4/README.md)
+ ` 日本东京方舟农场`
+
+### [彭帅再次回应性侵事件并声称不再参加任何比赛](/content/gnews/5/README.md)
+ ` NFSC News`
+
+### [中共在冬奥会中收集运动员的基因](/content/gnews/6/README.md)
+ ` NFSC News`
+
+### [澳洲维多利亚地区过半5-11岁儿童已接种CCP病毒疫苗](/content/gnews/7/README.md)
  ` 澳喜特战旅Gnews`
 
-### [拜登再度批准美国对台军售](/content/gnews/4/README.md)
+### [拜登再度批准美国对台军售](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美日宣布达成钢铁关税协议 共同应对中共](/content/gnews/5/README.md)
+### [美日宣布达成钢铁关税协议 共同应对中共](/content/gnews/9/README.md)
  ` 日本东京方舟农场`
 
-### [路易斯华夏二月三日的谈话](/content/gnews/6/README.md)
+### [联合国秘书长盼北京允人权特使访新疆](/content/gnews/10/README.md)
+ ` NFSC News`
+
+### [路易斯华夏二月三日的谈话](/content/gnews/11/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [英国官方 儿童接种中共病毒疫苗死亡率超三倍](/content/gnews/7/README.md)
+### [英国官方 儿童接种中共病毒疫苗死亡率超三倍](/content/gnews/12/README.md)
  ` NFSC News`
 
-### [女性是CCP统治下的最大受害者](/content/gnews/8/README.md)
+### [女性是CCP统治下的最大受害者](/content/gnews/13/README.md)
  ` 澳喜特战旅Gnews`
 
-### [2月6日文贵大直播摘要（图片）](/content/gnews/9/README.md)
+### [2月6日文贵大直播摘要（图片）](/content/gnews/14/README.md)
  ` 波士顿五月花农场`
 
-### [美国呼吁中共尽快兑现贸易协议承诺](/content/gnews/10/README.md)
+### [美国呼吁中共尽快兑现贸易协议承诺](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [以色列取消大部分疫苗通行证要求](/content/gnews/11/README.md)
+### [以色列取消大部分疫苗通行证要求](/content/gnews/16/README.md)
  ` NFSC News`
 
-### [邪恶的中共政权才是万恶之源](/content/gnews/12/README.md)
+### [邪恶的中共政权才是万恶之源](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美众议院领袖发誓调查中共病毒起源](/content/gnews/13/README.md)
+### [美众议院领袖发誓调查中共病毒起源](/content/gnews/18/README.md)
  ` NFSC News`
 
-### [约旦探索中央银行数字货币，未来将其合法化](/content/gnews/14/README.md)
+### [约旦探索中央银行数字货币，未来将其合法化](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2月6日文贵大直播摘要（图片）](/content/gnews/15/README.md)
+### [2月6日文贵大直播摘要（图片）](/content/gnews/20/README.md)
  ` 波士顿五月花农场`
 
-### [文贵先生直播精要2022/02/06](/content/gnews/16/README.md)
+### [文贵先生直播精要2022/02/06](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美方要求中共国兑现第一阶段贸易协议承诺](/content/gnews/17/README.md)
+### [美方要求中共国兑现第一阶段贸易协议承诺](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [欧盟在WTO提诉中共 英国要求参与谘商](/content/gnews/18/README.md)
+### [欧盟在WTO提诉中共 英国要求参与谘商](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [DC农场的阿炳的言行对农场战友诠释了 新中国联邦宣言——尊重个人、法治和信仰自由（一）](/content/gnews/19/README.md)
+### [DC农场的阿炳的言行对农场战友诠释了 新中国联邦宣言——尊重个人、法治和信仰自由（一）](/content/gnews/24/README.md)
  ` 雅典娜GNotes`
 
-### [哈耶克如何看计划经济及极权主义](/content/gnews/20/README.md)
+### [哈耶克如何看计划经济及极权主义](/content/gnews/25/README.md)
  ` 澳喜特战旅Gnews`
 
-### [中日财经爆┃美国加强对中共出口管制 33家实体上榜](/content/gnews/21/README.md)
+### [中日财经爆┃美国加强对中共出口管制 33家实体上榜](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [DC农场的阿炳的言行对农场战友诠释了新中国联邦宣言——尊重个人、法治和信仰自由（二）](/content/gnews/22/README.md)
- ` 雅典娜GNotes`
-
-### [郭文贵精品视频-2022年新中国联邦的战友们要谨记的《郭七条》](/content/gnews/23/README.md)
+### [郭文贵精品视频-2022年新中国联邦的战友们要谨记的《郭七条》](/content/gnews/27/README.md)
  ` cindy`
 
-### [秘翻在线：退出北京冬奥会后，普京在做什么？](/content/gnews/24/README.md)
+### [秘翻在线：退出北京冬奥会后，普京在做什么？](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中日财经爆┃病毒影响零部件采购，亚洲供应链拟“可视化”](/content/gnews/25/README.md)
+### [中日财经爆┃病毒影响零部件采购，亚洲供应链拟“可视化”](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|新中国联邦让女性获得真正的平等与尊重](/content/gnews/26/README.md)
+### [有声|新中国联邦让女性获得真正的平等与尊重](/content/gnews/30/README.md)
  ` MOSREC`
 
-### [有声|新中国联邦2022年的工作重点](/content/gnews/27/README.md)
+### [有声|新中国联邦2022年的工作重点](/content/gnews/31/README.md)
  ` MOSREC`
 
-### [有声|俄罗斯恢复波兰供气，俄欧关系开始缓和](/content/gnews/28/README.md)
+### [有声|俄罗斯恢复波兰供气，俄欧关系开始缓和](/content/gnews/32/README.md)
  ` MOSREC`
 
-### [有声|法院责令FDA于未来半年内公布辉瑞疫苗文件](/content/gnews/29/README.md)
+### [有声|法院责令FDA于未来半年内公布辉瑞疫苗文件](/content/gnews/33/README.md)
  ` MOSREC`
 
-### [有声|中共冬奥开幕式致数百名青少年演员染疫](/content/gnews/30/README.md)
+### [有声|中共冬奥开幕式致数百名青少年演员染疫](/content/gnews/34/README.md)
  ` MOSREC`
 
-### [有声|教练被隔离 花样滑冰运动员感到“茫然”](/content/gnews/31/README.md)
+### [有声|教练被隔离 花样滑冰运动员感到“茫然”](/content/gnews/35/README.md)
  ` MOSREC`
 
-### [有声|世卫称57国出现Omicron变种，放松防疫还太早](/content/gnews/32/README.md)
- ` MOSREC`
-
-### [韩国疫情或在2月底达到最高峰](/content/gnews/33/README.md)
+### [韩国疫情或在2月底达到最高峰](/content/gnews/36/README.md)
  ` 墨尔本雅典娜农场`
 
-### [微软、英特尔、通用电气向中共军方及安全机构提供支持](/content/gnews/34/README.md)
+### [微软、英特尔、通用电气向中共军方及安全机构提供支持](/content/gnews/37/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [雅典娜时报-第198期](/content/gnews/35/README.md)
+### [雅典娜时报-第198期](/content/gnews/38/README.md)
  ` 墨尔本雅典娜农场`
 
-### [巴布亚新几内亚总理在北京感染新冠](/content/gnews/36/README.md)
+### [巴布亚新几内亚总理在北京感染新冠](/content/gnews/39/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【新闻速递】特鲁多的私人安保和阻击手布尔福德辞职](/content/gnews/37/README.md)
+### [【新闻速递】特鲁多的私人安保和阻击手布尔福德辞职](/content/gnews/40/README.md)
  ` 温哥华扬帆农场`
 
-### [乐购老板预测即将到来的通货膨胀将“挤压”英国穷人](/content/gnews/38/README.md)
+### [乐购老板预测即将到来的通货膨胀将“挤压”英国穷人](/content/gnews/41/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2022年2月7日 晚 新中国联邦新闻、GTV新闻访谈简报](/content/gnews/39/README.md)
- ` 纽约香草山MOS01`
-
-### [聚焦：通胀和无效市场是中共的两道鬼门关](/content/gnews/40/README.md)
+### [聚焦：通胀和无效市场是中共的两道鬼门关](/content/gnews/42/README.md)
  ` 丁过`
 
-### [贩卖妇女 | 中共治下的又一哀鸣，我们为自己而战](/content/gnews/41/README.md)
+### [贩卖妇女 | 中共治下的又一哀鸣，我们为自己而战](/content/gnews/43/README.md)
  ` YALUN 亚伦`
-
-### [美国为何领先世界及与中国的差距](/content/gnews/42/README.md)
- ` NFSC News`
-
-### [郭文贵先生谈家庭教育](/content/gnews/43/README.md)
- ` NFSC News`
 
 ### [秘翻在线：花旗预测软银抛售股份，阿里巴巴股价暴跌](/content/gnews/44/README.md)
  ` 秘密翻譯組G-Translators`

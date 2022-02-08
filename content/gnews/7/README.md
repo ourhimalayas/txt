@@ -2,53 +2,25 @@
 ---
 
 
-## 英国官方 儿童接种中共病毒疫苗死亡率超三倍
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1973614/)
+## 澳洲维多利亚地区过半5-11岁儿童已接种CCP病毒疫苗
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1973669/)
 
-作者：纽约香草山 – 侠肝义胆
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/02/803.jpg)图片来自网络
+根据澳大利亚媒体第九新闻的最新报道，截至当地时间周一（2月7日），澳大利亚维多利亚州5至11岁的儿童群体，已经有超过一半接种了CCP病毒疫苗。
 
+不过维多利亚教育部长James Merlino对于这样的疫苗接种进度似乎仍然不太满意，他表示接下来“还有很长的一段路要走”。这或许意味着政府期待儿童疫苗接种率很可能在90%甚至95%以上，即几乎所有无特殊情况的5-11岁儿童都要接种疫苗。
 
+于此同时，在该州的成年人群体中，也已经有45%接种第三剂CCP病毒疫苗加强针。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+从澳大利亚全国范围内的数据来看，目前全国也已经有将近45%的5-11岁儿童接种了第一针CCP病毒疫苗。而在12-15岁的青少年群体中，这一数字已超过84%，同时有77%的青少年已经接种了第二针。16岁以上的成年人当中，已经有超过43%的居民接种了CCP病毒疫苗的加强针。
 
+目前，澳大利亚总共接种的CCP病毒疫苗已经超过了5100万剂次，接种数量在各个国家中排在第31位，而接种比例则在全球范围内排行第21位。而全球疫苗总接种剂次已经突破100亿大关，全球超过半数人口接种了至少两剂CCP病毒疫苗。
 
+新闻参考链接：[9 News](https://www.9news.com.au/national/elective-surgery-resumes-in-victorias-private-hospitals-as-victorias-covid19-hospitalisations-drop/8435f323-a4e2-4a7c-a02d-28b8ec2781c2)
 
-据外媒2月5日报道，英国卫生安全局发布的最新数据显示，完全接种疫苗的儿童死于中共病毒的可能性是未接种疫苗儿童的3倍多。
-
-根据相关数据，接种了中共病毒疫苗的人在接触该病毒时，与未接种疫苗的人相比，会表现出某种形式的疫苗相关强化疾病，而受这种影响最严重的年龄组是儿童。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-4.jpg)
-英国卫生安全局似乎在试图掩盖这些讯息。根据惯例，他们每周都会公布接种两针疫苗和三针疫苗的病例数、住院人数以及每10万人的发病率，但在2022年第3周的报告中，他们没有公布接种两针疫苗人群的每10万人死亡率数据。
-
-不过，英国卫生安全局在第5周报告中还是公布了两针疫苗人群的每10万人死亡率数据，媒体据此计算出，未接种疫苗的18岁以下感染者每10万人死亡率为0.01，而接种两针疫苗的18岁以下感染者每10万人死亡率为0.33 。
-
-参考信息：
-1. [2/6/2022 文贵直播: 中共认俄爹是因为西方白人不愿和中共交往，中共只好以俄国是共产主义发源地为由忽悠中国人；中国老百姓心中积压的怒火使得他们一有机会就会向中共动手](https://www.gettr.com/post/pt0ef10ad5)
-2. [Official Data shows Fully Vaccinated Children are 3.3 times more likely to die of Covid-19 than Unvaccinated Children and the UKHSA is trying to hide it](https://dailyexpose.uk/2022/02/05/ukhsa-data-vaccinated-children-3x-more-likely-die-covid/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-
-总编：Jack Li文阳
-编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
