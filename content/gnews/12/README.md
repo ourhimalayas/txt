@@ -2,8 +2,8 @@
 ---
 
 
-## 只有七哥能抗住中共的诋毁
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1974545/)
+## 我们这个国际教育GEDU一定要做好
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1974688/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

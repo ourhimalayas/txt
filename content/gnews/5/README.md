@@ -2,34 +2,24 @@
 ---
 
 
-## 短视频：我们不需要那该死的疫苗！
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1974633/)
+## 爆料革命大事记——隔空取钱
+` 新西兰农场【光影传镜】` [轉載自GNews](https://gnews.org/zh-hans/1974881/)
 
-翻译：不要代表我Kari
-校对：枳实
-剪辑字幕：qingjing
- 编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-05_20.44.17.png)
+「20220204」 国内现有专门收人民币的渠道来购买HDO，请和各农场联系。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/811.png)图片来源：视频截屏
+只要中共不关闭支付渠道，比如支付宝，微信等，就能办到，一分手续费不要，金额上不封顶，瞬间到账。
+
+现人民币去纸币化几乎达到90%，只要银行电子化，人民银行和中转行都在，就能在中共的防火墙上开个洞，进行交易转账，近期已经完成了12亿以上的交易金额。
+
+目前该功能还没普及，只有个别授权农场开展，半年会在墙内公开普及，到时可进行任何币的转换。
+
+图文设计：新西兰农场设计组
+上 传：F
 
 
-谢谢你，作为一个非裔美国人，我来自对疫苗最为犹豫的群体（指非裔群体），来到这里参加集会，事实上，唯一接近疫苗犹豫的另一个群体的正是我们生物医学科学博士们。
 
-因为我们知道生命是复杂的，对于很多事情我们一无所知，我们没有傲慢到认为我们的科学可以和上帝相提并论。
 
-非裔美国人在这个国家被边缘化了。而我们实际上已经被当作了试验对象。而布朗博士的演讲我也认真做了研究，但他所提到的并没有阐明整个事情。
-
-他谈到了鲍比·肯尼迪给他带来的疫苗副作用启示，在2002年，美国疾病控制与预防中心（CDC）做了一个研究，你知道，自闭症研究，接种麻疹、腮腺炎和风疹MMR三联疫苗是否会导致自闭症？
-
-视频链接：[Zach (nine meals from anarchy) 在 Twitter: “Dr. Christina Parks speaks at #DefeatTheMandatesDC on behalf of African-Americans. “We don’t want their f\*cking vaccine!!” 🔥 https://t.co/YFaUQTruq0” / Twitter](https://twitter.com/just___zach/status/1485396249843056646?s=21)
-
-发布：文泓
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

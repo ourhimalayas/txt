@@ -2,8 +2,8 @@
 ---
 
 
-## 中共诋毁七哥的信用和荣誉怕有人相信七哥
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1974517/)
+## 阻止排华是我们今年最重要的
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1974643/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

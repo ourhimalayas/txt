@@ -2,8 +2,8 @@
 ---
 
 
-## 人类就假疫苗如果不反抗就不是我们所能担忧的了
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1974606/)
+## 把好处全给战友
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1974790/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
