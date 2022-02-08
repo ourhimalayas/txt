@@ -2,21 +2,37 @@
 ---
 
 
-## 郭文贵精品视频-北京冬奥会鲜为人知的秘密之兵临城下
-` cindy` [轉載自GNews](https://gnews.org/zh-hans/1972040/)
+## 有声|世界各国的孔子学院陆续关闭
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1972209/)
 
-撰稿：澳喜cindy
+配音：香草山巡管部– 文凯琳
 
-奥林匹克运动会本是各国运动员相互学习、增进友谊、技艺上互相竞争、互相进步。各国官员借此机会增进各国领导人的互通情报、互信，合作的一个大聚会。应该是和谐的、愉悦的。
 
-然而此次运动会是如此的风声鹤唳、处处充满着白色恐怖的气息。是防病毒呢？防中共内部习大神的敌对势力下黑手呢？还是防遍布在赛场的新中国联邦人监视他们见不得人的一举一动被揭穿呢？
 
-郭先生预言：此次的北京冬奥会是中共自杀自残的冬奥会，他发誓：要给中共的冬奥会变成冬眠会，让我们拭目以待。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-2.jpg)
 
-*编辑：cindy*
 
-【[澳喜文章1](https://gnews.org/zh-hans/author/aujenny/)】
-【[澳喜文章2](https://gnews.org/zh-hans/author/himalaya-australia/)】
+
+#### 摘 要
+
+中共孔子学院自2004年成立。截至2019年12月，中共在162个国家（地区）建立了550所孔子学院和1172个中小学孔子课堂。
+
+然而自2013年开始，海外孔子学院陆陆续续关闭。2013年，加拿大麦克马斯特大学孔子学院关闭，成为全球第一所关闭的孔子学院。2019年12月，瑞典关闭了其境内的4家孔子学院，并于2020年4月关闭了最后一个孔子课堂。瑞典成为全球第一个彻底将孔子学院和孔子课堂驱逐出境的国家。2021年10月31日，德国联邦教育部长Anja Karliczek更是呼吁终止德国所有孔子学院。
+
+文字版原文：[世界各国的孔子学院陆续关闭](https://gnews.org/zh-hans/1961212/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
 
  
 

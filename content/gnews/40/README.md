@@ -2,28 +2,32 @@
 ---
 
 
-## 澳洲防长警告盟友需挺身抵抗中共 否则会失去未来十年
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1971187/)
+## 美国前国安参谋长警告：中俄联盟极其危险
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1971259/)
 
-**撰稿：日本东京方舟农场 Kevin wang**
+作者：银河系农场—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月5日外媒消息，随着冬奥会在北京举办，中俄形成战略联盟。在一份联合声明中两国表示，其新关系优于冷战时期建立的，任何其他政治或军事联盟。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-07-上午11.18.40.png)
+美国第一政策研究会副主席、国家安全委员会前参谋长弗莱德- 弗利茨说，中俄此次联盟，是一个令人难以置信的危险发展，特别是随着与乌克兰紧张局势的加剧。
 
-2月7日，澳洲国防部长杜登警告称，澳洲及其盟国必须在南海议题上挺身抵抗中共，否则将会失去未来十年。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-65.png)（图片来自网络）
-中央社报道， 杜登表示，美国及其盟国过去一度采取「默许」态度，任由中共在主权有争议的南海航道上兴建人工岛，以及在珊瑚礁上兴建防卫基地。
+目前，美国注意的是，避免与俄罗斯开战，并且阻止中共与俄罗斯形成联盟。因为一旦中俄结成联盟，势必威胁到美国和国际社会的安全与稳定。
 
-杜登强调，为了确保中共不会重复过去十年将南海军事化的做法，澳洲及盟国需要向中共表明立场，他称，假如任由目前情况发展下去，澳洲及盟国将会「失去下一个十年」。
+参考链接：[Fred Fleitz to Newsmax: China, Russia Alliance ‘Incredibly Dangerous’](https://www.newsmax.com/newsmax-tv/fred-fleitz-alliance-vladimir-putin-xi-jinping/2022/02/05/id/1055647/)
 
-报道称，杜登的发言与将于本周在墨尔本（Melbourne）举行的「四方安全对话」（Quad）外长会议有关。预料「四方安全对话」外长会议将会讨论美、日、澳、印四国该如何加强防卫及经济发展合作，以便对抗中共。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-美国东亚暨太平洋事务助理国务卿康达（Daniel Kritenbrink）也表示，即将举行的「四方安全对话」外长会议的主要议题是关于如何因应「中共国所带来的挑战」。
+总编：Jack Li文阳
+编辑：静言
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-参考链接：
-[https://www.cna.com.tw/news/aopl/202202070037.aspx](https://www.cna.com.tw/news/aopl/202202070037.aspx)
-
-素材采编：Kevin wang
-编辑： 老孙
-发布：爱放飞
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

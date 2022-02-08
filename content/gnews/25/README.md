@@ -2,26 +2,48 @@
 ---
 
 
-## 秘翻在线：花旗预测软银抛售股份，阿里巴巴股价暴跌
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1971950/)
+## 有声|期待
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1972097/)
 
-翻译播报：billwilliam
+配音：香草山健身部 – 新世界的一员
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+期待
+像羽毛轻刷心田
+心跳节奏快了二三拍
+憧憬又憧憬
+渴望有渴望
+像挂在树枝最高点果子
+看得见
+摘不了
+如同只能
+梦里看见母亲
+她
+衰老又沧桑
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-3.jpg)图源：cnn.com
-《彭博社》2月7日报道，花旗集团分析师预测软银会大幅抛售阿里巴巴股份，导致阿里巴巴股价一度跌幅达7.1%。
+期待
+光明早日来到
+因为啊
+七十年的蹂躏
+这片土地满目创伤
+破败不堪
+人们的脸庞
+恐惧惊慌
+当黑暗过去
+期待笑脸
+重回他们脸庞
 
-阿里巴巴上周五（2月4日）在美国证监会（SEC）提交申请出售额外10亿股海外股，每股相当于8股普通股。申请登记将允许持股人有灵活性出售尚未登记过的股份。花旗集团分析师认为此举可能是因为软银要抛售其持有的部分阿里股权。同时摩根大通的分析师也告知客户称，阿里巴巴登记出售10亿股可能是因为内部管理层或早期投资方软银打算抛售股份。
+文字版原文：[期待](https://gnews.org/zh-hans/1959675/)
 
-根据花旗集团统计，软银拥有53.9亿股阿里巴巴普通股票，相当于6.7376亿股海外股，或24.8%的股份。孙政义的软银最近在科技类投资方面遭遇挫败，包括滴滴出行。阿里股价暴跌导致今日纳斯达克中国金龙指数跌幅达到2.1%。自2020年十月以来，受中共监管打压以及网络销售疲软影响，阿里股价已经累计下跌超过63%。
+音频处理/发稿：Daxia
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
-当然，阿里巴巴最近承压背后有两大原因：中共内部政治斗争以及对美国的经济战。首先，马云去年访问欧洲是因为中共在强迫他把名下的海外资产汇回中共国，江派的资产被其它盗国贼重新瓜分搞“共同富裕”。第二，自去年7月滴滴出行刚上市即遭到中共调查后，中共一直在打算对美国进行金融打击。如果中共国股市崩盘，那么持有中概股的华尔街基金会像多米诺骨牌一样雪崩。同时中共的假擀面杖经济自己也快撑不住了。
-
-当然，在美国外交抵制冬奥会、甚至美国准备外交撤离大使馆的国际政治背景下，孙政义也可能看出来中共即将倒塌，自己先跳船算了。
-
-新闻来源：
-
-[https://www.bloomberg.com/news/articles/2022-02-07/alibaba-skids-as-citi-sees-sec-filing-signaling-sale-by-softbank](https://www.bloomberg.com/news/articles/2022-02-07/alibaba-skids-as-citi-sees-sec-filing-signaling-sale-by-softbank)
 
  
 

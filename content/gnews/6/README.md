@@ -2,26 +2,24 @@
 ---
 
 
-## 澳洲派部队进驻养老院所暴露出的问题
-` 喜国公民` [轉載自GNews](https://gnews.org/zh-hans/1972371/)
+## 共产党家族拥有特权
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1972469/)
 
-By：喜国公民
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-70.png)图片来自网络
-一支由1700名澳大利亚国防军工作人员组成的突击队将被派往养老院，向受新冠病毒影响的养老院提供 “有针对性的支持”，因为这些养老院出现了护理人员的严重短缺。
+#### 整理：雅典娜速记组
+编辑：开智则立
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8-50～9-00～2.png)
+刚才亨利小哥说的就是不知道谁搞不懂，到底是中共魔怔了还是个人被威胁了 ？被俄罗斯这种，爱上俄梦从来没带来过好处。除了刚才我说的那些原因之外，还有一个就是俄罗斯是世界上最会抓住政治把柄，搞政治黑社会是全人类第一，没人喊第二。当然了，就共产党所有在俄罗斯搞的武器交易，没有不拿巨额回扣的，跟俄罗斯做石油贸易交易没有不拿回扣的。而美国人跟中国人做事，作为文化交流、精神交流，绝对是实际利益交流。
 
-今年已经有530名新冠阳性的老年养老院居民死亡，近1200家养老院正在发生疫情，5900名护理人员因病毒而停工，估计每周有25%的护理职位无法填补。澳洲政府宣布，澳大利亚国防军的专业团队将被调来帮助受影响最严重的养老院。
+这个时候大家可以看到，单伟建TPG和PAG，你不说别人，就说大家现在同心同框的这几个人，除了亨利小哥能说出个123来你们都不懂，特别是你在国内没有接触过共产党的，那个时候所谓的共产党家族，被下放的人能回到北京城，还能出国，那是天大的事情，那是佼佼者中的佼佼者。就像当时在我盘古摩根中心做CEO的林强，林强他们哥儿俩，人家爹是最高的情报头子，人家的叔叔是第一任派到联合国的中国代表叫林清，人家的表妹是李小龙朋友，人家主爷是林则徐。你往上捋去，郭文贵的爷爷长工，郭文贵的爹农民，郭文贵的娘农民。人家共产党把所有的中国都垄断了。就这样的人，林强是周恩来派人接回来的，开着伏尔加轿车。然后一个安全部，一个公安部，一个搞政治保卫，一个搞对美情报。都是这个时候啊，跟单伟建出来的。那时中国下放的知识青年六千万啊！几千万个家庭被害，为啥就选他了？一样的，就是当时中共已经从对俄关系转到了对美关系。
 
-部队进驻养老院说明养老院的新冠疫情已经失控。值得注意的是，澳洲政府早在2021年9月17日，就强制性地要求所有在养老院工作的护理人员必须完全接种新冠疫苗，作为他们的就业条件。养老院的居民更是在这之前就全部接种了新冠疫苗。
+*发布：开智则立*
 
-新冠疫情失控说明新冠疫苗根本不能防止感染新冠病毒和阻止新冠病毒的传播。大批养老院人员死亡说明新冠疫苗并不能阻止感染新冠病毒后不出现重症或死亡。另外，新冠疫苗接种率为100%的养老院出现新冠疫情失控，更令人怀疑新冠疫苗本身就是致命的毒药。
-
-澳洲政府说，国防军不是老年护理部门的代用劳动力，不会提供专业护理支持。他们将充当门卫，限制来访客人的进入，并协助提供膳食，快速测试和个人防护设备。
-
-可以预测，国防军进驻养老院也无法缓解养老院失控的新冠疫情，因为澳洲政府还在鼓励接种加强针新冠疫苗，并没有意识到是新冠疫苗造成了正在失控的局面。
-
-消息来源：[Aged care sector welcomes deployment of defence personnel in nursing homes](https://www.theguardian.com/australia-news/2022/feb/07/aged-care-sector-welcomes-deployment-of-defence-personnel-in-nursing-homes)
-
-[Mandatory COVID-19 vaccination in aged care](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/information-for-aged-care-providers-workers-and-residents-about-covid-19-vaccines/mandatory-covid-19-vaccination-in-aged-care)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
