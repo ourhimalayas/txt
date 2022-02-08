@@ -2,20 +2,26 @@
 ---
 
 
-## 塞北的雪 （五）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1973014/)
+## 政府对权力的渴望胜过一切，退让只会让它变本加厉
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1973026/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+##### 翻译：Lish
+校对：枳实
+剪辑|字幕：向上James
+编辑：Mttfly
 
-*发布：陶子*
+福奇曾在CNN电视采访中声称，新冠第三针只是何时接种的问题，而不是是否接种的问题。福克斯新闻主持人邦吉诺分析，民众一旦掉进了政府的框框，听从了接种新冠疫苗的吩咐，那么强制接种政策制定者就获得了凌驾于民众之上的权力。在信息自由法案的（FOIA）的要求下，FDA竟然想用55年时间来公布关于疫苗的数据。如果你不支持接种新冠疫苗，就会被左派认为是反疫苗者。这让人想起400年前的中世纪教廷。人民的自由正在被一小步一小步地蚕食，退让只会让它变本加厉。
 
+视频来源：[Dan Bongino: Why the COVID goalposts keep moving](https://video.foxnews.com/v/6286396874001#sp=show-clips)
+
+*发布：Mttfly*
+**
 更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

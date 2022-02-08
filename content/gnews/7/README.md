@@ -2,32 +2,33 @@
 ---
 
 
-## 2022年2月7日 晚 新中国联邦新闻、GTV新闻访谈简报
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1973089/)
+## 德国新总理首度访美 协调对俄乌问题立场
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1973109/)
 
-作者：香草山翻译部
+**撰稿：日本东京方舟农场 子辰**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-4.jpg)
+据大纪元2月7日报道，新上任的德国总理奥拉夫.舒尔茨，周日首次启程访问华盛顿，向美国表明在俄乌问题上，德国一直站在美国和其北约盟友这边，反对俄罗斯发动侵略。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-109.jpg)（图片来自《大纪元》）
+此前，虽然舒尔茨曾表示，如果发生袭击，莫斯科将付出高昂的代价，但他的政府却拒绝向乌克兰提供杀伤性武器和加强德国在东欧的驻军，以及阐明将支持对俄罗斯进行的制裁。这引发了国内外批评，包括来自美国两党议员的批评。
 
+舒尔茨在赴美前坚称，德国正在通过向乌克兰提供大量经济支持来尽自己的一份力量。但当被问及俄德合作的天然气管道项目（北溪-2）的未来时，舒尔茨拒绝做出任何明确的回答。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-6.png)
-校对：Stay文苑
+德国因严重依赖俄罗斯的能源供应而受到批评，两国合作的天然气管道项目长期以来一直为美国所反对，但得到了舒尔茨所属的中左翼社会民主党的一些成员的强烈支持，包括前总理格哈德‧施罗德。
 
-编辑：Stay文苑
+据悉，施罗德是北溪公司股东委员会和“北溪-2”项目董事会的负责人，他指责乌克兰在与俄罗斯的对峙中进行“武力威胁”。
 
-发稿：Stay文苑
+而且舒尔茨的发言人多次拒绝了就施罗德与普京的关系予以置评的请求。
 
-新闻： [https://gtv.org/broadcast/watch/6201c9423621aa7415d75b9c](https://gtv.org/broadcast/watch/6201c9423621aa7415d75b9c)
-访谈： [https://gtv.org/broadcast/watch/6201d15a3621aa7415d760a2](https://gtv.org/broadcast/watch/6201d15a3621aa7415d760a2)
+美联社称，舒尔茨周一会见美国总统拜登和美国国会议员，就是为了试图消除分歧。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-callendar.jpeg)
+据位于华盛顿的”美国进步中心”（Center for American Progress）的维尔茨（Michael Werz）认为，舒尔茨完全不需要重新赢得任何人的信任，因为他作为曾经的德国财政部长已经是美方非常熟悉的一个对话伙伴。此外，尽管在乌克兰危机上有分歧，但是双方还有其它重要的共同利益，比如对中国政策以及气候保护等方面都可以共同应对中共。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+参考链接：
+[https://www.epochtimes.com/b5/22/2/6/n13559032.htm](https://www.epochtimes.com/b5/22/2/6/n13559032.htm)
+
+素材采编：子辰
+编辑：老孙
+发布：爱放飞
 
  
 
