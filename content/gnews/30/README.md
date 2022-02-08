@@ -2,32 +2,32 @@
 ---
 
 
-## 中共国一电信公司在美被起诉串谋盗窃商业秘密
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1972971/)
+## 2022年2月7日 晚 新中国联邦新闻、GTV新闻访谈简报
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1973089/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Unknown-8.jpg)中共国一电信公司在美被起诉串谋盗窃商业秘密 网络图片
-据美国之音2月8日报道，伊利诺伊州北区的联邦法庭7日指控中共国深圳海能达通信股份有限公司与摩托罗拉系统公司的前雇员合谋窃取摩托罗拉开发的数字移动无线电（DMR）技术。
+作者：香草山翻译部
 
-起诉书指控海能达从2007年到2020年，指示其雇佣的摩托罗拉员工在未经授权的情况下，从摩托罗拉公司获取了该公司研发的DMR技术。该专有的商业秘密DMR信息帮助海能达在全球范围内推销和出售它的数字无线对讲机产品。
-
-海能达通信股份有限公司是一家全球化的民营上市公司、全球领先的专用通信及解决方案的提供商。在全球有100多家分支机构、近万名专业人员。海能达被控拥有或试图拥有窃取的商业秘密。如果罪名成立，海能达可能面临的刑事罚款金额是被窃取的商业秘密给该公司带来的价值的三倍。
-
-中共篡政几十年，对内愚弄老百姓，吹嘘科技发展，动辄自主研发，其实都是偷来的知识产权和技术。中共从来就没有一项真正自主研发的专利或者技术，就没有什么是中共不偷的，就没有什么是中共偷不到手的。中共的偷盗手段独步天下。此次被起诉的海能达曾经在2020年2月，以盗窃商业秘密与侵犯知识产权的罪名被芝加哥的一个联邦陪审团裁决赔偿摩托罗拉7.646亿美元。刚刚过去2年，海能达再次被起诉。中共贼性不改，扎紧篱笆墙挡不住中共，必须推翻中共，才能保护美国的知识产权，保证美国的国防安全。
-
-新闻参考链接：[https://www.voachinese.com/a/us-indictment-Hytera-motorola-dmr-20220207/6431380.html](https://www.voachinese.com/a/us-indictment-Hytera-motorola-dmr-20220207/6431380.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-4.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-6.png)
+校对：Stay文苑
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+编辑：Stay文苑
 
+发稿：Stay文苑
 
+新闻： [https://gtv.org/broadcast/watch/6201c9423621aa7415d75b9c](https://gtv.org/broadcast/watch/6201c9423621aa7415d75b9c)
+访谈： [https://gtv.org/broadcast/watch/6201d15a3621aa7415d760a2](https://gtv.org/broadcast/watch/6201d15a3621aa7415d760a2)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-callendar.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

@@ -2,32 +2,20 @@
 ---
 
 
-## 韩国疫情或在2月底达到最高峰
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1973263/)
+## 2022年会非常的精彩但也会有巨大的挑战（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1973317/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+整理：雅典娜速记组
+编辑：tianzhihuan
 
-整理：Eileen（围剿维尼熊）
-编辑：朝花夕拾
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-614.png)图片来源：雅典娜设计组
-
-
-根据中央社2月7日报道：韩国近期疫情持续扩散，单日确诊人数已连续3天达3万例以上。中央防疫对策本部长郑银敬今天表示，多名专家预测，2月底单日确诊人数可能达到13万至17万例。
-
-郑银敬说，虽然预测模型显示韩国Omicron疫情可能在2月底达到最高峰，但当局指出仍有许多变数影响，难以断言之后疫情就会缓解。
-
-重症及死亡病例虽尚未出现增势，但截至今天零时，居家治疗人数已增至146445例，较前一天增加近1.8万例，达到管理机关可承担人数的88%。
-
-郑银敬表示，Omicron病毒传染力较流感病毒更高，致死率也是流感的2倍以上。
-
-参考链接：[https://udn.com/news/story/121707/6080781?from=udn-ch1\_breaknews-1-0-news](https://udn.com/news/story/121707/6080781?from=udn-ch1_breaknews-1-0-news)
+我们要尽情的享受我们的劳动，劳动的结果和我们的汗水。一个更重要的事情，我们要坚持的“唯真不破”，什么事情都别忘了，只要能灭共和不灭共什么都不存在这条， 千万别忘了！你大卫看到这个不顺眼，小鸟看那个不顺眼，潇亦看着不过，这都不重要。昨天晚上我直播完了好多战友给我发信息，谁谁谁怎么样，我就发个信息就回去了，你说这大过年的，你说你啥时候你说这，刚刚那么好的节目，这个不对那个不好的，你说这干什么呢？是不是啊？我们少看别人哪不行，你就一个基础，对灭共有没有利，对灭共有利咱全干，对共没有利的一样都不干，没有什么对错，只有对灭共有没有利。啊，所以说兄弟姐妹，我今天坐在这里的时候跟大家这个，今天上午的上半场直播已经是到时间了，非常非常的开心，然后呢，每个人在画面上我们展示真实的自己，就像在刚才防木的很感人的话，还有法治萌芽，这个刚才2PAC,文科，小鸟， 你们说的每一句话都是发自内心的，但没有一个人编排，每句话都是未来，在几年后都会成为中国人和全世界了解中国人一个教科书（式）的题材啊，上天保佑所有的每个战友啊，再次祝大家新年快乐！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2022年会非常的精彩但也会有巨大的挑战3.jpg)
+2022年1月1日文贵大直播
 
 *发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
