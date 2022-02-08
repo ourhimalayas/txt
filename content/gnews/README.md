@@ -15,128 +15,128 @@
 
 ---
 
-### [日本《自卫队法》修正案获批，意指共台开战可营救台湾人民](/content/gnews/1/README.md)
+### [阻止排华是我们今年最重要的](/content/gnews/1/README.md)
+ ` 雅典娜GNotes`
+
+### [MV版Hcoin To the Moon上线61天第48次位列澳门iTunes热门MV榜首](/content/gnews/2/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [不允许打着新中国联邦爆料革命的名义去参加政治活动](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [人类就假疫苗如果不反抗就不是我们所能担忧的了](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [法律道德需在有信仰的社会，没有信仰就完了](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [智利自2月7日星期一起给所有55岁以上人群接种第四剂新冠疫苗](/content/gnews/6/README.md)
+ ` xiaobaige`
+
+### [在美国七哥能当半个律师](/content/gnews/7/README.md)
+ ` 雅典娜GNotes`
+
+### [日本《自卫队法》修正案获批，意指共台开战可营救台湾人民](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [只有七哥能抗住中共的诋毁](/content/gnews/2/README.md)
+### [只有七哥能抗住中共的诋毁](/content/gnews/9/README.md)
  ` 雅典娜GNotes`
 
-### [中共诋毁七哥的信用和荣誉怕有人相信七哥](/content/gnews/3/README.md)
+### [中国银行未能履行在澳洲为一家中共国公司提供高达5750万澳元的担保](/content/gnews/10/README.md)
+ ` 喜国公民`
+
+### [中共诋毁七哥的信用和荣誉怕有人相信七哥](/content/gnews/11/README.md)
  ` 雅典娜GNotes`
 
-### [美国的官僚会为此付出血的代价](/content/gnews/4/README.md)
+### [美国的官僚会为此付出血的代价](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
 
-### [中共电信巨头海能达被指窃取摩托罗拉机密长达14年](/content/gnews/5/README.md)
+### [加拿大疫苗制造的大流行！7成中共病毒死亡者完全接种了疫苗](/content/gnews/13/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [中共电信巨头海能达被指窃取摩托罗拉机密长达14年](/content/gnews/14/README.md)
  ` 澳喜特战旅Gnews`
 
-### [美国政府的官僚](/content/gnews/6/README.md)
+### [美国政府的官僚](/content/gnews/15/README.md)
  ` 雅典娜GNotes`
 
-### [冬奥会后习将会比齐奥塞斯库还惨](/content/gnews/7/README.md)
- ` 雅典娜GNotes`
-
-### [战友们怎么面对2022](/content/gnews/8/README.md)
- ` 雅典娜GNotes`
-
-### [沙克·奥尼尔对强制疫苗发表意见](/content/gnews/9/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [大卡车，疫苗次生灾难](/content/gnews/10/README.md)
- ` 雅典娜GNotes`
-
-### [联合国人权专员有望进入新疆访问](/content/gnews/11/README.md)
- ` 墨尔本雅典娜农场`
-
-### [共产党是否定历史主义者-文化大革命](/content/gnews/12/README.md)
+### [戏子无情婊子无义](/content/gnews/16/README.md)
  ` 纽约香草山MOS03`
 
-### [每时每刻的认知 （八）](/content/gnews/13/README.md)
- ` 澳喜农场`
-
-### [染上病毒不吃药的代价](/content/gnews/14/README.md)
+### [冬奥会后习将会比齐奥塞斯库还惨](/content/gnews/17/README.md)
  ` 雅典娜GNotes`
 
-### [中共印发《军队功勋荣誉表彰条例》](/content/gnews/15/README.md)
- ` 儒为`
-
-### [短视频：印第安纳州医生因拒绝接种新冠疫苗被迫停职](/content/gnews/16/README.md)
- ` 墨尔本雅典娜农场`
-
-### [美国卫生部不再要求医院向联邦政府报告中共病毒死亡病例](/content/gnews/17/README.md)
- ` GTV News Talk`
-
-### [中共利用奥运会作为宣传工具，来宣扬维吾尔人在中国与其他人一样受到对待的谎言](/content/gnews/18/README.md)
+### [沙克·奥尼尔对强制疫苗发表意见](/content/gnews/18/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [新不伦瑞克省的父亲在拒绝接种中共病毒疫苗后失去对孩子的监护权](/content/gnews/19/README.md)
+### [短视频：印第安纳州医生因拒绝接种新冠疫苗被迫停职](/content/gnews/19/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [中共利用奥运会作为宣传工具，来宣扬维吾尔人在中国与其他人一样受到对待的谎言](/content/gnews/20/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [新不伦瑞克省的父亲在拒绝接种中共病毒疫苗后失去对孩子的监护权](/content/gnews/21/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [北京2022年冬奥会是这项最负盛名赛事的污点](/content/gnews/20/README.md)
+### [北京2022年冬奥会是这项最负盛名赛事的污点](/content/gnews/22/README.md)
  ` 美国政要直译推`
 
-### [2022/02/08 英喜时事速递](/content/gnews/21/README.md)
+### [2022/02/08 英喜时事速递](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美司法部指控中共公司海能达合谋前摩托罗拉员工窃取通信技术](/content/gnews/22/README.md)
+### [美司法部指控中共公司海能达合谋前摩托罗拉员工窃取通信技术](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [日本拟在鹿儿岛部署美军无人机部队应对中共](/content/gnews/23/README.md)
- ` GTV News Talk`
-
-### [彭帅出现在奥运会上 接受了被控制的采访](/content/gnews/24/README.md)
+### [彭帅出现在奥运会上 接受了被控制的采访](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美日强化合作关系 应对中共军事威胁](/content/gnews/25/README.md)
+### [美日强化合作关系 应对中共军事威胁](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [彼得·纳瓦罗：毫无疑问中共病毒来自武毒所，福奇对此早已心知肚明](/content/gnews/26/README.md)
+### [彼得·纳瓦罗：毫无疑问中共病毒来自武毒所，福奇对此早已心知肚明](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中国网球运动员在中共监视下接受媒体采访](/content/gnews/27/README.md)
+### [中国网球运动员在中共监视下接受媒体采访](/content/gnews/28/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [美国批准对台湾一亿美元军售](/content/gnews/28/README.md)
+### [美国批准对台湾一亿美元军售](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [渥太华在“为自由护航”抗议强制疫苗中宣布紧急状态](/content/gnews/29/README.md)
+### [渥太华在“为自由护航”抗议强制疫苗中宣布紧急状态](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [澳防长警告若未能阻止中共扩张，就会再输掉未来10年](/content/gnews/30/README.md)
+### [澳防长警告若未能阻止中共扩张，就会再输掉未来10年](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [前美海军官员：打捞F-35C事关美中科技较量](/content/gnews/31/README.md)
+### [前美海军官员：打捞F-35C事关美中科技较量](/content/gnews/32/README.md)
  ` 墨尔本雅典娜农场`
 
-### [新冠病毒政策的制定是没有科学根据的](/content/gnews/32/README.md)
+### [新冠病毒政策的制定是没有科学根据的](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`
 
-### [拜登和德国总理在白宫会面](/content/gnews/33/README.md)
+### [拜登和德国总理在白宫会面](/content/gnews/34/README.md)
  ` Shuizhuyu`
 
-### [短视频：伊维菌素、青蒿素、绝对能铲除疫苗](/content/gnews/34/README.md)
+### [短视频：伊维菌素、青蒿素、绝对能铲除疫苗](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
-### [五月花简报（02/07/2022）](/content/gnews/35/README.md)
+### [五月花简报（02/07/2022）](/content/gnews/36/README.md)
  ` mayflowertranslate`
 
-### [中日财经爆|药明生物被美国制裁 股价暴跌](/content/gnews/36/README.md)
+### [中日财经爆|药明生物被美国制裁 股价暴跌](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆|美司法部指控海能达窃取摩托罗拉技术](/content/gnews/37/README.md)
+### [中日财经爆|美司法部指控海能达窃取摩托罗拉技术](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [奥地利政府颁布更严厉的疫苗强制令，未接种者将被罚款](/content/gnews/38/README.md)
+### [奥地利政府颁布更严厉的疫苗强制令，未接种者将被罚款](/content/gnews/39/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [彭帅再次回应性侵事件并声称不再参加任何比赛](/content/gnews/39/README.md)
+### [彭帅再次回应性侵事件并声称不再参加任何比赛](/content/gnews/40/README.md)
  ` NFSC News`
 
-### [美日宣布达成钢铁关税协议 共同应对中共](/content/gnews/40/README.md)
+### [美日宣布达成钢铁关税协议 共同应对中共](/content/gnews/41/README.md)
  ` 日本东京方舟农场`
-
-### [美国呼吁中共尽快兑现贸易协议承诺](/content/gnews/41/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [欧盟在WTO提诉中共 英国要求参与谘商](/content/gnews/42/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

@@ -2,8 +2,8 @@
 ---
 
 
-## 冬奥会后习将会比齐奥塞斯库还惨
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1974481/)
+## 在美国七哥能当半个律师
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1974570/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
