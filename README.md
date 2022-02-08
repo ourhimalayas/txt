@@ -15,95 +15,95 @@
 
 ---
 
-### [有声|中共在冬奥会中收集运动员的基因](/content/gnews/1/README.md)
+### [加拿大阿省议员：当世界上大部分国家取消疫苗限制时，特鲁多仍在尝试将无效的疫苗政策永久化，加拿大正在迅速变成一个异类](/content/gnews/1/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [主流媒体说渥太华的自由卡车集会充满了暴力，让我们到现场看看实际情况](/content/gnews/2/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [中共利用冬奥会窃取各国运动员DNA](/content/gnews/3/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [有声|中共在冬奥会中收集运动员的基因](/content/gnews/4/README.md)
  ` MOSREC`
 
-### [有声|英国官方 儿童接种中共病毒疫苗死亡率超三倍](/content/gnews/2/README.md)
+### [有声|英国官方 儿童接种中共病毒疫苗死亡率超三倍](/content/gnews/5/README.md)
  ` MOSREC`
 
-### [新中国联邦人主导北京冬奥会，让中共丑态百出，让参会人员自取其辱！](/content/gnews/3/README.md)
+### [新中国联邦人主导北京冬奥会，让中共丑态百出，让参会人员自取其辱！](/content/gnews/6/README.md)
  ` 纽约香草山MOS03`
 
-### [加拿大国防部抛弃未接种疫苗军人](/content/gnews/4/README.md)
+### [加拿大国防部抛弃未接种疫苗军人](/content/gnews/7/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [欧盟及英国在世贸组织提诉中共违规行为](/content/gnews/5/README.md)
+### [欧盟及英国在世贸组织提诉中共违规行为](/content/gnews/8/README.md)
  ` NFSC News`
 
-### [多名美国顶尖滑雪选手在冬奥赛道摔倒](/content/gnews/6/README.md)
+### [多名美国顶尖滑雪选手在冬奥赛道摔倒](/content/gnews/9/README.md)
  ` NFSC News`
 
-### [中共在冬奥期间收集运动员基因信息](/content/gnews/7/README.md)
+### [中共在冬奥期间收集运动员基因信息](/content/gnews/10/README.md)
  ` NFSC News`
 
-### [有声|以色列取消大部分疫苗通行证要求](/content/gnews/8/README.md)
+### [有声|以色列取消大部分疫苗通行证要求](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [俄罗斯总统普京提前紧急撤离北京冬奥会](/content/gnews/9/README.md)
+### [俄罗斯总统普京提前紧急撤离北京冬奥会](/content/gnews/12/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [有声|彭帅再次回应性侵事件并声称不再参加任何比赛](/content/gnews/10/README.md)
+### [有声|彭帅再次回应性侵事件并声称不再参加任何比赛](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [有声|中共的特色社会主义之特性](/content/gnews/11/README.md)
+### [有声|中共的特色社会主义之特性](/content/gnews/14/README.md)
  ` MOSREC`
 
-### [有声|美国众议院通过《美国竞争法》](/content/gnews/12/README.md)
+### [有声|美国众议院通过《美国竞争法》](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [有声|冬奥会运动员隔离待遇凄惨](/content/gnews/13/README.md)
+### [有声|冬奥会运动员隔离待遇凄惨](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [有声|落實新郭七條跟著文貴先生一心一意滅共](/content/gnews/14/README.md)
+### [有声|落實新郭七條跟著文貴先生一心一意滅共](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [NFSC新闻、G|TV新闻访谈简报|2022年2月8日早](/content/gnews/15/README.md)
+### [NFSC新闻、G|TV新闻访谈简报|2022年2月8日早](/content/gnews/18/README.md)
  ` 纽约香草山MOS01`
 
-### [冬奥会开幕式在疫情恐惧下始乱终弃](/content/gnews/16/README.md)
+### [冬奥会开幕式在疫情恐惧下始乱终弃](/content/gnews/19/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [BIS对中共再出重拳 33个中共国实体被列入UVL名单](/content/gnews/17/README.md)
+### [BIS对中共再出重拳 33个中共国实体被列入UVL名单](/content/gnews/20/README.md)
  ` 温哥华扬帆农场`
 
-### [有声|喜马拉雅币一周分析与总结（1月31日-2月6日）](/content/gnews/18/README.md)
+### [有声|喜马拉雅币一周分析与总结（1月31日-2月6日）](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [有声|戏子无情婊子无义](/content/gnews/19/README.md)
+### [有声|戏子无情婊子无义](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [有声|土耳其总统埃尔多安感染中共病毒](/content/gnews/20/README.md)
+### [有声|土耳其总统埃尔多安感染中共病毒](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [有声|猪窝里的老人，何时能有个避风躲雨的屋檐](/content/gnews/21/README.md)
+### [有声|猪窝里的老人，何时能有个避风躲雨的屋檐](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [郝董谈自身转会经历，反映出HPAY对未来体育界的革命性影响](/content/gnews/22/README.md)
+### [郝董谈自身转会经历，反映出HPAY对未来体育界的革命性影响](/content/gnews/25/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [归化女子花滑运动员首秀失败遭抨击](/content/gnews/23/README.md)
+### [归化女子花滑运动员首秀失败遭抨击](/content/gnews/26/README.md)
  ` NFSC News`
 
-### [CCTV还在欺骗民众习大神和普京的“甜蜜蜜”约会](/content/gnews/24/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [冬奥会伊始已恶评如潮](/content/gnews/25/README.md)
- ` NFSC News`
-
-### [美国众议院通过《美国竞争法案》](/content/gnews/26/README.md)
+### [美国众议院通过《美国竞争法案》](/content/gnews/27/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [有声|江苏被锁八孩母亲绝非个例](/content/gnews/27/README.md)
+### [有声|江苏被锁八孩母亲绝非个例](/content/gnews/28/README.md)
  ` MOSREC`
 
-### [开局不利的北京冬奥会遭投诉麻烦还在后面](/content/gnews/28/README.md)
+### [开局不利的北京冬奥会遭投诉麻烦还在后面](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花数据分析│日本冲绳：疫苗并不能防止重症和死亡](/content/gnews/29/README.md)
+### [樱花数据分析│日本冲绳：疫苗并不能防止重症和死亡](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声|联合国秘书长盼北京允人权特使访新疆](/content/gnews/30/README.md)
- ` MOSREC`
 
 ### [中共关于彭帅的报道将境内境外彻底分开](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

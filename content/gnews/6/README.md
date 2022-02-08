@@ -2,28 +2,40 @@
 ---
 
 
-## 多名美国顶尖滑雪选手在冬奥赛道摔倒
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1976084/)
+## 新中国联邦人主导北京冬奥会，让中共丑态百出，让参会人员自取其辱！
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1976105/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月7日，北京冬奥会刚开始，就传出多位美国滑雪运动员在比赛中滑倒，面临出局和受伤的双重风险。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-08-上午11.56.31.png)
-当天，卫冕冠军美国选手米凯拉·希弗林在第一轮中摔倒，爆冷提前出局。希弗林在前两届冬季奥运会上获得了三枚奖牌，两枚金牌一枚银牌。如果这次拿到两枚金牌，就有望与另两名选手并列成为高山滑雪界的最多金牌拥有者。希弗林在该项目上历来都是稳定的典范。她说，前四个闸口感觉良好。但当她绕过第五道门时，突然就失去了平衡，导致了出局。
+作者：纽约香草山信息部 – 6zero4
 
-第二轮比赛中，美国女子大回转的头号选手尼娜·奥布莱恩在终点线前坠落，她的左腿受了重伤，被担架抬出赛道。当她身体失去平衡的瞬间，正是速度最快的时候。在终点区观看的其他选手惊恐万分。24岁的奥布莱恩去年在该项目中赢得了美国冠军。连损两位最有实力的选手，美国高山滑雪项目面临困境。
 
-据悉，当天参赛的82名选手中有33人没能完赛。有分析人士称，这些匪夷所思的失误，可能与北京冬奥滑雪赛道上完全是人工雪有关。人工雪比真雪颗粒大，又硬又滑。其质地、弹性、阻力，与真雪有很大的不同。运动员在这种人工雪地上运动，很难掌控速度和动作的幅度，进而为自身和他人的安全带来隐患。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/gnews-logo-2.jpeg)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture-9.jpg)
+郭先生在2022年2月6日的大直播中谈到，新中国联邦人将计就计，让骨子里恨西方白人世界的政治白痴“习太阳”，让共产党对西方的憎恨在其好大喜功、集中力量办冬奥会上表露无遗，让各国运动员都在冬奥会上充分体会到社会主义的铁拳，让他们吃屎、喝尿、品痰，自取其辱，让中共的邪恶和丑陋体现得淋漓尽致。
+
+郭先生携新中国联邦人早在冬奥会开幕前就紧锣密鼓地向各国传播中共举办本届冬奥会的邪恶目的，让最早有137个国家准备官方出席，很快减到97个，再到33个，最后只有25个国家元首出席开幕式，到场且真正有实力的国家元首不超过五个。普京是唯一出席的大国领袖，事前郭先生将写有中共将如何耍普京的细节的两页纸交给他，普京说如果届时有任何一句话如你所说而兑现，我转身就走。普京终因“习太阳”言而无信，没参加国宴就急匆匆连夜回国了。
+
+新中国联邦对中共国在历届奥运会的申办和举办，以及历届奥委会主席更换过程中对国际奥委会官员进行腐败的真相揭露，让国际奥委会等国际体育组织变成了中共肆意威胁、操控和利用的小姐，让西方世界几个月之前就开始调查本届冬奥会的黑幕，使得几乎没有顶尖运动员参加本届冬奥会，基本上都是年龄偏大、过气的二流运动员。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture1-14.jpg)
+新中国联邦人与中共斗智斗勇，突破中共严密的监控和管制，随时向郭先生传出冬奥会里面的任何情况，甚至专门收集运动员DNA和其它中共一贯要收集的私人信息的都是咱新中国联邦人。
+
+郭先生携新中国联邦人利用冬奥会灭共的天时地利人和，借力打力让中国丑态百出。该天时地利人和体现在三个方面：
+
+- 现在中共国的经济、政治协调能力已力不从心，无法应对当前四面楚歌、内忧外患的极端糟糕局面。
+- 党内都认为这次冬奥会是“习太阳”一个人的表演，现场工作人员包括开幕式总导演张艺谋等对此也都深有体会，他们都仇恨“习太阳”，感觉是被绑架来工作的，因此他们巧妙地怠工或使坏，将“习太阳”和中共的恶在外国运动员和领导人面前体现得淋漓尽致就不奇怪了。
+- 现在国内的中共病毒疫情，对现场工作人员形成的恐惧和威胁，让谁也不愿正儿八经地干活，他们骨子里不但恨“习太阳”，恨中共，也恨这帮外国运动员：你明知道这届冬奥会是金钱交易的结果，明知道中共国是虐待奴隶和种族屠杀的地方却还往这儿来，因此成全他们自取其辱也就顺理成章了。
+
+
+新中国联邦人主导了整个北京冬奥会的开幕式，仍将主导整个冬奥会，不但成功让参会国家的运动员及其元首们透过本次冬奥会看清了中共的邪恶本质，而且让他们一生都不会再参加中共举办的任何所谓的国际仪式。 中共已将2008年郭先生帮其在北京夏季奥运会积攒下来的一切美好形象和优良资本瞬间耗尽，爆料革命会将北京冬奥会办成“冬眠会”，一个羞耻的闭幕会，以及无法闭幕的奥运会，让这次冬奥会开幕式直接变成了中共完蛋的闭幕式！
 
 参考链接：
-1）[Nina O’Brien taken off giant slalom course on stretcher at 2022 Beijing Olympics](https://www.usatoday.com/story/sports/olympics/2022/02/07/nina-obrien-taken-off-course-stretcher-after-giant-slalom-crash/6687627001/)
-2）[Two-time Olympic champion Mikaela Shiffrin out of giant slalom at Beijing Olympics](https://www.usatoday.com/story/sports/olympics/beijing/2022/02/07/american-mikaela-shiffrin-out-giant-slalom-beijing-olympics/6683121001/)
+[2022年2月6日 文贵大直播：开幕式后普京愤然离去；中俄战略合作虎头蛇尾；贩卖人口中国妇女地位；反疫苗运动及美国经济](https://gtv.org/video/id=61ffc26b3621aa7415d64d51)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-26.jpg)
 
-总编：Zion文恩
-编辑：谐趣园
-校正/发稿：呼吸的雾霾（文小呼吸）
+编辑/校对/发稿：为真不破20
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -31,7 +43,13 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/gnews-logo-2.jpeg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,35 +2,30 @@
 ---
 
 
-## 有声|喜马拉雅币一周分析与总结（1月31日-2月6日）
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1975988/)
+## NFSC新闻、G|TV新闻访谈简报|2022年2月8日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1976029/)
 
-配音：香草山巡管部– 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-4.jpg)
 
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-7.png)
+文章仅代表作者本人观点，与Gnews无关
 
+视频参看：
+[2022.02.08早 《NFSC新闻》](https://gtv.org/video/id=620270173621aa7415d79f7a)
+[2022.02.08早 G|TV《新闻访谈》](https://gtv.org/video/id=620278393621aa7415d7a38a)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-
-
-过去一周喜马拉雅币价格在51美元左右浮动，最高价格约53.8美元，平均日交易量约8万枚喜币。喜币上市以来总交易量约2720万枚 ，占今年总发行量的仅约2.72%。目前喜币交易在全球尚未完全开放，市场交易量较低，价格仍被严重低估。
-
-2月1日大年初一，喜支付APP Himalaya Pay正式上线。喜支付上线前后，全球股票市场与数字货币市场都处于大幅下跌区间，喜马拉雅币价格则持续大幅上升。
-
-文字版原文：[喜马拉雅币一周分析与总结（1月31日-2月6日）](https://gnews.org/zh-hans/1968380/)
-
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/calendar-1.png)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
-
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

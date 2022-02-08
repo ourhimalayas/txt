@@ -2,26 +2,24 @@
 ---
 
 
-## 有声|以色列取消大部分疫苗通行证要求
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1976078/)
+## 欧盟及英国在世贸组织提诉中共违规行为
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1976085/)
 
-配音：香草山巡管部– 文凯琳
+作者：纽约香草山 医疗部 云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月7日，英国国际贸易大臣屈维瑞安表示，将加入欧盟向世贸组织提诉中共的行动，要求参与后续的咨商会议。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-08-上午11.56.38.png)
+1月27日，欧盟向世贸组织提出诉讼，指控中共当局因政治因素，对立陶宛实行贸易抵制。去年下旬，立陶宛曾在国际上多次声援台湾，11月21日，駐立陶宛台灣代表處正式成立。欧盟表示，中共此种「歧视性贸易作为」已影响整个欧盟供应链，也违反关税暨贸易总协议（GATT）的多项国际协议。
 
+英国政府指责中共当局作为世界第二大经济体，却仍在享受「发展中国家」的优惠待遇早。英国政府表示，英国一向拥护遵守规则的贸易体系，及在此体系下的自由、公平贸易。英国将要求以第三方身分参与欧盟在世贸组织的咨商程序，以共同对抗来自于中共的经贸胁迫。英国将是继美国、澳洲后，第3个要求参与该咨商程序的非欧盟国家。
 
+参考链接：[歐盟在WTO提訴中國 英國要求參與諮商支持立陶宛](https://www.cna.com.tw/news/aopl/202202070317.aspx)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-
-
-2月4日，国外媒体报道，作为疫苗接种先锋的以色列，几乎取消了疫苗通行证在普通人群和场所的所有使用。这个政策还是在高感染率、高死亡率的背景下作出的根本改变。
-
-从2月7日开始，以色列人在进入酒店、餐馆、剧院和健身房等场所时，不再需要出示疫苗接种证明。但所谓的“高风险”活动，如婚礼和聚会，仍然需要证明。以色列政府还将继续保持一些限制措施，包括戴口罩，以及未接种疫苗者在“教育机构”每48小时提供一次阴性测试证明等。另外，没有接种疫苗的人士也可以从以色列登机，不再需要进行中共病毒测试，只要目的地国家不要求阴性证明即可。
-
-文字版原文：[以色列取消大部分疫苗通行证要求](https://gnews.org/zh-hans/1973574/)
-
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+总编：文特
+编辑：Zion文恩
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -29,7 +27,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

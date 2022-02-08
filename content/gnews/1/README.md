@@ -2,35 +2,24 @@
 ---
 
 
-## 有声|中共在冬奥会中收集运动员的基因
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1976125/)
+## 加拿大阿省议员：当世界上大部分国家取消疫苗限制时，特鲁多仍在尝试将无效的疫苗政策永久化，加拿大正在迅速变成一个异类
+` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1976183/)
 
-配音：香草山巡管部– 文凯琳
+#### 加拿大温哥华扬帆农场 视频组
 
+素材：文倩
+翻译：Kent
+字幕：文雅
 
+这些疫苗强制别无其他，它们只是惩罚性的，歧视性的，是违背加拿大价值观的，并且它们是不合时宜的。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+议长女士，因为在世界的其他地方，政府正朝着相反的方向发展，议长女士，但对这位总理（特鲁多）来说，这无关科学，无关数据，无关保护加拿大人的安全。
 
+它是为了短期的政治利益而分裂加拿大人，并欲以新冠为借口大幅扩张极权政府的规模、范围和控制。
 
+议长女士，事态并非必须这样发展，在世界上其他地方，情况并非如此，在议院的这一方，我们将尽一切努力确保它不会继续恶化，我们要让加拿大人能够再次控制他们的生活，并反对这种大范围的国家的过度统治，谢谢你议长女士。
 
-当地时间2月6日，前国务卿蓬佩奥在接受媒体采访时表示，他之所以抵制北京冬奥会不在于让运动员们失去竞技的机会，而是为所有去北京的运动员感到担忧。
-
-这个担忧来自三个方面。首先，美国认为奥运会只是一项活动，而中共却将奥运会当作宣传的工具，并且中共想要用奥运会来给自己洗白。其次，到达北京的运动员面临手机被监控，以及无法自由言论的危险。第三，蓬佩奥最担心的是除了数据信息，中共还将收集运动员的DNA信息，甚至将这些信息交给中共军方。
-
-文字版原文：[中共在冬奥会中收集运动员的基因](https://gnews.org/zh-hans/1973673/)
-
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
-
+编辑/发文：Kent
 
  
 
