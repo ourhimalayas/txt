@@ -2,13 +2,13 @@
 ---
 
 
-## 当喜贷款、喜抵押出现时，Hpay秒杀Paypal
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1973203/)
+## 大力推广Hpay将为您带来无限权益
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1973285/)
 
 文编：东京樱花团/樱花传媒
 视频：东京樱花团/中文小视频组
 
-2月4日，郭文贵先生在GTV大直播透露，PayPal、Stripe不但不兑现GTV用户的支付、扣押我们的支付款不退回，并且还要收取巨额手续费。这种流氓抢劫行为直接催生了H-Pay的问世！世界终将选择无中心化、支付秒到的H-Pay。当喜贷款、喜抵押、喜存款、甚至GETTR-Pay、GETTR-Vision等横空出世时，更将秒杀PayPal 、Stripe、Twitter及Facebook。
+2月2日，郭文贵先生在GTV大直播透露，郭先生建议战友们在所在国广泛推广Hpay。Hpay代理权回报率随着各种机能的上线，会无限变大。其中最重要的是，可以从未来的Hpay贷款和存款中获利。享受7%的Hpay存款利息的同时，根据战友们各自积累的Hpay能力和存款金额等信用条件，Hpay贷款还可以直接地，迅速地为大家提供融资机会。
 
 *编辑：东京樱花团/tdownc2p*
 *发布：东京樱花团/ 平安卿卿*

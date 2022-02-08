@@ -2,17 +2,27 @@
 ---
 
 
-## 重大喜事：鸡尾酒疗法将能排疫苗之毒
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1973260/)
+## 有声|世卫称57国出现Omicron变种，放松防疫还太早
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1973345/)
 
-文编：东京樱花团/樱花传媒
-视频：东京樱花团/中文小视频组
+配音：香草山巡管部 – 格格
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+据外媒报导，世界卫生组织表示，传播迅速且高度突变的Omicron变异株已成为全球主要流行病毒株，且更具传染力的Omicron亚型变异株BA.2也已出现在全球57国。 报导还指出，根据世卫（WHO）最新流行病学周报，过去一个月收集到的所有种类冠状病毒样本中，Omicron变异株占93%，并出现几个亚系：BA.1、BA.1.1、BA.2 及BA.3，说明该病毒仍在持续演化中。
 
-2月1日，郭文贵先生在GTV大直播透露，科学家们正在研究更高疗效的青蒿素鸡尾酒疗法，对打了毒疫苗的人，能彻底将疫苗清除干净。感染了中共冠状病经过该疗法后，百分之百有疗效，各项都通透了，且没有极端副作用。这个疗法如果能得到全面认证，又将是改变全世界一大贡献。
+文字版原文：[世卫称57国出现Omicron变种，放松防疫还太早](https://gnews.org/zh-hans/1964898/)
 
-*编辑：东京樱花团/tdownc2p*
-*发布：东京樱花团/ 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

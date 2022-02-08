@@ -2,27 +2,31 @@
 ---
 
 
-## 澳洲防长警告盟友需挺身抵抗中共 否则会失去未来十年
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1971187/)
+## 美国经济至暗时刻过后 将迎来快速反弹
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1972003/)
 
-**撰稿：日本东京方舟农场 Kevin wang**
+作者：银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+在2月4日的大直播中，郭文贵先生说，美国经济此次会经历前所未有的黑暗，在这个进程中，有的人会血本无归，有的人会扬帆直上。得益于美国本土地理条件与气候的均匀分布，对世界精英的深度吸引，对宗教与民主法治自由的广泛包容，在经济的至暗时刻过后，美国又将再一次引领人类高度文明，生物科技、量子电脑、太空科技、新型材料等领域都或将迎来全面民用普及。往常美国需要3-5年的经济自我调整期会加速缩短，这次大概可能只需要一年不到的时间。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-4.jpg)
+郭先生同时指出，美国资本主义社会务实和无情的特点，逼迫每个人只能往前看。从行业特点看来，越有能力的人越倾向于经济科技和哲学领域，越没能力的越会去从事政治。跟不上时代进步的永远会被抛在脑后，包括战友。美国此次的经济全面复苏也将带来世界经济的大爆发。
 
-2月7日，澳洲国防部长杜登警告称，澳洲及其盟国必须在南海议题上挺身抵抗中共，否则将会失去未来十年。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-65.png)（图片来自网络）
-中央社报道， 杜登表示，美国及其盟国过去一度采取「默许」态度，任由中共在主权有争议的南海航道上兴建人工岛，以及在珊瑚礁上兴建防卫基地。
+参考链接：[美国经济至暗时刻过后 将迎来快速反弹](https://gtv.org/video/id=61fd1a6596ba5d73e0c28b83)
 
-杜登强调，为了确保中共不会重复过去十年将南海军事化的做法，澳洲及盟国需要向中共表明立场，他称，假如任由目前情况发展下去，澳洲及盟国将会「失去下一个十年」。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
-报道称，杜登的发言与将于本周在墨尔本（Melbourne）举行的「四方安全对话」（Quad）外长会议有关。预料「四方安全对话」外长会议将会讨论美、日、澳、印四国该如何加强防卫及经济发展合作，以便对抗中共。
+总编：飞虹
+编辑：飞虹
+校对/发稿：Hetangyuese
 
-美国东亚暨太平洋事务助理国务卿康达（Daniel Kritenbrink）也表示，即将举行的「四方安全对话」外长会议的主要议题是关于如何因应「中共国所带来的挑战」。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-参考链接：
-[https://www.cna.com.tw/news/aopl/202202070037.aspx](https://www.cna.com.tw/news/aopl/202202070037.aspx)
-
-素材采编：Kevin wang
-编辑： 老孙
-发布：爱放飞
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 
