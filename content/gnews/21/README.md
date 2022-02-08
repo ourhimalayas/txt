@@ -2,25 +2,18 @@
 ---
 
 
-## 《历史上的今天》2022.02.08
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1974747/)
+## 秘翻在线：没有Facebook，Twitter的日子将会很美好
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1974973/)
 
-作者：映兰轩
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-76.png)[图片来源](https://www.google.com/url?sa=i&amp;url=https%3A%2F%2Fnews.ltn.com.tw%2Fnews%2Fworld%2Fbreakingnews%2F1599488&amp;psig=AOvVaw2mvJ0lglc2sMr4wiI4xwui&amp;ust=1644374199147000&amp;source=images&amp;cd=vfe&amp;ved=0CAsQjRxqFwoTCPCj9LyJ7_UCFQAAAAAdAAAAABAD)
-1. 1672年：艾萨克-牛顿在伦敦皇家学会面前宣读了第一篇光学论文
-2. 1945年：英加联军展开真实行动，扫荡莱茵河西岸的德军
-3. 1950年：东德成立国家安全机构史塔西
-4. 1971年：纳斯达克开始正式交易，纳斯达克综合股市指数首次出现，有50家公司，起始值为100
-5. 1974年：美国太空实验室再入地球
-6. 2002年：澳门博彩业经营权由澳门博彩股份有限公司、永利及银河夺得，结束了以何鸿燊为首的单一经营权的局面
-7. 2016年：香港因小贩管理问题引发一次严重警民冲突，是日为农历新年的年初一
-8. 2018年：美国道琼斯工业平均指数一周内第二次急挫过千点，收市跌1032点
-9. 2021年：南非停止推广牛津阿斯利康COVID-19疫苗，因为对南非变体的研究显示对轻度和中度疾病没有保护作用
+撰稿：葛大饼
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-08-202759.jpg)图片来源：technave
+根据2022年2月8日凤凰网报道，Meta上周四在年报中威胁欧洲称，如果无法继续将用户数据传输回美国，Meta将把Facebook和Instagram撤出欧洲。
 
+德国经济部长罗伯特·哈贝克(Robert Habeck)对此表示**：**“在被黑客攻击后，我已经四年没有使用Facebook和Twitter了，生活一直很美好。”法国财政部长布鲁诺·勒梅尔(Bruno Le Maire)则补充：数字巨头们必须明白，欧洲大陆将发起抵抗，捍卫其主权。
 
-* * *
+脸书Facebook和推特Twitter在这种人类终极大战中作为邪恶共产主义的帮凶和打手，掩盖中共病毒和真相，疯狂删帖和审查，已经引起公愤，这种媒体刽子手必将遭到全世界人民的抵制和抛弃，新世界的Gettr，GTV，G-news 一直向世人传播真相并且告诉人们如何用药预防和治疗病毒以及打中国病毒疫苗后的排毒方法，必将会受到世人的尊重！会有越来越多的人加入到Gettr，毕竟GETTR The Twitter Killer！
 
-*发布：Theodosia*
+**[新闻来源](https://finance.ifeng.com/c/8DLxWqgcaBZ)**
 
  
 

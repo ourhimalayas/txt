@@ -2,102 +2,25 @@
 ---
 
 
-## 沙克·奥尼尔对强制疫苗发表意见
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1974433/)
+## 《历史上的今天》2022.02.08
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1974747/)
 
-[https://gtv.org/video/id=6201dc6b585ecc15d73ed4c0](https://gtv.org/video/id=6201dc6b585ecc15d73ed4c0)
+作者：映兰轩
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-76.png)[图片来源](https://www.google.com/url?sa=i&amp;url=https%3A%2F%2Fnews.ltn.com.tw%2Fnews%2Fworld%2Fbreakingnews%2F1599488&amp;psig=AOvVaw2mvJ0lglc2sMr4wiI4xwui&amp;ust=1644374199147000&amp;source=images&amp;cd=vfe&amp;ved=0CAsQjRxqFwoTCPCj9LyJ7_UCFQAAAAAdAAAAABAD)
+1. 1672年：艾萨克-牛顿在伦敦皇家学会面前宣读了第一篇光学论文
+2. 1945年：英加联军展开真实行动，扫荡莱茵河西岸的德军
+3. 1950年：东德成立国家安全机构史塔西
+4. 1971年：纳斯达克开始正式交易，纳斯达克综合股市指数首次出现，有50家公司，起始值为100
+5. 1974年：美国太空实验室再入地球
+6. 2002年：澳门博彩业经营权由澳门博彩股份有限公司、永利及银河夺得，结束了以何鸿燊为首的单一经营权的局面
+7. 2016年：香港因小贩管理问题引发一次严重警民冲突，是日为农历新年的年初一
+8. 2018年：美国道琼斯工业平均指数一周内第二次急挫过千点，收市跌1032点
+9. 2021年：南非停止推广牛津阿斯利康COVID-19疫苗，因为对南非变体的研究显示对轻度和中度疾病没有保护作用
 
-Shaq O’Neal
-沙克·奥尼尔
-
-Look, I encourage everybody to be safe and take care of your family
-听着，我鼓励大家注意安全并照顾好你的家人
-
-I do, but there’s still some people that don’t wanna take it
-我接受疫苗，但仍有一些人不想接受它
-
-And you shouldn’t have to be forced to take something you don’t want
-你不应该被迫接受你不想要的东西
-
-Turner
-特纳
-
-I don’t think people are being forced to take …
-我不认为人们是被迫接受的……
-
-Well, there are some …
-嗯，有一些……
-
-There are, I mean, listen we have a mandate at CBS
-我的意思是，听着我们在CBS有强制
-
-Shaq O’Neal
-沙克·奥尼尔
-
-That’s forced
-那是强迫
-
-Turner
-特纳
-
-We have a mandate at CBS
-我们在CBS有强制
-
-But my, but my point …
-但是我的，但是我的观点……
-
-Shaq O’Neal
-沙克·奥尼尔
-
-That’s forced
-那是强迫
-
-Turner
-特纳
-
-where I wholeheartedly …
-我全心全意地…
-
-Shaq O’Neal
-沙克·奥尼尔
-
-That’s forced
-那是强迫
-
-Turner
-特纳
-
-No, it’s not forced
-不， 它不是强迫
-
-Shaq O’Neal
-沙克·奥尼尔
-
-It is forced
-它是强迫
-
-because if the man don’t take it, the man gonna get fired
-因为如果这个人不接受，这个人就会被解雇
 
 * * *
 
-Date:02/04/2022
-原视频标题: Shaq O’Neal weighs in on vaccine mandates
-沙克·奥尼尔对强制疫苗发表意见
-原视频日期：2022/02/04
-原视频链接: **[https://twitter.com/ginacarano/status/1489421001918083073?s=24](https://twitter.com/ginacarano/status/1489421001918083073?s=24)**
-任务编号：3666
-视频时间段 : 0:00-0:27
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场- 文新
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+*发布：Theodosia*
 
  
 

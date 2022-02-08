@@ -2,84 +2,92 @@
 ---
 
 
-## 微软、英特尔、通用电气向中共军方及安全机构提供支持
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1973243/)
+## 中日财经爆┃美国加强对中共出口管制 33家实体上榜
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1973444/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-772.png)2021 年 7 月 20 日，一名男子在北京微软当地总部前使用手机。(图源：法新社通过盖蒂图片社拍摄)
-《大纪元时报》2022年2月6日报道，根据总部位于华盛顿的游说组织——共产主义受害者纪念基金会(VoC)和地平线咨询顾问小组的一份新报告，八家美国主要科技公司与中共国军事和安全机构有业务联系。
+撰稿：东京樱花团/asket
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-777.png)[**图片来源**](https://gbcode.rthk.hk/TuniS/news.rthk.hk/rthk/ch/component/k2/1621343-20211125.htm)
+美国商务部2月7日宣布，将33家中共实体列入“未经核实名单”(Unverified List)。这些实体获得美国产品，将必须接受更严格的出口管控。美国商务部发表的声明说，美国官员无法对清单中这些实体进行核查，以确定这些实体的“善意”(bona fides)，因此必须对这些公司从美国出口商那裡获取产品实施新的限制。
 
-报告称：“在努力占领中国市场并提高利润的过程中，美国公司越来越多地支持北京的军事现代化、监控国家、国内安全化以及随之而来的侵犯人权行为。”
+被纳入出口管制清单的33家中国实体，大多数是电子企业、光学公司、涡轮叶片公司、大学的国家实验室和其他企业。包括中国航发南方工业有限公司（AECC South Industry Co., Ltd）、北京世维通科技公司（Beijing SWT Science）、济南邦德激光（Jinan Bodor CNC Machine）、湖南大学（Hunan University）等。
 
-它审查了八家美国公司在中共国的活动：亚马逊、苹果、戴尔、脸书、通用电气、谷歌、英特尔和微软，寻找“可能直接或间接支持中国的国家监控、军事现代化和侵犯人权行为的商业联系”。”
+1. AECC South Industry Co., Ltd.
 
-虽然报告中审查的所有公司都有与中共国有企业进行贸易往来的复杂历史，但报告发现，通用电气、英特尔和微软向中共国军方或国家安全组织提供了“直接支持”。
+2. Beijing SWT Science
 
-共产党军民融合，由美国科技公司提供
+3. Beijing Zhonghehangxun Technology Co., Ltd.
 
-美国公司为中国共产党提供资金支持已经不是什么秘密。建制派媒体多年来一直在暗示有利于中共专制主义的商业交易的普遍性。然而，新的报告确实为这种趋势的普遍性增加了新的细节。
+4. China National Erzhong Group Deyang Wanhang Die Forging Co., Ltd.
 
-事实上，据报道，涉及的公司在最高层帮助中共实施对中共国社会的军事化。
+5. Chuzhou HKC Optoelectronics Technology Co., Ltd.
 
-“苹果和英特尔的领导层多次与工业和信息化部(MIIT)的高层会面，工业和信息化部是中共国的一个领导实体，负责实施北京的军民融合战略，该战略将私营企业开发或收购的技术创新面向中共国军队。”报告说。
+6. Dongguan Durun Optical Technology Co., Ltd.
 
-军民融合指的是一种战略，即通过实现中国共产党的军事部门——人民解放军的现代化，动员全社会参与中华民族的“伟大复兴”。
+7. Dongguan Huiqun Electronic Co., Ltd.
 
-根据该战略，所有民用技术开发都被鼓励同时为军事功能服务。这给任何在中共国从事技术开发或研究的公司都带来了一个真正的问题。然而，对于有意与军事公司合作开发技术的公司来说，对美国以及对中国公民自由的威胁更为严重。
+8. Guangdong Guanghua Sci-Tech Co.
 
-然而，正如报告所详述的那样，与支持解放军和国家监控工作的中共国政权实体建立伙伴关系和接触并不罕见。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-773.png)2021年7月30日，在中共国上海举行的中国数字娱乐博览会和会议（也称为ChinaJoy）期间，参观者在英特尔展台前看到。(Aly Song/路透社)
-例如，英特尔向中共国的处理器和芯片设计公司蓝旗科技供货、投资，并与之进行技术合作。而蓝旗科技是由中国电子集团公司重金投资的，中国电子集团公司是一家国有国防公司，美国国防部已将其认定为军事实体。英特尔还与蓝旗科技开展了一项价值20亿美元的联合项目，以开发高性能处理器。
+9. Guangxi Intai Technology Co., Ltd.
 
-“英特尔的全球副总裁出席了[交易]的签署，中国电子的董事长兼[中共]党委书记也出席了。”报告称。此前，英特尔根据合同还与一家公司开展研究，为解放军提供人工智能技术。
-报告称：“英特尔的曝光率超过了在这项工作中接受调查的其他公司。”报告补充说：“英特尔投资于中国高科技和军民融合公司，可能会为它们提供资金和获得技术的机会。英特尔没有采取任何行动来遏制或终止这种有问题的关系。”
+10. Guangzhou Hymson Laser Tehnology Co., Ltd.
 
-同样，该报告发现通用电气与中共国军工联合体的主要参与者建立了技术合作伙伴关系。
+11. Harbin Xinguang Feitian
 
-“[通用电气]的合作伙伴关系似乎涉及技术共享，包括与中国军事、军民融合和监视系统的核心参与者。”报告称。
+12. Hefei Anxin Reed Precision Co., Ltd.
 
-这些参与者中包括被美国列为军事实体的国有国防公司中国航空工业集团公司和哈尔滨电气集团。值得注意的是，哈尔滨保持着一个专门的军民融合部门，专注于为解放军提供涡轮机技术。
+13. Heshan Deren Electronic Technology Co., Ltd.
 
-根据该报告，通用电气持有与哈尔滨合资的涡轮机企业 51% 的股份：通用电气-哈尔滨电力-南京涡轮能源服务公司。
+14. Hubei Longchang Optical Co., Ltd.
 
-报告称：“这些伙伴关系……授予与军方有联系的中国企业在通用电气的供应链中的杠杆地位，这对美国的国家安全及其制造基地都至关重要。”
-“而通用电气在中国的业务和合作伙伴关系，系统地使其暴露于与该国的强迫劳动和其他人权暴行有关的风险之中。”
+15. Hubei Sinophorus Electronic Materials Co., Ltd.
 
-与此同时，微软的创新中心是一个专注于人工智能的研究中心，其成员包括中国电信，中国电信是一家国有电信巨头，其在美国的运营许可因国家安全问题于 2021 年被吊销。
+16. Hunan University
 
-报告称，微软还与美国政府认定的与中共军方有关联或正在考虑出口限制的其他公司签署了战略合作协议。
+17. Jinan Bodor CNC Machine Co., Ltd.
 
-国内的虚伪，国外的权威主义
+18. Jiutian Intelligent Equipment Co., Ltd.
 
-可以肯定的是，在中共国做生意会越来越有风险。中共国存在多种法律和组织来收集专有数据，并将其用于为中共工作，因为中共认为数据本身就是一种“国家资源”。
+19. Kunshan Heng Rui Cheng Industrial Technology Co., Ltd.
 
-然而，VoC报告小心翼翼地指出，人们不应该仅仅认为在中共国做生意是错误的。相反，报告作者鼓励读者关注一些公司的道德双关语，即在倡导人权的同时，也为专制政权的镇压技术做贡献。
+20. Shanghai Fansheng Optoelectronic Science & Technology Co., Ltd.
 
-报告称：“美国企业参与者在美国说一件事，而在中国做（说）另一件事，这没有问题。”
+21. Shanghai Micro Electronics Equipment (Group) Co., Ltd.
 
-“当涉及到数字隐私时，这种虚伪尤其明显：像苹果、亚马逊、戴尔和英特尔这样在美国强调信息安全的公司，在存储和处理数据时也遵守中共国的监管要求。这会危及到反对该政权的中国用户以及全球用户的信息和他们的安全。”
+22. Shuang Xiang (Fujian) Electronics
 
-《大纪元时报》已要求通用电气、英特尔和微软发表评论。
+23. Southern University of Science and Technology
 
-**简评：**
-日内瓦公约是国际人道法的主要公约，确立了“区分原则”，要求在军事行动中把战斗员与非战斗员分开、军事目标与非军事目标分开，保护平民，不攻击非军事目标。而中国共产党所谓的“围绕密切同人民群众的血肉联系，厚植能打胜仗的力量根基”，其实就是让中国的老百姓用自己的血肉之躯做中共的铜墙铁壁。在中国这片土地上，一切的好事和荣誉都是中共的，说什么“爹亲娘亲不如党亲，是中国共产党养育了老百姓”；而到了需要抛头颅撒热血时，却要躲在老百姓的血肉长城和铜墙铁壁之后，其心何其毒也！西方的各级政府和企业也被各种蓝、金、黄、红渗透得很深，如果他们不觉醒，祸及的不仅是中国的老百姓，他们自己也将深受其害。
+24. Suzhou Chaowei Jingna Optoelectric Co., Ltd.
 
-新闻链接：[https://www.theepochtimes.com/microsoft-intel-ge-provide-direct-support-to-chinese-military-state-security-bodies-report\_4256768.html](https://www.theepochtimes.com/microsoft-intel-ge-provide-direct-support-to-chinese-military-state-security-bodies-report_4256768.html)
+25. Suzhou Gyz Electronic Technology Co., Ltd.
 
-翻译/简评：xiaofeimao
+26. Suzhou Lylap Mould Technology Co., Ltd.
 
-PR: Harvey（叶知秋）
+27. Wuxi Biologics Co., Ltd.
 
-* * *
+28. Wuxi Biologics (Shanghai) Co., Ltd.
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+29. Wuxi Turbine Blade Co., Ltd.
 
+30. Yunnan Fs Optics Co., Ltd.
 
-编辑：【英国伦敦喜庄园编辑部】
+31. Yunnan Tianhe Optoelectronic Co., Ltd.
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+32. Zhengzhou Baiwai Intelligent Automation
 
+33. Zhuzhou CRRC Special Equipment Technology Co.
+
+截止目前，这份名单上的实体总数大约达到了175个。
+
+商务部负责出口执法的助理部长，马修‧阿克塞尔罗德（Matthew Axelrod）在声明中说：“通过及时完成最终用途核查，来核实外国当事方的合法性与可靠性，是我们出口管控制度的一项核心原则。”他表示，将33家中国实体加入“未经核实名单”，将协助美国出口商从事尽职调查并评估风险，并向中共政府发出信号，表明他们在安排最终用户核查方面予以配合的重要性。
+
+美国商务部要求，美国公司与纳入名单的实体进行交易，必须进行额外的尽职调查，包括提交更多的文件。按照限制措施，美国出口商若想与被列入名单的中国公司交易，必须获得许可证。同时，美方提醒被列入清单上的公司必须证明自己是合法的，并且愿意遵守美国法规才能继续接收货物。
+
+信息来源： [**美国加强对华出口管制**** 33家中国实体上榜**](https://www.ntdtv.com/b5/2022/02/08/a103342431.html)
+
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

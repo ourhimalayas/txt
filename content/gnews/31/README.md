@@ -2,105 +2,28 @@
 ---
 
 
-## 中共利用奥运会作为宣传工具，来宣扬维吾尔人在中国与其他人一样受到对待的谎言
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1974345/)
+## 秘翻在线：中共国《古老的罪恶》——妇女买卖的地狱！
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1974727/)
 
-[https://gtv.org/video/id=6201db32585ecc15d73ed443](https://gtv.org/video/id=6201db32585ecc15d73ed443)
+**撰稿：Ping**
 
-Translator
-翻译
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-08-201931.jpg)
+中共国刑法规定，买卖妇女判处3年以下有期徒刑，而买卖一只鹦鹉判处5年以下有期徒刑，买卖20只蛤蟆判处3年以下有期徒刑。 所以，中共之下呢，一个妇女的价值，不如一只鹦鹉和20只蛤蟆的价值，中共所谓的妇女能顶半边天，实际上呢，妇女已经坠入了地狱，中共不灭，杨改兰事件，丰县被锁巴哈尔母亲的事件会不断的重演。
 
-I’m Uyghur，over the last three years
-我是维吾尔人，在过去的三年中
+1989年浙江文艺出版社出版的**《古老的罪恶—全国妇女大拐卖纪实》**一书 （请在文字结尾下载电子书阅读），详细记载了在1986年至1989年这三年中，仅徐州6个县（其中就含有丰县）就拐卖了48100名妇女。此书详述了被拐妇女的悲惨情形，其中人性冷漠令人发指。如今30年过去了，中共不断吹嘘中共国有多强大，但是妇女儿童的买卖却从来没有停止过。其野蛮的程度也从来没有终止过！
 
-I was taken to China’s government detention centers three times
-我被三次带到中国政府的看守所
+郭文贵先生在2月6日大直播中说，中共国长期进行的残酷和毫无人性的妇女人口买卖的状况，说明中共国女性根本没有人权可言。中共国的人民在思想里和境界里就没有把女人和男人等同过。只是中国女人自我感觉自己和男人平等。这就是为什么全中国社会女人被贩卖，但没有任何人认识到这是男女不平等的事实。
 
-Now I would like to tell you about what I experienced in these camps
-现在我想告诉你我在这些营地的经历
+郭先生讲述他本人当年在老家，看到买媳妇的事情，也没有觉得不正常。这是在89年以前的事儿。在中国这个社会中，由于对女性的定位，人们觉得女人就该买。女性就是工具，就是商品，就是要被买卖。谈到中国女性的人权，谁要说妇女是中国半边天，这是对中国人的一个最大的误区，以为女人有尊严，实际女人是中国最惨的人群！
 
-I was arrested at the airport and my two month old triplets were taken away
-我在机场被捕并且我的两个月大的三胞胎被带走
+而这一点和西方对比，可以看到西方的伟大。在西方，只要绑架女性，就要使用绞刑惩罚。这就是东西方的差距。共产党的老杂毛们完全不懂得这样的人类文明。曾经郭先生问过中国当年执政最牛的女性吴仪，怎么看待半边天这个说法？吴仪说，在中国这个国家，女人但凡出人头地，要么有色，要么有一个阴毒的心。老杂毛们就选长得好看的，生辰八字合的女性用来作为生孩子的工具。吴仪说，如果你漂亮，你就有生存的空间。另外，你就是要心狠歹毒，啥都能干，变态。女贪官被抓起来以后，发现她们都比男的狠。所以在中国，女性是没有半边天的，女性是共产党执政的工具，是全社会的工具。没有人想过，妈妈那么辛苦，这是不是不公平。中国女性从任何角度都没被公平对待过，特别是在中国这种男性的社会。在中国法律中，已经认为绑架是习以为常的事情，是合理的。这是一个巨大的对人权的讽刺。在西藏和新疆，女孩儿但凡有点姿色的都会被选出去，以音乐团、文工团的形式成为了祭品和贡品。总有人来享受你的青春和魅力。你就是贡品和‘性’品。
 
-The officers handcuff me, put a dark sack over my head
-警察给我戴上手铐，在我头上套上一个黑布袋
+中共国每年公布的所谓人口丢失30万，到后来的100万。郭先生曾和公安部的部长深度探讨过，他们说中国这个十几亿人口的国家，每年得有个三到五百万人丢失，被干掉了，找不着了的都有。什么叫破案率？就是破了案就算立案，不破不立，我破了案再立案，破不了的案子就不立案。那肯定破案率百分之百，就跟选举选票一样。中国人的愚蠢，中国人被愚弄，从生殖器官开始，女人的半边天和女人的被绑架，要么是人家的玩具，要么你邪恶歹毒。
 
-and took me to a detention center
-并带我去了看守所
+当前中共国每年有100多万的妇女被当作商品一样被买卖，这些女人活在地狱中。郭先生在大直播中广征良策，请广大有良知的中国人献计献策，解救我们的姐妹脱离苦海！
 
-My oldest son had died in their hands
-我的大儿子死在他们手中
-
-In April 2017, I was taken to a detention center for the second time
-2017年4月，我第二次被带到看守所
-
-I was interrogated for four days and nights without sleep
-我被审问了四天四夜，不眠不休
-
-We had to sing songs hailing the Communist Party
-我们不得不唱歌颂共产党的歌
-
-we had to repeat in Chinese “ Long live Xi Jinping”
-我们不得不用中文重复“习近平万岁”
-
-Anyone who could not memorize a book of slogans and rules within 14
-任何不能在14 天内记不住口号书的人
-
-days, would be denied food or beaten
-将被剥夺食物或殴打
-
-I also experienced torture in a “tiger chair”
-我也经历过“老虎凳”的折磨
-
-The second time I was detained
-我第二次被拘留
-
-I was taken to a special room and a place in a highchair
-我被带到一个特殊的房间和有一个高脚椅的地方
-
-The guards put the helmet on my shaved head
-警卫把头盔戴在我剃光的头上
-
-Each time I was electrocuted, my whole body would shake violently
-每次我被电击全身都会剧烈颤抖
-
-And I could feel the pain in my veins
-我能感觉到我血管里的疼痛
-
-I thought I would rather die than go through this torture
-我以为我宁愿死也不愿经历这种折磨
-
-I begged them to kill me
-我求他们杀了我
-
-I still remember the words of the officers
-我还记得那些警察的话
-
-And I asked what my crime was
-我问我犯了什么罪
-
-They said: “being a Uyghur is a crime”
-他们说：“做为一名维吾尔人是一种犯罪”
-
-* * *
-
-Date:02/06/2022
-原视频标题: The CCP is using the Olympics as a propaganda tool to push the lie that Uyghurs are treated like everyone else in China
-中共利用奥运会作为宣传工具，来宣扬维吾尔人在中国与其他人一样受到对待的谎言
-原视频日期：2022/02/06
-原视频链接:https://twitter.com/morganortagus/status/1489782348401061895?s=24
-任务编号：KE386（3683）
-视频时间段 : 0:00-1:42
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-青梅煮酒
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[古老的罪恶-全国妇女大拐卖纪实-by-谢致红-贾鲁生](https://assets.gnews.org/wp-content/uploads/2022/02/古老的罪恶-全国妇女大拐卖纪实-by-谢致红-贾鲁生.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/02/古老的罪恶-全国妇女大拐卖纪实-by-谢致红-贾鲁生.pdf)
 
  
 
