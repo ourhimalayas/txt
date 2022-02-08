@@ -2,23 +2,45 @@
 ---
 
 
-## 新闻集团遭黑客入侵 部分电邮和文件被中共关联人员窃取
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1973074/)
+## 联合国报告：朝鲜无视国际制裁，继续推进武器研发
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1973110/)
 
-**撰稿：日本东京方舟农场  海星**
+整理报道:Sara9
+编辑：文泓
 
-2月4日，美国华尔街日报出版商新闻集团披露，该集团遭到了黑客的入侵，部分记者的电子邮件和文件被窃取。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-108.jpg)（图片来源：Getty Images）
-据《路透社》报导，新闻集团于2月4日表示，该集团在1月下旬时发现黑客入侵，部分员工包括记者的电子邮件和文件被窃取，影响了总部、新闻技术服务公司(News Technology Services)、道琼斯、News UK和纽约邮报的业务。随后，该公司聘请了网络安全公司Mandiant来协助调查此次黑客入侵事件。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/dfdr.jpg)
 
-经过调查，Mandiant公司咨询部副总裁David Wong表示，黑客与中共有联系，他们可能在进行间谍活动，收集有利于中共利益的情报。新闻集团的高管们也在初步分析后表明，外国政府可能也参与了该事件。
 
-参考链接：
-[https://cn.reuters.com/article/wsj-news-group-hacking-0207-idCNKBS2KC02H](https://cn.reuters.com/article/wsj-news-group-hacking-0207-idCNKBS2KC02H)
 
-素材采编：海星
-编辑：老孙
-发布：爱放飞
+图片来源：Sputniknews.cn
+
+
+当地时间2月6日，据美国之音报道，根据法新社看到的一份联合国机密报告，尽管受到国际社会制裁，但去年朝鲜仍继续发展其核计划和导弹计划。
+
+目前，因其武器计划朝鲜受到重大制裁，包括禁止煤炭、铁、铅、纺织品、海产品等商品的出口。虽然去年没有朝鲜进行核试验或洲际弹道导弹试射的报道，但平壤在继续发展“核裂变材料的生产能力”。
+
+报告指出，朝鲜“仍在继续维护和发展其核及弹道导弹基础设施，并为这些项目继续在海外寻找材料、技术和知识，包括通过网络手段和联合科学研究。”
+
+朝鲜还发起网络攻击，尤其是针对加密货币资产，以此作为朝鲜政权财政收入的主要来源。
+
+同时，联合国专家注意到，朝鲜非法进口的精炼油质量急剧提高
+
+虽然西方国家不断向平壤加大施压，但是北京和莫斯科却呼吁，基于人道主义的原因，放松对朝鲜的制裁，并且敦促西方国家在与朝鲜领导人金正恩打交道时，要更加灵活。
+
+今年1月，朝鲜进行了前所未有的7次武器试验，包括试射了2017年以来威力最大、射程最远的中程弹道导弹。平壤曾暗示，要重启核试验和远程弹道导弹试验。
+
+众所周知，朝鲜最大的金主就是中共国，在中共的授意下，朝鲜配合中共在台海、南海的军事行动，导弹试射频率不断提升。因此，让朝鲜肆无忌惮的原因依然是中共国。
+
+新闻链接：[联合国报告：朝鲜无视制裁 继续推进武器研发](https://www.voachinese.com/a/north-korea-presses-ahead-with-weapons-development-despite-sanctions-un-report-20220206/6429551.html)
+
+发布：星谕
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,47 +2,30 @@
 ---
 
 
-## 澳大利亚必须与中共国抗衡，否则将“失去下一个十年”
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1972726/)
+## 美商务部将33家中共国实体纳入“未经核实名单”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1972759/)
 
-#### 【雅典娜观察】，与您一起洞察世界
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Unknown-7.jpg)美商务部将33家中共国实体纳入“未经核实名单” 网络图片
+据美国之音2月8日报道，美国商务部的工业与安全局(BIS)7日宣布将33个总部在中共国的实体列入“未经核实名单”，对这些实体公司实施新的限制，并要求与这些公司有业务往来的美国公司进行额外调查。此次被纳入名单的多数是电子公司。纳入这33个实体后，该榜单上的公司总数达到了175个。
 
-整理报道:Sara9
-编辑：文泓
+按照限制措施，美国出口商若想向这些公司发货，必须获得许可证。而这些公司若希望继续接受美国的货物，必须证明其合法性、真实性和可靠性，而且愿意遵守美国的法规，在接收美国产品之后不会将其挪作他用。美国政府尤其担心产品到了中共国后会被挪作军用。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/FX9_V444PZP7AF2DF80.png)图片来源：雅典娜设计组
+这些检查通常需要与中共政府协调进行。当美国无法检查或核实后，便可能将其纳入“未经核实名单”。如果同意接受检查并证明其合法，该公司有可能被移除出名单。中共从前像八爪鱼一样四处渗透美国，各行各业都布置了暗藏的力量。美国开始出台一系列法规，通过一系列措施来斩断和挖掘中共国延伸进来的和潜伏的力量。中共靠偷和骗招摇过市的好日子一去不复返了，尤其是病毒和疫苗灾难对全世界的伤害，中共即将面对全世界的追责，制裁只是第一步。
+
+新闻参考链接：[https://www.voachinese.com/a/commerce-department-adds-33-parties-in-prc-to-unverified-list-20220207/6431365.html](https://www.voachinese.com/a/commerce-department-adds-33-parties-in-prc-to-unverified-list-20220207/6431365.html)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-2月7日，据《时代报》报道，澳大利亚防长彼得·达顿警告说，除非澳大利亚在南中国海与中共国抗衡，否则澳大利亚及其盟国将“失去下一个十年”。而且，他非常有信心第一艘澳大利亚核潜艇将在2038年之前抵达。
+编辑：【英国伦敦喜庄园编辑部】
 
-达顿表示，美国及其盟国此前曾在有争议的航道上“默许”北京，允许其在珊瑚礁中建造人工岛屿和防御基地。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-目前，公开谈论中国对澳大利亚很重要，主要有两个原因，教育澳大利亚公众，并确保不会重演过去十年北京将南海军事化的情况。
 
-“我认为我们已经失去了相当长的一段时间，中国曾经保证他们在南海的活动”，达顿先生告诉记者：“而美国和其他国家默许并允许其南海军事化，现在中国在南海拥有20个人工岛基地，这不利于该地区的稳定。”
-
-达顿防长的评论是在美国国务卿安东尼·布林肯抵达澳大利亚之前发表的。
-
-目前，四方会谈的四个国家——美日印澳将寻求加强在安全和发展援助方面的合作，以联合对抗中共国。
-
-澳洲国防专家越来越担心澳大利亚是否拥有足够大的军队来帮助维持该地区的稳定，随着该国人口和经济相对于亚洲其他地区的萎缩，这种差距在未来几年将越来越大，而澳洲的国防预算将不断突破。
-
-澳大利亚战略政策研究所高级分析师马库斯·赫利尔表示，虽然远程导弹射程可以到达中国大陆，但未来澳洲将越来越难以抵御中共国。
-
-这就是为什么澳大利亚政府打算让美国对该地区做出承诺。
-
-“这就是为什么像达顿防长会加大谈话力度的原因——因为正是这种认识表明，如果美国一旦失控，我们就会直接暴露在中共国面前，”赫利尔博士说。
-
-新闻链接：[Peter Dutton says Australia must stand up to China or risk “losing next decade’ (smh.com.au)](https://www.smh.com.au/politics/federal/australia-will-lose-next-decade-unless-it-stands-up-to-china-dutton-20220112-p59ntk.html)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

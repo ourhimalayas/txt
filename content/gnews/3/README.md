@@ -2,39 +2,31 @@
 ---
 
 
-## 法院对渥太华市中心发出 10 天的鸣喇叭禁令
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1973051/)
+## 2月7日0时起，广西百色全员居家隔离
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1973103/)
 
-2022-02-07
-作者：Grayson Quay
-翻译：沉默老哥
-![](https://assets.gnews.org/wp-content/uploads/2022/02/KIOTO3J47ZJBR6V53F.png)图片来源：https://www.singtao.ca/
-据加拿大广播公司报道，一名加拿大法官周一发布了一项为期 10 天的禁令，禁止抗议的卡车司机在渥太华市中心按喇叭。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Unknown-9.jpg)2月7日0时起，广西百色全员居家隔离 网络图片
+据澎湃新闻2月7日报道，中共国广西百色市新冠肺炎疫情防控工作领导小组指挥部发布《关于全员居家隔离的通告》，百色市从2月7日0时起全员居家隔离，解除时间视疫情另行通告。
 
-渥太华高等法院的休·麦克莱恩大法官说：“按喇叭并不是我所知道的任何伟大思想的表达” 。他还表示，禁止鸣喇叭不会剥夺示威者抗议的权利。
+居家隔离期间，学校和各类培训机构全部停课、公共交通停运。除了购买必须的生活物资以及进行核酸检测外，非必要不出门。购买生活物资尽量选择配送服务。除保供应的超市、农贸市场、医院、药店外，其他经营场所一律停业。保障防疫、医疗服务、志愿者等人员持特定通行证可以在百色市通行。
 
-记者 Élie Cantin-Nantel 在推特上表示，到目前为止，卡车司机似乎遵守了禁令。
+新中国联邦的郭文贵先生曾经爆料过，中共国的防疫和隔离都是政治需要，从来不是疫情需要，因为中共从来不在于老百姓的生命。有需要就满足需求，隔离到饿死、病死人，死多少人都在所不惜。中共的邪恶本质在这场病毒和疫苗事件中显露无疑，中共国人民如果再不起来反抗，不推翻中共，中国人民的灾难不会停止。
 
-根据 CBC，“禁令请求来自拟议的集体诉讼”。
+新闻参考链接：[http://www.thepaper.cn/newsDetail\_forward\_16593394](https://www.thepaper.cn/newsDetail_forward_16593394)
 
-抗议者还做饭、建造充气城堡、举行即兴舞会和打街头曲棍球。
+* * *
 
-地方政府和执法部门已多次尝试阻止或至少阻止抗议活动。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-上周，渥太华警方说服 GoFundMe 删除已筹集超过 1000 万加元的“自由车队 2022”筹款活动。 几名美国共和党人发誓要对该公司是否欺诈捐助者进行调查。
 
-据彭博社报道，渥太华市长吉姆沃森周日宣布进入紧急状态，声称抗议活动“对居民的安全和保障构成了严重危险和威胁”。
+编辑：【英国伦敦喜庄园编辑部】
 
-渥太华警方也在努力切断卡车司机的燃料供应，周一警告说，“任何人被发现将燃料带到红色区域的示威卡车上，都可能受到逮捕和指控” 。福克斯新闻报道称，据渥太华警方称，“已有 7 人被捕，100 多人因‘与示威有关的执法’而被开罚单”。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-来源链接：[Court issues 10-day ban on honking in downtown Ottawa](https://theweek.com/protests/1009895/court-issues-10-day-ban-on-honking-in-downtown-ottawa?amp)
 
-编辑：LILY
-发布：肥鯮
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
