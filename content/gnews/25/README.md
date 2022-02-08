@@ -2,105 +2,44 @@
 ---
 
 
-## 中共利用奥运会作为宣传工具，来宣扬维吾尔人在中国与其他人一样受到对待的谎言
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1974345/)
+## 短视频：印第安纳州医生因拒绝接种新冠疫苗被迫停职
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1974360/)
 
-[https://gtv.org/video/id=6201db32585ecc15d73ed443](https://gtv.org/video/id=6201db32585ecc15d73ed443)
+翻译：Annabelle
+校对：精靈藍|
+剪辑字幕：Biggod
+编辑：文泓
 
-Translator
-翻译
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/2-1-4.png)图片来源：视频截屏
 
-I’m Uyghur，over the last three years
-我是维吾尔人，在过去的三年中
 
-I was taken to China’s government detention centers three times
-我被三次带到中国政府的看守所
+他是在印第安那波利斯市一个遵循科学的儿科医生，但是因为拒绝服从他们医院的强制疫苗政策而被停职。
 
-Now I would like to tell you about what I experienced in these camps
-现在我想告诉你我在这些营地的经历
+接下来有请Paul Halczenko博士，
 
-I was arrested at the airport and my two month old triplets were taken away
-我在机场被捕并且我的两个月大的三胞胎被带走
+博士非常感谢来我们这里。现在我们知道疫苗不会阻止Omicron的传播，可医院为什么非要强迫你打呢？
 
-The officers handcuff me, put a dark sack over my head
-警察给我戴上手铐，在我头上套上一个黑布袋
+呃，早上好，我也没有答案啊，先生。
 
-and took me to a detention center
-并带我去了看守所
+**我同意你说的，科学已经详尽地阐述了疫苗根本不可能阻止（病毒）传播。**
 
-My oldest son had died in their hands
-我的大儿子死在他们手中
+你也看到在不少的法律诉讼案里讲到的案例，以及许多我们医疗领域的带头人做的这方面信息的声明。
 
-In April 2017, I was taken to a detention center for the second time
-2017年4月，我第二次被带到看守所
+如果一个妈妈因为你没打疫苗而不敢带她的孩子去见你，你会怎么说呢？
 
-I was interrogated for four days and nights without sleep
-我被审问了四天四夜，不眠不休
+我首先会说，自从大瘟疫以来我一直都在给儿童看病，一直都在使用医疗领域所称的个人防护设备。
 
-We had to sing songs hailing the Communist Party
-我们不得不唱歌颂共产党的歌
+我们能够阻止被传染的病人和健康护理人员之间的传播，反过来也一样。而我确实是按照科学按照医院的个人防护措施设备来做的。
 
-we had to repeat in Chinese “ Long live Xi Jinping”
-我们不得不用中文重复“习近平万岁”
+视频链接：[Indiana doctor placed on leave from hospital for refusing COVID vaccine | On Air Videos | Fox News](https://video.foxnews.com/v/6290444175001#sp=show-clips)
 
-Anyone who could not memorize a book of slogans and rules within 14
-任何不能在14 天内记不住口号书的人
-
-days, would be denied food or beaten
-将被剥夺食物或殴打
-
-I also experienced torture in a “tiger chair”
-我也经历过“老虎凳”的折磨
-
-The second time I was detained
-我第二次被拘留
-
-I was taken to a special room and a place in a highchair
-我被带到一个特殊的房间和有一个高脚椅的地方
-
-The guards put the helmet on my shaved head
-警卫把头盔戴在我剃光的头上
-
-Each time I was electrocuted, my whole body would shake violently
-每次我被电击全身都会剧烈颤抖
-
-And I could feel the pain in my veins
-我能感觉到我血管里的疼痛
-
-I thought I would rather die than go through this torture
-我以为我宁愿死也不愿经历这种折磨
-
-I begged them to kill me
-我求他们杀了我
-
-I still remember the words of the officers
-我还记得那些警察的话
-
-And I asked what my crime was
-我问我犯了什么罪
-
-They said: “being a Uyghur is a crime”
-他们说：“做为一名维吾尔人是一种犯罪”
-
-* * *
-
-Date:02/06/2022
-原视频标题: The CCP is using the Olympics as a propaganda tool to push the lie that Uyghurs are treated like everyone else in China
-中共利用奥运会作为宣传工具，来宣扬维吾尔人在中国与其他人一样受到对待的谎言
-原视频日期：2022/02/06
-原视频链接:https://twitter.com/morganortagus/status/1489782348401061895?s=24
-任务编号：KE386（3683）
-视频时间段 : 0:00-1:42
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-青梅煮酒
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+发布：文泓
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,20 +2,24 @@
 ---
 
 
-## 把好处全给战友
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1974790/)
+## 爆料革命大事记——隔空取钱
+` 新西兰农场【光影传镜】` [轉載自GNews](https://gnews.org/zh-hans/1974881/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-05_20.44.17.png)
+「20220204」 国内现有专门收人民币的渠道来购买HDO，请和各农场联系。
 
-*发布：陶子*
+只要中共不关闭支付渠道，比如支付宝，微信等，就能办到，一分手续费不要，金额上不封顶，瞬间到账。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+现人民币去纸币化几乎达到90%，只要银行电子化，人民银行和中转行都在，就能在中共的防火墙上开个洞，进行交易转账，近期已经完成了12亿以上的交易金额。
+
+目前该功能还没普及，只有个别授权农场开展，半年会在墙内公开普及，到时可进行任何币的转换。
+
+图文设计：新西兰农场设计组
+上 传：F
+
+
+
+
 
  
 

@@ -2,102 +2,146 @@
 ---
 
 
-## 沙克·奥尼尔对强制疫苗发表意见
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1974433/)
+## 加拿大疫苗制造的大流行！7成中共病毒死亡者完全接种了疫苗
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1974497/)
 
-[https://gtv.org/video/id=6201dc6b585ecc15d73ed4c0](https://gtv.org/video/id=6201dc6b585ecc15d73ed4c0)
+编译：sherryok (水云间)
 
-Shaq O’Neal
-沙克·奥尼尔
+**疫苗（新冠疫苗）
+中共病毒（新冠病毒covid-19）**
 
-Look, I encourage everybody to be safe and take care of your family
-听着，我鼓励大家注意安全并照顾好你的家人
+**我们不反疫苗，只针对假疫苗
+我们不反科学，只针对反人类**
 
-I do, but there’s still some people that don’t wanna take it
-我接受疫苗，但仍有一些人不想接受它
+**据加拿大官方的调查数据，在最近****​​****一次冲击国家的中共病毒感染浪潮中，加拿大每**** 10 ****例中共病毒患者中有 9例完全接种疫苗，每****10 ****例死亡病例中有****7例****完全接种疫苗。**
 
-And you shouldn’t have to be forced to take something you don’t want
-你不应该被迫接受你不想要的东西
+**尽管** **加拿大每**** 10 ****人中只有**** 6 ****人完全接种了疫苗；该数据揭示中共病毒疫苗**** ****注射不仅不起作用，实际上使被注射者情况变得更糟。**
 
-Turner
-特纳
+加拿大政府发布其官方中共病毒数据的方式让人觉得加拿大正在经历一场“因未接种疫苗者引起的大流行”，并且疫苗仍然是有效的。
 
-I don’t think people are being forced to take …
-我不认为人们是被迫接受的……
+但是，这些数据呈现出来的是一个假象，深入分析这些数据就能发现，加拿大实际上正经历着一个完全由疫苗造成的大流行，而且情况每周都在恶化。
 
-Well, there are some …
-嗯，有一些……
+加拿大中共病毒数据由加拿大政府编制。
 
-There are, I mean, listen we have a mandate at CBS
-我的意思是，听着我们在CBS有强制
+第 20 页起包含从 2020 年 12 月 14 日加拿大发起的疫苗运动，直到 2022 年 1 月 15 日的中共病毒患者，住院和死亡人数。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/PHOTO-2022-02-08-19-00-54.jpg)
+[*来源*](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;client=webapp&amp;u=https://health-infobase.canada.ca/covid-19/epidemiological-summary-covid-19-cases.html)
 
-Shaq O’Neal
-沙克·奥尼尔
+因为政府执意显示追溯到2020年12月14日的总数，这存在极大的误导。
 
-That’s forced
-那是强迫
+下图显示从 2020 年 3 月到 2022 年 2 月加拿大的 中共病毒死亡人数，你能看到2021 年 1 月有一个死亡高峰。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/PHOTO-2022-02-08-19-03-07-9.jpg)
+在这个高峰期， 2021 年 1 月 31 日前，加拿大只有 3% 的人口完全实现完全疫苗接种。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/PHOTO-2022-02-08-19-03-07-10.jpg)
+加拿大政府将这期间的住院和死亡人数，包括在自 2020 年 12 月 14 日以后的数据中，尽管当时加拿大仅 113,624 人接种了疫苗，以此造成民众认为随后的疫苗接种效果显著，加拿大正经历的大流行是由未接种疫苗人士引起。
 
-Turner
-特纳
+但是正如你看到的， 2021 年 12 月底中共病毒死亡人数开始迅速增加，并感谢网站时光机功能，我们可以看到政府每日大流行更新报告，找出是什么人构成死亡，住院和感染的主要数据，很不幸，都是完全接种了疫苗的人。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/PHOTO-2022-02-08-19-03-07-12-1.jpg)
+[*来源*](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;client=webapp&amp;u=https://web.archive.org/web/20211201151825/https://health-infobase.canada.ca/covid-19/epidemiological-summary-covid-19-cases.html)
 
-We have a mandate at CBS
-我们在CBS有强制
+2020 年 12 月 14 日 至 2021 年12 月 4 日期间，中共病毒死亡、住院和感染的人数。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/PHOTO-2022-02-08-19-03-07-11-1.jpg)
+[*来源*](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;client=webapp&amp;u=https://web.archive.org/web/20211223170506/https://health-infobase.canada.ca/covid-19/epidemiological-summary-covid-19-cases.html)
 
-But my, but my point …
-但是我的，但是我的观点……
+2020 年 12 月 14 日 至 2022 年 1 月 8 日 期间，中共病毒死亡、住院和感染的人数。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/PHOTO-2022-02-08-19-03-07-13.jpg)
+[*来源*](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;client=webapp&amp;u=https://web.archive.org/web/20220201164337/https://health-infobase.canada.ca/covid-19/epidemiological-summary-covid-19-cases.html)
 
-Shaq O’Neal
-沙克·奥尼尔
+表格取自加拿大政府之前发布的报告，可在网站时光机的帮助下找到，现在我们所做的就是在上面进行简单的减法，以推断出谁是造成加拿大最新一波中共病毒大流行中住院，感染和死亡人数的主要原因。
 
-That’s forced
-那是强迫
+中共病毒感染人数
 
-Turner
-特纳
+下图显示了2021 年11月 14 日至 12 月 4 日间加拿大各地按时发布的中共病毒数据。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/PHOTO-2022-02-08-19-03-08-2.jpg)
+您能看到，完全接种疫苗的人占多数，有 22,033 个病例的例子。而未接种疫苗人数仅 13,727 个病例。很快，情况变得更糟。
+下图是 2021 年 12 月 5 日至2022 年 1 月 15 日期间中共病毒 的感染人数。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/PHOTO-2022-02-08-19-03-08.jpg)
+没错，在 2021年12 月 5 日至2022年 1 月 15 日期间， 50 万例中共病毒病例确实是完全接种疫苗的人，而未接种疫苗的人只有 61,972例。
 
-where I wholeheartedly …
-我全心全意地…
+下图显示了 2022 年 1 月 9 日至 1 月 15 日期间加拿大各地按疫苗接种状态划分的中共病毒 病例数，让我们可以看到最近 7 天数据中病例的分布情况。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/PHOTO-2022-02-08-19-03-08-3-1.jpg)
+同样，你没有看错，完全接种疫苗的人在 7 天内超过 100,000 例感染人数，而未接种疫苗的病例刚超过 10,000 例。
 
-Shaq O’Neal
-沙克·奥尼尔
+下图显示了从2021年 11 月 13 日至 12 月 4 日、2021 年 12 月 5 日至2022 年 1 月 15 日以及20 22 年 1 月 9 日至 1 月 15 日三个时间段，加拿大按疫苗接种状态划分的中共病毒病例百分比。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/PHOTO-2022-02-08-19-03-07-8.jpg)
+在 2021年11 月 13 日至 12 月 4 日期间，完全接种疫苗的病例占 64%，而未接种疫苗的病例占 36%。
 
-That’s forced
-那是强迫
+快进 1 个月，我们发现在 2021年12 月 5 日至 2022 年 1 月 15 日期间，完全接种疫苗的人占感染病例的 89%，而未接种疫苗的人仅占 11%。我们还看到最近 7 天的感染分布完全相同。
 
-Turner
-特纳
+但我们可以向您保证，这与已完全接种疫苗的人口百分比无关。根据2022年1月15日[加拿大政府最近的报告](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;client=webapp&amp;u=https://health-infobase.canada.ca/covid-19/epidemiological-summary-covid-19-cases.html)，截至 1 月 22 日，共有 2260 万人被认为完全接种了疫苗，而 2430 万人至少接种了一剂疫苗。
 
-No, it’s not forced
-不， 它不是强迫
+截至 2020 年，加拿大人口官方估计为 3801 万。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/PHOTO-2022-02-08-19-03-07-14.jpg)
+因此，36% 的人口未接种疫苗，5% 的人口部分接种疫苗，59% 的人口完全接种疫苗。然而，加拿大政府最近的中共病毒数据显示，89% 的病例发生在接种疫苗的人当中，其中98%的人已经完全接种了疫苗。
 
-Shaq O’Neal
-沙克·奥尼尔
+这不仅清楚证明中共病毒疫苗不能阻止病毒的感染或传播，更显示出疫苗使接者更有可能被感染及传播病毒。
 
-It is forced
-它是强迫
+中共病毒住院人数
 
-because if the man don’t take it, the man gonna get fired
-因为如果这个人不接受，这个人就会被解雇
+下图 2021年11 月 14 日至 12 月 4 日在加拿大各地按疫苗接种状态划分的中共病毒住院人数。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/PHOTO-2022-02-08-19-03-07.jpg)
+您可以看到，没有接受疫苗的占了大多数，但人数很少，仅为 1,536 人，完全接种病毒的人住院人数为 805 人。看看一个月后情况如何转化。
 
-* * *
+下图是 2021 年 12 月 5日 至 2022 年 1 月 5 日 期间， 全国各地按疫苗接种状态划分的住院人数。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/PHOTO-2022-02-08-19-03-06.jpg)
+未接种疫苗人的住院人数比上月翻倍，但是接种疫苗的住院人数却别2021年11月14 至12月4日期间增长了8倍；
 
-Date:02/04/2022
-原视频标题: Shaq O’Neal weighs in on vaccine mandates
-沙克·奥尼尔对强制疫苗发表意见
-原视频日期：2022/02/04
-原视频链接: **[https://twitter.com/ginacarano/status/1489421001918083073?s=24](https://twitter.com/ginacarano/status/1489421001918083073?s=24)**
-任务编号：3666
-视频时间段 : 0:00-0:27
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场- 文新
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+这一情况在最近的7天更糟。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+下图了2021年 12月 5日 至2022年  1 月 5 日 期间，全国各地按疫苗接种状态划分的住院人数。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/PHOTO-2022-02-08-19-03-07-2.jpg)
+2022年1 月 9 日至 1 月 15 日（为期 7 天）期间，未接种疫苗的住院人数比2021年 11 月 14 日至 12 月 4 日（为期21 天）的住院人数减少约 400 人。但在 2021年12 月 9 日至2022年 1 月 15 日期间，完全接种疫苗的住院人数是2021年11 月 14 日至 12 月 4 日期间住院人数的 3.5 倍。
+
+下图显示了从2021年 11 月 13 日至 12 月 4 日、21 年 12 月 5 日至 22 年 1 月 15 日以及 22 年 1 月 9 日至 1 月 15 日，加拿大按疫苗接种状态划分的中共病毒住院人数。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/PHOTO-2022-02-08-19-03-07-7.jpg)
+在 2021 年 11 月 13 日至 12 月 4 日期间，未接种疫苗者占住院人数的 63%，而接种疫苗者占住院人数的 36%。
+
+但快进 1 个月，我们发现在2021年 12 月 5 日至20 22 年 1 月 15 日期间，完全接种疫苗的人占 中共病毒住院人数的 69%，而未接种疫苗的人仅占 31%。
+
+最近 7 天情况变得更糟，加拿大政府的数据显示，完全接种疫苗者占住院人数的 72%，而未接种疫苗者占28%。
+
+36% 的人口未接种疫苗，5% 的人口接种了部分疫苗，59% 的人口接种了全部疫苗。因此，这证明中共病毒疫苗显然不能减少住院，还强烈表明它使接种者更有可能因中共病毒住院。
+
+中共病毒死亡人数
+
+下图显示了 2021 年 11 月 14 日至 12 月 4 日期间加拿大各地按疫苗接种状态划分的中共病毒死亡人数。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/PHOTO-2022-02-08-19-03-07-3.jpg)
+您此时看到的就像您之前看到的住院人数图表一样，未接种疫苗者占死亡者多数，但数量很少，仅266例死亡，完全接种疫苗者中有180人死亡。
+
+但是，一个月后，您就能看到注射疫苗后人的免疫系统功能每周递减。
+
+下图在2021 年 12 月 5 日至 2022 年 1 月 15 日期间发布的以接种疫苗情况划分的中共病毒死亡人数。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/PHOTO-2022-02-08-19-03-07-4.jpg)
+未接种疫苗的人 有 562 人，两倍于上个月该人群记录的死亡人数。但是，完全注射疫苗人数达到 1,015 人，是上个月该人群记录人数的 6 倍。
+
+下图显示了 2022 年 1 月 9 日至 1 月 15 日最近期间，全国各地的疫苗接种状况划分的中共病毒死亡数据，我们可以看到 7 天数据中病例的分布情况。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/PHOTO-2022-02-08-19-03-07-5.jpg)
+最近 7 至 19 天的未接种疫苗者死亡人数比2021年11 月14日至12月4日期间减少了72人，与此同时，完全接种疫苗者在这21天期间增加了2.6倍。
+
+下图显示了加拿大从2021年11月13日至12月4日、2021年12月5日至2022年1月15日以及2022年1月9日至1月15日的中共病毒死亡人数。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/PHOTO-2022-02-08-19-03-07-6-1.jpg)
+2021 年 11 月 13 日至 12 月 4 日期间，未接种疫苗者死亡人数占数据的 57%，而完全接种疫苗者占数据的 43%。
+
+快进一个月，我们发现在2021年 12 月 5 日至 2022 年 1 月 15 日期间，完全接种疫苗者占到了 死亡人数 64%，而未接种疫苗者的人仅占 36%。
+
+最近 7 天的情况更糟，加拿大政府的数据显示最近，完全接种疫苗者占数据的 72%，未接种疫苗者占 28%。
+
+36% 的人口未接种疫苗，5% 的人口疫苗接种了疫苗，59% 的人口完全接种了疫苗。因此，这证明中共病毒疫苗完全不能减少死亡，相反使人更有可能因病毒死亡。
+
+加拿大完全接种疫苗人的大流行
+![](https://assets.gnews.org/wp-content/uploads/2022/02/PHOTO-2022-02-08-19-03-07-15.jpg)
+尽管加拿大政府拼命试图隐瞒，但经过一些时间、努力和简单的数学计算，他们自己的数据显示，加拿大正处于“完全接种疫苗者的大流行”之中。尽管目前只有59%的加拿大人口完全接种了疫苗，但最近7天的数据表明，完全接种疫苗者占了89%的感染人数，及 72% 的住院及死亡人数。
+
+加拿大总理贾斯汀·特鲁多（Justin Trudeau）应立即取消对加拿大卡车司机的强制接种中共病毒疫苗措施，立即取消加拿大现有的疫苗护照系统，并应为歧视性排斥未接种疫苗的加拿大人道歉并夹起尾巴辞职。
+
+因为正是完全接种疫苗的人在传播中共病毒，是完全接种疫苗的人在占用病床，也是完全接种疫苗的人用他们过早的死亡，证明了加拿大的独裁暴政。
+
+参考链接：[Canada’s Pandemic of the Fully Vaccinated | 7 in every 10 Covid-19 Deaths are among the Fully Vaccinated according to official data; & Trudeau’s Government are trying to cover it up](https://dailyexpose.uk/2022/02/06/canadas-pandemic-of-the-fully-vaccinated/)
+
+审核校对：Barry Jack
+上传排版：F
+
+
 
  
 

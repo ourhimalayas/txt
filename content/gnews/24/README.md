@@ -2,44 +2,102 @@
 ---
 
 
-## 短视频：印第安纳州医生因拒绝接种新冠疫苗被迫停职
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1974360/)
+## 沙克·奥尼尔对强制疫苗发表意见
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1974433/)
 
-翻译：Annabelle
-校对：精靈藍|
-剪辑字幕：Biggod
-编辑：文泓
+[https://gtv.org/video/id=6201dc6b585ecc15d73ed4c0](https://gtv.org/video/id=6201dc6b585ecc15d73ed4c0)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/2-1-4.png)图片来源：视频截屏
+Shaq O’Neal
+沙克·奥尼尔
 
+Look, I encourage everybody to be safe and take care of your family
+听着，我鼓励大家注意安全并照顾好你的家人
 
-他是在印第安那波利斯市一个遵循科学的儿科医生，但是因为拒绝服从他们医院的强制疫苗政策而被停职。
+I do, but there’s still some people that don’t wanna take it
+我接受疫苗，但仍有一些人不想接受它
 
-接下来有请Paul Halczenko博士，
+And you shouldn’t have to be forced to take something you don’t want
+你不应该被迫接受你不想要的东西
 
-博士非常感谢来我们这里。现在我们知道疫苗不会阻止Omicron的传播，可医院为什么非要强迫你打呢？
+Turner
+特纳
 
-呃，早上好，我也没有答案啊，先生。
+I don’t think people are being forced to take …
+我不认为人们是被迫接受的……
 
-**我同意你说的，科学已经详尽地阐述了疫苗根本不可能阻止（病毒）传播。**
+Well, there are some …
+嗯，有一些……
 
-你也看到在不少的法律诉讼案里讲到的案例，以及许多我们医疗领域的带头人做的这方面信息的声明。
+There are, I mean, listen we have a mandate at CBS
+我的意思是，听着我们在CBS有强制
 
-如果一个妈妈因为你没打疫苗而不敢带她的孩子去见你，你会怎么说呢？
+Shaq O’Neal
+沙克·奥尼尔
 
-我首先会说，自从大瘟疫以来我一直都在给儿童看病，一直都在使用医疗领域所称的个人防护设备。
+That’s forced
+那是强迫
 
-我们能够阻止被传染的病人和健康护理人员之间的传播，反过来也一样。而我确实是按照科学按照医院的个人防护措施设备来做的。
+Turner
+特纳
 
-视频链接：[Indiana doctor placed on leave from hospital for refusing COVID vaccine | On Air Videos | Fox News](https://video.foxnews.com/v/6290444175001#sp=show-clips)
+We have a mandate at CBS
+我们在CBS有强制
 
-发布：文泓
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+But my, but my point …
+但是我的，但是我的观点……
+
+Shaq O’Neal
+沙克·奥尼尔
+
+That’s forced
+那是强迫
+
+Turner
+特纳
+
+where I wholeheartedly …
+我全心全意地…
+
+Shaq O’Neal
+沙克·奥尼尔
+
+That’s forced
+那是强迫
+
+Turner
+特纳
+
+No, it’s not forced
+不， 它不是强迫
+
+Shaq O’Neal
+沙克·奥尼尔
+
+It is forced
+它是强迫
+
+because if the man don’t take it, the man gonna get fired
+因为如果这个人不接受，这个人就会被解雇
+
+* * *
+
+Date:02/04/2022
+原视频标题: Shaq O’Neal weighs in on vaccine mandates
+沙克·奥尼尔对强制疫苗发表意见
+原视频日期：2022/02/04
+原视频链接: **[https://twitter.com/ginacarano/status/1489421001918083073?s=24](https://twitter.com/ginacarano/status/1489421001918083073?s=24)**
+任务编号：3666
+视频时间段 : 0:00-0:27
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场- 文新
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

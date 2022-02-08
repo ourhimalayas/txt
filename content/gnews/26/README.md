@@ -2,51 +2,105 @@
 ---
 
 
-## 新不伦瑞克省的父亲在拒绝接种中共病毒疫苗后失去对孩子的监护权
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1974321/)
+## 中共利用奥运会作为宣传工具，来宣扬维吾尔人在中国与其他人一样受到对待的谎言
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1974345/)
 
-编译：赵圣欢
+[https://gtv.org/video/id=6201db32585ecc15d73ed443](https://gtv.org/video/id=6201db32585ecc15d73ed443)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2082.jpg)
+Translator
+翻译
 
-新不伦瑞克省弗雷德里克顿报导（LifeSiteNews） – 另一位加拿大父亲因拒绝接受COVID-19疫苗，在法官裁定他对自己的其中一名孩子构成健康威胁后，被迫与他们分开。
+I’m Uyghur，over the last three years
+我是维吾尔人，在过去的三年中
 
-新不伦瑞克省皇后法庭法官娜塔莉•戈德布特（Nathalie Godbout）于1月31日向三个孩子的父亲作出裁决，禁止他亲自探望自己的孩子，因为他拒绝接受有导致流产可能的中共病毒疫苗接种。
+I was taken to China’s government detention centers three times
+我被三次带到中国政府的看守所
 
-Godbout限制了父亲的探视权，因为他注意到他的第二个孩子——一个10岁的女孩免疫系统受损，法官认为女孩与她”未接种疫苗”的父亲和他的新伴侣之间的任何身体接触都有风险。
+Now I would like to tell you about what I experienced in these camps
+现在我想告诉你我在这些营地的经历
 
-法庭文件没有通过姓名确定父母的身份。 “作为超过半数时间内照顾[孩子]的父母，在没有戴口罩和未接种疫苗的近距离接触时，如果他们感染了病毒，将十分有利于亲子传播，尽管他们为不发生上述情况竭尽全力，”加拿大广播公司（CBC）关于Godbout裁决的报告如是写道。
+I was arrested at the airport and my two month old triplets were taken away
+我在机场被捕并且我的两个月大的三胞胎被带走
 
-法官的结论是，”必须给孩子们最好的机会来逃避中共病毒的感染”，认为父亲的”疫苗”状态不符合这一要求，并且”怀着沉重的心情”暂时取消了他的监护权。
+The officers handcuff me, put a dark sack over my head
+警察给我戴上手铐，在我头上套上一个黑布袋
 
-据加拿大广播公司称，该家庭父母于2019年分居，当时确定他们三个孩子的共同监护权。
+and took me to a detention center
+并带我去了看守所
 
-据报导，当孩子们有资格接受中共病毒疫苗时，父亲研究了疫苗的影响并确定它们对他的孩子不安全之后，拒绝签署儿童疫苗接种同意书。目前的数据表明，儿童面临极低的中共病毒风险。这一点，加上成千上万的严重不良事件报告，包括注射后的死亡，导致许多专家批评推动儿童注射实验性疫苗的幕后黑手。
+My oldest son had died in their hands
+我的大儿子死在他们手中
 
-去年夏天，约翰霍普金斯大学医学院的研究人员发现，当他们”分析了2020年4月至8月健康保险数据中约48000名18岁以下被诊断患有中共病毒的儿童”时，”没有预先存在的疾病（如白血病）的儿童死亡率为零”。
+In April 2017, I was taken to a detention center for the second time
+2017年4月，我第二次被带到看守所
 
-作为对这一发现的回应，首席研究员Marty Makary博士指责疾病控制中心（CDC）将其倡导的校内中共病毒疫苗接种建立在”脆弱的数据”之上。
+I was interrogated for four days and nights without sleep
+我被审问了四天四夜，不眠不休
 
-此外，mRNA技术先驱罗伯特•马龙（Robert Malone）博士在1月23日在华盛顿特区举行的”击败授权”集会上发表讲话时警告父母不要允许他们的孩子注射实验性疫苗。这位杰出的科学家指出，「基因性疫苗会对你的孩子造成伤害，损害他们的大脑，心脏，免疫系统以及他们将来的生育能力。其中许多损坏无法修复。因此，我恳求您，请告知您的孩子可能被这些实验性医疗产品祸害的潜在风险。
+We had to sing songs hailing the Communist Party
+我们不得不唱歌颂共产党的歌
 
-事实上，中共冠状病毒疫苗注射试验从未有证据表明疫苗可以阻止感染或传播。他们甚至没有声称可以减少住院治疗，但衡量成功的标准是预防COVID-19疾病的严重症状。此外，有强有力的证据表明，「接种疫苗」的人与未接种疫苗的人一样有携带和传播病毒的可能性。
+we had to repeat in Chinese “ Long live Xi Jinping”
+我们不得不用中文重复“习近平万岁”
 
-尽管有无数证据表明没有必要为儿童接种疫苗，但法官允许母亲在未经父亲同意的情况下对孩子进行接种，他说：”[父亲]自己对这样一个高度专业化的话题的轶事研究在整体分析中几乎没有任何分量，当我们的公共卫生官员的合理医疗建议衡量时。 代表母亲的律师格兰特•奥格尔维（Grant Ogilvie）表示，她对这一决定感到”欣喜若狂”，并证实孩子们现在已经接受了第一剂疫苗。 “她承认这将对孩子们产生影响，但她说，’我必须为他们好。 ‘”奥格尔维说。 这位父亲被允许通过电话和视频通话与孩子们见面和交谈，Godbout称这是”网开一面”。她补充说，如果父亲同意接种疫苗，可能会撤销他的停职状态。
+Anyone who could not memorize a book of slogans and rules within 14
+任何不能在14 天内记不住口号书的人
 
-Godbout的决定是在耶诞节前夕在魁北克省做出的一项非常相似的裁决之后做出的，其中一名父亲在母亲告诉法官他”反疫苗”并在社交媒体上发布”阴谋论”后，他的探视权被暂时中止。
+days, would be denied food or beaten
+将被剥夺食物或殴打
 
-蒙特利尔地区高等法院法官Jean-Sébastien Vaillancourt于12月23日裁定，”暂时”禁止魁北克一名父亲探望他的三个年幼的孩子，因为他的”无疫苗”身份和在社交媒体上发布反对该省中共病毒限制性对处措施的帖子。
+I also experienced torture in a “tiger chair”
+我也经历过“老虎凳”的折磨
 
-**疫苗（新冠疫苗）
-中共病毒（新冠病毒covid-19）**
+The second time I was detained
+我第二次被拘留
 
-**我们不反疫苗，只针对假疫苗
-我们不反科学，只针对反人类**
+I was taken to a special room and a place in a highchair
+我被带到一个特殊的房间和有一个高脚椅的地方
 
-[新闻链接：](https://www.lifesitenews.com/news/quebec-father-has-custody-of-children-revoked-after-refusing-covid-19-shot/?utm_source=featured&amp;utm_campaign=usa)
+The guards put the helmet on my shaved head
+警卫把头盔戴在我剃光的头上
 
-审核校对：Barry Jack
-上传排版：V在途中
+Each time I was electrocuted, my whole body would shake violently
+每次我被电击全身都会剧烈颤抖
+
+And I could feel the pain in my veins
+我能感觉到我血管里的疼痛
+
+I thought I would rather die than go through this torture
+我以为我宁愿死也不愿经历这种折磨
+
+I begged them to kill me
+我求他们杀了我
+
+I still remember the words of the officers
+我还记得那些警察的话
+
+And I asked what my crime was
+我问我犯了什么罪
+
+They said: “being a Uyghur is a crime”
+他们说：“做为一名维吾尔人是一种犯罪”
+
+* * *
+
+Date:02/06/2022
+原视频标题: The CCP is using the Olympics as a propaganda tool to push the lie that Uyghurs are treated like everyone else in China
+中共利用奥运会作为宣传工具，来宣扬维吾尔人在中国与其他人一样受到对待的谎言
+原视频日期：2022/02/06
+原视频链接:https://twitter.com/morganortagus/status/1489782348401061895?s=24
+任务编号：KE386（3683）
+视频时间段 : 0:00-1:42
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-青梅煮酒
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
