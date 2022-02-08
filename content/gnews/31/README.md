@@ -2,24 +2,28 @@
 ---
 
 
-## 加拿大国防部抛弃未接种疫苗军人
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1976099/)
+## 中共利用冬奥会窃取各国运动员DNA
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1976143/)
 
-加拿大杨帆农场枫叶快讯
+采编：风云小哥                编译撰稿：文莱
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2021-01-30T120811Z_1_LYNXMPEH0T0A2_RTROPTP_4_CHINA-GENOMICS-MILITARY-1200x779-1-edited.jpg)图片来源：theepochtimes
+据美国相关媒体近日报道，为争夺生物经济的主导地位，中共正在开发一个庞大的生物数据库，其中包含来自世界各地人种的医疗、健康和遗传信息。
 
-采编/翻译：文莱
-![canadian military](https://www.ctvnews.ca/polopoly_fs/1.4963013.1591001210!/httpImage/image.jpg_gen/derivatives/landscape_960/image.jpg)
-据[渥太华太阳报]近日报道，加拿大武装部队已解雇了数十位未接种“新冠病毒”疫苗的服役人员，而其他针对数百名军人的解雇程序正在进行中。
+报道称，中共正利用各国的生物科技公司，耗费巨资收集当地人群的基因数据，并将这些数据与其顶级的军事超级计算能力相结合，通过发现不同族裔的基因遗传弱点，最终以此来开发生物病毒武器。
 
-报道称，[加拿大国防部]在疫情期间大量开除未接种现役军人之举，势必将会加剧国防人员严重短缺的恶况。而且由于防疫措施的限制，目前大部分军队的招募中心和培训学校都已被迫关闭或暂停。
+目前，越来越多的高科技企业参与到中共生物军事研究之中。例如，[华大基因公司]此前就提出在美国设立“新冠病毒”检测中心，尽管此举已被美方断然拒绝，但至少有18个其他国家都允许该公司在当地设立检测和研究中心。
 
-据国防部的数据显示，目前加拿大军队的现役人数约为1万人，另有1万名人员因未受过训练或伤病而无法执行任务。因此，面对国际间急剧变化的军情，加拿大国防部的应对能力现已捉襟见肘。
+为此，GTV在最近的报道中指出，北京冬奥会将成为习近平当局收集各国参赛运动员和政要名人DNA数据的绝佳机会，并且中共早已为该项邪恶计划做好了各项充分的准备。
 
-此外，之前遭到解雇的部分军人已于去年底对国防部的疫苗强制接种政策提起了诉讼，理由是该政策不仅违宪，还严重侵害了个人对健康的绝对选择权。
+校对编辑：硫酸羟氯喹64
 
-原文链接:[Canadian military cuts dozens of unvaccinated troops, puts hundreds more on notice | Ottawa Citizen](https://ottawacitizen.com/pmn/news-pmn/canada-news-pmn/canadian-military-cuts-dozens-of-unvaccinated-troops-puts-hundreds-more-on-notice)
+发稿：文明(添草灭共)
 
-校对编辑：硫酸羟氯喹64 发稿：青青
+原文链接：
+
+[https://www.theepochtimes.com/chinese-military-linked-firm-gathers-american-dna-provides-covid-tests\_4250811.html](https://www.theepochtimes.com/chinese-military-linked-firm-gathers-american-dna-provides-covid-tests_4250811.html)
+
+[https://gtv.org/video/id=61fd1a6596ba5d73e0c28b83](https://gtv.org/video/id=61fd1a6596ba5d73e0c28b83)
 
  
 
