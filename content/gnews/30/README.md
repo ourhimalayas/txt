@@ -2,52 +2,28 @@
 ---
 
 
-## 新中国联邦2022年发展的三个重点项目
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1976116/)
+## 中共利用冬奥会窃取各国运动员DNA
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1976143/)
 
-作者：首尔天池农场-追着曙光跑
+采编：风云小哥                编译撰稿：文莱
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2021-01-30T120811Z_1_LYNXMPEH0T0A2_RTROPTP_4_CHINA-GENOMICS-MILITARY-1200x779-1-edited.jpg)图片来源：theepochtimes
+据美国相关媒体近日报道，为争夺生物经济的主导地位，中共正在开发一个庞大的生物数据库，其中包含来自世界各地人种的医疗、健康和遗传信息。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-26.jpg)
+报道称，中共正利用各国的生物科技公司，耗费巨资收集当地人群的基因数据，并将这些数据与其顶级的军事超级计算能力相结合，通过发现不同族裔的基因遗传弱点，最终以此来开发生物病毒武器。
 
+目前，越来越多的高科技企业参与到中共生物军事研究之中。例如，[华大基因公司]此前就提出在美国设立“新冠病毒”检测中心，尽管此举已被美方断然拒绝，但至少有18个其他国家都允许该公司在当地设立检测和研究中心。
 
+为此，GTV在最近的报道中指出，北京冬奥会将成为习近平当局收集各国参赛运动员和政要名人DNA数据的绝佳机会，并且中共早已为该项邪恶计划做好了各项充分的准备。
 
+校对编辑：硫酸羟氯喹64
 
+发稿：文明(添草灭共)
 
-2月6日，郭先生在大直播上强调，新中国联邦2022年发展的三个重点项目。
+原文链接：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/rzhang99-ChineseNewYear-.jpg)
+[https://www.theepochtimes.com/chinese-military-linked-firm-gathers-american-dna-provides-covid-tests\_4250811.html](https://www.theepochtimes.com/chinese-military-linked-firm-gathers-american-dna-provides-covid-tests_4250811.html)
 
-第一，阻止排华事件的发生，这是新中国联邦今年的重中之重。如果新中国联邦阻止不了西方的排华，那么即使灭共了也没什么意义。现在需要计划用币，鼓励国内的各界人士站出来，形成全国灭共的趋势，让他们在灭共中真正得到喜币和躺平币。
-
-第二，把现有的项目做强做大，坚决不犯希特勒那样因无限扩张导致灾难性的错误。今年不会再立任何新项目，目标就是把现有的项目搞好做强，然后扩大在全球的影响力。
-
-第三、做好新中国联邦教育（GEDU）。教育是立国之本，是中国人未来的希望。新中国联邦会提供喜币或喜美元，吸引国内的教育工作者加入GEDU。套用一句俗语：走新东方的路，让新东方无路可走。 2022年，新中国联邦无论是在国际还是国内，影响力都将会更强。
-
-新闻链接：
-
-[https://gettr.com/post/psu0mf2270](https://gettr.com/post/psu0mf2270)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-9.jpg)
-
-编辑/校对发稿：遍地开花
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-22.jpg)
-
-
-
-
+[https://gtv.org/video/id=61fd1a6596ba5d73e0c28b83](https://gtv.org/video/id=61fd1a6596ba5d73e0c28b83)
 
  
 
