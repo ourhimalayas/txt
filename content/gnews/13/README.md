@@ -2,32 +2,47 @@
 ---
 
 
-## 美方要求中共国兑现第一阶段贸易协议承诺
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1973486/)
+## 美众议院领袖发誓调查中共病毒起源
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1973569/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/9BC2DE8F-190C-40F4-AF0F-008C057ADA3A_w1023_r1_s.jpg)2020年1月15日，时任美国总统特朗普与中国副总理刘鹤在白宫签署第一阶段经贸协议。档案图片：路透社。
-编辑摘要：
-
-据美国之音2月7日报道，美国官员们称没有迹象显示中共国会兑现第一阶段美中贸易协议中购买美国产品的承诺，华盛顿正在失去耐心。美国统计局将要公布2021年贸易数据，届时会对中共国未能兑现承诺的情况提供具体数据。中共国海关此前的数据显示2021年对美国的贸易顺差大增至3966亿美元。
-
-川普政府2020年1月与中共政府签订了为期两年的第一阶段贸易协议，承诺在2020年和 2021年间将美国农产品、制造业产品、能源和服务产品的进口额在2017年的基础上增加2000亿美元。但是到去年11月底，中共只实现了60%的目标。第一阶段贸易协议保留了双方针对对方数千亿美元的产品进口实施的关税，但阻止了美中已经持续了将近三年的贸易战进一步升级。
-
-美国总统拜登上星期批准将川普总统任内对进口中共国光伏设备加征高额关税，延长四年。此举受到北京的抨击。中共反对和抨击的继续做下去，中共赞扬和支持的及时终止，这就是对付中共的方法。中共一向损人第一，但凡亲近中共的国家，最后的结局一定是经济崩溃、人民穷困潦倒，最后国家破产、丧失主权。中共不信守承诺，美国有权利反击。对付中共这种流氓，拳头比道理管用。
-
-新闻参考链接：[美官员们要求中国兑现第一阶段贸易协议承诺 称正对北京失去耐心](https://www.voachinese.com/a/us-china-trade-20220207/6430580.html)
-
-*编辑：胖丁*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+作者：纽约香草山 – 侠肝义胆
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+外媒2月7日报道，日前，美国众议院共和党领袖凯文·麦卡锡提出了共和党未来的计划，发誓要调查中共病毒的起源。他还表示，如果共和党在今年中期选举中重新获得众议院多数党席位，将对中共采取更强硬的立场，进行更多严格审查。
+
+麦卡锡在接受媒体采访时强调，国会最终将成立一个两党中共国问题委员会，其中最关键问题将是调查中共病毒大流行的起源。
+
+正如郭文贵先生此前爆料所称，美国两党政客都无法回避中共病毒给美国带来的巨大灾难，坚决追查中共病毒真相，将是美国两党未来别无选择的共同政治诉求。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-3.jpg)
+参考信息：
+[Kevin McCarthy vows to investigate COVID origins as he lays out Republicans’ plan for more scrutiny of China if GOP regains House majority after midterm elections](https://www.dailymail.co.uk/news/article-10483009/Kevin-McCarthy-outlines-Republicans-plan-control-China-regain-majority-House.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+
+总编：DM
+编辑：静言
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
 
 

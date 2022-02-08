@@ -2,42 +2,25 @@
 ---
 
 
-## 拜登再度批准美国对台军售
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1973668/)
+## 澳洲维多利亚地区过半5-11岁儿童已接种CCP病毒疫苗
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1973669/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/02/803.jpg)图片来自网络
+根据澳大利亚媒体第九新闻的最新报道，截至当地时间周一（2月7日），澳大利亚维多利亚州5至11岁的儿童群体，已经有超过一半接种了CCP病毒疫苗。
 
-整理：Eileen（围剿维尼熊）
-编辑：朝花夕拾
+不过维多利亚教育部长James Merlino对于这样的疫苗接种进度似乎仍然不太满意，他表示接下来“还有很长的一段路要走”。这或许意味着政府期待儿童疫苗接种率很可能在90%甚至95%以上，即几乎所有无特殊情况的5-11岁儿童都要接种疫苗。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/雅典娜快讯图.png)
+于此同时，在该州的成年人群体中，也已经有45%接种第三剂CCP病毒疫苗加强针。
 
+从澳大利亚全国范围内的数据来看，目前全国也已经有将近45%的5-11岁儿童接种了第一针CCP病毒疫苗。而在12-15岁的青少年群体中，这一数字已超过84%，同时有77%的青少年已经接种了第二针。16岁以上的成年人当中，已经有超过43%的居民接种了CCP病毒疫苗的加强针。
 
+目前，澳大利亚总共接种的CCP病毒疫苗已经超过了5100万剂次，接种数量在各个国家中排在第31位，而接种比例则在全球范围内排行第21位。而全球疫苗总接种剂次已经突破100亿大关，全球超过半数人口接种了至少两剂CCP病毒疫苗。
 
-图片来源：雅典娜设计组
+新闻参考链接：[9 News](https://www.9news.com.au/national/elective-surgery-resumes-in-victorias-private-hospitals-as-victorias-covid19-hospitalisations-drop/8435f323-a4e2-4a7c-a02d-28b8ec2781c2)
 
-
-根据德国之声中文网报道：美国国务院2月7日宣布，基于《台湾关系法》，已批准对台出售价值1亿美元，为期5年的爱国者系统工程勤务计划。这也是拜登政府第二次批准对台湾的军售。
-
-美国国务院政军局在一份声明稿中说，这次军售将会有助于台湾维持其飞弹密度，确保台湾的空中作战战备能力。
-
-这次军售主要是提供支持台湾参与爱国者飞弹工程勤务及飞弹效能鉴测的相关设备与服务。
-
-美国国务院政军局也重申，核准这次军售是为了使台湾的军队持续现代化且保持可靠的防御能力，这样的发展符合美国的国家经济与安全利益。
-
-虽然台湾政府也曾私下请求美国政府能加快战机交付速度，但美台商会会长韩儒伯（Rupert Hammond-Chambers）接受路透社访问时表示，这取决于美国政府是否将中国带来的军事威胁比伊朗与俄罗斯带来的军事威胁还大。
-
-参考链接：[https://m.dw.com/zh/%E6%8B%9C%E7%99%BB%E6%94%BF%E5%BA%9C%E4%BA%8C%E5%BA%A6%E6%89%B9%E5%87%86%E5%AF%B9%E5%8F%B0%E5%86%9B%E5%94%AE-%E5%8F%B0%E5%8C%97%E5%8F%AF%E6%9C%9B3%E6%9C%88%E7%94%9F%E6%95%88/a-60692312](https://m.dw.com/zh/%E6%8B%9C%E7%99%BB%E6%94%BF%E5%BA%9C%E4%BA%8C%E5%BA%A6%E6%89%B9%E5%87%86%E5%AF%B9%E5%8F%B0%E5%86%9B%E5%94%AE-%E5%8F%B0%E5%8C%97%E5%8F%AF%E6%9C%9B3%E6%9C%88%E7%94%9F%E6%95%88/a-60692312)
-
-发布：星谕
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
