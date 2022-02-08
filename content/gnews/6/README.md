@@ -2,30 +2,31 @@
 ---
 
 
-## 以色列“疫苗护照”政策发生重大变更
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1976185/)
+## 七哥谈“人类最新的文明”（2022-02-02摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1976266/)
 
-加拿大温哥华杨帆农场枫叶快讯
+文编：Hima
+听写：叮叮
+视频：七哥
 
-采编/ 翻译编辑：  自由法兰西
+来源：郭先生2022-02-02直播10：42：07摘录
 
+我告诉大家这不叫金融。喜联储我从第一天告诉大家，这是超越国家主权、超越信仰、超越物理世界、人与人之间，最新的、最重要的、是人类最新的文明。解放生产力、开发人的智慧、缩短、几乎消灭人与人之间的距离、超出人类信仰，这样的互相相信的关系。这是为什么新中国联邦让大家一定要有增加辨别真假和善恶的能力，你别把自己毁了。
 
-![](https://static1.straitstimes.com.sg/s3fs-public/styles/large30x20/public/articles/2022/02/02/yq-isrvac-02022022.jpg?VersionId=nb_w3Vh8FiLXNfffA9v1VwLLrCDHEkzE&amp;itok=rb3H8S2i)
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
+**关注我们**
 
-据新加坡《海峡时报》近日报道，以色列政府表示，作为首批推行疫苗护照的国家之一，该国将开始逐步停止使用疫苗护照。
+Discord 账号
 
-报道称，以色列政府的疫情工作组最近决定，除了“公众密集聚会的高风险场所外”，餐馆、酒吧、健身房和酒店等大部分公共场所，都将放弃使用疫苗护照。此外，未接种疫苗者也可在不做病毒测试的情况下直接登机旅行。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-据悉，该决定是以色列当局在“新冠病毒”感染人数持续保持历史高位的情况下做出的。目前该国的日均新增感染个案已超过6万例。
+Gettr 账号
 
-对此，相关流行病专家指出，以色列政府的上述决定是明智的，因为事实表明，已接种者仍然在被反复感染，而继续推广疫苗护照只是自欺欺人之举。
-
-原文链接：
-
-[https://www.straitstimes.com/world/middle-east/vaccine-passport-pioneer-israel-to-curb-use-of-green-pass](https://www.straitstimes.com/world/middle-east/vaccine-passport-pioneer-israel-to-curb-use-of-green-pass)
-
-校对编辑：硫酸羟氯喹64 发稿：青青
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

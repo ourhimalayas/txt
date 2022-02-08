@@ -15,161 +15,161 @@
 
 ---
 
-### [七哥谈“人类最新的文明”（2022-02-02摘录）](/content/gnews/1/README.md)
+### [七哥谈“如何智慧扩展无限范围的使用Hpay”（2022-02-02摘录）](/content/gnews/1/README.md)
  ` MG FARM`
 
-### [卡普里岛反绿色护照！店主拒绝要求客人出示绿色护照](/content/gnews/2/README.md)
- ` xiaobaige`
-
-### [《美国竞争法案》中被中共蓝金黄掉的重要条款](/content/gnews/3/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [七哥谈未来钱的支付（2022-02-02摘录）](/content/gnews/4/README.md)
+### [七哥谈“Hpay的上线战友们要做以下三件事儿”（2022-02-02摘录）](/content/gnews/2/README.md)
  ` MG FARM`
 
-### [七哥谈“信”和“用”（2022-02-02摘录）](/content/gnews/5/README.md)
+### [七哥谈“依法的以穷赚大钱”（2022-02-02摘录）](/content/gnews/3/README.md)
  ` MG FARM`
 
-### [以色列“疫苗护照”政策发生重大变更](/content/gnews/6/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
+### [七哥谈“数字货币的诞生是人类的一切一切的改变”（2022-02-02摘录）](/content/gnews/4/README.md)
+ ` MG FARM`
 
-### [加拿大阿省议员：当世界上大部分国家取消疫苗限制时，特鲁多仍在尝试将无效的疫苗政策永久化，加拿大正在迅速变成一个异类](/content/gnews/7/README.md)
- ` 加拿大温哥华扬帆农场视频组`
+### [中共的体制邪恶到你无法想象的程度](/content/gnews/5/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [主流媒体说渥太华的自由卡车集会充满了暴力，让我们到现场看看实际情况](/content/gnews/8/README.md)
- ` 加拿大温哥华扬帆农场视频组`
+### [七哥谈“人类最新的文明”（2022-02-02摘录）](/content/gnews/6/README.md)
+ ` MG FARM`
 
-### [中共利用冬奥会窃取各国运动员DNA](/content/gnews/9/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [有声|中共在冬奥会中收集运动员的基因](/content/gnews/10/README.md)
- ` MOSREC`
-
-### [新中国联邦2022年发展的三个重点项目](/content/gnews/11/README.md)
- ` GTV News Talk`
-
-### [有声|英国官方 儿童接种中共病毒疫苗死亡率超三倍](/content/gnews/12/README.md)
- ` MOSREC`
-
-### [新中国联邦人主导北京冬奥会，让中共丑态百出，让参会人员自取其辱！](/content/gnews/13/README.md)
- ` 纽约香草山MOS03`
-
-### [加拿大国防部抛弃未接种疫苗军人](/content/gnews/14/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [欧盟及英国在世贸组织提诉中共违规行为](/content/gnews/15/README.md)
- ` NFSC News`
-
-### [多名美国顶尖滑雪选手在冬奥赛道摔倒](/content/gnews/16/README.md)
- ` NFSC News`
-
-### [中共在冬奥期间收集运动员基因信息](/content/gnews/17/README.md)
- ` NFSC News`
-
-### [有声|以色列取消大部分疫苗通行证要求](/content/gnews/18/README.md)
- ` MOSREC`
-
-### [俄罗斯总统普京提前紧急撤离北京冬奥会](/content/gnews/19/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [有声|彭帅再次回应性侵事件并声称不再参加任何比赛](/content/gnews/20/README.md)
- ` MOSREC`
-
-### [有声|中共的特色社会主义之特性](/content/gnews/21/README.md)
- ` MOSREC`
-
-### [有声|美国众议院通过《美国竞争法》](/content/gnews/22/README.md)
- ` MOSREC`
-
-### [有声|冬奥会运动员隔离待遇凄惨](/content/gnews/23/README.md)
- ` MOSREC`
-
-### [有声|落實新郭七條跟著文貴先生一心一意滅共](/content/gnews/24/README.md)
- ` MOSREC`
-
-### [NFSC新闻、G|TV新闻访谈简报|2022年2月8日早](/content/gnews/25/README.md)
- ` 纽约香草山MOS01`
-
-### [冬奥会开幕式在疫情恐惧下始乱终弃](/content/gnews/26/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [BIS对中共再出重拳 33个中共国实体被列入UVL名单](/content/gnews/27/README.md)
- ` 温哥华扬帆农场`
-
-### [有声|喜马拉雅币一周分析与总结（1月31日-2月6日）](/content/gnews/28/README.md)
- ` MOSREC`
-
-### [有声|戏子无情婊子无义](/content/gnews/29/README.md)
- ` MOSREC`
-
-### [郝董谈自身转会经历，反映出HPAY对未来体育界的革命性影响](/content/gnews/30/README.md)
+### [新西兰财经G乐部2022年2月8日:财经新闻整理](/content/gnews/7/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [归化女子花滑运动员首秀失败遭抨击](/content/gnews/31/README.md)
+### [卡普里岛反绿色护照！店主拒绝要求客人出示绿色护照](/content/gnews/8/README.md)
+ ` xiaobaige`
+
+### [《美国竞争法案》中被中共蓝金黄掉的重要条款](/content/gnews/9/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [七哥谈未来钱的支付（2022-02-02摘录）](/content/gnews/10/README.md)
+ ` MG FARM`
+
+### [七哥谈“信”和“用”（2022-02-02摘录）](/content/gnews/11/README.md)
+ ` MG FARM`
+
+### [以色列“疫苗护照”政策发生重大变更](/content/gnews/12/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [加拿大阿省议员：当世界上大部分国家取消疫苗限制时，特鲁多仍在尝试将无效的疫苗政策永久化，加拿大正在迅速变成一个异类](/content/gnews/13/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [主流媒体说渥太华的自由卡车集会充满了暴力，让我们到现场看看实际情况](/content/gnews/14/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [中共利用冬奥会窃取各国运动员DNA](/content/gnews/15/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [有声|中共在冬奥会中收集运动员的基因](/content/gnews/16/README.md)
+ ` MOSREC`
+
+### [新中国联邦2022年发展的三个重点项目](/content/gnews/17/README.md)
+ ` GTV News Talk`
+
+### [有声|英国官方 儿童接种中共病毒疫苗死亡率超三倍](/content/gnews/18/README.md)
+ ` MOSREC`
+
+### [新中国联邦人主导北京冬奥会，让中共丑态百出，让参会人员自取其辱！](/content/gnews/19/README.md)
+ ` 纽约香草山MOS03`
+
+### [加拿大国防部抛弃未接种疫苗军人](/content/gnews/20/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [欧盟及英国在世贸组织提诉中共违规行为](/content/gnews/21/README.md)
  ` NFSC News`
 
-### [美国众议院通过《美国竞争法案》](/content/gnews/32/README.md)
+### [多名美国顶尖滑雪选手在冬奥赛道摔倒](/content/gnews/22/README.md)
+ ` NFSC News`
+
+### [中共在冬奥期间收集运动员基因信息](/content/gnews/23/README.md)
+ ` NFSC News`
+
+### [有声|以色列取消大部分疫苗通行证要求](/content/gnews/24/README.md)
+ ` MOSREC`
+
+### [俄罗斯总统普京提前紧急撤离北京冬奥会](/content/gnews/25/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [开局不利的北京冬奥会遭投诉麻烦还在后面](/content/gnews/33/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [有声|彭帅再次回应性侵事件并声称不再参加任何比赛](/content/gnews/26/README.md)
+ ` MOSREC`
 
-### [中共关于彭帅的报道将境内境外彻底分开](/content/gnews/34/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [有声|中共的特色社会主义之特性](/content/gnews/27/README.md)
+ ` MOSREC`
 
-### [按照中共的防疫清零政策冬奥会开幕式参加者都需要隔离](/content/gnews/35/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [有声|落實新郭七條跟著文貴先生一心一意滅共](/content/gnews/28/README.md)
+ ` MOSREC`
 
-### [加拿大卡车司机继续抗争渥太华宣布紧急状态](/content/gnews/36/README.md)
+### [NFSC新闻、G|TV新闻访谈简报|2022年2月8日早](/content/gnews/29/README.md)
+ ` 纽约香草山MOS01`
+
+### [冬奥会开幕式在疫情恐惧下始乱终弃](/content/gnews/30/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [不能再向中共国市场注入美元](/content/gnews/37/README.md)
+### [郝董谈自身转会经历，反映出HPAY对未来体育界的革命性影响](/content/gnews/31/README.md)
+ ` Finance-GCLUB【新西兰财经G乐部】`
+
+### [归化女子花滑运动员首秀失败遭抨击](/content/gnews/32/README.md)
+ ` NFSC News`
+
+### [美国众议院通过《美国竞争法案》](/content/gnews/33/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [开局不利的北京冬奥会遭投诉麻烦还在后面](/content/gnews/34/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共关于彭帅的报道将境内境外彻底分开](/content/gnews/35/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [按照中共的防疫清零政策冬奥会开幕式参加者都需要隔离](/content/gnews/36/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [加拿大卡车司机继续抗争渥太华宣布紧急状态](/content/gnews/37/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [不能再向中共国市场注入美元](/content/gnews/38/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [任何付钱给这个跨国犯罪组织的人都要付出代价](/content/gnews/38/README.md)
+### [任何付钱给这个跨国犯罪组织的人都要付出代价](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [已经对疫苗的紧急授权使用和错误标识提起诉讼](/content/gnews/39/README.md)
+### [已经对疫苗的紧急授权使用和错误标识提起诉讼](/content/gnews/40/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [加拿大部分省份正在撤销疫苗强制令](/content/gnews/40/README.md)
+### [加拿大部分省份正在撤销疫苗强制令](/content/gnews/41/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2/8/2022国际财经快讯：美日达成协议削减对日钢铁关税；华尔街收盘走低，因Meta平台受重压](/content/gnews/41/README.md)
+### [2/8/2022国际财经快讯：美日达成协议削减对日钢铁关税；华尔街收盘走低，因Meta平台受重压](/content/gnews/42/README.md)
  ` 秘密翻译组金融团队`
 
-### [中俄共同对抗美国；卫报淡化运动员感染](/content/gnews/42/README.md)
+### [中俄共同对抗美国；卫报淡化运动员感染](/content/gnews/43/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [纳瓦罗博士：希望每位美国获奖选手声讨种族灭绝中共](/content/gnews/43/README.md)
+### [纳瓦罗博士：希望每位美国获奖选手声讨种族灭绝中共](/content/gnews/44/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [新年期间：大陆民众消费大幅下滑](/content/gnews/44/README.md)
+### [新年期间：大陆民众消费大幅下滑](/content/gnews/45/README.md)
  ` 日本东京方舟农场`
 
-### [渥太华宣布因中共病毒抗议活动而进入紧急状态](/content/gnews/45/README.md)
+### [渥太华宣布因中共病毒抗议活动而进入紧急状态](/content/gnews/46/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共国如何按不同的规则行事—以其他国家为代价](/content/gnews/46/README.md)
+### [中共国如何按不同的规则行事—以其他国家为代价](/content/gnews/47/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [西喜时事新闻简报-美国时事篇](/content/gnews/47/README.md)
+### [西喜时事新闻简报-美国时事篇](/content/gnews/48/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [日本《自卫队法》修正案获批，意指共台开战可营救台湾人民](/content/gnews/48/README.md)
+### [日本《自卫队法》修正案获批，意指共台开战可营救台湾人民](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [加拿大疫苗制造的大流行！7成中共病毒死亡者完全接种了疫苗](/content/gnews/49/README.md)
+### [加拿大疫苗制造的大流行！7成中共病毒死亡者完全接种了疫苗](/content/gnews/50/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [美国批准对台湾一亿美元军售](/content/gnews/50/README.md)
+### [美国批准对台湾一亿美元军售](/content/gnews/51/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国法律草案旨在遏制中国和俄罗斯的影响力](/content/gnews/51/README.md)
+### [美国法律草案旨在遏制中国和俄罗斯的影响力](/content/gnews/52/README.md)
  ` Shuizhuyu`
-
-### [五月花简报（02/07/2022）](/content/gnews/52/README.md)
- ` mayflowertranslate`
 
 ### [微软、英特尔、通用电气向中共军方及安全机构提供支持](/content/gnews/53/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`

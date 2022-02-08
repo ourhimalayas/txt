@@ -2,18 +2,33 @@
 ---
 
 
-## 卡普里岛反绿色护照！店主拒绝要求客人出示绿色护照
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1976219/)
+## 七哥谈“Hpay的上线战友们要做以下三件事儿”（2022-02-02摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1976319/)
 
-#### 翻译                                 意大利达芬奇农场                小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-08-alle-18.43.54.png)图片来源：mag24.es
-卡普里岛对疫苗护照说“不”，站在了反对疫苗护照的一方。政策代表一个方面，社会却代表另一方。卡普里岛不愿接受强制实行绿色护照政策。在卡普里岛一些商店的橱窗里贴出了这样一些带有争议性的字句：“歧视是耻辱”。正像安莎社报道的那样， 一些店家展示了一张海报， 海报上两只张开的手上放着一颗燃烧的红心，上面写着“ 爱的通行证，一个没有歧视的世界。”
+文编：Hima
+听写：叮叮
+视频：七哥
 
-在卡普里岛一条非常优雅的国际名牌店街上，有一家商店的橱窗里贴着这样一张醒目的告示：本店自开业58年以来一直欢迎所有客人光顾。还写着“不要绿色通行证，不要歧视，不要种族法。禁止某些人入内是可耻的。”
+来源：郭先生2022-02-02直播11:18:17摘录
 
-原文链接：[https://www.mag24.es/2022/02/04/capri-in-rivolta-contro-il-green-pass-il-rifiuto-totale-dei-commercianti-di-richiedere-ai-clienti-il-lasciapassare-affissi-cartelli-in-tutte-le-vetrine-dellisola/](https://www.mag24.es/2022/02/04/capri-in-rivolta-contro-il-green-pass-il-rifiuto-totale-dei-commercianti-di-richiedere-ai-clienti-il-lasciapassare-affissi-cartelli-in-tutte-le-vetrine-dellisola/)
+Hpay的上线战友们要做以下三件事儿：每天无时无刻的要宣传Hpay、使用Hpay；第二，想尽一切办法用你自己的一切关系，除了别以身推广喜币之外什么都要干，都要合法的去推广喜币、增加喜支付的使用，是所以全球农场的第一任务；第三件事儿，大家要记住，连自己现在要认真研究、自己独创这个Hpay的各种使用领域和方法。我只能点到这儿为止，因为Hpay是个什么支付系统？不是支付宝、不是微信、什么发红包，它是跟法币连在一起的，它是没办法，它没有铸币权、货币发行权，咱先有货币发行、咱有喜币的情况下咱是独立的，这是跟任何人不一样的。那么你这个Hpay你可以无限的放大，想干啥就干啥。
 
-编辑、上传：  Xiao  baige
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
+
 
  
 
