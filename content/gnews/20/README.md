@@ -2,34 +2,37 @@
 ---
 
 
-## 短视频：新冠疫苗通行证只会造成一个隔离的社会
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1972510/)
+## 有声|中美初次建交，文明穿越百年
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1972559/)
 
-翻译：Fulin
-校对：枳实|
-剪辑字幕：小强
-编辑：文泓
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+2月4日文贵大直播中，郭先生回顾中美两国人民的友谊之路时，告诉同胞，中美初次通商始于大清年间。彼时的美国是一个刚刚独立的国家，为了区别于大英帝国，亟需在世界上建立外交关系与贸易。美国人乘坐“中国皇后号”远航，第一个远东外交目的地就是中国广州。他们为中国带去了西洋参和白银，从中国带回了茶叶、瓷器及火药。经此次贸易，中美两国人民建立了深厚的友谊。中国人遵守规则，勤劳朴实；官员聪慧；中国食物丰富美味；尤其中国女性极为干净，眼神坚定。彼时中国的高度文明，吸引美国派驻中国的大使，蒲安臣是美国派去中国的大使，设立驻中国大使馆。后来，蒲安臣还代表中国大清政府参与大清外交事务，据此诞生了著名的美国游说文化。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-06-at-10.53.08-PM.png)
+从此，中国与世界各国的交流愈加频繁，西方人对中华民族充满了尊敬，认为中国人的勤劳智慧和悠久深厚的文明，像太阳一样永恒，永远不要与心灵善良，爱好和平的中国人为敌，因为他们是文明的象征。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/2-1-1.png)图片来源：视频截屏
+历史发展到百年之后的今天，美国授权撤离中国大使馆，说明美国一点都不能容忍中共犯下的各种罪责。北京冬奥会上中共的各种荒唐无礼耍赖，完全看不到一丁点文明的影子。中国大清年间的高度文明和中共现在的丑态形成了巨大的反差。中国再这样发展下去，整个民族都可能湮灭。
 
+这种现况是中共带给中国人民的，所以我们一定要灭共。新中国联邦将承载中国人深厚永恒的高度文明及责任，不仅要挽救中国人民，还将带领全人类走出黑暗。
 
-（英国议会讨论新冠疫苗通行证）
-议长先生，有媒体报道说，今天下午有一个内阁会议和新闻发布会，以启动新冠冬季B计划，但根本没有提到议会的参与。
+文字版原文：[中美初次建交，文明穿越百年](https://gnews.org/zh-hans/1966038/)
 
-新冠通行证不会提高疫苗的接种率，只会造就一个分裂的社会。我尊敬的朋友和首相，您是否知道，几乎不会有人会被这种转移注意力的策略所说服。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-（鲍里斯·约翰逊首相）
-议长先生，在没有咨询内阁的情况下，我不会做出任何决定。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-视频链接：[Protest News 在 Twitter: “”Covid passes will not increase uptake of the vaccine but will create a segregated society.” Clapping hands sign @William\_Wragg tells Boris Johnson at #PMQs why there should be #NoVaccinePassports. https://t.co/ewaI9CsXvl” / Twitter](https://twitter.com/ProtestNews_EN/status/1469678980907290631?t=snalGtomvNK35zPGmGfOkQ&amp;s=19)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-发布：文泓
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

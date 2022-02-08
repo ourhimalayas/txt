@@ -2,123 +2,47 @@
 ---
 
 
-## 未来中共国会有2亿人左右死于毒疫苗，一半房子将无人居住
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1972541/)
+## 有声|强国奇闻(2)
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1972595/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/apa1d-0xvla.jpg)
-[https://gtv.org/video/id=62014d33585ecc15d73eab32](https://gtv.org/video/id=62014d33585ecc15d73eab32)
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
 
-**郭文贵**
-Miles Guo
+![](https://assets.gnews.org/wp-content/uploads/2022/02/墙国奇闻-1536x864-1.png)
+**1.上海造中共病毒疫苗来了，年产量可达2亿剂**
 
-在今天的疫苗灾难之前，你知道我最大的痛苦是什么吗？
-Facing the vaccine disaster today, do you know what has been my biggest suffering?
+“北京时间1月27日，上海产中共病毒疫苗“克威莎”正式量产上市，该疫苗由陈薇院士团队与上药康希诺生物共同研发，是国内获准使用的唯一一款单针中共病毒疫苗。上药康希诺宝山工作是上海第一个新冠疫苗生产基地，年产可达2亿剂。”
 
-中国的男人能不能有一次当回男人？
-All men in China, could you be the real men once?
+新闻链接: [https://m.weibo.cn/6066193547/4730356769229504](https://m.weibo.cn/6066193547/4730356769229504)
 
-你挑起一个当爹的、当男人的基本的一个责任
-To assume the basic responsibility of being a father and a man
+点评:中共的疫苗超级工厂出来了，而且是陈薇少将提供的。军事级的病毒技术啊，大家要知道这都是绝对杀手级的，这个病毒疫苗那效果我估计杠杠滴，打进去保证当时犯病，当时送你上西天。我相信绝对能达到这个效果。而且是年产2亿只啊，大家要知道这就意味着冠状病毒绝对消失不了。这么大规模所谓的中共病毒疫苗的生产厂，如果他很快把病毒结束了，他这年产2亿只的疫苗打给谁啊。所以国内的战友们同胞们千万要记得，从此开始我估计中国人每3个月就要打一针疫苗，得把一年2亿只疫苗消耗掉才行，否则上海超级疫苗工厂的产品一般注射量是消耗不掉的。这就意味着注射疫苗可能成为以后中国人的常态，甚至每个月都要来一次疫苗注射以应对中共所谓的变异病毒的影响。太可怕了！太可怕了！
 
-有基本的脑子判断不要让你的孩子打了疫苗
-to have a basic knowledge to judge and not let your children get vaccinated
+**2.中俄签署合作文件　**
 
-打了疫苗吃青蒿素、吃伊维菌素
-If they have been vaccinated, have them take Artemisinin or Ivermectin
+“2月4日，俄罗斯总统普京访华并出席北京冬奥会开幕式，国家主席习近平同普京举行会晤。访问期间，双方有关部门和企业签署了一系列合作文件，包括：《中华人民共和国政府与俄罗斯联邦政府反垄断执法和竞争政策领域的合作协定》、《中国卫星导航系统委员会（中华人民共和国）与俄罗斯国家航天集团（俄罗斯联邦）关于北斗和格洛纳斯全球卫星导航系统时间互操作的合作协议》、《中国石油天然气集团有限公司与俄罗斯天然气工业股份公司远东天然气购销协议》、《中国石油天然气集团有限公司与俄罗斯石油股份公司低碳发展领域合作谅解备忘录》、《信息化和数字化领域合作协议》等。”
 
-或者你有什么这素那素、你能让孩子不死的素
-or whatever medicines that you have to keep them alive
+新闻链接: [https://m.weibo.cn/1649173367/4733287550948569](https://m.weibo.cn/1649173367/4733287550948569)
 
-非得要看到自己家人死去
-Why do you have to wait until family members die？
+点评:出卖老百姓的全部，只为习太阳自己的臆想，看看最后这包子的下场是怎样个惨不忍睹！
 
-然后你抹几天眼泪
-then you cry a couple of days
+文字版原文：[强国奇闻(2)](https://gnews.org/zh-hans/1967846/)
 
-然后再给自己找理由解脱吗？
-and then find an excuse for yourself to be relieved?
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-七哥真的这些天最大的痛苦莫过于如此
-All these are the biggest suffers that I have had during these days
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-就看着我们同胞在文化大革命饿死
-I have watched our brothers and sisters starve to death during the Cultural Revolution
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-生产队群居
-the production teams lived in groups
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-三反五反
-the Three-anti Campaign (1951) and Five-anti Campaign (1952)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-然后搞土改
-then the Land Reform Movement
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-杀了两百多万地主
-executed more than two million landlords
-
-结果死了6千多万老百姓
-and ended up killing more than 60 million ordinary people
-
-文化大革命把中国老祖宗的五千年的一切毁于一旦
-The Cultural Revolution had destroyed everything at once in the five thousand years of China’s ancestors
-
-然后还享受其中
-They (the CCP) even enjoyed all these
-
-然后是八九六四
-Then, the June 4th, 1989 (Tiananmen Square protests and massacre)
-
-然后计划生育死了几亿人（胎儿）
-and then the Family Planning that killed hundreds of millions (fetuses)
-
-现在又在搞这个疫苗，结果你真的打了
-And now they are doing this vaccine scam, and it turns out you are vaccinated
-
-国内真的是我现在告诉大家
-I’ll tell you now that domestic (China) is really…
-
-国内的房子未来我这觉得，可能真的一半的房子没人住
-I think that half of the houses in China may be unoccupied in the future
-
-一半的房子没人住
-Half of the houses in China would be unoccupied
-
-中国真的可能要死2亿人左右, 要死2亿人左右！
-China really may have about 200 million people die, about 200 million people have to die
-
-那是个什么样的灾难结果呀？
-What kind of catastrophe outcome is that?
-
-哎呀
-My God!
-
-七哥说实在话心很大
-I’m telling the truth, I have a strong heart
-
-但到那个时候七哥真是能受得住吗？你想想
-but think about it, could I really bear it when that moment comes?
-
-Date: 02/01/2022
-原视频标题:
-历数中共斑々劣迹，三反五反、土改、大跃进、大饥荒，让千百万人成了孤魂野鬼；文化大革命把老祖宗五千年的一切毁于一旦；计划生育弄死了几亿胎儿；8964及香港运动，镇压了多少渴望民主自由的青年；如今的强制疫苗，更是蒙骗杀戮百姓于无形。未来中共国会有2亿人左右死于毒疫苗，一半的房子将无人居住！
-The CCP’s bad deeds: the Three Antis and Five Antis, Land Reform, the Great Leap Forward, the Great Famine, the Cultural Revolution, the Family Planning, the June 4th movement, the Hong Kong movement, and the COVID vaccine disaster. The CCP China will be about 200 million people dying and leaving half of the houses unoccupied in the future.
-
-**原视频链接**: [https://gettr.com/post/prs3rmcce3](https://gettr.com/post/prs3rmcce3)
-
-原视频日期：2022/01/30
-原视频链接: https://gettr.com/post/prs3rmcce3
-任务编号：KC439（3652）
-视频时间段 : 0:00-02:01
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译: 洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-文新
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

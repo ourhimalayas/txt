@@ -2,28 +2,34 @@
 ---
 
 
-## 中共国与世不同的行事规则让所有人都付出代价
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1972474/)
+## 短视频：新冠疫苗通行证只会造成一个隔离的社会
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1972510/)
 
-#### 翻译/撰稿：文旺 | 校对：沙拉猫
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-07-181845.png)图片来源：www.economist.com
-美国“国会山报”（The Hill）2月6日发表了一篇“兰德”（Rand）智库深资学者克里斯托弗·保罗（Christopher Paul）的专文，指责中共国正以其他所有人的利益为代价推行其独有的规则。
+翻译：Fulin
+校对：枳实|
+剪辑字幕：小强
+编辑：文泓
 
-文章细数了中共靠阴谋诡计行事让其他所有人都付出代价的邪恶行径。文章指出，美国的民主体制不仅允许竞争对手不受限制地进入其市场，而且还允许对手进入象征民主第四根支柱的媒体生态系统。中共便利用这一点，让中共国的公司成功地进入了美国的媒体系统，而几乎没有受到美国监管机构的抵制。这些中共国的公司不仅能够访问美国的传播媒介，而且逐渐获得了拥有、控制和影响内容的全面能力，尤其是在广播电台方面。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/2-1-1.png)图片来源：视频截屏
 
-文章披露，中共国营的“中国国际广播电台” (CRI) 已获得 14 个国家至少 33 个广播电台的控股权——包括华盛顿特区的新闻广播公司 WCRW——以播放支持中共国的中文节目和报道有利于中国共产党的事件。战略与国际研究中心（Center for Strategic and International Studies）2020 年的一份报告发现，“美国几乎所有的中文新闻媒体要么归中共所有，要么与中共有密切合作——而且这种情况也开始发生在英文媒体里。美国人现在可以从全国各地十几个城市的广播电台的调频广播中，听到微妙的亲北京宣传。”
 
-文章指出，中共的官员要不在这些公司的董事会任职，要不直接就是公司的老板。而在美国，政治人物在当选时会放弃或至少放弃对其商业利益的某些控制。另外，所有中共国的公司在某种程度上都是国营的，或者至少是受国家影响或服从国家的，这在美国是难以理解的。
+（英国议会讨论新冠疫苗通行证）
+议长先生，有媒体报道说，今天下午有一个内阁会议和新闻发布会，以启动新冠冬季B计划，但根本没有提到议会的参与。
 
-文章称，尽管美国联邦通讯委员会（FCC） 确实有权监控外国机构对国内广播电台的控制，但中共国的 CRI 通过混淆手断使这些审查复杂化，那就是，通过空壳公司购买，或通过获得美国媒体集团的部分股权（或数个部分股权）来掩盖其真实目的，同时让 FCC 觉得中共国在美国媒体机构的利益低于 25%。
+新冠通行证不会提高疫苗的接种率，只会造就一个分裂的社会。我尊敬的朋友和首相，您是否知道，几乎不会有人会被这种转移注意力的策略所说服。
 
-文章认为，虽然中共国充分利用了自由市场的机会收购西方国家的媒体公司，但外国媒体公司却被中共国拒绝进入。中共的国有媒体锁住了国内市场，几乎不允许外国媒体有控制、投入或影响的机会。这种不平等为美国领导人向中共提出互惠条件提供了机会：除非中共国把其媒体市场的投资和所有权向外国开放，否则美国媒体公司就应该剥离中共国公司在美国的股份。
+（鲍里斯·约翰逊首相）
+议长先生，在没有咨询内阁的情况下，我不会做出任何决定。
 
-虽然文章承认这种要求有点不切实际，因为中共永远不会向外国势力开放其广播媒体，但认为这样的举动不仅可以为美国要求中共从美国媒体撤资提供一个公平合理的理由，还可以促使FCC更积极地打击和调查媒体背后的所有权资金链和影响力。文章最后指出，在虚假信息和不信任日益增加的时代，保护美国的媒体免受外国反民主力量的侵害无疑是值得迈出的一步。
+视频链接：[Protest News 在 Twitter: “”Covid passes will not increase uptake of the vaccine but will create a segregated society.” Clapping hands sign @William\_Wragg tells Boris Johnson at #PMQs why there should be #NoVaccinePassports. https://t.co/ewaI9CsXvl” / Twitter](https://twitter.com/ProtestNews_EN/status/1469678980907290631?t=snalGtomvNK35zPGmGfOkQ&amp;s=19)
 
-评：郭文贵先生在直播中早就指出，中共把媒体和宣传视为比核弹还厉害的武器，一直通过蓝金黄手段，收买和控制西方国家特别是美国的媒体，释放迷惑人心的信息烟雾弹，美化邪恶的独裁统治，企图让美国人民在不知不觉中慢慢被中共弱化，最后被中共国取代。但爆料革命和新中国联邦横空出世，揭露了中共的伎俩，让越来越多的美国有识之士认识到，如果不对中共的海外宣传机器进行反击，后果会越来越严重。这篇文章就是一个很好的例证，愿更多的美国民众能有文章作者这样的认识。
-
-消息来源：[How China plays by different rules — at everyone else’s expense](https://thehill.com/opinion/technology/592998-how-china-plays-by-different-rules-at-everyone-elses-expense?rl=1)
+发布：文泓
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
