@@ -15,83 +15,83 @@
 
 ---
 
-### [俄罗斯总统普京提前紧急撤离北京冬奥会](/content/gnews/1/README.md)
- ` 扬帆枫叶快讯`
-
-### [冬奥会开幕式在疫情恐惧下始乱终弃](/content/gnews/2/README.md)
- ` 扬帆枫叶快讯`
-
-### [美国众议院通过《美国竞争法案》](/content/gnews/3/README.md)
- ` 扬帆枫叶快讯`
-
-### [加拿大总督被强烈要求罢免总理特鲁多](/content/gnews/4/README.md)
- ` 扬帆枫叶快讯`
-
-### [特鲁多政府破坏“自由车队”的筹款活动](/content/gnews/5/README.md)
- ` 扬帆枫叶快讯`
-
-### [7/24系列：中美友好的记忆——蒲安臣及蒲安臣条约](/content/gnews/6/README.md)
- ` 墨尔本雅典娜农场`
-
-### [阿尔伯塔省计划提前结束疫苗护照](/content/gnews/7/README.md)
- ` 扬帆枫叶快讯`
-
-### [疫情何时结束？ 科学家说，这很复杂](/content/gnews/8/README.md)
- ` 澳喜特战旅Gnews`
-
-### [这个镇上没有人在谈论美国经济的整个结构以及坦率地说，我们是如何沉迷于轻松赚钱](/content/gnews/9/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [加拿大渥太华市长宣布进入紧急状态以应对卡车封锁](/content/gnews/10/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [有声|中共统治下的人间惨剧](/content/gnews/11/README.md)
- ` MOSREC`
-
-### [有声|强国奇闻(2)](/content/gnews/12/README.md)
- ` MOSREC`
-
-### [2022年2月8日《樱花简报》：日本研究发现繁殖能力强的病毒更易存活](/content/gnews/13/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声|中美初次建交，文明穿越百年](/content/gnews/14/README.md)
- ` MOSREC`
-
-### [2022.2.6大直播后记：中共会打台湾吗?](/content/gnews/15/README.md)
- ` 墨尔本雅典娜农场`
-
-### [未来中共国会有2亿人左右死于毒疫苗，一半房子将无人居住](/content/gnews/16/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [共产党对美关系（一）](/content/gnews/17/README.md)
- ` 雅典娜GNotes`
-
-### [短视频：新冠疫苗通行证只会造成一个隔离的社会](/content/gnews/18/README.md)
- ` 墨尔本雅典娜农场`
-
-### [灭共者之郭氏情报站（二十二）2022/02/06 文贵大直播](/content/gnews/19/README.md)
- ` MOS Designer香草山设计部`
-
-### [聚焦：通胀和无效市场是中共的两道鬼门关](/content/gnews/20/README.md)
- ` 丁过`
-
-### [新不伦瑞克省法院：中止未接种疫苗的父亲的监护权，称疫苗安全性和有效性“众所周知”](/content/gnews/21/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [2/6/2022 文贵直播：中共让各国际组织、华尔街、好莱坞等在中共国被蓝金黄并享受着特权，中共把中国变成了冒险家的乐园](/content/gnews/22/README.md)
+### [GTV股票和数字资产G-Coin、G-Dollar款项退款分配方案要点](/content/gnews/1/README.md)
  ` 秘密翻译组-北美组`
 
-### [中共国与世不同的行事规则让所有人都付出代价](/content/gnews/23/README.md)
- ` 秘密翻譯組G-Translators`
+### [中共利用冬奥会窃取各国运动员DNA](/content/gnews/2/README.md)
+ ` 扬帆枫叶快讯`
 
-### [共产党家族拥有特权](/content/gnews/24/README.md)
- ` 雅典娜GNotes`
+### [俄罗斯总统普京提前紧急撤离北京冬奥会](/content/gnews/3/README.md)
+ ` 扬帆枫叶快讯`
 
-### [Antifa激进分子开车撞伤温尼伯自由车队抗议者](/content/gnews/25/README.md)
+### [冬奥会开幕式在疫情恐惧下始乱终弃](/content/gnews/4/README.md)
+ ` 扬帆枫叶快讯`
+
+### [美国众议院通过《美国竞争法案》](/content/gnews/5/README.md)
+ ` 扬帆枫叶快讯`
+
+### [加拿大总督被强烈要求罢免总理特鲁多](/content/gnews/6/README.md)
+ ` 扬帆枫叶快讯`
+
+### [特鲁多政府破坏“自由车队”的筹款活动](/content/gnews/7/README.md)
+ ` 扬帆枫叶快讯`
+
+### [7/24系列：中美友好的记忆——蒲安臣及蒲安臣条约](/content/gnews/8/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [阿尔伯塔省计划提前结束疫苗护照](/content/gnews/9/README.md)
+ ` 扬帆枫叶快讯`
+
+### [疫情何时结束？ 科学家说，这很复杂](/content/gnews/10/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [这个镇上没有人在谈论美国经济的整个结构以及坦率地说，我们是如何沉迷于轻松赚钱](/content/gnews/11/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [加拿大渥太华市长宣布进入紧急状态以应对卡车封锁](/content/gnews/12/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [对沈凌先生的文章《美国政府借鸡生蛋？中国怎么办？》之想法一](/content/gnews/26/README.md)
- ` 澳喜特战旅Gnews`
+### [有声|中共统治下的人间惨剧](/content/gnews/13/README.md)
+ ` MOSREC`
+
+### [有声|强国奇闻(2)](/content/gnews/14/README.md)
+ ` MOSREC`
+
+### [2022年2月8日《樱花简报》：日本研究发现繁殖能力强的病毒更易存活](/content/gnews/15/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有声|中美初次建交，文明穿越百年](/content/gnews/16/README.md)
+ ` MOSREC`
+
+### [2022.2.6大直播后记：中共会打台湾吗?](/content/gnews/17/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [未来中共国会有2亿人左右死于毒疫苗，一半房子将无人居住](/content/gnews/18/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [共产党对美关系（一）](/content/gnews/19/README.md)
+ ` 雅典娜GNotes`
+
+### [短视频：新冠疫苗通行证只会造成一个隔离的社会](/content/gnews/20/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [灭共者之郭氏情报站（二十二）2022/02/06 文贵大直播](/content/gnews/21/README.md)
+ ` MOS Designer香草山设计部`
+
+### [聚焦：通胀和无效市场是中共的两道鬼门关](/content/gnews/22/README.md)
+ ` 丁过`
+
+### [新不伦瑞克省法院：中止未接种疫苗的父亲的监护权，称疫苗安全性和有效性“众所周知”](/content/gnews/23/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [中共国与世不同的行事规则让所有人都付出代价](/content/gnews/24/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [共产党家族拥有特权](/content/gnews/25/README.md)
+ ` 雅典娜GNotes`
+
+### [Antifa激进分子开车撞伤温尼伯自由车队抗议者](/content/gnews/26/README.md)
+ ` 温哥华圆成农场🇨🇦`
 
 ### [澳洲派部队进驻养老院所暴露出的问题](/content/gnews/27/README.md)
  ` 喜国公民`

@@ -2,61 +2,22 @@
 ---
 
 
-## 这个镇上没有人在谈论美国经济的整个结构以及坦率地说，我们是如何沉迷于轻松赚钱
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1972618/)
+## 阿尔伯塔省计划提前结束疫苗护照
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/1972632/)
 
-[https://gtv.org/video/id=62014e15585ecc15d73eab75](https://gtv.org/video/id=62014e15585ecc15d73eab75)
+加拿大温哥华扬帆农场    平民正道
 
-**Steve Bannon**
-**史蒂夫·班农**
+据加拿大[环球邮报]2月4 日报道，阿尔伯塔省政府目前正准备在全省范围内停止正在使用的疫苗护照和大部分疫情限制措施。
 
-Since 2008, in the great financial crash
-自2008年以来，在大金融危机中
+为此，省长肯尼表示，如果该省医疗系统的疫情压力持续减缓，就将分阶段在2月底之前停止现行的各项防疫措施。并声称，阿省的高疫苗接种率以及下降的病毒感染人数，使得以上决定可行。
 
-the strategy of the Fed and the central banks have been essentially zero interest rates
-美联储和中央银行的策略基本上是以零利率
+目前，阿省的所有酒吧，餐馆，影剧院等公共消费及娱乐场所都需要疫苗护照，尽管该措施原则上是自愿进行，但不执行该规定的商家将会在包括降低客户数量等方面受到当局的限制。
 
-to push up assets
-来推高资产
+据悉，近期以来，肯尼省长受到了来自各界和其他政党越来越大的压力，特别是目前正在渥太华进行的卡车司机抗议运动，都使得当局开始意识到疫苗护照因严重侵犯了个人权利，而必须立即取消。
 
-We’re coming to the end of that
-我们即将结束这种方式
+* * *
 
-And there’s no one today is having a sophisticate
-而且今天没有人拥有一个成熟的
-
-where they say that their deplorable are so dumb and stupid
-他们说他们的小人物是如此愚蠢和愚蠢
-
-Nobody in this town is having a an adult conversation
-这个镇上没有人在进行成年人的谈话
-
-about the entire structure of the American economy, and how quite frankly
-关于美国经济的整个结构，坦率地说
-
-we’re addicted to easy money and we’re addicted to zero interest rates
-我们沉迷于轻松赚钱并且我们沉迷于零利率
-
-**原视频链接:**[https://gettr.com/post/pshgmh2283](https://gettr.com/post/pshgmh2283)
-
-Date:02/05/2022
-原视频标题: “Nobody in this town is having an adult conversation about the entire structure of the American economy and how, quite frankly, we’re addicted to easy money.”
-“这个镇上没有人在谈论美国经济的整个结构以及坦率地说，我们是如何沉迷于轻松赚钱的。”
-原视频日期：2022/02/05
-原视频链接: https://gettr.com/post/pshgmh2283
-任务编号：KE384（3676）
-视频时间段 : 0:00-0:29
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场- 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+编辑： 平民正道    发布：平民正道
 
  
 

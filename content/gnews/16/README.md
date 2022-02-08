@@ -2,123 +2,37 @@
 ---
 
 
-## 未来中共国会有2亿人左右死于毒疫苗，一半房子将无人居住
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1972541/)
+## 有声|中美初次建交，文明穿越百年
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1972559/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/apa1d-0xvla.jpg)
-[https://gtv.org/video/id=62014d33585ecc15d73eab32](https://gtv.org/video/id=62014d33585ecc15d73eab32)
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+2月4日文贵大直播中，郭先生回顾中美两国人民的友谊之路时，告诉同胞，中美初次通商始于大清年间。彼时的美国是一个刚刚独立的国家，为了区别于大英帝国，亟需在世界上建立外交关系与贸易。美国人乘坐“中国皇后号”远航，第一个远东外交目的地就是中国广州。他们为中国带去了西洋参和白银，从中国带回了茶叶、瓷器及火药。经此次贸易，中美两国人民建立了深厚的友谊。中国人遵守规则，勤劳朴实；官员聪慧；中国食物丰富美味；尤其中国女性极为干净，眼神坚定。彼时中国的高度文明，吸引美国派驻中国的大使，蒲安臣是美国派去中国的大使，设立驻中国大使馆。后来，蒲安臣还代表中国大清政府参与大清外交事务，据此诞生了著名的美国游说文化。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-06-at-10.53.08-PM.png)
+从此，中国与世界各国的交流愈加频繁，西方人对中华民族充满了尊敬，认为中国人的勤劳智慧和悠久深厚的文明，像太阳一样永恒，永远不要与心灵善良，爱好和平的中国人为敌，因为他们是文明的象征。
 
-**郭文贵**
-Miles Guo
+历史发展到百年之后的今天，美国授权撤离中国大使馆，说明美国一点都不能容忍中共犯下的各种罪责。北京冬奥会上中共的各种荒唐无礼耍赖，完全看不到一丁点文明的影子。中国大清年间的高度文明和中共现在的丑态形成了巨大的反差。中国再这样发展下去，整个民族都可能湮灭。
 
-在今天的疫苗灾难之前，你知道我最大的痛苦是什么吗？
-Facing the vaccine disaster today, do you know what has been my biggest suffering?
+这种现况是中共带给中国人民的，所以我们一定要灭共。新中国联邦将承载中国人深厚永恒的高度文明及责任，不仅要挽救中国人民，还将带领全人类走出黑暗。
 
-中国的男人能不能有一次当回男人？
-All men in China, could you be the real men once?
+文字版原文：[中美初次建交，文明穿越百年](https://gnews.org/zh-hans/1966038/)
 
-你挑起一个当爹的、当男人的基本的一个责任
-To assume the basic responsibility of being a father and a man
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-有基本的脑子判断不要让你的孩子打了疫苗
-to have a basic knowledge to judge and not let your children get vaccinated
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-打了疫苗吃青蒿素、吃伊维菌素
-If they have been vaccinated, have them take Artemisinin or Ivermectin
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-或者你有什么这素那素、你能让孩子不死的素
-or whatever medicines that you have to keep them alive
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-非得要看到自己家人死去
-Why do you have to wait until family members die？
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-然后你抹几天眼泪
-then you cry a couple of days
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-然后再给自己找理由解脱吗？
-and then find an excuse for yourself to be relieved?
-
-七哥真的这些天最大的痛苦莫过于如此
-All these are the biggest suffers that I have had during these days
-
-就看着我们同胞在文化大革命饿死
-I have watched our brothers and sisters starve to death during the Cultural Revolution
-
-生产队群居
-the production teams lived in groups
-
-三反五反
-the Three-anti Campaign (1951) and Five-anti Campaign (1952)
-
-然后搞土改
-then the Land Reform Movement
-
-杀了两百多万地主
-executed more than two million landlords
-
-结果死了6千多万老百姓
-and ended up killing more than 60 million ordinary people
-
-文化大革命把中国老祖宗的五千年的一切毁于一旦
-The Cultural Revolution had destroyed everything at once in the five thousand years of China’s ancestors
-
-然后还享受其中
-They (the CCP) even enjoyed all these
-
-然后是八九六四
-Then, the June 4th, 1989 (Tiananmen Square protests and massacre)
-
-然后计划生育死了几亿人（胎儿）
-and then the Family Planning that killed hundreds of millions (fetuses)
-
-现在又在搞这个疫苗，结果你真的打了
-And now they are doing this vaccine scam, and it turns out you are vaccinated
-
-国内真的是我现在告诉大家
-I’ll tell you now that domestic (China) is really…
-
-国内的房子未来我这觉得，可能真的一半的房子没人住
-I think that half of the houses in China may be unoccupied in the future
-
-一半的房子没人住
-Half of the houses in China would be unoccupied
-
-中国真的可能要死2亿人左右, 要死2亿人左右！
-China really may have about 200 million people die, about 200 million people have to die
-
-那是个什么样的灾难结果呀？
-What kind of catastrophe outcome is that?
-
-哎呀
-My God!
-
-七哥说实在话心很大
-I’m telling the truth, I have a strong heart
-
-但到那个时候七哥真是能受得住吗？你想想
-but think about it, could I really bear it when that moment comes?
-
-Date: 02/01/2022
-原视频标题:
-历数中共斑々劣迹，三反五反、土改、大跃进、大饥荒，让千百万人成了孤魂野鬼；文化大革命把老祖宗五千年的一切毁于一旦；计划生育弄死了几亿胎儿；8964及香港运动，镇压了多少渴望民主自由的青年；如今的强制疫苗，更是蒙骗杀戮百姓于无形。未来中共国会有2亿人左右死于毒疫苗，一半的房子将无人居住！
-The CCP’s bad deeds: the Three Antis and Five Antis, Land Reform, the Great Leap Forward, the Great Famine, the Cultural Revolution, the Family Planning, the June 4th movement, the Hong Kong movement, and the COVID vaccine disaster. The CCP China will be about 200 million people dying and leaving half of the houses unoccupied in the future.
-
-**原视频链接**: [https://gettr.com/post/prs3rmcce3](https://gettr.com/post/prs3rmcce3)
-
-原视频日期：2022/01/30
-原视频链接: https://gettr.com/post/prs3rmcce3
-任务编号：KC439（3652）
-视频时间段 : 0:00-02:01
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译: 洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-文新
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
