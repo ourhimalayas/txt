@@ -2,36 +2,25 @@
 ---
 
 
-## CNN现在已经彻底崩溃
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1974719/)
+## 《历史上的今天》2022.02.08
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1974747/)
 
-编译： Jenny Ball
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-14.jpg)图片来源：republicbrief.com
-正如川普总统所预测的那样，CNN 在彻底的耻辱中完成了“一夜暴富”的旅程。然而，主流媒体将完全忽略川普及其支持者，在推动不受左翼宣传欢迎的问题上是正确的。
+作者：映兰轩
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-76.png)[图片来源](https://www.google.com/url?sa=i&amp;url=https%3A%2F%2Fnews.ltn.com.tw%2Fnews%2Fworld%2Fbreakingnews%2F1599488&amp;psig=AOvVaw2mvJ0lglc2sMr4wiI4xwui&amp;ust=1644374199147000&amp;source=images&amp;cd=vfe&amp;ved=0CAsQjRxqFwoTCPCj9LyJ7_UCFQAAAAAdAAAAABAD)
+1. 1672年：艾萨克-牛顿在伦敦皇家学会面前宣读了第一篇光学论文
+2. 1945年：英加联军展开真实行动，扫荡莱茵河西岸的德军
+3. 1950年：东德成立国家安全机构史塔西
+4. 1971年：纳斯达克开始正式交易，纳斯达克综合股市指数首次出现，有50家公司，起始值为100
+5. 1974年：美国太空实验室再入地球
+6. 2002年：澳门博彩业经营权由澳门博彩股份有限公司、永利及银河夺得，结束了以何鸿燊为首的单一经营权的局面
+7. 2016年：香港因小贩管理问题引发一次严重警民冲突，是日为农历新年的年初一
+8. 2018年：美国道琼斯工业平均指数一周内第二次急挫过千点，收市跌1032点
+9. 2021年：南非停止推广牛津阿斯利康COVID-19疫苗，因为对南非变体的研究显示对轻度和中度疾病没有保护作用
 
-正如 《国会山报》(The Hill) 报道的那样，这可能是“川普诅咒”，但 CNN 长期以来一直在走向灾难，尽管 CNN初创是还很不错。
-
-“直到 2002 年，在有线电视新闻竞赛中CNN 一直位居榜首排名第一。但竞争永远结束了CNN的主导地位，竞争在之前是不存在的，主要以福克斯新闻的形式，和在较小程度上的MSNBC。据 The Hill 周一报道，尽管有收视结果，但 CNN 继续将自己标榜为一个可信的、以事实为先的诚信网络，该网络严重依赖可靠的报道，并通过“拉里·金秀”(Larry King Live) 和“交火”（Crossfire）等节目，混合观点和信息的娱乐 。
-
-在最近的记忆中，由杰夫·扎克领导的 CNN ，只不过是左翼的不断攻击的机器，只专注于诋毁川普，并试图边缘化和打击他的支持者。
-
-现在，扎克和整个新闻网络都看到了疏远大量人群的后果。
-
-扎克试图引导有关 COVID 病毒的内容，是为了提拔激进的左翼纽约州长安德鲁·库莫（Andrew Cuomo），后者后来被迫下台：
-
-为了证明 CNN 已经彻底垮台，孔查（Concha）写道：
-
-“我希望看到 CNN 恢复到最初的那种新闻业，并拥有真正的记者，这将是独特而令人耳目一新的，”马龙最近在 CNBC 播出的一次采访中说。
-
-**参考资料：**[republicbrief][CNN’s collapse is now complete](http://republicbrief.com/cnns-collapse-is-now-complete/)
 
 * * *
 
-*审核：文乐
-校对：花羽
-发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH..jpeg)
+*发布：Theodosia*
 
  
 

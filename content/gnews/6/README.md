@@ -2,28 +2,37 @@
 ---
 
 
-## 柳叶刀：研究人员警告Covid-19 疫苗可能会增加 HIV 感染的风险
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1975361/)
+## 香港新冠确诊人数接连创新高
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1975409/)
 
-**翻译：日本东京方舟农场  JIHO**
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-周一《柳叶刀》医学杂志上的一组研究人员警告说，目前正在开发的一些 Covid-19 中共病毒疫苗可能会增加感染 HIV 的风险，随着疫苗向世界各地易感人群推出，可能导致感染增加。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-78.png)图片来自福克斯新闻网
-根据福布斯2020年的一篇报导，研究人员警告说，十多年前研制艾滋病毒疫苗的努力有一个“警示故事”，其中一个有希望的候选疫苗实际上增加了一些男性感染病毒的风险。
+整理：Eileen（围剿维尼熊）
+编辑：朝花夕拾
 
-该疫苗利用一种被称为腺病毒 5 (Ad5) 的改良病毒作为载体，将一些 HIV 的遗传物质运送到体内。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-614.png)
 
-该疫苗究竟如何增加 HIV 传播的风险目前尚不清楚，但美国国立卫生研究院召开的一次会议建议不要在 HIV 疫苗中进一步使用 Ad5 作为疫苗的载体（Anthony Fauci 博士是概述这一立场的论文的主要作者。)
 
-Ad5 被用作某些 Covid-19 疫苗的载体——《科学》杂志确定了四种此类候选疫苗，目前正在包括美国在内的世界各国进行临床试验，其中两类正在俄罗斯和巴基斯坦进行大规模的 3 期试验。
 
-研究人员强调，在开发和部署使用含该载体的疫苗之前，有必要了解 Ad5 在增加易感人群感染 HIV 风险方面可能发挥的作用。
+图片来源：雅典娜设计组
 
-参考链接：
-[https://www.forbes.com/sites/roberthart/2020/10/20/researchers-warn-some-covid-19-vaccines-could-increase-risk-of-hiv-infection/?sh=1b19b1d33740](https://www.forbes.com/sites/roberthart/2020/10/20/researchers-warn-some-covid-19-vaccines-could-increase-risk-of-hiv-infection/?sh=1b19b1d33740)
 
-编辑：老孙
-发布：爱放飞
+根据直新闻2月8日报道，香港目前疫情形势危急，确诊人数接连创新高。特区政府卫生署及医管局2月7日下午举行疫情记者会，卫生防护中心总监徐乐坚表示，香港当天新增614例确诊个案，主要为春节出游后的检测结果，情况并不乐观。
+
+徐乐坚表示，因确诊数字不断上升，2月8日起会启用竹篙湾一带隔离措施，希望市民尽量配合，减少外出、聚集。
+
+卫生署卫生防护中心传染病处主任张竹君医生表示，在2月7日的新增确诊当中，有150例与早前确诊病例相关，其余457例仍在调查中。张竹君指出，当天确诊多为保安、清洁员、工地工人等。
+
+参考链接：[香港单日确诊614例 火眼实验室重启\_凤凰网 (ifeng.com)](https://i.ifeng.com/c/8DSLqtVdBSg)
+
+*发布：*星谕
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
