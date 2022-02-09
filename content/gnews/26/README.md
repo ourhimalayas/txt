@@ -2,32 +2,55 @@
 ---
 
 
-## 七哥说“普京是唯一一个没有选择炭中取火，炭中取火”（2022-02-06摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1981132/)
+## 有史以来毒性最强的5种疫苗（1/2）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1981192/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+翻译： Jenny Ball
 
-来源：郭先生2022-02-06直播08：24：26摘录
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Covid-19-Montage-Vaccine-Syringe.jpg)图片来源：S.D. Wells（naturalnews.com）
 
-十几个人，这十来个人都是普京身边染上的，普京恼火啊！俄罗斯要求是绝对独立、绝对独立的保护和医疗措施进入到北京，习和他之间连握手这个环节都免了的。就这还给染上了，就是说普京很害怕这个病毒，最后给染上以后他恼火了。更重要的事情，中国人民币在俄罗斯关于汇率、兑价。中方曾经承诺，任何情况下俄罗斯停止使用人民币的的时候，中方将按照黄金计算本位。它有一个国际上一个叫什么？本币互换，就两国你的俄罗斯币、我人民币互换。互换中间有个时间期，时间期的窗口期内如果你的币没了、零了你得给我黄金，知道吗？这很简单的，是吧？不是说你现在就把人民币都弄没了，这怎么行？还有个黄金来计算，叫黄金本位下的最后保底的价值。俄罗斯说，你应该按照什么3个月，和12个月、26个月之间的黄金差率，兑换给我黄金。你变成纸没事儿，你得给我黄金，中共国不干。普京说我来之前你干，我来了你就不干了？这就是你们中国人，这就是你们中国共产党，要不然你们老百姓不相信你，谁会相信你？谁跟你打交道？我要不看着习本人的这个关系，我的飞机我直接在天上就飞回去了，是吧？这话这么说，什么叫个人关系？毕竟你还欠我一万个亿，我还没兑现呢，实际上是这话，谁管你个人关系。国际政治哪有个人关系？只有，人类上只有一个习太阳才相信所谓大国领导人私人关系，他永远、永远、永远挂在嘴上的。这就是他的悲剧，连我这样的人都不会相信任何国际政治上个人关系，扯淡的，当了政治家就不是人了，他只是可控制的魔，和可控制的骗子，还是不可控制的魔，不可控制的骗子，没有什么国家领导人是好人。中国人为这个所谓的政治无知、政治白痴，和所谓的这个“集中力量办大事”，所谓的习骨子里边儿的恨西方白人世界，让你们运动员都死在这才好呢，让你们吃屎，拉尿、喝尿，我让你们参加这冬奥会。所有共产党对西方的这种憎恨、习太阳对西方的憎恨，全部表露无遗。普京是唯一一个没有选择炭中取火，炭中取火！
+自然新闻 – 如果大众媒体和大型制药公司的资金，不是印制和宣传疫苗“安全有效”寓言背后的原因，那么科学将证明并非如此。如果美国的医生批评或质疑疫苗，他们会立即被 AMA、CDC 和 FDA 封口，他们都被教导：将任何因注射和接种疫苗造成的伤害或死亡归咎于其他任何事情，而这些注射和接种从未被科学证明是安全或有效的。即使是经过同行评审的疫苗研究也是伪造、编造和歪曲的，以达到他们想要发表的结果，事实上，其中一些研究已经被揭露是计算机生成的欺诈行为，不得不撤回。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+疫苗的原理是真实的，但它们的设计不是为了预防疾病，而是在所有人体系统中引起紊乱。
 
-**关注我们**
+神经系统、免疫系统、消化系统和血管系统，现在都受到有毒疫苗的轰炸，导致慢性疾病和死亡，这不仅仅是一个长期的问题。医生和科学家正在吹嘘 Covid 注射，这根本不是真正的疫苗。过去，疫苗被设计用来破坏良好的肠道细菌，但现在它们会改变人体细胞，从内部产生毒素。
 
-Discord 账号
+脊髓灰质炎疫苗传播了癌症。大多数人不知道这一点。猿猴病毒 40 (SV40) 在 1955 年至 1963 年间被注射到 1 亿美国人的脊髓灰质炎疫苗中发现。如果您不知道，SV40 是一种促癌病毒，CDC 曾经在他们的网站上有一个关于它的事实页面。据估计，多达 3000 万美国人可能受到了污染剂量。得了癌症。检查医生和护士从未向您读过插页上列出的疫苗成分。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+这让我们想到了有史以来最毒的 5 种伤害人体的疫苗：
 
-Gettr 账号
+#1.  Covid mRNA 和蛋白质有效载荷注射“疫苗”和“加强剂” [“vaccines” and “boosters”](https://www.naturalnews.com/2022-02-04-unnatural-blood-clots-found-dead-bodies-vaccinated.html)
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+#2. 多剂量流感疫苗（又名流感疫苗 [influenza vaccine](https://naturalnews.com/2018-10-04-flu-shot-warning-vaccine-endangers-pregnant-women-and-babies.html)）
 
+#3. 人乳头瘤病毒疫苗（[papillomavirus virus vaccine](https://naturalnews.com/055471_HPV_vaccines_whistleblower_vaccine_injury.html) HPV）
+
+#4. 麻疹/腮腺炎/风疹疫苗 ([Measles/mumps/rubella](https://naturalnews.com/049273_MMR_vaccine_autism_Andrew_Wakefield.html) MMR)
+
+#5. 轮状病毒疫苗[Rotavirus vaccine](https://naturalnews.com/2021-03-22-other-china-virus-deadly-chinese-pig-circovirus-rotavirus-vaccine.html)
+
+今天的疫苗，不仅包含他们甚至没有解决的疾病的活版本，还包含转基因生物，来自受感染的牛、猪、鸡和猴子的激素，未经测试的病毒组合（如 H1N1）、铝、汞、乳化剂和来自动物、蚊子和患病的人类的杂交细菌。 以下是其他一些根本不应该被批准使用的有毒疫苗，更不用说被认为是“安全有效”了。
+
+麻疹活病毒疫苗：（Attenuvax）由默克公司制造。给予两次注射；一个在 1 岁，另一个在 4 岁。含有明胶、山梨糖醇、氯化钠、牛血清、鸡蛋蛋白和人白蛋白。
+
+麻疹和腮腺炎活病毒疫苗： (MMR) 由默克公司制造。注射到一岁的婴儿体内。含有明胶、山梨糖醇、氯化钠、牛血清和人白蛋白。
+
+白喉、破伤风和脊髓灰质炎疫苗（百白破）：在 2 至 6 岁之间进行五次注射，并每 10 年“推荐”一次加强剂。含有甲醛、苯氧乙醇和磷酸铝。
+
+白喉、破伤风、百日咳；脊髓灰质炎；乙肝和 B 型流感嗜血杆菌：给予 2 至 12 个月大的婴儿，不到一年后加强免疫。含有氢氧化铝、甲醛和牛血清。
+
+加德西人乳头瘤病毒**HPV**：默克公司生产的人乳头瘤病毒疫苗。为患有罕见性传播疾病的 9 岁儿童使用。含有聚山梨醇酯 80、氯化钠、铝和病毒的“变性”（碎片和减弱）形式。
+
+在文章的第二部分见这些毒疫苗的副作用的危害。
+
+**参考资料：**[naturalnews][The 5 most TOXIC VACCINES ever invented and how they maim and kill humans](https://www.naturalnews.com/2022-02-07-5-most-toxic-vaccines-ever-invented.html)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发稿：信心的选择*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH..jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

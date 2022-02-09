@@ -2,20 +2,22 @@
 ---
 
 
-## 摄像机捕捉到冬奥中共速滑运动员的作弊行为
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1980983/)
+## 谷爱凌归化中共参赛 疯狂拿下几十家品牌代言
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1980984/)
 
 作者：银河系农场—骄子
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-2月7日晚，在北京冬奥会室内体育场举办的女子第一组500米短道速滑四分之一决赛中，中共选手范可新被摄影机捕捉到向加拿大选手的冰鞋投掷障碍物，导致加拿大选手查尔斯摔倒。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-14.jpg)
-此视频片段被上传至社交媒体后被删除，最后又被重新发布。此事引发了网上的热议，很多观众表示此小动作过于隐蔽，看了很多次慢动作回放才看到发生了什么。
+2月8日，在北京冬奥会上代表中共参赛的原美籍选手谷爱凌，在自由式滑雪女子大跳台决赛中夺得冠军。之后，她在中共国社交媒体上迎来霸屏式的关注，同时她代言的各类品牌广告宣传片也纷纷上映。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-15.jpg)
+目前，她代言的品牌有雅诗兰黛、天气森林、科勒、维多利亚的秘密、凯迪拉克、路易威登、蒂芙尼、IWC万国手表等。有消息人士称，谷爱凌的代言费已经涨至180万美元，这次冬奥会已经让谷爱凌赚得上亿元人民币。
 
-从视频中可以看到，中共选手范可新把手从旁边运动员布吕内勒的腿上跨过时，向在前方的查尔斯冰鞋下面投掷了障碍物，随即查尔斯摔倒。布吕内勒受到惩罚，查尔斯则获准晋级。
+此前谷爱凌的国籍问题曾遭到质疑，但她丝毫不以为然，处处帮着中共说话。
 
-据悉，中共选手范可欣曾在2018年韩国冬奥会上因作弊而被取消中国女子3000米接力决赛资格。
+郭先生曾在2月6日的大直播中爆料，早在前几个月之前，西方世界就在调查北京冬奥会，发现有太多人从中拿到了利润。中共已经把奥林匹克体育精神变成了纯粹的邪恶和利益交换的工具。
 
-参考链接：[摄像机捕捉到冬奥中共速滑运动员的作弊行为](https://www.news.com.au/sport/winter-olympics/chinese-stars-eyebrowraising-olympic-act-caught-on-camera/news-story/233e9a5efd33a45709116fe3f09aebbb)
+参考链接：
+1. [谷爱凌归化中共参赛 疯狂拿下几十家品牌代言](https://m.yicai.com/news/101310499.html)
+2. [谷爱凌归化中共参赛 疯狂拿下几十家品牌代言](https://www.dailymail.co.uk/news/article-10439691/Star-skier-Eileen-Gu-switched-Team-USA-Team-China-2022-Winter-Olympics.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 

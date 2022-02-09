@@ -2,38 +2,39 @@
 ---
 
 
-## 国王费利佩六世Covid检测呈阳性，将被隔离7天
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1981209/)
+## 喜剧演员希瑟·麦克唐纳在演出期间倒地后颅骨骨折
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1981251/)
 
-**编译：七龙珠**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip国王费利佩六世Covid检测呈阳性，将被隔离7天.png)國王費利佩六世新冠病毒檢測呈陽性，將被隔離 7 天EL MUNDO（視頻）// EFE（照片）
-据王室称，国王费利佩六世今天上午Covid-19检测呈阳性，而他从昨晚开始出现了该疾病的“轻微症状”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-930-e1644435355733.png)图片来源：网络
+2月5日，周六晚7点，51岁的喜剧演员希瑟·麦克唐纳在亚利桑那州坦佩市的一场脱口秀即兴表演中突然仰面倒地后颅骨骨折。
 
-出于这个原因，并“遵循卫生当局制定的规则”，他将继续被隔离七天，国王府周三发表的一份声明解释道。费利佩六世的感染意味着他将不得不在这期间暂停公务活动。
+在她不到三分钟的表演里，她说：”我不需要吹牛，我不在乎，我想让你们知道，我打了两针，加强剂，流感疫苗，我也打了带状疱疹疫苗，而且我现在还有月经，是的（狂欢状）。我还去旅游，去了墨西哥两次，演出，见人，从未感染过Covid。无疑，耶稣最爱我，真的，很好，很好….啊…（轰然倒地）”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-931-e1644435396522.png)图片来源：网络
+顿时观众席传来一阵阵笑声，估计都以为演员在舞台上演戏吧。 这真是一场意外的幽默讽刺剧，充满喜剧性。麦克唐纳本想讽刺那些不打疫苗者，沒想到自己却因疫苗副作用突发倒地。
 
-根据同一份说明，国王的总体健康状况“良好”，这就是为什么预计他将在其住所维持其机构活动。
+耶稣最爱她，给她开了一个最大的玩笑。可笑，更可悲。她自己的无知，导致了可悲的结果。她没有被病毒感染击倒，却被疫苗副作用击倒。
 
-莱蒂齐亚王后和索菲亚女皇没有任何症状，将能够按照既定规则继续进行正常的预定活动。但她们都将受到这些规定中的约束。
+根据周日在她的官方Facebook页面上发布给粉丝的一条消息，麦克唐纳于2月4日星期五晚上在Tempe Improv演出，没有发生任何事故。她周六早上和儿子一起度过了平静的时光。周六晚上7点，麦克唐纳开始她的即兴表演，她在舞台上大约3分钟，突然倒下 。随后，麦克唐纳被送往当地一家医院，在那里进行测试以确定导致她崩溃的原因，到目前为止，测试没有发现可能导致这一突发事件的潜在医疗问题。麦克唐纳还接受了COVID-19病毒检测，结果为阴性。
 
-费利佩先生的感染导致他原定于本周三将在女王的陪同下在扎苏埃拉宫出席的与波斯尼亚和黑塞哥维那总统泽利科-科姆希奇举行的会谈以及随后的午餐会暂停。
+祝愿她早日康复，早日清醒，也希望更多人能因此喜剧而清醒过来。
 
-此外，明天，星期四，他将无法向经济学家Manuel Arellano颁发第18届西班牙国王经济学奖，这项活动原定在西班牙银行举行，他也无法按照议程安排在Zarzuela接待空客公司首席执行官Guillaume Faury的接见。
+文章观点仅代表作者，与Gnews平台无关
 
-莱蒂齐亚王后由于没有症状，所以不需要禁闭，她正在维持她的工作日程，下周五她将访问位于Pozuelo de Alarcón（马德里）的Quirón Salud大学医院的代顿治疗中心。
+参考资料：[https://amp.tmz.com/2022/02/08/heather-mcdonald-fainting-collapsing-on-stage-video/](https://amp.tmz.com/2022/02/08/heather-mcdonald-fainting-collapsing-on-stage-video/)
 
-根据《世界报》上周日发表的内容，国王的父亲胡安-卡洛斯一世去年11月在阿布扎比秘密感染了冠状病毒，阿联酋王储穆罕默德-本-扎耶德-阿勒纳哈扬派直升机将他送往医院，虽然他的健康状况还算很好，但在那里呆了好几天。
+[https://news.yahoo.com/comedian-heather-mcdonald-suffers-skull-221613281.html](https://news.yahoo.com/comedian-heather-mcdonald-suffers-skull-221613281.html)
 
-**新闻来源**：[elmundo.es][El Rey Felipe VI da positivo por Covid y estará aislado siete días](https://www.elmundo.es/espana/2022/02/09/6203b3aee4d4d8ea6c8b45c4.html)
+作者：洛杉矶盘古农场 — 郭友(文苏)
 
-* * *
+编审：洛杉矶盘古农场 — 心照
 
-***审核：Aries的星
-校对：小东
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH..jpeg)
+发布：洛杉矶盘古农场 — 子萍
 
 
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

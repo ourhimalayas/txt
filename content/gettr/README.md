@@ -17,10 +17,17 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
-`@miles 2/9/2022 10:35 PM (UTC)`
+`@miles 2/9/2022 10:52 PM (UTC)`
 
-2/9/2022 Miles Guo: The case of  Weijian Shan and PAG reveals the dark secrets of the Chinese Communist Party's deep penetration of the U.S. barristers and the judiciary, and the case filing of UBS in the British court opens the door to the evil collusion between the swamp and the CCP<br/><br/>2/9/2022 文贵直播：单伟建和PAG案揭露了中共深度渗透美国大律师界和司法界的黑幕，瑞银(UBS)在英国法院立案是打开了沼泽地和中共邪恶勾兑的大门<br/>
-![img](https://media.gettr.com/group17/getter/2022/02/09/22/1e4f5cc8-603c-787c-0aeb-823736e69d56/out.jpg)
+2/9/2022 Miles Guo: Three major events today - 1) I have started to openly fight the swamp in court for the first time; 2) I will go to the UK and Japan to fight the CCP at close range; 3) I will prepare for the worst in case of the CCP's threats. We will wage a full-scale war on the PAG case and will thoroughly expose the CCP’s BGY scheme and infiltration against the West<br/><br/>2/9/2022 文贵直播：今天的三件大事 - 1) 首次在法庭上跟沼泽地公开较量; 2) 文贵将去英国与日本与中共短兵相接；3) 面对中共的威胁，文贵将做好一切最坏准备；我们将对PAG案全面开战并彻底揭露中共对西方的蓝金黄和渗透<br/>
+![img](https://media.gettr.com/group47/getter/2022/02/09/22/de89e9c8-3bf5-1d8b-f5be-32a40b2bfe9b/out.jpg)
+
+---
+
+`@miles 2/9/2022 10:48 PM (UTC)`
+
+2/9/2022 Miles Guo: The case of  Weijian Shan and PAG reveals the dark secrets of the Chinese Communist Party's deep penetration of the U.S. barristers and the judiciary, and the case filing of UBS in the British court opens the door to the evil collusion between the swamp and the CCP<br/><br/>2/9/2022 文贵直播：单伟建和PAG案揭露了中共深度渗透美国大律师界和司法界的黑幕，瑞银(UBS)在英国法院立案是打开了沼泽地和中共邪恶勾兑的大门
+![img](https://media.gettr.com/group35/getter/2022/02/09/22/d9bf7075-c850-3e88-e9e3-788a17510413/out.jpg)
 
 ---
 
@@ -147,13 +154,6 @@ Ms. Christine Anderson said, "Whenever a political entity resorts to extortion a
 
 2022年2月6日 文贵大直播：开幕式后普京愤然离去；中俄战略合作虎头蛇尾；贩卖人口中国妇女地位；反疫苗运动及美国经济
 ![img](https://media.gettr.com/group48/origin/2022/02/06/12/7ef9b427-76a1-1abf-9313-5e066b984365/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 2/5/2022 10:30 PM (UTC)`
-
-2/5/2022 Miles Guo: There are three points made by almost everyone attending the CCP’s Winter Olympics: 1) the CCP is over, 2) everything is just fake, and 3) it is absolutely a nightmare. Many people are now trying to figure out how to transfer their money out of Communist China ASAP.<br/><br/>2/5/2022 文贵盖特：所有参加中共冬眠会的人就三句话：1）中共完了，2）一切都是假的，3）这简直就是一场噩梦；很多人现在只想着如何尽快把他们的钱从中共国转出来。
-![img](https://media.gettr.com/group40/getter/2022/02/05/22/3fcfd090-a361-6b2e-8423-957e3d0a4891/out.jpg)
 
 ---
 

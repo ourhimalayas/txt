@@ -2,49 +2,107 @@
 ---
 
 
-## 【#G时新闻】罗伯特·马龙博士警告儿童 COVID-19 疫苗风险
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/1981474/)
+## 参议员特德·克鲁兹（Ted Cruz）: 加拿大卡车司机是英雄
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1981507/)
 
-加拿大温哥华扬帆农场 播报： 七彩虹 视频制作: Geacelshan
+[https://gtv.org/video/id=620413b0585ecc15d73f7cf2](https://gtv.org/video/id=620413b0585ecc15d73f7cf2)
 
-马龙（Robert Malone）博士是发明和研发（mRNA）技术的核心参与人，他警告父母们给孩子们接种疫苗存在风险。
+Senator Ted Cruz: The Canadian truckers are heroes
+参议员特德.克鲁兹：加拿大卡车司机是英雄
 
-“在给你的孩子们接种疫苗之前请多加考虑。因为如果不好的事情发生在他们身上，你不可能让时间倒流就说一句”哎哟，我想重新选择”。马龙博士在接受大纪元电视台（Epoch TV）美国思想先驱（American Thought Leaders）节目中说到。
+It is theft on the part GoFundMe.
+这是 GoFundMe 的盗窃行为。
 
-毋庸置疑，父母应该考虑再三是否给他们的孩子接种疫苗。
+Let me say the Canadian truckers are heroes
+让我说加拿大卡车司机们是英雄
 
-马龙博士补充说，如果儿童因接种疫苗，导致罹患心肌炎或使心脏受损，他们很可能不会出现临床症状，但仍然可能遭受亚临床损害。
+They are patriots.
+他们是爱国者
 
-“但是问题在于，你愿意让你的孩子冒这个险嘛？因为一旦你的孩子不幸成为那个被实验疫苗造成损伤的人，如果不是所有这些风险，哪怕只是大部分，都是不可逆转的。我们没有方法修复已经造成的伤害。”这位病毒学家说。
+and they are marching for your freedom and for my freedom
+他们正在为你的自由和我的自由而游行
 
-“我一直不断收到这样的邮件‘医生，医生，我该怎么做？这事情发生了。’这一旦发生…你就回不去了，你不可能把蛋头人（一种玩具）再拼凑回去”他继续说到。
+That they are… Those truck drivers that God bless them.
+他们是……上帝保佑那些卡车司机们
 
-“国家不应该强迫每个家庭接种疫苗。这个决定权属于每个家长或者监护人，而不是每个州的国会或者学校董事会。校董会或学校或者老师都无权询问和获得每个学生的医疗信息，这是违法的行为。但是，这种违法行为一直在进行，没有接种疫苗的学生在学校被霸凌”。
+They are defending Canada, but they are defending America as well.
+他们在保卫加拿大，但他们也在保卫美国
 
-马龙博士引用了他自己的网站上发布的信息，其中包括各位同行对于中共病毒疫苗在儿童中产生不良反应的同行评审研究，尤其是针对心肌炎的研究。他的网站同时引用疫苗不良事件报告系统（VAERS）内，中共病毒疫苗在儿童中引起的副作用和死亡案例的数据。
+That is courage on display.
+这是一种勇气的展示。
 
-“网站里有可以联系到VAERS（Vaccine Adverse Event Reporting System）的链接，如果你点击它，你可以看到真实的VAERS报告，由一位医生记录曾经发生的事情”Dr.Malone说到。
+The government doesn’t have the right to force you to comply to their arbitrary mandates,
+政府无权强迫你遵守他们的武断命令
 
-“你可以自己判断，这些是否与疫苗相关，所有的数据都在那里”。
+They are standing up for freedom.
+他们在为自由挺身而出
 
-这位免疫学家还指出当前在全世界实行的疫苗强制是非法的，他引用了《纽伦堡法典》,《赫尔辛基协议》和《贝尔蒙报告》。
+And of course big government hates it, so it is trying to crush them
+当然大政府讨厌它，所以试图粉碎他们
 
-“这些疫苗仍是没有证书的产品。它们仅仅获得了紧急使用授权……它们是无证产品，它们被强迫使用在你的孩子身上，它是有风险的。而所谓的媒体-通过他们的审查，还有大型的科技公司，阻止你去了解真相，让你没有能力为你和你的孩子们做出知情的决定。在我看来，这是一个巨大的犯罪。
+Of course, the corporate media hates it, and it is trying to silence them.
+当然媒体讨厌它，并试图压制他们的声音。
 
-马龙博士之在去年12月份的一份声明中曾对广大的父母说到，通过mRNA 中共病毒疫苗，一种病毒基因将会被注射到儿童的细胞中，迫使接受疫苗注射的儿童的身体制造有毒的刺突蛋白。
+And big tech… look at what GoFundMe did
+还有大科技公司……看看 GoFundMe 做了什么
 
-“这些蛋白通常会导致儿童身体的关键器官永久性的损伤，包括他们的大脑以及神经系统，他们的心脏和血管，包括血栓，和生殖系统，而这类疫苗可以引发他们的免疫系统根本的变化。”他继续说到。
+People gave 10 million dollars to support the freedom convoy
+人们捐出 1000 万美元支持自由车队，
 
-马龙博士是团结项目运动的科技和监管主管，该项目坚决反对强制儿童接种中共病毒疫苗。他也是国际医师和医学家联盟的主席，该组织由16000名反对儿童疫苗的专业人士组成。
+because they were so proud of the courage of these truck drivers
+因为他们为这些卡车司机的勇气感到骄傲
 
-链接：[https://gnews.org/zh-hans/1965101/](https://gnews.org/zh-hans/1965101/)
-听写/翻译：LuLu1312
-字幕：圣骑士
-编辑/上传：七觉花
+And the thieves and the Silicon Valley decided we don’t like your politics.
+而这些小偷们和硅谷认为我们不喜欢你的政治
 
+So A: we are going to take your money,
+所以 A：我们会拿走你的钱 ，
+and then B: we are going to give it to people we like
+然后 B：我们会把钱给我们喜欢的人
 
+Listen, if anyone else did that, that is called theft
+听着，如果其他人这样做了，那就叫盗窃
 
+And so today I sent a letter to the federal trade commission
+所以今天我给联邦贸易委员会（FTC）写了一封信
 
+asking that the FTC open an investigation into GoFundMe
+要求FTC对 GoFundMe 展开调查，
+
+into whether they have committed deceptive trade practices
+调查他们是否有欺诈性贸易行为
+
+Because when people gave money,
+因为当人们给钱的时候，
+they gave money under the promise it would go to the freedom convoy
+(GoFundMe)承诺把钱给自由车队，
+
+not to whatever left-wing political ideology (that) GoFundMe, another Silicon Valley company, support
+而不是给由一家硅谷公司（GoFundMe）所支持的任何左翼政治意识形态
+
+They are deceiving consumers and it is wrong
+他们是在欺骗消费者，这是错误的
+
+**原视频链接**: [https://twitter.com/sentedcruz/status](https://twitter.com/sentedcruz/status)
+
+Date: 2/6/2022
+原视频标题: Senator Ted Cruz: The Canadian truckers are heroes
+参议员特德·克鲁兹（Ted Cruz）: 加拿大卡车司机是英雄
+原视频日期：2/6/2022
+原视频链接: https://twitter.com/sentedcruz/status/1490461802639020036?s=24
+任务编号：KE390(3690)
+视频时间段 : 0:00-01:00
+
+中听校：洛杉矶盘古农场 -海潮
+翻译：洛杉矶盘古农场 – 海潮
+翻译终校：洛杉矶盘古农场 – Freeearth
+字幕+视频制作：洛杉矶盘古农场 –青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
