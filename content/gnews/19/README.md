@@ -2,29 +2,31 @@
 ---
 
 
-## 秘翻在线：强生暂停中共病毒疫苗生产
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1979525/)
+## 美贸易逆差首超1万亿，三分之一来自中国
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1979641/)
 
-**撰稿：明澈**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-09-210351.jpg)图片来源：路透社
-综合媒体2月9日报道，周二，强生公司已暂停旗下一家生产中共病毒（Covid-19）疫苗的关键工厂。
+日本NHK新闻2022年2月9日报道，美国的贸易逆差首次突破1万亿美元，创历史新高。这是因为国内经济活动活跃，以及从中国等国家的进口大幅增加造成的。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/A15DAFF2-8F72-4540-A09B-C2AFBCCA8CAE.jpeg)图片来源：https://www3.nhk.or.jp
+ 
+据美国商务部8日公布的贸易统计数据，去年不包括服务在内的商品贸易逆差较上年增长18.3%，达10906亿美元，赤字首次突破1万亿美元，创历史新高。
 
-《法兰西24》在报道中指出，据知情人士透露，该工厂位于荷兰莱顿市，于去年年底就已经停止生产中共病毒疫苗。《纽约时报》称这可能会使强生公司的疫苗数量减少几亿剂。
+随着新型冠状病毒疫苗的普及和大规模经济措施的实行，美国的经济活动向好，个人电脑和家具等各领域的进口大幅增加。从各国状况来看，与中国的贸易逆差最大，占总逆差的三分之一。
 
-强生公司一位发言人回应表示，强生目前仍有数百万剂量的中共病毒疫苗库存，公司将继续履行与中共病毒疫苗设施及非洲联盟有关的合同义务。但并未否认或证实该暂停生产中共病毒疫苗的报道，仅表示该工厂仍在履行交货承诺。
+在特朗普政府期间，美国虽然通过高达25%的关税和扩大出口的协议减少了对华贸易逆差，但去年却是三年以来的首次扩大。尽管中美对峙关税战越来越激烈，但美国国民的生活离不开中国产品的支持却是实际状态。拜登政府强调劳动阶层是支持的基础，积极推进对本国产品的优惠政策，可不断扩大的贸易逆差将增加秋季中期选举的保护主义倾向。
 
-据悉，中共病毒疫苗设施是由疫苗联盟GAVI领导全球风险分担机制，该机制将集中采购分配中共病毒疫苗，以此作为获取推进中共病毒疫苗进程的支柱。由于强生公司疫苗不需要低温保存运输，且该疫苗在疫情初期宣传“单次接种”，故而该公司的中共病毒疫苗在发展中国家非常受欢迎。
+**原文链接：**
 
-此外，还有报道指出强生公司预计中共病毒疫苗在2022年的销售额将达到30-35亿美元，而辉瑞公司同期预计销售额将达到320亿美金。
+[アメリカの貿易赤字 初の1兆ドル超 過去最大更新 3分の1が中国](https://www3.nhk.or.jp/news/html/20220209/k10013474781000.html)
 
-**新闻链接：**
+**编辑：LILY**
 
-[https://www.france24.com/en/live-news/20220208-johnson-johnson-temporarily-halts-covid-19-vaccine-output-report](https://www.france24.com/en/live-news/20220208-johnson-johnson-temporarily-halts-covid-19-vaccine-output-report)
+**发布：歪桑**
 
-[https://www.gavi.org/covax-facility](https://www.gavi.org/covax-facility)
+20220209
 
-[https://www.republicworld.com/world-news/rest-of-the-world-news/johnson-and-johnson-temporarily-halts-production-of-covid-19-vaccine-report-articleshow.html](https://www.republicworld.com/world-news/rest-of-the-world-news/johnson-and-johnson-temporarily-halts-production-of-covid-19-vaccine-report-articleshow.html)
-
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
