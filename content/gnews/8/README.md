@@ -2,44 +2,46 @@
 ---
 
 
-## 马来1MDB高盛腐败案即将开庭
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1979379/)
+## 夫妇因涉嫌为45亿美元的加密货币洗钱被捕
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1979662/)
 
-作者: MOS 柳是多水土透
+编译：wenwu
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-897-edited.png)新闻来源：[nypost.com]
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-5.png)
-中共前政法委书记孟建柱的私生子刘特佐，其深度参与的马来西亚1MDB腐败案又有新进展。因控辩双方未能达成认罪协议，高盛前高管Roger Ng的刑事审判即将在纽约开庭，本周一已开始陪审团选任。
+联邦检察官说，一对已婚夫妇周二（8日）在曼哈顿被逮捕，他们涉嫌试图清洗在2016年大规模黑客攻击中被盗的大约45亿美元的加密货币。
 
-高盛的前马来西亚投行主管Roger Ng，被控洗劫马来西亚主权发展基金1MDB，协助数亿美元的洗钱交易并贿赂政府官员，Ng对三项阴谋洗钱和违反反贿赂等指控表示均不认罪。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/roger-ng-feat.jpeg)图片来源: 网络
-1MDB基金是马来前首相纳吉布，以帮助城市发展为由而设立。高盛参与了其65亿美金债券销售。
+Ilya Lichtenstein（利希滕斯坦，34岁）和他的妻子Heather Morgan（摩根，31岁）被指控密谋清洗11万9754个比特币的收益，这些比特币在黑客入侵虚拟货币交易所Bitfinex的系统时，被掠夺。
 
-官方认为资金被严重盗窃，除了16亿美金行贿阿布达比和马来官员外，挪用的款项还被用于奢饰品，不动产和个人挥霍。
+据称，被盗的加密货币被转移到利希滕斯坦控制的数字钱包中，利希滕斯坦在他的LinkedIn账户上称自己为“技术企业家、编码员和投资者”。
 
-高盛银行2020年以刑事认罪和支付29亿美元的罚款，来换取终结美司法部和其他机构的刑事调查。
+检察官说，他和他的妻子——自称是“连续创业者”和“超现实主义说唱”的创造者——然后通过“复杂的洗钱过程”将这些资金转移到他们的账户。
 
-本周一联邦地区法官Margo Brodie已开始对陪审团候选人进行筛查，开庭时间预计在2月14日。
+根据周二公布的刑事起诉书，这对夫妇据称将非法所得用于购买黄金、NFT和500美元的沃尔玛礼品卡等。
 
-Roger Ng于2018年在马来被逮捕，6个月后引渡至美国。Tim Leissner，另一位高盛亚洲区前高管和同案犯，已于18年对指控认罪换取轻判，他的量刑判决将于3月下达。
+检察官说，作为该计划的一部分，这两人据称“采用了许多复杂的洗钱技术”，包括用假身份设立网上账户，并通过暗网转移资金；这对夫妇在他们的曼哈顿公寓里有一个标有“一次性电话”的袋子，里面装满了手机，而拥有俄罗斯和美国双重国籍的利希滕斯坦在他的电脑上保存了一个名为“passport\_ideas”的文件。
 
-新闻来源: [https://www.reuters.com/markets/us/jury-selection-begin-ex-goldman-bankers-1mdb-corruption-trial-2022-02-07/](https://www.reuters.com/markets/us/jury-selection-begin-ex-goldman-bankers-1mdb-corruption-trial-2022-02-07/)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-23.jpg)
+司法部表示，特工人员能够追回在 Bitfinex 黑客事件中被盗的超过36亿美元的比特币——这是司法部有史以来最大的一次金融扣押。
 
+“今天的逮捕，以及该部门有史以来最大的金融扣押，表明加密货币不是犯罪分子的安全港，”副司法部长丽莎·摩纳哥说。
 
-编辑/校对/发稿: 卡夫卡的甲壳虫
+Bitfinex 表示，它正在与司法部合作，“确定我们归还被盗比特币的权利”。
 
-**更多资讯，更多关注**
+利希滕斯坦和摩根正面临着密谋洗钱以及欺诈美国的指控。如果这两项罪名成立，他们可能各自面临最高25年的刑期。
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+地方法官德布拉·弗里曼（Debra Freeman）在利希滕斯坦和摩根周二晚上在曼哈顿下城联邦法庭首次出庭时，为他们设定了审前释放条件。 利希滕斯坦的保释金被设定为500万美元，他父母的房子作为担保，有五个共同签名人，并在家中监禁，有电子监控。摩根的保释金被设定为300万美元，有两个共同签名人，在家监禁并有电子监控。
 
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-899-edited.png)照片来源：[nypost.com]
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+素材来源：[nypost.com] [Couple arrested in alleged $4.5 billion cryptocurrency laundering scheme](https://nypost.com/2022/02/08/couple-arrested-in-alleged-4-5-billion-cryptocurrency-laundering-scheme/)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+* * *
 
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+审核：文乐
+校对：花羽
+发布：花羽
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH..jpeg)
 
  
 

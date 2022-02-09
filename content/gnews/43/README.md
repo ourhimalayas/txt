@@ -2,30 +2,30 @@
 ---
 
 
-## 加拿大警察粗暴对待无害的八旬弱小老人
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1978641/)
+## 共和党议员提出法案，恢复因拒绝接种中共病毒疫苗而被开除的军人
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1978697/)
 
-作者：  Evalu （秘翻组）
+#### 撰稿：彩虹
 
-图片：
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-27.jpg)
-图片来源：twitter.com
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-2-6.jpg)图片来源：政客
+2月8日，《新闻极限》报道，根据国会议员办公室的一份新闻稿，共和党德州议员奇普·罗伊（Chip Roy）于周二提出一项法案，将恢复因拒绝接种中共病毒（COVID-19）疫苗而被开除的军人，并将确保他们首先不会因未接种中共病毒疫苗而被解雇。
 
-内容：反抗者新闻记者埃兹拉·勒瓦1月7日发布了一个视频，视频中渥太华两个警察粗暴地对待一位80岁的手无寸铁的不足五尺高的弱小老人，将他反手铐在车旁，随后将他带离现场，其原因仅仅是因为他为支持卡车司机而按了下喇叭，他的儿媳妇在与记者的推特对话中说这还是在按喇叭禁令之前发生的事，特鲁多政府堪称法西斯政府，居然在大白天禁止人们偶尔按一下喇叭，这是什么样禁令啊？这个行为至于要把人抓起来吗？还是这样一位弱小老人，还被摔倒在地上，该视频短时间就引起人们的强烈谴责，人们都在问，这还是加拿大吗？那个号称民主自由的国度。
+罗伊说: “由于拜登总统的反科学的强制接种（中共病毒）疫苗，到目前为止，已有数百名准备战斗的军人脱离了武装部队。更糟糕的是，国防部（DOD）拒绝了许多医疗和宗教方面的豁免申请，这导致迫使军人要么选择他们的信仰，要么选择生计。”
 
-但是左媒对此熟视无睹，全都闭而不谈，却对乔·罗根（Joe Rogan）十多年前的N-用词大加挞伐，尽管他已经道歉了，还不肯放过，对比加拿大警察如此恶劣的作法，却一声不吭。
+罗伊称，拜登的军队强制接种中共病毒疫苗任务是“（对）权力的渴望”，数以百计的美国军人正因此而被迫离开军队，带走了“多年的学科专长、无私奉献的职业生涯和终身的军事梦想”。
 
-今天渥太华警察中士沙津特辞职，很可能是因为对警察领导层“为自由护航”抗议中的处理不当所致。据国家电报新闻报道，从警察内部透露的消息是警察中士的辞职是因为警察领导层要求针对“为自由护航”的抗议者的行动与警察的伦理哲学相违背，有很高比例的警察因压力过高而休息，或休假，病假。这说明警察内部在收到警察领导的指示后感到不舒服。
+他认为：“这在战略上是愚蠢的，极不符合美国国情，也是完全不可接受的。我提出了《恢复军人法》（Service Restoration Act），以确保我们武装部队的勇敢男女不会因为这个错误的强制令而被解雇。”
 
-这显示了特鲁多缺乏领导能力，甚至还有一些自由党联邦议员反对强制疫苗。
+文章报道，这个拟议的立法还禁止使用联邦资金要求服役人员接种中共病毒（COVID-19）疫苗，要求国防部长恢复被解雇的服役人员的原职，要求国防部长将服役人员脱离军队的时间计入他们的退休福利，并要求国防部长从服役人员的记录中删除任何因拒绝接种（中共病毒）疫苗而引起的负面行为（记录）。
 
-加拿大的一些省份正在开始取消和中止疫苗和口罩强制令。但特鲁多还在负隅顽抗，不想放弃疫苗强制令，他说：“我能理解人们对强制令的不满，但这是避免更进一步的限制。” 什么逻辑！
+根据CBS新闻去年12月份的报道，五角大楼去年强制要求所有军人接种中共病毒疫苗，包括国民警卫队和后备队。国防部长劳埃德·奥斯汀（Lloyd Austin）曾表示，该疫苗对于维持一支随时准备保卫国家的健康军队至关重要。并且，据报道，五角大楼还在考虑将中共病毒加强针作为服役人员必须接种的要求。
 
-新闻来源：
+该法案的共同提案人还包括另外7名众议员，分别是马乔丽·泰勒·格林（Marjorie Taylor Green），迈克尔·克劳德（Michael Cloud）,比尔·波西（Bill Posey），马特·罗森代尔（Matt Rosendale），路易·戈默特（Louie Gohmert），范·泰勒（Van Taylor）以及鲍勃·古德（Bob Good）。
 
-1. [Ezra Levant 🍁 on Twitter: “So proud of our Canadian police. To serve and protect. So glad they took that 80-year-old, 5-foot-nothing man off the streets. I feel so much safer now. https://t.co/3jaCH3Kl9N” / Twitter](https://twitter.com/ezralevant/status/1490819892169383941?s=20&amp;t=qPaju9vVXHMhoNd4Ety35w)
-2. [BREAKING: Ottawa Police Staff Sargent Resigns From Position Over Freedom Convoy Mishandling | The Paradise News](https://theparadise.ng/breaking-ottawa-police-staff-sargent-resigns-from-position-over-freedom-convoy-mishandling/)
+**新闻来源**
 
+[Rep. Chip Roy Introduces Bill to Reinstate Fired Unvaccinated Troops](https://www.newsmax.com/politics/roy-reinstate-unvaccinated-military/2022/02/08/id/1056072/)
 
  
 

@@ -2,37 +2,30 @@
 ---
 
 
-## 《纽约时报》赞扬中共病毒大流行的应对措施
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1979580/)
+## 日本政府拟向欧洲提供液化天然气
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1979799/)
 
-编译：wenwu
+撰稿：东京樱花团/文小白
+![](https://assets.gnews.org/wp-content/uploads/2022/02/4-10.jpg)
+[图片来源](https://www.japantimes.co.jp/news/2022/02/09/business/japan-lng-europe-ukraine-tensions/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-894-edited.png)新闻来源：[freebeacon.com] 
+据NHK2022年2月9日消息，日本政府已决定在确保国内有足够的液化天然气（LNG）的基础上，向欧洲供应部分液化天然气，以避免因愈加紧张乌克兰局势导致欧洲的天然气采购出现延误的情况。这也是日本对美国拜登政府提出的要求作出的不寻常的回应。
 
-北京正在举办2022年冬奥会，这意味着在接下来的几周里，美国媒体对这个残暴的共产主义政权的报道将比平时更加用力的跪舔。
+欧洲的电力和其他用途所需的大约40%的天然气来自于俄罗斯。因此，如果俄罗斯入侵乌克兰，美国和欧洲已经表示，他们可能会对俄罗斯实施经济制裁。作为反制措施，俄罗斯可能会削减对欧洲的天然气供应。
 
-例如，就在开幕式在北京举行的时候，《纽约时报》发表了一篇文章，赞扬中共国对中共病毒（COVID-19）大流行病的专制应对措施：中共政府的“清零”政策，包括严格的封锁和其它强制的行为，已经取得了重大成功。
+据一位消息人士透露。日本政府已决定向欧洲供应部分液化天然气。此举对日本来说是不寻常的，因为它是应拜登政府的要求，确保有足够的液化天然气帮助欧洲的能源供应。并寻求对液化天然气有兴趣的能源公司的合作。
 
-他们怎么知道它是成功的？因为根据中共国政府的说法，中共国是世界上 COVID-19 死亡率最低的国家之一；《纽约时报》即承认，中共国的数据“不可信”，但又坚持认为中共国“几乎肯定”在处理这一流行病方面做得很好（仅通过引用官方数据——中共国报告每百万人中仅有3人死于COVID-19，而美国则有近2700人）。
+预计日本政府最早将于9日正式宣布。
 
-David Leonhardt记者和Ian Prasad Philbrick记者写道：“中共国在控制Covid-19方面的成功已经变成了该政权的公共关系胜利；习近平主席利用中共国对中共病毒的管理来支持他的全球影响力运动，认为中共国的政府专制系统比西方民主国家更好地运作。”
+信息来源:
 
-这篇文章没有提到病毒的来源（武汉）或中共国政府最初为淡化病毒的严重性所做的努力。
+[日本政府 LNGを欧州に融通する方針固める ウクライナ緊迫化で](https://www3.nhk.or.jp/news/html/20220209/k10013475021000.html?utm_int=news-business_contents_list-items_013)
 
-负责制作美国奥运会报道的Comcast子公司 NBC Universal 公司也在开幕式上迅速兜售中共国的宣传品。《今天》节目主持人萨凡纳·格思里（Savannah Guthrie）对选择一名来自新疆的维吾尔族运动员点燃奥运火炬一事，进行了正面的评论：“这一刻是相当具有挑衅性的，这是中共国国家主席习近平的声明；这是对包括美国在内的那些西方国家的当面回应，他们称中共国对[新疆维吾尔族穆斯林]的这种待遇是种族灭绝，并在外交上抵制这些运动会。”
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
-NBC 公司对冬奥会开幕式的报道中，关于在中共国对维吾尔族穆斯林的系统性镇压问题上采取了“两面派”的做法，宣称西方国家对共产主义政权的（种族灭绝）指控是世纪大谎言。
 
-在其他新闻中，一名荷兰记者在一次直播中被中共国官员[粗暴对待](https://twitter.com/MatthewFoldi/status/1489596720371716100?s=20&amp;t=p9jxRLPftMl95K0oKaprKg)，而新闻集团宣布，“为中共国利益服务”的黑客[窃取](https://freebeacon.com/media/news-corp-suspects-china-behind-cyberattack/)了属于其一些记者和其他雇员的电子邮件和其他文件。
-
-素材来源：[freebeacon.com] [NYT praises China’s pandemic response; NBC presents ‘bothsides’ of Uyghur genocide](https://freebeacon.com/media/china-olympics-propaganda/)
-
-* * *
-
-审核：文乐
-校对：花羽
-发布：花羽
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH..jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

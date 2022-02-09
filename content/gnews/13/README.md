@@ -2,24 +2,38 @@
 ---
 
 
-## 秘翻在线：比特币不是非法所得的“避风港”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1979347/)
+## 马来西亚中共病毒小组建议在 3 月全面开放边境
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1979607/)
 
-撰稿：葛大饼
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-09-203353.jpg)图片来源： 世界经济论坛
-根据2022年2月9日凤凰报道， 美国司法部8日宣布起获价值约36亿美元的失窃比特币，现年34岁的伊利亚·“杜奇”·利希滕施泰因和他现年31岁的妻子希瑟·摩根因涉嫌洗白赃款，面临洗钱和诈骗罪名指控。
+作者: 纽约香草山教育部 Naughty(文行)
 
-美国司法部副部长莉萨·莫纳科说，** **比特币不是非法所得的“避风港”，执法人员会对赃款追查到底。
 
-新闻称这笔赃款涉及2016年一起比特币失窃案。当年，虚拟货币交易平台比特币交易所系统遭一名黑客袭击，失窃比特币当时市值7100万美元，如今已超过45亿美元。 据调查当年比特币失窃案件发生后，一名黑客发起2000多起未经授权的比特币交易，将近12万枚比特币转账至利希滕施泰因控制的一个虚拟货币账户。接下来5年内，利希滕施泰因和摩根利用多个账户、使用多种手段洗白约2.5万枚比特币，转换为其他虚拟货币。为隐藏转账路径，他们还利用暗网平台交易。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-5.png)
+据路透社报道，马来西亚冠状病毒恢复委员会于2月8日表示，作为加速经济复苏计划的一部分，建议最早在3月1日起全面重新开放边境，不再对旅行者进行强制检疫。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/c1_2260903.jpeg)图片来源: 网络
+该项建议是在马来西亚的邻国包括泰国、菲律宾和新加坡放弃检疫要求来吸引接种过疫苗的游客时提出的。马来西亚自2020年3月以来关闭了边境，并暂停了外国工人的入境，以试图遏制中共病毒的爆发。
 
-此次缉获发生在美国司法部成立国家加密货币执法小组4个月后。
+在奥密克戎变体的影响下，马来西亚的每日冠状病毒感染人数在最近几周飙升至四个月来的最高水平。
 
-美国将是数字货币的最终规则制定者，世界各国政府也无法再忽视数字货币的存在，相应的管理法规也陆续出台*，*比特币就是少数人用来洗钱的工具！比特币能被盗，说明它并不安全！郭文贵先生曾爆料， 比特币是6%的人拥有94%的量， 70%的比特币是共产党国际控制的，比特币没有跟黄金挂钩，不能实际支付，不稳定，也没有中心化的负责人。比特币及其同类将消失，喜币将成为未来！
+2月8日新确诊病例达13,944例，总确诊数超过290万例，死亡人数超过32,000 人，目前马来西亚是亚洲人均死亡率和感染率最高的国家之一。
 
-**[新闻来源](https://finance.ifeng.com/c/8DUhD3MVJc4)**
+新闻来源: [https://www.reuters.com/world/asia-pacific/malaysia-covid-19-panel-recommends-full-border-reopening-march-2022-02-08/](https://www.reuters.com/world/asia-pacific/malaysia-covid-19-panel-recommends-full-border-reopening-march-2022-02-08/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-9.jpg)
+编辑/校对/发稿: 卡夫卡的甲壳虫
 
-#  
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+
+
 
  
 
