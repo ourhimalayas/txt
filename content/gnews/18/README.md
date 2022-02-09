@@ -2,28 +2,55 @@
 ---
 
 
-## 戴口罩也不能百分百防病毒！50厘米以内对话存在感染风险
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1978324/)
+## 中共将联合国对新疆的人权调查混淆为交流合作
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1978342/)
 
-撰稿：东京樱花团/立正道
+作者：日本方舟农场 – Andy5
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/戴口罩也不能百分百防病毒！50厘米以内对话存在感染风险.png)[图片来源](https://www.voanews.com/a/japan-s-fukuoka-finds-omicron-case-in-possible-community-transmission-governor-says/6369613.html)
 
-2日，日本理化学研究所和神户大学等团队公布了RIKEN超级计算机“富岳”对新型冠状病毒变异株“Omicron株”风险的计算结果。 即使戴着口罩，如果在50厘米以内的近距离交谈，感染的可能性就会增加，他呼吁缩短接触时间。
 
-该团队假设 Omicron 菌株的传染性是 Delta 菌株的 1.5 倍。 通过改变是否有口罩、谈话时间和与感染者的距离等条件来计算侵入身体的病毒量。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-结果，在室内1米或以上的距离与戴口罩的感染者交谈15分钟时，感染概率几乎为零，而距离为50厘米时，1小时内感染概率约为10%。 另一方面，与未戴口罩的感染者以1米间隔15分钟交谈时，感染概率约为60%，在50厘米内几乎达到100%。 假设在活动中与坐在您旁边的人进行了对话。交谈一个小时后，感染者既使带着口罩，你也有 40% 的被感染机会。
 
-理研团队负责人、神户大学教授坪仓诚说，“预防被感染的措施是，保持距离和缩短接触时间。”
 
-信息来源：
+2月8日，本台报道了联合国秘书长古特雷斯，希望中共允许联合国人权高级专员巴舍莱到新疆进行人权调查的期许。但在2月7日中共外交战狼赵立坚在回答外媒记者提问时，故意采用偷换概念的方式，将“调查”改成了“交流与合作”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide10-4.jpg)
+混淆和偷换概念，是中共处理一些对自己不利的国际问题的惯用伎俩，早在2020年12月，中共就将世界卫生组织赴武汉的病毒溯源调查，强制改成了“合作研究”，并演出了世卫组织抵达武汉后，被组织观看抗疫成就、实地调查草草了事的荒唐闹剧。
 
-[マスクしても「５０センチ以内の会話」で感染リスク…「富岳」でオミクロン分析](https://www.yomiuri.co.jp/science/20220202-OYT1T50211/)
+分析人士指出，中共对新疆人权调查概念的混淆，已经表明其做贼心虚，即使本次联合国的调查请求得到允许，也会跟病毒溯源一样得不到明确的结果。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+参考信息：
+1. [外交部：中方欢迎联合国人权高专巴切莱特女士访华并参访新疆，已发出邀请](https://news.sina.com.cn/c/2022-02-07/doc-ikyamrmz9507534.shtml)
+2. [古特雷斯与习近平北京会晤 期待同中国加强合作](https://news.un.org/zh/story/2022/02/1098852)
+3. [习近平会见联合国秘书长古特雷斯](http://www.mod.gov.cn/topnews/2022-02/05/content_4904330.htm)
+4. [世卫专家拟明年1月赴武汉溯源调查 外交部：愿同世卫组织加强合作推进全球溯源工作](https://world.huanqiu.com/article/418dggxgIio)
+5. [外交部：世卫专家来华是全球溯源科研合作一部分](http://www.xinhuanet.com/world/2021-02/05/c_1127070341.htm)
+6. [20210201NNN報導CCP妨礙媒體報導WHO去華南海鮮市場](https://gtv.org/video/id=602917b8226e77590743e1cd)
+7. [20210203 東京電視台揭露武漢抗疫成就展是怎麼洗腦，又有哪些自相矛盾的地方的](https://gtv.org/video/id=602df8dd226e7759074520a0)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+
+总编/编辑：DM
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

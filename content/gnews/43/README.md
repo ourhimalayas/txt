@@ -2,12 +2,15 @@
 ---
 
 
-## 不能再向中共国市场注入美元
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1975273/)
+## 郝董谈自身转会经历，反映出HPAY对未来体育界的革命性影响
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1975895/)
 
-02/05/2022 知名主持人鲁·道博在战斗室采访中表示：不能再向中共国市场注入美元。
+**H-Pay 将彻底改变金融游戏规则**
+视频制作：文双
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+翻译：秋刀鱼
+
+上传排版：文勇
 
  
 

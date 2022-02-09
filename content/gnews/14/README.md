@@ -2,53 +2,34 @@
 ---
 
 
-## 日本三井将发行与黄金挂钩的数字货币
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1978339/)
+## 澳洲外长受压中共，称未考虑更改台湾代表处名称
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1978380/)
 
-作者：纽约香草山 – 柳是多水土透
+整理/编辑：小红帽
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/dfef.png)图片来源：雅典娜设计组(614)
 
 
+根据《早报》2月9日报道，澳大利亚外长佩恩（Marise Payne）当日表示，在与北京外交关系紧张的情况下，澳大利亚目前没有考虑更改“驻澳大利亚台北经济文化办事处”的名称，并继续支持一中政策。
 
-据国外媒体2月4日的消息，日本主要财团之一的三井物产株式会社，预计将在2月份发行与金价挂钩的数字货币ZPG，对零售投资者开放。其对应的黄金将由三井从伦敦金属交易所购入，一个ZPG等同于一克黄金。币价将由三井住友银行提供担保，对应以日元计价的黄金。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide15.jpg)
-ZPG大概是日本第一个与黄金挂钩的代币，但在全球范围内不是。ZPG最初会在三井交易所发行出售。
+佩恩在首都堪培拉与来访的立陶宛外交部长兰茨伯格斯举行新闻发布会。
 
-另外，三井还会开发使用此币的手机APP和其他交易系统，而买卖ZPG的客户都会被要求
+佩恩在中共就台湾驻立陶宛代表处名称问题对立陶宛施压期间，发表言论称，目前澳洲没有与台湾就更改其驻澳大利亚代表处名称的可能性进行会谈。澳大利亚仍继续支持一个中（共）国的政策。
 
-进行KYC审核，该币的交易则会在私人区块链上进行。
+兰茨伯格斯说，有必要提醒那些寻求利用贸易作为报复措施的国家，“志同道合的国家拥有有助于抵御胁迫的工具和法规”。立陶宛和澳大利亚同是中国大陆“经济胁迫”的目标，“但我们绝对不是最后一个”。
 
-该媒体还透露，三井住友银行是一个70多家银行产业联合体的成员，该联合体正在合作开发由存款担保的数字化日元。
+澳大利亚近日加入了美国及英国的阵线，支持欧盟将中共对立陶宛的经济施压诉诸世界贸易组织（WTO）。
 
-参考信息：
-1. [Mitsui & Co. to issue cryptocurrency linked to gold prices](https://asia.nikkei.com/Spotlight/Cryptocurrencies/Mitsui-Co.-to-issue-cryptocurrency-linked-to-gold-prices)
-2. Japanese Trading House Mitsui to Launch Gold-Linked Cryptocurrency: Report
+新闻链接：[澳大利亚称未考虑更改台湾代表处名称](https://www.zaobao.com.sg/realtime/china/story20220209-1240896)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+发布： tianzhihuan
 
-总编/编辑：DM
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

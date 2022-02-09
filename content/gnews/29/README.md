@@ -2,26 +2,34 @@
 ---
 
 
-## 新华社官员声援被拐妇女遭封杀
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1978227/)
+## 2022年2月9日新闻集
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1978287/)
 
-撰稿：东京樱花团/asket
+撰稿人：文远Bruce
+![](https://assets.gnews.org/wp-content/uploads/2022/02/文远.png)图片来源：作者
+**1.2.彭帅露面、宣布退役，以一句“宇宙无限大，地球就是一粒沙，人类很渺小，不要有心理负担，我们想干啥就干啥”PUA骗取彭帅处子之身的共匪张高丽至今逍遥法外！**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/文远2.png)图片来源：网络![](https://assets.gnews.org/wp-content/uploads/2022/02/文远3.png)图片来源：网络
+**3. 男子冰球队25人，归化球员达到15名，女队23人，归化球员为13名。归化人数28人超一半。归化球员28人中22人有中共国基因，这些人是不是共匪另一个“千人计划”的后代？**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/文远4.png)图片来源：网络
+**4.欧洲40%天然气来自俄罗斯**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/文远5.png)图片来源：网络
+**5.各国整个社会债务规模占GDP比例**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/文远6.png)图片来源：网络
+**6.通货膨胀下，工人要求提高工资**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/文远7.png)图片来源：网络
+**7.供应链受阻，世界11%的货物仍旧卡在路上、港口**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/文远8.png)
+**8.中共国2022年1月末外汇储备3.2216万亿美元**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/文远9.png)图片来源：网络
+**9.参与加拿大卡车抗疫的司机90%都打过双针疫苗**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/文远10.png)图片来源：网络
+**10.特斯拉充电桩在2021年增长35%**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/文远11.png)图片来源：网络
+编辑：MG4
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/新华社官员声援被拐妇女遭封杀.png)[图片来源](http://www.scio.gov.cn/ztk/dtzt/73/7/Document/1149773/1149773.htm)
-
-在北京大肆宣传冬奥之际，江苏徐州“八孩母亲”被铁链锁在小破屋的事件，迅速在网路发酵，引发舆论挞伐。现任中共新华社对外部主任韩松，2月6日在微博发文说，近来自己更关注的是拐卖妇女问题，而不是冬奥。但该条帖子随即被“维稳”删除。
-
-徐州“八孩母亲”被认为是中共治下拐卖妇女的一个缩影。据《中国走失人口白皮书2020》显示，2020年中国全年走失达100万人次，但具体年龄层比例，一直是个谜。
-
-中国刑法学教授罗翔律师曾说，中共法律对拐卖妇女最重判三年，但贩卖两隻鹦鹉都得判五年以上，一个女人还不如两只鹦鹉，这实在太不公平。
-
-在中共治下的中国，更加残酷的现实是：大多数的人口贩子，是不会被追责的；而受到惩罚的，往往是揭露人口贩卖的人。
-
-信息来源： [拐卖妇女比冬奥更应关注 新华社官员遭封杀](https://www.ntdtv.com/b5/2022/02/08/a103343134.html)
-
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+【[澳喜文章1](https://gnews.org/zh-hans/author/aujenny/)】
+【[澳喜文章2](https://gnews.org/zh-hans/author/himalaya-australia/)】
+![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

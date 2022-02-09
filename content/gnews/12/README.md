@@ -2,54 +2,34 @@
 ---
 
 
-## 中共将联合国对新疆的人权调查混淆为交流合作
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1978342/)
+## 超百名澳洲人打完新冠第三针疫苗后染疫死亡
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1978456/)
 
-作者：日本方舟农场 – Andy5
+整理/编辑：小红帽
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/dfef.png)图片来源：雅典娜设计组(614)
 
 
+根据《大纪元》2月9日报道， 根据澳洲各州的数据显示，超过一百名接种了第三针新冠疫苗的澳洲人染疫死亡。
 
-2月8日，本台报道了联合国秘书长古特雷斯，希望中共允许联合国人权高级专员巴舍莱到新疆进行人权调查的期许。但在2月7日中共外交战狼赵立坚在回答外媒记者提问时，故意采用偷换概念的方式，将“调查”改成了“交流与合作”。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide10-4.jpg)
-混淆和偷换概念，是中共处理一些对自己不利的国际问题的惯用伎俩，早在2020年12月，中共就将世界卫生组织赴武汉的病毒溯源调查，强制改成了“合作研究”，并演出了世卫组织抵达武汉后，被组织观看抗疫成就、实地调查草草了事的荒唐闹剧。
+《澳洲人报》收到的新州明细表显示，约有六十名接种了新冠疫苗加强针的新州人染疫死亡。
 
-分析人士指出，中共对新疆人权调查概念的混淆，已经表明其做贼心虚，即使本次联合国的调查请求得到允许，也会跟病毒溯源一样得不到明确的结果。
+自2021年11月以来，维州卫生部门证实，在近千的染疫死亡病例中，3.3%的死亡者（共30人）接种了三剂新冠疫苗。昆州卫生部门透露，在240名染疫死亡者中，7%的死亡者（共16人）接种了三剂新冠疫苗。
 
-参考信息：
-1. [外交部：中方欢迎联合国人权高专巴切莱特女士访华并参访新疆，已发出邀请](https://news.sina.com.cn/c/2022-02-07/doc-ikyamrmz9507534.shtml)
-2. [古特雷斯与习近平北京会晤 期待同中国加强合作](https://news.un.org/zh/story/2022/02/1098852)
-3. [习近平会见联合国秘书长古特雷斯](http://www.mod.gov.cn/topnews/2022-02/05/content_4904330.htm)
-4. [世卫专家拟明年1月赴武汉溯源调查 外交部：愿同世卫组织加强合作推进全球溯源工作](https://world.huanqiu.com/article/418dggxgIio)
-5. [外交部：世卫专家来华是全球溯源科研合作一部分](http://www.xinhuanet.com/world/2021-02/05/c_1127070341.htm)
-6. [20210201NNN報導CCP妨礙媒體報導WHO去華南海鮮市場](https://gtv.org/video/id=602917b8226e77590743e1cd)
-7. [20210203 東京電視台揭露武漢抗疫成就展是怎麼洗腦，又有哪些自相矛盾的地方的](https://gtv.org/video/id=602df8dd226e7759074520a0)
+《澳洲人报》报道称，卫生部长格亨特（Greg Hunt）在被要求澄清，全澳洲有多少老年护理中心的死亡者，曾接种过三剂新冠疫苗的事情上备受压力。亨特声称，各州收集的的数据“还没有提供给联邦”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+澳洲医疗总监凯利（Paul Kelly）表示，澳洲政府将成立一个特别工作组，以便更好地从各州收集有关此类死亡的数据。
 
-总编/编辑：DM
-校对/发稿：为真不破20
+新闻链接： [逾百名接种了第三针疫苗的澳洲人染疫死亡](https://www.epochtimes.com/gb/22/2/9/n13564460.htm)
 
-**更多资讯，更多关注**
+发布：tianzhihuan
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

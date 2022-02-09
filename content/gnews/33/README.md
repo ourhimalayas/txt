@@ -2,32 +2,26 @@
 ---
 
 
-## 哥伦比亚税务局将打击数字货币逃税者
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1978152/)
+## 新华社官员声援被拐妇女遭封杀
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1978227/)
 
-翻译/编辑：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-02-下午10.11.59-4.png)
-根据《COINGEEK》2月9日报道，随着数字货币在哥伦比亚的应用激增，该国的税务部门正出手打击逃税的比特币（BTC）所有者。在最近的一份声明中，哥伦比亚承认数字货币的采用在该国蓬勃发展，税务机构承诺将对逃税者采取行动。
+撰稿：东京樱花团/asket
 
-与拉丁美洲及其他地区的许多其他司法管辖区一样，哥伦比亚尚未为数字资产领域制定明确的法规。然而，该国的税务机构坚持认为，所有比特币所有者必须为他们的数字货币收入纳税。该国认为这是一种资产。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/新华社官员声援被拐妇女遭封杀.png)[图片来源](http://www.scio.gov.cn/ztk/dtzt/73/7/Document/1149773/1149773.htm)
 
-被称为哥伦比亚国家税务局（Dirección de Impuestos y Aduanas Nacionales de Colombia，简称DIAN）的机构透露，已经开始采取措施来抓捕逃税的交易者。税务局没有透露将采取什么具体行动，但已对那些没有报告其纳税义务或少报的人发出了严厉的警告。
+在北京大肆宣传冬奥之际，江苏徐州“八孩母亲”被铁链锁在小破屋的事件，迅速在网路发酵，引发舆论挞伐。现任中共新华社对外部主任韩松，2月6日在微博发文说，近来自己更关注的是拐卖妇女问题，而不是冬奥。但该条帖子随即被“维稳”删除。
 
-哥伦比亚国家税务局在其声明中表示：目前，使用加密资产在全球范围内成为现实，随着所谓的虚拟货币或加密货币使用的蓬勃发展，哥伦比亚国家税务局已经开始采取行动，旨在控制使用这些资产开展业务的纳税人。
+徐州“八孩母亲”被认为是中共治下拐卖妇女的一个缩影。据《中国走失人口白皮书2020》显示，2020年中国全年走失达100万人次，但具体年龄层比例，一直是个谜。
 
-哥伦比亚是拉丁美洲地区采用数字货币最多的国家之一。虽然这个行业不像阿根廷或委内瑞拉那样大，但近年来一直在积极增长。该国拥有该地区第二多的数字货币自动取款机，仅次于萨尔瓦多。
+中国刑法学教授罗翔律师曾说，中共法律对拐卖妇女最重判三年，但贩卖两隻鹦鹉都得判五年以上，一个女人还不如两只鹦鹉，这实在太不公平。
 
-新闻链接：[Colombia taxman cracking down on digital currency tax evaders](https://coingeek.com/colombia-taxman-cracking-down-on-digital-currency-tax-evaders/)
+在中共治下的中国，更加残酷的现实是：大多数的人口贩子，是不会被追责的；而受到惩罚的，往往是揭露人口贩卖的人。
 
-发布：tianzhihuan
+信息来源： [拐卖妇女比冬奥更应关注 新华社官员遭封杀](https://www.ntdtv.com/b5/2022/02/08/a103343134.html)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

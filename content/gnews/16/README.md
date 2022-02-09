@@ -2,40 +2,48 @@
 ---
 
 
-## 英特尔、微软和通用电气被揭支持中共军队和国安机构
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1978333/)
+## 中共被怀疑黑客美国新闻集团
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1978344/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
-
-翻译/编辑：小红帽
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-614.png)图片来源：雅典娜设计组
+作者：纽约香草山 – 柳是多水土透
 
 
-根据《自然新闻》2月8日报道， 一份刚刚发布的报告称，如果美国在未来的战争中输给中（共）国，甚至输掉一场重大战役，我们将把责任归咎于一些最大的美国科技公司。
 
-总部设在华盛顿的倡导组织共产主义受害者纪念基金会（VoC）和地平线（Horizo​​n）咨询顾问小组在他们的报告中指出，八家主要的美国公司正在向中（共）国政府的军事和国家安全机构提供“直接支持”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-报告称：“在努力占领中（共）国市场和提高其利润的过程中，美国公司越来越多地支持北京的军事现代化、监视国家、国内安全化以及随之而来的侵犯人权行为”。
 
-这些团体调查了在中（共）国运营的八家美国公司–亚马逊、苹果、戴尔、脸书、通用电气、谷歌、英特尔和微软–以寻找“可能直接或间接支持中（共）国的国家监控、军事现代化和侵犯人权行为 “的商业联系。
 
-据《大纪元时报》报道，尽管报告分析的所有公司都有与中（共）国国有企业做生意的可疑历史，但这些团体在其报告中特别记录了通用电气、英特尔和微软向中（共）国军队或中共国家安全机构提供“直接支持”。
+据外国媒体2月4日报道，美国新闻集团的计算机系统近日被黑客入侵，有数个新闻记者的电子邮件账号被盗。该集团的网络安全顾问认为，黑客可能是在为北京搜集情报。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-4.jpg)
+美国新闻集团，旗下拥有福克斯新闻和华尔街时报等媒体，在1月下旬发现被入侵，线上文件与电子邮件受到影响后，雇用了一家数码安全公司进行调查。该公司的副总裁认为黑客具有“中共背景”。
 
-美国公司为中国共产党“背书”已不是秘密。媒体多年来一直暗示，有利于中共独裁主义的商业交易十分普遍。然而，新的报告确实为这一趋势的普遍性增加了新的细节。
+此前，中共曾多次对外国记者发动网络攻击，2013年，《纽约时报》报告有53名记者的电脑遭到入侵，当时该报纸正在调查温家宝的家族财富。后来，又有消息披露彭博社、华尔街时报和华盛顿邮报等相继被黑。
 
-事实上，据报道，所涉及的公司帮助中共在最高层实施其对中（共）国社会的军事化。
+参考信息：
+[China suspected in hack of journalists at News Corp](https://www.reuters.com/business/media-telecom/news-corp-says-one-its-network-systems-targeted-by-cyberattack-2022-02-04/)
 
-新闻链接：[TECH TREASON: U.S. tech giants Intel, Microsoft, GE providing “direct support” to Chinese military, ChiCom state security apparatus](https://www.naturalnews.com/2022-02-08-us-tech-giants-providing-support-chinese-military-chicom-state-security.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
 
-发布：星谕
+总编/编辑：飞虹
+校对/发稿：为真不破20
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

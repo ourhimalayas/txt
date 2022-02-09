@@ -2,48 +2,26 @@
 ---
 
 
-## 中共被怀疑黑客美国新闻集团
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1978344/)
+## 数百美国华人写信FBI，揭露单伟建为中共高级间谍和洗钱罪犯
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1978460/)
 
-作者：纽约香草山 – 柳是多水土透
+#### 撰稿：彩虹
 
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-10.jpg)图片来源：推特
+2月8日，英文网站PRFree刊登文章，报道几百名美国华人同时致函FBI（美国联邦调查局），揭露太平洋联盟集团（PAG）董事长兼首席执行官单伟建先生为中共高级间谍和洗钱罪犯。
 
+由于中共无视全球领导规范，导致了在世界各个华语社区的羞辱和歧视，甚至发生了仇恨犯罪的现象。随着中共间谍数量在美国的不断增加，对讲华语人的仇恨情绪和种族主义将会成为新的现象。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+报道指出，2009年后，由于中共对经济优势和政治影响的渴求，中共派出了越来越多的间谍到美国进行活动。FBI局长克里斯托弗·雷（Christopher Wray）在加利福尼亚州西米谷的罗纳德·里根总统图书馆和博物馆（Ronald Reagan Presidential Library and Museum）发表主题演讲时说：“在联邦调查局，我们大约每天都会有两起针对中共的新的反间谍案件。世界上没有其他国家比中共对我们的意识、创新和经济安全构成更广泛的威胁。”
 
+文章说，2022年2月8日，在美国庆祝中国农历新年假期期间，数百名海外华人对他们的声誉和安全表示严重关切。他们同时写信给联邦调查局，揭露太平洋联盟集团（PAG）董事长兼首席执行官单伟建先生是中共的高级间谍。越来越多的海外华人想说出中国人不等于中共的真相。中共的高级间谍单伟建不能代表生活在美国的数百万热爱自由的华人。
 
+这些勇敢的华人在信中都督促联邦调查局调查单伟建和他的儿子单博，因为他们父子犯下了经济间谍、知识产权盗窃、金融欺诈、移民欺诈和洗钱活动犯罪行为，并追究单伟建从美国养老基金中窃取资金和通过中共的“千人计划”渗透美国的责任。
 
-据外国媒体2月4日报道，美国新闻集团的计算机系统近日被黑客入侵，有数个新闻记者的电子邮件账号被盗。该集团的网络安全顾问认为，黑客可能是在为北京搜集情报。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-4.jpg)
-美国新闻集团，旗下拥有福克斯新闻和华尔街时报等媒体，在1月下旬发现被入侵，线上文件与电子邮件受到影响后，雇用了一家数码安全公司进行调查。该公司的副总裁认为黑客具有“中共背景”。
+**新闻来源**
 
-此前，中共曾多次对外国记者发动网络攻击，2013年，《纽约时报》报告有53名记者的电脑遭到入侵，当时该报纸正在调查温家宝的家族财富。后来，又有消息披露彭博社、华尔街时报和华盛顿邮报等相继被黑。
-
-参考信息：
-[China suspected in hack of journalists at News Corp](https://www.reuters.com/business/media-telecom/news-corp-says-one-its-network-systems-targeted-by-cyberattack-2022-02-04/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+[Weijian Shan, the Chairman, and CEO of Pacific Alliance Group (PAG), Is Communist China’s High- ranking Spy & Money-laundering Criminal](https://www.prfree.org/@astralsoul/weijian-shan-the-chairman-and-ceo-of-pacific-alliance-group-pag-is-communist-china-s-high-ranking-spy-money-laundering-criminal-b7kx64ep7kry)
 
  
 
