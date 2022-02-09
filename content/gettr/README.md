@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/9/2022 10:16 PM (UTC)`
+
+2/9/2022 Miles Guo: Why am I entering into a new stage of my life today? The money deposited in UBS, including its hidden accounting records, is equivalent to the wealth accumulated by mankind in the past 500 years. Yesterday, many big shots thought it was impossible for my lawsuit against UBS to be filed in a London court.<br/><br/>2/9/2022 文贵直播：为什么说七哥在今天进入了人生新高度？瑞银UBS的存款和黑账相当于人类过去500年的财富，UBS案能在伦敦法院立案，这在昨天都是很多大咖认为不可能的事情<br/>
+![img](https://media.gettr.com/group16/getter/2022/02/09/22/fa5afb11-2d59-3b94-3220-dfe3c2173efb/out.jpg)
+
+---
+
+`@miles 2/9/2022 10:11 PM (UTC)`
+
+2/9/2022 Miles Guo: Finally, my lawsuit against UBS has been filed in London after having gone through the CCP's relentless obstruction at all costs. This is of great significance! It is our first official battle against the Swamp. Defeating UBS is equivalent to taking over half of the CCP’s “wealth empire”.<br/><br/>2/9/2022 文贵直播：UBS案历经了中共不惜一切代价的阻挠，今天终于在伦敦法院立上案了，意义重大啊！这是和沼泽地的第一场正式的战役，干掉UBS就相当于拿下了中共的半个“财富帝国”<br/>
+![img](https://media.gettr.com/group12/getter/2022/02/09/22/c4a44414-27b0-53f0-43c1-9be956fc8b55/out.jpg)
+
+---
+
 `@miles 2/9/2022 12:47 PM (UTC)`
 
 2022年2月9日 文贵大直播：习普政治困局；中美俄三角斗；药厂政策调整；药厂政府互掐；何为全球货币；七哥个人生活
@@ -140,21 +154,6 @@ Ms. Christine Anderson said, "Whenever a political entity resorts to extortion a
 
 2/5/2022 Miles Guo’s GETTR: Over 300 people at the opening ceremony of the Winter Olympics were sent to quarantine. Should Xi Jinping be quarantined as well? After his team got knocked out by the virus in Beijing, Putin made a harsh remark that the CCP must give Russia half of its territories as a pledge so that RMB can become the second legal tender in Russia. Will that be possible?<br/><br/>2/5/2022 文贵盖特：冬眠会开幕式现场300多人被拉走隔离，习神难道不需要隔离？普京在北京几乎被团灭后放狠话，中共得拿出半壁江山押给俄罗斯才能让人民币成为其第二法币，这个能实现吗？<br/>
 ![img](https://media.gettr.com/group38/getter/2022/02/05/20/ba33be16-cecc-4184-9e06-c7a95b172067/out.jpg)
-
----
-
-`@miles 2/5/2022 7:27 PM (UTC)`
-
-2月5号：跟着共产党．相信共产党．都要走进火葬场，都要有无穷无尽的麻烦往前看，往后看哪个不是这样。https://www.voachinese.com/a/us-house-competes-act-passage-20220204/6427308.html?utm_source=twitter&utm_medium=social&utm_campaign=dlvr.it&s=08<br/><br/><br/>［德国奥运代表团团长施梅尔普芬尼（Dirk Schimmelpfennig）1月５日表示，北京冬奥提供德国奥运金牌选手弗伦泽尔（Eric Frenzel）的隔离环境“不可接受”，要求立即改善。他表示，隔离饭店房间包括清洁、食物品质和WiFi都有问题，未符合运动员和代表团的标准。代表团正与弗伦泽尔保持密切联系，“房间必须大到足以让他锻炼身体，而且必须卫生干净。食物需要定期送来；PCR检测应该在我们需要时进行，每天两次。”他指出，这些是基本要求，将要求北京改进。］
-![img](https://media.gettr.com/group8/getter/2022/02/05/19/0c31dad0-e1e8-a316-a9f0-6dd8d1c338d6/37f5ac3b371e9661d3fab354f4eecf24.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@harnwell 2/5/2022 5:44 PM (UTC)`
-
-This is the BIG ONE I previewed on @WarRoom a little earlier regarding the Covid Squid Games.<br/><br/>Sincere thanks to @Miles Guo for breaking this in Chinese. <br/><br/>Not a single Western MSM outlet has reported this:<br/><br/>*three people have died at Beijing’s Waldorf Astoria hotel — reports noted violent spasms and convulsions before death<br/><br/>*Vladimir Putin is staying at the Waldorf Astoria<br/><br/>*16 people in Putin's personal entourage have been infected — including four or five bodyguards <br/><br/>Our crooked globalist overlords are all together in one place inside Beijing’s sealed triple-locked closed-loop bubble. Time to weld all the exits closed from the outside — Xian City style — and sit it out… <br/><br/>https://gnews.org/1956094
 
 ---
 

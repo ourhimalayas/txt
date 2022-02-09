@@ -2,35 +2,31 @@
 ---
 
 
-## 中共试图抢先打捞F35战机 偷盗美国技术
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1980986/)
+## 七哥谈中共不结盟战略（2022-02-06摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1981031/)
 
-作者：MOS农场 — 柳是多水土透
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-据美国媒体2月2日消息，中共有三艘打捞船于当天离港，驶向1月份美国F35C战机失事海域。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-17.jpg)
-1月24日，美军一架F35C战机在常规飞行中失事，尽管中共发言人赵立坚曾否认共军试图盗取该军机，但美国军队还是注意到了中共的打捞船只接近事发海域。另一则来自五角大楼的消息也印证了中共的行动。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-五角大楼的消息人士称，美国不相信中共有足够的打捞能力获得这架飞机，美国在深水科技方面也远远领先中共，但中共的行为非常令人“反感”。
+来源：郭先生2022-02-06直播08:17:51摘录
 
-参考链接：[中共试图抢先打捞F35战机 偷盗美国技术](https://dailycaller.com/2022/02/02/china-salvage-ships-america-military-f35-lightning-jet-bottom-ocean-sources/)
+普京这个事情，我给咱们战友们说过。这次大家看到普京是唯一一个给习撑场子的，给习太阳。这绝对是上千亿美元已经付过的钱，大家记住，不是一亿美元，是上千亿美元付过的钱。说好48小时，后来又一个延伸，说48小时能不能再加长一点？为什么？提高全天候战略伙伴的质量。啥叫全天候战略伙伴？兄弟姐妹们，就是中国有一个对外的不结盟战略。不结盟，就是共产党这个王八蛋，咱不结盟，咱就搞全天候战略伙伴、兄弟伙伴关系，就是准结盟，来骗美国。他就这么简单。他一共搞了几个呢？在过去一个没有，就习上来以后，和中东，和俄罗斯，和伊朗，他签了。唯一一个中国对外的所谓的，就是你打仗我要必须上，就象美国的联盟关系、结盟关系的，就是北朝鲜。北朝鲜的合同已经到期了，既没续签，也没否定。所以北朝鲜就说咱俩还是这样的关系，我打架，谁打我你得上，你打我也得上，这就是所谓的联盟关系。这个完全没有结婚证过期的婚姻关系，跟别人没结婚，说过答应别人不结婚了，但是他又要通奸，咋办呢？就搞成了一个说，我们俩是神交的关系，然后天天睡在一起，就这么样就叫中俄关系。但俄罗斯这不行，咱俩是婚姻、神交关系，没有结婚证，可以啊，但是我的费用很高，睡一次多少钱，先交钱后睡觉，就这么个关系勾搭的。所以说签了两个4600亿，一个4800亿的中俄天然气管道关系。原苏联最重要的，就是原苏联对欧洲的所谓西送的天然气管道，搞了50年没搞成，就美国人把前苏联干趴下了，然后他们叫“双头鹰”，白头鹰，两头鹰。另外一个管道往哪儿去呢？就是往中国来。就是俩鹰，俩管道，俩鹰，一个插到欧洲德国，一个插到中国，然后两个头，往这一吸、往这一吸，钱就来了，是吧？结果，美国人“啪”给打过来了，是吧？一打过来，那边儿干了50年，苏联没了整个半废，现在只能对着中国就这么抽了。一抽一抽的多少钱啊？是吧？结果是习就给他签了。现在人家不在那儿抽，人家说：哥们儿，光抽不过瘾，是不是？我要有吸奶的感觉。咱小时候都吃过妈妈的奶，是吧？我是不记得了，有人记得，是吧？小新估计，文真比较记得，因为你们都吃的时间比较长。我这兄弟多，我估计吃了两天就不让我吃了。吃奶的感觉是自然的，“啪叽啪叽”就吸了，母亲还得把奶放上去，还得给你：“多吃点孩子！多吃点儿！” 是吧？现在习近平就是那个奶娘，是吧？给俄罗斯挤着奶，多吃点儿！多吃点儿！俄罗斯，他没想到俄罗斯这个孩子太大了，是老装小啊，不仅吸着奶，还得摸着奶，是吧？不但摸着奶、吸着奶，下面还能弄一大奶桶，是吧？要全接过去，是吧，直接挤，这边儿也得挤，这边儿也得挤。中国人就是那个奶，是吧？一万多亿给整走了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-总编：Ivy001
-编辑：飞虹
-校对/发稿：Hetangyuese
+**关注我们**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+Discord 账号
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
+Gettr 账号
 
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

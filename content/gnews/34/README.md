@@ -2,31 +2,40 @@
 ---
 
 
-## 七哥谈“这个社会没有正义”（2022-02-06摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1980980/)
+## 中共挑维族运动员点燃冬奥火炬 遭媒体批评与关注
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1980981/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+作者：纽约香草山教育部 – Naughty(文行)/StevenZ（行侠）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+在2月4日举行的北京冬奥会开幕式上，中共挑选了新疆维吾尔族女选手衣拉木江作为将火炬嵌入主火炬台的其中一位火炬手，点燃圣火，此举引起了西方媒体的关注和批评。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-13.jpg)
+当天，就有美国媒体注意到这一问题，并立即将这一举动与新疆少数民族遭受迫害联系了起来。6日，美国驻联合国大使托马斯·葛林斐接受媒体采访时表示：”这是中共在试图分散我们对于当前真正问题的关注，维吾尔人正在遭受迫害。”
 
-来源：郭先生2022-02-06直播08：09：06摘录
+7日，有媒体跟进报道称，中共选择依拉木江女士，而不是一个更为广为人知的运动员点燃奥运火炬，被广泛认为是中共对全球谴责其迫害新疆人的蔑视。该媒体还注意到，在依拉木江点燃火炬并首次参加比赛后，本应接受媒体采访的她却悄悄溜走了，已经没有任何媒体可以对她进行进一步采访。
 
-你再想想当年，蒲安臣跟美国人跟中国签那个合约的时候，在他的记录中说的话，包括当年，大家记住啊，罗斯福总统家族在上海都有办事处的，对中国人的描述说：“这个国家永远视作旁边的同类、穷困潦倒，甚至是被虐待被掠杀，就看着视而不见，这个社会没有正义，这个社会从来没有任何人想帮别人，甚至每个人都特别开心别人比自己活得差，从来没接受过别人比自己好。” 而且说：“这儿一切都是假的。” 说到这儿的时候我要告诉你们，就在刚才我给你们打了个招呼我去诵经去了，这信息我蹲在马桶上看一看，我看都没法看，亨利小哥，就是那好多运动团代表，像韩国的、俄罗斯的、丹麦的，那哥们儿说：“郭先生，我们惨了！我拉肚子，我也没得上病，我现在这空调摸啥啥不凉，摸啥啥不热，你知道这什么感觉吗？我觉得我现在就是个半死，就是生与死的状态。” 给我发信息。我说：“你们有690道菜啊，中国的美食文化啊，好好吃啊。” 他说：“我现在我想死，我觉得我回家的勇气都没了。这个国家简直是魔鬼啊，他这么对待我们！原来找我谈的时候，如何骗我让我去，如何吃好穿好。” 你知道更夸张的，我们中东的卡塔尔的一个哥们儿，不是运动员，说服老板，曾经财政部长的家庭，知道吗？这文真、大石你们不一定懂，亨利在体制内懂，把你骗来的人，共产党对你啥报复？现在我可以告诉大家，不是报复他，就他亲自看到端上饭的人“啪”一口唾沫吐上去，端上去，就让他看见，你还不能出门。他说：“你看我们现在完全在监狱了。” 出门出不了，有四道关，他要饭，俩小时上来，“这饭当着我面就‘啪’一口，我们被隔离了，屋里电、WI-FI没有管用的。”我前天下午给他发的信息，我说：“你现在听我的，马上离开中共国，你还能挽回你的尊严，你这狗屁卡塔尔算个毛。共产党用过所有人就像擦屁股纸一样，不会再回头说擦过屁股的纸给小新纸了，小新接了文贵的擦屁股纸，擦完纸以后，小新再拽回来，从那个茅屎坑里，再闻闻？然后揣兜里边？不会的，小新老师擦完屁股扔下去不会再拿回来了。莎喲娜啦！没有人拿回擦屁股纸的。我说：你就是那擦屁股纸，是不是这意思？好。我说共产党冬奥会一定会开成“冬眠会”。你知道，亨利小哥在体制内知道，共产党永远相信：只要开幕式成功了，就成功了一半，每个人都相信这句话。我告诉大家，七哥给他招是什么？我让你开幕式也开不成功，我让你开幕式以后永远不能结束这场冬奥会。不能结束的冬奥会，这就是咱新中国联邦做的。我可以告诉大家，我无处不在的战友说：“七哥，凡是在这块想跟共产党来蹭钱的，放心七哥，我让他这一辈子难忘中国。”
+有分析人士认为，中共一再批评其他国家将奥运会政治化，他自己却将奥运政治的意图展现得淋漓尽致。但事与愿违，中共挑选依拉木江女士点燃圣火，本想将其吹捧为民族团结的象征，却再一次让外界彻底看清了他们虚伪的嘴脸。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+参考链接：
+1. [中共挑维族运动员点燃冬奥火炬 遭媒体批评与关注](https://www.rfi.fr/en/us-criticizes-china-s-choice-of-olympic-torchbearer)
+2. [中共挑维族运动员点燃冬奥火炬 遭媒体批评与关注](https://www.npr.org/2022/02/04/1078234213/beijing-olympics-flame-torch-uyghur)
+3. [中共挑维族运动员点燃冬奥火炬 遭媒体批评与关注](https://www.nbcnews.com/news/world/winter-olympics-opening-ceremony-beijing-china-rcna14511)
+4. [中共挑维族运动员点燃冬奥火炬 遭媒体批评与关注](https://twitter.com/No3Mos/status/1351675285721198597?s=20&amp;t=oeEiEkApduXuloGTHoxTfQ)
+5. [中共挑维族运动员点燃冬奥火炬 遭媒体批评与关注](https://www.hk01.com/%E5%8D%B3%E6%99%82%E5%9C%8B%E9%9A%9B/732696/%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A7-%E6%96%B0%E7%96%86%E7%B6%AD%E5%90%BE%E7%88%BE%E6%97%8F%E4%BA%BA%E9%BB%9E%E7%87%83%E8%81%96%E7%81%AB-%E7%BE%8E%E6%8C%87%E8%8F%AF%E8%BD%89%E7%A7%BB%E7%84%A6%E9%BB%9E-%E4%B8%AD%E6%96%B9%E5%8F%8D%E9%A7%81)
 
-**关注我们**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
-Discord 账号
+总编：飞虹
+编辑：飞虹
+校对/发稿：Hetangyuese
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

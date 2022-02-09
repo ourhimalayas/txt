@@ -2,18 +2,20 @@
 ---
 
 
-## 有声|大直播谈盘古龙头跟冬奥的关系
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1981431/)
+## 有声|日本三井将发行与黄金挂钩的数字货币
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1981435/)
 
 配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-在2月4日的大直播中，战友们谈论中共冬奥会始终无法绕开郭文贵先生的盘古大观。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+据国外媒体2月4日的消息，日本主要财团之一的三井物产株式会社，预计将在2月份发行与金价挂钩的数字货币ZPG，对零售投资者开放。其对应的黄金将由三井从伦敦金属交易所购入，一个ZPG等同于一克黄金。币价将由三井住友银行提供担保，对应以日元计价的黄金。
 
-首先中共航拍整个鸟巢周边，烘托冬奥氛围的时候，整片地区都灯火通明，只有盘古大观的灯被熄灭，这种反差引起的不对称，反而会引起人们对盘古大观的好奇心。
+ZPG大概是日本第一个与黄金挂钩的代币，但在全球范围内不是。ZPG最初会在三井交易所发行出售。
 
-其次，郭先生爆料，在冬奥会开幕前一天，习近平向世界宣布“中共准备好了”的宣传片中，出现了还未被改造的盘古龙头。为此中共安全部抓了三人，而其中有一位龚女士表示是自己干的，并表示纳入龙头比中共改造后的模样更好看，龙头才能给中共保存颜面。
+另外，三井还会开发使用此币的手机APP和其他交易系统，而买卖ZPG的客户都会被要求
 
-文字版原文：[大直播谈盘古龙头跟冬奥的关系](https://gnews.org/1971978/)
+进行KYC审核，该币的交易则会在私人区块链上进行。
+
+文字版原文：[日本三井将发行与黄金挂钩的数字货币](https://gnews.org/zh-hans/1978339/)
 
 音频处理/发稿：Daxia
 
@@ -26,8 +28,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
