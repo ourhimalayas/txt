@@ -2,26 +2,38 @@
 ---
 
 
-## 德州听证会：新冠疫苗曾造成实验动物死亡
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1977753/)
+## 港共政府收紧疫情限聚令为疫苗通行证铺路
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1977771/)
 
-##### 翻译：不要代表我
-校对：枳实
-剪辑|字幕：向上James
-编辑：Mttfly
+作者：纽约磐石农场—在远方
 
-在美国德克萨斯州参议院听证会上，证人表示此前没有一种疫苗像目前新冠疫苗一样，具有如此高的严重住院病例数字和死亡率。其他疫苗如果出现这种情况，都会被第一时间下架。霍尔参议员表示，新冠疫苗研发者实际上曾经启动过动物试验。但是因为动物相继死亡，他们便停止了试验。他们没有做人体试验，然后他们直接把试验性疫苗推向公众。证人对此表示赞同。
 
-视频链接：[COVID ‘VIRUS VACCINES’ KILLED THE ANIMALS IN PREVIOUS TRIALS: TEXAS SENATE HEARING](https://www.bitchute.com/video/ct2T806nIALj/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-3.png)
+台媒报道，2月8日香港特首林郑月娥，宣布最新防疫措施，包括收紧公众聚会人数上限至2人。同时首次将限聚令适用于私人处所，禁止两个家庭在私人地方进行跨家庭聚会。
 
-*发布：Mttfly*
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+据悉，港共政府授意香港行政会议，通过防疫规例修订，将规管的处所增至23类，包括宗教场所、商场、街市和发廊等地方。其中，还强迫宗教处所，需于2月10日关闭至2月24日凌晨。
+
+另据港共政府专家顾问、中大呼吸科教授许树昌表示，如果港共政府的上述措施无效，下一步还要考虑限制公民，进行户外活动和交通工具使用，要求乘客使用疫苗通行证。
+
+新闻来源：[https://money.udn.com/money/story/6721/6084558?from=ddd-umaylikenews\_money\_index](https://money.udn.com/money/story/6721/6084558?from=ddd-umaylikenews_money_index)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-21.jpg)
+
+
+
+编辑/校对/发稿：滚滚长江都是水
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 

@@ -2,37 +2,35 @@
 ---
 
 
-## 美众院通过美国竞争法 吁启动「台湾代表处」更名协商
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1977932/)
+## 再谈徐州丰县被贩卖的“锁链女孩”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1977950/)
 
-作者：台湾宝岛农场\_阿尔道夫
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-4.png)
-![美國聯邦眾議院4日表決通過美國競爭法案（America COMPETES Act of 2022）。 歐新社](https://pgw.udn.com.tw/gw/photo.php?u=https://uc.udn.com.tw/photo/2022/02/05/realtime/15788957.jpg&amp;x=0&amp;y=0&amp;sw=0&amp;sh=0&amp;sl=W&amp;fw=800&amp;exp=3600&amp;w=930)图片来源：欧新社 
+作者/整理：顺其自然
+编辑：小红帽
 
-据外媒报导，为深化美国与台湾的双边关系，美联邦众议院4日通过法案，呼吁将「驻美国台北经济文化代表处」（TECRO）更名为「台湾代表处」（Taiwan Representative Office），显示美政策是主张称呼「台湾」为「台湾」，不是「台北」或「中华台北」
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/7-7.png)图片来源：雅典娜设计组
 
-法案也提到，美国将以「促使台湾成为北极理事会（the Arctic Council）的观察员」为政策。
 
-此外，民主党籍的参院外交委员会主席梅南德兹（Bob Menendez）表示，当中共持续压迫台湾，这项重要立法展示美国对台湾人民及台湾权利的重要支持。
+现在我把老蛮在微博上的关于徐州八孩女子的建议在这里说一下。若有这方面能力的（人）可以关注老蛮的微博，在他下面留言。为这个悲惨的和像他一样悲惨的女子尽一份绵薄之力。
 
-新闻链接：https://udn.com/news/story/6813/6077094
+老蛮说，既然徐州丰县方面严重不靠谱，我建议我们自己行动起来，自行查案。现在可以从两个方向入手。第一个方向，云南方面。我相信网络力量如此庞大，总能找到福贡县的网友。运气好点，亚谷村的网友也不是找不到。我希望当地的网友能查证一件事：小花梅的年龄。能查明这件事，距离真相就近了一大步。
 
-编辑/校对/发稿：小小安
+另一个方向，获得妇女或其八名儿子的DNA样本。这件事说难也难，说不难也不难。当地农村现在确实严防死守，以防疫为由禁止外村人拜访，但是我们网民的力量是无穷的。比如，电信基站工人进行例行检修，这无法阻拦了吧。我也不信这个村可以永久封闭下去。我们完全有这个耐心跟他打持久战。注意，未必需要妇女本人的样本，她的八名儿子的样本一样有效。除非这个穷县有本事可以把这九个人严密看管一辈子，不然总会被我们采集到样本。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-24.jpg)
+只要可以获得样本，那么国内有近百家可以做DNA亲属关系鉴定的公私机构，给钱就能给鉴定的一大把。快递到国外去鉴定也非常方便。我们有这个耐心，跟这个穷县磨到底。我倒要看看，是我们更有耐心追寻真相，还是当地更有决心掩盖真相。
 
-**更多资讯，更多关注**
+钱的方面，老蛮及其他的铁粉会解决，这个不用担心。现在我们就盯住一个来打，然后由点到面，逐步给中共施加压力，把拐卖妇女儿童这事给想办法解决掉。若不解决，将来所有的人都可能是下一个受害者。男人不要觉得你离这个危险很遥远，你知道中国有黑砖窑吗？一闷棍下去，把你弄到黑砖窑，那你这辈子呆在暗无天日的砖窑里做奴隶了。我们所有的海外华人都有家人亲朋在国内，若这事最后不了了之，犯罪分子会变本加厉，因为他们知道政府实际在默许纵容这种事情发生。他们拐卖人口甚至在大街上抢走你的孩子就会更加猖狂，所以现在救那个女子，就是救每一个我们在国内的家人亲朋好友。
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+网络上一直传的徐州丰县那个被锁链锁住的女子极有可能是四川的李莹，李莹的亲叔叔–李大城在昨天已经向公安机关申请委托第三方权威做DNA鉴定。希望这事能很快有个结果。
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+*发布：tianzhihuan*
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-5.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

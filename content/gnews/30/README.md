@@ -2,32 +2,17 @@
 ---
 
 
-## 2022年2月8日 晚 新中国联邦新闻、GTV新闻访谈简报
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1977618/)
+## 内卷下的挣扎只为活着，墙内底层民众的诉说！
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/1977629/)
 
-作者：香草山翻译部
+墙内闪送小哥的苦楚诉说，心脏有病不敢去医院检查，怕真检查出大病也没有钱去看。家里老爸身体不好，每月光看病吃药还要花钱，儿子光上学一年就一万多。只能在外面工作，一年年的不回家，为了生活只有这样的扛着，看似完好的家庭，崩溃只在一瞬间！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-4.jpg)
+中共不灭，内卷不止！内卷下的人民无一幸免，只有灭共才是唯一的出路，唯一的希望就在新中国联邦！传播爆料革命，让更多的民众醒来是每一个人的责任，中国不灭只能苟活，没有一个民众可以幸福的活着！
+（视频来源：西瓜视频）
+**多伦多蓝莲花农场**
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-7.png)
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-**新闻**：[https://gtv.org/broadcast/watch/620319bd3621aa7415d7cf75](https://gtv.org/broadcast/watch/620319bd3621aa7415d7cf75)
-**访谈**：[https://gtv.org/broadcast/watch/620321533621aa7415d7d4e3](https://gtv.org/broadcast/watch/620321533621aa7415d7d4e3)
-
-![calendar](https://assets.gnews.org/wp-content/uploads/2022/02/calendar-1.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+撰稿：一叶知秋
+发布：一叶知秋
 
  
 

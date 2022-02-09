@@ -2,24 +2,44 @@
 ---
 
 
-## 震惊！爱尔兰7名儿童被接种承成人剂量新冠疫苗
-` 全球G系列咨服群` [轉載自GNews](https://gnews.org/zh-hans/1977738/)
+## 新西兰爆发反疫情管控抗议
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1977757/)
 
-据irishexaminer新闻网披露：爱尔兰卫生产品监管机构表示，7名儿童被接种了成人剂量的Covid-19疫苗，在七起案件中，其中一名儿童有轻微的不良反应。
-
-爱尔兰疫苗接种中心人员在为儿童接种第二针疫苗时通过疫苗卡片发现了这种错误。儿童的辉瑞/BioNTech疫苗（称为Comirnaty）的剂量为10mg，成人剂量为30mg。
-
-爱尔兰健康保护监测中心（HPSC）的数据显示，到2月2日，在疫苗推出一个多月后，17.3%的5-11岁儿童接种了部分疫苗，3.1%的儿童完全接种了疫苗。12至17岁青少年的接种率为75.6%，部分接种率为3.2%
-
-根据郭先生早前爆料在每剂成人疫苗中的刺突蛋白多达40万个，而刺突蛋白本身就是毒素，这些刺突蛋白会逐渐损失人体免疫功能，对心脏、大脑、生育、怀孕都有着破坏性甚至是不可逆转的影响。
-
-新闻链接：[https://www.irishexaminer.com/news/arid-40802685.html](https://www.irishexaminer.com/news/arid-40802685.html)
-
-编辑:Miyali7768(文玉）
-
-*发布:Miyali7768(文玉）*
+作者：纽约香草山教育部 Naughty(文行)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-4.png)
+据路透社报道，受加拿大类似示威活动的启发，2 月 8 日，数百名抗议疫苗接种和疫情限制的人用卡车和露营车封锁了惠灵顿新西兰议会外的街道。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-34.png)图源网络
+抗议者基本上没有戴口罩，他们举着呼吁自由的标语牌，反对政府采取严格的抗击疫情措施，并发誓要在议会外扎营，直到政府解除中共病毒限制措施。抗议活动可能会持续数天。
+
+新西兰总理阿德恩没有与抗议者见面，她后来告诉记者，抗议者并不代表多数人的观点。
+
+在当天早些时候的第一次议会演讲中，阿德恩告诉议会，中共病毒大流行不会随着奥米炕 变种而结束，新西兰今年将不得不为更多的病毒变种做准备。
+
+在上个月发布的最新公众民意调查中，阿德恩的支持率直线下降，因为公众对她的强制接种疫苗和延迟取消疫情管控表示不满。
+
+新西兰政府上周表示将在10月前分阶段向世界其他地区重新开放边界。
+
+新闻来源：[https://www.reuters.com/world/asia-pacific/new-zealand-pm-warns-more-covid-variants-2022-2022-02-08/](https://www.reuters.com/world/asia-pacific/new-zealand-pm-warns-more-covid-variants-2022-2022-02-08/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-20.jpg)
+
+
+
+编辑/校对/发稿：滚滚长江都是水
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 

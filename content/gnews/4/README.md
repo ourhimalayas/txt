@@ -2,20 +2,31 @@
 ---
 
 
-## 2022年2月8日郭先生盖特 — 视频2「1分14秒」
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1977949/)
+## 有声|日媒指出中共冬奥会的问题 印证爆料革命观点
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1977987/)
 
-听写：洛杉矶盘古农场 — Antsee-GTV
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月6日，日媒用生动的剪纸画，总结了中共冬奥会的三大问题。
 
-Video link: [https://gettr.com/post/ptbr4jf2c7](https://gettr.com/post/ptbr4jf2c7)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/51535897-3823-42FD-9ECB-A459205C9D84.jpeg)
-今天早上我发出GETTR以后很多人都在关心明天有啥公布的？
+报道指出，首先，与习近平作为筹备小组组长的08年夏季奥运会相比，参加开幕式的外国领导人人数，因为新疆人权等原因从80国锐减至25国，并且其中的11国属于强权专制国家。
 
-首先和灭共的事情没多大关系；跟爆料革命也没啥关系；跟G系列没关系；就个人生活方式的改变，比如说一周几次大直播呀，还有未来一些个人生活方式的改变，跟那些都没关系。没那么大这事儿。大家都猜多了，想太多了。
+其次，本次中共冬奥会的所有三个室外场地，均被设在了很少有降雪的地方，不得不使用对环境造成污染的人工降雪。
 
-我还在开会中，所以说我先给大家简单报告一下 — 猜多了啊。也可能明天公告，也可能是后天，好吧？是个人的事，完全个人生活方式的事儿！但7哥个人的事不是跟大家都连在一起吗？所以向大家报告一下。
+文字版原文：[日媒指出中共冬奥会的问题 印证爆料革命观点](https://gnews.org/zh-hans/1971130/)
 
-例如，个人生活方式的问题，生活方式的改变。说不定要娶二婚呢，是吧？和其它都没关系，跟爆料革命，跟新中国联邦，跟G系列都没有半点关系 — 那没有一样的东西属于我的，那都是属于爆料革命的属于战友们的！大家想多了，别着急，别着急，别想太多，别想太多。
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
 
  
 
