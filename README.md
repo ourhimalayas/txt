@@ -15,50 +15,50 @@
 
 ---
 
-### [七哥谈三个锦囊](/content/gnews/1/README.md)
+### [美新任驻日大使与日防长会晤 谈连手应对中俄](/content/gnews/1/README.md)
+ ` 日本东京方舟农场`
+
+### [七哥谈三个锦囊](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [新中国联邦今年的三个大惊喜](/content/gnews/2/README.md)
+### [新中国联邦今年的三个大惊喜](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [七哥将给天下的母亲唱两首歌](/content/gnews/3/README.md)
+### [七哥将给天下的母亲唱两首歌](/content/gnews/4/README.md)
  ` 雅典娜GNotes`
 
-### [不明是非](/content/gnews/4/README.md)
+### [不明是非](/content/gnews/5/README.md)
  ` 雅典娜GNotes`
 
-### [最大意义只有灭共](/content/gnews/5/README.md)
+### [最大意义只有灭共](/content/gnews/6/README.md)
  ` 雅典娜GNotes`
 
-### [中国社会的悲哀对比西方的文明](/content/gnews/6/README.md)
+### [中国社会的悲哀对比西方的文明](/content/gnews/7/README.md)
  ` 雅典娜GNotes`
 
-### [拯救在中国被绑架女性](/content/gnews/7/README.md)
+### [拯救在中国被绑架女性](/content/gnews/8/README.md)
  ` 雅典娜GNotes`
 
-### [震惊业界：上海私募基金经理高杉失踪](/content/gnews/8/README.md)
+### [震惊业界：上海私募基金经理高杉失踪](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中国女性是共产党的玩具](/content/gnews/9/README.md)
+### [中国女性是共产党的玩具](/content/gnews/10/README.md)
  ` 雅典娜GNotes`
 
-### [器官移植是共产党的特权](/content/gnews/10/README.md)
+### [器官移植是共产党的特权](/content/gnews/11/README.md)
  ` 雅典娜GNotes`
 
-### [BBC获尼泊尔政府报告：中共国越过边境进入尼泊尔](/content/gnews/11/README.md)
+### [BBC获尼泊尔政府报告：中共国越过边境进入尼泊尔](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [女性是共产党执政的工具](/content/gnews/12/README.md)
+### [女性是共产党执政的工具](/content/gnews/13/README.md)
  ` 雅典娜GNotes`
 
-### [战友将军说打台湾会将导弹打向北京](/content/gnews/13/README.md)
+### [战友将军说打台湾会将导弹打向北京](/content/gnews/14/README.md)
  ` 雅典娜GNotes`
 
-### [拜登表示：如果俄罗斯入侵乌克兰，北溪 2 号管道将被制裁](/content/gnews/14/README.md)
+### [拜登表示：如果俄罗斯入侵乌克兰，北溪 2 号管道将被制裁](/content/gnews/15/README.md)
  ` 澳喜特战旅Gnews`
-
-### [邪恶的共产党体制](/content/gnews/15/README.md)
- ` 雅典娜GNotes`
 
 ### [南卡罗来纳州法律草案定义询问疫苗接种状况的行为非法](/content/gnews/16/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
