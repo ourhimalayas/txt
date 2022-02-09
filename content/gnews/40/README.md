@@ -2,12 +2,14 @@
 ---
 
 
-## 不能再向中共国市场注入美元
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1975273/)
+## 五月花简报（02/08/2022）
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/1976272/)
 
-02/05/2022 知名主持人鲁·道博在战斗室采访中表示：不能再向中共国市场注入美元。
+编辑：波士顿五月花—-冲天一怒
+![](https://assets.gnews.org/wp-content/uploads/2022/02/EBEC4FFC-4E61-4934-B33A-46303ABF3EA1.jpeg)
+*发布：思澈*
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
 
  
 

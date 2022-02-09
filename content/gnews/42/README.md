@@ -2,12 +2,15 @@
 ---
 
 
-## 已经对疫苗的紧急授权使用和错误标识提起诉讼
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1975269/)
+## 郝董谈自身转会经历，反映出HPAY对未来体育界的革命性影响
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1975895/)
 
-02/05/2022 战斗室：已经对疫苗的紧急授权使用和错误标识提起诉讼。
+**H-Pay 将彻底改变金融游戏规则**
+视频制作：文双
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+翻译：秋刀鱼
+
+上传排版：文勇
 
  
 

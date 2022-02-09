@@ -2,48 +2,34 @@
 ---
 
 
-## 中共继续蓝金黄英国大学 开发或偷盗高科技武器
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1978343/)
+## 澳洲外长受压中共，称未考虑更改台湾代表处名称
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1978380/)
 
-作者：纽约香草山教育部 – 子兵
+整理/编辑：小红帽
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/dfef.png)图片来源：雅典娜设计组(614)
 
 
+根据《早报》2月9日报道，澳大利亚外长佩恩（Marise Payne）当日表示，在与北京外交关系紧张的情况下，澳大利亚目前没有考虑更改“驻澳大利亚台北经济文化办事处”的名称，并继续支持一中政策。
 
-2月6日，据外媒透露，英国的大学大幅增加了与中共军队有关的机构的合作，并可能有助于中共发展高科技武器。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-5.jpg)
-根据一项调查，英国科学家与跟中共解放军有密切联系的中共机构之间的研究合作数量在六年内增加了两倍，超过了1000次。而自2015年以来，英国大学从这些机构接受了2.4亿英镑的资助。其中，电信巨头华为是主要资金来源，华为已向英国机构捐款4000万英镑，另外还有2000万英镑来自因向解放军提供战斗机、导弹和通讯技术而受到美国政府制裁的公司。
+佩恩在首都堪培拉与来访的立陶宛外交部长兰茨伯格斯举行新闻发布会。
 
-该调查称，英国学者与有中共军方背景的大学合作，进行了多项敏感的“军民两用技术”的研究，包括无人机、可以发射导弹的电磁技术、航空航天材料、雷达、干扰装置和高效能电池等。
+佩恩在中共就台湾驻立陶宛代表处名称问题对立陶宛施压期间，发表言论称，目前澳洲没有与台湾就更改其驻澳大利亚代表处名称的可能性进行会谈。澳大利亚仍继续支持一个中（共）国的政策。
 
-参考信息：
-[UK Universities May Be Helping China Develop Hi-tech Weapons: Report](https://www.theepochtimes.com/uk-universities-may-be-helping-china-develop-hi-tech-weapons-report_4259918.html?utm_source=ref_share&amp;utm_campaign=copy&amp;rs=SHRKVP&amp;)
+兰茨伯格斯说，有必要提醒那些寻求利用贸易作为报复措施的国家，“志同道合的国家拥有有助于抵御胁迫的工具和法规”。立陶宛和澳大利亚同是中国大陆“经济胁迫”的目标，“但我们绝对不是最后一个”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+澳大利亚近日加入了美国及英国的阵线，支持欧盟将中共对立陶宛的经济施压诉诸世界贸易组织（WTO）。
 
-总编/编辑：飞虹
-校对/发稿：为真不破20
+新闻链接：[澳大利亚称未考虑更改台湾代表处名称](https://www.zaobao.com.sg/realtime/china/story20220209-1240896)
 
-**更多资讯，更多关注**
+发布： tianzhihuan
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

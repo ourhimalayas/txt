@@ -2,34 +2,28 @@
 ---
 
 
-## 2022年2月9日新闻集
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1978287/)
+## 戴口罩也不能百分百防病毒！50厘米以内对话存在感染风险
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1978324/)
 
-撰稿人：文远Bruce
-![](https://assets.gnews.org/wp-content/uploads/2022/02/文远.png)图片来源：作者
-**1.2.彭帅露面、宣布退役，以一句“宇宙无限大，地球就是一粒沙，人类很渺小，不要有心理负担，我们想干啥就干啥”PUA骗取彭帅处子之身的共匪张高丽至今逍遥法外！**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/文远2.png)图片来源：网络![](https://assets.gnews.org/wp-content/uploads/2022/02/文远3.png)图片来源：网络
-**3. 男子冰球队25人，归化球员达到15名，女队23人，归化球员为13名。归化人数28人超一半。归化球员28人中22人有中共国基因，这些人是不是共匪另一个“千人计划”的后代？**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/文远4.png)图片来源：网络
-**4.欧洲40%天然气来自俄罗斯**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/文远5.png)图片来源：网络
-**5.各国整个社会债务规模占GDP比例**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/文远6.png)图片来源：网络
-**6.通货膨胀下，工人要求提高工资**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/文远7.png)图片来源：网络
-**7.供应链受阻，世界11%的货物仍旧卡在路上、港口**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/文远8.png)
-**8.中共国2022年1月末外汇储备3.2216万亿美元**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/文远9.png)图片来源：网络
-**9.参与加拿大卡车抗疫的司机90%都打过双针疫苗**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/文远10.png)图片来源：网络
-**10.特斯拉充电桩在2021年增长35%**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/文远11.png)图片来源：网络
-编辑：MG4
+撰稿：东京樱花团/立正道
 
-【[澳喜文章1](https://gnews.org/zh-hans/author/aujenny/)】
-【[澳喜文章2](https://gnews.org/zh-hans/author/himalaya-australia/)】
-![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/戴口罩也不能百分百防病毒！50厘米以内对话存在感染风险.png)[图片来源](https://www.voanews.com/a/japan-s-fukuoka-finds-omicron-case-in-possible-community-transmission-governor-says/6369613.html)
+
+2日，日本理化学研究所和神户大学等团队公布了RIKEN超级计算机“富岳”对新型冠状病毒变异株“Omicron株”风险的计算结果。 即使戴着口罩，如果在50厘米以内的近距离交谈，感染的可能性就会增加，他呼吁缩短接触时间。
+
+该团队假设 Omicron 菌株的传染性是 Delta 菌株的 1.5 倍。 通过改变是否有口罩、谈话时间和与感染者的距离等条件来计算侵入身体的病毒量。
+
+结果，在室内1米或以上的距离与戴口罩的感染者交谈15分钟时，感染概率几乎为零，而距离为50厘米时，1小时内感染概率约为10%。 另一方面，与未戴口罩的感染者以1米间隔15分钟交谈时，感染概率约为60%，在50厘米内几乎达到100%。 假设在活动中与坐在您旁边的人进行了对话。交谈一个小时后，感染者既使带着口罩，你也有 40% 的被感染机会。
+
+理研团队负责人、神户大学教授坪仓诚说，“预防被感染的措施是，保持距离和缩短接触时间。”
+
+信息来源：
+
+[マスクしても「５０センチ以内の会話」で感染リスク…「富岳」でオミクロン分析](https://www.yomiuri.co.jp/science/20220202-OYT1T50211/)
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

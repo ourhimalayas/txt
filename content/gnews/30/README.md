@@ -2,24 +2,31 @@
 ---
 
 
-## 《美国竞争法案》中被中共蓝金黄删掉的重要条款
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1977952/)
+## 哥伦比亚税务局将打击数字货币逃税者
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1978152/)
 
-编辑撰稿：硫酸羟氯喹64
-![](https://assets.gnews.org/wp-content/uploads/2022/02/06-image-2.png)
-图片来源：GTV
+翻译/编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-02-下午10.11.59-4.png)
+根据《COINGEEK》2月9日报道，随着数字货币在哥伦比亚的应用激增，该国的税务部门正出手打击逃税的比特币（BTC）所有者。在最近的一份声明中，哥伦比亚承认数字货币的采用在该国蓬勃发展，税务机构承诺将对逃税者采取行动。
 
-据2月6日GTV文贵大直播消息透露，在美国众议院刚刚通过针对遏制中共扩张的《美国竞争法案》中，有部分涉及台湾安全的关键性条款，在中共势力的游说之下被迫删除。
+与拉丁美洲及其他地区的许多其他司法管辖区一样，哥伦比亚尚未为数字资产领域制定明确的法规。然而，该国的税务机构坚持认为，所有比特币所有者必须为他们的数字货币收入纳税。该国认为这是一种资产。
 
-消息称，这些被取消的条款包括：习近平当局若武力攻台，美国政府不仅会立即公开和查封中南坑盗国贼家族的全部海外资产，还将与中共的经济彻底脱钩并断绝双边外交关系等措施。 文贵先生表示，尽管中共利用其在美国的深度渗透和游说能力，成功取消了以上重要条款，但却无法根本影响在美台关系中起主导作用的美国立法会。该法案事实上已明确了美国政府将保护台湾不受中共武力入侵的基本立场，并使美方在中共未来发动台海战争之时，拥有更多军事反击的行动空间。
+被称为哥伦比亚国家税务局（Dirección de Impuestos y Aduanas Nacionales de Colombia，简称DIAN）的机构透露，已经开始采取措施来抓捕逃税的交易者。税务局没有透露将采取什么具体行动，但已对那些没有报告其纳税义务或少报的人发出了严厉的警告。
 
-校对编辑：硫酸羟氯喹64
+哥伦比亚国家税务局在其声明中表示：目前，使用加密资产在全球范围内成为现实，随着所谓的虚拟货币或加密货币使用的蓬勃发展，哥伦比亚国家税务局已经开始采取行动，旨在控制使用这些资产开展业务的纳税人。
 
-发稿：苦尽甜来 (文來）
+哥伦比亚是拉丁美洲地区采用数字货币最多的国家之一。虽然这个行业不像阿根廷或委内瑞拉那样大，但近年来一直在积极增长。该国拥有该地区第二多的数字货币自动取款机，仅次于萨尔瓦多。
 
-新闻来源：
+新闻链接：[Colombia taxman cracking down on digital currency tax evaders](https://coingeek.com/colombia-taxman-cracking-down-on-digital-currency-tax-evaders/)
 
-[https://gtv.org/video/id=61ffc26b3621aa7415d64d51](https://gtv.org/video/id=61ffc26b3621aa7415d64d51)
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

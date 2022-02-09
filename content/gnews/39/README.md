@@ -2,15 +2,12 @@
 ---
 
 
-## 郝董谈自身转会经历，反映出HPAY对未来体育界的革命性影响
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1975895/)
+## 班农先生：任何亲自到场的政府官员，都不是追求推动自由的
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1976417/)
 
-**H-Pay 将彻底改变金融游戏规则**
-视频制作：文双
+02/05/2022 班农先生：你不能，去中共的种族灭绝奥运，给习和中共叩头。亲自到场的任何政府，都不是追求推动自由的。
 
-翻译：秋刀鱼
-
-上传排版：文勇
+By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

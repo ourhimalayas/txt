@@ -2,21 +2,26 @@
 ---
 
 
-## 共产党要活必须靠美国
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1978124/)
+## 新华社官员声援被拐妇女遭封杀
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1978227/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+撰稿：东京樱花团/asket
 
-*发布：陶子*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/新华社官员声援被拐妇女遭封杀.png)[图片来源](http://www.scio.gov.cn/ztk/dtzt/73/7/Document/1149773/1149773.htm)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+在北京大肆宣传冬奥之际，江苏徐州“八孩母亲”被铁链锁在小破屋的事件，迅速在网路发酵，引发舆论挞伐。现任中共新华社对外部主任韩松，2月6日在微博发文说，近来自己更关注的是拐卖妇女问题，而不是冬奥。但该条帖子随即被“维稳”删除。
 
+徐州“八孩母亲”被认为是中共治下拐卖妇女的一个缩影。据《中国走失人口白皮书2020》显示，2020年中国全年走失达100万人次，但具体年龄层比例，一直是个谜。
+
+中国刑法学教授罗翔律师曾说，中共法律对拐卖妇女最重判三年，但贩卖两隻鹦鹉都得判五年以上，一个女人还不如两只鹦鹉，这实在太不公平。
+
+在中共治下的中国，更加残酷的现实是：大多数的人口贩子，是不会被追责的；而受到惩罚的，往往是揭露人口贩卖的人。
+
+信息来源： [拐卖妇女比冬奥更应关注 新华社官员遭封杀](https://www.ntdtv.com/b5/2022/02/08/a103343134.html)
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
