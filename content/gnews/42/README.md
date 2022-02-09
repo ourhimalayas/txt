@@ -2,103 +2,26 @@
 ---
 
 
-## 全世界人民，珍惜生命，远离中共
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1978474/)
+## 辉瑞悄悄地警告“不利的临床试验或安全数据”会影响商业
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1978648/)
 
-[https://gtv.org/video/id=620264a9585ecc15d73ef97b](https://gtv.org/video/id=620264a9585ecc15d73ef97b)
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/02/4-9.jpg)
+图片来源：twitter.com
 
-像人一样活着
-Vive como una persona
+零对冲网2月8日报道，二周前美国食品药品监督管理局（FDA）请求德克萨斯法官在第一个月所需上交的5万5千页新冠疫苗数据由辉瑞公司提供。最初FDA要求每个月只交500页。
 
-你只要不像畜生一样活着
-Pero mientras tanto no vivas como una bestia
+现在辉瑞公司原来预估2022年售出与疫情相关的疫苗和药物将达540亿，现在看来有些坏消息了，因为第四季度获利的证据有些关键性改变。
 
-还有一个, 你想活下去
-Y hay otro, si quieres sobrevivir
+据卢比孔资本的凯里·布朗发推说，这些改变围绕在不利的安全数据公开方面。例如，在Q4中他们加上了“关于临床前期，临床试验期或安全数据的进一步信息，包括审计和检查”。布朗写道，辉瑞现在突出显示“担忧临床数据的公正性…”
 
-远离中共, 珍惜生命
-Aléjate del PCCh, aprecia la vida
+该公司还写道，新冠病毒可能本身降低了其严重性和流行性，或者可能完全消失。”
 
-远离中共, 不仅是演艺圈
-Aléjate del PCCh no es solamente del mundo de espectáculo
+人们不禁要问：辉瑞公司的面纱后面究竟是什么？
 
-不仅是企业家也不仅是搞媒的
-No sólo de los empresarios, medios de comunicación
+##### 新闻来源： [Pfizer Quietly Adds Language Warning That ‘Unfavorable Pre-Clinical, Clinical Or Safety Data’ May Impact Business](https://www.zerohedge.com/covid-19/pfizer-quietly-adds-language-warning-unfavorable-pre-clinical-clinical-or-safety-data-may)
 
-不管你多大岁数
-No importa a qué edad tengas
-
-我就今天奉劝所有的同胞
-Hoy sugiero a todos los compatriotas
-
-包括全世界的人
-Incluyendo a todas las personas del mundo
-
-有点良知的
-Que tengan un poco de conciencia
-
-看一看所有和中国共产党打交道的下场
-Vean el destino de todo aquello que han tenido tratos con el PCCh
-
-马云, 赵本山, 宋祖英
-Jack Ma, Zhao Benshan, Song Zuying
-
-香港, 台湾的歌星
-Los cantantes de Hong Kong y Taiwán
-
-以及美国的政要, 欧洲的政要
-Dignatarios estadounidenses y europeos
-
-欧洲的主席, 包括这梵蒂冈
-Presidentes de Europa, incluyendo al Vaticano
-
-梵蒂冈给七哥送这啥意思知道吗
-Sabes por qué el Vaticano me regaló esto
-
-梵蒂冈教皇给你送这个袖扣的时候
-Cuando el Papa del Vaticano te regala estos gemelos
-
-就是把你当成大主教级的
-Significa que te trata como un arzobispo
-
-和他平级的才能给你
-Porque estás al mismo nivel que él
-
-你以为啥呢
-Qué crees tu
-
-最后告诉全世界人们
-Finalmente, les digo a todas las personas del mundo
-
-聪明的人民, 智慧的人民
-Gente inteligente y sabia
-
-永远要记住
-Recuerden siempre
-
-珍惜生命, 远离中共
-Aprecien la vida y aléjanse del PCCh
-
-* * *
-
-日期：02/07/2022
-原视频标题：全世界人民，珍惜生命，远离中共
-Personas de todo el mundo, aprecien la vida, aléjense del PCCh
-
-原视频日期：02/05/2022
-原视频网址：**[https://gettr.com/post/psk3ic0daa](https://gettr.com/post/psk3ic0daa)**
-任务编号：KC447（3674）
-视频时间段：0:00-01:09
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场-小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+#  
 
  
 
