@@ -2,36 +2,34 @@
 ---
 
 
-## 有声|中共将联合国对新疆的人权调查混淆为交流合作
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1980460/)
+## CCP荼毒之下——我为什么而活
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1980482/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月8日，本台报道了联合国秘书长古特雷斯，希望中共允许联合国人权高级专员巴舍莱到新疆进行人权调查的期许。但在2月7日中共外交战狼赵立坚在回答外媒记者提问时，故意采用偷换概念的方式，将“调查”改成了“交流与合作”。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide10-4.jpg)
-混淆和偷换概念，是中共处理一些对自己不利的国际问题的惯用伎俩，早在2020年12月，中共就将世界卫生组织赴武汉的病毒溯源调查，强制改成了“合作研究”，并演出了世卫组织抵达武汉后，被组织观看抗疫成就、实地调查草草了事的荒唐闹剧。
+作者：JuvenGuo
+[![](https://express.adobe.com/page/HtZeaxWvNWccw/images/4b186861-cd63-4d19-9852-fdb5ce43dbda.png?asset_id=b9a4f8a0-e53b-47b1-922e-46240807b162&amp;img_etag=%22fb9dc69846242002e809add57b090271%22&amp;size=1024)](https://express.adobe.com/page/HtZeaxWvNWccw/images/4b186861-cd63-4d19-9852-fdb5ce43dbda.png?asset_id=b9a4f8a0-e53b-47b1-922e-46240807b162&amp;img_etag=%22fb9dc69846242002e809add57b090271%22&amp;size=1024)
+CCP荼毒中华大地百年，其毒之深，深入骨髓。
 
-分析人士指出，中共对新疆人权调查概念的混淆，已经表明其做贼心虚，即使本次联合国的调查请求得到允许，也会跟病毒溯源一样得不到明确的结果
+我年轻时刚独立那几年，认为对自己限制最大的因素就是自己还是个人，与周遭环境格格不入。
 
-文字版原文：[中共将联合国对新疆的人权调查混淆为交流合作](https://gnews.org/zh-hans/1978342/)
+女人被当作生育工具，孩子成为懦弱长辈达成目标的工具。女人生而为人，孩子生而为人，却不如一只畜牲，这种情况几乎发生在我身边所有人身上。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+我爹从小就骂我自由主义，不认真读书，不能光宗耀祖，我不知道我那无能的祖先有没有脸面面对在地狱中生存的后代，我活着成为别人的工具，那我活着对我自己有什么意义？身边的兄弟现在都几十岁了，包括我自己，晚上还会做噩梦，做因为没有自由而做的噩梦。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+人生而自由，爆料革命开启了我的新生。原来所有的烦恼都来自于邪恶的CCP！
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+既然上天让我投生在这片土地上、CCP统治的地狱里，我就要发挥出自己微弱的自由之光，也许这就是我的使命。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+在周围的人都失去信仰的环境下， 觉醒者无疑会有极大的痛苦，正道主义的信仰是黑暗中耀眼的明灯。强光下，假骗偷、反人类的CCP无处躲藏。
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+*编辑：【英国伦敦喜庄园编辑部】*
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+*校对：胖丁 | 审核：文明明 | Page：青山*
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
+[![](https://express.adobe.com/page/HtZeaxWvNWccw/images/b7c25957-8b67-4267-b18c-f25d93f5e760.jpg?asset_id=a48ccfb5-5064-4f46-9a66-a67492000fdd&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://express.adobe.com/page/HtZeaxWvNWccw/images/b7c25957-8b67-4267-b18c-f25d93f5e760.jpg?asset_id=a48ccfb5-5064-4f46-9a66-a67492000fdd&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,12 +2,10 @@
 ---
 
 
-## 新中国联邦的三件大事
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1980646/)
+## 冬奥开幕是一场老鼠和狮子的游戏
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1980667/)
 
 台灣寶島農場
-
-
 
  
 
