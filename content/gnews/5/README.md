@@ -2,18 +2,31 @@
 ---
 
 
-## 瑞士Finanzen报道：瑞银无法阻止亿万富翁郭文贵在伦敦提起的法律诉讼
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1981487/)
+## 这次冬奥开幕式就开成了共产党的结束的“闭幕式” (2022-02-06摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1981580/)
 
-翻译：nstar
-![](https://assets.gnews.org/wp-content/uploads/2022/02/f3b44e41ede66cb6e2e426b54cbc5536_w500_h300_cp-scaled.jpeg)图片来源：Shutterstock
-瑞士Finanzen援引**隆伯格通讯社的报道，瑞银无法阻止中国亿万富翁郭文贵在伦敦提起的 5 亿美元诉讼（译者更正：根据郭文贵先生2月9日大直播信息，诉讼金额远大于5亿美元，可达几百亿或更多）。该银行试图以管辖权为由驳回法院案件。但现在伦敦高等法院已决定该法院应负责对此案进行审理**。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-**该银行试图以管辖权为由驳回法院案件。但现在伦敦高等法院已决定应对此案负责，该案应在英国审理。本案原告是中国著名商人郭文贵。郭文贵起诉瑞银敷衍职守向他提供建议。瑞银迫使他借钱购买一家中国经纪公司的股票。该银行随后在股价下跌 45% 的情况下强制出售这些股票，从而抹去了他的投资。**
+来源：郭先生2022-02-06直播08:29:56摘录
 
-原文链接：[https://www.finanzen.ch/nachrichten/aktien/ubs-aktie-dennoch-fester-ubs-kann-klage-von-chinesischem-milliardar-anscheinend-nicht-abwenden-1031177565](https://www.finanzen.ch/nachrichten/aktien/ubs-aktie-dennoch-fester-ubs-kann-klage-von-chinesischem-milliardar-anscheinend-nicht-abwenden-1031177565)
+这帮不要脸的东西！结果是25个国家，谁说25个国家？你给我数一数？真正的国家元首20几个国家，真正的到现场的、有实力的超过五个手指头了吗？这已经不是“冬眠会”了，真的已经不止“冬眠会”这么差了。任何一个有脑子的人都会知道，这次冬奥开幕式就开成了共产党的结束的“闭幕式”。中国人是2008年奥运会所有的成功，一秒之间在那奥运会上全完。你知道冬奥会咱这战友在里边，在冬奥会里面有规定不允许用苹果手机，全用华为手机。咱战友特聪明：“七哥，我给你发信息，为了他们不监控，你知道我用啥招？” 是吧？我随时知道冬奥会的什么情况、筹委会什么情况、运动员到场情况，包括有人专门收集所谓运动员的DNA，还有一个想办法给运动员收集那个那个那个的……这都是咱战友。他说：“七哥，你知道最后发生什么事情？运动员来的，到这来的几乎就没有任何有成就的运动员，” 他说： “但凡有点儿过去的成就都年龄偏大，就是过了黄金年龄的。” 而且他说 “咱们的马桶的尿是直接是集中收，大便集中收，这都是咱战友管的。所以不管你哪个元首去中国，从你开始到你最后走，收集你的尿和屎的、化验的、收集你的DNA的、在房间里吃什么的、有没有被人尿上、拉上的，七哥全在掌握。你觉得我是在吹牛吗？我有必要吹这牛吗？你给我钱吗？新中国联邦人这次可以这么说，主导了整个冬奥会的开幕式。我们很成功地让这些国家的运动员和这些元首们看清了中共、看清了冬奥会，让他们一生不会再跟共产党参加的任何所谓的国际仪式。
 
-校对发布：Shifter
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

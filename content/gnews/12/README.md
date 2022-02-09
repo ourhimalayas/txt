@@ -2,41 +2,103 @@
 ---
 
 
-## 有声|中共国的人口贩卖
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1981367/)
+## 北京冬奥俄罗斯普京团队住的酒店16人确诊感染
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1981436/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-一个年轻的女孩，如同货物一样被贩卖，她辗转经过数个城市，最后，在威逼利诱之下，在中国一个繁华大都市的红灯区一个昏暗肮脏的妓院开始了她的生活——每天接待十几个嫖客。如果拒绝接客，她就会受到黑帮的强暴和暴打，在身体上和心理上，甚至是灵里留下了无法磨灭的伤痕。在这个陌生的地方，每天承受着那些付钱来强暴她，殴打她的陌生人的虐待，她最终只得向残酷的现实低下头，认命于“新生活”。
+[https://gtv.org/video/id=6202ad8f585ecc15d73f18ff](https://gtv.org/video/id=6202ad8f585ecc15d73f18ff)
 
-从这个故事开始，我们再从徐州丰县八个孩子的女人被锁狗链事件看中共国妇女的权益。
+**郭文贵**
+**Miles Guo**
 
-江苏徐州8孩母亲被狗链拴脖24年，官方的回应是：江苏徐州丰县一妇女狗链拴脖24年，并为父子三人生了至少8个孩子，疑似24年前被拐卖女孩。
+他（普京的团队）住华尔道夫酒店
+He (Putin’s team) was staying at the Waldorf Astori Hotel
 
-七哥在大直播中曾经爆料他亲自去看过在河南台前县还有河南范县：“就范县和台前县跟我老家的古城就是一个，大概就是一个大堤之隔，包括那卖媳妇的。现场的买卖女性的就是在地下室的都是裸体的，在麦秸上睡着，拿盖的一盖，他怕她跑啊，都不能穿衣裳，拿脚镣手铐拴上。”
+查查华尔道夫在哪？一会儿叫墨镜发出来
+Where is the Waldorf Astoria? Tell Sun Glasses to map it out later
 
-另有报道发现，丰县有多名妇女被用铁链和鸡鸭栓在一起长达20多年，已经不能正常站立和讲话，精神失常。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/走失.jpg)
-2007年李扬导演的反映中国被拐卖妇女的电影《盲山》被禁。后来七哥也爆料体制内无论说真话说假话都没法去说人口贩卖这个事，只能回避。事实多么触目惊心，多么令人难以平静，这些事不断地击溃人们心中的底线，原来我们所在的这个世界是如此的黑暗。可恨的是警察系统也只服务于中共对人民的残暴统治和维稳，巨资建设的“天眼”系统可以在大城市7分钟内找到外国记者，却找不到被拐卖的人！可悲！可恨！这样的政权还有什么理由继续存在？
+昨天下午1点钟
+At one o’clock yesterday afternoon
 
-《圣经》中包含很多清楚的命令去“行公义”（[弥迦书](https://wd.bible/mic.6.8.cunps)[6:8](https://wd.bible/mic.6.8.cunps)）并且去“学习行善，寻求公平，解救受欺压的，给孤儿伸冤，为寡妇辨屈”（[以赛亚书](https://wd.bible/isa.1.17.cunps)[1:17](https://wd.bible/isa.1.17.cunps)）。这些经文并不是偶尔才出现，而是贯穿《圣经》的一个中心信息。对被欺压的和被虐待的人的关注是一个贯穿始终的主题，深嵌于以色列历史之中。如今启示录和爆料革命的两条线都在行进，解决这些问题的唯一途径就是彻底灭掉大红龙，也就是CCP。
+他六个人染上了病毒
+Six people have infected by the virus
 
-我衷心地祈求耶和华神帮助我们，早日彻底灭掉共产党，还世界和平安宁，阿门。
+普京的团队六个人
+Six members in Putin’s team
 
-文字版原文：[中共国的人口贩卖](https://gnews.org/zh-hans/1977995/)
+是俩保镖、四个陪同的官员
+Two bodyguards and four accompanying officials
 
-音频处理：Fei797
-发稿：Fei797
+然后在六个小时前，也就是在四个小时前
+Then 6 hours ago, it’s about 4 hours ago from now
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+大概确定是十个
+about 10 was confirmed (infected)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+也就是刚刚的咱们直播的一个小时前
+just one hour before our live broadcast
+
+七哥在那得瑟在那唱歌的时候
+while I was showing off and singing
+
+他已经确定是六个
+There is six (people infected with the virus) that has been already confirmed
+
+很不幸的事情在华尔道夫里面已经死了仨人了
+Unfortunately, 3 people died at the Waldorf Astoria
+
+死了仨人了
+Three people died
+
+全部是抽，暴抽而死啊
+All of them convulsed, and died from severe convulsion
+
+但我不确定这仨人到底是普京的人呢还是华尔道夫的什么人，是吧？
+But I’m not sure if these three are Putin’s people or the Waldorf’s, right?
+
+很恐惧，很恐惧！
+It’s horrible, very scared!
+
+这个病很有可能
+This virus is very likely
+
+这个病毒这回像打那个拐弯的子弹一样直接拐回北京城“冬眠会”现场去了。
+This time, this virus just like that turning a corner bullet, is very likely to turn directly back to the scene of the “hibernation meeting” （Winter Olympic）in Beijing
+
+兄弟姐妹们
+Brothers and sisters
+
+我们不希望任何人死亡
+We don’t want anyone die
+
+但是如果说坏人死了, 实在我们也，我们不想鼓掌
+However, if bad guy dies, we would not applaud
+
+但是我们实在也不值得悲伤，是吧？坏人该死
+But they are not worth at all for us to be sad, right? Bad guy should go to hell
+
+Date: 02/04/2022
+原视频标题:
+北京冬奥俄罗斯普京团队住的酒店16人确诊感染
+Sixteen people in the hotel where Russian Putin’s Beijing Olympics team stayed were infected
+
+**原视频链接:** [https://gettr.com/post/psg83b9b15](https://gettr.com/post/psg83b9b15)
+
+原视频日期：2022/03/04
+**原视频链接:** https://gettr.com/post/psg83b9b15
+任务编号：KC448（3672）
+视频时间段 : 0:00-01:26
+
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译: 洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-Jambo
+审片：洛杉矶盘古农场- 银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
