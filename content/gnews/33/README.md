@@ -2,53 +2,26 @@
 ---
 
 
-## 日本三井将发行与黄金挂钩的数字货币
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1978339/)
+## 数百美国华人写信FBI，揭露单伟建为中共高级间谍和洗钱罪犯
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1978460/)
 
-作者：纽约香草山 – 柳是多水土透
+#### 撰稿：彩虹
 
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-10.jpg)图片来源：推特
+2月8日，英文网站PRFree刊登文章，报道几百名美国华人同时致函FBI（美国联邦调查局），揭露太平洋联盟集团（PAG）董事长兼首席执行官单伟建先生为中共高级间谍和洗钱罪犯。
 
+由于中共无视全球领导规范，导致了在世界各个华语社区的羞辱和歧视，甚至发生了仇恨犯罪的现象。随着中共间谍数量在美国的不断增加，对讲华语人的仇恨情绪和种族主义将会成为新的现象。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+报道指出，2009年后，由于中共对经济优势和政治影响的渴求，中共派出了越来越多的间谍到美国进行活动。FBI局长克里斯托弗·雷（Christopher Wray）在加利福尼亚州西米谷的罗纳德·里根总统图书馆和博物馆（Ronald Reagan Presidential Library and Museum）发表主题演讲时说：“在联邦调查局，我们大约每天都会有两起针对中共的新的反间谍案件。世界上没有其他国家比中共对我们的意识、创新和经济安全构成更广泛的威胁。”
 
+文章说，2022年2月8日，在美国庆祝中国农历新年假期期间，数百名海外华人对他们的声誉和安全表示严重关切。他们同时写信给联邦调查局，揭露太平洋联盟集团（PAG）董事长兼首席执行官单伟建先生是中共的高级间谍。越来越多的海外华人想说出中国人不等于中共的真相。中共的高级间谍单伟建不能代表生活在美国的数百万热爱自由的华人。
 
+这些勇敢的华人在信中都督促联邦调查局调查单伟建和他的儿子单博，因为他们父子犯下了经济间谍、知识产权盗窃、金融欺诈、移民欺诈和洗钱活动犯罪行为，并追究单伟建从美国养老基金中窃取资金和通过中共的“千人计划”渗透美国的责任。
 
-据国外媒体2月4日的消息，日本主要财团之一的三井物产株式会社，预计将在2月份发行与金价挂钩的数字货币ZPG，对零售投资者开放。其对应的黄金将由三井从伦敦金属交易所购入，一个ZPG等同于一克黄金。币价将由三井住友银行提供担保，对应以日元计价的黄金。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide15.jpg)
-ZPG大概是日本第一个与黄金挂钩的代币，但在全球范围内不是。ZPG最初会在三井交易所发行出售。
+**新闻来源**
 
-另外，三井还会开发使用此币的手机APP和其他交易系统，而买卖ZPG的客户都会被要求
-
-进行KYC审核，该币的交易则会在私人区块链上进行。
-
-该媒体还透露，三井住友银行是一个70多家银行产业联合体的成员，该联合体正在合作开发由存款担保的数字化日元。
-
-参考信息：
-1. [Mitsui & Co. to issue cryptocurrency linked to gold prices](https://asia.nikkei.com/Spotlight/Cryptocurrencies/Mitsui-Co.-to-issue-cryptocurrency-linked-to-gold-prices)
-2. Japanese Trading House Mitsui to Launch Gold-Linked Cryptocurrency: Report
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-
-总编/编辑：DM
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+[Weijian Shan, the Chairman, and CEO of Pacific Alliance Group (PAG), Is Communist China’s High- ranking Spy & Money-laundering Criminal](https://www.prfree.org/@astralsoul/weijian-shan-the-chairman-and-ceo-of-pacific-alliance-group-pag-is-communist-china-s-high-ranking-spy-money-laundering-criminal-b7kx64ep7kry)
 
  
 

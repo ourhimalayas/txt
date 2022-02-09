@@ -2,35 +2,132 @@
 ---
 
 
-## 深圳楼市：市场变冷有投资者一年损失20%
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1978669/)
+## 封锁对公共卫生“几乎没有”好处的
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1978717/)
 
-**撰稿：日本东京方舟农场 子辰**
+[https://gtv.org/video/id=620265f1585ecc15d73efa13](https://gtv.org/video/id=620265f1585ecc15d73efa13)
 
-据大纪元2月9日报道，深圳楼市自去年“调控”以来，楼市变冷，更有投资者被套，一年损失达20%。
+**Bill Maher
+比尔·马赫**
 
-深圳是中共国改革开发经济特区，是中共国三十年来最具经济活力的区域。深圳作为中共国经济特区，吸引大量外来人口，无论是中共国内的区域还是一街之隔的香港以及其他国家和地区，每年都有大量的外来人口在深圳工作，因此，深圳的房地产市场需求很大且一直受投资者亲睐。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片-1-2-1.jpeg)（图片来自网络）
-但是，深圳当局自从去年第一个在大陆推出了二手房指导价以后，又下令银行按照指导价格发放房贷，导致购房者首付大幅增加，再加上其它限制购房的“调控”政策，令深圳的房地产市场迅速变冷，尤其是二手房市场。
+It’s time to do what a growing list of countries have done and announce
+是时候做越来越多的国家已经做过并宣布的事情了
 
-据深圳房地产信息网统计数据显示，2021年深圳共成交40,699套二手房住宅，同比2020年减少57.3%，创下近15年来新低，部分投资房地产的投资者也被下滑的市场套牢。
+we’re going back to something more like normal
+我们将回到更正常的状态
 
-据《中国证券报》2月9日报导，吴女士在深圳投资楼市，她在2020年以接近470万人民币的价格买下了一套32平方米的小户型学区房。她说，最高峰的时候，同户型成交520万元，距离她买下的时间仅两个月。一年过去了，吴女士发现自己被套牢。她说，现在的价格跟我买的时候相比跌了20%，而中介经理说，已经好几个月没成交了，现在即使挂400万元也无人问津。
+beginning with recognizing that what we’re doing to kids is unnecessary
+开始要认识到我们对孩子所做的事情是不必要的
 
-新年长假期间，据深圳市住建局房地产信息平台公示的商品房成交数据显示，期间深圳新房与二手房成交量分别为0套与1套。
+and horrible and I don’t even like kids
+和太可怕了，而且我甚至不喜欢孩子
 
-此现象在大陆二、三、四线城市也有体现。
+making kids who have a COVID survivability rate of 99.98% mascot like bandits
+让COVID存活率为99.98%的孩子像土匪一样的吉祥物
 
-据《香港经济日报》8日消息，苏州在新年期间新房成交94套，其它城市均较去年呈现不同幅度的回落，其中，宁波、济南零成交，大连按年跌幅超八成。
+Unfortunately, the thing that’s getting stolen is their education
+不幸的是，被盗走的东西是他们的教育
 
-此外，据易居研究院智库中心从新年期间的数据看，部分城市数据相比去年同期出现了比较明显的下跌，说明新年期间楼市并没有回暖迹象。主要原因是当前购房市场需求出现了大量的萎缩，在低迷的经济环境下，需求端的入市的意愿非常弱，可以预见的是，随着中共国冬奥会的结束，经济假象被进一步揭穿，房地产市场的回暖变得遥遥无期。
+their sanity, and their social skills
+他们的理智和他们的社交技巧
 
-参考链接：
-[https://www.epochtimes.com/b5/22/2/9/n13564543.htm](https://www.epochtimes.com/b5/22/2/9/n13564543.htm)
+I study this week from a professor at Johns Hopkins concluded
+我本周从约翰霍普金斯大学的一位教授那里学习得出结论
 
-素材采编：子辰
-编辑：青城道姑
-发布：文曦
+that the lockdowns we all suffered through had little impact in reducing COVID deaths
+我们都经历过的封锁对减少COVID死亡人数几乎没有影响
+
+Okay, that’s kind of a big one to get wrong
+好吧，这是一个很大的错误
+
+Last July, President Biden said you’re not going to get COVID If you have these vaccinations
+去年7月，拜登总统说如果你接种了这些疫苗，你就不会感染新冠病毒
+
+Well, I already knew that was wrong then and now we all do
+好吧，我当时就知道那是错的，现在我们都知道了
+
+The former Director of the CDC Robert Redfield believes COVID originated in the lab
+疾控中心前主任罗伯特·雷德菲尔德认为新冠病毒起源于实验室
+
+and now our intelligence agencies agree, it might have
+现在我们的情报机构同意，这是可能的理论
+
+but for months on social media, it was banned to even discuss it
+但在社交媒体上几个月来，它甚至被禁止讨论
+
+Look, I’m not saying the medical establishment isn’t trying to figure shit out
+听着，我并不是说医疗机构不想解决问题
+
+or that they’re corrupt, although there is some of that
+或者他们是腐败的，尽管其中有一些
+
+but but how about just wrong? Wrong the lot
+但是，错了怎么办？ 错了很多
+
+wrong about HIV, wrong about lockdowns, wrong about kids
+关于艾滋病毒的错误，关于封锁的错误，关于孩子的错误
+
+wrong about how you couldn’t get it if you were vaccinated
+关于你怎么不接种它是错误的如果你接种了疫苗
+
+Remember washing our packages and there’s never been any research showing
+记得清洗我们的包裹，而且从来没有任何研究表明
+
+that outdoor transmission is likely or common yet
+室外传播可能或普遍存在
+
+LA County says we’re still supposed to mask up for big outdoor events
+洛杉矶县说我们仍然应该为大型户外活动戴着口罩
+
+like we’ll be at the Super Bowl
+就像我们将在超级碗上
+
+Well, suppose to
+好吧，本应该戴口罩
+
+it’s all fade watching athletes mix it up on the court
+看着运动员在球场上混合起来，一切都消失了
+
+then mask on the sideline
+然后戴着口罩坐在一边
+
+not being able to touch a menu but watching them touch my food
+无法触摸菜单但是看着他们触摸我的食物
+
+Mask was at dinner while sitting but not standing
+坐着需要戴口罩，但站着不要
+
+And by the way, if Applebee’s really cared about our health
+顺便说一句，如果Applebee真的关心我们的健康
+
+they would make us cover our mouths after the food arrived
+他们会让我们在食物到达后遮住我们的嘴
+
+I’m just asking how much wrong do you get to be
+我只是想问，你能错到什么程度
+
+while still holding the default setting for people who represent the science
+同时仍然为代表科学的人保持默认的设置
+
+* * *
+
+Date:02/06/2022
+原视频标题: Lockdowns had ‘little to no’ benefit on public health
+封锁对公共卫生“几乎没有”好处的
+原视频日期：2022/02/06
+原视频链接:[** https://twitter.com/janjekielek/status/1490036058595205129?s=24**](https://twitter.com/janjekielek/status/1490036058595205129?s=24)
+任务编号：KE387（3684）
+视频时间段 : 0:00-2:42
+英听校： 洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-青梅煮酒
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

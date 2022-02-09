@@ -2,49 +2,103 @@
 ---
 
 
-## 中共深夜通告“八孩女”事件 墙内舆论大翻车
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1978340/)
+## 全世界人民，珍惜生命，远离中共
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1978474/)
 
-作者：纽约香草山教育部 – Noemi
+[https://gtv.org/video/id=620264a9585ecc15d73ef97b](https://gtv.org/video/id=620264a9585ecc15d73ef97b)
 
+像人一样活着
+Vive como una persona
 
+你只要不像畜生一样活着
+Pero mientras tanto no vivas como una bestia
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+还有一个, 你想活下去
+Y hay otro, si quieres sobrevivir
 
+远离中共, 珍惜生命
+Aléjate del PCCh, aprecia la vida
 
+远离中共, 不仅是演艺圈
+Aléjate del PCCh no es solamente del mundo de espectáculo
 
-2月7日深夜，中共徐州警方就“八孩女被锁狗链24年”事件再发官方通告，不料却引发墙内的舆论海啸，评论区内彻底大翻车。
+不仅是企业家也不仅是搞媒的
+No sólo de los empresarios, medios de comunicación
 
-官方通告声称，被锁女子的真实身份系一云南孤女，亲生父母早已亡故。在现身徐州当地之前，她就已经精神失常，而其失踪原因只是在远赴江苏治病途中与熟人走失。该通告还称，该女子所生育八个孩子的亲生父亲均为董某民，不存在父子三人共用的说法。除此，其牙齿全部脱落仅因牙周炎。与此同时，该通告也彻底否定了该女子是网络上盛传的被拐女学生李莹的说法。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide11-3.jpg)
-该消息一出，立刻引发了墙内网友们的纷纷质疑。不到一夜，微博转发就超过了11.7万次，评论超过5.5万。有网友指出，警方通告不仅与村民此前的亲述内容完全相悖，也未能公布任何与户籍及DNA鉴定相关的资料证明，从逻辑上也是漏洞百出，简直连标点符号都是谎言。也有知情人士称，在北京冬奥期间，媒体曝光这样的新闻已经引发了中共党魁习近平的震怒，但中共当局只会继续用谎言塞责，这件事永远不会有真相。还有墙内网友一语双关地悲叹道，你以为我们都睡着了，其实我们都还醒着。
+不管你多大岁数
+No importa a qué edad tengas
 
-参考信息：
-[【“丰县生育八孩女子”调查进展情况】1月28日以来，“丰县生育八孩女子”引发社会广泛关注。针对此事暴露出的问题和网友关切，徐州市委市政府及丰县县委县政府分别成立联合调查组，组织力量走访基层派出所、镇村干部群众，调阅档案资料，咨询相关法律专家。](https://weibo.com/xzfabu)
-2. [【秦鹏直播】徐州半夜通告翻车 胡编洗地露马脚](https://www.epochtimes.com/gb/22/2/7/n13561672.htm)
+我就今天奉劝所有的同胞
+Hoy sugiero a todos los compatriotas
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+包括全世界的人
+Incluyendo a todas las personas del mundo
 
-总编/编辑：飞虹
-校对/发稿：为真不破20
+有点良知的
+Que tengan un poco de conciencia
 
-**更多资讯，更多关注**
+看一看所有和中国共产党打交道的下场
+Vean el destino de todo aquello que han tenido tratos con el PCCh
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+马云, 赵本山, 宋祖英
+Jack Ma, Zhao Benshan, Song Zuying
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+香港, 台湾的歌星
+Los cantantes de Hong Kong y Taiwán
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+以及美国的政要, 欧洲的政要
+Dignatarios estadounidenses y europeos
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+欧洲的主席, 包括这梵蒂冈
+Presidentes de Europa, incluyendo al Vaticano
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+梵蒂冈给七哥送这啥意思知道吗
+Sabes por qué el Vaticano me regaló esto
 
+梵蒂冈教皇给你送这个袖扣的时候
+Cuando el Papa del Vaticano te regala estos gemelos
 
+就是把你当成大主教级的
+Significa que te trata como un arzobispo
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+和他平级的才能给你
+Porque estás al mismo nivel que él
 
+你以为啥呢
+Qué crees tu
 
+最后告诉全世界人们
+Finalmente, les digo a todas las personas del mundo
+
+聪明的人民, 智慧的人民
+Gente inteligente y sabia
+
+永远要记住
+Recuerden siempre
+
+珍惜生命, 远离中共
+Aprecien la vida y aléjanse del PCCh
+
+* * *
+
+日期：02/07/2022
+原视频标题：全世界人民，珍惜生命，远离中共
+Personas de todo el mundo, aprecien la vida, aléjense del PCCh
+
+原视频日期：02/05/2022
+原视频网址：**[https://gettr.com/post/psk3ic0daa](https://gettr.com/post/psk3ic0daa)**
+任务编号：KC447（3674）
+视频时间段：0:00-01:09
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场-小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

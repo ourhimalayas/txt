@@ -2,30 +2,39 @@
 ---
 
 
-## 共和党议员提出法案，恢复因拒绝接种中共病毒疫苗而被开除的军人
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1978697/)
+## 我们的政府已被世界经济论坛接管
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1978763/)
 
-#### 撰稿：彩虹
+据《COVID世界新闻网》2022 年 2 月 6 日发布：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3689.png)图片来自原文
+一群国际律师和一名法官正在以大陪审团诉讼程序为蓝本进行刑事调查，以便向公众展示迄今为止针对“领导者、组织者、煽动者和同谋”的 COVID-19 危害人类罪的所有可用证据，他们教唆或积极参与制定和执行流行病共同计划。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-2-6.jpg)图片来源：政客
-2月8日，《新闻极限》报道，根据国会议员办公室的一份新闻稿，共和党德州议员奇普·罗伊（Chip Roy）于周二提出一项法案，将恢复因拒绝接种中共病毒（COVID-19）疫苗而被开除的军人，并将确保他们首先不会因未接种中共病毒疫苗而被解雇。
+Reiner Fuellmich 律师向人民舆论法院的大陪审团程序作了开幕词。国际律师和专家的指控是，世界各国政府已受到腐败和犯罪权力结构的控制影响。
 
-罗伊说: “由于拜登总统的反科学的强制接种（中共病毒）疫苗，到目前为止，已有数百名准备战斗的军人脱离了武装部队。更糟糕的是，国防部（DOD）拒绝了许多医疗和宗教方面的豁免申请，这导致迫使军人要么选择他们的信仰，要么选择生计。”
+据律师称，世界经济论坛、世界卫生组织、国际货币基金组织和黑石等组织与世界各国政府勾结，策划了一场他们多年来一直在计划的大流行病。 然后，他们通过对事实的虚假陈述和社会工程心理操作故意制造了大规模恐慌，他们通过主流媒体传达了这些信息。
 
-罗伊称，拜登的军队强制接种中共病毒疫苗任务是“（对）权力的渴望”，数以百计的美国军人正因此而被迫离开军队，带走了“多年的学科专长、无私奉献的职业生涯和终身的军事梦想”。
+这场大规模恐慌的目的是说服民众同意所谓的“疫苗接种”，期间这些疫苗已被证明既不有效也不安全，而且极其危险，甚至是致命的。
 
-他认为：“这在战略上是愚蠢的，极不符合美国国情，也是完全不可接受的。我提出了《恢复军人法》（Service Restoration Act），以确保我们武装部队的勇敢男女不会因为这个错误的强制令而被解雇。”
+这些危害人类罪对世界人口造成的经济、社会和健康损害可以用数百万亿美元来衡量。
 
-文章报道，这个拟议的立法还禁止使用联邦资金要求服役人员接种中共病毒（COVID-19）疫苗，要求国防部长恢复被解雇的服役人员的原职，要求国防部长将服役人员脱离军队的时间计入他们的退休福利，并要求国防部长从服役人员的记录中删除任何因拒绝接种（中共病毒）疫苗而引起的负面行为（记录）。
+通过全面展示我们所面临的情况，包括地缘政治和历史背景——这些程序旨在让人们意识到当前被劫持的系统及其机构的实际崩溃，以及人们自己收回他们的主权的必要性。
 
-根据CBS新闻去年12月份的报道，五角大楼去年强制要求所有军人接种中共病毒疫苗，包括国民警卫队和后备队。国防部长劳埃德·奥斯汀（Lloyd Austin）曾表示，该疫苗对于维持一支随时准备保卫国家的健康军队至关重要。并且，据报道，五角大楼还在考虑将中共病毒加强针作为服役人员必须接种的要求。
+2022 年 2 月 5 日，Reiner Fuellmich 和 Viviane Fischer 律师宣布了一项大陪审团调查，涉及以 COVID-19 大流行为幌子犯下的危害人类罪。
 
-该法案的共同提案人还包括另外7名众议员，分别是马乔丽·泰勒·格林（Marjorie Taylor Green），迈克尔·克劳德（Michael Cloud）,比尔·波西（Bill Posey），马特·罗森代尔（Matt Rosendale），路易·戈默特（Louie Gohmert），范·泰勒（Van Taylor）以及鲍勃·古德（Bob Good）。
+您可以在原文网页中观看 Fuellmich 的完整开幕词，并查看整个 1.5 小时的首​​日开幕式。
 
-**新闻来源**
+原文连接：
+[**https://thecovidworld.com/dr-reiner-fuellmich-presents-opening-statements-at-grand-jury-our-governments-have-been-taken-over-by-the-world-economic-forum/**](https://thecovidworld.com/dr-reiner-fuellmich-presents-opening-statements-at-grand-jury-our-governments-have-been-taken-over-by-the-world-economic-forum/)
 
-[Rep. Chip Roy Introduces Bill to Reinstate Fired Unvaccinated Troops](https://www.newsmax.com/politics/roy-reinstate-unvaccinated-military/2022/02/08/id/1056072/)
+翻译：洛杉矶盘古农场- 郭友(文苏)
+校对：洛杉矶盘古农场 – 轰炸机
+评论：洛杉矶盘古农场 – 轰炸机
+编辑：洛杉矶盘古农场 – 柯镇恶
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
