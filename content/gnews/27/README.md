@@ -2,32 +2,25 @@
 ---
 
 
-## 谁才是抗日战争的真正主力
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1980394/)
+## 有声|中共在冬奥期间收集运动员基因信息
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1980399/)
 
-作者：纽约香草山农场-马克文、朱丽叶
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1930年代至1940年代，第二次世界大战东亚战事的主要部分即为中华民国与大日本帝国之间发生的战争，也就是为后人所熟知的“抗日战争”。
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+美国前国务卿蓬佩奥2月6日在接受福克斯新闻玛丽亚采访时表示，他之所以呼吁抵制北京冬奥会，不是为了让运动员们失去竞技的机会，而是为所有去参加中共冬奥会的运动员们感到担忧。蓬佩奥称，他的这个担忧来自三个方面。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide12.jpeg)
+第一，在美国看来奥运会只是一项活动，而中共却将奥运视作一种宣传工具。并且中共想要利用举办奥运来给自己的人权劣迹洗白。
 
-据日本公布的二战在华阵亡数据显示，抗日战争期间，日军共有超过31万人在与国民党军交战时死亡，仅有851日死于中共军队的手中。
+第二，到达北京的运动员面临手机被监控，以及自由言论带来的风险。
 
-另据中华民国国防部的统计数据表明，截至1945年6月，国民党军中少将以上的高级将领在战争中一共牺牲了115人，国军总损失人数达到400多万，死亡约132万人以上，其中海军几乎全军覆没。而根据中共早先的记载，中共抗日部队仅有左权一位将军牺牲，其余总计人员损失约58万人，死亡约16万人。
+第三，蓬佩奥国务卿最担心的除了数据信息，中共还将收集运动员们的DNA信息，并且会将这些信息交给中共军方数据库储存多年。 同一天的文贵大直播中，郭先生也爆料称，参加冬奥会运动员们的大小便甚至都将被收集。中共之所以收集运动员们的基因，就是因为中共根深蒂固的人种崇拜、基因崇拜，并据此给全世界的人类划定阶级。甚至认为用这些基因跟中共一起，交配出所谓更优质的人种就能变成巨大的财富。而这些都是因为中共本身就是一个种族主义、阶级主义的邪恶政权。
 
-通过对二者数据的分析，国军在抗日战争中的伤亡总数达到共军的5.5倍，死亡人数则超过共军的7倍有余。
+文字版原文：[中共在冬奥期间收集运动员基因信息](https://gnews.org/zh-hans/1976083/)
 
-鉴于中共长期以来对历史的篡改，2015年8月28日，中华民国国防部在一份声明中强调，八年抗战是由中华民国政府主导，在蒋介石委员长的领导下，全国军民浴血奋战的成果，其历史真相绝不能以任何方式被扭曲与篡改。
+音频处理：Fei797
+发稿：Fei797
 
-参考链接：
-1.[共军抗战毙敌851人](https://zh.wikipedia.org/wiki/共军抗战毙敌851人)
-2.[国民党抗战死了多少人](http://www.siwapu.com/junshi/25179.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
-
-总编：Jack Li文阳
-编辑：Jack Li文阳
-校正/发稿：谐趣园
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -36,6 +29,8 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

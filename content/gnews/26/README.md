@@ -2,34 +2,37 @@
 ---
 
 
-## 有声|中共在冬奥期间收集运动员基因信息
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1980399/)
+## 有声|郭文贵先生谈家庭教育
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1980431/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-美国前国务卿蓬佩奥2月6日在接受福克斯新闻玛丽亚采访时表示，他之所以呼吁抵制北京冬奥会，不是为了让运动员们失去竞技的机会，而是为所有去参加中共冬奥会的运动员们感到担忧。蓬佩奥称，他的这个担忧来自三个方面。
-
-第一，在美国看来奥运会只是一项活动，而中共却将奥运视作一种宣传工具。并且中共想要利用举办奥运来给自己的人权劣迹洗白。
-
-第二，到达北京的运动员面临手机被监控，以及自由言论带来的风险。
-
-第三，蓬佩奥国务卿最担心的除了数据信息，中共还将收集运动员们的DNA信息，并且会将这些信息交给中共军方数据库储存多年。 同一天的文贵大直播中，郭先生也爆料称，参加冬奥会运动员们的大小便甚至都将被收集。中共之所以收集运动员们的基因，就是因为中共根深蒂固的人种崇拜、基因崇拜，并据此给全世界的人类划定阶级。甚至认为用这些基因跟中共一起，交配出所谓更优质的人种就能变成巨大的财富。而这些都是因为中共本身就是一个种族主义、阶级主义的邪恶政权。
-
-文字版原文：[中共在冬奥期间收集运动员基因信息](https://gnews.org/zh-hans/1976083/)
-
-音频处理：Fei797
-发稿：Fei797
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+配音：香草山佛教部 – 李傻
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生在2月4日大直播中与战友们分享家庭教育时，有以下三个观点：
 
+1.孩子不要干涉父母的感情生活。孩子是父母结合以后出生的，在此之前，孩子并不知道父母感情的点滴，不能因为血缘关系而干涉父母。相应的是父母一代的恩怨也不应强加于孩子，并且孩子想跟谁交朋友，要尊重孩子自己的意愿。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-5.jpg)
+2.孩子绝对不可以撒谎。放眼整个社会，撒谎的人都不是什么好人，更加不能让这种恶习蔓延至家庭生活中来。家人之间如果没有信任是很非常可怕的事情。
+
+3.父母要尊重孩子。给孩子自由，让孩子独立，成年以后不干涉孩子的感情生活，爱她所爱。孩子孝顺父母的前提一定是父母给予的充分尊重。郭先生最后强调更重要的是要互相尊重，给双方自由。孩子开心，父母也快乐。
+
+文字版原文：[郭文贵先生谈家庭教育](https://gnews.org/zh-hans/1972004/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
