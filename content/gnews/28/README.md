@@ -2,48 +2,30 @@
 ---
 
 
-## 抗议政府不作为，新州护士将发起全行业大罢工
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1979033/)
+## 2022/02/08 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1979099/)
 
-#### **了解澳洲时事焦点，尽在雅典娜【聚焦澳洲】**
+1. 2月7日，河南信阳。因中共政府禁止百姓放爆竹，网曝地方政府派人到村民家翻箱倒柜搜是否有烟花爆竹。
+2. 中共国医院总是人满为患，医疗产业怎么就成为了中共政府拉动经济消费的支柱产业？
+3. 2月7日，河南洛阳。春节后上班第一天，记者随机采访洛阳某机关单位，多岗位无人值守，工作人员玩手机、睡觉。
+4. 2月7日，湖北荆州。由于新一波持续降温下雪，多列火车晚点延误。大量出行旅客被困火车站。
+5. 2月7日，春节返程高峰加雨雪天气，高速公路出行也是极其拥堵。几千辆车被困湖南临湘高速一夜无人救援。
+6. 几小时车程的距离，因为严重拥堵往往需要花上几十个小时才能到达。
+7. 2月3日，广西百色。留守在家的孩子一早起来得知父母已外出工作，站在路口大声嘶吼呼唤父母。
+8. 2月4日，民警路口设卡检查游客手机中国家反诈中心APP是否下载，遭男子质疑。
+9. 2月5日，福建长泰一男子骑行途中突然抽搐倒地。
 
-翻译/编辑：文泓
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/81.png)图片来源：AU.Newschant.com
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-当地时间2月9日，据天空新闻报道，新南威尔士州护士和助产士协会（NSWNMA）表示，由于对当前人员短缺、工资水平和工作条件的不满，政府让他们“别无选择”，只能投票支持在全州范围内举行罢工。
+编辑：【英国伦敦喜庄园编辑部】
 
-在这次奥密克戎变种病毒肆虐浪潮中，新州公立医院护士已达到可承受的极限，即将举行全州范围的罢工。
-
-NSWNMA将于2月15日开会投票决定是否采取行业行动。如果大多数州分支机构投票支持该行动，则将在近十年来首次在全州范围内举行长达24小时的罢工。
-
-NSWNMA秘书长布雷特·霍姆斯表示，作出这一决定并非易事，但新州政府“除了强迫我们听取他们的意见外，不给我们任何选择”。
-
-他说：“我们不建议轻易采取整个行业联合行动，尤其是在大流行期间。但是，当我们已经陷入危机并且失去了数千名护士时，当前的现状难以为继，我们也无法恢复到新冠疫情之前的人员配备水平。”
-
-霍姆斯先生呼吁，新州政府承诺每个班次配备护士与患者的比例，以及公平的薪酬和新冠疫情津贴。
-
-“随着加班成为常态，员工精疲力竭得不到休息，不断被工作短信骚扰，告诉你有空缺的班次必须填补（加班），”他说道。
-
-“我们的公共卫生系统每年都承受着越来越大的压力，一直靠护士和助产士硬撑着。现在，依然期望他们应付政府‘放任自流’战略所带来的准备不足的后果。”
-
-“然而，由佩罗特州长领导的新州政府拒绝听取我们的呼吁，以及全州值得信赖的专业卫生人员的呼吁。因此，**政府没有给我们其他选择，只能强迫我们让他们倾听并紧急出手解决这场危机。****”**
-
-皇家阿尔弗雷德王子医院——在德尔塔和奥密克戎疫情期间是该州压力最大的医院之一，目前正在考虑进行24小时罢工。
-
-韦斯特米德和坎伯兰的医院预计罢工长达12小时，而利物浦和布莱克敦医院可能采取长达8小时的罢工。
-
-新闻链接：[New South Wales nurses set to strike for the first time in almost a decade as staff reach breaking point over conditions, shortages | Sky News Australia](https://www.skynews.com.au/australia-news/new-south-wales-nurses-set-to-strike-for-the-first-time-in-almost-a-decade-as-staff-reach-breaking-point-over-conditions-shortages/news-story/d008793674fa62f65195367dc874fe36)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

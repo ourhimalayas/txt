@@ -2,24 +2,28 @@
 ---
 
 
-## 秘翻在线：比特币不是非法所得的“避风港”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1979347/)
+## 秘翻在线：强生暂停中共病毒疫苗生产
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1979525/)
 
-撰稿：葛大饼
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-09-203353.jpg)图片来源： 世界经济论坛
-根据2022年2月9日凤凰报道， 美国司法部8日宣布起获价值约36亿美元的失窃比特币，现年34岁的伊利亚·“杜奇”·利希滕施泰因和他现年31岁的妻子希瑟·摩根因涉嫌洗白赃款，面临洗钱和诈骗罪名指控。
+**撰稿：明澈**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-09-210351.jpg)图片来源：路透社
+综合媒体2月9日报道，周二，强生公司已暂停旗下一家生产中共病毒（Covid-19）疫苗的关键工厂。
 
-美国司法部副部长莉萨·莫纳科说，** **比特币不是非法所得的“避风港”，执法人员会对赃款追查到底。
+《法兰西24》在报道中指出，据知情人士透露，该工厂位于荷兰莱顿市，于去年年底就已经停止生产中共病毒疫苗。《纽约时报》称这可能会使强生公司的疫苗数量减少几亿剂。
 
-新闻称这笔赃款涉及2016年一起比特币失窃案。当年，虚拟货币交易平台比特币交易所系统遭一名黑客袭击，失窃比特币当时市值7100万美元，如今已超过45亿美元。 据调查当年比特币失窃案件发生后，一名黑客发起2000多起未经授权的比特币交易，将近12万枚比特币转账至利希滕施泰因控制的一个虚拟货币账户。接下来5年内，利希滕施泰因和摩根利用多个账户、使用多种手段洗白约2.5万枚比特币，转换为其他虚拟货币。为隐藏转账路径，他们还利用暗网平台交易。
+强生公司一位发言人回应表示，强生目前仍有数百万剂量的中共病毒疫苗库存，公司将继续履行与中共病毒疫苗设施及非洲联盟有关的合同义务。但并未否认或证实该暂停生产中共病毒疫苗的报道，仅表示该工厂仍在履行交货承诺。
 
-此次缉获发生在美国司法部成立国家加密货币执法小组4个月后。
+据悉，中共病毒疫苗设施是由疫苗联盟GAVI领导全球风险分担机制，该机制将集中采购分配中共病毒疫苗，以此作为获取推进中共病毒疫苗进程的支柱。由于强生公司疫苗不需要低温保存运输，且该疫苗在疫情初期宣传“单次接种”，故而该公司的中共病毒疫苗在发展中国家非常受欢迎。
 
-美国将是数字货币的最终规则制定者，世界各国政府也无法再忽视数字货币的存在，相应的管理法规也陆续出台*，*比特币就是少数人用来洗钱的工具！比特币能被盗，说明它并不安全！郭文贵先生曾爆料， 比特币是6%的人拥有94%的量， 70%的比特币是共产党国际控制的，比特币没有跟黄金挂钩，不能实际支付，不稳定，也没有中心化的负责人。比特币及其同类将消失，喜币将成为未来！
+此外，还有报道指出强生公司预计中共病毒疫苗在2022年的销售额将达到30-35亿美元，而辉瑞公司同期预计销售额将达到320亿美金。
 
-**[新闻来源](https://finance.ifeng.com/c/8DUhD3MVJc4)**
+**新闻链接：**
 
-#  
+[https://www.france24.com/en/live-news/20220208-johnson-johnson-temporarily-halts-covid-19-vaccine-output-report](https://www.france24.com/en/live-news/20220208-johnson-johnson-temporarily-halts-covid-19-vaccine-output-report)
+
+[https://www.gavi.org/covax-facility](https://www.gavi.org/covax-facility)
+
+[https://www.republicworld.com/world-news/rest-of-the-world-news/johnson-and-johnson-temporarily-halts-production-of-covid-19-vaccine-report-articleshow.html](https://www.republicworld.com/world-news/rest-of-the-world-news/johnson-and-johnson-temporarily-halts-production-of-covid-19-vaccine-report-articleshow.html)
 
  
 
