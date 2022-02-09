@@ -15,98 +15,98 @@
 
 ---
 
-### [沼泽地，世界游戏的定义者](/content/gnews/1/README.md)
+### [持续的加拿大自由卡车运动正在逐渐帮助全球民众的觉醒](/content/gnews/1/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [沼泽地，世界游戏的定义者](/content/gnews/2/README.md)
  ` G-NEWS TAIWAN`
 
-### [世界级的高利贷公司](/content/gnews/2/README.md)
+### [世界级的高利贷公司](/content/gnews/3/README.md)
  ` G-NEWS TAIWAN`
 
-### [加拿大卡车司机反疫苗运动背后的中共渗透警讯](/content/gnews/3/README.md)
+### [加拿大卡车司机反疫苗运动背后的中共渗透警讯](/content/gnews/4/README.md)
  ` G-NEWS TAIWAN`
 
-### [冬奥开幕是一场老鼠和狮子的游戏](/content/gnews/4/README.md)
+### [冬奥开幕是一场老鼠和狮子的游戏](/content/gnews/5/README.md)
  ` G-NEWS TAIWAN`
 
-### [谈古论今 | 新冠病毒生物战中我们应取的政治态度](/content/gnews/5/README.md)
+### [谈古论今 | 新冠病毒生物战中我们应取的政治态度](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新中国联邦的三件大事](/content/gnews/6/README.md)
+### [新中国联邦的三件大事](/content/gnews/7/README.md)
  ` G-NEWS TAIWAN`
 
-### [冬奥现上演的剧目，可说了无新意](/content/gnews/7/README.md)
+### [冬奥现上演的剧目，可说了无新意](/content/gnews/8/README.md)
  ` G-NEWS TAIWAN`
 
-### [樱花深度报道│冬奥会参与者警告，在中国噩梦般的间谍装置无处不在，摄像头检测情绪和电话数据被盗（下）](/content/gnews/8/README.md)
+### [樱花深度报道│冬奥会参与者警告，在中国噩梦般的间谍装置无处不在，摄像头检测情绪和电话数据被盗（下）](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花深度报道│冬奥会参与者警告，在中国噩梦般的间谍装置无处不在，摄像头检测情绪和电话数据被盗（中）](/content/gnews/9/README.md)
+### [樱花深度报道│冬奥会参与者警告，在中国噩梦般的间谍装置无处不在，摄像头检测情绪和电话数据被盗（中）](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [未接种疫苗是正确的决定](/content/gnews/10/README.md)
+### [瑞银在文贵先生面前败下阵来](/content/gnews/11/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [未接种疫苗是正确的决定](/content/gnews/12/README.md)
  ` G-NEWS TAIWAN`
 
-### [新中国联邦起诉UBS瑞士银行在伦敦正式立案](/content/gnews/11/README.md)
+### [新中国联邦起诉UBS瑞士银行在伦敦正式立案](/content/gnews/13/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [樱花深度报道│冬奥会参与者警告，在中国噩梦般的间谍装置无处不在，摄像头检测情绪和电话数据被盗（上）](/content/gnews/12/README.md)
+### [樱花深度报道│冬奥会参与者警告，在中国噩梦般的间谍装置无处不在，摄像头检测情绪和电话数据被盗（上）](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文贵大直播要点（2022年2月9日）](/content/gnews/13/README.md)
+### [文贵大直播要点（2022年2月9日）](/content/gnews/15/README.md)
  ` 波士顿五月花农场`
 
-### [冬奥将如何落幕](/content/gnews/14/README.md)
+### [冬奥将如何落幕](/content/gnews/16/README.md)
  ` G-NEWS TAIWAN`
 
-### [秘翻在线 : 瑞银（UBS ）代表的邪恶沼泽地与郭文贵先生代表的正义新中国联邦的大战拉开序幕！](/content/gnews/15/README.md)
+### [秘翻在线 : 瑞银（UBS ）代表的邪恶沼泽地与郭文贵先生代表的正义新中国联邦的大战拉开序幕！](/content/gnews/17/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [新西兰总理杰辛达•阿德恩为了逆势强推疫苗其说法完全背离科学](/content/gnews/16/README.md)
+### [新西兰总理杰辛达•阿德恩为了逆势强推疫苗其说法完全背离科学](/content/gnews/18/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [CCP荼毒之下——我为什么而活](/content/gnews/17/README.md)
+### [CCP荼毒之下——我为什么而活](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共企图利用冬奥让中美关系回暖](/content/gnews/18/README.md)
+### [中共企图利用冬奥让中美关系回暖](/content/gnews/20/README.md)
  ` G-NEWS TAIWAN`
 
-### [有声|魔鬼的圈套——杨贝贝和她的所谓采访（第四部分）](/content/gnews/19/README.md)
+### [有声|魔鬼的圈套——杨贝贝和她的所谓采访（第四部分）](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [有声|中共将联合国对新疆的人权调查混淆为交流合作](/content/gnews/20/README.md)
+### [有声|中共将联合国对新疆的人权调查混淆为交流合作](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [没有人相信中共的数字人民币凡使用皆为被控制](/content/gnews/21/README.md)
+### [没有人相信中共的数字人民币凡使用皆为被控制](/content/gnews/23/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [有声|郭文贵先生谈家庭教育](/content/gnews/22/README.md)
+### [有声|郭文贵先生谈家庭教育](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [有声|美国经济至暗时刻过后 将迎来快速反弹](/content/gnews/23/README.md)
+### [有声|美国经济至暗时刻过后 将迎来快速反弹](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [有声|中共在冬奥期间收集运动员基因信息](/content/gnews/24/README.md)
+### [有声|中共在冬奥期间收集运动员基因信息](/content/gnews/26/README.md)
  ` MOSREC`
 
-### [谁才是抗日战争的真正主力](/content/gnews/25/README.md)
+### [谁才是抗日战争的真正主力](/content/gnews/27/README.md)
  ` NFSC News`
 
-### [乌克兰危机：德国考虑向立陶宛增派部队](/content/gnews/26/README.md)
+### [乌克兰危机：德国考虑向立陶宛增派部队](/content/gnews/28/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [穷山恶水生妖魔](/content/gnews/27/README.md)
- ` 纽约香草山MOS03`
-
-### [全球央行或将开启“史上最大量化紧缩”](/content/gnews/28/README.md)
+### [全球央行或将开启“史上最大量化紧缩”](/content/gnews/29/README.md)
  ` NFSC News`
 
-### [韩国累积确诊突破百万 单日确诊连创新高](/content/gnews/29/README.md)
+### [韩国累积确诊突破百万 单日确诊连创新高](/content/gnews/30/README.md)
  ` NFSC News`
 
-### [文•贵天成——文贵先生谈“贩卖人口”](/content/gnews/30/README.md)
+### [文•贵天成——文贵先生谈“贩卖人口”](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
-
-### [有声|美国与中共勾兑 将付出惨痛代价](/content/gnews/31/README.md)
- ` MOSREC`
 
 ### [俄媒：华盛顿在太平洋掀起反华浪潮](/content/gnews/32/README.md)
  ` 墨尔本雅典娜农场`

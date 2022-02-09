@@ -2,36 +2,40 @@
 ---
 
 
-## 全球央行或将开启“史上最大量化紧缩”
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1980374/)
+## 乌克兰危机：德国考虑向立陶宛增派部队
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/1980393/)
 
-作者：MOS 柳是多水土透
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月4日，据相关媒体报道，摩根-士丹利近日发布的一份报告指出，全球主要的中央银行即将开始“史上最大规模的量化紧缩”，在未来的12个月内，预计将有2.2万亿美元的货币支持会因此消失。
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image003-9.jpg)
+俄乌边境局势紧张之际，德国政府面临压力。基辅期待德国作出更多承诺。德国迄今为止的立场让其它盟友也心生疑虑，但是现在似乎出现转机。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide11-3.jpeg)
+据德国之声报道，面对乌克兰危机，德国政府正在与立陶宛讨论向后者增派部队的问题。德国总理肖尔茨将于下周在柏林与爱沙尼亚、拉脱维亚和立陶宛三个波罗的海国家的国家元首和政府首脑举行磋商。
+《纽约时报》另外透露，专家估计，俄罗斯军队已经集结了全面入侵乌克兰所需的大约70%的兵力。美国官员表示，俄罗斯入侵的可能时间是2月下半月–即在北京冬奥会结束后。
 
-报道提及，全球通货膨胀的飙升迫使美国联邦储备系统，以及欧洲、日本和英格兰的中央银行急速收紧其各自在中共病毒大流行期间祭出的各项支持措施。
+鉴于乌克兰的紧张局势，美国总统拜登日前下令，向波兰和罗马尼亚增派近3000名士兵。周六（2月5日），第一批增援东欧的美军抵达波兰。波兰军方发言人当天宣布，美国陆军第82空降师的旅战斗群的首批人员已经抵达波兰。
 
-据各方普遍预计，美国联邦储备系统将在今年内加息五次，这也是自2005至2006年以来美国最快的一轮加息。同时，英国中央银行已经在本周推出了近三个月来的第二次加息，而欧洲中央银行近期的一些言论则让外界预计其将实施最近10年来的首次加息。
 
-摩根-士丹利的分析师对此表示，全球的这一轮紧缩将撤回2.2万亿美元的资金支持，其规模将达到2018年的4.5倍。
 
-参考链接：[Central banks to embark on “largest quantitative tightening in history” – Morgan Stanley](https://www.reuters.com/markets/europe/central-banks-embark-largest-quantitative-tightening-history-morgan-stanley-2022-02-04/)
+**推出问题，敲出真相，爆料在路上！**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+**请关注和订阅我们的以下账号：**
 
-总编：飞虹
-编辑：飞虹
-校正/发稿：谐趣园
+**新西兰伊甸农场盖特**：https://gettr.com/user/himalayanz
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**【玫瑰看新闻】盖特**：https://gettr.com/user/rosenews
+
+**玫瑰看新闻YouTube账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**Rose news**
+
+**【玫瑰看新闻】推特账号**：
+
+**Rose News (@RoseNews4)a**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,10 +2,12 @@
 ---
 
 
-## 冬奥现上演的剧目，可说了无新意
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1980628/)
+## 新中国联邦的三件大事
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1980646/)
 
 台灣寶島農場
+
+
 
  
 
