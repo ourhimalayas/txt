@@ -2,23 +2,18 @@
 ---
 
 
-## 魁北克自由党国会议员抨击特鲁多疫苗政策
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1977529/)
+## 樱花头条┃冬奥收视率超低 NBC主播提前返美
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1977624/)
 
-采编：UCool优酷                   翻译编辑：文所未闻
-![](https://assets.gnews.org/wp-content/uploads/2022/02/01-image.png)图片来源：wionews
-据加拿大《CTV新闻》2月8日报道，当天在国会山举行的新闻发布会上，魁北克省的自由党议员乔尔不仅抨击了总理特鲁多的疫苗政策，同时也反对当局对卡车司机车队抗议活动的诬蔑和打压。
+撰稿：东京樱花团/樱花传媒
+![](https://lh5.googleusercontent.com/xMqhvSpUQ03-6WnLm5-BgQqTz1Q-mrAvmajmLm2VVQzPpcMaZmPVOHcIwhz1ebtlDcWoE-y4PiCdWGBVDI26tM9rR-TqkiqZob4EsnXr39dSuXgcXPFUAQi2zwhG9z2lXCsMCll7)
+根据美国NBC Sports提供的数据，上周五的北京冬奥会开幕式仅吸引了1,600万人观看，成为奥运会历史上收视率新低，比上届2018年平昌冬奥会开幕式的2,380万人下降了约43%。媒体评论，NBC正面临2022年冬奥会观众的“灾难性损失”
 
-报道称，该议员已收到了无数对疫苗政策担忧和不满的民意，显示公众在身心俱损同时，家庭也因此变得分裂。并认为特鲁多政府未能向加拿大人解释各项疫苗措施的合理性。同时，已明显政治化的防疫政策必将导致当局在执政过程中的信任危机。
+信息来源：[https://gettr.com/post/ptdfcm6477](https://gettr.com/post/ptdfcm6477)
 
-据悉，自由车队的抗议活动在首都渥太华已进入第12天。而和平集结方式是加拿大宪章赋予国民表达民意的基本权利。但特鲁多却始终罔顾人民的呼声，并在背弃自由民主的道路上越走越远。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：苦尽甜来 (文來）
-
-原文链接： [https://www.ctvnews.ca/politics/liberal-mp-decries-politicization-of-pandemic-questions-federal-policies-1.5772722](https://www.ctvnews.ca/politics/liberal-mp-decries-politicization-of-pandemic-questions-federal-policies-1.5772722)
-
+*编辑：东京樱花团/keyboard racing
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,57 +2,23 @@
 ---
 
 
-## 史蒂夫·班农： 在北京举办冬奥会从一开始就是一场骗局
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1977347/)
+## 谈国内情况（五）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1977493/)
 
-> 前白宫首席战略师史蒂夫·班农：
-> 在北京举办冬奥会从一开始就是一场骗局。
-> 
-> 【在视频中，班农先生展示纽约时报的报道，照片显示在北京冬奥会所在地只有山顶有少量积雪，没有大面积自然降雪，说明北京冬奥会就是一个虚假的骗局】[https://t.co/KZSrUinJMw](https://t.co/KZSrUinJMw)
-> — 美国政要直译推 (@zhiyitw33) [February 8, 2022](https://twitter.com/zhiyitw33/status/1491012356625043458?ref_src=twsrc%5Etfw)
+整理：雅典娜速记组
+编辑：皮特
+![](https://assets.gnews.org/wp-content/uploads/2022/02/谈国内情况五--scaled.jpg)
+直播时间：2022.01.26
 
+“哎，你不不行啊，你这个人有点儿什么，所谓这个木秀于林，是吧？你比我牛逼对吧？”开玩笑你堂堂正正，你有能力，你还这个不给我们一伙啊，你还要收拾我们，对吧？那薄熙来都一个讲的对吧，我怎么那么掀动？他们的温家宝在哪啊，他儿子这样没人说，那都是就是名字了啊，已经在这里。你想想那个温家宝不得吓死吗？最后他肯定要起来吗？利用任何机会能干掉嘛对吧？！我直播之前给七哥发了一个，忽然今天网易出来一篇（文章）。唉，真的很奇怪啊。今天1月25号出来了一篇徐明的死是怎么回事啊，你们看看，我给军哥发过去了。网易发出来很奇怪，你说中共的内斗到了什么时候，你说能翻吗？这都10年前了，恨不得案子都判完了，徐明是心脏病，已经结案了。你能说出来再来问一问他到底是怎么死的？现在已经出来了，你们看啊，网易的这个新闻都出来了，就叫你想想，共产党能不完嘛？所以在这上我们的有感而发的时候，就是能有共同的语言，能大家能互相的理解，互相的我们就知道今天这个消息太震撼了，真的不敢相信，幸福来得太突然了，晚上一定要喝一杯，六四那天来喝了一点儿，再就是喜币上市，我到喝得有点多啊，那天我喝多了。
 
+发布：*皮特*
 
-参议员卢比奥： 一点也不奇怪这么多世界级的运动员在 [#种族屠杀冬奥会上](https://twitter.com/hashtag/%E7%A7%8D%E6%97%8F%E5%B1%A0%E6%9D%80%E5%86%AC%E5%A5%A5%E4%BC%9A%E4%B8%8A?src=hashtag_click) 表现那么差。很多人都埋怨可怕的食物，第三世界水平的住宿，和核酸检测无阳性后仍被作为人质扣留数天。[#北京冬奥会](https://twitter.com/hashtag/%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E4%BC%9A?src=hashtag_click) 是最差的一届奥运会。
-
-
-
-> Not surprised that so many world class athletes are having terrible performances at the [#GenocideOlympics](https://twitter.com/hashtag/GenocideOlympics?src=hash&amp;ref_src=twsrc%5Etfw)
-> 
-> Many are complaining of horrendous food,3rd World accommodations & being held hostage for days after no longer testing positive[#Beijing2022](https://twitter.com/hashtag/Beijing2022?src=hash&amp;ref_src=twsrc%5Etfw) are the worst Olympics ever
-> — Marco Rubio (@marcorubio) [February 8, 2022](https://twitter.com/marcorubio/status/1491040781897203719?ref_src=twsrc%5Etfw)
-
-
-
-众议员吉姆·乔丹： [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 在一家老钢铁厂建造了奥运场馆。 NBC说它“在视觉上令人震惊”
-
-
-
-> The Chinese Communist Party built an Olympic venue at an old steel mill. 
-> 
-> NBC said it was “visually stunning.” [pic.twitter.com/HL7x9P2YPv](https://t.co/HL7x9P2YPv)
-> — Rep. Jim Jordan (@Jim\_Jordan) [February 8, 2022](https://twitter.com/Jim_Jordan/status/1491139485471444992?ref_src=twsrc%5Etfw)
-
-
-
-参议员约翰·肯尼迪： 中国共产党是无情的、他们实行压迫和种族灭绝。我们不能让北京利用美国的军事力量来实现他们的共产主义议程。 【附肯尼迪参议院官网新闻：肯尼迪共同发起提案堵住容许中共国利用美国军事专长的漏洞】
-
-
-
-> The Chinese Communist Party is ruthless, oppressive, and genocidal. We can’t let Beijing exploit America’s military strength for their communist agenda.
->  [https://t.co/XsmTI6hYys](https://t.co/XsmTI6hYys)
-> — John Kennedy (@SenJohnKennedy) [February 8, 2022](https://twitter.com/SenJohnKennedy/status/1491181492416151552?ref_src=twsrc%5Etfw)
-
-
-
-参议员瑞克·斯科特： 美国人支持人权。为什么耐克，可口可乐和NBC不呢？
-
-
-
-> Americans stand up for human rights. Why isn’t [@Nike](https://twitter.com/Nike?ref_src=twsrc%5Etfw), [@CocaCola](https://twitter.com/CocaCola?ref_src=twsrc%5Etfw) or [@NBC](https://twitter.com/nbc?ref_src=twsrc%5Etfw)? 👀⬇️ [pic.twitter.com/uoRiVPETG3](https://t.co/uoRiVPETG3)
-> — Rick Scott (@SenRickScott) [February 8, 2022](https://twitter.com/SenRickScott/status/1491183759110344704?ref_src=twsrc%5Etfw)
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

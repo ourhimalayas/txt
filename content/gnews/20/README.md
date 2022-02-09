@@ -2,27 +2,22 @@
 ---
 
 
-## 魁北克自由党议员就疫苗强制公开与特鲁多决裂
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1977421/)
+## 魁北克自由党国会议员抨击特鲁多疫苗政策
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1977529/)
 
-加拿大温哥华扬帆农场 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/02/joel-lightbound-cpac.jpg)图片来源： CKDR
-根据《蒙特利尔公报》2月8日报道，联邦自由党的新星周艾-莱特邦德（Joël Lightbound）本周二公开表示：他的政党在卡车司机强制接种疫苗、渥太华的抗议活动以及特鲁多政府对流行病回应的立场是截然不同的。
+采编：UCool优酷                   翻译编辑：文所未闻
+![](https://assets.gnews.org/wp-content/uploads/2022/02/01-image.png)图片来源：wionews
+据加拿大《CTV新闻》2月8日报道，当天在国会山举行的新闻发布会上，魁北克省的自由党议员乔尔不仅抨击了总理特鲁多的疫苗政策，同时也反对当局对卡车司机车队抗议活动的诬蔑和打压。
 
-莱特邦德说：“现在是政府停止分裂国民的时候了，需要停止很多人因为对封锁所表达担忧而被 ‘妖魔化’。我很尊重我周围的人，而不是给他们贴上荒谬和可笑的标签”。
+报道称，该议员已收到了无数对疫苗政策担忧和不满的民意，显示公众在身心俱损同时，家庭也因此变得分裂。并认为特鲁多政府未能向加拿大人解释各项疫苗措施的合理性。同时，已明显政治化的防疫政策必将导致当局在执政过程中的信任危机。
 
-这位议员强调，政府必须为最终取消大流行病的限制提供一个 “量化和可量化的 “路线图。
+据悉，自由车队的抗议活动在首都渥太华已进入第12天。而和平集结方式是加拿大宪章赋予国民表达民意的基本权利。但特鲁多却始终罔顾人民的呼声，并在背弃自由民主的道路上越走越远。
 
-联邦雇员必须接种COVID-19疫苗，这也是上次选举活动的一个核心问题，当时自由党以少数派政府的身份重新上台。
+校对编辑：硫酸羟氯喹64
 
-被视为联邦自由党中的新星的莱特邦德，在总理贾斯汀-特鲁多(Justin Trudeau)预定与他的内阁会面的同一时间召开了他的新闻发布会。这位议员说，他与记者见面是为了 “谦虚地分享他对当前发生的危机、大流行病政治化的看法，并提供一些线索”。
+发稿：苦尽甜来 (文來）
 
-
-
-原文链接：
-[https://montrealgazette.com/news/local-news/quebec-liberal-mp-publicly-breaks-with-trudeau-over-vaccine-mandates](https://montrealgazette.com/news/local-news/quebec-liberal-mp-publicly-breaks-with-trudeau-over-vaccine-mandates)
-
-编辑，发稿 Spirit
+原文链接： [https://www.ctvnews.ca/politics/liberal-mp-decries-politicization-of-pandemic-questions-federal-policies-1.5772722](https://www.ctvnews.ca/politics/liberal-mp-decries-politicization-of-pandemic-questions-federal-policies-1.5772722)
 
  
 
