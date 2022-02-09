@@ -2,8 +2,8 @@
 ---
 
 
-## 战友将军说打台湾会将导弹打向北京
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1977096/)
+## 新中国联邦今年的三个大惊喜
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1977165/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

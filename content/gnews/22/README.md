@@ -2,32 +2,30 @@
 ---
 
 
-## 加拿大反疫苗示威面临失控风险
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1976691/)
+## 拜登表示：如果俄罗斯入侵乌克兰，北溪 2 号管道将被制裁
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1977095/)
 
-**整理：Eileen（围剿维尼熊）**
-**编辑：守望黎明**
+撰稿：小毛牛
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/加拿大.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/020701-1.jpg)周一，拜登在白宫与德国总理奥拉夫·舒尔茨举行的联合新闻发布会上发表讲话。Brendan Smialowski摄/法新社/盖蒂图片社
 
-图片来源：Toronto Star
+拜登和到访的德国总理奥拉夫·肖尔茨2月7日（周一）在联合新闻发布会上表示，如果外交斡旋失败而且俄罗斯再次入侵乌克兰，他们将对莫斯科实施制裁。
 
+制裁包括美德双方共同努力阻止一条从俄罗斯到德国的价值数十亿美元的北溪 2 号天然气管道。尽管该管道目前尚未投入运营，但已成为连接俄乌紧张局势中各方角力的一个关键问题。
 
-根据《经济日报》2月8日报道，加拿大首都渥太华6日宣布进入紧急状态，因为反对强制接种疫苗的示威活动已经失控，甚至在其他国家发酵。在澳洲首都堪培拉也出现类似的抗议冲突。各国民众逐渐对防疫措施失去耐心。
+众所周知，俄罗斯是世界上最大的天然气生产国之一，而德国则是天然气的最大进口国之一。然而，显然事情并没有这么简单。切断北溪 2 号管道确实会损害俄罗斯的经济，但同时也将会对整个欧洲的经济增长产生负面影响。因为欧洲近 40% 的天然气来自于莫斯科的供应。
 
-渥太华市长华森声称，示威活动对市民安全及保障造成严重危险与威胁。数百辆卡车继续占领国会附近地区，没有迹象显示抗议者打算撤离。
+熟知普京行事风格的人都清楚，作为对美德制裁的回应，克里姆林宫势必会将其能源储备武器化并削减对欧洲市场的供应，从而影响欧洲人的家庭供暖和工厂的运作。
 
-这场名为“自由车队”（Freedom Convoy）的抗争行动，是针对加拿大与美国1月生效的法律，该法律规定往返两国边境的卡车司机须接种至少两针疫苗，抗争后来演变为加拿大全国反对防疫措施和反对总理杜鲁多政府的集会。
+尽管俄罗斯占得先机，但是拜登仍然鉴定的表示：如果俄罗斯入侵乌克兰，这将是一个巨大的错误，我们将实施有史以来最严厉的制裁。
 
-参考链接：[https://udn.com/news/story/121707/6082058?from=udn-catebreaknews\_ch2](https://udn.com/news/story/121707/6082058?from=udn-catebreaknews_ch2)
+上周，白宫已经授权将大约 3000 名美军部署到乌克兰附近，以应对目前的紧张局势。。
 
-*发布：盘古相聚*
+我们都知道，俄乌局势，只是俄罗斯配合中共演的一场戏而已，西方阵营也极有可能制造顺势配合演戏的假象而已，受害的只有欧洲的普通民众和乌克兰。但凡有骚乱的地方，必有中共的影子。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻来源：[Biden says the Nord Stream 2 pipeline won’t move ahead if Russia invades Ukraine](https://www.npr.org/2022/02/07/1078953858/biden-says-the-nord-stream-2-pipeline-wont-move-ahead-if-russia-invades-ukraine?t=1644291860898&amp;t=1644364023722)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
 
  
 

@@ -2,20 +2,18 @@
 ---
 
 
-## 新中国联邦今年的三个大惊喜
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1977165/)
+## 吹哨人：澳洲须防社交媒体假消息干预大选
+` GTV新聞訪談` [轉載自GNews](https://gnews.org/zh-hans/1977276/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+[撰稿日期]：2022.02.04
 
-发布：陶子
+[署名]：台湾宝岛农场\_阿尔道夫
 
-更多资讯，请关注：
-澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena
-澳大利亚墨尔本农场Gettr：himalayaathena
-澳大利亚墨尔本雅典娜农场YouTube
-澳大利亚墨尔本雅典娜农场Discord
-澳大利亚墨尔本雅典娜农场GTV直播1台
+[新闻连接]： 《https://udn.com/news/story/6811/6075913?from=udn-catebreaknews\_ch2》
+
+
+
+据台媒报导，澳洲将于今年5月举行联邦大选，脸书「吹哨人」，也就是脸书的前员工郝根（FrancesHaugen），昨（3日）在澳「社交媒体及在线安全调查委员会」（Inquiry into Social Media andOnline Safety）公听会中强调，中共已将社交媒体武器化，所以应预防有人利用社交媒体散播假消息干预澳洲大选。
 
  
 
