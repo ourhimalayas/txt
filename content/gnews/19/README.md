@@ -2,39 +2,33 @@
 ---
 
 
-## 乌克兰危机：德国考虑向立陶宛增派部队
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/1980393/)
+## 有声|美国经济至暗时刻过后 将迎来快速反弹
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1980401/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image003-9.jpg)
-俄乌边境局势紧张之际，德国政府面临压力。基辅期待德国作出更多承诺。德国迄今为止的立场让其它盟友也心生疑虑，但是现在似乎出现转机。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在2月4日的大直播中，郭文贵先生说，美国经济此次会经历前所未有的黑暗，在这个进程中，有的人会血本无归，有的人会扬帆直上。得益于美国本土地理条件与气候的均匀分布，对世界精英的深度吸引，对宗教与民主法治自由的广泛包容，在经济的至暗时刻过后，美国又将再一次引领人类高度文明，生物科技、量子电脑、太空科技、新型材料等领域都或将迎来全面民用普及。往常美国需要3-5年的经济自我调整期会加速缩短，这次大概可能只需要一年不到的时间。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-4.jpg)
+郭先生同时指出，美国资本主义社会务实和无情的特点，逼迫每个人只能往前看。从行业特点看来，越有能力的人越倾向于经济科技和哲学领域，越没能力的越会去从事政治。跟不上时代进步的永远会被抛在脑后，包括战友。美国此次的经济全面复苏也将带来世界经济的大爆发。
 
-据德国之声报道，面对乌克兰危机，德国政府正在与立陶宛讨论向后者增派部队的问题。德国总理肖尔茨将于下周在柏林与爱沙尼亚、拉脱维亚和立陶宛三个波罗的海国家的国家元首和政府首脑举行磋商。
-《纽约时报》另外透露，专家估计，俄罗斯军队已经集结了全面入侵乌克兰所需的大约70%的兵力。美国官员表示，俄罗斯入侵的可能时间是2月下半月–即在北京冬奥会结束后。
+文字版原文：[美国经济至暗时刻过后 将迎来快速反弹](https://gnews.org/zh-hans/1972003/)
 
-鉴于乌克兰的紧张局势，美国总统拜登日前下令，向波兰和罗马尼亚增派近3000名士兵。周六（2月5日），第一批增援东欧的美军抵达波兰。波兰军方发言人当天宣布，美国陆军第82空降师的旅战斗群的首批人员已经抵达波兰。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-**推出问题，敲出真相，爆料在路上！**
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-**请关注和订阅我们的以下账号：**
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-**新西兰伊甸农场盖特**：https://gettr.com/user/himalayanz
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-**【玫瑰看新闻】盖特**：https://gettr.com/user/rosenews
-
-**玫瑰看新闻YouTube账号**：
-
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**Rose news**
-
-**【玫瑰看新闻】推特账号**：
-
-**Rose News (@RoseNews4)a**
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
