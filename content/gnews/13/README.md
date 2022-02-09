@@ -2,31 +2,24 @@
 ---
 
 
-## 加拿大警察粗暴对待无害的八旬弱小老人
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1978641/)
+## 五选手因服装被取消成绩 中共北京冬奥已毫无底线
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1978649/)
 
-作者：  Evalu （秘翻组）
+撰稿：东京樱花团/小小星
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-877.png)[图片来源](https://www.gettyimages.com/detail/news-photo/silje-opseth-of-team-norway-reacts-during-mixed-team-ski-news-photo/1369131420)
+周一（2月7日）的跳台滑雪混合团体项目中，有61冠纪录的夺金大热日本选手高梨沙罗，为日本队打头阵，跳出103米的好成绩。然而，她随后被判大腿的紧身衣“宽松2公分”属违规，第一跳成绩被取消。高梨沙罗因此失去获奖机会，失去这一跳成绩的日本最后也只拿下第4名。高梨沙罗当场哭成泪人。
 
-图片：
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-27.jpg)
-图片来源：twitter.com
+不止是她，同场共有5名来自德国、奥地利、挪威等国的顶尖女选手，都因判“服装不合格”遭取消成绩。各国媒体纷纷报导此事，怒斥“这简直是场闹剧！”
 
-内容：反抗者新闻记者埃兹拉·勒瓦1月7日发布了一个视频，视频中渥太华两个警察粗暴地对待一位80岁的手无寸铁的不足五尺高的弱小老人，将他反手铐在车旁，随后将他带离现场，其原因仅仅是因为他为支持卡车司机而按了下喇叭，他的儿媳妇在与记者的推特对话中说这还是在按喇叭禁令之前发生的事，特鲁多政府堪称法西斯政府，居然在大白天禁止人们偶尔按一下喇叭，这是什么样禁令啊？这个行为至于要把人抓起来吗？还是这样一位弱小老人，还被摔倒在地上，该视频短时间就引起人们的强烈谴责，人们都在问，这还是加拿大吗？那个号称民主自由的国度。
+其中一名挪威选手奥普塞特（Silje Opseth）告诉挪威媒体，导致她被判“服装不合格”的原因，是评审在测量服装时没有遵循正常程序。她说：“他们用完全不同的方式测量服装，我们被告知要用与以往不同的方式站立。”
 
-但是左媒对此熟视无睹，全都闭而不谈，却对乔·罗根（Joe Rogan）十多年前的N-用词大加挞伐，尽管他已经道歉了，还不肯放过，对比加拿大警察如此恶劣的作法，却一声不吭。
+在中共疫情肆虐世界人民的时刻，一些国家的运动员为人权和正义而战。拒绝了参加北京冬奥会。在中共经济和政治体制摇摇欲坠的时刻，中共已经没有了底线和遮羞布。明晃晃地做自己想做的事情。没有人权人性之说，相信共产党走进火葬场！
 
-今天渥太华警察中士沙津特辞职，很可能是因为对警察领导层“为自由护航”抗议中的处理不当所致。据国家电报新闻报道，从警察内部透露的消息是警察中士的辞职是因为警察领导层要求针对“为自由护航”的抗议者的行动与警察的伦理哲学相违背，有很高比例的警察因压力过高而休息，或休假，病假。这说明警察内部在收到警察领导的指示后感到不舒服。
+信息来源：[北京冬奧黑哨頻傳 5頂尖選手被判「著裝不合格」](http://cn.ntdtv.com/b5/2022/02/08/a103343020.html)
 
-这显示了特鲁多缺乏领导能力，甚至还有一些自由党联邦议员反对强制疫苗。
-
-加拿大的一些省份正在开始取消和中止疫苗和口罩强制令。但特鲁多还在负隅顽抗，不想放弃疫苗强制令，他说：“我能理解人们对强制令的不满，但这是避免更进一步的限制。” 什么逻辑！
-
-新闻来源：
-
-1. [Ezra Levant 🍁 on Twitter: “So proud of our Canadian police. To serve and protect. So glad they took that 80-year-old, 5-foot-nothing man off the streets. I feel so much safer now. https://t.co/3jaCH3Kl9N” / Twitter](https://twitter.com/ezralevant/status/1490819892169383941?s=20&amp;t=qPaju9vVXHMhoNd4Ety35w)
-2. [BREAKING: Ottawa Police Staff Sargent Resigns From Position Over Freedom Convoy Mishandling | The Paradise News](https://theparadise.ng/breaking-ottawa-police-staff-sargent-resigns-from-position-over-freedom-convoy-mishandling/)
-
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

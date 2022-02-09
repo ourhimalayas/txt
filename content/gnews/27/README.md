@@ -2,10 +2,10 @@
 ---
 
 
-## 中共继续蓝金黄英国大学 开发或偷盗高科技武器
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1978343/)
+## 中共被怀疑黑客美国新闻集团
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1978344/)
 
-作者：纽约香草山教育部 – 子兵
+作者：纽约香草山 – 柳是多水土透
 
 
 
@@ -13,14 +13,14 @@
 
 
 
-2月6日，据外媒透露，英国的大学大幅增加了与中共军队有关的机构的合作，并可能有助于中共发展高科技武器。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-5.jpg)
-根据一项调查，英国科学家与跟中共解放军有密切联系的中共机构之间的研究合作数量在六年内增加了两倍，超过了1000次。而自2015年以来，英国大学从这些机构接受了2.4亿英镑的资助。其中，电信巨头华为是主要资金来源，华为已向英国机构捐款4000万英镑，另外还有2000万英镑来自因向解放军提供战斗机、导弹和通讯技术而受到美国政府制裁的公司。
+据外国媒体2月4日报道，美国新闻集团的计算机系统近日被黑客入侵，有数个新闻记者的电子邮件账号被盗。该集团的网络安全顾问认为，黑客可能是在为北京搜集情报。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-4.jpg)
+美国新闻集团，旗下拥有福克斯新闻和华尔街时报等媒体，在1月下旬发现被入侵，线上文件与电子邮件受到影响后，雇用了一家数码安全公司进行调查。该公司的副总裁认为黑客具有“中共背景”。
 
-该调查称，英国学者与有中共军方背景的大学合作，进行了多项敏感的“军民两用技术”的研究，包括无人机、可以发射导弹的电磁技术、航空航天材料、雷达、干扰装置和高效能电池等。
+此前，中共曾多次对外国记者发动网络攻击，2013年，《纽约时报》报告有53名记者的电脑遭到入侵，当时该报纸正在调查温家宝的家族财富。后来，又有消息披露彭博社、华尔街时报和华盛顿邮报等相继被黑。
 
 参考信息：
-[UK Universities May Be Helping China Develop Hi-tech Weapons: Report](https://www.theepochtimes.com/uk-universities-may-be-helping-china-develop-hi-tech-weapons-report_4259918.html?utm_source=ref_share&amp;utm_campaign=copy&amp;rs=SHRKVP&amp;)
+[China suspected in hack of journalists at News Corp](https://www.reuters.com/business/media-telecom/news-corp-says-one-its-network-systems-targeted-by-cyberattack-2022-02-04/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
 

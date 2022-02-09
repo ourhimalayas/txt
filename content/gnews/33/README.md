@@ -2,10 +2,10 @@
 ---
 
 
-## 迈克·蓬佩奥抨击拜登政府在外交政策失误中没有为美国 &#8220;站起来&#8221;
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1978290/)
+## NBC拒绝播放佛罗里达议员抨击中共及冬奥会的广告
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1978325/)
 
-02/06/2022 迈克·蓬佩奥抨击拜登政府在外交政策失误中没有为美国 “站起来”
+02/06/2022 福克斯新闻撰稿人乔·康查称NBC拒绝播放抨击中共国的广告让人失望
 
 By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 

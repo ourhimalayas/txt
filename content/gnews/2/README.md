@@ -2,28 +2,132 @@
 ---
 
 
-## 秘翻在线：北京寄希望于新的美国驻华大使能重建中美关系
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1978692/)
+## 封锁对公共卫生“几乎没有”好处的
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1978717/)
 
-**撰稿：葛大饼**
+[https://gtv.org/video/id=620265f1585ecc15d73efa13](https://gtv.org/video/id=620265f1585ecc15d73efa13)
 
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-09-165448.jpg)图片来源： DW
-根据2022年1月27日中共媒体报道，美国时间25日美常务副国务卿舍曼发文表示，已为新任驻华大使尼古拉斯·伯恩斯举行宣誓就职仪式，填补了该职位一年多以来的空缺。
+**Bill Maher
+比尔·马赫**
 
-新闻称这位迟到并且仍未到位的驻华大使选择在春节前宣誓，某种程度上也反映出其对中国文化传统了解，此外也不排除伯恩斯希望将中国春节的喜庆氛围代入任职期间的工作中。
+It’s time to do what a growing list of countries have done and announce
+是时候做越来越多的国家已经做过并宣布的事情了
 
-但新闻分析中也表示担忧，因为伯恩斯属于对华的“鹰”派政客。他曾建议通过 “与台湾关系法”协助台湾提升“不对称防卫战力”，让其他国家也能效仿，就在恩斯被任命的同时，美国又放出三个遏华动作：美国财政部将8家中国公司列入所谓“中国军工企业”黑名单；美国商务部将中国军事医学科学院等34个实体列入限制出口名单；美国参、众两院通过了所谓“维吾尔强迫劳动预防法案”，并移交白宫签署，美国的种种举动压根没有打算让伯恩斯成为受中国欢迎的使节。
+we’re going back to something more like normal
+我们将回到更正常的状态
 
-美国国务卿布林肯24日就中美关系发表了新一轮看法——“当我们后退一步，中国就前进一步。这不符合我们的利益。”外交学院美国研究中心主任李海东表示布林肯的这番表态体现出美国对华认识的“走火入魔”， 十分愚蠢。
+beginning with recognizing that what we’re doing to kids is unnecessary
+开始要认识到我们对孩子所做的事情是不必要的
 
-据路透社报道，美国驻华使馆正等待本国政府“授权”允许部分馆员和家属“撤离”回国，原因是中方采取的疫情防控措施过于严格。中共外交部发言人赵立坚表示：中共国目前无疑是世界上最安全的国家，从最安全的地方撤出，只会极大增加美方人员感染的风险。希望美方慎重考虑所谓外交领事人员‘授权撤离’问题。”
+and horrible and I don’t even like kids
+和太可怕了，而且我甚至不喜欢孩子
 
-北京对中美关系的态度是： “北京欢迎你。一起向未来！”
+making kids who have a COVID survivability rate of 99.98% mascot like bandits
+让COVID存活率为99.98%的孩子像土匪一样的吉祥物
 
-美国要外交领事人员“授权撤离”的消息经郭文贵先生第一时间爆出后，中共就担心受怕开始“苦口婆心”劝说美国：你回来吧，别分手，我会好好待你，咋们一起走向未来！然而中美关系，如同美国国务卿布林肯引用的一句老话，“人为刀俎、我为鱼肉（If you’re not at the table， you’ll probably be on the menu）”，很明显中共的行为已经超出了美方的底线，灭共是铁板钉钉的事！
+Unfortunately, the thing that’s getting stolen is their education
+不幸的是，被盗走的东西是他们的教育
 
-**[新闻来源](https://news.sina.cn/gn/2022-01-27/detail-ikyakumy2935082.d.html?sinawapsharesource=newsapp&amp;wm=3200_0024)**
+their sanity, and their social skills
+他们的理智和他们的社交技巧
+
+I study this week from a professor at Johns Hopkins concluded
+我本周从约翰霍普金斯大学的一位教授那里学习得出结论
+
+that the lockdowns we all suffered through had little impact in reducing COVID deaths
+我们都经历过的封锁对减少COVID死亡人数几乎没有影响
+
+Okay, that’s kind of a big one to get wrong
+好吧，这是一个很大的错误
+
+Last July, President Biden said you’re not going to get COVID If you have these vaccinations
+去年7月，拜登总统说如果你接种了这些疫苗，你就不会感染新冠病毒
+
+Well, I already knew that was wrong then and now we all do
+好吧，我当时就知道那是错的，现在我们都知道了
+
+The former Director of the CDC Robert Redfield believes COVID originated in the lab
+疾控中心前主任罗伯特·雷德菲尔德认为新冠病毒起源于实验室
+
+and now our intelligence agencies agree, it might have
+现在我们的情报机构同意，这是可能的理论
+
+but for months on social media, it was banned to even discuss it
+但在社交媒体上几个月来，它甚至被禁止讨论
+
+Look, I’m not saying the medical establishment isn’t trying to figure shit out
+听着，我并不是说医疗机构不想解决问题
+
+or that they’re corrupt, although there is some of that
+或者他们是腐败的，尽管其中有一些
+
+but but how about just wrong? Wrong the lot
+但是，错了怎么办？ 错了很多
+
+wrong about HIV, wrong about lockdowns, wrong about kids
+关于艾滋病毒的错误，关于封锁的错误，关于孩子的错误
+
+wrong about how you couldn’t get it if you were vaccinated
+关于你怎么不接种它是错误的如果你接种了疫苗
+
+Remember washing our packages and there’s never been any research showing
+记得清洗我们的包裹，而且从来没有任何研究表明
+
+that outdoor transmission is likely or common yet
+室外传播可能或普遍存在
+
+LA County says we’re still supposed to mask up for big outdoor events
+洛杉矶县说我们仍然应该为大型户外活动戴着口罩
+
+like we’ll be at the Super Bowl
+就像我们将在超级碗上
+
+Well, suppose to
+好吧，本应该戴口罩
+
+it’s all fade watching athletes mix it up on the court
+看着运动员在球场上混合起来，一切都消失了
+
+then mask on the sideline
+然后戴着口罩坐在一边
+
+not being able to touch a menu but watching them touch my food
+无法触摸菜单但是看着他们触摸我的食物
+
+Mask was at dinner while sitting but not standing
+坐着需要戴口罩，但站着不要
+
+And by the way, if Applebee’s really cared about our health
+顺便说一句，如果Applebee真的关心我们的健康
+
+they would make us cover our mouths after the food arrived
+他们会让我们在食物到达后遮住我们的嘴
+
+I’m just asking how much wrong do you get to be
+我只是想问，你能错到什么程度
+
+while still holding the default setting for people who represent the science
+同时仍然为代表科学的人保持默认的设置
+
+* * *
+
+Date:02/06/2022
+原视频标题: Lockdowns had ‘little to no’ benefit on public health
+封锁对公共卫生“几乎没有”好处的
+原视频日期：2022/02/06
+原视频链接:[** https://twitter.com/janjekielek/status/1490036058595205129?s=24**](https://twitter.com/janjekielek/status/1490036058595205129?s=24)
+任务编号：KE387（3684）
+视频时间段 : 0:00-2:42
+英听校： 洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-青梅煮酒
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
