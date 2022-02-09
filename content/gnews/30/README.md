@@ -2,39 +2,37 @@
 ---
 
 
-## 太盟董事长单伟建是中共高级间谍和洗钱罪犯
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1977929/)
+## 美众院通过美国竞争法 吁启动「台湾代表处」更名协商
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1977932/)
 
-#### **【雅典娜观察】和您一起洞察世界**
+作者：台湾宝岛农场\_阿尔道夫
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-4.png)
+![美國聯邦眾議院4日表決通過美國競爭法案（America COMPETES Act of 2022）。 歐新社](https://pgw.udn.com.tw/gw/photo.php?u=https://uc.udn.com.tw/photo/2022/02/05/realtime/15788957.jpg&amp;x=0&amp;y=0&amp;sw=0&amp;sh=0&amp;sl=W&amp;fw=800&amp;exp=3600&amp;w=930)图片来源：欧新社 
 
-整理/编辑：文泓
+据外媒报导，为深化美国与台湾的双边关系，美联邦众议院4日通过法案，呼吁将「驻美国台北经济文化代表处」（TECRO）更名为「台湾代表处」（Taiwan Representative Office），显示美政策是主张称呼「台湾」为「台湾」，不是「台北」或「中华台北」
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/5-13.png)图片来源：Gnews
+法案也提到，美国将以「促使台湾成为北极理事会（the Arctic Council）的观察员」为政策。
 
+此外，民主党籍的参院外交委员会主席梅南德兹（Bob Menendez）表示，当中共持续压迫台湾，这项重要立法展示美国对台湾人民及台湾权利的重要支持。
 
-当地时间2月8日，据PRfree网报道，有数百名美国华人同时致函联邦调查局，揭露太平洋联盟集团（PAG）董事长兼首席执行官单伟建先生是中共高级间谍和洗钱罪犯。
+新闻链接：https://udn.com/news/story/6813/6077094
 
-2月8日正是庆祝中国农历新年假期的时候，但数以百计的海外华人正对他们的声誉和安全表示严重担忧。因为中国共产党无视美国主导下的全球秩序，目前已经引发社会针对华语世界中各个社区的的污名化、歧视，甚至仇恨和犯罪。
+编辑/校对/发稿：小小安
 
-随着中共间谍在美国的数量不断增加，针对华裔的仇恨情绪和种族主义将成为新的社会现象。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-24.jpg)
 
-2009年后，出于对经济优势和政治影响力的极端渴求，中共向美国派出越来越多的人员从事间谍活动。在联邦调查局，大约每天都会有两起针对中共国新的反间谍案件。**世界上没有其他国家比中共国对美国的思想、美国的创新和美国的经济安全构成更广泛的威胁。**联邦调查局局长克里斯托弗·雷在加利福尼亚州西米谷的罗纳德·里根总统图书馆的主题演讲中说道：
+**更多资讯，更多关注**
 
-农历新年过后，数百名美国华人同时致信联邦调查局，揭露太平洋联盟集团董事长兼首席执行官单伟建先生是中共的高级间谍。**越来越多的海外华人希望说出中国人不等于中共的真相，中共的高级间谍单伟建不能代表生活在美国的数百万热爱自由的中国人。**
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**勇敢的美国华人敦促联邦调查局调查单伟建和他的儿子单博，因为他们犯下了经济间谍、知识产权盗窃、金融欺诈、移民欺诈和洗钱活动。**应追究单伟建从美国养老基金中窃取资金，并通过中共千人计划渗透美国的责任。
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-新闻链接：[Weijian Shan, the Chairman, and CEO of Pacific Alliance Group (PAG), Is Communist China’s High- ranking Spy & Money-laundering Criminal (prfree.org)](https://www.prfree.org/@astralsoul/weijian-shan-the-chairman-and-ceo-of-pacific-alliance-group-pag-is-communist-china-s-high-ranking-spy-money-laundering-criminal-b7kx64ep7kry)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-发布：tianzhihuan
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-5.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

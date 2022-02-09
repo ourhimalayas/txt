@@ -2,28 +2,34 @@
 ---
 
 
-## 有声|中共间谍单伟健的斑斑劣迹
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1978148/)
+## 美国最繁忙边境口岸被迫关闭！加拿大卡车车队抵美加边境
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1978187/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月6日郭先生在大直播中爆料，中共文革时期已在考虑，将中俄关系调整为中美关系，因为中共认识到，只有耕耘中美关系，共产党才能维系其统治。文革期间，6000万无辜知识青年被下放到农村。其中能重新回到北京，还能出国的人，绝不是出身普通家庭者能够做到的，单伟健就是其佼佼者。
+撰稿：东京樱花团/asket
 
-中共在美国特务活动的展开，破坏美国的法治民主，单伟健担任重要戏份。他不仅钻美国法律的空子，赢得美国对当时空白的中国市场趋之若鹜，还大力推行中共窃取美国高端科技和军事技术的“千人计划”。美国很多大资本都和单伟健的PAG有关，就连川普总统都被带进这场骗局之中。美国的养老金经他手被洗走了，现在市面上大型社交媒体网络都被此人控制。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/美国最繁忙边境口岸被迫关闭！加拿大卡车车队抵美加边境.png)
 
-文字版原文：[中共间谍单伟健的斑斑劣迹](https://gnews.org/zh-hans/1975856/)
 
-音频处理/发稿：Daxia
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+加拿大卡车司机抗议疫苗强制令的车队到达了美加边境，底特律—温莎口岸，堵住了通往底特律的高速公路上的交通，北美最繁忙的边境口岸因此被迫关闭。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+据福克斯新闻网（Foxnews）报导，2月7日下午3点左右，在I-75公路和美加边境上的大使大桥Ambassador Bridge上开始堵车。根据福克斯2台（Fox 2 Detroit）的消息，底特律官员透露，大使桥在当天晚上8点左右关闭，并导致数千辆卡车滞留在底特律一侧的道路上。
+
+事发之后，相关机构的官员指示司机们使用温莎—底特律隧道（Windsor-Detroit Tunnel）或休伦港的蓝水大桥（Port Huron Blue Water Bridge）过境，而不是大使桥。
+
+一些商业界领袖就此表示，美国最繁忙的国际边境口岸被关闭，会造成商品供应链方面的问题。密歇根农业商业协会（Michigan Agri-Business Association）主席查克‧利普斯特鲁（Chuck Lippstreu）对《底特律新闻》（The Detroit News）表示：“供应链中的任何延误或中断都会带来问题，不仅是对农业，而且对本州经济都是如此。”
+
+另据温莎警察局透露消息，周二（2月8日）上午，大使大桥上通往美国方向的交通已经重新开放。
+
+信息来源：
+
+[加拿大卡车抗议车队抵美加边境 边境口岸关闭](https://www.epochtimes.com/gb/22/2/8/n13563993.htm)
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

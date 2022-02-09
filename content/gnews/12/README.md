@@ -2,28 +2,28 @@
 ---
 
 
-## 9万4000多枚，价值36亿美元！美破获最大比特币失窃案
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1978221/)
+## 有声|多名美国顶尖滑雪选手在冬奥赛道摔倒
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1978261/)
 
-撰稿：东京樱花团/asket
+配音：香草山巡管部– 文凯琳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月7日，北京冬奥会刚开始，就传出多位美国滑雪运动员在比赛中滑倒，面临出局和受伤的双重风险。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/9万4000多枚，价值36亿美元！美破获最大比特币失窃案.png)[图片来源](https://news.cnyes.com/news/id/4785686)
+当天，卫冕冠军美国选手米凯拉·希弗林在第一轮中摔倒，爆冷提前出局。希弗林在前两届冬季奥运会上获得了三枚奖牌，两枚金牌一枚银牌。如果这次拿到两枚金牌，就有望与另两名选手并列成为高山滑雪界的最多金牌拥有者。希弗林在该项目上历来都是稳定的典范。她说，前四个闸口感觉良好。但当她绕过第五道门时，突然就失去了平衡，导致了出局。
 
-美国司法部2月8日宣布，他们已追回2016年失窃的9万4000多枚比特币，这些比特币目前价值36亿美元，查获金额创纪录。
+文字版原文：[多名美国顶尖滑雪选手在冬奥赛道摔倒](https://gnews.org/zh-hans/1976084/)
 
-司法部表示，一对遭控为这些比特币洗钱的夫妇在纽约被捕—34岁的Ilya Lichtenstein和他31岁的妻子Heather Morgan，预定因所控罪名在联邦法院出庭。据称，夫妇两人为2016年从数字货币交易中心Bitfinex骇得的11万9754枚比特币收益洗钱，这些比特币当时价值6500万美元。Bitfinex的总部位于香港。
+音频处理/发稿：Daxia
 
-根据法庭文件，部分失窃的比特币被送往一个Ilya Lichtenstein控制的电子钱包。约2万5000枚比特币接下来5年透过“错综复杂的加密货币交易，从电子钱包移出”，所得款项被用来购买黄金及NFT（非同质化代币）等物品。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-美国司法部副部长摩纳可（Lisa Monaco）在声明中说：“今天的逮捕，以及司法部历来最高的金融查获，显示加密货币对犯罪分子来说不是安全的避风港。”
-
-郭先生多次透露，比特币是中共洗钱的工具，而总部位于香港的数字货币交易所比特币失窃，让人不由联想到，这次查获的洗钱夫妇，和中共千丝万缕的关系。
-
-信息来源：[美查获值36亿美元的失窃比特币 金额创纪录](https://www.epochtimes.com/gb/22/2/8/n13563853.htm)
-
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

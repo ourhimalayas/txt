@@ -2,24 +2,35 @@
 ---
 
 
-## 《美国竞争法案》中被中共蓝金黄删掉的重要条款
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1977952/)
+## 新西兰民众游行反对强制疫苗政策
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1977988/)
 
-编辑撰稿：硫酸羟氯喹64
-![](https://assets.gnews.org/wp-content/uploads/2022/02/06-image-2.png)
-图片来源：GTV
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-据2月6日GTV文贵大直播消息透露，在美国众议院刚刚通过针对遏制中共扩张的《美国竞争法案》中，有部分涉及台湾安全的关键性条款，在中共势力的游说之下被迫删除。
+整理：Eileen（围剿维尼熊）
+编辑：朝花夕拾
 
-消息称，这些被取消的条款包括：习近平当局若武力攻台，美国政府不仅会立即公开和查封中南坑盗国贼家族的全部海外资产，还将与中共的经济彻底脱钩并断绝双边外交关系等措施。 文贵先生表示，尽管中共利用其在美国的深度渗透和游说能力，成功取消了以上重要条款，但却无法根本影响在美台关系中起主导作用的美国立法会。该法案事实上已明确了美国政府将保护台湾不受中共武力入侵的基本立场，并使美方在中共未来发动台海战争之时，拥有更多军事反击的行动空间。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-614.png)图片来源：雅典娜设计组
 
-校对编辑：硫酸羟氯喹64
 
-发稿：苦尽甜来 (文來）
+根据中央社2月8日报道，大批示威者今天开着卡车及露营车占据新西兰惠灵顿街头，抗议政府新冠肺炎防疫限制以及疫苗接种措施。
 
-新闻来源：
+数百车辆今天停靠在新西兰国会大楼周边的道路上，车上挂着标语写道“还我们自由”等。另有数百车辆车在市中心绕街鸣喇叭，超过千名示威者步行聆听演说。
 
-[https://gtv.org/video/id=61ffc26b3621aa7415d64d51](https://gtv.org/video/id=61ffc26b3621aa7415d64d51)
+整个游行过程平和。警方表示，无人被捕，也无重大事件发生。
+
+新西兰总理阿尔登（Jacinda Ardern）表示，不打算与示威者对话，她认为多数民众明显支持政府的接种计划。
+
+参考链接：https://udn.com/news/story/6809/6083215?from=udn-catebreaknews\_ch2
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
