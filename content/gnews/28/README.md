@@ -2,48 +2,103 @@
 ---
 
 
-## 中共继续蓝金黄英国大学 开发或偷盗高科技武器
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1978343/)
+## 全世界人民，珍惜生命，远离中共
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1978474/)
 
-作者：纽约香草山教育部 – 子兵
+[https://gtv.org/video/id=620264a9585ecc15d73ef97b](https://gtv.org/video/id=620264a9585ecc15d73ef97b)
 
+像人一样活着
+Vive como una persona
 
+你只要不像畜生一样活着
+Pero mientras tanto no vivas como una bestia
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+还有一个, 你想活下去
+Y hay otro, si quieres sobrevivir
 
+远离中共, 珍惜生命
+Aléjate del PCCh, aprecia la vida
 
+远离中共, 不仅是演艺圈
+Aléjate del PCCh no es solamente del mundo de espectáculo
 
-2月6日，据外媒透露，英国的大学大幅增加了与中共军队有关的机构的合作，并可能有助于中共发展高科技武器。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-5.jpg)
-根据一项调查，英国科学家与跟中共解放军有密切联系的中共机构之间的研究合作数量在六年内增加了两倍，超过了1000次。而自2015年以来，英国大学从这些机构接受了2.4亿英镑的资助。其中，电信巨头华为是主要资金来源，华为已向英国机构捐款4000万英镑，另外还有2000万英镑来自因向解放军提供战斗机、导弹和通讯技术而受到美国政府制裁的公司。
+不仅是企业家也不仅是搞媒的
+No sólo de los empresarios, medios de comunicación
 
-该调查称，英国学者与有中共军方背景的大学合作，进行了多项敏感的“军民两用技术”的研究，包括无人机、可以发射导弹的电磁技术、航空航天材料、雷达、干扰装置和高效能电池等。
+不管你多大岁数
+No importa a qué edad tengas
 
-参考信息：
-[UK Universities May Be Helping China Develop Hi-tech Weapons: Report](https://www.theepochtimes.com/uk-universities-may-be-helping-china-develop-hi-tech-weapons-report_4259918.html?utm_source=ref_share&amp;utm_campaign=copy&amp;rs=SHRKVP&amp;)
+我就今天奉劝所有的同胞
+Hoy sugiero a todos los compatriotas
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+包括全世界的人
+Incluyendo a todas las personas del mundo
 
-总编/编辑：飞虹
-校对/发稿：为真不破20
+有点良知的
+Que tengan un poco de conciencia
 
-**更多资讯，更多关注**
+看一看所有和中国共产党打交道的下场
+Vean el destino de todo aquello que han tenido tratos con el PCCh
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+马云, 赵本山, 宋祖英
+Jack Ma, Zhao Benshan, Song Zuying
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+香港, 台湾的歌星
+Los cantantes de Hong Kong y Taiwán
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+以及美国的政要, 欧洲的政要
+Dignatarios estadounidenses y europeos
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+欧洲的主席, 包括这梵蒂冈
+Presidentes de Europa, incluyendo al Vaticano
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+梵蒂冈给七哥送这啥意思知道吗
+Sabes por qué el Vaticano me regaló esto
 
+梵蒂冈教皇给你送这个袖扣的时候
+Cuando el Papa del Vaticano te regala estos gemelos
 
+就是把你当成大主教级的
+Significa que te trata como un arzobispo
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+和他平级的才能给你
+Porque estás al mismo nivel que él
 
+你以为啥呢
+Qué crees tu
 
+最后告诉全世界人们
+Finalmente, les digo a todas las personas del mundo
+
+聪明的人民, 智慧的人民
+Gente inteligente y sabia
+
+永远要记住
+Recuerden siempre
+
+珍惜生命, 远离中共
+Aprecien la vida y aléjanse del PCCh
+
+* * *
+
+日期：02/07/2022
+原视频标题：全世界人民，珍惜生命，远离中共
+Personas de todo el mundo, aprecien la vida, aléjense del PCCh
+
+原视频日期：02/05/2022
+原视频网址：**[https://gettr.com/post/psk3ic0daa](https://gettr.com/post/psk3ic0daa)**
+任务编号：KC447（3674）
+视频时间段：0:00-01:09
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场-小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
