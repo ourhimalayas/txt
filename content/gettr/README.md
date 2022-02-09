@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/9/2022 12:47 PM (UTC)`
+
+2022年2月9日 文贵大直播：习普政治困局；中美俄三角斗；药厂政策调整；药厂政府互掐；何为全球货币；七哥个人生活
+![img](https://media.gettr.com/group30/origin/2022/02/09/12/88bb04d3-500b-0467-8ac1-faffcdbb7a4b/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 2/8/2022 8:19 PM (UTC)`
 
 2月8号：尊敬的战友们好！今天早上发出盖特以后，很多战友关心是我要公布什么事？七哥要公布是很小很小的个人事儿，只是和我个人有关……和其他没有关系，请大家不要多想，谢谢！
@@ -148,13 +155,6 @@ Ms. Christine Anderson said, "Whenever a political entity resorts to extortion a
 `@harnwell 2/5/2022 5:44 PM (UTC)`
 
 This is the BIG ONE I previewed on @WarRoom a little earlier regarding the Covid Squid Games.<br/><br/>Sincere thanks to @Miles Guo for breaking this in Chinese. <br/><br/>Not a single Western MSM outlet has reported this:<br/><br/>*three people have died at Beijing’s Waldorf Astoria hotel — reports noted violent spasms and convulsions before death<br/><br/>*Vladimir Putin is staying at the Waldorf Astoria<br/><br/>*16 people in Putin's personal entourage have been infected — including four or five bodyguards <br/><br/>Our crooked globalist overlords are all together in one place inside Beijing’s sealed triple-locked closed-loop bubble. Time to weld all the exits closed from the outside — Xian City style — and sit it out… <br/><br/>https://gnews.org/1956094
-
----
-
-`@miles 2/5/2022 3:29 PM (UTC)`
-
-2月5号：尊敬的战友们好！所谓的冬奥会开幕式后，所有的参加的外国来宾和现场的战友们的反馈，就是这．三句话……
-![img](https://media.gettr.com/group13/getter/2022/02/05/15/c620a5a0-c68e-fa1f-8bb6-2ea934e6f2fc/out.jpg)
 
 ---
 
