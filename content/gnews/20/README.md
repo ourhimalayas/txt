@@ -2,30 +2,32 @@
 ---
 
 
-## 特鲁多在紧急会议上的发言遭到本党议员的反对
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1977547/)
+## 2022年2月8日 晚 新中国联邦新闻、GTV新闻访谈简报
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1977618/)
 
-#### **编译：Cran**
+作者：香草山翻译部
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/16443734981.png)Image source: CBC.ca
-2月8日，在国会山今日的紧急会议后，自由党议员，乔尔.萊邦德 (Joel Lightbound) 在发布会上表示反对特鲁多有关卡车司机抗议活动的结论。他认为抗议者的担心是合法的，他们不应被解雇。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-4.jpg)
 
-他谈到在过去的几周里有数百名与抗议活动无关的选民联系过他，其中大多数人接种了疫苗，他们在过去的两年里做了应该做的一切。疫情已经影响到加拿大人的心理健康，造成家庭分裂，和因为疫苗接种的选择而失业。
 
-他认为并非所有的人能在家里用电脑来赚钱。那种与世隔绝的痛苦是不同的，而很多人感到未被倾听。加拿大人感到不知出路在何方。但是政治领导却不愿意面对事实。政治领导人未能向公众解释他们继续采取公共卫生措施的理由。比如针对跨境卡车司机的疫苗强制令。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-7.png)
+校对：Stay文苑
 
-“我担心经疫情政治化会破坏公众对卫生机构的信任”。他呼吁各国政府就如何以及何时取消限制令向公众出示明确的线路图。他表示同意政府有关停止抗议活动的立场，但反对特鲁多对抗议者的结论。
+编辑：Stay文苑
 
-抗议者呼吁渥太华结束所有的疫情限制令并表达对政府在疫情中的领导能力不满。抗议组织者希望与总督对话来解决问题。
+发稿：Stay文苑
 
-保守党议员罗奎尔，丹乔（Ruquel Dancho）说 “选民遭受了太多的创伤。我看不出全国各地发生的事情有什么可惊讶的。 这似乎是某种酝酿了两年之久的事情的爆发。而政府一直没有倾听。”
+**新闻**：[https://gtv.org/broadcast/watch/620319bd3621aa7415d7cf75](https://gtv.org/broadcast/watch/620319bd3621aa7415d7cf75)
+**访谈**：[https://gtv.org/broadcast/watch/620321533621aa7415d7d4e3](https://gtv.org/broadcast/watch/620321533621aa7415d7d4e3)
 
-萊邦德表示他曾对疫苗政治化感到不安。自由党内存在与他观点一致的人，他希望推动党内的变革。
+![calendar](https://assets.gnews.org/wp-content/uploads/2022/02/calendar-1.png)
 
-特鲁多表示他理解人民的艰难但疫情的限制令不是永久的。他不同意是自己分裂了人民。民主党所有的议员都完全接种了疫苗。他说：“抗议活动必须停止”。
-
-[Source](https://www.ctvnews.ca/politics/liberal-mp-breaks-ranks-over-pandemic-policies-1.5772722)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

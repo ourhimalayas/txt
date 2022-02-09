@@ -2,18 +2,25 @@
 ---
 
 
-## 樱花头条┃冬奥收视率超低 NBC主播提前返美
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1977624/)
+## 加拿大薩省正式取消疫苗護照
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1977700/)
 
-撰稿：东京樱花团/樱花传媒
-![](https://lh5.googleusercontent.com/xMqhvSpUQ03-6WnLm5-BgQqTz1Q-mrAvmajmLm2VVQzPpcMaZmPVOHcIwhz1ebtlDcWoE-y4PiCdWGBVDI26tM9rR-TqkiqZob4EsnXr39dSuXgcXPFUAQi2zwhG9z2lXCsMCll7)
-根据美国NBC Sports提供的数据，上周五的北京冬奥会开幕式仅吸引了1,600万人观看，成为奥运会历史上收视率新低，比上届2018年平昌冬奥会开幕式的2,380万人下降了约43%。媒体评论，NBC正面临2022年冬奥会观众的“灾难性损失”
+采編：文萊 編譯撰稿：Quitman
+![](https://assets.gnews.org/wp-content/uploads/2022/02/02-image-1.png)
+據加拿大媒體[後千禧年]2月8日報道：薩斯喀徹溫省長斯科特當天宣布，將停止在該省使用疫苗護照，配戴口罩的規定也將於2月底到期。
 
-信息来源：[https://gettr.com/post/ptdfcm6477](https://gettr.com/post/ptdfcm6477)
+報道稱，去年9月推行的疫苗接種證明已在全省造成嚴重的分歧，並因此有效地造成了兩個不同階層公民的製度。盡管目前的疫情有所緩和，但由於疫苗接種已不能有效防止新冠病毒的傳播，疫苗護照已明顯弊大於利，因此該政策應該壽終正寢了。
 
-*编辑：东京樱花团/keyboard racing
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+對此，省長斯科特呼籲公眾不要因為是否已接種了疫苗就去評判他人。並表示，現在不僅是彌合社區在疫苗接種問題上分歧的時候，也到了所有人作為家人和朋友、作為社區、作為一個省、作為一個國家團結一致的時候。
+
+至此，薩斯喀徹溫省成為加拿大第一個取消疫苗護照和將要停止使用口罩的省份。
+
+校對編輯：硫酸羥氯喹64
+
+發稿：苦盡甜來 (文來）
+
+原文鏈接：https://thepostmillennial.com/breaking-saskatchewan-drops-masks-mandate-vaccine-passports
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

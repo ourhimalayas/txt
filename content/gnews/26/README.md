@@ -2,57 +2,23 @@
 ---
 
 
-## 史蒂夫·班农： 在北京举办冬奥会从一开始就是一场骗局
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1977347/)
+## 谈国内情况（六）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1977507/)
 
-> 前白宫首席战略师史蒂夫·班农：
-> 在北京举办冬奥会从一开始就是一场骗局。
-> 
-> 【在视频中，班农先生展示纽约时报的报道，照片显示在北京冬奥会所在地只有山顶有少量积雪，没有大面积自然降雪，说明北京冬奥会就是一个虚假的骗局】[https://t.co/KZSrUinJMw](https://t.co/KZSrUinJMw)
-> — 美国政要直译推 (@zhiyitw33) [February 8, 2022](https://twitter.com/zhiyitw33/status/1491012356625043458?ref_src=twsrc%5Etfw)
+整理：雅典娜速记组
+编辑：皮特
+![](https://assets.gnews.org/wp-content/uploads/2022/02/谈国内情况六--scaled.jpg)
+直播时间：2022.01.26
 
+香槟我这人喝不了香槟，喝两杯香槟就有点晕，我的完了一通那个胡喷，说了那什么唱歌演电影，那英这帮孙子的事儿，不是胡说八道，这把的事情打他们是群奸群宿是真的啊，嗑药啊那不是假的啊。我就是有点高兴对吧，这就是今天我完了以后我一定得喝两杯我这个，来找平衡点的这个红葡萄酒，咱要不小叶老说我有买那个100多块钱欧元的红酒，那么贵买它干嘛？有125的你不买，你非买130的，你那125的比那130的好喝，有时候在家里我挺难的，我们考验也买瓶红酒，贵5块钱也得说说我啊，你看这还有，这你不买了125的，比这130的还好喝，你非得那个我说5块钱就多，我说我常常是吧，到底对比对比。
 
+发布：*皮特*
 
-参议员卢比奥： 一点也不奇怪这么多世界级的运动员在 [#种族屠杀冬奥会上](https://twitter.com/hashtag/%E7%A7%8D%E6%97%8F%E5%B1%A0%E6%9D%80%E5%86%AC%E5%A5%A5%E4%BC%9A%E4%B8%8A?src=hashtag_click) 表现那么差。很多人都埋怨可怕的食物，第三世界水平的住宿，和核酸检测无阳性后仍被作为人质扣留数天。[#北京冬奥会](https://twitter.com/hashtag/%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E4%BC%9A?src=hashtag_click) 是最差的一届奥运会。
-
-
-
-> Not surprised that so many world class athletes are having terrible performances at the [#GenocideOlympics](https://twitter.com/hashtag/GenocideOlympics?src=hash&amp;ref_src=twsrc%5Etfw)
-> 
-> Many are complaining of horrendous food,3rd World accommodations & being held hostage for days after no longer testing positive[#Beijing2022](https://twitter.com/hashtag/Beijing2022?src=hash&amp;ref_src=twsrc%5Etfw) are the worst Olympics ever
-> — Marco Rubio (@marcorubio) [February 8, 2022](https://twitter.com/marcorubio/status/1491040781897203719?ref_src=twsrc%5Etfw)
-
-
-
-众议员吉姆·乔丹： [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 在一家老钢铁厂建造了奥运场馆。 NBC说它“在视觉上令人震惊”
-
-
-
-> The Chinese Communist Party built an Olympic venue at an old steel mill. 
-> 
-> NBC said it was “visually stunning.” [pic.twitter.com/HL7x9P2YPv](https://t.co/HL7x9P2YPv)
-> — Rep. Jim Jordan (@Jim\_Jordan) [February 8, 2022](https://twitter.com/Jim_Jordan/status/1491139485471444992?ref_src=twsrc%5Etfw)
-
-
-
-参议员约翰·肯尼迪： 中国共产党是无情的、他们实行压迫和种族灭绝。我们不能让北京利用美国的军事力量来实现他们的共产主义议程。 【附肯尼迪参议院官网新闻：肯尼迪共同发起提案堵住容许中共国利用美国军事专长的漏洞】
-
-
-
-> The Chinese Communist Party is ruthless, oppressive, and genocidal. We can’t let Beijing exploit America’s military strength for their communist agenda.
->  [https://t.co/XsmTI6hYys](https://t.co/XsmTI6hYys)
-> — John Kennedy (@SenJohnKennedy) [February 8, 2022](https://twitter.com/SenJohnKennedy/status/1491181492416151552?ref_src=twsrc%5Etfw)
-
-
-
-参议员瑞克·斯科特： 美国人支持人权。为什么耐克，可口可乐和NBC不呢？
-
-
-
-> Americans stand up for human rights. Why isn’t [@Nike](https://twitter.com/Nike?ref_src=twsrc%5Etfw), [@CocaCola](https://twitter.com/CocaCola?ref_src=twsrc%5Etfw) or [@NBC](https://twitter.com/nbc?ref_src=twsrc%5Etfw)? 👀⬇️ [pic.twitter.com/uoRiVPETG3](https://t.co/uoRiVPETG3)
-> — Rick Scott (@SenRickScott) [February 8, 2022](https://twitter.com/SenRickScott/status/1491183759110344704?ref_src=twsrc%5Etfw)
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

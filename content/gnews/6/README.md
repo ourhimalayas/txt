@@ -2,24 +2,34 @@
 ---
 
 
-## 加拿大萨省正式取消疫苗护照
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1977643/)
+## 加拿大各省正在取消限制和疫苗护照
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1977752/)
 
-采编：文莱           编译撰稿：Quitman
-![](https://assets.gnews.org/wp-content/uploads/2022/02/02-image.png)
-据加拿大媒体[后千禧年]2月8日报道：萨斯喀彻温省长斯科特当天宣布，将停止在该省使用疫苗护照，配戴口罩的规定也将于2月底到期。
+加拿大温哥华扬帆农场 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2022/02/website-pp-jt.jpg)图片来源： True North
+加拿大保守党议员皮埃尔-波里耶夫（Pierre Poilievre) 于2月8日发推称“爆炸性新闻，自由正在获胜”！
 
-报道称，去年9月推行的疫苗接种证明已在全省造成严重的分歧，并因此有效地造成了两个不同阶层公民的制度。尽管目前的疫情有所缓和，但由于疫苗接种已不能有效防止新冠病毒的传播，疫苗护照已明显弊大于利，因此该政策应该寿终正寝了。
+“各省正在取消限制和疫苗护照，自由党议员周艾-莱特邦德（Joel Lightbound） 谴责了特鲁多的恶毒和控制暴政。
 
-对此，省长斯科特呼吁公众不要因为是否已接种了疫苗就去评判他人。并表示，现在不仅是弥合社区在疫苗接种问题上分歧的时候，也到了所有人作为家人和朋友、作为社区、作为一个省、作为一个国家团结一致的时候。
+请在我的请愿书上签字，以结束疫苗强制、疫苗护照和封锁限制限制https://linktr.ee/pierre4pm”。
 
-至此，萨斯喀彻温省成为加拿大第一个取消疫苗护照和将要停止使用口罩的省份。
+15分钟前他又刚刚发出推文和视频说：“ 阿尔伯塔省于今晚午夜取消疫苗护照！我们正在胜利的路上，继续加油”！
 
-校对编辑：硫酸羟氯喹64
+皮埃尔-波里耶夫是加拿大政治家，自 2004 年以来一直担任国会议员。 作为保守党成员，他目前代表渥太华地区的卡尔顿选区。
 
-发稿：苦尽甜来 (文來）
+他于2月5 日宣布竞选加拿大总理。
 
-原文链接：[https://thepostmillennial.com/breaking-saskatchewan-drops-masks-mandate-vaccine-passports](https://thepostmillennial.com/breaking-saskatchewan-drops-masks-mandate-vaccine-passports)
+
+
+
+
+原文链接：
+[https://twitter.com/PierrePoilievre/status/1491179433033879553](https://twitter.com/PierrePoilievre/status/1491179433033879553)
+[https://twitter.com/PierrePoilievre/status/1491241931103481857](https://twitter.com/PierrePoilievre/status/1491241931103481857)
+
+
+
+编辑，发稿 Spirit
 
  
 

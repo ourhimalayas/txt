@@ -2,24 +2,38 @@
 ---
 
 
-## 加拿大薩省正式取消疫苗護照
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1977700/)
+## 港共政府收紧疫情限聚令为疫苗通行证铺路
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1977771/)
 
-采編：文萊 編譯撰稿：Quitman
-![](https://assets.gnews.org/wp-content/uploads/2022/02/02-image-1.png)
-據加拿大媒體[後千禧年]2月8日報道：薩斯喀徹溫省長斯科特當天宣布，將停止在該省使用疫苗護照，配戴口罩的規定也將於2月底到期。
+作者：纽约磐石农场—在远方
 
-報道稱，去年9月推行的疫苗接種證明已在全省造成嚴重的分歧，並因此有效地造成了兩個不同階層公民的製度。盡管目前的疫情有所緩和，但由於疫苗接種已不能有效防止新冠病毒的傳播，疫苗護照已明顯弊大於利，因此該政策應該壽終正寢了。
 
-對此，省長斯科特呼籲公眾不要因為是否已接種了疫苗就去評判他人。並表示，現在不僅是彌合社區在疫苗接種問題上分歧的時候，也到了所有人作為家人和朋友、作為社區、作為一個省、作為一個國家團結一致的時候。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-3.png)
+台媒报道，2月8日香港特首林郑月娥，宣布最新防疫措施，包括收紧公众聚会人数上限至2人。同时首次将限聚令适用于私人处所，禁止两个家庭在私人地方进行跨家庭聚会。
 
-至此，薩斯喀徹溫省成為加拿大第一個取消疫苗護照和將要停止使用口罩的省份。
+据悉，港共政府授意香港行政会议，通过防疫规例修订，将规管的处所增至23类，包括宗教场所、商场、街市和发廊等地方。其中，还强迫宗教处所，需于2月10日关闭至2月24日凌晨。
 
-校對編輯：硫酸羥氯喹64
+另据港共政府专家顾问、中大呼吸科教授许树昌表示，如果港共政府的上述措施无效，下一步还要考虑限制公民，进行户外活动和交通工具使用，要求乘客使用疫苗通行证。
 
-發稿：苦盡甜來 (文來）
+新闻来源：[https://money.udn.com/money/story/6721/6084558?from=ddd-umaylikenews\_money\_index](https://money.udn.com/money/story/6721/6084558?from=ddd-umaylikenews_money_index)
 
-原文鏈接：https://thepostmillennial.com/breaking-saskatchewan-drops-masks-mandate-vaccine-passports
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-21.jpg)
+
+
+
+编辑/校对/发稿：滚滚长江都是水
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 
