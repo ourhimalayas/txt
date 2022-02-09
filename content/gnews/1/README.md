@@ -2,38 +2,21 @@
 ---
 
 
-## 港共政府收紧疫情限聚令为疫苗通行证铺路
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1977771/)
+## 郭文贵精品视频-无法无天的中国是世界冒险家的乐园
+` cindy` [轉載自GNews](https://gnews.org/zh-hans/1977811/)
 
-作者：纽约磐石农场—在远方
+撰稿：澳喜cindy
 
+中国自从加入WTO，经济上每年从美国获得巨大利益。而中国是一党专政，一党独揽大权。从美国获得的巨额财富被肆意挥霍。腐化了各种政治、经济组织的人员。比如：西方像奥林匹克组织、像NGO组织、联合国组织。他们在美国这个法制的国家没有腐败的机会。他们得不到特权的感觉和特权的待遇和超出司法外的权力。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-3.png)
-台媒报道，2月8日香港特首林郑月娥，宣布最新防疫措施，包括收紧公众聚会人数上限至2人。同时首次将限聚令适用于私人处所，禁止两个家庭在私人地方进行跨家庭聚会。
+中共腐化的这些国际NGO组织到了中国就成了完全放松的、无法律状态。因为中国会给他们特权，杀人都能保护你。这就是为什么西方的社交媒体、好莱坞、华尔街、奥林匹克组织、梵蒂冈、及所有的联合国全军覆没的根本所在。只要去中国，又能赚大钱还合法，国家保护你，没有人挡的住。使中国成为了这些冒险家的天堂，和共产党一起奴役中国人。
 
-据悉，港共政府授意香港行政会议，通过防疫规例修订，将规管的处所增至23类，包括宗教场所、商场、街市和发廊等地方。其中，还强迫宗教处所，需于2月10日关闭至2月24日凌晨。
+中共就是一个邪恶的、卑鄙龌龊的魔鬼，他们用蓝、金、黄先纵容你犯罪，再留下你的证据，到需要之时来威胁你，为他而用。不但把奥委会变成了一个被他威胁的小姐还有世卫组织、世界刑警组织等国际组织、机构都是被它威胁的小姐。
 
-另据港共政府专家顾问、中大呼吸科教授许树昌表示，如果港共政府的上述措施无效，下一步还要考虑限制公民，进行户外活动和交通工具使用，要求乘客使用疫苗通行证。
+*编辑：cindy*
 
-新闻来源：[https://money.udn.com/money/story/6721/6084558?from=ddd-umaylikenews\_money\_index](https://money.udn.com/money/story/6721/6084558?from=ddd-umaylikenews_money_index)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-21.jpg)
-
-
-
-编辑/校对/发稿：滚滚长江都是水
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+【[澳喜文章1](https://gnews.org/zh-hans/author/aujenny/)】
+【[澳喜文章2](https://gnews.org/zh-hans/author/himalaya-australia/)】
 
  
 

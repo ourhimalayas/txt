@@ -2,25 +2,39 @@
 ---
 
 
-## 樱花灭共诗│喜闻盘古再开播
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1977762/)
+## 港共政府收紧疫情限聚令为疫苗通行证铺路
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1977771/)
 
-撰稿：东京樱花团/知即是心
-图片：东京樱花团/夏目&山竹
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-860.png)
-喜闻盘古再开播， 闻妙庆幸泪婆娑；
+作者：纽约磐石农场—在远方
 
-金声玉振绕樑在， 震醒昏梦追随郭。
 
-沙里淘金冠盘古， 妙语滔滔启阿蒙；
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-3.png)
+台媒报道，2月8日香港特首林郑月娥，宣布最新防疫措施，包括收紧公众聚会人数上限至2人。同时首次将限聚令适用于私人处所，禁止两个家庭在私人地方进行跨家庭聚会。
 
-酣畅淋漓疑痴去， 百转千回玉珠成。
+据悉，港共政府授意香港行政会议，通过防疫规例修订，将规管的处所增至23类，包括宗教场所、商场、街市和发廊等地方。其中，还强迫宗教处所，需于2月10日关闭至2月24日凌晨。
 
-盖特链接：[https://gettr.com/post/ptdjb5acc7](https://gettr.com/post/ptdjb5acc7)
+另据港共政府专家顾问、中大呼吸科教授许树昌表示，如果港共政府的上述措施无效，下一步还要考虑限制公民，进行户外活动和交通工具使用，要求乘客使用疫苗通行证。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+新闻来源：[https://money.udn.com/money/story/6721/6084558?from=ddd-umaylikenews\_money\_index](https://money.udn.com/money/story/6721/6084558?from=ddd-umaylikenews_money_index)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-21.jpg)
+
+
+
+编辑/校对/发稿：滚滚长江都是水
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

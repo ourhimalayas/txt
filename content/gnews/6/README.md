@@ -2,35 +2,22 @@
 ---
 
 
-## 加拿大各省正在取消限制和疫苗护照
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1977752/)
+## 台湾中科院传重大腐败案 导弹系统含中共国“淘宝货”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1977758/)
 
-加拿大温哥华扬帆农场 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/02/website-pp-jt.jpg)图片来源： True North
-加拿大保守党议员皮埃尔-波里耶夫（Pierre Poilievre) 于2月8日发推称“爆炸性新闻，自由正在获胜”！
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-858.png)[图片来源](https://club.6parkbbs.com/military/index.php?app=forum&amp;act=threadview&amp;tid=15890186)
+台媒2月9日曝出，近来部署在台湾沿海，由台湾中科院研发、专门追监中共军机的地对空天弓导弹与导弹阵地等武器系统等重要零组件竟来自中共国。相关导弹一旦使用这些瑕疵零件，恐无法导电射出或引爆，势必严重影响国安。
 
-“各省正在取消限制和疫苗护照，自由党议员周艾-莱特邦德（Joel Lightbound） 谴责了特鲁多的恶毒和控制暴政。
+目前已知至少有3家长期承揽中科院标案的厂商，涉以中共国制廉价膺品混充美国原厂正品，或从中共国进口瑕疵品再重新包装，打印军规料号调包，部分零组件甚至在中共国淘宝网站就能买到，价差高达上百倍。
 
-请在我的请愿书上签字，以结束疫苗强制、疫苗护照和封锁限制限制https://linktr.ee/pierre4pm”。
+桃园地检署日前指挥调查局桃园市调处追查，依诈欺、伪造文书及违反《政府采购法》等罪搜索并将相关负责人收押禁见，至于是否有漏网之鱼，专案小组正深入追查。
 
-15分钟前他又刚刚发出推文和视频说：“ 阿尔伯塔省于今晚午夜取消疫苗护照！我们正在胜利的路上，继续加油”！
+消息来源：[天弓导弹爆混杂「淘宝货」零件中科院惊传重大军购弊案](https://www.ettoday.net/news/20220209/2185244.htm)
 
-皮埃尔-波里耶夫是加拿大政治家，自 2004 年以来一直担任国会议员。 作为保守党成员，他目前代表渥太华地区的卡尔顿选区。
-
-他于2月5 日宣布竞选加拿大总理。
-
-
-
-
-
-原文链接：
-[https://twitter.com/PierrePoilievre/status/1491179433033879553](https://twitter.com/PierrePoilievre/status/1491179433033879553)
-[https://twitter.com/PierrePoilievre/status/1491241931103481857](https://twitter.com/PierrePoilievre/status/1491241931103481857)
-
-
-
-编辑，发稿 Spirit
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
