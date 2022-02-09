@@ -2,8 +2,8 @@
 ---
 
 
-## 冬奥开幕是一场老鼠和狮子的游戏
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1980667/)
+## 世界级的高利贷公司
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1980706/)
 
 台灣寶島農場
 
