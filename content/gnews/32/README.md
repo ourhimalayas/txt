@@ -2,22 +2,26 @@
 ---
 
 
-## 中共试图抢先打捞F35战机 偷盗美国技术
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1980986/)
+## 彭帅受访照片露出背后监视人员
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1980985/)
 
-作者：MOS农场 — 柳是多水土透
+作者：纽约香草山 医疗部 – 云豹
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-据美国媒体2月2日消息，中共有三艘打捞船于当天离港，驶向1月份美国F35C战机失事海域。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-17.jpg)
-1月24日，美军一架F35C战机在常规飞行中失事，尽管中共发言人赵立坚曾否认共军试图盗取该军机，但美国军队还是注意到了中共的打捞船只接近事发海域。另一则来自五角大楼的消息也印证了中共的行动。
+2月7日，法国一家媒体刊出了一篇专访彭帅的文章。该媒体是在申请采访彭帅多日后，在冬奥开幕的前一日意外获得采访批准的。
 
-五角大楼的消息人士称，美国不相信中共有足够的打捞能力获得这架飞机，美国在深水科技方面也远远领先中共，但中共的行为非常令人“反感”。
+当日，彭帅在中共奥委会办公室主任王侃陪同下，在北京冬奥委会隔离饭店内接受闭门采访。访谈中，彭帅否认了之前对中共国务院前副总理张高丽性侵的指控，并宣布将要退役。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-16.jpg)
+但是，2月8日，一张访谈时的照片被意外曝光，在照片的镜子中，出现了两位隐藏在屋内的男性影像。有一位男子身着白衣，双手交叉抱在胸前，直接面对彭帅站立，明显在监视彭帅的举动。
 
-参考链接：[中共试图抢先打捞F35战机 偷盗美国技术](https://dailycaller.com/2022/02/02/china-salvage-ships-america-military-f35-lightning-jet-bottom-ocean-sources/)
+在法国媒体刊出彭帅的访谈报导后，外界普遍怀疑彭帅当天是否是在自由意志下表达自己的想法。8日曝光的访谈照片，为外界的怀疑做出了最好的证明。
+
+参考链接：
+1. [彭帅受访照片露出背后监视人员](https://news.ltn.com.tw/news/world/breakingnews/3822791)
+2. [彭帅受访照片露出背后监视人员](https://news.ltn.com.tw/news/world/paper/1499382)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
-总编：Ivy001
+总编：飞虹
 编辑：飞虹
 校对/发稿：Hetangyuese
 

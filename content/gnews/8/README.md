@@ -2,23 +2,24 @@
 ---
 
 
-## 有声|中共继续蓝金黄英国大学 开发或偷盗高科技武器
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1981427/)
+## 有声|日本三井将发行与黄金挂钩的数字货币
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1981435/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-2月6日，据外媒透露，英国的大学大幅增加了与中共军队有关的机构的合作，并可能有助于中共发展高科技武器。
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+据国外媒体2月4日的消息，日本主要财团之一的三井物产株式会社，预计将在2月份发行与金价挂钩的数字货币ZPG，对零售投资者开放。其对应的黄金将由三井从伦敦金属交易所购入，一个ZPG等同于一克黄金。币价将由三井住友银行提供担保，对应以日元计价的黄金。
 
-根据一项调查，英国科学家与跟中共解放军有密切联系的中共机构之间的研究合作数量在六年内增加了两倍，超过了1000次。而自2015年以来，英国大学从这些机构接受了2.4亿英镑的资助。其中，电信巨头华为是主要资金来源，华为已向英国机构捐款4000万英镑，另外还有2000万英镑来自因向解放军提供战斗机、导弹和通讯技术而受到美国政府制裁的公司。
+ZPG大概是日本第一个与黄金挂钩的代币，但在全球范围内不是。ZPG最初会在三井交易所发行出售。
 
-该调查称，英国学者与有中共军方背景的大学合作，进行了多项敏感的“军民两用技术”的研究，包括无人机、可以发射导弹的电磁技术、航空航天材料、雷达、干扰装置和高效能电池等。
+另外，三井还会开发使用此币的手机APP和其他交易系统，而买卖ZPG的客户都会被要求
 
-文字版原文：[中共继续蓝金黄英国大学 开发或偷盗高科技武器](https://gnews.org/zh-hans/1978343/)
+进行KYC审核，该币的交易则会在私人区块链上进行。
 
-音频处理：Fei797
-发稿：Fei797
+文字版原文：[日本三井将发行与黄金挂钩的数字货币](https://gnews.org/zh-hans/1978339/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -26,7 +27,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

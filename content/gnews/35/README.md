@@ -2,20 +2,25 @@
 ---
 
 
-## 摄像机捕捉到冬奥中共速滑运动员的作弊行为
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1980983/)
+## 中共挑维族运动员点燃冬奥火炬 遭媒体批评与关注
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1980981/)
 
-作者：银河系农场—骄子
+作者：纽约香草山教育部 – Naughty(文行)/StevenZ（行侠）
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-2月7日晚，在北京冬奥会室内体育场举办的女子第一组500米短道速滑四分之一决赛中，中共选手范可新被摄影机捕捉到向加拿大选手的冰鞋投掷障碍物，导致加拿大选手查尔斯摔倒。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-14.jpg)
-此视频片段被上传至社交媒体后被删除，最后又被重新发布。此事引发了网上的热议，很多观众表示此小动作过于隐蔽，看了很多次慢动作回放才看到发生了什么。
+在2月4日举行的北京冬奥会开幕式上，中共挑选了新疆维吾尔族女选手衣拉木江作为将火炬嵌入主火炬台的其中一位火炬手，点燃圣火，此举引起了西方媒体的关注和批评。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-13.jpg)
+当天，就有美国媒体注意到这一问题，并立即将这一举动与新疆少数民族遭受迫害联系了起来。6日，美国驻联合国大使托马斯·葛林斐接受媒体采访时表示：”这是中共在试图分散我们对于当前真正问题的关注，维吾尔人正在遭受迫害。”
 
-从视频中可以看到，中共选手范可新把手从旁边运动员布吕内勒的腿上跨过时，向在前方的查尔斯冰鞋下面投掷了障碍物，随即查尔斯摔倒。布吕内勒受到惩罚，查尔斯则获准晋级。
+7日，有媒体跟进报道称，中共选择依拉木江女士，而不是一个更为广为人知的运动员点燃奥运火炬，被广泛认为是中共对全球谴责其迫害新疆人的蔑视。该媒体还注意到，在依拉木江点燃火炬并首次参加比赛后，本应接受媒体采访的她却悄悄溜走了，已经没有任何媒体可以对她进行进一步采访。
 
-据悉，中共选手范可欣曾在2018年韩国冬奥会上因作弊而被取消中国女子3000米接力决赛资格。
+有分析人士认为，中共一再批评其他国家将奥运会政治化，他自己却将奥运政治的意图展现得淋漓尽致。但事与愿违，中共挑选依拉木江女士点燃圣火，本想将其吹捧为民族团结的象征，却再一次让外界彻底看清了他们虚伪的嘴脸。
 
-参考链接：[摄像机捕捉到冬奥中共速滑运动员的作弊行为](https://www.news.com.au/sport/winter-olympics/chinese-stars-eyebrowraising-olympic-act-caught-on-camera/news-story/233e9a5efd33a45709116fe3f09aebbb)
+参考链接：
+1. [中共挑维族运动员点燃冬奥火炬 遭媒体批评与关注](https://www.rfi.fr/en/us-criticizes-china-s-choice-of-olympic-torchbearer)
+2. [中共挑维族运动员点燃冬奥火炬 遭媒体批评与关注](https://www.npr.org/2022/02/04/1078234213/beijing-olympics-flame-torch-uyghur)
+3. [中共挑维族运动员点燃冬奥火炬 遭媒体批评与关注](https://www.nbcnews.com/news/world/winter-olympics-opening-ceremony-beijing-china-rcna14511)
+4. [中共挑维族运动员点燃冬奥火炬 遭媒体批评与关注](https://twitter.com/No3Mos/status/1351675285721198597?s=20&amp;t=oeEiEkApduXuloGTHoxTfQ)
+5. [中共挑维族运动员点燃冬奥火炬 遭媒体批评与关注](https://www.hk01.com/%E5%8D%B3%E6%99%82%E5%9C%8B%E9%9A%9B/732696/%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A7-%E6%96%B0%E7%96%86%E7%B6%AD%E5%90%BE%E7%88%BE%E6%97%8F%E4%BA%BA%E9%BB%9E%E7%87%83%E8%81%96%E7%81%AB-%E7%BE%8E%E6%8C%87%E8%8F%AF%E8%BD%89%E7%A7%BB%E7%84%A6%E9%BB%9E-%E4%B8%AD%E6%96%B9%E5%8F%8D%E9%A7%81)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 

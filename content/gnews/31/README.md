@@ -2,30 +2,35 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年2月9日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1981081/)
+## 中共试图抢先打捞F35战机 偷盗美国技术
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1980986/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-4.jpg)
+作者：MOS农场 — 柳是多水土透
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+据美国媒体2月2日消息，中共有三艘打捞船于当天离港，驶向1月份美国F35C战机失事海域。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-17.jpg)
+1月24日，美军一架F35C战机在常规飞行中失事，尽管中共发言人赵立坚曾否认共军试图盗取该军机，但美国军队还是注意到了中共的打捞船只接近事发海域。另一则来自五角大楼的消息也印证了中共的行动。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-8.png)
-文章仅代表作者本人观点，与Gnews无关
+五角大楼的消息人士称，美国不相信中共有足够的打捞能力获得这架飞机，美国在深水科技方面也远远领先中共，但中共的行为非常令人“反感”。
 
-视频参看：
-[2022.02.09早 《NFSC新闻》](https://gtv.org/video/id=6203c1723621aa7415d8290a)
-[2022.02.09早 G|TV《新闻访谈》](https://gtv.org/video/id=6203cf343621aa7415d841ed)
+参考链接：[中共试图抢先打捞F35战机 偷盗美国技术](https://dailycaller.com/2022/02/02/china-salvage-ships-america-military-f35-lightning-jet-bottom-ocean-sources/)
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+![](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
-![calendar](https://assets.gnews.org/wp-content/uploads/2022/02/calendar-1.png)
+总编：Ivy001
+编辑：飞虹
+校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
