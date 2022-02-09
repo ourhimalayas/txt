@@ -2,27 +2,28 @@
 ---
 
 
-## 有声|美国与中共勾兑 将付出惨痛代价
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1980328/)
+## 韩国累积确诊突破百万 单日确诊连创新高
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1980352/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-2月6日大直播中，郭先生指出，目前中美关系处于绝境。从大清年间开始，中美两国就开始外交通商关系。一个大陆国家和一个海洋国家，两国一旦联合，堪称老天爷赏赐的天作之合。中美两国人民优缺点互补，文化互补，一起合作发展经济，所向无敌。
+作者：纽约香草山-Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月6日，据韩国卫生官员通报称，韩国当天的新增中共病毒确诊病例数再次刷新了该国的单日新增确诊纪录，达到3万8千691例。至此，韩国的累计中共病毒确诊人数突破了100万，同时，其死亡人数也超过了六千人。
 
-历史上，只要是中美关系和谐的时刻，都是繁荣时期。共产党开始深入耕耘中美关系后，为中国乃至世界带来的经济大提速。中国加入世贸组织后，GDP从1.2万亿增长到15万亿，深受美国OEM之益。但对美国来讲，造成很多工人失业，工厂关闭。这种情况如在两国友好的前提下，也是可以继续维持的。然而中共非要和美国作对，释放中共病毒，给美国人民人人扎上两三针疫苗。妄图把国内的虚假擀面杖经济移植到美国，搞全球一党独裁。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-6.jpeg)
 
-虽然在很多高科技方面，美国具有极大优势，但由于OEM全球布置，很多重要的医疗物资在中共国生产，因此，美国为中共病毒疫情付出了惨痛的代价。
+资料显示，自2020年1月起，韩国成为除中共国以外第一个爆发重大中共病毒疫情的国家。随后，韩国政府迅速采取了一系列疫情管控措施，使得韩国的整体确诊及死亡病例数维持在一个较低的水平。
 
-另外，中共利用深度蓝金黄，吸引资本的贪婪本性，一些以追逐利益为梦想的美国人，甚至把中共国当成是冒险家乐园。从事非法活动不仅免受罚，还会得到保护，甚至赚取巨额利益，深受其害的只有中国老百姓。
+然而数据表明，随着中共病毒疫苗的推广，韩国完全接种中共病毒疫苗的人口占总人数的86%，更有超过54.5%的民众已经接种疫苗加强针。为此，自奥米克戎变种病毒扩散以来，韩国的单日新增确诊病例数开始连创新高。
 
-郭先生沉重地警告，在全世界都无法忍受共产党的罪恶，逐渐醒悟开始灭共之时，很多大资本依然在与中共深度勾兑。不付出惨痛的代价，美国不会醒来。
+目前，当地官员宣布，韩国将延长其疫情管控措施至少两周，当中包括商家在晚上9点后实行宵禁的规定，以及限制6人以上的私人聚会等。
 
-文字版原文：[美国与中共勾兑 将付出惨痛代价](https://gnews.org/zh-hans/1975573/)
+参考链接：[South Korea surpasses 1 million total COVID cases with daily record](https://www.reuters.com/world/asia-pacific/skorea-surpasses-1-million-total-covid-cases-with-new-daily-record-2022-02-06/)
 
-音频处理：Fei797
-发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+总编：Jack Li文阳
+编辑：静言
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -31,6 +32,8 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

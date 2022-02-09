@@ -2,12 +2,10 @@
 ---
 
 
-## 新中国联邦的三件大事
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1980646/)
+## 世界级的高利贷公司
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1980706/)
 
 台灣寶島農場
-
-
 
  
 

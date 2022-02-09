@@ -2,8 +2,8 @@
 ---
 
 
-## 冬奥将如何落幕
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1980546/)
+## 未接种疫苗是正确的决定
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1980585/)
 
 台灣寶島農場
 

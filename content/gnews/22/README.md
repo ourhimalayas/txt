@@ -2,39 +2,37 @@
 ---
 
 
-## 乌克兰危机：德国考虑向立陶宛增派部队
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/1980393/)
+## 有声|郭文贵先生谈家庭教育
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1980431/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image003-9.jpg)
-俄乌边境局势紧张之际，德国政府面临压力。基辅期待德国作出更多承诺。德国迄今为止的立场让其它盟友也心生疑虑，但是现在似乎出现转机。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生在2月4日大直播中与战友们分享家庭教育时，有以下三个观点：
 
-据德国之声报道，面对乌克兰危机，德国政府正在与立陶宛讨论向后者增派部队的问题。德国总理肖尔茨将于下周在柏林与爱沙尼亚、拉脱维亚和立陶宛三个波罗的海国家的国家元首和政府首脑举行磋商。
-《纽约时报》另外透露，专家估计，俄罗斯军队已经集结了全面入侵乌克兰所需的大约70%的兵力。美国官员表示，俄罗斯入侵的可能时间是2月下半月–即在北京冬奥会结束后。
+1.孩子不要干涉父母的感情生活。孩子是父母结合以后出生的，在此之前，孩子并不知道父母感情的点滴，不能因为血缘关系而干涉父母。相应的是父母一代的恩怨也不应强加于孩子，并且孩子想跟谁交朋友，要尊重孩子自己的意愿。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-5.jpg)
+2.孩子绝对不可以撒谎。放眼整个社会，撒谎的人都不是什么好人，更加不能让这种恶习蔓延至家庭生活中来。家人之间如果没有信任是很非常可怕的事情。
 
-鉴于乌克兰的紧张局势，美国总统拜登日前下令，向波兰和罗马尼亚增派近3000名士兵。周六（2月5日），第一批增援东欧的美军抵达波兰。波兰军方发言人当天宣布，美国陆军第82空降师的旅战斗群的首批人员已经抵达波兰。
+3.父母要尊重孩子。给孩子自由，让孩子独立，成年以后不干涉孩子的感情生活，爱她所爱。孩子孝顺父母的前提一定是父母给予的充分尊重。郭先生最后强调更重要的是要互相尊重，给双方自由。孩子开心，父母也快乐。
 
+文字版原文：[郭文贵先生谈家庭教育](https://gnews.org/zh-hans/1972004/)
 
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-**推出问题，敲出真相，爆料在路上！**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**请关注和订阅我们的以下账号：**
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-**新西兰伊甸农场盖特**：https://gettr.com/user/himalayanz
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-**【玫瑰看新闻】盖特**：https://gettr.com/user/rosenews
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-**玫瑰看新闻YouTube账号**：
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**Rose news**
-
-**【玫瑰看新闻】推特账号**：
-
-**Rose News (@RoseNews4)a**
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

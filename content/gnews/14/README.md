@@ -2,8 +2,8 @@
 ---
 
 
-## 中共企图利用冬奥让中美关系回暖
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1980478/)
+## 冬奥将如何落幕
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1980546/)
 
 台灣寶島農場
 
