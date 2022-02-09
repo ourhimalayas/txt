@@ -2,26 +2,26 @@
 ---
 
 
-## 白宫国安委全球卫生安全和生化防御高级主管突然要离职
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1977616/)
+## 与中共国做生意应该是非法的
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1977638/)
 
-#### 撰稿：彩虹 
+##### 翻译：Fulin
+校对：精靈藍
+剪辑|字幕：向上James
+编辑：Mttfly
 
-#### 责编：白夜 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-855.png)图片来源：CNBC
-2月8日，《国会山报》报道，一位在拜登政府对中共病毒（COVID-19）疫情方面负有关键作用的白宫高级官员，贝丝·卡梅隆（Beth Cameron），将于今年春天离开她的职位。
+据报道，苹果公司首席执行官蒂姆·库克与中国政府秘密签署了一项为期五年的2750亿美元的交易。摩根大通的杰米·戴蒙因为开了一个中共不喜欢的玩笑而疯狂道歉，他害怕失去在中共国投资。高盛公司首席执行官大卫·所罗门吹嘘他对中共国的长期承诺， 他如何不想卷入政治。但在中共国做生意是一个政治决定。美国价值观使得美国资本家能够享受资本主义带来的财富，但现在他们要赚中共国滴血的金钱而背弃美国价值观。我们需要一个新的犯罪类别，经济叛国罪，来对付这些侵犯人权的经济叛徒。
 
-报道指，卡梅隆在拜登政府应对中共病毒反应和疫情防备工作中一直是一个关键人物。她负责国家安全委员会（NSC）的全球卫生安全和生物防御局，这个办公室在川普政府时期被合并，但在拜登去年上任时又恢复了。卡梅隆在奥巴马政府时期担任过同样的职位。
+视频来源：[Steve Hilton: It should be illegal to do business with China](https://video.foxnews.com/v/6286531726001?playlist_id=929831913001#sp=show-clips)
 
-值得注意的是，国家安全委员会发言人艾米莉·霍恩（Emily Horne）说，卡梅隆将由拉吉·潘贾比（Raj Panjabi）接替，而潘贾比目前在美国国际开发署（U.S. Agency for International Development）担任全球疟疾协调员。根据爆料革命的情报，专门预防中共病毒及解药就是应对疟疾的硫酸羟氯喹（Hydroxychloroquine）和伊维菌素（Ivermectin）。
-
-霍恩在一份声明中说：“贝丝·卡梅隆博士将于今年春天离开国家安全委员会。她是初创团队的关键成员，重建了她以前的办公室，并帮助建立了美国全球COVID-19（中共病毒）应对和加强生物安全。卡梅隆博士将继续留在国家安全委员会，直到春天，以确保工作的强大连续性。”
-
-但是，声明和报道都没有提到卡梅隆突然要离职的原因是什么。
-
-**新闻来源**
-
-[Top health official to depart White House](https://thehill.com/homenews/administration/593412-top-health-official-to-depart-white-house)
+*发布：Mttfly*
+**
+更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

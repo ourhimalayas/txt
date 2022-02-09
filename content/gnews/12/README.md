@@ -2,24 +2,40 @@
 ---
 
 
-## 加拿大薩省正式取消疫苗護照
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1977700/)
+## 宗教领袖敦促扎克伯格废除instagram的儿童计划
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1977748/)
 
-采編：文萊 編譯撰稿：Quitman
-![](https://assets.gnews.org/wp-content/uploads/2022/02/02-image-1.png)
-據加拿大媒體[後千禧年]2月8日報道：薩斯喀徹溫省長斯科特當天宣布，將停止在該省使用疫苗護照，配戴口罩的規定也將於2月底到期。
+作者：银河系农场—骄子
 
-報道稱，去年9月推行的疫苗接種證明已在全省造成嚴重的分歧，並因此有效地造成了兩個不同階層公民的製度。盡管目前的疫情有所緩和，但由於疫苗接種已不能有效防止新冠病毒的傳播，疫苗護照已明顯弊大於利，因此該政策應該壽終正寢了。
 
-對此，省長斯科特呼籲公眾不要因為是否已接種了疫苗就去評判他人。並表示，現在不僅是彌合社區在疫苗接種問題上分歧的時候，也到了所有人作為家人和朋友、作為社區、作為一個省、作為一個國家團結一致的時候。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-5.png)
+近日，宗教领袖发出一封信，敦促meta总裁扎克伯格永久停止该公司针对儿童用户的Instagram版本计划。
 
-至此，薩斯喀徹溫省成為加拿大第一個取消疫苗護照和將要停止使用口罩的省份。
+据悉社交媒体不允许13岁以下的儿童使用，但Meta深知他有此年龄段的用户，这项计划由此而来。此前Meta已经停止了该计划，因为反对声音过多。且该公司曾因其对儿童用户的心理健康、身体形象和安全的潜在影响而受到严格审查。
 
-校對編輯：硫酸羥氯喹64
+宗教领袖的这封信中说，经过大量的冥想和祈祷，我们断言，以不成熟的大脑为目标，进行不道德的数据挖掘，并受商业利益驱动的社交媒体平台不能成为给儿童谋求更大利益的工具。
 
-發稿：苦盡甜來 (文來）
+这封信有70多位宗教领袖签名。 目前Meta拒绝回应此事。
 
-原文鏈接：https://thepostmillennial.com/breaking-saskatchewan-drops-masks-mandate-vaccine-passports
+新闻来源：[https://www.newsmax.com/amp/newsfront/instagram-kids-meta-religious-leaders/2022/02/08/id/1055929/](https://www.newsmax.com/amp/newsfront/instagram-kids-meta-religious-leaders/2022/02/08/id/1055929/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-21.jpg)
+
+
+
+编辑/校对/发稿：滚滚长江都是水
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 

@@ -2,24 +2,26 @@
 ---
 
 
-## 震惊！爱尔兰7名儿童被接种承成人剂量新冠疫苗
-` 全球G系列咨服群` [轉載自GNews](https://gnews.org/zh-hans/1977738/)
+## 德州听证会：新冠疫苗曾造成实验动物死亡
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1977753/)
 
-据irishexaminer新闻网披露：爱尔兰卫生产品监管机构表示，7名儿童被接种了成人剂量的Covid-19疫苗，在七起案件中，其中一名儿童有轻微的不良反应。
+##### 翻译：不要代表我
+校对：枳实
+剪辑|字幕：向上James
+编辑：Mttfly
 
-爱尔兰疫苗接种中心人员在为儿童接种第二针疫苗时通过疫苗卡片发现了这种错误。儿童的辉瑞/BioNTech疫苗（称为Comirnaty）的剂量为10mg，成人剂量为30mg。
+在美国德克萨斯州参议院听证会上，证人表示此前没有一种疫苗像目前新冠疫苗一样，具有如此高的严重住院病例数字和死亡率。其他疫苗如果出现这种情况，都会被第一时间下架。霍尔参议员表示，新冠疫苗研发者实际上曾经启动过动物试验。但是因为动物相继死亡，他们便停止了试验。他们没有做人体试验，然后他们直接把试验性疫苗推向公众。证人对此表示赞同。
 
-爱尔兰健康保护监测中心（HPSC）的数据显示，到2月2日，在疫苗推出一个多月后，17.3%的5-11岁儿童接种了部分疫苗，3.1%的儿童完全接种了疫苗。12至17岁青少年的接种率为75.6%，部分接种率为3.2%
+视频链接：[COVID ‘VIRUS VACCINES’ KILLED THE ANIMALS IN PREVIOUS TRIALS: TEXAS SENATE HEARING](https://www.bitchute.com/video/ct2T806nIALj/)
 
-根据郭先生早前爆料在每剂成人疫苗中的刺突蛋白多达40万个，而刺突蛋白本身就是毒素，这些刺突蛋白会逐渐损失人体免疫功能，对心脏、大脑、生育、怀孕都有着破坏性甚至是不可逆转的影响。
-
-新闻链接：[https://www.irishexaminer.com/news/arid-40802685.html](https://www.irishexaminer.com/news/arid-40802685.html)
-
-编辑:Miyali7768(文玉）
-
-*发布:Miyali7768(文玉）*
-
-
+*发布：Mttfly*
+**
+更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

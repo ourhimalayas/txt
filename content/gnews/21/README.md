@@ -2,32 +2,24 @@
 ---
 
 
-## 2022年2月8日 晚 新中国联邦新闻、GTV新闻访谈简报
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1977618/)
+## 加拿大萨省正式取消疫苗护照
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1977643/)
 
-作者：香草山翻译部
+采编：文莱           编译撰稿：Quitman
+![](https://assets.gnews.org/wp-content/uploads/2022/02/02-image.png)
+据加拿大媒体[后千禧年]2月8日报道：萨斯喀彻温省长斯科特当天宣布，将停止在该省使用疫苗护照，配戴口罩的规定也将于2月底到期。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-4.jpg)
+报道称，去年9月推行的疫苗接种证明已在全省造成严重的分歧，并因此有效地造成了两个不同阶层公民的制度。尽管目前的疫情有所缓和，但由于疫苗接种已不能有效防止新冠病毒的传播，疫苗护照已明显弊大于利，因此该政策应该寿终正寝了。
 
+对此，省长斯科特呼吁公众不要因为是否已接种了疫苗就去评判他人。并表示，现在不仅是弥合社区在疫苗接种问题上分歧的时候，也到了所有人作为家人和朋友、作为社区、作为一个省、作为一个国家团结一致的时候。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-7.png)
-校对：Stay文苑
+至此，萨斯喀彻温省成为加拿大第一个取消疫苗护照和将要停止使用口罩的省份。
 
-编辑：Stay文苑
+校对编辑：硫酸羟氯喹64
 
-发稿：Stay文苑
+发稿：苦尽甜来 (文來）
 
-**新闻**：[https://gtv.org/broadcast/watch/620319bd3621aa7415d7cf75](https://gtv.org/broadcast/watch/620319bd3621aa7415d7cf75)
-**访谈**：[https://gtv.org/broadcast/watch/620321533621aa7415d7d4e3](https://gtv.org/broadcast/watch/620321533621aa7415d7d4e3)
-
-![calendar](https://assets.gnews.org/wp-content/uploads/2022/02/calendar-1.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+原文链接：[https://thepostmillennial.com/breaking-saskatchewan-drops-masks-mandate-vaccine-passports](https://thepostmillennial.com/breaking-saskatchewan-drops-masks-mandate-vaccine-passports)
 
  
 
