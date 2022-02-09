@@ -2,20 +2,22 @@
 ---
 
 
-## 无知成功的代价，习的现状
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1978095/)
+## 以色列“疫苗护照”政策发生重大变更
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/1978170/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+加拿大温哥华扬帆农场    平民正道
 
-*发布：陶子*
+据新加坡《海峡时报》近日报道，以色列政府表示，作为首批推行疫苗护照的国家之一，该国将开始逐步停止使用疫苗护照。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+报道称，以色列政府的疫情工作组最近决定，除了“公众密集聚会的高风险场所外”，餐馆、酒吧、健身房和酒店等大部分公共场所，都将放弃使用疫苗护照。此外，未接种疫苗者也可在不做病毒测试的情况下直接登机旅行。
+
+据悉，该决定是以色列当局在“新冠病毒”感染人数持续保持历史高位的情况下做出的。目前该国的日均新增感染个案已超过6万例。
+
+对此，相关流行病专家指出，以色列政府的上述决定是明智的，因为事实表明，已接种者仍然在被反复感染，而继续推广疫苗护照只是自欺欺人之举。
+
+* * *
+
+编辑： 平民正道    发布：平民正道
 
  
 
