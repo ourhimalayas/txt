@@ -2,19 +2,26 @@
 ---
 
 
-## 西媒头条 — 第168期 – 西媒要闻
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1979651/)
+## 樱花灭共诗│胸疼的土匪
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1979715/)
 
-**制作：喜妹**
+作者：东京樱花团/Loveland
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-28.jpg)
 
-**关注西班牙语媒体每日新闻焦点，真实了解西方社会**。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-6.jpg)
-***素材：ximeifu
-审核：蚂蚁兄弟
-发稿：信心满满***
+|  |
+| --- |
+|  | ![说明: 图片1]() |
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH..jpeg)
 
+明月出天山，樱花灭共间。
+
+长风几万里，灭你一天又一天。
+
+盖特链接：[https://gettr.com/post/ptgtx71f83](https://gettr.com/post/ptgtx71f83)
+
+校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
 
  

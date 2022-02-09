@@ -2,39 +2,36 @@
 ---
 
 
-## 《紐約時報》贊揚中共病毒大流行的應對措施
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1979849/)
+## 美日将在日本西南加强军事储备 剑指中共
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1979992/)
 
-編譯：wenwu
+作者：纽约香草山 医疗部 云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月6日，据日本媒体报导，美日两国正在考虑于日本南端鹿儿岛地区布署无人机队，用以应对中共日益增加的挑衅动作。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-09-上午9.03.00.png)
+据悉，早在今年1月中旬，美日双方就曾经讨论过在最接近台湾的日本国土与那国岛上储备精准导弹，从而在必要时作为提供对台防卫支持的基地。其后，双方又在两国的“2+2”会谈上承诺增加美国和日本的联合共用军事设施，同时，日本也将加强其自卫队在西南诸岛区域的军事部署。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-912.png)新聞來源：[freebeacon.com]
+资料显示，地处日本西南端的与那国岛距离台湾东岸仅有108公里，美日两国在此处布署精准导弹军火可以在对台支援时发挥最快的反应能力。此外，双方在日本南端鹿儿岛鹿屋基地布署无人侦察机及美军部队，除了可以加强对中共的监控外，也可在必要时将其作为及时增补美军部队的前线基地。
 
-北京正在舉辦2022年冬奧會，這意味著在接下來的幾周里，美國媒體對這個殘暴的共產主義政權的報道將比平時更加用力的跪舔。
+报道指出，美日双方正在针对来自中共的威胁展开积极的动作，并认真地准备应对与中共的军事冲突。
 
-例如，就在開幕式在北京舉行的時候，《紐約時報》發表了一篇文章，贊揚中共國對中共病毒（COVID-19）大流行病的專制應對措施：中共政府的“清零”政策，包括嚴格的封鎖和其它強制的行為，已經取得了重大成功。
+参考链接：
+1）[防中國奪島 日本擬在鹿兒島部署美軍無人機部隊](https://www.cna.com.tw/news/aopl/202202060181.aspx)
+2）[日媒：美日將聯合儲備軍火應變 包括鄰近台灣島嶼](https://www.cna.com.tw/news/aopl/202201160199.aspx)
 
-他們怎麼知道它是成功的？因為根據中共國政府的說法，中共國是世界上 COVID-19 死亡率最低的國家之一；《紐約時報》即承認，中共國的數據“不可信”，但又堅持認為中共國“幾乎肯定”在處理這一流行病方面做得很好（僅通過引用官方數據——中共國報告每百萬人中僅有3人死於COVID-19，而美國則有近2700人）。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-David Leonhardt記者和Ian Prasad Philbrick記者寫道：“中共國在控制Covid-19方面的成功已經變成了該政權的公共關系勝利；習近平主席利用中共國對中共病毒的管理來支持他的全球影響力運動，認為中共國的政府專制系統比西方民主國家更好地運作。”
+总编：文特
+编辑：谐趣园
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-這篇文章沒有提到病毒的來源（武漢）或中共國政府最初為淡化病毒的嚴重性所做的努力。
-
-負責製作美國奧運會報道的Comcast子公司 NBC Universal 公司也在開幕式上迅速兜售中共國的宣傳品。《今天》節目主持人薩凡納·格思里（Savannah Guthrie）對選擇一名來自新疆的維吾爾族運動員點燃奧運火炬一事，進行了正面的評論：“這一刻是相當具有挑釁性的，這是中共國國家主席習近平的聲明；這是對包括美國在內的那些西方國家的當面回應，他們稱中共國對[新疆維吾爾族穆斯林]的這種待遇是種族滅絕，並在外交上抵制這些運動會。”
-
-NBC 公司對冬奧會開幕式的報道中，關於在中共國對維吾爾族穆斯林的系統性鎮壓問題上採取了“兩面派”的做法，宣稱西方國家對共產主義政權的（種族滅絕）指控是世紀大謊言。
-
-在其他新聞中，一名荷蘭記者在一次直播中被中共國官員粗暴對待，而新聞集團宣佈，“為中共國利益服務”的黑客竊取了屬於其一些記者和其他雇員的電子郵件和其他文件。
-
-新聞來源：[freebeacon.com][NYT praises China’s pandemic response; NBC presents ‘both sides’ of Uyghur genocide](https://freebeacon.com/media/china-olympics-propaganda/)
-
-* * *
-
-審核：文樂
-校對：花羽
-發布：花羽
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH..jpeg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

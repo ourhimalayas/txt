@@ -2,34 +2,34 @@
 ---
 
 
-## “焚尸”灭迹? B站爆95后员工过劳死公司火速删除该男帐号资料
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1979862/)
+## 香港单日中共病毒确诊数再创新高
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1979993/)
 
-撰稿：东京樱花团/Ob
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-36.png)
-中国大陆劳工权益低落的问题严重，近日知名影音网站“哔哩哔哩”（网称B站）被爆有审核组组长新年加班不幸在公司猝死。据悉，该男25岁，是家中独子，在其传出身亡后，公司立即调动内部员工火速删除该男帐号、资料，致使“身后查无此人”。
+作者：纽约香草山-Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月5日，据相关媒体报道，香港政府当天通报了351例新增中共病毒确诊病例，这也是自中共病毒疫情在香港爆发以来，当地单日新增确诊病例最多的一天。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-09-上午9.03.18.png)
+数据显示，目前，香港的中共病毒疫苗第一针接种率已经高达79.8%，而完全接中共病毒种疫苗的民众占当地总人数的72%，另外，还有超过一百万的香港居民接种了第三剂加强针。
 
-近日一名在B站工作的25岁管姓男子，不幸在新年加班期间过劳死，他生前是B站“武汉AI审核组”组长。相关消息传出后，微博疑似B站官方发给内部员工邮件显示，“网传管男因加班猝死一事，经内部考勤核查，他按照工作计划正常上下班，工作时间为早上9点半至傍晚6点半，做五休二，事发前一周未存在加班等情况。”不过，有声称知情员工表示实在看不下去公司推卸责任的行为，决定出面爆料。
+然而，香港针对中共病毒疫情的相关负责人指出，虽然政府试图加强对中共病毒疫情的管控，但当下仍是香港自疫情爆发以来最严峻，也是最关键的时期。此外，当地的疫情并不乐观，甚至本土病例可能会在近期内呈几何级数上升。
 
-时常分享职场生态、拥有近500万粉丝的微博博主“王落北”7日分享了多名据称是管男同事的爆料投稿，内容指称过年期间因为人手短缺，管男除夕（1月31日）开始被上级要求加班，要上晚间9点到早上9点的班，连上5天后，管男大年初四（4日）出现脑出血昏迷症状，送医急救后于初五（5日）凌晨宣告不治。
+而评论人士则对此表示，虽然港共政府此前强制当地民众接种中共病毒疫苗时曾大肆宣称其在防护病毒与阻止传播方面的有效性，但目前的感染数据表明，中共病毒疫苗对病毒的抑制作用微乎其微。
 
-让人寒心的是，管男出事后，B站火速打压此事，“对外宣称是生病回家了，但是企业微信都已经注销没有他了”，“（对内）谎称人只是在医院，且人事还没上班”。
+参考链接：[Hong Kong reports record daily high of 351 coronavirus cases](https://www.reuters.com/world/china/hong-kong-reports-record-daily-high-351-coronavirus-cases-2022-02-05/)
 
-随着事件持续发酵，B站8日发布邮件确认内容安全中心图文审核部员工“暮色木心”（管男）已经去世。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-目前B站内尚无法搜索到与此事相关的任何内容。
+总编：Jack LI文阳
+编辑：静言
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-是什么让他们如此丧心病狂地做出“毁尸”灭迹的行为，心中有鬼是也；是什么让他们如此丧心病狂地做出“毁尸”灭迹的行为，不能担当是也。在中国利益的驱使已让人们丧失了做人的根本-正直和担当；遇事推脱遮掩，虽说欲盖弥彰却往往能逃脱追责。奇葩的国度，扭曲的行政和司法，使得正义不彰，邪恶得势，是故歪风邪气横行，灾难遍布中华大地。
-
-信息来源：
-
-[B站爆95后员工过劳死 公司火速拦截系统“查无此人”](https://m.secretchina.com/news/gb/2022/02/09/997356.html)
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
