@@ -2,49 +2,24 @@
 ---
 
 
-## 抗议政府不作为，新州护士将发起全行业大罢工
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1979033/)
+## 韩国影帝李炳宪打3剂疫苗仍确诊中共病毒 其妻子也不幸染疫
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1979080/)
 
-#### **了解澳洲时事焦点，尽在雅典娜【聚焦澳洲】**
+撰稿：东京樱花团｜山顶闲人
+![](https://lh3.googleusercontent.com/z66EByMKBuBOPeh993TaCZ-hIUqEcp1XK4gnllIJ0ZqwLvc2a2qEM0KSj9zExMLQhWhy82bCEta1H0Asj_b2sNGT1zHO8kcajzfX-SOwNTfEju6ekSIWkCRL9qNZKBEtBWMHs0by)[*图片来源*](https://s.yimg.com/uu/api/res/1.2/_7yuF77dWFi2HAcdoCt3xw--~B/aD05MDA7dz0xMjAwO2FwcGlkPXl0YWNoeW9u/https://media.zenfs.com/ko/bcc.com.tw/84926f9c817919f4bac97efcb8119f9e)
+影帝李炳宪（前译：李秉宪）活跃于戏剧、电影圈，他近期正在赶拍戏剧《我们的蓝调》，却在9日传来确诊中共病毒（新冠肺炎），所属经纪公司BH娱乐证实该消息，并透露他已接种完3剂疫苗，还是没有躲过病毒感染，目前已中断行程、进入居家隔离治疗。
 
-翻译/编辑：文泓
+李炳宪确诊通报后，妻子李珉廷被分流为密切接触者，因此接受PCR检测，稍早也一并收到确诊中共病毒的通报，所属经纪公司表示，李珉廷是轻症，而她也同样接种完疫苗属于突破性感染的案例。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/81.png)图片来源：AU.Newschant.com
+李炳宪，1995年开始出演电影，是电影电视双栖人气与实力兼备，演技备受好评及信任的韩国国民演员。2016年李秉宪以电影《内部者们》横扫韩国三大电影奖（青龙 + 百想 + 大钟）影帝，是韩国影坛史上唯一同年获大满贯影帝的演员。李炳宪也获得过四次百想视帝和一次百想电影大赏。李秉宪是韩国获得“影帝＋视帝”最多的演员。
 
+远离疫苗，珍惜生命，如不幸感染中共病毒或者注射疫苗，请及时下载Gettr或Gtv了解相关治疗排毒方案。
 
-当地时间2月9日，据天空新闻报道，新南威尔士州护士和助产士协会（NSWNMA）表示，由于对当前人员短缺、工资水平和工作条件的不满，政府让他们“别无选择”，只能投票支持在全州范围内举行罢工。
+新闻来源：[**李炳宪打3剂确诊  同剧演员金宇彬、申敏儿、车胜元全遭殃**](https://star.ettoday.net/news/2185568)
 
-在这次奥密克戎变种病毒肆虐浪潮中，新州公立医院护士已达到可承受的极限，即将举行全州范围的罢工。
-
-NSWNMA将于2月15日开会投票决定是否采取行业行动。如果大多数州分支机构投票支持该行动，则将在近十年来首次在全州范围内举行长达24小时的罢工。
-
-NSWNMA秘书长布雷特·霍姆斯表示，作出这一决定并非易事，但新州政府“除了强迫我们听取他们的意见外，不给我们任何选择”。
-
-他说：“我们不建议轻易采取整个行业联合行动，尤其是在大流行期间。但是，当我们已经陷入危机并且失去了数千名护士时，当前的现状难以为继，我们也无法恢复到新冠疫情之前的人员配备水平。”
-
-霍姆斯先生呼吁，新州政府承诺每个班次配备护士与患者的比例，以及公平的薪酬和新冠疫情津贴。
-
-“随着加班成为常态，员工精疲力竭得不到休息，不断被工作短信骚扰，告诉你有空缺的班次必须填补（加班），”他说道。
-
-“我们的公共卫生系统每年都承受着越来越大的压力，一直靠护士和助产士硬撑着。现在，依然期望他们应付政府‘放任自流’战略所带来的准备不足的后果。”
-
-“然而，由佩罗特州长领导的新州政府拒绝听取我们的呼吁，以及全州值得信赖的专业卫生人员的呼吁。因此，**政府没有给我们其他选择，只能强迫我们让他们倾听并紧急出手解决这场危机。****”**
-
-皇家阿尔弗雷德王子医院——在德尔塔和奥密克戎疫情期间是该州压力最大的医院之一，目前正在考虑进行24小时罢工。
-
-韦斯特米德和坎伯兰的医院预计罢工长达12小时，而利物浦和布莱克敦医院可能采取长达8小时的罢工。
-
-新闻链接：[New South Wales nurses set to strike for the first time in almost a decade as staff reach breaking point over conditions, shortages | Sky News Australia](https://www.skynews.com.au/australia-news/new-south-wales-nurses-set-to-strike-for-the-first-time-in-almost-a-decade-as-staff-reach-breaking-point-over-conditions-shortages/news-story/d008793674fa62f65195367dc874fe36)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

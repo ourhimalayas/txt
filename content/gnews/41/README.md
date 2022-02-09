@@ -2,20 +2,26 @@
 ---
 
 
-## 共产党要活必须靠美国
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1978124/)
+## 辉瑞悄悄地警告“不利的临床试验或安全数据”会影响商业
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1978648/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/02/4-9.jpg)
+图片来源：twitter.com
 
-*发布：陶子*
+零对冲网2月8日报道，二周前美国食品药品监督管理局（FDA）请求德克萨斯法官在第一个月所需上交的5万5千页新冠疫苗数据由辉瑞公司提供。最初FDA要求每个月只交500页。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+现在辉瑞公司原来预估2022年售出与疫情相关的疫苗和药物将达540亿，现在看来有些坏消息了，因为第四季度获利的证据有些关键性改变。
+
+据卢比孔资本的凯里·布朗发推说，这些改变围绕在不利的安全数据公开方面。例如，在Q4中他们加上了“关于临床前期，临床试验期或安全数据的进一步信息，包括审计和检查”。布朗写道，辉瑞现在突出显示“担忧临床数据的公正性…”
+
+该公司还写道，新冠病毒可能本身降低了其严重性和流行性，或者可能完全消失。”
+
+人们不禁要问：辉瑞公司的面纱后面究竟是什么？
+
+##### 新闻来源： [Pfizer Quietly Adds Language Warning That ‘Unfavorable Pre-Clinical, Clinical Or Safety Data’ May Impact Business](https://www.zerohedge.com/covid-19/pfizer-quietly-adds-language-warning-unfavorable-pre-clinical-clinical-or-safety-data-may)
+
+#  
 
  
 

@@ -2,28 +2,103 @@
 ---
 
 
-## 美国商务部增加制裁33家中共公司
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1977229/)
+## 全世界人民，珍惜生命，远离中共
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1978474/)
 
-**撰稿：日本东京方舟农场  海星**
+[https://gtv.org/video/id=620264a9585ecc15d73ef97b](https://gtv.org/video/id=620264a9585ecc15d73ef97b)
 
-2月7日，美国商务部表示，其“未经核实名单”（Unverified List）中将新增加33家中共公司，这些公司必须接受严格的出口管制。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-134.jpg)（图片来源：美国之音）
-据《美国之音》报导，美国商务部的工业与安全局于2月7日发表声明，宣布将33家总部在中共国的公司列入“未经核实名单”，限制美国出口商向这些公司出口产品，并要求与这些公司有业务往来的美国公司进行额外的尽职调查。
+像人一样活着
+Vive como una persona
 
-按照限制措施，美国出口商若想向被列入名单的中共公司发货，必须获得许可证。而这些公司若希望继续接受美国货物，必须出具声明，证明自己是合法的，而且愿意遵守美国的法规。这项举措也是向中共表示，如果希望将这些公司从名单中除名，必须允许美国政府检查这些公司。
+你只要不像畜生一样活着
+Pero mientras tanto no vivas como una bestia
 
-该报导指出，美国政府极其担忧出口到中共国的商用产品会被中共挪作军用。因此，商务部会对一些接受来自美国境内货物的外国公司进行检查，确保这些公司在接受美国产品之后不会将其用于军事。
+还有一个, 你想活下去
+Y hay otro, si quieres sobrevivir
 
-该报导表示，此次被列入名单的中共公司多数是电子公司，也有光学公司、风涡轮叶片公司以及大学的国家实验室等。此前，美国也曾将多家中共公司列入该制裁清单。
+远离中共, 珍惜生命
+Aléjate del PCCh, aprecia la vida
 
-参考链接：
-1.[https://www.voacantonese.com/a/commerce-department-adds-33-parties-in-prc-to-unverified-list-20220207/6431550.html](https://www.voacantonese.com/a/commerce-department-adds-33-parties-in-prc-to-unverified-list-20220207/6431550.html)
-2.[https://home.kpmg/cn/zh/home/insights/2019/04/china-tax-alert-14.html](https://home.kpmg/cn/zh/home/insights/2019/04/china-tax-alert-14.html)
+远离中共, 不仅是演艺圈
+Aléjate del PCCh no es solamente del mundo de espectáculo
 
-素材采编：海星
-编辑：老孙
-发布：爱放飞
+不仅是企业家也不仅是搞媒的
+No sólo de los empresarios, medios de comunicación
+
+不管你多大岁数
+No importa a qué edad tengas
+
+我就今天奉劝所有的同胞
+Hoy sugiero a todos los compatriotas
+
+包括全世界的人
+Incluyendo a todas las personas del mundo
+
+有点良知的
+Que tengan un poco de conciencia
+
+看一看所有和中国共产党打交道的下场
+Vean el destino de todo aquello que han tenido tratos con el PCCh
+
+马云, 赵本山, 宋祖英
+Jack Ma, Zhao Benshan, Song Zuying
+
+香港, 台湾的歌星
+Los cantantes de Hong Kong y Taiwán
+
+以及美国的政要, 欧洲的政要
+Dignatarios estadounidenses y europeos
+
+欧洲的主席, 包括这梵蒂冈
+Presidentes de Europa, incluyendo al Vaticano
+
+梵蒂冈给七哥送这啥意思知道吗
+Sabes por qué el Vaticano me regaló esto
+
+梵蒂冈教皇给你送这个袖扣的时候
+Cuando el Papa del Vaticano te regala estos gemelos
+
+就是把你当成大主教级的
+Significa que te trata como un arzobispo
+
+和他平级的才能给你
+Porque estás al mismo nivel que él
+
+你以为啥呢
+Qué crees tu
+
+最后告诉全世界人们
+Finalmente, les digo a todas las personas del mundo
+
+聪明的人民, 智慧的人民
+Gente inteligente y sabia
+
+永远要记住
+Recuerden siempre
+
+珍惜生命, 远离中共
+Aprecien la vida y aléjanse del PCCh
+
+* * *
+
+日期：02/07/2022
+原视频标题：全世界人民，珍惜生命，远离中共
+Personas de todo el mundo, aprecien la vida, aléjense del PCCh
+
+原视频日期：02/05/2022
+原视频网址：**[https://gettr.com/post/psk3ic0daa](https://gettr.com/post/psk3ic0daa)**
+任务编号：KC447（3674）
+视频时间段：0:00-01:09
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场-小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

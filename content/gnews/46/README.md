@@ -2,12 +2,12 @@
 ---
 
 
-## 不能再向中共国市场注入美元
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1975273/)
+## 基思·凯洛格将军：俄罗斯、中共、伊朗联手
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1976431/)
 
-02/05/2022 知名主持人鲁·道博在战斗室采访中表示：不能再向中共国市场注入美元。
+02/04/2022 基思·凯洛格将军：俄罗斯、中共、伊朗联手，上一次类似情形是1940年的《德意日三国同盟条约》。
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
