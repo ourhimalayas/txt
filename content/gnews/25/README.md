@@ -2,20 +2,39 @@
 ---
 
 
-## 加拿大萨省将正式结束疫苗护照，2月14日起生效！
-` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1980789/)
+## 瑞银在躲避中国亿万富翁的 5 亿美元诉讼中落败
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1980896/)
 
-#### 加拿大温哥华扬帆农场 视频组
+作者：Ellen Millgan
+翻译：Himasally
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-138.jpg)
+瑞银集团在 2015 年因巨额追加保证金通知而被流放的中国亿万富翁提起的 5 亿美元诉讼中败诉。
 
-素材：坐看云起时
-翻译：Kent
-字幕：杰尼龟
+一名伦敦法官裁定，英国确实有权审理与前唐纳德特朗普顾问史蒂夫班农关系密切的富商郭文贵提起的案件，这意味着该诉讼可以继续审理。 对于试图以管辖权理由驳回部分案件的瑞银来说，这是一个打击。
 
-我们不要因为邻居打或不打疫苗而对其评头论足，也不要因为他们是否在接下来的几周内戴或不戴口罩而妄加评论，人们会自行对所面临的风险进行评估，在萨省我们已经要求人们遵守疫苗规则好一段时间了，他们在为自己做评估，也会为他们的家人做评估，他们可能会做出与你不同的决定，而不同的决定可能为你们带来不同的结果，不同的决定不应被评判，而应该被尊重、被接受。
+瑞银和郭的律师没有立即回应置评。
 
-现在开始我们每个个体应作出最大努力去平等对待生活中遇到的每个人，现在也是结束疫苗护照规定的时候了，所以从本周日2月13日午夜起，在萨省，企业及其场馆及省级监管的工作场所内，所有省级的疫苗护照要求将被废止，这意味着从2月14日情人节开始，我们要求的疫苗护照或阴性测试选项将不再是一个省级要求，这就是将要发生的。唯一保留的新冠措施是室内口罩，这项措施仍然有效，直到2月底。
+郭称，瑞银提供了疏忽的建议，导致他借钱购买中国券商海通证券公司的股票暴跌。
 
-编辑/发文：Kent
+一名伦敦法官周三表示，她可以监督此案，因为伦敦是“有害事件”发生的地方，而瑞银的伦敦部门“充分且显着地参与了构成索赔行动的几个要素”。
+
+来源：https://www.bloomberg.com/news/articles/2022-02-09/ubs-loses-bid-to-dodge-chinese-billionaire-s-500-million-suit
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

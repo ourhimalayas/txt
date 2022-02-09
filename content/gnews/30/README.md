@@ -2,8 +2,8 @@
 ---
 
 
-## 加拿大卡车司机反疫苗运动背后的中共渗透警讯
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1980690/)
+## 沼泽地，世界游戏的定义者
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1980735/)
 
 台灣寶島農場
 

@@ -2,26 +2,28 @@
 ---
 
 
-## 秘翻在线 : 瑞银（UBS ）代表的邪恶沼泽地与郭文贵先生代表的正义新中国联邦的大战拉开序幕！
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1980545/)
+## 瑞银在文贵先生面前败下阵来
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1980586/)
 
-**撰稿：William**
+撰稿：小毛牛
+![](https://assets.gnews.org/wp-content/uploads/2022/02/DFB4733C-20D9-4E7E-8519-AEBD62351E47-1.jpg)网络图片：爆料革命发起人郭文贵先生。
+据彭博社报道：瑞银（UBS Group AG）在一份由爆料革命发起人郭文贵先生在伦敦提出的有关5亿美元的法律诉讼中落败！！！
 
-**校对：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-10-004438.jpg)
-图片来源：UBS
+瑞银集团在 2015 年因巨额追加保证金通知而被流放的中国亿万富翁提起的 5 亿美元诉讼中败诉。
 
-根据彭博新闻社（Bloomberg News）的报导, 瑞银集团(UBS Group AG)在 2015 年因巨额追加保证金通知而被旅居美国的中共国亿万富商郭文贵先生提起5 亿美元诉讼，并最终确定可以在伦敦立案。
+在经过长时间的庭前拉锯后，伦敦的一名法官裁定，英国有权审理与美国前总统唐纳德·川普的顾问史蒂夫·班农关系密切的新中国联邦创始人郭文贵先生提起的案件，这意味着该诉讼可以继续审理。显然，对于试图以管辖权为理由请求法院驳回部分案件的瑞银来说，这是一个巨大的打击。
 
-一位伦敦法官裁定，英国确实有权审理郭先生提起的案件，这意味着该诉讼可以继续在英国审理。对于试图以管辖权理由驳回部分案件的瑞银来说，这是一个打击。
+目前，瑞银和郭文贵先生的律师都没有回应对此消息置评请求。
 
-根据报导，郭先生指出瑞银提供了疏忽的建议，导致他借钱购买了中国海通证券股份有限公司( Haitong Securities Co)的股票，该股票后来在市场暴跌。一名伦敦法官周三表示，她可以监督此案，因为伦敦是“有害事件”( “harmful event” )发生的地方，而瑞银的伦敦部门“充分且显著地参与了构成索赔行动的几个要素”。
+郭文贵先生早前指出：由于瑞银提供了不真实的建议，导致他本来借钱购买的中国券商海通证券股价暴跌，因而损失高达5亿美元。
 
-如郭文贵先生所说，这个案件可以成功在伦敦立案意义重大，为此郭先生甚至要改变他的生活方式搬到英国，向世界最大的沼泽地瑞银发起面对面的挑战！
+一名伦敦法官在今天即2022年2月9日表示：她可以监督此案，因为伦敦是“有害事件”发生的地方，而瑞银的伦敦部门“充分且明显地参与了构成索赔的诉讼的几个要素”。
 
-所有新中国联邦的战友们都会站在郭先生的背后，一起同黑暗势力战斗，一切已经开始！
+世界藏匿黑钱的最大黑洞开始坍塌，单伟健及其它CCP的巨大黑钱的来龙去脉将被摊晒在阳光下！！！
 
-**新闻来源：**[https://www.bloomberg.com/news/articles/2022-02-09/ubs-loses-bid-to-dodge-chinese-billionaire-s-500-million-suit](https://www.bloomberg.com/news/articles/2022-02-09/ubs-loses-bid-to-dodge-chinese-billionaire-s-500-million-suit)
+新闻来源：[UBS Loses Bid to Dodge Chinese Billionaire’s $500 Million Suit](https://www.bloomberg.com/news/articles/2022-02-09/ubs-loses-bid-to-dodge-chinese-billionaire-s-500-million-suit)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
 
  
 
