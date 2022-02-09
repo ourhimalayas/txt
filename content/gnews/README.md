@@ -15,125 +15,125 @@
 
 ---
 
-### [香港的疫情，香港人的醒悟](/content/gnews/1/README.md)
+### [从徐州八孩母亲看中共背后的黑暗](/content/gnews/1/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [秘翻在线：他用一句“我被冰讨厌了”，给北京冬奥一记响亮的耳光](/content/gnews/2/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [秘翻在线：比特币不是非法所得的“避风港”](/content/gnews/3/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [广西昨日新增本土确诊病例72例](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2022年2月9日，全球中共病毒疫情情况汇总](/content/gnews/2/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [中共的冬奥会将是习近平断魂的开幕式](/content/gnews/3/README.md)
+### [2022年新中国联邦的重点发展方向](/content/gnews/5/README.md)
  ` 扬帆枫叶快讯`
 
-### [英国支持欧盟向WTO提告中共国贸易胁迫立陶宛](/content/gnews/4/README.md)
+### [新中国联邦将是美国经济崩盘后重建的受益者](/content/gnews/6/README.md)
+ ` 扬帆枫叶快讯`
+
+### [俄罗斯欲将加密货币合法化](/content/gnews/7/README.md)
+ ` 纽约香草山MOS02`
+
+### [中共政治力量代表炮击港府高官左右摇摆](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [福奇的掮客再次获美国国立卫生研究院（NIH）470万美元科研资助](/content/gnews/5/README.md)
- ` 波士顿五月花农场`
-
-### [拜登政府二度批准对台军售](/content/gnews/6/README.md)
+### [香港的疫情，香港人的醒悟](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2022/02/08 墙内世界](/content/gnews/7/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [美国参议员罗恩·约翰逊致信国防部长劳埃德·奥斯汀的一封公开信](/content/gnews/10/README.md)
+ ` 喜马拉雅农场新西兰站`
 
-### [国内超4.5亿人已打新冠疫苗加强针，继续推动给老人注射中共毒疫苗](/content/gnews/8/README.md)
- ` 波士顿五月花农场`
-
-### [郝董谈Hpay：HPay可以帮助运动员绕开经纪公司的盘剥且能合理避税](/content/gnews/9/README.md)
- ` Finance-GCLUB【新西兰财经G乐部】`
-
-### [韩国影帝李炳宪打3剂疫苗仍确诊中共病毒 其妻子也不幸染疫](/content/gnews/10/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共印发《纪检监察机关监督检查审查调查措施使用规定》](/content/gnews/11/README.md)
- ` 儒为`
-
-### [2022/02/07 墙内世界](/content/gnews/12/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [为什么共产党这么买俄罗斯的账？](/content/gnews/13/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [俄罗斯打乌克兰的勇气来自中共输送的钱，欧洲先灭中共再修理俄罗斯](/content/gnews/14/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [抗议政府不作为，新州护士将发起全行业大罢工](/content/gnews/15/README.md)
- ` 走进澳洲`
-
-### [新中国联邦人永远不要忘记灭共初心](/content/gnews/16/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [2022年爆料革命一心一意灭共的7个目标](/content/gnews/17/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美商务部将33家中国实体纳入“未经核实名单”](/content/gnews/18/README.md)
- ` 波士顿五月花农场`
-
-### [新中国联邦与中共不同之处就是有讲公道的地方](/content/gnews/19/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共流氓的春节联欢晚会](/content/gnews/20/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [西方支持中共要付出代价](/content/gnews/21/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [《盲山》导演关心拐卖妇女，女主角却忙着划清界限](/content/gnews/22/README.md)
+### [寻找自性-敦煌坛经新书](/content/gnews/11/README.md)
  ` G-NEWS TAIWAN`
 
-### [参加冬奥会的运动员](/content/gnews/23/README.md)
- ` 骄子`
+### [2022年2月9日，全球中共病毒疫情情况汇总](/content/gnews/12/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [《历史上的今天》2022.02.09](/content/gnews/24/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [中共的冬奥会将是习近平断魂的开幕式](/content/gnews/13/README.md)
+ ` 扬帆枫叶快讯`
 
-### [妥协何处安放](/content/gnews/25/README.md)
- ` 银河勇气之星`
-
-### [拐卖妇女，中共是主犯](/content/gnews/26/README.md)
- ` 澳喜特战旅Gnews`
-
-### [【秘翻新视野】从徐州8孩母亲看中共国的妇女人权](/content/gnews/27/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [英国最大超市的董事长警告说：食品通胀的最糟情况还未到来](/content/gnews/28/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [日本政府将对冬奥参赛选手移动终端的信息安全采取坚定立场](/content/gnews/29/README.md)
+### [英国支持欧盟向WTO提告中共国贸易胁迫立陶宛](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [加拿大：自由捍卫者将在渥太华持续进行抗议活动直到官方停止强制中共病毒疫苗接种](/content/gnews/30/README.md)
- ` 喜马拉雅农场新西兰站`
+### [福奇的掮客再次获美国国立卫生研究院（NIH）470万美元科研资助](/content/gnews/15/README.md)
+ ` 波士顿五月花农场`
 
-### [中共国按不同的规则行事,并以其他国家为代价](/content/gnews/31/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [拜登政府二度批准对台军售](/content/gnews/16/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [澳大利亚新南威尔士州护士十年来首次投票举行罢工](/content/gnews/32/README.md)
- ` 澳喜特战旅Gnews`
+### [2022/02/08 墙内世界](/content/gnews/17/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [参加自由行的加拿大卡车司机或将面临大规模抓捕](/content/gnews/33/README.md)
- ` 墨尔本雅典娜农场`
+### [国内超4.5亿人已打新冠疫苗加强针，继续推动给老人注射中共毒疫苗](/content/gnews/18/README.md)
+ ` 波士顿五月花农场`
 
-### [文贵2022年2月6日大直播：5月份开始，疫苗次生灾难将席卷全球](/content/gnews/34/README.md)
+### [郝董谈Hpay：HPay可以帮助运动员绕开经纪公司的盘剥且能合理避税](/content/gnews/19/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [中共花费重金投资美国的生物制药和基因组学行业，构成严重安全隐患](/content/gnews/35/README.md)
+### [韩国影帝李炳宪打3剂疫苗仍确诊中共病毒 其妻子也不幸染疫](/content/gnews/20/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共印发《纪检监察机关监督检查审查调查措施使用规定》](/content/gnews/21/README.md)
+ ` 儒为`
+
+### [2022/02/07 墙内世界](/content/gnews/22/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [为什么共产党这么买俄罗斯的账？](/content/gnews/23/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [俄罗斯打乌克兰的勇气来自中共输送的钱，欧洲先灭中共再修理俄罗斯](/content/gnews/24/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [抗议政府不作为，新州护士将发起全行业大罢工](/content/gnews/25/README.md)
+ ` 走进澳洲`
+
+### [新中国联邦人永远不要忘记灭共初心](/content/gnews/26/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [2022年爆料革命一心一意灭共的7个目标](/content/gnews/27/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美商务部将33家中国实体纳入“未经核实名单”](/content/gnews/28/README.md)
+ ` 波士顿五月花农场`
+
+### [新中国联邦与中共不同之处就是有讲公道的地方](/content/gnews/29/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共流氓的春节联欢晚会](/content/gnews/30/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [西方支持中共要付出代价](/content/gnews/31/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [参加冬奥会的运动员](/content/gnews/32/README.md)
+ ` 骄子`
+
+### [《历史上的今天》2022.02.09](/content/gnews/33/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [拐卖妇女，中共是主犯](/content/gnews/34/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [【秘翻新视野】从徐州8孩母亲看中共国的妇女人权](/content/gnews/35/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [英国最大超市的董事长警告说：食品通胀的最糟情况还未到来](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国承诺巩固洪都拉斯与台湾邦交](/content/gnews/36/README.md)
- ` 日本东京方舟农场`
+### [文贵2022年2月6日大直播：5月份开始，疫苗次生灾难将席卷全球](/content/gnews/37/README.md)
+ ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [卢比奥呼吁结束支持中共国军事技术发展的美中大学伙伴关系](/content/gnews/37/README.md)
+### [中共花费重金投资美国的生物制药和基因组学行业，构成严重安全隐患](/content/gnews/38/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [卢比奥呼吁结束支持中共国军事技术发展的美中大学伙伴关系](/content/gnews/39/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [共和党议员提出法案，恢复因拒绝接种中共病毒疫苗而被开除的军人](/content/gnews/38/README.md)
+### [共和党议员提出法案，恢复因拒绝接种中共病毒疫苗而被开除的军人](/content/gnews/40/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：北京寄希望于新的美国驻华大使能重建中美关系](/content/gnews/39/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [深圳楼市：市场变冷有投资者一年损失20%](/content/gnews/40/README.md)
- ` 日本东京方舟农场`
 
 ### [新西兰财经G乐部2022年2月9日:财经新闻整理](/content/gnews/41/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`

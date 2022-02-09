@@ -2,48 +2,47 @@
 ---
 
 
-## 抗议政府不作为，新州护士将发起全行业大罢工
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1979033/)
+## 福奇的掮客再次获美国国立卫生研究院（NIH）470万美元科研资助
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1979132/)
 
-#### **了解澳洲时事焦点，尽在雅典娜【聚焦澳洲】**
+作者：波士顿五月花  北美教练陪练
+![](https://assets.gnews.org/wp-content/uploads/2022/02/NIH470.20220209.jpg)
+2022年1月22日，一则生态健康联盟再次获美国国立卫生研究院大笔科研资金的消息走红了网络，让所有人难以置信的是这消息竟然是真的。
 
-翻译/编辑：文泓
+这项科研资金实际于2021年10月26日已经开始，截至日期是2026年10月26日。生态健康联盟是美国的所谓一个非盈利组织。彼得·打杂客（Peter Daszak）是生态健康联盟主席，也是福奇（Anthony Fauci）和中共之间的掮客。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/81.png)图片来源：AU.Newschant.com
+自从冠状病毒大流行以来打杂客和生态健康联盟在全世界可谓臭名昭著。打杂客和生态健康联盟与中共武汉病毒所石正丽一起制造了人造的冠状病毒（所谓的病毒功能增强研究，gain of function）。
+
+2020年2月19日，打杂客与石正丽合作，联合20多位科学家在《柳叶刀》发表文章斥责冠状病毒可能来自实验室的说法是“阴谋论”。
+
+2021年3月，打杂客获北京允许，跻身世卫调查团到中国武汉进行所谓病毒溯源调查，调查的报告结论是：冠状病毒Covid-19来自实验室的可能性极其微小，尽管该调查组并没有获得所需科研记录，也没有被允许对武汉病毒实验室进行深入调查。可以说，打杂客是中共豢养的一条狗，是幕后策划掩饰病毒来源的主使人之一。
+
+鉴于制造了人造冠状病毒实在太臭名昭彰，2021年 6月22日《柳叶刀》杂志不得不更新冠状病毒委员会名单，以”回避”为名，将打杂客与石正丽一起除名。
+
+打杂客和生态健康联盟再次获得大笔NIH科研资助，没有福奇的游说是不可能的。福奇是NIH医学沙皇，通过打杂客和生态健康联盟，多次向中共武汉病毒所输送资金和技术，让美国蒙羞。可以说，福奇双手沾满美国人民、中国人民和全世界人民的鲜血。
+
+不久前， NIH刚刚承认打杂客和生态健康联盟与武汉实验室一起制造了人造病毒，并未 “按照拨款条款的要求”报告其研究结果。这实际是承认了：在美国国会听证会，众目睽睽之下，福奇撒谎！
+
+本应该呆在监狱里或是和福奇一起上绞刑架的打杂客，再次得到NIH的科研资金。真可谓是顶风作案，嚣张至极！表面上这笔资金是给与打杂客和生态健康联盟，这实际上表明，以福奇为代表的医疗邪恶势力依然强大，依仗背后更大的邪恶势力，再次公开向美国人民和中国人民叫板: 老子就是强奸了你，看你怎么办？其实，明眼人都看得出，这只不过是最后的疯狂罢了。法网恢恢，疏而不漏。别看现在闹得欢，将来一定拉清单！
 
 
-当地时间2月9日，据天空新闻报道，新南威尔士州护士和助产士协会（NSWNMA）表示，由于对当前人员短缺、工资水平和工作条件的不满，政府让他们“别无选择”，只能投票支持在全州范围内举行罢工。
 
-在这次奥密克戎变种病毒肆虐浪潮中，新州公立医院护士已达到可承受的极限，即将举行全州范围的罢工。
+**参考文献：**
 
-NSWNMA将于2月15日开会投票决定是否采取行业行动。如果大多数州分支机构投票支持该行动，则将在近十年来首次在全州范围内举行长达24小时的罢工。
+1. [https://www.usaspending.gov/award/ASST\_NON\_72066921CA00006\_7200](https://www.usaspending.gov/award/ASST_NON_72066921CA00006_7200)
+2. [https://thenationalpulse.com/2022/01/22/ecohealth-alliance-receives-higest-grant-following-gof-controversy/](https://thenationalpulse.com/2022/01/22/ecohealth-alliance-receives-higest-grant-following-gof-controversy/)
+3. [https://thenationalpulse.com/2021/10/21/nih-admits-funded-wuhan-gof-reserarch/](https://thenationalpulse.com/2021/10/21/nih-admits-funded-wuhan-gof-reserarch/)
+4. [https://gnews.org/zh-hans/1805028/](https://gnews.org/zh-hans/1805028/)
+5. [https://www.aboluowang.com/2021/0622/1609560.html](https://www.aboluowang.com/2021/0622/1609560.html)
 
-NSWNMA秘书长布雷特·霍姆斯表示，作出这一决定并非易事，但新州政府“除了强迫我们听取他们的意见外，不给我们任何选择”。
 
-他说：“我们不建议轻易采取整个行业联合行动，尤其是在大流行期间。但是，当我们已经陷入危机并且失去了数千名护士时，当前的现状难以为继，我们也无法恢复到新冠疫情之前的人员配备水平。”
+* * *
 
-霍姆斯先生呼吁，新州政府承诺每个班次配备护士与患者的比例，以及公平的薪酬和新冠疫情津贴。
+*编辑：文合*
 
-“随着加班成为常态，员工精疲力竭得不到休息，不断被工作短信骚扰，告诉你有空缺的班次必须填补（加班），”他说道。
+*封面：霹雳鼠年*
 
-“我们的公共卫生系统每年都承受着越来越大的压力，一直靠护士和助产士硬撑着。现在，依然期望他们应付政府‘放任自流’战略所带来的准备不足的后果。”
-
-“然而，由佩罗特州长领导的新州政府拒绝听取我们的呼吁，以及全州值得信赖的专业卫生人员的呼吁。因此，**政府没有给我们其他选择，只能强迫我们让他们倾听并紧急出手解决这场危机。****”**
-
-皇家阿尔弗雷德王子医院——在德尔塔和奥密克戎疫情期间是该州压力最大的医院之一，目前正在考虑进行24小时罢工。
-
-韦斯特米德和坎伯兰的医院预计罢工长达12小时，而利物浦和布莱克敦医院可能采取长达8小时的罢工。
-
-新闻链接：[New South Wales nurses set to strike for the first time in almost a decade as staff reach breaking point over conditions, shortages | Sky News Australia](https://www.skynews.com.au/australia-news/new-south-wales-nurses-set-to-strike-for-the-first-time-in-almost-a-decade-as-staff-reach-breaking-point-over-conditions-shortages/news-story/d008793674fa62f65195367dc874fe36)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+*发布：吐纳*
 
  
 
