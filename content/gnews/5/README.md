@@ -2,25 +2,28 @@
 ---
 
 
-## 《美国竞争法案》中被中共蓝金黄删掉的重要条款
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1977952/)
+## 有声|中共间谍单伟健的斑斑劣迹
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1978148/)
 
-编辑撰稿：硫酸羟氯喹64
-![](https://assets.gnews.org/wp-content/uploads/2022/02/06-image-2.png)
-图片来源：GTV
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月6日郭先生在大直播中爆料，中共文革时期已在考虑，将中俄关系调整为中美关系，因为中共认识到，只有耕耘中美关系，共产党才能维系其统治。文革期间，6000万无辜知识青年被下放到农村。其中能重新回到北京，还能出国的人，绝不是出身普通家庭者能够做到的，单伟健就是其佼佼者。
 
-据2月6日GTV文贵大直播消息透露，在美国众议院刚刚通过针对遏制中共扩张的《美国竞争法案》中，有部分涉及台湾安全的关键性条款，在中共势力的游说之下被迫删除。
+中共在美国特务活动的展开，破坏美国的法治民主，单伟健担任重要戏份。他不仅钻美国法律的空子，赢得美国对当时空白的中国市场趋之若鹜，还大力推行中共窃取美国高端科技和军事技术的“千人计划”。美国很多大资本都和单伟健的PAG有关，就连川普总统都被带进这场骗局之中。美国的养老金经他手被洗走了，现在市面上大型社交媒体网络都被此人控制。
 
-消息称，这些被取消的条款包括：习近平当局若武力攻台，美国政府不仅会立即公开和查封中南坑盗国贼家族的全部海外资产，还将与中共的经济彻底脱钩并断绝双边外交关系等措施。 文贵先生表示，尽管中共利用其在美国的深度渗透和游说能力，成功取消了以上重要条款，但却无法根本影响在美台关系中起主导作用的美国立法会。该法案事实上已明确了美国政府将保护台湾不受中共武力入侵的基本立场，并使美方在中共未来发动台海战争之时，拥有更多军事反击的行动空间。
+文字版原文：[中共间谍单伟健的斑斑劣迹](https://gnews.org/zh-hans/1975856/)
 
-校对编辑：硫酸羟氯喹64
+音频处理/发稿：Daxia
 
-发稿：苦尽甜来 (文來）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-新闻来源：
-
-[https://gtv.org/video/id=61ffc26b3621aa7415d64d51](https://gtv.org/video/id=61ffc26b3621aa7415d64d51)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,38 +2,24 @@
 ---
 
 
-## 港共政府收紧疫情限聚令为疫苗通行证铺路
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1977771/)
+## 《美国竞争法案》中被中共蓝金黄删掉的重要条款
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1977952/)
 
-作者：纽约磐石农场—在远方
+编辑撰稿：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2022/02/06-image-2.png)
+图片来源：GTV
 
+据2月6日GTV文贵大直播消息透露，在美国众议院刚刚通过针对遏制中共扩张的《美国竞争法案》中，有部分涉及台湾安全的关键性条款，在中共势力的游说之下被迫删除。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-3.png)
-台媒报道，2月8日香港特首林郑月娥，宣布最新防疫措施，包括收紧公众聚会人数上限至2人。同时首次将限聚令适用于私人处所，禁止两个家庭在私人地方进行跨家庭聚会。
+消息称，这些被取消的条款包括：习近平当局若武力攻台，美国政府不仅会立即公开和查封中南坑盗国贼家族的全部海外资产，还将与中共的经济彻底脱钩并断绝双边外交关系等措施。 文贵先生表示，尽管中共利用其在美国的深度渗透和游说能力，成功取消了以上重要条款，但却无法根本影响在美台关系中起主导作用的美国立法会。该法案事实上已明确了美国政府将保护台湾不受中共武力入侵的基本立场，并使美方在中共未来发动台海战争之时，拥有更多军事反击的行动空间。
 
-据悉，港共政府授意香港行政会议，通过防疫规例修订，将规管的处所增至23类，包括宗教场所、商场、街市和发廊等地方。其中，还强迫宗教处所，需于2月10日关闭至2月24日凌晨。
+校对编辑：硫酸羟氯喹64
 
-另据港共政府专家顾问、中大呼吸科教授许树昌表示，如果港共政府的上述措施无效，下一步还要考虑限制公民，进行户外活动和交通工具使用，要求乘客使用疫苗通行证。
+发稿：苦尽甜来 (文來）
 
-新闻来源：[https://money.udn.com/money/story/6721/6084558?from=ddd-umaylikenews\_money\_index](https://money.udn.com/money/story/6721/6084558?from=ddd-umaylikenews_money_index)
+新闻来源：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-21.jpg)
-
-
-
-编辑/校对/发稿：滚滚长江都是水
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+[https://gtv.org/video/id=61ffc26b3621aa7415d64d51](https://gtv.org/video/id=61ffc26b3621aa7415d64d51)
 
  
 
