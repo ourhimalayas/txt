@@ -2,33 +2,35 @@
 ---
 
 
-## 欧盟议员公开抨击疫苗暴政
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1972988/)
+## 美国法律草案旨在遏制中国和俄罗斯的影响力
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1974144/)
 
-作者：纽约香草山—侠肝义胆
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-2月7日，据郭文贵先生盖特消息，欧盟议会议员 、德国选择党成员安德森女士日前在欧洲议会发表讲话，猛烈抨击欧盟各国疫苗暴政。安德森女士指出，每当一个政治团体如此强硬地推行他们的疫苗计划，并且为了达到目的而使用威逼利诱的手段时，几乎可以肯定，他们的心里绝对没有人民的利益。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-12.jpg)
-安德森表示，不会注射任何没有经过适当审查和测试、没有可靠科学证据的中共病毒疫苗，也绝对不会为了政府许诺的所谓自由，而去做中共病毒疫苗的小白鼠。她认为，没有人可以给大家自由，因为我们本来就是应该自由的。
+信息来源： 德国世界报
 
-最后，安德森女士强调，即使被欧盟和德国政府关进监狱，也要坚决反对强制疫苗。对此，有评论认为，全球反对疫苗暴政已是大势所趋，任何政党和政府都无法阻止人民反抗强制疫苗的呼声。
+翻译/整理： 意大利罗马达芬奇农场 Shuizhuyu
 
-参考链接：[欧盟议员公开抨击疫苗暴政](https://gettr.com/post/pt1wco98b2)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Wohnen-in-der-Grossstadt-Mexiko.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
-总编：DM
-编辑：DM
-校对/发稿：Hetangyuese
+图片来源： DPA
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+美国国会关于拉丁美洲问题的两个主要声音已经提出了两党立法，以加强美国在该地区的合作，以对抗中国和俄罗斯在该地区日益增长的影响力。
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+佛罗里达州共和党参议员、情报委员会高级成员马尔科·卢比奥和参议院外交关系委员会主席鲍勃·梅南德斯周一提出了一项法案，他们称之为《西半球安全战略法案》。该法案旨在对抗中国和俄罗斯在拉丁美洲的“有害和恶意影响”。
+
+参议员们认为，北京和莫斯科威权政府的“破坏稳定”影响对美国的国家安全利益和该地区的福祉构成了独特的威胁。
+
+如果获得通过，该法案将要求国务院和国防部在 180 天内共同提出一项战略，以增加在西半球针对毒品贩运和跨国犯罪等领域的外交接触和安全援助。具体步骤将包括增加与伙伴国家的军事演习。
+
+马尔科·卢比奥说“在我们地区，没有比俄罗斯和中国对拉丁美洲和加勒比地区日益增加的干预更大的威胁了，”。鲍勃·梅南德斯补充说：“美国必须在加强与美国民主国家的安全伙伴关系方面采取战略性和积极主动性。”该法案承认拉丁美洲的地缘政治重要性。
+
+近年来，中国已取代美国成为拉美多个国家的主要贸易伙伴，同时为包括推出移动网络在内的大量基础设施投资提供资金。美国认为这是一种安全风险。
+
+俄罗斯是古巴、尼加拉瓜和委内瑞拉的主要军事支持和武器供应国——这三个美国在该地区的主要敌人被几代美国政客称为华盛顿的后院。
+
+🔗[美国法律草案旨在遏制中国和俄罗斯的影响力](https://www.welt.de/politik/ausland/article236750269/USA-Gesetzentwurf-will-Chinas-und-Russlands-Einfluss-eindaemmen.html)
+
+编辑发布： Shuizhuyu
 
  
 

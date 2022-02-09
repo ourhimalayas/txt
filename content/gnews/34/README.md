@@ -2,12 +2,32 @@
 ---
 
 
-## 班农先生：任何亲自到场的政府官员，都不是追求推动自由的
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1976417/)
+## 2022年2月8日 晚 新中国联邦新闻、GTV新闻访谈简报
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1977618/)
 
-02/05/2022 班农先生：你不能，去中共的种族灭绝奥运，给习和中共叩头。亲自到场的任何政府，都不是追求推动自由的。
+作者：香草山翻译部
 
-By:【秘密翻译组-精翻组 G-Translators/Elite Team】
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-4.jpg)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-7.png)
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+**新闻**：[https://gtv.org/broadcast/watch/620319bd3621aa7415d7cf75](https://gtv.org/broadcast/watch/620319bd3621aa7415d7cf75)
+**访谈**：[https://gtv.org/broadcast/watch/620321533621aa7415d7d4e3](https://gtv.org/broadcast/watch/620321533621aa7415d7d4e3)
+
+![calendar](https://assets.gnews.org/wp-content/uploads/2022/02/calendar-1.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

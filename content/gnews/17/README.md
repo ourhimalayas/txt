@@ -2,26 +2,28 @@
 ---
 
 
-## 新华社官员声援被拐妇女遭封杀
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1978227/)
+## 有声|多名美国顶尖滑雪选手在冬奥赛道摔倒
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1978261/)
 
-撰稿：东京樱花团/asket
+配音：香草山巡管部– 文凯琳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月7日，北京冬奥会刚开始，就传出多位美国滑雪运动员在比赛中滑倒，面临出局和受伤的双重风险。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/新华社官员声援被拐妇女遭封杀.png)[图片来源](http://www.scio.gov.cn/ztk/dtzt/73/7/Document/1149773/1149773.htm)
+当天，卫冕冠军美国选手米凯拉·希弗林在第一轮中摔倒，爆冷提前出局。希弗林在前两届冬季奥运会上获得了三枚奖牌，两枚金牌一枚银牌。如果这次拿到两枚金牌，就有望与另两名选手并列成为高山滑雪界的最多金牌拥有者。希弗林在该项目上历来都是稳定的典范。她说，前四个闸口感觉良好。但当她绕过第五道门时，突然就失去了平衡，导致了出局。
 
-在北京大肆宣传冬奥之际，江苏徐州“八孩母亲”被铁链锁在小破屋的事件，迅速在网路发酵，引发舆论挞伐。现任中共新华社对外部主任韩松，2月6日在微博发文说，近来自己更关注的是拐卖妇女问题，而不是冬奥。但该条帖子随即被“维稳”删除。
+文字版原文：[多名美国顶尖滑雪选手在冬奥赛道摔倒](https://gnews.org/zh-hans/1976084/)
 
-徐州“八孩母亲”被认为是中共治下拐卖妇女的一个缩影。据《中国走失人口白皮书2020》显示，2020年中国全年走失达100万人次，但具体年龄层比例，一直是个谜。
+音频处理/发稿：Daxia
 
-中国刑法学教授罗翔律师曾说，中共法律对拐卖妇女最重判三年，但贩卖两隻鹦鹉都得判五年以上，一个女人还不如两只鹦鹉，这实在太不公平。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-在中共治下的中国，更加残酷的现实是：大多数的人口贩子，是不会被追责的；而受到惩罚的，往往是揭露人口贩卖的人。
-
-信息来源： [拐卖妇女比冬奥更应关注 新华社官员遭封杀](https://www.ntdtv.com/b5/2022/02/08/a103343134.html)
-
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,16 +2,22 @@
 ---
 
 
-## 美国将在经济危机后有新的腾飞
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1972985/)
+## 支持卡车反疫苗运动 战友三条红线不可跨越
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1972987/)
 
-作者：纽约磐石农场—在远方
+作者：美国纽约香草山农场 – 文鹰
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-1月4日，郭文贵先生在大直播中表示，残忍的资本市场，让美国每次在经济危机和财富转移后，并将淘汰一些所谓的大佬和英雄，开始新的腾飞。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-9.jpg)
-他说，美国从来不留恋过去，永远展望未来，永远是胜者王侯败者寇。目前，好莱坞、经济和科技大洗牌，会让很多跟不上形势的人一贫如洗，但很快就会迎接世界生物及太空科技、量子电脑、新型材料的大腾飞。
+盖特2月6日消息，郭文贵先生在回复各地战友参与支持卡车运动时表示，鼓励战友积极传播真相，同时发出“三条红线”不可跨越的警告。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-11.jpg)
+一：在GTV上直播，不允许打着新中国联邦和爆料革命的旗帜支持卡车司机的暴力行动。
 
-参考链接：[美国将在经济危机后有新的腾飞](https://media.discordapp.net/attachments/888691282275340318/940085316864335902/8cf644433162a906.mp4)
+二：不允许在采访时煽动卡车司机搞暴力行动。
+
+三：不允许使用GTV代表个人，发表鼓励、煽动暴力等行为。
+
+以上三条红线，请新中国联邦所有战友遵守原则。避免再次“杨贝贝事件”，以及中共企图将新中国联邦说成邪教的事件发生。
+
+参考链接：[支持卡车反疫苗运动 战友三条红线不可跨越](https://gettr.com/post/pswoyr9fbf)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 

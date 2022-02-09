@@ -2,32 +2,28 @@
 ---
 
 
-## 哥伦比亚税务局将打击数字货币逃税者
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1978152/)
+## 9万4000多枚，价值36亿美元！美破获最大比特币失窃案
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1978221/)
 
-翻译/编辑：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-02-下午10.11.59-4.png)
-根据《COINGEEK》2月9日报道，随着数字货币在哥伦比亚的应用激增，该国的税务部门正出手打击逃税的比特币（BTC）所有者。在最近的一份声明中，哥伦比亚承认数字货币的采用在该国蓬勃发展，税务机构承诺将对逃税者采取行动。
+撰稿：东京樱花团/asket
 
-与拉丁美洲及其他地区的许多其他司法管辖区一样，哥伦比亚尚未为数字资产领域制定明确的法规。然而，该国的税务机构坚持认为，所有比特币所有者必须为他们的数字货币收入纳税。该国认为这是一种资产。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/9万4000多枚，价值36亿美元！美破获最大比特币失窃案.png)[图片来源](https://news.cnyes.com/news/id/4785686)
 
-被称为哥伦比亚国家税务局（Dirección de Impuestos y Aduanas Nacionales de Colombia，简称DIAN）的机构透露，已经开始采取措施来抓捕逃税的交易者。税务局没有透露将采取什么具体行动，但已对那些没有报告其纳税义务或少报的人发出了严厉的警告。
+美国司法部2月8日宣布，他们已追回2016年失窃的9万4000多枚比特币，这些比特币目前价值36亿美元，查获金额创纪录。
 
-哥伦比亚国家税务局在其声明中表示：目前，使用加密资产在全球范围内成为现实，随着所谓的虚拟货币或加密货币使用的蓬勃发展，哥伦比亚国家税务局已经开始采取行动，旨在控制使用这些资产开展业务的纳税人。
+司法部表示，一对遭控为这些比特币洗钱的夫妇在纽约被捕—34岁的Ilya Lichtenstein和他31岁的妻子Heather Morgan，预定因所控罪名在联邦法院出庭。据称，夫妇两人为2016年从数字货币交易中心Bitfinex骇得的11万9754枚比特币收益洗钱，这些比特币当时价值6500万美元。Bitfinex的总部位于香港。
 
-哥伦比亚是拉丁美洲地区采用数字货币最多的国家之一。虽然这个行业不像阿根廷或委内瑞拉那样大，但近年来一直在积极增长。该国拥有该地区第二多的数字货币自动取款机，仅次于萨尔瓦多。
+根据法庭文件，部分失窃的比特币被送往一个Ilya Lichtenstein控制的电子钱包。约2万5000枚比特币接下来5年透过“错综复杂的加密货币交易，从电子钱包移出”，所得款项被用来购买黄金及NFT（非同质化代币）等物品。
 
-新闻链接：[Colombia taxman cracking down on digital currency tax evaders](https://coingeek.com/colombia-taxman-cracking-down-on-digital-currency-tax-evaders/)
+美国司法部副部长摩纳可（Lisa Monaco）在声明中说：“今天的逮捕，以及司法部历来最高的金融查获，显示加密货币对犯罪分子来说不是安全的避风港。”
 
-发布：tianzhihuan
+郭先生多次透露，比特币是中共洗钱的工具，而总部位于香港的数字货币交易所比特币失窃，让人不由联想到，这次查获的洗钱夫妇，和中共千丝万缕的关系。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+信息来源：[美查获值36亿美元的失窃比特币 金额创纪录](https://www.epochtimes.com/gb/22/2/8/n13563853.htm)
 
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

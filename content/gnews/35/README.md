@@ -2,14 +2,12 @@
 ---
 
 
-## 五月花简报（02/08/2022）
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/1976272/)
+## 基思·凯洛格将军：俄罗斯、中共、伊朗联手
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1976431/)
 
-编辑：波士顿五月花—-冲天一怒
-![](https://assets.gnews.org/wp-content/uploads/2022/02/EBEC4FFC-4E61-4934-B33A-46303ABF3EA1.jpeg)
-*发布：思澈*
+02/04/2022 基思·凯洛格将军：俄罗斯、中共、伊朗联手，上一次类似情形是1940年的《德意日三国同盟条约》。
 
-
+By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
