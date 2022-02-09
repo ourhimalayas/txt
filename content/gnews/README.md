@@ -15,119 +15,119 @@
 
 ---
 
-### [立陶宛、澳大利亚合作，共同对抗中共贸易胁迫](/content/gnews/1/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [美共和党国会议员谴责NBC拒播其新疆人权广告](/content/gnews/2/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [2/9/2022 文贵直播：瑞银UBS的存款和黑账相当于人类过去500年的财富，UBS案能在伦敦法院立案，这在昨天都是很多大咖认为不可能的事情](/content/gnews/3/README.md)
- ` 秘密翻译组-北美组`
-
-### [有声|2022年2月8日 晚 新中国联邦新闻、GTV新闻访谈简报](/content/gnews/4/README.md)
+### [有声|日本三井将发行与黄金挂钩的数字货币](/content/gnews/1/README.md)
  ` MOSREC`
 
-### [2/9/2022 文贵直播：UBS案历经了中共不惜一切代价的阻挠，今天终于在伦敦法院立上案了，意义重大啊](/content/gnews/5/README.md)
+### [有声|大直播谈盘古龙头跟冬奥的关系](/content/gnews/2/README.md)
+ ` MOSREC`
+
+### [有声|中共继续蓝金黄英国大学 开发或偷盗高科技武器](/content/gnews/3/README.md)
+ ` MOSREC`
+
+### [有声|支持卡车反疫苗运动 战友三条红线不可跨越](/content/gnews/4/README.md)
+ ` MOSREC`
+
+### [有声|中共国的人口贩卖](/content/gnews/5/README.md)
+ ` MOSREC`
+
+### [立陶宛、澳大利亚合作，共同对抗中共贸易胁迫](/content/gnews/6/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [美共和党国会议员谴责NBC拒播其新疆人权广告](/content/gnews/7/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [2022年2月9日大直播速记精萃](/content/gnews/8/README.md)
+ ` 雅典娜GNotes`
+
+### [2/9/2022 文贵直播：瑞银UBS的存款和黑账相当于人类过去500年的财富，UBS案能在伦敦法院立案，这在昨天都是很多大咖认为不可能的事情](/content/gnews/9/README.md)
  ` 秘密翻译组-北美组`
 
-### [辉瑞和FDA未能进一步推迟发布COVID疫苗安全数据](/content/gnews/6/README.md)
+### [有声|2022年2月8日 晚 新中国联邦新闻、GTV新闻访谈简报](/content/gnews/10/README.md)
+ ` MOSREC`
+
+### [2/9/2022 文贵直播：UBS案历经了中共不惜一切代价的阻挠，今天终于在伦敦法院立上案了，意义重大啊](/content/gnews/11/README.md)
+ ` 秘密翻译组-北美组`
+
+### [辉瑞和FDA未能进一步推迟发布COVID疫苗安全数据](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [英国加入欧盟-中共国关于立陶宛事件的世贸组织争端解决机制](/content/gnews/7/README.md)
+### [英国加入欧盟-中共国关于立陶宛事件的世贸组织争端解决机制](/content/gnews/13/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共国科学家逃脱并透露了关于高超音速导弹的秘密信息](/content/gnews/8/README.md)
+### [中共国科学家逃脱并透露了关于高超音速导弹的秘密信息](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [NBC体育分析师因未知原因提前从奥运会归国](/content/gnews/9/README.md)
+### [NBC体育分析师因未知原因提前从奥运会归国](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [喜剧演员希瑟·麦克唐纳在演出期间倒地后颅骨骨折](/content/gnews/10/README.md)
+### [喜剧演员希瑟·麦克唐纳在演出期间倒地后颅骨骨折](/content/gnews/16/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [欧盟议员：亲爱的加拿大人，请不要放弃，你们走在正确的道路上](/content/gnews/11/README.md)
+### [欧盟议员：亲爱的加拿大人，请不要放弃，你们走在正确的道路上](/content/gnews/17/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [2月9日文贵大直播（图片）](/content/gnews/12/README.md)
+### [2月9日文贵大直播（图片）](/content/gnews/18/README.md)
  ` 波士顿五月花农场`
 
-### [国王费利佩六世Covid检测呈阳性，将被隔离7天](/content/gnews/13/README.md)
+### [国王费利佩六世Covid检测呈阳性，将被隔离7天](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [谷爱凌替中共夺冠体现中共对美国的极度渗透](/content/gnews/14/README.md)
+### [谷爱凌替中共夺冠体现中共对美国的极度渗透](/content/gnews/20/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [有史以来毒性最强的5种疫苗（1/2）](/content/gnews/15/README.md)
+### [有史以来毒性最强的5种疫苗（1/2）](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共国大城市爆发抗议活动，反抗当局执行清零政策](/content/gnews/16/README.md)
+### [中共国大城市爆发抗议活动，反抗当局执行清零政策](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [冬奥会运动员抨击COVID隔离酒店条件恶劣](/content/gnews/17/README.md)
+### [冬奥会运动员抨击COVID隔离酒店条件恶劣](/content/gnews/23/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [七哥说“普京是唯一一个没有选择炭中取火，炭中取火”（2022-02-06摘录）](/content/gnews/18/README.md)
+### [七哥说“普京是唯一一个没有选择炭中取火，炭中取火”（2022-02-06摘录）](/content/gnews/24/README.md)
  ` MG FARM`
 
-### [文贵爆料 2.9：USB官司正式立案，沼泽地黑金大门洞开](/content/gnews/19/README.md)
+### [文贵爆料 2.9：USB官司正式立案，沼泽地黑金大门洞开](/content/gnews/25/README.md)
  ` 秘密翻译组-原创组`
 
-### [七哥谈中俄贸易清单（2022-02-06摘录）](/content/gnews/20/README.md)
+### [七哥谈中俄贸易清单（2022-02-06摘录）](/content/gnews/26/README.md)
  ` MG FARM`
 
-### [NFSC新闻、G|TV新闻访谈简报|2022年2月9日早](/content/gnews/21/README.md)
+### [NFSC新闻、G|TV新闻访谈简报|2022年2月9日早](/content/gnews/27/README.md)
  ` 纽约香草山MOS01`
 
-### [七哥谈中共不结盟战略（2022-02-06摘录）](/content/gnews/22/README.md)
+### [七哥谈中共不结盟战略（2022-02-06摘录）](/content/gnews/28/README.md)
  ` MG FARM`
 
-### [七哥谈“这个社会没有正义”（2022-02-06摘录）](/content/gnews/23/README.md)
- ` MG FARM`
-
-### [七哥说“中国人的思想彻底地被淹没、被阉奸”（2022-02-06摘录）](/content/gnews/24/README.md)
- ` MG FARM`
-
-### [瑞银在躲避中国亿万富翁的 5 亿美元诉讼中落败](/content/gnews/25/README.md)
- ` MG FARM`
-
-### [中国人噩梦的开始，国人奴性的根源 —《驭民五术》](/content/gnews/26/README.md)
+### [中共试图抢先打捞F35战机 偷盗美国技术](/content/gnews/29/README.md)
  ` NFSC News`
 
-### [加拿大萨省将正式结束疫苗护照，2月14日起生效！](/content/gnews/27/README.md)
- ` 加拿大温哥华扬帆农场视频组`
+### [彭帅受访照片露出背后监视人员](/content/gnews/30/README.md)
+ ` NFSC News`
 
-### [多数媒体对自由车队的报道是歪曲失实的](/content/gnews/28/README.md)
+### [谷爱凌归化中共参赛 疯狂拿下几十家品牌代言](/content/gnews/31/README.md)
+ ` NFSC News`
+
+### [摄像机捕捉到冬奥中共速滑运动员的作弊行为](/content/gnews/32/README.md)
+ ` NFSC News`
+
+### [中共挑维族运动员点燃冬奥火炬 遭媒体批评与关注](/content/gnews/33/README.md)
+ ` NFSC News`
+
+### [七哥谈“这个社会没有正义”（2022-02-06摘录）](/content/gnews/34/README.md)
+ ` MG FARM`
+
+### [中国人噩梦的开始，国人奴性的根源 —《驭民五术》](/content/gnews/35/README.md)
+ ` NFSC News`
+
+### [多数媒体对自由车队的报道是歪曲失实的](/content/gnews/36/README.md)
  ` 温哥华扬帆农场`
 
-### [持续的加拿大自由卡车运动正在逐渐帮助全球民众的觉醒](/content/gnews/29/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [沼泽地，世界游戏的定义者](/content/gnews/30/README.md)
- ` G-NEWS TAIWAN`
-
-### [世界级的高利贷公司](/content/gnews/31/README.md)
- ` G-NEWS TAIWAN`
-
-### [加拿大卡车司机反疫苗运动背后的中共渗透警讯](/content/gnews/32/README.md)
- ` G-NEWS TAIWAN`
-
-### [瑞银在文贵先生面前败下阵来](/content/gnews/33/README.md)
+### [瑞银在文贵先生面前败下阵来](/content/gnews/37/README.md)
  ` 澳喜特战旅Gnews`
 
-### [谁才是抗日战争的真正主力](/content/gnews/34/README.md)
- ` NFSC News`
-
-### [全球央行或将开启“史上最大量化紧缩”](/content/gnews/35/README.md)
- ` NFSC News`
-
-### [韩国累积确诊突破百万 单日确诊连创新高](/content/gnews/36/README.md)
- ` NFSC News`
-
-### [俄媒：华盛顿在太平洋掀起反华浪潮](/content/gnews/37/README.md)
+### [俄媒：华盛顿在太平洋掀起反华浪潮](/content/gnews/38/README.md)
  ` 墨尔本雅典娜农场`
-
-### [台湾陆委会坚决反对中共虚假的民主协商](/content/gnews/38/README.md)
- ` NFSC News`
 
 ### [2022年2月9日郭先生大直播 文字同步精要](/content/gnews/39/README.md)
  ` 焦點20分`

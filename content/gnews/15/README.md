@@ -2,55 +2,51 @@
 ---
 
 
-## 有史以来毒性最强的5种疫苗（1/2）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1981192/)
+## NBC体育分析师因未知原因提前从奥运会归国
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1981267/)
 
-翻译： Jenny Ball
+编译： Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Covid-19-Montage-Vaccine-Syringe.jpg)图片来源：S.D. Wells（naturalnews.com）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/20220209072007400.png)图片来源：aboluowang.com
 
-自然新闻 – 如果大众媒体和大型制药公司的资金，不是印制和宣传疫苗“安全有效”寓言背后的原因，那么科学将证明并非如此。如果美国的医生批评或质疑疫苗，他们会立即被 AMA、CDC 和 FDA 封口，他们都被教导：将任何因注射和接种疫苗造成的伤害或死亡归咎于其他任何事情，而这些注射和接种从未被科学证明是安全或有效的。即使是经过同行评审的疫苗研究也是伪造、编造和歪曲的，以达到他们想要发表的结果，事实上，其中一些研究已经被揭露是计算机生成的欺诈行为，不得不撤回。
+据美联社报道，这位广受欢迎的 NBC 体育分析师迈克·蒂里科（Mike Tirico）将在周一晚间播出后返回美国。他最初定于周四之前都在中国。
 
-疫苗的原理是真实的，但它们的设计不是为了预防疾病，而是在所有人体系统中引起紊乱。
+根据同一份美联社报道，NBC 官员认为，蒂里科的“日程安排可能会根据 COVID-19 和其他因素发生变化”。 虽然目前还不清楚赛程为何突然改变，但值得注意的是，蒂里科在奥运报道中讨论了中国对少数民族的种族灭绝。
 
-神经系统、免疫系统、消化系统和血管系统，现在都受到有毒疫苗的轰炸，导致慢性疾病和死亡，这不仅仅是一个长期的问题。医生和科学家正在吹嘘 Covid 注射，这根本不是真正的疫苗。过去，疫苗被设计用来破坏良好的肠道细菌，但现在它们会改变人体细胞，从内部产生毒素。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unknown-18.png)图片来自原文
 
-脊髓灰质炎疫苗传播了癌症。大多数人不知道这一点。猿猴病毒 40 (SV40) 在 1955 年至 1963 年间被注射到 1 亿美国人的脊髓灰质炎疫苗中发现。如果您不知道，SV40 是一种促癌病毒，CDC 曾经在他们的网站上有一个关于它的事实页面。据估计，多达 3000 万美国人可能受到了污染剂量。得了癌症。检查医生和护士从未向您读过插页上列出的疫苗成分。
+“与这届奥运会有关的一切和每个人都面临着问题。美国政府不在这里，今年秋天加拿大、英国和澳大利亚加入了外交抵制，由于中国的人权记录和美国政府宣布中国共产党对西部新疆的维吾尔穆斯林人口实施种族灭绝罪的声明， 据《媒体》（Mediaite）报道，蒂里科在共产主义独裁统治下的奥运会开始时说道。 他还提到，中国是“新冠病毒起源的国家”。
 
-这让我们想到了有史以来最毒的 5 种伤害人体的疫苗：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unknown-1-7.png)图片来自原文
 
-#1.  Covid mRNA 和蛋白质有效载荷注射“疫苗”和“加强剂” [“vaccines” and “boosters”](https://www.naturalnews.com/2022-02-04-unnatural-blood-clots-found-dead-bodies-vaccinated.html)
+推文内容： NBC奥运会/蒂里科现在就中国政府做了一个相当实质性的报道，包括彭帅。
 
-#2. 多剂量流感疫苗（又名流感疫苗 [influenza vaccine](https://naturalnews.com/2018-10-04-flu-shot-warning-vaccine-endangers-pregnant-women-and-babies.html)）
+显然，为何蒂里科提前几天返回美国尚不清楚，我相信会有一个非常合理的解释。
 
-#3. 人乳头瘤病毒疫苗（[papillomavirus virus vaccine](https://naturalnews.com/055471_HPV_vaccines_whistleblower_vaccine_injury.html) HPV）
+表面上，他将参与 NBC 的超级碗现场转播。但是，如果我们不问是否与他报道内容有联系，那就太愚蠢了。
 
-#4. 麻疹/腮腺炎/风疹疫苗 ([Measles/mumps/rubella](https://naturalnews.com/049273_MMR_vaccine_autism_Andrew_Wakefield.html) MMR)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unknown-2-4.png)推特标语：种族灭绝运动会，共产主义暴行。（图片来自原文）
 
-#5. 轮状病毒疫苗[Rotavirus vaccine](https://naturalnews.com/2021-03-22-other-china-virus-deadly-chinese-pig-circovirus-rotavirus-vaccine.html)
+在与中共打交道时，美国公司是出了名的软弱。他们宁愿卑躬屈膝也不愿挺起脊椎。
 
-今天的疫苗，不仅包含他们甚至没有解决的疾病的活版本，还包含转基因生物，来自受感染的牛、猪、鸡和猴子的激素，未经测试的病毒组合（如 H1N1）、铝、汞、乳化剂和来自动物、蚊子和患病的人类的杂交细菌。 以下是其他一些根本不应该被批准使用的有毒疫苗，更不用说被认为是“安全有效”了。
+蒂里科在他的平台上讨论了中共可怕的人权记录，他现在要回家了，要 尽多地阅读这方面内容！
 
-麻疹活病毒疫苗：（Attenuvax）由默克公司制造。给予两次注射；一个在 1 岁，另一个在 4 岁。含有明胶、山梨糖醇、氯化钠、牛血清、鸡蛋蛋白和人白蛋白。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unknown-3-4.png)推文：ESPN明星对中共国人权记录的猛烈评论。（图片来自原文）
 
-麻疹和腮腺炎活病毒疫苗： (MMR) 由默克公司制造。注射到一岁的婴儿体内。含有明胶、山梨糖醇、氯化钠、牛血清和人白蛋白。
+希望越来越多的人通过他们的平台来关注中共践踏人权的问题。这是人们希望看到的。
 
-白喉、破伤风和脊髓灰质炎疫苗（百白破）：在 2 至 6 岁之间进行五次注射，并每 10 年“推荐”一次加强剂。含有甲醛、苯氧乙醇和磷酸铝。
+评论：中共可以举国和外交官当面指责美国的人权和种族歧视，但是，如果别人指出他们已经有证据证明的种族灭绝罪，活摘人体器官，中共就恼羞成怒指责的别人是种族歧视。没有见过中共这么无耻的。
 
-白喉、破伤风、百日咳；脊髓灰质炎；乙肝和 B 型流感嗜血杆菌：给予 2 至 12 个月大的婴儿，不到一年后加强免疫。含有氢氧化铝、甲醛和牛血清。
-
-加德西人乳头瘤病毒**HPV**：默克公司生产的人乳头瘤病毒疫苗。为患有罕见性传播疾病的 9 岁儿童使用。含有聚山梨醇酯 80、氯化钠、铝和病毒的“变性”（碎片和减弱）形式。
-
-在文章的第二部分见这些毒疫苗的副作用的危害。
-
-**参考资料：**[naturalnews][The 5 most TOXIC VACCINES ever invented and how they maim and kill humans](https://www.naturalnews.com/2022-02-07-5-most-toxic-vaccines-ever-invented.html)
+**参考资料：**[dailycaller][Mike Tirico Is Returning Early From The Olympics For Unknown Reasons](https://dailycaller.com/2022/02/07/mike-tirico-returning-early-olympics-nbc-china-genoice-comments/)
 
 * * *
 
 *审核：文乐
-校对：阿伯塔
+校对：小东
 发稿：信心的选择*
+
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH..jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

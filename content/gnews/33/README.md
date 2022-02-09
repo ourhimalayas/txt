@@ -2,28 +2,40 @@
 ---
 
 
-## 瑞银在文贵先生面前败下阵来
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1980586/)
+## 中共挑维族运动员点燃冬奥火炬 遭媒体批评与关注
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1980981/)
 
-撰稿：小毛牛
-![](https://assets.gnews.org/wp-content/uploads/2022/02/DFB4733C-20D9-4E7E-8519-AEBD62351E47-1.jpg)网络图片：爆料革命发起人郭文贵先生。
-据彭博社报道：瑞银（UBS Group AG）在一份由爆料革命发起人郭文贵先生在伦敦提出的有关5亿美元的法律诉讼中落败！！！
+作者：纽约香草山教育部 – Naughty(文行)/StevenZ（行侠）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+在2月4日举行的北京冬奥会开幕式上，中共挑选了新疆维吾尔族女选手衣拉木江作为将火炬嵌入主火炬台的其中一位火炬手，点燃圣火，此举引起了西方媒体的关注和批评。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-13.jpg)
+当天，就有美国媒体注意到这一问题，并立即将这一举动与新疆少数民族遭受迫害联系了起来。6日，美国驻联合国大使托马斯·葛林斐接受媒体采访时表示：”这是中共在试图分散我们对于当前真正问题的关注，维吾尔人正在遭受迫害。”
 
-瑞银集团在 2015 年因巨额追加保证金通知而被流放的中国亿万富翁提起的 5 亿美元诉讼中败诉。
+7日，有媒体跟进报道称，中共选择依拉木江女士，而不是一个更为广为人知的运动员点燃奥运火炬，被广泛认为是中共对全球谴责其迫害新疆人的蔑视。该媒体还注意到，在依拉木江点燃火炬并首次参加比赛后，本应接受媒体采访的她却悄悄溜走了，已经没有任何媒体可以对她进行进一步采访。
 
-在经过长时间的庭前拉锯后，伦敦的一名法官裁定，英国有权审理与美国前总统唐纳德·川普的顾问史蒂夫·班农关系密切的新中国联邦创始人郭文贵先生提起的案件，这意味着该诉讼可以继续审理。显然，对于试图以管辖权为理由请求法院驳回部分案件的瑞银来说，这是一个巨大的打击。
+有分析人士认为，中共一再批评其他国家将奥运会政治化，他自己却将奥运政治的意图展现得淋漓尽致。但事与愿违，中共挑选依拉木江女士点燃圣火，本想将其吹捧为民族团结的象征，却再一次让外界彻底看清了他们虚伪的嘴脸。
 
-目前，瑞银和郭文贵先生的律师都没有回应对此消息置评请求。
+参考链接：
+1. [中共挑维族运动员点燃冬奥火炬 遭媒体批评与关注](https://www.rfi.fr/en/us-criticizes-china-s-choice-of-olympic-torchbearer)
+2. [中共挑维族运动员点燃冬奥火炬 遭媒体批评与关注](https://www.npr.org/2022/02/04/1078234213/beijing-olympics-flame-torch-uyghur)
+3. [中共挑维族运动员点燃冬奥火炬 遭媒体批评与关注](https://www.nbcnews.com/news/world/winter-olympics-opening-ceremony-beijing-china-rcna14511)
+4. [中共挑维族运动员点燃冬奥火炬 遭媒体批评与关注](https://twitter.com/No3Mos/status/1351675285721198597?s=20&amp;t=oeEiEkApduXuloGTHoxTfQ)
+5. [中共挑维族运动员点燃冬奥火炬 遭媒体批评与关注](https://www.hk01.com/%E5%8D%B3%E6%99%82%E5%9C%8B%E9%9A%9B/732696/%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A7-%E6%96%B0%E7%96%86%E7%B6%AD%E5%90%BE%E7%88%BE%E6%97%8F%E4%BA%BA%E9%BB%9E%E7%87%83%E8%81%96%E7%81%AB-%E7%BE%8E%E6%8C%87%E8%8F%AF%E8%BD%89%E7%A7%BB%E7%84%A6%E9%BB%9E-%E4%B8%AD%E6%96%B9%E5%8F%8D%E9%A7%81)
 
-郭文贵先生早前指出：由于瑞银提供了不真实的建议，导致他本来借钱购买的中国券商海通证券股价暴跌，因而损失高达5亿美元。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
-一名伦敦法官在今天即2022年2月9日表示：她可以监督此案，因为伦敦是“有害事件”发生的地方，而瑞银的伦敦部门“充分且明显地参与了构成索赔的诉讼的几个要素”。
+总编：飞虹
+编辑：飞虹
+校对/发稿：Hetangyuese
 
-世界藏匿黑钱的最大黑洞开始坍塌，单伟健及其它CCP的巨大黑钱的来龙去脉将被摊晒在阳光下！！！
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-新闻来源：[UBS Loses Bid to Dodge Chinese Billionaire’s $500 Million Suit](https://www.bloomberg.com/news/articles/2022-02-09/ubs-loses-bid-to-dodge-chinese-billionaire-s-500-million-suit)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

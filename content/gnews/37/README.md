@@ -2,37 +2,28 @@
 ---
 
 
-## 俄媒：华盛顿在太平洋掀起反华浪潮
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1980327/)
+## 瑞银在文贵先生面前败下阵来
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1980586/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：小毛牛
+![](https://assets.gnews.org/wp-content/uploads/2022/02/DFB4733C-20D9-4E7E-8519-AEBD62351E47-1.jpg)网络图片：爆料革命发起人郭文贵先生。
+据彭博社报道：瑞银（UBS Group AG）在一份由爆料革命发起人郭文贵先生在伦敦提出的有关5亿美元的法律诉讼中落败！！！
 
-整理：Eileen（围剿维尼熊）
-编辑：朝花夕拾
+瑞银集团在 2015 年因巨额追加保证金通知而被流放的中国亿万富翁提起的 5 亿美元诉讼中败诉。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-614.png)图片来源：雅典娜设计组
+在经过长时间的庭前拉锯后，伦敦的一名法官裁定，英国有权审理与美国前总统唐纳德·川普的顾问史蒂夫·班农关系密切的新中国联邦创始人郭文贵先生提起的案件，这意味着该诉讼可以继续审理。显然，对于试图以管辖权为理由请求法院驳回部分案件的瑞银来说，这是一个巨大的打击。
 
+目前，瑞银和郭文贵先生的律师都没有回应对此消息置评请求。
 
-根据参考消息2月9日报道，根据俄罗斯《独立报》网站2月8日题为华盛顿在太平洋掀起反华浪潮的文章内容。
+郭文贵先生早前指出：由于瑞银提供了不真实的建议，导致他本来借钱购买的中国券商海通证券股价暴跌，因而损失高达5亿美元。
 
-美国国务卿布林肯开启亚太之行，目的是提醒该地区的国家，尽管发生了乌克兰危机，美国仍将恪守其反击中国扩张的义务。
+一名伦敦法官在今天即2022年2月9日表示：她可以监督此案，因为伦敦是“有害事件”发生的地方，而瑞银的伦敦部门“充分且明显地参与了构成索赔的诉讼的几个要素”。
 
-首先，美国外交负责人将在墨尔本参加四方安全对话(QUAD)会议，该机制成员还包括日本、澳大利亚和印度。随后，他将访问斐济，试图说服该岛国不要让北京在那里建基地。
+世界藏匿黑钱的最大黑洞开始坍塌，单伟健及其它CCP的巨大黑钱的来龙去脉将被摊晒在阳光下！！！
 
-据路透社报道，布林肯意在重申华盛顿长期战略的重点已经从欧洲转向亚太。然而，从美国负责东亚和太平洋事务的助理国务卿丹尼尔·克里滕布林克的讲话来看，华盛顿担心，在亚太地区，它现在要对付的并不只是一个中国，还有支持中国的俄罗斯。
+新闻来源：[UBS Loses Bid to Dodge Chinese Billionaire’s $500 Million Suit](https://www.bloomberg.com/news/articles/2022-02-09/ubs-loses-bid-to-dodge-chinese-billionaire-s-500-million-suit)
 
-毕竟，莫斯科和北京宣称它们将共同捍卫自己的根本利益。去年，美国、英国和澳大利亚已经宣布成立一个新的军事集团-澳英美联盟(AUKUS)。
-
-参考链接：https://i.ifeng.com/c/8DUGXdQ58qW
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
 
  
 

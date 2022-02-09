@@ -2,20 +2,30 @@
 ---
 
 
-## 加拿大萨省将正式结束疫苗护照，2月14日起生效！
-` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1980789/)
+## NFSC新闻、G|TV新闻访谈简报|2022年2月9日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1981081/)
 
-#### 加拿大温哥华扬帆农场 视频组
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-4.jpg)
 
-素材：坐看云起时
-翻译：Kent
-字幕：杰尼龟
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-8.png)
+文章仅代表作者本人观点，与Gnews无关
 
-我们不要因为邻居打或不打疫苗而对其评头论足，也不要因为他们是否在接下来的几周内戴或不戴口罩而妄加评论，人们会自行对所面临的风险进行评估，在萨省我们已经要求人们遵守疫苗规则好一段时间了，他们在为自己做评估，也会为他们的家人做评估，他们可能会做出与你不同的决定，而不同的决定可能为你们带来不同的结果，不同的决定不应被评判，而应该被尊重、被接受。
+视频参看：
+[2022.02.09早 《NFSC新闻》](https://gtv.org/video/id=6203c1723621aa7415d8290a)
+[2022.02.09早 G|TV《新闻访谈》](https://gtv.org/video/id=6203cf343621aa7415d841ed)
 
-现在开始我们每个个体应作出最大努力去平等对待生活中遇到的每个人，现在也是结束疫苗护照规定的时候了，所以从本周日2月13日午夜起，在萨省，企业及其场馆及省级监管的工作场所内，所有省级的疫苗护照要求将被废止，这意味着从2月14日情人节开始，我们要求的疫苗护照或阴性测试选项将不再是一个省级要求，这就是将要发生的。唯一保留的新冠措施是室内口罩，这项措施仍然有效，直到2月底。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-编辑/发文：Kent
+![calendar](https://assets.gnews.org/wp-content/uploads/2022/02/calendar-1.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
