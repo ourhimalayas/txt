@@ -2,38 +2,40 @@
 ---
 
 
-## 俄媒：华盛顿在太平洋掀起反华浪潮
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1980327/)
+## 谁才是抗日战争的真正主力
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1980394/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+作者：纽约香草山农场-马克文、朱丽叶
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1930年代至1940年代，第二次世界大战东亚战事的主要部分即为中华民国与大日本帝国之间发生的战争，也就是为后人所熟知的“抗日战争”。
 
-整理：Eileen（围剿维尼熊）
-编辑：朝花夕拾
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide12.jpeg)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-614.png)图片来源：雅典娜设计组
+据日本公布的二战在华阵亡数据显示，抗日战争期间，日军共有超过31万人在与国民党军交战时死亡，仅有851日死于中共军队的手中。
 
+另据中华民国国防部的统计数据表明，截至1945年6月，国民党军中少将以上的高级将领在战争中一共牺牲了115人，国军总损失人数达到400多万，死亡约132万人以上，其中海军几乎全军覆没。而根据中共早先的记载，中共抗日部队仅有左权一位将军牺牲，其余总计人员损失约58万人，死亡约16万人。
 
-根据参考消息2月9日报道，根据俄罗斯《独立报》网站2月8日题为华盛顿在太平洋掀起反华浪潮的文章内容。
+通过对二者数据的分析，国军在抗日战争中的伤亡总数达到共军的5.5倍，死亡人数则超过共军的7倍有余。
 
-美国国务卿布林肯开启亚太之行，目的是提醒该地区的国家，尽管发生了乌克兰危机，美国仍将恪守其反击中国扩张的义务。
+鉴于中共长期以来对历史的篡改，2015年8月28日，中华民国国防部在一份声明中强调，八年抗战是由中华民国政府主导，在蒋介石委员长的领导下，全国军民浴血奋战的成果，其历史真相绝不能以任何方式被扭曲与篡改。
 
-首先，美国外交负责人将在墨尔本参加四方安全对话(QUAD)会议，该机制成员还包括日本、澳大利亚和印度。随后，他将访问斐济，试图说服该岛国不要让北京在那里建基地。
+参考链接：
+1.[共军抗战毙敌851人](https://zh.wikipedia.org/wiki/共军抗战毙敌851人)
+2.[国民党抗战死了多少人](http://www.siwapu.com/junshi/25179.html)
 
-据路透社报道，布林肯意在重申华盛顿长期战略的重点已经从欧洲转向亚太。然而，从美国负责东亚和太平洋事务的助理国务卿丹尼尔·克里滕布林克的讲话来看，华盛顿担心，在亚太地区，它现在要对付的并不只是一个中国，还有支持中国的俄罗斯。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-毕竟，莫斯科和北京宣称它们将共同捍卫自己的根本利益。去年，美国、英国和澳大利亚已经宣布成立一个新的军事集团-澳英美联盟(AUKUS)。
+总编：Jack Li文阳
+编辑：Jack Li文阳
+校正/发稿：谐趣园
 
-参考链接：https://i.ifeng.com/c/8DUGXdQ58qW
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

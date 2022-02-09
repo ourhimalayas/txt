@@ -2,34 +2,38 @@
 ---
 
 
-## 台湾陆委会坚决反对中共虚假的民主协商
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1980211/)
+## 美国查获特大比特币失窃案
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1980318/)
 
-作者：纽约磐石农场 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月6日，据台湾媒体报道，中共国政协主席汪洋此前一天与国民党前主席洪秀柱进行了会面。会上，汪洋声称，中共愿意与台湾各界开展“民主协商”。对此，台湾大陆委员会在一份声明中指出，中共政府所谓的“民主协商”就是妄图消灭中华民国台湾的协商，因此，台湾各界在与中共进行交流时应密切注意，并谨慎防范中共当局的统战分化操作。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/5-8.jpg)
-陆委会表示，中共当局近期正在利用北京冬奥会进行统战宣传工作。其中，中共一直试图透过与相关国家或台湾方面人士的互动提倡其所谓的“一中原则”。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-陆委会强调，中共提出的“民众协商”，其本质就是通过欺骗行为达成中共所谓的“一国两制台湾方案”，而中华民国政府将坚决反对此种行为。
+整理：Eileen（围剿维尼熊）
+编辑：朝花夕拾
 
-陆委会也明确道，两岸互不隶属是客观现状与事实。同时，台湾的民意从未接受过中共矮化及侵犯台湾政治主张与两岸关系路径的做法。此外，台湾未来的发展更加不需要被中共指手画脚。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-614.png)图片来源：雅典娜设计组
 
-参考链接：[汪洋再提民主協商 陸委會：就是消滅中華民國](https://cn.rti.org.tw/news/view/id/2123848)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+根据新华社2月9日报道，美国司法部8日宣布，起获价值约36亿美元的失窃比特币。
 
-总编: Jack Li文阳
-编辑：Ivy001
-校正/发稿：Fei797
+美联社援引联邦执法人员消息，这笔赃款涉及2016年一起比特币失窃案。当年，虚拟货币交易平台比特币交易所系统遭一名黑客袭击，失窃比特币当时市值7100万美元，如今已超过45亿美元。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+执法人员8日在纽约曼哈顿逮捕了与案件相关的一对夫妇，利希滕施泰因和他妻子摩根。这两人将面临洗钱和诈骗罪名指控。
+
+据美联社报道，2016年比特币失窃案件发生后，一名黑客发起2000多起未经授权的比特币交易，将近12万枚比特币转账至利希滕施泰因控制的一个虚拟货币账户。接下来5年内，利希滕施泰因和摩根利用多个账户，使用多种手段洗白约2.5万枚比特币，转换为其他虚拟货币。
+
+美国司法部副部长莉萨·莫纳科说，这是美国司法部查获的最大一笔赃款。
+
+参考链接：https://i.ifeng.com/c/8DUWrpPQNqw
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

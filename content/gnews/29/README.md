@@ -2,36 +2,59 @@
 ---
 
 
-## 参赛运动员透露中共冬奥会隔离条件恶劣
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1980067/)
+## 美国及世界疫情简报 （02-09-2022）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1980227/)
 
-作者：纽约香草山 – Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月5日，据外国媒体消息显示，来自俄罗斯的冬季两项运动员瓦斯内佐娃在社交媒体平台上披露了中共北京冬奥会为参赛选手所提供的恶劣的隔离条件。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3-15.jpg)
-据瓦斯内佐娃透露，由于其中共病毒核酸检测结果呈阳性，她不得不在北京的一家饭店中进行隔离，但该隔离酒店在餐饮方面对运动员和工作人员区别对待，且酒店提供的餐食难以下咽，已经严重影响了她的身体健康。
+整理：波士顿五月花 老枪6
+![](https://assets.gnews.org/wp-content/uploads/2022/01/01-1.jpg)
+**1．美国疫情**
 
-另外，曾三次获得北欧混合式滑雪金牌的德国选手佛伦瑟在确诊中共病毒感染后也被中共举办方单独隔离。随后，德国奥运代表团团长施梅尔·普芬尼也向相关媒体指出，中共提供的隔离酒店条件极为不合理，运动员需要更大、更清洁的房间，同时需要准时得到有营养的食物，从而能够确保选手们在结束隔离后还可以上场比赛。
+昨日美国新增新冠患者340,947人.总确诊人数为76,852,768人。新增死亡人数2,980人。总死亡 905,543人。
 
-另据其他参赛代表团反应，因中共病毒确诊而被隔离的运动员们并没有全部在冬奥村隔离。
+康州新增新冠感染2,138人，新增死亡0人。
 
-参考链接：
-1) . [Olympic teams raise concerns over quarantine hotels](https://apnews.com/article/winter-olympics-quarantine-hotels-e2d2ffc60d9800cf1951cc3eaed323cb)
-2) . [Winter Olympic athletes blast conditions of COVID quarantine hotels](https://www.foxnews.com/sports/winter-olympic-athletes-conditions-covid-quarantine-hotels)
+纽约州新增新冠确诊人数3,830人。新增死亡人数71人。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+新泽西州昨天新增病例为1,139人。新增死亡为21人。
 
-总编: 飞虹
-编辑： 飞虹
-校正/发稿：Fei797
+马萨诸塞州新增新冠患者为7,066人, 死亡93人。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+马里兰州昨日新增新冠患者772人。新增死亡人数为21人。
+
+加州昨日新增47,953人，死亡285人。得克萨斯州新增19,500人，死亡为71人。佛罗里达州新增27,053人，死亡184人。亚利桑那州新增4,416人，死亡为0人。乔治亚州新增11,804人，死亡143人。北卡罗来纳新增24,067人，死亡152人。华盛顿DC新增627人， 死亡11人。
+
+**2.世界疫情**
+
+1） 亚洲疫情：
+
+昨日印度新增新冠患者67,597人；日本新增67,939人；印尼新增26,121人；菲律宾新增6,819人；孟加拉新增9,368人。土耳其新增96,514人。台湾昨日新增48, 韩国昨日新增36,718人, 中国新增466人。
+
+2）非洲疫情：
+
+南非昨日新增新冠患者1,228人。埃塞俄比亚新增138人。摩洛哥新增721人。
+
+3）拉美疫情：
+
+巴西昨日新增新冠患者69,615人；哥伦比亚新增9,080人。阿根廷新增25,406人。智利新增33,839人。墨西哥新增9,242人。
+
+4）欧洲疫情
+
+俄罗斯昨日新增新冠患者170,532人。德国新增51,377人。法国新增48,858人。英国新增64,642人。意大利新增41,602人。西班牙新增195,755人。
+
+5）全球新冠总感染人数为400,487,672人。总死亡人数为5,762,582人。
+
+**3.新闻简报**
+
+1。周四发表在研究期刊 PLOS One 上的一项研究发现，在感染 COVID-19 之前缺乏维生素 D 的人中约有一半会患上严重疾病，而血液中维生素含量充足的人中，这一比例不到 10%。
+2。56 岁的微生物学家 Bottazzi 与 Peter Hotez 博士一起领导了德克萨斯儿童医院疫苗开发中心的团队，为 Covid-19 开发了 Corbevax 疫苗，该疫苗上个月已获得在印度的紧急使用。
+3。加拿大萨斯喀彻温省周二宣布取消所有 Covid 限制，包括戴口罩和室内用餐的疫苗接种证明，卡车司机继续以类似的要求占领渥太华。
+
+* * *
+
+*封面：霹雳鼠年*
+
+*编辑 /发布：吐纳*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

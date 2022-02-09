@@ -2,22 +2,35 @@
 ---
 
 
-## 29岁法国足球运动员在2月6日星期天的一场足球比赛中，突发心脏病，处于昏迷状态
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1980190/)
+## 央行：反洗钱监管办法将于3月正式实施
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1980309/)
 
-#### 翻译                   意大利达芬奇农场                      小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-09-alle-15.41.35.png)图片来源：eventiavversinews.it
-马西梅•佛勒瑞，一名29岁的法国运动员，在星期天2月6日举行的一场U.S. Trévières 队和ST Sever队进行的足球比赛中突发心脏病，随后处于昏迷状态。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-据报道，在比赛进入一半时，他便说自己不舒服，不久他便失去了知觉。两名球员和消防员见他倒地之后马上对他实行了心脏按摩，当他被送到所处城市的大学医院时，已处于昏迷状态。
+整理：Eileen（围剿维尼熊）
+编辑：朝花夕拾
 
-2月7日星期一晚上他还处于昏迷状态。人们已经开始向他所在的俱乐部及其家人发出支持他的留言。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-614.png)图片来源：雅典娜设计组
 
-简评： 又一名足球运动员在赛场上倒下，如此年轻却突发心脏病，这已经成为赛场上的一种常态，我们几乎每个星期都会听到或读到这样的消息。我们不禁要问：究竟是什么原因让如此健康年轻的运动员突发心脏病。他接种疫苗了吗？是不是由疫苗引起的副作用？未来还会有多少远动员会在赛场上倒下？
 
-原文链接：[https://www.eventiavversinews.it/francia-attacco-cardiaco-improvviso-durante-la-partita-di-domenica-6-febbraio-per-il-calciatore-29enne-maxime-fleury-e-in-coma-in-gravi-condizioni/](https://www.eventiavversinews.it/francia-attacco-cardiaco-improvviso-durante-la-partita-di-domenica-6-febbraio-per-il-calciatore-29enne-maxime-fleury-e-in-coma-in-gravi-condizioni/)
+根据中国新闻网2月9日报道，自2022年3月1日起，央行等三部门发布的《金融机构客户尽职调查和客户身份资料及交易记录保存管理办法》将正式实施。
 
-编辑、上传： Xiao   baige
+办法规定，商业银行、农村合作银行、农村信用合作社、村镇银行等金融机构为自然人客户办理人民币单笔5万元以上或者外币等值1万美元以上现金存取业务的，应当识别并核实客户身份，了解并登记资金的来源或者用途。
+
+有关部门负责人指出，近年来，随着金融产品和业务模式发生变化，金融行业反洗钱工作出现一些新挑战，为提升我国洗钱和恐怖融资风险防范能力，需要加强反洗钱监管。
+
+招联金融首席研究员董希淼认为，新办法对于普通客户来说影响不大，首先个人存取5万元现金的情况真的不多了，移动支付等方式，已经可以满足人们日常的生活所需。
+
+参考链接：https://i.ifeng.com/c/8DTfwsWZ2hI
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

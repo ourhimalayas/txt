@@ -2,40 +2,34 @@
 ---
 
 
-## 乌克兰危机：德国考虑向立陶宛增派部队
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/1980393/)
+## CCP荼毒之下——我为什么而活
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1980482/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image003-9.jpg)
-俄乌边境局势紧张之际，德国政府面临压力。基辅期待德国作出更多承诺。德国迄今为止的立场让其它盟友也心生疑虑，但是现在似乎出现转机。
+作者：JuvenGuo
+[![](https://express.adobe.com/page/HtZeaxWvNWccw/images/4b186861-cd63-4d19-9852-fdb5ce43dbda.png?asset_id=b9a4f8a0-e53b-47b1-922e-46240807b162&amp;img_etag=%22fb9dc69846242002e809add57b090271%22&amp;size=1024)](https://express.adobe.com/page/HtZeaxWvNWccw/images/4b186861-cd63-4d19-9852-fdb5ce43dbda.png?asset_id=b9a4f8a0-e53b-47b1-922e-46240807b162&amp;img_etag=%22fb9dc69846242002e809add57b090271%22&amp;size=1024)
+CCP荼毒中华大地百年，其毒之深，深入骨髓。
 
-据德国之声报道，面对乌克兰危机，德国政府正在与立陶宛讨论向后者增派部队的问题。德国总理肖尔茨将于下周在柏林与爱沙尼亚、拉脱维亚和立陶宛三个波罗的海国家的国家元首和政府首脑举行磋商。
-《纽约时报》另外透露，专家估计，俄罗斯军队已经集结了全面入侵乌克兰所需的大约70%的兵力。美国官员表示，俄罗斯入侵的可能时间是2月下半月–即在北京冬奥会结束后。
+我年轻时刚独立那几年，认为对自己限制最大的因素就是自己还是个人，与周遭环境格格不入。
 
-鉴于乌克兰的紧张局势，美国总统拜登日前下令，向波兰和罗马尼亚增派近3000名士兵。周六（2月5日），第一批增援东欧的美军抵达波兰。波兰军方发言人当天宣布，美国陆军第82空降师的旅战斗群的首批人员已经抵达波兰。
+女人被当作生育工具，孩子成为懦弱长辈达成目标的工具。女人生而为人，孩子生而为人，却不如一只畜牲，这种情况几乎发生在我身边所有人身上。
 
+我爹从小就骂我自由主义，不认真读书，不能光宗耀祖，我不知道我那无能的祖先有没有脸面面对在地狱中生存的后代，我活着成为别人的工具，那我活着对我自己有什么意义？身边的兄弟现在都几十岁了，包括我自己，晚上还会做噩梦，做因为没有自由而做的噩梦。
 
+人生而自由，爆料革命开启了我的新生。原来所有的烦恼都来自于邪恶的CCP！
 
-**推出问题，敲出真相，爆料在路上！**
+既然上天让我投生在这片土地上、CCP统治的地狱里，我就要发挥出自己微弱的自由之光，也许这就是我的使命。
 
-**请关注和订阅我们的以下账号：**
+在周围的人都失去信仰的环境下， 觉醒者无疑会有极大的痛苦，正道主义的信仰是黑暗中耀眼的明灯。强光下，假骗偷、反人类的CCP无处躲藏。
 
-**新西兰伊甸农场盖特**：https://gettr.com/user/himalayanz
+*编辑：【英国伦敦喜庄园编辑部】*
 
-**【玫瑰看新闻】盖特**：https://gettr.com/user/rosenews
+*校对：胖丁 | 审核：文明明 | Page：青山*
 
-**玫瑰看新闻YouTube账号**：
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**Rose news**
-
-**【玫瑰看新闻】推特账号**：
-
-**Rose News (@RoseNews4)a**
-
+[![](https://express.adobe.com/page/HtZeaxWvNWccw/images/b7c25957-8b67-4267-b18c-f25d93f5e760.jpg?asset_id=a48ccfb5-5064-4f46-9a66-a67492000fdd&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://express.adobe.com/page/HtZeaxWvNWccw/images/b7c25957-8b67-4267-b18c-f25d93f5e760.jpg?asset_id=a48ccfb5-5064-4f46-9a66-a67492000fdd&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
