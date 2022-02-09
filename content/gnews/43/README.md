@@ -2,103 +2,63 @@
 ---
 
 
-## 全世界人民，珍惜生命，远离中共
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1978474/)
+## 73年后，还是《1984》-国家可以控制你的思想
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1977654/)
 
-[https://gtv.org/video/id=620264a9585ecc15d73ef97b](https://gtv.org/video/id=620264a9585ecc15d73ef97b)
+翻译：小小小鸟
 
-像人一样活着
-Vive como una persona
+![](https://assets.gnews.org/wp-content/uploads/2022/02/350_9789722071550_1984_george_orwell.jpg)
 
-你只要不像畜生一样活着
-Pero mientras tanto no vivas como una bestia
+![](https://assets.gnews.org/wp-content/uploads/2022/02/70-Years-Later-Its-Still-‘1984.png)
 
-还有一个, 你想活下去
-Y hay otro, si quieres sobrevivir
+**1947 **年** 10 **月，埃里克**·**布莱尔（今天以他的笔名乔治**·**奥威尔而闻名）给** Secker & Warburg **出版社的所有合伙人写了一封信。在该信中，奥威尔指出他的小说草稿正在处于最后的阶段，并将其描述为**“**最可怕的混乱**”**。
 
-远离中共, 珍惜生命
-Aléjate del PCCh, aprecia la vida
+为了完成这部小说，奥威尔将自己隔离在苏格兰侏罗岛，并在第二年结稿。将这**“**最可怕的混乱**”**变成了《**1984**》，这是**20**世纪最重要的小说之一。
 
-远离中共, 不仅是演艺圈
-Aléjate del PCCh no es solamente del mundo de espectáculo
+这部小说于1949年出版，距今73年了。这次周年纪念活动给大家提供了一个机会来反思该小说的意义及其最有价值但有时被忽视的反思。
 
-不仅是企业家也不仅是搞媒的
-No sólo de los empresarios, medios de comunicación
+《1984》的主要反思不是“持续监控是坏事”或“独裁政府是危险的”，尽管这些都是事实，但却不是最重要的信息。《1984》的核心是一部关于语言的小说；政府如何利用它来压制和混淆视听，公民如何利用它来抵抗压迫。
 
-不管你多大岁数
-No importa a qué edad tengas
+奥威尔是一位英语大师，他创造的一些单词得以延续并被继承。即使是没有读过《1984》的人也知道其中的一些“新词”。
 
-我就今天奉劝所有的同胞
-Hoy sugiero a todos los compatriotas
+《1984》为说英语的人提供了一些专门词汇来讨论监控、警察执政和独裁主义，其中包括“老大哥”、“思想警察”、“非社会人”和“双重思考”等术语。
 
-包括全世界的人
-Incluyendo a todas las personas del mundo
+奥威尔笔下的大洋洲的独裁政府不仅严厉惩罚异议人士——它甚至试图阻止异议人士的思想。当内部党成员奥布莱恩折磨1984的主角温斯顿史密斯时，他举起手伸出四根手指，问史密斯看到了多少根手指。
 
-有点良知的
-Que tengan un poco de conciencia
+当史密斯回答说：“四个！四个！我还能说什么？四个！” 奥布莱恩给其施加了难以忍受的痛苦。在史密斯最终声称看到五个手指后，奥布莱恩仍然强调说“五个”是不够的；“不，温斯顿，这没有用。 你在说谎。 你还以为有四个。”
 
-看一看所有和中国共产党打交道的下场
-Vean el destino de todo aquello que han tenido tratos con el PCCh
+奥威尔自己的名字引发了一个形容词“奥威尔式”，它在现代政治修辞中被广泛使用，尽管时常不恰当。
 
-马云, 赵本山, 宋祖英
-Jack Ma, Zhao Benshan, Song Zuying
+实施奥威尔式的通常是我们的敌人，这证明了奥威尔的才华，每个人似乎都认为《1984》是关于他们的政治对手的。
 
-香港, 台湾的歌星
-Los cantantes de Hong Kong y Taiwán
+政治左派在白宫和刑事司法系统中觉察到了大量的奥威尔主义倾向。政治右翼哀叹大学校园里的“思想警察”和社交媒体公司将用户变成“非社会人”。
 
-以及美国的政要, 欧洲的政要
-Dignatarios estadounidenses y europeos
+但政客们即使不是奥威尔式也会撒谎，一家私人公司关闭一个社交媒体账号与一个国家谋杀某人并将他们从历史中抹去截然不同。
 
-欧洲的主席, 包括这梵蒂冈
-Presidentes de Europa, incluyendo al Vaticano
+同样，思想学术的一致性可能会令人窒息，但它几乎无法与以警治国的一致性相提并论，因为他们会将整个词语从社会中消除。
 
-梵蒂冈给七哥送这啥意思知道吗
-Sabes por qué el Vaticano me regaló esto
+然而，当美国政府官员使用“强化审讯”、“另类事实”、“附带伤亡”或“极端分子”等术语时，他们明白他们所描述的实际上是“酷刑”、“谎言”、“无辜平民死亡” ”和“政治异己者”。
 
-梵蒂冈教皇给你送这个袖扣的时候
-Cuando el Papa del Vaticano te regala estos gemelos
+如果其他人，尤其是新闻界，使用并相信奥威尔式的语言会使政府的敌人失去人性，并使他们极端的暴力听起来能够被容忍甚至是正当的，他们更愿意这样做。
 
-就是把你当成大主教级的
-Significa que te trata como un arzobispo
+我们在国外看到了更多的邪恶和野蛮。根据相关人士和研究人员的报告，中国政府已将大约100万人关押在“再教育”集中营中，其中包括许多维吾尔人（穆斯林占多数）。
 
-和他平级的才能给你
-Porque estás al mismo nivel que él
+报告显示，这些营地根本不是学校。它们是残酷的灌输场所，囚犯被迫背诵共产党宣言并放弃伊斯兰教。
 
-你以为啥呢
-Qué crees tu
+朝鲜这个最接近《1984》的国家，以令人沮丧的成功衡量标准阻碍了其公民独立思考的能力。
 
-最后告诉全世界人们
-Finalmente, les digo a todas las personas del mundo
+在脱北者朴妍美的回忆录中，她说她发现了韩国词汇的丰富性，并指出“当你有更多的词汇来描述整个世界时，你的思考能力就会提高。”
 
-聪明的人民, 智慧的人民
-Gente inteligente y sabia
+毫不奇怪，当帕克读到奥威尔的经典寓言小说《动物农场》时，她觉得奥威尔好像是知道她来自哪里。
 
-永远要记住
-Recuerden siempre
+奥威尔不是先知，但他界定了所有独裁政府的必要特征。为了有效地控制你，它不能仅仅依靠死亡威胁、监禁或酷刑，禁止读书和宗教也是不够的。
 
-珍惜生命, 远离中共
-Aprecien la vida y aléjanse del PCCh
+只要国家不统治你的意识，它就一直处于被推翻的风险之中。我们现在不应该害怕美国变成奥威尔式的反乌托邦噩梦，但在政治欺骗猖獗的时候，我们应该记住《1984》最重要的一课：国家可以控制你的思想。
 
-* * *
+新闻链接：[《1984》-国家可以控制你的思想](https://humansarefree.com/2022/01/73-years-later-its-still-1984.html)
 
-日期：02/07/2022
-原视频标题：全世界人民，珍惜生命，远离中共
-Personas de todo el mundo, aprecien la vida, aléjense del PCCh
-
-原视频日期：02/05/2022
-原视频网址：**[https://gettr.com/post/psk3ic0daa](https://gettr.com/post/psk3ic0daa)**
-任务编号：KC447（3674）
-视频时间段：0:00-01:09
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场-小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**审核校对：Barry Jack
+上传排版：V在途中**
 
  
 

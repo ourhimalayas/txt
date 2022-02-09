@@ -2,39 +2,29 @@
 ---
 
 
-## 我们的政府已被世界经济论坛接管
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1978763/)
+## 美国承诺巩固洪都拉斯与台湾邦交
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1978737/)
 
-据《COVID世界新闻网》2022 年 2 月 6 日发布：
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3689.png)图片来自原文
-一群国际律师和一名法官正在以大陪审团诉讼程序为蓝本进行刑事调查，以便向公众展示迄今为止针对“领导者、组织者、煽动者和同谋”的 COVID-19 危害人类罪的所有可用证据，他们教唆或积极参与制定和执行流行病共同计划。
+**撰稿：日本东京方舟农场 北极**
 
-Reiner Fuellmich 律师向人民舆论法院的大陪审团程序作了开幕词。国际律师和专家的指控是，世界各国政府已受到腐败和犯罪权力结构的控制影响。
+2月8日，美国驻洪都拉斯大使提名人杜古（Laura Farnsworth Dogu）承诺，若她本人提名获准，她将致力于巩固洪都拉斯和台湾邦交。
 
-据律师称，世界经济论坛、世界卫生组织、国际货币基金组织和黑石等组织与世界各国政府勾结，策划了一场他们多年来一直在计划的大流行病。 然后，他们通过对事实的虚假陈述和社会工程心理操作故意制造了大规模恐慌，他们通过主流媒体传达了这些信息。
+杜古在当天出席国会人事听证会时做出上述承诺，她表示台湾是符合国际社会民主价值观的重要伙伴，她将让洪都拉斯认识到与台湾邦交关系正常化的重要性。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片-1-4.jpeg)美国驻洪都拉斯大使提名人杜古。（图片来自大纪元）
+洪都拉斯是台湾14个邦交国之一，在1月底迎来首位女总统希奥玛拉·卡丝特罗（Xiomara Castro）上任。卡丝特罗在竞选期间，一度曾宣称当选后将与台湾断交并与中共建交，引起美国两党议员高度关注。
 
-这场大规模恐慌的目的是说服民众同意所谓的“疫苗接种”，期间这些疫苗已被证明既不有效也不安全，而且极其危险，甚至是致命的。
+杜古对此回应指出，自去年11月洪都拉斯举行大选以来，洪美两国间有许多高层互访，许多造访洪都拉斯的美国官员在与卡丝特罗竞选团队对话中，都强调台洪邦交重要性。
 
-这些危害人类罪对世界人口造成的经济、社会和健康损害可以用数百万亿美元来衡量。
+上月底，台湾副总统赖清德在全球疫情蔓延期间，仍亲率团队前往洪都拉斯出席卡丝特罗的就职典礼。在美方斡旋之下，与到场的美国副总统贺锦丽（Kamala Harris）进行短暂交谈。
 
-通过全面展示我们所面临的情况，包括地缘政治和历史背景——这些程序旨在让人们意识到当前被劫持的系统及其机构的实际崩溃，以及人们自己收回他们的主权的必要性。
+杜古进一步表示，过去经验证明，台洪邦交期间洪都拉斯的经济得到了发展，双方应继续保持合作关系，加大台湾与洪都拉斯之间的经济贸易往来。
 
-2022 年 2 月 5 日，Reiner Fuellmich 和 Viviane Fischer 律师宣布了一项大陪审团调查，涉及以 COVID-19 大流行为幌子犯下的危害人类罪。
+参考链接：
+[https://www.cna.com.tw/news/aopl/202202090006.aspx](https://www.cna.com.tw/news/aopl/202202090006.aspx)
 
-您可以在原文网页中观看 Fuellmich 的完整开幕词，并查看整个 1.5 小时的首​​日开幕式。
-
-原文连接：
-[**https://thecovidworld.com/dr-reiner-fuellmich-presents-opening-statements-at-grand-jury-our-governments-have-been-taken-over-by-the-world-economic-forum/**](https://thecovidworld.com/dr-reiner-fuellmich-presents-opening-statements-at-grand-jury-our-governments-have-been-taken-over-by-the-world-economic-forum/)
-
-翻译：洛杉矶盘古农场- 郭友(文苏)
-校对：洛杉矶盘古农场 – 轰炸机
-评论：洛杉矶盘古农场 – 轰炸机
-编辑：洛杉矶盘古农场 – 柯镇恶
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+素材采编：北极
+编辑： 老孙
+发布：文曦
 
  
 
