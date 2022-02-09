@@ -2,43 +2,28 @@
 ---
 
 
-## 澳大利亚要求俄罗斯从乌克兰边境撤军
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1978307/)
+## 戴口罩也不能百分百防病毒！50厘米以内对话存在感染风险
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1978324/)
 
-#### **【雅典娜快讯】紧贴时代脉搏**
+撰稿：东京樱花团/立正道
 
-**翻译/编辑：文泓**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/戴口罩也不能百分百防病毒！50厘米以内对话存在感染风险.png)[图片来源](https://www.voanews.com/a/japan-s-fukuoka-finds-omicron-case-in-possible-community-transmission-governor-says/6369613.html)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/8-7.png)图片来源：The Guardian
+2日，日本理化学研究所和神户大学等团队公布了RIKEN超级计算机“富岳”对新型冠状病毒变异株“Omicron株”风险的计算结果。 即使戴着口罩，如果在50厘米以内的近距离交谈，感染的可能性就会增加，他呼吁缩短接触时间。
 
+该团队假设 Omicron 菌株的传染性是 Delta 菌株的 1.5 倍。 通过改变是否有口罩、谈话时间和与感染者的距离等条件来计算侵入身体的病毒量。
 
-当地时间2月9日，据《每日邮报》报道，本周末，澳大利亚外长**玛丽斯·佩恩即将与美国、印度和日本外长进行重要的四方会谈，****乌克兰和印太地区的紧张局势将成为讨论的主要议题。美国国务卿安东尼****·****布林肯将于周三晚上在会议前抵达****[墨尔本](https://www.dailymail.co.uk/news/melbourne/index.html)****。佩恩呼吁俄罗斯放松在乌克兰边境的军事存在。**
+结果，在室内1米或以上的距离与戴口罩的感染者交谈15分钟时，感染概率几乎为零，而距离为50厘米时，1小时内感染概率约为10%。 另一方面，与未戴口罩的感染者以1米间隔15分钟交谈时，感染概率约为60%，在50厘米内几乎达到100%。 假设在活动中与坐在您旁边的人进行了对话。交谈一个小时后，感染者既使带着口罩，你也有 40% 的被感染机会。
 
-玛丽斯·佩恩参议员表示，“当前乌克兰局势令人深感担忧，我敦促在该国的澳大利亚人尽快离开。我们也需要看到俄罗斯方面采取行动来缓和局势”，她告诉美国广播公司：“我们是乌克兰主权和领土完整以及欧洲和北约统一应对措施的坚定支持者，我们将继续与美国保持密切接触。”
+理研团队负责人、神户大学教授坪仓诚说，“预防被感染的措施是，保持距离和缩短接触时间。”
 
-据估计，目前约有1400名澳大利亚公民居住在乌克兰。外长表示，正在为居住在该国的澳大利亚人定期更新旅行建议。
+信息来源：
 
-“最终，这些澳大利亚人将做出自己的决定，其中许多人是双重（国籍）公民”，佩恩参议员说：“但我们鼓励他们遵守旅行建议，并在安全的情况下立即离开。”
+[マスクしても「５０センチ以内の会話」で感染リスク…「富岳」でオミクロン分析](https://www.yomiuri.co.jp/science/20220202-OYT1T50211/)
 
-此前，法国总统马克龙会见了俄罗斯总统普京。马克龙是自俄罗斯在乌克兰边境上集结军队以来第一位与普京总统会面的西方大国领导人。
-
-普京总统表示他不会使局势升级。与此同时，美国则警告称入侵迫在眉睫。
-
-佩恩参议员说，俄罗斯和中国元首之间紧密的“无限友谊”与澳大利亚及其四方合作伙伴并不一致。
-
-“我们确实每天都看到来自独裁国家对他国的胁迫，作为一个强大的自由民主国家，澳大利亚不准备容忍。”
-
-新闻链接：[Australia demands Russia remove troops from Ukraine border | Daily Mail Online](https://www.dailymail.co.uk/news/article-10491775/Australia-demands-Russia-remove-troops-Ukraine-border.html)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

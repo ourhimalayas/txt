@@ -2,26 +2,28 @@
 ---
 
 
-## 新华社官员声援被拐妇女遭封杀
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1978227/)
+## 有声|冬奥会伊始已恶评如潮
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1978231/)
 
-撰稿：东京樱花团/asket
+配音：香草山巡管部– 文凯琳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月7日，北京冬奥会刚进入正式赛程，来自各国运动员的批评已经如潮水般涌向组委会。自诩提供678道菜的“舌尖上的冬奥会”，被指责成了现实版“饥饿游戏”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/新华社官员声援被拐妇女遭封杀.png)[图片来源](http://www.scio.gov.cn/ztk/dtzt/73/7/Document/1149773/1149773.htm)
+瑞典越野队抱怨比赛所在的山区太冷了，而且不能提供热的食物或饮料，无法为运动员保证必需的能量。德国滑雪教练施魏格尔愤怒地说，奥委会根本没有能力提供热餐。
 
-在北京大肆宣传冬奥之际，江苏徐州“八孩母亲”被铁链锁在小破屋的事件，迅速在网路发酵，引发舆论挞伐。现任中共新华社对外部主任韩松，2月6日在微博发文说，近来自己更关注的是拐卖妇女问题，而不是冬奥。但该条帖子随即被“维稳”删除。
+文字版原文：[冬奥会伊始已恶评如潮](https://gnews.org/zh-hans/1975860/)
 
-徐州“八孩母亲”被认为是中共治下拐卖妇女的一个缩影。据《中国走失人口白皮书2020》显示，2020年中国全年走失达100万人次，但具体年龄层比例，一直是个谜。
+音频处理/发稿：Daxia
 
-中国刑法学教授罗翔律师曾说，中共法律对拐卖妇女最重判三年，但贩卖两隻鹦鹉都得判五年以上，一个女人还不如两只鹦鹉，这实在太不公平。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-在中共治下的中国，更加残酷的现实是：大多数的人口贩子，是不会被追责的；而受到惩罚的，往往是揭露人口贩卖的人。
-
-信息来源： [拐卖妇女比冬奥更应关注 新华社官员遭封杀](https://www.ntdtv.com/b5/2022/02/08/a103343134.html)
-
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
