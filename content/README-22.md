@@ -14,7 +14,11 @@
 :new: :tada::tada::tada: [本倉庫網頁版](https://ourhimalayas.github.io/)
 
 ---
-## 頁面 22/39 [**<**](/content/README-21.md) [1](/content/README.md) ... [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) **22** [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) ... [39](/content/README-39.md) [**>**](/content/README-23.md) [查看全部](/content/README-all.md)
+## 頁面 22/40 [**<**](/content/README-21.md) [1](/content/README.md) ... [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) **22** [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) ... [40](/content/README-40.md) [**>**](/content/README-23.md) [查看全部](/content/README-all.md)
+
+[文字版：9月7日郭先生直播，关注香港被抓 被杀的年轻人](/content/2019/09/20190908-7629841718868230274.md)
+
+[文字版：2019年9月4日郭文貴報平安直播“林四条”会让香港人民更加团结!香港自贸区即将取消!中共“大湾区”胎死腹中!](/content/2019/09/20190906-2846090461215125304.md)
 
 [文字版：9月3號白宮前直播  ](/content/2019/09/20190904-4087259509718924066.md)
 
@@ -62,9 +66,5 @@
 
 [文字版：郭文贵先生2019年8月7日直播 王岐山和德国前副总理菲利普什么关系](/content/2019/08/20190808-3378844936967794316.md)
 
-[文字稿：2019年 8 月 6日 谈美国将中共定位汇率操纵国的意义 ](/content/2019/08/20190807-3983824498310525116.md)
 
-[文字版：2019年8月5日 香港大劫在即······希望香港的四个不要脸群体，能站在正义的一边帮助上街的孩子们](/content/2019/08/20190807-8437960932132112238.md)
-
-
-## 頁面 22/39 [**<**](/content/README-21.md) [1](/content/README.md) ... [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) **22** [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) ... [39](/content/README-39.md) [**>**](/content/README-23.md) [查看全部](/content/README-all.md)
+## 頁面 22/40 [**<**](/content/README-21.md) [1](/content/README.md) ... [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) **22** [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) ... [40](/content/README-40.md) [**>**](/content/README-23.md) [查看全部](/content/README-all.md)

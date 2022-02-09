@@ -14,7 +14,11 @@
 :new: :tada::tada::tada: [本倉庫網頁版](https://ourhimalayas.github.io/)
 
 ---
-## 頁面 39/39 [**<**](/content/README-38.md) [1](/content/README.md) ... [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) [38](/content/README-38.md) **39** [查看全部](/content/README-all.md)
+## 頁面 39/40 [**<**](/content/README-38.md) [1](/content/README.md) ... [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) [38](/content/README-38.md) **39** [40](/content/README-40.md) [**>**](/content/README-40.md) [查看全部](/content/README-all.md)
+
+[（五）2017年文贵爆料中国盗国贼首场全球信息发＂不＂会！ 关于王岐山．孟建柱．孙立军的巨额财富．私生子．非法身份等盗国事实！（五）](/content/2018/04/20180418-8084565878058568507.md)
+
+[（四）2017年文贵爆料中国盗国贼首场全球信息发＂不＂会！ 关于王岐山．孟建柱．孙立军的巨额财富．私生子．非法身份等盗国事实！（四）](/content/2018/04/20180418-5802483270047805854.md)
 
 [（三）2017年文贵爆料中国盗国贼首场全球信息发＂不＂会！ 关于王岐山．孟建柱．孙立军的巨额财富．私生子．非法身份等盗国事实！（三）](/content/2018/04/20180418-132220289355262532.md)
 
@@ -62,7 +66,5 @@
 
 [袁红冰: 郭文贵事件对中国未来的价值|郭宝胜访谈文字版2017-6-24](/content/2018/04/20180418-8213280584796437424.md)
 
-[|郭文贵9月7号报平安是盗国集团的凶恶促使我决定美国政治庇护直播文字版](/content/2018/04/20180418-3180317526840992396.md)
 
-
-## 頁面 39/39 [**<**](/content/README-38.md) [1](/content/README.md) ... [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) [38](/content/README-38.md) **39** [查看全部](/content/README-all.md)
+## 頁面 39/40 [**<**](/content/README-38.md) [1](/content/README.md) ... [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) [38](/content/README-38.md) **39** [40](/content/README-40.md) [**>**](/content/README-40.md) [查看全部](/content/README-all.md)

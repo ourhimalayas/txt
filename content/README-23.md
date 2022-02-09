@@ -14,7 +14,11 @@
 :new: :tada::tada::tada: [本倉庫網頁版](https://ourhimalayas.github.io/)
 
 ---
-## 頁面 23/39 [**<**](/content/README-22.md) [1](/content/README.md) ... [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) **23** [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) ... [39](/content/README-39.md) [**>**](/content/README-24.md) [查看全部](/content/README-all.md)
+## 頁面 23/40 [**<**](/content/README-22.md) [1](/content/README.md) ... [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) **23** [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) ... [40](/content/README-40.md) [**>**](/content/README-24.md) [查看全部](/content/README-all.md)
+
+[文字稿：2019年 8 月 6日 谈美国将中共定位汇率操纵国的意义 ](/content/2019/08/20190807-3983824498310525116.md)
+
+[文字版：2019年8月5日 香港大劫在即······希望香港的四个不要脸群体，能站在正义的一边帮助上街的孩子们](/content/2019/08/20190807-8437960932132112238.md)
 
 [文字版：2019年8月3日关注香港即将发生的大事](/content/2019/08/20190805-62375152236056349.md)
 
@@ -62,9 +66,5 @@
 
 [文字版：2019年7月5日文贵船上直播](/content/2019/07/20190706-5106022506023396161.md)
 
-[文字版：2019年7月3日文贵在华盛顿的车上直播](/content/2019/07/20190705-1736534558045793332.md)
 
-[文字版2019年7月1日文貴在DC直播，講香港七.一大遊行](/content/2019/07/20190702-4761346884149440512.md)
-
-
-## 頁面 23/39 [**<**](/content/README-22.md) [1](/content/README.md) ... [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) **23** [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) ... [39](/content/README-39.md) [**>**](/content/README-24.md) [查看全部](/content/README-all.md)
+## 頁面 23/40 [**<**](/content/README-22.md) [1](/content/README.md) ... [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) **23** [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) ... [40](/content/README-40.md) [**>**](/content/README-24.md) [查看全部](/content/README-all.md)

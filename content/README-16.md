@@ -14,7 +14,11 @@
 :new: :tada::tada::tada: [本倉庫網頁版](https://ourhimalayas.github.io/)
 
 ---
-## 頁面 16/39 [**<**](/content/README-15.md) [1](/content/README.md) ... [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) **16** [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) ... [39](/content/README-39.md) [**>**](/content/README-17.md) [查看全部](/content/README-all.md)
+## 頁面 16/40 [**<**](/content/README-15.md) [1](/content/README.md) ... [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) **16** [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) ... [40](/content/README-40.md) [**>**](/content/README-17.md) [查看全部](/content/README-all.md)
+
+[文字版：2020年3月4日全世界反击CCP，一切已经开始](/content/2020/03/20200306-1461257140477457088.md)
+
+[文字版：2020年3月3日文贵车上直播谈17件大事正在发生中](/content/2020/03/20200305-4413506880481638032.md)
 
 [文字版：2020年2月29日文贵谈共产党正在开始集体自焚](/content/2020/03/20200302-6186645591158961547.md)
 
@@ -62,9 +66,5 @@
 
 [文字版：2020年1月29日文贵谈CCP统治下的孤国孤市孤镇孤村](/content/2020/02/20200201-2569965414035506727.md)
 
-[文字版：2020年1月28日文贵直播谈WHO已经认错，CCP对疫情必须承担责任](/content/2020/01/20200130-8782739626371859630.md)
 
-[文字版：2020年1月23日法治基金、法治社会董事会后全员直播](/content/2020/01/20200130-1699829441084097385.md)
-
-
-## 頁面 16/39 [**<**](/content/README-15.md) [1](/content/README.md) ... [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) **16** [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) ... [39](/content/README-39.md) [**>**](/content/README-17.md) [查看全部](/content/README-all.md)
+## 頁面 16/40 [**<**](/content/README-15.md) [1](/content/README.md) ... [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) **16** [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) ... [40](/content/README-40.md) [**>**](/content/README-17.md) [查看全部](/content/README-all.md)
