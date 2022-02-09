@@ -2,8 +2,8 @@
 ---
 
 
-## 冬奥现上演的剧目，可说了无新意
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1980628/)
+## 加拿大卡车司机反疫苗运动背后的中共渗透警讯
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1980690/)
 
 台灣寶島農場
 
