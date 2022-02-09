@@ -2,29 +2,48 @@
 ---
 
 
-## 意大利决定解除户外口罩义务
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1978306/)
+## 中共被怀疑黑客美国新闻集团
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1978344/)
 
-撰稿：东京樱花团/立正道
+作者：纽约香草山 – 柳是多水土透
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/意大利决定解除户外口罩义务.png)
 
-日本“东京新闻”9日消息，意大利政府作为应对新冠疫情的措施，决定自11日起解除户外佩戴口罩的义务。
 
-在国内，曾经有一天新感染人数超过22万人，但最近已经降到每日10万左右，可以认为呈现下降趋势。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-在欧洲，由于 Omicron 毒株具有相对较低的恶化风险的特性以及疫苗接种的扩大，许多国家正在放松管制。 在意大利，随着 Omicron 菌株的扩大，去年 12 月重新导入了户外使用口罩的义务。
 
-关于户外强制佩戴口罩，欧洲各国都在陆续取消，法国2日己结束。 西班牙也将于10日取消。 英国和其他国家已经取消了许多规定。
 
-信息来源：
+据外国媒体2月4日报道，美国新闻集团的计算机系统近日被黑客入侵，有数个新闻记者的电子邮件账号被盗。该集团的网络安全顾问认为，黑客可能是在为北京搜集情报。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-4.jpg)
+美国新闻集团，旗下拥有福克斯新闻和华尔街时报等媒体，在1月下旬发现被入侵，线上文件与电子邮件受到影响后，雇用了一家数码安全公司进行调查。该公司的副总裁认为黑客具有“中共背景”。
 
-[イタリア、屋外マスク義務解除へ　欧州で緩和相次ぐ、既に仏は終了](https://www.tokyo-np.co.jp/article/159146?rct=world)
+此前，中共曾多次对外国记者发动网络攻击，2013年，《纽约时报》报告有53名记者的电脑遭到入侵，当时该报纸正在调查温家宝的家族财富。后来，又有消息披露彭博社、华尔街时报和华盛顿邮报等相继被黑。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
+参考信息：
+[China suspected in hack of journalists at News Corp](https://www.reuters.com/business/media-telecom/news-corp-says-one-its-network-systems-targeted-by-cyberattack-2022-02-04/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

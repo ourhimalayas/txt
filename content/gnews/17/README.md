@@ -2,49 +2,27 @@
 ---
 
 
-## 中共继续蓝金黄英国大学 开发或偷盗高科技武器
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1978343/)
+## 香港第五波疫情再起，再现近五个月来又一宗死亡病例
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1978602/)
 
-作者：纽约香草山教育部 – 子兵
+撰稿：童媚
+![](https://assets.gnews.org/wp-content/uploads/2022/02/40.jpg)（图片来自网络）
+2月9日香港医院管理局表示，一名在港COVID-19检测呈阳性的老人于周二死亡，这是香港地区近五个月内首次发生的可能与该病毒有关的死亡事件。也与近日香港日趋严峻的疫情有密切关系。
 
+自从2004年SARS1之后，香港对疫情的防范一直是严防死守，因此在病毒持续的2年多的时间里，香港整体的防疫情况也是比较乐观的，自2020年冠状病毒爆发开始以来，该市总共报告了约16600例感染，仅213例死亡，远低于其他类似城市。但事态却并没有始终保持顺利，据广播公司TVB报道，周三（2月9日）报告了至少1160例新确诊感染的记录。而且在过去两周内，香港确认染疫的总数超过2600宗，而去年12月只有两宗。
 
+本次医院管理局公布的死亡案例，确认为73岁的患者，之前有慢性病史，并在入院筛查期间确诊COVID阳性。但基于香港需要2次筛查阳性，才能归为确诊病例，因此，改死者是否会被归类为香港第214例COVID死亡尚未得知，而且该死者是否接种疫苗的细节，也并没有透露。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+香港第五波疫情袭来，政府如临大敌，并宣布即将执行的自大流行开始以来最严厉的措施，这也会给该市750万居民带来潜在社会和经济损失。
 
+港政府林郑月娥表示，香港依然会像内地一样实施“动态清零”，原因是超过50%的老年人并没有接种疫苗。因此，当局将从2月24日开始实施疫苗通行证，这将要求只有拥有疫苗接种证明才能进入许多地方，包括购物中心和超市。与此同时，当局禁止两户家庭以上的聚会，关闭学校，操场，体育馆和大多数其他场所。
 
+香港在疫苗措施上最终结合了内地“动态清零”和新加坡软性强制的方法，目的是用人身自由逼迫坚守不打疫苗人放弃最后的防线。
 
-2月6日，据外媒透露，英国的大学大幅增加了与中共军队有关的机构的合作，并可能有助于中共发展高科技武器。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-5.jpg)
-根据一项调查，英国科学家与跟中共解放军有密切联系的中共机构之间的研究合作数量在六年内增加了两倍，超过了1000次。而自2015年以来，英国大学从这些机构接受了2.4亿英镑的资助。其中，电信巨头华为是主要资金来源，华为已向英国机构捐款4000万英镑，另外还有2000万英镑来自因向解放军提供战斗机、导弹和通讯技术而受到美国政府制裁的公司。
+新闻来源：[香港报告五个月内首次出现与COVID相关的潜在死亡|路透社 (reuters.com)](https://www.reuters.com/world/asia-pacific/hong-kong-reports-first-covid-linked-death-five-months-2022-02-09/)
 
-该调查称，英国学者与有中共军方背景的大学合作，进行了多项敏感的“军民两用技术”的研究，包括无人机、可以发射导弹的电磁技术、航空航天材料、雷达、干扰装置和高效能电池等。
-
-参考信息：
-[UK Universities May Be Helping China Develop Hi-tech Weapons: Report](https://www.theepochtimes.com/uk-universities-may-be-helping-china-develop-hi-tech-weapons-report_4259918.html?utm_source=ref_share&amp;utm_campaign=copy&amp;rs=SHRKVP&amp;)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+发稿：MG5
+![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

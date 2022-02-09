@@ -2,48 +2,29 @@
 ---
 
 
-## 中共被怀疑黑客美国新闻集团
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1978344/)
+## 欧美监管机构警告银行提防俄罗斯网络攻击
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1978621/)
 
-作者：纽约香草山 – 柳是多水土透
+**撰稿：日本东京方舟农场 子辰**
 
+近期，援引路透社报道，两位知情人士表示，随着乌克兰紧张情势加剧，欧洲央行正积极应对俄罗斯可能发起的网络攻击，为可能引发的金融后果做准备，欧美多国金融监管机构正在密切关注。
 
+据其中一个知情人士说，虽然监管机构一直专注于一般的诈骗，但乌克兰危机发生后，监管单位已将注意力转移到俄罗斯发起的网络攻击上，并补充说欧洲央行正在加强防御措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片-1-3.jpeg)（图片来自网络）
+同样的担忧，引发世界各地监管机构的普遍关注。报导称，纽约金融服务部在1月底，已向金融机构发出警报，警告说如果俄罗斯入侵乌克兰并引发美国的制裁，可能进行报复性的网络攻击。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+此前，在俄罗斯于乌克兰边境集结军队时，多个乌克兰网站遭到了网络攻击。随后，乌克兰国家安全局表示，所有迹象表明，实施这次攻击的黑客团体与俄罗斯情报部门有关。
 
+尽管俄罗斯方面一再否认俄罗斯与世界各地的黑客活动有任何关系，并表示它准备与美国和其它国家合作，打击网络犯罪，但欧洲的监管机构仍处于高度警惕之中。
 
+此外，德国金融监管机构BaFin的负责人马克·布兰森（Mark Branson）在一个在线会议上说，网络战与地缘政治和安全局势是相互关联的。
 
-据外国媒体2月4日报道，美国新闻集团的计算机系统近日被黑客入侵，有数个新闻记者的电子邮件账号被盗。该集团的网络安全顾问认为，黑客可能是在为北京搜集情报。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-4.jpg)
-美国新闻集团，旗下拥有福克斯新闻和华尔街时报等媒体，在1月下旬发现被入侵，线上文件与电子邮件受到影响后，雇用了一家数码安全公司进行调查。该公司的副总裁认为黑客具有“中共背景”。
+参考链接：
+[https://www.epochtimes.com/b5/22/2/9/n13564536.htm](https://www.epochtimes.com/b5/22/2/9/n13564536.htm)
 
-此前，中共曾多次对外国记者发动网络攻击，2013年，《纽约时报》报告有53名记者的电脑遭到入侵，当时该报纸正在调查温家宝的家族财富。后来，又有消息披露彭博社、华尔街时报和华盛顿邮报等相继被黑。
-
-参考信息：
-[China suspected in hack of journalists at News Corp](https://www.reuters.com/business/media-telecom/news-corp-says-one-its-network-systems-targeted-by-cyberattack-2022-02-04/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+素材采编：子辰
+编辑：青城道姑
+发布：文曦
 
  
 

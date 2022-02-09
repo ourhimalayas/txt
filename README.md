@@ -15,133 +15,133 @@
 
 ---
 
-### [日本皇族首现中共病毒感染者](/content/gnews/1/README.md)
+### [共和党议员提出法案，恢复因拒绝接种中共病毒疫苗而被开除的军人](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [秘翻在线：北京寄希望于新的美国驻华大使能重建中美关系](/content/gnews/2/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [在荷兰反对绿色通行证的抗议活动越来越多](/content/gnews/3/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [香港或将在年内开放 但仍将强推疫苗接种](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [加拿大警察粗暴对待无害的八旬弱小老人](/content/gnews/2/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [北京冬奥会上中共国短道速滑运动员的丑陋表演](/content/gnews/3/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [NASA为首枚从另一星球发射的火箭授予合同](/content/gnews/4/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [欧美监管机构警告银行提防俄罗斯网络攻击](/content/gnews/5/README.md)
+### [深圳楼市：市场变冷有投资者一年损失20%](/content/gnews/5/README.md)
  ` 日本东京方舟农场`
 
-### [香港第五波疫情再起，再现近五个月来又一宗死亡病例](/content/gnews/6/README.md)
- ` 澳喜农场`
-
-### [法国记者专访彭帅 其安全仍令人担忧](/content/gnews/7/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [2022/02/09 英喜时事速递](/content/gnews/8/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [全世界人民，珍惜生命，远离中共](/content/gnews/9/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [数百美国华人写信FBI，揭露单伟建为中共高级间谍和洗钱罪犯](/content/gnews/10/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [中共为了冬奥会奖牌，打脸践踏自己制定的法律](/content/gnews/11/README.md)
- ` 墨尔本雅典娜农场`
-
-### [超百名澳洲人打完新冠第三针疫苗后染疫死亡](/content/gnews/12/README.md)
- ` 走进澳洲`
-
-### [河野为让日本国民尽快接种第三剂疫苗急到牙根发痒](/content/gnews/13/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [澳洲外长受压中共，称未考虑更改台湾代表处名称](/content/gnews/14/README.md)
- ` 走进澳洲`
-
-### [品读荐书：《卡拉马佐夫兄弟》](/content/gnews/15/README.md)
- ` 墨尔本雅典娜农场`
-
-### [中共被怀疑黑客美国新闻集团](/content/gnews/16/README.md)
- ` NFSC News`
-
-### [中共继续蓝金黄英国大学 开发或偷盗高科技武器](/content/gnews/17/README.md)
- ` NFSC News`
-
-### [中共将联合国对新疆的人权调查混淆为交流合作](/content/gnews/18/README.md)
- ` NFSC News`
-
-### [中共深夜通告“八孩女”事件 墙内舆论大翻车](/content/gnews/19/README.md)
- ` NFSC News`
-
-### [日本三井将发行与黄金挂钩的数字货币](/content/gnews/20/README.md)
- ` NFSC News`
-
-### [法国学生抗议疫苗护照](/content/gnews/21/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [英特尔、微软和通用电气被揭支持中共军队和国安机构](/content/gnews/22/README.md)
- ` 墨尔本雅典娜农场`
-
-### [NBC拒绝播放佛罗里达议员抨击中共及冬奥会的广告](/content/gnews/23/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [戴口罩也不能百分百防病毒！50厘米以内对话存在感染风险](/content/gnews/24/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [澳大利亚要求俄罗斯从乌克兰边境撤军](/content/gnews/25/README.md)
- ` 走进澳洲`
-
-### [意大利决定解除户外口罩义务](/content/gnews/26/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [迈克·蓬佩奥抨击拜登政府在外交政策失误中没有为美国 &#8220;站起来&#8221;](/content/gnews/27/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [欧盟半导体芯片法案出台 与中共切割成核心](/content/gnews/28/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [2022年2月9日新闻集](/content/gnews/29/README.md)
- ` 澳喜农场`
-
-### [有声|新中国联邦人主导北京冬奥会，让中共丑态百出，让参会人员自取其辱！](/content/gnews/30/README.md)
- ` MOSREC`
-
-### [有声|多名美国顶尖滑雪选手在冬奥赛道摔倒](/content/gnews/31/README.md)
- ` MOSREC`
-
-### [蓬佩奥：本届冬奥会是一个由美国和国际奥委会支持的中共宣传之举](/content/gnews/32/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [新华社官员声援被拐妇女遭封杀](/content/gnews/33/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [哥伦比亚税务局将打击数字货币逃税者](/content/gnews/34/README.md)
- ` 墨尔本雅典娜农场`
-
-### [共产党要活必须靠美国](/content/gnews/35/README.md)
- ` 雅典娜GNotes`
-
-### [无知成功的代价，习的现状](/content/gnews/36/README.md)
- ` 雅典娜GNotes`
-
-### [拜登总统豁免对伊朗核计划的制裁](/content/gnews/37/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [73年后，还是《1984》-国家可以控制你的思想](/content/gnews/38/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [基思·凯洛格将军：俄罗斯、中共、伊朗联手](/content/gnews/39/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [班农先生：任何亲自到场的政府官员，都不是追求推动自由的](/content/gnews/40/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [五月花简报（02/08/2022）](/content/gnews/41/README.md)
- ` mayflowertranslate`
-
-### [新西兰财经G乐部2022年2月8日:财经新闻整理](/content/gnews/42/README.md)
+### [新西兰财经G乐部2022年2月9日:财经新闻整理](/content/gnews/6/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [郝董谈自身转会经历，反映出HPAY对未来体育界的革命性影响](/content/gnews/43/README.md)
+### [从2008的“北京欢迎你”到2022的“北京整死你”](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [新闻述评：北京冬奥赛事未完，丧事当喜事先办](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [东京大学副教授预测中共病毒的次生灾难：人荒将至](/content/gnews/9/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [五选手因服装被取消成绩 中共北京冬奥已毫无底线](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [辉瑞悄悄地警告“不利的临床试验或安全数据”会影响商业](/content/gnews/11/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [日本皇族首现中共病毒感染者](/content/gnews/12/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [加拿大警察粗暴对待无害的八旬弱小老人](/content/gnews/13/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [北京冬奥会上中共国短道速滑运动员的丑陋表演](/content/gnews/14/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [NASA为首枚从另一星球发射的火箭授予合同](/content/gnews/15/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [欧美监管机构警告银行提防俄罗斯网络攻击](/content/gnews/16/README.md)
+ ` 日本东京方舟农场`
+
+### [香港第五波疫情再起，再现近五个月来又一宗死亡病例](/content/gnews/17/README.md)
+ ` 澳喜农场`
+
+### [法国记者专访彭帅 其安全仍令人担忧](/content/gnews/18/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [2022/02/09 英喜时事速递](/content/gnews/19/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [全世界人民，珍惜生命，远离中共](/content/gnews/20/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [数百美国华人写信FBI，揭露单伟建为中共高级间谍和洗钱罪犯](/content/gnews/21/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中共为了冬奥会奖牌，打脸践踏自己制定的法律](/content/gnews/22/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [超百名澳洲人打完新冠第三针疫苗后染疫死亡](/content/gnews/23/README.md)
+ ` 走进澳洲`
+
+### [河野为让日本国民尽快接种第三剂疫苗急到牙根发痒](/content/gnews/24/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [品读荐书：《卡拉马佐夫兄弟》](/content/gnews/25/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [中共被怀疑黑客美国新闻集团](/content/gnews/26/README.md)
+ ` NFSC News`
+
+### [中共继续蓝金黄英国大学 开发或偷盗高科技武器](/content/gnews/27/README.md)
+ ` NFSC News`
+
+### [中共将联合国对新疆的人权调查混淆为交流合作](/content/gnews/28/README.md)
+ ` NFSC News`
+
+### [中共深夜通告“八孩女”事件 墙内舆论大翻车](/content/gnews/29/README.md)
+ ` NFSC News`
+
+### [日本三井将发行与黄金挂钩的数字货币](/content/gnews/30/README.md)
+ ` NFSC News`
+
+### [法国学生抗议疫苗护照](/content/gnews/31/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [NBC拒绝播放佛罗里达议员抨击中共及冬奥会的广告](/content/gnews/32/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [迈克·蓬佩奥抨击拜登政府在外交政策失误中没有为美国 &#8220;站起来&#8221;](/content/gnews/33/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [有声|新中国联邦人主导北京冬奥会，让中共丑态百出，让参会人员自取其辱！](/content/gnews/34/README.md)
+ ` MOSREC`
+
+### [有声|多名美国顶尖滑雪选手在冬奥赛道摔倒](/content/gnews/35/README.md)
+ ` MOSREC`
+
+### [蓬佩奥：本届冬奥会是一个由美国和国际奥委会支持的中共宣传之举](/content/gnews/36/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [共产党要活必须靠美国](/content/gnews/37/README.md)
+ ` 雅典娜GNotes`
+
+### [无知成功的代价，习的现状](/content/gnews/38/README.md)
+ ` 雅典娜GNotes`
+
+### [73年后，还是《1984》-国家可以控制你的思想](/content/gnews/39/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [基思·凯洛格将军：俄罗斯、中共、伊朗联手](/content/gnews/40/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [班农先生：任何亲自到场的政府官员，都不是追求推动自由的](/content/gnews/41/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [五月花简报（02/08/2022）](/content/gnews/42/README.md)
+ ` mayflowertranslate`
+
+### [新西兰财经G乐部2022年2月8日:财经新闻整理](/content/gnews/43/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
 ### [不能再向中共国市场注入美元](/content/gnews/44/README.md)
