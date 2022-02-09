@@ -2,8 +2,8 @@
 ---
 
 
-## 冬奥将如何落幕
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1980546/)
+## 冬奥现上演的剧目，可说了无新意
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1980628/)
 
 台灣寶島農場
 

@@ -2,37 +2,37 @@
 ---
 
 
-## 韩国累积确诊突破百万 单日确诊连创新高
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1980352/)
+## 有声|郭文贵先生谈家庭教育
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1980431/)
 
-作者：纽约香草山-Naughty(文行)
+配音：香草山佛教部 – 李傻
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月6日，据韩国卫生官员通报称，韩国当天的新增中共病毒确诊病例数再次刷新了该国的单日新增确诊纪录，达到3万8千691例。至此，韩国的累计中共病毒确诊人数突破了100万，同时，其死亡人数也超过了六千人。
+郭文贵先生在2月4日大直播中与战友们分享家庭教育时，有以下三个观点：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-6.jpeg)
+1.孩子不要干涉父母的感情生活。孩子是父母结合以后出生的，在此之前，孩子并不知道父母感情的点滴，不能因为血缘关系而干涉父母。相应的是父母一代的恩怨也不应强加于孩子，并且孩子想跟谁交朋友，要尊重孩子自己的意愿。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-5.jpg)
+2.孩子绝对不可以撒谎。放眼整个社会，撒谎的人都不是什么好人，更加不能让这种恶习蔓延至家庭生活中来。家人之间如果没有信任是很非常可怕的事情。
 
-资料显示，自2020年1月起，韩国成为除中共国以外第一个爆发重大中共病毒疫情的国家。随后，韩国政府迅速采取了一系列疫情管控措施，使得韩国的整体确诊及死亡病例数维持在一个较低的水平。
+3.父母要尊重孩子。给孩子自由，让孩子独立，成年以后不干涉孩子的感情生活，爱她所爱。孩子孝顺父母的前提一定是父母给予的充分尊重。郭先生最后强调更重要的是要互相尊重，给双方自由。孩子开心，父母也快乐。
 
-然而数据表明，随着中共病毒疫苗的推广，韩国完全接种中共病毒疫苗的人口占总人数的86%，更有超过54.5%的民众已经接种疫苗加强针。为此，自奥米克戎变种病毒扩散以来，韩国的单日新增确诊病例数开始连创新高。
+文字版原文：[郭文贵先生谈家庭教育](https://gnews.org/zh-hans/1972004/)
 
-目前，当地官员宣布，韩国将延长其疫情管控措施至少两周，当中包括商家在晚上9点后实行宵禁的规定，以及限制6人以上的私人聚会等。
-
-参考链接：[South Korea surpasses 1 million total COVID cases with daily record](https://www.reuters.com/world/asia-pacific/skorea-surpasses-1-million-total-covid-cases-with-new-daily-record-2022-02-06/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
-
-总编：Jack Li文阳
-编辑：静言
-校正/发稿：谐趣园
-
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

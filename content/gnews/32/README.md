@@ -2,22 +2,25 @@
 ---
 
 
-## 29岁法国足球运动员在2月6日星期天的一场足球比赛中，突发心脏病，处于昏迷状态
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1980190/)
+## 2022.2.9大直播 中共把国人绑上俄乌危机的战车
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1980243/)
 
-#### 翻译                   意大利达芬奇农场                      小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-09-alle-15.41.35.png)图片来源：eventiavversinews.it
-马西梅•佛勒瑞，一名29岁的法国运动员，在星期天2月6日举行的一场U.S. Trévières 队和ST Sever队进行的足球比赛中突发心脏病，随后处于昏迷状态。
+撰稿：大浪小水花
 
-据报道，在比赛进入一半时，他便说自己不舒服，不久他便失去了知觉。两名球员和消防员见他倒地之后马上对他实行了心脏按摩，当他被送到所处城市的大学医院时，已处于昏迷状态。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-09-at-9.04.35-PM.jpeg)
 
-2月7日星期一晚上他还处于昏迷状态。人们已经开始向他所在的俱乐部及其家人发出支持他的留言。
 
-简评： 又一名足球运动员在赛场上倒下，如此年轻却突发心脏病，这已经成为赛场上的一种常态，我们几乎每个星期都会听到或读到这样的消息。我们不禁要问：究竟是什么原因让如此健康年轻的运动员突发心脏病。他接种疫苗了吗？是不是由疫苗引起的副作用？未来还会有多少远动员会在赛场上倒下？
+郭文贵先生在2022年2月9日大直播中向战友们透露了普京离开北京后的动态。
 
-原文链接：[https://www.eventiavversinews.it/francia-attacco-cardiaco-improvviso-durante-la-partita-di-domenica-6-febbraio-per-il-calciatore-29enne-maxime-fleury-e-in-coma-in-gravi-condizioni/](https://www.eventiavversinews.it/francia-attacco-cardiaco-improvviso-durante-la-partita-di-domenica-6-febbraio-per-il-calciatore-29enne-maxime-fleury-e-in-coma-in-gravi-condizioni/)
+郭先生说，普京离京后，第一件事就是与马克龙会面，他当面跟马克龙表示了对中共形式主义，一切造假的厌恶和鄙视。
 
-编辑、上传： Xiao   baige
+普京表示跟中共合作实属无奈，他希望能跟欧洲加强合作，希望欧洲能从俄罗斯购买更多的天然气以补充俄罗斯空虚的美元储备。
+
+郭先生表示，如果欧洲和俄罗斯合作，俄罗斯一定会弃中共于不顾。郭先生判断如果俄罗斯打乌克兰，由于有中共的经济支持，俄罗斯一定让中共背锅；不打乌克兰，欧洲版的竞争法案很快就会出炉，把中共国提出欧洲贸易。
+
+郭先生无奈的表示，无论俄乌危机结果如何，牺牲的都是中国老百姓的钱和命。
+
+参考链接：[2022年2月9日 文贵大直播](https://gtv.org/broadcast/watch/6203b7b13621aa7415d80e9f)
 
  
 

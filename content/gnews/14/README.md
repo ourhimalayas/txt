@@ -2,36 +2,43 @@
 ---
 
 
-## 全球央行或将开启“史上最大量化紧缩”
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1980374/)
+## 没有人相信中共的数字人民币凡使用皆为被控制
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/1980454/)
 
-作者：MOS 柳是多水土透
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月4日，据相关媒体报道，摩根-士丹利近日发布的一份报告指出，全球主要的中央银行即将开始“史上最大规模的量化紧缩”，在未来的12个月内，预计将有2.2万亿美元的货币支持会因此消失。
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image003-1.png)
+**2**月**7**日，据中共国参考消息报道** **，中共已经在全国试点推出数字人民币，有超过**2.61**亿人下载了数字人民币钱包应用程序，中共希望它最终能够帮助推进人民币国际化。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide11-3.jpeg)
+**美联储在第一份关于潜在美国数字货币的研究报告《货币与支付：数字转型时代的美元》中指出，通过实现隐私保护、中介、可广泛转让和身份认证，数字美元将最好地满足美国的需求。这也标志着该国首次涉足主权数字货币领域。**
 
-报道提及，全球通货膨胀的飙升迫使美国联邦储备系统，以及欧洲、日本和英格兰的中央银行急速收紧其各自在中共病毒大流行期间祭出的各项支持措施。
+**欧洲央行在**2020**年底发布了一份数字欧元研究报告，然后在去年**7**月启动了一个为期两年的数字欧元调查项目。**
 
-据各方普遍预计，美国联邦储备系统将在今年内加息五次，这也是自2005至2006年以来美国最快的一轮加息。同时，英国中央银行已经在本周推出了近三个月来的第二次加息，而欧洲中央银行近期的一些言论则让外界预计其将实施最近10年来的首次加息。
+**中共在北京、上海、海南、苏州、成都、雄安、长沙、大连、西安和青岛**10**个地区开展了数字人民币试点应用。使用数字人民币的交易总额达到了**876**亿元人民币（约合**138**亿美元）。截至去年**12**月底，数字人民币已被**800**多万家中共国商户所接受。
 
-摩根-士丹利的分析师对此表示，全球的这一轮紧缩将撤回2.2万亿美元的资金支持，其规模将达到2018年的4.5倍。
+新中国联邦创始人郭文贵先生指出，中共的数字人民币没有任何信用，大部分是央企国企和朝阳大妈在做托。一旦全国强制使用，中国人将彻底被中共监控和奴役。
 
-参考链接：[Central banks to embark on “largest quantitative tightening in history” – Morgan Stanley](https://www.reuters.com/markets/europe/central-banks-embark-largest-quantitative-tightening-history-morgan-stanley-2022-02-04/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-总编：飞虹
-编辑：飞虹
-校正/发稿：谐趣园
+**推出问题，敲出真相，爆料在路上！**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**请关注和订阅我们的以下账号：**
+
+**新西兰伊甸农场盖特**：https://gettr.com/user/himalayanz
+
+**【玫瑰看新闻】盖特**：https://gettr.com/user/rosenews
+
+**玫瑰看新闻YouTube账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**Rose news**
+
+**【玫瑰看新闻】推特账号**：
+
+**Rose News (@RoseNews4)a**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

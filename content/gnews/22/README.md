@@ -2,40 +2,37 @@
 ---
 
 
-## 北京冬眠会检疫隔离抱怨多朱易摔了中共国网友口诛笔伐
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/1980313/)
+## 韩国累积确诊突破百万 单日确诊连创新高
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1980352/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image003-6.jpg)
-2022年2月6日，在北京冬奥会赛事展开之际，德国、俄罗斯等国代表团均抱怨隔离条件“不合理”、食品恶劣、隔离程序混乱。另外，“归化”的中共国选手朱易在花滑团体赛上接连失误，被责拖累中共国队，遭到网友的猛烈攻击。
+作者：纽约香草山-Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月6日，据韩国卫生官员通报称，韩国当天的新增中共病毒确诊病例数再次刷新了该国的单日新增确诊纪录，达到3万8千691例。至此，韩国的累计中共病毒确诊人数突破了100万，同时，其死亡人数也超过了六千人。
 
-芬兰冰球队一位队员18天前检测阳性，目前已经没有传染性了，但仍被继续隔离，并且在隔离期间得不到好的食物，精神上受到很大的压力。主教练指责中共方面不尊重这位运动员的人权。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-6.jpeg)
 
-中共当局为防止中共病毒传播，将参加北京冬奥会所有人员的活动限制在“气泡圈”的“闭环”之内，不得与环外的中共国公众有任何接触，每天接受检测，并强制戴N95口罩。所有检测阳性的人员被送进隔离设施，直到通过检测阴性或由医疗专家小组审查，才能解除隔离。
+资料显示，自2020年1月起，韩国成为除中共国以外第一个爆发重大中共病毒疫情的国家。随后，韩国政府迅速采取了一系列疫情管控措施，使得韩国的整体确诊及死亡病例数维持在一个较低的水平。
 
-这种把参加冬奥会的人员，包括外国记者与中共国民众严格隔离开来的做法，引起了参奥人员和外国记者的不满。尽管闭环内没有防火墙阻断网络，但媒体和运动员们所了解的中共国基本上是“视频中共国”，一片虚假！
+然而数据表明，随着中共病毒疫苗的推广，韩国完全接种中共病毒疫苗的人口占总人数的86%，更有超过54.5%的民众已经接种疫苗加强针。为此，自奥米克戎变种病毒扩散以来，韩国的单日新增确诊病例数开始连创新高。
 
+目前，当地官员宣布，韩国将延长其疫情管控措施至少两周，当中包括商家在晚上9点后实行宵禁的规定，以及限制6人以上的私人聚会等。
 
+参考链接：[South Korea surpasses 1 million total COVID cases with daily record](https://www.reuters.com/world/asia-pacific/skorea-surpasses-1-million-total-covid-cases-with-new-daily-record-2022-02-06/)
 
-**推出问题，敲出真相，爆料在路上！**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-**请关注和订阅我们的以下账号：**
+总编：Jack Li文阳
+编辑：静言
+校正/发稿：谐趣园
 
-**新西兰伊甸农场盖特**：https://gettr.com/user/himalayanz
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-**【玫瑰看新闻】盖特**：https://gettr.com/user/rosenews
-
-**玫瑰看新闻YouTube账号**：
-
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**Rose news**
-
-**【玫瑰看新闻】推特账号**：
-
-**Rose News (@RoseNews4)a**
 
  
 

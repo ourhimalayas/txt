@@ -2,42 +2,33 @@
 ---
 
 
-## 美国批评中共让新疆运动员最后一棒传递奥运圣火
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/1980347/)
+## 有声|美国经济至暗时刻过后 将迎来快速反弹
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1980401/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image003-8.jpg)
-【阿波罗新闻网**2**月**7**日】美国驻联合国大使琳达**–**托马斯**–**格林菲尔德周日批评中共国决定让一名出生在新疆的运动员于星期五在北京的最后阶段传递奥运圣火。**
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在2月4日的大直播中，郭文贵先生说，美国经济此次会经历前所未有的黑暗，在这个进程中，有的人会血本无归，有的人会扬帆直上。得益于美国本土地理条件与气候的均匀分布，对世界精英的深度吸引，对宗教与民主法治自由的广泛包容，在经济的至暗时刻过后，美国又将再一次引领人类高度文明，生物科技、量子电脑、太空科技、新型材料等领域都或将迎来全面民用普及。往常美国需要3-5年的经济自我调整期会加速缩短，这次大概可能只需要一年不到的时间。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-4.jpg)
+郭先生同时指出，美国资本主义社会务实和无情的特点，逼迫每个人只能往前看。从行业特点看来，越有能力的人越倾向于经济科技和哲学领域，越没能力的越会去从事政治。跟不上时代进步的永远会被抛在脑后，包括战友。美国此次的经济全面复苏也将带来世界经济的大爆发。
 
-**新疆是越野滑雪运动员迪尼热**–**依拉木江的出生地，她与中共国另一位运动员赵嘉文是开幕式上最后一名火炬手。
+文字版原文：[美国经济至暗时刻过后 将迎来快速反弹](https://gnews.org/zh-hans/1972003/)
 
-据美国大使周日说：**“**这是中共当局试图转移我们对真正问题的注意力，即维吾尔人正在遭受酷刑，维吾尔人正在遭受中共的虐待，我们需要把这个问题放在首要关注位置。**”
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-**据美国驻联合国大使琳达**–**托马斯**–**格林菲尔德称，**“**我们已经明确表示，中共正在明知故犯地实施这些反人类罪行。**“
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**周六，在与中共国家主席习近平会晤后，联合国秘书长古特雷斯呼吁中共允许联合国人权事务高级专员米歇尔**–**巴切莱特访问新疆，但迄今为止北京方面一直拒绝。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-**推出问题，敲出真相，爆料在路上！**
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-**请关注和订阅我们的以下账号：**
-
-**新西兰伊甸农场盖特**：https://gettr.com/user/himalayanz
-
-**【玫瑰看新闻】盖特**：https://gettr.com/user/rosenews
-
-**玫瑰看新闻YouTube账号**：
-
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**Rose news**
-
-**【玫瑰看新闻】推特账号**：
-
-**Rose News (@RoseNews4)a**
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

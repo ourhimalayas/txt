@@ -2,35 +2,34 @@
 ---
 
 
-## 有声|中共在冬奥期间收集运动员基因信息
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1980399/)
+## CCP荼毒之下——我为什么而活
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1980482/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-美国前国务卿蓬佩奥2月6日在接受福克斯新闻玛丽亚采访时表示，他之所以呼吁抵制北京冬奥会，不是为了让运动员们失去竞技的机会，而是为所有去参加中共冬奥会的运动员们感到担忧。蓬佩奥称，他的这个担忧来自三个方面。
+作者：JuvenGuo
+[![](https://express.adobe.com/page/HtZeaxWvNWccw/images/4b186861-cd63-4d19-9852-fdb5ce43dbda.png?asset_id=b9a4f8a0-e53b-47b1-922e-46240807b162&amp;img_etag=%22fb9dc69846242002e809add57b090271%22&amp;size=1024)](https://express.adobe.com/page/HtZeaxWvNWccw/images/4b186861-cd63-4d19-9852-fdb5ce43dbda.png?asset_id=b9a4f8a0-e53b-47b1-922e-46240807b162&amp;img_etag=%22fb9dc69846242002e809add57b090271%22&amp;size=1024)
+CCP荼毒中华大地百年，其毒之深，深入骨髓。
 
-第一，在美国看来奥运会只是一项活动，而中共却将奥运视作一种宣传工具。并且中共想要利用举办奥运来给自己的人权劣迹洗白。
+我年轻时刚独立那几年，认为对自己限制最大的因素就是自己还是个人，与周遭环境格格不入。
 
-第二，到达北京的运动员面临手机被监控，以及自由言论带来的风险。
+女人被当作生育工具，孩子成为懦弱长辈达成目标的工具。女人生而为人，孩子生而为人，却不如一只畜牲，这种情况几乎发生在我身边所有人身上。
 
-第三，蓬佩奥国务卿最担心的除了数据信息，中共还将收集运动员们的DNA信息，并且会将这些信息交给中共军方数据库储存多年。 同一天的文贵大直播中，郭先生也爆料称，参加冬奥会运动员们的大小便甚至都将被收集。中共之所以收集运动员们的基因，就是因为中共根深蒂固的人种崇拜、基因崇拜，并据此给全世界的人类划定阶级。甚至认为用这些基因跟中共一起，交配出所谓更优质的人种就能变成巨大的财富。而这些都是因为中共本身就是一个种族主义、阶级主义的邪恶政权。
+我爹从小就骂我自由主义，不认真读书，不能光宗耀祖，我不知道我那无能的祖先有没有脸面面对在地狱中生存的后代，我活着成为别人的工具，那我活着对我自己有什么意义？身边的兄弟现在都几十岁了，包括我自己，晚上还会做噩梦，做因为没有自由而做的噩梦。
 
-文字版原文：[中共在冬奥期间收集运动员基因信息](https://gnews.org/zh-hans/1976083/)
+人生而自由，爆料革命开启了我的新生。原来所有的烦恼都来自于邪恶的CCP！
 
-音频处理：Fei797
-发稿：Fei797
+既然上天让我投生在这片土地上、CCP统治的地狱里，我就要发挥出自己微弱的自由之光，也许这就是我的使命。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+在周围的人都失去信仰的环境下， 觉醒者无疑会有极大的痛苦，正道主义的信仰是黑暗中耀眼的明灯。强光下，假骗偷、反人类的CCP无处躲藏。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*编辑：【英国伦敦喜庄园编辑部】*
 
+*校对：胖丁 | 审核：文明明 | Page：青山*
 
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+[![](https://express.adobe.com/page/HtZeaxWvNWccw/images/b7c25957-8b67-4267-b18c-f25d93f5e760.jpg?asset_id=a48ccfb5-5064-4f46-9a66-a67492000fdd&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://express.adobe.com/page/HtZeaxWvNWccw/images/b7c25957-8b67-4267-b18c-f25d93f5e760.jpg?asset_id=a48ccfb5-5064-4f46-9a66-a67492000fdd&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

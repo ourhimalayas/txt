@@ -2,38 +2,36 @@
 ---
 
 
-## 美国查获特大比特币失窃案
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1980318/)
+## 全球央行或将开启“史上最大量化紧缩”
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1980374/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+作者：MOS 柳是多水土透
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月4日，据相关媒体报道，摩根-士丹利近日发布的一份报告指出，全球主要的中央银行即将开始“史上最大规模的量化紧缩”，在未来的12个月内，预计将有2.2万亿美元的货币支持会因此消失。
 
-整理：Eileen（围剿维尼熊）
-编辑：朝花夕拾
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide11-3.jpeg)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-614.png)图片来源：雅典娜设计组
+报道提及，全球通货膨胀的飙升迫使美国联邦储备系统，以及欧洲、日本和英格兰的中央银行急速收紧其各自在中共病毒大流行期间祭出的各项支持措施。
 
+据各方普遍预计，美国联邦储备系统将在今年内加息五次，这也是自2005至2006年以来美国最快的一轮加息。同时，英国中央银行已经在本周推出了近三个月来的第二次加息，而欧洲中央银行近期的一些言论则让外界预计其将实施最近10年来的首次加息。
 
-根据新华社2月9日报道，美国司法部8日宣布，起获价值约36亿美元的失窃比特币。
+摩根-士丹利的分析师对此表示，全球的这一轮紧缩将撤回2.2万亿美元的资金支持，其规模将达到2018年的4.5倍。
 
-美联社援引联邦执法人员消息，这笔赃款涉及2016年一起比特币失窃案。当年，虚拟货币交易平台比特币交易所系统遭一名黑客袭击，失窃比特币当时市值7100万美元，如今已超过45亿美元。
+参考链接：[Central banks to embark on “largest quantitative tightening in history” – Morgan Stanley](https://www.reuters.com/markets/europe/central-banks-embark-largest-quantitative-tightening-history-morgan-stanley-2022-02-04/)
 
-执法人员8日在纽约曼哈顿逮捕了与案件相关的一对夫妇，利希滕施泰因和他妻子摩根。这两人将面临洗钱和诈骗罪名指控。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-据美联社报道，2016年比特币失窃案件发生后，一名黑客发起2000多起未经授权的比特币交易，将近12万枚比特币转账至利希滕施泰因控制的一个虚拟货币账户。接下来5年内，利希滕施泰因和摩根利用多个账户，使用多种手段洗白约2.5万枚比特币，转换为其他虚拟货币。
+总编：飞虹
+编辑：飞虹
+校正/发稿：谐趣园
 
-美国司法部副部长莉萨·莫纳科说，这是美国司法部查获的最大一笔赃款。
-
-参考链接：https://i.ifeng.com/c/8DUWrpPQNqw
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
