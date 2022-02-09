@@ -2,27 +2,20 @@
 ---
 
 
-## 中日财经爆|苹果手机推新功能 加速Hpay推广流通
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1977778/)
+## 2022年2月8日郭先生盖特 — 视频2「1分14秒」
+` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1977949/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-861.png)[图片来源](https://www.theverge.com/2022/2/8/22923463/apple-iphone-tap-to-pay-contactless-shopify-nfc)
-苹果公司推出提供轻触支付(Tap to Pay)功能，允许企业绕过其他终端硬件系统，只需轻触iPhone就能接受信用卡和数字支付，这将加速助推Hpay在商户间的推广流通。
+听写：洛杉矶盘古农场 — Antsee-GTV
 
-苹果周二表示，将于今年稍晚推出的这项功能，将使用近距离通讯技术(NFC)进行各种支付，包括在iPhone之间进行支付。并称苹果不会知道购买的是什么或谁在购买，强调了服务隐私功能。
+Video link: [https://gettr.com/post/ptbr4jf2c7](https://gettr.com/post/ptbr4jf2c7)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/51535897-3823-42FD-9ECB-A459205C9D84.jpeg)
+今天早上我发出GETTR以后很多人都在关心明天有啥公布的？
 
-在2022年2月1日上线的Himalaya Pay（Hpay）数字支付系统，在多个国家苹果商店提供下载使用，商家可选择全球领先的数字加密货币Himalaya Coin(Hcoin) 和Himalaya Dollar(HDO)支付，Hpay具有：转账0手续费，即时到账，隐私加密三大特色。
+首先和灭共的事情没多大关系；跟爆料革命也没啥关系；跟G系列没关系；就个人生活方式的改变，比如说一周几次大直播呀，还有未来一些个人生活方式的改变，跟那些都没关系。没那么大这事儿。大家都猜多了，想太多了。
 
-苹果新推的提供轻触支付(Tap to Pay)功能，正式迎合了Hpay用户间转账消费私密性的特点，加上方便快捷的支付体验，必将加速Hpay在市场上的推广和流通。
+我还在开会中，所以说我先给大家简单报告一下 — 猜多了啊。也可能明天公告，也可能是后天，好吧？是个人的事，完全个人生活方式的事儿！但7哥个人的事不是跟大家都连在一起吗？所以向大家报告一下。
 
-消息来源：[苹果推出新功能 将允许商家无需额外硬件直接通过iPhone接受付款](https://cn.reuters.com/article/apple-iphone-nfc-payment-0209-idCNKBS2KE03D?il=0)
-
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
-#  
-
-#  
+例如，个人生活方式的问题，生活方式的改变。说不定要娶二婚呢，是吧？和其它都没关系，跟爆料革命，跟新中国联邦，跟G系列都没有半点关系 — 那没有一样的东西属于我的，那都是属于爆料革命的属于战友们的！大家想多了，别着急，别着急，别想太多，别想太多。
 
  
 

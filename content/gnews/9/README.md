@@ -2,44 +2,32 @@
 ---
 
 
-## 新西兰爆发反疫情管控抗议
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1977757/)
+## 接种Moderna或辉瑞疫苗的人产生的刺突蛋白数量，高于那些严重患病的COVID-19患者！
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/1977895/)
 
-作者：纽约香草山教育部 Naughty(文行)
+素材：波士顿五月花 Vicky
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-09-at-12.33.00-PM.png)图片来源：互联网
+**这些基于基因的新 “疫苗 “正在以一种全新的方式工作–与传统的疫苗毫无相似之处。**
 
+**刺突蛋白，有时被称为 “致病蛋白”，被认为是导致与COVID-19疾病相关的许多可怕病症的原因。这些 “疫苗 “包含导致讨厌的刺突蛋白在体内生成的基因序列。我们不知道这种讨厌的蛋白质会产生多少，或者在注射基因序列后会持续多长时间，刺激人体自身复杂的生物系统来产生刺突蛋白，意味着产生的蛋白质数量将因人而异。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-4.png)
-据路透社报道，受加拿大类似示威活动的启发，2 月 8 日，数百名抗议疫苗接种和疫情限制的人用卡车和露营车封锁了惠灵顿新西兰议会外的街道。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-34.png)图源网络
-抗议者基本上没有戴口罩，他们举着呼吁自由的标语牌，反对政府采取严格的抗击疫情措施，并发誓要在议会外扎营，直到政府解除中共病毒限制措施。抗议活动可能会持续数天。
+**经过定量测量接种疫苗人群血浆中的刺突蛋白水平发现，这比在一个严重的COVID-19感染者身上观察到的水平要高。**
 
-新西兰总理阿德恩没有与抗议者见面，她后来告诉记者，抗议者并不代表多数人的观点。
+**这一点没有被公布或被调查，表明辉瑞公司、Biointech公司、Moderna公司、NIAID VRC和整个团队在监管方面的严重失职。使用这些疫苗，却没有充分了解其影响，而且美国食品和药物管理局没有要求提供完整的临床前病毒学监管方案，包括长期跟踪，没有像对待任何其他独特的化学或佐剂添加剂一样提供监管方案，这令人震惊。**
 
-在当天早些时候的第一次议会演讲中，阿德恩告诉议会，中共病毒大流行不会随着奥米炕 变种而结束，新西兰今年将不得不为更多的病毒变种做准备。
+**另外，这些疫苗中使用了独特的纳米颗粒，正如日本辉瑞公司的数据所显示的那样，这些纳米颗粒也只得到了少量的评估。**
 
-在上个月发布的最新公众民意调查中，阿德恩的支持率直线下降，因为公众对她的强制接种疫苗和延迟取消疫情管控表示不满。
+**我不知道该怎么写得更强烈。这项疫苗技术是不成熟的。**
 
-新西兰政府上周表示将在10月前分阶段向世界其他地区重新开放边界。
+**是在没有彻底检查这种以前未测试过的技术的短期和长期安全的潜在问题的情况下，就准备将基因技术用于世界范围的大规模疫苗接种计划吗？**
 
-新闻来源：[https://www.reuters.com/world/asia-pacific/new-zealand-pm-warns-more-covid-variants-2022-2022-02-08/](https://www.reuters.com/world/asia-pacific/new-zealand-pm-warns-more-covid-variants-2022-2022-02-08/)
+**在我看来，技术主义压倒了几十年甚至几个世纪以来在基本医疗实践、免疫学、病毒学、制药科学和一般公共卫生方面确立的健全原则。在这一过程中，政治民主、个人自由、言论自由和选择被危险地搁置一旁，甚至被无理审查。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-20.jpg)
+参考链接：[A Health Public Policy Nightmare](https://rwmalonemd.substack.com/p/a-health-public-policy-nightmare?r=ta0o1&amp;utm_campaign=post&amp;utm_medium=web)
 
+* * *
 
-
-编辑/校对/发稿：滚滚长江都是水
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+*编辑&发布：Vicky*
 
  
 

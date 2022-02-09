@@ -2,24 +2,27 @@
 ---
 
 
-## 加拿大薩省正式取消疫苗護照
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1977700/)
+## 中日财经爆|苹果手机推新功能 加速Hpay推广流通
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1977778/)
 
-采編：文萊 編譯撰稿：Quitman
-![](https://assets.gnews.org/wp-content/uploads/2022/02/02-image-1.png)
-據加拿大媒體[後千禧年]2月8日報道：薩斯喀徹溫省長斯科特當天宣布，將停止在該省使用疫苗護照，配戴口罩的規定也將於2月底到期。
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-861.png)[图片来源](https://www.theverge.com/2022/2/8/22923463/apple-iphone-tap-to-pay-contactless-shopify-nfc)
+苹果公司推出提供轻触支付(Tap to Pay)功能，允许企业绕过其他终端硬件系统，只需轻触iPhone就能接受信用卡和数字支付，这将加速助推Hpay在商户间的推广流通。
 
-報道稱，去年9月推行的疫苗接種證明已在全省造成嚴重的分歧，並因此有效地造成了兩個不同階層公民的製度。盡管目前的疫情有所緩和，但由於疫苗接種已不能有效防止新冠病毒的傳播，疫苗護照已明顯弊大於利，因此該政策應該壽終正寢了。
+苹果周二表示，将于今年稍晚推出的这项功能，将使用近距离通讯技术(NFC)进行各种支付，包括在iPhone之间进行支付。并称苹果不会知道购买的是什么或谁在购买，强调了服务隐私功能。
 
-對此，省長斯科特呼籲公眾不要因為是否已接種了疫苗就去評判他人。並表示，現在不僅是彌合社區在疫苗接種問題上分歧的時候，也到了所有人作為家人和朋友、作為社區、作為一個省、作為一個國家團結一致的時候。
+在2022年2月1日上线的Himalaya Pay（Hpay）数字支付系统，在多个国家苹果商店提供下载使用，商家可选择全球领先的数字加密货币Himalaya Coin(Hcoin) 和Himalaya Dollar(HDO)支付，Hpay具有：转账0手续费，即时到账，隐私加密三大特色。
 
-至此，薩斯喀徹溫省成為加拿大第一個取消疫苗護照和將要停止使用口罩的省份。
+苹果新推的提供轻触支付(Tap to Pay)功能，正式迎合了Hpay用户间转账消费私密性的特点，加上方便快捷的支付体验，必将加速Hpay在市场上的推广和流通。
 
-校對編輯：硫酸羥氯喹64
+消息来源：[苹果推出新功能 将允许商家无需额外硬件直接通过iPhone接受付款](https://cn.reuters.com/article/apple-iphone-nfc-payment-0209-idCNKBS2KE03D?il=0)
 
-發稿：苦盡甜來 (文來）
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+#  
 
-原文鏈接：https://thepostmillennial.com/breaking-saskatchewan-drops-masks-mandate-vaccine-passports
+#  
 
  
 

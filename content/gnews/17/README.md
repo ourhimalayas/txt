@@ -2,30 +2,38 @@
 ---
 
 
-## 美批准一亿美元对台军售，改进爱国者导弹系统
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1977692/)
+## 港共政府收紧疫情限聚令为疫苗通行证铺路
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1977771/)
 
-![资料照片：台湾国防部公布的照片显示台湾军队在年度“汉光”军演期间从一处未具体披露的地点发射美国制造的爱国者导弹。(2020年7月15日)](https://gdb.voanews.com/E08E88CD-9ED7-4668-8BE2-56278F4CC552_w1023_r1_s.jpg)资料照片：台湾国防部公布的照片显示台湾军队在年度“汉光”军演期间从一处未具体披露的地点发射美国制造的爱国者导弹。(2020年7月15日)
-据美国之音2月8日报道，美国国防部7日宣布，美国国务院批准向台湾出售价值一亿美元的设备和服务，帮助维持和改进爱国者导弹系统，以加强台湾的防空体系和监测能力，反击北京的扰台行为。
-
-驻美国台北经济文化代表处(TECRO)向美方提出了这个军购要求，以支持台湾加入为期五年的爱国者国际工程服务计划(IESP)和实地监控计划(FSP)。美国政府要求在爱国者导弹防空系统的整个生命周期必须加入这两个共同计划。预计该项目的总成本为1亿美元。
-
-中共洗脑国民常说的一句话是，“敌人亡我之心不死”，并时不时用这句话来唤醒国民脆弱的玻璃心和盲目的爱国情怀。中共对台湾就是“亡台湾之心不死”，并且越来越强烈。台湾从建国以来，就是一个独立的民主国家，跟大陆完全是两种体制。北京强硬地表示，台湾是中共国领土不可分割的一部分，必要时不惜武力夺取台湾，实现所谓的“领土完整”。在美中关系不断恶化之际，北京也加大了对台湾的军事恫吓，包括频繁派遣破纪录的军机侵扰台湾的防空识别区。为了应对中共在台湾海峡的军事威胁，美国加大了对台湾的军事援助。中共一旦对台采取军事行动，台湾自身的防御体系至关重要。
-
-新闻参考链接：[https://www.voachinese.com/a/us-china-taiwan-arms-sales-20220207/6431991.html](https://www.voachinese.com/a/us-china-taiwan-arms-sales-20220207/6431991.html)
-
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+作者：纽约磐石农场—在远方
 
 
-编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-3.png)
+台媒报道，2月8日香港特首林郑月娥，宣布最新防疫措施，包括收紧公众聚会人数上限至2人。同时首次将限聚令适用于私人处所，禁止两个家庭在私人地方进行跨家庭聚会。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+据悉，港共政府授意香港行政会议，通过防疫规例修订，将规管的处所增至23类，包括宗教场所、商场、街市和发廊等地方。其中，还强迫宗教处所，需于2月10日关闭至2月24日凌晨。
+
+另据港共政府专家顾问、中大呼吸科教授许树昌表示，如果港共政府的上述措施无效，下一步还要考虑限制公民，进行户外活动和交通工具使用，要求乘客使用疫苗通行证。
+
+新闻来源：[https://money.udn.com/money/story/6721/6084558?from=ddd-umaylikenews\_money\_index](https://money.udn.com/money/story/6721/6084558?from=ddd-umaylikenews_money_index)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-21.jpg)
+
+
+
+编辑/校对/发稿：滚滚长江都是水
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 
