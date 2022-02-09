@@ -2,27 +2,27 @@
 ---
 
 
-## 韩国累积确诊突破百万 单日确诊连创新高
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1980352/)
+## 全球央行或将开启“史上最大量化紧缩”
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1980374/)
 
-作者：纽约香草山-Naughty(文行)
+作者：MOS 柳是多水土透
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月6日，据韩国卫生官员通报称，韩国当天的新增中共病毒确诊病例数再次刷新了该国的单日新增确诊纪录，达到3万8千691例。至此，韩国的累计中共病毒确诊人数突破了100万，同时，其死亡人数也超过了六千人。
+2月4日，据相关媒体报道，摩根-士丹利近日发布的一份报告指出，全球主要的中央银行即将开始“史上最大规模的量化紧缩”，在未来的12个月内，预计将有2.2万亿美元的货币支持会因此消失。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-6.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide11-3.jpeg)
 
-资料显示，自2020年1月起，韩国成为除中共国以外第一个爆发重大中共病毒疫情的国家。随后，韩国政府迅速采取了一系列疫情管控措施，使得韩国的整体确诊及死亡病例数维持在一个较低的水平。
+报道提及，全球通货膨胀的飙升迫使美国联邦储备系统，以及欧洲、日本和英格兰的中央银行急速收紧其各自在中共病毒大流行期间祭出的各项支持措施。
 
-然而数据表明，随着中共病毒疫苗的推广，韩国完全接种中共病毒疫苗的人口占总人数的86%，更有超过54.5%的民众已经接种疫苗加强针。为此，自奥米克戎变种病毒扩散以来，韩国的单日新增确诊病例数开始连创新高。
+据各方普遍预计，美国联邦储备系统将在今年内加息五次，这也是自2005至2006年以来美国最快的一轮加息。同时，英国中央银行已经在本周推出了近三个月来的第二次加息，而欧洲中央银行近期的一些言论则让外界预计其将实施最近10年来的首次加息。
 
-目前，当地官员宣布，韩国将延长其疫情管控措施至少两周，当中包括商家在晚上9点后实行宵禁的规定，以及限制6人以上的私人聚会等。
+摩根-士丹利的分析师对此表示，全球的这一轮紧缩将撤回2.2万亿美元的资金支持，其规模将达到2018年的4.5倍。
 
-参考链接：[South Korea surpasses 1 million total COVID cases with daily record](https://www.reuters.com/world/asia-pacific/skorea-surpasses-1-million-total-covid-cases-with-new-daily-record-2022-02-06/)
+参考链接：[Central banks to embark on “largest quantitative tightening in history” – Morgan Stanley](https://www.reuters.com/markets/europe/central-banks-embark-largest-quantitative-tightening-history-morgan-stanley-2022-02-04/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-总编：Jack Li文阳
-编辑：静言
+总编：飞虹
+编辑：飞虹
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**
@@ -32,8 +32,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

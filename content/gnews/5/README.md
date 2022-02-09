@@ -2,31 +2,30 @@
 ---
 
 
-## 七哥谈“这个社会没有正义”（2022-02-06摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1980980/)
+## NFSC新闻、G|TV新闻访谈简报|2022年2月9日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1981081/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-4.jpg)
 
-来源：郭先生2022-02-06直播08：09：06摘录
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-8.png)
+文章仅代表作者本人观点，与Gnews无关
 
-你再想想当年，蒲安臣跟美国人跟中国签那个合约的时候，在他的记录中说的话，包括当年，大家记住啊，罗斯福总统家族在上海都有办事处的，对中国人的描述说：“这个国家永远视作旁边的同类、穷困潦倒，甚至是被虐待被掠杀，就看着视而不见，这个社会没有正义，这个社会从来没有任何人想帮别人，甚至每个人都特别开心别人比自己活得差，从来没接受过别人比自己好。” 而且说：“这儿一切都是假的。” 说到这儿的时候我要告诉你们，就在刚才我给你们打了个招呼我去诵经去了，这信息我蹲在马桶上看一看，我看都没法看，亨利小哥，就是那好多运动团代表，像韩国的、俄罗斯的、丹麦的，那哥们儿说：“郭先生，我们惨了！我拉肚子，我也没得上病，我现在这空调摸啥啥不凉，摸啥啥不热，你知道这什么感觉吗？我觉得我现在就是个半死，就是生与死的状态。” 给我发信息。我说：“你们有690道菜啊，中国的美食文化啊，好好吃啊。” 他说：“我现在我想死，我觉得我回家的勇气都没了。这个国家简直是魔鬼啊，他这么对待我们！原来找我谈的时候，如何骗我让我去，如何吃好穿好。” 你知道更夸张的，我们中东的卡塔尔的一个哥们儿，不是运动员，说服老板，曾经财政部长的家庭，知道吗？这文真、大石你们不一定懂，亨利在体制内懂，把你骗来的人，共产党对你啥报复？现在我可以告诉大家，不是报复他，就他亲自看到端上饭的人“啪”一口唾沫吐上去，端上去，就让他看见，你还不能出门。他说：“你看我们现在完全在监狱了。” 出门出不了，有四道关，他要饭，俩小时上来，“这饭当着我面就‘啪’一口，我们被隔离了，屋里电、WI-FI没有管用的。”我前天下午给他发的信息，我说：“你现在听我的，马上离开中共国，你还能挽回你的尊严，你这狗屁卡塔尔算个毛。共产党用过所有人就像擦屁股纸一样，不会再回头说擦过屁股的纸给小新纸了，小新接了文贵的擦屁股纸，擦完纸以后，小新再拽回来，从那个茅屎坑里，再闻闻？然后揣兜里边？不会的，小新老师擦完屁股扔下去不会再拿回来了。莎喲娜啦！没有人拿回擦屁股纸的。我说：你就是那擦屁股纸，是不是这意思？好。我说共产党冬奥会一定会开成“冬眠会”。你知道，亨利小哥在体制内知道，共产党永远相信：只要开幕式成功了，就成功了一半，每个人都相信这句话。我告诉大家，七哥给他招是什么？我让你开幕式也开不成功，我让你开幕式以后永远不能结束这场冬奥会。不能结束的冬奥会，这就是咱新中国联邦做的。我可以告诉大家，我无处不在的战友说：“七哥，凡是在这块想跟共产党来蹭钱的，放心七哥，我让他这一辈子难忘中国。”
+视频参看：
+[2022.02.09早 《NFSC新闻》](https://gtv.org/video/id=6203c1723621aa7415d8290a)
+[2022.02.09早 G|TV《新闻访谈》](https://gtv.org/video/id=6203cf343621aa7415d841ed)
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-**关注我们**
+![calendar](https://assets.gnews.org/wp-content/uploads/2022/02/calendar-1.png)
 
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
