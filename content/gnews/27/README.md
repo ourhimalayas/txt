@@ -2,32 +2,38 @@
 ---
 
 
-## 接种Moderna或辉瑞疫苗的人产生的刺突蛋白数量，高于那些严重患病的COVID-19患者！
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/1977895/)
+## 太盟董事长单伟建是中共高级间谍和洗钱罪犯
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1977929/)
 
-素材：波士顿五月花 Vicky
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-09-at-12.33.00-PM.png)图片来源：互联网
-**这些基于基因的新 “疫苗 “正在以一种全新的方式工作–与传统的疫苗毫无相似之处。**
+#### **【雅典娜观察】和您一起洞察世界**
 
-**刺突蛋白，有时被称为 “致病蛋白”，被认为是导致与COVID-19疾病相关的许多可怕病症的原因。这些 “疫苗 “包含导致讨厌的刺突蛋白在体内生成的基因序列。我们不知道这种讨厌的蛋白质会产生多少，或者在注射基因序列后会持续多长时间，刺激人体自身复杂的生物系统来产生刺突蛋白，意味着产生的蛋白质数量将因人而异。**
+整理/编辑：文泓
 
-**经过定量测量接种疫苗人群血浆中的刺突蛋白水平发现，这比在一个严重的COVID-19感染者身上观察到的水平要高。**
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/5-13.png)图片来源：Gnews
 
-**这一点没有被公布或被调查，表明辉瑞公司、Biointech公司、Moderna公司、NIAID VRC和整个团队在监管方面的严重失职。使用这些疫苗，却没有充分了解其影响，而且美国食品和药物管理局没有要求提供完整的临床前病毒学监管方案，包括长期跟踪，没有像对待任何其他独特的化学或佐剂添加剂一样提供监管方案，这令人震惊。**
 
-**另外，这些疫苗中使用了独特的纳米颗粒，正如日本辉瑞公司的数据所显示的那样，这些纳米颗粒也只得到了少量的评估。**
+当地时间2月8日，据PRfree网报道，有数百名美国华人同时致函联邦调查局，揭露太平洋联盟集团（PAG）董事长兼首席执行官单伟建先生是中共高级间谍和洗钱罪犯。
 
-**我不知道该怎么写得更强烈。这项疫苗技术是不成熟的。**
+2月8日正是庆祝中国农历新年假期的时候，但数以百计的海外华人正对他们的声誉和安全表示严重担忧。因为中国共产党无视美国主导下的全球秩序，目前已经引发社会针对华语世界中各个社区的的污名化、歧视，甚至仇恨和犯罪。
 
-**是在没有彻底检查这种以前未测试过的技术的短期和长期安全的潜在问题的情况下，就准备将基因技术用于世界范围的大规模疫苗接种计划吗？**
+随着中共间谍在美国的数量不断增加，针对华裔的仇恨情绪和种族主义将成为新的社会现象。
 
-**在我看来，技术主义压倒了几十年甚至几个世纪以来在基本医疗实践、免疫学、病毒学、制药科学和一般公共卫生方面确立的健全原则。在这一过程中，政治民主、个人自由、言论自由和选择被危险地搁置一旁，甚至被无理审查。**
+2009年后，出于对经济优势和政治影响力的极端渴求，中共向美国派出越来越多的人员从事间谍活动。在联邦调查局，大约每天都会有两起针对中共国新的反间谍案件。**世界上没有其他国家比中共国对美国的思想、美国的创新和美国的经济安全构成更广泛的威胁。**联邦调查局局长克里斯托弗·雷在加利福尼亚州西米谷的罗纳德·里根总统图书馆的主题演讲中说道：
 
-参考链接：[A Health Public Policy Nightmare](https://rwmalonemd.substack.com/p/a-health-public-policy-nightmare?r=ta0o1&amp;utm_campaign=post&amp;utm_medium=web)
+农历新年过后，数百名美国华人同时致信联邦调查局，揭露太平洋联盟集团董事长兼首席执行官单伟建先生是中共的高级间谍。**越来越多的海外华人希望说出中国人不等于中共的真相，中共的高级间谍单伟建不能代表生活在美国的数百万热爱自由的中国人。**
 
-* * *
+**勇敢的美国华人敦促联邦调查局调查单伟建和他的儿子单博，因为他们犯下了经济间谍、知识产权盗窃、金融欺诈、移民欺诈和洗钱活动。**应追究单伟建从美国养老基金中窃取资金，并通过中共千人计划渗透美国的责任。
 
-*编辑&发布：Vicky*
+新闻链接：[Weijian Shan, the Chairman, and CEO of Pacific Alliance Group (PAG), Is Communist China’s High- ranking Spy & Money-laundering Criminal (prfree.org)](https://www.prfree.org/@astralsoul/weijian-shan-the-chairman-and-ceo-of-pacific-alliance-group-pag-is-communist-china-s-high-ranking-spy-money-laundering-criminal-b7kx64ep7kry)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

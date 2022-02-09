@@ -2,20 +2,22 @@
 ---
 
 
-## 共产党要活必须靠美国
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1978124/)
+## 加拿大国防部抛弃未接种疫苗军人
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/1978144/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+加拿大温哥华扬帆农场    平民正道
 
-*发布：陶子*
+据[渥太华太阳报]近日报道，加拿大武装部队已解雇了数十位未接种“新冠病毒”疫苗的服役人员，而其他针对数百名军人的解雇程序正在进行中。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+报道称，[加拿大国防部]在疫情期间大量开除未接种现役军人之举，势必将会加剧国防人员严重短缺的恶况。而且由于防疫措施的限制，目前大部分军队的招募中心和培训学校都已被迫关闭或暂停。
+
+据国防部的数据显示，目前加拿大军队的现役人数约为1万人，另有1万名人员因未受过训练或伤病而无法执行任务。因此，面对国际间急剧变化的军情，加拿大国防部的应对能力现已捉襟见肘。
+
+此外，之前遭到解雇的部分军人已于去年底对国防部的疫苗强制接种政策提起了诉讼，理由是该政策不仅违宪，还严重侵害了个人对健康的绝对选择权。
+
+* * *
+
+编辑： 平民正道    发布：平民正道
 
  
 
