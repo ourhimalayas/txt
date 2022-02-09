@@ -2,15 +2,15 @@
 ---
 
 
-## 疫苗大变局—政策转向/药企与政府互掐
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1979550/)
+## 中俄各怀鬼胎 骑虎难下
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1979565/)
 
 文贵大直播20220209
 
-撰稿：莲心不染（扬帆）MyWay（扬帆）
+撰稿：不着急（文复）（达芬奇）Poplar（盘古）Ding Ding（香草山）
 
-美工：凌点夜话（香草山）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片1-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片2-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片3-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片4-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片5-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片6-1.jpg)
+美工：跟着北美教练（英喜）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片1-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片2-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片3-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片4-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片5-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片6-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片7-4.png)
 *发布：Theodosia*
 
  

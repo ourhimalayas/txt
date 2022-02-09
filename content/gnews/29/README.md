@@ -2,20 +2,34 @@
 ---
 
 
-## 美国缉毒局局长：中共知道芬太尼的原料来自该国，在遏制芬太尼上他们需要做得更多
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1979791/)
+## 普京冬奥会开幕式后愤然离京
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1979990/)
 
-翻译：zzballack
-上传：追着曙光跑
+作者：香草山农场 – 晓仙女
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月6日，郭文贵先生在大直播中再次详细分析了普京在中共冬奥会开幕式后愤然离开北京的真实原因。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-29.jpg)
+郭先生提到，中共政府以千亿人民币为条件，利诱普京参加此次冬奥会的开幕式，使其成为唯一给习近平撑场面的外国领袖。
 
-据《布雷特巴特新闻网》（Breitbart News）2月8日报道，美国缉毒局局长安妮·米尔格拉姆 (Anne Milgram)2月8日在接受美国有线电视新闻网（CNN）“At This Hour”节目的主持人凯特·伯杜安 (Kate Bolduan) 采访时说，中共“知道”来自他们国家的化学品被运往拉丁美洲，并被用来制造芬太尼，“中共需要做得更多”来阻止这种现状。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-09-at-23.43.42.jpeg)图片来源：原新闻
-在采访中，凯特·伯杜安问道：“你把芬太尼称为地球上最致命的物质之一。我们谈到了芬太尼对美国造成的伤害、它是如何到达美国的以及它为什么是一个如此严重的问题。有两个国家与芬太尼密不可分，它们是中共国和墨西哥。制造芬太尼的化学原料来自中共国，但是中共政府为什么不阻止它呢？”
+郭先生透露，普京团队原计划在北京停留48小时，用作交换的是，中共需以黄金为本位与俄罗斯开展本币互换工作，同时，俄罗斯要求中共向普京团队提供绝对独立的保护和医疗措施。然而，普京团队甫一落地就有16个团队成员确诊感染了中共病毒，更甚者，还有4名人员在俄罗斯团队居住的酒店内离奇身亡。此外，中共在普京抵达后突然变卦，拒绝向俄罗斯支付在本币互转中因资金不足需要额外支付的黄金。
 
-米尔格拉姆回答说：“这个问题十分正确。毫无疑问中共需要在这方面做得更多。中共国现在的化学行业几乎不受任何监管，这些化学品每天都被运往墨西哥以及拉丁美洲的其他国家。我们知道这正在发生，中共也知道它正在发生，这种情况必须被阻止，它是（解决芬太尼危机）的一个关键点。正如我所说，如果这些化学品没能进入墨西哥，墨西哥的贩毒集团就无法制造芬太尼和冰毒。因此，这是我们缉毒工作上游环节一个非常重要的部分。”
+为此，在开幕式后不足9个小时的时间里，普京愤然离京。
 
-信息来源：[DEA Administrator: China ‘Knows’ Its Chemicals Are Used to Make Fentanyl, It ‘Needs to Do More’](https://www.breitbart.com/clips/2022/02/08/dea-administrator-china-knows-its-chemicals-are-used-to-make-fentanyl-it-needs-to-do-more/)
+参考链接：[2022年2月6日 文贵大直播：开幕式后普金愤然离去；中俄战略合作虎头蛇尾；贩卖人口中国妇女地位；反疫苗运动及美国经济](https://gettr.com/post/psu0mf2270)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+
+总编: Jack Li文阳
+编辑：静言
+校正/发稿：Fei797
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

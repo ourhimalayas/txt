@@ -2,36 +2,23 @@
 ---
 
 
-## 参赛运动员透露中共冬奥会隔离条件恶劣
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1980067/)
+## 29岁法国足球运动员在2月6日星期天的一场足球比赛中，突发心脏病，处于昏迷状态
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1980190/)
 
-作者：纽约香草山 – Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月5日，据外国媒体消息显示，来自俄罗斯的冬季两项运动员瓦斯内佐娃在社交媒体平台上披露了中共北京冬奥会为参赛选手所提供的恶劣的隔离条件。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3-15.jpg)
-据瓦斯内佐娃透露，由于其中共病毒核酸检测结果呈阳性，她不得不在北京的一家饭店中进行隔离，但该隔离酒店在餐饮方面对运动员和工作人员区别对待，且酒店提供的餐食难以下咽，已经严重影响了她的身体健康。
+#### 翻译                   意大利达芬奇农场                      小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-09-alle-15.41.35.png)图片来源：eventiavversinews.it
+马西梅•佛勒瑞，一名29岁的法国运动员，在星期天2月6日举行的一场U.S. Trévières 队和ST Sever队进行的足球比赛中突发心脏病，随后处于昏迷状态。
 
-另外，曾三次获得北欧混合式滑雪金牌的德国选手佛伦瑟在确诊中共病毒感染后也被中共举办方单独隔离。随后，德国奥运代表团团长施梅尔·普芬尼也向相关媒体指出，中共提供的隔离酒店条件极为不合理，运动员需要更大、更清洁的房间，同时需要准时得到有营养的食物，从而能够确保选手们在结束隔离后还可以上场比赛。
+据报道，在比赛进入一半时，他便说自己不舒服，不久他便失去了知觉。两名球员和消防员见他倒地之后马上对他实行了心脏按摩，当他被送到所处城市的大学医院时，已处于昏迷状态。
 
-另据其他参赛代表团反应，因中共病毒确诊而被隔离的运动员们并没有全部在冬奥村隔离。
+2月7日星期一晚上他还处于昏迷状态。人们已经开始向他所在的俱乐部及其家人发出支持他的留言。
 
-参考链接：
-1) . [Olympic teams raise concerns over quarantine hotels](https://apnews.com/article/winter-olympics-quarantine-hotels-e2d2ffc60d9800cf1951cc3eaed323cb)
-2) . [Winter Olympic athletes blast conditions of COVID quarantine hotels](https://www.foxnews.com/sports/winter-olympic-athletes-conditions-covid-quarantine-hotels)
+简评： 又一名足球运动员在赛场上倒下，如此年轻却突发心脏病，这已经成为赛场上的一种常态，我们几乎每个星期都会听到或读到这样的消息。我们不禁要问：究竟是什么原因让如此健康年轻的运动员突发心脏病。他接种疫苗了吗？是不是由疫苗引起的副作用？未来还会有多少远动员会在赛场上倒下？
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+原文链接：[https://www.eventiavversinews.it/francia-attacco-cardiaco-improvviso-durante-la-partita-di-domenica-6-febbraio-per-il-calciatore-29enne-maxime-fleury-e-in-coma-in-gravi-condizioni/](https://www.eventiavversinews.it/francia-attacco-cardiaco-improvviso-durante-la-partita-di-domenica-6-febbraio-per-il-calciatore-29enne-maxime-fleury-e-in-coma-in-gravi-condizioni/)
 
-总编: 飞虹
-编辑： 飞虹
-校正/发稿：Fei797
+编辑、上传： Xiao   baige
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,32 +2,34 @@
 ---
 
 
-## TikTok 内含13个第三方数据追踪器
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1979890/)
+## 香港单日中共病毒确诊数再创新高
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1979993/)
 
-**撰稿：日本东京方舟农场 北极**
+作者：纽约香草山-Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月5日，据相关媒体报道，香港政府当天通报了351例新增中共病毒确诊病例，这也是自中共病毒疫情在香港爆发以来，当地单日新增确诊病例最多的一天。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-09-上午9.03.18.png)
+数据显示，目前，香港的中共病毒疫苗第一针接种率已经高达79.8%，而完全接中共病毒种疫苗的民众占当地总人数的72%，另外，还有超过一百万的香港居民接种了第三剂加强针。
 
-据 URLgenius 上个月发布的研究结果表明，TikToK 追踪用户个人数据的次数远超其他社交媒体，其中内含多达13个第三方数据追踪器。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-88.png)TikTok 为中共国科技公司字节跳动（Bytedance Inc.）的抖音的海外版。（图片来自大纪元）
-URLgenius 是一家美国移动营销公司，该公司在上个月利用苹果 iOS 系统的Record App Activity 功能，针对10个不同的社交媒体应用，统计了在一次访问过程中，有多少不同的域名追踪了用户的活动。 该研究涉及的这10个社交媒体应用包括：YouTube、TikTok、Twitter、Telegram、LinkedIn、Instagram、Facebook、Snapchat、Messenger 和 WhatsApp。
+然而，香港针对中共病毒疫情的相关负责人指出，虽然政府试图加强对中共病毒疫情的管控，但当下仍是香港自疫情爆发以来最严峻，也是最关键的时期。此外，当地的疫情并不乐观，甚至本土病例可能会在近期内呈几何级数上升。
 
-结果显示，TikTok 和 YouTube 分别以14个数据追踪器位居所有应用程序之首，而 TikTok 中有13个追踪者均来自不明第三方。
+而评论人士则对此表示，虽然港共政府此前强制当地民众接种中共病毒疫苗时曾大肆宣称其在防护病毒与阻止传播方面的有效性，但目前的感染数据表明，中共病毒疫苗对病毒的抑制作用微乎其微。
 
-TikTok 为中共国字节跳动公司（Bytedance Inc.）开发的社交媒体应用“抖音”的海外版，目前在美国颇为流行。此前，TikTok 一直因其收集用户个人数据（尤其是来自青少年用户的数据），并上传至中共国服务器的做法而受到批评。
+参考链接：[Hong Kong reports record daily high of 351 coronavirus cases](https://www.reuters.com/world/china/hong-kong-reports-record-daily-high-351-coronavirus-cases-2022-02-05/)
 
-URLgenius 的研究发现，当启动并登录 TikTok 时，在用户未授权应用程序追踪情况下，仍旧会出现第三方追踪器。即使你离开了该应用程序，这种第三方追踪器仍可以追踪你在其他网站上的活动。而在此过程中，消费者并不知晓。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-2021年10月，《连线》（Wired）杂志发布了一份指南，专门介绍了TikTok 如何追踪用户数据，包括你的位置、搜索历史、IP 地址、你观看的视频，以及你观看这些视频的时间。 根据该指南提供的数据，TikTok 可以根据其收集的其它信息，从你的年龄范围到性别，「推断」出你的个人性格特征。这种做法被称为「推断人口统计学」（inferred demographics）。
+总编：Jack LI文阳
+编辑：静言
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-2020年，时任美国总统特朗普出于对 TikTok 的数据安全政策的担忧，发布了美国禁止使用 TikTok 的行政禁令。而现任总统乔·拜登（Joe Biden）则暂时收回了禁令，但仍下令审查外国应用构成的、潜在的安全威胁。
-
-参考链接：
-[https://www.epochtimes.com/b5/22/2/9/n13564207.htm](https://www.epochtimes.com/b5/22/2/9/n13564207.htm)
-
-素材采编：北极
-编辑：老孙
-发布：爱放飞
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

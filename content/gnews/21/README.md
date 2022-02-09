@@ -2,34 +2,19 @@
 ---
 
 
-## 香港单日中共病毒确诊数再创新高
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1979993/)
+## 被铁链锁住的人权
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1980058/)
 
-作者：纽约香草山-Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月5日，据相关媒体报道，香港政府当天通报了351例新增中共病毒确诊病例，这也是自中共病毒疫情在香港爆发以来，当地单日新增确诊病例最多的一天。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-09-上午9.03.18.png)
-数据显示，目前，香港的中共病毒疫苗第一针接种率已经高达79.8%，而完全接中共病毒种疫苗的民众占当地总人数的72%，另外，还有超过一百万的香港居民接种了第三剂加强针。
+**撰稿：挺郭吃榴莲**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-09-221651.jpg)
+在2022年春节期间，这张图片这个新闻被各大媒体霸了屏，全世界华人在欢度春节，举国欢腾喜迎冬奥。在徐州，一个被拐卖了的生了八个孩子的母亲，在寒冷的冬天，身着单薄的衣服，在破烂的房子里，被铁链锁着脖子。
 
-然而，香港针对中共病毒疫情的相关负责人指出，虽然政府试图加强对中共病毒疫情的管控，但当下仍是香港自疫情爆发以来最严峻，也是最关键的时期。此外，当地的疫情并不乐观，甚至本土病例可能会在近期内呈几何级数上升。
+“这个世界不要俺了！”从这个半疯的女人嘴里挤出的话。在这个村子生活的22年间，没有人来帮她，没有任何人真正的来关心这件事情。麻木的邻居，相互推诿的相关负责人，没有公信的媒体。被铁链锁住的做人的基本权力！逃不走，跑不了，于是半疯傻了。。。。。。。
 
-而评论人士则对此表示，虽然港共政府此前强制当地民众接种中共病毒疫苗时曾大肆宣称其在防护病毒与阻止传播方面的有效性，但目前的感染数据表明，中共病毒疫苗对病毒的抑制作用微乎其微。
+古有“两脚羊”，现有裹小脚，被铁链锁着的女人。都2022年了，现代社会了，不断有这种把人不当人匪夷所思的事情发生。
 
-参考链接：[Hong Kong reports record daily high of 351 coronavirus cases](https://www.reuters.com/world/china/hong-kong-reports-record-daily-high-351-coronavirus-cases-2022-02-05/)
+归根结底是体制的恶，造成了穷凶极恶的“恶”。人民开智的民主法制自由的路还很长。我们新中国联邦人任重道远。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
-
-总编：Jack LI文阳
-编辑：静言
-校正/发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
