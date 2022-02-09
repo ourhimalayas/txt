@@ -2,32 +2,19 @@
 ---
 
 
-## 美国布局印太 布林肯本周启澳洲、斐济之行
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1979991/)
+## 被铁链锁住的人权
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1980058/)
 
-作者：台湾宝岛农场-阿尔道夫
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月6日，据相关媒体报道，美国国务院当天发布声明表示，自2月9日起，国务卿布林肯将开启他的亚洲之行。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-09-上午9.02.52.png)
-据了解，布林肯将于本月9至12日先在澳大利亚参加由当地政府举办的美、日、印、澳四方安全对话外长会议；随后，他将在斐济会晤太平洋岛国的领袖，并与他们商议有关气候危机、中共病毒疫情、灾害援助以及区域民主和团结等话题；其后，布林肯将继续转战夏威夷檀香山参与当地举办的美、日、韩三国外长会议，并将在会上讨论朝鲜核威胁的问题。
+**撰稿：挺郭吃榴莲**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-09-221651.jpg)
+在2022年春节期间，这张图片这个新闻被各大媒体霸了屏，全世界华人在欢度春节，举国欢腾喜迎冬奥。在徐州，一个被拐卖了的生了八个孩子的母亲，在寒冷的冬天，身着单薄的衣服，在破烂的房子里，被铁链锁着脖子。
 
-此外，有分析人士指出，布林肯此行不仅展现出美国对印太地区的支持，同时，该举措更是向外界表明，对抗来自中共的扩张威胁目前仍是美国政府的首要任务。
+“这个世界不要俺了！”从这个半疯的女人嘴里挤出的话。在这个村子生活的22年间，没有人来帮她，没有任何人真正的来关心这件事情。麻木的邻居，相互推诿的相关负责人，没有公信的媒体。被铁链锁住的做人的基本权力！逃不走，跑不了，于是半疯傻了。。。。。。。
 
-参考链接：[美布局印太 布林肯本周訪澳洲、斐濟](https://udn.com/news/story/6809/6078359?from=udn-catebreaknews_ch2)
+古有“两脚羊”，现有裹小脚，被铁链锁着的女人。都2022年了，现代社会了，不断有这种把人不当人匪夷所思的事情发生。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+归根结底是体制的恶，造成了穷凶极恶的“恶”。人民开智的民主法制自由的路还很长。我们新中国联邦人任重道远。
 
-总编：飞虹
-编辑：飞虹
-校正/发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

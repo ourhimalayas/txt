@@ -2,26 +2,28 @@
 ---
 
 
-## 香港单日中共病毒确诊数再创新高
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1979993/)
+## 参赛运动员透露中共冬奥会隔离条件恶劣
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1980067/)
 
-作者：纽约香草山-Naughty(文行)
+作者：纽约香草山 – Naughty(文行)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月5日，据相关媒体报道，香港政府当天通报了351例新增中共病毒确诊病例，这也是自中共病毒疫情在香港爆发以来，当地单日新增确诊病例最多的一天。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-09-上午9.03.18.png)
-数据显示，目前，香港的中共病毒疫苗第一针接种率已经高达79.8%，而完全接中共病毒种疫苗的民众占当地总人数的72%，另外，还有超过一百万的香港居民接种了第三剂加强针。
+当地时间2月5日，据外国媒体消息显示，来自俄罗斯的冬季两项运动员瓦斯内佐娃在社交媒体平台上披露了中共北京冬奥会为参赛选手所提供的恶劣的隔离条件。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3-15.jpg)
+据瓦斯内佐娃透露，由于其中共病毒核酸检测结果呈阳性，她不得不在北京的一家饭店中进行隔离，但该隔离酒店在餐饮方面对运动员和工作人员区别对待，且酒店提供的餐食难以下咽，已经严重影响了她的身体健康。
 
-然而，香港针对中共病毒疫情的相关负责人指出，虽然政府试图加强对中共病毒疫情的管控，但当下仍是香港自疫情爆发以来最严峻，也是最关键的时期。此外，当地的疫情并不乐观，甚至本土病例可能会在近期内呈几何级数上升。
+另外，曾三次获得北欧混合式滑雪金牌的德国选手佛伦瑟在确诊中共病毒感染后也被中共举办方单独隔离。随后，德国奥运代表团团长施梅尔·普芬尼也向相关媒体指出，中共提供的隔离酒店条件极为不合理，运动员需要更大、更清洁的房间，同时需要准时得到有营养的食物，从而能够确保选手们在结束隔离后还可以上场比赛。
 
-而评论人士则对此表示，虽然港共政府此前强制当地民众接种中共病毒疫苗时曾大肆宣称其在防护病毒与阻止传播方面的有效性，但目前的感染数据表明，中共病毒疫苗对病毒的抑制作用微乎其微。
+另据其他参赛代表团反应，因中共病毒确诊而被隔离的运动员们并没有全部在冬奥村隔离。
 
-参考链接：[Hong Kong reports record daily high of 351 coronavirus cases](https://www.reuters.com/world/china/hong-kong-reports-record-daily-high-351-coronavirus-cases-2022-02-05/)
+参考链接：
+1) . [Olympic teams raise concerns over quarantine hotels](https://apnews.com/article/winter-olympics-quarantine-hotels-e2d2ffc60d9800cf1951cc3eaed323cb)
+2) . [Winter Olympic athletes blast conditions of COVID quarantine hotels](https://www.foxnews.com/sports/winter-olympic-athletes-conditions-covid-quarantine-hotels)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-总编：Jack LI文阳
-编辑：静言
-校正/发稿：呼吸的雾霾（文小呼吸）
+总编: 飞虹
+编辑： 飞虹
+校正/发稿：Fei797
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
