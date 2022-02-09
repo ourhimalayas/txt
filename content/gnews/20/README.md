@@ -2,8 +2,8 @@
 ---
 
 
-## 冬奥现上演的剧目，可说了无新意
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1980628/)
+## 世界级的高利贷公司
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1980706/)
 
 台灣寶島農場
 

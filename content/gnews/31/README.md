@@ -2,40 +2,56 @@
 ---
 
 
-## 谁才是抗日战争的真正主力
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1980394/)
+## 樱花深度报道│冬奥会参与者警告，在中国噩梦般的间谍装置无处不在，摄像头检测情绪和电话数据被盗（上）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1980558/)
 
-作者：纽约香草山农场-马克文、朱丽叶
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1930年代至1940年代，第二次世界大战东亚战事的主要部分即为中华民国与大日本帝国之间发生的战争，也就是为后人所熟知的“抗日战争”。
+编译：东京樱花团/Hopkins
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide12.jpeg)
+【摘要】中国共产党经营着一个奥威尔式的监视国家，触及中国国内生活的方方面面。街道上布满了摄像头和超高科技系统，高度先进和“侵入性”的数字技术已成为中国政府的核心部分——随着政府收紧控制，线上和线下的人们都在不断受到监视。在城市和乡村的街道上安装了大约 2 亿个摄像头——大约每7个公民中就有一个——因为这个毫无限制的中国政府开发了面部识别软件，可以“读取”人们的情绪，识别他们是否可能是对国家的威胁。随着冬奥会的开始，全世界的目光都转向了中国，人们担心在北京登陆的运动员也会有不受欢迎的目光窥探他们。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/5-9.jpg)
+（图片说明）中国共产党经营着一个奥威尔式的监视国家，触及中国国内生活的方方面面。GETTY
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-918.png)
+（图片说明）在中国福建省福州，一名市民扫描自己的脸通过地铁站的检票口：GETTY
 
-据日本公布的二战在华阵亡数据显示，抗日战争期间，日军共有超过31万人在与国民党军交战时死亡，仅有851日死于中共军队的手中。
+中国开发了一个令人震惊的监控系统，监视公民的一举一动——在北京参加冬奥会的运动员甚至被警告要注意他们的背部。
 
-另据中华民国国防部的统计数据表明，截至1945年6月，国民党军中少将以上的高级将领在战争中一共牺牲了115人，国军总损失人数达到400多万，死亡约132万人以上，其中海军几乎全军覆没。而根据中共早先的记载，中共抗日部队仅有左权一位将军牺牲，其余总计人员损失约58万人，死亡约16万人。
+街道上布满了摄像头和超高科技系统，共产党政权被指责为“一个奥威尔式的监视国家”，“触及生活的方方面面”并“危害隐私”。
 
-通过对二者数据的分析，国军在抗日战争中的伤亡总数达到共军的5.5倍，死亡人数则超过共军的7倍有余。
+高度先进和“侵入性”的数字技术已成为中国政府的核心部分——随着政府收紧控制，线上和线下的人们都在不断受到监视。
 
-鉴于中共长期以来对历史的篡改，2015年8月28日，中华民国国防部在一份声明中强调，八年抗战是由中华民国政府主导，在蒋介石委员长的领导下，全国军民浴血奋战的成果，其历史真相绝不能以任何方式被扭曲与篡改。
+随着冬奥会的开始，全世界的目光都转向了中国，人们担心在北京登陆的运动员也会有不受欢迎的目光窥探他们。
 
-参考链接：
-1.[共军抗战毙敌851人](https://zh.wikipedia.org/wiki/共军抗战毙敌851人)
-2.[国民党抗战死了多少人](http://www.siwapu.com/junshi/25179.html)
+国际企业保护（International Corporate Protection）创始人、安全专家威尔·格德斯（Will Geddes）告诉《太阳在线》，中国无处不在的监控是竞争对手的“巨大担忧”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+“不可避免地，当你出国到中国这样的地方时，你下飞机的那一刻，你的手机就会被拦截，”他说。
 
-总编：Jack Li文阳
-编辑：Jack Li文阳
-校正/发稿：谐趣园
+“如果我将任何客户派往中国，我通常会带一个刻录机电话给他们，所以这将是一部经过消毒的电话。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+“它不会有他们所有宝贵的生命信息和秘密。当我们记住，我们现在的手机上都有我们的人——我们有我们所有的电子邮件、社交媒体、我们的信息、我们的笔记、我们的电子邮件——我们的整个生活被封装在我们放在口袋里的这个小设备中。
+
+“你认为你正在连接到本地网络，但当你这样做时，你实际上是通过中间拦截的这个人进行连接 – 然后它将开始收集你的所有数据。你所有的对话和通信都将受到监控。”
+
+已敦促运动员将个人手机留在家中，而是使用刻录机设备，因为该国政府可以使用先进技术来监控通话和短信，同时令人担忧地跟踪他们的动作。
+
+得克萨斯州参议员（Texas Senator）特德·克鲁兹（Ted Cruz）告诉太阳在线：“中国共产党经营着一个奥威尔式的监视国家，触及中国国内生活的方方面面。
+
+“毫无疑问，他们将利用他们的基础设施来危害我们运动员的隐私。我们应该非常认真地对待对我们运动员的潜在威胁，并采取一切可能的预防措施来确保他们的安全和隐私。”
+
+（未完待续）
+
+作者：凯蒂戴维斯（[Katie Davis](https://www.thesun.co.uk/author/katie-davis/)）/伦敦新闻记者
+
+@ByKatieDavisKatie 于 2020 年 12 月加入《太阳报》，报道外国和英国新闻。
+
+信息来源：
+
+#### [Inside China’s nightmarish spy state with cameras checking emotions and phone data heists as Winter Olympians warned](https://www.thesun.co.uk/news/17524258/china-spy-state-winter-olympics/)
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

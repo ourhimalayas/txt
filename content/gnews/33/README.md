@@ -2,37 +2,26 @@
 ---
 
 
-## 韩国累积确诊突破百万 单日确诊连创新高
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1980352/)
+## 秘翻在线 : 瑞银（UBS ）代表的邪恶沼泽地与郭文贵先生代表的正义新中国联邦的大战拉开序幕！
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1980545/)
 
-作者：纽约香草山-Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月6日，据韩国卫生官员通报称，韩国当天的新增中共病毒确诊病例数再次刷新了该国的单日新增确诊纪录，达到3万8千691例。至此，韩国的累计中共病毒确诊人数突破了100万，同时，其死亡人数也超过了六千人。
+**撰稿：William**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-6.jpeg)
+**校对：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-10-004438.jpg)
+图片来源：UBS
 
-资料显示，自2020年1月起，韩国成为除中共国以外第一个爆发重大中共病毒疫情的国家。随后，韩国政府迅速采取了一系列疫情管控措施，使得韩国的整体确诊及死亡病例数维持在一个较低的水平。
+根据彭博新闻社（Bloomberg News）的报导, 瑞银集团(UBS Group AG)在 2015 年因巨额追加保证金通知而被旅居美国的中共国亿万富商郭文贵先生提起5 亿美元诉讼，并最终确定可以在伦敦立案。
 
-然而数据表明，随着中共病毒疫苗的推广，韩国完全接种中共病毒疫苗的人口占总人数的86%，更有超过54.5%的民众已经接种疫苗加强针。为此，自奥米克戎变种病毒扩散以来，韩国的单日新增确诊病例数开始连创新高。
+一位伦敦法官裁定，英国确实有权审理郭先生提起的案件，这意味着该诉讼可以继续在英国审理。对于试图以管辖权理由驳回部分案件的瑞银来说，这是一个打击。
 
-目前，当地官员宣布，韩国将延长其疫情管控措施至少两周，当中包括商家在晚上9点后实行宵禁的规定，以及限制6人以上的私人聚会等。
+根据报导，郭先生指出瑞银提供了疏忽的建议，导致他借钱购买了中国海通证券股份有限公司( Haitong Securities Co)的股票，该股票后来在市场暴跌。一名伦敦法官周三表示，她可以监督此案，因为伦敦是“有害事件”( “harmful event” )发生的地方，而瑞银的伦敦部门“充分且显著地参与了构成索赔行动的几个要素”。
 
-参考链接：[South Korea surpasses 1 million total COVID cases with daily record](https://www.reuters.com/world/asia-pacific/skorea-surpasses-1-million-total-covid-cases-with-new-daily-record-2022-02-06/)
+如郭文贵先生所说，这个案件可以成功在伦敦立案意义重大，为此郭先生甚至要改变他的生活方式搬到英国，向世界最大的沼泽地瑞银发起面对面的挑战！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+所有新中国联邦的战友们都会站在郭先生的背后，一起同黑暗势力战斗，一切已经开始！
 
-总编：Jack Li文阳
-编辑：静言
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+**新闻来源：**[https://www.bloomberg.com/news/articles/2022-02-09/ubs-loses-bid-to-dodge-chinese-billionaire-s-500-million-suit](https://www.bloomberg.com/news/articles/2022-02-09/ubs-loses-bid-to-dodge-chinese-billionaire-s-500-million-suit)
 
  
 
