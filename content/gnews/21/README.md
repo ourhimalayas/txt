@@ -2,8 +2,8 @@
 ---
 
 
-## 七哥将给天下的母亲唱两首歌
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1977155/)
+## 七哥谈三个锦囊
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1977178/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
@@ -16,8 +16,6 @@
 澳大利亚墨尔本雅典娜农场YouTube
 澳大利亚墨尔本雅典娜农场Discord
 澳大利亚墨尔本雅典娜农场GTV直播1台
-
-
 
  
 
