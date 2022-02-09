@@ -2,23 +2,22 @@
 ---
 
 
-## 谈国内情况（五）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1977493/)
+## 魁北克自由党国会议员抨击特鲁多疫苗政策
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1977529/)
 
-整理：雅典娜速记组
-编辑：皮特
-![](https://assets.gnews.org/wp-content/uploads/2022/02/谈国内情况五--scaled.jpg)
-直播时间：2022.01.26
+采编：UCool优酷                   翻译编辑：文所未闻
+![](https://assets.gnews.org/wp-content/uploads/2022/02/01-image.png)图片来源：wionews
+据加拿大《CTV新闻》2月8日报道，当天在国会山举行的新闻发布会上，魁北克省的自由党议员乔尔不仅抨击了总理特鲁多的疫苗政策，同时也反对当局对卡车司机车队抗议活动的诬蔑和打压。
 
-“哎，你不不行啊，你这个人有点儿什么，所谓这个木秀于林，是吧？你比我牛逼对吧？”开玩笑你堂堂正正，你有能力，你还这个不给我们一伙啊，你还要收拾我们，对吧？那薄熙来都一个讲的对吧，我怎么那么掀动？他们的温家宝在哪啊，他儿子这样没人说，那都是就是名字了啊，已经在这里。你想想那个温家宝不得吓死吗？最后他肯定要起来吗？利用任何机会能干掉嘛对吧？！我直播之前给七哥发了一个，忽然今天网易出来一篇（文章）。唉，真的很奇怪啊。今天1月25号出来了一篇徐明的死是怎么回事啊，你们看看，我给军哥发过去了。网易发出来很奇怪，你说中共的内斗到了什么时候，你说能翻吗？这都10年前了，恨不得案子都判完了，徐明是心脏病，已经结案了。你能说出来再来问一问他到底是怎么死的？现在已经出来了，你们看啊，网易的这个新闻都出来了，就叫你想想，共产党能不完嘛？所以在这上我们的有感而发的时候，就是能有共同的语言，能大家能互相的理解，互相的我们就知道今天这个消息太震撼了，真的不敢相信，幸福来得太突然了，晚上一定要喝一杯，六四那天来喝了一点儿，再就是喜币上市，我到喝得有点多啊，那天我喝多了。
+报道称，该议员已收到了无数对疫苗政策担忧和不满的民意，显示公众在身心俱损同时，家庭也因此变得分裂。并认为特鲁多政府未能向加拿大人解释各项疫苗措施的合理性。同时，已明显政治化的防疫政策必将导致当局在执政过程中的信任危机。
 
-发布：*皮特*
+据悉，自由车队的抗议活动在首都渥太华已进入第12天。而和平集结方式是加拿大宪章赋予国民表达民意的基本权利。但特鲁多却始终罔顾人民的呼声，并在背弃自由民主的道路上越走越远。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+校对编辑：硫酸羟氯喹64
+
+发稿：苦尽甜来 (文來）
+
+原文链接： [https://www.ctvnews.ca/politics/liberal-mp-decries-politicization-of-pandemic-questions-federal-policies-1.5772722](https://www.ctvnews.ca/politics/liberal-mp-decries-politicization-of-pandemic-questions-federal-policies-1.5772722)
 
  
 

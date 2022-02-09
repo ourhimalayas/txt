@@ -2,36 +2,13 @@
 ---
 
 
-## 中共在冬奥期间收集运动员基因信息
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1976083/)
+## 任何付钱给这个跨国犯罪组织的人都要付出代价
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1975271/)
 
-作者：日本方舟农场 – Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美国前国务卿蓬佩奥2月6日在接受福克斯新闻玛丽亚采访时表示，他之所以呼吁抵制北京冬奥会，不是为了让运动员们失去竞技的机会，而是为所有去参加中共冬奥会的运动员们感到担忧。蓬佩奥称，他的这个担忧来自三个方面。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-08-上午11.56.22.png)
-第一，在美国看来奥运会只是一项活动，而中共却将奥运视作一种宣传工具。并且中共想要利用举办奥运来给自己的人权劣迹洗白。
+02/05/2022 史蒂夫·班农：每个人都应该关掉电视，没有人应该看奥运会。我们必须在这里向全球主义者和像NBC这样的地方发出强烈的信号。如果你要付钱给这个跨国犯罪组织，你就要付出代价。
 
-第二，到达北京的运动员面临手机被监控，以及自由言论带来的风险。
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-第三，蓬佩奥国务卿最担心的除了数据信息，中共还将收集运动员们的DNA信息，并且会将这些信息交给中共军方数据库储存多年。 同一天的文贵大直播中，郭先生也爆料称，参加冬奥会运动员们的大小便甚至都将被收集。中共之所以收集运动员们的基因，就是因为中共根深蒂固的人种崇拜、基因崇拜，并据此给全世界的人类划定阶级。甚至认为用这些基因跟中共一起，交配出所谓更优质的人种就能变成巨大的财富。而这些都是因为中共本身就是一个种族主义、阶级主义的邪恶政权。
-
-参考链接：
-1）[2022年2月6日 文贵大直播](https://gtv.org/video/id=61ffc26b3621aa7415d64d51)
-2）[https://www.gettr.com/post/pt012ncee1](https://www.gettr.com/post/pt012ncee1)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
-
-总编：文特
-编辑：Delilah小胖
-校正/发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

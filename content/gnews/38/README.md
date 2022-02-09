@@ -2,15 +2,12 @@
 ---
 
 
-## 郝董谈自身转会经历，反映出HPAY对未来体育界的革命性影响
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1975895/)
+## 加拿大部分省份正在撤销疫苗强制令
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1975267/)
 
-**H-Pay 将彻底改变金融游戏规则**
-视频制作：文双
+02/05/2022 战斗室：加拿大部分省份迫于自由车队的压力，开始撤回疫苗强制令。
 
-翻译：秋刀鱼
-
-上传排版：文勇
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

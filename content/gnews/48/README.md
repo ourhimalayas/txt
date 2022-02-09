@@ -2,24 +2,34 @@
 ---
 
 
-## 日本《自卫队法》修正案获批，意指共台开战可营救台湾人民
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1974555/)
+## 欧盟议员公开抨击疫苗暴政
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1972988/)
 
-撰稿：东京樱花团/风翼
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-75.png)图片来源于网络
-据JIJI.COM媒体报道，日本政府8月8日批准了一项自卫队法修正案草案，允许自卫队飞机在外国发生灾难、骚乱或其他紧急情况时仅运送外国国民。并表示还将修改确保运输安全的具体要件和要求。
+作者：纽约香草山—侠肝义胆
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+2月7日，据郭文贵先生盖特消息，欧盟议会议员 、德国选择党成员安德森女士日前在欧洲议会发表讲话，猛烈抨击欧盟各国疫苗暴政。安德森女士指出，每当一个政治团体如此强硬地推行他们的疫苗计划，并且为了达到目的而使用威逼利诱的手段时，几乎可以肯定，他们的心里绝对没有人民的利益。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-12.jpg)
+安德森表示，不会注射任何没有经过适当审查和测试、没有可靠科学证据的中共病毒疫苗，也绝对不会为了政府许诺的所谓自由，而去做中共病毒疫苗的小白鼠。她认为，没有人可以给大家自由，因为我们本来就是应该自由的。
 
-防卫大臣岸信夫在关于《自卫队修正案》的新闻发布会上强调，拟议的修正案，在未来的各种海外紧急情况下，能够更迅速和灵活地进行运输。并举例去年8月塔利班在阿富汗夺取政权时，政府向该地区派遣了自卫队飞机，但只有一名日本人撤离，而且大多数申请者是在日本大使馆工作的阿富汗人，但因自卫队法的盲点，而无法执行更人道的救助。
+最后，安德森女士强调，即使被欧盟和德国政府关进监狱，也要坚决反对强制疫苗。对此，有评论认为，全球反对疫苗暴政已是大势所趋，任何政党和政府都无法阻止人民反抗强制疫苗的呼声。
 
-从日本首相岸田文雄对与台湾相近的与那国岛进行的模拟难民接收训练，到积极修改自卫队修正案，不难看出是对中共如侵犯台湾所作的一系列准备。
+参考链接：[欧盟议员公开抨击疫苗暴政](https://gettr.com/post/pt1wco98b2)
 
-信息来源：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
-[緊急時、外国人だけの輸送可能に　自衛隊法改正案を閣議決定](https://www.jiji.com/sp/article?k=2022020800136&amp;g=pol)
+总编：DM
+编辑：DM
+校对/发稿：Hetangyuese
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
