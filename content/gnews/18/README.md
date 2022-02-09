@@ -2,107 +2,50 @@
 ---
 
 
-## 全球疫情更新（澳洲官方数据中隐藏的“疫苗”真相）
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1977559/)
+## 国际律师和专家指控各国政府已被世界经济论坛接管
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1977560/)
 
-**整理/编辑：枳实**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/xFuelmich.jpg.pagespeed.ic_.AOWy1siCJy.jpg)图片：@thecovidworld.com
+摘要翻译：
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/2132.png)
+来源于《The COVID World》网站2022年02月06日的报道，
 
+一群国际律师和一名法官正在仿照大陪审团诉讼程序进行刑事调查，以便向公众展示迄今为止所有针对协助、教唆或积极参与制定和执行大流行病共同计划的“领导者、组织者、煽动者和同谋”的新冠病毒危害人类罪的现有证据。
 
+赖纳·菲尔米希(Reiner Fuellmich)律师向人民民意法庭(Peoples’ Court of Public Opinion)称为大陪审团程序的会议作了开幕词。国际律师和专家的指控是，世界各国政府已受到腐败和犯罪权力结构的控制影响。
 
-图片：雅典娜农场设计组精灵蓝
+据律师称，世界经济论坛、世界卫生组织、国际货币基金组织和贝莱德(BlackRock，又称：黑岩集团)等组织与世界各国政府勾结，策划了一场他们多年来一直在计划的大流行病。然后，他们通过对虚假的事实陈述和社会工程心理操作故意制造大规模的恐慌，并通过企业媒体传达了这些信息。
 
+这场大规模恐慌的目的：说服民众同意所谓的“疫苗接种”；同时这些疫苗已被证明既无效也不安全，而且极其危险，甚至是致命的。
 
-雅典娜疫情更新（2022年 2月8日）
+这些危害人类罪对世界人口造成的经济、社会和健康损害可以用数百万亿美元来衡量。
 
-[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+通过展示我们所面临问题的完整图貌，包括地缘政治和历史背景——这些程序旨在让人们意识到当前被劫持的系统及其机构的实际崩溃，以及作为结果，人们自己夺回他们的主权的必要性。
 
-**一，全球疫情基本数据**
+**简评：**
 
-感染总数：396,939,300（日新增2,641,833人，14天增幅-23%）
+爆料革命及新中国联邦的战友们耳熟能详的是：达沃斯党。我们很欣喜的看到还有正义的国际律师包括医疗专家在为这次大流行病进行刑事调查，揪出大流行病造成的根源及祸首。
 
-死亡总数：5,747,426（日新增10,610      人，14天增幅 +26%）
+我们要正确的认识到，全世界范围内无论是反人类、反人权、违宪，还是越权，都不是单靠法律就能解决的。在法律的背后有政治、利益、权力、势力等的博弈。法律声张正义其实已经是连续剧的最后一集，中间的曲折反转、各种背叛和交换，我们新中国联邦人已经在文贵先生的直播中看到和领悟了很多。我们能做的就是传播真相，唯真不破，唤醒更多的民众夺回属于自己的天赋权力。
 
-**二，全球“疫苗”毒针统计数据**
+新闻链接：[Dr. Reiner Fuellmich Presents Opening Statements At Grand Jury: “Our Governments Have Been Taken Over By The World Economic Forum”](https://thecovidworld.com/dr-reiner-fuellmich-presents-opening-statements-at-grand-jury-our-governments-have-been-taken-over-by-the-world-economic-forum/)
 
-“疫苗”毒针注射总数：102亿
+*翻译/简评：Brianchow*
 
-完全“接种”：42.1亿人
+*校对：感恩*
 
-完全“接种”百分比：54%
+* * *
 
-**三，澳洲疫情和“疫苗”数据**
-
-感染总数：2,780,313（今日新增28,202人）
-
-死亡总数：4,303人（今日新增 56人）
-
-每万人感染人数：1077.9652人
-
-“疫苗”毒针注射总数：51,369,320 （今日新增217,265   针）
-
-完全“接种”：19,332,593人
-
-第二针“接种”百分比：78.9%
-
-16岁以上人口接种至少一剂疫苗的比例：&gt;95%
-
-16岁以上人口接种至少两剂疫苗的比例：93.8%
-
-加强针总数：9,182,529（日新增：184,868针）
-
-**四，澳洲官方数据中隐藏的“疫苗”真相**
-
-澳洲和全球疫情曲线都开始回落了，这些所谓“疫苗”的神话也渐渐被人所认清。一月份华盛顿林肯纪念堂前医生和科学家们的慷慨陈词，数日来加拿大卡车司机们坚持在雪夜中坚守的不懈抗争，这些都激励和鼓舞了全球热爱自由的人们。澳大利亚民众也聚集在堪培拉的新老议会大厦周围，发出了对政府滥权和媒体谎言的声讨和怒吼。
-
-而澳洲的疫情正是疫苗无效的最好证明。因为澳洲的疫苗接种普及晚于很多国家，到本波疫情之前一个月左右的去年11月16日才到达70%接种率，因此是一个很好的例证，证明疫苗的短期防止感染的效果也基本不存在。如下面两幅新增病例曲线图和疫苗接种比例变化曲线图互相比较，相当明显地显示了这些“疫苗”根本无法阻断或抑制病毒传播。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-851.png)澳大利亚每日新增病例（图片来源：Our World in Data）
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-852.png)澳大利亚疫苗接种率（图片来源：Our World in Data）
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
-有人争辩说，疫苗不能抑制病毒传播，可是打了疫苗就基本上可以避免住院甚至死亡啊！好吧，那么我们看一下死亡曲线：
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-853.png)
-这个曲线能说明疫苗对减少死亡有多大帮助呢？
-
-如果这个曲线还是不够的的话，那么最近发布的澳大利亚新南威尔士州的[每周疫情监测报告](https://www.health.nsw.gov.au/Infectious/covid-19/Documents/covid-19-surveillance-report-20220204.pdf)中的数据更加证明了疫苗在预防住院和死亡上作用甚微。在这个报告的第九页，有这样的各年龄组重症率的图表（2021年11月26日-2022年1月15日）：
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-854.png)澳大利亚新南威尔士州各年龄组病例中重症病人（死亡或者进入重症监护）的比例
-
-
-虽然这个表格比较无耻的把没打疫苗的和打了一针疫苗的放在一起统计，用这个方法增加了不打疫苗的重症人数，可是从这个官方数据分析中也可以看出0-29岁年龄段的重症率没有差别，都是&lt;1%，30-49年龄段的差别也很小，仅仅&lt;1%和1%的差别，即使是50-69年龄段也只是3-6%与1%的差别而已。而我们之前的[疫情更新](https://gnews.org/zh-hans/1967591/)分享了巴西的一项样本数量超过11万人的[大规模研究](https://rwmalonemd.substack.com/p/more-important-ivermectin-study-results)，发现不使用伊维菌素的人群的死亡率与规律使用伊维菌素的人群相比，死亡风险增加十倍，严格使用者的COVID-19感染率比非使用者低39%，住院率则降低了100%。
-
-看到这些数据，人们就可以理解澳洲政府为何要严禁医生开具伊维菌素的标签外使用的处方，并且在海关没收邮寄品中的伊维菌素了。如果那些不打疫苗的人们能有方便的途径获得伊维菌素用于预防和治疗的话，没打疫苗的重症率将会大幅度降低，比方说从重症率从5%变成0.5%，那么这张表格将因此十分难看，难看到让打疫苗的人看起来都像傻瓜，让批准疫苗的官员，特别是强制人们打疫苗的官员，足以因此被调查和起诉追责。
-
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
-
-数据来源：
-
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：星谕
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

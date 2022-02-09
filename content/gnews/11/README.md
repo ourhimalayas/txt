@@ -2,26 +2,24 @@
 ---
 
 
-## 白宫国安委全球卫生安全和生化防御高级主管突然要离职
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1977616/)
+## 魁北克自由黨國會議員抨擊特魯多疫苗政策
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1977620/)
 
-#### 撰稿：彩虹 
+采編：UCool優酷
 
-#### 责编：白夜 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-855.png)图片来源：CNBC
-2月8日，《国会山报》报道，一位在拜登政府对中共病毒（COVID-19）疫情方面负有关键作用的白宫高级官员，贝丝·卡梅隆（Beth Cameron），将于今年春天离开她的职位。
+翻譯編輯：文所未聞
+![](https://assets.gnews.org/wp-content/uploads/2022/02/01-image-1.png)圖片來源：wionews
+據加拿大《CTV新聞》2月8日報道，當天在國會山舉行的新聞發布會上，魁北克省的自由黨議員喬爾不僅抨擊了總理特魯多的疫苗政策，同時也反對當局對卡車司機車隊抗議活動的誣蔑和打壓。
 
-报道指，卡梅隆在拜登政府应对中共病毒反应和疫情防备工作中一直是一个关键人物。她负责国家安全委员会（NSC）的全球卫生安全和生物防御局，这个办公室在川普政府时期被合并，但在拜登去年上任时又恢复了。卡梅隆在奥巴马政府时期担任过同样的职位。
+報道稱，該議員已收到了無數對疫苗政策擔憂和不滿的民意，顯示公眾在身心俱損同時，家庭也因此變得分裂。並認為特魯多政府未能向加拿大人解釋各項疫苗措施的合理性。同時，已明顯政治化的防疫政策必將導致當局在執政過程中的信任危機。
 
-值得注意的是，国家安全委员会发言人艾米莉·霍恩（Emily Horne）说，卡梅隆将由拉吉·潘贾比（Raj Panjabi）接替，而潘贾比目前在美国国际开发署（U.S. Agency for International Development）担任全球疟疾协调员。根据爆料革命的情报，专门预防中共病毒及解药就是应对疟疾的硫酸羟氯喹（Hydroxychloroquine）和伊维菌素（Ivermectin）。
+據悉，自由車隊的抗議活動在首都渥太華已進入第12天。而和平集結方式是加拿大憲章賦予國民表達民意的基本權利。但特魯多卻始終罔顧人民的呼聲，並在背棄自由民主的道路上越走越遠。
 
-霍恩在一份声明中说：“贝丝·卡梅隆博士将于今年春天离开国家安全委员会。她是初创团队的关键成员，重建了她以前的办公室，并帮助建立了美国全球COVID-19（中共病毒）应对和加强生物安全。卡梅隆博士将继续留在国家安全委员会，直到春天，以确保工作的强大连续性。”
+校對編輯：硫酸羥氯喹64
 
-但是，声明和报道都没有提到卡梅隆突然要离职的原因是什么。
+發稿：苦盡甜來 (文來）
 
-**新闻来源**
-
-[Top health official to depart White House](https://thehill.com/homenews/administration/593412-top-health-official-to-depart-white-house)
+原文鏈接： https://www.ctvnews.ca/politics/liberal-mp-decries-politicization-of-pandemic-questions-federal-policies-1.5772722
 
  
 

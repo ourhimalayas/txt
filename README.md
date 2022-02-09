@@ -27,62 +27,62 @@
 ### [全球反疫苗风暴下 文贵最担心的是排华问题](/content/gnews/4/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [加拿大萨省正式取消疫苗护照](/content/gnews/5/README.md)
+### [73年后，还是《1984》-国家可以控制你的思想](/content/gnews/5/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [加拿大萨省正式取消疫苗护照](/content/gnews/6/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [与中共国做生意应该是非法的](/content/gnews/6/README.md)
+### [与中共国做生意应该是非法的](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美军出动远征部队 逾万兵力冲绳近海军演](/content/gnews/7/README.md)
+### [美军出动远征部队 逾万兵力冲绳近海军演](/content/gnews/8/README.md)
  ` GTV新聞訪談`
 
-### [樱花头条┃西班牙药物警戒专家Joan-Ramon Laporte Roselló博士出席了西班牙大会并发言](/content/gnews/8/README.md)
+### [樱花头条┃西班牙药物警戒专家Joan-Ramon Laporte Roselló博士出席了西班牙大会并发言](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花头条┃冬奥收视率超低 NBC主播提前返美](/content/gnews/9/README.md)
+### [樱花头条┃冬奥收视率超低 NBC主播提前返美](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [魁北克自由黨國會議員抨擊特魯多疫苗政策](/content/gnews/10/README.md)
+### [魁北克自由黨國會議員抨擊特魯多疫苗政策](/content/gnews/11/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [白宫国安委全球卫生安全和生化防御高级主管突然要离职](/content/gnews/11/README.md)
+### [白宫国安委全球卫生安全和生化防御高级主管突然要离职](/content/gnews/12/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [联准会吹升息号 银行业者建议逢低布局美元](/content/gnews/12/README.md)
+### [联准会吹升息号 银行业者建议逢低布局美元](/content/gnews/13/README.md)
  ` GTV新聞訪談`
 
-### [台湾33案获得疫苗接种受害救济](/content/gnews/13/README.md)
+### [台湾33案获得疫苗接种受害救济](/content/gnews/14/README.md)
  ` GTV新聞訪談`
 
-### [美国呼吁中共采取“具体行动”履行第一阶段的采购承诺](/content/gnews/14/README.md)
+### [美国呼吁中共采取“具体行动”履行第一阶段的采购承诺](/content/gnews/15/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [特朗普前国家安全顾问指责习近平在南海进行“历史上最大规模的土地掠夺”](/content/gnews/15/README.md)
+### [特朗普前国家安全顾问指责习近平在南海进行“历史上最大规模的土地掠夺”](/content/gnews/16/README.md)
  ` GTV新聞訪談`
 
-### [疫情2年仍查无起源！谭德塞再访中共](/content/gnews/16/README.md)
+### [疫情2年仍查无起源！谭德塞再访中共](/content/gnews/17/README.md)
  ` GTV新聞訪談`
 
-### [国际律师和专家指控各国政府已被世界经济论坛接管](/content/gnews/17/README.md)
+### [国际律师和专家指控各国政府已被世界经济论坛接管](/content/gnews/18/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [全球疫情更新（澳洲官方数据中隐藏的“疫苗”真相）](/content/gnews/18/README.md)
+### [全球疫情更新（澳洲官方数据中隐藏的“疫苗”真相）](/content/gnews/19/README.md)
  ` 走进澳洲`
 
-### [特鲁多在紧急会议上的发言遭到本党议员的反对](/content/gnews/19/README.md)
+### [特鲁多在紧急会议上的发言遭到本党议员的反对](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [魁北克自由党国会议员抨击特鲁多疫苗政策](/content/gnews/20/README.md)
+### [魁北克自由党国会议员抨击特鲁多疫苗政策](/content/gnews/21/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [谈国内情况（六）](/content/gnews/21/README.md)
+### [谈国内情况（六）](/content/gnews/22/README.md)
  ` 雅典娜GNotes`
 
-### [谈国内情况（五）](/content/gnews/22/README.md)
+### [谈国内情况（五）](/content/gnews/23/README.md)
  ` 雅典娜GNotes`
-
-### [二十余国发表联合声明 关切香港新闻自由](/content/gnews/23/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [财富管理专栏：委托人和受益人是否应该参与信托管理](/content/gnews/24/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
