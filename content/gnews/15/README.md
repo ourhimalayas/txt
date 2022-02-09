@@ -2,41 +2,57 @@
 ---
 
 
-## 维州安德鲁斯警告：海外入境者需要打第三针
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1977247/)
+## 史蒂夫·班农： 在北京举办冬奥会从一开始就是一场骗局
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1977347/)
 
-**【雅典娜快讯】，紧贴时代脉搏**
+> 前白宫首席战略师史蒂夫·班农：
+> 在北京举办冬奥会从一开始就是一场骗局。
+> 
+> 【在视频中，班农先生展示纽约时报的报道，照片显示在北京冬奥会所在地只有山顶有少量积雪，没有大面积自然降雪，说明北京冬奥会就是一个虚假的骗局】[https://t.co/KZSrUinJMw](https://t.co/KZSrUinJMw)
+> — 美国政要直译推 (@zhiyitw33) [February 8, 2022](https://twitter.com/zhiyitw33/status/1491012356625043458?ref_src=twsrc%5Etfw)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/5823.jpg)图片来源：The West Australia
 
 
-翻译/编辑：文泓
+参议员卢比奥： 一点也不奇怪这么多世界级的运动员在 [#种族屠杀冬奥会上](https://twitter.com/hashtag/%E7%A7%8D%E6%97%8F%E5%B1%A0%E6%9D%80%E5%86%AC%E5%A5%A5%E4%BC%9A%E4%B8%8A?src=hashtag_click) 表现那么差。很多人都埋怨可怕的食物，第三世界水平的住宿，和核酸检测无阳性后仍被作为人质扣留数天。[#北京冬奥会](https://twitter.com/hashtag/%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E4%BC%9A?src=hashtag_click) 是最差的一届奥运会。
 
-当地时间2月9日，据《澳洲新闻网》报道，维多利亚州州长丹尼尔·安德鲁斯已宣布，希望到访本地的国际旅行者要么接受第三针加强针，要么面临被限制在固定的地方。
 
-周二，安德鲁斯表示，对完全接种疫苗的定义是打了第三剂加强针，这个定义也将适用于旅行者，就像它适用于维州人一样。
 
-“对于那些进入维州的人，我认为我们已经很好地建立了（第三剂加强针方案），”他说，维多利亚州有很多额外的疫苗强制政策。
+> Not surprised that so many world class athletes are having terrible performances at the [#GenocideOlympics](https://twitter.com/hashtag/GenocideOlympics?src=hash&amp;ref_src=twsrc%5Etfw)
+> 
+> Many are complaining of horrendous food,3rd World accommodations & being held hostage for days after no longer testing positive[#Beijing2022](https://twitter.com/hashtag/Beijing2022?src=hash&amp;ref_src=twsrc%5Etfw) are the worst Olympics ever
+> — Marco Rubio (@marcorubio) [February 8, 2022](https://twitter.com/marcorubio/status/1491040781897203719?ref_src=twsrc%5Etfw)
 
-周一，总理斯科特·莫里森透露，从海外的游客只要完全接种疫苗，便可以入境。
 
-“这将是两针……世界各地对第三剂加强针有各种安排，联邦首席医疗官建议，两剂就足够了，”莫里森说。
 
-州长丹尼尔安德鲁斯周二宣布，所有参加幼儿教育服务的3至5岁儿童将免费参加这些快速抗原检测。
+众议员吉姆·乔丹： [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 在一家老钢铁厂建造了奥运场馆。 NBC说它“在视觉上令人震惊”
 
-虽然测试不是强制性的，但强烈建议学生在第1学期的前4周（每周）进行两次病毒测试，学生和家长已经怨声载道。
 
-维州在过去24小时内记录了9785例新病例和20例死亡案例。医院目前有575名感染者，其中72人在重症监护室，30人使用呼吸机。
 
-新闻链接：[Daniel Andrews tells international travellers they must be triple-vaxxed | news.com.au — Australia’s leading news site](https://www.news.com.au/national/victoria/news/victoria-records-9785-cases-20-covid-deaths/news-story/476af5f4faf720175912144c53b806cf)
+> The Chinese Communist Party built an Olympic venue at an old steel mill. 
+> 
+> NBC said it was “visually stunning.” [pic.twitter.com/HL7x9P2YPv](https://t.co/HL7x9P2YPv)
+> — Rep. Jim Jordan (@Jim\_Jordan) [February 8, 2022](https://twitter.com/Jim_Jordan/status/1491139485471444992?ref_src=twsrc%5Etfw)
 
-发布：文泓
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
+参议员约翰·肯尼迪： 中国共产党是无情的、他们实行压迫和种族灭绝。我们不能让北京利用美国的军事力量来实现他们的共产主义议程。 【附肯尼迪参议院官网新闻：肯尼迪共同发起提案堵住容许中共国利用美国军事专长的漏洞】
+
+
+
+> The Chinese Communist Party is ruthless, oppressive, and genocidal. We can’t let Beijing exploit America’s military strength for their communist agenda.
+>  [https://t.co/XsmTI6hYys](https://t.co/XsmTI6hYys)
+> — John Kennedy (@SenJohnKennedy) [February 8, 2022](https://twitter.com/SenJohnKennedy/status/1491181492416151552?ref_src=twsrc%5Etfw)
+
+
+
+参议员瑞克·斯科特： 美国人支持人权。为什么耐克，可口可乐和NBC不呢？
+
+
+
+> Americans stand up for human rights. Why isn’t [@Nike](https://twitter.com/Nike?ref_src=twsrc%5Etfw), [@CocaCola](https://twitter.com/CocaCola?ref_src=twsrc%5Etfw) or [@NBC](https://twitter.com/nbc?ref_src=twsrc%5Etfw)? 👀⬇️ [pic.twitter.com/uoRiVPETG3](https://t.co/uoRiVPETG3)
+> — Rick Scott (@SenRickScott) [February 8, 2022](https://twitter.com/SenRickScott/status/1491183759110344704?ref_src=twsrc%5Etfw)
+
+
 
  
 

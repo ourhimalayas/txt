@@ -15,158 +15,158 @@
 
 ---
 
-### [台湾11岁以下幼童要打疫苗？ 陈时中：没有强烈想法](/content/gnews/1/README.md)
- ` GTV新聞訪談`
-
-### [6年前比特币被盗案件告破 美国司法部逮捕两名黑客](/content/gnews/2/README.md)
+### [郭文贵先生2022年2月8日下午盖特视频（1分14秒）全文字版](/content/gnews/1/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新西兰自由车队声势浩大挺进首都惠灵顿](/content/gnews/3/README.md)
- ` 温哥华圆成农场🇨🇦`
+### [美众院通过美国竞争法 吁启动「台湾代表处」更名协商](/content/gnews/2/README.md)
+ ` GTV新聞訪談`
 
-### [单月增加1亿！全球累计感染新冠病毒已超过4亿人](/content/gnews/4/README.md)
+### [财富管理专栏：委托人和受益人是否应该参与信托管理](/content/gnews/3/README.md)
+ ` 加拿大温哥华扬帆农场蓝枫法律`
+
+### [中共病毒全球感染累计超4亿，一个月暴增1亿人](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [冬奥开幕 来宾多为非民主政体领袖](/content/gnews/5/README.md)
- ` GTV新聞訪談`
-
-### [2月7日长岛伟哥战友联盟答疑，G系列相关信息文字版](/content/gnews/6/README.md)
- ` 全球G系列咨服群`
-
-### [冬奥开幕 来宾多为非民主政体领袖](/content/gnews/7/README.md)
- ` GTV新聞訪談`
-
-### [币圈新闻动态：喜币（HCN）价格目前在49.425 HDO](/content/gnews/8/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [纽约废水惊现「变种序列」？研究人员：难以追查源头](/content/gnews/9/README.md)
- ` GTV新聞訪談`
-
-### [针下亡魂｜美国 33 岁男子接种疫苗后患上自身免疫性疾病而死亡](/content/gnews/10/README.md)
- ` 關注組`
-
-### [吹哨人：澳洲须防社交媒体假消息干预大选](/content/gnews/11/README.md)
- ` GTV新聞訪談`
-
-### [吹哨人：澳洲须防社交媒体假消息干预大选](/content/gnews/12/README.md)
- ` GTV新聞訪談`
-
-### [美国联邦通信委员会禁止中国联通进入美国市场](/content/gnews/13/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [【文炬拾字】流水的故事](/content/gnews/14/README.md)
+### [魁北克自由党议员就疫苗强制公开与特鲁多决裂](/content/gnews/5/README.md)
  ` 温哥华扬帆农场`
 
-### [维州安德鲁斯警告：海外入境者需要打第三针](/content/gnews/15/README.md)
- ` 走进澳洲`
-
-### [2022年2月9日《樱花快报》：全球感染中共病毒超4亿人 辉瑞疫苗赚370亿美元](/content/gnews/16/README.md)
+### [德国总理在制裁俄罗斯问题上倾向美国](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美司法部查获36亿美元失窃比特币 金额创纪录](/content/gnews/17/README.md)
+### [文贵给习说的几句话](/content/gnews/7/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [惊动世界的18分钟空袭-1986 黄金峡谷行动](/content/gnews/8/README.md)
+ ` 军情启示录`
+
+### [欧洲首例 奥地利立法强制成人打疫苗](/content/gnews/9/README.md)
+ ` GTV新聞訪談`
+
+### [新西兰宣布计划解除新冠病毒旅行限制](/content/gnews/10/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [台湾11岁以下幼童要打疫苗？ 陈时中：没有强烈想法](/content/gnews/11/README.md)
+ ` GTV新聞訪談`
+
+### [6年前比特币被盗案件告破 美国司法部逮捕两名黑客](/content/gnews/12/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [新西兰自由车队声势浩大挺进首都惠灵顿](/content/gnews/13/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [单月增加1亿！全球累计感染新冠病毒已超过4亿人](/content/gnews/14/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [史蒂夫·班农： 在北京举办冬奥会从一开始就是一场骗局](/content/gnews/15/README.md)
+ ` 美国政要直译推`
+
+### [冬奥开幕 来宾多为非民主政体领袖](/content/gnews/16/README.md)
+ ` GTV新聞訪談`
+
+### [冬奥开幕 来宾多为非民主政体领袖](/content/gnews/17/README.md)
+ ` GTV新聞訪談`
+
+### [美国将33家中国实体列入出口管制“未经验证清单”](/content/gnews/18/README.md)
+ ` 澳喜农场`
+
+### [币圈新闻动态：喜币（HCN）价格目前在49.425 HDO](/content/gnews/19/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [美国联邦通信委员会禁止中国联通进入美国市场](/content/gnews/20/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [维州安德鲁斯警告：海外入境者需要打第三针](/content/gnews/21/README.md)
+ ` 走进澳洲`
+
+### [2022年2月9日《樱花快报》：全球感染中共病毒超4亿人 辉瑞疫苗赚370亿美元](/content/gnews/22/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美司法部查获36亿美元失窃比特币 金额创纪录](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [私募基金经理高杉失踪，警方介入调查](/content/gnews/18/README.md)
- ` 墨尔本雅典娜农场`
-
-### [抗议政府疫苗强制政策，新西兰自由车队来到首都惠灵顿](/content/gnews/19/README.md)
- ` 走进澳洲`
-
-### [2022年2月9日《樱花简报》：受中共病毒冲击 日本各项经济数据现恶化势头](/content/gnews/20/README.md)
+### [2022年2月9日《樱花简报》：受中共病毒冲击 日本各项经济数据现恶化势头](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [七哥谈三个锦囊](/content/gnews/21/README.md)
- ` 雅典娜GNotes`
-
-### [新中国联邦今年的三个大惊喜](/content/gnews/22/README.md)
- ` 雅典娜GNotes`
-
-### [2021年辉瑞公司的新冠疫苗获利达到220亿美元](/content/gnews/23/README.md)
+### [2021年辉瑞公司的新冠疫苗获利达到220亿美元](/content/gnews/25/README.md)
  ` 澳喜特战旅Gnews`
 
-### [拜登表示：如果俄罗斯入侵乌克兰，北溪 2 号管道将被制裁](/content/gnews/24/README.md)
- ` 澳喜特战旅Gnews`
-
-### [7·24系列——中共到底给俄爹送了多少钱（二）](/content/gnews/25/README.md)
+### [7·24系列——中共到底给俄爹送了多少钱（二）](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [郭文贵精品视频-北京冬奥会普京乘兴而来 愤怒而归](/content/gnews/26/README.md)
+### [郭文贵精品视频-北京冬奥会普京乘兴而来 愤怒而归](/content/gnews/27/README.md)
  ` cindy`
 
-### [众议院通过了一项旨在让美国比中共国更具竞争力的法案](/content/gnews/27/README.md)
+### [众议院通过了一项旨在让美国比中共国更具竞争力的法案](/content/gnews/28/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [基思·凯洛格将军：俄罗斯、中共、伊朗联手](/content/gnews/28/README.md)
+### [基思·凯洛格将军：俄罗斯、中共、伊朗联手](/content/gnews/29/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共实行极端审查企图以此快速达到全球主导地位](/content/gnews/29/README.md)
+### [中共实行极端审查企图以此快速达到全球主导地位](/content/gnews/30/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [班农先生：任何亲自到场的政府官员，都不是追求推动自由的](/content/gnews/30/README.md)
+### [班农先生：任何亲自到场的政府官员，都不是追求推动自由的](/content/gnews/31/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [五月花简报（02/08/2022）](/content/gnews/31/README.md)
+### [五月花简报（02/08/2022）](/content/gnews/32/README.md)
  ` mayflowertranslate`
 
-### [新西兰财经G乐部2022年2月8日:财经新闻整理](/content/gnews/32/README.md)
+### [新西兰财经G乐部2022年2月8日:财经新闻整理](/content/gnews/33/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [欧盟及英国在世贸组织提诉中共违规行为](/content/gnews/33/README.md)
+### [欧盟及英国在世贸组织提诉中共违规行为](/content/gnews/34/README.md)
  ` NFSC News`
 
-### [多名美国顶尖滑雪选手在冬奥赛道摔倒](/content/gnews/34/README.md)
+### [多名美国顶尖滑雪选手在冬奥赛道摔倒](/content/gnews/35/README.md)
  ` NFSC News`
 
-### [中共在冬奥期间收集运动员基因信息](/content/gnews/35/README.md)
+### [中共在冬奥期间收集运动员基因信息](/content/gnews/36/README.md)
  ` NFSC News`
 
-### [NFSC新闻、G|TV新闻访谈简报|2022年2月8日早](/content/gnews/36/README.md)
+### [NFSC新闻、G|TV新闻访谈简报|2022年2月8日早](/content/gnews/37/README.md)
  ` 纽约香草山MOS01`
 
-### [郝董谈自身转会经历，反映出HPAY对未来体育界的革命性影响](/content/gnews/37/README.md)
+### [郝董谈自身转会经历，反映出HPAY对未来体育界的革命性影响](/content/gnews/38/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [归化女子花滑运动员首秀失败遭抨击](/content/gnews/38/README.md)
+### [归化女子花滑运动员首秀失败遭抨击](/content/gnews/39/README.md)
  ` NFSC News`
 
-### [不能再向中共国市场注入美元](/content/gnews/39/README.md)
+### [不能再向中共国市场注入美元](/content/gnews/40/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [任何付钱给这个跨国犯罪组织的人都要付出代价](/content/gnews/40/README.md)
+### [任何付钱给这个跨国犯罪组织的人都要付出代价](/content/gnews/41/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [已经对疫苗的紧急授权使用和错误标识提起诉讼](/content/gnews/41/README.md)
+### [已经对疫苗的紧急授权使用和错误标识提起诉讼](/content/gnews/42/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [加拿大部分省份正在撤销疫苗强制令](/content/gnews/42/README.md)
+### [加拿大部分省份正在撤销疫苗强制令](/content/gnews/43/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2/8/2022国际财经快讯：美日达成协议削减对日钢铁关税；华尔街收盘走低，因Meta平台受重压](/content/gnews/43/README.md)
+### [2/8/2022国际财经快讯：美日达成协议削减对日钢铁关税；华尔街收盘走低，因Meta平台受重压](/content/gnews/44/README.md)
  ` 秘密翻译组金融团队`
 
-### [中俄共同对抗美国；卫报淡化运动员感染](/content/gnews/44/README.md)
+### [中俄共同对抗美国；卫报淡化运动员感染](/content/gnews/45/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [纳瓦罗博士：希望每位美国获奖选手声讨种族灭绝中共](/content/gnews/45/README.md)
+### [纳瓦罗博士：希望每位美国获奖选手声讨种族灭绝中共](/content/gnews/46/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [新年期间：大陆民众消费大幅下滑](/content/gnews/46/README.md)
+### [新年期间：大陆民众消费大幅下滑](/content/gnews/47/README.md)
  ` 日本东京方舟农场`
 
-### [渥太华宣布因中共病毒抗议活动而进入紧急状态](/content/gnews/47/README.md)
+### [渥太华宣布因中共病毒抗议活动而进入紧急状态](/content/gnews/48/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共国如何按不同的规则行事—以其他国家为代价](/content/gnews/48/README.md)
+### [中共国如何按不同的规则行事—以其他国家为代价](/content/gnews/49/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [日本《自卫队法》修正案获批，意指共台开战可营救台湾人民](/content/gnews/49/README.md)
+### [日本《自卫队法》修正案获批，意指共台开战可营救台湾人民](/content/gnews/50/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [加拿大疫苗制造的大流行！7成中共病毒死亡者完全接种了疫苗](/content/gnews/50/README.md)
+### [加拿大疫苗制造的大流行！7成中共病毒死亡者完全接种了疫苗](/content/gnews/51/README.md)
  ` 喜马拉雅农场新西兰站`
-
-### [美国批准对台湾一亿美元军售](/content/gnews/51/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [美国法律草案旨在遏制中国和俄罗斯的影响力](/content/gnews/52/README.md)
  ` Shuizhuyu`
