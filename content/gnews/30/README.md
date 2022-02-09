@@ -2,24 +2,16 @@
 ---
 
 
-## 2022年新中国联邦的重点发展方向
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/1979304/)
+## 疫苗大变局—政策转向/药企与政府互掐
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1979550/)
 
-加拿大温哥华扬帆农场    平民正道
+文贵大直播20220209
 
-据2月6日GTV文贵大直播消息，【新中国联邦】今年的工作目标主要侧重在以下三个方面：
+撰稿：莲心不染（扬帆）MyWay（扬帆）
 
-首先，竭尽全力阻止全球排华事件的发生。这是[新中国联邦]今年的首要任务。如果不能阻止西方排华浪潮的发生，那么灭共将毫无意义。因此，如何让所有真正的灭共者得到应有的喜币和躺平币就成为关键。
-
-其次，集中力量把现在已开展的各项工作，特别是G系列投资项目做强做大，并逐渐扩大在全球的影响力。因此，今年将不会再创立任何新的项目
-
-此外，由于教育是立国之本，是中国人未来的希望，因此【新中国联邦】必须建立完善的教育体系。并将会通过提供喜币或喜美元，来鼓励和吸引各地教育工作者的加入。
-
-有鉴于此，2022年【新中国联邦】无论是在国际还是在国内的影响力，都将会大幅度增强，喜联储的喜支付和喜币在全球的推广使用必将无人能挡。
-
-* * *
-
-编辑： 平民正道    发布：平民正道
+美工：凌点夜话（香草山）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片1-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片2-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片3-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片4-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片5-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片6-1.jpg)
+*发布：Theodosia*
 
  
 

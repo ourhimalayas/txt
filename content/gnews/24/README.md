@@ -2,16 +2,20 @@
 ---
 
 
-## 中俄各怀鬼胎 骑虎难下
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1979565/)
+## 西媒头条 — 第168期 – 西媒要闻
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1979651/)
 
-文贵大直播20220209
+**制作：喜妹**
 
-撰稿：不着急（文复）（达芬奇）Poplar（盘古）Ding Ding（香草山）
+**关注西班牙语媒体每日新闻焦点，真实了解西方社会**。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/12-6.jpg)
+***素材：ximeifu
+审核：蚂蚁兄弟
+发稿：信心满满***
 
-美工：跟着北美教练（英喜）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片1-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片2-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片3-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片4-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片5-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片6-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片7-4.png)
-*发布：Theodosia*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH..jpeg)
+
+
 
  
 

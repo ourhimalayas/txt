@@ -2,21 +2,16 @@
 ---
 
 
-## 七哥说—第49期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1979352/)
+## 中俄各怀鬼胎 骑虎难下
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1979565/)
 
-**制作：Inzaghi**
+文贵大直播20220209
 
-**天怒人怨即将使中共灭亡！唤醒会凝聚更多的力量。
-不抛弃，不放弃的正是你心中那一份对信念的坚定。**
+撰稿：不着急（文复）（达芬奇）Poplar（盘古）Ding Ding（香草山）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-08_10.48.42.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-07_9.49.11.png)
-***发稿：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH..jpeg)
-
-
+美工：跟着北美教练（英喜）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片1-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片2-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片3-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片4-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片5-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片6-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片7-4.png)
+*发布：Theodosia*
 
  
 

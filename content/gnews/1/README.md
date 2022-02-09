@@ -2,21 +2,18 @@
 ---
 
 
-## 樱花头条┃美破获价值36亿美元最大比特币失窃案
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1979888/)
+## 西媒头条 — 第169期 – 西媒要闻
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1980051/)
 
-撰稿：东京樱花团/樱花传媒
+制作：蚂蚁兄弟
 
-美国司法部2月8日宣布，他们已追回2016年失窃的9万4000多枚比特币，这些比特币目前价值36亿美元，查获金额创纪录。
+**关注西班牙语媒体每日新闻焦点，真实了解西方社会**。
 
-司法部表示，一对遭控为这些比特币洗钱的夫妇在纽约被捕—34岁的Ilya Lichtenstein和他31岁的妻子Heather Morgan控。据称，夫妇两人为2016年从数字货币交易中心Bitfinex骇得的11万9754枚比特币收益洗钱，这些比特币当时价值6500万美元。Bitfinex的总部位于香港。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/xm220209.001.jpeg)
 
-信息来源：[https://gettr.com/post/ptf27l06b2](https://gettr.com/post/ptf27l06b2)
+发稿：信心的选择
 
-编辑：东京樱花团/asket
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH..jpeg)
 
  
 

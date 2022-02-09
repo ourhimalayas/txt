@@ -2,29 +2,31 @@
 ---
 
 
-## 日本政府拟向欧洲提供液化天然气
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1979799/)
+## TikTok 内含13个第三方数据追踪器
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1979890/)
 
-撰稿：东京樱花团/文小白
-![](https://assets.gnews.org/wp-content/uploads/2022/02/4-10.jpg)
-[图片来源](https://www.japantimes.co.jp/news/2022/02/09/business/japan-lng-europe-ukraine-tensions/)
+**撰稿：日本东京方舟农场 北极**
 
-据NHK2022年2月9日消息，日本政府已决定在确保国内有足够的液化天然气（LNG）的基础上，向欧洲供应部分液化天然气，以避免因愈加紧张乌克兰局势导致欧洲的天然气采购出现延误的情况。这也是日本对美国拜登政府提出的要求作出的不寻常的回应。
+据 URLgenius 上个月发布的研究结果表明，TikToK 追踪用户个人数据的次数远超其他社交媒体，其中内含多达13个第三方数据追踪器。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-88.png)TikTok 为中共国科技公司字节跳动（Bytedance Inc.）的抖音的海外版。（图片来自大纪元）
+URLgenius 是一家美国移动营销公司，该公司在上个月利用苹果 iOS 系统的Record App Activity 功能，针对10个不同的社交媒体应用，统计了在一次访问过程中，有多少不同的域名追踪了用户的活动。 该研究涉及的这10个社交媒体应用包括：YouTube、TikTok、Twitter、Telegram、LinkedIn、Instagram、Facebook、Snapchat、Messenger 和 WhatsApp。
 
-欧洲的电力和其他用途所需的大约40%的天然气来自于俄罗斯。因此，如果俄罗斯入侵乌克兰，美国和欧洲已经表示，他们可能会对俄罗斯实施经济制裁。作为反制措施，俄罗斯可能会削减对欧洲的天然气供应。
+结果显示，TikTok 和 YouTube 分别以14个数据追踪器位居所有应用程序之首，而 TikTok 中有13个追踪者均来自不明第三方。
 
-据一位消息人士透露。日本政府已决定向欧洲供应部分液化天然气。此举对日本来说是不寻常的，因为它是应拜登政府的要求，确保有足够的液化天然气帮助欧洲的能源供应。并寻求对液化天然气有兴趣的能源公司的合作。
+TikTok 为中共国字节跳动公司（Bytedance Inc.）开发的社交媒体应用“抖音”的海外版，目前在美国颇为流行。此前，TikTok 一直因其收集用户个人数据（尤其是来自青少年用户的数据），并上传至中共国服务器的做法而受到批评。
 
-预计日本政府最早将于9日正式宣布。
+URLgenius 的研究发现，当启动并登录 TikTok 时，在用户未授权应用程序追踪情况下，仍旧会出现第三方追踪器。即使你离开了该应用程序，这种第三方追踪器仍可以追踪你在其他网站上的活动。而在此过程中，消费者并不知晓。
 
-信息来源:
+2021年10月，《连线》（Wired）杂志发布了一份指南，专门介绍了TikTok 如何追踪用户数据，包括你的位置、搜索历史、IP 地址、你观看的视频，以及你观看这些视频的时间。 根据该指南提供的数据，TikTok 可以根据其收集的其它信息，从你的年龄范围到性别，「推断」出你的个人性格特征。这种做法被称为「推断人口统计学」（inferred demographics）。
 
-[日本政府 LNGを欧州に融通する方針固める ウクライナ緊迫化で](https://www3.nhk.or.jp/news/html/20220209/k10013475021000.html?utm_int=news-business_contents_list-items_013)
+2020年，时任美国总统特朗普出于对 TikTok 的数据安全政策的担忧，发布了美国禁止使用 TikTok 的行政禁令。而现任总统乔·拜登（Joe Biden）则暂时收回了禁令，但仍下令审查外国应用构成的、潜在的安全威胁。
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+参考链接：
+[https://www.epochtimes.com/b5/22/2/9/n13564207.htm](https://www.epochtimes.com/b5/22/2/9/n13564207.htm)
 
+素材采编：北极
+编辑：老孙
+发布：爱放飞
 
  
 

@@ -2,28 +2,38 @@
 ---
 
 
-## 秘翻在线：强生暂停中共病毒疫苗生产
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1979525/)
+## 马来西亚中共病毒小组建议在 3 月全面开放边境
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1979607/)
 
-**撰稿：明澈**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-09-210351.jpg)图片来源：路透社
-综合媒体2月9日报道，周二，强生公司已暂停旗下一家生产中共病毒（Covid-19）疫苗的关键工厂。
+作者: 纽约香草山教育部 Naughty(文行)
 
-《法兰西24》在报道中指出，据知情人士透露，该工厂位于荷兰莱顿市，于去年年底就已经停止生产中共病毒疫苗。《纽约时报》称这可能会使强生公司的疫苗数量减少几亿剂。
 
-强生公司一位发言人回应表示，强生目前仍有数百万剂量的中共病毒疫苗库存，公司将继续履行与中共病毒疫苗设施及非洲联盟有关的合同义务。但并未否认或证实该暂停生产中共病毒疫苗的报道，仅表示该工厂仍在履行交货承诺。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-5.png)
+据路透社报道，马来西亚冠状病毒恢复委员会于2月8日表示，作为加速经济复苏计划的一部分，建议最早在3月1日起全面重新开放边境，不再对旅行者进行强制检疫。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/c1_2260903.jpeg)图片来源: 网络
+该项建议是在马来西亚的邻国包括泰国、菲律宾和新加坡放弃检疫要求来吸引接种过疫苗的游客时提出的。马来西亚自2020年3月以来关闭了边境，并暂停了外国工人的入境，以试图遏制中共病毒的爆发。
 
-据悉，中共病毒疫苗设施是由疫苗联盟GAVI领导全球风险分担机制，该机制将集中采购分配中共病毒疫苗，以此作为获取推进中共病毒疫苗进程的支柱。由于强生公司疫苗不需要低温保存运输，且该疫苗在疫情初期宣传“单次接种”，故而该公司的中共病毒疫苗在发展中国家非常受欢迎。
+在奥密克戎变体的影响下，马来西亚的每日冠状病毒感染人数在最近几周飙升至四个月来的最高水平。
 
-此外，还有报道指出强生公司预计中共病毒疫苗在2022年的销售额将达到30-35亿美元，而辉瑞公司同期预计销售额将达到320亿美金。
+2月8日新确诊病例达13,944例，总确诊数超过290万例，死亡人数超过32,000 人，目前马来西亚是亚洲人均死亡率和感染率最高的国家之一。
 
-**新闻链接：**
+新闻来源: [https://www.reuters.com/world/asia-pacific/malaysia-covid-19-panel-recommends-full-border-reopening-march-2022-02-08/](https://www.reuters.com/world/asia-pacific/malaysia-covid-19-panel-recommends-full-border-reopening-march-2022-02-08/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-9.jpg)
+编辑/校对/发稿: 卡夫卡的甲壳虫
 
-[https://www.france24.com/en/live-news/20220208-johnson-johnson-temporarily-halts-covid-19-vaccine-output-report](https://www.france24.com/en/live-news/20220208-johnson-johnson-temporarily-halts-covid-19-vaccine-output-report)
+**更多资讯，更多关注**
 
-[https://www.gavi.org/covax-facility](https://www.gavi.org/covax-facility)
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[https://www.republicworld.com/world-news/rest-of-the-world-news/johnson-and-johnson-temporarily-halts-production-of-covid-19-vaccine-report-articleshow.html](https://www.republicworld.com/world-news/rest-of-the-world-news/johnson-and-johnson-temporarily-halts-production-of-covid-19-vaccine-report-articleshow.html)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+
+
 
  
 
