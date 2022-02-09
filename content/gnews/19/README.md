@@ -2,36 +2,51 @@
 ---
 
 
-## 参赛运动员透露中共冬奥会隔离条件恶劣
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1980067/)
+## 新西兰14所学校和10所早教机构出现病例，家庭教育申请速度增高四倍
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/1980235/)
 
-作者：纽约香草山 – Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月5日，据外国媒体消息显示，来自俄罗斯的冬季两项运动员瓦斯内佐娃在社交媒体平台上披露了中共北京冬奥会为参赛选手所提供的恶劣的隔离条件。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3-15.jpg)
-据瓦斯内佐娃透露，由于其中共病毒核酸检测结果呈阳性，她不得不在北京的一家饭店中进行隔离，但该隔离酒店在餐饮方面对运动员和工作人员区别对待，且酒店提供的餐食难以下咽，已经严重影响了她的身体健康。
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image003-5.jpg)
+周二，新西兰教育部证实，新西兰各地的14所学校和10所早教机构出现了病例。
 
-另外，曾三次获得北欧混合式滑雪金牌的德国选手佛伦瑟在确诊中共病毒感染后也被中共举办方单独隔离。随后，德国奥运代表团团长施梅尔·普芬尼也向相关媒体指出，中共提供的隔离酒店条件极为不合理，运动员需要更大、更清洁的房间，同时需要准时得到有营养的食物，从而能够确保选手们在结束隔离后还可以上场比赛。
+在奥克兰，有1所学校和3所早教中心受到了中共病毒感染病例的影响。
 
-另据其他参赛代表团反应，因中共病毒确诊而被隔离的运动员们并没有全部在冬奥村隔离。
+在怀卡托，9所学校和1所早教中心有病例；丰盛湾地区3所学校和5所早教中心有病例；霍克斯湾1所学校、尼尔森1所幼儿园有病例。
 
-参考链接：
-1) . [Olympic teams raise concerns over quarantine hotels](https://apnews.com/article/winter-olympics-quarantine-hotels-e2d2ffc60d9800cf1951cc3eaed323cb)
-2) . [Winter Olympic athletes blast conditions of COVID quarantine hotels](https://www.foxnews.com/sports/winter-olympic-athletes-conditions-covid-quarantine-hotels)
+目前。新西兰政府仍然无视当地民众持续进行的抗议疫苗强制令的游行，学校的所有工作人员仍然被强制要求接种疫苗，否则就会失去工作。此外，新西兰卫生部门还正在为5至11岁的儿童接种中共病毒疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image005-5.jpg)
+另据RNZ报道，校长们表示，由于政府要求4年级及以上的孩子在室内佩戴口罩，一些家长希望自己的孩子在家中上学。最新数据显示，教育部在1月份收到了735份在家上学（home-schooling）申请，在12月份收到了800份，在11月份收到了867份，所有这些申请都是正常情况下的4倍。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+新西兰教育部表示，去年批准了2655 份在家上学的申请，拒绝了78 份，仍在审议超过983 份。数据还显示，该部在2021 年收到了900 多份奥克兰申请，几乎是前一年的两倍，坎特伯雷约有500 份申请，怀卡托有400 多份。
 
-总编: 飞虹
-编辑： 飞虹
-校正/发稿：Fei797
+教育部还表示，大量申请导致审批延误，申请家庭可能要等待六周以上。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+越来越多的新西兰家庭正在为孩子申请在家上学，中共病毒感染顾虑、口罩强制令和疫苗接种是主要原因。中共病毒造成的各种次生灾害正在越来越多地破坏各国民众的正常生活。
+
+
+
+
+
+**推出问题，敲出真相，爆料在路上！**
+
+**请关注和订阅我们的以下账号：**
+
+**新西兰伊甸农场盖特**：https://gettr.com/user/himalayanz
+
+**【玫瑰看新闻】盖特**：https://gettr.com/user/rosenews
+
+**玫瑰看新闻YouTube账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**Rose news**
+
+**【玫瑰看新闻】推特账号**：
+
+**Rose News (@RoseNews4)a**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

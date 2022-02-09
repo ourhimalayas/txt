@@ -2,12 +2,12 @@
 ---
 
 
-## 不能再向中共国市场注入美元
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1975273/)
+## 班农先生：任何亲自到场的政府官员，都不是追求推动自由的
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1976417/)
 
-02/05/2022 知名主持人鲁·道博在战斗室采访中表示：不能再向中共国市场注入美元。
+02/05/2022 班农先生：你不能，去中共的种族灭绝奥运，给习和中共叩头。亲自到场的任何政府，都不是追求推动自由的。
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
