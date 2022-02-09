@@ -2,27 +2,31 @@
 ---
 
 
-## 全球央行或将开启“史上最大量化紧缩”
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1980374/)
+## 谁才是抗日战争的真正主力
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1980394/)
 
-作者：MOS 柳是多水土透
+作者：纽约香草山农场-马克文、朱丽叶
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月4日，据相关媒体报道，摩根-士丹利近日发布的一份报告指出，全球主要的中央银行即将开始“史上最大规模的量化紧缩”，在未来的12个月内，预计将有2.2万亿美元的货币支持会因此消失。
+1930年代至1940年代，第二次世界大战东亚战事的主要部分即为中华民国与大日本帝国之间发生的战争，也就是为后人所熟知的“抗日战争”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide11-3.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide12.jpeg)
 
-报道提及，全球通货膨胀的飙升迫使美国联邦储备系统，以及欧洲、日本和英格兰的中央银行急速收紧其各自在中共病毒大流行期间祭出的各项支持措施。
+据日本公布的二战在华阵亡数据显示，抗日战争期间，日军共有超过31万人在与国民党军交战时死亡，仅有851日死于中共军队的手中。
 
-据各方普遍预计，美国联邦储备系统将在今年内加息五次，这也是自2005至2006年以来美国最快的一轮加息。同时，英国中央银行已经在本周推出了近三个月来的第二次加息，而欧洲中央银行近期的一些言论则让外界预计其将实施最近10年来的首次加息。
+另据中华民国国防部的统计数据表明，截至1945年6月，国民党军中少将以上的高级将领在战争中一共牺牲了115人，国军总损失人数达到400多万，死亡约132万人以上，其中海军几乎全军覆没。而根据中共早先的记载，中共抗日部队仅有左权一位将军牺牲，其余总计人员损失约58万人，死亡约16万人。
 
-摩根-士丹利的分析师对此表示，全球的这一轮紧缩将撤回2.2万亿美元的资金支持，其规模将达到2018年的4.5倍。
+通过对二者数据的分析，国军在抗日战争中的伤亡总数达到共军的5.5倍，死亡人数则超过共军的7倍有余。
 
-参考链接：[Central banks to embark on “largest quantitative tightening in history” – Morgan Stanley](https://www.reuters.com/markets/europe/central-banks-embark-largest-quantitative-tightening-history-morgan-stanley-2022-02-04/)
+鉴于中共长期以来对历史的篡改，2015年8月28日，中华民国国防部在一份声明中强调，八年抗战是由中华民国政府主导，在蒋介石委员长的领导下，全国军民浴血奋战的成果，其历史真相绝不能以任何方式被扭曲与篡改。
+
+参考链接：
+1.[共军抗战毙敌851人](https://zh.wikipedia.org/wiki/共军抗战毙敌851人)
+2.[国民党抗战死了多少人](http://www.siwapu.com/junshi/25179.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-总编：飞虹
-编辑：飞虹
+总编：Jack Li文阳
+编辑：Jack Li文阳
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**
