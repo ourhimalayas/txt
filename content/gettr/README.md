@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/9/2022 10:35 PM (UTC)`
+
+2/9/2022 Miles Guo: The case of  Weijian Shan and PAG reveals the dark secrets of the Chinese Communist Party's deep penetration of the U.S. barristers and the judiciary, and the case filing of UBS in the British court opens the door to the evil collusion between the swamp and the CCP<br/><br/>2/9/2022 文贵直播：单伟建和PAG案揭露了中共深度渗透美国大律师界和司法界的黑幕，瑞银(UBS)在英国法院立案是打开了沼泽地和中共邪恶勾兑的大门<br/>
+![img](https://media.gettr.com/group17/getter/2022/02/09/22/1e4f5cc8-603c-787c-0aeb-823736e69d56/out.jpg)
+
+---
+
 `@miles 2/9/2022 10:16 PM (UTC)`
 
 2/9/2022 Miles Guo: Why am I entering into a new stage of my life today? The money deposited in UBS, including its hidden accounting records, is equivalent to the wealth accumulated by mankind in the past 500 years. Yesterday, many big shots thought it was impossible for my lawsuit against UBS to be filed in a London court.<br/><br/>2/9/2022 文贵直播：为什么说七哥在今天进入了人生新高度？瑞银UBS的存款和黑账相当于人类过去500年的财富，UBS案能在伦敦法院立案，这在昨天都是很多大咖认为不可能的事情<br/>
@@ -147,13 +154,6 @@ Ms. Christine Anderson said, "Whenever a political entity resorts to extortion a
 
 2/5/2022 Miles Guo: There are three points made by almost everyone attending the CCP’s Winter Olympics: 1) the CCP is over, 2) everything is just fake, and 3) it is absolutely a nightmare. Many people are now trying to figure out how to transfer their money out of Communist China ASAP.<br/><br/>2/5/2022 文贵盖特：所有参加中共冬眠会的人就三句话：1）中共完了，2）一切都是假的，3）这简直就是一场噩梦；很多人现在只想着如何尽快把他们的钱从中共国转出来。
 ![img](https://media.gettr.com/group40/getter/2022/02/05/22/3fcfd090-a361-6b2e-8423-957e3d0a4891/out.jpg)
-
----
-
-`@miles 2/5/2022 8:46 PM (UTC)`
-
-2/5/2022 Miles Guo’s GETTR: Over 300 people at the opening ceremony of the Winter Olympics were sent to quarantine. Should Xi Jinping be quarantined as well? After his team got knocked out by the virus in Beijing, Putin made a harsh remark that the CCP must give Russia half of its territories as a pledge so that RMB can become the second legal tender in Russia. Will that be possible?<br/><br/>2/5/2022 文贵盖特：冬眠会开幕式现场300多人被拉走隔离，习神难道不需要隔离？普京在北京几乎被团灭后放狠话，中共得拿出半壁江山押给俄罗斯才能让人民币成为其第二法币，这个能实现吗？<br/>
-![img](https://media.gettr.com/group38/getter/2022/02/05/20/ba33be16-cecc-4184-9e06-c7a95b172067/out.jpg)
 
 ---
 

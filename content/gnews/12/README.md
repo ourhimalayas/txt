@@ -2,11 +2,25 @@
 ---
 
 
-## 2/9/2022 文贵直播：UBS案历经了中共不惜一切代价的阻挠，今天终于在伦敦法院立上案了，意义重大啊
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1981327/)
+## 有声|2022年2月8日 晚 新中国联邦新闻、GTV新闻访谈简报
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1981337/)
 
-秘密翻译组-北美组
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/彭帅-1.jpg)
+文字版原文：[2022年2月8日 晚 新中国联邦新闻、GTV新闻访谈简报](https://gnews.org/zh-hans/1977618/)
 
+音频处理：Fei797
+发稿：Fei797
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
