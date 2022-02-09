@@ -2,31 +2,40 @@
 ---
 
 
-## 七哥谈“俄罗斯人骨子里对中国人的看不起”（2022-02-06摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1980979/)
+## 中共挑维族运动员点燃冬奥火炬 遭媒体批评与关注
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1980981/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+作者：纽约香草山教育部 – Naughty(文行)/StevenZ（行侠）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+在2月4日举行的北京冬奥会开幕式上，中共挑选了新疆维吾尔族女选手衣拉木江作为将火炬嵌入主火炬台的其中一位火炬手，点燃圣火，此举引起了西方媒体的关注和批评。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-13.jpg)
+当天，就有美国媒体注意到这一问题，并立即将这一举动与新疆少数民族遭受迫害联系了起来。6日，美国驻联合国大使托马斯·葛林斐接受媒体采访时表示：”这是中共在试图分散我们对于当前真正问题的关注，维吾尔人正在遭受迫害。”
 
-来源：郭先生2022-02-06直播08:27:34摘录
+7日，有媒体跟进报道称，中共选择依拉木江女士，而不是一个更为广为人知的运动员点燃奥运火炬，被广泛认为是中共对全球谴责其迫害新疆人的蔑视。该媒体还注意到，在依拉木江点燃火炬并首次参加比赛后，本应接受媒体采访的她却悄悄溜走了，已经没有任何媒体可以对她进行进一步采访。
 
-普京连一秒钟都不想在北京呆，就像我告诉他的女朋友一样，每次来北京跟习见面，私人飞机落到北京机场，大高跟鞋这么高，军人芭蕾舞出身“啪啪啪”旁人一人拎一袋子，很多人不知道她带的啥玩意儿，是吧？直接去见习，见完习马上走，就到自己的房间就吃点东西，路上吃点东西，飞机上吃的东西，全是俄罗斯带来的，从来不吃你中共的东西。所以我告诉过大家，习问过她：“你为啥就是你都带着吃的，火腿什么的？” “因为你们全是化学物品，你们没有一样东西没有激素、没有化学物质，我不吃这东西。” 习就傻在那儿了，是吧？习就傻在那了！到俄罗斯去，中共国竟然给人家俄罗斯在当时，习当副主席的时候，给人家带去中国的山珍海味……全部倒掉。什么灵芝、山珍通通倒掉。俄罗斯人骨子里对中国人的看不起，就像我们看不起中国共产党一样，不会有一点相信你的，不会半点相信你。宁可和什么猪睡觉，也不会跟你睡觉，就那种就他们没感觉，这个被虐待的病态、病种，丢尽了14亿中国人。冬奥会，习，你看一看，亨利小哥你记得七哥说的吗？他自己说的130个国家来，然后97个国家。你看那张艺谋的采访也承认97个国家，你看看那个王毅说，多少国家争着来，外交部。你要但凡有一点点脸，得用鞋底抽自己的脸、咬自己的舌头，然后把绳子拴在自己的小鸡鸡上把自己吊死。就是你外交部公开讲那么多话，是吧？100多个国家来，你还咋有脸见人呢？是吧？我小时候打架的时候，我们对所有的失败的惩罚，男同志，是吧？弄个绳捡到自己小鸡鸡上，然后拿舌头咬，是吧？连咬十下，是吧？作为男人输掉的羞耻。你外交部，你共产党，你但凡要点儿脸，你该拴上个绳咬死自己，这帮不要脸的东西！
+有分析人士认为，中共一再批评其他国家将奥运会政治化，他自己却将奥运政治的意图展现得淋漓尽致。但事与愿违，中共挑选依拉木江女士点燃圣火，本想将其吹捧为民族团结的象征，却再一次让外界彻底看清了他们虚伪的嘴脸。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+参考链接：
+1. [中共挑维族运动员点燃冬奥火炬 遭媒体批评与关注](https://www.rfi.fr/en/us-criticizes-china-s-choice-of-olympic-torchbearer)
+2. [中共挑维族运动员点燃冬奥火炬 遭媒体批评与关注](https://www.npr.org/2022/02/04/1078234213/beijing-olympics-flame-torch-uyghur)
+3. [中共挑维族运动员点燃冬奥火炬 遭媒体批评与关注](https://www.nbcnews.com/news/world/winter-olympics-opening-ceremony-beijing-china-rcna14511)
+4. [中共挑维族运动员点燃冬奥火炬 遭媒体批评与关注](https://twitter.com/No3Mos/status/1351675285721198597?s=20&amp;t=oeEiEkApduXuloGTHoxTfQ)
+5. [中共挑维族运动员点燃冬奥火炬 遭媒体批评与关注](https://www.hk01.com/%E5%8D%B3%E6%99%82%E5%9C%8B%E9%9A%9B/732696/%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A7-%E6%96%B0%E7%96%86%E7%B6%AD%E5%90%BE%E7%88%BE%E6%97%8F%E4%BA%BA%E9%BB%9E%E7%87%83%E8%81%96%E7%81%AB-%E7%BE%8E%E6%8C%87%E8%8F%AF%E8%BD%89%E7%A7%BB%E7%84%A6%E9%BB%9E-%E4%B8%AD%E6%96%B9%E5%8F%8D%E9%A7%81)
 
-**关注我们**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
-Discord 账号
+总编：飞虹
+编辑：飞虹
+校对/发稿：Hetangyuese
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

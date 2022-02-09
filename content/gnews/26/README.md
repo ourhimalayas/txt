@@ -2,50 +2,48 @@
 ---
 
 
-## NBC体育分析师因未知原因提前从奥运会归国
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1981267/)
+## 英国加入欧盟-中共国关于立陶宛事件的世贸组织争端解决机制
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1981295/)
 
-编译： Jenny Ball
+据《路透社》记者：[Emma Farge](https://www.reuters.com/authors/emma-farge/)，2022年2月8日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-932-e1644436461967.png)图片来源：REUTERS/Jason Lee
+日内瓦，2月7日（路透社）——英国将与美国和澳大利亚一起，支持欧盟在世界贸易组织就北京对立陶宛的所谓贸易限制而进行的诉讼，英国贸易部长称此举是反对“胁迫性贸易”做法。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/20220209072007400.png)图片来源：aboluowang.com
+欧盟上个月在世贸组织发起挑战，指责中共国对立陶宛的歧视性贸易做法，称其威胁到欧盟单一市场的完整性。
 
-据美联社报道，这位广受欢迎的 NBC 体育分析师迈克·蒂里科（Mike Tirico）将在周一晚间播出后返回美国。他最初定于周四之前都在中国。
+Anne-Marie Trevelyan在一条推文中表示： “我们将要求第三方加入欧盟对这些措施的世贸组织磋商，以确保我们共同打击贸易中的经济胁迫行为。”
 
-根据同一份美联社报道，NBC 官员认为，蒂里科的“日程安排可能会根据 COVID-19 和其他因素发生变化”。 虽然目前还不清楚赛程为何突然改变，但值得注意的是，蒂里科在奥运报道中讨论了中国对少数民族的种族灭绝。
+美国、澳大利亚和台湾已经表示打算加入磋商。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unknown-18.png)图片来自原文
+美国贸易代表发言人亚当-霍奇说，拜登政府“深切关注”中共国对立陶宛商品和与立陶宛有关联的欧盟商品的歧视性贸易做法。
 
-“与这届奥运会有关的一切和每个人都面临着问题。美国政府不在这里，今年秋天加拿大、英国和澳大利亚加入了外交抵制，由于中国的人权记录和美国政府宣布中国共产党对西部新疆的维吾尔穆斯林人口实施种族灭绝罪的声明， 据《媒体》（Mediaite）报道，蒂里科在共产主义独裁统治下的奥运会开始时说道。 他还提到，中国是“新冠病毒起源的国家”。
+霍奇在1月27日的声明：“我们将继续与立陶宛、欧盟以及志同道合的盟友和伙伴合作，回击中共国的胁迫性经济和外交行为，美国将请求加入这些世贸组织磋商，以声援立陶宛和欧盟。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unknown-1-7.png)图片来自原文
+维尔纽斯正处于中共国的压力之下，中共国声称民主统治的台湾是其领土，要求撤销去年允许该岛以自己的名义在首都开设事实上的大使馆的决定。
 
-推文内容： NBC奥运会/蒂里科现在就中国政府做了一个相当实质性的报道，包括彭帅。
+中共国已经降低与波罗的海国家的外交关系，并同时向跨国公司施压切断关系。
 
-显然，为何蒂里科提前几天返回美国尚不清楚，我相信会有一个非常合理的解释。
+世贸组织允许双方在60天内进行协商，以达成解决方案。如果没有达成协议，欧盟可以选择发起正式的争端解决机制，成立一个世贸组织小组来研究其对中共国的主张。
 
-表面上，他将参与 NBC 的超级碗现场转播。但是，如果我们不问是否与他报道内容有联系，那就太愚蠢了。
+一位驻日内瓦的贸易官员认为，其他西方国家的参与，假如没有受到北京的阻挠，将对欧盟的案件有“帮助”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unknown-2-4.png)推特标语：种族灭绝运动会，共产主义暴行。（图片来自原文）
+他说：“如果有其他成员代表代表你争论并提出论点，我认为小组会考虑这个问题。”
 
-在与中共打交道时，美国公司是出了名的软弱。他们宁愿卑躬屈膝也不愿挺起脊椎。
+原文连接：[https://www.reuters.com/world/britain-joins-eu-china-wto-challenge-over-lithuania-2022-02-07/](https://www.reuters.com/world/britain-joins-eu-china-wto-challenge-over-lithuania-2022-02-07/)
 
-蒂里科在他的平台上讨论了中共可怕的人权记录，他现在要回家了，要 尽多地阅读这方面内容！
+翻译：洛杉矶盘古农场 – TrueSky
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unknown-3-4.png)推文：ESPN明星对中共国人权记录的猛烈评论。（图片来自原文）
+校对：洛杉矶盘古农场 – Mike Li
 
-希望越来越多的人通过他们的平台来关注中共践踏人权的问题。这是人们希望看到的。
+编辑：洛杉矶盘古农场 – WenXiong
 
-评论：中共可以举国和外交官当面指责美国的人权和种族歧视，但是，如果别人指出他们已经有证据证明的种族灭绝罪，活摘人体器官，中共就恼羞成怒指责的别人是种族歧视。没有见过中共这么无耻的。
+发布：洛杉矶盘古农场 – 子萍
 
-**参考资料：**[dailycaller][Mike Tirico Is Returning Early From The Olympics For Unknown Reasons](https://dailycaller.com/2022/02/07/mike-tirico-returning-early-olympics-nbc-china-genoice-comments/)
 
-* * *
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-*审核：文乐
-校对：小东
-发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH..jpeg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

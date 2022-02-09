@@ -2,52 +2,31 @@
 ---
 
 
-## 全球中共病毒病例数在过去一周内骤降了17%
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1981536/)
+## 七哥谈中共满骨子都是种族主义（2022-02-06摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1981607/)
 
-作者：纽约香草山农场 – 四季
+文编：Hima
+听写：叮叮
+视频：七哥
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+来源：郭先生2022-02-06直播08:33:20摘录
 
+就是所有的尿、便他都收。在北朝鲜人眼里边儿，我这样的人就不是一般人嘛，基因优秀，是吧？还有，他要了解的这个人，为什么14亿中国人有这样的人，是吧？他肯定收集。那就像人家到咱们中共国，就北朝鲜看待人家这人就是都属于精英。当年奥运会的时候，1996年还是98年那次，还是什么？你看那个中央的李瑞环，李瑞环那小木匠在那说：“我们要把全人类的最优秀的人种和精英聚集在地球的一个点上，让这个点上所有聚会之后散发的能量，还有这些精英中的精英，最健康的基因全都给它裁下来”。小木匠都有这脑子！当时那时候你看我才多大？我就很感兴趣为啥要这个？他说：“如果要让他们跟咱们这个能交配出来、生产出更优秀的人种，那真是一种大的财富。” 当时张百发是北京副市长，那是最有权力的人。张百发说，“这些人来了以后，能在他身上拿点啥就拿点啥”。当时那个体育局局长，我都忘了叫什么，叫袁伟民还是叫什么？那个货傻乎乎的在那儿，真的是就跟个太监似的。然后在那12345数了好几条儿，最后让那个李瑞环给打断，说太多了，你先把这个奥运会申请下来再说。就共产党这个邪恶就跟北朝鲜一样的，就是你来的这个叫运动健儿。这些共产党老杂毛们，他们是人体崇拜、优秀基因崇拜，在人种上绝对有阶级主义。再一个，在所有的看的这些人，他跟我们常人是不一样的。你让亨利小哥跟共产党这么多年，你让他给你回答回答，共产党人怎么看待白人和黑人？怎么看待我们自己人？怎么看待我们农村人和城市人？怎么看待党外人和党内人？他满骨子都是阶级，满骨子都是种族主义。这是真实的共产党，所以说这些运动员来，他是又恨又爱。这就是共产党，谢谢！
 
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
+**关注我们**
 
+Discord 账号
 
-据[布赖特巴特新闻网](https://www.breitbart.com/health/2022/02/09/coronavirus-in-retreat-global-case-counts-plunge-17-in-past-week/)2月9日报道， 世界卫生组织周二宣布，过去一周全球中共病毒病例数与过去同期相比下降了17%，其中仅美国就下降了50%，而全球死亡人数下降了7%。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GE-02-640x480-1.jpg)Michael M. Santiago/Getty, Images
+Gettr 账号
 
-世界卫生组织表示，Omicron变体的流行率在全球范围内有所增加。然而，许多早期曾报告因Omicron变体而导致病例数上升的国家现在报告说，自2022年1月初以来，新病例总数有所下降。
-
-随着新的统计数字的出现，世界各地要求结束强制口罩令和强制性疫苗接种的呼声越来越高。世界各国政府也都在寻求放松限制。
-
-澳大利亚将很快向已接种疫苗的游客重新开放边境。继丹麦和挪威之后，瑞典也在取消大部分大流行病规定。在加拿大，争取摆脱所有中共病毒限制的运动已经成为全球头条新闻。
-
-就在本周，美国的加利福尼亚州、康涅狄格州、特拉华州、新泽西州和俄勒冈州的州长表示，他们将结束全州范围内的室内口罩规定，其中一些适用于学校，另一些适用于公共场所。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2月.jpg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

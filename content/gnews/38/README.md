@@ -2,37 +2,31 @@
 ---
 
 
-## 俄媒：华盛顿在太平洋掀起反华浪潮
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1980327/)
+## 七哥谈“俄罗斯人骨子里对中国人的看不起”（2022-02-06摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1980979/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+文编：Hima
+听写：叮叮
+视频：七哥
 
-整理：Eileen（围剿维尼熊）
-编辑：朝花夕拾
+来源：郭先生2022-02-06直播08:27:34摘录
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-614.png)图片来源：雅典娜设计组
+普京连一秒钟都不想在北京呆，就像我告诉他的女朋友一样，每次来北京跟习见面，私人飞机落到北京机场，大高跟鞋这么高，军人芭蕾舞出身“啪啪啪”旁人一人拎一袋子，很多人不知道她带的啥玩意儿，是吧？直接去见习，见完习马上走，就到自己的房间就吃点东西，路上吃点东西，飞机上吃的东西，全是俄罗斯带来的，从来不吃你中共的东西。所以我告诉过大家，习问过她：“你为啥就是你都带着吃的，火腿什么的？” “因为你们全是化学物品，你们没有一样东西没有激素、没有化学物质，我不吃这东西。” 习就傻在那儿了，是吧？习就傻在那了！到俄罗斯去，中共国竟然给人家俄罗斯在当时，习当副主席的时候，给人家带去中国的山珍海味……全部倒掉。什么灵芝、山珍通通倒掉。俄罗斯人骨子里对中国人的看不起，就像我们看不起中国共产党一样，不会有一点相信你的，不会半点相信你。宁可和什么猪睡觉，也不会跟你睡觉，就那种就他们没感觉，这个被虐待的病态、病种，丢尽了14亿中国人。冬奥会，习，你看一看，亨利小哥你记得七哥说的吗？他自己说的130个国家来，然后97个国家。你看那张艺谋的采访也承认97个国家，你看看那个王毅说，多少国家争着来，外交部。你要但凡有一点点脸，得用鞋底抽自己的脸、咬自己的舌头，然后把绳子拴在自己的小鸡鸡上把自己吊死。就是你外交部公开讲那么多话，是吧？100多个国家来，你还咋有脸见人呢？是吧？我小时候打架的时候，我们对所有的失败的惩罚，男同志，是吧？弄个绳捡到自己小鸡鸡上，然后拿舌头咬，是吧？连咬十下，是吧？作为男人输掉的羞耻。你外交部，你共产党，你但凡要点儿脸，你该拴上个绳咬死自己，这帮不要脸的东西！
 
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-根据参考消息2月9日报道，根据俄罗斯《独立报》网站2月8日题为华盛顿在太平洋掀起反华浪潮的文章内容。
+**关注我们**
 
-美国国务卿布林肯开启亚太之行，目的是提醒该地区的国家，尽管发生了乌克兰危机，美国仍将恪守其反击中国扩张的义务。
+Discord 账号
 
-首先，美国外交负责人将在墨尔本参加四方安全对话(QUAD)会议，该机制成员还包括日本、澳大利亚和印度。随后，他将访问斐济，试图说服该岛国不要让北京在那里建基地。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-据路透社报道，布林肯意在重申华盛顿长期战略的重点已经从欧洲转向亚太。然而，从美国负责东亚和太平洋事务的助理国务卿丹尼尔·克里滕布林克的讲话来看，华盛顿担心，在亚太地区，它现在要对付的并不只是一个中国，还有支持中国的俄罗斯。
+Gettr 账号
 
-毕竟，莫斯科和北京宣称它们将共同捍卫自己的根本利益。去年，美国、英国和澳大利亚已经宣布成立一个新的军事集团-澳英美联盟(AUKUS)。
-
-参考链接：https://i.ifeng.com/c/8DUGXdQ58qW
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
