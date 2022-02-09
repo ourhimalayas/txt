@@ -2,26 +2,30 @@
 ---
 
 
-## 新西兰宣布计划解除新冠病毒旅行限制
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1977376/)
+## 二十余国发表联合声明 关切香港新闻自由
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1977459/)
 
-***评论：放宽因中共病毒而造成的国家封锁将是世界趋势，人民会重新获得自由。***
-**据《华盛顿邮报》Andrew Jeong，美国东部时间2022年2月3日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2a0ayv-ha0lp-2.jpg)**图片：新西兰总理杰辛达·阿德恩（Jacinda Ardern）周四摘下口罩，宣布计划从本月开始重新开放新西兰边境，并拆除政府管理的隔离系统。 （院长珀塞尔/新西兰先驱报/AP）**
-新西兰总理杰辛达·阿德恩（Jacinda Ardern）周四表示，新西兰将从本月开始放宽新冠病毒边境限制。
+![资料照片：警方在搜查香港《立场新闻》办公室后带走该媒体的编辑林绍桐。(2022年1月4日)](https://gdb.voanews.com/09cd0000-0a00-0242-1e46-08d9e6fe2c43_w1023_r1_s.jpg)资料照片：警方在搜查香港《立场新闻》办公室后带走该媒体的编辑林绍桐。(2022年1月4日)
+据美国之音2月9日报道，21个媒体自由联盟成员国8日发表声明，对“香港和中共大陆当局攻击新闻自由和压制香港当地独立媒体”深表关切。媒体自由联盟成立于2019年7月，有70个成员国。签署这项有关香港新闻自由的联合声明的有21个国家的政府。
 
-从2月27日起，该国将首先允许已完全接种疫苗并来自澳大利亚的新西兰公民、居民和一些签证持有者入境，而无需他们在政府管理的设施中接受至少10天的隔离。但他们必须自行在其他地方隔离，并且在抵达新西兰之前必须在澳大利亚停留14天。
+这21个国家是：澳大利亚、奥地利、加拿大、捷克共和国、爱沙尼亚、芬兰、德国、冰岛、爱尔兰、意大利、日本、拉脱维亚、立陶宛、卢森堡、荷兰、新西兰、斯洛伐克、斯洛文尼亚、瑞士、英国和美国。
 
-**文章来源:**[https://www.washingtonpost.com/world/2022/02/03/new-zealand-border-reopening-covid/](https://www.washingtonpost.com/world/2022/02/03/new-zealand-border-reopening-covid/)
-翻译：洛杉矶盘古农场 – 轰炸机
-校对：洛杉矶盘古农场 – Mike Li
-评论：洛杉矶盘古农场 – 轰炸机
-编辑：洛杉矶盘古农场 – 柯镇恶
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+自2020年6月香港国安法实施以来，中共持续打击香港的独立媒体，造成香港当地独立媒体、香港的人权自由、新闻自由和言论自由几乎消失殆尽。香港在中共的暴力打击下完全失去了昔日的自由和繁华，港人大量离开，中共从大陆大量引进所谓的“爱国人士”，香港成了为中共洗钱和涂脂抹粉的肮脏之地，东方之珠失去了光彩。中共在香港的暴行经由新中国联邦揭露后，引起了国际社会的关注。香港人民的遭遇如果不停止，全世界都会变成香港：警察和部队全副武装，对付手无寸铁的本国人民。香港是除了新疆之外，中共推广全球社会主义的实验基地。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+新闻参考链接：[https://www.voachinese.com/a/media-freedom-coalition-statement-on-closure-of-media-outlets-in-hong-kong-20220208/6433075.html](https://www.voachinese.com/a/media-freedom-coalition-statement-on-closure-of-media-outlets-in-hong-kong-20220208/6433075.html)
+
+编辑：胖丁
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

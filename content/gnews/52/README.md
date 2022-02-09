@@ -2,35 +2,35 @@
 ---
 
 
-## 美国法律草案旨在遏制中国和俄罗斯的影响力
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1974144/)
+## 郭先生揭秘中共跪舔买账俄罗斯的原因
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1972984/)
 
-信息来源： 德国世界报
+作者：纽约磐石农场—在远方
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+在2月6日的大直播中，郭文贵先生揭秘了中共买账并跪舔俄罗斯的根本原因。
 
-翻译/整理： 意大利罗马达芬奇农场 Shuizhuyu
+郭先生说，第一是因为俄罗斯是共产主义的发源地，现在它依然还是世界上最大的共产主义大本营之一。共产主义就是邪恶的、独裁的、不受法律约束的、以为人民服务为名义的，奴隶主制度，而俄罗斯也恰好奴隶主的创造地。中共国从骨子里仇恨白人，西方白人并不认可中共，因此中共只能选择作为白色人种的俄罗斯交往。而俄罗斯出于利益角度，也愿意与中共勾兑，借此忽悠，让中共国人误以为在世界上并不孤立。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-8.jpg)
+第二由于俄罗斯的武器性能相对先进优越，可以和中共做交易。中共为了标榜其合法性，必须得有一个名正言顺的托词，让中国人觉得俄罗斯人种比中国人强，这个所谓的朋友比中国人优秀。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Wohnen-in-der-Grossstadt-Mexiko.jpg)
+郭先生指出，由于一系列的文化、信仰、宗教和历史的原因，中共对俄罗斯一直是买账和跪舔。不论俄罗斯如何虐待中共，中共都乐此不疲。而这些丑事，中共绝对不会让老百姓知道。
 
+参考链接：[郭先生揭秘中共跪舔买账俄罗斯的原因](https://www.gettr.com/post/pt0ef10ad5)
 
-图片来源： DPA
+![](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
-美国国会关于拉丁美洲问题的两个主要声音已经提出了两党立法，以加强美国在该地区的合作，以对抗中国和俄罗斯在该地区日益增长的影响力。
+总编：DM
+编辑：DM
+校对/发稿：Hetangyuese
 
-佛罗里达州共和党参议员、情报委员会高级成员马尔科·卢比奥和参议院外交关系委员会主席鲍勃·梅南德斯周一提出了一项法案，他们称之为《西半球安全战略法案》。该法案旨在对抗中国和俄罗斯在拉丁美洲的“有害和恶意影响”。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-参议员们认为，北京和莫斯科威权政府的“破坏稳定”影响对美国的国家安全利益和该地区的福祉构成了独特的威胁。
-
-如果获得通过，该法案将要求国务院和国防部在 180 天内共同提出一项战略，以增加在西半球针对毒品贩运和跨国犯罪等领域的外交接触和安全援助。具体步骤将包括增加与伙伴国家的军事演习。
-
-马尔科·卢比奥说“在我们地区，没有比俄罗斯和中国对拉丁美洲和加勒比地区日益增加的干预更大的威胁了，”。鲍勃·梅南德斯补充说：“美国必须在加强与美国民主国家的安全伙伴关系方面采取战略性和积极主动性。”该法案承认拉丁美洲的地缘政治重要性。
-
-近年来，中国已取代美国成为拉美多个国家的主要贸易伙伴，同时为包括推出移动网络在内的大量基础设施投资提供资金。美国认为这是一种安全风险。
-
-俄罗斯是古巴、尼加拉瓜和委内瑞拉的主要军事支持和武器供应国——这三个美国在该地区的主要敌人被几代美国政客称为华盛顿的后院。
-
-🔗[美国法律草案旨在遏制中国和俄罗斯的影响力](https://www.welt.de/politik/ausland/article236750269/USA-Gesetzentwurf-will-Chinas-und-Russlands-Einfluss-eindaemmen.html)
-
-编辑发布： Shuizhuyu
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

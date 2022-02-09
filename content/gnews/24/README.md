@@ -2,10 +2,10 @@
 ---
 
 
-## 2022年2月9日《樱花简报》：受中共病毒冲击 日本各项经济数据现恶化势头
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1977209/)
+## 2022年2月9日《樱花快报》：全球感染中共病毒超4亿人 辉瑞疫苗赚370亿美元
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1977235/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/20220209-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/20220209快报-scaled.jpg)
 
 *编辑：东京樱花团/简报小组
 发布：东京樱花团/老黑*

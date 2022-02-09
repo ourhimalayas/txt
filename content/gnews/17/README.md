@@ -2,22 +2,27 @@
 ---
 
 
-## 冬奥开幕 来宾多为非民主政体领袖
-` GTV新聞訪談` [轉載自GNews](https://gnews.org/zh-hans/1977331/)
+## 魁北克自由党议员就疫苗强制公开与特鲁多决裂
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1977421/)
 
-[撰稿日期]：2022.02.04
+加拿大温哥华扬帆农场 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2022/02/joel-lightbound-cpac.jpg)图片来源： CKDR
+根据《蒙特利尔公报》2月8日报道，联邦自由党的新星周艾-莱特邦德（Joël Lightbound）本周二公开表示：他的政党在卡车司机强制接种疫苗、渥太华的抗议活动以及特鲁多政府对流行病回应的立场是截然不同的。
 
-[署名]：台湾宝岛农场dobi
+莱特邦德说：“现在是政府停止分裂国民的时候了，需要停止很多人因为对封锁所表达担忧而被 ‘妖魔化’。我很尊重我周围的人，而不是给他们贴上荒谬和可笑的标签”。
 
-[新闻连接]：《https://tw.news.yahoo.com/%E5%86%AC%E5%A5%A7%E9%96%8B%E5%B9%95-%E4%BE%86%E8%B3%93%E5%A4%9A%E7%82%BA%E9%9D%9E%E6%B0%91%E4%B8%BB%E6%94%BF%E9%AB%94%E9%A0%98%E8%A2%96-040741640.html》
+这位议员强调，政府必须为最终取消大流行病的限制提供一个 “量化和可量化的 “路线图。
 
-[正文]：
+联邦雇员必须接种COVID-19疫苗，这也是上次选举活动的一个核心问题，当时自由党以少数派政府的身份重新上台。
 
-据外媒报导，北京冬奥今（4日）开幕，但国际上不仅美国，多个国家也因新疆人权争议等问题，对中共实施外交抵制，谴责中共对新疆维吾尔族的种族灭绝暴行，所以不会派官方人员参与冬奥。
+被视为联邦自由党中的新星的莱特邦德，在总理贾斯汀-特鲁多(Justin Trudeau)预定与他的内阁会面的同一时间召开了他的新闻发布会。这位议员说，他与记者见面是为了 “谦虚地分享他对当前发生的危机、大流行病政治化的看法，并提供一些线索”。
 
-报导中也指出，中共国家主席习近平将在开幕会上接待来自21个国家的领导人，且这些国家多数不属于民主政体。
 
-报导也引述皮尤研究中心和洛伊研究所智库的调查，近年西方国家，尤其是在民主国家，民众对中共的看法普遍处于历史低点。
+
+原文链接：
+[https://montrealgazette.com/news/local-news/quebec-liberal-mp-publicly-breaks-with-trudeau-over-vaccine-mandates](https://montrealgazette.com/news/local-news/quebec-liberal-mp-publicly-breaks-with-trudeau-over-vaccine-mandates)
+
+编辑，发稿 Spirit
 
  
 

@@ -2,30 +2,41 @@
 ---
 
 
-## 美司法部查获36亿美元失窃比特币 金额创纪录
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1977234/)
+## 维州安德鲁斯警告：海外入境者需要打第三针
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1977247/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Unknown-11.jpg)美司法部查获36亿美元失窃比特币 金额创纪录 网络图片
-据法新社2月8日报道，美国司法部8日宣布已追回2016年失窃的价值36亿美元的9万4000多枚比特币，查获金额创纪录。
+**【雅典娜快讯】，紧贴时代脉搏**
 
-一对夫妇被控2016年从数位货币交易中心Bitfinex骇得当时价值6500万美元的11万9754枚比特币。其中一部分被送往一个私人控制的电子钱包，约2万5000枚比特币在5年间透过“错综复杂的加密货币交易从电子钱包移出”，所得款项被用来购买黄金及非同质化代币(NFT)。剩余的比特币被美国调查人员追回，并呼唤最初失窃的受害者前来认领。
-
-司法部副部长摩纳可表示，加密货币对犯罪分子来说不是安全的避风港。但新中国联邦的喜币是加密货币的巅峰，防盗、安全、金本位挂钩。比特币的灿烂不会持久，喜币的未来会无限风光。
-
-新闻参考链接：[https://www.rfi.fr/cn/%E7%BE%8E%E5%8F%B8%E6%B3%95%E9%83%A8%E6%9F%A5%E8%8E%B736%E4%BA%BF%E7%BE%8E%E5%85%83%E5%A4%B1%E7%AA%83%E6%AF%94%E7%89%B9%E5%B8%81-%E9%87%91%E9%A2%9D%E5%88%9B%E7%BA%AA%E5%BD%95](https://www.rfi.fr/cn/%25E7%25BE%258E%25E5%258F%25B8%25E6%25B3%2595%25E9%2583%25A8%25E6%259F%25A5%25E8%258E%25B736%25E4%25BA%25BF%25E7%25BE%258E%25E5%2585%2583%25E5%25A4%25B1%25E7%25AA%2583%25E6%25AF%2594%25E7%2589%25B9%25E5%25B8%2581-%25E9%2587%2591%25E9%25A2%259D%25E5%2588%259B%25E7%25BA%25AA%25E5%25BD%2595)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/5823.jpg)图片来源：The West Australia
 
 
-编辑：【英国伦敦喜庄园编辑部】
+翻译/编辑：文泓
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+当地时间2月9日，据《澳洲新闻网》报道，维多利亚州州长丹尼尔·安德鲁斯已宣布，希望到访本地的国际旅行者要么接受第三针加强针，要么面临被限制在固定的地方。
 
+周二，安德鲁斯表示，对完全接种疫苗的定义是打了第三剂加强针，这个定义也将适用于旅行者，就像它适用于维州人一样。
 
+“对于那些进入维州的人，我认为我们已经很好地建立了（第三剂加强针方案），”他说，维多利亚州有很多额外的疫苗强制政策。
+
+周一，总理斯科特·莫里森透露，从海外的游客只要完全接种疫苗，便可以入境。
+
+“这将是两针……世界各地对第三剂加强针有各种安排，联邦首席医疗官建议，两剂就足够了，”莫里森说。
+
+州长丹尼尔安德鲁斯周二宣布，所有参加幼儿教育服务的3至5岁儿童将免费参加这些快速抗原检测。
+
+虽然测试不是强制性的，但强烈建议学生在第1学期的前4周（每周）进行两次病毒测试，学生和家长已经怨声载道。
+
+维州在过去24小时内记录了9785例新病例和20例死亡案例。医院目前有575名感染者，其中72人在重症监护室，30人使用呼吸机。
+
+新闻链接：[Daniel Andrews tells international travellers they must be triple-vaxxed | news.com.au — Australia’s leading news site](https://www.news.com.au/national/victoria/news/victoria-records-9785-cases-20-covid-deaths/news-story/476af5f4faf720175912144c53b806cf)
+
+发布：文泓
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
