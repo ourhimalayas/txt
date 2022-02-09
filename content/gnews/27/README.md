@@ -2,26 +2,20 @@
 ---
 
 
-## 辉瑞悄悄地警告“不利的临床试验或安全数据”会影响商业
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1978648/)
+## 在荷兰反对绿色通行证的抗议活动越来越多
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1978676/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/02/4-9.jpg)
-图片来源：twitter.com
+翻译、整理：萧亦
+![](https://assets.gnews.org/wp-content/uploads/2022/02/02092.jpg)图片来自nurse24.it
+在荷兰，越来越多的人厌倦了绿色通行证。前国务卿莫娜·凯泽尔（Mona Keijzer）发起了一项废除它的请愿书，在头三天就收集了超过50万个签名，而周日晚上 21:30 左右已经超过 50 万个签名，现在已经超过 70 万。该网站的流量如此之大，以至于网页经常崩溃。
 
-零对冲网2月8日报道，二周前美国食品药品监督管理局（FDA）请求德克萨斯法官在第一个月所需上交的5万5千页新冠疫苗数据由辉瑞公司提供。最初FDA要求每个月只交500页。
+引用的请愿书中所说的：“现在很明显，这种冠状病毒也将成为地方病，绿色通行证不应该在自由民主的‘工具箱’中占有一席之地。我们呼吁政府和议会立即废除它们，同时由绿色通行证所造成的损害与对公众健康的任何好处都不成比例，而且它是对基本权利的侵犯”。
 
-现在辉瑞公司原来预估2022年售出与疫情相关的疫苗和药物将达540亿，现在看来有些坏消息了，因为第四季度获利的证据有些关键性改变。
+这一呼吁得到了荷兰政界、学术界和娱乐界的几位知名人士以及医生、律师、企业家和科学家的支持。
 
-据卢比孔资本的凯里·布朗发推说，这些改变围绕在不利的安全数据公开方面。例如，在Q4中他们加上了“关于临床前期，临床试验期或安全数据的进一步信息，包括审计和检查”。布朗写道，辉瑞现在突出显示“担忧临床数据的公正性…”
+原文链接：[https://europa.today.it/attualita/covid-green-pass-petizione-olanda.html#\_ga=2.39323492.616678070.1644394006-1049029860.1640600177](https://europa.today.it/attualita/covid-green-pass-petizione-olanda.html#_ga=2.39323492.616678070.1644394006-1049029860.1640600177)
 
-该公司还写道，新冠病毒可能本身降低了其严重性和流行性，或者可能完全消失。”
-
-人们不禁要问：辉瑞公司的面纱后面究竟是什么？
-
-##### 新闻来源： [Pfizer Quietly Adds Language Warning That ‘Unfavorable Pre-Clinical, Clinical Or Safety Data’ May Impact Business](https://www.zerohedge.com/covid-19/pfizer-quietly-adds-language-warning-unfavorable-pre-clinical-clinical-or-safety-data-may)
-
-#  
+责任编辑/发布：意大利达芬奇农场   萧亦
 
  
 

@@ -15,119 +15,119 @@
 
 ---
 
-### [妥协何处安放](/content/gnews/1/README.md)
+### [中共流氓的春节联欢晚会](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [西方支持中共要付出代价](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [《盲山》导演关心拐卖妇女，女主角却忙着划清界限](/content/gnews/3/README.md)
+ ` G-NEWS TAIWAN`
+
+### [参加冬奥会的运动员](/content/gnews/4/README.md)
+ ` 骄子`
+
+### [《历史上的今天》2022.02.09](/content/gnews/5/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [妥协何处安放](/content/gnews/6/README.md)
  ` 银河勇气之星`
 
-### [【秘翻新视野】从徐州8孩母亲看中共国的妇女人权](/content/gnews/2/README.md)
+### [拐卖妇女，中共是主犯](/content/gnews/7/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [【秘翻新视野】从徐州8孩母亲看中共国的妇女人权](/content/gnews/8/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [英国最大超市的董事长警告说：食品通胀的最糟情况还未到来](/content/gnews/3/README.md)
+### [英国最大超市的董事长警告说：食品通胀的最糟情况还未到来](/content/gnews/9/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [日本政府将对冬奥参赛选手移动终端的信息安全采取坚定立场](/content/gnews/4/README.md)
+### [日本政府将对冬奥参赛选手移动终端的信息安全采取坚定立场](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [加拿大：自由捍卫者将在渥太华持续进行抗议活动直到官方停止强制中共病毒疫苗接种](/content/gnews/5/README.md)
+### [加拿大：自由捍卫者将在渥太华持续进行抗议活动直到官方停止强制中共病毒疫苗接种](/content/gnews/11/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [中共国按不同的规则行事,并以其他国家为代价](/content/gnews/6/README.md)
+### [中共国按不同的规则行事,并以其他国家为代价](/content/gnews/12/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [写给香港](/content/gnews/7/README.md)
+### [写给香港](/content/gnews/13/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [澳大利亚新南威尔士州护士十年来首次投票举行罢工](/content/gnews/8/README.md)
+### [澳大利亚新南威尔士州护士十年来首次投票举行罢工](/content/gnews/14/README.md)
  ` 澳喜特战旅Gnews`
 
-### [参加自由行的加拿大卡车司机或将面临大规模抓捕](/content/gnews/9/README.md)
+### [参加自由行的加拿大卡车司机或将面临大规模抓捕](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文贵2022年2月6日大直播：5月份开始，疫苗次生灾难将席卷全球](/content/gnews/10/README.md)
+### [文贵2022年2月6日大直播：5月份开始，疫苗次生灾难将席卷全球](/content/gnews/16/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [生活不止眼前的苟且——还有新中国联邦](/content/gnews/11/README.md)
+### [生活不止眼前的苟且——还有新中国联邦](/content/gnews/17/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [中共花费重金投资美国的生物制药和基因组学行业，构成严重安全隐患](/content/gnews/12/README.md)
+### [中共花费重金投资美国的生物制药和基因组学行业，构成严重安全隐患](/content/gnews/18/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [我们的政府已被世界经济论坛接管](/content/gnews/13/README.md)
+### [我们的政府已被世界经济论坛接管](/content/gnews/19/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [辉瑞和Moderna mRNA疫苗是治疗的技术的药物，不是真正的疫苗！](/content/gnews/14/README.md)
+### [辉瑞和Moderna mRNA疫苗是治疗的技术的药物，不是真正的疫苗！](/content/gnews/20/README.md)
  ` 澳喜特战旅Gnews`
 
-### [美国承诺巩固洪都拉斯与台湾邦交](/content/gnews/15/README.md)
+### [美国承诺巩固洪都拉斯与台湾邦交](/content/gnews/21/README.md)
  ` 日本东京方舟农场`
 
-### [卢比奥呼吁结束支持中共国军事技术发展的美中大学伙伴关系](/content/gnews/16/README.md)
+### [卢比奥呼吁结束支持中共国军事技术发展的美中大学伙伴关系](/content/gnews/22/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [封锁对公共卫生“几乎没有”好处的](/content/gnews/17/README.md)
+### [封锁对公共卫生“几乎没有”好处的](/content/gnews/23/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [澳大利亚维州州长建议强制来访旅行者接种CCP病毒加强针](/content/gnews/18/README.md)
+### [澳大利亚维州州长建议强制来访旅行者接种CCP病毒加强针](/content/gnews/24/README.md)
  ` 澳喜特战旅Gnews`
 
-### [共和党议员提出法案，恢复因拒绝接种中共病毒疫苗而被开除的军人](/content/gnews/19/README.md)
+### [共和党议员提出法案，恢复因拒绝接种中共病毒疫苗而被开除的军人](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：北京寄希望于新的美国驻华大使能重建中美关系](/content/gnews/20/README.md)
+### [秘翻在线：北京寄希望于新的美国驻华大使能重建中美关系](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [在荷兰反对绿色通行证的抗议活动越来越多](/content/gnews/21/README.md)
+### [在荷兰反对绿色通行证的抗议活动越来越多](/content/gnews/27/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [香港或将在年内开放 但仍将强推疫苗接种](/content/gnews/22/README.md)
+### [香港或将在年内开放 但仍将强推疫苗接种](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [深圳楼市：市场变冷有投资者一年损失20%](/content/gnews/23/README.md)
+### [深圳楼市：市场变冷有投资者一年损失20%](/content/gnews/29/README.md)
  ` 日本东京方舟农场`
 
-### [新西兰财经G乐部2022年2月9日:财经新闻整理](/content/gnews/24/README.md)
+### [新西兰财经G乐部2022年2月9日:财经新闻整理](/content/gnews/30/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [从2008的“北京欢迎你”到2022的“北京整死你”](/content/gnews/25/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [新闻述评：北京冬奥赛事未完，丧事当喜事先办](/content/gnews/26/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [辉瑞悄悄地警告“不利的临床试验或安全数据”会影响商业](/content/gnews/27/README.md)
+### [辉瑞悄悄地警告“不利的临床试验或安全数据”会影响商业](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [加拿大警察粗暴对待无害的八旬弱小老人](/content/gnews/28/README.md)
+### [加拿大警察粗暴对待无害的八旬弱小老人](/content/gnews/32/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [北京冬奥会上中共国短道速滑运动员的丑陋表演](/content/gnews/29/README.md)
+### [北京冬奥会上中共国短道速滑运动员的丑陋表演](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [NASA为首枚从另一星球发射的火箭授予合同](/content/gnews/30/README.md)
+### [NASA为首枚从另一星球发射的火箭授予合同](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [欧美监管机构警告银行提防俄罗斯网络攻击](/content/gnews/31/README.md)
+### [欧美监管机构警告银行提防俄罗斯网络攻击](/content/gnews/35/README.md)
  ` 日本东京方舟农场`
 
-### [香港第五波疫情再起，再现近五个月来又一宗死亡病例](/content/gnews/32/README.md)
- ` 澳喜农场`
-
-### [2022/02/09 英喜时事速递](/content/gnews/33/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [全世界人民，珍惜生命，远离中共](/content/gnews/34/README.md)
+### [全世界人民，珍惜生命，远离中共](/content/gnews/36/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [法国学生抗议疫苗护照](/content/gnews/35/README.md)
+### [法国学生抗议疫苗护照](/content/gnews/37/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [NBC拒绝播放佛罗里达议员抨击中共及冬奥会的广告](/content/gnews/36/README.md)
+### [NBC拒绝播放佛罗里达议员抨击中共及冬奥会的广告](/content/gnews/38/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [迈克·蓬佩奥抨击拜登政府在外交政策失误中没有为美国 &#8220;站起来&#8221;](/content/gnews/37/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [有声|新中国联邦人主导北京冬奥会，让中共丑态百出，让参会人员自取其辱！](/content/gnews/38/README.md)
- ` MOSREC`
 
 ### [共产党要活必须靠美国](/content/gnews/39/README.md)
  ` 雅典娜GNotes`
