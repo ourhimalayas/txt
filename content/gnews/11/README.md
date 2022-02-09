@@ -2,10 +2,10 @@
 ---
 
 
-## 日本三井将发行与黄金挂钩的数字货币
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1978339/)
+## 中共继续蓝金黄英国大学 开发或偷盗高科技武器
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1978343/)
 
-作者：纽约香草山 – 柳是多水土透
+作者：纽约香草山教育部 – 子兵
 
 
 
@@ -13,23 +13,18 @@
 
 
 
-据国外媒体2月4日的消息，日本主要财团之一的三井物产株式会社，预计将在2月份发行与金价挂钩的数字货币ZPG，对零售投资者开放。其对应的黄金将由三井从伦敦金属交易所购入，一个ZPG等同于一克黄金。币价将由三井住友银行提供担保，对应以日元计价的黄金。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide15.jpg)
-ZPG大概是日本第一个与黄金挂钩的代币，但在全球范围内不是。ZPG最初会在三井交易所发行出售。
+2月6日，据外媒透露，英国的大学大幅增加了与中共军队有关的机构的合作，并可能有助于中共发展高科技武器。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-5.jpg)
+根据一项调查，英国科学家与跟中共解放军有密切联系的中共机构之间的研究合作数量在六年内增加了两倍，超过了1000次。而自2015年以来，英国大学从这些机构接受了2.4亿英镑的资助。其中，电信巨头华为是主要资金来源，华为已向英国机构捐款4000万英镑，另外还有2000万英镑来自因向解放军提供战斗机、导弹和通讯技术而受到美国政府制裁的公司。
 
-另外，三井还会开发使用此币的手机APP和其他交易系统，而买卖ZPG的客户都会被要求
-
-进行KYC审核，该币的交易则会在私人区块链上进行。
-
-该媒体还透露，三井住友银行是一个70多家银行产业联合体的成员，该联合体正在合作开发由存款担保的数字化日元。
+该调查称，英国学者与有中共军方背景的大学合作，进行了多项敏感的“军民两用技术”的研究，包括无人机、可以发射导弹的电磁技术、航空航天材料、雷达、干扰装置和高效能电池等。
 
 参考信息：
-1. [Mitsui & Co. to issue cryptocurrency linked to gold prices](https://asia.nikkei.com/Spotlight/Cryptocurrencies/Mitsui-Co.-to-issue-cryptocurrency-linked-to-gold-prices)
-2. Japanese Trading House Mitsui to Launch Gold-Linked Cryptocurrency: Report
+[UK Universities May Be Helping China Develop Hi-tech Weapons: Report](https://www.theepochtimes.com/uk-universities-may-be-helping-china-develop-hi-tech-weapons-report_4259918.html?utm_source=ref_share&amp;utm_campaign=copy&amp;rs=SHRKVP&amp;)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
 
-总编/编辑：DM
+总编/编辑：飞虹
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**

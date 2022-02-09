@@ -2,34 +2,103 @@
 ---
 
 
-## 超百名澳洲人打完新冠第三针疫苗后染疫死亡
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1978456/)
+## 全世界人民，珍惜生命，远离中共
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1978474/)
 
-整理/编辑：小红帽
+[https://gtv.org/video/id=620264a9585ecc15d73ef97b](https://gtv.org/video/id=620264a9585ecc15d73ef97b)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/dfef.png)图片来源：雅典娜设计组(614)
+像人一样活着
+Vive como una persona
 
+你只要不像畜生一样活着
+Pero mientras tanto no vivas como una bestia
 
-根据《大纪元》2月9日报道， 根据澳洲各州的数据显示，超过一百名接种了第三针新冠疫苗的澳洲人染疫死亡。
+还有一个, 你想活下去
+Y hay otro, si quieres sobrevivir
 
-《澳洲人报》收到的新州明细表显示，约有六十名接种了新冠疫苗加强针的新州人染疫死亡。
+远离中共, 珍惜生命
+Aléjate del PCCh, aprecia la vida
 
-自2021年11月以来，维州卫生部门证实，在近千的染疫死亡病例中，3.3%的死亡者（共30人）接种了三剂新冠疫苗。昆州卫生部门透露，在240名染疫死亡者中，7%的死亡者（共16人）接种了三剂新冠疫苗。
+远离中共, 不仅是演艺圈
+Aléjate del PCCh no es solamente del mundo de espectáculo
 
-《澳洲人报》报道称，卫生部长格亨特（Greg Hunt）在被要求澄清，全澳洲有多少老年护理中心的死亡者，曾接种过三剂新冠疫苗的事情上备受压力。亨特声称，各州收集的的数据“还没有提供给联邦”。
+不仅是企业家也不仅是搞媒的
+No sólo de los empresarios, medios de comunicación
 
-澳洲医疗总监凯利（Paul Kelly）表示，澳洲政府将成立一个特别工作组，以便更好地从各州收集有关此类死亡的数据。
+不管你多大岁数
+No importa a qué edad tengas
 
-新闻链接： [逾百名接种了第三针疫苗的澳洲人染疫死亡](https://www.epochtimes.com/gb/22/2/9/n13564460.htm)
+我就今天奉劝所有的同胞
+Hoy sugiero a todos los compatriotas
 
-发布：tianzhihuan
+包括全世界的人
+Incluyendo a todas las personas del mundo
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+有点良知的
+Que tengan un poco de conciencia
+
+看一看所有和中国共产党打交道的下场
+Vean el destino de todo aquello que han tenido tratos con el PCCh
+
+马云, 赵本山, 宋祖英
+Jack Ma, Zhao Benshan, Song Zuying
+
+香港, 台湾的歌星
+Los cantantes de Hong Kong y Taiwán
+
+以及美国的政要, 欧洲的政要
+Dignatarios estadounidenses y europeos
+
+欧洲的主席, 包括这梵蒂冈
+Presidentes de Europa, incluyendo al Vaticano
+
+梵蒂冈给七哥送这啥意思知道吗
+Sabes por qué el Vaticano me regaló esto
+
+梵蒂冈教皇给你送这个袖扣的时候
+Cuando el Papa del Vaticano te regala estos gemelos
+
+就是把你当成大主教级的
+Significa que te trata como un arzobispo
+
+和他平级的才能给你
+Porque estás al mismo nivel que él
+
+你以为啥呢
+Qué crees tu
+
+最后告诉全世界人们
+Finalmente, les digo a todas las personas del mundo
+
+聪明的人民, 智慧的人民
+Gente inteligente y sabia
+
+永远要记住
+Recuerden siempre
+
+珍惜生命, 远离中共
+Aprecien la vida y aléjanse del PCCh
+
+* * *
+
+日期：02/07/2022
+原视频标题：全世界人民，珍惜生命，远离中共
+Personas de todo el mundo, aprecien la vida, aléjense del PCCh
+
+原视频日期：02/05/2022
+原视频网址：**[https://gettr.com/post/psk3ic0daa](https://gettr.com/post/psk3ic0daa)**
+任务编号：KC447（3674）
+视频时间段：0:00-01:09
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场-小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

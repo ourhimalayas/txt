@@ -2,34 +2,30 @@
 ---
 
 
-## 2022年2月9日新闻集
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1978287/)
+## 意大利决定解除户外口罩义务
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1978306/)
 
-撰稿人：文远Bruce
-![](https://assets.gnews.org/wp-content/uploads/2022/02/文远.png)图片来源：作者
-**1.2.彭帅露面、宣布退役，以一句“宇宙无限大，地球就是一粒沙，人类很渺小，不要有心理负担，我们想干啥就干啥”PUA骗取彭帅处子之身的共匪张高丽至今逍遥法外！**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/文远2.png)图片来源：网络![](https://assets.gnews.org/wp-content/uploads/2022/02/文远3.png)图片来源：网络
-**3. 男子冰球队25人，归化球员达到15名，女队23人，归化球员为13名。归化人数28人超一半。归化球员28人中22人有中共国基因，这些人是不是共匪另一个“千人计划”的后代？**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/文远4.png)图片来源：网络
-**4.欧洲40%天然气来自俄罗斯**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/文远5.png)图片来源：网络
-**5.各国整个社会债务规模占GDP比例**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/文远6.png)图片来源：网络
-**6.通货膨胀下，工人要求提高工资**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/文远7.png)图片来源：网络
-**7.供应链受阻，世界11%的货物仍旧卡在路上、港口**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/文远8.png)
-**8.中共国2022年1月末外汇储备3.2216万亿美元**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/文远9.png)图片来源：网络
-**9.参与加拿大卡车抗疫的司机90%都打过双针疫苗**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/文远10.png)图片来源：网络
-**10.特斯拉充电桩在2021年增长35%**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/文远11.png)图片来源：网络
-编辑：MG4
+撰稿：东京樱花团/立正道
 
-【[澳喜文章1](https://gnews.org/zh-hans/author/aujenny/)】
-【[澳喜文章2](https://gnews.org/zh-hans/author/himalaya-australia/)】
-![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/意大利决定解除户外口罩义务.png)
+
+日本“东京新闻”9日消息，意大利政府作为应对新冠疫情的措施，决定自11日起解除户外佩戴口罩的义务。
+
+在国内，曾经有一天新感染人数超过22万人，但最近已经降到每日10万左右，可以认为呈现下降趋势。
+
+在欧洲，由于 Omicron 毒株具有相对较低的恶化风险的特性以及疫苗接种的扩大，许多国家正在放松管制。 在意大利，随着 Omicron 菌株的扩大，去年 12 月重新导入了户外使用口罩的义务。
+
+关于户外强制佩戴口罩，欧洲各国都在陆续取消，法国2日己结束。 西班牙也将于10日取消。 英国和其他国家已经取消了许多规定。
+
+信息来源：
+
+[イタリア、屋外マスク義務解除へ　欧州で緩和相次ぐ、既に仏は終了](https://www.tokyo-np.co.jp/article/159146?rct=world)
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

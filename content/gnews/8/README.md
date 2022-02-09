@@ -2,48 +2,24 @@
 ---
 
 
-## 中共继续蓝金黄英国大学 开发或偷盗高科技武器
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1978343/)
+## 河野为让日本国民尽快接种第三剂疫苗急到牙根发痒
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1978432/)
 
-作者：纽约香草山教育部 – 子兵
+撰稿：待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/画像1-14.png)（图片源自本文链接）
+2月9日时事通信社消息：自民党公共关系部部长河野太郎在中共病毒(新冠病毒)疫苗第三剂问题上给政府施加压力。
 
+河野曾在菅义伟内阁中负责疫苗工作，以通过自己的努力加快了日本国民中共病毒(新冠病毒)疫苗的第一剂和第二剂接种为荣，看到岸田内阁花这么长时间来提速疫苗接种工作，急得牙根发痒。背地里，河野正在积极干预政府的做法。他已建议首相官邸：和我同样的做法即可，尽快分发疫苗接种券吧。
 
+7日，当河野听说首相岸田文雄宣布了每天100万剂的目标时，他向官员们抱怨：为什么不是120万剂？有官员说：看到疫苗接种停滞不前，河野对疫苗暂时失去的兴趣又回来了。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+他的公开发言也变得更加明显。当首相府要求他与现任疫苗部长堀内诏子共同发表视频对话，宣传第三剂疫苗接种的有效性时，河野欣然同意。他还在推特上发帖指责称：推特上支持堀内为首的疫苗管理团队的人数明显减少。在任时，我在部长办公室的旁边，但现在我在隔壁大楼的地下室。
 
+有鉴于此，首相府正计划改善堀内团队的人员结构。然而，在河野任期内并非一切顺利。疫苗接种点出现了疫苗短缺，他也不得不匆忙暂停了公司的申请。首相办公室的一名高级官员说：当时菅义伟政府的混乱造成的创伤是疫苗接种工作仍未开展的原因之一。
 
+中共想通过向全世界播撒病毒，从而达到用疫苗控制世界的目的。各国政府中更是不乏推波助澜的政客。至今没看清中共本质，无能识破中共撒病毒、推疫苗的政客有之。同时，心知肚明的把疫苗当作政治投机机会的政客也大有人在。但是，害人必害己！用疫苗杀人，甚至竭尽全力推进疫苗杀人的政客们，早晚一定会受到全人类的审判！希望在被押上审判台的时候，他们也能如此勇敢激进！
 
-2月6日，据外媒透露，英国的大学大幅增加了与中共军队有关的机构的合作，并可能有助于中共发展高科技武器。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-5.jpg)
-根据一项调查，英国科学家与跟中共解放军有密切联系的中共机构之间的研究合作数量在六年内增加了两倍，超过了1000次。而自2015年以来，英国大学从这些机构接受了2.4亿英镑的资助。其中，电信巨头华为是主要资金来源，华为已向英国机构捐款4000万英镑，另外还有2000万英镑来自因向解放军提供战斗机、导弹和通讯技术而受到美国政府制裁的公司。
-
-该调查称，英国学者与有中共军方背景的大学合作，进行了多项敏感的“军民两用技术”的研究，包括无人机、可以发射导弹的电磁技术、航空航天材料、雷达、干扰装置和高效能电池等。
-
-参考信息：
-[UK Universities May Be Helping China Develop Hi-tech Weapons: Report](https://www.theepochtimes.com/uk-universities-may-be-helping-china-develop-hi-tech-weapons-report_4259918.html?utm_source=ref_share&amp;utm_campaign=copy&amp;rs=SHRKVP&amp;)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+信息来源：[河野氏、接種停滞歯がゆい？　　注文続々、官邸から恨み節も（時事通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/63388e5c0b74909f0f697629dbf7897fbe034d03)
 
  
 

@@ -2,54 +2,34 @@
 ---
 
 
-## 中共将联合国对新疆的人权调查混淆为交流合作
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1978342/)
+## 澳洲外长受压中共，称未考虑更改台湾代表处名称
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1978380/)
 
-作者：日本方舟农场 – Andy5
+整理/编辑：小红帽
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/dfef.png)图片来源：雅典娜设计组(614)
 
 
+根据《早报》2月9日报道，澳大利亚外长佩恩（Marise Payne）当日表示，在与北京外交关系紧张的情况下，澳大利亚目前没有考虑更改“驻澳大利亚台北经济文化办事处”的名称，并继续支持一中政策。
 
-2月8日，本台报道了联合国秘书长古特雷斯，希望中共允许联合国人权高级专员巴舍莱到新疆进行人权调查的期许。但在2月7日中共外交战狼赵立坚在回答外媒记者提问时，故意采用偷换概念的方式，将“调查”改成了“交流与合作”。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide10-4.jpg)
-混淆和偷换概念，是中共处理一些对自己不利的国际问题的惯用伎俩，早在2020年12月，中共就将世界卫生组织赴武汉的病毒溯源调查，强制改成了“合作研究”，并演出了世卫组织抵达武汉后，被组织观看抗疫成就、实地调查草草了事的荒唐闹剧。
+佩恩在首都堪培拉与来访的立陶宛外交部长兰茨伯格斯举行新闻发布会。
 
-分析人士指出，中共对新疆人权调查概念的混淆，已经表明其做贼心虚，即使本次联合国的调查请求得到允许，也会跟病毒溯源一样得不到明确的结果。
+佩恩在中共就台湾驻立陶宛代表处名称问题对立陶宛施压期间，发表言论称，目前澳洲没有与台湾就更改其驻澳大利亚代表处名称的可能性进行会谈。澳大利亚仍继续支持一个中（共）国的政策。
 
-参考信息：
-1. [外交部：中方欢迎联合国人权高专巴切莱特女士访华并参访新疆，已发出邀请](https://news.sina.com.cn/c/2022-02-07/doc-ikyamrmz9507534.shtml)
-2. [古特雷斯与习近平北京会晤 期待同中国加强合作](https://news.un.org/zh/story/2022/02/1098852)
-3. [习近平会见联合国秘书长古特雷斯](http://www.mod.gov.cn/topnews/2022-02/05/content_4904330.htm)
-4. [世卫专家拟明年1月赴武汉溯源调查 外交部：愿同世卫组织加强合作推进全球溯源工作](https://world.huanqiu.com/article/418dggxgIio)
-5. [外交部：世卫专家来华是全球溯源科研合作一部分](http://www.xinhuanet.com/world/2021-02/05/c_1127070341.htm)
-6. [20210201NNN報導CCP妨礙媒體報導WHO去華南海鮮市場](https://gtv.org/video/id=602917b8226e77590743e1cd)
-7. [20210203 東京電視台揭露武漢抗疫成就展是怎麼洗腦，又有哪些自相矛盾的地方的](https://gtv.org/video/id=602df8dd226e7759074520a0)
+兰茨伯格斯说，有必要提醒那些寻求利用贸易作为报复措施的国家，“志同道合的国家拥有有助于抵御胁迫的工具和法规”。立陶宛和澳大利亚同是中国大陆“经济胁迫”的目标，“但我们绝对不是最后一个”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+澳大利亚近日加入了美国及英国的阵线，支持欧盟将中共对立陶宛的经济施压诉诸世界贸易组织（WTO）。
 
-总编/编辑：DM
-校对/发稿：为真不破20
+新闻链接：[澳大利亚称未考虑更改台湾代表处名称](https://www.zaobao.com.sg/realtime/china/story20220209-1240896)
 
-**更多资讯，更多关注**
+发布： tianzhihuan
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

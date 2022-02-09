@@ -2,20 +2,33 @@
 ---
 
 
-## 共产党要活必须靠美国
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1978124/)
+## 美国最繁忙边境口岸被迫关闭！加拿大卡车车队抵美加边境
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1978187/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+撰稿：东京樱花团/asket
 
-*发布：陶子*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/美国最繁忙边境口岸被迫关闭！加拿大卡车车队抵美加边境.png)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
+加拿大卡车司机抗议疫苗强制令的车队到达了美加边境，底特律—温莎口岸，堵住了通往底特律的高速公路上的交通，北美最繁忙的边境口岸因此被迫关闭。
+
+据福克斯新闻网（Foxnews）报导，2月7日下午3点左右，在I-75公路和美加边境上的大使大桥Ambassador Bridge上开始堵车。根据福克斯2台（Fox 2 Detroit）的消息，底特律官员透露，大使桥在当天晚上8点左右关闭，并导致数千辆卡车滞留在底特律一侧的道路上。
+
+事发之后，相关机构的官员指示司机们使用温莎—底特律隧道（Windsor-Detroit Tunnel）或休伦港的蓝水大桥（Port Huron Blue Water Bridge）过境，而不是大使桥。
+
+一些商业界领袖就此表示，美国最繁忙的国际边境口岸被关闭，会造成商品供应链方面的问题。密歇根农业商业协会（Michigan Agri-Business Association）主席查克‧利普斯特鲁（Chuck Lippstreu）对《底特律新闻》（The Detroit News）表示：“供应链中的任何延误或中断都会带来问题，不仅是对农业，而且对本州经济都是如此。”
+
+另据温莎警察局透露消息，周二（2月8日）上午，大使大桥上通往美国方向的交通已经重新开放。
+
+信息来源：
+
+[加拿大卡车抗议车队抵美加边境 边境口岸关闭](https://www.epochtimes.com/gb/22/2/8/n13563993.htm)
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
 
  
 

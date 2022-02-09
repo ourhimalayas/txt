@@ -2,30 +2,43 @@
 ---
 
 
-## 欧盟半导体芯片法案出台 与中共切割成核心
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1978288/)
+## 澳大利亚要求俄罗斯从乌克兰边境撤军
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1978307/)
 
-撰稿：东京樱花团/asket
+#### **【雅典娜快讯】紧贴时代脉搏**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/欧盟半导体芯片法案出台-与中共切割成核心.png)[图片来源](https://www.cna.com.tw/news/firstnews/202109150413.aspx)
+**翻译/编辑：文泓**
 
-欧盟2月8日周二公布”欧洲半导体芯片法案”，拨款430亿欧元的公共和民间投资，以减少在这一战略领域对亚洲的依赖。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/8-7.png)图片来源：The Guardian
 
-全球芯片荒导致汽车业、手机业、电子类产品都在抢芯片，继美国提出”美国创新及竞争法”（U.S. Innovation and Competition Act）法案后，欧洲也加快提出相关法案，以应对欧洲从芯片设计到产能下滑，以及过度依赖亚洲制芯片等问题。
 
-欧盟委员会主席冯德莱恩表示，将透过投资、监管以及与战略合作伙伴合作，使欧洲成为芯片产业的领导者。在提到与哪些国家合作时，她点名伙伴国家包括美国或日本。
+当地时间2月9日，据《每日邮报》报道，本周末，澳大利亚外长**玛丽斯·佩恩即将与美国、印度和日本外长进行重要的四方会谈，****乌克兰和印太地区的紧张局势将成为讨论的主要议题。美国国务卿安东尼****·****布林肯将于周三晚上在会议前抵达****[墨尔本](https://www.dailymail.co.uk/news/melbourne/index.html)****。佩恩呼吁俄罗斯放松在乌克兰边境的军事存在。**
 
-欧盟负责内部市场业务的执行委员布勒东（Thierry Breton）近期则曾表示，”欧洲芯片法案”的重点在确保欧盟自主供应安全，而非创造产业冠军，**由于当前全球主要芯片供应商位于中国周遭地区，存在严重地缘政治风险**，**一旦发生事端将瘫痪欧洲大多数工厂运作。**而欧盟公开表示台湾在全球半导体制造领域地位非常重要，欧洲对台湾企业开放，也欢迎合作。
+玛丽斯·佩恩参议员表示，“当前乌克兰局势令人深感担忧，我敦促在该国的澳大利亚人尽快离开。我们也需要看到俄罗斯方面采取行动来缓和局势”，她告诉美国广播公司：“我们是乌克兰主权和领土完整以及欧洲和北约统一应对措施的坚定支持者，我们将继续与美国保持密切接触。”
 
-欧洲半导体芯片法案实质是与中共在科技和供应链上进行切割。
+据估计，目前约有1400名澳大利亚公民居住在乌克兰。外长表示，正在为居住在该国的澳大利亚人定期更新旅行建议。
 
-信息来源：
+“最终，这些澳大利亚人将做出自己的决定，其中许多人是双重（国籍）公民”，佩恩参议员说：“但我们鼓励他们遵守旅行建议，并在安全的情况下立即离开。”
 
-[欧盟公布半导体芯片法案 以减少对亚洲的依赖](https://www.rfi.fr/cn/%E4%B8%AD%E5%9C%8B/20220208-%E6%AD%90%E7%9B%9F%E5%85%AC%E5%B8%83%E5%8D%8A%E5%B0%8E%E9%AB%94%E8%8A%AF%E7%89%87%E6%B3%95%E6%A1%88-%E6%92%A5%E6%AC%BE430%E5%84%84%E6%AD%90%E5%85%83-%E4%BB%A5%E6%B8%9B%E5%B0%91%E5%B0%8D%E4%BA%9E%E6%B4%B2%E7%9A%84%E4%BE%9D%E8%B3%B4)
+此前，法国总统马克龙会见了俄罗斯总统普京。马克龙是自俄罗斯在乌克兰边境上集结军队以来第一位与普京总统会面的西方大国领导人。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+普京总统表示他不会使局势升级。与此同时，美国则警告称入侵迫在眉睫。
+
+佩恩参议员说，俄罗斯和中国元首之间紧密的“无限友谊”与澳大利亚及其四方合作伙伴并不一致。
+
+“我们确实每天都看到来自独裁国家对他国的胁迫，作为一个强大的自由民主国家，澳大利亚不准备容忍。”
+
+新闻链接：[Australia demands Russia remove troops from Ukraine border | Daily Mail Online](https://www.dailymail.co.uk/news/article-10491775/Australia-demands-Russia-remove-troops-Ukraine-border.html)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
