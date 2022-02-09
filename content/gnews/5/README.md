@@ -2,8 +2,8 @@
 ---
 
 
-## 战友将军说打台湾会将导弹打向北京
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1977096/)
+## 最大意义只有灭共
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1977140/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

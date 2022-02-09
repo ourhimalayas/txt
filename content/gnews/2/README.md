@@ -2,8 +2,8 @@
 ---
 
 
-## 器官移植是共产党的特权
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1977120/)
+## 新中国联邦今年的三个大惊喜
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1977165/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

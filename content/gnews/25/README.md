@@ -2,44 +2,30 @@
 ---
 
 
-## 特鲁多恶意坚持结束卡车司机的自由抗议活动
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1976514/)
+## 美国发言人称我们的注意力不会从中共国侵犯人权行为上移开
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1976548/)
 
-翻译：不要代表我Kari
-编辑/校对：Candy
+**编译：文舞两道**
+![ ](https://assets.gnews.org/wp-content/uploads/2022/02/B2196863-4351-4DED-94C3-F4E8B92925AB.jpeg)图片来源:https://www3.nhk.or.jp
+据2022年2月8日日本NHK消息，美国白宫发言人萨基在7日的新闻发布会上，就新疆和中国其他地区的人权状况批评中国政府，称一名维吾尔族运动员被选为北京奥运会开幕式的火炬手后，”转移对中国发生的侵犯人权行为的注意力是不可接受的”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/E0C92EA5-06C6-49C0-9A5E-57201CA75CF0.jpeg)
+在本月4日举行的北京奥运会开幕式上，一名维吾尔族女运动员与一名汉族男运动员一起成为火炬传递的最后跑者。因为新疆维吾尔自治区的人权受到侵犯，人们认为这是中共国政府希望显示民族融合以及对人权的尊重。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/土豆.png)图片来源：thepostmillennial.com
+在本届奥运会上，美国和其他国家宣布 “外交抵制”，不派政府官员参加。萨基说：”将注意力从中国部分地区的人权侵犯和种族灭绝行为上转移开是不可接受的。正是因为这些问题，我们没有派出外交代表团”他说，并重申了对中共国政府的批评。
 
+**原文链接：**
 
-**特鲁多说：“渥太华和全国人民应该得到他们的安全和尊重，应该恢复他们的正常生活。”**
+[米報道官「中国での人権侵害から注意そらすことは許されない」](https://www3.nhk.or.jp/news/html/20220208/k10013472591000.html?utm_int=news-international_contents_list-items_014)
 
-总理贾斯汀·特鲁多（Justin Trudeau）在远离聚光灯数日后公开露面，因为抗议者们坚持要求结束联邦政府强制疫苗，渥太华仍然出于僵局状态。
+**编辑：LILY**
 
-周一早些时候，新民主党领袖贾格米特·辛格（Jagmeet Singh）召集紧急会议，总理在这个紧急辩论中讲到：
+**发布：歪桑**
 
-“一小撮人正试图封锁我们的经济、我们的民主、和我们同胞的日常生活——这必须停止。渥太华人民不应该在他们自己的社区受到骚扰，不应该面对街角的有暴力特征的纳粹标志或联盟旗帜，或者仅仅因为他们佩戴国旗而受到侮辱和嘲笑。这不是加拿大或加拿大人，这不是加拿大人在过去两年里所诠释的那样。”
+20220208
 
-特鲁多说：“渥太华和全国各地的人民应该得到应有的安全和尊重，应该恢复他们正常的生活。”
-
-总理此前曾将抗议民众称为“边缘少数群体”，他说：“在前往渥太华途中的少数边缘群体所持的观点是不可接受的，并不代表加拿大人的观点。 每个人都知道遵循科学，并加强对彼此保护，是继续确保我们作为一个国家的自由、权利和价值观的最佳方式。”
-
-特鲁多此前还称那些反对当局疫苗强制令的人，是性别歧视者和种族主义者；称“作为领导人，作为一个国家，我们必须做出选择。我们是否继续容忍这些人？因为超过 80% 的人已经尽了他们的义务接种了疫苗。”
-
-布莱恩·利利（Brian Lilley)发推：“就此次会议外抗议活动的紧急辩论中，总理特鲁多根本没有试图平息局势。他和他的部长们在火上浇油，把所有抗议他的政府的和平示威者，都打成了种族主义者和纳粹。”
-
-\*备注：confederate flag在美国通常被称为联盟旗（The Confederate Flag），有时又被称作反叛旗（Rebel Flag）或迪克西旗（Dixie Flag）
-
-原文链接：[https://thepostmillennial.com/breaking-trudeau-doubles-down-on-division-in-response-to-truckers-freedom-protests](https://thepostmillennial.com/breaking-trudeau-doubles-down-on-division-in-response-to-truckers-freedom-protests)
-
-***发布：Candy***
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

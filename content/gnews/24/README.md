@@ -2,32 +2,35 @@
 ---
 
 
-## 普京与马克龙会谈表示愿努力与欧美达成一致
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1976546/)
+## 特鲁多称卡车司机抗议对“民主”构成威胁
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1976629/)
 
-**編譯：文明志**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/73720D22-9C4E-484B-87FB-6A41FB4C3B49.png)图片来源：https://news.yahoo.co.jp
-据時事通讯社莫斯科2月8日凌晨报道，俄罗斯普京总统7日就乌克兰问题与法国马克龙总统在莫斯科举行了会谈。
+**整理/编辑：Little Lamp**
 
-会谈结束后，双方共同举行了记者招待会。会上，普京表示，在乌克兰问题上，为了寻求与美欧达成妥协，普京“愿意做任何事”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-833.png)
 
-马克龙总统针对俄方关于安全保障的诉求，强调将具体协助予以构建。双方在会谈中为缓和紧张关系显然尽可能地展开了讨价还价。
+加拿大总理贾斯汀·特鲁多声称，继续在渥太华抗议 Covid-19 限制的卡车司机正试图“封锁”民主并用“暴力”图像骚扰当地人。
 
-普京在提及乌克兰问题上马克龙向俄方提出了建议之后，表示这极有可能作为今后“共同维护的安保措施的基础。”尽管双方均未透露马克龙提议的内容，但彼此就马克龙8日结束访问乌克兰之后将通过电话会议落实提议的具体内容达成了一致。
+周一，在加拿大下议院的一次演讲中——自 1 月 28 日以来一直被抗议者包围——特鲁多辩称，抗议 Covid-19 限制措施的示威者对公众和国家构成了危险的威胁，就在纽约市的一天之后。渥太华宣布进入紧急状态。
 
-**原文链接：**
+“这些个体正试图封锁我们的经济、我们的民主和我们同胞的日常生活。必须停止，”特鲁多宣称，并补充说，“渥太华人民不应该在自己的社区受到骚扰。”
 
-[仏ロ首脳、ウクライナ緊張緩和模索　「安全の保証」焦点](https://news.yahoo.co.jp/articles/37e0957f8eca907b0e92fc02c8623949bb79b3f2)
+特鲁多显然提到了在抗议中发现的涉及仇恨符号的孤立事件，包括新纳粹用具，他说渥太华人民“不应该面对在街角飞扬的纳粹党徽的固有暴力，或者一面邦联的旗帜，或者仅仅因为他们戴着面具而受到侮辱和嘲笑。”
 
-**编辑：LILY**
+总理透露，已部署 300 名加拿大皇家骑警协助渥太华警方打击抗议者，政府将“与相关的联邦和市政合作伙伴召开会议，以进一步加强我们的应对措施”。
 
-**发布：歪桑**
+渥太华警方也一直在努力制止抗议活动，向该市的卡车司机开出 100 多张罚单，吊销执照并没收燃料，同时还威胁要逮捕任何为抗议者提供“物质支持”的人。
 
-20220208
+文章来源：[Trudeau says trucker protest poses threat to ‘democracy’](https://www.rt.com/news/548609-trudeau-truckers-threat-democracy/)
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3-2.jpg)
+*发布:盘古相聚*
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

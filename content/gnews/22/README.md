@@ -2,28 +2,32 @@
 ---
 
 
-## 2022年新中国联邦的重点发展方向
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1976584/)
+## 加拿大反疫苗示威面临失控风险
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1976691/)
 
-加拿大温哥华杨帆农场**枫叶快讯**
+**整理：Eileen（围剿维尼熊）**
+**编辑：守望黎明**
 
-编辑撰稿：  硫酸羟氯喹64
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1_22x-100-1-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/加拿大.jpeg)
+
+图片来源：Toronto Star
 
 
-据2月6日GTV文贵大直播消息，【新中国联邦】今年的工作目标主要侧重在以下三个方面：
+根据《经济日报》2月8日报道，加拿大首都渥太华6日宣布进入紧急状态，因为反对强制接种疫苗的示威活动已经失控，甚至在其他国家发酵。在澳洲首都堪培拉也出现类似的抗议冲突。各国民众逐渐对防疫措施失去耐心。
 
-首先，竭尽全力阻止全球排华事件的发生。这是[新中国联邦]今年的首要任务。如果不能阻止西方排华浪潮的发生，那么灭共将毫无意义。因此，如何让所有真正的灭共者得到应有的喜币和躺平币就成为关键。
+渥太华市长华森声称，示威活动对市民安全及保障造成严重危险与威胁。数百辆卡车继续占领国会附近地区，没有迹象显示抗议者打算撤离。
 
-其次，集中力量把现在已开展的各项工作，特别是G系列投资项目做强做大，并逐渐扩大在全球的影响力。因此，今年将不会再创立任何新的项目
+这场名为“自由车队”（Freedom Convoy）的抗争行动，是针对加拿大与美国1月生效的法律，该法律规定往返两国边境的卡车司机须接种至少两针疫苗，抗争后来演变为加拿大全国反对防疫措施和反对总理杜鲁多政府的集会。
 
-此外，由于教育是立国之本，是中国人未来的希望，因此【新中国联邦】必须建立完善的教育体系。并将会通过提供喜币或喜美元，来鼓励和吸引各地教育工作者的加入。
+参考链接：[https://udn.com/news/story/121707/6082058?from=udn-catebreaknews\_ch2](https://udn.com/news/story/121707/6082058?from=udn-catebreaknews_ch2)
 
-有鉴于此，2022年【新中国联邦】无论是在国际还是在国内的影响力，都将会大幅度增强，喜联储的喜支付和喜币在全球的推广使用必将无人能挡。
+*发布：盘古相聚*
 
-原文链接： https://gettr.com/post/psu0mf2270
-
-校对编辑：硫酸羟氯喹64  发布：青青
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

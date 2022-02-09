@@ -2,8 +2,8 @@
 ---
 
 
-## 女性是共产党执政的工具
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1977105/)
+## 不明是非
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1977144/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

@@ -2,39 +2,30 @@
 ---
 
 
-## 北京冬季奥运会收视率暴跌至奥运历史最低点
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1976914/)
+## 拜登表示：如果俄罗斯入侵乌克兰，北溪 2 号管道将被制裁
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1977095/)
 
-***评论：因不可饶恕的恶行，中共已经被世界抛弃，世界各国在冬奥会上已经摆明态度。***
-**据《outkick》NICK GEDDES，2022年2月5日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/acrll-3fqe4.jpg)**图片来自原文的视频截图**
-2022年的北京冬奥会开局不顺，收视率跌至历史最低点。
+撰稿：小毛牛
 
-周四NBC的黄金时段报道平均只有725万观众收看。据Sports Media Watch报道，此前的低点是去年东京夏季奥运会最后一晚的850万观众收看。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/020701-1.jpg)周一，拜登在白宫与德国总理奥拉夫·舒尔茨举行的联合新闻发布会上发表讲话。Brendan Smialowski摄/法新社/盖蒂图片社
 
-正如OutKick的Clay Travis周五在Twitter上指出的那样，美国人只是选择不观看，因为在中共对穆斯林维吾尔人进行种族灭绝的情况下，奥运会还在北京继续进行着。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/fff.png)
-回想起来，周四的人数比观看2018年平昌冬奥会开幕之夜的1600万人下降了 55%的收视率。
+拜登和到访的德国总理奥拉夫·肖尔茨2月7日（周一）在联合新闻发布会上表示，如果外交斡旋失败而且俄罗斯再次入侵乌克兰，他们将对莫斯科实施制裁。
 
-值得注意的是，美国没有派任何外交代表参加奥运会，以抗议中共侵犯人权的行为。
+制裁包括美德双方共同努力阻止一条从俄罗斯到德国的价值数十亿美元的北溪 2 号天然气管道。尽管该管道目前尚未投入运营，但已成为连接俄乌紧张局势中各方角力的一个关键问题。
 
-“我们不会为奥运会的宣传做贡献。面对[中共]在新疆严重的侵犯人权和暴行，我们根本做不到外交或官方代表会像往常一样对待这介奥运会。”白宫新闻秘书Jen Psaki于12月6日表示。
+众所周知，俄罗斯是世界上最大的天然气生产国之一，而德国则是天然气的最大进口国之一。然而，显然事情并没有这么简单。切断北溪 2 号管道确实会损害俄罗斯的经济，但同时也将会对整个欧洲的经济增长产生负面影响。因为欧洲近 40% 的天然气来自于莫斯科的供应。
 
-令许多人惊讶的是，NBC 的广播并没有回避承认中共现在的问题。奥运会东道主迈克·蒂里科（Mike Tirico）开始了他的开场独白，向在家里观看的美国人传达了一条信息。
+熟知普京行事风格的人都清楚，作为对美德制裁的回应，克里姆林宫势必会将其能源储备武器化并削减对欧洲市场的供应，从而影响欧洲人的家庭供暖和工厂的运作。
 
-“与这些奥运会有关的一切和每个人都会面临问题。”蒂里科说。
+尽管俄罗斯占得先机，但是拜登仍然鉴定的表示：如果俄罗斯入侵乌克兰，这将是一个巨大的错误，我们将实施有史以来最严厉的制裁。
 
-**文章来源**:[https://www.outkick.com/olympics-ratings-plummet-to-all-time-low-on-opening-night/](https://www.outkick.com/olympics-ratings-plummet-to-all-time-low-on-opening-night/)
+上周，白宫已经授权将大约 3000 名美军部署到乌克兰附近，以应对目前的紧张局势。。
 
-翻译：洛杉矶盘古农场 – 轰炸机
-校对：洛杉矶盘古农场 – Mike Li
-评论：洛杉矶盘古农场 – 轰炸机
-编辑：洛杉矶盘古农场 – 柯镇恶
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+我们都知道，俄乌局势，只是俄罗斯配合中共演的一场戏而已，西方阵营也极有可能制造顺势配合演戏的假象而已，受害的只有欧洲的普通民众和乌克兰。但凡有骚乱的地方，必有中共的影子。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+新闻来源：[Biden says the Nord Stream 2 pipeline won’t move ahead if Russia invades Ukraine](https://www.npr.org/2022/02/07/1078953858/biden-says-the-nord-stream-2-pipeline-wont-move-ahead-if-russia-invades-ukraine?t=1644291860898&amp;t=1644364023722)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
 
  
 
