@@ -2,8 +2,8 @@
 ---
 
 
-## 加拿大卡车司机反疫苗运动背后的中共渗透警讯
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1980690/)
+## 世界级的高利贷公司
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1980706/)
 
 台灣寶島農場
 

@@ -15,95 +15,95 @@
 
 ---
 
-### [辉瑞和FDA未能进一步推迟发布COVID疫苗安全数据](/content/gnews/1/README.md)
+### [2/9/2022 文贵直播：UBS案历经了中共不惜一切代价的阻挠，今天终于在伦敦法院立上案了，意义重大啊](/content/gnews/1/README.md)
+ ` 秘密翻译组-北美组`
+
+### [辉瑞和FDA未能进一步推迟发布COVID疫苗安全数据](/content/gnews/2/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [英国加入欧盟-中共国关于立陶宛事件的世贸组织争端解决机制](/content/gnews/2/README.md)
+### [英国加入欧盟-中共国关于立陶宛事件的世贸组织争端解决机制](/content/gnews/3/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共国科学家逃脱并透露了关于高超音速导弹的秘密信息](/content/gnews/3/README.md)
+### [中共国科学家逃脱并透露了关于高超音速导弹的秘密信息](/content/gnews/4/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [NBC体育分析师因未知原因提前从奥运会归国](/content/gnews/4/README.md)
+### [NBC体育分析师因未知原因提前从奥运会归国](/content/gnews/5/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [喜剧演员希瑟·麦克唐纳在演出期间倒地后颅骨骨折](/content/gnews/5/README.md)
+### [喜剧演员希瑟·麦克唐纳在演出期间倒地后颅骨骨折](/content/gnews/6/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [欧盟议员：亲爱的加拿大人，请不要放弃，你们走在正确的道路上](/content/gnews/6/README.md)
+### [欧盟议员：亲爱的加拿大人，请不要放弃，你们走在正确的道路上](/content/gnews/7/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [2月9日文贵大直播（图片）](/content/gnews/7/README.md)
+### [2月9日文贵大直播（图片）](/content/gnews/8/README.md)
  ` 波士顿五月花农场`
 
-### [国王费利佩六世Covid检测呈阳性，将被隔离7天](/content/gnews/8/README.md)
+### [国王费利佩六世Covid检测呈阳性，将被隔离7天](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [谷爱凌替中共夺冠体现中共对美国的极度渗透](/content/gnews/9/README.md)
+### [谷爱凌替中共夺冠体现中共对美国的极度渗透](/content/gnews/10/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [有史以来毒性最强的5种疫苗（1/2）](/content/gnews/10/README.md)
+### [有史以来毒性最强的5种疫苗（1/2）](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共国大城市爆发抗议活动，反抗当局执行清零政策](/content/gnews/11/README.md)
+### [中共国大城市爆发抗议活动，反抗当局执行清零政策](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [冬奥会运动员抨击COVID隔离酒店条件恶劣](/content/gnews/12/README.md)
+### [冬奥会运动员抨击COVID隔离酒店条件恶劣](/content/gnews/13/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [七哥说“普京是唯一一个没有选择炭中取火，炭中取火”（2022-02-06摘录）](/content/gnews/13/README.md)
+### [七哥说“普京是唯一一个没有选择炭中取火，炭中取火”（2022-02-06摘录）](/content/gnews/14/README.md)
  ` MG FARM`
 
-### [文贵爆料 2.9：USB官司正式立案，沼泽地黑金大门洞开](/content/gnews/14/README.md)
+### [文贵爆料 2.9：USB官司正式立案，沼泽地黑金大门洞开](/content/gnews/15/README.md)
  ` 秘密翻译组-原创组`
 
-### [七哥谈中俄贸易清单（2022-02-06摘录）](/content/gnews/15/README.md)
+### [七哥谈中俄贸易清单（2022-02-06摘录）](/content/gnews/16/README.md)
  ` MG FARM`
 
-### [NFSC新闻、G|TV新闻访谈简报|2022年2月9日早](/content/gnews/16/README.md)
+### [NFSC新闻、G|TV新闻访谈简报|2022年2月9日早](/content/gnews/17/README.md)
  ` 纽约香草山MOS01`
 
-### [七哥谈中共不结盟战略（2022-02-06摘录）](/content/gnews/17/README.md)
+### [七哥谈中共不结盟战略（2022-02-06摘录）](/content/gnews/18/README.md)
  ` MG FARM`
 
-### [七哥谈“这个社会没有正义”（2022-02-06摘录）](/content/gnews/18/README.md)
+### [七哥谈“这个社会没有正义”（2022-02-06摘录）](/content/gnews/19/README.md)
  ` MG FARM`
 
-### [七哥说“中国人的思想彻底地被淹没、被阉奸”（2022-02-06摘录）](/content/gnews/19/README.md)
+### [七哥说“中国人的思想彻底地被淹没、被阉奸”（2022-02-06摘录）](/content/gnews/20/README.md)
  ` MG FARM`
 
-### [瑞银在躲避中国亿万富翁的 5 亿美元诉讼中落败](/content/gnews/20/README.md)
+### [瑞银在躲避中国亿万富翁的 5 亿美元诉讼中落败](/content/gnews/21/README.md)
  ` MG FARM`
 
-### [中国人噩梦的开始，国人奴性的根源 —《驭民五术》](/content/gnews/21/README.md)
+### [中国人噩梦的开始，国人奴性的根源 —《驭民五术》](/content/gnews/22/README.md)
  ` NFSC News`
 
-### [加拿大萨省将正式结束疫苗护照，2月14日起生效！](/content/gnews/22/README.md)
+### [加拿大萨省将正式结束疫苗护照，2月14日起生效！](/content/gnews/23/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [多数媒体对自由车队的报道是歪曲失实的](/content/gnews/23/README.md)
+### [多数媒体对自由车队的报道是歪曲失实的](/content/gnews/24/README.md)
  ` 温哥华扬帆农场`
 
-### [持续的加拿大自由卡车运动正在逐渐帮助全球民众的觉醒](/content/gnews/24/README.md)
+### [持续的加拿大自由卡车运动正在逐渐帮助全球民众的觉醒](/content/gnews/25/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [沼泽地，世界游戏的定义者](/content/gnews/25/README.md)
+### [沼泽地，世界游戏的定义者](/content/gnews/26/README.md)
  ` G-NEWS TAIWAN`
 
-### [世界级的高利贷公司](/content/gnews/26/README.md)
+### [世界级的高利贷公司](/content/gnews/27/README.md)
  ` G-NEWS TAIWAN`
 
-### [加拿大卡车司机反疫苗运动背后的中共渗透警讯](/content/gnews/27/README.md)
+### [加拿大卡车司机反疫苗运动背后的中共渗透警讯](/content/gnews/28/README.md)
  ` G-NEWS TAIWAN`
 
-### [冬奥开幕是一场老鼠和狮子的游戏](/content/gnews/28/README.md)
+### [冬奥开幕是一场老鼠和狮子的游戏](/content/gnews/29/README.md)
  ` G-NEWS TAIWAN`
 
-### [谈古论今 | 新冠病毒生物战中我们应取的政治态度](/content/gnews/29/README.md)
+### [谈古论今 | 新冠病毒生物战中我们应取的政治态度](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [新中国联邦的三件大事](/content/gnews/30/README.md)
- ` G-NEWS TAIWAN`
 
 ### [樱花深度报道│冬奥会参与者警告，在中国噩梦般的间谍装置无处不在，摄像头检测情绪和电话数据被盗（下）](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
