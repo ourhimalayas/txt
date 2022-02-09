@@ -2,45 +2,44 @@
 ---
 
 
-## 贾斯汀特鲁多说：卡车司机车队抗议“必须停止”
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1976856/)
+## 斯坦福大学的医生列出了福奇镇压异议的“大纲”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1976935/)
 
-作者：The Canadian Press
-翻译：KK
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-84.png)
-总理贾斯汀·杜鲁多说，正在渥太华进行的反强制疫苗抗议活动”试图封锁我们的经济、我们的民主和我们国民的日常生活”。
+**评论：***福奇与其团体推动疫苗、冠状病毒的项目与手法被不断的揭露，很多人会站出来与他们战斗，夺回自由。*
 
-他说，”抗议活动必须尽快停止。”
+据《dailycaller.com》，BRIANNA LYMAN，2022年2月3日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-841-e1644361039362.png)图片：(Photo by Shawn Thew-Pool/Getty Images)
+周三，斯坦福大学的一名医生列出了他所说的安东尼·福奇博士用于让任何在中共病毒方面有不同意见的人保持沉默的“大纲”。
 
-杜鲁多周一晚上出现在众议院，参加了关于渥太华抗议活动的紧急辩论，该抗议活动现在已经进入第二周。
+**斯坦福医学院教授杰伊·巴塔查里亚博士(Dr. Jay Bhattacharya)说，福奇(Fauci)和弗朗西斯·柯林斯博士(Dr. Francis Collins)试图通过给科学家贴上“不同意‘边缘’的人”的标签，来“制造关于中共病毒政策的科学共识的错误印象”。**
 
-公共安全部长Marco Mendicino在众议院说，政府已经批准了加拿大皇家骑警的请求，为抗议活动提供额外的安全保证资源。
+“[他们] 部署大型科技错误信息群体‘标签’来压制反对的想法。”巴塔查里亚把列表的一部分发布在推特上。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-842.png)
+**“[他们] 部署新闻宣传员和科学家盟友来抹黑和推翻对手”。他们“用大笔资金奖励盟友”。（相关：新披露的电子邮件显示，福奇被警告在 2020 年 1 月可能产生中共病毒的功能增益项目）**
 
-周一早些时候，渥太华市议会投票表决，正式请求联邦政府介入议会辖区内的公共安全责任。
+在《新闻周刊》最近的一篇专栏文章中，巴塔查里亚进一步详细解释了“大纲”，并指出在 2020 年 10 月《大巴灵顿宣言》“批评福奇的封锁策略”期间，柯林斯——一位“缺乏公共卫生经验的遗传学家”——给福奇写了一封电子邮件,建议“取消”该声明，并将其哈佛、牛津和斯坦福的作者描述为“边缘流行病学家”。
 
-渥太华市长Jim Watson在给杜鲁多和安大略省省长Doug Ford的信中说，为了”平息叛乱”，除了目前的2100名警察和文职人员之外，该市还需要1800名警察支援。
+美国经济研究所通过《信息自由法案》的要求获得的电子邮件副本显示，柯林斯告诉福奇，该声明“似乎受到了很多关注，甚至是在斯坦福的诺贝尔奖获得者迈克(Mike)的共同署名者-莱维特(Leavitt)。”
 
-据估计，中心区的示威活动每天仅警察一项就花费了180万至220万元，Watson说渥太华正在统计与抗议活动有关的所有额外费用，并将在抗议活动结束后，向上级政府寻求赔偿。
+柯林斯写道：“需要对有不同声音的场所进行快速且具有破坏性的公开性删除。我还没有在网上看到类似的东西，它正在进行中吗？”
 
-在给联邦和省政府写信的同时，安大略省的一名法官批准了一项为期10天的禁令，以防止抗议的卡车司机不停地按喇叭，给居民们生活造成伤害。
+巴塔查里亚还在专栏文章中批评福奇最近声称他收到了死亡威胁。他认为，虽然科学家必须应对威胁是“可悲的”，但福奇和柯林斯“有组织地‘拿下’了”其他科学家，“他们错误地将集中保护视为一种任其发展的战略”。据称这导致了对《大巴灵顿宣言》的几位作者受到死亡威胁。
 
-安大略省高等法院法官Hugh McLean说，他的命令是临时性的，因为他需要听取更多的证据。但他的确听到了很多抗议，尤其是抗议者在继续瘫痪议会山时，扰乱了周围的居民，所以做出了这一裁决。
+原文连接：[https://dailycaller.com/2022/02/03/jay-bhattacharya-stanford-anthony-fauci-francis-collins-coronavirus-playbook-silencing-dissent/](https://dailycaller.com/2022/02/03/jay-bhattacharya-stanford-anthony-fauci-francis-collins-coronavirus-playbook-silencing-dissent/)
 
-来源：https://globalnews.ca/news/8602587/trucker-convoy-protest-stop-justin-trudeau/
+翻译：洛杉矶盘古农场- 轰炸机
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+校对：洛杉矶盘古农场- Freeearth
 
-**关注我们**
+评论：洛杉矶盘古农场-轰炸机
 
-Discord 账号
+编辑：洛杉矶盘古农场- 柯镇恶
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-Gettr 账号
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

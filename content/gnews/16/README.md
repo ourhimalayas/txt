@@ -2,23 +2,39 @@
 ---
 
 
-## 郭文贵精品视频-北京冬奥会普京乘兴而来 愤怒而归
-` cindy` [轉載自GNews](https://gnews.org/zh-hans/1976701/)
+## 安大略省财政监督机构预测预算赤字会减少
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1976870/)
 
-撰稿：澳喜cindy
+作者： The Canadian Press
+翻译：KK
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-130.jpg)
+安省财政监管机构预测，由于收入增长强劲，与安省政府预算中预测相比，未来几年安省的预算赤字会大幅减少。
 
-2022年北京冬奥会普京作为习近平心目中最重要的撑场子的人，在参加会议之前已与中方达成了共22项重要的天然气项目的贸易合同及俄罗斯防止美国对其进行经济制裁而部分使用人民币等重要合同。
+据报道，安省财务问责办公室最新发表的报告显示，预计到2023-24财政年末，安省的赤字会从本财政年度的160亿元大幅降低到28亿元。
 
-俄方说，我用了你的人民币，如果有一天人民币消失了怎么办？这个假设不是假想而是中共确实将面临的主要问题。那么“黄金本位下的最后保底的价值”的问题至关重要，也是中俄双方争论的焦点。俄方说，你的人民币变成纸没事儿，你得给我黄金。中共国不干。普京说，我来之前你干，我来了你就不干了？
+相比之下，省府预测的同期预算赤字为114亿元。
 
-郭先生精通金融又非常了解善于假、骗、偷恶习的中共，所以直击此次习普的重要交易合同-人民币在俄罗斯使用的关键环节上。郭先生通过国内战友的情报事先得知中共在此关键环节中的欺骗伎俩因此提前告诉了普京事情的真相。普京当时拿到其中两张纸说：“如果这里边儿有任何一句话有人跟我提起，我会转身就走”。当然事情的发生就如普京被告知的一样发生了。
+监管机构报告还预测，到2023-24财政年度，安省收入会比省府计划中的总金额高出76亿元。
 
-“新中国联邦人这次可以这么说，主导了整个冬奥会的开幕式。我们很成功地让这些国家的运动员和这些元首们看清了中共、看清了冬奥会。让他们一生不会再参加共产党的任何所谓的国际仪式。
+该报告对截至2024财政年度的支出预测与安省政府的支出预测相近，报告强调了省府计划中的资金短缺将可以利用“大量未分配资金”来弥补。
 
-*编辑：cindy*
+财务问责办公室的报告是在安省政府选举年预算之前发布的，该预算预计将在下个月底之前发布。
 
-【[澳喜文章1](https://gnews.org/zh-hans/author/aujenny/)】
-【[澳喜文章2](https://gnews.org/zh-hans/author/himalaya-australia/)】
+来源：https://www.cp24.com/news/ontario-fiscal-watchdog-projects-smaller-budget-deficits-than-government-1.5772336
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

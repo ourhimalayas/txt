@@ -2,27 +2,34 @@
 ---
 
 
-## 今日盖特大V推荐 — Marjorie Taylor Greene（玛乔丽·泰勒·格林）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1976826/)
+## 习近平通过支持俄罗斯战略 &#8220;将自己的国家置于危险之中&#8221;：&#8221;将承担责任
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/1976930/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/aj8jz-dzqer.jpg)
-**盖特链接：**[https://gettr.com/user/mtg4america](https://gettr.com/user/mtg4america)
+翻译整理：思澈
 
-**玛乔丽·泰勒·格林自述：**
+一位前中情局局长警告说，如果中国在乌克兰问题上与俄罗斯结盟，习近平将 “把自己的国家置于危险之中”。
 
-国会女议员 (R-GA)、基督徒、妻子、妈妈、小企业主、自豪的美国人， 100%支撑生命、支持枪支支持特朗普。 美国优先！ 拯救美国。 停止共产主义！
-![](https://assets.gnews.org/wp-content/uploads/2022/02/fgh.jpg)**图片来源：网络**
-**玛乔丽·泰勒·格林简介：**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/E8AA49D6-01EE-47DF-A1B7-779F9F4AE96A.jpeg)
 
-马乔丽·泰勒·格林（英语：Marjorie Taylor Greene，1974年5月21日－）是美国政客、商人，被有些人认为是阴谋论者，是佐治亚州第十四国会选区的现任美国众议员。格林的政治立场被认为是极右翼，她曾在Facebook视频中表达了对极右翼阴谋论匿名者Q的支持，但后来试图与阴谋论远离。
+前中情局局长莱昂-帕内塔对有关俄罗斯总统弗拉基米尔-普京在克里姆林宫与西方就乌克兰问题的争执中寻求中国领导人习近平支持的报道作出了回应。克里姆林宫在乌克兰与俄罗斯边境集结了数以万计的军队，引发了人们对入侵的担忧。潘塞塔先生警告说，如果中国被认为支持俄罗斯的任何侵略性行动，习近平 “将承担责任”。
 
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 —彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+这位前中情局局长接受CNN采访时说：”俄罗斯将试图获得中国另一个独裁者，习主席的支持，”这位前中央情报局局长补充说。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+“我想坦率地说，习主席此时把他自己的国家置于危险之中。习近平将对正在发生的事情承担部分责任。”
+
+来源：[https://www.express.co.uk/news/world/1562910/Xi-Jinping-latest-China-news-Vladimir-Putin-Russia-Ukraine-invasion-news-vn](https://www.express.co.uk/news/world/1562910/Xi-Jinping-latest-China-news-Vladimir-Putin-Russia-Ukraine-invasion-news-vn)
+
+*发布：思澈*
+
+
+
+
+
+
+
+
+
+
 
  
 
