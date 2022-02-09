@@ -2,8 +2,8 @@
 ---
 
 
-## 中国社会的悲哀对比西方的文明
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1977136/)
+## 七哥谈三个锦囊
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1977178/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
