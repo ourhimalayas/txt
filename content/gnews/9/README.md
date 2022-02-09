@@ -2,23 +2,22 @@
 ---
 
 
-## 谈国内情况（六）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1977507/)
+## 魁北克自由党国会议员抨击特鲁多疫苗政策
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1977529/)
 
-整理：雅典娜速记组
-编辑：皮特
-![](https://assets.gnews.org/wp-content/uploads/2022/02/谈国内情况六--scaled.jpg)
-直播时间：2022.01.26
+采编：UCool优酷                   翻译编辑：文所未闻
+![](https://assets.gnews.org/wp-content/uploads/2022/02/01-image.png)图片来源：wionews
+据加拿大《CTV新闻》2月8日报道，当天在国会山举行的新闻发布会上，魁北克省的自由党议员乔尔不仅抨击了总理特鲁多的疫苗政策，同时也反对当局对卡车司机车队抗议活动的诬蔑和打压。
 
-香槟我这人喝不了香槟，喝两杯香槟就有点晕，我的完了一通那个胡喷，说了那什么唱歌演电影，那英这帮孙子的事儿，不是胡说八道，这把的事情打他们是群奸群宿是真的啊，嗑药啊那不是假的啊。我就是有点高兴对吧，这就是今天我完了以后我一定得喝两杯我这个，来找平衡点的这个红葡萄酒，咱要不小叶老说我有买那个100多块钱欧元的红酒，那么贵买它干嘛？有125的你不买，你非买130的，你那125的比那130的好喝，有时候在家里我挺难的，我们考验也买瓶红酒，贵5块钱也得说说我啊，你看这还有，这你不买了125的，比这130的还好喝，你非得那个我说5块钱就多，我说我常常是吧，到底对比对比。
+报道称，该议员已收到了无数对疫苗政策担忧和不满的民意，显示公众在身心俱损同时，家庭也因此变得分裂。并认为特鲁多政府未能向加拿大人解释各项疫苗措施的合理性。同时，已明显政治化的防疫政策必将导致当局在执政过程中的信任危机。
 
-发布：*皮特*
+据悉，自由车队的抗议活动在首都渥太华已进入第12天。而和平集结方式是加拿大宪章赋予国民表达民意的基本权利。但特鲁多却始终罔顾人民的呼声，并在背弃自由民主的道路上越走越远。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+校对编辑：硫酸羟氯喹64
+
+发稿：苦尽甜来 (文來）
+
+原文链接： [https://www.ctvnews.ca/politics/liberal-mp-decries-politicization-of-pandemic-questions-federal-policies-1.5772722](https://www.ctvnews.ca/politics/liberal-mp-decries-politicization-of-pandemic-questions-federal-policies-1.5772722)
 
  
 
