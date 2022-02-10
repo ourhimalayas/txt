@@ -111,68 +111,68 @@
 ### [UBS案件的立案 就是打开中共藏宝图的大门](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [保守党议员提出加拿大首个关于加密货币的法案以促进该行业发展](/content/gnews/33/README.md)
- ` 温哥华扬帆农场`
-
-### [NFSC新闻、G|TV新闻访谈简报|2022年2月10日早](/content/gnews/34/README.md)
+### [NFSC新闻、G|TV新闻访谈简报|2022年2月10日早](/content/gnews/33/README.md)
  ` 纽约香草山MOS01`
 
-### [美国通胀率飙升至 7.5% 的 40 年新高](/content/gnews/35/README.md)
+### [美国通胀率飙升至 7.5% 的 40 年新高](/content/gnews/34/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [梅尔曼：美国政策制定者必须立即关注的问题](/content/gnews/36/README.md)
+### [梅尔曼：美国政策制定者必须立即关注的问题](/content/gnews/35/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [樱花头条┃美提最严厉制裁案 锁定中共人大官员及家属](/content/gnews/37/README.md)
+### [樱花头条┃美提最严厉制裁案 锁定中共人大官员及家属](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [众议院传唤受福奇影响的科学家参加中共病毒起源听证会](/content/gnews/38/README.md)
+### [众议院传唤受福奇影响的科学家参加中共病毒起源听证会](/content/gnews/37/README.md)
  ` 波士顿五月花农场`
 
-### [中日财经爆|日本应美国欧盟请求 决定向欧洲援助天然气](/content/gnews/39/README.md)
+### [中日财经爆|日本应美国欧盟请求 决定向欧洲援助天然气](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [国外专家：北京冬奥人工降雪环境污染严重，运动员易事故受伤！](/content/gnews/40/README.md)
+### [国外专家：北京冬奥人工降雪环境污染严重，运动员易事故受伤！](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [华人关注加拿大卡车司机为自由挺身而出](/content/gnews/41/README.md)
+### [华人关注加拿大卡车司机为自由挺身而出](/content/gnews/40/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [台湾疫情｜VAERS数据显示 新冠疫苗不良事件发生率高出流感疫苗264倍](/content/gnews/42/README.md)
+### [台湾疫情｜VAERS数据显示 新冠疫苗不良事件发生率高出流感疫苗264倍](/content/gnews/41/README.md)
  ` 關注組`
 
-### [樱花头条┃众议院保守派提出对数千名中共官员的制裁提案](/content/gnews/43/README.md)
+### [樱花头条┃众议院保守派提出对数千名中共官员的制裁提案](/content/gnews/42/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [瑞银在躲避中国亿万富翁的5亿美元诉讼中落败](/content/gnews/44/README.md)
+### [瑞银在躲避中国亿万富翁的5亿美元诉讼中落败](/content/gnews/43/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [北约称俄罗斯袭击的预警时间正在缩短](/content/gnews/45/README.md)
+### [北约称俄罗斯袭击的预警时间正在缩短](/content/gnews/44/README.md)
  ` Shuizhuyu`
 
-### [大直播后记：加拿大和犹太人需要觉醒](/content/gnews/46/README.md)
+### [大直播后记：加拿大和犹太人需要觉醒](/content/gnews/45/README.md)
  ` 雅典娜GNotes`
 
-### [台湾前线｜台湾离岛领空 疑遭中共民用无人机入侵](/content/gnews/47/README.md)
+### [台湾前线｜台湾离岛领空 疑遭中共民用无人机入侵](/content/gnews/46/README.md)
  ` 關注組`
 
-### [战斗室：国防部爆料人提供的美军数据表明疫苗危害惊人](/content/gnews/48/README.md)
+### [战斗室：国防部爆料人提供的美军数据表明疫苗危害惊人](/content/gnews/47/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [乌克兰局势促英法两国采取行动](/content/gnews/49/README.md)
+### [乌克兰局势促英法两国采取行动](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [为增加奥运奖牌数量 北京疑悄悄改变国籍规则](/content/gnews/50/README.md)
+### [为增加奥运奖牌数量 北京疑悄悄改变国籍规则](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日媒：习近平两名部下权力更迭 中共二十大内斗加剧](/content/gnews/51/README.md)
+### [日媒：习近平两名部下权力更迭 中共二十大内斗加剧](/content/gnews/50/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [卧底美国的中共特工-单伟建](/content/gnews/52/README.md)
+### [卧底美国的中共特工-单伟建](/content/gnews/51/README.md)
  ` 秘密翻译组-原创组`
 
-### [徐州八孩母亲事件再看中共的邪恶本性](/content/gnews/53/README.md)
+### [徐州八孩母亲事件再看中共的邪恶本性](/content/gnews/52/README.md)
  ` 秘密翻译组-原创组`
+
+### [日本要求返日冬奥会选手接受手机安全检查](/content/gnews/53/README.md)
+ ` NFSC News`
 
 ### [美前国务卿彭佩奥称：中共没有权利享有奥运荣耀](/content/gnews/54/README.md)
  ` NFSC News`
