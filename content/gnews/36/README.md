@@ -2,34 +2,25 @@
 ---
 
 
-## 香港单日中共病毒确诊数再创新高
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1985057/)
+## 秘翻在线：ASML发文正告：中共企业正在销售侵害其公司商业机密的产品
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1985183/)
 
-作者：纽约香草山-Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月5日，据相关媒体报道，香港政府当天通报了351例新增中共病毒确诊病例，这也是自中共病毒疫情在香港爆发以来，当地单日新增确诊病例最多的一天。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/7-11.jpg)
-数据显示，目前，香港的中共病毒疫苗第一针接种率已经高达79.8%，而完全接中共病毒种疫苗的民众占当地总人数的72%，另外，还有超过一百万的香港居民接种了第三剂加强针。
+**翻译：明澈**
 
-然而，香港针对中共病毒疫情的相关负责人指出，虽然政府试图加强对中共病毒疫情的管控，但当下仍是香港自疫情爆发以来最严峻，也是最关键的时期。此外，当地的疫情并不乐观，甚至本土病例可能会在近期内呈几何级数上升。
+**校对：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-10-231757.jpg)
+据《彭博社》2月9日消息，荷兰光刻设备龙头企业阿斯麦（ASML）周三发布报告指出，此前窃取商业机密的XTAL，其中共国母公司-东方晶源微电子（DJEL）开始销售侵犯其知识产权的商品。 ASML已要求特定客户避免与东方晶圆微电子业务往来，并发文告知中共当局，要求协助处理，未来将在适当的时机采取法律行动。
 
-而评论人士则对此表示，虽然香港政府此前强制当地民众接种中共病毒疫苗时曾大肆宣称其在防护病毒与阻止传播方面的有效性，但目前的感染数据表明，中共病毒疫苗对病毒的抑制作用微乎其微。
+报导指出，XTAL因窃取ASML商业机密，曾于2019年在美国法院被判赔偿ASML8.45亿美元，但后来XTAL竟然直接宣布破产，令人相当无语。而此次销售侵犯ASML知识产权商品事件，彭博曾发送电子邮件至XTAL网站的官方电子邮件信箱，但无法顺利传送；致电东方晶源微电子北京总部，电话也无人接听。报道还指出，美国政府曾于2019年向荷兰施压，禁止ASML向中共国出售EUV设备，目前ASML仍未获得出口许可证，故无法将其最先进的机器运往中共国。
 
-参考链接：[Hong Kong reports record daily high of 351 coronavirus cases](https://www.reuters.com/world/china/hong-kong-reports-record-daily-high-351-coronavirus-cases-2022-02-05/)
+据悉，ASML在全球晶片供应链中具举足轻重地位，在世界16个国家和地区提供服务，世界同类产品中有90％的市场占有率，而在14纳米以下则有100％的市场占有率，相当于垄断了市场，此外，ASML还提供制造更成熟半导体所需的深紫外光刻机。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+中共为打造芯片生态系统，减少对外国进口，曾在中共国推行「小巨人」计划。据MBA智库显示，该计划主要筛选创新能力强、市占率高、掌握关键核心技术、品质效益优良的企业，培育成与美国硅谷竞争的科技产业。获得「小巨人」认可的公司，通常会获得中共中央政府或省级政府的奖励，包括减税、优厚贷款和人才政策等。据悉，东方晶圆微电子正是中共「小巨人」计划支持的企业之一。
 
-总编: Jack Li文阳
-编辑：静言
-校正/发稿：Fei797
+中共企业常被指控窃取外国公司商业机密，尽管中共极力否认，但知识产权窃取长期以来一直是中共与美国等西方国家关系渐远的症结之一。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**新闻来源**：[https://www.bloomberg.com/news/articles/2022-02-09/asml-warns-chinese-rival-may-be-infringing-its-trade-secrets](https://www.bloomberg.com/news/articles/2022-02-09/asml-warns-chinese-rival-may-be-infringing-its-trade-secrets)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
