@@ -2,20 +2,20 @@
 ---
 
 
-## 中日财经爆┃三菱日联银行2016年以来首次被央行收取负利率
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1982340/)
+## 中日财经爆┃IMF：近100个国家正在研究CBDC央行数字货币
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1982411/)
 
 整理编辑：东京樱花团｜peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/pasted-image-0.png)[*图片来源*](https://i0.wp.com/miro.medium.com/max/2840/1*Xl0IKbPHEnCORg00oMCZ_A.png)
-路透社2月9日报道，日本政府大举发放现金导致存款激增，正令一些日本银行感到紧张，这使央行缓解负利率政策副作用的努力变得复杂。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/pasted-image-0-2.png)[*图片来源*](https://s.yimg.com/uu/api/res/1.2/QS8HnmKoeEgWTyovEJMNhA--~B/aD05MTg7dz0xMjk2O2FwcGlkPXl0YWNoeW9u/https://s.yimg.com/uu/api/res/1.2/SciY4xTuD5San9GXVVWibg--~B/aD05MTg7dz0xMjk2O2FwcGlkPXl0YWNoeW9u/https://media.zenfs.com/ko/bloomberg_chinese_traditional_757/e16336364d8fc7b8e4e3f9e46cbd5998)
+国际货币基金组织（IMF）总裁2月9日表示，IMF预测目前有近100个国家正在研究央行数字货币，经验表明不存在统一标准模式。
 
-日本银行业龙头三菱日联银行(MUFG Bank)在日本央行的存款上个月被收取负利率（0.1%利息），为2016年采用该政策以来的首次。这是存款稳步上升的一个意外后果，因为家庭和企业将政府发放的部分救助金存起来，以抵御中共病毒疫情的冲击。
+IMF在2月9日发布了一份研究报告，对包括中共国、瑞典和巴哈马在内的六个已经启动运行数字货币或处于后期测试阶段的国家进行了调研。
 
-截至1月，包括三菱日联在内的主要银行的存款余额达到446万亿日元(3.87万亿美元)，比2020年初疫情前的水平增加14%。由于政府计划再花费2万亿日元为育有子女的家庭发放现金，存款可能进一步增加。
+IMF总裁格奥尔基耶娃在关于这份报告的讲话中表示，全球首批使用央行数字货币(CBDC)的经验表明，不存在放之四海而皆准的模式。金融稳定性和隐私考虑对CBDC的设计至关重要，同时也需要在设计和政的发展之间取得平衡。
 
-三菱日联的情况凸显出，超大型银行多年来为避免支付利息所做的努力，可能已经达到极限。这些银行的做法包括将资金从日本央行的储备中转出来，用于投资与贷款，三菱日联银行由东京三菱银行与UFJ银行在2006年1月1日合并而成，隶属日本资产最庞大的金融集团——三菱UFJ金融集团旗下。以资产计，该行是日本最大的银行。
+格奥尔基耶娃补充说:“CBDC目前还处于早期阶段，我们不太清楚它们能走多远，能走多快。”
 
-消息来源：[**日本疫情救助大撒币 银行存款激增暴露央行政策缺陷**](https://cn.reuters.com/article/japan-cen-pandemic-aid-saving-0209-idCNKBS2KE0JD?il=0)
+消息来源：[**没有一种能够适用于所有国家的央行数字货币模式——IMF总裁**](https://cn.reuters.com/article/imf-director-cen-digital-currencies-0210-idCNKBS2KF05U?il=0)
 
 *校对：东京樱花团/東洋武士*
 *发布：东京樱花团/tdownc2p*

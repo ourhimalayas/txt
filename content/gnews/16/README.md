@@ -2,18 +2,24 @@
 ---
 
 
-## 中共依法决定逮捕蔡鄂生！
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1982387/)
+## Parler为川普夫人加密货币提供服务
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1982451/)
 
-撰稿：追着曙光跑
+#### 撰稿：彩虹       
 
-据中共新华社2月8日的报道，原中共国银行业监督管理委员会党委委员、副主席蔡鄂生涉嫌受贿、利用影响力受贿、滥用职权一案，由国家监察委员会调查终结，移送检察机关审查起诉。日前，最高人民检察院依法以涉嫌受贿罪、利用影响力受贿罪、滥用职权罪对蔡鄂生作出逮捕决定。该案正在进一步办理中。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-10-at-12.42.12.jpeg)图片来源：网络
-1951年出生的蔡鄂生，在央行系统工作20余年，官至中国央行行长助理兼上海分行行长；2001-2005年，转任国有重点金融机构监事会主席，2005年12月出任中国银行业监督管理委员会副主席。2013年退休。
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/02/16444661681.png)图片来源：每日邮报
+据《国会山报》2月9日报道，周三，社交媒体平台Parler宣布正与前第一夫人梅拉尼娅·川普（Melania Trump）进行一项社交媒体“特别安排”，她将在（该）社交媒体网络上分享“独家通讯”。并指该公司在为梅拉尼娅的区块链技术和代币平台（MelaniaTrump.com）而提供服务。
 
-去年2021年8月1号郭先生在大直播爆料王岐山的周亮和蔡鄂生被捕了。这两个人都是骂习骂得最狠的。蔡鄂生是王岐山的生死兄弟，冠君的干爹。现在蔡鄂生依法被逮捕，说明中共的内斗越来越激烈。跟着共产党，走进火葬场！
+在一份声明中，梅拉尼娅称赞了该社交平台，称其“使用户能够促进富有成效的讨论”。
 
-信息来源：[依法决定逮捕！](https://mp.weixin.qq.com/s/KTx79Jymx6AYqaeV5AUhAg)
+她说：“我对那些给全世界人民提供直接交流的自由言论平台感到兴奋和鼓舞。Parler在利用Web3.0技术方面一直走在前列，并使其用户能够促进富有成效的讨论。”
+
+但是，报道指，这位前第一夫人仍然拥有活跃的脸书（Facebook）、推特（Twitter）和Instagram账户，目前还不清楚她与Parler的合作关系是否会影响她在这三个平台上的活动。
+
+**新闻来源**
+
+[Parler announces social media ‘special arrangement’ with Melania Trump](https://thehill.com/policy/technology/593453-parler-announces-social-media-special-arrangement-with-melania-trump)
 
  
 

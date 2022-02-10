@@ -2,38 +2,23 @@
 ---
 
 
-## 加拿大废除使用疫苗护照势不可挡
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1982445/)
+## 全球供应链危机将灾难性延续
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1982535/)
 
-采编/编译：Spirit            编辑撰稿：硫酸羟氯喹64
+采编/编译撰稿：自由法兰西                 校对编辑：硫酸羟氯喹64
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot_20220209-230626_Samsung-Internet-edited.jpg)图片来源：Twitter
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Supply-chain-hero-1500x798-_2-800x425.jpeg-edited.jpg)图片来源：thenationalpulse
 
 
-加拿大保守党议员波里耶夫于2月8日在其社交媒体上声称：由于各省政府都在积极计划停止使用百害而无一利的疫苗护照以及逐步取消各项疫情限制措施，因此，自由的力量正在席卷该国！
+据美国媒体《国家脉动》2月7日报道，由于动荡的亚洲局势、堵塞的海运港口，受阻的卡车运输以及短缺的劳工等因素，打击全球经济的供应链危机将会灾难性持续到明年或更长的时间。
 
-此外，该项声明还支持魁省自由党议员莱特邦德，于日前公开谴责特鲁多当局在处理疫情中的独裁专政，以及面对民意时的倒行逆施。并呼吁各界应摒弃党派之争，共同结束疫苗强制接种、疫苗护照和所有违宪封锁措施。
+报道指出，全球失控的疫情以及一触即发的台海战争，导致国际间各大货运港处于滞胀状态，货物堆积如山的同时，航运期限也因此成倍增加。
 
-最后，这位于2月5日宣布将竞选加拿大总理的保守党议员激动表示：鉴于阿尔伯塔省将于当晚午夜取消疫苗护照，可见反抗特鲁多的民意正在取得胜利！
-
-校对编辑：硫酸羟氯喹64
+此外，美加两国货运卡车司机发起的大规模反政府防疫政策的抗议活动，进一步加剧了运输成本的暴涨，并导致北美卡车货运行业因此陷入困境。 同时，由于劳工的严重短缺冲击着供应链各个环节，因此最终将造成整个供应链的纷纷断裂。
 
 发稿：文明(添草灭共)
 
-新闻来源: https://twitter.com/PierrePoilievre/status/1491179433033879553
-
-
-
-> BREAKING: Vaccine passports gone at midnight in Alberta.
-> 
-> La liberté gagne! 
-> 
-> Continue!
-> 
-> Sign my petition to end mandates nationwide: [https://t.co/EgtSLvWWlC](https://t.co/EgtSLvWWlC) [pic.twitter.com/zallZQcynU](https://t.co/zallZQcynU)
-> — pierrepoilievre (@PierrePoilievre) [February 9, 2022](https://twitter.com/PierrePoilievre/status/1491241931103481857?ref_src=twsrc%5Etfw)
-
-
+[新闻链接](https://thenationalpulse.com/2022/02/07/nelles-those-transitory-supply-chain-issues-uh-theyre-here-for-a-while-and-heres-why/)
 
  
 

@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/10/2022 5:39 AM (UTC)`
+
+2/9/2022 Miles Guo: The UBS case will unearth $50 trillion that the CCP has hidden overseas, which will allow the Chinese people to receive free education, health care, and funeral services and will eliminate all mortgage and credit card debts. The CCP sent people to lure me with money to settle with UBS, but they failed.<br/><br/>2/9/2022 文贵直播：UBS案将挖出中共在海外藏的50万亿美元，这笔钱能让中国人获得免费教育、医疗和丧葬并将免除所有的房贷和信用卡欠款；中共派人以金钱诱惑文贵跟UBS和解未果<br/>
+![img](https://media.gettr.com/group33/getter/2022/02/10/05/8344f125-1247-64b9-5f88-34fde71bfb7f/out.jpg)
+
+---
+
+`@miles 2/10/2022 5:34 AM (UTC)`
+
+2/9/2022 Miles Guo: Why do I keep fighting against PAG and UBS in court? Not for money, but to expose the truths about Weijian Shan and Bo Shan as well as the collusion between UBS and the CCP. That our lawsuit against UBS was accepted in the UK means the judge has recognized that our claims have a factual basis.<br/><br/>2/9/2022 文贵直播：为何要跟PAG和UBS打官司？不是为了钱，而是揭露单伟建和单博的真面目并曝光UBS和中共的勾兑；UBS官司在英国被受理说明法官承认我们的索赔有事实依据<br/>
+![img](https://media.gettr.com/group48/getter/2022/02/10/05/edb8e156-341b-fc9d-b8cd-c9ccf2b57164/out.jpg)
+
+---
+
 `@miles 2/10/2022 1:11 AM (UTC)`
 
 2/9/2022 Miles Guo: To recover the wealth, dignity, and justice that the Chinese people have lost in the past 70 years, I will make myself a person that owns nothing and will move to London to fight UBS in court. After that, I will go to Japan to fight against the CCP at close range and will let the people across Communist China hear my voice directly.<br/><br/>2/9/2022 文贵直播：为找回中国人70年来失去的财富、尊严和公正，文贵将让自己变得一无所有，到伦敦跟UBS打官司，再到日本与中共短兵相接，让中共国每个角落都将直接听到七哥的声音<br/>
@@ -140,20 +154,6 @@ Ms. Christine Anderson said, "Whenever a political entity resorts to extortion a
 
 2/6/2022 Miles Guo: The all-weather strategic partnership is essentially forming alliances. Money is the key for the CCP to maintain its relationship with Russia. Although Russia’s annual GDP is only $1 trillion, it signed gas agreements with the CCP with a total deal value of over $1 trillion. Why did Putin go back to Russia without signing the deal with the CCP to designate the RMB as Russia’s legal tender?<br/><br/>2/6/2022 文贵直播：中共全天候战略伙伴的本质是结盟；维持中俄关系全靠钱，只有1万亿美元GDP的俄罗斯从中共就签了总价值1万多亿的合同；普京为何不跟中共签把人民币作为法币的协议就回去了呢？<br/>
 ![img](https://media.gettr.com/group50/getter/2022/02/07/02/5e5f3d95-0210-9798-d2d7-2a30a9dd378b/out.jpg)
-
----
-
-`@miles 2/6/2022 11:17 PM (UTC)`
-
-2/6/2022 Miles Guo: It was as if the athletes attending the Winter Olympics were thrown into jail by the CCP, and their food was spat on before being served. After Putin left, who will attend the closing ceremony of the Winter Olympics? The fellow fighters will make those who collude with the CCP dare not come to Communist China for the rest of their lives. I will make sure that the closing ceremony of the CCP’s Winter Olympics can never end.<br/><br/>2/6/2022 文贵直播：冬奥会运动员就像被中共关在监狱，食物竟被吐唾沫；普京走了后谁会来参加闭幕式？战友会让跟中共勾兑的人一辈子不敢来中共国；文贵要让中共的闭幕会永远无法闭幕<br/>
-![img](https://media.gettr.com/group26/getter/2022/02/06/23/5e86324f-0ecb-2f89-7df1-bb215faab05e/out.jpg)
-
----
-
-`@miles 2/6/2022 9:15 PM (UTC)`
-
-2月6号：尊敬的战友们好！关于如何使用GTV帮助加拿大卡车反疫苗运动的几点声明！
-![img](https://media.gettr.com/group46/getter/2022/02/06/21/a603d339-c777-36ab-1da4-8bf61d959a1b/out.jpg)
 
 ---
 

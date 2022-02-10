@@ -2,23 +2,35 @@
 ---
 
 
-## 全球供应链危机将灾难性延续
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1982535/)
+## 视频| 新中国联邦2022年最重要要做什么
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1982660/)
 
-采编/编译撰稿：自由法兰西                 校对编辑：硫酸羟氯喹64
+制作：香草山视频部
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+新中国联邦2022年最重要要做什么
+一、一心一意灭共
+二 、全力以赴扩大新中国联邦被国际和个国家的主权的认可度
+三 、全力以赴在全球建立更多的新中国联邦农场
+四 、让我们更多的战友从国内被救出来，同时让国内更多的人知道我们新中国联邦
+五、让我们新中国联邦所有的战友们，在G系列里面能赚更多的钱 ，获得更多的机会
+六、要把全世界爱好正义的人们，被共产党病毒伤害的人们，和受到共产党疫苗的毒武器设计的人们，知道真相，跟我们联合在一起
+七、我们要把全世界受到共产党的经济威胁超限战的人，紧紧地和我们团结在一起，建立我们真正的爆料革命的国际公认的社交媒体大平台
+八、我们新中国联邦人，统一好我们的作战目标，统一行动，保命、保财、报仇
+更重要的事情，让我们所有的战友，兄弟姐妹们
+共同地度过这个至暗的时代
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Supply-chain-hero-1500x798-_2-800x425.jpeg-edited.jpg)图片来源：thenationalpulse
 
 
-据美国媒体《国家脉动》2月7日报道，由于动荡的亚洲局势、堵塞的海运港口，受阻的卡车运输以及短缺的劳工等因素，打击全球经济的供应链危机将会灾难性持续到明年或更长的时间。
+发稿：雪梨
 
-报道指出，全球失控的疫情以及一触即发的台海战争，导致国际间各大货运港处于滞胀状态，货物堆积如山的同时，航运期限也因此成倍增加。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-此外，美加两国货运卡车司机发起的大规模反政府防疫政策的抗议活动，进一步加剧了运输成本的暴涨，并导致北美卡车货运行业因此陷入困境。 同时，由于劳工的严重短缺冲击着供应链各个环节，因此最终将造成整个供应链的纷纷断裂。
-
-发稿：文明(添草灭共)
-
-[新闻链接](https://thenationalpulse.com/2022/02/07/nelles-those-transitory-supply-chain-issues-uh-theyre-here-for-a-while-and-heres-why/)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
