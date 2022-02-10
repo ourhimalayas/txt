@@ -2,20 +2,24 @@
 ---
 
 
-## 关于排华&#8211;华人在加拿大起诉大卡车司机
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1986851/)
+## 财富管理专栏：放入信托的资产必须是税后吗？
+` 加拿大温哥华扬帆农场蓝枫法律` [轉載自GNews](https://gnews.org/zh-hans/1986930/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+#### 加拿大温哥华扬帆农场 蓝枫法律
 
-*发布：陶子*
+在加拿大你放进去的钱必须不跟任何税挂钩，如果把100万的房子放到信托里面，把25万的税付了，在一个人名下，房子的税还是付了，放进去的资产是税后的。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+对于Settler把钱放到了信托，有些信托并不是完全做成Living Trust，他只是为了避免遗产税，但避免不了其他的税务，如果要建立一个长期的家族基金，进去的钱就是税后的，不应该有任何税挂在里面，包括任何破产。
+
+任何地方，税总是在这里，即使到高层投资里面他们都会问你有没有欠任何税，如果有，他们会统计出来让你把税的问题解决，税永远是排在第1位。
+
+还是有一些情况是能避税的，大多数情况如上所述，当你有大笔的资产，一定会有专业的律师会计团队来帮你做到。
+
+直播视频链接：
+
+[第四十二期 金融税务专题及喜支付(H Pay)功能介绍](https://gtv.org/video/id=61ff154d96ba5d73e0c39083)
+
+编辑/发文：蓝枫法律栏目
 
  
 

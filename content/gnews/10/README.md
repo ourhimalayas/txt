@@ -2,8 +2,8 @@
 ---
 
 
-## 黑暗势力的总部（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1986749/)
+## 关于排华&#8211;华人在加拿大起诉大卡车司机
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1986851/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
