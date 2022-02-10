@@ -2,24 +2,39 @@
 ---
 
 
-## 【秘翻在线】中共网络水军通过操纵标签消弭推特上的批评言论
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1982791/)
+## 前国家情报总监谈论中共对美国经济科技和文化上的渗透
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1982958/)
 
-#### 翻译/撰稿：zzballack
+作者：台湾宝岛农场 – zhong
 
-#### 校对：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-995.png)图片来源：Hope Not Hate
-据《布雷特巴特新闻网》（Breitbart News）2月9日报道，《华尔街日报》（Wall Street Journal）2月9日的一篇报道说，研究人员相信中共网络水军正试图操纵推特平台上的#GenocideGames （种族灭绝奥运会）标签。这些亲中账户通过发送大量带有#GenocideGames标签的推文，让社交媒体用户只能看到与原始主题不相关的内容，从而削弱批评中共人权记录的声音。
 
-美国克莱姆森大学媒体取证中心（Clemson University’s Media Forensics Hub）的教授达伦·林维尔（Darren Linvill）和帕特里克·沃伦（Patrick Warren）表示，从去年10月下旬开始，亲中账户一直在利用#GenocideGames标签发布类似垃圾邮件的内容。在去年10月20日至今年1月20日期间，使用#GenocideGames标签发布的推文总共超过了13万2000条，其中大约67%的推文已无法查看。推特发言人说，根据该公司有关垃圾邮件和平台操纵的规则，他们对其中一些推文采取了行动。
 
-研究人员认为，此举可能是为了触发推特的监控系统，以把它们当作垃圾邮件处理，以至于所有的相关内容都会被删除。这似乎是为了让人权活动家更难通过#GenocideGames标签来批评北京当局。这项策略被称为“标签泛滥”（hashtag flooding），其主要目的是削弱流行标签的有效性，以便其他搜索该词语的推特用户看到大量不相关的内容，从而混淆视听。林维尔表示：“中共的宣传机构一直非常注重维护他们在对待维吾尔人问题上的形象，他们同时也在宣传奥运会，这个标签正好处于这两件事的结合点。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-推特尽管在去年12月认定这些亲中账户是由中共支持的虚假信息网络的一部分，但他们在阻止中共的社交媒体宣传战方面并没有采取任何实质性的行动。
 
-新闻来源：[WSJ: China’s Propaganda Army Flooded Twitter’s ‘#GenocideGames’ to Drown Out Olympics Criticism](https://www.breitbart.com/tech/2022/02/09/wsj-chinas-propaganda-army-flood-twitters-genocidegames-to-drown-out-olympics-criticism/)
 
-关键词：
+美国前国家情报总监在电视节目上针对中共渗透美国一事公开发表意见，他表示自己身为前国家情报总监，可以获得比任何人都还多的情报，根据情报资讯可以确定中共在很多方面都想取代美国，不仅是军事方面，连经济、科技和文化上，都是中共意图超越美国的领域。中共试图通过收购、替代电影产业后的赞助商，达到控制电影行业。通过修改剧本，将中共国的恶人变成英雄，同时打压台湾、香港。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+
+总编/编辑：zhong
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
 
 

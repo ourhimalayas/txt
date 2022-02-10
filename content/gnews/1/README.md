@@ -2,8 +2,8 @@
 ---
 
 
-## 祭旗
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1983060/)
+## 今天出大事，华尔道夫酒店多人染上病毒死亡
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1983164/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 
