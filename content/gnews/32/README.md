@@ -2,31 +2,71 @@
 ---
 
 
-## 有声|中共试图抢先打捞F35战机 偷盗美国技术
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1985032/)
+## 控诉
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1985186/)
 
-配音：香草山巡管部 – 格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-据美国媒体2月2日消息，中共有三艘打捞船于当天离港，驶向1月份美国F35C战机失事海域。
+作者：蓝之灵
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+耀眼的光环
+流动着
+笼罩着
+虚假的盛世
+邪恶在这里盛行
+人性被泯灭
+如地狱里的盛宴
+尽情享受着
+良善的躯体
+血流成河
+冤魂遍地
 
-1月24日，美军一架F35C战机在常规飞行中失事，尽管中共发言人赵立坚曾否认共军试图盗取该军机，但美国军队还是注意到了中共的打捞船只接近事发海域。另一则来自五角大楼的消息也印证了中共的行动。
+七十年的蹂躏
+山河破碎
+风也不再温柔
+水也不再纯净
+一个个水坝
+就像
+狰狞的伤疤
+生硬的贴在
+龙的脊背
+龙的哀嚎
+在呻吟
 
-五角大楼的消息人士称，美国不相信中共有足够的打捞能力获得这架飞机，美国在深水科技方面也远远领先中共，但中共的行为非常令人“反感”。
+这深重罪孽
+深植在
+华夏文明
+文明被摧毁
+劣币驱逐良币
+留下的
+只有
+恶与魔
 
-文字版原文：[中共试图抢先打捞F35战机 偷盗美国技术](https://gnews.org/zh-hans/1980986/)
+恶与魔横行
+摧毁爱与和平
+这深重的灾难啊
+深植在华夏文明
+祈求拯救
+祈求救赎
+祈求
+爱
+与
+和平
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-4.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+**校对/发稿：童谣**
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

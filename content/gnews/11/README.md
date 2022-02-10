@@ -2,13 +2,16 @@
 ---
 
 
-## 渥太华警察扣押卡车司机的燃料，司机们晚上可能挨冻
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1985363/)
+## 在和UBS的这场较量中必然会遇到无法想象的阻力
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1985453/)
 
-02/07/2022 为了平息卡车司机抗议，加拿大政府使出卑鄙伎俩。渥太华警察扣押卡车司机的燃料，司机们晚上可能挨冻。
+作者：东京樱花团小视频组
 
-By:【秘密翻译组-精翻组 G-Translators/Elite Team】
+* * *
 
+编辑：东京樱花团/小视频组
+发布：东京樱花团/小视频组
+![](https://assets.gnews.org/wp-content/uploads/2022/02/樱花-3-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

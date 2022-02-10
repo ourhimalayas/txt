@@ -2,8 +2,8 @@
 ---
 
 
-## 在和UBS的这场较量中必然会遇到无法想象的阻力
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1985453/)
+## 习普两人的勾兑 中国人民将付出惨重代价
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1985650/)
 
 作者：东京樱花团小视频组
 

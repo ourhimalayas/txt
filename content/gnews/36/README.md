@@ -2,24 +2,34 @@
 ---
 
 
-## 法国艾滋病泰斗离世 生前坚决反对中共病毒疫苗
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1984834/)
+## 香港单日中共病毒确诊数再创新高
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1985057/)
 
-#### 撰稿：nstar
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2022/02/说事实.jpg)图片来源：Youtube 截图
-据《法兰西晚报》（France Soir）报道，诺贝尔医学奖得主、生物学家、病毒学家吕克·蒙塔尼耶（Luc Montagnier）教授于本周二在孩子们的陪伴下安详离世，享年 89 岁（1932 年 8 月 18 日 – 2022 年 2 月 8 日）。
+作者：纽约香草山-Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月5日，据相关媒体报道，香港政府当天通报了351例新增中共病毒确诊病例，这也是自中共病毒疫情在香港爆发以来，当地单日新增确诊病例最多的一天。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/7-11.jpg)
+数据显示，目前，香港的中共病毒疫苗第一针接种率已经高达79.8%，而完全接中共病毒种疫苗的民众占当地总人数的72%，另外，还有超过一百万的香港居民接种了第三剂加强针。
 
-蒙塔尼耶教授毕生致力于科学，获得了无数的奖项和荣誉。除了因发现艾滋病病毒而获得 2008 年诺贝尔医学奖外，还与多家世界领先的科研机构合作，先后担任过CNRS名誉研究主任，巴斯德研究所教授，纽约大学皇后学院分子与细胞生物学中心主任，上海交通大学研究所所长。
+然而，香港针对中共病毒疫情的相关负责人指出，虽然政府试图加强对中共病毒疫情的管控，但当下仍是香港自疫情爆发以来最严峻，也是最关键的时期。此外，当地的疫情并不乐观，甚至本土病例可能会在近期内呈几何级数上升。
 
-他谈到实验血清时说：“接种（中共病毒）疫苗是一个巨大的错误。它会产生新的菌株并导致死亡。” 这位著名学者明确表示反对给儿童接种中共病毒疫苗。尽管近年来备受支持疫苗接种的同行的抨击，但他一直为自由科学而奋斗，这也是为什么他会参加反对强制接种 中共病毒疫苗的抗议活动，并在卢森堡议会发言反对强制接种 。他与克里斯蒂安·佩龙（Christian Perronne）教授一起发表了令人震惊的声明：“这些不是疫苗, 它们是毒药！它们是对科学和法律的嘲弄。一切都是为了控制我们！”
+而评论人士则对此表示，虽然香港政府此前强制当地民众接种中共病毒疫苗时曾大肆宣称其在防护病毒与阻止传播方面的有效性，但目前的感染数据表明，中共病毒疫苗对病毒的抑制作用微乎其微。
 
-蒙塔尼耶教授最后一次公开露面是 2021 年 1 月 15 日在米兰举行的反对认证疫苗接种和强制疫苗接种的集会上，当时他宣称未接种疫苗的人将拯救已接种疫苗的人，而为儿童接种疫苗是犯罪行为。
+参考链接：[Hong Kong reports record daily high of 351 coronavirus cases](https://www.reuters.com/world/china/hong-kong-reports-record-daily-high-351-coronavirus-cases-2022-02-05/)
 
-蒙塔尼耶教授的几位合作者、仰慕者在网上发布了吊唁信息。他的亲密合作者亚历山德拉·亨利恩-考德博士（Dr. Alexandra Henrion-Caude）提议全国哀悼一天，称法国刚刚失去了“一位杰出的科学家，他有为国家服务的意识，随时准备为国家付出代价——真理的代价。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-新闻来源：[Doliu pentru medicina mondială: A murit Luc Montagnier](https://www.activenews.ro/stiri/Doliu-pentru-medicina-mondiala-A-murit-Luc-Montagnier-172619)
+总编: Jack Li文阳
+编辑：静言
+校正/发稿：Fei797
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

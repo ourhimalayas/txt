@@ -2,33 +2,25 @@
 ---
 
 
-## 美国再将33家中共企业列入未经核实清单
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1984848/)
+## 秘翻在线：ASML发文正告：中共企业正在销售侵害其公司商业机密的产品
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1985183/)
 
-作者：日本方舟农场 – Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月7日，据相关媒体消息显示，美国政府已经将包括中共国航发南方工业有限公司在内的33家中共实体列入至“未经核实清单”中。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/5-11.jpg)
-对此，美国商务部表示，联邦政府采取这一措施的原因在于，美国无法确定这些中共实体将如何使用其自美国进口的商品。
+**翻译：明澈**
 
-据了解，美国公司需要申请出口许可证，才能继续向那些被列入未经核实清单的实体出口涉及美国技术的商品，而申请此类许可证需要相关企业满足更为严格的申报合规要求。因此，被列入未经核实清单会增加这些企业在贸易中的不确定性。
+**校对：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-10-231757.jpg)
+据《彭博社》2月9日消息，荷兰光刻设备龙头企业阿斯麦（ASML）周三发布报告指出，此前窃取商业机密的XTAL，其中共国母公司-东方晶源微电子（DJEL）开始销售侵犯其知识产权的商品。 ASML已要求特定客户避免与东方晶圆微电子业务往来，并发文告知中共当局，要求协助处理，未来将在适当的时机采取法律行动。
 
-参考链接：
-1) . [美国将33家中国实体加列入“未经核实清单” 加大力度围堵中国企业](https://cn.reuters.com/article/usa-chinese-entities-unverified-list-020-idCNKBS2KD01A)
-2) . [被列入BIS未经核实清单的后果及解决方案](https://www.sohu.com/a/323820645_652123)
+报导指出，XTAL因窃取ASML商业机密，曾于2019年在美国法院被判赔偿ASML8.45亿美元，但后来XTAL竟然直接宣布破产，令人相当无语。而此次销售侵犯ASML知识产权商品事件，彭博曾发送电子邮件至XTAL网站的官方电子邮件信箱，但无法顺利传送；致电东方晶源微电子北京总部，电话也无人接听。报道还指出，美国政府曾于2019年向荷兰施压，禁止ASML向中共国出售EUV设备，目前ASML仍未获得出口许可证，故无法将其最先进的机器运往中共国。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+据悉，ASML在全球晶片供应链中具举足轻重地位，在世界16个国家和地区提供服务，世界同类产品中有90％的市场占有率，而在14纳米以下则有100％的市场占有率，相当于垄断了市场，此外，ASML还提供制造更成熟半导体所需的深紫外光刻机。
 
-总编/编辑：飞虹
-校正/发稿：Fei797
+中共为打造芯片生态系统，减少对外国进口，曾在中共国推行「小巨人」计划。据MBA智库显示，该计划主要筛选创新能力强、市占率高、掌握关键核心技术、品质效益优良的企业，培育成与美国硅谷竞争的科技产业。获得「小巨人」认可的公司，通常会获得中共中央政府或省级政府的奖励，包括减税、优厚贷款和人才政策等。据悉，东方晶圆微电子正是中共「小巨人」计划支持的企业之一。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+中共企业常被指控窃取外国公司商业机密，尽管中共极力否认，但知识产权窃取长期以来一直是中共与美国等西方国家关系渐远的症结之一。
+
+**新闻来源**：[https://www.bloomberg.com/news/articles/2022-02-09/asml-warns-chinese-rival-may-be-infringing-its-trade-secrets](https://www.bloomberg.com/news/articles/2022-02-09/asml-warns-chinese-rival-may-be-infringing-its-trade-secrets)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

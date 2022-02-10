@@ -2,34 +2,55 @@
 ---
 
 
-## 美日冲绳海岸军演应对中共威胁
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1985041/)
+## 新西兰车队将抗议议会并要求终止疫苗和口罩授权
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1985187/)
 
-作者：台灣寶島農場–新中國聯邦靜
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月6日，据相关媒体报道，为了应对中共不断扩张的军事威胁，美日两军正在日本冲绳的宫古海峡附近进行一场大规模的联合军事演习。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/6-13.jpg)
-美国海军陆战队在一份声明中指出，美军出动了一批万人远征部队在日本海岸进行白天和夜间的战机补给演练，其中还包括高难度的夜间空对空加油演习。此外，美日也联合模拟了直升机合作以及小艇登陆、空中夜袭等项目。
+素材翻译评论： Jenny Ball
 
-美国军方高层表示，此次演习也是在向美日同盟国家发出信号，即美日双方有能力维持自由、开放的印太地区，同时，此举也强化了两国的合作关系。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1028.png)
 
-与此同时，日本防卫大臣岸信夫与美国新任驻日大使伊曼纽尔也就强化美日同盟的重要性举行了会谈。会上，美日双方一致表示，中共单方面试图改变现状的做法是在破坏当前全球基于规则和原则建立的稳定系统。为此，美日两国必须在坚守民主和法治价值观的基础上协同合作。
+卡车司机、农民和各行各业人民争取自由的抗议活动仍在继续。
 
-参考链接：[美軍出動遠征部隊 逾萬兵力沖繩近海軍演](https://www.epochtimes.com/b5/22/2/8/n13562325.htm)
+来自加拿大的卡车司机封锁了连接加拿大和美国的大使桥。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1027.png)
 
-总编: Irene木木
-编辑：谐趣园
-校正/发稿：Fei797
+周日，阿拉斯加的卡车司机组建了自己的“阿拉斯加自由车队”，以支持加拿大卡车司机。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+阿拉斯加的“自由车队”以支持加拿大卡车司机🇺🇸
+
+现在，数百或数千名抗议者于周二驱车前往新西兰首都，并阻止议会抗议疫苗和口罩授权。
+
+新西兰总理杰辛达·阿德恩（ Jacinda Ardern ）拒绝与车队会面，称她还有其他优先事项。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1025.png)
+更多来自《布赖特巴特》消息：
+
+车队中的车辆包括汽车、卡车和摩托车，并展示了诸如“杰辛达，我们知道你将自己的灵魂卖给了魔鬼”、“停止授权#自由”和“政治语言旨在使谎言听起来真实”等标志。
+
+在抗议者挥舞的新西兰国旗旁边还发现了许多旗帜，包括美国国旗、前总统唐纳德·川普主题的旗帜和英国国旗。
+
+这些车辆在新西兰议会外停留了几个小时——新西兰议会刚刚在暑假后重新开会——似乎在当天晚些时候和平地离开了该地区，惠灵顿警方没有报告任何逮捕事件。
+
+据报道，抗议活动的主要目的是挑战学校学生戴口罩的规定，以及护士、教师和警察等某些公共部门工作的疫苗接种要求。
+
+据《新闻中心》（Newshub）报道，在议会发生反授权抗议后，总理杰辛达·阿德恩向接种疫苗的新西兰人发出了一条信息，声称这些人不代表大多数新西兰人，“这也将过去”。
+
+可以回顾一下，芬兰赫尔辛基议会外组织了一支大规模的自由车队，要求总理桑娜·马林的政府辞职，削减 50% 的燃油税，并结束所有 COVID 限制。
+
+“芬兰自由车队2022”“CONVOY FINLAND 2022”预计将于 2022 年 2 月 9 日（星期三）开始每天上午 10 点至晚上 10 点。
+
+评论： 人民是改变历史的动力！
+
+素材链接：【thegatewaypundit.com】[New Zealand Joins Canada and Finland – Convoy Blocks Parliament and Demands to End Vaccine and Mask Mandates](https://www.thegatewaypundit.com/2022/02/new-zealand-joins-canada-finland-convoy-blocks-parliament-demands-end-vaccine-mandates/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailyam&amp;utm_content=daily)
+
+* * *
+
+审核：文乐
+校对：花羽
+发布：花羽
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-3.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

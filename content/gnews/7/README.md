@@ -2,13 +2,16 @@
 ---
 
 
-## 所有参加冬奥会的运动员都将受到中共监控
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1985396/)
+## UBS是全球黑暗沼泽地的核心中的核心
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1985519/)
 
-02/05/2022 所有参加冬奥会的运动员都将受到中共监控，他们如果随意发声将面临毁灭性惩罚。但是大部分媒体并不敢谈论这些问题，因为他们的经济利益被紧紧地捆绑在了中共国。
+作者：东京樱花团小视频组
 
-By:【秘密翻译组-精翻组 G-Translators/Elite Team】
+* * *
 
+编辑：东京樱花团/小视频组
+发布：东京樱花团/小视频组
+![](https://assets.gnews.org/wp-content/uploads/2022/02/樱花-3-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
