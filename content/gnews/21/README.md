@@ -2,24 +2,35 @@
 ---
 
 
-## 法国艾滋病泰斗离世 生前坚决反对中共病毒疫苗
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1984834/)
+## 有声|谁才是抗日战争的真正主力
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1985030/)
 
-#### 撰稿：nstar
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2022/02/说事实.jpg)图片来源：Youtube 截图
-据《法兰西晚报》（France Soir）报道，诺贝尔医学奖得主、生物学家、病毒学家吕克·蒙塔尼耶（Luc Montagnier）教授于本周二在孩子们的陪伴下安详离世，享年 89 岁（1932 年 8 月 18 日 – 2022 年 2 月 8 日）。
+配音：香草山巡管部 – 格格
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+1930年代至1940年代，第二次世界大战东亚战事的主要部分即为中华民国与大日本帝国之间发生的战争，也就是为后人所熟知的“抗日战争”。
 
-蒙塔尼耶教授毕生致力于科学，获得了无数的奖项和荣誉。除了因发现艾滋病病毒而获得 2008 年诺贝尔医学奖外，还与多家世界领先的科研机构合作，先后担任过CNRS名誉研究主任，巴斯德研究所教授，纽约大学皇后学院分子与细胞生物学中心主任，上海交通大学研究所所长。
+据日本公布的二战在华阵亡数据显示，抗日战争期间，日军共有超过31万人在与国民党军交战时死亡，仅有851日死于中共军队的手中。
 
-他谈到实验血清时说：“接种（中共病毒）疫苗是一个巨大的错误。它会产生新的菌株并导致死亡。” 这位著名学者明确表示反对给儿童接种中共病毒疫苗。尽管近年来备受支持疫苗接种的同行的抨击，但他一直为自由科学而奋斗，这也是为什么他会参加反对强制接种 中共病毒疫苗的抗议活动，并在卢森堡议会发言反对强制接种 。他与克里斯蒂安·佩龙（Christian Perronne）教授一起发表了令人震惊的声明：“这些不是疫苗, 它们是毒药！它们是对科学和法律的嘲弄。一切都是为了控制我们！”
+另据中华民国国防部的统计数据表明，截至1945年6月，国民党军中少将以上的高级将领在战争中一共牺牲了115人，国军总损失人数达到400多万，死亡约132万人以上，其中海军几乎全军覆没。而根据中共早先的记载，中共抗日部队仅有左权一位将军牺牲，其余总计人员损失约58万人，死亡约16万人。
 
-蒙塔尼耶教授最后一次公开露面是 2021 年 1 月 15 日在米兰举行的反对认证疫苗接种和强制疫苗接种的集会上，当时他宣称未接种疫苗的人将拯救已接种疫苗的人，而为儿童接种疫苗是犯罪行为。
+通过对二者数据的分析，国军在抗日战争中的伤亡总数达到共军的5.5倍，死亡人数则超过共军的7倍有余。
 
-蒙塔尼耶教授的几位合作者、仰慕者在网上发布了吊唁信息。他的亲密合作者亚历山德拉·亨利恩-考德博士（Dr. Alexandra Henrion-Caude）提议全国哀悼一天，称法国刚刚失去了“一位杰出的科学家，他有为国家服务的意识，随时准备为国家付出代价——真理的代价。”
+鉴于中共长期以来对历史的篡改，2015年8月28日，中华民国国防部在一份声明中强调，八年抗战是由中华民国政府主导，在蒋介石委员长的领导下，全国军民浴血奋战的成果，其历史真相绝不能以任何方式被扭曲与篡改。
 
-新闻来源：[Doliu pentru medicina mondială: A murit Luc Montagnier](https://www.activenews.ro/stiri/Doliu-pentru-medicina-mondiala-A-murit-Luc-Montagnier-172619)
+文字版原文：[谁才是抗日战争的真正主力](https://gnews.org/zh-hans/1980394/)
 
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

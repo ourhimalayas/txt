@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/10/2022 3:37 PM (UTC)`
+
+2/9/2022 Miles Guo: The CCP will technically become the defendant in the UBS case. UBS sold my stocks to a CCP-controlled fund by force and subsequently became the only foreign bank to receive the financial license from the CCP. Due to such “coincidences”, UBS will have no choice but to disclose its collusion with the CCP. So, the CCP is doomed!<br/><br/>2/9/2022 文贵直播：UBS案子的对方将变成中共！UBS将文贵的股票强买强卖给了中共的基金，并随后成为唯一获得中共金融牌照的外国银行，这些“巧合”让UBS将不得不把它和中共的勾兑和盘托出，中共完蛋了！<br/>
+![img](https://media.gettr.com/group29/getter/2022/02/10/15/03eafc42-80ae-a312-787a-4bf7d15d59f5/out.jpg)
+
+---
+
+`@miles 2/10/2022 3:30 PM (UTC)`
+
+2/9/2022 Miles Guo: It is outrageous that UBS sold my family's stocks to the CCP-related funds in 20 seconds, and the people involved will eventually appear in court to explain the whereabouts of the stocks and how they were connected to the CCP. UBS will have no choice but to submit to the court the information regarding its secret deposits and client list<br/><br/>2/9/2022 文贵直播：UBS竟然在20秒内就把文贵家族的股票卖给了中共的基金；相关人士最终将出庭解释股票的下落以及他们是如何跟中共建立联系的；UBS将不得不向法庭提交其秘密存款信息和秘密客户名单<br/>
+![img](https://media.gettr.com/group22/getter/2022/02/10/15/d2f9064d-5feb-be44-d566-36a9b8e47327/out.jpg)
+
+---
+
 `@miles 2/10/2022 1:52 PM (UTC)`
 
 2月10号：尊敬的战友们好，你们健身了吗？传播C C P病毒！疫苗解药真相了吗？共产党正在北京进行的绑架冬奥会的一系列的无法律．无规则的无底线的行为．都将给中国人在世界上带来无法挽回的负面影响，可能导致中国人在世界上几代人都无法改变的排华危机……
@@ -140,20 +154,6 @@ Ms. Christine Anderson said, "Whenever a political entity resorts to extortion a
 
 2/6/2022 Miles Guo: The reason why the CCP kowtows to Russia is that the Caucasians in the West don’t want to engage with them. So, the CCP can only use the excuse that Russia is the origin of communism to fool the Chinese people. With the anger building up in the hearts of the Chinese, they can turn against the CCP once they have a chance.<br/><br/>2/6/2022 文贵直播: 中共认俄爹是因为西方白人不愿和中共交往，中共只好以俄国是共产主义发源地为由忽悠中国人；中国老百姓心中积压的怒火使得他们一有机会就会向中共动手<br/>
 ![img](https://media.gettr.com/group22/getter/2022/02/07/08/3e3c1a61-cfee-7fe0-0cf7-74d7bd2d9527/out.jpg)
-
----
-
-`@miles 2/7/2022 8:13 AM (UTC)`
-
-2/6/2022 Miles Guo: The CCP collects urine and feces from the leaders and athletes of various countries participating in the Winter Olympics to serve its evil purpose - to extract and use their genes to produce a “better” race. The CCP is racist at its core and worships superior physiques and eugenics.<br/><br/>2/6/2022 文贵直播: 中共收集参加冬奥会各国领导人和运动员的尿和大便是服务于其邪恶的目的 - 提取并用他们的基因以生出“更优秀”的种族；中共骨子里是种族主义者并且崇拜优秀人体和基因<br/>
-![img](https://media.gettr.com/group50/getter/2022/02/07/08/50de081f-5f68-5e35-0ef0-88d7d4453200/out.jpg)
-
----
-
-`@miles 2/7/2022 8:09 AM (UTC)`
-
-2/6/2022 Miles Guo: The Winter Olympics is dedicated to Xi Jinping only! Everyone in the CCP hates Xi for holding the Winter Olympics and the athletes colluding with the CCP. The CCP lacks both the financial resources and capabilities to successfully host the Winter Olympics. The West started to investigate the corruption in the International Olympics Committee caused by the CCP.<br/><br/>2/6/2022 文贵直播: 冬奥会是习太阳一个人的！党内都恨习办冬奥会以及和中共同流合污的运动员；中共在财力和能力上都无法保证冬奥会成功召开；西方已开始调查国际奥委会跟中共的腐败<br/>
-![img](https://media.gettr.com/group50/getter/2022/02/07/08/f73596f6-3d04-74b6-606f-451f0ee92d61/out.jpg)
 
 ---
 

@@ -2,49 +2,34 @@
 ---
 
 
-## 美日澳三国空军关岛上演“大象漫步”展示军力，威慑中共
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1984857/)
+## 香港单日中共病毒确诊数再创新高
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1985057/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/eed963fe-6e23-4919-8690-0c125d227e0a_cx0_cy10_cw0_w1023_r1_s3.jpg)图片来源：www.dailymail.co.uk/
-来自《每日邮报》2022年02月08日的报道，美国空军正在与来自日本和澳大利亚的机组人员一起展示军事实力，通过在关岛举行一年一度的大象漫步演习，在南中共国海附近展示他们的肌肉。
+作者：纽约香草山-Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月5日，据相关媒体报道，香港政府当天通报了351例新增中共病毒确诊病例，这也是自中共病毒疫情在香港爆发以来，当地单日新增确诊病例最多的一天。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/7-11.jpg)
+数据显示，目前，香港的中共病毒疫苗第一针接种率已经高达79.8%，而完全接中共病毒种疫苗的民众占当地总人数的72%，另外，还有超过一百万的香港居民接种了第三剂加强针。
 
-在中共国以东1800英里的安德森空军基地举行的“对抗北方2022”(Exercise Cope North 22)演习的传统游行期间，大约有130架飞机参加了年度展示活动。
+然而，香港针对中共病毒疫情的相关负责人指出，虽然政府试图加强对中共病毒疫情的管控，但当下仍是香港自疫情爆发以来最严峻，也是最关键的时期。此外，当地的疫情并不乐观，甚至本土病例可能会在近期内呈几何级数上升。
 
-次演习展示了美国军队及其太平洋盟友在朝鲜和中共国家门口的强悍火力和巨大能力。它还向世界（包括正在准备随时入侵乌克兰并吸引美军的俄罗斯）展示了西方如何投射军力。
+而评论人士则对此表示，虽然香港政府此前强制当地民众接种中共病毒疫苗时曾大肆宣称其在防护病毒与阻止传播方面的有效性，但目前的感染数据表明，中共病毒疫苗对病毒的抑制作用微乎其微。
 
-在2月2日至18日的演习中，超过2500名美国飞行员、海军陆战队员和水兵正在与来自30个单位的1000名日本和澳大利亚联合部队一起训练。
+参考链接：[Hong Kong reports record daily high of 351 coronavirus cases](https://www.reuters.com/world/china/hong-kong-reports-record-daily-high-351-coronavirus-cases-2022-02-05/)
 
-大象漫步是飞机在最小间隔起飞前以编队形式紧密滑行。这是美国太平洋空军规模最大的多边演习，成立于1978年。它以前一直在日本的三泽空军基地举行，直到1999年之后才将基地转移到了安德森空军基地。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-大象漫步一词来自于第二次世界大战，当时大型空军舰队会一起发动轰炸袭击。飞机会以机头对机尾的列队准备起飞，类似于一群大象。大型运输机和货机的参与也使军队的不同部门和不同部队能够练习他们的团队协作能力。战斗机和货运飞机有不同的操作要求，而大象漫步允许它们在一次任务中协同工作。
+总编: Jack Li文阳
+编辑：静言
+校正/发稿：Fei797
 
-“对抗北方”演习允许美国和盟军开展人道主义援助和救灾工作以及互操作性，以便为自然灾害的破坏性影响做准备并从中恢复。
-
-澳大利亚特遣部队指挥官空军上校安德鲁·麦克休(Andrew McHugh)说：“‘对抗北方演习’的重点是通过进行人道主义援助和救灾行动以及大规模作战和空中机动任务的联合战术、技术和程序来提高与我们伙伴国家的互操性。”
-
-“在复杂的岛屿地形上，与美国空军和日本航空自卫队并肩在复杂岛屿地形的现实训练场景上展开合作将进一步增强我们的能力，以确保我们能够在实时情况下提供及时和有效的响应。通过汇集三国部队，我们能够加强我们作为一支更大的联合部队的能力，这对一个开放、繁荣、包容和安全的印太地区至关重要。”
-
-美国空军的一份声明中写道：“‘对抗北方演习’通过促进信息交流和完善共享战术、技术和程序，以更好地整合多边防御能力并加强互操作性以支持区域安全，从而加强美国与我们的区域盟友和合作伙伴的关系。
-
-**简评：**
-
-美国才是世界和平的维护者，也只有美国才有真正的实力做到这一点。真正对全球的安全构成挑战的是独裁的中共政权，而中共却对墙内的民众宣传是美国要颠覆世界和平，甚至时常声称要联合世界“正义”力量打倒“美帝国主义”，而它嘴里的正义力量应该就是伊朗、阿富汗塔利班和北朝鲜了，真是滑天下之大稽。
-
-美国联合日本，澳大利亚举行的三方军事演习，其目的不言而喻，这是直接针对中共的军事扩张以及中共在印太地区进行的军事挑衅行为。在军事实力上，中共完全无法跟美国抗衡，中共唯一的优势是有14亿无辜的中国老百姓作为挡箭牌。他们认为美国不会拿美国军人的生命与其对赌。但是，中共统治者落伍的眼界注定了这个邪恶的政权会加速走向灭亡，因为现代战争并非人海战术，对于连芯片都生产不出来的中共来说又如何能够保证自己的战争机器正常运转？所以，如果中共当真挑起地区冲突，发动战争则无异于自取灭亡。我们爆料革命战友需要做的就是加大宣传力度，让墙内普通民众不再相信共产党的谎言避免他们在可能发生的战争之中成为中共政权的炮灰。
-
-新闻链接:[https://www.dailymail.co.uk/news/article-10490055/US-Air-force-joined-crews-Japan-Australia-flex-airborne-muscles-Elephant-Walk.html](https://www.dailymail.co.uk/news/article-10490055/US-Air-force-joined-crews-Japan-Australia-flex-airborne-muscles-Elephant-Walk.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

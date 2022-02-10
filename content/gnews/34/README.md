@@ -2,14 +2,21 @@
 ---
 
 
-## 众议院传唤受福奇影响的科学家参加中共病毒起源听证会
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1984612/)
+## 音乐视频│黎明破茧
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1984791/)
 
-#### 翻译/字幕：波士顿五月花 Rock小哥
+音乐视频│黎明破茧
 
-* * *
+编曲：东京樱花团/盲人草根
 
-*编辑/发布：霹雳鼠年*
+词唱：东京樱花团/愈爆愈勇
+
+视频：东京樱花团/小猴
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
 
  
 
