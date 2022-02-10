@@ -2,90 +2,34 @@
 ---
 
 
-## 全球疫情更新（第三针的未来）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1981725/)
+## 拜登政府二度批准对台军售
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1981861/)
 
-**整理/编辑：枳实**
+**撰稿：日本东京方舟农场  幽蘭自得**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-862.png)图片：雅典娜农场设计组 精灵蓝
+2月7日，美国国务院宣布，基于《台湾关系法》，已批准对台湾出售价值1亿美元丶为期5年的爱国者系统工程勤务计划相关的军事设备与服务。这是拜登政府上台后，第二次核准对台湾的军售。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-148.jpg)（图片来自路透社）
+据《德国之声》报道，美国国务院政军局在一份声明稿中表示，这次军售将会有助于台湾维持其飞弹密度丶确保台湾的空中作战战备能力，以达到区域吓阻作用。
 
+据悉，这次军售主要是提供支持台湾参与爱国者飞弹工程勤务及飞弹效能鉴测的相关设备与服务，为期共5年，提供的协助包含工程服务支援，以及维持与改善爱国者防空飞弹系统。
 
-雅典娜疫情更新（2022年 2月9日）
+美国国务院政军局也重申，核准这次军售是为了使台湾的军队持续现代化且保持可靠的防御能力，因为这样的发展符合美国的国家丶经济与安全利益。
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+美国国务院还表示，这批军售案能有助于提高台湾的安全，并对维持区域政局稳定丶军事平衡和经济进步都有帮助。
 
-**一，全球疫情基本数据**
+随后，台湾国防部于2月8日发布新闻稿表示，美国政府已针对军售案进行“知会国会”的程序，表示该案有望在1个月后正式生效。
 
-感染总数：397,363,280（日新增2,677,691人，14天增幅-23%）
+此外，台湾国防部还说美国此举是基于《台湾关系法》与“六项保证”，持续帮助台湾维持足够的自我防卫能力，所以台湾国防部也向美国政府表示感谢。
 
-死亡总数：5,749,846（日新增10,900      人，14天增幅 +29%）
+台湾外交部也在同日发布声明，强调这次军售是拜登政府自2021年上任以来，第二度的对台军售，也是2022年的首次对台军售，此举充分展现了华府对台湾国防的高度重视，也持续近年来美国对台军售常态化的政策，让台湾能即时获取防卫所需装备，有效提升吓阻能力。
 
-**二，全球“疫苗”毒针统计数据**
+据报道，在去年8月的首次对台军售案中，拜登政府核准贩售台湾40门M109A6自走炮丶20辆M992A2系列野战炮兵弹药补给车与一套先进野战炮兵战术数据系统（AFATDS），当时的军售总额是7亿5000万美元。
 
-“疫苗”毒针注射总数：103亿
+参考链接：[https://www.dw.com/zh/%E6%8B%9C%E7%99%BB%E6%94%BF%E5%BA%9C%E4%BA%8C%E5%BA%A6%E6%89%B9%E5%87%86%E5%AF%B9%E5%8F%B0%E5%86%9B%E5%94%AE-%E5%8C%97%E4%BA%AC%E5%BC%BA%E7%A1%AC%E5%9B%9E%E5%BA%94/a-60692312](https://www.dw.com/zh/%E6%8B%9C%E7%99%BB%E6%94%BF%E5%BA%9C%E4%BA%8C%E5%BA%A6%E6%89%B9%E5%87%86%E5%AF%B9%E5%8F%B0%E5%86%9B%E5%94%AE-%E5%8C%97%E4%BA%AC%E5%BC%BA%E7%A1%AC%E5%9B%9E%E5%BA%94/a-60692312)
 
-完全“接种”：42.2亿人
-
-完全“接种”百分比：54.1%
-
-**三，澳洲疫情和“疫苗”数据**
-
-感染总数：2,811,482（今日新增31,064人）
-
-死亡总数：4,373人（今日新增 70人）
-
-每万人感染人数：1090.1839人
-
-“疫苗”毒针注射总数：51,590,445 （今日新增217,265   针）
-
-完全“接种”：19,332,593人
-
-第二针“接种”百分比：78.9%
-
-16岁以上人口接种至少一剂疫苗的比例：&gt;95%
-
-16岁以上人口接种至少两剂疫苗的比例：93.8%
-
-加强针总数：9,182,529（日新增：184,868针）
-
-**四，第三针的未来**
-
-现在澳洲民众处在轰轰烈烈打第三针的阶段，第三针增长速度领先于很多国家。如下图各国每百人加强针注射数量曲线，绿色曲线为澳大利亚，其陡峭程度最大。加强针的效果如何，加强针接种水平远远大于澳洲的英国数据可以用来借鉴和预测。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/6-9.png)
-[下面这封信是英国民众通过信息自由法案获得](https://stevekirsch.substack.com/p/negative-vaccine-efficacy-example)的英国布莱普教学医院（Blackpool teaching Hospital）的住院患者中的疫苗接种统计数据。从信中的数据推算可知，住院病人中多达130/182 = 71%的患者是注射了加强针的病人。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/11-4.png)
-但英国布莱普地区的第三针接种率仅有44.9%，如下图所示。这71%和44.9%之间的巨大差距
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-7.png)
-英国布莱普地区的第三针接种率仅有44.9%，如下图所示。这71%和44.9%之间的巨大差距正说明了加强针注射不仅不能减轻病情，反而使得住院率几乎翻倍。 让我们看一下英国政府的数据：
-![](https://assets.gnews.org/wp-content/uploads/2022/02/14-1.png)
-如上图所示，今年1月份的数据，每十万人感染率各年龄组的对比，可以看到，18岁以上的各年龄组的感染率都是打2针及更多疫苗毒针的人有更高的感染率。
-
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
-
-数据来源：
-
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+素材采编：幽蘭自得
+编辑：老孙
+发布：爱放飞
 
  
 

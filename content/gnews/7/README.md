@@ -2,36 +2,41 @@
 ---
 
 
-## 中共国地方债窟窿庞大，借新还旧难以为继
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1981771/)
+## 单伟建用虚假无担保票据大肆攫金
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/1981874/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+加拿大温哥华扬帆农场 薇文viven
 
-整理：Eileen（围剿维尼熊）
-编辑：文泓
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-614.png)
-据凤凰网2月9日报道，近日，中共国财政部通报2021年地方政府债券发行和债务余额情况。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/a-7-edited.png)图片来源：asia times
 
-**2021****年1-12月**，全国发行新增债券43709亿元；全国发行再融资债券31189亿元，**合计全国发行地方政府债券74898亿元。**
 
-地方政府债券平均发行期限11.9年，其中一般债券7.7年，专项债券14.2年。地方政府债券平均发行利率3.36%，其中一般债券3.26%，专项债券3.41%。
+单伟建用虚假的担保票据，从 “PAG 太盟集团”攫取资金，倒手到自己名下的上市公司。
 
-**2021****年1-12月，地方政府债券到期偿还本金26685亿元，其中发行再融资债券偿还本金23019亿元**、安排财政资金等偿还本金3666亿元。地方政府债券支付利息9280亿元。
+单伟建 2021年4月在开曼群岛注册成立了一家名为“戈壁收购”的空壳公司，随即在纳斯达克上市。承销商三家：花旗银行 (Citibank)、高盛亚洲 (Goldman Sachs (Asia) L.L.C. ) 和瑞银投资 (UBS Investment Bank) 。
 
-**截至2021年12月末，全国地方政府债务余额304700亿元。**其中，一般债务137709亿元，专项债务166991亿元。政府债券303078亿元，非政府债券形式存量政府债务1622亿元。地方政府债券剩余平均年限7.8年，其中一般债券6.3年，专项债券9.0年；平均利率3.51%，其中一般债券3.51%，专项债券3.51%。
+上市后共募集资金约$2.87亿美元，其中包括三大承销商超额配售的 $542.5万美元，全部进入单伟建的私人信托账户，委托美国新成立的“大陆股票转让&信托公司” (Continental Stock Transfer & Trust Company)进行管理，没留一分钱给“戈壁收购”。“戈壁收购”如何维持经营?
 
-天量的地方债窟窿，经济濒于崩溃，中共拿什么来弥补？唯一的办法就是稀释十四亿人民的财富，开动印钞机“借新还旧”、继续量化宽松。
+1、“戈壁收购” 发行 “无担保票据” 给 PAG 太盟集团，立即套现 $100万美元，支付管理人员薪酬。这一票据无利息，若“戈壁收购”在两年内无法实现借壳上市的发行目的，则无需偿还欠款， “太盟集团”将全部免除其债务。
 
-参考链接：[截至去年12月末 全国地方政府债务余额304700亿](https://i.ifeng.com/c/8DUqhYSP6HL)
+2，”戈壁收购“向“太盟集团”出售10,851份 “私募认股权证” ，为公司带来了10.85万美元的进账，作为公司维护费用。
 
-*发布：tianzhihuan*
+“PAG 太盟集团” 将这些债务以“内保外贷”形式，通过国内金融机构，转嫁到中国老百姓身上。此外 “PAG 太盟集团” 还从投资国内各行业获得巨额利益。
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+郭文贵先生揭露盗国贼们玩巨额的虚假票据游戏，这只是九牛一毛。每个中国百姓身上都插着抽血管，财富被多重抽吸，通过无数像“戈壁收购”这样的公司，流入这些盗国贼家的私人信托账户，背上的是子子孙孙还不完的沉重债务。
+
+不灭中共，天理难容！
+
+参考资料：
+
+[https://www.sec.gov/Archives/edgar/data/0001854593/000110465921047559/filename1.htm](https://www.sec.gov/Archives/edgar/data/0001854593/000110465921047559/filename1.htm)
+
+[https://www.sec.gov/Archives/edgar/data/1854593/000110465921093691/tm2122403d1\_8k.htm](https://www.sec.gov/Archives/edgar/data/1854593/000110465921093691/tm2122403d1_8k.htm)
+
+[INVESTMENT MANAGEMENT TRUST AGREEMENT](https://contracts.justia.com/companies/gobi-acquisition-corp-13143/contract/186384/)
+
+* * *
+
+编译撰稿：薇文viven 编辑发稿：硫酸羟氯喹64
 
  
 

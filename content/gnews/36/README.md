@@ -2,39 +2,39 @@
 ---
 
 
-## 彭帅受访照片露出背后监视人员
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1980985/)
+## 喜剧演员希瑟·麦克唐纳在演出期间倒地后颅骨骨折
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1981251/)
 
-作者：纽约香草山 医疗部 – 云豹
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-2月7日，法国一家媒体刊出了一篇专访彭帅的文章。该媒体是在申请采访彭帅多日后，在冬奥开幕的前一日意外获得采访批准的。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-930-e1644435355733.png)图片来源：网络
+2月5日，周六晚7点，51岁的喜剧演员希瑟·麦克唐纳在亚利桑那州坦佩市的一场脱口秀即兴表演中突然仰面倒地后颅骨骨折。
 
-当日，彭帅在中共奥委会办公室主任王侃陪同下，在北京冬奥委会隔离饭店内接受闭门采访。访谈中，彭帅否认了之前对中共国务院前副总理张高丽性侵的指控，并宣布将要退役。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-16.jpg)
-但是，2月8日，一张访谈时的照片被意外曝光，在照片的镜子中，出现了两位隐藏在屋内的男性影像。有一位男子身着白衣，双手交叉抱在胸前，直接面对彭帅站立，明显在监视彭帅的举动。
+在她不到三分钟的表演里，她说：”我不需要吹牛，我不在乎，我想让你们知道，我打了两针，加强剂，流感疫苗，我也打了带状疱疹疫苗，而且我现在还有月经，是的（狂欢状）。我还去旅游，去了墨西哥两次，演出，见人，从未感染过Covid。无疑，耶稣最爱我，真的，很好，很好….啊…（轰然倒地）”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-931-e1644435396522.png)图片来源：网络
+顿时观众席传来一阵阵笑声，估计都以为演员在舞台上演戏吧。 这真是一场意外的幽默讽刺剧，充满喜剧性。麦克唐纳本想讽刺那些不打疫苗者，沒想到自己却因疫苗副作用突发倒地。
 
-在法国媒体刊出彭帅的访谈报导后，外界普遍怀疑彭帅当天是否是在自由意志下表达自己的想法。8日曝光的访谈照片，为外界的怀疑做出了最好的证明。
+耶稣最爱她，给她开了一个最大的玩笑。可笑，更可悲。她自己的无知，导致了可悲的结果。她没有被病毒感染击倒，却被疫苗副作用击倒。
 
-参考链接：
-1. [彭帅受访照片露出背后监视人员](https://news.ltn.com.tw/news/world/breakingnews/3822791)
-2. [彭帅受访照片露出背后监视人员](https://news.ltn.com.tw/news/world/paper/1499382)
+根据周日在她的官方Facebook页面上发布给粉丝的一条消息，麦克唐纳于2月4日星期五晚上在Tempe Improv演出，没有发生任何事故。她周六早上和儿子一起度过了平静的时光。周六晚上7点，麦克唐纳开始她的即兴表演，她在舞台上大约3分钟，突然倒下 。随后，麦克唐纳被送往当地一家医院，在那里进行测试以确定导致她崩溃的原因，到目前为止，测试没有发现可能导致这一突发事件的潜在医疗问题。麦克唐纳还接受了COVID-19病毒检测，结果为阴性。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
+祝愿她早日康复，早日清醒，也希望更多人能因此喜剧而清醒过来。
 
-总编：飞虹
-编辑：飞虹
-校对/发稿：Hetangyuese
+文章观点仅代表作者，与Gnews平台无关
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+参考资料：[https://amp.tmz.com/2022/02/08/heather-mcdonald-fainting-collapsing-on-stage-video/](https://amp.tmz.com/2022/02/08/heather-mcdonald-fainting-collapsing-on-stage-video/)
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+[https://news.yahoo.com/comedian-heather-mcdonald-suffers-skull-221613281.html](https://news.yahoo.com/comedian-heather-mcdonald-suffers-skull-221613281.html)
+
+作者：洛杉矶盘古农场 — 郭友(文苏)
+
+编审：洛杉矶盘古农场 — 心照
+
+发布：洛杉矶盘古农场 — 子萍
 
 
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

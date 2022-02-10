@@ -2,58 +2,34 @@
 ---
 
 
-## 辉瑞和FDA未能进一步推迟发布COVID疫苗安全数据
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1981313/)
+## 【秘翻在线】拜登政府面临着取消口罩规定的压力
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1981506/)
 
-**编译：Jenny Ball**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip辉瑞和FDA未能进一步推迟发布COVID疫苗安全数据.png)图片来源：childrenshealthdefense.org
-上周，一名联邦法官拒绝了美国食品药品监督管理局和辉瑞公司提出的推迟法院下令发布与辉瑞公司 COVID 疫苗批准有关的近 40 万页文件的投标。
+**撰稿：Grace**
 
-周三，一名联邦法官拒绝了美国FDA 在辉瑞公司的支持下提出的，推迟法院下令发布与辉瑞公司 COVID 疫苗批准有关的近 400,000 页文件的投标。
+**校对：Grace**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-07-at-3.47.40-PM-1.jpeg)图片来源：bronx.news 12
+据《每日邮报》2月9日报道，在民主党领导的四个州本周早些时候开始取消口罩限制后，拜登政府面临着取消口罩规定的压力。
 
-美国德克萨斯州北区地方法院的联邦法官马克·皮特曼（Mark Pittman）在 2 月 2 日发布的命令中表示，FDA 必须根据以下披露时间，表发布相关文件的编辑版本：
+据报道，加利福尼亚州、康涅狄格州、特拉华州、新泽西州和俄勒冈州的民主党州长周一都宣布计划取消室内和/或学校的口罩规定。
 
-每份 10,000 页，于 2022 年 3 月 1 日和 4 月 1 日或之前发布。
+加州(California)州长加文·纽森(Gavin Newsom)宣布，该州将在下周取消对接种疫苗者的室内口罩规定。
 
-每份 80,000 页，将于 2022 年 5 月 2 日、6 月 1 日和 7 月 1 日或之前发布。
+康涅狄格州(Connecticut)州长内德·拉蒙特(Ned Lamont)说，学校和托儿所的全州口罩规定将于2月28日结束。
 
-70,000 页将于 2022 年 8 月 1 日或之前发布。
+特拉华州(Delaware)州长约翰·卡尼(John Carney)宣布，普遍的室内口罩规定将于周五结束，学校的规定将于3月31日到期。
 
-每月 55,000 页，之后每个月的第一个工作日或之前，直到文件的发布完成。
+新泽西州(New Jersey)州长菲尔·墨菲(Phil Murphy)说，他将在3月7日取消全州范围内的在校学生的口罩命令。
 
-该命令授予 FDA 将多余页面作为此发布时间表的一部分“存储”的能力——这意味着，如果该机构在任何给定月份超过其每月配额，它可以将这些额外页面应用到下一个月。
+俄勒冈州（Oregon）州长凯特·布朗(Kate Brown)说，她的州的室内和学校范围的口罩规定将于3月31日结束。
 
-上周的裁决是正在进行的法庭案件的最新进展，该案件始于 2021 年 8 月，由医生和公共卫生专业人员组成的公共卫生和医疗专业人员，根据信息自由法透明度提出的请求。
+白宫新闻秘书珍·普萨基(Jen Psaki)周二说: “我们希望各州的领导人会看一看关于正在发生的事情的科学和数据。他们将对当地学区做出决定。”
 
-FDA 辩称它没有足够的人员来处理数十万页文件的编辑和发布，声称它每月只能处理 500 页。
+报道称，美国的中共病毒Covid-19病例在过去七天里下降了43%，每天记录267,765例，低于一周前的469,770例。
 
-这意味着文件缓存在大约 75 年内不会完全释放。
+**新闻来源：[Biden Under Pressure to End Mandates as Dem States Lift Restrictions](https://www.newsmax.com/politics/covid-19-mandates-masks-biden/2022/02/08/id/1056045/)**
 
-在他 1 月 6 日的命令中，法官拒绝了 FDA 的要求，而是要求该机构在 1 月 31 日之前发布 12,000 页文件，此后每月再发布 55,000 页文件。
-
-辉瑞回应 1 月 6 日的命令，于 1 月 21 日向法院提交了一份备忘录，要求介入此案，以“确保根据 FOIA 豁免披露的信息得到充分保护，因为 FDA 遵守本法院的命令。”
-
-辉瑞声称支持披露这些文件，但要求介入此案，以确保法律上免于披露的信息不会被“不当披露”。
-
-（点评：告知疫苗真正的危害，在辉瑞看来就是“不当披露”了！）
-
-正如《捍卫者》（ The Defender ）报道的那样，如果该请求获得批准，也意味着下一批文件的发布将进一步延迟，直到 5 月 1 日。
-
-2021 年 11 月制作的第一批文件总共只有 500 页，显示在辉瑞-生物科技COVID 疫苗发布后的前 90 天内，有超过 1,200 例与疫苗相关的死亡。
-
-**评论：**
-
-**文章题目已经点出了这是一个多么滑稽的世界：辉瑞千方百计推迟发布COVID 疫苗安全数据，但代表政府监督的机构FDA，不是更应该要求制药商尽快发布这些重要信息已保证人民生命安全吗？如果辉瑞需要75年发布这些关键信息，难道FDA不能等到75年后拿到全部信息再决定是否对公众有危害？当FDA和制药上穿一条裤子时，你放心吗？**
-
-**新闻来源**：[childrenshealthdefense.org][Pfizer, FDA Lose Bid to Further Delay Release of COVID Vaccine Safety Data](https://childrenshealthdefense.org/defender/pfizer-fda-lose-bid-delay-release-covid-vaccine-safety-data/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=6d68a076-fda5-4725-ac9e-58b0d499c706)
-
-* * *
-
-***审核：文乐
-校对：小东
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH..jpeg)
+[Biden v the blue states: Psaki says it is up to school districts to decide mask mandates and there are leaders STOPPING them after four Democrat governors dropped classroom rules](https://www.dailymail.co.uk/news/article-10489735/Biden-urged-roll-COVID-restrictions-FOUR-Dem-governors-announced-end-school-masking.html)
 
  
 

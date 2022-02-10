@@ -2,151 +2,31 @@
 ---
 
 
-## 两年来，CDC无视数据，甚至撒谎,将自然免疫当成阴谋论
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1981794/)
+## 美41位参议员敦促贸易代表建立全面对华关税程序
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1981883/)
 
-[https://gtv.org/video/id=6204153b585ecc15d73f7d61](https://gtv.org/video/id=6204153b585ecc15d73f7d61)
+**撰稿：日本东京方舟农场  幽蘭自得**
 
-Rep. Thomas Massie
-托马斯·马西议员
+据《美国之音》2月9日报道，美国四十一位跨党派的联邦参议员致函美国贸易代表戴琪(Katherine Tai)，敦促她建立一个更全面的程序，将一些中共国进口产品排除在惩罚性的关税之外。这些参议员表示，这不仅会缓解这些关税给美国商家带来的负面影响，而且会使它们有更多的时间和资源把供应链转移出中国并使制造业回流美国。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-149.jpg)图为2019年6月美中贸易战期间，洛杉矶港堆放的集装箱（图片来自Frederick J. Brown/AFP via Getty Images）
+据报道，以俄亥俄州共和党籍参议员罗布·波特曼(Rob Portman)和特拉华州民主党籍参议员汤姆·卡珀(Tom Carper)领衔的41位参议员2月7日在信中表示，他们强烈支持为美国制造商、生产商和进口商有关减免对中共国产品征收的关税的申请建立一个全面的程序。
 
-One of the biggest scandals during this whole pandemic, is the cover up
-在整个大流行期间, 最大的丑闻之一就是掩盖
+这些参议员认为，在新冠疫情还在持续的情况下，这个关税排除程序的“狭隘性质”，“可能会阻止陷入困境的企业和制造商获得他们迫切需要的救济”。他们说，根据最初的排除程序，只有1%的进口产品有资格得到考虑。
 
-That’s been committed by Fauci and the CDC, especially the CDC
-福奇和疾病预防控制中心已经承认，尤其是疾病预防控制中心
+“我们认为，为受关税影响的企业提供一个申请有限但可延续的关税减免机会的全面性的排除程序，是我们反击中（共）国不公平贸易做法战略中一个有价值的组成部分，”他们在信中写道。“除了减轻关税对美国企业的负面影响外，它还将让这些企业有更多的时间和资源，将供应链移出中（共）国，并将制造业重新带回美国。”
 
-about the effectiveness of immunity that’s conferred after a natural infection
-关于自然感染后赋予的免疫力的有效性
+他们认为，重启一个全面性的关税排除程序既可以使美国继续对中共施压，同时也可以减轻关税给美国商家和工人带来的经济痛苦。
 
-after you recover from that
-在你从自然感染中恢复后
+不过，拜登总统1月20日在一次记者会上曾表示，他知道有些商业团体正强烈要求他开始降低川普政府对中共国商品征收的关税，而且美国贸易代表戴琪正在就这个议题进行努力，但他同时表示，解除对中共国商品的关税的时机还未成熟。
 
-they’ve completely ignored that
-他们完全忽略了这一点
+川普政府2018年根据1974年《贸易法》第301条的规定开始对价值3千多亿美元的中共国产品加征惩罚性的关税。尽管美中双方在2020年1月签署了第一阶段贸易协议，并批准了对一些产品进行关税豁免，但是相当一部分的关税并未取消。拜登政府上台后，美国贸易代表办公室对美中贸易关系进行了全面的审议，并在去年10月4日宣布对中共国产品恢复“有针对性的、潜在的”关税排除程序。
 
-They want everybody to get vaccinated
-他们希望每个人都接种疫苗
+参考链接：
+[https://www.voachinese.com/a/us-china-trade-tariffs-20220208/6433060.html](https://www.voachinese.com/a/us-china-trade-tariffs-20220208/6433060.html)
 
-even those who don’t need vaccinated
-即使是那些不需要接种疫苗的人
-
-and the science if you follow the science on this
-关于科学，如果你遵循这方面的科学
-
-The Moderna trial showed there was no benefit of the vaccine to those who recov-ered from infection
-莫德纳试验表明，疫苗对那些从感染中恢复过来的人没有好处
-
-The Pfizer trial showed there was no benefit to those who had recovered from in-fection from the vaccine
-辉瑞的试验表明，疫苗对那些从病毒感染中恢复过来的人没有任何好处
-
-A recent study with 52,000 people at the Cleveland Clinic
-最近在克利夫兰诊所对52,000人进行的一项研究表明
-
-300 plus of whom did not receive the vaccine
-其中1300多人没有接种疫苗
-
-but had prior infection showed that none of them got reinfected, symptomatically
-但之前曾经感染过，结果表明他们没有人再次感染，或有症状
-
-and then if you want to compare the efficacy of immunity from recovering from COVID to that of the vaccine
-然后如果你想比较从 COVID 中恢复的免疫力与疫苗的功效
-
-the biggest study out there is the whole country of Israel
-最大的研究的国家是整个以色列
-
-Tel Aviv University, 6 million participants in this study, 6 million data points
-以色列特拉维夫大学的600万参与者参与了这项研究，600 万个数据点
-
-And it showed there’s virtually no difference actually is it showed a little bit
-它表明实际上几乎没有差异，它显示了一点
-
-but probably not statistically significant, a little bit better
-但可能没有统计学意义，对自然感染的免疫力要好一点
-
-immunity from natural infection and before you all report this
-在你们所有人报告之前
-
-I’m not saying go out and get the virus instead of getting the vaccine
-我不是说出去感染病毒而不去接种疫苗
-
-The vaccine can save lives and certain
-疫苗可以挽救生命和肯定的
-
-but there’s no need, the science shows this
-但没必要，科学证明了这一点
-
-There’s no need to get the vaccine if you’ve already recovered from COVID
-如果您已经从COVID中康复，则无需接种疫苗
-
-And then there’s no need to expose yourself to that danger
-然后就没有必要让自己暴露在那种危险之中
-
-The CDC knows this, they admitted to me on a recorded phone call
-疾病预防控制中心知道这一点，他们通过录了音的电话向我承认了这一点
-
-I’ll be glad to give you that they knew they were misreporting the results of the Pfizer data
-我很高兴告诉你他们知道他们误报了辉瑞数据的结果
-
-Reporter
-记者
-
-Number one you didn’t answer whether or not you’ve been vaccinated
-第一个你没有回答你是否接种过疫苗
-
-Rep. Thomas Massie
-托马斯·马西议员
-
-Well first of all, it’s none of your business
-好吧，首先，这不关你的事
-
-But I’m going to tell you, I’m not vaccinated
-但我要告诉你，我没有接种疫苗
-
-And until there’s some science
-直到有一些科学依据
-
-by the way I have a Master’s of Science degree from MIT
-顺便说一句，我拥有麻省理工学院的理学硕士学位
-
-I’m not a virologist, but I can read data
-我不是病毒学家，但我可以读取数据
-
-Everybody just needs to read it
-每个人只需要阅读它
-
-Don’t put your head in the sand. Look at the data.
-不要把头埋在沙子里，看看数据
-
-I’m not going to get the vaccine until there’s data that shows
-我不会接种疫苗，直到有数据表明
-
-that it will improve upon the immunity
-它会提高免疫力
-
-that’s been conferred to me as a result of a natural infection that I had
-由于我的一次自然感染，而我被授予了这一权利
-
-**原视频链接**[:](https://twitter.com/repthomasmassie/status)[https://twitter.com/repthomasmassie/status](https://twitter.com/repthomasmassie/status)
-
-Date:02/06/2022
-原视频标题: For 2 years, CDC ignored the data and even lied about it to treat natural immunity like a conspiracy theory
-两年来，CDC无视数据，甚至撒谎，将自然免疫当成阴谋论
-原视频日期：2022/02/08
-原视频链接https://twitter.com/repthomasmassie/status/1490783499883847680?s=24
-任务编号：KE392(3699)
-视频时间段 : 0:00-2:34
-
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场- 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+素材采编：幽蘭自得
+编辑：老孙
+发布：爱放飞
 
  
 

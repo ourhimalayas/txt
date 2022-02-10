@@ -2,107 +2,34 @@
 ---
 
 
-## 参议员特德·克鲁兹（Ted Cruz）: 加拿大卡车司机是英雄
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1981507/)
+## “军人在战场上可以是英雄，你们也是英雄”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1981653/)
 
-[https://gtv.org/video/id=620413b0585ecc15d73f7cf2](https://gtv.org/video/id=620413b0585ecc15d73f7cf2)
+#### 编译： Cran
 
-Senator Ted Cruz: The Canadian truckers are heroes
-参议员特德.克鲁兹：加拿大卡车司机是英雄
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/02/16444481951.png)
+Image source: CTV.ca
 
-It is theft on the part GoFundMe.
-这是 GoFundMe 的盗窃行为。
+大使(Ambassador) 桥是一座连结底特律,密歇根州（Detroit, Michigan）和温莎, 安大略省（Windsor，Ontario）横跨美加的最大桥梁，是北美的一条主要的经济动脉。短暂的关闭就马上暴露出其供应链的脆弱性。那曾是卡车司机们熟悉的赖以生存的桥梁，但为了生存和加拿大的未来，他们不得不暂时的关闭它。
 
-Let me say the Canadian truckers are heroes
-让我说加拿大卡车司机们是英雄
+同时浮出水面的是这座桥的拥有者，马特 ·莫伦（Matt Moroun）家族。它与加拿大政府持续了长达数年的斗争。莫伦家族在一份声明中说，贸易需要恢复，他的家庭对“卡车司机和那些在封锁中被抓的人表示同情”。他呼吁官员们“迅速采取行动，以体现相互尊重的方式尽快缓解局势。
 
-They are patriots.
-他们是爱国者
+周二早，那里的交通几乎停止，直到下午晚些时候才开始缓慢恢复。安大略省警方表示，前往美国的交通“受限”。虽然加拿大边境管理局的网站显示大桥仍处于关闭状态，但仍有少量卡车朝着加拿大方向行驶。
 
-and they are marching for your freedom and for my freedom
-他们正在为你的自由和我的自由而游行
+这座以装饰艺术为灵感的桥建于1929年。在当时美加约有四分之一的货物在桥上往来，它与底特律汽车工业的联系延续了几十年。其承载的贸易量几乎相当于美国与英国的总和。
 
-That they are… Those truck drivers that God bless them.
-他们是……上帝保佑那些卡车司机们
+大桥建成时是世界上最长的悬索桥，被称为两国关系的贡品。这座桥的建造者还建造了金门大桥。 然而这座大使桥在金融危机开始数周后开幕，引发了一场漫长的跨境金融灾难。
 
-They are defending Canada, but they are defending America as well.
-他们在保卫加拿大，但他们也在保卫美国
+莫伦家族通过底特律国际桥梁公司于1979年收购了这座桥梁的控股权。莫伦于2020年去世。根据美国人口普查局数据的分析，去年前11个月，这座桥的贸易额为1307亿美元，由此产生了大量通行费。
 
-That is courage on display.
-这是一种勇气的展示。
+大桥的关闭无疑是迄今为止最具经济意义的抗议活动。一开始是对跨境卡车司机强制接种疫苗令的抗议，现在迅速演变成一场范围更广的运动，特鲁多迄今为止拒绝会见抗议者。“每个人都厌倦了新冠病毒，但这些抗议并不是度过难关的途径，”他周一晚上说。
 
-The government doesn’t have the right to force you to comply to their arbitrary mandates,
-政府无权强迫你遵守他们的武断命令
+加拿大汽车制造商协会负责人布莱恩·金斯顿（Brian Kingston）周二在电话中表示：“大桥的关闭将对加拿大经济造成灾难性影响”。汽车行业已经遇到零部件短缺的情况。
 
-They are standing up for freedom.
-他们在为自由挺身而出
+在疫情期间，被限制令困在家里的人们将购买力转向物质商品。所以供应链在创纪录的运输量的重压下嘎吱作响。我们的卡车司机们为了满足市场需求在超负荷的工作着。有些政治家们在议会中埋怨卡车司机却不面对正是他们的强制和限制令引发了这场席卷全球的运动。被特鲁多称为暴民的卡车司机是加拿大的草根，代表了基本的加拿大人的特性。正如一位退伍军人在视频上说的“军人在战场上可以是英雄，你们也是英雄”。
 
-And of course big government hates it, so it is trying to crush them
-当然大政府讨厌它，所以试图粉碎他们
-
-Of course, the corporate media hates it, and it is trying to silence them.
-当然媒体讨厌它，并试图压制他们的声音。
-
-And big tech… look at what GoFundMe did
-还有大科技公司……看看 GoFundMe 做了什么
-
-People gave 10 million dollars to support the freedom convoy
-人们捐出 1000 万美元支持自由车队，
-
-because they were so proud of the courage of these truck drivers
-因为他们为这些卡车司机的勇气感到骄傲
-
-And the thieves and the Silicon Valley decided we don’t like your politics.
-而这些小偷们和硅谷认为我们不喜欢你的政治
-
-So A: we are going to take your money,
-所以 A：我们会拿走你的钱 ，
-and then B: we are going to give it to people we like
-然后 B：我们会把钱给我们喜欢的人
-
-Listen, if anyone else did that, that is called theft
-听着，如果其他人这样做了，那就叫盗窃
-
-And so today I sent a letter to the federal trade commission
-所以今天我给联邦贸易委员会（FTC）写了一封信
-
-asking that the FTC open an investigation into GoFundMe
-要求FTC对 GoFundMe 展开调查，
-
-into whether they have committed deceptive trade practices
-调查他们是否有欺诈性贸易行为
-
-Because when people gave money,
-因为当人们给钱的时候，
-they gave money under the promise it would go to the freedom convoy
-(GoFundMe)承诺把钱给自由车队，
-
-not to whatever left-wing political ideology (that) GoFundMe, another Silicon Valley company, support
-而不是给由一家硅谷公司（GoFundMe）所支持的任何左翼政治意识形态
-
-They are deceiving consumers and it is wrong
-他们是在欺骗消费者，这是错误的
-
-**原视频链接**: [https://twitter.com/sentedcruz/status](https://twitter.com/sentedcruz/status)
-
-Date: 2/6/2022
-原视频标题: Senator Ted Cruz: The Canadian truckers are heroes
-参议员特德·克鲁兹（Ted Cruz）: 加拿大卡车司机是英雄
-原视频日期：2/6/2022
-原视频链接: https://twitter.com/sentedcruz/status/1490461802639020036?s=24
-任务编号：KE390(3690)
-视频时间段 : 0:00-01:00
-
-中听校：洛杉矶盘古农场 -海潮
-翻译：洛杉矶盘古农场 – 海潮
-翻译终校：洛杉矶盘古农场 – Freeearth
-字幕+视频制作：洛杉矶盘古农场 –青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[Source](https://www.bnnbloomberg.ca/how-blocking-one-bridge-shut-down-a-quarter-of-canada-u-s-trade-1.1720308)
 
  
 

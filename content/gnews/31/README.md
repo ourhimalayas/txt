@@ -2,50 +2,28 @@
 ---
 
 
-## NBC体育分析师因未知原因提前从奥运会归国
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1981267/)
+## 立陶宛、澳大利亚合作，共同对抗中共贸易胁迫
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1981363/)
 
-编译： Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2022/02/eed963fe-6e23-4919-8690-0c125d227e0a_cx0_cy10_cw0_w1023_r1_s1.jpg)图片来源：美国之音
+据美国之音2月9日报道，澳大利亚和立陶宛两国外长9日会晤，同意加强合作应对战略性挑战，尤其是共同应对来自中共国的压力。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/20220209072007400.png)图片来源：aboluowang.com
+澳大利亚与中共国关系恶化后，北京针对澳大利亚的煤炭、葡萄酒和一些农产品设立的正式和非正式的贸易壁垒，令澳大利亚出口商损失了几百亿美元。立陶宛同意台北直接以台湾的名义在首都设立办事处之后，也遇到了中共国的贸易限制。澳大利亚此前宣布，作为第三方加入欧盟，在世界组织针对中共国的贸易胁迫提出申诉。
 
-据美联社报道，这位广受欢迎的 NBC 体育分析师迈克·蒂里科（Mike Tirico）将在周一晚间播出后返回美国。他最初定于周四之前都在中国。
+中共把自己管控的14亿奴隶和人票，并巨大的经济市场作为工具胁迫其他国家，澳大利亚和立陶宛首当其冲，但不会是最后被中共胁迫的国家。只要中共存在一天，奴隶制产生的利益都是西方贪婪的吸血者所需要的。全世界理念相同的国家需要团结一致，维护以规则为基础的国际秩序、自由和开放的贸易透明度以及安全与稳定，非常重要。同时必须把中共踢出世界贸易秩序，并推翻中共的集权势力，才可能一劳永逸地免除全球威胁。
 
-根据同一份美联社报道，NBC 官员认为，蒂里科的“日程安排可能会根据 COVID-19 和其他因素发生变化”。 虽然目前还不清楚赛程为何突然改变，但值得注意的是，蒂里科在奥运报道中讨论了中国对少数民族的种族灭绝。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unknown-18.png)图片来自原文
-
-“与这届奥运会有关的一切和每个人都面临着问题。美国政府不在这里，今年秋天加拿大、英国和澳大利亚加入了外交抵制，由于中国的人权记录和美国政府宣布中国共产党对西部新疆的维吾尔穆斯林人口实施种族灭绝罪的声明， 据《媒体》（Mediaite）报道，蒂里科在共产主义独裁统治下的奥运会开始时说道。 他还提到，中国是“新冠病毒起源的国家”。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unknown-1-7.png)图片来自原文
-
-推文内容： NBC奥运会/蒂里科现在就中国政府做了一个相当实质性的报道，包括彭帅。
-
-显然，为何蒂里科提前几天返回美国尚不清楚，我相信会有一个非常合理的解释。
-
-表面上，他将参与 NBC 的超级碗现场转播。但是，如果我们不问是否与他报道内容有联系，那就太愚蠢了。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unknown-2-4.png)推特标语：种族灭绝运动会，共产主义暴行。（图片来自原文）
-
-在与中共打交道时，美国公司是出了名的软弱。他们宁愿卑躬屈膝也不愿挺起脊椎。
-
-蒂里科在他的平台上讨论了中共可怕的人权记录，他现在要回家了，要 尽多地阅读这方面内容！
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unknown-3-4.png)推文：ESPN明星对中共国人权记录的猛烈评论。（图片来自原文）
-
-希望越来越多的人通过他们的平台来关注中共践踏人权的问题。这是人们希望看到的。
-
-评论：中共可以举国和外交官当面指责美国的人权和种族歧视，但是，如果别人指出他们已经有证据证明的种族灭绝罪，活摘人体器官，中共就恼羞成怒指责的别人是种族歧视。没有见过中共这么无耻的。
-
-**参考资料：**[dailycaller][Mike Tirico Is Returning Early From The Olympics For Unknown Reasons](https://dailycaller.com/2022/02/07/mike-tirico-returning-early-olympics-nbc-china-genoice-comments/)
+新闻参考链接：[https://www.voachinese.com/a/lithuania-australia-china-cohersion-20220209/6433805.html](https://www.voachinese.com/a/lithuania-australia-china-cohersion-20220209/6433805.html)
 
 * * *
 
-*审核：文乐
-校对：小东
-发稿：信心的选择*
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH..jpeg)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

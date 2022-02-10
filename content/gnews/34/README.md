@@ -2,47 +2,42 @@
 ---
 
 
-## 冬奥会运动员抨击COVID隔离酒店条件恶劣
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1981176/)
+## 英国加入欧盟-中共国关于立陶宛事件的世贸组织争端解决机制
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1981295/)
 
-**评论：***冬奥会既远远超过中共的服务能力，也突显中共不以人为本的行事方式，所以远离中共是最优的选项。*
+据《路透社》记者：[Emma Farge](https://www.reuters.com/authors/emma-farge/)，2022年2月8日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-932-e1644436461967.png)图片来源：REUTERS/Jason Lee
+日内瓦，2月7日（路透社）——英国将与美国和澳大利亚一起，支持欧盟在世界贸易组织就北京对立陶宛的所谓贸易限制而进行的诉讼，英国贸易部长称此举是反对“胁迫性贸易”做法。
 
-据《福克斯新闻》记者：[Ryan Gaydos](https://www.foxnews.com/person/g/ryan-gaydos)，2022年2月5日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-926-e1644433449235.png)俄罗斯运动员瓦莱里娅-瓦斯涅佐娃在克拉斯诺亚尔斯克2019年冬季大运会女子10公里追逐赛中。图片来源：Sergei Bobylev/TASS via Getty Images
-冬奥会运动员们说中共冠状病毒隔离酒店缺乏可食用的食物和训练设备，他们正在等待病毒测试结果，渴望离开隔离地点。
+欧盟上个月在世贸组织发起挑战，指责中共国对立陶宛的歧视性贸易做法，称其威胁到欧盟单一市场的完整性。
 
-俄罗斯冬季两项运动员瓦列里娅-瓦斯涅佐娃和比利时人金-梅勒曼斯在北京奥运会上对隔离条件进行坦诚的指责。
+Anne-Marie Trevelyan在一条推文中表示： “我们将要求第三方加入欧盟对这些措施的世贸组织磋商，以确保我们共同打击贸易中的经济胁迫行为。”
 
-俄罗斯运动员瓦莱里娅-瓦斯涅佐娃之前参加过克拉斯诺亚尔斯克2019年冬季大运会女子10公里追逐赛。
+美国、澳大利亚和台湾已经表示打算加入磋商。
 
-“我的胃很痛，我的脸色很苍白，我的眼睛周围有巨大的黑眼圈。我希望这一切都能结束。我每天都在哭。我非常累。” 瓦斯涅佐娃在Instagram的视频中说。
+美国贸易代表发言人亚当-霍奇说，拜登政府“深切关注”中共国对立陶宛商品和与立陶宛有关联的欧盟商品的歧视性贸易做法。
 
-瓦斯涅佐娃仔细检查了她在酒店收到的膳食，在Twitter上发布了她“已经吃了五天的早餐、午餐和晚餐”——托盘上有普通意大利面、橙色酱汁、焦肉、土豆，但没有蔬菜。
+霍奇在1月27日的声明：“我们将继续与立陶宛、欧盟以及志同道合的盟友和伙伴合作，回击中共国的胁迫性经济和外交行为，美国将请求加入这些世贸组织磋商，以声援立陶宛和欧盟。”
 
-她说“很难”吃下大部分食物，她的体重正在迅速下降。
+维尔纽斯正处于中共国的压力之下，中共国声称民主统治的台湾是其领土，要求撤销去年允许该岛以自己的名义在首都开设事实上的大使馆的决定。
 
-瓦斯涅佐娃因COVID隔离治疗而被迫错过奥运比赛。
+中共国已经降低与波罗的海国家的外交关系，并同时向跨国公司施压切断关系。
 
-梅勒曼斯在本周早些时候的含泪视频引发了大量关注。视频发布后，她被从隔离酒店带回奥运村的隔离区。她被阻碍与外界信息的交流。
+世贸组织允许双方在60天内进行协商，以达成解决方案。如果没有达成协议，欧盟可以选择发起正式的争端解决机制，成立一个世贸组织小组来研究其对中共国的主张。
 
-2021年12月10日，在德国温特贝格举行的BMW IBSF世界杯Bob和Skeleton 2021/22比赛中，比利时梅勒曼斯参加了女子滑板比赛。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-927-e1644433484135.png)梅勒曼斯在BMW IBSF世界杯Bob和Skeleton 2021/22比赛中。图片来源：Dean Mouhtaropoulos/Getty Images
-她反馈，被带到奥运村后，感觉更安全了，但仍需要七天的测试才能解除隔离。
+一位驻日内瓦的贸易官员认为，其他西方国家的参与，假如没有受到北京的阻挠，将对欧盟的案件有“帮助”。
 
-“我们的主要目标是尽快将梅勒曼斯送回延庆的奥运村。” 比利时奥运官员Olav Spahl周三说。“我们非常高兴现在已经成功实现了这一目标。我们理解COVID措施对于保障运动会参与者的安全和健康是必要的，但我们认为运动员应该始终是这种服务的重点。”
+他说：“如果有其他成员代表代表你争论并提出论点，我认为小组会考虑这个问题。”
 
-德国队也在寻求更好的生活条件。德国代表团团长Dirk Schimmelpfennig在三届北欧综合运动会金牌得主Eric Frenzel检测出阳性后，对 “不合理” 的生活条件进行了抨击。Schimmelpfennig说： “德国希望有更大、更卫生的房间，以及定期运送食物。”
+原文连接：[https://www.reuters.com/world/britain-joins-eu-china-wto-challenge-over-lithuania-2022-02-07/](https://www.reuters.com/world/britain-joins-eu-china-wto-challenge-over-lithuania-2022-02-07/)
 
-这种压力似乎在某些方面得到了回报。
+翻译：洛杉矶盘古农场 – TrueSky
 
-俄罗斯冬季两项队发言人Sergei Averyanov说：“瓦斯涅佐娃在投诉后，得到了更好的饮食。”他补充：“她将得到一辆固定使用的自行车和更好的膳食，包括鲑鱼、黄瓜、香肠和酸奶。”
+校对：洛杉矶盘古农场 – Mike Li
 
-文章来源：[https://www.foxnews.com/sports/winter-olympic-athletes-conditions-covid-quarantine-hotels](https://www.foxnews.com/sports/winter-olympic-athletes-conditions-covid-quarantine-hotels)
-
-翻译：洛杉矶盘古农场 – Mike Li
-校对：洛杉矶盘古农场 – 轰炸机
-评论：洛杉矶盘古农场 – 轰炸机
 编辑：洛杉矶盘古农场 – WenXiong
+
+发布：洛杉矶盘古农场 – 子萍
 
 
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)

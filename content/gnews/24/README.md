@@ -2,102 +2,31 @@
 ---
 
 
-## 北京冬奥俄罗斯普京团队住的酒店16人确诊感染
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1981436/)
+## 七哥谈中共满骨子都是种族主义（2022-02-06摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1981607/)
 
-[https://gtv.org/video/id=6202ad8f585ecc15d73f18ff](https://gtv.org/video/id=6202ad8f585ecc15d73f18ff)
+文编：Hima
+听写：叮叮
+视频：七哥
 
-**郭文贵**
-**Miles Guo**
+来源：郭先生2022-02-06直播08:33:20摘录
 
-他（普京的团队）住华尔道夫酒店
-He (Putin’s team) was staying at the Waldorf Astori Hotel
+就是所有的尿、便他都收。在北朝鲜人眼里边儿，我这样的人就不是一般人嘛，基因优秀，是吧？还有，他要了解的这个人，为什么14亿中国人有这样的人，是吧？他肯定收集。那就像人家到咱们中共国，就北朝鲜看待人家这人就是都属于精英。当年奥运会的时候，1996年还是98年那次，还是什么？你看那个中央的李瑞环，李瑞环那小木匠在那说：“我们要把全人类的最优秀的人种和精英聚集在地球的一个点上，让这个点上所有聚会之后散发的能量，还有这些精英中的精英，最健康的基因全都给它裁下来”。小木匠都有这脑子！当时那时候你看我才多大？我就很感兴趣为啥要这个？他说：“如果要让他们跟咱们这个能交配出来、生产出更优秀的人种，那真是一种大的财富。” 当时张百发是北京副市长，那是最有权力的人。张百发说，“这些人来了以后，能在他身上拿点啥就拿点啥”。当时那个体育局局长，我都忘了叫什么，叫袁伟民还是叫什么？那个货傻乎乎的在那儿，真的是就跟个太监似的。然后在那12345数了好几条儿，最后让那个李瑞环给打断，说太多了，你先把这个奥运会申请下来再说。就共产党这个邪恶就跟北朝鲜一样的，就是你来的这个叫运动健儿。这些共产党老杂毛们，他们是人体崇拜、优秀基因崇拜，在人种上绝对有阶级主义。再一个，在所有的看的这些人，他跟我们常人是不一样的。你让亨利小哥跟共产党这么多年，你让他给你回答回答，共产党人怎么看待白人和黑人？怎么看待我们自己人？怎么看待我们农村人和城市人？怎么看待党外人和党内人？他满骨子都是阶级，满骨子都是种族主义。这是真实的共产党，所以说这些运动员来，他是又恨又爱。这就是共产党，谢谢！
 
-查查华尔道夫在哪？一会儿叫墨镜发出来
-Where is the Waldorf Astoria? Tell Sun Glasses to map it out later
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-昨天下午1点钟
-At one o’clock yesterday afternoon
+**关注我们**
 
-他六个人染上了病毒
-Six people have infected by the virus
+Discord 账号
 
-普京的团队六个人
-Six members in Putin’s team
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-是俩保镖、四个陪同的官员
-Two bodyguards and four accompanying officials
+Gettr 账号
 
-然后在六个小时前，也就是在四个小时前
-Then 6 hours ago, it’s about 4 hours ago from now
-
-大概确定是十个
-about 10 was confirmed (infected)
-
-也就是刚刚的咱们直播的一个小时前
-just one hour before our live broadcast
-
-七哥在那得瑟在那唱歌的时候
-while I was showing off and singing
-
-他已经确定是六个
-There is six (people infected with the virus) that has been already confirmed
-
-很不幸的事情在华尔道夫里面已经死了仨人了
-Unfortunately, 3 people died at the Waldorf Astoria
-
-死了仨人了
-Three people died
-
-全部是抽，暴抽而死啊
-All of them convulsed, and died from severe convulsion
-
-但我不确定这仨人到底是普京的人呢还是华尔道夫的什么人，是吧？
-But I’m not sure if these three are Putin’s people or the Waldorf’s, right?
-
-很恐惧，很恐惧！
-It’s horrible, very scared!
-
-这个病很有可能
-This virus is very likely
-
-这个病毒这回像打那个拐弯的子弹一样直接拐回北京城“冬眠会”现场去了。
-This time, this virus just like that turning a corner bullet, is very likely to turn directly back to the scene of the “hibernation meeting” （Winter Olympic）in Beijing
-
-兄弟姐妹们
-Brothers and sisters
-
-我们不希望任何人死亡
-We don’t want anyone die
-
-但是如果说坏人死了, 实在我们也，我们不想鼓掌
-However, if bad guy dies, we would not applaud
-
-但是我们实在也不值得悲伤，是吧？坏人该死
-But they are not worth at all for us to be sad, right? Bad guy should go to hell
-
-Date: 02/04/2022
-原视频标题:
-北京冬奥俄罗斯普京团队住的酒店16人确诊感染
-Sixteen people in the hotel where Russian Putin’s Beijing Olympics team stayed were infected
-
-**原视频链接:** [https://gettr.com/post/psg83b9b15](https://gettr.com/post/psg83b9b15)
-
-原视频日期：2022/03/04
-**原视频链接:** https://gettr.com/post/psg83b9b15
-任务编号：KC448（3672）
-视频时间段 : 0:00-01:26
-
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译: 洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-Jambo
-审片：洛杉矶盘古农场- 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

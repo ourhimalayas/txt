@@ -2,34 +2,31 @@
 ---
 
 
-## 【秘翻在线】拜登政府面临着取消口罩规定的压力
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1981506/)
+## 七哥谈“中国人骨子里就是崇洋媚外、崇强欺弱”（2022-02-06摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1981633/)
 
-**撰稿：Grace**
+文编：Hima
+听写：叮叮
+视频：七哥
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-07-at-3.47.40-PM-1.jpeg)图片来源：bronx.news 12
-据《每日邮报》2月9日报道，在民主党领导的四个州本周早些时候开始取消口罩限制后，拜登政府面临着取消口罩规定的压力。
+来源：郭先生2022-02-06直播08:46:27摘录
 
-据报道，加利福尼亚州、康涅狄格州、特拉华州、新泽西州和俄勒冈州的民主党州长周一都宣布计划取消室内和/或学校的口罩规定。
+你别想太具体了，第一，共产主义的亲爹就是来自俄罗斯。现在俄罗斯的共产党虽然没有实权，但它还是世界上最大的共产主义大本营之一。共产主义就是邪恶的、独裁的、不受法律约束的、以为人民服务为名义的奴隶主制度。大家记住那国际歌吗？砸烂封建的社会。“起来不愿做奴隶的人们”，它那歌儿一唱，哇噻！唱歌的人都认为自己是奴隶，认为自己都要砸烂旧社会，自己都是奴隶主。我告诉你唱歌的都是奴隶。俄罗斯就是奴隶主的创造地，中共国骨子里边它对白人恨，但是人家西方的白人真不跟你玩儿，没几个人跟它玩儿的。它只能选择就是有点儿像白人的俄罗斯。而且俄罗斯又吃它这一套，愿意跟你勾兑，又是共产主义的来源。然后它拿着这个东西忽悠中国人，咱在世界不孤独。然后特别是俄罗斯有武器的优越性，它就来了。如果俄罗斯人穿的、吃的不是今天这个样子像白人的生活方式，和所谓的有托尔斯泰这样的大咖，有什么《卡秋莎》、《走在莫斯科郊外》的这些红歌，还有共产主义恩格斯、列宁那个长相、大胡子，共产党才不跟它玩儿呢。共产党就是找一个人得有个托词，名正言顺，而且让中国人觉得这个人种比咱强，这个朋友交得比咱棒。中国人交朋友 一定交有钱、有权的，谁爱交穷人啊？包括你们，没几个人交的，现在加入新中国联邦了，你发现要交有信仰的人，在这过去你不交穷人，你认为这是正确的，我不能交穷人。中国人骨子里就是崇洋媚外、崇强欺弱。所以这一系列的文化、信仰、宗教、历史原因就让共产党把俄爹。它摆来摆去找了那么多爹，就这一个爹最合适、适合它。而且这个爹越虐它，虐它千遍不厌倦，它享受在其中。那么共产党既无这个能力，它经济上无这样的能力、组织上的能力、加上内部的仇恨，就导致冬奥会今天你看到这个荒唐的结果。
 
-加州(California)州长加文·纽森(Gavin Newsom)宣布，该州将在下周取消对接种疫苗者的室内口罩规定。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-康涅狄格州(Connecticut)州长内德·拉蒙特(Ned Lamont)说，学校和托儿所的全州口罩规定将于2月28日结束。
+**关注我们**
 
-特拉华州(Delaware)州长约翰·卡尼(John Carney)宣布，普遍的室内口罩规定将于周五结束，学校的规定将于3月31日到期。
+Discord 账号
 
-新泽西州(New Jersey)州长菲尔·墨菲(Phil Murphy)说，他将在3月7日取消全州范围内的在校学生的口罩命令。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-俄勒冈州（Oregon）州长凯特·布朗(Kate Brown)说，她的州的室内和学校范围的口罩规定将于3月31日结束。
+Gettr 账号
 
-白宫新闻秘书珍·普萨基(Jen Psaki)周二说: “我们希望各州的领导人会看一看关于正在发生的事情的科学和数据。他们将对当地学区做出决定。”
-
-报道称，美国的中共病毒Covid-19病例在过去七天里下降了43%，每天记录267,765例，低于一周前的469,770例。
-
-**新闻来源：[Biden Under Pressure to End Mandates as Dem States Lift Restrictions](https://www.newsmax.com/politics/covid-19-mandates-masks-biden/2022/02/08/id/1056045/)**
-
-[Biden v the blue states: Psaki says it is up to school districts to decide mask mandates and there are leaders STOPPING them after four Democrat governors dropped classroom rules](https://www.dailymail.co.uk/news/article-10489735/Biden-urged-roll-COVID-restrictions-FOUR-Dem-governors-announced-end-school-masking.html)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

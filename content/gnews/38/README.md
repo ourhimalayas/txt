@@ -2,31 +2,39 @@
 ---
 
 
-## 七哥谈“俄罗斯人骨子里对中国人的看不起”（2022-02-06摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1980979/)
+## 彭帅受访照片露出背后监视人员
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1980985/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+作者：纽约香草山 医疗部 – 云豹
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+2月7日，法国一家媒体刊出了一篇专访彭帅的文章。该媒体是在申请采访彭帅多日后，在冬奥开幕的前一日意外获得采访批准的。
 
-来源：郭先生2022-02-06直播08:27:34摘录
+当日，彭帅在中共奥委会办公室主任王侃陪同下，在北京冬奥委会隔离饭店内接受闭门采访。访谈中，彭帅否认了之前对中共国务院前副总理张高丽性侵的指控，并宣布将要退役。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-16.jpg)
+但是，2月8日，一张访谈时的照片被意外曝光，在照片的镜子中，出现了两位隐藏在屋内的男性影像。有一位男子身着白衣，双手交叉抱在胸前，直接面对彭帅站立，明显在监视彭帅的举动。
 
-普京连一秒钟都不想在北京呆，就像我告诉他的女朋友一样，每次来北京跟习见面，私人飞机落到北京机场，大高跟鞋这么高，军人芭蕾舞出身“啪啪啪”旁人一人拎一袋子，很多人不知道她带的啥玩意儿，是吧？直接去见习，见完习马上走，就到自己的房间就吃点东西，路上吃点东西，飞机上吃的东西，全是俄罗斯带来的，从来不吃你中共的东西。所以我告诉过大家，习问过她：“你为啥就是你都带着吃的，火腿什么的？” “因为你们全是化学物品，你们没有一样东西没有激素、没有化学物质，我不吃这东西。” 习就傻在那儿了，是吧？习就傻在那了！到俄罗斯去，中共国竟然给人家俄罗斯在当时，习当副主席的时候，给人家带去中国的山珍海味……全部倒掉。什么灵芝、山珍通通倒掉。俄罗斯人骨子里对中国人的看不起，就像我们看不起中国共产党一样，不会有一点相信你的，不会半点相信你。宁可和什么猪睡觉，也不会跟你睡觉，就那种就他们没感觉，这个被虐待的病态、病种，丢尽了14亿中国人。冬奥会，习，你看一看，亨利小哥你记得七哥说的吗？他自己说的130个国家来，然后97个国家。你看那张艺谋的采访也承认97个国家，你看看那个王毅说，多少国家争着来，外交部。你要但凡有一点点脸，得用鞋底抽自己的脸、咬自己的舌头，然后把绳子拴在自己的小鸡鸡上把自己吊死。就是你外交部公开讲那么多话，是吧？100多个国家来，你还咋有脸见人呢？是吧？我小时候打架的时候，我们对所有的失败的惩罚，男同志，是吧？弄个绳捡到自己小鸡鸡上，然后拿舌头咬，是吧？连咬十下，是吧？作为男人输掉的羞耻。你外交部，你共产党，你但凡要点儿脸，你该拴上个绳咬死自己，这帮不要脸的东西！
+在法国媒体刊出彭帅的访谈报导后，外界普遍怀疑彭帅当天是否是在自由意志下表达自己的想法。8日曝光的访谈照片，为外界的怀疑做出了最好的证明。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+参考链接：
+1. [彭帅受访照片露出背后监视人员](https://news.ltn.com.tw/news/world/breakingnews/3822791)
+2. [彭帅受访照片露出背后监视人员](https://news.ltn.com.tw/news/world/paper/1499382)
 
-**关注我们**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
-Discord 账号
+总编：飞虹
+编辑：飞虹
+校对/发稿：Hetangyuese
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-Gettr 账号
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
 
  
 
