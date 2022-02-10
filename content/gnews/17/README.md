@@ -2,8 +2,8 @@
 ---
 
 
-## 世界上沼泽地的最牛的UBS
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1983806/)
+## 瑞银UBS英国立案打开了沼泽地与中共邪恶的勾兑大门
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1983830/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

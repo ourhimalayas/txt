@@ -2,37 +2,32 @@
 ---
 
 
-## CCP病毒疫苗对重症防护没有作用
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1983504/)
+## 日本卫生部不推荐5～11岁接种疫苗
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1983500/)
 
-撰稿：文月
-![](https://assets.gnews.org/wp-content/uploads/2022/02/102.jpg)图片来自网络
-以色列是CCP病毒疫苗接种运动进展最快的国家。在该国，第二批CCP病毒疫苗加强针已经开始进行接种，总体强化接种率已经达到了55%。
+撰稿：东京樱花团/立正道
 
-然而不幸的是，有80%的CCP病毒重症患者接种了疫苗：Tel Aviv Sourasky 医疗中心伊奇洛夫医院冠状病毒科主任 Yaakov Jerris 教授（Prof. Dr. Giris Jacob ）在最近接受以色列电视频道采访时说：“现在，我们大多数重症病例都接种了疫苗。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/日本卫生部不推荐5～11岁接种疫苗.png)
 
-Jerris 表示：“他们至少注射了三针——70%-80%的严重病例都接种了疫苗。CCP病毒疫苗不能防止严重疾病……我们只有 20% 到 25% 的患者没有接种疫苗。”
+[图片来源](https://www.japantimes.co.jp/news/2021/05/17/national/science-health/coronavirus-childhood-vaccines/)
 
-此外，已经开始有人怀疑接种疫苗的人不能再获得对新变种病毒的完全保护，因为接种疫苗所引发的免疫反应实际产生了错误的抗体。
+据相关人士采访，日本卫生部正在调整对5至11岁儿童的新冠病毒疫苗接种的有关事项，暂时不让家长“努力地去接种” ，并认为疫苗有关 Omicron 菌株的有效性没有足够的数据支持。
 
-德国一位医院主任再次证实了来自罗伯特·科赫研究所(RKI)的数据：尽管该国未接种疫苗的人口占人口的 26.73%，但他们仅占 Omicron 感染者的 4.42%。
+上个月，由卫生部组织的专家小组委员会审查了辉瑞5至11岁的疫苗进行情况，意见出现分歧，10日将再次举行讨论。
 
-如果将德国各个联邦州的疫苗接种率与 Omicron 发病率进行比较，初步统计显示在疫苗接种率较高的联邦州，Omicron发病率也较高。如果这种趋势得到证实，那些接种过两次疫苗的人更容易感染 Omicron。
+最初，日本卫生部考虑将其作为父母的“努力义务”进行疫苗接种，但目前我们正在进行调整，使其不再是“努力义务”。
 
-而 Omicron 实际上正是德国地区CCP病毒的主要病毒变种，如果上述情况属实，那么所有的疫苗强制规定和对未接种疫苗者的限制都将成为笑柄。
+由于该儿童疫苗针对Omicron毒株的功效尚未在国外有报道，没有足够的数据证明可以预防儿童的重症化，也没有得到人们的普遍理解，把它定义为义务接种是不适宜的，这意味着等待是合适的。
 
-另外，来自丹麦的数据表明，与未接种疫苗的人相比，接种疫苗的人受到 Omicron 感染的保护更少。95% 的已知疫苗接种状态的 Omicron 病例发生在完全接种疫苗的人群中。
+10日，卫生部官员将再次与专家小组研究该政策，并讨论如何向父母说明接种疫苗的有关事宜。
 
-在2月1日以色列内阁举行的磋商会议上，Jerris和其他医院代表出席了会议。在那里，他谈到了医院对CCP病毒重症患者不透明的分类问题和对CCP病毒重症患者的定义问题。例如，慢性肺病患者的血氧水平一直很低，而他们如果不幸感染了CCP病毒并被检测呈阳性，那么从当前的理论上讲他们会被划分为 “重症患者”。但这其实并不准确，因为病人属于重症只是因为他有严重的基础性疾病。
+信息来源：
 
-参考文献：
+[5～11歳のワクチン接種 当面「努力義務」としない方向 厚労省](https://www3.nhk.or.jp/news/html/20220210/k10013476821000.html)
 
-[https://reitschuster.de/post/impfstoff-hat-also-keine-bedeutung-fuer-schwere-erkrankungen/](https://reitschuster.de/post/impfstoff-hat-also-keine-bedeutung-fuer-schwere-erkrankungen/)
-
-[https://reitschuster.de/post/omikron-negativer-impfschutz-fuer-zweifach-geimpfte/](https://reitschuster.de/post/omikron-negativer-impfschutz-fuer-zweifach-geimpfte/)
-
-*发稿：mgjxs*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
