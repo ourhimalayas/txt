@@ -2,33 +2,71 @@
 ---
 
 
-## 有声|北京冬奥会将变成无法闭幕的冬奥会
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1985029/)
+## 控诉
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1985186/)
 
-配音：香草山巡管部 – 格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-2月6日，郭文贵先生在大直播中表示，此次冬奥会不仅变成冬眠会，它还会成为中共永远不能结束、无法闭幕的冬奥会。
+作者：蓝之灵
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+耀眼的光环
+流动着
+笼罩着
+虚假的盛世
+邪恶在这里盛行
+人性被泯灭
+如地狱里的盛宴
+尽情享受着
+良善的躯体
+血流成河
+冤魂遍地
 
-冬奥会2月4日开幕，至2月20日闭幕。现在虽然只进行了三天，但是已暴露出众多问题，参奥国家以及开幕式领导人急剧缩水，多国投诉待遇恶劣，不少运动员已经意识到被中共骗来参加冬奥。
+七十年的蹂躏
+山河破碎
+风也不再温柔
+水也不再纯净
+一个个水坝
+就像
+狰狞的伤疤
+生硬的贴在
+龙的脊背
+龙的哀嚎
+在呻吟
 
-郭先生透露，新中国联邦主导了冬奥开幕式，让运动员和国家元首看清了中共，以后一定不跟中共有任何联系。而普京也在知道真相后突然就走，已不会参加闭幕式。
+这深重罪孽
+深植在
+华夏文明
+文明被摧毁
+劣币驱逐良币
+留下的
+只有
+恶与魔
 
-由于共产党对所有人利用后即抛弃。郭先生说，冬奥闭幕式必将变成无法闭幕的羞耻闭幕会。
+恶与魔横行
+摧毁爱与和平
+这深重的灾难啊
+深植在华夏文明
+祈求拯救
+祈求救赎
+祈求
+爱
+与
+和平
 
-文字版原文：[北京冬奥会将变成无法闭幕的冬奥会](https://gnews.org/zh-hans/1972986/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-4.jpg)
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+**校对/发稿：童谣**
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

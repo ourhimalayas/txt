@@ -2,29 +2,38 @@
 ---
 
 
-## 有声|美国将在经济危机后有新的腾飞
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1985028/)
+## 有声|普京冬奥会开幕式后愤然离京
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1985185/)
 
-配音：香草山巡管部 – 格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-1月4日，郭文贵先生在大直播中表示，残忍的资本市场，让美国每次在经济危机和财富转移后，并将淘汰一些所谓的大佬和英雄，开始新的腾飞。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+2月6日，郭文贵先生在大直播中再次详细分析了普京在中共冬奥会开幕式后愤然离开北京的真实原因。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-29.jpg)
+郭先生提到，中共政府以千亿人民币为条件，利诱普京参加此次冬奥会的开幕式，使其成为唯一给习近平撑场面的外国领袖。
 
-他说，美国从来不留恋过去，永远展望未来，永远是胜者王侯败者寇。目前，好莱坞、经济和科技大洗牌，会让很多跟不上形势的人一贫如洗，但很快就会迎接世界生物及太空科技、量子电脑、新型材料的大腾飞。
+郭先生透露，普京团队原计划在北京停留48小时，用作交换的是，中共需以黄金为本位与俄罗斯开展本币互换工作，同时，俄罗斯要求中共向普京团队提供绝对独立的保护和医疗措施。然而，普京团队甫一落地就有16个团队成员确诊感染了中共病毒，更甚者，还有4名人员在俄罗斯团队居住的酒店内离奇身亡。此外，中共在普京抵达后突然变卦，拒绝向俄罗斯支付在本币互转中因资金不足需要额外支付的黄金。
 
-文字版原文：[美国将在经济危机后有新的腾飞](https://gnews.org/zh-hans/1972985/)
+为此，在开幕式后不足9个小时的时间里，普京愤然离京。
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+文字版原文：[普京冬奥会开幕式后愤然离京](https://gnews.org/zh-hans/1979990/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
-
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

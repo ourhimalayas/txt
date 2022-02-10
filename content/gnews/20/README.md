@@ -2,33 +2,38 @@
 ---
 
 
-## 有声|彭帅受访照片露出背后监视人员
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1985031/)
+## 有声|参赛运动员透露中共冬奥会隔离条件恶劣
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1985235/)
 
-配音：香草山巡管部 – 格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-2月7日，法国一家媒体刊出了一篇专访彭帅的文章。该媒体是在申请采访彭帅多日后，在冬奥开幕的前一日意外获得采访批准的。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+当地时间2月5日，据外国媒体消息显示，来自俄罗斯的冬季两项运动员瓦斯内佐娃在社交媒体平台上披露了中共北京冬奥会为参赛选手所提供的恶劣的隔离条件。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3-15.jpg)
+据瓦斯内佐娃透露，由于其中共病毒核酸检测结果呈阳性，她不得不在北京的一家饭店中进行隔离，但该隔离酒店在餐饮方面对运动员和工作人员区别对待，且酒店提供的餐食难以下咽，已经严重影响了她的身体健康。
 
-当日，彭帅在中共奥委会办公室主任王侃陪同下，在北京冬奥委会隔离饭店内接受闭门采访。访谈中，彭帅否认了之前对中共国务院前副总理张高丽性侵的指控，并宣布将要退役。
+另外，曾三次获得北欧混合式滑雪金牌的德国选手佛伦瑟在确诊中共病毒感染后也被中共举办方单独隔离。随后，德国奥运代表团团长施梅尔·普芬尼也向相关媒体指出，中共提供的隔离酒店条件极为不合理，运动员需要更大、更清洁的房间，同时需要准时得到有营养的食物，从而能够确保选手们在结束隔离后还可以上场比赛。
 
-但是，2月8日，一张访谈时的照片被意外曝光，在照片的镜子中，出现了两位隐藏在屋内的男性影像。有一位男子身着白衣，双手交叉抱在胸前，直接面对彭帅站立，明显在监视彭帅的举动。
+另据其他参赛代表团反应，因中共病毒确诊而被隔离的运动员们并没有全部在冬奥村隔离。
 
-在法国媒体刊出彭帅的访谈报导后，外界普遍怀疑彭帅当天是否是在自由意志下表达自己的想法。8日曝光的访谈照片，为外界的怀疑做出了最好的证明。
+文字版原文：[参赛运动员透露中共冬奥会隔离条件恶劣](https://gnews.org/zh-hans/1980067/)
 
-文字版原文：[彭帅受访照片露出背后监视人员](https://gnews.org/zh-hans/1980985/)
-
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
-
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

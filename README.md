@@ -15,128 +15,128 @@
 
 ---
 
-### [政府已经不属于我们，机构已经被罪犯渗透](/content/gnews/1/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [不要求各国在中美之间站队，但美国提供的优势是其它国不具备的](/content/gnews/2/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [新冠—喬治亞·梅尼：“我不会给女儿接种疫苗，因为这不是宗教信仰”](/content/gnews/3/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [大直播后记：财富与文明国家](/content/gnews/4/README.md)
- ` 雅典娜GNotes`
-
-### [2/10银河快讯:日本向北京残奥会运动员发放手机；5-11岁儿童免于疫苗接种“不作为义务”](/content/gnews/5/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [英首相约翰逊宣布提前一个月废除隔离](/content/gnews/6/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [“没有法律”：调查生物战挑战医疗委员会的错误信息（2/2）](/content/gnews/7/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [一位医疗主管令人震惊的短语：“反疫苗人群的集中营和烤箱”，欧洲议员多纳托回应：“不可接受”](/content/gnews/8/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [新西兰车队将抗议议会并要求终止疫苗和口罩授权](/content/gnews/9/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [02/10/22 香港快讯 支联会被控违反国安法　法庭押后决定是否由破产管理署代表](/content/gnews/10/README.md)
- ` 英喜-粵語組`
-
-### [秘翻在线：ASML发文正告：中共企业正在销售侵害其公司商业机密的产品](/content/gnews/11/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [排干沼泽](/content/gnews/12/README.md)
- ` 纽约香草山MOS03`
-
-### [墙内现状——活着就好！](/content/gnews/13/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [有声|香港单日中共病毒确诊数再创新高](/content/gnews/14/README.md)
- ` MOSREC`
-
-### [美国商务部将33家中共国公司列入未经核实名单](/content/gnews/15/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [香港单日中共病毒确诊数再创新高](/content/gnews/16/README.md)
- ` NFSC News`
-
-### [有声|中共深夜通告“八孩女”事件 墙内舆论大翻车](/content/gnews/17/README.md)
- ` MOSREC`
-
-### [美日冲绳海岸军演应对中共威胁](/content/gnews/18/README.md)
- ` NFSC News`
-
-### [有声|中共试图抢先打捞F35战机 偷盗美国技术](/content/gnews/19/README.md)
- ` MOSREC`
-
-### [有声|彭帅受访照片露出背后监视人员](/content/gnews/20/README.md)
- ` MOSREC`
-
-### [有声|谁才是抗日战争的真正主力](/content/gnews/21/README.md)
- ` MOSREC`
-
-### [有声|北京冬奥会将变成无法闭幕的冬奥会](/content/gnews/22/README.md)
- ` MOSREC`
-
-### [有声|美国将在经济危机后有新的腾飞](/content/gnews/23/README.md)
- ` MOSREC`
-
-### [有声|Hpay在任何地方都可以使用](/content/gnews/24/README.md)
- ` MOSREC`
-
-### [加拿大阿尔伯塔省终止疫苗护照系统今午夜生效](/content/gnews/25/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [从单伟建的履历看社会制度与人性的关系(一)](/content/gnews/26/README.md)
- ` 纽约香草山MOS03`
-
-### [加拿大拖车公司拒绝把自由车队的卡车拖走](/content/gnews/27/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [梅尔曼：美国政策制定者必须立即关注的问题](/content/gnews/28/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [MV版Hcoin To the Moon上线63天第30次位列美国iTunes摇滚MV榜首](/content/gnews/29/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [2/9/2022 文贵直播：喜币让中共吓破了胆，它打破了中共对老百姓自由和财富的桎梏](/content/gnews/30/README.md)
+### [2/9/2022 文贵直播：UBS案子的对方将变成中共！UBS将文贵的股票强买强卖给了中共的基金，并随后成为唯一获得中共金融牌照的外国银行，这些“巧合”让UBS将不得不把它和中共的勾兑和盘托出，中共完蛋了](/content/gnews/1/README.md)
  ` 秘密翻译组-北美组`
 
-### [美国再将33家中共企业列入未经核实清单](/content/gnews/31/README.md)
+### [全球央行或将开启“史上最大量化紧缩](/content/gnews/2/README.md)
  ` NFSC News`
 
-### [法国艾滋病泰斗离世 生前坚决反对中共病毒疫苗](/content/gnews/32/README.md)
- ` 秘密翻译组-原创组`
+### [韩国累积确诊突破百万 单日确诊连创新高](/content/gnews/3/README.md)
+ ` NFSC News`
 
-### [美国及世界疫情简报 （02-10-2022）](/content/gnews/33/README.md)
+### [所有参加冬奥会的运动员都将受到中共监控](/content/gnews/4/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [有声|马来1MDB高盛腐败案即将开庭](/content/gnews/5/README.md)
+ ` MOSREC`
+
+### [2/9/2022 文贵直播：UBS竟然在20秒内就把文贵家族的股票卖给了中共的基金，UBS将不得不向法庭提交其秘密存款信息和秘密客户名单](/content/gnews/6/README.md)
+ ` 秘密翻译组-北美组`
+
+### [2月9日老班长战友联盟答疑，G系列相关信息文字版](/content/gnews/7/README.md)
+ ` 全球G系列咨服群`
+
+### [渥太华警察扣押卡车司机的燃料，司机们晚上可能挨冻](/content/gnews/8/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [准妈妈打了新冠疫苗后失去了孕中的宝贝](/content/gnews/9/README.md)
+ ` DC政经`
+
+### [文贵先生索赔UBS在伦敦立案，打响沼泽地第一仗](/content/gnews/10/README.md)
  ` 波士顿五月花农场`
 
-### [音乐视频│黎明破茧](/content/gnews/34/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [2月8日草根小哥战友联盟答疑，G系列相关信息文字版](/content/gnews/11/README.md)
+ ` 全球G系列咨服群`
 
-### [辉瑞偷偷警报：“不利的安全数据”可能影响其业务](/content/gnews/35/README.md)
+### [政府已经不属于我们，机构已经被罪犯渗透](/content/gnews/12/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [美国通胀率飙升至 7.5% 的 40 年新高](/content/gnews/13/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [不要求各国在中美之间站队，但美国提供的优势是其它国不具备的](/content/gnews/14/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [新冠—喬治亞·梅尼：“我不会给女儿接种疫苗，因为这不是宗教信仰”](/content/gnews/15/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [大直播后记：财富与文明国家](/content/gnews/16/README.md)
+ ` 雅典娜GNotes`
+
+### [有声|新中国联邦人在灭共道路上应忘记背后，奋勇向前](/content/gnews/17/README.md)
+ ` MOSREC`
+
+### [2/10银河快讯:日本向北京残奥会运动员发放手机；5-11岁儿童免于疫苗接种“不作为义务”](/content/gnews/18/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [中国制药巨头药明生物因美国举动股票暴跌进而暂停交易](/content/gnews/19/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [有声|参赛运动员透露中共冬奥会隔离条件恶劣](/content/gnews/20/README.md)
+ ` MOSREC`
+
+### [新西兰车队将抗议议会并要求终止疫苗和口罩授权](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [音乐视频│等待](/content/gnews/36/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [控诉](/content/gnews/22/README.md)
+ ` 纽约香草山MOS03`
 
-### [日本专家质疑统计疫苗副作用的方式](/content/gnews/37/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [有声|普京冬奥会开幕式后愤然离京](/content/gnews/23/README.md)
+ ` MOSREC`
 
-### [樱花头条┃美提最严厉制裁案 锁定中共人大官员及家属](/content/gnews/38/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [02/10/22 香港快讯 支联会被控违反国安法　法庭押后决定是否由破产管理署代表](/content/gnews/24/README.md)
+ ` 英喜-粵語組`
 
-### [众议院传唤受福奇影响的科学家参加中共病毒起源听证会](/content/gnews/39/README.md)
+### [秘翻在线：ASML发文正告：中共企业正在销售侵害其公司商业机密的产品](/content/gnews/25/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [排干沼泽](/content/gnews/26/README.md)
+ ` 纽约香草山MOS03`
+
+### [美国商务部将33家中共国公司列入未经核实名单](/content/gnews/27/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [香港单日中共病毒确诊数再创新高](/content/gnews/28/README.md)
+ ` NFSC News`
+
+### [美日冲绳海岸军演应对中共威胁](/content/gnews/29/README.md)
+ ` NFSC News`
+
+### [有声|中共试图抢先打捞F35战机 偷盗美国技术](/content/gnews/30/README.md)
+ ` MOSREC`
+
+### [有声|彭帅受访照片露出背后监视人员](/content/gnews/31/README.md)
+ ` MOSREC`
+
+### [从单伟建的履历看社会制度与人性的关系(一)](/content/gnews/32/README.md)
+ ` 纽约香草山MOS03`
+
+### [梅尔曼：美国政策制定者必须立即关注的问题](/content/gnews/33/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [MV版Hcoin To the Moon上线63天第30次位列美国iTunes摇滚MV榜首](/content/gnews/34/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [法国艾滋病泰斗离世 生前坚决反对中共病毒疫苗](/content/gnews/35/README.md)
+ ` 秘密翻译组-原创组`
+
+### [美国及世界疫情简报 （02-10-2022）](/content/gnews/36/README.md)
  ` 波士顿五月花农场`
 
-### [军情启示录：聊聊共军文工团](/content/gnews/40/README.md)
- ` 蓝莲花农场`
+### [音乐视频│黎明破茧](/content/gnews/37/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2/10/2022 国际财经快讯：美国SEC对私募和对冲基金提出广泛的披露规定; 联合利华警告消费者，随着成本继续飙升，价格上涨幅度将增加](/content/gnews/41/README.md)
- ` 秘密翻译组金融团队`
+### [辉瑞偷偷警报：“不利的安全数据”可能影响其业务](/content/gnews/38/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [樱花头条┃美提最严厉制裁案 锁定中共人大官员及家属](/content/gnews/39/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [众议院传唤受福奇影响的科学家参加中共病毒起源听证会](/content/gnews/40/README.md)
+ ` 波士顿五月花农场`
+
+### [军情启示录：聊聊共军文工团](/content/gnews/41/README.md)
+ ` 蓝莲花农场`
 
 ### [中日财经爆|日本应美国欧盟请求 决定向欧洲援助天然气](/content/gnews/42/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

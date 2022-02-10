@@ -2,35 +2,55 @@
 ---
 
 
-## 有声|谁才是抗日战争的真正主力
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1985030/)
+## 新西兰车队将抗议议会并要求终止疫苗和口罩授权
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1985187/)
 
-配音：香草山巡管部 – 格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-1930年代至1940年代，第二次世界大战东亚战事的主要部分即为中华民国与大日本帝国之间发生的战争，也就是为后人所熟知的“抗日战争”。
+素材翻译评论： Jenny Ball
 
-据日本公布的二战在华阵亡数据显示，抗日战争期间，日军共有超过31万人在与国民党军交战时死亡，仅有851日死于中共军队的手中。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1028.png)
 
-另据中华民国国防部的统计数据表明，截至1945年6月，国民党军中少将以上的高级将领在战争中一共牺牲了115人，国军总损失人数达到400多万，死亡约132万人以上，其中海军几乎全军覆没。而根据中共早先的记载，中共抗日部队仅有左权一位将军牺牲，其余总计人员损失约58万人，死亡约16万人。
+卡车司机、农民和各行各业人民争取自由的抗议活动仍在继续。
 
-通过对二者数据的分析，国军在抗日战争中的伤亡总数达到共军的5.5倍，死亡人数则超过共军的7倍有余。
+来自加拿大的卡车司机封锁了连接加拿大和美国的大使桥。
 
-鉴于中共长期以来对历史的篡改，2015年8月28日，中华民国国防部在一份声明中强调，八年抗战是由中华民国政府主导，在蒋介石委员长的领导下，全国军民浴血奋战的成果，其历史真相绝不能以任何方式被扭曲与篡改。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1027.png)
 
-文字版原文：[谁才是抗日战争的真正主力](https://gnews.org/zh-hans/1980394/)
+周日，阿拉斯加的卡车司机组建了自己的“阿拉斯加自由车队”，以支持加拿大卡车司机。
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+阿拉斯加的“自由车队”以支持加拿大卡车司机🇺🇸
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+现在，数百或数千名抗议者于周二驱车前往新西兰首都，并阻止议会抗议疫苗和口罩授权。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+新西兰总理杰辛达·阿德恩（ Jacinda Ardern ）拒绝与车队会面，称她还有其他优先事项。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1025.png)
+更多来自《布赖特巴特》消息：
+
+车队中的车辆包括汽车、卡车和摩托车，并展示了诸如“杰辛达，我们知道你将自己的灵魂卖给了魔鬼”、“停止授权#自由”和“政治语言旨在使谎言听起来真实”等标志。
+
+在抗议者挥舞的新西兰国旗旁边还发现了许多旗帜，包括美国国旗、前总统唐纳德·川普主题的旗帜和英国国旗。
+
+这些车辆在新西兰议会外停留了几个小时——新西兰议会刚刚在暑假后重新开会——似乎在当天晚些时候和平地离开了该地区，惠灵顿警方没有报告任何逮捕事件。
+
+据报道，抗议活动的主要目的是挑战学校学生戴口罩的规定，以及护士、教师和警察等某些公共部门工作的疫苗接种要求。
+
+据《新闻中心》（Newshub）报道，在议会发生反授权抗议后，总理杰辛达·阿德恩向接种疫苗的新西兰人发出了一条信息，声称这些人不代表大多数新西兰人，“这也将过去”。
+
+可以回顾一下，芬兰赫尔辛基议会外组织了一支大规模的自由车队，要求总理桑娜·马林的政府辞职，削减 50% 的燃油税，并结束所有 COVID 限制。
+
+“芬兰自由车队2022”“CONVOY FINLAND 2022”预计将于 2022 年 2 月 9 日（星期三）开始每天上午 10 点至晚上 10 点。
+
+评论： 人民是改变历史的动力！
+
+素材链接：【thegatewaypundit.com】[New Zealand Joins Canada and Finland – Convoy Blocks Parliament and Demands to End Vaccine and Mask Mandates](https://www.thegatewaypundit.com/2022/02/new-zealand-joins-canada-finland-convoy-blocks-parliament-demands-end-vaccine-mandates/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailyam&amp;utm_content=daily)
+
+* * *
+
+审核：文乐
+校对：花羽
+发布：花羽
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-3.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

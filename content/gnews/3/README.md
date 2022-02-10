@@ -2,23 +2,36 @@
 ---
 
 
-## 新冠—喬治亞·梅尼：“我不会给女儿接种疫苗，因为这不是宗教信仰”
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1985311/)
+## 韩国累积确诊突破百万 单日确诊连创新高
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1985397/)
 
-意大利兄弟党的领导者喬治亞·梅尼再次表示反对给儿童接种疫苗。她补充说：“一个孩子死于冠状病毒的几率与被闪电击中的几率是一样的”。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Giorgia-Meloni-Covid.png)
-在与贝卢斯科尼的报道中，她说：“没有什么需要澄清的，Mediaset 的邀请已经到了”。
+作者：纽约香草山-Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月6日，据韩国卫生官员通报称，韩国当天的新增中共病毒确诊病例数再次刷新了该国的单日新增确诊纪录，达到3万8千691例。至此，韩国的累计中共病毒确诊人数突破了100万，同时，其死亡人数也超过了六千人。
 
-喬治亞·梅尼清楚的表示：“我不给女儿接种疫苗，因为疫苗不是宗教，而是药物，所以我评估风险收益比。”她的女儿 5 岁，可以接种疫苗，但意大利兄弟党的领导人不同意。 “这是一种处于试验阶段的疫苗，将于 2023 年结束”，她在 lastampa.it 被Massimo Giannini采访时解释道。 并且补充说：“一个孩子死于新冠病毒的几率与死于雷击的几率相同”，他参考了 20 岁以下年轻人的统计数据保证。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-3.jpeg)
 
-在大流行的管理上，喬治亞·梅尼没有看到“政府的行动取得了很大的成果。整个世界都在摆脱大流行。意大利是采取最积极措施的国家，同时也是全球疫情最严重的国家之一。最高的传染率和最大的杀伤力”，意大利兄弟的领导人继续说道。 谈到行政人员时，反对党的梅尼说：“德拉吉政府较弱，但任何共和国总统面对相同情况会一样软弱”，“我认为这是德拉吉更愿意去奎里纳莱的原因之一。你可以成为世界上最好的，但我们始终是议会制共和国，你必须有凝聚力的多数，我认为德拉吉已经学会了这一点。 他意识到纤颤将在投票前增加。 我希望我们不会像这样到 2023 年，但很大一部分议员希望如此。 我和总理的私人关系很好，我给他发了一些建议。“改组？” 在移除 Cingolani 之前，我会稍微考虑一下 Speranza 和 Lamorgese，我会对德拉吉这么说。 他们是两位完全破产的部长”，她继续说道。
+资料显示，自2020年1月起，韩国成为除中共国以外第一个爆发重大中共病毒疫情的国家。随后，韩国政府迅速采取了一系列疫情管控措施，使得韩国的整体确诊及死亡病例数维持在一个较低的水平。
 
-关于选举法的辩论，喬治亞·梅尼评论说：“在反对派中，我为政府做好了准备，大家无数次以为我们完了， 但我们还在这里。人们想要将意大利兄弟党关在一个角落里，然而，在我看来，我们是中央，我们达到了一些成就。我努力成为第一党，建立多数，我希望有多数，比例是规则这是意大利共和国的泥潭所依据的，无论谁投票都是不负责任的”。
+然而数据表明，随着中共病毒疫苗的推广，韩国完全接种中共病毒疫苗的人口占总人数的86%，更有超过54.5%的民众已经接种疫苗加强针。为此，自奥米克戎变种病毒扩散以来，韩国的单日新增确诊病例数开始连创新高。
 
-**翻译：**小布丁奶茶
+目前，当地官员宣布，韩国将延长其疫情管控措施至少两周，当中包括商家在晚上9点后实行宵禁的规定，以及限制6人以上的私人聚会等。
 
-**新闻来源：**[La Repubblica](https://www.repubblica.it/politica/2022/02/08/news/covid_meloni_no_vaccino_mia_figlia-336948922/)
+参考链接： [South Korea surpasses 1 million total COVID cases with daily record](https://www.reuters.com/world/asia-pacific/skorea-surpasses-1-million-total-covid-cases-with-new-daily-record-2022-02-06/)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+
+总编：Jack Li文阳
+编辑：静言
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
