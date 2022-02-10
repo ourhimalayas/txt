@@ -2,42 +2,30 @@
 ---
 
 
-## 近千名医生账户因揭露中共病毒真相遭大科技公司审查
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1986089/)
+## 最近与女王会面的查尔斯王子中共病毒检测阳性
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/1986139/)
 
-翻译：**Lulumi**
+翻译：思澈
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unknown-3.jpg)推特、谷歌、Google+、Gmail、Facebook、Instagram和Snapchat利用其基本不受管制的权力，将他们不认可的信息标记为“错误信息”进行审查。(盖蒂图片)
+2月10日星期四中共病毒检测呈阳性的查尔斯王子最近会见了伊丽莎白女王
 
-根据媒体研究中心的一项最新研究，主要大科技公司和社交媒体平台已经删除、压制或标记了800多个知名个人和组织的账户，包括医生，原因是COVID-19“错误信息”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/E80B9336-8016-4D35-AB18-FB99805BF0E0.jpeg)
 
-该研究重点关注主要社交媒体平台和在线服务的审查行为，包括Facebook、YouTube、Instagram、Twitter、LinkedIn、谷歌广告和TikTok。
+据报道，女王没有任何病毒症状表现，查尔斯王储会见了女王后中共病毒检测呈阳性。查尔斯王储的发言人在推特上发布了威尔士亲王检测呈阳性的消息，现在正在自我隔离。
 
-审查的例子包括Facebook决定对《英国医学杂志》进行“事实检查”和“缺失背景”的标记，减少帖子的可见度，因为该研究深入探讨了辉瑞公司疫苗临床试验的数据完整性问题。
+查尔斯王子已完全接种疫苗，此前曾在2020年3月中共病毒检测呈阳性。
 
-脸书还删除了《大巴灵顿宣言》的页面，这是一封由几十位医学专家牵头的公开信，其中包括斯坦福大学流行病学家杰伊·巴塔查里亚博士和美国CDC的前雇员马丁·库尔道夫博士，他们主张采取较少的限制措施来解决中共病毒COVID-19的危险。
+素材链接：[https://www.insider.com/prince-charles-covid-19-positive-met-with-queen-reports-2022-2](https://www.insider.com/prince-charles-covid-19-positive-met-with-queen-reports-2022-2)
 
-“大科技公司建立了一个系统，你不能对‘科学’提出异议，尽管这是科学方法的基础，”美国自由言论协会副主席丹·盖诺告诉每日电讯报国家基金会。“如果医生和学术期刊不能公开辩论，那么它根本就不是科学。它是‘宗教’”。
+*发布：思澈*
 
-大科技公司还删掉播客主持人乔·罗根对科学家彼得·麦卡洛博士和罗伯特·马龙博士的采访，后者在开创mRNA技术方面发挥了作用。Twitter在12月底将马龙从其平台上永久禁止，因为这位病毒学家在推特上质疑COVID-19疫苗的有效性和安全性。
 
-盖诺说：“我们统计了32位被审查的不同医生，包括mRNA疫苗创新者罗伯特·马龙博士。审查有资历的专家的观点并不能确保对疫苗的信心。它破坏了对政府COVID-19策略的信心”。
 
-除了医生之外，该研究还研究了国会议员被科技平台审查的情况。
 
-其中包括去年8月的一次事件，YouTube暂停了肯亚州参议员兰德·保罗的资格，因为他发布了一段视频，认为“布质口罩”对冠状病毒没有效果，这一观点后来得到了许多知名医学评论家的赞同。推特还标记了众议员托马斯·马西的一条推文，他在推文中写道：“研究表明，与那些只靠疫苗产生免疫力的人相比，那些因先前感染而获得自然免疫力的人感染和传播COVID的可能性要小得多。”
 
-该研究还考察了大科技公司对知名媒体人的审查，如罗根、塔克·卡尔森和丹·邦吉诺。
 
-**参考资料：**[dailysignal][Big Tech Censored Dozens of Doctors, More Than 800 Accounts for COVID-19 ‘Misinformation,’ Study Finds](https://www.dailysignal.com/2022/02/09/big-tech-censored-dozens-of-doctors-more-than-800-accounts-for-covid-19-misinformation-study-finds/)
 
-* * *
 
-*审核：文乐
-校对：小东
-发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-3.jpeg)
 
  
 

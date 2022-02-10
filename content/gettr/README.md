@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/10/2022 10:38 PM (UTC)`
+
+2/9/2022 Miles Guo: How many heads of state that the CCP’s Foreign Ministry had claimed would attend the Winter Olympics failed to show up? The CCP has been attempting to maintain the illusion of the warm-up of the Since-US relationship by squandering the Chinese Lao Baixing’s hard-earned money. Before Putin left Beijing, he revealed the truth about the opening ceremony of the Winter Olympics by saying that there was virtually nobody on site!<br/><br/>2/9/2022 文贵直播：有多少中共外交部口口声声说要来冬奥会的外国领导人放了鸽子？中共竟拿着老百姓的血汗钱去维系中美关系回暖的假象；普京离开前一语道破开幕式真相 - 现场根本没人！<br/>
+![img](https://media.gettr.com/group3/getter/2022/02/10/22/0d434338-13b0-159a-0d28-dae41ae4e77f/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@s7gril 2/10/2022 7:30 PM (UTC)`
@@ -149,13 +156,6 @@ EP9: The Villains. Let's tear down the monstrous lies of this despicable #HBO #V
 
 2月7号：尊敬的战友们好你们健身了吗？几天来，中国绑架妇女的事件……强烈的震撼了我……让我感到自责．后悔．为是那个地方的人．感到极为的可耻，我们必须消灭共产党，拯救同胞拯救人类．行动．行动．行动！
 ![img](https://media.gettr.com/group18/getter/2022/02/07/14/ea60e416-bcf8-81ee-a976-bb8ce80878bd/out.jpg)
-
----
-
-`@miles 2/7/2022 1:30 PM (UTC)`
-
-Ms. Christine Anderson said, "Whenever a political entity resorts to extortion and manipulation to push an agenda so hard, you can almost always be sure your benefit is definitely not what they had at heart. I will not be vaccinated with anything that has not been properly vetted and tested, and has shown no sound scientific evidence that the benefits outweigh the risks and that there are no long-term side effects. I will not get vaccinated because my government tells me to and promises in return I will be granted freedom. No one grants me freedom, for I am a free person."<br/><br/>欧盟议会议员 Christine Anderson 女士：每当一个政治团体如此强硬地推行他们的计划，并且为了达到目的而使用威逼利诱的手段时，你几乎可以肯定，他们的心里绝对没有你的利益。我不会注射任何没有经过适当审查和测试、没有可靠科学证据能够表明其利大于弊且不会有长期副作用的疫苗。我也绝对不会为了政府许诺给我的自由而去打疫苗。没有人可以给我自由，因为我本就是一个自由人。
-![img](https://media.gettr.com/group29/origin/2022/02/07/13/214d5ce4-7260-8307-bf2f-a4a6a7c496ef/out.jpg)
 
 ---
 
