@@ -2,25 +2,24 @@
 ---
 
 
-## 瑞银无法阻止郭先生在伦敦起诉
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1982405/)
+## 中日财经爆┃IMF：近100个国家正在研究CBDC央行数字货币
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1982411/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-153.jpg)
-图片来源： gnews.org
+整理编辑：东京樱花团｜peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/02/pasted-image-0-2.png)[*图片来源*](https://s.yimg.com/uu/api/res/1.2/QS8HnmKoeEgWTyovEJMNhA--~B/aD05MTg7dz0xMjk2O2FwcGlkPXl0YWNoeW9u/https://s.yimg.com/uu/api/res/1.2/SciY4xTuD5San9GXVVWibg--~B/aD05MTg7dz0xMjk2O2FwcGlkPXl0YWNoeW9u/https://media.zenfs.com/ko/bloomberg_chinese_traditional_757/e16336364d8fc7b8e4e3f9e46cbd5998)
+国际货币基金组织（IMF）总裁2月9日表示，IMF预测目前有近100个国家正在研究央行数字货币，经验表明不存在统一标准模式。
 
-路透社2月9日报道，瑞士银行UBS(瑞银)在阻止中国商人郭文贵先生对其起诉的努力宣告失败，后者于周三将案子成功递交伦敦高级法院并立案。
+IMF在2月9日发布了一份研究报告，对包括中共国、瑞典和巴哈马在内的六个已经启动运行数字货币或处于后期测试阶段的国家进行了调研。
 
-伦敦法官总结说伦敦瑞银在文贵先生和其他申诉者在法律诉讼中明显参与了有害性的活动。法官说：“根据伦敦瑞银的解除该案的申请，我宣誓这个法庭对索赔人的申诉有管辖。”
+IMF总裁格奥尔基耶娃在关于这份报告的讲话中表示，全球首批使用央行数字货币(CBDC)的经验表明，不存在放之四海而皆准的模式。金融稳定性和隐私考虑对CBDC的设计至关重要，同时也需要在设计和政的发展之间取得平衡。
 
-该起诉围绕在文贵先生和其他申诉者说瑞银无视他们在有关中国金融机构海通的股票买卖中的权益。
+格奥尔基耶娃补充说:“CBDC目前还处于早期阶段，我们不太清楚它们能走多远，能走多快。”
 
-##### 新闻来源： [UBS loses bid to stop Guo’s London lawsuit](https://www.reuters.com/article/ubs-guo/ubs-loses-bid-to-stop-guos-london-lawsuit-idUSL8N2UK4JN)
+消息来源：[**没有一种能够适用于所有国家的央行数字货币模式——IMF总裁**](https://cn.reuters.com/article/imf-director-cen-digital-currencies-0210-idCNKBS2KF05U?il=0)
 
-#  
-
-
-
+*校对：东京樱花团/東洋武士*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

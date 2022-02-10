@@ -2,8 +2,8 @@
 ---
 
 
-## 彭帅冬奥会现场被挟持，中国人像猪一样的生活
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1982767/)
+## 共产党向美国求饶
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1982819/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

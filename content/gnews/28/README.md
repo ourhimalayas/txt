@@ -2,39 +2,24 @@
 ---
 
 
-## 加拿大废除使用疫苗护照势不可挡
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1982445/)
+## 乌克兰局势促英法两国采取行动
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1982486/)
 
-采编/编译：Spirit            编辑撰稿：硫酸羟氯喹64
+作者：东京樱花团｜文小白
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-990.png)[*图片来源*](https://www3.nhk.or.jp/news/html/20220210/K10013476941_2202100838_2202100840_01_03.jpg)
+据日本NHK 2022年2月10日报道，法国总统马克龙9日与美国总统拜登就军事紧张持续的乌克兰局势进行了电话交谈，并介绍了与俄罗斯总统普京见面会谈的情况。马克龙拟在俄罗斯、乌克兰和德国四国框架内用对话解决乌克兰问题，并就此事与拜登总统进行了确认。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot_20220209-230626_Samsung-Internet-edited.jpg)图片来源：Twitter
+根据会谈后发表的公告显示，马克龙总统在本月7日和8日分别与俄罗斯总统和乌克兰总统举行了会晤。会晤中马克龙表示，将与俄罗斯、乌克兰和德国四国用对话的方式防止乌克兰局势的恶化，促进乌克兰的停战协尽快达成一致。
 
+在乌克兰局势持续紧张之际，英国外交部宣布，特拉斯外长于9日起为期两天访问俄罗斯，将与俄罗斯外长维克洛夫见面。
 
-加拿大保守党议员波里耶夫于2月8日在其社交媒体上声称：由于各省政府都在积极计划停止使用百害而无一利的疫苗护照以及逐步取消各项疫情限制措施，因此，自由的力量正在席卷该国！
+英国呼吁俄罗斯缓和与乌克兰的紧张关系，并进行有意义的讨论。“如果俄罗斯入侵乌克兰，将对所有相关人员造成严重后果”，特拉斯申明说，英国政府已宣布，如果俄罗斯入侵乌克兰，将大幅扩大与俄罗斯当局关系密切的个人和公司范围进行严厉的经济制裁。
 
-此外，该项声明还支持魁省自由党议员莱特邦德，于日前公开谴责特鲁多当局在处理疫情中的独裁专政，以及面对民意时的倒行逆施。并呼吁各界应摒弃党派之争，共同结束疫苗强制接种、疫苗护照和所有违宪封锁措施。
+信息来源：[**ウクライナ情勢 仏マクロン大統領と米バイデン大統領 電話会談**](https://www3.nhk.or.jp/news/html/20220210/k10013476941000.html?utm_int=news_contents_news-main_003)
 
-最后，这位于2月5日宣布将竞选加拿大总理的保守党议员激动表示：鉴于阿尔伯塔省将于当晚午夜取消疫苗护照，可见反抗特鲁多的民意正在取得胜利！
-
-校对编辑：硫酸羟氯喹64
-
-发稿：文明(添草灭共)
-
-新闻来源: https://twitter.com/PierrePoilievre/status/1491179433033879553
-
-
-
-> BREAKING: Vaccine passports gone at midnight in Alberta.
-> 
-> La liberté gagne! 
-> 
-> Continue!
-> 
-> Sign my petition to end mandates nationwide: [https://t.co/EgtSLvWWlC](https://t.co/EgtSLvWWlC) [pic.twitter.com/zallZQcynU](https://t.co/zallZQcynU)
-> — pierrepoilievre (@PierrePoilievre) [February 9, 2022](https://twitter.com/PierrePoilievre/status/1491241931103481857?ref_src=twsrc%5Etfw)
-
-
-
+*校对：东京樱花团/東洋武士*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

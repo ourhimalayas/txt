@@ -2,8 +2,8 @@
 ---
 
 
-## 中国共产党不想干的事没有一件事干成的，想干的事没干不成的
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1982733/)
+## 你见过几个日本美女愿意嫁给中国人呢
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1982790/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
