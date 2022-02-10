@@ -2,36 +2,45 @@
 ---
 
 
-## 美对台出售爱国者军备系统抵御中共威胁
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1985495/)
+## 突发：丹麦为美国军队在丹麦领土上的行动敞开大门
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1985558/)
 
-作者：纽约磐石农场—在远方/银河系农场—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月8日，据台湾媒体报道，台湾外交部已经正式接到美国政府的通知，即美方将对台湾出售价值1亿美元的设备和服务，用以维持、维护和改进台湾现有的爱国者导弹防御系统。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-10-上午11.03.31.png)
-对此，台湾外交部表示了高度欢迎。同时，外交部也强调，鉴于中共持续的军事扩张和挑衅行为，台湾将继续深化台美双方紧密的安全伙伴关系，并对印太地区的和平、稳定与繁荣做出贡献。
+撰稿：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图像-41.jpg)
+图片来源：新闻发布会截图
 
-据悉，这是拜登政府任期内的第二次对台军售。早在去年8月，美国曾向台湾军队出售了自行野战炮、野战炮兵弹药补给车、野战炮兵战术数据系统等价值约七亿五千万美元的军备。
+哥本哈根，2月10日（Gnews）–丹麦政府已经开始与美国就新的防务协议合作进行谈判，这可能意味着美国军队和物资可以被安置在丹麦。
 
-此外，美国在台协会官员在采访时指出，中共对台湾的侵略行径不只在军事方面，还包括传播不实信息、经济胁迫和网络攻击等。为此，美国将继续推动台湾实现军事现代化的进程，并协助其维护当地的政治稳定、军事平衡及经济进步，从而更好地应对中共不断演变的威胁。
+根据政府的说法，美国 “在一年多前与丹麦进行了接触，因为华盛顿近年来加强了与挪威和波罗的海国家等其他北约盟国的军事合作”。
 
-参考链接：
-1）[拜登政府二度對台軍售 將出售1億美元愛國者系統工程勤務](https://news.ltn.com.tw/news/politics/breakingnews/3822566)
-2）[US approves $100m deal for Taiwan to upgrade Patriot missile system](https://www.theguardian.com/world/2022/feb/08/us-approves-100m-deal-for-taiwan-to-upgrade-patriot-missile-system)
+“我们面临着新的和日益复杂的威胁，如恐怖主义和黑客攻击。然后我们目前面临着来自俄罗斯的专制势力，这已经持续了一段时间”，首相弗雷德里克森说。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+在新闻发布会上首相强调，可能的合作不仅是因来自乌克兰周边的高度紧张局势，但人们显然已经意识到这一原因。
 
-总编：文真/文特
-编辑：谐趣园/静言
-校正/发稿：呼吸的雾霾（文小呼吸）
+“乌克兰境内和周边的局势非常清楚地强调了一个事实，即我们不能把我们的和平、我们的自由或我们的安全视为理所当然“，首相强调了必须与美国人更加紧密地合作的原因。丹麦是美国的亲密盟友，是进出波罗的海门户的战略要位。而俄罗斯在波罗的海就拥有军事基地。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+首相还说：“美国和丹麦之间直接达成的这种协议将为在丹麦的一些选定的军事领域开展新的合作和活动开辟道路，可能包括在丹麦土地上出现美国士兵。
+
+在会谈之前，丹麦几十年来一直不允许外国军队长期驻扎。这次是几十年来在丹麦领土上不驻军政策的一个突破。
+
+美国此前与北约盟友挪威达成了类似的协议，挪威几十年来一直允许美国和其他北约国家的军队在其领土上演习。该协议仍需得到挪威议会的批准，它将允许美国在机场和基地建造设施，并旨在促进盟国在危机或战争情况下迅速增援。
+
+立陶宛与强大的邻国俄罗斯接壤，自2019年以来一直轮流接待500名美国部队。本周，这个波罗的海国家要求美国在该国永久驻军，以帮助加强安全。
+
+丹麦和美国之间可能达成的新防务协议可能包括军事演习、加强海上合作和在丹麦储存军事装备，但不太可能包括在该国建立美军基地。
+
+首相表示，谈判将不包括丹麦的半自治领土格陵兰岛的合作。
+
+据外交部长Jeppe Kofod称，与美国的谈判需要几个月，也许几年。
+
+参考来源
+
+[Dr.dk](https://www.dr.dk/nyheder/politik/live-statsministeren-holder-pressemoede-om-samarbejdet-med-usa)
+
+[TV2.dk](https://nyheder.tv2.dk/politik/2022-02-10-danmark-aabner-for-amerikanske-soldater-paa-dansk-jord)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

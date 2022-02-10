@@ -2,42 +2,28 @@
 ---
 
 
-## 福奇：美在退出大流行的“全面”阶段而三周前还说正在第一阶段
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1985750/)
+## 欧洲政府施压临床博士不能透露奥米炕的温和性
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1985846/)
 
-**编译： Jenny Ball**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip福奇：美在退出大流行的全面阶段而三周前还说正在第一阶段.png)图片来源：thegatewaypundit.com
-周二，福奇表示美国正在退出大流行的“全面爆发”阶段。
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2022/02/9-6.jpg)
+图片来源：网络截图
 
-本周新冠死亡人数达到了一年来的最高水平，那么“科学”发生了什么变化？
+零对冲2月9日报道，根据德国电视频道WELT的采访，发现奥米炕（Omicron Covid-19）菌株的医生安吉利克·科兹（Angelique Coetzee）说，她受到欧洲政府的压力，不能透露该毒株只有轻微的表现。
 
-“根据约翰斯霍普金斯大学汇编的数据，本周，美国新冠肺炎死亡人数达到了大约一年来的最高水平，过去两周上升了 39%。” CNBC 报道。
+当被问及此事是否属实时，科兹回答说：“有人告诉我不要公开说这是一种轻微的疾病。有人要求我不要做这样的声明，并说这是一种严重的疾病。我拒绝了”。
 
-“随着我们走出 COVID-19 的全面流行阶段，”福奇对英国《金融时报》说。 “我们肯定会走出，这些决定将越来越多地在地方层面做出，而不是由中央决定或授权。还将有更多的人自己决定如何应对病毒。”
+她说她是一名临床医生，根据临床情况，没有迹象表明我们面对的是一种非常严重的疾病。病程大多是温和的，但并不是说如果你是温和的，就不会生病。
 
-（点评：他已经逼迫全世界大多数人当了大药企mRNA毒药的试验老鼠，现在要甩锅，让人们自由应对“疫苗”DNA编辑人体基因和刺突蛋白造成的各种器官栓塞的灾难！）
+轻度中共病毒（Covid-19）疾病的定义很清楚，它是世卫组织的定义：病人可以在家里治疗，不需要吸氧或住院。她说，并补充道，严重的疾病是我们看到急性肺部呼吸道感染的疾病：人们需要氧气，甚至可能需要人工呼吸。我们在三角洲病毒看到了这一点，但在奥米炕病毒上没有。所以我对人们说，“我不能这样说，因为这不是我们看到的情况”。
 
-就在三周前，福奇说大流行有五个阶段，而我们只处于第一阶段。
+当被问及为什么她被阻止说出真相时，科兹说：“他们尝试过，但他们没有成功。”
 
-那发生了什么变化？
+她说在南非，这是一种轻微的疾病，但在欧洲，这是一种非常严重的疾病。“这就是你们的政治家想听到的，”她已经厌倦了。据科兹说，她没有受到南非当局的压力，反而受到英国和荷兰科学家的批评，他们说：“你怎么能解释这是一种轻度疾病？这是一种严重的疾病。看看这些变异”。
 
-随着每日 Covid 死亡率飙升，民主党州长们一致取消了全州范围内的口罩规定。
+WELT评论说，在一个大流行病中，你还必须看一看在基层发生了什么。必须询问每天给病人看病的普通医生，他们的经历是什么，临床情况是如何呈现的。
 
-CNN 医学分析师莉安娜·温 (Leana Wen )博士本周表示，“科学发生了变化”，并呼吁取消对流行病的限制。
-
-进入中期选举，民主党的内部民意调查一定很糟糕！
-
-评论：从何时起，科学成立政治家操纵的信誉工具？
-
-**新闻来源**：[thegatewaypundit.com][Dr. Fauci: US Exiting ‘Full-Blown’ Phase of Pandemic — After Saying We Are in the First Stage of COVID Just 3 Weeks Ago](https://www.thegatewaypundit.com/2022/02/dr-fauci-us-exiting-full-blown-phase-pandemic-covid-fatalities-reach-highest-level-year/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=daily)
-
-* * *
-
-***审核：文乐
-校对：花羽
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-3.jpeg)
+新闻来源：[“They Will Not Silence Me”: Doctor Who Discovered Omicron Was Pressured Not To Reveal It’s Mild](https://www.zerohedge.com/markets/they-will-not-silence-me-doctor-who-discovered-omicron-was-pressured-not-reveal-its-mild)
 
 
 

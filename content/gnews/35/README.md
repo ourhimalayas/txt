@@ -2,17 +2,30 @@
 ---
 
 
-## 沙特王子最终未出席冬奥 冬奥会上中共继续“妓女外交“
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1985541/)
+## NFSC新闻、G|TV新闻访谈简报|2022年2月10日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1985627/)
 
-沙特王子本·萨勒曼，及其他皇族重要人物，最终并未出席冬奥会。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-4.jpg)
 
-冬奥会上，中共继续“妓女外交”。承诺愿意购买美国4000亿美元的产品，并开放沈阳大使馆。试图缓和日益紧张的 #中美关系。美国政府的“断而不交，不断不交”策略，中共只能被动挨打，但是沈阳大使来回飞一趟，却赚取了中国人近5000亿血汗钱！
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-9.png)
+文章仅代表作者本人观点，与Gnews无关
 
-视频来源: 20220209—郭先生大直播
-视频制作: 文星光，梦田
-文案:文星光
-上传: 零点
+视频参看：
+[2022.02.10早 《NFSC新闻》](https://gtv.org/video/id=6205133aa1fe5e57a4264b6c)
+[2022.02.10早 G|TV《新闻访谈》](https://gtv.org/video/id=62051bb7a1fe5e57a4264fca)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![calendar](https://assets.gnews.org/wp-content/uploads/2022/02/calendar-1.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

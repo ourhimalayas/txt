@@ -2,37 +2,41 @@
 ---
 
 
-## 美国众议院提出制裁中共官员的核弹级提案
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1985659/)
+## “让特鲁多Trudeau从他的洞里出来！”
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1985726/)
 
-撰稿：小毛牛
-![](https://assets.gnews.org/wp-content/uploads/2022/02/020803.jpg)网络图片
-据Breitbart News独家报道：美国众议院的保守派高层已提出一项立法提案，正式制裁数千名中共官员，令人震惊的是，这其中居然包括中共独裁者习近平及其全家。
+**编译：16626**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/39091213-1F2A-4E6E-B26A-F6163190CCC6.png)**图片来源：截屏于**[**https://www.tvanouvelles.ca/2022/02/10/que-trudeau-sorte-de-sa-grotte**](https://www.tvanouvelles.ca/2022/02/10/que-trudeau-sorte-de-sa-grotte)
+ 
+**对渥太华的围困持续到第 14 天了****，****位于温莎****Windsor****和底特律****Détroit****之间的大使桥（****Pont Ambassador）****（加拿大和美国之间的重要经济纽带）的交通也被封锁**
 
-众议员麦克莱恩（Rep. Lisa McClain ）的法案名为停止中共法案（Stop CCP Act），将对中共官员实施一种称作削弱性的制裁：阻止他们获得美国旅行签证和金融制裁；阻止他们使用或获取某些资产；这个法案将制裁中共最高政府机构全国代表大会的每一位成员。比如这2000 多名中共官员连同他们的家人将被禁止进入美国，他们所有人也将被正式禁止进入美国的金融系统（包括在中国经营的美国公司），这样他们就不能利用他们的家人来逃避制裁。
+当局应该如何解决危机？这个问题在魁北克的早晨 Facebook 页面上提出并收了 300 多条评论。
 
-当然如果中共真正停止对维吾尔人和在香港的侵犯人权行为、盗窃美国知识产权和妄图入侵台湾，那么该法案将可以被豁免。但是为了避免像拜登这样的和中共存在千丝万缕联系的总统滥用手中的豁免权，国会会更新并且用两年的时间去证明接触此项制裁的正确性。
+现摘录几条：1. “必须聆听他们的（声音），花时间和他们坐在同一张桌子上。” -舳Fanny2. “让特鲁多Trudeau从他的洞里出来！” – 风信子Jacynthe3. “当（执法权力）局不必干预，只有特鲁多可以改变事情。适可而止。” -吉诺Gino4. “我也厌倦了这些（卫生）措施和限制，…。” -伊夫Yves5. “我们必须开始与车队发言人展开对话。” -圭亚那Guylaine6. “取消健康护照和口罩，问题就解决了。” -伯纳德Bernard7. “目前，什么也不做，或者几乎什么都不做。可以肯定，这不是我们解决这场冲突的方式。”-基督教Christian
 
-众议员麦克莱恩还补充到：中共是对美国和世界安全的最大威胁之一，制裁中共领导人是向中国和世界表明我们厌倦了他们咄咄逼人的霸凌方式。
+另外，Gnews（2022 年 2 月 10 日）发表一篇题为《三个魁北克反对党要求（政府）证明佩戴口罩和疫苗护照是合理的, [https://gnews.org/zh-hans/1983029/](https://gnews.org/zh-hans/1983029/) 》的文章报道，考虑到，昨天，萨斯喀彻温省和阿尔伯塔省等其他司法管辖区宣布撤销疫苗护照，而纽约州将放弃在商店佩戴口罩的义务，  PLQ、QS 和 PQ （三个魁北克反对党）认为魁北克（政府）没有充分证明其维持这些卫生措施（佩戴口罩和疫苗护照）的决定是合理的。
 
-众议员吉姆·班克斯（Rep. Jim Banks ）补充说，在这项提案中受到制裁的中共官员是特别残酷的侵犯人权者。众议院共和党会议有 159 名成员，保守派RSC （Republican Study Committee）是国会中最大的众议院共和党人团体——实际上是任何一方或双方成员中最大的核心小组。
+还有，在2022年02月09日文贵大直播中，七哥讲到：
 
-共和党研究委员会主席班克斯 说：中共的这群人是世界上最严重的人权侵犯者和专制邪恶政权的领导人，我们不仅有国家安全义务，还有道德义务，阻止他们在我们的海岸上执行他们的腐败全世界的邪恶计划。
+*“我说过，疫苗一定会停止的。小土豆一定会灾难收场。我特别爱加拿大，包括魁省当时要闹独立，我专门去过，包括靠近美国的那几个地方，大自然真漂亮。多伦多的雪，干净嘎嘣的冷，很舒服。水，不用捞，螃蟹就在你家附近。被共产党及完全失败的人控制着，小土豆完全是痴心的疯子。共产党希望加拿大和美国越乱越好，但这正不是我们希望发生的。加拿大人通过这次运动，能认清加拿大的现状”**.*
 
-众议院军事委员会的罗杰斯（Rogers）说：中共必须为他们令人震惊和令人不安的侵犯人权行为负责。乔·拜登每天都在犹豫是否要让中共对种族灭绝和奴隶劳动负责，中共只会在他们的邪恶运动中变得更加胆大妄为。
+作为一个三权分立与制衡的，民主的国家，广大民众，当然也包括反对党有权发出自己的声音来质疑执政党政府现行的“公共卫生行政措施”和“公共卫生建议”。本篇报道就是一个例子。广大民众在魁北克的早晨 Facebook 页面上发出自己的声音（300 多条评论）。“小土豆完全是痴心的疯子”，是时候该让“让特鲁多Trudeau从他的洞里出来！”。加拿大的公共卫生行政措施出现什么样的变化？“加拿大人通过这次运动，能认清加拿大的现状”吗？让我们拭目以待。
 
-共和党国家安全和外交事务主席、众议员乔·威尔逊（Rep. Joe Wilson）说：我很高兴加入这项要求对中共高级成员进行恶意行为和侵犯人权的制裁的努力。如果我们要反击中共几十年来利用我们并压迫中国非凡的人民，我们必须大胆。
+欢迎读者访问并在“加拿大温哥华圆成农场”（[https://gettr.com/user/himalayavang](https://gettr.com/user/himalayavang)）上留言。
 
-除了班克斯、罗杰斯和威尔逊之外，麦克莱恩法案的原始共同发起人还包括众议员布Reps. Brian Babin (R-TX), Vern Buchanan (R-FL), Andrew Clyde (R-GA), Rodney Davis (R-IL), Carlos Gimenez (R-FL), Yvette Herrell (R-NM), Clay Higgins (R-LA), Bill Johnson (R-OH), Doug Lamborn (R-CO), David McKinley (R-WV), Mary Miller (R-IL), Marianette Miller-Meeks (R-IA), Steven Palazzo (R-MS), Rep. Tracey Mann (R-KS), Greg Steube (R-FL), and Tracey Mann (R-KS).
+**原文链接：**
 
-虽然此法案在目前民主党控制下的国会不太可能会被投票表决，但是在即将到来的中期选举中，共和党有望重新夺回多数席位，所以该法案很有可能在明年获得通过。
+[«Que Trudeau sorte de sa grotte!»](https://www.tvanouvelles.ca/2022/02/10/que-trudeau-sorte-de-sa-grotte)
 
-灭共的最后战役已经打响，中共的穷途末路已在眼前！
+**编辑：LILY**
 
-新闻来源：[Exclusive — House Conservatives Introduce Sanctions Proposal for Thousands of Chinese Communist Party Officials](https://www.conservativenewsdaily.net/breaking-news/exclusive-house-conservatives-introduce-sanctions-proposal-for-thousands-of-chinese-communist-party-officials/)
+**发布：歪桑**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
+20220210
 
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

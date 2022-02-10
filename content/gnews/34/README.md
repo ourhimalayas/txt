@@ -2,44 +2,36 @@
 ---
 
 
-## 突发：丹麦为美国军队在丹麦领土上的行动敞开大门
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1985558/)
+## 美国众议院提出制裁中共官员的核弹级提案
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1985659/)
 
-撰稿：Skagen
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图像-41.jpg)
-图片来源：新闻发布会截图
+撰稿：小毛牛
+![](https://assets.gnews.org/wp-content/uploads/2022/02/020803.jpg)网络图片
+据Breitbart News独家报道：美国众议院的保守派高层已提出一项立法提案，正式制裁数千名中共官员，令人震惊的是，这其中居然包括中共独裁者习近平及其全家。
 
-哥本哈根，2月10日（Gnews）–丹麦政府已经开始与美国就新的防务协议合作进行谈判，这可能意味着美国军队和物资可以被安置在丹麦。
+众议员麦克莱恩（Rep. Lisa McClain ）的法案名为停止中共法案（Stop CCP Act），将对中共官员实施一种称作削弱性的制裁：阻止他们获得美国旅行签证和金融制裁；阻止他们使用或获取某些资产；这个法案将制裁中共最高政府机构全国代表大会的每一位成员。比如这2000 多名中共官员连同他们的家人将被禁止进入美国，他们所有人也将被正式禁止进入美国的金融系统（包括在中国经营的美国公司），这样他们就不能利用他们的家人来逃避制裁。
 
-根据政府的说法，美国 “在一年多前与丹麦进行了接触，因为华盛顿近年来加强了与挪威和波罗的海国家等其他北约盟国的军事合作”。
+当然如果中共真正停止对维吾尔人和在香港的侵犯人权行为、盗窃美国知识产权和妄图入侵台湾，那么该法案将可以被豁免。但是为了避免像拜登这样的和中共存在千丝万缕联系的总统滥用手中的豁免权，国会会更新并且用两年的时间去证明接触此项制裁的正确性。
 
-“我们面临着新的和日益复杂的威胁，如恐怖主义和黑客攻击。然后我们目前面临着来自俄罗斯的专制势力，这已经持续了一段时间”，首相弗雷德里克森说。
+众议员麦克莱恩还补充到：中共是对美国和世界安全的最大威胁之一，制裁中共领导人是向中国和世界表明我们厌倦了他们咄咄逼人的霸凌方式。
 
-在新闻发布会上首相强调，可能的合作不仅是因来自乌克兰周边的高度紧张局势，但人们显然已经意识到这一原因。
+众议员吉姆·班克斯（Rep. Jim Banks ）补充说，在这项提案中受到制裁的中共官员是特别残酷的侵犯人权者。众议院共和党会议有 159 名成员，保守派RSC （Republican Study Committee）是国会中最大的众议院共和党人团体——实际上是任何一方或双方成员中最大的核心小组。
 
-“乌克兰境内和周边的局势非常清楚地强调了一个事实，即我们不能把我们的和平、我们的自由或我们的安全视为理所当然“，首相强调了必须与美国人更加紧密地合作的原因。丹麦是美国的亲密盟友，是进出波罗的海门户的战略要位。而俄罗斯在波罗的海就拥有军事基地。
+共和党研究委员会主席班克斯 说：中共的这群人是世界上最严重的人权侵犯者和专制邪恶政权的领导人，我们不仅有国家安全义务，还有道德义务，阻止他们在我们的海岸上执行他们的腐败全世界的邪恶计划。
 
-首相还说：“美国和丹麦之间直接达成的这种协议将为在丹麦的一些选定的军事领域开展新的合作和活动开辟道路，可能包括在丹麦土地上出现美国士兵。
+众议院军事委员会的罗杰斯（Rogers）说：中共必须为他们令人震惊和令人不安的侵犯人权行为负责。乔·拜登每天都在犹豫是否要让中共对种族灭绝和奴隶劳动负责，中共只会在他们的邪恶运动中变得更加胆大妄为。
 
-在会谈之前，丹麦几十年来一直不允许外国军队长期驻扎。这次是几十年来在丹麦领土上不驻军政策的一个突破。
+共和党国家安全和外交事务主席、众议员乔·威尔逊（Rep. Joe Wilson）说：我很高兴加入这项要求对中共高级成员进行恶意行为和侵犯人权的制裁的努力。如果我们要反击中共几十年来利用我们并压迫中国非凡的人民，我们必须大胆。
 
-美国此前与北约盟友挪威达成了类似的协议，挪威几十年来一直允许美国和其他北约国家的军队在其领土上演习。该协议仍需得到挪威议会的批准，它将允许美国在机场和基地建造设施，并旨在促进盟国在危机或战争情况下迅速增援。
+除了班克斯、罗杰斯和威尔逊之外，麦克莱恩法案的原始共同发起人还包括众议员布Reps. Brian Babin (R-TX), Vern Buchanan (R-FL), Andrew Clyde (R-GA), Rodney Davis (R-IL), Carlos Gimenez (R-FL), Yvette Herrell (R-NM), Clay Higgins (R-LA), Bill Johnson (R-OH), Doug Lamborn (R-CO), David McKinley (R-WV), Mary Miller (R-IL), Marianette Miller-Meeks (R-IA), Steven Palazzo (R-MS), Rep. Tracey Mann (R-KS), Greg Steube (R-FL), and Tracey Mann (R-KS).
 
-立陶宛与强大的邻国俄罗斯接壤，自2019年以来一直轮流接待500名美国部队。本周，这个波罗的海国家要求美国在该国永久驻军，以帮助加强安全。
+虽然此法案在目前民主党控制下的国会不太可能会被投票表决，但是在即将到来的中期选举中，共和党有望重新夺回多数席位，所以该法案很有可能在明年获得通过。
 
-丹麦和美国之间可能达成的新防务协议可能包括军事演习、加强海上合作和在丹麦储存军事装备，但不太可能包括在该国建立美军基地。
+灭共的最后战役已经打响，中共的穷途末路已在眼前！
 
-首相表示，谈判将不包括丹麦的半自治领土格陵兰岛的合作。
+新闻来源：[Exclusive — House Conservatives Introduce Sanctions Proposal for Thousands of Chinese Communist Party Officials](https://www.conservativenewsdaily.net/breaking-news/exclusive-house-conservatives-introduce-sanctions-proposal-for-thousands-of-chinese-communist-party-officials/)
 
-据外交部长Jeppe Kofod称，与美国的谈判需要几个月，也许几年。
-
-参考来源
-
-[Dr.dk](https://www.dr.dk/nyheder/politik/live-statsministeren-holder-pressemoede-om-samarbejdet-med-usa)
-
-[TV2.dk](https://nyheder.tv2.dk/politik/2022-02-10-danmark-aabner-for-amerikanske-soldater-paa-dansk-jord)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
 
  
 
