@@ -2,33 +2,36 @@
 ---
 
 
-## 佩洛西的国会大厦警察试图非法拍摄国会立法文件
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1984290/)
+## 香港新增确诊中共病毒创新高 再次证明疫苗无效
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1984409/)
 
-翻译：wenwu
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1011.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fimages.newindianexpress.com%2Fuploads%2Fuser%2Fimagelibrary%2F2022%2F2%2F8%2Fw900X450%2FHongKong_AP2.jpg%3Fw%3D400%26dpr%3D2.6&amp;imgrefurl=https%3A%2F%2Fwww.newindianexpress.com%2Fworld%2F2022%2Ffeb%2F08%)
+香港2月9日中共病毒（新冠）确诊个案飙升至1,161宗，再创疫情爆发以来的新高。已打疫苗者的死亡与病危重症案例，再次证明中共病毒疫苗不妨重症与死亡。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1008.png)图片来源：thenationalpulse.com
+卫生署当天公布两宗死亡个案：分别为73岁（已打疫苗）及76岁（未打疫苗）男病人。两老翁前日因肺部不适入院昨早及今日离世：
 
-据报道，议长南希·佩洛西的国会警察被指非法进入国会议员特洛伊·尼尔斯（Troy Nehls）的办公室拍摄机密的立法材料，并对工作人员进行盘问。这些警察——现在正在接受正式调查——被指控装扮成建筑工人，并在两天后试图再次进入。
+73岁男病人（#17498）去年9月曾接种两剂科兴疫苗，前日（7日）因肺部感染入住明爱医院，入院后病情急剧恶化，经抢救后不治，并于昨晨4:45离世。同样在前日入院的76岁男病人（#16741）为长期病患，没有接种疫苗。
 
-这一令人震惊的水门式丑闻发生在近一年的警告之后，即众议院议长佩洛西和国会中的民主党人正在将国会警察政治化，将其作为一个斯塔西式（Stasi-style）的执法部门来对付共和党的反对者。报告显示，国会警察建立了关于被非法调查者的情报档案。
+另有两宗病危个案及三宗重症个案，病危： 83岁翁及重症的77岁老妇没有打疫苗。余下三人年龄介乎50至57岁，两人去年8月已打疫苗，重症的56岁男患者今年1月打首剂，未完成接种。
 
-尼尔斯说，被拍摄的文件是“受到宪法第1条第6款所规定的，对言论和辩论条款的保护”。
+三宗重症个案：
 
-尼尔斯在[推特上](https://twitter.com/RepTroyNehls/status/1491065697769705473?s=20&amp;t=IDkhk7lUu_yGv6J3BIAijw)解释了这起事件。
+50岁男病人（＃14930）曾在去年8月接种疫苗；
 
-在1月6日之后，一位乔·拜登的捐赠者——尤金达·皮特曼（Yogananda Pittman）——被任命为国会大厦警察的代理局长（[声称国会暴动是“成千上万起义者的恐怖袭击”](https://twitter.com/RaheemKassam/status/1354154876394213383?s=20&amp;t=YqJea5YGepHB0BJEymeG0g)）。她现在担任的是负责保护和情报行动的助理局长。皮特曼负责“有关美国国会大厦、国会议员、工作人员和访客的安全和安保行动，包括威胁检测和预防以及整个国会大厦的实体安保系统”。
+56岁男病人（＃15540）曾在今年1月接种第一针疫苗；
 
-国会警察局局长托马斯·曼格（J. Thomas Manger）证实，在收到国会对国会警察战术的多个询问后，监察长现已展开调查。
+77岁女病人（#13400）没有接种疫苗。
 
-新闻来源：[thenationalpulse.com] [Pelosi’s Capitol Cops Tried to Sneak Into GOP Congressman’s Office Dressed as Construction Workers, Illegally Took Photos of Legislative Documents.](https://thenationalpulse.com/2022/02/08/breaking-pelosis-capitol-cops-tried-to-sneak-into-gop-congressmans-office-dressed-as-construction-workers-illegally-took-photos-of-legislative-documents/) | 发布时间：2022年02月08日
+此外，今日亦新增两宗病危个案，分别是84岁男病人（#14814）及57岁男病人（#16485）曾在去年8月接种疫苗。
 
-* * *
+从中共病毒疫苗面市之初的宣称可以防病毒，到后来的改口称可防重症和死亡，如今上报的病例足以证明疫苗既不防重症也不妨死亡，港共政府依然吁市民尽快接种疫苗已经加强针，与暗势力勾结简直是谋财害命。
 
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-2.jpeg)
+消息来源：[疫情｜第五波　兩初確診老翁入院3日內死亡　三中年病危或嚴重](https://www.hk01.com/%E7%A4%BE%E6%9C%83%E6%96%B0%E8%81%9E/733798/%E7%96%AB%E6%83%85-%E7%AC%AC%E4%BA%94%E6%B3%A2-%E5%85%A9%E5%88%9D%E7%A2%BA%E8%A8%BA%E8%80%81%E7%BF%81%E5%85%A5%E9%99%A23%E6%97%A5%E5%85%A7%E6%AD%BB%E4%BA%A1-%E4%B8%89%E4%B8%AD%E5%B9%B4%E5%8D%)
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

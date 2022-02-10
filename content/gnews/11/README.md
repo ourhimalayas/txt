@@ -2,10 +2,10 @@
 ---
 
 
-## 广西百色被封；香港因疫情面临食品供应链问题
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1984343/)
+## 特鲁多总理保镖反对政府的中共病毒措施，毅然放弃工作
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1984454/)
 
-02/07/2022 广西百色，中共国又一个300万人口城市被封；香港因疫情面临食品供应链问题。
+02/07/2022 特鲁多总理保镖反对政府的中共病毒措施，毅然放弃工作。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
