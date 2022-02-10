@@ -2,25 +2,24 @@
 ---
 
 
-## 瑞银无法阻止郭先生在伦敦起诉
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1982405/)
+## 中日财经爆┃MSCI中共国A股指数纳入中国移动 剔除阳光城
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1982410/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-153.jpg)
-图片来源： gnews.org
+整理编辑：东京樱花团｜peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-986.png)
+[*图片来源*](https://x0.ifengimg.com/ucms/2021_46/938C07AD717A5B6A548FB4DE08194EA3FBD964C3_size228_w1587_h907.jpg)
 
-路透社2月9日报道，瑞士银行UBS(瑞银)在阻止中国商人郭文贵先生对其起诉的努力宣告失败，后者于周三将案子成功递交伦敦高级法院并立案。
+国际指数编制公司MSCI（明晟）周三（2月10日）公布了2022年2月的季度指数评审结果，其中MSCI中共国A股在岸指数将新增四个成分股，即中国移动A股、中伟新材料、东方生物和伯特利。
 
-伦敦法官总结说伦敦瑞银在文贵先生和其他申诉者在法律诉讼中明显参与了有害性的活动。法官说：“根据伦敦瑞银的解除该案的申请，我宣誓这个法庭对索赔人的申诉有管辖。”
+MSCI在其官网称，MSCI中共国A股在岸指数将剔除沙钢股份、阳光城和ST国医。MSCI中共国全股票指数中，将各新增和剔除五个公司，新增的股票包括格力电器、中伟新材料和陆金所。上述变动将于2月28日收盘后生效。
 
-该起诉围绕在文贵先生和其他申诉者说瑞银无视他们在有关中国金融机构海通的股票买卖中的权益。
+明晟公司（MSCI），原名为摩根士丹利资本国际，是一家美国股票基金、收入型基金、对冲基金股价指数和股东权益投资组合分析工具提供商。2007年中，母公司摩根士丹利决定从MSCI撤资。
 
-##### 新闻来源： [UBS loses bid to stop Guo’s London lawsuit](https://www.reuters.com/article/ubs-guo/ubs-loses-bid-to-stop-guos-london-lawsuit-idUSL8N2UK4JN)
+消息来源：[**MSCI中国A股在岸指数将纳入中国移动等四只股票 阳光城等遭剔除**](https://cn.reuters.com/article/msci-china-shares-inclusion-0210-thur-idCNKBS2KF05Y?il=0)
 
-#  
-
-
-
+*校对：东京樱花团/東洋武士*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

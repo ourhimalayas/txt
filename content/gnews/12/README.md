@@ -2,29 +2,27 @@
 ---
 
 
-## 有声|美日将在日本西南加强军事储备 剑指中共
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1982533/)
+## 中共被指控侵犯奥运冰球运动员人权
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1982573/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月6日，据日本媒体报导，美日两国正在考虑于日本南端鹿儿岛地区布署无人机队，用以应对中共日益增加的挑衅动作。
+采编：文莱          编译撰稿：苦尽甜来 (文來）
 
-据悉，早在今年1月中旬，美日双方就曾经讨论过在最接近台湾的日本国土与那国岛上储备精准导弹，从而在必要时作为提供对台防卫支持的基地。其后，双方又在两国的“2+2”会谈上承诺增加美国和日本的联合共用军事设施，同时，日本也将加强其自卫队在西南诸岛区域的军事部署。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/olympic-quarantine-2.jpg)图片来源：Vancouver Sun
 
-文字版原文：[美日将在日本西南加强军事储备 剑指中共](https://gnews.org/zh-hans/1979992/)
 
-音频处理/发稿：Daxia
+据【温哥华太阳报】2月6日报道，在北京冬奥会期间，各参赛国对当局强制性疫情隔离规定的投诉堆积如山，其中，芬兰男子冰球队教练当天指责中共国侵犯了其球员的人权。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+芬兰队主教练表示，该队因疑似被病毒感染而被中共当局隔离的球员，不仅没有得到好的食物待遇，而且还承受着巨大的精神压力。据队医表示，尽管被确诊的球员如今已不再具有传染性，但在被隔离18天后，目前仍处在被监禁的状态中。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+据悉，自 1 月 23 日以来，包括近百名运动员在内的约400名奥运会参与者在抵达北京后被确诊感染”新冠病毒“。所有感染者只有在症状消失后才能离开特殊的隔离酒店，并且必须每间隔24小时进行两次相关检测。
 
+大部分被隔离的参与者不仅抱怨隔离条件简陋不堪，而且还指责组办方的防疫程序混乱无章。相信本次冬奥会将成为这些为名利而来支持中共政权的参赛者们，终生挥之不去的噩梦。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：文明(添草灭共)
+
+原文链接：[China accused of ignoring Olympic hockey player’s human rights as isolation complaints grow | Vancouver Sun](https://vancouversun.com/sports/olympics/olympics-china-accused-of-ignoring-hockey-players-human-rights-as-isolation-complaints-grow-2/wcm/1d91588f-1eb3-47eb-8cd0-65834a1a331e)
 
  
 
