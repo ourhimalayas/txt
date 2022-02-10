@@ -2,20 +2,16 @@
 ---
 
 
-## 中日财经爆┃MSCI中共国A股指数纳入中国移动 剔除阳光城
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1982410/)
+## 美新任驻日本大使发推表示支持日本
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1982425/)
 
-整理编辑：东京樱花团｜peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-986.png)
-[*图片来源*](https://x0.ifengimg.com/ucms/2021_46/938C07AD717A5B6A548FB4DE08194EA3FBD964C3_size228_w1587_h907.jpg)
+撰稿：东京樱花团｜待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-987.png)[*图片来源*](https://gdb.voanews.com/110a09f6-21fb-42ca-bc3d-cd6614fce203_w1200_r1.jpg)
+据日本产经新闻2月10日消息：外交部长林芳正在2月10日的新闻发布会上说：美国新任驻日大使拉姆-伊曼纽尔在推特上发帖，称美国自20世纪50年代以来一直承认日本对北方四岛的主权，以此表达对日本立场的支持。对此，我们表示欢迎。
 
-国际指数编制公司MSCI（明晟）周三（2月10日）公布了2022年2月的季度指数评审结果，其中MSCI中共国A股在岸指数将新增四个成分股，即中国移动A股、中伟新材料、东方生物和伯特利。
+２月7日是“北方领土日”。伊曼纽尔在推特上写道：我想说清楚一件事，美国在北方领土问题上是支持日本的。 同时还分享了一段视频，并在视频中说：美国自20世纪50年代以来一直承认日本对北方四岛的主权。
 
-MSCI在其官网称，MSCI中共国A股在岸指数将剔除沙钢股份、阳光城和ST国医。MSCI中共国全股票指数中，将各新增和剔除五个公司，新增的股票包括格力电器、中伟新材料和陆金所。上述变动将于2月28日收盘后生效。
-
-明晟公司（MSCI），原名为摩根士丹利资本国际，是一家美国股票基金、收入型基金、对冲基金股价指数和股东权益投资组合分析工具提供商。2007年中，母公司摩根士丹利决定从MSCI撤资。
-
-消息来源：[**MSCI中国A股在岸指数将纳入中国移动等四只股票 阳光城等遭剔除**](https://cn.reuters.com/article/msci-china-shares-inclusion-0210-thur-idCNKBS2KF05Y?il=0)
+信息来源：[**外相、北方領土「日本に主権」の米大使ツイート歓迎（産経新聞）**](https://news.yahoo.co.jp/articles/4150e85d3a1b7df142de07c8b482eda051df2124)
 
 *校对：东京樱花团/東洋武士*
 *发布：东京樱花团/tdownc2p*

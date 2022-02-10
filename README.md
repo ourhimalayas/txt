@@ -15,101 +15,101 @@
 
 ---
 
-### [中共俄罗斯结合，牺牲的就是老百姓的钱](/content/gnews/1/README.md)
+### [2022年新中国联邦的三大挑战](/content/gnews/1/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [冬奥会灭共两首歌的力量](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [马克龙到俄罗斯求普京](/content/gnews/2/README.md)
+### [灭共是人类历史上最难的事](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [冬奥会现场根本没人](/content/gnews/3/README.md)
+### [冬奥会是中国人的耻辱](/content/gnews/4/README.md)
  ` 雅典娜GNotes`
 
-### [SpaceX的40颗星链卫星被太阳磁暴摧毁](/content/gnews/4/README.md)
+### [中共俄罗斯结合，牺牲的就是老百姓的钱](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [7/24系列：中美友好的记忆——先行者山茂召](/content/gnews/6/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [马克龙到俄罗斯求普京](/content/gnews/7/README.md)
+ ` 雅典娜GNotes`
+
+### [冬奥会现场根本没人](/content/gnews/8/README.md)
+ ` 雅典娜GNotes`
+
+### [SpaceX的40颗星链卫星被太阳磁暴摧毁](/content/gnews/9/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2月9日大直播后记：一定会把中国卖掉](/content/gnews/5/README.md)
+### [2月9日大直播后记：一定会把中国卖掉](/content/gnews/10/README.md)
  ` 雅典娜GNotes`
 
-### [普京对杨洁篪的话](/content/gnews/6/README.md)
+### [普京对杨洁篪的话](/content/gnews/11/README.md)
  ` 雅典娜GNotes`
 
-### [日本皇室爆出首例中共病毒确诊](/content/gnews/7/README.md)
+### [日本皇室爆出首例中共病毒确诊](/content/gnews/12/README.md)
  ` NFSC News`
 
-### [中共未兑现贸易协议美国将考虑下一步行动](/content/gnews/8/README.md)
+### [中共未兑现贸易协议美国将考虑下一步行动](/content/gnews/13/README.md)
  ` 日本东京方舟农场`
 
-### [文雍漫谈：锁链下的中国](/content/gnews/9/README.md)
+### [文雍漫谈：锁链下的中国](/content/gnews/14/README.md)
  ` 文雍`
 
-### [中俄都抓住自己的机会，普京实在没办法才到中国](/content/gnews/10/README.md)
- ` 雅典娜GNotes`
-
-### [中共外交部发言人赵立坚：冬奥火炬手安排轮不到美国说三道四](/content/gnews/11/README.md)
+### [中共外交部发言人赵立坚：冬奥火炬手安排轮不到美国说三道四](/content/gnews/15/README.md)
  ` 首尔天池农场`
 
-### [中共高层直接染指全民核酸](/content/gnews/12/README.md)
+### [中共高层直接染指全民核酸](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [共产党向美国求饶](/content/gnews/13/README.md)
- ` 雅典娜GNotes`
-
-### [最重要的沙特王子没去冬奥会](/content/gnews/14/README.md)
- ` 雅典娜GNotes`
-
-### [【秘翻在线】中共网络水军通过操纵标签消弭推特上的批评言论](/content/gnews/15/README.md)
+### [【秘翻在线】中共网络水军通过操纵标签消弭推特上的批评言论](/content/gnews/17/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [樱花头条｜加拿大萨斯喀彻温省宣布结束该省的 &#8220;疫苗护照&#8221;](/content/gnews/16/README.md)
+### [樱花头条｜加拿大萨斯喀彻温省宣布结束该省的 &#8220;疫苗护照&#8221;](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花头条｜英国政府将提前一个月取消英格兰的所有Covid限制](/content/gnews/17/README.md)
+### [樱花头条｜英国政府将提前一个月取消英格兰的所有Covid限制](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [关于B站网络内容审核员猝死案的看法](/content/gnews/18/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [为什么中共极力维护与俄罗斯的病态关系](/content/gnews/19/README.md)
+### [为什么中共极力维护与俄罗斯的病态关系](/content/gnews/20/README.md)
  ` 纽约香草山MOS03`
-
-### [2022.2.9大直播后记：沼泽地的第一仗](/content/gnews/20/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [魔鬼交易，出卖灵魂——美国大公司向中共转让技术危害世界](/content/gnews/21/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [台湾多个疫苗副作用案例 获得预防接种受害救济](/content/gnews/22/README.md)
+### [英国接受中共病毒疫苗的儿童 死亡率增加数倍](/content/gnews/22/README.md)
  ` NFSC News`
 
-### [英国调查发现 中共病毒导致员工长期病假 造成人力短缺](/content/gnews/23/README.md)
+### [台湾多个疫苗副作用案例 获得预防接种受害救济](/content/gnews/23/README.md)
  ` NFSC News`
 
-### [武汉实验室曾寻找用于 &#8220;感染人类 &#8220;的流感菌株](/content/gnews/24/README.md)
+### [英国调查发现 中共病毒导致员工长期病假 造成人力短缺](/content/gnews/24/README.md)
+ ` NFSC News`
+
+### [武汉实验室曾寻找用于 &#8220;感染人类 &#8220;的流感菌株](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
-### [加拿大阿尔伯塔省解除新冠病毒防控限制，取消疫苗护照](/content/gnews/25/README.md)
+### [加拿大阿尔伯塔省解除新冠病毒防控限制，取消疫苗护照](/content/gnews/26/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [加拿大特鲁多在下议院遭群嘲,被告知要遵循科学并结束强制疫苗](/content/gnews/26/README.md)
+### [加拿大特鲁多在下议院遭群嘲,被告知要遵循科学并结束强制疫苗](/content/gnews/27/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [每日快报：瑞银在躲避中国亿万富翁的5亿美元诉讼中落败](/content/gnews/27/README.md)
+### [每日快报：瑞银在躲避中国亿万富翁的5亿美元诉讼中落败](/content/gnews/28/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中共被指控侵犯奥运冰球运动员人权](/content/gnews/28/README.md)
+### [中共被指控侵犯奥运冰球运动员人权](/content/gnews/29/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [全球供应链危机将灾难性延续](/content/gnews/29/README.md)
+### [全球供应链危机将灾难性延续](/content/gnews/30/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [有声|美日将在日本西南加强军事储备 剑指中共](/content/gnews/30/README.md)
+### [有声|美日将在日本西南加强军事储备 剑指中共](/content/gnews/31/README.md)
  ` MOSREC`
 
-### [德国科学家：武汉发生的事是危险的](/content/gnews/31/README.md)
+### [德国科学家：武汉发生的事是危险的](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [有声|台湾陆委会坚决反对中共虚假的民主协商](/content/gnews/32/README.md)
- ` MOSREC`
 
 ### [乌克兰局势促英法两国采取行动](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
@@ -117,53 +117,53 @@
 ### [为增加奥运奖牌数量 北京疑悄悄改变国籍规则](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美新任驻日本大使发推表示支持日本](/content/gnews/35/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中日财经爆┃MSCI中共国A股指数纳入中国移动 剔除阳光城](/content/gnews/36/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [瑞银无法阻止郭先生在伦敦起诉](/content/gnews/37/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [中共依法决定逮捕蔡鄂生！](/content/gnews/38/README.md)
- ` 首尔天池农场`
-
-### [中日财经爆┃美国考虑与盟国合作对中共国征收新关税](/content/gnews/39/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共高层直接染指全民核酸](/content/gnews/40/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [众议员奇普·罗伊提出法案 以使因疫苗强制令被遣散的军人复职](/content/gnews/41/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [日媒：习近平两名部下权力更迭 中共二十大内斗加剧](/content/gnews/42/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [2022年2月9日 晚 新中国联邦新闻、GTV新闻访谈简报](/content/gnews/43/README.md)
- ` 纽约香草山MOS01`
-
-### [卧底美国的中共特工-单伟建](/content/gnews/44/README.md)
- ` 秘密翻译组-原创组`
-
-### [徐州八孩母亲事件再看中共的邪恶本性](/content/gnews/45/README.md)
- ` 秘密翻译组-原创组`
-
-### [《避风港Haven》直播内容精选（第七集·上）](/content/gnews/46/README.md)
+### [《避风港Haven》直播内容精选（第七集·下）](/content/gnews/35/README.md)
  ` 喜马拉雅纽约磐石农场`
 
-### [针下亡魂｜希腊 21 岁足球运动员接种疫苗后死亡](/content/gnews/47/README.md)
- ` 關注組`
-
-### [韩国96%疫苗接种率 新增中共病毒却创新高](/content/gnews/48/README.md)
+### [美新任驻日本大使发推表示支持日本](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [“军人在战场上可以是英雄，你们也是英雄”](/content/gnews/49/README.md)
+### [中日财经爆┃MSCI中共国A股指数纳入中国移动 剔除阳光城](/content/gnews/37/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [瑞银无法阻止郭先生在伦敦起诉](/content/gnews/38/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [伦敦法院立案调查瑞银 全球银行巨头岌岌可危](/content/gnews/50/README.md)
+### [中共依法决定逮捕蔡鄂生！](/content/gnews/39/README.md)
+ ` 首尔天池农场`
+
+### [中日财经爆┃美国考虑与盟国合作对中共国征收新关税](/content/gnews/40/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共高层直接染指全民核酸](/content/gnews/41/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [众议员奇普·罗伊提出法案 以使因疫苗强制令被遣散的军人复职](/content/gnews/42/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [日媒：习近平两名部下权力更迭 中共二十大内斗加剧](/content/gnews/43/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [2022年2月9日 晚 新中国联邦新闻、GTV新闻访谈简报](/content/gnews/44/README.md)
+ ` 纽约香草山MOS01`
+
+### [卧底美国的中共特工-单伟建](/content/gnews/45/README.md)
  ` 秘密翻译组-原创组`
+
+### [徐州八孩母亲事件再看中共的邪恶本性](/content/gnews/46/README.md)
+ ` 秘密翻译组-原创组`
+
+### [《避风港Haven》直播内容精选（第七集·上）](/content/gnews/47/README.md)
+ ` 喜马拉雅纽约磐石农场`
+
+### [针下亡魂｜希腊 21 岁足球运动员接种疫苗后死亡](/content/gnews/48/README.md)
+ ` 關注組`
+
+### [韩国96%疫苗接种率 新增中共病毒却创新高](/content/gnews/49/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [“军人在战场上可以是英雄，你们也是英雄”](/content/gnews/50/README.md)
+ ` 秘密翻譯組G-Translators`
 
 ### [2022年2月9日大直播速记精萃](/content/gnews/51/README.md)
  ` 雅典娜GNotes`

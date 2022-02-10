@@ -2,8 +2,8 @@
 ---
 
 
-## 冬奥会现场根本没人
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1982898/)
+## 灭共是人类历史上最难的事
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1982940/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

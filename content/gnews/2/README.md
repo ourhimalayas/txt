@@ -2,10 +2,10 @@
 ---
 
 
-## 马克龙到俄罗斯求普京
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1982910/)
+## 冬奥会灭共两首歌的力量
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1982948/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
 
 *发布：陶子*
