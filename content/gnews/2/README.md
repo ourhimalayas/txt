@@ -2,90 +2,86 @@
 ---
 
 
-## 全球疫情更新（第三针的未来）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1981725/)
+## 中国人噩梦的开始，国人奴性的根源 ——《驭民五术》
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1981802/)
 
-**整理/编辑：枳实**
+作者：纽约香草山教育部 – 蒙古鸿雁
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+中国第一本禁书是两千多年前先秦的商鞅撰写的《商君书》。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-862.png)图片：雅典娜农场设计组 精灵蓝
+在这本书中，始终强调朝廷是与民众对立的关系，秉持的指导思想是民强国弱、民弱国才能强。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/驭民五术-2.jpg)
+“弱民”成为了强大国家机器的核心思想。
+
+接下来的秦统治者们提炼了《商君书》的“精髓”，形成了一直延续至今、并被共产党演绎得炉火纯青、残暴统治人民的《驭民五术》。
+
+这是中国人噩梦的开始，也是国人奴性的根源。
+
+何为《驭民五术》？
+
+就是愚民、弱民、疲民、辱民、贫民。
+
+愚民就是控制、统一思想和价值观，让你脑子想什么统治者说了算，不能让老百姓有独立思考的能力，不能产生自己的想法。
+
+弱民就是“以弱驱强、以奸驭良”。
+
+利用弱者对有钱有能力的人施加各种制约，全方位进行打击削弱，让有能力的人没办法与统治者对抗，最终达成用弱者干掉强者，最后只剩下弱者，达到更加便于统治者统治管理百姓的目的。
+
+疲民就是让你为了生计而疲于奔命，没时间产生想法，满脑子只剩下养家糊口的念头，让你没精力对抗强权。
+
+贫民就是横征暴敛、加强赋税让你积累不了财富没什么钱，但是会让你有口饭吃别饿死，这样就会让百姓心理上没有了安全感。
+
+当权者再玩弄一些小花招，给一些小恩惠，让一直贫苦的百姓一时间不知如何是好并感激涕零。
+
+“无恒产则无恒心”，也就没有了心力去对抗不公，也就安分老实了，为了不饿死也就听命并依赖于强权了。
+
+心理学上有一个专有名词叫“斯德哥尔摩综合症”， 是指犯罪过程中的被害人对于加害人产生情感认同、依赖等，并结成融洽、友好关系，甚至反过来帮助加害人的一种情感联结。
+
+“斯德哥尔摩综合症”就很好地解释了这一点。
+
+辱民就是让老百姓没有尊严。统治者认为尊严不属于百姓，并鼓励相互检举揭发。百姓相互之间怀疑没有了信任感，也就无法凝聚抱团，对执政者也就无法构成威胁。
+
+让百姓不知道什么是尊严，剩下的强权的威严了。被剥夺了一切的没有尊严的百姓就会变的低眉顺眼、唯唯诺诺、战战兢兢、俯首帖耳，就更容易被强权践踏。
+
+但“存在”就会有平衡，倾斜的久了就会有“力”来介入让失衡回归平衡。
+
+阴邪的商鞅虽然给帝王们贡献了残暴的驭民术，但并未为自己和残暴的统治者提供退路，商鞅最终被秦惠文王杀掉并被“车裂”，秦王朝也未能长命。
+
+“残暴治理”理念的“开创者”或“升级者”最后都会被自己的“创意”灭掉，这在世界历史上已上演了无数次。
+
+“驭民五术”在中国存活了两千多年后，非法夺取政权的CCP不但全盘接受，并将《驭民五术》驾驭使用的登峰造极，让这个曾经勤劳、善良、智慧、勇敢的民族变得懦弱、自私、愚昧无知，成为世界的弃儿并正在走向地狱的路上。
+
+但共产党残暴统治中国人民的同时也在迎它接走向覆灭末日的到来。
+
+2020年六月四日一个象征着中华民族新生的新中国联邦诞生了。
+
+在郭文贵先生引领的新中国联邦爆料革命下，中国人民正在从沉睡中被唤醒～
+
+一颗颗苏醒的希望星火闪烁在世界各地，并迅速连结形成燎原之势，烧向正在摧毁中华民族和世界的邪魔共产党。
+
+貌似强悍而内在已腐败溃烂、千疮百孔的共产党的庞大躯体，正在熊熊燃烧的烈火中扭曲挣扎。
+
+而奴役了中国人民两千多年的“驭民术”也正随着共产党那发出哀嚎、腐臭的躯壳一同走向炼狱。
+
+它们将被铲除殆尽、从这个星球上灰飞烟灭！
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+
+**校对/发稿：**Fei797
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
 
 
-雅典娜疫情更新（2022年 2月9日）
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
-
-**一，全球疫情基本数据**
-
-感染总数：397,363,280（日新增2,677,691人，14天增幅-23%）
-
-死亡总数：5,749,846（日新增10,900      人，14天增幅 +29%）
-
-**二，全球“疫苗”毒针统计数据**
-
-“疫苗”毒针注射总数：103亿
-
-完全“接种”：42.2亿人
-
-完全“接种”百分比：54.1%
-
-**三，澳洲疫情和“疫苗”数据**
-
-感染总数：2,811,482（今日新增31,064人）
-
-死亡总数：4,373人（今日新增 70人）
-
-每万人感染人数：1090.1839人
-
-“疫苗”毒针注射总数：51,590,445 （今日新增217,265   针）
-
-完全“接种”：19,332,593人
-
-第二针“接种”百分比：78.9%
-
-16岁以上人口接种至少一剂疫苗的比例：&gt;95%
-
-16岁以上人口接种至少两剂疫苗的比例：93.8%
-
-加强针总数：9,182,529（日新增：184,868针）
-
-**四，第三针的未来**
-
-现在澳洲民众处在轰轰烈烈打第三针的阶段，第三针增长速度领先于很多国家。如下图各国每百人加强针注射数量曲线，绿色曲线为澳大利亚，其陡峭程度最大。加强针的效果如何，加强针接种水平远远大于澳洲的英国数据可以用来借鉴和预测。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/6-9.png)
-[下面这封信是英国民众通过信息自由法案获得](https://stevekirsch.substack.com/p/negative-vaccine-efficacy-example)的英国布莱普教学医院（Blackpool teaching Hospital）的住院患者中的疫苗接种统计数据。从信中的数据推算可知，住院病人中多达130/182 = 71%的患者是注射了加强针的病人。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/11-4.png)
-但英国布莱普地区的第三针接种率仅有44.9%，如下图所示。这71%和44.9%之间的巨大差距
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-7.png)
-英国布莱普地区的第三针接种率仅有44.9%，如下图所示。这71%和44.9%之间的巨大差距正说明了加强针注射不仅不能减轻病情，反而使得住院率几乎翻倍。 让我们看一下英国政府的数据：
-![](https://assets.gnews.org/wp-content/uploads/2022/02/14-1.png)
-如上图所示，今年1月份的数据，每十万人感染率各年龄组的对比，可以看到，18岁以上的各年龄组的感染率都是打2针及更多疫苗毒针的人有更高的感染率。
-
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
-
-数据来源：
-
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

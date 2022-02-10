@@ -2,85 +2,151 @@
 ---
 
 
-## 2022年2月9日文贵先生直播摘要及音频—银河系农场
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1981675/)
+## 两年来，CDC无视数据，甚至撒谎,将自然免疫当成阴谋论
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1981794/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/封面-7.jpg)
-盖特连接：[2022年2月9日 文贵大直播：习普政治困局；中美俄三角斗；药厂政策调整；药厂政府互掐；何为全球货币；七哥个人生活](https://gettr.com/streaming/ptgw8b5f32)
+[https://gtv.org/video/id=6204153b585ecc15d73f7d61](https://gtv.org/video/id=6204153b585ecc15d73f7d61)
 
-GTV连接：[2022年2月9日 文贵大直播：UBS正式立案 打响沼泽地的第一仗；习普政治困局；中美俄三角斗；药厂政策调整；药厂政府互掐；何为全球货币；七哥个人生活](https://gtv.org/video/id=6203b7b13621aa7415d80e9e)
+Rep. Thomas Massie
+托马斯·马西议员
 
-1、外交部官宣出席的沙特王子和某一王室成员没有来。戴口罩想蒙骗过场；
+One of the biggest scandals during this whole pandemic, is the cover up
+在整个大流行期间, 最大的丑闻之一就是掩盖
 
-2、冬奥会中美关系回暖：中共承若购买5千亿美元的物资，要求美国任命沈阳驻中国大使；
+That’s been committed by Fauci and the CDC, especially the CDC
+福奇和疾病预防控制中心已经承认，尤其是疾病预防控制中心
 
-3、普京愤怒离京告诉王毅杨洁篪，冬奥会烟花和大屏幕美轮美奂，现场你控制了，但是副作用你们想到了吗？现场根本没有人；
+about the effectiveness of immunity that’s conferred after a natural infection
+关于自然感染后赋予的免疫力的有效性
 
-4、针对中共的欧洲版贸易法案马上推出，普京见完习近平后见法国马克龙，谈话原定3小时变成5小时；
+after you recover from that
+在你从自然感染中恢复后
 
-5、法国马克龙愿意买3千亿天然气，求普京别打乌克兰；
+they’ve completely ignored that
+他们完全忽略了这一点
 
-6、说明俄罗斯利用这一出和欧洲交易了，既拿了中共的钱又卖了习近平；
+They want everybody to get vaccinated
+他们希望每个人都接种疫苗
 
-7、全世界的主流媒体都在一本正经严肃地叫你打疫苗，直到打死拉倒；
+even those who don’t need vaccinated
+即使是那些不需要接种疫苗的人
 
-8、新加坡战友睡着了被老婆打了疫苗针，嘴歪、大便失禁！
+and the science if you follow the science on this
+关于科学，如果你遵循这方面的科学
 
-9、今天的三件大事:
+The Moderna trial showed there was no benefit of the vaccine to those who recov-ered from infection
+莫德纳试验表明，疫苗对那些从感染中恢复过来的人没有好处
 
-1）UBS正式立案，与沼泽地的挑战打响了第一枪；
+The Pfizer trial showed there was no benefit to those who had recovered from in-fection from the vaccine
+辉瑞的试验表明，疫苗对那些从病毒感染中恢复过来的人没有任何好处
 
-2）要前往英国，日本生活，在离中国更近的地方灭共；
+A recent study with 52,000 people at the Cleveland Clinic
+最近在克利夫兰诊所对52,000人进行的一项研究表明
 
-3）正在申请法律程序，要变的一无所有；
+300 plus of whom did not receive the vaccine
+其中1300多人没有接种疫苗
 
-10、UBS是CCP的半个财富帝国！罗斯柴尔德与UBS比，只能排第三；
+but had prior infection showed that none of them got reinfected, symptomatically
+但之前曾经感染过，结果表明他们没有人再次感染，或有症状
 
-11、UBS是沼泽地的核心！其存款黑钱起码100万亿美元以上，过去人类500年的财富；
+and then if you want to compare the efficacy of immunity from recovering from COVID to that of the vaccine
+然后如果你想比较从 COVID 中恢复的免疫力与疫苗的功效
 
-12、UBS是CCP唯一批准的独立经营牌照的金融机构！
+the biggest study out there is the whole country of Israel
+最大的研究的国家是整个以色列
 
-13、从大清朝、国民党到共产党，这期间的黑钱绝大部分都藏在了瑞银。可以从这里至少能找回50万亿美元，中国人现在所有的负债至少可以免10次；
+Tel Aviv University, 6 million participants in this study, 6 million data points
+以色列特拉维夫大学的600万参与者参与了这项研究，600 万个数据点
 
-14、2025年前，文贵先生要把共产党的钱弄回来；
+And it showed there’s virtually no difference actually is it showed a little bit
+它表明实际上几乎没有差异，它显示了一点
 
-15、比亚迪融资，罗斯柴尔德投资，然后罗斯柴尔德银行，接着巴菲特就投资了，这里面没有沼泽地背书，想融资没可能；
+but probably not statistically significant, a little bit better
+但可能没有统计学意义，对自然感染的免疫力要好一点
 
-16、罗斯柴尔德、德意志银行、高盛、华尔街、UBS等等就是放高利贷的沼泽地，PAG就是中国的高盛；
+immunity from natural infection and before you all report this
+在你们所有人报告之前
 
-17、瑞士、卢森堡藏了全世界99%钱；
+I’m not saying go out and get the virus instead of getting the vaccine
+我不是说出去感染病毒而不去接种疫苗
 
-18、排华最严重：俄罗斯、东南亚、非洲；
+The vaccine can save lives and certain
+疫苗可以挽救生命和肯定的
 
-19、大直播继续、文贵先生有可能申请个人破产；
+but there’s no need, the science shows this
+但没必要，科学证明了这一点
 
-20、两件事：灭共、不打疫苗；
+There’s no need to get the vaccine if you’ve already recovered from COVID
+如果您已经从COVID中康复，则无需接种疫苗
 
-**注：大直播音频正在制作和上传中，敬请关注——**
+And then there’s no need to expose yourself to that danger
+然后就没有必要让自己暴露在那种危险之中
 
-**（大直播音频位置）**
+The CDC knows this, they admitted to me on a recorded phone call
+疾病预防控制中心知道这一点，他们通过录了音的电话向我承认了这一点
 
-编辑整理：文俊；
+I’ll be glad to give you that they knew they were misreporting the results of the Pfizer data
+我很高兴告诉你他们知道他们误报了辉瑞数据的结果
 
-发布：黎明之前
+Reporter
+记者
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+Number one you didn’t answer whether or not you’ve been vaccinated
+第一个你没有回答你是否接种过疫苗
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
+Rep. Thomas Massie
+托马斯·马西议员
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+Well first of all, it’s none of your business
+好吧，首先，这不关你的事
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+But I’m going to tell you, I’m not vaccinated
+但我要告诉你，我没有接种疫苗
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+And until there’s some science
+直到有一些科学依据
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+by the way I have a Master’s of Science degree from MIT
+顺便说一句，我拥有麻省理工学院的理学硕士学位
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+I’m not a virologist, but I can read data
+我不是病毒学家，但我可以读取数据
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+Everybody just needs to read it
+每个人只需要阅读它
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+Don’t put your head in the sand. Look at the data.
+不要把头埋在沙子里，看看数据
+
+I’m not going to get the vaccine until there’s data that shows
+我不会接种疫苗，直到有数据表明
+
+that it will improve upon the immunity
+它会提高免疫力
+
+that’s been conferred to me as a result of a natural infection that I had
+由于我的一次自然感染，而我被授予了这一权利
+
+**原视频链接**[:](https://twitter.com/repthomasmassie/status)[https://twitter.com/repthomasmassie/status](https://twitter.com/repthomasmassie/status)
+
+Date:02/06/2022
+原视频标题: For 2 years, CDC ignored the data and even lied about it to treat natural immunity like a conspiracy theory
+两年来，CDC无视数据，甚至撒谎，将自然免疫当成阴谋论
+原视频日期：2022/02/08
+原视频链接https://twitter.com/repthomasmassie/status/1490783499883847680?s=24
+任务编号：KE392(3699)
+视频时间段 : 0:00-2:34
+
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场- 银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

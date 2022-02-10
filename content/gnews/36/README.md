@@ -2,20 +2,22 @@
 ---
 
 
-## 摄像机捕捉到冬奥中共速滑运动员的作弊行为
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1980983/)
+## 彭帅受访照片露出背后监视人员
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1980985/)
 
-作者：银河系农场—骄子
+作者：纽约香草山 医疗部 – 云豹
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-2月7日晚，在北京冬奥会室内体育场举办的女子第一组500米短道速滑四分之一决赛中，中共选手范可新被摄影机捕捉到向加拿大选手的冰鞋投掷障碍物，导致加拿大选手查尔斯摔倒。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-14.jpg)
-此视频片段被上传至社交媒体后被删除，最后又被重新发布。此事引发了网上的热议，很多观众表示此小动作过于隐蔽，看了很多次慢动作回放才看到发生了什么。
+2月7日，法国一家媒体刊出了一篇专访彭帅的文章。该媒体是在申请采访彭帅多日后，在冬奥开幕的前一日意外获得采访批准的。
 
-从视频中可以看到，中共选手范可新把手从旁边运动员布吕内勒的腿上跨过时，向在前方的查尔斯冰鞋下面投掷了障碍物，随即查尔斯摔倒。布吕内勒受到惩罚，查尔斯则获准晋级。
+当日，彭帅在中共奥委会办公室主任王侃陪同下，在北京冬奥委会隔离饭店内接受闭门采访。访谈中，彭帅否认了之前对中共国务院前副总理张高丽性侵的指控，并宣布将要退役。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-16.jpg)
+但是，2月8日，一张访谈时的照片被意外曝光，在照片的镜子中，出现了两位隐藏在屋内的男性影像。有一位男子身着白衣，双手交叉抱在胸前，直接面对彭帅站立，明显在监视彭帅的举动。
 
-据悉，中共选手范可欣曾在2018年韩国冬奥会上因作弊而被取消中国女子3000米接力决赛资格。
+在法国媒体刊出彭帅的访谈报导后，外界普遍怀疑彭帅当天是否是在自由意志下表达自己的想法。8日曝光的访谈照片，为外界的怀疑做出了最好的证明。
 
-参考链接：[摄像机捕捉到冬奥中共速滑运动员的作弊行为](https://www.news.com.au/sport/winter-olympics/chinese-stars-eyebrowraising-olympic-act-caught-on-camera/news-story/233e9a5efd33a45709116fe3f09aebbb)
+参考链接：
+1. [彭帅受访照片露出背后监视人员](https://news.ltn.com.tw/news/world/breakingnews/3822791)
+2. [彭帅受访照片露出背后监视人员](https://news.ltn.com.tw/news/world/paper/1499382)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
@@ -31,6 +33,8 @@
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
 ![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

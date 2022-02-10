@@ -2,47 +2,33 @@
 ---
 
 
-## 冬奥会运动员抨击COVID隔离酒店条件恶劣
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1981176/)
+## 喜剧演员希瑟·麦克唐纳在演出期间倒地后颅骨骨折
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1981251/)
 
-**评论：***冬奥会既远远超过中共的服务能力，也突显中共不以人为本的行事方式，所以远离中共是最优的选项。*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-930-e1644435355733.png)图片来源：网络
+2月5日，周六晚7点，51岁的喜剧演员希瑟·麦克唐纳在亚利桑那州坦佩市的一场脱口秀即兴表演中突然仰面倒地后颅骨骨折。
 
-据《福克斯新闻》记者：[Ryan Gaydos](https://www.foxnews.com/person/g/ryan-gaydos)，2022年2月5日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-926-e1644433449235.png)俄罗斯运动员瓦莱里娅-瓦斯涅佐娃在克拉斯诺亚尔斯克2019年冬季大运会女子10公里追逐赛中。图片来源：Sergei Bobylev/TASS via Getty Images
-冬奥会运动员们说中共冠状病毒隔离酒店缺乏可食用的食物和训练设备，他们正在等待病毒测试结果，渴望离开隔离地点。
+在她不到三分钟的表演里，她说：”我不需要吹牛，我不在乎，我想让你们知道，我打了两针，加强剂，流感疫苗，我也打了带状疱疹疫苗，而且我现在还有月经，是的（狂欢状）。我还去旅游，去了墨西哥两次，演出，见人，从未感染过Covid。无疑，耶稣最爱我，真的，很好，很好….啊…（轰然倒地）”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-931-e1644435396522.png)图片来源：网络
+顿时观众席传来一阵阵笑声，估计都以为演员在舞台上演戏吧。 这真是一场意外的幽默讽刺剧，充满喜剧性。麦克唐纳本想讽刺那些不打疫苗者，沒想到自己却因疫苗副作用突发倒地。
 
-俄罗斯冬季两项运动员瓦列里娅-瓦斯涅佐娃和比利时人金-梅勒曼斯在北京奥运会上对隔离条件进行坦诚的指责。
+耶稣最爱她，给她开了一个最大的玩笑。可笑，更可悲。她自己的无知，导致了可悲的结果。她没有被病毒感染击倒，却被疫苗副作用击倒。
 
-俄罗斯运动员瓦莱里娅-瓦斯涅佐娃之前参加过克拉斯诺亚尔斯克2019年冬季大运会女子10公里追逐赛。
+根据周日在她的官方Facebook页面上发布给粉丝的一条消息，麦克唐纳于2月4日星期五晚上在Tempe Improv演出，没有发生任何事故。她周六早上和儿子一起度过了平静的时光。周六晚上7点，麦克唐纳开始她的即兴表演，她在舞台上大约3分钟，突然倒下 。随后，麦克唐纳被送往当地一家医院，在那里进行测试以确定导致她崩溃的原因，到目前为止，测试没有发现可能导致这一突发事件的潜在医疗问题。麦克唐纳还接受了COVID-19病毒检测，结果为阴性。
 
-“我的胃很痛，我的脸色很苍白，我的眼睛周围有巨大的黑眼圈。我希望这一切都能结束。我每天都在哭。我非常累。” 瓦斯涅佐娃在Instagram的视频中说。
+祝愿她早日康复，早日清醒，也希望更多人能因此喜剧而清醒过来。
 
-瓦斯涅佐娃仔细检查了她在酒店收到的膳食，在Twitter上发布了她“已经吃了五天的早餐、午餐和晚餐”——托盘上有普通意大利面、橙色酱汁、焦肉、土豆，但没有蔬菜。
+文章观点仅代表作者，与Gnews平台无关
 
-她说“很难”吃下大部分食物，她的体重正在迅速下降。
+参考资料：[https://amp.tmz.com/2022/02/08/heather-mcdonald-fainting-collapsing-on-stage-video/](https://amp.tmz.com/2022/02/08/heather-mcdonald-fainting-collapsing-on-stage-video/)
 
-瓦斯涅佐娃因COVID隔离治疗而被迫错过奥运比赛。
+[https://news.yahoo.com/comedian-heather-mcdonald-suffers-skull-221613281.html](https://news.yahoo.com/comedian-heather-mcdonald-suffers-skull-221613281.html)
 
-梅勒曼斯在本周早些时候的含泪视频引发了大量关注。视频发布后，她被从隔离酒店带回奥运村的隔离区。她被阻碍与外界信息的交流。
+作者：洛杉矶盘古农场 — 郭友(文苏)
 
-2021年12月10日，在德国温特贝格举行的BMW IBSF世界杯Bob和Skeleton 2021/22比赛中，比利时梅勒曼斯参加了女子滑板比赛。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-927-e1644433484135.png)梅勒曼斯在BMW IBSF世界杯Bob和Skeleton 2021/22比赛中。图片来源：Dean Mouhtaropoulos/Getty Images
-她反馈，被带到奥运村后，感觉更安全了，但仍需要七天的测试才能解除隔离。
+编审：洛杉矶盘古农场 — 心照
 
-“我们的主要目标是尽快将梅勒曼斯送回延庆的奥运村。” 比利时奥运官员Olav Spahl周三说。“我们非常高兴现在已经成功实现了这一目标。我们理解COVID措施对于保障运动会参与者的安全和健康是必要的，但我们认为运动员应该始终是这种服务的重点。”
-
-德国队也在寻求更好的生活条件。德国代表团团长Dirk Schimmelpfennig在三届北欧综合运动会金牌得主Eric Frenzel检测出阳性后，对 “不合理” 的生活条件进行了抨击。Schimmelpfennig说： “德国希望有更大、更卫生的房间，以及定期运送食物。”
-
-这种压力似乎在某些方面得到了回报。
-
-俄罗斯冬季两项队发言人Sergei Averyanov说：“瓦斯涅佐娃在投诉后，得到了更好的饮食。”他补充：“她将得到一辆固定使用的自行车和更好的膳食，包括鲑鱼、黄瓜、香肠和酸奶。”
-
-文章来源：[https://www.foxnews.com/sports/winter-olympic-athletes-conditions-covid-quarantine-hotels](https://www.foxnews.com/sports/winter-olympic-athletes-conditions-covid-quarantine-hotels)
-
-翻译：洛杉矶盘古农场 – Mike Li
-校对：洛杉矶盘古农场 – 轰炸机
-评论：洛杉矶盘古农场 – 轰炸机
-编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 — 子萍
 
 
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
