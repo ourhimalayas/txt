@@ -2,22 +2,37 @@
 ---
 
 
-## 台湾前线｜台湾离岛领空 疑遭中共民用无人机入侵
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1983375/)
+## CCP病毒疫苗对重症防护没有作用
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1983504/)
 
-**港台前線關注組 / 發佈時間｜10/2/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Food-Dine-Socia-Media-Youtube-Banner.png)**更多資訊請關注官方蓋特｜please follow our Gettr （[https://gettr.com/user/hktwfrontline](https://gettr.com/user/hktwfrontline)）**
+撰稿：文月
+![](https://assets.gnews.org/wp-content/uploads/2022/02/102.jpg)图片来自网络
+以色列是CCP病毒疫苗接种运动进展最快的国家。在该国，第二批CCP病毒疫苗加强针已经开始进行接种，总体强化接种率已经达到了55%。
 
-5日，有民众检举台湾马祖东引岛领空遭到不明飞行器穿越，并提供监视器画面。检举民众称，5日下午时听见飞机低空飞越，认为事关重大因此向管辖区连江县警局报案，警方在接获报案后立即通报军方东引指挥部。但截至目前，台湾政府并未针对此事进行说明。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/20220206002719.jpg)
-陆军东引地区指挥部于5日晚间回应此事，称不明飞行器飞越马祖东引岛领空的机型为“民用定翼双桨飞行器”，但当时并未即时说明国籍与机种。事后，军方判定疑似为中共民用版“运-12”运输机。过去，中共曾派遣此型号飞行器，对钓鱼台空域宣示主权。
+然而不幸的是，有80%的CCP病毒重症患者接种了疫苗：Tel Aviv Sourasky 医疗中心伊奇洛夫医院冠状病毒科主任 Yaakov Jerris 教授（Prof. Dr. Giris Jacob ）在最近接受以色列电视频道采访时说：“现在，我们大多数重症病例都接种了疫苗。”
 
-有媒体采访知情人士称，该架无人机由西往东，低空从西引岛外海，一路飞到东引岛上空，通过东引岛后，立刻快速爬升飞往外海，几乎是沿着当地地形飞行。
+Jerris 表示：“他们至少注射了三针——70%-80%的严重病例都接种了疫苗。CCP病毒疫苗不能防止严重疾病……我们只有 20% 到 25% 的患者没有接种疫苗。”
 
-台湾前空军副司令张廷廷在接受媒体采访时说到，运12直接飞到东引岛上空，依照相关规定，应该要采取更积极的处置，如警告或驱离的射击。他强调军方对此事的处置似乎慢半拍，发现飞行器后相关地区指挥部也只有表示全程严密监控。对于飞行器侵入领空的行为，张廷廷认为中共是蓄意在找破口试探，且其他离岛如乌坵、东沙岛等，以民充军、以民混军都有可能发生。
+此外，已经开始有人怀疑接种疫苗的人不能再获得对新变种病毒的完全保护，因为接种疫苗所引发的免疫反应实际产生了错误的抗体。
 
-來源｜[民視](https://tw.stock.yahoo.com/news/%E4%B8%AD%E5%9C%8B%E6%B0%91%E8%88%AA%E6%A9%9F%E9%A3%9B%E6%8E%A0%E6%9D%B1%E5%BC%95-%E9%80%80%E5%B0%87%E8%BD%9F%E8%BB%8D%E6%96%B9%E6%85%A2%E5%8D%8A%E6%8B%8D-105502671.html)
+德国一位医院主任再次证实了来自罗伯特·科赫研究所(RKI)的数据：尽管该国未接种疫苗的人口占人口的 26.73%，但他们仅占 Omicron 感染者的 4.42%。
 
+如果将德国各个联邦州的疫苗接种率与 Omicron 发病率进行比较，初步统计显示在疫苗接种率较高的联邦州，Omicron发病率也较高。如果这种趋势得到证实，那些接种过两次疫苗的人更容易感染 Omicron。
+
+而 Omicron 实际上正是德国地区CCP病毒的主要病毒变种，如果上述情况属实，那么所有的疫苗强制规定和对未接种疫苗者的限制都将成为笑柄。
+
+另外，来自丹麦的数据表明，与未接种疫苗的人相比，接种疫苗的人受到 Omicron 感染的保护更少。95% 的已知疫苗接种状态的 Omicron 病例发生在完全接种疫苗的人群中。
+
+在2月1日以色列内阁举行的磋商会议上，Jerris和其他医院代表出席了会议。在那里，他谈到了医院对CCP病毒重症患者不透明的分类问题和对CCP病毒重症患者的定义问题。例如，慢性肺病患者的血氧水平一直很低，而他们如果不幸感染了CCP病毒并被检测呈阳性，那么从当前的理论上讲他们会被划分为 “重症患者”。但这其实并不准确，因为病人属于重症只是因为他有严重的基础性疾病。
+
+参考文献：
+
+[https://reitschuster.de/post/impfstoff-hat-also-keine-bedeutung-fuer-schwere-erkrankungen/](https://reitschuster.de/post/impfstoff-hat-also-keine-bedeutung-fuer-schwere-erkrankungen/)
+
+[https://reitschuster.de/post/omikron-negativer-impfschutz-fuer-zweifach-geimpfte/](https://reitschuster.de/post/omikron-negativer-impfschutz-fuer-zweifach-geimpfte/)
+
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

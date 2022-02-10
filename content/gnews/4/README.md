@@ -2,8 +2,8 @@
 ---
 
 
-## 瑞银UBS在英国立案
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1983815/)
+## 共产党曾经派出官方的绝对代表团
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1983917/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

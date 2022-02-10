@@ -2,8 +2,8 @@
 ---
 
 
-## 台湾卫打疫苗一定会付出比共产党还要大的大的代价
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1983768/)
+## 七哥到日本去就近距离作战
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1983894/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

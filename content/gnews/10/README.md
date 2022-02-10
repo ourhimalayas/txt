@@ -2,8 +2,8 @@
 ---
 
 
-## 一个忘掉痛苦忘掉灾难而不深思的民族必定有巨大的灾难等待着你
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1983752/)
+## UBS会让共产党怎么解释（2）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1983854/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
