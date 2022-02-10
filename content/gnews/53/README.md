@@ -2,25 +2,15 @@
 ---
 
 
-## 【秘翻新视野】从徐州8孩母亲看中共国的妇女人权
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1978901/)
+## 郝董谈Hpay：HPay可以帮助运动员绕开经纪公司的盘剥且能合理避税
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1979095/)
 
-**By:[秘翻新视野](https://gtv.org/broadcast/watch/62032f113621aa7415d7da54)**
+视频制作：文双
 
-**[2022-2-9](https://gtv.org/broadcast/watch/62032f113621aa7415d7da54)**
+翻译：秋刀鱼
 
-1.为何能在长久以来实行严格的计划生育政策的中共国生育8孩
+上传排版：文勇
 
-2.在今天这样到处都是摄像头的大数据时代，中共国每年 100 多万人失踪
-
-3.中共体制的恶让社会藏污纳垢暗无天日
-
-🔗**GTV链接：**[https://gtv.org/broadcast/watch/62032f113621aa7415d7da54](https://gtv.org/broadcast/watch/62032f113621aa7415d7da54)
-
-发布:星星
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMAGE-2021-12-13-113746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

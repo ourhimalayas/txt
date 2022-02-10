@@ -2,31 +2,22 @@
 ---
 
 
-## 2022.2.9大直播后记：智慧灭共
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1981843/)
+## 针下亡魂｜希腊 21 岁足球运动员接种疫苗后死亡
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1982043/)
 
-**整理：清水冷香、Lucy Liu
-编辑：Candy**
+**撰文/ 疫情关注组｜发布日期/ 10/02/2022**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/New-Looks-In-Autumn-Style123445_2.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/post/pl6k0218bf](https://gettr.com/post/pl6k0218bf)）**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-419.png)
+隶属于伊利乌波利具乐部的希腊 21 岁足球运动员 Alexandros Lampis ，在本月初（2日）对阵 Ermionida 的比赛中，即开场14分钟时，因心脏骤停而倒在赛场上。
 
+最令人遗憾的是，由于当时体育场内并没有除颤器可用，Alexandros 足足等了 20 分钟，才等到救护车赶到。之后不久，伊利乌波利具乐部在官网宣布了Alexandros 的死讯。
 
-中、美、俄在冬奥会以后，实际上是三角力量的实质性的改变。（对）爆料革命会有什么受益，什么影响？
+![](https://assets.gnews.org/wp-content/uploads/2022/02/希臘-21-歲足球運動員接種疫苗後死亡.jpeg)
 
-灭共几乎是人类万年来最难的一件事儿，大家千万别想当然，或者必然，或者容易，那是犯了极端错误，那就犯了同共产党同样的错误。灭共，我们不是对任何人的责任，也不是我们的保证，也不是我们必须做的事。但是我们必须灭掉共产党。
- 
-怎么灭掉共产党？智慧地灭掉共产党。我们要灭全人类最大的一个坏蛋——共产党，人家都觉得是不可能的。咱没有军队，没有任何组织，还不流血，你去想一想。你可以纵观人类历史，地球这百万亿年来，地球和银河系里没人说过，说不流血要改变一个这么大的流氓组织、黑社会组织。想都没想过，不要说做，想都没想过。
-
-释迦牟尼没这么说过，阿拉也没这么说过，耶稣也没这么说过，天主也没这么说过，没有人这么说过。我们中国的老天爷，玉皇大帝都没这么说过。 我们现在所干的事情，几乎是人类上，地球上，物理上不可能的事。但是真的拜万佛万神所赐，我们真的是在接近完成，而且一定会完成。消灭这个共产党！
-
-***发布：Candy***
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+根据希腊当局的防疫规定，获得上场比赛资格的运动员必须接种 COVID-19 疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/希臘-21-歲足球運動員接種疫苗後死亡.jpg)
+来源｜[TheSun](https://www.thesun.co.uk/sport/17524888/alexandros-lampis-dies-21-greek-footballer-cardiac-arrest/)
 
  
 

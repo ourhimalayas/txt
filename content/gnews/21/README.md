@@ -2,151 +2,41 @@
 ---
 
 
-## 两年来，CDC无视数据，甚至撒谎,将自然免疫当成阴谋论
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1981794/)
+## 2022.2.9大直播后记：北京冬奥会开幕式的假
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1981956/)
 
-[https://gtv.org/video/id=6204153b585ecc15d73f7d61](https://gtv.org/video/id=6204153b585ecc15d73f7d61)
+**整理：Rianna、Lucy Liu
+编辑：Candy**
 
-Rep. Thomas Massie
-托马斯·马西议员
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-420.png)
 
-One of the biggest scandals during this whole pandemic, is the cover up
-在整个大流行期间, 最大的丑闻之一就是掩盖
 
-That’s been committed by Fauci and the CDC, especially the CDC
-福奇和疾病预防控制中心已经承认，尤其是疾病预防控制中心
+请问中国同胞们，你们谁到现场去看过开幕式了？我的战友，郭文贵的战友，爆料革命的核心人物，未来你会看到视频出来，有人吗？！
 
-about the effectiveness of immunity that’s conferred after a natural infection
-关于自然感染后赋予的免疫力的有效性
+现场所有的外国人，个个惊慌失措。但是所有人被那个大屏、被张艺谋导演震撼了，因为外国人去的国家太小。你把非洲那些国家，甭说，你看给他拿一个摩托罗拉手机，都觉得是高科技。你拿个过去的大哥大都觉得高科技、外星科技，他们见过什么世面呢？！忽悠他们，康佳大屏一搞，就把一个电脑放在人眼睛上，你给他弄啥他看啥。
 
-after you recover from that
-在你从自然感染中恢复后
+结果是真的，现场那种政治操控的巨大威胁。普京看透了，说，你现场根本就没人，你吹了半天根本没人，这些东西你接下去没法解释的。然后普京多一分钟都不想呆在这儿。你还不兑现，特别是黄金，作为储备兑现，作为法币。最后翻脸了，人家不干了。
 
-they’ve completely ignored that
-他们完全忽略了这一点
+大家记住啊，这时候谁去了？马克龙作为法国的三驾马车（之一）、两架马车德国和法国去俄罗斯见普京：求求你了，大爷！你不要打乌克兰，咱好好说！你的天然气，所谓的北溪2号，咱可以谈。法国给你承诺，买你3000亿美元的所有的天然气，你不打乌克兰行不行？然后再聊聊在北京的看法。 本来见面是三个小时，最后谈了五个小时。
 
-They want everybody to get vaccinated
-他们希望每个人都接种疫苗
+听说普京大谈北京，他说，“你们老说我们跟中国亲，你们这帮孙子不跟我玩啊。咱们是亲兄弟啊，你不跟我玩，我得找个人当托儿啊。”他说，“你看他们开幕式完全都是假的，雪都是假的。”普京的其中一个女朋友就是滑雪芭蕾舞的，去都不让她去。那个雪污染以后，普京就说：我当场问了中国官员，中国官员说没事儿。那个雪的化学成分污染大地，万年不会散去，他们说没事儿！
 
-even those who don’t need vaccinated
-即使是那些不需要接种疫苗的人
+制雪机是哪儿造的？一大半是俄罗斯造的，人家是有规格的，干啥用的都是特定的。中国全拿山上去，在一个完全没有雪的雪山上还弄出一个滑雪跑道，然后搞了一个全球的冬奥会。这从当年1928年在法国举行的冬奥会开始，到今天就是个人类的耻辱。
 
-and the science if you follow the science on this
-关于科学，如果你遵循这方面的科学
+然后普京给马克龙很好地聊了聊北京的经历，说：他们太在乎形式主义了，吃个晚餐啊，搞了一大堆，要让我点评，我才不跟他们吃去呢。染上病怎么办呢？中东啊，中东那几个傻国家掐架掐得要死，都想在中共国表现我是中东老大。
 
-The Moderna trial showed there was no benefit of the vaccine to those who recov-ered from infection
-莫德纳试验表明，疫苗对那些从感染中恢复过来的人没有好处
+最后一分钟，沙特王子说：钱不给是吧？我同意你用人民币结算石油了，现在需要美元呐！你给我弄500亿、1000亿美元，先让我接上点美元。中共说：“不行，你来了以后再说。”“那不行，我去之前你先给我。”沙特跟中共国之间，就像郭宝胜和夏业良一样。
 
-The Pfizer trial showed there was no benefit to those who had recovered from in-fection from the vaccine
-辉瑞的试验表明，疫苗对那些从病毒感染中恢复过来的人没有任何好处
+普京讲出这些过程的时候，你看看中东他们，就这样被共产党玩。沙特王子最有钱却是世界上最没有现金的。然后说，“那就以我染上病毒为由我不去了，美国还威胁我，不让我参加，你不给我钱，我咋去啊？”这个当时是沙特排在第二号的人物，什么泰国诗琳公主等等就是打酱油的。
 
-A recent study with 52,000 people at the Cleveland Clinic
-最近在克利夫兰诊所对52,000人进行的一项研究表明
+***发布：Candy***
 
-300 plus of whom did not receive the vaccine
-其中1300多人没有接种疫苗
-
-but had prior infection showed that none of them got reinfected, symptomatically
-但之前曾经感染过，结果表明他们没有人再次感染，或有症状
-
-and then if you want to compare the efficacy of immunity from recovering from COVID to that of the vaccine
-然后如果你想比较从 COVID 中恢复的免疫力与疫苗的功效
-
-the biggest study out there is the whole country of Israel
-最大的研究的国家是整个以色列
-
-Tel Aviv University, 6 million participants in this study, 6 million data points
-以色列特拉维夫大学的600万参与者参与了这项研究，600 万个数据点
-
-And it showed there’s virtually no difference actually is it showed a little bit
-它表明实际上几乎没有差异，它显示了一点
-
-but probably not statistically significant, a little bit better
-但可能没有统计学意义，对自然感染的免疫力要好一点
-
-immunity from natural infection and before you all report this
-在你们所有人报告之前
-
-I’m not saying go out and get the virus instead of getting the vaccine
-我不是说出去感染病毒而不去接种疫苗
-
-The vaccine can save lives and certain
-疫苗可以挽救生命和肯定的
-
-but there’s no need, the science shows this
-但没必要，科学证明了这一点
-
-There’s no need to get the vaccine if you’ve already recovered from COVID
-如果您已经从COVID中康复，则无需接种疫苗
-
-And then there’s no need to expose yourself to that danger
-然后就没有必要让自己暴露在那种危险之中
-
-The CDC knows this, they admitted to me on a recorded phone call
-疾病预防控制中心知道这一点，他们通过录了音的电话向我承认了这一点
-
-I’ll be glad to give you that they knew they were misreporting the results of the Pfizer data
-我很高兴告诉你他们知道他们误报了辉瑞数据的结果
-
-Reporter
-记者
-
-Number one you didn’t answer whether or not you’ve been vaccinated
-第一个你没有回答你是否接种过疫苗
-
-Rep. Thomas Massie
-托马斯·马西议员
-
-Well first of all, it’s none of your business
-好吧，首先，这不关你的事
-
-But I’m going to tell you, I’m not vaccinated
-但我要告诉你，我没有接种疫苗
-
-And until there’s some science
-直到有一些科学依据
-
-by the way I have a Master’s of Science degree from MIT
-顺便说一句，我拥有麻省理工学院的理学硕士学位
-
-I’m not a virologist, but I can read data
-我不是病毒学家，但我可以读取数据
-
-Everybody just needs to read it
-每个人只需要阅读它
-
-Don’t put your head in the sand. Look at the data.
-不要把头埋在沙子里，看看数据
-
-I’m not going to get the vaccine until there’s data that shows
-我不会接种疫苗，直到有数据表明
-
-that it will improve upon the immunity
-它会提高免疫力
-
-that’s been conferred to me as a result of a natural infection that I had
-由于我的一次自然感染，而我被授予了这一权利
-
-**原视频链接**[:](https://twitter.com/repthomasmassie/status)[https://twitter.com/repthomasmassie/status](https://twitter.com/repthomasmassie/status)
-
-Date:02/06/2022
-原视频标题: For 2 years, CDC ignored the data and even lied about it to treat natural immunity like a conspiracy theory
-两年来，CDC无视数据，甚至撒谎，将自然免疫当成阴谋论
-原视频日期：2022/02/08
-原视频链接https://twitter.com/repthomasmassie/status/1490783499883847680?s=24
-任务编号：KE392(3699)
-视频时间段 : 0:00-2:34
-
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场- 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

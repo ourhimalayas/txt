@@ -2,52 +2,31 @@
 ---
 
 
-## 全球中共病毒病例数在过去一周内骤降了17%
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1981536/)
+## 2022.2.9大直播后记：智慧灭共
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1981843/)
 
-作者：纽约香草山农场 – 四季
+**整理：清水冷香、Lucy Liu
+编辑：Candy**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-419.png)
 
 
-据[布赖特巴特新闻网](https://www.breitbart.com/health/2022/02/09/coronavirus-in-retreat-global-case-counts-plunge-17-in-past-week/)2月9日报道， 世界卫生组织周二宣布，过去一周全球中共病毒病例数与过去同期相比下降了17%，其中仅美国就下降了50%，而全球死亡人数下降了7%。
+中、美、俄在冬奥会以后，实际上是三角力量的实质性的改变。（对）爆料革命会有什么受益，什么影响？
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GE-02-640x480-1.jpg)Michael M. Santiago/Getty, Images
+灭共几乎是人类万年来最难的一件事儿，大家千万别想当然，或者必然，或者容易，那是犯了极端错误，那就犯了同共产党同样的错误。灭共，我们不是对任何人的责任，也不是我们的保证，也不是我们必须做的事。但是我们必须灭掉共产党。
+ 
+怎么灭掉共产党？智慧地灭掉共产党。我们要灭全人类最大的一个坏蛋——共产党，人家都觉得是不可能的。咱没有军队，没有任何组织，还不流血，你去想一想。你可以纵观人类历史，地球这百万亿年来，地球和银河系里没人说过，说不流血要改变一个这么大的流氓组织、黑社会组织。想都没想过，不要说做，想都没想过。
 
-世界卫生组织表示，Omicron变体的流行率在全球范围内有所增加。然而，许多早期曾报告因Omicron变体而导致病例数上升的国家现在报告说，自2022年1月初以来，新病例总数有所下降。
+释迦牟尼没这么说过，阿拉也没这么说过，耶稣也没这么说过，天主也没这么说过，没有人这么说过。我们中国的老天爷，玉皇大帝都没这么说过。 我们现在所干的事情，几乎是人类上，地球上，物理上不可能的事。但是真的拜万佛万神所赐，我们真的是在接近完成，而且一定会完成。消灭这个共产党！
 
-随着新的统计数字的出现，世界各地要求结束强制口罩令和强制性疫苗接种的呼声越来越高。世界各国政府也都在寻求放松限制。
+***发布：Candy***
 
-澳大利亚将很快向已接种疫苗的游客重新开放边境。继丹麦和挪威之后，瑞典也在取消大部分大流行病规定。在加拿大，争取摆脱所有中共病毒限制的运动已经成为全球头条新闻。
-
-就在本周，美国的加利福尼亚州、康涅狄格州、特拉华州、新泽西州和俄勒冈州的州长表示，他们将结束全州范围内的室内口罩规定，其中一些适用于学校，另一些适用于公共场所。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2月.jpg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
