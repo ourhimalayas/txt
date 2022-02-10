@@ -2,22 +2,18 @@
 ---
 
 
-## 有声|全球中共病毒病例数在过去一周内骤降了17%
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1986683/)
+## 有声|谷爱凌归化中共参赛 疯狂拿下几十家品牌代言
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1986726/)
 
 配音：香草山巡管部– 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+2月8日，在北京冬奥会上代表中共参赛的原美籍选手谷爱凌，在自由式滑雪女子大跳台决赛中夺得冠军。之后，她在中共国社交媒体上迎来霸屏式的关注，同时她代言的各类品牌广告宣传片也纷纷上映。
 
+目前，她代言的品牌有雅诗兰黛、天气森林、科勒、维多利亚的秘密、凯迪拉克、路易威登、蒂芙尼、IWC万国手表等。有消息人士称，谷爱凌的代言费已经涨至180万美元，这次冬奥会已经让谷爱凌赚得上亿元人民币。
 
+此前谷爱凌的国籍问题曾遭到质疑，但她丝毫不以为然，处处帮着中共说话。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-据[布赖特巴特新闻网](https://www.breitbart.com/health/2022/02/09/coronavirus-in-retreat-global-case-counts-plunge-17-in-past-week/)2月9日报道， 世界卫生组织周二宣布，过去一周全球中共病毒病例数与过去同期相比下降了17%，其中仅美国就下降了50%，而全球死亡人数下降了7%。
-
-世界卫生组织表示，Omicron变体的流行率在全球范围内有所增加。然而，许多早期曾报告因Omicron变体而导致病例数上升的国家现在报告说，自2022年1月初以来，新病例总数有所下降。
-
-文字版原文：**[全球中共病毒病例数在过去一周内骤降了17%](https://gnews.org/zh-hans/1981536/)**
+文字版原文：[谷爱凌归化中共参赛 疯狂拿下几十家品牌代言](https://gnews.org/zh-hans/1980984/)
 
 音频处理/发稿：Daxia
 
@@ -30,8 +26,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

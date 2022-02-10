@@ -2,41 +2,38 @@
 ---
 
 
-## 单伟建父子利用空壳公司上市圈钱后转为私人信托基金
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/1985908/)
+## 网络监管机构为科技巨头制定发展战略
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1985998/)
 
-加拿大温哥华扬帆农场 薇文viven
+编译： Jenny Ball
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/a-8-edited.png)图片来源：gettr
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-1-3.jpg)图片来源：reuters.com
 
+北京，2月10日（路透社）——中共国网络空间监管机构表示，上个月与中国科技巨头举行的座谈会让该行业“更清晰地了解”，对如何在适应新的监管环境时寻求发展和机遇更有信心。
 
-2021年4月，单伟建在开曼群岛注册了“戈壁收购”的空壳公司，于6月在纳斯达克上市，发行三千万股A股， 价格为 $10美元/股。
+中共网信办表示，在 1 月 28 日与 27 家公司举行的会议后，其官方出版物对腾讯控股（0700.HK）和阿里巴巴集团（9988.HK），以及 TikTok 母公司字节跳动等公司进行了采访，以讨论“健康和可持续”的发展。
 
-承销商是分别是花旗银行 (Citibank)、高盛亚洲 (Goldman Sachs (Asia) L.L.C. ) 和瑞银投资 (UBS Investment Bank) 。除三千万股外，这三家在还超额配售375万股。此外， “太盟集团”作为保荐人认购了70万股，单伟建儿子单博的 “戈壁创投 ”，认购了200万股。空壳公司上市后，除去承包费和佣金，共募集资金约 $2.87 亿美元。
+网信办发表的评论，是在曾经随心所欲的科技巨头经历了挫折的一年之后，经历了多年的失控增长之后，作为对经济大片施加更多控制权的运动的一部分，这些科技巨头已成为监管机构的主要目标。
 
-“戈壁收购” 委托一家刚成立的 “大陆股票转让&信托公司” (Continental Stock Transfer & Trust Company ) 的代理公司，建立独立信托账户，管理存入摩根大通银行的这2.87亿资金，受益人是“戈壁收购”和实际并没有的公众股东。因此，“戈壁收购”的单伟建就是真正受益人。该信托基金，可安全长久地存放于信托公司的账户上，除了直接购买美国国债，不得作任何其他证券或资产投资。
+鉴于过去一年打击行动，扰乱全球市场和科技股，投资者一直在密切关注最糟糕时期是否已经结束的线索。
 
-同时，“戈壁收购”转让总计560万股A股给单博以及他名下的两家公司：“戈壁创投 ” (Gobi Capital LLC) 200万股； “戈壁大师基金“ (Gobi Master Fund, Ltd.) 160万股；单博200万股。抵扣 “戈壁创投”认购的200万股，单博和他的公司转眼净得360万股，按每股$10美元计，单博获得约3600万美元的信托受益。
+网信办援引腾讯创始人兼CEO马化腾的话说，他为这家社交媒体和游戏巨头组织了一次“座谈会”，而奇虎360科技有限公司董事长周鸿祎则表示，已经建立了“明确的坐标”。
 
-事实上，这2.87亿并没有出现在“戈壁收购”的财报上，单伟建用虚假票据的方式从“PAG 太盟集团”套取资金，以维持该公司的人员和维护开支。
+阿里巴巴首席执行官张勇告诉网信办，它将改进战略以更好地服务平台用户。
 
-盗国贼家族在美国 SEC 眼皮子底下，利用全球金融机构，不仅随心所欲地榨取中国百姓的血汗，还坐收美国国债渔利。根据郭文贵先生2022年2月9日爆料揭露，承销商之一的瑞银集团，窝藏中共的黑钱达一百万亿以上。
+报道援引字节跳动中国董事长张立东的话说，它将“主动”调整业务重点和目标，继续努力开发包括虚拟现实在内的技术，并积极开拓全球市场并与跨国公司竞争。
 
-单伟建一家走出了戈壁滩，却让无数中国家庭沦入贫瘠的困境。该是清算的时候了！
+**评论： 在中共国，谁不听共产党，就无法生存，何谈发展？所以，有所发展的任何企业，都是中共的韭菜，随时收割。中共正在让这个模式在全世界使用，不灭掉这个，世界永远不会有规矩和公正。**
 
-参考资料：
-
-1、[Gobi Acquisition Corp.](https://www.sec.gov/Archives/edgar/data/0001854593/000110465921047559/filename1.htm)
-
-2、[Investment Management Trust Agreement, dated June 28, 2021, between Continental Stock Transfer & Trust Company and the Company](https://contracts.justia.com/companies/gobi-acquisition-corp-13143/contract/186384/)
-
-3、[Gobi Acquisition Corp.(Name of Issuer)](https://www.sec.gov/Archives/edgar/data/1854593/000169806021000005/form13ggobigobi.htm)
-
-4、[单伟建用虚假无担保票据大肆攫金](https://gnews.org/zh-hans/1981874/)
+**参考资料：**[reuters][China’s cyber watchdog spells out development strategies for tech giants](https://www.reuters.com/technology/chinas-cyber-watchdog-spells-out-development-strategies-tech-giants-2022-02-10/?utm_source=newsletter&amp;utm_medium=email&amp;utm_campaign=technology-roundup&amp;utm_term=Technology%252520Roundup%252520-%2525202021%252520-%252520Master%252520List)
 
 * * *
 
-编辑发稿：硫酸羟氯喹64
+*审核：文乐
+校对：小东
+发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-3.jpeg)
 
  
 

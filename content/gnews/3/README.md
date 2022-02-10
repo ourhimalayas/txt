@@ -2,16 +2,20 @@
 ---
 
 
-## 爆料革命又上新台阶 — 状告UBS 在伦敦立案
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1986721/)
+## 黑暗势力的总部（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1986749/)
 
-UBS立案，是沼泽地的第一仗 — 瑞银集团(UBS)阻止郭文贵先生在英国对UBS提起诉讼的操作失败，伦敦高等法院裁定对该案有管辖权。郭先生直击盗国贼藏在海外的50万亿美金，挖出这笔能让中国人获得免费教育、医疗和丧葬，并将免除所有的房贷和信用卡欠款的钱，爆料革命又上新台阶。
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_9742.jpg)
+*发布：陶子*
 
-发稿：信心的选择
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-3.jpeg)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

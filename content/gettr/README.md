@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/10/2022 10:52 PM (UTC)`
+
+2月10日，“Hcoin To the Moon ” MV上线第63天美国🇺🇸重回iTunesMV摇滚榜榜首🥇，累计共30次排名第一🎉🎉🎉<br/><br/>位列柬埔寨🇰🇭iTunes 歌曲综合榜榜首🥇🎉🎉🎉<br/><br/>“Fight For Hong Kong” 位列老挝🇱🇦iTunes 摇滚歌曲榜榜首🥇🙏🙏🙏<br/><br/>万分感谢澳门，美国，柬埔寨，老挝的兄弟姐妹们! 祝虎年吉祥平安！🧧🧧🧧🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/1984856/<br/><br/>Feb 10, 2022 MV "Hcoin To the Moon" back to No.1 🥇on USA 🇺🇸 iTunes Rock Music Video Chart on 63 Day of Launch, hit No .1 for 30 times in total🎉🎉🎉<br/><br/>Hit No.1🥇 on Cambodia 🇰🇭 iTunes all Genres Song Chart🎉🎉🎉<br/><br/>“Fight For Hong Kong” Hit No.1🥇on Laos 🇱🇦 iTunes Rock Song Chart 🎉🎉🎉<br/><br/><br/>Thank you very much to our brothers and sisters in USA, Cambodia, Laos. Have a safe and lucky year of Tiger!🧧🧧🧧🙏🙏🙏
+
+---
+
 `@miles 2/10/2022 10:38 PM (UTC)`
 
 2/9/2022 Miles Guo: How many heads of state that the CCP’s Foreign Ministry had claimed would attend the Winter Olympics failed to show up? The CCP has been attempting to maintain the illusion of the warm-up of the Since-US relationship by squandering the Chinese Lao Baixing’s hard-earned money. Before Putin left Beijing, he revealed the truth about the opening ceremony of the Winter Olympics by saying that there was virtually nobody on site!<br/><br/>2/9/2022 文贵直播：有多少中共外交部口口声声说要来冬奥会的外国领导人放了鸽子？中共竟拿着老百姓的血汗钱去维系中美关系回暖的假象；普京离开前一语道破开幕式真相 - 现场根本没人！<br/>
@@ -149,13 +155,6 @@ EP9: The Villains. Let's tear down the monstrous lies of this despicable #HBO #V
 
 2/6/2022 Miles Guo: Our fellow fighters are everywhere at the Winter Olympics such that I can always know what is going on. Fellow fighters have helped foreign leaders and athletes understand the true nature of the CCP, and this is the fundamental reason why Putin left Communist China earlier than expected.<br/><br/>2/6/2022 文贵直播: 冬奥会无处不在的战友让现场的一切情况尽在文贵的掌握之中；新中国联邦的战友们在冬奥会让外国元首和运动员认清中共本质，这就是普京提前离开中共国的根本原因<br/>
 ![img](https://media.gettr.com/group27/getter/2022/02/07/23/02f37022-a338-741d-a6a9-daebd3defc8a/out.jpg)
-
----
-
-`@miles 2/7/2022 2:54 PM (UTC)`
-
-2月7号：尊敬的战友们好你们健身了吗？几天来，中国绑架妇女的事件……强烈的震撼了我……让我感到自责．后悔．为是那个地方的人．感到极为的可耻，我们必须消灭共产党，拯救同胞拯救人类．行动．行动．行动！
-![img](https://media.gettr.com/group18/getter/2022/02/07/14/ea60e416-bcf8-81ee-a976-bb8ce80878bd/out.jpg)
 
 ---
 
