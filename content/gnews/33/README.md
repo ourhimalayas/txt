@@ -2,28 +2,76 @@
 ---
 
 
-## 大直播后记：加拿大和犹太人需要觉醒
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1983795/)
+## COVID-19 最新情报｜英媒调查发现：新冠疫苗的致死率超逾流感疫苗 49 倍
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1983913/)
 
-#### 整理：Rianna、Lucy Liu
-编辑：Sadhu
+**撰文｜疫情关注组 / 发布时间｜10/02/2022**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/post/pl6k0218bf](https://gettr.com/post/pl6k0218bf))**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1010.png)图片来源：墨尔本雅典娜农场设计组
+英媒《Daily Expose》独家调查发现，根据 CDC VERS 的数据显示，COVID-19 疫苗的致死率至少是流感疫苗的 49 倍。
+
+在 2020 年 12 月至 2022 年 1 月 28 日期间，COVID-19 疫苗共报告了 743,179 起不良事件，而流感疫苗在 2008 年至 2020 年的 13 年期间，共报告了 137,533 起不良反应。值得一提的是，在数据相关时间内，美国总共注射了 17.204 亿剂流感疫苗，以及 5.499 亿剂 COVID-19 疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Collage_Fotor-scaled.jpg)
+换句话说，**在流感疫苗接种率高出 3 倍的前提下，**COVID-19 疫苗的不良事件的发生率是流感疫苗的 5.4 倍。但是，调查人员进一步分析发现，**COVID-19 疫苗的危害程度远比表面数据更令人害怕。**
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/3-18.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/4-12.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/51.jpg)
 
 
-每天我都想说，只要没打疫苗，就是每天你怎么高兴都不为过，什么样的灾难都不是你的灾难！我说，疫苗一定会停止的。你别看加拿大那个小土豆在那块儿得瑟，他一定是灾难收场。但是很不幸，被这些所谓的共产党，还有一些完全失败的国家的人给影响控制了，包括这个小土豆，我觉的他整个人是失心疯了。他就是美国一个小老弟，没什么了不起的。他对世界已经失去了认知，所以加拿大需要一个像样的，不要太残酷的运动让加拿大醒来。我们可喜的是，看到加拿大的卡车运动。这个卡车运动只要咱别鼓动它发动暴力，战友们坚决支持，全力支持。这是共产党最想看到的，就是共产党看到让它发生的，那就是咱不让它发生的。共产党就希望加拿大美国越乱越好，越暴力越好，咱坚决不能参与暴力，也不能被它利用参与暴力，但是我们希望这种运动能改变加拿大。现在认清加拿大被共产党渗透的这种事实，而且这个疫苗本身就是共产党的病毒导致的，你必须要停止。
+#### **不良事件报告率/急诊室就诊**
 
-我们看到以色列，我最多以色列犹太人朋友啊！看到以色列打那么多针，我心都碎了。我觉得我身边，我生活中救我最多的都是犹太人。你知道PAG这个单伟建投资公司里边，创始人叫Kris，他们都是犹太人，完全吃共产党饭的。而且这1000多亿美元所谓的投资，里面97%80%全都是犹太人，我觉的犹太人这次也会在疫苗面前有个深刻的大觉醒。希特勒没把你们毁了是吧？从过去几千年前折腾到今天，又是罗马，又是中东，又是欧洲，又是埃及，是不是啊？你折腾到你自己的国家去了，结果你给自己打那么多针，太疯狂了！而且大家没有注意到，很多国家在掩盖，像卡塔尔、沙特，像伊朗，1秒死多少人你知道吗？ 它让你知道吗？谁能让你知道呢？而且全世界的所有的所谓的严肃媒体就不用说流氓的中立媒体了，叫严肃媒体，完全严肃地不告诉你真相，一本正经严肃地不告诉你真相。
+下图显示了截至 2022 年 1 月 28 日，向 VAERS 提交的针对 COVID-19 疫苗的不良事件报告数量，以及 2008 年至 2020 年间，向 VAERS 提交的针对流感疫苗的不良事件报告数量。
 
-资料来源：[2022年2月9日 文贵大直播](https://gettr.com/streaming/ptgw8b5f32)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/1-154.jpg)（流感疫苗和 Covid-19 疫苗的每個不良事件的疫苗接種劑量）
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/2-31.jpg)（流感疫苗和 Covid-19 疫苗的每個不良事件的疫苗接種劑量）
 
-*发布：玉米地守望者*
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+从表面上看，在 14 个月内，针对 COVID-19 疫苗的不良事件报告数量是 13 年针对流感疫苗的 5.4 倍。
+
+但根据 CDC 的数据，2008 年至 2020 年期间接种了 17.2 亿剂流感疫苗，不良事件的上报率为每 12,509 剂中有 1 例。而2020 年 12 月至 1 月 22 日期间接种的 5.499 亿剂 COVID-19 疫苗的不良事件报告率为每 740 剂中就有 1 例。
+
+**这意味着， COVID-19 疫苗的危害性至少是流感疫苗的 17 倍。**
+
+不仅如此，调查人员还结合同一时间内急诊室的接诊率进行交叉对比，表面数据显示，COVID-19 疫苗在 14 个月内导致的急诊呼救率，是流感疫苗在 13 年期间触发急诊的 20.8 倍。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/3-20.jpg)（急診就診時流感疫苗和COVID-19 疫苗接種的疫苗劑量）
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/4-13.jpg)（急診就診時流感疫苗和COVID-19 疫苗接種的疫苗劑量）
+
+
+值得关注的是，经过进一步分析发现，2008 年至 2020 年的17.2 亿剂流感疫苗导致了每接种 388,527.55 剂就有一次呼叫急诊的发生率。而 2020 年 12 月至 1 月 22 日期间的 5.499 亿剂COVID-19 疫苗则发生了每 5,950.94 剂就有一次的急诊呼叫率。
+
+**也就是说， COVID-19 疫苗导致需要紧急救治的风险是流感疫苗的 65 倍。**
+
+#### **住院率/出生缺陷率/永久性残疾/危及生命风险/死亡率**
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-156-3.png)（疫苗導致住院率）
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-163-3.png)（疫苗導致住院率/每劑量疫苗）
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-157-1.png)（疫苗導致出生缺陷率）
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-164-1.png)（疫苗導致出生缺陷率/每劑量疫苗）
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-158-1.png)（疫苗導致永久性殘疾）
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-165-2.png)（疫苗導致永久性殘疾/每劑量疫苗）
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-159-1.png)（疫苗導致危及生命風險）
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-166-1.png)（疫苗導致危及生命風險/每劑量疫苗）
+
+
+按照相同的方式，调查人员还发现，与流感疫苗相比，每一剂 COVID-19 疫苗至少会：
+
+- **增加住院风险 23 倍；**
+- **导致出生缺陷的可能性增加 57.5 倍；**
+- **造成永久性残疾的可能性增加 19 倍；**
+- **导致危及生命的风险增加 18 倍；**
+- **导致死亡的可能性增加 49 倍。**
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1531.png)（疫苗導致死亡率）
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-160-2.png)（疫苗導致死亡率/每劑量疫苗）
+
+
+来源｜[DailyExpose](https://dailyexpose.uk/2022/02/10/us-gov-data-covid-jabs-49x-deadlier-than-flu-jabs/)
 
  
 

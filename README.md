@@ -15,131 +15,131 @@
 
 ---
 
-### [UBS会让共产党怎么解释（一）](/content/gnews/1/README.md)
+### [强制疫苗不超过5月会结束](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [广西百色被封；香港因疫情面临食品供应链问题](/content/gnews/2/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [2月9日大直播后记：排华的问题令人担心](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
 
-### [台湾疫情｜VAERS数据显示 新冠疫苗不良事件发生率高出流感疫苗264倍](/content/gnews/3/README.md)
- ` 關注組`
+### [七哥不怕共产党暗杀](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
 
-### [国民党成员收到署名“代表香港抗争者”的恐吓信](/content/gnews/4/README.md)
+### [喜币可以让你拥有自己的财富,自己的人格](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [中日财经爆|恒大“爆雷”前 总裁夏海钧套现3亿](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花头条┃欧洲多国宣布取消防疫限制措施](/content/gnews/5/README.md)
+### [香港新增确诊中共病毒创新高 再次证明疫苗无效](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有钱能使鬼推磨（一）](/content/gnews/6/README.md)
+### [UBS会让共产党怎么解释（一）](/content/gnews/7/README.md)
+ ` 雅典娜GNotes`
+
+### [有钱能使鬼推磨（二）](/content/gnews/8/README.md)
  ` 骄子`
 
-### [佩洛西的国会大厦警察试图非法拍摄国会立法文件](/content/gnews/7/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [中共高墙背后：中共政府如何实际控制好莱坞电影行业](/content/gnews/9/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [樱花头条┃众议院保守派提出对数千名中共官员的制裁提案](/content/gnews/8/README.md)
+### [尼泊尔政府流出的报告指控中共国侵占尼泊尔领土](/content/gnews/10/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [广西百色被封；香港因疫情面临食品供应链问题](/content/gnews/11/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [台湾疫情｜VAERS数据显示 新冠疫苗不良事件发生率高出流感疫苗264倍](/content/gnews/12/README.md)
+ ` 關注組`
+
+### [国民党成员收到署名“代表香港抗争者”的恐吓信](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [UBS被诉在伦敦正式立案牵扯出中共盗国贼家族的半个财富帝国](/content/gnews/9/README.md)
+### [樱花头条┃欧洲多国宣布取消防疫限制措施](/content/gnews/14/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有钱能使鬼推磨（一）](/content/gnews/15/README.md)
+ ` 骄子`
+
+### [佩洛西的国会大厦警察试图非法拍摄国会立法文件](/content/gnews/16/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [樱花头条┃众议院保守派提出对数千名中共官员的制裁提案](/content/gnews/17/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [UBS被诉在伦敦正式立案牵扯出中共盗国贼家族的半个财富帝国](/content/gnews/18/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [港人逃离香港逼爆深圳湾口岸](/content/gnews/10/README.md)
+### [港人逃离香港逼爆深圳湾口岸](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [福奇夫妇在论文中主张降低护理标准](/content/gnews/11/README.md)
+### [福奇夫妇在论文中主张降低护理标准](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [令人心碎的疫苗伤害故事](/content/gnews/12/README.md)
+### [令人心碎的疫苗伤害故事](/content/gnews/21/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共病毒疫苗伤害证词](/content/gnews/13/README.md)
+### [中共病毒疫苗伤害证词](/content/gnews/22/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [一澳洲青少年接种辉瑞新冠疫苗产生严重不良反应](/content/gnews/14/README.md)
+### [一澳洲青少年接种辉瑞新冠疫苗产生严重不良反应](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [约翰霍普金斯大学研究发现自然免疫更有效更持久](/content/gnews/15/README.md)
+### [约翰霍普金斯大学研究发现自然免疫更有效更持久](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [樱花头条┃香港单日疫苗接种破8万剂创新高](/content/gnews/16/README.md)
+### [樱花头条┃香港单日疫苗接种破8万剂创新高](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花头条┃西班牙国王、丹麦女王、斯洛维尼亚总统于9日对外公布感染新馆肺炎](/content/gnews/17/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [阿富汗人道危机，中共红十字会又援助130吨面粉](/content/gnews/18/README.md)
+### [阿富汗人道危机，中共红十字会又援助130吨面粉](/content/gnews/26/README.md)
  ` 波士顿五月花农场`
 
-### [美国国会：NIH花费250万美元为小狗注射可卡因](/content/gnews/19/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [2022/02/10 英喜时事速递](/content/gnews/20/README.md)
+### [2022/02/10 英喜时事速递](/content/gnews/27/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [议员联署促公立医院免费治疗非本地确诊者](/content/gnews/21/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [戴不住了 美国多州宣布放宽口罩令](/content/gnews/22/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [对华强硬的民主党参议员候选人投资了中国公司](/content/gnews/23/README.md)
+### [对华强硬的民主党参议员候选人投资了中国公司](/content/gnews/28/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [新西兰财经G乐部2022年2月10日:财经新闻整理](/content/gnews/24/README.md)
+### [新西兰财经G乐部2022年2月10日:财经新闻整理](/content/gnews/29/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [巴黎警方禁止加拿大式卡车司机示威](/content/gnews/25/README.md)
+### [巴黎警方禁止加拿大式卡车司机示威](/content/gnews/30/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [瑞银在躲避中国亿万富翁的5亿美元诉讼中落败](/content/gnews/26/README.md)
+### [瑞银在躲避中国亿万富翁的5亿美元诉讼中落败](/content/gnews/31/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2022年2月9日《文贵大直播》——宣布三件大事](/content/gnews/27/README.md)
- ` 澳喜特战旅Gnews`
-
-### [秘翻在线：中共国成功蓝金黄吉布提](/content/gnews/28/README.md)
+### [秘翻在线：中共国成功蓝金黄吉布提](/content/gnews/32/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [COVID-19 最新情报｜英媒调查发现：新冠疫苗的致死率超逾流感疫苗 49 倍](/content/gnews/29/README.md)
+### [COVID-19 最新情报｜英媒调查发现：新冠疫苗的致死率超逾流感疫苗 49 倍](/content/gnews/33/README.md)
  ` 關注組`
 
-### [北约称俄罗斯袭击的预警时间正在缩短](/content/gnews/30/README.md)
+### [北约称俄罗斯袭击的预警时间正在缩短](/content/gnews/34/README.md)
  ` Shuizhuyu`
 
-### [新中国联邦营救战友行动——从塞浦路斯救人看新中国联邦实力](/content/gnews/31/README.md)
- ` 全球G系列咨服群`
-
-### [彭帅的奥运“逼供”再一次展现出中共政权的傲慢和无耻](/content/gnews/32/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [大直播后记：加拿大和犹太人需要觉醒](/content/gnews/33/README.md)
+### [大直播后记：加拿大和犹太人需要觉醒](/content/gnews/35/README.md)
  ` 雅典娜GNotes`
 
-### [埃内斯·坎特出演的批评中共侵犯人权广告将在冬奥会的黄金时段播放](/content/gnews/34/README.md)
- ` 首尔天池农场`
-
-### [无中心的喜支付将助力民主宪政的正道主义](/content/gnews/35/README.md)
+### [无中心的喜支付将助力民主宪政的正道主义](/content/gnews/36/README.md)
  ` 纽约香草山MOS03`
 
-### [韩新增确诊人数首次突破5万，60岁以下的患者自行管理](/content/gnews/36/README.md)
+### [韩新增确诊人数首次突破5万，60岁以下的患者自行管理](/content/gnews/37/README.md)
  ` 首尔天池农场`
 
-### [台湾前线｜台湾离岛领空 疑遭中共民用无人机入侵](/content/gnews/37/README.md)
+### [台湾前线｜台湾离岛领空 疑遭中共民用无人机入侵](/content/gnews/38/README.md)
  ` 關注組`
 
-### [中共利用文化产业充当其“笔杆子”侵蚀文明世界](/content/gnews/38/README.md)
+### [中共利用文化产业充当其“笔杆子”侵蚀文明世界](/content/gnews/39/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [美国华裔美国人督促FBI调查中共间谍单伟建](/content/gnews/39/README.md)
+### [美国华裔美国人督促FBI调查中共间谍单伟建](/content/gnews/40/README.md)
  ` 日本东京方舟农场`
 
-### [战斗室：国防部爆料人提供的美军数据表明疫苗危害惊人](/content/gnews/40/README.md)
+### [战斗室：国防部爆料人提供的美军数据表明疫苗危害惊人](/content/gnews/41/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [众议院保守派提出针对数千名中共官员的制裁法案](/content/gnews/41/README.md)
+### [众议院保守派提出针对数千名中共官员的制裁法案](/content/gnews/42/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [欧盟公布芯片法案 肯定台湾重要地位](/content/gnews/42/README.md)
- ` NFSC News`
 
 ### [追回属于中国人的钱，让中国人的生老病死和教育免费](/content/gnews/43/README.md)
  ` 首尔天池农场`
@@ -180,11 +180,11 @@
 ### [韩国96%疫苗接种率 新增中共病毒却创新高](/content/gnews/55/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [“军人在战场上可以是英雄，你们也是英雄”](/content/gnews/56/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [2022年2月9日大直播速记精萃](/content/gnews/57/README.md)
+### [2022年2月9日大直播速记精萃](/content/gnews/56/README.md)
  ` 雅典娜GNotes`
+
+### [美国军医报告COVID疫苗导致流产、出生缺陷和不孕率急剧上升](/content/gnews/57/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
 ### [2022年2月9日郭先生大直播 文字同步精要](/content/gnews/58/README.md)
  ` 焦點20分`

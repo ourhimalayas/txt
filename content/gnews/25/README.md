@@ -2,24 +2,18 @@
 ---
 
 
-## 巴黎警方禁止加拿大式卡车司机示威
-` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/1984057/)
+## 樱花头条┃香港单日疫苗接种破8万剂创新高
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1984169/)
 
-**在巴黎，警方禁止了加拿大式的卡车司机反对新冠病毒限制的示威。车队已经从一些法国城市出发。**
+撰稿：东京樱花团/樱花传媒
+![](https://lh5.googleusercontent.com/0cHpxHQBkfH7lhncl9UBZzOfeGO6eER0Dl5UC9EeYmdeDkyl1JnU2W7H6AXGf-FXqWkKO5MCH0SwsMlfIBWVy4zv0IqHlFpl3_mw9oIebs7fG8MOp6rNhuHR9rO-dEKRgIbg_4FK)
+圣城香港2月9日共8万3541人接种新冠疫苗，当日新增1161人感染病例。严苛社交限制令颁布后，打第一针的有3万6584人。
 
-翻译：Luckycky
-![](https://assets.gnews.org/wp-content/uploads/2022/02/TruckDemo_GaizkaIrozAFP-635x423-1.jpeg)图片: Gaizkal Iroz/AFP
+信息来源：[https://gettr.com/post/ptmlk09b8e](https://gettr.com/post/ptmlk09b8e)
 
-周末他们计划在巴黎抗议并实行封锁。该州于周四宣布，为维护公共秩序将禁止封锁。
-
-警方将严厉打击任何无视行为。 并动员适当的力量以防止路障并对参与者进行追究。
-
-目前当局很难估计法国车队的实际规模。（*dpa/cd*）
-
-原文链接：[https://brf.be/international/1573832/](https://brf.be/international/1573832/)
-
-发布：Luckycky
-![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
+*编辑：东京樱花团/keyboard racing
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

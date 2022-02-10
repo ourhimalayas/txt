@@ -2,14 +2,14 @@
 ---
 
 
-## 樱花头条┃西班牙国王、丹麦女王、斯洛维尼亚总统于9日对外公布感染新馆肺炎
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1984167/)
+## 樱花头条┃众议院保守派提出对数千名中共官员的制裁提案
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1984280/)
 
 撰稿：东京樱花团/樱花传媒
-![](https://lh4.googleusercontent.com/GIxOE_PaW6t-HO3PnAMf8pSLq5yfVJ6_qzZnP1O5zOP_ovEw5JBOMaH8ajv-8aAElPjtHp2-NxRfRWWkBzxBIaX8-ZGZ2X2DUSn7sDDpbtsXybR_T68o5EoAWI7LQs6QKLV_xXOH)
-西班牙国王菲利普六世、丹麦女王玛格丽特二世、斯洛维尼亚总理杨萨三人均在9日对外公布感染新冠肺炎
+![](https://lh3.googleusercontent.com/aE_bvz7K9B2EWiQO_OLPtBPeavQmBLVVTEBEZGZ-yK68WzNZ0oR01eHX3pq9S6ojS4CtWAfwd0f2FdWjXWtq4_rR1CxcjD79yOOqWbjSmweZSzaWsZvKzh-ZR9dQWMPNRqHMGUr7)
+美国众议员保守派高层已提出一项立法提案，正式制裁数千名中共官员，其中包括中共独裁者习近平及其家人。
 
-信息来源：[https://gettr.com/post/ptn3zt627c](https://gettr.com/post/ptn3zt627c)
+信息来源：[https://gettr.com/post/ptmwip8477](https://gettr.com/post/ptmwip8477)
 
 *编辑：东京樱花团/keyboard racing
 发布：东京樱花团/平安卿卿*
