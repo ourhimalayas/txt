@@ -2,38 +2,82 @@
 ---
 
 
-## 文贵先生索赔UBS在伦敦立案，打响沼泽地第一仗
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1985351/)
+## Pfizer向华尔街编织2022年收入过千亿美元的黄粱美梦
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1985452/)
 
-作者：波士顿五月花 跟随战神
-![](https://assets.gnews.org/wp-content/uploads/2022/02/UBS.20220210.jpg)
-2022年2月9日文贵先生在大直播中爆料：告UBS的官司在伦敦正式立案了，耶！文贵先生的兴奋之情溢于言表。
+作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏）
 
-这可不是普通的案子，也不是简单的经济纠纷，UBS更不是普通的银行。用文贵先生的话说：这个事情很大！是我们很重要的一关，它的意义太大了！太大了！太大了！
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-UBS又称瑞银，是瑞士联合银行的缩写，于1862年在瑞士成立，后发展成跨国投资银行和全球金融服务公司。2002年6月13日，国投瑞银基金管理有限公司在上海成立，成功获得中共国的金融牌照，这是中共建政以来发给外国银行的唯一的、独立经营的金融牌照，前无古人。这些只是公众知道的标签，文贵先生告诉我们，UBS是沼泽地，是沼泽地的核心，是世界黑暗势力的大本营。
+“黄粱美梦”，是出自唐代沈既济《枕中记》的一个成语。 “黄粱”，原意指小米，旅店主人煮的黄米饭尚未蒸熟，卢生的一场美梦就已经做醒。用于比喻不切实际、不能实现的如意打算。
 
-这里的沼泽地可不是能指长期受积水浸泡、水草茂密的泥泞地。它就像一个黑洞，可以吞噬人类的一切财富甚至生命。沼泽地的人是世界游戏规则的制定者，他们印钱、杀人、放高利贷、控制股市、掌握金融。他们控制着掌握政权的人、他们视生命如草芥，他们视地球是自己的私有财产。力量超级强大、财富量级惊人、做事为所欲为是沼泽地的标志。而站在文贵先生对面的UBS正是沼泽地，而且是沼泽地的核心。
+本周二，辉瑞在2021年4季度收益电话会议（[Fourth Quarter 2021 Earnings Teleconference—February8, 2022](https://s28.q4cdn.com/781576035/files/doc_financials/2021/q4/Q4-2021-Earnings-Charts-FINAL.pdf)）中预计，其2022年的总收入将增长到980亿美元至1020亿美元之间。辉瑞预计2022年仅疫苗销售一项就将带来320亿美元的收入，而该公司新的防Covid-19感染重症和死亡的Paxlovid药丸又将带来220亿美元的收入。
 
-2015年文贵先生开始起诉UBS,到现在已经过了7年，其中的艰难险阻恐怕只有文贵先生知道。如果没有坚强的意志、强大的实力是不可能做到的。文贵先生的真诚善良、无我利他、匡扶正义感动了上天，得到了万佛万神的眷顾。令人欣慰的是，伦敦法院终于立案了。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/FY-2022-Total-Company-Guidance.jpg)
 
-伦敦的一名法官表示，他可以监督此案，因为伦敦是有害事件的发生地，而瑞银的伦敦部门充分地、明显地参与了构成索赔的几个行动要素。一句话，立案的理由充足准确，法院在立案时已经掌握了确凿的证据。立案本身就说明了是有事实根据的，仅此一点，对UBS造成的震撼和打击已经堪称巨大。
+在过去的一年中，辉瑞每三个月就会提高对其Pfizer/BioNTech生产的COVID-19病毒 mRNA疫苗的销售预期。去年2月，这家制药商预计2021年该疫苗的收入至少为150亿美元；到去年5月，该数字提升至260亿美元；去年7月提升至330亿美元。最终，2021年Pfizer/BioNTech生产的COVID-19 mRNA疫苗销售额达到367亿美元，比去年11月调高后预期的360亿美元还要高。该公司2021年第四季度的销售额达到238.4亿美元，比2020年同期翻了一番，其中，仅Covid-19病毒疫苗就达到125亿美元，Covid-19病毒疫苗收入超过公司收入的一半。
 
-而中共从开始就声嘶力竭地叫嚣：不惜一切代价，阻止立案。当然，代价是指14亿中国人民。中共为何如此疯狂和恐惧？用文贵先生的话说，干掉UBS等于拿下共产党半个财富帝国。中共的脏钱有50万亿美元之巨藏在UBS。14亿中国人民的所有房贷、信用卡、银行贷款全部免除需要4至5万亿美元，50万亿美元可以免除10次！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-10_23-14-33.png)
 
-这些钱是中共及盗国贼们从中国人民身上吸来的血，是中共赖以在国际上蓝金黄的基础，同时也是中共的命根子。一旦这些钱被挖出中共必死无疑，这就是隔空取钱、以钱灭共。
+目前，全球与辉瑞签署疫苗供应协议的国家越来越多，Pfizer/BioNTech COVID-19 mRNA疫苗是美国和世界上许多其他国家最常用的COVID-19病毒疫苗。截至2月5日，辉瑞在美国和欧洲的市场份额攀升至约70%。根据美国疾病控制与预防中心(CDC)的官方数据，包括已对美国人进行的近5000万次辉瑞(Pfizer)加强针注射，Pfizer/BioNTech疫苗已经在美国使用了3.19亿剂，超过了美国接种5.4亿支疫苗总数的一半以上。
 
-文贵先生手里有一份名单，早已经掌握了盗国贼在UBS藏匿的脏钱，有老党魁、有新皇帝，有老常委、有现常委，有家属、有白手套。但不管是谁，都将在BUS的案件中曝光。让全世界人民看清中共的魔鬼面目。
+辉瑞预计，2022年因为许多发达国家的疫苗接种继续转向加强注射，并在以前不符合条件的年龄群体中开始注射疫苗。例如，在美国，食品和药物管理局（FDA）正在考虑是否授权给6个月至4岁之间的儿童注射疫苗。同时，辉瑞计划在今年春天的某个时候推出一种专门针对Omicron变体疫苗。
 
-此次索赔UBS是直面沼泽地的第一仗，是和沼泽地的公开较量，这是一场大战，一定精彩绝伦！
+Pfizer/BioNTech预计他们今年可以生产40亿剂疫苗，2022年销售额达到320 亿美元，其中至少20亿剂销售给中低收入国家。
 
-* * *
+除了mRNA疫苗，该公司还宣称，其新推出的新型口服Paxlovid是一种在测试中证明可有效预防COVID-19重症或死亡的药物，Paxlovid药丸于去年12月22日获得了美国食品和药物管理局的紧急使用授权。从获得授权到去年年底的大约一周，Paxlovid药丸在美国的销售额达到7600万美元。目前，Paxlovid供应有限，辉瑞预计第一季度仅能提供600万个疗程。随着辉瑞加大生产力度，这一数字将在第二季度增加到2400万个疗程，下半年将增加到9000万个疗程。
 
-*编辑：文合*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-10_23-15-23.png)
 
-*封面：霹雳鼠年*
+辉瑞首席执行官Albert Bourla在2月8日的财报电话会议上表示，该公司计划以每疗程700美元的价格向世界各国政府出售这种药物。如果市场需要，该公司今年可以生产多达1.2亿个疗程的药物。目前，该公司正在与100多个国家就Paxlovid药丸销售进行谈判。
 
-*发布：吐纳*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-10_23-16-20.png)
+
+辉瑞预计，2022年，Paxlovid的销售额可能会攀升甚至高于220亿美元，因为很多国家政府可能会与其签署新的供应合同或选择储存一定剂量，以应对未来的COVID-19病例激增。
+
+辉瑞正在为华尔街编织着一个美丽的梦，疫苗经济！
+
+然而，这个梦随时都可能会破灭！
+
+Albert Bourla的分析是基于COVID-19病毒可能会在未来十年内继续祸害世界，人们还愿意心甘情愿充当“小白鼠”！每年都要接种一剂所谓的加强针！
+
+Paxlovid更是和Pfizer/BioNTech mRNA COVID-19病毒疫苗一样，可以继续欺骗人们，用所谓的“试验研究结果表明，Paxlovid在预防COVID-19住院和死亡方面有效！”
+
+去年11月15日，FDA向美国得州地区的联邦法官请求，允许该机构每个月披露500页资料，而辉瑞公司提供给FDA的疫苗许可审批文件多达32.9万页。这也意味着，全部数据直到2076年才会“解密”，美国因疫苗副作用死者的家属，永远不可能得到真相。
+
+这样的美梦可能持续吗？
+
+根据美国VAERS系统的报告，因COVID-19病毒疫苗副作用造成的心脏病风险是过去30年平均数的103倍，死亡是71倍以上！期望各国政府继续强制已经愤怒到极点的人们充当小白鼠，注射这种试验性的疫苗，根本不可能！
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-10_23-17-55.png)
+
+丹麦、挪威、芬兰、爱尔兰、荷兰、意大利、立陶宛、法国、英国、瑞典和瑞士已经宣布将取消COVID-19限制并开放其国门，连以色列这样的疫苗狂热国家都不再强制人们注射这些试验性的疫苗！
+
+COVID-19病毒，是中共武汉实验室向全世界投放的生化武器病毒，只要CCP不再投毒，病毒很快会消失！CCP目前已经被新中国联邦打到半死，处于苟延残喘阶段，很快就会被中共人民和全世界正义力量消灭，期望CCP继续不断投毒10年，完全是天方夜谭！习总加速师更是有“血月”之祸，很快能在2022年阴历三月十八日夜，吊死在煤山的那棵歪脖子树上。2025年，世界一定不会有共惨党！
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/803eca76f562416e90af8f890c9e5320.jpg)
+
+加拿大的卡车司机，正在唤醒全世界，已经有澳大利亚、荷兰、新西兰等国家的卡车司机加入反对强制疫苗行列，邪恶的强制疫苗政策正在加速反转。
+
+几百万了解中共制造生化武器病毒，向全世界不断投放新的病毒变种真相的新中共联邦人，已经有了自己的平台，不再担心Twitter、Youtube等封杀，不断告诉全世界病毒真相。
+
+随着因疫苗副作用大爆发，Pfizer在2022年，带给华尔街的绝对不是1020亿美元的收入，而是恶梦！深受疫苗灾难的人们，带给Pfizer的绝对不是1020亿美元收入，而是连同Albert Bourla在内的作恶者，会不会被讨还家属生命的人们撕碎！
+
+参考数据：
+
+[VAERS COVID Vaccine Mortality Reports Through January 28, 2022](https://openvaers.com/covid-data/mortality)
+
+[Fourth Quarter 2021 Earnings Teleconference—February8, 2022](https://s28.q4cdn.com/781576035/files/doc_financials/2021/q4/Q4-2021-Earnings-Charts-FINAL.pdf)
+
+[Pfizer forecasts $100B in sales, fueled by COVID-19 vaccine, pill](https://www.biopharmadive.com/news/pfizer-covid-sales-vaccine-paxlovid-earnings/618467/)
+
+[美国FDA计划到2076年才彻底公布新冠疫苗数据](https://wallstreetcn.com/articles/3645301)
+
+[Pfizer forecasts $54 billion in revenue in 2022 from sales of its COVID-19 vaccine and antiviral pill alone fueling an expected record of $102 billion](https://www.dailymail.co.uk/health/article-10490809/Pfizer-forecasts-54-billion-revenue-2022-sales-Covid-vaccine-antiviral-pill.html)
+
+[Pfizer’s Covid vaccine contracts with developing countries allows company to restrict donations of doses and seize foreign bank accounts](https://www.dailymail.co.uk/health/article-10108661/Pfizers-Covid-vaccine-negotiations-developing-countries-called-bullying-new-report.html)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

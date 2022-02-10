@@ -2,42 +2,45 @@
 ---
 
 
-## 安东尼·福奇谈第四剂 COVID 加强针注射 ：“可能需要再注射一剂”
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1985684/)
+## 福奇：美在退出大流行的“全面”阶段而三周前还说正在第一阶段
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1985750/)
 
-**编译：沉默老歌**
+**编译： Jenny Ball**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip福奇：美在退出大流行的全面阶段而三周前还说正在第一阶段.png)图片来源：thegatewaypundit.com
+周二，福奇表示美国正在退出大流行的“全面爆发”阶段。
 
-白宫首席医疗顾问安东尼·福奇博士暗示，美国可能需要第四剂加强剂来对抗 COVID-19 变体 Omicron，并补充说，加强剂可能基于个人的年龄以及潜在的疾病状况。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/147EC50B-39B8-405A-9ECD-1CE8169004FE.jpeg)图片来源：https://www.indiatvnews.com
-福奇博士在周三（2月9日）白宫简报会上说：“可能需要再次加强针注射，在这种情况下，对接受 mRNA 的个体进行第四次加强针注射，这可能基于年龄和潜在条件” 。
+本周新冠死亡人数达到了一年来的最高水平，那么“科学”发生了什么变化？
 
-Anthony Fauci 就数据显示需要注射超过第三剂的数据回应记者时说，这显然是一个备受关注的问题。
+“根据约翰斯霍普金斯大学汇编的数据，本周，美国新冠肺炎死亡人数达到了大约一年来的最高水平，过去两周上升了 39%。” CNBC 报道。
 
-早些时候，拜登总统的高级医疗顾问表示，自 11 月首次发现冠状病毒的 omicron 变体以来，全球已有 50 万人死于 COVID-19，称其为冠状病毒危机的“全面流行阶段”。 周二（2 月 8 日），世界卫生组织表示，自 omicron 被宣布为“关注的变体”以来，约有 100,000 例死亡发生在美国。
+“随着我们走出 COVID-19 的全面流行阶段，”福奇对英国《金融时报》说。 “我们肯定会走出，这些决定将越来越多地在地方层面做出，而不是由中央决定或授权。还将有更多的人自己决定如何应对病毒。”
 
-Fauci 博士进一步谈到此事时说：“在 6 个月至 24 个月以及 21 个月至 4 岁结束的儿童试验数据 是由制药公司进行的，这个案例是辉瑞”。与此同时，美国一些全州范围内的 COVID-19 口罩规定即将结束。
+（点评：他已经逼迫全世界大多数人当了大药企mRNA毒药的试验老鼠，现在要甩锅，让人们自由应对“疫苗”DNA编辑人体基因和刺突蛋白造成的各种器官栓塞的灾难！）
 
-据美国有线电视新闻网报道，此前，白宫周一继续遵守美国疾病控制和预防中心鼓励在学校使用口罩的指导方针，因为一些州正在采取措施取消课堂上的口罩规定。
+就在三周前，福奇说大流行有五个阶段，而我们只处于第一阶段。
 
-疾病预防控制中心建议接种疫苗的人“如果您在大量或高传播区域，应在室内公共场所佩戴口罩”。
+那发生了什么变化？
 
-据《华盛顿邮报》报道，全球冠状病毒死亡人数连续第五周上升，上周报告的死亡人数为 68,000 人，比前一周增加了 7%。 上周，世卫组织总干事谭德塞在新闻发布会上说，世界许多地方的新冠病毒死亡人数正在增加。他警告说，“任何国家投降或宣布胜利”都为时过早。
+随着每日 Covid 死亡率飙升，民主党州长们一致取消了全州范围内的口罩规定。
 
-他说：“我们担心，由于疫苗的存在，以及由于 omicron 的高传播性和较低的严重性，防止传播不再可能，也不再需要，因此我们担心这种说法已经站稳脚跟” 。 “没有什么比这种观点更偏离事实的了”。
+CNN 医学分析师莉安娜·温 (Leana Wen )博士本周表示，“科学发生了变化”，并呼吁取消对流行病的限制。
 
-**原文链接：**
+进入中期选举，民主党的内部民意调查一定很糟糕！
 
-[‘There may be need for yet again another dose’: Dr Antony Fauci on 4th COVID booster shot](https://www.indiatvnews.com/amp/news/world/dr-antony-fauci-fourth-covid-booster-shot-need-for-another-vaccine-booster-dose-covid-vaccination-corona-strain-covid-cases-coronavirus-pandemic-2022-02-10-758925)
+评论：从何时起，科学成立政治家操纵的信誉工具？
 
-**编辑：LILY**
+**新闻来源**：[thegatewaypundit.com][Dr. Fauci: US Exiting ‘Full-Blown’ Phase of Pandemic — After Saying We Are in the First Stage of COVID Just 3 Weeks Ago](https://www.thegatewaypundit.com/2022/02/dr-fauci-us-exiting-full-blown-phase-pandemic-covid-fatalities-reach-highest-level-year/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=daily)
 
-**发布：歪桑**
+* * *
 
-20220210
+***审核：文乐
+校对：花羽
+发布：信心满满***
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-3.jpeg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,19 +2,11 @@
 ---
 
 
-## 2022年2月10日，全球中共病毒疫情情况汇总
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1985683/)
+## 2月9日文贵大直播（图片）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1985746/)
 
-制作：DT新闻组
-
-**中共的杀戮还在继续……**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_4748.jpg)
-
-发稿：信心的选择
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-3.jpeg)
-
+设计 五月花农场 科存
+![](https://assets.gnews.org/wp-content/uploads/2022/02/851CBDB4-D9F1-4763-A463-C4DECAD499CA.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/ABB53D2B-E5D7-4C85-9A84-068AEFEFF861.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/D138CF0B-438F-457F-94CF-9A3DC7AFDC41.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

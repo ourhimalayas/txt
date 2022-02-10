@@ -2,34 +2,45 @@
 ---
 
 
-## 郭先生解读2022新中国联邦红
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1985493/)
+## 突发：丹麦为美国军队在丹麦领土上的行动敞开大门
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1985558/)
 
-作者：银河系农场—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生在2月7日的大直播中阐述了新中国联邦旗由蓝色改为红色的意义所在。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-10-上午11.03.23.png)
-郭先生透露，武当山的大师曾经批算道，新中国联邦旗的蓝色和49颗星代表着海洋和星空，其寓意非常好。但郭先生也表示，颜色是大自然给予人类的密码，每种颜色都具有各自独特的意义，因此，我们并不能因为灭共就要消灭红色。
+撰稿：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图像-41.jpg)
+图片来源：新闻发布会截图
 
-郭先生也解释道，2022年为壬寅水年——今年对中共来说是终结的一年。此外，中共的红旗和土色五星，以及同色系的镰刀斧子旗，还有习近平本人的巳蛇属相都指向了中共必将灭亡。
+哥本哈根，2月10日（Gnews）–丹麦政府已经开始与美国就新的防务协议合作进行谈判，这可能意味着美国军队和物资可以被安置在丹麦。
 
-郭先生最后谈道，爆料革命目前已经进入到了最关键的时刻，我们一定要夺回被中共霸占的红色。而此时将新中国联邦旗改以红色为底，加之旗面上铺满的49颗土色信仰之星，火土相生，将顺应2022太岁壬寅年。
+根据政府的说法，美国 “在一年多前与丹麦进行了接触，因为华盛顿近年来加强了与挪威和波罗的海国家等其他北约盟国的军事合作”。
 
-参考链接：[2022年2月6日 文贵大直播](https://gtv.org/video/id=61ffc26b3621aa7415d64d51)
+“我们面临着新的和日益复杂的威胁，如恐怖主义和黑客攻击。然后我们目前面临着来自俄罗斯的专制势力，这已经持续了一段时间”，首相弗雷德里克森说。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+在新闻发布会上首相强调，可能的合作不仅是因来自乌克兰周边的高度紧张局势，但人们显然已经意识到这一原因。
 
-总编：文特
-编辑：文特
-校正/发稿：呼吸的雾霾（文小呼吸）
+“乌克兰境内和周边的局势非常清楚地强调了一个事实，即我们不能把我们的和平、我们的自由或我们的安全视为理所当然“，首相强调了必须与美国人更加紧密地合作的原因。丹麦是美国的亲密盟友，是进出波罗的海门户的战略要位。而俄罗斯在波罗的海就拥有军事基地。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+首相还说：“美国和丹麦之间直接达成的这种协议将为在丹麦的一些选定的军事领域开展新的合作和活动开辟道路，可能包括在丹麦土地上出现美国士兵。
+
+在会谈之前，丹麦几十年来一直不允许外国军队长期驻扎。这次是几十年来在丹麦领土上不驻军政策的一个突破。
+
+美国此前与北约盟友挪威达成了类似的协议，挪威几十年来一直允许美国和其他北约国家的军队在其领土上演习。该协议仍需得到挪威议会的批准，它将允许美国在机场和基地建造设施，并旨在促进盟国在危机或战争情况下迅速增援。
+
+立陶宛与强大的邻国俄罗斯接壤，自2019年以来一直轮流接待500名美国部队。本周，这个波罗的海国家要求美国在该国永久驻军，以帮助加强安全。
+
+丹麦和美国之间可能达成的新防务协议可能包括军事演习、加强海上合作和在丹麦储存军事装备，但不太可能包括在该国建立美军基地。
+
+首相表示，谈判将不包括丹麦的半自治领土格陵兰岛的合作。
+
+据外交部长Jeppe Kofod称，与美国的谈判需要几个月，也许几年。
+
+参考来源
+
+[Dr.dk](https://www.dr.dk/nyheder/politik/live-statsministeren-holder-pressemoede-om-samarbejdet-med-usa)
+
+[TV2.dk](https://nyheder.tv2.dk/politik/2022-02-10-danmark-aabner-for-amerikanske-soldater-paa-dansk-jord)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

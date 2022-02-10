@@ -2,36 +2,55 @@
 ---
 
 
-## 美对台出售爱国者军备系统抵御中共威胁
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1985495/)
+## 美商务部将33家中共国公司列入红名单
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1985560/)
 
-作者：纽约磐石农场—在远方/银河系农场—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月8日，据台湾媒体报道，台湾外交部已经正式接到美国政府的通知，即美方将对台湾出售价值1亿美元的设备和服务，用以维持、维护和改进台湾现有的爱国者导弹防御系统。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-10-上午11.03.31.png)
-对此，台湾外交部表示了高度欢迎。同时，外交部也强调，鉴于中共持续的军事扩张和挑衅行为，台湾将继续深化台美双方紧密的安全伙伴关系，并对印太地区的和平、稳定与繁荣做出贡献。
+**评论：***美国公司与红名单中的中共国公司交易需要许可证，即需要通过额外审查（包含军事目的），但中共国公司由于大量作假无法通过审查，终将因不守规则、以骗治国而自食其果。*
 
-据悉，这是拜登政府任期内的第二次对台军售。早在去年8月，美国曾向台湾军队出售了自行野战炮、野战炮兵弹药补给车、野战炮兵战术数据系统等价值约七亿五千万美元的军备。
+据《apnews.com》作者：ERIC TUCKER，2022年2月7日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1030-e1644509901499.png)图片来源：ap news
+华盛顿（美联社）——拜登政府对33家合法性无法核实的中共国公司亮起红灯，限制其从美国出口商接收货物，并要求美国公司进行额外的交易前调查。
 
-此外，美国在台协会官员在采访时指出，中共对台湾的侵略行径不只在军事方面，还包括传播不实信息、经济胁迫和网络攻击等。为此，美国将继续推动台湾实现军事现代化的进程，并协助其维护当地的政治稳定、军事平衡及经济进步，从而更好地应对中共不断演变的威胁。
+美商务部周一表示，它正在将这些公司列入所谓的“未经核实的名单”，这是一份全球企业名册。由于美国官员无法进行常规的检查，这些企业将受到更严格的出口控制。
 
-参考链接：
-1）[拜登政府二度對台軍售 將出售1億美元愛國者系統工程勤務](https://news.ltn.com.tw/news/politics/breakingnews/3822566)
-2）[US approves $100m deal for Taiwan to upgrade Patriot missile system](https://www.theguardian.com/world/2022/feb/08/us-approves-100m-deal-for-taiwan-to-upgrade-patriot-missile-system)
+该部负责出口执法的助理部长马修-阿克塞尔罗德（Matthew Axelrod）声明：“及时完成最终用途检查并验证美国出口接收方合法性和可靠性的能力是我们出口管制系统的核心之一。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+他补充，将中共国33个当事方列入未核实名单，将有助于美国出口商进行尽职调查和评估交易风险，并向中共国政府表明他们安排最终用途检查合作的重要性。
 
-总编：文真/文特
-编辑：谐趣园/静言
-校正/发稿：呼吸的雾霾（文小呼吸）
+此前，联邦调查局局长克里斯托弗-雷在上周的一次演讲中表示：该局大约每12小时就会展开一项与中共情报行动有关的调查。并警告：没有哪个国家比中共对我们的思想、创新和经济安全构成如此广泛的威胁。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+中共国一再拒绝美国政府的指控，说华盛顿进行了毫无根据的攻击和恶意的抹黑。
+
+美商务部的行动使得出口商向名单上公司运送产品时，需获得许可。行动提醒名单公司必须证明其合法性，并愿意遵守美国的法规，以继续接收货物。
+
+此举同时告诉中共国，如果希望这些公司从名单上拿下，当局必须允许美国对这些公司进行检查和视察。
+
+在中共国，看似用于商业用途的产品最终被转用于军事目的。
+
+这些检查通常是与中共国政府协调进行的。当美国无法进行检查，该公司就会被列入未经核实的名单。它可以通过接受检查并确定其为合法企业而从名单上消失。
+
+周一被标记的大多数公司是电子企业，也包括光学公司、一家涡轮叶片公司、大学的国家实验室和其他企业。
+
+新增33家中共国公司使上市实体入单总数达到175家。其他有公司被列入未核实名单的国家包括俄罗斯和阿拉伯联合酋长国。
+
+原文连接：[https://apnews.com/article/business-china-27c61929cdbc91cc3c425572ac197662](https://apnews.com/article/business-china-27c61929cdbc91cc3c425572ac197662)
+
+翻译：洛杉矶盘古农场 – TrueSky
+
+校对：洛杉矶盘古农场 – 轰炸机
+
+评论：洛杉矶盘古农场 – 轰炸机
+
+编辑：洛杉矶盘古农场 – WenXiong
+
+发布：洛杉矶盘古农场–子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

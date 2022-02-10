@@ -2,8 +2,8 @@
 ---
 
 
-## CCP冬奥会给美国求情马上买五千亿美元的东西
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1985712/)
+## 追回盗国贼盗取的钱让中国人真正享受到最好的福利
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1985751/)
 
 作者：东京樱花团小视频组
 

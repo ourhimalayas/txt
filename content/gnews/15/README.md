@@ -2,16 +2,19 @@
 ---
 
 
-## 习普两人的勾兑 中国人民将付出惨重代价
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1985650/)
+## 2022年2月10日，全球中共病毒疫情情况汇总
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1985683/)
 
-作者：东京樱花团小视频组
+制作：DT新闻组
 
-* * *
+**中共的杀戮还在继续……**
 
-编辑：东京樱花团/小视频组
-发布：东京樱花团/小视频组
-![](https://assets.gnews.org/wp-content/uploads/2022/02/樱花-3-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_4748.jpg)
+
+发稿：信心的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-3.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

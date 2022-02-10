@@ -2,37 +2,42 @@
 ---
 
 
-## 美国众议院提出制裁中共官员的核弹级提案
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1985659/)
+## 安东尼·福奇谈第四剂 COVID 加强针注射 ：“可能需要再注射一剂”
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1985684/)
 
-撰稿：小毛牛
-![](https://assets.gnews.org/wp-content/uploads/2022/02/020803.jpg)网络图片
-据Breitbart News独家报道：美国众议院的保守派高层已提出一项立法提案，正式制裁数千名中共官员，令人震惊的是，这其中居然包括中共独裁者习近平及其全家。
+**编译：沉默老歌**
 
-众议员麦克莱恩（Rep. Lisa McClain ）的法案名为停止中共法案（Stop CCP Act），将对中共官员实施一种称作削弱性的制裁：阻止他们获得美国旅行签证和金融制裁；阻止他们使用或获取某些资产；这个法案将制裁中共最高政府机构全国代表大会的每一位成员。比如这2000 多名中共官员连同他们的家人将被禁止进入美国，他们所有人也将被正式禁止进入美国的金融系统（包括在中国经营的美国公司），这样他们就不能利用他们的家人来逃避制裁。
+白宫首席医疗顾问安东尼·福奇博士暗示，美国可能需要第四剂加强剂来对抗 COVID-19 变体 Omicron，并补充说，加强剂可能基于个人的年龄以及潜在的疾病状况。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/147EC50B-39B8-405A-9ECD-1CE8169004FE.jpeg)图片来源：https://www.indiatvnews.com
+福奇博士在周三（2月9日）白宫简报会上说：“可能需要再次加强针注射，在这种情况下，对接受 mRNA 的个体进行第四次加强针注射，这可能基于年龄和潜在条件” 。
 
-当然如果中共真正停止对维吾尔人和在香港的侵犯人权行为、盗窃美国知识产权和妄图入侵台湾，那么该法案将可以被豁免。但是为了避免像拜登这样的和中共存在千丝万缕联系的总统滥用手中的豁免权，国会会更新并且用两年的时间去证明接触此项制裁的正确性。
+Anthony Fauci 就数据显示需要注射超过第三剂的数据回应记者时说，这显然是一个备受关注的问题。
 
-众议员麦克莱恩还补充到：中共是对美国和世界安全的最大威胁之一，制裁中共领导人是向中国和世界表明我们厌倦了他们咄咄逼人的霸凌方式。
+早些时候，拜登总统的高级医疗顾问表示，自 11 月首次发现冠状病毒的 omicron 变体以来，全球已有 50 万人死于 COVID-19，称其为冠状病毒危机的“全面流行阶段”。 周二（2 月 8 日），世界卫生组织表示，自 omicron 被宣布为“关注的变体”以来，约有 100,000 例死亡发生在美国。
 
-众议员吉姆·班克斯（Rep. Jim Banks ）补充说，在这项提案中受到制裁的中共官员是特别残酷的侵犯人权者。众议院共和党会议有 159 名成员，保守派RSC （Republican Study Committee）是国会中最大的众议院共和党人团体——实际上是任何一方或双方成员中最大的核心小组。
+Fauci 博士进一步谈到此事时说：“在 6 个月至 24 个月以及 21 个月至 4 岁结束的儿童试验数据 是由制药公司进行的，这个案例是辉瑞”。与此同时，美国一些全州范围内的 COVID-19 口罩规定即将结束。
 
-共和党研究委员会主席班克斯 说：中共的这群人是世界上最严重的人权侵犯者和专制邪恶政权的领导人，我们不仅有国家安全义务，还有道德义务，阻止他们在我们的海岸上执行他们的腐败全世界的邪恶计划。
+据美国有线电视新闻网报道，此前，白宫周一继续遵守美国疾病控制和预防中心鼓励在学校使用口罩的指导方针，因为一些州正在采取措施取消课堂上的口罩规定。
 
-众议院军事委员会的罗杰斯（Rogers）说：中共必须为他们令人震惊和令人不安的侵犯人权行为负责。乔·拜登每天都在犹豫是否要让中共对种族灭绝和奴隶劳动负责，中共只会在他们的邪恶运动中变得更加胆大妄为。
+疾病预防控制中心建议接种疫苗的人“如果您在大量或高传播区域，应在室内公共场所佩戴口罩”。
 
-共和党国家安全和外交事务主席、众议员乔·威尔逊（Rep. Joe Wilson）说：我很高兴加入这项要求对中共高级成员进行恶意行为和侵犯人权的制裁的努力。如果我们要反击中共几十年来利用我们并压迫中国非凡的人民，我们必须大胆。
+据《华盛顿邮报》报道，全球冠状病毒死亡人数连续第五周上升，上周报告的死亡人数为 68,000 人，比前一周增加了 7%。 上周，世卫组织总干事谭德塞在新闻发布会上说，世界许多地方的新冠病毒死亡人数正在增加。他警告说，“任何国家投降或宣布胜利”都为时过早。
 
-除了班克斯、罗杰斯和威尔逊之外，麦克莱恩法案的原始共同发起人还包括众议员布Reps. Brian Babin (R-TX), Vern Buchanan (R-FL), Andrew Clyde (R-GA), Rodney Davis (R-IL), Carlos Gimenez (R-FL), Yvette Herrell (R-NM), Clay Higgins (R-LA), Bill Johnson (R-OH), Doug Lamborn (R-CO), David McKinley (R-WV), Mary Miller (R-IL), Marianette Miller-Meeks (R-IA), Steven Palazzo (R-MS), Rep. Tracey Mann (R-KS), Greg Steube (R-FL), and Tracey Mann (R-KS).
+他说：“我们担心，由于疫苗的存在，以及由于 omicron 的高传播性和较低的严重性，防止传播不再可能，也不再需要，因此我们担心这种说法已经站稳脚跟” 。 “没有什么比这种观点更偏离事实的了”。
 
-虽然此法案在目前民主党控制下的国会不太可能会被投票表决，但是在即将到来的中期选举中，共和党有望重新夺回多数席位，所以该法案很有可能在明年获得通过。
+**原文链接：**
 
-灭共的最后战役已经打响，中共的穷途末路已在眼前！
+[‘There may be need for yet again another dose’: Dr Antony Fauci on 4th COVID booster shot](https://www.indiatvnews.com/amp/news/world/dr-antony-fauci-fourth-covid-booster-shot-need-for-another-vaccine-booster-dose-covid-vaccination-corona-strain-covid-cases-coronavirus-pandemic-2022-02-10-758925)
 
-新闻来源：[Exclusive — House Conservatives Introduce Sanctions Proposal for Thousands of Chinese Communist Party Officials](https://www.conservativenewsdaily.net/breaking-news/exclusive-house-conservatives-introduce-sanctions-proposal-for-thousands-of-chinese-communist-party-officials/)
+**编辑：LILY**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
+**发布：歪桑**
 
+20220210
+
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
