@@ -2,8 +2,8 @@
 ---
 
 
-## 共产党不是想象中的牛，七哥是最好的证明
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1983359/)
+## 美国什么时候第一次和中国建交（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1983442/)
 
 编辑/整理：澳雅大直播工作组视频剪辑小队
 
