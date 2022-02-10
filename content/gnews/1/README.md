@@ -2,12 +2,19 @@
 ---
 
 
-## 运动员、美国、关心人权的公司应对中共种族灭绝发声
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1983305/)
+## 战友们一定要有紧张感
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1983412/)
 
-02/07/2022 到处都有证据表明，中共正在压迫其人民，对维吾尔人实施种族灭绝，并强迫将人关入奴隶集中营。运动员们、美国、尤其那些打着道德旗号，声称关心人权的公司应该要对此发声
+编辑/整理：澳雅大直播工作组视频剪辑小队
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+*发布：**Frank2021*
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

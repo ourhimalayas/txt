@@ -2,10 +2,10 @@
 ---
 
 
-## 记者在中共国被推搡和科技巨头打压保守派的本质是一样
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1983188/)
+## 加拿大：渥太华因“自由车队”进入紧急状态
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1983278/)
 
-02/06/2022 福克斯新闻主播称荷兰记者在中共国被推搡的遭遇跟大科技公司对保守派的打压本质是一样的。就像中共一样，他们有能力让我们噤声。
+02/07/2022 加拿大：渥太华因“自由车队”进入紧急状态。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

@@ -2,44 +2,21 @@
 ---
 
 
-## 国安委不知道习近平睡哪儿,七哥却随时掌控习的一举一动
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1983274/)
+## 台湾前线｜台湾离岛领空 疑遭中共民用无人机入侵
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1983375/)
 
-G-TV视频链接：[https://gtv.org/video/id=6204a6c3585ecc15d73fade0](https://gtv.org/video/id=6204a6c3585ecc15d73fade0)
+**港台前線關注組 / 發佈時間｜10/2/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Food-Dine-Socia-Media-Youtube-Banner.png)**更多資訊請關注官方蓋特｜please follow our Gettr （[https://gettr.com/user/hktwfrontline](https://gettr.com/user/hktwfrontline)）**
 
-**郭文贵先生：**像国安委，国安委的人我现在可以对着镜头说，国安委的人不知道习近平晚上睡哪儿，我绝对知道他睡哪儿，你不信咱到私密直播说。
+5日，有民众检举台湾马祖东引岛领空遭到不明飞行器穿越，并提供监视器画面。检举民众称，5日下午时听见飞机低空飞越，认为事关重大因此向管辖区连江县警局报案，警方在接获报案后立即通报军方东引指挥部。但截至目前，台湾政府并未针对此事进行说明。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/20220206002719.jpg)
+陆军东引地区指挥部于5日晚间回应此事，称不明飞行器飞越马祖东引岛领空的机型为“民用定翼双桨飞行器”，但当时并未即时说明国籍与机种。事后，军方判定疑似为中共民用版“运-12”运输机。过去，中共曾派遣此型号飞行器，对钓鱼台空域宣示主权。
 
-这就敢那么牛，国安委都不知道，中办不知道，我绝对知道他每天睡哪儿。因为他睡觉的地方，他有仨人他回避不了。第一个，就是他的安全人员。他除非不用安保，他只要用安保我就知道。还不用安保人员告诉我，因为安保的人他一定会开车，安保的人一定会用通信。什么加密通信，胡扯的事。在我面前就跟，就穿了一个透明衣服一样，就这么简单。
+有媒体采访知情人士称，该架无人机由西往东，低空从西引岛外海，一路飞到东引岛上空，通过东引岛后，立刻快速爬升飞往外海，几乎是沿着当地地形飞行。
 
-所以说，那么另外一个他离不了，就是他的机要秘书。国家就是机要的，就是军方的。他只要有这些人跟着我就知道他在哪儿。第三个，他只要在中国，我就知道他在哪，为什么？他所到之处，必然有服务。这三样除非他枪毙了不用，（否则）我一定知道他在哪儿，就这是实力。
+台湾前空军副司令张廷廷在接受媒体采访时说到，运12直接飞到东引岛上空，依照相关规定，应该要采取更积极的处置，如警告或驱离的射击。他强调军方对此事的处置似乎慢半拍，发现飞行器后相关地区指挥部也只有表示全程严密监控。对于飞行器侵入领空的行为，张廷廷认为中共是蓄意在找破口试探，且其他离岛如乌坵、东沙岛等，以民充军、以民混军都有可能发生。
 
-字幕来源：[2022年1月27日 文贵大直播 全文字版](https://gnews.org/zh-hans/1924957/)
-
-编辑整理：喜马拉雅的肉夹馍；
-
-字幕文件制作：小满；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+來源｜[民視](https://tw.stock.yahoo.com/news/%E4%B8%AD%E5%9C%8B%E6%B0%91%E8%88%AA%E6%A9%9F%E9%A3%9B%E6%8E%A0%E6%9D%B1%E5%BC%95-%E9%80%80%E5%B0%87%E8%BD%9F%E8%BB%8D%E6%96%B9%E6%85%A2%E5%8D%8A%E6%8B%8D-105502671.html)
 
  
 
