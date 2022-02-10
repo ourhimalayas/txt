@@ -2,8 +2,8 @@
 ---
 
 
-## UBS会让共产党怎么解释（1）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1983977/)
+## 喜币可以让你拥有自己的财富,自己的人格
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1984058/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

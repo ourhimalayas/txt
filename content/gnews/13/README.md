@@ -2,20 +2,24 @@
 ---
 
 
-## UBS会让共产党怎么解释（2）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1983854/)
+## 秘翻在线：中共国成功蓝金黄吉布提
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1983918/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+**撰稿：葛大饼**
 
-*发布：陶子*
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-10-191216.jpg)图片来源：DW
+根据2022年2月9日新浪报道， 吉布提，虽然被联合国宣布为世界上最不发达国家之一，但是因为它的战略地位与自然环境，却成为了兵家必争之地。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻称吉布提国内经济的主要来源之一是向其他国家租借军事基地，向大国收取丰厚的“基本租金”。
+
+100多年来，以美国为首的西方国家一直觊觎这一战略位置。吉布提首先成为法国的军事基地，法国对吉布提的援助占该国对外援助总额的一半以上，吉布提是法国在海外最大的军事基地。随后美国也租用了吉布提的军事基地，并将其扩大到完全控制军事基地。
+
+中共国和吉布提于1979年1月8日正式建立外交关系并开始对其进行援助，是最后一个在吉布提建立海外军事基地的大国。如今，吉布提港口建设的大部分代表性项目，在中共国的参与下已经完成。这也算是吉布提送给中共国的 “伟大礼物”。文章号称这是美国100年没完成的事情让中共国3年就搞定了。（看来蓝金黄的效果太显著！）
+
+中共国有将“一带一路”合作伙伴国家纳入其影响范围的地缘战略野心。这是中共国推行的“债务陷阱外交”，贿赂当地政要和企业，用蓝金黄手段成功接管电网和港口等关键战略资产，而后者也可用于军事目的。一带一路计划 其实是通过基础设施建设项目洗钱的通道和网络，输出腐败。
+
+**[新闻来源](https://k.sina.cn/article_7517400647_1c0126e4705902q6f5.html?from=news&amp;sinawapsharesource=newsapp&amp;wm=3200_0024)**
 
  
 

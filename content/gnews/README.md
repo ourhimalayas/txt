@@ -15,119 +15,119 @@
 
 ---
 
-### [县城店铺倒闭察中共经济崩溃的报告](/content/gnews/1/README.md)
- ` G-NEWS TAIWAN`
-
-### [UBS会让共产党怎么解释（1）](/content/gnews/2/README.md)
- ` 雅典娜GNotes`
-
-### [7•24系列——西方-81军演及幕后军事牛人](/content/gnews/3/README.md)
- ` 墨尔本雅典娜农场`
-
-### [未来新中国联邦](/content/gnews/4/README.md)
- ` 雅典娜GNotes`
-
-### [未来新中国联邦在世界各地的基地](/content/gnews/5/README.md)
- ` 雅典娜GNotes`
-
-### [秘翻在线：中共国成功蓝金黄吉布提](/content/gnews/6/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [共产党曾经派出官方的绝对代表团](/content/gnews/7/README.md)
- ` 雅典娜GNotes`
-
-### [COVID-19 最新情报｜英媒调查发现：新冠疫苗的致死率超逾流感疫苗 49 倍](/content/gnews/8/README.md)
- ` 關注組`
-
-### [北约称俄罗斯袭击的预警时间正在缩短](/content/gnews/9/README.md)
- ` Shuizhuyu`
-
-### [UBS瑞银凭借什么拿到中共国第一个外商独资的银行牌照](/content/gnews/10/README.md)
- ` 雅典娜GNotes`
-
-### [七哥到日本去就近距离作战](/content/gnews/11/README.md)
- ` 雅典娜GNotes`
-
-### [UBS会让共产党怎么解释3](/content/gnews/12/README.md)
- ` 雅典娜GNotes`
-
-### [UBS会让共产党怎么解释（2）](/content/gnews/13/README.md)
- ` 雅典娜GNotes`
-
-### [徐州八个孩子的妈妈事件有感](/content/gnews/14/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [七哥的重大宣布](/content/gnews/15/README.md)
- ` 雅典娜GNotes`
-
-### [彭帅的奥运“逼供”再一次展现出中共政权的傲慢和无耻](/content/gnews/16/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [瑞银UBS英国立案打开了沼泽地与中共邪恶的勾兑大门](/content/gnews/17/README.md)
- ` 雅典娜GNotes`
-
-### [无中心的喜支付将助力民主宪政的正道主义](/content/gnews/18/README.md)
- ` 纽约香草山MOS03`
-
-### [要求普京辞职的顶级强硬派将军伊瓦绍夫](/content/gnews/19/README.md)
- ` 墨尔本雅典娜农场`
-
-### [白宫对习近平与普京在俄罗斯紧张局势下的会晤作出回应](/content/gnews/20/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [“赢得这场新冷战”迈克•加拉格尔被任命为众议院情报委员会成员](/content/gnews/21/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [好莱坞如何为了利益而遵从中共的审查制度](/content/gnews/22/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [夜总会里的“真爱”](/content/gnews/23/README.md)
- ` 银河勇气之星`
-
-### [CCP病毒疫苗对重症防护没有作用](/content/gnews/24/README.md)
- ` 澳喜特战旅Gnews`
-
-### [日本卫生部不推荐5～11岁接种疫苗](/content/gnews/25/README.md)
+### [戴不住了 美国多州宣布放宽口罩令](/content/gnews/1/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [韩新增确诊人数首次突破5万，60岁以下的患者自行管理](/content/gnews/26/README.md)
- ` 首尔天池农场`
+### [喜币可以让你拥有自己的财富,自己的人格](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
 
-### [台湾前线｜台湾离岛领空 疑遭中共民用无人机入侵](/content/gnews/27/README.md)
- ` 關注組`
+### [巴黎警方禁止加拿大式卡车司机示威](/content/gnews/3/README.md)
+ ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [中共利用文化产业充当其“笔杆子”侵蚀文明世界](/content/gnews/28/README.md)
- ` 喜马拉雅农场新西兰站`
+### [大直播后记：七哥谈灭共后的两件难事](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
 
-### [2022年2月9日《文贵大直播》——冬奥会后的中俄关系](/content/gnews/29/README.md)
+### [加拿大萨斯喀彻温省将于2月14日结束疫苗接种证明](/content/gnews/5/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [县城店铺倒闭察中共经济崩溃的报告](/content/gnews/6/README.md)
+ ` G-NEWS TAIWAN`
+
+### [瑞银在躲避中国亿万富翁的5亿美元诉讼中落败](/content/gnews/7/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [2022年2月9日《文贵大直播》——宣布三件大事](/content/gnews/8/README.md)
  ` 澳喜特战旅Gnews`
 
-### [运动员、美国、关心人权的公司应对中共种族灭绝发声](/content/gnews/30/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [UBS会让共产党怎么解释（1）](/content/gnews/9/README.md)
+ ` 雅典娜GNotes`
 
-### [围绕北京冬奥会的各种负面新闻，包括食物和中共病毒措施](/content/gnews/31/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [加拿大：渥太华因“自由车队”进入紧急状态](/content/gnews/32/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [7•24系列——公开喊话普京下台的俄军事狂人及其背后社团](/content/gnews/33/README.md)
+### [7•24系列——西方-81军演及幕后军事牛人](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国华裔美国人督促FBI调查中共间谍单伟建](/content/gnews/34/README.md)
- ` 日本东京方舟农场`
+### [未来新中国联邦](/content/gnews/11/README.md)
+ ` 雅典娜GNotes`
 
-### [战斗室：国防部爆料人提供的美军数据表明疫苗危害惊人](/content/gnews/35/README.md)
+### [未来新中国联邦在世界各地的基地](/content/gnews/12/README.md)
+ ` 雅典娜GNotes`
+
+### [秘翻在线：中共国成功蓝金黄吉布提](/content/gnews/13/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [共产党曾经派出官方的绝对代表团](/content/gnews/14/README.md)
+ ` 雅典娜GNotes`
+
+### [COVID-19 最新情报｜英媒调查发现：新冠疫苗的致死率超逾流感疫苗 49 倍](/content/gnews/15/README.md)
+ ` 關注組`
+
+### [北约称俄罗斯袭击的预警时间正在缩短](/content/gnews/16/README.md)
+ ` Shuizhuyu`
+
+### [UBS瑞银凭借什么拿到中共国第一个外商独资的银行牌照](/content/gnews/17/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥到日本去就近距离作战](/content/gnews/18/README.md)
+ ` 雅典娜GNotes`
+
+### [UBS会让共产党怎么解释3](/content/gnews/19/README.md)
+ ` 雅典娜GNotes`
+
+### [新中国联邦营救战友行动——从塞浦路斯救人看新中国联邦实力](/content/gnews/20/README.md)
+ ` 全球G系列咨服群`
+
+### [徐州八个孩子的妈妈事件有感](/content/gnews/21/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [彭帅的奥运“逼供”再一次展现出中共政权的傲慢和无耻](/content/gnews/22/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [无中心的喜支付将助力民主宪政的正道主义](/content/gnews/23/README.md)
+ ` 纽约香草山MOS03`
+
+### [要求普京辞职的顶级强硬派将军伊瓦绍夫](/content/gnews/24/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [白宫对习近平与普京在俄罗斯紧张局势下的会晤作出回应](/content/gnews/25/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [众议院保守派提出针对数千名中共官员的制裁法案](/content/gnews/36/README.md)
- ` 秘密翻譯組G-Translators`
+### [“赢得这场新冷战”迈克•加拉格尔被任命为众议院情报委员会成员](/content/gnews/26/README.md)
+ ` 喜马拉雅农场新西兰站`
 
-### [秘翻在线：韩国首例青少年中共病毒死亡…死因肺血管阻塞](/content/gnews/37/README.md)
- ` 秘密翻譯組G-Translators`
+### [好莱坞如何为了利益而遵从中共的审查制度](/content/gnews/27/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [三个魁北克反对党要求（政府）证明佩戴口罩和疫苗护照是合理的](/content/gnews/38/README.md)
- ` 温哥华圆成农场🇨🇦`
+### [夜总会里的“真爱”](/content/gnews/28/README.md)
+ ` 银河勇气之星`
+
+### [韩新增确诊人数首次突破5万，60岁以下的患者自行管理](/content/gnews/29/README.md)
+ ` 首尔天池农场`
+
+### [台湾前线｜台湾离岛领空 疑遭中共民用无人机入侵](/content/gnews/30/README.md)
+ ` 關注組`
+
+### [中共利用文化产业充当其“笔杆子”侵蚀文明世界](/content/gnews/31/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [2022年2月9日《文贵大直播》——冬奥会后的中俄关系](/content/gnews/32/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [运动员、美国、关心人权的公司应对中共种族灭绝发声](/content/gnews/33/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [围绕北京冬奥会的各种负面新闻，包括食物和中共病毒措施](/content/gnews/34/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [7•24系列——公开喊话普京下台的俄军事狂人及其背后社团](/content/gnews/35/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [美国华裔美国人督促FBI调查中共间谍单伟建](/content/gnews/36/README.md)
+ ` 日本东京方舟农场`
+
+### [战斗室：国防部爆料人提供的美军数据表明疫苗危害惊人](/content/gnews/37/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [众议院保守派提出针对数千名中共官员的制裁法案](/content/gnews/38/README.md)
+ ` 秘密翻譯組G-Translators`
 
 ### [欧盟公布芯片法案 肯定台湾重要地位](/content/gnews/39/README.md)
  ` NFSC News`

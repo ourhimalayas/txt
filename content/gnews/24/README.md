@@ -2,37 +2,52 @@
 ---
 
 
-## CCP病毒疫苗对重症防护没有作用
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1983504/)
+## 要求普京辞职的顶级强硬派将军伊瓦绍夫
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1983651/)
 
-撰稿：文月
-![](https://assets.gnews.org/wp-content/uploads/2022/02/102.jpg)图片来自网络
-以色列是CCP病毒疫苗接种运动进展最快的国家。在该国，第二批CCP病毒疫苗加强针已经开始进行接种，总体强化接种率已经达到了55%。
+#### 【雅典娜观察】和您一起洞察世界
 
-然而不幸的是，有80%的CCP病毒重症患者接种了疫苗：Tel Aviv Sourasky 医疗中心伊奇洛夫医院冠状病毒科主任 Yaakov Jerris 教授（Prof. Dr. Giris Jacob ）在最近接受以色列电视频道采访时说：“现在，我们大多数重症病例都接种了疫苗。”
+翻译：文扬
+编辑：文泓
 
-Jerris 表示：“他们至少注射了三针——70%-80%的严重病例都接种了疫苗。CCP病毒疫苗不能防止严重疾病……我们只有 20% 到 25% 的患者没有接种疫苗。”
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/21.png)图片来源：Republic World
 
-此外，已经开始有人怀疑接种疫苗的人不能再获得对新变种病毒的完全保护，因为接种疫苗所引发的免疫反应实际产生了错误的抗体。
 
-德国一位医院主任再次证实了来自罗伯特·科赫研究所(RKI)的数据：尽管该国未接种疫苗的人口占人口的 26.73%，但他们仅占 Omicron 感染者的 4.42%。
+当地时间2月7日，据《每日邮报》报道，俄罗斯顶级强硬派将军警告普京不要入侵乌克兰，并指责他采取“挑起战争的犯罪政策”。
 
-如果将德国各个联邦州的疫苗接种率与 Omicron 发病率进行比较，初步统计显示在疫苗接种率较高的联邦州，Omicron发病率也较高。如果这种趋势得到证实，那些接种过两次疫苗的人更容易感染 Omicron。
+这位退休的俄罗斯高级将领警告弗拉基米尔·普京不要与乌克兰开战，指责这位领导人挑起“人为”的冲突，以转移人民对其国内问题的注意力。
 
-而 Omicron 实际上正是德国地区CCP病毒的主要病毒变种，如果上述情况属实，那么所有的疫苗强制规定和对未接种疫苗者的限制都将成为笑柄。
+现年78岁的列昂尼德·伊瓦绍夫上将写了一封题为“战争前夜”的公开信，他在信中抨击了普京“挑起战争的犯罪政策”，尽管俄罗斯并未面临任何所谓“严重威胁”，乌克兰拥有自卫权。
 
-另外，来自丹麦的数据表明，与未接种疫苗的人相比，接种疫苗的人受到 Omicron 感染的保护更少。95% 的已知疫苗接种状态的 Omicron 病例发生在完全接种疫苗的人群中。
+在法国总统马克龙乘飞机前往克里姆林宫与普京进行危机谈判之际，俄罗斯军方罕见爆发了内部异议。此前一天，白宫国家安全顾问杰克·沙利文说，（俄罗斯）入侵“随时都可能发生”，并将付出“巨大的人力成本”。
 
-在2月1日以色列内阁举行的磋商会议上，Jerris和其他医院代表出席了会议。在那里，他谈到了医院对CCP病毒重症患者不透明的分类问题和对CCP病毒重症患者的定义问题。例如，慢性肺病患者的血氧水平一直很低，而他们如果不幸感染了CCP病毒并被检测呈阳性，那么从当前的理论上讲他们会被划分为 “重症患者”。但这其实并不准确，因为病人属于重症只是因为他有严重的基础性疾病。
+伊瓦绍夫已从军队退役，他是前苏联国防部高级官员、地缘政治学院院长，目前作为全俄军官大会主席活跃于政界，此前曾担任普京在国防部的军事合作负责人。
 
-参考文献：
+他在大会网站上的一封公开信中说，他担心如果（普京）发动入侵，俄罗斯将成为“国际社会的耻辱”，并呼吁普京辞职。
 
-[https://reitschuster.de/post/impfstoff-hat-also-keine-bedeutung-fuer-schwere-erkrankungen/](https://reitschuster.de/post/impfstoff-hat-also-keine-bedeutung-fuer-schwere-erkrankungen/)
+这位功勋将军是俄罗斯国防部最受尊敬和鹰派的将军之一，被称为强硬民族主义者，仍然拥护苏维埃制度。
 
-[https://reitschuster.de/post/omikron-negativer-impfschutz-fuer-zweifach-geimpfte/](https://reitschuster.de/post/omikron-negativer-impfschutz-fuer-zweifach-geimpfte/)
+自2001年被普京解雇后，他成为俄罗斯总统的猛烈批评者——并经常要求他辞职，理由是他过于软弱，以牺牲公众利益为代价保护腐败精英，指责他“对俄罗斯犯下罪行”。
 
-*发稿：mgjxs*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
+他的最新干预表明，在俄罗斯内部至少有一些人反对与乌克兰的战争，而且是在有5000名公民签署请愿书要求普京取消战争之后发生的。
+
+伊瓦绍夫说：“至于外部威胁，它们当然存在。但是，根据我们的专家评估，它们目前并不严重，并没有直接威胁到俄罗斯国家的存在和其重要利益。”
+
+曾担任美国驻俄罗斯大使的斯坦福大学俄罗斯问题专家迈克尔·麦克福尔在评论这封信时说：“这是件大事，伊瓦绍夫将军曾一度是俄罗斯国防部中最受尊敬（和鹰派）的领导人之一。”
+
+“俄罗斯将军通常不会参与公共政策辩论，尤其是像伊瓦绍夫这样的人。”
+
+原文链接： [Top hardline Russian general warns Putin NOT to invade Ukraine and accuses him of ‘criminal policy’ | Daily Mail Online](https://www.dailymail.co.uk/news/article-10484417/Top-hardline-Russian-general-warns-Putin-NOT-invade-Ukraine-accuses-criminal-policy.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
