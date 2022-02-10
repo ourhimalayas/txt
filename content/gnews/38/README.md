@@ -2,24 +2,49 @@
 ---
 
 
-## SpaceX的40颗星链卫星被太阳磁暴摧毁
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1982894/)
+## 欧盟公布芯片法案 肯定台湾重要地位
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1982957/)
 
-#### 翻译/撰稿：zzballack
+作者：纽约香草山教育部 – Naughty(文行)
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-11.jpg)图片来源：CNBC
-据《商业内幕》（Business Insider）2月9日报道，太空探索技术公司SpaceX 2月8日在一份声明中表示 ，该公司上周四（2月3日）发射的49颗星链（Starlink）互联网卫星中，有40颗在2月4日受到太阳磁暴 (Geomagnetic storm) 冲击后脱离轨道。SpaceX强调说，这些脱轨的卫星在进入地球大气层后就会燃烧销毁，这也意味着它们不会与其它卫星发生碰撞、不会有任何轨道碎片、也不会有卫星部件撞击地球。
 
-SpaceX在声明中说，这场太阳磁暴的速度及强度导致“大气阻力”水平比以往发射时高50%，这使得卫星更难到达其轨道位置。为了应对危机，星链计划团队指挥卫星进入安全模式，并进行侧翼飞行（edge-on flying）以减少阻力，但至少有40颗卫星仍然无法到达目的地。
 
-太空气象预报中心 (Space Weather Prediction Center)表示，太阳磁暴是地球磁场和来自太阳的带电粒子即太阳风（Solar Wind）交互作用所引起的地球磁层扰动。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-SpaceX的星链计划迄今已将2000多颗卫星送入轨道，其中有近1900颗卫星正在运行中，他们最终计划发射 1万2千颗卫星。星链计划是SpaceX推出的一项透过低轨道卫星群，提供覆盖全球的高速网际网路存取服务。
 
-哈佛大学的天文学家乔纳森·麦克道维尔 (Jonathan McDowell) 告诉《商业内幕》：“这是SpaceX迄今为止最大的损失，他们还没有发生过一次火箭故障。我不认为这对他们来说是一个游戏规则的改变，但他们可能会稍微改变其部署轨道。”
 
-新闻来源：[Elon Musk’s SpaceX says a geomagnetic storm wiped out 40 of the 49 Starlink satellites it launched into orbit last week](https://www.businessinsider.com/spacex-lost-starlink-satellites-orbit-geomagnetic-solar-storm-space-launch-2022-2?r=US&amp;IR=T)
+欧洲联盟今天公布《欧洲芯片法案》，宣布将投入超过430亿欧元的公共和民间投资，让欧盟在2030年市场占有率较现阶段的10%翻倍至20%。欧盟执委会执行副主席兼数字执委维斯塔哲及欧盟负责内部市场业务的执行委员布勒东在对法案进行说明时，公开肯定台湾是《欧洲芯片法案》理念相近的伙伴，欧洲市场也会对台湾开放。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide15-2.jpg)
+布勒东强调，台湾在全球半导体制造领域的地位非常重要，欧洲使用的半导体可能50%是在台湾生产的，台湾拥有许多专业知识，欧洲当然欢迎。
+
+布勒东近期曾表示，《欧洲芯片法案》的重点在确保欧盟自主供应安全，因为当前全球主要芯片供货商位于中共国周边地区，存在严重地缘政治风险，一旦发生事端欧洲大多数工厂运作将瘫痪。
+
+参考信息：
+[歐盟推晶片法案點名台灣地位重要 投入近1.4兆與美日合作](https://www.cna.com.tw/news/afe/202202080372.aspx)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+
+总编：Irene木木
+编辑：谐趣园
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

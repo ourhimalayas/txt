@@ -2,8 +2,8 @@
 ---
 
 
-## 冬奥会与中共友好的国家领导人很多都没来
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1983704/)
+## 干掉UBS，拿下共产党的半个财富帝国
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1983789/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

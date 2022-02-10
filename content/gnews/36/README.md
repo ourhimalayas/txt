@@ -2,50 +2,54 @@
 ---
 
 
-## 欧盟公布芯片法案 肯定台湾重要地位
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1982957/)
+## 三个魁北克反对党要求（政府）证明佩戴口罩和疫苗护照是合理的
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1983029/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+**编译：16626**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/CC70B9E4-9F45-40DB-8E6C-7A49EEE0F797.png)**图片来源：**[**https://www.journaldemontreal.com/2022/02/09/le-pq-veut-debattre-de-lutilite-du-passeport-vaccinal**](https://www.journaldemontreal.com/2022/02/09/le-pq-veut-debattre-de-lutilite-du-passeport-vaccinal)
 
 
+**反对党质疑疫苗护照和佩戴口罩卫生措施**
 
-欧洲联盟今天公布《欧洲芯片法案》，宣布将投入超过430亿欧元的公共和民间投资，让欧盟在2030年市场占有率较现阶段的10%翻倍至20%。欧盟执委会执行副主席兼数字执委维斯塔哲及欧盟负责内部市场业务的执行委员布勒东在对法案进行说明时，公开肯定台湾是《欧洲芯片法案》理念相近的伙伴，欧洲市场也会对台湾开放。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide15-2.jpg)
-布勒东强调，台湾在全球半导体制造领域的地位非常重要，欧洲使用的半导体可能50%是在台湾生产的，台湾拥有许多专业知识，欧洲当然欢迎。
+魁北克的反对党开始质疑疫有关苗护照和口罩的卫生措施了，反对党要求（政府）证明佩戴口罩和疫苗护照是合理的，勒戈Legault政府周二提出的计划引发了反对党的质疑。
 
-布勒东近期曾表示，《欧洲芯片法案》的重点在确保欧盟自主供应安全，因为当前全球主要芯片供货商位于中共国周边地区，存在严重地缘政治风险，一旦发生事端欧洲大多数工厂运作将瘫痪。
+**三个魁北克反对党认为政府没有充分证明其维持这些卫生措施是合理的**
 
-参考信息：
-[歐盟推晶片法案點名台灣地位重要 投入近1.4兆與美日合作](https://www.cna.com.tw/news/afe/202202080372.aspx)
+考虑到昨天，萨斯喀彻温省和阿尔伯塔省等其他司法管辖区宣布撤销疫苗护照，而纽约州将放弃在商店佩戴口罩的义务，  PLQ、QS 和 PQ （三个魁北克反对党）认为魁北克（政府）没有充分证明其维持这些卫生措施（佩戴口罩和疫苗护照）的决定是合理的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+“我们不能将（一个）临时和（非寻常的）特殊（医疗卫生）措施变成永久性措施，（甚至变成）一种社会（常态）结构，对吗”？PQ 的领导人保罗•圣皮埃尔•普拉蒙东Paul St-Pierre Plamondon 质问道。
 
-总编：Irene木木
-编辑：谐趣园
-校对/发稿：为真不破20
+**希望由科学家领导的独立专家委员会来评估卫生措施**
 
-**更多资讯，更多关注**
+自由党领袖多米尼克•安格拉德（Dominique Anglade）也认为应该重新评估疫苗护照措施，“我希望由科学家领导的独立专家委员会来评估它（这些疫苗护照卫生措施），…”，她说。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+团结工会副主席文森特•马里萨尔Vincent Marissal质问，这些（卫生）措施将持续多久？“两个月？两年”？
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+**政府在这方面（卫生措施）没有透明度**
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+“我认为政府在这方面（卫生措施）没有透明度，应该告诉我们政府的（卫生措施）计划是什么，因为我们听到了一些正面和反面的（有关卫生措施的）信息”，他说。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**卫生部长克里斯蒂安•杜贝（Christian Dubé）也被质问**
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+卫生部长克里斯蒂安•杜贝（Christian Dubé）在走廊里也被质问。他回答说，“我们一直关注公共卫生（部），…，如果他们建议在某个时候我们不再需要疫苗护照，我们将很乐意这样做。[…] 让我们听听公共卫生（部）的意见，…”。
 
+另外，Gnews（2022 年 2 月 8 日）发表一篇题为《萨斯喀彻温将于下周一放弃疫苗护照,[https://gnews.org/1977277/](https://gnews.org/1977277/) 》的文章报道，萨斯喀彻温省省长斯科特·莫伊（Scott Moe）宣布开始于周一（2022 年 2 月14日）开始，萨斯喀彻温省（Saskatchewan）居民将不再需要出示疫苗护照。
 
+作为一个三权分立与制衡的，民主的国家，反对党有权质疑执政党政府现行的“公共卫生行政措施”和“公共卫生建议”。本篇报道就是一个例子。魁省的公共卫生行政措施出现什么样的变化？让我们拭目以待。欢迎读者访问并在“加拿大温哥华圆成农场”（[https://gettr.com/user/himalayavang](https://gettr.com/user/himalayavang)）上留言。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+**原文链接**：
 
+[https://www.journaldemontreal.com/2022/02/09/le-pq-veut-debattre-de-lutilite-du-passeport-vaccinal](https://www.journaldemontreal.com/2022/02/09/le-pq-veut-debattre-de-lutilite-du-passeport-vaccinal)
 
+**编辑：LILY**
 
+**发布：歪桑**
+
+20220209
+
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
