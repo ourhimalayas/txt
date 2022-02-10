@@ -2,14 +2,14 @@
 ---
 
 
-## 樱花头条┃众议院保守派提出对数千名中共官员的制裁提案
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1984280/)
+## 樱花头条┃欧洲多国宣布取消防疫限制措施
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1984306/)
 
 撰稿：东京樱花团/樱花传媒
-![](https://lh3.googleusercontent.com/aE_bvz7K9B2EWiQO_OLPtBPeavQmBLVVTEBEZGZ-yK68WzNZ0oR01eHX3pq9S6ojS4CtWAfwd0f2FdWjXWtq4_rR1CxcjD79yOOqWbjSmweZSzaWsZvKzh-ZR9dQWMPNRqHMGUr7)
-美国众议员保守派高层已提出一项立法提案，正式制裁数千名中共官员，其中包括中共独裁者习近平及其家人。
+![](https://lh6.googleusercontent.com/UJ5NcVuVeWu97p6jwcKl9u8TCkhLF_KKmy_5s-WsCiy3CR0VOmQG_9GCVX6DgVtUSDXxN7GpmkQ0rqF_a1DeEl495VXxeIM7936u4xWW4f2TF-sYNpZ3JYbf4bORE3PxEvwbMl0_)
+瑞典周三宣布取消最後的防疫限制措施，結束大部分新冠病毒檢測；美民主黨州放寬防疫限制，紐約解除室內口罩強制令；英格蘭擬提前取消所有防疫措施
 
-信息来源：[https://gettr.com/post/ptmwip8477](https://gettr.com/post/ptmwip8477)
+信息来源：[https://gettr.com/post/pto5xua643](https://gettr.com/post/pto5xua643)
 
 *编辑：东京樱花团/keyboard racing
 发布：东京樱花团/平安卿卿*
