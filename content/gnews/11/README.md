@@ -2,20 +2,41 @@
 ---
 
 
-## 彭帅冬奥会现场被挟持，中国人像猪一样的生活
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1982767/)
+## 关于B站网络内容审核员猝死案的看法
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1982777/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+![](https://assets.gnews.org/wp-content/uploads/2022/02/020801.jpg)网络图片
 
-*发布：陶子*
+**作者:加油干吧总加速师**
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+想和大家谈谈这几天在墙内局域网热点推送的B站男性网络内容审核员猝死这件事情。虽然，他从事的可能是一份令人不齿的工作，他的死亡可能也并不会激起社会上太多的同情心，但毕竟他是我们可怜的同胞，我希望他不要死得不明不白。其实，在这件看似简单的过劳死事件里，有一些很有意思的地方，想跟大家捋一捋。
+
+第一点，几乎所有的文章都回避了这个死者的年纪，其实这是很重要的问题。所有文章里提及的都是该男子是年初四下午在家中自己打电话叫的救护车，送医院后发现大面积脑出血，不治而亡，其实也就是俗称的脑溢血。大家一般都认为脑溢血是中老年的专属病，所以，如果死者过于年轻会让民众胡思乱想。我也是花了一点功夫才找到死者的年纪。据自称是死者表妹的一个微博所说，死者是97年正月十二生人，家中独子，未婚，还未满25岁。怪不得全网没有一张看得清死者面容的正面近照，原来是不想让人们根据照片猜测到他的年纪。
+
+第二点，过劳死存在吗？其实墙内主流媒体是想往这个方向带节奏的，奈何B站不太肯吃这个哑巴亏，迅速发长微博回应指出逝者事发前一周都不存在加班，只干“五休二”的轮班，每天工作八小时，而且提出死者是管理岗位，只是安排春节期间的轮班，隐晦暗示死者根本不需要盯屏幕，也就是说死者并不是背石头的奴隶，而是拿皮鞭的监工。从后续死者家属的反应完全可以证实这一点，其表妹的微博只说B站在死者身故后沟通不够，作为太少，不派人吊唁云云，意思其实可能就是嫌抚慰金少了点，完全没有说表哥死于工作劳累的话。死者初四晚八点死的，初六就下葬了，如果真是累死的，相信我，断然不可能这么容易就被打发了。
+
+第三点，B站的反应很有意思，其实作为资方，他们肯定有底气说不是累死的，但是，不知迫于哪方面的压力，他们最终在2月8日发了一个声明，共两点: 一是采用扩招审核人员来降低审核人员的工作压力；二是加强关注审核员工的身体健康，除公司每年常规体检外，从本月开始组织内容安全中心的全体员工进行体检。没有提及死者是累死的，并说明公司每年都有常规体检。像B站这样的大公司入职前的体检是必不可少的，如果死者血压高到爆表，B站会要他吗？2020年5月入职，干了一年多，就从一个健康青年干成脑溢血，这个故事真不好讲圆满。
+
+我有一种猜想，这个小伙子可能是新冠毒疫苗的受害者，据我所知，在武汉，就算工厂里打螺丝也必须接种新冠疫苗。
+
+真相总有揭开的一天，或早或晚。
+[![](https://express.adobe.com/page/ayHfBvuP6BTTG/images/dff881f8-ec76-4dc7-81cc-fa41d6dba53f.jpg?asset_id=c59d7be0-8fd2-43a6-b2de-dbb03a1c4c1e&amp;img_etag=%22ff3b955bcb1a3df0d0f5fe0561fba8a4%22&amp;size=1024)](https://express.adobe.com/page/ayHfBvuP6BTTG/images/dff881f8-ec76-4dc7-81cc-fa41d6dba53f.jpg?asset_id=c59d7be0-8fd2-43a6-b2de-dbb03a1c4c1e&amp;img_etag=%22ff3b955bcb1a3df0d0f5fe0561fba8a4%22&amp;size=1024)
+*编辑：【英国伦敦喜庄园编辑部】*
+
+*校对：文明明  | 审核：仙女儿-文善  | Page: Daoiii*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

@@ -2,12 +2,14 @@
 ---
 
 
-## 樱花头条｜英国政府将提前一个月取消英格兰的所有Covid限制
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1982780/)
+## 樱花头条｜加拿大萨斯喀彻温省宣布结束该省的 &#8220;疫苗护照&#8221;
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1982781/)
 
 撰稿：东京樱花团/樱花传媒
 
-信息来源：[https://gettr.com/post/ptle3k2d21](https://gettr.com/post/ptle3k2d21)
+加拿大萨斯喀彻温省省长Scott Moe宣布结束该省的 “疫苗护照”。
+
+信息来源：[https://gettr.com/post/ptl3tu9434](https://gettr.com/post/ptl3tu9434)
 
 *编辑：东京樱花团/唯真不破小蜜蜂
 发布：东京樱花团/平安卿卿*
