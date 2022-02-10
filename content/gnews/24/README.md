@@ -2,12 +2,19 @@
 ---
 
 
-## 流浪汉们通过接种多剂疫苗来赚钱
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1983034/)
+## 因为放盘古片段，三人被抓
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1983123/)
 
-01/31/2022 无家可归者收容所的人们正在接种多剂疫苗，以尽可能多地收集100美元的奖励卡，结果发现其中一些没有钱。他们甚至鼓励他们的孩子接种超过2剂来赚钱，这是非常危险的。
+编辑/整理：澳雅大直播工作组视频剪辑小队
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+*发布：**Frank2021*
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

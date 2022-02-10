@@ -15,116 +15,116 @@
 
 ---
 
-### [普京周边盘古龙尾死人非同寻常](/content/gnews/1/README.md)
+### [运动员、美国、关心人权的公司应对中共种族灭绝发声](/content/gnews/1/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [盘古与山西、昆仑山、毛泽东出生地等地标暗合奇门遁甲](/content/gnews/2/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [围绕北京冬奥会的各种负面新闻，包括食物和中共病毒措施](/content/gnews/3/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [加拿大：渥太华因“自由车队”进入紧急状态](/content/gnews/4/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [国安委不知道习近平睡哪儿,七哥却随时掌控习的一举一动](/content/gnews/5/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [俄罗斯将军要求普京辞职](/content/gnews/6/README.md)
  ` 雅典娜GNotes`
 
-### [7•24系列——公开喊话普京下台的俄军事狂人及其背后社团](/content/gnews/2/README.md)
+### [普京周边盘古龙尾死人非同寻常](/content/gnews/7/README.md)
+ ` 雅典娜GNotes`
+
+### [7•24系列——公开喊话普京下台的俄军事狂人及其背后社团](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美前众议院议长金里奇：各国政府以疫情为借口压制人民](/content/gnews/3/README.md)
+### [美前众议院议长金里奇：各国政府以疫情为借口压制人民](/content/gnews/9/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [疫苗灾难五月暴发基于科学和情报以及预判力和天力相助](/content/gnews/4/README.md)
+### [疫苗灾难五月暴发基于科学和情报以及预判力和天力相助](/content/gnews/10/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [国会议员和NBA明星一起拍摄冬奥广告曝光中共种族灭绝](/content/gnews/5/README.md)
+### [国会议员和NBA明星一起拍摄冬奥广告曝光中共种族灭绝](/content/gnews/11/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2月9日大直播后记：UBS银行的背后是什么](/content/gnews/6/README.md)
+### [2月9日大直播后记：UBS银行的背后是什么](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
 
-### [中国红牛严滨是华尔道夫现任老板](/content/gnews/7/README.md)
+### [中国红牛严滨是华尔道夫现任老板](/content/gnews/13/README.md)
  ` 雅典娜GNotes`
 
-### [美国华裔美国人督促FBI调查中共间谍单伟建](/content/gnews/8/README.md)
+### [美国华裔美国人督促FBI调查中共间谍单伟建](/content/gnews/14/README.md)
  ` 日本东京方舟农场`
 
-### [记者在中共国被推搡和科技巨头打压保守派的本质是一样](/content/gnews/9/README.md)
+### [记者在中共国被推搡和科技巨头打压保守派的本质是一样](/content/gnews/15/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [普京住的华尔道夫酒店是吴小晖的酒店](/content/gnews/10/README.md)
+### [普京住的华尔道夫酒店是吴小晖的酒店](/content/gnews/16/README.md)
  ` 雅典娜GNotes`
 
-### [今天出大事，华尔道夫酒店多人染上病毒死亡](/content/gnews/11/README.md)
+### [今天出大事，华尔道夫酒店多人染上病毒死亡](/content/gnews/17/README.md)
  ` 雅典娜GNotes`
 
-### [打三针疫苗的新加坡某医院院长死了新加坡的政策就改了](/content/gnews/12/README.md)
+### [打三针疫苗的新加坡某医院院长死了新加坡的政策就改了](/content/gnews/18/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [战斗室：国防部爆料人提供的美军数据表明疫苗危害惊人](/content/gnews/13/README.md)
+### [战斗室：国防部爆料人提供的美军数据表明疫苗危害惊人](/content/gnews/19/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [回避不了盘古爆料革命的影子](/content/gnews/14/README.md)
+### [回避不了盘古爆料革命的影子](/content/gnews/20/README.md)
  ` 雅典娜GNotes`
 
-### [众议院保守派提出针对数千名中共官员的制裁法案](/content/gnews/15/README.md)
+### [众议院保守派提出针对数千名中共官员的制裁法案](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：韩国首例青少年中共病毒死亡…死因肺血管阻塞](/content/gnews/16/README.md)
+### [秘翻在线：韩国首例青少年中共病毒死亡…死因肺血管阻塞](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共正在监控参加冬奥会的运动员](/content/gnews/17/README.md)
+### [中共正在监控参加冬奥会的运动员](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [因为放盘古片段，三人被抓](/content/gnews/18/README.md)
+### [因为放盘古片段，三人被抓](/content/gnews/24/README.md)
  ` 雅典娜GNotes`
 
-### [2月9日大直播后记：从冬奥会看普金和习太阳的关系](/content/gnews/19/README.md)
+### [2月9日大直播后记：从冬奥会看普金和习太阳的关系](/content/gnews/25/README.md)
  ` 雅典娜GNotes`
 
-### [美国国家情报总监谈中共对好莱坞电影产业的渗透](/content/gnews/20/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [好消息一个个来](/content/gnews/21/README.md)
- ` 雅典娜GNotes`
-
-### [福克斯质疑谷爱凌代表中共国参加冬奥会](/content/gnews/22/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [只要静下心来把逻辑摆一摆读懂G系列的魅力就能算清账](/content/gnews/23/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [流浪汉们通过接种多剂疫苗来赚钱](/content/gnews/24/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [三个魁北克反对党要求（政府）证明佩戴口罩和疫苗护照是合理的](/content/gnews/25/README.md)
+### [三个魁北克反对党要求（政府）证明佩戴口罩和疫苗护照是合理的](/content/gnews/26/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [悲剧：6 岁儿童在接种 COVID-19 疫苗两天后患上心肌炎](/content/gnews/26/README.md)
+### [悲剧：6 岁儿童在接种 COVID-19 疫苗两天后患上心肌炎](/content/gnews/27/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [拜登总统预计将于5月下旬访问日本](/content/gnews/27/README.md)
+### [拜登总统预计将于5月下旬访问日本](/content/gnews/28/README.md)
  ` NFSC News`
 
-### [欧盟公布芯片法案 肯定台湾重要地位](/content/gnews/28/README.md)
+### [欧盟公布芯片法案 肯定台湾重要地位](/content/gnews/29/README.md)
  ` NFSC News`
 
-### [美司法部刑事指控中共企业盗取美国技术](/content/gnews/29/README.md)
+### [美司法部刑事指控中共企业盗取美国技术](/content/gnews/30/README.md)
  ` NFSC News`
 
-### [SpaceX的40颗星链卫星被太阳磁暴摧毁](/content/gnews/30/README.md)
+### [SpaceX的40颗星链卫星被太阳磁暴摧毁](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共未兑现贸易协议美国将考虑下一步行动](/content/gnews/31/README.md)
+### [中共未兑现贸易协议美国将考虑下一步行动](/content/gnews/32/README.md)
  ` 日本东京方舟农场`
 
-### [【秘翻在线】中共网络水军通过操纵标签消弭推特上的批评言论](/content/gnews/32/README.md)
+### [【秘翻在线】中共网络水军通过操纵标签消弭推特上的批评言论](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [追回属于中国人的钱，让中国人的生老病死和教育免费](/content/gnews/33/README.md)
+### [追回属于中国人的钱，让中国人的生老病死和教育免费](/content/gnews/34/README.md)
  ` 首尔天池农场`
 
-### [魔鬼交易，出卖灵魂——美国大公司向中共转让技术危害世界](/content/gnews/34/README.md)
+### [魔鬼交易，出卖灵魂——美国大公司向中共转让技术危害世界](/content/gnews/35/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [武汉实验室曾寻找用于 &#8220;感染人类 &#8220;的流感菌株](/content/gnews/35/README.md)
+### [武汉实验室曾寻找用于 &#8220;感染人类 &#8220;的流感菌株](/content/gnews/36/README.md)
  ` 墨尔本雅典娜农场`
 
-### [加拿大阿尔伯塔省解除新冠病毒防控限制，取消疫苗护照](/content/gnews/36/README.md)
+### [加拿大阿尔伯塔省解除新冠病毒防控限制，取消疫苗护照](/content/gnews/37/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [每日快报：瑞银在躲避中国亿万富翁的5亿美元诉讼中落败](/content/gnews/37/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 
 ### [中共被指控侵犯奥运冰球运动员人权](/content/gnews/38/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
