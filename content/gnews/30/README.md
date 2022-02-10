@@ -2,24 +2,16 @@
 ---
 
 
-## 樱花灭共段子│灭共小诗
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1984611/)
+## 樱花头条┃美提最严厉制裁案 锁定中共人大官员及家属
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1984715/)
 
-撰稿：东京樱花团/保和
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1017.png)
-图片:夏目&山竹
+撰稿：东京樱花团/樱花传媒
 
-瑞银立案震动天 七哥灭共去前线
+美国众议院多名资深共和党议员周三（2月9日）提案，锁定数千名中共全国人民代表大会（简称全国人大）成员及其直系亲属。这是迄今美国国会提出的针对中共的最严厉、最强硬的制裁。
 
-英国法庭堂上站 邪恶势力难靠前
+信息来源：[https://gettr.com/post/ptoalld87e](https://gettr.com/post/ptoalld87e)
 
-期盼灭共那一天 墙内国民有衣穿
-
-七哥天选灭共人 战友祈祷在旁边
-
-盖特链接：[https://gettr.com/post/ptljgb9862](https://gettr.com/post/ptljgb9862)
-
-编辑：东京樱花团/喜马拉雅的微尘
+编辑：东京樱花团/asket
 发布：东京樱花团/yuxingcao01
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 

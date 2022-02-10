@@ -2,58 +2,33 @@
 ---
 
 
-## 美国及世界疫情简报 （02-10-2022）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1984827/)
+## MV版Hcoin To the Moon上线63天第30次位列美国iTunes摇滚MV榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1984856/)
 
-整理：波士顿五月花 老枪6
-![](https://assets.gnews.org/wp-content/uploads/2022/01/01-1.jpg)
-**1．美国疫情**
-
-昨日美国新增新冠患者198,738人.总确诊人数为77,051,506人。新增死亡人数3,277人。总死亡 908,820人。
-
-康州新增新冠感染1,343人，新增死亡0人。
-
-纽约州新增新冠确诊人数4,243人。新增死亡人数184人。
-
-新泽西州昨天新增病例为1,904人。新增死亡为107人。
-
-马萨诸塞州新增新冠患者为2,128人, 死亡130人。
-
-马里兰州昨日新增新冠患者738人。新增死亡人数为42人。
-
-加州昨日新增48,021人，死亡191人。得克萨斯州新增15,187人，死亡为293人。佛罗里达州新增19,306人，死亡2人。亚利桑那州新增3,790人，死亡为183人。乔治亚州新增4,574人，死亡120人。北卡罗来纳新增4,648人，死亡76人。田纳西州新增14,326人，死亡41人。华盛顿DC新增87人， 死亡0人。
-
-**2.世界疫情**
-
-1） 亚洲疫情：
-
-昨日印度新增新冠患者71,365人；日本新增101,084人；印尼新增37,492人；菲律宾新增3,246人；孟加拉新增8,354人。土耳其新增111,096人。台湾昨日新增47, 韩国昨日新增49,558人, 中国新增261人。
-
-2）非洲疫情：
-
-南非昨日新增新冠患者824人。埃塞俄比亚新增163人。摩洛哥新增1,618人。
-
-3）拉美疫情：
-
-巴西昨日新增新冠患者177,483人；哥伦比亚新增9,730人。阿根廷新增32,790人。智利新增26,173人。墨西哥新增6,343人。
-
-4）欧洲疫情
-
-俄罗斯昨日新增新冠患者164,097人。德国新增380,631人。法国新增238,690人。英国新增66,871人。意大利新增102,429人。西班牙新增43,831人。
-
-5）全球新冠总感染人数为402,958,112人。总死亡人数为5,775,551人。
-
-**3． 新闻简报**
-
-1.拜登总统的首席医疗顾问安东尼·福奇博士在周二发表的一次采访中说，美国几乎已经过了冠状病毒的“全面”大流行阶段，并表示他希望所有与病毒相关的限制措施都能在 几个月后取消。
-2。周二，国际奥委会推迟了花样滑冰团体赛的颁奖仪式。根据一份报告，一名俄罗斯滑冰运动员的药物检测呈阳性。
-3。COVID 的 Omicron 变体的一个子变体正在欧洲和亚洲迅速传播，并可能成为该病毒的主要变体。 现在已经在 67 个国家发现了所谓的“隐形”Omicron COVID 子变体 BA.2。
+2/10/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线63天第30次位列美国iTunes摇滚音乐视频榜榜首
 
 * * *
 
-*封面：霹雳鼠年*
+[【PDF 下载】Thursday-10-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/02/Thursday-10-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/02/Thursday-10-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-*编辑 /发布：吐纳*
+* * *
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Thursday-10-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Thursday-10-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Thursday-10-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Thursday-10-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_19.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Thursday-10-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Thursday-10-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_39.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Thursday-10-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Thursday-10-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Thursday-10-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Thursday-10-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_83.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Thursday-10-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_101.jpg)
+
+
+[【PDF 下载】Thursday-10-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/02/Thursday-10-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/02/Thursday-10-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
