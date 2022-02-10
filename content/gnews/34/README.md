@@ -2,23 +2,27 @@
 ---
 
 
-## 全球供应链危机将灾难性延续
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1982535/)
+## 中共被指控侵犯奥运冰球运动员人权
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1982573/)
 
-采编/编译撰稿：自由法兰西                 校对编辑：硫酸羟氯喹64
+采编：文莱          编译撰稿：苦尽甜来 (文來）
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Supply-chain-hero-1500x798-_2-800x425.jpeg-edited.jpg)图片来源：thenationalpulse
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/olympic-quarantine-2.jpg)图片来源：Vancouver Sun
 
 
-据美国媒体《国家脉动》2月7日报道，由于动荡的亚洲局势、堵塞的海运港口，受阻的卡车运输以及短缺的劳工等因素，打击全球经济的供应链危机将会灾难性持续到明年或更长的时间。
+据【温哥华太阳报】2月6日报道，在北京冬奥会期间，各参赛国对当局强制性疫情隔离规定的投诉堆积如山，其中，芬兰男子冰球队教练当天指责中共国侵犯了其球员的人权。
 
-报道指出，全球失控的疫情以及一触即发的台海战争，导致国际间各大货运港处于滞胀状态，货物堆积如山的同时，航运期限也因此成倍增加。
+芬兰队主教练表示，该队因疑似被病毒感染而被中共当局隔离的球员，不仅没有得到好的食物待遇，而且还承受着巨大的精神压力。据队医表示，尽管被确诊的球员如今已不再具有传染性，但在被隔离18天后，目前仍处在被监禁的状态中。
 
-此外，美加两国货运卡车司机发起的大规模反政府防疫政策的抗议活动，进一步加剧了运输成本的暴涨，并导致北美卡车货运行业因此陷入困境。 同时，由于劳工的严重短缺冲击着供应链各个环节，因此最终将造成整个供应链的纷纷断裂。
+据悉，自 1 月 23 日以来，包括近百名运动员在内的约400名奥运会参与者在抵达北京后被确诊感染”新冠病毒“。所有感染者只有在症状消失后才能离开特殊的隔离酒店，并且必须每间隔24小时进行两次相关检测。
+
+大部分被隔离的参与者不仅抱怨隔离条件简陋不堪，而且还指责组办方的防疫程序混乱无章。相信本次冬奥会将成为这些为名利而来支持中共政权的参赛者们，终生挥之不去的噩梦。
+
+校对编辑：硫酸羟氯喹64
 
 发稿：文明(添草灭共)
 
-[新闻链接](https://thenationalpulse.com/2022/02/07/nelles-those-transitory-supply-chain-issues-uh-theyre-here-for-a-while-and-heres-why/)
+原文链接：[China accused of ignoring Olympic hockey player’s human rights as isolation complaints grow | Vancouver Sun](https://vancouversun.com/sports/olympics/olympics-china-accused-of-ignoring-hockey-players-human-rights-as-isolation-complaints-grow-2/wcm/1d91588f-1eb3-47eb-8cd0-65834a1a331e)
 
  
 

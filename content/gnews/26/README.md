@@ -2,49 +2,19 @@
 ---
 
 
-## 英国接受中共病毒疫苗的儿童 死亡率增加数倍
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1982691/)
+## 北京出大事了，龙头的威力
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1982708/)
 
-作者：日本东京方舟农场—Miyali7768(文玉）
+编辑/整理：澳雅大直播工作组视频剪辑小队
 
+*发布：**Frank2021*
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-2月7日媒体报道，英国国家统计局在2021年12月公布了分年龄组的个体死亡率的标准化数据，该分组是按照中共病毒疫苗的“接种”状态分组，涵盖 2021 年 1 月 1 日至 10 月 31 日。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide12-3.jpg)
-数据显示，接种一针和接种两针疫苗的儿童与未接种的儿童相比，死亡人数显着增加。15～19岁的儿童，接种一针，死亡风险会增加近一倍，如果他们接种二针，则死亡风险会增加三倍以上。10至14岁的儿童在接种第一针后死亡风险几乎未接种者的10倍，而接种第二针后的死亡风险是没有接种疫苗儿童的 51.8 倍。
-
-平均来说，这些数据意味着在2021年1～10月，英国10～19岁、至少注射过一次新冠疫苗的儿童死亡的概率要高出3.7倍。
-
-参考信息：
-[British Children Up to 52 Times More Likely to Die Following a COVID Shot: Government Report](https://www.globalresearch.ca/british-children-52-times-more-likely-die-following-covid-shot-government-report/5769589)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-
-总编：Irene木木
-编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

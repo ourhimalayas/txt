@@ -2,37 +2,48 @@
 ---
 
 
-## 武汉实验室曾寻找用于 &#8220;感染人类 &#8220;的流感菌株
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1982674/)
+## 台湾多个疫苗副作用案例 获得预防接种受害救济
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1982690/)
 
-**翻译/编辑：MSGZ**
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/a1644470771394.jpg)图片来源：BBC
+作者：台湾宝岛农场 – 阿尔道夫
 
 
-据《国家脉搏》披露，类似于操纵COVID-19的蝙蝠冠状病毒的研究，武汉病毒学研究所也进行了用于人类传播的流感病毒研究。
 
-许多公共卫生和情报官员认为武汉病毒学研究所的实验室是COVID-19的来源，在该实验室的中文网站上曾发布了一篇文章，详细介绍了研究人员如何寻找各种具有 “人畜共患潜力的禽流感病毒（AIV）与人类感染”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-这篇题为 《WIV的科学家在流感病毒重配研究中取得了一项进展》的帖子详细介绍了武汉病毒研究所的研究人员如何在野外猎取这些病毒。帖子中写道：“在这项研究中，通过与中国农业科学院兰州兽医研究所的朱启云教授和中国农业科学院哈尔滨兽医研究所的陈华兰教授合作，WIV的崔杰教授在2014-2015年对中国湖南省一个社区的鸭子、鹅和环境中的AIVs进行了监测”。
 
-武汉病毒研究所的研究人员还利用类似于该实验室蝙蝠冠状病毒研究的方法收集的样本“分离出多种共同传播的AIV，包括H3N2、H3N8和H5N6，最重要的是，分离出一种新型的重配型：H3N6。”
 
-通过“系统发育分析”表明，H3N6极有可能来自H5N6，而H5N6最近被证明具有与人类感染的人畜共患潜力。用哺乳动物细胞系和小鼠模型进行的研究表明，四种选定的鸭或鹅来源的AIVs可以感染MDCK和A549细胞，但在小鼠中的致病性很低。H5N6在内的多种亚型在局部地区的潜在共同循环可能导致通过基因重配产生新型亚型，如H3N6。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/6_FZTE@1U880ZL@EMQMR.png)
-联想到曾经在中共国多次爆发的禽流感疫情，是不是中共实验室的生化传播实验？**值得注意的是，武汉病毒研究所的流感病毒研究是在该实验室获得致命性蝙蝠冠状病毒之后进行的，这是中国共产党的实验室努力寻找能够**** “****直接感染人类**** “****的菌株的一部分。**
+2月7日，台湾疾病管制署，公布了卫生福利部预防接种受害救济审议结果，该审议小组于1月13日审查了46例疑似接种中共病毒疫苗后产生不良反应或死亡个案的结果。根据最新会议纪录，其中有3例经判定与疫苗有关。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide11-4.jpg)
+第一例，经医师诊断为心肌炎，判断为与接种疫苗相关。给予救济赔偿7万元。第二例，接种疫苗后出现胸痛、全身酸痛、呼吸困难后失去意识，之后死亡。给予救济赔偿30万元。第三例，于接种疫苗后出现皮肤痒症状，给予救济赔偿5000元。
 
-这些研究的大部分发现都被中共掩盖了，这些研究是由美国国家卫生研究院机构领导人安东尼·福奇（Anthony Fauci）指示给该实验室的纳税人资金资助的。
+上述案例中，第一个案例的审查结果判断为与接种疫苗直接相关，其余两例患者自身有一定的基础性疾病，虽无法确定与接种疫苗关联性的强弱，但仍然给予了赔偿。这表明疫苗接种的安全性在台湾已经受到重视。
 
-参考新闻：[https://thenationalpulse.com/2022/02/09/wuhan-lab-manipulated-influenza-with-human-transmission/](https://thenationalpulse.com/2022/02/09/wuhan-lab-manipulated-influenza-with-human-transmission/)
+参考信息：
+[獨／首例高端接種受害救濟？ 嘉市個案皮膚癢獲5000元](https://udn.com/news/story/122190/6081787?from=udn-catelistnews_ch2)
 
-*发布：tianzhihuan*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+总编/编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
