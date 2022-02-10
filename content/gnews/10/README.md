@@ -2,27 +2,19 @@
 ---
 
 
-## 漫谈“长津湖战役”（Battle of Chosin Reservoir) 01
-` Longbeach` [轉載自GNews](https://gnews.org/zh-hans/1983399/)
+## 美国什么时候第一次和中国建交（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1983442/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_6460-4-scaled.jpg)
-作者: 波士顿五月花 蚂蚁雄兵
+编辑/整理：澳雅大直播工作组视频剪辑小队
 
-最近中共国内最火的话题无疑是电影“长津湖”（The Battle at Lake Changjin）。自2021年9月30日公开放映以来，全国各地票房一路飙升，创造了一系列的记录。
+*发布：**Frank2021*
 
-“长津湖战役”的真实历史被中共掩埋了70多年，最近几年随着美军方面的有关出版物的各种方式的流入，才逐渐引起人们关注。
-
-冰雕连、杨根思以及全歼“北极熊团”（击毙团长缴获团旗逼使美军取消番号）取得长津湖战役的胜利，把美军赶出了北韩等等真假故事成了中共宣传的“长津湖战役”的主要内容。
-
-那么真正的史实是什么？
-
-从今天起，我将用系列连载的方式，跟大家来一起来分享、探讨这场人类战争史最残酷、最悲壮的战役。用史实、用真相、用逻辑揭穿中共的谎言，揭露中共以假治国、以假治军、没有人性、反民族的本质！
-
-编辑: 一口大锅闹革命
-
-封面: 一口大锅闹革命
-
-发布: 一口大锅闹革命
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
