@@ -2,24 +2,39 @@
 ---
 
 
-## 中日财经爆┃MSCI中共国A股指数纳入中国移动 剔除阳光城
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1982410/)
+## 加拿大废除使用疫苗护照势不可挡
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1982445/)
 
-整理编辑：东京樱花团｜peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-986.png)
-[*图片来源*](https://x0.ifengimg.com/ucms/2021_46/938C07AD717A5B6A548FB4DE08194EA3FBD964C3_size228_w1587_h907.jpg)
+采编/编译：Spirit            编辑撰稿：硫酸羟氯喹64
 
-国际指数编制公司MSCI（明晟）周三（2月10日）公布了2022年2月的季度指数评审结果，其中MSCI中共国A股在岸指数将新增四个成分股，即中国移动A股、中伟新材料、东方生物和伯特利。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot_20220209-230626_Samsung-Internet-edited.jpg)图片来源：Twitter
 
-MSCI在其官网称，MSCI中共国A股在岸指数将剔除沙钢股份、阳光城和ST国医。MSCI中共国全股票指数中，将各新增和剔除五个公司，新增的股票包括格力电器、中伟新材料和陆金所。上述变动将于2月28日收盘后生效。
 
-明晟公司（MSCI），原名为摩根士丹利资本国际，是一家美国股票基金、收入型基金、对冲基金股价指数和股东权益投资组合分析工具提供商。2007年中，母公司摩根士丹利决定从MSCI撤资。
+加拿大保守党议员波里耶夫于2月8日在其社交媒体上声称：由于各省政府都在积极计划停止使用百害而无一利的疫苗护照以及逐步取消各项疫情限制措施，因此，自由的力量正在席卷该国！
 
-消息来源：[**MSCI中国A股在岸指数将纳入中国移动等四只股票 阳光城等遭剔除**](https://cn.reuters.com/article/msci-china-shares-inclusion-0210-thur-idCNKBS2KF05Y?il=0)
+此外，该项声明还支持魁省自由党议员莱特邦德，于日前公开谴责特鲁多当局在处理疫情中的独裁专政，以及面对民意时的倒行逆施。并呼吁各界应摒弃党派之争，共同结束疫苗强制接种、疫苗护照和所有违宪封锁措施。
 
-*校对：东京樱花团/東洋武士*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+最后，这位于2月5日宣布将竞选加拿大总理的保守党议员激动表示：鉴于阿尔伯塔省将于当晚午夜取消疫苗护照，可见反抗特鲁多的民意正在取得胜利！
+
+校对编辑：硫酸羟氯喹64
+
+发稿：文明(添草灭共)
+
+新闻来源: https://twitter.com/PierrePoilievre/status/1491179433033879553
+
+
+
+> BREAKING: Vaccine passports gone at midnight in Alberta.
+> 
+> La liberté gagne! 
+> 
+> Continue!
+> 
+> Sign my petition to end mandates nationwide: [https://t.co/EgtSLvWWlC](https://t.co/EgtSLvWWlC) [pic.twitter.com/zallZQcynU](https://t.co/zallZQcynU)
+> — pierrepoilievre (@PierrePoilievre) [February 9, 2022](https://twitter.com/PierrePoilievre/status/1491241931103481857?ref_src=twsrc%5Etfw)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

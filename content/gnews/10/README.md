@@ -2,19 +2,24 @@
 ---
 
 
-## 中共依法决定逮捕蔡鄂生！
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1982387/)
+## 中日财经爆┃IMF：近100个国家正在研究CBDC央行数字货币
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1982411/)
 
-撰稿：追着曙光跑
+整理编辑：东京樱花团｜peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/02/pasted-image-0-2.png)[*图片来源*](https://s.yimg.com/uu/api/res/1.2/QS8HnmKoeEgWTyovEJMNhA--~B/aD05MTg7dz0xMjk2O2FwcGlkPXl0YWNoeW9u/https://s.yimg.com/uu/api/res/1.2/SciY4xTuD5San9GXVVWibg--~B/aD05MTg7dz0xMjk2O2FwcGlkPXl0YWNoeW9u/https://media.zenfs.com/ko/bloomberg_chinese_traditional_757/e16336364d8fc7b8e4e3f9e46cbd5998)
+国际货币基金组织（IMF）总裁2月9日表示，IMF预测目前有近100个国家正在研究央行数字货币，经验表明不存在统一标准模式。
 
-据中共新华社2月8日的报道，原中共国银行业监督管理委员会党委委员、副主席蔡鄂生涉嫌受贿、利用影响力受贿、滥用职权一案，由国家监察委员会调查终结，移送检察机关审查起诉。日前，最高人民检察院依法以涉嫌受贿罪、利用影响力受贿罪、滥用职权罪对蔡鄂生作出逮捕决定。该案正在进一步办理中。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-10-at-12.42.12.jpeg)图片来源：网络
-1951年出生的蔡鄂生，在央行系统工作20余年，官至中国央行行长助理兼上海分行行长；2001-2005年，转任国有重点金融机构监事会主席，2005年12月出任中国银行业监督管理委员会副主席。2013年退休。
+IMF在2月9日发布了一份研究报告，对包括中共国、瑞典和巴哈马在内的六个已经启动运行数字货币或处于后期测试阶段的国家进行了调研。
 
-去年2021年8月1号郭先生在大直播爆料王岐山的周亮和蔡鄂生被捕了。这两个人都是骂习骂得最狠的。蔡鄂生是王岐山的生死兄弟，冠君的干爹。现在蔡鄂生依法被逮捕，说明中共的内斗越来越激烈。跟着共产党，走进火葬场！
+IMF总裁格奥尔基耶娃在关于这份报告的讲话中表示，全球首批使用央行数字货币(CBDC)的经验表明，不存在放之四海而皆准的模式。金融稳定性和隐私考虑对CBDC的设计至关重要，同时也需要在设计和政的发展之间取得平衡。
 
-信息来源：[依法决定逮捕！](https://mp.weixin.qq.com/s/KTx79Jymx6AYqaeV5AUhAg)
+格奥尔基耶娃补充说:“CBDC目前还处于早期阶段，我们不太清楚它们能走多远，能走多快。”
 
+消息来源：[**没有一种能够适用于所有国家的央行数字货币模式——IMF总裁**](https://cn.reuters.com/article/imf-director-cen-digital-currencies-0210-idCNKBS2KF05U?il=0)
+
+*校对：东京樱花团/東洋武士*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

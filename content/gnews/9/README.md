@@ -2,25 +2,20 @@
 ---
 
 
-## 瑞银无法阻止郭先生在伦敦起诉
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1982405/)
+## 美新任驻日本大使发推表示支持日本
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1982425/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-153.jpg)
-图片来源： gnews.org
+撰稿：东京樱花团｜待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-987.png)[*图片来源*](https://gdb.voanews.com/110a09f6-21fb-42ca-bc3d-cd6614fce203_w1200_r1.jpg)
+据日本产经新闻2月10日消息：外交部长林芳正在2月10日的新闻发布会上说：美国新任驻日大使拉姆-伊曼纽尔在推特上发帖，称美国自20世纪50年代以来一直承认日本对北方四岛的主权，以此表达对日本立场的支持。对此，我们表示欢迎。
 
-路透社2月9日报道，瑞士银行UBS(瑞银)在阻止中国商人郭文贵先生对其起诉的努力宣告失败，后者于周三将案子成功递交伦敦高级法院并立案。
+２月7日是“北方领土日”。伊曼纽尔在推特上写道：我想说清楚一件事，美国在北方领土问题上是支持日本的。 同时还分享了一段视频，并在视频中说：美国自20世纪50年代以来一直承认日本对北方四岛的主权。
 
-伦敦法官总结说伦敦瑞银在文贵先生和其他申诉者在法律诉讼中明显参与了有害性的活动。法官说：“根据伦敦瑞银的解除该案的申请，我宣誓这个法庭对索赔人的申诉有管辖。”
+信息来源：[**外相、北方領土「日本に主権」の米大使ツイート歓迎（産経新聞）**](https://news.yahoo.co.jp/articles/4150e85d3a1b7df142de07c8b482eda051df2124)
 
-该起诉围绕在文贵先生和其他申诉者说瑞银无视他们在有关中国金融机构海通的股票买卖中的权益。
-
-##### 新闻来源： [UBS loses bid to stop Guo’s London lawsuit](https://www.reuters.com/article/ubs-guo/ubs-loses-bid-to-stop-guos-london-lawsuit-idUSL8N2UK4JN)
-
-#  
-
-
-
+*校对：东京樱花团/東洋武士*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

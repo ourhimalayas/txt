@@ -2,38 +2,35 @@
 ---
 
 
-## 加拿大废除使用疫苗护照势不可挡
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1982445/)
+## 2022.2.9大直播后记：没打疫苗是你一生中最正确的决定
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1982495/)
 
-采编/编译：Spirit            编辑撰稿：硫酸羟氯喹64
+**整理：清水冷香、 Lucy Liu
+编辑：Candy**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot_20220209-230626_Samsung-Internet-edited.jpg)图片来源：Twitter
-
-
-加拿大保守党议员波里耶夫于2月8日在其社交媒体上声称：由于各省政府都在积极计划停止使用百害而无一利的疫苗护照以及逐步取消各项疫情限制措施，因此，自由的力量正在席卷该国！
-
-此外，该项声明还支持魁省自由党议员莱特邦德，于日前公开谴责特鲁多当局在处理疫情中的独裁专政，以及面对民意时的倒行逆施。并呼吁各界应摒弃党派之争，共同结束疫苗强制接种、疫苗护照和所有违宪封锁措施。
-
-最后，这位于2月5日宣布将竞选加拿大总理的保守党议员激动表示：鉴于阿尔伯塔省将于当晚午夜取消疫苗护照，可见反抗特鲁多的民意正在取得胜利！
-
-校对编辑：硫酸羟氯喹64
-
-发稿：文明(添草灭共)
-
-新闻来源: https://twitter.com/PierrePoilievre/status/1491179433033879553
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-419.png)
 
 
+七十年来，台湾国民党，有谁还在乎共产党编了国民党那些谣言呢？有谁想过国民党走之后，它杀地主，灭地主，要给每人分土地，都可以睡地主的老婆和闺女？你啥时候想过今天台湾人民是来自大陆，过上世界人民所尊重的生活，民主自由的生活？你什么时候想过，它那敢把香港这个下蛋的老金鸡给灭成这样了？
 
-> BREAKING: Vaccine passports gone at midnight in Alberta.
-> 
-> La liberté gagne! 
-> 
-> Continue!
-> 
-> Sign my petition to end mandates nationwide: [https://t.co/EgtSLvWWlC](https://t.co/EgtSLvWWlC) [pic.twitter.com/zallZQcynU](https://t.co/zallZQcynU)
-> — pierrepoilievre (@PierrePoilievre) [February 9, 2022](https://twitter.com/PierrePoilievre/status/1491241931103481857?ref_src=twsrc%5Etfw)
+香港的菜价现在是几倍的涨，香港人这被隔离、那被隔离，香港人就活在一个豪华的监狱里。进大陆整死你，查你这、查你那，威胁你，出香港是大海，到了国外去，怎么那么容易生存呢？这个豪华的监狱和冰冷的监狱，它都叫监狱。
 
+现在是台湾和香港和大陆之间，疫苗的问题。台湾打疫苗一定会付出比共产党还要大的代价。香港的疫苗，你会看到香港的灾难一定会因为疫苗产生巨大的灾难。香港的供应链，它不产什么，更加脆弱。它不用大卡车罢工，没人开船，没人运输了，香港一个月就惨了，就成臭港了。台湾一样的。
 
+我今天要重点说三句话，战友们： 1、疫苗灾难远远没有来。 2、疫苗灾难绝对是比我说的，比你们想象的要大得多得多。你们一定要做好准备。 3、你没打疫苗是你一生中做的唯一的、最大的、最正确的决定。你永远要懂得感恩。 这是你的一切，你死了烧成灰了，就跟你没关系了。
+
+我的朋友说他姐姐死之前就是使劲喊：“我不想死，我不想死，让我干啥都可以，我不想死。我看到了美好的世界，让我活下来。”但是她就死了。我不希望任何战友，到时候你真的发现你要死的时候，大声喊着，没有人能拉住你的，拉不住你的。没打疫苗，家人没打疫苗是最重要的。打了疫苗赶快吃青蒿素、伊维菌素。
+
+兄弟姐妹们，国际上的政治疫苗运动、经济疫苗运动、疫苗灾难、经济灾难，包括你生存的环境，那就是超出你想象的N倍，世界因此大改变。就这一条，我告诉大家，咱不灭共产党，共产党自己把自己灭了。它百分之一万会被灭得干干净净，走着看。
+
+***发布：Candy***
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

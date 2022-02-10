@@ -2,24 +2,25 @@
 ---
 
 
-## 中日财经爆┃IMF：近100个国家正在研究CBDC央行数字货币
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1982411/)
+## Parler为川普夫人加密货币提供服务
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1982451/)
 
-整理编辑：东京樱花团｜peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/pasted-image-0-2.png)[*图片来源*](https://s.yimg.com/uu/api/res/1.2/QS8HnmKoeEgWTyovEJMNhA--~B/aD05MTg7dz0xMjk2O2FwcGlkPXl0YWNoeW9u/https://s.yimg.com/uu/api/res/1.2/SciY4xTuD5San9GXVVWibg--~B/aD05MTg7dz0xMjk2O2FwcGlkPXl0YWNoeW9u/https://media.zenfs.com/ko/bloomberg_chinese_traditional_757/e16336364d8fc7b8e4e3f9e46cbd5998)
-国际货币基金组织（IMF）总裁2月9日表示，IMF预测目前有近100个国家正在研究央行数字货币，经验表明不存在统一标准模式。
+#### 撰稿：彩虹       
 
-IMF在2月9日发布了一份研究报告，对包括中共国、瑞典和巴哈马在内的六个已经启动运行数字货币或处于后期测试阶段的国家进行了调研。
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/02/16444661681.png)图片来源：每日邮报
+据《国会山报》2月9日报道，周三，社交媒体平台Parler宣布正与前第一夫人梅拉尼娅·川普（Melania Trump）进行一项社交媒体“特别安排”，她将在（该）社交媒体网络上分享“独家通讯”。并指该公司在为梅拉尼娅的区块链技术和代币平台（MelaniaTrump.com）而提供服务。
 
-IMF总裁格奥尔基耶娃在关于这份报告的讲话中表示，全球首批使用央行数字货币(CBDC)的经验表明，不存在放之四海而皆准的模式。金融稳定性和隐私考虑对CBDC的设计至关重要，同时也需要在设计和政的发展之间取得平衡。
+在一份声明中，梅拉尼娅称赞了该社交平台，称其“使用户能够促进富有成效的讨论”。
 
-格奥尔基耶娃补充说:“CBDC目前还处于早期阶段，我们不太清楚它们能走多远，能走多快。”
+她说：“我对那些给全世界人民提供直接交流的自由言论平台感到兴奋和鼓舞。Parler在利用Web3.0技术方面一直走在前列，并使其用户能够促进富有成效的讨论。”
 
-消息来源：[**没有一种能够适用于所有国家的央行数字货币模式——IMF总裁**](https://cn.reuters.com/article/imf-director-cen-digital-currencies-0210-idCNKBS2KF05U?il=0)
+但是，报道指，这位前第一夫人仍然拥有活跃的脸书（Facebook）、推特（Twitter）和Instagram账户，目前还不清楚她与Parler的合作关系是否会影响她在这三个平台上的活动。
 
-*校对：东京樱花团/東洋武士*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**新闻来源**
+
+[Parler announces social media ‘special arrangement’ with Melania Trump](https://thehill.com/policy/technology/593453-parler-announces-social-media-special-arrangement-with-melania-trump)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
