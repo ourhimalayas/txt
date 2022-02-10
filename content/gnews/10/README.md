@@ -2,56 +2,51 @@
 ---
 
 
-## 爆料革命依靠信任、共同信仰、行动能力和坚持唯真不破
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1983524/)
+## 要求普京辞职的顶级强硬派将军伊瓦绍夫
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1983651/)
 
-G-TV视频链接：[https://gtv.org/video/id=6204bec1585ecc15d73fb51f](https://gtv.org/video/id=6204bec1585ecc15d73fb51f)
+#### 【雅典娜观察】和您一起洞察世界
 
-**郭文贵先生：**同样的是，我也不相信共产党它还在活下去。但是我知道我必须按照当下的物理生活一步一步，一步一个脚印，我每天工作18到20个小时，我要念经，我要打坐，我每天我必须健身，我不健身我坚持不住，我坐这儿跟你们侃几个小时，我怎么可能啊？
+翻译：文扬
+编辑：文泓
 
-就像喜联储那帮孙子骂我，说：“这谁呀这小子？这哥们儿一侃十七个小时。” 竟然不知道Miles Guo ，竟然说我一侃十几个小时，现在出名了。他们一开会，现在二百多个人说：“这就是那个一侃十几个小时那个Miles Guo”，相当愤怒。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/21.png)图片来源：Republic World
 
-我们就一个战友在那，叫Cathy，Cathy已经救了我们战友三次了，就一个战友，而且Cathy是我们很特别的战友，你们不知道，小王子知道，很多人都不了解，这是个了不起的战友。
 
-很多战友跟我有很私密的信息，Cathy也跟我有一次，特别一句话把我一下子眼泪就说出来了。我当时是正在一个会上，她说：“七哥，你不会放下我不管了吧？”
+当地时间2月7日，据《每日邮报》报道，俄罗斯顶级强硬派将军警告普京不要入侵乌克兰，并指责他采取“挑起战争的犯罪政策”。
 
-因为她是单身母亲，还有孩子，她说：“你看我这孩子每天就是听你的直播。” 她那个孩子就是从小就听我直播，很少说话，就听我直播喜欢我的，我唱歌喜欢我的。我这会议室一出来，我当时我就发现我一听，我这眼泪“唰”就下来了。
+这位退休的俄罗斯高级将领警告弗拉基米尔·普京不要与乌克兰开战，指责这位领导人挑起“人为”的冲突，以转移人民对其国内问题的注意力。
 
-我跟她从未谋面，我们过去的她家人和我们之间有很多关系。一个女人、单身的母亲，一个孩子，把我当成了依托，如果我是个混蛋，像路大脑袋一样逮住秘书也睡，逮住她妈也睡，逮住什么姨也睡的，你说我就不成畜牲了吗？那能玩？那能行吗？开玩笑归开玩笑，就是因为战友相信我不是那种坏人才相信我，而且孩子也相信我。我告诉她：“永远不会的，七哥永远不会的。”
+现年78岁的列昂尼德·伊瓦绍夫上将写了一封题为“战争前夜”的公开信，他在信中抨击了普京“挑起战争的犯罪政策”，尽管俄罗斯并未面临任何所谓“严重威胁”，乌克兰拥有自卫权。
 
-昨天晚上的时候，有一位我们的战友，他母亲和他的女婿还有她女儿在一起，发个小视频给我，说：“七哥，我们家让你救了！没打疫苗，还有我们的孩子出了国了。”
+在法国总统马克龙乘飞机前往克里姆林宫与普京进行危机谈判之际，俄罗斯军方罕见爆发了内部异议。此前一天，白宫国家安全顾问杰克·沙利文说，（俄罗斯）入侵“随时都可能发生”，并将付出“巨大的人力成本”。
 
-同时，昨天有人出来共产党国的，昨天有战友的妈妈去到大使馆签证给拒签了，同时昨天有战友离开到别的国家入境时给拒进了，在等待着往回送他；还有塞浦路斯的我们那一对母女已经从法院的监狱送到了当地警察监狱，马上就要释放了。
+伊瓦绍夫已从军队退役，他是前苏联国防部高级官员、地缘政治学院院长，目前作为全俄军官大会主席活跃于政界，此前曾担任普京在国防部的军事合作负责人。
 
-就是我们的爆料革命每天救人和人生中的喜怒哀乐、成功与失败，靠什么成长？靠的是信任，靠的是共同的信仰，靠的是真实有行动的能力，坚持的唯真不破。
+他在大会网站上的一封公开信中说，他担心如果（普京）发动入侵，俄罗斯将成为“国际社会的耻辱”，并呼吁普京辞职。
 
-字幕来源：[2022年1月27日 文贵大直播 全文字版](https://gnews.org/zh-hans/1924957/)
+这位功勋将军是俄罗斯国防部最受尊敬和鹰派的将军之一，被称为强硬民族主义者，仍然拥护苏维埃制度。
 
-编辑整理：喜马拉雅的肉夹馍；
+自2001年被普京解雇后，他成为俄罗斯总统的猛烈批评者——并经常要求他辞职，理由是他过于软弱，以牺牲公众利益为代价保护腐败精英，指责他“对俄罗斯犯下罪行”。
 
-字幕文件制作：小满；
+他的最新干预表明，在俄罗斯内部至少有一些人反对与乌克兰的战争，而且是在有5000名公民签署请愿书要求普京取消战争之后发生的。
 
-视频制作及上传：Cindy；
+伊瓦绍夫说：“至于外部威胁，它们当然存在。但是，根据我们的专家评估，它们目前并不严重，并没有直接威胁到俄罗斯国家的存在和其重要利益。”
 
-G-News发布：小满；
+曾担任美国驻俄罗斯大使的斯坦福大学俄罗斯问题专家迈克尔·麦克福尔在评论这封信时说：“这是件大事，伊瓦绍夫将军曾一度是俄罗斯国防部中最受尊敬（和鹰派）的领导人之一。”
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+“俄罗斯将军通常不会参与公共政策辩论，尤其是像伊瓦绍夫这样的人。”
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+原文链接： [Top hardline Russian general warns Putin NOT to invade Ukraine and accuses him of ‘criminal policy’ | Daily Mail Online](https://www.dailymail.co.uk/news/article-10484417/Top-hardline-Russian-general-warns-Putin-NOT-invade-Ukraine-accuses-criminal-policy.html)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+发布：tianzhihuan
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
