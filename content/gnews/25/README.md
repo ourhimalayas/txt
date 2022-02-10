@@ -2,32 +2,36 @@
 ---
 
 
-## 国外专家：北京冬奥人工降雪环境污染严重，运动员易事故受伤！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1984508/)
+## 郭文贵诉UBS案意味习的冬奥会数字币被扼杀
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1984709/)
 
-撰稿：东京樱花团/风翼
+作者：东京樱花团｜捆绑CCP一千年
+![](https://lh5.googleusercontent.com/S1m2Dt2lorAMJymaDXdZIxHGQB8M1G6SAP2ya5GyC56rZzZljXsIpBKdRIgClBJxcJA_u8GCu9ES3XEJeioZkmAkPk3A3DSWStsO0mj9hzB33TO1wxiHqkbPMFsc8kisfU9F_-rm)[*图片来源*](https://www.wsj.com/articles/beijings-digital-currency-push-at-winter-olympics-puts-visa-in-a-bind-11644402602)
+**习近平欲借冬奥会国际平台推行数字人民币国际化抗衡美元的梦将成为幻影。不但如此，随着新中国联邦的主动出击下，中共的金融帝国也将随着UBS案子的启动迅速瓦解。这种国际灭共趋势必将势不可挡。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/国外专家：北京冬奥人工降雪环境污染严重，运动员易事故受伤！.png)图片来源于本报道
+据[华尔街日报](https://www.wsj.com/articles/beijings-digital-currency-push-at-winter-olympics-puts-visa-in-a-bind-11644402602)美国东部时间9日消息称，在冬奥会上，北京的数字人民币推动陷入困境，中共国内官媒也未见其报道数字人民币推广使用进展。迄今为止，中国尚未披露奥运闭环系统内的任何电子人民币交易数据。
 
-据GigaZiNE报道：在中国北京举行的2022年中共的北京奥运会是 “世界上第一个几乎100%使用人造雪的冬季奥运会”的事已世人皆知。
+对于数字人民币的推广，中共国新华社只是以“据不完全统计为由”称，“今年春节全国12个数字人民币试点城市及地区首次在春节消费季的数字人民币使用有一些所谓亮点。除此之外，业内人士认为，冬奥会正逐步成为数字人民币普及推广的新契机。”却只字未提运动员使用数字人民币的体验。
 
-定于北京的西北部的延庆县张山营的西大庄科村，用于这次奥运会的高山滑雪和滑行运动，但在2022年2月，地面上的平均积雪只有3.3厘米。为了成功举办中共决定使用人造雪。
+- ***延展阅读：***[***参议员图米认为美国应该在冬奥会期间密切审查中国数字人民币的推出***](https://blockchain.news/news/u.s.-should-examine-chinese-digital-yuan-rollout-during-winter-olympics-senator-toomey)
 
-但对于制作庞大的人造雪，需要大量的水和能源，是否对参加冬奥会的运动员有否影响，也引起了运动员和环保人士对关注。英国拉夫堡大学的一项新研究显示，这次奥运会预测使用了120万立方米的人造雪，需要2.23亿升的水，以及3个泵站、8个冷却塔和130台发电机雪机。这些水还掺杂了化学物质，使其更难融化，这可能会严重损害雪下和水流处的植物，而制作这“不融化的雪”产生的噪音也会影响野生动物。
 
-在对于运动员的影响上，有专家指出，“人工雪是由30%的冰和70%的空气组成的，这与天然雪有很大不同，天然雪是‘10%的冰和90%的空气’”。人造雪制成的斜坡在物理上更难，运动员可以更快地在斜坡上移动。但运动员都在天然雪上训练，因这种环境的差异，不但降低了运动员水平表现，更重要的是容易使运动员产生更多的事故和身体伤害。而事实上，在本届奥运会上已经发生了几起事故。
+华尔街日报透露，北京拒绝中共国自己的支付宝、微信支付方式在冬奥会闭环系统内使用，然而，电子人民币是一个明显的例外。这是作为总部位于加利福尼亚州旧金山的[Visa赞助商](https://usa.visa.com/about-visa/sponsorships-promotions/olympics-partnership/team-visa-olympics.html)保证的排他性的一部分，北京2022冬奥会是习近平主席的首要政治任务，也是迄今为止数字货币最大的试点。
 
-中共为了展示红朝盛世梦，闭眼不看百姓的地狱熔炉，不但得不到国际声誉，却唤醒了全世界有良知的世人，不得不说，想封神的路又多出了无数荆棘。
+被吹捧为电子人民币在奥运会上的推广显然是失败的。据一位知情人士透露，[Visa 一直对北京奥运会的其他电子支付安排保持沉默，因为“高管们担心会激怒中国政府](https://www.wsj.com/articles/beijings-digital-currency-push-at-winter-olympics-puts-visa-in-a-bind-11644402602)”。
 
-信息来源：
+- ***延展阅读：***[***中国亿万富翁郭文贵在伦敦对瑞银的5亿美元诉讼可以继续进行***](https://www.scmp.com/business/banking-finance/article/3166442/chinese-billionaire-guo-wenguis-us500-million-lawsuit)
 
-[ほぼ100％人工雪で行われた北京オリンピック会場を人工衛星で撮影するとこんな感じ](https://gigazine.net/news/20220210-winter-olympics-beijing-artificial-snow/)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
+如果说，国际跨境支付大佬Visa眼下仍在惧怕中共国的威权恐吓，一旦北京冬季奥运会结束，国际金融机构与中共国关系也将很快随着北京“假雪”的融化而分道扬镳。相信随着新中国联邦对中共政府的一系列重拳出击行动，英国法院受理郭文贵先生起诉UBS的案子继续启动后，世界金融大佬们应该知道何去何从了。类似瑞银（UBS）和中共合谋，在2015年强迫郭先生出售海通在香港的股票的金融强盗悲剧将不会继续重演。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+据郭先生透露，“这意味着UBS的数据大门将被我们打开，他要交代把（海通证券）股票到底卖到哪里去了？那个基金的背后是谁？”UBS一定要回答这个问题，这也意味着一个百万亿美元的大银行核心的数据被撬开。瑞银没有选择，将公布他和中共勾兑的幕后秘密黑洞。共产党知道，一旦郭先生胜诉，中共一切都完了。（[49:25时段了解更多](https://gettr.com/post/ptgw8b5f32)）
 
+2022年2月10日
+
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

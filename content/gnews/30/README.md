@@ -2,12 +2,27 @@
 ---
 
 
-## 华人关注加拿大卡车司机为自由挺身而出
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1984456/)
+## 樱花灭共段子│灭共小诗
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1984611/)
 
-02/07/2022 班农(战斗室)：华人们都在关注那些令人作呕的虚伪媒体和可悲的大公司都在向中共这个跨国犯罪组织磕头；而在加拿大渥太华的国会大厦，工人阶级的卡车司机为自由挺身而出。
+撰稿：东京樱花团/保和
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1017.png)
+图片:夏目&山竹
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+瑞银立案震动天 七哥灭共去前线
+
+英国法庭堂上站 邪恶势力难靠前
+
+期盼灭共那一天 墙内国民有衣穿
+
+七哥天选灭共人 战友祈祷在旁边
+
+盖特链接：[https://gettr.com/post/ptljgb9862](https://gettr.com/post/ptljgb9862)
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
 
  
 

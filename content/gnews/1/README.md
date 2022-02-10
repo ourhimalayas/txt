@@ -2,38 +2,34 @@
 ---
 
 
-## 有声|马来西亚中共病毒小组建议在 3 月全面开放边境
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1984877/)
+## 美日冲绳海岸军演应对中共威胁
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1985041/)
 
-配音：香草山佛教部 – 李傻
+作者：台灣寶島農場–新中國聯邦靜
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据路透社报道，马来西亚冠状病毒恢复委员会于2月8日表示，作为加速经济复苏计划的一部分，建议最早在3月1日起全面重新开放边境，不再对旅行者进行强制检疫。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/c1_2260903.jpeg)图片来源: 网络
-该项建议是在马来西亚的邻国包括泰国、菲律宾和新加坡放弃检疫要求来吸引接种过疫苗的游客时提出的。马来西亚自2020年3月以来关闭了边境，并暂停了外国工人的入境，以试图遏制中共病毒的爆发。
+当地时间2月6日，据相关媒体报道，为了应对中共不断扩张的军事威胁，美日两军正在日本冲绳的宫古海峡附近进行一场大规模的联合军事演习。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/6-13.jpg)
+美国海军陆战队在一份声明中指出，美军出动了一批万人远征部队在日本海岸进行白天和夜间的战机补给演练，其中还包括高难度的夜间空对空加油演习。此外，美日也联合模拟了直升机合作以及小艇登陆、空中夜袭等项目。
 
-在奥密克戎变体的影响下，马来西亚的每日冠状病毒感染人数在最近几周飙升至四个月来的最高水平。
+美国军方高层表示，此次演习也是在向美日同盟国家发出信号，即美日双方有能力维持自由、开放的印太地区，同时，此举也强化了两国的合作关系。
 
-2月8日新确诊病例达13,944例，总确诊数超过290万例，死亡人数超过32,000 人，目前马来西亚是亚洲人均死亡率和感染率最高的国家之一。
+与此同时，日本防卫大臣岸信夫与美国新任驻日大使伊曼纽尔也就强化美日同盟的重要性举行了会谈。会上，美日双方一致表示，中共单方面试图改变现状的做法是在破坏当前全球基于规则和原则建立的稳定系统。为此，美日两国必须在坚守民主和法治价值观的基础上协同合作。
 
-文字版原文：[马来西亚中共病毒小组建议在 3 月全面开放边境](https://gnews.org/zh-hans/1979607/)
+参考链接：[美軍出動遠征部隊 逾萬兵力沖繩近海軍演](https://www.epochtimes.com/b5/22/2/8/n13562325.htm)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+
+总编: Irene木木
+编辑：谐趣园
+校正/发稿：Fei797
+
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
