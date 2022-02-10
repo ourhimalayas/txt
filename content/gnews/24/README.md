@@ -2,49 +2,12 @@
 ---
 
 
-## 欧盟公布芯片法案 肯定台湾重要地位
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1982957/)
+## 流浪汉们通过接种多剂疫苗来赚钱
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1983034/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+01/31/2022 无家可归者收容所的人们正在接种多剂疫苗，以尽可能多地收集100美元的奖励卡，结果发现其中一些没有钱。他们甚至鼓励他们的孩子接种超过2剂来赚钱，这是非常危险的。
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-欧洲联盟今天公布《欧洲芯片法案》，宣布将投入超过430亿欧元的公共和民间投资，让欧盟在2030年市场占有率较现阶段的10%翻倍至20%。欧盟执委会执行副主席兼数字执委维斯塔哲及欧盟负责内部市场业务的执行委员布勒东在对法案进行说明时，公开肯定台湾是《欧洲芯片法案》理念相近的伙伴，欧洲市场也会对台湾开放。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide15-2.jpg)
-布勒东强调，台湾在全球半导体制造领域的地位非常重要，欧洲使用的半导体可能50%是在台湾生产的，台湾拥有许多专业知识，欧洲当然欢迎。
-
-布勒东近期曾表示，《欧洲芯片法案》的重点在确保欧盟自主供应安全，因为当前全球主要芯片供货商位于中共国周边地区，存在严重地缘政治风险，一旦发生事端欧洲大多数工厂运作将瘫痪。
-
-参考信息：
-[歐盟推晶片法案點名台灣地位重要 投入近1.4兆與美日合作](https://www.cna.com.tw/news/afe/202202080372.aspx)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-
-总编：Irene木木
-编辑：谐趣园
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

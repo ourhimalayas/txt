@@ -2,49 +2,18 @@
 ---
 
 
-## 英国接受中共病毒疫苗的儿童 死亡率增加数倍
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1982691/)
+## 追回属于中国人的钱，让中国人的生老病死和教育免费
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1982722/)
 
-作者：日本东京方舟农场—Miyali7768(文玉）
+撰稿：追着曙光跑
 
+2月9日，郭文贵先生在大直播上指出， 瑞士集团以其对客户资料的严格保密政策和银行保密文化而著称，瑞士也因此成为世界上最大的黑金聚集地。中国从大清朝到国民党，再到共产党，这几百年来存储在瑞士集团的钱实在太多了。像伊拉克、罗马尼亚和利比亚（卡扎菲）等这些集权国家是无法比拟的。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-10-at-17.36.47.jpeg)
+郭先生强调，中国这几百年来在这里存储的钱必须还给中国人。现在所有中国人欠的房贷和欠的信用卡的钱的总和，中共宣布大概40万亿到50万亿美元。但由于中共的泡沫太严重，实际上是大概4到5万亿美元。新中国联邦在海外能追回大概50万亿美元，可以让中国人欠下的债务免10回都没问题。
 
+郭先生进一步解释，这钱多到不但可以让现在所有中国人的房贷和信用卡一律不用还，而且足以让中国未来的教育、保险、生老病死免费。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-2月7日媒体报道，英国国家统计局在2021年12月公布了分年龄组的个体死亡率的标准化数据，该分组是按照中共病毒疫苗的“接种”状态分组，涵盖 2021 年 1 月 1 日至 10 月 31 日。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide12-3.jpg)
-数据显示，接种一针和接种两针疫苗的儿童与未接种的儿童相比，死亡人数显着增加。15～19岁的儿童，接种一针，死亡风险会增加近一倍，如果他们接种二针，则死亡风险会增加三倍以上。10至14岁的儿童在接种第一针后死亡风险几乎未接种者的10倍，而接种第二针后的死亡风险是没有接种疫苗儿童的 51.8 倍。
-
-平均来说，这些数据意味着在2021年1～10月，英国10～19岁、至少注射过一次新冠疫苗的儿童死亡的概率要高出3.7倍。
-
-参考信息：
-[British Children Up to 52 Times More Likely to Die Following a COVID Shot: Government Report](https://www.globalresearch.ca/british-children-52-times-more-likely-die-following-covid-shot-government-report/5769589)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-
-总编：Irene木木
-编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+信息来源：[2022年2月9日 文贵大直播：UBS正式立案 打响沼泽地的第一仗；习普政治困局；中美俄三角斗；药厂政策调整；药厂政府互掐；何为全球货币；七哥个人生活](https://gtv.org/video/id=6203b7b13621aa7415d80e9e)
 
  
 
