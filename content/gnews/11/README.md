@@ -2,39 +2,31 @@
 ---
 
 
-## 瑞银在躲避中国亿万富翁的5亿美元诉讼中落败
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1983997/)
+## 福奇夫妇在论文中主张降低护理标准
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1984230/)
 
 编译：wenwu
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-999.png)图片来源：bloomberg.com
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1007.png)[thenationalpulse.com]
 
-瑞银集团(UBS Group AG)在驳回一位流亡的中国亿万富翁就2015年一次昂贵的保证金追缴所提起的5亿美元诉讼中败诉。
+福奇夫妇在论文中主张降低护理标准
 
-英国伦敦的一名法官裁定，英国确实有权审理郭文贵提起的案件，郭文贵是一名富商，与前总统唐纳德·川普的顾问史蒂夫·班农关系密切，这意味着该诉讼可以继续进行审判。这对瑞银来说是一个打击，因为瑞银曾试图以管辖权为由将该案的一部分驳回。
+美国国家过敏和传染病研究所所长安东尼·福奇和他的妻子克里斯蒂娜·格雷迪（负责指导美国国家卫生研究院的生物伦理学部门）共同撰写了一篇论文，概述了由国家卫生研究院管理的国际资助的标准。
 
-瑞银和郭文贵先生的律师没有立即回应评论请求。
+这篇论文于2002年3月1日发表在《自然评论免疫学》（Nature Reviews Immunology）杂志上，除福奇夫妇外，还有另外两名作者——Gregory Folkers，他是国家过敏和传染病研究所主任（NIAID）直属办公室的负责人；以及Jack Killen，国家卫生研究院（NIH）艾滋病部门的前主任。
 
-郭文贵先生声称瑞银提供了疏忽的建议，导致他借钱购买了中国券商海通证券有限公司的股票。 他说，在香港交易的股票在市场溃败期间暴跌后，瑞银强制出售了该股票，这项投资几乎完全丧失。
+这篇出土的论文——《发展中国家的临床研究伦理》（[Ethics of Clinical Research in the Developing World](https://www.scribd.com/document/557227063/nri745%2523download&amp;from_embed)）——是在福奇决定资助武汉病毒研究所对“杀手”蝙蝠冠状病毒的研究中出现的。此外，鉴于格雷迪的丈夫（福奇）在制定美国中共病毒（COVID-19）反应和疫苗接种指南方面的作用，与格雷迪在监督NIH研究和政策的伦理方面的突出作用，两者似乎存在着利益冲突（译者注：福奇违背了自己的职业道德）。
 
-一位伦敦法官周三（9日）表示，她可以监督此案，因为伦敦是“有害事件”的发生地，而且瑞银的伦敦部门“充分和显著地参与了”形成索赔的行动的几个要素。
+该文件讨论了美国应该在发展中国家资助什么类型的研究，并反对“统一护理要求”。 福奇夫妇补充说：“在资源匮乏的国家进行的研究可能与最有可能赞助该研究的发达国家的研究，有很大不同；道德研究的第一个要求是，该研究具有潜在的社会和科学价值。在国际临床研究的背景下，这将包括对研究对象的健康需求的回应，这是一个越来越被认为对道德研究至关重要的因素；伦理临床研究的第二个要求是有效的科学方法——也就是说，它很有可能产生与研究问题相关的可靠和有用的数据。”
 
-**简评：**
-
-**郭文贵先生在2022年2月9日的GTV大直播中表示：此案在伦敦立案，意味着第一次打开了沼泽地和中共藏匿金钱的大门；如果最终胜诉，所有收回的中共藏于海外的黑钱都将用于改善中国老百姓的生活。**
-
-中共你完蛋啦！
-
-新闻来源：[bloomberg.com] [UBS Loses Bid to Dodge Chinese Billionaire’s $500 Million Suit](https://www.bloomberg.com/news/articles/2022-02-09/ubs-loses-bid-to-dodge-chinese-billionaire-s-500-million-suit) |发布时间：2022年02月09日
+新闻来源：[thenationalpulse.com][EXC: Fauci and His Bioethicist Wife Argued for LOWER Care Standards in an Unearthed Paper.](https://thenationalpulse.com/2022/02/09/fauci-and-wife-authored-paper-on-intl-nih-grants/)
 
 * * *
 
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
+审核：文乐
+校对：小东
+发布：花羽
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-2.jpeg)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

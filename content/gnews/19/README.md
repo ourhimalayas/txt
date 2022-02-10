@@ -2,77 +2,31 @@
 ---
 
 
-## COVID-19 最新情报｜英媒调查发现：新冠疫苗的致死率超逾流感疫苗 49 倍
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1983913/)
+## 美国国会：NIH花费250万美元为小狗注射可卡因
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1984149/)
 
-**撰文｜疫情关注组 / 发布时间｜10/02/2022**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/post/pl6k0218bf](https://gettr.com/post/pl6k0218bf))**
+编译：wenwu
 
-英媒《Daily Expose》独家调查发现，根据 CDC VERS 的数据显示，COVID-19 疫苗的致死率至少是流感疫苗的 49 倍。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1005.png)freebeacon.com
 
-在 2020 年 12 月至 2022 年 1 月 28 日期间，COVID-19 疫苗共报告了 743,179 起不良事件，而流感疫苗在 2008 年至 2020 年的 13 年期间，共报告了 137,533 起不良反应。值得一提的是，在数据相关时间内，美国总共注射了 17.204 亿剂流感疫苗，以及 5.499 亿剂 COVID-19 疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Collage_Fotor-scaled.jpg)
-换句话说，**在流感疫苗接种率高出 3 倍的前提下，**COVID-19 疫苗的不良事件的发生率是流感疫苗的 5.4 倍。但是，调查人员进一步分析发现，**COVID-19 疫苗的危害程度远比表面数据更令人害怕。**
+据《华盛顿自由灯塔》独家获得的一份调查副本显示，美国国家卫生研究院正面临国会两党的调查，因为它在一项给小猎犬注射可卡因的研究中花费了250万美元的纳税人资金。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/3-18.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/4-12.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/51.jpg)
+国家药物滥用研究所（NIDA）是美国国立卫生研究院的一个分支，最近被发现进行了一项研究，其中“花费了大约250万美元的纳税人资金对6个月大的小猎犬进行残酷的测试”，根据众议院南希·梅斯和布伦丹·博伊尔领导的15名众议院议员的调查。“这些测试需要强行给小狗喂食一种实验性药物，并给它们注射可卡因，以研究这两种化合物之间的相互作用。”
 
+这项研究首先由无党派监督组织“白大褂废物工程”（White Coat Waste Project）披露，在NIH已经面临对其处理冠状病毒大流行和与中共国科学机构的伙伴关系的批评之时，该研究引发了一场媒体风暴，并将NIH的议程置于国会的十字路口。立法者希望了解这项研究和类似研究的成本，以及正在对狗进行的其他测试的细节。这项调查可能会进一步削弱公众对美国国立卫生研究院的信心，该院一直是国会对其处理中共病毒大流行病的调查对象。
 
-#### **不良事件报告率/急诊室就诊**
+NIDA的研究从2020年3月开始，一直到2021年9月。2022年2月在信息自由法案的要求下，白大褂废物工程披露了这个项目：在实验结束时，“可卡因猎犬”要么被杀死，要么被“回收”——这意味着它们被运走，用于其他浪费、残酷和不必要的实验。
 
-下图显示了截至 2022 年 1 月 28 日，向 VAERS 提交的针对 COVID-19 疫苗的不良事件报告数量，以及 2008 年至 2020 年间，向 VAERS 提交的针对流感疫苗的不良事件报告数量。
+与该研究有关的文件表明，国家药物管理局正在努力编写一份报告，以提交给食品和药物管理局。然而，在这项研究的消息传出后，美国食品和药物管理局表示，它“没有授权在狗身上研究人类药物”——对这种实验的必要性，其表示怀疑。 立法者写道：“我们关注的是，NIDA正在将税收用于狗的测试，这种测试是残酷的，昂贵的，过时的，而且FDA已经声称是不必要的。”他们想知道，在决定对小猎犬进行实验之前，NIDA是否试图探索非动物的替代方法。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/1-154.jpg)（流感疫苗和 Covid-19 疫苗的每個不良事件的疫苗接種劑量）
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/2-31.jpg)（流感疫苗和 Covid-19 疫苗的每個不良事件的疫苗接種劑量）
+新闻来源：[freebeacon.com] [Congress Probes NIH for Spending $2.5 Million Injecting Puppies With Cocaine](https://freebeacon.com/politics/congress-probes-nih-for-spending-2-5-million-injecting-puppies-with-cocaine/)
 
+* * *
 
-从表面上看，在 14 个月内，针对 COVID-19 疫苗的不良事件报告数量是 13 年针对流感疫苗的 5.4 倍。
-
-但根据 CDC 的数据，2008 年至 2020 年期间接种了 17.2 亿剂流感疫苗，不良事件的上报率为每 12,509 剂中有 1 例。而2020 年 12 月至 1 月 22 日期间接种的 5.499 亿剂 COVID-19 疫苗的不良事件报告率为每 740 剂中就有 1 例。
-
-**这意味着， COVID-19 疫苗的危害性至少是流感疫苗的 17 倍。**
-
-不仅如此，调查人员还结合同一时间内急诊室的接诊率进行交叉对比，表面数据显示，COVID-19 疫苗在 14 个月内导致的急诊呼救率，是流感疫苗在 13 年期间触发急诊的 20.8 倍。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/3-20.jpg)（急診就診時流感疫苗和COVID-19 疫苗接種的疫苗劑量）
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/4-13.jpg)（急診就診時流感疫苗和COVID-19 疫苗接種的疫苗劑量）
-
-
-值得关注的是，经过进一步分析发现，2008 年至 2020 年的17.2 亿剂流感疫苗导致了每接种 388,527.55 剂就有一次呼叫急诊的发生率。而 2020 年 12 月至 1 月 22 日期间的 5.499 亿剂COVID-19 疫苗则发生了每 5,950.94 剂就有一次的急诊呼叫率。
-
-**也就是说， COVID-19 疫苗导致需要紧急救治的风险是流感疫苗的 65 倍。**
-
-#### **住院率/出生缺陷率/永久性残疾/危及生命风险/死亡率**
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-156-3.png)（疫苗導致住院率）
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-163-3.png)（疫苗導致住院率/每劑量疫苗）
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-157-1.png)（疫苗導致出生缺陷率）
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-164-1.png)（疫苗導致出生缺陷率/每劑量疫苗）
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-158-1.png)（疫苗導致永久性殘疾）
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-165-2.png)（疫苗導致永久性殘疾/每劑量疫苗）
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-159-1.png)（疫苗導致危及生命風險）
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-166-1.png)（疫苗導致危及生命風險/每劑量疫苗）
-
-
-按照相同的方式，调查人员还发现，与流感疫苗相比，每一剂 COVID-19 疫苗至少会：
-
-- **增加住院风险 23 倍；**
-- **导致出生缺陷的可能性增加 57.5 倍；**
-- **造成永久性残疾的可能性增加 19 倍；**
-- **导致危及生命的风险增加 18 倍；**
-- **导致死亡的可能性增加 49 倍。**
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1531.png)（疫苗導致死亡率）
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-160-2.png)（疫苗導致死亡率/每劑量疫苗）
-
-
-来源｜[DailyExpose](https://dailyexpose.uk/2022/02/10/us-gov-data-covid-jabs-49x-deadlier-than-flu-jabs/)
-
+审核：文乐
+校对：阿伯塔
+发布：花羽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-2.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

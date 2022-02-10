@@ -2,21 +2,18 @@
 ---
 
 
-## 未来新中国联邦在世界各地的基地
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1983927/)
+## 樱花头条┃香港单日疫苗接种破8万剂创新高
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1984169/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+撰稿：东京樱花团/樱花传媒
+![](https://lh5.googleusercontent.com/0cHpxHQBkfH7lhncl9UBZzOfeGO6eER0Dl5UC9EeYmdeDkyl1JnU2W7H6AXGf-FXqWkKO5MCH0SwsMlfIBWVy4zv0IqHlFpl3_mw9oIebs7fG8MOp6rNhuHR9rO-dEKRgIbg_4FK)
+圣城香港2月9日共8万3541人接种新冠疫苗，当日新增1161人感染病例。严苛社交限制令颁布后，打第一针的有3万6584人。
 
-*发布：陶子*
+信息来源：[https://gettr.com/post/ptmlk09b8e](https://gettr.com/post/ptmlk09b8e)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团/keyboard racing
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
