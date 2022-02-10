@@ -2,24 +2,30 @@
 ---
 
 
-## 中日财经爆┃IMF：近100个国家正在研究CBDC央行数字货币
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1982411/)
+## 有声|台湾陆委会坚决反对中共虚假的民主协商
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1982521/)
 
-整理编辑：东京樱花团｜peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/pasted-image-0-2.png)[*图片来源*](https://s.yimg.com/uu/api/res/1.2/QS8HnmKoeEgWTyovEJMNhA--~B/aD05MTg7dz0xMjk2O2FwcGlkPXl0YWNoeW9u/https://s.yimg.com/uu/api/res/1.2/SciY4xTuD5San9GXVVWibg--~B/aD05MTg7dz0xMjk2O2FwcGlkPXl0YWNoeW9u/https://media.zenfs.com/ko/bloomberg_chinese_traditional_757/e16336364d8fc7b8e4e3f9e46cbd5998)
-国际货币基金组织（IMF）总裁2月9日表示，IMF预测目前有近100个国家正在研究央行数字货币，经验表明不存在统一标准模式。
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月6日，据台湾媒体报道，中共国政协主席汪洋此前一天与国民党前主席洪秀柱进行了会面。会上，汪洋声称，中共愿意与台湾各界开展“民主协商”。对此，台湾大陆委员会在一份声明中指出，中共政府所谓的“民主协商”就是妄图消灭中华民国台湾的协商，因此，台湾各界在与中共进行交流时应密切注意，并谨慎防范中共当局的统战分化操作。
 
-IMF在2月9日发布了一份研究报告，对包括中共国、瑞典和巴哈马在内的六个已经启动运行数字货币或处于后期测试阶段的国家进行了调研。
+陆委会表示，中共当局近期正在利用北京冬奥会进行统战宣传工作。其中，中共一直试图透过与相关国家或台湾方面人士的互动提倡其所谓的“一中原则”。
 
-IMF总裁格奥尔基耶娃在关于这份报告的讲话中表示，全球首批使用央行数字货币(CBDC)的经验表明，不存在放之四海而皆准的模式。金融稳定性和隐私考虑对CBDC的设计至关重要，同时也需要在设计和政的发展之间取得平衡。
+文字版原文：[台湾陆委会坚决反对中共虚假的民主协商](https://gnews.org/zh-hans/1980211/)
 
-格奥尔基耶娃补充说:“CBDC目前还处于早期阶段，我们不太清楚它们能走多远，能走多快。”
+音频处理/发稿：Daxia
 
-消息来源：[**没有一种能够适用于所有国家的央行数字货币模式——IMF总裁**](https://cn.reuters.com/article/imf-director-cen-digital-currencies-0210-idCNKBS2KF05U?il=0)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-*校对：东京樱花团/東洋武士*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

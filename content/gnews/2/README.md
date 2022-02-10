@@ -2,8 +2,8 @@
 ---
 
 
-## 中俄都抓住自己的机会，普京实在没办法才到中国
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1982830/)
+## 马克龙到俄罗斯求普京
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1982910/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

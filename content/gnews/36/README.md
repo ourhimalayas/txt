@@ -2,20 +2,20 @@
 ---
 
 
-## 中日财经爆┃美国考虑与盟国合作对中共国征收新关税
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1982356/)
+## 中日财经爆┃MSCI中共国A股指数纳入中国移动 剔除阳光城
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1982410/)
 
 整理编辑：东京樱花团｜peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/pasted-image-0-1.png)[*图片来源*](https://i.epochtimes.com/assets/uploads/2022/02/id13565471-540105.jpg)
-美国商会国际事务负责人Myron Brilliant周三（2月9日）表示，如果有关中共国未兑现“第一阶段”贸易协议采购承诺的磋商失败，美国政府将考虑一系列选项，包括可能导致新关税的新贸易调查。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-986.png)
+[*图片来源*](https://x0.ifengimg.com/ucms/2021_46/938C07AD717A5B6A548FB4DE08194EA3FBD964C3_size228_w1587_h907.jpg)
 
-Brilliant对记者表示，政府还可能与欧洲和其他盟友更密切地合作，向中共国展现出统一战线，要求其为国际企业提供更公平的竞争环境。
+国际指数编制公司MSCI（明晟）周三（2月10日）公布了2022年2月的季度指数评审结果，其中MSCI中共国A股在岸指数将新增四个成分股，即中国移动A股、中伟新材料、东方生物和伯特利。
 
-美国周二公布的贸易数据显示，中共国在贸易协议中承诺的购买目标只实现了不到60%，远未达到“两年内将购买量从2017年的规模增加2,000亿美元”的承诺，中共病毒疫情和供应链瓶颈的干扰造成了影响。
+MSCI在其官网称，MSCI中共国A股在岸指数将剔除沙钢股份、阳光城和ST国医。MSCI中共国全股票指数中，将各新增和剔除五个公司，新增的股票包括格力电器、中伟新材料和陆金所。上述变动将于2月28日收盘后生效。
 
-Brilliant表示，“美国政府采取的任何行动都应该与商界和盟友协商，任何针对中共国的行动，如果不是以多边方式进行，不与欧洲以及我们在亚洲的朋友合作，就不会有那么大的成效。”
+明晟公司（MSCI），原名为摩根士丹利资本国际，是一家美国股票基金、收入型基金、对冲基金股价指数和股东权益投资组合分析工具提供商。2007年中，母公司摩根士丹利决定从MSCI撤资。
 
-消息来源：[**焦点：拜登将考虑一系列对华贸易措施包括或导致新关税的调查**](https://cn.reuters.com/article/usa-chamber-commerce-china-0209-wedn-idCNKBS2KF025?il=0)
+消息来源：[**MSCI中国A股在岸指数将纳入中国移动等四只股票 阳光城等遭剔除**](https://cn.reuters.com/article/msci-china-shares-inclusion-0210-thur-idCNKBS2KF05Y?il=0)
 
 *校对：东京樱花团/東洋武士*
 *发布：东京樱花团/tdownc2p*
