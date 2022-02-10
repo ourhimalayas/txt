@@ -2,31 +2,90 @@
 ---
 
 
-## 七哥谈“中国人骨子里就是崇洋媚外、崇强欺弱”（2022-02-06摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1981633/)
+## 全球疫情更新（第三针的未来）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1981725/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+**整理/编辑：枳实**
 
-来源：郭先生2022-02-06直播08:46:27摘录
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-862.png)图片：雅典娜农场设计组 精灵蓝
 
-你别想太具体了，第一，共产主义的亲爹就是来自俄罗斯。现在俄罗斯的共产党虽然没有实权，但它还是世界上最大的共产主义大本营之一。共产主义就是邪恶的、独裁的、不受法律约束的、以为人民服务为名义的奴隶主制度。大家记住那国际歌吗？砸烂封建的社会。“起来不愿做奴隶的人们”，它那歌儿一唱，哇噻！唱歌的人都认为自己是奴隶，认为自己都要砸烂旧社会，自己都是奴隶主。我告诉你唱歌的都是奴隶。俄罗斯就是奴隶主的创造地，中共国骨子里边它对白人恨，但是人家西方的白人真不跟你玩儿，没几个人跟它玩儿的。它只能选择就是有点儿像白人的俄罗斯。而且俄罗斯又吃它这一套，愿意跟你勾兑，又是共产主义的来源。然后它拿着这个东西忽悠中国人，咱在世界不孤独。然后特别是俄罗斯有武器的优越性，它就来了。如果俄罗斯人穿的、吃的不是今天这个样子像白人的生活方式，和所谓的有托尔斯泰这样的大咖，有什么《卡秋莎》、《走在莫斯科郊外》的这些红歌，还有共产主义恩格斯、列宁那个长相、大胡子，共产党才不跟它玩儿呢。共产党就是找一个人得有个托词，名正言顺，而且让中国人觉得这个人种比咱强，这个朋友交得比咱棒。中国人交朋友 一定交有钱、有权的，谁爱交穷人啊？包括你们，没几个人交的，现在加入新中国联邦了，你发现要交有信仰的人，在这过去你不交穷人，你认为这是正确的，我不能交穷人。中国人骨子里就是崇洋媚外、崇强欺弱。所以这一系列的文化、信仰、宗教、历史原因就让共产党把俄爹。它摆来摆去找了那么多爹，就这一个爹最合适、适合它。而且这个爹越虐它，虐它千遍不厌倦，它享受在其中。那么共产党既无这个能力，它经济上无这样的能力、组织上的能力、加上内部的仇恨，就导致冬奥会今天你看到这个荒唐的结果。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+雅典娜疫情更新（2022年 2月9日）
 
-**关注我们**
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-Discord 账号
+**一，全球疫情基本数据**
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+感染总数：397,363,280（日新增2,677,691人，14天增幅-23%）
 
-Gettr 账号
+死亡总数：5,749,846（日新增10,900      人，14天增幅 +29%）
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+**二，全球“疫苗”毒针统计数据**
+
+“疫苗”毒针注射总数：103亿
+
+完全“接种”：42.2亿人
+
+完全“接种”百分比：54.1%
+
+**三，澳洲疫情和“疫苗”数据**
+
+感染总数：2,811,482（今日新增31,064人）
+
+死亡总数：4,373人（今日新增 70人）
+
+每万人感染人数：1090.1839人
+
+“疫苗”毒针注射总数：51,590,445 （今日新增217,265   针）
+
+完全“接种”：19,332,593人
+
+第二针“接种”百分比：78.9%
+
+16岁以上人口接种至少一剂疫苗的比例：&gt;95%
+
+16岁以上人口接种至少两剂疫苗的比例：93.8%
+
+加强针总数：9,182,529（日新增：184,868针）
+
+**四，第三针的未来**
+
+现在澳洲民众处在轰轰烈烈打第三针的阶段，第三针增长速度领先于很多国家。如下图各国每百人加强针注射数量曲线，绿色曲线为澳大利亚，其陡峭程度最大。加强针的效果如何，加强针接种水平远远大于澳洲的英国数据可以用来借鉴和预测。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/6-9.png)
+[下面这封信是英国民众通过信息自由法案获得](https://stevekirsch.substack.com/p/negative-vaccine-efficacy-example)的英国布莱普教学医院（Blackpool teaching Hospital）的住院患者中的疫苗接种统计数据。从信中的数据推算可知，住院病人中多达130/182 = 71%的患者是注射了加强针的病人。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/11-4.png)
+但英国布莱普地区的第三针接种率仅有44.9%，如下图所示。这71%和44.9%之间的巨大差距
+![](https://assets.gnews.org/wp-content/uploads/2022/02/12-7.png)
+英国布莱普地区的第三针接种率仅有44.9%，如下图所示。这71%和44.9%之间的巨大差距正说明了加强针注射不仅不能减轻病情，反而使得住院率几乎翻倍。 让我们看一下英国政府的数据：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/14-1.png)
+如上图所示，今年1月份的数据，每十万人感染率各年龄组的对比，可以看到，18岁以上的各年龄组的感染率都是打2针及更多疫苗毒针的人有更高的感染率。
+
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+
+数据来源：
+
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+
+[covidlive.com.au](https://covidlive.com.au/)
+
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

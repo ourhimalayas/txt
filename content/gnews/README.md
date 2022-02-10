@@ -15,79 +15,79 @@
 
 ---
 
-### [澳大利亚和立陶宛加强合作 携手应对中共施压](/content/gnews/1/README.md)
+### [拜登政府二度批准对台军售](/content/gnews/1/README.md)
  ` 日本东京方舟农场`
 
-### [中国人噩梦的开始，国人奴性的根源 ——《驭民五术》](/content/gnews/2/README.md)
+### [美国破获史上最大比特币盗窃案 金额高达45亿美元](/content/gnews/2/README.md)
+ ` 日本东京方舟农场`
+
+### [澳大利亚和立陶宛加强合作 携手应对中共施压](/content/gnews/3/README.md)
+ ` 日本东京方舟农场`
+
+### [中国人噩梦的开始，国人奴性的根源 ——《驭民五术》](/content/gnews/4/README.md)
  ` 纽约香草山MOS02`
 
-### [两年来，CDC无视数据，甚至撒谎,将自然免疫当成阴谋论](/content/gnews/3/README.md)
+### [对沈凌先生的文章《美国政府借鸡生蛋？中国怎么办？》之想法二](/content/gnews/5/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [两年来，CDC无视数据，甚至撒谎,将自然免疫当成阴谋论](/content/gnews/6/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共国地方债窟窿庞大，借新还旧难以为继](/content/gnews/4/README.md)
+### [中共国地方债窟窿庞大，借新还旧难以为继](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [全球疫情更新（第三针的未来）](/content/gnews/5/README.md)
+### [全球疫情更新（第三针的未来）](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2022年2月9日文贵先生直播摘要及音频—银河系农场](/content/gnews/6/README.md)
+### [2022年2月9日文贵先生直播摘要及音频—银河系农场](/content/gnews/9/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [五月花简报（02/09/2022）](/content/gnews/7/README.md)
+### [五月花简报（02/09/2022）](/content/gnews/10/README.md)
  ` mayflowertranslate`
 
-### [七哥谈“中国人骨子里就是崇洋媚外、崇强欺弱”（2022-02-06摘录）](/content/gnews/8/README.md)
+### [七哥谈“中国人骨子里就是崇洋媚外、崇强欺弱”（2022-02-06摘录）](/content/gnews/11/README.md)
  ` MG FARM`
 
-### [七哥谈所有奥林匹克委员会有多少人在中国拿到了利润（2022-02-06摘录）](/content/gnews/9/README.md)
+### [七哥谈所有奥林匹克委员会有多少人在中国拿到了利润（2022-02-06摘录）](/content/gnews/12/README.md)
  ` MG FARM`
 
-### [2/9/2022 文贵直播：今天的三件大事：1) 首次在法庭上跟沼泽地公开较量; 2) 文贵将去英国与日本与中共短兵相接；3) 面对中共的威胁，文贵将做好一切最坏准备；我们将对PAG案全面开战并彻底揭露中共对西方的蓝金黄和渗透](/content/gnews/10/README.md)
+### [2/9/2022 文贵直播：今天的三件大事：1) 首次在法庭上跟沼泽地公开较量; 2) 文贵将去英国与日本与中共短兵相接；3) 面对中共的威胁，文贵将做好一切最坏准备；我们将对PAG案全面开战并彻底揭露中共对西方的蓝金黄和渗透](/content/gnews/13/README.md)
  ` 秘密翻译组-北美组`
 
-### [七哥谈中共满骨子都是种族主义（2022-02-06摘录）](/content/gnews/11/README.md)
+### [七哥谈中共满骨子都是种族主义（2022-02-06摘录）](/content/gnews/14/README.md)
  ` MG FARM`
 
-### [疫苗不仅会伤害癌症免疫力，还会形成相对低效的免疫力](/content/gnews/12/README.md)
+### [疫苗不仅会伤害癌症免疫力，还会形成相对低效的免疫力](/content/gnews/15/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2/9/2022 文贵直播：单伟建和PAG案揭露了中共深度渗透美国大律师界和司法界的黑幕，瑞银(UBS)在英国法院立案是打开了沼泽地和中共邪恶勾兑的大门](/content/gnews/13/README.md)
+### [2/9/2022 文贵直播：单伟建和PAG案揭露了中共深度渗透美国大律师界和司法界的黑幕，瑞银(UBS)在英国法院立案是打开了沼泽地和中共邪恶勾兑的大门](/content/gnews/16/README.md)
  ` 秘密翻译组-北美组`
 
-### [这次冬奥开幕式就开成了共产党的结束的“闭幕式” (2022-02-06摘录）](/content/gnews/14/README.md)
+### [这次冬奥开幕式就开成了共产党的结束的“闭幕式” (2022-02-06摘录）](/content/gnews/17/README.md)
  ` MG FARM`
 
-### [全球中共病毒病例数在过去一周内骤降了17%](/content/gnews/15/README.md)
+### [全球中共病毒病例数在过去一周内骤降了17%](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [伦敦法院立案调查瑞银 全球银行巨头岌岌可危](/content/gnews/16/README.md)
+### [伦敦法院立案调查瑞银 全球银行巨头岌岌可危](/content/gnews/19/README.md)
  ` 秘密翻译组-原创组`
 
-### [参议员特德·克鲁兹（Ted Cruz）: 加拿大卡车司机是英雄](/content/gnews/17/README.md)
+### [参议员特德·克鲁兹（Ted Cruz）: 加拿大卡车司机是英雄](/content/gnews/20/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【秘翻在线】拜登政府面临着取消口罩规定的压力](/content/gnews/18/README.md)
+### [【秘翻在线】拜登政府面临着取消口罩规定的压力](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [瑞士Finanzen报道：瑞银无法阻止亿万富翁郭文贵在伦敦提起的法律诉讼](/content/gnews/19/README.md)
+### [瑞士Finanzen报道：瑞银无法阻止亿万富翁郭文贵在伦敦提起的法律诉讼](/content/gnews/22/README.md)
  ` 秘密翻译组-原创组`
 
-### [【#G时新闻】罗伯特·马龙博士警告儿童 COVID-19 疫苗风险](/content/gnews/20/README.md)
+### [【#G时新闻】罗伯特·马龙博士警告儿童 COVID-19 疫苗风险](/content/gnews/23/README.md)
  ` G-时新闻`
 
-### [北京冬奥俄罗斯普京团队住的酒店16人确诊感染](/content/gnews/21/README.md)
+### [北京冬奥俄罗斯普京团队住的酒店16人确诊感染](/content/gnews/24/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [有声|日本三井将发行与黄金挂钩的数字货币](/content/gnews/22/README.md)
- ` MOSREC`
-
-### [有声|大直播谈盘古龙头跟冬奥的关系](/content/gnews/23/README.md)
- ` MOSREC`
-
-### [有声|中共继续蓝金黄英国大学 开发或偷盗高科技武器](/content/gnews/24/README.md)
- ` MOSREC`
-
-### [有声|支持卡车反疫苗运动 战友三条红线不可跨越](/content/gnews/25/README.md)
+### [有声|日本三井将发行与黄金挂钩的数字货币](/content/gnews/25/README.md)
  ` MOSREC`
 
 ### [立陶宛、澳大利亚合作，共同对抗中共贸易胁迫](/content/gnews/26/README.md)

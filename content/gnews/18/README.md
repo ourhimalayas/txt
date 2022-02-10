@@ -2,34 +2,52 @@
 ---
 
 
-## 【秘翻在线】拜登政府面临着取消口罩规定的压力
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1981506/)
+## 全球中共病毒病例数在过去一周内骤降了17%
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1981536/)
 
-**撰稿：Grace**
+作者：纽约香草山农场 – 四季
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-07-at-3.47.40-PM-1.jpeg)图片来源：bronx.news 12
-据《每日邮报》2月9日报道，在民主党领导的四个州本周早些时候开始取消口罩限制后，拜登政府面临着取消口罩规定的压力。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-据报道，加利福尼亚州、康涅狄格州、特拉华州、新泽西州和俄勒冈州的民主党州长周一都宣布计划取消室内和/或学校的口罩规定。
 
-加州(California)州长加文·纽森(Gavin Newsom)宣布，该州将在下周取消对接种疫苗者的室内口罩规定。
 
-康涅狄格州(Connecticut)州长内德·拉蒙特(Ned Lamont)说，学校和托儿所的全州口罩规定将于2月28日结束。
 
-特拉华州(Delaware)州长约翰·卡尼(John Carney)宣布，普遍的室内口罩规定将于周五结束，学校的规定将于3月31日到期。
 
-新泽西州(New Jersey)州长菲尔·墨菲(Phil Murphy)说，他将在3月7日取消全州范围内的在校学生的口罩命令。
+据[布赖特巴特新闻网](https://www.breitbart.com/health/2022/02/09/coronavirus-in-retreat-global-case-counts-plunge-17-in-past-week/)2月9日报道， 世界卫生组织周二宣布，过去一周全球中共病毒病例数与过去同期相比下降了17%，其中仅美国就下降了50%，而全球死亡人数下降了7%。
 
-俄勒冈州（Oregon）州长凯特·布朗(Kate Brown)说，她的州的室内和学校范围的口罩规定将于3月31日结束。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GE-02-640x480-1.jpg)Michael M. Santiago/Getty, Images
 
-白宫新闻秘书珍·普萨基(Jen Psaki)周二说: “我们希望各州的领导人会看一看关于正在发生的事情的科学和数据。他们将对当地学区做出决定。”
+世界卫生组织表示，Omicron变体的流行率在全球范围内有所增加。然而，许多早期曾报告因Omicron变体而导致病例数上升的国家现在报告说，自2022年1月初以来，新病例总数有所下降。
 
-报道称，美国的中共病毒Covid-19病例在过去七天里下降了43%，每天记录267,765例，低于一周前的469,770例。
+随着新的统计数字的出现，世界各地要求结束强制口罩令和强制性疫苗接种的呼声越来越高。世界各国政府也都在寻求放松限制。
 
-**新闻来源：[Biden Under Pressure to End Mandates as Dem States Lift Restrictions](https://www.newsmax.com/politics/covid-19-mandates-masks-biden/2022/02/08/id/1056045/)**
+澳大利亚将很快向已接种疫苗的游客重新开放边境。继丹麦和挪威之后，瑞典也在取消大部分大流行病规定。在加拿大，争取摆脱所有中共病毒限制的运动已经成为全球头条新闻。
 
-[Biden v the blue states: Psaki says it is up to school districts to decide mask mandates and there are leaders STOPPING them after four Democrat governors dropped classroom rules](https://www.dailymail.co.uk/news/article-10489735/Biden-urged-roll-COVID-restrictions-FOUR-Dem-governors-announced-end-school-masking.html)
+就在本周，美国的加利福尼亚州、康涅狄格州、特拉华州、新泽西州和俄勒冈州的州长表示，他们将结束全州范围内的室内口罩规定，其中一些适用于学校，另一些适用于公共场所。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2月.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 

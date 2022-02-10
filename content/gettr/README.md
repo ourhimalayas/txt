@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/10/2022 1:11 AM (UTC)`
+
+2/9/2022 Miles Guo: To recover the wealth, dignity, and justice that the Chinese people have lost in the past 70 years, I will make myself a person that owns nothing and will move to London to fight UBS in court. After that, I will go to Japan to fight against the CCP at close range and will let the people across Communist China hear my voice directly.<br/><br/>2/9/2022 文贵直播：为找回中国人70年来失去的财富、尊严和公正，文贵将让自己变得一无所有，到伦敦跟UBS打官司，再到日本与中共短兵相接，让中共国每个角落都将直接听到七哥的声音<br/>
+![img](https://media.gettr.com/group46/getter/2022/02/10/01/d8499755-2bce-d7bc-06f2-df59a27cd9ea/out.jpg)
+
+---
+
 `@miles 2/9/2022 10:52 PM (UTC)`
 
 2/9/2022 Miles Guo: Three major events today - 1) I have started to openly fight the swamp in court for the first time; 2) I will go to the UK and Japan to fight the CCP at close range; 3) I will prepare for the worst in case of the CCP's threats. We will wage a full-scale war on the PAG case and will thoroughly expose the CCP’s BGY scheme and infiltration against the West<br/><br/>2/9/2022 文贵直播：今天的三件大事 - 1) 首次在法庭上跟沼泽地公开较量; 2) 文贵将去英国与日本与中共短兵相接；3) 面对中共的威胁，文贵将做好一切最坏准备；我们将对PAG案全面开战并彻底揭露中共对西方的蓝金黄和渗透<br/>
@@ -147,13 +154,6 @@ Ms. Christine Anderson said, "Whenever a political entity resorts to extortion a
 
 2月6号：尊敬的战友们好！关于如何使用GTV帮助加拿大卡车反疫苗运动的几点声明！
 ![img](https://media.gettr.com/group46/getter/2022/02/06/21/a603d339-c777-36ab-1da4-8bf61d959a1b/out.jpg)
-
----
-
-`@miles 2/6/2022 12:44 PM (UTC)`
-
-2022年2月6日 文贵大直播：开幕式后普京愤然离去；中俄战略合作虎头蛇尾；贩卖人口中国妇女地位；反疫苗运动及美国经济
-![img](https://media.gettr.com/group48/origin/2022/02/06/12/7ef9b427-76a1-1abf-9313-5e066b984365/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
