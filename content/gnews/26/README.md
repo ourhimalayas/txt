@@ -2,11 +2,18 @@
 ---
 
 
-## 2月9日文贵大直播（图片）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1985746/)
+## 追回盗国贼盗取的钱让中国人真正享受到最好的福利
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1985751/)
 
-设计 五月花农场 科存
-![](https://assets.gnews.org/wp-content/uploads/2022/02/851CBDB4-D9F1-4763-A463-C4DECAD499CA.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/ABB53D2B-E5D7-4C85-9A84-068AEFEFF861.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/D138CF0B-438F-457F-94CF-9A3DC7AFDC41.png)
+作者：东京樱花团小视频组
+
+* * *
+
+* * *
+
+编辑：东京樱花团/小视频组
+发布：东京樱花团/小视频组
+![](https://assets.gnews.org/wp-content/uploads/2022/02/樱花-3-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

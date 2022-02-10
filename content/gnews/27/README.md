@@ -2,39 +2,42 @@
 ---
 
 
-## 保守党议员提出加拿大首个关于加密货币的法案以促进该行业发展
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1985738/)
+## 福奇：美在退出大流行的“全面”阶段而三周前还说正在第一阶段
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1985750/)
 
-加拿大温哥华扬帆农场 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/02/CRYPTO-CURRENCIES-0_1636763408923_1636763424023.JPG.jpg)图片来源: Mint
-根据《Globe and Mail》2月9日报道，加拿大保守党呼吁联邦政府为加密货币行业的发展建立一个国家级框架，这是在下议院提出的第一个直接针对该快速发展的行业的法案。
+**编译： Jenny Ball**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip福奇：美在退出大流行的全面阶段而三周前还说正在第一阶段.png)图片来源：thegatewaypundit.com
+周二，福奇表示美国正在退出大流行的“全面爆发”阶段。
 
-保守党议员Michelle Rempel Garner在周三提出了这项私人法案，指示加拿大财政部长在三年内创建一个框架，以发展加拿大的加密货币行业，并减少从业者的行政负担。还特别呼吁部长在起草计划时咨询加密货币专家，但没有规定采取什么政策方向。
+本周新冠死亡人数达到了一年来的最高水平，那么“科学”发生了什么变化？
 
-Garner女士在接受采访时说，之所以需要该法案，是因为加密货币行业近年来呈现出戏剧性的增长，并有可能出现更多的增长。政府官员和立法者缺乏对该领域的了解，她希望法案中概述的程序能够弥合公共和私营部门在这个问题上的差距。
+“根据约翰斯霍普金斯大学汇编的数据，本周，美国新冠肺炎死亡人数达到了大约一年来的最高水平，过去两周上升了 39%。” CNBC 报道。
 
-Garner女士说：”我没有采取规定性的政策方法，我想给那些在该领域工作的人机会，在制定政策时推动发展”。她也希望通过暂时保持开放的程序，该法案可以吸引其他各方的支持。
+“随着我们走出 COVID-19 的全面流行阶段，”福奇对英国《金融时报》说。 “我们肯定会走出，这些决定将越来越多地在地方层面做出，而不是由中央决定或授权。还将有更多的人自己决定如何应对病毒。”
 
-皇后大学史密斯商学院研究加密货币的教授Erica Pimentel说，该私人法案是加拿大在追赶其他国家的正确方向上迈出的一步。
+（点评：他已经逼迫全世界大多数人当了大药企mRNA毒药的试验老鼠，现在要甩锅，让人们自由应对“疫苗”DNA编辑人体基因和刺突蛋白造成的各种器官栓塞的灾难！）
 
-Pimentel教授说：”这为日益重要的话题打开了局面，而这个话题在国会山还没有适当地进行”。并表示，该法案缺乏细节，可能会导致过程被拖长，使其很难在一定时间框架内实现该政策。
+就在三周前，福奇说大流行有五个阶段，而我们只处于第一阶段。
 
-加密货币在国会山的讨论越来越多。渥太华抗议活动的组织者实际上已经关闭了该市的市中心，在被禁止进入更传统的众筹平台后，他们不得不转向加密货币进行筹款。
+那发生了什么变化？
 
-同样，这个话题也出现在政府持续的预算前磋商中。上个月，财政委员会听取了一家连锁餐厅老板的证词，他敦促政府购买100亿美元的比特币，使数字资产像加元一样成为法定货币。
+随着每日 Covid 死亡率飙升，民主党州长们一致取消了全州范围内的口罩规定。
 
-预计该法案将在未来几个月得到更多的辩论，并在夏季之前进行投票。
+CNN 医学分析师莉安娜·温 (Leana Wen )博士本周表示，“科学发生了变化”，并呼吁取消对流行病的限制。
 
-加密货币是发展趋势，希望加拿大加快步伐开放和发展该行业，Hcoin可以脱颖而出，在加拿大正常使用。
+进入中期选举，民主党的内部民意调查一定很糟糕！
 
+评论：从何时起，科学成立政治家操纵的信誉工具？
 
+**新闻来源**：[thegatewaypundit.com][Dr. Fauci: US Exiting ‘Full-Blown’ Phase of Pandemic — After Saying We Are in the First Stage of COVID Just 3 Weeks Ago](https://www.thegatewaypundit.com/2022/02/dr-fauci-us-exiting-full-blown-phase-pandemic-covid-fatalities-reach-highest-level-year/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=daily)
 
-原文链接：
-[https://www.theglobeandmail.com/business/article-canadas-first-bill-on-cryptocurrency-regulation-aims-to-boost/](https://www.theglobeandmail.com/business/article-canadas-first-bill-on-cryptocurrency-regulation-aims-to-boost/)
+* * *
 
+***审核：文乐
+校对：花羽
+发布：信心满满***
 
-
-编辑，发稿 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-3.jpeg)
 
 
 
