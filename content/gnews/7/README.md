@@ -2,18 +2,22 @@
 ---
 
 
-## 樱花头条┃王储查尔斯感染新冠病毒 现正自我隔离
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1984668/)
+## 音乐视频│等待
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1984749/)
 
-撰稿：东京樱花团/樱花传媒
+编曲、吉他：东京樱花团/盲人草根
 
-英国克拉伦斯宫周四（10日）公布，王储查理斯确诊新冠肺炎，现正自我隔离。
+演唱：东京樱花团/盲人草根、愈爆愈勇
 
-信息来源：[https://gettr.com/post/pto43u6b08](https://gettr.com/post/pto43u6b08)
+视频：东京樱花团/小雪人
 
-编辑：东京樱花团/asket
+编辑：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/yuxingcao01
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
+
+
+
 
 
  
