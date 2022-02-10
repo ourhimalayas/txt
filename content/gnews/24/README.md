@@ -2,20 +2,14 @@
 ---
 
 
-## 有声|美众议院领袖发誓调查中共病毒起源
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1982259/)
+## 有声|NFSC新闻、G|TV新闻访谈简报|2022年2月8日早
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1982263/)
 
 配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-外媒2月7日报道，日前，美国众议院共和党领袖凯文·麦卡锡提出了共和党未来的计划，发誓要调查中共病毒的起源。他还表示，如果共和党在今年中期选举中重新获得众议院多数党席位，将对中共采取更强硬的立场，进行更多严格审查。
-
-麦卡锡在接受媒体采访时强调，国会最终将成立一个两党中共国问题委员会，其中最关键问题将是调查中共病毒大流行的起源。
-
-正如郭文贵先生此前爆料所称，美国两党政客都无法回避中共病毒给美国带来的巨大灾难，坚决追查中共病毒真相，将是美国两党未来别无选择的共同政治诉求。
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-7.png)
 
 
-
-文字版原文：[美众议院领袖发誓调查中共病毒起源](https://gnews.org/zh-hans/1973569/)
+文字版原文：[NFSC新闻、G|TV新闻访谈简报|2022年2月8日早](https://gnews.org/zh-hans/1976029/)
 
 音频处理：呼吸的雾霾（文小呼吸）
 发稿：呼吸的雾霾（文小呼吸）

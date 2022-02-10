@@ -2,18 +2,34 @@
 ---
 
 
-## 瑞士Finanzen报道：瑞银无法阻止亿万富翁郭文贵在伦敦提起的法律诉讼
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1981487/)
+## 【秘翻在线】拜登政府面临着取消口罩规定的压力
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1981506/)
 
-翻译：nstar
-![](https://assets.gnews.org/wp-content/uploads/2022/02/f3b44e41ede66cb6e2e426b54cbc5536_w500_h300_cp-scaled.jpeg)图片来源：Shutterstock
-瑞士Finanzen援引**隆伯格通讯社的报道，瑞银无法阻止中国亿万富翁郭文贵在伦敦提起的 5 亿美元诉讼（译者更正：根据郭文贵先生2月9日大直播信息，诉讼金额远大于5亿美元，可达几百亿或更多）。该银行试图以管辖权为由驳回法院案件。但现在伦敦高等法院已决定该法院应负责对此案进行审理**。
+**撰稿：Grace**
 
-**该银行试图以管辖权为由驳回法院案件。但现在伦敦高等法院已决定应对此案负责，该案应在英国审理。本案原告是中国著名商人郭文贵。郭文贵起诉瑞银敷衍职守向他提供建议。瑞银迫使他借钱购买一家中国经纪公司的股票。该银行随后在股价下跌 45% 的情况下强制出售这些股票，从而抹去了他的投资。**
+**校对：Grace**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-07-at-3.47.40-PM-1.jpeg)图片来源：bronx.news 12
+据《每日邮报》2月9日报道，在民主党领导的四个州本周早些时候开始取消口罩限制后，拜登政府面临着取消口罩规定的压力。
 
-原文链接：[https://www.finanzen.ch/nachrichten/aktien/ubs-aktie-dennoch-fester-ubs-kann-klage-von-chinesischem-milliardar-anscheinend-nicht-abwenden-1031177565](https://www.finanzen.ch/nachrichten/aktien/ubs-aktie-dennoch-fester-ubs-kann-klage-von-chinesischem-milliardar-anscheinend-nicht-abwenden-1031177565)
+据报道，加利福尼亚州、康涅狄格州、特拉华州、新泽西州和俄勒冈州的民主党州长周一都宣布计划取消室内和/或学校的口罩规定。
 
-校对发布：Shifter
+加州(California)州长加文·纽森(Gavin Newsom)宣布，该州将在下周取消对接种疫苗者的室内口罩规定。
+
+康涅狄格州(Connecticut)州长内德·拉蒙特(Ned Lamont)说，学校和托儿所的全州口罩规定将于2月28日结束。
+
+特拉华州(Delaware)州长约翰·卡尼(John Carney)宣布，普遍的室内口罩规定将于周五结束，学校的规定将于3月31日到期。
+
+新泽西州(New Jersey)州长菲尔·墨菲(Phil Murphy)说，他将在3月7日取消全州范围内的在校学生的口罩命令。
+
+俄勒冈州（Oregon）州长凯特·布朗(Kate Brown)说，她的州的室内和学校范围的口罩规定将于3月31日结束。
+
+白宫新闻秘书珍·普萨基(Jen Psaki)周二说: “我们希望各州的领导人会看一看关于正在发生的事情的科学和数据。他们将对当地学区做出决定。”
+
+报道称，美国的中共病毒Covid-19病例在过去七天里下降了43%，每天记录267,765例，低于一周前的469,770例。
+
+**新闻来源：[Biden Under Pressure to End Mandates as Dem States Lift Restrictions](https://www.newsmax.com/politics/covid-19-mandates-masks-biden/2022/02/08/id/1056045/)**
+
+[Biden v the blue states: Psaki says it is up to school districts to decide mask mandates and there are leaders STOPPING them after four Democrat governors dropped classroom rules](https://www.dailymail.co.uk/news/article-10489735/Biden-urged-roll-COVID-restrictions-FOUR-Dem-governors-announced-end-school-masking.html)
 
  
 

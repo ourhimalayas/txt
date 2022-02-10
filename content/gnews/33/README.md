@@ -2,37 +2,32 @@
 ---
 
 
-## 欧洲国家波兰宣布新冠大流行“终结的开始”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1982219/)
+## 有声|新中国联邦2022年发展的三个重点项目
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1982254/)
 
-#### 【雅典娜快讯】,紧贴时事脉搏
+配音：香草山巡管部 – 格格
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+2月6日，郭先生在大直播上强调，新中国联邦2022年发展的三个重点项目。
 
-翻译/编辑：小红帽
+第一，阻止排华事件的发生，这是新中国联邦今年的重中之重。如果新中国联邦阻止不了西方的排华，那么即使灭共了也没什么意义。现在需要计划用币，鼓励国内的各界人士站出来，形成全国灭共的趋势，让他们在灭共中真正得到喜币和躺平币。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-614.png)图片来源：雅典娜设计组
+第二，把现有的项目做强做大，坚决不犯希特勒那样因无限扩张导致灾难性的错误。今年不会再立任何新项目，目标就是把现有的项目搞好做强，然后扩大在全球的影响力。
 
+第三、做好新中国联邦教育（GEDU）。教育是立国之本，是中国人未来的希望。新中国联邦会提供喜币或喜美元，吸引国内的教育工作者加入GEDU。套用一句俗语：走新东方的路，让新东方无路可走。 2022年，新中国联邦无论是在国际还是国内，影响力都将会更强。
 
-根据《RT》新闻2月9日报道，波兰卫生部长亚当·尼齐尔斯基（Adam Niedzielski）周三表示，全球新冠病毒（Covid-19）大流行即将结束，并表示希望该国将很快开始恢复正常生活。
+文字版原文：[新中国联邦2022年发展的三个重点项目](https://gnews.org/zh-hans/1976116/)
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-这位部长在新闻发布会上表示，他预计2月份感染人数将大幅减少，这反过来将降低医疗保健系统不堪重负的风险。如果是这种情况，波兰政府将在3月份放宽限制，以便该国在春季进入“正常运营模式”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-尼齐尔斯基承认“这是一个非常严肃的声明”，并解释说他的观点是基于“其他国家大流行的特征”，那里的第五波新冠疫情比波兰更早达到顶峰。由于这些国家已经在取消大流行的限制，波兰很可能会面临同样的情况。
-
-正如部分专家所建议的那样，波兰总理马特乌什·莫拉维茨基（Mateusz Morawiecki）在一月份表示希望由奥米克戎（Omicron）引起的新冠病毒浪潮将是最后一次。
-
-波兰的活跃病例数已连续几天减少，但在2月9日略有增加。该国目前有超过757,000人感染了新冠病毒。
-
-新闻链接：[European country declares ‘beginning of the end’ of Covid pandemic](https://www.rt.com/news/548795-covid-poland-end-pandemic/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

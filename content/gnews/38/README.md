@@ -2,30 +2,23 @@
 ---
 
 
-## 美国记者和维权人士成为网络攻击新目标
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1982119/)
+## 梵蒂冈支持加拿大卡车司机反疫苗护照运动
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1982199/)
 
-![来自中国的黑客攻击(视频截图)](https://gdb.voanews.com/AD1C3698-245A-403E-9AAC-304A15174E12_w1023_r1_s.png)来自中国的黑客攻击(视频截图)
-据美国之音2月10日报道，拥有《华尔街日报》、《纽约邮报》和《太阳与泰晤士报》的美国新闻集团称自己已经成为“持续的国家支持的网络攻击活动”的目标。新闻集团在几个业务部门上都发现了攻击，立即通知执法部门，并在网络安全公司曼迪安特的帮助下展开调查。曼迪安特表示，这次网络攻击背后存在“中共国关系”。
+采编/编译撰稿： 苦尽甜来 (文來）                      校对编辑：硫酸羟氯喹64
 
-去年12月，美国以中共国在“在新疆持续进行种族灭绝和反人类罪以及其他侵犯人权行为”宣布外交抵制北京冬奥会。联邦调查局局长表示，北京已经在美国发动了“一个庞大而复杂的黑客计划，其规模比其他所有主要国家的总和还要大”。维吾尔人权项目等维权组织一直在社交媒体上呼吁抵制北京冬奥会，并使用#GenocideGames 的标签。亲中共的账号在推特上冲击该标签，试图削弱人们对北京侵犯新疆维吾尔人权的认识。
-
-嘴里喊着委屈，暗地里潜到别人家又放火又趁机偷东西，是中共最擅长的。随着北京种族灭绝运动会的开幕，针对维吾尔人权组织和个人的网络袭击事件急剧增加。中共国不仅在国内严格网络监管，同时在网络上也要扑灭反对的声音。中共国黑客遍布网络各个角落，以各种手段窃取情报、破坏网站、混淆视听、引导风向，甚至黑掉网站，以达到威胁恐吓、敲山震虎的效果。现实世界有中共，全球无法太平；网络世界有中共的黑客，同样不安全。推翻中共邪恶政权，推倒中共的防火墙，打掉中共的黑客，让中国人民拥有网络自由和新闻自由，全世界才会有一个干净、自由的网络环境。
-
-新闻参考链接：[https://www.voachinese.com/a/recent-cyber-attacks-allege-china-nexus-20220209/6434640.html](https://www.voachinese.com/a/recent-cyber-attacks-allege-china-nexus-20220209/6434640.html)
-
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Archbishop_Carlo_Maria_Vigano-810x500-1-edited.jpg)图片来源：lifesitenews
 
 
-编辑：【英国伦敦喜庄园编辑部】
+据美国媒体【生命新闻】2月7日报道，梵蒂冈红衣大主教维加诺在致加拿大所有参加反抗疫苗护照运动卡车司机的信中指出，人们已更加清晰地看见全球主义恶棍精英利用疫情，在全球开启了反人类的灭顶灾难。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+维迦诺在信中说：“亲爱的加拿大卡车司机朋友，你们加入了一个世界范围的团体，来对抗那些希望通过世界经济论坛来统治世界的邪恶势力。加拿大，澳大利亚、意大利、奥地利和法国等都是全球主义政客渗透最深的国家。在这个地狱般的大重启计划中，我们不仅要考虑到疫情灾难，还要防止这些精英对其国家民主，自由和宗教的破坏。”
+
+报道称，红衣大主教深深体会卡车司机们面临的巨大困难，包括放弃工作，恶劣天气条件、漫长的黑夜以及被当局逮捕的威胁。并因此诚恳表达其支持和赞誉。同时，维迦诺将为反抗者们祈祷，希望在加拿大的示威行动获得成功，并尽可能扩展到其他国家。
+
+发稿：文明(添草灭共)
+
+原文链接：[Abp. Viganò endorses Canadian truck drivers, calls for prayers to defeat ‘infernal’ Great Reset – LifeSite (lifesitenews.com)](https://www.lifesitenews.com/opinion/abp-vigano-endorses-canadian-truck-drivers-may-your-efforts-be-crowned-with-success/)
 
  
 
