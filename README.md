@@ -15,101 +15,101 @@
 
 ---
 
-### [2022年2月9日文贵先生直播摘要及音频—银河系农场](/content/gnews/1/README.md)
+### [中共国地方债窟窿庞大，借新还旧难以为继](/content/gnews/1/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [全球疫情更新（第三针的未来）](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [2022年2月9日文贵先生直播摘要及音频—银河系农场](/content/gnews/3/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [五月花简报（02/09/2022）](/content/gnews/2/README.md)
+### [五月花简报（02/09/2022）](/content/gnews/4/README.md)
  ` mayflowertranslate`
 
-### [七哥谈“中国人骨子里就是崇洋媚外、崇强欺弱”（2022-02-06摘录）](/content/gnews/3/README.md)
+### [七哥谈“中国人骨子里就是崇洋媚外、崇强欺弱”（2022-02-06摘录）](/content/gnews/5/README.md)
  ` MG FARM`
 
-### [七哥谈所有奥林匹克委员会有多少人在中国拿到了利润（2022-02-06摘录）](/content/gnews/4/README.md)
+### [七哥谈所有奥林匹克委员会有多少人在中国拿到了利润（2022-02-06摘录）](/content/gnews/6/README.md)
  ` MG FARM`
 
-### [2/9/2022 文贵直播：今天的三件大事：1) 首次在法庭上跟沼泽地公开较量; 2) 文贵将去英国与日本与中共短兵相接；3) 面对中共的威胁，文贵将做好一切最坏准备；我们将对PAG案全面开战并彻底揭露中共对西方的蓝金黄和渗透](/content/gnews/5/README.md)
+### [2/9/2022 文贵直播：今天的三件大事：1) 首次在法庭上跟沼泽地公开较量; 2) 文贵将去英国与日本与中共短兵相接；3) 面对中共的威胁，文贵将做好一切最坏准备；我们将对PAG案全面开战并彻底揭露中共对西方的蓝金黄和渗透](/content/gnews/7/README.md)
  ` 秘密翻译组-北美组`
 
-### [七哥谈中共满骨子都是种族主义（2022-02-06摘录）](/content/gnews/6/README.md)
+### [七哥谈中共满骨子都是种族主义（2022-02-06摘录）](/content/gnews/8/README.md)
  ` MG FARM`
 
-### [2/9/2022 文贵直播：单伟建和PAG案揭露了中共深度渗透美国大律师界和司法界的黑幕，瑞银(UBS)在英国法院立案是打开了沼泽地和中共邪恶勾兑的大门](/content/gnews/7/README.md)
+### [疫苗不仅会伤害癌症免疫力，还会形成相对低效的免疫力](/content/gnews/9/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [2/9/2022 文贵直播：单伟建和PAG案揭露了中共深度渗透美国大律师界和司法界的黑幕，瑞银(UBS)在英国法院立案是打开了沼泽地和中共邪恶勾兑的大门](/content/gnews/10/README.md)
  ` 秘密翻译组-北美组`
 
-### [这次冬奥开幕式就开成了共产党的结束的“闭幕式” (2022-02-06摘录）](/content/gnews/8/README.md)
+### [这次冬奥开幕式就开成了共产党的结束的“闭幕式” (2022-02-06摘录）](/content/gnews/11/README.md)
  ` MG FARM`
 
-### [全球中共病毒病例数在过去一周内骤降了17%](/content/gnews/9/README.md)
+### [全球中共病毒病例数在过去一周内骤降了17%](/content/gnews/12/README.md)
  ` 纽约香草山MOS02`
 
-### [伦敦法院立案调查瑞银 全球银行巨头岌岌可危](/content/gnews/10/README.md)
+### [伦敦法院立案调查瑞银 全球银行巨头岌岌可危](/content/gnews/13/README.md)
  ` 秘密翻译组-原创组`
 
-### [参议员特德·克鲁兹（Ted Cruz）: 加拿大卡车司机是英雄](/content/gnews/11/README.md)
+### [参议员特德·克鲁兹（Ted Cruz）: 加拿大卡车司机是英雄](/content/gnews/14/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【秘翻在线】拜登政府面临着取消口罩规定的压力](/content/gnews/12/README.md)
+### [【秘翻在线】拜登政府面临着取消口罩规定的压力](/content/gnews/15/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [瑞士Finanzen报道：瑞银无法阻止亿万富翁郭文贵在伦敦提起的法律诉讼](/content/gnews/13/README.md)
+### [瑞士Finanzen报道：瑞银无法阻止亿万富翁郭文贵在伦敦提起的法律诉讼](/content/gnews/16/README.md)
  ` 秘密翻译组-原创组`
 
-### [【#G时新闻】罗伯特·马龙博士警告儿童 COVID-19 疫苗风险](/content/gnews/14/README.md)
+### [【#G时新闻】罗伯特·马龙博士警告儿童 COVID-19 疫苗风险](/content/gnews/17/README.md)
  ` G-时新闻`
 
-### [北京冬奥俄罗斯普京团队住的酒店16人确诊感染](/content/gnews/15/README.md)
+### [北京冬奥俄罗斯普京团队住的酒店16人确诊感染](/content/gnews/18/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [有声|日本三井将发行与黄金挂钩的数字货币](/content/gnews/16/README.md)
+### [有声|日本三井将发行与黄金挂钩的数字货币](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [有声|大直播谈盘古龙头跟冬奥的关系](/content/gnews/17/README.md)
+### [有声|大直播谈盘古龙头跟冬奥的关系](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [有声|中共继续蓝金黄英国大学 开发或偷盗高科技武器](/content/gnews/18/README.md)
+### [有声|中共继续蓝金黄英国大学 开发或偷盗高科技武器](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [有声|支持卡车反疫苗运动 战友三条红线不可跨越](/content/gnews/19/README.md)
+### [有声|支持卡车反疫苗运动 战友三条红线不可跨越](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [有声|中共国的人口贩卖](/content/gnews/20/README.md)
+### [有声|中共国的人口贩卖](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [立陶宛、澳大利亚合作，共同对抗中共贸易胁迫](/content/gnews/21/README.md)
+### [立陶宛、澳大利亚合作，共同对抗中共贸易胁迫](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美共和党国会议员谴责NBC拒播其新疆人权广告](/content/gnews/22/README.md)
+### [美共和党国会议员谴责NBC拒播其新疆人权广告](/content/gnews/25/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2022年2月9日大直播速记精萃](/content/gnews/23/README.md)
+### [2022年2月9日大直播速记精萃](/content/gnews/26/README.md)
  ` 雅典娜GNotes`
 
-### [有声|2022年2月8日 晚 新中国联邦新闻、GTV新闻访谈简报](/content/gnews/24/README.md)
- ` MOSREC`
-
-### [辉瑞和FDA未能进一步推迟发布COVID疫苗安全数据](/content/gnews/25/README.md)
+### [辉瑞和FDA未能进一步推迟发布COVID疫苗安全数据](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [英国加入欧盟-中共国关于立陶宛事件的世贸组织争端解决机制](/content/gnews/26/README.md)
+### [英国加入欧盟-中共国关于立陶宛事件的世贸组织争端解决机制](/content/gnews/28/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [NBC体育分析师因未知原因提前从奥运会归国](/content/gnews/27/README.md)
+### [NBC体育分析师因未知原因提前从奥运会归国](/content/gnews/29/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [喜剧演员希瑟·麦克唐纳在演出期间倒地后颅骨骨折](/content/gnews/28/README.md)
+### [喜剧演员希瑟·麦克唐纳在演出期间倒地后颅骨骨折](/content/gnews/30/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [国王费利佩六世Covid检测呈阳性，将被隔离7天](/content/gnews/29/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [谷爱凌替中共夺冠体现中共对美国的极度渗透](/content/gnews/30/README.md)
+### [谷爱凌替中共夺冠体现中共对美国的极度渗透](/content/gnews/31/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [冬奥会运动员抨击COVID隔离酒店条件恶劣](/content/gnews/31/README.md)
+### [冬奥会运动员抨击COVID隔离酒店条件恶劣](/content/gnews/32/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [NFSC新闻、G|TV新闻访谈简报|2022年2月9日早](/content/gnews/32/README.md)
- ` 纽约香草山MOS01`
 
 ### [中共试图抢先打捞F35战机 偷盗美国技术](/content/gnews/33/README.md)
  ` NFSC News`

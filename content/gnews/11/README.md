@@ -2,107 +2,31 @@
 ---
 
 
-## 参议员特德·克鲁兹（Ted Cruz）: 加拿大卡车司机是英雄
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1981507/)
+## 这次冬奥开幕式就开成了共产党的结束的“闭幕式” (2022-02-06摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1981580/)
 
-[https://gtv.org/video/id=620413b0585ecc15d73f7cf2](https://gtv.org/video/id=620413b0585ecc15d73f7cf2)
+文编：Hima
+听写：叮叮
+视频：七哥
 
-Senator Ted Cruz: The Canadian truckers are heroes
-参议员特德.克鲁兹：加拿大卡车司机是英雄
+来源：郭先生2022-02-06直播08:29:56摘录
 
-It is theft on the part GoFundMe.
-这是 GoFundMe 的盗窃行为。
+这帮不要脸的东西！结果是25个国家，谁说25个国家？你给我数一数？真正的国家元首20几个国家，真正的到现场的、有实力的超过五个手指头了吗？这已经不是“冬眠会”了，真的已经不止“冬眠会”这么差了。任何一个有脑子的人都会知道，这次冬奥开幕式就开成了共产党的结束的“闭幕式”。中国人是2008年奥运会所有的成功，一秒之间在那奥运会上全完。你知道冬奥会咱这战友在里边，在冬奥会里面有规定不允许用苹果手机，全用华为手机。咱战友特聪明：“七哥，我给你发信息，为了他们不监控，你知道我用啥招？” 是吧？我随时知道冬奥会的什么情况、筹委会什么情况、运动员到场情况，包括有人专门收集所谓运动员的DNA，还有一个想办法给运动员收集那个那个那个的……这都是咱战友。他说：“七哥，你知道最后发生什么事情？运动员来的，到这来的几乎就没有任何有成就的运动员，” 他说： “但凡有点儿过去的成就都年龄偏大，就是过了黄金年龄的。” 而且他说 “咱们的马桶的尿是直接是集中收，大便集中收，这都是咱战友管的。所以不管你哪个元首去中国，从你开始到你最后走，收集你的尿和屎的、化验的、收集你的DNA的、在房间里吃什么的、有没有被人尿上、拉上的，七哥全在掌握。你觉得我是在吹牛吗？我有必要吹这牛吗？你给我钱吗？新中国联邦人这次可以这么说，主导了整个冬奥会的开幕式。我们很成功地让这些国家的运动员和这些元首们看清了中共、看清了冬奥会，让他们一生不会再跟共产党参加的任何所谓的国际仪式。
 
-Let me say the Canadian truckers are heroes
-让我说加拿大卡车司机们是英雄
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-They are patriots.
-他们是爱国者
+**关注我们**
 
-and they are marching for your freedom and for my freedom
-他们正在为你的自由和我的自由而游行
+Discord 账号
 
-That they are… Those truck drivers that God bless them.
-他们是……上帝保佑那些卡车司机们
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-They are defending Canada, but they are defending America as well.
-他们在保卫加拿大，但他们也在保卫美国
+Gettr 账号
 
-That is courage on display.
-这是一种勇气的展示。
-
-The government doesn’t have the right to force you to comply to their arbitrary mandates,
-政府无权强迫你遵守他们的武断命令
-
-They are standing up for freedom.
-他们在为自由挺身而出
-
-And of course big government hates it, so it is trying to crush them
-当然大政府讨厌它，所以试图粉碎他们
-
-Of course, the corporate media hates it, and it is trying to silence them.
-当然媒体讨厌它，并试图压制他们的声音。
-
-And big tech… look at what GoFundMe did
-还有大科技公司……看看 GoFundMe 做了什么
-
-People gave 10 million dollars to support the freedom convoy
-人们捐出 1000 万美元支持自由车队，
-
-because they were so proud of the courage of these truck drivers
-因为他们为这些卡车司机的勇气感到骄傲
-
-And the thieves and the Silicon Valley decided we don’t like your politics.
-而这些小偷们和硅谷认为我们不喜欢你的政治
-
-So A: we are going to take your money,
-所以 A：我们会拿走你的钱 ，
-and then B: we are going to give it to people we like
-然后 B：我们会把钱给我们喜欢的人
-
-Listen, if anyone else did that, that is called theft
-听着，如果其他人这样做了，那就叫盗窃
-
-And so today I sent a letter to the federal trade commission
-所以今天我给联邦贸易委员会（FTC）写了一封信
-
-asking that the FTC open an investigation into GoFundMe
-要求FTC对 GoFundMe 展开调查，
-
-into whether they have committed deceptive trade practices
-调查他们是否有欺诈性贸易行为
-
-Because when people gave money,
-因为当人们给钱的时候，
-they gave money under the promise it would go to the freedom convoy
-(GoFundMe)承诺把钱给自由车队，
-
-not to whatever left-wing political ideology (that) GoFundMe, another Silicon Valley company, support
-而不是给由一家硅谷公司（GoFundMe）所支持的任何左翼政治意识形态
-
-They are deceiving consumers and it is wrong
-他们是在欺骗消费者，这是错误的
-
-**原视频链接**: [https://twitter.com/sentedcruz/status](https://twitter.com/sentedcruz/status)
-
-Date: 2/6/2022
-原视频标题: Senator Ted Cruz: The Canadian truckers are heroes
-参议员特德·克鲁兹（Ted Cruz）: 加拿大卡车司机是英雄
-原视频日期：2/6/2022
-原视频链接: https://twitter.com/sentedcruz/status/1490461802639020036?s=24
-任务编号：KE390(3690)
-视频时间段 : 0:00-01:00
-
-中听校：洛杉矶盘古农场 -海潮
-翻译：洛杉矶盘古农场 – 海潮
-翻译终校：洛杉矶盘古农场 – Freeearth
-字幕+视频制作：洛杉矶盘古农场 –青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

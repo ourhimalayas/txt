@@ -2,20 +2,20 @@
 ---
 
 
-## 有声|支持卡车反疫苗运动 战友三条红线不可跨越
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1981420/)
+## 有声|日本三井将发行与黄金挂钩的数字货币
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1981435/)
 
 配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-盖特2月6日消息，郭文贵先生在回复各地战友参与支持卡车运动时表示，鼓励战友积极传播真相，同时发出“三条红线”不可跨越的警告。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+据国外媒体2月4日的消息，日本主要财团之一的三井物产株式会社，预计将在2月份发行与金价挂钩的数字货币ZPG，对零售投资者开放。其对应的黄金将由三井从伦敦金属交易所购入，一个ZPG等同于一克黄金。币价将由三井住友银行提供担保，对应以日元计价的黄金。
 
-一：在GTV上直播，不允许打着新中国联邦和爆料革命的旗帜支持卡车司机的暴力行动。
+ZPG大概是日本第一个与黄金挂钩的代币，但在全球范围内不是。ZPG最初会在三井交易所发行出售。
 
-二：不允许在采访时煽动卡车司机搞暴力行动。
+另外，三井还会开发使用此币的手机APP和其他交易系统，而买卖ZPG的客户都会被要求
 
-三：不允许使用GTV代表个人，发表鼓励、煽动暴力等行为。
+进行KYC审核，该币的交易则会在私人区块链上进行。
 
-文字版原文：[支持卡车反疫苗运动 战友三条红线不可跨越](https://gnews.org/zh-hans/1972987/)
+文字版原文：[日本三井将发行与黄金挂钩的数字货币](https://gnews.org/zh-hans/1978339/)
 
 音频处理/发稿：Daxia
 
@@ -28,8 +28,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
