@@ -2,31 +2,151 @@
 ---
 
 
-## 七哥谈“中国人骨子里就是崇洋媚外、崇强欺弱”（2022-02-06摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1981633/)
+## 两年来，CDC无视数据，甚至撒谎,将自然免疫当成阴谋论
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1981794/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+[https://gtv.org/video/id=6204153b585ecc15d73f7d61](https://gtv.org/video/id=6204153b585ecc15d73f7d61)
 
-来源：郭先生2022-02-06直播08:46:27摘录
+Rep. Thomas Massie
+托马斯·马西议员
 
-你别想太具体了，第一，共产主义的亲爹就是来自俄罗斯。现在俄罗斯的共产党虽然没有实权，但它还是世界上最大的共产主义大本营之一。共产主义就是邪恶的、独裁的、不受法律约束的、以为人民服务为名义的奴隶主制度。大家记住那国际歌吗？砸烂封建的社会。“起来不愿做奴隶的人们”，它那歌儿一唱，哇噻！唱歌的人都认为自己是奴隶，认为自己都要砸烂旧社会，自己都是奴隶主。我告诉你唱歌的都是奴隶。俄罗斯就是奴隶主的创造地，中共国骨子里边它对白人恨，但是人家西方的白人真不跟你玩儿，没几个人跟它玩儿的。它只能选择就是有点儿像白人的俄罗斯。而且俄罗斯又吃它这一套，愿意跟你勾兑，又是共产主义的来源。然后它拿着这个东西忽悠中国人，咱在世界不孤独。然后特别是俄罗斯有武器的优越性，它就来了。如果俄罗斯人穿的、吃的不是今天这个样子像白人的生活方式，和所谓的有托尔斯泰这样的大咖，有什么《卡秋莎》、《走在莫斯科郊外》的这些红歌，还有共产主义恩格斯、列宁那个长相、大胡子，共产党才不跟它玩儿呢。共产党就是找一个人得有个托词，名正言顺，而且让中国人觉得这个人种比咱强，这个朋友交得比咱棒。中国人交朋友 一定交有钱、有权的，谁爱交穷人啊？包括你们，没几个人交的，现在加入新中国联邦了，你发现要交有信仰的人，在这过去你不交穷人，你认为这是正确的，我不能交穷人。中国人骨子里就是崇洋媚外、崇强欺弱。所以这一系列的文化、信仰、宗教、历史原因就让共产党把俄爹。它摆来摆去找了那么多爹，就这一个爹最合适、适合它。而且这个爹越虐它，虐它千遍不厌倦，它享受在其中。那么共产党既无这个能力，它经济上无这样的能力、组织上的能力、加上内部的仇恨，就导致冬奥会今天你看到这个荒唐的结果。
+One of the biggest scandals during this whole pandemic, is the cover up
+在整个大流行期间, 最大的丑闻之一就是掩盖
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+That’s been committed by Fauci and the CDC, especially the CDC
+福奇和疾病预防控制中心已经承认，尤其是疾病预防控制中心
 
-**关注我们**
+about the effectiveness of immunity that’s conferred after a natural infection
+关于自然感染后赋予的免疫力的有效性
 
-Discord 账号
+after you recover from that
+在你从自然感染中恢复后
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+they’ve completely ignored that
+他们完全忽略了这一点
 
-Gettr 账号
+They want everybody to get vaccinated
+他们希望每个人都接种疫苗
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+even those who don’t need vaccinated
+即使是那些不需要接种疫苗的人
+
+and the science if you follow the science on this
+关于科学，如果你遵循这方面的科学
+
+The Moderna trial showed there was no benefit of the vaccine to those who recov-ered from infection
+莫德纳试验表明，疫苗对那些从感染中恢复过来的人没有好处
+
+The Pfizer trial showed there was no benefit to those who had recovered from in-fection from the vaccine
+辉瑞的试验表明，疫苗对那些从病毒感染中恢复过来的人没有任何好处
+
+A recent study with 52,000 people at the Cleveland Clinic
+最近在克利夫兰诊所对52,000人进行的一项研究表明
+
+300 plus of whom did not receive the vaccine
+其中1300多人没有接种疫苗
+
+but had prior infection showed that none of them got reinfected, symptomatically
+但之前曾经感染过，结果表明他们没有人再次感染，或有症状
+
+and then if you want to compare the efficacy of immunity from recovering from COVID to that of the vaccine
+然后如果你想比较从 COVID 中恢复的免疫力与疫苗的功效
+
+the biggest study out there is the whole country of Israel
+最大的研究的国家是整个以色列
+
+Tel Aviv University, 6 million participants in this study, 6 million data points
+以色列特拉维夫大学的600万参与者参与了这项研究，600 万个数据点
+
+And it showed there’s virtually no difference actually is it showed a little bit
+它表明实际上几乎没有差异，它显示了一点
+
+but probably not statistically significant, a little bit better
+但可能没有统计学意义，对自然感染的免疫力要好一点
+
+immunity from natural infection and before you all report this
+在你们所有人报告之前
+
+I’m not saying go out and get the virus instead of getting the vaccine
+我不是说出去感染病毒而不去接种疫苗
+
+The vaccine can save lives and certain
+疫苗可以挽救生命和肯定的
+
+but there’s no need, the science shows this
+但没必要，科学证明了这一点
+
+There’s no need to get the vaccine if you’ve already recovered from COVID
+如果您已经从COVID中康复，则无需接种疫苗
+
+And then there’s no need to expose yourself to that danger
+然后就没有必要让自己暴露在那种危险之中
+
+The CDC knows this, they admitted to me on a recorded phone call
+疾病预防控制中心知道这一点，他们通过录了音的电话向我承认了这一点
+
+I’ll be glad to give you that they knew they were misreporting the results of the Pfizer data
+我很高兴告诉你他们知道他们误报了辉瑞数据的结果
+
+Reporter
+记者
+
+Number one you didn’t answer whether or not you’ve been vaccinated
+第一个你没有回答你是否接种过疫苗
+
+Rep. Thomas Massie
+托马斯·马西议员
+
+Well first of all, it’s none of your business
+好吧，首先，这不关你的事
+
+But I’m going to tell you, I’m not vaccinated
+但我要告诉你，我没有接种疫苗
+
+And until there’s some science
+直到有一些科学依据
+
+by the way I have a Master’s of Science degree from MIT
+顺便说一句，我拥有麻省理工学院的理学硕士学位
+
+I’m not a virologist, but I can read data
+我不是病毒学家，但我可以读取数据
+
+Everybody just needs to read it
+每个人只需要阅读它
+
+Don’t put your head in the sand. Look at the data.
+不要把头埋在沙子里，看看数据
+
+I’m not going to get the vaccine until there’s data that shows
+我不会接种疫苗，直到有数据表明
+
+that it will improve upon the immunity
+它会提高免疫力
+
+that’s been conferred to me as a result of a natural infection that I had
+由于我的一次自然感染，而我被授予了这一权利
+
+**原视频链接**[:](https://twitter.com/repthomasmassie/status)[https://twitter.com/repthomasmassie/status](https://twitter.com/repthomasmassie/status)
+
+Date:02/06/2022
+原视频标题: For 2 years, CDC ignored the data and even lied about it to treat natural immunity like a conspiracy theory
+两年来，CDC无视数据，甚至撒谎，将自然免疫当成阴谋论
+原视频日期：2022/02/08
+原视频链接https://twitter.com/repthomasmassie/status/1490783499883847680?s=24
+任务编号：KE392(3699)
+视频时间段 : 0:00-2:34
+
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场- 银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -2,15 +2,12 @@
 ---
 
 
-## 不允许以新中国联邦的名义参加任何国家的抗议和政治活动
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1981897/)
+## 韩国96%疫苗接种率 新增中共病毒却创新高
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1981989/)
 
-文编：东京樱花团/樱花传媒
-视频:东京樱花团/中文小视频组
-
-2月6日，郭文贵先生在GTV大直播透露，大规模大卡车抗议运动最终会引发政治冲突，甚至有可能被认定为暴动。所以在此郭先生郑重指出，未经允许，决不能以新中国联邦名义参加任何国家的抗议和政治运动，不可以使用GTV直播。擅自行为会被中共所利用，中共会借此攻击新中国联邦，会给战友们带来巨大伤害。
-
-*编辑、发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/20220210-1-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 

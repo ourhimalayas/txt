@@ -2,160 +2,85 @@
 ---
 
 
-## 疫苗不仅会伤害癌症免疫力，还会形成相对低效的免疫力
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1981600/)
+## 2022年2月9日文贵先生直播摘要及音频—银河系农场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1981675/)
 
-[https://gtv.org/video/id=62041491585ecc15d73f7d41](https://gtv.org/video/id=62041491585ecc15d73f7d41)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/封面-7.jpg)
+盖特连接：[2022年2月9日 文贵大直播：习普政治困局；中美俄三角斗；药厂政策调整；药厂政府互掐；何为全球货币；七哥个人生活](https://gettr.com/streaming/ptgw8b5f32)
 
-Dr. Harvey Risch (Professor of Epidemiology at Yale University)
-哈维·里施博士（耶鲁大学流行病学教授）
+GTV连接：[2022年2月9日 文贵大直播：UBS正式立案 打响沼泽地的第一仗；习普政治困局；中美俄三角斗；药厂政策调整；药厂政府互掐；何为全球货币；七哥个人生活](https://gtv.org/video/id=6203b7b13621aa7415d80e9e)
 
-People who’ve had COVID and then get vaccinated
-感染过新冠病毒然后接种疫苗的人
+1、外交部官宣出席的沙特王子和某一王室成员没有来。戴口罩想蒙骗过场；
 
-have lower levels of anti nucleocapsid antibodies
-具有较低水平的抗核衣壳抗体
+2、冬奥会中美关系回暖：中共承若购买5千亿美元的物资，要求美国任命沈阳驻中国大使；
 
-And this means that since the vaccines don’t address the nucleocapsid antigens
-这意味着由于疫苗不针对核衣壳抗原
+3、普京愤怒离京告诉王毅杨洁篪，冬奥会烟花和大屏幕美轮美奂，现场你控制了，但是副作用你们想到了吗？现场根本没有人；
 
-they only address the spike
-他们只解决刺突蛋白问题
+4、针对中共的欧洲版贸易法案马上推出，普京见完习近平后见法国马克龙，谈话原定3小时变成5小时；
 
-It means that they’re doing something that’s damaging the immune response
-这意味着他们正在做一些破坏免疫反应的事情
+5、法国马克龙愿意买3千亿天然气，求普京别打乌克兰；
 
-in a more general way than just what they do with a spike
-以更一般的方式，而不是他们对刺突蛋白所做的事情
+6、说明俄罗斯利用这一出和欧洲交易了，既拿了中共的钱又卖了习近平；
 
-And this is empirical data that public health UK has published
-这是英国公共卫生部门公布的经验数据
+7、全世界的主流媒体都在一本正经严肃地叫你打疫苗，直到打死拉倒；
 
-So we know that this is happening
-所以我们知道这正在发生
+8、新加坡战友睡着了被老婆打了疫苗针，嘴歪、大便失禁！
 
-It’s not a theoretical issue about all the niceties of laboratory biology and neurology of things
-这不是关于实验室生物学和神经病学所有细节的理论问题
+9、今天的三件大事:
 
-That could happen
-那可能会发生
+1）UBS正式立案，与沼泽地的挑战打响了第一枪；
 
-It’s a real thing that’s been really observed by their testing
-这是他们的测试真正观察到的真实事物
+2）要前往英国，日本生活，在离中国更近的地方灭共；
 
-Del Matthew Bigtree (American television and film producer)
-德尔·里马修·毕吹（美国电视和电影制片人）
+3）正在申请法律程序，要变的一无所有；
 
-I mean, a lot of us known Dr. Harvey Risch, because he is you know
-我的意思是，我们很多人都认识哈维·里施博士，因为他就是你知道的
+10、UBS是CCP的半个财富帝国！罗斯柴尔德与UBS比，只能排第三；
 
-one of the go to’s on Fox News, but just want to show his CV
-他是经常在福克斯新闻上讨论热门话题的人之一，但只想展示他的简历
+11、UBS是沼泽地的核心！其存款黑钱起码100万亿美元以上，过去人类500年的财富；
 
-I mean, this just when you look at this, folks
-我的意思是，当你看到这个的时候，伙计们
+12、UBS是CCP唯一批准的独立经营牌照的金融机构！
 
-this thing is 73 pages long we could spend the rest of the day showing you how much
-这东西有73页长，我们可以用剩下的时间给你看
+13、从大清朝、国民党到共产党，这期间的黑钱绝大部分都藏在了瑞银。可以从这里至少能找回50万亿美元，中国人现在所有的负债至少可以免10次；
 
-you know, Dr. Harvey Risch is achieved in his career
-你知道，哈维·里施博士在他的职业生涯中取得了成就
+14、2025年前，文贵先生要把共产党的钱弄回来；
 
-And so when we hear the pejorative thrown at you guys
-所以当我们听到对你们的贬义的时候
+15、比亚迪融资，罗斯柴尔德投资，然后罗斯柴尔德银行，接着巴菲特就投资了，这里面没有沼泽地背书，想融资没可能；
 
-you know that oh, they’re just extremist or fringe doctors
-你知道哦，“他们只是一些极端分子或边缘医生”
+16、罗斯柴尔德、德意志银行、高盛、华尔街、UBS等等就是放高利贷的沼泽地，PAG就是中国的高盛；
 
-You guys are some of the most mainstream doctors in the world as we know it
-正如我们所知，你们是世界上最主流的医生
+17、瑞士、卢森堡藏了全世界99%钱；
 
-So when he was saying when he’s talking about the immune system and nucleocap-sid
-所以当他谈到免疫系统时和核衣壳
+18、排华最严重：俄罗斯、东南亚、非洲；
 
-for layman’s, what does that mean?
-对于外行来说，这是什么意思？
+19、大直播继续、文贵先生有可能申请个人破产；
 
-Richard Urso, MD
-理查德·乌索，医学博士
+20、两件事：灭共、不打疫苗；
 
-So So what what’s being thrown at us is, again, the Superman super immunity
-那么，再次扔给我们的是什么？是超人？超级的免疫力？
+**注：大直播音频正在制作和上传中，敬请关注——**
 
-So if you get the virus and then you get the vaccine
-所以如果你感染了病毒，然后你接种了疫苗
+**（大直播音频位置）**
 
-you’ll have super immunity
-你就会拥有超强免疫力
+编辑整理：文俊；
 
-No, you don’t, and he points that out
-不，你没有，他指出了这一点
+发布：黎明之前
 
-And there’s a couple of scary things
-还有一些可怕的事情
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-Not only do you not get super immunity
-不仅没有超强免疫力
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
 
-but you get attack on p53 and BRCA genes
-但是你会受到p53和BRCA基因的攻击
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-These are your mutation suppressor genes are called tumor suppressor genes
-这些是你的突变抑制基因被称为肿瘤抑制基因
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-These have been attacked by the spike protein
-这些已被刺突蛋白攻击
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-The paper was cited I cited it on on after Harvey finished talking
-哈维说完之后我引用了这篇论文
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-Yeah
-是呀
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-Richard Urso
-理查德·乌
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-the other thing that’s happening
-正在发生的另一件事
-
-the toll-like receptor 7/8 are getting attacked
-toll-like受体 7/8 受到攻击
-
-That is important for T cell surveillance and your immune system
-这对T细胞监测和免疫系统很重要
-
-That’s not a good thing for your for the spike protein is doing that after the vac-cinations
-这对你来说不是一件好事，因为刺突蛋白在接种疫苗后会这样做
-
-So what he’s there what he’s addressing is not only his natural immunity denial ri-diculous
-因此，他在那里所讨论的不仅是他的自然免疫力被否定的荒谬问题
-but to say we have super immunity
-而且说我们有超强免疫力
-
-It’s actually in some cases the antibody production is going also in a way towards the spike
-实际上，在某些情况下，抗体的产生也在朝着刺突蛋白的方向发展
-
-rather than the nucleocapsid which is more superior immunity
-而不是核衣壳，而核衣壳的免疫力更优越
-
-Date:02/06/2022
-原视频标题: Vaccines not only hurt cancer immunity, but also form relatively inefficient immunity
-疫苗不仅会伤害癌症免疫力，还会形成相对低效的免疫力
-原视频日期：2022/02/08
-原视频链接:https://gettr.com/post/psmk0gaadf
-任务编号：KE391（3698）
-视频时间段 : 0:00-2:14
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

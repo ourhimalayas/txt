@@ -2,151 +2,34 @@
 ---
 
 
-## 两年来，CDC无视数据，甚至撒谎,将自然免疫当成阴谋论
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1981794/)
+## 拜登政府二度批准对台军售
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1981861/)
 
-[https://gtv.org/video/id=6204153b585ecc15d73f7d61](https://gtv.org/video/id=6204153b585ecc15d73f7d61)
+**撰稿：日本东京方舟农场  幽蘭自得**
 
-Rep. Thomas Massie
-托马斯·马西议员
+2月7日，美国国务院宣布，基于《台湾关系法》，已批准对台湾出售价值1亿美元丶为期5年的爱国者系统工程勤务计划相关的军事设备与服务。这是拜登政府上台后，第二次核准对台湾的军售。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-148.jpg)（图片来自路透社）
+据《德国之声》报道，美国国务院政军局在一份声明稿中表示，这次军售将会有助于台湾维持其飞弹密度丶确保台湾的空中作战战备能力，以达到区域吓阻作用。
 
-One of the biggest scandals during this whole pandemic, is the cover up
-在整个大流行期间, 最大的丑闻之一就是掩盖
+据悉，这次军售主要是提供支持台湾参与爱国者飞弹工程勤务及飞弹效能鉴测的相关设备与服务，为期共5年，提供的协助包含工程服务支援，以及维持与改善爱国者防空飞弹系统。
 
-That’s been committed by Fauci and the CDC, especially the CDC
-福奇和疾病预防控制中心已经承认，尤其是疾病预防控制中心
+美国国务院政军局也重申，核准这次军售是为了使台湾的军队持续现代化且保持可靠的防御能力，因为这样的发展符合美国的国家丶经济与安全利益。
 
-about the effectiveness of immunity that’s conferred after a natural infection
-关于自然感染后赋予的免疫力的有效性
+美国国务院还表示，这批军售案能有助于提高台湾的安全，并对维持区域政局稳定丶军事平衡和经济进步都有帮助。
 
-after you recover from that
-在你从自然感染中恢复后
+随后，台湾国防部于2月8日发布新闻稿表示，美国政府已针对军售案进行“知会国会”的程序，表示该案有望在1个月后正式生效。
 
-they’ve completely ignored that
-他们完全忽略了这一点
+此外，台湾国防部还说美国此举是基于《台湾关系法》与“六项保证”，持续帮助台湾维持足够的自我防卫能力，所以台湾国防部也向美国政府表示感谢。
 
-They want everybody to get vaccinated
-他们希望每个人都接种疫苗
+台湾外交部也在同日发布声明，强调这次军售是拜登政府自2021年上任以来，第二度的对台军售，也是2022年的首次对台军售，此举充分展现了华府对台湾国防的高度重视，也持续近年来美国对台军售常态化的政策，让台湾能即时获取防卫所需装备，有效提升吓阻能力。
 
-even those who don’t need vaccinated
-即使是那些不需要接种疫苗的人
+据报道，在去年8月的首次对台军售案中，拜登政府核准贩售台湾40门M109A6自走炮丶20辆M992A2系列野战炮兵弹药补给车与一套先进野战炮兵战术数据系统（AFATDS），当时的军售总额是7亿5000万美元。
 
-and the science if you follow the science on this
-关于科学，如果你遵循这方面的科学
+参考链接：[https://www.dw.com/zh/%E6%8B%9C%E7%99%BB%E6%94%BF%E5%BA%9C%E4%BA%8C%E5%BA%A6%E6%89%B9%E5%87%86%E5%AF%B9%E5%8F%B0%E5%86%9B%E5%94%AE-%E5%8C%97%E4%BA%AC%E5%BC%BA%E7%A1%AC%E5%9B%9E%E5%BA%94/a-60692312](https://www.dw.com/zh/%E6%8B%9C%E7%99%BB%E6%94%BF%E5%BA%9C%E4%BA%8C%E5%BA%A6%E6%89%B9%E5%87%86%E5%AF%B9%E5%8F%B0%E5%86%9B%E5%94%AE-%E5%8C%97%E4%BA%AC%E5%BC%BA%E7%A1%AC%E5%9B%9E%E5%BA%94/a-60692312)
 
-The Moderna trial showed there was no benefit of the vaccine to those who recov-ered from infection
-莫德纳试验表明，疫苗对那些从感染中恢复过来的人没有好处
-
-The Pfizer trial showed there was no benefit to those who had recovered from in-fection from the vaccine
-辉瑞的试验表明，疫苗对那些从病毒感染中恢复过来的人没有任何好处
-
-A recent study with 52,000 people at the Cleveland Clinic
-最近在克利夫兰诊所对52,000人进行的一项研究表明
-
-300 plus of whom did not receive the vaccine
-其中1300多人没有接种疫苗
-
-but had prior infection showed that none of them got reinfected, symptomatically
-但之前曾经感染过，结果表明他们没有人再次感染，或有症状
-
-and then if you want to compare the efficacy of immunity from recovering from COVID to that of the vaccine
-然后如果你想比较从 COVID 中恢复的免疫力与疫苗的功效
-
-the biggest study out there is the whole country of Israel
-最大的研究的国家是整个以色列
-
-Tel Aviv University, 6 million participants in this study, 6 million data points
-以色列特拉维夫大学的600万参与者参与了这项研究，600 万个数据点
-
-And it showed there’s virtually no difference actually is it showed a little bit
-它表明实际上几乎没有差异，它显示了一点
-
-but probably not statistically significant, a little bit better
-但可能没有统计学意义，对自然感染的免疫力要好一点
-
-immunity from natural infection and before you all report this
-在你们所有人报告之前
-
-I’m not saying go out and get the virus instead of getting the vaccine
-我不是说出去感染病毒而不去接种疫苗
-
-The vaccine can save lives and certain
-疫苗可以挽救生命和肯定的
-
-but there’s no need, the science shows this
-但没必要，科学证明了这一点
-
-There’s no need to get the vaccine if you’ve already recovered from COVID
-如果您已经从COVID中康复，则无需接种疫苗
-
-And then there’s no need to expose yourself to that danger
-然后就没有必要让自己暴露在那种危险之中
-
-The CDC knows this, they admitted to me on a recorded phone call
-疾病预防控制中心知道这一点，他们通过录了音的电话向我承认了这一点
-
-I’ll be glad to give you that they knew they were misreporting the results of the Pfizer data
-我很高兴告诉你他们知道他们误报了辉瑞数据的结果
-
-Reporter
-记者
-
-Number one you didn’t answer whether or not you’ve been vaccinated
-第一个你没有回答你是否接种过疫苗
-
-Rep. Thomas Massie
-托马斯·马西议员
-
-Well first of all, it’s none of your business
-好吧，首先，这不关你的事
-
-But I’m going to tell you, I’m not vaccinated
-但我要告诉你，我没有接种疫苗
-
-And until there’s some science
-直到有一些科学依据
-
-by the way I have a Master’s of Science degree from MIT
-顺便说一句，我拥有麻省理工学院的理学硕士学位
-
-I’m not a virologist, but I can read data
-我不是病毒学家，但我可以读取数据
-
-Everybody just needs to read it
-每个人只需要阅读它
-
-Don’t put your head in the sand. Look at the data.
-不要把头埋在沙子里，看看数据
-
-I’m not going to get the vaccine until there’s data that shows
-我不会接种疫苗，直到有数据表明
-
-that it will improve upon the immunity
-它会提高免疫力
-
-that’s been conferred to me as a result of a natural infection that I had
-由于我的一次自然感染，而我被授予了这一权利
-
-**原视频链接**[:](https://twitter.com/repthomasmassie/status)[https://twitter.com/repthomasmassie/status](https://twitter.com/repthomasmassie/status)
-
-Date:02/06/2022
-原视频标题: For 2 years, CDC ignored the data and even lied about it to treat natural immunity like a conspiracy theory
-两年来，CDC无视数据，甚至撒谎，将自然免疫当成阴谋论
-原视频日期：2022/02/08
-原视频链接https://twitter.com/repthomasmassie/status/1490783499883847680?s=24
-任务编号：KE392(3699)
-视频时间段 : 0:00-2:34
-
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场- 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+素材采编：幽蘭自得
+编辑：老孙
+发布：爱放飞
 
  
 

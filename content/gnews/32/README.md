@@ -2,32 +2,34 @@
 ---
 
 
-## 美共和党国会议员谴责NBC拒播其新疆人权广告
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1981355/)
+## 【秘翻在线】拜登政府面临着取消口罩规定的压力
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1981506/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/eed963fe-6e23-4919-8690-0c125d227e0a_cx0_cy10_cw0_w1023_r1_s.jpg)图片来源：美国之音
-据美国之音2月9日报道，美国国会共和党联邦众议员华尔兹谴责美国全国广播公司（NBC）拒绝在冬奥会期间播放一则由他和NBA球星坎特共同录制的、指责美国企业漠视中共国人权侵犯问题的电视广告。NBC要求他们将广告中被指为“种族灭绝奥运赞助商”的美国企业品牌标志移除，才能播放他们的广告。
+**撰稿：Grace**
 
-在广告中榜上有名的美国企业包括可口可乐、宝洁、维萨、爱彼迎、英特尔和耐克。这些赞助商已经成为中共国人权侵犯的“共谋”。华尔兹呼吁美国民众抵制这些厂牌，作为对这些企业漠视中共国人权侵犯问题的反制。
+**校对：Grace**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-07-at-3.47.40-PM-1.jpeg)图片来源：bronx.news 12
+据《每日邮报》2月9日报道，在民主党领导的四个州本周早些时候开始取消口罩限制后，拜登政府面临着取消口罩规定的压力。
 
-身为众议院军事委员会成员的华尔兹，同时也是众议院共和党中共国工作组的一员。华尔兹曾在2021年呼吁国际奥委会将2022冬季奥运会从北京移师他地举行。华尔兹与民主党联邦众议员瓦克斯顿上个月联袂提案，取消国际奥委会在美国的免税资格，作为对该组织漠视中共国政府人权侵犯问题的反制措施。
+据报道，加利福尼亚州、康涅狄格州、特拉华州、新泽西州和俄勒冈州的民主党州长周一都宣布计划取消室内和/或学校的口罩规定。
 
-2022年北京冬季奥运会2月4日开幕，获得全美独家赛事转播权的NBC仅获得了1600万的观众量，创下历史纪录。相比较4年前韩国平昌冬季奥运会开幕式的观众收看人数下跌43%。
+加州(California)州长加文·纽森(Gavin Newsom)宣布，该州将在下周取消对接种疫苗者的室内口罩规定。
 
-一边是花费巨资打造的一场美轮美奂的奥运胜景，假雪景、假滑道、假盛世；另一边是种族灭绝、强暴、奴隶劳动，但却是真实发生的。一真一假刺痛了全世界正义者的眼睛。同一片天空下，同一个时空、同时上演这样的剧情。有中共的地方，假的像真的，真的不能直视。中共国人民被监控、被洗脑，盲目欢乐，西方贪婪的投资者们还在从中共国吸血、盈利。NBC与国际奥委会签署的转播合约金额高达77亿5千万美元，合约有效期到2032年奥运会。这一次NBC定将赔掉所有预期的利润。无数的事实已经证明：跟着共产党，走进火葬场，不仅输得倾家荡产，还要赔上身家性命。
+康涅狄格州(Connecticut)州长内德·拉蒙特(Ned Lamont)说，学校和托儿所的全州口罩规定将于2月28日结束。
 
-新闻参考链接：[https://www.voachinese.com/a/us-rep-waltz-nbc-refusal-olympics-ad-20220208/6433705.html](https://www.voachinese.com/a/us-rep-waltz-nbc-refusal-olympics-ad-20220208/6433705.html)
+特拉华州(Delaware)州长约翰·卡尼(John Carney)宣布，普遍的室内口罩规定将于周五结束，学校的规定将于3月31日到期。
 
-* * *
+新泽西州(New Jersey)州长菲尔·墨菲(Phil Murphy)说，他将在3月7日取消全州范围内的在校学生的口罩命令。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+俄勒冈州（Oregon）州长凯特·布朗(Kate Brown)说，她的州的室内和学校范围的口罩规定将于3月31日结束。
 
+白宫新闻秘书珍·普萨基(Jen Psaki)周二说: “我们希望各州的领导人会看一看关于正在发生的事情的科学和数据。他们将对当地学区做出决定。”
 
-编辑：【英国伦敦喜庄园编辑部】
+报道称，美国的中共病毒Covid-19病例在过去七天里下降了43%，每天记录267,765例，低于一周前的469,770例。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**新闻来源：[Biden Under Pressure to End Mandates as Dem States Lift Restrictions](https://www.newsmax.com/politics/covid-19-mandates-masks-biden/2022/02/08/id/1056045/)**
+
+[Biden v the blue states: Psaki says it is up to school districts to decide mask mandates and there are leaders STOPPING them after four Democrat governors dropped classroom rules](https://www.dailymail.co.uk/news/article-10489735/Biden-urged-roll-COVID-restrictions-FOUR-Dem-governors-announced-end-school-masking.html)
 
  
 
