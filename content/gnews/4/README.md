@@ -2,20 +2,24 @@
 ---
 
 
-## 共产党冬奥会的假
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1982363/)
+## 瑞银无法阻止郭先生在伦敦起诉
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1982405/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-153.jpg)
+图片来源： gnews.org
 
-发布：陶子
+路透社2月9日报道，瑞士银行UBS(瑞银)在阻止中国商人郭文贵先生对其起诉的努力宣告失败，后者于周三将案子成功递交伦敦高级法院并立案。
 
-更多资讯，请关注：
-澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena
-澳大利亚墨尔本农场Gettr：himalayaathena
-澳大利亚墨尔本雅典娜农场YouTube
-澳大利亚墨尔本雅典娜农场Discord
-澳大利亚墨尔本雅典娜农场GTV直播1台
+伦敦法官总结说伦敦瑞银在文贵先生和其他申诉者在法律诉讼中明显参与了有害性的活动。法官说：“根据伦敦瑞银的解除该案的申请，我宣誓这个法庭对索赔人的申诉有管辖。”
+
+该起诉围绕在文贵先生和其他申诉者说瑞银无视他们在有关中国金融机构海通的股票买卖中的权益。
+
+##### 新闻来源： [UBS loses bid to stop Guo’s London lawsuit](https://www.reuters.com/article/ubs-guo/ubs-loses-bid-to-stop-guos-london-lawsuit-idUSL8N2UK4JN)
+
+#  
+
+
 
  
 

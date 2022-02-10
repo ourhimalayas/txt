@@ -2,27 +2,30 @@
 ---
 
 
-## 有声|NFSC新闻、G|TV新闻访谈简报|2022年2月7日早
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1982257/)
+## 我与青蒿素
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1982277/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-6.png)
+撰稿：东京樱花团/百灵鸟
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-151.jpg)
+我是去年11月份在亚麻逊美国网站购买，Zazzee Artemisininin, 每粒100毫克，120粒，24.77美元一瓶。买了两瓶，配送费$12.13，进口关税$6.78，合计$68.45，平均$34.23瓶。
 
+我听说一位朋友打了疫苗，我送了她一瓶青蒿素，这个比较紧急。
 
-文字版原文：[NFSC新闻、G|TV新闻访谈简报|2022年2月7日早](https://gnews.org/zh-hans/1971342/)
+另一个朋友，没打疫苗。我发现他的皮肤有严重紫斑，他说五年前就这样，那时在工厂做事，经常这里一块变紫那里一块变紫，但是血液检查也正常。我让他还是再去做个检查，检查结果还是看不出问题。我给了他青蒿素。他吃了以后，皮肤明显好转。手腕上紫斑淡了很多，后背又白又嫩，与以前完全不同。
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+我自己服用青蒿素，按照保健用量，每天一粒。刚开始觉得皮肤柔软，嗜睡，焦虑症即刻消失。我有甲亢病史，以前甲亢犯病时经常彻夜不眠。近期也有焦虑症，一丁点压力都承担不了，连呼吸都感到困难。可是服用青蒿素之后，焦虑症没有了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+在听了新中国联邦战友美国医学博士Eglise医生建议后，停用青蒿素一周，先补维生素铁一周后，继续青蒿素，不再有嗜睡了。每天正常睡眠且经常有梦。我年轻时候经常有梦，年龄大了梦少了很多。以前甲亢病犯的时候我经常彻夜不眠。现在睡眠质量很好。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+自从服用青蒿素以后，不仅皮肤柔软滋润，身体从未有过的快感，还有意想不到的快乐。
+
+目前我服用一周青蒿素，休息一周。
+
+感谢青蒿素发明者屠呦呦，及信息传播者郭先生，让我及家人健康快乐幸福。
+
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
