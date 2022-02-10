@@ -2,29 +2,23 @@
 ---
 
 
-## 有声|台湾陆委会坚决反对中共虚假的民主协商
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1982521/)
+## 全球供应链危机将灾难性延续
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1982535/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月6日，据台湾媒体报道，中共国政协主席汪洋此前一天与国民党前主席洪秀柱进行了会面。会上，汪洋声称，中共愿意与台湾各界开展“民主协商”。对此，台湾大陆委员会在一份声明中指出，中共政府所谓的“民主协商”就是妄图消灭中华民国台湾的协商，因此，台湾各界在与中共进行交流时应密切注意，并谨慎防范中共当局的统战分化操作。
+采编/编译撰稿：自由法兰西                 校对编辑：硫酸羟氯喹64
 
-陆委会表示，中共当局近期正在利用北京冬奥会进行统战宣传工作。其中，中共一直试图透过与相关国家或台湾方面人士的互动提倡其所谓的“一中原则”。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Supply-chain-hero-1500x798-_2-800x425.jpeg-edited.jpg)图片来源：thenationalpulse
 
-文字版原文：[台湾陆委会坚决反对中共虚假的民主协商](https://gnews.org/zh-hans/1980211/)
 
-音频处理/发稿：Daxia
+据美国媒体《国家脉动》2月7日报道，由于动荡的亚洲局势、堵塞的海运港口，受阻的卡车运输以及短缺的劳工等因素，打击全球经济的供应链危机将会灾难性持续到明年或更长的时间。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+报道指出，全球失控的疫情以及一触即发的台海战争，导致国际间各大货运港处于滞胀状态，货物堆积如山的同时，航运期限也因此成倍增加。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+此外，美加两国货运卡车司机发起的大规模反政府防疫政策的抗议活动，进一步加剧了运输成本的暴涨，并导致北美卡车货运行业因此陷入困境。 同时，由于劳工的严重短缺冲击着供应链各个环节，因此最终将造成整个供应链的纷纷断裂。
 
+发稿：文明(添草灭共)
+
+[新闻链接](https://thenationalpulse.com/2022/02/07/nelles-those-transitory-supply-chain-issues-uh-theyre-here-for-a-while-and-heres-why/)
 
  
 

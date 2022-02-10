@@ -2,20 +2,39 @@
 ---
 
 
-## 美新任驻日本大使发推表示支持日本
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1982425/)
+## 加拿大废除使用疫苗护照势不可挡
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1982445/)
 
-撰稿：东京樱花团｜待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-987.png)[*图片来源*](https://gdb.voanews.com/110a09f6-21fb-42ca-bc3d-cd6614fce203_w1200_r1.jpg)
-据日本产经新闻2月10日消息：外交部长林芳正在2月10日的新闻发布会上说：美国新任驻日大使拉姆-伊曼纽尔在推特上发帖，称美国自20世纪50年代以来一直承认日本对北方四岛的主权，以此表达对日本立场的支持。对此，我们表示欢迎。
+采编/编译：Spirit            编辑撰稿：硫酸羟氯喹64
 
-２月7日是“北方领土日”。伊曼纽尔在推特上写道：我想说清楚一件事，美国在北方领土问题上是支持日本的。 同时还分享了一段视频，并在视频中说：美国自20世纪50年代以来一直承认日本对北方四岛的主权。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot_20220209-230626_Samsung-Internet-edited.jpg)图片来源：Twitter
 
-信息来源：[**外相、北方領土「日本に主権」の米大使ツイート歓迎（産経新聞）**](https://news.yahoo.co.jp/articles/4150e85d3a1b7df142de07c8b482eda051df2124)
 
-*校对：东京樱花团/東洋武士*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+加拿大保守党议员波里耶夫于2月8日在其社交媒体上声称：由于各省政府都在积极计划停止使用百害而无一利的疫苗护照以及逐步取消各项疫情限制措施，因此，自由的力量正在席卷该国！
+
+此外，该项声明还支持魁省自由党议员莱特邦德，于日前公开谴责特鲁多当局在处理疫情中的独裁专政，以及面对民意时的倒行逆施。并呼吁各界应摒弃党派之争，共同结束疫苗强制接种、疫苗护照和所有违宪封锁措施。
+
+最后，这位于2月5日宣布将竞选加拿大总理的保守党议员激动表示：鉴于阿尔伯塔省将于当晚午夜取消疫苗护照，可见反抗特鲁多的民意正在取得胜利！
+
+校对编辑：硫酸羟氯喹64
+
+发稿：文明(添草灭共)
+
+新闻来源: https://twitter.com/PierrePoilievre/status/1491179433033879553
+
+
+
+> BREAKING: Vaccine passports gone at midnight in Alberta.
+> 
+> La liberté gagne! 
+> 
+> Continue!
+> 
+> Sign my petition to end mandates nationwide: [https://t.co/EgtSLvWWlC](https://t.co/EgtSLvWWlC) [pic.twitter.com/zallZQcynU](https://t.co/zallZQcynU)
+> — pierrepoilievre (@PierrePoilievre) [February 9, 2022](https://twitter.com/PierrePoilievre/status/1491241931103481857?ref_src=twsrc%5Etfw)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

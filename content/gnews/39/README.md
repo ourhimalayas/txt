@@ -2,23 +2,21 @@
 ---
 
 
-## 梵蒂冈支持加拿大卡车司机反疫苗护照运动
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1982199/)
+## 雅典娜时报-第200期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1982198/)
 
-采编/编译撰稿： 苦尽甜来 (文來）                      校对编辑：硫酸羟氯喹64
+#### **《雅典娜时报》汇聚全球新闻时事**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Archbishop_Carlo_Maria_Vigano-810x500-1-edited.jpg)图片来源：lifesitenews
+#### 编辑：精灵蓝
+排版：小蚂蚁614
+![圖片](https://media.discordapp.net/attachments/825592691433668612/941129776003956826/155.png?width=818&amp;height=1218)![圖片](https://media.discordapp.net/attachments/825592691433668612/941129776431767622/155_1.png?width=818&amp;height=1218)
+*发布：陶子*
 
-
-据美国媒体【生命新闻】2月7日报道，梵蒂冈红衣大主教维加诺在致加拿大所有参加反抗疫苗护照运动卡车司机的信中指出，人们已更加清晰地看见全球主义恶棍精英利用疫情，在全球开启了反人类的灭顶灾难。
-
-维迦诺在信中说：“亲爱的加拿大卡车司机朋友，你们加入了一个世界范围的团体，来对抗那些希望通过世界经济论坛来统治世界的邪恶势力。加拿大，澳大利亚、意大利、奥地利和法国等都是全球主义政客渗透最深的国家。在这个地狱般的大重启计划中，我们不仅要考虑到疫情灾难，还要防止这些精英对其国家民主，自由和宗教的破坏。”
-
-报道称，红衣大主教深深体会卡车司机们面临的巨大困难，包括放弃工作，恶劣天气条件、漫长的黑夜以及被当局逮捕的威胁。并因此诚恳表达其支持和赞誉。同时，维迦诺将为反抗者们祈祷，希望在加拿大的示威行动获得成功，并尽可能扩展到其他国家。
-
-发稿：文明(添草灭共)
-
-原文链接：[Abp. Viganò endorses Canadian truck drivers, calls for prayers to defeat ‘infernal’ Great Reset – LifeSite (lifesitenews.com)](https://www.lifesitenews.com/opinion/abp-vigano-endorses-canadian-truck-drivers-may-your-efforts-be-crowned-with-success/)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

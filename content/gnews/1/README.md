@@ -2,29 +2,28 @@
 ---
 
 
-## 有声|美日将在日本西南加强军事储备 剑指中共
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1982533/)
+## 2月9日大直播后记：通过PAG、UBS案追回中国人的财富
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1982575/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月6日，据日本媒体报导，美日两国正在考虑于日本南端鹿儿岛地区布署无人机队，用以应对中共日益增加的挑衅动作。
+整理：Rianna、Lucy Liu
+编辑：小红帽
 
-据悉，早在今年1月中旬，美日双方就曾经讨论过在最接近台湾的日本国土与那国岛上储备精准导弹，从而在必要时作为提供对台防卫支持的基地。其后，双方又在两国的“2+2”会谈上承诺增加美国和日本的联合共用军事设施，同时，日本也将加强其自卫队在西南诸岛区域的军事部署。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/19-2.png)图片来源：雅典娜设计组（614）
 
-文字版原文：[美日将在日本西南加强军事储备 剑指中共](https://gnews.org/zh-hans/1979992/)
 
-音频处理/发稿：Daxia
+因为今天法律程序没完，今天我在等着PAG那天开完庭的结果出来。然后，我的法律程序再走完之后，就真正地开始对PAG全面开始作战。让这些PAG所有的案件揭开对美国司法的腐败，（揭开）美国黑暗（势力）的控制，一个全面的，对西方的，蓝金黄的，揭露大战的开始。（最后）拿回属于中国人的钱。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+（关于）我这个官司，在去年11月份的时候，共产党曾经派出官方，绝对代表团，中国银行、中国人民银行等几大银行，就是过去很牛的人找到欧洲的某前领导人，找他来跟我说，包括当时江家—江志成，（他）是里边成员。本来说要跟我接触或跟我家人在海外接触，或者跟我的代表接触，我们全都拒绝了。但是，他跟欧洲这个领导人，法国的一个前总理说，只要郭文贵和解，所有现在香港查封的资产和国内资产全部都还给他;有关基金包括UBS官司损失的钱一分不少的给他。前提是永远不能再对UBS起诉。第二，在香港查封的资产，永远不追究查封后果的责任。我们光在新加坡的DBS银行，一个账就几十亿现金，光资产就是几百个亿。你想想，共产党宣传到现在就是七哥没钱了。你见过真正的中国人，有像七哥这么有财富，（这么）有钱的有几个？任何一个中国企业负债率，没有一个能比得上七哥的企业，一个都没有。我们是最牛的。当时来的这个代表说一句话，其中一个人跟我很熟的，就是刘彦平的好哥们。他说，“刘彦平，这个事情跟你打交道。老郭，（我）对你佩服得五体投地。你们一定要相信郭文贵，要把UBS案给启动了。所有共产党在海外的金融（关系），借的钱都会被挖出来，一分都不会剩。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+中国在过去（经历）大清朝，国民党，共产党到现在只有一个国家，就连伊拉克，罗马尼亚，卡扎菲都没有中国那么夸张。因为中国历史太长了，钱太大了。在瑞士是最大的黑金来源。这些钱必须还给中国人。我们中国人（的钱是）什么概念呢？ 中国人所有现在欠的信用卡的钱，所有欠的房贷，所有欠的银行的钱都不用还。大概是多少钱呢？ 中国共产党说是50万亿美元，40万亿美元，但真正的价值就是挤掉泡沫后，实际上就是4到5万亿美元。我们在海外能找回多少钱呢？在海外能找回50万亿美元，（让）中国人免（债）十回都没问题。
 
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
