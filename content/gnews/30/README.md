@@ -2,30 +2,37 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年2月10日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1985627/)
+## 今日盖特大V推荐 — 鲍里斯·艾普斯汀（Boris Epshteyn）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1985681/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-4.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1031-e1644511007273.png)
+盖特链接：[https://gettr.com/user/borisEp](https://gettr.com/user/borisEp)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-9.png)
-文章仅代表作者本人观点，与Gnews无关
+**鲍里斯·艾普斯汀自述：**
 
-视频参看：
-[2022.02.10早 《NFSC新闻》](https://gtv.org/video/id=6205133aa1fe5e57a4264b6c)
-[2022.02.10早 G|TV《新闻访谈》](https://gtv.org/video/id=62051bb7a1fe5e57a4264fca)
+@Realdonaldtrump 唐纳德·川普2020年战略顾问, 第45届总统的前特别助理, @newsweek(新闻周刊)专栏作家, BorisEp.com，[FJBCoin.org](http://FJBCoin.org)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1032.png)图片来源：网络
+**鲍里斯·艾普斯汀简介：**
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+鲍里斯·艾普斯汀1982年8月14日生于莫斯科，美国共和党人, 政治策略师, 投资银行家和律师。
 
-![calendar](https://assets.gnews.org/wp-content/uploads/2022/02/calendar-1.png)
+鲍里斯·艾普斯汀在2016年美国总统大选期间，担任川普的高级顾问, 是川普的媒体代表。在川普当选美国总统之后，他被任命为总统就职委员会的通讯主任，然后是白宫办公室代理业务的助理通讯主任，直到2017年3月辞职为止。他是川普 2020 年总统竞选的战略顾问。2019年12月之前，担任“辛克莱广播集团”（Sinclair Broadcast Group）首席政治评论员。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+鲍里斯·艾普斯汀在班农战斗室采访时曾表示：中共国很可能是美国有史以来最难对付的对手，甚至超过纳粹和苏联。
+
+[https://gnews.org/zh-hans/1666198/](https://gnews.org/zh-hans/1666198/)
+
+编撰：洛杉矶盘古农场 — 心照
+
+校审：洛杉矶盘古农场 — 郭友(文苏)
+
+发布：洛杉矶盘古农场 — 子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

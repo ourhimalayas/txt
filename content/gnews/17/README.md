@@ -2,35 +2,30 @@
 ---
 
 
-## 今日盖特大V推荐 — 杰克·波索别克（Jack Posobiec）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1985775/)
+## 欧洲政府施压临床博士不能透露奥米炕的温和性
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1985846/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1033-e1644511792936.png)
-盖特链接：[https://gettr.com/user/jackposobiec](https://gettr.com/user/jackposobiec)
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2022/02/9-6.jpg)
+图片来源：网络截图
 
-**杰克·波索别克自述：**
+零对冲2月9日报道，根据德国电视频道WELT的采访，发现奥米炕（Omicron Covid-19）菌株的医生安吉利克·科兹（Angelique Coetzee）说，她受到欧洲政府的压力，不能透露该毒株只有轻微的表现。
 
-主持人，@HumanEvents Daily。退伍军人，资深海军情报员。共产主义的反对者。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1034.png)图片来源：网络
-**杰克·波索别克简介：**
+当被问及此事是否属实时，科兹回答说：“有人告诉我不要公开说这是一种轻微的疾病。有人要求我不要做这样的声明，并说这是一种严重的疾病。我拒绝了”。
 
-杰克·波索别克生于1985年12月14日，美国共和党人，退伍军人、前情报官、作家；曾就职于关塔那摩湾海军基地，海军情报局，《美国新闻网》。
+她说她是一名临床医生，根据临床情况，没有迹象表明我们面对的是一种非常严重的疾病。病程大多是温和的，但并不是说如果你是温和的，就不会生病。
 
-在2016年大选期间，波索比耶克曾担任特朗普政治组织公民的特别项目总监。
+轻度中共病毒（Covid-19）疾病的定义很清楚，它是世卫组织的定义：病人可以在家里治疗，不需要吸氧或住院。她说，并补充道，严重的疾病是我们看到急性肺部呼吸道感染的疾病：人们需要氧气，甚至可能需要人工呼吸。我们在三角洲病毒看到了这一点，但在奥米炕病毒上没有。所以我对人们说，“我不能这样说，因为这不是我们看到的情况”。
 
-新中国联邦一周年之际，杰克·波索别克发表演讲祝贺新中国联邦成立一周年；并称：中国人应该知道天安门广场的真相，世界人民应该知道2020年武汉病毒的真相。
+当被问及为什么她被阻止说出真相时，科兹说：“他们尝试过，但他们没有成功。”
 
-编撰：洛杉矶盘古农场 — 心照
+她说在南非，这是一种轻微的疾病，但在欧洲，这是一种非常严重的疾病。“这就是你们的政治家想听到的，”她已经厌倦了。据科兹说，她没有受到南非当局的压力，反而受到英国和荷兰科学家的批评，他们说：“你怎么能解释这是一种轻度疾病？这是一种严重的疾病。看看这些变异”。
 
-校审：洛杉矶盘古农场 — 郭友(文苏)
+WELT评论说，在一个大流行病中，你还必须看一看在基层发生了什么。必须询问每天给病人看病的普通医生，他们的经历是什么，临床情况是如何呈现的。
 
-发布：洛杉矶盘古农场 — 子萍
+新闻来源：[“They Will Not Silence Me”: Doctor Who Discovered Omicron Was Pressured Not To Reveal It’s Mild](https://www.zerohedge.com/markets/they-will-not-silence-me-doctor-who-discovered-omicron-was-pressured-not-reveal-its-mild)
 
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

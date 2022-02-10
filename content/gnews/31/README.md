@@ -2,54 +2,36 @@
 ---
 
 
-## 美商务部将33家中共国公司列入红名单
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1985560/)
+## 美国众议院提出制裁中共官员的核弹级提案
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1985659/)
 
-**评论：***美国公司与红名单中的中共国公司交易需要许可证，即需要通过额外审查（包含军事目的），但中共国公司由于大量作假无法通过审查，终将因不守规则、以骗治国而自食其果。*
+撰稿：小毛牛
+![](https://assets.gnews.org/wp-content/uploads/2022/02/020803.jpg)网络图片
+据Breitbart News独家报道：美国众议院的保守派高层已提出一项立法提案，正式制裁数千名中共官员，令人震惊的是，这其中居然包括中共独裁者习近平及其全家。
 
-据《apnews.com》作者：ERIC TUCKER，2022年2月7日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1030-e1644509901499.png)图片来源：ap news
-华盛顿（美联社）——拜登政府对33家合法性无法核实的中共国公司亮起红灯，限制其从美国出口商接收货物，并要求美国公司进行额外的交易前调查。
+众议员麦克莱恩（Rep. Lisa McClain ）的法案名为停止中共法案（Stop CCP Act），将对中共官员实施一种称作削弱性的制裁：阻止他们获得美国旅行签证和金融制裁；阻止他们使用或获取某些资产；这个法案将制裁中共最高政府机构全国代表大会的每一位成员。比如这2000 多名中共官员连同他们的家人将被禁止进入美国，他们所有人也将被正式禁止进入美国的金融系统（包括在中国经营的美国公司），这样他们就不能利用他们的家人来逃避制裁。
 
-美商务部周一表示，它正在将这些公司列入所谓的“未经核实的名单”，这是一份全球企业名册。由于美国官员无法进行常规的检查，这些企业将受到更严格的出口控制。
+当然如果中共真正停止对维吾尔人和在香港的侵犯人权行为、盗窃美国知识产权和妄图入侵台湾，那么该法案将可以被豁免。但是为了避免像拜登这样的和中共存在千丝万缕联系的总统滥用手中的豁免权，国会会更新并且用两年的时间去证明接触此项制裁的正确性。
 
-该部负责出口执法的助理部长马修-阿克塞尔罗德（Matthew Axelrod）声明：“及时完成最终用途检查并验证美国出口接收方合法性和可靠性的能力是我们出口管制系统的核心之一。”
+众议员麦克莱恩还补充到：中共是对美国和世界安全的最大威胁之一，制裁中共领导人是向中国和世界表明我们厌倦了他们咄咄逼人的霸凌方式。
 
-他补充，将中共国33个当事方列入未核实名单，将有助于美国出口商进行尽职调查和评估交易风险，并向中共国政府表明他们安排最终用途检查合作的重要性。
+众议员吉姆·班克斯（Rep. Jim Banks ）补充说，在这项提案中受到制裁的中共官员是特别残酷的侵犯人权者。众议院共和党会议有 159 名成员，保守派RSC （Republican Study Committee）是国会中最大的众议院共和党人团体——实际上是任何一方或双方成员中最大的核心小组。
 
-此前，联邦调查局局长克里斯托弗-雷在上周的一次演讲中表示：该局大约每12小时就会展开一项与中共情报行动有关的调查。并警告：没有哪个国家比中共对我们的思想、创新和经济安全构成如此广泛的威胁。
+共和党研究委员会主席班克斯 说：中共的这群人是世界上最严重的人权侵犯者和专制邪恶政权的领导人，我们不仅有国家安全义务，还有道德义务，阻止他们在我们的海岸上执行他们的腐败全世界的邪恶计划。
 
-中共国一再拒绝美国政府的指控，说华盛顿进行了毫无根据的攻击和恶意的抹黑。
+众议院军事委员会的罗杰斯（Rogers）说：中共必须为他们令人震惊和令人不安的侵犯人权行为负责。乔·拜登每天都在犹豫是否要让中共对种族灭绝和奴隶劳动负责，中共只会在他们的邪恶运动中变得更加胆大妄为。
 
-美商务部的行动使得出口商向名单上公司运送产品时，需获得许可。行动提醒名单公司必须证明其合法性，并愿意遵守美国的法规，以继续接收货物。
+共和党国家安全和外交事务主席、众议员乔·威尔逊（Rep. Joe Wilson）说：我很高兴加入这项要求对中共高级成员进行恶意行为和侵犯人权的制裁的努力。如果我们要反击中共几十年来利用我们并压迫中国非凡的人民，我们必须大胆。
 
-此举同时告诉中共国，如果希望这些公司从名单上拿下，当局必须允许美国对这些公司进行检查和视察。
+除了班克斯、罗杰斯和威尔逊之外，麦克莱恩法案的原始共同发起人还包括众议员布Reps. Brian Babin (R-TX), Vern Buchanan (R-FL), Andrew Clyde (R-GA), Rodney Davis (R-IL), Carlos Gimenez (R-FL), Yvette Herrell (R-NM), Clay Higgins (R-LA), Bill Johnson (R-OH), Doug Lamborn (R-CO), David McKinley (R-WV), Mary Miller (R-IL), Marianette Miller-Meeks (R-IA), Steven Palazzo (R-MS), Rep. Tracey Mann (R-KS), Greg Steube (R-FL), and Tracey Mann (R-KS).
 
-在中共国，看似用于商业用途的产品最终被转用于军事目的。
+虽然此法案在目前民主党控制下的国会不太可能会被投票表决，但是在即将到来的中期选举中，共和党有望重新夺回多数席位，所以该法案很有可能在明年获得通过。
 
-这些检查通常是与中共国政府协调进行的。当美国无法进行检查，该公司就会被列入未经核实的名单。它可以通过接受检查并确定其为合法企业而从名单上消失。
+灭共的最后战役已经打响，中共的穷途末路已在眼前！
 
-周一被标记的大多数公司是电子企业，也包括光学公司、一家涡轮叶片公司、大学的国家实验室和其他企业。
+新闻来源：[Exclusive — House Conservatives Introduce Sanctions Proposal for Thousands of Chinese Communist Party Officials](https://www.conservativenewsdaily.net/breaking-news/exclusive-house-conservatives-introduce-sanctions-proposal-for-thousands-of-chinese-communist-party-officials/)
 
-新增33家中共国公司使上市实体入单总数达到175家。其他有公司被列入未核实名单的国家包括俄罗斯和阿拉伯联合酋长国。
-
-原文连接：[https://apnews.com/article/business-china-27c61929cdbc91cc3c425572ac197662](https://apnews.com/article/business-china-27c61929cdbc91cc3c425572ac197662)
-
-翻译：洛杉矶盘古农场 – TrueSky
-
-校对：洛杉矶盘古农场 – 轰炸机
-
-评论：洛杉矶盘古农场 – 轰炸机
-
-编辑：洛杉矶盘古农场 – WenXiong
-
-发布：洛杉矶盘古农场–子萍
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
 
  
 
