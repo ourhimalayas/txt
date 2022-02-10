@@ -2,49 +2,28 @@
 ---
 
 
-## 声称从政当部长让英雄不白死的哥哥终于明白曾经的无知
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1983497/)
+## 日本政府将向参加北京残奥会运动员发放手机，担心中共国的专用软件泄露信息
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1983560/)
 
-G-TV视频链接：[https://gtv.org/video/id=6204bdad585ecc15d73fb4b6](https://gtv.org/video/id=6204bdad585ecc15d73fb4b6)
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-997.png)图片来源自本文网站
+2月9日每日新闻在线消息，日本体育厅将对参加（3月4日至13日）的北京冬季残奥会的所有日本运动员发放租赁智能手机。
 
-**郭文贵先生：**就像我们的英雄的哥哥，现在后悔了，每次向我发信息，都叫我“先生”，过去老叫我“老七”，现在两、三年的老我叫我先生。我说：“你别一叫我先生，我不舒服，叫我文贵，叫我老七。”“唉，我可不敢叫，你在我心中就是圣人哪，我过去有多无知啊，你说我这……”
+此举是针对北京冬奥会对参赛者以健康状况管理为由必须使用他们提供的专用软件，担心信息被提取等问题所做出的对应措施。已经在手机上安装了应用程序的日本运动员将被要求在返回日本的飞机上删除该应用软件，还将接受专家的检查。
 
-那时候给我说啥？喝了酒了以后：“我兄弟死了不能白死，咱哪天咱也从政，咱也弄个部长干干。”你说我对面，他弟弟是为了推翻共产党死的，他要当共产党的部级干部，你说这哥们他傻得没文化，就像我家我有哥哥一样，是吧？
+体育局在当天的自民党外交委员会和外交事务研究会联席会议上解释说。将提醒残奥会运动员不要携带自己的智能手机或电脑参加奥运会，新租的智能手机将通过日本残奥会（JPC）分发。体育局将承担这些费用。
 
-他现在明白过来了，我们要干掉共产党，而且不去当这个权力。他说：“真是，我这白活呀。”我总是告诉他我说：人活在这里，不是说天天脱了光腚，是不是，高兴半小时、两小时？不是说就是那个性生活，也不是就是吃饱了，吃的打嗝，然后拿着牙签剔剔牙。不是醒来洗洗，继续这样重复，重复来重复去，醒来刷牙吃喝，然后那一天，晚上刷牙、洗澡、睡觉，第二天回来最后死掉。
+日本奥委会（JOC）也将负责在运动员回国后从他们的手机中删除这些应用程序。返回日本后，专家会在征得运动员同意的情况下对设备进行检查，如有问题，将删除可疑应用程序，初始化设备，并安装杀毒软件等措施。
 
-人不是这样子的，我们来到这个地球，你要想想为啥地球在天空中悬着，它就不掉下来？为什么地球在百亿年前撞完以后，都是一种水状态，“咣叽”撞出了一个月亮？又撞出了那内心的内核？昆仑山脉、喜马拉雅山脉、阿尔卑斯山脉？撞出了大西洋，是不是，太平洋，哪来的？
+自民党主席佐藤正久在新闻发布会上表示，体育局和内阁网络安全中心（NISC）的官员对迟迟没有回应表示遗憾，中国有可能会做出反应，但我们必须做出坚决回应，同时，我们必须确保运动员在当地不受影响。
 
-南极和北极，一年四季，一天不能差，水温也不能差几度，是吧？这是有主人的，我们来这个世界上不是来等死来了，不是在这儿混死来了。所以说当你明白这个道理以后，兄弟姐妹们就我们今天发生的事情，你要相信一条，如果没有天意，我们一切不可能发生。
+本次赛事的专属APP是北京2022组委会开发的“My2022”。所有参赛者必须在出发前往中共国前的至少 14 天下载并每天报告他们的健康状况。除了健康管理功能外，还有聊天、新闻、翻译服务功能。
 
-字幕来源：[2022年1月27日 文贵大直播 全文字版](https://gnews.org/zh-hans/1924957/)
+信息源：[政府、北京パラ選手団にスマホ配布へ　専用アプリ情報漏えい懸念](https://news.yahoo.co.jp/articles/690f4572cfc9d72977c958367b96679f182c1d36)
 
-编辑整理：喜马拉雅的肉夹馍；
-
-字幕文件制作：小满；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

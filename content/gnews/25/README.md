@@ -2,10 +2,10 @@
 ---
 
 
-## 国会议员和NBA明星一起拍摄冬奥广告曝光中共种族灭绝
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1983220/)
+## 围绕北京冬奥会的各种负面新闻，包括食物和中共病毒措施
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1983294/)
 
-02/07/2022 共和党国会议员麦克·沃茨和NBA明星埃内斯·坎特·自由阐述他们为什么一起拍摄了奥运会的广告曝光中共的种族灭绝
+02/08/2022 福克斯新闻：围绕北京冬奥会的各种负面新闻，包括食物和中共病毒措施
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

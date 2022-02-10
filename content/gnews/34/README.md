@@ -2,10 +2,10 @@
 ---
 
 
-## 美司法部刑事指控中共企业盗取美国技术
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1982939/)
+## 拜登总统预计将于5月下旬访问日本
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1982959/)
 
-作者：纽约磐石农场—在远方，台湾宝岛农场 – 鬥陣來拼
+作者：银河系农场—骄子
 
 
 
@@ -13,25 +13,20 @@
 
 
 
-2月7日，美国司法部对海能达电信公司提出刑事诉讼，该公司总部位于中国深圳，美国司法部的起诉书称海能达与摩托罗拉系统公司前员工合谋，窃取摩托罗拉的数字行动无线电技术。
+据日本媒体2月8日消息，美国总统拜登预计将于5月下旬访问日本，并参加美日印澳四方峰会。自2021年以来，拜登首次访问日本的事宜一直在进行中。上月他在一次视频会议上向日本首相岸田文雄表示，预计会在春末前往亚洲参加四方会议。
 
-海能达公司在2007到2020年间，招聘摩托罗拉公司前雇员，提供比摩托罗拉公司更好的薪资和福利，以窃取美国商业秘密。海能达是摩托罗拉解决方案产品的前经销商，目前该公司面临21项刑事指控，包括合谋窃取商业机密。如果指控成立，该公司将承担三倍于被窃取商业机密价值的罚款。
+拜登政府认为，印度洋-太平洋四大民主国家维持良好的伙伴关系，是反击中共在该地区日益增长的军事自信和经济影响力的关键。
 
-摩托罗拉执行副总裁兼总法律顾问马克哈克，在一份声明中表示：“海能达的动机，是蓄意对摩托罗拉进行的非法行为；我们将继续在世界各地的司法管辖区对其提起民事诉讼，以防止海能达的连环侵权行为，并追回其欠摩托罗拉解决方案的数亿美元损失”。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide13-2.jpg)
-此前，海能达也曾面临此类指控。2020年3月，伊利诺伊州法院曾作出判决，判定海能达向摩托罗拉赔偿7.65亿美元。去年11月，拜登总统签署了“安全设备法”（Secure Equipment Act），禁止美国监管机构，给予海能达和华为等被视为安全威胁的中共国企业，发放新的设备许可证。川普政府时期，也曾发布禁令，禁止联邦资金接受者使用海能达制造的电信设备。
+在朝鲜最近密集试射弹道导弹之时，拜登希望此次访问能够和岸田文雄举行面对面的双边会议，以确立日美两国亚洲盟友关系的重要性。
 
-美国司法部此番诉讼行动，显示美国总统拜登签属“安全设备法”的重要性，杜绝中共对美国及西方高新尖技术的偷窃可能。
-
+消息人士称，拜登的亚洲之行还可能在韩国停留。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide14.jpg)
 参考信息：
-1. [外媒：美司法部指控海能达，称其与前摩托罗拉员工合谋窃取技术](https://www.sohu.com/a/521325190_115479)
-2. [美司法部提告 控中國海能達公司竊Motorola技術](https://www.cna.com.tw/news/aopl/202202080124.aspx)
-3. [U.S. charges China’s Hytera with conspiring with ex-Motorola staff to steal technology](https://www.reuters.com/business/media-telecom/us-charges-chinese-company-with-conspiring-with-ex-motorola-staff-steal-2022-02-07/)
+[Biden’s visit to Japan eyed in latter half of May: source](https://english.kyodonews.net/news/2022/02/178187a9d7b5-bidens-visit-to-japan-eyed-in-latter-half-of-may-source.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
 
-总编：Ivy001
-编辑：静言
+总编/编辑：飞虹
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**
