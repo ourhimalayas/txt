@@ -2,54 +2,52 @@
 ---
 
 
-## 新西兰车队将抗议议会并要求终止疫苗和口罩授权
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1985187/)
+## 中国制药巨头药明生物因美国举动股票暴跌进而暂停交易
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1985236/)
 
-素材翻译评论： Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2022/02/020801-1-1.jpg)香港：药明生物在股价创纪录下跌后于周二（2月8日）暂停了在香港的股市交易，此前华盛顿将这家中国制药巨头列入了一份可能限制其在美国运营的名单。ttutu’p图片@uktimenews.com
+摘要翻译：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1028.png)
+《英国时间新闻》2022年2月8日报道，
 
-卡车司机、农民和各行各业人民争取自由的抗议活动仍在继续。
+美国商务部周一表示，药明公司是被列入未核实名单的33个中国实体之一，这可能要求其获得额外的许可证才能与美国公司开展业务。
 
-来自加拿大的卡车司机封锁了连接加拿大和美国的大使桥。
+根据合同，为制药公司生产疫苗和药物的药明生物表示，此举对其业务将“不构成影响”，并且“符合美国的所有出口管制法规”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1027.png)
+但其股价周二在香港暴跌多达 32%，随后暂停交易，下跌 23% 至 62.25 港元。
 
-周日，阿拉斯加的卡车司机组建了自己的“阿拉斯加自由车队”，以支持加拿大卡车司机。
+据其网站称，该公司近年来积极扩张，明年将在中国西部的成都市建设一座 130 万平方英尺的生产工厂。
 
-阿拉斯加的“自由车队”以支持加拿大卡车司机🇺🇸
+它与葛兰素史克(GlaxoSmithKline)和 Vir 生物技术公司签署了一项协议，于2020 年生产新冠抗体治疗药物 Sotrovimab，并在去年接管了德国拜耳(Bayer)工厂，生产中共病毒疫苗。
 
-现在，数百或数千名抗议者于周二驱车前往新西兰首都，并阻止议会抗议疫苗和口罩授权。
+近年来，美国将一些中国公司列入官方名单，在全球两个最大经济体之间的紧张关系加剧的时候，降低了该公司开展业务的能力。
 
-新西兰总理杰辛达·阿德恩（ Jacinda Ardern ）拒绝与车队会面，称她还有其他优先事项。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1025.png)
-更多来自《布赖特巴特》消息：
+华为被列入所谓的实体名单——以及随后对这家电信巨头采取的行动——使其无法购买关键部件，并严重削弱了其一度繁荣的智能手机业务。
 
-车队中的车辆包括汽车、卡车和摩托车，并展示了诸如“杰辛达，我们知道你将自己的灵魂卖给了魔鬼”、“停止授权#自由”和“政治语言旨在使谎言听起来真实”等标志。
+**简评：**
 
-在抗议者挥舞的新西兰国旗旁边还发现了许多旗帜，包括美国国旗、前总统唐纳德·川普主题的旗帜和英国国旗。
+自2019年起，中共国最牛的产业就是医药外包服务（CXO）。随着中共全世界撒毒，CXO相关股价持续飙升。自无锡药明康德下属的子公司药明生物被美国列入限制名单，造成其股价大跌后停牌。尽管中共一再宣称“彻底脱钩不现实”，对两国都有伤害。但中共国因脱钩造成的损失明显远大于美国。近二、三十年来，中共借助开放国门，从一开始的计划经济文化革命浩劫之后的一穷二白，到开始发展低附加值的制造业，到今天已经可以参与一些高精尖领域的制造甚至研发，这一切都是拜慷慨解囊的西方所赐。美国一旦率先与其脱钩，其直接效应与连带效应必将使中共一步步失去其在高端市场的话语权。中方显然更依赖美方。
 
-这些车辆在新西兰议会外停留了几个小时——新西兰议会刚刚在暑假后重新开会——似乎在当天晚些时候和平地离开了该地区，惠灵顿警方没有报告任何逮捕事件。
+美国过去四十年跟中国的接触是中国崛起的主要原因。没有西方的市场、西方的技术、西方的资本，中国就崛起不了。未来，美国极可能对中共国采取“精准脱钩”和“精准挂钩”的策略，以便在国家安全、经济收益和技术优势上取得平衡。目前美国政府虽未确定脱钩的边界，但在芯片制造、人工智能等关键技术和产品上把关已达成共识。挂钩的领域则基本限定在低技术和低附加值的产业。其结果一定会对中共国的经济造成巨大的冲击，令中共国付出惨重的代价。
 
-据报道，抗议活动的主要目的是挑战学校学生戴口罩的规定，以及护士、教师和警察等某些公共部门工作的疫苗接种要求。
+新闻链接：[Chinese drug giant WuXi Biologics halts trading as US move triggers stock plunge](https://www.uktimenews.com/chinese-drug-giant-wuxi-biologics-halts-trading-as-us-move-triggers-stock-plunge/)
 
-据《新闻中心》（Newshub）报道，在议会发生反授权抗议后，总理杰辛达·阿德恩向接种疫苗的新西兰人发出了一条信息，声称这些人不代表大多数新西兰人，“这也将过去”。
+*翻译/简评：xiaofeimao*
 
-可以回顾一下，芬兰赫尔辛基议会外组织了一支大规模的自由车队，要求总理桑娜·马林的政府辞职，削减 50% 的燃油税，并结束所有 COVID 限制。
-
-“芬兰自由车队2022”“CONVOY FINLAND 2022”预计将于 2022 年 2 月 9 日（星期三）开始每天上午 10 点至晚上 10 点。
-
-评论： 人民是改变历史的动力！
-
-素材链接：【thegatewaypundit.com】[New Zealand Joins Canada and Finland – Convoy Blocks Parliament and Demands to End Vaccine and Mask Mandates](https://www.thegatewaypundit.com/2022/02/new-zealand-joins-canada-finland-convoy-blocks-parliament-demands-end-vaccine-mandates/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailyam&amp;utm_content=daily)
+*校对：村民彼得潘*
 
 * * *
 
-审核：文乐
-校对：花羽
-发布：花羽
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-3.jpeg)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

@@ -2,23 +2,26 @@
 ---
 
 
-## 有声|中共试图抢先打捞F35战机 偷盗美国技术
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1985032/)
+## 香港单日中共病毒确诊数再创新高
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1985057/)
 
-配音：香草山巡管部 – 格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-据美国媒体2月2日消息，中共有三艘打捞船于当天离港，驶向1月份美国F35C战机失事海域。
+作者：纽约香草山-Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月5日，据相关媒体报道，香港政府当天通报了351例新增中共病毒确诊病例，这也是自中共病毒疫情在香港爆发以来，当地单日新增确诊病例最多的一天。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/7-11.jpg)
+数据显示，目前，香港的中共病毒疫苗第一针接种率已经高达79.8%，而完全接中共病毒种疫苗的民众占当地总人数的72%，另外，还有超过一百万的香港居民接种了第三剂加强针。
 
-1月24日，美军一架F35C战机在常规飞行中失事，尽管中共发言人赵立坚曾否认共军试图盗取该军机，但美国军队还是注意到了中共的打捞船只接近事发海域。另一则来自五角大楼的消息也印证了中共的行动。
+然而，香港针对中共病毒疫情的相关负责人指出，虽然政府试图加强对中共病毒疫情的管控，但当下仍是香港自疫情爆发以来最严峻，也是最关键的时期。此外，当地的疫情并不乐观，甚至本土病例可能会在近期内呈几何级数上升。
 
-五角大楼的消息人士称，美国不相信中共有足够的打捞能力获得这架飞机，美国在深水科技方面也远远领先中共，但中共的行为非常令人“反感”。
+而评论人士则对此表示，虽然香港政府此前强制当地民众接种中共病毒疫苗时曾大肆宣称其在防护病毒与阻止传播方面的有效性，但目前的感染数据表明，中共病毒疫苗对病毒的抑制作用微乎其微。
 
-文字版原文：[中共试图抢先打捞F35战机 偷盗美国技术](https://gnews.org/zh-hans/1980986/)
+参考链接：[Hong Kong reports record daily high of 351 coronavirus cases](https://www.reuters.com/world/china/hong-kong-reports-record-daily-high-351-coronavirus-cases-2022-02-05/)
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+总编: Jack Li文阳
+编辑：静言
+校正/发稿：Fei797
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -26,7 +29,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

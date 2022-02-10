@@ -2,70 +2,37 @@
 ---
 
 
-## 控诉
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1985186/)
+## 有声|参赛运动员透露中共冬奥会隔离条件恶劣
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1985235/)
 
-作者：蓝之灵
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-耀眼的光环
-流动着
-笼罩着
-虚假的盛世
-邪恶在这里盛行
-人性被泯灭
-如地狱里的盛宴
-尽情享受着
-良善的躯体
-血流成河
-冤魂遍地
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+当地时间2月5日，据外国媒体消息显示，来自俄罗斯的冬季两项运动员瓦斯内佐娃在社交媒体平台上披露了中共北京冬奥会为参赛选手所提供的恶劣的隔离条件。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3-15.jpg)
+据瓦斯内佐娃透露，由于其中共病毒核酸检测结果呈阳性，她不得不在北京的一家饭店中进行隔离，但该隔离酒店在餐饮方面对运动员和工作人员区别对待，且酒店提供的餐食难以下咽，已经严重影响了她的身体健康。
 
-七十年的蹂躏
-山河破碎
-风也不再温柔
-水也不再纯净
-一个个水坝
-就像
-狰狞的伤疤
-生硬的贴在
-龙的脊背
-龙的哀嚎
-在呻吟
+另外，曾三次获得北欧混合式滑雪金牌的德国选手佛伦瑟在确诊中共病毒感染后也被中共举办方单独隔离。随后，德国奥运代表团团长施梅尔·普芬尼也向相关媒体指出，中共提供的隔离酒店条件极为不合理，运动员需要更大、更清洁的房间，同时需要准时得到有营养的食物，从而能够确保选手们在结束隔离后还可以上场比赛。
 
-这深重罪孽
-深植在
-华夏文明
-文明被摧毁
-劣币驱逐良币
-留下的
-只有
-恶与魔
+另据其他参赛代表团反应，因中共病毒确诊而被隔离的运动员们并没有全部在冬奥村隔离。
 
-恶与魔横行
-摧毁爱与和平
-这深重的灾难啊
-深植在华夏文明
-祈求拯救
-祈求救赎
-祈求
-爱
-与
-和平
+文字版原文：[参赛运动员透露中共冬奥会隔离条件恶劣](https://gnews.org/zh-hans/1980067/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-4.jpg)
-
-**校对/发稿：童谣**
-
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-
 
  
 

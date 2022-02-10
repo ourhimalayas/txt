@@ -2,34 +2,57 @@
 ---
 
 
-## 美日冲绳海岸军演应对中共威胁
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1985041/)
+## 美国商务部将33家中共国公司列入未经核实名单
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1985095/)
 
-作者：台灣寶島農場–新中國聯邦靜
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月6日，据相关媒体报道，为了应对中共不断扩张的军事威胁，美日两军正在日本冲绳的宫古海峡附近进行一场大规模的联合军事演习。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/6-13.jpg)
-美国海军陆战队在一份声明中指出，美军出动了一批万人远征部队在日本海岸进行白天和夜间的战机补给演练，其中还包括高难度的夜间空对空加油演习。此外，美日也联合模拟了直升机合作以及小艇登陆、空中夜袭等项目。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/eed963fe-6e23-4919-8690-0c125d227e0a_cx0_cy10_cw0_w1023_r1_s4.jpg)图片来源：Eric Thayer/路透社
+美国商务部2月7日宣布，33家中共国实体已被列入红旗警示名单，警告美国公司应格外谨慎对待它们。根据《联邦公报》的一则通知，大多数被警示的公司是电子公司，但名单中还包括一家光学公司、一家涡轮叶片公司、一所国营大学实验室和一个大学科系。
 
-美国军方高层表示，此次演习也是在向美日同盟国家发出信号，即美日双方有能力维持自由、开放的印太地区，同时，此举也强化了两国的合作关系。
+红旗名单的官方名称是“未经核实名单”，意味着美国官员无法核实这些公司的合法性。此外，美国公司不能再使用许可证例外将产品出口到名单上的任何公司，而是需要获得新的许可证。
 
-与此同时，日本防卫大臣岸信夫与美国新任驻日大使伊曼纽尔也就强化美日同盟的重要性举行了会谈。会上，美日双方一致表示，中共单方面试图改变现状的做法是在破坏当前全球基于规则和原则建立的稳定系统。为此，美日两国必须在坚守民主和法治价值观的基础上协同合作。
+该部工业和安全局(Bureau of Industry and Security)负责出口执法的助理部长马修·阿克塞尔罗德(Matthew Axelrod)在2月7日的声明中说：“通过及时完成最终用途检查来验证接受美国出口产品的外国方的合法性和可靠性的能力是我们出口管制体系的一个核心原则。”
 
-参考链接：[美軍出動遠征部隊 逾萬兵力沖繩近海軍演](https://www.epochtimes.com/b5/22/2/8/n13562325.htm)
+阿克塞尔罗德补充说，新增的33家中国实体“将协助美国出口商进行尽职调查和评估交易风险，并向中共国[People’s Republic of China, PCR]政府发出信号，表明他们在安排最终用途检查方面合作的重要性”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+在美国联邦调查局(FBI)局长克里斯托弗·雷(Christopher Wray)警告“没有任何国家比中共国对我们的思想、创新和经济安全构成更广泛的威胁”的一周后，该部门的公告发布。
 
-总编: Irene木木
-编辑：谐趣园
-校正/发稿：Fei797
+雷还说，调查局针对北京当局试图窃取美国技术的努力进行了有2,000多项调查，而且该局“大约每12小时就会开立新的案件以反击中共国的情报行动”。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+商务部对一些从美国购买产品的外国公司进行检查，以确保它们是合法企业，并确保其购买的产品被用于所述目的。这在中共国是一个特别令人担忧的问题，因为中国共产党(Chinese Communist Party, CCP)部署了一个被称为“军民融合”(military-civil fusion, MCF)的战略，用以转移商业技术来推动其军事现代化进程。
+
+美国国务院曾警告说，盗窃是共产党政权“军民融合”战略的一部分。这不是中共国企业第一次被列入“未经核实名单”。2019年4月，37家中共国公司和学校以及香港的6家机构被列入该名单。
+
+一个新的被警告的实体是中共国的湖南大学化学生物传感与计量学国家重点实验室。根据澳大利亚战略政策研究所(Australian Strategic Policy Institute, ASPI)2019年的一份[报告](https://ad-aspi.s3.ap-southeast-2.amazonaws.com/2019-11/The%20China%20Defence%20Universities%20Tracker_0.pdf?VersionId=ozIi2cWm.kXpe7XsEZ44vUMMQBNfnR_x)显示，该学校由国家国防科技工业局监管，是中共国两个国防实验室的所在地。
+
+报告指出了湖南大学的一个例子——一位大数据科学家担任中共国国家安全部的特聘专家——以说明国家安全部如何利用“民用大学进行培训、研究、技术咨询，并可能直接参与网络间谍活动”。
+
+周一，中国南方科技大学(China’s Southern University of Science and Technology, SUSTech)的机械与能源工程系也在被列入该名单。去年6月，该校网站报道，该系教授徐少林被选为该系党委书记。
+
+2021年9月，南方科技大学在社交媒体上报道，该校工学院召开了一次党委会议。会上，学院党委书记汪宏表示，学院的发展要“以党的政治建设为动力”。除“未经证实名单”外，商务部目前还保留了两份贸易黑名单——“实体名单”和“军事终端用户名单”，以警示美国出口商。
+
+**简评：**
+
+中共国长久以来通过“军民融合”项目，从商业、科技、学术等多个渠道，利用各种蓝金黄窃取美国科技资源来为党国服务，这是美国现有体制里必须剔除的毒瘤。而如今，我们可以看到越来越多中共国的企业、院校和科研机构的行径被揭发，一一被列入黑名单，警示美国出口商不可跨越红线。值得注意的是，就连院校科系、实验室这样的细枝末节都引起了美方的关注，不难想见，此前中共打着所谓“民用大学”在国际社会，尤其是学术界干出了多少欺骗、偷窃的勾当。其实，只要在中国上过大学，或者对其有所了解，所有中共治下的院校都被共产党牢牢控制，红色的触手冠冕堂皇、不容置疑地紧贴着行政管理以及思想教育。全是党的身影
+
+，哪有民这一说？美方此番并不在意识形态上与中共费口舌，却利用政府干预市场的手段精准打击其核心科技的巢穴不可谓不精彩漂亮。
+
+于此同时，随着美国竞争法案的通过，美国科技知识产权进一步收紧，中共国妄图继续利用中共国人民窃取知识产权的幻梦逐渐破碎。除了美国，众多欧洲国家也逐渐意识到中国共产党的威胁，比如荷兰光刻机巨头阿斯麦警告中共国公司涉嫌侵犯知识产权，相信在不久的未来欧洲版的竞争法案也会推出。届时，科技脱钩导致的军事科技等各方面的断供，终究会让中共毁于自己的无知。
+
+新闻链接：
+
+[https://www.theepochtimes.com/us-commerce-dept-adds-33-chinese-firms-to-red-flag-list\_4263711.html](https://www.theepochtimes.com/us-commerce-dept-adds-33-chinese-firms-to-red-flag-list_4263711.html)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

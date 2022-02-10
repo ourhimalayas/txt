@@ -2,24 +2,37 @@
 ---
 
 
-## 秘翻在线：ASML发文正告：中共企业正在销售侵害其公司商业机密的产品
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1985183/)
+## 有声|普京冬奥会开幕式后愤然离京
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1985185/)
 
-**翻译：明澈**
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+2月6日，郭文贵先生在大直播中再次详细分析了普京在中共冬奥会开幕式后愤然离开北京的真实原因。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-29.jpg)
+郭先生提到，中共政府以千亿人民币为条件，利诱普京参加此次冬奥会的开幕式，使其成为唯一给习近平撑场面的外国领袖。
 
-**校对：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-10-231757.jpg)
-据《彭博社》2月9日消息，荷兰光刻设备龙头企业阿斯麦（ASML）周三发布报告指出，此前窃取商业机密的XTAL，其中共国母公司-东方晶源微电子（DJEL）开始销售侵犯其知识产权的商品。 ASML已要求特定客户避免与东方晶圆微电子业务往来，并发文告知中共当局，要求协助处理，未来将在适当的时机采取法律行动。
+郭先生透露，普京团队原计划在北京停留48小时，用作交换的是，中共需以黄金为本位与俄罗斯开展本币互换工作，同时，俄罗斯要求中共向普京团队提供绝对独立的保护和医疗措施。然而，普京团队甫一落地就有16个团队成员确诊感染了中共病毒，更甚者，还有4名人员在俄罗斯团队居住的酒店内离奇身亡。此外，中共在普京抵达后突然变卦，拒绝向俄罗斯支付在本币互转中因资金不足需要额外支付的黄金。
 
-报导指出，XTAL因窃取ASML商业机密，曾于2019年在美国法院被判赔偿ASML8.45亿美元，但后来XTAL竟然直接宣布破产，令人相当无语。而此次销售侵犯ASML知识产权商品事件，彭博曾发送电子邮件至XTAL网站的官方电子邮件信箱，但无法顺利传送；致电东方晶源微电子北京总部，电话也无人接听。报道还指出，美国政府曾于2019年向荷兰施压，禁止ASML向中共国出售EUV设备，目前ASML仍未获得出口许可证，故无法将其最先进的机器运往中共国。
+为此，在开幕式后不足9个小时的时间里，普京愤然离京。
 
-据悉，ASML在全球晶片供应链中具举足轻重地位，在世界16个国家和地区提供服务，世界同类产品中有90％的市场占有率，而在14纳米以下则有100％的市场占有率，相当于垄断了市场，此外，ASML还提供制造更成熟半导体所需的深紫外光刻机。
+文字版原文：[普京冬奥会开幕式后愤然离京](https://gnews.org/zh-hans/1979990/)
 
-中共为打造芯片生态系统，减少对外国进口，曾在中共国推行「小巨人」计划。据MBA智库显示，该计划主要筛选创新能力强、市占率高、掌握关键核心技术、品质效益优良的企业，培育成与美国硅谷竞争的科技产业。获得「小巨人」认可的公司，通常会获得中共中央政府或省级政府的奖励，包括减税、优厚贷款和人才政策等。据悉，东方晶圆微电子正是中共「小巨人」计划支持的企业之一。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-中共企业常被指控窃取外国公司商业机密，尽管中共极力否认，但知识产权窃取长期以来一直是中共与美国等西方国家关系渐远的症结之一。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**新闻来源**：[https://www.bloomberg.com/news/articles/2022-02-09/asml-warns-chinese-rival-may-be-infringing-its-trade-secrets](https://www.bloomberg.com/news/articles/2022-02-09/asml-warns-chinese-rival-may-be-infringing-its-trade-secrets)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
