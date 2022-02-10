@@ -2,27 +2,66 @@
 ---
 
 
-## 中共被指控侵犯奥运冰球运动员人权
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1982573/)
+## 视频| 新中国联邦红旗的由来
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1982661/)
 
-采编：文莱          编译撰稿：苦尽甜来 (文來）
+制作：香草山视频部
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+武当山的大师说：文贵，我们给新中国联邦算过命 旬过遁，解了密
+他说你当时说的这个蓝色海洋、星空、49星
+这个是非常对的
+包括红色是血液
+他说你可以灭共不能灭颜色
+这颜色是上天给的
+七颜六色不是共产党发明的
+红色是大自然密码中的一部分
+今年共产党用的红还有它的那个土
+就那个红星五星对他们极不利
+五星的天上赐予的神秘的力量
+还有红旗的力量、镰刀斧子这些东⻄
+包括习的属相各方面算完
+共产党已经完球蛋了
+为啥我建议你要用红旗呢
+今年是水⻁年
+水⻁年现在冲谁呢
+我们新中国联邦是蓝色的旗，水很多
+但是我们49星土星太少
+对咱爱出是非
+你也要用红
+因为你是属狗的，今年是寅⻁年
+现在的爆料革命进入到关键时刻
+你要拿到中共国的这个火
+你要拿到这个土
+所以他给建议设两个旗出来
+49星加红旗 ，还有一个信仰之星加红旗
+今年我们的水⻁年
+对新中国联邦有利的是火和土
+水来土掩，水火交融
+我们要改变我们的思维
+红色 火色不是共产党拥有的
+我们也可以使用，很多红，这就是我们大师说的
+新中国联邦今年会有三个大惊喜
+两个都是走火运
+还有一个走土运
+再一个我们的金融是土生金
+然后是火生木，木生火，火生金，金生土，土生万物
+北侧为水，东侧为木，南侧为火，⻄侧为金，中间为土
+所以说今年改成了红旗49星
+大家尽管的去用
+还有红旗带信仰之星的颜色也会很快出来
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/olympic-quarantine-2.jpg)图片来源：Vancouver Sun
 
 
-据【温哥华太阳报】2月6日报道，在北京冬奥会期间，各参赛国对当局强制性疫情隔离规定的投诉堆积如山，其中，芬兰男子冰球队教练当天指责中共国侵犯了其球员的人权。
+发稿：雪梨
 
-芬兰队主教练表示，该队因疑似被病毒感染而被中共当局隔离的球员，不仅没有得到好的食物待遇，而且还承受着巨大的精神压力。据队医表示，尽管被确诊的球员如今已不再具有传染性，但在被隔离18天后，目前仍处在被监禁的状态中。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-据悉，自 1 月 23 日以来，包括近百名运动员在内的约400名奥运会参与者在抵达北京后被确诊感染”新冠病毒“。所有感染者只有在症状消失后才能离开特殊的隔离酒店，并且必须每间隔24小时进行两次相关检测。
-
-大部分被隔离的参与者不仅抱怨隔离条件简陋不堪，而且还指责组办方的防疫程序混乱无章。相信本次冬奥会将成为这些为名利而来支持中共政权的参赛者们，终生挥之不去的噩梦。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：文明(添草灭共)
-
-原文链接：[China accused of ignoring Olympic hockey player’s human rights as isolation complaints grow | Vancouver Sun](https://vancouversun.com/sports/olympics/olympics-china-accused-of-ignoring-hockey-players-human-rights-as-isolation-complaints-grow-2/wcm/1d91588f-1eb3-47eb-8cd0-65834a1a331e)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

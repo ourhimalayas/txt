@@ -2,37 +2,28 @@
 ---
 
 
-## 加拿大废除使用疫苗护照势不可挡
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1982445/)
+## 有声|美日将在日本西南加强军事储备 剑指中共
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1982533/)
 
-采编/编译：Spirit            编辑撰稿：硫酸羟氯喹64
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月6日，据日本媒体报导，美日两国正在考虑于日本南端鹿儿岛地区布署无人机队，用以应对中共日益增加的挑衅动作。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot_20220209-230626_Samsung-Internet-edited.jpg)图片来源：Twitter
+据悉，早在今年1月中旬，美日双方就曾经讨论过在最接近台湾的日本国土与那国岛上储备精准导弹，从而在必要时作为提供对台防卫支持的基地。其后，双方又在两国的“2+2”会谈上承诺增加美国和日本的联合共用军事设施，同时，日本也将加强其自卫队在西南诸岛区域的军事部署。
 
+文字版原文：[美日将在日本西南加强军事储备 剑指中共](https://gnews.org/zh-hans/1979992/)
 
-加拿大保守党议员波里耶夫于2月8日在其社交媒体上声称：由于各省政府都在积极计划停止使用百害而无一利的疫苗护照以及逐步取消各项疫情限制措施，因此，自由的力量正在席卷该国！
+音频处理/发稿：Daxia
 
-此外，该项声明还支持魁省自由党议员莱特邦德，于日前公开谴责特鲁多当局在处理疫情中的独裁专政，以及面对民意时的倒行逆施。并呼吁各界应摒弃党派之争，共同结束疫苗强制接种、疫苗护照和所有违宪封锁措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-最后，这位于2月5日宣布将竞选加拿大总理的保守党议员激动表示：鉴于阿尔伯塔省将于当晚午夜取消疫苗护照，可见反抗特鲁多的民意正在取得胜利！
-
-校对编辑：硫酸羟氯喹64
-
-发稿：文明(添草灭共)
-
-新闻来源: https://twitter.com/PierrePoilievre/status/1491179433033879553
-
-
-
-> BREAKING: Vaccine passports gone at midnight in Alberta.
-> 
-> La liberté gagne! 
-> 
-> Continue!
-> 
-> Sign my petition to end mandates nationwide: [https://t.co/EgtSLvWWlC](https://t.co/EgtSLvWWlC) [pic.twitter.com/zallZQcynU](https://t.co/zallZQcynU)
-> — pierrepoilievre (@PierrePoilievre) [February 9, 2022](https://twitter.com/PierrePoilievre/status/1491241931103481857?ref_src=twsrc%5Etfw)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
 
  

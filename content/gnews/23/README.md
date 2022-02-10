@@ -2,20 +2,30 @@
 ---
 
 
-## 美新任驻日本大使发推表示支持日本
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1982425/)
+## 有声|台湾陆委会坚决反对中共虚假的民主协商
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1982521/)
 
-撰稿：东京樱花团｜待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-987.png)[*图片来源*](https://gdb.voanews.com/110a09f6-21fb-42ca-bc3d-cd6614fce203_w1200_r1.jpg)
-据日本产经新闻2月10日消息：外交部长林芳正在2月10日的新闻发布会上说：美国新任驻日大使拉姆-伊曼纽尔在推特上发帖，称美国自20世纪50年代以来一直承认日本对北方四岛的主权，以此表达对日本立场的支持。对此，我们表示欢迎。
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月6日，据台湾媒体报道，中共国政协主席汪洋此前一天与国民党前主席洪秀柱进行了会面。会上，汪洋声称，中共愿意与台湾各界开展“民主协商”。对此，台湾大陆委员会在一份声明中指出，中共政府所谓的“民主协商”就是妄图消灭中华民国台湾的协商，因此，台湾各界在与中共进行交流时应密切注意，并谨慎防范中共当局的统战分化操作。
 
-２月7日是“北方领土日”。伊曼纽尔在推特上写道：我想说清楚一件事，美国在北方领土问题上是支持日本的。 同时还分享了一段视频，并在视频中说：美国自20世纪50年代以来一直承认日本对北方四岛的主权。
+陆委会表示，中共当局近期正在利用北京冬奥会进行统战宣传工作。其中，中共一直试图透过与相关国家或台湾方面人士的互动提倡其所谓的“一中原则”。
 
-信息来源：[**外相、北方領土「日本に主権」の米大使ツイート歓迎（産経新聞）**](https://news.yahoo.co.jp/articles/4150e85d3a1b7df142de07c8b482eda051df2124)
+文字版原文：[台湾陆委会坚决反对中共虚假的民主协商](https://gnews.org/zh-hans/1980211/)
 
-*校对：东京樱花团/東洋武士*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

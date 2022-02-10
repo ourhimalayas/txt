@@ -2,27 +2,24 @@
 ---
 
 
-## 有声|NFSC新闻、G|TV新闻访谈简报|2022年2月8日早
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1982263/)
+## 中日财经爆┃美国考虑与盟国合作对中共国征收新关税
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1982356/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-7.png)
+整理编辑：东京樱花团｜peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/02/pasted-image-0-1.png)[*图片来源*](https://i.epochtimes.com/assets/uploads/2022/02/id13565471-540105.jpg)
+美国商会国际事务负责人Myron Brilliant周三（2月9日）表示，如果有关中共国未兑现“第一阶段”贸易协议采购承诺的磋商失败，美国政府将考虑一系列选项，包括可能导致新关税的新贸易调查。
 
+Brilliant对记者表示，政府还可能与欧洲和其他盟友更密切地合作，向中共国展现出统一战线，要求其为国际企业提供更公平的竞争环境。
 
-文字版原文：[NFSC新闻、G|TV新闻访谈简报|2022年2月8日早](https://gnews.org/zh-hans/1976029/)
+美国周二公布的贸易数据显示，中共国在贸易协议中承诺的购买目标只实现了不到60%，远未达到“两年内将购买量从2017年的规模增加2,000亿美元”的承诺，中共病毒疫情和供应链瓶颈的干扰造成了影响。
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+Brilliant表示，“美国政府采取的任何行动都应该与商界和盟友协商，任何针对中共国的行动，如果不是以多边方式进行，不与欧洲以及我们在亚洲的朋友合作，就不会有那么大的成效。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+消息来源：[**焦点：拜登将考虑一系列对华贸易措施包括或导致新关税的调查**](https://cn.reuters.com/article/usa-chamber-commerce-china-0209-wedn-idCNKBS2KF025?il=0)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+*校对：东京樱花团/東洋武士*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

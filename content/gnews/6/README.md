@@ -2,35 +2,24 @@
 ---
 
 
-## 视频| 新中国联邦2022年最重要要做什么
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1982660/)
+## 2月9日大直播后记：冬奥会的兔肉汉堡包
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1982744/)
 
-制作：香草山视频部
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-新中国联邦2022年最重要要做什么
-一、一心一意灭共
-二 、全力以赴扩大新中国联邦被国际和个国家的主权的认可度
-三 、全力以赴在全球建立更多的新中国联邦农场
-四 、让我们更多的战友从国内被救出来，同时让国内更多的人知道我们新中国联邦
-五、让我们新中国联邦所有的战友们，在G系列里面能赚更多的钱 ，获得更多的机会
-六、要把全世界爱好正义的人们，被共产党病毒伤害的人们，和受到共产党疫苗的毒武器设计的人们，知道真相，跟我们联合在一起
-七、我们要把全世界受到共产党的经济威胁超限战的人，紧紧地和我们团结在一起，建立我们真正的爆料革命的国际公认的社交媒体大平台
-八、我们新中国联邦人，统一好我们的作战目标，统一行动，保命、保财、报仇
-更重要的事情，让我们所有的战友，兄弟姐妹们
-共同地度过这个至暗的时代
+整理：Rianna、Lucy Liu
+编辑：Sadhu
+![](https://assets.gnews.org/wp-content/uploads/2022/02/16-4.png)
+正在北京进行的冬奥会，人造的冰，和共产党现在所谓的在天空用火箭打的雪，一个在北京参加冬奥会的给我发了信息，她说，“Miles，我百分之百都信你，但是我真的是完全低估了共产党对这个世界的影响和对事物的认知，我已经不能用它们是可耻卑鄙这句话来形容了，因为它们也在卑鄙可耻之中。”我觉得这位德国女士还是有点水平的，就是它们不仅给你创造可恨可耻，它们也在可恨可耻之中。然后很多吃饭的人就说，“中国的美食文化，我终于明白了我们吃的最高级的就是汉堡包。”她说，“我终于改善了一餐伙食叫汉堡包。”汉堡包里放着什么大家很难想象，就旁边人告诉她说，今天给你特别改善，只有北京城才有的汉堡包，是兔肉汉堡包。我特意从那儿给你买回来的。对于德国的这个女士来讲，吃一个兔肉汉堡包还不如不吃呢！她说，“我也不相信那是兔肉，那个肉啊，黑乎乎的熏着。”我说，大多数的可能是旁边人一再呼吁，为了让你闭嘴，抓几只老鼠给你烤烤弄上来，叫它兔肉！
 
+这个世界造假造得如此之可怕，然而你却看到中共国整个上下一片高呼万岁自嗨高潮。
 
+**发布：**tianzhihuan
 
-发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,29 +2,25 @@
 ---
 
 
-## 有声|台湾陆委会坚决反对中共虚假的民主协商
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1982521/)
+## 加拿大特鲁多在下议院遭群嘲,被告知要遵循科学并结束强制疫苗
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1982607/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月6日，据台湾媒体报道，中共国政协主席汪洋此前一天与国民党前主席洪秀柱进行了会面。会上，汪洋声称，中共愿意与台湾各界开展“民主协商”。对此，台湾大陆委员会在一份声明中指出，中共政府所谓的“民主协商”就是妄图消灭中华民国台湾的协商，因此，台湾各界在与中共进行交流时应密切注意，并谨慎防范中共当局的统战分化操作。
+编译:赵圣欢
 
-陆委会表示，中共当局近期正在利用北京冬奥会进行统战宣传工作。其中，中共一直试图透过与相关国家或台湾方面人士的互动提倡其所谓的“一中原则”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2111.png)
 
-文字版原文：[台湾陆委会坚决反对中共虚假的民主协商](https://gnews.org/zh-hans/1980211/)
+据今日报导，总理特鲁多（Trudeau）在试图推动更多强制疫苗授权时多次被反对声浪淹没，但仍设法暗示目前实施的强制授权是为了避免实施更多限制。 与许多其他国家一样，加拿大人也忍受了过度扩张的政府对他们生活的限制，并被迫遵守封锁，口罩要求，甚至疫苗护照。
 
-音频处理/发稿：Daxia
+现在看来，加拿大人受够了，就连部长们也包括在内，今日彼时，加拿大下议院见证了意在结束由总理特鲁多推动的中共病毒限制措施歇斯底里的井喷式呼吁。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+下议院议长安东尼•罗塔（Anthony Rota）正在监督一场关于中共病毒议程的辩论，当时反对党领袖、保守党领袖坎迪斯•卑尔根（Candice Bergen）站起来说：”魁北克自由党核心小组主席表示，现在是时候停止分裂、政治化并结束任务了。 “我们保守党人不能同意更多，”卑尔根说，并补充说，”这不能只是一个缓慢而漫长的过程，仅仅因为总理先生的自负，骄傲或否认，加拿大人太累了，加拿大人需要希望”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+“因此，总理势必将遵循科学，遵循证据，结束限制，结束授权。 他说，”政府一直很专注……遵循最好的科学，遵循最好的公共卫生建议，以确保尽可能多的人的安全。坦率地说，它已经奏效了。我可以理解对任务的挫败感。但强制疫苗限制是避免进一步限制的方法。 这是一段视频，显示加拿大总理特鲁多在继续有心无力地死马当做活马医。加拿大人显然已经忍无可忍——那么就无须再忍了！
 
+新闻来源：[Trudeau Gets Heckled in The House of Commons & Told To Follow The Science & End Mandates](https://dailyexpose.uk/2022/02/09/trudeau-gets-heckled-in-the-house-of-commons-told-to-follow-the-science-end-mandates/)
+
+审核校对：Barry Jack
+上传排版：V在途中
 
  
 

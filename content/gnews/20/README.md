@@ -2,24 +2,23 @@
 ---
 
 
-## Parler为川普夫人加密货币提供服务
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1982451/)
+## 全球供应链危机将灾难性延续
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1982535/)
 
-#### 撰稿：彩虹       
+采编/编译撰稿：自由法兰西                 校对编辑：硫酸羟氯喹64
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/16444661681.png)图片来源：每日邮报
-据《国会山报》2月9日报道，周三，社交媒体平台Parler宣布正与前第一夫人梅拉尼娅·川普（Melania Trump）进行一项社交媒体“特别安排”，她将在（该）社交媒体网络上分享“独家通讯”。并指该公司在为梅拉尼娅的区块链技术和代币平台（MelaniaTrump.com）而提供服务。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Supply-chain-hero-1500x798-_2-800x425.jpeg-edited.jpg)图片来源：thenationalpulse
 
-在一份声明中，梅拉尼娅称赞了该社交平台，称其“使用户能够促进富有成效的讨论”。
 
-她说：“我对那些给全世界人民提供直接交流的自由言论平台感到兴奋和鼓舞。Parler在利用Web3.0技术方面一直走在前列，并使其用户能够促进富有成效的讨论。”
+据美国媒体《国家脉动》2月7日报道，由于动荡的亚洲局势、堵塞的海运港口，受阻的卡车运输以及短缺的劳工等因素，打击全球经济的供应链危机将会灾难性持续到明年或更长的时间。
 
-但是，报道指，这位前第一夫人仍然拥有活跃的脸书（Facebook）、推特（Twitter）和Instagram账户，目前还不清楚她与Parler的合作关系是否会影响她在这三个平台上的活动。
+报道指出，全球失控的疫情以及一触即发的台海战争，导致国际间各大货运港处于滞胀状态，货物堆积如山的同时，航运期限也因此成倍增加。
 
-**新闻来源**
+此外，美加两国货运卡车司机发起的大规模反政府防疫政策的抗议活动，进一步加剧了运输成本的暴涨，并导致北美卡车货运行业因此陷入困境。 同时，由于劳工的严重短缺冲击着供应链各个环节，因此最终将造成整个供应链的纷纷断裂。
 
-[Parler announces social media ‘special arrangement’ with Melania Trump](https://thehill.com/policy/technology/593453-parler-announces-social-media-special-arrangement-with-melania-trump)
+发稿：文明(添草灭共)
+
+[新闻链接](https://thenationalpulse.com/2022/02/07/nelles-those-transitory-supply-chain-issues-uh-theyre-here-for-a-while-and-heres-why/)
 
  
 
