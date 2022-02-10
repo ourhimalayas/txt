@@ -2,13 +2,11 @@
 ---
 
 
-## 东京成田机场2021年国际旅客数量创新低
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1981970/)
+## 2/9/2022 文贵直播：为何要跟PAG和UBS打官司？不是为了钱，而是揭露单伟建和单博的真面目并曝光UBS和中共的勾兑
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1982174/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/20220210-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+秘密翻译组-北美组
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
