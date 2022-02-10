@@ -2,24 +2,24 @@
 ---
 
 
-## 阿尔伯塔成为加拿大第二个取消疫苗护照省份
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1982406/)
+## 中日财经爆┃IMF：近100个国家正在研究CBDC央行数字货币
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1982411/)
 
-采编/编译撰稿：薇文                   校对编辑：硫酸羟氯喹64
+整理编辑：东京樱花团｜peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/02/pasted-image-0-2.png)[*图片来源*](https://s.yimg.com/uu/api/res/1.2/QS8HnmKoeEgWTyovEJMNhA--~B/aD05MTg7dz0xMjk2O2FwcGlkPXl0YWNoeW9u/https://s.yimg.com/uu/api/res/1.2/SciY4xTuD5San9GXVVWibg--~B/aD05MTg7dz0xMjk2O2FwcGlkPXl0YWNoeW9u/https://media.zenfs.com/ko/bloomberg_chinese_traditional_757/e16336364d8fc7b8e4e3f9e46cbd5998)
+国际货币基金组织（IMF）总裁2月9日表示，IMF预测目前有近100个国家正在研究央行数字货币，经验表明不存在统一标准模式。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot_20220209-223842_Samsung-Internet-edited.jpg)图片来源：thepostmillennial
+IMF在2月9日发布了一份研究报告，对包括中共国、瑞典和巴哈马在内的六个已经启动运行数字货币或处于后期测试阶段的国家进行了调研。
 
+IMF总裁格奥尔基耶娃在关于这份报告的讲话中表示，全球首批使用央行数字货币(CBDC)的经验表明，不存在放之四海而皆准的模式。金融稳定性和隐私考虑对CBDC的设计至关重要，同时也需要在设计和政的发展之间取得平衡。
 
-据加拿大媒体[后千禧年]2月8日报道，继萨省宣布于2月14日停止疫苗护照和在本月底取消配戴口罩规定的数小时后，阿尔伯塔省宣布成为加拿大第二个结束疫苗护照的省份。
+格奥尔基耶娃补充说:“CBDC目前还处于早期阶段，我们不太清楚它们能走多远，能走多快。”
 
-报道称，阿省[疫情内阁委员]会当天批准了一项逐步取消疫情限制的谨慎计划，而废除疫苗护照则首当其冲。并试图以此让该省居民摆脱疫情的困扰，尽快恢复正常的生活。
+消息来源：[**没有一种能够适用于所有国家的央行数字货币模式——IMF总裁**](https://cn.reuters.com/article/imf-director-cen-digital-currencies-0210-idCNKBS2KF05U?il=0)
 
-据悉，该计划于2月9日首先废除疫苗护照及限制豁免规定。2月14日将在所有公共场合取消对12岁及以下儿童和所有在校学生配戴口罩的要求。并将于3月1日在疫情趋缓的条件下，取消所有室内配戴口罩的要求。之后将最终停止包括强制隔离规定在内的所有防疫措施。
-
-发稿：文明(添草灭共)
-
-原文链接：[BREAKING: Alberta announces end of vaccine passports, other restrictions](https://thepostmillennial.com/breaking-alberta-announces-end-of-vaccine-passports-other-restrictions)
-
+*校对：东京樱花团/東洋武士*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

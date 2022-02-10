@@ -2,24 +2,30 @@
 ---
 
 
-## 乌克兰局势促英法两国采取行动
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1982486/)
+## 有声|台湾陆委会坚决反对中共虚假的民主协商
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1982521/)
 
-作者：东京樱花团｜文小白
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-990.png)[*图片来源*](https://www3.nhk.or.jp/news/html/20220210/K10013476941_2202100838_2202100840_01_03.jpg)
-据日本NHK 2022年2月10日报道，法国总统马克龙9日与美国总统拜登就军事紧张持续的乌克兰局势进行了电话交谈，并介绍了与俄罗斯总统普京见面会谈的情况。马克龙拟在俄罗斯、乌克兰和德国四国框架内用对话解决乌克兰问题，并就此事与拜登总统进行了确认。
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月6日，据台湾媒体报道，中共国政协主席汪洋此前一天与国民党前主席洪秀柱进行了会面。会上，汪洋声称，中共愿意与台湾各界开展“民主协商”。对此，台湾大陆委员会在一份声明中指出，中共政府所谓的“民主协商”就是妄图消灭中华民国台湾的协商，因此，台湾各界在与中共进行交流时应密切注意，并谨慎防范中共当局的统战分化操作。
 
-根据会谈后发表的公告显示，马克龙总统在本月7日和8日分别与俄罗斯总统和乌克兰总统举行了会晤。会晤中马克龙表示，将与俄罗斯、乌克兰和德国四国用对话的方式防止乌克兰局势的恶化，促进乌克兰的停战协尽快达成一致。
+陆委会表示，中共当局近期正在利用北京冬奥会进行统战宣传工作。其中，中共一直试图透过与相关国家或台湾方面人士的互动提倡其所谓的“一中原则”。
 
-在乌克兰局势持续紧张之际，英国外交部宣布，特拉斯外长于9日起为期两天访问俄罗斯，将与俄罗斯外长维克洛夫见面。
+文字版原文：[台湾陆委会坚决反对中共虚假的民主协商](https://gnews.org/zh-hans/1980211/)
 
-英国呼吁俄罗斯缓和与乌克兰的紧张关系，并进行有意义的讨论。“如果俄罗斯入侵乌克兰，将对所有相关人员造成严重后果”，特拉斯申明说，英国政府已宣布，如果俄罗斯入侵乌克兰，将大幅扩大与俄罗斯当局关系密切的个人和公司范围进行严厉的经济制裁。
+音频处理/发稿：Daxia
 
-信息来源：[**ウクライナ情勢 仏マクロン大統領と米バイデン大統領 電話会談**](https://www3.nhk.or.jp/news/html/20220210/k10013476941000.html?utm_int=news_contents_news-main_003)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-*校对：东京樱花团/東洋武士*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

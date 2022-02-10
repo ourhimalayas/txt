@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/10/2022 5:42 AM (UTC)`
+
+2/9/2022 Miles Guo: Himalaya Coin has frightened the CCP, breaking its shackles on the freedom and wealth of the Lao Baixing - Himalaya Coin gives the Chinese an alternative channel to spend their money freely across the globe so that they can achieve independence of wealth.<br/><br/>2/9/2022 文贵直播：喜币让中共吓破了胆，它打破了中共对老百姓自由和财富的桎梏 - 喜币能让中国人有了另一个渠道得以在全世界自由地花钱，并实现财富的独立<br/>
+![img](https://media.gettr.com/group28/getter/2022/02/10/05/27999f85-a7f2-28ec-8365-7974734bf1db/out.jpg)
+
+---
+
 `@miles 2/10/2022 5:39 AM (UTC)`
 
 2/9/2022 Miles Guo: The UBS case will unearth $50 trillion that the CCP has hidden overseas, which will allow the Chinese people to receive free education, health care, and funeral services and will eliminate all mortgage and credit card debts. The CCP sent people to lure me with money to settle with UBS, but they failed.<br/><br/>2/9/2022 文贵直播：UBS案将挖出中共在海外藏的50万亿美元，这笔钱能让中国人获得免费教育、医疗和丧葬并将免除所有的房贷和信用卡欠款；中共派人以金钱诱惑文贵跟UBS和解未果<br/>
@@ -147,13 +154,6 @@ Ms. Christine Anderson said, "Whenever a political entity resorts to extortion a
 
 2/6/2022 Miles Guo: The CCP got a slap in the face by claiming that more than 100 countries would participate in the opening of the Winter Olympics, while in fact less than five leaders of powerful countries made it. The opening ceremony of the Winter Olympics has become the closing ceremony of the end of the CCP. Putin's girlfriend brought her own rations when visiting Communist China and has never had the food offered by the CCP because it contains chemicals.<br/><br/>2/6/2022 文贵直播：中共被打脸，号称百余国参加的冬奥会开幕却只有不到5个有实力国家的元首出席；冬奥会开幕式已成为中共结束的闭幕式；普京女友访华自带口粮，从不碰中共化学食品<br/>
 ![img](https://media.gettr.com/group3/getter/2022/02/07/05/35aa86ea-6265-0d55-ec66-2e5d5b0df84c/out.jpg)
-
----
-
-`@miles 2/7/2022 2:12 AM (UTC)`
-
-2/6/2022 Miles Guo: The all-weather strategic partnership is essentially forming alliances. Money is the key for the CCP to maintain its relationship with Russia. Although Russia’s annual GDP is only $1 trillion, it signed gas agreements with the CCP with a total deal value of over $1 trillion. Why did Putin go back to Russia without signing the deal with the CCP to designate the RMB as Russia’s legal tender?<br/><br/>2/6/2022 文贵直播：中共全天候战略伙伴的本质是结盟；维持中俄关系全靠钱，只有1万亿美元GDP的俄罗斯从中共就签了总价值1万多亿的合同；普京为何不跟中共签把人民币作为法币的协议就回去了呢？<br/>
-![img](https://media.gettr.com/group50/getter/2022/02/07/02/5e5f3d95-0210-9798-d2d7-2a30a9dd378b/out.jpg)
 
 ---
 
