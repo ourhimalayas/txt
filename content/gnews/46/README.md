@@ -2,24 +2,31 @@
 ---
 
 
-## 乌克兰局势促英法两国采取行动
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1982486/)
+## 美国华裔美国人督促FBI调查中共间谍单伟建
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1983198/)
 
-作者：东京樱花团｜文小白
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-990.png)[*图片来源*](https://www3.nhk.or.jp/news/html/20220210/K10013476941_2202100838_2202100840_01_03.jpg)
-据日本NHK 2022年2月10日报道，法国总统马克龙9日与美国总统拜登就军事紧张持续的乌克兰局势进行了电话交谈，并介绍了与俄罗斯总统普京见面会谈的情况。马克龙拟在俄罗斯、乌克兰和德国四国框架内用对话解决乌克兰问题，并就此事与拜登总统进行了确认。
+**撰稿：日本东京方舟农场 Kevin wang**
 
-根据会谈后发表的公告显示，马克龙总统在本月7日和8日分别与俄罗斯总统和乌克兰总统举行了会晤。会晤中马克龙表示，将与俄罗斯、乌克兰和德国四国用对话的方式防止乌克兰局势的恶化，促进乌克兰的停战协尽快达成一致。
+2月8日，数百名华裔致信FBI，督促其调查中共的顶级间谍和洗钱罪犯单伟建。
 
-在乌克兰局势持续紧张之际，英国外交部宣布，特拉斯外长于9日起为期两天访问俄罗斯，将与俄罗斯外长维克洛夫见面。
+据[PRFreeNews](https://twitter.com/PRFreeNews)报道，农历新年过后，数百名华裔致信联邦调查局，督促其调查太平洋联盟集团（PAG）的董事长兼首席执行官单伟建及其儿子单博的经济间谍活动、知识产权盗窃、金融欺诈、移民欺诈和洗钱活动。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片-1-6.jpeg)（图片来自GNEWS）
+报道称，单伟建是中共的头号间谍，他应该为从美国养老基金偷钱和通过中共千人计划渗透美国承担责任。
 
-英国呼吁俄罗斯缓和与乌克兰的紧张关系，并进行有意义的讨论。“如果俄罗斯入侵乌克兰，将对所有相关人员造成严重后果”，特拉斯申明说，英国政府已宣布，如果俄罗斯入侵乌克兰，将大幅扩大与俄罗斯当局关系密切的个人和公司范围进行严厉的经济制裁。
+另据新中国联邦创始人郭文贵先生爆料，单伟建为中共在美间谍，其从文化大革命时期就被中共送到西方培养，隶属于中共海外国际秘密第六局，并成功渗入到美国最高层。
 
-信息来源：[**ウクライナ情勢 仏マクロン大統領と米バイデン大統領 電話会談**](https://www3.nhk.or.jp/news/html/20220210/k10013476941000.html?utm_int=news_contents_news-main_003)
+而在中共对郭先生发起的法律超限战中，其中有60余起案件的背后都有单伟健的影子，他们通过合同造假，签名造假，炮制出例如博讯案、马蕊强奸案和PAG案等案件，意图通过烂诉阻止甚至摧毁郭先生对中共恶行的揭露。
 
-*校对：东京樱花团/東洋武士*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+此外，据郭先生披露，单伟健作为董事长的PAG，是中共在西方政治、法律界的桥头堡，通过行贿输送利益，控制美国的律师，法官及家人。
+
+参考链接： 
+1. [https://www.prfree.org/@astralsoul/weijian-shan-the-chairman-and-ceo-of-pacific-alliance-group-pag-is-communist-china-s-high-ranking-spy-money-laundering-criminal-b7kx64ep7kry](https://www.prfree.org/@astralsoul/weijian-shan-the-chairman-and-ceo-of-pacific-alliance-group-pag-is-communist-china-s-high-ranking-spy-money-laundering-criminal-b7kx64ep7kry)
+2. [https://gtv.org/video/id=61b0b18fbbd75f62e532ced8](https://gtv.org/video/id=61b0b18fbbd75f62e532ced8)
+
+素材采编：Kevin wang
+编辑：文顺
+发布：文曦
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/10/2022 1:52 PM (UTC)`
+
+2月10号：尊敬的战友们好，你们健身了吗？传播C C P病毒！疫苗解药真相了吗？共产党正在北京进行的绑架冬奥会的一系列的无法律．无规则的无底线的行为．都将给中国人在世界上带来无法挽回的负面影响，可能导致中国人在世界上几代人都无法改变的排华危机……
+![img](https://media.gettr.com/group50/getter/2022/02/10/13/185297bf-d548-0191-11f9-3d18117f8cc5/out.jpg)
+
+---
+
 `@miles 2/10/2022 5:42 AM (UTC)`
 
 2/9/2022 Miles Guo: Himalaya Coin has frightened the CCP, breaking its shackles on the freedom and wealth of the Lao Baixing - Himalaya Coin gives the Chinese an alternative channel to spend their money freely across the globe so that they can achieve independence of wealth.<br/><br/>2/9/2022 文贵直播：喜币让中共吓破了胆，它打破了中共对老百姓自由和财富的桎梏 - 喜币能让中国人有了另一个渠道得以在全世界自由地花钱，并实现财富的独立<br/>
@@ -147,13 +154,6 @@ Ms. Christine Anderson said, "Whenever a political entity resorts to extortion a
 
 2/6/2022 Miles Guo: The Winter Olympics is dedicated to Xi Jinping only! Everyone in the CCP hates Xi for holding the Winter Olympics and the athletes colluding with the CCP. The CCP lacks both the financial resources and capabilities to successfully host the Winter Olympics. The West started to investigate the corruption in the International Olympics Committee caused by the CCP.<br/><br/>2/6/2022 文贵直播: 冬奥会是习太阳一个人的！党内都恨习办冬奥会以及和中共同流合污的运动员；中共在财力和能力上都无法保证冬奥会成功召开；西方已开始调查国际奥委会跟中共的腐败<br/>
 ![img](https://media.gettr.com/group50/getter/2022/02/07/08/f73596f6-3d04-74b6-606f-451f0ee92d61/out.jpg)
-
----
-
-`@miles 2/7/2022 5:04 AM (UTC)`
-
-2/6/2022 Miles Guo: The CCP got a slap in the face by claiming that more than 100 countries would participate in the opening of the Winter Olympics, while in fact less than five leaders of powerful countries made it. The opening ceremony of the Winter Olympics has become the closing ceremony of the end of the CCP. Putin's girlfriend brought her own rations when visiting Communist China and has never had the food offered by the CCP because it contains chemicals.<br/><br/>2/6/2022 文贵直播：中共被打脸，号称百余国参加的冬奥会开幕却只有不到5个有实力国家的元首出席；冬奥会开幕式已成为中共结束的闭幕式；普京女友访华自带口粮，从不碰中共化学食品<br/>
-![img](https://media.gettr.com/group3/getter/2022/02/07/05/35aa86ea-6265-0d55-ec66-2e5d5b0df84c/out.jpg)
 
 ---
 

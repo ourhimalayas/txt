@@ -2,30 +2,29 @@
 ---
 
 
-## 美国华裔美国人督促FBI调查中共间谍单伟建
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1983198/)
+## 北约称俄罗斯袭击的预警时间正在缩短
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1983912/)
 
-**撰稿：日本东京方舟农场 Kevin wang**
+信息来源： 路透社
 
-2月8日，数百名华裔致信FBI，督促其调查中共的顶级间谍和洗钱罪犯单伟建。
+翻译/整理： 意大利罗马达芬奇农场 Shuizhuyu
 
-据[PRFreeNews](https://twitter.com/PRFreeNews)报道，农历新年过后，数百名华裔致信联邦调查局，督促其调查太平洋联盟集团（PAG）的董事长兼首席执行官单伟建及其儿子单博的经济间谍活动、知识产权盗窃、金融欺诈、移民欺诈和洗钱活动。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片-1-6.jpeg)（图片来自GNEWS）
-报道称，单伟建是中共的头号间谍，他应该为从美国养老基金偷钱和通过中共千人计划渗透美国承担责任。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0046.jpg)
 
-另据新中国联邦创始人郭文贵先生爆料，单伟建为中共在美间谍，其从文化大革命时期就被中共送到西方培养，隶属于中共海外国际秘密第六局，并成功渗入到美国最高层。
 
-而在中共对郭先生发起的法律超限战中，其中有60余起案件的背后都有单伟健的影子，他们通过合同造假，签名造假，炮制出例如博讯案、马蕊强奸案和PAG案等案件，意图通过烂诉阻止甚至摧毁郭先生对中共恶行的揭露。
+图片来源： 路透社
 
-此外，据郭先生披露，单伟健作为董事长的PAG，是中共在西方政治、法律界的桥头堡，通过行贿输送利益，控制美国的律师，法官及家人。
+北约秘书长周四表示，俄罗斯必须在乌克兰危机的外交解决方案或面临来自西方的经济制裁与北约部队在联盟东部国家增加军事存在之间做出选择。
 
-参考链接： 
-1. [https://www.prfree.org/@astralsoul/weijian-shan-the-chairman-and-ceo-of-pacific-alliance-group-pag-is-communist-china-s-high-ranking-spy-money-laundering-criminal-b7kx64ep7kry](https://www.prfree.org/@astralsoul/weijian-shan-the-chairman-and-ceo-of-pacific-alliance-group-pag-is-communist-china-s-high-ranking-spy-money-laundering-criminal-b7kx64ep7kry)
-2. [https://gtv.org/video/id=61b0b18fbbd75f62e532ced8](https://gtv.org/video/id=61b0b18fbbd75f62e532ced8)
+“俄罗斯有一个选择：他们可以选择外交解决方案——我们准备坐下来——但如果他们选择对抗，他们将付出更高的代价，”延斯·斯托尔滕贝格说。
 
-素材采编：Kevin wang
-编辑：文顺
-发布：文曦
+他在布鲁塞尔与英国首相鲍里斯·约翰逊举行的联合新闻发布会上说：“将会有经济制裁。北约将在联盟东部增加军事存在，而英国确实是其中的重要组成部分。”
+
+简评：在东欧形式如此严峻的时刻， 欧盟和北约在不停的进行各种斡旋行动， 首先是马克龙到访莫斯科和明斯克， 北约内部也在不停的运作和给莫斯科施压。 根据郭先生2月9日的直播中， 也提到了普京对北京的不满和回到欧洲的强烈愿望， 相信乌克兰危机已经接近尾声。 战争可能已经避免了。
+
+🔗 [北约称俄罗斯袭击的预警时间正在缩短](https://www.reuters.com/world/europe/nato-says-warning-time-russian-attack-is-going-down-2022-02-10/)
+
+编辑发布： Shuizhuyu
 
  
 
