@@ -2,44 +2,41 @@
 ---
 
 
-## 福奇：美在退出大流行的“全面”阶段而三周前还说正在第一阶段
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1985750/)
+## 一个火炬手就想掩盖新疆种族灭绝罪？绝不可能
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1985848/)
 
-**编译： Jenny Ball**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip福奇：美在退出大流行的全面阶段而三周前还说正在第一阶段.png)图片来源：thegatewaypundit.com
-周二，福奇表示美国正在退出大流行的“全面爆发”阶段。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1035-e1644512558285.png)图片来源：网易
+据环球网2022年02月07日报道：外交部发言人赵立坚记者就北京冬奥会开幕式上出现一名维吾尔族火炬手的目的提问。赵表示，所谓“新疆存在种族灭绝”的说法纯属世纪谎言。关于火炬手，主要根据参赛运动员的权利，火炬手选拔的代表性和体现民族团结等方面考量。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1036.png)
+**短评：**
 
-本周新冠死亡人数达到了一年来的最高水平，那么“科学”发生了什么变化？
+每次“赵战狼”回答记者提问都能充分体现其智商下限和逻辑的混乱。既然“新疆种族灭绝”纯属谎言，那就把新疆对世界开放，允许第三方监督机构、各国人权组织和各大媒体去自由地调查采访，真相就能显露无疑。中共一面死死关着门，一面说家里一切都好，不怕人来查。外面的邻居都看见房子在冒烟，这种掩耳盗铃的把戏到底愚弄谁？赵战狼不清楚么？
 
-“根据约翰斯霍普金斯大学汇编的数据，本周，美国新冠肺炎死亡人数达到了大约一年来的最高水平，过去两周上升了 39%。” CNBC 报道。
+《奥林匹克宪章》主张每个运动员的权利，包括人权和平等。冬奥会期间各国运动员遭受的强迫疫情隔离、个人信息监控还有饱受屈辱的隔离待遇如何体现《宪章》保障运动员权利？
 
-“随着我们走出 COVID-19 的全面流行阶段，”福奇对英国《金融时报》说。 “我们肯定会走出，这些决定将越来越多地在地方层面做出，而不是由中央决定或授权。还将有更多的人自己决定如何应对病毒。”
+再说火炬手的代表性。冬奥会参赛运动员里面有9个少数民族，为何偏偏选新疆作为代表？作为少数民族，新疆人口在中共国排名第四，排在壮、回和满族后面，而且冰雪运动的基地在东北地区，满族人口比例高，不是更具有代表性？说到知名度，这个维族选手，从2018年开始一直在挪威训练，在国内的知名度并不高。如果她不是新疆人，还会选她么？最关键的一点，如果新疆没有任何问题，何必要开幕式故意弄出这一幕来以证清白。
 
-（点评：他已经逼迫全世界大多数人当了大药企mRNA毒药的试验老鼠，现在要甩锅，让人们自由应对“疫苗”DNA编辑人体基因和刺突蛋白造成的各种器官栓塞的灾难！）
+最后说说民族团结，民族团结就是一个万用遮羞布，哪里都能用。既然如此尊重新疆少数民族，怎么冬奥期间不让新疆人民去北京亲眼见识这一盛事？敢不敢对世界开放，看看新疆人进京被要求住的特别区域？
 
-就在三周前，福奇说大流行有五个阶段，而我们只处于第一阶段。
+中共弄虚作假撒谎成性，还想强迫世界相信？他们也许不知道，一旦世界认定中共政权不可信，这一认知对中共是灭顶之灾。
 
-那发生了什么变化？
+文章观点仅代表作者个人，与gnews平台无关
 
-随着每日 Covid 死亡率飙升，民主党州长们一致取消了全州范围内的口罩规定。
+新闻链接：[https://world.huanqiu.com/article/46ihi0AYP5O](https://world.huanqiu.com/article/46ihi0AYP5O)
 
-CNN 医学分析师莉安娜·温 (Leana Wen )博士本周表示，“科学发生了变化”，并呼吁取消对流行病的限制。
+素材：洛杉矶盘古农场 — Poplar
 
-进入中期选举，民主党的内部民意调查一定很糟糕！
+评论：洛杉矶盘古农场 — Poplar
 
-评论：从何时起，科学成立政治家操纵的信誉工具？
+审核：洛杉矶盘古农场 — 柯镇恶
 
-**新闻来源**：[thegatewaypundit.com][Dr. Fauci: US Exiting ‘Full-Blown’ Phase of Pandemic — After Saying We Are in the First Stage of COVID Just 3 Weeks Ago](https://www.thegatewaypundit.com/2022/02/dr-fauci-us-exiting-full-blown-phase-pandemic-covid-fatalities-reach-highest-level-year/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=daily)
-
-* * *
-
-***审核：文乐
-校对：花羽
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-3.jpeg)
+发布：洛杉矶盘古农场 — 子萍
 
 
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

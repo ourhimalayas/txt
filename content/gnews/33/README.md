@@ -2,42 +2,42 @@
 ---
 
 
-## 安东尼·福奇谈第四剂 COVID 加强针注射 ：“可能需要再注射一剂”
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1985684/)
+## 保守党议员提出加拿大首个关于加密货币的法案以促进该行业发展
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1985738/)
 
-**编译：沉默老歌**
+加拿大温哥华扬帆农场 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2022/02/CRYPTO-CURRENCIES-0_1636763408923_1636763424023.JPG.jpg)图片来源: Mint
+根据《Globe and Mail》2月9日报道，加拿大保守党呼吁联邦政府为加密货币行业的发展建立一个国家级框架，这是在下议院提出的第一个直接针对该快速发展的行业的法案。
 
-白宫首席医疗顾问安东尼·福奇博士暗示，美国可能需要第四剂加强剂来对抗 COVID-19 变体 Omicron，并补充说，加强剂可能基于个人的年龄以及潜在的疾病状况。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/147EC50B-39B8-405A-9ECD-1CE8169004FE.jpeg)图片来源：https://www.indiatvnews.com
-福奇博士在周三（2月9日）白宫简报会上说：“可能需要再次加强针注射，在这种情况下，对接受 mRNA 的个体进行第四次加强针注射，这可能基于年龄和潜在条件” 。
+保守党议员Michelle Rempel Garner在周三提出了这项私人法案，指示加拿大财政部长在三年内创建一个框架，以发展加拿大的加密货币行业，并减少从业者的行政负担。还特别呼吁部长在起草计划时咨询加密货币专家，但没有规定采取什么政策方向。
 
-Anthony Fauci 就数据显示需要注射超过第三剂的数据回应记者时说，这显然是一个备受关注的问题。
+Garner女士在接受采访时说，之所以需要该法案，是因为加密货币行业近年来呈现出戏剧性的增长，并有可能出现更多的增长。政府官员和立法者缺乏对该领域的了解，她希望法案中概述的程序能够弥合公共和私营部门在这个问题上的差距。
 
-早些时候，拜登总统的高级医疗顾问表示，自 11 月首次发现冠状病毒的 omicron 变体以来，全球已有 50 万人死于 COVID-19，称其为冠状病毒危机的“全面流行阶段”。 周二（2 月 8 日），世界卫生组织表示，自 omicron 被宣布为“关注的变体”以来，约有 100,000 例死亡发生在美国。
+Garner女士说：”我没有采取规定性的政策方法，我想给那些在该领域工作的人机会，在制定政策时推动发展”。她也希望通过暂时保持开放的程序，该法案可以吸引其他各方的支持。
 
-Fauci 博士进一步谈到此事时说：“在 6 个月至 24 个月以及 21 个月至 4 岁结束的儿童试验数据 是由制药公司进行的，这个案例是辉瑞”。与此同时，美国一些全州范围内的 COVID-19 口罩规定即将结束。
+皇后大学史密斯商学院研究加密货币的教授Erica Pimentel说，该私人法案是加拿大在追赶其他国家的正确方向上迈出的一步。
 
-据美国有线电视新闻网报道，此前，白宫周一继续遵守美国疾病控制和预防中心鼓励在学校使用口罩的指导方针，因为一些州正在采取措施取消课堂上的口罩规定。
+Pimentel教授说：”这为日益重要的话题打开了局面，而这个话题在国会山还没有适当地进行”。并表示，该法案缺乏细节，可能会导致过程被拖长，使其很难在一定时间框架内实现该政策。
 
-疾病预防控制中心建议接种疫苗的人“如果您在大量或高传播区域，应在室内公共场所佩戴口罩”。
+加密货币在国会山的讨论越来越多。渥太华抗议活动的组织者实际上已经关闭了该市的市中心，在被禁止进入更传统的众筹平台后，他们不得不转向加密货币进行筹款。
 
-据《华盛顿邮报》报道，全球冠状病毒死亡人数连续第五周上升，上周报告的死亡人数为 68,000 人，比前一周增加了 7%。 上周，世卫组织总干事谭德塞在新闻发布会上说，世界许多地方的新冠病毒死亡人数正在增加。他警告说，“任何国家投降或宣布胜利”都为时过早。
+同样，这个话题也出现在政府持续的预算前磋商中。上个月，财政委员会听取了一家连锁餐厅老板的证词，他敦促政府购买100亿美元的比特币，使数字资产像加元一样成为法定货币。
 
-他说：“我们担心，由于疫苗的存在，以及由于 omicron 的高传播性和较低的严重性，防止传播不再可能，也不再需要，因此我们担心这种说法已经站稳脚跟” 。 “没有什么比这种观点更偏离事实的了”。
+预计该法案将在未来几个月得到更多的辩论，并在夏季之前进行投票。
 
-**原文链接：**
+加密货币是发展趋势，希望加拿大加快步伐开放和发展该行业，Hcoin可以脱颖而出，在加拿大正常使用。
 
-[‘There may be need for yet again another dose’: Dr Antony Fauci on 4th COVID booster shot](https://www.indiatvnews.com/amp/news/world/dr-antony-fauci-fourth-covid-booster-shot-need-for-another-vaccine-booster-dose-covid-vaccination-corona-strain-covid-cases-coronavirus-pandemic-2022-02-10-758925)
 
-**编辑：LILY**
 
-**发布：歪桑**
+原文链接：
+[https://www.theglobeandmail.com/business/article-canadas-first-bill-on-cryptocurrency-regulation-aims-to-boost/](https://www.theglobeandmail.com/business/article-canadas-first-bill-on-cryptocurrency-regulation-aims-to-boost/)
 
-20220210
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+
+编辑，发稿 Spirit
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
