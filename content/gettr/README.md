@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@s7gril 2/10/2022 7:30 PM (UTC)`
+
+EP9: The Villains. Let's tear down the monstrous lies of this despicable #HBO #VICE production with TRUTH!  第九集：恶棍。让我们用真相揭露这部卑鄙的，充满谎言的 #HBO #VICE 制作 ！   #isobelyeung #vice @miles  #graphika  #jackstubbs #foreigninfluenceoperations #ccprunningdog #thevillans  #hbovice訪談真相 #伪类 <br/>#伪民运  #deception #unrestrictedwarfare #antsinaweb #takedowntheccp #weijianshan #单伟健 #ccpspies
+![img](https://media.gettr.com/group22/origin/2022/02/10/19/2169fd5d-34f5-9452-5d4a-2d5d21afa517/out.jpg)
+
+---
+
 `@miles 2/10/2022 3:37 PM (UTC)`
 
 2/9/2022 Miles Guo: The CCP will technically become the defendant in the UBS case. UBS sold my stocks to a CCP-controlled fund by force and subsequently became the only foreign bank to receive the financial license from the CCP. Due to such “coincidences”, UBS will have no choice but to disclose its collusion with the CCP. So, the CCP is doomed!<br/><br/>2/9/2022 文贵直播：UBS案子的对方将变成中共！UBS将文贵的股票强买强卖给了中共的基金，并随后成为唯一获得中共金融牌照的外国银行，这些“巧合”让UBS将不得不把它和中共的勾兑和盘托出，中共完蛋了！<br/>
@@ -147,13 +156,6 @@
 
 Ms. Christine Anderson said, "Whenever a political entity resorts to extortion and manipulation to push an agenda so hard, you can almost always be sure your benefit is definitely not what they had at heart. I will not be vaccinated with anything that has not been properly vetted and tested, and has shown no sound scientific evidence that the benefits outweigh the risks and that there are no long-term side effects. I will not get vaccinated because my government tells me to and promises in return I will be granted freedom. No one grants me freedom, for I am a free person."<br/><br/>欧盟议会议员 Christine Anderson 女士：每当一个政治团体如此强硬地推行他们的计划，并且为了达到目的而使用威逼利诱的手段时，你几乎可以肯定，他们的心里绝对没有你的利益。我不会注射任何没有经过适当审查和测试、没有可靠科学证据能够表明其利大于弊且不会有长期副作用的疫苗。我也绝对不会为了政府许诺给我的自由而去打疫苗。没有人可以给我自由，因为我本就是一个自由人。
 ![img](https://media.gettr.com/group29/origin/2022/02/07/13/214d5ce4-7260-8307-bf2f-a4a6a7c496ef/out.jpg)
-
----
-
-`@miles 2/7/2022 8:15 AM (UTC)`
-
-2/6/2022 Miles Guo: The reason why the CCP kowtows to Russia is that the Caucasians in the West don’t want to engage with them. So, the CCP can only use the excuse that Russia is the origin of communism to fool the Chinese people. With the anger building up in the hearts of the Chinese, they can turn against the CCP once they have a chance.<br/><br/>2/6/2022 文贵直播: 中共认俄爹是因为西方白人不愿和中共交往，中共只好以俄国是共产主义发源地为由忽悠中国人；中国老百姓心中积压的怒火使得他们一有机会就会向中共动手<br/>
-![img](https://media.gettr.com/group22/getter/2022/02/07/08/3e3c1a61-cfee-7fe0-0cf7-74d7bd2d9527/out.jpg)
 
 ---
 

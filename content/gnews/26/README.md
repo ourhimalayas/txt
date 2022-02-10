@@ -2,8 +2,8 @@
 ---
 
 
-## 追回盗国贼盗取的钱让中国人真正享受到最好的福利
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1985751/)
+## 新中国联邦的基地部署
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1985779/)
 
 作者：东京樱花团小视频组
 
