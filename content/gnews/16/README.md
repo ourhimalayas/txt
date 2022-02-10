@@ -2,22 +2,23 @@
 ---
 
 
-## 针下亡魂｜希腊 21 岁足球运动员接种疫苗后死亡
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1982043/)
+## 梵蒂冈支持加拿大卡车司机反疫苗护照运动
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1982199/)
 
-**撰文/ 疫情关注组｜发布日期/ 10/02/2022**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/New-Looks-In-Autumn-Style123445_2.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/post/pl6k0218bf](https://gettr.com/post/pl6k0218bf)）**
+采编/编译撰稿： 苦尽甜来 (文來）                      校对编辑：硫酸羟氯喹64
 
-隶属于伊利乌波利具乐部的希腊 21 岁足球运动员 Alexandros Lampis ，在本月初（2日）对阵 Ermionida 的比赛中，即开场14分钟时，因心脏骤停而倒在赛场上。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Archbishop_Carlo_Maria_Vigano-810x500-1-edited.jpg)图片来源：lifesitenews
 
-最令人遗憾的是，由于当时体育场内并没有除颤器可用，Alexandros 足足等了 20 分钟，才等到救护车赶到。之后不久，伊利乌波利具乐部在官网宣布了Alexandros 的死讯。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/希臘-21-歲足球運動員接種疫苗後死亡.jpeg)
+据美国媒体【生命新闻】2月7日报道，梵蒂冈红衣大主教维加诺在致加拿大所有参加反抗疫苗护照运动卡车司机的信中指出，人们已更加清晰地看见全球主义恶棍精英利用疫情，在全球开启了反人类的灭顶灾难。
 
-根据希腊当局的防疫规定，获得上场比赛资格的运动员必须接种 COVID-19 疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/希臘-21-歲足球運動員接種疫苗後死亡.jpg)
-来源｜[TheSun](https://www.thesun.co.uk/sport/17524888/alexandros-lampis-dies-21-greek-footballer-cardiac-arrest/)
+维迦诺在信中说：“亲爱的加拿大卡车司机朋友，你们加入了一个世界范围的团体，来对抗那些希望通过世界经济论坛来统治世界的邪恶势力。加拿大，澳大利亚、意大利、奥地利和法国等都是全球主义政客渗透最深的国家。在这个地狱般的大重启计划中，我们不仅要考虑到疫情灾难，还要防止这些精英对其国家民主，自由和宗教的破坏。”
+
+报道称，红衣大主教深深体会卡车司机们面临的巨大困难，包括放弃工作，恶劣天气条件、漫长的黑夜以及被当局逮捕的威胁。并因此诚恳表达其支持和赞誉。同时，维迦诺将为反抗者们祈祷，希望在加拿大的示威行动获得成功，并尽可能扩展到其他国家。
+
+发稿：文明(添草灭共)
+
+原文链接：[Abp. Viganò endorses Canadian truck drivers, calls for prayers to defeat ‘infernal’ Great Reset – LifeSite (lifesitenews.com)](https://www.lifesitenews.com/opinion/abp-vigano-endorses-canadian-truck-drivers-may-your-efforts-be-crowned-with-success/)
 
  
 

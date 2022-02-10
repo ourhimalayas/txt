@@ -2,41 +2,61 @@
 ---
 
 
-## 2022.2.9大直播后记：北京冬奥会开幕式的假
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1981956/)
+## 中国共产党是一个鲁莽、不人道、不负责任的政权
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1982157/)
 
-**整理：Rianna、Lucy Liu
-编辑：Candy**
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-420.png)
+参议员玛莎.布莱克本： 中国共产党是一个鲁莽、不人道、不负责任的政权。 他们不应该获得世界舞台来举办今年的奥运会。
 
 
-请问中国同胞们，你们谁到现场去看过开幕式了？我的战友，郭文贵的战友，爆料革命的核心人物，未来你会看到视频出来，有人吗？！
 
-现场所有的外国人，个个惊慌失措。但是所有人被那个大屏、被张艺谋导演震撼了，因为外国人去的国家太小。你把非洲那些国家，甭说，你看给他拿一个摩托罗拉手机，都觉得是高科技。你拿个过去的大哥大都觉得高科技、外星科技，他们见过什么世面呢？！忽悠他们，康佳大屏一搞，就把一个电脑放在人眼睛上，你给他弄啥他看啥。
+> The Chinese Communist Party is a reckless, inhumane, and irresponsible regime. 
+> 
+> They should have never been given the world stage to host this year’s Olympic Games.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [February 9, 2022](https://twitter.com/MarshaBlackburn/status/1491548314034130946?ref_src=twsrc%5Etfw)
 
-结果是真的，现场那种政治操控的巨大威胁。普京看透了，说，你现场根本就没人，你吹了半天根本没人，这些东西你接下去没法解释的。然后普京多一分钟都不想呆在这儿。你还不兑现，特别是黄金，作为储备兑现，作为法币。最后翻脸了，人家不干了。
 
-大家记住啊，这时候谁去了？马克龙作为法国的三驾马车（之一）、两架马车德国和法国去俄罗斯见普京：求求你了，大爷！你不要打乌克兰，咱好好说！你的天然气，所谓的北溪2号，咱可以谈。法国给你承诺，买你3000亿美元的所有的天然气，你不打乌克兰行不行？然后再聊聊在北京的看法。 本来见面是三个小时，最后谈了五个小时。
 
-听说普京大谈北京，他说，“你们老说我们跟中国亲，你们这帮孙子不跟我玩啊。咱们是亲兄弟啊，你不跟我玩，我得找个人当托儿啊。”他说，“你看他们开幕式完全都是假的，雪都是假的。”普京的其中一个女朋友就是滑雪芭蕾舞的，去都不让她去。那个雪污染以后，普京就说：我当场问了中国官员，中国官员说没事儿。那个雪的化学成分污染大地，万年不会散去，他们说没事儿！
+众议员马乔丽·泰勒·格林： 几十年来，美国政客出卖了美国，用他们的爱国主义换取中国的财富。 这张肮脏的中国奥运会的图片概括了这一切。 美国必须做出选择。 不要再和中国共产党打交道，把出卖我们国家的叛徒赶出去。
 
-制雪机是哪儿造的？一大半是俄罗斯造的，人家是有规格的，干啥用的都是特定的。中国全拿山上去，在一个完全没有雪的雪山上还弄出一个滑雪跑道，然后搞了一个全球的冬奥会。这从当年1928年在法国举行的冬奥会开始，到今天就是个人类的耻辱。
 
-然后普京给马克龙很好地聊了聊北京的经历，说：他们太在乎形式主义了，吃个晚餐啊，搞了一大堆，要让我点评，我才不跟他们吃去呢。染上病怎么办呢？中东啊，中东那几个傻国家掐架掐得要死，都想在中共国表现我是中东老大。
 
-最后一分钟，沙特王子说：钱不给是吧？我同意你用人民币结算石油了，现在需要美元呐！你给我弄500亿、1000亿美元，先让我接上点美元。中共说：“不行，你来了以后再说。”“那不行，我去之前你先给我。”沙特跟中共国之间，就像郭宝胜和夏业良一样。
+> For decades US politicians have sold out America and traded their patriotism for riches from China.
+> 
+> This picture of the filthy Olympics in China sums it all up.
+> 
+> America must make a choice. 
+> 
+> No more deals with the CCP and throw out the traitors who sell out our country. [pic.twitter.com/55gx4em0WQ](https://t.co/55gx4em0WQ)
+> — Rep. Marjorie Taylor Greene (@RepMTG) [February 9, 2022](https://twitter.com/RepMTG/status/1491450892897644549?ref_src=twsrc%5Etfw)
 
-普京讲出这些过程的时候，你看看中东他们，就这样被共产党玩。沙特王子最有钱却是世界上最没有现金的。然后说，“那就以我染上病毒为由我不去了，美国还威胁我，不让我参加，你不给我钱，我咋去啊？”这个当时是沙特排在第二号的人物，什么泰国诗琳公主等等就是打酱油的。
 
-***发布：Candy***
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+前国务卿迈克.蓬佩奥： 俗话说，自由不是免费的。 它只给那些为保护它而愿意付出有时是沉重代价的人们。
+
+
+
+> Freedom is not free, as the saying goes. It is only for those who are willing to bear the sometimes-difficult price of preserving it.
+> — Mike Pompeo (@mikepompeo) [February 9, 2022](https://twitter.com/mikepompeo/status/1491414576436748298?ref_src=twsrc%5Etfw)
+
+
+
+参议员卢比奥新闻办公室： 参议员卢比奥、布莱克本和泰尼，提出了《排除中国共产党意外方法案》，该法案将指导证监会，要求在美国交易所上市的公司确认其运营中是否存在中共组织。
+
+
+
+> Sen Rubio, Sen [@MarshaBlackburn](https://twitter.com/MarshaBlackburn?ref_src=twsrc%5Etfw) & [@RepTenney](https://twitter.com/RepTenney?ref_src=twsrc%5Etfw) introduced the No Chinese Communist SURPRISE Parties Act, which would direct the [@SECGov](https://twitter.com/SECGov?ref_src=twsrc%5Etfw) to require companies listed on U.S. exchanges to identify whether a [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) organization is present in the firm’s operations.[https://t.co/tq0DSBhp0H](https://t.co/tq0DSBhp0H)
+> — Senator Rubio Press (@SenRubioPress) [February 9, 2022](https://twitter.com/SenRubioPress/status/1491464790308495361?ref_src=twsrc%5Etfw)
+
+
+
+比尔·格茨: [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 经济衰退威胁最高领袖 [#习近平](https://twitter.com/hashtag/%E4%B9%A0%E8%BF%91%E5%B9%B3?src=hashtag_click) 的重振新毛贼东共产主义政策。
+
+
+
+> China’s economic downturn threatens supreme leader Xi Jinping’s policy of reimposing neo-Maoist communism [https://t.co/0iuq5ZmPEj](https://t.co/0iuq5ZmPEj)
+> — Bill Gertz (@BillGertz) [February 10, 2022](https://twitter.com/BillGertz/status/1491594617573105665?ref_src=twsrc%5Etfw)
+
+
 
  
 

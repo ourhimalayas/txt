@@ -2,42 +2,37 @@
 ---
 
 
-## 诺贝尔医学奖得主 Luc Montagnier 教授去世的消息未被证实
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1981981/)
+## 子公司列入美出口管制清单，药明生物暴跌后停牌
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1982189/)
 
-撰稿：小雨
-![](https://assets.gnews.org/wp-content/uploads/2022/02/FWU374ZYKL66EM5YPUEIP2IDCQ-1.jpg)网络图片
-12小时之前，社交媒体上传播着2008 年诺贝尔医学奖得主 Luc Montagnier 教授过世的消息。但到目前为止，还没有官方消息或其他法国和国际媒体证实这一消息。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-法国网站France Soir在Twitter2 月9日上发布如下推文：
+#### 整理：Sara9
+编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-02-下午10.11.59-5.png)
+当地时间2月7日（周一），美国商务部表示，有33家中共国经营实体已列入“未经核实清单”（Unverified List），要求美国出口商在向这些实体运送货物前，必须经过更多审核。
 
-“*2008 年诺贝尔医学奖得主 Luc Montagnier 教授于 2022 年 2 月 8 日在他的孩子们面前安详地去世。*
-*1932 年 8 月 18 日 – 2022 年 2 月 8 日*
+中共国在香港上市公司药明生物（Wuxi Biologics）旗下两家位于无锡和上海的公司也列入清单。周二，药明生物的股价单日最大跌幅超过31%，创上市以来最大跌幅。
 
-*愿这位伟人的灵魂安息！*”
+在当地时间上午10时51分，药明生物停牌，停牌前报62.25港元，下挫22.7%，成交额为58.15亿港元，其市值约损失了770亿港元（约合99亿美元）。药明康德也随之大跌，H股一度跌逾两成，A股触及跌停。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-971.png)[推特链接](https://twitter.com/france_soir/status/1491361948407336971)
+药明生物发言人强调，美国政府此次行动，且对其公司业务及向全球合作伙伴提供服务并无直接影响。首席执行官陈智胜（Chris Chen）在投资者大会上表示，本次被列入清单的公司，仅旗下在无锡和上海的两家公司，但这两地厂房已建好，不需大量购入受管制的设备。
 
-网站France Soir在几小时后发布了一篇悼文：
+药明生物所制造的产品，包括了阿斯利康COVID-19疫苗的原料。去年12月，药明生物公司已成为人们关注的焦点，当时即有人猜测该公司可能面临美国更严厉的制裁。
 
-*Luc Montagnier 教授（1932 年 8 月 18 日 – 2022 年 2 月 8 日），在塞纳河畔纳伊的美国医院去世，享年89岁。教授最忠实的合作者之一 Gérard Guillaume 医生告诉我们，Luc Montagnier 教授在孩子们的陪伴下平静地离开了。*
+此次药明生物子公司列入美国清单，也许只是揭开冰山一角。自2019年起，中共国最牛的产业就是医药外包服务（CXO），按产业链环节分工包括CRO、CMO、CDMO等。随着中共国全世界撒毒，CXO相关股价持续飙升。今天，美国将其列入出口管制“黑名单”，是否步华为后尘？让我们拭目以待！
 
-*Luc Montagnier 教授是一位生物学家和病毒学家，最重要的是，教授还是一位为科学而活的具有非凡智慧的人。除了因发现艾滋病病毒而获得 2008 年诺贝尔医学奖外，教授还与世界上最伟大的科研机构一起工作。Luc Montagnier 教授担任 CNRS名誉研究主任，巴斯德研究所教授，纽约城市大学皇后学院分子与细胞生物学中心主任，上海交通大学研究所所长。多年来，Luc Montagnier 教授通过研究支持了科学院和美国国家医学院。为此，他获得了无数的奖项和荣誉。*
+新闻链接：[遭美列入出口管制清单 药明生物暴跌后停牌](https://www.epochtimes.com/gb/22/2/8/n13562604.htm)
 
-*尽管Luc Montagnier 教授年事已高，尽管他在人生的晚年遭受了所有批评，尤其是来自科学界的一部分，但教授一直为自由科学而奋斗。我们很幸运能够在 FranceSoir 多次接待他，并希望将所有荣誉都授予他。*
+*发布：玉米地守望者*
 
-曾邀请Luc Montagnier 教授参加米兰示威活动的参议员 Gianluigi Paragone 在他的 Facebook 个人资料中谈到了这件事。他表示对此也知之甚少或一无所知：“我无法确认或否认。我只知道几天来我们一直试图与他的随行人员取得联系，但我们没有成功。”
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-**简评：**
-
-今天读到此消息，只有震惊，也有不少的猜想。过去两年中，高龄的Luc Montagnier 教授到处奔波做演讲和接受采访，宣传病毒和疫苗的真相，用自己的学术声望去试图唤醒被洗脑的民众。我们钦佩Luc Montagnier 教授的学识和人品，从教授身上我们看到一个真正尊重科学和真理的学者和科学家。
-
-希望是虚惊一场。无论如何，我们为Luc Montagnier 教授祈祷。
-
-新闻链接：[Yellow on Luc Montagnier, guru of no vax. France Soir: “He’s dead”. But there are no confirmations](https://www.unionesarda.it/en/yellow-on-luc-montagnier-guru-of-no-vax-france-soir-he39-s-dead-but-there-are-no-confirmations-sc5q6ize)
-
-[L’éminent professeur Luc Montagnier s’est éteint le 8 février 2022](https://www.francesoir.fr/societe-sante/leminent-professeur-luc-montagnier-sest-eteint-le-8-fevrier-2022)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
