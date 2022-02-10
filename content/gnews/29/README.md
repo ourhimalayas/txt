@@ -2,36 +2,55 @@
 ---
 
 
-## 郭先生诉瑞银成功立案 爆料革命进入攻坚战
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1985492/)
+## 美商务部将33家中共国公司列入红名单
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1985560/)
 
-作者：纽约香草山 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月9日，郭文贵先生在大直播中透露，针对瑞银集团的诉讼目前已经在英国伦敦成功立案，而这将标志着爆料革命以钱灭共的战略正式进入反攻阶段，同时，那些被盗国贼家族藏匿在西方的巨额财富将极有可能再次回归人民。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-10-上午11.03.14.png)
-郭先生解释道，据一位伦敦法官的裁定，由于伦敦是案件的事发地，且瑞银集团伦敦分部“充分和显著地”参与了形成索赔行动的几个要素，因此，英国有权审理这起诉讼案。
+**评论：***美国公司与红名单中的中共国公司交易需要许可证，即需要通过额外审查（包含军事目的），但中共国公司由于大量作假无法通过审查，终将因不守规则、以骗治国而自食其果。*
 
-郭先生分析称，七年来，瑞银集团一直试图以管辖权为由逃避立案追诉，这一消息恰恰给了瑞银一记重击。另一方面，该案件在伦敦成功立案的意义重大：人类历史上的沼泽地都是世界游戏的定义者，而瑞银又是沼泽地核心的核心，对瑞银的追诉将让沼泽地与中共勾兑的真相无所遁形。
+据《apnews.com》作者：ERIC TUCKER，2022年2月7日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1030-e1644509901499.png)图片来源：ap news
+华盛顿（美联社）——拜登政府对33家合法性无法核实的中共国公司亮起红灯，限制其从美国出口商接收货物，并要求美国公司进行额外的交易前调查。
 
-郭先生还补充道，瑞银是中共最重要的黑金藏匿之地，而只有在法庭审理的过程中，我们才能把中共一切见不得光的交易、存款、名单等统统暴露在阳光下，才有可能把属于中国老百姓的财富，以及他们被中共剥夺了的公正和尊严全部找回来。
+美商务部周一表示，它正在将这些公司列入所谓的“未经核实的名单”，这是一份全球企业名册。由于美国官员无法进行常规的检查，这些企业将受到更严格的出口控制。
 
-参考链接：
-1）[2022年2月9日 文贵大直播](https://gtv.org/video/id=6203b7b13621aa7415d80e9e)
-2）[UBS Loses Bid to Dodge Chinese Billionaire’s $500 Million Suit](https://www.bloomberg.com/news/articles/2022-02-09/ubs-loses-bid-to-dodge-chinese-billionaire-s-500-million-suit?srnd=premium-europe)
+该部负责出口执法的助理部长马修-阿克塞尔罗德（Matthew Axelrod）声明：“及时完成最终用途检查并验证美国出口接收方合法性和可靠性的能力是我们出口管制系统的核心之一。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+他补充，将中共国33个当事方列入未核实名单，将有助于美国出口商进行尽职调查和评估交易风险，并向中共国政府表明他们安排最终用途检查合作的重要性。
 
-总编：Irene木木
-编辑：静言
-校正/发稿：呼吸的雾霾（文小呼吸）
+此前，联邦调查局局长克里斯托弗-雷在上周的一次演讲中表示：该局大约每12小时就会展开一项与中共情报行动有关的调查。并警告：没有哪个国家比中共对我们的思想、创新和经济安全构成如此广泛的威胁。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+中共国一再拒绝美国政府的指控，说华盛顿进行了毫无根据的攻击和恶意的抹黑。
+
+美商务部的行动使得出口商向名单上公司运送产品时，需获得许可。行动提醒名单公司必须证明其合法性，并愿意遵守美国的法规，以继续接收货物。
+
+此举同时告诉中共国，如果希望这些公司从名单上拿下，当局必须允许美国对这些公司进行检查和视察。
+
+在中共国，看似用于商业用途的产品最终被转用于军事目的。
+
+这些检查通常是与中共国政府协调进行的。当美国无法进行检查，该公司就会被列入未经核实的名单。它可以通过接受检查并确定其为合法企业而从名单上消失。
+
+周一被标记的大多数公司是电子企业，也包括光学公司、一家涡轮叶片公司、大学的国家实验室和其他企业。
+
+新增33家中共国公司使上市实体入单总数达到175家。其他有公司被列入未核实名单的国家包括俄罗斯和阿拉伯联合酋长国。
+
+原文连接：[https://apnews.com/article/business-china-27c61929cdbc91cc3c425572ac197662](https://apnews.com/article/business-china-27c61929cdbc91cc3c425572ac197662)
+
+翻译：洛杉矶盘古农场 – TrueSky
+
+校对：洛杉矶盘古农场 – 轰炸机
+
+评论：洛杉矶盘古农场 – 轰炸机
+
+编辑：洛杉矶盘古农场 – WenXiong
+
+发布：洛杉矶盘古农场–子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

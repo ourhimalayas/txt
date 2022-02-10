@@ -2,28 +2,23 @@
 ---
 
 
-## 美对台出售爱国者军备系统抵御中共威胁
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1985495/)
+## 有声|英国接受中共病毒疫苗的儿童 死亡率增加数倍
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1985642/)
 
-作者：纽约磐石农场—在远方/银河系农场—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月8日，据台湾媒体报道，台湾外交部已经正式接到美国政府的通知，即美方将对台湾出售价值1亿美元的设备和服务，用以维持、维护和改进台湾现有的爱国者导弹防御系统。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-10-上午11.03.31.png)
-对此，台湾外交部表示了高度欢迎。同时，外交部也强调，鉴于中共持续的军事扩张和挑衅行为，台湾将继续深化台美双方紧密的安全伙伴关系，并对印太地区的和平、稳定与繁荣做出贡献。
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+2月7日媒体报道，英国国家统计局在2021年12月公布了分年龄组的个体死亡率的标准化数据，该分组是按照中共病毒疫苗的“接种”状态分组，涵盖 2021 年 1 月 1 日至 10 月 31 日。
 
-据悉，这是拜登政府任期内的第二次对台军售。早在去年8月，美国曾向台湾军队出售了自行野战炮、野战炮兵弹药补给车、野战炮兵战术数据系统等价值约七亿五千万美元的军备。
+数据显示，接种一针和接种两针疫苗的儿童与未接种的儿童相比，死亡人数显着增加。15～19岁的儿童，接种一针，死亡风险会增加近一倍，如果他们接种二针，则死亡风险会增加三倍以上。10至14岁的儿童在接种第一针后死亡风险几乎未接种者的10倍，而接种第二针后的死亡风险是没有接种疫苗儿童的 51.8 倍。
 
-此外，美国在台协会官员在采访时指出，中共对台湾的侵略行径不只在军事方面，还包括传播不实信息、经济胁迫和网络攻击等。为此，美国将继续推动台湾实现军事现代化的进程，并协助其维护当地的政治稳定、军事平衡及经济进步，从而更好地应对中共不断演变的威胁。
+平均来说，这些数据意味着在2021年1～10月，英国10～19岁、至少注射过一次新冠疫苗的儿童死亡的概率要高出3.7倍。
 
-参考链接：
-1）[拜登政府二度對台軍售 將出售1億美元愛國者系統工程勤務](https://news.ltn.com.tw/news/politics/breakingnews/3822566)
-2）[US approves $100m deal for Taiwan to upgrade Patriot missile system](https://www.theguardian.com/world/2022/feb/08/us-approves-100m-deal-for-taiwan-to-upgrade-patriot-missile-system)
+文字版原文：[英国接受中共病毒疫苗的儿童 死亡率增加数倍](https://gnews.org/zh-hans/1982691/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+音频处理：Fei797
+发稿：Fei797
 
-总编：文真/文特
-编辑：谐趣园/静言
-校正/发稿：呼吸的雾霾（文小呼吸）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

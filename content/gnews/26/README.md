@@ -2,8 +2,8 @@
 ---
 
 
-## UBS是全球黑暗沼泽地的核心中的核心
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1985519/)
+## 习普两人的勾兑 中国人民将付出惨重代价
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1985650/)
 
 作者：东京樱花团小视频组
 
