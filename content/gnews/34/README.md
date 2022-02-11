@@ -2,24 +2,32 @@
 ---
 
 
-## 冬奥会金牌得主谷爱凌避而不谈其美国身份
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1991298/)
+## 2022/02/10 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1991335/)
 
-加拿大温哥华杨帆农场枫叶快讯
+1. 2月9日，广西百色市中共政府通报新增180例新冠病毒确诊病例。被封城后的广西百色是军管的状态，市民自由出行大大受限，唯有警车畅行的身影。
+2. 2月9日，香港市民连夜排队做核酸检测。失去自由民主法制的香港，在中共中央政府的控制之下已与大陆无异。
+3. 中共的社区管理模式是区域化监控人民的有生力量。视频为社区运动式宣传中共中央禁放烟花爆竹的政策。
+4. 2月7日，河南郑州。春节后号称“全球最大医院”的郑州大学附属医院人山人海堪比春运，就诊患者排队排到崩溃。
+5. 就诊大厅外的排队患者众多，维持现场秩序保安在呼叫同事增援。
+6. 2月2日，在赞比亚投资矿山的的中国投资者遭到当地酋长强行抢沙。海外华人在外遇不公正的待遇，并不会如中国共产党宣传的那样有国家在身后。恰恰相反，中共并不会真正在乎普通华人的利益。 中国人≠中国共产党！
+7. 2月8日，湖北武汉。金融港一路附近共享单车堆积成灾。“霸占”斑马线，“包围”红绿灯，行人过路犹如“障碍赛”。
+8. 2月9日，中共国大陆经济凋零，年后恐将又会迎来一大批实体店铺的倒闭潮。
+9. 2月9日，广东做衣服的低价村，每天有几万人在这里流浪等待工厂招聘。
+10. 2月7日，江苏沛县。民政局员工春节节后第一天去上班，不料离婚业务申请爆满，导致服务器系统崩溃异常。
+11. 2月8日，河南。年后父母离家务工，被迫留守的孩子在家门口哭的撕心裂肺。
 
-采编：风云小哥        翻译编辑：文所未闻
-![2022 Beijing Olympics - Freestyle Skiing - Women's Freeski Big Air - Final - Run 3 - Big Air Shougang, Beijing, China - February 8, 2022. Gu Ailing Eileen of China reacts after winning gold. REUTERS/Fabrizio Bensch](https://cloudfront-us-east-2.images.arcpublishing.com/reuters/XJFCGGOM45OIRLDK3ZRQXSKH2E.jpg)图片来源：Reuters
-据《路透社》2月8日报道，代表中共国参加本次冬奥会自由式跳台滑雪并于当天获得金牌的运动员谷爱凌，在面对各界质疑其真实国籍时含糊其辞，避而不谈。
 
-报道称，由于中共当局不允许双重国籍，因此这位出生在美国旧金山的运动员在其15岁时就放弃了美国国籍而成为中共国公民。然而，在当天获得金牌后的新闻发布会上，谷爱凌却拒绝回答记者提出的“她是否仍然是美国公民”的问题。
+* * *
 
-据悉，谷爱凌在获得金牌之后，迅速成为了中共国家喻户晓的新星，她同时也从成为众多国内品牌代言人中获得巨大名利。 对此，文贵先生在其2月9日的盖特中指出，谷爱凌母女为贪图眼前蝇头小利，不惜卖身为奴，助共为虐，并为该邪恶政权蹂躏全世界的罪行涂脂抹粉。其多行不义之举已成为将来全球排华危机的诱因之一，必将引火自焚，悔之莫及！
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-原文链接： [https://www.reuters.com/lifestyle/sports/freestyle-skiing-golden-girl-gu-sidesteps-citizenship-question-2022-02-08/](https://www.reuters.com/lifestyle/sports/freestyle-skiing-golden-girl-gu-sidesteps-citizenship-question-2022-02-08/)
 
-校对编辑：硫酸羟氯喹64
+编辑：【英国伦敦喜庄园编辑部】
 
-发文：青青
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

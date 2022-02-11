@@ -2,20 +2,30 @@
 ---
 
 
-## 意大利批准开打第四剂新冠疫苗
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1991399/)
+## NFSC新闻、G|TV新闻访谈简报|2022年2月11日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1991465/)
 
-#### 翻译/ 简评                           意大利达芬奇农场                       小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-11-alle-18.51.22.png)图片来源：eventiavversinews.it
-意大利批准开打第四剂疫苗，虽然在电视中政客和医学界代表直到最近还在安慰意大利人推动他们打第三针，称之为最后一针（但现在已不是最后一针了）。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO.jpg)
 
-那些有免疫抑制问题的可以接受第四针新冠疫苗。这是卫生部在回答皮埃蒙特大区的问题时给予的答复：“特别是那些有免疫缺陷的人， 在接种了第一针和第二针之后的28天，接种了第三针（额外针），他们可以注射第四针 (称之为加强针)。第四针是要在第三针之后至少120天后开始接种。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-10.png)
+文章仅代表作者本人观点，与Gnews无关
 
-简评：第四针要来了， 可能还会有第五针、第六针……这么一直打下去。尽管有大量的数据证明新冠疫苗有很多致命的副作用，而且已经有众多的医生和科学家站出来质疑疫苗的安全性,政府还是催着人们打疫苗，这世界太疯狂了。正如文贵先生所说：“疫苗灾难远远没有开始，疫苗灾难绝对比我说的， 比你们想像的要大得多得多，你们一定要做好准备。”
+视频参看：
+[2022.02.11早 《NFSC新闻》](https://gtv.org/video/id=620664a7a1fe5e57a426ce59)
+[2022.02.11早 G|TV《新闻访谈》](https://gtv.org/video/id=62066d61a1fe5e57a426dc0d)
 
-原文链接：[https://www.eventiavversinews.it/via-libera-alla-quarta-dose-in-italia-nota-del-ministero-della-salute-dell11-febbraio-convocati-gli-immunodepressi-120-giorni-dopo-la-terza-dose/](https://www.eventiavversinews.it/via-libera-alla-quarta-dose-in-italia-nota-del-ministero-della-salute-dell11-febbraio-convocati-gli-immunodepressi-120-giorni-dopo-la-terza-dose/)
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-编辑、上传：   Xiao     baige
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

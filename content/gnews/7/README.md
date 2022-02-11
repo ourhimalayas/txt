@@ -2,17 +2,31 @@
 ---
 
 
-## 郭文贵先生将移居日本和英国 全面加速灭共
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1991955/)
+## 新中国联邦今年会有三个大惊喜（2022-02-06摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1991969/)
 
-郭先生说，他一生尝尽酸甜苦辣，唯一的目标就是灭掉共产党，要找回中国人失去了70年的财富、尊严和公正。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-郭先生公布之后很可能移居日本和英国。去伦敦就是为了UBS的案子，而日本是对中共作战，亚洲唯一安全的地方。郭先生会更加全身心的灭共，让中国每个角落都可以直接听到爆料革命的声音。
+来源：郭先生2022-02-06直播11：17：08摘录
 
-视频来源: 20220209—郭先生大直播
-视频制作: 文星光，梦田
-文案:文星光
-上传: 零点
+我们大师说的，新中国联邦今年会有三个大惊喜，他说三个大惊喜里两个都是要走火运，还有一个走土运，就两个。第三个他没告诉我，两个我已经知道了。所以说再一个我们金融啊，我们的金融是“土生金”，金融财啊，然后是“木生火，火生金，金生土，土生万物”，北侧为水，东侧为木，南侧为火，西侧为金，中间为土”，大师一说，大师说得都是对的，他说让我跳楼我都跳，我百分之百相信他。所以说就今天改成了这个红旗49色，大家尽管地去用，还有红旗会带信仰之星的颜色也会很快出来，谢谢！
+
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

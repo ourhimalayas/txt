@@ -2,32 +2,38 @@
 ---
 
 
-## 七哥说&#8221;如果中国人不改变，不用人家排华，自己把自己就给排死了&#8221;
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1992028/)
+## 乌克兰新闻 &#8211; 现场直播：由于担心俄罗斯入侵，英国人被告知立即离开该国
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1992048/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+**编译：沉默老歌**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/968E6266-D575-4746-A49F-605FA851C055.png)图片来源：[https://www.independent.co.uk](https://www.independent.co.uk/)
 
-来源：郭先生2022-02-06直播11:37:18摘录
 
-广州现在吃胎盘，就头两天，节前一个战友给我发个信息，把我恶心的，我真的是半天过不来劲儿。他说：“七哥，这是我跟着你，从来不再吃胎盘了，但我让你看看今天我们前面摆着啥。” 十几个就是七、八个月从胎里取出的孩子，人形看得清清楚楚，在锅里炖，鹰、蛇、老鼠，叫天地八仙宴，包括人的，就能逮多少动物全给炖了。这就是今天发达的广州，还在病毒期间。你知道另外一个就是在武夷山的战友，他说：”七哥头两天我去参加一个吃饭去，领导过自己的66大寿，炖了11只鹦鹉。” 鹦鹉啊，鹦鹉。我说：”这还有吃鹦鹉的这帮孙子！” 他说：“七哥，一个算命跟他说，今年你要避掉你的血，你要吃鹦鹉，杀十几只鹦鹉吃。”中国人在全人类上，我要告诉大家的，不是人家排华，人家的排华是物理排华、心理排华、经济排华。我们自己人想想兄弟姐妹们，如果中国人不改变，不用人家排华，自己把自己就给排死了。这就是新中国联邦的媒体平台的力量，你们不知道，你们真的不知道，亨利小哥，真的文真，真的是文大石，小新，你们要知道《大直播》的魅力，就是今天的讲真话。
+由于担心俄罗斯军队的入侵，英国人被告知立即离开乌克兰。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+外交部在周五晚上更新了建议，告诉英国国民“在商业手段仍然可用的情况下立即离开”。
 
-**关注我们**
+这一警告是在鲍里斯·约翰逊在与包括美国总统乔·拜登在内的世界领导人通话时表达了对欧洲安全的担忧之后发出的。
 
-Discord 账号
+此前，英国国防部长本·华莱士警告称，在与俄罗斯外长绍伊古进行“坦率”讨论后，俄罗斯仍可能在短时间内发动入侵。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+华莱士先生说，俄罗斯军队的定位使他们有能力“随时”入侵邻国，但他说他从俄罗斯政府那里听说它“无意”入侵乌克兰。
 
-Gettr 账号
+俄罗斯已经在乌克兰附近集结了超过10万军队，本周它在邻国白俄罗斯发起了联合军事演习，并在黑海进行了海军演习。
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+**原文链接：**
 
+[https://www.independent.co.uk/news/world/europe/ukraine-russia-news-putin-truss-biden-b2012758.html](https://www.independent.co.uk/news/world/europe/ukraine-russia-news-putin-truss-biden-b2012758.html)
+
+**编辑：LILY**
+
+**发布：歪桑**
+
+20220211
+
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3-4.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
