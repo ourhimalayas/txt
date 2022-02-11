@@ -2,37 +2,31 @@
 ---
 
 
-## 有声|调查显示：TikTok追踪用户信息最多，但数据去向不明
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1991797/)
+## 七哥说“有几个懂得爱”（2022-02-06摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1991839/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-CNBC 2月8日报道，最新调查显示：在社交媒体应用市场中，TikTok追踪、共享用户的私人信息最多，同时，TikTok还允许第三方跟踪器广泛收集用户的个人数据，但这些数据的最终去向目前还不明确。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%9B%BE%E7%89%871-37.png)
-调查还发现，因第三方追踪器的应用，无法得知TikTok的用户们被收集到了哪些私人信息，也不知道是谁在收集用户们的信息，这可能将使普通用户面临更大的隐私风险。用户们即使已经离开TikTok的应用程序，第三方追踪器依然能够追踪到用户在其他网站上的活动状况。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-此前，TikTok还被曝出，其海外应用的服务器，一直在与它的中共国母公司共享全球用户的隐私信息。美国前总统川普也曾因此倡议全美禁用抖音。
+来源：郭先生2022-02-06直播08：21：53摘录
 
-郭文贵先生曾指出，TikTok就是中共军方用于窃取个人隐私数据、和监视用户行为的间谍软件，也是其对西方文化渗透的社交媒体武器。这项调查将成为中共意图控制世界的又一罪证。
+我在老家看到的就是哥仨买一个媳妇，然后就是那个我们…就在我们曹营村，你可以去查查，就现在还在，哥仨买一个媳妇，然后他爹，他妈妈早过世了，他爹就跟仨儿子和着一个女的。我到甘肃的某个地方的时候，不是叫什么，甘肃的叫什么地方？敦煌旁边，这敦煌的旁边的一个地方，就是这个地方就是所谓的那个贫困区，就是一家人和着一个女的，公开的，一家人一个媳妇。就是中国人，我最早说，杨改兰的时候，中国绝大多数的农村山里边人畜不分。就是我在东北赵家沟的地方，晚上养着牛，养着驴，要牵到那个锅台旁边搁起来，养的鸡、养的鹅、养的羊放到屋里去，要不然它被怕被狼给叨走了，怕人给偷了。早上把这些牵出去，再开始做饭。人畜不分，今天是一点也没改变。中国人多个男人和着一个，爹、儿子、侄子和着一个女人，今天中国大有，多了去了。跟当年所谓的窦尔敦去这个大英帝国，看到当时乾隆皇帝在里边说，我是拥有天下一切美好的，跟你这些洋人做什么夷人做什么生意呀。实际上他是800年，或者500年的垃圾都没清理过。他看到城墙外边、故宫外边死很多人，几个哥们、几个兄弟娶一个女人，她说这个是个破船烂铁，砸，砸烂它。今天一模一样，这就是整个中国的女人，但凡有点姿色的，你问问你自己，你嫁给你现在的丈夫，他娶了你啥？娶的就是你的姿色，一边儿去你干啥。有人娶你的文化水平，有人娶你的内在的吗？没有。你觉得他懂得爱吗？中国14亿人，有几个懂得爱的，不就是什么老婆热炕头吗？吃了睡，睡了吃。有几个懂得爱的呀。还有记载的任何女生今天有成就的，你告诉我，你没有做过昧心的事？没做过坏良心的事？你骗鬼，鬼都不信。这就是这个社会的悲哀，这就是美国和欧洲西方的伟大。你看到任何一个人都在独立的人格，在正常的工作和生活。就你看到人家这里的人那个正常的生活，每个人都对。你敢对要饭的，你骂一句试试，告死你了，你完破产了。比尔盖茨你敢骂一句要饭的试试，全美国要饭的把你告死了。这就是人家西方的文明，是吧。真正的就是好人有好报，坏人能得到惩罚；好人能得到尊重，坏人能得到惩罚。而在中共国是坏人统治的好人，坏人永远不受到惩罚，好人没好报。
 
-文字版原文：[调查显示：TikTok追踪用户信息最多，但数据去向不明](https://gnews.org/zh-hans/1988254/)
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+**关注我们**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+Discord 账号
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+Gettr 账号
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
