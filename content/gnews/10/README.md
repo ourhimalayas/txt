@@ -2,48 +2,31 @@
 ---
 
 
-## 政客施压南非医生不要说Omicron是轻症
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1991304/)
+## 七哥谈“什么事情都正反两面”（2022-02-06摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1991315/)
 
-**翻译：Lulumi**
+文编：Hima
+听写：叮叮
+视频：七哥
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip政客施压南非医生不要说Omicron是轻症.png)图片来源：justthenews.com
+来源：郭先生2022-02-06直播09：30：00摘录
 
-她说：“他们指责我撒谎，指责我因为Omicron在欧洲的表现而淡化它。”
+特别我们烧掉的这个绝密文件，我现在往回看，我一直想如果那个文件美国早点儿拿到，是吧，就是救好多好多人。你是基于美国政府相信你这个文件，你是基于这个文件它真的就会采取行动，很多条件下，亨利兄弟你知道这个情况。但是我们经过这些年在美国五年来看待，就像单伟建这样的人，就是Isobel Yeung这样的人，吴征这样的人在美国还能最后把川普总统能搞到SPAC公司这个情况，美国是资本主义的国家。还有我跟FBI打这么多年交道，还有跟CIA也给他们谈过那么多次，给美国各种议员这么多文件，可以告诉大家，即使你那文件不烧掉给了他们，起到作用几乎也不大，很悲哀！美国这个国家有很多好处，它的好处、不可能只有好处，什么事情都正反两面，它的好处之外的另一面就是官僚，它这个官僚就让你很无奈，是吧！就是你什么事儿一说，这个案子要两年，这个案子三年。
 
-发现Omicron变体的南非医生现在说出了政客和科学家如何向她施压，要求她不要公开称新的COVID-19变体为轻度疾病。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-“我被告知不要公开说这是一种轻度疾病。有人要求我不要做这样的声明，并说这是一种严重的疾病。我拒绝了。”安吉利克·科茨博士在最近一次由《大纪元时报》翻译的采访中告诉德国《世界报》。
+**关注我们**
 
-“在南非，这是一种较轻的疾病，但在欧洲，它一直是一种严重的重病，这也是政客们希望我说的。欧洲的科学家和政客们施加了很大的压力，他们说：‘请不要说这是一种轻度的疾病’，”科兹博士在本周《每日邮报》报道的另一次采访中告诉《每日电讯报》。
+Discord 账号
 
-南非医学协会主席科茨博士在11月说，Omicron的症状“极其温和”，其症状包括“有点头痛”和“更多的是喉咙发痒”。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-“我是一名临床医生，根据临床情况，没有迹象表明我们面对的是一种非常严重的疾病，”科茨博士告诉世界报。“病程大多是温和的。我不是说你不会生病，我是说病症比较温和。”
+Gettr 账号
 
-“由于Covid的所有突变，这些不是来自南非的所有科学家和政客都在联系我，告诉我当我说出来温和时是错误的，这是一种严重的疾病，”科茨博士告诉电讯报。“他们告诉我，我不知道我在说什么，他们一直在攻击我。”
-
-2021年12月19日，荷兰成为第一个因Omicron而进入封锁状态的欧洲国家。在美国，民主党控制的各州实施了严格的COVID-19新规定，数千所学校在1月份因Omicron感染案例而关闭。
-
-然而，虽然中共病毒COVID-19的数字创下历史新高，但死亡人数仍低于美国以前的高峰。
-
-“他们指责我撒谎，指责我因为欧洲的情况而淡化Omicron，”她在电讯报的采访中说。“在他们看来，一个有38个以上突变的疾病不可能是轻度的。”
-
-“轻度COVID-19疾病的定义很清楚，它是一个（世界卫生组织）的定义：病人可以在家里治疗，不需要吸氧或住院，”据报道，科茨告诉世界报解释说：“严重的疾病是我们看到的急性肺部呼吸道感染：人们需要氧气，甚至可能需要人工呼吸。我们在Delta变体看到了这一点。但Omicron并没有这些症状。所以我对他们说，‘我不能这样说，因为这不是我们看到的情况’”。
-
-许多民主党控制的州正在开始收回强制令，如伊利诺伊州、加利福尼亚州和纽约州，在大多数情况下，对接种疫苗的人都放弃了口罩要求。
-
-另一方面，中国仍在实行“清零”政策，并承认在冬奥会前对数百万人进行了测试。
-
-**新闻来源**：[justthenews.com][South African doctor who discovered Omicron says politicians pressured her not to call it mild](https://justthenews.com/politics-policy/health/south-african-doctor-who-discovered-omicron-says-politicians-pressured-her)
-
-* * *
-
-***审核：文乐
-校对：小东
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-3.jpeg)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

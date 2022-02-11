@@ -2,34 +2,32 @@
 ---
 
 
-## 芬太尼原料来自中共国，中共明知故犯
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1990347/)
+## 郭先生示警排华形势日益严峻
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1990550/)
 
-撰稿：首尔天池农场-zzballack
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-2.png)
+作者：纽约香草山教育部 – Noemi
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月9日，郭文贵先生在大直播中指出，全球目前排华的整体形势日益严峻，而新中国联邦还没有把握能从根本上化解此危机。因此，在保障全球华人未来的安全问题上，更多同胞需要觉醒并努力。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/4-17.jpg)
+郭先生分析称，针对全球排华危机，有两点尤为值得注意：其一，与彻底消灭共产党相比，如何能让被洗脑的中国人重新获得辩是非、识真假的能力，将是新中国联邦所面临的一个更加艰巨的任务。其二，越来越多的国家正在从中共病毒及疫苗的超限战中醒来，他们会逐渐将怒气转移到当地华人身上——这或将导致东欧、俄罗斯、东南亚及非洲等地未来出现超出想象的排华运动。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1123.png)
-米尔格拉姆进一步表示，中共国现在的化学行业几乎不受监管，这些化学品每天被运往墨西哥，及其他拉丁美洲国家。解决芬太尼危机的关键，就是阻止这些化学品不能进入墨西哥。
+郭先生强调，中国人只有与中国共产党彻底区分开来才能避免成为中共替罪羊的命运。为此，同胞们只有从思想上彻底铲除中共的余毒，才能真正地获得自由、尊重和重生。
 
-郭先生在2019年8月的爆料中警告世界，中共利用芬太尼搞乱、搞弱、搞死美国，是中共3F美国计划的核心战术之一。美国终于认识到，中共就是芬太尼事件的真正凶手。
+参考链接：[2022年2月9日 文贵大直播：UBS正式立案 打响沼泽地的第一仗；习普政治困局；中美俄三角斗；药厂政策调整；药厂政府互掐；何为全球货币；七哥个人生活](https://gtv.org/video/id=6203b7b13621aa7415d80e9e)
 
-链接：https://www.breitbart.com/clips/2022/02/08/dea-administrator-china-knows-its-chemicals-are-used-to-make-fentanyl-it-needs-to-do-more/
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
-
-总编：文特
-
+总编： 文特
 编辑：静言
-
-校正/发稿：浪迹天涯
+校正/发稿：Fei797
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-2.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,31 +2,24 @@
 ---
 
 
-## 七哥谈“邪恶必将被消灭”（2022-02-06摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1991279/)
+## 冬奥会金牌得主谷爱凌避而不谈其美国身份
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1991298/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+加拿大温哥华杨帆农场枫叶快讯
 
-来源：郭先生2022-02-06直播09：23：28摘录
+采编：风云小哥        翻译编辑：文所未闻
+![2022 Beijing Olympics - Freestyle Skiing - Women's Freeski Big Air - Final - Run 3 - Big Air Shougang, Beijing, China - February 8, 2022. Gu Ailing Eileen of China reacts after winning gold. REUTERS/Fabrizio Bensch](https://cloudfront-us-east-2.images.arcpublishing.com/reuters/XJFCGGOM45OIRLDK3ZRQXSKH2E.jpg)图片来源：Reuters
+据《路透社》2月8日报道，代表中共国参加本次冬奥会自由式跳台滑雪并于当天获得金牌的运动员谷爱凌，在面对各界质疑其真实国籍时含糊其辞，避而不谈。
 
-所谓义工们，那些恨、那些恼怒、那些没办法、绑在手上的脚镣、强迫着做义工，我真感觉大地在颤抖，苍天在愤怒，魔鬼在呼啸，人类到了一个大重启的时候，邪恶必将被消灭，经济是世界更迭的必然发生的事件。今天直播在这儿你看着，再过5月份以后，就像小新在病前病后，她完全变了一个人，她对生命、对爱、对人性，只有她自己知道。你活着你是人，你是男是女，你死了，是男是女、长得好看不好看，跟你毛关系没有，你就是一堆灰。对待人类的经济和未来就这么简单，一样的，你有这个经济基础就有，没有你想装，装不出来。共产党还能再回到以前吗？那是不可能的。
+报道称，由于中共当局不允许双重国籍，因此这位出生在美国旧金山的运动员在其15岁时就放弃了美国国籍而成为中共国公民。然而，在当天获得金牌后的新闻发布会上，谷爱凌却拒绝回答记者提出的“她是否仍然是美国公民”的问题。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+据悉，谷爱凌在获得金牌之后，迅速成为了中共国家喻户晓的新星，她同时也从成为众多国内品牌代言人中获得巨大名利。 对此，文贵先生在其2月9日的盖特中指出，谷爱凌母女为贪图眼前蝇头小利，不惜卖身为奴，助共为虐，并为该邪恶政权蹂躏全世界的罪行涂脂抹粉。其多行不义之举已成为将来全球排华危机的诱因之一，必将引火自焚，悔之莫及！
 
-**关注我们**
+原文链接： [https://www.reuters.com/lifestyle/sports/freestyle-skiing-golden-girl-gu-sidesteps-citizenship-question-2022-02-08/](https://www.reuters.com/lifestyle/sports/freestyle-skiing-golden-girl-gu-sidesteps-citizenship-question-2022-02-08/)
 
-Discord 账号
+校对编辑：硫酸羟氯喹64
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+发文：青青
 
  
 

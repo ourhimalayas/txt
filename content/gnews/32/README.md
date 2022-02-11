@@ -2,25 +2,25 @@
 ---
 
 
-## 加拿大卡车司机引发的多米诺骨牌效应
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1991083/)
+## 中共谴责安倍前首相与蔡英文总统举行电话会谈
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1991100/)
 
-加拿大温哥华杨帆农场枫叶快讯
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-47.png)
+（图片源自本文链接）
 
-采编/编译： 文莱
-![](https://assets.gnews.org/wp-content/uploads/2022/02/6D051114-F463-4514-94CA-0EE77190FAC8_1_201_a.jpeg)图片来源：nationalpost
+日本朝日电视2月11日消息：针对安倍前首相与台湾总统蔡英文的电话交谈，中共外交部强调，中国坚决反对与台湾的一切官方往来。
 
-据【温哥华太阳报】2月8日报道，加拿大多个省份已宣布将结束包括疫苗护照在内的大部分疫情限制措施。计划废除强制性疫苗政策的多米诺骨牌效应，正在西方各国逐步显现。
+台湾总统府10日宣布，总统蔡英文和日本前首相安倍晋三于1月31日进行了电话交谈。交谈中，对台湾申请加入跨太平洋伙伴关系之TPP, 安倍晋三说日本表示欢迎。
 
-报道称，卡车司机坚持不懈地在首都渥太华地区的抗议行动，是导致加拿大多个省政府放弃强制性疫苗政策的主要原因之一。此外，各省的卫生部门在各项疫情相关数据面前，发现疫苗接种并不能有效遏制新冠病毒的传播。因此，继续使用疫苗护照已变得毫无意义。
+中共国外交部在11日的新闻发布会上回应说：中国坚决反对与台湾的一切官方往来。一些日本政客以任何方式损害中国的主权是不可接受的。
 
-据悉，加拿大自由车队所引发的多米诺股牌效应正在席卷欧洲。最明显的表现是，西班牙、英国、丹麦和爱尔兰等曾经实施严厉防疫政策的国家，现在也已陆续宣布了将重新开放被长期封锁的社区。
+信息来源：[安倍元総理と蔡総統の電話会談に中国「あらゆる公的往来に断固反対」（テレビ朝日系（ANN）） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/3c4797d1b4d8ffc37891c35cf4b87ab5337e7ba9)
 
-新闻来源: [The dominos begin to fall: Most Canadian pandemic strictures should be gone by spring | Vancouver Sun](https://vancouversun.com/news/canada/the-dominos-begin-to-fall-most-canadian-pandemic-strictures-should-be-gone-by-spring/wcm/b6615752-cb76-4d96-be13-4c7f0c52818f)
+校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
-校对编辑：硫酸羟氯喹64
-
-发布：青青
 
  
 

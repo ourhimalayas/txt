@@ -2,31 +2,24 @@
 ---
 
 
-## 七哥谈灭共的事业（2022-02-06摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1991370/)
+## 冬奧會金牌得主谷愛淩避而不談其美國身份
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1991411/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+加拿大溫哥華楊帆農場楓葉快訊
 
-来源：郭先生2022-02-06直播09:53:36摘录
+采編：風雲小哥        翻譯編輯：文所未聞
+![2022 Beijing Olympics - Freestyle Skiing - Women's Freeski Big Air - Final - Run 3 - Big Air Shougang, Beijing, China - February 8, 2022. Gu Ailing Eileen of China reacts after winning gold. REUTERS/Fabrizio Bensch](https://cloudfront-us-east-2.images.arcpublishing.com/reuters/XJFCGGOM45OIRLDK3ZRQXSKH2E.jpg)
+據《路透社》2月8日報道，代表中共國參加本次冬奧會自由式跳臺滑雪並於當天獲得金牌的運動員谷愛淩，在面對各界質疑其真實國籍時含糊其辭，避而不談。
 
-就像我们灭共的事业，新中国联邦这么大的事情。你见过人类上的干那么大事儿哪有不流血的？哪有不死上百万，千万人，几十万人的？我们一滴血不流。我们一打个官司战友们尖叫，是吧，那你怎么可能呢？我们灭共的心都有，还有什么怕的呢。经历过五年以后，我们对世界上所有的政治形势的运作，把握，参与度，可以说都是没有任何人可以跟我们媲美的。我们一没军队，二没银行，三没有所谓的可以奴役的交税的人民，全靠我们行动和智慧，达到今天的地步。任何有脑子的人，就像是国内的咱体制内的这些战友们，他说：这都是不可思议的，每一天每一步都是不可思议的。就像GTV，共产党里边儿多少人保证啊：肯定消灭了，拿掉了。他没想到GTV越来越强大。盖特上线，国内多少人给那习太阳保证：绝对给它叫上不成，保证给它消灭掉。搞了多少盖特的毛病啊，搞了多少大外宣的文章啊，攻击啊，它做成了吗？没做成。那么我们反过来看这个疫苗的问题到今天的时候，我们开始报疫苗事情，共产党内部就是说，没有人相信爆料革命，没人相信郭文贵的，不用在乎他。在他们一片“没有在乎”当中，我们成了世界上唯一的“一级”，启动了“以苗灭共”的大行动。在“以苗灭共”之前，“路大脑袋”、“蛇妖闫”、“九指妖”都想跟咱抢功，想把七哥踢出爆料这个“船”去。你不觉得荒唐吗？我们是“以毒灭共”，他就说“以毒灭共”是我的专利啊，你不能动，你爆料革命算啥呀。现在你想想这孙子有多赖啊，那“找爹博”还有“癌症丽”，他在哪儿呢现在？如果两三年以后你还能看到“路大脑袋”、“九指妖”还有“蛇妖闫”，还有“癌症丽”，他们都好好的，像一年前的活在世界上，你们每个都尿我一脸，你们每个都尿我一脸。就他触动的法律，造的假和他的狂妄，他必将为此付出法律的代价。而且多个官司咱都已经跟他准备上了。“路大脑袋”他都想把爆料革命窃为己有，都存有如此之歹心。
+報道稱，由於中共當局不允許雙重國籍，因此這位出生在美國舊金山的運動員在其15歲時就放棄了美國國籍而成為中共國公民。然而，在當天獲得金牌後的新聞發布會上，谷愛淩卻拒絕回答記者提出的「她是否仍然是美國公民」的問題。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+據悉，谷愛淩在獲得金牌之後，迅速成為了中共國家喻戶曉的新星，她同時也從成為眾多國內品牌代言人中獲得巨大名利。 對此，文貴先生在其2月9日的蓋特中指出，谷愛淩母女為貪圖眼前蠅頭小利，不惜賣身為奴，助共為虐，並為該邪惡政權蹂躪全世界的罪行塗脂抹粉。其多行不義之舉已成為將來全球排華危機的誘因之一，必將引火自焚，悔之莫及！
 
-**关注我们**
+原文鏈接： [https://www.reuters.com/lifestyle/sports/freestyle-skiing-golden-girl-gu-sidesteps-citizenship-question-2022-02-08/](https://www.reuters.com/lifestyle/sports/freestyle-skiing-golden-girl-gu-sidesteps-citizenship-question-2022-02-08/)
 
-Discord 账号
+校對編輯：硫酸羥氯喹64
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+發文：青青
 
  
 

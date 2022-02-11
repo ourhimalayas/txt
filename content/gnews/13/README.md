@@ -2,30 +2,46 @@
 ---
 
 
-## 西班牙放宽了无法获得疫苗国家的12至17岁未成年人进入西班牙的要求
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1991280/)
+## 政客施压南非医生不要说Omicron是轻症
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1991304/)
 
-编译：七龙珠
+**翻译：Lulumi**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/vacaciones-covid-19.jpeg)图片来源：20minutos.es
+![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip政客施压南非医生不要说Omicron是轻症.png)图片来源：justthenews.com
 
-西班牙政府对来自欧盟或申根地区以外国家的12岁以上和18岁以下的人进入西班牙的健康要求进行了调整，因为这个年龄段的人接种SARS-CoV-2疫苗有困难或尚不可能。
+她说：“他们指责我撒谎，指责我因为Omicron在欧洲的表现而淡化它。”
 
-正如卫生部在一份新闻稿中所报告的，并在国家官方公报（BOE）中公布的，从2月14日零时起，来自欧盟或申根地区以外国家的12至17岁的旅行者，如果没有有效的疫苗接种证书，可以出示在抵达西班牙前72小时进行的SARS-CoV-2 NAAT分子核酸扩增试验（RT-PCR或类似）的阴性报告。
+发现Omicron变体的南非医生现在说出了政客和科学家如何向她施压，要求她不要公开称新的COVID-19变体为轻度疾病。
 
-同样，12岁以下的未成年人，与成年人一起旅行，不需要遵守任何类型的健康要求，就像现在一样。
+“我被告知不要公开说这是一种轻度疾病。有人要求我不要做这样的声明，并说这是一种严重的疾病。我拒绝了。”安吉利克·科茨博士在最近一次由《大纪元时报》翻译的采访中告诉德国《世界报》。
 
-这项由内政部长费尔南多-格兰德-马拉斯卡（Fernando Grande-Marlaska）签署的命令还涉及外交部、欧盟和合作部、工业、贸易和旅游部以及卫生部。
+“在南非，这是一种较轻的疾病，但在欧洲，它一直是一种严重的重病，这也是政客们希望我说的。欧洲的科学家和政客们施加了很大的压力，他们说：‘请不要说这是一种轻度的疾病’，”科兹博士在本周《每日邮报》报道的另一次采访中告诉《每日电讯报》。
 
-具体来说，7月17日的INT/657/2020号命令第1.1条中的字母“K”的措辞已经被修改。此外，这项措施符合理事会6月30日第2020/912号建议，该建议规定了一套豁免于这些限制的特定类别的人员，并已多次修订以适应流行病学情况。
+南非医学协会主席科茨博士在11月说，Omicron的症状“极其温和”，其症状包括“有点头痛”和“更多的是喉咙发痒”。
 
-**参考资料：**[20minutos][El Gobierno flexibiliza los requisitos para entrar en España para los menores de 12 a 17 años de países sin acceso vacunal](https://www.20minutos.es/noticia/4955228/0/el-gobierno-flexibiliza-los-requisitos-para-entrar-en-espana-para-los-menores-de-12-a-17-anos-de-paises-sin-acceso-vacunal/)
+“我是一名临床医生，根据临床情况，没有迹象表明我们面对的是一种非常严重的疾病，”科茨博士告诉世界报。“病程大多是温和的。我不是说你不会生病，我是说病症比较温和。”
+
+“由于Covid的所有突变，这些不是来自南非的所有科学家和政客都在联系我，告诉我当我说出来温和时是错误的，这是一种严重的疾病，”科茨博士告诉电讯报。“他们告诉我，我不知道我在说什么，他们一直在攻击我。”
+
+2021年12月19日，荷兰成为第一个因Omicron而进入封锁状态的欧洲国家。在美国，民主党控制的各州实施了严格的COVID-19新规定，数千所学校在1月份因Omicron感染案例而关闭。
+
+然而，虽然中共病毒COVID-19的数字创下历史新高，但死亡人数仍低于美国以前的高峰。
+
+“他们指责我撒谎，指责我因为欧洲的情况而淡化Omicron，”她在电讯报的采访中说。“在他们看来，一个有38个以上突变的疾病不可能是轻度的。”
+
+“轻度COVID-19疾病的定义很清楚，它是一个（世界卫生组织）的定义：病人可以在家里治疗，不需要吸氧或住院，”据报道，科茨告诉世界报解释说：“严重的疾病是我们看到的急性肺部呼吸道感染：人们需要氧气，甚至可能需要人工呼吸。我们在Delta变体看到了这一点。但Omicron并没有这些症状。所以我对他们说，‘我不能这样说，因为这不是我们看到的情况’”。
+
+许多民主党控制的州正在开始收回强制令，如伊利诺伊州、加利福尼亚州和纽约州，在大多数情况下，对接种疫苗的人都放弃了口罩要求。
+
+另一方面，中国仍在实行“清零”政策，并承认在冬奥会前对数百万人进行了测试。
+
+**新闻来源**：[justthenews.com][South African doctor who discovered Omicron says politicians pressured her not to call it mild](https://justthenews.com/politics-policy/health/south-african-doctor-who-discovered-omicron-says-politicians-pressured-her)
 
 * * *
 
-*审核：Aries的星
+***审核：文乐
 校对：小东
-发稿：信心的选择*
+发布：信心满满***
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-3.jpeg)
 

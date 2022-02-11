@@ -2,24 +2,31 @@
 ---
 
 
-## 食品必需品价格以最快的速度上涨—今年将再上涨6%
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/1991204/)
+## 七哥谈水虎年对每个人的挑战（2022-02-06摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1991230/)
 
-加拿大温哥华杨帆农场 Cran
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unplash.com_.png)图片: unplash.com
-1月8日美国周刊报道，据高盛预计食品和必需品的价格将再上涨5-6%。对于一直在疫情时期在开支上挣扎的人们来说将是雪上加霜。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-最新的道琼斯数据表明通货膨胀率已经达到7.2%，这是自1982年以来的最高纪录。这个数据正处在美国经济的十字路口。美国劳工部周四报道一月份的消费者价格指数（CPI）与一年前相比上涨了7.5%。
+来源：郭先生2022-02-06直播09：20：24摘录
 
-在过去的两年里食品价格以金融危机以来最快的速度上涨，美国人看到肉类鸡肉，鸡蛋和其它商品的价格大幅飙升。高盛将零售价格上涨的部分原因归咎于农产品成本的飙升。如果企业将上涨的成本价转嫁给消费者，价格可能会进一步上涨。
+最后一条看到就是加拿大的“土豆”、大卡车事件等，还有全世界的农民抗议事件，这七哥在一年前、16个月以前都说过。疫苗次生灾难、疫苗造成的政治危机、军事危机、技术危机、贸易危机、经济金融危机会席卷全球，而且是从今年的5月份开始。记住：七哥是从2020年初、1、2月份就说过！我不是神仙我不能预测，就是我知道共产党的计划和计划的具体的细节，和基本的掌握的情报，这是我得出的结果。所以说战友们，大家看到美国经济这样的时候，你们要想一想，我们未来到底该怎么面对这个2022年水虎年，这个郝海东兄弟启动的水年，今年就是水虎年，上来就流水，水虎年对每个人的挑战。你问问小新她在没有得病毒之前和得了病毒以后的感受是啥样的。
 
-据加拿大数据局，加拿大的2021年通货膨胀率达到了30年以来的新高4.8%，自1991年的最高水平。将出炉的一月份数据预计应该更高，这超过了加拿大央行设定的1-3%的控制范围。食品和必需品价格的上涨对于低收入的家庭打击最为严重，他们将面临更大的困难。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-参考链接：[https://www.newsweek.com/groceries-could-cost-substantially-more-2022-goldman-sachs-predicts-1677717](https://www.newsweek.com/groceries-could-cost-substantially-more-2022-goldman-sachs-predicts-1677717)
+**关注我们**
 
-* * *
+Discord 账号
 
-编辑、发布：月亮之上
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
