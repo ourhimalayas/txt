@@ -2,15 +2,31 @@
 ---
 
 
-## 沙特王子最终未出席冬奥 冬奥会上中共继续“妓女外交“
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1991889/)
+## 新中国联邦今年会有三个大惊喜（2022-02-06摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1991969/)
 
-沙特王子本·萨勒曼，及其他皇族重要人物，最终并未出席冬奥会。冬奥会上，中共继续“妓女外交 ”。承诺愿意购买美国4000亿美元的产品，并开放沈阳大使馆。试图缓和日益紧张的中美关系。美国政府的“断而不交，不断不交”策略，中共只能被动挨打，但是沈阳大使来回飞一趟，却赚取了中国人近5000亿血汗钱！
+文编：Hima
+听写：叮叮
+视频：七哥
 
-视频来源: 20220209—郭先生大直播
-视频制作: 文星光，梦田
-文案:文星光
-上传: 零点
+来源：郭先生2022-02-06直播11：17：08摘录
+
+我们大师说的，新中国联邦今年会有三个大惊喜，他说三个大惊喜里两个都是要走火运，还有一个走土运，就两个。第三个他没告诉我，两个我已经知道了。所以说再一个我们金融啊，我们的金融是“土生金”，金融财啊，然后是“木生火，火生金，金生土，土生万物”，北侧为水，东侧为木，南侧为火，西侧为金，中间为土”，大师一说，大师说得都是对的，他说让我跳楼我都跳，我百分之百相信他。所以说就今天改成了这个红旗49色，大家尽管地去用，还有红旗会带信仰之星的颜色也会很快出来，谢谢！
+
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

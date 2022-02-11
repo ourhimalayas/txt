@@ -15,116 +15,116 @@
 
 ---
 
-### [沙特王子最终未出席冬奥 冬奥会上中共继续“妓女外交“](/content/gnews/1/README.md)
+### [新中国联邦今年会有三个大惊喜（2022-02-06摘录）](/content/gnews/1/README.md)
+ ` MG FARM`
+
+### [水虎年对新中国联邦要有利的是“火”和“土” (2022-02-06摘录）](/content/gnews/2/README.md)
+ ` MG FARM`
+
+### [郭文贵先生将移居日本和英国 全面加速灭共](/content/gnews/3/README.md)
  ` 焦點20分`
 
-### [有声|灭共者之郭氏情报站（二十三）2022/02/09 文贵大直播](/content/gnews/2/README.md)
- ` MOSREC`
-
-### [七哥说“有几个懂得爱”（2022-02-06摘录）](/content/gnews/3/README.md)
+### [七哥说“我要唱给中国女人一首歌”（2022-02-06摘录）](/content/gnews/4/README.md)
  ` MG FARM`
 
-### [2022/02/11 英喜时事速递](/content/gnews/4/README.md)
+### [郭文贵先生告UBS 正式在伦敦立案](/content/gnews/5/README.md)
+ ` 焦點20分`
+
+### [严肃媒体助政府掩盖疫苗真相 加拿大需要和平反疫苗行动 让国家觉醒 阻止疫苗对人民的危害](/content/gnews/6/README.md)
+ ` 焦點20分`
+
+### [马克龙见普京意图稳固东欧局势 冬奥人工降雪 污染环境 危害万年](/content/gnews/7/README.md)
+ ` 焦點20分`
+
+### [七哥说“我人生的骄傲”（2022-02-06摘录）](/content/gnews/8/README.md)
+ ` MG FARM`
+
+### [沙特王子最终未出席冬奥 冬奥会上中共继续“妓女外交“](/content/gnews/9/README.md)
+ ` 焦點20分`
+
+### [有声|加拿大卡车司机抗议影响边境口岸 白宫忧危及供应链](/content/gnews/10/README.md)
+ ` MOSREC`
+
+### [有声|灭共者之郭氏情报站（二十三）2022/02/09 文贵大直播](/content/gnews/11/README.md)
+ ` MOSREC`
+
+### [七哥说“有几个懂得爱”（2022-02-06摘录）](/content/gnews/12/README.md)
+ ` MG FARM`
+
+### [2022/02/11 英喜时事速递](/content/gnews/13/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [七哥谈“把这些女性解救出来”（2022-02-06摘录）](/content/gnews/5/README.md)
+### [七哥谈“把这些女性解救出来”（2022-02-06摘录）](/content/gnews/14/README.md)
  ` MG FARM`
 
-### [有声|中共官方被迫处理“丰县铁链女”事件](/content/gnews/6/README.md)
+### [有声|中共官方被迫处理“丰县铁链女”事件](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [有声|英国研究表明，完全接种中共病毒疫苗的孩子死亡风险高达5100%](/content/gnews/7/README.md)
+### [有声|英国研究表明，完全接种中共病毒疫苗的孩子死亡风险高达5100%](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [有声|调查显示：TikTok追踪用户信息最多，但数据去向不明](/content/gnews/8/README.md)
+### [有声|调查显示：TikTok追踪用户信息最多，但数据去向不明](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [美国中共病毒确诊逼近8000万凸显灭共大计迫在眉睫](/content/gnews/9/README.md)
+### [美国中共病毒确诊逼近8000万凸显灭共大计迫在眉睫](/content/gnews/18/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2022年2月11日大直播速记精萃](/content/gnews/10/README.md)
+### [2022年2月11日大直播速记精萃](/content/gnews/19/README.md)
  ` 雅典娜GNotes`
 
-### [特鲁多的哥哥指责其兄弟对抗卡车运动的政策来自深层权利](/content/gnews/11/README.md)
+### [特鲁多的哥哥指责其兄弟对抗卡车运动的政策来自深层权利](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [今日盖特大V推荐 — 埃莉斯·斯蒂芬尼克（Elise Stefanik）](/content/gnews/12/README.md)
+### [今日盖特大V推荐 — 埃莉斯·斯蒂芬尼克（Elise Stefanik）](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [文耀时间｜战友实例分享私人信托设立（二） 上期节目答疑 模拟器计算财富 欧洲信托信息(2)](/content/gnews/13/README.md)
- ` 喜马拉雅德国纽伦堡正义农场`
+### [现在整个新冠病毒的泡沫破裂了吗？](/content/gnews/22/README.md)
+ ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [七哥谈“中共国每年公布的所谓的失踪人口” （2022-02-06摘录）](/content/gnews/14/README.md)
+### [七哥谈“中共国每年公布的所谓的失踪人口” （2022-02-06摘录）](/content/gnews/23/README.md)
  ` MG FARM`
 
-### [美国称俄罗斯有足够的军队集结入侵乌克兰](/content/gnews/15/README.md)
+### [美国称俄罗斯有足够的军队集结入侵乌克兰](/content/gnews/24/README.md)
  ` Shuizhuyu`
 
-### [最新研究从科学角度证实刺突蛋白导致严重微血管损伤和心血管细胞炎症](/content/gnews/16/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [七哥谈“女性是共产党执政的工具”（2022-02-06摘录）](/content/gnews/17/README.md)
- ` MG FARM`
-
-### [白宫警告称俄罗斯可能打击美国芯片业](/content/gnews/18/README.md)
+### [白宫警告称俄罗斯可能打击美国芯片业](/content/gnews/25/README.md)
  ` Shuizhuyu`
 
-### [七哥谈中国女性“半边天”（2022-02-06摘录）](/content/gnews/19/README.md)
- ` MG FARM`
-
-### [起诉瑞银正式立案灭共进入新阶段](/content/gnews/20/README.md)
+### [起诉瑞银正式立案灭共进入新阶段](/content/gnews/26/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [七哥谈“体制太邪恶了”（2022-02-06摘录）](/content/gnews/21/README.md)
- ` MG FARM`
-
-### [七哥说“我们一定会赢，会赢得无限的精彩”（2022-02-06摘录）](/content/gnews/22/README.md)
- ` MG FARM`
-
-### [七哥谈住在圆山饭店（2022-02-06摘录）](/content/gnews/23/README.md)
- ` MG FARM`
-
-### [2022.2.11大直播后记：谷爱凌发言拉仇恨](/content/gnews/24/README.md)
+### [2022.2.11大直播后记：谷爱凌发言拉仇恨](/content/gnews/27/README.md)
  ` 雅典娜GNotes`
 
-### [DC大中华时事：中共希望美方尽快取消对华加征关税和制裁](/content/gnews/25/README.md)
+### [DC大中华时事：中共希望美方尽快取消对华加征关税和制裁](/content/gnews/28/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [五月花简报（02/11/2022）](/content/gnews/26/README.md)
- ` mayflowertranslate`
-
-### [布林肯：中共想转移注意力，没门！](/content/gnews/27/README.md)
+### [布林肯：中共想转移注意力，没门！](/content/gnews/29/README.md)
  ` 澳喜特战旅Gnews`
 
-### [NFSC新闻、G|TV新闻访谈简报|2022年2月11日早](/content/gnews/28/README.md)
+### [NFSC新闻、G|TV新闻访谈简报|2022年2月11日早](/content/gnews/30/README.md)
  ` 纽约香草山MOS01`
 
-### [加拿大保守党首提加密货币的法案](/content/gnews/29/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [意大利批准开打第四剂新冠疫苗](/content/gnews/30/README.md)
+### [意大利批准开打第四剂新冠疫苗](/content/gnews/31/README.md)
  ` xiaobaige`
 
-### [文贵爆料 2.11：美司法史上最黑暗的一幕——PAG案](/content/gnews/31/README.md)
+### [文贵爆料 2.11：美司法史上最黑暗的一幕——PAG案](/content/gnews/32/README.md)
  ` 秘密翻译组-原创组`
 
-### [2022/02/10 墙内世界](/content/gnews/32/README.md)
+### [2022/02/10 墙内世界](/content/gnews/33/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [冬奥会金牌得主谷爱凌避而不谈其美国身份](/content/gnews/33/README.md)
+### [冬奥会金牌得主谷爱凌避而不谈其美国身份](/content/gnews/34/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [美国指控中共国海能达与摩托罗拉前员工合谋窃取技术](/content/gnews/34/README.md)
+### [美国指控中共国海能达与摩托罗拉前员工合谋窃取技术](/content/gnews/35/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美联储将毫不犹豫地通过加息缩表来遏制通货膨胀（二）](/content/gnews/35/README.md)
+### [美联储将毫不犹豫地通过加息缩表来遏制通货膨胀（二）](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新西兰财经G乐部2022年2月11日:财经新闻整理](/content/gnews/36/README.md)
+### [新西兰财经G乐部2022年2月11日:财经新闻整理](/content/gnews/37/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
-
-### [一路走来第九期](/content/gnews/37/README.md)
- ` 澳喜特战旅Gnews`
 
 ### [纽约警察局彻查韩外交官遭无端袭击案件](/content/gnews/38/README.md)
  ` 首尔天池农场`

@@ -2,31 +2,37 @@
 ---
 
 
-## 七哥谈“女性是共产党执政的工具”（2022-02-06摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1991668/)
+## 有声|调查显示：TikTok追踪用户信息最多，但数据去向不明
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1991797/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+CNBC 2月8日报道，最新调查显示：在社交媒体应用市场中，TikTok追踪、共享用户的私人信息最多，同时，TikTok还允许第三方跟踪器广泛收集用户的个人数据，但这些数据的最终去向目前还不明确。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%9B%BE%E7%89%871-37.png)
+调查还发现，因第三方追踪器的应用，无法得知TikTok的用户们被收集到了哪些私人信息，也不知道是谁在收集用户们的信息，这可能将使普通用户面临更大的隐私风险。用户们即使已经离开TikTok的应用程序，第三方追踪器依然能够追踪到用户在其他网站上的活动状况。
 
-来源：郭先生2022-02-06直播10：55：01摘录
+此前，TikTok还被曝出，其海外应用的服务器，一直在与它的中共国母公司共享全球用户的隐私信息。美国前总统川普也曾因此倡议全美禁用抖音。
 
-那么我们看到就吴仪说的话，就你漂亮你有生存的空间。习近平的弟弟娶澜澜，是吧？好看；再一个，你上去你就心狠歹毒，啥都能干，是吧？什么都能干，是吧？奥巴马俱乐部、包小白脸、杀人越货，你看女贪官抓起来以后都比男的狠，就是变态。所以在中国这个国家女性是没有“半边天”的，女性是共产党执政的工具，是全社会，实际上不管你对父母、对家人，我可以告诉你们，你妈妈累死你觉得你妈就该给累死，你没有多少人认为妈妈那么辛苦是不是不公平？我觉得不管你是大石还是天使，不管你是亨利还是文真，还是你小新，你们从来没有体谅过母亲，我不相信你们公平对待过母亲。中国女性从母亲、从姐妹、从任何角度都没被公平对待过，特别是中国这种男性的社会，只是你不知道。然后说到绑架，绑架在中国现在法律上，已经给了法律上的习以为常，是合理的，这是一个巨大的人权的讽刺，叫中国“半边天”；第二，器官移植。这不仅在法轮功，它在任何“功”上都在实现，没有不实现的；新疆大屠杀，西藏，西藏和新疆但凡有点姿色的女孩都会被选出去，以音乐团、文工团的形式成为了祭品和供品，只是被当地的村长还是当地的县长，还是说西藏的省长、自治区的书记，还是被中共老头，反正总有人来享受你的青春和美丽，你就是供品和性品。
+郭文贵先生曾指出，TikTok就是中共军方用于窃取个人隐私数据、和监视用户行为的间谍软件，也是其对西方文化渗透的社交媒体武器。这项调查将成为中共意图控制世界的又一罪证。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+文字版原文：[调查显示：TikTok追踪用户信息最多，但数据去向不明](https://gnews.org/zh-hans/1988254/)
 
-**关注我们**
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-Discord 账号
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-Gettr 账号
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

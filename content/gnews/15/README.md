@@ -2,43 +2,37 @@
 ---
 
 
-## 美国称俄罗斯有足够的军队集结入侵乌克兰
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1991682/)
+## 有声|中共官方被迫处理“丰县铁链女”事件
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1991815/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据中共党媒2月10日报道，中共徐州市政联合调查组发布对“丰县铁链女“事件处理情况公告。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/f3891f0d7608cb034fa3a5345eb4e614.jpg)图源网络
+“丰县铁链女”事件持续发酵震惊世界，中共官方被迫承认“丰县铁链女”杨某侠系被拐卖和拘禁虐待。认定董某民涉嫌非法拘禁罪，桑某妞、时某忠涉嫌拐卖妇女罪，对上述三人采取刑事强制措施。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/DQZXWVC2ZZJZJCSN543OQFCVVA.jpg)
+中共徐州官方在处理公吿中还提到，要对杨某侠家人子女依法依规，给予生活、教育保障等，但这更加让人觉得充满虚假和讽刺。
 
+有关人士对此评论，“丰县铁链女事件”真相到底是什么已经不重要了，但让人触目惊心的是中共治下女性的地位不如牲口，中共国不可能有人权和法治。
 
-资料来源：路透社
+文字版原文：[中共官方被迫处理“丰县铁链女”事件](https://gnews.org/zh-hans/1988903/)
 
-华盛顿周五表示，俄罗斯已经在乌克兰附近集结了足够的军队来发动大规模入侵，并敦促所有美国公民在 48 小时内离开乌克兰。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-白宫国家安全顾问杰克沙利文在媒体简报会上说，俄罗斯的袭击可能在任何一天开始，并且可能会从空袭开始，而对基辅的快速推进也是可能的。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-沙利文说，目前尚不清楚俄罗斯总统弗拉基米尔·普京是否已明确下令开始入侵。沙利文表示，他预计美国总统乔·拜登将尽快就这场危机与普京通电话。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-早些时候，随着莫斯科进一步加强对西方外交的反应，一家美国私营公司的商业卫星图像显示，俄罗斯在边境附近的几个地点进行了新的军事部署。
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-NBC 新闻，乌克兰的事情“可能很快变得疯狂”，拜登与英国、加拿大、法国、德国、波兰和罗马尼亚的领导人以及北约和欧盟的负责人就这场危机通了电话。
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-在那次会议之后，随着警报的蔓延，英国首相鲍里斯·约翰逊（Boris Johnson）与其他一些国家一起敦促其公民离开乌克兰。
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-约翰逊在会议上表示，他担心欧洲的安全，并强调“如果俄罗斯做出入侵乌克兰的毁灭性和破坏性决定，需要准备好实施一揽子严厉的经济制裁，”他的办公室说。
-
-与此同时，莫斯科表示，欧盟和北约本周对其安全要求的答复显示出“不尊重”。
-
-一位熟悉会议的消息人士称，拜登隔夜会见了他的国家安全顾问。美国官员认为，随着莫斯科方面的言辞变得强硬，六艘俄罗斯军舰抵达黑海，以及更多俄罗斯军事装备抵达白俄罗斯，美国官员认为危机可能已达到临界点。
-
-国务卿安东尼·布林肯 (Antony Blinken) 说：“我们正处于一个入侵可能随时开始的窗口，明确地说，包括在奥运会期间。”北京奥运会于2月20日结束。
-
-“简单地说，我们继续看到俄罗斯升级的非常令人不安的迹象，包括新部队抵达乌克兰边境。”
-
-俄罗斯否认其入侵乌克兰的计划。
-
-🔗 [美国称俄罗斯有足够的军队集结入侵乌克兰](https://www.reuters.com/world/europe/us-says-russia-masses-more-troops-near-ukraine-invasion-could-come-any-time-2022-02-11/)
-
-责任编辑/发布： Shuizhuyu
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

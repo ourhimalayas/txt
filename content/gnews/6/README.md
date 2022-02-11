@@ -2,37 +2,21 @@
 ---
 
 
-## 有声|中共官方被迫处理“丰县铁链女”事件
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1991815/)
+## 严肃媒体助政府掩盖疫苗真相 加拿大需要和平反疫苗行动 让国家觉醒 阻止疫苗对人民的危害
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1991936/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据中共党媒2月10日报道，中共徐州市政联合调查组发布对“丰县铁链女“事件处理情况公告。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/f3891f0d7608cb034fa3a5345eb4e614.jpg)图源网络
-“丰县铁链女”事件持续发酵震惊世界，中共官方被迫承认“丰县铁链女”杨某侠系被拐卖和拘禁虐待。认定董某民涉嫌非法拘禁罪，桑某妞、时某忠涉嫌拐卖妇女罪，对上述三人采取刑事强制措施。
+没有打疫苗的，就是最大的赢家。
 
-中共徐州官方在处理公吿中还提到，要对杨某侠家人子女依法依规，给予生活、教育保障等，但这更加让人觉得充满虚假和讽刺。
+加拿大被共产党严重渗透，总理杜魯多已经失去了对世界局势基本的认知。加拿大需要一场运动来让加拿大觉醒并认清事实。加拿大的卡车反疫苗运动，如果没有鼓动血腥和暴力，战友们要坚决支持。
 
-有关人士对此评论，“丰县铁链女事件”真相到底是什么已经不重要了，但让人触目惊心的是中共治下女性的地位不如牲口，中共国不可能有人权和法治。
+以色列这次也是疫苗的最大受害者之一。
 
-文字版原文：[中共官方被迫处理“丰县铁链女”事件](https://gnews.org/zh-hans/1988903/)
+很多国家政府现在已经在极力掩盖疫苗灾难，世界严肃媒体掩盖疫苗真相，是他们的帮凶！
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+视频来源: 20220209—郭先生大直播
+视频制作: 文星光，梦田
+文案:文星光
+上传: 零点
 
  
 
