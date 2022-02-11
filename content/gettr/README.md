@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/11/2022 2:42 AM (UTC)`
+
+2/10/2022 Miles Guo’s GETTR: The CCP uses the law to manipulate and change the rules of the game around the world. During the Winter Olympics, the CCP quarantined athletes in the name of doing COVID testing so they could not compete, and the CCP had used the same rogue tactics to fabricate charges against me. We must let the world know the truth about PAG and UBS by using the law in a legal way.<br/><br/>2/10/2022 文贵盖特：中共利用法律在全世界操纵和改变游戏规则；中共在冬奥会用检测的名义让运动员隔离，导致其无法比赛，中共用同样的流氓手段给文贵罗织罪名；我们要合理地使用法律让世界知道关于PAG和UBS的真相！<br/>
+![img](https://media.gettr.com/group41/getter/2022/02/11/02/a5d22859-40e5-029b-834d-c1b7b573cd7f/out.jpg)
+
+---
+
 `@miles 2/11/2022 1:56 AM (UTC)`
 
 2/10/2022 Miles Guo’s GETTR: Anyone colluding with the CCP will inevitably be punished. Fellow fighters should strictly adhere to the principles of justice, morality, and the law. In the face of the CCP's global campaign going after me, I am risking my life to do the live broadcasts, hoping that fellow fighters will understand that it is not easy to take down the CCP<br/><br/>2/10/2022 文贵盖特：任何跟中共勾兑的人都逃不被制裁的命运；战友们要严守正义、道德和法律的原则；面对中共在全球的围追堵截，文贵冒着生命危险在直播，望战友们理解灭共的不容易<br/>
@@ -148,13 +155,6 @@ EP9: The Villains. Let's tear down the monstrous lies of this despicable #HBO #V
 
 2月8号：尊敬的战友们好！今天早上发出盖特以后，很多战友关心是我要公布什么事？七哥要公布是很小很小的个人事儿，只是和我个人有关……和其他没有关系，请大家不要多想，谢谢！
 ![img](https://media.gettr.com/group9/getter/2022/02/08/20/6a404868-8d25-6947-ba4c-be12b02fe551/out.jpg)
-
----
-
-`@miles 2/8/2022 2:56 PM (UTC)`
-
-2月8号：尊敬的战友们好，你们健身了吗？传播C C P病毒．疫苗解药的真相了吗？今天可能将是我文贵人生的前半生和后半生的分水岭的一天．今天我将有个很大的决定，明天直播时再向大家汇报，一切都已经开始！
-![img](https://media.gettr.com/group4/getter/2022/02/08/14/53412ce1-4adc-2d5b-ff56-2f204a2c0ee4/out.jpg)
 
 ---
 
