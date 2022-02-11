@@ -2,10 +2,12 @@
 ---
 
 
-## 2/9/2022 文贵直播：普京在冬奥会跟中共翻脸后，欧洲随即伸出橄榄枝；俄罗斯必将出卖中共，欧洲也会在背后踢中共一脚
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1987508/)
+## 七哥金句：灭共
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1987587/)
 
-秘密翻译组-北美组
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句.png)
+整理：雅典娜速记组 
+发布：枫叶红了
 
  
 

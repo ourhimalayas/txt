@@ -2,41 +2,24 @@
 ---
 
 
-## 樱花灭共段子┃看七哥大直播有感序之二
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1987530/)
+## 福克斯抨击主流媒体抹黑加拿大抗议活动
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1987616/)
 
-撰稿：东京樱花团/保和
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-39.jpg)图片：夏目&山竹
-冬奥中俄很微妙 法俄总统底下聊
+加拿大温哥华杨帆农场枫叶快讯
 
-恢复购买几千亿 劝劝普京莫生气
+采编： Spirit           编辑撰稿：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1078.png)图片来源 FON NEWS
+据美国《福克斯新闻》2月9日报道，加拿大卡车司机的反疫苗护照运动，目前已被大部分由政府操控的主流媒体贴上了各种污名化的标签。并大肆歪曲报道，意图抹黑真正的民意。
 
-战争问题先不提 剩下中共包子习
+报道称，包括CNN和MSNBC等电视台在内的多个严肃媒体，都公然声称参加和平抗议的人是威胁民主体制的邪教徒。渥太华警察局长也用激烈言论公开指责抗议者，甚至将和平集会定义成“全国性叛乱”。
 
-正义战争七哥去 上天佑护联邦旗
+对此，加拿大卡车司机则表示，当局利用主流媒体的诽谤和打压不仅不能磨灭他们争取自由的决心，还让所有国民都逐渐看清了特鲁多政府独裁专制的真实面目，从而将唤起更多觉醒的民众参与到反抗暴政的行列中来。
 
-爆料革命我向前 传播真相盖特转
+原文链接： [https://www.foxnews.com/media/truckers-downright-disgusted-canada-freedom-convoy-media](https://www.foxnews.com/media/truckers-downright-disgusted-canada-freedom-convoy-media)
 
-不被奴役和链拴 打破中共防火墙
+校对编辑：硫酸羟氯喹64
 
-引来真相和阳光 开智顿悟人生转
-
-七哥直播言语多 多看多听要悟到
-
-灭共路上一条道 爆料革命去报道
-
-灭共在前不退缩 人生开智钱难换
-
-七哥直播有方向 期期直播都赶上
-
-勇敢自信走向前 北京盘古再相见
-
-[盖特链接](https://gettr.com/post/ptonhub413)
-
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
-
+发布：青青
 
  
 

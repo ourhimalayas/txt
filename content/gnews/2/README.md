@@ -2,31 +2,28 @@
 ---
 
 
-## 2021民主指数报告：中共国民生活在威权之下
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1987622/)
+## 有声|美国再将33家中共企业列入未经核实清单
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1987745/)
 
-![资料图：香港警察在逮捕《立场新闻》六名高管后站在该港媒办公楼外。（2021年12月19日）](https://gdb.voanews.com/44837EBD-190C-4D2B-94EF-6DBE48026C8B_w1023_r1_s.jpg)资料图：香港警察在逮捕《立场新闻》六名高管后站在该港媒办公楼外。（2021年12月19日）
-据美国之音2月11日报道，英国经济学人智库(EIU)10日公布2021年度民主指数报告称，全球只有不到一半的人口生活在民主体制下，民主状况跌至历史新低。EIU民主指数报告根据选举过程及多元化、政府运行、政治参与、政治文化以及公民权利五个方面进行评分，并划分为““充分民主”、“有瑕疵的民主”、“混合政权”和“威权”四个等级。报告显示，去年全球只有6.4%的人口生活在“充分民主”的国家和地区，超过三分之一的人口生活在威权统治之下，很大一部分在中共国。
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月7日，据相关媒体消息显示，美国政府已经将包括中共国航发南方工业有限公司在内的33家中共实体列入至“未经核实清单”中。
 
-在对167个国家和地区的评判中，台湾全球排名第8，是亚洲唯一一个跻身前十的“充分民主”政体，居亚洲之首。中共国和香港的排名分别为第148名和第85名，分属“威权”和“混合政权”类别。美国排名第26，被归为“有瑕疵的民主”类别。
+对此，美国商务部表示，联邦政府采取这一措施的原因在于，美国无法确定这些中共实体将如何使用其自美国进口的商品。
 
-因新冠疫情采取的隔离、封城和旅行限制等措施加剧了全球民主状况和公民自由史无前例的巨大倒退。但是，更多的情况是各国政府对待公民的强制和暴力行为。这不仅仅是民主状况，更是自由和生命被掠夺，是违反宪章的行为。全球自爆发疫情开始，没有采取任何治疗手段，只是强制推行疫苗。尽管有数据报告和科学家的研究表明，接种疫苗既不能产生有效的抗体，又不能阻止新冠病毒的传播，但是各国政府依然强制推进，甚至动用警察和部队的力量，以解雇、实施疫苗护照等手段强迫民众接种试验性疫苗，各国不断爆发政府和民众之间的冲突，示威抗议不断。自民主国家成立以来，从来没有出现过政府和民众如此对立的情况。根源就在于中共，解决了根源，恢复原有的民主和赋予威权国家民主和自由，世界才能恢复正常秩序，自由民主不再是一句口号。
+文字版原文：[美国再将33家中共企业列入未经核实清单](https://gnews.org/zh-hans/1984848/)
 
-新闻参考链接：[https://www.voachinese.com/a/democracy-index-2021-20220209/6435993.html](https://www.voachinese.com/a/democracy-index-2021-20220209/6435993.html)
+音频处理/发稿：Daxia
 
-编辑：胖丁
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

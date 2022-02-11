@@ -2,39 +2,18 @@
 ---
 
 
-## 瑞银在躲避中国亿万富翁的5亿美元诉讼中落败
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1983997/)
+## 樱花头条┃众议院保守派提出对数千名中共官员的制裁提案
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1984280/)
 
-编译：wenwu
+撰稿：东京樱花团/樱花传媒
+![](https://lh3.googleusercontent.com/aE_bvz7K9B2EWiQO_OLPtBPeavQmBLVVTEBEZGZ-yK68WzNZ0oR01eHX3pq9S6ojS4CtWAfwd0f2FdWjXWtq4_rR1CxcjD79yOOqWbjSmweZSzaWsZvKzh-ZR9dQWMPNRqHMGUr7)
+美国众议员保守派高层已提出一项立法提案，正式制裁数千名中共官员，其中包括中共独裁者习近平及其家人。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-999.png)图片来源：bloomberg.com
+信息来源：[https://gettr.com/post/ptmwip8477](https://gettr.com/post/ptmwip8477)
 
-瑞银集团(UBS Group AG)在驳回一位流亡的中国亿万富翁就2015年一次昂贵的保证金追缴所提起的5亿美元诉讼中败诉。
-
-英国伦敦的一名法官裁定，英国确实有权审理郭文贵提起的案件，郭文贵是一名富商，与前总统唐纳德·川普的顾问史蒂夫·班农关系密切，这意味着该诉讼可以继续进行审判。这对瑞银来说是一个打击，因为瑞银曾试图以管辖权为由将该案的一部分驳回。
-
-瑞银和郭文贵先生的律师没有立即回应评论请求。
-
-郭文贵先生声称瑞银提供了疏忽的建议，导致他借钱购买了中国券商海通证券有限公司的股票。 他说，在香港交易的股票在市场溃败期间暴跌后，瑞银强制出售了该股票，这项投资几乎完全丧失。
-
-一位伦敦法官周三（9日）表示，她可以监督此案，因为伦敦是“有害事件”的发生地，而且瑞银的伦敦部门“充分和显著地参与了”形成索赔的行动的几个要素。
-
-**简评：**
-
-**郭文贵先生在2022年2月9日的GTV大直播中表示：此案在伦敦立案，意味着第一次打开了沼泽地和中共藏匿金钱的大门；如果最终胜诉，所有收回的中共藏于海外的黑钱都将用于改善中国老百姓的生活。**
-
-中共你完蛋啦！
-
-新闻来源：[bloomberg.com] [UBS Loses Bid to Dodge Chinese Billionaire’s $500 Million Suit](https://www.bloomberg.com/news/articles/2022-02-09/ubs-loses-bid-to-dodge-chinese-billionaire-s-500-million-suit) |发布时间：2022年02月09日
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-2.jpeg)
-
-
+*编辑：东京樱花团/keyboard racing
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
