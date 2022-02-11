@@ -2,68 +2,40 @@
 ---
 
 
-## 蓬佩奥： 台湾绝对不是中国的内政
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1987732/)
+## 美欧商界领袖敦促日本结束有关新冠病毒的入境禁令
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1987815/)
 
-前国务卿迈克.蓬佩奥： 台湾绝对不是中国的内政。 我们必须让中共明白我们将采取任何必要行动来确保台湾保持自由。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1080.png)2022年2月9日，美国和欧洲组织的商界和教育界领袖在东京举行的新闻发布会上。（图片由日本外国特派员协会提供）
+《共同通讯社》Kyodo News 2月9日报道，周三，来自美国和欧洲机构团体的商界和教育界领袖，敦促日本政府结束对非居民商务访问者和学者的新冠病毒的入境禁令，警告说，该禁令不仅损害了日本的经济，而且有可能导致未来人才的流失。
 
+“入境禁令确实增加了经济和人力成本…… 并阻碍了振兴日本经济的努力。” 驻日本美国商会(American Chamber of Commerce in Japan)顾问克里斯托弗·拉弗勒尔(Christopher LaFleur)在出席日本外国特派员协会(Foreign Correspondents’ Club of Japan)的远程新闻发布会时表示。他说，虽然日本的目标是吸引更多的外国投资者，但此禁令将“对他们的投资决策产生负面影响”，并敦促日本采取以科学为基础的政策，允许接种疫苗的商务旅客和学者入境。
 
+由于高度传染性的新冠病毒的变种奥密克戎（Omicron）的传播，日本自11月30日起原则上禁止外国人入境。
 
-> Taiwan is absolutely NOT an affair internal to China. We must ensure the CCP understands that we will undertake any actions necessary to ensure Taiwan remains free.
-> — Mike Pompeo (@mikepompeo) [February 10, 2022](https://twitter.com/mikepompeo/status/1491855779284103171?ref_src=twsrc%5Etfw)
+当天早些时候与日本首相岸田文雄会面的驻日欧洲商业委员会主席迈克尔·莫罗切克（Michael Mroczek）说：“政府意识到旅行限制会造成麻烦，对经济产生负面影响。”但他也表示，似乎“在本月底之前不会有任何变化”，并补充说，“让我们保持希望，从3月1日起，在旅行限制方面将会有一些变化。
 
+天普大学(Temple University)日本校区院长兼校长马修·威尔逊(Matthew J. Wilson)谈到了这一禁令对外国学生的影响，称入境禁令正在将国际学者转向韩国、澳大利亚和台湾等其它地方。
 
+简评：
 
-众议员加拉格尔新闻办公室： 加拉格尔说:“国际奥委会的可鄙行径。他们最近会见了彭帅，并声称回答了“彭帅在哪里?”她在哪儿?她被中共扣留了。她被封口了。她被扣为人质，国际奥委会在其中狼狈为奸。”
+虽然从去年11月起，日本为了预防高传染性的奥密克戎变种病毒的传播，就实施了入境禁令，但近期的感染病例还是呈几何式上升，显然此禁止入境策略是失败的。除此之外，截至目前为止，日本的完全疫苗接种率高达79.4%，至少接种一针疫苗的也高达80.6%。那么居高不下的感染，说明疫苗无效。而中共病毒变体防不胜防，新种类随时可能出现，犹如定时炸弹。自我封锁和目前疫苗的使用并不解决问题，只有从根源阻止释放病毒的元凶才能终止这个泛滥全球的灾难，以及将面临的疫苗所带来的次生灾难。
 
+新闻链接：[https://english.kyodonews.net/news/2022/02/195e19f47c36-us-european-business-leaders-urge-japan-to-end-covid-entry-ban.html](https://english.kyodonews.net/news/2022/02/195e19f47c36-us-european-business-leaders-urge-japan-to-end-covid-entry-ban.html)
 
+翻译/简评：Dlrow
 
-> Rep. Gallagher: "The IOC has acted despicably. They recently met with Peng Shuai and claimed to answer the question 'Where is Peng Shuai?' Well, where is she? She's being detained by the CCP. She's being silenced. She's being held hostage, and the IOC is complicit in it all." [pic.twitter.com/oDflLN887R](https://t.co/oDflLN887R)
-> — Rep. Gallagher Press Office (@RepGallagher) [February 10, 2022](https://twitter.com/RepGallagher/status/1491833496083611649?ref_src=twsrc%5Etfw)
+PR：Julia Win
 
+* * *
 
-
-参议员瑞克·斯科特： 共产主义中国把这个可怜的运动员当做2022年冬奥会的道具。这都是习的邪恶宣传，用“奥运会”来粉饰他的种族灭绝和压迫。国际奥委会在哪里?我们必须弄清楚迪尼吉尔·依拉穆江身上发生了什么事。 （转每日电讯：维吾尔族滑雪选手，中国冬奥会火炬手，在北欧联合赛首秀后“消失”了）
-
-
-
-> Communist China used this poor athlete as a prop for [@Beijing2022](https://twitter.com/Beijing2022?ref_src=twsrc%5Etfw). It’s all part of Xi’s evil propaganda to whitewash his genocide & oppression with the [@Olympics](https://twitter.com/Olympics?ref_src=twsrc%5Etfw). Where is the IOC? We must find out what happened to Dinigeer Yilamujiang. [https://t.co/KiZw00la1o](https://t.co/KiZw00la1o)
-> — Rick Scott (@SenRickScott) [February 10, 2022](https://twitter.com/SenRickScott/status/1491848855704457219?ref_src=twsrc%5Etfw)
-
-
-
-参议员瑞克·斯科特： 生态健康联盟帮助共产主义中国掩盖新冠的信息，而拜登政府却在毫无问责的情况下，将数百万纳税人的钱投入其中。 乔·拜登现在必须扭转这个可怕的决定。 （转华盛顿观察者：美国国际开发署在2021年底，向生态健康联盟提供了467万美元的资助）
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-> .[@EcoHealthNYC](https://twitter.com/EcoHealthNYC?ref_src=twsrc%5Etfw) helped Communist China cover up information on COVID-19, yet the Biden administration is funneling it MILLIONS of taxpayer dollars with zero accountability. 
-> 
-> Joe Biden must reverse this horrible decision now. [https://t.co/lAEAWkN4Pe](https://t.co/lAEAWkN4Pe)
-> — Rick Scott (@SenRickScott) [February 10, 2022](https://twitter.com/SenRickScott/status/1491799799393177605?ref_src=twsrc%5Etfw)
-
-
-
-众议员吉姆·班克斯： 我很自豪能够与Herrel议员共同提出《停止资助我们的对手法案》。 美国纳税人不能也不应该向 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 或代表 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 进行的研究发送一分钱！ 【附每日电讯特别报道：共和党提出禁止资助在中共国的研究】
-
-
-
-> I'm proud to cosponsor [@RepHerrell](https://twitter.com/RepHerrell?ref_src=twsrc%5Etfw)'s Stop Funding Our Adversaries Act.
->  
-> The American taxpayers cannot and should not be sending a single penny to research conducted by or on behalf of the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)![https://t.co/EkC0sGO5RH](https://t.co/EkC0sGO5RH)
-> — Jim Banks (@RepJimBanks) [February 10, 2022](https://twitter.com/RepJimBanks/status/1491868032456695814?ref_src=twsrc%5Etfw)
-
-
-
-众议员加拉格尔： 众议员加拉格尔与众议员布莱恩·斯蒂尔和其他 100 多名共和党人一起呼吁拜登总统立即对从中国和南部边境涌入的芬太尼采取行动。 在这里阅读更多： 【附福克斯新闻报道】
-
-
-
-> Rep. Gallagher joined [@RepBryanSteil](https://twitter.com/RepBryanSteil?ref_src=twsrc%5Etfw) and more than 100 other Republicans in calling on President Biden to take immediate action on fentanyl pouring in from China and across the southern border. 
-> 
-> Read more here: [https://t.co/fgjybJDS08](https://t.co/fgjybJDS08)
-> — Rep. Gallagher Press Office (@RepGallagher) [February 10, 2022](https://twitter.com/RepGallagher/status/1491881413636935701?ref_src=twsrc%5Etfw)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

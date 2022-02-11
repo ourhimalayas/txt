@@ -2,37 +2,21 @@
 ---
 
 
-## 加拿大阿尔伯塔省开始取消疫情限制措施
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1988252/)
+## 蒲安臣条约
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1988457/)
 
-作者：纽约香草山教育部-Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-阿尔伯塔省长杰森·肯尼在2月8日的新闻发布会上宣布，阿尔伯塔省的疫苗护照政策于当天的午夜宣告结束，其他大部分中共病毒限制措施也将在三周后被取消。他还表示，除超过500人容量的场馆外，公共场馆的疫情限制措施也在当天午夜结束。
+视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王
+视频定位：BENJ1，WEI
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/9-6.png)
+*发布：**Frank2021*
 
-此外，该省也将于周一开始，取消12岁以下儿童和学校所有儿童的强制戴口罩的规定。
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-最后，肯尼表示，处理中共病毒的方法必须随着疫情的变化而改变。如果中共病毒美元给卫生系统带来更多的压力，未来几周将会取消更多的限制。
-
-参考链接：
-
-- [Alberta starts lifting COVID-19 restrictions, vaccine passport program](https://nationalpost.com/pmn/news-pmn/canada-news-pmn/cp-newsalert-alberta-to-start-lifting-covid-restrictions-including-vaccine-passport)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
-
-总编：飞虹
-编辑：飞虹
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

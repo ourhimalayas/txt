@@ -2,28 +2,58 @@
 ---
 
 
-## 有声|美对台出售爱国者军备系统抵御中共威胁
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1987762/)
+## 文·贵天成——文贵先生谈“UBS.瑞士银行”（八）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1987847/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月8日，据台湾媒体报道，台湾外交部已经正式接到美国政府的通知，即美方将对台湾出售价值1亿美元的设备和服务，用以维持、维护和改进台湾现有的爱国者导弹防御系统。
+**整理：BENJ1
+编辑：Candy**
 
-对此，台湾外交部表示了高度欢迎。同时，外交部也强调，鉴于中共持续的军事扩张和挑衅行为，台湾将继续深化台美双方紧密的安全伙伴关系，并对印太地区的和平、稳定与繁荣做出贡献。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/2-42.png)图片来源：雅典娜设计组
 
-文字版原文：[美对台出售爱国者军备系统抵御中共威胁](https://gnews.org/zh-hans/1985495/)
 
-音频处理/发稿：Daxia
+**郭文贵****先生****2022****年****1****月****9****日直播**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+王岐山在瑞士银行，光周永康，当时周永康就在…….当时石油帮留在瑞士的钱，王岐山亲口说：“这个钱，我王岐山再活一千年我都花不完。”他全都给拿走了，那真的都是上万亿的钱！中国老百姓你还想养老呢？你重孙子那辈儿的钱都给你花完了。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+**郭文贵****先生****2022****年****1****月****17****日直播**
+
+美国是讲法律的，我绝对相信共产党就像我曾经爆的料一样，在美国司法界，通过律师事务所对美国的渗透，绝对不是那么简单。这个案子，我们必须打到底。别说我活着，就是我死了我家族也会跟他打到底，一定会找出来所有的来龙去脉。他为什么那么多偶然？偶然的背后一定是不自然，谁制造的不自然？
+
+我们接下来会说在英国即将打的UBS官司，一样银行，一摸一样的过程，一摸一样的人物，一摸一样的背景。说到白了，就是看我们在和共产党打官司，和美国的黑暗的、被收买的司法界打官司。
+
+2022年这个黑暗的一年，我们有三大官司。一个UBS在英国的官司，你会看到，这是共产党穷其一切力量要阻止的。因为他拿走了我们几百亿、上千亿的财富。另外一个PAG案子，就是羞辱你，让你七哥不能有一分钱，让你家族人没有一分钱。缠诉你，让你没精力、没时间。
+
+几万页文件，不要你……我是不能看英文的，几万页，我得看1000年，我都看不完。我不是看100年，兄弟姐妹们，我看1000年都看不完，因为我不懂英文。所有的文件都是英文，你告诉我，他怎么收拾你？
+
+第二个，我们从UBS、PAG的案子完了，我们会看到，我们将要诉讼很多人。我们一定会告这个Edward Moss，一定会让他律师执照给他取消了，一定要让这个Bondi，还有Cahill律师事务所，这种流氓律师事务所，还有那个过去的什么取消政庇事务所带来的伤害等等这些人。我们要起诉他们，通过美国的法律让他们知道这些人背后到底干了什么。他们一定是造假，继续造假。骑侠（网名）会明白，只要证明了律师造假在美国的结局是什么。
+
+一切都是刚刚开始，一切已经开始。
+
+**郭文贵****先生****2022****年****1****月****19****日直播**
+
+瑞士最牛叉儿的UBS银行，是王岐山第一个来伤害七哥的爆料革命——UBS！你再看那个单伟建这个孙子，是桥水基金Ray Dalio的、TPG的、PAG太平联盟的。你看看那个单伟建，几乎“达沃斯论坛党”的所有人他都去了一遍，结果是跟谁呀？共产党的所有几个情报机构全混在一起。就单伟建这个人要不被美国西方政府抓了，达沃斯不可能有什么事儿。
+
+就是共产党在西方存的钱，像UBS银行，像德意志银行，像海航这样的，它不出事儿我们的黑暗还早着呢。
+
+往期回顾：
+
+[文⋅贵天成——文贵先生谈“瑞银UBS”（一）](https://gnews.org/zh-hans/1830189/)
+[文·贵天成——文贵先生谈“瑞银UBS”（二）](https://gnews.org/zh-hans/1830515/)
+[文•贵天成——文贵先生谈“瑞银UBS”（三）](https://gnews.org/zh-hans/1830754/)
+[文•贵天成——文贵先生谈“瑞银UBS”（四）](https://gnews.org/zh-hans/1831305/)
+[文•贵天成——文贵先生谈“瑞银UBS”（五）](https://gnews.org/zh-hans/1831257/)
+[文•贵天成——文贵先生谈“瑞银UBS”（六）](https://gnews.org/zh-hans/1831424/)
+[文•贵天成——文贵先生谈“瑞银UBS”（七）](https://gnews.org/zh-hans/1987820/)
+
+***发布：Candy***
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
