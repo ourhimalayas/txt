@@ -2,8 +2,8 @@
 ---
 
 
-## 一定会有科技革命，生物科技，量子电脑
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1988753/)
+## 新西兰会持续衰退很长时间
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1988863/)
 
 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王
 视频定位：BENJ1，WEI

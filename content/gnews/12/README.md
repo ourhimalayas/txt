@@ -2,28 +2,20 @@
 ---
 
 
-## 几经周折！徐州市委终于承认“拐卖”了
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/1988671/)
+## 一定会有科技革命，生物科技，量子电脑
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1988753/)
 
-2022年1月28日，徐州市丰县发布关于网民反映的“生育八孩女子”的情况说明，指出不存在拐卖行为。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-168.jpg)
-2022年2月10日，徐州市委政府联合调查组承认“生育八孩女子”为被拐卖妇女。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-42.jpg)
-历经十多天的几经周折，生育八孩女子终于成“合法婚姻”水落石出的认定为“被拐妇女”，来看看这段时间中共扯淡逻辑的处理通报。
+视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王
+视频定位：BENJ1，WEI
 
-第一份通报：不存在拐卖，是合法婚姻！
-​第二份通报：捡来的！
-​第三份通报：看病同时找个好人嫁了，结果不小心走丢了！
-​第四份通报：涉嫌拐卖！
+*发布：**Frank2021*
 
-就一个明眼人心里都清楚的拐卖，在中共那里证明起来咋就这么难呢！感情不是领导家的孩子，老百姓的孩子丢就丢了，有多少人会在意。一个满国摄像头的国家，罚钱时啥都看得清，找人时啥都看不清。一个网络监控到毫无隐私的国家，连夫妻的床事私生活都偷听，却容忍不了百姓的呼声！如此把人当猪狗的监狱之国，还没受够吗？中共不灭，你我皆如此，只是还没摊上！
-
-撰稿/发布：一叶知秋
-
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
