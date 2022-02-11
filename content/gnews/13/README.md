@@ -2,13 +2,17 @@
 ---
 
 
-## 干倒瑞银 CCP一切就完了
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1989753/)
+## 永远牢记来自中共的灾难和痛苦
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1989786/)
 
 作者：东京樱花团小视频组
 
+校对：东京樱花团小视频组
+
+发布：东京樱花团小视频组
+
 * * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/樱花-3-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/樱花-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
