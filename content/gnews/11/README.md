@@ -2,28 +2,16 @@
 ---
 
 
-## 有声|前国家情报总监谈论中共对美国经济科技和文化上的渗透
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1987264/)
+## HPAY上线后，打通了十二经与六脉，俄罗斯、乌克兰流通最大，第二是日本
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1987406/)
 
-配音：香草山健身部 – 玫瑰园
+文编：东京樱花团/樱花传媒
+视频:东京樱花团/中文小视频组
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+1月31日，郭文贵先生在GTV大直播透露，H-Pay的上线，相当于打通了喜联储的奇经八脉，其势不可挡。中共冬奥会之后世界将大变，美国会严厉制裁俄罗斯，而后者会国家级启用人民币。今后喜马拉雅币的最大流通市场必是俄罗斯、乌克兰。没有一次人类的财富转移，货币金融系统的诞生跟战争无关。日本会是第二大HDO市场，而目前还只是H-Pay的初级阶段。
 
-美国前国家情报总监在电视节目上针对中共渗透美国一事公开发表意见，他表示自己身为前国家情报总监，可以获得比任何人都还多的情报，根据情报资讯可以确定中共在很多方面都想取代美国，不仅是军事方面，连经济、科技和文化上，都是中共意图超越美国的领域。中共试图通过收购、替代电影产业后的赞助商，达到控制电影行业。通过修改剧本，将中共国的恶人变成英雄，同时打压台湾、香港。
-
-文字版原文：[前国家情报总监谈论中共对美国经济科技和文化上的渗透](https://gnews.org/zh-hans/1982958/)
-
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+*编辑、发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
