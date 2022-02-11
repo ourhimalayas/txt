@@ -2,29 +2,37 @@
 ---
 
 
-## 韩国外交官在纽约遭袭击
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1988046/)
+## 英格兰将在2月取消中共病毒隔离措施
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1988251/)
 
-#### 撰稿：彩虹
+作者：纽约香草山教育部 – Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+周三，首相鲍里斯·约翰逊突然宣布，如果感染率保持稳定，英格兰将在本月底取消对中共病毒检测呈阳性后、自我隔离的法律要求。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-2-7.jpg)图片来源：雅虎
-据《国会山报》2月10日报道，周三晚上，一名韩国外交官在纽约市遭到袭击，脸部被打，当局称之为“无缘无故”攻击。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/10-8.png)
 
-根据纽约市警察局的消息，警察在晚上8点10分左右接到报警电话，说在曼哈顿中城（Midtown Manhattan）的西35街和第五大道附近发生了一起袭击事件。
+英格兰在1月底已经取消了几乎所有的冠状病毒限制，几周前，为促进经济活动，政府将中共病毒患者的最低自我隔离期从7天缩短到5天。同时，英格兰已经逐渐放宽了有关国际旅行的规定，旅行者在抵达英国之前要完全接种疫苗，或抵达之后进行中共病毒检测的需求，也将于本周晚些时候结束。
 
-警方称，进一步调查发现，一名身份不明的成年男子走近受害者，对他的脸部打了一拳，然后徒步向第六大道方向逃去。
+首相发言人称，政府只负责英格兰的卫生政策，苏格兰、威尔士和北爱尔兰地区的相关措施由当地政府自己制定。
 
-纽约警察局报告说，去年的反亚裔仇恨犯罪增加了361%，从2020年的28起增加到了2021年的129起。
+参考链接：
 
-目前，该韩国外交人员的名字没有被披露，也还没有人被捕，对该事件的调查还在进行中。
+- [England may scrap COVID-19 isolation requirement by March: Johnson](https://www.dailysabah.com/world/europe/england-may-scrap-covid-19-isolation-requirement-by-march-johnson)
 
-文章说，韩国驻纽约总领事馆领事兼新闻专员崔铉胜（Hyun-seung Choi）在提供给《国会山报》的一份声明中说: “我们对这种毫无意义和恶劣的暴力行为感到愤慨，并期待这一不幸事件得到迅速解决。为此，总领馆正与纽约警察局（NYPD）密切合作。该部门已保证，对该事件的调查正在以迅速和彻底的方式进行。”
 
-**新闻来源**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
 
-[South Korean diplomat attacked in New York City: police](https://thehill.com/homenews/state-watch/593699-south-korean-diplomat-attacked-in-new-york-city-police)
+总编：飞虹
+编辑：飞虹
+校正/发稿：海阔天空1
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

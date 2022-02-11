@@ -2,8 +2,8 @@
 ---
 
 
-## Hpay完全做金融义工的一个平台
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1989050/)
+## 学会尊重孩子，爱孩子所爱，不要强调父母自己的爱
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1989218/)
 
 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王
 视频定位：BENJ1，WEI

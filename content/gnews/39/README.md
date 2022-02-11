@@ -2,26 +2,37 @@
 ---
 
 
-## 美国担任APEC主席意在牵制中共
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1988124/)
+## 加拿大阿尔伯塔省开始取消疫情限制措施
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1988252/)
 
-撰稿：东京樱花团/盖特第一批注册
-![](https://assets.gnews.org/wp-content/uploads/2022/02/7-11.png)[图片来源](https://news.yahoo.co.jp/articles/35e4fde5eb352f0b1ca55144130ce569fc45ac45/images/000)
-白宫2月10日宣布，美国将在2023年主持亚太经济合作组织（APEC）论坛，担任亚太经合组织主席，以努力加强与亚太地区的联系，并牵制中共在该地区日益增长的经济影响力。
+作者：纽约香草山教育部-Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+阿尔伯塔省长杰森·肯尼在2月8日的新闻发布会上宣布，阿尔伯塔省的疫苗护照政策于当天的午夜宣告结束，其他大部分中共病毒限制措施也将在三周后被取消。他还表示，除超过500人容量的场馆外，公共场馆的疫情限制措施也在当天午夜结束。
 
-拜登上任以来重新推动印太经济框架的政策，与日本和其他亚太经合组织成员建立共同的贸易和先进技术规则。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/9-6.png)
 
-拜登政府于2021年8月竞选主席，但在当年11月举行的APEC峰会上没有当选，之后在成员国间的斡旋下成为下届主席国。这是自2011年欧巴马政府以来，美国首次担任亚太经合组织主席国。
+此外，该省也将于周一开始，取消12岁以下儿童和学校所有儿童的强制戴口罩的规定。
 
-亚太经济合作组织成立于1989年，包括日本、美国和中国在内的21个国家和地区，是亚太区内各地区之间促进经济成长、合作、贸易、投资的论坛，为推动区域贸易投资自由化，加强成员间经济技术合作等方面发挥了不可替代的作用。
+最后，肯尼表示，处理中共病毒的方法必须随着疫情的变化而改变。如果中共病毒美元给卫生系统带来更多的压力，未来几周将会取消更多的限制。
 
-信息来源：
+参考链接：
 
-[米、2023年APEC議長国に　ホワイトハウス発表](https://news.yahoo.co.jp/articles/35e4fde5eb352f0b1ca55144130ce569fc45ac45)
+- [Alberta starts lifting COVID-19 restrictions, vaccine passport program](https://nationalpost.com/pmn/news-pmn/canada-news-pmn/cp-newsalert-alberta-to-start-lifting-covid-restrictions-including-vaccine-passport)
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
+
+总编：飞虹
+编辑：飞虹
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

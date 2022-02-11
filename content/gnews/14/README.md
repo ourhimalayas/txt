@@ -2,8 +2,8 @@
 ---
 
 
-## 七哥怎么做到隔空取人民币的
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1989008/)
+## HPAY全世界都可以用
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1989140/)
 
 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王
 视频定位：BENJ1，WEI

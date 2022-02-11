@@ -2,50 +2,26 @@
 ---
 
 
-## 澳大利亚支持立陶宛应对中共国“武器化”经济制裁
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1987276/)
+## 针下亡魂｜尸检证实美国 24 岁大学生死于新冠疫苗诱发的心肌炎
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/1987305/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+**撰文/ 疫情关注组｜发布日期/ 11/02/2022**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/1-104.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/post/pl6k0218bf](https://gettr.com/post/pl6k0218bf)）**
 
-翻译/编辑：文泓
+纽约一名 24 岁的大学生 George Watts Jr. 在接种完第二剂辉瑞 COVID-19 疫苗后被确诊患上心肌炎，不久后死亡。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/2-41.png)图片来源：Global Times
+由于当地的强制疫苗政策，为了按时到学校继续课程，George 分别在去年的 8 月、9 月完全接种了 COVID-19 疫苗。半个月后，George 的脸部明显浮肿，同时还有咳嗽、鼻窦等问题，家人立即送他去急诊室就医。
 
+可惜，当时医生并未察觉到任何与心脏疾病有关的迹象，直至 10 月底，George 的病情变得十分严重，他开始咳血、畏光、手脚等感到剧烈疼痛，几天后，即 10 月 27 日，他倒在了自己房间的地板上，再也没有醒过来。
 
-当地时间2月7日，据美国广播公司新闻报道，立陶宛在堪培拉的新外交使团开幕之前，立陶宛外交部长加布里埃尔·兰茨贝吉斯在议会大厦会见了澳大利亚外交部长玛丽斯·佩恩。
+George 的父母认为儿子一向相当健康，没有任何病史，因此要求尸检以厘清死因。经过布拉德福德县验尸官办公室的尸检证实：“George Watts Jr. 死于与 COVID-19 疫苗相关的心肌炎。”
 
-立陶宛作为一个欧洲小国，因其支持台湾的立场，目前正在努力应对中共政府对其实施的“武器化”经济制裁，澳大利亚已将其外交支持投向立陶宛。
+首席副验尸官 Timothy Cahill Jr. 指出：“死因是与 COVID-19 疫苗相关的心肌炎 … … 疫苗导致心脏衰竭，导致心脏感染 … … 所以，如果不是因为疫苗，死者很可能不会去世。”
 
-两国有一些关键的相似之处，立陶宛因与台湾的关系而受到中共国的贸易制裁；澳大利亚因提出中共病毒溯源调查，也遭遇了当前与中共国前所未有的贸易紧张局势。
-
-近年来，这两个国家都激怒了北京，中共政府针对两国出口产品和多行业实施了严厉的制裁和高额的关税，被称为“经济胁迫”。
-
-去年，立陶宛政府允许台湾在首都维尔纽斯设立贸易办事处。
-
-此举激怒了北京，仅仅因为该办公室被允许使用“台湾”这个名称，而不是传统的“台北”——中共国在宣称对这个民主岛屿拥有主权的努力中要求使用“台北”这个名称。
-
-今年1月，欧盟（EU）宣布将中国告上世界贸易组织（WTO），因为中国开始阻止从立陶宛进口的产品以及与立陶宛有关的产品。
-
-此后不久，澳大利亚申请加入世贸组织的案件，这是一个明确的信号，它在贸易争端中支持立陶宛。
-
-“**在相当长的一段时间里，澳大利亚是中国将经济和贸易作为一种政治工具，或者甚至可以说是一种政治武器的主要例子之一**，”兰茨贝吉斯先生在两国外长共同举行的新闻发布会上说。
-
-“**现在立陶宛加入了这个专属俱乐部。但很明显，我们绝对不是最后一个成员**，尤其是，如果我们不用自己拥有的手段来阻止（中共国）这些做法。”
-
-佩恩参议员表示，澳大利亚不考虑将其台北办事处更名为“台湾”，但将继续反对北京的行动。
-
-她说：“我和兰茨贝吉斯外长与许多同事一起工作和面对这些问题。”
-
-新闻链接：[Australia backs Lithuania over ‘weaponised’ economic sanctions from China due to Taiwan ties](https://www.abc.net.au/news/2022-02-09/australia-backs-lithuania-china-economic-sanctions-taiwan-russia/100815812)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+另外，他还强调，“目前，我们正在处理县内与疫苗及加强剂有关的其他病例。”这意味着，仅布拉德福德县而言，这绝非一个孤立事件。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屍檢證實美國-24-歲大學生死於新冠疫苗誘發的心肌炎.jpg)
+来源｜[Rochester](https://www.rochesterfirst.com/news/regional-news/i-dont-know-what-else-to-do-or-where-to-even-go-from-here-covid-19-vaccine-to-blame-for-southern-tier-mans-death/)
 
  
 

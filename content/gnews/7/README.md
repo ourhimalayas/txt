@@ -2,8 +2,8 @@
 ---
 
 
-## 单伟建如何在西方混出来的
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1989055/)
+## 冬奥会是否成为冬眠会，请战友们自己评价
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1989222/)
 
 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王
 视频定位：BENJ1，WEI

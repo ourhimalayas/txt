@@ -2,39 +2,46 @@
 ---
 
 
-## 布林肯出席墨尔本四方会谈，应对中俄带来的威胁
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1988445/)
+## 英国研究表明，完全接种中共病毒疫苗的孩子死亡风险高达5100%
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1988763/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
-
-整理：Eileen（围剿维尼熊）
-编辑：文泓
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/4-23.png)图片来源：Reuters
+作者：银河系农场—骄子
 
 
-当地时间2月10日，根据德国之声报道，美国国务卿布林肯于2月9日抵达澳大利亚墨尔本，准备在11日与四方会谈(QUAD)的其他三国外长进行会晤。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-17.png)
 
-这次墨尔本的四方会谈是第四次举行四国部长级的会议，而布林肯的到来，使他成为拜登这届政府出访澳大利亚级别最高的内阁成员。
 
-美联社报导，布林肯此行旨在加强美国在亚洲的利益，以及对中国在该地区日益增长的强硬态度进行反击的意图。
+近日英国国家统计局发布的数据显示，接种过中共病毒疫苗的儿童和未接种的儿童在死亡率上存在令人震惊的差异。根据数据分析，完全接种中共病毒疫苗的儿童死于任何原因的风险都比未接种儿童高出5100%以上。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/25.png)
+对于15至19岁的儿童来说，第一次接种中共病毒疫苗后，所有原因的死亡风险都增加了82%，第二次接种后增加了226%。但对于10至14岁的儿童来说，情况更糟，第一次接种后死亡风险增加了885%，第二次接种后增加了515%。至少接种过一次中共病毒疫苗的10至14岁的儿童死亡可能性是正常儿童的10倍，而接受过两针疫苗的儿童死亡可能性是52倍。
 
-澳洲外长佩恩9日表示，布林肯国务卿飞抵澳大利亚是为了集中精力应对印太地区的严峻挑战。此次聚会是向中国传递了一个信息，那就是美国政府将印太地区的安全视为重大挑战。
+科学家Mike Yeadon曾警告说，中共病毒疫苗导致的儿童死亡是其能用于预防中共病毒的50倍，辉瑞等疫苗中使用的mRNA基因技术会使身体产生刺突蛋白，导致血凝块等健康问题。
 
-虽然中国将是四方会谈外长会议议程中最重要的议题，但美国官员表示，乌克兰和北京与莫斯科之间的关系也将是一个讨论的重点。
+医学博士Paul Hunter说，我们未看到中共病毒疫苗在阻止学校的中共病毒传播方面做了什么贡献，相反很多儿童都被染病。
 
-布林肯预计会与盟国外长讨论俄罗斯和中国之间日益增长的伙伴关系所带来的威胁，特别是在上周普京和习近平在北京冬奥会开幕上的会晤之后。
+参考来源：
 
-参考链接：[布林肯抵达澳 四方会谈聚焦中俄联手势力](https://www.dw.com/zh/%E5%B8%83%E6%9E%97%E8%82%AF%E6%8A%B5%E8%BE%BE%E6%BE%B3-%E5%9B%9B%E6%96%B9%E4%BC%9A%E8%B0%88%E8%81%9A%E7%84%A6%E4%B8%AD%E4%BF%84%E8%81%94%E6%89%8B%E5%8A%BF%E5%8A%9B/a-60720493)
+[UK data shows shockingly high mortality rate among fully vaccinated children](https://newstarget.com/2022-02-09-uk-data-high-mortality-rate-vaccinated-children.html)
 
-*发布：tianzhihuan*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-30.jpg)
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+编辑/校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-18.png)
+
 
  
 

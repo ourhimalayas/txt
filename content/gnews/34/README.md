@@ -2,37 +2,36 @@
 ---
 
 
-## 美国媒体称，疫苗造成的死亡令人震惊
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1988253/)
+## 中日财经爆|广州最大民营企业 世界五百强雪松控股再次“爆雷”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1988707/)
 
-作者：纽约香草山 – 侠肝义胆
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-2月7日，根据OANN公布的一份令人震惊的新报告，截至2022年1月4日，至少有94万6千名美国人在接种疫苗后死亡，或出现了严重的副作用。
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1088.png)[图片来源](https://www.tspweb.com/key/%E9%9B%AA%E6%9D%BE%E6%8E%A7%E8%82%A1%E6%9D%BE%E6%97%85%E7%BD%91.html)
+2月10日，广州最大民营企业，世界五百强雪松控股总部楼下聚集了多名投资者进行维权，维权投资者的投资金额巨大，或与雪松控股春节前信托二度爆雷，理财无法按期兑付有关。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8-8.png)
+1月30日晚，雪松控股集团突然发出致歉信，宣布原定于1月底完成的理财兑付无法落实，预计将延期至2月底。
 
-该报告还引述了美国卫生与公众服务部的信息指出，因为注射中共病毒疫苗，很多人或患神经系统疾病无法站立，或患心脑血管疾病突然摔倒，超过10万名美国人在接受疫苗注射后不得不住院治疗。
+这已是雪松控股信托在一年间的第二次爆雷。2021年4月，在金虎339号、347号等多个信托产品的兑付截止日，雪松并未如期完成兑付；此外还有投资人爆料，雪松信托翻脸不认兑付协议书，涉及27个项目，逾期本金多达38.09亿元。
 
-主持人Pearson Sharp在节目中表示：“我们现在看到了这种未经测试、未经证实、仓促研发的疫苗的后果，比我们担心的要严重得多。而这只是一个开始，如果美国人和父母不能勇敢地反对这项不科学的强制令，我们可能会看到历史上规模最大的、人类实验造成数十万人死亡或永久受伤。”
+其中，雪松控股自主发行的长惠77号、长茂7号、长茂33号三个项目当时也在逾期兑付之列，上述3个项目，均和去年深陷债务危机的房地产企业华夏幸福有关。
 
-参考链接：
+而在2020年9月，还有媒体调查发现，雪松信托连续发行超过200亿元的42只“长青”系列信托计划，声称是对知名国企的大额应收账款。但债务人基本否认了债务存在，其声称的底层资产实为虚无，更有借道假央企转移百亿巨资的嫌疑。
 
-- [Report: COVID vaccines inflicting far more deaths than previously thought: “Could be looking at hundreds of thousands more dead”](https://newstarget.com/2022-02-07-report-covid-vaccines-inflicting-more-deaths-than-thought.html)
+雪松信托暴雷的项目中如雪松信托长盈133号，其底层资产为恒大集团紫熙投资有限公司在深圳的旧改项目，于去年9月出现了违约付息。雪松信托一年间的二度暴雷，或与深陷债务危机的另一知名房企恒大也有关联。
 
+另外，雪松控股还于2019年接盘了多个产品逾期爆雷，涉及金额超50亿元的中江信托。雪松信托自主发行的理财产品问题重重之外，还有着多个历史遗留问题亟待解决。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
+目前雪松控股集团是广州最大的民营企业，在2018年，雪松控股以327亿美元的营收首次入围世界500强，排在第361位。随后2019-2021年，雪松控股连续3年入围世界500强，其中2021年以338.37亿美元位列世界500强359位。
 
-总编：Irene木木
-编辑：飞虹
-校正/发稿：海阔天空1
+消息来源：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**[暴雷！雪松控股总部遭投资者维权 理财再逾期或与恒大有关？](https://finance.sina.com.cn/trust/roll/2022-02-11/doc-ikyakumy5259573.shtml)**
+
+**[广州最大民营企业雪松控股宣布理财产品违约](https://cj.sina.com.cn/articles/view/1638782947/61add7e3027017cqn)**
+
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

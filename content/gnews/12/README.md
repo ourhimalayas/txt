@@ -2,8 +2,8 @@
 ---
 
 
-## 民币通道目前是农场授权，不超过半年全面开放
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1989022/)
+## 七哥分享七哥七嫂教育儿女：不撒谎，要孝敬，独立，不欺负
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1989173/)
 
 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王
 视频定位：BENJ1，WEI

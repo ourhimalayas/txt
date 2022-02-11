@@ -2,19 +2,21 @@
 ---
 
 
-## 西方国家与中共的政治经济双脱钩 从今天开始
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1988963/)
+## 习是为了弄死不相信的一部分人，才调动部队
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1989127/)
 
-文编：东京樱花团/樱花传媒
-视频:东京樱花团/中文小视频组
+视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王
+视频定位：BENJ1，WEI
 
-1月21日，郭文贵先生在GTV大直播指出：
+*发布：**Frank2021*
 
-西方开启了与中共政治和经济的脱钩！法国因为大革命在世界享受着无限的尊严和财富，这一次，法国、英国、德国、美国等国家会抢着与中共脱钩，因为这意味着谁是世界自由的老大，谁是世界自由的灯塔。
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-*编辑：东京樱花团/墨然
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
