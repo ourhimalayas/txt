@@ -16,6 +16,8 @@
 ---
 ## 頁面 28/40 [**<**](/content/README-27.md) [1](/content/README.md) ... [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) **28** [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) [32](/content/README-32.md) [33](/content/README-33.md) ... [40](/content/README-40.md) [**>**](/content/README-29.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年1月11日“政法伪”高管评崔永元爆料](/content/2019/01/20190113-1838714476556605024.md)
+
 [文字版：2019年1月10日，談袁健斌的案子，徵求春節爆猛料內幕](/content/2019/01/20190111-7236434520356507605.md)
 
 [文字版：1月8日文贵报平安视频](/content/2019/01/20190111-1742695953607571413.md)
@@ -63,8 +65,6 @@
 [翻译：龚小夏点评:国际刑警组织玩“红色通缉令”的笑话](/content/2018/11/20181124-4394519846774733520.md)
 
 [翻译：1120发布会中英法文完整的采访从法国过来的王健之死证人](/content/2018/11/20181124-6313930265884722848.md)
-
-[翻译：1120发布会来宾提问，班农和郭先生回答](/content/2018/11/20181123-8581162821359950469.md)
 
 
 ## 頁面 28/40 [**<**](/content/README-27.md) [1](/content/README.md) ... [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) **28** [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) [32](/content/README-32.md) [33](/content/README-33.md) ... [40](/content/README-40.md) [**>**](/content/README-29.md) [查看全部](/content/README-all.md)
