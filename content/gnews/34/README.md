@@ -2,10 +2,10 @@
 ---
 
 
-## 日本拟延长13都县防止疫情蔓延重点措施
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1987299/)
+## 韩国新增确诊中共病毒突破5万例 再创新高
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1987300/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2._11-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/20220211-scaled.jpg)
 *编辑：东京樱花团/简报小组
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)

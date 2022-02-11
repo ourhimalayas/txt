@@ -2,10 +2,34 @@
 ---
 
 
-## 2/10/2022 文贵盖特：任何跟中共勾兑的人都逃不被制裁的命运；战友们要严守正义、道德和法律的原则
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1987559/)
+## 2022年2月10日 晚 新中国联邦新闻、GTV新闻访谈简报
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1987578/)
 
-秘密翻译组-北美组
+作者：香草山翻译部
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-4.jpg)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-9.png)
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+来源：
+
+新闻：[https://gtv.org/broadcast/watch/6205bd54a1fe5e57a4267c5c](https://gtv.org/broadcast/watch/6205bd54a1fe5e57a4267c5c)
+访谈：[https://gtv.org/broadcast/watch/6205c5b6a1fe5e57a4268182](https://gtv.org/broadcast/watch/6205c5b6a1fe5e57a4268182)
+
+![calendar](https://assets.gnews.org/wp-content/uploads/2022/02/calendar-1.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

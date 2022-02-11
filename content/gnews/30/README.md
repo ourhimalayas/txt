@@ -2,34 +2,56 @@
 ---
 
 
-## 美国会共和党人提出《制裁中共法》 锁定中共官员及亲属
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1987407/)
+## 法媒报道: 新的加密货币喜马拉雅币推出后不久即达 270 亿美元估值
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1987521/)
 
-![资料照：中国共产党成立100周年前夕的一场庆祝活动上，屏幕显示国家主席习近率领官员诵读对党的效忠誓词。（2021年6月28日，美联社）](https://gdb.voanews.com/3211D57D-E643-4709-83B9-CACD8A05376C_w1023_r1_s.jpg)资料照：中国共产党成立100周年前夕的一场庆祝活动上，屏幕显示国家主席习近率领官员诵读对党的效忠誓词。（2021年6月28日，美联社）
-据美国之音2月10 日报道，多位美国国会共和党人推出最新议案，对中国共产党全国代表大会所有成员及其直系亲属进行制裁，包括中共党魁习近平及其家人。制裁措施包括阻止和禁止制裁对象所有在美国境内的财产交易、无法取得赴美签证、禁止入境美国等。如果法案通过国会正式成法，2000多名中共全国代表大会成员及其成年直系亲属将无法入境美国，也无法使用美国的金融系统，受到制裁的官员无法利用其家庭成员来规避制裁。此外，根据法案，在中共国运营的美国公司也同样无法与任何被制裁的个人，即中共官员及其家人，进行任何交易或业务。
+译评：香草山商业部 —文锤
 
-议员们认为，制裁力道强大，才会对中共官员发挥真正的惩罚作用。中共是美国和全世界最大的威胁。中国共产党必须为其人权侵犯暴行承担责任，包括在新疆大规模关押维吾尔和少数民族穆斯林、强行在香港实施“国安法”、打压香港自由，同时破坏一国两制的模式。法案还包括台湾部分。
-
-北京方面必须满足几项条件才能取消制裁：真正停止对维吾尔人和在香港的人权暴行、停止对美国知识产权的窃取，以及停止对台湾的侵扰。法案赋予美国总统豁免中共官员至多两年免于制裁的权利，但必须满足特定的前提条件。
-
-《制裁中共法》已获得15位共和党众议员联署支持，但尚未有民主党人表态赞成。法案要取得国会跨党派一致同意会有难度。但是在政治党派严重分歧的华盛顿，将中共国定性为必须全力抗衡的“战略竞争对手”已经成为国会两党难得一见的共识。
-
-无论是民主党还是共和党，无论是所谓的亲共派还是反共派，在对抗中共的问题上，美国国会两党已经达成了一致，认定中共是美国最大的威胁。几十年来中共在美国的扶植和帮助下，经济迅速发展，国力迅速增强。但是壮大后的中共国认为自己有了打垮美国的实力，不惜以卵击石，利用生物超限战、经济超限战、媒体超限战、病毒疫苗超限战等等手段，以伤敌一千、自损一万的代价重创了美国的经济和各行各业，让美国付出了沉重的代价。逐渐清醒的美国终于意识到中共的威胁，于是各项措施和法案相继出台，抵制北京冬奥会、关闭驻京大使馆。出台制裁法案，锁定中共官员的私人财产。中共自称是无产阶级政党，其实中共是全世界最有钱的私人组织，在全世界藏有巨额财富。经济是中共的命脉，断掉中共的财路， 找到被中共盗走的国家财富，才能彻底消灭中共，杜绝人类的一切灾难。
-
-新闻参考链接：[https://www.voachinese.com/a/us-gop-lawmakers-introduce-bill-to-sanction-ccp-officials-20220209/6435255.html](https://www.voachinese.com/a/us-gop-lawmakers-introduce-bill-to-sanction-ccp-officials-20220209/6435255.html)
-
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+“喜马拉雅币”是市场上最新的加密货币，其在推出后不到两周的时间内估值就达到了 270 亿美元，价格从 10 美分上涨至 27 美元。没有其他任何人比流亡海外的亿万富翁郭文贵更会在社交媒体上推广新的加密货币。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/La-nouvelle-crypto-monnaie-Himalaya-Coin-atteint-une-valorisation-de-27.jpg)图片来源：网络
+
+这位亿万富翁出现他的音乐视频“Hcoin to the Moon”中，他在视频中宣传这种加密货币。视频中的郭，抽着雪茄，在游艇上闲逛，开着一辆红色跑车。唐纳德·特朗普的前顾问史蒂夫·班农也对此很感兴趣，并表示该剧的首次亮相是“不朽的”。
+
+在中国加大对加密货币使用的打击力度之际，“喜马拉雅币”的首次亮相值得一提。更引人注目的是，加密货币是由郭和班农推动的，他们多年来一直在公开反对中共政府。
+
+史蒂夫·班农上周在接受采访时称赞了“喜马拉雅币”，并将其置于他与中国抗争的背景下。喜马拉雅交易所（Himalaya Exchange）首席执行官 Jesse Brown 表示，已经发行了 10 亿枚喜马拉雅币。这相当于大约 270 亿美元的市场价值。
+
+译者评：很少看到法媒中有对喜交所和喜币的报道，此篇报道对于推广喜支付有着一定助力作用，战友们加油！用好一切可以利用的工具推广喜支付。
+
+**文章来源：**
+
+**[La nouvelle crypto-monnaie Himalaya Coin atteint une valorisation de 27 milliards de dollars peu après son lancement – ThePressFree](https://thepressfree.com/la-nouvelle-crypto-monnaie-himalaya-coin-atteint-une-valorisation-de-27-milliards-de-dollars-peu-apres-son-lancement/)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-8.jpg)
+
+校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 
