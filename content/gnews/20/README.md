@@ -2,41 +2,86 @@
 ---
 
 
-## 中共在加勒万河谷冲突中伤亡惨重，并编造故事企图隐瞒真相
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1987330/)
+## 全球疫情更新（全球累积感染超过4亿）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1987454/)
 
-**翻译：日本东京方舟农场 文龍杰克**
+**整理/编辑：枳实**
 
-澳洲真相传媒The Klaxon在一份调查报告中称，2020年中国在加勒万河谷与印度发生的冲突事件中，中国士兵大量伤亡。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-159.jpg)（圖片來源：wionews.com）
-据该主编安东尼·卡兰的独家调查结果发现，中国士兵伤亡人数明显高于中共对外宣称的数量，许多中国士兵在夜间横穿，零度以下的湍急河流时溺水身亡。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-972.png)图片：雅典娜农场设计组 精灵蓝
 
-同时该主编称，中共移花接木的伪造了“加勒万河谷”发生的两次冲突数据和照片，以掩盖事实真相。
 
-报道文章称，加勒万冲突中，虽然中共没有透露具体的伤亡人数，但还是向战斗中阵亡的四名士兵颁发了荣誉称号，追记一等功。同时中共媒体公布了四人的名字，而事实上中国士兵阵亡高达38人。
+雅典娜疫情更新（2022年 2月10日）
 
-澳洲真相传媒The Klaxon为调查该事件真相，特意组建了一支独立社交媒体调查团队，调查中发现中方伤亡38名士兵远高于中共媒体曝光的四人，中共也采取了各种流氓手段来阻止网民们进一步热搜和讨论该冲突事件。
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-依据该调查团队发布的一份名为“加尔万解码”的报告揭秘，许多中国士兵在 6 月 15 日至 16 日的冲突战斗前就已溺亡，原因是当晚气温为零度以下，而大量中国士兵试图穿越湍急的加尔万河。
+**一，全球疫情基本数据**
 
-同时报道也援引多位中国微博用户的留言说，“至少 38 名解放军战士在当晚就死亡了，包括士兵王焯冉在内。” “而四名死亡的士兵中，中共只宣布了王焯冉。”
+感染总数：403,210,608（日新增2,560,671人，14天增幅-24%）
 
-依据最新研究报道指出，2020年中印在加勒万河谷高海拔边境线爆发的冲突中，导致了大量士兵死亡——也是这两个巨人在 40 多年以来最致命最激烈的一次正面对抗——而中方伤亡人数远高于中共官媒报道，其伤亡原因是许多中国士兵在气温为零度以下的黑夜中横渡湍急河流时而溺水身亡。
+死亡总数：5,776,831（日新增11,010      人，14天增幅 +27%）
 
-该独立调查持续了一年，收集了大量材料来自中共军事博客、自媒体和被中共下架查封的媒体出版物。
+**二，全球“疫苗”毒针统计数据**
 
-很显然中共屏蔽了很多关于本次冲突的真实信息。中共向全世界公布的士兵死亡信息几乎都是假的。据被查禁的出版物描述，“许多报道该冲突事件的博客和网页已经被中共屏蔽删帖，而中共的网络数码档案却都记录了该冲突事件的多个不同版本。”
+“疫苗”毒针注射总数：103亿
 
-继 2020 年 5 月 5 日中印在班公湖地区发生激烈军事冲突后，中印又爆发了在拉达克东部边境的军事对峙，双方均调遣数万名士兵和大量重型装备来逐步加强军事部署。
+完全“接种”：42.3亿人
 
-经过中印双方多轮军事和外交谈判，去年双方开始在戈格拉和班公湖南北岸逐步撤离军队。但在敏感军事沿线，两方均部署了大约 50,000 至 60,000 名士兵。
+完全“接种”百分比：54.2%
 
-原文链接：
-[https://www.wionews.com/india-news/china-suffered-a-huge-loss-in-the-galwan-valley-clash-fabricated-stories-to-the-world-australian-newspaper-449997](https://www.wionews.com/india-news/china-suffered-a-huge-loss-in-the-galwan-valley-clash-fabricated-stories-to-the-world-australian-newspaper-449997)
+**三，澳洲疫情和“疫苗”数据**
 
-素材採編：妙喜小油鍋
-校对：妙喜小油鍋
-发布：爱放飞
+感染总数：2,825,528（今日新增29,451人）
+
+死亡总数：4,431人（今日新增 65人）
+
+每万人感染人数：1094.6368人
+
+“疫苗”毒针注射总数：51,805,966  （今日新增215,521   针）
+
+完全“接种”：19,355,377人
+
+第二针“接种”百分比：79.1%
+
+16岁以上人口接种至少一剂疫苗的比例：&gt;95%
+
+16岁以上人口接种至少两剂疫苗的比例：93.9%
+
+加强针总数：9,554,451（日新增：183,129针）
+
+**四，疫情评论**
+
+今日全球病例超过4亿，而澳洲的感染率从低于世界平均水平到达今天超过10%的感染率仅仅用了几十天的时间，而这一切都发生在澳洲的“疫苗”接种率到达“神奇”的70%之后。很多人可能已经忘记了这个70%的神奇数字，当初卫生官员和科学家们曾经把这个数字视为达到群体免疫的标准，曾经向民众保证，达到这个数字之后，我们就不会再有大的疫情。然而事实却恰恰相反，疫苗接种率达到70%之后的这波疫情海啸让之前澳洲的三波疫情成为微风下的水波。可是疫苗强制却仍然在继续，甚至连加强针都在很多行业和地区成为强制。
+
+疫苗强制的合理性在科学上早已破产，可是政府却固执坚持剥夺民众医疗选择的权利。在加拿大，虽然已经有成千上万的卡车聚集在首都和周边的冰天雪地中，民众用挎包携带的燃料支援他们的抗议，为他们捐款的账户虽然被政府封杀，新开辟的捐款途径很快就筹集了巨款。然而政府却丝毫不退让，坚持要对他们进行强制疫苗，否则不能工作。警察可能很快就要进行抓捕。疫苗强制已经早已不是科学问题，而是基本的人权和民主问题，具体来说，就是如何避免一个非理性决策的政府所造成的危害。民主带来的最大的好处，就是民众因此可以避免来自权力不受限制的政府带来的伤害。但大疫情所带来的紧急状态，却给了政府过度的权力，现在我们看到的就是这种过度的权力给民众带来的伤害。
+
+历史上的专制政权，包括中共治下的社会的很多特征，比如言论管控和审查，政府的傲慢，少数民众的抗争，大众的漠然与懵懂，都能在大疫情的紧急状态下的今天的西方民主社会中看到。历史教训具在，从民主滑向专制其实只有一步之遥，自由绝不是免费午餐，还需要人们去奋力争取。
+
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+
+数据来源：
+
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+
+[covidlive.com.au](https://covidlive.com.au/)
+
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

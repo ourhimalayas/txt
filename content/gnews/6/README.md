@@ -2,34 +2,13 @@
 ---
 
 
-## 樱花灭共段子┃看七哥大直播有感序之一
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1987526/)
+## 七哥金句：灭共
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1987587/)
 
-撰稿：东京樱花团/保和
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-160.jpg)图片：夏目&山竹
-七哥直播又一期 不打疫苗灭共去
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句.png)
+整理：雅典娜速记组 
+发布：枫叶红了
 
-瑞银沼泽大混蛋 七哥一抓一条线
-
-寻回百年民财富 灭掉沼泽开始干
-
-多年准备盼此时 敬天爱地灭共去
-
-保佑七哥把魔杀 路上歌曲来相伴
-
-祈祷上天帮和看 壬寅灭共在眼前
-
-全球战友全参战 坚持最后不掉链
-
-胜利曙光和笑颜 多年回头往回看
-
-不负英雄小少年 正义选择他在前
-
-[盖特链接](https://gettr.com/post/pto2kda205)
-
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
