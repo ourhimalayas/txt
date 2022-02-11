@@ -2,44 +2,46 @@
 ---
 
 
-## 王岐山要上了美国撤离使馆的医疗专机,中共敢打下来吗？
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1989522/)
+## 乔·罗根回应针对他的“政治打手”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1989560/)
 
-G-TV视频链接：[https://gtv.org/video/id=62035198585ecc15d73f482e](https://gtv.org/video/id=62035198585ecc15d73f482e)
+**翻译： Jenny Ball**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip乔·罗根回应针对他的政治打手.png)图片来源：thepostmillennial.com
+在周二的Spotify上的“乔·罗根体验”一集中，该节目的同名节目解决了他最近处于中心的争议，以及正在进行的取消和审查他的努力。
 
-**郭文贵先生：**就这现在冬奥会要来了，是吧？这个王沪宁的秘书：常秘书，给人家美国人打电话，是吧？咱是哥们啊，咱见个面吧，干嘛都撤走啊是吧？你撤几个就算了吧。人家美国的人说我们买了很多家具还得搬走，开好几台大车。我还给你准备了几件家具呢。
+与单口演员、播客和演员阿卡什·辛（ Akaash Singh ）交谈时，这一集的开场白是两人讨论了有关罗根过去使用“黑人”叫法(nigger)的最新争议。
 
-所以就这种人，你想想王沪宁办公室的人，就公开行贿别人，就是low到极点，把国与国的关系弄到。你知道美国人，人家是玩死你中共。那几架你说的那几架那个医疗专机，能拉回多少人呢？那光拉人吗？
+罗根继续称这起事件既是“政治打击”，所谓的“解脱”。
 
-我有告诉你，可不光拉美国人，很有可能也有中国人就上那飞机了，那王岐山要上那飞机来了，你能给他打下来吗？你敢打吗？你不敢打，王岐山的秘密材料能拉过来，你敢打吗？你也不敢打。
+“你知道，在很多方面，就像所有这一切，都是一种解脱，因为它就像，这是一个政治打击工作。所以，他们正在接受所有我曾经说过的东西都是错误的，把它全部抹掉，但这很好，因为它让我解决了一些我真的希望不存在的问题，”罗根说。
 
-字幕来源：[2022年1月29日香草山农场年会直播全文字版](https://gnews.org/zh-hans/1938961/)
+辛格说：“如果你说了一些疯狂的屁话，你可以道歉，我们也有一些疯狂的屁话，你道歉并承认这是错误的。这对你有好处，”辛格说，并指出，喜剧演员“多年来”一直这样做“不成熟的事情”，拒绝道歉。
 
-编辑整理：Jacques；
+“如果你后悔做了某事，你应该道歉，”罗根说。 “你永远不应该为自己的想法道歉，就像如果你后悔某事，我不认为道歉有什么问题。”
 
-字幕文件制作：知津；
+“但是，我确实认为你必须非常小心，不要为胡说八道而道歉，”罗根指出。
 
-视频制作及上传：Cindy；
+例如，罗根注意到，亚裔美国女演员奥卡菲娜（Awkwafina）最近为她说话的方式进行了辩护，评论家说她使用了“黑人口音”“Blaccent”。
 
-G-News发布：小满；
+周一，前总统川普和佛罗里达州州长罗恩·德桑蒂斯，都敦促罗根停止为他过去的言论道歉。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+川普周一发表声明，告诉罗根，“乔·罗根是一个有趣且受欢迎的人，但他必须停止向假新闻和激进的左派疯子和疯子道歉。你有多少种方式说你很抱歉？乔，去做你做得很好的事情，“不要让他们让你看起来虚弱和害怕。那不是你，永远不会是！”川普说。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+在同一天接受福克斯新闻采访时，德桑蒂斯表达了类似的观点，称传统媒体和左翼“担心他可以接触到这么多人，所以他们会想毁掉他。”
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+“不，他不应该道歉。我的意思是，你明白会发生什么吗？暴徒会追捕人们，他们的目标是罗根，因为他威胁要在他们珍视的一些事情上打乱对于COVID的说法，他只是提出了相反的观点。他让人们做出决定。他们说他反对[COVID疫苗]。我不听他的节目，但后来我读到，他特别提倡患有合并症和老年人的人接种疫苗，”德桑蒂斯说。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+“我认为很多传统媒体，我认为左派担心的是，他有这么多观众，所以他们要摧毁他。但我想说的是，不要让步。不要道歉。不要向暴徒磕头。站起来告诉他们别妄想；如果你这样做，他们真的对你无能为力。他们拥有权力的唯一方法，就是他们能够把你制服成羔羊。” 他又说道。
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+**新闻来源**：[thepostmillennial.com][BREAKING: Joe Rogan responds to ‘political hit job’ against him](https://thepostmillennial.com/breaking-joe-rogan-responds-to-political-hit-job-against-him)
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+* * *
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+***审核：文乐
+校对：花羽
+发布：信心满满***
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-3.jpeg)
 
  
 

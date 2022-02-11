@@ -2,37 +2,54 @@
 ---
 
 
-## 俄罗斯与白俄罗斯联合军演 多国纷纷表态
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1989478/)
+## 一千项不同研究列表显示COVID疫苗不良事件的证据
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1989509/)
 
-**撰稿：日本东京方舟农场 子辰**
+**翻译： Jenny Ball**
 
-据大纪元2月11日报道，俄罗斯与白俄罗斯联合进行为期十天的海上军演，让外界一致担忧俄罗斯可能入侵乌克兰。俄罗斯布兵乌克兰边境已经一月有余。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip一千项不同研究列表显示COVID疫苗不良事件的证据.png)图片来源：thegatewaypundit.com
 
-据悉，此次军演约有3万名俄罗斯士兵在白俄罗斯参加演习，而且这是自冷战以来俄罗斯在白俄罗斯进行的最大规模军事部署。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片-1-2-3.jpeg)（图片来自大纪元）
-演习在白俄罗斯的西部和南部与波兰接壤的边界进行，白俄罗斯西部和北部分别与波罗的海国家立陶宛和拉脱维亚相邻，南部则与乌克兰接壤。
+您是否厌倦了与自由派朋友和家人就 COVID-19 疫苗的安全性进行辩论？
 
-俄罗斯声称，此次演习只是为了演练击退“外部侵略”，并再次否认有任何攻击乌克兰的意图，
+“澳大利亚知情选择”（Informed Choice Australia）列出了提交给各种医学期刊的“同行评审”医学论文清单，显示了 COVID-19 疫苗中不良事件的广泛证据。
 
-俄国防部说，此次名为“盟军决心2022”（Allied Resolve 2022）联合军事演习将持续到本月20日，目标是测试白俄罗斯和俄罗斯“在防御行动中压制和击退外部侵略，以及打击恐怖主义和保护盟国利益”这方面的准备情况。
+该列表仅包括截至 1 月 20 日有关 COVID-19 疫苗不良反应的研究，例如心肌炎、血栓形成、血小板减少症、血管炎、心脏、贝尔氏麻痹症、免疫介导疾病等。
 
-白俄罗斯总统亚历山大‧卢卡申科（Alexander Lukashenko）公开表示，鉴于北约部队驻扎在波罗的海和波兰，这次演习是让俄罗斯和白俄罗斯军队做好准备，以应对源自欧洲的可能军事对抗。
+阅读以下前 20 项研究：
 
-乌克兰方面指责俄罗斯“以海军演习为借口”封锁了其南部的黑海和亚速海的部分海域。与此同时，乌克兰也在使用西方盟国送来的武器装备、进行自己的军事演习。
+1. SARS-CoV-2 mRNA 疫苗接种后的心肌炎，病例系列：[https://www.sciencedirect.com/science/article/pii/S2666602221000409](https://www.sciencedirect.com/science/article/pii/S2666602221000409)
+2. 美军成员接种 COVID-19 mRNA 疫苗后的心肌炎。这篇文章报道了“23名男性患者，包括22名既往健康的军人，在接种疫苗后4天内发现心肌炎”：[https://jamanetwork.com/journals/jamacardiology/fullarticle/2781601](https://jamanetwork.com/journals/jamacardiology/fullarticle/2781601)
+3. 在儿童病例系列中，心肌炎与 BNT162b2 信使 RNA COVID-19 疫苗的关联: [https://pubmed.ncbi.nlm.nih.gov/34374740/](https://pubmed.ncbi.nlm.nih.gov/34374740/)
+4. 辉瑞-生物科技 COVID-19 疫苗接种后 7 名青少年出现急性症状性心肌炎: [https://pediatrics.aappublications.org/content/early/2021/06/04/peds.2021-052478](https://pediatrics.aappublications.org/content/early/2021/06/04/peds.2021-052478)
+5. 接种 COVID-19 mRNA 后的心肌炎和心包炎：护理人员的实际考虑: [https://www.sciencedirect.com/science/article/pii/S0828282X21006243](https://www.sciencedirect.com/science/article/pii/S0828282X21006243)
+6. COVID-19 疫苗接种后的心肌炎、心包炎和心肌病: [https://www.sciencedirect.com/science/article/pii/S1443950621011562](https://www.sciencedirect.com/science/article/pii/S1443950621011562)
+7. COVID-19 mRNA 疫苗引起的心肌炎: [https://www.ahajournals.org/doi/pdf/10.1161/CIRCULATIONAHA.121.056135](https://www.ahajournals.org/doi/pdf/10.1161/CIRCULATIONAHA.121.056135)
+8. COVID-19 疫苗接种后的心肌炎和心包炎: [https://jamanetwork.com/journals/jama/fullarticle/2782900](https://jamanetwork.com/journals/jama/fullarticle/2782900)
+9. 心肌炎与 COVID-19 疫苗接种暂时相关: [https://www.ahajournals.org/doi/pdf/10.1161/CIRCULATIONAHA.121.055891](https://www.ahajournals.org/doi/pdf/10.1161/CIRCULATIONAHA.121.055891).
+10. 青少年心肌炎相关的 COVID-19 疫苗接种: [https://pediatrics.aappublications.org/content/pediatrics/early/2021/08/12/peds.2021-053427.full.pdf](https://pediatrics.aappublications.org/content/pediatrics/early/2021/08/12/peds.2021-053427.full.pdf)
+11. 接种针对 COVID-19 的 BNT162b2 疫苗后的急性心肌炎: [https://pubmed.ncbi.nlm.nih.gov/33994339/](https://pubmed.ncbi.nlm.nih.gov/33994339/)
+12. COVID-19 疫苗 Ad26.COV2.S 与急性心肌炎之间的时间关联：病例报告和文献: [https://www.sciencedirect.com/science/article/pii/S1553838921005789](https://www.sciencedirect.com/science/article/pii/S1553838921005789)
+13. COVID-19 疫苗诱发的心肌炎：一例文献复习报告: [https://www.sciencedirect.com/science/article/pii/S1871402121002253](https://www.sciencedirect.com/science/article/pii/S1871402121002253)
+14. COVID-19 疫苗与心肌炎之间的潜在关联：临床和 CMR 发现: [https://www.sciencedirect.com/science/article/pii/S1936878X2100485X](https://www.sciencedirect.com/science/article/pii/S1936878X2100485X)
+15. 男性青少年急性心肌炎复发与接受 2019 年冠状病毒 mRNA 疾病疫苗 (COVID-19) 相关: [https://www.sciencedirect.com/science/article/pii/S002234762100617X](https://www.sciencedirect.com/science/article/pii/S002234762100617X)
+16. 两名患者的暴发性心肌炎和全身性过度炎症与 BNT162b2 COVID-19 mRNA 疫苗接种在时间上相关: [https://www.sciencedirect.com/science/article/pii/S0167527321012286](https://www.sciencedirect.com/science/article/pii/S0167527321012286).
+17. 接种 BNT162b2 疫苗后的急性心肌炎: [https://www.sciencedirect.com/science/article/pii/S2214250921001530](https://www.sciencedirect.com/science/article/pii/S2214250921001530)
+18. 接种 COVID-19 Ad26.COV2.S 病毒载体后的淋巴组织细胞性心肌炎: [https://www.sciencedirect.com/science/article/pii/S2352906721001573](https://www.sciencedirect.com/science/article/pii/S2352906721001573)
+19. 健康男性接种 BNT162b2 后心肌炎: [https://www.sciencedirect.com/science/article/pii/S0735675721005362](https://www.sciencedirect.com/science/article/pii/S0735675721005362)
+20. 曾感染过 SARS-CoV-2 的健康男性接种 Comirnaty（辉瑞共同体）疫苗后的急性心肌炎: [https://www.sciencedirect.com/science/article/pii/S1930043321005549](https://www.sciencedirect.com/science/article/pii/S1930043321005549)
 
-美国副国务卿温迪‧舍曼（Wendy Sherman）2月10日在接受MSNBC采访时说，“这次演习时间点相当令人怀疑和震惊，我们非常担心普京总统可能做出错误的选择”。舍曼担心俄罗斯选择武力入侵，而不是外交方式解决乌克兰问题。
 
-此前，白宫为给乌克兰局势降温，美国及其盟友展开了大量外交活动，可是这场对峙并没有显示出任何缓和的迹象。
+您可以在此处[here](https://www.informedchoiceaustralia.com/post/1000-peer-reviewed-studies-questioning-covid-19-vaccine-safety)和下方查看和下载完整列表：
 
-此外，英国首相鲍里斯‧约翰逊2月10日会见北约防务联盟的负责人时也表示，未来几天可能是乌克兰危机中“最危险的时刻”。
+**新闻来源**：[thegatewaypundit.com][HERE’S THE LIST: 1,000 Different Studies Show Extensive Evidence of COVID-19 Vaccines Adverse Events](https://www.thegatewaypundit.com/2022/02/list-1000-different-studies-show-extensive-evidence-covid-19-vaccines-adverse-events/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=daily)
 
-参考链接：
-[https://www.epochtimes.com/b5/22/2/10/n13568880.htm](https://www.epochtimes.com/b5/22/2/10/n13568880.htm)
+* * *
 
-素材采编：子辰
-编辑：老孙
-发布：文曦
+***审核：文乐
+校对：花羽
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-3.jpeg)
 
  
 
