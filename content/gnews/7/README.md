@@ -2,24 +2,44 @@
 ---
 
 
-## 爆料革命——历史的今天12月24日
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1989444/)
+## 王岐山要上了美国撤离使馆的医疗专机,中共敢打下来吗？
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1989522/)
 
-**整理：Pride**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-11-171958.png)
-**2019年12月24日—**共产党高级将领家族，领导了1970年全国杀狗。原因是中国官场非常迷信命相、属相之学，就是中国的奇门遁甲、12生肖相生相克。在狗年，必须得灭狗；狗，冲毛主席的蛇。最后汪东兴下令全国杀狗，当时也缺粮食，还要奖励人吃狗肉。现在这次杀狗是他的一个下属在执行，他的两条狗也给焖死了。这是王岐山给习出的馊主意，狗年要灭鼠—狗掐老鼠多管闲事；鼠年对蛇不好，就开始灭狗了。
+G-TV视频链接：[https://gtv.org/video/id=62035198585ecc15d73f482e](https://gtv.org/video/id=62035198585ecc15d73f482e)
 
-**2020年12月24日—**今年的平安夜，是最不平安的。西方政府已经说，黑暗真是刚刚开始。但没有人敢说，黑暗是来自共产党。除了爆料革命敢说，共产党让所有人都不平安，世界没有人敢这么说。
+**郭文贵先生：**就这现在冬奥会要来了，是吧？这个王沪宁的秘书：常秘书，给人家美国人打电话，是吧？咱是哥们啊，咱见个面吧，干嘛都撤走啊是吧？你撤几个就算了吧。人家美国的人说我们买了很多家具还得搬走，开好几台大车。我还给你准备了几件家具呢。
 
-灭共，做一个在世界受尊重、体面的中国人，就要学香港。香港是中国人的圣城，不要忘了香港人付出的生命、鲜血、自由代价。美国最近对共产党一系列制裁，都是跟香港挂钩的。任何忘记香港的人，都不是战友和称职的中国人。
+所以就这种人，你想想王沪宁办公室的人，就公开行贿别人，就是low到极点，把国与国的关系弄到。你知道美国人，人家是玩死你中共。那几架你说的那几架那个医疗专机，能拉回多少人呢？那光拉人吗？
 
-**2021年12月24日—**共产党最恐惧我们的正道主义，把我们定为邪教、恐怖分子、骗子，更是第一天的事情。我们不制造仇恨，不恨任何人是正道主义的本质。HBO股东和我们追求相反，他们追求巨额财富的占有、掠夺，个人崇拜。控制媒体权力，虚假传播真相，让别人按它的思想来。
+我有告诉你，可不光拉美国人，很有可能也有中国人就上那飞机了，那王岐山要上那飞机来了，你能给他打下来吗？你敢打吗？你不敢打，王岐山的秘密材料能拉过来，你敢打吗？你也不敢打。
 
-1968年和1997年两次排华期间，大量共产党的报纸都在说：海外华人背叛祖国，到人家国家要守法。印尼攻击华人的小报，几乎都是华人拿钱支持。说“华人抢夺我们的财富、工作”，不诚实，代表共产党统治我们国家等很多说法。300万华人不当回事，最后50万被杀掉。然后美国主流媒体从不报道，CIA不让报道，好莱坞不允许拍的话题，世界上几乎没有人提起。再发生印尼排华事件，共产党会告诉国内人：这帮东西都是混蛋、邪教、暴徒。
+字幕来源：[2022年1月29日香草山农场年会直播全文字版](https://gnews.org/zh-hans/1938961/)
 
-西安事件是疫苗导致的结果，就是流血、吐血以及某些器官的急速衰竭。这些人死了以后，身体就是一个坑、一个包。就是打的mRNA，把整个身体都快吃掉。Omicron之后，共产党还会放毒。未来Omicron和疫苗死最多的是白人，我们要让西方人用生命、用鲜血、付出代价，看清楚共产党的本质。
+编辑整理：Jacques；
 
-GTV永远是王；G|CLUBS是通行证和新中国联邦最早期护照；G|FASHION是文化和尊严的桥梁；盖特是通往西方的桥梁；GNEWS是未来不分种族、文化和新中国联邦交流的精神、文化、信仰平台。搜索功能强大；是未来情报、信息交易市场；是世界精英最真实、可相信的，以个人为主的一个有智慧、良知，不同领域的人参与的一个大的平台。战友是这些平台的唯一所有投资者，未来一定是新中国联邦的核心力量。
+字幕文件制作：知津；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

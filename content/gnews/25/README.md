@@ -2,45 +2,50 @@
 ---
 
 
-## 中共国限制化肥出口导致美国食品成本飙升
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1989256/)
+## 川普的事业如何靠中共国金融家推出（1/2）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1989340/)
 
-作者：纽约香草山金融部—AT
+**翻译： Jenny Ball**
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip川普的事业如何靠中共国金融家推出1.png)美国前总统唐纳德特朗普于 2022 年 1 月 29 日在美国德克萨斯州康罗的一次集会上做手势。REUTERS/Go Nakamura/File Photo/File Photo
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-25.png)
+主题概括：
 
+ARC 提供了 200 万美元的资金来启动 SPAC
 
-据国家脉搏报道，自2021 年开始，中共国暂停了化肥出口。中共的理由是：要保证国内供应来养活快速增长的人口。许多中共国化肥公司已经表示至少在2022 年 6 月之前禁止磷酸盐出口。而6月正好是美国农作物的旺盛生长时期，中共这是故意为之吧。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/20220104-04.jpg)
-中共国的尿素氮肥和磷酸盐出口最大，中共的禁令快速推高了化肥价格。自2020 年 9 月以来，美国作物生产所需的所有主要营养素的肥料价格均上涨了 100% 以上，这可能会危及美国农场的长期生存能力，并进一步增加美国消费者的食品成本。 该禁令被密歇根农业商品部的农学副总裁描述为一场“贸易战”。
+ARC 招聘了将“数字世界”整合在一起的高管
 
-中共国上一次提高对美化肥供应价格是在举办奥运会的2008年。当时化肥价格上涨了 32% — 100%。这是中共在 2008 年全球金融危机前夕，给全世界经济进一步施加的压力。
+2 月 10 日（路透社）—— 一位曾被美国监管机构谴责，并被禁止将其公司上市的中共国金融家，在与前总统唐纳德·川普的新社交媒体合资企业合并的空壳公司中，发挥了比公众所知的更大的作用 ，路透社获悉。
 
-参考来源：
+关于金融家亚伯拉罕·辛塔（Abraham Cinta ），和他领导的上海投资银行 （ARC Group Ltd） 在空壳公司的监管文件中的参与，鲜有披露。 ARC 被列为“数字世界收购公司”（ Digital World Acquisition Corp ）的“财务顾问”，这家“特殊目的收购公司 ”(SPAC)， 在 10 月与川普新媒体平台签署了合并协议。 除了 ARC 可以帮助 SPAC 与政府和商界联系，以及获得“优质交易渠道”之外，文件中没有提供任何细节。
 
-[Fertilizer Price Spikes and Chinese Import Reliance Threatens US Agriculture Security.](https://thenationalpulse.com/2022/02/09/fertilizer-price-spikes-and-chinese-import-reliance-threatens-us-agriculture-security/)
+现在，一份概述空壳公司拟议条款的财务文件、ARC 与“数字世界”的一位创建者之间的协议，以及对五位熟悉情况的消息人士的采访的新信息（短信），表明辛塔和 ARC 不仅仅建议了“数字世界”，他们还提供资金来创建“数字世界”，并招募了一名高管来帮助组建公司。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-34.jpg)
+根据财务文件，以及辛塔与其他相关人员之间的短信，ARC 提出向三位商人提供至少 200 万美元，以组建“数字世界”，该 SPAC 继续与川普媒体和技术集团合并，辛塔对如何补偿 SPAC 的管理团队有发言权。
 
-编辑/校对/发稿：兰兰
+一位知情人士表示，ARC 最终成为“数字世界” 的 SPAC 进行了投资。 正如 ARC 最初讨论的那样，路透社无法确认这笔投资是否为 200 万美元。披露显示，“数字世界”管理实体或赞助商的初始投资者，总共投入了 1180 万美元。
 
-**更多资讯，更多关注**
+《华盛顿邮报》和彭博社此前报道称，ARC 持有“数字世界”赞助商的股份。 首次报道了 ARC 提供资金让 SPAC 启动的事实。
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+辛塔以及 ARC 和 “数字世界”的发言人没有回应置评请求。
 
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+路透社无法确定川普是否在创建或塑造“数字世界”方面发挥了任何作用，或者川普在其公司与 SPAC 签署协议时，对“数字世界”的支持者了解多少。川普媒体与技术集团发言人和川普发言人没有回应置评请求。
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+ARC 在交易中扮演的重要角色，对于财务顾问来说是非典型的，这是在“数字世界”描述ARC 的术语。顾问通常会就如何达成交易向 SPAC 提供建议，但通常不会为 SPAC 提供资金或参与确定其高级职位。然而，据路透社采访的两名资本市场律师和两名金融学教授表示，美国没有针对此类安排的规定，也没有要求披露这些安排。
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+有关 ARC 扮演的角色的细节，为这位前总统利润丰厚的“数字世界”交易背后的金融公司提供了新的线索。ARC的专长是用SPAC这种借壳上市的形式，将海外资金汇入华尔街的繁荣。 SPAC 是上市空壳公司，它们筹集现金以收购一家私人公司，并将其上市，从而使目标公司能够避开首次公开募股的更严格的监管检查。许多散户投资者助长的淘金热所进行的冒险赌注，经常是这种项目变质。
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+请在文章后半部分看川普总统的项目命运如何。
 
+**新闻来源**：[reuters.com][How a Trump deal got a boost from a China-based financier](https://www.reuters.com/business/how-china-based-dealmaker-got-shell-company-trumps-deal-off-ground-2022-02-10/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-26.png)
+* * *
 
-
+***素材：文戈
+审核：文乐
+校对：花羽
+发布：信心满满***
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

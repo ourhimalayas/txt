@@ -2,51 +2,42 @@
 ---
 
 
-## 感染20个月后对COVID的自然免疫力仍然很强
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1989288/)
+## 油管进军NFTs非同质化代币
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1989380/)
 
-**编译： Jenny Ball**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip感染20个月后对COVID的自然免疫力仍然很强.png)图片来源：newstarget.com
-一项研究发现，对武汉冠状病毒 (COVID-19) 的自然免疫力，在感染后 20 个月仍然存在。
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-据约翰霍斯普金斯大学器官移植流行病学研究小组的多里·塞格夫（ Dorry Segev ）博士领导的研究人员称，研究参与者曾对该病毒检测呈阳性，其中一些人在 20 个月前感染了这种疾病，他们现在99%仍有针对 SARS-CoV-2 刺突蛋白受体结合域 (RBD) 的抗体。
+翻译/编辑：小红帽
 
-研究人员在 2021 年秋季招募了未接种疫苗的健康成年人，并将他们分为三组：
-
-- 过去经检测证实感染 COVID-19 的人
-- 认为自己已从 COVID 中康复但未接受任何检测的人
-- 以及认为在任何特定时间都没有感染过新冠病毒或检测呈阳性的人
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/6-10.png)图片来源：雅典娜设计组(614)
 
 
-在第一组中，除两名参与者外，所有参与者的抗体检测呈阳性，没有迹象表明保护水平会随着时间的推移而减弱。在第二组中，大约 55% 的人抗 RBD 抗体检测呈阳性。 在第三组中，只有 11% 的参与者有抗体。
+根据《RT》新闻2月10日报道，油管（YouTube）首席产品官尼尔·莫汉（Neal Mohan）表示，将允许粉丝“拥有”创作者的视频。
 
-塞格夫说, 这项研究的主要收获是: 自然免疫力仍然强大而持久。
+油管详细阐述了使用新兴技术（通常被称为Web3）的计划，并在周四暗示他们可以减少快速增长的数字艺术市场中的欺诈行为，甚至允许粉丝“拥有”内容。
 
-南加州大学凯克医学院临床医学教授杰弗里·克劳斯纳(Jeffrey Klausner) 博士也表示，该研究证实，先前感染的人将具有可检测到的抗体，这些抗体可能会持续长达 20 个月。这应该让从 COVID 中恢复过来的人相信他们受到了保护，并应该促使官员停止强制接种疫苗，或对那些自然免疫的人给予例外。
+在一篇博客文章中，莫汉表示，Web3技术“为创作者开辟了新的机会”，并让他们与粉丝建立更深层次的关系。
 
-目前尚不清楚，抗 RBD 抗体是否能保护人们免受其他病毒变种的侵害。例如，自 12 月以来，Omicron 变体已成为美国最主要的菌株。研究表明，它甚至可以逃避疫苗。
+“为粉丝提供一种可验证的方式，让他们拥有来自他们最喜欢的创作者的独特视频、照片、艺术，甚至体验。这对于创作者和他们的观众来说可能是一个引人注目的前景。”
 
-自然免疫力优于疫苗接种
+油管还建议他们可以通过在其视频库中引入验证工具来使NFTs更安全。NFTs–非同质化代币是加密区块链资产，曾因版权盗窃和其他掠夺性行为而遭受重创。
 
-其他研究发现，自然免疫优于疫苗接种，其中一项得到CDC的支持。（相关：[为什么“自然免疫力”是该政权的政治问题](https://naturalnews.com/2021-10-03-natural-immunity-political-problem-for-the-regime.html)）
+目前尚不清楚油管在暗示粉丝可以“拥有”NFTs意味着什么。因为这些代币本身并不会将版权转让给所有者。
 
-一个人感染病毒后，免疫系统通常会保留它的记忆。当再次遇到病毒时，身体循环的免疫细胞和蛋白质可以识别并杀死病原体，从而保护身体免受疾病侵害，并降低疾病的严重程度。
+NFTs也有环境方面的缺点，因为在区块链上铸造一个项目所需的能量是巨大的。据估计，平均NFT的碳足迹相当于欧盟公民的平均每月碳排放量。
 
-免疫保护通常包括抗体（在血液中循环并识别外来物质以中和它们的蛋白质）、识别病原体的辅助 T 细胞、杀死病原体的杀伤性 T 细胞和在身体需要时产生新抗体的 B 细胞。
+油管的母公司–谷歌“旨在成为第一家无碳运营的大公司”。将NFTs纳入 油管的产品可能会损害这些目标。
 
-发现从 COVID-19 中康复的人，具有所有这四种成分。 塞格夫补充说，他和其他科学家现在正在研究 Omicron 如何影响自然免疫。
+新闻链接：[YouTube to expand into NFTs](https://www.rt.com/news/548959-nft-youtube-metaverse-fans/)
 
-**新闻来源**：[newstarget.com][Study: Natural immunity to COVID remains strong at 20 months post-infection](https://www.newstarget.com/2022-02-09-natural-immunity-20-months-after-covid-infection.html)
+发布：tianzhihuan
 
-* * *
-
-***审核：文乐
-校对：花羽
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-3.jpeg)
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
