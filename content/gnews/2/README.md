@@ -2,11 +2,11 @@
 ---
 
 
-## 日本东京樱花团 中文新闻播报第五期
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1990445/)
+## 日本东京樱花团 中文新闻播报第六期
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1990483/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/PHOTO-2022-02-11-16-15-25-1.jpg)
-**播报：东京樱花团-和光同尘/爆米花/NAN的曙光**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/PHOTO-2022-02-11-16-16-29.jpg)
+**播报：东京樱花团-理想国/嫣嫣123**
 
 **发布： 东京樱花团-eiei**
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/樱花-3-2.jpg)
