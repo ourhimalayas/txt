@@ -2,33 +2,30 @@
 ---
 
 
-## 有声|女子短道速滑竞赛，中共选手恶意绊倒加拿大竞争对手
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1990680/)
+## CCP病毒疫苗加强针在澳大利亚或将成为“标配”
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1990891/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-当地时间2月7日，冬奥会女子500米短道速滑四分之一决赛中，第一小组中共代表队成员范可新，在比赛过程中利用场地内黑色滑道标识，恶意放倒在前方的加拿大选手。参赛选手作出影响比赛的干扰动作，裁判并未做出判罚。从原视频慢动作中可以清晰地看到，范可新先将黑色标识稍微向后移动后，立即用力向前一推，标识碰到前面加拿大选手的冰刀，造成该选手倒地。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-20.jpg)
-中共选手的行为引起日本网友热议，该视频也在日本网坛广为流传，一位名为883的推特用户揶揄道：能在这种姿势下投出这个东西，运动员平时一定没少训练。分析人士指出，这种危险行为，不仅不能体现中共所谓的奥林匹克精神，反而体现出中共的肮脏和龌龊，预示着中共在本次冬奥会中，向世界展现出来的丑态才刚开始。
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/02/010901.jpg)网络图片
+根据澳大利亚疫苗专家的最新建议，16 岁及以上的澳大利亚人在接种第二剂CCP病毒疫苗六个月后若未接种加强针，将被视为“逾期”。
 
-文字版原文：[女子短道速滑竞赛，中共选手恶意绊倒加拿大竞争对手](https://gnews.org/zh-hans/1981446/)
+联邦政府表示，这一来自澳大利亚免疫咨询小组的提案目前已被接受，并提交给国家内阁。不过这一变化将不适用于那些抵达边境的国际入境者。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+联邦卫生部长格雷格·亨特（Greg Hunt）表示，根据澳大利亚免疫技术咨询小组（ATAGI）的新建议，澳大利亚人在接受了针对其年龄组的所有推荐疫苗剂量后，才会被认为是“及时接种者”。因此对于16岁以上人群来讲，完成第三针加强注射便成为了基本的“标配”。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+这一建议更为狡诈的地方在于，如果以后澳大利亚开始进行第四针甚至第五针CCP病毒疫苗的推广，那么注射三针的居民如果不继续往自己身上扎眼，那么他们的接种状态也会“过期”。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+就目前情况而言，这一建议的采纳意味着16岁以上人群需要在完成第二剂CCP病毒疫苗注射三个月后接种加强针。接种疫苗的人群未来也将进一步被划分成两个等级，即“逾期者”和“及时接种者”。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+不过这一政策目前仅仅针对澳大利亚境内居民，任何国际旅行者在接种两剂CCP病毒疫苗后方可入境。但部分州目前或许正在谋求将要求提升至三针。
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+目前澳大利亚16岁以上人群大约有93.9%接种了CCP病毒疫苗，而接种CCP病毒疫苗加强针的比例已经达到了46.3%。
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+新闻参考链接：[Australians need COVID-19 booster after six months or considered ‘overdue’ by ATAGI](https://www.9news.com.au/national/coronavirus-australia-updates-debate-over-triple-vaccine-mandate-for-tourists/fc5a4840-8953-420b-b3c8-2fa6bec5b9fa)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
+
+
 
  
 

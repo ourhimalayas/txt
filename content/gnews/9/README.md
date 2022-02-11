@@ -2,34 +2,34 @@
 ---
 
 
-## 美立法者继续商议监管加密货币稳定币措施
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1990694/)
+## 日美澳印四国在澳大利亚举行外长会议
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1990906/)
 
-作者：银河系农场—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月8日，据当地媒体报道，美国众议院当天就联邦政府是否应该迫使加密货币稳定币的发行人严格遵守联邦银行的法规和保险进行了辩论。众议院表示，此举将有利于监管未来因加密货币市场快速增长而引起的相关风险。
+翻译：文舞两道
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3-32.png)图片来源：[https://www3.nhk.or.jp](https://www3.nhk.or.jp)
+**摘要：**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide12-2.jpeg)
+将深化在包括基础设施建设、海上安全、人道主义援助和网络等广泛领域的合作，以实现一个 “自由和开放的印度洋-太平洋”。
 
-报道提及，拜登政府此前建议美国监管与固定价值挂钩的加密货币，即稳定币。政府人员认为，加密货币稳定币旨在成为动荡的加密货币市场中的避风港，同时其将在数字货币和传统商业之间架设桥梁。因此，加密货币稳定币可以作为更便宜、更方便的支付方式用于国际交易。
+日本NHK2022年2月11日消息，日本、美国、澳大利亚和印度四国于11日在澳大利亚墨尔本举行外长会议。出席会议的有日本外长林芳正、美国国务卿布林肯、澳大利亚外长佩恩和印度外长贾山卡尔。
 
-数据显示，目前全球流通的加密货币稳定币的价值约为一千八百亿美元，其中，美国约有四分之一的民众参与投资了加密货币，而这一数据已经给财政监管机构造成了巨大的压力。联邦政府提出，眼下对于加密货币稳定币的监管方向主要集中在发行人的资产储备风险管理上。为此，联邦法律应该为稳定币发行人提供明确的标准，用以确保消费者有一个更安全、广泛和稳定的数字金融体系。
+鉴于中共国等国家越来越多地以霸权主义方式行事，外长们在共同应对东海和南海海洋秩序面临的挑战上达成了一致。确认了将深化在包括基础设施建设、海上安全、人道主义援助和网络等广泛领域的合作，以实现一个 “自由和开放的印度洋-太平洋”。还确认了共同合作抗击中共病毒，并就乌克兰局势交换了意见。此外会议还决定将于今年上半年在日本举行峰会，并将加快协调具体日期。
 
-参考链接： [Lawmakers clash over how to regulate ‘stablecoins’](https://thehill.com/policy/finance/trade/593369-lawmakers-clash-over-how-to-regulate-stablecoins)
+中共国外交部发言人赵立坚在当天的新闻发布会上指责四国会议说，”这是对国际团结与合作的破坏”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+信息来源：[https://www3.nhk.or.jp/news/html/20220211/k10013479931000.html?utm\_int=news\_contents\_news-main\_002](https://www3.nhk.or.jp/news/html/20220211/k10013479931000.html?utm_int=news_contents_news-main_002)
 
-总编：文特
-编辑：静言
-校正/发稿：谐趣园
+编辑：LILY
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+发布：面包飞上天
+
+20220211
+
+
+
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3-4.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

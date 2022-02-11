@@ -2,8 +2,8 @@
 ---
 
 
-## 中共一切都是假跟骗
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1990994/)
+## PAG案子一定要找到真相
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1991063/)
 
 台灣寶島農場
 

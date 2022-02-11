@@ -2,41 +2,34 @@
 ---
 
 
-## 美众议院提案制裁数千名中共高官
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1990449/)
+## 有声|美前国务卿彭佩奥称：中共没有权利享有奥运荣耀
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1990593/)
 
-作者：纽约香草山 – 侠肝义胆
+配音：香草山佛教部 – 李傻
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美媒独家获悉，美国众议院高层保守派提出了一项立法提案，正式制裁数以千计的中共官员，包括中共独裁者习近平及其整个家族。
+2月8日，美国前国务卿彭佩奥在接受福克斯采访时明确表示，美国不应当选择参加犯下种族灭绝罪的政权所举办的奥运会，中共政府无权享有奥运会的荣耀。习近平想利用冬奥会对世界宣传中共国事美好的假象，并掩盖中共对新疆等犯下的种族灭绝和反人类罪行为。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-21.jpg)
+此外，彭佩奥进一步指出，共产党通过强迫运动员使用一次性手机，通过此手段搜集相关信息。且中共还秘密搜集运动员的DNA信息，储存在中共国或者军方的数据库中。因此，他呼吁应抵制北京冬奥，在毫无人权的中共国举办体现奥林匹克精神的冬奥会，实在讽刺。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-118.png)
+文字版原文：[美前国务卿彭佩奥称：中共没有权利享有奥运荣耀](https://gnews.org/zh-hans/1981447/)
 
-众议员麦克莱恩的法案名为 “制止中共法案”，将对中共官员进行削弱性制裁，包括阻止他们获得美国旅行签证，并进行金融制裁，阻止他们使用或获得某些资产。该法案将制裁中共 最高政府立法机构”全国人大”的每个成员。
-
-根据这项提案，除了习近平本人会受到制裁外，他的直系亲属也会受到制裁。
-
-该法案还将禁止数千名中共高官及其家属进入美国。他们也将被正式禁止进入美国的金融系统，这样就能阻止中共官员利用家属转移财产逃避制裁。
-
-该媒体称，中共高层领导人对此法案非常恐惧，会竭尽所能游说美国国会阻止法案通过。但如果共和党人在今年中期选举中如愿夺回众议院的多数席位，那么明年在共和党控制的众议院中，民主党也将别无选择支持该法案，届时法案将获两党共同支持顺利通过。
-
-有关人士对此评论，该法案的提出意味着消灭中共也是美国利益的需要，以美灭共也将进入决战阶段，美国两党共同灭共的历史时刻即将到来。
-
-参考链接：
-
-- [Breitbart News 2月9日报道：【独家 – 众议院保守派提出对数千名中共官员的制裁提案】](https://gettr.com/post/ptnfa0e5ff)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
-
-编辑/校对/发稿：海阔天空1
-
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

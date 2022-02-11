@@ -2,38 +2,26 @@
 ---
 
 
-## 郭先生爆料冬奥开幕式再打脸中共之前宣传
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1990446/)
+## 2022.2.11大直播 冬奥会谷爱玲事件给全球华人敲响警钟
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1990518/)
 
-作者：日本方舟农场 – Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在2月9日《文贵大直播》中，郭先生提到，原本在中共外交部已公布的出席名单中的沙特王储穆罕默德，并没有出席中共冬奥会开幕式，直接打脸中共。这是除了普京将北京之行的48小时缩短至9小时，并在冬奥会开幕式之后就恼火离京之外，又一位在开幕式事件上让中共信誉受损的外国领导人。而中共官宣自己也不得不在其对外记者会上，自打圆场称“沙特王储之所以没有出席是因为临时改变了行程”。
+撰稿：大浪小水花
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/4-24.png)
-
-未能给中共面子的还有巴布亚新几内亚总理，其抵京后就被确诊感染了中共病毒，跟李克强视频会晤后，没有参加中共冬奥会开幕式就回国了。打脸中共冬奥开幕式的十几个国家领导人中，还包含中共自称与其最亲密的安哥拉桑巴斯总统，以及伊朗、土耳其，还有王毅亲自去请人的塞浦路斯等。
-
-郭先生还透露，普京回到俄罗斯之后，立刻会见了法国总理马克龙，表达了俄罗斯要再次回到欧洲、回到白人世界，不再跟中共狼狈为奸。
-
-参考链接：
-
-- [2022年2月9日 文贵大直播：UBS正式立案 打响沼泽地的第一仗；习普政治困局；中美俄三角斗；药厂政策调整；药厂政府互掐；何为全球货币；七哥个人生活](https://gtv.org/video/id=6203b7b13621aa7415d80e9e)
-- [沙特王储穆罕默德为何未出席北京冬奥会开幕式？外交部回应](https://news.sina.com.cn/c/2022-02-08/doc-ikyakumy4833608.shtml)
-- [中方回应巴布亚新几内亚总理抵京后核酸检测呈阳性](https://news.sina.com.cn/o/2022-02-07/doc-ikyamrmz9481298.shtml)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-11-at-9.30.44-PM.jpeg)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+郭文贵先生在2022年2月11日大直播中特别提到了谷爱凌事件。
 
-编辑：Delilah小胖
-校对/发稿：海阔天空1
+郭先生谈到，谷爱凌把一个养她长大的美国玩弄于股掌之中，把美国人当傻子，一边讨好中共，一边骂美国黑美国，这种做法所有有民主制度的国家都会反对。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭先生指出谷爱凌这幅嘴脸和小聪明，这种不懂得感恩、无法无天，完全造假，公然撒谎、支持BLM，是完全的利己主义，投机主义，她让全世界看清了共产党洗脑统治下的中国人没有信仰、虚伪、自私、卑鄙。
+
+郭先生强调，谷爱凌母女一定会付出巨大的代价，谷爱凌她今天的赢绝对是她灾难的开始。她现在给中国人拉的仇恨，她祖宗万辈都无法赎罪。她不仅引起了日韩跟华人的对立，还引起了全世界的华人、亚裔人跟西方世界对立。
+
+郭先生提醒海外战友，现在整个西方世界正在暗藏着一股势力，就是反华、反亚裔。谷爱凌在冬奥会的所作所为引起全球的不满和愤怒，是对海外华人的巨大伤害，是对孩子的巨大威胁，是华人一生的侮辱，谷爱凌母女给全世界华人敲响了警钟。
+
+参考链接：[2022.2.11文贵大直播](https://gtv.org/broadcast/watch/62065c00a1fe5e57a426b9e2)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
