@@ -2,41 +2,31 @@
 ---
 
 
-## 美国推迟制定国家安全战略
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1989958/)
+## 沼泽地战役正式打响 新中国联邦还富于民
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1990217/)
 
-作者：香草山健身部-正道新闻
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-2月11日，据《国际文传电讯社》援引《Politico》报道，乌克兰周边的局势正在推迟美国编制新的国家安全战略。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-2.png)
+2月9日大直播中，郭文贵先生在直播中兴奋地宣布，历经中共7年的阻挠，UBS案终于在伦敦法院成功立案。这标志着，新中国联邦与沼泽地的第一场战役正式打响。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1121.png)
+自中共建政，UBS是首个被批准的、持有独立金融牌照的海外银行。郭先生爆料，瑞银UBS的存款和黑账超过100万亿美元，相当于人类过去500年的财富。
 
-报道指出，该文件的内容主要取决于俄罗斯是否“入侵”乌克兰。
+郭先生表示即将启程前往伦敦，与沼泽地和黑暗势力对簿公堂，找到中共藏匿海外的50万亿美元，切断中共妄图东山再起的钱财，还财富于中国人民。中国人不仅将免除所有的房贷和信用卡欠款，还将享受免费的教育、医疗和丧葬政策。
 
-一位知情人士向该报证实，俄罗斯“对乌克兰的计划不明确”是影响该战略时机的因素之一。
+视频链接：[2/9/2022 文贵直播](https://gettr.com/post/ptmi7v3e45)
 
-正如该报所指出的，俄罗斯可能“入侵”乌克兰的具体细节可能会极大地影响美国在战略文件中对俄罗斯威胁的细节和优先次序。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-同时，该文件强调，总体而言，美国总统拜登及其助手不太可能改变他们的基本主张，即中（共）国而不是俄罗斯是对华盛顿更大的长期威胁。
+编辑：雪梨
 
-法律要求美国总统每年提交一份国家安全战略，但各届政府往往未能遵守这一要求。
+校正/发稿：浪迹天涯
 
-例如，拜登政府去年没有提交国家安全战略。现在预计该文件将在今年第一季度出台。
-
-一位高级官员告诉该出版物，政府打算满足“预期发布日期”。然而，他没有说明他指的是哪一天。
-
-PS：拜登政府并未改变中（共）国是美国最大的长期威胁。尤其是经过这次中共的冬奥会之后，越来越多的国家将认清楚中共的威胁。[https://www.interfax.ru/world/821425](https://www.interfax.ru/world/821425)
-
-校对/发稿：菩提树
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2月-1.jpg)
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
