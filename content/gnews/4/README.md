@@ -2,31 +2,32 @@
 ---
 
 
-## 七哥谈水虎年对每个人的挑战（2022-02-06摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1991230/)
+## 西班牙放宽了无法获得疫苗国家的12至17岁未成年人进入西班牙的要求
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1991280/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+编译：七龙珠
 
-来源：郭先生2022-02-06直播09：20：24摘录
+![](https://assets.gnews.org/wp-content/uploads/2022/02/vacaciones-covid-19.jpeg)图片来源：20minutos.es
 
-最后一条看到就是加拿大的“土豆”、大卡车事件等，还有全世界的农民抗议事件，这七哥在一年前、16个月以前都说过。疫苗次生灾难、疫苗造成的政治危机、军事危机、技术危机、贸易危机、经济金融危机会席卷全球，而且是从今年的5月份开始。记住：七哥是从2020年初、1、2月份就说过！我不是神仙我不能预测，就是我知道共产党的计划和计划的具体的细节，和基本的掌握的情报，这是我得出的结果。所以说战友们，大家看到美国经济这样的时候，你们要想一想，我们未来到底该怎么面对这个2022年水虎年，这个郝海东兄弟启动的水年，今年就是水虎年，上来就流水，水虎年对每个人的挑战。你问问小新她在没有得病毒之前和得了病毒以后的感受是啥样的。
+西班牙政府对来自欧盟或申根地区以外国家的12岁以上和18岁以下的人进入西班牙的健康要求进行了调整，因为这个年龄段的人接种SARS-CoV-2疫苗有困难或尚不可能。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+正如卫生部在一份新闻稿中所报告的，并在国家官方公报（BOE）中公布的，从2月14日零时起，来自欧盟或申根地区以外国家的12至17岁的旅行者，如果没有有效的疫苗接种证书，可以出示在抵达西班牙前72小时进行的SARS-CoV-2 NAAT分子核酸扩增试验（RT-PCR或类似）的阴性报告。
 
-**关注我们**
+同样，12岁以下的未成年人，与成年人一起旅行，不需要遵守任何类型的健康要求，就像现在一样。
 
-Discord 账号
+这项由内政部长费尔南多-格兰德-马拉斯卡（Fernando Grande-Marlaska）签署的命令还涉及外交部、欧盟和合作部、工业、贸易和旅游部以及卫生部。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+具体来说，7月17日的INT/657/2020号命令第1.1条中的字母“K”的措辞已经被修改。此外，这项措施符合理事会6月30日第2020/912号建议，该建议规定了一套豁免于这些限制的特定类别的人员，并已多次修订以适应流行病学情况。
 
-Gettr 账号
+**参考资料：**[20minutos][El Gobierno flexibiliza los requisitos para entrar en España para los menores de 12 a 17 años de países sin acceso vacunal](https://www.20minutos.es/noticia/4955228/0/el-gobierno-flexibiliza-los-requisitos-para-entrar-en-espana-para-los-menores-de-12-a-17-anos-de-paises-sin-acceso-vacunal/)
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+* * *
+
+*审核：Aries的星
+校对：小东
+发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-3.jpeg)
 
  
 

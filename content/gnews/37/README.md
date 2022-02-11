@@ -2,34 +2,26 @@
 ---
 
 
-## 芬太尼原料来自中共国，中共明知故犯
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1990347/)
+## 2022.2.11大直播 冬奥会谷爱玲事件给全球华人敲响警钟
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1990518/)
 
-撰稿：首尔天池农场-zzballack
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-2.png)
+撰稿：大浪小水花
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1123.png)
-米尔格拉姆进一步表示，中共国现在的化学行业几乎不受监管，这些化学品每天被运往墨西哥，及其他拉丁美洲国家。解决芬太尼危机的关键，就是阻止这些化学品不能进入墨西哥。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-11-at-9.30.44-PM.jpeg)
 
-郭先生在2019年8月的爆料中警告世界，中共利用芬太尼搞乱、搞弱、搞死美国，是中共3F美国计划的核心战术之一。美国终于认识到，中共就是芬太尼事件的真正凶手。
 
-链接：https://www.breitbart.com/clips/2022/02/08/dea-administrator-china-knows-its-chemicals-are-used-to-make-fentanyl-it-needs-to-do-more/
+郭文贵先生在2022年2月11日大直播中特别提到了谷爱凌事件。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+郭先生谈到，谷爱凌把一个养她长大的美国玩弄于股掌之中，把美国人当傻子，一边讨好中共，一边骂美国黑美国，这种做法所有有民主制度的国家都会反对。
 
-总编：文特
+郭先生指出谷爱凌这幅嘴脸和小聪明，这种不懂得感恩、无法无天，完全造假，公然撒谎、支持BLM，是完全的利己主义，投机主义，她让全世界看清了共产党洗脑统治下的中国人没有信仰、虚伪、自私、卑鄙。
 
-编辑：静言
+郭先生强调，谷爱凌母女一定会付出巨大的代价，谷爱凌她今天的赢绝对是她灾难的开始。她现在给中国人拉的仇恨，她祖宗万辈都无法赎罪。她不仅引起了日韩跟华人的对立，还引起了全世界的华人、亚裔人跟西方世界对立。
 
-校正/发稿：浪迹天涯
+郭先生提醒海外战友，现在整个西方世界正在暗藏着一股势力，就是反华、反亚裔。谷爱凌在冬奥会的所作所为引起全球的不满和愤怒，是对海外华人的巨大伤害，是对孩子的巨大威胁，是华人一生的侮辱，谷爱凌母女给全世界华人敲响了警钟。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-2.png)
+参考链接：[2022.2.11文贵大直播](https://gtv.org/broadcast/watch/62065c00a1fe5e57a426b9e2)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

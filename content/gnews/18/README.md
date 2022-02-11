@@ -2,35 +2,60 @@
 ---
 
 
-## 美联储将毫不犹豫地通过加息缩表来遏制通货膨胀（二）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1991130/)
+## [戈壁创投]渗透以色列军工企业 助力中共养肥自家
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/1991155/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3-34.png)
-2月10日（美国当地时间）周四，美国劳工部劳工统计局发布1月CPI数据，其中名义CPI同比上涨7.5%，继续创下1982年2月以来新高，也大幅超过市场此前7.2-7.3%的预期。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1140.png)
-[图片来源](https://tradingeconomics.com/)
+加拿大温哥华扬帆农场： 薇文vivien
 
-周四的数据也意味着美国消费者已经连续第八个月忍受超过5%的通胀，体现在房租、食品、能源电力等生活的方方面面。即便是除去食品和能源的核心CPI，1月同样走高6%。名义与核心CPI的环比涨幅均达到0.6%。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/a-12-edited.png)图片来源：Ituran
 
-从官方公布的数据分项来看，燃油价格环比涨幅达到9.5%，同比涨幅达到惊人的46.5%。能源整体支出环比增加0.9%，近12个月涨幅也达到27%；食品价格在一月亦环比走高0.9%。在核心CPI的分项中，一直推动通胀飙升的二手车价格也在一月环比提升1.5%；占CPI三分之一比重的住所支出一月环比提高0.3%，但这已经是去年八月以来的最低涨幅。
 
-笔者早就对美国必然发生恶性通货膨胀做出了研判。我的判断依据是什么呢？是因为美国的量化宽松印发了天量的货币，必然使的美国通货膨胀飙升！笔者在1月17日Gnews发表的《美联储的加息缩表对中共意味着什么？》和1月26日Gnews发表《美联储将毫不犹豫地通过加息缩表来遏制通货膨胀》中就做出了判断：随着美国的通货膨胀不断的恶化，我觉的美联储今年的加息次数不会少于4次，将会至少6次以上，甚至更高！
+以色列以其强大的总体经济实力、位居世界前列的竞争力，一直被中共视为“一带一路”沿线热点投资的国家。
 
-美国CPI已经连续第八个月忍受超过5%的通胀，笔者更加坚信自己的判断，认为通胀压力上升将迫使美联储加快加息步伐，美联储在下个月召开货币政策会议前，美联储官员面临的问题将不再是加不加息的问题，而是一次加息是多少个基点的问题？
+以色列“依图兰定位与控制有限公司” (Ituran Location and Control Ltd. 以下简称“依图兰” )，其前身是军工企业，为以色列军方研发、制造军用电子通信系统和无人驾驶飞机通信等高端产品。目前提供被盗车辆追回、跟踪服务和销售GPS通信产品，是美国、巴西等国的市场领导者。在纳斯达克交易，股票被投资研究机构评为“购买”，潜力巨大。
 
-根据美国CPI数据，笔者认为美联储将在3月的联储会议上宣布一次加息50个基点，后期随着CPI的升高美联储将毫不犹豫地一次加息更多个基点！笔者不是危言耸听，哗众取宠！请不要低估美联储对于通货膨胀的容忍，任何低估美联储对通货膨胀的容忍都将会被这次金融海啸无情的摧毁！
+中共一份 《以色列军民融合发展经验及其对我国的启示》 内参里 , “依图兰”被列为以色列航空和电子工业重点领域的军工企业，成为中共间谍企业渗透的重点目标。以色列的高科技企业投资以及技术合作法规，给予本国高科技企业在国外融资等的特许权，觊觎已久的中共资本纷纷涌入。PAG太盟集团单伟建的儿子单博的“戈壁创投” (Gobi Capital LLC )，最早瞄准了这家拥有先进军事技术的以色列高科技企业。
 
-现在，中共国货币超发严重，房地产的泡沫与债务危机形成了一个巨大的堰塞湖！一旦美联储鹰派加息，资金快速回流美国，对中共人民币构成可怕釜底抽薪的效果！对地基建立在沙滩上的中共国，将被自己头上的巨大的“堰塞湖”瞬间摧毁！！在这场血雨腥风的脆断到来之前赶紧加入新中国联邦，加入G系列，相信只有新中国联邦才是你的诺亚方舟……
+**一、单博以个人和公司的名义收购**
 
-附： 美联邦储备委员会主席沃尔克
+2019年，“戈壁创投” 收购 “依图兰” 145.6万股，成为占股6.2%的大股东之一。此外，单博以个人名义收购145.6万股成为6.2%的实益拥有人。为掩人耳目，“戈壁创投” 收购的股份被分散到四家单博控制的离岸公司： 戈壁大师基金 ( Gobi Master Fund, Ltd. 开曼 )、 戈壁专注大师基金 ( Gobi Concentrated Master Fund, Ltd. 维京群岛)、 德鲁伊投资合伙人 ( Druid Investment Partners LP 特拉华) 和 资本展望投资公司 (  Kapitalforeningen Investin Pro 丹麦 )，但实益拥有人最终还是单博。
 
-1979年8月6日－1987年8月11日
+可能因顾忌信息被公开, “戈壁创投”在当年减少股份到113.8万股，以避免出现在2019年的大股东名单中。  2022年SEC最新报告中， “戈壁创投” 又赫然成为“依图兰”第5大股东，占股 5.465% 。单博个人占股2020年为5.47%。
 
-保罗·沃尔克在1979年担任了美联储主席，1980年，美国的CPI高达17%，保罗·沃尔克认为美联储的首要任务是控制通货膨胀而不是刺激经济，他果断地将利率一口气提升到20%以上，他结束了美国的通货膨胀！美联储高额的利率使美元大幅升值，直接导致拉美国家爆发了主权债务危机！
+二，福建阳光集团间接成为第二大股东
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+除了单博和他的公司外，还有一家被中共控制的大名鼎鼎的以色列公司–“凤凰控股”( Phoenix Holdings Ltd. )，2020年以持股7%，首次成为“依图兰”的大股东之一，2022年2月以8.6%跃升到第二大股东。
+
+“凤凰控股”是以色列第五大保险公司 “凤凰保险” (Phoenix Insurance Company Ltd.)和 “卓越集团”（以色列最大的养老金资产管理公司之一）的全资母公司，还间接持有以色列最大的农业用地所有者之一、“Mehadrin Ltd.“ 41.42%的股权。
+
+2016年，上海的“复星国际”收购“凤凰控股”几乎成功，但当时正值中共内部各派系残酷地角力，渐渐失去靠山的“复星国际”功亏一篑，而如日中天的另一派系“福建阳光”最终以 19.48 亿NIS ( 约合 $5.26亿美元  ) 收购“凤凰控股” 52.3% 的股权成为控股方。这是中共国在以色列最重要的一笔买单。
+
+**结语**
+
+在短短十年间，因以色列法规对同时拥有金融和非金融公司进行限制，迫使高科技企业向中共敞开大门。中共各家族、各派系兜里揣满中国百姓的钱攻城掠地，无所忌惮地偷取技术，养肥了一大帮盗国贼家族，不仅助力中共军队提升实力武力威胁全球，更让中共豢养的特务如单伟建、单博父子，在海外获得充裕资金渗透到各国政界、军方、司法和执法机构，侵蠹和动摇自由民主国家的立国根基。
+
+参考资料：
+
+1、[Ituran Location & Control Ltd. Statement of acquisition of beneficial ownership by individuals (2020-02-14)](https://sec.report/Document/0001698060-20-000003/)
+
+2、[ANNUAL REPORT PURSUANT TO SECTION 13 For the fiscal year ended December 31, 2020.](https://www.sec.gov/Archives/edgar/data/1337117/000117891321001432/itrn20f1220.htm)
+
+3、[以色列军民融合发展经验及其对我国的启示](https://www.secrss.com/articles/25635) (2020.09)
+
+4、[Ituran Location and Control Ltd.(The Phoenix Holdings Ltd.  2021.12.31)](https://www.sec.gov/Archives/edgar/data/0001337117/000117891322000383/zk2227192.htm)
+
+5、[FBC advised Fujian Yango Group. Co., Ltd. with respect to its NIS 1.948B acquisition of the controlling stake in The Phoenix Holdings Ltd.](https://www.fbclawyers.com/news/fbc-advised-fujian-yango-group-co-ltd-respect-nis-1-948b-acquisition-controlling-stake-phoenix-holdings-ltd/)
+
+6、[Phoenix Holdings Ltd. increases ownership in ITRN / Ituran Location and Control Ltd. (US)](https://fintel.io/news/phoenix-holdings-ltd-increases-ownership-in-itrn-ituran-location-and-control-ltd-us-0.955281100688091)
+
+* * *
+
+编辑发稿：硫酸羟氯喹64
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/b-2-edited.png)图片来源：
+截屏自：Weijian Shan’s Talk on his story of China and Americ
+
+
 
 
  
