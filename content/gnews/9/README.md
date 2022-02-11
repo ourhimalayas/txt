@@ -2,40 +2,46 @@
 ---
 
 
-## 美欧商界领袖敦促日本结束有关新冠病毒的入境禁令
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1987815/)
+## 香草山战友在长岛哥带领下完成最重要投资50%的工作
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1987910/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1080.png)2022年2月9日，美国和欧洲组织的商界和教育界领袖在东京举行的新闻发布会上。（图片由日本外国特派员协会提供）
-《共同通讯社》Kyodo News 2月9日报道，周三，来自美国和欧洲机构团体的商界和教育界领袖，敦促日本政府结束对非居民商务访问者和学者的新冠病毒的入境禁令，警告说，该禁令不仅损害了日本的经济，而且有可能导致未来人才的流失。
+G-TV视频链接：[https://gtv.org/video/id=62034f3c585ecc15d73f476a](https://gtv.org/video/id=62034f3c585ecc15d73f476a)
 
-“入境禁令确实增加了经济和人力成本…… 并阻碍了振兴日本经济的努力。” 驻日本美国商会(American Chamber of Commerce in Japan)顾问克里斯托弗·拉弗勒尔(Christopher LaFleur)在出席日本外国特派员协会(Foreign Correspondents’ Club of Japan)的远程新闻发布会时表示。他说，虽然日本的目标是吸引更多的外国投资者，但此禁令将“对他们的投资决策产生负面影响”，并敦促日本采取以科学为基础的政策，允许接种疫苗的商务旅客和学者入境。
+**郭文贵先生：**那么，今天我们说香草山咱们跟这啥关系，知道吗？兄弟姐妹们？你们没有意识到，香草山咱们的战友当中的对账的，包括前期G-TV投资，和新G-TV和老G-TV投资款，还有咱们香草山所有做的这些投资之中，我可以告诉你们，全球农场是第一大，它垄断了60%。
 
-由于高度传染性的新冠病毒的变种奥密克戎（Omicron）的传播，日本自11月30日起原则上禁止外国人入境。
+如果你们要想到，今天香草山做的这些工作的时候，兄弟姐妹们，每个农场都有自己的价值和贡献。都叫农场，但是农场真的不同。咱把过去和九指妖、VOG比，对战友造成的危险和祸害，那已经是。现在就九指妖和共产党的勾兑到了什么程度？你们能看出来，来明的了，来明的了，害战友、编假案。现在编假案的事情她会更惨。九指妖要进不了监狱，七哥承担一切后果。她百分之百进监狱，进三回都不拉倒。
 
-当天早些时候与日本首相岸田文雄会面的驻日欧洲商业委员会主席迈克尔·莫罗切克（Michael Mroczek）说：“政府意识到旅行限制会造成麻烦，对经济产生负面影响。”但他也表示，似乎“在本月底之前不会有任何变化”，并补充说，“让我们保持希望，从3月1日起，在旅行限制方面将会有一些变化。
+但是我们今天拿她和香草山比的时候，就是咱要知道香草山好的，香草山的好处。咱要拿长岛哥、VOG跟九指妖比的时候，就是咱们就更新换代太快了，直接从过去的，是吧，拼凑版的拖拉机，直接升级版劳斯莱斯SUV，是吧？而且是实用，而且物美价廉。那么，我们香草山战友在长岛哥的带领下完成了最重要的投资的50%的工作，和甚至更多。
 
-天普大学(Temple University)日本校区院长兼校长马修·威尔逊(Matthew J. Wilson)谈到了这一禁令对外国学生的影响，称入境禁令正在将国际学者转向韩国、澳大利亚和台湾等其它地方。
+我们今天给香草山过新年的时候，真的是七哥要给你们说，发自内心的感谢！七哥今年2022首脱献给你们，这个是非常值得、非常愿意、非常愿意，再次对香草山一切的付出，和长岛哥所有的受到的委屈，所有的误解表示衷心的感谢！一切随着虎年的到来，都让它过去吧！希望香草山能创造明年更多的辉煌，爱你们！谢谢你们！
 
-简评：
+字幕来源：[2022年1月29日香草山农场年会直播全文字版](https://gnews.org/zh-hans/1938961/)
 
-虽然从去年11月起，日本为了预防高传染性的奥密克戎变种病毒的传播，就实施了入境禁令，但近期的感染病例还是呈几何式上升，显然此禁止入境策略是失败的。除此之外，截至目前为止，日本的完全疫苗接种率高达79.4%，至少接种一针疫苗的也高达80.6%。那么居高不下的感染，说明疫苗无效。而中共病毒变体防不胜防，新种类随时可能出现，犹如定时炸弹。自我封锁和目前疫苗的使用并不解决问题，只有从根源阻止释放病毒的元凶才能终止这个泛滥全球的灾难，以及将面临的疫苗所带来的次生灾难。
+编辑整理：Jacques；
 
-新闻链接：[https://english.kyodonews.net/news/2022/02/195e19f47c36-us-european-business-leaders-urge-japan-to-end-covid-entry-ban.html](https://english.kyodonews.net/news/2022/02/195e19f47c36-us-european-business-leaders-urge-japan-to-end-covid-entry-ban.html)
+字幕文件制作：大好河山；
 
-翻译/简评：Dlrow
+视频制作及上传：Cindy；
 
-PR：Julia Win
+G-News发布：小满；
 
-* * *
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-编辑：【英国伦敦喜庄园编辑部】
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

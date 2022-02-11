@@ -2,57 +2,48 @@
 ---
 
 
-## 文•贵天成——文贵先生谈“躺平币”（七）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1987791/)
+## 为让更多战友进来七哥暂拒将导致喜币过千的某基金进入
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1987891/)
 
-整理：BENJ1
-编辑：小红帽
+G-TV视频链接：[https://gtv.org/video/id=62034a8e585ecc15d73f45e3](https://gtv.org/video/id=62034a8e585ecc15d73f45e3)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/1-115.png)图片来源：雅典娜设计组（小蚂蚁614）
+**郭文贵先生：**你们不知道我最近的感受。我最近这个国内的、体制内的战友因为喜币的事情，找我的人越来越多。现在这个币我发现，能币连天下，这个词儿我越来越有感受了。穷在闹市无人问，富在深山有远亲。我这过去的五年，是找谁谁也不搭理咱，都拿话隔开，“谁认识那个郭七？这是个球骗子，是吧？神经病，是吧？还反党、反国，找死哩他”！现在全来了，“七哥，我当初就看你跟人家不一样，我就知道你不是一样的人，你会改变世界，你太厉害了！我一家老小都觉得你是英雄，但是能不能买点币呢”？是吧？都来了。
 
+我接触最近的感受，最多的事情是，人世间世间炎凉、人情炎凉。人心那真的是，我觉得是，人心没大家想象的，人心真的那么神圣。就这几天大家看得到的，多少钱进去？光基金，现在99.9%的情况下都是基金进去。某个基金，这是我推荐去的。
 
-**郭文贵先生2022年1月14日直播**
+这个基金说，郭先生，我们一定，就刚才，就在直播前说，我们要进去。我说你进去，你的钱进去的结果是什么？不超过2小时的评估，就光它进去的钱，不到2小时就会超过1000块钱。那你说，我说这个币还玩啥？我们未来就是，只要有卖的你就买，有卖的你就买，我们谁也不用买了。我们战友现在锁币。
 
-兄弟姐妹们，在国内不要为了买喜币冒着生命危险。同样也回答你（有关）躺平币的问题。躺平币随时都可以做好，但是绝对不能因为躺平币把国内很多战友给陷害进去。
+我说关键你这个，我们战友有啥实惠的？你炒一大锅菜，又香又好，叫我们只能闻不能吃。你不是虐待我们吗？你要让我们大家说，你炒了菜，咱大家一起吃，是吧？本来炒的是鸡肉，咱还有牛肉、还有羊肉、还有鲍鱼，咱都有得吃。你把价格控住，你别先进来，因为现在大家没人卖那么多币。买也是你，卖也是你，你这不是非法操控金融市场吗？
 
-我们让他既得到币还不能得到风险，所以时间上我们要好好地把握。
+这哥们儿讲了一个很实在话。他就这几天进来的钱，他说到这个基金投的钱，他说郭先生你知道，绝大多数不是你们中国人的，是外国人的。
 
-躺平币最重要的设计就是，绝不能因为发币让很多人置于危险，而共产党所有的经历跟我们恰恰相反。
+字幕来源：[2022年1月29日香草山农场年会直播全文字版](https://gnews.org/zh-hans/1938961/)
 
-国内有躺平币的战友要知道，七哥给你准备躺平币的时候，我得让你安全，我得让你这些人能出来，到更多国家去;能安全，真正地拥有这个币。而且，我们不是邪教，(不)是精神控制，金钱控制，安全控制。恰恰相反地，我们让你在绝对自由安全的前提下，获得你想要的（东西）。而共产党，让你在绝对的不安全情况下，由他决定你应该得到什么。这是本质上的不同。我们是正义的，为人民服务的，真正（正义）的新中国联邦。共产党是真正的邪教，那六条全包含了。我先说到这儿，谢谢。
+编辑整理：Jacques；
 
-**郭文贵2022年1月21日直播**
+字幕文件制作：大好河山；
 
-咱们接下来的躺平币是绝对去中心化的。就是刚才政清说的这个，我们在喜联储可以发行各种币，可以发行各种去中心化币，是吧？我们有中心化币，有去中心化币。
+视频制作及上传：Cindy；
 
-政清，你知道热钱包，冷钱包，你没说。没有任何人看出喜联储，还有咱们未来的喜币，躺平币下一步在中国（的未来）。没有人搞明白。战友使用盖特（GETTR）、GTV、GNEWS即金钱。你在手机上待了10个小时，就应该得到多少币自动就给你。
+G-News发布：小满；
 
-那我咋用啊？是吧？我是福建武夷山一农民，我是养蛇的农民，是吧？武夷山养蛇的多。那我咋花啊？有喜支付，还有盖特支付，你可以，在你附近范围内一找，是不是啊？有卖啥的？有卖双修药的，你只要找到他，你就发信息，“咱都是喜支付的人。”是吧？对方就认可了。你，找到你了，叫政清，就在我离我100公里的地方。我想买双修的药。唉！我有。咱俩一对接就完了，没有中间（商）。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-我想买点大米饼子，我想买点包子，找找周围有没有？周围有的，我接受，我就买了。完全不中转，天空WiFi已经脱离了当地的通讯公司，你找不着我。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-第二个我的数字货币，是去中心化的货币，你也找不着人。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-第三，我有热钱包，冷钱包，是吧？很多大家、商家准备了冷钱包，我下载完，我就放我冷钱包了。我用冷钱包干啥去？我进点批发的双修药卖给你，是不是啊？我就拿冷钱包去批发去，就是在共产党控制的范围内，我拿冷钱包玩，你找不着我。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-但是我跟小额的（交易），我用热钱包。我玩死它—共产党。你认为他老杂毛，他能懂这个吗？懂这个的，他都得给你杀了，他不让你活着，是吧？这只有七哥跟他们玩了。咱们就在电脑上在那把老杂毛玩死。
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-往期回顾：
-[文·贵天成——文贵先生谈“躺平币”（一）](https://gnews.org/zh-hans/1733170/)
-[文·贵天成——文贵先生谈“躺平币”（二）](https://gnews.org/zh-hans/1733097/)
-[文·贵天成——文贵先生谈“躺平币”（三）](https://gnews.org/zh-hans/1733213/)
-[文·贵天成——文贵先生谈“躺平币”（四）](https://gnews.org/zh-hans/1756972/)
-[文·贵天成——文贵先生谈“躺平币”（五）](https://gnews.org/zh-hans/1756972/)
-[文·贵天成——文贵先生谈“躺平币”（六）](https://gnews.org/zh-hans/1987269/)
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-发布：tianzhihuan
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

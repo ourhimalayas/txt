@@ -2,68 +2,48 @@
 ---
 
 
-## 蓬佩奥： 台湾绝对不是中国的内政
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1987732/)
+## 香草山农场的名字真地发挥出来延续、传承、真相和包容
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1987851/)
 
-前国务卿迈克.蓬佩奥： 台湾绝对不是中国的内政。 我们必须让中共明白我们将采取任何必要行动来确保台湾保持自由。
+G-TV视频链接：[https://gtv.org/video/id=620343d4585ecc15d73f435b](https://gtv.org/video/id=620343d4585ecc15d73f435b)
 
+**郭文贵先生：**我今天一天在这排练，在这排练这个春节晚会的时候感触很深，就这个直播室是由我们村长长岛哥建的，墨镜是小白培养出来的，Q May、瑞恩这是长岛哥一手培养出来的。这现场，包括我们现在在现场的青藤，就你的感触很深。
 
+今天我们村长不在，这村长现在已经被这几个小家伙现在要攻击对象，造反了已经，是吧？内部造反。这看出来，但是没问题。就是刚才长岛哥说的，香草山可以说是爆料革命有始以来，不是原来的VOG，是培养出战友和帮助战友最多的一个农场。香草山这个名真的发挥出来了，延续、传承、真相，而且是包容。
 
-> Taiwan is absolutely NOT an affair internal to China. We must ensure the CCP understands that we will undertake any actions necessary to ensure Taiwan remains free.
-> — Mike Pompeo (@mikepompeo) [February 10, 2022](https://twitter.com/mikepompeo/status/1491855779284103171?ref_src=twsrc%5Etfw)
+虽然长岛哥有时候他很不舒服，也是拧哧白咧的，他也接受不了。但是就这一步一步的过程当中，他就会接受。香草山这个名你起自当日，你今天你就要享受香草山。这香草山永远是给别人做嫁妆，这就是你的一切。今天你看我在这屋里边儿就看到的时候，我是最有感受的。我就在群里边儿给长岛哥说，长岛哥一星期把这事就搞定了，是吧？
 
+那么今天我参加香草山这个春节联欢晚会节目的时候，就感触太深了。你看看我们这大卫王、小飞象。这是他爹，大卫王的爹——跑得快，都是香草山出来的。小飞象她老公小飞侠，也是（香草山）弄出来的。剩下我们铁血组木兰不能露面，是吧？刚才弄得我浑身发热，是吧？得了，我脱了得了，哎呀都装啥呀，是吧？我脱了。今天为香草山2022年首脱，献给你们了。七哥有备而来。这是今天到的，今天全套都是新到的。然后我得换换眼镜，都为你们脱了。
 
+说到这儿，看看新到的，这感觉，是吧？刚才穿着我等着你们都快热死我了。行，我终于脱下去了，挺好。今天一脱献给香草山，一脱、一脱献给了香草山。
 
-众议员加拉格尔新闻办公室： 加拉格尔说:“国际奥委会的可鄙行径。他们最近会见了彭帅，并声称回答了“彭帅在哪里?”她在哪儿?她被中共扣留了。她被封口了。她被扣为人质，国际奥委会在其中狼狈为奸。”
+字幕来源：[2022年1月29日香草山农场年会直播全文字版](https://gnews.org/zh-hans/1938961/)
 
+编辑整理：Jacques；
 
+字幕文件制作：大好河山；
 
-> Rep. Gallagher: "The IOC has acted despicably. They recently met with Peng Shuai and claimed to answer the question 'Where is Peng Shuai?' Well, where is she? She's being detained by the CCP. She's being silenced. She's being held hostage, and the IOC is complicit in it all." [pic.twitter.com/oDflLN887R](https://t.co/oDflLN887R)
-> — Rep. Gallagher Press Office (@RepGallagher) [February 10, 2022](https://twitter.com/RepGallagher/status/1491833496083611649?ref_src=twsrc%5Etfw)
+视频制作及上传：Cindy；
 
+G-News发布：小满；
 
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-参议员瑞克·斯科特： 共产主义中国把这个可怜的运动员当做2022年冬奥会的道具。这都是习的邪恶宣传，用“奥运会”来粉饰他的种族灭绝和压迫。国际奥委会在哪里?我们必须弄清楚迪尼吉尔·依拉穆江身上发生了什么事。 （转每日电讯：维吾尔族滑雪选手，中国冬奥会火炬手，在北欧联合赛首秀后“消失”了）
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-> Communist China used this poor athlete as a prop for [@Beijing2022](https://twitter.com/Beijing2022?ref_src=twsrc%5Etfw). It’s all part of Xi’s evil propaganda to whitewash his genocide & oppression with the [@Olympics](https://twitter.com/Olympics?ref_src=twsrc%5Etfw). Where is the IOC? We must find out what happened to Dinigeer Yilamujiang. [https://t.co/KiZw00la1o](https://t.co/KiZw00la1o)
-> — Rick Scott (@SenRickScott) [February 10, 2022](https://twitter.com/SenRickScott/status/1491848855704457219?ref_src=twsrc%5Etfw)
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-参议员瑞克·斯科特： 生态健康联盟帮助共产主义中国掩盖新冠的信息，而拜登政府却在毫无问责的情况下，将数百万纳税人的钱投入其中。 乔·拜登现在必须扭转这个可怕的决定。 （转华盛顿观察者：美国国际开发署在2021年底，向生态健康联盟提供了467万美元的资助）
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-
-
-> .[@EcoHealthNYC](https://twitter.com/EcoHealthNYC?ref_src=twsrc%5Etfw) helped Communist China cover up information on COVID-19, yet the Biden administration is funneling it MILLIONS of taxpayer dollars with zero accountability. 
-> 
-> Joe Biden must reverse this horrible decision now. [https://t.co/lAEAWkN4Pe](https://t.co/lAEAWkN4Pe)
-> — Rick Scott (@SenRickScott) [February 10, 2022](https://twitter.com/SenRickScott/status/1491799799393177605?ref_src=twsrc%5Etfw)
-
-
-
-众议员吉姆·班克斯： 我很自豪能够与Herrel议员共同提出《停止资助我们的对手法案》。 美国纳税人不能也不应该向 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 或代表 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 进行的研究发送一分钱！ 【附每日电讯特别报道：共和党提出禁止资助在中共国的研究】
-
-
-
-> I'm proud to cosponsor [@RepHerrell](https://twitter.com/RepHerrell?ref_src=twsrc%5Etfw)'s Stop Funding Our Adversaries Act.
->  
-> The American taxpayers cannot and should not be sending a single penny to research conducted by or on behalf of the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)![https://t.co/EkC0sGO5RH](https://t.co/EkC0sGO5RH)
-> — Jim Banks (@RepJimBanks) [February 10, 2022](https://twitter.com/RepJimBanks/status/1491868032456695814?ref_src=twsrc%5Etfw)
-
-
-
-众议员加拉格尔： 众议员加拉格尔与众议员布莱恩·斯蒂尔和其他 100 多名共和党人一起呼吁拜登总统立即对从中国和南部边境涌入的芬太尼采取行动。 在这里阅读更多： 【附福克斯新闻报道】
-
-
-
-> Rep. Gallagher joined [@RepBryanSteil](https://twitter.com/RepBryanSteil?ref_src=twsrc%5Etfw) and more than 100 other Republicans in calling on President Biden to take immediate action on fentanyl pouring in from China and across the southern border. 
-> 
-> Read more here: [https://t.co/fgjybJDS08](https://t.co/fgjybJDS08)
-> — Rep. Gallagher Press Office (@RepGallagher) [February 10, 2022](https://twitter.com/RepGallagher/status/1491881413636935701?ref_src=twsrc%5Etfw)
-
-
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

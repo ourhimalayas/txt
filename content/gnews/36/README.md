@@ -2,47 +2,83 @@
 ---
 
 
-## 澳大利亚支持立陶宛应对中共国“武器化”经济制裁
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1987276/)
+## 全球疫情更新（全球累积感染超过4亿）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1987454/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+**整理/编辑：枳实**
 
-翻译/编辑：文泓
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/2-41.png)图片来源：Global Times
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-972.png)图片：雅典娜农场设计组 精灵蓝
 
 
-当地时间2月7日，据美国广播公司新闻报道，立陶宛在堪培拉的新外交使团开幕之前，立陶宛外交部长加布里埃尔·兰茨贝吉斯在议会大厦会见了澳大利亚外交部长玛丽斯·佩恩。
+雅典娜疫情更新（2022年 2月10日）
 
-立陶宛作为一个欧洲小国，因其支持台湾的立场，目前正在努力应对中共政府对其实施的“武器化”经济制裁，澳大利亚已将其外交支持投向立陶宛。
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-两国有一些关键的相似之处，立陶宛因与台湾的关系而受到中共国的贸易制裁；澳大利亚因提出中共病毒溯源调查，也遭遇了当前与中共国前所未有的贸易紧张局势。
+**一，全球疫情基本数据**
 
-近年来，这两个国家都激怒了北京，中共政府针对两国出口产品和多行业实施了严厉的制裁和高额的关税，被称为“经济胁迫”。
+感染总数：403,210,608（日新增2,560,671人，14天增幅-24%）
 
-去年，立陶宛政府允许台湾在首都维尔纽斯设立贸易办事处。
+死亡总数：5,776,831（日新增11,010      人，14天增幅 +27%）
 
-此举激怒了北京，仅仅因为该办公室被允许使用“台湾”这个名称，而不是传统的“台北”——中共国在宣称对这个民主岛屿拥有主权的努力中要求使用“台北”这个名称。
+**二，全球“疫苗”毒针统计数据**
 
-今年1月，欧盟（EU）宣布将中国告上世界贸易组织（WTO），因为中国开始阻止从立陶宛进口的产品以及与立陶宛有关的产品。
+“疫苗”毒针注射总数：103亿
 
-此后不久，澳大利亚申请加入世贸组织的案件，这是一个明确的信号，它在贸易争端中支持立陶宛。
+完全“接种”：42.3亿人
 
-“**在相当长的一段时间里，澳大利亚是中国将经济和贸易作为一种政治工具，或者甚至可以说是一种政治武器的主要例子之一**，”兰茨贝吉斯先生在两国外长共同举行的新闻发布会上说。
+完全“接种”百分比：54.2%
 
-“**现在立陶宛加入了这个专属俱乐部。但很明显，我们绝对不是最后一个成员**，尤其是，如果我们不用自己拥有的手段来阻止（中共国）这些做法。”
+**三，澳洲疫情和“疫苗”数据**
 
-佩恩参议员表示，澳大利亚不考虑将其台北办事处更名为“台湾”，但将继续反对北京的行动。
+感染总数：2,825,528（今日新增29,451人）
 
-她说：“我和兰茨贝吉斯外长与许多同事一起工作和面对这些问题。”
+死亡总数：4,431人（今日新增 65人）
 
-新闻链接：[Australia backs Lithuania over ‘weaponised’ economic sanctions from China due to Taiwan ties](https://www.abc.net.au/news/2022-02-09/australia-backs-lithuania-china-economic-sanctions-taiwan-russia/100815812)
+每万人感染人数：1094.6368人
 
-*发布：tianzhihuan*
+“疫苗”毒针注射总数：51,805,966  （今日新增215,521   针）
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+完全“接种”：19,355,377人
+
+第二针“接种”百分比：79.1%
+
+16岁以上人口接种至少一剂疫苗的比例：&gt;95%
+
+16岁以上人口接种至少两剂疫苗的比例：93.9%
+
+加强针总数：9,554,451（日新增：183,129针）
+
+**四，疫情评论**
+
+今日全球病例超过4亿，而澳洲的感染率从低于世界平均水平到达今天超过10%的感染率仅仅用了几十天的时间，而这一切都发生在澳洲的“疫苗”接种率到达“神奇”的70%之后。很多人可能已经忘记了这个70%的神奇数字，当初卫生官员和科学家们曾经把这个数字视为达到群体免疫的标准，曾经向民众保证，达到这个数字之后，我们就不会再有大的疫情。然而事实却恰恰相反，疫苗接种率达到70%之后的这波疫情海啸让之前澳洲的三波疫情成为微风下的水波。可是疫苗强制却仍然在继续，甚至连加强针都在很多行业和地区成为强制。
+
+疫苗强制的合理性在科学上早已破产，可是政府却固执坚持剥夺民众医疗选择的权利。在加拿大，虽然已经有成千上万的卡车聚集在首都和周边的冰天雪地中，民众用挎包携带的燃料支援他们的抗议，为他们捐款的账户虽然被政府封杀，新开辟的捐款途径很快就筹集了巨款。然而政府却丝毫不退让，坚持要对他们进行强制疫苗，否则不能工作。警察可能很快就要进行抓捕。疫苗强制已经早已不是科学问题，而是基本的人权和民主问题，具体来说，就是如何避免一个非理性决策的政府所造成的危害。民主带来的最大的好处，就是民众因此可以避免来自权力不受限制的政府带来的伤害。但大疫情所带来的紧急状态，却给了政府过度的权力，现在我们看到的就是这种过度的权力给民众带来的伤害。
+
+历史上的专制政权，包括中共治下的社会的很多特征，比如言论管控和审查，政府的傲慢，少数民众的抗争，大众的漠然与懵懂，都能在大疫情的紧急状态下的今天的西方民主社会中看到。历史教训具在，从民主滑向专制其实只有一步之遥，自由绝不是免费午餐，还需要人们去奋力争取。
+
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+
+数据来源：
+
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+
+[covidlive.com.au](https://covidlive.com.au/)
+
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

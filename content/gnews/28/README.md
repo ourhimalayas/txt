@@ -2,50 +2,66 @@
 ---
 
 
-## 中共的世界霸权妄想症让其骨子里保持与美国的敌对关系
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1987564/)
+## 蓬佩奥： 台湾绝对不是中国的内政
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1987732/)
 
-作者：纽约香草山信息部 – 6zero4
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/gnews-logo-2.jpeg)
+前国务卿迈克.蓬佩奥： 台湾绝对不是中国的内政。 我们必须让中共明白我们将采取任何必要行动来确保台湾保持自由。
 
 
 
-郭先生在2022年2月6日的大直播中谈及，19世纪到中国经商和交流的最早一批美国人盛茂昭、蒲安臣、福布斯家族等都对善良、聪明、勇敢、勤恳、文明的中国人留下了深刻的印象，驻华大使蒲安臣第一个欢迎中国人移民美国。当时的《罗斯福关于中国人性的报告》将中国人的行为习惯做了详细陈述并认为：中美两国人民一旦友好合作，两国人民优缺点将互补，一大陆国家与一海洋国家的地理优势结合，加上中国人的勤劳、文明优势，以及美国的新国家优势，将让这个世界和平与繁荣，将是多么美好的场景！
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture-11.jpg)
-美国随即给中国创建了清华大学和协和医院等一大批学校、医院和教堂，并派来大量传教士、教师和医生，向落后的中国清朝社会传授西方文明。当下美国的华尔街、好莱坞、麦当劳、星巴克、波音飞机、高科技等依然是中国社会推崇的主流事物，中国引以为傲的饮食文化和悠久历史在美国主导的西方文明面前不值一提。这也反证了中国人在国际宗教、信仰、自由、金融、经济、科技、教育、医疗、人权上彻底输给美国，美国产品与普世价值才是中国民间的向往。
-
-文革期间，中共意识到共产党要活下去、经济要好转、国家要强大，而苏联靠不住，必须在美国下手，因此开始将核心国际关系从对中俄转到中美。从周恩来的“乒乓外交”到“中美大学生交流”项目，中共当时派到美国的100个学生，其中80%是女学生，实际上他们都是潜入美国的中共顶级间谍。她们只能嫁美国白人，且嫁给谁都由党中央说了算。他们现在仍在美国政坛极为活跃，单伟健即是其一。
-
-不像共产党跟俄罗斯的各种交易，俄罗斯人没有不拿巨额回扣的，跟美国人做生意是纯粹的互惠的精神文化交流、科技文明交流、实际利益交流。中美之间的交流和结合才是健康、和平、持久的，因为两国之间没有任何历史性的冲突和恩怨，只有天然的利益上、安全上、经济上、文化上最好的互补的双边关系与条件。美国经济是中国人唯一的致富源泉，只有美国能让中国经济强大，跟美国作对必死无疑！
-
-尤其是习上台的这十年，中共竟然绑架和威胁美国经济，让美国企业把技术无偿转给中共国，同时将中共国企业派往美国造假、行骗并拒绝调查与配合，将美国保障民生的养老基金、科研基金、教育基金等导入中共国的泡沫经济市场导致血本无归，试图将中共国的假“擀面杖子”经济复制到美国，并持续向美国大量输入芬太尼等毒品，且向美国投放中共病毒。
-
-虽然无心灭共的川普总统看到了中共对美国经济尤其是供应链的绑架与威胁，发动贸易战对严重失衡的中美经济和贸易作调整和补偿，但好景不长，中共发动的病毒及其疫苗灾难加上对世界供应链的绑架，将对美国乃至世界经济形成毁灭性打击。
-
-中共以为美国完了它就能强大，恰恰相反，美国完蛋最惨的就是中共国，因为中共国经济体量仅次于美国而又最依赖美国，且美国是辐射型经济包罗万象，一百年前美国就发明了外包加工化（OBM），美国完大家都完，没有国家能脱离美国而独立发展经济。
-
-美国没有占领中国一寸土地，没有无辜杀害一名中国同胞，中共却如此敌视对中国人充满善意和友好的美国，看似匪夷所思，实则是中共想成为世界霸主之妄想症发作所为，因为美国是摆在中共面前最大的绊脚石。如今中美之间过去仅有的经济贸易冲突，已经转化为政治、地域、文化、科技、军事等方方面面的冲突，到了无法回避必然正面对撞的地步了。
-
-参考链接：
-[2022年2月6日 文贵大直播：开幕式后普京愤然离去；中俄战略合作虎头蛇尾；贩卖人口中国妇女地位；反疫苗运动及美国经济](https://gtv.org/video/id=61ffc26b3621aa7415d64d51)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-26.jpg)
-
-编辑/校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+> Taiwan is absolutely NOT an affair internal to China. We must ensure the CCP understands that we will undertake any actions necessary to ensure Taiwan remains free.
+> — Mike Pompeo (@mikepompeo) [February 10, 2022](https://twitter.com/mikepompeo/status/1491855779284103171?ref_src=twsrc%5Etfw)
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/gnews-logo-2.jpeg)
+众议员加拉格尔新闻办公室： 加拉格尔说:“国际奥委会的可鄙行径。他们最近会见了彭帅，并声称回答了“彭帅在哪里?”她在哪儿?她被中共扣留了。她被封口了。她被扣为人质，国际奥委会在其中狼狈为奸。”
+
+
+
+> Rep. Gallagher: "The IOC has acted despicably. They recently met with Peng Shuai and claimed to answer the question 'Where is Peng Shuai?' Well, where is she? She's being detained by the CCP. She's being silenced. She's being held hostage, and the IOC is complicit in it all." [pic.twitter.com/oDflLN887R](https://t.co/oDflLN887R)
+> — Rep. Gallagher Press Office (@RepGallagher) [February 10, 2022](https://twitter.com/RepGallagher/status/1491833496083611649?ref_src=twsrc%5Etfw)
+
+
+
+参议员瑞克·斯科特： 共产主义中国把这个可怜的运动员当做2022年冬奥会的道具。这都是习的邪恶宣传，用“奥运会”来粉饰他的种族灭绝和压迫。国际奥委会在哪里?我们必须弄清楚迪尼吉尔·依拉穆江身上发生了什么事。 （转每日电讯：维吾尔族滑雪选手，中国冬奥会火炬手，在北欧联合赛首秀后“消失”了）
+
+
+
+> Communist China used this poor athlete as a prop for [@Beijing2022](https://twitter.com/Beijing2022?ref_src=twsrc%5Etfw). It’s all part of Xi’s evil propaganda to whitewash his genocide & oppression with the [@Olympics](https://twitter.com/Olympics?ref_src=twsrc%5Etfw). Where is the IOC? We must find out what happened to Dinigeer Yilamujiang. [https://t.co/KiZw00la1o](https://t.co/KiZw00la1o)
+> — Rick Scott (@SenRickScott) [February 10, 2022](https://twitter.com/SenRickScott/status/1491848855704457219?ref_src=twsrc%5Etfw)
+
+
+
+参议员瑞克·斯科特： 生态健康联盟帮助共产主义中国掩盖新冠的信息，而拜登政府却在毫无问责的情况下，将数百万纳税人的钱投入其中。 乔·拜登现在必须扭转这个可怕的决定。 （转华盛顿观察者：美国国际开发署在2021年底，向生态健康联盟提供了467万美元的资助）
+
+
+
+> .[@EcoHealthNYC](https://twitter.com/EcoHealthNYC?ref_src=twsrc%5Etfw) helped Communist China cover up information on COVID-19, yet the Biden administration is funneling it MILLIONS of taxpayer dollars with zero accountability. 
+> 
+> Joe Biden must reverse this horrible decision now. [https://t.co/lAEAWkN4Pe](https://t.co/lAEAWkN4Pe)
+> — Rick Scott (@SenRickScott) [February 10, 2022](https://twitter.com/SenRickScott/status/1491799799393177605?ref_src=twsrc%5Etfw)
+
+
+
+众议员吉姆·班克斯： 我很自豪能够与Herrel议员共同提出《停止资助我们的对手法案》。 美国纳税人不能也不应该向 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 或代表 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 进行的研究发送一分钱！ 【附每日电讯特别报道：共和党提出禁止资助在中共国的研究】
+
+
+
+> I'm proud to cosponsor [@RepHerrell](https://twitter.com/RepHerrell?ref_src=twsrc%5Etfw)'s Stop Funding Our Adversaries Act.
+>  
+> The American taxpayers cannot and should not be sending a single penny to research conducted by or on behalf of the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)![https://t.co/EkC0sGO5RH](https://t.co/EkC0sGO5RH)
+> — Jim Banks (@RepJimBanks) [February 10, 2022](https://twitter.com/RepJimBanks/status/1491868032456695814?ref_src=twsrc%5Etfw)
+
+
+
+众议员加拉格尔： 众议员加拉格尔与众议员布莱恩·斯蒂尔和其他 100 多名共和党人一起呼吁拜登总统立即对从中国和南部边境涌入的芬太尼采取行动。 在这里阅读更多： 【附福克斯新闻报道】
+
+
+
+> Rep. Gallagher joined [@RepBryanSteil](https://twitter.com/RepBryanSteil?ref_src=twsrc%5Etfw) and more than 100 other Republicans in calling on President Biden to take immediate action on fentanyl pouring in from China and across the southern border. 
+> 
+> Read more here: [https://t.co/fgjybJDS08](https://t.co/fgjybJDS08)
+> — Rep. Gallagher Press Office (@RepGallagher) [February 10, 2022](https://twitter.com/RepGallagher/status/1491881413636935701?ref_src=twsrc%5Etfw)
 
 
 
