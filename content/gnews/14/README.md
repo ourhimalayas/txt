@@ -2,19 +2,21 @@
 ---
 
 
-## 冬奥会就是老天给我们灭共的天机
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1988932/)
+## 七哥怎么做到隔空取人民币的
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1989008/)
 
-文编：东京樱花团/樱花传媒
-视频:东京樱花团/中文小视频组
+视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王
+视频定位：BENJ1，WEI
 
-1月21日，郭文贵先生在GTV大直播指出：
+*发布：**Frank2021*
 
-文贵先生的个人经历，推动当前种种事情的发生，北京冬奥会不开也不成，这是老天送给新中国联邦灭共的机会。文贵先生在把中共三千多人送进监狱后，还能享受常委待遇；在08北京奥运会上，创造两千倍回报，积累了巨大的政治财富和财富，抵制北京冬奥会光有金钱、权力等等是不够的，还要有重要的人际关系。
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-*编辑：东京樱花团/墨然
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

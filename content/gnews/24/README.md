@@ -2,47 +2,19 @@
 ---
 
 
-## 英国研究表明，完全接种中共病毒疫苗的孩子死亡风险高达5100%
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1988763/)
+## G-CLUB卡福利多多惊喜多多 你必须拥有
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1988812/)
 
-作者：银河系农场—骄子
+文编：东京樱花团/樱花传媒
+视频：东京樱花团/中文小视频组
 
+1月27日，郭文贵先生在GTV大直播指出：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-17.png)
+战友们一定要搞清楚G-TV控股和G-Clubs的真正意义，以及整个G系列的魅力和价值，不要失去这个千载难逢的机会。G-Clubs会员卡相当于未来的新中国联邦护照，全球通行证，有各种优惠、 折扣 、福利，还有每年的抽奖活动，只有成为G-Clubs的会员才能享受这一切。你还在等什么。
 
-
-近日英国国家统计局发布的数据显示，接种过中共病毒疫苗的儿童和未接种的儿童在死亡率上存在令人震惊的差异。根据数据分析，完全接种中共病毒疫苗的儿童死于任何原因的风险都比未接种儿童高出5100%以上。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/25.png)
-对于15至19岁的儿童来说，第一次接种中共病毒疫苗后，所有原因的死亡风险都增加了82%，第二次接种后增加了226%。但对于10至14岁的儿童来说，情况更糟，第一次接种后死亡风险增加了885%，第二次接种后增加了515%。至少接种过一次中共病毒疫苗的10至14岁的儿童死亡可能性是正常儿童的10倍，而接受过两针疫苗的儿童死亡可能性是52倍。
-
-科学家Mike Yeadon曾警告说，中共病毒疫苗导致的儿童死亡是其能用于预防中共病毒的50倍，辉瑞等疫苗中使用的mRNA基因技术会使身体产生刺突蛋白，导致血凝块等健康问题。
-
-医学博士Paul Hunter说，我们未看到中共病毒疫苗在阻止学校的中共病毒传播方面做了什么贡献，相反很多儿童都被染病。
-
-参考来源：
-
-[UK data shows shockingly high mortality rate among fully vaccinated children](https://newstarget.com/2022-02-09-uk-data-high-mortality-rate-vaccinated-children.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-30.jpg)
-
-编辑/校对/发稿：兰兰
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-18.png)
-
-
+*编辑：东京樱花团/墨然
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

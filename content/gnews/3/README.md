@@ -2,8 +2,8 @@
 ---
 
 
-## Hpay百分之百应新中国联邦的追求和信仰
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1989033/)
+## 喜支付让老百姓零成本支付
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1989094/)
 
 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王
 视频定位：BENJ1，WEI

@@ -2,8 +2,8 @@
 ---
 
 
-## 七哥怎么做到隔空取人民币的
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1989008/)
+## 未来Hpay里会出现很多基金，支和付不需要任何代理人
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1989080/)
 
 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王
 视频定位：BENJ1，WEI

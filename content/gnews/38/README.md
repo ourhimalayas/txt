@@ -2,26 +2,25 @@
 ---
 
 
-## 美国担任APEC主席意在牵制中共
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1988124/)
+## 俄罗斯与白俄罗斯开始举行军事演习
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1988148/)
 
-撰稿：东京樱花团/盖特第一批注册
-![](https://assets.gnews.org/wp-content/uploads/2022/02/7-11.png)[图片来源](https://news.yahoo.co.jp/articles/35e4fde5eb352f0b1ca55144130ce569fc45ac45/images/000)
-白宫2月10日宣布，美国将在2023年主持亚太经济合作组织（APEC）论坛，担任亚太经合组织主席，以努力加强与亚太地区的联系，并牵制中共在该地区日益增长的经济影响力。
+#### 撰稿：彩虹
 
-拜登上任以来重新推动印太经济框架的政策，与日本和其他亚太经合组织成员建立共同的贸易和先进技术规则。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-16.jpg)图片来源：CNN
+据《国会山报》2月10日报道，周四，俄罗斯和白俄罗斯开始了为期10天的军事演习，人们对俄罗斯可能入侵乌克兰的担忧加剧。
 
-拜登政府于2021年8月竞选主席，但在当年11月举行的APEC峰会上没有当选，之后在成员国间的斡旋下成为下届主席国。这是自2011年欧巴马政府以来，美国首次担任亚太经合组织主席国。
+俄罗斯国防部宣布，被称为“盟军决心”（Allied Resolve-2022）的军事演习将持续到2月20日。
 
-亚太经济合作组织成立于1989年，包括日本、美国和中国在内的21个国家和地区，是亚太区内各地区之间促进经济成长、合作、贸易、投资的论坛，为推动区域贸易投资自由化，加强成员间经济技术合作等方面发挥了不可替代的作用。
+据CNN报道，俄罗斯还将在黑海（Black Sea）和亚速海（Sea of Azov）附近进行海军演习。
 
-信息来源：
+CNN说，2月3日，北约秘书长延斯·斯托尔滕贝格（Jens Stoltenberg）说，俄罗斯的军事集结“预计有3万名作战部队、俄罗斯特种部队、以及包括苏-35在内的战斗机、伊斯坎德（Iskander）短程弹道飞弹和S-400防空系统”。
 
-[米、2023年APEC議長国に　ホワイトハウス発表](https://news.yahoo.co.jp/articles/35e4fde5eb352f0b1ca55144130ce569fc45ac45)
+**新闻来源**
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+[Russia holds military drills in Belarus amid rising tensions with Ukraine](https://thehill.com/policy/international/593674-russia-holds-military-drills-in-belarus-amid-tensions-with-ukraine)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

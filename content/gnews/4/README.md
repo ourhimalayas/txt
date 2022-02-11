@@ -2,21 +2,25 @@
 ---
 
 
-## 民币通道目前是农场授权，不超过半年全面开放
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1989022/)
+## 【秘翻新视野】2022年2月9日 灭共进入新阶段
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1989089/)
 
-视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王
-视频定位：BENJ1，WEI
+**By:[秘翻新视野](https://gtv.org/broadcast/watch/6205d188a1fe5e57a4268876)**
 
-*发布：**Frank2021*
+**[2022-2-11](https://gtv.org/broadcast/watch/6205d188a1fe5e57a4268876)**
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**1.UBS在英国正式立案**
 
+**2.七哥要去伦敦和日本生活**
+
+**3.七哥准备要变得更加一无所有，做好一切准备**
+
+🔗**GTV链接：**[https://gtv.org/broadcast/watch/6205d188a1fe5e57a4268876](https://gtv.org/broadcast/watch/6205d188a1fe5e57a4268876)
+
+发布:星星
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMAGE-2021-12-13-113746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

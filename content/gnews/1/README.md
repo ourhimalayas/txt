@@ -2,8 +2,8 @@
 ---
 
 
-## Hpay完全做金融义工的一个平台
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1989050/)
+## CCP调兵，美国欧洲包括日本根本不在乎
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1989117/)
 
 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王
 视频定位：BENJ1，WEI
