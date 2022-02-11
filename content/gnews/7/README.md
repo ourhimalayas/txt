@@ -2,8 +2,8 @@
 ---
 
 
-## 第一次建交美国带给中国什么
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1988435/)
+## 张艺谋真敢忽悠中国人
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1988535/)
 
 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王
 视频定位：BENJ1，WEI

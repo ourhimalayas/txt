@@ -2,8 +2,8 @@
 ---
 
 
-## 美国大使带回美国什么
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1988446/)
+## 美国整体的经济崩溃还没到
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1988547/)
 
 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王
 视频定位：BENJ1，WEI

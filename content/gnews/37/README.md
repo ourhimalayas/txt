@@ -2,68 +2,30 @@
 ---
 
 
-## 蓬佩奥： 台湾绝对不是中国的内政
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1987732/)
+## 美国政府急于推进2月份开始为5岁以下儿童接种中共病毒疫苗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1987880/)
 
-前国务卿迈克.蓬佩奥： 台湾绝对不是中国的内政。 我们必须让中共明白我们将采取任何必要行动来确保台湾保持自由。
+#### 撰稿：彩虹
 
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-15.jpg)图片来源：Axios
+2月10日，《新闻极限》引述路透社文章，根据CDC（美国疾病控制与预防中心）的一份文件，美国政府正计划最快于2月21日为5岁以下儿童接种中共病毒（COVID-19）疫苗。
 
+同时，尽管在一项针对2至4岁儿童的临床试验中没有达到一个关键目标，FDA（美国食品和药物管理局）仍然在考虑授权在该年龄段使用辉瑞公司（Pfizer）和生物科技公司（BioNTech SE）的中共病毒疫苗。
 
-> Taiwan is absolutely NOT an affair internal to China. We must ensure the CCP understands that we will undertake any actions necessary to ensure Taiwan remains free.
-> — Mike Pompeo (@mikepompeo) [February 10, 2022](https://twitter.com/mikepompeo/status/1491855779284103171?ref_src=twsrc%5Etfw)
+而这些制药商说，他们是应FDA的要求才提交的支持授权的数据，为的是解决所谓该年龄组的紧急公共卫生需求。
 
+FDA的外部顾问们定于2月15日举行会议，讨论是否建议监管机构批准该中共病毒疫苗。如果没有意外，在会议结束后不到一周的时间内，将开始为5岁以下儿童推广该中共病毒疫苗的接种。
 
+根据CDC的文件，如果FDA授权使用这些辉瑞/生物技术公司的中共病毒疫苗，美国政府计划在2月底之前向各州和其他实体运送最初的1000万剂。
 
-众议员加拉格尔新闻办公室： 加拉格尔说:“国际奥委会的可鄙行径。他们最近会见了彭帅，并声称回答了“彭帅在哪里?”她在哪儿?她被中共扣留了。她被封口了。她被扣为人质，国际奥委会在其中狼狈为奸。”
+CDC说，美国约有1800万名6个月至4岁的儿童，在首批1000万剂中共病毒疫苗之后还会有更多的供应。在2月23日和2月25日或CDC建议的大约一个星期后，各辖区和联邦药房合作伙伴将收到第二和第三批疫苗。
 
+报道说，如果被授权的话，幼儿将接受较低剂量的中共病毒疫苗。辉瑞/生物技术公司在该年龄段测试了3微克剂量的疫苗，而5至11岁儿童的剂量为10微克，12岁及以上人群的剂量为30微克。
 
+**新闻来源**
 
-> Rep. Gallagher: "The IOC has acted despicably. They recently met with Peng Shuai and claimed to answer the question 'Where is Peng Shuai?' Well, where is she? She's being detained by the CCP. She's being silenced. She's being held hostage, and the IOC is complicit in it all." [pic.twitter.com/oDflLN887R](https://t.co/oDflLN887R)
-> — Rep. Gallagher Press Office (@RepGallagher) [February 10, 2022](https://twitter.com/RepGallagher/status/1491833496083611649?ref_src=twsrc%5Etfw)
-
-
-
-参议员瑞克·斯科特： 共产主义中国把这个可怜的运动员当做2022年冬奥会的道具。这都是习的邪恶宣传，用“奥运会”来粉饰他的种族灭绝和压迫。国际奥委会在哪里?我们必须弄清楚迪尼吉尔·依拉穆江身上发生了什么事。 （转每日电讯：维吾尔族滑雪选手，中国冬奥会火炬手，在北欧联合赛首秀后“消失”了）
-
-
-
-> Communist China used this poor athlete as a prop for [@Beijing2022](https://twitter.com/Beijing2022?ref_src=twsrc%5Etfw). It’s all part of Xi’s evil propaganda to whitewash his genocide & oppression with the [@Olympics](https://twitter.com/Olympics?ref_src=twsrc%5Etfw). Where is the IOC? We must find out what happened to Dinigeer Yilamujiang. [https://t.co/KiZw00la1o](https://t.co/KiZw00la1o)
-> — Rick Scott (@SenRickScott) [February 10, 2022](https://twitter.com/SenRickScott/status/1491848855704457219?ref_src=twsrc%5Etfw)
-
-
-
-参议员瑞克·斯科特： 生态健康联盟帮助共产主义中国掩盖新冠的信息，而拜登政府却在毫无问责的情况下，将数百万纳税人的钱投入其中。 乔·拜登现在必须扭转这个可怕的决定。 （转华盛顿观察者：美国国际开发署在2021年底，向生态健康联盟提供了467万美元的资助）
-
-
-
-> .[@EcoHealthNYC](https://twitter.com/EcoHealthNYC?ref_src=twsrc%5Etfw) helped Communist China cover up information on COVID-19, yet the Biden administration is funneling it MILLIONS of taxpayer dollars with zero accountability. 
-> 
-> Joe Biden must reverse this horrible decision now. [https://t.co/lAEAWkN4Pe](https://t.co/lAEAWkN4Pe)
-> — Rick Scott (@SenRickScott) [February 10, 2022](https://twitter.com/SenRickScott/status/1491799799393177605?ref_src=twsrc%5Etfw)
-
-
-
-众议员吉姆·班克斯： 我很自豪能够与Herrel议员共同提出《停止资助我们的对手法案》。 美国纳税人不能也不应该向 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 或代表 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 进行的研究发送一分钱！ 【附每日电讯特别报道：共和党提出禁止资助在中共国的研究】
-
-
-
-> I'm proud to cosponsor [@RepHerrell](https://twitter.com/RepHerrell?ref_src=twsrc%5Etfw)'s Stop Funding Our Adversaries Act.
->  
-> The American taxpayers cannot and should not be sending a single penny to research conducted by or on behalf of the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)![https://t.co/EkC0sGO5RH](https://t.co/EkC0sGO5RH)
-> — Jim Banks (@RepJimBanks) [February 10, 2022](https://twitter.com/RepJimBanks/status/1491868032456695814?ref_src=twsrc%5Etfw)
-
-
-
-众议员加拉格尔： 众议员加拉格尔与众议员布莱恩·斯蒂尔和其他 100 多名共和党人一起呼吁拜登总统立即对从中国和南部边境涌入的芬太尼采取行动。 在这里阅读更多： 【附福克斯新闻报道】
-
-
-
-> Rep. Gallagher joined [@RepBryanSteil](https://twitter.com/RepBryanSteil?ref_src=twsrc%5Etfw) and more than 100 other Republicans in calling on President Biden to take immediate action on fentanyl pouring in from China and across the southern border. 
-> 
-> Read more here: [https://t.co/fgjybJDS08](https://t.co/fgjybJDS08)
-> — Rep. Gallagher Press Office (@RepGallagher) [February 10, 2022](https://twitter.com/RepGallagher/status/1491881413636935701?ref_src=twsrc%5Etfw)
-
-
+[COVID-19 Shots for Children Under 5 Years to Begin in February](https://www.newsmax.com/newsfront/covid-vaccine-children-under-5/2022/02/10/id/1056276/)
 
  
 

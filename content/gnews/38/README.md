@@ -2,34 +2,24 @@
 ---
 
 
-## 2022年2月10日 晚 新中国联邦新闻、GTV新闻访谈简报
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1987578/)
+## 宪法律师警告当局停止非法侵犯抗议者
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1987845/)
 
-作者：香草山翻译部
+加拿大温哥华杨帆农场枫叶快讯
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-4.jpg)
+采编/编译撰稿： 苦尽甜来 (文來）
+![](https://static.tnc.news/media/2022/01/website-parl-696x365.jpg)图片来源真北方
+据加拿大媒体【真北方】2月9日报道，渥太华警方正在自由车队抗议集结现场没收燃料并逮捕携带空燃料桶的卡车司机。宪法律师因此警告当局，这些恐吓或逮捕行为都是非法的。
 
+报道称，此前渥太华警方曾发出公告，任何试图为示威者提供物质支持的人都可能被逮捕。[宪法自由司法中心]的律师对此表示，为和平集会的参加者带来食物、水、燃料或其他生活物资的做法没有违反任何法律。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-9.png)
-校对：Stay文苑
+此外，警方干扰和阻碍合法使用个人财产才是非法的，将和平抗议称为刑事犯罪也是误导性和欺骗性的。而非法没收人们试图取暖的燃料将会严重危及和平抗议者的人身安全。
 
-编辑：Stay文苑
+新闻来源: [https://tnc.news/2022/02/09/constitutional-lawyers-warn-ottawa-police-to-leave-convoy-protesters-alone/](https://tnc.news/2022/02/09/constitutional-lawyers-warn-ottawa-police-to-leave-convoy-protesters-alone/)
 
-发稿：Stay文苑
+校对编辑：硫酸羟氯喹64
 
-来源：
-
-新闻：[https://gtv.org/broadcast/watch/6205bd54a1fe5e57a4267c5c](https://gtv.org/broadcast/watch/6205bd54a1fe5e57a4267c5c)
-访谈：[https://gtv.org/broadcast/watch/6205c5b6a1fe5e57a4268182](https://gtv.org/broadcast/watch/6205c5b6a1fe5e57a4268182)
-
-![calendar](https://assets.gnews.org/wp-content/uploads/2022/02/calendar-1.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+发布：青青
 
  
 

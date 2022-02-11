@@ -2,24 +2,39 @@
 ---
 
 
-## 俄罗斯与白俄罗斯开始举行军事演习
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1988148/)
+## 布林肯出席墨尔本四方会谈，应对中俄带来的威胁
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1988445/)
 
-#### 撰稿：彩虹
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-16.jpg)图片来源：CNN
-据《国会山报》2月10日报道，周四，俄罗斯和白俄罗斯开始了为期10天的军事演习，人们对俄罗斯可能入侵乌克兰的担忧加剧。
+整理：Eileen（围剿维尼熊）
+编辑：文泓
 
-俄罗斯国防部宣布，被称为“盟军决心”（Allied Resolve-2022）的军事演习将持续到2月20日。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/4-23.png)图片来源：Reuters
 
-据CNN报道，俄罗斯还将在黑海（Black Sea）和亚速海（Sea of Azov）附近进行海军演习。
 
-CNN说，2月3日，北约秘书长延斯·斯托尔滕贝格（Jens Stoltenberg）说，俄罗斯的军事集结“预计有3万名作战部队、俄罗斯特种部队、以及包括苏-35在内的战斗机、伊斯坎德（Iskander）短程弹道飞弹和S-400防空系统”。
+当地时间2月10日，根据德国之声报道，美国国务卿布林肯于2月9日抵达澳大利亚墨尔本，准备在11日与四方会谈(QUAD)的其他三国外长进行会晤。
 
-**新闻来源**
+这次墨尔本的四方会谈是第四次举行四国部长级的会议，而布林肯的到来，使他成为拜登这届政府出访澳大利亚级别最高的内阁成员。
 
-[Russia holds military drills in Belarus amid rising tensions with Ukraine](https://thehill.com/policy/international/593674-russia-holds-military-drills-in-belarus-amid-tensions-with-ukraine)
+美联社报导，布林肯此行旨在加强美国在亚洲的利益，以及对中国在该地区日益增长的强硬态度进行反击的意图。
+
+澳洲外长佩恩9日表示，布林肯国务卿飞抵澳大利亚是为了集中精力应对印太地区的严峻挑战。此次聚会是向中国传递了一个信息，那就是美国政府将印太地区的安全视为重大挑战。
+
+虽然中国将是四方会谈外长会议议程中最重要的议题，但美国官员表示，乌克兰和北京与莫斯科之间的关系也将是一个讨论的重点。
+
+布林肯预计会与盟国外长讨论俄罗斯和中国之间日益增长的伙伴关系所带来的威胁，特别是在上周普京和习近平在北京冬奥会开幕上的会晤之后。
+
+参考链接：[布林肯抵达澳 四方会谈聚焦中俄联手势力](https://www.dw.com/zh/%E5%B8%83%E6%9E%97%E8%82%AF%E6%8A%B5%E8%BE%BE%E6%BE%B3-%E5%9B%9B%E6%96%B9%E4%BC%9A%E8%B0%88%E8%81%9A%E7%84%A6%E4%B8%AD%E4%BF%84%E8%81%94%E6%89%8B%E5%8A%BF%E5%8A%9B/a-60720493)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
