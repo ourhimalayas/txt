@@ -2,47 +2,32 @@
 ---
 
 
-## 英国查尔斯王子和加拿大总督感染中共病毒
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1987141/)
+## 七哥谈利益冲突，贸易冲突（2022-02-06摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1987189/)
 
-2022-02-10
+文编：Hima
+听写：叮叮
+视频：七哥
 
-编译: 真北007
-![](https://assets.gnews.org/wp-content/uploads/2022/02/439H@ZIOSVKZ1YSB91B.png)图片来源：[Queen Elizabeth recently met with Prince Charles who is positive for COVID-19 again](https://nationalpost.com/news/world/uks-prince-charles-tests-positive-for-covid-19-for-a-second-time-5)
-来自NATIONAL POST 二月十日的新闻报道：
+来源：郭先生2022-02-06直播09:10:08摘录
 
-伊丽莎白女王最近会见了再次感染 COVID-19 的查尔斯王子
+这个时候你就可以看到Facebook、PayPal、还有华尔街大基金，战友们，你们不玩基金，你不进去，不玩过千亿百亿的买卖，你是没有资格说这个话的，你只能是流水的信息，口水信息。七哥是最有感受的，就这些基金大佬是干啥，这基金大佬玩的东西都是你们在社交媒体都看不到的。他们宁可是不要命都不舍得卖的东西，就在最近半年都在拼了命的卖。昨天我伦敦的一个哥们告诉我，他说：“Miles，我这一辈子啥都可以没有，这两样东西不能没有。一，我这个儿子，他说 “我这个儿子太棒了！” 他儿子确实很优秀，很棒。但不是做生意的啊，就是玩什么音乐玩什么事情；开跑车上去就能上手，虽然不去竞赛但很牛；建筑艺术天才都懂，就这个儿子太优秀了。他说：“这是上天给我的礼物。第二个我这个房子。” 这个房子他自己从头到尾设计十一年建造好，那个房子多少钱不卖的。他当年花了一个多亿。现在，儿子最爱的苏黎世房子也要卖，他的伦敦房子也在卖。为什么？他在美国投的基金都将面临着全面破产，不是你有选择的。更可悲的事情，他给他儿子打了三针疫苗，儿子现在半废了。所以说我最近跟他联系的时候，我说你这两样东西看来都有问题啊。他说：“房子卖了给了都是无所谓的，” 他说：“我看了儿子打三针疫苗，Miles，我是天天害怕。” 吃青蒿素听了我们的，我说一天吃一粒，一天他给儿子吃三粒饿，我说：“这把儿子会吃死的。不用疫苗弄死他，这青蒿素把他弄死了。” 那么这些经济大家，好莱坞、华尔街的所谓大佬们，有多少打了疫苗二针、三针？第三，中美之间这种从过去的所谓的利益的较量，川普没有任何心思灭共，他公开表达过多少次，我可没有心思改变它的制度灭共，绝不可以。但是跟共产党做这个deal，就是利益冲突，贸易冲突是川普干起来了，这是了不起的。
 
-君主制在加拿大的代表，总督玛丽西蒙（Mary Simon）也被检测出阳性，症状轻微
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-伦敦在宣布查尔斯王子 COVID-19 检测呈阳性，这是英国王位继承人第二次感染这种疾病。
+**关注我们**
 
-媒体还透露他最近见了他的母亲伊丽莎白女王。一位王室消息人士周四表示，这位 95 岁的君主没有出现任何症状，健康情况在监视中。
+Discord 账号
 
-73 岁的查尔斯原定参加在英国西南部小镇温彻斯特举行的活动，以纪念他的母亲伊丽莎白女王登基 70 周年，他的办公室克拉伦斯宫表示，他对不能参加“深感失望 ”。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-“今天早上，威尔士亲王的 COVID-19 检测呈阳性，现在正在自我隔离”，他办公室在 Twitter 上宣布。查尔斯的妻子卡米拉周四在伦敦检测结果为阴性。
+Gettr 账号
 
-与此同时，英国君主制在加拿大的代表，总督玛丽西蒙在推特上的一份声明中说，她周三早上的检测结果呈阳性，并且出现了轻微的症状。
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
-74 岁的西蒙说，她正在自我隔离并和休息。
-
-周三，查尔斯王子出席了英国亚洲信托基金会的招待会，照片显示他与包括英国财政部长 Rishi Sunak 和内政部长 Priti Patel 在内的其他客人聊天。
-
-财政部长的一位发言人说，这位部长周四的新冠病毒检测呈阴性。
-
-查尔斯在 12 月表示，他和卡米拉都接受了 COVID-19 疫苗加强注射，此前他在 2020 年 3 月感染过该病毒，当时他说他“幸运”，只出现了轻微症状。
-
-他的儿子威廉王子也于 2020 年在父亲染病后，立刻感染了 COVID-19。
-
-原文链接：[Queen Elizabeth recently met with Prince Charles who is positive for COVID-19 again](https://nationalpost.com/news/world/uks-prince-charles-tests-positive-for-covid-19-for-a-second-time-5)
-
-编辑：LILY
-发布：肥鯮
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,14 +2,24 @@
 ---
 
 
-## 有声|加拿大总理三剂疫苗仍確診 加國民调稱多数人望终止疫情限制
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1987116/)
+## 有声|英国调查发现 中共病毒导致员工长期病假 造成人力短缺
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1987168/)
 
 配音：香草山巡管部– 文凯琳
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9D%A1%E5%B9%85.png)
-加拿大媒体2月1日报道安格斯·里德研究所公布的一项民调结果，该研究所是专门从事加拿大舆论研究的机构。 民调显示，54%的受访者同意结束所有疫情相关的限制，另有32%的人表示强烈同意。
 
-文字版原文：[加拿大总理三剂疫苗仍確診 加國民调稱多数人望终止疫情限制](https://gnews.org/zh-hans/1949760/)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+2月8日，据外媒报道，英国特许人事与发展协会CIPD对800家组织机构进行相关调查，调查数据共包括超过430 万名员工的相关数据。调查结果显示，约26%的雇主将感染中共病毒后的长期综合症列为员工缺勤第一主因。感染中共病毒的中重度病例，即便痊愈后员工仍可能因为后遗症而丧失工作能力。
+
+目前，英国每天新增约 8万例的奥密克戎感染病例，有报导指出轻度症状在康复后，仍可能导致长期的衰弱、疲劳、脑雾和记忆问题等不良症状。
+
+截至目前，英国共报告了将近1800万确诊病例，依照国家统计局ONS的数据，共有130万人目前正受到后遗症的困扰。
+
+文字版原文：[英国调查发现 中共病毒导致员工长期病假 造成人力短缺](https://gnews.org/zh-hans/1982689/)
 
 音频处理/发稿：Daxia
 
@@ -22,6 +32,8 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

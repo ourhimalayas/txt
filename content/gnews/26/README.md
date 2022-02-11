@@ -2,33 +2,31 @@
 ---
 
 
-## 18万3103例：俄罗斯新冠确诊病例再创单日新高
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1986725/)
+## 七哥谈美国、俄罗斯与中国的交流（2022-02-06摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1987112/)
 
-整理：Sara9
-编辑：Little Lamp
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-02-下午10.11.59-5.png)
-欧新社报道，俄国疫情持续居高不下，9日又创下新冠肺炎爆发以来该国单日感染病例增幅最大纪录。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-[Omicron](https://udn.com/search/tagging/2/Omicron)持续传播，[俄罗斯](https://udn.com/search/tagging/2/%E4%BF%84%E7%BE%85%E6%96%AF)9日新增18万3103例确诊，再创单日最大增幅纪录，累计病例达1333万769例，另新增669人病故，累计33万7390例。
+来源：郭先生2022-02-06直播08：56：32摘录
 
-俄国防疫指挥部表示，圣彼得堡在过去24小时内新增感染人数最高，达1万9644例，之后为莫斯科州的1万1956例与莫斯科市的1万1521例。
+给大家分享一个最重要的，你看到美国的经济啊，大家要记住，你看我们中国当时我一再说，当时派到中国去的这个“盛茂昭”就是第一个到中国去做生意的，你看他在美国博物馆里面，大家网上都能查到，他对中国人的整个论述，包括蒲安臣、包括后来咱大家记住那个叫什么？美国最有名的一个罗斯福关于中国的所谓人性的报告，不是人权，是人性，就是人的行为习惯的报告。包括福布斯，福布斯这个有名的“福布斯家族”是最早在中国做生意的，专门对中国的陈述。而且里边儿都说到：中国和美国人民一旦好在一起，两国人民的优缺点相互补偿，两国人民的大陆国家和海洋国家的这种结合地理优势，和中国的人口勤劳、文明的这种优势，美国的新国家优势，这个世界就平安、和平，然后多么的美好。就是这个在历史上，刚才亨利小哥说的那句话说得对，就是不知道、谁也搞不懂，到底中共是魔怔了？是个人被威胁了被俄罗斯？这怎么爱上了俄爹？从来没带来过好处。就刚才我说那些原因之外，还有一个就是俄罗斯是世界上对抓住政治把柄、政治黑社会是全人类第一，没有喊第二的。当然了，共产党所有在俄罗斯搞武器交易没有不拿巨额回扣的，你跟俄罗斯做这种石油贸易交易没有不拿回扣的。而美国人跟中国人是做为文化交流、精神交流、绝对的实际利益交流。
 
-俄国联邦消费者权益保护暨福利监督署负责人波波娃8日指出，全俄84个地区感染率有所增加，但莫斯科有所下降。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-全球媒体都在报道[Omicron](https://udn.com/search/tagging/2/Omicron)的死亡率很低，但数据仍然表明全球各地死亡人数依旧在增加。其引发的世界各地医疗瘫痪也不容小觑。
+**关注我们**
 
-《圣经》上说的好，人若赚得全世界，赔上自己的性命，有什么益处呢？人还能拿什么换取生命呢？
+Discord 账号
 
-文章来源：[Omicron持續傳播！俄羅斯再飆18萬3103例確診 又創新高](https://udn.com/news/story/121707/6086546?from=udn-catebreaknews_ch2)
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-发布：tianzhihuan
+Gettr 账号
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

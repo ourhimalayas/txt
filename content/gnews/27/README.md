@@ -2,57 +2,30 @@
 ---
 
 
-## 中国亿万富翁郭文贵在伦敦对瑞银的5亿美元诉讼可以继续进行
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1986718/)
+## 英国王储查尔斯再次感染新冠病毒
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1987111/)
 
-整理：Sara9
-编辑：Little Lamp
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-02-下午10.11.59-5.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Unknown-12.jpg)英国王储查尔斯再次感染新冠病毒 网络图片
+据澎湃新闻2月10日报道，继2020年3月感染新冠病毒并康复之后，英国克拉伦斯宫10日宣布，英国王储查尔斯新冠病毒检测再次呈阳性，已经开始自我隔离。
 
-```
-雅虎财经报道，伦敦的一名法官裁定，流亡的中国亿万富翁郭文贵就 2015 年追加保证金对瑞银提起的 5 亿美元诉讼可以在英国进行。
-```
+查尔斯是英国女王伊丽莎白二世的长子，英国王位继承人。查尔斯和妻子均已接种过新冠疫苗加强针。查尔斯9日参加了一场招待会，包括查尔斯在内的英国财政大臣、卫生大臣和内政大臣等官员均没有佩戴口罩。
 
+新冠大流行爆发以来，上至总统、总理、王储、将军，下至任何一位普通公民，人人都在病毒的威胁之中，没有人能够幸免。查尔斯王储拥有专业的保护措施和医疗团队，并且接种了加强针疫苗，依然两次感染病毒。这充分证明了疫苗既不能产生有效的抗体，也不能阻止病毒的传播，但大部分国家还在强制推行疫苗，并且是动用国家力量在推动，这背后暗藏的玄机势必会引起惊天的震撼。新中国联邦第一个爆料病毒起源和疫苗灾难，等待世界清醒，共同揭开这个玄机。
 
+新闻参考链接：[https://www.thepaper.cn/newsDetail\_forward\_16644817](https://www.thepaper.cn/newsDetail_forward_16644817)
 
-```
-这家瑞士投资银行曾试图以管辖权为由驳回此案，但高等法院法官 Sara Cockerill 周三裁定该诉讼可以继续进行。
-```
+* * *
 
-
-
-```
-“瑞银是交易结构的关键部分，”科克里尔法官在裁决中写道。 “所依赖的错误陈述是关于瑞银伦敦分行的政策。这种说法存在于他被告知的有关伦敦分行的政策和意图的内容与这些政策的实际内容之间存在脱节。”
-```
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-```
-郭去年在英国起诉瑞银，指控这家投资银行向他施压，要求他借钱购买中国券商海通证券的股份。
-```
-
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
-```
-郭在2014年逃离中国，2017年在美国定居，此前他与北京就他的企业和政治活动进行了斗争。他因涉嫌欺诈和洗钱而在他的祖国中国面临起诉。他声称，在 2015 年海通在香港的股票市场下跌的情况下，瑞银强迫他出售股票后，他对海通的投资基本上被抹杀了。
-```
-
-
-
-```
-郭声称，瑞银建议他通过中介组织交易以避免违反披露门槛，中介最终在 2015 年股票出售后将损失转嫁给了他。
-```
-
-
-文章来源[Chinese billionaire Guo Wengui’s US$500 million lawsuit in London against UBS can proceed](https://finance.yahoo.com/news/chinese-billionaire-guo-wenguis-us-093000057.html)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

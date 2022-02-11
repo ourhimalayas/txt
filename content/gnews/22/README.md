@@ -2,41 +2,47 @@
 ---
 
 
-## 通货膨胀年率飙升 7.5%，1982 年以来的最高水平
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1986866/)
+## 英国查尔斯王子和加拿大总督感染中共病毒
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1987141/)
 
-**译评：Elli**
+2022-02-10
 
-2022年1 月份所有项目的消费者价格指数上涨 0.6%，将年度通胀率推高至 7.5%。这是自 1982 年 2 月以来的最大涨幅，核心通胀上升 6%，甚至高于华尔街预估。考虑到通货膨胀因素，当月工人的实际收入仅增长了 0.1%。每周申请失业救济人数下降至 223,000 人，低于预期的 230,000 人。
+编译: 真北007
+![](https://assets.gnews.org/wp-content/uploads/2022/02/439H@ZIOSVKZ1YSB91B.png)图片来源：[Queen Elizabeth recently met with Prince Charles who is positive for COVID-19 again](https://nationalpost.com/news/world/uks-prince-charles-tests-positive-for-covid-19-for-a-second-time-5)
+来自NATIONAL POST 二月十日的新闻报道：
 
-过去 12 个月，消费者价格涨幅超过预期，表明通胀前景恶化，并加深了美联储今年大幅加息的可能性。
+伊丽莎白女王最近会见了再次感染 COVID-19 的查尔斯王子
 
-美国劳工部周四报告称，衡量数十种日常消费品成本的 1 月份消费者价格指数与一年前相比上涨了 7.5%。相比之下，受到密切关注的通胀指标道琼斯估计为 7.2%。 这是自 1982 年 2 月以来的最高读数。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1059.png)消费者指数，图片来源：[Bureau of Labor Statistics/CNBC](https://www.cnbc.com/2022/02/10/january-2022-cpi-inflation-rises-7point5percent-over-the-past-year-even-more-than-expected.html)
-报告发布后，股市期货下跌，对利率敏感的科技股受到的打击尤其严重。 政府债券收益率大幅上涨，基准 10 年期美国国债收益率触及 2%，为 2019 年 8 月以来的最高水平。
+君主制在加拿大的代表，总督玛丽西蒙（Mary Simon）也被检测出阳性，症状轻微
 
-市场对未来加息的定价也变得更加激进。
+伦敦在宣布查尔斯王子 COVID-19 检测呈阳性，这是英国王位继承人第二次感染这种疾病。
 
-根据芝加哥商品交易所的数据，3 月份美联储加息 0.5 个百分点的可能性在数据发布后升至 44.3%，而此前为 25%。 今年加息六分之一个百分点的可能性上升至约 63%，而发布前约为 53%。
+媒体还透露他最近见了他的母亲伊丽莎白女王。一位王室消息人士周四表示，这位 95 岁的君主没有出现任何症状，健康情况在监视中。
 
-按百分比计算，燃料油2022年 1 月份涨幅最大，飙升 9.5%，同比增长 46.5%。 本月能源成本总体上涨 0.9%，同比上涨 27%。
+73 岁的查尔斯原定参加在英国西南部小镇温彻斯特举行的活动，以纪念他的母亲伊丽莎白女王登基 70 周年，他的办公室克拉伦斯宫表示，他对不能参加“深感失望 ”。
 
-美国凯投宏观（Capital Economics）资深经济学家Andrew Hunter表示，本月食品成本上涨 0.9%，相比过去一年上涨 7%。食品和住房价格上涨的这种结合“突显了我们的观点，即通货膨胀正在迅速周期性加速，并且是在劳动力市场条件异常紧张的情况下”。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1058.png)主要股指2022年2月10日变化，截止至2022年2月10日5.05pm EST. 图片来源：[CNBC](https://www.cnbc.com/markets/)
-**评：**文贵先生在大直播中强调**面包**和**汽油**的价格对美国经济稳定至关重要，不论穷人富人，这两样都是必须支出。今天发布的7.5%的高通胀率让股市震荡但又在我们的预计之中。相比之下，以比特币为代表的加密货币今早涨至区域高点45600美金，开始与股票等风险资产脱钩，并作为对冲通货膨胀的金融资产被市场认购。金融危机进一步加深之际，市场上除了喜币和G系列，所有资产包括贵金属，加密货币都可能短期剧烈下跌，但之后的反弹也是快速的。
+“今天早上，威尔士亲王的 COVID-19 检测呈阳性，现在正在自我隔离”，他办公室在 Twitter 上宣布。查尔斯的妻子卡米拉周四在伦敦检测结果为阴性。
 
-**原文链接：**
-[Inflation surges 7.5% on an annual basis, even more than expected and highest since 1982. CNBC.](https://www.cnbc.com/2022/02/10/january-2022-cpi-inflation-rises-7point5percent-over-the-past-year-even-more-than-expected.html)
+与此同时，英国君主制在加拿大的代表，总督玛丽西蒙在推特上的一份声明中说，她周三早上的检测结果呈阳性，并且出现了轻微的症状。
 
-**编辑：LILY**
+74 岁的西蒙说，她正在自我隔离并和休息。
 
-**发布：MQ**
+周三，查尔斯王子出席了英国亚洲信托基金会的招待会，照片显示他与包括英国财政部长 Rishi Sunak 和内政部长 Priti Patel 在内的其他客人聊天。
 
-20220210
+财政部长的一位发言人说，这位部长周四的新冠病毒检测呈阴性。
+
+查尔斯在 12 月表示，他和卡米拉都接受了 COVID-19 疫苗加强注射，此前他在 2020 年 3 月感染过该病毒，当时他说他“幸运”，只出现了轻微症状。
+
+他的儿子威廉王子也于 2020 年在父亲染病后，立刻感染了 COVID-19。
+
+原文链接：[Queen Elizabeth recently met with Prince Charles who is positive for COVID-19 again](https://nationalpost.com/news/world/uks-prince-charles-tests-positive-for-covid-19-for-a-second-time-5)
+
+编辑：LILY
+发布：肥鯮
 
 更多资讯请关注：
 [温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3-4.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
