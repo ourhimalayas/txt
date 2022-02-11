@@ -2,39 +2,46 @@
 ---
 
 
-## 布林肯出席墨尔本四方会谈，应对中俄带来的威胁
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1988445/)
+## 加拿大卡车司机抗议影响边境口岸 白宫忧危及供应链
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1988603/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
-
-整理：Eileen（围剿维尼熊）
-编辑：文泓
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/4-23.png)图片来源：Reuters
+作者：纽约香草山教育部—Naughty(文行)
 
 
-当地时间2月10日，根据德国之声报道，美国国务卿布林肯于2月9日抵达澳大利亚墨尔本，准备在11日与四方会谈(QUAD)的其他三国外长进行会晤。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-13.png)
+加拿大反对中共病毒限制措施的卡车司机抗议活动目前已扩散到安大略省温莎以及埃布尔达省库茨的美加边界口岸。连接安大略省温莎市和底特律的大使大桥在7日被双向卡车封锁。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/5e7e9c4ec3bee942.png)
+温莎与美国底特律间的大使大桥是美国和加拿大之间的重要商业纽带，通常每天有8000辆卡车通过，占美加所有跨边界贸易的1/4，每天大量汽车零件从加拿到运往美国。
 
-这次墨尔本的四方会谈是第四次举行四国部长级的会议，而布林肯的到来，使他成为拜登这届政府出访澳大利亚级别最高的内阁成员。
+白宫发言人莎琪表示，支持加拿大人言论自由，但也警告封锁大桥会使美国供应链面临压力，可能很快对经济产生负面影响。莎琪强调这种情况将导致汽车制造商和其他库存减少的制造商面临停产和其他困难。 她指出，美国总统拜登十分关注此事，也与国土安全部、加拿大官员与相关行业保持密切联系，尽所能减轻影响。
 
-美联社报导，布林肯此行旨在加强美国在亚洲的利益，以及对中国在该地区日益增长的强硬态度进行反击的意图。
+莎琪表示，支持和平示威抗议，但当抗议演变成暴力就会引发两国政府的担忧。加拿大与美国各方都必须了解封锁对劳工与供应链的潜在影响，这是我们最关注的问题。
 
-澳洲外长佩恩9日表示，布林肯国务卿飞抵澳大利亚是为了集中精力应对印太地区的严峻挑战。此次聚会是向中国传递了一个信息，那就是美国政府将印太地区的安全视为重大挑战。
 
-虽然中国将是四方会谈外长会议议程中最重要的议题，但美国官员表示，乌克兰和北京与莫斯科之间的关系也将是一个讨论的重点。
 
-布林肯预计会与盟国外长讨论俄罗斯和中国之间日益增长的伙伴关系所带来的威胁，特别是在上周普京和习近平在北京冬奥会开幕上的会晤之后。
+参考来源：
 
-参考链接：[布林肯抵达澳 四方会谈聚焦中俄联手势力](https://www.dw.com/zh/%E5%B8%83%E6%9E%97%E8%82%AF%E6%8A%B5%E8%BE%BE%E6%BE%B3-%E5%9B%9B%E6%96%B9%E4%BC%9A%E8%B0%88%E8%81%9A%E7%84%A6%E4%B8%AD%E4%BF%84%E8%81%94%E6%89%8B%E5%8A%BF%E5%8A%9B/a-60720493)
+[Canada trucker protest – live: Automakers seek injunction to clear bridge as US warns of Super Bowl copycat](https://www.independent.co.uk/news/world/americas/canada-truckers-convoy-latest-trudeau-biden-b2012759.html)
 
-*发布：tianzhihuan*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-28.jpg)
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+编辑/校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-14.png)
+
 
  
 

@@ -2,8 +2,8 @@
 ---
 
 
-## 习近平的冬奥开幕式相由心生充满了恐惧
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1988657/)
+## 习近平的冬奥开幕式共产党已成孤家寡人
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1988746/)
 
 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王
 视频定位：BENJ1，WEI
