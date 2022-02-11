@@ -2,32 +2,30 @@
 ---
 
 
-## 2022/02/10 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1991335/)
+## NFSC新闻、G|TV新闻访谈简报|2022年2月11日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1991465/)
 
-1. 2月9日，广西百色市中共政府通报新增180例新冠病毒确诊病例。被封城后的广西百色是军管的状态，市民自由出行大大受限，唯有警车畅行的身影。
-2. 2月9日，香港市民连夜排队做核酸检测。失去自由民主法制的香港，在中共中央政府的控制之下已与大陆无异。
-3. 中共的社区管理模式是区域化监控人民的有生力量。视频为社区运动式宣传中共中央禁放烟花爆竹的政策。
-4. 2月7日，河南郑州。春节后号称“全球最大医院”的郑州大学附属医院人山人海堪比春运，就诊患者排队排到崩溃。
-5. 就诊大厅外的排队患者众多，维持现场秩序保安在呼叫同事增援。
-6. 2月2日，在赞比亚投资矿山的的中国投资者遭到当地酋长强行抢沙。海外华人在外遇不公正的待遇，并不会如中国共产党宣传的那样有国家在身后。恰恰相反，中共并不会真正在乎普通华人的利益。 中国人≠中国共产党！
-7. 2月8日，湖北武汉。金融港一路附近共享单车堆积成灾。“霸占”斑马线，“包围”红绿灯，行人过路犹如“障碍赛”。
-8. 2月9日，中共国大陆经济凋零，年后恐将又会迎来一大批实体店铺的倒闭潮。
-9. 2月9日，广东做衣服的低价村，每天有几万人在这里流浪等待工厂招聘。
-10. 2月7日，江苏沛县。民政局员工春节节后第一天去上班，不料离婚业务申请爆满，导致服务器系统崩溃异常。
-11. 2月8日，河南。年后父母离家务工，被迫留守的孩子在家门口哭的撕心裂肺。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO.jpg)
 
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-10.png)
+文章仅代表作者本人观点，与Gnews无关
 
-* * *
+视频参看：
+[2022.02.11早 《NFSC新闻》](https://gtv.org/video/id=620664a7a1fe5e57a426ce59)
+[2022.02.11早 G|TV《新闻访谈》](https://gtv.org/video/id=62066d61a1fe5e57a426dc0d)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar.png)
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

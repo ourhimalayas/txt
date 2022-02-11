@@ -2,8 +2,8 @@
 ---
 
 
-## 谷爱凌今天有多出名，未来就有多惨
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1992161/)
+## 七哥绝不伸手 要战友捐一分钱
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1992222/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

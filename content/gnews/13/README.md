@@ -2,22 +2,20 @@
 ---
 
 
-## 【G时新闻】阿尔伯塔成为加拿大第二个取消疫苗护照的省
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/1992019/)
+## 冬奥会事儿多了
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1992115/)
 
-加拿大温哥华扬帆农场；播报：yuyu；视频制作: Geacelshan
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-据加拿大媒体后千禧年2月8日报导，继萨省宣布于2月14日停止疫苗护照和在本月底取消配戴口罩规定的数小时后，阿尔伯塔省宣布成为加拿大第二个结束疫苗护照的省份。
+*发布：陶子*
 
-报导称，阿省疫情内阁委员会当天批准了一项逐步取消疫情限制的谨慎计划。以废除疫苗护照则首当其冲，并试图以此让该省居民摆脱疫情的困扰，尽快恢复正常的生活。
-
-据悉，该计划于2月9日首先废除疫苗护照及限制豁免规定。2月14日将在所有公共场合取消对12岁及以下儿童和所有在校学生配戴口罩的要求。
-
-并将于3月1日在疫情趋缓的条件下，取消所有室内配戴口罩的要求，之后将最终停止包括强制隔离规定在内的所有防疫措施。
-
-听写/翻译：LuLu1312
-字幕：圣骑士
-编辑/上传：圣骑士
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
