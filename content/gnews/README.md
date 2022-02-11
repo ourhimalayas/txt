@@ -15,110 +15,110 @@
 
 ---
 
-### [有声|加拿大总理三剂疫苗仍確診 加國民调稱多数人望终止疫情限制](/content/gnews/1/README.md)
+### [有声|美司法部刑事指控中共企业盗取美国技术](/content/gnews/1/README.md)
  ` MOSREC`
 
-### [七哥谈美国、俄罗斯与中国的交流（2022-02-06摘录）](/content/gnews/2/README.md)
+### [美国会共和党人提出《制裁中共法》 全面锁定中共官员及其亲属](/content/gnews/2/README.md)
+ ` 日本东京方舟农场`
+
+### [七哥谈中共伤害全世界挑战全人类（2022-02-06摘录）](/content/gnews/3/README.md)
  ` MG FARM`
 
-### [英国王储查尔斯再次感染新冠病毒](/content/gnews/3/README.md)
+### [有声|共产党是否定历史主义者-六四事件](/content/gnews/4/README.md)
+ ` MOSREC`
+
+### [七哥谈利益冲突，贸易冲突（2022-02-06摘录）](/content/gnews/5/README.md)
+ ` MG FARM`
+
+### [有声|日本皇室爆出首例中共病毒确诊](/content/gnews/6/README.md)
+ ` MOSREC`
+
+### [七哥说“中国这个国家成了冒险家的乐园”（2022-02-06摘录）](/content/gnews/7/README.md)
+ ` MG FARM`
+
+### [有声|英国调查发现 中共病毒导致员工长期病假 造成人力短缺](/content/gnews/8/README.md)
+ ` MOSREC`
+
+### [魁北克省勒戈（Legault）政府指责反对党纵容示威者的武装](/content/gnews/9/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [七哥谈所谓全球化（2022-02-06摘录）](/content/gnews/10/README.md)
+ ` MG FARM`
+
+### [有声|美共和党议员敦促收紧对中芯国际的出口限制](/content/gnews/11/README.md)
+ ` MOSREC`
+
+### [英国查尔斯王子和加拿大总督感染中共病毒](/content/gnews/12/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [有声|土耳其中共病毒感染當日确诊首度超過10万，与疫苗接种率同创新高](/content/gnews/13/README.md)
+ ` MOSREC`
+
+### [七哥谈文化上的冲突和互补（2022-02-06摘录）](/content/gnews/14/README.md)
+ ` MG FARM`
+
+### [有声|加拿大总理三剂疫苗仍確診 加國民调稱多数人望终止疫情限制](/content/gnews/15/README.md)
+ ` MOSREC`
+
+### [七哥谈美国、俄罗斯与中国的交流（2022-02-06摘录）](/content/gnews/16/README.md)
+ ` MG FARM`
+
+### [英国王储查尔斯再次感染新冠病毒](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|北京冬奥临近，COVID病例增加，中共甩锅外来参赛人员](/content/gnews/4/README.md)
+### [有声|北京冬奥临近，COVID病例增加，中共甩锅外来参赛人员](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [有声|美议员批评白宫使用中共来源的检测试剂](/content/gnews/5/README.md)
+### [有声|美议员批评白宫使用中共来源的检测试剂](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [有声|佛像系列：穿着美丽的衣裳，追求着自由的生活](/content/gnews/6/README.md)
+### [有声|佛像系列：穿着美丽的衣裳，追求着自由的生活](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [有声|冬奥前夕 京城疫情有加重迹象](/content/gnews/7/README.md)
- ` MOSREC`
-
-### [广西宾阳教育局疯狂的中共病毒疫苗清零政策](/content/gnews/8/README.md)
- ` 波士顿五月花农场金融部`
-
-### [2/10/2022 文贵盖特：中共不尊重规则、法律、道德，冬奥会对运动员和自然环境造成了巨大的伤害，中共绑架的中国人要怎么才能得到西方的尊重呢？](/content/gnews/9/README.md)
- ` 秘密翻译组-北美组`
-
-### [新西兰：自由车队成功地在怀唐伊日出发](/content/gnews/10/README.md)
+### [新西兰：自由车队成功地在怀唐伊日出发](/content/gnews/21/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [有声|2022 – “好好活着”的7大妙招](/content/gnews/11/README.md)
- ` MOSREC`
-
-### [徐州八孩母亲事件看中共的邪恶本性](/content/gnews/12/README.md)
- ` 秘密翻译组-原创组`
-
-### [新中国联邦第一件事就是让中国人有信仰的自由](/content/gnews/13/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [财富管理专栏：放入信托的资产必须是税后吗？](/content/gnews/14/README.md)
- ` 加拿大温哥华扬帆农场蓝枫法律`
-
-### [2/9/2022 文贵直播：有多少中共外交部口口声声说要来冬奥会的外国领导人放了鸽子？中共竟拿着老百姓的血汗钱去维系中美关系回暖的假象](/content/gnews/15/README.md)
- ` 秘密翻译组-北美组`
-
-### [我们是天天往上走，共产党是天天往下走](/content/gnews/16/README.md)
- ` 雅典娜GNotes`
-
-### [个人生活改变更加坚定灭共](/content/gnews/17/README.md)
- ` 雅典娜GNotes`
-
-### [共匪不灭水不断流，直播绝不中断](/content/gnews/18/README.md)
- ` 雅典娜GNotes`
-
-### [通货膨胀年率飙升 7.5%，1982 年以来的最高水平](/content/gnews/19/README.md)
+### [通货膨胀年率飙升 7.5%，1982 年以来的最高水平](/content/gnews/22/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [关于排华&#8211;三个地区最危险](/content/gnews/20/README.md)
- ` 雅典娜GNotes`
-
-### [关于排华&#8211;华人在加拿大起诉大卡车司机](/content/gnews/21/README.md)
- ` 雅典娜GNotes`
-
-### [匈牙利科学家通过基因序列发现中共病毒实验室来源又一证据](/content/gnews/22/README.md)
+### [匈牙利科学家通过基因序列发现中共病毒实验室来源又一证据](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [西媒头条 — 第170期 – 西媒看天朝](/content/gnews/23/README.md)
+### [西媒头条 — 第170期 – 西媒看天朝](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [疫苗研究人员承认刺突蛋白是危险毒素](/content/gnews/24/README.md)
+### [疫苗研究人员承认刺突蛋白是危险毒素](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
-### [18万3103例：俄罗斯新冠确诊病例再创单日新高](/content/gnews/25/README.md)
+### [18万3103例：俄罗斯新冠确诊病例再创单日新高](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中国亿万富翁郭文贵在伦敦对瑞银的5亿美元诉讼可以继续进行](/content/gnews/26/README.md)
+### [中国亿万富翁郭文贵在伦敦对瑞银的5亿美元诉讼可以继续进行](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国保守党众议员提案制裁数千名中共官员](/content/gnews/27/README.md)
+### [美国保守党众议员提案制裁数千名中共官员](/content/gnews/28/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [陈全国进核心,江派曾派靠边站,二十大习曾对决提前登场](/content/gnews/28/README.md)
- ` mary202064`
-
-### [马克龙在莫斯科遇到了更强硬的普京](/content/gnews/29/README.md)
- ` Shuizhuyu`
-
-### [美国消费者价格创下 40 年来最大年度涨幅](/content/gnews/30/README.md)
- ` Shuizhuyu`
-
-### [一家有中资背景的媒体公司在美国的暗箱操作](/content/gnews/31/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [通货膨胀率创40年新高](/content/gnews/32/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [最近与女王会面的查尔斯王子中共病毒检测阳性](/content/gnews/33/README.md)
+### [瑞银法院的裁决危及全球所有银行](/content/gnews/29/README.md)
  ` mayflowertranslate`
 
-### [近千名医生账户因揭露中共病毒真相遭大科技公司审查](/content/gnews/34/README.md)
+### [陈全国进核心,江派曾派靠边站,二十大习曾对决提前登场](/content/gnews/30/README.md)
+ ` mary202064`
+
+### [马克龙在莫斯科遇到了更强硬的普京](/content/gnews/31/README.md)
+ ` Shuizhuyu`
+
+### [美国消费者价格创下 40 年来最大年度涨幅](/content/gnews/32/README.md)
+ ` Shuizhuyu`
+
+### [一家有中资背景的媒体公司在美国的暗箱操作](/content/gnews/33/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [通货膨胀率创40年新高](/content/gnews/34/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [网络监管机构为科技巨头制定发展战略](/content/gnews/35/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [最近与女王会面的查尔斯王子中共病毒检测阳性](/content/gnews/35/README.md)
+ ` mayflowertranslate`
 
 ### [樱花头条┃美提最严厉制裁案 锁定中共人大官员及家属](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

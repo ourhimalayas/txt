@@ -2,21 +2,28 @@
 ---
 
 
-## 共匪不灭水不断流，直播绝不中断
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1986875/)
+## 有声|北京冬奥临近，COVID病例增加，中共甩锅外来参赛人员
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1987107/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+配音：香草山巡管部– 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
+自从疫情爆发以来，中共政府从未对内对外公布感染病毒及死亡的真实数字。随着冬奥开幕尽在咫尺，中共开始甩锅外来参赛人员。
 
-*发布：陶子*
+据路透社北京1月31日的—篇报道，在过去的四天里，在参与北京冬奥会的运动员和工作人员中发现了119例COVID-19病例。冬奥会组织者周一表示，周末的统计结果显示，周日有37个新病例，周六有34个，大多数人在抵达机场后检测出阳性。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+文字版原文：[北京冬奥临近，COVID病例增加，中共甩锅外来参赛人员](https://gnews.org/zh-hans/1949654/)
 
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

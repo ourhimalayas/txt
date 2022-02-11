@@ -2,22 +2,22 @@
 ---
 
 
-## 有声|佛像系列：穿着美丽的衣裳，追求着自由的生活
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1987074/)
+## 有声|日本皇室爆出首例中共病毒确诊
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1987182/)
 
 配音：香草山巡管部– 文凯琳
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
 
 
-G-Fashion最新推出的佛像系列展现出中世纪西藏的神奇和美景，该系列的灵感可能来自于藏传佛教寺庙中有着数百甚至上千年历史的壁画，其优质面料再一次体现了品牌的舒适感和以人为本的品味。
+2月8日，日本大正天皇的曾孙女，瑶子女王被确诊感染中共病毒，这是日本皇室首例感染病例。瑶子女王，7日出现喉咙痛等症状，宫内厅医生到其住所进行PCR检测后确诊感染，当晚住进宫内厅医院接受隔离治疗。
 
-带有现代感的时尚睡衣单品和套件是该系列中的一大亮点。精美的、意大利手工制作的黑色袖口和腰带为原本优雅的长袍瞬间平添了几分强悍的气势。另外，这条精美的长袍由于具有轻松的垂坠感和合体的剪裁， 竟然也很适合作为裹身式连衣裙 (wrap dress)，美美地修饰出模特凹凸有致的身材。只需简单配上一双细高跟凉鞋和一个大胆的彩嘴，穿着者一定会是人群中的亮点。另外，当和简单的白色小吊带和蓝色牛仔裤搭配在一起时，整个造型又会变得清爽和别致。
+目前，宫内厅尚未公布皇室的疫苗接种情况，但根据有关人士透漏，皇室成员除99岁高龄的三笠公主百合子以外，65岁以上的皇室成员均已于本月2日完成第三次中共病毒疫苗接种。但本消息并未经过官方证实。
 
-文字版原文：[佛像系列：穿着美丽的衣裳，追求着自由的生活](https://gnews.org/zh-hans/1953560/)
+文字版原文：[日本皇室爆出首例中共病毒确诊](https://gnews.org/zh-hans/1982876/)
 
 音频处理/发稿：Daxia
 
@@ -30,8 +30,6 @@ G-Fashion最新推出的佛像系列展现出中世纪西藏的神奇和美景�
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
