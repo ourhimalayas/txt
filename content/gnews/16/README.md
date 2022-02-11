@@ -2,26 +2,27 @@
 ---
 
 
-## 中共极度畏惧新中国联邦喜币
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1990443/)
+## 新西兰反疫苗集会遭警方镇压
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1990447/)
 
-作者：纽约香草山农场 – 恩永存
+作者：纽约磐石农场 – 在远方
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生在2月9日的大直播中再次谈到了喜币的威力。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3-27.jpg)
-郭先生透露，中共最怕墙内民众知道他们金钱走向的来龙去脉，更妄想控制中国所有的财富。为此，他们实行媒体管制，删除对其不利的消息；大搞网络封锁，不让民众了解墙外真相；控制银行，阻止民众将资金汇入喜联储。
+台媒报道，当地时间2月10日，新西兰反强制疫苗抗议者在国会外，遭到警方暴力镇压，目前已有超过120人被捕。
 
-但郭先生补充道，喜币和喜美元如今打破了中共独裁体制对银行中介的禁锢，让全球民众有了与喜联储沟通的新渠道。此外，他们可以合理合法地避税，还能不受控制地自由花钱，更能不受限制且无费用地转移资金并快速到账。更为重要的是，喜币和喜美元未来必将成为全球通用的货币。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3-28.jpg)
 
-郭先生解释道，人民有了私产，才能有独立人格；有了独立人格，才会有独立思想。有远见卓识的中国人都已了然，人民币将一文不值，最好的办法是将手中的人民币换成喜美元与喜币。因此，新中国联邦已然成为中共最惧怕的力量。
+据悉，这场抗议活动始于2月8日，抗议民众效仿加拿大“自由车队”行动，驾驶数百辆半挂式卡车和露营车，占据了首都惠灵顿市中心的街道。数百名坚定的示威者3天以来仍然留在现场，并表示不会撤离。当警方试图在国会草坪清除临时帐篷时，与跳着毛利人传统舞蹈的示威民众发生了肢体冲突，并逮捕了许多抗议者。
 
-参考链接：[Watch MILES GUO live on GETTR2022年2月9日 文贵大直播：习普政治困局；中美俄三角斗；药厂政策调整；药厂政府互掐；何为全球货币；七哥个人生活](https://gettr.com/post/ptgw8b5f32)
+据了解，新西兰政府规定，在卫生、执法、教育和国防部门的工作人员，必须强制接种中共病毒疫苗，否则将面临解雇。而民众要进入餐馆、观看体育赛事和进入宗教场所，也必须出示疫苗接种证明。
+
+参考链接：
+
+- [紐西蘭反疫苗示威紮營國會外 警方清場逮逾120人](https://cn.rti.org.tw/news/view/id/2124205)
+
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-总编： Ivy001
-编辑： 静言
-校正/发稿：Fei797
+编辑/校对/发稿：海阔天空1
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -30,8 +31,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

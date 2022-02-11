@@ -2,43 +2,26 @@
 ---
 
 
-## 加拿大各省正在取消限制和疫苗护照
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1990448/)
+## 2022.2.11大直播 冬奥会谷爱玲事件给全球华人敲响警钟
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1990518/)
 
-作者：加拿大温哥华扬帆农场 – Spirit
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-加拿大保守党议员皮埃尔-波里耶夫（Pierre Poilievre) 于2月8日发推称“自由正在获胜”！
+撰稿：大浪小水花
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-45.png)
-
-推文写道“各省正在取消限制和疫苗护照，自由党议员莱特邦德（Joel Lightbound） 谴责了特鲁多的恶毒和控制暴政“。
-
-“请在我的请愿书上签字，以结束疫苗强制、疫苗护照和封锁限制限制“。
-
-随后他又发出推文和视频说：“ 阿尔伯塔省于今晚午夜取消疫苗护照！我们正在胜利的路上，继续加油”！
-
-皮埃尔-波里耶夫是加拿大政治家，自 2004 年以来一直担任国会议员。 作为保守党成员，他目前代表渥太华地区的卡尔顿选区。
-
-他于2月5 日宣布竞选加拿大总理。
-
-参考链接：
-
-- [BREAKING: Freedom is winning.](https://twitter.com/PierrePoilievre/status/1491179433033879553)
-- [BREAKING: Vaccine passports gone at midnight in Alberta.](https://twitter.com/PierrePoilievre/status/1491241931103481857)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-11-at-9.30.44-PM.jpeg)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+郭文贵先生在2022年2月11日大直播中特别提到了谷爱凌事件。
 
-编辑：zhong
-校对/发稿：海阔天空1
+郭先生谈到，谷爱凌把一个养她长大的美国玩弄于股掌之中，把美国人当傻子，一边讨好中共，一边骂美国黑美国，这种做法所有有民主制度的国家都会反对。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭先生指出谷爱凌这幅嘴脸和小聪明，这种不懂得感恩、无法无天，完全造假，公然撒谎、支持BLM，是完全的利己主义，投机主义，她让全世界看清了共产党洗脑统治下的中国人没有信仰、虚伪、自私、卑鄙。
+
+郭先生强调，谷爱凌母女一定会付出巨大的代价，谷爱凌她今天的赢绝对是她灾难的开始。她现在给中国人拉的仇恨，她祖宗万辈都无法赎罪。她不仅引起了日韩跟华人的对立，还引起了全世界的华人、亚裔人跟西方世界对立。
+
+郭先生提醒海外战友，现在整个西方世界正在暗藏着一股势力，就是反华、反亚裔。谷爱凌在冬奥会的所作所为引起全球的不满和愤怒，是对海外华人的巨大伤害，是对孩子的巨大威胁，是华人一生的侮辱，谷爱凌母女给全世界华人敲响了警钟。
+
+参考链接：[2022.2.11文贵大直播](https://gtv.org/broadcast/watch/62065c00a1fe5e57a426b9e2)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,38 +2,43 @@
 ---
 
 
-## 郭先生爆料冬奥开幕式再打脸中共之前宣传
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1990446/)
+## 文•贵天成——文贵先生谈“普京”（一）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1990454/)
 
-作者：日本方舟农场 – Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在2月9日《文贵大直播》中，郭先生提到，原本在中共外交部已公布的出席名单中的沙特王储穆罕默德，并没有出席中共冬奥会开幕式，直接打脸中共。这是除了普京将北京之行的48小时缩短至9小时，并在冬奥会开幕式之后就恼火离京之外，又一位在开幕式事件上让中共信誉受损的外国领导人。而中共官宣自己也不得不在其对外记者会上，自打圆场称“沙特王储之所以没有出席是因为临时改变了行程”。
+整理：BENJ1
+编辑：Kelly
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/4-24.png)
-
-未能给中共面子的还有巴布亚新几内亚总理，其抵京后就被确诊感染了中共病毒，跟李克强视频会晤后，没有参加中共冬奥会开幕式就回国了。打脸中共冬奥开幕式的十几个国家领导人中，还包含中共自称与其最亲密的安哥拉桑巴斯总统，以及伊朗、土耳其，还有王毅亲自去请人的塞浦路斯等。
-
-郭先生还透露，普京回到俄罗斯之后，立刻会见了法国总理马克龙，表达了俄罗斯要再次回到欧洲、回到白人世界，不再跟中共狼狈为奸。
-
-参考链接：
-
-- [2022年2月9日 文贵大直播：UBS正式立案 打响沼泽地的第一仗；习普政治困局；中美俄三角斗；药厂政策调整；药厂政府互掐；何为全球货币；七哥个人生活](https://gtv.org/video/id=6203b7b13621aa7415d80e9e)
-- [沙特王储穆罕默德为何未出席北京冬奥会开幕式？外交部回应](https://news.sina.com.cn/c/2022-02-08/doc-ikyakumy4833608.shtml)
-- [中方回应巴布亚新几内亚总理抵京后核酸检测呈阳性](https://news.sina.com.cn/o/2022-02-07/doc-ikyamrmz9481298.shtml)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/5-20.png)配图：雅典娜设计组～614
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+郭文贵先生**2018**年**6**月**15**日直播
 
-编辑：Delilah小胖
-校对/发稿：海阔天空1
+大家也千万别忘了，仗剑之人必死于剑下，跟中共国习主席、普京、川普总统玩的这个国际政治游戏，玩不好，一下子烟飞灰灭。只有正路可以走，与世界文明共处，不要玩什么政治游戏。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生**2019**年**4**月**20**日直播
+
+今天的所有的这些强人Erdogan、普京、包括今天中共国的习近平主席、还有王岐山、包括NBS，非常感谢上天，绝大多数人我都认识，我也都见过，看待这些人，我认为是个历史的必然产物，在人类的历史上总是起起伏伏，这都是正常的。
+
+现在世界上实际是存在两个半政治体系，其中两个很正常，强人和文人执政管理国家、管理世界，过去的希特勒、斯大林都看得很清楚，中国的秦始皇，历史上一个个强人一直到现在多了去了，人类到了最好的时代是华盛顿的时代。华盛顿给人类带来了文明，包括英国进入大宪章法律时代，这都是由文人知识分子和军人们的联合结果。
+
+郭文贵先生**2019**年**4**月**27**日直播
+
+这次共产党和俄罗斯是最不开心的一次会晤，和习主席有三十次会晤，这一次是最不高兴的，因为中俄要签署新的石油协议，签不了。过去哥俩儿好，咋都好，现在核心问题碰上了，继续签几千亿美元的石油合同，签不了。过去签的合同不能都兑现，中国共产党也付不起这个钱，所以非常不高兴。
+
+再看看普京见金正恩的态度，那非常清楚。 他送人一把剑，在俄罗斯（看来）这是不吉利的。他得给你一个钱表示是我买你的剑。否则（那意思是）剑是刺我的吗？要么我是拿钱买，要么我拿身体拿命挡吗？肯定是给你钱，象征一下。就像中国人送人一双鞋，对方给一块钱一个意思。但是核心是什么，俄罗斯要往后退，我跟你中共还有金正恩不能那么近，还想跟美国好。所以大家不知道的是，这次一带一路，第二次峰会，是中俄决裂的一个新的开始。
+
+资料来源：郭先生GTV和盖特直播视频
+
+发布：tianzhihuan
+
+**
+**更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

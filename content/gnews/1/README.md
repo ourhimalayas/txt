@@ -2,34 +2,38 @@
 ---
 
 
-## 美立法者继续商议监管加密货币稳定币措施
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1990694/)
+## 全球中共病毒病例超过 4 亿：约翰霍普金斯大学
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1990774/)
 
-作者：银河系农场—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月8日，据当地媒体报道，美国众议院当天就联邦政府是否应该迫使加密货币稳定币的发行人严格遵守联邦银行的法规和保险进行了辩论。众议院表示，此举将有利于监管未来因加密货币市场快速增长而引起的相关风险。
+伊恩斯 纽约
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide12-2.jpeg)
+翻译：沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-41.png)图片来源：[https://wap.business-standard.com](https://wap.business-standard.com)
+根据约翰霍普金斯大学的数据，全球 Covid-19 病例超过 4 亿。
 
-报道提及，拜登政府此前建议美国监管与固定价值挂钩的加密货币，即稳定币。政府人员认为，加密货币稳定币旨在成为动荡的加密货币市场中的避风港，同时其将在数字货币和传统商业之间架设桥梁。因此，加密货币稳定币可以作为更便宜、更方便的支付方式用于国际交易。
+数据显示，截至当地时间周二下午 5:21（格林威治标准时间 2221），全球病例数为 400,244,031 例，全球死亡人数为 5,761,208 例。
 
-数据显示，目前全球流通的加密货币稳定币的价值约为一千八百亿美元，其中，美国约有四分之一的民众参与投资了加密货币，而这一数据已经给财政监管机构造成了巨大的压力。联邦政府提出，眼下对于加密货币稳定币的监管方向主要集中在发行人的资产储备风险管理上。为此，联邦法律应该为稳定币发行人提供明确的标准，用以确保消费者有一个更安全、广泛和稳定的数字金融体系。
+据报道，美国报告了77,025,027例病例和908,262例死亡病例，均为全球最高，占全球病例的19%以上，死亡人数的15%以上。
 
-参考链接： [Lawmakers clash over how to regulate ‘stablecoins’](https://thehill.com/policy/finance/trade/593369-lawmakers-clash-over-how-to-regulate-stablecoins)
+印度的病例数为 42,339,611 例，位居世界第二，其次是巴西，为 26,776,692 例，死亡人数为 634,057 人，位居世界第二。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+根据该大学的统计，病例数超过 1200 万的国家还包括法国、英国、俄罗斯和土耳其，而其他死亡人数超过 20 万的国家包括印度、俄罗斯、墨西哥和秘鲁。
 
-总编：文特
-编辑：静言
-校正/发稿：谐趣园
+全球案件量在 2021 年 1 月 26 日达到 1 亿的严峻里程碑，在 2021 年 8 月 4 日上升到 2 亿，并在 2022 年 1 月 6 日超过 3 亿。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+来源链接：[https://wap.business-standard.com/article/current-affairs/global-covid-19-cases-surpass-400-mn-johns-hopkins-university-122020900129\_1.html](https://wap.business-standard.com/article/current-affairs/global-covid-19-cases-surpass-400-mn-johns-hopkins-university-122020900129_1.html)
+
+编辑：LILY
+
+发布：面包飞上天
+
+20220211
+
+
+
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3-4.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

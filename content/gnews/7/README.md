@@ -2,25 +2,33 @@
 ---
 
 
-## 2022.2.11大直播 冬奥会谷爱玲事件给全球华人敲响警钟
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1990518/)
+## 有声|美前国务卿彭佩奥称：中共没有权利享有奥运荣耀
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1990593/)
 
-撰稿：大浪小水花
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月8日，美国前国务卿彭佩奥在接受福克斯采访时明确表示，美国不应当选择参加犯下种族灭绝罪的政权所举办的奥运会，中共政府无权享有奥运会的荣耀。习近平想利用冬奥会对世界宣传中共国事美好的假象，并掩盖中共对新疆等犯下的种族灭绝和反人类罪行为。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-21.jpg)
+此外，彭佩奥进一步指出，共产党通过强迫运动员使用一次性手机，通过此手段搜集相关信息。且中共还秘密搜集运动员的DNA信息，储存在中共国或者军方的数据库中。因此，他呼吁应抵制北京冬奥，在毫无人权的中共国举办体现奥林匹克精神的冬奥会，实在讽刺。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-11-at-9.30.44-PM.jpeg)
+文字版原文：[美前国务卿彭佩奥称：中共没有权利享有奥运荣耀](https://gnews.org/zh-hans/1981447/)
 
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-郭文贵先生在2022年2月11日大直播中特别提到了谷爱凌事件。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-郭先生谈到，谷爱凌把一个养她长大的美国玩弄于股掌之中，把美国人当傻子，一边讨好中共，一边骂美国黑美国，这种做法所有有民主制度的国家都会反对。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-郭先生指出谷爱凌这幅嘴脸和小聪明，这种不懂得感恩、无法无天，完全造假，公然撒谎、支持BLM，是完全的利己主义，投机主义，她让全世界看清了共产党洗脑统治下的中国人没有信仰、虚伪、自私、卑鄙。
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-郭先生强调，谷爱凌母女一定会付出巨大的代价，谷爱凌她今天的赢绝对是她灾难的开始。她现在给中国人拉的仇恨，她祖宗万辈都无法赎罪。她不仅引起了日韩跟华人的对立，还引起了全世界的华人、亚裔人跟西方世界对立。
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-郭先生提醒海外战友，现在整个西方世界正在暗藏着一股势力，就是反华、反亚裔。谷爱凌在冬奥会的所作所为引起全球的不满和愤怒，是对海外华人的巨大伤害，是对孩子的巨大威胁，是华人一生的侮辱，谷爱凌母女给全世界华人敲响了警钟。
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-参考链接：[2022.2.11文贵大直播](https://gtv.org/broadcast/watch/62065c00a1fe5e57a426b9e2)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
