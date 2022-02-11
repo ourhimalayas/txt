@@ -2,21 +2,19 @@
 ---
 
 
-## GClub未来两年不会停卖，有些政策会调整，目前不能说
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1989101/)
+## 共产党统治中国七十多年 荼毒了人心 泯灭了人性
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1989116/)
 
-视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王
-视频定位：BENJ1，WEI
+文编：东京樱花团/樱花传媒
+视频：东京樱花团/中文小视频组
 
-*发布：**Frank2021*
+1月27日，郭文贵先生在GTV大直播指出：
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+五年来感受到的最大痛苦是（中国人的）人心难改。中共培养的人吃人的社会文化，造就了大多数中国人憎恨一切、怀疑一切的本性。当幸福来临时，从不会感恩地真诚接受，对真和善的事物质疑，不假思索地相信假和恶的东西。灭共容易，想要让泯灭了的人性重新向善却难上加难。
 
+*编辑：东京樱花团/墨然
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

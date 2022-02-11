@@ -2,22 +2,22 @@
 ---
 
 
-## 英格兰将在2月取消中共病毒隔离措施
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1988251/)
+## 加拿大阿尔伯塔省开始取消疫情限制措施
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1988252/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+作者：纽约香草山教育部-Naughty(文行)
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-周三，首相鲍里斯·约翰逊突然宣布，如果感染率保持稳定，英格兰将在本月底取消对中共病毒检测呈阳性后、自我隔离的法律要求。
+阿尔伯塔省长杰森·肯尼在2月8日的新闻发布会上宣布，阿尔伯塔省的疫苗护照政策于当天的午夜宣告结束，其他大部分中共病毒限制措施也将在三周后被取消。他还表示，除超过500人容量的场馆外，公共场馆的疫情限制措施也在当天午夜结束。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/10-8.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/9-6.png)
 
-英格兰在1月底已经取消了几乎所有的冠状病毒限制，几周前，为促进经济活动，政府将中共病毒患者的最低自我隔离期从7天缩短到5天。同时，英格兰已经逐渐放宽了有关国际旅行的规定，旅行者在抵达英国之前要完全接种疫苗，或抵达之后进行中共病毒检测的需求，也将于本周晚些时候结束。
+此外，该省也将于周一开始，取消12岁以下儿童和学校所有儿童的强制戴口罩的规定。
 
-首相发言人称，政府只负责英格兰的卫生政策，苏格兰、威尔士和北爱尔兰地区的相关措施由当地政府自己制定。
+最后，肯尼表示，处理中共病毒的方法必须随着疫情的变化而改变。如果中共病毒美元给卫生系统带来更多的压力，未来几周将会取消更多的限制。
 
 参考链接：
 
-- [England may scrap COVID-19 isolation requirement by March: Johnson](https://www.dailysabah.com/world/europe/england-may-scrap-covid-19-isolation-requirement-by-march-johnson)
+- [Alberta starts lifting COVID-19 restrictions, vaccine passport program](https://nationalpost.com/pmn/news-pmn/canada-news-pmn/cp-newsalert-alberta-to-start-lifting-covid-restrictions-including-vaccine-passport)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)

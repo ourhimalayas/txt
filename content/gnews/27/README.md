@@ -2,25 +2,19 @@
 ---
 
 
-## 【秘翻新视野】2022年2月9日 灭共进入新阶段
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1989089/)
+## G系列走在世界的最前端 战友们目光要长远
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1989110/)
 
-**By:[秘翻新视野](https://gtv.org/broadcast/watch/6205d188a1fe5e57a4268876)**
+文编：东京樱花团/樱花传媒
+视频：东京樱花团/中文小视频组
 
-**[2022-2-11](https://gtv.org/broadcast/watch/6205d188a1fe5e57a4268876)**
+1月27日，郭文贵先生在GTV大直播指出：
 
-**1.UBS在英国正式立案**
+新中国联邦的喜马拉雅币和G系列走在了时代的最前端。数据时代的时尚、金融、支付、网络，给我们带来的价值：使用即金钱。战友们一定要目光长远。如果有人一意孤行，追逐眼前的蝇头小利，不惜损害战友的共同利益去兑现区区的几百万美元，将注定失去未来。
 
-**2.七哥要去伦敦和日本生活**
-
-**3.七哥准备要变得更加一无所有，做好一切准备**
-
-🔗**GTV链接：**[https://gtv.org/broadcast/watch/6205d188a1fe5e57a4268876](https://gtv.org/broadcast/watch/6205d188a1fe5e57a4268876)
-
-发布:星星
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMAGE-2021-12-13-113746.jpg)
+*编辑：东京樱花团/墨然
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

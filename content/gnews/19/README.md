@@ -2,8 +2,8 @@
 ---
 
 
-## CCP调兵，美国欧洲包括日本根本不在乎
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1989117/)
+## 七哥分享七哥七嫂教育儿女：不撒谎，要孝敬，独立，不欺负
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1989173/)
 
 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王
 视频定位：BENJ1，WEI

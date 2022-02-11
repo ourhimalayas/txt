@@ -2,8 +2,8 @@
 ---
 
 
-## 习是为了弄死不相信的一部分人，才调动部队
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1989127/)
+## 孩子是自由的，尊重自然规律
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1989198/)
 
 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王
 视频定位：BENJ1，WEI
