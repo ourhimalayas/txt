@@ -2,38 +2,28 @@
 ---
 
 
-## 美国：FBI警告美国运动员在北京冬季奥林匹克运动会上警惕中共的网络入侵
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1987682/)
+## 有声|美国再将33家中共企业列入未经核实清单
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1987745/)
 
-撰稿人： Lois
-翻译：一根筷子
-校对：sherryok (水云间）
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月7日，据相关媒体消息显示，美国政府已经将包括中共国航发南方工业有限公司在内的33家中共实体列入至“未经核实清单”中。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2115.png)
+对此，美国商务部表示，联邦政府采取这一措施的原因在于，美国无法确定这些中共实体将如何使用其自美国进口的商品。
 
-美国FBI建议所有参加2022年北京冬季奥林匹克运动会的美国运动员使用一次性手机而不是个人手机，考虑到可能来自中共的网络入侵。
+文字版原文：[美国再将33家中共企业列入未经核实清单](https://gnews.org/zh-hans/1984848/)
 
-一次性手机是一种便宜，可以预先充值的手机，当你不再使用时可以被销毁。
+音频处理/发稿：Daxia
 
-加拿大政府也给过本国运动员相同的建议，将他们的个人手机留在家里。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-政府同时警告运动员们只在比赛时将手机链接至官方网络，在不使用手机时关闭传输功能。
-
-“FBI督促所有的运动员将他们的个人手机留在家中，只在比赛期间使用临时手机。虽然没有重大的网络干扰，但是目前最流行的攻击手段是恶意软件，电子邮件欺诈，网络钓鱼以及使用虚假网站和流媒体服务，他们看起来像奥林匹克运动会指定服务商”，FBI在其发送的一份备忘录中陈述。
-
-“这些活动包括分布式拒绝服务（DDoS）攻击，勒索软件，恶意软件，社会工程，数据偷窃或泄露，网路钓鱼活动，虚假信息活动或者内部威胁，一旦成功，会破坏或者阻止现场直播，导致敏感数据泄露，或影响支持奥运会的公共或私人的数字基础设施”
-
-据FBI的报告，在去年的东京奥林匹克运动会期间，有超过4.5亿次的黑客攻击。好在这些攻击都被网络警察一一击破。
-
-FBI也强调，强制使用数字钱包，比如中共病毒疫苗电子卡等也大大增加了运动员的设备被黑客入侵的威胁，运动员的个人信息会被窃取并被装上恶意软件。
-
-“下载和使用应用软件，包括那些参赛和逗留期间必须使用的软件，也会增加窃取个人信息、安装跟踪工具，恶意代码或者软件的机会”，备忘录中提到。
-
-为冬奥会运动员和游客设计的“My 2022 App“因为技术漏洞也存在隐私问题，给黑客提供了机会。
-
-**审核校对：Barry Jack
-上传排版：V在途中**
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,27 +2,26 @@
 ---
 
 
-## 宪法律师警告当局停止非法侵犯抗议者
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1987890/)
+## 日美澳印外长会议召开，确认广泛领域合作
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1987989/)
 
-加拿大溫哥華楊帆農場楓葉快訊
+撰稿：东京樱花团/文小白
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-167.jpg)[图片来源](https://www3.nhk.or.jp/news/html/20220211/k10013478821000.html?utm_int=news-new_contents_list-items_030)
+据NHK2022年2月11日消息，日本外相林芳正将出席2月11日在澳大利亚举行的美国、澳大利亚和印度外长四方会议的第四次会议。
 
-采編/編譯撰稿： 苦盡甜來 (文來）
-![](https://static.tnc.news/media/2022/01/website-parl-696x365.jpg)圖片來源真北方
-據加拿大媒體【真北方】2月9日報道，渥太華警方正在自由車隊抗議集結現場沒收燃料並逮捕攜帶空燃料桶的卡車司機。憲法律師因此警告當局，這些恐嚇或逮捕行為都是非法的。
+考虑到中国等国家的因素，预计外长们将确认在广泛领域的合作，包括印度-太平洋地区的基础设施建设、海上安全和应对中共病毒，以加强自由和开放的国际秩序。
 
-報道稱，此前渥太華警方曾發出公告，任何試圖為示威者提供物質支持的人都可能被逮捕。[憲法自由司法中心]的律師對此表示，為和平集會的參加者帶來食物、水、燃料或其他生活物資的做法沒有違反任何法律。
+在访问澳大利亚期间，林外相预计与美国国务卿布林肯单独会面，就持续紧张的乌克兰局势交换意见。
 
-此外，警方幹擾和阻礙合法使用個人財產才是非法的，將和平抗議稱為刑事犯罪也是誤導性和欺騙性的。而非法沒收人們試圖取暖的燃料將會嚴重危及和平抗議者的人身安全。
+此外，林外相还计划出席4月13日在夏威夷举行的日本、美国和韩国外长会议，讨论如何应对朝鲜反复发射弹道导弹的问题。
 
-新聞來源: [https://tnc.news/2022/02/09/constitutional-lawyers-warn-ottawa-police-to-leave-convoy-protesters-alone/](https://tnc.news/2022/02/09/constitutional-lawyers-warn-ottawa-police-to-leave-convoy-protesters-alone/)
+信息来源：
 
-校對編輯：硫酸羥氯喹64
+[**林外相 きょう日米豪印外相会合出席 幅広い分野で連携確認へ**](https://www3.nhk.or.jp/news/html/20220211/k10013478821000.html?utm_int=news-new_contents_list-items_030%20)
 
-發布：青青
-
-
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
