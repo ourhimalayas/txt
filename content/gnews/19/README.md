@@ -2,18 +2,38 @@
 ---
 
 
-## 郭文贵先生将移居日本和英国 全面加速灭共
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1991955/)
+## 乌克兰新闻 &#8211; 现场直播：由于担心俄罗斯入侵，英国人被告知立即离开该国
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1992048/)
 
-郭先生说，他一生尝尽酸甜苦辣，唯一的目标就是灭掉共产党，要找回中国人失去了70年的财富、尊严和公正。
+**编译：沉默老歌**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/968E6266-D575-4746-A49F-605FA851C055.png)图片来源：[https://www.independent.co.uk](https://www.independent.co.uk/)
 
-郭先生公布之后很可能移居日本和英国。去伦敦就是为了UBS的案子，而日本是对中共作战，亚洲唯一安全的地方。郭先生会更加全身心的灭共，让中国每个角落都可以直接听到爆料革命的声音。
 
-视频来源: 20220209—郭先生大直播
-视频制作: 文星光，梦田
-文案:文星光
-上传: 零点
+由于担心俄罗斯军队的入侵，英国人被告知立即离开乌克兰。
 
+外交部在周五晚上更新了建议，告诉英国国民“在商业手段仍然可用的情况下立即离开”。
+
+这一警告是在鲍里斯·约翰逊在与包括美国总统乔·拜登在内的世界领导人通话时表达了对欧洲安全的担忧之后发出的。
+
+此前，英国国防部长本·华莱士警告称，在与俄罗斯外长绍伊古进行“坦率”讨论后，俄罗斯仍可能在短时间内发动入侵。
+
+华莱士先生说，俄罗斯军队的定位使他们有能力“随时”入侵邻国，但他说他从俄罗斯政府那里听说它“无意”入侵乌克兰。
+
+俄罗斯已经在乌克兰附近集结了超过10万军队，本周它在邻国白俄罗斯发起了联合军事演习，并在黑海进行了海军演习。
+
+**原文链接：**
+
+[https://www.independent.co.uk/news/world/europe/ukraine-russia-news-putin-truss-biden-b2012758.html](https://www.independent.co.uk/news/world/europe/ukraine-russia-news-putin-truss-biden-b2012758.html)
+
+**编辑：LILY**
+
+**发布：歪桑**
+
+20220211
+
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3-4.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,52 +2,63 @@
 ---
 
 
-## 郭先生直播厅-七哥谈“红色”
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1992165/)
+## 2022年2月11日文贵先生直播摘要及音频—银河系农场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1992206/)
 
-设计者：纽约香草山设计部 — 战友时光
+![](https://assets.gnews.org/wp-content/uploads/2022/02/snapshot_副本-3.jpg)
+盖特连接：[2022年2月11日 文贵大直播：冬奥会爆出“美”谷爱凌；黑操作假裁判破坏规则；共产党蓝金黄无孔不入；感染下降疫苗政策在变](https://gettr.com/streaming/ptvq9q8759)
 
+G-TV连接：[2022年2月11日 文贵大直播：冬奥会爆出“美”谷爱凌；黑操作假裁判破坏规则；共产党蓝金黄无孔不入；感染下降疫苗政策在变](https://gtv.org/video/id=62065c00a1fe5e57a426b9e1)
 
+1、谷爱凌对华人亚洲人的伤害几百亿都无法挽回；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+2、排华：一个美国面包店老板愤怒地对中国人说：你们中国人就不应该待在这里，回你们的中国去；
 
+3、七哥去日本和英国：必须在美国政府确认安全和同意的情况下，才可以去；最快也是6月份以后的事了；
 
+4、冬奥会开幕式现场没人，而中共拍出来的照片全是人，可见中共国的假到了灾难的级别；
 
+5、锁链女的父亲和叔叔李爱中，是共产党员，锁链女事件引起共产党员内部愤怒，加快共产党内部瓦解；
 
+6、共产党威胁香港十大法官之一，英国法官判查封文贵先生上百亿资产；
 
+7、文贵先生1.34亿案子：不能因为荒唐的判决，而不相信美国的法律。美国的司法制度对所有人都是公平的，文贵先生立刻开启了上诉；
 
+8、非洲正在政变，共产党在非洲的钱都会打水漂；
 
+9、一个普京超级相信的人把周围疫苗死亡的事报告给普京，普京微微一笑，说明普京早就知道疫苗危害；
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-20220210__1.png)红色给我们带来力量，共产党霸占了红色，抢夺了我们的自由，让我们失去了未来、失去了家人，我们只有打开“甜蜜蜜运动”这把钥匙，只有团结、合作，才能消灭CCP。 
-—2022年1月31日郭文贵先生GTV/GETTR直播![](https://assets.gnews.org/wp-content/uploads/2022/02/2-20220210-04.png)Red color brings energy. But by using the red color for its flag, the CCP has robbed us of our freedom, leaving us with broken families and no future. In order to take down the CCP, we have to unite and collaborate with others, we have to make the best of the “Sweet as Honey” campaign. 
-– Miles Guo, GTV/GETTR livecast on Jan. 31, 2022![](https://assets.gnews.org/wp-content/uploads/2022/02/3-20220210-02.png)红色不能让共产党垄断，就像中国的权利不能被共产党垄断一样。幸福和健康也不能共产党说了算，像“恭喜发财”得党先强大。我们的红是铲除邪恶的红，而不是共产党杀人后血染的红旗。 
-—2022年1月31日郭文贵先生GTV/GETTR直播![](https://assets.gnews.org/wp-content/uploads/2022/02/4-20220210-05.png)We cannot allow the CCP to monopolize the red color, the same reason we cannot allow them to monopolize all the power and rights. Neither should we allow them to decide on who gets to be happy and healthy, while the Party itself keeps accumulating wealth and power. The red color of our new flag symbolizes eradicating the evil, not the blood-stained red of the CCP flag, a result of many massacres. 
-– Miles Guo, GTV/GETTR livecast on Jan. 31, 2022
+10、供应链断裂、共产党对香港的威胁，香港还会很坏；
 
+11、你没有见过共产党蓝金黄，13579计划，灭白计划，达沃斯党喝酒玩小女孩肮脏的德行，你不会知道邪恶的肮脏、爆料革命的伟大；
 
-**编辑/发稿：小鹿**
+12、你没有见过防化兵实验室，装甲兵学院，武汉P4实验室，你不会知道解放军是多么的烂；
 
+13、共产主义就是最大的资本主义，完全垄断后的结果；
 
+**注：大直播音频正在制作和上传中，敬请关注——**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-124.jpg)
+编辑整理：文俊；
 
-**更多资讯，更多关注**
+发布：黎明之前
 
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

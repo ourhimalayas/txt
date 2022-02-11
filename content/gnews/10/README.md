@@ -2,39 +2,65 @@
 ---
 
 
-## 众筹平台GiveSendGo意欲无视安大略省的干预命令，坚持向卡车司机转送捐款。
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1992141/)
+## 郭先生直播厅-新中国联邦2022年最重要做什么？
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1992198/)
 
-翻译：不要代表我Kari
-校对：小熊
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/6-10.png)图片来源：雅典娜设计组
+设计者：纽约香草山设计部 — 喜马拉雅大喵儿
 
 
-为自由车队卡车司机发起众筹的基督教众筹网站表示，他们将无视安大略省法院的命令，绝不冻结众筹，绝不停止向抗议者转送捐款。
 
-安大略省道格福特Doug Ford政府为冻结“自由车队 “的资金采取了法律行动。随后，法院向众筹平台GiveSendGo下达了停止向抗议运动组织者转赠捐款的命令。数小时后，该平台就此事发表了以上声明。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-GiveSendGo在社交媒体上的一份声明中写道：”知道吗？加拿大政府无权管控我们GiveSendGo众筹的资金”。
 
-该公司还声明：”GiveSendGo公司众筹的每一项资金全部都直接赠予众筹受益人，其中最重要的受益人就是‘自由车队’。“
 
-正如之前所述，福特政府采取了法律行动来冻结这些资金，随后安大略省高级法院对此做出了裁决。
 
-该声明表示：“今天，总检察长已向高级法院提出申请，要求依据《刑法》第490.8条发布命令：禁止任何人以任何方式处置’自由车队2022 ‘和‘ 认领卡车 ’通过GiveSendGo在线众筹平台众筹而来的捐款。”
 
-“今天下午，该命令已经发布。它对拥有或控制这些捐款的任何一方均具约束力。”
 
-原文链接：[https://thepostmillennial.com/givesendgo-ignore-ontario-court](https://thepostmillennial.com/givesendgo-ignore-ontario-court)
 
-*发布：tianzhihuan*
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-52ac6b5cbc994616-scaled.jpg)
+新中国联邦2022年最重要做什么？ 
+一、一心一意灭共； 
+二、全力以赴扩大新中国联邦被国际和各国家主权的认可度； 
+三、全力以赴在全球建立更多的农场； 
+四、让更多的战友从国内被救出来，同时让更多国内的人知道我们新中国联邦； 五、让所有新中国联邦的战友们在Ｇ系列里赚更多的钱，获得更多的机会； 
+六、让全世界爱好正义的、被共产党病毒伤害的和受到疫苗毒武器设计的人，找到病毒真相，找到毒疫苗解决的办法，要把全世界受到共产党经济威胁、超限战的人紧紧地和我们团结在一起，建立我们真正的爆料革命的国际被公认可的社交媒体大平台； 
+七、新中国联邦人要统一好我们的作战目标，统一行动，保命、保财、报仇。更重要的是让我们所有的战友都能共同度过这个至暗的时代。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-1-1-scaled.jpg)
+Top 7 Priorities for the NFSC in 2022 – 
+1. Be fully committed to the mission of Take Down the CCP; 
+2. Make every effort to increase the recognition of the NFSC, and make as many sovereignty countries as possible to recognize the NFSC; 
+3. Make every effort to establish many new Himalaya farms; 
+4. Rescue more fellow fighters from mainland China, while making more Chinese people aware and educated about the NFSC; 
+5. Continue to make NFSC fellow fighters’ investments in G-series appreciate more in value, while adding more opportunities； 
+6. Unite all the justice-loving people across the world; help those harmed by the virus or vaccine find out the truth about the virus, and solutions to counter the poisonous COVID vaccine. To unite around us all those harmed by the CCP’s economic threats and the unrestricted warfare, and to build the social media of the WM and NFSC, making it well-respected internationally; 
+7. All fellow fighters shall always act towards the same objective, and operate under one unified and coordinated strategy. “To save lives, to protect wealth, and to avenge”. More importantly, help our fellow fighters ride out the darkest hours in human history.
+
+
+
+**编辑/发稿：小鹿**
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-124.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
 
  
 
