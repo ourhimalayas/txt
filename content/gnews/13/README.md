@@ -2,8 +2,8 @@
 ---
 
 
-## 非常可怕的事情是中国人不尊敬中国人
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1988496/)
+## 越是自卑的人表现越强大
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1988558/)
 
 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王
 视频定位：BENJ1，WEI

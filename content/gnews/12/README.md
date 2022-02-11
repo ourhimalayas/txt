@@ -2,8 +2,8 @@
 ---
 
 
-## 北京冬奥会历史上最惨的冬奥会
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1988500/)
+## PayPal跟Hpay那是几个级别的差距
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1988586/)
 
 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王
 视频定位：BENJ1，WEI
