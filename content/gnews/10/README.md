@@ -2,31 +2,24 @@
 ---
 
 
-## 七哥谈G-教育（2022-02-06摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1991502/)
+## 起诉瑞银正式立案灭共进入新阶段
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1991640/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+加拿大温哥华杨帆农场枫叶快讯
 
-来源：郭先生2022-02-06直播10：08：03摘录
+采编撰稿：自由法兰西
+![](https://cdn.discordapp.com/attachments/759954055299858513/941781844582596728/IMG_2977.png)图片来源：gettr
+在2月9日文贵大直播中透露了[新中国联邦]起诉[瑞银集团]已正式在伦敦立案的爆炸性消息之后，立即引起了西方媒体的争相报道。 [彭博新闻]当天撰文称，[瑞银集团]在驳回文贵先生于2015年提起的5亿美元保证金追缴诉讼中败北。伦敦法庭裁定英国有权审理。
 
-我们要做的事情，就是把中国人的未来和希望做好。就是我们G-教育、G-EDU，我们一定要做好，一定要做好。我们要做到什么？让所有东方教育的所有的失职员工，尽量到我们这来。我们提供大量的币，现在我们可以公开的说。只要你参加G-EDU的原东方教育的这些老师们，参加到我们教育的，过去你是一块钱工资，我现在给你一块五。如果你有特殊的贡献，你可以拿到两块。付工资是用HDO付，你也可以选择喜币。有愿者请和磐石农场、唐平、Qmay、青藤联系，吴老师联系，Happy老师也可以，Happy老师、Happy老师也可以。是吧！我们现在新的政策，加入G-EDU教育的所有中国老师，只要是加入进来的，你的工资要比原来东方高1.5倍，你还可以选择HDO付款，而且按小时付、按天付、按周付都行。所以说我们现在就是什么？在教育上，走东方的路。走东方叫东方海外是不是？就叫什么俞敏洪那个，是吧！叫做新东方。我们走新东方的路，让新东方无路可走。然后我们再接着还要唱歌、搞音乐，以乐灭共。我们决定，唱尽共产党所有流行的歌，我们决定走共产党唱歌的路，让共产党无歌可唱。这就是咱们的战略，是吧！让他们无歌可唱，是吧！那我得唱一段，是吧，唱一段今天。
+文贵先生对该银行发起的诉讼并正式立案！报道对此表示，此举将沉重打击曾试图以管辖权为由，要求伦敦法院终止受理该案的[瑞银集团]。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+文贵先生指出，UBS瑞银是决定世界和人类命运的沼泽地势力以及中共盗国贼家族重要的财富聚集地，该金融帝国内隐藏着数百年来所累积的上百万亿美元财富和黑账。因此，通过此案，在支持[新中国联邦]的正义沼泽地势力的帮助下，将首次撬开瑞银的秘密数据库大门，找回中共政权在西方藏匿的巨额盗国资产。同时追缴中南坑家族在海外的所有黑钱，并最终将这些非法所得还给中国人民。
 
-**关注我们**
+新闻来源： [https://www.bloomberg.com/news/articles/2022-02-09/ubs-loses-bid-to-dodge-chinese-billionaire-s-500-million-suit?srnd=premium-europe](https://www.bloomberg.com/news/articles/2022-02-09/ubs-loses-bid-to-dodge-chinese-billionaire-s-500-million-suit?srnd=premium-europe)
 
-Discord 账号
+校对编辑：硫酸羟氯喹64
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+发文：青青
 
  
 

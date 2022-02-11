@@ -2,24 +2,31 @@
 ---
 
 
-## 冬奧會金牌得主谷愛淩避而不談其美國身份
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1991411/)
+## 七哥谈G-教育（2022-02-06摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1991502/)
 
-加拿大溫哥華楊帆農場楓葉快訊
+文编：Hima
+听写：叮叮
+视频：七哥
 
-采編：風雲小哥        翻譯編輯：文所未聞
-![2022 Beijing Olympics - Freestyle Skiing - Women's Freeski Big Air - Final - Run 3 - Big Air Shougang, Beijing, China - February 8, 2022. Gu Ailing Eileen of China reacts after winning gold. REUTERS/Fabrizio Bensch](https://cloudfront-us-east-2.images.arcpublishing.com/reuters/XJFCGGOM45OIRLDK3ZRQXSKH2E.jpg)
-據《路透社》2月8日報道，代表中共國參加本次冬奧會自由式跳臺滑雪並於當天獲得金牌的運動員谷愛淩，在面對各界質疑其真實國籍時含糊其辭，避而不談。
+来源：郭先生2022-02-06直播10：08：03摘录
 
-報道稱，由於中共當局不允許雙重國籍，因此這位出生在美國舊金山的運動員在其15歲時就放棄了美國國籍而成為中共國公民。然而，在當天獲得金牌後的新聞發布會上，谷愛淩卻拒絕回答記者提出的「她是否仍然是美國公民」的問題。
+我们要做的事情，就是把中国人的未来和希望做好。就是我们G-教育、G-EDU，我们一定要做好，一定要做好。我们要做到什么？让所有东方教育的所有的失职员工，尽量到我们这来。我们提供大量的币，现在我们可以公开的说。只要你参加G-EDU的原东方教育的这些老师们，参加到我们教育的，过去你是一块钱工资，我现在给你一块五。如果你有特殊的贡献，你可以拿到两块。付工资是用HDO付，你也可以选择喜币。有愿者请和磐石农场、唐平、Qmay、青藤联系，吴老师联系，Happy老师也可以，Happy老师、Happy老师也可以。是吧！我们现在新的政策，加入G-EDU教育的所有中国老师，只要是加入进来的，你的工资要比原来东方高1.5倍，你还可以选择HDO付款，而且按小时付、按天付、按周付都行。所以说我们现在就是什么？在教育上，走东方的路。走东方叫东方海外是不是？就叫什么俞敏洪那个，是吧！叫做新东方。我们走新东方的路，让新东方无路可走。然后我们再接着还要唱歌、搞音乐，以乐灭共。我们决定，唱尽共产党所有流行的歌，我们决定走共产党唱歌的路，让共产党无歌可唱。这就是咱们的战略，是吧！让他们无歌可唱，是吧！那我得唱一段，是吧，唱一段今天。
 
-據悉，谷愛淩在獲得金牌之後，迅速成為了中共國家喻戶曉的新星，她同時也從成為眾多國內品牌代言人中獲得巨大名利。 對此，文貴先生在其2月9日的蓋特中指出，谷愛淩母女為貪圖眼前蠅頭小利，不惜賣身為奴，助共為虐，並為該邪惡政權蹂躪全世界的罪行塗脂抹粉。其多行不義之舉已成為將來全球排華危機的誘因之一，必將引火自焚，悔之莫及！
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-原文鏈接： [https://www.reuters.com/lifestyle/sports/freestyle-skiing-golden-girl-gu-sidesteps-citizenship-question-2022-02-08/](https://www.reuters.com/lifestyle/sports/freestyle-skiing-golden-girl-gu-sidesteps-citizenship-question-2022-02-08/)
+**关注我们**
 
-校對編輯：硫酸羥氯喹64
+Discord 账号
 
-發文：青青
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

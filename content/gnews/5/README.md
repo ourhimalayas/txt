@@ -2,31 +2,43 @@
 ---
 
 
-## 七哥说“我们一定会赢，会赢得无限的精彩”（2022-02-06摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1991621/)
+## 美国称俄罗斯有足够的军队集结入侵乌克兰
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1991682/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-来源：郭先生2022-02-06直播10：38：32摘录
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/DQZXWVC2ZZJZJCSN543OQFCVVA.jpg)
 
-就是西方今天谈到任何问题，他们要明白，支持共产党的代价，他们是一定要付的，否则共产党会死灰复燃。包括今天的冬奥会、疫苗、冠状病毒、经济危机、社会结构危机、信仰极具缺失、社会动荡。这就是我们今天要新中国联邦人看到，你当站在这些角度看问题的时候，你就一切都释然了。你就别激动，就去行动就够了，因为老天跟我们站在一起，我们一定会赢，会赢得无限的精彩。否则就不会有你七哥这种材料人出现在世界上，这个亨利小哥说对了。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+资料来源：路透社
 
-**关注我们**
+华盛顿周五表示，俄罗斯已经在乌克兰附近集结了足够的军队来发动大规模入侵，并敦促所有美国公民在 48 小时内离开乌克兰。
 
-Discord 账号
+白宫国家安全顾问杰克沙利文在媒体简报会上说，俄罗斯的袭击可能在任何一天开始，并且可能会从空袭开始，而对基辅的快速推进也是可能的。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+沙利文说，目前尚不清楚俄罗斯总统弗拉基米尔·普京是否已明确下令开始入侵。沙利文表示，他预计美国总统乔·拜登将尽快就这场危机与普京通电话。
 
-Gettr 账号
+早些时候，随着莫斯科进一步加强对西方外交的反应，一家美国私营公司的商业卫星图像显示，俄罗斯在边境附近的几个地点进行了新的军事部署。
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+NBC 新闻，乌克兰的事情“可能很快变得疯狂”，拜登与英国、加拿大、法国、德国、波兰和罗马尼亚的领导人以及北约和欧盟的负责人就这场危机通了电话。
+
+在那次会议之后，随着警报的蔓延，英国首相鲍里斯·约翰逊（Boris Johnson）与其他一些国家一起敦促其公民离开乌克兰。
+
+约翰逊在会议上表示，他担心欧洲的安全，并强调“如果俄罗斯做出入侵乌克兰的毁灭性和破坏性决定，需要准备好实施一揽子严厉的经济制裁，”他的办公室说。
+
+与此同时，莫斯科表示，欧盟和北约本周对其安全要求的答复显示出“不尊重”。
+
+一位熟悉会议的消息人士称，拜登隔夜会见了他的国家安全顾问。美国官员认为，随着莫斯科方面的言辞变得强硬，六艘俄罗斯军舰抵达黑海，以及更多俄罗斯军事装备抵达白俄罗斯，美国官员认为危机可能已达到临界点。
+
+国务卿安东尼·布林肯 (Antony Blinken) 说：“我们正处于一个入侵可能随时开始的窗口，明确地说，包括在奥运会期间。”北京奥运会于2月20日结束。
+
+“简单地说，我们继续看到俄罗斯升级的非常令人不安的迹象，包括新部队抵达乌克兰边境。”
+
+俄罗斯否认其入侵乌克兰的计划。
+
+🔗 [美国称俄罗斯有足够的军队集结入侵乌克兰](https://www.reuters.com/world/europe/us-says-russia-masses-more-troops-near-ukraine-invasion-could-come-any-time-2022-02-11/)
+
+责任编辑/发布： Shuizhuyu
 
  
 
