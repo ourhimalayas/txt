@@ -2,8 +2,8 @@
 ---
 
 
-## 人权激起民主国家对冬奥委会的抵制
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1991033/)
+## 共产党用14亿人的市场，威胁全世界
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1991084/)
 
 台灣寶島農場
 

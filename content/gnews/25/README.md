@@ -2,43 +2,34 @@
 ---
 
 
-## 文•贵天成——文贵先生谈“普京”（一）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1990454/)
+## 中共决定逮捕蔡鄂生
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1990597/)
 
-整理：BENJ1
-编辑：Kelly
+作者：首尔天池农场-追着曙光跑
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月10，据中共媒体报道，原中共国银行业监督管理委员会党委委员、副主席蔡鄂生涉嫌受贿、利用影响力受贿以及滥用职权，此案已交由中共国家监察委员会调查终结，即将移送至检察机关审查起诉。日前，最高人民检察院对蔡鄂生作出逮捕决定。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/5-20.png)配图：雅典娜设计组～614
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide11-5.jpeg)
 
+1951年出生的蔡鄂生在中共中央银行系统工作过20余年，官至中共央行行长助理兼上海分行行长。2001年至2005年，蔡鄂生转任中共国有重点金融机构监事会主席，并于2005年12月出任中共国银行业监督管理委员会副主席，直至2013年退休。
 
-郭文贵先生**2018**年**6**月**15**日直播
+有分析人士认为，据郭文贵先生在2021年8月1日的爆料，蔡鄂生是王岐山的生死兄弟。为此，蔡鄂生此次被逮捕的通报或可说明中共的内斗已经越来越激烈。
 
-大家也千万别忘了，仗剑之人必死于剑下，跟中共国习主席、普京、川普总统玩的这个国际政治游戏，玩不好，一下子烟飞灰灭。只有正路可以走，与世界文明共处，不要玩什么政治游戏。
+参考链接：[依法决定逮捕！](https://mp.weixin.qq.com/s/KTx79Jymx6AYqaeV5AUhAg)
 
-郭文贵先生**2019**年**4**月**20**日直播
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-今天的所有的这些强人Erdogan、普京、包括今天中共国的习近平主席、还有王岐山、包括NBS，非常感谢上天，绝大多数人我都认识，我也都见过，看待这些人，我认为是个历史的必然产物，在人类的历史上总是起起伏伏，这都是正常的。
+总编：文特 
+编辑：飞虹
+校正/发稿：谐趣园
 
-现在世界上实际是存在两个半政治体系，其中两个很正常，强人和文人执政管理国家、管理世界，过去的希特勒、斯大林都看得很清楚，中国的秦始皇，历史上一个个强人一直到现在多了去了，人类到了最好的时代是华盛顿的时代。华盛顿给人类带来了文明，包括英国进入大宪章法律时代，这都是由文人知识分子和军人们的联合结果。
-
-郭文贵先生**2019**年**4**月**27**日直播
-
-这次共产党和俄罗斯是最不开心的一次会晤，和习主席有三十次会晤，这一次是最不高兴的，因为中俄要签署新的石油协议，签不了。过去哥俩儿好，咋都好，现在核心问题碰上了，继续签几千亿美元的石油合同，签不了。过去签的合同不能都兑现，中国共产党也付不起这个钱，所以非常不高兴。
-
-再看看普京见金正恩的态度，那非常清楚。 他送人一把剑，在俄罗斯（看来）这是不吉利的。他得给你一个钱表示是我买你的剑。否则（那意思是）剑是刺我的吗？要么我是拿钱买，要么我拿身体拿命挡吗？肯定是给你钱，象征一下。就像中国人送人一双鞋，对方给一块钱一个意思。但是核心是什么，俄罗斯要往后退，我跟你中共还有金正恩不能那么近，还想跟美国好。所以大家不知道的是，这次一带一路，第二次峰会，是中俄决裂的一个新的开始。
-
-资料来源：郭先生GTV和盖特直播视频
-
-发布：tianzhihuan
-
-**
-**更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

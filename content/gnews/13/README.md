@@ -2,38 +2,33 @@
 ---
 
 
-## 全球中共病毒病例超过 4 亿：约翰霍普金斯大学
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1990774/)
+## MV版Hcoin To the Moon上线64天第31次位列美国iTunes摇滚MV榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1990922/)
 
-伊恩斯 纽约
+2/11/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线64天第31次位列美国iTunes摇滚音乐视频榜榜首
 
-翻译：沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-41.png)图片来源：[https://wap.business-standard.com](https://wap.business-standard.com)
-根据约翰霍普金斯大学的数据，全球 Covid-19 病例超过 4 亿。
+* * *
 
-数据显示，截至当地时间周二下午 5:21（格林威治标准时间 2221），全球病例数为 400,244,031 例，全球死亡人数为 5,761,208 例。
+[【PDF 下载】Friday-11-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/02/Friday-11-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/02/Friday-11-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-据报道，美国报告了77,025,027例病例和908,262例死亡病例，均为全球最高，占全球病例的19%以上，死亡人数的15%以上。
+* * *
 
-印度的病例数为 42,339,611 例，位居世界第二，其次是巴西，为 26,776,692 例，死亡人数为 634,057 人，位居世界第二。
-
-根据该大学的统计，病例数超过 1200 万的国家还包括法国、英国、俄罗斯和土耳其，而其他死亡人数超过 20 万的国家包括印度、俄罗斯、墨西哥和秘鲁。
-
-全球案件量在 2021 年 1 月 26 日达到 1 亿的严峻里程碑，在 2021 年 8 月 4 日上升到 2 亿，并在 2022 年 1 月 6 日超过 3 亿。
-
-来源链接：[https://wap.business-standard.com/article/current-affairs/global-covid-19-cases-surpass-400-mn-johns-hopkins-university-122020900129\_1.html](https://wap.business-standard.com/article/current-affairs/global-covid-19-cases-surpass-400-mn-johns-hopkins-university-122020900129_1.html)
-
-编辑：LILY
-
-发布：面包飞上天
-
-20220211
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Friday-11-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Friday-11-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Friday-11-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Friday-11-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Friday-11-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_39.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Friday-11-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Friday-11-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Friday-11-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Friday-11-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_83.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Friday-11-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_101.jpg)
 
 
+[【PDF 下载】Friday-11-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/02/Friday-11-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/02/Friday-11-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3-4.jpg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -15,169 +15,169 @@
 
 ---
 
-### [PAG案子一定要找到真相](/content/gnews/1/README.md)
+### [每分每秒的直播都是在跟邪恶对抗](/content/gnews/1/README.md)
  ` G-NEWS TAIWAN`
 
-### [冬奥委会是习最后一次的表演](/content/gnews/2/README.md)
+### [中共谴责安倍前首相与蔡英文总统举行电话会谈](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [共产党用14亿人的市场，威胁全世界](/content/gnews/3/README.md)
  ` G-NEWS TAIWAN`
 
-### [人权激起民主国家对冬奥委会的抵制](/content/gnews/3/README.md)
+### [新中国联邦带给世界的希望](/content/gnews/4/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [文贵大直播要点（2022年2月11日）](/content/gnews/5/README.md)
+ ` 波士顿五月花农场`
+
+### [PAG案子一定要找到真相](/content/gnews/6/README.md)
  ` G-NEWS TAIWAN`
 
-### [中共在冬奥委会上的各种违规、造假](/content/gnews/4/README.md)
+### [冬奥委会是习最后一次的表演](/content/gnews/7/README.md)
  ` G-NEWS TAIWAN`
 
-### [中共一切都是假跟骗](/content/gnews/5/README.md)
+### [新西兰财经G乐部2022年2月11日:财经新闻整理](/content/gnews/8/README.md)
+ ` Finance-GCLUB【新西兰财经G乐部】`
+
+### [人权激起民主国家对冬奥委会的抵制](/content/gnews/9/README.md)
  ` G-NEWS TAIWAN`
 
-### [HCN+HPAY助推创业系列评论（二）](/content/gnews/6/README.md)
+### [中共在冬奥委会上的各种违规、造假](/content/gnews/10/README.md)
+ ` G-NEWS TAIWAN`
+
+### [中共一切都是假跟骗](/content/gnews/11/README.md)
+ ` G-NEWS TAIWAN`
+
+### [HCN+HPAY助推创业系列评论（二）](/content/gnews/12/README.md)
  ` Himalaya 77 G-Engineers`
 
-### [MV版Hcoin To the Moon上线64天第31次位列美国iTunes摇滚MV榜首](/content/gnews/7/README.md)
+### [MV版Hcoin To the Moon上线64天第31次位列美国iTunes摇滚MV榜首](/content/gnews/13/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [八孩母悲剧是中共体制之恶](/content/gnews/8/README.md)
+### [八孩母悲剧是中共体制之恶](/content/gnews/14/README.md)
  ` 波士顿五月花农场`
 
-### [日美澳印四国在澳大利亚举行外长会议](/content/gnews/9/README.md)
+### [日美澳印四国在澳大利亚举行外长会议](/content/gnews/15/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [CCP病毒疫苗加强针在澳大利亚或将成为“标配”](/content/gnews/10/README.md)
+### [CCP病毒疫苗加强针在澳大利亚或将成为“标配”](/content/gnews/16/README.md)
  ` 澳喜特战旅Gnews`
 
-### [爆炸新闻——自由车队：美国敦促加拿大结束卡车司机的封锁](/content/gnews/11/README.md)
+### [爆炸新闻——自由车队：美国敦促加拿大结束卡车司机的封锁](/content/gnews/17/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [纽约警察局彻查韩外交官遭无端袭击案件](/content/gnews/12/README.md)
+### [纽约警察局彻查韩外交官遭无端袭击案件](/content/gnews/18/README.md)
  ` 首尔天池农场`
 
-### [全球中共病毒病例超过 4 亿：约翰霍普金斯大学](/content/gnews/13/README.md)
+### [全球中共病毒病例超过 4 亿：约翰霍普金斯大学](/content/gnews/19/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [还原中共国内的三年饥荒](/content/gnews/14/README.md)
+### [还原中共国内的三年饥荒](/content/gnews/20/README.md)
  ` NFSC News`
 
-### [有声|日本要求返日冬奥会选手接受手机安全检查](/content/gnews/15/README.md)
+### [有声|日本要求返日冬奥会选手接受手机安全检查](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [美立法者继续商议监管加密货币稳定币措施](/content/gnews/16/README.md)
+### [美立法者继续商议监管加密货币稳定币措施](/content/gnews/22/README.md)
  ` NFSC News`
 
-### [有声|女子短道速滑竞赛，中共选手恶意绊倒加拿大竞争对手](/content/gnews/17/README.md)
+### [有声|女子短道速滑竞赛，中共选手恶意绊倒加拿大竞争对手](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [02/11/22 香港快讯 廉署再起诉1人 指涉在社交媒体分享贴文煽惑投白票](/content/gnews/18/README.md)
+### [02/11/22 香港快讯 廉署再起诉1人 指涉在社交媒体分享贴文煽惑投白票](/content/gnews/24/README.md)
  ` 英喜-粵語組`
 
-### [有声|NFSC新闻、G|TV新闻访谈简报|2022年2月10日早](/content/gnews/19/README.md)
- ` MOSREC`
-
-### [中共决定逮捕蔡鄂生](/content/gnews/20/README.md)
+### [中共决定逮捕蔡鄂生](/content/gnews/25/README.md)
  ` NFSC News`
 
-### [有声|美前国务卿彭佩奥称：中共没有权利享有奥运荣耀](/content/gnews/21/README.md)
- ` MOSREC`
-
-### [有声|北京冬奥会让中共丑态百出，让参会人员自取其辱](/content/gnews/22/README.md)
- ` MOSREC`
-
-### [郭先生示警排华形势日益严峻](/content/gnews/23/README.md)
+### [郭先生示警排华形势日益严峻](/content/gnews/26/README.md)
  ` NFSC News`
 
-### [2022.2.11大直播 冬奥会谷爱玲事件给全球华人敲响警钟](/content/gnews/24/README.md)
+### [2022.2.11大直播 冬奥会谷爱玲事件给全球华人敲响警钟](/content/gnews/27/README.md)
  ` 秘密翻译组-原创组`
 
-### [文•贵天成——文贵先生谈“普京”（一）](/content/gnews/25/README.md)
- ` 墨尔本雅典娜农场`
-
-### [加拿大各省正在取消限制和疫苗护照](/content/gnews/26/README.md)
+### [加拿大各省正在取消限制和疫苗护照](/content/gnews/28/README.md)
  ` GTV News Talk`
 
-### [新西兰反疫苗集会遭警方镇压](/content/gnews/27/README.md)
+### [新西兰反疫苗集会遭警方镇压](/content/gnews/29/README.md)
  ` GTV News Talk`
 
-### [DC每日热点0211](/content/gnews/28/README.md)
+### [DC每日热点0211](/content/gnews/30/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [芬太尼原料来自中共国，中共明知故犯](/content/gnews/29/README.md)
+### [芬太尼原料来自中共国，中共明知故犯](/content/gnews/31/README.md)
  ` NFSC News`
 
-### [郭先生将移驻英日开启灭共新战斗](/content/gnews/30/README.md)
+### [郭先生将移驻英日开启灭共新战斗](/content/gnews/32/README.md)
  ` NFSC News`
 
-### [2/11/2022国际财经快讯：特斯拉计划在北京设立中国设计中心；可口可乐承诺25%可重复使用的包装](/content/gnews/31/README.md)
+### [2/11/2022国际财经快讯：特斯拉计划在北京设立中国设计中心；可口可乐承诺25%可重复使用的包装](/content/gnews/33/README.md)
  ` 秘密翻译组金融团队`
 
-### [美国及世界疫情简报 （02-11-2022）](/content/gnews/32/README.md)
+### [美国及世界疫情简报 （02-11-2022）](/content/gnews/34/README.md)
  ` 波士顿五月花农场`
 
-### [北京冬奥会将促进全球自动灭共](/content/gnews/33/README.md)
+### [北京冬奥会将促进全球自动灭共](/content/gnews/35/README.md)
  ` NFSC News`
 
-### [讲讲我亲身经历的中共国的人口贩卖](/content/gnews/34/README.md)
+### [讲讲我亲身经历的中共国的人口贩卖](/content/gnews/36/README.md)
  ` 澳喜农场`
 
-### [疫苗大灾难及其应对](/content/gnews/35/README.md)
+### [疫苗大灾难及其应对](/content/gnews/37/README.md)
  ` MilesGuoLivePPT`
 
-### [疫情居高不下，李显龙政府狂推儿童疫苗](/content/gnews/36/README.md)
+### [疫情居高不下，李显龙政府狂推儿童疫苗](/content/gnews/38/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2022年2月11日郭先生大直播 文字同步精要](/content/gnews/37/README.md)
+### [2022年2月11日郭先生大直播 文字同步精要](/content/gnews/39/README.md)
  ` 焦點20分`
 
-### [美国推迟制定国家安全战略](/content/gnews/38/README.md)
+### [美国推迟制定国家安全战略](/content/gnews/40/README.md)
  ` 纽约香草山MOS02`
 
-### [秘翻在线：恒大集团总裁套现1.28亿美元 坑杀一票投资人](/content/gnews/39/README.md)
+### [秘翻在线：恒大集团总裁套现1.28亿美元 坑杀一票投资人](/content/gnews/41/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/40/README.md)
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/42/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [爱尔兰参议院通过决议 认定中共在新疆犯有种族灭绝罪](/content/gnews/41/README.md)
+### [爱尔兰参议院通过决议 认定中共在新疆犯有种族灭绝罪](/content/gnews/43/README.md)
  ` 日本东京方舟农场`
 
-### [前摩根分析师：俄乌开战，油价将达到每桶120美元](/content/gnews/42/README.md)
+### [前摩根分析师：俄乌开战，油价将达到每桶120美元](/content/gnews/44/README.md)
  ` 墨尔本雅典娜农场`
 
-### [俄罗斯驻日大使接受独家采访说乌克兰加入北约是个威胁](/content/gnews/43/README.md)
+### [俄罗斯驻日大使接受独家采访说乌克兰加入北约是个威胁](/content/gnews/45/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆┃加拿大支持欧盟WTO诉讼案 中共暂停进口立陶宛牛肉](/content/gnews/44/README.md)
+### [中日财经爆┃加拿大支持欧盟WTO诉讼案 中共暂停进口立陶宛牛肉](/content/gnews/46/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [爱尔兰冬奥之际认定中共犯种族灭绝罪](/content/gnews/45/README.md)
+### [爱尔兰冬奥之际认定中共犯种族灭绝罪](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [川普的事业如何靠中共国金融家推出（1/2）](/content/gnews/46/README.md)
+### [川普的事业如何靠中共国金融家推出（1/2）](/content/gnews/48/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【秘翻新视野】2022年2月9日 灭共进入新阶段](/content/gnews/47/README.md)
+### [【秘翻新视野】2022年2月9日 灭共进入新阶段](/content/gnews/49/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [中日财经爆┃日本为了经济安全防范中共](/content/gnews/48/README.md)
+### [中日财经爆┃日本为了经济安全防范中共](/content/gnews/50/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [谷爱凌领奖不唱赵家歌不做赵家梦 双重国籍疑重](/content/gnews/49/README.md)
+### [谷爱凌领奖不唱赵家歌不做赵家梦 双重国籍疑重](/content/gnews/51/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [布林肯出席墨尔本四方会谈，应对中俄带来的威胁](/content/gnews/50/README.md)
+### [布林肯出席墨尔本四方会谈，应对中俄带来的威胁](/content/gnews/52/README.md)
  ` 走进澳洲`
 
-### [澳洲加入欧盟WTO诉讼磋商程序，联合抵制中共国经济胁迫](/content/gnews/51/README.md)
+### [澳洲加入欧盟WTO诉讼磋商程序，联合抵制中共国经济胁迫](/content/gnews/53/README.md)
  ` 走进澳洲`
 
-### [美国担任APEC主席意在牵制中共](/content/gnews/52/README.md)
+### [美国担任APEC主席意在牵制中共](/content/gnews/54/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [法国计划增建14个核电站](/content/gnews/53/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [日美澳印外长会议召开，确认广泛领域合作](/content/gnews/54/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [韩国新增确诊中共病毒突破5万例 再创新高](/content/gnews/55/README.md)
+### [日美澳印外长会议召开，确认广泛领域合作](/content/gnews/55/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [徐州八孩母亲事件看中共的邪恶本性](/content/gnews/56/README.md)

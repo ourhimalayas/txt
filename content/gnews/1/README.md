@@ -2,8 +2,8 @@
 ---
 
 
-## PAG案子一定要找到真相
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1991063/)
+## 每分每秒的直播都是在跟邪恶对抗
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1991102/)
 
 台灣寶島農場
 
