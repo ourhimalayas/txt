@@ -2,19 +2,45 @@
 ---
 
 
-## 共产党统治中国七十多年 荼毒了人心 泯灭了人性
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1989116/)
+## 中共国限制化肥出口导致美国食品成本飙升
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1989256/)
 
-文编：东京樱花团/樱花传媒
-视频：东京樱花团/中文小视频组
+作者：纽约香草山金融部—AT
 
-1月27日，郭文贵先生在GTV大直播指出：
 
-五年来感受到的最大痛苦是（中国人的）人心难改。中共培养的人吃人的社会文化，造就了大多数中国人憎恨一切、怀疑一切的本性。当幸福来临时，从不会感恩地真诚接受，对真和善的事物质疑，不假思索地相信假和恶的东西。灭共容易，想要让泯灭了的人性重新向善却难上加难。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-25.png)
 
-*编辑：东京樱花团/墨然
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
+
+据国家脉搏报道，自2021 年开始，中共国暂停了化肥出口。中共的理由是：要保证国内供应来养活快速增长的人口。许多中共国化肥公司已经表示至少在2022 年 6 月之前禁止磷酸盐出口。而6月正好是美国农作物的旺盛生长时期，中共这是故意为之吧。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/20220104-04.jpg)
+中共国的尿素氮肥和磷酸盐出口最大，中共的禁令快速推高了化肥价格。自2020 年 9 月以来，美国作物生产所需的所有主要营养素的肥料价格均上涨了 100% 以上，这可能会危及美国农场的长期生存能力，并进一步增加美国消费者的食品成本。 该禁令被密歇根农业商品部的农学副总裁描述为一场“贸易战”。
+
+中共国上一次提高对美化肥供应价格是在举办奥运会的2008年。当时化肥价格上涨了 32% — 100%。这是中共在 2008 年全球金融危机前夕，给全世界经济进一步施加的压力。
+
+参考来源：
+
+[Fertilizer Price Spikes and Chinese Import Reliance Threatens US Agriculture Security.](https://thenationalpulse.com/2022/02/09/fertilizer-price-spikes-and-chinese-import-reliance-threatens-us-agriculture-security/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-34.jpg)
+
+编辑/校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-26.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

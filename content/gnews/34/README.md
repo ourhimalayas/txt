@@ -2,47 +2,28 @@
 ---
 
 
-## 英国研究表明，完全接种中共病毒疫苗的孩子死亡风险高达5100%
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1988763/)
+## 中日财经爆┃日本为了经济安全防范中共
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1989021/)
 
-作者：银河系农场—骄子
+撰稿：东京樱花团/盖特第一批注册
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-44.png)图片来源于本文链接
+电动磁悬浮是日本独有的技术，将引起一场交通革命。
 
+电动磁悬浮制式列车利用强磁力的吸引和排斥，使车体悬浮约10厘米，在地面上高速行驶。与新干线不同，它不需要架空电线没有电弓（俗称大辫子），因为所需的电力都是从地面提供的。 即没有架空电线熔断的风险，又避免了摩擦引起的噪音。在列车内部所需电力，是应用电磁感应原理的感应电流收集技术，在列车运行时向车内供电。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-17.png)
+1998年江泽民访问日本时出人意料地向日本政府提议，在北京郊区共同建设一条50公里长的试验线，发展电动磁悬浮铁路。他还请求派50名工程师到山梨县日本研发基地考察。日方以商业机密为由拒绝了江的请求。日方清楚知道一旦答应了中方要求，中方就会变本加厉，以不可预知的方式升级其要求。
 
+2002年，德国帮助中国建成了时速430公里的上海磁悬浮专线铁路，但后来因为中国要求其公开技术而退出。如果在江泽民访日期间，接受了以日中友好的名义共同开发的建议，日本可能就会失去这项技术了。
 
-近日英国国家统计局发布的数据显示，接种过中共病毒疫苗的儿童和未接种的儿童在死亡率上存在令人震惊的差异。根据数据分析，完全接种中共病毒疫苗的儿童死于任何原因的风险都比未接种儿童高出5100%以上。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/25.png)
-对于15至19岁的儿童来说，第一次接种中共病毒疫苗后，所有原因的死亡风险都增加了82%，第二次接种后增加了226%。但对于10至14岁的儿童来说，情况更糟，第一次接种后死亡风险增加了885%，第二次接种后增加了515%。至少接种过一次中共病毒疫苗的10至14岁的儿童死亡可能性是正常儿童的10倍，而接受过两针疫苗的儿童死亡可能性是52倍。
+经济安全已经引起了各国的重视，为了防止日本的知识产权和工业技术被泄露到海外，岸田政府也在努力通过“经济安全促进法案”。
 
-科学家Mike Yeadon曾警告说，中共病毒疫苗导致的儿童死亡是其能用于预防中共病毒的50倍，辉瑞等疫苗中使用的mRNA基因技术会使身体产生刺突蛋白，导致血凝块等健康问题。
+信息源：
 
-医学博士Paul Hunter说，我们未看到中共病毒疫苗在阻止学校的中共病毒传播方面做了什么贡献，相反很多儿童都被染病。
+[〈リニアはなぜ必要か？　〉総額10兆円！　 国家的プロジェクトの内幕を当事者に聞く/葛西敬之×森地茂×松井孝典――文藝春秋特選記事【全文公開】](https://news.yahoo.co.jp/articles/a9eef992a7786edd4bb80369b16b9b4fd3f0f1a8?source=pc-detail-subcolumn)
 
-参考来源：
-
-[UK data shows shockingly high mortality rate among fully vaccinated children](https://newstarget.com/2022-02-09-uk-data-high-mortality-rate-vaccinated-children.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-30.jpg)
-
-编辑/校对/发稿：兰兰
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-18.png)
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,19 +2,24 @@
 ---
 
 
-## 狮城快讯：武汉病毒的新线索
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1989304/)
+## 中日财经爆┃鸽派立场发生转变的欧洲央行行长
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1989446/)
 
-**撰稿：verifunny**
+撰稿：东京樱花团/盖特第一批注册
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1091.png)[图片来源](https://jp.reuters.com/article/idJPKBN2KG01F)
+路透社法兰克福1月11日电， 欧洲央行行长拉加德(Jean-Claude Lagarde)周四在德国媒体集团RND的采访中表示，过快提高主要政策利率无助于遏制创纪录的高通胀，只会伤害经济。
 
-据台北时报引述，由匈牙利University of Veterinary Medicine 和Lorand University组成的匈牙利专家组在星期一发表了一篇研究报告，指在冠状病毒的基因里发现的基因物质指向新冠病毒是从武汉实验室培养出来的。
+欧洲央行在上周的理事会会议上明确维持主要政策利率不变，承认通胀风险正在增加，不排除在年底前加息的可能性，显示其鸽派立场发生转变。
 
-生物信息学专家表示，他们在检查了从南极洲采集的土壤样本的基因数据后发现了一种以前未知的 SARS-CoV-2 毒株，该样本于 2019 年 12 月被送往上海的一个实验室进行分析后被病毒污染 。 该实验室——生工生物（Sangon Biotech）是被武汉研究所用于DNA测序。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-11-164540.jpg)
-新发现的早期毒株含有来自非洲绿猴和中国仓鼠的 DNA，它们经常用于研究冠状病毒在实验室环境中。 这表明该病毒可能是在实验室中培养出来的，而不是从蝙蝠冠状病毒中自然进化而来的——北京官方对此事尚未做出解释。 尽管众多知名科学家尽最大努力扼杀辩论，但这项研究进一步加强了实验室泄漏假设。
+受此影响，债券市场的收益率急剧上升。
 
-**新闻来源：**[https://www.taipeitimes.com/News/editorials/archives/2022/02/11/2003772916](https://www.taipeitimes.com/News/editorials/archives/2022/02/11/2003772916)
+虽然短期货币市场目前将12月前的央行存款利率提高50个基点（bp），但拉加德告诉RND，加息不会解决高油价和供应短缺导致的通胀上升问题。
 
+信息源：[早期利上げでインフレ解決せず、政策調整は段階的に＝ＥＣＢ総裁](https://jp.reuters.com/article/idJPKBN2KG01F)
+
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%A8%B1%E8%8A%B1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

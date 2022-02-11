@@ -2,44 +2,35 @@
 ---
 
 
-## 中共国限制化肥出口导致美国食品成本飙升
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1989256/)
+## 美查缴近亿美元超级杯假货 多来自中共国
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1989443/)
 
-作者：纽约香草山金融部—AT
+**撰稿：日本东京方舟农场 子辰**
 
+据大纪元2月11日报道，适逢美国第56届美式足球超级杯开赛之际，美国查缴了近亿美元超级杯的假门票和相关物品，绝大多数来自中共国，还有少量来自其它亚洲国家。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-25.png)
+2月10日，美国国家知识产权协调中心（NIPRC）和美国职业橄榄球大联盟（NFL）宣布了这项最新的收缴结果。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片-1-7.jpeg)（图片来自大纪元）
+美国国土安全调查局（HSI）执行副局长史蒂夫·弗朗西斯（Steve Francis）说，在美国海关和边境保护局（CBP）及洛杉矶警署部门的合作下，HIS特工已经没收了超过26.7万件与赛事有关的假冒物品，这些假货在市面上的建议零售价共计约9,780万美元。
 
+弗朗西斯说：“这些假货的非法制造和销售是一种掠夺性的贸易行为，危及公众健康和经济，限制了美国产品在全球市场的竞争力。”
 
-据国家脉搏报道，自2021 年开始，中共国暂停了化肥出口。中共的理由是：要保证国内供应来养活快速增长的人口。许多中共国化肥公司已经表示至少在2022 年 6 月之前禁止磷酸盐出口。而6月正好是美国农作物的旺盛生长时期，中共这是故意为之吧。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/20220104-04.jpg)
-中共国的尿素氮肥和磷酸盐出口最大，中共的禁令快速推高了化肥价格。自2020 年 9 月以来，美国作物生产所需的所有主要营养素的肥料价格均上涨了 100% 以上，这可能会危及美国农场的长期生存能力，并进一步增加美国消费者的食品成本。 该禁令被密歇根农业商品部的农学副总裁描述为一场“贸易战”。
+假货物品会导致，合法的分销商、零售商和其它与正宗品牌合作的伙伴失去业务，给许多社区带来巨大的经济损失。
 
-中共国上一次提高对美化肥供应价格是在举办奥运会的2008年。当时化肥价格上涨了 32% — 100%。这是中共在 2008 年全球金融危机前夕，给全世界经济进一步施加的压力。
+据悉，此次HIS特工查获的假货包括球衣、帽子、戒指、T恤、夹克、门票、纪念品以及数以千计的体育纪念品。这些假货被标成接近正品的价格，在全美各地的仓库、商店、跳蚤市场、网上和街头小贩的摊位上进行销售。
 
-参考来源：
+此前，当执法人员发现很多人在销售假的超级杯门票时，为了杜绝这一情况，并减少票务欺诈和改善票务体验，第56届超级杯门票全部采用电子票，不出售纸质票。NFL已经取缔了数十万个假冒的电商、广告网站和卖家。
 
-[Fertilizer Price Spikes and Chinese Import Reliance Threatens US Agriculture Security.](https://thenationalpulse.com/2022/02/09/fertilizer-price-spikes-and-chinese-import-reliance-threatens-us-agriculture-security/)
+此外，知识产权协调中心代理主任里卡多·马约拉尔（Ricardo Mayoral）说，作为个人，该如何辨识假货呢？他介绍说，从销售途径和货品本身的材质、工艺、接缝口、商标、通用产品代码（UPC）等方面都可以识别。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-34.jpg)
+他介绍说，球衣和帽子是常被假冒的商品，这些假货往往缺少适当的NFL全息图，并由劣质的缝合线制成、做工粗糙，也没有通用产品代码，NFL在他们生产的每一件产品上都贴上了全息图，而且很有特色。
 
-编辑/校对/发稿：兰兰
+参考链接：
+[https://www.epochtimes.com/b5/22/2/11/n13569434.htm](https://www.epochtimes.com/b5/22/2/11/n13569434.htm)
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-26.png)
-
+素材采编：子辰
+编辑：老孙
+发布：文曦
 
  
 

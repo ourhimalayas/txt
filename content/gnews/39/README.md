@@ -2,27 +2,27 @@
 ---
 
 
-## 美国媒体称，疫苗造成的死亡令人震惊
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1988253/)
+## 加拿大阿尔伯塔省开始取消疫情限制措施
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1988252/)
 
-作者：纽约香草山 – 侠肝义胆
+作者：纽约香草山教育部-Naughty(文行)
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-2月7日，根据OANN公布的一份令人震惊的新报告，截至2022年1月4日，至少有94万6千名美国人在接种疫苗后死亡，或出现了严重的副作用。
+阿尔伯塔省长杰森·肯尼在2月8日的新闻发布会上宣布，阿尔伯塔省的疫苗护照政策于当天的午夜宣告结束，其他大部分中共病毒限制措施也将在三周后被取消。他还表示，除超过500人容量的场馆外，公共场馆的疫情限制措施也在当天午夜结束。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8-8.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/9-6.png)
 
-该报告还引述了美国卫生与公众服务部的信息指出，因为注射中共病毒疫苗，很多人或患神经系统疾病无法站立，或患心脑血管疾病突然摔倒，超过10万名美国人在接受疫苗注射后不得不住院治疗。
+此外，该省也将于周一开始，取消12岁以下儿童和学校所有儿童的强制戴口罩的规定。
 
-主持人Pearson Sharp在节目中表示：“我们现在看到了这种未经测试、未经证实、仓促研发的疫苗的后果，比我们担心的要严重得多。而这只是一个开始，如果美国人和父母不能勇敢地反对这项不科学的强制令，我们可能会看到历史上规模最大的、人类实验造成数十万人死亡或永久受伤。”
+最后，肯尼表示，处理中共病毒的方法必须随着疫情的变化而改变。如果中共病毒美元给卫生系统带来更多的压力，未来几周将会取消更多的限制。
 
 参考链接：
 
-- [Report: COVID vaccines inflicting far more deaths than previously thought: “Could be looking at hundreds of thousands more dead”](https://newstarget.com/2022-02-07-report-covid-vaccines-inflicting-more-deaths-than-thought.html)
+- [Alberta starts lifting COVID-19 restrictions, vaccine passport program](https://nationalpost.com/pmn/news-pmn/canada-news-pmn/cp-newsalert-alberta-to-start-lifting-covid-restrictions-including-vaccine-passport)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
 
-总编：Irene木木
+总编：飞虹
 编辑：飞虹
 校正/发稿：海阔天空1
 
