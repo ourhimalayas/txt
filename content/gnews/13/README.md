@@ -2,27 +2,31 @@
 ---
 
 
-## 加拿大保守党首提加密货币的法案
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1991439/)
+## 七哥谈我们就是要把“币”牌打好（2022-02-06摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1991483/)
 
-加拿大温哥华杨帆农场枫叶快讯
+文编：Hima
+听写：叮叮
+视频：七哥
 
-采编：Spirit            编辑撰稿：硫酸羟氯喹64
-![](https://assets.gnews.org/wp-content/uploads/2022/02/CRYPTO-CURRENCIES-0_1636763408923_1636763424023.JPG.jpg)图片来源: Mint
+来源：郭先生2022-02-06直播10：06：03摘录
 
-据加拿大《环球邮报》2月9日报道，有国会议员近日提出为“数字货币应用”建立相应的国家金融系统。这将是该国议会首个直接针对未来数字资产行业的专项法案。
+我们已经够多了。我们过去两年、一年，“因需”而发展，因为需要发展的这些项目要搞好、要搞强的、高质量的。然后把它影响无限大，把敌人变成一粒沙。然后在今年是坚决不无限扩张，坚决不能犯希特勒的这种无限扩张导致灾难。我深思啊，然后我现在想，我今年最大的灾难是什么？最大的挑战是什么？最大的问题是什么？就是排华。新中国联邦面临最大问题就是排华。我们怎么阻止排华？这是我今年新中国联邦最最重要的，我阻止不了西方的排华，我就没有任何能力可以灭共，灭共也没有用。除此之外，我干什么？我要叫国内更多人加入爆料革命。怎么办？靠什么？除了我们直播，更多战友站出来。我们就是要把“币”牌打好，让国内的音乐界、教育界、军界、情报界、地方政府、企业界，让所有这些人得到真正的喜币和未来的躺平币，让他们没有任何可能拒绝，从东北的黑龙江的山沟，到喜马拉雅山脉的下面，到东部的福建武夷山下，到南部的深圳、广东、广州到香港。就每个人早晨起来，都能闻到币的味道，而且是喜币的味道。总有一天，我会让这些人也来尝尝这个鲜。这是我第二个，我要用招，什么招？今年我就是用的“币”招、“币”招。
 
-报道称，该行业法案由保守党议员米歇尔于日前提出，要求加拿大财政部在近期创建一个发展数字货币体系的框架，并在准备过程中咨询数字货币领域的专家，以减少从业者的行政负担。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-对此，该议员表示，尽管数字资产行业近年来的蓬勃发展已势不可挡，但加拿大政府官员和立法者都缺乏对该领域的基本认知。而以上法案程序将能填补公共部门和私营企业在这个问题上的空白。
+**关注我们**
 
-据悉，数字货币现已成为国会和财政部门商讨预算的热门话题，外界预计该法案将在未来几个月内得到下议院的更多辩论，并极有可能在今年9月份之前进行投票表决。
+Discord 账号
 
-原文链接：[https://www.theglobeandmail.com/business/article-canadas-first-bill-on-cryptocurrency-regulation-aims-to-boost/](https://www.theglobeandmail.com/business/article-canadas-first-bill-on-cryptocurrency-regulation-aims-to-boost/)
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-校对编辑：硫酸羟氯喹64
+Gettr 账号
 
-发文：青青
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
