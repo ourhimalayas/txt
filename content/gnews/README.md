@@ -15,89 +15,89 @@
 
 ---
 
-### [针下亡魂｜尸检证实美国 24 岁大学生死于新冠疫苗诱发的心肌炎](/content/gnews/1/README.md)
+### [全世界只有共产党放开外国人玩弄中国老百姓还受法律保护](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [盖特VISION将要上线绝对是划时代的](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [针下亡魂｜尸检证实美国 24 岁大学生死于新冠疫苗诱发的心肌炎](/content/gnews/3/README.md)
  ` 關注組`
 
-### [韩国新增确诊中共病毒突破5万例 再创新高](/content/gnews/2/README.md)
+### [韩国新增确诊中共病毒突破5万例 再创新高](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本拟延长13都县防止疫情蔓延重点措施](/content/gnews/3/README.md)
+### [日本拟延长13都县防止疫情蔓延重点措施](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [加拿大卡车“自由车队”封锁了大使桥导致福特汽车关闭](/content/gnews/4/README.md)
+### [加拿大卡车“自由车队”封锁了大使桥导致福特汽车关闭](/content/gnews/6/README.md)
  ` 蓝莲花农场`
 
-### [北韩自夸 唯其能藉飞弹试射震撼世界以对抗美国](/content/gnews/5/README.md)
+### [北韩自夸 唯其能藉飞弹试射震撼世界以对抗美国](/content/gnews/7/README.md)
  ` GTV新聞訪談`
 
-### [澳大利亚支持立陶宛应对中共国“武器化”经济制裁](/content/gnews/6/README.md)
+### [澳大利亚支持立陶宛应对中共国“武器化”经济制裁](/content/gnews/8/README.md)
  ` 走进澳洲`
 
-### [文•贵天成——文贵先生谈“躺平币”（六）](/content/gnews/7/README.md)
+### [文•贵天成——文贵先生谈“躺平币”（六）](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/8/README.md)
+### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|前国家情报总监谈论中共对美国经济科技和文化上的渗透](/content/gnews/9/README.md)
+### [有声|前国家情报总监谈论中共对美国经济科技和文化上的渗透](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [有声|美司法部刑事指控中共企业盗取美国技术](/content/gnews/10/README.md)
+### [有声|美司法部刑事指控中共企业盗取美国技术](/content/gnews/12/README.md)
  ` MOSREC`
 
-### [美国会共和党人提出《制裁中共法》 全面锁定中共官员及其亲属](/content/gnews/11/README.md)
+### [美国会共和党人提出《制裁中共法》 全面锁定中共官员及其亲属](/content/gnews/13/README.md)
  ` 日本东京方舟农场`
 
-### [七哥谈中共伤害全世界挑战全人类（2022-02-06摘录）](/content/gnews/12/README.md)
+### [七哥谈中共伤害全世界挑战全人类（2022-02-06摘录）](/content/gnews/14/README.md)
  ` MG FARM`
 
-### [弹力带臀腿运动](/content/gnews/13/README.md)
+### [弹力带臀腿运动](/content/gnews/15/README.md)
  ` 纽约香草山MOS03`
 
-### [有声|共产党是否定历史主义者-六四事件](/content/gnews/14/README.md)
+### [有声|共产党是否定历史主义者-六四事件](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [七哥谈利益冲突，贸易冲突（2022-02-06摘录）](/content/gnews/15/README.md)
+### [七哥谈利益冲突，贸易冲突（2022-02-06摘录）](/content/gnews/17/README.md)
  ` MG FARM`
 
-### [有声|日本皇室爆出首例中共病毒确诊](/content/gnews/16/README.md)
+### [有声|日本皇室爆出首例中共病毒确诊](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [七哥说“中国这个国家成了冒险家的乐园”（2022-02-06摘录）](/content/gnews/17/README.md)
+### [七哥说“中国这个国家成了冒险家的乐园”（2022-02-06摘录）](/content/gnews/19/README.md)
  ` MG FARM`
 
-### [有声|英国调查发现 中共病毒导致员工长期病假 造成人力短缺](/content/gnews/18/README.md)
+### [有声|英国调查发现 中共病毒导致员工长期病假 造成人力短缺](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [魁北克省勒戈（Legault）政府指责反对党纵容示威者的武装](/content/gnews/19/README.md)
+### [魁北克省勒戈（Legault）政府指责反对党纵容示威者的武装](/content/gnews/21/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [七哥谈所谓全球化（2022-02-06摘录）](/content/gnews/20/README.md)
+### [七哥谈所谓全球化（2022-02-06摘录）](/content/gnews/22/README.md)
  ` MG FARM`
 
-### [有声|美共和党议员敦促收紧对中芯国际的出口限制](/content/gnews/21/README.md)
+### [有声|美共和党议员敦促收紧对中芯国际的出口限制](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [英国查尔斯王子和加拿大总督感染中共病毒](/content/gnews/22/README.md)
+### [英国查尔斯王子和加拿大总督感染中共病毒](/content/gnews/24/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [有声|土耳其中共病毒感染當日确诊首度超過10万，与疫苗接种率同创新高](/content/gnews/23/README.md)
+### [有声|土耳其中共病毒感染當日确诊首度超過10万，与疫苗接种率同创新高](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [七哥谈文化上的冲突和互补（2022-02-06摘录）](/content/gnews/24/README.md)
+### [七哥谈文化上的冲突和互补（2022-02-06摘录）](/content/gnews/26/README.md)
  ` MG FARM`
 
-### [有声|加拿大总理三剂疫苗仍確診 加國民调稱多数人望终止疫情限制](/content/gnews/25/README.md)
+### [有声|加拿大总理三剂疫苗仍確診 加國民调稱多数人望终止疫情限制](/content/gnews/27/README.md)
  ` MOSREC`
 
-### [七哥谈美国、俄罗斯与中国的交流（2022-02-06摘录）](/content/gnews/26/README.md)
- ` MG FARM`
-
-### [英国王储查尔斯再次感染新冠病毒](/content/gnews/27/README.md)
+### [英国王储查尔斯再次感染新冠病毒](/content/gnews/28/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [有声|北京冬奥临近，COVID病例增加，中共甩锅外来参赛人员](/content/gnews/28/README.md)
- ` MOSREC`
 
 ### [通货膨胀年率飙升 7.5%，1982 年以来的最高水平](/content/gnews/29/README.md)
  ` 温哥华圆成农场🇨🇦`

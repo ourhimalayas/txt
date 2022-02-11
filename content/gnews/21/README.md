@@ -2,29 +2,52 @@
 ---
 
 
-## 有声|美共和党议员敦促收紧对中芯国际的出口限制
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1987152/)
+## 魁北克省勒戈（Legault）政府指责反对党纵容示威者的武装
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1987160/)
 
-配音：香草山巡管部– 文凯琳
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9D%A1%E5%B9%85.png)
-31日美国媒体报道，美国共和党议员正在敦促拜登政府加强对中共中芯国际的出口限制。
-31日美国媒体报道，美国共和党议员正在敦促拜登政府加强对中共中芯国际的出口限制。
+2022-02-10
 
-报道提到一封共和党议员汤姆-科顿致美国商务部长的信件，信件指出中芯国际和中共军方有着密切的关系，放松对这一技术出口漏洞的管制将对美国国家安全造成严重的威胁，尤其中共政府目前正在依靠来自美国的技术推进其军事现代化的进程。
+编译及评论：16626
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GXHKH2P67Y_ZKTHFG5.png)图片来源：截屏于[Manifestants prêts à prendre les armes: Legault critique des oppositions](https://www.tvanouvelles.ca/2022/02/10/manifestants-prets-a-prendre-les-armes-legault-critique-des-oppositions)
+#### 魁北克省省长，弗朗索瓦·勒戈（François Legault），指责反对党纵容某些反卫生措施抗议者发出的武装暴力威胁
 
-文字版原文：[美共和党议员敦促收紧对中芯国际的出口限制](https://gnews.org/zh-hans/1949754/)
+在加拿大新闻社（la Presse canadienne）周三发表的一篇文章中，上周末在魁北克省举行的卡车司机示威活动的组织者之一表示，有些人已经准备好拿起武器。凯文·比格·格雷尼尔（ Kevin Big Grenier自由车队的三位组织者之一）说，“我准备好拿起武器，然后去（魁北克省）议会”。
 
-音频处理/发稿：Daxia
+#### 自由党议员安德烈·福廷
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+魁北克省的反对派表示，这些评论是“不可接受的”，应该认真对待。自由党议员安德烈·福廷André Fortin说：“目前有越来越多的人发出质疑，并且要求（政府）更加透明”。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+在（魁北克省的反对派）针对这些威胁发表评论之后，省长勒戈Legault指责PLQ（魁北克自由党）和PQ（魁北克党）纵容了这些威胁。
+
+#### 团结党领袖，加布里埃尔·纳多-杜布瓦
+
+团结党领袖加布里埃尔·纳多-杜布瓦Gabriel Nadeau-Dubois，认为，周末来到魁北克省的示威者表达的暴力思想标志着当前局势的严重性。他对凯文·比格·格雷尼尔Kevin Big Grenier 的（暴力思想）言论表示担忧，并表示必须认真对待这些言论。
+
+#### 魁北克党保罗·圣皮埃尔·普拉蒙东
+
+魁北克党保罗·圣皮埃尔·普拉蒙东Paul St-Pierre Plamondon 也谴责了抗议者的言论。他说，“我们必须认真对待这种暴力言论”，并认为由于政府在危机期间缺乏透明度，社会气氛已经恶化。
+
+#### 魁北克保守党领袖埃里克·杜海姆
+
+魁北克保守党领袖埃里克·杜海姆（Éric Duhaime）说：“如果不再有疫苗护照，也不再有紧急卫生（措施），我认为这次示威将会平息”，他还谴责了暴力威胁。
+
+另外，在2022年02月09日文贵大直播中，七哥讲到：
+
+“…被共产党及完全失败的人控制着，小土豆完全是痴心的疯子。共产党希望加拿大和美国越乱越好，但这正不是我们希望发生的。”
+
+我们谴责并反对暴力示威，我们相信魁北克省乃至加拿大的公共卫生行政措施很快会发生变化。
+
+**参考资料**：
+
+1. [Manifestants prêts à prendre les armes: Legault critique des oppositions](https://www.tvanouvelles.ca/2022/02/10/manifestants-prets-a-prendre-les-armes-legault-critique-des-oppositions)
+
+
+编辑：LILY
+发布：肥鯮#5754
+
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

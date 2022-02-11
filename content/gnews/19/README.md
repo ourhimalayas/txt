@@ -2,52 +2,32 @@
 ---
 
 
-## 魁北克省勒戈（Legault）政府指责反对党纵容示威者的武装
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1987160/)
+## 七哥说“中国这个国家成了冒险家的乐园”（2022-02-06摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1987170/)
 
-2022-02-10
+文编：Hima
+听写：叮叮
+视频：七哥
 
-编译及评论：16626
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GXHKH2P67Y_ZKTHFG5.png)图片来源：截屏于[Manifestants prêts à prendre les armes: Legault critique des oppositions](https://www.tvanouvelles.ca/2022/02/10/manifestants-prets-a-prendre-les-armes-legault-critique-des-oppositions)
-#### 魁北克省省长，弗朗索瓦·勒戈（François Legault），指责反对党纵容某些反卫生措施抗议者发出的武装暴力威胁
+来源：郭先生2022-02-06直播09：06：49摘录
 
-在加拿大新闻社（la Presse canadienne）周三发表的一篇文章中，上周末在魁北克省举行的卡车司机示威活动的组织者之一表示，有些人已经准备好拿起武器。凯文·比格·格雷尼尔（ Kevin Big Grenier自由车队的三位组织者之一）说，“我准备好拿起武器，然后去（魁北克省）议会”。
+然后是啥都敢要，啥钱都给，然后是只要咱能做的，能交易的，我全干。这个亨利你可以给大家解释解释酒桌后的坏人啥样子，七哥是开五星、七星酒店的，我天天24小时见这种场面。就外国人到了中国了，裤腰带就没了，男女都那样，不光是男的，别搞错了，男女都那德性。然后这国际NGO组织就成了完全放松的，无法律状态。因为什么？中国会给他特权，杀人都能保护你。所以中国这个国家成了冒险家的乐园。这是为什么西方的社交媒体、好莱坞、华尔街、奥林匹克组织、梵蒂冈、还有这些所有的联合国全军覆没，只要去中国。所以又到澳门赌一把，再在香港国际化一把，到大陆去脱了裤腰带，完全畜生一把，都当了皇帝。你说那不是冒险家乐园吗？又能赚大钱还合法，国家保护你，没有人挡得住。这就是当时的俄罗斯的铝业公司上市之前，我在香港跟他见面，他说，所有的有品味的外国人不会来中国投资的，有品味的外国人，他说俄罗斯人去中国引以为耻。当时那时候你说七哥在香格里拉饭店我记得特别清楚，我们一帮人啊，那像什么TPG、华平、这些基金，那都是很牛的。他说这些人不都是来吸中国老百姓血来了吗？只有中国政府放开了外国人来玩弄中国的老百姓，而且受法律保护的。他说：“到俄罗斯去试试！”这哥们是我俄罗斯很好的一个哥们，现在也是普京最好的哥们。当时铝业上市的时候在美国，是第一家在香港上市的铝业公司——俄罗斯。他的游艇、他的房子、他的船、他的女朋友、都是最棒的，也很有品味的一个人。就沙皇的文化在他身上典型的体现出来。但是他说：“美国的经济是中国人致富的唯一的一个地方，只有美国能让中国经济强大。”
 
-#### 自由党议员安德烈·福廷
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-魁北克省的反对派表示，这些评论是“不可接受的”，应该认真对待。自由党议员安德烈·福廷André Fortin说：“目前有越来越多的人发出质疑，并且要求（政府）更加透明”。
+**关注我们**
 
-在（魁北克省的反对派）针对这些威胁发表评论之后，省长勒戈Legault指责PLQ（魁北克自由党）和PQ（魁北克党）纵容了这些威胁。
+Discord 账号
 
-#### 团结党领袖，加布里埃尔·纳多-杜布瓦
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-团结党领袖加布里埃尔·纳多-杜布瓦Gabriel Nadeau-Dubois，认为，周末来到魁北克省的示威者表达的暴力思想标志着当前局势的严重性。他对凯文·比格·格雷尼尔Kevin Big Grenier 的（暴力思想）言论表示担忧，并表示必须认真对待这些言论。
+Gettr 账号
 
-#### 魁北克党保罗·圣皮埃尔·普拉蒙东
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
-魁北克党保罗·圣皮埃尔·普拉蒙东Paul St-Pierre Plamondon 也谴责了抗议者的言论。他说，“我们必须认真对待这种暴力言论”，并认为由于政府在危机期间缺乏透明度，社会气氛已经恶化。
-
-#### 魁北克保守党领袖埃里克·杜海姆
-
-魁北克保守党领袖埃里克·杜海姆（Éric Duhaime）说：“如果不再有疫苗护照，也不再有紧急卫生（措施），我认为这次示威将会平息”，他还谴责了暴力威胁。
-
-另外，在2022年02月09日文贵大直播中，七哥讲到：
-
-“…被共产党及完全失败的人控制着，小土豆完全是痴心的疯子。共产党希望加拿大和美国越乱越好，但这正不是我们希望发生的。”
-
-我们谴责并反对暴力示威，我们相信魁北克省乃至加拿大的公共卫生行政措施很快会发生变化。
-
-**参考资料**：
-
-1. [Manifestants prêts à prendre les armes: Legault critique des oppositions](https://www.tvanouvelles.ca/2022/02/10/manifestants-prets-a-prendre-les-armes-legault-critique-des-oppositions)
-
-
-编辑：LILY
-发布：肥鯮#5754
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

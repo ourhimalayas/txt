@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/11/2022 1:54 AM (UTC)`
+
+2/9/2022 Miles Guo: After Putin turned against the CCP during the Winter Olympics, Europe immediately extended an olive branch to him. Russia will surely sell out the CCP, while Europe will also kick the ass of the CCP. Anyway, it is always the Chinese people who will bear the cost.<br/><br/>2/9/2022 文贵直播：普京在冬奥会跟中共翻脸后，欧洲随即伸出橄榄枝；俄罗斯必将出卖中共，欧洲也会在背后踢中共一脚！不论如何，牺牲的都是中国人的血汗钱！<br/>
+![img](https://media.gettr.com/group16/getter/2022/02/11/01/2dbdb4ef-1832-dfd2-1bc5-de51d2b342c0/out.jpg)
+
+---
+
+`@miles 2/11/2022 1:52 AM (UTC)`
+
+2/10/2022 Miles Guo’s GETTR: Eileen Gu and her mother are wrecked and taken advantage of by the CCP to act on behalf of Communist China. The CCP does not respect the rules, laws, and morality, and the Winter Olympics have done great harm to both the athletes and the natural environment. What will it take for the Chinese people kidnapped by the CCP to gain the respect of the West?<br/><br/>2/10/2022 文贵盖特：谷爱玲母女竟被中共玩弄和利用去代表中共国；中共不尊重规则、法律、道德，冬奥会对运动员和自然环境造成了巨大的伤害，中共绑架的中国人要怎么才能得到西方的尊重呢？<br/>
+![img](https://media.gettr.com/group33/getter/2022/02/11/01/46e23ccf-bc63-d229-b24c-4ca877b254ed/out.jpg)
+
+---
+
 `@miles 2/10/2022 10:52 PM (UTC)`
 
 2月10日，“Hcoin To the Moon ” MV上线第63天美国🇺🇸重回iTunesMV摇滚榜榜首🥇，累计共30次排名第一🎉🎉🎉<br/><br/>位列柬埔寨🇰🇭iTunes 歌曲综合榜榜首🥇🎉🎉🎉<br/><br/>“Fight For Hong Kong” 位列老挝🇱🇦iTunes 摇滚歌曲榜榜首🥇🙏🙏🙏<br/><br/>万分感谢澳门，美国，柬埔寨，老挝的兄弟姐妹们! 祝虎年吉祥平安！🧧🧧🧧🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/1984856/<br/><br/>Feb 10, 2022 MV "Hcoin To the Moon" back to No.1 🥇on USA 🇺🇸 iTunes Rock Music Video Chart on 63 Day of Launch, hit No .1 for 30 times in total🎉🎉🎉<br/><br/>Hit No.1🥇 on Cambodia 🇰🇭 iTunes all Genres Song Chart🎉🎉🎉<br/><br/>“Fight For Hong Kong” Hit No.1🥇on Laos 🇱🇦 iTunes Rock Song Chart 🎉🎉🎉<br/><br/><br/>Thank you very much to our brothers and sisters in USA, Cambodia, Laos. Have a safe and lucky year of Tiger!🧧🧧🧧🙏🙏🙏
@@ -141,20 +155,6 @@ EP9: The Villains. Let's tear down the monstrous lies of this despicable #HBO #V
 
 2/6/2022 Miles Guo: The current economic situation in the US indicates that the CCP virus and the COVID vaccine disasters have destroyed the supply chains. I have said in early 2020 that the secondary disasters and crises caused by the CCP virus and COVID vaccines will start this May. This is the conclusion I draw based upon the intelligence I have about the CCP.<br/><br/>2/6/2022 文贵直播：美国目前的经济说明中共病毒和疫苗灾难摧毁了供应链；文贵在2020年初就说病毒和疫苗造成的次生灾难和危机将于今年5月开始，这是文贵基于所掌握的中共情报而作出的判断<br/>
 ![img](https://media.gettr.com/group41/getter/2022/02/08/02/dee84e88-a4e8-ca02-44aa-4a405eb8c549/out.jpg)
-
----
-
-`@miles 2/8/2022 2:38 AM (UTC)`
-
-2/6/2022 Miles Guo: Why did the CCP let Weijian Shan go abroad during the Cultural Revolution? How did the CCP infiltrate the US by using the Ping-pong diplomacy?<br/>China and the US depend on each other for security and complement each other in terms of culture, and there is no historical conflict between the two. The Sino-US economic cooperation will be the best in the world!<br/><br/>2/6/2022 文贵直播: 中共为什么在文革期间让单伟建出国？中共是如何用乒乓外交渗透美国的？中美之间生死与共、文化互补、无历史冲突，中美经济合作必将是天下第一！<br/>
-![img](https://media.gettr.com/group37/getter/2022/02/08/02/d4257da9-5ebc-d3bd-129e-1e2e66866727/out.jpg)
-
----
-
-`@miles 2/7/2022 11:18 PM (UTC)`
-
-2/6/2022 Miles Guo: Our fellow fighters are everywhere at the Winter Olympics such that I can always know what is going on. Fellow fighters have helped foreign leaders and athletes understand the true nature of the CCP, and this is the fundamental reason why Putin left Communist China earlier than expected.<br/><br/>2/6/2022 文贵直播: 冬奥会无处不在的战友让现场的一切情况尽在文贵的掌握之中；新中国联邦的战友们在冬奥会让外国元首和运动员认清中共本质，这就是普京提前离开中共国的根本原因<br/>
-![img](https://media.gettr.com/group27/getter/2022/02/07/23/02f37022-a338-741d-a6a9-daebd3defc8a/out.jpg)
 
 ---
 
