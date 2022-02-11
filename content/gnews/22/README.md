@@ -2,45 +2,25 @@
 ---
 
 
-## 王岐山要上了美国撤离使馆的医疗专机,中共敢打下来吗？
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1989522/)
+## 中共工信部拟防堵数据出境
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1989600/)
 
-G-TV视频链接：[https://gtv.org/video/id=62035198585ecc15d73f482e](https://gtv.org/video/id=62035198585ecc15d73f482e)
+撰稿：子喜太一
+![](https://assets.gnews.org/wp-content/uploads/2022/02/111-5.jpg)图片来自网络
+2月10日，中共工信部发布《工业和信息化领域数据安全管理办法（试行）》意见稿指出，数据处理者在大陆境内收集和产生的重要数据和核心数据，若需向境外提供，应依法进行安全评估。
 
-**郭文贵先生：**就这现在冬奥会要来了，是吧？这个王沪宁的秘书：常秘书，给人家美国人打电话，是吧？咱是哥们啊，咱见个面吧，干嘛都撤走啊是吧？你撤几个就算了吧。人家美国的人说我们买了很多家具还得搬走，开好几台大车。我还给你准备了几件家具呢。
+高科技互联网时代想保守数据秘密，尤其是半公开状态的大数据信息的秘密，几乎是不可能完全做到的。中共国这次出台的试行办法以防止重要或核心数据出境为名，无非是对数据处理企业进行审查的又一合法依据罢了。去年6月滴滴打车赴美上市被叫停，就是以泄露资讯为由，7月滴滴25款App官方以“存在严重违法违规收集使用个人信息问题”为由被全部下架。
 
-所以就这种人，你想想王沪宁办公室的人，就公开行贿别人，就是low到极点，把国与国的关系弄到。你知道美国人，人家是玩死你中共。那几架你说的那几架那个医疗专机，能拉回多少人呢？那光拉人吗？
+中共国治下的所有法律法规或试行办法，最终目的都是为了管控自然人或企业，甚至就是为了赤裸裸的抢夺和迫害。14亿老百姓和各大中小企业，从未真正收到这些法的保护，都是被利用的工具或是被整治的对象而已！工信部此举，就是对相关企业的管控多增加了一个手段。同时，这也是一个征兆，表明中共国现在和世界关系的微妙变化，不是更加开放，更加与世界融合，而是朝着反方向走，要把自己包裹起来，不让外界看到里面不可告人的秘密。
 
-我有告诉你，可不光拉美国人，很有可能也有中国人就上那飞机了，那王岐山要上那飞机来了，你能给他打下来吗？你敢打吗？你不敢打，王岐山的秘密材料能拉过来，你敢打吗？你也不敢打。
+中共国屠杀8964学生，屠杀新疆、西藏少数民族，奸杀过万香港人，还有计划生育强行堕胎4亿婴儿，武汉病毒爆发和郑州水灾的死亡人数都是个迷，在宣传粉饰修改历史无法达到目的时，最好的办法就是彻底埋葬这些秘密。
 
-字幕来源：[2022年1月29日香草山农场年会直播全文字版](https://gnews.org/zh-hans/1938961/)
+可惜这一切愚蠢的行为都是徒劳，真相正在被揭开，正在向全世界扩散和传播，CCP的一切掩盖涂抹最终只能是其罪孽深重的又一铁证！无论CCP出台怎样的政策都无法改变其必然灭亡的结局！
 
-编辑整理：Jacques；
+新闻参考链接：[联合新闻网](https://udn.com/news/story/7333/6089393?from=udn-catebreaknews_ch2)
 
-字幕文件制作：知津；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+发稿：mgjxs
+![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

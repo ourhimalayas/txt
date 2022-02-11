@@ -2,44 +2,44 @@
 ---
 
 
-## 惊天消息：中共解放军在奥运期间向世界发起出血热病毒攻击
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1989447/)
+## 王岐山要上了美国撤离使馆的医疗专机,中共敢打下来吗？
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1989522/)
 
-**翻译： Jenny Ball**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip惊天消息：中共解放军在奥运期间向世界发起出血热病毒攻击.png)埃博拉病毒病毒粒子 图片来源：creativedestructionmedia.com
-这个故事正在发展……
+G-TV视频链接：[https://gtv.org/video/id=62035198585ecc15d73f482e](https://gtv.org/video/id=62035198585ecc15d73f482e)
 
-消息灵通人士告诉“儿童保护媒体”（CDMedia），中国共产党的武装力量，即中国人民解放军，在北京奥运会期间，向本国人民释放了另一种病毒，以便运动员和外交官感染后将病毒带到世界其他国家，尤其是西方。
+**郭文贵先生：**就这现在冬奥会要来了，是吧？这个王沪宁的秘书：常秘书，给人家美国人打电话，是吧？咱是哥们啊，咱见个面吧，干嘛都撤走啊是吧？你撤几个就算了吧。人家美国的人说我们买了很多家具还得搬走，开好几台大车。我还给你准备了几件家具呢。
 
-放毒的目的是多方面的。在实验室开发后，解放军正在测试病原体在中国人民和奥运会参赛者身上的表现。
+所以就这种人，你想想王沪宁办公室的人，就公开行贿别人，就是low到极点，把国与国的关系弄到。你知道美国人，人家是玩死你中共。那几架你说的那几架那个医疗专机，能拉回多少人呢？那光拉人吗？
 
-该病毒已在实验室内进行了改造，以使潜伏期比平时更长，现在怀疑为 3-4 周，以便让来北京的游客在过境期间没有症状地回家。
+我有告诉你，可不光拉美国人，很有可能也有中国人就上那飞机了，那王岐山要上那飞机来了，你能给他打下来吗？你敢打吗？你不敢打，王岐山的秘密材料能拉过来，你敢打吗？你也不敢打。
 
-该病毒的发布遵循 Covid-19 发布期间使用的程序，即中国部分地区被感染、封锁，以试图在释放后阻止传播到中国其他地区。这种情况给解放军提供了似是而非的推诿。
+字幕来源：[2022年1月29日香草山农场年会直播全文字版](https://gnews.org/zh-hans/1938961/)
 
-然而，与 Covid-19 一样，那些访问中国的感染者，将被允许甚至被鼓励前往西方。
+编辑整理：Jacques；
 
-据说这种病毒具有高度传染性，会导致身体多个孔道出血，甚至是皮肤。
+字幕文件制作：知津；
 
-随着 Covid-19 阶段的结束，第二波生物战爆发了。
+视频制作及上传：Cindy；
 
-我们的消息来源已宣布，已与美国政府的有关机构联系，但无济于事，无法隔离从北京奥运会返回的人。
+G-News发布：小满；
 
-其他新闻媒体最近报道了该地区的类似故事，但没有提供这些具体细节。是否公开此类数据始终是一个问题，但我们认为，美国公众需要了解可能发生的事情，因为，我们对政府和医疗机构的信任已跌入谷底。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-CDMedia 将在我们收到更多信息时继续报告。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-**新闻来源**：[creativedestructionmedia.com][BREAKING FROM SOURCE: People’s Liberation Army Launches Hemorrhagic Fever Viral Attack Against The World During Olympics](https://creativedestructionmedia.com/news/asia/2022/02/10/breaking-from-source-peoples-liberation-army-launches-hemorrhagic-fever-viral-attack-against-the-world-during-olympics/)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-* * *
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-***审核：文乐
-校对：小东
-发布：信心满满***
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-3.jpeg)
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
