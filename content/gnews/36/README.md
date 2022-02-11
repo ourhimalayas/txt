@@ -2,30 +2,19 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年2月10日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1985627/)
+## 樱花头条┃美提最严厉制裁案 锁定中共人大官员及家属
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1984715/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-4.jpg)
+撰稿：东京樱花团/樱花传媒
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-9.png)
-文章仅代表作者本人观点，与Gnews无关
+美国众议院多名资深共和党议员周三（2月9日）提案，锁定数千名中共全国人民代表大会（简称全国人大）成员及其直系亲属。这是迄今美国国会提出的针对中共的最严厉、最强硬的制裁。
 
-视频参看：
-[2022.02.10早 《NFSC新闻》](https://gtv.org/video/id=6205133aa1fe5e57a4264b6c)
-[2022.02.10早 G|TV《新闻访谈》](https://gtv.org/video/id=62051bb7a1fe5e57a4264fca)
+信息来源：[https://gettr.com/post/ptoalld87e](https://gettr.com/post/ptoalld87e)
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+编辑：东京樱花团/asket
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
-![calendar](https://assets.gnews.org/wp-content/uploads/2022/02/calendar-1.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

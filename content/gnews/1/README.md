@@ -2,16 +2,14 @@
 ---
 
 
-## 有声|美议员批评白宫使用中共来源的检测试剂
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1987082/)
+## 有声|加拿大总理三剂疫苗仍確診 加國民调稱多数人望终止疫情限制
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1987116/)
 
 配音：香草山巡管部– 文凯琳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月1日，据当地媒体揭露，美国政府邮寄给该国公民使用的中共病毒家用检测试剂盒中，有很大一部分是由中共国医疗设备制造商在加州的子公司生产的，其包装盒上明确贴有“中共国制造”的标签。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9D%A1%E5%B9%85.png)
+加拿大媒体2月1日报道安格斯·里德研究所公布的一项民调结果，该研究所是专门从事加拿大舆论研究的机构。 民调显示，54%的受访者同意结束所有疫情相关的限制，另有32%的人表示强烈同意。
 
-资料显示，该医疗设备制造商曾经获得过一家中共公司数千万美元的投资，但这一中共公司曾因与中共军方有联系而被美国政府列入黑名单中。据悉，联邦政府已经与该制造商签署了价值超过21亿美元的合约。
-
-文字版原文：[美议员批评白宫使用中共来源的检测试剂](https://gnews.org/zh-hans/1951246/)
+文字版原文：[加拿大总理三剂疫苗仍確診 加國民调稱多数人望终止疫情限制](https://gnews.org/zh-hans/1949760/)
 
 音频处理/发稿：Daxia
 
@@ -24,8 +22,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,21 +2,19 @@
 ---
 
 
-## 美前国务卿彭佩奥称：中共没有权利享有奥运荣耀
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1981447/)
+## 美国防医疗疾病数据库：强制疫苗后，美军各种疾病发病率剧增！
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1981450/)
 
-作者：纽约磐石农场—在远方
+作者：纽约香草山 – zhong
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-2月8日，美国前国务卿彭佩奥在接受福克斯采访时明确表示，美国不应当选择参加犯下种族灭绝罪的政权所举办的奥运会，中共政府无权享有奥运会的荣耀。习近平想利用冬奥会对世界宣传中共国事美好的假象，并掩盖中共对新疆等犯下的种族灭绝和反人类罪行为。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-21.jpg)
-此外，彭佩奥进一步指出，共产党通过强迫运动员使用一次性手机，通过此手段搜集相关信息。且中共还秘密搜集运动员的DNA信息，储存在中共国或者军方的数据库中。因此，他呼吁应抵制北京冬奥，在毫无人权的中共国举办体现奥林匹克精神的冬奥会，实在讽刺。
-
-参考链接：[美前国务卿彭佩奥称：中共没有权利享有奥运荣耀](https://gettr.com/post/pt8u85f576)
+据美国国防医疗疾病数据库的数据显示，在推行强制接种疫苗后，美军各种疾病发病率剧增。其中，最严重的是高血压，发生率增加了21倍，神经系统疾病发生率则增加了近11倍。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture1-17.jpg)
+参考链接：[美国防医疗疾病数据库：强制疫苗后，美军各种疾病发病率剧增！](https://gettr.com/post/psk9p8be58)
 
 ![This image has an empty alt attribute; its file name is calendar.png](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
-总编：文特
-编辑：静言
+总编：zhong
+编辑：zhong
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
@@ -27,8 +25,6 @@
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
 ![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
 
  
 

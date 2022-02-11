@@ -2,21 +2,25 @@
 ---
 
 
-## 世界病毒及疫苗灾难将在5月分开始 事基于中共情报所作出的判断
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1981445/)
+## 日本要求返日冬奥会选手接受手机安全检查
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1981448/)
 
-作者：纽约香草山 – zhong
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-19.jpg)
-文贵大直播中提到有关于中共病毒及疫苗导致的经济灾难，由美国目前经济现状可以清楚理解到世界供应链受到中共病毒及疫苗的影响。爆料革命从2020年初便基于中共情报作出判断，并警告中共释放的病毒及疫苗将从今年的5月份开始衍生出一系列的问题，美国将面临历史上从未经历过的经济大萧条。
+作者：银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+美国前国务卿彭佩奥称，中共强制参加冬奥会的运动员使用一次性手机，目的为搜集信息。对于资讯安全的部分，日本体育厅2月8日表示，日本参加北京冬奥会的代表团成员将在返日后接受移动设备检查，他们担心中共冬奥会强制使用的应用程序My2022可能会构成安全风险。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-22.jpg)
+日本体育厅表示，安全专家将筛选安装了北京奥运会官方应用程序My2022的设备，并在必要时删除可疑应用程序，所有这些都须经手机所有者许可。同时日本体育厅希望向参加3月4日北京残奥会的日本代表团提供移动设备。日本体育厅及国家网络安全和战略中心都将提供咨询服务。
 
-另外，从加拿大大卡车反疫苗事件等，疫苗造成的军事、政治、经济等危机，也预计在今年5月开始陆续渲染。
+此前，日本政府曾敦促那些前往中共参加比赛的人专门为My2022应用程序准备替代设备，将使用量降至最低，并在离开中共国后删除该程序。
 
-参考链接：[世界病毒及疫苗灾难将在5月分开始 事基于中共情报所作出的判断](https://gettr.com/post/pt5uqy07b1)
+据悉，包括英国和美国在内的七个西方国家此前都曾呼吁他们的运动员不要随身携带个人智能手机，目前，共有约1000名运动员和教练计划丢弃他们在中共冬奥会上使用过的手机。
+
+参考链接：[日本要求返日冬奥会选手接受手机安全检查](https://english.kyodonews.net/news/2022/02/4372eb10123a-returning-japan-olympians-to-have-smartphones-undergo-security-check.html)
 
 ![This image has an empty alt attribute; its file name is calendar.png](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
-总编：zhong
-编辑：zhong
+总编：飞虹
+编辑：飞虹
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**

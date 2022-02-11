@@ -2,35 +2,31 @@
 ---
 
 
-## 有声|佛像系列：穿着美丽的衣裳，追求着自由的生活
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1987074/)
+## 七哥谈美国、俄罗斯与中国的交流（2022-02-06摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1987112/)
 
-配音：香草山巡管部– 文凯琳
+文编：Hima
+听写：叮叮
+视频：七哥
 
+来源：郭先生2022-02-06直播08：56：32摘录
 
+给大家分享一个最重要的，你看到美国的经济啊，大家要记住，你看我们中国当时我一再说，当时派到中国去的这个“盛茂昭”就是第一个到中国去做生意的，你看他在美国博物馆里面，大家网上都能查到，他对中国人的整个论述，包括蒲安臣、包括后来咱大家记住那个叫什么？美国最有名的一个罗斯福关于中国的所谓人性的报告，不是人权，是人性，就是人的行为习惯的报告。包括福布斯，福布斯这个有名的“福布斯家族”是最早在中国做生意的，专门对中国的陈述。而且里边儿都说到：中国和美国人民一旦好在一起，两国人民的优缺点相互补偿，两国人民的大陆国家和海洋国家的这种结合地理优势，和中国的人口勤劳、文明的这种优势，美国的新国家优势，这个世界就平安、和平，然后多么的美好。就是这个在历史上，刚才亨利小哥说的那句话说得对，就是不知道、谁也搞不懂，到底中共是魔怔了？是个人被威胁了被俄罗斯？这怎么爱上了俄爹？从来没带来过好处。就刚才我说那些原因之外，还有一个就是俄罗斯是世界上对抓住政治把柄、政治黑社会是全人类第一，没有喊第二的。当然了，共产党所有在俄罗斯搞武器交易没有不拿巨额回扣的，你跟俄罗斯做这种石油贸易交易没有不拿回扣的。而美国人跟中国人是做为文化交流、精神交流、绝对的实际利益交流。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
+**关注我们**
 
+Discord 账号
 
-G-Fashion最新推出的佛像系列展现出中世纪西藏的神奇和美景，该系列的灵感可能来自于藏传佛教寺庙中有着数百甚至上千年历史的壁画，其优质面料再一次体现了品牌的舒适感和以人为本的品味。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-带有现代感的时尚睡衣单品和套件是该系列中的一大亮点。精美的、意大利手工制作的黑色袖口和腰带为原本优雅的长袍瞬间平添了几分强悍的气势。另外，这条精美的长袍由于具有轻松的垂坠感和合体的剪裁， 竟然也很适合作为裹身式连衣裙 (wrap dress)，美美地修饰出模特凹凸有致的身材。只需简单配上一双细高跟凉鞋和一个大胆的彩嘴，穿着者一定会是人群中的亮点。另外，当和简单的白色小吊带和蓝色牛仔裤搭配在一起时，整个造型又会变得清爽和别致。
+Gettr 账号
 
-文字版原文：[佛像系列：穿着美丽的衣裳，追求着自由的生活](https://gnews.org/zh-hans/1953560/)
-
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
-
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

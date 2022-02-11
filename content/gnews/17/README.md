@@ -2,8 +2,8 @@
 ---
 
 
-## 关于排华&#8211;华人在加拿大起诉大卡车司机
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1986851/)
+## 个人生活改变更加坚定灭共
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1986891/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

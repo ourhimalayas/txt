@@ -2,8 +2,8 @@
 ---
 
 
-## UBS是沼泽地的核心中的核心
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1986807/)
+## 关于排华&#8211;三个地区最危险
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1986862/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

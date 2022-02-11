@@ -2,29 +2,28 @@
 ---
 
 
-## 广西宾阳教育局疯狂的中共病毒疫苗清零政策
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/1987046/)
+## 有声|北京冬奥临近，COVID病例增加，中共甩锅外来参赛人员
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1987107/)
 
-¨作者：波士顿五月花 Frankie 背靠背
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-11-at-7.55.57-AM.png)图片来源：Gettr
-2022年02月08日，广西省宾阳县教育局下发《宾阳县教育局关于3-11周岁在校新冠疫苗第一、第二剂接种清零的通知》（如图一、二），该通知要求学生必须不漏一人接种中共病毒（covid19）疫苗，采取电访、上门家访等形式动员学生接种。有接种禁忌的需要二甲以上医院出具不宜接种或缓种证明。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-11-at-7.57.10-AM.png)图片来源：微博![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-11-at-7.57.50-AM.png)图片来源：微博
-中共地方官员为保自己乌纱帽，除了电访、上门，还通过宣传，利用恐惧等方式疯狂诱导老百姓接种疫苗。
+配音：香草山巡管部– 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
+自从疫情爆发以来，中共政府从未对内对外公布感染病毒及死亡的真实数字。随着冬奥开幕尽在咫尺，中共开始甩锅外来参赛人员。
 
-截至2月10日12时，广西新冠肺炎疫情新闻发布会消息，广西本轮疫情已经累计出现192例确诊病例，其中普通型90例，轻型102例。[【1】](https://baijiahao.baidu.com/s?id=1724389110105564491&amp;wfr=spider&amp;for=pc)
+据路透社北京1月31日的—篇报道，在过去的四天里，在参与北京冬奥会的运动员和工作人员中发现了119例COVID-19病例。冬奥会组织者周一表示，周末的统计结果显示，周日有37个新病例，周六有34个，大多数人在抵达机场后检测出阳性。
 
-2022年2月9日广西百色的疫情已经向周边县市辐射，南宁城也开始紧张排查。有家长反应在孩子的压力下被迫去接种第三针疫苗，与百色疫情爆发前截然不同，现在疫苗接种点从早到晚排长龙[【2】](https://www.163.com/dy/article/GVQBHH5I05528HRP.html)宾阳县官员利用和制造恐慌，紧张气氛，营造羊群效应，诱导家长和学生接种中共病毒疫苗，为了完成他们疫苗政治任务。
+文字版原文：[北京冬奥临近，COVID病例增加，中共甩锅外来参赛人员](https://gnews.org/zh-hans/1949654/)
 
-随着中共将罪恶的黑手伸向18岁以下孩子，疯狂推行接种疫苗后，微博频频爆出年轻孩子被诊断脑出血，心肌炎等不应该发生在这个年龄应有的疾病。保护孩子远离中共病毒，拒绝接种中共病毒疫苗！
+音频处理/发稿：Daxia
 
-[【1】广西百色疫情防控已至窗口期 辽宁新增20例本土确诊](https://baijiahao.baidu.com/s?id=1724389110105564491&amp;wfr=spider&amp;for=pc)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-[【2】广西百色疫情已辐射南宁，南宁查得很紧，南宁的百色“黄码”将核检](https://www.163.com/dy/article/GVQBHH5I05528HRP.html)
-
-* * *
-
-*编辑&发布：Vicky*
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
