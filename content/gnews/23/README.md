@@ -2,19 +2,25 @@
 ---
 
 
-## 解决疫苗与病毒对世界经济的毁灭性打击的唯一办法——灭共
-` DC政经` [轉載自GNews](https://gnews.org/zh-hans/1987462/)
+## 福克斯抨击主流媒体抹黑加拿大抗议活动
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1987616/)
 
-《2022年02月06日文贵大直播》节选
+加拿大温哥华杨帆农场枫叶快讯
 
-共产党疯狂地放出了病毒，这个病毒一放出来，什么经济冲突、利益冲突、贸易冲突，台湾战略、地区战略冲突，都变得渺小的不能再渺小了。摆在前面就两个选择：怎么停止疫苗和病毒的全球大扼杀、大屠杀？怎么解决疫苗还有现在这个病毒对世界经济的毁灭性打击？
+采编： Spirit           编辑撰稿：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1078.png)图片来源 FON NEWS
+据美国《福克斯新闻》2月9日报道，加拿大卡车司机的反疫苗护照运动，目前已被大部分由政府操控的主流媒体贴上了各种污名化的标签。并大肆歪曲报道，意图抹黑真正的民意。
 
-* * *
+报道称，包括CNN和MSNBC等电视台在内的多个严肃媒体，都公然声称参加和平抗议的人是威胁民主体制的邪教徒。渥太华警察局长也用激烈言论公开指责抗议者，甚至将和平集会定义成“全国性叛乱”。
 
-素材，剪辑，字幕：小蜜蜂 | 发布：文零
+对此，加拿大卡车司机则表示，当局利用主流媒体的诽谤和打压不仅不能磨灭他们争取自由的决心，还让所有国民都逐渐看清了特鲁多政府独裁专制的真实面目，从而将唤起更多觉醒的民众参与到反抗暴政的行列中来。
 
-更多新闻咨讯请访问：[DC政经Gettr账号](https://gettr.com/user/dczhengjingquan)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/DCZJ_Gnews_960_160.png)
+原文链接： [https://www.foxnews.com/media/truckers-downright-disgusted-canada-freedom-convoy-media](https://www.foxnews.com/media/truckers-downright-disgusted-canada-freedom-convoy-media)
+
+校对编辑：硫酸羟氯喹64
+
+发布：青青
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,37 +2,28 @@
 ---
 
 
-## 加拿大将寻求加入欧盟的行列应对中共国对立陶宛贸易争端的挑战
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/1987617/)
+## 有声|美对台出售爱国者军备系统抵御中共威胁
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1987762/)
 
-翻译：冰糖葫芦喵
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月8日，据台湾媒体报道，台湾外交部已经正式接到美国政府的通知，即美方将对台湾出售价值1亿美元的设备和服务，用以维持、维护和改进台湾现有的爱国者导弹防御系统。
 
-编辑与校对：冰糖葫芦喵、灭共文明
+对此，台湾外交部表示了高度欢迎。同时，外交部也强调，鉴于中共持续的军事扩张和挑衅行为，台湾将继续深化台美双方紧密的安全伙伴关系，并对印太地区的和平、稳定与繁荣做出贡献。
 
-**《路透社》2月10日报道，周四，加拿大全球事务部在一份声明中表示，加拿大将寻求加入英国、美国和澳大利亚的行列，就中共国在世界贸易组织对立陶宛的贸易限制的争端解决磋商。**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/加拿大欧盟-e1644548407150.jpg)欧盟与加拿大签署自由贸易协定（图片来源：网络）
-在该声明中，加拿大对中共国最近针对立陶宛和欧盟具有立陶宛成分的商品和服务采取的贸易行动感到担忧，这可能会破坏基于规则的国际贸易体系及其机构。
+文字版原文：[美对台出售爱国者军备系统抵御中共威胁](https://gnews.org/zh-hans/1985495/)
 
-**1月27日，欧盟就中共国针对立陶宛采取的“歧视性贸易”做法向世贸组织提起诉讼，**并向总部设在日内瓦的贸易机构发起挑战，指责中共国对立陶宛的歧视性贸易行为，称其威胁到欧盟单一市场的完整性。
+音频处理/发稿：Daxia
 
-此前，立陶宛允许民主台湾在维尔纽斯开设事实上的大使馆之后，中共国已经降低了与立陶宛的外交关系，并向跨国公司施压，要求它们切断与这个拥有280万人口的波罗的海国家的联系。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-报道中称，在世贸组织的挑战中，双方有60天的时间进行协商，以达成解决方案。如果没有达成任何协议，欧盟可以选择发起正式的争端，成立一个世贸组织小组来研究其对中共国的主张。
-
-**加拿大政府表示，它反对 “经济胁迫”，并与世贸组织的 “志同道合的伙伴一起支持基于规则的国际贸易”。**
-
-评论：
-
-一直以来，**加拿大**在对中共的态度上表现比较软弱，但是**这次也同欧盟一起站在了对抗中共霸凌的一方。这充分表明，中共在国际上遭遇空前孤立。**
-
-**加拿大作为民主国家会本能的站在公平贸易、反对贸易霸凌和经济胁迫，维护国际公认的贸易准则，发对秩序的破坏者。**
-
-新闻链接：
-
-[Canada seeks to join EU challenge against China at WTO | Reuters](https://www.reuters.com/world/europe/canada-seeks-join-eu-challenge-against-china-wto-2022-02-10/)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

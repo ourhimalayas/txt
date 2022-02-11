@@ -2,25 +2,28 @@
 ---
 
 
-## 福克斯抨击主流媒体抹黑加拿大抗议活动
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1987616/)
+## 有声|美国再将33家中共企业列入未经核实清单
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1987745/)
 
-加拿大温哥华杨帆农场枫叶快讯
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月7日，据相关媒体消息显示，美国政府已经将包括中共国航发南方工业有限公司在内的33家中共实体列入至“未经核实清单”中。
 
-采编： Spirit           编辑撰稿：硫酸羟氯喹64
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1078.png)图片来源 FON NEWS
-据美国《福克斯新闻》2月9日报道，加拿大卡车司机的反疫苗护照运动，目前已被大部分由政府操控的主流媒体贴上了各种污名化的标签。并大肆歪曲报道，意图抹黑真正的民意。
+对此，美国商务部表示，联邦政府采取这一措施的原因在于，美国无法确定这些中共实体将如何使用其自美国进口的商品。
 
-报道称，包括CNN和MSNBC等电视台在内的多个严肃媒体，都公然声称参加和平抗议的人是威胁民主体制的邪教徒。渥太华警察局长也用激烈言论公开指责抗议者，甚至将和平集会定义成“全国性叛乱”。
+文字版原文：[美国再将33家中共企业列入未经核实清单](https://gnews.org/zh-hans/1984848/)
 
-对此，加拿大卡车司机则表示，当局利用主流媒体的诽谤和打压不仅不能磨灭他们争取自由的决心，还让所有国民都逐渐看清了特鲁多政府独裁专制的真实面目，从而将唤起更多觉醒的民众参与到反抗暴政的行列中来。
+音频处理/发稿：Daxia
 
-原文链接： [https://www.foxnews.com/media/truckers-downright-disgusted-canada-freedom-convoy-media](https://www.foxnews.com/media/truckers-downright-disgusted-canada-freedom-convoy-media)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-校对编辑：硫酸羟氯喹64
-
-发布：青青
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,56 +2,30 @@
 ---
 
 
-## 法媒报道: 新的加密货币喜马拉雅币推出后不久即达 270 亿美元估值
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1987521/)
+## 美议员推跨党派决议 呼吁中共保证彭帅的安全及自由
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1987663/)
 
-译评：香草山商业部 —文锤
+**撰稿：日本东京方舟农场  幽蘭自得**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+2月9日，美国多名联邦参议员推出跨党派的决议案，呼吁中共当局保证彭帅的人身安全和自由。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-163.jpg)图为美国国会大厦。（图片来自Stefan Zaklin/Getty Images）
+据《美国之音》报道，这个由田纳西州的共和党参议员布莱克伯尔尼(Marsha Blackburn)、佛罗里达州的共和党参议员斯科特(Rick Scott)和弗吉尼亚州的民主党参议员沃纳(Mark Warner)牵头的跨党派决议呼吁中国共产党保证网球明星彭帅的安全和自由。
 
+该决议指出，彭帅案直接关系到国际社会对北京2022年冬奥会参赛运动员言论自由和安全的广泛关注。而国际奥委会未能明确和有力地质疑中华人民共和国政府关于彭的安全的声称，引发了人们对国际奥委会捍卫参加2022年北京冬奥会和残奥会的运动员人权的能力和意愿的质疑。
 
+决议要求，中共政府通过确保彭的自由和安全并以公平和透明的方式调查她提出的指控，来帮助减少对北京冬奥会运动员安全的担忧。
 
+该决议的共同发起人包括西弗吉尼亚州的共和党参议员卡比托(Shelly Moore Capito)、俄亥俄州的民主党参议员布朗(Sherrod Brown)、北达科他州的共和党参议员霍文(John Hoeven)、(俄勒冈州的民主党参议员怀登(Ron Wyden)、德克萨斯州的共和党参议员克鲁兹(Ted Cruz.)、俄勒冈州的民主党参议员默克利(Jeff Merkley、印第安纳州的共和党参议员布劳恩(Mike Braun)、马里兰州的民主党参议员范·霍伦(Chris Van Hollen)，宾夕法尼亚州的民主党参议员凯西(Bob Casey)、阿肯色州的共和党参议员科顿(Tom Cotton)、佐治亚州的民主党参议员沃尔纳克(Raphael Warnock)、威斯康星州的共和党参议员约翰逊(Ron Johnson)和新罕布什尔州的民主党参议员沙欣(Jeanne Shaheen)。
 
+近日，彭帅在中（共）国奥林匹克委员会人员陪同下接受法国记者的采访。在访谈中，彭帅提到了自己决定退休的消息，并告诉记者，她“从未指控遭人性侵也没人间蒸发。”
 
-“喜马拉雅币”是市场上最新的加密货币，其在推出后不到两周的时间内估值就达到了 270 亿美元，价格从 10 美分上涨至 27 美元。没有其他任何人比流亡海外的亿万富翁郭文贵更会在社交媒体上推广新的加密货币。
+参考链接：
+1.[https://www.voachinese.com/a/us-senate-resolution-china-human-rights-peng-shuai-20220209/6434657.html](https://www.voachinese.com/a/us-senate-resolution-china-human-rights-peng-shuai-20220209/6434657.html)
+2.[https://gnews.org/zh-hans/1971250/](https://gnews.org/zh-hans/1971250/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/La-nouvelle-crypto-monnaie-Himalaya-Coin-atteint-une-valorisation-de-27.jpg)图片来源：网络
-
-这位亿万富翁出现他的音乐视频“Hcoin to the Moon”中，他在视频中宣传这种加密货币。视频中的郭，抽着雪茄，在游艇上闲逛，开着一辆红色跑车。唐纳德·特朗普的前顾问史蒂夫·班农也对此很感兴趣，并表示该剧的首次亮相是“不朽的”。
-
-在中国加大对加密货币使用的打击力度之际，“喜马拉雅币”的首次亮相值得一提。更引人注目的是，加密货币是由郭和班农推动的，他们多年来一直在公开反对中共政府。
-
-史蒂夫·班农上周在接受采访时称赞了“喜马拉雅币”，并将其置于他与中国抗争的背景下。喜马拉雅交易所（Himalaya Exchange）首席执行官 Jesse Brown 表示，已经发行了 10 亿枚喜马拉雅币。这相当于大约 270 亿美元的市场价值。
-
-译者评：很少看到法媒中有对喜交所和喜币的报道，此篇报道对于推广喜支付有着一定助力作用，战友们加油！用好一切可以利用的工具推广喜支付。
-
-**文章来源：**
-
-**[La nouvelle crypto-monnaie Himalaya Coin atteint une valorisation de 27 milliards de dollars peu après son lancement – ThePressFree](https://thepressfree.com/la-nouvelle-crypto-monnaie-himalaya-coin-atteint-une-valorisation-de-27-milliards-de-dollars-peu-apres-son-lancement/)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-8.jpg)
-
-校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+素材采编：幽蘭自得
+编辑：老孙
+发布：爱放飞
 
  
 

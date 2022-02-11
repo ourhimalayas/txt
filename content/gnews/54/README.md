@@ -2,29 +2,24 @@
 ---
 
 
-## 美国防医疗疾病数据库：强制疫苗后，美军各种疾病发病率剧增！
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1981450/)
+## 卧底美国的中共特工-单伟建
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1982193/)
 
-作者：纽约香草山 – zhong
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-据美国国防医疗疾病数据库的数据显示，在推行强制接种疫苗后，美军各种疾病发病率剧增。其中，最严重的是高血压，发生率增加了21倍，神经系统疾病发生率则增加了近11倍。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture1-17.jpg)
-参考链接：[美国防医疗疾病数据库：强制疫苗后，美军各种疾病发病率剧增！](https://gettr.com/post/psk9p8be58)
+撰稿：北纬农夫
 
-![This image has an empty alt attribute; its file name is calendar.png](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
+单伟建出生于中共外交家庭，文革末期就被中共高层毛泽东、周恩来所关照，并被中共作为特工重点培养，文革结束后第一批被送到美国留学，一路走来，单伟建在中共系统的强大支持与包装下，拥有了学者、教授、投资人等耀眼光环，其利用这些头衔深度渗透了美国的金融界、司法界、科技界等核心领域。
 
-总编：zhong
-编辑：zhong
-校对/发稿：Hetangyuese
+在金融界，单伟建通过中共盗国贼盗取的巨量资本和美国华尔街勾结，收购控制一些中共指定的目标性公司，为中共服务；另外还通过被包装的中共国企业在美国IPO，骗取美国资金;甚至还促成了美国人的养老金投资中国！
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+在司法界，单伟建以中共国企业赴美IPO的市场资源为诱饵，收买和掌控了多名大律师和其事务所，包括 O’Melveny， Cahill，还有Edward Moss、Bondi这些律师事务所等。这些人不仅是律师，更在美国的检察官系统、法院系统、甚至是司法部和政府工作人员。这几年以来，中共在美国对郭文贵先生发起的几十起法律超限战中，背后都是单伟健指挥和金钱支持的，看看这个奇葩的司法过程，就知道单伟健对美国司法界的渗透如此之深。
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+在科技界，单伟健是中共的‘千人计划’的发起人之一，该计划以学术交流为名，蓝金黄西方的科技精英，盗取西方的军事科技情报。 ‘千人计划’是中共的一项国策，中共往往以极高的待遇、漂亮的女秘书、高端的论坛等手段达到其偷盗目的。
+
+中共将单伟建这名特工，包装成一名教授学者、金融大佬，长期潜伏西方，配合共产党荼毒控制世界的邪恶任务，同时，单伟健毫不掩饰地为共产党唱赞歌，通过各种媒体宣传共产党的意识形态，为共产党的新疆种族大屠杀等反人类罪行辩护。【可插入六十分钟访谈中的部分视频
+
+如今，中国共产党已经被美国及西方列为‘反人类罪’和‘种族大屠杀’罪犯，单伟健，作为一名中共特工，依然在西方指挥控制着庞大的特务网络，试图为崩亡的共产党做最后疯狂的挣扎，世界不可避免地承受这些灾难，这也是西方国家长期纵容共产党的后果。
+
+
 
  
 
