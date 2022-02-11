@@ -2,33 +2,37 @@
 ---
 
 
-## 今日盖特大V推荐 — 埃莉斯·斯蒂芬尼克（Elise Stefanik）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1991733/)
+## 有声|调查显示：TikTok追踪用户信息最多，但数据去向不明
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1991797/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/t58i4-a39o4.jpg)
-**盖特链接：**[https://gettr.com/user/elisestefanik](https://gettr.com/user/elisestefanik)
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+CNBC 2月8日报道，最新调查显示：在社交媒体应用市场中，TikTok追踪、共享用户的私人信息最多，同时，TikTok还允许第三方跟踪器广泛收集用户的个人数据，但这些数据的最终去向目前还不明确。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%9B%BE%E7%89%871-37.png)
+调查还发现，因第三方追踪器的应用，无法得知TikTok的用户们被收集到了哪些私人信息，也不知道是谁在收集用户们的信息，这可能将使普通用户面临更大的隐私风险。用户们即使已经离开TikTok的应用程序，第三方追踪器依然能够追踪到用户在其他网站上的活动状况。
 
-**埃莉斯·斯蒂芬尼克自述：**
+此前，TikTok还被曝出，其海外应用的服务器，一直在与它的中共国母公司共享全球用户的隐私信息。美国前总统川普也曾因此倡议全美禁用抖音。
 
-山姆的妈妈，纽约州第21国会选区美国女议员。 众议院共和党会议主席。 新想法，新一代领导力，选举实际结果，共和党女性 #epac
-![](https://assets.gnews.org/wp-content/uploads/2022/02/242.png)**图片来源：网络**
-**埃莉斯·斯蒂芬尼克简介：**
+郭文贵先生曾指出，TikTok就是中共军方用于窃取个人隐私数据、和监视用户行为的间谍软件，也是其对西方文化渗透的社交媒体武器。这项调查将成为中共意图控制世界的又一罪证。
 
-埃莉斯·斯蒂芬尼克出生于1984年7月2日，美国政治人物、共和党籍众议员，自2015年起担任纽约州第21国会选区众议院议员，成为美国最年轻的女议员。
+文字版原文：[调查显示：TikTok追踪用户信息最多，但数据去向不明](https://gnews.org/zh-hans/1988254/)
 
-在2016年大选期间，2014年30岁的斯蒂芬尼克在美国中期选举中首次当选众议院议员，成为美国最年轻的国会女议员。斯蒂芬尼克初选时是一名温和的川普支持者，后来逐步变成了一名坚定的川普支持者，尤为著名的是在2019年特朗普的乌克兰事件中为川普辩护。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-2020年选举川普落败选后，斯蒂芬尼克支持德州向最高法院提起诉讼推翻4个摇摆州的选举结果。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-2021年5月，斯蒂芬尼克接替利兹·切尼担任美国众议院共和党大会主席。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 —彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

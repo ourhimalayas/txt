@@ -2,24 +2,20 @@
 ---
 
 
-## 冬奥会金牌得主谷爱凌避而不谈其美国身份
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1991298/)
+## 意大利批准开打第四剂新冠疫苗
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1991399/)
 
-加拿大温哥华杨帆农场枫叶快讯
+#### 翻译/ 简评                           意大利达芬奇农场                       小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-11-alle-18.51.22.png)图片来源：eventiavversinews.it
+意大利批准开打第四剂疫苗，虽然在电视中政客和医学界代表直到最近还在安慰意大利人推动他们打第三针，称之为最后一针（但现在已不是最后一针了）。
 
-采编：风云小哥        翻译编辑：文所未闻
-![2022 Beijing Olympics - Freestyle Skiing - Women's Freeski Big Air - Final - Run 3 - Big Air Shougang, Beijing, China - February 8, 2022. Gu Ailing Eileen of China reacts after winning gold. REUTERS/Fabrizio Bensch](https://cloudfront-us-east-2.images.arcpublishing.com/reuters/XJFCGGOM45OIRLDK3ZRQXSKH2E.jpg)图片来源：Reuters
-据《路透社》2月8日报道，代表中共国参加本次冬奥会自由式跳台滑雪并于当天获得金牌的运动员谷爱凌，在面对各界质疑其真实国籍时含糊其辞，避而不谈。
+那些有免疫抑制问题的可以接受第四针新冠疫苗。这是卫生部在回答皮埃蒙特大区的问题时给予的答复：“特别是那些有免疫缺陷的人， 在接种了第一针和第二针之后的28天，接种了第三针（额外针），他们可以注射第四针 (称之为加强针)。第四针是要在第三针之后至少120天后开始接种。
 
-报道称，由于中共当局不允许双重国籍，因此这位出生在美国旧金山的运动员在其15岁时就放弃了美国国籍而成为中共国公民。然而，在当天获得金牌后的新闻发布会上，谷爱凌却拒绝回答记者提出的“她是否仍然是美国公民”的问题。
+简评：第四针要来了， 可能还会有第五针、第六针……这么一直打下去。尽管有大量的数据证明新冠疫苗有很多致命的副作用，而且已经有众多的医生和科学家站出来质疑疫苗的安全性,政府还是催着人们打疫苗，这世界太疯狂了。正如文贵先生所说：“疫苗灾难远远没有开始，疫苗灾难绝对比我说的， 比你们想像的要大得多得多，你们一定要做好准备。”
 
-据悉，谷爱凌在获得金牌之后，迅速成为了中共国家喻户晓的新星，她同时也从成为众多国内品牌代言人中获得巨大名利。 对此，文贵先生在其2月9日的盖特中指出，谷爱凌母女为贪图眼前蝇头小利，不惜卖身为奴，助共为虐，并为该邪恶政权蹂躏全世界的罪行涂脂抹粉。其多行不义之举已成为将来全球排华危机的诱因之一，必将引火自焚，悔之莫及！
+原文链接：[https://www.eventiavversinews.it/via-libera-alla-quarta-dose-in-italia-nota-del-ministero-della-salute-dell11-febbraio-convocati-gli-immunodepressi-120-giorni-dopo-la-terza-dose/](https://www.eventiavversinews.it/via-libera-alla-quarta-dose-in-italia-nota-del-ministero-della-salute-dell11-febbraio-convocati-gli-immunodepressi-120-giorni-dopo-la-terza-dose/)
 
-原文链接： [https://www.reuters.com/lifestyle/sports/freestyle-skiing-golden-girl-gu-sidesteps-citizenship-question-2022-02-08/](https://www.reuters.com/lifestyle/sports/freestyle-skiing-golden-girl-gu-sidesteps-citizenship-question-2022-02-08/)
-
-校对编辑：硫酸羟氯喹64
-
-发文：青青
+编辑、上传：   Xiao     baige
 
  
 
