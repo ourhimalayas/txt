@@ -2,23 +2,38 @@
 ---
 
 
-## 秘翻在线：恒大集团总裁套现1.28亿美元 坑杀一票投资人
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1989926/)
+## 有声|拜登总统预计将于5月下旬访问日本
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1990193/)
 
-**翻译：明澈**
+配音：香草山健身部 – 新世界的一员
 
-**校对：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-11-203836.jpg)
-综合媒体2月10日消息，证券交易所公告显示，中国恒大集团总裁夏海钧已于2021年先于开发商境外债务违约前，出售所持面值1.28亿美元的恒大美元债券，大大降低了自身曝险。此外，据夏海钧周三向香港交易所提交的新文件显示，他在去年8月减持了其他恒大证券头寸，按平均价格约7.30港元卖出恒大物业股份，14.18港元卖出恒大汽车股份。目前这两只股票的市价分别为2.68港元和3.62港元。
 
-新加坡独立亚洲房地产情报公司明天地在报道中指出，这些债券于7月27日至8月17日期间以每美元35.9美分至52.4美分的价格出售，收益共计5,650万美元，亏损超过50%。对于此次抛售，夏海钧并未透露购买成本，也未解释为什么花了五个多月的时间来公布此次抛售行为。根据香港《证券及期货条例》，上市法团董事若持有、不再持有、出售或转让有关法团和关联公司的债券，须在自己知悉交易后3个工作日内作出申报；若是首次披露持有债券，董事须在交易发生后10个工作日内，或自己知悉交易后10个工作日内作出申报。
 
-彭博汇编数据显示，夏海钧出售的债券现在有些仅为票面价值的10%左右，此外还进一步指出恒大在去年年底发生美元违约后，正在进行或为中共国最大规模的债务重组。为此，中共当局加大了对房地产行业举债式扩张的打击整顿，对流动性紧缩的担忧也在5月底浮出水面。英国《金融时报》指出,恒大对橡树资本贷款违约5.2亿美元后,橡树资本于1月采取行动,获得香港一大块地皮的控制权,据报是元朗和生围被称为「皇宫屋」所在项目。而恒大原计划在境外债务重组时将这块资产用作抵押品。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-恒大在被冻结其在岸子公司的资产后，该集团在面临偿还供应商及承包商的同时，还面临投资者购买其十亿人民币高收益理财产品的丑闻。据悉，現在离岸市场借贷成本的激增使债券市场的融资渠道进一步被冻结，中共国垃圾级债务的有效收益率从去年6月的10.5%上升到本周的23%，ICE BofA指数，则在去年11月达到25%，这是自2009年3月以来從未见的水平。
 
-**新闻来源** ：【[1](https://www.mingtiandi.com/about/)】【[2](https://www.bloomberg.com/news/articles/2022-02-09/china-evergrande-ceo-cut-his-bond-holdings-early-in-crisis?srnd=premium-asia%20HYPERLINK)】【[3](https://www.sfc.hk/sfc/doc/TC/legislation/securities/others/sfo_training/powers_of_intervention_and_proceedings,ppt.pdf)】【[4](https://www.ft.com/content/5d82c807-ca1f-4101-b515-e0f53f9503ed)】
 
+据日本媒体2月8日消息，美国总统拜登预计将于5月下旬访问日本，并参加美日印澳四方峰会。自2021年以来，拜登首次访问日本的事宜一直在进行中。上月他在一次视频会议上向日本首相岸田文雄表示，预计会在春末前往亚洲参加四方会议。
+
+拜登政府认为，印度洋-太平洋四大民主国家维持良好的伙伴关系，是反击中共在该地区日益增长的军事自信和经济影响力的关键。
+
+在朝鲜最近密集试射弹道导弹之时，拜登希望此次访问能够和岸田文雄举行面对面的双边会议，以确立日美两国亚洲盟友关系的重要性。
+
+消息人士称，拜登的亚洲之行还可能在韩国停留。
+
+文字版原文：[拜登总统预计将于5月下旬访问日本](https://gnews.org/zh-hans/1982959/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
 
  

@@ -2,31 +2,43 @@
 ---
 
 
-## 沼泽地战役正式打响 新中国联邦还富于民
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1990217/)
+## 中共国的特色
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1990355/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-2.png)
-2月9日大直播中，郭文贵先生在直播中兴奋地宣布，历经中共7年的阻挠，UBS案终于在伦敦法院成功立案。这标志着，新中国联邦与沼泽地的第一场战役正式打响。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1121.png)
-自中共建政，UBS是首个被批准的、持有独立金融牌照的海外银行。郭先生爆料，瑞银UBS的存款和黑账超过100万亿美元，相当于人类过去500年的财富。
+作者：纽约香草山健身部–新世界的一员
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+从新闻里看到谎言；
 
-郭先生表示即将启程前往伦敦，与沼泽地和黑暗势力对簿公堂，找到中共藏匿海外的50万亿美元，切断中共妄图东山再起的钱财，还财富于中国人民。中国人不仅将免除所有的房贷和信用卡欠款，还将享受免费的教育、医疗和丧葬政策。
+从历史里看到无耻；
 
-视频链接：[2/9/2022 文贵直播](https://gettr.com/post/ptmi7v3e45)
+从外交里看到无能；
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+从维稳里看到残暴；
 
-编辑：雪梨
+从强拆里看到贪婪；
 
-校正/发稿：浪迹天涯
+从贪官里看到腐朽；
 
+从司法里看到黑暗；
+
+从禁言里看到心虚；
+
+从打压里看到崩溃；
+
+从反抗里看到胜利！
+
+校对/发稿：菩提树
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-27.jpg)
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-2.png)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,35 +2,37 @@
 ---
 
 
-## 中共极度畏惧新中国联邦喜币
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1990443/)
+## 有声|美日冲绳海岸军演应对中共威胁
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1990543/)
 
-作者：纽约香草山农场 – 恩永存
+配音：香草山佛教部 – 李傻
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生在2月9日的大直播中再次谈到了喜币的威力。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3-27.jpg)
-郭先生透露，中共最怕墙内民众知道他们金钱走向的来龙去脉，更妄想控制中国所有的财富。为此，他们实行媒体管制，删除对其不利的消息；大搞网络封锁，不让民众了解墙外真相；控制银行，阻止民众将资金汇入喜联储。
+当地时间2月6日，据相关媒体报道，为了应对中共不断扩张的军事威胁，美日两军正在日本冲绳的宫古海峡附近进行一场大规模的联合军事演习。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/6-13.jpg)
+美国海军陆战队在一份声明中指出，美军出动了一批万人远征部队在日本海岸进行白天和夜间的战机补给演练，其中还包括高难度的夜间空对空加油演习。此外，美日也联合模拟了直升机合作以及小艇登陆、空中夜袭等项目。
 
-但郭先生补充道，喜币和喜美元如今打破了中共独裁体制对银行中介的禁锢，让全球民众有了与喜联储沟通的新渠道。此外，他们可以合理合法地避税，还能不受控制地自由花钱，更能不受限制且无费用地转移资金并快速到账。更为重要的是，喜币和喜美元未来必将成为全球通用的货币。
+美国军方高层表示，此次演习也是在向美日同盟国家发出信号，即美日双方有能力维持自由、开放的印太地区，同时，此举也强化了两国的合作关系。
 
-郭先生解释道，人民有了私产，才能有独立人格；有了独立人格，才会有独立思想。有远见卓识的中国人都已了然，人民币将一文不值，最好的办法是将手中的人民币换成喜美元与喜币。因此，新中国联邦已然成为中共最惧怕的力量。
+与此同时，日本防卫大臣岸信夫与美国新任驻日大使伊曼纽尔也就强化美日同盟的重要性举行了会谈。会上，美日双方一致表示，中共单方面试图改变现状的做法是在破坏当前全球基于规则和原则建立的稳定系统。为此，美日两国必须在坚守民主和法治价值观的基础上协同合作。
 
-参考链接：[Watch MILES GUO live on GETTR2022年2月9日 文贵大直播：习普政治困局；中美俄三角斗；药厂政策调整；药厂政府互掐；何为全球货币；七哥个人生活](https://gettr.com/post/ptgw8b5f32)
+文字版原文：[美日冲绳海岸军演应对中共威胁](https://gnews.org/zh-hans/1985041/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
-
-总编： Ivy001
-编辑： 静言
-校正/发稿：Fei797
-
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

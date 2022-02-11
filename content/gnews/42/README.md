@@ -2,28 +2,33 @@
 ---
 
 
-## 中共因台湾问题暂停从立陶宛进口牛肉
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1989737/)
+## 前摩根分析师：俄乌开战，油价将达到每桶120美元
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1989801/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-43.jpg)
-图片来源：www.singtao.ca
+整理：Eileen（围剿维尼熊）
+编辑：Mohegayer K. Simon
 
-美国合众国际社2月9日报道，据中共国海关总署周三宣布暂停从立陶宛进口牛肉。该行动是在就台湾问题与立陶宛的外交争端后发生的。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/6-10.png)图片来源：雅典娜设计组
 
-欧盟1月27日向世界贸易组织报告认为中共国因立陶宛在台湾问题的立场上支持台湾而受到歧视性贸易对待。
 
-欧盟在报告中说：” 中共国本身的海关统计报告显示2021年12月相较于2020年12月从立陶宛进口中共国的贸易量下降91%。”
+根据华尔街见闻2月10日报道，油价自今年年初以来一直在稳步上涨，从每桶80美元以下升至约90美元/桶。
 
-去年8月份，中共国召回了驻立陶宛大使并要求立陶宛召回驻中共国大使，并开始阻断或限制立陶宛和中共国的进出口贸易。
+2月7日，独立战略公司总裁、前摩根士丹利资深策略分析师David Roche在接受CNBC采访时表示，如果俄乌战争爆发，可能会阻碍两国商品出口，包括石油、天然气和煤炭，到那时油价一定会在120美元/桶之上。
 
-欧盟说：“中共国阻断与立陶宛的贸易的行为违背了世界贸易组织的原则。”
+美国和北约声称，俄罗斯集结重兵，有“入侵”之势。俄方强调北约活动威胁俄边境安全，俄方有权在境内调动部队以保卫领土。
 
-中共国外交部发言人赵立坚周四在媒体会议中说：“ 立陶宛要做的就是面对客观现实，纠正其自身的错误，回到一个中国原则的正确轨道上，而且不是混淆是非，恶意炒作，更不是联合其他国家挑战中国。”
+目前利比亚一系列停电使原油生产停滞，加上乌克兰和中东地缘政治纷争，都让原本供需紧张的原油市场雪上加霜。
 
-###### 新闻来源： [China suspends beef imports from Lithuania in dispute over Taiwan](https://www.upi.com/Top_News/World-News/2022/02/10/lithuania-beef-imports-taiwan/9861644508045/)
+参考链接：https://i.ifeng.com/c/8DWDTtjsSQC
 
-#  
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

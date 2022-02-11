@@ -2,41 +2,38 @@
 ---
 
 
-## 美国推迟制定国家安全战略
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1989958/)
+## 北京冬奥会将促进全球自动灭共
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1990194/)
 
-作者：香草山健身部-正道新闻
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-2月11日，据《国际文传电讯社》援引《Politico》报道，乌克兰周边的局势正在推迟美国编制新的国家安全战略。
+作者：香草山农场 – 晓仙女
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月9日，郭文贵先生在大直播中再次谈及了有关中共北京冬奥会的话题。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-170.jpg)
+郭先生表示，中共官方此前高调宣传称，此次将有137个国家参与冬奥会，但实际上只有97个国家真正到场。其中，原先允诺出席的沙特王子并未现身，同样缺席的还有土耳其与塞浦路斯等国家的外交人员。
 
-报道指出，该文件的内容主要取决于俄罗斯是否“入侵”乌克兰。
+郭先生还提到，为了营造美中关系回暖的假象，中共重新开放了美国驻沈阳大使馆，并与美国签约购买其价值千亿美元的商品——美国驻沈阳大使在这一趟旅程中直接赚取中国人5000亿美元的血汗钱。
 
-一位知情人士向该报证实，俄罗斯“对乌克兰的计划不明确”是影响该战略时机的因素之一。
+郭先生也补充道，至于中俄两方则是争分夺秒地抢占自己的利益。双方早在八年前就达成交易，习近平更是利诱普京参加此次冬奥的开幕式。然而，普京在团队内多人染疫后怒携1000多亿人民币迅速离开。
 
-正如该报所指出的，俄罗斯可能“入侵”乌克兰的具体细节可能会极大地影响美国在战略文件中对俄罗斯威胁的细节和优先次序。
+郭先生继续爆料称，普京回俄后立即回见了马克龙，二者商议了有关天然气管道建设和购买的事宜。至此，欧盟已经完全意识到让俄罗斯靠近中共是最大的错误。同时，普京也认为俄罗斯理应回归欧洲。
 
-同时，该文件强调，总体而言，美国总统拜登及其助手不太可能改变他们的基本主张，即中（共）国而不是俄罗斯是对华盛顿更大的长期威胁。
+郭先生最后明确称，普京必将卖掉中共，全球就此启动自动灭共进程。
 
-法律要求美国总统每年提交一份国家安全战略，但各届政府往往未能遵守这一要求。
+参考链接：[2022年2月9日 文贵大直播：UBS正式立案 打响沼泽地的第一仗；习普政治困局；中美俄三角斗；药厂政策调整；药厂政府互掐；何为全球货币；七哥个人生活](https://gtv.org/video/id=6203b7b13621aa7415d80e9e)
 
-例如，拜登政府去年没有提交国家安全战略。现在预计该文件将在今年第一季度出台。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-一位高级官员告诉该出版物，政府打算满足“预期发布日期”。然而，他没有说明他指的是哪一天。
+总编: 文特
+编辑： 静言 
+校正/发稿：Fei797
 
-PS：拜登政府并未改变中（共）国是美国最大的长期威胁。尤其是经过这次中共的冬奥会之后，越来越多的国家将认清楚中共的威胁。[https://www.interfax.ru/world/821425](https://www.interfax.ru/world/821425)
-
-校对/发稿：菩提树
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2月-1.jpg)
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
