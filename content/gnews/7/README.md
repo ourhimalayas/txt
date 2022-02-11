@@ -2,34 +2,38 @@
 ---
 
 
-## 有声|美前国务卿彭佩奥称：中共没有权利享有奥运荣耀
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1990593/)
+## 全球中共病毒病例超过 4 亿：约翰霍普金斯大学
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1990774/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月8日，美国前国务卿彭佩奥在接受福克斯采访时明确表示，美国不应当选择参加犯下种族灭绝罪的政权所举办的奥运会，中共政府无权享有奥运会的荣耀。习近平想利用冬奥会对世界宣传中共国事美好的假象，并掩盖中共对新疆等犯下的种族灭绝和反人类罪行为。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-21.jpg)
-此外，彭佩奥进一步指出，共产党通过强迫运动员使用一次性手机，通过此手段搜集相关信息。且中共还秘密搜集运动员的DNA信息，储存在中共国或者军方的数据库中。因此，他呼吁应抵制北京冬奥，在毫无人权的中共国举办体现奥林匹克精神的冬奥会，实在讽刺。
+伊恩斯 纽约
 
-文字版原文：[美前国务卿彭佩奥称：中共没有权利享有奥运荣耀](https://gnews.org/zh-hans/1981447/)
+翻译：沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-41.png)图片来源：[https://wap.business-standard.com](https://wap.business-standard.com)
+根据约翰霍普金斯大学的数据，全球 Covid-19 病例超过 4 亿。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+数据显示，截至当地时间周二下午 5:21（格林威治标准时间 2221），全球病例数为 400,244,031 例，全球死亡人数为 5,761,208 例。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+据报道，美国报告了77,025,027例病例和908,262例死亡病例，均为全球最高，占全球病例的19%以上，死亡人数的15%以上。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+印度的病例数为 42,339,611 例，位居世界第二，其次是巴西，为 26,776,692 例，死亡人数为 634,057 人，位居世界第二。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+根据该大学的统计，病例数超过 1200 万的国家还包括法国、英国、俄罗斯和土耳其，而其他死亡人数超过 20 万的国家包括印度、俄罗斯、墨西哥和秘鲁。
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+全球案件量在 2021 年 1 月 26 日达到 1 亿的严峻里程碑，在 2021 年 8 月 4 日上升到 2 亿，并在 2022 年 1 月 6 日超过 3 亿。
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+来源链接：[https://wap.business-standard.com/article/current-affairs/global-covid-19-cases-surpass-400-mn-johns-hopkins-university-122020900129\_1.html](https://wap.business-standard.com/article/current-affairs/global-covid-19-cases-surpass-400-mn-johns-hopkins-university-122020900129_1.html)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+编辑：LILY
 
+发布：面包飞上天
+
+20220211
+
+
+
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3-4.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,35 +2,42 @@
 ---
 
 
-## 中共极度畏惧新中国联邦喜币
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1990443/)
+## 文•贵天成——文贵先生谈“普京”（一）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1990454/)
 
-作者：纽约香草山农场 – 恩永存
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生在2月9日的大直播中再次谈到了喜币的威力。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3-27.jpg)
-郭先生透露，中共最怕墙内民众知道他们金钱走向的来龙去脉，更妄想控制中国所有的财富。为此，他们实行媒体管制，删除对其不利的消息；大搞网络封锁，不让民众了解墙外真相；控制银行，阻止民众将资金汇入喜联储。
+整理：BENJ1
+编辑：Kelly
 
-但郭先生补充道，喜币和喜美元如今打破了中共独裁体制对银行中介的禁锢，让全球民众有了与喜联储沟通的新渠道。此外，他们可以合理合法地避税，还能不受控制地自由花钱，更能不受限制且无费用地转移资金并快速到账。更为重要的是，喜币和喜美元未来必将成为全球通用的货币。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/5-20.png)配图：雅典娜设计组～614
 
-郭先生解释道，人民有了私产，才能有独立人格；有了独立人格，才会有独立思想。有远见卓识的中国人都已了然，人民币将一文不值，最好的办法是将手中的人民币换成喜美元与喜币。因此，新中国联邦已然成为中共最惧怕的力量。
 
-参考链接：[Watch MILES GUO live on GETTR2022年2月9日 文贵大直播：习普政治困局；中美俄三角斗；药厂政策调整；药厂政府互掐；何为全球货币；七哥个人生活](https://gettr.com/post/ptgw8b5f32)
+郭文贵先生**2018**年**6**月**15**日直播
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+大家也千万别忘了，仗剑之人必死于剑下，跟中共国习主席、普京、川普总统玩的这个国际政治游戏，玩不好，一下子烟飞灰灭。只有正路可以走，与世界文明共处，不要玩什么政治游戏。
 
-总编： Ivy001
-编辑： 静言
-校正/发稿：Fei797
+郭文贵先生**2019**年**4**月**20**日直播
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+今天的所有的这些强人Erdogan、普京、包括今天中共国的习近平主席、还有王岐山、包括NBS，非常感谢上天，绝大多数人我都认识，我也都见过，看待这些人，我认为是个历史的必然产物，在人类的历史上总是起起伏伏，这都是正常的。
 
+现在世界上实际是存在两个半政治体系，其中两个很正常，强人和文人执政管理国家、管理世界，过去的希特勒、斯大林都看得很清楚，中国的秦始皇，历史上一个个强人一直到现在多了去了，人类到了最好的时代是华盛顿的时代。华盛顿给人类带来了文明，包括英国进入大宪章法律时代，这都是由文人知识分子和军人们的联合结果。
+
+郭文贵先生**2019**年**4**月**27**日直播
+
+这次共产党和俄罗斯是最不开心的一次会晤，和习主席有三十次会晤，这一次是最不高兴的，因为中俄要签署新的石油协议，签不了。过去哥俩儿好，咋都好，现在核心问题碰上了，继续签几千亿美元的石油合同，签不了。过去签的合同不能都兑现，中国共产党也付不起这个钱，所以非常不高兴。
+
+再看看普京见金正恩的态度，那非常清楚。 他送人一把剑，在俄罗斯（看来）这是不吉利的。他得给你一个钱表示是我买你的剑。否则（那意思是）剑是刺我的吗？要么我是拿钱买，要么我拿身体拿命挡吗？肯定是给你钱，象征一下。就像中国人送人一双鞋，对方给一块钱一个意思。但是核心是什么，俄罗斯要往后退，我跟你中共还有金正恩不能那么近，还想跟美国好。所以大家不知道的是，这次一带一路，第二次峰会，是中俄决裂的一个新的开始。
+
+资料来源：郭先生GTV和盖特直播视频
+
+发布：tianzhihuan
+
+**
+**更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

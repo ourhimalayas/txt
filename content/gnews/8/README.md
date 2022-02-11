@@ -2,34 +2,38 @@
 ---
 
 
-## 有声|北京冬奥会让中共丑态百出，让参会人员自取其辱
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1990567/)
+## 还原中共国内的三年饥荒
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1990761/)
 
-配音：香草山佛教部 – 李傻
+作者：纽约香草山农场-马克文、朱莉叶
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月6日文贵大直播中，针对北京冬奥会，郭先生提到北京冬奥会参与国，从最早的137个国家到最后只剩下25个国家元首出席开幕式。且参与的运动员当中，几乎没有顶尖运动员参加本届冬奥会。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-18.jpg)
-对于冬奥会，他强调新中国联邦应利用冬奥会凸显中共的丑态，并利用时机让参与冬奥会的运动员清楚了解中共的邪恶本质，借此让这些人未来不再参与中共举办的任何国际盛会。
+中共夺取中国政权的十年后，1959年至1961年，中国境内发生了迄今为止人类历史上最大的饥荒灾难，也就是后来被中共定义的“三年大饥荒”，当时造成的非正常死亡人数至少达到了5000万人。
 
-文字版原文：[北京冬奥会让中共丑态百出，让参会人员自取其辱](https://gnews.org/zh-hans/1981444/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide13-1.jpeg)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+虽然中共通过篡改历史，强行将这一惨剧归咎于自然灾害，但据国际学者分析称，此次大饥荒实际上是人为因素造成的大劫难。资料显示，以毛泽东为首的中共统治集团违反人类社会发展的规律，强行推进所谓的工业化大跃进。在大跃进期间，中共又在农村建立人民公社，强行推广公共食堂，剥夺农民拥有食物的权力。彼时，由于中共上层强行征收公粮，这导致农民不仅没有口粮，甚至连种子粮和饲料也要全部上交。
+
+在饥荒蔓延之际，墙内的老百姓只能依靠树皮和草根果腹，而中共干部却利用掌管食堂仓库的特权大肆贪污腐败。最严重的时期，中共国内的许多地方甚至出现易子而食和人吃人的惨剧。
+
+然而，由于中共对墙内民众的精神洗脑，大多数的百姓至今仍然无法得知这一灾害的真实原因。
+
+参考链接：
+1. [中国三年大饥荒的触发及加剧之原因](http://ww2.usc.cuhk.edu.hk/PaperCollection/Details.aspx?id=7030)
+2. [三年困难时期](https://zh.wikipedia.org/wiki/三年困难时期)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+
+总编：Jack Li文阳 
+编辑：静言
+校正/发稿：谐趣园
+
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
