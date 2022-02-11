@@ -2,28 +2,35 @@
 ---
 
 
-## 有声|前国家情报总监谈论中共对美国经济科技和文化上的渗透
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1987264/)
+## 美国和中共的联合国特使在俄罗斯和乌克兰问题上相互指责
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/1987281/)
 
-配音：香草山健身部 – 玫瑰园
+素材：波士顿五月花Vicky
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-11-at-9.28.21-AM.png)图片来源：RFI
+联合国（路透社）–美国驻联合国特使周四表示，她希望中国能敦促俄罗斯在乌克兰问题上 “做正确的事”，中共对此迅速作出回应，呼吁开展外交活动，停止 “夸大紧张局势”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+上周，中共是唯一一个与俄罗斯一起投反对票的国家，他们试图阻止由15个成员组成的联合国安理会开会，但没有成功。
 
-美国前国家情报总监在电视节目上针对中共渗透美国一事公开发表意见，他表示自己身为前国家情报总监，可以获得比任何人都还多的情报，根据情报资讯可以确定中共在很多方面都想取代美国，不仅是军事方面，连经济、科技和文化上，都是中共意图超越美国的领域。中共试图通过收购、替代电影产业后的赞助商，达到控制电影行业。通过修改剧本，将中共国的恶人变成英雄，同时打压台湾、香港。
+当年俄罗斯在2014年吞并乌克兰的克里米亚地区时，中共在表决中投了弃权票。
 
-文字版原文：[前国家情报总监谈论中共对美国经济科技和文化上的渗透](https://gnews.org/zh-hans/1982958/)
+俄罗斯在表决中否决了美国起草的安理会决议，反对就克里米亚的地位进行公投，并敦促各国不要承认克里米亚。
 
-音频处理/发稿：Daxia
+西方外交官希望说服北京在莫斯科可能入侵乌克兰问题上，不要再次站在俄罗斯一边，不要把乌克兰局势描绘成全球大国之间的紧张关系。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+“我们希望中国人在鼓励俄罗斯人做正确的事情方面发挥作用，”美国驻联合国大使琳达-托马斯-格林菲尔德周四告诉CNN。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+“中国人在安理会上表达了对保护边界完整和国家主权的强烈关注，然而俄罗斯人正在威胁一个国家边界的完整性，”她说。
+
+托马斯-格林菲尔德说，她期待着鼓励她在联合国的中国同行，张军大使，关注这一信息。她的讲话引起了张军在Twitter上的快速回应。
+
+“我们的信息是一致和明确的：通过外交手段解决任何分歧。停止夸大紧张局势，俄罗斯的合法安全关切应得到认真解决，”张晓明回应道。
+
+参考链接：[U.S. and China U.N. Envoys Trade Barbs on Russia and Ukraine](https://www.usnews.com/news/world/articles/2022-02-10/u-s-and-china-u-n-envoys-trade-barbs-on-russia-and-ukraine)
+
+* * *
+
+*编辑&发布：Vicky*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

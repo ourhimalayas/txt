@@ -15,101 +15,101 @@
 
 ---
 
-### [2/9/2022 文贵直播：普京在冬奥会跟中共翻脸后，欧洲随即伸出橄榄枝；俄罗斯必将出卖中共，欧洲也会在背后踢中共一脚](/content/gnews/1/README.md)
+### [2/10/2022 文贵盖特：任何跟中共勾兑的人都逃不被制裁的命运；战友们要严守正义、道德和法律的原则](/content/gnews/1/README.md)
  ` 秘密翻译组-北美组`
 
-### [今年新中国联邦走土和火运，所以红色的旗帜大可放心使用](/content/gnews/2/README.md)
+### [樱花灭共段子┃看七哥大直播有感序之二](/content/gnews/2/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [七哥和战友们会让共产党的冬奥会开成不会闭幕的冬奥会](/content/gnews/3/README.md)
+### [樱花灭共段子┃看七哥大直播有感序之一](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [解决疫苗与病毒对世界经济的毁灭性打击的唯一办法——灭共](/content/gnews/4/README.md)
- ` DC政经`
-
-### [全球疫情更新（全球累积感染超过4亿）](/content/gnews/5/README.md)
- ` 墨尔本雅典娜农场`
-
-### [CCP收集优秀人种基因是纯粹阶级主义者](/content/gnews/6/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [就这么牛，Hpay在全世界都可以使用的](/content/gnews/7/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [Hpay成功上线是七哥与战友隔空取钱的开始](/content/gnews/8/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中国绝对分高、中、低三等人，也说明了人心开启的不易](/content/gnews/9/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美国会共和党人提出《制裁中共法》 锁定中共官员及亲属](/content/gnews/10/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [HPAY上线后，打通了十二经与六脉，俄罗斯、乌克兰流通最大，第二是日本](/content/gnews/11/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [全世界只有共产党放开外国人玩弄中国老百姓还受法律保护](/content/gnews/12/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [盖特VISION将要上线绝对是划时代的](/content/gnews/13/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共在加勒万河谷冲突中伤亡惨重，并编造故事企图隐瞒真相](/content/gnews/14/README.md)
- ` 日本东京方舟农场`
-
-### [针下亡魂｜尸检证实美国 24 岁大学生死于新冠疫苗诱发的心肌炎](/content/gnews/15/README.md)
- ` 關注組`
-
-### [文贵先生直播精要 2022/02/09](/content/gnews/16/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [韩国新增确诊中共病毒突破5万例 再创新高](/content/gnews/17/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [日本拟延长13都县防止疫情蔓延重点措施](/content/gnews/18/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [加拿大卡车“自由车队”封锁了大使桥导致福特汽车关闭](/content/gnews/19/README.md)
- ` 蓝莲花农场`
-
-### [北韩自夸 唯其能藉飞弹试射震撼世界以对抗美国](/content/gnews/20/README.md)
- ` GTV新聞訪談`
-
-### [美国和中共的联合国特使在俄罗斯和乌克兰问题上相互指责](/content/gnews/21/README.md)
- ` 波士顿五月花农场金融部`
-
-### [澳大利亚支持立陶宛应对中共国“武器化”经济制裁](/content/gnews/22/README.md)
- ` 走进澳洲`
-
-### [文•贵天成——文贵先生谈“躺平币”（六）](/content/gnews/23/README.md)
- ` 墨尔本雅典娜农场`
-
-### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/24/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [有声|前国家情报总监谈论中共对美国经济科技和文化上的渗透](/content/gnews/25/README.md)
- ` MOSREC`
-
-### [有声|美司法部刑事指控中共企业盗取美国技术](/content/gnews/26/README.md)
- ` MOSREC`
-
-### [七哥谈中共伤害全世界挑战全人类（2022-02-06摘录）](/content/gnews/27/README.md)
- ` MG FARM`
-
-### [弹力带臀腿运动](/content/gnews/28/README.md)
+### [法媒报道: 新的加密货币喜马拉雅币推出后不久即达 270 亿美元估值](/content/gnews/4/README.md)
  ` 纽约香草山MOS03`
 
-### [英国王储查尔斯再次感染新冠病毒](/content/gnews/29/README.md)
+### [2/9/2022 文贵直播：普京在冬奥会跟中共翻脸后，欧洲随即伸出橄榄枝；俄罗斯必将出卖中共，欧洲也会在背后踢中共一脚](/content/gnews/5/README.md)
+ ` 秘密翻译组-北美组`
+
+### [今年新中国联邦走土和火运，所以红色的旗帜大可放心使用](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [七哥和战友们会让共产党的冬奥会开成不会闭幕的冬奥会](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [解决疫苗与病毒对世界经济的毁灭性打击的唯一办法——灭共](/content/gnews/8/README.md)
+ ` DC政经`
+
+### [全球疫情更新（全球累积感染超过4亿）](/content/gnews/9/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [CCP收集优秀人种基因是纯粹阶级主义者](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [就这么牛，Hpay在全世界都可以使用的](/content/gnews/11/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [Hpay成功上线是七哥与战友隔空取钱的开始](/content/gnews/12/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中国绝对分高、中、低三等人，也说明了人心开启的不易](/content/gnews/13/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美国会共和党人提出《制裁中共法》 锁定中共官员及亲属](/content/gnews/14/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [通货膨胀年率飙升 7.5%，1982 年以来的最高水平](/content/gnews/30/README.md)
+### [HPAY上线后，打通了十二经与六脉，俄罗斯、乌克兰流通最大，第二是日本](/content/gnews/15/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [全世界只有共产党放开外国人玩弄中国老百姓还受法律保护](/content/gnews/16/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [盖特VISION将要上线绝对是划时代的](/content/gnews/17/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共在加勒万河谷冲突中伤亡惨重，并编造故事企图隐瞒真相](/content/gnews/18/README.md)
+ ` 日本东京方舟农场`
+
+### [针下亡魂｜尸检证实美国 24 岁大学生死于新冠疫苗诱发的心肌炎](/content/gnews/19/README.md)
+ ` 關注組`
+
+### [文贵先生直播精要 2022/02/09](/content/gnews/20/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [韩国新增确诊中共病毒突破5万例 再创新高](/content/gnews/21/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [日本拟延长13都县防止疫情蔓延重点措施](/content/gnews/22/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [加拿大卡车“自由车队”封锁了大使桥导致福特汽车关闭](/content/gnews/23/README.md)
+ ` 蓝莲花农场`
+
+### [北韩自夸 唯其能藉飞弹试射震撼世界以对抗美国](/content/gnews/24/README.md)
+ ` GTV新聞訪談`
+
+### [美国和中共的联合国特使在俄罗斯和乌克兰问题上相互指责](/content/gnews/25/README.md)
+ ` 波士顿五月花农场金融部`
+
+### [澳大利亚支持立陶宛应对中共国“武器化”经济制裁](/content/gnews/26/README.md)
+ ` 走进澳洲`
+
+### [文•贵天成——文贵先生谈“躺平币”（六）](/content/gnews/27/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/28/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [有声|前国家情报总监谈论中共对美国经济科技和文化上的渗透](/content/gnews/29/README.md)
+ ` MOSREC`
+
+### [英国王储查尔斯再次感染新冠病毒](/content/gnews/30/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [通货膨胀年率飙升 7.5%，1982 年以来的最高水平](/content/gnews/31/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [匈牙利科学家通过基因序列发现中共病毒实验室来源又一证据](/content/gnews/31/README.md)
+### [匈牙利科学家通过基因序列发现中共病毒实验室来源又一证据](/content/gnews/32/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [西媒头条 — 第170期 – 西媒看天朝](/content/gnews/32/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [疫苗研究人员承认刺突蛋白是危险毒素](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`

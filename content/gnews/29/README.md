@@ -2,31 +2,28 @@
 ---
 
 
-## 英国王储查尔斯再次感染新冠病毒
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1987111/)
+## 有声|前国家情报总监谈论中共对美国经济科技和文化上的渗透
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1987264/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Unknown-12.jpg)英国王储查尔斯再次感染新冠病毒 网络图片
-据澎湃新闻2月10日报道，继2020年3月感染新冠病毒并康复之后，英国克拉伦斯宫10日宣布，英国王储查尔斯新冠病毒检测再次呈阳性，已经开始自我隔离。
+配音：香草山健身部 – 玫瑰园
 
-查尔斯是英国女王伊丽莎白二世的长子，英国王位继承人。查尔斯和妻子均已接种过新冠疫苗加强针。查尔斯9日参加了一场招待会，包括查尔斯在内的英国财政大臣、卫生大臣和内政大臣等官员均没有佩戴口罩。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-新冠大流行爆发以来，上至总统、总理、王储、将军，下至任何一位普通公民，人人都在病毒的威胁之中，没有人能够幸免。查尔斯王储拥有专业的保护措施和医疗团队，并且接种了加强针疫苗，依然两次感染病毒。这充分证明了疫苗既不能产生有效的抗体，也不能阻止病毒的传播，但大部分国家还在强制推行疫苗，并且是动用国家力量在推动，这背后暗藏的玄机势必会引起惊天的震撼。新中国联邦第一个爆料病毒起源和疫苗灾难，等待世界清醒，共同揭开这个玄机。
+美国前国家情报总监在电视节目上针对中共渗透美国一事公开发表意见，他表示自己身为前国家情报总监，可以获得比任何人都还多的情报，根据情报资讯可以确定中共在很多方面都想取代美国，不仅是军事方面，连经济、科技和文化上，都是中共意图超越美国的领域。中共试图通过收购、替代电影产业后的赞助商，达到控制电影行业。通过修改剧本，将中共国的恶人变成英雄，同时打压台湾、香港。
 
-新闻参考链接：[https://www.thepaper.cn/newsDetail\_forward\_16644817](https://www.thepaper.cn/newsDetail_forward_16644817)
+文字版原文：[前国家情报总监谈论中共对美国经济科技和文化上的渗透](https://gnews.org/zh-hans/1982958/)
 
-* * *
+音频处理/发稿：Daxia
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

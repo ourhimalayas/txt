@@ -2,13 +2,18 @@
 ---
 
 
-## 韩国新增确诊中共病毒突破5万例 再创新高
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1987300/)
+## 盖特VISION将要上线绝对是划时代的
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1987359/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/20220211-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/tdownc2p*
+文编：东京樱花团/樱花传媒
+视频:东京樱花团/中文小视频组
+
+1月31日，郭文贵先生在GTV大直播透露，即将上线的盖特VISION绝对是划时代的，每时每刻我们都会让共产党出血，流失大量的金钱。在共产主义的身上插上抽血的管子，从委瑞内拉到古巴，从希特勒到斯大林时代，都是人类历史上所未有的。我们会把中共吸血鬼吸取老百姓的血拿回来。我们媒体这把利剑的厉害，也是难以想象的。
+
+*编辑、发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
