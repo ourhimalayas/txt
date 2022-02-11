@@ -2,31 +2,39 @@
 ---
 
 
-## 七哥说&#8221;如果中国人不改变，不用人家排华，自己把自己就给排死了&#8221;
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1992028/)
+## 众筹平台GiveSendGo意欲无视安大略省的干预命令，坚持向卡车司机转送捐款。
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1992141/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+翻译：不要代表我Kari
+校对：小熊
 
-来源：郭先生2022-02-06直播11:37:18摘录
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/6-10.png)图片来源：雅典娜设计组
 
-广州现在吃胎盘，就头两天，节前一个战友给我发个信息，把我恶心的，我真的是半天过不来劲儿。他说：“七哥，这是我跟着你，从来不再吃胎盘了，但我让你看看今天我们前面摆着啥。” 十几个就是七、八个月从胎里取出的孩子，人形看得清清楚楚，在锅里炖，鹰、蛇、老鼠，叫天地八仙宴，包括人的，就能逮多少动物全给炖了。这就是今天发达的广州，还在病毒期间。你知道另外一个就是在武夷山的战友，他说：”七哥头两天我去参加一个吃饭去，领导过自己的66大寿，炖了11只鹦鹉。” 鹦鹉啊，鹦鹉。我说：”这还有吃鹦鹉的这帮孙子！” 他说：“七哥，一个算命跟他说，今年你要避掉你的血，你要吃鹦鹉，杀十几只鹦鹉吃。”中国人在全人类上，我要告诉大家的，不是人家排华，人家的排华是物理排华、心理排华、经济排华。我们自己人想想兄弟姐妹们，如果中国人不改变，不用人家排华，自己把自己就给排死了。这就是新中国联邦的媒体平台的力量，你们不知道，你们真的不知道，亨利小哥，真的文真，真的是文大石，小新，你们要知道《大直播》的魅力，就是今天的讲真话。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+为自由车队卡车司机发起众筹的基督教众筹网站表示，他们将无视安大略省法院的命令，绝不冻结众筹，绝不停止向抗议者转送捐款。
 
-**关注我们**
+安大略省道格福特Doug Ford政府为冻结“自由车队 “的资金采取了法律行动。随后，法院向众筹平台GiveSendGo下达了停止向抗议运动组织者转赠捐款的命令。数小时后，该平台就此事发表了以上声明。
 
-Discord 账号
+GiveSendGo在社交媒体上的一份声明中写道：”知道吗？加拿大政府无权管控我们GiveSendGo众筹的资金”。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+该公司还声明：”GiveSendGo公司众筹的每一项资金全部都直接赠予众筹受益人，其中最重要的受益人就是‘自由车队’。“
 
-Gettr 账号
+正如之前所述，福特政府采取了法律行动来冻结这些资金，随后安大略省高级法院对此做出了裁决。
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+该声明表示：“今天，总检察长已向高级法院提出申请，要求依据《刑法》第490.8条发布命令：禁止任何人以任何方式处置’自由车队2022 ‘和‘ 认领卡车 ’通过GiveSendGo在线众筹平台众筹而来的捐款。”
+
+“今天下午，该命令已经发布。它对拥有或控制这些捐款的任何一方均具约束力。”
+
+原文链接：[https://thepostmillennial.com/givesendgo-ignore-ontario-court](https://thepostmillennial.com/givesendgo-ignore-ontario-court)
+
+*发布：tianzhihuan*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,38 +2,21 @@
 ---
 
 
-## 乌克兰新闻 &#8211; 现场直播：由于担心俄罗斯入侵，英国人被告知立即离开该国
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1992048/)
+## 谷爱凌今天有多出名，未来就有多惨
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1992161/)
 
-**编译：沉默老歌**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/968E6266-D575-4746-A49F-605FA851C055.png)图片来源：[https://www.independent.co.uk](https://www.independent.co.uk/)
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
+*发布：陶子*
 
-由于担心俄罗斯军队的入侵，英国人被告知立即离开乌克兰。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-外交部在周五晚上更新了建议，告诉英国国民“在商业手段仍然可用的情况下立即离开”。
-
-这一警告是在鲍里斯·约翰逊在与包括美国总统乔·拜登在内的世界领导人通话时表达了对欧洲安全的担忧之后发出的。
-
-此前，英国国防部长本·华莱士警告称，在与俄罗斯外长绍伊古进行“坦率”讨论后，俄罗斯仍可能在短时间内发动入侵。
-
-华莱士先生说，俄罗斯军队的定位使他们有能力“随时”入侵邻国，但他说他从俄罗斯政府那里听说它“无意”入侵乌克兰。
-
-俄罗斯已经在乌克兰附近集结了超过10万军队，本周它在邻国白俄罗斯发起了联合军事演习，并在黑海进行了海军演习。
-
-**原文链接：**
-
-[https://www.independent.co.uk/news/world/europe/ukraine-russia-news-putin-truss-biden-b2012758.html](https://www.independent.co.uk/news/world/europe/ukraine-russia-news-putin-truss-biden-b2012758.html)
-
-**编辑：LILY**
-
-**发布：歪桑**
-
-20220211
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3-4.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

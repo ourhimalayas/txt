@@ -2,49 +2,38 @@
 ---
 
 
-## 七哥说“我要唱给中国女人一首歌”（2022-02-06摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1991950/)
+## 乌克兰新闻 &#8211; 现场直播：由于担心俄罗斯入侵，英国人被告知立即离开该国
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1992048/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
-
-来源：郭先生2022-02-06直播11:11:56摘录
-
-咱们这个今年本来定在2月14号的GClub的年会，我们要推迟大概十天八天。就是不要在这个情人节，这个大家都不知道，长岛哥还有雪冰兄，还有所有的兄弟姐妹们，我们要推迟个七天甚至十天，具体时间再定。因为七哥要准备两首歌，我要唱给中国女人一首歌，我要唱给天下的母亲一首歌，我要练两首歌。我昨天晚上已经基本定局，我今天早上喊两嗓子感觉来了，感觉来了。我要在这个GClub上还要唱两首歌，所以时间稍微推迟点。另外一个这个情人节，本来是情人节GClub年会定得挺好，但是呢这个情人节我们真的是找到了一个让我们很重要的，类似于杨改兰的一家人的故事。包括当年告诉我杨改兰整个故事的当地的一个官员，他们家人也跑出来了。我想好好的把这个GClub会，我们要过成一个为中国女性维权的会，不光抽奖。因为我们GClub会员里面的70%都是女性，所以说大石、亨利你属于少数，咱们所有节目绝大数倾向于女性。咱们在GClub、GTV、盖特和爆料革命当中，女性已经不是半边天，是大半天，是真的。所以说我七哥要唱给女性两首歌，你们准备好赵岩牌纸巾吧。行，我先说完。
-
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
-
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+**编译：沉默老歌**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/968E6266-D575-4746-A49F-605FA851C055.png)图片来源：[https://www.independent.co.uk](https://www.independent.co.uk/)
 
 
+由于担心俄罗斯军队的入侵，英国人被告知立即离开乌克兰。
 
+外交部在周五晚上更新了建议，告诉英国国民“在商业手段仍然可用的情况下立即离开”。
+
+这一警告是在鲍里斯·约翰逊在与包括美国总统乔·拜登在内的世界领导人通话时表达了对欧洲安全的担忧之后发出的。
+
+此前，英国国防部长本·华莱士警告称，在与俄罗斯外长绍伊古进行“坦率”讨论后，俄罗斯仍可能在短时间内发动入侵。
+
+华莱士先生说，俄罗斯军队的定位使他们有能力“随时”入侵邻国，但他说他从俄罗斯政府那里听说它“无意”入侵乌克兰。
+
+俄罗斯已经在乌克兰附近集结了超过10万军队，本周它在邻国白俄罗斯发起了联合军事演习，并在黑海进行了海军演习。
+
+**原文链接：**
+
+[https://www.independent.co.uk/news/world/europe/ukraine-russia-news-putin-truss-biden-b2012758.html](https://www.independent.co.uk/news/world/europe/ukraine-russia-news-putin-truss-biden-b2012758.html)
+
+**编辑：LILY**
+
+**发布：歪桑**
+
+20220211
+
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3-4.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

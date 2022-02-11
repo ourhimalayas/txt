@@ -2,24 +2,38 @@
 ---
 
 
-## 纽约警察局彻查韩外交官遭无端袭击案件
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1990836/)
+## 还原中共国内的三年饥荒
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1990761/)
 
-撰稿：追着曙光跑
+作者：纽约香草山农场-马克文、朱莉叶
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+中共夺取中国政权的十年后，1959年至1961年，中国境内发生了迄今为止人类历史上最大的饥荒灾难，也就是后来被中共定义的“三年大饥荒”，当时造成的非正常死亡人数至少达到了5000万人。
 
-据韩国KBS新闻2月11日的报道，韩国驻纽约总领事馆11日表示，美国纽约警察局正对韩国的一名外交官遭不明男子无端袭击案件进行迅速调查。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-12-at-00.44.14.jpeg)图片来源：原新闻
-据总领事馆方面介绍，尚不能确定这是否是“反亚裔仇恨犯罪”，正在进行调查。当地政界人士也纷纷联系总领事馆方面就此表示担忧，并表示将积极提供必要的帮助。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide13-1.jpeg)
 
-据《纽约邮报》的消息，一名50多岁的韩国外交官9日20时左右在纽约市曼哈顿街头遭不明男子殴打。受害者随后被送往医院救治，目前情况稳定。袭击者在殴打外交官后不久逃走，并没有立即被捕。
+虽然中共通过篡改历史，强行将这一惨剧归咎于自然灾害，但据国际学者分析称，此次大饥荒实际上是人为因素造成的大劫难。资料显示，以毛泽东为首的中共统治集团违反人类社会发展的规律，强行推进所谓的工业化大跃进。在大跃进期间，中共又在农村建立人民公社，强行推广公共食堂，剥夺农民拥有食物的权力。彼时，由于中共上层强行征收公粮，这导致农民不仅没有口粮，甚至连种子粮和饲料也要全部上交。
 
-此前，上个月29日，一名60多岁的韩国男子在纽约市布鲁克林经营一家杂货店，也遭到一名男子不分青红皂白的殴打。
+在饥荒蔓延之际，墙内的老百姓只能依靠树皮和草根果腹，而中共干部却利用掌管食堂仓库的特权大肆贪污腐败。最严重的时期，中共国内的许多地方甚至出现易子而食和人吃人的惨剧。
 
-此外，据纽约警方数据，纽约市反亚裔仇恨犯罪飙升，从2020年的28起增至去年的131起。
+然而，由于中共对墙内民众的精神洗脑，大多数的百姓至今仍然无法得知这一灾害的真实原因。
 
-信息来源：**[뉴욕경찰, 한국외교관 ‘묻지마 폭행’ 피해 “신속·철저 수사”](https://news.kbs.co.kr/mobile/news/view.do?ncd=5392466)**
-**[뉴욕포스트 “한국 외교관, 뉴욕 맨해튼서 ‘묻지마 폭행’ 당해”](https://news.kbs.co.kr/mobile/news/view.do?ncd=5391959)**
+参考链接：
+1. [中国三年大饥荒的触发及加剧之原因](http://ww2.usc.cuhk.edu.hk/PaperCollection/Details.aspx?id=7030)
+2. [三年困难时期](https://zh.wikipedia.org/wiki/三年困难时期)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+
+总编：Jack Li文阳 
+编辑：静言
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
