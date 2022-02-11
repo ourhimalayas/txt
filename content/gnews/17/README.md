@@ -2,10 +2,14 @@
 ---
 
 
-## 干倒瑞银 CCP一切就完了
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1989753/)
+## 疫苗灾难下排华严重地区
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1989765/)
 
 作者：东京樱花团小视频组
+
+校对：东京樱花团小视频组
+
+发布：东京樱花团小视频组
 
 * * *
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/樱花-3-1.jpg)

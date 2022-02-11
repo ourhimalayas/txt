@@ -2,27 +2,33 @@
 ---
 
 
-## 俄罗斯驻日大使接受独家采访说乌克兰加入北约是个威胁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1989800/)
+## 前摩根分析师：俄乌开战，油价将达到每桶120美元
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1989801/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-117.png)
-（图片源自本文链接）
+整理：Eileen（围剿维尼熊）
+编辑：Mohegayer K. Simon
 
-2月11日消息：在接受日本新闻网的独家采访时，俄罗斯驻日本大使明确表示，”如果由我们决定，就不会有战争”。但同时，他也表达了对西方的高度警惕。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/6-10.png)图片来源：雅典娜设计组
 
-俄罗斯和白俄罗斯的大规模联合军事演习于10日开始。包括S400地对空导弹和从俄罗斯远东转移过来的战斗机等最新武器，正被部署在乌克兰边境等地区。
 
-北大西洋公约组织秘书长斯托尔滕贝格说”这是自冷战以来规模最大的一次”。北大西洋公约组织越来越关注部署在白俄罗斯的3万名俄罗斯军队，但其关注还不仅限于此。
+根据华尔街见闻2月10日报道，油价自今年年初以来一直在稳步上涨，从每桶80美元以下升至约90美元/桶。
 
-这是位于乌克兰南部的，曾于2014年被俄罗斯单方面吞并德克里米亚半岛的军港。六艘俄罗斯舰艇已经进入该地区，预计很快将进行演习。俄罗斯军队已经部署在靠近乌克兰东部的俄罗斯边境地区，乌克兰已经几乎被包围。
+2月7日，独立战略公司总裁、前摩根士丹利资深策略分析师David Roche在接受CNBC采访时表示，如果俄乌战争爆发，可能会阻碍两国商品出口，包括石油、天然气和煤炭，到那时油价一定会在120美元/桶之上。
 
-信息来源：[駐日ロシア大使単独インタ “ウクライナNATO加盟は脅威”（TBS系（JNN）） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/b4885e81edd2088fae6961149c4dba43d6c65881)
+美国和北约声称，俄罗斯集结重兵，有“入侵”之势。俄方强调北约活动威胁俄边境安全，俄方有权在境内调动部队以保卫领土。
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+目前利比亚一系列停电使原油生产停滞，加上乌克兰和中东地缘政治纷争，都让原本供需紧张的原油市场雪上加霜。
 
+参考链接：https://i.ifeng.com/c/8DWDTtjsSQC
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
