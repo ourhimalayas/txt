@@ -2,8 +2,8 @@
 ---
 
 
-## 习近平的冬奥开幕式共产党已成孤家寡人
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1988746/)
+## 七哥教大家怎么聪明的使用Hpay
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1988934/)
 
 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王
 视频定位：BENJ1，WEI

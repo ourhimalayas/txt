@@ -2,37 +2,45 @@
 ---
 
 
-## 美国媒体称，疫苗造成的死亡令人震惊
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1988253/)
+## 日本三井贸易公司将推出与黄金挂钩的加密货币
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1988485/)
 
-作者：纽约香草山 – 侠肝义胆
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-2月7日，根据OANN公布的一份令人震惊的新报告，截至2022年1月4日，至少有94万6千名美国人在接种疫苗后死亡，或出现了严重的副作用。
+#### **【雅典娜观察】与您一起洞察世界**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8-8.png)
+**翻译/编辑：MSGZ**
 
-该报告还引述了美国卫生与公众服务部的信息指出，因为注射中共病毒疫苗，很多人或患神经系统疾病无法站立，或患心脑血管疾病突然摔倒，超过10万名美国人在接受疫苗注射后不得不住院治疗。
-
-主持人Pearson Sharp在节目中表示：“我们现在看到了这种未经测试、未经证实、仓促研发的疫苗的后果，比我们担心的要严重得多。而这只是一个开始，如果美国人和父母不能勇敢地反对这项不科学的强制令，我们可能会看到历史上规模最大的、人类实验造成数十万人死亡或永久受伤。”
-
-参考链接：
-
-- [Report: COVID vaccines inflicting far more deaths than previously thought: “Could be looking at hundreds of thousands more dead”](https://newstarget.com/2022-02-07-report-covid-vaccines-inflicting-more-deaths-than-thought.html)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/5-13.jpg)图片来源：Finbold
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
+据日经亚洲报道，日本贸易公司三井物产公司（Mitsui & Co）计划最早在本月推出一种与黄金价格挂钩的加密货币。
 
-总编：Irene木木
-编辑：飞虹
-校正/发稿：海阔天空1
+该加密货币有以下几个特点：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+该代币被称为 ZipangCoin (ZPG)，将出售给散户投资者，并将与三井物产从伦敦金属交易所采购的日元黄金价格挂钩。Nikkei 写道，一个 ZPG 的价格将等于一克黄金的价值，并将由三井住友银行担保​​。
+
+ZPG 可能是日本第一个与黄金挂钩的代币，但不是世界上第一个此类代币。与黄金价格挂钩，ZPG 可能是一种相对稳定的加密货币。
+
+ZPG 最初将通过三井自己的交易所出售。据《日经亚洲》报道，该交易所与七银行等共同成立，已在关东地方财政局注册，并获得日本金融厅 (FSA) 的许可。关东是包括大东京地区在内的地区。
+
+三井还计划将 ZPG 用作支付工具，通过智能手机应用程序和其他数字支付系统在贸易公司的附属零售商处使用。
+
+在FSA注册的交易所如果想交易ZPG，就必须接受用户身份验证。
+
+该代币将在私有区块链上运行，这与比特币和以太币等加密货币所基于的区块链不同。私有的，也称为许可的，区块链控制谁参与网络。
+
+三井住友银行也是 70 多家日本银行和行业领导者组成的财团的一部分，这些银行和行业领导者正在努力发行银行存款支持的数字日元。
+
+新闻来源：https://www.coindesk.com/business/2022/02/04/japanese-trading-house-mitsui-to-launch-gold-linked-cryptocurrency-report/
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

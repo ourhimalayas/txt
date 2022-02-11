@@ -2,8 +2,8 @@
 ---
 
 
-## 美国经济危机，一定会新生
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1988769/)
+## 我们有收人民币的渠道，自动变成HDO，请和农场联系
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1988965/)
 
 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王
 视频定位：BENJ1，WEI

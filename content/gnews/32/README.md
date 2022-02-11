@@ -2,22 +2,24 @@
 ---
 
 
-## 英格兰将在2月取消中共病毒隔离措施
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1988251/)
+## 调查显示：TikTok追踪用户信息最多，但数据去向不明
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1988254/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+作者：纽约香草山教育部 – Noemi
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-周三，首相鲍里斯·约翰逊突然宣布，如果感染率保持稳定，英格兰将在本月底取消对中共病毒检测呈阳性后、自我隔离的法律要求。
+CNBC 2月8日报道，最新调查显示：在社交媒体应用市场中，TikTok追踪、共享用户的私人信息最多，同时，TikTok还允许第三方跟踪器广泛收集用户的个人数据，但这些数据的最终去向目前还不明确。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/10-8.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-37.png)
 
-英格兰在1月底已经取消了几乎所有的冠状病毒限制，几周前，为促进经济活动，政府将中共病毒患者的最低自我隔离期从7天缩短到5天。同时，英格兰已经逐渐放宽了有关国际旅行的规定，旅行者在抵达英国之前要完全接种疫苗，或抵达之后进行中共病毒检测的需求，也将于本周晚些时候结束。
+调查还发现，因第三方追踪器的应用，无法得知TikTok的用户们被收集到了哪些私人信息，也不知道是谁在收集用户们的信息，这可能将使普通用户面临更大的隐私风险。用户们即使已经离开TikTok的应用程序，第三方追踪器依然能够追踪到用户在其他网站上的活动状况。
 
-首相发言人称，政府只负责英格兰的卫生政策，苏格兰、威尔士和北爱尔兰地区的相关措施由当地政府自己制定。
+此前，TikTok还被曝出，其海外应用的服务器，一直在与它的中共国母公司共享全球用户的隐私信息。美国前总统川普也曾因此倡议全美禁用抖音。
+
+郭文贵先生曾指出，TikTok就是中共军方用于窃取个人隐私数据、和监视用户行为的间谍软件，也是其对西方文化渗透的社交媒体武器。这项调查将成为中共意图控制世界的又一罪证。
 
 参考链接：
 
-- [England may scrap COVID-19 isolation requirement by March: Johnson](https://www.dailysabah.com/world/europe/england-may-scrap-covid-19-isolation-requirement-by-march-johnson)
+- [TikTok shares your data more than any other social media app — and it’s unclear where it goes, study says](https://www.cnbc.com/2022/02/08/tiktok-shares-your-data-more-than-any-other-social-media-app-study.html?&amp;qsearchterm=tiktok)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
