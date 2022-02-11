@@ -2,37 +2,25 @@
 ---
 
 
-## 有声|被中共篡改的历史：朝鲜战争二三事
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1990819/)
+## 中共谴责安倍前首相与蔡英文总统举行电话会谈
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1991100/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-中国共产党的历史应该被称为伪历史。中共对于自己的不光彩历史，一般都极力掩盖，利用独裁统治，掌控宣传工具，对老百姓进行洗脑教育。
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-47.png)
+（图片源自本文链接）
 
-中共把自己在朝鲜战争中的角色说成是“抗美援朝” “保家卫国”。但中1951年2月1日，联合国大会以44票赞成、7票反对和9票弃权，通过了一项名为“中华人民共和国中央人民政府干涉朝鲜”的提案，在该提案中，中共的志愿军被定义为入朝的外国军队中唯一的侵略者。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-23.jpg)
-战后几十年，中共一直对老百姓隐瞒志愿军的伤亡数字，只是极力宣传所谓的几位战斗英雄。很长一段时间，大陆百姓一直认为中共志愿军在朝鲜战场上几乎没有伤亡。直到2010年，一些历史资料才公布：中朝军队死伤超过100万人，其中志愿军阵亡超过18万人。
+日本朝日电视2月11日消息：针对安倍前首相与台湾总统蔡英文的电话交谈，中共外交部强调，中国坚决反对与台湾的一切官方往来。
 
-中共选择入朝作战的志愿军队伍中，大多数都是前国民党的投降部队，中共借战争机会消灭了大量未来很能出现的异己。战争结束后，被俘虏的志愿军数万人选择去了台湾，受到台湾当局欢迎，在生活上也得到了很好的安排。而回国的被俘志愿军则受到了严格审查，很多人被打成叛徒定罪。之后几十年，从来没有在新闻媒体上再看见这些志愿军俘虏。
+台湾总统府10日宣布，总统蔡英文和日本前首相安倍晋三于1月31日进行了电话交谈。交谈中，对台湾申请加入跨太平洋伙伴关系之TPP, 安倍晋三说日本表示欢迎。
 
-文字版原文：[被中共篡改的历史：朝鲜战争二三事](https://gnews.org/zh-hans/1981449/)
+中共国外交部在11日的新闻发布会上回应说：中国坚决反对与台湾的一切官方往来。一些日本政客以任何方式损害中国的主权是不可接受的。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+信息来源：[安倍元総理と蔡総統の電話会談に中国「あらゆる公的往来に断固反対」（テレビ朝日系（ANN）） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/3c4797d1b4d8ffc37891c35cf4b87ab5337e7ba9)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

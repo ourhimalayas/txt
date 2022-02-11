@@ -2,32 +2,38 @@
 ---
 
 
-## 郭先生示警排华形势日益严峻
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1990550/)
+## 有声|被中共篡改的历史：朝鲜战争二三事
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1990819/)
 
-作者：纽约香草山教育部 – Noemi
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月9日，郭文贵先生在大直播中指出，全球目前排华的整体形势日益严峻，而新中国联邦还没有把握能从根本上化解此危机。因此，在保障全球华人未来的安全问题上，更多同胞需要觉醒并努力。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/4-17.jpg)
-郭先生分析称，针对全球排华危机，有两点尤为值得注意：其一，与彻底消灭共产党相比，如何能让被洗脑的中国人重新获得辩是非、识真假的能力，将是新中国联邦所面临的一个更加艰巨的任务。其二，越来越多的国家正在从中共病毒及疫苗的超限战中醒来，他们会逐渐将怒气转移到当地华人身上——这或将导致东欧、俄罗斯、东南亚及非洲等地未来出现超出想象的排华运动。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+中国共产党的历史应该被称为伪历史。中共对于自己的不光彩历史，一般都极力掩盖，利用独裁统治，掌控宣传工具，对老百姓进行洗脑教育。
 
-郭先生强调，中国人只有与中国共产党彻底区分开来才能避免成为中共替罪羊的命运。为此，同胞们只有从思想上彻底铲除中共的余毒，才能真正地获得自由、尊重和重生。
+中共把自己在朝鲜战争中的角色说成是“抗美援朝” “保家卫国”。但中1951年2月1日，联合国大会以44票赞成、7票反对和9票弃权，通过了一项名为“中华人民共和国中央人民政府干涉朝鲜”的提案，在该提案中，中共的志愿军被定义为入朝的外国军队中唯一的侵略者。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-23.jpg)
+战后几十年，中共一直对老百姓隐瞒志愿军的伤亡数字，只是极力宣传所谓的几位战斗英雄。很长一段时间，大陆百姓一直认为中共志愿军在朝鲜战场上几乎没有伤亡。直到2010年，一些历史资料才公布：中朝军队死伤超过100万人，其中志愿军阵亡超过18万人。
 
-参考链接：[2022年2月9日 文贵大直播：UBS正式立案 打响沼泽地的第一仗；习普政治困局；中美俄三角斗；药厂政策调整；药厂政府互掐；何为全球货币；七哥个人生活](https://gtv.org/video/id=6203b7b13621aa7415d80e9e)
+中共选择入朝作战的志愿军队伍中，大多数都是前国民党的投降部队，中共借战争机会消灭了大量未来很能出现的异己。战争结束后，被俘虏的志愿军数万人选择去了台湾，受到台湾当局欢迎，在生活上也得到了很好的安排。而回国的被俘志愿军则受到了严格审查，很多人被打成叛徒定罪。之后几十年，从来没有在新闻媒体上再看见这些志愿军俘虏。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+文字版原文：[被中共篡改的历史：朝鲜战争二三事](https://gnews.org/zh-hans/1981449/)
 
-总编： 文特
-编辑：静言
-校正/发稿：Fei797
-
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

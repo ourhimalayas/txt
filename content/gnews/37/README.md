@@ -2,26 +2,38 @@
 ---
 
 
-## 2022.2.11大直播 冬奥会谷爱玲事件给全球华人敲响警钟
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1990518/)
+## 还原中共国内的三年饥荒
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1990761/)
 
-撰稿：大浪小水花
+作者：纽约香草山农场-马克文、朱莉叶
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+中共夺取中国政权的十年后，1959年至1961年，中国境内发生了迄今为止人类历史上最大的饥荒灾难，也就是后来被中共定义的“三年大饥荒”，当时造成的非正常死亡人数至少达到了5000万人。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-11-at-9.30.44-PM.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide13-1.jpeg)
 
+虽然中共通过篡改历史，强行将这一惨剧归咎于自然灾害，但据国际学者分析称，此次大饥荒实际上是人为因素造成的大劫难。资料显示，以毛泽东为首的中共统治集团违反人类社会发展的规律，强行推进所谓的工业化大跃进。在大跃进期间，中共又在农村建立人民公社，强行推广公共食堂，剥夺农民拥有食物的权力。彼时，由于中共上层强行征收公粮，这导致农民不仅没有口粮，甚至连种子粮和饲料也要全部上交。
 
-郭文贵先生在2022年2月11日大直播中特别提到了谷爱凌事件。
+在饥荒蔓延之际，墙内的老百姓只能依靠树皮和草根果腹，而中共干部却利用掌管食堂仓库的特权大肆贪污腐败。最严重的时期，中共国内的许多地方甚至出现易子而食和人吃人的惨剧。
 
-郭先生谈到，谷爱凌把一个养她长大的美国玩弄于股掌之中，把美国人当傻子，一边讨好中共，一边骂美国黑美国，这种做法所有有民主制度的国家都会反对。
+然而，由于中共对墙内民众的精神洗脑，大多数的百姓至今仍然无法得知这一灾害的真实原因。
 
-郭先生指出谷爱凌这幅嘴脸和小聪明，这种不懂得感恩、无法无天，完全造假，公然撒谎、支持BLM，是完全的利己主义，投机主义，她让全世界看清了共产党洗脑统治下的中国人没有信仰、虚伪、自私、卑鄙。
+参考链接：
+1. [中国三年大饥荒的触发及加剧之原因](http://ww2.usc.cuhk.edu.hk/PaperCollection/Details.aspx?id=7030)
+2. [三年困难时期](https://zh.wikipedia.org/wiki/三年困难时期)
 
-郭先生强调，谷爱凌母女一定会付出巨大的代价，谷爱凌她今天的赢绝对是她灾难的开始。她现在给中国人拉的仇恨，她祖宗万辈都无法赎罪。她不仅引起了日韩跟华人的对立，还引起了全世界的华人、亚裔人跟西方世界对立。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-郭先生提醒海外战友，现在整个西方世界正在暗藏着一股势力，就是反华、反亚裔。谷爱凌在冬奥会的所作所为引起全球的不满和愤怒，是对海外华人的巨大伤害，是对孩子的巨大威胁，是华人一生的侮辱，谷爱凌母女给全世界华人敲响了警钟。
+总编：Jack Li文阳 
+编辑：静言
+校正/发稿：谐趣园
 
-参考链接：[2022.2.11文贵大直播](https://gtv.org/broadcast/watch/62065c00a1fe5e57a426b9e2)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,31 +2,52 @@
 ---
 
 
-## 七哥谈“什么事情都正反两面”（2022-02-06摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1991315/)
+## 冬奥会画面显示中共国运动员抛出场地标记物绊倒加拿大运动员
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1991371/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+**评论：***连真实情况都不敢播出的北京冬奥会，更谈不上在比赛中展现公平公正，然而总有视频可以使邪恶原形毕露。*
 
-来源：郭先生2022-02-06直播09：30：00摘录
+据《雅虎新闻网》作者：Carl Samson，2022年2月8日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1144-e1644603409167.png)图片来源：Yahoo
+中共国队的一名短道速滑运动员被指控作弊，他涉嫌在周一比赛中扔出场地标记物，导致一名加拿大运动员摔倒。
 
-特别我们烧掉的这个绝密文件，我现在往回看，我一直想如果那个文件美国早点儿拿到，是吧，就是救好多好多人。你是基于美国政府相信你这个文件，你是基于这个文件它真的就会采取行动，很多条件下，亨利兄弟你知道这个情况。但是我们经过这些年在美国五年来看待，就像单伟建这样的人，就是Isobel Yeung这样的人，吴征这样的人在美国还能最后把川普总统能搞到SPAC公司这个情况，美国是资本主义的国家。还有我跟FBI打这么多年交道，还有跟CIA也给他们谈过那么多次，给美国各种议员这么多文件，可以告诉大家，即使你那文件不烧掉给了他们，起到作用几乎也不大，很悲哀！美国这个国家有很多好处，它的好处、不可能只有好处，什么事情都正反两面，它的好处之外的另一面就是官僚，它这个官僚就让你很无奈，是吧！就是你什么事儿一说，这个案子要两年，这个案子三年。
+女子500米四分之一决赛的这一瞬间被拍成GIF，在Reddit上疯传，随后被删除，稍后又被重新贴出。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+28岁运动员范可欣，将标志物弹向加拿大人阿莱森-查尔斯，后者随后失去平衡，倒在赛场。
 
-**关注我们**
+这个名为《中国滑冰运动员在北京奥运会上表现出的体育精神》的Reddit发帖吸引了数千人的阅读和评论，据说被删除前浏览超过300多万次。
 
-Discord 账号
+一位Reddit用户写道：“这是一些华而不实的东西，我大概看了十遍才弄清楚发生了什么。”
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+另一个评论说：“我看了好几遍才发现……不得不说，这种作弊行为显示了惊人的精确度和协调性。真正的奥运级作弊。”
 
-Gettr 账号
+这不是范可欣第一次卷入比赛争议。在2018年冬奥会上，她的团队在女子3000米团体接力决赛中被取消资格，因为她阻挡了一名韩国滑冰运动员。
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+据《南华早报》报道：“我们很庆幸下一届奥运会在北京举行。”她的队友周洋当时说：“北京奥运会肯定会是公平的，非常肯定。”
+
+加拿大滑冰运动员Kim Boutin最终赢得了周一的500米比赛并晋级半决赛。
+
+据《独立报》报道，她的队友Florence Brunelle获得第二名，但因绊倒Charles和范可欣而被取消资格。
+
+查尔斯也被允许晋级，因为她在摔倒时位居第二位。据News.com.au报道，她在半决赛中获得第四名，在B组决赛中获得第三名，总成绩获得第八名。
+
+意大利的阿丽亚娜-方塔娜最终在决赛中夺得金牌。荷兰的Suzanne Schulting包揽了银牌，而Boutin则获得铜牌。
+
+原文连接：[https://news.yahoo.com/viral-olympics-gif-shows-team-002446130.html](https://news.yahoo.com/viral-olympics-gif-shows-team-002446130.html)
+
+翻译：洛杉矶盘古农场 – TrueSky
+
+校对：洛杉矶盘古农场 – 轰炸机
+
+评论：洛杉矶盘古农场 – 轰炸机
+
+编辑：洛杉矶盘古农场 – WenXiong
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

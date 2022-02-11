@@ -2,24 +2,31 @@
 ---
 
 
-## 食品必需品价格以最快的速度上涨—今年将再上涨6%
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/1991204/)
+## 七哥谈“ 这就是新中国联邦直播的力量”（2022-02-06摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1991296/)
 
-加拿大温哥华杨帆农场 Cran
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unplash.com_.png)图片: unplash.com
-1月8日美国周刊报道，据高盛预计食品和必需品的价格将再上涨5-6%。对于一直在疫情时期在开支上挣扎的人们来说将是雪上加霜。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-最新的道琼斯数据表明通货膨胀率已经达到7.2%，这是自1982年以来的最高纪录。这个数据正处在美国经济的十字路口。美国劳工部周四报道一月份的消费者价格指数（CPI）与一年前相比上涨了7.5%。
+来源：郭先生2022-02-06直播09：24：39摘录
 
-在过去的两年里食品价格以金融危机以来最快的速度上涨，美国人看到肉类鸡肉，鸡蛋和其它商品的价格大幅飙升。高盛将零售价格上涨的部分原因归咎于农产品成本的飙升。如果企业将上涨的成本价转嫁给消费者，价格可能会进一步上涨。
+共产党还能再回到以前吗？那是不可能的。昨天晚上某将军跟我说，他说：“如果他们下令让我打台湾开始，我们是第一波，我第一波干的事情我尽我所能我把这炮弹、导弹我都扔到北京去。” 哈哈…我说：“哥儿们，你要这么干了，你就是人类的英雄。你死了，七哥也会让你成为英雄，你活着，七哥让你享受终生。” 哈哈… 是吧。他就是为什么？就是看咱们新中国联邦，他说：“我们要打台湾是为啥？我最后研究了研究，就是一帮疯子要打台湾，就这么简单道理呀。” 这就是新中国联邦直播的力量，让你找到事情的真相，找到事情真正的真理，不被人家利用，还能有一个安全、健康的未来。谢谢！
 
-据加拿大数据局，加拿大的2021年通货膨胀率达到了30年以来的新高4.8%，自1991年的最高水平。将出炉的一月份数据预计应该更高，这超过了加拿大央行设定的1-3%的控制范围。食品和必需品价格的上涨对于低收入的家庭打击最为严重，他们将面临更大的困难。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-参考链接：[https://www.newsweek.com/groceries-could-cost-substantially-more-2022-goldman-sachs-predicts-1677717](https://www.newsweek.com/groceries-could-cost-substantially-more-2022-goldman-sachs-predicts-1677717)
+**关注我们**
 
-* * *
+Discord 账号
 
-编辑、发布：月亮之上
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

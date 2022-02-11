@@ -2,31 +2,32 @@
 ---
 
 
-## 七哥谈“邪恶必将被消灭”（2022-02-06摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1991279/)
+## 2022/02/10 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1991335/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+1. 2月9日，广西百色市中共政府通报新增180例新冠病毒确诊病例。被封城后的广西百色是军管的状态，市民自由出行大大受限，唯有警车畅行的身影。
+2. 2月9日，香港市民连夜排队做核酸检测。失去自由民主法制的香港，在中共中央政府的控制之下已与大陆无异。
+3. 中共的社区管理模式是区域化监控人民的有生力量。视频为社区运动式宣传中共中央禁放烟花爆竹的政策。
+4. 2月7日，河南郑州。春节后号称“全球最大医院”的郑州大学附属医院人山人海堪比春运，就诊患者排队排到崩溃。
+5. 就诊大厅外的排队患者众多，维持现场秩序保安在呼叫同事增援。
+6. 2月2日，在赞比亚投资矿山的的中国投资者遭到当地酋长强行抢沙。海外华人在外遇不公正的待遇，并不会如中国共产党宣传的那样有国家在身后。恰恰相反，中共并不会真正在乎普通华人的利益。 中国人≠中国共产党！
+7. 2月8日，湖北武汉。金融港一路附近共享单车堆积成灾。“霸占”斑马线，“包围”红绿灯，行人过路犹如“障碍赛”。
+8. 2月9日，中共国大陆经济凋零，年后恐将又会迎来一大批实体店铺的倒闭潮。
+9. 2月9日，广东做衣服的低价村，每天有几万人在这里流浪等待工厂招聘。
+10. 2月7日，江苏沛县。民政局员工春节节后第一天去上班，不料离婚业务申请爆满，导致服务器系统崩溃异常。
+11. 2月8日，河南。年后父母离家务工，被迫留守的孩子在家门口哭的撕心裂肺。
 
-来源：郭先生2022-02-06直播09：23：28摘录
 
-所谓义工们，那些恨、那些恼怒、那些没办法、绑在手上的脚镣、强迫着做义工，我真感觉大地在颤抖，苍天在愤怒，魔鬼在呼啸，人类到了一个大重启的时候，邪恶必将被消灭，经济是世界更迭的必然发生的事件。今天直播在这儿你看着，再过5月份以后，就像小新在病前病后，她完全变了一个人，她对生命、对爱、对人性，只有她自己知道。你活着你是人，你是男是女，你死了，是男是女、长得好看不好看，跟你毛关系没有，你就是一堆灰。对待人类的经济和未来就这么简单，一样的，你有这个经济基础就有，没有你想装，装不出来。共产党还能再回到以前吗？那是不可能的。
+* * *
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-**关注我们**
 
-Discord 账号
+编辑：【英国伦敦喜庄园编辑部】
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

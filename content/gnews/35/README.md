@@ -2,34 +2,24 @@
 ---
 
 
-## 中共决定逮捕蔡鄂生
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1990597/)
+## 纽约警察局彻查韩外交官遭无端袭击案件
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1990836/)
 
-作者：首尔天池农场-追着曙光跑
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月10，据中共媒体报道，原中共国银行业监督管理委员会党委委员、副主席蔡鄂生涉嫌受贿、利用影响力受贿以及滥用职权，此案已交由中共国家监察委员会调查终结，即将移送至检察机关审查起诉。日前，最高人民检察院对蔡鄂生作出逮捕决定。
+撰稿：追着曙光跑
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide11-5.jpeg)
+据韩国KBS新闻2月11日的报道，韩国驻纽约总领事馆11日表示，美国纽约警察局正对韩国的一名外交官遭不明男子无端袭击案件进行迅速调查。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-12-at-00.44.14.jpeg)图片来源：原新闻
+据总领事馆方面介绍，尚不能确定这是否是“反亚裔仇恨犯罪”，正在进行调查。当地政界人士也纷纷联系总领事馆方面就此表示担忧，并表示将积极提供必要的帮助。
 
-1951年出生的蔡鄂生在中共中央银行系统工作过20余年，官至中共央行行长助理兼上海分行行长。2001年至2005年，蔡鄂生转任中共国有重点金融机构监事会主席，并于2005年12月出任中共国银行业监督管理委员会副主席，直至2013年退休。
+据《纽约邮报》的消息，一名50多岁的韩国外交官9日20时左右在纽约市曼哈顿街头遭不明男子殴打。受害者随后被送往医院救治，目前情况稳定。袭击者在殴打外交官后不久逃走，并没有立即被捕。
 
-有分析人士认为，据郭文贵先生在2021年8月1日的爆料，蔡鄂生是王岐山的生死兄弟。为此，蔡鄂生此次被逮捕的通报或可说明中共的内斗已经越来越激烈。
+此前，上个月29日，一名60多岁的韩国男子在纽约市布鲁克林经营一家杂货店，也遭到一名男子不分青红皂白的殴打。
 
-参考链接：[依法决定逮捕！](https://mp.weixin.qq.com/s/KTx79Jymx6AYqaeV5AUhAg)
+此外，据纽约警方数据，纽约市反亚裔仇恨犯罪飙升，从2020年的28起增至去年的131起。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+信息来源：**[뉴욕경찰, 한국외교관 ‘묻지마 폭행’ 피해 “신속·철저 수사”](https://news.kbs.co.kr/mobile/news/view.do?ncd=5392466)**
+**[뉴욕포스트 “한국 외교관, 뉴욕 맨해튼서 ‘묻지마 폭행’ 당해”](https://news.kbs.co.kr/mobile/news/view.do?ncd=5391959)**
 
-总编：文特 
-编辑：飞虹
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
