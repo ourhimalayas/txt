@@ -2,32 +2,28 @@
 ---
 
 
-## 七哥谈美国、俄罗斯与中国的交流（2022-02-06摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1987112/)
+## 有声|土耳其中共病毒感染當日确诊首度超過10万，与疫苗接种率同创新高
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1987137/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+配音：香草山巡管部– 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9D%A1%E5%B9%85.png)
+土耳其当地媒体报道，土耳其卫生部1日晚间公布疫情通报显示，过去24小时有10万余起中共病毒确诊病例，198例死亡病例。 土耳其中共病毒单日病例数2月1日首度超过10万，与疫苗接种率同创新高。 土耳其目前18岁以上人口的两剂、单剂接种率分别为84.46%、92.54%，有近2513万人已施打第3剂。
 
-来源：郭先生2022-02-06直播08：56：32摘录
+土耳其近日因为奥米克戎变异株迅速传播而造成中共病毒病例数大幅攀升，这几天几乎每天刷新纪录，但是住院率较以往明显偏低。 卫生部2019冠状病毒科学咨询委员会委员欧达巴许告诉记者，从目前情况看，奧米克戎致死率不到Delta变异株的1/5，但奧米克戎变异株仍具危险性，几乎每天都有上百人因感染奥米克戎死亡。
 
-给大家分享一个最重要的，你看到美国的经济啊，大家要记住，你看我们中国当时我一再说，当时派到中国去的这个“盛茂昭”就是第一个到中国去做生意的，你看他在美国博物馆里面，大家网上都能查到，他对中国人的整个论述，包括蒲安臣、包括后来咱大家记住那个叫什么？美国最有名的一个罗斯福关于中国的所谓人性的报告，不是人权，是人性，就是人的行为习惯的报告。包括福布斯，福布斯这个有名的“福布斯家族”是最早在中国做生意的，专门对中国的陈述。而且里边儿都说到：中国和美国人民一旦好在一起，两国人民的优缺点相互补偿，两国人民的大陆国家和海洋国家的这种结合地理优势，和中国的人口勤劳、文明的这种优势，美国的新国家优势，这个世界就平安、和平，然后多么的美好。就是这个在历史上，刚才亨利小哥说的那句话说得对，就是不知道、谁也搞不懂，到底中共是魔怔了？是个人被威胁了被俄罗斯？这怎么爱上了俄爹？从来没带来过好处。就刚才我说那些原因之外，还有一个就是俄罗斯是世界上对抓住政治把柄、政治黑社会是全人类第一，没有喊第二的。当然了，共产党所有在俄罗斯搞武器交易没有不拿巨额回扣的，你跟俄罗斯做这种石油贸易交易没有不拿回扣的。而美国人跟中国人是做为文化交流、精神交流、绝对的实际利益交流。
+文字版原文：[土耳其中共病毒感染當日确诊首度超過10万，与疫苗接种率同创新高](https://gnews.org/zh-hans/1949759/)
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+音频处理/发稿：Daxia
 
-**关注我们**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

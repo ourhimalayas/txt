@@ -15,68 +15,68 @@
 
 ---
 
-### [有声|美司法部刑事指控中共企业盗取美国技术](/content/gnews/1/README.md)
+### [文•贵天成——文贵先生谈“躺平币”（六）](/content/gnews/1/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [有声|前国家情报总监谈论中共对美国经济科技和文化上的渗透](/content/gnews/2/README.md)
  ` MOSREC`
 
-### [美国会共和党人提出《制裁中共法》 全面锁定中共官员及其亲属](/content/gnews/2/README.md)
+### [有声|美司法部刑事指控中共企业盗取美国技术](/content/gnews/3/README.md)
+ ` MOSREC`
+
+### [美国会共和党人提出《制裁中共法》 全面锁定中共官员及其亲属](/content/gnews/4/README.md)
  ` 日本东京方舟农场`
 
-### [七哥谈中共伤害全世界挑战全人类（2022-02-06摘录）](/content/gnews/3/README.md)
+### [七哥谈中共伤害全世界挑战全人类（2022-02-06摘录）](/content/gnews/5/README.md)
  ` MG FARM`
 
-### [有声|共产党是否定历史主义者-六四事件](/content/gnews/4/README.md)
+### [弹力带臀腿运动](/content/gnews/6/README.md)
+ ` 纽约香草山MOS03`
+
+### [有声|共产党是否定历史主义者-六四事件](/content/gnews/7/README.md)
  ` MOSREC`
 
-### [七哥谈利益冲突，贸易冲突（2022-02-06摘录）](/content/gnews/5/README.md)
+### [七哥谈利益冲突，贸易冲突（2022-02-06摘录）](/content/gnews/8/README.md)
  ` MG FARM`
 
-### [有声|日本皇室爆出首例中共病毒确诊](/content/gnews/6/README.md)
+### [有声|日本皇室爆出首例中共病毒确诊](/content/gnews/9/README.md)
  ` MOSREC`
 
-### [七哥说“中国这个国家成了冒险家的乐园”（2022-02-06摘录）](/content/gnews/7/README.md)
+### [七哥说“中国这个国家成了冒险家的乐园”（2022-02-06摘录）](/content/gnews/10/README.md)
  ` MG FARM`
 
-### [有声|英国调查发现 中共病毒导致员工长期病假 造成人力短缺](/content/gnews/8/README.md)
+### [有声|英国调查发现 中共病毒导致员工长期病假 造成人力短缺](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [魁北克省勒戈（Legault）政府指责反对党纵容示威者的武装](/content/gnews/9/README.md)
+### [魁北克省勒戈（Legault）政府指责反对党纵容示威者的武装](/content/gnews/12/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [七哥谈所谓全球化（2022-02-06摘录）](/content/gnews/10/README.md)
+### [七哥谈所谓全球化（2022-02-06摘录）](/content/gnews/13/README.md)
  ` MG FARM`
 
-### [有声|美共和党议员敦促收紧对中芯国际的出口限制](/content/gnews/11/README.md)
+### [有声|美共和党议员敦促收紧对中芯国际的出口限制](/content/gnews/14/README.md)
  ` MOSREC`
 
-### [英国查尔斯王子和加拿大总督感染中共病毒](/content/gnews/12/README.md)
+### [英国查尔斯王子和加拿大总督感染中共病毒](/content/gnews/15/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [有声|土耳其中共病毒感染當日确诊首度超過10万，与疫苗接种率同创新高](/content/gnews/13/README.md)
+### [有声|土耳其中共病毒感染當日确诊首度超過10万，与疫苗接种率同创新高](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [七哥谈文化上的冲突和互补（2022-02-06摘录）](/content/gnews/14/README.md)
+### [七哥谈文化上的冲突和互补（2022-02-06摘录）](/content/gnews/17/README.md)
  ` MG FARM`
 
-### [有声|加拿大总理三剂疫苗仍確診 加國民调稱多数人望终止疫情限制](/content/gnews/15/README.md)
+### [有声|加拿大总理三剂疫苗仍確診 加國民调稱多数人望终止疫情限制](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [七哥谈美国、俄罗斯与中国的交流（2022-02-06摘录）](/content/gnews/16/README.md)
+### [七哥谈美国、俄罗斯与中国的交流（2022-02-06摘录）](/content/gnews/19/README.md)
  ` MG FARM`
 
-### [英国王储查尔斯再次感染新冠病毒](/content/gnews/17/README.md)
+### [英国王储查尔斯再次感染新冠病毒](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|北京冬奥临近，COVID病例增加，中共甩锅外来参赛人员](/content/gnews/18/README.md)
+### [有声|北京冬奥临近，COVID病例增加，中共甩锅外来参赛人员](/content/gnews/21/README.md)
  ` MOSREC`
-
-### [有声|美议员批评白宫使用中共来源的检测试剂](/content/gnews/19/README.md)
- ` MOSREC`
-
-### [有声|佛像系列：穿着美丽的衣裳，追求着自由的生活](/content/gnews/20/README.md)
- ` MOSREC`
-
-### [新西兰：自由车队成功地在怀唐伊日出发](/content/gnews/21/README.md)
- ` 喜马拉雅农场新西兰站`
 
 ### [通货膨胀年率飙升 7.5%，1982 年以来的最高水平](/content/gnews/22/README.md)
  ` 温哥华圆成农场🇨🇦`

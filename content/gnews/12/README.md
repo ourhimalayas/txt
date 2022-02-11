@@ -2,43 +2,48 @@
 ---
 
 
-## 英国查尔斯王子和加拿大总督感染中共病毒
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1987141/)
+## 魁北克省勒戈（Legault）政府指责反对党纵容示威者的武装
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1987160/)
 
 2022-02-10
 
-编译: 真北007
-![](https://assets.gnews.org/wp-content/uploads/2022/02/439H@ZIOSVKZ1YSB91B.png)图片来源：[Queen Elizabeth recently met with Prince Charles who is positive for COVID-19 again](https://nationalpost.com/news/world/uks-prince-charles-tests-positive-for-covid-19-for-a-second-time-5)
-来自NATIONAL POST 二月十日的新闻报道：
+编译及评论：16626
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GXHKH2P67Y_ZKTHFG5.png)图片来源：截屏于[Manifestants prêts à prendre les armes: Legault critique des oppositions](https://www.tvanouvelles.ca/2022/02/10/manifestants-prets-a-prendre-les-armes-legault-critique-des-oppositions)
+#### 魁北克省省长，弗朗索瓦·勒戈（François Legault），指责反对党纵容某些反卫生措施抗议者发出的武装暴力威胁
 
-伊丽莎白女王最近会见了再次感染 COVID-19 的查尔斯王子
+在加拿大新闻社（la Presse canadienne）周三发表的一篇文章中，上周末在魁北克省举行的卡车司机示威活动的组织者之一表示，有些人已经准备好拿起武器。凯文·比格·格雷尼尔（ Kevin Big Grenier自由车队的三位组织者之一）说，“我准备好拿起武器，然后去（魁北克省）议会”。
 
-君主制在加拿大的代表，总督玛丽西蒙（Mary Simon）也被检测出阳性，症状轻微
+#### 自由党议员安德烈·福廷
 
-伦敦在宣布查尔斯王子 COVID-19 检测呈阳性，这是英国王位继承人第二次感染这种疾病。
+魁北克省的反对派表示，这些评论是“不可接受的”，应该认真对待。自由党议员安德烈·福廷André Fortin说：“目前有越来越多的人发出质疑，并且要求（政府）更加透明”。
 
-媒体还透露他最近见了他的母亲伊丽莎白女王。一位王室消息人士周四表示，这位 95 岁的君主没有出现任何症状，健康情况在监视中。
+在（魁北克省的反对派）针对这些威胁发表评论之后，省长勒戈Legault指责PLQ（魁北克自由党）和PQ（魁北克党）纵容了这些威胁。
 
-73 岁的查尔斯原定参加在英国西南部小镇温彻斯特举行的活动，以纪念他的母亲伊丽莎白女王登基 70 周年，他的办公室克拉伦斯宫表示，他对不能参加“深感失望 ”。
+#### 团结党领袖，加布里埃尔·纳多-杜布瓦
 
-“今天早上，威尔士亲王的 COVID-19 检测呈阳性，现在正在自我隔离”，他办公室在 Twitter 上宣布。查尔斯的妻子卡米拉周四在伦敦检测结果为阴性。
+团结党领袖加布里埃尔·纳多-杜布瓦Gabriel Nadeau-Dubois，认为，周末来到魁北克省的示威者表达的暴力思想标志着当前局势的严重性。他对凯文·比格·格雷尼尔Kevin Big Grenier 的（暴力思想）言论表示担忧，并表示必须认真对待这些言论。
 
-与此同时，英国君主制在加拿大的代表，总督玛丽西蒙在推特上的一份声明中说，她周三早上的检测结果呈阳性，并且出现了轻微的症状。
+#### 魁北克党保罗·圣皮埃尔·普拉蒙东
 
-74 岁的西蒙说，她正在自我隔离并和休息。
+魁北克党保罗·圣皮埃尔·普拉蒙东Paul St-Pierre Plamondon 也谴责了抗议者的言论。他说，“我们必须认真对待这种暴力言论”，并认为由于政府在危机期间缺乏透明度，社会气氛已经恶化。
 
-周三，查尔斯王子出席了英国亚洲信托基金会的招待会，照片显示他与包括英国财政部长 Rishi Sunak 和内政部长 Priti Patel 在内的其他客人聊天。
+#### 魁北克保守党领袖埃里克·杜海姆
 
-财政部长的一位发言人说，这位部长周四的新冠病毒检测呈阴性。
+魁北克保守党领袖埃里克·杜海姆（Éric Duhaime）说：“如果不再有疫苗护照，也不再有紧急卫生（措施），我认为这次示威将会平息”，他还谴责了暴力威胁。
 
-查尔斯在 12 月表示，他和卡米拉都接受了 COVID-19 疫苗加强注射，此前他在 2020 年 3 月感染过该病毒，当时他说他“幸运”，只出现了轻微症状。
+另外，在2022年02月09日文贵大直播中，七哥讲到：
 
-他的儿子威廉王子也于 2020 年在父亲染病后，立刻感染了 COVID-19。
+“…被共产党及完全失败的人控制着，小土豆完全是痴心的疯子。共产党希望加拿大和美国越乱越好，但这正不是我们希望发生的。”
 
-原文链接：[Queen Elizabeth recently met with Prince Charles who is positive for COVID-19 again](https://nationalpost.com/news/world/uks-prince-charles-tests-positive-for-covid-19-for-a-second-time-5)
+我们谴责并反对暴力示威，我们相信魁北克省乃至加拿大的公共卫生行政措施很快会发生变化。
+
+**参考资料**：
+
+1. [Manifestants prêts à prendre les armes: Legault critique des oppositions](https://www.tvanouvelles.ca/2022/02/10/manifestants-prets-a-prendre-les-armes-legault-critique-des-oppositions)
+
 
 编辑：LILY
-发布：肥鯮
+发布：肥鯮#5754
 
 更多资讯请关注：
 [温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
