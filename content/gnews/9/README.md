@@ -2,23 +2,38 @@
 ---
 
 
-## 中国在世界上不断上升的金融影响力
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1990077/)
+## 北京冬奥会将促进全球自动灭共
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1990194/)
 
-投稿：小湫
-![](https://assets.gnews.org/wp-content/uploads/2022/02/怕.jpg)图片来自网络
-胡佛研究所研究员、加州候选人Lanhee Chen周四接受福克斯新闻采访时说，中国共产党积极寻求让人民币取代美元,同时利用债务违约接管其他国家的基础设施,特别是在南美和非洲。
+作者：香草山农场 – 晓仙女
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月9日，郭文贵先生在大直播中再次谈及了有关中共北京冬奥会的话题。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-170.jpg)
+郭先生表示，中共官方此前高调宣传称，此次将有137个国家参与冬奥会，但实际上只有97个国家真正到场。其中，原先允诺出席的沙特王子并未现身，同样缺席的还有土耳其与塞浦路斯等国家的外交人员。
 
-在“[Tucker Carlson Tonight](https://www.foxnews.com/category/media/fox-news-flash)”节目中，主持人塔克·卡尔森向Lanhee Chen讲述了华盛顿的两党如何通过恶意通货膨胀帮助美元贬值，以及阿根廷如何成为最新对中国的“一带一路”倡议感兴趣的国家。已经有19个加勒比和南美国家加入中国的“一带一路”倡议。
+郭先生还提到，为了营造美中关系回暖的假象，中共重新开放了美国驻沈阳大使馆，并与美国签约购买其价值千亿美元的商品——美国驻沈阳大使在这一趟旅程中直接赚取中国人5000亿美元的血汗钱。
 
-Lanhee Chen说，中国的目标是用人民币取代美元，成为世界储备货币。 他们之所以能够这样做，主要是因为在美国政府做出了一系列的政策决定，这些决定非常有效的削弱了美元的力量，削弱了我们在世界各地施加影响的能力。你提到的中国政府的“一带一路”政策，我认为这是我们面临的最大挑战， 从本质上说，中国政府的方式渗入一些国家，以项目融资为名，不是用股权，而是用债务——他们本质上把一些国家推入了债务陷阱。
+郭先生也补充道，至于中俄两方则是争分夺秒地抢占自己的利益。双方早在八年前就达成交易，习近平更是利诱普京参加此次冬奥的开幕式。然而，普京在团队内多人染疫后怒携1000多亿人民币迅速离开。
 
-Lanhee Chen说提到了东南亚的老挝，中国控制了那里的电网，理由那里的政府无法偿还北京的贷款。Lanhee Chen还说，在世界各地都能看到这种情况，拜登和其他美国政客没有意识到这一点，但却不断加剧问题。  当拜登总统和民主党人去年为经济注入6万亿美元的财政刺激时，是以严重的通货膨胀而告终。 不幸的是，这就是我们所看到的。 我们政府失败的政策正在削弱美国人的购买力。很不幸，我们面临的很多挑战，是自己造成的，不知道我们该如何走出困境，除非我们对美国的经济政策进行大规模的调整。
+郭先生继续爆料称，普京回俄后立即回见了马克龙，二者商议了有关天然气管道建设和购买的事宜。至此，欧盟已经完全意识到让俄罗斯靠近中共是最大的错误。同时，普京也认为俄罗斯理应回归欧洲。
 
-信息来源：
+郭先生最后明确称，普京必将卖掉中共，全球就此启动自动灭共进程。
 
-[Biden, US officials ‘not awake’ to China’s rising financial influence in the world: Lanhee Chen](https://www.foxnews.com/media/biden-us-officials-china-rising-financial-influence)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
+参考链接：[2022年2月9日 文贵大直播：UBS正式立案 打响沼泽地的第一仗；习普政治困局；中美俄三角斗；药厂政策调整；药厂政府互掐；何为全球货币；七哥个人生活](https://gtv.org/video/id=6203b7b13621aa7415d80e9e)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+
+总编: 文特
+编辑： 静言 
+校正/发稿：Fei797
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
