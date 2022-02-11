@@ -2,31 +2,34 @@
 ---
 
 
-## 七哥谈水虎年对每个人的挑战（2022-02-06摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1991230/)
+## Covid护照正在失势：只有四个自治洲需要它，安达卢西亚可能在几天内将取消
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1991314/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+编译：七龙珠
 
-来源：郭先生2022-02-06直播09：20：24摘录
+![](https://assets.gnews.org/wp-content/uploads/2022/02/61a8e43c80ba7.jpeg)图片来源：Clara Pinar（20minutos.es）
 
-最后一条看到就是加拿大的“土豆”、大卡车事件等，还有全世界的农民抗议事件，这七哥在一年前、16个月以前都说过。疫苗次生灾难、疫苗造成的政治危机、军事危机、技术危机、贸易危机、经济金融危机会席卷全球，而且是从今年的5月份开始。记住：七哥是从2020年初、1、2月份就说过！我不是神仙我不能预测，就是我知道共产党的计划和计划的具体的细节，和基本的掌握的情报，这是我得出的结果。所以说战友们，大家看到美国经济这样的时候，你们要想一想，我们未来到底该怎么面对这个2022年水虎年，这个郝海东兄弟启动的水年，今年就是水虎年，上来就流水，水虎年对每个人的挑战。你问问小新她在没有得病毒之前和得了病毒以后的感受是啥样的。
+进入酒吧、餐馆和其他公共场所需要出示COVID健康护照的情况越来越少。最近取消此命令的自治州是巴利阿里群岛，本周四将原计划月底取消的时间提前到了本周六。纳瓦拉自治州周三宣布将取消所有的限制，同时也取消对欧盟证书的要求，而拉里奥哈对进入医院和保健中心的要求也进行了削减。只有瓦伦西亚社区、加利西亚、穆尔西亚和安达卢西亚四个自治州继续要求这样做，安达卢西亚也可能最早在下周停止对健康护着的要求。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+全国各地的感染率正在下降，随之而来的是使公共生活正常化，在某些情况下涉及使用COVID健康护照。如果说在去年圣诞节之前，在马德里等地没有健康护照的人不能进入公共场所，那么现在情况发生了变化，按此要求进入的人越来越少。
 
-**关注我们**
+圣诞节后，首先取消Covid护照的是阿斯图里亚斯和坎塔布里亚，其公共卫生局局长Reinhard Wallman承认，由于Omicron变体的高传染性，它不再有意义了，即使有接种疫苗的人也如此。
 
-Discord 账号
+1月底，阿拉贡高等法院也拒绝了哈维尔-兰班政府提出的将其用途扩大到除夜生活之外的餐馆、电影院和健身房的要求。另一方面，从上周末开始，阿拉贡在酒店和餐饮业也不再需要它，使用范围只减少到医院门口，拉里奥哈也将如此。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+同样在上周末，加泰罗尼亚地区的酒店和餐饮业在放宽了包括重新开放夜生活在内的措施后，也免除了向顾客索要Covid护照的要求。
 
-Gettr 账号
+像多米诺骨牌一样，另外两个在限制方面特别严格的社区，即巴斯克地区和加那利群岛，也在上周末取消了护照要求。
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+**参考资料：**[20minutos][El pasaporte Covid pierde fuerza: solo cuatro autonomías lo exigen y Andalucía podría eliminarlo en cuestión de días](https://www.20minutos.es/noticia/4954335/0/pasaporte-covid-pierde-fuerza-cuatro-comunidades-exigen-andalucia-podria-eliminarlo-en-dias/?autoref=true)
+
+* * *
+
+*审核：Aries的星
+校对：小东
+发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-3.jpeg)
 
  
 

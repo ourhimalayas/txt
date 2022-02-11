@@ -2,31 +2,24 @@
 ---
 
 
-## 七哥谈“什么事情都正反两面”（2022-02-06摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1991315/)
+## 冬奧會金牌得主谷愛淩避而不談其美國身份
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1991411/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+加拿大溫哥華楊帆農場楓葉快訊
 
-来源：郭先生2022-02-06直播09：30：00摘录
+采編：風雲小哥        翻譯編輯：文所未聞
+![2022 Beijing Olympics - Freestyle Skiing - Women's Freeski Big Air - Final - Run 3 - Big Air Shougang, Beijing, China - February 8, 2022. Gu Ailing Eileen of China reacts after winning gold. REUTERS/Fabrizio Bensch](https://cloudfront-us-east-2.images.arcpublishing.com/reuters/XJFCGGOM45OIRLDK3ZRQXSKH2E.jpg)
+據《路透社》2月8日報道，代表中共國參加本次冬奧會自由式跳臺滑雪並於當天獲得金牌的運動員谷愛淩，在面對各界質疑其真實國籍時含糊其辭，避而不談。
 
-特别我们烧掉的这个绝密文件，我现在往回看，我一直想如果那个文件美国早点儿拿到，是吧，就是救好多好多人。你是基于美国政府相信你这个文件，你是基于这个文件它真的就会采取行动，很多条件下，亨利兄弟你知道这个情况。但是我们经过这些年在美国五年来看待，就像单伟建这样的人，就是Isobel Yeung这样的人，吴征这样的人在美国还能最后把川普总统能搞到SPAC公司这个情况，美国是资本主义的国家。还有我跟FBI打这么多年交道，还有跟CIA也给他们谈过那么多次，给美国各种议员这么多文件，可以告诉大家，即使你那文件不烧掉给了他们，起到作用几乎也不大，很悲哀！美国这个国家有很多好处，它的好处、不可能只有好处，什么事情都正反两面，它的好处之外的另一面就是官僚，它这个官僚就让你很无奈，是吧！就是你什么事儿一说，这个案子要两年，这个案子三年。
+報道稱，由於中共當局不允許雙重國籍，因此這位出生在美國舊金山的運動員在其15歲時就放棄了美國國籍而成為中共國公民。然而，在當天獲得金牌後的新聞發布會上，谷愛淩卻拒絕回答記者提出的「她是否仍然是美國公民」的問題。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+據悉，谷愛淩在獲得金牌之後，迅速成為了中共國家喻戶曉的新星，她同時也從成為眾多國內品牌代言人中獲得巨大名利。 對此，文貴先生在其2月9日的蓋特中指出，谷愛淩母女為貪圖眼前蠅頭小利，不惜賣身為奴，助共為虐，並為該邪惡政權蹂躪全世界的罪行塗脂抹粉。其多行不義之舉已成為將來全球排華危機的誘因之一，必將引火自焚，悔之莫及！
 
-**关注我们**
+原文鏈接： [https://www.reuters.com/lifestyle/sports/freestyle-skiing-golden-girl-gu-sidesteps-citizenship-question-2022-02-08/](https://www.reuters.com/lifestyle/sports/freestyle-skiing-golden-girl-gu-sidesteps-citizenship-question-2022-02-08/)
 
-Discord 账号
+校對編輯：硫酸羥氯喹64
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+發文：青青
 
  
 

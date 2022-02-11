@@ -2,38 +2,38 @@
 ---
 
 
-## 还原中共国内的三年饥荒
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1990761/)
+## 有声|被中共篡改的历史：朝鲜战争二三事
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1990819/)
 
-作者：纽约香草山农场-马克文、朱莉叶
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-中共夺取中国政权的十年后，1959年至1961年，中国境内发生了迄今为止人类历史上最大的饥荒灾难，也就是后来被中共定义的“三年大饥荒”，当时造成的非正常死亡人数至少达到了5000万人。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+中国共产党的历史应该被称为伪历史。中共对于自己的不光彩历史，一般都极力掩盖，利用独裁统治，掌控宣传工具，对老百姓进行洗脑教育。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide13-1.jpeg)
+中共把自己在朝鲜战争中的角色说成是“抗美援朝” “保家卫国”。但中1951年2月1日，联合国大会以44票赞成、7票反对和9票弃权，通过了一项名为“中华人民共和国中央人民政府干涉朝鲜”的提案，在该提案中，中共的志愿军被定义为入朝的外国军队中唯一的侵略者。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-23.jpg)
+战后几十年，中共一直对老百姓隐瞒志愿军的伤亡数字，只是极力宣传所谓的几位战斗英雄。很长一段时间，大陆百姓一直认为中共志愿军在朝鲜战场上几乎没有伤亡。直到2010年，一些历史资料才公布：中朝军队死伤超过100万人，其中志愿军阵亡超过18万人。
 
-虽然中共通过篡改历史，强行将这一惨剧归咎于自然灾害，但据国际学者分析称，此次大饥荒实际上是人为因素造成的大劫难。资料显示，以毛泽东为首的中共统治集团违反人类社会发展的规律，强行推进所谓的工业化大跃进。在大跃进期间，中共又在农村建立人民公社，强行推广公共食堂，剥夺农民拥有食物的权力。彼时，由于中共上层强行征收公粮，这导致农民不仅没有口粮，甚至连种子粮和饲料也要全部上交。
+中共选择入朝作战的志愿军队伍中，大多数都是前国民党的投降部队，中共借战争机会消灭了大量未来很能出现的异己。战争结束后，被俘虏的志愿军数万人选择去了台湾，受到台湾当局欢迎，在生活上也得到了很好的安排。而回国的被俘志愿军则受到了严格审查，很多人被打成叛徒定罪。之后几十年，从来没有在新闻媒体上再看见这些志愿军俘虏。
 
-在饥荒蔓延之际，墙内的老百姓只能依靠树皮和草根果腹，而中共干部却利用掌管食堂仓库的特权大肆贪污腐败。最严重的时期，中共国内的许多地方甚至出现易子而食和人吃人的惨剧。
+文字版原文：[被中共篡改的历史：朝鲜战争二三事](https://gnews.org/zh-hans/1981449/)
 
-然而，由于中共对墙内民众的精神洗脑，大多数的百姓至今仍然无法得知这一灾害的真实原因。
-
-参考链接：
-1. [中国三年大饥荒的触发及加剧之原因](http://ww2.usc.cuhk.edu.hk/PaperCollection/Details.aspx?id=7030)
-2. [三年困难时期](https://zh.wikipedia.org/wiki/三年困难时期)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
-
-总编：Jack Li文阳 
-编辑：静言
-校正/发稿：谐趣园
-
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

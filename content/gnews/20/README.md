@@ -2,48 +2,31 @@
 ---
 
 
-## 悲剧：6岁的Milo Edberg在接种辉瑞COVID-19疫苗后引发心肌炎
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1991233/)
+## 七哥谈“什么事情都正反两面”（2022-02-06摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1991315/)
 
-**评论：***医生不会承认伤害是由疫苗造成的，往自已身体中注射的任何东西，必须自己说了算，坚决不打疫苗，坚持住，加油。*
+文编：Hima
+听写：叮叮
+视频：七哥
 
-据《thecovidworld》2022年2月7日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1142-e1644600571280.png)6岁的米洛-埃德伯格在注射辉瑞公司COVID-19疫苗后严重受伤。
-图片来源：thecovidworld
-据阿尔法新闻报道，明尼苏达州一名六岁男孩在接种辉瑞公司COVID-19疫苗后遭受了危及生命的伤害。Milo Edberg（米洛-埃德伯格）在12月初注射COVID疫苗前还很机灵，走路灵活，而现在被诊断患有心肌炎，只能躺在医院的病床上。
+来源：郭先生2022-02-06直播09：30：00摘录
 
-他被插管一个半月，近两个月后仍在医院治疗。米洛不能自己坐起来，甚至不能完成吞咽动作。
+特别我们烧掉的这个绝密文件，我现在往回看，我一直想如果那个文件美国早点儿拿到，是吧，就是救好多好多人。你是基于美国政府相信你这个文件，你是基于这个文件它真的就会采取行动，很多条件下，亨利兄弟你知道这个情况。但是我们经过这些年在美国五年来看待，就像单伟建这样的人，就是Isobel Yeung这样的人，吴征这样的人在美国还能最后把川普总统能搞到SPAC公司这个情况，美国是资本主义的国家。还有我跟FBI打这么多年交道，还有跟CIA也给他们谈过那么多次，给美国各种议员这么多文件，可以告诉大家，即使你那文件不烧掉给了他们，起到作用几乎也不大，很悲哀！美国这个国家有很多好处，它的好处、不可能只有好处，什么事情都正反两面，它的好处之外的另一面就是官僚，它这个官僚就让你很无奈，是吧！就是你什么事儿一说，这个案子要两年，这个案子三年。
 
-他的母亲卡丽说：“他本来非常好，然后不正常了。”
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-米洛的母亲说，她不想让儿子接种疫苗，因为自两年前大流行病开始以来，只有三名10岁以下的明尼苏达儿童死于这种病毒。
+**关注我们**
 
-最终，卡丽在被告知该疫苗“安全无害”后，遵守了医生的建议。
+Discord 账号
 
-不幸的是，你不可能回到过去。我支持疫苗，但这一次却很艰难。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-自12月中旬以来，米洛一直在M Health Fairview的Masonic儿童医院住院治疗。
+Gettr 账号
 
-“米洛在医院得到了很好的照顾。但奇怪的是，他们不提疫苗的事。他们只是把它一笔带过。”
-
-卡丽在1月底提交自己的VAERS报告。据报道，米洛接受了传染病专家10-15分钟的访问，他们说将在他住院初期向CDC和辉瑞公司提交一份报告。然而，此后她没有听到任何有关这方面的消息。
-
-医生们甚至还不能提供一个时间表，评估米洛何时可能回家，或预测他是否能够恢复生活质量。
-
-我们将继续关注这个案例。
-
-文章来源: [https://thecovidworld.com/6-year-old-milo-edberg-develops-myocarditis-and-becomes-severely-injured-after-receiving-pfizer-covid-19-vaccine/](https://thecovidworld.com/6-year-old-milo-edberg-develops-myocarditis-and-becomes-severely-injured-after-receiving-pfizer-covid-19-vaccine/)
-
-翻译：洛杉矶盘古农场 –Mike Li
-校对：洛杉矶盘古农场 –轰炸机
-评论：洛杉矶盘古农场 –轰炸机
-编辑：洛杉矶盘古农场 –WenXiong
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

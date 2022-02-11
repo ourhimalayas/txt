@@ -2,20 +2,24 @@
 ---
 
 
-## 中共利用冬奥会窃取运动员DNA
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/1991198/)
+## 冬奥会金牌得主谷爱凌避而不谈其美国身份
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1991298/)
 
-加拿大温哥华扬帆农场    平民正道
+加拿大温哥华杨帆农场枫叶快讯
 
-据2月6日GTV文贵大直播消息，中共利用本次冬奥会成功窃取了世界各地运动员和精英人种的DNA，试图利用“种族基因”培育出该邪恶政权所谓的“更优秀”人种。
+采编：风云小哥        翻译编辑：文所未闻
+![2022 Beijing Olympics - Freestyle Skiing - Women's Freeski Big Air - Final - Run 3 - Big Air Shougang, Beijing, China - February 8, 2022. Gu Ailing Eileen of China reacts after winning gold. REUTERS/Fabrizio Bensch](https://cloudfront-us-east-2.images.arcpublishing.com/reuters/XJFCGGOM45OIRLDK3ZRQXSKH2E.jpg)图片来源：Reuters
+据《路透社》2月8日报道，代表中共国参加本次冬奥会自由式跳台滑雪并于当天获得金牌的运动员谷爱凌，在面对各界质疑其真实国籍时含糊其辞，避而不谈。
 
-文贵先生曾对此表示，他此前的北朝鲜之行验证了“所有独裁政权都是种族主义，中共不仅实施阶级统治，而且还崇拜优秀人种基因，并屡屡犯下与希特勒当年残害犹太人一样的种族灭绝罪行。
+报道称，由于中共当局不允许双重国籍，因此这位出生在美国旧金山的运动员在其15岁时就放弃了美国国籍而成为中共国公民。然而，在当天获得金牌后的新闻发布会上，谷爱凌却拒绝回答记者提出的“她是否仍然是美国公民”的问题。
 
-此外，消息还透露，前中共政治局高官李瑞环与张百发在北京未申办2008奥运会之前就与文贵先生探讨统一收集各国运动健将与世界精英DNA的必要性。而中共收集和利用这些盗取基因的邪恶勾当只是该政权反人类罪行的冰山一角。
+据悉，谷爱凌在获得金牌之后，迅速成为了中共国家喻户晓的新星，她同时也从成为众多国内品牌代言人中获得巨大名利。 对此，文贵先生在其2月9日的盖特中指出，谷爱凌母女为贪图眼前蝇头小利，不惜卖身为奴，助共为虐，并为该邪恶政权蹂躏全世界的罪行涂脂抹粉。其多行不义之举已成为将来全球排华危机的诱因之一，必将引火自焚，悔之莫及！
 
-* * *
+原文链接： [https://www.reuters.com/lifestyle/sports/freestyle-skiing-golden-girl-gu-sidesteps-citizenship-question-2022-02-08/](https://www.reuters.com/lifestyle/sports/freestyle-skiing-golden-girl-gu-sidesteps-citizenship-question-2022-02-08/)
 
-编辑： 平民正道    发布：平民正道
+校对编辑：硫酸羟氯喹64
+
+发文：青青
 
  
 
