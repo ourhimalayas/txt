@@ -2,35 +2,24 @@
 ---
 
 
-## 加拿大各省正在取消限制和疫苗护照
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1990448/)
+## 郭先生示警排华形势日益严峻
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1990550/)
 
-作者：加拿大温哥华扬帆农场 – Spirit
+作者：纽约香草山教育部 – Noemi
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-加拿大保守党议员皮埃尔-波里耶夫（Pierre Poilievre) 于2月8日发推称“自由正在获胜”！
+2月9日，郭文贵先生在大直播中指出，全球目前排华的整体形势日益严峻，而新中国联邦还没有把握能从根本上化解此危机。因此，在保障全球华人未来的安全问题上，更多同胞需要觉醒并努力。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/4-17.jpg)
+郭先生分析称，针对全球排华危机，有两点尤为值得注意：其一，与彻底消灭共产党相比，如何能让被洗脑的中国人重新获得辩是非、识真假的能力，将是新中国联邦所面临的一个更加艰巨的任务。其二，越来越多的国家正在从中共病毒及疫苗的超限战中醒来，他们会逐渐将怒气转移到当地华人身上——这或将导致东欧、俄罗斯、东南亚及非洲等地未来出现超出想象的排华运动。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-45.png)
+郭先生强调，中国人只有与中国共产党彻底区分开来才能避免成为中共替罪羊的命运。为此，同胞们只有从思想上彻底铲除中共的余毒，才能真正地获得自由、尊重和重生。
 
-推文写道“各省正在取消限制和疫苗护照，自由党议员莱特邦德（Joel Lightbound） 谴责了特鲁多的恶毒和控制暴政“。
-
-“请在我的请愿书上签字，以结束疫苗强制、疫苗护照和封锁限制限制“。
-
-随后他又发出推文和视频说：“ 阿尔伯塔省于今晚午夜取消疫苗护照！我们正在胜利的路上，继续加油”！
-
-皮埃尔-波里耶夫是加拿大政治家，自 2004 年以来一直担任国会议员。 作为保守党成员，他目前代表渥太华地区的卡尔顿选区。
-
-他于2月5 日宣布竞选加拿大总理。
-
-参考链接：
-
-- [BREAKING: Freedom is winning.](https://twitter.com/PierrePoilievre/status/1491179433033879553)
-- [BREAKING: Vaccine passports gone at midnight in Alberta.](https://twitter.com/PierrePoilievre/status/1491241931103481857)
-
+参考链接：[2022年2月9日 文贵大直播：UBS正式立案 打响沼泽地的第一仗；习普政治困局；中美俄三角斗；药厂政策调整；药厂政府互掐；何为全球货币；七哥个人生活](https://gtv.org/video/id=6203b7b13621aa7415d80e9e)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-编辑：zhong
-校对/发稿：海阔天空1
+总编： 文特
+编辑：静言
+校正/发稿：Fei797
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

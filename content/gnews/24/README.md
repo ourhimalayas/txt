@@ -2,38 +2,31 @@
 ---
 
 
-## 还原中共国内的三年饥荒
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1990761/)
+## CCP病毒疫苗加强针在澳大利亚或将成为“标配”
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1990891/)
 
-作者：纽约香草山农场-马克文、朱莉叶
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-中共夺取中国政权的十年后，1959年至1961年，中国境内发生了迄今为止人类历史上最大的饥荒灾难，也就是后来被中共定义的“三年大饥荒”，当时造成的非正常死亡人数至少达到了5000万人。
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/02/010901.jpg)网络图片
+根据澳大利亚疫苗专家的最新建议，16 岁及以上的澳大利亚人在接种第二剂CCP病毒疫苗六个月后若未接种加强针，将被视为“逾期”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide13-1.jpeg)
+联邦政府表示，这一来自澳大利亚免疫咨询小组的提案目前已被接受，并提交给国家内阁。不过这一变化将不适用于那些抵达边境的国际入境者。
 
-虽然中共通过篡改历史，强行将这一惨剧归咎于自然灾害，但据国际学者分析称，此次大饥荒实际上是人为因素造成的大劫难。资料显示，以毛泽东为首的中共统治集团违反人类社会发展的规律，强行推进所谓的工业化大跃进。在大跃进期间，中共又在农村建立人民公社，强行推广公共食堂，剥夺农民拥有食物的权力。彼时，由于中共上层强行征收公粮，这导致农民不仅没有口粮，甚至连种子粮和饲料也要全部上交。
+联邦卫生部长格雷格·亨特（Greg Hunt）表示，根据澳大利亚免疫技术咨询小组（ATAGI）的新建议，澳大利亚人在接受了针对其年龄组的所有推荐疫苗剂量后，才会被认为是“及时接种者”。因此对于16岁以上人群来讲，完成第三针加强注射便成为了基本的“标配”。
 
-在饥荒蔓延之际，墙内的老百姓只能依靠树皮和草根果腹，而中共干部却利用掌管食堂仓库的特权大肆贪污腐败。最严重的时期，中共国内的许多地方甚至出现易子而食和人吃人的惨剧。
+这一建议更为狡诈的地方在于，如果以后澳大利亚开始进行第四针甚至第五针CCP病毒疫苗的推广，那么注射三针的居民如果不继续往自己身上扎眼，那么他们的接种状态也会“过期”。
 
-然而，由于中共对墙内民众的精神洗脑，大多数的百姓至今仍然无法得知这一灾害的真实原因。
+就目前情况而言，这一建议的采纳意味着16岁以上人群需要在完成第二剂CCP病毒疫苗注射三个月后接种加强针。接种疫苗的人群未来也将进一步被划分成两个等级，即“逾期者”和“及时接种者”。
 
-参考链接：
-1. [中国三年大饥荒的触发及加剧之原因](http://ww2.usc.cuhk.edu.hk/PaperCollection/Details.aspx?id=7030)
-2. [三年困难时期](https://zh.wikipedia.org/wiki/三年困难时期)
+不过这一政策目前仅仅针对澳大利亚境内居民，任何国际旅行者在接种两剂CCP病毒疫苗后方可入境。但部分州目前或许正在谋求将要求提升至三针。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+目前澳大利亚16岁以上人群大约有93.9%接种了CCP病毒疫苗，而接种CCP病毒疫苗加强针的比例已经达到了46.3%。
 
-总编：Jack Li文阳 
-编辑：静言
-校正/发稿：谐趣园
+新闻参考链接：[Australians need COVID-19 booster after six months or considered ‘overdue’ by ATAGI](https://www.9news.com.au/national/coronavirus-australia-updates-debate-over-triple-vaccine-mandate-for-tourists/fc5a4840-8953-420b-b3c8-2fa6bec5b9fa)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
