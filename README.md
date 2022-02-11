@@ -15,101 +15,101 @@
 
 ---
 
-### [七哥说“我绝对相信我们人世间是有鬼魂的” （2022-02-06摘录）](/content/gnews/1/README.md)
+### [七哥说“我们一定会赢，会赢得无限的精彩”（2022-02-06摘录）](/content/gnews/1/README.md)
  ` MG FARM`
 
-### [七哥说“我今天给我自己爆个料”（2022-02-06摘录）](/content/gnews/2/README.md)
+### [七哥谈住在圆山饭店（2022-02-06摘录）](/content/gnews/2/README.md)
  ` MG FARM`
 
-### [七哥谈G-教育（2022-02-06摘录）](/content/gnews/3/README.md)
+### [DC大中华时事：中共希望美方尽快取消对华加征关税和制裁](/content/gnews/3/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [七哥说“我绝对相信我们人世间是有鬼魂的” （2022-02-06摘录）](/content/gnews/4/README.md)
  ` MG FARM`
 
-### [五月花简报（02/11/2022）](/content/gnews/4/README.md)
+### [七哥说“我今天给我自己爆个料”（2022-02-06摘录）](/content/gnews/5/README.md)
+ ` MG FARM`
+
+### [七哥谈G-教育（2022-02-06摘录）](/content/gnews/6/README.md)
+ ` MG FARM`
+
+### [五月花简报（02/11/2022）](/content/gnews/7/README.md)
  ` mayflowertranslate`
 
-### [布林肯：中共想转移注意力，没门！](/content/gnews/5/README.md)
+### [布林肯：中共想转移注意力，没门！](/content/gnews/8/README.md)
  ` 澳喜特战旅Gnews`
 
-### [七哥谈我们就是要把“币”牌打好（2022-02-06摘录）](/content/gnews/6/README.md)
+### [七哥谈我们就是要把“币”牌打好（2022-02-06摘录）](/content/gnews/9/README.md)
  ` MG FARM`
 
-### [如何看待专制政权对中国文化的污染？](/content/gnews/7/README.md)
+### [如何看待专制政权对中国文化的污染？](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥谈“排华是我现在最最担心”（2022-02-06摘录）](/content/gnews/8/README.md)
+### [七哥谈“排华是我现在最最担心”（2022-02-06摘录）](/content/gnews/11/README.md)
  ` MG FARM`
 
-### [NFSC新闻、G|TV新闻访谈简报|2022年2月11日早](/content/gnews/9/README.md)
+### [NFSC新闻、G|TV新闻访谈简报|2022年2月11日早](/content/gnews/12/README.md)
  ` 纽约香草山MOS01`
 
-### [冬奧會金牌得主谷愛淩避而不談其美國身份](/content/gnews/10/README.md)
+### [加拿大保守党首提加密货币的法案](/content/gnews/13/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [意大利批准开打第四剂新冠疫苗](/content/gnews/11/README.md)
+### [冬奧會金牌得主谷愛淩避而不談其美國身份](/content/gnews/14/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [意大利批准开打第四剂新冠疫苗](/content/gnews/15/README.md)
  ` xiaobaige`
 
-### [七哥谈“这是一种无知”（2022-02-06摘录）](/content/gnews/12/README.md)
+### [七哥谈“这是一种无知”（2022-02-06摘录）](/content/gnews/16/README.md)
  ` MG FARM`
 
-### [对沈凌先生的文章《美国政府借鸡生蛋？中国怎么办？》之想法三](/content/gnews/13/README.md)
+### [对沈凌先生的文章《美国政府借鸡生蛋？中国怎么办？》之想法三](/content/gnews/17/README.md)
  ` 澳喜特战旅Gnews`
 
-### [冬奥会画面显示中共国运动员抛出场地标记物绊倒加拿大运动员](/content/gnews/14/README.md)
+### [冬奥会画面显示中共国运动员抛出场地标记物绊倒加拿大运动员](/content/gnews/18/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [七哥谈灭共的事业（2022-02-06摘录）](/content/gnews/15/README.md)
+### [七哥谈灭共的事业（2022-02-06摘录）](/content/gnews/19/README.md)
  ` MG FARM`
 
-### [七哥说“诋毁我的信用，诋毁我的荣誉”（2022-02-06摘录）](/content/gnews/16/README.md)
+### [七哥说“诋毁我的信用，诋毁我的荣誉”（2022-02-06摘录）](/content/gnews/20/README.md)
  ` MG FARM`
 
-### [文贵爆料 2.11：美司法史上最黑暗的一幕——PAG案](/content/gnews/17/README.md)
+### [文贵爆料 2.11：美司法史上最黑暗的一幕——PAG案](/content/gnews/21/README.md)
  ` 秘密翻译组-原创组`
 
-### [2022/02/10 墙内世界](/content/gnews/18/README.md)
+### [2022/02/10 墙内世界](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [七哥说“很多事情它要发生了，一点儿你也挡不住”（2022-02-06摘录）](/content/gnews/19/README.md)
- ` MG FARM`
-
-### [七哥谈“什么事情都正反两面”（2022-02-06摘录）](/content/gnews/20/README.md)
- ` MG FARM`
-
-### [Covid护照正在失势：只有四个自治洲需要它，安达卢西亚可能在几天内将取消](/content/gnews/21/README.md)
+### [Covid护照正在失势：只有四个自治洲需要它，安达卢西亚可能在几天内将取消](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【信仰之声】“容我的百姓去，好侍奉我” — 读出埃及记有感](/content/gnews/22/README.md)
+### [【信仰之声】“容我的百姓去，好侍奉我” — 读出埃及记有感](/content/gnews/24/README.md)
  ` 纽约香草山MOS03`
 
-### [政客施压南非医生不要说Omicron是轻症](/content/gnews/23/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [冬奥会金牌得主谷爱凌避而不谈其美国身份](/content/gnews/24/README.md)
+### [冬奥会金牌得主谷爱凌避而不谈其美国身份](/content/gnews/25/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [西班牙放宽了无法获得疫苗国家的12至17岁未成年人进入西班牙的要求](/content/gnews/25/README.md)
+### [西班牙放宽了无法获得疫苗国家的12至17岁未成年人进入西班牙的要求](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美国指控中共国海能达与摩托罗拉前员工合谋窃取技术](/content/gnews/26/README.md)
+### [美国指控中共国海能达与摩托罗拉前员工合谋窃取技术](/content/gnews/27/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [悲剧：6岁的Milo Edberg在接种辉瑞COVID-19疫苗后引发心肌炎](/content/gnews/27/README.md)
+### [悲剧：6岁的Milo Edberg在接种辉瑞COVID-19疫苗后引发心肌炎](/content/gnews/28/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共利用冬奥会窃取运动员DNA](/content/gnews/28/README.md)
+### [中共利用冬奥会窃取运动员DNA](/content/gnews/29/README.md)
  ` 扬帆枫叶快讯`
 
-### [中共被指控侵犯奥运冰球运动员人权](/content/gnews/29/README.md)
+### [中共被指控侵犯奥运冰球运动员人权](/content/gnews/30/README.md)
  ` 扬帆枫叶快讯`
 
-### [全球供应链危机将灾难性延续](/content/gnews/30/README.md)
+### [全球供应链危机将灾难性延续](/content/gnews/31/README.md)
  ` 扬帆枫叶快讯`
 
-### [加拿大废除使用疫苗护照势不可挡](/content/gnews/31/README.md)
+### [加拿大废除使用疫苗护照势不可挡](/content/gnews/32/README.md)
  ` 扬帆枫叶快讯`
-
-### [[戈壁创投]渗透以色列军工企业 助力中共养肥自家](/content/gnews/32/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 ### [美联储将毫不犹豫地通过加息缩表来遏制通货膨胀（二）](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

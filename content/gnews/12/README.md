@@ -2,31 +2,30 @@
 ---
 
 
-## 七哥谈“这是一种无知”（2022-02-06摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1991390/)
+## NFSC新闻、G|TV新闻访谈简报|2022年2月11日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1991465/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO.jpg)
 
-来源：郭先生2022-02-06直播09：56：14摘录
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-10.png)
+文章仅代表作者本人观点，与Gnews无关
 
-“路大脑袋”他都想把爆料革命窃为己有，都存有如此之歹心，他就没有想到过昨天《真人真事》节目，我们的Eric，Eric“湿男”兄弟，你看看我为啥喜欢这个人。昨天小新和长岛哥的这个《真人真事》节目，我认为是有史以来做的最好的，又一个新的高度。我对这个访问，我就对Eric的表现，我也用三个字啊，小新对他说，你每次都一二三，小新你年龄不大，老师形象，但是一谈到“湿男”的时候，你笑的非常的非常的淫，淫而不荡，非常淫，把我笑的……Eric讲的，我对Eric昨天《真人真事》，我认为最大的高度。Eric，我对他三句评价：第一，Eric本人有故事；第二，此人有水平；第三，你看的Eric所有回答的问题里边说，此人有巨大的潜力。他给爆料革命带来儿子、老婆，周围考政法、那检察官朋友。就他的故事，他的情况，还有七哥坏坏滴，就是这个人他是有这几条的。就一个Eric你能看出来，“路大脑袋”在国内给他舔屁股他都不要的。“蛇妖闫”就是想拿着钱，就想拿着钱说，我给Eric“湿男”你给我炒十个鸡蛋吧，让我爽一把。我嫁一什么不黑不白的人，是不是？结婚了几年了，三次性生活没达到过一次高潮，你给我来潮一把吧，他都不会要的。什么“癌症丽”那就没人要的主，是不是？猪都不会要她。那“九指妖”是更别提了，Eric，给他一个亿都不会要她，给他一亿个币都不会要她。就这些人的狂妄，你能看得出来这是一种无知的结果。这些人竟然打疫苗了。所以说疫苗的事情，你看到我们身边多少人打疫苗。就刚才我跟你们说那个，英国最有钱的家族之一，孩子打疫苗，最宝贝的儿子。我有朋友给他儿子从小，从三岁练孩子，练开Formula One ,现在世界上排20名，我这个朋友的孩子，从小琴棋书画，他的天才至极。那生活中这个帅哥天才，那就真是人间的完美了，有这么有钱的爹，长那么帅，那么棒的妈妈，这么好的物质条件，这么好的教育，本人又那么有才，还那么有道德，最后一个错误的，一针扎下去，结束。你们想过人类，不管你多健身，多锻炼，你曾经多么的保养，吃了多少伟哥，吃了多少海胆丸，李友牌海胆丸，你搞了多少次胡舒立的高潮，送进医院，胡舒立这招儿实在太厉害。李友给我具体描述过，叫什么“开裆18式”、“老汉推车”、什么“水煮豆腐”给李友玩，把李友玩住院去了。这胡舒立不生孩子但是会玩，这家伙什么“山峰海浪”，海狗丸，你吃多少海狗丸，这些事儿你又有多少个胡舒立的本事。多么的淫乱，多么的淫荡，都不如这一针扎下去。文真你想过吗，文真，就人生你做过一件正确的决定，你到这儿来说……大石啊，你就打了一针就结束啦! 你这一针不可能啥作用没有的，一定会有作用的。只要你活着这一阵，要打两针啊就别提了，是吧，三针就更别想了。你要不吃青蒿素，你要不治疗，那你就等着吧。你什么样的财富，什么样的伟大，什么样的思想都跟你没关系啦。
+视频参看：
+[2022.02.11早 《NFSC新闻》](https://gtv.org/video/id=620664a7a1fe5e57a426ce59)
+[2022.02.11早 G|TV《新闻访谈》](https://gtv.org/video/id=62066d61a1fe5e57a426dc0d)
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-**关注我们**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar.png)
 
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

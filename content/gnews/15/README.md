@@ -2,31 +2,20 @@
 ---
 
 
-## 七哥谈灭共的事业（2022-02-06摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1991370/)
+## 意大利批准开打第四剂新冠疫苗
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1991399/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+#### 翻译/ 简评                           意大利达芬奇农场                       小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-11-alle-18.51.22.png)图片来源：eventiavversinews.it
+意大利批准开打第四剂疫苗，虽然在电视中政客和医学界代表直到最近还在安慰意大利人推动他们打第三针，称之为最后一针（但现在已不是最后一针了）。
 
-来源：郭先生2022-02-06直播09:53:36摘录
+那些有免疫抑制问题的可以接受第四针新冠疫苗。这是卫生部在回答皮埃蒙特大区的问题时给予的答复：“特别是那些有免疫缺陷的人， 在接种了第一针和第二针之后的28天，接种了第三针（额外针），他们可以注射第四针 (称之为加强针)。第四针是要在第三针之后至少120天后开始接种。
 
-就像我们灭共的事业，新中国联邦这么大的事情。你见过人类上的干那么大事儿哪有不流血的？哪有不死上百万，千万人，几十万人的？我们一滴血不流。我们一打个官司战友们尖叫，是吧，那你怎么可能呢？我们灭共的心都有，还有什么怕的呢。经历过五年以后，我们对世界上所有的政治形势的运作，把握，参与度，可以说都是没有任何人可以跟我们媲美的。我们一没军队，二没银行，三没有所谓的可以奴役的交税的人民，全靠我们行动和智慧，达到今天的地步。任何有脑子的人，就像是国内的咱体制内的这些战友们，他说：这都是不可思议的，每一天每一步都是不可思议的。就像GTV，共产党里边儿多少人保证啊：肯定消灭了，拿掉了。他没想到GTV越来越强大。盖特上线，国内多少人给那习太阳保证：绝对给它叫上不成，保证给它消灭掉。搞了多少盖特的毛病啊，搞了多少大外宣的文章啊，攻击啊，它做成了吗？没做成。那么我们反过来看这个疫苗的问题到今天的时候，我们开始报疫苗事情，共产党内部就是说，没有人相信爆料革命，没人相信郭文贵的，不用在乎他。在他们一片“没有在乎”当中，我们成了世界上唯一的“一级”，启动了“以苗灭共”的大行动。在“以苗灭共”之前，“路大脑袋”、“蛇妖闫”、“九指妖”都想跟咱抢功，想把七哥踢出爆料这个“船”去。你不觉得荒唐吗？我们是“以毒灭共”，他就说“以毒灭共”是我的专利啊，你不能动，你爆料革命算啥呀。现在你想想这孙子有多赖啊，那“找爹博”还有“癌症丽”，他在哪儿呢现在？如果两三年以后你还能看到“路大脑袋”、“九指妖”还有“蛇妖闫”，还有“癌症丽”，他们都好好的，像一年前的活在世界上，你们每个都尿我一脸，你们每个都尿我一脸。就他触动的法律，造的假和他的狂妄，他必将为此付出法律的代价。而且多个官司咱都已经跟他准备上了。“路大脑袋”他都想把爆料革命窃为己有，都存有如此之歹心。
+简评：第四针要来了， 可能还会有第五针、第六针……这么一直打下去。尽管有大量的数据证明新冠疫苗有很多致命的副作用，而且已经有众多的医生和科学家站出来质疑疫苗的安全性,政府还是催着人们打疫苗，这世界太疯狂了。正如文贵先生所说：“疫苗灾难远远没有开始，疫苗灾难绝对比我说的， 比你们想像的要大得多得多，你们一定要做好准备。”
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+原文链接：[https://www.eventiavversinews.it/via-libera-alla-quarta-dose-in-italia-nota-del-ministero-della-salute-dell11-febbraio-convocati-gli-immunodepressi-120-giorni-dopo-la-terza-dose/](https://www.eventiavversinews.it/via-libera-alla-quarta-dose-in-italia-nota-del-ministero-della-salute-dell11-febbraio-convocati-gli-immunodepressi-120-giorni-dopo-la-terza-dose/)
 
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+编辑、上传：   Xiao     baige
 
  
 
