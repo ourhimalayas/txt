@@ -2,22 +2,30 @@
 ---
 
 
-## 中国在世界上不断上升的金融影响力
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1990077/)
+## 美国宇航局图像显示北京冬季奥运会使用了大量的人工雪
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1990200/)
 
 投稿：小湫
-![](https://assets.gnews.org/wp-content/uploads/2022/02/怕.jpg)图片来自网络
-胡佛研究所研究员、加州候选人Lanhee Chen周四接受福克斯新闻采访时说，中国共产党积极寻求让人民币取代美元,同时利用债务违约接管其他国家的基础设施,特别是在南美和非洲。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/P.png)
+美国国家航空航天局（NASA）发布的新卫星图像揭示了北京2022年冬奥会使用了多少人工雪。
 
-在“[Tucker Carlson Tonight](https://www.foxnews.com/category/media/fox-news-flash)”节目中，主持人塔克·卡尔森向Lanhee Chen讲述了华盛顿的两党如何通过恶意通货膨胀帮助美元贬值，以及阿根廷如何成为最新对中国的“一带一路”倡议感兴趣的国家。已经有19个加勒比和南美国家加入中国的“一带一路”倡议。
+美国国家航空航天局在2月1日的一篇帖子中说，奥运会场馆附近的一个地区正在依靠数百台造雪机为一些滑雪项目制造足够的雪。
 
-Lanhee Chen说，中国的目标是用人民币取代美元，成为世界储备货币。 他们之所以能够这样做，主要是因为在美国政府做出了一系列的政策决定，这些决定非常有效的削弱了美元的力量，削弱了我们在世界各地施加影响的能力。你提到的中国政府的“一带一路”政策，我认为这是我们面临的最大挑战， 从本质上说，中国政府的方式渗入一些国家，以项目融资为名，不是用股权，而是用债务——他们本质上把一些国家推入了债务陷阱。
+2022年1月30日，中国张家口云顶雪公园加拿大队的Mikael Kingsbury在男子自由式滑雪训练
 
-Lanhee Chen说提到了东南亚的老挝，中国控制了那里的电网，理由那里的政府无法偿还北京的贷款。Lanhee Chen还说，在世界各地都能看到这种情况，拜登和其他美国政客没有意识到这一点，但却不断加剧问题。  当拜登总统和民主党人去年为经济注入6万亿美元的财政刺激时，是以严重的通货膨胀而告终。 不幸的是，这就是我们所看到的。 我们政府失败的政策正在削弱美国人的购买力。很不幸，我们面临的很多挑战，是自己造成的，不知道我们该如何走出困境，除非我们对美国的经济政策进行大规模的调整。
+在北京郊区延庆的小海沱山上，高山滑雪、有舵雪橇、骷髅雪橇和无舵雪橇比赛正在进行，但需要数百台的造雪机，因为该地区2月份的平均降雪量仅为1.3英寸。
+
+伦敦拉夫堡大学(Loughborough University)的一份报告称，北京奥运会几乎100%是人工雪，一些运动员声称人工雪对滑雪运动很危险。
+
+人造雪雪花内壁非常坚硬，苏格兰自由式滑雪运动员劳拉·唐纳森说，人造雪对滑雪运动员来说是非常危险的，曾有运动员因此丧命。
+
+该报告指出，北京2022年冬奥会是第一个几乎100%使用人工雪的奥运会，这需要大量的能源来生产。 此外，使用人工雪还有非常大的环境污染问题。  美国化学学会的一份报告指出，人造雪比天然雪融化得慢，会在植物上形成冰层，并对它们造成损害。这些化学成分对地下水位和植物的影响有可能改变当地生态系统的生物多样性。
+
+人权观察(Human Rights Watch)中国问题高级研究员[Yaqiu Wang](https://www.hrw.org/about/people/yaqiu-wang)对福克斯新闻数字频道说，由于国际奥委会设定的条件，许多民主国家对举办冬季奥运会根本不感兴趣。
 
 信息来源：
 
-[Biden, US officials ‘not awake’ to China’s rising financial influence in the world: Lanhee Chen](https://www.foxnews.com/media/biden-us-officials-china-rising-financial-influence)
+[China winter Olympics: NASA imagery shows huge amounts of artificial snow used in Beijing](https://www.foxnews.com/world/china-winter-olympics-nasa-imagery-shows-huge-amounts-of-artificial-snow-used-in-beijing)
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
  
 
