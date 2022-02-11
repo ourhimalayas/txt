@@ -2,13 +2,29 @@
 ---
 
 
-## 徐州八孩母亲事件看中共的邪恶本性
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1986945/)
+## 有声|美议员批评白宫使用中共来源的检测试剂
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1987082/)
 
-文案：北纬农夫
-视频制作：7News节目组
+配音：香草山巡管部– 文凯琳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月1日，据当地媒体揭露，美国政府邮寄给该国公民使用的中共病毒家用检测试剂盒中，有很大一部分是由中共国医疗设备制造商在加州的子公司生产的，其包装盒上明确贴有“中共国制造”的标签。
 
-近日，各大国际媒体相继报道了徐州八孩母亲的生活惨状，世界上和平善良的人们难以置信这样的情况发生在世界第二大经济体的中国。北京正直冬奥会期间，这件人间惨剧被民间和国际媒体竞相报道，但中共官媒除两次充满谎言的官方通报外，一片沉寂。当地警方甚至以坐牢威胁前去探望的志愿者，这一切再一次以铁的事实揭露了共产党以假治国、以黑治国、以贪治国的邪恶本质！
+资料显示，该医疗设备制造商曾经获得过一家中共公司数千万美元的投资，但这一中共公司曾因与中共军方有联系而被美国政府列入黑名单中。据悉，联邦政府已经与该制造商签署了价值超过21亿美元的合约。
+
+文字版原文：[美议员批评白宫使用中共来源的检测试剂](https://gnews.org/zh-hans/1951246/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
 
  
 

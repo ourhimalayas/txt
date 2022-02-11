@@ -2,8 +2,8 @@
 ---
 
 
-## 七哥2件事没信心-国外排华
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1986833/)
+## 我们是天天往上走，共产党是天天往下走
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1986917/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
