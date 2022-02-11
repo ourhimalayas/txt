@@ -2,35 +2,26 @@
 ---
 
 
-## 加拿大各省正在取消限制和疫苗护照
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1990448/)
+## 中共决定逮捕蔡鄂生
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1990597/)
 
-作者：加拿大温哥华扬帆农场 – Spirit
+作者：首尔天池农场-追着曙光跑
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-加拿大保守党议员皮埃尔-波里耶夫（Pierre Poilievre) 于2月8日发推称“自由正在获胜”！
+当地时间2月10，据中共媒体报道，原中共国银行业监督管理委员会党委委员、副主席蔡鄂生涉嫌受贿、利用影响力受贿以及滥用职权，此案已交由中共国家监察委员会调查终结，即将移送至检察机关审查起诉。日前，最高人民检察院对蔡鄂生作出逮捕决定。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-45.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide11-5.jpeg)
 
-推文写道“各省正在取消限制和疫苗护照，自由党议员莱特邦德（Joel Lightbound） 谴责了特鲁多的恶毒和控制暴政“。
+1951年出生的蔡鄂生在中共中央银行系统工作过20余年，官至中共央行行长助理兼上海分行行长。2001年至2005年，蔡鄂生转任中共国有重点金融机构监事会主席，并于2005年12月出任中共国银行业监督管理委员会副主席，直至2013年退休。
 
-“请在我的请愿书上签字，以结束疫苗强制、疫苗护照和封锁限制限制“。
+有分析人士认为，据郭文贵先生在2021年8月1日的爆料，蔡鄂生是王岐山的生死兄弟。为此，蔡鄂生此次被逮捕的通报或可说明中共的内斗已经越来越激烈。
 
-随后他又发出推文和视频说：“ 阿尔伯塔省于今晚午夜取消疫苗护照！我们正在胜利的路上，继续加油”！
+参考链接：[依法决定逮捕！](https://mp.weixin.qq.com/s/KTx79Jymx6AYqaeV5AUhAg)
 
-皮埃尔-波里耶夫是加拿大政治家，自 2004 年以来一直担任国会议员。 作为保守党成员，他目前代表渥太华地区的卡尔顿选区。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-他于2月5 日宣布竞选加拿大总理。
-
-参考链接：
-
-- [BREAKING: Freedom is winning.](https://twitter.com/PierrePoilievre/status/1491179433033879553)
-- [BREAKING: Vaccine passports gone at midnight in Alberta.](https://twitter.com/PierrePoilievre/status/1491241931103481857)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
-
-编辑：zhong
-校对/发稿：海阔天空1
+总编：文特 
+编辑：飞虹
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

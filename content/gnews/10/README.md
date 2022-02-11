@@ -2,8 +2,8 @@
 ---
 
 
-## 中共在冬奥委会上的各种违规、造假
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1991008/)
+## 不当使用公权力
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1991142/)
 
 台灣寶島農場
 
