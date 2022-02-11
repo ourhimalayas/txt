@@ -2,34 +2,25 @@
 ---
 
 
-## 2022年2月10日 晚 新中国联邦新闻、GTV新闻访谈简报
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1987578/)
+## 郭文贵精品视频-冬奥会背后的秘密之习近平不过是普京的一个“托”
+` cindy` [轉載自GNews](https://gnews.org/zh-hans/1987712/)
 
-作者：香草山翻译部
+撰稿：澳喜cindy
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-4.jpg)
+北京冬奥会开幕几天来，前往北京参加奥运会的运动员和几个抱有幻想的政要越来越多的由期望到失望甚至彻底放弃对习近平原有的一点点信心。
+
+滑雪场的雪是假的，说好的合同内容承诺改口了，说好的助兴的人也不见那么多……
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-9.png)
-校对：Stay文苑
 
-编辑：Stay文苑
+仅仅用利益诱惑别人达到自己不切实际的目的只会是暂时的，不仅中国百姓的血汗钱毫无价值的浪费掉，还将失去的将是人家对你这个大国领导人的信任。平民百姓处事原则都是如此，更何况国家领导人、大国领导人、要做世界老大的人！
 
-发稿：Stay文苑
+普京是习近平一直以来在中国人面前给自己撑场子的人，居然说出了“习近平只是一个托”这样令人难堪的心里话。可悲的是习近平还不知，还要借普京的威望给自己涂脂抹粉、给自己壮胆、又是要打台湾又要拿下东南亚再拿下欧美，作世界75亿人的奴隶主。真的是自不量力！
 
-来源：
+*编辑：cindy*
 
-新闻：[https://gtv.org/broadcast/watch/6205bd54a1fe5e57a4267c5c](https://gtv.org/broadcast/watch/6205bd54a1fe5e57a4267c5c)
-访谈：[https://gtv.org/broadcast/watch/6205c5b6a1fe5e57a4268182](https://gtv.org/broadcast/watch/6205c5b6a1fe5e57a4268182)
-
-![calendar](https://assets.gnews.org/wp-content/uploads/2022/02/calendar-1.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+【[澳喜文章1](https://gnews.org/zh-hans/author/aujenny/)】
+【[澳喜文章2](https://gnews.org/zh-hans/author/himalaya-australia/)】
 
  
 
