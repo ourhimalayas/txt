@@ -2,31 +2,24 @@
 ---
 
 
-## 七哥说“我绝对相信我们人世间是有鬼魂的” （2022-02-06摘录）
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1991582/)
+## 起诉瑞银正式立案灭共进入新阶段
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1991640/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+加拿大温哥华杨帆农场枫叶快讯
 
-来源：郭先生2022-02-06直播10：32：51摘录
+采编撰稿：自由法兰西
+![](https://cdn.discordapp.com/attachments/759954055299858513/941781844582596728/IMG_2977.png)图片来源：gettr
+在2月9日文贵大直播中透露了[新中国联邦]起诉[瑞银集团]已正式在伦敦立案的爆炸性消息之后，立即引起了西方媒体的争相报道。 [彭博新闻]当天撰文称，[瑞银集团]在驳回文贵先生于2015年提起的5亿美元保证金追缴诉讼中败北。伦敦法庭裁定英国有权审理。
 
-我总在想问这些王八蛋们一句话，你们打了疫苗之后，有没有想过当年“89.64”，还有你们的经济危机这帮王八蛋，你们想过当年“89.64”支持共产党给我们带来的痛苦是多少年吗？我们到今天都受残害，有家不能回，父母不能相见，亲人不能团聚。这难道我们只能是去灭共吗？没有西方资本主义和邪恶的沼泽地对共产党的支持，我们不可能在我最欢愉的时候能阳痿。没有“89.64”这种痛苦的记忆，它让我成就了我，但是让我一直痛到现在，真的是《塞北的雪》里边，现在真的感觉搭配轰轰烈烈，满山遍野。我更加相信的是更多的死去的英灵和“89.64”的这些，我绝对相信我们人世间是有鬼魂的。
+文贵先生对该银行发起的诉讼并正式立案！报道对此表示，此举将沉重打击曾试图以管辖权为由，要求伦敦法院终止受理该案的[瑞银集团]。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+文贵先生指出，UBS瑞银是决定世界和人类命运的沼泽地势力以及中共盗国贼家族重要的财富聚集地，该金融帝国内隐藏着数百年来所累积的上百万亿美元财富和黑账。因此，通过此案，在支持[新中国联邦]的正义沼泽地势力的帮助下，将首次撬开瑞银的秘密数据库大门，找回中共政权在西方藏匿的巨额盗国资产。同时追缴中南坑家族在海外的所有黑钱，并最终将这些非法所得还给中国人民。
 
-**关注我们**
+新闻来源： [https://www.bloomberg.com/news/articles/2022-02-09/ubs-loses-bid-to-dodge-chinese-billionaire-s-500-million-suit?srnd=premium-europe](https://www.bloomberg.com/news/articles/2022-02-09/ubs-loses-bid-to-dodge-chinese-billionaire-s-500-million-suit?srnd=premium-europe)
 
-Discord 账号
+校对编辑：硫酸羟氯喹64
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+发文：青青
 
  
 

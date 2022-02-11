@@ -2,30 +2,31 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年2月11日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1991465/)
+## 七哥说“我绝对相信我们人世间是有鬼魂的” （2022-02-06摘录）
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1991582/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO.jpg)
+文编：Hima
+听写：叮叮
+视频：七哥
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-10.png)
-文章仅代表作者本人观点，与Gnews无关
+来源：郭先生2022-02-06直播10：32：51摘录
 
-视频参看：
-[2022.02.11早 《NFSC新闻》](https://gtv.org/video/id=620664a7a1fe5e57a426ce59)
-[2022.02.11早 G|TV《新闻访谈》](https://gtv.org/video/id=62066d61a1fe5e57a426dc0d)
+我总在想问这些王八蛋们一句话，你们打了疫苗之后，有没有想过当年“89.64”，还有你们的经济危机这帮王八蛋，你们想过当年“89.64”支持共产党给我们带来的痛苦是多少年吗？我们到今天都受残害，有家不能回，父母不能相见，亲人不能团聚。这难道我们只能是去灭共吗？没有西方资本主义和邪恶的沼泽地对共产党的支持，我们不可能在我最欢愉的时候能阳痿。没有“89.64”这种痛苦的记忆，它让我成就了我，但是让我一直痛到现在，真的是《塞北的雪》里边，现在真的感觉搭配轰轰烈烈，满山遍野。我更加相信的是更多的死去的英灵和“89.64”的这些，我绝对相信我们人世间是有鬼魂的。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar.png)
+**关注我们**
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
