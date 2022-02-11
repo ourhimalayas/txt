@@ -2,36 +2,44 @@
 ---
 
 
-## 澳洲更改：接种加强针视为“完全接种疫苗”
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1989428/)
+## 王岐山要上了美国撤离使馆的医疗专机,中共敢打下来吗？
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1989522/)
 
-#### 澳洲新闻时事动态，尽在雅典娜【澳洲热点】
+G-TV视频链接：[https://gtv.org/video/id=62035198585ecc15d73f482e](https://gtv.org/video/id=62035198585ecc15d73f482e)
 
-整理/编辑：小鱼儿
+**郭文贵先生：**就这现在冬奥会要来了，是吧？这个王沪宁的秘书：常秘书，给人家美国人打电话，是吧？咱是哥们啊，咱见个面吧，干嘛都撤走啊是吧？你撤几个就算了吧。人家美国的人说我们买了很多家具还得搬走，开好几台大车。我还给你准备了几件家具呢。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-47.png)图片来源：雅典娜设计组
+所以就这种人，你想想王沪宁办公室的人，就公开行贿别人，就是low到极点，把国与国的关系弄到。你知道美国人，人家是玩死你中共。那几架你说的那几架那个医疗专机，能拉回多少人呢？那光拉人吗？
 
+我有告诉你，可不光拉美国人，很有可能也有中国人就上那飞机了，那王岐山要上那飞机来了，你能给他打下来吗？你敢打吗？你不敢打，王岐山的秘密材料能拉过来，你敢打吗？你也不敢打。
 
-当地时间2月10日，据俄罗斯电台（RT）报道，澳大利亚卫生官员更新了指南，宣布一个人要被视为“完全接种”了针对新冠的疫苗，他们必须接种加强针。
+字幕来源：[2022年1月29日香草山农场年会直播全文字版](https://gnews.org/zh-hans/1938961/)
 
-澳大利亚免疫技术咨询小组（ATAGI）周四发布了一套新的建议称，一个人需要第三剂疫苗才能被视为“最新的疫苗接种”。
+编辑整理：Jacques；
 
-ATAGI 的指导意见，在周四下午的全国内阁会议上获得批准。除老年护理工作者外，三剂量建议不会在全国范围内强制执行，并将由各个司法管辖区决定。
+字幕文件制作：知津；
 
-澳广播电台，援引澳大利亚卫生部长格雷格·亨特的话说： “如果一个人已经完成了针对其年龄和个人健康需求推荐的所有剂量，那么他们就是‘最新的’ 。”
+视频制作及上传：Cindy；
 
-所有 16 岁以上的澳大利亚公民，目前都有资格在完成第二剂疫苗三个月后，可接种加强针。如果，六个月内没有接种加强针，他们将被视为“逾期”。 16 岁以下的人不需要接种加强针，来获得“最新”状态，但“5 岁及以上的患有严重免疫功能低下的人”除外。
+G-News发布：小满；
 
-参考新闻：[Country changes definition of ‘fully vaccinated’](https://www.rt.com/news/548910-australia-change-definition-vaccinated/)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-发布：tianzhihuan
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

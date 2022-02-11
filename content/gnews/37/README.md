@@ -2,39 +2,28 @@
 ---
 
 
-## 调查显示：TikTok追踪用户信息最多，但数据去向不明
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1988254/)
+## 中日财经爆┃日本为了经济安全防范中共
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1989021/)
 
-作者：纽约香草山教育部 – Noemi
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-CNBC 2月8日报道，最新调查显示：在社交媒体应用市场中，TikTok追踪、共享用户的私人信息最多，同时，TikTok还允许第三方跟踪器广泛收集用户的个人数据，但这些数据的最终去向目前还不明确。
+撰稿：东京樱花团/盖特第一批注册
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-44.png)图片来源于本文链接
+电动磁悬浮是日本独有的技术，将引起一场交通革命。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-37.png)
+电动磁悬浮制式列车利用强磁力的吸引和排斥，使车体悬浮约10厘米，在地面上高速行驶。与新干线不同，它不需要架空电线没有电弓（俗称大辫子），因为所需的电力都是从地面提供的。 即没有架空电线熔断的风险，又避免了摩擦引起的噪音。在列车内部所需电力，是应用电磁感应原理的感应电流收集技术，在列车运行时向车内供电。
 
-调查还发现，因第三方追踪器的应用，无法得知TikTok的用户们被收集到了哪些私人信息，也不知道是谁在收集用户们的信息，这可能将使普通用户面临更大的隐私风险。用户们即使已经离开TikTok的应用程序，第三方追踪器依然能够追踪到用户在其他网站上的活动状况。
+1998年江泽民访问日本时出人意料地向日本政府提议，在北京郊区共同建设一条50公里长的试验线，发展电动磁悬浮铁路。他还请求派50名工程师到山梨县日本研发基地考察。日方以商业机密为由拒绝了江的请求。日方清楚知道一旦答应了中方要求，中方就会变本加厉，以不可预知的方式升级其要求。
 
-此前，TikTok还被曝出，其海外应用的服务器，一直在与它的中共国母公司共享全球用户的隐私信息。美国前总统川普也曾因此倡议全美禁用抖音。
+2002年，德国帮助中国建成了时速430公里的上海磁悬浮专线铁路，但后来因为中国要求其公开技术而退出。如果在江泽民访日期间，接受了以日中友好的名义共同开发的建议，日本可能就会失去这项技术了。
 
-郭文贵先生曾指出，TikTok就是中共军方用于窃取个人隐私数据、和监视用户行为的间谍软件，也是其对西方文化渗透的社交媒体武器。这项调查将成为中共意图控制世界的又一罪证。
+经济安全已经引起了各国的重视，为了防止日本的知识产权和工业技术被泄露到海外，岸田政府也在努力通过“经济安全促进法案”。
 
-参考链接：
+信息源：
 
-- [TikTok shares your data more than any other social media app — and it’s unclear where it goes, study says](https://www.cnbc.com/2022/02/08/tiktok-shares-your-data-more-than-any-other-social-media-app-study.html?&amp;qsearchterm=tiktok)
+[〈リニアはなぜ必要か？　〉総額10兆円！　 国家的プロジェクトの内幕を当事者に聞く/葛西敬之×森地茂×松井孝典――文藝春秋特選記事【全文公開】](https://news.yahoo.co.jp/articles/a9eef992a7786edd4bb80369b16b9b4fd3f0f1a8?source=pc-detail-subcolumn)
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
-
-总编：飞虹
-编辑：飞虹
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

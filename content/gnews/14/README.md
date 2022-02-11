@@ -2,54 +2,54 @@
 ---
 
 
-## 新中国联邦的春节直播七哥必须在现场伴奏、现场唱新歌
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1989486/)
+## COVID疫苗对儿童的大脑、心脏和其他器官造成了不可逆转的伤害
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1989624/)
 
-G-TV视频链接：[https://gtv.org/video/id=620350ab585ecc15d73f47de](https://gtv.org/video/id=620350ab585ecc15d73f47de)
+**翻译：喜妹**
 
-**郭文贵先生：**我昨天就日本的朋友给我发说，郭先生你要唱这个北国之春啊，她说你嗓子一定会唱得非常好，这个日本是个女性是个女性。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-11-115901.jpg)图片来源:alertadigital.com
 
-这个这是唯一的，就是这么多年过去就跟她在唱卡拉ok，在日本卡拉ok是最早的嘛，就是我跟她家人这卡，她觉得我唱的好。就是，我忘了，原来就是所有人说我唱歌不好，就她这来唱的好。
+通过对医生和科学家的采访以及对多项研究的参考，一个新的视频解释了为什么COVID疫苗对幼儿没有任何好处，但却带来了许多甚至是严重的风险。
 
-她说你一定要唱，所以说呢，我觉得咱们今年的春节一定要唱，因为全世界就咱家日子过得最好，不是无限美好，不是，比无限美好还要好，是吧？
+辉瑞公司前副总裁兼首席科学官Michael Yeadon博士指出，当儿童用mRNA疫苗的安全性受到质疑时，制药公司声称没有证据表明这些疫苗不安全。
 
-还唯咱家独好，你说你不唱歌咋行呢？是吧？特别是国内的冬奥会，马上就要开了2月4号，你想想在上海的，就是你老家的小飞象，在上海的某几个人是参与奥运会组织的，说七哥你一定要唱几首歌。
+“Yeadon说：“缺乏关于伤害的数据并不等同于是对安全的确认”。
 
-在过年的时候，他说所有的在中国今年的春节，可以说大家最想看的就是新中国联邦直播，我必须得唱啊。所以说跟大家透露一下，七哥现场唱，现场唱、现场音乐、新歌，就这么牛就这么牛了啊。
+Yeadon还提到了2021年11月发表在《自然》杂志上的文章，该文章显示，COVID在儿童中很少致命，对于18岁以下没有并发症的年轻人来说，生存率为99.995%。
 
-大家记住，你看今天村长没来，他就没有享受到这种盛宴，那我这叫：亭亭白桦，欧依噶物之（日语音译）。就这调就出来了，叩兀自卡密（日语音译），哇塞，就这个调就出来了。
+他还引用了2021年4月的一篇论文，该论文显示儿童的免疫系统在清除新病毒方面有很大的优势，以及2021年12月同样在《自然》杂志上发表的一篇论文，报告说儿童有 “适应性免疫系统，能自然产生对SARS-Cov-2的强大、交叉反应和持续的免疫反应。”
 
-叩兀自卡密（日语音译）啥歌知道吧？都是习近平喜欢的歌。所以今年春节，七哥叫歌死中共，歌死中共。你们准备好，我提前，到时候唱之前，我都给你们提醒，第一声音放大点，第二把耳机戴上，尽量听不着，因为我唱的声音会大。会的，谢谢。
+视频中包括罗伯特-马龙博士的一个片段，他警告家长，为儿童接种疫苗的决定是 “不可逆转的”。
 
-字幕来源：[2022年1月29日香草山农场年会直播全文字版](https://gnews.org/zh-hans/1938961/)
+帮助开发mRNA疫苗技术的科学家马龙解释说，给儿童注射COVID疫苗 是”把病毒基因注入他们的细胞”。
 
-编辑整理：Jacques；
+他说：”这种基因迫使你孩子的身体制造出呈刺突形状的有毒蛋白。这些刺突蛋白往往对儿童的关键器官造成永久性损害，如大脑、神经系统、心脏和血管，以及他们的生殖系统。而这种疫苗可以引发免疫系统的根本变化。“
 
-字幕文件制作：知津；
+马龙说，这种损害一旦发生，就无法挽回。
 
-视频制作及上传：Cindy；
+马龙质疑为什么 “卫生官僚系统 “建议为儿童大规模采用一种新型实验mRNA疫苗，”而人们对该产品的有效性和安全性提出了严重的质疑”。
 
-G-News发布：小满；
+他说，不能宣布疫苗是安全的，因为没有长期的安全数据。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+然而，包括澳大利亚在内的各国政府仍在继续推动儿童接种疫苗，视频中指出，这些决定往往是基于制药公司自己进行的研究。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+例如，2021年11月发表在《新英格兰医学杂志》上的一篇文章认为。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+“在5至11岁的儿童中，发现由两个10-μg剂量的BNT162b2组成的Covid-19疫苗接种方案是安全、免疫原性和有效的。”
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+然而，在这一声明之后，人们发现这项研究是由BioNTech和辉瑞公司资助的。
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+根据该视频，在参与研究的33名作者中，94%的人与疫苗制造商有经济利益，60%的人是BioNTech或辉瑞公司的员工，57%的人曾从这些公司收到款项或拥有股票。
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+新闻来源:[alertadigital.com][Las vacunas COVID causan daños “irreparables” en el cerebro, el corazón y otros órganos de los niños](https://www.alertadigital.com/2022/02/07/las-vacunas-covid-causan-danos-irreparables-en-el-cerebro-el-corazon-y-otros-organos-de-los-ninos/)
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+* * *
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
-
+*审核：阿伯塔
+校对：信心满满
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-3.jpeg)
+ 
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
 

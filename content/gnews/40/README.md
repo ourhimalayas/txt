@@ -2,27 +2,27 @@
 ---
 
 
-## 英格兰将在2月取消中共病毒隔离措施
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1988251/)
+## 美国媒体称，疫苗造成的死亡令人震惊
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1988253/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+作者：纽约香草山 – 侠肝义胆
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-周三，首相鲍里斯·约翰逊突然宣布，如果感染率保持稳定，英格兰将在本月底取消对中共病毒检测呈阳性后、自我隔离的法律要求。
+2月7日，根据OANN公布的一份令人震惊的新报告，截至2022年1月4日，至少有94万6千名美国人在接种疫苗后死亡，或出现了严重的副作用。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/10-8.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8-8.png)
 
-英格兰在1月底已经取消了几乎所有的冠状病毒限制，几周前，为促进经济活动，政府将中共病毒患者的最低自我隔离期从7天缩短到5天。同时，英格兰已经逐渐放宽了有关国际旅行的规定，旅行者在抵达英国之前要完全接种疫苗，或抵达之后进行中共病毒检测的需求，也将于本周晚些时候结束。
+该报告还引述了美国卫生与公众服务部的信息指出，因为注射中共病毒疫苗，很多人或患神经系统疾病无法站立，或患心脑血管疾病突然摔倒，超过10万名美国人在接受疫苗注射后不得不住院治疗。
 
-首相发言人称，政府只负责英格兰的卫生政策，苏格兰、威尔士和北爱尔兰地区的相关措施由当地政府自己制定。
+主持人Pearson Sharp在节目中表示：“我们现在看到了这种未经测试、未经证实、仓促研发的疫苗的后果，比我们担心的要严重得多。而这只是一个开始，如果美国人和父母不能勇敢地反对这项不科学的强制令，我们可能会看到历史上规模最大的、人类实验造成数十万人死亡或永久受伤。”
 
 参考链接：
 
-- [England may scrap COVID-19 isolation requirement by March: Johnson](https://www.dailysabah.com/world/europe/england-may-scrap-covid-19-isolation-requirement-by-march-johnson)
+- [Report: COVID vaccines inflicting far more deaths than previously thought: “Could be looking at hundreds of thousands more dead”](https://newstarget.com/2022-02-07-report-covid-vaccines-inflicting-more-deaths-than-thought.html)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
 
-总编：飞虹
+总编：Irene木木
 编辑：飞虹
 校正/发稿：海阔天空1
 
