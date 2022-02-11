@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/11/2022 1:56 AM (UTC)`
+
+2/10/2022 Miles Guo’s GETTR: Anyone colluding with the CCP will inevitably be punished. Fellow fighters should strictly adhere to the principles of justice, morality, and the law. In the face of the CCP's global campaign going after me, I am risking my life to do the live broadcasts, hoping that fellow fighters will understand that it is not easy to take down the CCP<br/><br/>2/10/2022 文贵盖特：任何跟中共勾兑的人都逃不被制裁的命运；战友们要严守正义、道德和法律的原则；面对中共在全球的围追堵截，文贵冒着生命危险在直播，望战友们理解灭共的不容易<br/>
+![img](https://media.gettr.com/group20/getter/2022/02/11/01/e6267e31-a3a4-0242-fd02-fa2e2072f987/out.jpg)
+
+---
+
 `@miles 2/11/2022 1:54 AM (UTC)`
 
 2/9/2022 Miles Guo: After Putin turned against the CCP during the Winter Olympics, Europe immediately extended an olive branch to him. Russia will surely sell out the CCP, while Europe will also kick the ass of the CCP. Anyway, it is always the Chinese people who will bear the cost.<br/><br/>2/9/2022 文贵直播：普京在冬奥会跟中共翻脸后，欧洲随即伸出橄榄枝；俄罗斯必将出卖中共，欧洲也会在背后踢中共一脚！不论如何，牺牲的都是中国人的血汗钱！<br/>
@@ -148,13 +155,6 @@ EP9: The Villains. Let's tear down the monstrous lies of this despicable #HBO #V
 
 2月8号：尊敬的战友们好，你们健身了吗？传播C C P病毒．疫苗解药的真相了吗？今天可能将是我文贵人生的前半生和后半生的分水岭的一天．今天我将有个很大的决定，明天直播时再向大家汇报，一切都已经开始！
 ![img](https://media.gettr.com/group4/getter/2022/02/08/14/53412ce1-4adc-2d5b-ff56-2f204a2c0ee4/out.jpg)
-
----
-
-`@miles 2/8/2022 2:43 AM (UTC)`
-
-2/6/2022 Miles Guo: The current economic situation in the US indicates that the CCP virus and the COVID vaccine disasters have destroyed the supply chains. I have said in early 2020 that the secondary disasters and crises caused by the CCP virus and COVID vaccines will start this May. This is the conclusion I draw based upon the intelligence I have about the CCP.<br/><br/>2/6/2022 文贵直播：美国目前的经济说明中共病毒和疫苗灾难摧毁了供应链；文贵在2020年初就说病毒和疫苗造成的次生灾难和危机将于今年5月开始，这是文贵基于所掌握的中共情报而作出的判断<br/>
-![img](https://media.gettr.com/group41/getter/2022/02/08/02/dee84e88-a4e8-ca02-44aa-4a405eb8c549/out.jpg)
 
 ---
 
