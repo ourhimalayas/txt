@@ -2,30 +2,44 @@
 ---
 
 
-## 北京“雄心勃勃”的奥运中共病毒的闭环管理
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1993241/)
+## 普京不仅要打乌克兰，而且还要跟美国、欧洲、乌克兰谈
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1993355/)
 
-编译：花岗岩
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-174.jpg)
-图片来源：网络截图
+G-TV视频链接：[https://gtv.org/video/id=62035c65585ecc15d73f4af0](https://gtv.org/video/id=62035c65585ecc15d73f4af0)
 
-据美联社北京2月11日报道，对于一个决心将最初在其境内出现的病毒拒之门外的国家来说，将来自世界各个角落的15,000多人带进来是一场严重的赌博。在为期17天的活动中，中共国似乎正在用一个所谓的 “闭环 ”来应对其强大的中共病毒（COVID-19）奥运挑战，该“闭环”允许北京奥运会参赛者跳过检疫，但严格限制他们的行动，以便他们不会与普通民众接触。已经有490个确诊病例，其中许多是对没有症状的游客进行的阳性测试，而且至今没有任何关于泄漏的报告。
+**郭文贵先生：**然后你看现在俄罗斯要打乌克兰是吧？当年2008年北京、2008奥运会的时候儿，这普京到那块儿就在我隔壁主席台上，普京来了，是吧？跟胡锦涛是吧？开着奥运会，格鲁吉亚打进去了，打完回去了，拉倒了，所有全世界报道没超过72小时的，结束！** **
 
-在该闭环内，奥运组织者采用了政府零容忍的方法，每个人每天都要接受病毒测试，任何测试呈阳性的人都要迅速隔离，以防止任何传播。运动员和其他人在不参加比赛时必须戴上N95面罩。该闭环创造了两个独立的世界。运动员和其他参赛者不能在闲暇时间参观北京的旅游景点或餐馆和酒吧。他们唯一能瞥见的是穿梭于住宿地和场馆之间的公共汽车的窗户。他们的酒店和比赛场地都用临时围墙围起来，并派人看守，防止人们外出或进入。
+现在都知道普京要打乌克兰，还跟你美国谈，还跟你欧洲谈，还跟你乌克兰谈，“哎，我要揍你，乌克兰，我要揍你啊”。乌克兰说：“你不能揍我呀”，是吧？“不行，我得揍你，为啥揍你，知道吧？你原来属于我的，你分裂出去了，你现在跟欧洲人合作。把这个欧洲的东扩，就是把欧洲的版图向东边俄罗斯扩，吞并了克里米亚等等等等，原来这些事情，虽然我拿回来了啊，但是你现在是我的危险，在我家门口，咱俩本来是一家人，在我家卧室的隔壁，有一个跟外人勾搭的人，我岂能容忍得了？是吧，鉴于此啊，我得把你弄回来。”那说“那我不想回去。”“你不想回去，那你得有个条件啊，你咋保证我安全呢？”就这，明着来。
 
-中共国对谁可以进入中国有严格的限制，并要求那些进入中共国的人在指定的酒店隔离两到三周。即使是最小的疫情，中共国也会对建筑物和社区进行封锁，然后对所有居民进行大规模检测，以找出并隔离阳性病例。
+然后呢，人家普京先派十万大兵过去，是吧，派大兵去之前先给习近平“习太阳”是吧，沟通好：“习太阳，你取东方，你的台湾，我取我的西北方，我的乌克兰，我直奔基辅。”全世界都知道。
 
-该战略并非没有成本，在奥运会前夕，中共国将封锁范围扩大到整个拥有1000多万人口的城市，以杜绝疫情爆发，迫使工厂和非必要的商店关闭，并将人们限制在其住宅区内。与越南接壤的一个拥有约400万人口的西南部地区本周被封锁，因为该地区爆发的疫情已经感染了约180人。在北京，两个居民区仍然被封锁，因为两周前出现了少数病例。
+字幕来源：[2022年1月30日 郭文贵先生直播 全文字版](https://gnews.org/zh-hans/1936606/)
 
-在闭环外面，对北京的大多数人来说，生活仍在正常进行。部分团体，如学校儿童、企业赞助商、冬季运动团体、外国外交官和记者等被邀请充当部分看台，但大多数人通过智能手机或电视关注奥运会。
+编辑整理：Jacques；
 
-北京市疾病预防控制中心党委书记黄春本周早些时候说，在闭环内的450例确诊感染病例中，没有一例在闭环中蔓延，而且也没有关于任何医学上的严重问题的报告。闭环内大规模爆发的可能性，可能使运动员在比赛中退赛，这比泄漏到中共国其他地区更令人担心。
+字幕文件制作：小满；
 
-最后的考验将在奥运会结束后进行，届时来自中共国的数千名奥运工作人员和志愿者将退出闭环，预计他们在离开前将被要求隔离一周或更长时间，以试图阻止他们可能存在的任何潜伏感染的影响。
+视频制作及上传：Cindy；
 
-香港大学的公共卫生专家凯伦·格雷平（Karen Grépin）认为，中共国的做法所带来的健康和经济效益已经超过了成本，这些成本是由那些被封锁的人和旅游业等行业所承担的，这些行业因与大流行病相关的旅行限制时好时坏而受损。她说：“从任何标准来看，他们的死亡率都低得令人难以置信，在过去两年里，全国大部分地区都过着相对正常的生活。”
+G-News发布：小满；
 
-新闻来源：[Beijing’s ambitious Olympic COVID bubble: So far, so good](https://apnews.com/article/winter-olympics-covid-pandemic-bubble-effectiveness-acb24560ea13174b94590c428dac29d9)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

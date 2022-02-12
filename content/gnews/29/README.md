@@ -2,34 +2,28 @@
 ---
 
 
-## 巴西发现Omicron BA.2次变异株
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1992828/)
+## 俄乌战争一触即发 美澳相继呼吁本国公民尽快撤离
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1993192/)
 
-作者：纽约香草山医疗部 – 云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月8 日媒体报导，巴西卫生部报告已经收到7例Omicron次变异株BA.2的病例通知。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-11-2.jpg)图片来源网络
-此BA.2次变异株已经在世界上近60个国家被发现，目前所知它的传播力比原始Omicron病毒株更强，需高度关切。 BA.2次变异株是在去年11月首次由菲律宾提出报告，目前在有些国家已经占了中共病毒感染一半以上的病例。在丹麦、印度、德国皆有快速增加的病例，在美国也已经有近半数的州发现此BA.2次变异株。丹麦国家血清研究所(Statens Serum Institut)初步发表的数据显示，BA.2传播力较Omicron原病毒株BA.1强1.5倍。 Omicron目前已知有包括BA.1，BA.2，BA.3、B.1.1.529等四种谱系。虽然BA.1和BA.2结构相似，但它们相差了20个突变。BA.2已经在快速取代BA.1成为主要病毒株。关于BA.2的致病强度，据目前所掌握的数据，没有足够的证据来确定BA.2是否比Omicron BA.1更容易引起严重的疾病。此点需要密切观察。
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1160.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fnimg.ws.126.net%2F%3Furl%3Dhttp%253A%252F%252Fdingyue.ws.126.net%252F2021%252F1226%252F19d3f0b8j00r4pew9006zc000z800omm.jpg%26thumbnail%3D650x2147483647%26quality%3D80%26type%3Djpg&amp;imgrefurl=https%3A%2F%2Fwww.163.com%2Fdy%2Farticle%2FGS52EI3H0550HKO5.html&amp;tbnid=Vk09RzixTVEf6M&amp;vet=12ahUKEwjTsMHjnPn1AhWIATQIHQlmAN8QMygBegUIARCtAQ..i&amp;docid=ViV_j0D72MWwlM&amp;w=650&amp;h=455&amp;q=%E4%BF%84%E4%B9%8C%E6%88%98%E4%BA%89&amp;ved=2ahUKEwjTsMHjnPn1AhWIATQIHQlmAN8QMygBegUIARCtAQ)
+澳洲总理莫里森周六（2月12日）表示，在乌克兰的澳洲公民应尽快离开该国，因为那里的局势越来越危险。
 
+“我们的建议很明确，目前局势危险…你们应该设法离开乌克兰，”莫里森在一次媒体吹风会上说。
 
+美国总统乔∙拜登星期四（2月10日）在接受美国国家广播公司（NBC）电视采访时，警告乌克兰境内的美国公民立即撤离该国，因为一旦美俄部队发生摩擦，将会导致潜在的大规模冲突。
 
-相关链接:
+拜登说，如果俄国入侵，他不会派遣部队进入乌克兰，即使救援美国人也不行。
 
-[https://www.cna.com.tw/news/aopl/202202090010.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/aopl/202202090010.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share) &lt;Omicron BA.2: What we know about the Covid sub-variant – BBC News&gt; [https://udn.com/news/story/121707/6071358](https://udn.com/news/story/121707/6071358)
+星期五在澳大利亚与澳大利亚、日本和印度所谓四国集团（QUAD）外长举行会晤的美国国务卿布林肯也向记者重申了拜登的警告。
 
+布林肯说俄国可能在2月20日北京冬奥会闭幕前入侵乌克兰。
 
+消息来源：[澳洲总理呼吁在乌克兰的澳洲人应尽快离开该国 因为情况危险](https://cn.reuters.com/article/au-morrison-ukraine-0212-idCNKBS2KH02I?il=0)
 
-![This image has an empty alt attribute; its file name is 8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
-
-编辑/校对/发稿：Petite abeille
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,30 +2,43 @@
 ---
 
 
-## 美国誓言向印太地区投入更多资源抗衡中共国
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1993176/)
+## 加拿大长鸣的车声震撼世界，中国人从来没有这样的尿性
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1993334/)
 
-整理编辑：东京樱花团｜peterwong
-![](https://lh3.googleusercontent.com/grDNZRuclGoWsfxFFSIilun5kRd4Nz1R4B0FGpZ0kIF3gZPGmUc6Bj2t44ks1ZaQsxC3O336JVDil-JAaHrOar2LusNipQnhtzKpHyymB4eEgCs7XA4iscCxXl3C8HgspN_kvyS4)[*图片来源*](https://gdb.voanews.com/c36e0000-0aff-0242-393c-08d9edb17348_w1597_n_r1_st.jpg)
-美国星期五(2月11日) 发布《美国印太战略》的战略审议文件，誓言向印太地区投入更多资源抗衡中共国，中共试图在该地区建立势力范围并成为世界影响力最大国家。文件中说，美国将聚焦从南亚到太平洋诸岛的印太地区所有角落，以加强美国的地位和承诺。
+G-TV视频链接：[https://gtv.org/video/id=62035c09585ecc15d73f4ad4](https://gtv.org/video/id=62035c09585ecc15d73f4ad4)
 
-上周中俄两国发表最为详细和最为强势的联合声明，生成双方的战略合作“没有止境”。两国共同表示反对美国，并要按照他们自身对人权与民主的解读而打造国际新秩序。
+**郭文贵先生：**现在谈点正事儿吧！今天大家都来了，今天我们先说一下这个疫苗的这个问题。昨天晚上我大概从一点多到四点钟，就是凌晨一点到四点，和这个欧洲的、欧联盟的几个关于医疗方面的咱们的政治战友们、政治盟友们在开会。大家我相信你们都感受到了，隔壁的加拿大车声长鸣，震撼了世界！你们也都听到那车的声音了。
 
-美国在这份文件中誓言要将联盟关系现代化，加强新兴的合作伙伴关系，并对地区性的组织进行投资。文件特别强调了“一个强大的印度”作为合作伙伴在一个积极的地区愿景中所发挥的重要作用。
+中国人十几亿人，生生死死几十亿人，包括六四、包括中国的奥运会申办成功，高兴的还有悲哀的事儿，从来中国人没像那样儿那么尿性过，就发出你内心的声音。就中国人这个国家、这个民族基本上都是属老鼠的，“胆小如鼠”这个词儿形容中国人那是再合适不过了。
 
-在高度敏感的台湾问题上，这份文件说，华盛顿将与地区内外的伙伴合作，维护台湾海峡的和平与稳定。
+字幕来源：[2022年1月30日 郭文贵先生直播 全文字版](https://gnews.org/zh-hans/1936606/)
 
-这项行动计划还誓言扩大美国海岸警卫队在南亚、东南亚与太平洋的存在与合作。华盛顿认为，中共国威胁着这些海域的捕鱼和自由贸易线路。
+编辑整理：Jacques；
 
-“我们认识到我们改变中共的能力是有限的，因此试图塑造围绕中共的战略环境，”美国行政当局的一位高级官员对记者们说。他还说，这份文件并不包含拜登行政当局更广泛的中共国战略。
+字幕文件制作：小满；
 
-附《[美国印太战略](https://www.whitehouse.gov/wp-content/uploads/2022/02/U.S.-Indo-Pacific-Strategy.pdf)》原文下载链接
+视频制作及上传：Cindy；
 
-消息来源：[**白宫公布印太战略文件 誓言加大外交与安全努力以抗衡中国**](https://www.voachinese.com/a/us-vows-stepped-up-indo-pacific-effort-in-push-back-against-china-20220211/6438761.html)
+G-News发布：小满；
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

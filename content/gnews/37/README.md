@@ -2,35 +2,20 @@
 ---
 
 
-## 欧盟监管机构正在制定加密货币全球规则
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1992559/)
+## 拜登政府将解冻阿富汗的70亿美元用于人道救助及赔偿911受害者
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1992837/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：追着曙光跑
 
-整理：围剿维尼熊
-编辑：文泓
+据美联社2月11日的报道，拜登总统周五（11日）签署命令，将解冻目前阿富汗在美国被冻结的70亿美元。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-12-at-11.41.28.jpeg)图片来源：原新闻
+目前，不会立即释放任何资金， 但拜登总统的命令要求银行将冻结金额中的 35 亿美元提供给一个信托基金，通过人道主义组织分配，以满足阿富汗的救济和基本需求。 剩下的35亿美元将留在美国，以赔偿美国911受害者。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/4-27.png)图片来源：Bitcoin News
+自去年8月，随着美军撤出，塔利班控制了阿富汗后，对阿富汗援助的国际资金全部被暂停，该国数十亿美元的海外资产（主要在美国）被冻结。导致阿富汗经济崩溃，民不聊生。
 
+为此，拜登政府决定解冻阿富汗存在美国金融机构的70亿美元。
 
-当地时间2月10日报道，路透社伦敦消息，一位欧盟官员周三表示，监管机构在快速发展的跨境加密资产领域反应迟缓，但他们可能在几个月内提出首个全球规则框架。
-
-目前，全球各地对加密资产的处理方式各不相同，欧盟正在批准一套全面标准，用于授权和监管加密资产市场的参与者。20国集团(G20)监管当局、央行和财政部官员组成的金融稳定理事会(FSB)正在研究如何对待比特币和稳定币等加密资产。
-
-法国金融市场监管机构AMF主席、FSB委员罗伯特·奥菲勒表示，由于加密资产尚未对金融稳定构成威胁，因此监管机构落后于形势，但现在这已成为FSB的首要议程。
-
-奥菲勒说，欧盟需要一个强大的市场监督机构，就像欧洲央行对银行业的监督那样。目前的架构已不再满足这一目的。
-
-参考链接：[监管机构正开足马力制定加密货币全球规则](https://cn.reuters.com/article/cryptocurrency-rules-0209-wedn-idCNKBS2KF06F?il=0)
-
-**发布：tianzhihuan**
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+信息来源：[Biden frees frozen Afghan billions for relief, 9/11 victims](https://apnews.com/article/joe-biden-business-united-states-terrorism-b2743737c3286dbba95a7663615e37be)
 
  
 

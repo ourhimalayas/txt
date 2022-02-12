@@ -2,20 +2,12 @@
 ---
 
 
-## 刘亚洲说中国人的三大邪恶
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1993298/)
+## 英首相鲍里斯·约翰逊提出提前一个月结束疫情限制措施
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1993432/)
 
-#### 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王
-视频定位：BENJ1，WEI
+02/09/2022 英国首相鲍里斯·约翰逊周三宣布，他将在2月21日概述该国与“中共病毒共生”的计划，包括取消所有现存的限制，例如检测结果呈阳性，就必须进行隔离的法律规定。该要求将于3月24日结束，但约翰逊表示，如果 “令人鼓舞的 “数据趋势继续下去，这些措施将提前一个月结束。
 
-*发布：玉米地守望者*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

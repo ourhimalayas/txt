@@ -2,31 +2,13 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年2月11日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1991465/)
+## 多国跟进加拿大卡车司机反强制疫苗活动
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1992576/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO.jpg)
-
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-10.png)
-文章仅代表作者本人观点，与Gnews无关
-
-视频参看：
-[2022.02.11早 《NFSC新闻》](https://gtv.org/video/id=620664a7a1fe5e57a426ce59)
-[2022.02.11早 G|TV《新闻访谈》](https://gtv.org/video/id=62066d61a1fe5e57a426dc0d)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/02/20220212-1-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

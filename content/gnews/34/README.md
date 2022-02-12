@@ -2,22 +2,34 @@
 ---
 
 
-## 加拿大国会议员首提加密货币法案
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/1992630/)
+## 2022年2月11日 晚 新中国联邦新闻、GTV新闻访谈简报
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1993049/)
 
-加拿大温哥华扬帆农场    平民正道
+作者：香草山翻译部
 
-据加拿大《环球邮报》2月9日报导，有国会议员近日提出为“数字货币应用”建立相应的国家金融系统。这将是该国议会首个直接针对未来数字资产行业的专项法案。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO.jpg)
 
-报导称，该行业法案由保守党议员米歇尔于日前提出，要求加拿大财政部在近期创建一个发展数字货币体系的框架，并在准备过程中咨询数字货币领域的专家，以减少从业者的行政负担。
 
-对此，该议员表示，尽管数字资产行业近年来的蓬勃发展已势不可挡，但加拿大政府官员和立法者都缺乏对该领域的基本认知。而以上法案程序将能填补公共部门和私营企业在这个问题上的空白。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-10.png)
+校对：Stay文苑
 
-据悉，数字货币现已成为国会和财政部门商讨预算的热门话题，外界预计该法案将在未来几个月内得到下议院的更多辩论，并极有可能在今年9月份之前进行投票表决。
+编辑：Stay文苑
 
-* * *
+发稿：Stay文苑
 
-编辑： 平民正道    发布：平民正道
+来源：
+
+新闻：[https://gtv.org/broadcast/watch/62070eaea1fe5e57a4271e34](https://gtv.org/broadcast/watch/62070eaea1fe5e57a4271e34)
+访谈：[https://gtv.org/broadcast/watch/620715c4a1fe5e57a4272299](https://gtv.org/broadcast/watch/620715c4a1fe5e57a4272299)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
