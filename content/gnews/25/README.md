@@ -2,45 +2,40 @@
 ---
 
 
-## 疫苗灾难绝对比你们想象的大的多
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1995537/)
+## 中共疫情清零政策可能损及全球经济增长&#8211;日央行审议委员中村豊明
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/1995651/)
 
-作者：纽约香草山 福音部 -林礼
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image003-2.png)
+**路透东京****2****月****9****日**** – ****日本央行审议委员中村豊明周三表示，中国对疫情的零容忍政策可能延长供应链中断和全球通胀压力持续的时间，从而拖累全球经济增长。****
 
+****此前国际货币基金组织****(IMF)****总裁格奥尔基耶娃在上个月警告说，鉴于高度传染性****Omicron****变体的出现，中国应该重新评估其清零政策。**
 
+**中村豊明在一次演讲中说，”在Omicron感染扩大的情况下，清零政策有可能拖累全球经济，并延长全球供应链中断和通胀压力。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-5.jpg)
-
-
-
-2月9日在”文贵大直播”期间说到，王濛解说中让韩国运动员多打几针疫苗，这把全中国人都裹进去了；疫苗这件事情体验了人心、人的洞察能力和所有中国人对事情的看法。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1044-1.png)
-全世界的科学杂志、知识界和所谓严肃媒体都叫你认真地打疫苗，直到打死为止，这和共产党是如出一辙。
-
- 你没打疫苗，是一生中唯一的最大最正确的决定。打了疫苗的家人，请赶快吃青蒿素，伊维菌素。世界上的政治，经济疫苗灾难，超出你想象的很多倍。我们爆料革命不灭中共，它自己都会被灭了，百分之一万地会被灭得干干净净。
-
-参考来源：[https://gnews.org/zh-hans/1986483/](https://gnews.org/zh-hans/1986483/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3.jpg)
-
-编辑：童谣
-校对/发稿：Daxia
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-6.jpg)
+中村豊明表示，日本企业会以多快的速度将不断上涨的原材料成本转嫁给家庭，这存在不确定性，也是该国经济面临的风险之一。**
 
 
+
+**推出问题，敲出真相，爆料在路上！**
+
+**请关注和订阅我们的以下账号：**
+
+**新西兰伊甸农场盖特**：https://gettr.com/user/himalayanz
+
+**【玫瑰看新闻】盖特**：https://gettr.com/user/rosenews
+
+**玫瑰看新闻YouTube账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**Rose news**
+
+**【玫瑰看新闻】推特账号**：
+
+**Rose News (@RoseNews4)a**
 
  
 

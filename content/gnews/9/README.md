@@ -2,45 +2,32 @@
 ---
 
 
-## 渥太华抗议者出招应对新禁令
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/1995824/)
+## 有声|美国推迟制定国家安全战略
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1995892/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image005-7.jpg)
-**【大纪2月9日讯】渥太华警方宣布向示威者提供物资（包括汽油等）的人将面临被捕的措施周一生效。抗议民众开始采用误导警察的方式应对。**
+配音：香草山健身部 – 玫瑰园
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+2月11日，据《国际文传电讯社》援引《Politico》报道，乌克兰周边的局势正在推迟美国编制新的国家安全战略。
 
-**当局希望通过严禁人们向市中心抗议区送燃料，迫使停在那里的抗议车队离开。
+报道指出，该文件的内容主要取决于俄罗斯是否“入侵”乌克兰。
 
-渥太华警察总长彼得·斯洛利周一晚在CTV新闻节目上说，示威者正在迅速适应警方的各种执法措施，例如不允许燃料容器进入市中心。
+一位知情人士向该报证实，俄罗斯“对乌克兰的计划不明确”是影响该战略时机的因素之一。
 
-一些抗议者故意在油桶里装水，并对着警察从桶里取水喝，以表明桶里装的不是汽油。同时，他们将汽油装在通常用来装水的其他容器中。
+正如该报所指出的，俄罗斯可能“入侵”乌克兰的具体细节可能会极大地影响美国在战略文件中对俄罗斯威胁的细节和优先次序。
 
-斯洛利说，警官周一在一次尝试逮捕的行动中，被抗议者围住。
+文字版原文：[美国推迟制定国家安全战略](https://gnews.org/zh-hans/1989958/)
 
-**
+音频处理/发稿：Daxia
 
-**推出问题，敲出真相，爆料在路上！**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-**请关注和订阅我们的以下账号：**
-
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
-
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
-
-**玫瑰看新闻YOUTUBE账号**：
-
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**ROSE NEWS**
-
-**【玫瑰看新闻】推特账号**：
-
-**ROSE NEWS (@ROSENEWS4)A**
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

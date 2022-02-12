@@ -15,101 +15,101 @@
 
 ---
 
-### [有声|沼泽地战役正式打响 新中国联邦还富于民](/content/gnews/1/README.md)
+### [2/11/2022 文贵直播：中共用其垄断的市场来绑架全世界，在好莱坞、华尔街、达沃斯和世界媒体造成了严重后果](/content/gnews/1/README.md)
+ ` 秘密翻译组-北美组`
+
+### [普京私下谈冬奥会](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
+
+### [大直播后记：绝不勾兑、找出真相](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [美国及世界疫情简报 （02-12-2022）](/content/gnews/4/README.md)
+ ` 波士顿五月花农场`
+
+### [2/11/2022 文贵直播：锁链女事件是全党作案、涉及中共三代领导班子并充斥着迷信和欺骗，中共的一切都是假和骗](/content/gnews/5/README.md)
+ ` 秘密翻译组-北美组`
+
+### [共产党丑化华人形象](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [普京“要求”美国做保证，习共成为牺牲品](/content/gnews/7/README.md)
+ ` 波士顿五月花农场`
+
+### [有声|沼泽地战役正式打响 新中国联邦还富于民](/content/gnews/8/README.md)
  ` MOSREC`
 
-### [有声|美国推迟制定国家安全战略](/content/gnews/2/README.md)
+### [有声|美国推迟制定国家安全战略](/content/gnews/9/README.md)
  ` MOSREC`
 
-### [随着俄罗斯紧张局势升级，以色列从乌克兰撤离外交官家属](/content/gnews/3/README.md)
+### [随着俄罗斯紧张局势升级，以色列从乌克兰撤离外交官家属](/content/gnews/10/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [有声|强国奇闻(4)](/content/gnews/4/README.md)
+### [有声|强国奇闻(4)](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [2022/02/11 文贵先生直播精要](/content/gnews/5/README.md)
+### [有声|芬太尼原料来自中共国，中共明知故犯](/content/gnews/12/README.md)
+ ` MOSREC`
+
+### [2022/02/11 文贵先生直播精要](/content/gnews/13/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [樱花灭共诗——春回冬奥中共造雪记（新韵）](/content/gnews/6/README.md)
+### [樱花灭共诗——春回冬奥中共造雪记（新韵）](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|制衡中共影响力 布林肯将会太平洋岛国领袖](/content/gnews/7/README.md)
+### [有声|制衡中共影响力 布林肯将会太平洋岛国领袖](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [有声|法媒报道: 新的加密货币喜马拉雅币推出后不久即达 270 亿美元估值](/content/gnews/8/README.md)
+### [有声|法媒报道: 新的加密货币喜马拉雅币推出后不久即达 270 亿美元估值](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [渥太华抗议者出招应对新禁令](/content/gnews/9/README.md)
+### [渥太华抗议者出招应对新禁令](/content/gnews/17/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [有声|中共的世界霸权妄想症让其骨子里保持与美国的敌对关系](/content/gnews/10/README.md)
+### [有声|中共的世界霸权妄想症让其骨子里保持与美国的敌对关系](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [有声|加拿大阿尔伯塔省开始取消疫情限制措施](/content/gnews/11/README.md)
+### [有声|加拿大阿尔伯塔省开始取消疫情限制措施](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [中共千方百计收集美国人DNA](/content/gnews/12/README.md)
+### [中共千方百计收集美国人DNA](/content/gnews/20/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [美国好时巧克力正在退出中共国市场](/content/gnews/13/README.md)
+### [美国好时巧克力正在退出中共国市场](/content/gnews/21/README.md)
  ` 日本东京方舟农场`
 
-### [文耀时间｜战友实例分享私人信托设立（二） 上期节目答疑 模拟器计算财富 欧洲信托信息(5)](/content/gnews/14/README.md)
+### [文耀时间｜战友实例分享私人信托设立（二） 上期节目答疑 模拟器计算财富 欧洲信托信息(5)](/content/gnews/22/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [北京成奥运反转门！ “更快、更高、更强”变成“更悲、更无声和更可怕”](/content/gnews/15/README.md)
+### [北京成奥运反转门！ “更快、更高、更强”变成“更悲、更无声和更可怕”](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [由于“自由”抗议活动美国加拿大间的过境通道第二次被中断](/content/gnews/16/README.md)
+### [由于“自由”抗议活动美国加拿大间的过境通道第二次被中断](/content/gnews/24/README.md)
  ` 日本东京方舟农场`
 
-### [中共疫情清零政策可能损及全球经济增长&#8211;日央行审议委员中村豊明](/content/gnews/17/README.md)
+### [中共疫情清零政策可能损及全球经济增长&#8211;日央行审议委员中村豊明](/content/gnews/25/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [澳将研究开展核潜艇合作 中共威胁要打开潘多拉魔盒](/content/gnews/18/README.md)
+### [澳将研究开展核潜艇合作 中共威胁要打开潘多拉魔盒](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [决定欧洲未来的战役：乌克兰问题的结局决定着美国在欧洲今后的影响力](/content/gnews/19/README.md)
+### [决定欧洲未来的战役：乌克兰问题的结局决定着美国在欧洲今后的影响力](/content/gnews/27/README.md)
  ` 日本东京方舟农场`
 
-### [发现艾滋病毒法诺贝尔医学奖得主 宣称疫苗对人类的危害](/content/gnews/20/README.md)
+### [发现艾滋病毒法诺贝尔医学奖得主 宣称疫苗对人类的危害](/content/gnews/28/README.md)
  ` GTV News Talk`
 
-### [中共侵犯人權 立陶宛外長促各國站起來對抗](/content/gnews/21/README.md)
- ` GTV News Talk`
-
-### [欧盟力推全球防疫协议 禁止野生动物市场并鼓励报告病毒](/content/gnews/22/README.md)
+### [欧盟力推全球防疫协议 禁止野生动物市场并鼓励报告病毒](/content/gnews/29/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [奥林匹克网站删除有关谷爱凌真实公民身份的信息](/content/gnews/23/README.md)
- ` 日本东京方舟农场`
-
-### [秘翻在线：孤独的冬奥会的雪](/content/gnews/24/README.md)
+### [秘翻在线：孤独的冬奥会的雪](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [疫苗灾难绝对比你们想象的大的多](/content/gnews/25/README.md)
- ` GTV News Talk`
-
-### [加拿大卡车司机封堵通往美国的桥梁](/content/gnews/26/README.md)
+### [加拿大卡车司机封堵通往美国的桥梁](/content/gnews/31/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [冬奥期间：中共加剧打压少数民族和异议人士](/content/gnews/27/README.md)
- ` 日本东京方舟农场`
-
-### [2022年2月12日，全球中共病毒疫情情况汇总](/content/gnews/28/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [美参议员认为自然免疫力优于中共病毒疫苗](/content/gnews/29/README.md)
+### [美参议员认为自然免疫力优于中共病毒疫苗](/content/gnews/32/README.md)
  ` NFSC News`
-
-### [戴不住了 美国多州宣布放宽口罩令](/content/gnews/30/README.md)
- ` 【🌹玫瑰新闻】`
-
-### [《历史的今天》2022.02.12](/content/gnews/31/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [任何与中共勾兑的人都将被制裁](/content/gnews/32/README.md)
- ` GTV News Talk`
 
 ### [美国宣布向台湾出售爱国者导弹](/content/gnews/33/README.md)
  ` NFSC News`
