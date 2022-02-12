@@ -2,31 +2,36 @@
 ---
 
 
-## Miles Guo Live Broadcast summary February 11, 2022
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1996446/)
+## 文贵先生盖特精要- 2022/02/11
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1996558/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-11-at-12.42.40-PM.jpeg)
-**Source**[https://gtv.org/video/id=62065c00a1fe5e57a426b9e1](https://gtv.org/video/id=62065c00a1fe5e57a426b9e1)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1240.png)[盖特直播链接](https://gettr.com/post/pu2dte2ff8)
 
-**Summary**
+1. 战友们，请不要再提给七哥捐币捐钱的事。七哥需要你们有勇气，人生多尝试新事物，丰富人生的价值。看透生死，放下恐惧。
+2. 某警察战友声称深爱着他的青梅竹马，可当青梅竹马被绑架了，他明知道她在哪里，却过了七、八年时间都没有去拯救她。人应该匡扶正义、不怕事。中国人普遍怕“事儿”、可摊上的事还少吗？中国人被洗脑泯灭了良知。每个人去尝试做着超越自己的懦弱，干一件丰富人生的事都是值得的。
+3. 做人生重大决定时，一定要独立思考、不在乎其他人意见、勿权衡利弊。只要你认为是对的，不伤害别人、能帮助到他人的，自己决定、自己承担责任。马斯克、扎克伯格等人做的重要决定都曾是被他人排斥的。一定要跟随内心。
+4. 伪类最近集体“活动”，强者根本不在乎这些杂碎。狮子永远不会介意鬣狗或蚊子的想法。新中国联邦干着前所未有之事（七哥两次罚款2，5亿美元），与世界最高层次的人PK、对战、共处、合作。将敌人带给的恐惧和嚣张变成我们的武器，让他们嚣张，最后一秒钟将其绝杀。上帝永远会站在勇者和正义者的一边。
+5. 明天直播再见。
 
-1. Tens of billions of dollars can’t undo the damage caused by Eileen Feng Gu to the Chinese and Asians.
 
-2. The chained woman in Xuzhou, China has been a sexual slave for 24 years and has eight children. Her parents are members of Communist Party. This matter spans the three generations of the party, Jiang, Hu and Xi. The whole party committed crimes and cheated each other.
+*听写：call me uncle*
 
-3. Brother Miles has an exceptional contribution to the United States. The United States wants to ensure the most excellent safety to him. Miles can go to Japan and United Kingdom only if United States government confirms the safety and agrees. I will leave after June at the earliest. In Japan, Brother Miles has the highest medal of Honor and is protected at the highest-level.
+*校对: 小雨*
 
-4. Brother Miles thanks every fellow fighter for their willingness to donate. $260 million is a small amount of money for him. Brother Miles will not and cannot accept any donations. The Communist Party’s unrestricted warfare has many tricks to consume your energy and destroy your honor. Miles will appeal the unfavorable judgment on the PAG lawsuit to uncover the truth behind the strange verdict of the Communist infiltration. We want to expose Shan Weijian and Pacific Alliance Group (PAG),which deceives hundreds of billions of dollars in the United States. Miles will fight back with American law.
+* * *
 
-5. There was little or no audiences at the opening ceremony of the Winter Olympics. But the photos taken by the CCP were all filled with people. The forgery under Xi has reached a disastrous level. The Winter Olympics will be Xi Jinping’s last international show of deception.
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-6. African countries are undergoing coups. The Chinese Communist Party’s investment in Africa will be wasted.
 
-7. Immune deficiencies caused by COVID-19 vaccines will begin to break out in spring 2022. The Netherland has found many AIDS variants. The United Kingdom and Australia have begun to a large scale of the HIV screening. Pfizer starts recommending HIV drugs to treat COVID-19.
+编辑：【英国伦敦喜庄园编辑部】
 
-8. The global supply chains are broken. Duo to the threat of the Communist Party to Hong Kong, the living condition in Hong Kong will still be very bad, and so will the rest of the world.
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-Translator: Latin | Proofread: Fine Food | Editor & Publish:shandianxunlian
+
+
+
 
  
 

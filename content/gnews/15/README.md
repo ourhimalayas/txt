@@ -2,38 +2,41 @@
 ---
 
 
-## 纽约州法院系统培训主任被指搞裙带关系后辞职
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1996654/)
+## 有声|美众议院提案制裁数千名中共高官
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1996717/)
 
-翻译： Jenny Ball
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美媒独家获悉，美国众议院高层保守派提出了一项立法提案，正式制裁数以千计的中共官员，包括中共独裁者习近平及其整个家族。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-118.png)
+众议员麦克莱恩的法案名为 “制止中共法案”，将对中共官员进行削弱性制裁，包括阻止他们获得美国旅行签证，并进行金融制裁，阻止他们使用或获得某些资产。该法案将制裁中共 最高政府立法机构”全国人大”的每个成员。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-5-3.jpg)图片来自网络
+根据这项提案，除了习近平本人会受到制裁外，他的直系亲属也会受到制裁。
 
-纽约州法院系统针对数千名当地法官的培训项目主任，在被指控裙带关系后宣布辞职。
+该法案还将禁止数千名中共高官及其家属进入美国。他们也将被正式禁止进入美国的金融系统，这样就能阻止中共官员利用家属转移财产逃避制裁。
 
-萨拉托加县法官兼该州司法法院支持办公室全职主任南希·苏努克金（Nancy Sunukjian ），被指控为亲戚的未婚妻找到一份工作，然后，对一名揭露此事的法院雇员进行报复。
+该媒体称，中共高层领导人对此法案非常恐惧，会竭尽所能游说美国国会阻止法案通过。但如果共和党人在今年中期选举中如愿夺回众议院的多数席位，那么明年在共和党控制的众议院中，民主党也将别无选择支持该法案，届时法案将获两党共同支持顺利通过。
 
-苏努克金在 1 月中旬被传唤就这些指控作证，但她却宣布辞职。
+有关人士对此评论，该法案的提出意味着消灭中共也是美国利益的需要，以美灭共也将进入决战阶段，美国两党共同灭共的历史时刻即将到来。
 
-作为州镇和乡村法院培训项目的负责人，苏努克金负责 1,300 个地方法院寻求支持的项目。从 2020 年 12 月起，她的名字就出现在首席法官的每周致辞中。
+文字版原文：[美众议院提案制裁数千名中共高官](https://gnews.org/zh-hans/1990449/)
 
-苏努克金的案件由该州的司法行为委员会处理，该委员会处理对现任法官的不当行为指控。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-苏努克金是首都地区沃特福德镇的一名法官。她的辞职于 2 月 15 日生效。她将不再被允许寻求或担任司法职务。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-行为委员会的声明中没有公开指控其他细节。苏努克金自 2010 年以来一直是镇法官，她目前的任期将在 2023 年到期。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-“每当有人因裙带关系或偏袒而获得法院系统工作时，司法行政就会受到损害，”委员会管理员罗伯特 （H. Tembeckjian ）在新闻稿中写道。 “即使受雇人可能有资格，但通过法官的特殊影响，而不是根据业绩获得该职位——并对反对不法行为的人进行报复——都会削弱公众对司法公正的信心。”
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-**参考资料：**[syracuse][NY judge who directed training for 1000s of judges resigns after accusations of nepotism](https://www.syracuse.com/crime/2022/02/ny-judge-who-trains-other-judges-resigns-after-accusations-of-nepotism.html)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-* * *
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-*审核：文乐
-校对：阿伯塔
-发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-3.jpeg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -2,47 +2,45 @@
 ---
 
 
-## 发现艾滋病毒法诺贝尔医学奖得主 宣称疫苗对人类的危害
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1995616/)
+## 由于“自由”抗议活动美国加拿大间的过境通道第二次被中断
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1995652/)
 
-作者：台湾宝岛农场-dobi
+**翻译：【日本东京方舟农场】Skyfrog**
 
+持续的“自由车队”抗议活动反对新冠肺炎限制令，周二抗议者堵塞了连接美国和加拿大之间的第二个过境通道，即位于库茨边境连接阿尔伯塔和蒙大拿的通道。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-179.jpg)（图片来源：thehill.com）
+仅一天时间抗议者就封锁了位于美国北部的美-加直接最繁忙的过境点：连接底特律和温莎之间的大使桥的交通通道。
 
+据阿尔伯塔皇家骑警称，位于库茨边境南北向的过境通道都被抗议者关闭。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-5.jpg)
+周二晚间阿尔伯塔皇家骑警推特称:“请注意，由于抗议者的活动导致库茨边境南北向的过境通道关闭。”
 
+一名皇家骑警发言人告诉国会山报在周二当地时间晚上8点左右，抗议者使用农用拖拉机封锁了库茨边境的过境通道。
 
+这份声明补充道：“即使边境没有被关闭，车辆无法安全的通行。”
 
-法国科学家蒙坦耶（Luc Montagnier）于2008年时，因和同事巴尔．西诺希（Francoise Barre-Sinoussi）发现艾滋病毒，获颁诺贝尔医学奖殊荣，对人类对抗艾滋病毒（HIV）的贡献极大，也足见其在科学医学地位的举足轻重。
+依据加拿大政府网站信息，截至周三早晨，商业旅行和定期旅行人员在边境的等待时间大约为7个小时。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/FireShot-Capture-784-法科學家昔發現HIV得諾貝爾獎-今反疫苗黯然離世-世界萬象-全球-聯合新聞網-udn.com_.png)
+加拿大卡尔加里先驱报报道称：皇家骑警副队长科蒂斯·扎布洛基在新闻发布会上称参加库茨边境抗议活动的人将会被控告。
 
-遗憾的是，虽报导指出蒙坦耶是否已经逝世的消息目前尚未获得确认，但纳伊市长弗罗芒坦（Jean-Christophe Fromantin）告诉法新社蒙坦耶已于8日辞世，享年89岁。且报导中也提及，对于蒙坦耶逝世，法国总统马克宏（Emmanuel Macron）表示哀悼。 
+扎布洛基说：“毋庸置疑，那些在抗议点的犯罪活动违反刑法和省级法律，”
 
-尚且不论，蒙坦耶是否已经离世，回顾蒙坦耶（Luc Montagnier）的晚年，他勇于宣称病毒是实验室所制造，且后来会陆续出现变异株，乃是因为疫苗的缘故，他的反强制疫苗接种立场也可谓十分鲜明。虽遗憾他的立场目前尚未能顺利获得大多数科学界、学界的支持。然而，相信在蒙坦耶的勇敢揭示以及新中国联邦爆料革命的持续不断地对疫苗灾难是人为的等提出警讯下，就有机会拨乱为正，降低疫苗灾难对人道的危害.
+据报道，他补充道：“如我们所见那些活动是危险和鲁莽的，并且对居住在阿尔伯塔地区的人们造成非常消极的影响。”
 
-参考来源：[https://udn.com/news/story/6812/6092280?from=udn-catebreaknews\_ch2](https://udn.com/news/story/6812/6092280?from=udn-catebreaknews_ch2%E3%80%8B)
+国会山报记者已经联络上皇家骑警以寻求更多评论。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3.jpg)
+这次封锁发生在阿尔伯塔宣布将会取消一系列新冠肺炎相关限制，包括终止居民疫苗护照。
 
-编辑：Irene木木
-校对/发稿：Daxia
+这次示威活动起始于抗议反对新冠肺炎相关命令和条款对卡车司机的影响。
 
-**更多资讯，更多关注**
+据加拿大警方称，这项活动已经蔓延到加拿大的很多城市，同时这项活动从美国汲取了“重要因素”，也促进了对“威胁”和“非法“行为的“几项犯罪调查”。
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+原文链接：
+[https://thehill.com/policy/international/americas/593467-second-us-canada-crossing-disrupted-by-freedom-protests](https://thehill.com/policy/international/americas/593467-second-us-canada-crossing-disrupted-by-freedom-protests)
 
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-6.jpg)
-
-
+素材採編：妙喜小油鍋
+校对：妙喜小油鍋
+发布：爱放飞
 
  
 
