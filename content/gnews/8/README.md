@@ -2,40 +2,38 @@
 ---
 
 
-## 多国接连启动驻乌克兰使馆人员及家属的紧急撤离程序
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1994277/)
+## 盖特与纳瓦兹建立合作关系
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1994309/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1178.png)
-作者：台湾宝岛农场 快慢机
+撰稿：日本东京方舟农 – Miyali7768(文玉)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-2.png)
+2月10日，盖特发布官方消息，宣布与纳瓦兹建立新的合作伙伴关系。
 
-当地时间2月11日，美国国家安全顾问杰克沙利文，在例行的新闻发布会上对外界表示，白宫呼吁目前仍滞留在乌克兰的美国公民，务必在未来的24-48小时内，迅速撤出该国！
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-200.jpeg)
-据悉，沙利文在星期五的白宫新闻发布会上还着重强调了，鉴于目前俄乌军事对峙局势的不断升级，乌克兰随时都有被莫斯科调集的10万重装优势兵力突袭入侵的可能。如若俄军对乌展开军事打击，届时依然滞留在乌克兰境内的美国公民，将很难获取军事援助撤离该国的途径。换言之，如果不在未来的24-48小时内尽快撤出乌克兰，你的生命将在很大程度上受到俄乌军事冲突所带来的相当威胁，并无法得到有效保障。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-199.jpeg)
-与此同时，包括以色列、英国、澳大利亚、荷兰、日本等十几个国家，也迅速启动了针对本国公民驻乌克兰的紧急撤离程序。结合之前多国开始逐步撤出驻乌克兰使馆工作人及家属的行动来看，国际社会对于当下俄乌之间的军事对峙，上升至大规模武装冲突的预判越发担忧。
+作为英国政治评论员、广播员和前LBC主持人，纳瓦兹是英国领先的独立声音之一，也是受人尊敬的英国反极端主义组织的联合创始人。他将在盖特上发布独家视频，直播和其他内容，而不会遭到审查或取消的威胁。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1173.png)
+盖特首席执行官杰森-米勒说，我们很自豪能够提供一个平台，让像纳瓦兹这样的思想领袖能够分享他们的政治分析，而不会受到被禁止和沉默的威胁。质疑权威和传播思想的能力是任何繁荣的民主制度的基石，盖特很自豪能够站在争取言论自由的最前沿。
 
-与上述多国政府相继紧急启动的驻乌克兰撤侨行动而言，中共北京当局却显得格外淡定，中共驻乌克兰使馆也在不久后对外发布了一则简短的公告，内容是建议目前在乌的中国人尽量留意乌克兰境内的新冠病毒疫情扩散问题，而对于俄乌之间随时一触即发的大规模战事却轻描淡写的一笔带过，更加没有类似如上述十几个国家针对本国驻乌公民，所启动的紧急撤离程序。
+新闻来源:
 
-当地时间2月10日，俄罗斯联邦总参谋部与东哈萨克斯坦地区，签署了一项关于“将哥萨克人引进俄军动员储备区”的战略协议。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-198.jpeg)
-该项战略协议是由东哈萨克斯坦地区的，俄军哥萨克将军尼古拉.多卢达将军，与俄联邦武装部队副总参谋长叶夫根尼.布尔丁斯基上校共同签署的。该项战略协议将赋予俄联邦总参谋部，全权接管哥萨克人加入俄军战备序列的一切授权许可。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-197.jpeg)
-据悉，就在该项战略协议签署当日，位于俄乌边境附近的库班区域，便出现了俄军哥萨克部队进驻前沿阵地的调动部署。这支俄军哥萨克部队是编属在国民近卫军的战斗序列之下。这也标志着俄罗斯总统普京，继1999年的二次车臣战争之后，再次恢复启动大规模征召饶勇善战的哥萨克人，以预备役及合同佣兵的多种形式，混编至俄军现役战斗序列开赴战区参战。
+[GETTR Announces Partnership with British Broadcaster @MaajidNawaz](https://gettr.com/post/ptq3xwcf4c)
 
-当年的车臣之战，是奠定了普京在俄罗斯政坛定海神针的锚定一役，其惨烈程度几乎可以称得上是近代地区武装冲突之最。而哥萨克佣兵在其中起到了至关重要的作用。如今普京二次大规模启用哥萨克佣兵开赴俄乌边境锋线部署，足见该区域的安全稳定性方面已经达到了前所未有的压力临界值。
+G[ETTR Announces Partnership with British Broadcaster Maajid Nawaz](https://about.gettr.com/press/gettr-announces-partnership-with-british-broadcaster-maajid-nawaz)
 
-此文仅代表笔者个人观点！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2-1.jpg)
 
-资料链接：[https://www.dzwww.com/xinwen/guojixinwen/202202/t20220212\_9808555.htm](https://www.dzwww.com/xinwen/guojixinwen/202202/t20220212_9808555.htm)
+编辑：文真
 
-* * *
+总编：Ivy001
 
-***更多资讯***
-[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
-[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
-[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+校正/发稿：浪迹天涯
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

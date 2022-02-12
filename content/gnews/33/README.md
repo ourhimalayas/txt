@@ -2,26 +2,12 @@
 ---
 
 
-## 约翰逊宣布结束英国的强制疫苗护照和口罩制度
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1993855/)
+## 美国市长朱利安尼：美国精英已经完全把灵魂出卖给了中共
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1993958/)
 
-##### 翻译：Lish
-校对：精靈藍
-剪辑|字幕：蛮吉
-编辑：Mttfly
+美国市长朱利安尼：习近平举办冬奥会就犹如1936年希特勒为粉饰德国所举办的奥运会，只不过中共国比纳粹德国走得更远。而所谓的美国精英已经完全把灵魂出卖给了中共这个魔鬼。
 
-近日，英国首相约翰逊在议会宣布不再强制要求疫苗护照，不再强制要求口罩禁令。约翰逊表示：“我们将继续建议在封闭或拥挤的空间使用口罩，特别是当你与你平时不接触的人接触时。但我们将信任英国人民的判断，不再将任何选择不戴口罩的人定罪。”议员们阵阵欢呼，庆祝这一决定的宣布。
-
-视频链接：[Boris Johnson Announces End to Mandatory Vaccine Passports and mask wearing in UK](https://twitter.com/gbrou10/status/1483938256496570374?s=21)
-
-*发布：Mttfly*
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
