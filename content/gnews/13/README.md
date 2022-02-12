@@ -2,175 +2,34 @@
 ---
 
 
-## H-Pay给用户的是最干净直接的信和用，没有任何中间商
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1994726/)
+## 文耀时间｜战友实例分享私人信托设立（二） 上期节目答疑 模拟器计算财富 欧洲信托信息(4)
+` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/1994730/)
 
-[https://gtv.org/video/id=620417a7585ecc15d73f7e05](https://gtv.org/video/id=620417a7585ecc15d73f7e05)
+供稿：中华联邦公民
+发稿：am夏天
+喜马拉雅纽伦堡正义农场
+![](https://assets.gnews.org/wp-content/uploads/2022/02/800-4.png)
+**文耀：**家族信信托、家族基金和家族信托基金有区别吗？
+**武装的羔羊：**我的理解是信托用来隔离我们的资产、保护资产，信托下面的资产比如银行账户、喜币、股票或者物业这些资产就构成了一个独立基金，信托里面的资产叫做信托基金（Trust Fund），但是我上面说的那个叫投资基金（Investment Fund），它是法律上的一种特殊的公司，也是商业公司，但它有许可，能够募集资金，能够构建一个资金池用来投资。
+另外还有一个概念，英文Foundation也翻译为基金，有点类似我们信托中的Trust，能起到保护资产的作用，七哥还提到了荷兰，我也特意查了一下，发现荷兰没有规范化的信托，但是它有私人基金（Private Foundation），它能起到类似信托那样保护资产的作用，这又是另外一种概念，而含有Foundation这个单词的往往是跟某些公益目的有关联。
+**二小姐：**信托和基金是两个概念，信托是因为接受委托，受托人接受委托人的委托，去保护委托人的资产。基金可以募集资金对外投资，家族信托（Family Trust）是管理家族资产用的，家族信托旗下的资产，有物业有金融资产，还有保险什么的，这些资产全都成立信托之后，并非就不管了，还要实现你的资产增值，还要去对外投资，此时你就需要用基金这个工具来实现你的目的，如果用家族信托的名义去成立基金，那这个就叫家族信托基金。这些金融工具信托也好、基金也好，如果只是管理自己的资产，就不需要金融牌照。
+只要是涉及到管理其他人的资产，你就必须接受金融管理局的规管，只有专业人士才能管理他人的资产，那就必须去持有金融牌照证明你是一个专业人士，这种情况下才会需要金融牌照。
+一般都是信托和基金都是交替结合使用的，比如“武装的羔羊”他自己就可以在信托上分这么多层出来，在BVI Trust那一层你也可以添加分枝，成立一个基金，这个架构是可以改动的，可以是信托也可以是基金，不同的目的就使用不同的工具，要投资的话就可能会用到基金，如果说你是传承、资产管理的话，就会用到信托，需要自己灵活运用。
 
-所有的所谓的, 后来的, 现在的咱们看到影子金融
-Todo lo que es el llamado “futuro”, ahora lo que vemos de las finanzas en la sombra
+**文耀**：信托就好比是一个大篮子，家族信托就是放在里面的一个工具，还有很多种其它的工具，对于大部分没有金融经验的战友来说，只要跟着新中国联邦走就可以了，比如七哥让我们投GTV，那我们就投GTV，并放到信托里；明天GENWS的股票又出来了，我们接了以后还是放到信托里，然在篮子上再加个盖，让别人不知道篮子里有什么，也不知道篮子是谁的。
 
-还有所谓的基金
-Y también lo que son los fondos
+**KillCCP：**基本上两亿美元的规模才会去设立基金，如果就两三千万或者说几百万美元就去开设基金，一年要交几万美元的费用，一年1%就没了都会觉得心疼，但是要是两亿的规模，一年就收个万分之一，然后还可能有升值，那这万分之一就不是事了，下面我会分析一下为什么我们能达到两亿这个级别。另外一个就是基金本身不管关系多复杂，跨出去的第一个坎就是你能不能把自己的资产放出去，把所有权去掉交由别人去经营，很多人在没成立基金的时候可能说起来很容易，但真要让你签字的时候手会抖的，放出去就真的不是你的了。
+七哥在大直播的时候就说你们每个人都要成立自己基金，要跟有牌照的人合作，让战友要加进来一起投，而且七哥反复提到过成立自己的投资基金的问题，那么我在网上搜索的时候，我也看到过一个结构，投资基金在信托的结构里面，投资基金分为家族自有财产，就是家族资金或家族投资，另外一个是具备管理第三方资金的基。我的理解是当我们所有的战友都有自己的基金并经过联盟认可的时候，等于是新中国联邦有无数个基金、无数个银行账号，就有无数个点可以对接，这样的话CCP想要去阻拦我们的投资几乎是不可能的。当这种规模形成之后，不管是墙内还是墙外的战友或者第三方，都可以投资到我们的基金里面来，大家一起去投资项目，相当于新中国联邦的基金池。
+我在网上看到的结构中私募基金放在信托架构之中，比如从绿色的BVI Holding Company那一层再伸出一个投资基金的旁枝，投资基金它本身就是一家公司，只不过公司运营的主要目的是私募投资，那么这个公司就需要金融牌照。在构建信托之后，我们任何人在需要的时候都可以在信托结构的旁边设立这样一个投资基金或私募基金，这个基金依然包括在信托结构里面。
 
-全是基金里生出骗人的招
-Todo es una estafa nacida de estos fondos
+**Nick：**另外还有一个问题，“武装的羔羊”战友在跟律师、会计师沟通的时候，你是怎么样得出这样的信托结构？因为我问了好几家律师事务所、会计公司，跟他们交流之后，我把我的需求提交给他们，得到的结果几乎都只止于紫色的PTC，PTC之上的都没有涉及，所以受托人相当于就是他们自己，由他们的信托服务公司来提供服务。我想了解一下跟代理人沟通的时候在哪一个点？在你提出来要求之后，他们给了你这样的一个结构，告诉你这个就可以达到目的。
 
-没有一件是创造财富的, 全是假的
-No hay una sola cosa que crea riqueza, todo es falso
-
-这个货币金融的本质就是物物交换
-La esencia original de esta financiación monetaria es el trueque
-
-生产力的价值等同
-La productividad vale lo mismo
-
-法币就是法币和数字币
-La moneda fiduciaria es moneda legal y moneda digital
-
-也就是法币, 非法币
-Quiere decir la moneda fiduciaria y la moneda ilegal
-
-现在有了人类, 有了技术能实现过去技术达不到
-Ahora están los seres humanos y la tecnología para poder lograr lo que no pudimos alcanzar con la tecnología en el pasado
-
-它把人给你物理上消灭
-Eso destruye físicamente a las personas
-
-给你抓住了, 你怎么做呀
-Ya te atrapé, cómo vas a hacer
-
-你不能掂着黄金到处跑啊
-No puedes andar con el oro por todas partes
-
-它需要一个时间
-Eso se necesita un tiempo
-
-需要一个技术
-Se necesita una tecnología
-
-它需要一个人的需要
-Requiere la necesidad de una persona
-
-人类从来没像今天发现花钱比挣钱难
-Los seres humanos nunca se han dado cuenta como hoy en día que gastar dinero es más difícil que ganar dinero
-
-而且越花钱越少
-Además, es menos lo que cada vez puedes gastar
-
-手续费, 税务, 转一次交一回税
-Tasa de tramitación, impuestos, pagas impuesto cada vez que hagas transferencia
-
-转一次又一回税, 这种重复交税
-Transfieres otra vez y pagas otro impuesto, este tipo de doble impuesto
-
-没有一个国家给你答案的
-No hay ningún país que te pueda dar una respuesta
-
-你知道人类上现在最大的问题
-Sabes el mayor problema que tiene los seres humanos ahora
-
-你看所有的国与国协议都是避免重复交税
-Mira a todos los convenios entre países son para evitar la doble imposición
-
-我很小很小的时候, 我从十几岁开包子铺
-Cuando estaba muy pequeño, desde los diez y pico de años abrí una tienda donde vendía pan relleno
-
-我就在看这个报导
-Yo veía este reportaje
-
-什么国与国之间避免重复交税
-Que si entre países se evitaban la doble imposición
-
-那么到今天也没做到
-Pero hasta el día de hoy no lo han logrado
-
-我们给大家要的什么
-Qué es lo que les queremos dar
-
-就是信和用
-Es la confianza y el uso
-
-千叶草妹妹相信七哥是吧
-Hermana Qian Yecao confías en mi, cierto
-
-你给我1000个币
-Tú me das 1000 monedas
-
-七哥现在给我1000个币
-Ahora Miles me da 1000 monedas
-
-我就给你
-Te la doy
-
-我今天就把上衣给你脱了, 是吧
-Hoy me quito la camisa para dártelo, cierto
-
-那就脱了, 它这事完了
-Entonces me desvisto, este asunto se culminó
-
-我干嘛我非得给爱德华交20%的税去啊
-Por qué tengo que pagar el 20% de impuesto a Edward
-
-我为什么
-Por qué
-
-那千叶草说七哥
-Y Qian Yecao dijo que yo
-
-现在我给你1000个币
-Ahora te doy 1000 monedas
-
-你把你的上衣脱了, 行, 七哥把裤子都脱了
-Te quitas la camisa, está bien, me quito hasta los pantalones
-
-那就是完成了这交易啊, 它有什么问题
-Así se realiza esta transacción, qué problema tiene
-
-什么叫信用, 所有的信用
-Qué es el crédito, todo crédito
-
-所有的金融体系是政府掠夺财富
-Todo el sistema financiero es el gobierno saqueando riquezas
-
-纳税的需要, 统治的需要
-La necesidad de pagar impuestos, la necesidad de gobernar
-
-但这个系统里边没有统治
-Pero dentro de este sistema no hay regla
-
-没有纳税, 没有剥削的需要
-No hay pago de impuestos, no hay necesidad de explotación
-
-所有的价值就是你我之间双方的信和用
-Todo el valor está entre la confianza y el uso entre tu y yo
-
-你信吗? 信, 用吗? 用, 信用咱俩完成
-¿Confías? Si, ¿lo utilizarás? Si, el crédito se alcanza entre nosotros dos
-
-我就是把你信用完成这个工具叫H-pay喜币
-Acabo de completar esta herramienta llamada H-pay, moneda de Himalaya con tu crédito
-
-* * *
-
-日期：02/08/2022
-原视频标题：H-Pay给用户的是最干净直接的信和用，没有任何中间商
-H-Pay brinda a los usuarios el crédito más limpio y directo, sin intermediarios
-原视频日期：02/05/2022
-原视频网址：**[https://gettr.com/post/psjj13d2c4](https://gettr.com/post/psjj13d2c4)**
-任务编号：KC449（3675）
-视频时间段：0:00-02:10
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场-小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场-文新
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+**武装的羔羊：**我在沟通之前自己先做了一些功课，然后我直接就问能不能帮忙设立私人信托，并没有拐弯抹角。他说可以，因为他们一类信托执照，并给我一个结构建议，然后我就根据我的理解与个人情况作了一些调整，最终得到了这个结构图。我联系的那个律师正好就是在BVI搞信托的，对于不是很熟悉信托的客户他们一般都不建议PTC。在我的理解里面他们除了收取注册费，还有一个收入就是作为我们的受托人收取一部份管理费，如果说我们自己做私人信托，自己做受托人，那他收入就减少了。
+结构图最上方的灰色部分属于VISTA信托，是为了保证PTC能够正常运作，目的是100%持股PTC，灰色这个结构可以是代理人，如果是代理人持股每年要付给他管理费，约一两万块美元。其实我们可以再延伸一下，你再注册另外一个PTC，由第二个PTC来持有结构图中紫色PTC的股份，这样就不用交纳管理费了。
+结构精简之后后续每年的维护费用基本上可以做到一万美元以下，但所有的事情都需要我们自己去打理，基本上我们只需要支付绿色的BVI Holding Company，以及两个PTC的年费。
+当我们有了这种信托结构，达到保护我们资产的目的之后，我们就可以设立一个投资基金，这个需要金融牌照，目的是可以把战友、亲人的资金集中在一起用于投资。投资基金是一个公司实体，可以安放在绿色的BVI Holding Company 下面，也可以放在PTC下面，PTC下面可以有多个控股公司。
+**二小姐：**基金可以都放在PTC里面，多发几个基金也可以，也有以GP、LP的形式，只不过只是管理自己亲戚的资金，并且募集起来不超过一定人数和资金限制的话，可以无需金融牌照，这些可能都属于后期探讨了，架构可以根据自己的需要进行调整。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1195.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

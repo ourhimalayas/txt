@@ -2,37 +2,102 @@
 ---
 
 
-## 《避风港Haven》直播内容精选（第八集·上）
-` 喜马拉雅纽约磐石农场` [轉載自GNews](https://gnews.org/zh-hans/1994534/)
+## 苹果和谷歌通过禁止中国人下载允许活动人士绕过中共严格审查的应用程序来保护北京
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1994651/)
 
-视频制作：黑嫂子
-各国病毒感染率与疫苗接种率直接相关，视频里的数据显示从2020年1月28日起，每天每百万人中新确认新冠的案例。数据显示，美国英国均处在大约每百万人中每天有2500以上的案例。与之截然不同的是，印度和非洲从一开始就处在感染率较低的水平，原因是他们均服用伊维菌素和羟氯喹作为预防和治疗。同时值得注意的是，所有遵从CDC，FDA和WHO，给人们疯狂接种新冠疫苗的国家，感染率不但没有得到控制，反而都处在数据里感染率较高的位置，尤其是已经开始接种第4针的以色利，每天每百万人里有10968个案例，他们的高感染率现状惊人，数据已超出了表格。
+[https://gtv.org/video/id=62041626585ecc15d73f7d9a](https://gtv.org/video/id=62041626585ecc15d73f7d9a)
 
-这些数据足以证明施打疫苗根本无效。我只能用这些国家的政府是为完成施打疫苗的任务而强迫民众施打来理解现在的局面。又是谁布置的任务?
+Senator Marsha Blackburn
+参议员玛莎·布莱克本
 
-美国新冠重症联盟专家在国会听证会做证指出：英国公共卫生部门发布的数据表明mRNA疫苗接种者不产生抗核衣壳蛋白抗体，而仅仅针对病毒表面的刺突蛋白产生抗体。这意味着疫苗在破坏人体的天然免疫能力，让天然免疫应答的能力变弱。
+Now of course much of that discussion has centered around the Olympics
+当然，现在大部分讨论都围绕着奥运会
 
-mRNA疫苗和DNA重组疫苗都是单一针对刺突蛋白的设计，只有灭活/减活疫苗才具有完整的病毒物质。整个病毒核膜上除了S蛋白，还含有M蛋白，N蛋白，E蛋白，HE蛋白等等，目前这些疫苗对于除刺突蛋白以外的其它核衣壳蛋白毫无抵抗力，过多的S蛋白对人体天然免疫细胞，如免疫细胞CT4，CT8反而产生抑制，从而减弱人体的免疫力和抗癌能力，导致免疫低下。
+Because there is an app you have to download on your burner phones
+因为你必须在一次性的机手机上下载一个应用程序
 
-所以只有伊维菌素，硫酸羟氯喹才能控制疫情，减少发病率，减少死亡率！
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_3207.jpg)
-下面这段视频，Eglise医生谈伊维菌素非常重要，副作用低。
-视频剪辑：黑嫂子
-[《避风港Haven》Gtv直播链接：第八集](https://gtv.org/video/id=6202cbfe3621aa7415d7bb96)
+since you can’t take your own phone
+因为你不能用你自己的手机
 
-[Eglise医生关于Omicron病毒预防及治疗建议方案 – 更新版](https://gnews.org/zh-hans/1853397/)
+And it is available through the Apple App Store
+它（应用程序）可以通过苹果商店获得
 
-[Eglise医生关于新冠預防及治療建議方案Omicron更新版（均飯後服用）](https://gnews.org/zh-hant/1853467/)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/c3c69d5a-2260-42ac-8ccb-0afa54284a38.jpg)美工设计：女农![](https://assets.gnews.org/wp-content/uploads/2022/01/9f90a4ad-5c07-4d1e-9259-afb28d50f076.jpg)美工设计：女农
-文案：Eglise/万物有灵
+And this is one of the reasons as I said earlier
+这就是我之前所说的原因之一
 
-听写/整理：Gloria
+we need these non discrimination policies
+我们需要这些非歧视政策
 
-视频：黑嫂子
+But the important thing to realize with this, what Apple is doing
+但重要的是要意识到这一点，苹果正在做的是
 
-编辑发布：Jenny
-![](https://assets.gnews.org/wp-content/uploads/2022/01/磐石discord.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/b3df4b36-df11-4361-a8f5-6c7e5f9da569.jpg)
+is with this app that you have to download for the Olympics
+你必须为奥运会下载这个应用程序
 
+if you’re going to the Olympics, if you’re an athlete
+如果你要去参加奥运会，如果你是一名运动员
+
+if you participate, then the Chinese Communist Party has access
+如果你参与，那么中国共产党就可以取得
+
+and I would they probably say they have ownership of that data
+而且他们可能会说他们拥有这些数据的所有权
+
+they can surveil you they can track you
+他们可以监视你，他们可以跟踪你
+
+If you download that digital you want and they are in your wallet
+如果你下载了应用程序，它就像留在了你的口袋里
+
+They know who you’re communicating with
+他们知道你在和谁交流
+
+They are able to surveil and audit those conversations
+他们能够监视和审核这些对话
+
+So we’re quite concerned about the security
+所以我们非常关注安全性
+
+and safety of those Olympians while they are there
+和那些奥运选手在那里的人身安全
+
+And also John, let me add for developers and innovators
+另外，约翰，让我为那些想在App Store上推销他们的
+
+that want to market their app on the App Store
+应用程序的开发者和创新者补充一下
+
+Apple is taking 30% of that cost
+苹果会拿走30%的费用
+
+So if we can pass our bill
+因此，如果我们能够通过这个的法案
+
+it is going to be security and protections for consumers
+这将是对消费者的安全和保护
+
+It also is going to lower the cost of the app
+它还将降低应用程序的发行成本
+
+* * *
+
+Date:02/07/2022
+原视频标题: Apple and Google are protecting Beijing by banning people in China from downloading apps that would allow activists to circumvent the CCP’s strict censorship
+苹果和谷歌通过禁止中国人下载允许活动人士绕过中共严格审查的应用程序来保护北京
+原视频日期：2022/02/07
+原视频链接:[**https://twitter.com/marshablackburn/status/1490501700746108937?s=24**](https://twitter.com/marshablackburn/status/1490501700746108937?s=24)
+任务编号：3691
+视频时间段 : 0:00-1:34
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-文新
+审片：洛杉矶盘古农场-银龙
+发布 ：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

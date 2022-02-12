@@ -2,103 +2,49 @@
 ---
 
 
-## 苹果和谷歌通过禁止中国人下载允许活动人士绕过中共严格审查的应用程序来保护北京
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1994651/)
+## 美国政府对中共的制裁措施及对中共官员的影响
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1994688/)
 
-[https://gtv.org/video/id=62041626585ecc15d73f7d9a](https://gtv.org/video/id=62041626585ecc15d73f7d9a)
+撰稿：三只松鼠
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1-15.jpg)图片来自网络
+2018 年 1 月 1 日至2021 年10月31日，美国财政部、商务部、司法部、国务院、联邦通讯委员会、 国防部、总统行政办公室、移民局等部门对超1000家实体或个人实施制裁。
 
-Senator Marsha Blackburn
-参议员玛莎·布莱克本
+统计显示，美国财政部、商务部、司法部、国务院是对华制裁的主要实施部门，前述四部门2018年以来对 725 家中国实体和 241 名个人实施了制裁。自“9·11”事件之后，经济和金融制裁已经成为美国应对国家安全、外交政策和经济威胁的首要工具。
 
-Now of course much of that discussion has centered around the Olympics
-当然，现在大部分讨论都围绕着奥运会
+美国财政部是美国实施经济和金融制裁的重要部门。在美国制裁体系中，美国国会和总统发挥决策作用。国会制定与金融制裁相关的法案，总统根据相关法案签发行政命令以实施金融制裁。
 
-Because there is an app you have to download on your burner phones
-因为你必须在一次性的机手机上下载一个应用程序
+财政部根据总统的行政命令实施经济和金融制裁。在财政部内部，外国资产控制办公室（Office of Foreign Assets Control, OFAC）是实施制裁的主要主体。OFAC根据总统的行政命令以及具体立法的授权，负责管理和执行经济和贸易制裁，控制美国管辖范围内的交易并冻结相关资产。
 
-since you can’t take your own phone
-因为你不能用你自己的手机
+美国近期频繁使用对华制裁，制裁手段也不断升级，贸易、科技、金融、文化、人权多领域多点施压，新冠肺炎、香港问题、新疆问题、南海问题四处攻击。几乎是以每周一个的频率密集投放“重大炸弹”。特别在中美科技领域，特别是半导体、人工智能、数据安全、生物医药领域，涉及出口管制与经济制裁的风险进一步提高。
 
-And it is available through the Apple App Store
-它（应用程序）可以通过苹果商店获得
+拜登政府近来在经贸领域的动作会和人权、安全、经济利益观结合在一起，而不是单纯地打击中国的科技、技术。无论是川普政府还是拜登政府，对践踏自由、侵犯人权的中共官员实施制裁上，具有连续性和一致性。
 
-And this is one of the reasons as I said earlier
-这就是我之前所说的原因之一
+而被美国制裁的中共官员主要分三种情况：一是侵犯香港的自治与自由；二是侵犯人权，包括侵犯香港人、新疆人、法轮功学员、人权活动人士等的人权；三是违反美国的《以制裁反制美国敌人法案》。
 
-we need these non discrimination policies
-我们需要这些非歧视政策
+制裁措施主要包括三种：一是签证制裁，被制裁对象及其家人不准进入美国；二是冻结被制裁对象在美国的资产，禁止在美国进行交易，或利用美国掌控的金融工具进行交易；三是“二级金融制裁”，即对所有与被制裁对象有业务往来的金融机构或个人实施制裁。违反制裁令的金融机构或个人，将禁止向美国金融机构借贷、禁止银行交易、禁止外汇交易、限制商品或技术出口等。
 
-But the important thing to realize with this, what Apple is doing
-但重要的是要意识到这一点，苹果正在做的是
+官员个人被美国制裁后，除了冻结个人在美财产，被制裁者个人和近亲亲属都无法进入美国，已经进入的则会被驱逐。不能再使用任何美国商家提供的技术和服务。
 
-is with this app that you have to download for the Olympics
-你必须为奥运会下载这个应用程序
+你不能使用谷歌，微软开发的软件，windows都不能用。因为这些都是美国公司开发的，这意味着你基本上和网络绝缘了。被制裁者也无法使用美国金融系统和其他美国中间服务商提供的服务，就连非美国银行也不敢冒险，因为，世界上的任何银行，都离不开美元结算系统，不敢冒着被踢出国际货币结算系统的风险来为你服务。这就是美国作为国际金融中心，美元作为国际货币下，美国制裁的巨大影响力。
 
-if you’re going to the Olympics, if you’re an athlete
-如果你要去参加奥运会，如果你是一名运动员
+针对具体的中共官员实施制裁，其效果是非常大的。不管某些中共官员在公开场合如何唱高调，事实上他们都受到巨大压力与冲击，因为这些措施实实在在影响到他们本人、他们的配偶、子女、孙子女乃至二奶、三奶、私生子女等等。
 
-if you participate, then the Chinese Communist Party has access
-如果你参与，那么中国共产党就可以取得
+目前在美国国会，无论众议院还是参议院，无论民主党还是共和党，无论他们在其它问题上有多少分歧，在反制中共威胁的议题上，两院两党都高度一致。美国政府对中共官员的制裁措施，都是基于美国国会通过的相关法案。
 
-and I would they probably say they have ownership of that data
-而且他们可能会说他们拥有这些数据的所有权
+面对制裁，中共一味抵赖，反称美国“以疆制华”、“干涉中国内政”等等习惯性诡辩，这些对墙内群众仍有很大迷惑性。
 
-they can surveil you they can track you
-他们可以监视你，他们可以跟踪你
+目前以文贵先生引领的爆料革命战友们正在积极帮助世界众多民众获得真实的资讯，让中国人民和世界人民认清中共的本质和罪恶，这是至关重要的。如今，中南坑红墙也是摇摇欲坠，正义必将击败邪恶，真相必将引领人们获得真正的自由。
 
-If you download that digital you want and they are in your wallet
-如果你下载了应用程序，它就像留在了你的口袋里
+参考消息：
 
-They know who you’re communicating with
-他们知道你在和谁交流
+[王友群：盘点被美国制裁的45名中共官员](https://www.aboluowang.com/2021/0514/1592842.html)
 
-They are able to surveil and audit those conversations
-他们能够监视和审核这些对话
+[分析丨《美国对华制裁数据解读》：在不确定的时代前行](https://www.eet-china.com/mp/a101459.html)
 
-So we’re quite concerned about the security
-所以我们非常关注安全性
+[美国财政部2021年制裁报告概要及简评](https://new.qq.com/omn/20211101/20211101A05ZLL00.html)
 
-and safety of those Olympians while they are there
-和那些奥运选手在那里的人身安全
-
-And also John, let me add for developers and innovators
-另外，约翰，让我为那些想在App Store上推销他们的
-
-that want to market their app on the App Store
-应用程序的开发者和创新者补充一下
-
-Apple is taking 30% of that cost
-苹果会拿走30%的费用
-
-So if we can pass our bill
-因此，如果我们能够通过这个的法案
-
-it is going to be security and protections for consumers
-这将是对消费者的安全和保护
-
-It also is going to lower the cost of the app
-它还将降低应用程序的发行成本
-
-* * *
-
-Date:02/07/2022
-原视频标题: Apple and Google are protecting Beijing by banning people in China from downloading apps that would allow activists to circumvent the CCP’s strict censorship
-苹果和谷歌通过禁止中国人下载允许活动人士绕过中共严格审查的应用程序来保护北京
-原视频日期：2022/02/07
-原视频链接:[**https://twitter.com/marshablackburn/status/1490501700746108937?s=24**](https://twitter.com/marshablackburn/status/1490501700746108937?s=24)
-任务编号：3691
-视频时间段 : 0:00-1:34
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-文新
-审片：洛杉矶盘古农场-银龙
-发布 ：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+编辑：云彩
+![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
