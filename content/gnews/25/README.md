@@ -2,28 +2,26 @@
 ---
 
 
-## 盖特与纳瓦兹建立合作关系
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1994309/)
+## 台湾使用HPAY完成第一台汽车交易
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1994357/)
 
-撰稿：日本东京方舟农 – Miyali7768(文玉)
+署名: 纽约香草山医疗部 – 云豹
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-2.png)
-2月10日，盖特发布官方消息，宣布与纳瓦兹建立新的合作伙伴关系。
+2月10日，台湾农场的大牛及政清团队直播使用HPAY购买及交付第一辆汽车的实况。交易标的是一台2019年出厂的宝马 X3休旅车二手车，交易金额约为1200 HCN。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1174.png)
+购车的买主是在HCN 21美元左右时进场购买喜币的。以交易价1195个喜币来计算，买主花费的成本价约为25095美元。以10日喜币价格48美元来计算，买主已经省了一半以上的价钱。买卖双方当场使用HPAY，瞬间就完成了买车价金的传送。
 
-作为英国政治评论员、广播员和前LBC主持人，纳瓦兹是英国领先的独立声音之一，也是受人尊敬的英国反极端主义组织的联合创始人。他将在盖特上发布独家视频，直播和其他内容，而不会遭到审查或取消的威胁。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1173.png)
-盖特首席执行官杰森-米勒说，我们很自豪能够提供一个平台，让像纳瓦兹这样的思想领袖能够分享他们的政治分析，而不会受到被禁止和沉默的威胁。质疑权威和传播思想的能力是任何繁荣的民主制度的基石，盖特很自豪能够站在争取言论自由的最前沿。
+据卖家台湾农场大象表示，他选择以喜币交易，好处是可以省去被信用卡公司抽取的手续费、货款可以瞬间入账不必经由银行造成延迟收款、也可以享受未来喜币预期的涨价空间。另外，由于买卖家同为台湾农场的战友，卖家愿意在收到货款前就先办理该汽车的过户登记，显示了战友间的相互信任。
 
-新闻来源:
+此次成交的车辆，是事先公告在Gettr上供人阅览、买主在阅览盖特上的内容后，自行与卖家联络，最后成交的。这也显示盖特发挥了商业价值。这次结合盖特、H PAY、HCN、GTV整个系列的运作，让整个汽车交易过程得以完美呈现。G 系列的实用性及魅力正逐渐显现在日常生活中。
 
-[GETTR Announces Partnership with British Broadcaster @MaajidNawaz](https://gettr.com/post/ptq3xwcf4c)
+新闻连接: [台灣第一台使用Hpay支付車輛交車](https://gtv.org/video/id=62052bf0a1fe5e57a426578d)
 
-G[ETTR Announces Partnership with British Broadcaster Maajid Nawaz](https://about.gettr.com/press/gettr-announces-partnership-with-british-broadcaster-maajid-nawaz)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2-1.jpg)
+编辑:飞虹
 
-编辑：文真
-
-总编：Ivy001
+总编: Jack Li文阳
 
 校正/发稿：浪迹天涯
 

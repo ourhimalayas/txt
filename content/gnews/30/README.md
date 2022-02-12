@@ -2,36 +2,24 @@
 ---
 
 
-## 印尼向法国和美国购买战斗机以应对亚太地区局势
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1994106/)
+## 中日财经爆┃美国电费翻三倍 物价创纪录 入店行窃增加
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1994288/)
 
-整理：Eileen（围剿维尼熊）
-编辑：小红帽
+撰稿：东京樱花团/向海
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-18.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimage.shutterstock.com%2Fimage-vector%2Fcpi-consumer-price-index-concept-260nw-1537289546.jpg&amp;imgrefurl=https%3A%2F%2Fwww.shutterstock.com%2Fimage-vector%2Fcpi-consumer-price-index-concept-big-1537289546&amp;tbnid=9xIbXzmUOgju0M&amp;vet=12ahUKEwjayO_OzPn1AhW0I6YKHZc7AsMQMyggegUIARCDAg..i&amp;docid=GOPuc9XySpxo_M&amp;w=473&amp;h=280&amp;q=CPI&amp;ved=2ahUKEwjayO_OzPn1AhW0I6YKHZc7AsMQMyggegUIARCDAg#imgrc=9xIbXzmUOgju0M&amp;imgdii=P6oi7QnYUvxHYM)
+在创纪录的价格继续上涨的美国，一些地区的电费几乎翻了三倍。纽约市的家庭电费，单位电价增加了大约是上个月的三倍。电力公司将其归因于天然气价格上涨。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/6-10.png)图片来源：雅典娜设计组（614）
+此外，纽约警察局发现，由于物价上涨，入店行窃比两年前增加了 15%。某连锁超市中，肉类、冰淇淋、洗洁精等物价上涨幅度较大的物品盗窃事件屡见不鲜。
 
+美国 1 月份消费者价格指数增加了7.5%，为 40 年来的最高涨幅。
 
-根据《德国之声》中文网2月11日报道， 印尼于2月10日向法国订购了42架阵风战斗机，并可能购买两艘法国潜艇。同时，美国也批准印尼以140亿美元购买36架F-15战斗机，以应对亚太地区日益紧张的局势。
+信息来源：
 
-该消息是在印尼国防部长苏比安托 (Prabowo Subianto) 与法国国防部长帕利 (Florence Parly) 在雅加达会面时宣布的。
+[電気代「3倍」に万引き増加…米で記録的な物価上昇](https://news.yahoo.co.jp/articles/47a5e0ca04ae5f95b1d6a19388a9b4db0403c18d)
 
-此次是印尼为了更新由美国F-16战机与俄罗斯苏霍伊战机组成的机队，首次向法国订购阵风战斗机。
-
-法国国防部表示，这42架飞机及其武器的合同价值81亿美元，法国和印尼还签署了一份研究和开发意向书，其中，印尼将向法国订购两艘鮋鱼级(Scorpene)潜艇。
-
-法国总统马克龙 (Emmanuel Macron) 对印尼选择法国军事设备的决定表示欢迎并表示阵风战斗机交易将加强两国之间的伙伴关系。
-
-参考链接：[印尼向法国购买数十架战机 美国预告对印尼军售](https://www.dw.com/zh/印尼向法國購買數十架戰機-美國預告對印尼軍售/a-60739179)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

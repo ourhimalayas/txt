@@ -2,197 +2,184 @@
 ---
 
 
-## 喜支付体现人类无条件支付的本能
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1994476/)
+## 美国将在经济危机后有新的腾飞
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1994577/)
 
-[https://gtv.org/video/id=6205b50bb0af02660af230c2](https://gtv.org/video/id=6205b50bb0af02660af230c2)
+[https://gtv.org/video/id=6205b61db0af02660af2311b](https://gtv.org/video/id=6205b61db0af02660af2311b)
 
-它一下就秒到了
-Por qué eso llega en cuestión de segundo
+所以这次经济危机会让美国一次新的腾飞
+Por eso EE. UU tendrá un nuevo despegue tras la crisis económica de esta vez
 
-我们这叫在线支付
-Nosotros lo llamamos “pago en línea”
+但是不要忘了
+Pero no olviden
 
-我们不是在线买卖
-Esto no es compra y venta en línea
+这就是美国的另外的一面, 资本市场的残忍
+Esta es la otra cara de EE. UU, la crueldad del mercado capital
 
-只要对方是卖车的
-Si la otra persona quiere vender el carro
+它每次经济危机之后
+Luego de cada crisis económica
 
-还有卖画的
-Y el que vende cuadros
+会把所谓一些大佬们
+Eliminarán a los llamados Boss
 
-咱俩说好了叫约定式付款
-Si nosotros dos ya acordamos esto se llama “pago convenido”
+所谓英雄们淘汰掉, 非常残忍
+Y a los héroes, es muy cruel
 
-跟这个交易没毛关系
-No tiene ninguna relación con esta transacción
+你现在很难想起来美国在过去二三十年所谓的
+Ahora se te hace difícil recordar en los pasados 20 a 30 años EE. UU
 
-可人类给它设定好了身份证、年龄、资金来源
-Pero el ser humano lo configuró con cédula de identidad, edad y fuente de fondos
+科技大佬
+Los Boss de la tecnología
 
-这是全人类最黑暗的金融时代
-Esta es una Era financiera más oscura en toda la humanidad
+你给我数几个
+Sácame la cuenta
 
-就是因为它造了太多假
-Porque en eso se hacen muchas falsificaciones
+我看看, 你能数出几个出来
+Voy a ver cuántos puedes contar
 
-我们有个战友 台湾的
-Tenemos un compañero luchador de Taiwán
+你数不出来, 美国人都忘记
+No lo podrás contar, si hasta los mismos estadounidenses lo olvidaron
 
-这不在我们农场的战友
-No está en nuestra finca
+这个国家只往前看, 从来不往后看
+Este país sólo mira hacia adelante, nunca hacia atrás
 
-一位女士 很棒的
-Una excelente dama
+所以在美国这个国家, 很少人说后悔这个词
+Por eso en EE. UU, pocas personas mencionan la palabra “arrepentimiento”
+在美国这个国家也很少人说
+En EE. UU muy pocas personas lo dicen
 
-我的老朋友了 93岁今年
-Es mi viejo amigo, este año cumple los 93 años
+Unfair就是不公平
+Unfair es injusticia
 
-她说文贵
-Ella dijo: “Wengui
+很少人说, 不像中国人, 啥都不公平
+Pocas personas lo dicen, no como los chinos que les parece injusto cualquier cosa
 
-我就等着这个
-Yo he estado esperando esto”
+这国家就是胜者王侯败者寇
+En este país, el vencedor es el rey y el perdedor es el bandido
 
-所以说人这个智商
-Por eso el coeficiente intelectual de una persona
+你别扯淡, 都往前看
+No digas tonterías, miran hacia adelante
 
-我在说这个93岁的一个台湾人
-La taiwanesa de 93 años que estoy diciendo
+这个国家是每次经济危机之后
+Este país, después de pasar por cada crisis económica
 
-昨天下午上线
-Ayer en la tarde se conectó
+财富转移完又来一波, 科技升新把老的干掉一波
+Después de la transferencia de riqueza viene otra ola, la nueva tecnología matará a la antigua
 
-她咔咔咔就转几笔
-Y así de la nada ya hizo varias transacciones
+当年我在旧金山
+Estuve en San Francisco en aquel año
 
-人家93岁了
-Ella tiene 93 años
+我认识了咱们华人的几个所谓大佬
+Conocí a nuestros algunos llamados Boss chinos
 
-人家啪啪啪自己处理完
-Y en un dos por tres ella misma resolvió
+费正清当年就是美国
+En aquel año, Fei Zhengqing en EE. UU
 
-她说七哥
-Ella dijo “Miles
+就是知中派, 他的下边这帮人
+Era quien sabía todo de China, la gente debajo de él
 
-我把我这个手里边120万HDO
-Yo transferí 1.2 millones HDO que tenía en la mano
+我跟他们打交道
+Tenía contactos con ellos
 
-转了还剩一万多
-Ahora me quedan 10 mil y pico”
+我就一个最大的感受
+Tenía el mayor sentimiento
 
-就这么简单
-Así de fácil
+我每次到旧金山来
+Cada vez que iba a San Francisco
 
-而且就用自己的手机
-Además, con su propio celular
+跟这帮人接触都有一帮
+Hay una pandilla en contacto con este grupo de personas
 
-大家记住第一个功能的核心
-Todos recuerden la primera función esencial
+年轻人的介入, 都是小孩学生
+La intervención de los jóvenes y todos son estudiantes
 
-无条件的交易支付
-Pago de transacción incondicional
+你再次来时候这些学生都走了
+Cuando ibas de nuevo, ya estos estudiantes se fueron
 
-是你一生中找回你人类的财富的最本能
-Es el mayor instinto en la vida para recuperar tu riqueza humana
+都去成功了
+Todos salieron con éxito
 
-第二条 买画
-Segundo, comprar cuadros
+后来这些人我发现都去了哪儿
+Luego me dí cuenta a donde se fueron esta gente
 
-吃饭、餐厅
-Comer, los restaurantes
+就是后来的Facebook, 谷歌, Youtube
+Es lo que ahora sabemos, Facebook, Google, Youtube
 
-只要你足够有智慧
-Si tienes suficiente sabiduría
+推特
+Twitter
 
-你能省下完全
-Te podrás ahorrar totalmente
+都去发财了, 都走了
+Todos fueron a hacerse ricos
 
-你不需要过去支付的5%、10%、20%的钱
-No necesitas ir a pagar como en el pasado el 5, 10, 20% de dinero
+然后那些老人家还在, 还在那儿呢
+Y esos viejos todavía están, ¿dónde están?
 
-包括所有全世界的交易都是要付交易费
-Incluyendo todas las transacciones del mundo entero, debes pagar una tarifa por transacción
+还搞中美关系呢
+Todavía estaban revolviendo las relaciones chino-estadounidense
 
-这是给你0, 这个问题
-Este te está dando 0, este problema
+后来我明白了
+Luego comprendí
 
-七哥跟他们奋斗了很长时间
-Yo tuve una lucha muy larga con ellos
+在美国说玩政治是最傻的, 一帮傻货
+Los que juegan con la política en EE. UU son los más tontos, un montón de tontos
 
-就那个王八蛋律师特别坏，他说
-Ese abogado infeliz muy malo, dijo
+最笨的一帮笨蛋, 聪明人
+Son un grupo de idiotas más idiotas, gente inteligente
 
-必须收1.52什么高收费呀高风险
-Debes cobrar 1.52, que si tarifa alta, alto riesgo
+全都搞玩政治就去搞钱去了, 所以在美国这个
+Luego de jugar a la política, se dirigen a ganar dinero, por eso en EE. UU
 
-我说你
-Le dije
+国家你能看得出来搞政治的一帮都是傻球货
+Puedes notar los que salen a participar en la política son unos tontos
 
-要收1毛钱我就不
-Si tu vas a cobrar un centavo
+都是没什么本事的人, 有本事都是
+Son aquellos que no tienen capacidad, los que son capaces
 
-不会让新中国联邦任何人用你这个东西
-No dejaré que ninguno del Nuevo Estado Federal de China utilice esta cosa tuya
+搞钱搞技术, 搞哲学去了
+Ya fueron a enfocarse en el dinero, la tecnología y la filosofía
 
-必须是0交易
-Debe ser transacción 0
+所以说这次
+Por eso esta vez
 
-为什么，我说我们战友没事了
-Por qué, le dije que nuestros compañeros luchadores si no tienen nada que hacer
+美国好莱坞大洗牌, 科技大洗牌
+Habrá un gran barajado en el Hollywood de EE. UU y en la tecnología
 
-未来就是划钱玩
-En un futuro podrá jugar deslizando el dinero
+经济大洗牌, 然后美国会
+Gran barajado de economía, después EE. UU
 
-就这么简单 没事儿了
-Así de fácil, si no tiene nada que hacer
+让很多人包括战友当中, 绝大多数的美国人
+Hará que muchas personas incluyendo a los compañeros luchadores, la mayoría de los estadounidenses
 
-睡觉前两口子就转钱玩
-Antes de dormir la pareja se pone a jugar transfiriendo dinero
+会一贫如洗
+Se empobrezcan
 
-你给我100
-Tu me das 100
+因为你跟不上形势
+Porque no puedes seguir el ritmo de la situación
 
-我给你1000
-Yo te doy 1000
+你跟不上形势了就没你的了
+Si no logras seguir el ritmo de la situación, esto no será tuyo
 
-你给我1000
-Tu me das 1000
+然后剩下以后就是世界的科技大腾飞
+Y lo que queda es el gran despegue tecnológica del mundo en un futuro
 
-我给你，就划钱玩 咋的
-Yo te doy, así juegan deslizando el dinero, qué pasa
+生物科技、量子电脑、太空科技、新型材料
+Biotecnología, computadora cuántica, tecnología espacial, nuevos materiales
 
-你要是收费
-Si vas a cobrar
-
-我们就没有这个兴趣了
-Nosotros no tendremos este hobby
-
-你知道这意味着什么
-Sabes qué significado tiene esto
-
-兄弟姐妹们
-Hermanos y hermanas
-
-我们要让新中国联邦战友走出家门
-Nosotros queremos que los compañeros luchadores del Nuevo Estado Federal de China salgan de su casa
-
-去推销Hpay 的时候，你告诉他这是免费的
-Y promocionen el Hpay, le puedan decir que esto es gratis
+一切都将改变
+Todo va a cambiar
 
 * * *
 
-日期：02/09/2022
-原视频标题：喜支付体现人类无条件支付的本能
-H Pay refleja el instinto del pago incondicional del ser humano
+日期：02/10/2022
+原视频标题：美国将在经济危机后有新的腾飞
+Estados Unidos tendrá un nuevo despegue tras la crisis económica
 原视频日期：02/07/2022
-原视频网址：[**https://gettr.com/post/psxnq73faf**](https://gettr.com/post/psxnq73faf)
-任务编号：KC451(3697)
-视频时间段：0:00-02:19
-西听校：洛杉矶盘古农场- 小文萱
-翻译：洛杉矶盘古农场- 霙霙（文霙）
-翻译终校：洛杉矶盘古农场- 小文萱
+原视频网址：[**https://gettr.com/post/psyunve420**](https://gettr.com/post/psyunve420)
+任务编号：KC452(3696)
+视频时间段：0:00-02:18
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
 字幕+视频制作：洛杉矶盘古农场-天涯行
 审片：洛杉矶盘古农场-银龙
 发布：洛杉矶盘古农场-恩典

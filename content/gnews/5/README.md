@@ -2,55 +2,103 @@
 ---
 
 
-## 北京冬奥会成中共献丑会
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1994544/)
+## 苹果和谷歌通过禁止中国人下载允许活动人士绕过中共严格审查的应用程序来保护北京
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1994651/)
 
-撰稿：一碗兰州（文远）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1-12.jpg)图片来自网络
-“献丑了”原是一种谦逊的说辞，而在这次北京冬奥会上，中共国实打实地上演了一出“以武会友”，将对待中国人民的丑陋手段的亿分之一用在了“外国友人”身上，打了洋大人们一个猝不及防，给他们上了一节生动的“以警治国”课，希望由此使得他们认清中共的流氓本质。
+[https://gtv.org/video/id=62041626585ecc15d73f7d9a](https://gtv.org/video/id=62041626585ecc15d73f7d9a)
 
-中共国向来对新闻自由十分畏惧，将国内的高压舆论管控政策用在外国媒体身上，严格控制外国媒体的报道活动，外媒稍有不慎就会遭到干扰、阻拦，甚至受到暴力威胁。
+Senator Marsha Blackburn
+参议员玛莎·布莱克本
 
-荷兰广播公司NOS记者斯乔尔德·邓·达斯（Sjoerd den Daas）在北京街头进行直播报道时，突然被一名戴着“公共安全志愿者”（Public Safety Volunteer）红色袖章的中共安保人员粗暴地推走，其摄影灯也在被阻止直播后立刻遭到拆除。上述画面被全程直播了出去，与达斯进行直播连线的荷兰电视台女主持人一脸惊恐，不知所措，NOS电视台随即将画面切回了主播间。
+Now of course much of that discussion has centered around the Olympics
+当然，现在大部分讨论都围绕着奥运会
 
-美国网友评论：When it comes to foreign correspondents reporting on the Olympics, Beijing thinks “No news, is good news”. *(翻译：对于外国记者报道奥运会，北京认为“没有消息就是好消息”。)*
+Because there is an app you have to download on your burner phones
+因为你必须在一次性的机手机上下载一个应用程序
 
-事后，荷兰记者达斯在推特上写道：“与此同时，另一个人拿走了我们的灯光装置。当被问到时，他们无法告诉我们做错了什么。最后我们在拐角处的停车场继续我们的电视直播。” “最近几周，我们和几位外国同事一样，在报道奥运会相关话题时，多次被警方阻挠或拦下。”
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide2-1.jpg)
-达斯推文截图
-达斯推文：“因此，很难像国际奥委会声称的那样将昨晚的事件视为孤立事件，尽管这种干扰很少在现场直播中发生。现在重新开始工作。”
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide3.jpg)
-达斯推文截图
-法国24频道记者安东尼·莫雷尔（Antoine Morel）在推特上发文表示，中共国给他们指派了一名所谓的“导游”，此人一直跟踪他们，一旦发现被采访者偏离官方话语，这名“导游”就会把他们拉走。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide4.jpg)
-安东尼·莫雷尔推文截图
-美国专题报道新闻公司（Feature Story News）的记者帕特里克·霍克（Patrick Fok）在推特上写道：“我在王府井被安保人员拦住，我出示了记者证，被告知不能采访人们关于冬奥会的感受。”
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide5.jpg)
-记者帕特里克·霍克推文截图
-除了对外国媒体记者的监控、限制，对于运动员们的抱怨，中共国也按照对待中国老百姓的办法处理——逼他们删除负面信息。
+since you can’t take your own phone
+因为你不能用你自己的手机
 
-芬兰运动员的宿舍发生严重漏水事故，一些运动员将现场照片及视频上传到了Twitter和Instagram上，然后就受到中共国压力，要求他们删除相关信息。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide6-2.jpg)
-Reddit网站相关帖文![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-4.jpg)
-网传中共国冬奥会相关人员聊天
-控制媒体、管控舆论，是中共愚弄、统治人民的一贯手段，此次用到参加冬奥会的外国人身上也不是什么新鲜事。在2022寅虎灭共年这一重要时期，中共的愚蠢与疯狂只会让更多人认清它的邪恶，从而加速其灭亡！
+And it is available through the Apple App Store
+它（应用程序）可以通过苹果商店获得
 
-参考消息：
+And this is one of the reasons as I said earlier
+这就是我之前所说的原因之一
 
-大纪元：[被尾随 被监视 多国记者谈冬奥报导境遇](https://www.epochtimes.com/gb/22/2/8/n13563606.htm)
+we need these non discrimination policies
+我们需要这些非歧视政策
 
-推特：荷兰NOS 记者[达斯推文](https://twitter.com/sjoerddendaas/status/1489926485536391170?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1489926485536391170%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.epochtimes.com%2Fgb%2F22%2F2%2F8%2Fn13563606.htm)
+But the important thing to realize with this, what Apple is doing
+但重要的是要意识到这一点，苹果正在做的是
 
-推特：法国24频道记者[安东尼推文](https://twitter.com/Antwanmorel/status/1490214278837653504)
+is with this app that you have to download for the Olympics
+你必须为奥运会下载这个应用程序
 
-推特：美国专题报道记者[霍克推文](https://twitter.com/PaddyFok/status/1490528612650713088?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1490528612650713088%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.epochtimes.com%2Fgb%2F22%2F2%2F8%2Fn13563606.htm)
+if you’re going to the Olympics, if you’re an athlete
+如果你要去参加奥运会，如果你是一名运动员
 
-Reddit：[Finland’s Olympic athlete dormitory in Beijing experienced a serious water leakage today. Some Finnish athletes posted this incident on Twitter and Instagram … and they were told to delete them by the Chinese authorities](https://www.reddit.com/r/China/comments/spwrtv/finlands_olympic_athlete_dormitory_in_beijing/)
+if you participate, then the Chinese Communist Party has access
+如果你参与，那么中国共产党就可以取得
 
-推特：[灭霸小米(澳喜特战旅) ：冬奥村，芬兰选手房间水管爆了，中共第一时间找到该名选手，想要解决一下提出问题的人](https://twitter.com/V56445280/status/1492092319692394498)
+and I would they probably say they have ownership of that data
+而且他们可能会说他们拥有这些数据的所有权
 
-编辑：云彩
-![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
+they can surveil you they can track you
+他们可以监视你，他们可以跟踪你
+
+If you download that digital you want and they are in your wallet
+如果你下载了应用程序，它就像留在了你的口袋里
+
+They know who you’re communicating with
+他们知道你在和谁交流
+
+They are able to surveil and audit those conversations
+他们能够监视和审核这些对话
+
+So we’re quite concerned about the security
+所以我们非常关注安全性
+
+and safety of those Olympians while they are there
+和那些奥运选手在那里的人身安全
+
+And also John, let me add for developers and innovators
+另外，约翰，让我为那些想在App Store上推销他们的
+
+that want to market their app on the App Store
+应用程序的开发者和创新者补充一下
+
+Apple is taking 30% of that cost
+苹果会拿走30%的费用
+
+So if we can pass our bill
+因此，如果我们能够通过这个的法案
+
+it is going to be security and protections for consumers
+这将是对消费者的安全和保护
+
+It also is going to lower the cost of the app
+它还将降低应用程序的发行成本
+
+* * *
+
+Date:02/07/2022
+原视频标题: Apple and Google are protecting Beijing by banning people in China from downloading apps that would allow activists to circumvent the CCP’s strict censorship
+苹果和谷歌通过禁止中国人下载允许活动人士绕过中共严格审查的应用程序来保护北京
+原视频日期：2022/02/07
+原视频链接:[**https://twitter.com/marshablackburn/status/1490501700746108937?s=24**](https://twitter.com/marshablackburn/status/1490501700746108937?s=24)
+任务编号：3691
+视频时间段 : 0:00-1:34
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-文新
+审片：洛杉矶盘古农场-银龙
+发布 ：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

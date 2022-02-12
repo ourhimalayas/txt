@@ -2,25 +2,55 @@
 ---
 
 
-## 北约指责中共国“剥夺主权国家”选择盟友的权利
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1994475/)
+## 北京冬奥会成中共献丑会
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1994544/)
 
-编辑：七龙珠
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1181.png)北约秘书长延斯·斯托尔滕贝格在新闻发布会上。（EFE/Stephanie Lecocq）
-北约秘书长延斯-斯托尔滕贝格（Jens Stoltenberg）今天警告说：在北京支持莫斯科反对北约扩大到东欧后，中共国企图“剥夺”主权国家的权利，选择加入国际联盟。斯托尔滕贝格提到了这两个大国“最近的声明”，其中，“中共国首次与俄罗斯一起呼吁北约停止接纳新成员”。他在与波兰总统安杰伊-杜达会晤后的新闻发布会上说：“这是企图剥夺主权国家做出自己选择的权利”，这一点在关键的国际文件中得到了体现。他强调，北约“尊重每个国家是否加入联盟的决定”，并说“我们的开放政策是一个历史性的成功，将自由和安全扩展到整个欧洲”。
+撰稿：一碗兰州（文远）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1-12.jpg)图片来自网络
+“献丑了”原是一种谦逊的说辞，而在这次北京冬奥会上，中共国实打实地上演了一出“以武会友”，将对待中国人民的丑陋手段的亿分之一用在了“外国友人”身上，打了洋大人们一个猝不及防，给他们上了一节生动的“以警治国”课，希望由此使得他们认清中共的流氓本质。
 
-他说：“我们必须尊重主权决定，而不是回到势力范围的时代，不是大国可以告诉别人什么可以做，什么不可以做。”他指的是乌克兰的情况，俄罗斯想否决乌克兰未来加入联盟的可能。2月4日，中共国家主席习近平和俄罗斯总统弗拉基米尔-普京在中共国首都冬奥会开幕前夕举行会晤后，关闭了反对西方的行列，承诺共同面对他们认为的“安全威胁”。在会议结束时，他们发表了一份公报，强调“中共国和俄罗斯反对北约进一步扩张”。
+中共国向来对新闻自由十分畏惧，将国内的高压舆论管控政策用在外国媒体身上，严格控制外国媒体的报道活动，外媒稍有不慎就会遭到干扰、阻拦，甚至受到暴力威胁。
 
-此外，斯托尔滕贝格指出，美国、西班牙、丹麦和英国等盟国正在向北约提供更多的能力，以便在东部提供更多的监视和安全，这“反映了北约在那里是为了保护和捍卫，并密切关注乌克兰周围和北约边界发生的事情”。他回顾说，他们还提高了北约反应部队的准备程度，像高度戒备部队这样的要素可以在几天内部署，而像美国这样的盟国则向该反应部队投入了更多的军队（目前美国有8000人驻军）。斯托尔滕贝格说：“我们正在考虑对我们的姿态，对我们在联盟东部的存在进行更长期的调整”，他补充说：“在与北约军事指挥官密切磋商的过程中，在增加在联盟东部的存在，以加强威慑和防御。” 尽管盟国的首要目标仍然是让莫斯科缓和紧张局势，以便能够达成政治解决。杜达则呼吁北约在面对俄罗斯时保持团结，并确保所有盟国持相同立场。杜达说：“我认为北约在整个东翼的存在应该增加。”他强调：“所有希望得到这种加强的国家都应该得到这种加强。”他特别主张这些增援部队应“尽可能地多国化”。波兰总统今天还在布鲁塞尔会见了欧洲理事会主席查尔斯-米歇尔（Charles Michel）和欧盟委员会主席乌苏拉-冯德莱恩（Ursula von der Leyen），他说他与他们详细讨论了欧盟在俄罗斯最终决定进攻乌克兰的情况下对其准备的制裁。冯德莱恩在推特上说：“我们正在深入协调我们的准备工作，包括能源供应和制裁，以应对任何进一步升级。”
+荷兰广播公司NOS记者斯乔尔德·邓·达斯（Sjoerd den Daas）在北京街头进行直播报道时，突然被一名戴着“公共安全志愿者”（Public Safety Volunteer）红色袖章的中共安保人员粗暴地推走，其摄影灯也在被阻止直播后立刻遭到拆除。上述画面被全程直播了出去，与达斯进行直播连线的荷兰电视台女主持人一脸惊恐，不知所措，NOS电视台随即将画面切回了主播间。
 
-素材来源：【elconfidencial.com】[La OTAN acusa a China de “negar a naciones soberanas” su derecho a elegir alianzas](https://www.elconfidencial.com/mundo/2022-02-08/otan-contra-china-amenaza-libertad-naciones-soberanas_3371493/)
+美国网友评论：When it comes to foreign correspondents reporting on the Olympics, Beijing thinks “No news, is good news”. *(翻译：对于外国记者报道奥运会，北京认为“没有消息就是好消息”。)*
 
-* * *
+事后，荷兰记者达斯在推特上写道：“与此同时，另一个人拿走了我们的灯光装置。当被问到时，他们无法告诉我们做错了什么。最后我们在拐角处的停车场继续我们的电视直播。” “最近几周，我们和几位外国同事一样，在报道奥运会相关话题时，多次被警方阻挠或拦下。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide2-1.jpg)
+达斯推文截图
+达斯推文：“因此，很难像国际奥委会声称的那样将昨晚的事件视为孤立事件，尽管这种干扰很少在现场直播中发生。现在重新开始工作。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide3.jpg)
+达斯推文截图
+法国24频道记者安东尼·莫雷尔（Antoine Morel）在推特上发文表示，中共国给他们指派了一名所谓的“导游”，此人一直跟踪他们，一旦发现被采访者偏离官方话语，这名“导游”就会把他们拉走。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide4.jpg)
+安东尼·莫雷尔推文截图
+美国专题报道新闻公司（Feature Story News）的记者帕特里克·霍克（Patrick Fok）在推特上写道：“我在王府井被安保人员拦住，我出示了记者证，被告知不能采访人们关于冬奥会的感受。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide5.jpg)
+记者帕特里克·霍克推文截图
+除了对外国媒体记者的监控、限制，对于运动员们的抱怨，中共国也按照对待中国老百姓的办法处理——逼他们删除负面信息。
 
-审核：Aries的星
-校对：阿伯塔
-发布：花羽
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-3.jpeg)
+芬兰运动员的宿舍发生严重漏水事故，一些运动员将现场照片及视频上传到了Twitter和Instagram上，然后就受到中共国压力，要求他们删除相关信息。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide6-2.jpg)
+Reddit网站相关帖文![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-4.jpg)
+网传中共国冬奥会相关人员聊天
+控制媒体、管控舆论，是中共愚弄、统治人民的一贯手段，此次用到参加冬奥会的外国人身上也不是什么新鲜事。在2022寅虎灭共年这一重要时期，中共的愚蠢与疯狂只会让更多人认清它的邪恶，从而加速其灭亡！
+
+参考消息：
+
+大纪元：[被尾随 被监视 多国记者谈冬奥报导境遇](https://www.epochtimes.com/gb/22/2/8/n13563606.htm)
+
+推特：荷兰NOS 记者[达斯推文](https://twitter.com/sjoerddendaas/status/1489926485536391170?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1489926485536391170%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.epochtimes.com%2Fgb%2F22%2F2%2F8%2Fn13563606.htm)
+
+推特：法国24频道记者[安东尼推文](https://twitter.com/Antwanmorel/status/1490214278837653504)
+
+推特：美国专题报道记者[霍克推文](https://twitter.com/PaddyFok/status/1490528612650713088?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1490528612650713088%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.epochtimes.com%2Fgb%2F22%2F2%2F8%2Fn13563606.htm)
+
+Reddit：[Finland’s Olympic athlete dormitory in Beijing experienced a serious water leakage today. Some Finnish athletes posted this incident on Twitter and Instagram … and they were told to delete them by the Chinese authorities](https://www.reddit.com/r/China/comments/spwrtv/finlands_olympic_athlete_dormitory_in_beijing/)
+
+推特：[灭霸小米(澳喜特战旅) ：冬奥村，芬兰选手房间水管爆了，中共第一时间找到该名选手，想要解决一下提出问题的人](https://twitter.com/V56445280/status/1492092319692394498)
+
+编辑：云彩
+![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

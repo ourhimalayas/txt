@@ -2,29 +2,24 @@
 ---
 
 
-## 美FDA推迟批准辉瑞COVID-19幼儿疫苗
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1994104/)
+## 美议员指责CCP和福奇共同掩盖新冠病毒的起源
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1994222/)
 
-**撰稿：日本东京方舟农场 子辰**
+撰稿：小湫
+![](https://assets.gnews.org/wp-content/uploads/2022/02/93DF0F77-F104-408E-BAF3-84A4795A594B.jpeg)图片来自网络
+来自肯塔基州共和党众议院监督委员会高级成员詹姆斯·科默（James Comer），指责CCP和白宫首席医疗顾问安东尼·福奇，病毒传播从第一天起就分开行动，掩盖新冠病毒的源头。
 
-据大纪元2月12日报道，美国药品监管机构2月11日宣布，他们决定推迟授权辉瑞公司COVID-19疫苗用于年仅6个月至4岁的幼儿。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-175.jpg)（图片来自大纪元）
-美国食品和药物管理局（Food and Drug Administration，简称FDA）原计划在2月15日就幼儿接种COVID-19（中共病毒）疫苗问题咨询其顾问委员会，并可能在数小时内，就发布紧急使用授权（EUA）。但是，鉴于对辉瑞公司2月1日发送的初步数据的评估，这个计划已经发生改变并推迟。
+詹姆斯·科默周四在接受福克斯新闻数字频道(Fox News Digital)的电话采访时，对福奇和CCP提出指控，并批评拜登政府浪费了大量时间调查武汉实验室泄漏真相。
 
-FDA认为，他们尚不能批准为6个月到4岁的儿童接种疫苗，他们还需要从一项针对该年龄组的三剂量方案试验中获得相关数据后才能得到答案并授权。
+众议院监督委员会共和党领袖还指出，拜登总统曾承诺让他的情报团队在90天内调查此事，但这并没有得到一份肯定的答案。90天过去了，100天过去了，拜登终于发表了一份报告：好吧，他们什么也没发现。
 
-食品和药物管理局生物制品评估与研究中心（Center for Biologics Evaluation and Research）主任彼得‧马克斯（Peter Marks）博士在电话采访中告诉《大纪元时报》（The Epoch Times）记者：“所看到的数据让我们意识到，我们还需要看一看正在进行的三剂量实验的数据，之后才能确定我们可以对之进行授权。”
+詹姆斯·科默赞扬共和党人公布的电子邮件，这些邮件显示科学家们推测武汉实验室发生了病毒泄密。他警告说，对病毒起源的彻底调查时间越长，就越难具体证明病毒的起源。还指责CCP和福奇从一开始就一起掩盖新冠病毒的起源。  詹姆斯·科默质问：福奇是一个疯狂的科学家。
 
-他补充说，他们制定了一个新的标准，如果达不到这个标准就不会继续下去。
+参考信息：
 
-此外，有批评人士指出，疫苗带来的副作用风险，不值得让年幼的儿童去接种疫苗。
-
-参考链接：
-[https://www.epochtimes.com/b5/22/2/12/n13571520.htm](https://www.epochtimes.com/b5/22/2/12/n13571520.htm)
-
-素材采编：子辰
-编辑：老孙
-发布：爱放飞
+[Rep. Comer accuses Fauci, CCP of covering up COVID origins ‘from day one’: ‘Is he a mad scientist?’](https://www.foxnews.com/politics/comer-fauci-ccp-cover-up-covid-origins-mad-scientist)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
+发稿：MG6
 
  
 

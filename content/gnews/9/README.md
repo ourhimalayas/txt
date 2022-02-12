@@ -2,43 +2,81 @@
 ---
 
 
-## 乔·罗根拒绝一亿美元薪酬：就待在Spotify
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1994477/)
+## 阿富汗 缅甸和朝鲜就是中共国的未来！
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1994602/)
 
-素材翻译： Jenny Ball
+作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1187.png)乔·罗根（Joe Rogan）于 2021 年 7 月 9 日在内华达州拉斯维加斯的 T-Mobile 竞技场参加 UFC 264 的称重仪式。（Stacy Revere/Getty Images）
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-喜剧演员乔·罗根周二在德州告诉观众，他不会接受视频平台 Rumble 提供的 1 亿美元独家主持他的节目的报价。
+2月9日，英国经济学人智库（Enconomist Intelligence,简称EIU）公布2021年度民主指数（[Democracy Index 2021](https://www.eiu.com/n/campaigns/democracy-index-2021/)）报告。2021年，由于各国纷纷出台与中共病毒大流行相关的限制个人自由措施，全球民主指数经历了自2010年以来最大的年度跌幅，除一个国家外，所有国家的民主指数得分均下降，而独裁政权逐渐崛起。
 
-当罗根在 Spotify 的未来存在争议之际，Rumble的首席执行官本周在一篇广为流传的社交媒体帖子中向他提供了这份合同。在过去的几周里，罗根一直是各个在线平台强烈攻击的目标，以期迫使 Spotify 删除他关于 COVID-19 讨论的播客内容。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-12_17-11-51.png)
 
-“不，Spotify 莫名其妙地和我连在了一起，让我们看看会发生什么，”罗根在德克萨斯州奥斯汀的活动中说。
+什么是民主？“民主”一词来自希腊语“demos”，意指是“citizen”和“kratos”，代表“权力”或“统治”。从根本上说，民主是一种政府组织形式，在这种政府形式中，一个国家的公民有权决定他们赖以生存的法律。分为“直接民主”（也称为“真正”或“纯”民主）和“代议制民主”。例如，美国就是代议制民主国家。
 
-本周早些时候，Rumble 首席执行官克里斯·帕夫洛夫斯基（Chris Pavlovski） 在一封信中写道，“我们愿意为你提供 1 亿”来使用 Rumble，Rumble 被视为 YouTube 或 TikTok 等视频平台的新兴替代品。
+EIU的这份报告是根据选举过程及多元化（lectoral process and pluralism）、政府运行（functioning of the government）、政治参与（political participation）、政治文化（political culture）以及公民权利（civil liberties）这五个类别的60个指标来衡量世界上167个国家的民主状况进行评分，划分成四个等级，分别为“充分民主”（full democracies）、“有瑕疵的民主” （flawed democracies）、“混合政权”（hybrid regime）和“威权”（authoritative regime）。
 
-“你在四年内，以 1 亿美元的价格，将你所有的节目带到 Rumble，无论新旧，没有审查，你看如何？”巴甫洛夫斯基补充说， “这是我们拯救世界的机会。是的，这是完全合法的。”
+民主指数总分在8.01和10之间（满分10分）的国家被视为完全民主国家。得分在6.01到8.00之间的被归类为有缺陷的民主国家，尽管这些国家拥有自由公正的选举和基本的公民自由，但在其他方面也存在缺陷，例如政治参与程度低或政治文化不发达（或党派文化倾向非常严重）。得分在4.01到6.0之间的国家被归为混合政权，任何低于4分的国家为威权政治。
 
-围绕 Spotify 的争议始于创作歌手尼尔·杨（Neil Young） 要求流媒体音乐服务，要么删除他的音乐，要么删除罗根的节目。后来，Spotify 的一位发言人表示，将删除杨的歌曲，尽管这家总部位于瑞典的公司表示，将在某些播客中添加有关 COVID-19 的警告。
+2020年，该机构按民主指数得分将全世界167个国家中的23个国家归为完全民主国家，52个国家归为有缺陷的民主国家，35个国家归为混合政体，57个国家归为威权政体。
 
-上周晚些时候，一段经过大量编辑和断章取义的视频显示，罗根在 10 多年的播客中多次说出“黑人”（Nigger）。一天后，罗根对这段视频发表了讲话，并发表了道歉，但指出这段视频经过编辑，缺乏语境。
+2021年，该机构按民主指数得分将全世界167个国家中的21个国家归为完全民主国家，53个国家归为有缺陷的民主国家，33个国家归为混合政体，58个国家归为威权政体。
 
-然后在周日，Spotify 首席执行官丹尼尔·艾克（Daniel Ek） 宣布媒体将支持罗根，他也是 UFC 的长期评论员。
+全球总体分数在2021年的得分由2020年的5.37分降到5.28分，全球民主状况跌至历史新低。全球只有不到一半的人口生活在民主体制下，去年全球只有6.4%的人口生活在“充分民主”的国家和地区，而超过三分之一的人口生活在威权统治之下，其中很大一部分在中共国。
 
-“虽然我强烈谴责乔所说的话，并且，我同意他从我们的平台上删除过去剧集的决定，但我意识到，有些人会想要更多。我想非常清楚地说明一点——我不相信让乔沉默是答案，”埃克在一份声明中说。
+在2021年的全球民主指数排名中，挪威、新西兰和芬兰以9.75、9.37、9.27的得分位列前三位。台湾是亚洲唯一跻身前十的“充分民主”政体，得到8.99分，排在第8名，尤其选举过程及多元化这个小项上得到满分10分，而中共国这项得分为0分！
 
-他补充说：“我们应该在内容范围有明确的界限，并在跨越时采取行动，但取消声音是一个下坡路。要更广泛地看待这个问题，批判性思维和公开辩论，才能推动真正和必要的进展。”
+2022年1月28日才宣布“中国是世界上最安全的国家”的中共国得分仅2.21分，比2020年的2.27分持续下降；香港的得分为5.6分，较2020年的5.57略微提高，但不及2019年之前的得分。中共国和香港2021年的民主指数排名分别为第150名和第85名，分属“威权”和“混合政权”类别。
 
-在 Rumble 给罗根报价信之后，2021 年 12 月与 Rumble 达成交易的“CF收购公司”（ CF Acquisition Corp. VI ）的股票，在本周飙升了约 39%。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/499411be-9d8b-42b7-81a0-2d24c215bcf0.jpg)
 
-素材来源：【theepochtimes.com】[Joe Rogan Turns Down $100 Million Offer: ‘No, Spotify Has Hung in With Me’](https://www.theepochtimes.com/joe-rogan-turns-down-100-million-offer-no-spotify-has-hung-in-with-me_4269489.html?utm_source=Morningbrief&amp;utm_campaign=mb-2022-02-11&amp;utm_medium=email&amp;est=ovHDIK05zb0Uk%2FRxwzeD21imZLSmtfgLUH4SnFc%2FsvpGdWPVfwhadDu6KxrPoV1n196%2BIw%3D%3D)
+CCP的亲密“兄弟”朝鲜、阿富汗、缅甸以1.08、1.02、0.32的得分成为世界上最不民主的国家。
 
-* * *
+CCP作为塔利班的“友邻和兄弟”，“坚定的与塔利班站在一起”，使阿富汗“荣登”这份榜单的倒数第一！
 
-审核：文乐
-校对：小东
-发布：花羽
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-3.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/MAIN202005241542490088357120451.jpg)
+
+在中南坑几代魔王的“亲自缔造和精心培育”下，在习猪头亲自指挥，“维护好、巩固好、发展好中朝关系始终是中国共惨党和政府坚定不移的方针”政策指引下，朝鲜人民想喝上“肉汤”应当还有一段距离！
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-12_17-37-17.jpg)
+
+习猪头开辟的“中缅关系新篇章”、构建的“中缅命运共同体”，对缅甸进行国事访问，时机特殊，其中的“丰硕成果”和“重大意义”就是让缅甸成为这份榜单的倒数第二名！
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-12_17-44-31.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-12_17-48-37.png)
+
+朝鲜、阿富汗人民要想喝上肉汤的唯一出路就是和我们一起，推翻共惨党！
+
+参考数据：
+
+[Democracy Index 2021: the China challenge](https://www.eiu.com/n/campaigns/democracy-index-2021/?utm_source=twitter&amp;utm_medium=organic_social&amp;utm_campaign=democracy-index-2021&amp;utm_term=afghanistan-replaced-north-korea&amp;linkId=100000109152543#mktoForm_anchor)
+
+[Corruption Perceptions Index 2021](https://reliefweb.int/report/world/corruption-perceptions-index-2021-enarru)
+
+[Democracy Index 2021: Check the top and bottom nations, highest-ranked region in the world, India rank, and more](https://www.jagranjosh.com/general-knowledge/democracy-index-2021-1644567197-1)
+
+[Armenia is regional leader in EIU Democracy Index 2021](https://armenpress.am/eng/news/1075339/)
+
+[Democracy Index 2021 PICS: With full democracy, Norway tops the list. Check out the top 10 here](https://www.timesnownews.com/the-buzz/article/democracy-index-2021-pics-with-full-democracy-norway-tops-the-list-check-out-the-top-10-here/857547)
+
+[A new low for global democracy](https://www.economist.com/graphic-detail/2022/02/09/a-new-low-for-global-democracy)
+
+[习近平访问开辟中缅关系新篇章](http://opinion.china.com.cn/opinion_80_216580.html)
+
+[习近平同金正恩举行会谈](http://hr.china-embassy.org/gnxw/201803/t20180328_2604030.htm)
+
+[携手构建中缅命运共同体](http://theory.people.com.cn/n1/2020/0119/c40531-31555208.html)
+
+[国务委员兼外交部长王毅答记者问](http://lianghui.people.com.cn/2020npc/GB/432587/432705/)
+
+[王毅与阿富汗外长拉巴尼举行会谈](https://www.mfa.gov.cn/chn/pds/wjb/wjbz/xghd/t1335162.shtml)
+
+[2022年1月28日外交部发言人赵立坚主持例行记者会](https://www.mfa.gov.cn/web/fyrbt_673021/202201/t20220128_10636086.shtml)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
