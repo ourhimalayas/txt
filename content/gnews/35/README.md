@@ -2,26 +2,26 @@
 ---
 
 
-## 美国务卿表示中共国对澳洲贸易制裁将适得其反
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1995458/)
+## 中共间谍网试图操控澳洲议员选举被挫败
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1995457/)
 
-作者：纽约香草山金融部 – AT
+作者：纽约香草山 – 侠肝义胆
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-据外媒2月11日报道，美国国务卿布林肯将出席美日印澳四方安全对话外长会议。在接受澳洲媒体采访时，布林肯表示，中共国对澳洲的贸易制裁将适得其反，澳洲奋起反抗，为全世界树立了榜样。中共以经济手段逼迫澳洲，蒙受的损失已经超过澳洲。中共国打乱了自己的供应链，而澳洲已经有效地分散了市场。
+外媒2月11日消息：一个中共间谍网试图资助新南威尔士州工党候选人，当选澳大利亚议会议员。但该阴谋被挫败，澳洲反间谍机构成功阻止了中共间谍将特定候选人安插到工党的预选程序中。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/11-8.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/12-9-scaled.jpg)
 
-当天，在墨尔本召开的四方安全对话上，四国外交部长共同讨论反制中共散播假消息和经济胁迫，以及大家共同关心的俄乌危机。
+据称，操纵这一阴谋的是一位在澳洲和中共国都有很深关系的富商，另有多个澳洲媒体证实，中共情报机构正是这起阴谋的幕后黑手。澳洲反间谍机构负责人周三晚上，公开披露了这一消息，他证实澳洲反间谍机构已经挫败了中共干涉澳洲选举的企图。
 
 参考链接：
 
-- [https://www.chinapress.com.my/?p=2852102](https://www.chinapress.com.my/?p=2852102)
+- [Chinese spies attempted to install Labor candidates in federal election](https://www.theage.com.au/politics/federal/chinese-spies-attempted-to-install-labor-candidates-in-federal-election-20220211-p59vmj.html)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
 
 总编：童谣
-编辑：飞虹
+编辑：童谣
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

@@ -2,22 +2,22 @@
 ---
 
 
-## 美参议员认为自然免疫力优于中共病毒疫苗
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1995493/)
+## 美国宣布向台湾出售爱国者导弹
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1995460/)
 
-作者：纽约香草山 – 侠肝义胆
+作者：纽约香草山教育部 – Naughty(文行)
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-外媒2月10日报道，美国共和党参议员兰德.保罗称，自然免疫力比中共病毒疫苗好的多，但我们耽误了两年才承认自然免疫力的优越性。
+美国政府2月7日宣布，它已批准向台湾出售旨在改进该岛导弹防御系统的设备和服务，估计成本为 1 亿美元。这是自去年1月拜登总统上任以来，美国第二次对台军售。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/7-15.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/9-8.jpg)
 
-保罗认为，已经有7,800万美国人感染了中共病毒，如果做随机抗体测试，就能知道到底有多少人因强制疫苗而遭到感染。而安东尼-福奇等人无视自然免疫力，强制推动接种中共病毒疫苗，是一种极大的误导和犯罪。我们在与中共病毒的对抗中已经形成了足够强大的自然免疫力，这是大自然母亲赐予我们的最好保护。
+该项交易旨在维持、维护和改进爱国者防空系统。还包括对传统制导增强型导弹和爱国者PAC-3导弹的现场监视支持，旨在确保爱国者导弹以及传统导弹库存可靠性和性能，并提供已部署导弹的定量可靠性评估。
 
-另有相关人士评论：美国重量级参议员的表态，意味着强制疫苗措施即将结束。但强制疫苗带来的惨痛代价，尤其值得让人警省。
+美国国防部下属的国防安全合作局DSCA表示，本次军售将有助于维持台湾的导弹密度并确保其为空中作战做好准备。将有助于改善台湾的安全，维持该地区的政治稳定、军事平衡、和经济发展。
 
 参考链接：
 
-- [Sen. Paul to Newsmax: Natural Immunity Recognized ‘Two Years Late’](https://www.newsmax.com/politics/rand-paul-covid-natural-immunity/2022/02/10/id/1056339/)
+- [U.S. announces sale of Patriot missiles support deal to Taiwan](https://focustaiwan.tw/politics/202202080002)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
