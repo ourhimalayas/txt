@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/12/2022 1:28 AM (UTC)`
+
+2/11/2022 Miles Guo: All those who are protesting against the COVID vaccine mandate<br/>are our fellow fighters. After the PAG case was ruled, those who want to donate money to me the most are the rich Westerners who followed my advice and didn't get the COVID jabs. The COVID vaccines and the Winter Olympics have made the world stand with us to eliminate the CCP. I have never felt so great and blessed in the cause of taking down the CCP.<br/><br/>2/11/2022 文贵直播：所有反对强打疫苗的都是我们战友！PAG判决出来后，最想要给文贵捐钱的是听了文贵的劝没打疫苗的西方富豪；疫苗和冬奥会让全世界和我们站在一起灭共；文贵从未感觉到灭共事业是如此的伟大和幸福！<br/>
+![img](https://media.gettr.com/group40/getter/2022/02/12/01/91779aa7-3f1c-40f7-b0ce-8dc3c26d3501/out.jpg)
+
+---
+
 `@miles 2/12/2022 12:51 AM (UTC)`
 
 2/11/2022 Miles Guo: The ruling of the PAG case is absolutely unacceptable, and we will never compromise! The PAG case is certainly not a normal case, neither is it about money. Instead, I am going to find out the truth. The foreign banking license UBS received was approved by Wang Qishan and signed by Cai Esheng.<br/><br/>2/11/2022 文贵直播：绝不接受PAG案子的判决，我们绝不妥协！PAG案绝非正常案件，打这个官司绝不是钱的问题，文贵要找到真相；UBS的外国银行牌照是王岐山批准并由蔡鄂生签署的
@@ -148,13 +155,6 @@ EP9: The Villains. Let's tear down the monstrous lies of this despicable #HBO #V
 
 2/9/2022 Miles Guo: Why am I entering into a new stage of my life today? The money deposited in UBS, including its hidden accounting records, is equivalent to the wealth accumulated by mankind in the past 500 years. Yesterday, many big shots thought it was impossible for my lawsuit against UBS to be filed in a London court.<br/><br/>2/9/2022 文贵直播：为什么说七哥在今天进入了人生新高度？瑞银UBS的存款和黑账相当于人类过去500年的财富，UBS案能在伦敦法院立案，这在昨天都是很多大咖认为不可能的事情<br/>
 ![img](https://media.gettr.com/group16/getter/2022/02/09/22/fa5afb11-2d59-3b94-3220-dfe3c2173efb/out.jpg)
-
----
-
-`@miles 2/9/2022 10:11 PM (UTC)`
-
-2/9/2022 Miles Guo: Finally, my lawsuit against UBS has been filed in London after having gone through the CCP's relentless obstruction at all costs. This is of great significance! It is our first official battle against the Swamp. Defeating UBS is equivalent to taking over half of the CCP’s “wealth empire”.<br/><br/>2/9/2022 文贵直播：UBS案历经了中共不惜一切代价的阻挠，今天终于在伦敦法院立上案了，意义重大啊！这是和沼泽地的第一场正式的战役，干掉UBS就相当于拿下了中共的半个“财富帝国”<br/>
-![img](https://media.gettr.com/group12/getter/2022/02/09/22/c4a44414-27b0-53f0-43c1-9be956fc8b55/out.jpg)
 
 ---
 

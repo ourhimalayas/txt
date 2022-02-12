@@ -2,20 +2,20 @@
 ---
 
 
-## 把太平联盟这个事情搞明白
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1992414/)
+## 加拿大卡车司机引发的多米诺骨牌效应
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/1992612/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+加拿大温哥华扬帆农场    平民正道
 
-*发布：陶子*
+据【温哥华太阳报】2月8日报导，加拿大多个省份已宣布将结束包括疫苗护照在内的大部分疫情限制措施。计划废除强制性疫苗政策的多米诺骨牌效应，正在西方各国逐步显现。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+报导称，卡车司机坚持不懈地在首都渥太华地区的抗议行动，是导致加拿大多个省政府放弃强制性疫苗政策的主要原因之一。此外，各省的卫生部门在各项疫情相关资料面前，发现疫苗接种并不能有效遏制新冠病毒的传播。因此，继续使用疫苗护照已变得毫无意义。
+
+据悉，加拿大自由车队所引发的多米诺股牌效应正在席卷欧洲。最明显的表现是，西班牙、英国、丹麦和爱尔兰等曾经实施严厉防疫政策的国家，现在也已陆续宣布了将重新开放被长期封锁的小区。
+
+* * *
+
+编辑： 平民正道    发布：平民正道
 
  
 

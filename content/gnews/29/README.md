@@ -2,36 +2,93 @@
 ---
 
 
-## 特鲁多的哥哥指责其兄弟对抗卡车运动的政策来自深层权利
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1991771/)
+## 全球疫情更新（服用缓释的褪黑素很重要）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1992187/)
 
-#### 编译：Cran
+**整理/编辑：枳实**
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/16446111291.png)[图片来源](http://facebook)
-**“我可以选择朋友，但不能选择家庭”**——凯尔，坎珀 （Kyle Kemper），总理贾斯汀·特鲁多的同父异母兄弟，玛格丽特·特鲁多（Margaret Trudeau) 和弗里德·坎珀 (Fried Kemper) 的儿子。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1075.png)图片：雅典娜农场设计组 精灵蓝
 
-加拿大时间2月11日，坎珀接受了几次公开采访。其中在由英国GB新闻记者丹尼尔，伍顿（Daniel, Wootton）的采访中，他更深层次的揭开了帷幕。
 
-“疫情政策更强调的是控制和集权而非健康和福利”。坎珀认为特鲁多所推动的政策和倡议是来自深层；世界经济论坛和比尔德伯格集团（Bilderberg Group）。他们在各政府内部培植那些强大的代理人，而我们看到的是那些政府的头面人物都是懦弱的领导人。
+雅典娜疫情更新（2022年 2月11日）
 
-“他（特鲁多）不被允许与卡车运动进行真正的接触，因为这里有很多东西要被揭露，会造成严重的后果。” 特鲁多的哥哥还表示，他哥哥的破坏性和反自由思想并不能反映他是谁。“换句话说，他受到了全球精英的影响。“他不是发自肺腑地说话。我真的不相信”。
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-“勒索是强有力的手段”。坎珀进一步认为，从杰弗里·爱泼斯坦（Jeffrey Epstein）的历史以及他们所扮演的角色来看，他曾以引诱和勒索来得到富足的生活。而当他走上歧途就会犯错误和被迫做坏事。
+**一，全球疫情基本数据**
 
-“在这个新冠病毒骗局中，看到我兄弟和媒体两年来的恐惧” 他认为这种恐惧来自全球化集团的制度。而在过去的十年里，人们对自由和自由的基本观点已经疏远了。这导致人们之间的脱节。这个卡车活动为人民团结创造了一种感觉和机会。纳粹党徽旗是有意制造的但被主流制药媒体转发，试图诽谤整个运动。我一直在和这些卡车司机交谈，人们在清理街道，犯罪率下降。
+感染总数：405,994,265（日新增2,487,553人，14天增幅-26%）
 
-“加拿大人从来没有投票支持疫苗授权”。坎珀认为这个“剧本”代表着药企和世界经济论坛，以及比尔和玛琳达·盖茨的计划，这绝对不是加拿大的议程。“我真的不相信他的讲话是出自内心的。他不被允许与卡车运动进行真正的接触，因为这里有很多东西会被揭开。真理容易辩论，但谎言不能辩论。所以当你面对谎言的时候，你甚至都不参与辩论。
+死亡总数：5,788,802（日新增10,920人，14天增幅 +23%）
 
-“人们看清了那是一个充满谎言的纸牌屋”。坎珀相信特鲁多会后悔所做的一些事。大部分醒来的加拿大人不再相信谎言并摆脱了恐惧。他们对这种疫苗的安全性有着严重的质疑，这些质疑关系到我们孩子的未来，关系到加拿大将成为什么样的国家。这已经成为号角，加拿大人正在站起来并要求恢复自由。
+**二，全球“疫苗”毒针统计数据**
 
-“他们被拍到与未成年女孩发生性过关系，他们现在正在被勒索“。凯尔·坎珀暗示道。他指出，一些看起来越来越虚弱的世界领导人可能被杰弗里·爱泼斯坦所腐蚀，他们同时已婚并担任负责任的职务。言下之意是，他们正追随着一种不公正的和残酷指示；但其本质上是虚假的2019冠状病毒全球流行病。很明显，托尼·福奇（Tony Fauci）多次在这个故事上翻来覆去。
+“疫苗”毒针注射总数：103亿
 
-加拿大在两兄弟中选错了人 —— 文章下面的留言
+完全“接种”：42.3亿人
 
-凯尔，坎珀不仅是贾斯汀·特鲁多的同母异父兄弟和玛格丽特·特鲁多的儿子，而且还是Swiss Key的创始人和首席执行官，曾担任加拿大数字商务商会的执行董事和战略顾问。他毕业于达尔豪西大学（Dalhousie University），获得了市场营销学学士学位。
+完全“接种”百分比：54.2%
 
-[Source](https://www.extremelyamerican.com/post/justin-trudeau-s-half-brother-kyle-kemper-provides-context-behind-trudeau-s-failure-7-corruption)
+**三，澳洲疫情和“疫苗”数据**
+
+感染总数：2,855,373（今日新增27,129人）
+
+死亡总数：4,479人（今日新增 48人）
+
+每万人感染人数：1106.7547人
+
+“疫苗”毒针注射总数：52,008,496  （今日新增202,530    针）
+
+完全“接种”：19,366,131人
+
+第二针“接种”百分比：79.1%
+
+16岁以上人口接种至少一剂疫苗的比例：&gt;95%
+
+16岁以上人口接种至少两剂疫苗的比例：93.9%
+
+加强针总数：9,727,513（日新增：173,062针）
+
+**四，应当选用缓释的褪黑素**
+
+今日摘译整理FLCCC编写的[中共病毒感染的临床管理指南](https://covid19criticalcare.com/wp-content/uploads/2020/12/FLCCC-Protocols-%E2%80%93-A-Guide-to-the-Management-of-COVID-19.pdf)中关于褪黑素的部分。未来笔者计划总结整理中共病毒治疗药物的使用注意事项，因此利用写疫情更新的时间，陆续翻译相关文献，未来将汇集成为一篇，以方便读者检索阅读。
+
+**褪黑激素（缓释/延长释放制剂）**
+
+**Melatonin (slow release/extended release)**
+
+从1毫克开始，根据耐受性增加到6毫克，夜间服用。有些病人对褪黑激素不耐受，会做非常令人不安和活灵活现的梦。对这些病人来说，最好从0.3毫克缓释片开始， 然后慢慢增加剂量，直到可以耐受为止。
+
+褪黑激素在肝脏中进行大量的第一道代谢，这个过程有明显的个体差异。这造成了不同个体间的较大的剂量差别。
+
+**褪黑素的作用**
+
+褪黑激素具有抗炎、抗氧化、免疫调节和新陈代谢的作用，这对减轻中共病毒的影响很重要。多项研究已经证明，在缓解中共病毒疾病方面可能很重要。一项大型回顾性研究表明，在插管的COVID-19患者中使用褪黑激素可显著降低死亡的风险。耐人寻味的是，蝙蝠是冠状病毒的天然储存库，其褪黑激素的水平特别高，这可能会保护这些动物不发生症状性疾病。同样，儿童的循环褪黑激素水平很高，接近蝙蝠的水平。而老人——特别是60岁以上的老人——的褪黑激素水平非常低。这可能部分解释了老年人对中共病毒感染的脆弱性增加。
+
+**褪黑素的剂型选择**
+
+应当首选褪黑激素的缓释（延迟释放）制剂，因为它们更接近于复制正常的昼夜节律。褪黑激素的代谢在个体间存在明显的差异。褪黑激素的代谢（首过代谢）存在明显的个体差异，因此剂量必须是个体化的。
+
+血清中的高浓度褪黑素水平超快速眼动睡眠和恶梦有关。快速释放的褪黑激素会导致早期的高峰，不能复制正常的昼夜节律。因此，服用缓释/延迟释放制剂很重要。
+
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+
+数据来源：
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+[covidlive.com.au](https://covidlive.com.au/)
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

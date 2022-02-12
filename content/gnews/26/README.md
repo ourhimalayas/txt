@@ -2,38 +2,57 @@
 ---
 
 
-## 乌克兰新闻 &#8211; 现场直播：由于担心俄罗斯入侵，英国人被告知立即离开该国
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1992048/)
+## 郭先生直播中所说的“莱彻斯登”是哪里？
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1992402/)
 
-**编译：沉默老歌**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/968E6266-D575-4746-A49F-605FA851C055.png)图片来源：[https://www.independent.co.uk](https://www.independent.co.uk/)
+作者：香草山教育部-haloha
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/logo-5-768x103-17.jpg)
 
 
-由于担心俄罗斯军队的入侵，英国人被告知立即离开乌克兰。
 
-外交部在周五晚上更新了建议，告诉英国国民“在商业手段仍然可用的情况下立即离开”。
 
-这一警告是在鲍里斯·约翰逊在与包括美国总统乔·拜登在内的世界领导人通话时表达了对欧洲安全的担忧之后发出的。
 
-此前，英国国防部长本·华莱士警告称，在与俄罗斯外长绍伊古进行“坦率”讨论后，俄罗斯仍可能在短时间内发动入侵。
+郭先生在直播中时常会提及“莱彻斯登”这个名字，相信大多数战友都对这个名字有些陌生，那么今天我们就来简单介绍一下这个国家。
 
-华莱士先生说，俄罗斯军队的定位使他们有能力“随时”入侵邻国，但他说他从俄罗斯政府那里听说它“无意”入侵乌克兰。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-43.png)图片来源：[http://www.cndxsd.com/uploadfile/map/2015011321594276.jpg](http://www.cndxsd.com/uploadfile/map/2015011321594276.jpg)
 
-俄罗斯已经在乌克兰附近集结了超过10万军队，本周它在邻国白俄罗斯发起了联合军事演习，并在黑海进行了海军演习。
+“莱彻斯登”是英文Liechtenstein的音译名，中文名为：列支敦士登公国或列支敦士登亲王国（简称“列支敦士登”），这是一个位于阿尔卑斯山脚下的袖珍小国，地处瑞士与奥地利两国之间，是世界上仅有的两个双重内陆国之一（另一个为乌兹别克斯坦）。
 
-**原文链接：**
+列支敦士登领土面积约160平方公里，只有西侧约三分之一的面积位于平坦的河谷里，其余地区大都属于山地。列支敦士登虽然并不和德国交界，但是因为人口大多数都是日耳曼民族，因此官方语言是德语，人口数量约3.8万。
 
-[https://www.independent.co.uk/news/world/europe/ukraine-russia-news-putin-truss-biden-b2012758.html](https://www.independent.co.uk/news/world/europe/ukraine-russia-news-putin-truss-biden-b2012758.html)
+1868年，列支敦士登对外正式宣布成为永久中立国，因此在两次世界大战中均没有遭到战火的蹂躏。列支敦士登又和邻国瑞士保持了良好的经济外交合作，两国成立了关税同盟，列支敦士登使用瑞士法郎做为自己的货币，并由瑞士负责本国的外交和军事国防。
 
-**编辑：LILY**
+虽然列支敦士登地理环境并不优越，但在二战之后，这个原本以农业为主的山区小国，经过自身持续的发展，现已成为金融强国，是全世界最富有的国家之一，人均GDP常年高居世界前三。
 
-**发布：歪桑**
+参阅链接：
 
-20220211
+[https://oushengpartners.com.cn/article/osfotalk\_677.html](https://oushengpartners.com.cn/article/osfotalk_677.html)
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3-4.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-26.jpg)
+
+编辑：飞虹
+
+校对/发稿：遍地开花
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/logo-5-768x103-18.jpg)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,20 +2,20 @@
 ---
 
 
-## 中共篡改法律，不尊重规则
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1992344/)
+## 加拿大反疫苗护照自由车队日益壮大
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/1992570/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+加拿大温哥华扬帆农场    平民正道
 
-*发布：陶子*
+据加拿大媒体【真北方】2月9日报导，卡车司机争取自由的抗议运动已进入第 18 天，尽管有自由党议员猛烈抨击了特鲁多的各项疫情政策，但安省政府仍拒绝终止疫苗护照等防疫措施。而自由车队将继续集结于渥太华抗争到底。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+报导称，在自由党议员乔尔明确反对当局的立场之后，另一自由党议员罗比拉德也挺身而出，对疫苗护照提出质疑。保守党临时领袖卑尔根则利用自由党内部日益增长的分歧，谴责特鲁多污名化争取人权的抗议人士。
+
+此外，在美加边境货车运输最繁忙的底特律-温莎口岸，愤怒的卡车司机们当天临时封锁了双向公路交通。尽管渥太华警方威胁将没收自由车队的卡车，但抗议者们仍继续表现出高昂的士气，并通过在国旗林立中的演讲和提供大量免费食物，向公众展示了他们将和平抗争到底的决心。
+
+* * *
+
+编辑： 平民正道    发布：平民正道
 
  
 

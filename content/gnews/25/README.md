@@ -2,40 +2,36 @@
 ---
 
 
-## 众筹平台GiveSendGo意欲无视安大略省的干预命令，坚持向卡车司机转送捐款。
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1992141/)
+## 辉瑞公司推迟了 FDA 为 5 岁以下儿童接种 Covid 疫苗的要求
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1992456/)
 
-翻译：不要代表我Kari
-校对：小熊
+2022-02-11
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/6-10.png)图片来源：雅典娜设计组
+作者：伯克利洛夫莱斯JR
+翻译：沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2022/02/A6TM__CVSU08JKMNA42OS.png)图片来源：https://www.dw.com/
+Pfizer-BioNTech 正在推迟向美国食品药品监督管理局 (Food and Drug Administration) 的滚动使用，以扩大其两剂 中共病毒疫苗对 6 个月至 4 岁儿童的使用。
 
+此举意味着该年龄段的疫苗将在未来几周内无法获得，这对渴望为幼儿接种疫苗的父母来说是一个挫折。
 
-为自由车队卡车司机发起众筹的基督教众筹网站表示，他们将无视安大略省法院的命令，绝不冻结众筹，绝不停止向抗议者转送捐款。
+辉瑞周五表示，将等待其三剂系列疫苗的数据，因为它认为三剂“可能为这个年龄组提供更高水平的保护”。 该公司表示，预计将在 4 月初发布第三剂数据。
 
-安大略省道格福特Doug Ford政府为冻结“自由车队 “的资金采取了法律行动。随后，法院向众筹平台GiveSendGo下达了停止向抗议运动组织者转赠捐款的命令。数小时后，该平台就此事发表了以上声明。
+辉瑞在 12 月表示，在对 2 至 4 岁儿童进行的试验中，两剂疫苗并未产生足够强的免疫反应。对于幼儿，辉瑞的疫苗剂量为 3 微克，对于 5 至 11 岁的儿童，剂量更高，为 10 微克。
 
-GiveSendGo在社交媒体上的一份声明中写道：”知道吗？加拿大政府无权管控我们GiveSendGo众筹的资金”。
+尽管如此，该公司本月仍要求 FDA 批准前两剂，并计划在未来几周内提交第三剂的额外数据，完整的疫苗接种系列将是三剂。
 
-该公司还声明：”GiveSendGo公司众筹的每一项资金全部都直接赠予众筹受益人，其中最重要的受益人就是‘自由车队’。“
+在下周的咨询委员会会议之前，预计 FDA 将在周五公布对辉瑞数据的分析，FDA周五表示，会议已被推迟。
 
-正如之前所述，福特政府采取了法律行动来冻结这些资金，随后安大略省高级法院对此做出了裁决。
+两位熟悉 FDA 计划的人士表示，外部专家已经对该机构进行了大量反对，他们担心辉瑞的数据不够充分。 其中一位知情人士说，专家们认为，他们的担忧在FDA内部“被置若罔闻”。
 
-该声明表示：“今天，总检察长已向高级法院提出申请，要求依据《刑法》第490.8条发布命令：禁止任何人以任何方式处置’自由车队2022 ‘和‘ 认领卡车 ’通过GiveSendGo在线众筹平台众筹而来的捐款。”
+来源链接：[Pfizer postpones FDA request for Covid vaccine for kids under 5](https://t.co/dgisWykQ2q)
 
-“今天下午，该命令已经发布。它对拥有或控制这些捐款的任何一方均具约束力。”
+编辑：LILY
+发布：肥鯮
 
-原文链接：[https://thepostmillennial.com/givesendgo-ignore-ontario-court](https://thepostmillennial.com/givesendgo-ignore-ontario-court)
-
-*发布：tianzhihuan*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

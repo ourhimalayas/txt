@@ -2,8 +2,8 @@
 ---
 
 
-## 美国建国以来最大的司法腐败的案子
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1992515/)
+## 锁链女事件 会激起中共党内的瓦解
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1992722/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

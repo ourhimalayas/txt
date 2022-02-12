@@ -2,17 +2,13 @@
 ---
 
 
-## 世界主流媒体和中共一样冠冕堂皇谎话连天
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1992360/)
+## 日本防止疫情蔓延重点措施增至36个道府县
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1992577/)
 
-作者:东京樱花团小视频组
-
-编辑：东京樱花团/小视频组
-
-发布：东京樱花团/小视频组
-![](https://assets.gnews.org/wp-content/uploads/2022/02/樱花-3-2.jpg)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/02/20220212-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

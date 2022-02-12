@@ -2,43 +2,39 @@
 ---
 
 
-## 美国称俄罗斯有足够的军队集结入侵乌克兰
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1991682/)
+## 众筹平台GiveSendGo意欲无视安大略省的干预命令，坚持向卡车司机转送捐款。
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1992141/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+翻译：不要代表我Kari
+校对：小熊
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/DQZXWVC2ZZJZJCSN543OQFCVVA.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/6-10.png)图片来源：雅典娜设计组
 
 
-资料来源：路透社
+为自由车队卡车司机发起众筹的基督教众筹网站表示，他们将无视安大略省法院的命令，绝不冻结众筹，绝不停止向抗议者转送捐款。
 
-华盛顿周五表示，俄罗斯已经在乌克兰附近集结了足够的军队来发动大规模入侵，并敦促所有美国公民在 48 小时内离开乌克兰。
+安大略省道格福特Doug Ford政府为冻结“自由车队 “的资金采取了法律行动。随后，法院向众筹平台GiveSendGo下达了停止向抗议运动组织者转赠捐款的命令。数小时后，该平台就此事发表了以上声明。
 
-白宫国家安全顾问杰克沙利文在媒体简报会上说，俄罗斯的袭击可能在任何一天开始，并且可能会从空袭开始，而对基辅的快速推进也是可能的。
+GiveSendGo在社交媒体上的一份声明中写道：”知道吗？加拿大政府无权管控我们GiveSendGo众筹的资金”。
 
-沙利文说，目前尚不清楚俄罗斯总统弗拉基米尔·普京是否已明确下令开始入侵。沙利文表示，他预计美国总统乔·拜登将尽快就这场危机与普京通电话。
+该公司还声明：”GiveSendGo公司众筹的每一项资金全部都直接赠予众筹受益人，其中最重要的受益人就是‘自由车队’。“
 
-早些时候，随着莫斯科进一步加强对西方外交的反应，一家美国私营公司的商业卫星图像显示，俄罗斯在边境附近的几个地点进行了新的军事部署。
+正如之前所述，福特政府采取了法律行动来冻结这些资金，随后安大略省高级法院对此做出了裁决。
 
-NBC 新闻，乌克兰的事情“可能很快变得疯狂”，拜登与英国、加拿大、法国、德国、波兰和罗马尼亚的领导人以及北约和欧盟的负责人就这场危机通了电话。
+该声明表示：“今天，总检察长已向高级法院提出申请，要求依据《刑法》第490.8条发布命令：禁止任何人以任何方式处置’自由车队2022 ‘和‘ 认领卡车 ’通过GiveSendGo在线众筹平台众筹而来的捐款。”
 
-在那次会议之后，随着警报的蔓延，英国首相鲍里斯·约翰逊（Boris Johnson）与其他一些国家一起敦促其公民离开乌克兰。
+“今天下午，该命令已经发布。它对拥有或控制这些捐款的任何一方均具约束力。”
 
-约翰逊在会议上表示，他担心欧洲的安全，并强调“如果俄罗斯做出入侵乌克兰的毁灭性和破坏性决定，需要准备好实施一揽子严厉的经济制裁，”他的办公室说。
+原文链接：[https://thepostmillennial.com/givesendgo-ignore-ontario-court](https://thepostmillennial.com/givesendgo-ignore-ontario-court)
 
-与此同时，莫斯科表示，欧盟和北约本周对其安全要求的答复显示出“不尊重”。
+*发布：tianzhihuan*
 
-一位熟悉会议的消息人士称，拜登隔夜会见了他的国家安全顾问。美国官员认为，随着莫斯科方面的言辞变得强硬，六艘俄罗斯军舰抵达黑海，以及更多俄罗斯军事装备抵达白俄罗斯，美国官员认为危机可能已达到临界点。
-
-国务卿安东尼·布林肯 (Antony Blinken) 说：“我们正处于一个入侵可能随时开始的窗口，明确地说，包括在奥运会期间。”北京奥运会于2月20日结束。
-
-“简单地说，我们继续看到俄罗斯升级的非常令人不安的迹象，包括新部队抵达乌克兰边境。”
-
-俄罗斯否认其入侵乌克兰的计划。
-
-🔗 [美国称俄罗斯有足够的军队集结入侵乌克兰](https://www.reuters.com/world/europe/us-says-russia-masses-more-troops-near-ukraine-invasion-could-come-any-time-2022-02-11/)
-
-责任编辑/发布： Shuizhuyu
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
