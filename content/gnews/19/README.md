@@ -2,22 +2,51 @@
 ---
 
 
-## 法俄揭晓普京马克龙长桌会谈真相
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1993448/)
+## 欧洲看透要阻止俄西扩必须釜底抽薪先灭俄背后金主中共
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1993503/)
 
-整理编辑：东京樱花团｜上善若水
-![](https://lh5.googleusercontent.com/hMk6muAhfffWJKKF9zZhyQKQ_QkXdu3bsBq8LluFurTSwHIeR86udrp1l9zw_0j8jKZyiNPlEUExFAFteghCTN9kZYmvzgzTTFoOFFGMntbVXMx8OFU6LNjbiMp_dZzcMrOI_VeP)[*图片来源*](https://static.dw.com/image/60689791_403.jpg)
-路透社周五（2月11日）援引法国总统马克龙的两名随行人员报道称，马克龙日前拒绝克里姆林宫要求他在同俄罗斯总统普京会晤前，接受俄方的中共病毒检测，导致两人会晤时保持一定距离。该消息人士补充道，法方的这一决定是为了防止俄方获得马克龙的DNA。
+G-TV视频链接：[https://gtv.org/video/id=620497b6585ecc15d73fa8a5](https://gtv.org/video/id=620497b6585ecc15d73fa8a5)
 
-俄罗斯卫星通讯社随后报道称，克里姆林宫证实，马克龙在会见普京前拒绝接受俄方中共病毒检测。“而这就是他们保持距离的原因”，俄罗斯总统新闻秘书佩斯科夫（Dmitry Peskov）当天如是表示。据报道，佩斯科夫还指出，让两位总统隔长桌落座的决定不是出于政治目的，也不会影响会谈，并称，俄方理解法国的立场，而在会议期间确保普京的安全是必要的。本周一，马克龙和普京在莫斯科举行会谈，谈及乌克兰问题。然而，会谈中两人之间的4米长桌格外吸引眼球。
+**郭文贵先生：**所以说兄弟姐妹们，我们今天要谈一谈这个台湾这个问题的时候，我们再说到欧洲，关于疫苗的问题和台湾这有什么关系呢？我们跟欧洲的所有的合作者，关于停止世界上的疫苗灾难的时候，所有的欧洲人都意识到，他说：如果是普京打了乌克兰，普京要是干了乌克兰，他说：会加速欧洲和中国中共的决战。
 
-两位了解法国总统健康协议的消息人士告诉路透社，马克龙当时面临一个选择：要么接受俄罗斯当局做的中共病毒核酸检测，则被允许接近普京；如果拒绝俄方检测要求，则必须遵守更严格的社交距离措施。一名消息人士强调：“我们很清楚双方不能握手，而且会有很长的长桌，但我们不能接受他们获得（马克龙）总统的DNA。”马克龙随行人员中的第二个消息人士介绍，其实马克龙在出发前已经在法国接受了核酸检测，并在俄罗斯进行了一次由他随行医生进行的抗原检测。该消息人士说：“俄罗斯人告诉我们，普京需要身处在一个严格管控的健康泡泡里。”然而，就在与马克龙举行此次会晤的三天后，普京接见了来访的哈萨克斯坦总统托卡耶夫。两人不仅握了手，而且会谈时只隔着一张小咖啡桌。
+我说：这个观点是什么呢？应该是你的无暇顾及，你应该去对付你的乌克兰，东扩你欧洲东扩，是吧。共产党要东扩去台湾，你们要东扩去俄罗斯。现在打起来乌克兰，你怎么叫无暇顾及？他说：本质上能让普京动手，敢于动手，是因为“习太阳”和中国，中国人，给了普京的经济支持。他说：阻止欧洲东扩的根本原因，那就是中国给了普京的两个合同，一个4600亿，一个4800亿的石油。一万亿美元，扩张了军事，而且由于中共国和他在一起，现在中共国习近平搞的什么数字人民币，还有人民币国际化，他说：这助长了俄罗斯敢于对乌克兰动手。
 
-信息来源：[**法俄揭晓普京马克龙长桌会谈真相**](https://www.dw.com/zh/%E6%B3%95%E4%BF%84%E6%8F%AD%E6%99%93%E6%99%AE%E4%BA%AC%E9%A9%AC%E5%85%8B%E9%BE%99%E9%95%BF%E6%A1%8C%E4%BC%9A%E8%B0%88%E7%9C%9F%E7%9B%B8/a-60746651)
+他说：乌克兰不仅克里米亚这个事情会发生，他一定会再继续熄火，甚至到波兰去，再到奥地利去，都有可能，甚至把德国拿下也不是说不可能发生，欧洲将面临着噩梦。
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+他说：我们要击垮这个事情。俄罗斯西扩，我们只有先干掉中共，中共不给俄罗斯钱，我们再干俄罗斯去。我说：那你们有什么样理由？你以为还是八国联军？你以为去了到中共不把你随便灭了？中共有核武器。
+
+这欧洲人就不以为然了。欧洲人说：如果他敢动核武器，那美国和我们，我们都有办法。我们只会赢，不会输，没有任何机会输。打常规战争火战、电子战、潜水艇海战，他说：我们百分之百赢。美国要是加入的话，那就是几分钟的事。他说：现在我们还有澳大利亚，日本。
+
+哇塞，你已听了战友们。但凡懂点国际军事的就明白，澳大利亚属于亚洲，亚洲的真正军事强国是日本。日本就5分钟就把老共3万多个军事基地就灭完了。哎呀你听完这以后，兄弟姐妹们，你觉得中共国在2022年会发生什么事儿？
+
+字幕来源：[2022年1月30日 郭文贵先生直播 全文字版](https://gnews.org/zh-hans/1936606/)
+
+编辑整理：Jacques；
+
+字幕文件制作：小满；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
