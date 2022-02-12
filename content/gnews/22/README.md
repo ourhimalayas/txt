@@ -2,36 +2,21 @@
 ---
 
 
-## 害人害己 冬奥会中共选手又出阴招
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1992602/)
+## 加拿大卡车司机引发的多米诺骨牌效应
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/1992612/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-中国滑冰选手范可新近日在北京冬奥委会女子500米短道竞速滑冰八强赛中，将场上障碍物推到前方对手脚下，导致对方摔倒，自己也因此被对方绊倒，双方均被淘汰。
+加拿大温哥华扬帆农场    平民正道
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/11-02-2022-1.png)图片来源网络
+据【温哥华太阳报】2月8日报导，加拿大多个省份已宣布将结束包括疫苗护照在内的大部分疫情限制措施。计划废除强制性疫苗政策的多米诺骨牌效应，正在西方各国逐步显现。
 
-综合外媒报导，中国女将范可新在国际享誉盛名，曾多次在国际赛事上出现争议行为。 有网友查看比赛回放画面，发现是在转弯的时候，范可新伸手越过一名选手，用手向查尔斯推了一个标记，标记滑到加拿大选手的冰鞋下，导致加拿大选手跌倒在冰上，而她本人也被绊倒，比赛场面异常混乱。 现场画面随后被传到网上，不到1天就超过800万次观看。引发网友纷纷讽刺：中国滑冰选手又在展现“运动家精神”；这就是少林溜冰吗？动作很熟练，一定有练过。 自从冬奥委会开幕以来争议事件频传，各国媒体纷批评这次冬奥委会根本就是场闹剧！
+报导称，卡车司机坚持不懈地在首都渥太华地区的抗议行动，是导致加拿大多个省政府放弃强制性疫苗政策的主要原因之一。此外，各省的卫生部门在各项疫情相关资料面前，发现疫苗接种并不能有效遏制新冠病毒的传播。因此，继续使用疫苗护照已变得毫无意义。
 
+据悉，加拿大自由车队所引发的多米诺股牌效应正在席卷欧洲。最明显的表现是，西班牙、英国、丹麦和爱尔兰等曾经实施严厉防疫政策的国家，现在也已陆续宣布了将重新开放被长期封锁的小区。
 
+* * *
 
-相关链接:
+编辑： 平民正道    发布：平民正道
 
-[https://www.mirror.co.uk/sport/other-sports/winter-olympics-chinese-canada-skater-26169979](https://www.mirror.co.uk/sport/other-sports/winter-olympics-chinese-canada-skater-26169979)
-
-
-
-![This image has an empty alt attribute; its file name is 8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
-
-编辑/校对/发稿：Petite abeille
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

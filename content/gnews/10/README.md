@@ -2,32 +2,34 @@
 ---
 
 
-## 2月11日大直播后记：别给我捐款
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1992763/)
+## 巴西发现Omicron BA.2次变异株
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1992828/)
 
-整理：Grace Fang 、sadhu
-编辑：小红帽
+作者：纽约香草山医疗部 – 云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月8 日媒体报导，巴西卫生部报告已经收到7例Omicron次变异株BA.2的病例通知。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-11-2.jpg)图片来源网络
+此BA.2次变异株已经在世界上近60个国家被发现，目前所知它的传播力比原始Omicron病毒株更强，需高度关切。 BA.2次变异株是在去年11月首次由菲律宾提出报告，目前在有些国家已经占了中共病毒感染一半以上的病例。在丹麦、印度、德国皆有快速增加的病例，在美国也已经有近半数的州发现此BA.2次变异株。丹麦国家血清研究所(Statens Serum Institut)初步发表的数据显示，BA.2传播力较Omicron原病毒株BA.1强1.5倍。 Omicron目前已知有包括BA.1，BA.2，BA.3、B.1.1.529等四种谱系。虽然BA.1和BA.2结构相似，但它们相差了20个突变。BA.2已经在快速取代BA.1成为主要病毒株。关于BA.2的致病强度，据目前所掌握的数据，没有足够的证据来确定BA.2是否比Omicron BA.1更容易引起严重的疾病。此点需要密切观察。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/16-4.png)图片来源：雅典娜设计组（614）
 
 
-咱们台湾的一个老战友说，郭先生，我知道这个钱你不可能拿出来，哪有法院判你1.34亿，而且让你5天拿出来，不拿出来把你扔监狱。怎么可能？他说，甭说你，我也拿不出来1.34亿美元。不可能。谁家钱放着1.34亿美元啊。他说，你给他处置资产，卖股票。他说，你从银行划钱进来，都不一定划过去。怎么可能呢？他说，我现在就卖股票，我现在就捐。我有台积电的股票。
+相关链接:
 
-我说，第一，不可能让你捐。哪有一个让别人捐钱去还这个债的，怎么可能呢？第二个，你们知道的，今天这一件事情和共产党对七哥，你去想想香港DBS银行，各个基金，海通股票，方正股票，盘古，裕达，你们不知道在七哥过去5年和7年的故事多了去了。你捐得完吗？共产党就是要耗掉你的精力，毁掉你的荣誉，让你穷困潦倒无人问你。我说，等到你们有一天看到七哥在某个地方，在垃圾篓里边捡着垃圾吃的时候，你就给我一个面包吃就可以了。你可千万别想捐钱啊。他笑得快不行了，他说永远不会。我说，你就做好准备，哪天我坐那儿，你发现一个人步履阑珊的人正在捡垃圾。为什么不可以啊？我为了活着，我一定会去捡的。到那时候我估计我会卖唱。在东京的某桥下，伦敦的桥下唱歌，这时候你给我钱，这就不叫捐款，咱这是有偿服务，是吧？ 所以说大家捐钱的事别再谈了。这个感谢了！
+[https://www.cna.com.tw/news/aopl/202202090010.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/aopl/202202090010.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share) &lt;Omicron BA.2: What we know about the Covid sub-variant – BBC News&gt; [https://udn.com/news/story/121707/6071358](https://udn.com/news/story/121707/6071358)
 
-还有刚才我就给大家说到的，大家一定要记住， 我去日本，去英国，不是我一个人说了算。没经美国政府，还有我的安保团队，律师团队，绝对的保证下都不可能去。俄罗斯跟中国那么好，俄罗斯在英国是最大势力了吧。他们几个哥们儿跟我说，Miles，你要来了英国，我的所有安保团队全都是你的，而且我这几个城堡，最好的城堡，这个房子全部都送给你，或给你长期用。那里是绝对安保的。我说，我最担心，就是我上你家去，你老板把我给毒了。我说，我还不如直接自杀得了。我才不会去呢。结果人家这哥们说了句话，他说，我们非常清楚，你到哪儿去都在美国安全保护范围内，所以这个世界上只要有人心的人都希望你安全。
 
-再次说，七哥的安全，真不仅仅是爆料革命的事。七哥打响了沼泽地UBS这一枪之后，那是多大的事啊。你想想，被沼泽地给血洗的人，那是多少人呢？ 还有美国的正义人士，加拿大的正义人士，那有多少呢？ 你想我一说，去英国，那M16也好，M15也好，多少咱的兄弟姐妹？多少年的关系？七哥是帮助英国和中共在24小时恢复建交的人。你想我是功臣吧。共产党的一级勋章，我不要。在英国的，给我的荣誉，我还是想要的，因为它有用。共产党那个（勋章）是侮辱。所以说，兄弟姐妹， 你知道日本的内部勋章最高的是什么吗？最高的勋章，七哥是有的。所以说你们绝不用担心，绝不用担心！
 
-发布： tianzhihuan
+![This image has an empty alt attribute; its file name is 8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+编辑/校对/发稿：Petite abeille
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

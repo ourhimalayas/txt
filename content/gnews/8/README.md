@@ -2,8 +2,8 @@
 ---
 
 
-## 共产党改变全世界游戏规则
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1992823/)
+## 揭露疫苗真相为我们带来很多朋友
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1992844/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

@@ -15,71 +15,71 @@
 
 ---
 
-### [普京知道疫苗真相](/content/gnews/1/README.md)
+### [中共冬奥会拼命打降雪弹，导致多地持续降雪](/content/gnews/1/README.md)
+ ` 澳喜农场`
+
+### [相信美国的法律](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [“庆”冬奥](/content/gnews/2/README.md)
+### [瑞银UBS中国牌照](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥受到共产党黑社会全面剥夺](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [普京知道疫苗真相](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [“庆”冬奥](/content/gnews/6/README.md)
  ` 纽约香草山MOS03`
 
-### [2月11日大直播后记：七哥过去七年来所向披靡](/content/gnews/3/README.md)
+### [2月11日大直播后记：七哥过去七年来所向披靡](/content/gnews/7/README.md)
  ` 雅典娜GNotes`
 
-### [揭露疫苗真相为我们带来很多朋友](/content/gnews/4/README.md)
+### [揭露疫苗真相为我们带来很多朋友](/content/gnews/8/README.md)
  ` 雅典娜GNotes`
 
-### [谷爱凌母女欺骗全世界还想当英雄](/content/gnews/5/README.md)
+### [谷爱凌母女欺骗全世界还想当英雄](/content/gnews/9/README.md)
  ` 雅典娜GNotes`
 
-### [巴西发现Omicron BA.2次变异株](/content/gnews/6/README.md)
+### [巴西发现Omicron BA.2次变异株](/content/gnews/10/README.md)
  ` GTV News Talk`
 
-### [中国共产党拿十四亿市场威胁全世界](/content/gnews/7/README.md)
+### [中国共产党拿十四亿市场威胁全世界](/content/gnews/11/README.md)
  ` 雅典娜GNotes`
 
-### [共产党改变全世界游戏规则](/content/gnews/8/README.md)
+### [共产党改变全世界游戏规则](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
 
-### [中共国法治崩塌道德沦丧的根源](/content/gnews/9/README.md)
+### [中共国法治崩塌道德沦丧的根源](/content/gnews/13/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [2月11日大直播后记：别给我捐款](/content/gnews/10/README.md)
- ` 雅典娜GNotes`
-
-### [美国经济与世界经济出了什么大事？](/content/gnews/11/README.md)
+### [美国经济与世界经济出了什么大事？](/content/gnews/14/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中国人相信谎言， 而且维护谎言](/content/gnews/12/README.md)
- ` 雅典娜GNotes`
-
-### [被美国列入黑名单后，中国制药企业市值蒸发99亿美元](/content/gnews/13/README.md)
+### [被美国列入黑名单后，中国制药企业市值蒸发99亿美元](/content/gnews/15/README.md)
  ` 波士顿五月花农场金融部`
 
-### [2/11/2022 文贵直播：所有反对强打疫苗的都是我们战友,疫苗和冬奥会让全世界和我们站在一起灭共](/content/gnews/14/README.md)
+### [2/11/2022 文贵直播：所有反对强打疫苗的都是我们战友,疫苗和冬奥会让全世界和我们站在一起灭共](/content/gnews/16/README.md)
  ` 秘密翻译组-北美组`
 
-### [投机主义者谷爱凌跪舔中共图利益，海外辛劳华人无辜遭痛击](/content/gnews/15/README.md)
+### [投机主义者谷爱凌跪舔中共图利益，海外辛劳华人无辜遭痛击](/content/gnews/17/README.md)
  ` YALUN 亚伦`
 
-### [起诉瑞银正式立案后灭共进入新阶段](/content/gnews/16/README.md)
+### [起诉瑞银正式立案后灭共进入新阶段](/content/gnews/18/README.md)
  ` 扬帆枫叶快讯`
 
-### [2/11/2022 文贵直播：绝不接受PAG案子的判决，我们绝不妥协！PAG案绝非正常案件，打这个官司绝不是钱的问题，文贵要找到真相](/content/gnews/17/README.md)
+### [2/11/2022 文贵直播：绝不接受PAG案子的判决，我们绝不妥协！PAG案绝非正常案件，打这个官司绝不是钱的问题，文贵要找到真相](/content/gnews/19/README.md)
  ` 秘密翻译组-北美组`
 
-### [文贵先生直播重点大纲2022/02/11](/content/gnews/18/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [加拿大国会议员首提加密货币法案](/content/gnews/19/README.md)
+### [加拿大国会议员首提加密货币法案](/content/gnews/20/README.md)
  ` 扬帆枫叶快讯`
 
-### [冬奥委会金牌得主谷爱凌避而不谈其美国身份](/content/gnews/20/README.md)
+### [冬奥委会金牌得主谷爱凌避而不谈其美国身份](/content/gnews/21/README.md)
  ` 扬帆枫叶快讯`
 
-### [加拿大卡车司机引发的多米诺骨牌效应](/content/gnews/21/README.md)
+### [加拿大卡车司机引发的多米诺骨牌效应](/content/gnews/22/README.md)
  ` 扬帆枫叶快讯`
-
-### [害人害己 冬奥会中共选手又出阴招](/content/gnews/22/README.md)
- ` GTV News Talk`
 
 ### [日本防止疫情蔓延重点措施增至36个道府县](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

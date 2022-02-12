@@ -2,8 +2,8 @@
 ---
 
 
-## 中国人相信谎言， 而且维护谎言
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1992739/)
+## 共产党改变全世界游戏规则
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1992823/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
