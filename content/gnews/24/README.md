@@ -2,26 +2,28 @@
 ---
 
 
-## 约翰逊宣布结束英国的强制疫苗护照和口罩制度
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1993855/)
+## 中共社会上流精英的“下流教育”引争议
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1993901/)
 
-##### 翻译：Lish
-校对：精靈藍
-剪辑|字幕：蛮吉
-编辑：Mttfly
+撰稿—虎眼
+校对/上传—无明逆流
 
-近日，英国首相约翰逊在议会宣布不再强制要求疫苗护照，不再强制要求口罩禁令。约翰逊表示：“我们将继续建议在封闭或拥挤的空间使用口罩，特别是当你与你平时不接触的人接触时。但我们将信任英国人民的判断，不再将任何选择不戴口罩的人定罪。”议员们阵阵欢呼，庆祝这一决定的宣布。
+近日，中国知名量化投资人的育子经在网上引起争议。
+该名投资人在聊天中教育自己的儿子，“不要求财，要做‘渣男’；多睡女人，给自己多生孙子。”
 
-视频链接：[Boris Johnson Announces End to Mandatory Vaccine Passports and mask wearing in UK](https://twitter.com/gbrou10/status/1483938256496570374?s=21)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/W2-2.19.38-PM.jpeg)图片来源：网络
 
-*发布：Mttfly*
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+该投资人在聊天记录中说，儿子刚上初二，自己就给他手机里存了几万，现在儿子已经有两个女朋友了，自己还准备明年给儿子看小黄片，高中就可以让儿子去睡其他女生了。他表示自己这一辈子过得辛苦，“让儿子渣一点吧”。
+
+这些聊天记录在网络上曝光后，引起网友议论。有网友说，“这是实话罢了，现在社会有钱人都这样想，只是他说了出来而已。”也有网友表示，“这是在丑化和物化女性，对女性的不尊重，也是对自己的不尊重。”
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Wha-2.19.26-PM.jpeg)图片来源：留图社区
+
+面对聊天记录引起的质疑批评，该投资人丁鹏回应表示，“随便传，不在乎”。
+
+据网络曝出，该投资人担任股东的公司多次出现丑闻，旗下私募产品曾净值造假，造成投资者百万本金血本无归。
+
+此外，该投资人还曾对中国人不生娃的现状提出解决方法，建议中国看病费用跟中国人生孩子的数量进行挂钩；建议中国公务员生一个孩子的当县长，生三个孩子的当省长。
 
  
 
