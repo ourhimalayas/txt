@@ -2,42 +2,52 @@
 ---
 
 
-## 有声|美众议院提案制裁数千名中共高官
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1996717/)
+## 魁北克省出现两组示威者，支持卡车司机，反对卡车司机，警察迅速将两组人分开
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1996815/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美媒独家获悉，美国众议院高层保守派提出了一项立法提案，正式制裁数以千计的中共官员，包括中共独裁者习近平及其整个家族。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-118.png)
-众议员麦克莱恩的法案名为 “制止中共法案”，将对中共官员进行削弱性制裁，包括阻止他们获得美国旅行签证，并进行金融制裁，阻止他们使用或获得某些资产。该法案将制裁中共 最高政府立法机构”全国人大”的每个成员。
+**编译：16626**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/EC995E22-5228-4AA0-B340-9E05BAC22D4A.png)**图片来源：截屏于**[**https://www.tvanouvelles.ca/2022/02/12/camionneurs-et-mesures-sanitaires-les-pour-et-les-contre-manifestent-a-montreal**](https://www.tvanouvelles.ca/2022/02/12/camionneurs-et-mesures-sanitaires-les-pour-et-les-contre-manifestent-a-montreal)**  **
+**两组示威者出现，警察迅速将两组人分开**
 
-根据这项提案，除了习近平本人会受到制裁外，他的直系亲属也会受到制裁。
+周六（2022 年 2 月 12 日）早上，卡车司机（示威）的支持者和反对者在蒙特利尔的贾里公园（parc Jarry）附近举行示威。
 
-该法案还将禁止数千名中共高官及其家属进入美国。他们也将被正式禁止进入美国的金融系统，这样就能阻止中共官员利用家属转移财产逃避制裁。
+蒙特利尔市警察局 (SPVM) 的警察迅速将聚集的两组示威者（两组示威者：支持卡车司机，反对卡车司机）分开。
 
-该媒体称，中共高层领导人对此法案非常恐惧，会竭尽所能游说美国国会阻止法案通过。但如果共和党人在今年中期选举中如愿夺回众议院的多数席位，那么明年在共和党控制的众议院中，民主党也将别无选择支持该法案，届时法案将获两党共同支持顺利通过。
+（2022 年 2 月 12 日）上午 10 点 20 分左右，支持卡车司机的示威活动平静地开始了。
 
-有关人士对此评论，该法案的提出意味着消灭中共也是美国利益的需要，以美灭共也将进入决战阶段，美国两党共同灭共的历史时刻即将到来。
+**一组示威者：支持卡车司机  **
 
-文字版原文：[美众议院提案制裁数千名中共高官](https://gnews.org/zh-hans/1990449/)
+![](https://gnews.org/40c02b72-7bea-40c4-98bb-a699df8db3d2)**图片来源：****截屏于**[**https://www.tvanouvelles.ca/2022/02/12/camionneurs-et-mesures-sanitaires-les-pour-et-les-contre-manifestent-a-montreal**](https://www.tvanouvelles.ca/2022/02/12/camionneurs-et-mesures-sanitaires-les-pour-et-les-contre-manifestent-a-montreal)** ****，****一组示威者：支持卡车司机  **
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+**两组示威者之间（相互对峙）的紧张情绪是显而易见的**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+两组示威者之间（相互对峙）的紧张情绪是显而易见的，但是蒙特利尔市警察局SPVM表示，没有看到任何（冲突）爆发。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+**另一组示威者：反对卡车司机**
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+![](https://gnews.org/855a1bf9-e148-42e4-bb9a-46227bba8f3b)**图片来源：****截屏于**[**https://www.tvanouvelles.ca/2022/02/12/camionneurs-et-mesures-sanitaires-les-pour-et-les-contre-manifestent-a-montreal**](https://www.tvanouvelles.ca/2022/02/12/camionneurs-et-mesures-sanitaires-les-pour-et-les-contre-manifestent-a-montreal)** **** ****，****另一组示威者：反对卡车司机**
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+据悉，在这次示威结束后，卡车司机将离开贾里公园 Jarry Park 加入蒙特利尔的（其它）示威。
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+另外，Gnews（2022 年 2 月 10 日）发表一篇题为《魁北克省勒戈（Legault）政府指责反对党纵容示威者的武装, [https://gnews.org/zh-hans/1987160/](https://gnews.org/zh-hans/1987160/)  》的文章报道，上周末在魁北克省举行的卡车司机示威活动的组织者之一表示，有些人已经准备好拿起武器。魁北克省省长，弗朗索瓦·勒戈（François Legault），指责反对党纵容某些反卫生措施抗议者发出的武装暴力威胁。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+在2022年02月09日文贵大直播中，七哥讲到：
 
+*“**…**被共产党及完全失败的人控制着，小土豆完全是痴心的疯子。共产党希望加拿大和美国越乱越好，但这正不是我们希望发生的。”*
+
+我们谴责并反对暴力示威，我们相信魁北克省，乃至加拿大的公共卫生行政措施很快会发生变化。
+
+**参考资料**： [Camionneurs et mesures sanitaires: les pour et les contre manifestent à Montréal](https://www.tvanouvelles.ca/2022/02/12/camionneurs-et-mesures-sanitaires-les-pour-et-les-contre-manifestent-a-montreal)
+
+**编辑：LILY**
+
+**发布：歪桑**
+
+20220212
+
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3-4.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

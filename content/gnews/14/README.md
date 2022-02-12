@@ -2,36 +2,31 @@
 ---
 
 
-## 战友们别忘了action，action，action
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1996421/)
+## Miles Guo Live Broadcast summary February 11, 2022
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1996446/)
 
-整理：美哥、铁血丹心
-编辑：Mohegayer K. Simon
+![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-11-at-12.42.40-PM.jpeg)
+**Source**[https://gtv.org/video/id=62065c00a1fe5e57a426b9e1](https://gtv.org/video/id=62065c00a1fe5e57a426b9e1)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/16-4.png)
+**Summary**
 
+1. Tens of billions of dollars can’t undo the damage caused by Eileen Feng Gu to the Chinese and Asians.
 
+2. The chained woman in Xuzhou, China has been a sexual slave for 24 years and has eight children. Her parents are members of Communist Party. This matter spans the three generations of the party, Jiang, Hu and Xi. The whole party committed crimes and cheated each other.
 
-图片来源：墨尔本雅典娜农场设计组614
+3. Brother Miles has an exceptional contribution to the United States. The United States wants to ensure the most excellent safety to him. Miles can go to Japan and United Kingdom only if United States government confirms the safety and agrees. I will leave after June at the earliest. In Japan, Brother Miles has the highest medal of Honor and is protected at the highest-level.
 
+4. Brother Miles thanks every fellow fighter for their willingness to donate. $260 million is a small amount of money for him. Brother Miles will not and cannot accept any donations. The Communist Party’s unrestricted warfare has many tricks to consume your energy and destroy your honor. Miles will appeal the unfavorable judgment on the PAG lawsuit to uncover the truth behind the strange verdict of the Communist infiltration. We want to expose Shan Weijian and Pacific Alliance Group (PAG),which deceives hundreds of billions of dollars in the United States. Miles will fight back with American law.
 
-这个韩国啊，香港啊，还有日本。这个咱们到日本去什么情况，到日本的事情6月份以后咱们再说。
+5. There was little or no audiences at the opening ceremony of the Winter Olympics. But the photos taken by the CCP were all filled with people. The forgery under Xi has reached a disastrous level. The Winter Olympics will be Xi Jinping’s last international show of deception.
 
-你记住七哥只要到了英国伦敦，咱们在那的灭共行动，咱们的计划那都是现在你无法想象的！我们可不想高调，像达赖喇嘛到那儿演讲啊，整的多少信众啊，还有机场多少欢迎，那是俗到不能再俗的招了。七哥又不是当明星去了，七哥又不是到那搞双修去了，七哥是去那灭共去了，整得那么热闹是不是？到那谈天论地？你以为是共产主义呢？敌人一天不灭，我们没有任何轻松快乐享受的理由，一切都是战斗战术。
+6. African countries are undergoing coups. The Chinese Communist Party’s investment in Africa will be wasted.
 
-战友们都是太多憧憬，太多想象，很多战友现在这两年在家呆着，一切都是网络，一切都是想象，想象就是想象，它不是事实。七哥的action，action，action已经在全世界都已经成了名言了，所有的外国人一给我发信息，或者最后留言，最后都是action，action，action！
+7. Immune deficiencies caused by COVID-19 vaccines will begin to break out in spring 2022. The Netherland has found many AIDS variants. The United Kingdom and Australia have begun to a large scale of the HIV screening. Pfizer starts recommending HIV drugs to treat COVID-19.
 
-你们把action，action行动，行动都给忘了，我们去伦敦去日本是灭共去了，在日本怎么让国内听到声音？当然七哥有办法，防火墙千万别想，共产党在就永远有防火墙，防火墙不是物理化防火墙，它是一个是意识形态，它是一个国家恐怖主义的防火墙，防火墙根本不存在。就像那个谷爱凌说的，你上谷歌上苹果下载一个VPN不就可以翻墙了吗？这话都说了，你觉得她说的话，这不是真的吗？是真的！真要想翻墙不存在墙，是中国人心里边儿精神上那个墙。谷爱凌就在国内呢，你都相信这种事情，那有墙吗？墙在你心里边在你脑子里边，真正的墙就是共产党，不把共产党灭了，你灭什么墙！战友们别天真别天真别天真！我听到你问这问题时候我就着急呀。
+8. The global supply chains are broken. Duo to the threat of the Communist Party to Hong Kong, the living condition in Hong Kong will still be very bad, and so will the rest of the world.
 
-资料来源：郭先生GTV、盖特直播
-
-发布：星谕
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+Translator: Latin | Proofread: Fine Food | Editor & Publish:shandianxunlian
 
  
 
