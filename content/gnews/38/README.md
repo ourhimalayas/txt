@@ -2,34 +2,35 @@
 ---
 
 
-## 巴西发现Omicron BA.2次变异株
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1992828/)
+## 短视频：反对强制疫苗的休斯敦医院医生被停职
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1992976/)
 
-作者：纽约香草山医疗部 – 云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月8 日媒体报导，巴西卫生部报告已经收到7例Omicron次变异株BA.2的病例通知。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-11-2.jpg)图片来源网络
-此BA.2次变异株已经在世界上近60个国家被发现，目前所知它的传播力比原始Omicron病毒株更强，需高度关切。 BA.2次变异株是在去年11月首次由菲律宾提出报告，目前在有些国家已经占了中共病毒感染一半以上的病例。在丹麦、印度、德国皆有快速增加的病例，在美国也已经有近半数的州发现此BA.2次变异株。丹麦国家血清研究所(Statens Serum Institut)初步发表的数据显示，BA.2传播力较Omicron原病毒株BA.1强1.5倍。 Omicron目前已知有包括BA.1，BA.2，BA.3、B.1.1.529等四种谱系。虽然BA.1和BA.2结构相似，但它们相差了20个突变。BA.2已经在快速取代BA.1成为主要病毒株。关于BA.2的致病强度，据目前所掌握的数据，没有足够的证据来确定BA.2是否比Omicron BA.1更容易引起严重的疾病。此点需要密切观察。
+翻译：俏如来
+校对：精靈藍
+剪辑字幕：向上James 
+编辑：文泓
 
-
-
-相关链接:
-
-[https://www.cna.com.tw/news/aopl/202202090010.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/aopl/202202090010.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share) &lt;Omicron BA.2: What we know about the Covid sub-variant – BBC News&gt; [https://udn.com/news/story/121707/6071358](https://udn.com/news/story/121707/6071358)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/无标题-1.png)图片来源：视频截屏
 
 
+去年6月时，休斯敦卫理公会医院成为全美第一家强制要求所有员工接种疫苗的医院。我们当时警告他们，这只会使基本医疗工作者的短缺情况恶化。当然，我们是对的。休斯敦卫理公会最终迫使150多名员工离职。
 
-![This image has an empty alt attribute; its file name is 8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+但他们不满足于仅仅解雇那些未接种疫苗的员工，他们还惩罚了一名质疑医疗机构COVID说法的医生。休斯敦卫理公会医院去年以传播COVID错误信息的罪名将玛丽·鲍登（Mary Bowden）医生停职。她现在正在起诉医院。玛丽·鲍登医生现在加入我的采访。
 
-编辑/校对/发稿：Petite abeille
+玛丽·鲍登医生，很高兴今晚见到你。现在，令人不安的不仅仅是您因引用错误信息而被停职，您还透露了医院强迫或引诱人们去接种疫苗，请您解释一下。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+对的，我不知道这方面的详细细节。但据我了解，以及正在为我工作的一名护士透露，在最初推出疫苗阶段，医院给所有员工500美元的奖金以激励员工去接种疫苗，然后试图用提供奖金方法去鼓励更多人去接种疫苗。
+
+视频链接：[Wittgenstein 在 Twitter: “Doc blows whistle on vaccine coercion at Houston hospital https://t.co/kp6XQpSMjo” / Twitter](https://twitter.com/backtolife_2022/status/1484124071344418818?s=21)
+
+发布：文泓
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

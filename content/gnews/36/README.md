@@ -2,36 +2,30 @@
 ---
 
 
-## 纽约白尾鹿感染奥米炕 恐成新变种宿主
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1992919/)
+## 美国誓言向印太地区投入更多资源抗衡中共国
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1993176/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据纽约时报8日报道，研究人员表示，史泰登岛上的白尾鹿身上验出中共病毒变种奥米炕，人们担忧美国3000万只白尾鹿可能成为中共病毒新变种的宿主。
+整理编辑：东京樱花团｜peterwong
+![](https://lh3.googleusercontent.com/grDNZRuclGoWsfxFFSIilun5kRd4Nz1R4B0FGpZ0kIF3gZPGmUc6Bj2t44ks1ZaQsxC3O336JVDil-JAaHrOar2LusNipQnhtzKpHyymB4eEgCs7XA4iscCxXl3C8HgspN_kvyS4)[*图片来源*](https://gdb.voanews.com/c36e0000-0aff-0242-393c-08d9edb17348_w1597_n_r1_st.jpg)
+美国星期五(2月11日) 发布《美国印太战略》的战略审议文件，誓言向印太地区投入更多资源抗衡中共国，中共试图在该地区建立势力范围并成为世界影响力最大国家。文件中说，美国将聚焦从南亚到太平洋诸岛的印太地区所有角落，以加强美国的地位和承诺。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-11-3.jpg)图片来源网络
+上周中俄两国发表最为详细和最为强势的联合声明，生成双方的战略合作“没有止境”。两国共同表示反对美国，并要按照他们自身对人权与民主的解读而打造国际新秩序。
 
-路透社报导，研究人员对在纽约州史塔登岛抓到的131只鹿采集血液与鼻咽拭子样本。宾州州立大学科学家率领的研究人员表示，检验结果显示这群白尾鹿先前感染过新型冠状病毒，容易再度感染新变种。 科学家们表示，如果研究结果成立，并且鹿可以反复被新变种重新感染，就会增加动物成为病毒宿主的风险。 这是首度在野生动物上侦测到奥米炕变种。与此同时，美国民众感染奥米炕的病例数已经逐渐减缓下来。 美国农业部表示，没有证据显示动物正把病毒传给人类，大多数中共病毒感染是出现在与中共病毒患者有过近距离接触的情况下。 目前已经在美国15 个州的鹿身上发现了中共病毒。
+美国在这份文件中誓言要将联盟关系现代化，加强新兴的合作伙伴关系，并对地区性的组织进行投资。文件特别强调了“一个强大的印度”作为合作伙伴在一个积极的地区愿景中所发挥的重要作用。
 
+在高度敏感的台湾问题上，这份文件说，华盛顿将与地区内外的伙伴合作，维护台湾海峡的和平与稳定。
 
+这项行动计划还誓言扩大美国海岸警卫队在南亚、东南亚与太平洋的存在与合作。华盛顿认为，中共国威胁着这些海域的捕鱼和自由贸易线路。
 
-相关链接:
+“我们认识到我们改变中共的能力是有限的，因此试图塑造围绕中共的战略环境，”美国行政当局的一位高级官员对记者们说。他还说，这份文件并不包含拜登行政当局更广泛的中共国战略。
 
-[https://www.foxnews.com/health/omicron-found-nyc-deer-study](https://www.foxnews.com/health/omicron-found-nyc-deer-study)
+附《[美国印太战略](https://www.whitehouse.gov/wp-content/uploads/2022/02/U.S.-Indo-Pacific-Strategy.pdf)》原文下载链接
 
+消息来源：[**白宫公布印太战略文件 誓言加大外交与安全努力以抗衡中国**](https://www.voachinese.com/a/us-vows-stepped-up-indo-pacific-effort-in-push-back-against-china-20220211/6438761.html)
 
-
-![This image has an empty alt attribute; its file name is 8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
-
-编辑/校对/发稿：Petite abeille
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

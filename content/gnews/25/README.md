@@ -2,34 +2,46 @@
 ---
 
 
-## 拜登政府将另启对中共关税的调查
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1993304/)
+## 专家称，北京冬奥的假雪影响生态且易对运动员造成伤害
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1993399/)
 
-作者：银河系农场—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月9日，据当地媒体报道，美国最大的商业游说团体表示，由于中共未能兑现承诺，如约购买美国的商品、能源和服务，拜登政府正在考虑对中国关税进行新一轮的调查。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-11-下午11.03.14.png)
-据悉，美国政府也考虑了其他选择，如与美国盟友更加紧密地合作，从而形成对抗中共的统一战线，用以要求中共政府为美国国际公司提供公平的竞争环境。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1162.png)为了在中国干旱的小海坨山上设计和维护滑雪路线，北京冬奥会需要使用 4240 万立方英尺的有争议的假雪。 美国国家航空航天局最近发布的延庆奥运区卫星图像中，没有比这片“冬日仙境”的惊人技巧更清晰的了。
+来源于英国《每日邮报》网站2022年02月10日的报道，为了在中共国干旱的小海坨山上打造和维护滑雪路线，北京冬奥会将使用由数百台机器产生的高达4240万立方英尺的有争议的假雪。
+美国国家航空航天局(NASA)最近发布的延庆奥运区(高山滑雪和滑冰比赛的举办地)的卫星图像最能体现这个“冬季仙境”的惊人假象。这张照片由美国陆地卫星8号(Landsat 8)的陆地成像仪(Operational Land Imager)设备于1月29日拍摄，将白色的轨迹与光秃秃的山脉的其余部分之间的差异鲜明地呈现出来。
 
-另据美国此前一天公布的数据显示，按照川普政府的贸易协议要求，中共如今只完成了协议中不到60%的采买要求。对此，中共方发言人却扬言称，美国理应取消对中共的关税。
+根据NASA的资料，小海坨山(又名“岩石”)在2月份通常只能看到1.3英寸的积雪，这让许多人质疑场地选择的意义。
+根据英国拉夫堡大学(Loughborough University)最近发表的《滑坡》(Slippery Slopes)报告，北京冬奥会是第一个几乎完全依靠人造雪的运动会。
+专家们警告说，随着气候变化继续导致全球气温上升，假雪可能成为许多滑雪胜地的常态——特别是那些低海拔的滑雪胜地。然而，它在奥运会上的使用遭到了运动员的强烈反对，他们警告说，这种雪可能更危险，环保主义者谴责所用的化学物质对周围环境的影响。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1163.png)根据拉夫堡的报告，为了制造足够的雪来维持今年的冬季奥运会，北京奥运会需要通过三个不同的泵站从附近的佛峪口和白河堡水库输送约5900万加仑的水。所有这些液体将由八座水冷却塔冷却，然后通过由130台发电机提供动力的300门雪炮中的一门进行喷射，以白色蓬松的东西从另一侧出来。
+据北京官员称，产生这种雪尘所需的所有电力都将来自可再生能源，但尽管如此，环保人士仍然担心。部分问题在于，用于在假雪融化之前延长其寿命的化学物质，这些化学物质有可能损害埋在人造积雪下的植物，也可能渗出到更广泛的区域。
 
-然而，美国本土的一家公司曾反应称，中共的关税问题给美国公司和工人带来了巨大的压力，政府应该对中共实施更加严格的关税制度。该公司指出，一切对抗中共的贸易行动都应该采取联合多边的方式，包括联合欧洲和亚洲的合作伙伴。
+除此之外，人造雪的融化会破坏当地动植物的自然循环——例如通过延迟冰层下的植物生长——而雪炮造成的噪音污染可能会干扰野生动物。
+人造雪的结构组成也与天然雪完全不同，对使用人造雪进行运动的运动员产生影响。“人造雪有接近30%的冰和70%的空气，相比而言，天然雪有接近10%的冰和90%的空气——进而形成了更坚韧的雪层。”拉夫堡大学的玛德琳·奥尔(Madeliene Orr)及其同事在他们的报告中写道。
+他们解释说，这些差异创造了表面更快更硬的斜坡，“当跌倒发生时，会产生更严重的伤害风险。”今年的冬奥会已经看到许多运动员卷入事故，包括美国滑雪选手尼娜·奥布莱恩(Nina O’Brien)，她在终点区发生碰撞后导致单腿复合性骨折，以及德国选手多米尼克·施瓦伊格(Dominik Schwaiger)在摔倒后被空运到医院，怀疑手臂骨折。
 
-参考链接：[New China tariff probe among options considered by Biden -U.S. Chamber](https://www.reuters.com/business/new-china-tariff-probe-among-options-considered-by-biden-us-chamber-2022-02-09/)
+**简评：**
+中共国完全有举办冬奥会的天然地点，可中共仍然选择用浪费水资源、浪费电力、浪费金钱的方式来制造假雪，完全不顾用以造假雪的化学物质给周围环境及动植物带来的不可估量的生态伤害。选择在不具有天然条件的北京举办冬奥会，可能是中共觉得离北京太远的话，不能营造出万邦来朝的“盛景”吧？可惜，即便如此，万邦来朝没有发生。
+从中共在中国诞生的那一天起，这个政权的维系就是建立在谎言的基础上，且不说远的所谓二万五千里长征，三年“自然灾害”，亩产“万斤粮”，大炼钢铁，文化大革命……近的谎言就是关于中共病毒，如果不是中共官员百般掩盖，病毒完全有可能在爆发初期就得到控制而不至于传染至全世界，至今已在世界范围内杀害近600万人。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+中共政权的谎言最终将拖垮这个独裁体制是毫无疑问的，正如文贵先生经常在大直播中说的：我们就看中共的表演，看他们的谎言被世界揭穿。当人们通过中共的表演发现中共处处造假时，那么它作茧自缚的那一天就会到来，中共最终一定会被追求真相，崇尚民主、法治的文明世界所抛弃。
 
-总编：雪梨
-编辑：静言
-校正/发稿：呼吸的雾霾（文小呼吸）
+新闻链接：[https://www.dailymail.co.uk/sciencetech/article-10498627/Winter-Olympics-NASA-satellite-image-reveals-FAKE-snow-stands-skiing-venue.html](https://www.dailymail.co.uk/sciencetech/article-10498627/Winter-Olympics-NASA-satellite-image-reveals-FAKE-snow-stands-skiing-venue.html)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+翻译/简评：Brianchow
+
+PR：Harvey（叶知秋）
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

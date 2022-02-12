@@ -2,48 +2,31 @@
 ---
 
 
-## 喜马拉雅日本银河系农场携战友为全球Hpay用户传递爱
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1993459/)
+## 有声|美国新感染病例数剧减 各州要求放宽室内强制口罩规范
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1993587/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/封面-8.jpg)
-Hpay to the Moon🌙，Hpay  to the Galaxy🪐
+配音：香草山巡管部 – 格格
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+2月8日外媒报导，根据美国约翰霍普金斯大学的相关研究数据显示，美国本土的中共病毒传播速度已脱离高峰值，大约下降了三分之二以上。目前，美国本土感染情形，一周仍有 186 万确诊病例，每天约2,500人死亡。
 
-银河系向全球持有Hpay的战友或非战友问好，鉴于目前喜联储不支持美加日开设帐号的现状，而数字货币又是人类未来不可阻挡的大潮。
+由于美国疫情趋缓，各地逐渐兴起“取消室内强制佩戴口罩”的呼声。对此，美国康涅狄格、特拉华、新泽西和俄勒冈等四州，州长于周一均表示，将在 2 月或 3 月底，结束学校强制佩戴口罩的相关规范。而宾夕法尼亚州则在今年1月就决定，取消在全州范围内的防疫强制规定。加州州长加文·纽瑟姆则宣布，暂时不会取消学校的口罩规定，但下周开始疫苗接种者可不在室内佩戴口罩。
 
-为了推广喜币，让更多的人使用Hpay，银河系决定，为大家提供服务，我们建立了一支团队来帮助全球拥有Hpay的用户购买喜爱的日本产品。
+对于美国多个州改变了强制戴口罩的防疫规定，有医学专家认为目前不宜取消强制佩戴口罩。在美国全国范围内，大部分地区仍保持着高传染率，因此他们认为现在取消强制口罩规定还为时过早。
 
-点对点付帐，您只要在网上能够找到的商品，我们帮助您购买及运输，所有费用都会提供日本法定发票。
+文字版原文：[美国新感染病例数剧减 各州要求放宽室内强制口罩规范](https://gnews.org/zh-hans/1981451/)
 
-Hpay，将是世界无障碍流通手段，
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-Hpay，己是爆料革命战友传递爱和温暖的桥梁。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-Hpay，更是所有人享受销费自由的唯一工具。
-
-日本银河系将在日本法律，正道主义，全球联盟的监督下，服务全球持有Hpay人士并推广喜币。同时为我们的第二故乡日本的经济恢复出力，回馈社会，在日本树立优质的中国人形象，打倒中共，为美好明天，你我加油。🛍🛍
-
-喜马拉雅日本银河系农场
-
-2022年2月11日
-![](https://assets.gnews.org/wp-content/uploads/2022/02/f715afda841d50a2c757d3852f7b91d8.jpg)
-撰稿：骄子 wung，Judy Lin，魔女Peace
-
-发布：黎明之前
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

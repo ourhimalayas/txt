@@ -2,28 +2,34 @@
 ---
 
 
-## 中日财经爆|中共国：铁矿石要“恶意涨价”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1993206/)
+## 中共国内无固定岗位人数超过2亿
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1993307/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1161.png)[图片来源](https://www.sohu.com/a/237209596_334198)
-针对近期铁矿石价格出现异动等有关情况，中共国相关机构连番出手欲打压“恶意”涨价势头。
+作者：日本方舟农场 Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月9日，据中共喉舌媒体消息显示，中共国内所谓的“灵活就业”群体人数目前已经突破两亿。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-11-下午11.03.41.png)
+资料显示，“灵活就业”是中共政府在2021年创造的新词汇，实际上是指那些没有固定工作，或者从事网络视频制作、网络主播、文案写手等跟社会生产毫无关联的从业人员。
 
-中共国家发改委和市场监管总局拟于近日派出联合调研组，赴部分商品交易所、重点港口开展铁矿石市场监管调研；将高度关注大宗商品价格变化，持续密切关注市场运行和价格走势。
+对于这一群体的增加，分析人士认为，这种“灵活创业”始于中共病毒疫情爆发之后，随着大多数企业因拉闸限电只能减少开工，甚至停产，加之中共国内一直持续的房地产爆雷现象，中共国内民众的生活愈发艰难。
 
-中国钢铁工业协会周五（2月11日）晚间表示，据其监测，近期部分涉矿企业违背商业道德，发布和炒作不实信息，严重干扰了市场公平秩序，损害市场主体的合法利益，钢铁协会对此表示谴责；大商所则宣布上调铁矿石期货相关合约手续费。
+对此，郭文贵先生也反复在直播中提醒墙内的百姓，中共国即将面临大批企业倒闭和房地产爆雷的困境，最终将导致中共国内无可挽回的经济崩塌。
 
-大连商品交易所周五晚间公告，自2月16日起，将铁矿石2202、2203、2204、2205合约手续费标准由成交金额的万分之一调高至万分之二。
+参考链接：[中国灵活就业者已达2亿人 线上工作受到年轻人追捧](http://www.news.cn/local/2022-02/09/c_1128345160.htm)
 
-发改委微信公众号周五发布新闻稿称，调研组将重点了解近期铁矿石库存变化及有关企业参与铁矿石期现货交易情况，严厉打击捏造散布涨价信息、囤积居奇、哄抬价格、恶意炒作。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-中共国市监总局和国家发改委近日联合约谈有关铁矿石资讯企业，要求提供发布信息的事实来源，不得编造发布虚假价格信息，不得捏造散布涨价信息，不得哄抬价格。
+总编：文特
+编辑：静言
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-消息来源：[中国连番出手平抑铁矿石异动 发改委等拟调研库存及大宗商品价格变化](https://cn.reuters.com/article/china-ndrc-iron-ore-price-0212-idCNKBS2KH02C?il=0)
-
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

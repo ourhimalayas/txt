@@ -2,34 +2,27 @@
 ---
 
 
-## 中共国内无固定岗位人数超过2亿
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1993307/)
+## 大直播后记：中共的黑手伸到全世界
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1993437/)
 
-作者：日本方舟农场 Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月9日，据中共喉舌媒体消息显示，中共国内所谓的“灵活就业”群体人数目前已经突破两亿。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-11-下午11.03.41.png)
-资料显示，“灵活就业”是中共政府在2021年创造的新词汇，实际上是指那些没有固定工作，或者从事网络视频制作、网络主播、文案写手等跟社会生产毫无关联的从业人员。
+整理：枫叶红了 奮鬥
+编辑：Sadhu
 
-对于这一群体的增加，分析人士认为，这种“灵活创业”始于中共病毒疫情爆发之后，随着大多数企业因拉闸限电只能减少开工，甚至停产，加之中共国内一直持续的房地产爆雷现象，中共国内民众的生活愈发艰难。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/6-13.png)图片来源：墨尔本雅典娜农场设计组
 
-对此，郭文贵先生也反复在直播中提醒墙内的百姓，中共国即将面临大批企业倒闭和房地产爆雷的困境，最终将导致中共国内无可挽回的经济崩塌。
 
-参考链接：[中国灵活就业者已达2亿人 线上工作受到年轻人追捧](http://www.news.cn/local/2022-02/09/c_1128345160.htm)
+谷爱凌事件造假欺骗全世界，对全世界的法律都是威胁。而且最夸张的事情，她愚蠢到了在全世界媒体面前敢如此之造假，你双重身份代表中国，你在美国出生美国长大，然后美国的娘拿美国护照，然后再中国代表中国人拿冠军。然后你再看到这个冬奥会上中国的裁判，在中国的外国裁判已经完全就像它控制的法官一样。你知道共产党当年在香港的法官都跟我们说什么吗？就香港查封我们钱的人，（我们在）DBS（银行）几百亿的人，这法官后来离职了。他对我说，这个当时中共国威胁我，（中共）明确告诉我，你不把Miles Guo家族的钱给封，我就把你所有的，你在东莞的嫖鸡的事情和你家里边儿不正常的钱全公布，这法官没办法把钱全封了，现在还封着呢！这法官在香港离职了，是个英国人。大家你可以查一查，是在英国在香港的10大法官之一，一辈子呆着香港啊！这是被它威胁的法官，在香港查封资产就这么查封的，所以共产党的黑社会手段绝对伸进了现代冬奥会的所有的官员和那些裁判的身上。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+资料来源：[2022年2月11日 文贵大直播](https://gettr.com/streaming/ptgw8b5f32)
 
-总编：文特
-编辑：静言
-校正/发稿：呼吸的雾霾（文小呼吸）
+发布：tianzhihuan
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
