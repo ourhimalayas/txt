@@ -2,27 +2,34 @@
 ---
 
 
-## 投机主义者谷爱凌跪舔中共图利益，海外辛劳华人无辜遭痛击
-` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1992651/)
+## 巴西发现Omicron BA.2次变异株
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1992828/)
 
-新西兰伊甸农场Gnews组 财经G乐部-亚伦
+作者：纽约香草山医疗部 – 云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月8 日媒体报导，巴西卫生部报告已经收到7例Omicron次变异株BA.2的病例通知。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-11-2.jpg)图片来源网络
+此BA.2次变异株已经在世界上近60个国家被发现，目前所知它的传播力比原始Omicron病毒株更强，需高度关切。 BA.2次变异株是在去年11月首次由菲律宾提出报告，目前在有些国家已经占了中共病毒感染一半以上的病例。在丹麦、印度、德国皆有快速增加的病例，在美国也已经有近半数的州发现此BA.2次变异株。丹麦国家血清研究所(Statens Serum Institut)初步发表的数据显示，BA.2传播力较Omicron原病毒株BA.1强1.5倍。 Omicron目前已知有包括BA.1，BA.2，BA.3、B.1.1.529等四种谱系。虽然BA.1和BA.2结构相似，但它们相差了20个突变。BA.2已经在快速取代BA.1成为主要病毒株。关于BA.2的致病强度，据目前所掌握的数据，没有足够的证据来确定BA.2是否比Omicron BA.1更容易引起严重的疾病。此点需要密切观察。
 
-2月8日，代表中国出战的谷爱凌在北京冬奥会女子自由式滑雪大跳台决赛中夺冠，然而其在美国出生、长大和训练的过程和敏感的双重国籍身份，让这位投机的归化选手引发了国际热议。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/download-1-2.jpg)图片来源todayhot
 
 
-2月11日，郭文贵先生于GTV、Gettr大直播中做出回应，谷爱凌和她母亲不知感恩、耍小聪明的嘴脸，在双重身份上瞪眼撒谎是完全的投机利己主义者，并表示，此事对海外华人的伤害巨大。
+相关链接:
 
-谷爱凌及母亲谷燕为了几百万美元广告费跪舔中共的吃相，就和当年原解放军中将谷俊山在酒桌上的一幕一模一样，只不过是精神上、金钱上的舔。当时谷俊山在酒后把裤子脱了当众让一位女明星（现在还很火）舔阳具，那位女明星屁颠而专业的手嘴配合舔得谷俊山大爽，当即答应提供3000万让其开演唱会。
+[https://www.cna.com.tw/news/aopl/202202090010.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/aopl/202202090010.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share) &lt;Omicron BA.2: What we know about the Covid sub-variant – BBC News&gt; [https://udn.com/news/story/121707/6071358](https://udn.com/news/story/121707/6071358)
 
-谷爱凌在美国出生、长大、训练，却中共国拿冠军。尤其在此刻，中共新疆大屠杀、种族灭绝罪、香港大屠杀、台湾危机、彭帅事件和徐州“锁链女”的档口，中共正好利用冬奥会的所谓正能量掩盖徐州的“锁链女”等罪行。中共通过“百人计划”、“千人计划”对西方假、骗、偷地渗透已经让西方世界的反华、甚至反亚裔情绪暗藏已久，谷爱凌事件给海外华人火上浇油地拉得新仇，谷爱凌及母亲谷燕也一定会为中共献身而付出更多的代价。
 
-谷爱凌及母亲谷燕与中共苟合、漠视公平与法律、玩弄规则，欺骗世界的结局只有灭亡。虽说利用拙劣的手段赢取暂时的胜利，但也是她个人灾难的开始。无奈的是还有为她所谓成功而抬轿高呼的无脑民众，不知此事对所有的海外华人都是伤害，对所有在海外上学的孩子都会产生巨大的威胁。北京冬奥会是中共举国体育碾压社会体育、个人体育的最好诠释，也为海外华人敲响了警钟。
 
-除了归化海外军团，中共的黑手还延伸到冬奥会的裁判身上，在北京冬奥会的裁判正如中共治下的流氓法官一样，胆敢在全世界媒体面前公开地造假、错判、漏判。
+![This image has an empty alt attribute; its file name is 8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-据悉，在现场的奥林匹克高层女官员，面对北京冬奥会的现状接连唉声叹气。
+编辑/校对/发稿：Petite abeille
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

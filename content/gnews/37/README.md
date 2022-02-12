@@ -2,30 +2,32 @@
 ---
 
 
-## 美国商会：拜登政府正考虑对中国重启贸易调查
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1992371/)
+## 欧盟监管机构正在制定加密货币全球规则
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1992559/)
 
 #### 【雅典娜快讯】，紧贴时代脉搏
 
-整理：Eileen（围剿维尼熊）
+整理：围剿维尼熊
 编辑：文泓
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/2-48.png)图片来源：BBC
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/4-27.png)图片来源：Bitcoin News
 
 
-当地时间2月10日，根据德国之声报道，由于中国远未兑现“第一阶段”贸易协议中所作出的两年采购承诺，**2月9日美国商会官员表示，若对于中国未履行的“第一阶段”采购承诺的谈判失败，拜登政府正在考虑接下来的一系列惩罚，其中包括重启对中国的贸易调查，结果可能会导致对中国货物加征关税。**
+当地时间2月10日报道，路透社伦敦消息，一位欧盟官员周三表示，监管机构在快速发展的跨境加密资产领域反应迟缓，但他们可能在几个月内提出首个全球规则框架。
 
-美国商会副会长布列恩向记者表示，美国与其盟国可能联手，迫使中国为国际企业提供更公平的竞争环境和发展机会。
+目前，全球各地对加密资产的处理方式各不相同，欧盟正在批准一套全面标准，用于授权和监管加密资产市场的参与者。20国集团(G20)监管当局、央行和财政部官员组成的金融稳定理事会(FSB)正在研究如何对待比特币和稳定币等加密资产。
 
-据美国普查局2月8日公布的数据显示，2021年美国与中国的货物贸易逆差扩大了450亿美元或14.5%，达到3,553亿美元，是2018年创下4,182亿美元记录以来的最大逆差。而2020年对华贸易逆差则达到3,103亿美元，创下了10年来最低。换言之，中国对所承诺的采购量还存在巨大缺口。
+法国金融市场监管机构AMF主席、FSB委员罗伯特·奥菲勒表示，由于加密资产尚未对金融稳定构成威胁，因此监管机构落后于形势，但现在这已成为FSB的首要议程。
 
-参考链接：[美国商会称拜登考虑对中国另启贸易调查](https://www.dw.com/zh/%E7%BE%8E%E5%9B%BD%E5%95%86%E4%BC%9A%E7%A7%B0%E6%8B%9C%E7%99%BB%E8%80%83%E8%99%91%E5%AF%B9%E4%B8%AD%E5%9B%BD%E5%8F%A6%E5%90%AF%E8%B4%B8%E6%98%93%E8%B0%83%E6%9F%A5/a-60720500)
+奥菲勒说，欧盟需要一个强大的市场监督机构，就像欧洲央行对银行业的监督那样。目前的架构已不再满足这一目的。
 
-*发布：tianzhihuan*
+参考链接：[监管机构正开足马力制定加密货币全球规则](https://cn.reuters.com/article/cryptocurrency-rules-0209-wedn-idCNKBS2KF06F?il=0)
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+**发布：tianzhihuan**
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

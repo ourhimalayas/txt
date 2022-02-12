@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/12/2022 4:08 AM (UTC)`
+
+2/11/2022 Miles Guo: I said in 2018 that the US would enact laws to sanctions against the CCP, and now the bill has been officially introduced. Those who have not taken the COVID jabs will be the winners. Putin directly questioned the CCP's deception during the Winter Olympics, while Xi was lied to by his vassals. The CCP's ruling by deception would be the most powerful weapon to take down the CCP.<br/><br/>2/11/2022 文贵直播：文贵在2018年就说美国要立法制裁中共，现在法案已被正式提出，没打疫苗的人才会是赢家；普京在冬奥会质疑中共忽悠，而习却被蒙在鼓里，中共的以骗治国将成为灭共最有力的武器<br/>
+![img](https://media.gettr.com/group48/getter/2022/02/12/04/ac042ff4-e7f3-8544-141e-fe500c4335cf/out.jpg)
+
+---
+
 `@miles 2/12/2022 1:28 AM (UTC)`
 
 2/11/2022 Miles Guo: All those who are protesting against the COVID vaccine mandate<br/>are our fellow fighters. After the PAG case was ruled, those who want to donate money to me the most are the rich Westerners who followed my advice and didn't get the COVID jabs. The COVID vaccines and the Winter Olympics have made the world stand with us to eliminate the CCP. I have never felt so great and blessed in the cause of taking down the CCP.<br/><br/>2/11/2022 文贵直播：所有反对强打疫苗的都是我们战友！PAG判决出来后，最想要给文贵捐钱的是听了文贵的劝没打疫苗的西方富豪；疫苗和冬奥会让全世界和我们站在一起灭共；文贵从未感觉到灭共事业是如此的伟大和幸福！<br/>
@@ -148,13 +155,6 @@ EP9: The Villains. Let's tear down the monstrous lies of this despicable #HBO #V
 
 2/9/2022 Miles Guo: The case of  Weijian Shan and PAG reveals the dark secrets of the Chinese Communist Party's deep penetration of the U.S. barristers and the judiciary, and the case filing of UBS in the British court opens the door to the evil collusion between the swamp and the CCP<br/><br/>2/9/2022 文贵直播：单伟建和PAG案揭露了中共深度渗透美国大律师界和司法界的黑幕，瑞银(UBS)在英国法院立案是打开了沼泽地和中共邪恶勾兑的大门
 ![img](https://media.gettr.com/group35/getter/2022/02/09/22/d9bf7075-c850-3e88-e9e3-788a17510413/out.jpg)
-
----
-
-`@miles 2/9/2022 10:16 PM (UTC)`
-
-2/9/2022 Miles Guo: Why am I entering into a new stage of my life today? The money deposited in UBS, including its hidden accounting records, is equivalent to the wealth accumulated by mankind in the past 500 years. Yesterday, many big shots thought it was impossible for my lawsuit against UBS to be filed in a London court.<br/><br/>2/9/2022 文贵直播：为什么说七哥在今天进入了人生新高度？瑞银UBS的存款和黑账相当于人类过去500年的财富，UBS案能在伦敦法院立案，这在昨天都是很多大咖认为不可能的事情<br/>
-![img](https://media.gettr.com/group16/getter/2022/02/09/22/fa5afb11-2d59-3b94-3220-dfe3c2173efb/out.jpg)
 
 ---
 
