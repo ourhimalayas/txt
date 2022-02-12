@@ -2,34 +2,36 @@
 ---
 
 
-## 美国商会：拜登政府正考虑对中国重启贸易调查
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1992371/)
+## 辉瑞公司推迟了 FDA 为 5 岁以下儿童接种 Covid 疫苗的要求
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1992456/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+2022-02-11
 
-整理：Eileen（围剿维尼熊）
-编辑：文泓
+作者：伯克利洛夫莱斯JR
+翻译：沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2022/02/A6TM__CVSU08JKMNA42OS.png)图片来源：https://www.dw.com/
+Pfizer-BioNTech 正在推迟向美国食品药品监督管理局 (Food and Drug Administration) 的滚动使用，以扩大其两剂 中共病毒疫苗对 6 个月至 4 岁儿童的使用。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/2-48.png)图片来源：BBC
+此举意味着该年龄段的疫苗将在未来几周内无法获得，这对渴望为幼儿接种疫苗的父母来说是一个挫折。
 
+辉瑞周五表示，将等待其三剂系列疫苗的数据，因为它认为三剂“可能为这个年龄组提供更高水平的保护”。 该公司表示，预计将在 4 月初发布第三剂数据。
 
-当地时间2月10日，根据德国之声报道，由于中国远未兑现“第一阶段”贸易协议中所作出的两年采购承诺，**2月9日美国商会官员表示，若对于中国未履行的“第一阶段”采购承诺的谈判失败，拜登政府正在考虑接下来的一系列惩罚，其中包括重启对中国的贸易调查，结果可能会导致对中国货物加征关税。**
+辉瑞在 12 月表示，在对 2 至 4 岁儿童进行的试验中，两剂疫苗并未产生足够强的免疫反应。对于幼儿，辉瑞的疫苗剂量为 3 微克，对于 5 至 11 岁的儿童，剂量更高，为 10 微克。
 
-美国商会副会长布列恩向记者表示，美国与其盟国可能联手，迫使中国为国际企业提供更公平的竞争环境和发展机会。
+尽管如此，该公司本月仍要求 FDA 批准前两剂，并计划在未来几周内提交第三剂的额外数据，完整的疫苗接种系列将是三剂。
 
-据美国普查局2月8日公布的数据显示，2021年美国与中国的货物贸易逆差扩大了450亿美元或14.5%，达到3,553亿美元，是2018年创下4,182亿美元记录以来的最大逆差。而2020年对华贸易逆差则达到3,103亿美元，创下了10年来最低。换言之，中国对所承诺的采购量还存在巨大缺口。
+在下周的咨询委员会会议之前，预计 FDA 将在周五公布对辉瑞数据的分析，FDA周五表示，会议已被推迟。
 
-参考链接：[美国商会称拜登考虑对中国另启贸易调查](https://www.dw.com/zh/%E7%BE%8E%E5%9B%BD%E5%95%86%E4%BC%9A%E7%A7%B0%E6%8B%9C%E7%99%BB%E8%80%83%E8%99%91%E5%AF%B9%E4%B8%AD%E5%9B%BD%E5%8F%A6%E5%90%AF%E8%B4%B8%E6%98%93%E8%B0%83%E6%9F%A5/a-60720500)
+两位熟悉 FDA 计划的人士表示，外部专家已经对该机构进行了大量反对，他们担心辉瑞的数据不够充分。 其中一位知情人士说，专家们认为，他们的担忧在FDA内部“被置若罔闻”。
 
-*发布：tianzhihuan*
+来源链接：[Pfizer postpones FDA request for Covid vaccine for kids under 5](https://t.co/dgisWykQ2q)
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+编辑：LILY
+发布：肥鯮
 
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

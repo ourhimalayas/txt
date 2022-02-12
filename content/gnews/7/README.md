@@ -2,8 +2,8 @@
 ---
 
 
-## 锁链女事件 会激起中共党内的瓦解
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1992722/)
+## 中国共产党拿十四亿市场威胁全世界
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1992827/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

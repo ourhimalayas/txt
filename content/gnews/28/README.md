@@ -2,90 +2,30 @@
 ---
 
 
-## 全球疫情更新（服用缓释的褪黑素很重要）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1992187/)
+## 美国商会：拜登政府正考虑对中国重启贸易调查
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1992371/)
 
-**整理/编辑：枳实**
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1075.png)图片：雅典娜农场设计组 精灵蓝
+整理：Eileen（围剿维尼熊）
+编辑：文泓
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/2-48.png)图片来源：BBC
 
 
-雅典娜疫情更新（2022年 2月11日）
+当地时间2月10日，根据德国之声报道，由于中国远未兑现“第一阶段”贸易协议中所作出的两年采购承诺，**2月9日美国商会官员表示，若对于中国未履行的“第一阶段”采购承诺的谈判失败，拜登政府正在考虑接下来的一系列惩罚，其中包括重启对中国的贸易调查，结果可能会导致对中国货物加征关税。**
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+美国商会副会长布列恩向记者表示，美国与其盟国可能联手，迫使中国为国际企业提供更公平的竞争环境和发展机会。
 
-**一，全球疫情基本数据**
+据美国普查局2月8日公布的数据显示，2021年美国与中国的货物贸易逆差扩大了450亿美元或14.5%，达到3,553亿美元，是2018年创下4,182亿美元记录以来的最大逆差。而2020年对华贸易逆差则达到3,103亿美元，创下了10年来最低。换言之，中国对所承诺的采购量还存在巨大缺口。
 
-感染总数：405,994,265（日新增2,487,553人，14天增幅-26%）
-
-死亡总数：5,788,802（日新增10,920人，14天增幅 +23%）
-
-**二，全球“疫苗”毒针统计数据**
-
-“疫苗”毒针注射总数：103亿
-
-完全“接种”：42.3亿人
-
-完全“接种”百分比：54.2%
-
-**三，澳洲疫情和“疫苗”数据**
-
-感染总数：2,855,373（今日新增27,129人）
-
-死亡总数：4,479人（今日新增 48人）
-
-每万人感染人数：1106.7547人
-
-“疫苗”毒针注射总数：52,008,496  （今日新增202,530    针）
-
-完全“接种”：19,366,131人
-
-第二针“接种”百分比：79.1%
-
-16岁以上人口接种至少一剂疫苗的比例：&gt;95%
-
-16岁以上人口接种至少两剂疫苗的比例：93.9%
-
-加强针总数：9,727,513（日新增：173,062针）
-
-**四，应当选用缓释的褪黑素**
-
-今日摘译整理FLCCC编写的[中共病毒感染的临床管理指南](https://covid19criticalcare.com/wp-content/uploads/2020/12/FLCCC-Protocols-%E2%80%93-A-Guide-to-the-Management-of-COVID-19.pdf)中关于褪黑素的部分。未来笔者计划总结整理中共病毒治疗药物的使用注意事项，因此利用写疫情更新的时间，陆续翻译相关文献，未来将汇集成为一篇，以方便读者检索阅读。
-
-**褪黑激素（缓释/延长释放制剂）**
-
-**Melatonin (slow release/extended release)**
-
-从1毫克开始，根据耐受性增加到6毫克，夜间服用。有些病人对褪黑激素不耐受，会做非常令人不安和活灵活现的梦。对这些病人来说，最好从0.3毫克缓释片开始， 然后慢慢增加剂量，直到可以耐受为止。
-
-褪黑激素在肝脏中进行大量的第一道代谢，这个过程有明显的个体差异。这造成了不同个体间的较大的剂量差别。
-
-**褪黑素的作用**
-
-褪黑激素具有抗炎、抗氧化、免疫调节和新陈代谢的作用，这对减轻中共病毒的影响很重要。多项研究已经证明，在缓解中共病毒疾病方面可能很重要。一项大型回顾性研究表明，在插管的COVID-19患者中使用褪黑激素可显著降低死亡的风险。耐人寻味的是，蝙蝠是冠状病毒的天然储存库，其褪黑激素的水平特别高，这可能会保护这些动物不发生症状性疾病。同样，儿童的循环褪黑激素水平很高，接近蝙蝠的水平。而老人——特别是60岁以上的老人——的褪黑激素水平非常低。这可能部分解释了老年人对中共病毒感染的脆弱性增加。
-
-**褪黑素的剂型选择**
-
-应当首选褪黑激素的缓释（延迟释放）制剂，因为它们更接近于复制正常的昼夜节律。褪黑激素的代谢在个体间存在明显的差异。褪黑激素的代谢（首过代谢）存在明显的个体差异，因此剂量必须是个体化的。
-
-血清中的高浓度褪黑素水平超快速眼动睡眠和恶梦有关。快速释放的褪黑激素会导致早期的高峰，不能复制正常的昼夜节律。因此，服用缓释/延迟释放制剂很重要。
-
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
-
-数据来源：
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-[covidlive.com.au](https://covidlive.com.au/)
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+参考链接：[美国商会称拜登考虑对中国另启贸易调查](https://www.dw.com/zh/%E7%BE%8E%E5%9B%BD%E5%95%86%E4%BC%9A%E7%A7%B0%E6%8B%9C%E7%99%BB%E8%80%83%E8%99%91%E5%AF%B9%E4%B8%AD%E5%9B%BD%E5%8F%A6%E5%90%AF%E8%B4%B8%E6%98%93%E8%B0%83%E6%9F%A5/a-60720500)
 
 *发布：tianzhihuan*
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
