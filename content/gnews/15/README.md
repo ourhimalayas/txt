@@ -2,21 +2,36 @@
 ---
 
 
-## 拜登政府将解冻阿富汗的70亿美元用于人道救助及赔偿911受害者
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1992837/)
+## 中共并未兑付中美贸易协议的2000亿美元承诺
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1992980/)
 
-撰稿：追着曙光跑
+作者：银河系农场 — 骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国一家研究机构周二的分析显示，在2020年中美贸易协议中，中共并未购买承诺美国的价值2000亿美元的出口产品。
 
-据美联社2月11日的报道，拜登总统周五（11日）签署命令，将解冻目前阿富汗在美国被冻结的70亿美元。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-12-at-11.41.28.jpeg)图片来源：原新闻
-目前，不会立即释放任何资金， 但拜登总统的命令要求银行将冻结金额中的 35 亿美元提供给一个信托基金，通过人道主义组织分配，以满足阿富汗的救济和基本需求。 剩下的35亿美元将留在美国，以赔偿美国911受害者。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-11-4.jpg)图片来源网络
 
-自去年8月，随着美军撤出，塔利班控制了阿富汗后，对阿富汗援助的国际资金全部被暂停，该国数十亿美元的海外资产（主要在美国）被冻结。导致阿富汗经济崩溃，民不聊生。
+根据此贸易协议要求，中共同意在2020年和2021年将某些美国商品和服务的购买量比2017年至少增加2000亿美元，这意味着中共将在这两年内总共需要购买5024亿美元的美国商品。数据显示在这两年内，美国的实际出口额为2888亿美元，比目标少了2130多亿美元，中共只购买了协议要求的57%。 白宫认为中共应该履行其承诺，但鉴于中共病毒大流行的出现，以及即使在交易达成后，美中贸易关系仍存在不确定性，实现2000亿美元的购买承诺异常困难。另外此协议还导致美国对中共征收的部分关税立即回落，但剩余的关税仍然在影响很多中国产品。
 
-为此，拜登政府决定解冻阿富汗存在美国金融机构的70亿美元。
 
-信息来源：[Biden frees frozen Afghan billions for relief, 9/11 victims](https://apnews.com/article/joe-biden-business-united-states-terrorism-b2743737c3286dbba95a7663615e37be)
 
+相关链接:
+
+[https://english.kyodonews.net/news/2022/02/f610890c5d56-china-didnt-buy-any-of-200-bil-us-exports-pledged-in-deal-study.html](https://english.kyodonews.net/news/2022/02/f610890c5d56-china-didnt-buy-any-of-200-bil-us-exports-pledged-in-deal-study.html)
+
+
+
+![This image has an empty alt attribute; its file name is 8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+
+编辑/校对/发稿：Petite abeille
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,94 +2,36 @@
 ---
 
 
-## 全球疫情更新（服用缓释的褪黑素很重要）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1992187/)
+## 辉瑞公司推迟了 FDA 为 5 岁以下儿童接种 Covid 疫苗的要求
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1992456/)
 
-**整理/编辑：枳实**
+2022-02-11
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1075.png)图片：雅典娜农场设计组 精灵蓝
+作者：伯克利洛夫莱斯JR
+翻译：沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2022/02/A6TM__CVSU08JKMNA42OS.png)图片来源：https://www.dw.com/
+Pfizer-BioNTech 正在推迟向美国食品药品监督管理局 (Food and Drug Administration) 的滚动使用，以扩大其两剂 中共病毒疫苗对 6 个月至 4 岁儿童的使用。
 
+此举意味着该年龄段的疫苗将在未来几周内无法获得，这对渴望为幼儿接种疫苗的父母来说是一个挫折。
 
-雅典娜疫情更新（2022年 2月11日）
+辉瑞周五表示，将等待其三剂系列疫苗的数据，因为它认为三剂“可能为这个年龄组提供更高水平的保护”。 该公司表示，预计将在 4 月初发布第三剂数据。
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+辉瑞在 12 月表示，在对 2 至 4 岁儿童进行的试验中，两剂疫苗并未产生足够强的免疫反应。对于幼儿，辉瑞的疫苗剂量为 3 微克，对于 5 至 11 岁的儿童，剂量更高，为 10 微克。
 
-**一，全球疫情基本数据**
+尽管如此，该公司本月仍要求 FDA 批准前两剂，并计划在未来几周内提交第三剂的额外数据，完整的疫苗接种系列将是三剂。
 
-感染总数：405,994,265（日新增2,487,553人，14天增幅-26%）
+在下周的咨询委员会会议之前，预计 FDA 将在周五公布对辉瑞数据的分析，FDA周五表示，会议已被推迟。
 
-死亡总数：5,788,802（日新增10,920人，14天增幅 +23%）
+两位熟悉 FDA 计划的人士表示，外部专家已经对该机构进行了大量反对，他们担心辉瑞的数据不够充分。 其中一位知情人士说，专家们认为，他们的担忧在FDA内部“被置若罔闻”。
 
-**二，全球“疫苗”毒针统计数据**
+来源链接：[Pfizer postpones FDA request for Covid vaccine for kids under 5](https://t.co/dgisWykQ2q)
 
-“疫苗”毒针注射总数：103亿
+编辑：LILY
+发布：肥鯮
 
-完全“接种”：42.3亿人
-
-完全“接种”百分比：54.2%
-
-**三，澳洲疫情和“疫苗”数据**
-
-感染总数：2,855,373（今日新增27,129人）
-
-死亡总数：4,479人（今日新增 48人）
-
-每万人感染人数：1106.7547人
-
-“疫苗”毒针注射总数：52,008,496  （今日新增202,530    针）
-
-完全“接种”：19,366,131人
-
-第二针“接种”百分比：79.1%
-
-16岁以上人口接种至少一剂疫苗的比例：&gt;95%
-
-16岁以上人口接种至少两剂疫苗的比例：93.9%
-
-加强针总数：9,727,513（日新增：173,062针）
-
-**四，应当选用缓释的褪黑素**
-
-今日摘译整理FLCCC编写的[中共病毒感染的临床管理指南](https://covid19criticalcare.com/wp-content/uploads/2020/12/FLCCC-Protocols-%E2%80%93-A-Guide-to-the-Management-of-COVID-19.pdf)中关于褪黑素的部分。未来笔者计划总结整理中共病毒治疗药物的使用注意事项，因此利用写疫情更新的时间，陆续翻译相关文献，未来将汇集成为一篇，以方便读者检索阅读。
-
-**褪黑激素（缓释/延长释放制剂）**
-
-**Melatonin (slow release/extended release)**
-
-从1毫克开始，根据耐受性增加到6毫克，夜间服用。有些病人对褪黑激素不耐受，会做非常令人不安和活灵活现的梦。对这些病人来说，最好从0.3毫克缓释片开始， 然后慢慢增加剂量，直到可以耐受为止。
-
-褪黑激素在肝脏中进行大量的第一道代谢，这个过程有明显的个体差异。这造成了不同个体间的较大的剂量差别。
-
-**褪黑素的作用**
-
-褪黑激素具有抗炎、抗氧化、免疫调节和新陈代谢的作用，这对减轻中共病毒的影响很重要。多项研究已经证明，在缓解中共病毒疾病方面可能很重要。一项大型回顾性研究表明，在插管的COVID-19患者中使用褪黑激素可显著降低死亡的风险。耐人寻味的是，蝙蝠是冠状病毒的天然储存库，其褪黑激素的水平特别高，这可能会保护这些动物不发生症状性疾病。同样，儿童的循环褪黑激素水平很高，接近蝙蝠的水平。而老人——特别是60岁以上的老人——的褪黑激素水平非常低。这可能部分解释了老年人对中共病毒感染的脆弱性增加。
-
-**褪黑素的剂型选择**
-
-应当首选褪黑激素的缓释（延迟释放）制剂，因为它们更接近于复制正常的昼夜节律。褪黑激素的代谢在个体间存在明显的差异。褪黑激素的代谢（首过代谢）存在明显的个体差异，因此剂量必须是个体化的。
-
-血清中的高浓度褪黑素水平超快速眼动睡眠和恶梦有关。快速释放的褪黑激素会导致早期的高峰，不能复制正常的昼夜节律。因此，服用缓释/延迟释放制剂很重要。
-
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
-
-数据来源：
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-[covidlive.com.au](https://covidlive.com.au/)
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

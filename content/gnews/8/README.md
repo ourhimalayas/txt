@@ -2,8 +2,8 @@
 ---
 
 
-## 相信美国的法律
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1992931/)
+## 战友们最重要的是辨真假，识善恶
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1993058/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

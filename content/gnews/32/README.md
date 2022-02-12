@@ -2,36 +2,30 @@
 ---
 
 
-## 众筹平台GiveSendGo意欲无视安大略省的干预命令，坚持向卡车司机转送捐款。
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1992141/)
+## 美国商会：拜登政府正考虑对中国重启贸易调查
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1992371/)
 
-翻译：不要代表我Kari
-校对：小熊
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/6-10.png)图片来源：雅典娜设计组
+整理：Eileen（围剿维尼熊）
+编辑：文泓
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/2-48.png)图片来源：BBC
 
 
-为自由车队卡车司机发起众筹的基督教众筹网站表示，他们将无视安大略省法院的命令，绝不冻结众筹，绝不停止向抗议者转送捐款。
+当地时间2月10日，根据德国之声报道，由于中国远未兑现“第一阶段”贸易协议中所作出的两年采购承诺，**2月9日美国商会官员表示，若对于中国未履行的“第一阶段”采购承诺的谈判失败，拜登政府正在考虑接下来的一系列惩罚，其中包括重启对中国的贸易调查，结果可能会导致对中国货物加征关税。**
 
-安大略省道格福特Doug Ford政府为冻结“自由车队 “的资金采取了法律行动。随后，法院向众筹平台GiveSendGo下达了停止向抗议运动组织者转赠捐款的命令。数小时后，该平台就此事发表了以上声明。
+美国商会副会长布列恩向记者表示，美国与其盟国可能联手，迫使中国为国际企业提供更公平的竞争环境和发展机会。
 
-GiveSendGo在社交媒体上的一份声明中写道：”知道吗？加拿大政府无权管控我们GiveSendGo众筹的资金”。
+据美国普查局2月8日公布的数据显示，2021年美国与中国的货物贸易逆差扩大了450亿美元或14.5%，达到3,553亿美元，是2018年创下4,182亿美元记录以来的最大逆差。而2020年对华贸易逆差则达到3,103亿美元，创下了10年来最低。换言之，中国对所承诺的采购量还存在巨大缺口。
 
-该公司还声明：”GiveSendGo公司众筹的每一项资金全部都直接赠予众筹受益人，其中最重要的受益人就是‘自由车队’。“
-
-正如之前所述，福特政府采取了法律行动来冻结这些资金，随后安大略省高级法院对此做出了裁决。
-
-该声明表示：“今天，总检察长已向高级法院提出申请，要求依据《刑法》第490.8条发布命令：禁止任何人以任何方式处置’自由车队2022 ‘和‘ 认领卡车 ’通过GiveSendGo在线众筹平台众筹而来的捐款。”
-
-“今天下午，该命令已经发布。它对拥有或控制这些捐款的任何一方均具约束力。”
-
-原文链接：[https://thepostmillennial.com/givesendgo-ignore-ontario-court](https://thepostmillennial.com/givesendgo-ignore-ontario-court)
+参考链接：[美国商会称拜登考虑对中国另启贸易调查](https://www.dw.com/zh/%E7%BE%8E%E5%9B%BD%E5%95%86%E4%BC%9A%E7%A7%B0%E6%8B%9C%E7%99%BB%E8%80%83%E8%99%91%E5%AF%B9%E4%B8%AD%E5%9B%BD%E5%8F%A6%E5%90%AF%E8%B4%B8%E6%98%93%E8%B0%83%E6%9F%A5/a-60720500)
 
 *发布：tianzhihuan*
 
-更多资讯，请关注：
+**更多资讯，请关注：**
 [澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

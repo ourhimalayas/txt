@@ -2,34 +2,37 @@
 ---
 
 
-## 巴西发现Omicron BA.2次变异株
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1992828/)
+## 欧盟正在调查由辉瑞和莫德那疫苗引起月经紊乱的报告
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/1992966/)
 
-作者：纽约香草山医疗部 – 云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月8 日媒体报导，巴西卫生部报告已经收到7例Omicron次变异株BA.2的病例通知。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-11-2.jpg)图片来源网络
-此BA.2次变异株已经在世界上近60个国家被发现，目前所知它的传播力比原始Omicron病毒株更强，需高度关切。 BA.2次变异株是在去年11月首次由菲律宾提出报告，目前在有些国家已经占了中共病毒感染一半以上的病例。在丹麦、印度、德国皆有快速增加的病例，在美国也已经有近半数的州发现此BA.2次变异株。丹麦国家血清研究所(Statens Serum Institut)初步发表的数据显示，BA.2传播力较Omicron原病毒株BA.1强1.5倍。 Omicron目前已知有包括BA.1，BA.2，BA.3、B.1.1.529等四种谱系。虽然BA.1和BA.2结构相似，但它们相差了20个突变。BA.2已经在快速取代BA.1成为主要病毒株。关于BA.2的致病强度，据目前所掌握的数据，没有足够的证据来确定BA.2是否比Omicron BA.1更容易引起严重的疾病。此点需要密切观察。
+翻译：冰糖葫芦喵
+
+编辑与校对：冰糖葫芦喵、灭共文明
+
+《网管专家》2月11日报道，**周五，欧洲药品管理局（EMA）的风险评估委员会宣布，将审查由于辉瑞和莫德那中共病毒疫苗引起月经不调的报告。**此前数千名女性报告称，在接种这些疫苗之后，她们的月经期发生了变化。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/女性月经.jpg)图片来源：网络。
+据新闻报道称，在审查了现有证据后，美国公共关系咨询委员会（PRAC）决定要求对所有现有数据进行深入评估。该委员会正在使用辉瑞和莫德那报告，进一步对接种疫苗后出现月经大出血和闭经的病例进行评估。
+
+报道指出，2021年4月，在数千名女性报告接种中共病毒疫苗后月经发生变化后，研究人员开始调查mRNA疫苗和月经之间的联系。**接种疫苗的女性报告了月经周期之间、月经周期缩短和月经周期延长的出血情况。**
+
+根据发表在《妇产科》杂志上的这项研究，**许多接种了中共病毒疫苗的女性都发现她们的月经周期发生了巨大变化，并强调这些情况是在接种疫苗后发生的。**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/疫苗与女性生殖.jpg)图片来源：网络。
+该研究得出结论:**2019中共病毒疫苗接种与月经周期长度的变化有关。**然而，**任何谈论中共病毒疫苗与月经问题和生育问题之间有联系的人都被贴上了“阴谋论者”的标签。**
+
+据VAERS网站透露，截止到2022年1月28日，接受中共病毒疫苗后出现月经紊乱的病例约为22987例。
+
+评论：
+
+新中国联邦、爆料革命坚持不懈地向全世界传播中共病毒疫苗真相，并警告，毒疫苗会对未来人类繁衍和生育造成巨大影响。**正如郭文贵先生所说，没有接种毒疫苗的人的生殖细胞都将是非常珍贵地，也承载着人类未来的希望。**
+
+今后，随着疫苗灾难的大规模爆发，全世界包括西方发达国家将会面临前所未有的巨大灾难。**中共以及与其沆瀣一气的暗黑势力比过去任何时候都会更加疯狂，全世界共同消灭以中共为首地邪恶势力是拯救世界的唯一正途。**
+
+新闻链接：
+
+[EU Investigates Reports of Menstrual Disorders Following Pfizer and Moderna COVID-19 Vaccinations — As We First Reported Last Year (thegatewaypundit.com)](https://www.thegatewaypundit.com/2022/02/eu-investigates-reports-menstrual-disorders-following-pfizer-moderna-covid-19-vaccinations/)
 
 
 
-相关链接:
-
-[https://www.cna.com.tw/news/aopl/202202090010.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/aopl/202202090010.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share) &lt;Omicron BA.2: What we know about the Covid sub-variant – BBC News&gt; [https://udn.com/news/story/121707/6071358](https://udn.com/news/story/121707/6071358)
-
-
-
-![This image has an empty alt attribute; its file name is 8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
-
-编辑/校对/发稿：Petite abeille
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
