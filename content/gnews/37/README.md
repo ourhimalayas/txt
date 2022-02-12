@@ -2,28 +2,34 @@
 ---
 
 
-## 中日财经爆|中共国：铁矿石要“恶意涨价”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1993206/)
+## 拜登政府将另启对中共关税的调查
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1993304/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1161.png)[图片来源](https://www.sohu.com/a/237209596_334198)
-针对近期铁矿石价格出现异动等有关情况，中共国相关机构连番出手欲打压“恶意”涨价势头。
+作者：银河系农场—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月9日，据当地媒体报道，美国最大的商业游说团体表示，由于中共未能兑现承诺，如约购买美国的商品、能源和服务，拜登政府正在考虑对中国关税进行新一轮的调查。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-11-下午11.03.14.png)
+据悉，美国政府也考虑了其他选择，如与美国盟友更加紧密地合作，从而形成对抗中共的统一战线，用以要求中共政府为美国国际公司提供公平的竞争环境。
 
-中共国家发改委和市场监管总局拟于近日派出联合调研组，赴部分商品交易所、重点港口开展铁矿石市场监管调研；将高度关注大宗商品价格变化，持续密切关注市场运行和价格走势。
+另据美国此前一天公布的数据显示，按照川普政府的贸易协议要求，中共如今只完成了协议中不到60%的采买要求。对此，中共方发言人却扬言称，美国理应取消对中共的关税。
 
-中国钢铁工业协会周五（2月11日）晚间表示，据其监测，近期部分涉矿企业违背商业道德，发布和炒作不实信息，严重干扰了市场公平秩序，损害市场主体的合法利益，钢铁协会对此表示谴责；大商所则宣布上调铁矿石期货相关合约手续费。
+然而，美国本土的一家公司曾反应称，中共的关税问题给美国公司和工人带来了巨大的压力，政府应该对中共实施更加严格的关税制度。该公司指出，一切对抗中共的贸易行动都应该采取联合多边的方式，包括联合欧洲和亚洲的合作伙伴。
 
-大连商品交易所周五晚间公告，自2月16日起，将铁矿石2202、2203、2204、2205合约手续费标准由成交金额的万分之一调高至万分之二。
+参考链接：[New China tariff probe among options considered by Biden -U.S. Chamber](https://www.reuters.com/business/new-china-tariff-probe-among-options-considered-by-biden-us-chamber-2022-02-09/)
 
-发改委微信公众号周五发布新闻稿称，调研组将重点了解近期铁矿石库存变化及有关企业参与铁矿石期现货交易情况，严厉打击捏造散布涨价信息、囤积居奇、哄抬价格、恶意炒作。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-中共国市监总局和国家发改委近日联合约谈有关铁矿石资讯企业，要求提供发布信息的事实来源，不得编造发布虚假价格信息，不得捏造散布涨价信息，不得哄抬价格。
+总编：雪梨
+编辑：静言
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-消息来源：[中国连番出手平抑铁矿石异动 发改委等拟调研库存及大宗商品价格变化](https://cn.reuters.com/article/china-ndrc-iron-ore-price-0212-idCNKBS2KH02C?il=0)
-
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

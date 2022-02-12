@@ -2,31 +2,35 @@
 ---
 
 
-## 北京“雄心勃勃”的奥运中共病毒的闭环管理
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1993241/)
+## 美国防疫政策或将面临全面调整
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1993305/)
 
-编译：花岗岩
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-174.jpg)
-图片来源：网络截图
+作者：纽约香草山 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月7日，据当地媒体消息显示，美国多个民主党州宣布，本周起将逐渐解除当地针对中共病毒疫情的口罩限制。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-11-下午11.03.22.png)
+据悉，加利福尼亚州、康涅狄格州、特拉华州、新泽西州和俄勒冈州的民主党州长当天先后宣布了取消强制要求当地民众在室内或学校佩戴口罩的计划。而白宫发言人普萨基对此回应称，白宫虽然反对，但并不会干涉这些州的解封计划。
 
-据美联社北京2月11日报道，对于一个决心将最初在其境内出现的病毒拒之门外的国家来说，将来自世界各个角落的15,000多人带进来是一场严重的赌博。在为期17天的活动中，中共国似乎正在用一个所谓的 “闭环 ”来应对其强大的中共病毒（COVID-19）奥运挑战，该“闭环”允许北京奥运会参赛者跳过检疫，但严格限制他们的行动，以便他们不会与普通民众接触。已经有490个确诊病例，其中许多是对没有症状的游客进行的阳性测试，而且至今没有任何关于泄漏的报告。
+分析人士则指出，虽然许多共和党的执政州早已取消了这些疫情强制措施，但此番民主党州的突发行动无疑给联邦政府的防疫政策施加了来自内部的巨大压力。如今民主党执政州的严厉管控政策开始松动，加之民众对联邦政府推行的中共病毒疫苗强制接种令的大力反对，这或可预示着政府的封锁措施和强制疫苗令将在全美范围内逐渐瓦解。
 
-在该闭环内，奥运组织者采用了政府零容忍的方法，每个人每天都要接受病毒测试，任何测试呈阳性的人都要迅速隔离，以防止任何传播。运动员和其他人在不参加比赛时必须戴上N95面罩。该闭环创造了两个独立的世界。运动员和其他参赛者不能在闲暇时间参观北京的旅游景点或餐馆和酒吧。他们唯一能瞥见的是穿梭于住宿地和场馆之间的公共汽车的窗户。他们的酒店和比赛场地都用临时围墙围起来，并派人看守，防止人们外出或进入。
+参考链接：
+1）[Biden Under Pressure to End Mandates as Dem States Lift Restrictions](https://www.newsmax.com/politics/covid-19-mandates-masks-biden/2022/02/08/id/1056045/)
+2）[Biden v the blue states: Psaki says it is up to school districts to decide mask mandates and there are leaders STOPPING them after four Democrat governors dropped classroom rules](https://www.dailymail.co.uk/news/article-10489735/Biden-urged-roll-COVID-restrictions-FOUR-Dem-governors-announced-end-school-masking.html)
+3）[NYC workers protest vaccine mandate ahead of termination deadline](https://nypost.com/2022/02/07/nyc-workers-protest-expected-firings-over-vaccine-mandate/)
 
-中共国对谁可以进入中国有严格的限制，并要求那些进入中共国的人在指定的酒店隔离两到三周。即使是最小的疫情，中共国也会对建筑物和社区进行封锁，然后对所有居民进行大规模检测，以找出并隔离阳性病例。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-该战略并非没有成本，在奥运会前夕，中共国将封锁范围扩大到整个拥有1000多万人口的城市，以杜绝疫情爆发，迫使工厂和非必要的商店关闭，并将人们限制在其住宅区内。与越南接壤的一个拥有约400万人口的西南部地区本周被封锁，因为该地区爆发的疫情已经感染了约180人。在北京，两个居民区仍然被封锁，因为两周前出现了少数病例。
+总编：Irene木木
+编辑：Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-在闭环外面，对北京的大多数人来说，生活仍在正常进行。部分团体，如学校儿童、企业赞助商、冬季运动团体、外国外交官和记者等被邀请充当部分看台，但大多数人通过智能手机或电视关注奥运会。
-
-北京市疾病预防控制中心党委书记黄春本周早些时候说，在闭环内的450例确诊感染病例中，没有一例在闭环中蔓延，而且也没有关于任何医学上的严重问题的报告。闭环内大规模爆发的可能性，可能使运动员在比赛中退赛，这比泄漏到中共国其他地区更令人担心。
-
-最后的考验将在奥运会结束后进行，届时来自中共国的数千名奥运工作人员和志愿者将退出闭环，预计他们在离开前将被要求隔离一周或更长时间，以试图阻止他们可能存在的任何潜伏感染的影响。
-
-香港大学的公共卫生专家凯伦·格雷平（Karen Grépin）认为，中共国的做法所带来的健康和经济效益已经超过了成本，这些成本是由那些被封锁的人和旅游业等行业所承担的，这些行业因与大流行病相关的旅行限制时好时坏而受损。她说：“从任何标准来看，他们的死亡率都低得令人难以置信，在过去两年里，全国大部分地区都过着相对正常的生活。”
-
-新闻来源：[Beijing’s ambitious Olympic COVID bubble: So far, so good](https://apnews.com/article/winter-olympics-covid-pandemic-bubble-effectiveness-acb24560ea13174b94590c428dac29d9)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

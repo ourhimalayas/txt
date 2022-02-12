@@ -2,47 +2,24 @@
 ---
 
 
-## 喜马拉雅日本银河系农场携战友为全球Hpay用户传递爱
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1993459/)
+## 疑遭中共报复？坎特在被交易到休斯顿火箭队后被立即裁掉
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1993622/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/封面-8.jpg)
-Hpay to the Moon🌙，Hpay  to the Galaxy🪐
+#### 翻译/撰稿：zzballack
 
-银河系向全球持有Hpay的战友或非战友问好，鉴于目前喜联储不支持美加日开设帐号的现状，而数字货币又是人类未来不可阻挡的大潮。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-2-8.jpg)图片来源：路透社
+据《布雷特巴特新闻网》（Breitbart News）2月11日报道，中共政权的批评者、积极为人权发声的前NBA凯尔特人队中锋埃内斯·坎特·自由（Enes Kanter Freedom）本周四（2月10日）在被交易到休斯顿火箭队后立刻被该队裁掉，已是自由球员的坎特目前无法在NBA打球。
 
-为了推广喜币，让更多的人使用Hpay，银河系决定，为大家提供服务，我们建立了一支团队来帮助全球拥有Hpay的用户购买喜爱的日本产品。
+数月来，坎特一直在社交媒体上批评中共的残暴罪行。本赛季初期，坎特通过穿戴一系列特别定制的球鞋，吸引人们关注中共的种族灭绝暴行。去年10月23日，坎特在推特上发布[视频](https://twitter.com/EnesFreedom/status/1451581224087134209)，要求习近平关闭维吾尔奴工营，并停止种族灭绝行为。就在被火箭队裁掉的数小时前，他在推特上发布了一个类似《南方公园》（South Park）风格的[动画视频](https://twitter.com/EnesFreedom/status/1491830779428622339)。视频中，他被中共领导人习近平折磨和枪杀，以借此嘲讽习近平为首的中共的施暴行径。
 
-点对点付帐，您只要在网上能够找到的商品，我们帮助您购买及运输，所有费用都会提供日本法定发票。
+虽然火箭队没有官方声明说坎特的这则视频是他被裁掉的原因，但这完全可能在他们的决定中起了作用。为了清理薪金空间和管理工资帽，NBA球队在球员交易后裁掉他们并不罕见。然而，一支在中共国最受欢迎的球队通过球员交易获得了NBA联盟中最直言不讳的中共政权批评人士、并立即裁掉他，此举得到了中共官媒的称赞，这事情的前前后后有点太过完美。
 
-Hpay，将是世界无障碍流通手段，
+2019年，火箭队的时任总经理达雷尔·莫雷 (Daryl Morey)因为在推特上声援香港激怒了中共，导致中共下架火箭队的商品、停播NBA的比赛、并解除了与NBA高达数千万美元的合同。
 
-Hpay，己是爆料革命战友传递爱和温暖的桥梁。
+熟悉中共肮脏手法的人不难看出，坎特被裁背后肯定有中共的参与。为了中共国的金钱和市场，NBA一直都在讨好和奉承中共。中共早就想清除坎特这个眼中钉，如今终于找准一个合适时机将其逐出大联盟。但此举只会招致坎特以及其他中共政权批评人士更猛烈的反击，中共想一手遮天、让全世界消声的邪恶企图不会得逞。
 
-Hpay，更是所有人享受销费自由的唯一工具。
-
-日本银河系将在日本法律，正道主义，全球联盟的监督下，服务全球持有Hpay人士并推广喜币。同时为我们的第二故乡日本的经济恢复出力，回馈社会，在日本树立优质的中国人形象，打倒中共，为美好明天，你我加油。🛍🛍
-
-喜马拉雅日本银河系农场
-
-2022年2月11日
-![](https://assets.gnews.org/wp-content/uploads/2022/02/f715afda841d50a2c757d3852f7b91d8.jpg)
-撰稿：骄子 wung，Judy Lin，魔女Peace
-
-发布：黎明之前
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+新闻来源：[China Critic Enes Kanter Freedom Waived by Rockets After Celtics Trade](https://www.breitbart.com/asia/2022/02/11/china-critic-enes-kanter-freedom-waived-rockets-after-celtics-trade/)
 
  
 

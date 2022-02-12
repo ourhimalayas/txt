@@ -2,20 +2,12 @@
 ---
 
 
-## 中国经济恒大地产庞氏骗局继续造假
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1993819/)
+## 爆炸新闻：疾控中心和辉瑞悄悄承认疫苗严重伤害了人们
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1993860/)
 
-#### 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王
-视频定位：BENJ1，WEI
+02/09/2022 爆炸新闻：疾控中心考虑增加疫苗之间的时间间隔以降低心脏炎症的风险；辉瑞悄悄地给股东添加了警告语言：“不利的临床前或安全数据可能会影响业务”。
 
-*发布：玉米地守望者*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
