@@ -2,36 +2,35 @@
 ---
 
 
-## 爆料革命将用法律让世界知道真相
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1994002/)
+## 印尼向法国和美国购买战斗机以应对亚太地区局势
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1994106/)
 
-作者：纽约磐石农场—在远方
+整理：Eileen（围剿维尼熊）
+编辑：小红帽
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/6-10.png)图片来源：雅典娜设计组（614）
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-186.jpeg)图片来源：七哥盖特
+根据《德国之声》中文网2月11日报道， 印尼于2月10日向法国订购了42架阵风战斗机，并可能购买两艘法国潜艇。同时，美国也批准印尼以140亿美元购买36架F-15战斗机，以应对亚太地区日益紧张的局势。
 
-2月10日，郭文贵先生在盖特表示，中共利用法律在全世界操纵和改变游戏规则。在冬奥会用检测的名义隔离运动员，导致其无法参赛。中共用同样的流氓手段给郭先生罗织罪名，而爆料革命也将合理的使用法律，让世界知道PAG和UBS的真相。
-郭先生说，冬奥会就是共产党的末日会，其本质就抢劫和“依法”耍流氓。共产党把芬兰有可能获得冠军，或者拿奖项的运动员，以检测的名义、以奥利匹克法律规则为名，把他们黑掉。就像中共大连法院，给郭先生栽赃一个所谓的“强迫交易罪”，虽然郭先生给中共纳税几百亿，但是中共却还要倒罚郭先生几百亿，这是历史上绝无仅有的。有墙内战友告诉郭先生，他们农行最好的一笔贷款，就是当年盘古酒店的贷款，不但提前还款，还为农行赢得几十亿的利息。PAG太平联盟，不找债主找担保人，然后编造假文件，将客户黑掉。
-郭先生表示，共产党走遍全世界，就是用所谓的“法律”，以及改变和操纵游戏规则的非法手段，来把坏事做尽。许多去参加冬奥会的外国运动员被中共的邪恶所震惊和伤害，但也是咎由自取。就像美国司法部的希金.博坦、艾略特.布罗迪、史蒂文.韦恩等人，都是拿了中共的大钱，却在干着伤天害理的事情，但是这个世界终究还有有真理的，特别是美国，真相一定会出来的。
-郭先生表示，太平联盟准备要在香港上市，还有UBS把郭先生家族的股票给强迫出售之后，然后就变成了第一家在中共国获得经营牌照的外国银行，这都说明PAG和UBS的内幕很深，但一切都是刚刚开始。中共既然能用法律黑掉敌人，反之我们爆料革命也要合法的运用法律，让世界知道真相。
+该消息是在印尼国防部长苏比安托 (Prabowo Subianto) 与法国国防部长帕利 (Florence Parly) 在雅加达会面时宣布的。
 
-参考链接 [https://www.gettr.com/post/ptspi1ef70](https://www.gettr.com/post/ptspi1ef70)
+此次是印尼为了更新由美国F-16战机与俄罗斯苏霍伊战机组成的机队，首次向法国订购阵风战斗机。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-187.jpeg)
+法国国防部表示，这42架飞机及其武器的合同价值81亿美元，法国和印尼还签署了一份研究和开发意向书，其中，印尼将向法国订购两艘鮋鱼级(Scorpene)潜艇。
 
-编辑/校对/发稿：文敬
+法国总统马克龙 (Emmanuel Macron) 对印尼选择法国军事设备的决定表示欢迎并表示阵风战斗机交易将加强两国之间的伙伴关系。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+参考链接：[印尼向法国购买数十架战机 美国预告对印尼军售](https://www.dw.com/zh/印尼向法國購買數十架戰機-美國預告對印尼軍售/a-60739179)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
+*发布：tianzhihuan*
 
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

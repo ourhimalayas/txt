@@ -2,43 +2,24 @@
 ---
 
 
-## 被中共绑架的中国人如何能得到西方尊重
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1994185/)
+## 中日财经爆┃美国电费翻三倍 物价创纪录 入店行窃增加
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1994288/)
 
-作者：纽约磐石农场—在远方
+撰稿：东京樱花团/向海
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-18.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimage.shutterstock.com%2Fimage-vector%2Fcpi-consumer-price-index-concept-260nw-1537289546.jpg&amp;imgrefurl=https%3A%2F%2Fwww.shutterstock.com%2Fimage-vector%2Fcpi-consumer-price-index-concept-big-1537289546&amp;tbnid=9xIbXzmUOgju0M&amp;vet=12ahUKEwjayO_OzPn1AhW0I6YKHZc7AsMQMyggegUIARCDAg..i&amp;docid=GOPuc9XySpxo_M&amp;w=473&amp;h=280&amp;q=CPI&amp;ved=2ahUKEwjayO_OzPn1AhW0I6YKHZc7AsMQMyggegUIARCDAg#imgrc=9xIbXzmUOgju0M&amp;imgdii=P6oi7QnYUvxHYM)
+在创纪录的价格继续上涨的美国，一些地区的电费几乎翻了三倍。纽约市的家庭电费，单位电价增加了大约是上个月的三倍。电力公司将其归因于天然气价格上涨。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
+此外，纽约警察局发现，由于物价上涨，入店行窃比两年前增加了 15%。某连锁超市中，肉类、冰淇淋、洗洁精等物价上涨幅度较大的物品盗窃事件屡见不鲜。
 
+美国 1 月份消费者价格指数增加了7.5%，为 40 年来的最高涨幅。
 
+信息来源：
 
-```
-2月10日，郭文贵先生在盖特表示，中共的冬奥会非常无耻，中共的高官玩弄谷爱玲母女两人，毁掉了她的美好前程。就像孟建柱，曾经变态的玩弄过一家人中的三代女性。
-```
+[電気代「3倍」に万引き増加…米で記録的な物価上昇](https://news.yahoo.co.jp/articles/47a5e0ca04ae5f95b1d6a19388a9b4db0403c18d)
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-195.jpeg)图片来源；七哥盖特
-
-郭先生告诫说，任何人都不应该端中共的饭碗。跟着共产党、相信共产党，就会走进火葬场，这是一个人人皆知的常识。过去百年历史证明，原苏联、纳粹德国，古巴、委内瑞拉，每个独裁国家都是如此。现在阿富汗正在饿死人，而PAG和UBS却仍然毫无廉耻的在当帮助中共作恶，中国人已经被中共残害殆尽，这会让全世界对中共国人产生极大的偏见。尊重游戏法则，尊重法律，是一个社会的底线，道德是人和畜生之间最低的底线。
-郭先生表示，中共的冬奥会让运动员5天吃同样的饭。如果哪位运动员有获奖的可能，共产党就会以核算检测的名义将其强行隔离，让其失去获奖机会。中共用发射火箭人为制造的假雪营造冬奥环境，既不专业又污染环境，对天地万物、对所有运动员、对道德和法律，都是巨大的伤害。郭先生质问道，这将让世界和后人们如何看待我们？中国人如何能获得西方的尊重？中国人如何能阻止世界反华排华？这一切都让郭先生感到十分痛心。
-
-参考链接 [https://www.gettr.com/post/ptsexc64a5](https://www.gettr.com/post/ptsexc64a5)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-196.jpeg)
-
-编辑/校对/发稿：文敬
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
-
-
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

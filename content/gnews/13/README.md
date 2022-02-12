@@ -2,20 +2,14 @@
 ---
 
 
-## 习近平为何抓刘亚洲（上）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1994223/)
+## 秘翻在线：美国政府计划撤回驻乌克兰大使馆工作人员
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1994326/)
 
-#### 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王
-视频定位：BENJ1，WEI
+撰稿：待命（文暁）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/画像2-1.png)（图片源自本文链接）
+2月12日共同社华盛顿消息：美联社11日报道，由于对俄罗斯入侵乌克兰的担忧不断增加，美国政府预计将从美国驻乌克兰大使馆撤出所有美国人员。
 
-*发布：玉米地守望者*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+信息源：[在ウクライナ米大使館職員、国外退避へ（共同通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/0230db73463e622a9e1f331b6099057588610388)
 
  
 

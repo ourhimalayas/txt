@@ -2,42 +2,38 @@
 ---
 
 
-## 美大学生校队完胜中共外聘职业联军
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1994371/)
+## 郭文贵先生与UBS之诉，将让更多同胞觉醒
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1994412/)
 
-撰稿：纽约香草山 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-2.png)
-2月10日，冬奥会冰球男子组预赛，由美高校学生组成的美国队，以8:0完胜中共出巨资打造的，由美、加、俄职业球员组成的中国队。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1175.png)图片来源：https://news.sina.cn
-此前，自去年12月美国国家冰球联盟NHL宣布不派联盟球员参加2022北京冬奥会，冰球强国美国和加拿大匆忙组建了各自的国家队跨洋出征。这些年轻的球员绝大多数是在校大学生，从没参加过国际比赛；反观中国队的阵容，25人中，本土球员只有6人，其余的19人几乎都是通过中共国运作了四年的“大国战略”高薪招募的外籍球员，而且大部分是NHL职业球员。
+作者：Ruihua
+编辑：Mttfly
 
-根据国际冰球联合会的规则，允许球员代表一个国家效力，只要在那里生活了至少两年。中共国本来没有冰球队，仅仅为了实现奥运会东道主国“全项目”参与，不惜花费巨资打造了这支联合球队，没想到在首场美中交锋中，就以这般不堪入目的成绩，展现在世人面前。网友尴尬评论：落花流水。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/78.png)图片来源：www.sharjah24.ae
 
-正如郭先生所说，北京冬奥会，一切都是假的。这场比赛正是另一个有力的佐证。
 
-【新闻链接】
+2022年2月10日，文贵先生起诉UBS的官司在伦敦正式立案。
 
-[US spoils host China’s hockey debut in 8-0 thrashing](https://www.france24.com/en/live-news/20220210-us-spoils-host-china-s-hockey-debut-in-8-0-thrashing)
+UBS的中文名叫瑞银集团，其在全球各大金融中心都设有办公机构，但只在瑞士的苏黎世、巴塞尔有总部。自清朝以来，直至民国破亡，中共建政，UBS一直藏匿着原本属于中国人民的大量财富。这些黑钱沾满了中国人民的鲜血。
 
-[China’s Olympic hockey hopes rest on North American talent](https://www.foxnews.com/sports/china-olympic-hockey-north-american-talent)
+文贵先生在直播中直言，“爆料革命在与UBS的较量中，会遭遇很多意想不到的困难，中共会给英国施加巨大的政治压力，埋下各种突发的变数，包括造假、抹黑、仇恨、甚至谋杀。他们会想尽一切办法，集全球的政治、经济、媒体之能量，将这个案子本身抹掉。”UBS像一个千年恶龙，滋养着全世界的暗黑势力，但这不能阻挡郭先生灭共的进程，即使冒着生命危险。
 
-[中国男子冰球历史首登冬奥舞台，0-8不敌美国队](https://news.sina.cn/gn/2022-02-10/detail-ikyakumy5282501.d.html?from=wap)
+文贵先生在七年的时间里没有放弃这个案子，顶着暗黑势力的重压，直到今天终于立案成功。他经历了多大的挑战，我们是想象不到的。他有一颗多么强大的心，可以承受这些黑暗的侵袭。在我们跟随文贵先生发起的爆料革命的过程中，我们看到了他坚定的信念，永不放弃的精神。我们所了解文贵先生面临的压力，如冰山一角。文贵先生从来不在战友面前，直播中，表露自己所遇到的压力，总是云淡风轻。正如郭先生咬破手指，引天地惊雷，创立新中国联邦。上天站在我们这一边，有信仰的人才能驾驭八面来风，挑战邪恶，临危不惧。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+UBS的立案是对共产党的毁灭性的打击。共产党这帮老杂毛想要与文贵先生和他的家人勾兑，被文贵先生和他的家人拒绝了。共产党要不惜一切代价，阻止这个官司的立案。因为共产党知道立案后，双方当事人要在法庭上出示文件。这时侯中共和UBS勾结的丑恶必定会暴露在世界人民面前。共产党不得不解释，无产阶级的、爹亲娘亲不如党亲的党怎么会有那么多的钱呢？在UBS的钱不是500个Million！是很大的钱，是50万亿美元，中国的老百姓你知道吗？
 
-编辑：谐趣园
+我想所有的中国人都是不敢想的，盗国贼利用他们的公权力把中国人民的血汗钱都存在了海外，人民财富据为己有，我们的人民都蒙在鼓里。共产党不管什么样的钱都不放过。就算给杨改兰的最低生活费也要苛扣，使她和她的孩子无法生活下去。我们看到徐州8个孩子的母亲在24年里的蹂躏，这些都是血淋淋的事实。共产党压榨中国人民70年了，我们中国人再不自省的话，那就真的没救了。而这一次诉讼，必定会唤醒更多被中共洗脑的同胞！
 
-总编：Ivy001
+我们是新中国联邦人，要跟共产党彻底的清算，这一笔笔的血泪。所以说，消灭中共是人类正义的需要。让所有的人认清共产党的罪恶，我们要紧跟文贵先生，传播爆料革命真相，让更多的人开眼看到UBS与中共丑恶的交媾。
 
-校正/发稿：浪迹天涯
+发布：tianzhihuan
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-2.png)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,26 +2,26 @@
 ---
 
 
-## 台湾使用HPAY完成第一台汽车交易
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1994357/)
+## 研究表明在中共实验室中有中共病毒的早期版本
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1994402/)
 
-署名: 纽约香草山医疗部 – 云豹
+撰稿：银河系农场 – 骄子
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-2.png)
-2月10日，台湾农场的大牛及政清团队直播使用HPAY购买及交付第一辆汽车的实况。交易标的是一台2019年出厂的宝马 X3休旅车二手车，交易金额约为1200 HCN。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1174.png)
-购车的买主是在HCN 21美元左右时进场购买喜币的。以交易价1195个喜币来计算，买主花费的成本价约为25095美元。以10日喜币价格48美元来计算，买主已经省了一半以上的价钱。买卖双方当场使用HPAY，瞬间就完成了买车价金的传送。
+据英国媒体2月10日消息，近日，匈牙利的科学家在检查来自南极洲的土壤DNA时发现了一种独特的中共病毒变异的痕迹，这些痕迹可能会支持中共病毒来自实验室的结论。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1177.png)图片来源：https://www.newsmax.com
+从土壤样本分析来看，科学家认为中共病毒应该不是从自然野生动物传染给人类的。研究人员还发现了来自中共的仓鼠和绿猴的遗传物质，这表明中共病毒利用动物或动物细胞进行过实验室实验。
 
-据卖家台湾农场大象表示，他选择以喜币交易，好处是可以省去被信用卡公司抽取的手续费、货款可以瞬间入账不必经由银行造成延迟收款、也可以享受未来喜币预期的涨价空间。另外，由于买卖家同为台湾农场的战友，卖家愿意在收到货款前就先办理该汽车的过户登记，显示了战友间的相互信任。
+越来越多的证据证明，在中共病毒大流行之前，中共科学家们在实验室设计了病毒，并增强了其传染性。
 
-此次成交的车辆，是事先公告在Gettr上供人阅览、买主在阅览盖特上的内容后，自行与卖家联络，最后成交的。这也显示盖特发挥了商业价值。这次结合盖特、H PAY、HCN、GTV整个系列的运作，让整个汽车交易过程得以完美呈现。G 系列的实用性及魅力正逐渐显现在日常生活中。
+新闻链接：
 
-新闻连接: [台灣第一台使用Hpay支付車輛交車](https://gtv.org/video/id=62052bf0a1fe5e57a426578d)
+[‘Early version of Covid-19’ is discovered in Chinese lab, fuelling fears that scientists were studying the virus prior to outbreak](https://www.dailymail.co.uk/news/article-10495613/Early-version-Covid-19-discovered-Chinese-lab.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-编辑:飞虹
+编辑：飞虹
 
-总编: Jack Li文阳
+总编：木木
 
 校正/发稿：浪迹天涯
 
@@ -32,6 +32,8 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-2.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

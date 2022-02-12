@@ -2,38 +2,21 @@
 ---
 
 
-## 盖特与纳瓦兹建立合作关系
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1994309/)
+## 雪松总部被围，民企500强又现暴雷声
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1994370/)
 
-撰稿：日本东京方舟农 – Miyali7768(文玉)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-2.png)
-2月10日，盖特发布官方消息，宣布与纳瓦兹建立新的合作伙伴关系。
+**撰稿人：东南**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/A19EA1BA-AC26-467F-A30F-031B75A4F09B.jpeg)**图片来源网络**
+近日曾经是广州最大民企之一的雪松控股，总部楼下聚集了一大批维权的投资者，他们的平均投资都在百万级别。雪松控股在2020年其实就被曝光42只信托产品风控全线裸奔，220亿底层资产尽数虚无，借道假央企转移百亿巨资。2021年4月至今，雪松的理财产品大面积逾期，构成事实违约，而其产品大都是百万起投，其投资来源大多都是父母的养老钱、子女的教育基金、企业的经营周转资金。今年1月30日，也就是除夕前一天，雪松向投资者发布致歉信，称兑付无法完成，将在春节后进一步与投资人对话商议方案、取得共识，确保2月底前完成兑付。而按照此前方案，当月底应兑付2021年8月前到期产品本金的10％。雪松高管和投资者沟通时承认，对外发行的理财产品存量规模在200亿元左右，涉及投资人大约8000人，平均每人250万左右。但就在2月9日的公司会议上，雪松的理财经理们把矛头对准公司董事长、创始人张劲，要求其个人为逾期理财产品承担连带责任，遭到拒绝，陷入僵局。于是就有了围攻总部的一幕。
 
-作为英国政治评论员、广播员和前LBC主持人，纳瓦兹是英国领先的独立声音之一，也是受人尊敬的英国反极端主义组织的联合创始人。他将在盖特上发布独家视频，直播和其他内容，而不会遭到审查或取消的威胁。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1173.png)
-盖特首席执行官杰森-米勒说，我们很自豪能够提供一个平台，让像纳瓦兹这样的思想领袖能够分享他们的政治分析，而不会受到被禁止和沉默的威胁。质疑权威和传播思想的能力是任何繁荣的民主制度的基石，盖特很自豪能够站在争取言论自由的最前沿。
+要知道雪松信托这家可是广州唯一的世界500强民企。想到这就不由得后背发凉，这种“皮包公司”是怎么进入民企500强的？像雪松一样的信托公司中共国就这一家吗？答案是肯定的：当然不是。就近些年来P2P,私募,乃至上市公司都在频频暴雷，就CCP这样的资本市场还有什么可信任的。但那些投行的高管呢，哪个不是在暴雷前把钱早就转进到了私人腰包，个个都赚得盆满钵满。就算是公司亏没了都不要紧，因为当初的目的不就是这最后的暴雷吗！反观投资者你想他利息，他谋你本金的事层出不穷，真的是希望墙内的同胞一定要看清现在全球都在灭共的大背景下，一定要看好自己手里的钱，远离一切CCP的投资和理财产品。血本无归，欲哭无泪的懊悔不要再一出出上演了。
 
-新闻来源:
+**文章参考：**
 
-[GETTR Announces Partnership with British Broadcaster @MaajidNawaz](https://gettr.com/post/ptq3xwcf4c)
+**[暴雷！雪松控股总部遭投资者维权 理财再逾期或与恒大有关？](https://finance.sina.com.cn/trust/roll/2022-02-11/doc-ikyakumy5259573.shtml)**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
+发稿：MG6
 
-G[ETTR Announces Partnership with British Broadcaster Maajid Nawaz](https://about.gettr.com/press/gettr-announces-partnership-with-british-broadcaster-maajid-nawaz)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2-1.jpg)
-
-编辑：文真
-
-总编：Ivy001
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

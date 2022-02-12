@@ -2,45 +2,47 @@
 ---
 
 
-## 专家称，北京冬奥的假雪影响生态且易对运动员造成伤害
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1993399/)
+## 喜马拉雅日本银河系农场携战友为全球Hpay用户传递爱
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1993459/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1162.png)为了在中国干旱的小海坨山上设计和维护滑雪路线，北京冬奥会需要使用 4240 万立方英尺的有争议的假雪。 美国国家航空航天局最近发布的延庆奥运区卫星图像中，没有比这片“冬日仙境”的惊人技巧更清晰的了。
-来源于英国《每日邮报》网站2022年02月10日的报道，为了在中共国干旱的小海坨山上打造和维护滑雪路线，北京冬奥会将使用由数百台机器产生的高达4240万立方英尺的有争议的假雪。
-美国国家航空航天局(NASA)最近发布的延庆奥运区(高山滑雪和滑冰比赛的举办地)的卫星图像最能体现这个“冬季仙境”的惊人假象。这张照片由美国陆地卫星8号(Landsat 8)的陆地成像仪(Operational Land Imager)设备于1月29日拍摄，将白色的轨迹与光秃秃的山脉的其余部分之间的差异鲜明地呈现出来。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/封面-8.jpg)
+Hpay to the Moon🌙，Hpay  to the Galaxy🪐
 
-根据NASA的资料，小海坨山(又名“岩石”)在2月份通常只能看到1.3英寸的积雪，这让许多人质疑场地选择的意义。
-根据英国拉夫堡大学(Loughborough University)最近发表的《滑坡》(Slippery Slopes)报告，北京冬奥会是第一个几乎完全依靠人造雪的运动会。
-专家们警告说，随着气候变化继续导致全球气温上升，假雪可能成为许多滑雪胜地的常态——特别是那些低海拔的滑雪胜地。然而，它在奥运会上的使用遭到了运动员的强烈反对，他们警告说，这种雪可能更危险，环保主义者谴责所用的化学物质对周围环境的影响。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1163.png)根据拉夫堡的报告，为了制造足够的雪来维持今年的冬季奥运会，北京奥运会需要通过三个不同的泵站从附近的佛峪口和白河堡水库输送约5900万加仑的水。所有这些液体将由八座水冷却塔冷却，然后通过由130台发电机提供动力的300门雪炮中的一门进行喷射，以白色蓬松的东西从另一侧出来。
-据北京官员称，产生这种雪尘所需的所有电力都将来自可再生能源，但尽管如此，环保人士仍然担心。部分问题在于，用于在假雪融化之前延长其寿命的化学物质，这些化学物质有可能损害埋在人造积雪下的植物，也可能渗出到更广泛的区域。
+银河系向全球持有Hpay的战友或非战友问好，鉴于目前喜联储不支持美加日开设帐号的现状，而数字货币又是人类未来不可阻挡的大潮。
 
-除此之外，人造雪的融化会破坏当地动植物的自然循环——例如通过延迟冰层下的植物生长——而雪炮造成的噪音污染可能会干扰野生动物。
-人造雪的结构组成也与天然雪完全不同，对使用人造雪进行运动的运动员产生影响。“人造雪有接近30%的冰和70%的空气，相比而言，天然雪有接近10%的冰和90%的空气——进而形成了更坚韧的雪层。”拉夫堡大学的玛德琳·奥尔(Madeliene Orr)及其同事在他们的报告中写道。
-他们解释说，这些差异创造了表面更快更硬的斜坡，“当跌倒发生时，会产生更严重的伤害风险。”今年的冬奥会已经看到许多运动员卷入事故，包括美国滑雪选手尼娜·奥布莱恩(Nina O’Brien)，她在终点区发生碰撞后导致单腿复合性骨折，以及德国选手多米尼克·施瓦伊格(Dominik Schwaiger)在摔倒后被空运到医院，怀疑手臂骨折。
+为了推广喜币，让更多的人使用Hpay，银河系决定，为大家提供服务，我们建立了一支团队来帮助全球拥有Hpay的用户购买喜爱的日本产品。
 
-**简评：**
-中共国完全有举办冬奥会的天然地点，可中共仍然选择用浪费水资源、浪费电力、浪费金钱的方式来制造假雪，完全不顾用以造假雪的化学物质给周围环境及动植物带来的不可估量的生态伤害。选择在不具有天然条件的北京举办冬奥会，可能是中共觉得离北京太远的话，不能营造出万邦来朝的“盛景”吧？可惜，即便如此，万邦来朝没有发生。
-从中共在中国诞生的那一天起，这个政权的维系就是建立在谎言的基础上，且不说远的所谓二万五千里长征，三年“自然灾害”，亩产“万斤粮”，大炼钢铁，文化大革命……近的谎言就是关于中共病毒，如果不是中共官员百般掩盖，病毒完全有可能在爆发初期就得到控制而不至于传染至全世界，至今已在世界范围内杀害近600万人。
+点对点付帐，您只要在网上能够找到的商品，我们帮助您购买及运输，所有费用都会提供日本法定发票。
 
-中共政权的谎言最终将拖垮这个独裁体制是毫无疑问的，正如文贵先生经常在大直播中说的：我们就看中共的表演，看他们的谎言被世界揭穿。当人们通过中共的表演发现中共处处造假时，那么它作茧自缚的那一天就会到来，中共最终一定会被追求真相，崇尚民主、法治的文明世界所抛弃。
+Hpay，将是世界无障碍流通手段，
 
-新闻链接：[https://www.dailymail.co.uk/sciencetech/article-10498627/Winter-Olympics-NASA-satellite-image-reveals-FAKE-snow-stands-skiing-venue.html](https://www.dailymail.co.uk/sciencetech/article-10498627/Winter-Olympics-NASA-satellite-image-reveals-FAKE-snow-stands-skiing-venue.html)
+Hpay，己是爆料革命战友传递爱和温暖的桥梁。
 
-翻译/简评：Brianchow
+Hpay，更是所有人享受销费自由的唯一工具。
 
-PR：Harvey（叶知秋）
+日本银河系将在日本法律，正道主义，全球联盟的监督下，服务全球持有Hpay人士并推广喜币。同时为我们的第二故乡日本的经济恢复出力，回馈社会，在日本树立优质的中国人形象，打倒中共，为美好明天，你我加油。🛍🛍
 
-* * *
+喜马拉雅日本银河系农场
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+2022年2月11日
+![](https://assets.gnews.org/wp-content/uploads/2022/02/f715afda841d50a2c757d3852f7b91d8.jpg)
+撰稿：骄子 wung，Judy Lin，魔女Peace
 
+发布：黎明之前
 
-编辑：【英国伦敦喜庄园编辑部】
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

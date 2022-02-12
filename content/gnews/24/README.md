@@ -2,36 +2,32 @@
 ---
 
 
-## 印尼向法国和美国购买战斗机以应对亚太地区局势
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1994106/)
+## 北京冬奥会成为中共以“法”作恶的舞台
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1994183/)
 
-整理：Eileen（围剿维尼熊）
-编辑：小红帽
+撰稿: 新西兰伊甸农场 – 亚伦
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-2.png)
+2月10日，郭文贵先生在Gettr视频中透露，中共举办冬奥会就是他们以“法”的名义、行作恶之实的最好诠释。他们不但让参赛运动员五天吃同样的饭，还以奥林匹克检测规则的名义，把有得冠实力的芬兰运动员隔离起来，实施中共病毒检测，让其失去比赛资格。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1172.png)
+中共一直在全世界依靠“蓝金黄”手段，改变法律程序，操纵游戏规则。正如PAG太平联盟集团无理起诉郭先生后就可以在香港上市， UBS瑞银集团可以把郭先生家族基金的股票强迫交易后，就可以获得中国有史以来第一个外国银行金融牌照，中共善于用恶法黑掉揭露它作恶的人，而我们要用合法的手段让世界得知真相并维护正义，一切都是刚刚开始。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/6-10.png)图片来源：雅典娜设计组（614）
+编辑：飞虹
 
+总编：Irene木木
 
-根据《德国之声》中文网2月11日报道， 印尼于2月10日向法国订购了42架阵风战斗机，并可能购买两艘法国潜艇。同时，美国也批准印尼以140亿美元购买36架F-15战斗机，以应对亚太地区日益紧张的局势。
+新闻链接：[2022年2月10日文贵先生盖特](https://gettr.com/post/ptobeh782f)
 
-该消息是在印尼国防部长苏比安托 (Prabowo Subianto) 与法国国防部长帕利 (Florence Parly) 在雅加达会面时宣布的。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2-1.jpg)
 
-此次是印尼为了更新由美国F-16战机与俄罗斯苏霍伊战机组成的机队，首次向法国订购阵风战斗机。
+校正/发稿：浪迹天涯
 
-法国国防部表示，这42架飞机及其武器的合同价值81亿美元，法国和印尼还签署了一份研究和开发意向书，其中，印尼将向法国订购两艘鮋鱼级(Scorpene)潜艇。
-
-法国总统马克龙 (Emmanuel Macron) 对印尼选择法国军事设备的决定表示欢迎并表示阵风战斗机交易将加强两国之间的伙伴关系。
-
-参考链接：[印尼向法国购买数十架战机 美国预告对印尼军售](https://www.dw.com/zh/印尼向法國購買數十架戰機-美國預告對印尼軍售/a-60739179)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
