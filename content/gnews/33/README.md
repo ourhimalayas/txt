@@ -2,25 +2,29 @@
 ---
 
 
-## 有声|还原中共国内的三年饥荒
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1995393/)
+## 美国宣布向台湾出售爱国者导弹
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1995460/)
 
-配音：香草山巡管部 – 格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-中共夺取中国政权的十年后，1959年至1961年，中国境内发生了迄今为止人类历史上最大的饥荒灾难，也就是后来被中共定义的“三年大饥荒”，当时造成的非正常死亡人数至少达到了5000万人。
+作者：纽约香草山教育部 – Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+美国政府2月7日宣布，它已批准向台湾出售旨在改进该岛导弹防御系统的设备和服务，估计成本为 1 亿美元。这是自去年1月拜登总统上任以来，美国第二次对台军售。
 
-虽然中共通过篡改历史，强行将这一惨剧归咎于自然灾害，但据国际学者分析称，此次大饥荒实际上是人为因素造成的大劫难。资料显示，以毛泽东为首的中共统治集团违反人类社会发展的规律，强行推进所谓的工业化大跃进。在大跃进期间，中共又在农村建立人民公社，强行推广公共食堂，剥夺农民拥有食物的权力。彼时，由于中共上层强行征收公粮，这导致农民不仅没有口粮，甚至连种子粮和饲料也要全部上交。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/9-8.jpg)
 
-在饥荒蔓延之际，墙内的老百姓只能依靠树皮和草根果腹，而中共干部却利用掌管食堂仓库的特权大肆贪污腐败。最严重的时期，中共国内的许多地方甚至出现易子而食和人吃人的惨剧。
+该项交易旨在维持、维护和改进爱国者防空系统。还包括对传统制导增强型导弹和爱国者PAC-3导弹的现场监视支持，旨在确保爱国者导弹以及传统导弹库存可靠性和性能，并提供已部署导弹的定量可靠性评估。
 
-然而，由于中共对墙内民众的精神洗脑，大多数的百姓至今仍然无法得知这一灾害的真实原因。
+美国国防部下属的国防安全合作局DSCA表示，本次军售将有助于维持台湾的导弹密度并确保其为空中作战做好准备。将有助于改善台湾的安全，维持该地区的政治稳定、军事平衡、和经济发展。
 
-文字版原文：[还原中共国内的三年饥荒](https://gnews.org/zh-hans/1990761/)
+参考链接：
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+- [U.S. announces sale of Patriot missiles support deal to Taiwan](https://focustaiwan.tw/politics/202202080002)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
+
+总编：童谣
+编辑：童谣
+校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -28,7 +32,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

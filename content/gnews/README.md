@@ -15,119 +15,119 @@
 
 ---
 
-### [中共千方百计收集美国人DNA](/content/gnews/1/README.md)
+### [有声|沼泽地战役正式打响 新中国联邦还富于民](/content/gnews/1/README.md)
+ ` MOSREC`
+
+### [有声|美国推迟制定国家安全战略](/content/gnews/2/README.md)
+ ` MOSREC`
+
+### [随着俄罗斯紧张局势升级，以色列从乌克兰撤离外交官家属](/content/gnews/3/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [有声|强国奇闻(4)](/content/gnews/4/README.md)
+ ` MOSREC`
+
+### [2022/02/11 文贵先生直播精要](/content/gnews/5/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [樱花灭共诗——春回冬奥中共造雪记（新韵）](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有声|制衡中共影响力 布林肯将会太平洋岛国领袖](/content/gnews/7/README.md)
+ ` MOSREC`
+
+### [有声|法媒报道: 新的加密货币喜马拉雅币推出后不久即达 270 亿美元估值](/content/gnews/8/README.md)
+ ` MOSREC`
+
+### [渥太华抗议者出招应对新禁令](/content/gnews/9/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [美国好时巧克力正在退出中共国市场](/content/gnews/2/README.md)
+### [有声|中共的世界霸权妄想症让其骨子里保持与美国的敌对关系](/content/gnews/10/README.md)
+ ` MOSREC`
+
+### [有声|加拿大阿尔伯塔省开始取消疫情限制措施](/content/gnews/11/README.md)
+ ` MOSREC`
+
+### [中共千方百计收集美国人DNA](/content/gnews/12/README.md)
+ ` 【🌹玫瑰新闻】`
+
+### [美国好时巧克力正在退出中共国市场](/content/gnews/13/README.md)
  ` 日本东京方舟农场`
 
-### [文耀时间｜战友实例分享私人信托设立（二） 上期节目答疑 模拟器计算财富 欧洲信托信息(5)](/content/gnews/3/README.md)
+### [文耀时间｜战友实例分享私人信托设立（二） 上期节目答疑 模拟器计算财富 欧洲信托信息(5)](/content/gnews/14/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [北京成奥运反转门！ “更快、更高、更强”变成“更悲、更无声和更可怕”](/content/gnews/4/README.md)
+### [北京成奥运反转门！ “更快、更高、更强”变成“更悲、更无声和更可怕”](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [由于“自由”抗议活动美国加拿大间的过境通道第二次被中断](/content/gnews/5/README.md)
+### [由于“自由”抗议活动美国加拿大间的过境通道第二次被中断](/content/gnews/16/README.md)
  ` 日本东京方舟农场`
 
-### [中共疫情清零政策可能损及全球经济增长&#8211;日央行审议委员中村豊明](/content/gnews/6/README.md)
+### [中共疫情清零政策可能损及全球经济增长&#8211;日央行审议委员中村豊明](/content/gnews/17/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [澳将研究开展核潜艇合作 中共威胁要打开潘多拉魔盒](/content/gnews/7/README.md)
+### [澳将研究开展核潜艇合作 中共威胁要打开潘多拉魔盒](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [决定欧洲未来的战役：乌克兰问题的结局决定着美国在欧洲今后的影响力](/content/gnews/8/README.md)
+### [决定欧洲未来的战役：乌克兰问题的结局决定着美国在欧洲今后的影响力](/content/gnews/19/README.md)
  ` 日本东京方舟农场`
 
-### [发现艾滋病毒法诺贝尔医学奖得主 宣称疫苗对人类的危害](/content/gnews/9/README.md)
+### [发现艾滋病毒法诺贝尔医学奖得主 宣称疫苗对人类的危害](/content/gnews/20/README.md)
  ` GTV News Talk`
 
-### [中共侵犯人權 立陶宛外長促各國站起來對抗](/content/gnews/10/README.md)
+### [中共侵犯人權 立陶宛外長促各國站起來對抗](/content/gnews/21/README.md)
  ` GTV News Talk`
 
-### [欧盟力推全球防疫协议 禁止野生动物市场并鼓励报告病毒](/content/gnews/11/README.md)
+### [欧盟力推全球防疫协议 禁止野生动物市场并鼓励报告病毒](/content/gnews/22/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [奥林匹克网站删除有关谷爱凌真实公民身份的信息](/content/gnews/12/README.md)
+### [奥林匹克网站删除有关谷爱凌真实公民身份的信息](/content/gnews/23/README.md)
  ` 日本东京方舟农场`
 
-### [秘翻在线：孤独的冬奥会的雪](/content/gnews/13/README.md)
+### [秘翻在线：孤独的冬奥会的雪](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [疫苗灾难绝对比你们想象的大的多](/content/gnews/14/README.md)
+### [疫苗灾难绝对比你们想象的大的多](/content/gnews/25/README.md)
  ` GTV News Talk`
 
-### [加拿大卡车司机封堵通往美国的桥梁](/content/gnews/15/README.md)
+### [加拿大卡车司机封堵通往美国的桥梁](/content/gnews/26/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [冬奥期间：中共加剧打压少数民族和异议人士](/content/gnews/16/README.md)
+### [冬奥期间：中共加剧打压少数民族和异议人士](/content/gnews/27/README.md)
  ` 日本东京方舟农场`
 
-### [2022年2月12日，全球中共病毒疫情情况汇总](/content/gnews/17/README.md)
+### [2022年2月12日，全球中共病毒疫情情况汇总](/content/gnews/28/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美参议员认为自然免疫力优于中共病毒疫苗](/content/gnews/18/README.md)
+### [美参议员认为自然免疫力优于中共病毒疫苗](/content/gnews/29/README.md)
  ` NFSC News`
 
-### [DC每日热点0212](/content/gnews/19/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [戴不住了 美国多州宣布放宽口罩令](/content/gnews/20/README.md)
+### [戴不住了 美国多州宣布放宽口罩令](/content/gnews/30/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [“清风不识字，何故乱翻书” 多人评论维吾尔火炬手遭拘](/content/gnews/21/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [《历史的今天》2022.02.12](/content/gnews/22/README.md)
+### [《历史的今天》2022.02.12](/content/gnews/31/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [任何与中共勾兑的人都将被制裁](/content/gnews/23/README.md)
+### [任何与中共勾兑的人都将被制裁](/content/gnews/32/README.md)
  ` GTV News Talk`
 
-### [美国宣布向台湾出售爱国者导弹](/content/gnews/24/README.md)
+### [美国宣布向台湾出售爱国者导弹](/content/gnews/33/README.md)
  ` NFSC News`
 
-### [港共政府医疗系统濒临崩溃](/content/gnews/25/README.md)
+### [港共政府医疗系统濒临崩溃](/content/gnews/34/README.md)
  ` NFSC News`
 
-### [美国务卿表示中共国对澳洲贸易制裁将适得其反](/content/gnews/26/README.md)
+### [美国务卿表示中共国对澳洲贸易制裁将适得其反](/content/gnews/35/README.md)
  ` NFSC News`
 
-### [中共间谍网试图操控澳洲议员选举被挫败](/content/gnews/27/README.md)
+### [中共间谍网试图操控澳洲议员选举被挫败](/content/gnews/36/README.md)
  ` NFSC News`
 
-### [广州第一民企雪松控股理财产品爆雷](/content/gnews/28/README.md)
+### [广州第一民企雪松控股理财产品爆雷](/content/gnews/37/README.md)
  ` NFSC News`
 
-### [急于人道援助 美国下令解冻阿富汗70亿美元资产](/content/gnews/29/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [普京与马克龙会谈后，重申俄罗斯的强硬立场](/content/gnews/30/README.md)
- ` DC政经`
-
-### [相信共产党走进火葬场！谷爱凌母女正在付出代价](/content/gnews/31/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [02/12/22 香港快讯 增1514宗确诊多3人死亡 不排除停顿某区或封城](/content/gnews/32/README.md)
- ` 英喜-粵語組`
-
-### [有声|还原中共国内的三年饥荒](/content/gnews/33/README.md)
- ` MOSREC`
-
-### [有声|美立法者继续商议监管加密货币稳定币措施](/content/gnews/34/README.md)
- ` MOSREC`
-
-### [有声|追回属于中国人的钱，让中国人的生老病死和教育免费](/content/gnews/35/README.md)
- ` MOSREC`
-
-### [有声|中共国限制化肥出口导致美国食品成本飙升](/content/gnews/36/README.md)
- ` MOSREC`
-
-### [2/11/2022 文贵直播：文贵掌握了中共对西方的渗透是因为文贵见证了中共邪恶计划的制定，亲眼目睹了达沃斯党的荒淫与黑暗，经历过中共军队的腐败、愚蠢与疯狂以及中共官场的太监心理](/content/gnews/37/README.md)
+### [2/11/2022 文贵直播：文贵掌握了中共对西方的渗透是因为文贵见证了中共邪恶计划的制定，亲眼目睹了达沃斯党的荒淫与黑暗，经历过中共军队的腐败、愚蠢与疯狂以及中共官场的太监心理](/content/gnews/38/README.md)
  ` 秘密翻译组-北美组`
-
-### [全球新冠病例超过四亿 Omicron变种占据主导地位&#8211;路透统计](/content/gnews/38/README.md)
- ` 【🌹玫瑰新闻】`
 
 ### [美国务卿在澳大利亚发出警告称中共政权意图主宰世界](/content/gnews/39/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`

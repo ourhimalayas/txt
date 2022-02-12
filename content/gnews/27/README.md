@@ -2,35 +2,34 @@
 ---
 
 
-## 中共间谍网试图操控澳洲议员选举被挫败
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1995457/)
+## 冬奥期间：中共加剧打压少数民族和异议人士
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1995513/)
 
-作者：纽约香草山 – 侠肝义胆
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-外媒2月11日消息：一个中共间谍网试图资助新南威尔士州工党候选人，当选澳大利亚议会议员。但该阴谋被挫败，澳洲反间谍机构成功阻止了中共间谍将特定候选人安插到工党的预选程序中。
+**撰稿：日本东京方舟农场 子辰**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-9-scaled.jpg)
+据大纪元2月12日报道，北京冬奥会正在进行之际，西藏人民受到更加严厉的管控，新疆维吾尔族及各地异议人士因言获罪，多人被骚扰打压甚至拘留软禁。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-177.jpg)（图片来自大纪元）
+援引自由亚洲电台2月10日报导，西藏地区一名不方便透露姓名的男子透露，在冬奥会期间，中共加剧了对该地区的控制，尤其是甘肃甘南藏族自治州和四川阿坝藏族自治州。
 
-据称，操纵这一阴谋的是一位在澳洲和中共国都有很深关系的富商，另有多个澳洲媒体证实，中共情报机构正是这起阴谋的幕后黑手。澳洲反间谍机构负责人周三晚上，公开披露了这一消息，他证实澳洲反间谍机构已经挫败了中共干涉澳洲选举的企图。
+这位人士说，这些地方的藏人被禁止联系流亡藏人，而且那些曾去过印度又返回的藏人每天都被当地警方传唤。
+
+另据，目前在印度达兰萨拉（Dharamshala）流亡的藏人赤松多杰（Trisong Dorje）对自由亚洲电台表示，现在甘肃省迭部县的警察持续盘问当地藏人，并检查手机和在线聊天群，看他们是否与外界联系。
+
+赤松多杰说，当局尤其紧盯着曾去过印度的藏人，要求他们每天必须向当地警方做汇报。这些去过印度的藏人被中共指有“分裂主义者思想”，这些人一直不被允许进入政府部门工作。
+
+世界维吾尔代表大会发言人迪里夏提2月10日向自由亚洲电台透露，此次中共安排一名维吾尔族越野滑雪运动员担任北京冬奥火炬手之后，有新疆维吾尔人因对此评论而被抓。至少有23名新疆维吾尔年轻人因在微信发表相关言论，而遭到行政拘留和经济处罚，他们年龄最大的21岁，最小的只有15岁。
+
+此外，据《纽约时报》报道说，国内至少还有五位活动人士被拘捕、消失或判刑，包括知名人权律师谢阳因声援湖南湘西被强行送入精神病院的女教师李甜甜，曾于1月12日被抓捕；去年11月被当局吊销律师证的人权律师梁小军，1月中旬也被警察上门警告现在是“奥运安全期”，而且此后也经常被电话问讯。
+
+多名在大陆有影响力人士的微信账号及社交平台近期都遭到关闭、屏蔽或限制功能。
 
 参考链接：
+[https://www.epochtimes.com/b5/22/2/11/n13571188.htm](https://www.epochtimes.com/b5/22/2/11/n13571188.htm)
 
-- [Chinese spies attempted to install Labor candidates in federal election](https://www.theage.com.au/politics/federal/chinese-spies-attempted-to-install-labor-candidates-in-federal-election-20220211-p59vmj.html)
+素材采编：子辰
+编辑：老孙
+发布：爱放飞
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
-
-总编：童谣
-编辑：童谣
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

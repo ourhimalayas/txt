@@ -2,35 +2,43 @@
 ---
 
 
-## 美国务卿表示中共国对澳洲贸易制裁将适得其反
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1995458/)
+## 加拿大卡车司机封堵通往美国的桥梁
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/1995514/)
 
-作者：纽约香草山金融部 – AT
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-据外媒2月11日报道，美国国务卿布林肯将出席美日印澳四方安全对话外长会议。在接受澳洲媒体采访时，布林肯表示，中共国对澳洲的贸易制裁将适得其反，澳洲奋起反抗，为全世界树立了榜样。中共以经济手段逼迫澳洲，蒙受的损失已经超过澳洲。中共国打乱了自己的供应链，而澳洲已经有效地分散了市场。
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image005-6.jpg)
+**（德国之声2月10日）加拿大卡车司机反政府新冠措施的抗议行动出现新形式。本周一（2月7日）起，连接加拿大安大略省和美国密歇根州的”大使桥”被封住。最初，双向车辆均无法动弹。周二晚间，去往美国的车道始得重开。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/11-8.png)
+该桥是两国之间最重要的陆路过境点，日均过往卡车数量达 8000辆。加拿大 75% 的出口产品销往美国。
 
-当天，在墨尔本召开的四方安全对话上，四国外交部长共同讨论反制中共散播假消息和经济胁迫，以及大家共同关心的俄乌危机。
+1 月底起，作为”自由车队”抗议行动的组成部分，加拿大首都渥太华的卡车司机持续罢工，反对政府的抗疫措施。该行动最初要求取消当局关于越境卡车司机必须提供接种疫苗证明规定，此后，很快演变成总体反对防疫措施和总理特鲁多政府的全国性运动。
 
-参考链接：
+经济界也呼吁立即结束封锁。加拿大汽车制造商协会主席表示，如果出现长期封锁，将”危及汽车产业，该产业涉及到数万名加拿大人的饭碗”。
 
-- [https://www.chinapress.com.my/?p=2852102](https://www.chinapress.com.my/?p=2852102)
+与此同时，加拿大多个省份通告将放宽抗疫措施。西部的萨斯喀彻温省昨天宣布，将取消几乎所有的限制。魁北克省和阿尔伯塔省亦公布了近期放宽限制的计划。**
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
 
-总编：童谣
-编辑：飞虹
-校正/发稿：海阔天空1
+**推出问题，敲出真相，爆料在路上！**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**请关注和订阅我们的以下账号：**
+
+**新西兰伊甸农场盖特**：https://gettr.com/user/himalayanz
+
+**【玫瑰看新闻】盖特**：https://gettr.com/user/rosenews
+
+**玫瑰看新闻YouTube账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**Rose news**
+
+**【玫瑰看新闻】推特账号**：
+
+**Rose News (@RoseNews4)a**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
