@@ -2,38 +2,33 @@
 ---
 
 
-## 郭先生将移驻英日开启灭共新战斗
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1990273/)
+## 2022/02/10 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1991335/)
 
-作者：纽约香草山医疗部 – 云豹 / 银河系农场 – 骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在2月9日的大直播中，郭文贵先生透露了一则重大喜讯：瑞银集团UBS诉请伦敦法院拒绝受理郭先生对其提诉的要求，但该诉求已经被法院驳回。目前，郭先生对瑞银集团的起诉正式成案。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-45.jpg)
-郭先生表示，爆料革命未来将在伦敦法庭上，通过法律程序，逐步揭露中共所有隐藏在瑞士银行的秘密帐户，也必将取回被中共盗取的全中国民众的财富。
+1. 2月9日，广西百色市中共政府通报新增180例新冠病毒确诊病例。被封城后的广西百色是军管的状态，市民自由出行大大受限，唯有警车畅行的身影。
+2. 2月9日，香港市民连夜排队做核酸检测。失去自由民主法制的香港，在中共中央政府的控制之下已与大陆无异。
+3. 中共的社区管理模式是区域化监控人民的有生力量。视频为社区运动式宣传中共中央禁放烟花爆竹的政策。
+4. 2月7日，河南郑州。春节后号称“全球最大医院”的郑州大学附属医院人山人海堪比春运，就诊患者排队排到崩溃。
+5. 就诊大厅外的排队患者众多，维持现场秩序保安在呼叫同事增援。
+6. 2月2日，在赞比亚投资矿山的的中国投资者遭到当地酋长强行抢沙。海外华人在外遇不公正的待遇，并不会如中国共产党宣传的那样有国家在身后。恰恰相反，中共并不会真正在乎普通华人的利益。 中国人≠中国共产党！
+7. 2月8日，湖北武汉。金融港一路附近共享单车堆积成灾。“霸占”斑马线，“包围”红绿灯，行人过路犹如“障碍赛”。
+8. 2月9日，中共国大陆经济凋零，年后恐将又会迎来一大批实体店铺的倒闭潮。
+9. 2月9日，广东做衣服的低价村，每天有几万人在这里流浪等待工厂招聘。
+10. 2月7日，江苏沛县。民政局员工春节节后第一天去上班，不料离婚业务申请爆满，导致服务器系统崩溃异常。
+11. 2月8日，河南。年后父母离家务工，被迫留守的孩子在家门口哭的撕心裂肺。
 
-郭先生提到，为了专心迎战，他将移驻伦敦，正面与中共开启法律攻防战。此外，爆料革命还在日本设立了三处基地。今后，郭先生预计每年将有三个月停留日本，在距离中共最近的地理位置上就近指挥对中共的作战。
 
-郭先生补充道，英日两地的安保措施将一如既往的专业且严谨。此外，中共虽然刺杀一个人很容易，但其所付出的代价并非用金钱可以衡量。郭先生也提及，通过与英日政府的协商，当地的力量可以尽量杜绝恶意骚扰行径的发生。同时，日本政府还将从法律和媒体方面提供保护。
+* * *
 
-郭先生强调，爆料革命对中共的战斗已经进入到短兵相接的阶段。为了自身的钱与权，中共此时一定会更加疯狂的作乱。为此，郭先生勉励战友们，这将是黎明前最后的黑暗，大家一定要继续坚持战斗，直到胜利的曙光照亮黑夜。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-参考链接：
-1) . [2022年2月9日 文贵大直播：UBS正式立案 打响沼泽地的第一仗；习普政治困局；中美俄三角斗；药厂政策调整；药厂政府互掐；何为全球货币；七哥个人生活](https://gtv.org/video/id=6203b7b13621aa7415d80e9e)
-2) . [UBS loses bid to stop Guo’s London lawsuit](https://www.reuters.com/article/ubs-guo-idUSL8N2UK4JN)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+编辑：【英国伦敦喜庄园编辑部】
 
-总编: Ivy001 / 文特
-编辑： 静言
-校正/发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
