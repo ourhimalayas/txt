@@ -2,24 +2,33 @@
 ---
 
 
-## 疑遭中共报复？坎特在被交易到休斯顿火箭队后被立即裁掉
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1993622/)
+## 中共制裁立陶宛，暂停其牛肉进口申报
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1993974/)
 
-#### 翻译/撰稿：zzballack
+整理：Eileen（围剿维尼熊）
+编辑：小红帽
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-2-8.jpg)图片来源：路透社
-据《布雷特巴特新闻网》（Breitbart News）2月11日报道，中共政权的批评者、积极为人权发声的前NBA凯尔特人队中锋埃内斯·坎特·自由（Enes Kanter Freedom）本周四（2月10日）在被交易到休斯顿火箭队后立刻被该队裁掉，已是自由球员的坎特目前无法在NBA打球。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/6-10.png)图片来源：雅典娜设计组(614)
 
-数月来，坎特一直在社交媒体上批评中共的残暴罪行。本赛季初期，坎特通过穿戴一系列特别定制的球鞋，吸引人们关注中共的种族灭绝暴行。去年10月23日，坎特在推特上发布[视频](https://twitter.com/EnesFreedom/status/1451581224087134209)，要求习近平关闭维吾尔奴工营，并停止种族灭绝行为。就在被火箭队裁掉的数小时前，他在推特上发布了一个类似《南方公园》（South Park）风格的[动画视频](https://twitter.com/EnesFreedom/status/1491830779428622339)。视频中，他被中共领导人习近平折磨和枪杀，以借此嘲讽习近平为首的中共的施暴行径。
 
-虽然火箭队没有官方声明说坎特的这则视频是他被裁掉的原因，但这完全可能在他们的决定中起了作用。为了清理薪金空间和管理工资帽，NBA球队在球员交易后裁掉他们并不罕见。然而，一支在中共国最受欢迎的球队通过球员交易获得了NBA联盟中最直言不讳的中共政权批评人士、并立即裁掉他，此举得到了中共官媒的称赞，这事情的前前后后有点太过完美。
+根据《凤凰网》2月11日引述《环球时报》报道，立陶宛外交部长兰茨贝尔吉斯于2月10日在澳大利亚全国新闻俱乐部发表演讲，将中（共）国和俄罗斯称为“国际秩序的破坏者”，并呼吁全世界抵抗中俄的“侵犯人权行为”。
 
-2019年，火箭队的时任总经理达雷尔·莫雷 (Daryl Morey)因为在推特上声援香港激怒了中共，导致中共下架火箭队的商品、停播NBA的比赛、并解除了与NBA高达数千万美元的合同。
+兰茨贝尔吉斯的这一表态遭到中共的严厉驳斥。同日，媒体发现，中（共）国海关总署进出口食品安全局官网2月9日0时发布的《符合评估审查要求的国家或地区输华肉类产品名单》显示，中共暂停接受自2月9日起启运的立陶宛牛肉进口申报。
 
-熟悉中共肮脏手法的人不难看出，坎特被裁背后肯定有中共的参与。为了中共国的金钱和市场，NBA一直都在讨好和奉承中共。中共早就想清除坎特这个眼中钉，如今终于找准一个合适时机将其逐出大联盟。但此举只会招致坎特以及其他中共政权批评人士更猛烈的反击，中共想一手遮天、让全世界消声的邪恶企图不会得逞。
+立陶宛外长兰茨贝尔吉斯当天发表演讲，称那些试图逃避全球秩序的人将付出高昂的代价，并表示在这个关键时刻，当务之急是保护由既定规则统治的世界。
 
-新闻来源：[China Critic Enes Kanter Freedom Waived by Rockets After Celtics Trade](https://www.breitbart.com/asia/2022/02/11/china-critic-enes-kanter-freedom-waived-rockets-after-celtics-trade/)
+《路透社》称，中（共）国是世界上最大的牛肉进口国，但来自立陶宛的进口量很少。Krekenavos agrofirma是立陶宛唯一一家向中（共）国出口冷冻牛肉的公司，该公司董事长格里克沙斯表示，在去年底立陶宛和中（共）国的关系恶化后，“我们的产品已经有一段时间无法清关进入中（共）国了”。
+
+参考链接：[中国暂停立陶宛牛肉进口申报 立企业哀叹“8年努力白费了”](https://i.ifeng.com/c/8DXNSlLHzet)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

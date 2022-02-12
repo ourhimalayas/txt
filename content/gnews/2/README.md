@@ -2,36 +2,24 @@
 ---
 
 
-## 印尼向法国和美国购买战斗机以应对亚太地区局势
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1994106/)
+## 美国印太战略部署公布 鲜明针对中共
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1994327/)
 
-整理：Eileen（围剿维尼熊）
-编辑：小红帽
+撰稿：东京樱花团/风翼
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片3-6.png)图片来源于网络
+据TBS新闻报道，拜登政府于2月11日发布的印太战略指出，“中共正将其经济、外交和军事结合起来，成为世界上最有影响力的大国”。对于中共正在那里施加越来越大的军事压力，美国将与印太平洋地区的国家和联盟国合作，维护台湾海峡的和平与稳定。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/6-10.png)图片来源：雅典娜设计组（614）
+并表示，还将深化与其他五个国家，澳大利亚、日本、韩国、菲律宾和泰国的联盟，以实现自由和开放的印太平洋。还呼吁多次发射弹道导弹的朝鲜进行“严肃对话”的同时还强调加强与日本和韩国的合作，表示，“如果有必要时将其打败”。
 
+美国拜登政府宣布就职以来的第一个印太战略来看，不得不说已经旗帜鲜明的表示出将与其盟友合做，对抗中共的意图。
 
-根据《德国之声》中文网2月11日报道， 印尼于2月10日向法国订购了42架阵风战斗机，并可能购买两艘法国潜艇。同时，美国也批准印尼以140亿美元购买36架F-15战斗机，以应对亚太地区日益紧张的局势。
+信息来源
 
-该消息是在印尼国防部长苏比安托 (Prabowo Subianto) 与法国国防部长帕利 (Florence Parly) 在雅加达会面时宣布的。
+[米 インド太平洋戦略発表 対中姿勢鮮明に](https://news.tbs.co.jp/newseye/tbs_newseye6002537.htm)
 
-此次是印尼为了更新由美国F-16战机与俄罗斯苏霍伊战机组成的机队，首次向法国订购阵风战斗机。
-
-法国国防部表示，这42架飞机及其武器的合同价值81亿美元，法国和印尼还签署了一份研究和开发意向书，其中，印尼将向法国订购两艘鮋鱼级(Scorpene)潜艇。
-
-法国总统马克龙 (Emmanuel Macron) 对印尼选择法国军事设备的决定表示欢迎并表示阵风战斗机交易将加强两国之间的伙伴关系。
-
-参考链接：[印尼向法国购买数十架战机 美国预告对印尼军售](https://www.dw.com/zh/印尼向法國購買數十架戰機-美國預告對印尼軍售/a-60739179)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,34 +2,48 @@
 ---
 
 
-## 拜登政府将另启对中共关税的调查
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1993304/)
+## 喜马拉雅日本银河系农场携战友为全球Hpay用户传递爱
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1993459/)
 
-作者：银河系农场—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月9日，据当地媒体报道，美国最大的商业游说团体表示，由于中共未能兑现承诺，如约购买美国的商品、能源和服务，拜登政府正在考虑对中国关税进行新一轮的调查。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-11-下午11.03.14.png)
-据悉，美国政府也考虑了其他选择，如与美国盟友更加紧密地合作，从而形成对抗中共的统一战线，用以要求中共政府为美国国际公司提供公平的竞争环境。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/封面-8.jpg)
+Hpay to the Moon🌙，Hpay  to the Galaxy🪐
 
-另据美国此前一天公布的数据显示，按照川普政府的贸易协议要求，中共如今只完成了协议中不到60%的采买要求。对此，中共方发言人却扬言称，美国理应取消对中共的关税。
+银河系向全球持有Hpay的战友或非战友问好，鉴于目前喜联储不支持美加日开设帐号的现状，而数字货币又是人类未来不可阻挡的大潮。
 
-然而，美国本土的一家公司曾反应称，中共的关税问题给美国公司和工人带来了巨大的压力，政府应该对中共实施更加严格的关税制度。该公司指出，一切对抗中共的贸易行动都应该采取联合多边的方式，包括联合欧洲和亚洲的合作伙伴。
+为了推广喜币，让更多的人使用Hpay，银河系决定，为大家提供服务，我们建立了一支团队来帮助全球拥有Hpay的用户购买喜爱的日本产品。
 
-参考链接：[New China tariff probe among options considered by Biden -U.S. Chamber](https://www.reuters.com/business/new-china-tariff-probe-among-options-considered-by-biden-us-chamber-2022-02-09/)
+点对点付帐，您只要在网上能够找到的商品，我们帮助您购买及运输，所有费用都会提供日本法定发票。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+Hpay，将是世界无障碍流通手段，
 
-总编：雪梨
-编辑：静言
-校正/发稿：呼吸的雾霾（文小呼吸）
+Hpay，己是爆料革命战友传递爱和温暖的桥梁。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+Hpay，更是所有人享受销费自由的唯一工具。
+
+日本银河系将在日本法律，正道主义，全球联盟的监督下，服务全球持有Hpay人士并推广喜币。同时为我们的第二故乡日本的经济恢复出力，回馈社会，在日本树立优质的中国人形象，打倒中共，为美好明天，你我加油。🛍🛍
+
+喜马拉雅日本银河系农场
+
+2022年2月11日
+![](https://assets.gnews.org/wp-content/uploads/2022/02/f715afda841d50a2c757d3852f7b91d8.jpg)
+撰稿：骄子 wung，Judy Lin，魔女Peace
+
+发布：黎明之前
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

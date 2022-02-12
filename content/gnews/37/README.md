@@ -2,34 +2,25 @@
 ---
 
 
-## 英国就停止医护人员疫苗令征求意见
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1993306/)
+## 疑遭中共报复？坎特在被交易到休斯顿火箭队后被立即裁掉
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1993622/)
 
-作者：银河系农场—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月9日，据英国媒体报道，英国政府正在就停止以医护人员接种中共病毒疫苗作为就业条件的规定征求意见。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-11-下午11.03.31.png)
-报道提及，在德尔塔变种病毒流行期间，英国政府推出了针对卫生和健康工作人员强制接种中共病毒疫苗的要求，即社会护理人员必须完全接种疫苗才能继续工作，而医疗保健人员则至少需要在2月3日之前完成疫苗第一剂的接种。目前，这一要求已经导致英国的医疗卫生服务面临着10万多个岗位的空缺，以及前所未有的大量医疗积压。
+#### 翻译/撰稿：zzballack
 
-另外，根据英国国民保健服务联合会的调查，如果这项规定继续执行，当下大约有6万名国家卫生服务人员可能需要被重新部署或解雇。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-2-8.jpg)图片来源：路透社
+据《布雷特巴特新闻网》（Breitbart News）2月11日报道，中共政权的批评者、积极为人权发声的前NBA凯尔特人队中锋埃内斯·坎特·自由（Enes Kanter Freedom）本周四（2月10日）在被交易到休斯顿火箭队后立刻被该队裁掉，已是自由球员的坎特目前无法在NBA打球。
 
-鉴于这一原因，加之越来越多的当地民众已经获得了对中共病毒的自然免疫力，英国卫生部长认为，这项对医护人员的强制疫苗计划已经不符合当前的现状。
+数月来，坎特一直在社交媒体上批评中共的残暴罪行。本赛季初期，坎特通过穿戴一系列特别定制的球鞋，吸引人们关注中共的种族灭绝暴行。去年10月23日，坎特在推特上发布[视频](https://twitter.com/EnesFreedom/status/1451581224087134209)，要求习近平关闭维吾尔奴工营，并停止种族灭绝行为。就在被火箭队裁掉的数小时前，他在推特上发布了一个类似《南方公园》（South Park）风格的[动画视频](https://twitter.com/EnesFreedom/status/1491830779428622339)。视频中，他被中共领导人习近平折磨和枪杀，以借此嘲讽习近平为首的中共的施暴行径。
 
-参考链接：[UK consults on revoking health and care vaccine mandate](https://www.politico.eu/article/uk-consults-on-revoking-health-and-care-vaccine-mandate/)
+虽然火箭队没有官方声明说坎特的这则视频是他被裁掉的原因，但这完全可能在他们的决定中起了作用。为了清理薪金空间和管理工资帽，NBA球队在球员交易后裁掉他们并不罕见。然而，一支在中共国最受欢迎的球队通过球员交易获得了NBA联盟中最直言不讳的中共政权批评人士、并立即裁掉他，此举得到了中共官媒的称赞，这事情的前前后后有点太过完美。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+2019年，火箭队的时任总经理达雷尔·莫雷 (Daryl Morey)因为在推特上声援香港激怒了中共，导致中共下架火箭队的商品、停播NBA的比赛、并解除了与NBA高达数千万美元的合同。
 
-总编：飞虹
-编辑：飞虹
-校正/发稿：呼吸的雾霾（文小呼吸）
+熟悉中共肮脏手法的人不难看出，坎特被裁背后肯定有中共的参与。为了中共国的金钱和市场，NBA一直都在讨好和奉承中共。中共早就想清除坎特这个眼中钉，如今终于找准一个合适时机将其逐出大联盟。但此举只会招致坎特以及其他中共政权批评人士更猛烈的反击，中共想一手遮天、让全世界消声的邪恶企图不会得逞。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+新闻来源：[China Critic Enes Kanter Freedom Waived by Rockets After Celtics Trade](https://www.breitbart.com/asia/2022/02/11/china-critic-enes-kanter-freedom-waived-rockets-after-celtics-trade/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

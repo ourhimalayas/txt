@@ -2,32 +2,47 @@
 ---
 
 
-## 大直播后记：中共的假无神论
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1993950/)
+## 众议院保守党人对数千名中国共产党官员提出制裁建议
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1994125/)
 
-整理：流氓兔 HomeL
-编辑：Sadhu
+作者日本东京方舟农场—Miyali7768(文玉）
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/6-13.png)图片来源：墨尔本雅典娜农场设计组
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
 
 
-有一个东西大家不要忘了，啥叫无神论呢？共产党让你不要相信任何神，我是你的神， 然后我相信我的神，这叫共产党的无神论。 要不怎么能把盘古龙头变成龟头呢？因为，他说我是你的神，我相信我的神。
+据Breitbart News独家报道，针对中共日益严重的人权问题和对世界安全构成最大威胁的独裁政府，美国众议院高层保守派人士提出了一项立法提案，欲正式制裁数千名中国共产党（CCP）官员，包括中国独裁者习近平及其整个家庭。
 
-但是这回事儿上你不要看锁链女的事情上。 你说锁链女现在国内发酵到什么程度吗？ 你看他那个男人的背景了吗？ 你看他那个村子里边有啥了吗？你们仔细看看。这个地方是最有神论的地方之一没人发现。他们的当地的官员你还没发现有什么背景呢吧？ 那可不是徐州这个地方很邪乎的。徐州它的这个地方是所谓的最有信仰的，而还是给我们中央首长是有深关系的，现在的盖住呢。所以说咱们政法委这哥们说，你看着没有，再往上挖就成大政治了。共产党的有神论在这块儿竟然有祭坛有神论，这有多可怕！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-190.jpeg)
 
-除此之外，咱们那个哥们给我讲一个，他说你说现在在党内在想啥？ 他说这还用说吗？ 这事儿少吗？ 天天都在发生，我们从来没承诺，从来没对外说中国没有贩卖妇女的，贩卖妇女是常态。而且现在很多人在批评这个习近平，别（这样），你们真的要公平地说，这个女孩24年了被绑，锁链24年，横跨江泽民，胡锦涛。这事不是习近平干的，是江泽民，胡锦涛干的。你觉得这是没报道过吗？ 我告诉你这个女孩儿的事情在当地就被报道过，谁压下的。当年就有报道过，差点儿就找着了，包括寄出去的信，寄到这个女孩家里的信，信被给拿掉了，谁拿掉的？这里边的意思大了去了。 第一，全党作案，第二，横跨3代24年，第三，这里边充满了迷信，祭祀，掩盖政治，相互欺骗，然后这次被爆出以后又演了一把互相骗中央，中央骗地方，地方互相骗。然后篡改名字，篡改故事。 所以这个国家你发现，这个咱刚才说的这一切的话，就跟着2件事发现了吗？假，就是假，一切都是假的。第二就骗，一切都是骗！
+该提案来自众议员Lisa McClain（R-MI），得到了共和党研究委员会（RSC）主席众议员Jim Banks（R-IN）和众议院军事委员会高级成员众议员Mike Rogers（R-AL）的支持。
 
-就是这个中国人这个假，这个骗你就想路大脑袋，蛇妖闫，路大脑袋小手，九指来了，上帝啊，我代表上帝呀，我给你自由啊！我要开sa币呀。 然后绿帽子赛琳爹70天就来啦，拯救全人类了，然后美国的什么部队，他连美国那个部队毛都没摸着过，还有蛇妖闫我就代替爆料革命了，10个鸡蛋，不行我给你炒10个鸡蛋，还有那个什么从不漏脸的癌症莉，还有那个找爹博，就是而且中国人信这一套，最可怕的是中国人信这一套。你们兄弟姐妹们想想，你见过人类上有比中国人再相信谎言的吗？ 而且维护谎言的吗？ 经营谎言的吗？你去想想全人类我真的想不出任何词儿，任何历史，任何族类，像我们中国人如此地相信谎言，如此的维护谎言，活在谎言中，享受谎言中，利益在谎言中，未来在谎言中，就像冬奥会，假的雪、假的雪道，你看看那个山，你看看那个雪道，你看看现场，你看看直播，你看看饭，你看看大外宣。
+该法案将禁止2000多名中共党官员和他们的家人进入美国和美国的金融体系，这样他们就不能利用家人偷偷摸摸地绕过制裁。
+该法案还禁止在中国经营的美国公司与任何受制裁的中共官员及其家庭成员进行任何交易或操作
+一位来自支持该法案的办公室的共和党高级助手告诉Breitbart News“这会把中共的爪子从美国的蜜罐里拿出来”。
 
-资料来源：[2022年2月11日 文贵大直播](https://gettr.com/streaming/ptgw8b5f32)
+参考链接 [https://www.breitbart.com/politics/2022/02/09/exclusive-house-conservatives-introduce-sanctions-proposal-for-thousands-chinese-communist-party-officials/](https://www.breitbart.com/politics/2022/02/09/exclusive-house-conservatives-introduce-sanctions-proposal-for-thousands-chinese-communist-party-officials/)
 
-发布：tianzhihuan
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-191.jpeg)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+编辑/校对/发稿：文敬
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
+
+
+
+
+
+
+
+
+
 
  
 
