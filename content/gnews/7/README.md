@@ -2,28 +2,39 @@
 ---
 
 
-## 有声|郭先生将移驻英日开启灭共新战斗
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1996347/)
+## 中共卑鄙
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1996376/)
 
-配音：香草山巡管部– 文凯琳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在2月9日的大直播中，郭文贵先生透露了一则重大喜讯：瑞银集团UBS诉请伦敦法院拒绝受理郭先生对其提诉的要求，但该诉求已经被法院驳回。目前，郭先生对瑞银集团的起诉正式成案。
+整理：Grace Fang、Sadhu
+编辑：Mohegayer K. Simon
 
-郭先生表示，爆料革命未来将在伦敦法庭上，通过法律程序，逐步揭露中共所有隐藏在瑞士银行的秘密帐户，也必将取回被中共盗取的全中国民众的财富。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/16-4.png)
 
-文字版原文：[郭先生将移驻英日开启灭共新战斗](https://gnews.org/zh-hans/1990273/)
 
-音频处理/发稿：Daxia
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+图片来源：墨尔本雅典娜农场设计组614
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+中共，竟然说我在中共国强迫交易罪，让它赚了50亿。我强迫它交易，我让它赚了50亿，然后给他们创造了上千亿的利益。你想想他能找PAG造假出来一个，从来没有人公证，从来没有人见证，七哥所谓个人担保，他也承认钱都还了，但是你还欠我3000万。不是我借的，我是担保方，你找他盘古要，去盘古，有法人、有股东，是不是？楼都在那儿，上千亿资产在那儿，你为啥不要，你找我干嘛啊？
+
+而且就在4月19号VOG断播之前，发蓝通、发红通，要搞什么蓝裤衩、红裤衩，然后把我起诉。然后就从来没让我说过话，一次没让我说过话，就把你判了。你说这可怕不可怕？共产党另外一个就改变全世界游戏规则，一切都用利益。所以说就一个问题，我跟共产党这些年打交道，共产党永远挂嘴边的是想到中国赚钱吗？听我的。在国内，你想活着吗？听党的。那你活着都是我说了算。你的女人，你的孩子，你的未来，啥样不是我说了算?
+
+我们守法，人家是改法。这守法和改法之间天差地别，他要改变法律，我们是要守法律的。所以兄弟姐妹们你看整个共产党跟外国人打交道，你想进中国做生意嘛，听我的。共产党威胁全世界，就是拿着所谓的14亿人的市场，威胁全人类。对所有中国人，我让你活着就是给你最大的民主，你惹我，让你干啥你干啥，什么绑架你,24年锁链，那就别提了。谷燕、谷爱凌这个事儿，干到什么程度？你想到中国赚钱吗？你母女听我的。
+
+这就像中国某个火的明星，她妈和她共伺一个男人啊，然后到处去卖钱啊，最后卖到我这儿来了，说你给我一个爱马仕包啊，就可以陪你睡一觉。然后呢？ 我说谁呀？然后他说，哎，这谁谁谁。我说是吗？他说他妈也可以做，免费陪上。就这么直接说啊！你要愿意的话，她妈也可以也可以算啊。我说是吧，爱马仕包，他说七哥你就不用说别的，你就买假爱马仕包就完了呗。我说是她给我包，还是我给她包啊，就搞清楚。他笑得不行了。
+
+这个中间人，说了一句话，她母女两个也无奈，那当官的一找她就把她妈捎上，知道她妈跟她共伺一夫。我说她不觉得可耻吗？她不觉得肮脏吗？她不怕染上艾滋病吗？他给我一包金钱，我都不会跟她睡觉，我怕染上病，你知道吗？不是我多高尚。你知道人家中间人说啥，母女两个就靠这赚钱呢！那今天你觉得这谷燕、谷爱凌，你觉得比这母女两个好到哪儿去？她们一点都不好，还不如这两个母女明码标价。
+
+资料来源：郭先生GTV、盖特直播
+
+发布：星谕
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,41 +2,28 @@
 ---
 
 
-## 中国人最喜欢教训别人
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1996279/)
+## 有声|北京冬奥会将促进全球自动灭共
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1996325/)
 
-整理：风吹麦浪 HomeL
-编辑：Mohegayer K. Simon
+配音：香草山巡管部– 文凯琳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月9日，郭文贵先生在大直播中再次谈及了有关中共北京冬奥会的话题。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/16-4.png)
+郭先生表示，中共官方此前高调宣传称，此次将有137个国家参与冬奥会，但实际上只有97个国家真正到场。其中，原先允诺出席的沙特王子并未现身，同样缺席的还有土耳其与塞浦路斯等国家的外交人员。
 
+文字版原文：[北京冬奥会将促进全球自动灭共](https://gnews.org/zh-hans/1990194/)
 
+音频处理/发稿：Daxia
 
-图片来源：墨尔本雅典娜农场设计组614
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-
-文疯而动：嗯嗯，谢谢七哥这么信任跟我们分享，我现在唯一后悔的事情就是我没得脱了，再脱就没有衣服了。但是呢，七哥所说的我是非常感同身受的，就是不管男人和女人，在这种时候一个动作一个眼神，一个行动胜过千言万语，我也是有这个体会的。当然，我所受的一些磨难或者委屈，那还是那句话，裤裆里一根毛，或者从那儿拔一根毛。但是呢，我非常理解这个，因为我是到了这把年纪了。所以呢，所有的战友，就是包括在镜头前，所有是真战友的。我们对七哥最好的支持，包括我们能让自己最幸福的，所能做的不是说就是做，越做就越爽，越做就越舒服。好，我就讲到这儿。
-
-七哥：我说一下这个安平啊。从开始到现在，安平带给我的最多是快乐，就是安平这种真性情，她是一个很性情的人。她是爱说爱问，但是她这个人就是个真性情，她不会糊弄你，她不会蛮说。跟着安平，从第一天我就是打开了心扉，她不会像很多战友一样都是来教我的，就是很多战友啊，都是在教七哥的，我感受最深的事情是中国人最喜欢教训别人。
-
-我真是觉得，这中国人咋就这么多跟人家不一样的地方了，是不是什么人都要教训别人，手指头往往指着你教训你。你看中国的官员，只要是个官，他只要大一级他就守着点了，就教你从人生到哲学，从历史到政策都教你。我被关在看守所的时候，我最后练了第一神功就是认真的，眼睛盯着他耳朵竖着听，但是我脑子就想别的事情，我一句话都不听。我练这个功很厉害的。你知道，所以我就从1能干好几件事儿。
-
-而且咱们战友谁来都给七哥建议。我听到最多是来自战友的建议，建议七哥应该怎么做，怎么赚钱。 Gfashion该怎么设计？我跟你讲关于Gfashion的设计，我们这边出了真的有上万条建议。如果哪一条采取了，我估计Gfashion已经都成了G垃圾了，说啥都有，但是有时候也没想过为啥中国人就没有一个fashion呢？ 就像我这个料子一样，是吧？为啥中国人没出一个料子（品牌）呢？丝绸大国创始国为啥没有呢？都在跟我建议，（有）几百人。
-
-咱们中国人最爱教育人，指导别人、教育别人、指导江山。习近平一来指导江山，指导江山马上来了，然后就当神，然后就是神秘主义。安平身上这点就特别好，不乱建议。
-
-你们几个目前都没有一个人教育过我的，还没有一个指导过。你们几个可以指导我一个，没问题我虚心，七哥在这方面做到了绝对虚心。我们战友们兄弟姐妹们大家在一起啊，我们要看到事情的本质。最重要的就是辨真假。
-
-资料来源：郭先生GTV、盖特直播
-
-发布：星谕
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

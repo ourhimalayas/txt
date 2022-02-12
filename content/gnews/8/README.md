@@ -2,32 +2,28 @@
 ---
 
 
-## 大直播后记：共产党不灭，天下没人安全！
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1996331/)
+## 有声|郭先生示警排华形势日益严峻
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1996362/)
 
-整理：Grace Fang、sadhu
-编辑：小熊
+配音：香草山巡管部– 文凯琳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月9日，郭文贵先生在大直播中指出，全球目前排华的整体形势日益严峻，而新中国联邦还没有把握能从根本上化解此危机。因此，在保障全球华人未来的安全问题上，更多同胞需要觉醒并努力。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/12315456_4.png)
+郭先生分析称，针对全球排华危机，有两点尤为值得注意：其一，与彻底消灭共产党相比，如何能让被洗脑的中国人重新获得辩是非、识真假的能力，将是新中国联邦所面临的一个更加艰巨的任务。其二，越来越多的国家正在从中共病毒及疫苗的超限战中醒来，他们会逐渐将怒气转移到当地华人身上——这或将导致东欧、俄罗斯、东南亚及非洲等地未来出现超出想象的排华运动。
 
+文字版原文：[郭先生示警排华形势日益严峻](https://gnews.org/zh-hans/1990550/)
 
+音频处理/发稿：Daxia
 
-图片来源：墨尔本雅典娜农场设计组
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-
-谷爱凌，你要欺骗全世界，你还想当英雄？ 既当美国英雄，还当中国英雄，赚中国市场的钱，拿美国人的广告。 在美国搞荣誉，在中国搞爱国，这是人畜都不分了吧？这样的世界如此之荒唐，被中国人欢呼雀跃，你们长点心，兄弟，你别老看着对你有利的一面，咱别共产党一样老欺骗自己。你打开看看—中共的网络，你看看我们中国这个国家的沸腾，那种嗨劲儿，这个国家真的是悲剧。他不知道这是毒药，他不知道这是危机，他不知道这是羞耻，他不知道这是伤天害理，他不知道这是掩盖锁链女24年，他不知道这是违法的，这是假的，这是犯罪的，这是给你家人未来带来无穷无尽的伤害，天理难容啊！谁招你惹你了，你把这个海外华人的孩子绑到你的战车上去？
-那两个明星的母女睡觉，她疼，她痒，她高潮跟我没关系，人家愿意，人家自带的。你谷燕、谷爱凌母女2个，你俩赚钱了，你让别的孩子受危险，这说不过去呀！ 让我们的孩子，未来要受到危险，这不对呀！全世界华人在海外为你买单！这不比毒药可怕吗？兄弟姐妹们， 由此可见，共产党不灭天下没有一个人是安全的。 共产党不灭, 我们迟早被人家给灭了，因为他作死，共产党还要把我们带入到他们的坟墓中去。
-
-资料来源：2022年2月11日 文贵大直播
-
-发布：星谕
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
