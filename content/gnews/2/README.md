@@ -2,37 +2,45 @@
 ---
 
 
-## 奥林匹克网站删除有关谷爱凌真实公民身份的信息
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1995560/)
+## 中共侵犯人權 立陶宛外長促各國站起來對抗
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1995589/)
 
-**撰稿：日本东京方舟农场  幽蘭自得**
+作者：台灣寶島農場- motdfry(文旦)
 
-据《美国之音》2月12日报道，美国出生的中国奥林匹克队明星谷爱凌在获得北京冬奥会第一枚金牌之后，两个奥林匹克网站删除了有关她公民身份相互矛盾的信息。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-128.png)图为来自美国的归化滑雪运动员谷爱凌获得北京冬奥会自由式滑雪大跳台金牌。（图片来自路透社）
-据报道，北京冬奥会组委会的网站Beijing2020.cn 有一个英文的谷爱凌简历介绍，其中一段英文说：“2019年在她第一次在意大利获得世界杯金牌后，她放弃了美国国籍，加入中（共）国国籍，以便能在2022年北京冬奥会代表中（共）国。” 英国的新闻网站“独立”（Independent ）2月2日首先报道了关于谷爱凌的运动生涯介绍。
 
-报道称，《美国之音》记者2月9日在网上浏览时发现，谷爱凌宣布放弃美国公民身份的信息仍然在她的介绍内容中。这说明，这个信息至少在网上已经存在一个星期。
 
-但是，当记者10日再看同一个网页时，有关的段落已经改写成：“2019年在她第一次在意大利获得世界杯金牌后，她决定将代表中（共）国参赛。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-5.jpg)
 
-另外，英文的台湾新闻网站9日在一份报道中提到，Olympics.com 网站在一篇题为“你不知道的谷爱凌的5件事”的文章中，其中一句话的结尾是，谷爱凌具有“双重国籍”。
 
-同样，这句话10日也从文章中消失，《美国之音》记者此前阅读这篇报道时，这句话至少在2月5日仍在网上。
 
-随后，《美国之音》发邮件给北京奥组委和国际奥委会，询问对方为什么谷爱凌公民身份的信息在星期三或星期四的某个时间被从有关的网站删除。对方没有立即回复。
+目前正在澳大利亞出訪的立陶宛外長，敦促世界各國站起來對抗中共侵犯人權的行為，呼籲大家不要對這些問題「保持沉默」。他還提及了俄羅斯在烏克蘭邊境的軍事集結。
 
-近日，谷爱凌在斩获女子大跳台金牌后的记者会上说：“当我在美国，我是美国人，当我在中国，我是中国人。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/id13565055-GettyImages-1236773362-600x400-1.jpg)图片源自网络
 
-然而，根据奥林匹克宪章第41条的规定，谷爱凌必须是中（共）国公民身份才能代表中（共）国参赛。但是一个人要成功地归化成中（共）国公民，中（共）国国籍法第8条规定，该人不能“保留外国国籍”。
+在被問及世界各國對烏克蘭邊境危機和中國新疆地區普遍存在的侵犯人權行為的指控「缺乏具體反應」時，藍斯柏吉斯回應說，答案是人們不要對這些問題「保持沉默」。
 
-因此，最近几天谷爱凌真实公民身份之谜成了美中社交媒体用户热议的话题。
+ 他說：「不要期望我們解決這些問題時，將不費吹灰之力。每個人都要付出代價。」「這些事情確實要付出代價，但是原則性的代價。」
 
-参考链接：
-[https://www.voachinese.com/a/olympic-websites-scrub-conflicting-citizenship-info-on-china-s-star-winter-athlete-20220211/6438856.html](https://www.voachinese.com/a/olympic-websites-scrub-conflicting-citizenship-info-on-china-s-star-winter-athlete-20220211/6438856.html)
+参考来源：[https://www.epochtimes.com/b5/22/2/10/n13568953.htm](https://www.epochtimes.com/b5/22/2/10/n13568953.htm)
 
-素材采编：幽蘭自得
-编辑：老孙
-发布：爱放飞
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3.jpg)
+
+编辑：Ivy001
+校对/发稿：Daxia
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-6.jpg)
+
 
  
 

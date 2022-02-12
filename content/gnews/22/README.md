@@ -2,39 +2,31 @@
 ---
 
 
-## 樱花数据分析│澳大利亚新南威尔士州：疫苗有效率提高？那是玩弄数据的小把戏！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1995298/)
+## 有声|追回属于中国人的钱，让中国人的生老病死和教育免费
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1995391/)
 
-撰稿：东京樱花团/TV
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1199.png)
-2月4日，澳大利亚新南威尔士州发布了一份疫情数据，统计期间为11月26日～1月15日。按照我们上期对新南威尔士州数据分析的方法，可估算出，两、三针疫苗总体防感染的有效率为55%，即接种者的感染风险仅为未接种者的0.45倍，而我们上次的结果是4.8倍。疫苗的有效率惊人的提高了吗？？
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1200.png)
-制图：chuansang
+配音：香草山巡管部 – 格格
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+2月9日，郭文贵先生在大直播上指出， 瑞士集团以其对客户资料的严格保密政策和银行保密文化而著称，瑞士也因此成为世界上最大的黑金聚集地。中国从大清朝到国民党，再到共产党，这几百年来存储在瑞士集团的钱实在太多了。像伊拉克、罗马尼亚和利比亚（卡扎菲）等这些集权国家是无法比拟的。
 
-如果我们仔细的观察数据，可以看到以下变化，未接种者感染人数大量增加（10倍以上），住院、重症、死亡率减小到接近上周的1/10。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1201.png)
-制图：chuansang
+郭先生强调，中国这几百年来在这里存储的钱必须还给中国人。现在所有中国人欠的房贷和欠的信用卡的钱的总和，中共宣布大概40万亿到50万亿美元。但由于中共的泡沫太严重，实际上是大概4到5万亿美元。新中国联邦在海外能追回大概50万亿美元，可以让中国人欠下的所有债务免10回都没问题。
 
-由于死亡率等在一周内骤减90%是不可能的，所以这个数据说明，新南威尔士州改变了一周前的PCR检测策略，转为集中检测未接种人群。预估检测量增加了十倍以上，这也造成了未接种者感染数大幅提升。由于过度检测未接种者，让大量轻症及无症状感染者被检测出，从而导致未接种者的住院、重症、死亡率大幅降低。这种策略的改变，是一个典型的“影响数据公正性，以有利于疫苗有效率”的行为。那么州政府是否是故意的呢？
+郭先生进一步解释，这钱多到不但可以让现在所有中国人的房贷和信用卡一律不用还，而且足以让中国未来的教育、保险、生老病死免费。
 
-由此得出结论，新南威尔士州在采取极不公正的数据统计方式，其今后结果不能再被用于估计疫苗有效率。接种者感染风险值应为我们之前估计的“4.8倍”。
+文字版原文：[追回属于中国人的钱，让中国人的生老病死和教育免费](https://gnews.org/zh-hans/1990444/)
 
-有趣的是，由于州政府的新策略，未接种者的住院、重症、死亡率已降至两、三针接种者同等水平。反而形成了“接种疫苗不能防止重症、死亡”的数据。正所谓“按下了葫芦浮起了瓢”。
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-数据不会说谎，无论谁想如何隐藏。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-数据来源：
-
-- [选取16岁以上接种率](https://www.health.nsw.gov.au/Infectious/covid-19/vaccine/Pages/default.aspx)
-- [12岁以上疫情数据(~01.15)](https://www.health.nsw.gov.au/Infectious/covid-19/Documents/covid-19-surveillance-report-20220201.pdf%20)
-- [12岁以上疫情统计(~01.08)](https://www.health.nsw.gov.au/Infectious/covid-19/Documents/covid-19-surveillance-report-20220120.pdf)
-
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

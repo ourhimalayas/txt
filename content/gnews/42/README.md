@@ -2,25 +2,39 @@
 ---
 
 
-## 美国国务院命令非紧急使馆工作人员离开乌克兰
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1994824/)
+## 郭先生解读中美关系
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1994833/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+作者：纽约香草山信息部 6zero4
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/OFBI6ZBH7RPG5F7Y26E2BDQAIA.jpg)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
+在2月6日的大直播中，郭文贵先生提到了上个世纪在中国活跃的一批美国商人的感触，即中美两个民族完全可以优缺点互补，一旦双方能够友好合作，世界势必得到永远和平与繁荣。
 
-资料来源：路透社
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-8.37.18-PM-1.png)
 
-美国大使馆周六表示，在与俄罗斯的紧张局势升级之际，美国国务院已下令非紧急情况下的美国大使馆工作人员离开乌克兰。
+郭先生指出，回顾历史，美国在清朝末年帮助中国建立了清华大学和协和医院等公共基础设施，还向落后于世界的中国传授西方文明。彼时，美中双方开启了友好往来。 即使是当下，美国的餐饮品牌和高科技依然是中共国社会推崇的主流文化，其产品和其普世价值也一直为中国民间所真切向往。
 
-“尽管外交人员有所减少，但核心大使馆团队、我们敬业的乌克兰同事以及@StateDept 和世界各地的美国人员将继续坚持不懈的外交和援助努力，以支持乌克兰的安全、民主和繁荣，”美国大使馆在推特上这样说。
+但郭先生也补充道，自中共加入世界贸易组织后，中共的经济开始飞速上涨，而这也导致美国的工人大量失业，工厂大规模倒闭。更甚者，中共还通过绑架美国的经济及其供应链的手段，威胁美国企业无偿将技术转让给中共国。同时，中共还妄图操控美国的经济，并且大肆向美国输入毒品、病毒以及毒疫苗。
 
-简评： 乌克兰危机已经持续数月， 冬奥会开幕前已经有多方猜测， 普京会故伎重演， 在奥运期间有所动作， 先如今奥运已经进入第八天， 美国外交及其它部门预测普京会在奥运闭幕前就会有其他行动。 针对俄罗斯这次的强硬， 美国西方已经北约都在马不停蹄的进行各种外交斡旋。 但是美国外交部发出了撤离乌克兰大使馆的命令， 许多西方国家也已经陆续跟进， 战争真的一触即发吗？还是普京在不断的积累手中的谈判砝码， 争取最大利益？ 下周可能就会见分晓。 不管怎么说，美国都明确表示， 美国已经做好了外交和入侵两手准备。
+对此，郭先生强调，中美两国之间并没有任何历史冲突，更重要的是，美国经济反而是中国人致富的唯一源泉。如今，由于中共向全世界释放的病毒，美国乃至世界都与中共产生了不可调和的冲突。至于未来可以预见的全球贸易供应链断裂、世界经济崩塌和人类生存遭受威胁，最终都将追责于中共。人类面临大重启，邪恶必然被消灭。
 
-🔗 [美国国务院命令非紧急使馆工作人员离开乌克兰](https://www.reuters.com/world/europe/us-state-department-orders-non-emergency-embassy-staff-leave-ukraine-2022-02-12/)
+参考链接：[2022年2月6日 文贵大直播](https://gtv.org/video/id=61ffc26b3621aa7415d64d51)
 
-责任编辑/发布： Shuizhuyu
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-Shadow.png)
+
+编辑：静言
+总编：文特
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 

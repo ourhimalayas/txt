@@ -2,11 +2,33 @@
 ---
 
 
-## 2/11/2022 文贵直播：文贵掌握了中共对西方的渗透是因为文贵见证了中共邪恶计划的制定，亲眼目睹了达沃斯党的荒淫与黑暗，经历过中共军队的腐败、愚蠢与疯狂以及中共官场的太监心理
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1995270/)
+## 有声|浅析中共对俄罗斯认贼作父真相
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1995386/)
 
-秘密翻译组-北美组
+配音：香草山巡管部 – 格格
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+郭先生在2月6日的大直播中指出，“习太阳”上台后，与俄罗斯签订了全天候战略伙伴关系，并与普京签了两个4600亿和一个4800亿美元的天然气管道供应合同，且将与俄罗斯的贸易额从几十亿，提高到去年的1400亿，企图与俄罗斯建立“双头鹰”政治格局，欺骗并牵制美国。
 
+普京在收到中共上千亿美元后，答应参与北京冬奥会，是唯一给习在北京冬奥会撑场子的大国领袖。习与普京签的很多合同并不在“中俄贸易清单”，其实将钱直接给予普京个人。普京与其它亚非拉穷国跟中共要钱截然不同，不是“炭中取火”，而是“锅中取火”，以避惹直接勾兑之嫌。
+
+俄罗斯人骨子里其实看不起中共，习作为副主席访俄时带去的山珍海味，俄罗斯人转身就扔掉。普京女友每次来京见习，只吃随身带的本国食物，她认为中共国食品含有激素等化学物质从不沾一口。
+
+历史上俄罗斯是占领中国领土和屠杀中国人最多的外族，因一系列文化、信仰、宗教和历史原因，却被中共认贼作父。中俄关系之变态，可谓即使被俄爹虐千遍，中共依然待他如初恋。
+
+文字版原文：[浅析中共对俄罗斯认贼作父真相](https://gnews.org/zh-hans/1989108/)
+
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

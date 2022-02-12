@@ -2,45 +2,46 @@
 ---
 
 
-## 疫苗灾难绝对比你们想象的大的多
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1995537/)
+## 欧盟力推全球防疫协议 禁止野生动物市场并鼓励报告病毒
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/1995564/)
 
-作者：纽约香草山 福音部 -林礼
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image002-5.jpg)
+**路透布鲁塞尔2月9日 – 一位欧盟官员对路透表示，欧盟正在推动一项旨在防止爆发新疫情的全球协议，该协议可能包括禁止野生动物市场和鼓励各国报告新病毒或变种。
 
+欧洲理事会主席米歇尔在2020年11月提出了一项关于疫情的新协议。欧盟希望纳入协议的措施包括逐步关闭野生动物市场。
 
+激励各国报告新病毒也被视为有助于快速检测和避免隐瞒的关键因素。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-5.jpg)
+该官员称，激励措施可能包括保证获得针对新病毒研发的药物和疫苗。
 
+发现和报告新病毒的国家也可以立即得到支持，这可能涉及从全球储备中运送医疗设备。
 
-
-2月9日在”文贵大直播”期间说到，王濛解说中让韩国运动员多打几针疫苗，这把全中国人都裹进去了；疫苗这件事情体验了人心、人的洞察能力和所有中国人对事情的看法。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1044-1.png)
-全世界的科学杂志、知识界和所谓严肃媒体都叫你认真地打疫苗，直到打死为止，这和共产党是如出一辙。
-
- 你没打疫苗，是一生中唯一的最大最正确的决定。打了疫苗的家人，请赶快吃青蒿素，伊维菌素。世界上的政治，经济疫苗灾难，超出你想象的很多倍。我们爆料革命不灭中共，它自己都会被灭了，百分之一万地会被灭得干干净净。
-
-参考来源：[https://gnews.org/zh-hans/1986483/](https://gnews.org/zh-hans/1986483/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3.jpg)
-
-编辑：童谣
-校对/发稿：Daxia
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-6.jpg)
+官员表示，来自日本、荷兰、巴西、南非、埃及和泰国六个国家的代表将参加会谈，这些国家代表了世界上的主要地区。**
 
 
+
+
+
+**推出问题，敲出真相，爆料在路上！**
+
+**请关注和订阅我们的以下账号：**
+
+**新西兰伊甸农场盖特**：https://gettr.com/user/himalayanz
+
+**【玫瑰看新闻】盖特**：https://gettr.com/user/rosenews
+
+**玫瑰看新闻YouTube账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**Rose news**
+
+**【玫瑰看新闻】推特账号**：
+
+**Rose News (@RoseNews4)a**
 
  
 
