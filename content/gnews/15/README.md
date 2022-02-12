@@ -2,32 +2,38 @@
 ---
 
 
-## 丹麦首相：将签协议允许美国驻军
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1996466/)
+## 纽约州法院系统培训主任被指搞裙带关系后辞职
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1996654/)
 
-#### **【雅典娜快讯】，紧贴实事脉搏**
+翻译： Jenny Ball
 
-整理/编辑：Little Lamp
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-02-下午10.11.59-7.png)
-凤凰网称，据美联社当地时间2月10日报道，丹麦将开始与美国就一项新的防务合作协议进行谈判，而这项协议的内容可能将改变该国数十年来的政策，包括允许美国军队和军事装备驻扎在丹麦领土。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-5-3.jpg)图片来自网络
 
-不过，据报道，丹麦首相梅特·弗雷泽里克森（Mette Frederiksen）10日对记者强调说，此举并非由于俄罗斯与乌克兰之间目前的紧张关系。她表示，有关加强丹麦和美国之间的军事合作谈判，已经酝酿了很长时间。
+纽约州法院系统针对数千名当地法官的培训项目主任，在被指控裙带关系后宣布辞职。
 
-弗雷泽里克森还表示，丹麦方面正与美国就新的防务合作展开具体谈判。她说：“我们很高兴美国向丹麦伸出援助之手，提出双边防务合作提案。”她强调，美国是丹麦最重要的盟友。谈判将在未来几个月内开始。
+萨拉托加县法官兼该州司法法院支持办公室全职主任南希·苏努克金（Nancy Sunukjian ），被指控为亲戚的未婚妻找到一份工作，然后，对一名揭露此事的法院雇员进行报复。
 
-丹麦TV2电视台称，丹麦政府正寻求达成的，是类似于其邻国挪威于2021年5月同美国达成的防务协议。这两个北欧国家，均为美国在北约的“坚定盟友”。
+苏努克金在 1 月中旬被传唤就这些指控作证，但她却宣布辞职。
 
-报道称，根据挪威与美国签订的条约，挪威允许美国军队“不受阻碍地”自由进出本国。不过，美军必须遵守当地法律，且不能将核武器、地雷或集束炸弹等武器与士兵一同运往挪威。
+作为州镇和乡村法院培训项目的负责人，苏努克金负责 1,300 个地方法院寻求支持的项目。从 2020 年 12 月起，她的名字就出现在首席法官的每周致辞中。
 
-文章来源：[丹麦首相：将签协定 允许美国驻军](https://i.ifeng.com/c/8DXbDuTATSa)
+苏努克金的案件由该州的司法行为委员会处理，该委员会处理对现任法官的不当行为指控。
 
-发布：星谕
+苏努克金是首都地区沃特福德镇的一名法官。她的辞职于 2 月 15 日生效。她将不再被允许寻求或担任司法职务。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场D](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)iscord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+行为委员会的声明中没有公开指控其他细节。苏努克金自 2010 年以来一直是镇法官，她目前的任期将在 2023 年到期。
+
+“每当有人因裙带关系或偏袒而获得法院系统工作时，司法行政就会受到损害，”委员会管理员罗伯特 （H. Tembeckjian ）在新闻稿中写道。 “即使受雇人可能有资格，但通过法官的特殊影响，而不是根据业绩获得该职位——并对反对不法行为的人进行报复——都会削弱公众对司法公正的信心。”
+
+**参考资料：**[syracuse][NY judge who directed training for 1000s of judges resigns after accusations of nepotism](https://www.syracuse.com/crime/2022/02/ny-judge-who-trains-other-judges-resigns-after-accusations-of-nepotism.html)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-3.jpeg)
 
  
 

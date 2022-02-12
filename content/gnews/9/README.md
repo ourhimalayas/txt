@@ -2,39 +2,52 @@
 ---
 
 
-## 纽约州法院系统培训主任被指搞裙带关系后辞职
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1996654/)
+## 魁北克省出现两组示威者，支持卡车司机，反对卡车司机，警察迅速将两组人分开
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1996815/)
 
-翻译： Jenny Ball
+**编译：16626**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/EC995E22-5228-4AA0-B340-9E05BAC22D4A.png)**图片来源：截屏于**[**https://www.tvanouvelles.ca/2022/02/12/camionneurs-et-mesures-sanitaires-les-pour-et-les-contre-manifestent-a-montreal**](https://www.tvanouvelles.ca/2022/02/12/camionneurs-et-mesures-sanitaires-les-pour-et-les-contre-manifestent-a-montreal)**  **
+**两组示威者出现，警察迅速将两组人分开**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-5-3.jpg)图片来自网络
+周六（2022 年 2 月 12 日）早上，卡车司机（示威）的支持者和反对者在蒙特利尔的贾里公园（parc Jarry）附近举行示威。
 
-纽约州法院系统针对数千名当地法官的培训项目主任，在被指控裙带关系后宣布辞职。
+蒙特利尔市警察局 (SPVM) 的警察迅速将聚集的两组示威者（两组示威者：支持卡车司机，反对卡车司机）分开。
 
-萨拉托加县法官兼该州司法法院支持办公室全职主任南希·苏努克金（Nancy Sunukjian ），被指控为亲戚的未婚妻找到一份工作，然后，对一名揭露此事的法院雇员进行报复。
+（2022 年 2 月 12 日）上午 10 点 20 分左右，支持卡车司机的示威活动平静地开始了。
 
-苏努克金在 1 月中旬被传唤就这些指控作证，但她却宣布辞职。
+**一组示威者：支持卡车司机  **
 
-作为州镇和乡村法院培训项目的负责人，苏努克金负责 1,300 个地方法院寻求支持的项目。从 2020 年 12 月起，她的名字就出现在首席法官的每周致辞中。
+![](https://gnews.org/40c02b72-7bea-40c4-98bb-a699df8db3d2)**图片来源：****截屏于**[**https://www.tvanouvelles.ca/2022/02/12/camionneurs-et-mesures-sanitaires-les-pour-et-les-contre-manifestent-a-montreal**](https://www.tvanouvelles.ca/2022/02/12/camionneurs-et-mesures-sanitaires-les-pour-et-les-contre-manifestent-a-montreal)** ****，****一组示威者：支持卡车司机  **
 
-苏努克金的案件由该州的司法行为委员会处理，该委员会处理对现任法官的不当行为指控。
+**两组示威者之间（相互对峙）的紧张情绪是显而易见的**
 
-苏努克金是首都地区沃特福德镇的一名法官。她的辞职于 2 月 15 日生效。她将不再被允许寻求或担任司法职务。
+两组示威者之间（相互对峙）的紧张情绪是显而易见的，但是蒙特利尔市警察局SPVM表示，没有看到任何（冲突）爆发。
 
-行为委员会的声明中没有公开指控其他细节。苏努克金自 2010 年以来一直是镇法官，她目前的任期将在 2023 年到期。
+**另一组示威者：反对卡车司机**
 
-“每当有人因裙带关系或偏袒而获得法院系统工作时，司法行政就会受到损害，”委员会管理员罗伯特 （H. Tembeckjian ）在新闻稿中写道。 “即使受雇人可能有资格，但通过法官的特殊影响，而不是根据业绩获得该职位——并对反对不法行为的人进行报复——都会削弱公众对司法公正的信心。”
+![](https://gnews.org/855a1bf9-e148-42e4-bb9a-46227bba8f3b)**图片来源：****截屏于**[**https://www.tvanouvelles.ca/2022/02/12/camionneurs-et-mesures-sanitaires-les-pour-et-les-contre-manifestent-a-montreal**](https://www.tvanouvelles.ca/2022/02/12/camionneurs-et-mesures-sanitaires-les-pour-et-les-contre-manifestent-a-montreal)** **** ****，****另一组示威者：反对卡车司机**
 
-**参考资料：**[syracuse][NY judge who directed training for 1000s of judges resigns after accusations of nepotism](https://www.syracuse.com/crime/2022/02/ny-judge-who-trains-other-judges-resigns-after-accusations-of-nepotism.html)
+据悉，在这次示威结束后，卡车司机将离开贾里公园 Jarry Park 加入蒙特利尔的（其它）示威。
 
-* * *
+另外，Gnews（2022 年 2 月 10 日）发表一篇题为《魁北克省勒戈（Legault）政府指责反对党纵容示威者的武装, [https://gnews.org/zh-hans/1987160/](https://gnews.org/zh-hans/1987160/)  》的文章报道，上周末在魁北克省举行的卡车司机示威活动的组织者之一表示，有些人已经准备好拿起武器。魁北克省省长，弗朗索瓦·勒戈（François Legault），指责反对党纵容某些反卫生措施抗议者发出的武装暴力威胁。
 
-*审核：文乐
-校对：阿伯塔
-发稿：信心的选择*
+在2022年02月09日文贵大直播中，七哥讲到：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-3.jpeg)
+*“**…**被共产党及完全失败的人控制着，小土豆完全是痴心的疯子。共产党希望加拿大和美国越乱越好，但这正不是我们希望发生的。”*
 
+我们谴责并反对暴力示威，我们相信魁北克省，乃至加拿大的公共卫生行政措施很快会发生变化。
+
+**参考资料**： [Camionneurs et mesures sanitaires: les pour et les contre manifestent à Montréal](https://www.tvanouvelles.ca/2022/02/12/camionneurs-et-mesures-sanitaires-les-pour-et-les-contre-manifestent-a-montreal)
+
+**编辑：LILY**
+
+**发布：歪桑**
+
+20220212
+
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3-4.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

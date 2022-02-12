@@ -2,21 +2,20 @@
 ---
 
 
-## 徐州八孩锁链女的悲惨经历 全中国沉默以对 却加速共产党从内部瓦解
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1996698/)
+## 仅最近几个小时意大利不同地区因新冠疫苗死亡的人数在增加。
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1996825/)
 
-徐州八孩锁链女的悲惨经历，全中国沉默以对，共产党媒体掩盖。
+#### 编译                  意大利达芬奇农场             小白鸽
+![This image has an empty alt attribute; its file name is Schermata-2022-02-12-alle-19.49.15-1.png](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-12-alle-19.49.15-1.png)图片来源：eventiavversinews.it
+因打疫苗而死亡的人数在增加，但是几乎不被任何媒体所报道。只有某些地方的报纸有些报道。2月11日意大利有两份地方报纸报道了三位因疫苗接种死去的人。两位五十多岁，一位六十多岁。
 
-锁链女出生于共产党家庭，其父亲和叔叔都是共产党员。共产党认为只有老百姓孩子遭殃的说法，共产党阶层的孩子有这样的遭遇，就是不允许的，所以这件事也引起了党内的愤怒，加快内部瓦解。
+最近几个小时在科森扎医院有两位感染新冠病毒的患者去世。一位是56岁， 另一位是64岁。他们俩都接种了第三剂疫苗。另一位57岁的男子也在维泰博的一家医院去世，他接种了两剂疫苗。
 
-锁链女事情的背后还牵扯到了中共的“有神论”，在江泽民和胡锦涛时期就被报道过，但是却被压了下来。
+几天前一位49岁的那不勒斯男子也去世了， 他接种了三剂疫苗。这位男子从事建筑业，被亲戚和朋友称为“天使”。他曾想为他的家人而活下去， 努力恢复健康，但是疫情大流行夺去了他的健康。
 
-说明3点：1.全党作案，2.横跨3代中共领导人，3.充满迷信，祭祀，互相欺骗。共产党一切不是假就是骗。
+原文链接：[https://www.eventiavversinews.it/aumentano-i-decessi-tra-vaccinati-nelle-ultime-ore-56enne-e-64enne-con-tre-dosi-a-cosenza-e-57-con-due-dosi-a-viterbo-nei-giorni-scorsi-49enne-con-tre-dosi-morto-in-campania/](https://www.eventiavversinews.it/aumentano-i-decessi-tra-vaccinati-nelle-ultime-ore-56enne-e-64enne-con-tre-dosi-a-cosenza-e-57-con-due-dosi-a-viterbo-nei-giorni-scorsi-49enne-con-tre-dosi-morto-in-campania/)
 
-视频来源: 20220211—郭先生大直播
-视频制作: 文星光，梦田
-文案:文星光
-上传: 零点
+编辑、上传：  Xiao    baite
 
  
 

@@ -15,74 +15,74 @@
 
 ---
 
-### [中共试图改变世界其他国家的法律和规则 只为了引渡郭文贵先生](/content/gnews/1/README.md)
- ` 焦點20分`
-
-### [仅最近几个小时意大利不同地区因新冠疫苗死亡的人数在增加。](/content/gnews/2/README.md)
- ` xiaobaige`
-
-### [魁北克省出现两组示威者，支持卡车司机，反对卡车司机，警察迅速将两组人分开](/content/gnews/3/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [有声|加拿大各省正在取消限制和疫苗护照](/content/gnews/4/README.md)
+### [有声|中共国内无固定岗位人数超过2亿](/content/gnews/1/README.md)
  ` MOSREC`
 
-### [世界最大恐怖组织中共搞乱世界后甩锅美国](/content/gnews/5/README.md)
+### [有声|中共极度畏惧新中国联邦喜币](/content/gnews/2/README.md)
+ ` MOSREC`
+
+### [中共治下的八孩母亲与孟晚舟、彭丽媛](/content/gnews/3/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [有声|美众议院提案制裁数千名中共高官](/content/gnews/6/README.md)
- ` MOSREC`
+### [安省警察正在监视脸书上的人们，找出他们的住址并给他们打电话或登门访问，以告诉他们什么是和平抗议](/content/gnews/4/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
 
-### [徐州八孩锁链女的悲惨经历 全中国沉默以对 却加速共产党从内部瓦解](/content/gnews/7/README.md)
+### [新中国联邦行的正道主义和救命主义 获得全世界坚定盟友的支持](/content/gnews/5/README.md)
  ` 焦點20分`
 
-### [有声|台湾使用HPAY完成第一台汽车交易](/content/gnews/8/README.md)
- ` MOSREC`
+### [中共试图改变世界其他国家的法律和规则 只为了引渡郭文贵先生](/content/gnews/6/README.md)
+ ` 焦點20分`
 
-### [纽约州法院系统培训主任被指搞裙带关系后辞职](/content/gnews/9/README.md)
+### [仅最近几个小时意大利不同地区因新冠疫苗死亡的人数在增加。](/content/gnews/7/README.md)
+ ` xiaobaige`
+
+### [延安性事（短篇纪实文学）（一）](/content/gnews/8/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|被中共绑架的中国人如何能得到西方尊重](/content/gnews/10/README.md)
+### [魁北克省出现两组示威者，支持卡车司机，反对卡车司机，警察迅速将两组人分开](/content/gnews/9/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [有声|加拿大各省正在取消限制和疫苗护照](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [文贵先生盖特精要- 2022/02/11](/content/gnews/11/README.md)
+### [世界最大恐怖组织中共搞乱世界后甩锅美国](/content/gnews/11/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [有声|美众议院提案制裁数千名中共高官](/content/gnews/12/README.md)
+ ` MOSREC`
+
+### [徐州八孩锁链女的悲惨经历 全中国沉默以对 却加速共产党从内部瓦解](/content/gnews/13/README.md)
+ ` 焦點20分`
+
+### [有声|台湾使用HPAY完成第一台汽车交易](/content/gnews/14/README.md)
+ ` MOSREC`
+
+### [纽约州法院系统培训主任被指搞裙带关系后辞职](/content/gnews/15/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [有声|被中共绑架的中国人如何能得到西方尊重](/content/gnews/16/README.md)
+ ` MOSREC`
+
+### [文贵先生盖特精要- 2022/02/11](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [华裔女下班途中被击，战友们需提高防范意识](/content/gnews/12/README.md)
+### [华裔女下班途中被击，战友们需提高防范意识](/content/gnews/18/README.md)
  ` 全球G系列咨服群`
 
-### [在加拿大武装部队服务了20多年的史蒂芬-奥斯基少校有一个紧急消息要告诉所有加拿大人](/content/gnews/13/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [2022/02/12 英喜时事速递](/content/gnews/14/README.md)
+### [2022/02/12 英喜时事速递](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [丹麦首相：将签协议允许美国驻军](/content/gnews/15/README.md)
- ` 墨尔本雅典娜农场`
-
-### [Miles Guo Live Broadcast summary February 11, 2022](/content/gnews/16/README.md)
+### [Miles Guo Live Broadcast summary February 11, 2022](/content/gnews/20/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [香港疫情：2月12日新增1514例确诊](/content/gnews/17/README.md)
- ` 墨尔本雅典娜农场`
-
-### [文耀时间｜战友实例分享私人信托设立（二） 上期节目答疑 模拟器计算财富 欧洲信托信息(6)](/content/gnews/18/README.md)
+### [文耀时间｜战友实例分享私人信托设立（二） 上期节目答疑 模拟器计算财富 欧洲信托信息(6)](/content/gnews/21/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [美国防委员会议员指责自由党政府-军队对待未接种疫苗的士兵比被定罪的连环杀手和强奸犯还要糟糕](/content/gnews/19/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [战友们别忘了action，action，action](/content/gnews/20/README.md)
- ` 雅典娜GNotes`
-
-### [有声|2022年2月11日 晚 新中国联邦新闻、GTV新闻访谈简报](/content/gnews/21/README.md)
+### [有声|2022年2月11日 晚 新中国联邦新闻、GTV新闻访谈简报](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [非法入侵到“中俄联合声明” ——福岛核废水](/content/gnews/22/README.md)
+### [非法入侵到“中俄联合声明” ——福岛核废水](/content/gnews/23/README.md)
  ` 澳喜农场`
-
-### [从谷爱凌夺冠看精英回到中共国的历史悲剧](/content/gnews/23/README.md)
- ` 秘密翻译组-原创组`
 
 ### [NFSC新闻、G|TV新闻访谈简报|2022年2月12日早](/content/gnews/24/README.md)
  ` 纽约香草山MOS01`

@@ -2,32 +2,34 @@
 ---
 
 
-## Miles Guo Live Broadcast summary February 11, 2022
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1996446/)
+## 有声|被中共绑架的中国人如何能得到西方尊重
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1996603/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-11-at-12.42.40-PM.jpeg)
-**Source**[https://gtv.org/video/id=62065c00a1fe5e57a426b9e1](https://gtv.org/video/id=62065c00a1fe5e57a426b9e1)
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
 
-**Summary**
+```
+2月10日，郭文贵先生在盖特表示，中共的冬奥会非常无耻，中共的高官玩弄谷爱玲母女两人，毁掉了她的美好前程。就像孟建柱，曾经变态的玩弄过一家人中的三代女性。
+```
 
-1. Tens of billions of dollars can’t undo the damage caused by Eileen Feng Gu to the Chinese and Asians.
 
-2. The chained woman in Xuzhou, China has been a sexual slave for 24 years and has eight children. Her parents are members of Communist Party. This matter spans the three generations of the party, Jiang, Hu and Xi. The whole party committed crimes and cheated each other.
+郭先生告诫说，任何人都不应该端中共的饭碗。跟着共产党、相信共产党，就会走进火葬场，这是一个人人皆知的常识。过去百年历史证明，原苏联、纳粹德国，古巴、委内瑞拉，每个独裁国家都是如此。现在阿富汗正在饿死人，而PAG和UBS却仍然毫无廉耻的在当帮助中共作恶，中国人已经被中共残害殆尽，这会让全世界对中共国人产生极大的偏见。尊重游戏法则，尊重法律，是一个社会的底线，道德是人和畜生之间最低的底线。
+郭先生表示，中共的冬奥会让运动员5天吃同样的饭。如果哪位运动员有获奖的可能，共产党就会以核算检测的名义将其强行隔离，让其失去获奖机会。中共用发射火箭人为制造的假雪营造冬奥环境，既不专业又污染环境，对天地万物、对所有运动员、对道德和法律，都是巨大的伤害。郭先生质问道，这将让世界和后人们如何看待我们？中国人如何能获得西方的尊重？中国人如何能阻止世界反华排华？这一切都让郭先生感到十分痛心。
 
-3. Brother Miles has an exceptional contribution to the United States. The United States wants to ensure the most excellent safety to him. Miles can go to Japan and United Kingdom only if United States government confirms the safety and agrees. I will leave after June at the earliest. In Japan, Brother Miles has the highest medal of Honor and is protected at the highest-level.
+字版原文：[被中共绑架的中国人如何能得到西方尊重](https://gnews.org/zh-hans/1994185/)
 
-4. Brother Miles thanks every fellow fighter for their willingness to donate. $260 million is a small amount of money for him. Brother Miles will not and cannot accept any donations. The Communist Party’s unrestricted warfare has many tricks to consume your energy and destroy your honor. Miles will appeal the unfavorable judgment on the PAG lawsuit to uncover the truth behind the strange verdict of the Communist infiltration. We want to expose Shan Weijian and Pacific Alliance Group (PAG),which deceives hundreds of billions of dollars in the United States. Miles will fight back with American law.
+音频处理：Fei797
+发稿：Fei797
 
-5. There was little or no audiences at the opening ceremony of the Winter Olympics. But the photos taken by the CCP were all filled with people. The forgery under Xi has reached a disastrous level. The Winter Olympics will be Xi Jinping’s last international show of deception.
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
 
-6. African countries are undergoing coups. The Chinese Communist Party’s investment in Africa will be wasted.
-
-7. Immune deficiencies caused by COVID-19 vaccines will begin to break out in spring 2022. The Netherland has found many AIDS variants. The United Kingdom and Australia have begun to a large scale of the HIV screening. Pfizer starts recommending HIV drugs to treat COVID-19.
-
-8. The global supply chains are broken. Duo to the threat of the Communist Party to Hong Kong, the living condition in Hong Kong will still be very bad, and so will the rest of the world.
-
-Translator: Latin | Proofread: Fine Food | Editor & Publish:shandianxunlian
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

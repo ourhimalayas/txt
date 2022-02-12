@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/12/2022 9:13 PM (UTC)`
+
+👍👍Dr. Roger Hodkinson (Pathologist, CEO and Medical Director of MedMalDoctors):<br/>There is an overwhelming consensus that nothing worked. Nothing could, did and will work. The two principal medical ethics have been trampled on by provincial and international medical institutions as well as this government: First DO NO HARM and INFORMED CONSENT. All doctors and surgeons in global medical institutions that do not tell the TRUTH and enforce mandatory COVID vaccines are co-conspirators with government in state-sanctioned murders. TRUTH MATTERS !<br/><br/>👍👍Roger Hodkinson博士 (病理学家、MedMalDoctors CEO兼医学主任):<br/>有一个压倒性的共识：疫苗没有任何作用，疫苗不能、不起、也不会有任何作用。两个主要的医学伦理被省内和国际医疗机构以及政府践踏了：不伤害和知情同意权。所有不告知人们真相且强制中共病毒疫苗接种的全球医疗机构的医生和外科医生都是政府认可的谋杀案的同谋者。
+![img](https://media.gettr.com/group20/origin/2022/02/12/21/94b4189f-b57a-fdf1-ed74-edc6e86fc88b/out.jpg)
+
+---
+
 `@miles 2/12/2022 3:37 PM (UTC)`
 
 2/11/2022 Miles Guo: Xuzhou, where the chained woman incident occurred, is one of “most theistic” places in Communist China - there are altars, and the CCP’s senior cadres are involved. The chained woman incident was the crime committed by the entire CCP, involving three generations of the CCP’s top leadership, and filled with superstition and deception. Everything about the CCP is fake and fraudulent.<br/><br/>2/11/2022 文贵直播：发生锁链女事件的徐州是中共国最有神论的地方之一 - 有祭坛并涉及中共高层领导；锁链女事件是全党作案、涉及中共三代领导班子并充斥着迷信和欺骗；中共的一切都是假和骗<br/>
@@ -148,13 +155,6 @@ EP9: The Villains. Let's tear down the monstrous lies of this despicable #HBO #V
 
 2/9/2022 Miles Guo: It is outrageous that UBS sold my family's stocks to the CCP-related funds in 20 seconds, and the people involved will eventually appear in court to explain the whereabouts of the stocks and how they were connected to the CCP. UBS will have no choice but to submit to the court the information regarding its secret deposits and client list<br/><br/>2/9/2022 文贵直播：UBS竟然在20秒内就把文贵家族的股票卖给了中共的基金；相关人士最终将出庭解释股票的下落以及他们是如何跟中共建立联系的；UBS将不得不向法庭提交其秘密存款信息和秘密客户名单<br/>
 ![img](https://media.gettr.com/group22/getter/2022/02/10/15/d2f9064d-5feb-be44-d566-36a9b8e47327/out.jpg)
-
----
-
-`@miles 2/10/2022 1:52 PM (UTC)`
-
-2月10号：尊敬的战友们好，你们健身了吗？传播C C P病毒！疫苗解药真相了吗？共产党正在北京进行的绑架冬奥会的一系列的无法律．无规则的无底线的行为．都将给中国人在世界上带来无法挽回的负面影响，可能导致中国人在世界上几代人都无法改变的排华危机……
-![img](https://media.gettr.com/group50/getter/2022/02/10/13/185297bf-d548-0191-11f9-3d18117f8cc5/out.jpg)
 
 ---
 
