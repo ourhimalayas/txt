@@ -2,8 +2,8 @@
 ---
 
 
-## 知美知世界，知共灭共
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1993833/)
+## 秘密计划
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1993864/)
 
 #### 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王
 视频定位：BENJ1，WEI

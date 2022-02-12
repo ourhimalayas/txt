@@ -2,10 +2,10 @@
 ---
 
 
-## 中共监控支付宝微信，业主避税更加艰难
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1993709/)
+## 中共国速度滑冰运动员在决赛中推倒对手
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1993773/)
 
-02/08/2022 三月起中共监控支付宝微信个人流水，业主无法通过私人账户进行对公交易，避税更加艰难。
+02/09/2022 中共国速度滑冰运动员在决赛中推倒对手
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

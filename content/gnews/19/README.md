@@ -2,10 +2,10 @@
 ---
 
 
-## 安东尼·福奇称可能需要第四剂中共病毒疫苗加强针
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1993662/)
+## 加拿大总理贾斯汀·特鲁多对抗议卡车司机加倍施压
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1993727/)
 
-02/09/2022 安东尼·福奇: 可能还需要再次加强免疫，即根据年龄和原发疾病情况，对已接种mRNA个体的第四剂加强针。
+02/09/2022 加拿大总理贾斯汀·特鲁多对抗议的卡车司机加倍施压。加拿大卡车司机认为特鲁多使得情况变得更糟。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

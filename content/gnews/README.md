@@ -15,80 +15,80 @@
 
 ---
 
-### [知美知世界，知共灭共](/content/gnews/1/README.md)
+### [秘密计划](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [赵启柱先生是好人](/content/gnews/2/README.md)
- ` 雅典娜GNotes`
+### [亲爱的祖国我很想相信您的管家，但实在找不出可信的理由！](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [经济雪崩时刻即将到来](/content/gnews/3/README.md)
- ` 雅典娜GNotes`
-
-### [中国经济恒大地产庞氏骗局继续造假](/content/gnews/4/README.md)
- ` 雅典娜GNotes`
-
-### [拜拉姆·布里德尔医生：在接种疫苗后癌症会完全失控](/content/gnews/5/README.md)
+### [爆炸新闻：疾控中心和辉瑞悄悄承认疫苗严重伤害了人们](/content/gnews/3/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [由于确诊病例激增，香港实施了最严厉的中共病毒遏制措施](/content/gnews/6/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [每个人都要遵守的原则](/content/gnews/7/README.md)
+### [拜登法案](/content/gnews/4/README.md)
  ` 雅典娜GNotes`
 
-### [中共国速度滑冰运动员在决赛中推倒对手](/content/gnews/8/README.md)
+### [杰森·米勒：“自由车队”行动正在对政府产生影响](/content/gnews/5/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [加拿大法院冻结了为“自由车队”筹集的800万美元捐款](/content/gnews/9/README.md)
+### [美国如何对待苏联](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [知美知世界，知共灭共](/content/gnews/7/README.md)
+ ` 雅典娜GNotes`
+
+### [赵启柱先生是好人](/content/gnews/8/README.md)
+ ` 雅典娜GNotes`
+
+### [经济雪崩时刻即将到来](/content/gnews/9/README.md)
+ ` 雅典娜GNotes`
+
+### [中国经济恒大地产庞氏骗局继续造假](/content/gnews/10/README.md)
+ ` 雅典娜GNotes`
+
+### [拜拉姆·布里德尔医生：在接种疫苗后癌症会完全失控](/content/gnews/11/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [由于确诊病例激增，香港实施了最严厉的中共病毒遏制措施](/content/gnews/12/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [每个人都要遵守的原则](/content/gnews/13/README.md)
+ ` 雅典娜GNotes`
+
+### [中共国速度滑冰运动员在决赛中推倒对手](/content/gnews/14/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [加拿大法院冻结了为“自由车队”筹集的800万美元捐款](/content/gnews/15/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [拜登政府斥资13亿美元从中共公司购买家用病毒测试盒](/content/gnews/10/README.md)
+### [拜登政府斥资13亿美元从中共公司购买家用病毒测试盒](/content/gnews/16/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [同一个美国新闻网将北京冬奥会称为种族灭绝运动会](/content/gnews/11/README.md)
+### [同一个美国新闻网将北京冬奥会称为种族灭绝运动会](/content/gnews/17/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [瑞典宣布取消新冠限制措施](/content/gnews/12/README.md)
+### [瑞典宣布取消新冠限制措施](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [加拿大总理贾斯汀·特鲁多对抗议卡车司机加倍施压](/content/gnews/13/README.md)
+### [加拿大总理贾斯汀·特鲁多对抗议卡车司机加倍施压](/content/gnews/19/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共监控支付宝微信，业主避税更加艰难](/content/gnews/14/README.md)
+### [中共监控支付宝微信，业主避税更加艰难](/content/gnews/20/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [20220211文贵大直播：谷爱凌事件让七哥想起当众为谷俊山跪舔生殖器的某歌星](/content/gnews/15/README.md)
+### [20220211文贵大直播：谷爱凌事件让七哥想起当众为谷俊山跪舔生殖器的某歌星](/content/gnews/21/README.md)
  ` 秘密翻译组-原创组`
 
-### [疫苗经济诞生数字金融，喜币应时应势而生并一飞冲天](/content/gnews/16/README.md)
+### [疫苗经济诞生数字金融，喜币应时应势而生并一飞冲天](/content/gnews/22/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [美国决心和平解决分歧，但同样为俄罗斯侵略做好了准备](/content/gnews/17/README.md)
+### [美国决心和平解决分歧，但同样为俄罗斯侵略做好了准备](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2月11日大直播后记：嘉宾评论冬奥会](/content/gnews/18/README.md)
- ` 雅典娜GNotes`
-
-### [安东尼·福奇称可能需要第四剂中共病毒疫苗加强针](/content/gnews/19/README.md)
+### [安东尼·福奇称可能需要第四剂中共病毒疫苗加强针](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [疑遭中共报复？坎特在被交易到休斯顿火箭队后被立即裁掉](/content/gnews/20/README.md)
+### [疑遭中共报复？坎特在被交易到休斯顿火箭队后被立即裁掉](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [新西兰警方拘捕50余名疫苗强制令抗议者](/content/gnews/21/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [有声|弹力带臀腿运动](/content/gnews/22/README.md)
- ` MOSREC`
-
-### [疫苗灾难已经导致生产能力不足供应链断裂以及人员死亡](/content/gnews/23/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [有声|美国新感染病例数剧减 各州要求放宽室内强制口罩规范](/content/gnews/24/README.md)
- ` MOSREC`
-
-### [冬奥会赞助商因中共国侵犯人权而遭受重创](/content/gnews/25/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [七哥说不是中国来的](/content/gnews/26/README.md)
  ` 雅典娜GNotes`

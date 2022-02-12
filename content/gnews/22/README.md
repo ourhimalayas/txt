@@ -2,66 +2,49 @@
 ---
 
 
-## 有声|弹力带臀腿运动
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1993589/)
+## 疫苗经济诞生数字金融，喜币应时应势而生并一飞冲天
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1993694/)
 
-配音：香草山巡管部 – 格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-人体最大的肌肉群集中在下肢的臀部和腿部。我们每天站立、行走、跑、跳、上下楼梯，都离不开强健的臀部和腿部。强健的臀部肌肉，有助于维持髋部稳定。强健的腿部肌肉，不但保护膝关节，而且有助于维持身体平衡。
+G-TV视频链接：[https://gtv.org/video/id=62049926585ecc15d73fa934](https://gtv.org/video/id=62049926585ecc15d73fa934)
 
-俗话说“人老腿先老”，因为随着年龄增长，人体的肌肉含量会逐年下降。进入老年以后，如果不加强下肢力量训练，腿部肌肉会十分明显地萎缩。
+**郭文贵先生：**七哥是唯一一个在全世界，2017年到现在告诉大家美国的经济一定会有一个历史上前所未有的大爆破。说着说着现在已经是20%，30%地跌了，多少钱呢，几万亿没了，几万亿美元没了。Elon Musk一下就干掉几千亿，比特币一下就几千亿！只有咱们的喜币涨到50，哎现在咱们的喜币多少钱了呀？……我还没看着喜币多少钱了呀？喜币多少钱了呀？50.51了！
 
-今天就带大家做一组弹力带臀腿运动。
+所以说兄弟姐妹们50.51了现在，只有一个喜币涨。我昨天看到很多外国的专家原来都是骂我们喜币是骗局的，结果现在都说了全世界的2021年最大的黑马就是喜币。
 
-动作一：弹力带深蹲提脚跟
+日本专家说喜币将改变人类的金融系统，然后全世界都说MILES GUO说的是对的，喜币是全世界上唯一一个被挤兑提现不会被击垮的。不管是中国银行还是农业银行、建设银行、英国汇丰银行、美国银行，只要大家都去提钱它立马就垮，没有一个不垮的，只有喜联储不会垮，为什么？你的钱百分之百都在那搁着呢。
 
-双腿打开比身体略宽，臀部发力带动身体向下，感受类似做椅子的动作。下蹲时，保持收腹挺胸，不要弯腰驼背，膝关节不要前屈。深蹲动作的基础上，提脚后跟，回到站姿。重复20组。
+现在咱的喜联储今年的十亿币已经是价值500亿美元，就战友们500亿里边你们有多少？你们有70%，350亿美元属于你们的。按照1000亿个币100年，现在的喜联储价值是5万亿美元。
 
-动作二：弹力带螃蟹步
+5万亿美元什么概念呢？一个日本的国家一年的总GDP，整个非洲加一起还要多一倍，欧洲一年20万亿美元，整个欧洲很多国家都达不到5万亿美元，世界排名前十国家的GDP，这就叫新中国联邦。那我说的疫苗经济，现在就是数字金融的诞生它必然会发生。
 
-双腿打开比身体略宽，微蹲姿态。向做平行移动腿部，保持双腿等距离移动，迈出两步；同样姿势，再向右侧移动。适应动作以后，可以加快移动速度。
+字幕来源：[2022年1月30日 郭文贵先生直播 全文字版](https://gnews.org/zh-hans/1936606/)
 
-动作三：弹力带站姿侧抬腿、后抬腿
+编辑整理：Jacques；
 
-保持站姿，髋部平行不要转动，左侧腿部平行于身体抬起，呈字母T；收回，腿部向身体斜后方45度抬起，呈字母Y；收回，腿部向身体正后方抬起，呈字母I；重复该动作15次。换另一侧腿部，重复相同动作20次。
+字幕文件制作：知津；
 
-动作四：后撤步下蹲后踢腿
+视频制作及上传：Cindy；
 
-左腿后撤一步，身体下蹲，双腿前后呈弓步；站起的同时，前腿支撑站立，后退向后踢。重复动作20次。双腿前后交换后，再重复同样的动作20次。
+G-News发布：小满；
 
-动作五：臀桥开合腿
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-身体平躺在瑜伽垫上，大腿和小腿呈90度，脚掌支撑，用臀部抬起至后背部离开地面。臀桥动作注意后背部离开地面距离不宜过高，否则导致颈部受力。
-保持臀桥动作在最高位置，重复做开合腿动作。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-动作六：手支撑后抬腿
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-手臂与肩部垂直，双手支撑与身体同宽，小腿部平放在地面上。保持膝部90度弯曲，抬起左侧大腿至与地面水平。缓慢向左打开腿部至大腿内侧与地面平行。在缓慢放下腿部，恢复起始动作。重复这个动作20组，在换至右侧腿部重复20组。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-动作七：在上一个抬腿动作的基础上，保持膝部90度弯曲，做小摆幅腿上举。注意控制腿的摆动幅度上下不超过10厘米。
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-动作八：大摆幅剪刀开合腿
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-将双腿上举至与地面垂直，弹力带放置到脚踝处，做大摆幅的剪刀开合腿。注意做动作的时候，保持腿部在与地面垂直的同一水平面上移动。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-相关动作视频，请关注每周六纽约香草山农场的健身直播节目。
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-视频链接：[https://gtv.org/video/id=61ff171396ba5d73e0c391cd](https://gtv.org/video/id=61ff171396ba5d73e0c391cd)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
-文字版原文：[弹力带臀腿运动](https://gnews.org/zh-hans/1987206/)
-
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

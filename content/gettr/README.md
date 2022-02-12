@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/12/2022 6:27 AM (UTC)`
+
+2/11/2022 Miles Guo: What are the security prerequisites for me to go to Japan and the UK? After I opened fire at the UBS and the Swamp, my safety has become a matter of the righteous people around the world. The UK and Japan have also awarded me the highest medals of honor. So fellow fighters, please don't worry about my safety.<br/><br/>2/11/2022 文贵直播：文贵去日本和英国的安保前提是什么？打响沼泽地UBS这一枪后，文贵的安全事关全球正义人士，英国和日本给文贵颁发了最高荣誉勋章，战友们不用担心文贵的安全
+![img](https://media.gettr.com/group10/getter/2022/02/12/06/b1c35537-357d-d7e9-a261-a489c37b5cc7/out.jpg)
+
+---
+
 `@miles 2/12/2022 5:57 AM (UTC)`
 
 2/11/2022 Miles Guo: I understand the CCP's infiltration of the West because I saw how the CCP's evil plans were made, witnessed the obscenity and darkness of the Party of Davos, and experienced the corruption, stupidity, and insanity of the CCP's military and the eunuch mentality of the CCP's officialdom.<br/><br/>2/11/2022 文贵直播：文贵掌握了中共对西方的渗透是因为文贵见证了中共邪恶计划的制定，亲眼目睹了达沃斯党的荒淫与黑暗，经历过中共军队的腐败、愚蠢与疯狂以及中共官场的太监心理<br/>
@@ -148,13 +155,6 @@ EP9: The Villains. Let's tear down the monstrous lies of this despicable #HBO #V
 
 2/9/2022 Miles Guo: Why do I keep fighting against PAG and UBS in court? Not for money, but to expose the truths about Weijian Shan and Bo Shan as well as the collusion between UBS and the CCP. That our lawsuit against UBS was accepted in the UK means the judge has recognized that our claims have a factual basis.<br/><br/>2/9/2022 文贵直播：为何要跟PAG和UBS打官司？不是为了钱，而是揭露单伟建和单博的真面目并曝光UBS和中共的勾兑；UBS官司在英国被受理说明法官承认我们的索赔有事实依据<br/>
 ![img](https://media.gettr.com/group48/getter/2022/02/10/05/edb8e156-341b-fc9d-b8cd-c9ccf2b57164/out.jpg)
-
----
-
-`@miles 2/10/2022 1:11 AM (UTC)`
-
-2/9/2022 Miles Guo: To recover the wealth, dignity, and justice that the Chinese people have lost in the past 70 years, I will make myself a person that owns nothing and will move to London to fight UBS in court. After that, I will go to Japan to fight against the CCP at close range and will let the people across Communist China hear my voice directly.<br/><br/>2/9/2022 文贵直播：为找回中国人70年来失去的财富、尊严和公正，文贵将让自己变得一无所有，到伦敦跟UBS打官司，再到日本与中共短兵相接，让中共国每个角落都将直接听到七哥的声音<br/>
-![img](https://media.gettr.com/group46/getter/2022/02/10/01/d8499755-2bce-d7bc-06f2-df59a27cd9ea/out.jpg)
 
 ---
 
