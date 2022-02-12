@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/12/2022 12:51 AM (UTC)`
+
+2/11/2022 Miles Guo: The ruling of the PAG case is absolutely unacceptable, and we will never compromise! The PAG case is certainly not a normal case, neither is it about money. Instead, I am going to find out the truth. The foreign banking license UBS received was approved by Wang Qishan and signed by Cai Esheng.<br/><br/>2/11/2022 文贵直播：绝不接受PAG案子的判决，我们绝不妥协！PAG案绝非正常案件，打这个官司绝不是钱的问题，文贵要找到真相；UBS的外国银行牌照是王岐山批准并由蔡鄂生签署的
+![img](https://media.gettr.com/group32/getter/2022/02/12/00/b560822e-1ff0-fe0a-08e8-61552b195180/out.jpg)
+
+---
+
 `@miles 2/11/2022 12:52 PM (UTC)`
 
 2022年2月11日 文贵大直播：冬奥会爆出“美”谷爱凌；黑操作假裁判破坏规则；共产党蓝金黄无孔不入；感染下降疫苗政策在变
@@ -148,13 +155,6 @@ EP9: The Villains. Let's tear down the monstrous lies of this despicable #HBO #V
 
 2/9/2022 Miles Guo: Finally, my lawsuit against UBS has been filed in London after having gone through the CCP's relentless obstruction at all costs. This is of great significance! It is our first official battle against the Swamp. Defeating UBS is equivalent to taking over half of the CCP’s “wealth empire”.<br/><br/>2/9/2022 文贵直播：UBS案历经了中共不惜一切代价的阻挠，今天终于在伦敦法院立上案了，意义重大啊！这是和沼泽地的第一场正式的战役，干掉UBS就相当于拿下了中共的半个“财富帝国”<br/>
 ![img](https://media.gettr.com/group12/getter/2022/02/09/22/c4a44414-27b0-53f0-43c1-9be956fc8b55/out.jpg)
-
----
-
-`@miles 2/9/2022 12:47 PM (UTC)`
-
-2022年2月9日 文贵大直播：习普政治困局；中美俄三角斗；药厂政策调整；药厂政府互掐；何为全球货币；七哥个人生活
-![img](https://media.gettr.com/group30/origin/2022/02/09/12/88bb04d3-500b-0467-8ac1-faffcdbb7a4b/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
