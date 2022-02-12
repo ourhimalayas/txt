@@ -2,24 +2,36 @@
 ---
 
 
-## 中日财经爆┃美国电费翻三倍 物价创纪录 入店行窃增加
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1994288/)
+## 台湾使用HPAY完成第一台汽车交易
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1994357/)
 
-撰稿：东京樱花团/向海
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-18.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimage.shutterstock.com%2Fimage-vector%2Fcpi-consumer-price-index-concept-260nw-1537289546.jpg&amp;imgrefurl=https%3A%2F%2Fwww.shutterstock.com%2Fimage-vector%2Fcpi-consumer-price-index-concept-big-1537289546&amp;tbnid=9xIbXzmUOgju0M&amp;vet=12ahUKEwjayO_OzPn1AhW0I6YKHZc7AsMQMyggegUIARCDAg..i&amp;docid=GOPuc9XySpxo_M&amp;w=473&amp;h=280&amp;q=CPI&amp;ved=2ahUKEwjayO_OzPn1AhW0I6YKHZc7AsMQMyggegUIARCDAg#imgrc=9xIbXzmUOgju0M&amp;imgdii=P6oi7QnYUvxHYM)
-在创纪录的价格继续上涨的美国，一些地区的电费几乎翻了三倍。纽约市的家庭电费，单位电价增加了大约是上个月的三倍。电力公司将其归因于天然气价格上涨。
+署名: 纽约香草山医疗部 – 云豹
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-2.png)
+2月10日，台湾农场的大牛及政清团队直播使用HPAY购买及交付第一辆汽车的实况。交易标的是一台2019年出厂的宝马 X3休旅车二手车，交易金额约为1200 HCN。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1174.png)
+购车的买主是在HCN 21美元左右时进场购买喜币的。以交易价1195个喜币来计算，买主花费的成本价约为25095美元。以10日喜币价格48美元来计算，买主已经省了一半以上的价钱。买卖双方当场使用HPAY，瞬间就完成了买车价金的传送。
 
-此外，纽约警察局发现，由于物价上涨，入店行窃比两年前增加了 15%。某连锁超市中，肉类、冰淇淋、洗洁精等物价上涨幅度较大的物品盗窃事件屡见不鲜。
+据卖家台湾农场大象表示，他选择以喜币交易，好处是可以省去被信用卡公司抽取的手续费、货款可以瞬间入账不必经由银行造成延迟收款、也可以享受未来喜币预期的涨价空间。另外，由于买卖家同为台湾农场的战友，卖家愿意在收到货款前就先办理该汽车的过户登记，显示了战友间的相互信任。
 
-美国 1 月份消费者价格指数增加了7.5%，为 40 年来的最高涨幅。
+此次成交的车辆，是事先公告在Gettr上供人阅览、买主在阅览盖特上的内容后，自行与卖家联络，最后成交的。这也显示盖特发挥了商业价值。这次结合盖特、H PAY、HCN、GTV整个系列的运作，让整个汽车交易过程得以完美呈现。G 系列的实用性及魅力正逐渐显现在日常生活中。
 
-信息来源：
+新闻连接: [台灣第一台使用Hpay支付車輛交車](https://gtv.org/video/id=62052bf0a1fe5e57a426578d)
 
-[電気代「3倍」に万引き増加…米で記録的な物価上昇](https://news.yahoo.co.jp/articles/47a5e0ca04ae5f95b1d6a19388a9b4db0403c18d)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+编辑:飞虹
+
+总编: Jack Li文阳
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

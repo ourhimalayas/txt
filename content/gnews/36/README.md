@@ -2,10 +2,10 @@
 ---
 
 
-## 白宫敦促美国人立即撤离乌克兰，因无法预知的风险增加
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1993982/)
+## Aimee McBride用数据回击FDA审议5岁以下孩童紧急使用授权
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1994011/)
 
-02/11/2022 白宫敦促美国人在未来24至48小时内撤离乌克兰，因无法预知的风险正在增加
+02/09/2022 美国“儿童健康防卫”组织的市场营销经理Aimee McBride用研究数据反对给孩童接种中共病毒疫苗。美国食药监局的疫苗与相关生物制品咨询委员会将于2月15日审议是否针对6个月到5岁年龄组批准紧急使用授权。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
