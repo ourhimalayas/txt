@@ -2,42 +2,26 @@
 ---
 
 
-## 渥太华抗议者出招应对新禁令
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/1995824/)
+## 樱花灭共诗——春回冬奥中共造雪记（新韵）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1995861/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image005-7.jpg)
-**【大纪2月9日讯】渥太华警方宣布向示威者提供物资（包括汽油等）的人将面临被捕的措施周一生效。抗议民众开始采用误导警察的方式应对。**
+撰稿：东京樱花团/曲非烟
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-52.jpg)
+冬奥赛冈峦，
 
-**当局希望通过严禁人们向市中心抗议区送燃料，迫使停在那里的抗议车队离开。
+郁葱春早还。
 
-渥太华警察总长彼得·斯洛利周一晚在CTV新闻节目上说，示威者正在迅速适应警方的各种执法措施，例如不允许燃料容器进入市中心。
+夜催冰雪至，
 
-一些抗议者故意在油桶里装水，并对着警察从桶里取水喝，以表明桶里装的不是汽油。同时，他们将汽油装在通常用来装水的其他容器中。
+四季也听宣。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1220.png)
+插图：东京樱花团/闪闪
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
-斯洛利说，警官周一在一次尝试逮捕的行动中，被抗议者围住。
 
-**
 
-**推出问题，敲出真相，爆料在路上！**
-
-**请关注和订阅我们的以下账号：**
-
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
-
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
-
-**玫瑰看新闻YOUTUBE账号**：
-
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**ROSE NEWS**
-
-**【玫瑰看新闻】推特账号**：
-
-**ROSE NEWS (@ROSENEWS4)A**
 
 
 

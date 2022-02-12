@@ -15,109 +15,109 @@
 
 ---
 
-### [有声|被中共绑架的中国人如何能得到西方尊重](/content/gnews/1/README.md)
+### [有声|台湾使用HPAY完成第一台汽车交易](/content/gnews/1/README.md)
  ` MOSREC`
 
-### [华裔女下班途中被击，战友们需提高防范意识](/content/gnews/2/README.md)
+### [纽约州法院系统培训主任被指搞裙带关系后辞职](/content/gnews/2/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [有声|被中共绑架的中国人如何能得到西方尊重](/content/gnews/3/README.md)
+ ` MOSREC`
+
+### [华裔女下班途中被击，战友们需提高防范意识](/content/gnews/4/README.md)
  ` 全球G系列咨服群`
 
-### [在加拿大武装部队服务了20多年的史蒂芬-奥斯基少校有一个紧急消息要告诉所有加拿大人](/content/gnews/3/README.md)
+### [在加拿大武装部队服务了20多年的史蒂芬-奥斯基少校有一个紧急消息要告诉所有加拿大人](/content/gnews/5/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [2022/02/12 英喜时事速递](/content/gnews/4/README.md)
+### [2022/02/12 英喜时事速递](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [丹麦首相：将签协议允许美国驻军](/content/gnews/5/README.md)
+### [丹麦首相：将签协议允许美国驻军](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [Miles Guo Live Broadcast summary February 11, 2022](/content/gnews/6/README.md)
+### [Miles Guo Live Broadcast summary February 11, 2022](/content/gnews/8/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [香港疫情：2月12日新增1514例确诊](/content/gnews/7/README.md)
+### [香港疫情：2月12日新增1514例确诊](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文耀时间｜战友实例分享私人信托设立（二） 上期节目答疑 模拟器计算财富 欧洲信托信息(6)](/content/gnews/8/README.md)
+### [文耀时间｜战友实例分享私人信托设立（二） 上期节目答疑 模拟器计算财富 欧洲信托信息(6)](/content/gnews/10/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [美国防委员会议员指责自由党政府-军队对待未接种疫苗的士兵比被定罪的连环杀手和强奸犯还要糟糕](/content/gnews/9/README.md)
+### [美国防委员会议员指责自由党政府-军队对待未接种疫苗的士兵比被定罪的连环杀手和强奸犯还要糟糕](/content/gnews/11/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [战友们别忘了action，action，action](/content/gnews/10/README.md)
+### [战友们别忘了action，action，action](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
 
-### [有声|北京冬奥会成为中共以“法”作恶的舞台](/content/gnews/11/README.md)
+### [有声|北京冬奥会成为中共以“法”作恶的舞台](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [有声|2022年2月11日 晚 新中国联邦新闻、GTV新闻访谈简报](/content/gnews/12/README.md)
+### [有声|2022年2月11日 晚 新中国联邦新闻、GTV新闻访谈简报](/content/gnews/14/README.md)
  ` MOSREC`
 
-### [非法入侵到“中俄联合声明” ——福岛核废水](/content/gnews/13/README.md)
+### [非法入侵到“中俄联合声明” ——福岛核废水](/content/gnews/15/README.md)
  ` 澳喜农场`
 
-### [从谷爱凌夺冠看精英回到中共国的历史悲剧](/content/gnews/14/README.md)
+### [从谷爱凌夺冠看精英回到中共国的历史悲剧](/content/gnews/16/README.md)
  ` 秘密翻译组-原创组`
 
-### [有声|英国就停止医护人员疫苗令征求意见](/content/gnews/15/README.md)
+### [有声|英国就停止医护人员疫苗令征求意见](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [七哥看破生死](/content/gnews/16/README.md)
+### [七哥看破生死](/content/gnews/18/README.md)
  ` 雅典娜GNotes`
 
-### [有声|拜登政府将另启对中共关税的调查](/content/gnews/17/README.md)
+### [有声|拜登政府将另启对中共关税的调查](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [中共卑鄙](/content/gnews/18/README.md)
+### [中共卑鄙](/content/gnews/20/README.md)
  ` 雅典娜GNotes`
 
-### [NFSC新闻、G|TV新闻访谈简报|2022年2月12日早](/content/gnews/19/README.md)
+### [NFSC新闻、G|TV新闻访谈简报|2022年2月12日早](/content/gnews/21/README.md)
  ` 纽约香草山MOS01`
 
-### [北京冬奥会是第一个完全依赖人工造雪的冬季奥运会](/content/gnews/20/README.md)
+### [北京冬奥会是第一个完全依赖人工造雪的冬季奥运会](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|中共多存在一天，中国人就多一天苦难](/content/gnews/21/README.md)
- ` MOSREC`
-
-### [美国计划设立所罗门群岛大使馆以对抗中国](/content/gnews/22/README.md)
+### [美国计划设立所罗门群岛大使馆以对抗中国](/content/gnews/23/README.md)
  ` Shuizhuyu`
 
-### [正邪不两立，黑白分高低](/content/gnews/23/README.md)
+### [正邪不两立，黑白分高低](/content/gnews/24/README.md)
  ` 纽约香草山MOS03`
 
-### [“男人都去哪儿了？”为维族冬奥滑雪选手欢呼的家人尽数女性](/content/gnews/24/README.md)
+### [“男人都去哪儿了？”为维族冬奥滑雪选手欢呼的家人尽数女性](/content/gnews/25/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共的冬奥会就是国家政治的工具 谷爱凌事件敲响了海外华人的警钟](/content/gnews/25/README.md)
+### [中共的冬奥会就是国家政治的工具 谷爱凌事件敲响了海外华人的警钟](/content/gnews/26/README.md)
  ` 焦點20分`
 
-### [人类研究保护联盟主席呼吁反对强制疫苗](/content/gnews/26/README.md)
+### [人类研究保护联盟主席呼吁反对强制疫苗](/content/gnews/27/README.md)
  ` NFSC News`
 
-### [英国查尔斯王子再次确诊中共病毒](/content/gnews/27/README.md)
+### [英国查尔斯王子再次确诊中共病毒](/content/gnews/28/README.md)
  ` NFSC News`
 
-### [北京冬奥会裁判被指控利用裁决帮助中共国获得金牌](/content/gnews/28/README.md)
+### [北京冬奥会裁判被指控利用裁决帮助中共国获得金牌](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [立陶宛敦促全球抵制中共和俄罗斯](/content/gnews/29/README.md)
+### [立陶宛敦促全球抵制中共和俄罗斯](/content/gnews/30/README.md)
  ` NFSC News`
 
-### [秘翻在线 ：司法公正不容侵犯！美国两位纽约州法官因性丑闻和滥用职权而离职](/content/gnews/30/README.md)
+### [秘翻在线 ：司法公正不容侵犯！美国两位纽约州法官因性丑闻和滥用职权而离职](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [樱花解说┃郭文贵先生起诉UBS案情始末](/content/gnews/31/README.md)
+### [樱花解说┃郭文贵先生起诉UBS案情始末](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国及世界疫情简报 （02-12-2022）](/content/gnews/32/README.md)
+### [美国及世界疫情简报 （02-12-2022）](/content/gnews/33/README.md)
  ` 波士顿五月花农场`
 
-### [樱花灭共诗——春回冬奥中共造雪记（新韵）](/content/gnews/33/README.md)
+### [樱花灭共诗——春回冬奥中共造雪记（新韵）](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [渥太华抗议者出招应对新禁令](/content/gnews/34/README.md)
- ` 【🌹玫瑰新闻】`
-
-### [中共千方百计收集美国人DNA](/content/gnews/35/README.md)
+### [渥太华抗议者出招应对新禁令](/content/gnews/35/README.md)
  ` 【🌹玫瑰新闻】`
 
 ### [美国好时巧克力正在退出中共国市场](/content/gnews/36/README.md)
