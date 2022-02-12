@@ -2,28 +2,102 @@
 ---
 
 
-## 绝对是控制
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/1994509/)
+## 苹果和谷歌通过禁止中国人下载允许活动人士绕过中共严格审查的应用程序来保护北京
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1994651/)
 
-翻译整理：思澈
+[https://gtv.org/video/id=62041626585ecc15d73f7d9a](https://gtv.org/video/id=62041626585ecc15d73f7d9a)
 
-每天PCR测试、一个监测应用程序和狭窄活动范围：德国ARD记者塔玛拉-安东尼告诉我们她是在什么情况下报道北京冬季奥运会的。
+Senator Marsha Blackburn
+参议员玛莎·布莱克本
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/96D5CA9D-9051-4B87-9C64-2AAACE24DA68.jpeg)
+Now of course much of that discussion has centered around the Olympics
+当然，现在大部分讨论都围绕着奥运会
 
-如果你想从北京现场报道冬奥运会，你必须几个星期待在一个所谓的闭环里。在中共病毒条件下来到现场已经是一种挑战，意味着五个小时的车程。进入闭环中自由行动受到极大的限制，当你离开酒店时，你很快就会来到一个警察路障前–从那里开始不再被允许独自行动，而只能去另一家酒店，去媒体中心，或者去有特别提供的交通工具的某个场地，这些交通工具也是闭环的一部分。仅仅是打开公共汽车的窗户就能让你受到训斥。这种控制是绝对的，确保只进入事先标出的区域。这里没有可能与奥运会无关的 “正常 “中国人混合。不了解中国的人就没有机会对这个国家留有一个印象。
+Because there is an app you have to download on your burner phones
+因为你必须在一次性的机手机上下载一个应用程序
 
-闭环中的每个人都必须下载一个名为My2022的应用程序，定期输入他们的体温。但是人们发现，这个应用程序的第一个版本内置了后门，这些后门通常用于间谍软件，即间谍程序。据中国消息人士称，这些后门在第二个版本的应用程序中被关闭。因此，许多国家奥委会给他们的运动员提供了自己的手机，德国奥委会也建议其运动员携带一次性移动电话。德国ARD电视团队也有自己的移动设备，这些设备将被做成转播平台。在媒体中心可以使用免费互联网–但是中国同事，比如翻译，却不能。这也说明了这里的密切监视，国际奥委会却对此表示支持。
+since you can’t take your own phone
+因为你不能用你自己的手机
 
-记者的工作条件变得更加严格，外国记者很少，许多美国记者不得不离开该国，”监督者 “因此而有更多的时间来对待每个记者个人。中国政府对记者指手画脚的好理由以必要的测试为借口，将他们拘留在酒店里24小时。在自发的采访过程中总是有监督员跟随，他们会进行干预，往往都是根据Covid措施，而他们的出现就会使我们的受访者感到害怕并跑开。通常情况下采访合作伙伴会被中国警方提前警告，然而在短时间内取消我们，这也说明了对我们的电信进行了密集的监控。对我们来说，这意味着我们必须每天做出相当大的努力，进入免费的互联网，并找到受保护的渠道，通过它来发送我们的材料。这使得我们的工作非常困难。我们也总是要仔细考虑，我们的工作可能会使谁处于危险之中。采访合作伙伴在最后一刻取消采访，显示出他们面临的压力有多大。
+And it is available through the Apple App Store
+它（应用程序）可以通过苹果商店获得
 
-奥运会在空间上与正常生活相距甚远，它们在栅栏后面进行，没有比赛门票，也没有公众观看–不可能出现兴奋感。此外，冬季运动在中国并没有发挥很大的作用。几乎没有冬季运动明星。也没有一个公民社会可以自由和自决地组织集会、活动、庆祝活动和所有通常构成这种 “发生 “的东西。
+And this is one of the reasons as I said earlier
+这就是我之前所说的原因之一
 
-原文链接：[https://www.tagesschau.de/ausland/asien/beijing2022-bedingungen-berichterstattung-101.html](https://www.tagesschau.de/ausland/asien/beijing2022-bedingungen-berichterstattung-101.html)
+we need these non discrimination policies
+我们需要这些非歧视政策
 
-*发布：思澈*
+But the important thing to realize with this, what Apple is doing
+但重要的是要意识到这一点，苹果正在做的是
 
+is with this app that you have to download for the Olympics
+你必须为奥运会下载这个应用程序
 
+if you’re going to the Olympics, if you’re an athlete
+如果你要去参加奥运会，如果你是一名运动员
+
+if you participate, then the Chinese Communist Party has access
+如果你参与，那么中国共产党就可以取得
+
+and I would they probably say they have ownership of that data
+而且他们可能会说他们拥有这些数据的所有权
+
+they can surveil you they can track you
+他们可以监视你，他们可以跟踪你
+
+If you download that digital you want and they are in your wallet
+如果你下载了应用程序，它就像留在了你的口袋里
+
+They know who you’re communicating with
+他们知道你在和谁交流
+
+They are able to surveil and audit those conversations
+他们能够监视和审核这些对话
+
+So we’re quite concerned about the security
+所以我们非常关注安全性
+
+and safety of those Olympians while they are there
+和那些奥运选手在那里的人身安全
+
+And also John, let me add for developers and innovators
+另外，约翰，让我为那些想在App Store上推销他们的
+
+that want to market their app on the App Store
+应用程序的开发者和创新者补充一下
+
+Apple is taking 30% of that cost
+苹果会拿走30%的费用
+
+So if we can pass our bill
+因此，如果我们能够通过这个的法案
+
+it is going to be security and protections for consumers
+这将是对消费者的安全和保护
+
+It also is going to lower the cost of the app
+它还将降低应用程序的发行成本
+
+* * *
+
+Date:02/07/2022
+原视频标题: Apple and Google are protecting Beijing by banning people in China from downloading apps that would allow activists to circumvent the CCP’s strict censorship
+苹果和谷歌通过禁止中国人下载允许活动人士绕过中共严格审查的应用程序来保护北京
+原视频日期：2022/02/07
+原视频链接:[**https://twitter.com/marshablackburn/status/1490501700746108937?s=24**](https://twitter.com/marshablackburn/status/1490501700746108937?s=24)
+任务编号：3691
+视频时间段 : 0:00-1:34
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-文新
+审片：洛杉矶盘古农场-银龙
+发布 ：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

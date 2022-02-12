@@ -15,86 +15,86 @@
 
 ---
 
-### [2/12银河快讯:日美外长严重关切俄罗斯军事集结；日本央行将无限量购买日本国债](/content/gnews/1/README.md)
+### [2022/02/09 墙内世界](/content/gnews/1/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [变本加厉：奥地利推出疫苗证书合规检查站](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [7•24专题——非洲系列政变，中共地缘影响力遭遇滑铁卢](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [2/12银河快讯:日美外长严重关切俄罗斯军事集结；日本央行将无限量购买日本国债](/content/gnews/4/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [2/12/2022国际财经快讯：英国经济在通胀挑战前遭受欧米茄的打击；华尔街因担心乌克兰冲突而大幅收跌](/content/gnews/2/README.md)
+### [2/12/2022国际财经快讯：英国经济在通胀挑战前遭受欧米茄的打击；华尔街因担心乌克兰冲突而大幅收跌](/content/gnews/5/README.md)
  ` 秘密翻译组金融团队`
 
-### [德国联邦政府呼吁本国人离开乌克兰](/content/gnews/3/README.md)
+### [如果俄罗斯入侵乌克兰,那将是因为拜登的软弱](/content/gnews/6/README.md)
+ ` 美国政要直译推`
+
+### [德国联邦政府呼吁本国人离开乌克兰](/content/gnews/7/README.md)
  ` Shuizhuyu`
 
-### [美国国务院命令非紧急使馆工作人员离开乌克兰](/content/gnews/4/README.md)
+### [美国国务院命令非紧急使馆工作人员离开乌克兰](/content/gnews/8/README.md)
  ` Shuizhuyu`
 
-### [“自由车队 ”到了巴黎的大门口](/content/gnews/5/README.md)
+### [“自由车队 ”到了巴黎的大门口](/content/gnews/9/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [乌克兰运动员在北京冬奧会比赛中呼吁和平](/content/gnews/6/README.md)
+### [乌克兰运动员在北京冬奧会比赛中呼吁和平](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国试图阻止中共在非洲建立大西洋基地](/content/gnews/7/README.md)
+### [美国试图阻止中共在非洲建立大西洋基地](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国为俄罗斯外交或“侵略”做好准备](/content/gnews/8/README.md)
+### [美国为俄罗斯外交或“侵略”做好准备](/content/gnews/12/README.md)
  ` Shuizhuyu`
 
-### [从希腊看疫苗动向](/content/gnews/9/README.md)
+### [从希腊看疫苗动向](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [“中共监控”产品进入荷兰政府， 引发荷兰媒体担忧](/content/gnews/10/README.md)
+### [“中共监控”产品进入荷兰政府， 引发荷兰媒体担忧](/content/gnews/14/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [谷爱凌叛变美国祸及华人](/content/gnews/11/README.md)
+### [谷爱凌叛变美国祸及华人](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [拜登和普京对乌克兰危机发表讲话](/content/gnews/12/README.md)
+### [拜登和普京对乌克兰危机发表讲话](/content/gnews/16/README.md)
  ` Shuizhuyu`
 
-### [文耀时间｜战友实例分享私人信托设立（二） 上期节目答疑 模拟器计算财富 欧洲信托信息(4)](/content/gnews/13/README.md)
+### [文耀时间｜战友实例分享私人信托设立（二） 上期节目答疑 模拟器计算财富 欧洲信托信息(4)](/content/gnews/17/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [H-Pay给用户的是最干净直接的信和用，没有任何中间商](/content/gnews/14/README.md)
+### [H-Pay给用户的是最干净直接的信和用，没有任何中间商](/content/gnews/18/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [这就是广大网友关注的力量！](/content/gnews/15/README.md)
+### [这就是广大网友关注的力量！](/content/gnews/19/README.md)
  ` 澳喜特战旅Gnews`
 
-### [大直播后记：永远相信美国法律、永远相信我们的力量](/content/gnews/16/README.md)
+### [大直播后记：永远相信美国法律、永远相信我们的力量](/content/gnews/20/README.md)
  ` 雅典娜GNotes`
 
-### [2.11大直播后记——灭共进入国际范围](/content/gnews/17/README.md)
+### [2.11大直播后记——灭共进入国际范围](/content/gnews/21/README.md)
  ` 雅典娜GNotes`
 
-### [中共批准辉瑞公司新冠病毒治疗药物进口注册](/content/gnews/18/README.md)
+### [中共批准辉瑞公司新冠病毒治疗药物进口注册](/content/gnews/22/README.md)
  ` 儒为`
 
-### [中共领导人无权享有奥运会的荣耀](/content/gnews/19/README.md)
+### [中共领导人无权享有奥运会的荣耀](/content/gnews/23/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [《避风港Haven》直播内容精选（第八集·下）](/content/gnews/20/README.md)
+### [《避风港Haven》直播内容精选（第八集·下）](/content/gnews/24/README.md)
  ` 喜马拉雅纽约磐石农场`
 
-### [两性生活中怎样再多坚持20秒](/content/gnews/21/README.md)
- ` 香草山醫療部`
-
-### [美国政府对中共的制裁措施及对中共官员的影响](/content/gnews/22/README.md)
- ` 澳喜农场`
-
-### [苹果和谷歌通过禁止中国人下载允许活动人士绕过中共严格审查的应用程序来保护北京](/content/gnews/23/README.md)
+### [苹果和谷歌通过禁止中国人下载允许活动人士绕过中共严格审查的应用程序来保护北京](/content/gnews/25/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [《避风港Haven》直播内容精选（第八集·上）](/content/gnews/24/README.md)
+### [《避风港Haven》直播内容精选（第八集·上）](/content/gnews/26/README.md)
  ` 喜马拉雅纽约磐石农场`
 
-### [绝对是控制](/content/gnews/25/README.md)
+### [绝对是控制](/content/gnews/27/README.md)
  ` mayflowertranslate`
-
-### [乔·罗根拒绝一亿美元薪酬：就待在Spotify](/content/gnews/26/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [北约指责中共国“剥夺主权国家”选择盟友的权利](/content/gnews/27/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [研究表明在中共实验室中有中共病毒的早期版本](/content/gnews/28/README.md)
  ` NFSC News`

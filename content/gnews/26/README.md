@@ -2,43 +2,38 @@
 ---
 
 
-## 乔·罗根拒绝一亿美元薪酬：就待在Spotify
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1994477/)
+## 《避风港Haven》直播内容精选（第八集·上）
+` 喜马拉雅纽约磐石农场` [轉載自GNews](https://gnews.org/zh-hans/1994534/)
 
-素材翻译： Jenny Ball
+视频制作：黑嫂子
+各国病毒感染率与疫苗接种率直接相关，视频里的数据显示从2020年1月28日起，每天每百万人中新确认新冠的案例。数据显示，美国英国均处在大约每百万人中每天有2500以上的案例。与之截然不同的是，印度和非洲从一开始就处在感染率较低的水平，原因是他们均服用伊维菌素和羟氯喹作为预防和治疗。同时值得注意的是，所有遵从CDC，FDA和WHO，给人们疯狂接种新冠疫苗的国家，感染率不但没有得到控制，反而都处在数据里感染率较高的位置，尤其是已经开始接种第4针的以色利，每天每百万人里有10968个案例，他们的高感染率现状惊人，数据已超出了表格。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1187.png)乔·罗根（Joe Rogan）于 2021 年 7 月 9 日在内华达州拉斯维加斯的 T-Mobile 竞技场参加 UFC 264 的称重仪式。（Stacy Revere/Getty Images）
+这些数据足以证明施打疫苗根本无效。我只能用这些国家的政府是为完成施打疫苗的任务而强迫民众施打来理解现在的局面。又是谁布置的任务?
 
-喜剧演员乔·罗根周二在德州告诉观众，他不会接受视频平台 Rumble 提供的 1 亿美元独家主持他的节目的报价。
+美国新冠重症联盟专家在国会听证会做证指出：英国公共卫生部门发布的数据表明mRNA疫苗接种者不产生抗核衣壳蛋白抗体，而仅仅针对病毒表面的刺突蛋白产生抗体。这意味着疫苗在破坏人体的天然免疫能力，让天然免疫应答的能力变弱。
 
-当罗根在 Spotify 的未来存在争议之际，Rumble的首席执行官本周在一篇广为流传的社交媒体帖子中向他提供了这份合同。在过去的几周里，罗根一直是各个在线平台强烈攻击的目标，以期迫使 Spotify 删除他关于 COVID-19 讨论的播客内容。
+mRNA疫苗和DNA重组疫苗都是单一针对刺突蛋白的设计，只有灭活/减活疫苗才具有完整的病毒物质。整个病毒核膜上除了S蛋白，还含有M蛋白，N蛋白，E蛋白，HE蛋白等等，目前这些疫苗对于除刺突蛋白以外的其它核衣壳蛋白毫无抵抗力，过多的S蛋白对人体天然免疫细胞，如免疫细胞CT4，CT8反而产生抑制，从而减弱人体的免疫力和抗癌能力，导致免疫低下。
 
-“不，Spotify 莫名其妙地和我连在了一起，让我们看看会发生什么，”罗根在德克萨斯州奥斯汀的活动中说。
+所以只有伊维菌素，硫酸羟氯喹才能控制疫情，减少发病率，减少死亡率！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_3207.jpg)
+下面这段视频，Eglise医生谈伊维菌素非常重要，副作用低。
+视频剪辑：黑嫂子
+[《避风港Haven》Gtv直播链接：第八集](https://gtv.org/video/id=6202cbfe3621aa7415d7bb96)
 
-本周早些时候，Rumble 首席执行官克里斯·帕夫洛夫斯基（Chris Pavlovski） 在一封信中写道，“我们愿意为你提供 1 亿”来使用 Rumble，Rumble 被视为 YouTube 或 TikTok 等视频平台的新兴替代品。
+[Eglise医生关于Omicron病毒预防及治疗建议方案 – 更新版](https://gnews.org/zh-hans/1853397/)
 
-“你在四年内，以 1 亿美元的价格，将你所有的节目带到 Rumble，无论新旧，没有审查，你看如何？”巴甫洛夫斯基补充说， “这是我们拯救世界的机会。是的，这是完全合法的。”
+[Eglise医生关于新冠預防及治療建議方案Omicron更新版（均飯後服用）](https://gnews.org/zh-hant/1853467/)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/c3c69d5a-2260-42ac-8ccb-0afa54284a38.jpg)美工设计：女农![](https://assets.gnews.org/wp-content/uploads/2022/01/9f90a4ad-5c07-4d1e-9259-afb28d50f076.jpg)美工设计：女农
+文案：Eglise/万物有灵
 
-围绕 Spotify 的争议始于创作歌手尼尔·杨（Neil Young） 要求流媒体音乐服务，要么删除他的音乐，要么删除罗根的节目。后来，Spotify 的一位发言人表示，将删除杨的歌曲，尽管这家总部位于瑞典的公司表示，将在某些播客中添加有关 COVID-19 的警告。
+听写/整理：Gloria
 
-上周晚些时候，一段经过大量编辑和断章取义的视频显示，罗根在 10 多年的播客中多次说出“黑人”（Nigger）。一天后，罗根对这段视频发表了讲话，并发表了道歉，但指出这段视频经过编辑，缺乏语境。
+视频：黑嫂子
 
-然后在周日，Spotify 首席执行官丹尼尔·艾克（Daniel Ek） 宣布媒体将支持罗根，他也是 UFC 的长期评论员。
+编辑发布：Jenny
+![](https://assets.gnews.org/wp-content/uploads/2022/01/磐石discord.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/b3df4b36-df11-4361-a8f5-6c7e5f9da569.jpg)
 
-“虽然我强烈谴责乔所说的话，并且，我同意他从我们的平台上删除过去剧集的决定，但我意识到，有些人会想要更多。我想非常清楚地说明一点——我不相信让乔沉默是答案，”埃克在一份声明中说。
 
-他补充说：“我们应该在内容范围有明确的界限，并在跨越时采取行动，但取消声音是一个下坡路。要更广泛地看待这个问题，批判性思维和公开辩论，才能推动真正和必要的进展。”
-
-在 Rumble 给罗根报价信之后，2021 年 12 月与 Rumble 达成交易的“CF收购公司”（ CF Acquisition Corp. VI ）的股票，在本周飙升了约 39%。
-
-素材来源：【theepochtimes.com】[Joe Rogan Turns Down $100 Million Offer: ‘No, Spotify Has Hung in With Me’](https://www.theepochtimes.com/joe-rogan-turns-down-100-million-offer-no-spotify-has-hung-in-with-me_4269489.html?utm_source=Morningbrief&amp;utm_campaign=mb-2022-02-11&amp;utm_medium=email&amp;est=ovHDIK05zb0Uk%2FRxwzeD21imZLSmtfgLUH4SnFc%2FsvpGdWPVfwhadDu6KxrPoV1n196%2BIw%3D%3D)
-
-* * *
-
-审核：文乐
-校对：小东
-发布：花羽
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,136 +2,47 @@
 ---
 
 
-## 中共领导人无权享有奥运会的荣耀
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1994702/)
+## 这就是广大网友关注的力量！
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1994721/)
 
-[https://gtv.org/video/id=620416ea585ecc15d73f7dd0](https://gtv.org/video/id=620416ea585ecc15d73f7dd0)
+撰稿：菜园子112～尕虎
+![](https://assets.gnews.org/wp-content/uploads/2022/02/122.jpg)图片制作：澳喜农场©森森
+2月10日徐州发布公布了“丰县生育八孩女子”事件的调查处理结果：
 
-Mike Pompeo (Former U.S. Sectary of State)
-迈克·蓬佩奥（美国前国务卿）
+近日，经部、省、市公安机关对杨某侠、光某英（小花梅同母异父妹妹）与普某玛（已去世，小花梅母亲）生前遗物进行DNA检验比对，结果为普某玛与杨某侠、光某英符合母女关系，结合调查走访、组织辨认，认定杨某侠即是小花梅。
 
-What Xi wants in return is really straightforward
-习想要的回报真的很简单
+经公安机关侦查，董某民（男，55岁，丰县人）涉嫌非法拘禁罪，桑某妞（女，48岁，云南省福贡县人）、时某忠（男，67岁，东海县人，桑某妞丈夫）涉嫌拐卖妇女罪，上述三人已被采取刑事强制措施。
 
-He wants to tell the world that the West is in decline.
-他想告诉世界，西方正在衰落
+为保障杨某侠及其家人基本生活，丰县民政部门已对他们进行低保保障。教育部门依法依规落实学生资助政策，保障其子女受教育权利。妇联的爱心志愿者和镇、村干部帮助照顾其老人，对其子女进行关爱陪伴和生活照料。后期将根据对案件的处理情况，依法确定对其未成年子女的监护责任。
 
-And look how great China is
-看看中国有多伟大
+此事件处理结果发布后，在墙内网上迅速引起广大网友们的强烈议论。
 
-Look what a free, wonderful nation this is
-看看这是一个多么自由、美好的国家
+网友“陈酿数据库”表示：
 
-And look how beautiful this
-看看如此的美丽
+这是我这个人极愤怒的时刻。徐州推出三个最底层的人来顶罪，而过程中的诸多诡异，包括最关键的妇女的年龄问题，都可以略过不提，我不接受这个结果。我现在把这句话搁在这里，你政府可以编你的谎言，而我将会追寻真相，两边各走各的，我从来都不需要你政府向我提供真相。我相信，在这条追寻真相的道路上，绝不会只有我这一个路人。如果你们真的以为，中国人全都是跪着的，那么，至少我现在可以告诉你，我就站在这里。
 
-that’s why he put a Uighur in the opening games of ceremonies
-这就是为什么他让一个维吾尔人参加开幕式的原因
+网友“涛哥微评”发表评论称：
 
-why he’s holding a million of that person’s family members in the western part of their China
-那么为什么他把那人的一百万家人关在他们中国的西部
+就在刚刚，徐州官方终于承认“狗链女”是被拐卖到丰县的，二十多年了终于揭开了这个“古老的罪恶”。在官媒集体失声去当报喜鸟歌颂奥运的情况下，自媒体人勇敢发声，很多人被请喝茶，账号被封，但是他们坚持不懈挖掘真相。
 
-and sterilizing women and conducting the worst kind of human rights violations
-对妇女进行绝育并进行最恶劣的侵犯人权行为
+第一次官方发布的通告说是董某父亲野外捡到这个女孩，带回来好心收养，后来给儿子做媳妇，说有合法的结婚手续，编造了一个感人的正能量故事，但是广大自媒体人和网友提出了滔天质疑，他们眼看盖不住，接下来又编了几个通报，一个比一个荒唐，迟迟不承认是贩卖妇女的事实。
 
-that are about to genocide
-即将种族灭绝的
+第三次通报在网上更是引起争议，光微博就走十几万人评论不相信并提出质疑——10多亿的流量。面对滔滔舆论，徐州第四次发布通报终于承认了“狗链女”是被贩卖来的，抓了人贩子和董志民。
 
-while the genocide games is going on
-当种族灭绝的时候，比赛正在进行中
+但是这份通报还不能全信，因为广大网友更相信这个女子是四川失踪女孩李莹，因为相貌极其相似，脸廓线条达到了惊人重合，李莹父亲是武警军人，援藏干部，如果是李莹，那就是拐卖性侵军属，徐州就会官场地震，很多人要问责落马，这也是徐州的通报为何一直编故事的原因。所以，这份通报疑问还在，还不能全信，必须把李莹父母亲和“狗链女”杨某侠的DNA送到国际第三方进行鉴定，让国际媒体监督。
 
-So we know what Xi wants
-所以我们知道习近平想要什么
+第四次通报终于承认是拐卖妇女，抓了拐卖她的人，这是自媒体和广大爱心网友接力呼吁的结果，所以不要说呼吁没有用。如果不呼吁“狗链女”将永远活在破屋里，被狗链拴着，没完没了地性侵生娃。如果我们不发声，这起惨绝人寰的事件就会被黑暗遮盖，就他们搞成正能量故事到处宣传。所以，不要再说我们传播负能量，我常说如果今天你不为正义站岗，明天就会为邪恶陪葬！
 
-Xi wants to whitewash his regime
-习近平想粉饰他的政权
+网友“多多gy”表示：
 
-What’s in it for America safe and the reason I think
-这对美国的安全有什么好处，我认为
+看完通报，发现仍有许多待解决的问题。1.能公布受害者的年龄吗？2.董某只是“涉嫌非法拘禁罪吗”？3.问题长期存在，各级相关负责人该负怎样的责任？4.还有其他受害者情况如何？又如何处理？最后我想问一下，我能相信这个通报吗？
 
-that our athletes should not have been put in this place
-我们的运动员不应该被出现在这个地方的原因是
+中共官方这种处理结果，就是在墙内常见的“背锅式”处理方法，而作为责任方的地方政府官员却没有一个人受到处罚，网友们看到这个处理结果，都明白是怎么回事，所以引起广大网友的极其愤慨！
 
-is that when industry have talked about burner phones
-是当业界谈论一次性手机的时候
+中共国这届草民不好忽悠了！！！
 
-and Speaker Pelosi said, hey, go over there
-佩洛西议长说，嘿，去那边
-
-and don’t express your views of America as a great country
-不要表达你对美国作为一个伟大国家的看法
-
-Just be quiet because the Chinese will pull you from the streets
-只是保持安静，因为中国人会把你从街上拉出来
-
-We also know that they will collect information on these young people
-我们也知道他们会收集这些年轻人的信息
-
-not only the digital footprint that they have in place
-不仅是他们拥有的数字信息
-
-why they’re asking them to take burner phones like a drug dealer would
-为什么他们要求他们像毒贩一样使用一次性的电话
-
-but they’ll collect the DNA from these athletes
-但他们会收集这些运动员的DNA
-
-This will be stored in Chinese databases and the military’s databases for years to come
-这将在未来几年存储在中国数据库和军方数据库中
-
-We know athletes should be subjected to that simply for the opportunity to demonstrate
-我们知道运动员应该只是为了有机会展示
-
-that they’re a world class athlete
-他们是世界级的运动员
-
-They want to compete against the best athletes in the world
-他们想与世界上最好的运动员竞争
-
-I called for a boycott
-我呼吁抵制
-
-not because I didn’t want these athletes to have the opportunity to compete itself
-不是因为我不希望这些运动员有机会参加比赛
-
-We could have done this in a million places
-我们可以在一百万个地方可以举办盛会
-
-Instead, we chose to do it
-相反，我们选择这样做
-
-in a regime with is conducting genocide and in Beijing with leadership
-在一个正在进行种族灭绝的政权中，在北京的领导下
-
-that has no right to the glory of these games to be hidden by American money
-这些比赛的荣耀无权被美国赞助商隐藏
-
-sponsors that are doing terrible things to support what’s going on in the western part of China
-赞助商正在做可怕的事情来支持中国西部正在发生的事情
-
-And I still regret that this these games are going on today in this terrible place
-我仍然很遗憾今天在这个可怕的地方进行这些比赛
-
-* * *
-
-Date:02/07/2022
-原视频标题: Communist Chinese leadership has no right to the glory of the Olympic games
-中共领导人无权享有奥运会的荣耀
-原视频日期：2022/02/07
-原视频链接:**[https://twitter.com/mikepompeo/status/1490486370145644548?s=24](https://twitter.com/mikepompeo/status/1490486370145644548?s=24)**
-任务编号：KE389(3692)
-视频时间段 : 0:00-1:39
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-文新
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
