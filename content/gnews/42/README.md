@@ -2,48 +2,30 @@
 ---
 
 
-## 喜马拉雅日本银河系农场携战友为全球Hpay用户传递爱
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1993459/)
+## 美国誓言向印太地区投入更多资源抗衡中共国
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1993176/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/封面-8.jpg)
-Hpay to the Moon🌙，Hpay  to the Galaxy🪐
+整理编辑：东京樱花团｜peterwong
+![](https://lh3.googleusercontent.com/grDNZRuclGoWsfxFFSIilun5kRd4Nz1R4B0FGpZ0kIF3gZPGmUc6Bj2t44ks1ZaQsxC3O336JVDil-JAaHrOar2LusNipQnhtzKpHyymB4eEgCs7XA4iscCxXl3C8HgspN_kvyS4)[*图片来源*](https://gdb.voanews.com/c36e0000-0aff-0242-393c-08d9edb17348_w1597_n_r1_st.jpg)
+美国星期五(2月11日) 发布《美国印太战略》的战略审议文件，誓言向印太地区投入更多资源抗衡中共国，中共试图在该地区建立势力范围并成为世界影响力最大国家。文件中说，美国将聚焦从南亚到太平洋诸岛的印太地区所有角落，以加强美国的地位和承诺。
 
-银河系向全球持有Hpay的战友或非战友问好，鉴于目前喜联储不支持美加日开设帐号的现状，而数字货币又是人类未来不可阻挡的大潮。
+上周中俄两国发表最为详细和最为强势的联合声明，生成双方的战略合作“没有止境”。两国共同表示反对美国，并要按照他们自身对人权与民主的解读而打造国际新秩序。
 
-为了推广喜币，让更多的人使用Hpay，银河系决定，为大家提供服务，我们建立了一支团队来帮助全球拥有Hpay的用户购买喜爱的日本产品。
+美国在这份文件中誓言要将联盟关系现代化，加强新兴的合作伙伴关系，并对地区性的组织进行投资。文件特别强调了“一个强大的印度”作为合作伙伴在一个积极的地区愿景中所发挥的重要作用。
 
-点对点付帐，您只要在网上能够找到的商品，我们帮助您购买及运输，所有费用都会提供日本法定发票。
+在高度敏感的台湾问题上，这份文件说，华盛顿将与地区内外的伙伴合作，维护台湾海峡的和平与稳定。
 
-Hpay，将是世界无障碍流通手段，
+这项行动计划还誓言扩大美国海岸警卫队在南亚、东南亚与太平洋的存在与合作。华盛顿认为，中共国威胁着这些海域的捕鱼和自由贸易线路。
 
-Hpay，己是爆料革命战友传递爱和温暖的桥梁。
+“我们认识到我们改变中共的能力是有限的，因此试图塑造围绕中共的战略环境，”美国行政当局的一位高级官员对记者们说。他还说，这份文件并不包含拜登行政当局更广泛的中共国战略。
 
-Hpay，更是所有人享受销费自由的唯一工具。
+附《[美国印太战略](https://www.whitehouse.gov/wp-content/uploads/2022/02/U.S.-Indo-Pacific-Strategy.pdf)》原文下载链接
 
-日本银河系将在日本法律，正道主义，全球联盟的监督下，服务全球持有Hpay人士并推广喜币。同时为我们的第二故乡日本的经济恢复出力，回馈社会，在日本树立优质的中国人形象，打倒中共，为美好明天，你我加油。🛍🛍
+消息来源：[**白宫公布印太战略文件 誓言加大外交与安全努力以抗衡中国**](https://www.voachinese.com/a/us-vows-stepped-up-indo-pacific-effort-in-push-back-against-china-20220211/6438761.html)
 
-喜马拉雅日本银河系农场
-
-2022年2月11日
-![](https://assets.gnews.org/wp-content/uploads/2022/02/f715afda841d50a2c757d3852f7b91d8.jpg)
-撰稿：骄子 wung，Judy Lin，魔女Peace
-
-发布：黎明之前
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

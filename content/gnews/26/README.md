@@ -2,8 +2,8 @@
 ---
 
 
-## 中共内部秘密讲话，南海、台湾形势、美欧经济、冬奥会
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1994176/)
+## 拜登军事法案的核心
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1994184/)
 
 #### 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王
 视频定位：BENJ1，WEI

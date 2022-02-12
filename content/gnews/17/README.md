@@ -2,24 +2,38 @@
 ---
 
 
-## 中日财经爆┃美国电费翻三倍 物价创纪录 入店行窃增加
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1994288/)
+## 盖特与纳瓦兹建立合作关系
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1994309/)
 
-撰稿：东京樱花团/向海
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-18.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimage.shutterstock.com%2Fimage-vector%2Fcpi-consumer-price-index-concept-260nw-1537289546.jpg&amp;imgrefurl=https%3A%2F%2Fwww.shutterstock.com%2Fimage-vector%2Fcpi-consumer-price-index-concept-big-1537289546&amp;tbnid=9xIbXzmUOgju0M&amp;vet=12ahUKEwjayO_OzPn1AhW0I6YKHZc7AsMQMyggegUIARCDAg..i&amp;docid=GOPuc9XySpxo_M&amp;w=473&amp;h=280&amp;q=CPI&amp;ved=2ahUKEwjayO_OzPn1AhW0I6YKHZc7AsMQMyggegUIARCDAg#imgrc=9xIbXzmUOgju0M&amp;imgdii=P6oi7QnYUvxHYM)
-在创纪录的价格继续上涨的美国，一些地区的电费几乎翻了三倍。纽约市的家庭电费，单位电价增加了大约是上个月的三倍。电力公司将其归因于天然气价格上涨。
+撰稿：日本东京方舟农 – Miyali7768(文玉)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-2.png)
+2月10日，盖特发布官方消息，宣布与纳瓦兹建立新的合作伙伴关系。
 
-此外，纽约警察局发现，由于物价上涨，入店行窃比两年前增加了 15%。某连锁超市中，肉类、冰淇淋、洗洁精等物价上涨幅度较大的物品盗窃事件屡见不鲜。
+作为英国政治评论员、广播员和前LBC主持人，纳瓦兹是英国领先的独立声音之一，也是受人尊敬的英国反极端主义组织的联合创始人。他将在盖特上发布独家视频，直播和其他内容，而不会遭到审查或取消的威胁。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1173.png)
+盖特首席执行官杰森-米勒说，我们很自豪能够提供一个平台，让像纳瓦兹这样的思想领袖能够分享他们的政治分析，而不会受到被禁止和沉默的威胁。质疑权威和传播思想的能力是任何繁荣的民主制度的基石，盖特很自豪能够站在争取言论自由的最前沿。
 
-美国 1 月份消费者价格指数增加了7.5%，为 40 年来的最高涨幅。
+新闻来源:
 
-信息来源：
+[GETTR Announces Partnership with British Broadcaster @MaajidNawaz](https://gettr.com/post/ptq3xwcf4c)
 
-[電気代「3倍」に万引き増加…米で記録的な物価上昇](https://news.yahoo.co.jp/articles/47a5e0ca04ae5f95b1d6a19388a9b4db0403c18d)
+G[ETTR Announces Partnership with British Broadcaster Maajid Nawaz](https://about.gettr.com/press/gettr-announces-partnership-with-british-broadcaster-maajid-nawaz)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2-1.jpg)
+
+编辑：文真
+
+总编：Ivy001
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

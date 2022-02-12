@@ -2,11 +2,13 @@
 ---
 
 
-## 习近平为何抓刘亚洲（上）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1994223/)
+## 习近平为何抓刘亚洲（下）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1994278/)
 
 #### 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王
 视频定位：BENJ1，WEI
+
+往期回顾：[习近平为何抓刘亚洲（上）](https://gnews.org/zh-hans/1994223/)
 
 *发布：玉米地守望者*
 

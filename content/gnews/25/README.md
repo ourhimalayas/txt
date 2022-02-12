@@ -2,24 +2,30 @@
 ---
 
 
-## 北京冬奥会成为中共以“法”作恶的舞台
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1994183/)
+## 被中共绑架的中国人如何能得到西方尊重
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1994185/)
 
-撰稿: 新西兰伊甸农场 – 亚伦
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-2.png)
-2月10日，郭文贵先生在Gettr视频中透露，中共举办冬奥会就是他们以“法”的名义、行作恶之实的最好诠释。他们不但让参赛运动员五天吃同样的饭，还以奥林匹克检测规则的名义，把有得冠实力的芬兰运动员隔离起来，实施中共病毒检测，让其失去比赛资格。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1172.png)
-中共一直在全世界依靠“蓝金黄”手段，改变法律程序，操纵游戏规则。正如PAG太平联盟集团无理起诉郭先生后就可以在香港上市， UBS瑞银集团可以把郭先生家族基金的股票强迫交易后，就可以获得中国有史以来第一个外国银行金融牌照，中共善于用恶法黑掉揭露它作恶的人，而我们要用合法的手段让世界得知真相并维护正义，一切都是刚刚开始。
+作者：纽约磐石农场—在远方
 
-编辑：飞虹
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
 
-总编：Irene木木
 
-新闻链接：[2022年2月10日文贵先生盖特](https://gettr.com/post/ptobeh782f)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2-1.jpg)
+```
+2月10日，郭文贵先生在盖特表示，中共的冬奥会非常无耻，中共的高官玩弄谷爱玲母女两人，毁掉了她的美好前程。就像孟建柱，曾经变态的玩弄过一家人中的三代女性。
+```
 
-校正/发稿：浪迹天涯
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-195.jpeg)图片来源；七哥盖特
+
+郭先生告诫说，任何人都不应该端中共的饭碗。跟着共产党、相信共产党，就会走进火葬场，这是一个人人皆知的常识。过去百年历史证明，原苏联、纳粹德国，古巴、委内瑞拉，每个独裁国家都是如此。现在阿富汗正在饿死人，而PAG和UBS却仍然毫无廉耻的在当帮助中共作恶，中国人已经被中共残害殆尽，这会让全世界对中共国人产生极大的偏见。尊重游戏法则，尊重法律，是一个社会的底线，道德是人和畜生之间最低的底线。
+郭先生表示，中共的冬奥会让运动员5天吃同样的饭。如果哪位运动员有获奖的可能，共产党就会以核算检测的名义将其强行隔离，让其失去获奖机会。中共用发射火箭人为制造的假雪营造冬奥环境，既不专业又污染环境，对天地万物、对所有运动员、对道德和法律，都是巨大的伤害。郭先生质问道，这将让世界和后人们如何看待我们？中国人如何能获得西方的尊重？中国人如何能阻止世界反华排华？这一切都让郭先生感到十分痛心。
+
+参考链接 [https://www.gettr.com/post/ptsexc64a5](https://www.gettr.com/post/ptsexc64a5)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-196.jpeg)
+
+编辑/校对/发稿：文敬
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -27,7 +33,12 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-2.png)
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

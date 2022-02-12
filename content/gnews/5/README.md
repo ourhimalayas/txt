@@ -2,37 +2,32 @@
 ---
 
 
-## 研究表明在中共实验室中有中共病毒的早期版本
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1994402/)
+## 美国国务卿安布林肯表示，俄罗斯可能在奥运会期间入侵乌克兰
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1994410/)
 
-撰稿：银河系农场 – 骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-2.png)
-据英国媒体2月10日消息，近日，匈牙利的科学家在检查来自南极洲的土壤DNA时发现了一种独特的中共病毒变异的痕迹，这些痕迹可能会支持中共病毒来自实验室的结论。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1177.png)图片来源：https://www.newsmax.com
-从土壤样本分析来看，科学家认为中共病毒应该不是从自然野生动物传染给人类的。研究人员还发现了来自中共的仓鼠和绿猴的遗传物质，这表明中共病毒利用动物或动物细胞进行过实验室实验。
+撰稿：小湫
+![](https://assets.gnews.org/wp-content/uploads/2022/02/5D505542-3E69-4B33-A0DE-9F3A8BC30952.jpeg)图片来自网络
+美国国务卿布林肯上周五表示，俄罗斯可能在北京冬奥会期间入侵乌克兰，因此美国人应该立即离开这个东欧国家。 布林肯没有详细说明国务院呼吁所有美国公民离开乌克兰的最新安全警报背后的原因。
 
-越来越多的证据证明，在中共病毒大流行之前，中共科学家们在实验室设计了病毒，并增强了其传染性。
+布林肯在澳大利亚墨尔本访问期间说，我们看到令人非常不安的俄罗斯持续升级的迹象，包括新部队抵达乌克兰边境。我们正处在随时看到俄罗斯入侵的窗口期，这包括奥运会期间，本届北京冬季奥运会定于2月20日结束。俄罗斯在乌克兰边境附近集结了超过10万军队。俄罗斯表示没有入侵的计划，但希望西方国家将乌克兰和其他前苏联解体的国家排除在北约之外。
 
-新闻链接：
+周五，布林肯与印度、日本和澳大利亚外长在堪培拉举行会议，会议的主要议题是乌克兰的战争威胁以及俄罗斯和中国之间加强联盟，美国、印度、日本和澳大利亚四个国家组成的四方会谈，旨在对抗中国日益增长的地区影响。在关于四方联盟的问题上，印度外交部长Jaishankar强调，四方伙伴关系是为了共同的价值观，不是针对特定的国家，印度政府是俄罗斯军事硬件的最大客户之一。当记者问及俄罗斯对乌克兰的行为是否恰当时，Jaishankar回答说，四方会谈的重点是印度-太平洋地区，而不是欧洲。
 
-[‘Early version of Covid-19’ is discovered in Chinese lab, fuelling fears that scientists were studying the virus prior to outbreak](https://www.dailymail.co.uk/news/article-10495613/Early-version-Covid-19-discovered-Chinese-lab.html)
+布林肯早些时候表示，美国与中国在印太地区的冲突并非不可避免。我们同样担心，近年来中国在国内、印太地区以及在其他地区的行动越来越频繁。布林肯此行旨在加强美国在亚洲的利益，并遏制中国在该地区日益强硬的态度。 他还将访问斐济，并在夏威夷与日本和韩国领导人讨论有关朝鲜的紧迫问题。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+中国外交部发言人赵立坚驳斥了四方对北京在太平洋岛国日益扩大的影响力的担忧。 中国对太平洋岛国的支持是开放、透明和包容的，不针对任何第三方。我们希望所有国家都能采取实际行动，帮助太平洋岛国应对挑战，为地区和平、稳定和发展做出更多贡献。
 
-编辑：飞虹
+澳大利亚近年来遭到了贸易报复，原因是它的一些行动激怒了北京政府，这些行动包括禁止外国秘密干预国内政治，禁止中国科技巨头华为参与重大基础设施项目，并敦促对COVID-19大流行的起源进行独立调查。
 
-总编：木木
+澳大利亚总理斯科特·莫里森说，在与布林肯、Jaishankar和日本外相林吉正会晤后，他对双方共同承诺反对胁迫感到放心。
 
-校正/发稿：浪迹天涯
+周五早些时候，布林肯和和日本外相林吉正举行了一次会议，他们对俄罗斯在乌克兰边境加强军事力量表示深切关注，一位不愿透露姓名的日本外务省官员说，两国领导人还对朝鲜不断升级的核武器和导弹开发方面表示严重关切。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-2.png)
+参考信息：
 
+[US Secretary of State Antony Blinken says Russia could invade Ukraine during Olympics](https://www.9news.com.au/world/quad-press-conference-us-secretary-of-state-antony-blinken-says-russia-could-invade-ukraine-during-olympics/7ac7ea6e-c71c-4194-a5ea-7f8cb11fcb75)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
+发稿：MG6
 
  
 

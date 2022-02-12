@@ -2,38 +2,24 @@
 ---
 
 
-## 盖特与纳瓦兹建立合作关系
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1994309/)
+## 美国印太战略部署公布 鲜明针对中共
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1994327/)
 
-撰稿：日本东京方舟农 – Miyali7768(文玉)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-2.png)
-2月10日，盖特发布官方消息，宣布与纳瓦兹建立新的合作伙伴关系。
+撰稿：东京樱花团/风翼
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片3-6.png)图片来源于网络
+据TBS新闻报道，拜登政府于2月11日发布的印太战略指出，“中共正将其经济、外交和军事结合起来，成为世界上最有影响力的大国”。对于中共正在那里施加越来越大的军事压力，美国将与印太平洋地区的国家和联盟国合作，维护台湾海峡的和平与稳定。
 
-作为英国政治评论员、广播员和前LBC主持人，纳瓦兹是英国领先的独立声音之一，也是受人尊敬的英国反极端主义组织的联合创始人。他将在盖特上发布独家视频，直播和其他内容，而不会遭到审查或取消的威胁。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1173.png)
-盖特首席执行官杰森-米勒说，我们很自豪能够提供一个平台，让像纳瓦兹这样的思想领袖能够分享他们的政治分析，而不会受到被禁止和沉默的威胁。质疑权威和传播思想的能力是任何繁荣的民主制度的基石，盖特很自豪能够站在争取言论自由的最前沿。
+并表示，还将深化与其他五个国家，澳大利亚、日本、韩国、菲律宾和泰国的联盟，以实现自由和开放的印太平洋。还呼吁多次发射弹道导弹的朝鲜进行“严肃对话”的同时还强调加强与日本和韩国的合作，表示，“如果有必要时将其打败”。
 
-新闻来源:
+美国拜登政府宣布就职以来的第一个印太战略来看，不得不说已经旗帜鲜明的表示出将与其盟友合做，对抗中共的意图。
 
-[GETTR Announces Partnership with British Broadcaster @MaajidNawaz](https://gettr.com/post/ptq3xwcf4c)
+信息来源
 
-G[ETTR Announces Partnership with British Broadcaster Maajid Nawaz](https://about.gettr.com/press/gettr-announces-partnership-with-british-broadcaster-maajid-nawaz)
+[米 インド太平洋戦略発表 対中姿勢鮮明に](https://news.tbs.co.jp/newseye/tbs_newseye6002537.htm)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2-1.jpg)
-
-编辑：文真
-
-总编：Ivy001
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-2.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
