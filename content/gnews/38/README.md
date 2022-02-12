@@ -2,10 +2,10 @@
 ---
 
 
-## 白宫敦促美国人立即撤离乌克兰，因无法预知的风险增加
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1993982/)
+## 中共再次威胁打开潘多拉魔盒
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1993999/)
 
-02/11/2022 白宫敦促美国人在未来24至48小时内撤离乌克兰，因无法预知的风险正在增加
+02/11/2022 中共再次威胁打开潘多拉魔盒
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

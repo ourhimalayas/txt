@@ -15,121 +15,121 @@
 
 ---
 
-### [美国务卿在澳大利亚发出警告称中共政权意图主宰世界](/content/gnews/1/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [2/11/2022 文贵直播：文贵在2018年就说美国要立法制裁中共，现在法案已被正式提出，没打疫苗的人才会是赢家](/content/gnews/1/README.md)
+ ` 秘密翻译组-北美组`
 
-### [串珠574:这是习一个人的冬奥，中国人无不咬牙切齿](/content/gnews/2/README.md)
- ` 郭爆料串珠`
+### [香港日增新冠突破1000，6个月来首次出现死亡病例](/content/gnews/2/README.md)
+ ` GTV News Talk`
 
-### [肥料价格飙升和对中共国的进口依赖威胁美国农业](/content/gnews/3/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [今日说币](/content/gnews/4/README.md)
+### [关于维生素D，高皮质醇（压力荷尔蒙）与睡眠的关系](/content/gnews/3/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [心障](/content/gnews/5/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [回顾中共的十年文化大革命](/content/gnews/4/README.md)
+ ` NFSC News`
 
-### [串珠573:大家都痛恨中共同流合污的冬奥运动员](/content/gnews/6/README.md)
- ` 郭爆料串珠`
+### [纽约警局将彻查韩国外交官无端遭袭案](/content/gnews/5/README.md)
+ ` NFSC News`
 
-### [2022/02/09 墙内世界](/content/gnews/7/README.md)
+### [恭喜Himalaya coin 上线100天](/content/gnews/6/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [美国务卿在澳大利亚发出警告称中共政权意图主宰世界](/content/gnews/7/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [变本加厉：奥地利推出疫苗证书合规检查站](/content/gnews/8/README.md)
+### [痛心排华（一）](/content/gnews/8/README.md)
+ ` 骄子`
+
+### [串珠574:这是习一个人的冬奥，中国人无不咬牙切齿](/content/gnews/9/README.md)
+ ` 郭爆料串珠`
+
+### [肥料价格飙升和对中共国的进口依赖威胁美国农业](/content/gnews/10/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [今日说币](/content/gnews/11/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [心障](/content/gnews/12/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [串珠573:大家都痛恨中共同流合污的冬奥运动员](/content/gnews/13/README.md)
+ ` 郭爆料串珠`
+
+### [2022/02/09 墙内世界](/content/gnews/14/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [变本加厉：奥地利推出疫苗证书合规检查站](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [7•24专题——非洲系列政变，中共地缘影响力遭遇滑铁卢](/content/gnews/9/README.md)
+### [7•24专题——非洲系列政变，中共地缘影响力遭遇滑铁卢](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2/12银河快讯:日美外长严重关切俄罗斯军事集结；日本央行将无限量购买日本国债](/content/gnews/10/README.md)
+### [2/12银河快讯:日美外长严重关切俄罗斯军事集结；日本央行将无限量购买日本国债](/content/gnews/17/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [2/12/2022国际财经快讯：英国经济在通胀挑战前遭受欧米茄的打击；华尔街因担心乌克兰冲突而大幅收跌](/content/gnews/11/README.md)
+### [2/12/2022国际财经快讯：英国经济在通胀挑战前遭受欧米茄的打击；华尔街因担心乌克兰冲突而大幅收跌](/content/gnews/18/README.md)
  ` 秘密翻译组金融团队`
 
-### [如果俄罗斯入侵乌克兰,那将是因为拜登的软弱](/content/gnews/12/README.md)
+### [如果俄罗斯入侵乌克兰,那将是因为拜登的软弱](/content/gnews/19/README.md)
  ` 美国政要直译推`
 
-### [德国联邦政府呼吁本国人离开乌克兰](/content/gnews/13/README.md)
+### [德国联邦政府呼吁本国人离开乌克兰](/content/gnews/20/README.md)
  ` Shuizhuyu`
 
-### [美国国务院命令非紧急使馆工作人员离开乌克兰](/content/gnews/14/README.md)
+### [美国国务院命令非紧急使馆工作人员离开乌克兰](/content/gnews/21/README.md)
  ` Shuizhuyu`
 
-### [“自由车队 ”到了巴黎的大门口](/content/gnews/15/README.md)
+### [“自由车队 ”到了巴黎的大门口](/content/gnews/22/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [乌克兰运动员在北京冬奧会比赛中呼吁和平](/content/gnews/16/README.md)
+### [乌克兰运动员在北京冬奧会比赛中呼吁和平](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国试图阻止中共在非洲建立大西洋基地](/content/gnews/17/README.md)
+### [美国试图阻止中共在非洲建立大西洋基地](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国为俄罗斯外交或“侵略”做好准备](/content/gnews/18/README.md)
- ` Shuizhuyu`
-
-### [从希腊看疫苗动向](/content/gnews/19/README.md)
+### [从希腊看疫苗动向](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [“中共监控”产品进入荷兰政府， 引发荷兰媒体担忧](/content/gnews/20/README.md)
+### [“中共监控”产品进入荷兰政府， 引发荷兰媒体担忧](/content/gnews/26/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [谷爱凌叛变美国祸及华人](/content/gnews/21/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [拜登和普京对乌克兰危机发表讲话](/content/gnews/22/README.md)
- ` Shuizhuyu`
-
-### [文耀时间｜战友实例分享私人信托设立（二） 上期节目答疑 模拟器计算财富 欧洲信托信息(4)](/content/gnews/23/README.md)
- ` 喜马拉雅德国纽伦堡正义农场`
-
-### [中共领导人无权享有奥运会的荣耀](/content/gnews/24/README.md)
+### [中共领导人无权享有奥运会的荣耀](/content/gnews/27/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [《避风港Haven》直播内容精选（第八集·下）](/content/gnews/25/README.md)
+### [《避风港Haven》直播内容精选（第八集·下）](/content/gnews/28/README.md)
  ` 喜马拉雅纽约磐石农场`
 
-### [苹果和谷歌通过禁止中国人下载允许活动人士绕过中共严格审查的应用程序来保护北京](/content/gnews/26/README.md)
+### [苹果和谷歌通过禁止中国人下载允许活动人士绕过中共严格审查的应用程序来保护北京](/content/gnews/29/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [绝对是控制](/content/gnews/27/README.md)
+### [绝对是控制](/content/gnews/30/README.md)
  ` mayflowertranslate`
 
-### [研究表明在中共实验室中有中共病毒的早期版本](/content/gnews/28/README.md)
+### [研究表明在中共实验室中有中共病毒的早期版本](/content/gnews/31/README.md)
  ` NFSC News`
 
-### [瑞典取消疫苗护照等限制措施](/content/gnews/29/README.md)
+### [瑞典取消疫苗护照等限制措施](/content/gnews/32/README.md)
  ` NFSC News`
 
-### [美大学生校队完胜中共外聘职业联军](/content/gnews/30/README.md)
+### [美大学生校队完胜中共外聘职业联军](/content/gnews/33/README.md)
  ` NFSC News`
 
-### [台湾使用HPAY完成第一台汽车交易](/content/gnews/31/README.md)
+### [台湾使用HPAY完成第一台汽车交易](/content/gnews/34/README.md)
  ` NFSC News`
 
-### [盖特与纳瓦兹建立合作关系](/content/gnews/32/README.md)
- ` NFSC News`
-
-### [日本非政府组织支援出现人道主义危机的阿富汗](/content/gnews/33/README.md)
+### [日本非政府组织支援出现人道主义危机的阿富汗](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆┃美国电费翻三倍 物价创纪录 入店行窃增加](/content/gnews/34/README.md)
+### [中日财经爆┃美国电费翻三倍 物价创纪录 入店行窃增加](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [北京冬奥会成为中共以“法”作恶的舞台](/content/gnews/35/README.md)
- ` NFSC News`
-
-### [Aimee McBride用数据回击FDA审议5岁以下孩童紧急使用授权](/content/gnews/36/README.md)
+### [Aimee McBride用数据回击FDA审议5岁以下孩童紧急使用授权](/content/gnews/37/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共再次威胁打开潘多拉魔盒](/content/gnews/37/README.md)
+### [中共再次威胁打开潘多拉魔盒](/content/gnews/38/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [白宫敦促美国人立即撤离乌克兰，因无法预知的风险增加](/content/gnews/38/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [美国市长朱利安尼：美国精英已经完全把灵魂出卖给了中共](/content/gnews/39/README.md)
+### [白宫敦促美国人立即撤离乌克兰，因无法预知的风险增加](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [前任美驻以大使大卫·佛利民谈俄罗斯、中共关系发展](/content/gnews/40/README.md)

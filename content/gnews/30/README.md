@@ -2,42 +2,29 @@
 ---
 
 
-## 美大学生校队完胜中共外聘职业联军
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1994371/)
+## 绝对是控制
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/1994509/)
 
-撰稿：纽约香草山 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-2.png)
-2月10日，冬奥会冰球男子组预赛，由美高校学生组成的美国队，以8:0完胜中共出巨资打造的，由美、加、俄职业球员组成的中国队。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1175.png)图片来源：https://news.sina.cn
-此前，自去年12月美国国家冰球联盟NHL宣布不派联盟球员参加2022北京冬奥会，冰球强国美国和加拿大匆忙组建了各自的国家队跨洋出征。这些年轻的球员绝大多数是在校大学生，从没参加过国际比赛；反观中国队的阵容，25人中，本土球员只有6人，其余的19人几乎都是通过中共国运作了四年的“大国战略”高薪招募的外籍球员，而且大部分是NHL职业球员。
+翻译整理：思澈
 
-根据国际冰球联合会的规则，允许球员代表一个国家效力，只要在那里生活了至少两年。中共国本来没有冰球队，仅仅为了实现奥运会东道主国“全项目”参与，不惜花费巨资打造了这支联合球队，没想到在首场美中交锋中，就以这般不堪入目的成绩，展现在世人面前。网友尴尬评论：落花流水。
+每天PCR测试、一个监测应用程序和狭窄活动范围：德国ARD记者塔玛拉-安东尼告诉我们她是在什么情况下报道北京冬季奥运会的。
 
-正如郭先生所说，北京冬奥会，一切都是假的。这场比赛正是另一个有力的佐证。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/96D5CA9D-9051-4B87-9C64-2AAACE24DA68.jpeg)
 
-【新闻链接】
+如果你想从北京现场报道冬奥运会，你必须几个星期待在一个所谓的闭环里。在中共病毒条件下来到现场已经是一种挑战，意味着五个小时的车程。进入闭环中自由行动受到极大的限制，当你离开酒店时，你很快就会来到一个警察路障前–从那里开始不再被允许独自行动，而只能去另一家酒店，去媒体中心，或者去有特别提供的交通工具的某个场地，这些交通工具也是闭环的一部分。仅仅是打开公共汽车的窗户就能让你受到训斥。这种控制是绝对的，确保只进入事先标出的区域。这里没有可能与奥运会无关的 “正常 “中国人混合。不了解中国的人就没有机会对这个国家留有一个印象。
 
-[US spoils host China’s hockey debut in 8-0 thrashing](https://www.france24.com/en/live-news/20220210-us-spoils-host-china-s-hockey-debut-in-8-0-thrashing)
+闭环中的每个人都必须下载一个名为My2022的应用程序，定期输入他们的体温。但是人们发现，这个应用程序的第一个版本内置了后门，这些后门通常用于间谍软件，即间谍程序。据中国消息人士称，这些后门在第二个版本的应用程序中被关闭。因此，许多国家奥委会给他们的运动员提供了自己的手机，德国奥委会也建议其运动员携带一次性移动电话。德国ARD电视团队也有自己的移动设备，这些设备将被做成转播平台。在媒体中心可以使用免费互联网–但是中国同事，比如翻译，却不能。这也说明了这里的密切监视，国际奥委会却对此表示支持。
 
-[China’s Olympic hockey hopes rest on North American talent](https://www.foxnews.com/sports/china-olympic-hockey-north-american-talent)
+记者的工作条件变得更加严格，外国记者很少，许多美国记者不得不离开该国，”监督者 “因此而有更多的时间来对待每个记者个人。中国政府对记者指手画脚的好理由以必要的测试为借口，将他们拘留在酒店里24小时。在自发的采访过程中总是有监督员跟随，他们会进行干预，往往都是根据Covid措施，而他们的出现就会使我们的受访者感到害怕并跑开。通常情况下采访合作伙伴会被中国警方提前警告，然而在短时间内取消我们，这也说明了对我们的电信进行了密集的监控。对我们来说，这意味着我们必须每天做出相当大的努力，进入免费的互联网，并找到受保护的渠道，通过它来发送我们的材料。这使得我们的工作非常困难。我们也总是要仔细考虑，我们的工作可能会使谁处于危险之中。采访合作伙伴在最后一刻取消采访，显示出他们面临的压力有多大。
 
-[中国男子冰球历史首登冬奥舞台，0-8不敌美国队](https://news.sina.cn/gn/2022-02-10/detail-ikyakumy5282501.d.html?from=wap)
+奥运会在空间上与正常生活相距甚远，它们在栅栏后面进行，没有比赛门票，也没有公众观看–不可能出现兴奋感。此外，冬季运动在中国并没有发挥很大的作用。几乎没有冬季运动明星。也没有一个公民社会可以自由和自决地组织集会、活动、庆祝活动和所有通常构成这种 “发生 “的东西。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+原文链接：[https://www.tagesschau.de/ausland/asien/beijing2022-bedingungen-berichterstattung-101.html](https://www.tagesschau.de/ausland/asien/beijing2022-bedingungen-berichterstattung-101.html)
 
-编辑：谐趣园
+*发布：思澈*
 
-总编：Ivy001
 
-校正/发稿：浪迹天涯
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
