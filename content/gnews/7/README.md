@@ -2,36 +2,40 @@
 ---
 
 
-## 有声|盖特与纳瓦兹建立合作关系
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1996892/)
+## 欧洲药物监管机构重新调查与疫苗有关的月经问题报告
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1996900/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月10日，盖特发布官方消息，宣布与纳瓦兹建立新的合作伙伴关系。
+**编译: 真北007**
 
-作为英国政治评论员、广播员和前LBC主持人，纳瓦兹是英国领先的独立声音之一，也是受人尊敬的英国反极端主义组织的联合创始人。他将在盖特上发布独家视频，直播和其他内容，而不会遭到审查或取消的威胁。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1173.png)
-盖特首席执行官杰森-米勒说，我们很自豪能够提供一个平台，让像纳瓦兹这样的思想领袖能够分享他们的政治分析，而不会受到被禁止和沉默的威胁。质疑权威和传播思想的能力是任何繁荣的民主制度的基石，盖特很自豪能够站在争取言论自由的最前沿。
+来自POLITICO.EU 二月十一日的新闻报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/F80121F6-E1C8-406A-897D-170D83B7015B.jpeg)**图片来源：**https://www.politico.eu
+在报告大量出血和错过月经以及科学文献中的新发现后，欧洲药品管理局（EMA） 将重新调查 mRNA 疫苗。
 
-文字版原文：[盖特与纳瓦兹建立合作关系](https://gnews.org/zh-hans/1994309/)
+欧洲药品监管机构周五表示，正在调查与注射 mRNA 冠状病毒疫苗有关的女性月经问题的报告。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+在使用 Moderna 和 BioNTech/Pfizer 注射剂后，欧洲药品管理局的药物安全委员会正在调查大出血以及错过月经的两个病例。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+药物警戒风险评估委员会此前曾调查过与 COVID-19 疫苗相关的月经失调，并得出结论认为没有关联。 现在，在收到问题报告以及科学文献的新发现后，它正在重新审理此案。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+该委员会将进行深入调查，查看报告的事件，以及临床试验数据和已发表的科学文章。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+EMA强调，没有证据表明疫苗对生育有任何影响。 监管机构补充说，目前尚不清楚疫苗与月经过多或错过月经之间是否存在联系。
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+科学家们发现与 COVID-19 疫苗有关的月经周期的微小变化。
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+**原文链接：**
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[Europe’s drug regulator probes reports of menstrual problems linked to vaccines](https://www.politico.eu/article/ema-investigates-reports-of-menstrual-problems-linked-to-vaccines/)
 
+**编辑：LILY**
+
+**发布：歪桑**
+
+20220212
+
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3-4.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

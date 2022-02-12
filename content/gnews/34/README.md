@@ -2,26 +2,25 @@
 ---
 
 
-## 立陶宛敦促全球抵制中共和俄罗斯
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1996199/)
+## 人类研究保护联盟主席呼吁反对强制疫苗
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1996266/)
 
-作者：银河系农场—骄子
+作者：纽约磐石农场—在远方
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月10日，据外国媒体报道，立陶宛高级外交官在访问澳大利亚期间向全球发出呼吁称，各国政府应该勇敢抵制中共和俄罗斯侵犯人权的行为，哪怕会因此付出代价。
+2月10日，据盖特消息显示，纳粹大屠杀幸存者、人类研究保护联盟创始人兼主席维拉-沙拉夫近日在欧盟总部布鲁塞尔表示，中共病毒疫苗使用了一种实验性基因转移技术，而制药公司正在对全球人口进行测试——这一行为严重违反了全球民众自愿知情同意权这一最重要的人权。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide5-6.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-4.jpeg)
 
-立陶宛外交官建议道，全球目前应逐步减少对中共和俄罗斯的贸易与能源依赖，同时，部分国家需要建立基于自由民主原则的同盟伙伴关系。
+沙拉夫指出，自2020年中共病毒大流行伊始，各国政府随即宣布进入紧急状态。其后，全球都在推进一种致命的医疗指令，即强制民众接种中共病毒疫苗。这令那些未接种疫苗者受到越来越严重的惩罚和歧视。
 
-该外交官也表示，人们不应该对中共在新疆犯下的种族大屠杀保持沉默，反而应该持续向其发出质询。另一方面，中共还在新疆地区实施强迫劳动的暴行，而这种原则性问题绝不能被无视。如果全球因顾忌物价上涨因素而继续将中共新疆地区的相关产品纳入供应链中，那么每个人都将为强迫劳动带来的低廉商品付出代价。
+如今，大量的事实证明，中共病毒疫苗既不能防止病毒的感染和传播，也不能让接种者产生相应的免疫效力。为此，沙拉夫呼吁，人类正处在历史上一个灾难性的转折点，如果我们想生存下去，就必须团结起来避免灾难的发生。
 
-这位外交官还强调称，乌克兰如今正面临着如同台湾一般的困局，虽然立陶宛此前因与台湾的友好外交关系惹怒中共，但一定还有其他国家将效仿立陶宛的做法，加强与台湾的友好外交关系，这也是全球必然的趋势。
-
-参考链接：[Squeezed Lithuania urges world to stand up against China, Russia](https://www.straitstimes.com/asia/australianz/squeezed-lithuania-urges-world-to-stand-up-against-china-russia)
+参考链接：
+ [Vera Sharav，纳粹大屠杀幸存者，人类研究保护联盟创始人兼主席](https://gettr.com/post/ptp8565c13)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-总编：Ivy001 
+总编：Irene木木 
 编辑：静言
 校正/发稿：谐趣园
 
