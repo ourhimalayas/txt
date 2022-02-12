@@ -15,64 +15,64 @@
 
 ---
 
-### [有声|台湾使用HPAY完成第一台汽车交易](/content/gnews/1/README.md)
+### [有声|美众议院提案制裁数千名中共高官](/content/gnews/1/README.md)
  ` MOSREC`
 
-### [纽约州法院系统培训主任被指搞裙带关系后辞职](/content/gnews/2/README.md)
+### [有声|台湾使用HPAY完成第一台汽车交易](/content/gnews/2/README.md)
+ ` MOSREC`
+
+### [纽约州法院系统培训主任被指搞裙带关系后辞职](/content/gnews/3/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|被中共绑架的中国人如何能得到西方尊重](/content/gnews/3/README.md)
+### [有声|被中共绑架的中国人如何能得到西方尊重](/content/gnews/4/README.md)
  ` MOSREC`
 
-### [华裔女下班途中被击，战友们需提高防范意识](/content/gnews/4/README.md)
- ` 全球G系列咨服群`
-
-### [在加拿大武装部队服务了20多年的史蒂芬-奥斯基少校有一个紧急消息要告诉所有加拿大人](/content/gnews/5/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [2022/02/12 英喜时事速递](/content/gnews/6/README.md)
+### [文贵先生盖特精要- 2022/02/11](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [丹麦首相：将签协议允许美国驻军](/content/gnews/7/README.md)
- ` 墨尔本雅典娜农场`
+### [华裔女下班途中被击，战友们需提高防范意识](/content/gnews/6/README.md)
+ ` 全球G系列咨服群`
 
-### [Miles Guo Live Broadcast summary February 11, 2022](/content/gnews/8/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [香港疫情：2月12日新增1514例确诊](/content/gnews/9/README.md)
- ` 墨尔本雅典娜农场`
-
-### [文耀时间｜战友实例分享私人信托设立（二） 上期节目答疑 模拟器计算财富 欧洲信托信息(6)](/content/gnews/10/README.md)
- ` 喜马拉雅德国纽伦堡正义农场`
-
-### [美国防委员会议员指责自由党政府-军队对待未接种疫苗的士兵比被定罪的连环杀手和强奸犯还要糟糕](/content/gnews/11/README.md)
+### [在加拿大武装部队服务了20多年的史蒂芬-奥斯基少校有一个紧急消息要告诉所有加拿大人](/content/gnews/7/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [战友们别忘了action，action，action](/content/gnews/12/README.md)
+### [2022/02/12 英喜时事速递](/content/gnews/8/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [丹麦首相：将签协议允许美国驻军](/content/gnews/9/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [Miles Guo Live Broadcast summary February 11, 2022](/content/gnews/10/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [香港疫情：2月12日新增1514例确诊](/content/gnews/11/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [文耀时间｜战友实例分享私人信托设立（二） 上期节目答疑 模拟器计算财富 欧洲信托信息(6)](/content/gnews/12/README.md)
+ ` 喜马拉雅德国纽伦堡正义农场`
+
+### [美国防委员会议员指责自由党政府-军队对待未接种疫苗的士兵比被定罪的连环杀手和强奸犯还要糟糕](/content/gnews/13/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [战友们别忘了action，action，action](/content/gnews/14/README.md)
  ` 雅典娜GNotes`
 
-### [有声|北京冬奥会成为中共以“法”作恶的舞台](/content/gnews/13/README.md)
+### [有声|北京冬奥会成为中共以“法”作恶的舞台](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [有声|2022年2月11日 晚 新中国联邦新闻、GTV新闻访谈简报](/content/gnews/14/README.md)
+### [有声|2022年2月11日 晚 新中国联邦新闻、GTV新闻访谈简报](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [非法入侵到“中俄联合声明” ——福岛核废水](/content/gnews/15/README.md)
+### [非法入侵到“中俄联合声明” ——福岛核废水](/content/gnews/17/README.md)
  ` 澳喜农场`
 
-### [从谷爱凌夺冠看精英回到中共国的历史悲剧](/content/gnews/16/README.md)
+### [从谷爱凌夺冠看精英回到中共国的历史悲剧](/content/gnews/18/README.md)
  ` 秘密翻译组-原创组`
 
-### [有声|英国就停止医护人员疫苗令征求意见](/content/gnews/17/README.md)
+### [有声|英国就停止医护人员疫苗令征求意见](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [七哥看破生死](/content/gnews/18/README.md)
- ` 雅典娜GNotes`
-
-### [有声|拜登政府将另启对中共关税的调查](/content/gnews/19/README.md)
- ` MOSREC`
-
-### [中共卑鄙](/content/gnews/20/README.md)
+### [七哥看破生死](/content/gnews/20/README.md)
  ` 雅典娜GNotes`
 
 ### [NFSC新闻、G|TV新闻访谈简报|2022年2月12日早](/content/gnews/21/README.md)
