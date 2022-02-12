@@ -2,8 +2,8 @@
 ---
 
 
-## 只有亲身经历世界的黑暗才知道邪恶的丑陋
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1993194/)
+## 香港未来还会更坏
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1993252/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

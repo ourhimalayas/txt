@@ -2,28 +2,21 @@
 ---
 
 
-## 中日财经爆|中共国：铁矿石要“恶意涨价”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1993206/)
+## 刘亚洲事件
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1993282/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1161.png)[图片来源](https://www.sohu.com/a/237209596_334198)
-针对近期铁矿石价格出现异动等有关情况，中共国相关机构连番出手欲打压“恶意”涨价势头。
+#### 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王
+视频定位：BENJ1，WEI
 
-中共国家发改委和市场监管总局拟于近日派出联合调研组，赴部分商品交易所、重点港口开展铁矿石市场监管调研；将高度关注大宗商品价格变化，持续密切关注市场运行和价格走势。
+*发布：玉米地守望者*
 
-中国钢铁工业协会周五（2月11日）晚间表示，据其监测，近期部分涉矿企业违背商业道德，发布和炒作不实信息，严重干扰了市场公平秩序，损害市场主体的合法利益，钢铁协会对此表示谴责；大商所则宣布上调铁矿石期货相关合约手续费。
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-大连商品交易所周五晚间公告，自2月16日起，将铁矿石2202、2203、2204、2205合约手续费标准由成交金额的万分之一调高至万分之二。
-
-发改委微信公众号周五发布新闻稿称，调研组将重点了解近期铁矿石库存变化及有关企业参与铁矿石期现货交易情况，严厉打击捏造散布涨价信息、囤积居奇、哄抬价格、恶意炒作。
-
-中共国市监总局和国家发改委近日联合约谈有关铁矿石资讯企业，要求提供发布信息的事实来源，不得编造发布虚假价格信息，不得捏造散布涨价信息，不得哄抬价格。
-
-消息来源：[中国连番出手平抑铁矿石异动 发改委等拟调研库存及大宗商品价格变化](https://cn.reuters.com/article/china-ndrc-iron-ore-price-0212-idCNKBS2KH02C?il=0)
-
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
