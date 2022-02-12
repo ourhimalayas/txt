@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/12/2022 2:21 PM (UTC)`
+
+⚠️⚠️Chronologie du nouvel État fédéral de Chine à propos du virus du PCC et du vaccin covid (Française)<br/><br/>Le NFSC a toujours été attaché à la vérité et à sauver des vies en exposant la nature perverse du PCC et le fait qu'ils ont créé le virus du PCC qui a tué des millions de personnes dans le monde. En outre, le NFSC a diffusé dans le monde les thérapies COVID et les médicaments associés, ainsi que les informations et données réelles sur le vaccin COVID. Tous les faits prouvent que ce que le PCC a fait n'a rien à voir avec le peuple chinois, le PCC ne peut pas représenter le peuple chinois, qui en est aussi la victime.<br/><br/>⚠️⚠️关于 #新中国联邦 爆料 #中共病毒 和 #中共病毒疫苗 灾难预警时间线（法语版）<br/><br/>新中国联邦致力于揭露中共邪恶本质，揭露他们制造中共病毒在全世界造成数百万人死亡的事实以及COVID疫苗的真实目的，揭示真相，拯救生命。中共的所作所为与中国人民无关，中共不代表中国人民，中国人民也是受害者。
+![img](https://media.gettr.com/group8/origin/2022/02/12/14/a2f76901-8277-64d6-41a2-df652e420057/out.jpg)
+
+---
+
 `@miles 2/12/2022 6:27 AM (UTC)`
 
 2/11/2022 Miles Guo: What are the security prerequisites for me to go to Japan and the UK? After I opened fire at the UBS and the Swamp, my safety has become a matter of the righteous people around the world. The UK and Japan have also awarded me the highest medals of honor. So fellow fighters, please don't worry about my safety.<br/><br/>2/11/2022 文贵直播：文贵去日本和英国的安保前提是什么？打响沼泽地UBS这一枪后，文贵的安全事关全球正义人士，英国和日本给文贵颁发了最高荣誉勋章，战友们不用担心文贵的安全
@@ -148,13 +155,6 @@ EP9: The Villains. Let's tear down the monstrous lies of this despicable #HBO #V
 
 2/9/2022 Miles Guo: The UBS case will unearth $50 trillion that the CCP has hidden overseas, which will allow the Chinese people to receive free education, health care, and funeral services and will eliminate all mortgage and credit card debts. The CCP sent people to lure me with money to settle with UBS, but they failed.<br/><br/>2/9/2022 文贵直播：UBS案将挖出中共在海外藏的50万亿美元，这笔钱能让中国人获得免费教育、医疗和丧葬并将免除所有的房贷和信用卡欠款；中共派人以金钱诱惑文贵跟UBS和解未果<br/>
 ![img](https://media.gettr.com/group33/getter/2022/02/10/05/8344f125-1247-64b9-5f88-34fde71bfb7f/out.jpg)
-
----
-
-`@miles 2/10/2022 5:34 AM (UTC)`
-
-2/9/2022 Miles Guo: Why do I keep fighting against PAG and UBS in court? Not for money, but to expose the truths about Weijian Shan and Bo Shan as well as the collusion between UBS and the CCP. That our lawsuit against UBS was accepted in the UK means the judge has recognized that our claims have a factual basis.<br/><br/>2/9/2022 文贵直播：为何要跟PAG和UBS打官司？不是为了钱，而是揭露单伟建和单博的真面目并曝光UBS和中共的勾兑；UBS官司在英国被受理说明法官承认我们的索赔有事实依据<br/>
-![img](https://media.gettr.com/group48/getter/2022/02/10/05/edb8e156-341b-fc9d-b8cd-c9ccf2b57164/out.jpg)
 
 ---
 

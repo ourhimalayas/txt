@@ -2,24 +2,26 @@
 ---
 
 
-## 中日财经爆┃美国电费翻三倍 物价创纪录 入店行窃增加
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1994288/)
+## 美国国务院命令非紧急使馆工作人员离开乌克兰
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1994824/)
 
-撰稿：东京樱花团/向海
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-18.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimage.shutterstock.com%2Fimage-vector%2Fcpi-consumer-price-index-concept-260nw-1537289546.jpg&amp;imgrefurl=https%3A%2F%2Fwww.shutterstock.com%2Fimage-vector%2Fcpi-consumer-price-index-concept-big-1537289546&amp;tbnid=9xIbXzmUOgju0M&amp;vet=12ahUKEwjayO_OzPn1AhW0I6YKHZc7AsMQMyggegUIARCDAg..i&amp;docid=GOPuc9XySpxo_M&amp;w=473&amp;h=280&amp;q=CPI&amp;ved=2ahUKEwjayO_OzPn1AhW0I6YKHZc7AsMQMyggegUIARCDAg#imgrc=9xIbXzmUOgju0M&amp;imgdii=P6oi7QnYUvxHYM)
-在创纪录的价格继续上涨的美国，一些地区的电费几乎翻了三倍。纽约市的家庭电费，单位电价增加了大约是上个月的三倍。电力公司将其归因于天然气价格上涨。
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-此外，纽约警察局发现，由于物价上涨，入店行窃比两年前增加了 15%。某连锁超市中，肉类、冰淇淋、洗洁精等物价上涨幅度较大的物品盗窃事件屡见不鲜。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/OFBI6ZBH7RPG5F7Y26E2BDQAIA.jpg)
 
-美国 1 月份消费者价格指数增加了7.5%，为 40 年来的最高涨幅。
 
-信息来源：
+资料来源：路透社
 
-[電気代「3倍」に万引き増加…米で記録的な物価上昇](https://news.yahoo.co.jp/articles/47a5e0ca04ae5f95b1d6a19388a9b4db0403c18d)
+美国大使馆周六表示，在与俄罗斯的紧张局势升级之际，美国国务院已下令非紧急情况下的美国大使馆工作人员离开乌克兰。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+“尽管外交人员有所减少，但核心大使馆团队、我们敬业的乌克兰同事以及@StateDept 和世界各地的美国人员将继续坚持不懈的外交和援助努力，以支持乌克兰的安全、民主和繁荣，”美国大使馆在推特上这样说。
+
+简评： 乌克兰危机已经持续数月， 冬奥会开幕前已经有多方猜测， 普京会故伎重演， 在奥运期间有所动作， 先如今奥运已经进入第八天， 美国外交及其它部门预测普京会在奥运闭幕前就会有其他行动。 针对俄罗斯这次的强硬， 美国西方已经北约都在马不停蹄的进行各种外交斡旋。 但是美国外交部发出了撤离乌克兰大使馆的命令， 许多西方国家也已经陆续跟进， 战争真的一触即发吗？还是普京在不断的积累手中的谈判砝码， 争取最大利益？ 下周可能就会见分晓。 不管怎么说，美国都明确表示， 美国已经做好了外交和入侵两手准备。
+
+🔗 [美国国务院命令非紧急使馆工作人员离开乌克兰](https://www.reuters.com/world/europe/us-state-department-orders-non-emergency-embassy-staff-leave-ukraine-2022-02-12/)
+
+责任编辑/发布： Shuizhuyu
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

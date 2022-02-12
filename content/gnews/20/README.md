@@ -2,22 +2,32 @@
 ---
 
 
-## 心障
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1995043/)
+## 香港日增新冠突破1000，6个月来首次出现死亡病例
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1995136/)
 
-撰稿：东京樱花团丨Ob
-![](https://lh4.googleusercontent.com/_HIJjaXyRFEd2jjYusfvGj4hdPsuSPoroizuBmLies3zpDs6Y6VKTP1PlQ3gToQQZTr4SoJ_VyPOYt226ukInldlZR0Cyuzkh1FXkaN06ATtI68AKQgmzz7h8pcxgV6gCu5IeylC)
-语言文字具有很强的欺骗性，这是一个很现实而又很少有人能醒悟的问题。多少人在自己编织的语言文字迷局中跳不出来，在语言文字的怪圈里打转。许多高人深刻知道话不能说，一说便是错。故而谨言慎行，吾日三省吾身。而今，在一切都是快餐的时代，又有几人常思己过？
+作者：MOS 柳是多水土透
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+港共政府模仿大陆实施“清零”政策以来，香港中共病毒确诊人数不断攀升。周三单日中共病毒病毒确诊个案“破千”达1,161例，再创两年疫情以来新高，当中1,153例为本地感染；至于初步确诊亦达到约800例。
+![Residents leave Fu Yuet House at Fu Cheong Estate on Wednesday after a lockdown testing operation. Photo: Edmond So ](https://img.i-scmp.com/cdn-cgi/image/fit=contain,width=1098,format=auto/sites/default/files/styles/1200x800/public/d8/images/canvas/2022/02/09/d388429b-f31d-42db-b496-58652f7b7539_35b3d6af.jpg?itok=f4CzlUch&amp;v=1644413905)Residents leave Fu Yuet House at Fu Cheong Estate on Wednesday after a lockdown testing operation. Photo: Edmond So
+林郑月娥周二宣布防疫措施升级，包括将公众场所进行群组聚集的人数限制（限聚令）由四人收紧至二人，并首度将“限聚令”延伸至私人处所，禁止两个以上的跨家庭聚会。
 
-语言文字的力量是非常强大的，它的隐喻，暗示往往影响着一个人的选择和决策而又不自知。不恰当的语言表达有时候往往是阻止自己前行的绊脚石。物理的障碍并不可怕，心里的障碍最难逾越。时常听有人说起“老百姓哪有办法”，“不打（疫苗）不行啊”，“翻墙可不行，不让”，一些莫须有的由头这样那样的阻碍着人们做出正确的选择。古人常说“泄气的话不能说，长别人志气灭自己威风的话不能说”，而如今人们胡言乱语而不知其中利害。否定的话，负面的话是坚决不能说的，你可以说“我还没想到办法”但坚决不能说“没有办法”，“还没想到”你可以继续想，“没有办法”一切就over了；你可以说“我现在还做不到”，坚决不能说“做不到”，“现在还做不到”，将来你还有可能做到，“做不到”一切就over了。一句不恰当的表述，很可能就决定着你的命运，然而这其中的利害又有几人懂。
+同时，由于下水道样本中中共病毒检测呈阳性，Discovery Bay2万居民收到政府强制检测令。
 
-世界上本来没有路，走的人多了便有了路；世界上本来没有墙，心中有了墙便有了墙。世事如棋局局新，别人在挖空心思地出局布招馅你于不利之中，你却捆手缚脚裹足不前。“空想的善良”让你误以为“匪国”不会乱来，一次次在共匪毫无底线的收割中撞的头破血流仍然坚信匪国还不至于那么坏。寄希望于强盗发善心带你一起做“中国梦”，那是噩梦！不自强，不自立，寄希望于他人施舍的“美好愿望”只能是空想，寄希望于强者对弱者的怜悯和施舍来实现共同富裕的幻想那是不求上进的庸夫。懦弱，懒惰，遇事不争寄希望于别人的高品尚德，都是心智不成熟的表现。这个世界上没有白来的美好，更没有白送的自由。没有努力争取的意愿，那只能实现啥都没有的愿望，想啥就成啥，这个世界心想事成还是真实的。
+医院管理局总经理李立业在记者会公布，新增两例确诊者在公立医院死亡个案，二人年龄分别为73岁及76岁有长期病患的男病人，分别于昨日凌晨及今天凌晨离世。至今累计有207名确诊病人在公立医院离世。
 
-庸夫，懦夫，最大的障碍是自己，是心障。一个人若不能深刻反省自己，会深陷于自我编制的语言文字迷局中不能自拔，恐永难以突破！
+参考链接：[Coronavirus: Hong Kong confirms 1,161 cases and first Covid-19 deaths in roughly six months](https://www.scmp.com/news/hong-kong/health-environment/article/3166328/coronavirus-hong-kong-new-cases-expected-top-1100)
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+
+编辑/校正/发稿：呼吸的雾霾（文小呼吸）
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

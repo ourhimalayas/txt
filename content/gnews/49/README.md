@@ -2,13 +2,13 @@
 ---
 
 
-## 多国跟进加拿大卡车司机反强制疫苗活动
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1992576/)
+## 前任美驻以大使大卫·佛利民谈俄罗斯、中共关系发展
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1993931/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/20220212-1-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+02/07/2022 前任美驻以大使大卫·佛利民谈俄罗斯和中共发表声明：一个是即将入侵另一主权国家，另一个是百万穆斯林族裔关在集中营，然而，他们要就人权和民主教训美国。
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

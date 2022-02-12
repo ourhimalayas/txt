@@ -2,57 +2,135 @@
 ---
 
 
-## 结束&#8221;授权&#8221;并不会剥夺和阻止政府再次&#8221;授权&#8221;的能力
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1993832/)
+## 中共领导人无权享有奥运会的荣耀
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1994702/)
 
-作者：Julius
-发布日期：2022年02月12日
-新闻来源：https://www.juliusruechel.com/
-翻译：V 在途中
+[https://gtv.org/video/id=620416ea585ecc15d73f7dd0](https://gtv.org/video/id=620416ea585ecc15d73f7dd0)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2121.jpg)
+Mike Pompeo (Former U.S. Sectary of State)
+迈克·蓬佩奥（美国前国务卿）
 
-渥太华正在进行的卡车司机自由车队已经引发了波及世界各地的冲击波。即使我们的威权联邦政权继续加倍采取措施并威胁要对和平抗议者使用暴力手段，许多省份仍在紧张地开始制定结束任务的时间表。
+What Xi wants in return is really straightforward
+习想要的回报真的很简单
 
-但是围绕任务结束的对话中缺少一些重要的东西：
-如果今天简单地放弃了这些授权，而没有指出用来为其辩护的潜在法律和道德谬误，那么政府的过度扩张就会变得正常化。卡车司机回家后，我们将没有法律保护来阻止他们再次对我们这样做。
+He wants to tell the world that the West is in decline.
+他想告诉世界，西方正在衰落
 
-让我们回到笼子里所需要做的就是让政府指出当下一波病毒浪潮、下一个病毒变种或下一个非 Covid紧急情况的时候。政府会以“为了我们的安全”，再次随时地启动授权，我们正常化的权利、我们的自由、我们的身体自主权，甚至我们的生活都将再次受到侵害。
+And look how great China is
+看看中国有多伟大
 
-2020 年 3 月，世界各国政府违反宪法中的原则，篡改了公民赋予其领导人和公共机构推翻个人权利的权力地表述：只要大多数人的利益超过少数人的利益行为，侵犯人权的行为就可以被证明是正当的。通过接受这个凌驾于无条件权利的借口，政府将自己变成了一个“强权即正义”的威权警察国家。那此时就是这个政府和机构停止运作的时刻。
+Look what a free, wonderful nation this is
+看看这是一个多么自由、美好的国家
 
-如果个人权利，例如身体自主权和自由民主旨在作为对政府权力的制衡，或者旨在取代政府的权威，政府在未经我们个人同意的情况下可以对我们做什么提供硬性限制。
+And look how beautiful this
+看看如此的美丽
 
-如果政府不能展示让你服从它的意愿的权利，那么它将被迫通过与你交谈来说服你。这迫使政府保持透明，并与批评者进行有意义的辩论。你可以说“不”，让你的选择得到尊重，是一个运作良好的自由民主和一个威权政权之间的区别。
-恐惧的人的本能是控制周围的人。个人无条件权利可以迫使人们协商自愿参与集体解决方案。因此，个人无条件权利可以防止回声室效应的形成，并提供重要的平衡力量来控制不受控制的恐慌。
+that’s why he put a Uighur in the opening games of ceremonies
+这就是为什么他让一个维吾尔人参加开幕式的原因
 
-当没有人可以选择使用国家权力的蛮力强迫他人服从他们认为“正确的做法”时，唯一的出路就是继续与所有人交谈，包括与“边缘少数群体” ”带有“不可接受的观点”。当我们允许权利成为有条件的时，几乎可以肯定的是，在危机期间，惊慌失措的公民和机会主义政客将屈服于他们最糟糕的冲动并践踏那些不同意他们的人。
+why he’s holding a million of that person’s family members in the western part of their China
+那么为什么他把那人的一百万家人关在他们中国的西部
 
-无条件的个人权利阻止政府将不情愿的公民带入十字军东征。他们让科学机构将自己转变为不可挑战的“真理部”，这些机构正在努力地避免追究责任。他们想确保使科学和民主发挥作用的制衡不会在危机的混乱中崩溃。
+and sterilizing women and conducting the worst kind of human rights violations
+对妇女进行绝育并进行最恶劣的侵犯人权行为
 
-在紧急情况下，政策决定往往是在飞行中做出的，无条件的权利往往是保护少数群体免受恐慌政客和自封为王的唯一保障。
+that are about to genocide
+即将种族灭绝的
 
-如果我们允许我们的领导人在紧急情况下或当政治领导人决定“科学已成定局”时可以关闭权利的想法时，那么我们就是在赋予政府对我们实施可怕的限制权力。
-它让那些控制权力杠杆的人有权关闭你的生活。这将权力的竞争变成了一场零和游戏：赢家成为主人，输家成为奴隶。
+while the genocide games is going on
+当种族灭绝的时候，比赛正在进行中
 
-这意味着他们不能再让你选举的任何一方赢得选举，他们会不惜任何代价，同意和平移交权力。因为如果你赢了获胜的团队，你就会成为你命运的主人！
+So we know what Xi wants
+所以我们知道习近平想要什么
 
-于是，一场残酷强权政治的零和博弈开始了。无条件的个人权利是政府的解药。没有他们，自由民主就会崩溃。
-因为“ Omicron 变体是温和的”或因为“继续采取措施的成本大于收益”而撤销授权并不会破坏已经正常化和合法化的东西。
+Xi wants to whitewash his regime
+习近平想粉饰他的政权
 
-如果授权的合法性没有被推翻，你就不会回到正常的生活。它可能表面上看起来与您在 Covid 之前的生活相似，但实际上您将生活在一个美丽的新世界中，政府暂时会授予人们那些符合政府关于我们应该如何生活的愿景的特权。
+What’s in it for America safe and the reason I think
+这对美国的安全有什么好处，我认为
 
-你将不会再有你的差异和个性，或做出你自己的自由选择。只有顺从才能让你存在。只要政府和技术专家认为这些限制是“合理的”，你将生活在一个任何新的“危机”都可以作为对那些不“接受该计划”的人施加限制的理由的制度下。你将不再是自己生活的主人。如果有人控制了门上的锁，金色的笼子仍然是笼子。
-政治家和公共卫生当局必须承认“授权”是对公民自由的侵犯。公众必须面对这样一个事实：如果没有对个人权利和自由的无条件（不可剥夺）保障，自由民主将不复存在。公众必须认识到，当授权可以用来阻碍科学辩论时，科学就会停止运作。必须让我们的政府和我们的同胞明白，无条件的权利在危机期间尤为重要。
+that our athletes should not have been put in this place
+我们的运动员不应该被出现在这个地方的原因是
 
-如果用来证明授权的法律和道德谬误没有被称为对我们宪法权利的不可原谅的侵犯，我们将无意中使这种不自由的想法正常化，即只要穿着实验室外套的人说没关系，就可以做到无论是抗击下一波新冠疫情，还是抗击“气候变化”而我们被剥夺的自由，还是夺取资产以解决政府债务危机，还是仅仅根据我们的领导人定义的任何社会工程成果，都再次难以使我们致敬作为一个“更公平、更公正的世界”。
+is that when industry have talked about burner phones
+是当业界谈论一次性手机的时候
 
-我们如何努力将决定了我们是否赢得自由，或者我们是否允许我们的领导人“授权”使一个美丽新世界正常化，人们有条件的权利可能在下一次“紧急情况”时候再次关闭。
+and Speaker Pelosi said, hey, go over there
+佩洛西议长说，嘿，去那边
 
-新闻来源：[Ending Mandates Does NOT Strip Government Of The Ability To Do This Again](https://humansbefree.com/2022/02/ending-mandates-does-not-strip-government-of-the-ability-to-do-this-again.html)
+and don’t express your views of America as a great country
+不要表达你对美国作为一个伟大国家的看法
 
-审核校对：Barry Jack
-上传排版：V在途中
+Just be quiet because the Chinese will pull you from the streets
+只是保持安静，因为中国人会把你从街上拉出来
+
+We also know that they will collect information on these young people
+我们也知道他们会收集这些年轻人的信息
+
+not only the digital footprint that they have in place
+不仅是他们拥有的数字信息
+
+why they’re asking them to take burner phones like a drug dealer would
+为什么他们要求他们像毒贩一样使用一次性的电话
+
+but they’ll collect the DNA from these athletes
+但他们会收集这些运动员的DNA
+
+This will be stored in Chinese databases and the military’s databases for years to come
+这将在未来几年存储在中国数据库和军方数据库中
+
+We know athletes should be subjected to that simply for the opportunity to demonstrate
+我们知道运动员应该只是为了有机会展示
+
+that they’re a world class athlete
+他们是世界级的运动员
+
+They want to compete against the best athletes in the world
+他们想与世界上最好的运动员竞争
+
+I called for a boycott
+我呼吁抵制
+
+not because I didn’t want these athletes to have the opportunity to compete itself
+不是因为我不希望这些运动员有机会参加比赛
+
+We could have done this in a million places
+我们可以在一百万个地方可以举办盛会
+
+Instead, we chose to do it
+相反，我们选择这样做
+
+in a regime with is conducting genocide and in Beijing with leadership
+在一个正在进行种族灭绝的政权中，在北京的领导下
+
+that has no right to the glory of these games to be hidden by American money
+这些比赛的荣耀无权被美国赞助商隐藏
+
+sponsors that are doing terrible things to support what’s going on in the western part of China
+赞助商正在做可怕的事情来支持中国西部正在发生的事情
+
+And I still regret that this these games are going on today in this terrible place
+我仍然很遗憾今天在这个可怕的地方进行这些比赛
+
+* * *
+
+Date:02/07/2022
+原视频标题: Communist Chinese leadership has no right to the glory of the Olympic games
+中共领导人无权享有奥运会的荣耀
+原视频日期：2022/02/07
+原视频链接:**[https://twitter.com/mikepompeo/status/1490486370145644548?s=24](https://twitter.com/mikepompeo/status/1490486370145644548?s=24)**
+任务编号：KE389(3692)
+视频时间段 : 0:00-1:39
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-文新
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

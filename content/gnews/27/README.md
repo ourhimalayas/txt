@@ -2,71 +2,54 @@
 ---
 
 
-## 如果俄罗斯入侵乌克兰,那将是因为拜登的软弱
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1994838/)
+## 肥料价格飙升和对中共国的进口依赖威胁美国农业
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1995061/)
 
-**参议员玛莎.布莱克本**：如果俄罗斯入侵乌克兰，那将是因为拜登的软弱。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-12-1356591.jpg)图片来源：thenationalpulse.com
+自2020年9月以来，农作物种植所需的所有主要营养素肥料价格均上涨了100%以上，这可能会危及美国农业的长期生存能力，并进一步增加美国消费者的食品成本。
 
+2020年9月至2021年底，基于全国平均水平，氨的价格上涨210%，液氮上涨159%，尿素上涨155%，磷酸一铵(MAP)上涨了125%，磷酸二铵(DAP)上涨100%以上，钾肥上涨134%。
 
+“在新冠病毒已经摧毁了数以百万计的生命和生计的时候，飞涨的食品价格对穷人的打击尤为严重。这次飙升的化肥成本不仅增加了农民受到打击的风险，还会增加把更高的食品价格转嫁给消费者的风险。”汇丰银行亚洲经济研究联席主管范力民(Frederic Neumann)说。
 
-> If Russia invades Ukraine, it will be because of Biden’s weakness.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [February 11, 2022](https://twitter.com/MarshaBlackburn/status/1492239606674243592?ref_src=twsrc%5Etfw)
+据路透社报道，价格上涨被归咎于“用于生产它们的天然气价格飙升，以及美国的严重风暴气候扰乱了生产”，而专家却并不同意这个化肥短缺的假设。
 
+“美国有化肥。它之所以昂贵，主要是因为世界能源市场的波动会影响价格。”伊利诺伊州农业供应合作组织Growmark的高级市场经理KregRuhl说。
 
+Ruhl认为，成本与所有大宗商品的成本飙升有关，与全球供应链短缺无关。估计表明，自2020年以来，所有大宗商品的价格平均上涨了12%。
 
-**比尔.格茨**：本周华盛顿时报 @WashTimes 的 内幕专栏：国务院披露了有关俄罗斯计划触发入侵乌克兰的情报； 国防情报局揭穿 ABC 新闻关于大流行的报道； 普京访华期间中俄巩固关系 【转比尔.格茨发布在华盛顿时报内幕专栏报道链接】
+平均而言，美国农民的经营利润率非常低，只有11.3%。到2022年底，他们最重要的营养素，氮的成本飙升可能会使许多农民陷入亏损。
 
+中共国是最大的尿素氮肥和磷酸盐出口国，它们是美国农作物丰收取得回报的重要组成部分。2021年，在类似“供应紧张”的报道中，中共国暂停了化肥出口。农业专家估计，中共国每拒绝出口30天的氮肥，世界各国就会在2022年的生长季节损失38万吨氮肥。
 
+许多中共国化肥公司已禁止磷酸盐出口至少到2022年6月，也就是美国的生长季节，声称他们需要保证国内供应来养活快速增长的人口。
 
-> This week’s Inside the Ring column in [@WashTimes](https://twitter.com/WashTimes?ref_src=twsrc%5Etfw): State Department discloses intel on Russian plan to trigger Ukraine invasion; DIA debunks ABC News report on pandemic; China, Russia cement ties during Putin visit to Beijing [https://t.co/zL24NVKKWd](https://t.co/zL24NVKKWd)
-> — Bill Gertz (@BillGertz) [February 12, 2022](https://twitter.com/BillGertz/status/1492302303872708613?ref_src=twsrc%5Etfw)
+密歇根农业商品部的农业副总裁将该禁令描述为“贸易战”，今天我们处在一个被限制供应的市场。而十到十二年前，这是一个需求主导的市场，只有不多的供应限制。尽管物流是一团糟，但我对我们今后可以在美国得到供应感到很欣慰，唯一要考虑的只是价格问题？”根据一份来自挪威矿业的报告。
 
+中共国上一次提高对美化肥供应价格是在2008年，巧合的是上一次他们也在举行一场奥运会。那一次农业必需营养素的价格上涨了32%到100%，给2008年全球金融危机施加了进一步的助燃剂。
 
+尽管存在供应短缺的呼声，但中共国在控释肥料(controlled-release fertilizers)市场上仍处于领先地位，预计到2026年工业产值将达到33亿美元。美国农民由于自20世纪50年代以来，一直依赖氮肥和磷肥，目前转向控释肥料还是会造成储存限制，并缺乏与天气和降水波动相关的灵活性。
 
-**众议员李·泽尔丁**：NBA本周取消了坎特@EnesFreedom 在联盟的比赛，但它们没有也无法让他的声音沉默。NBA保护它的运动员，教练和所有者的言论自由，但很显然为是否冒犯到 #中国共产党 和勒布朗@KingJames 划下了一条线。#LetEnesPlay
+**简评：**本篇文章使我想起了2020年初中共病毒刚刚爆发，当全世界都紧迫地需要医用口罩的时候，中共却事先在全球有计划的收购口罩，并强行禁止口罩出口，来阻止其他国家对抗中共病毒。为中共病毒肆虐全球起到了推波助澜的作用。
 
+农业是每一个国家社会稳定的基本因素，郭先生在去年年底的一次大直播中介绍，如果美国的面包价格超过1.2美元，老百姓就反了。而这次中共刻意限制化肥出口，无疑就是希望利用化肥来打击美国的农业种植、降低产量、提高面包等粮食产品的价格，从而在美国造成社会动乱。
 
+口罩和化肥是中共压榨中国人的血汗，以破坏中华大地的自然环境为代价，绑架全球供应链，要挟其它国家的两个鲜明案例。全球精英主义的自私和贪婪被中共所利用，打着降低成本、环保和全球化的幌子，里应外合地把许多重要的制造产业迁移到中共国，从高科技的芯片，到必须的医疗产品，再到农业必须的化肥等等。当美国和其它民主国家在被中共的病毒生化战争打得遍体鳞伤、被中共的流氓黑社会行径逼得忍无可忍的时候，发现自己被中共渗透绑架的如此之深，竟然不能对中共进行即刻的回击。
 
-> The NBA this week canceled [@EnesFreedom](https://twitter.com/EnesFreedom?ref_src=twsrc%5Etfw) from playing in the league, but they didn’t & can’t silence his voice. The NBA protects freedom of speech of its players, coaches & owners, but apparently draws the line on offending the Chinese Communist Party & [@KingJames](https://twitter.com/KingJames?ref_src=twsrc%5Etfw). [#LetEnesPlay](https://twitter.com/hashtag/LetEnesPlay?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Lee Zeldin (@RepLeeZeldin) [February 12, 2022](https://twitter.com/RepLeeZeldin/status/1492352367416778755?ref_src=twsrc%5Etfw)
+好在郭先生在5年以前就开启了伟大的爆料革命运动，对中共的假、恶、丑、流氓黑社会的本质和对西方的渗透进行了全面的揭发。所以美国和其他民主国家提前有了一些准备，从而在这次中共的生化战争中得以生存，并且已经开始蓄势全面反击。
 
+新闻链接：[Fertilizer Price Spikes and Chinese Import Reliance Threatens US Agriculture Security](https://thenationalpulse.com/2022/02/09/fertilizer-price-spikes-and-chinese-import-reliance-threatens-us-agriculture-security/#google_vignette)
 
+* * *
 
-**众议员肯·巴克**：不要忘记，那些谴责卡车司机抗议的人，与那些在黑明贵抗议者烧毁和抢劫全美城市时欢呼的人是一样的。
-
-
-
-> Don’t forget those who are condemning the trucker protests are the same ones who cheered as BLM protesters burned and looted cities across America. [pic.twitter.com/zNaFBKeM2m](https://t.co/zNaFBKeM2m)
-> — Rep. Ken Buck (@RepKenBuck) [February 11, 2022](https://twitter.com/RepKenBuck/status/1492241510133379077?ref_src=twsrc%5Etfw)
-
-
-
-**参议员罗恩·约翰逊**：新冠COVID 对我们的心理产生了影响，因为你(拜登)和新冠 COVID 大神们制造了一种恐惧状态并阻止了早期治疗。
-
-超过90万人死亡。 他们本不必这样(死去)，这取决于你们，新冠 COVID 大神们。
-
-【附视频，拜登说新冠病毒对人们的心理造成了影响】
-
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-> COVID had an impact on our psyche because you and the COVID gods created a state of fear and blocked early treatment. 
-> 
-> Over 900,000 people have died.
->  
-> They didn't all have to, that's on you, COVID gods. [pic.twitter.com/gEs1Rv6J1v](https://t.co/gEs1Rv6J1v)
-> — Senator Ron Johnson (@SenRonJohnson) [February 11, 2022](https://twitter.com/SenRonJohnson/status/1492202733457350663?ref_src=twsrc%5Etfw)
+编辑：【英国伦敦喜庄园编辑部】
 
-
-
-**众议员外交委员会共和党**：商务部长雷蒙多 @SecRaimondo 必须立即改变拜登政府软弱的许可政策，不然我们就会继续看到美国的科技转移到 #中共 #CCP 的军事公司手中。
-【转日经，中芯国际称国内芯片需求可抵消供过于求的风险，公布了创纪录的 2021 年收益，2022 年将强劲增长】
-
-
-
-> "[@SecRaimondo](https://twitter.com/SecRaimondo?ref_src=twsrc%5Etfw) must change the Biden administration's weak licensing policy immediately or we will continue to see U.S. technology transferred to a [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) military company.”[https://t.co/aIwfBk52kJ](https://t.co/aIwfBk52kJ)
-> — House Foreign Affairs GOP (@HouseForeignGOP) [February 11, 2022](https://twitter.com/HouseForeignGOP/status/1492149630062284802?ref_src=twsrc%5Etfw)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

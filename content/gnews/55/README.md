@@ -2,38 +2,34 @@
 ---
 
 
-## 郭先生将移驻英日开启灭共新战斗
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1990273/)
+## 美国商会：拜登政府正考虑对中国重启贸易调查
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1992371/)
 
-作者：纽约香草山医疗部 – 云豹 / 银河系农场 – 骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在2月9日的大直播中，郭文贵先生透露了一则重大喜讯：瑞银集团UBS诉请伦敦法院拒绝受理郭先生对其提诉的要求，但该诉求已经被法院驳回。目前，郭先生对瑞银集团的起诉正式成案。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-45.jpg)
-郭先生表示，爆料革命未来将在伦敦法庭上，通过法律程序，逐步揭露中共所有隐藏在瑞士银行的秘密帐户，也必将取回被中共盗取的全中国民众的财富。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-郭先生提到，为了专心迎战，他将移驻伦敦，正面与中共开启法律攻防战。此外，爆料革命还在日本设立了三处基地。今后，郭先生预计每年将有三个月停留日本，在距离中共最近的地理位置上就近指挥对中共的作战。
+整理：Eileen（围剿维尼熊）
+编辑：文泓
 
-郭先生补充道，英日两地的安保措施将一如既往的专业且严谨。此外，中共虽然刺杀一个人很容易，但其所付出的代价并非用金钱可以衡量。郭先生也提及，通过与英日政府的协商，当地的力量可以尽量杜绝恶意骚扰行径的发生。同时，日本政府还将从法律和媒体方面提供保护。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/2-48.png)图片来源：BBC
 
-郭先生强调，爆料革命对中共的战斗已经进入到短兵相接的阶段。为了自身的钱与权，中共此时一定会更加疯狂的作乱。为此，郭先生勉励战友们，这将是黎明前最后的黑暗，大家一定要继续坚持战斗，直到胜利的曙光照亮黑夜。
 
-参考链接：
-1) . [2022年2月9日 文贵大直播：UBS正式立案 打响沼泽地的第一仗；习普政治困局；中美俄三角斗；药厂政策调整；药厂政府互掐；何为全球货币；七哥个人生活](https://gtv.org/video/id=6203b7b13621aa7415d80e9e)
-2) . [UBS loses bid to stop Guo’s London lawsuit](https://www.reuters.com/article/ubs-guo-idUSL8N2UK4JN)
+当地时间2月10日，根据德国之声报道，由于中国远未兑现“第一阶段”贸易协议中所作出的两年采购承诺，**2月9日美国商会官员表示，若对于中国未履行的“第一阶段”采购承诺的谈判失败，拜登政府正在考虑接下来的一系列惩罚，其中包括重启对中国的贸易调查，结果可能会导致对中国货物加征关税。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+美国商会副会长布列恩向记者表示，美国与其盟国可能联手，迫使中国为国际企业提供更公平的竞争环境和发展机会。
 
-总编: Ivy001 / 文特
-编辑： 静言
-校正/发稿：Fei797
+据美国普查局2月8日公布的数据显示，2021年美国与中国的货物贸易逆差扩大了450亿美元或14.5%，达到3,553亿美元，是2018年创下4,182亿美元记录以来的最大逆差。而2020年对华贸易逆差则达到3,103亿美元，创下了10年来最低。换言之，中国对所承诺的采购量还存在巨大缺口。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+参考链接：[美国商会称拜登考虑对中国另启贸易调查](https://www.dw.com/zh/%E7%BE%8E%E5%9B%BD%E5%95%86%E4%BC%9A%E7%A7%B0%E6%8B%9C%E7%99%BB%E8%80%83%E8%99%91%E5%AF%B9%E4%B8%AD%E5%9B%BD%E5%8F%A6%E5%90%AF%E8%B4%B8%E6%98%93%E8%B0%83%E6%9F%A5/a-60720500)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

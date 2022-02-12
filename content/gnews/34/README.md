@@ -2,135 +2,71 @@
 ---
 
 
-## 中共领导人无权享有奥运会的荣耀
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1994702/)
+## 如果俄罗斯入侵乌克兰,那将是因为拜登的软弱
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1994838/)
 
-[https://gtv.org/video/id=620416ea585ecc15d73f7dd0](https://gtv.org/video/id=620416ea585ecc15d73f7dd0)
+**参议员玛莎.布莱克本**：如果俄罗斯入侵乌克兰，那将是因为拜登的软弱。
 
-Mike Pompeo (Former U.S. Sectary of State)
-迈克·蓬佩奥（美国前国务卿）
 
-What Xi wants in return is really straightforward
-习想要的回报真的很简单
 
-He wants to tell the world that the West is in decline.
-他想告诉世界，西方正在衰落
+> If Russia invades Ukraine, it will be because of Biden’s weakness.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [February 11, 2022](https://twitter.com/MarshaBlackburn/status/1492239606674243592?ref_src=twsrc%5Etfw)
 
-And look how great China is
-看看中国有多伟大
 
-Look what a free, wonderful nation this is
-看看这是一个多么自由、美好的国家
 
-And look how beautiful this
-看看如此的美丽
+**比尔.格茨**：本周华盛顿时报 @WashTimes 的 内幕专栏：国务院披露了有关俄罗斯计划触发入侵乌克兰的情报； 国防情报局揭穿 ABC 新闻关于大流行的报道； 普京访华期间中俄巩固关系 【转比尔.格茨发布在华盛顿时报内幕专栏报道链接】
 
-that’s why he put a Uighur in the opening games of ceremonies
-这就是为什么他让一个维吾尔人参加开幕式的原因
 
-why he’s holding a million of that person’s family members in the western part of their China
-那么为什么他把那人的一百万家人关在他们中国的西部
 
-and sterilizing women and conducting the worst kind of human rights violations
-对妇女进行绝育并进行最恶劣的侵犯人权行为
+> This week’s Inside the Ring column in [@WashTimes](https://twitter.com/WashTimes?ref_src=twsrc%5Etfw): State Department discloses intel on Russian plan to trigger Ukraine invasion; DIA debunks ABC News report on pandemic; China, Russia cement ties during Putin visit to Beijing [https://t.co/zL24NVKKWd](https://t.co/zL24NVKKWd)
+> — Bill Gertz (@BillGertz) [February 12, 2022](https://twitter.com/BillGertz/status/1492302303872708613?ref_src=twsrc%5Etfw)
 
-that are about to genocide
-即将种族灭绝的
 
-while the genocide games is going on
-当种族灭绝的时候，比赛正在进行中
 
-So we know what Xi wants
-所以我们知道习近平想要什么
+**众议员李·泽尔丁**：NBA本周取消了坎特@EnesFreedom 在联盟的比赛，但它们没有也无法让他的声音沉默。NBA保护它的运动员，教练和所有者的言论自由，但很显然为是否冒犯到 #中国共产党 和勒布朗@KingJames 划下了一条线。#LetEnesPlay
 
-Xi wants to whitewash his regime
-习近平想粉饰他的政权
 
-What’s in it for America safe and the reason I think
-这对美国的安全有什么好处，我认为
 
-that our athletes should not have been put in this place
-我们的运动员不应该被出现在这个地方的原因是
+> The NBA this week canceled [@EnesFreedom](https://twitter.com/EnesFreedom?ref_src=twsrc%5Etfw) from playing in the league, but they didn’t & can’t silence his voice. The NBA protects freedom of speech of its players, coaches & owners, but apparently draws the line on offending the Chinese Communist Party & [@KingJames](https://twitter.com/KingJames?ref_src=twsrc%5Etfw). [#LetEnesPlay](https://twitter.com/hashtag/LetEnesPlay?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Lee Zeldin (@RepLeeZeldin) [February 12, 2022](https://twitter.com/RepLeeZeldin/status/1492352367416778755?ref_src=twsrc%5Etfw)
 
-is that when industry have talked about burner phones
-是当业界谈论一次性手机的时候
 
-and Speaker Pelosi said, hey, go over there
-佩洛西议长说，嘿，去那边
 
-and don’t express your views of America as a great country
-不要表达你对美国作为一个伟大国家的看法
+**众议员肯·巴克**：不要忘记，那些谴责卡车司机抗议的人，与那些在黑明贵抗议者烧毁和抢劫全美城市时欢呼的人是一样的。
 
-Just be quiet because the Chinese will pull you from the streets
-只是保持安静，因为中国人会把你从街上拉出来
 
-We also know that they will collect information on these young people
-我们也知道他们会收集这些年轻人的信息
 
-not only the digital footprint that they have in place
-不仅是他们拥有的数字信息
+> Don’t forget those who are condemning the trucker protests are the same ones who cheered as BLM protesters burned and looted cities across America. [pic.twitter.com/zNaFBKeM2m](https://t.co/zNaFBKeM2m)
+> — Rep. Ken Buck (@RepKenBuck) [February 11, 2022](https://twitter.com/RepKenBuck/status/1492241510133379077?ref_src=twsrc%5Etfw)
 
-why they’re asking them to take burner phones like a drug dealer would
-为什么他们要求他们像毒贩一样使用一次性的电话
 
-but they’ll collect the DNA from these athletes
-但他们会收集这些运动员的DNA
 
-This will be stored in Chinese databases and the military’s databases for years to come
-这将在未来几年存储在中国数据库和军方数据库中
+**参议员罗恩·约翰逊**：新冠COVID 对我们的心理产生了影响，因为你(拜登)和新冠 COVID 大神们制造了一种恐惧状态并阻止了早期治疗。
 
-We know athletes should be subjected to that simply for the opportunity to demonstrate
-我们知道运动员应该只是为了有机会展示
+超过90万人死亡。 他们本不必这样(死去)，这取决于你们，新冠 COVID 大神们。
 
-that they’re a world class athlete
-他们是世界级的运动员
+【附视频，拜登说新冠病毒对人们的心理造成了影响】
 
-They want to compete against the best athletes in the world
-他们想与世界上最好的运动员竞争
 
-I called for a boycott
-我呼吁抵制
 
-not because I didn’t want these athletes to have the opportunity to compete itself
-不是因为我不希望这些运动员有机会参加比赛
+> COVID had an impact on our psyche because you and the COVID gods created a state of fear and blocked early treatment. 
+> 
+> Over 900,000 people have died.
+>  
+> They didn't all have to, that's on you, COVID gods. [pic.twitter.com/gEs1Rv6J1v](https://t.co/gEs1Rv6J1v)
+> — Senator Ron Johnson (@SenRonJohnson) [February 11, 2022](https://twitter.com/SenRonJohnson/status/1492202733457350663?ref_src=twsrc%5Etfw)
 
-We could have done this in a million places
-我们可以在一百万个地方可以举办盛会
 
-Instead, we chose to do it
-相反，我们选择这样做
 
-in a regime with is conducting genocide and in Beijing with leadership
-在一个正在进行种族灭绝的政权中，在北京的领导下
+**众议员外交委员会共和党**：商务部长雷蒙多 @SecRaimondo 必须立即改变拜登政府软弱的许可政策，不然我们就会继续看到美国的科技转移到 #中共 #CCP 的军事公司手中。
+【转日经，中芯国际称国内芯片需求可抵消供过于求的风险，公布了创纪录的 2021 年收益，2022 年将强劲增长】
 
-that has no right to the glory of these games to be hidden by American money
-这些比赛的荣耀无权被美国赞助商隐藏
 
-sponsors that are doing terrible things to support what’s going on in the western part of China
-赞助商正在做可怕的事情来支持中国西部正在发生的事情
 
-And I still regret that this these games are going on today in this terrible place
-我仍然很遗憾今天在这个可怕的地方进行这些比赛
+> "[@SecRaimondo](https://twitter.com/SecRaimondo?ref_src=twsrc%5Etfw) must change the Biden administration's weak licensing policy immediately or we will continue to see U.S. technology transferred to a [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) military company.”[https://t.co/aIwfBk52kJ](https://t.co/aIwfBk52kJ)
+> — House Foreign Affairs GOP (@HouseForeignGOP) [February 11, 2022](https://twitter.com/HouseForeignGOP/status/1492149630062284802?ref_src=twsrc%5Etfw)
 
-* * *
 
-Date:02/07/2022
-原视频标题: Communist Chinese leadership has no right to the glory of the Olympic games
-中共领导人无权享有奥运会的荣耀
-原视频日期：2022/02/07
-原视频链接:**[https://twitter.com/mikepompeo/status/1490486370145644548?s=24](https://twitter.com/mikepompeo/status/1490486370145644548?s=24)**
-任务编号：KE389(3692)
-视频时间段 : 0:00-1:39
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-文新
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

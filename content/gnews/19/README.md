@@ -2,29 +2,34 @@
 ---
 
 
-## 今日说币
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1995060/)
+## 俄可能使用受美制裁的油气田供应中国
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1995137/)
 
-**整理：小亮**
+作者：MOS 柳是多水土透
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+作为普京出席冬奥会的条件之一，俄罗斯天然气工业股份公司（Gazprom）最近与中石油（CNPC）签订了10年100万吨的能源合同。据消息人士透露，俄联邦可能会利用太平洋库页岛附近的一个被美国制裁的气田，向中国供应天然气。
+![Gas pipelines are pictured at the Atamanskaya compressor station, part of Gazprom's Power Of Siberia project outside the far eastern town of Svobodny, in Amur region, Russia November 29, 2019. REUTERS/Maxim Shemetov.//File Photo](https://cloudfront-us-east-2.images.arcpublishing.com/reuters/2Y7HRUPKRVI5FB6RRGK2D7Z3DA.jpg)
+俄罗斯总统普京上周五宣布与中国达成新的天然气供应协议，Gazprom表示，将通过远东线路供应天然气。
 
-- 在美国 40 年新高的 CPI 数据披露后，比特币一度下跌最多接近 2000 美金，目前已大幅回调又回到45000美金。古根海姆（Guggenheim）首席投资官斯科特·米纳德（Scott Minerd） 表示，市场应该为3月份美联储加息50个基点做好准备。
+俄罗斯计划向中国增加100亿立方米的天然气供应，这些管道天然气将由中俄远东线输送至中国。中俄远东线达产后，俄罗斯向中国每年供应的管道天然气总量将达480亿立方米，较现有供应量规划提高约26%。
 
+两位消息人士称，天然气可能来自库页岛附近的气田，包括Yuzhno-Kirinskoye气田，美国于2015年因莫斯科在乌克兰危机中扮演的角色对这些气田实施制裁。
 
-- 匈牙利中央银行行长 György Matolcsy 希望在欧盟禁止比特币等加密货币。评：针对有洗钱原罪的比特币、以太坊等数字货币的围剿有开始的迹象。
+参考链接：
+1）[Russia’s Rosneft agrees 100 mln T oil supply deal with CNPC](https://www.reuters.com/business/energy/russias-rosneft-agrees-100-mln-t-oil-supply-deal-with-cnpc-2022-02-04/)
+2）[Russia may use field hit by U.S. sanctions for gas exports to China](https://www.reuters.com/business/energy/russia-may-use-field-hit-by-us-sanctions-gas-exports-china-2022-02-08/)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-- 据 CNBC 报道，全球最大的加密货币交易所币安（ Binance） 正在对拥有104 年历史的杂志和数字出版商福布斯进行 2 亿美元的战略投资。这将使 Binance 成为福布斯的两大股东之一。此前 Binance 因为福布斯对“太极文件”的报告，表示针对福布斯及其两名记者迈克尔·德尔·卡斯蒂略 （Michael del Castillo）和杰森·布雷特（Jason Brett）提起诉讼。
+编辑/校正/发稿：呼吸的雾霾（文小呼吸）
 
-
-- 当地时间周二（2 月 8 日）美国司法部（DOJ）发布公告称，它已经查获了价值 36 亿美元的比特币，这些比特币与 2016 年加密货币交易所 Bitfinex 的黑客事件有关。34 岁的伊利亚·利希滕斯坦 （Ilya Lichtenstein） 和其 31 岁的妻子 海瑟·““`摩根(Heather Morgan\_ 在纽约被捕，两人被指控共谋洗钱和诈骗罪。美国司法部公告称，这是司法部有史以来最大规模的金融扣押，此次调查由 IRS-CI 华盛顿特区办事处的网络犯罪部门、联邦调查局（FBI）的芝加哥办事处和国土安全调查局（HSI）纽约办事处领导，德国安斯巴赫警察局在此次调查期间提供了协助。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/111-6.jpg)
-喜联储是超越国家主权、超越物理世界的人类最新文明；解放生产力、开发人类智慧，缩短人与人之间的距离，超出人类信仰的互信关系；是生产力和人际关系的解放、物质流通解放、精神解放——使用即金钱。
-
-喜币让中共吓破了胆，它打破了中共对老百姓自由和财富的桎梏 – 喜币能让中国人有了另一个渠道得以在全世界自由地花钱，并实现财富的独立。
-
-“如果你知道比特币幕后的操纵人，你会尽快抛掉比特币；如果你了解谁创办了比特币并且你还拥有比特币，你会彻夜不眠；当比特币的真正创始人浮出水面的时候，比特币会变得一文不值”！振聋发聩的警告！抛弃比特币，转向HCN才是正道！
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
