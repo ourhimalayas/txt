@@ -2,12 +2,20 @@
 ---
 
 
-## 加拿大总理贾斯汀·特鲁多对抗议卡车司机加倍施压
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1993727/)
+## 知美知世界，知共灭共
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1993833/)
 
-02/09/2022 加拿大总理贾斯汀·特鲁多对抗议的卡车司机加倍施压。加拿大卡车司机认为特鲁多使得情况变得更糟。
+#### 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王
+视频定位：BENJ1，WEI
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+*发布：玉米地守望者*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

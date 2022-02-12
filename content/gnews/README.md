@@ -15,83 +15,83 @@
 
 ---
 
-### [秘密计划](/content/gnews/1/README.md)
+### [美国市长朱利安尼：美国精英已经完全把灵魂出卖给了中共](/content/gnews/1/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [大直播后记：中共的假无神论](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [亲爱的祖国我很想相信您的管家，但实在找不出可信的理由！](/content/gnews/2/README.md)
+### [Omicron亚变种BA.2 对接种过疫苗者，反而具有更高传染力](/content/gnews/3/README.md)
+ ` GTV新聞訪談`
+
+### [前任美驻以大使大卫·佛利民谈俄罗斯、中共关系发展](/content/gnews/4/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [文雍漫谈：每个人的心里都有一道防火墙](/content/gnews/5/README.md)
+ ` 文雍`
+
+### [加拉格尔议员谈中共侵台计划、人权问题和中共病毒掩盖](/content/gnews/6/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中共社会上流精英的“下流教育”引争议](/content/gnews/7/README.md)
+ ` 首尔天池农场`
+
+### [大卡车反强制令运动在加拿大议会引起激烈辩论](/content/gnews/8/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [美国企业对中共国的反应既虚伪又非常可悲](/content/gnews/9/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [归化中国籍花样滑冰运动员朱易因冬奥失利遭到猛烈攻击](/content/gnews/10/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [孩子！特别关照的代价你很快就会懂](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [爆炸新闻：疾控中心和辉瑞悄悄承认疫苗严重伤害了人们](/content/gnews/3/README.md)
+### [秘密计划](/content/gnews/12/README.md)
+ ` 雅典娜GNotes`
+
+### [亲爱的祖国我很想相信您的管家，但实在找不出可信的理由！](/content/gnews/13/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [爆炸新闻：疾控中心和辉瑞悄悄承认疫苗严重伤害了人们](/content/gnews/14/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [拜登法案](/content/gnews/4/README.md)
+### [约翰逊宣布结束英国的强制疫苗护照和口罩制度](/content/gnews/15/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [拜登法案](/content/gnews/16/README.md)
  ` 雅典娜GNotes`
 
-### [杰森·米勒：“自由车队”行动正在对政府产生影响](/content/gnews/5/README.md)
+### [杰森·米勒：“自由车队”行动正在对政府产生影响](/content/gnews/17/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美国如何对待苏联](/content/gnews/6/README.md)
+### [美国如何对待苏联](/content/gnews/18/README.md)
  ` 雅典娜GNotes`
 
-### [知美知世界，知共灭共](/content/gnews/7/README.md)
+### [知美知世界，知共灭共](/content/gnews/19/README.md)
  ` 雅典娜GNotes`
 
-### [赵启柱先生是好人](/content/gnews/8/README.md)
+### [结束&#8221;授权&#8221;并不会剥夺和阻止政府再次&#8221;授权&#8221;的能力](/content/gnews/20/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [赵启柱先生是好人](/content/gnews/21/README.md)
  ` 雅典娜GNotes`
 
-### [经济雪崩时刻即将到来](/content/gnews/9/README.md)
+### [经济雪崩时刻即将到来](/content/gnews/22/README.md)
  ` 雅典娜GNotes`
 
-### [中国经济恒大地产庞氏骗局继续造假](/content/gnews/10/README.md)
+### [中国经济恒大地产庞氏骗局继续造假](/content/gnews/23/README.md)
  ` 雅典娜GNotes`
 
-### [拜拉姆·布里德尔医生：在接种疫苗后癌症会完全失控](/content/gnews/11/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [由于确诊病例激增，香港实施了最严厉的中共病毒遏制措施](/content/gnews/12/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [每个人都要遵守的原则](/content/gnews/13/README.md)
- ` 雅典娜GNotes`
-
-### [中共国速度滑冰运动员在决赛中推倒对手](/content/gnews/14/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [加拿大法院冻结了为“自由车队”筹集的800万美元捐款](/content/gnews/15/README.md)
+### [加拿大法院冻结了为“自由车队”筹集的800万美元捐款](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [拜登政府斥资13亿美元从中共公司购买家用病毒测试盒](/content/gnews/16/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [同一个美国新闻网将北京冬奥会称为种族灭绝运动会](/content/gnews/17/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [瑞典宣布取消新冠限制措施](/content/gnews/18/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [加拿大总理贾斯汀·特鲁多对抗议卡车司机加倍施压](/content/gnews/19/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中共监控支付宝微信，业主避税更加艰难](/content/gnews/20/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [20220211文贵大直播：谷爱凌事件让七哥想起当众为谷俊山跪舔生殖器的某歌星](/content/gnews/21/README.md)
+### [20220211文贵大直播：谷爱凌事件让七哥想起当众为谷俊山跪舔生殖器的某歌星](/content/gnews/25/README.md)
  ` 秘密翻译组-原创组`
 
-### [疫苗经济诞生数字金融，喜币应时应势而生并一飞冲天](/content/gnews/22/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [美国决心和平解决分歧，但同样为俄罗斯侵略做好了准备](/content/gnews/23/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [安东尼·福奇称可能需要第四剂中共病毒疫苗加强针](/content/gnews/24/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [疑遭中共报复？坎特在被交易到休斯顿火箭队后被立即裁掉](/content/gnews/25/README.md)
+### [疑遭中共报复？坎特在被交易到休斯顿火箭队后被立即裁掉](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [七哥说不是中国来的](/content/gnews/26/README.md)
- ` 雅典娜GNotes`
 
 ### [班农先生谈奥运选手梅尔曼斯被隔离向世界哭诉](/content/gnews/27/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`

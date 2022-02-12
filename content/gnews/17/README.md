@@ -2,10 +2,10 @@
 ---
 
 
-## 同一个美国新闻网将北京冬奥会称为种族灭绝运动会
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1993749/)
+## 杰森·米勒：“自由车队”行动正在对政府产生影响
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1993841/)
 
-02/09/2022 同一个美国新闻网将北京冬奥会称为种族灭绝运动会
+02/09/2022 杰森·米勒：“自由车队”行动正在对政府产生影响
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

@@ -2,10 +2,10 @@
 ---
 
 
-## 中共国速度滑冰运动员在决赛中推倒对手
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1993773/)
+## 爆炸新闻：疾控中心和辉瑞悄悄承认疫苗严重伤害了人们
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1993860/)
 
-02/09/2022 中共国速度滑冰运动员在决赛中推倒对手
+02/09/2022 爆炸新闻：疾控中心考虑增加疫苗之间的时间间隔以降低心脏炎症的风险；辉瑞悄悄地给股东添加了警告语言：“不利的临床前或安全数据可能会影响业务”。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

@@ -2,12 +2,20 @@
 ---
 
 
-## 由于确诊病例激增，香港实施了最严厉的中共病毒遏制措施
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1993788/)
+## 秘密计划
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1993864/)
 
-02/09/2022 印度媒体Wion: 中共病毒现已侵入香港的供应链，影响基本产品和食物的供应。 随着越来越多的卡车司机检测呈阳性, 运输和快递服务被叫停。
+#### 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王
+视频定位：BENJ1，WEI
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+*发布：玉米地守望者*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
