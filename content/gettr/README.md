@@ -17,6 +17,23 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@jsdfposjpqyuee1 2/12/2022 3:44 AM (UTC)`
+
+What the FUCK!<br/>🤬🤬🤬
+> `@wensu 2/12/2022 2:11 AM (UTC)`<br/>是刚被拐到穷地方的，<br/>想逃，被全村之力围捕，<br/>这种绑人手法好专业，<br/>这是非法拘禁，就是是犯罪！😠😈👹🤧
+![img](https://media.gettr.com/group24/getter/2022/02/12/02/aec60afe-2745-a078-ccbc-e14b204a2114/out.jpg)
+
+---
+
+`@miles 2/12/2022 2:33 PM (UTC)`
+
+2月12号：尊敬的战友们好，你们健身了吗？传播CCP病毒，疫苗解药真相了吗？七哥继续和大家分享，昨天大直播中，我没回答完的问题……<br/>一切都已经开始！
+![img](https://media.gettr.com/group5/getter/2022/02/12/14/d38caa60-69e5-628e-7121-f65d86c42ee8/out.jpg)
+
+---
+
 `@miles 2/12/2022 2:21 PM (UTC)`
 
 ⚠️⚠️Chronologie du nouvel État fédéral de Chine à propos du virus du PCC et du vaccin covid (Française)<br/><br/>Le NFSC a toujours été attaché à la vérité et à sauver des vies en exposant la nature perverse du PCC et le fait qu'ils ont créé le virus du PCC qui a tué des millions de personnes dans le monde. En outre, le NFSC a diffusé dans le monde les thérapies COVID et les médicaments associés, ainsi que les informations et données réelles sur le vaccin COVID. Tous les faits prouvent que ce que le PCC a fait n'a rien à voir avec le peuple chinois, le PCC ne peut pas représenter le peuple chinois, qui en est aussi la victime.<br/><br/>⚠️⚠️关于 #新中国联邦 爆料 #中共病毒 和 #中共病毒疫苗 灾难预警时间线（法语版）<br/><br/>新中国联邦致力于揭露中共邪恶本质，揭露他们制造中共病毒在全世界造成数百万人死亡的事实以及COVID疫苗的真实目的，揭示真相，拯救生命。中共的所作所为与中国人民无关，中共不代表中国人民，中国人民也是受害者。
@@ -141,20 +158,6 @@ EP9: The Villains. Let's tear down the monstrous lies of this despicable #HBO #V
 
 2月10号：尊敬的战友们好，你们健身了吗？传播C C P病毒！疫苗解药真相了吗？共产党正在北京进行的绑架冬奥会的一系列的无法律．无规则的无底线的行为．都将给中国人在世界上带来无法挽回的负面影响，可能导致中国人在世界上几代人都无法改变的排华危机……
 ![img](https://media.gettr.com/group50/getter/2022/02/10/13/185297bf-d548-0191-11f9-3d18117f8cc5/out.jpg)
-
----
-
-`@miles 2/10/2022 5:42 AM (UTC)`
-
-2/9/2022 Miles Guo: Himalaya Coin has frightened the CCP, breaking its shackles on the freedom and wealth of the Lao Baixing - Himalaya Coin gives the Chinese an alternative channel to spend their money freely across the globe so that they can achieve independence of wealth.<br/><br/>2/9/2022 文贵直播：喜币让中共吓破了胆，它打破了中共对老百姓自由和财富的桎梏 - 喜币能让中国人有了另一个渠道得以在全世界自由地花钱，并实现财富的独立<br/>
-![img](https://media.gettr.com/group28/getter/2022/02/10/05/27999f85-a7f2-28ec-8365-7974734bf1db/out.jpg)
-
----
-
-`@miles 2/10/2022 5:39 AM (UTC)`
-
-2/9/2022 Miles Guo: The UBS case will unearth $50 trillion that the CCP has hidden overseas, which will allow the Chinese people to receive free education, health care, and funeral services and will eliminate all mortgage and credit card debts. The CCP sent people to lure me with money to settle with UBS, but they failed.<br/><br/>2/9/2022 文贵直播：UBS案将挖出中共在海外藏的50万亿美元，这笔钱能让中国人获得免费教育、医疗和丧葬并将免除所有的房贷和信用卡欠款；中共派人以金钱诱惑文贵跟UBS和解未果<br/>
-![img](https://media.gettr.com/group33/getter/2022/02/10/05/8344f125-1247-64b9-5f88-34fde71bfb7f/out.jpg)
 
 ---
 

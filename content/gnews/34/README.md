@@ -2,71 +2,38 @@
 ---
 
 
-## 如果俄罗斯入侵乌克兰,那将是因为拜登的软弱
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1994838/)
+## 美国务卿在澳大利亚发出警告称中共政权意图主宰世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1995086/)
 
-**参议员玛莎.布莱克本**：如果俄罗斯入侵乌克兰，那将是因为拜登的软弱。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-12-1356592.jpg)图片来源: 澳大利亚《每日邮报》
+澳大利亚《每日邮报》2022年2月10日报道，在墨尔本之行中，安东尼·布林肯赞扬了澳大利亚全力以赴抵御中共经济霸凌的方式。“在我看来，毫无疑问，随着时间的推移，中国的雄心是要成为不仅是该地区，而且是世界上领先的军事、经济、外交和政治强国。”布林肯先生告诉《澳洲人报》。
 
+“从美国的角度来看，我想对澳大利亚来说也是如此，我们要做的不是反对中国本身，也不是试图压制或遏制它，而是站起来维护正在受到挑战的基于规则的国际秩序。中国也想要一个国际秩序，但不同的是，它的世界秩序将是极度不自由的。我们的是自由的。”布林肯先生警告说，澳大利亚和美国必须捍卫这些价值观，反对任何挑战它们的人。
 
+他赞扬了澳大利亚挺身而出对抗中共的方式，并认为尽管遭遇关税上涨和贸易抵制，澳大利亚还是赢得了这场贸易战。“我认为中国在经济上挤压澳大利亚的过程中，损失比澳大利亚更大……[并且会]在未来三思而后行。”布林肯先生告诉Nine媒体旗下报纸说。
 
-> If Russia invades Ukraine, it will be because of Biden’s weakness.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [February 11, 2022](https://twitter.com/MarshaBlackburn/status/1492239606674243592?ref_src=twsrc%5Etfw)
+与此同时，今天澳大利亚、美国、印度和日本外长在墨尔本举行的安全会谈中，俄罗斯对乌克兰的侵略及其与中共国的“无限制”协议将成为焦点。布林肯先生认为，俄罗斯不仅对欧洲，而且对全世界的基本安全原则也构成直接风险。
 
+“你不能用武力改变另一个国家的边界。你不能为另一个国家决定它的选择、它的政策、它将与谁交往。”他在周五所谓的“四方安全对话”(Quad)国家会议之前对澳大利亚广播公司说，“你不能施加一个试图使你的邻居屈服于你的意志的影响范围。”
 
+在来自西方的反对下，俄罗斯和中共在冬奥运会期间就相互支持的无限制协议达成一致。但布林肯先生指出，俄罗斯在乌克兰的侵略对中共国也没有好处，“人们认为中国会分担一些关切。这并不是要特别反对任何人，这是为了捍卫基于规则的国际秩序。”他说。
 
-**比尔.格茨**：本周华盛顿时报 @WashTimes 的 内幕专栏：国务院披露了有关俄罗斯计划触发入侵乌克兰的情报； 国防情报局揭穿 ABC 新闻关于大流行的报道； 普京访华期间中俄巩固关系 【转比尔.格茨发布在华盛顿时报内幕专栏报道链接】
+他的澳大利亚之行是乔·拜登担任总统期间的首次内阁级正式访问。总理斯科特·莫里森将与外长们会面。第四次四方安全对话部长级会议将讨论中共病毒疫苗的分发、网络和新兴技术，以及打击虚假信息、恐怖主义、海上安全和气候变化的尝试。
 
+**简评：**中共国利用经济和贸易作为外交武器，并与俄罗斯合作成为了全球规则秩序的破坏者。正如布林肯先生所说，中共也想建立一个国际秩序，但不同的是，它所想建立的是以非自由主义为特征的新秩序。对比中共政权和前苏联，当初苏联的目标是要改变世界，通过同志式的伙伴关系建立同盟，寻找代理人在全世界成立共产党组织，并希望在全球范围内摧毁资本主义。而中共是通过“势力范围”影响世界，它不仅有雄心勃勃的地区目标，希望把美国势力推出西太平洋，在东亚建立主宰，甚至还有长期的全球目标，即想要主宰全世界。如果真能达成，世界将陷入一片黑暗。希望西方自由世界以及全球渴望自由的人民能够觉醒，团结起来共同对抗邪恶的共产主义中共政权。
 
+新闻链接：[https://www.dailymail.co.uk/news/article-10499861/US-secretary-state-issues-chilling-warning-Australia-China.html](https://www.dailymail.co.uk/news/article-10499861/US-secretary-state-issues-chilling-warning-Australia-China.html)
 
-> This week’s Inside the Ring column in [@WashTimes](https://twitter.com/WashTimes?ref_src=twsrc%5Etfw): State Department discloses intel on Russian plan to trigger Ukraine invasion; DIA debunks ABC News report on pandemic; China, Russia cement ties during Putin visit to Beijing [https://t.co/zL24NVKKWd](https://t.co/zL24NVKKWd)
-> — Bill Gertz (@BillGertz) [February 12, 2022](https://twitter.com/BillGertz/status/1492302303872708613?ref_src=twsrc%5Etfw)
+* * *
 
-
-
-**众议员李·泽尔丁**：NBA本周取消了坎特@EnesFreedom 在联盟的比赛，但它们没有也无法让他的声音沉默。NBA保护它的运动员，教练和所有者的言论自由，但很显然为是否冒犯到 #中国共产党 和勒布朗@KingJames 划下了一条线。#LetEnesPlay
-
-
-
-> The NBA this week canceled [@EnesFreedom](https://twitter.com/EnesFreedom?ref_src=twsrc%5Etfw) from playing in the league, but they didn’t & can’t silence his voice. The NBA protects freedom of speech of its players, coaches & owners, but apparently draws the line on offending the Chinese Communist Party & [@KingJames](https://twitter.com/KingJames?ref_src=twsrc%5Etfw). [#LetEnesPlay](https://twitter.com/hashtag/LetEnesPlay?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Lee Zeldin (@RepLeeZeldin) [February 12, 2022](https://twitter.com/RepLeeZeldin/status/1492352367416778755?ref_src=twsrc%5Etfw)
-
-
-
-**众议员肯·巴克**：不要忘记，那些谴责卡车司机抗议的人，与那些在黑明贵抗议者烧毁和抢劫全美城市时欢呼的人是一样的。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-> Don’t forget those who are condemning the trucker protests are the same ones who cheered as BLM protesters burned and looted cities across America. [pic.twitter.com/zNaFBKeM2m](https://t.co/zNaFBKeM2m)
-> — Rep. Ken Buck (@RepKenBuck) [February 11, 2022](https://twitter.com/RepKenBuck/status/1492241510133379077?ref_src=twsrc%5Etfw)
-
-
-
-**参议员罗恩·约翰逊**：新冠COVID 对我们的心理产生了影响，因为你(拜登)和新冠 COVID 大神们制造了一种恐惧状态并阻止了早期治疗。
-
-超过90万人死亡。 他们本不必这样(死去)，这取决于你们，新冠 COVID 大神们。
-
-【附视频，拜登说新冠病毒对人们的心理造成了影响】
-
-
-
-> COVID had an impact on our psyche because you and the COVID gods created a state of fear and blocked early treatment. 
-> 
-> Over 900,000 people have died.
->  
-> They didn't all have to, that's on you, COVID gods. [pic.twitter.com/gEs1Rv6J1v](https://t.co/gEs1Rv6J1v)
-> — Senator Ron Johnson (@SenRonJohnson) [February 11, 2022](https://twitter.com/SenRonJohnson/status/1492202733457350663?ref_src=twsrc%5Etfw)
-
-
-
-**众议员外交委员会共和党**：商务部长雷蒙多 @SecRaimondo 必须立即改变拜登政府软弱的许可政策，不然我们就会继续看到美国的科技转移到 #中共 #CCP 的军事公司手中。
-【转日经，中芯国际称国内芯片需求可抵消供过于求的风险，公布了创纪录的 2021 年收益，2022 年将强劲增长】
-
-
-
-> "[@SecRaimondo](https://twitter.com/SecRaimondo?ref_src=twsrc%5Etfw) must change the Biden administration's weak licensing policy immediately or we will continue to see U.S. technology transferred to a [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) military company.”[https://t.co/aIwfBk52kJ](https://t.co/aIwfBk52kJ)
-> — House Foreign Affairs GOP (@HouseForeignGOP) [February 11, 2022](https://twitter.com/HouseForeignGOP/status/1492149630062284802?ref_src=twsrc%5Etfw)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

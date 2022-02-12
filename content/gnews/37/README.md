@@ -2,39 +2,57 @@
 ---
 
 
-## 中华民国再指中共对台统战
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1994834/)
+## 变本加厉：奥地利推出疫苗证书合规检查站
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1994941/)
 
-作者：纽约磐石农场 在远方
+#### 【雅典娜观察】和您一起洞察世界
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+翻译：文扬
+编辑：文泓
 
-当地时间2月10日，据台湾媒体报道，中华民国大陆委员会当天发布声明表示，台湾政府已经注意到中共近期正在加强针对台湾民众的促统认知作战，包括积极策划对在陆台胞进行的各种统战宣传工作。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/9-9.png)图片来源：The Telegraph
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-8.49.26-PM.png)
 
-陆委会指出，中共的这一系列行为都是企图遂行其对台统战分化的图谋。为此，台湾当局希望国民能够珍惜自由的生活，并认清中共既打又拉的手段与野心。
+当地时间2月10日，据自然新闻报道，从3月15日开始，奥地利将对新冠疫苗证书进行抽查，包括在全国各地的交通站点。
 
-陆委会副主任邱垂正还解释道，中华民国是主权国家，台湾更是对自由民主的体制充满信心，其从来都不是中共国的一部分。同时，绝大多数的国民既不会配合中共的统战作为，更不会附和其意识形态与政治立场。相反的，中共拉拢并分化台湾社会只会让台湾民众徒增反感。
+该计划将于2024年1月31日到期。在此之前，每个未接种疫苗的奥地利人现在将面临每年多达四次的单独罚款，每次增加到3,400欧元（约3,884美元）。
 
-另外，针对美国对台出售爱国者导弹系统一事，邱垂正强调，中华民国有权与包含美国在内的国际社会进行广泛的合作，也绝不会接受中共国台办、外交部和军方的错误威胁言论。邱垂正也要求中共当局立即停止对台湾的挑衅与威胁行径。
+除了检查站之外，奥地利政府还在努力建立一个官方登记册，记录该国所有已接种疫苗的人，让政府将能够更容易地针对未接种疫苗的人出台惩罚措施。
 
-参考链接：[對民主充滿信心 陸委會：絕大多數國人不會配合中共統戰](https://cn.rti.org.tw/news/view/id/2124217)
+二战期间纳粹德国也曾设立类似的公民登记处，奥地利再次将一个少数群体作为迫害对象——可能最终会被处决吗？
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-Shadow.png)
+目前德国正在出台类似的方法，努力迫使其公民遵守。就像在二战期间一样，德国和奥地利正一起带头建立一个两级社会，即可信任的人（接种疫苗）和不良的人（未接种疫苗）。
 
-编辑：谐趣园
-总编：Ivy001 
-校正/发稿：我不在这里
+相反，丹麦最近结束了几乎所有的新冠限制政策，荷兰也是如此。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+奥地利当局透露，从今年2月1日起，两次注射的有效期每次只有180天，唯一的例外是18岁以下的人，他们的有效期是210天。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当入境奥地利时，完全接种的旅客将在270天后被要求打第三剂加强针。
+
+根据欧洲疾病预防和控制中心（ECDC）的数据，72.8%的奥地利人口现在已经接种了新冠“初级”疫苗，这比欧盟/欧洲经济区人口的平均接种率高出约2.3%。
+
+迄今为止，全国约有54.1%的人接受了加强针，政府还在力推第三针，政府将对不打第三针的完全接种者罚款或骚扰。
+
+根据世界卫生组织（WHO）的数据，过去一周，奥地利登记了231697个新冠阳性病例，此外还有84人死亡。自大流行开始以来，该国报告了近200万个阳性病例，并有13,671人死亡。
+
+有一位读者写了作家哲学家安·兰德的一句话，体现了奥地利等地目前正在发生的事情：
+
+**我们正在快速接近终极颠倒阶段：政府可以为所欲为，而公民只能在允许的情况下行事；这是人类历史最黑暗时期的阶段，是野蛮统治的阶段**。
+
+另一个读者调侃地写道，奥地利政府应该重新开放其毛特豪森集中营，以安置未接种疫苗的人：
+
+**他们在正门上面写了一行新的字,“Impfung Macht Frei”，翻译成英文就是“接种疫苗让你自由**”。
+
+原文链接： [Roadway checkpoints for covid “vaccine” compliance rolling out in Austria… purebloods to be HUNTED by police – NaturalNews.com](https://www.naturalnews.com/2022-02-10-checkpoints-covid-vaccine-compliance-austria-purebloods-hunted.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

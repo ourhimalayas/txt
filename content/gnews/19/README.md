@@ -2,34 +2,47 @@
 ---
 
 
-## 俄可能使用受美制裁的油气田供应中国
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1995137/)
+## 辉瑞公司向FDA推迟申请5岁以下儿童COVID疫苗
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1995262/)
 
-作者：MOS 柳是多水土透
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-作为普京出席冬奥会的条件之一，俄罗斯天然气工业股份公司（Gazprom）最近与中石油（CNPC）签订了10年100万吨的能源合同。据消息人士透露，俄联邦可能会利用太平洋库页岛附近的一个被美国制裁的气田，向中国供应天然气。
-![Gas pipelines are pictured at the Atamanskaya compressor station, part of Gazprom's Power Of Siberia project outside the far eastern town of Svobodny, in Amur region, Russia November 29, 2019. REUTERS/Maxim Shemetov.//File Photo](https://cloudfront-us-east-2.images.arcpublishing.com/reuters/2Y7HRUPKRVI5FB6RRGK2D7Z3DA.jpg)
-俄罗斯总统普京上周五宣布与中国达成新的天然气供应协议，Gazprom表示，将通过远东线路供应天然气。
+**翻译：Lulumi**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip辉瑞公司向FDA推迟申请5岁以下儿童COVID疫苗.png)儿童接种疫苗（盖蒂图片）
+辉瑞-生物科技周五宣布，他们将推迟向FDA（美国食品和药物管理局）申请该公司用于6个月至4岁的儿童的COVID-19疫苗。
 
-俄罗斯计划向中国增加100亿立方米的天然气供应，这些管道天然气将由中俄远东线输送至中国。中俄远东线达产后，俄罗斯向中国每年供应的管道天然气总量将达480亿立方米，较现有供应量规划提高约26%。
+该公司说，他们“将等待第三剂的数据”，因为他们“相信它可能为这个年龄组提供更高水平的保护”。
 
-两位消息人士称，天然气可能来自库页岛附近的气田，包括Yuzhno-Kirinskoye气田，美国于2015年因莫斯科在乌克兰危机中扮演的角色对这些气田实施制裁。
+第三针的数据预计将在4月初获得。
 
-参考链接：
-1）[Russia’s Rosneft agrees 100 mln T oil supply deal with CNPC](https://www.reuters.com/business/energy/russias-rosneft-agrees-100-mln-t-oil-supply-deal-with-cnpc-2022-02-04/)
-2）[Russia may use field hit by U.S. sanctions for gas exports to China](https://www.reuters.com/business/energy/russia-may-use-field-hit-by-us-sanctions-gas-exports-china-2022-02-08/)
+辉瑞公司在一份声明中说：“对6个月至4岁儿童的试验正在进行，关于这个年龄组的前两剂的数据正在持续地与FDA分享。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+该公司补充说：“根据研究方案，病例继续积累，正在产生更多的数据，因为这个年龄段的儿童的感染率和患病率仍然很高，特别由于最近Omicron的激增”。
 
-编辑/校正/发稿：呼吸的雾霾（文小呼吸）
+“延期使FDA有时间收到关于两剂和三剂方案的最新数据，对其进行全面评估，并促进有力的公开讨论”。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+FDA后来说，它推迟了辉瑞-生物科技公司原定于2月15日举行的疫苗咨询小组会议，因为它接到公司的通知，最近出现了关于其紧急使用授权请求的新数据”。
+
+“作为其滚动提交的一部分，该公司最近向该机构通报了其正在进行的临床试验的额外发现。”
+
+“根据该机构的初步评估，并允许有更多的时间来评估更多的数据，我们认为关于正在进行的第三种剂的评估的额外信息应被视为我们潜在授权决策的一部分，”FDA补充说。
+
+辉瑞公司本月早些时候要求FDA授权其为6个月至4岁的儿童接种疫苗。
+
+当时，辉瑞公司说它的疫苗将以两剂方案提供给该年龄组的儿童。然而，数据显示，在2岁至4岁的儿童中，两剂疫苗并没有产生足够的免疫反应。
+
+监管机构对5岁以下儿童疫苗的决定备受瞩目，但由于围绕其有效性的问题一直存在，因此被认为是有争议的。
+
+**新闻来源**：[axios.com][Pfizer postpones FDA request for COVID vaccine for kids under 5](https://www.axios.com/pfizer-fda-request-children-vaccine-withdraw-89125dda-a5c2-453a-9292-0606330b4182.html)
+
+* * *
+
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-3.jpeg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

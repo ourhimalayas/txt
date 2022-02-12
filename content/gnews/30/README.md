@@ -2,58 +2,34 @@
 ---
 
 
-## 变本加厉：奥地利推出疫苗证书合规检查站
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1994941/)
+## 谷爱凌被追问国籍闪烁其词 奥委会官网泄露秘密
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1995139/)
 
-#### 【雅典娜观察】和您一起洞察世界
+作者：纽约香草山 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月8日，美国出生、代表中共国出征的奥运自由式滑雪运动员谷爱凌，在赢得金牌后的记者会上，回避了有关公民身份的问题。然而，奥委会官网暴露了谷双重国籍的事实。
+![Eileen Gu of China competes during women's freeski big air final at Big Air Shougang in Beijing, capital of China, Feb. 8.](https://a57.foxnews.com/static.foxnews.com/foxnews.com/content/uploads/2022/02/640/320/GettyImages-1238288434.jpg?ve=1&amp;tl=1)**(Wang Jianwei/Xinhua via Getty Images)**
+在为中国队夺得女子自由式滑雪大跳台冠军之后举行的新闻发布会上，谷爱凌多次被记者追问是否放弃了美国国籍来中国参赛。这位18岁的选手每次都回避了这个问题。她说，“我在美国的时候是美国人，在中国的时候是中国人。我的任务是促进国家之间的联系，而不是一种分裂的力量。”
 
-翻译：文扬
-编辑：文泓
+然而这个冠冕堂皇的理由，掩盖不了谷爱凌并未放弃美国国籍的事实。奥委会官网的一则消息也证实了这一点。在这篇《你不知道的谷爱凌的五件事》的最后一段，明明白白地写着：2020年11月，福布斯将谷爱凌列入其中国30位30岁以下娱乐和体育界人士名单。她拥有双重国籍，在体育界和更广泛的社会中具有越来越大的数字影响力。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/9-9.png)图片来源：The Telegraph
+中共国的法律不允许双重国籍，这意味谷爱凌要么放弃美国公民身份，要么她和中共联合欺骗了所有人。有网友直言不讳地指出，谷爱凌的广告代言接到手软。如果她违反《国籍法》，利用两国的公民身份试图利益均沾，那么，她必须面临一些后果。
 
+参考链接：
+1）[US-born Olympic freeskier Eileen Gu dodges questions about citizenship after winning gold for China](https://www.foxnews.com/sports/us-olympic-freeskier-eileen-gu-citizenship-gold-china)
+2）[Five things you didn’t know about Eileen Gu](https://olympics.com/en/news/five-things-you-didn-t-know-about-gu-ailing-eileen)
 
-当地时间2月10日，据自然新闻报道，从3月15日开始，奥地利将对新冠疫苗证书进行抽查，包括在全国各地的交通站点。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-该计划将于2024年1月31日到期。在此之前，每个未接种疫苗的奥地利人现在将面临每年多达四次的单独罚款，每次增加到3,400欧元（约3,884美元）。
+编辑/校正/发稿：呼吸的雾霾（文小呼吸）
 
-除了检查站之外，奥地利政府还在努力建立一个官方登记册，记录该国所有已接种疫苗的人，让政府将能够更容易地针对未接种疫苗的人出台惩罚措施。
-
-二战期间纳粹德国也曾设立类似的公民登记处，奥地利再次将一个少数群体作为迫害对象——可能最终会被处决吗？
-
-目前德国正在出台类似的方法，努力迫使其公民遵守。就像在二战期间一样，德国和奥地利正一起带头建立一个两级社会，即可信任的人（接种疫苗）和不良的人（未接种疫苗）。
-
-相反，丹麦最近结束了几乎所有的新冠限制政策，荷兰也是如此。
-
-奥地利当局透露，从今年2月1日起，两次注射的有效期每次只有180天，唯一的例外是18岁以下的人，他们的有效期是210天。
-
-当入境奥地利时，完全接种的旅客将在270天后被要求打第三剂加强针。
-
-根据欧洲疾病预防和控制中心（ECDC）的数据，72.8%的奥地利人口现在已经接种了新冠“初级”疫苗，这比欧盟/欧洲经济区人口的平均接种率高出约2.3%。
-
-迄今为止，全国约有54.1%的人接受了加强针，政府还在力推第三针，政府将对不打第三针的完全接种者罚款或骚扰。
-
-根据世界卫生组织（WHO）的数据，过去一周，奥地利登记了231697个新冠阳性病例，此外还有84人死亡。自大流行开始以来，该国报告了近200万个阳性病例，并有13,671人死亡。
-
-有一位读者写了作家哲学家安·兰德的一句话，体现了奥地利等地目前正在发生的事情：
-
-**我们正在快速接近终极颠倒阶段：政府可以为所欲为，而公民只能在允许的情况下行事；这是人类历史最黑暗时期的阶段，是野蛮统治的阶段**。
-
-另一个读者调侃地写道，奥地利政府应该重新开放其毛特豪森集中营，以安置未接种疫苗的人：
-
-**他们在正门上面写了一行新的字,“Impfung Macht Frei”，翻译成英文就是“接种疫苗让你自由**”。
-
-原文链接： [Roadway checkpoints for covid “vaccine” compliance rolling out in Austria… purebloods to be HUNTED by police – NaturalNews.com](https://www.naturalnews.com/2022-02-10-checkpoints-covid-vaccine-compliance-austria-purebloods-hunted.html)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
