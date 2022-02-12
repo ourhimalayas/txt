@@ -2,41 +2,21 @@
 ---
 
 
-## 有声|加拿大各省正在取消限制和疫苗护照
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1996735/)
+## 中共试图改变世界其他国家的法律和规则 只为了引渡郭文贵先生
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1996834/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-加拿大保守党议员皮埃尔-波里耶夫（Pierre Poilievre) 于2月8日发推称“自由正在获胜”！
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-45.png)
-推文写道“各省正在取消限制和疫苗护照，自由党议员莱特邦德（Joel Lightbound） 谴责了特鲁多的恶毒和控制暴政“。
+共产党当初四处蓝金黄，不惜动用一切可用的势力，试图改变西方世界国家的法律和规则，只为了引渡郭文贵先生。
 
-“请在我的请愿书上签字，以结束疫苗强制、疫苗护照和封锁限制限制“。
+近期，共产党支持的非洲国家都在经历一系列的政变。当初中共为了蓝金黄，购买安哥拉的石油，给了高达40%的回扣。一旦这些非洲国家反对党上台，非洲也将站到灭共的阵营里。
 
-随后他又发出推文和视频说：“ 阿尔伯塔省于今晚午夜取消疫苗护照！我们正在胜利的路上，继续加油”！
+香港十大法官之一，曾在香港判决查封郭先生家族在DBS银行的几百亿港元。这位法官透露当初被共产党用黑社会手段威胁了，如果不判决查封，中共就会公开他在东莞找小姐和他家族非法获利的信息。
 
-皮埃尔-波里耶夫是加拿大政治家，自 2004 年以来一直担任国会议员。 作为保守党成员，他目前代表渥太华地区的卡尔顿选区。
+这次冬奥会过后，中共在国际上已无任何信用可言了。
 
-他于2月5 日宣布竞选加拿大总理。
-
-文字版原文：[加拿大各省正在取消限制和疫苗护照](https://gnews.org/zh-hans/1990448/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+视频来源: 20220211—郭先生大直播
+视频制作: 文星光，梦田
+文案:文星光
+上传: 零点
 
  
 

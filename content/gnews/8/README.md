@@ -2,33 +2,42 @@
 ---
 
 
-## 有声|中共并未兑付中美贸易协议的2000亿美元承诺
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1996899/)
+## 商业集团敦促美加解决边境封锁
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1996919/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美国一家研究机构周二的分析显示，在2020年中美贸易协议中，中共并未购买承诺美国的价值2000亿美元的出口产品。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-11-4.jpg)图片来源网络
-根据此贸易协议要求，中共同意在2020年和2021年将某些美国商品和服务的购买量比2017年至少增加2000亿美元，这意味着中共将在这两年内总共需要购买5024亿美元的美国商品。数据显示在这两年内，美国的实际出口额为2888亿美元，比目标少了2130多亿美元，中共只购买了协议要求的57%。 白宫认为中共应该履行其承诺，但鉴于中共病毒大流行的出现，以及即使在交易达成后，美中贸易关系仍存在不确定性，实现2000亿美元的购买承诺异常困难。另外此协议还导致美国对中共征收的部分关税立即回落，但剩余的关税仍然在影响很多中国产品。
+编译：聖地香港
 
-文字版原文：[中共并未兑付中美贸易协议的2000亿美元承诺](https://gnews.org/zh-hans/1992980/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-3-3.jpg)图片来源：sohu.com
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+美国最大的商业集团呼吁北美领导人结束因卡车司机抗议强制接种中共病毒疫苗而造成的美加边境口岸中断。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+美国商会、全国制造商及商业圆桌会议于周四晚表示，边境封锁导致美国公司的供应链压力增大。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+商业集体在一份声明中说：“商业界正在尽全力寻找变通办法保持设施正常运转，但已经有一些工厂减产、减少班次及临时关厂。”
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+“北美经济依赖于包括制造业在内的紧密合作。我们需要运用同样的合作精神来解决该问题。”
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+几天来，抗议跨境疫苗规定的卡车司机封锁了连接安大略省和底特律的大使桥，该桥承载了美国和加拿大之间约 25% 的贸易量。
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+封锁迫使汽车制造商停止运营，并对本已由于计算机芯片短缺造成产量不足的疫情相关行业造成更深影响。福特、通用汽车、Stellantis、本田和丰田由于缺少零部件于本周暂停了部分运营。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+安大略省温莎市官员周四要求法院发出禁令，以对抗议者进行清场。拜登政府已敦促加拿大政府利用联邦权力结束卡车封锁，此举得到了美国商业集团的赞扬。
+
+商业集团在一份声明中说：“我们恭请加拿大政府迅速采取行动，解决贸易流动中断及其对边境两侧制造商和其他企业的影响。”
+
+**评论：**
+
+**加拿大卡车司机为了所有人的自由进行抗议，其中也包括商人的自由，然而妨碍了商人赚钱，商人敦促结束抗议，结束了抗议谁为你争取自由？好一个怪圈！**
+
+参考资料：[thehill][Business groups urge Canada, US to resolve border blockade](https://thehill.com/business-a-lobbying/business-a-lobbying/593843-business-groups-urge-canada-us-to-resolve-border)
+
+* * *
+
+*审核：文乐
+校对：信心满满
+发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-3.jpeg)
 
  
 
