@@ -2,26 +2,16 @@
 ---
 
 
-## 有声|中共国的特色
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1996287/)
+## 有声|郭先生将移驻英日开启灭共新战斗
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1996347/)
 
 配音：香草山巡管部– 文凯琳
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-从新闻里看到谎言；
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在2月9日的大直播中，郭文贵先生透露了一则重大喜讯：瑞银集团UBS诉请伦敦法院拒绝受理郭先生对其提诉的要求，但该诉求已经被法院驳回。目前，郭先生对瑞银集团的起诉正式成案。
 
-从历史里看到无耻；
+郭先生表示，爆料革命未来将在伦敦法庭上，通过法律程序，逐步揭露中共所有隐藏在瑞士银行的秘密帐户，也必将取回被中共盗取的全中国民众的财富。
 
-从外交里看到无能；
-
-从维稳里看到残暴；
-
-从强拆里看到贪婪；
-
-从贪官里看到腐朽；
-
-从司法里看到黑暗；
-
-文字版原文：[中共国的特色](https://gnews.org/zh-hans/1990355/)
+文字版原文：[郭先生将移驻英日开启灭共新战斗](https://gnews.org/zh-hans/1990273/)
 
 音频处理/发稿：Daxia
 
