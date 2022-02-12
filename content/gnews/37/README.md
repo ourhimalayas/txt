@@ -2,41 +2,46 @@
 ---
 
 
-## 广州第一民企雪松控股理财产品爆雷
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1995456/)
+## 由于“自由”抗议活动美国加拿大间的过境通道第二次被中断
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1995652/)
 
-作者：日本方舟农场 – Andy5
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-2月9日，有广州第一民企之称的雪松控股集团门外，有投资人士要求维权。集体内部召开会议时，集团董事长更是遭到了销售经理的围堵。
+**翻译：【日本东京方舟农场】Skyfrog**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/13-7.jpg)
+持续的“自由车队”抗议活动反对新冠肺炎限制令，周二抗议者堵塞了连接美国和加拿大之间的第二个过境通道，即位于库茨边境连接阿尔伯塔和蒙大拿的通道。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-179.jpg)（图片来源：thehill.com）
+仅一天时间抗议者就封锁了位于美国北部的美-加直接最繁忙的过境点：连接底特律和温莎之间的大使桥的交通通道。
 
-据了解，雪松集团的暴雷最早始于2021年4月，也就是花样年、华夏幸福等地产爆雷开始的同一时间。而该集团在今年1月30日晚，也就是除夕夜前突然宣布，1月底无法完成兑付，导致了本次的维权事件。
+据阿尔伯塔皇家骑警称，位于库茨边境南北向的过境通道都被抗议者关闭。
 
-雪松集团旗下的长惠77号、长茂7号和33号这三个项目均与华夏幸福有关，而华夏幸福的债务重组方案，已经在2月8日被中融信托拒绝。同时，雪松集团的信托长盈133号更是与一再爆雷且没有拿出过真正解决方案的恒大集团有关。
+周二晚间阿尔伯塔皇家骑警推特称:“请注意，由于抗议者的活动导致库茨边境南北向的过境通道关闭。”
 
-分析人士指出，中共去年房地产的爆雷并没有缓和的迹象，并正在按照去年9月郭文贵先生爆料的那样，向投资理财板块延伸，这必将进一步摧垮墙内经济。
+一名皇家骑警发言人告诉国会山报在周二当地时间晚上8点左右，抗议者使用农用拖拉机封锁了库茨边境的过境通道。
 
-参考链接：
+这份声明补充道：“即使边境没有被关闭，车辆无法安全的通行。”
 
-- [“广州第一民企”雪松控股陷理财兑付危机 雪松发展部分股权此前已被冻结](https://www.sohu.com/a/521945763_115362)
-- [暴雷！雪松控股总部遭投资者维权 理财再逾期或与恒大有关？](https://finance.sina.com.cn/trust/roll/2022-02-11/doc-ikyakumy5259573.shtml)
-- [中融信托拒绝加入债委会 华夏幸福最新回应](https://finance.sina.com.cn/stock/relnews/cn/2022-02-08/doc-ikyamrmz9696002.shtml)
+依据加拿大政府网站信息，截至周三早晨，商业旅行和定期旅行人员在边境的等待时间大约为7个小时。
 
+加拿大卡尔加里先驱报报道称：皇家骑警副队长科蒂斯·扎布洛基在新闻发布会上称参加库茨边境抗议活动的人将会被控告。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
+扎布洛基说：“毋庸置疑，那些在抗议点的犯罪活动违反刑法和省级法律，”
 
-总编：童谣
-编辑：飞虹
-校正/发稿：海阔天空1
+据报道，他补充道：“如我们所见那些活动是危险和鲁莽的，并且对居住在阿尔伯塔地区的人们造成非常消极的影响。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+国会山报记者已经联络上皇家骑警以寻求更多评论。
+
+这次封锁发生在阿尔伯塔宣布将会取消一系列新冠肺炎相关限制，包括终止居民疫苗护照。
+
+这次示威活动起始于抗议反对新冠肺炎相关命令和条款对卡车司机的影响。
+
+据加拿大警方称，这项活动已经蔓延到加拿大的很多城市，同时这项活动从美国汲取了“重要因素”，也促进了对“威胁”和“非法“行为的“几项犯罪调查”。
+
+原文链接：
+[https://thehill.com/policy/international/americas/593467-second-us-canada-crossing-disrupted-by-freedom-protests](https://thehill.com/policy/international/americas/593467-second-us-canada-crossing-disrupted-by-freedom-protests)
+
+素材採編：妙喜小油鍋
+校对：妙喜小油鍋
+发布：爱放飞
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
