@@ -2,21 +2,42 @@
 ---
 
 
-## 雪松总部被围，民企500强又现暴雷声
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1994370/)
+## 美大学生校队完胜中共外聘职业联军
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1994371/)
 
-**撰稿人：东南**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/A19EA1BA-AC26-467F-A30F-031B75A4F09B.jpeg)**图片来源网络**
-近日曾经是广州最大民企之一的雪松控股，总部楼下聚集了一大批维权的投资者，他们的平均投资都在百万级别。雪松控股在2020年其实就被曝光42只信托产品风控全线裸奔，220亿底层资产尽数虚无，借道假央企转移百亿巨资。2021年4月至今，雪松的理财产品大面积逾期，构成事实违约，而其产品大都是百万起投，其投资来源大多都是父母的养老钱、子女的教育基金、企业的经营周转资金。今年1月30日，也就是除夕前一天，雪松向投资者发布致歉信，称兑付无法完成，将在春节后进一步与投资人对话商议方案、取得共识，确保2月底前完成兑付。而按照此前方案，当月底应兑付2021年8月前到期产品本金的10％。雪松高管和投资者沟通时承认，对外发行的理财产品存量规模在200亿元左右，涉及投资人大约8000人，平均每人250万左右。但就在2月9日的公司会议上，雪松的理财经理们把矛头对准公司董事长、创始人张劲，要求其个人为逾期理财产品承担连带责任，遭到拒绝，陷入僵局。于是就有了围攻总部的一幕。
+撰稿：纽约香草山 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-2.png)
+2月10日，冬奥会冰球男子组预赛，由美高校学生组成的美国队，以8:0完胜中共出巨资打造的，由美、加、俄职业球员组成的中国队。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1175.png)图片来源：https://news.sina.cn
+此前，自去年12月美国国家冰球联盟NHL宣布不派联盟球员参加2022北京冬奥会，冰球强国美国和加拿大匆忙组建了各自的国家队跨洋出征。这些年轻的球员绝大多数是在校大学生，从没参加过国际比赛；反观中国队的阵容，25人中，本土球员只有6人，其余的19人几乎都是通过中共国运作了四年的“大国战略”高薪招募的外籍球员，而且大部分是NHL职业球员。
 
-要知道雪松信托这家可是广州唯一的世界500强民企。想到这就不由得后背发凉，这种“皮包公司”是怎么进入民企500强的？像雪松一样的信托公司中共国就这一家吗？答案是肯定的：当然不是。就近些年来P2P,私募,乃至上市公司都在频频暴雷，就CCP这样的资本市场还有什么可信任的。但那些投行的高管呢，哪个不是在暴雷前把钱早就转进到了私人腰包，个个都赚得盆满钵满。就算是公司亏没了都不要紧，因为当初的目的不就是这最后的暴雷吗！反观投资者你想他利息，他谋你本金的事层出不穷，真的是希望墙内的同胞一定要看清现在全球都在灭共的大背景下，一定要看好自己手里的钱，远离一切CCP的投资和理财产品。血本无归，欲哭无泪的懊悔不要再一出出上演了。
+根据国际冰球联合会的规则，允许球员代表一个国家效力，只要在那里生活了至少两年。中共国本来没有冰球队，仅仅为了实现奥运会东道主国“全项目”参与，不惜花费巨资打造了这支联合球队，没想到在首场美中交锋中，就以这般不堪入目的成绩，展现在世人面前。网友尴尬评论：落花流水。
 
-**文章参考：**
+正如郭先生所说，北京冬奥会，一切都是假的。这场比赛正是另一个有力的佐证。
 
-**[暴雷！雪松控股总部遭投资者维权 理财再逾期或与恒大有关？](https://finance.sina.com.cn/trust/roll/2022-02-11/doc-ikyakumy5259573.shtml)**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
-发稿：MG6
+【新闻链接】
 
+[US spoils host China’s hockey debut in 8-0 thrashing](https://www.france24.com/en/live-news/20220210-us-spoils-host-china-s-hockey-debut-in-8-0-thrashing)
+
+[China’s Olympic hockey hopes rest on North American talent](https://www.foxnews.com/sports/china-olympic-hockey-north-american-talent)
+
+[中国男子冰球历史首登冬奥舞台，0-8不敌美国队](https://news.sina.cn/gn/2022-02-10/detail-ikyakumy5282501.d.html?from=wap)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+
+编辑：谐趣园
+
+总编：Ivy001
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

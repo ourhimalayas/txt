@@ -2,36 +2,38 @@
 ---
 
 
-## 日本非政府组织支援出现人道主义危机的阿富汗
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1994307/)
+## 盖特与纳瓦兹建立合作关系
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1994309/)
 
-撰稿：东京樱花团/向海
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-3.jpg)[图片来源](https://news.un.org/zh/story/2021/10/1092342)
-日本雅虎新闻报道，阿富汗一半的土地覆盖着陡峭的山脉。12月至2月，部分地区气温降至-20摄氏度。
+撰稿：日本东京方舟农 – Miyali7768(文玉)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-2.png)
+2月10日，盖特发布官方消息，宣布与纳瓦兹建立新的合作伙伴关系。
 
-“没什么可吃的。但如果没有取暖就要挨冻。人们正在生死边缘，为了寻找柴火而长途跋涉。”
+作为英国政治评论员、广播员和前LBC主持人，纳瓦兹是英国领先的独立声音之一，也是受人尊敬的英国反极端主义组织的联合创始人。他将在盖特上发布独家视频，直播和其他内容，而不会遭到审查或取消的威胁。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1173.png)
+盖特首席执行官杰森-米勒说，我们很自豪能够提供一个平台，让像纳瓦兹这样的思想领袖能够分享他们的政治分析，而不会受到被禁止和沉默的威胁。质疑权威和传播思想的能力是任何繁荣的民主制度的基石，盖特很自豪能够站在争取言论自由的最前沿。
 
-1月14日，当地人道主义非政府组织NGO“CWS　JAPAN”（东京）的男性工作人员萨菲（45岁）向朝日新闻在线采访时诉说。
+新闻来源:
 
-“CWS　JAPAN”在去年底通过众筹筹集的270万日元（约15万人民币），以当地货币阿富汗尼分发给楠格哈尔省东部75个失去收入，孩子营养不良的家庭。
+[GETTR Announces Partnership with British Broadcaster @MaajidNawaz](https://gettr.com/post/ptq3xwcf4c)
 
-日本远程统筹业务的执行董事 小美野剛说：“由于每个家庭需要不同的物资，给付现金在这种紧急情况下非常有效。”
+G[ETTR Announces Partnership with British Broadcaster Maajid Nawaz](https://about.gettr.com/press/gettr-announces-partnership-with-british-broadcaster-maajid-nawaz)
 
-过去获得过该帮助的萨菲先生本人，曾因苏军入侵阿富汗引发的动乱，于1981年与家人从阿富汗逃往邻国巴基斯坦。那时，我们在山里徘徊了将近两个星期，父亲不能动了。父亲说：“我晚点去，你先跑吧。”家人把他留在了那里。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2-1.jpg)
 
-后来，我在巴基斯坦再次见到了我的父亲，但之后的难民生活持续了 19 年。起初，他连帐篷都没有，生活在野外。
+编辑：文真
 
-在阿富汗，由于担心塔利班的统治和导致土地干涸的干旱，境内流离失所者的人数再次增加。据联合国难民事务高级专员公署 (UNHCR) 称，去年有超过680,000人在国内无家可归。
+总编：Ivy001
 
-还有更多的担忧。根据萨菲先生的说法，一些家庭由于花光了所有积蓄，甚至欠债，无奈把孩子送到了有钱人家，据说还有卖孩子的情况。
+校正/发稿：浪迹天涯
 
-信息来源：
-
-[金欠で子ども売る家族も　人道危機のアフガン、日本のNGOが支援](https://news.yahoo.co.jp/articles/ab56ecd270b069c405cfd42be204e41cb5d7033f)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
