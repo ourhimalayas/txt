@@ -2,70 +2,47 @@
 ---
 
 
-## 2022年1月国际社会对中共的打击制裁汇总与分析
-` 经济小组` [轉載自GNews](https://gnews.org/zh-hans/1993436/)
+## 喜马拉雅日本银河系农场携战友为全球Hpay用户传递爱
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1993459/)
 
-作者：香草山教育部-无名先生
+![](https://assets.gnews.org/wp-content/uploads/2022/02/封面-8.jpg)
+Hpay to the Moon🌙，Hpay  to the Galaxy🪐
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-2.jpg)
+银河系向全球持有Hpay的战友或非战友问好，鉴于目前喜联储不支持美加日开设帐号的现状，而数字货币又是人类未来不可阻挡的大潮。
 
+为了推广喜币，让更多的人使用Hpay，银河系决定，为大家提供服务，我们建立了一支团队来帮助全球拥有Hpay的用户购买喜爱的日本产品。
 
+点对点付帐，您只要在网上能够找到的商品，我们帮助您购买及运输，所有费用都会提供日本法定发票。
 
-摘要：据不完全统计，在2022年1月1日-1月31日的一个月时间，国际社会对中共的打击制裁次数有7次，其中5次由美国发起、另2次由欧洲发起。
+Hpay，将是世界无障碍流通手段，
 
-* * *
+Hpay，己是爆料革命战友传递爱和温暖的桥梁。
 
-* * *
+Hpay，更是所有人享受销费自由的唯一工具。
 
-2022年1月，国际社会对中共的打击制裁的形式有三种：第一、议会提案和动议4次，包括《2022年新冠病毒法》、《2022年恢复基本能源和稀土在岸安全储备法案》、《2022年美国竞争法》的提案和指出中共在新疆犯下“反人类罪和种族灭绝罪”的动议；第二、议会决议1次：《关于香港侵犯基本自由》的决议案；第三、美国政府对中共企业实施的具体制裁2次，包括对航天科技集团第一研究院、中国航天科工集团第四研究院、保利科技股份有限公司和中国联通的制裁。
+日本银河系将在日本法律，正道主义，全球联盟的监督下，服务全球持有Hpay人士并推广喜币。同时为我们的第二故乡日本的经济恢复出力，回馈社会，在日本树立优质的中国人形象，打倒中共，为美好明天，你我加油。🛍🛍
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Unknown-2.jpeg)
+喜马拉雅日本银河系农场
 
-一月份国际社会对中共的打击制裁的内容涵盖多个当下国际社会最关注的问题。既有对中共新冠病毒真相溯源的强烈要求，又有对中共在新疆犯下“反人类罪和种族灭绝罪”的国际共识，还有对中共侵犯香港基本自由的密切关注；既有对中共军事科研机构的制裁，又有对中共军工企业的制裁，还有对中共通信公司的制裁。
+2022年2月11日
+![](https://assets.gnews.org/wp-content/uploads/2022/02/f715afda841d50a2c757d3852f7b91d8.jpg)
+撰稿：骄子 wung，Judy Lin，魔女Peace
 
-从一月份国际社会对中共的打击制裁上可以看到三点：一是对中共新冠病毒真相溯源的诉求已经由民众和媒体层面上升到了议会层面；二是中共在新疆犯下“反人类罪和种族灭绝罪”已经成为国际共识并不断发酵；三是中共对人类安全的威胁已经受到美国的高度重视，美国正在以国家安全为由对中共进行多方位打击制裁。
+发布：黎明之前
 
-附录：2022年1月国际社会对中共的打击制裁一览表
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-1、2022年1月11日，参议院情报委员会副主席、来自佛罗里达州的共和党籍联邦参议员鲁比奥（Sen. Marco Rubio, R-FL）与15位共和党人联手推出《2022年新冠病毒法》（COVID Act of 2022）。根据法案内容，如果中国共产党持续不允许国际调查进入在武汉的实验室针对新冠疫情起源问题展开可信且全面的调查，法案将在生效90天后授权美国政府对中国有关人员进行制裁。法案指出，制裁对象包括中国中科院及其附属机构和实验室的领导层及其家人，其中包括武汉病毒研究所。《新冠病毒法》还将暂停所有学术领域对涉及与中科院合作研究的联邦研究资金补助，并禁止联邦资助用于任何美国个人或机构与在中国的对等单位进行新冠病毒的功能增益研究（gain-of-function virus research）。制裁内容包括禁止有关人员所有在美国的财产和权益交易、禁止向他们颁发签证和入境美国，以及吊销现有有效签证。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-2、2022年1月14日，美国参议院两党议员推出的一项立法
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-《2022年恢复基本能源和稀土在岸安全储备法案》(Restoring Essential Energy and Security Holdings Onshore for Rare Earths of 2022)，将迫使国防承包商在2026年底前停止从中国购买稀土，并利用五角大楼建立这个战略矿产的永久储备。这个由阿肯色州共和党籍参议员汤姆·科顿(Tom Cotton)和亚利桑那州民主党籍参议员马克·凯利(Mark Kelly)发起的法案，是美国一系列旨在阻止中国近乎控制该领域的列立法议案中的最新一项。这项议案基本上是利用五角大楼对价值数十亿美元的战斗机、导弹和其他武器的采购作为杠杆，来要求承包商停止依赖中国，进而支持美国稀土生产的复苏。
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-3、2022年1月20日，欧洲议会以585票赞成、46票反对和41票弃权通过《关于香港侵犯基本自由》的决议案，首次要求欧盟委员会检视香港在世界贸易组织（World Trade Organization）的会籍，并就香港人权及言论自由被指恶化强烈遣责、呼吁制裁相关官员，以及敦促欧盟抵制北京冬奥。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-4、2022年1月20日，法国国民议会通过了一项不具约束力的动议，指出中国当局对新疆维吾尔穆斯林少数民族犯下“反人类罪和种族灭绝罪”，并敦促法国当局谴责北京。这项以169票对1票获得压倒性通过的动议是由社会党人和其他在野党领导的。除了谴责中国，该动议还敦促政府保护法国的维吾尔族裔移民社区免受中国的骚扰。
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-5、2022年1月21日，美国国务院决定根据经修订的《武器出口管制法》和经修订的《1979年出口管理法》、以从事导弹技术扩散活动为由，宣布对中国航天科技集团第一研究院、中国航天科工集团第四研究院、保利科技股份有限公司及其下属单位和继任（后续）公司实施制裁。
-
-6、美国众议院1月25号提出《2022年美国竞争法》，主要为了加强美国竞争力并且抗衡中国，当中也包括一亿美元对抗北京审查与假资讯、强化对台关系、呼吁将台湾驻美代表处改名等条款。
-
-7、2022年1月27日，美国联邦通信委员会发布命令，以国家安全为由将中国联通美洲公司列入违规名单，并终止其在美国的经营授权，还要求该公司在命令发布的60天内停止在美的任何经营。
-
-信息来源：
-
-美国白宫官网https://www.whitehouse.gov；
-
-美国商务部官网https://www.commerce.gov；
-
-美国之音https://www.voachinese.com等。
-
-免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
-
-校对/发稿：飞虹
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

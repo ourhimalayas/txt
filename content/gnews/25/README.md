@@ -2,21 +2,12 @@
 ---
 
 
-## 雅典娜时报-第202期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1993445/)
+## 加拿大萨斯喀彻温省宣布其疫苗护照政策结束
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1993529/)
 
-#### 《雅典娜时报》汇聚全球新闻时事
+02/08/2022 加拿大萨斯喀彻温省省长斯科特·莫宣布他所在省的疫苗护照政策结束，于 2 月 13 日星期日午夜生效。要求室内戴口罩的措施一直有效到2月底。
 
-#### 编辑：精灵蓝
-排版：小蚂蚁614
-![圖片](https://media.discordapp.net/attachments/825592691433668612/941907599148867604/155_6-1.png?width=768&amp;height=1144)![圖片](https://media.discordapp.net/attachments/825592691433668612/941907599652192337/155_8-1.png?width=768&amp;height=1144)
-*发布：陶子*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
