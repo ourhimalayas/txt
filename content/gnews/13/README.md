@@ -2,41 +2,20 @@
 ---
 
 
-## 有声|加拿大各省正在取消限制和疫苗护照
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1996735/)
+## 仅最近几个小时意大利不同地区因新冠疫苗死亡的人数在增加。
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1996825/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-加拿大保守党议员皮埃尔-波里耶夫（Pierre Poilievre) 于2月8日发推称“自由正在获胜”！
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-45.png)
-推文写道“各省正在取消限制和疫苗护照，自由党议员莱特邦德（Joel Lightbound） 谴责了特鲁多的恶毒和控制暴政“。
+#### 编译                  意大利达芬奇农场             小白鸽
+![This image has an empty alt attribute; its file name is Schermata-2022-02-12-alle-19.49.15-1.png](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-12-alle-19.49.15-1.png)图片来源：eventiavversinews.it
+因打疫苗而死亡的人数在增加，但是几乎不被任何媒体所报道。只有某些地方的报纸有些报道。2月11日意大利有两份地方报纸报道了三位因疫苗接种死去的人。两位五十多岁，一位六十多岁。
 
-“请在我的请愿书上签字，以结束疫苗强制、疫苗护照和封锁限制限制“。
+最近几个小时在科森扎医院有两位感染新冠病毒的患者去世。一位是56岁， 另一位是64岁。他们俩都接种了第三剂疫苗。另一位57岁的男子也在维泰博的一家医院去世，他接种了两剂疫苗。
 
-随后他又发出推文和视频说：“ 阿尔伯塔省于今晚午夜取消疫苗护照！我们正在胜利的路上，继续加油”！
+几天前一位49岁的那不勒斯男子也去世了， 他接种了三剂疫苗。这位男子从事建筑业，被亲戚和朋友称为“天使”。他曾想为他的家人而活下去， 努力恢复健康，但是疫情大流行夺去了他的健康。
 
-皮埃尔-波里耶夫是加拿大政治家，自 2004 年以来一直担任国会议员。 作为保守党成员，他目前代表渥太华地区的卡尔顿选区。
+原文链接：[https://www.eventiavversinews.it/aumentano-i-decessi-tra-vaccinati-nelle-ultime-ore-56enne-e-64enne-con-tre-dosi-a-cosenza-e-57-con-due-dosi-a-viterbo-nei-giorni-scorsi-49enne-con-tre-dosi-morto-in-campania/](https://www.eventiavversinews.it/aumentano-i-decessi-tra-vaccinati-nelle-ultime-ore-56enne-e-64enne-con-tre-dosi-a-cosenza-e-57-con-due-dosi-a-viterbo-nei-giorni-scorsi-49enne-con-tre-dosi-morto-in-campania/)
 
-他于2月5 日宣布竞选加拿大总理。
-
-文字版原文：[加拿大各省正在取消限制和疫苗护照](https://gnews.org/zh-hans/1990448/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+编辑、上传：  Xiao    baite
 
  
 

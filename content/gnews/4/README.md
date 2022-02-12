@@ -2,38 +2,40 @@
 ---
 
 
-## 有声|中共国内无固定岗位人数超过2亿
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1996884/)
+## 欧洲药物监管机构重新调查与疫苗有关的月经问题报告
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1996900/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月9日，据中共喉舌媒体消息显示，中共国内所谓的“灵活就业”群体人数目前已经突破两亿。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E6%88%AA%E5%B1%8F2022-02-11-%E4%B8%8B%E5%8D%8811.03.41.png)
-资料显示，“灵活就业”是中共政府在2021年创造的新词汇，实际上是指那些没有固定工作，或者从事网络视频制作、网络主播、文案写手等跟社会生产毫无关联的从业人员。
+**编译: 真北007**
 
-对于这一群体的增加，分析人士认为，这种“灵活创业”始于中共病毒疫情爆发之后，随着大多数企业因拉闸限电只能减少开工，甚至停产，加之中共国内一直持续的房地产爆雷现象，中共国内民众的生活愈发艰难。
+来自POLITICO.EU 二月十一日的新闻报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/F80121F6-E1C8-406A-897D-170D83B7015B.jpeg)**图片来源：**https://www.politico.eu
+在报告大量出血和错过月经以及科学文献中的新发现后，欧洲药品管理局（EMA） 将重新调查 mRNA 疫苗。
 
-对此，郭文贵先生也反复在直播中提醒墙内的百姓，中共国即将面临大批企业倒闭和房地产爆雷的困境，最终将导致中共国内无可挽回的经济崩塌。
+欧洲药品监管机构周五表示，正在调查与注射 mRNA 冠状病毒疫苗有关的女性月经问题的报告。
 
-文字版原文：[中共国内无固定岗位人数超过2亿](https://gnews.org/zh-hans/1993307/)
+在使用 Moderna 和 BioNTech/Pfizer 注射剂后，欧洲药品管理局的药物安全委员会正在调查大出血以及错过月经的两个病例。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+药物警戒风险评估委员会此前曾调查过与 COVID-19 疫苗相关的月经失调，并得出结论认为没有关联。 现在，在收到问题报告以及科学文献的新发现后，它正在重新审理此案。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+该委员会将进行深入调查，查看报告的事件，以及临床试验数据和已发表的科学文章。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+EMA强调，没有证据表明疫苗对生育有任何影响。 监管机构补充说，目前尚不清楚疫苗与月经过多或错过月经之间是否存在联系。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+科学家们发现与 COVID-19 疫苗有关的月经周期的微小变化。
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+**原文链接：**
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[Europe’s drug regulator probes reports of menstrual problems linked to vaccines](https://www.politico.eu/article/ema-investigates-reports-of-menstrual-problems-linked-to-vaccines/)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**编辑：LILY**
 
+**发布：歪桑**
+
+20220212
+
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3-4.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,56 +2,31 @@
 ---
 
 
-## 非法入侵到“中俄联合声明” ——福岛核废水
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1996407/)
+## Miles Guo Live Broadcast summary February 11, 2022
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1996446/)
 
-攥稿：何处是我家
-![](https://lh4.googleusercontent.com/0-npwiAdQU20xwLsh49DkHy7MaVNprhYg6iD_UXyylSn0dyYUgmJzoVKoPZGrZkc_hJsg4yI54lfoNSmJX8OEbVGHW_ftlKUYJaqFfE3jiD0cc0j5SedoqkSNL_bbzyaM3WG1Ddn)
-网络图片
+![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-11-at-12.42.40-PM.jpeg)
+**Source**[https://gtv.org/video/id=62065c00a1fe5e57a426b9e1](https://gtv.org/video/id=62065c00a1fe5e57a426b9e1)
 
-真不知，是肆虐两年的COVID19病毒已经侵蚀我的视觉，听觉，还是病毒已经感染了所有的生灵，到处都是光怪陆离，匪夷所思的事。
+**Summary**
 
-冬季奥林匹克运动会简称——冬奥会。今年在没有雪的北京和没有雪的张家口举办。这不是新闻，充其量这是人咬狗的范畴。最离奇古怪的是：冬奥会上出现了中俄联合声明，更荒诞的是在联合声明里出现了——福岛核废水。
+1. Tens of billions of dollars can’t undo the damage caused by Eileen Feng Gu to the Chinese and Asians.
 
-发表联合声明的两个国家，分别是中国，俄罗斯。他们都自称是世界上数第二的国家，到底谁是“二”呢？我不知道。最让我难过的是，“福岛核废水”怎么惹这俩第“二”啦！
+2. The chained woman in Xuzhou, China has been a sexual slave for 24 years and has eight children. Her parents are members of Communist Party. This matter spans the three generations of the party, Jiang, Hu and Xi. The whole party committed crimes and cheated each other.
 
-我知道福岛，是在2011年那次福岛地震引起的海啸。在那几天，看到了无数个海啸侵吞人类的视频，充分认识到自然灾害的巨大威力。有一个视频我记忆犹新，看到突然涌起的海水，像开了锅一样，涌上特意阻挡海水的第一个几十米高的水泥大坝，一眨眼海啸突破第二个大坝。接着摧枯拉朽的满过小镇的许许多多的街道，房屋，裹挟着瞬间已成垃圾的房屋，汽车，生灵，当视频中半山坡上的人的尖叫声还没停止，海水已到跟前。那一幕，今天想起还觉得恐怖至极。
+3. Brother Miles has an exceptional contribution to the United States. The United States wants to ensure the most excellent safety to him. Miles can go to Japan and United Kingdom only if United States government confirms the safety and agrees. I will leave after June at the earliest. In Japan, Brother Miles has the highest medal of Honor and is protected at the highest-level.
 
-福岛有个核电厂遭到破坏。同时就有了福岛核废水。每当人们想起福岛的遭遇，充满同情才是正常的反应。可福岛核废水怎么同时被中共国，俄罗斯盯上。
+4. Brother Miles thanks every fellow fighter for their willingness to donate. $260 million is a small amount of money for him. Brother Miles will not and cannot accept any donations. The Communist Party’s unrestricted warfare has many tricks to consume your energy and destroy your honor. Miles will appeal the unfavorable judgment on the PAG lawsuit to uncover the truth behind the strange verdict of the Communist infiltration. We want to expose Shan Weijian and Pacific Alliance Group (PAG),which deceives hundreds of billions of dollars in the United States. Miles will fight back with American law.
 
-于是，我粗略在”中华网“网页上浏览了这份声明。标题*《中华人民共和国和俄罗斯联邦关于新时代国际关系和全球可持续发展的联合声明》*。内容共分四部分，福岛核废水出现在第三部分内容里。这份声明我看不懂。总之，这两个世界老“二“在这份联合声明里，巴拉巴拉讲了很多自己的的抱负，愿景和对世界的规划。至于他们的要求和规定，这和一个漂泊在他乡贫民的我没有半毛关系，今天我只要弄明白福岛核废水怎么这么重要！
+5. There was little or no audiences at the opening ceremony of the Winter Olympics. But the photos taken by the CCP were all filled with people. The forgery under Xi has reached a disastrous level. The Winter Olympics will be Xi Jinping’s last international show of deception.
 
-在BBC中文网”***普京习近平会面：中俄联合声明中的大国博弈及台湾问题”***中。作者把这份声明归纳成八个重点。感谢这位高人，看完这篇文章我如梦方醒。感兴趣的战友可以去阅读，今天就和战友们谈谈我看完这篇文章后的想法。
+6. African countries are undergoing coups. The Chinese Communist Party’s investment in Africa will be wasted.
 
-八个重点只有一个是以北约（美国为主）为主角在叙事。其余的七个重点有一些关键词耐人回味，**亚太，亚太战略，亚太结盟，台湾**，**福岛，印太战略，中俄两国共同周边地区。**这几个词语和词组只和一个国家极度关联——日本。难怪这么牛的两个第“二”，在那么庄重，严肃的联合声明中关心废水排到这里！还是排在那里！
+7. Immune deficiencies caused by COVID-19 vaccines will begin to break out in spring 2022. The Netherland has found many AIDS variants. The United Kingdom and Australia have begun to a large scale of the HIV screening. Pfizer starts recommending HIV drugs to treat COVID-19.
 
-突然想起一个问题，为何当雨水流到高速公路隧道（2021年河南洪水），吞噬了数以百计的汽车和数以千计的乘客，还有那涌进到了村镇洪水，吞下了所有的父老乡亲，顷刻，浑浊无情的水汪洋一片。这情景碾压当年鬼子扫荡，鬼子走后还剩下些院墙和柴火呢！以及死里逃生后归来的乡亲。可洪水后，却精光光，赤条条的了无一点生气。你们，怎么也没有”联合声明“一下！
+8. The global supply chains are broken. Duo to the threat of the Communist Party to Hong Kong, the living condition in Hong Kong will still be very bad, and so will the rest of the world.
 
-为什么，这份联合声明里的关键词”**亚太，亚太战略，亚太结盟，台湾**，**福岛，印太战略，中俄两国共同周边地区”**是指日本呢？美国，澳洲，印度等不也有些关系吗？这些关键词里的 **福岛 中俄两国共同的周边地区 **是除日本之外其他国家不具备的。虽然和中，俄两国有共同边界的国家还有中亚国家，他们能威胁中俄吗？他们敢吗？就连美国保护了十几年的阿富汗，在美军撤走后，武器全部上供给了中共。至于蒙古和中俄有共同的边境，蒙古国从襁褓婴儿到耄耋老人总共不到200万人，还不够中共国城管“撵“的。北朝鲜更是不用讨论，他是这两个”二“下面的**2** 。
-
-**日本**有何德何能成为中，俄极度关注和防范的对象。准确说，是俄罗斯无时无刻不在盯着日本。日本是这个世界上唯一具备能力和胆量，可轻取北极熊的熊头的国家。美国也可以，但是一向以大侠自居，每当俄罗斯趴下求饶就免俄罗斯一命。德国和英国只具备战胜俄罗斯的本领，却不会要了北极熊的命。现在，身为中国人的同胞们，总算知道为何俄罗斯会亲手调教了中国共产党和北韩的金氏猎狗，死死缠着日本不放。让日本根本腾不出手做任何事情，甚至日本连自己最基本的正常生活也做不到。就连韩国也极其无聊的看着日本。韩国莫非也是俄罗斯的小弟？
-
-中共国僵尸们被教导的，生生世世死盯着日本的一举一动，日本再有胆量，再血腥，再残忍也杀不完以前的四万万和今天的十四万万人流！他只能天天忍受身边的这泡狗屎臭味，而无可奈何。最可气，最可怜的是过年过节都不能给爹妈，爷爷奶奶及祖先去上坟。真不能怨中国老百姓，日本假如把”靖国神社“更名为人民英雄纪念碑或者祖先祠堂。或许，中国普通大众就不阻挡。你偏叫”靖国神社“。中国人最难忘**公社**的大锅饭和大炼钢铁，那时，家里的铁锅给扔进土炉子练成铁疙瘩，夜晚炕上男人和女人门，在**公社**大锅饭的饥饿下，身体长久的空闲，无趣至极。因此，绝不能让日本人去什么**社** 。本人建议日本把”靖国神社”更名为**靖国神坟，**或**烈士公园**也可**。**改名以后，日本人天天给你爹妈上坟，估计中国屁民就再也不会管。
-
-中共国老杂毛再敢编排，胡诌日本靖国神社里有二战甲级战犯。我敢说，那些所谓中共国的开国将领们，都是二战期间中华土地消亡的几千万人的——特甲级战犯。有一天你也不能给你爹妈上坟烧纸。现在无数不能回中国大陆过年看父母，亲人和不能给祖先上坟烧纸的人，日本首相和你的待遇是一样的！
-
-日本，真的有能力打败世界第二军事强国俄罗斯。这事我说最后一次，我已经说腻了。俄罗斯说大话的本领是一流的，中共国说谎的本领有一些是前苏联教会的，然后土共在生活中加入中共国自己的特色，这两个**二**吹牛各有千秋。日本军事实力有多强大，我只举两个例子。
-
-日本的机械工业是世界第一第二的。最明显的是汽车，请问越野车里有超过TOYOTA巡洋舰，NISNNS途乐和Mitsubishi帕杰罗，SUBARU富士的吗？美国的吉普显然要逊色，英国的路虎和日本车只能是在仲伯之间。汽车和军事有多大关系呢？发动机是汽车的心脏，同样也是坦克，军舰，潜艇，战斗机的心脏，这是生活常识人人都清清楚楚。当然军舰，战斗机的发动机和汽车的发动机有些不同，但是工作原理有共性。至于这些军事装备里其他的电器，电子元件，普通零件，钢铁强度，你觉得俄罗斯能强过日本吗？中共国就不要做比较，小粉红会没面子的。
-
-日本可以在很短的时间拥有核武器——核导弹！十多年前看过一段文字，有人说日本国一个月或三个月可以制造核导弹，也有说24小时，我个人觉得可能不用24小时，只是几分钟的流水线而已。因为，日本不但有制造核导弹的技术，同时也有足够的核原料。日本国储存的核原料可以生产制造几千枚核导弹，因为日本有技术安全的存储核原料，所以购买和存放了许多核原料，这是世界上允许的。有了核导弹，日本有可靠的高技能的火箭发送吗？战友们请你们动手查查日本现有的火箭和火箭技术。你就没有了为什么！日本的火箭技术也许不在美国之下。
-
-终于我们明白一些，为何福岛核废水出现在中俄联合声明里，并大书特书。俄罗斯惧怕日本由来已久，上个世纪初在中国东北，在朝鲜，在北太平洋上，那几场战争俄罗斯输在军事技术，军事科技，军事战术上。造成沙俄的太平洋舰队，波罗的海舰队全军覆没，在中国东北的陆地战场上，老毛子终于知道谁才是战斗民族。日本国天生具备着世界上独一无二的名族单一性的战斗力，震惊了整个地球。日本是名副其实的亚洲之王。
-
-与其说，4万美军驻扎日本是保护日本鬼子，阻挡赤共的红流。不如说：是美国用几十圈的精钢铁链紧紧捆绑着日本这头怪兽，来保护俄罗斯及俄罗斯的猎狗中共国，还有得了狂犬病的小猎狗北朝鲜。一旦，美国松开这头怪兽，或者铁链子松动的声响起，瑟瑟发抖的是北极熊。日本和俄罗斯的仇恨不只是在战场的厮杀中，也不是二战后在中国东北抢走日本的所有价值不菲的工厂，设备和技术人员。是俄罗斯**逗你玩**似的在北方四岛归还上的反反复复。是那二战后将近100 万的日本年轻军人和普通老百姓贡献给了苏联的东西伯利亚的铁路上，这些亡魂在靖国神社里大多没有记录。日本人记不记这些事？中共国的屁民们永远也不懂！
-
-今天，美利坚已经极其不耐烦中共国的无赖式的纠缠和骚扰，也受不了俄罗斯一而再的勒索和敲诈。够了，美国人烦恼透顶。打开铁链的手已经伸出，随着铁链的离去，四肢渐渐流进血液，日本这头怪兽定会满血归来。只等，美国大叔无奈的一声——**掐**。第一个遭殃的是不是中共国，我不敢说，走着瞧。也许几十年后的某天北极熊也就死了！之后，世界所有人会无比感谢日本人的！
-
-这一次，但愿美国人别再糊涂啦！
-
-
-
-[https://www.bbc.com/zhongwen/simp/world-60270895](https://www.bbc.com/zhongwen/simp/world-60270895)
+Translator: Latin | Proofread: Fine Food | Editor & Publish:shandianxunlian
 
  
 
