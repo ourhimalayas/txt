@@ -2,31 +2,49 @@
 ---
 
 
-## 美警告中共勿支持俄罗斯侵犯乌克兰
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1995138/)
+## “可能迟到但不会缺席” 监管机构正开足马力制定加密货币全球规则
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/1995180/)
 
-作者：纽约磐石农场—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-台媒报道，当地时间2月6日，美国白宫安全顾问苏利文表示，最快在未来几周、甚至几天内，俄罗斯将侵犯乌克兰。为此他警告中共当局，如果中共支持俄罗斯的侵略行为，将付出惨重代价。
-![蘇利文警告中國，若支持俄羅斯侵犯烏克蘭，將會付出代價。（路透）](https://img.ltn.com.tw/Upload/news/600/2022/02/07/phps0udC7.jpg)蘇利文警告中國，若支持俄羅斯侵犯烏克蘭，將會付出代價。（路透）
+**【玫瑰看新闻】每日快讯**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image002-4.jpg)
+**路透伦敦****2****月****9****日**** ****一位高级官员周三表示，监管机构在快速发展的跨境加密资产领域反应迟缓，但他们可能在几个月内提出首个全球规则框架。****
 
-苏利文称虽然冬奥会习近平与普京会面后，所发声明未提及乌克兰，显示中共对于俄罗斯侵略乌克兰的态度，并不积极支持。他还是要正告中共，不要有进一步动作。
+20****国集团****(G20)****监管当局、央行和财政部官员组成的金融稳定理事会****(FSB)****正在研究如何对待比特币和稳定币等加密资产。****
 
-苏利文强调，美国之前早已警告，如果俄军越界进入乌克兰，俄方将会为此付出严重的经济代价。如果中共决定支持俄罗斯，在世界众目睽睽之下，北京政府也将付出应有的代价。
+****欧盟正在批准一套全面标准，用于授权和监管加密资产市场的参与者。****
 
-参考链接：[烏克蘭戰火一觸即發！ 白宮國安顧問警告中國別挺俄羅斯](https://news.ltn.com.tw/news/world/breakingnews/3822475)
+****法国金融市场监管机构****AMF****主席、****FSB****委员****Robert Ophele****表示，监管机构遵循相同规则的****”****普遍基本原则****”****，以应对相同的风险。****
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+Ophele****表示，由于加密资产尚未对金融稳定构成威胁，因此监管机构落后于形势，但现在这已成为****FSB****的首要议程。****
 
-编辑/校正/发稿：呼吸的雾霾（文小呼吸）
+FSB****没有权力制定具有约束力的规则，但其成员承诺将其监管原则引入他们自己的国家规则。****喜币创始人郭文贵先生指出，随着各国监管法律的完善，比特币、火币等去中心化管理的加密货币将会消失。而喜币是中心化管理，可追查责任人和责任机构，再加上有20%的黄金锚定、有喜美元稳定币和可支付系统的完美设计，将成为全世界最值得信赖的加密货币。**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
+
+
+
+
+**推出问题，敲出真相，爆料在路上！**
+
+**请关注和订阅我们的以下账号：**
+
+**新西兰伊甸农场盖特**：https://gettr.com/user/himalayanz
+
+**【玫瑰看新闻】盖特**：https://gettr.com/user/rosenews
+
+**玫瑰看新闻YouTube账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**Rose news**
+
+**【玫瑰看新闻】推特账号**：
+
+**Rose News (@RoseNews4)a**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

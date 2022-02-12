@@ -2,31 +2,34 @@
 ---
 
 
-## 有声|追回属于中国人的钱，让中国人的生老病死和教育免费
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1995391/)
+## 急于人道援助 美国下令解冻阿富汗70亿美元资产
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1995436/)
 
-配音：香草山巡管部 – 格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-2月9日，郭文贵先生在大直播上指出， 瑞士集团以其对客户资料的严格保密政策和银行保密文化而著称，瑞士也因此成为世界上最大的黑金聚集地。中国从大清朝到国民党，再到共产党，这几百年来存储在瑞士集团的钱实在太多了。像伊拉克、罗马尼亚和利比亚（卡扎菲）等这些集权国家是无法比拟的。
+撰稿：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-176.jpg)
+[图片来源](https://mainichi.jp/articles/20220212/k00/00m/030/045000c)
 
-郭先生强调，中国这几百年来在这里存储的钱必须还给中国人。现在所有中国人欠的房贷和欠的信用卡的钱的总和，中共宣布大概40万亿到50万亿美元。但由于中共的泡沫太严重，实际上是大概4到5万亿美元。新中国联邦在海外能追回大概50万亿美元，可以让中国人欠下的所有债务免10回都没问题。
+2月11日，美国总统拜登签署行政命令，解除对阿富汗中央银行在美国的资产的冻结，总额约为70亿美元（约8000亿日元），并将其用于阿富汗的人道主义援助。塔利班在实际控制阿富汗后曾要求归还这些资产。所以美国此举遭到塔利班组织反对。
 
-郭先生进一步解释，这钱多到不但可以让现在所有中国人的房贷和信用卡一律不用还，而且足以让中国未来的教育、保险、生老病死免费。
+塔利班发言人在推特上批评道，（美国）窃取并征用了阿富汗人民的资产。这些资产原由前加尼政府在美国金融机构持有。
 
-文字版原文：[追回属于中国人的钱，让中国人的生老病死和教育免费](https://gnews.org/zh-hans/1990444/)
+一位美国高级官员说，为援助阿富汗设立基金后，其中一半约35亿美元将转出。另一半35亿美元将继续持有，以期向2001年美国遭受恐怖袭击的受害者家属提供赔偿。
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+阿富汗资产包括各国的国际援助，美国政府计划与联合国等组织合作，考虑支持目的地和支持方式。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+目前，阿富汗经济活动停滞不前，联合国秘书长安东尼奥·古特雷斯呼吁特别解除对阿富汗在海外，包括在美国的海外资产的冻结，并将用于阿富汗的人道主义援助和政府机构的运营开支。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+衷心希望这笔解冻资金能物尽其用，而非助纣为虐。
+
+信息源：
+
+[凍結資産をアフガン人道支援に活用　米国内８千億円の半分](https://news.yahoo.co.jp/articles/820b03cbc5e774e625fd987b058523931d847ec4)
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

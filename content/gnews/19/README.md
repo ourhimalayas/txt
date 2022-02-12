@@ -2,47 +2,31 @@
 ---
 
 
-## 辉瑞公司向FDA推迟申请5岁以下儿童COVID疫苗
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1995262/)
+## 有声|中共国限制化肥出口导致美国食品成本飙升
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1995390/)
 
-**翻译：Lulumi**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip辉瑞公司向FDA推迟申请5岁以下儿童COVID疫苗.png)儿童接种疫苗（盖蒂图片）
-辉瑞-生物科技周五宣布，他们将推迟向FDA（美国食品和药物管理局）申请该公司用于6个月至4岁的儿童的COVID-19疫苗。
+配音：香草山巡管部 – 格格
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+据国家脉搏报道，自2021 年开始，中共国暂停了化肥出口。中共的理由是：要保证国内供应来养活快速增长的人口。许多中共国化肥公司已经表示至少在2022 年 6 月之前禁止磷酸盐出口。而6月正好是美国农作物的旺盛生长时期，中共这是故意为之吧。
 
-该公司说，他们“将等待第三剂的数据”，因为他们“相信它可能为这个年龄组提供更高水平的保护”。
+中共国的尿素氮肥和磷酸盐出口最大，中共的禁令快速推高了化肥价格。自2020 年 9 月以来，美国作物生产所需的所有主要营养素的肥料价格均上涨了 100% 以上，这可能会危及美国农场的长期生存能力，并进一步增加美国消费者的食品成本。 该禁令被密歇根农业商品部的农学副总裁描述为一场“贸易战”。
 
-第三针的数据预计将在4月初获得。
+中共国上一次提高对美化肥供应价格是在举办奥运会的2008年。当时化肥价格上涨了 32% — 100%。这是中共在 2008 年全球金融危机前夕，给全世界经济进一步施加的压力。
 
-辉瑞公司在一份声明中说：“对6个月至4岁儿童的试验正在进行，关于这个年龄组的前两剂的数据正在持续地与FDA分享。”
+文字版原文：[中共国限制化肥出口导致美国食品成本飙升](https://gnews.org/zh-hans/1989256/)
 
-该公司补充说：“根据研究方案，病例继续积累，正在产生更多的数据，因为这个年龄段的儿童的感染率和患病率仍然很高，特别由于最近Omicron的激增”。
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-“延期使FDA有时间收到关于两剂和三剂方案的最新数据，对其进行全面评估，并促进有力的公开讨论”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-FDA后来说，它推迟了辉瑞-生物科技公司原定于2月15日举行的疫苗咨询小组会议，因为它接到公司的通知，最近出现了关于其紧急使用授权请求的新数据”。
-
-“作为其滚动提交的一部分，该公司最近向该机构通报了其正在进行的临床试验的额外发现。”
-
-“根据该机构的初步评估，并允许有更多的时间来评估更多的数据，我们认为关于正在进行的第三种剂的评估的额外信息应被视为我们潜在授权决策的一部分，”FDA补充说。
-
-辉瑞公司本月早些时候要求FDA授权其为6个月至4岁的儿童接种疫苗。
-
-当时，辉瑞公司说它的疫苗将以两剂方案提供给该年龄组的儿童。然而，数据显示，在2岁至4岁的儿童中，两剂疫苗并没有产生足够的免疫反应。
-
-监管机构对5岁以下儿童疫苗的决定备受瞩目，但由于围绕其有效性的问题一直存在，因此被认为是有争议的。
-
-**新闻来源**：[axios.com][Pfizer postpones FDA request for COVID vaccine for kids under 5](https://www.axios.com/pfizer-fda-request-children-vaccine-withdraw-89125dda-a5c2-453a-9292-0606330b4182.html)
-
-* * *
-
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-3.jpeg)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

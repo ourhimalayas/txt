@@ -2,28 +2,44 @@
 ---
 
 
-## “清风不识字，何故乱翻书” 多人评论维吾尔火炬手遭拘
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1995472/)
+## 疫苗灾难绝对比你们想象的大的多
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1995537/)
 
-撰稿：东京樱花团/Ob
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-49.png)
-北京冬奥会自2月4日开幕以来，中共网警网络审查也不手软，有23名维吾尔网民因评论冬奥会官方安排的维吾尔运动员担任火炬手而被拘留。
+作者：纽约香草山 福音部 -林礼
 
-2月4日在北京冬奥会的开幕式上，中国官方安排了维吾尔族越野滑雪运动员迪妮格尔．衣拉木江担任了冬奥会的最后一任火炬手，她的出现引发外界关注。
 
-据自由亚洲电台报导，10日，总部在德国的世界维吾尔代表大会发言人迪里夏提本说，在新疆有众多维吾尔族年轻网民在微信圈内，转发及评论火炬手迪妮格尔，部分言论得罪了当局，迅速遭到警察的报复。
 
-迪里夏提本说：“从当地获得的信息2月6日（周日）至7日，在喀什、阿克苏及库尔勒等地区至少有23名维吾尔青年，遭到中共警察行政拘留和经济惩罚，最大的21岁，最小的仅15岁。”他表示，部分年轻人议论中共官方安排维吾尔族迪妮格尔担任冬奥火炬手，并且表达了个人立场，这在文明社会实属正常现象。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-5.jpg)
 
-越是捏造的盛世，心里越是没有底；越是心里没底越是草木皆兵。虚弱到靠谎言撩以自慰，虚夸到靠护卫荒言的完美维续生存。敏感到张开嘴就是反革命，谨慎到“清风”都有火药味。末世的猖狂必然伴随着回光返照式的歇斯底里。中共，你完蛋了，你完球蛋了!!!
 
-信息来源：
 
-[冬奥开幕8天病例破百 多人评论维吾尔火炬手遭拘](https://m.secretchina.com/news/gb/2022/02/12/997673.html)
+2月9日在”文贵大直播”期间说到，王濛解说中让韩国运动员多打几针疫苗，这把全中国人都裹进去了；疫苗这件事情体验了人心、人的洞察能力和所有中国人对事情的看法。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1044-1.png)
+全世界的科学杂志、知识界和所谓严肃媒体都叫你认真地打疫苗，直到打死为止，这和共产党是如出一辙。
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+ 你没打疫苗，是一生中唯一的最大最正确的决定。打了疫苗的家人，请赶快吃青蒿素，伊维菌素。世界上的政治，经济疫苗灾难，超出你想象的很多倍。我们爆料革命不灭中共，它自己都会被灭了，百分之一万地会被灭得干干净净。
+
+参考来源：[https://gnews.org/zh-hans/1986483/](https://gnews.org/zh-hans/1986483/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3.jpg)
+
+编辑：童谣
+校对/发稿：Daxia
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-6.jpg)
+
 
 
  

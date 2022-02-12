@@ -2,28 +2,26 @@
 ---
 
 
-## 回顾中共的十年文化大革命
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1995097/)
+## 谷爱凌被追问国籍闪烁其词 奥委会官网泄露秘密
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1995139/)
 
-作者：纽约香草山农场-马克文、朱丽叶
+作者：纽约香草山 – 宁文静
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1966年，毛泽东提议在全国范围内开启文化大革命，并指派了中央文革小组执行。随后，该小组成员煽动民众，尤其青年学生，开始攻击所谓的“走资派”。彼时，学校停学、工厂停工、农村停耕，举国上下先后被卷入大规模的武斗和游行批判的运动中。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-12-上午8.13.07.png)
-其后的十年间，中共变本加厉地开启了一系列政治运动，政治异议者，包括思想异议者几乎无人能逃脱中共专政的铁拳镇压。这些运动也造成了境内诸多地区的大屠杀事件，从而导致中共国内上亿民众被不同程度的迫害，超过千万人自杀或被杀害，全民死伤惨重。
+2月8日，美国出生、代表中共国出征的奥运自由式滑雪运动员谷爱凌，在赢得金牌后的记者会上，回避了有关公民身份的问题。然而，奥委会官网暴露了谷双重国籍的事实。
+![Eileen Gu of China competes during women's freeski big air final at Big Air Shougang in Beijing, capital of China, Feb. 8.](https://a57.foxnews.com/static.foxnews.com/foxnews.com/content/uploads/2022/02/640/320/GettyImages-1238288434.jpg?ve=1&amp;tl=1)**(Wang Jianwei/Xinhua via Getty Images)**
+在为中国队夺得女子自由式滑雪大跳台冠军之后举行的新闻发布会上，谷爱凌多次被记者追问是否放弃了美国国籍来中国参赛。这位18岁的选手每次都回避了这个问题。她说，“我在美国的时候是美国人，在中国的时候是中国人。我的任务是促进国家之间的联系，而不是一种分裂的力量。”
 
-此外，十年浩劫中，中共对中国传统文化的破坏也达到了顶峰：大量的文物被焚烧，古迹被铲除，其所造成的损失难以估量。
+然而这个冠冕堂皇的理由，掩盖不了谷爱凌并未放弃美国国籍的事实。奥委会官网的一则消息也证实了这一点。在这篇《你不知道的谷爱凌的五件事》的最后一段，明明白白地写着：2020年11月，福布斯将谷爱凌列入其中国30位30岁以下娱乐和体育界人士名单。她拥有双重国籍，在体育界和更广泛的社会中具有越来越大的数字影响力。
 
-另一当面，中共通过文革毁掉了一代中国人的道德与诚信：亲人互相检举揭发，官员造假欺上瞒下在当时屡见不鲜。其所导致的恶果就是中国民众丧失了彼此之间的信任关系，余毒甚至影响至今。
+中共国的法律不允许双重国籍，这意味谷爱凌要么放弃美国公民身份，要么她和中共联合欺骗了所有人。有网友直言不讳地指出，谷爱凌的广告代言接到手软。如果她违反《国籍法》，利用两国的公民身份试图利益均沾，那么，她必须面临一些后果。
 
-研究人员分析称，文革实际上是中共党内最高层争权夺利的结果：三年大饥荒使得毛泽东被迫退居二线，而为了重回高位，其不惜发动堪称十年浩劫的文化大革命，把中华民族推向了几乎毁灭的边缘。但由于中共官方的蓄意掩盖，世界至今无法估算当时中国人伤亡的准确数字。
-
-参考链接：[文化大革命（维基百科）](https://zh.wikipedia.org/wiki/%E6%96%87%E5%8C%96%E5%A4%A7%E9%9D%A9%E5%91%BD)
+参考链接：
+1）[US-born Olympic freeskier Eileen Gu dodges questions about citizenship after winning gold for China](https://www.foxnews.com/sports/us-olympic-freeskier-eileen-gu-citizenship-gold-china)
+2）[Five things you didn’t know about Eileen Gu](https://olympics.com/en/news/five-things-you-didn-t-know-about-gu-ailing-eileen)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-总编：Jack Li文阳
-编辑：静言
-校正/发稿：呼吸的雾霾（文小呼吸）
+编辑/校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
