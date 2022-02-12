@@ -2,48 +2,36 @@
 ---
 
 
-## 中共千方百计收集美国人DNA
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/1995758/)
+## 立陶宛敦促全球抵制中共和俄罗斯
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1996199/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image004-7.jpg)
-**【大纪元****2****月****8****日讯】为了争夺生物经济的主导地位，中共正在****“****开发世界上最大的生物数据库****”****，其中包含来自世界各地的人们（包括美国人）的医疗、健康和遗传信息。****
+作者：银河系农场—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月10日，据外国媒体报道，立陶宛高级外交官在访问澳大利亚期间向全球发出呼吁称，各国政府应该勇敢抵制中共和俄罗斯侵犯人权的行为，哪怕会因此付出代价。
 
-****这些数据可以与顶级的军事超级计算能力相结合，以发现人口中的遗传弱点。然后开发以这些弱点为靶子的生物武器。中国科学家和军方一直在脑科学、基因编辑和人工基因组的创造等领域进行研究。****
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide5-6.jpeg)
 
-****2021****年，华大基因提出在美国设立****COVID****检测中心。检测中心将允许中共获得美国人的****DNA****，因为拭子上有遗传物质。****
+立陶宛外交官建议道，全球目前应逐步减少对中共和俄罗斯的贸易与能源依赖，同时，部分国家需要建立基于自由民主原则的同盟伙伴关系。
 
-****家族血统测试是中共从美国人那里获得****DNA****的另一种方式。**
+该外交官也表示，人们不应该对中共在新疆犯下的种族大屠杀保持沉默，反而应该持续向其发出质询。另一方面，中共还在新疆地区实施强迫劳动的暴行，而这种原则性问题绝不能被无视。如果全球因顾忌物价上涨因素而继续将中共新疆地区的相关产品纳入供应链中，那么每个人都将为强迫劳动带来的低廉商品付出代价。
 
-**自****2013****年以来，华大基因集团一直在收购美国的基因组公司，现在与参与基因测序的美国公司建立了多个合作伙伴关系。在每一种安排中，华大基因都可以获得遗传数据。**
+这位外交官还强调称，乌克兰如今正面临着如同台湾一般的困局，虽然立陶宛此前因与台湾的友好外交关系惹怒中共，但一定还有其他国家将效仿立陶宛的做法，加强与台湾的友好外交关系，这也是全球必然的趋势。
 
-**
-冬季奥运会运动员、教练员、媒体人员和其他与会者将接受每日COVID测试，这意味着中共将拥有每个参加奥运会的人的遗传物质。
+参考链接：[Squeezed Lithuania urges world to stand up against China, Russia](https://www.straitstimes.com/asia/australianz/squeezed-lithuania-urges-world-to-stand-up-against-china-russia)
 
-与会者还将被要求下载政府批准的健康应用程序，该应用程序将能够收集用户数据，这些数据与遗传信息相结合，可以输入到中共庞大的人工智能和基因组项目中。**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
+总编：Ivy001 
+编辑：静言
+校正/发稿：谐趣园
 
-
-**推出问题，敲出真相，爆料在路上！**
-
-**请关注和订阅我们的以下账号：**
-
-**新西兰伊甸农场盖特**：https://gettr.com/user/himalayanz
-
-**【玫瑰看新闻】盖特**：https://gettr.com/user/rosenews
-
-**玫瑰看新闻YouTube账号**：
-
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**Rose news**
-
-**【玫瑰看新闻】推特账号**：
-
-**Rose News (@RoseNews4)a**
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

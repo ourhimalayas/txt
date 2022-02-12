@@ -2,41 +2,48 @@
 ---
 
 
-## 广州第一民企雪松控股理财产品爆雷
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1995456/)
+## 发现艾滋病毒法诺贝尔医学奖得主 宣称疫苗对人类的危害
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1995616/)
 
-作者：日本方舟农场 – Andy5
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-2月9日，有广州第一民企之称的雪松控股集团门外，有投资人士要求维权。集体内部召开会议时，集团董事长更是遭到了销售经理的围堵。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/13-7.jpg)
-
-据了解，雪松集团的暴雷最早始于2021年4月，也就是花样年、华夏幸福等地产爆雷开始的同一时间。而该集团在今年1月30日晚，也就是除夕夜前突然宣布，1月底无法完成兑付，导致了本次的维权事件。
-
-雪松集团旗下的长惠77号、长茂7号和33号这三个项目均与华夏幸福有关，而华夏幸福的债务重组方案，已经在2月8日被中融信托拒绝。同时，雪松集团的信托长盈133号更是与一再爆雷且没有拿出过真正解决方案的恒大集团有关。
-
-分析人士指出，中共去年房地产的爆雷并没有缓和的迹象，并正在按照去年9月郭文贵先生爆料的那样，向投资理财板块延伸，这必将进一步摧垮墙内经济。
-
-参考链接：
-
-- [“广州第一民企”雪松控股陷理财兑付危机 雪松发展部分股权此前已被冻结](https://www.sohu.com/a/521945763_115362)
-- [暴雷！雪松控股总部遭投资者维权 理财再逾期或与恒大有关？](https://finance.sina.com.cn/trust/roll/2022-02-11/doc-ikyakumy5259573.shtml)
-- [中融信托拒绝加入债委会 华夏幸福最新回应](https://finance.sina.com.cn/stock/relnews/cn/2022-02-08/doc-ikyamrmz9696002.shtml)
+作者：台湾宝岛农场-dobi
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
 
-总编：童谣
-编辑：飞虹
-校正/发稿：海阔天空1
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-5.jpg)
+
+
+
+法国科学家蒙坦耶（Luc Montagnier）于2008年时，因和同事巴尔．西诺希（Francoise Barre-Sinoussi）发现艾滋病毒，获颁诺贝尔医学奖殊荣，对人类对抗艾滋病毒（HIV）的贡献极大，也足见其在科学医学地位的举足轻重。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/FireShot-Capture-784-法科學家昔發現HIV得諾貝爾獎-今反疫苗黯然離世-世界萬象-全球-聯合新聞網-udn.com_.png)
+
+遗憾的是，虽报导指出蒙坦耶是否已经逝世的消息目前尚未获得确认，但纳伊市长弗罗芒坦（Jean-Christophe Fromantin）告诉法新社蒙坦耶已于8日辞世，享年89岁。且报导中也提及，对于蒙坦耶逝世，法国总统马克宏（Emmanuel Macron）表示哀悼。 
+
+尚且不论，蒙坦耶是否已经离世，回顾蒙坦耶（Luc Montagnier）的晚年，他勇于宣称病毒是实验室所制造，且后来会陆续出现变异株，乃是因为疫苗的缘故，他的反强制疫苗接种立场也可谓十分鲜明。虽遗憾他的立场目前尚未能顺利获得大多数科学界、学界的支持。然而，相信在蒙坦耶的勇敢揭示以及新中国联邦爆料革命的持续不断地对疫苗灾难是人为的等提出警讯下，就有机会拨乱为正，降低疫苗灾难对人道的危害.
+
+参考来源：[https://udn.com/news/story/6812/6092280?from=udn-catebreaknews\_ch2](https://udn.com/news/story/6812/6092280?from=udn-catebreaknews_ch2%E3%80%8B)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3.jpg)
+
+编辑：Irene木木
+校对/发稿：Daxia
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-6.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

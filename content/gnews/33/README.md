@@ -2,37 +2,46 @@
 ---
 
 
-## 港共政府医疗系统濒临崩溃
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1995459/)
+## 由于“自由”抗议活动美国加拿大间的过境通道第二次被中断
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1995652/)
 
-作者：纽约磐石农场 – 在远方
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-台湾媒体2月10日消息，由于香港近日以来中共病毒疫情急剧升温，9日更是公布单日确诊超过千例，香港医疗系统濒临崩溃。
+**翻译：【日本东京方舟农场】Skyfrog**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/10-8-scaled.jpg)
+持续的“自由车队”抗议活动反对新冠肺炎限制令，周二抗议者堵塞了连接美国和加拿大之间的第二个过境通道，即位于库茨边境连接阿尔伯塔和蒙大拿的通道。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-179.jpg)（图片来源：thehill.com）
+仅一天时间抗议者就封锁了位于美国北部的美-加直接最繁忙的过境点：连接底特律和温莎之间的大使桥的交通通道。
 
-有消息称，截至6日，至少有232名确诊者未被送医治疗，不少患者等候至少3天仍未被送往医院，还有部分患者甚至已经等待长达6天，却仍未得到任何处理。另外，由于港共政府7日宣布不再公布确诊患者人数，估计等待送医治疗的患者实际上还有更多。
+据阿尔伯塔皇家骑警称，位于库茨边境南北向的过境通道都被抗议者关闭。
 
-目前大量收到确诊通知的市民，要到急诊室复检，也让各区医院超负荷运转。许多民众求助无门而怒骂，斥责港共政府如同废物。
+周二晚间阿尔伯塔皇家骑警推特称:“请注意，由于抗议者的活动导致库茨边境南北向的过境通道关闭。”
 
-参考链接：
+一名皇家骑警发言人告诉国会山报在周二当地时间晚上8点左右，抗议者使用农用拖拉机封锁了库茨边境的过境通道。
 
-- [香港醫療瀕臨崩潰 至少232確診患者未送醫 最久已等近6天](https://news.ltn.com.tw/news/world/breakingnews/3824973)
+这份声明补充道：“即使边境没有被关闭，车辆无法安全的通行。”
 
+依据加拿大政府网站信息，截至周三早晨，商业旅行和定期旅行人员在边境的等待时间大约为7个小时。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
+加拿大卡尔加里先驱报报道称：皇家骑警副队长科蒂斯·扎布洛基在新闻发布会上称参加库茨边境抗议活动的人将会被控告。
 
-总编：童谣
-编辑：飞虹
-校正/发稿：海阔天空1
+扎布洛基说：“毋庸置疑，那些在抗议点的犯罪活动违反刑法和省级法律，”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据报道，他补充道：“如我们所见那些活动是危险和鲁莽的，并且对居住在阿尔伯塔地区的人们造成非常消极的影响。”
+
+国会山报记者已经联络上皇家骑警以寻求更多评论。
+
+这次封锁发生在阿尔伯塔宣布将会取消一系列新冠肺炎相关限制，包括终止居民疫苗护照。
+
+这次示威活动起始于抗议反对新冠肺炎相关命令和条款对卡车司机的影响。
+
+据加拿大警方称，这项活动已经蔓延到加拿大的很多城市，同时这项活动从美国汲取了“重要因素”，也促进了对“威胁”和“非法“行为的“几项犯罪调查”。
+
+原文链接：
+[https://thehill.com/policy/international/americas/593467-second-us-canada-crossing-disrupted-by-freedom-protests](https://thehill.com/policy/international/americas/593467-second-us-canada-crossing-disrupted-by-freedom-protests)
+
+素材採編：妙喜小油鍋
+校对：妙喜小油鍋
+发布：爱放飞
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

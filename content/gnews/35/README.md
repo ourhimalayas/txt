@@ -2,35 +2,24 @@
 ---
 
 
-## 中共间谍网试图操控澳洲议员选举被挫败
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1995457/)
+## 澳将研究开展核潜艇合作 中共威胁要打开潘多拉魔盒
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1995629/)
 
-作者：纽约香草山 – 侠肝义胆
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-外媒2月11日消息：一个中共间谍网试图资助新南威尔士州工党候选人，当选澳大利亚议会议员。但该阴谋被挫败，澳洲反间谍机构成功阻止了中共间谍将特定候选人安插到工党的预选程序中。
+撰稿：东京樱花团/神的带领
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-9-scaled.jpg)
+2月11日，中共外交部发言人赵立坚主持例行记者会。
 
-据称，操纵这一阴谋的是一位在澳洲和中共国都有很深关系的富商，另有多个澳洲媒体证实，中共情报机构正是这起阴谋的幕后黑手。澳洲反间谍机构负责人周三晚上，公开披露了这一消息，他证实澳洲反间谍机构已经挫败了中共干涉澳洲选举的企图。
+有记者提问，据报道，2月10日，澳大利亚外交部发言人接受澳国内媒体采访表示，澳外交部已在首都和维也纳投入更多外交和法律人员力量，研究应对澳与美、英成立三边安全伙伴关系(AUKUS)并开展核潜艇合作带来的政治、法律以及监管方面的影响。三国已明确重申致力于履行各自防扩散义务，希望国际社会能够以负责任态度传播真实信息，而非虚假或错误信息。中方有何评论?
 
-参考链接：
+赵立坚指出，美英澳无视国际社会关切，执意推进核潜艇合作，充分暴露了他们在防扩散问题上的双重标准，这将为解决包括伊朗核、朝鲜核等地区核热点问题带来深远的负面影响。相关合作还可能打开潘多拉魔盒，引发其他无核武器国家起而效尤，严重损害国际核不扩散体系。
 
-- [Chinese spies attempted to install Labor candidates in federal election](https://www.theage.com.au/politics/federal/chinese-spies-attempted-to-install-labor-candidates-in-federal-election-20220211-p59vmj.html)
+中共外交部多次威胁西方世界要打开潘多拉魔盒，每一次中共都有疯狂的行动。此次针对美英澳核潜艇合作，中共再一次威胁打开潘多拉魔盒，不知中共要给世界带来什么灾难。但是，中共每疯狂一次，就会助长一次排华、排亚的血雨腥风。中国共产党不灭，世界永无宁日。
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
-
-总编：童谣
-编辑：童谣
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

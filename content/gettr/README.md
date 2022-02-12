@@ -24,16 +24,6 @@
 
 ---
 
-**:arrows_clockwise: miles 已轉發**
-
-`@jsdfposjpqyuee1 2/12/2022 3:44 AM (UTC)`
-
-What the FUCK!<br/>🤬🤬🤬
-> `@wensu 2/12/2022 2:11 AM (UTC)`<br/>是刚被拐到穷地方的，<br/>想逃，被全村之力围捕，<br/>这种绑人手法好专业，<br/>这是非法拘禁，就是是犯罪！😠😈👹🤧
-![img](https://media.gettr.com/group24/getter/2022/02/12/02/aec60afe-2745-a078-ccbc-e14b204a2114/out.jpg)
-
----
-
 `@miles 2/12/2022 2:33 PM (UTC)`
 
 2月12号：尊敬的战友们好，你们健身了吗？传播CCP病毒，疫苗解药真相了吗？七哥继续和大家分享，昨天大直播中，我没回答完的问题……<br/>一切都已经开始！
@@ -158,6 +148,13 @@ EP9: The Villains. Let's tear down the monstrous lies of this despicable #HBO #V
 
 2/9/2022 Miles Guo: It is outrageous that UBS sold my family's stocks to the CCP-related funds in 20 seconds, and the people involved will eventually appear in court to explain the whereabouts of the stocks and how they were connected to the CCP. UBS will have no choice but to submit to the court the information regarding its secret deposits and client list<br/><br/>2/9/2022 文贵直播：UBS竟然在20秒内就把文贵家族的股票卖给了中共的基金；相关人士最终将出庭解释股票的下落以及他们是如何跟中共建立联系的；UBS将不得不向法庭提交其秘密存款信息和秘密客户名单<br/>
 ![img](https://media.gettr.com/group22/getter/2022/02/10/15/d2f9064d-5feb-be44-d566-36a9b8e47327/out.jpg)
+
+---
+
+`@miles 2/10/2022 1:52 PM (UTC)`
+
+2月10号：尊敬的战友们好，你们健身了吗？传播C C P病毒！疫苗解药真相了吗？共产党正在北京进行的绑架冬奥会的一系列的无法律．无规则的无底线的行为．都将给中国人在世界上带来无法挽回的负面影响，可能导致中国人在世界上几代人都无法改变的排华危机……
+![img](https://media.gettr.com/group50/getter/2022/02/10/13/185297bf-d548-0191-11f9-3d18117f8cc5/out.jpg)
 
 ---
 

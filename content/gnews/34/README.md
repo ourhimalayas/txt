@@ -2,35 +2,41 @@
 ---
 
 
-## 美国务卿表示中共国对澳洲贸易制裁将适得其反
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1995458/)
+## 中共疫情清零政策可能损及全球经济增长&#8211;日央行审议委员中村豊明
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/1995651/)
 
-作者：纽约香草山金融部 – AT
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-据外媒2月11日报道，美国国务卿布林肯将出席美日印澳四方安全对话外长会议。在接受澳洲媒体采访时，布林肯表示，中共国对澳洲的贸易制裁将适得其反，澳洲奋起反抗，为全世界树立了榜样。中共以经济手段逼迫澳洲，蒙受的损失已经超过澳洲。中共国打乱了自己的供应链，而澳洲已经有效地分散了市场。
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image003-2.png)
+**路透东京****2****月****9****日**** – ****日本央行审议委员中村豊明周三表示，中国对疫情的零容忍政策可能延长供应链中断和全球通胀压力持续的时间，从而拖累全球经济增长。****
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/11-8.png)
+****此前国际货币基金组织****(IMF)****总裁格奥尔基耶娃在上个月警告说，鉴于高度传染性****Omicron****变体的出现，中国应该重新评估其清零政策。**
 
-当天，在墨尔本召开的四方安全对话上，四国外交部长共同讨论反制中共散播假消息和经济胁迫，以及大家共同关心的俄乌危机。
+**中村豊明在一次演讲中说，”在Omicron感染扩大的情况下，清零政策有可能拖累全球经济，并延长全球供应链中断和通胀压力。”
 
-参考链接：
-
-- [https://www.chinapress.com.my/?p=2852102](https://www.chinapress.com.my/?p=2852102)
+中村豊明表示，日本企业会以多快的速度将不断上涨的原材料成本转嫁给家庭，这存在不确定性，也是该国经济面临的风险之一。**
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
 
-总编：童谣
-编辑：飞虹
-校正/发稿：海阔天空1
+**推出问题，敲出真相，爆料在路上！**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**请关注和订阅我们的以下账号：**
+
+**新西兰伊甸农场盖特**：https://gettr.com/user/himalayanz
+
+**【玫瑰看新闻】盖特**：https://gettr.com/user/rosenews
+
+**玫瑰看新闻YouTube账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**Rose news**
+
+**【玫瑰看新闻】推特账号**：
+
+**Rose News (@RoseNews4)a**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

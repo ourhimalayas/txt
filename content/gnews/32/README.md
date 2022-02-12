@@ -2,37 +2,27 @@
 ---
 
 
-## 美国宣布向台湾出售爱国者导弹
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1995460/)
+## 美国好时巧克力正在退出中共国市场
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1995755/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-美国政府2月7日宣布，它已批准向台湾出售旨在改进该岛导弹防御系统的设备和服务，估计成本为 1 亿美元。这是自去年1月拜登总统上任以来，美国第二次对台军售。
+**撰稿：日本东京方舟农场  海星**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/9-8.jpg)
+据《中央社》2月11日报导，美国知名巧克力制造商好时（Hershey’s）正在退出中共国市场。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-180.jpg)（图片来源：Shutterstock）
+该报导称，近期，美国好时在中共国的线上销售平台天猫旗舰店已经停止运营,而该公司另一线上销售平台京东自营店虽然仍在运营，但显示多款商品缺货，种种迹象表明好时巧克力正在退出中共国市场。
 
-该项交易旨在维持、维护和改进爱国者防空系统。还包括对传统制导增强型导弹和爱国者PAC-3导弹的现场监视支持，旨在确保爱国者导弹以及传统导弹库存可靠性和性能，并提供已部署导弹的定量可靠性评估。
+该报导指出，美国好时去年便已开始清算并注销位于中共国的三家子公司。其中，好时（上海）食品研发有限公司早在2021年3月3日就已开始清算，好时（中国）投资管理有限公司则于2021年11月20日开始清算，而好时商业（上海）有限公司于2021年12月29日正式被注销。据悉，目前好时（中国）已经撤离了其位于上海市浦东新区新梅联合广场的办公点,上述三家公司的法人代表早已离开中共国。
 
-美国国防部下属的国防安全合作局DSCA表示，本次军售将有助于维持台湾的导弹密度并确保其为空中作战做好准备。将有助于改善台湾的安全，维持该地区的政治稳定、军事平衡、和经济发展。
+此前，好时已提出与中共经销好时甜品店的公司解除合约，然而该公司却以违约为由通过中共上海市场监督管理局阻止好时办理注销登记手续，退出中共国市场。
 
 参考链接：
+1.[https://www.cna.com.tw/news/acn/202202110107.aspx](https://www.cna.com.tw/news/acn/202202110107.aspx)
+2.[https://www.yangtse.com/content/1385155.html](https://www.yangtse.com/content/1385155.html)
 
-- [U.S. announces sale of Patriot missiles support deal to Taiwan](https://focustaiwan.tw/politics/202202080002)
+素材采编：海星
+编辑：青城道姑
+发布：爱放飞
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
-
-总编：童谣
-编辑：童谣
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

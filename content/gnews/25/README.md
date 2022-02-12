@@ -2,45 +2,28 @@
 ---
 
 
-## 由于“自由”抗议活动美国加拿大间的过境通道第二次被中断
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1995652/)
+## 秘翻在线 ：司法公正不容侵犯！美国两位纽约州法官因性丑闻和滥用职权而离职
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1996168/)
 
-**翻译：【日本东京方舟农场】Skyfrog**
+**撰稿：William**
 
-持续的“自由车队”抗议活动反对新冠肺炎限制令，周二抗议者堵塞了连接美国和加拿大之间的第二个过境通道，即位于库茨边境连接阿尔伯塔和蒙大拿的通道。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-179.jpg)（图片来源：thehill.com）
-仅一天时间抗议者就封锁了位于美国北部的美-加直接最繁忙的过境点：连接底特律和温莎之间的大使桥的交通通道。
+**校对：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/00.jpg)图片来源：[www.deccanherald.com](http://www.deccanherald.com/)
+根据《纽约邮报》(New York Post)的报导, 一个监管组织周二宣布，一名美国纽约州法官被指控，关于他贿赂一名未成年女孩以试图让她和自己儿子发生性关系，并在调查中提出辞职。自 1999 年以来，乔治·威特林格(George Wittlinger）一直担任纽约州哥伦比亚县安克拉姆镇(Ancram Town )法院的法官，他已于 去年12 月 31 日辞职，此前司法行为委员会通知他正在调查有关他迫使未成年人与儿子发生性关系的指控。
 
-据阿尔伯塔皇家骑警称，位于库茨边境南北向的过境通道都被抗议者关闭。
+哥伦比亚县的诉讼表示，在据称受害者对法官乔治·威特林格和他的儿子丹尼尔·威特林格(Daniel Wittlinger)提起爆炸性的 700 万美元民事诉讼后，委员会开始调查此事，声称该法官不只迫使受害女子与儿子发生性关系，还向她提供金钱对该法官发生性举动。
 
-周二晚间阿尔伯塔皇家骑警推特称:“请注意，由于抗议者的活动导致库茨边境南北向的过境通道关闭。”
+委员会行政长官罗伯特·滕贝克健(Robert Tembeckjian )在一份声明中说：“为了维护公众对法院的信心，必须迅速公平地处理性不当指控，特别是涉及法官和未成年人的指控。他表示“无论此类严重指控是否导致刑事或民事诉讼，司法行为委员会都会进行调查并采取适当的纪律处分。让法官永久离开替补席是我们最重要的权力，这就发生在这里。”
 
-一名皇家骑警发言人告诉国会山报在周二当地时间晚上8点左右，抗议者使用农用拖拉机封锁了库茨边境的过境通道。
+另外，根据Syracuse 的报导，同样在纽约州，一位负责培训数千名当地法官的州法院系统培训项目主任在被指控裙带关系后宣布辞职。身为萨拉托加县(Saratoga County)法官兼该州司法法院支持办公室全职主任的南希·苏努克金(Nancy Sunukjian)被指控为亲戚的未婚妻找到一份工作，然后对举报她违规的法院雇员进行报复。
 
-这份声明补充道：“即使边境没有被关闭，车辆无法安全的通行。”
+苏努克金的案件由该州的司法行为委员会(Judicial Conduct Commission)处理，该委员会将处理对现任法官的不当行为指控。苏努克金是沃特福德镇( Waterford)的一名法官。她的辞职于 2 月 15 日生效。她将不再被允许寻求或担任司法职务。行为委员会的声明中没有公开指控的其他细节。 苏努克金自 2010 年以来一直是镇法官，她目前的任期本应在 2023 年结束。
 
-依据加拿大政府网站信息，截至周三早晨，商业旅行和定期旅行人员在边境的等待时间大约为7个小时。
+“每当有人因裙带关系或偏袒而获得法院系统工作时，司法行政就会受到损害，”委员会管理员罗伯特·H·滕贝克健(Robert H. Tembeckjian)在新闻稿中写道。 “即使受雇人可能有资格，通过法官的特殊影响而不是根据业绩获得该职位，并对反对不法行为的人进行报复，这会削弱公众对司法公正的信心。”
 
-加拿大卡尔加里先驱报报道称：皇家骑警副队长科蒂斯·扎布洛基在新闻发布会上称参加库茨边境抗议活动的人将会被控告。
+**新闻来源：**[https://nypost.com/2022/02/08/ny-judge-resigns-over-probe-into-claims-of-bribing-teen-to-sleep-with-his-son/](https://nypost.com/2022/02/08/ny-judge-resigns-over-probe-into-claims-of-bribing-teen-to-sleep-with-his-son/)
 
-扎布洛基说：“毋庸置疑，那些在抗议点的犯罪活动违反刑法和省级法律，”
-
-据报道，他补充道：“如我们所见那些活动是危险和鲁莽的，并且对居住在阿尔伯塔地区的人们造成非常消极的影响。”
-
-国会山报记者已经联络上皇家骑警以寻求更多评论。
-
-这次封锁发生在阿尔伯塔宣布将会取消一系列新冠肺炎相关限制，包括终止居民疫苗护照。
-
-这次示威活动起始于抗议反对新冠肺炎相关命令和条款对卡车司机的影响。
-
-据加拿大警方称，这项活动已经蔓延到加拿大的很多城市，同时这项活动从美国汲取了“重要因素”，也促进了对“威胁”和“非法“行为的“几项犯罪调查”。
-
-原文链接：
-[https://thehill.com/policy/international/americas/593467-second-us-canada-crossing-disrupted-by-freedom-protests](https://thehill.com/policy/international/americas/593467-second-us-canada-crossing-disrupted-by-freedom-protests)
-
-素材採編：妙喜小油鍋
-校对：妙喜小油鍋
-发布：爱放飞
+[https://www.syracuse.com/crime/2022/02/ny-judge-who-trains-other-judges-resigns-after-accusations-of-nepotism.html](https://www.syracuse.com/crime/2022/02/ny-judge-who-trains-other-judges-resigns-after-accusations-of-nepotism.html)
 
  
 

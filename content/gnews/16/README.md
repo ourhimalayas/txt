@@ -2,36 +2,28 @@
 ---
 
 
-## 有声|芬太尼原料来自中共国，中共明知故犯
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1995867/)
+## 有声|UBS立案成功——爆料革命取得突破进展
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1996255/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+配音：香草山巡管部– 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-23.png)
+2月9日《文贵大直播》消息，郭文贵先生起诉UBS瑞银集团在英国伦敦被当地法院获批正式立案。这是爆料革命与沼泽地暗黑势力第一次在法庭上公开正面较量。新中国联邦也将通过此次司法大战，找回共产党在西方藏匿的本该属于中国人民的财富，揭开沼泽地黑暗势力与中共勾兑的金钱线索及邪恶黑幕。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1123-768x432-1.png)
-米尔格拉姆进一步表示，中共国现在的化学行业几乎不受监管，这些化学品每天被运往墨西哥，及其他拉丁美洲国家。解决芬太尼危机的关键，就是阻止这些化学品不能进入墨西哥。
+共产党曾经不惜一切代价妄图取消此立案，UBS几乎收买了所有律师。郭先生顶住巨大压力，历经七年的努力，终于立案成功，这也证明了法庭承认有索赔的事实存在。
 
-郭先生在2019年8月的爆料中警告世界，中共利用芬太尼搞乱、搞弱、搞死美国，是中共3F美国计划的核心战术之一。美国终于认识到，中共就是芬太尼事件的真正凶手。
+文字版原文：[UBS立案成功——爆料革命取得突破进展](https://gnews.org/zh-hans/1989181/)
 
-文字版原文：[芬太尼原料来自中共国，中共明知故犯](https://gnews.org/zh-hans/1990347/)
+音频处理/发稿：Daxia
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

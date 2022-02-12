@@ -2,34 +2,28 @@
 ---
 
 
-## 有声|制衡中共影响力 布林肯将会太平洋岛国领袖
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1995853/)
+## 有声|英格兰将在2月取消中共病毒隔离措施
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1996227/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-2月11日，美国国务卿布林肯将参加，于澳大利亚墨尔本举行的美国、日本、印度及澳洲“四方安全对话”。据悉，此次四方安全对话的议程包括，反制中国散播虚假消息和经济胁迫、关注俄乌危机，以及“四方安全对话”与东盟等区域组织加强关系等议题。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1122.png)
-次日，布林肯还将造访斐济，将与斐济总理巴依尼马拉马商讨强化双边关系，并与18位太平洋岛国领袖举行视讯会议，为太平洋岛国提供安全保障和必要的物资援助。
+配音：香草山巡管部– 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9D%A1%E5%B9%85.png)
+周三，首相鲍里斯·约翰逊突然宣布，如果感染率保持稳定，英格兰将在本月底取消对中共病毒检测呈阳性后、自我隔离的法律要求。
 
-文字版原文：[制衡中共影响力 布林肯将会太平洋岛国领袖](https://gnews.org/zh-hans/1990303/)
+英格兰在1月底已经取消了几乎所有的冠状病毒限制，几周前，为促进经济活动，政府将中共病毒患者的最低自我隔离期从7天缩短到5天。同时，英格兰已经逐渐放宽了有关国际旅行的规定，旅行者在抵达英国之前要完全接种疫苗，或抵达之后进行中共病毒检测的需求，也将于本周晚些时候结束。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+文字版：[英格兰将在2月取消中共病毒隔离措施](https://gnews.org/zh-hans/1988251/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
