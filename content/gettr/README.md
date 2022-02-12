@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/12/2022 4:14 AM (UTC)`
+
+2/11/2022 Miles Guo: Although my family is implicated by the PAG case, I will never compromise and will respect the American law and justice system even more. Fellow fighters should not bring their pressure and pain to their families, and the only way to keep them safe is to take down the CCP!<br/><br/>2/11/2022 文贵直播：虽然文贵的家人因PAG案受到牵连，但文贵绝不妥协，并会更加尊重美国的法律和司法体系；战友们不应把自己的压力和痛苦带给家人，让家人安全的唯一方式是灭共！
+![img](https://media.gettr.com/group4/getter/2022/02/12/04/e1fc7512-54ee-5502-13b2-2d480ced2270/out.jpg)
+
+---
+
 `@miles 2/12/2022 4:08 AM (UTC)`
 
 2/11/2022 Miles Guo: I said in 2018 that the US would enact laws to sanctions against the CCP, and now the bill has been officially introduced. Those who have not taken the COVID jabs will be the winners. Putin directly questioned the CCP's deception during the Winter Olympics, while Xi was lied to by his vassals. The CCP's ruling by deception would be the most powerful weapon to take down the CCP.<br/><br/>2/11/2022 文贵直播：文贵在2018年就说美国要立法制裁中共，现在法案已被正式提出，没打疫苗的人才会是赢家；普京在冬奥会质疑中共忽悠，而习却被蒙在鼓里，中共的以骗治国将成为灭共最有力的武器<br/>
@@ -148,13 +155,6 @@ EP9: The Villains. Let's tear down the monstrous lies of this despicable #HBO #V
 
 2/9/2022 Miles Guo: Three major events today - 1) I have started to openly fight the swamp in court for the first time; 2) I will go to the UK and Japan to fight the CCP at close range; 3) I will prepare for the worst in case of the CCP's threats. We will wage a full-scale war on the PAG case and will thoroughly expose the CCP’s BGY scheme and infiltration against the West<br/><br/>2/9/2022 文贵直播：今天的三件大事 - 1) 首次在法庭上跟沼泽地公开较量; 2) 文贵将去英国与日本与中共短兵相接；3) 面对中共的威胁，文贵将做好一切最坏准备；我们将对PAG案全面开战并彻底揭露中共对西方的蓝金黄和渗透<br/>
 ![img](https://media.gettr.com/group47/getter/2022/02/09/22/de89e9c8-3bf5-1d8b-f5be-32a40b2bfe9b/out.jpg)
-
----
-
-`@miles 2/9/2022 10:48 PM (UTC)`
-
-2/9/2022 Miles Guo: The case of  Weijian Shan and PAG reveals the dark secrets of the Chinese Communist Party's deep penetration of the U.S. barristers and the judiciary, and the case filing of UBS in the British court opens the door to the evil collusion between the swamp and the CCP<br/><br/>2/9/2022 文贵直播：单伟建和PAG案揭露了中共深度渗透美国大律师界和司法界的黑幕，瑞银(UBS)在英国法院立案是打开了沼泽地和中共邪恶勾兑的大门
-![img](https://media.gettr.com/group35/getter/2022/02/09/22/d9bf7075-c850-3e88-e9e3-788a17510413/out.jpg)
 
 ---
 
