@@ -2,20 +2,21 @@
 ---
 
 
-## 仅最近几个小时意大利不同地区因新冠疫苗死亡的人数在增加。
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1996825/)
+## 中共试图改变世界其他国家的法律和规则 只为了引渡郭文贵先生
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/1996834/)
 
-#### 编译                  意大利达芬奇农场             小白鸽
-![This image has an empty alt attribute; its file name is Schermata-2022-02-12-alle-19.49.15-1.png](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-12-alle-19.49.15-1.png)图片来源：eventiavversinews.it
-因打疫苗而死亡的人数在增加，但是几乎不被任何媒体所报道。只有某些地方的报纸有些报道。2月11日意大利有两份地方报纸报道了三位因疫苗接种死去的人。两位五十多岁，一位六十多岁。
+共产党当初四处蓝金黄，不惜动用一切可用的势力，试图改变西方世界国家的法律和规则，只为了引渡郭文贵先生。
 
-最近几个小时在科森扎医院有两位感染新冠病毒的患者去世。一位是56岁， 另一位是64岁。他们俩都接种了第三剂疫苗。另一位57岁的男子也在维泰博的一家医院去世，他接种了两剂疫苗。
+近期，共产党支持的非洲国家都在经历一系列的政变。当初中共为了蓝金黄，购买安哥拉的石油，给了高达40%的回扣。一旦这些非洲国家反对党上台，非洲也将站到灭共的阵营里。
 
-几天前一位49岁的那不勒斯男子也去世了， 他接种了三剂疫苗。这位男子从事建筑业，被亲戚和朋友称为“天使”。他曾想为他的家人而活下去， 努力恢复健康，但是疫情大流行夺去了他的健康。
+香港十大法官之一，曾在香港判决查封郭先生家族在DBS银行的几百亿港元。这位法官透露当初被共产党用黑社会手段威胁了，如果不判决查封，中共就会公开他在东莞找小姐和他家族非法获利的信息。
 
-原文链接：[https://www.eventiavversinews.it/aumentano-i-decessi-tra-vaccinati-nelle-ultime-ore-56enne-e-64enne-con-tre-dosi-a-cosenza-e-57-con-due-dosi-a-viterbo-nei-giorni-scorsi-49enne-con-tre-dosi-morto-in-campania/](https://www.eventiavversinews.it/aumentano-i-decessi-tra-vaccinati-nelle-ultime-ore-56enne-e-64enne-con-tre-dosi-a-cosenza-e-57-con-due-dosi-a-viterbo-nei-giorni-scorsi-49enne-con-tre-dosi-morto-in-campania/)
+这次冬奥会过后，中共在国际上已无任何信用可言了。
 
-编辑、上传：  Xiao    baite
+视频来源: 20220211—郭先生大直播
+视频制作: 文星光，梦田
+文案:文星光
+上传: 零点
 
  
 
