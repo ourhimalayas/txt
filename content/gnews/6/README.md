@@ -2,22 +2,20 @@
 ---
 
 
-## 加拿大国会议员首提加密货币法案
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/1992630/)
+## 中国人相信谎言， 而且维护谎言
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1992739/)
 
-加拿大温哥华扬帆农场    平民正道
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-据加拿大《环球邮报》2月9日报导，有国会议员近日提出为“数字货币应用”建立相应的国家金融系统。这将是该国议会首个直接针对未来数字资产行业的专项法案。
+*发布：陶子*
 
-报导称，该行业法案由保守党议员米歇尔于日前提出，要求加拿大财政部在近期创建一个发展数字货币体系的框架，并在准备过程中咨询数字货币领域的专家，以减少从业者的行政负担。
-
-对此，该议员表示，尽管数字资产行业近年来的蓬勃发展已势不可挡，但加拿大政府官员和立法者都缺乏对该领域的基本认知。而以上法案程序将能填补公共部门和私营企业在这个问题上的空白。
-
-据悉，数字货币现已成为国会和财政部门商讨预算的热门话题，外界预计该法案将在未来几个月内得到下议院的更多辩论，并极有可能在今年9月份之前进行投票表决。
-
-* * *
-
-编辑： 平民正道    发布：平民正道
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

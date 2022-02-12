@@ -2,57 +2,36 @@
 ---
 
 
-## 郭先生直播中所说的“莱彻斯登”是哪里？
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1992402/)
+## 辉瑞公司推迟了 FDA 为 5 岁以下儿童接种 Covid 疫苗的要求
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1992456/)
 
-作者：香草山教育部-haloha
+2022-02-11
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/logo-5-768x103-17.jpg)
+作者：伯克利洛夫莱斯JR
+翻译：沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2022/02/A6TM__CVSU08JKMNA42OS.png)图片来源：https://www.dw.com/
+Pfizer-BioNTech 正在推迟向美国食品药品监督管理局 (Food and Drug Administration) 的滚动使用，以扩大其两剂 中共病毒疫苗对 6 个月至 4 岁儿童的使用。
 
+此举意味着该年龄段的疫苗将在未来几周内无法获得，这对渴望为幼儿接种疫苗的父母来说是一个挫折。
 
+辉瑞周五表示，将等待其三剂系列疫苗的数据，因为它认为三剂“可能为这个年龄组提供更高水平的保护”。 该公司表示，预计将在 4 月初发布第三剂数据。
 
+辉瑞在 12 月表示，在对 2 至 4 岁儿童进行的试验中，两剂疫苗并未产生足够强的免疫反应。对于幼儿，辉瑞的疫苗剂量为 3 微克，对于 5 至 11 岁的儿童，剂量更高，为 10 微克。
 
+尽管如此，该公司本月仍要求 FDA 批准前两剂，并计划在未来几周内提交第三剂的额外数据，完整的疫苗接种系列将是三剂。
 
-郭先生在直播中时常会提及“莱彻斯登”这个名字，相信大多数战友都对这个名字有些陌生，那么今天我们就来简单介绍一下这个国家。
+在下周的咨询委员会会议之前，预计 FDA 将在周五公布对辉瑞数据的分析，FDA周五表示，会议已被推迟。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-43.png)图片来源：[http://www.cndxsd.com/uploadfile/map/2015011321594276.jpg](http://www.cndxsd.com/uploadfile/map/2015011321594276.jpg)
+两位熟悉 FDA 计划的人士表示，外部专家已经对该机构进行了大量反对，他们担心辉瑞的数据不够充分。 其中一位知情人士说，专家们认为，他们的担忧在FDA内部“被置若罔闻”。
 
-“莱彻斯登”是英文Liechtenstein的音译名，中文名为：列支敦士登公国或列支敦士登亲王国（简称“列支敦士登”），这是一个位于阿尔卑斯山脚下的袖珍小国，地处瑞士与奥地利两国之间，是世界上仅有的两个双重内陆国之一（另一个为乌兹别克斯坦）。
+来源链接：[Pfizer postpones FDA request for Covid vaccine for kids under 5](https://t.co/dgisWykQ2q)
 
-列支敦士登领土面积约160平方公里，只有西侧约三分之一的面积位于平坦的河谷里，其余地区大都属于山地。列支敦士登虽然并不和德国交界，但是因为人口大多数都是日耳曼民族，因此官方语言是德语，人口数量约3.8万。
+编辑：LILY
+发布：肥鯮
 
-1868年，列支敦士登对外正式宣布成为永久中立国，因此在两次世界大战中均没有遭到战火的蹂躏。列支敦士登又和邻国瑞士保持了良好的经济外交合作，两国成立了关税同盟，列支敦士登使用瑞士法郎做为自己的货币，并由瑞士负责本国的外交和军事国防。
-
-虽然列支敦士登地理环境并不优越，但在二战之后，这个原本以农业为主的山区小国，经过自身持续的发展，现已成为金融强国，是全世界最富有的国家之一，人均GDP常年高居世界前三。
-
-参阅链接：
-
-[https://oushengpartners.com.cn/article/osfotalk\_677.html](https://oushengpartners.com.cn/article/osfotalk_677.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-26.jpg)
-
-编辑：飞虹
-
-校对/发稿：遍地开花
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/logo-5-768x103-18.jpg)
-
-
-
-
-
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

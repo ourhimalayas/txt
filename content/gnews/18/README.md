@@ -2,20 +2,20 @@
 ---
 
 
-## 非洲国家政变,中共支持的人都会打水漂
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1992542/)
+## 宪法律师警告当局停止非法侵犯抗议者
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/1992595/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+加拿大温哥华扬帆农场    平民正道
 
-*发布：陶子*
+据加拿大媒体【真北方】2月9日报导，渥太华警方正在自由车队抗议集结现场没收燃料并逮捕携带空燃料桶的卡车司机。宪法律师因此警告当局，这些恐吓或逮捕行为都是非法的。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+报导称，此前渥太华警方曾发出公告，任何试图为示威者提供物质支持的人都可能被逮捕。[宪法自由司法中心]的律师对此表示，为和平集会的参加者带来食物、水、燃料或其他生活物资的做法没有违反任何法律。
+
+此外，警方干扰和阻碍合法使用个人财产才是非法的，将和平抗议称为刑事犯罪也是误导性和欺骗性的。而非法没收人们试图取暖的燃料将会严重危及和平抗议者的人身安全。
+
+* * *
+
+编辑： 平民正道    发布：平民正道
 
  
 

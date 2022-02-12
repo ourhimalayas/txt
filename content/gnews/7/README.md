@@ -2,8 +2,8 @@
 ---
 
 
-## 谷爱凌谷燕事件 对海外华人都是伤害
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1992619/)
+## 锁链女事件 会激起中共党内的瓦解
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1992722/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
