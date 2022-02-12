@@ -2,10 +2,10 @@
 ---
 
 
-## 郭先生直播厅-七哥谈“红色”
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1992165/)
+## 郭先生直播厅-新中国联邦2022年最重要做什么？
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1992198/)
 
-设计者：纽约香草山设计部 — 战友时光
+设计者：纽约香草山设计部 — 喜马拉雅大喵儿
 
 
 
@@ -18,11 +18,24 @@
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-20220210__1.png)红色给我们带来力量，共产党霸占了红色，抢夺了我们的自由，让我们失去了未来、失去了家人，我们只有打开“甜蜜蜜运动”这把钥匙，只有团结、合作，才能消灭CCP。 
-—2022年1月31日郭文贵先生GTV/GETTR直播![](https://assets.gnews.org/wp-content/uploads/2022/02/2-20220210-04.png)Red color brings energy. But by using the red color for its flag, the CCP has robbed us of our freedom, leaving us with broken families and no future. In order to take down the CCP, we have to unite and collaborate with others, we have to make the best of the “Sweet as Honey” campaign. 
-– Miles Guo, GTV/GETTR livecast on Jan. 31, 2022![](https://assets.gnews.org/wp-content/uploads/2022/02/3-20220210-02.png)红色不能让共产党垄断，就像中国的权利不能被共产党垄断一样。幸福和健康也不能共产党说了算，像“恭喜发财”得党先强大。我们的红是铲除邪恶的红，而不是共产党杀人后血染的红旗。 
-—2022年1月31日郭文贵先生GTV/GETTR直播![](https://assets.gnews.org/wp-content/uploads/2022/02/4-20220210-05.png)We cannot allow the CCP to monopolize the red color, the same reason we cannot allow them to monopolize all the power and rights. Neither should we allow them to decide on who gets to be happy and healthy, while the Party itself keeps accumulating wealth and power. The red color of our new flag symbolizes eradicating the evil, not the blood-stained red of the CCP flag, a result of many massacres. 
-– Miles Guo, GTV/GETTR livecast on Jan. 31, 2022
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-52ac6b5cbc994616-scaled.jpg)
+新中国联邦2022年最重要做什么？ 
+一、一心一意灭共； 
+二、全力以赴扩大新中国联邦被国际和各国家主权的认可度； 
+三、全力以赴在全球建立更多的农场； 
+四、让更多的战友从国内被救出来，同时让更多国内的人知道我们新中国联邦； 五、让所有新中国联邦的战友们在Ｇ系列里赚更多的钱，获得更多的机会； 
+六、让全世界爱好正义的、被共产党病毒伤害的和受到疫苗毒武器设计的人，找到病毒真相，找到毒疫苗解决的办法，要把全世界受到共产党经济威胁、超限战的人紧紧地和我们团结在一起，建立我们真正的爆料革命的国际被公认可的社交媒体大平台； 
+七、新中国联邦人要统一好我们的作战目标，统一行动，保命、保财、报仇。更重要的是让我们所有的战友都能共同度过这个至暗的时代。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-1-1-scaled.jpg)
+Top 7 Priorities for the NFSC in 2022 – 
+1. Be fully committed to the mission of Take Down the CCP; 
+2. Make every effort to increase the recognition of the NFSC, and make as many sovereignty countries as possible to recognize the NFSC; 
+3. Make every effort to establish many new Himalaya farms; 
+4. Rescue more fellow fighters from mainland China, while making more Chinese people aware and educated about the NFSC; 
+5. Continue to make NFSC fellow fighters’ investments in G-series appreciate more in value, while adding more opportunities； 
+6. Unite all the justice-loving people across the world; help those harmed by the virus or vaccine find out the truth about the virus, and solutions to counter the poisonous COVID vaccine. To unite around us all those harmed by the CCP’s economic threats and the unrestricted warfare, and to build the social media of the WM and NFSC, making it well-respected internationally; 
+7. All fellow fighters shall always act towards the same objective, and operate under one unified and coordinated strategy. “To save lives, to protect wealth, and to avenge”. More importantly, help our fellow fighters ride out the darkest hours in human history.
+
 
 
 **编辑/发稿：小鹿**

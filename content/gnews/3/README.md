@@ -2,8 +2,8 @@
 ---
 
 
-## 美国在用国旗保护七哥安全
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1992257/)
+## 谷爱凌事件敲响海外华人的警钟
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1992337/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

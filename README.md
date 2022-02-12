@@ -15,76 +15,76 @@
 
 ---
 
-### [【G时新闻】加拿大拖车公司拒绝把自由车队的卡车拖走](/content/gnews/1/README.md)
+### [一条来自卡尔加里警员的信息](/content/gnews/1/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [中共篡改法律，不尊重规则](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
+
+### [谷爱凌事件敲响海外华人的警钟](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [众议院紧急辩论-加拿大总理特鲁多选择继续为疫苗暴政站台](/content/gnews/4/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [【G时新闻】加拿大拖车公司拒绝把自由车队的卡车拖走](/content/gnews/5/README.md)
  ` G-时新闻`
 
-### [今日盖特大V推荐 — 埃莉斯·斯蒂芬尼克（Elise Stefanik）](/content/gnews/2/README.md)
+### [今日盖特大V推荐 — 埃莉斯·斯蒂芬尼克（Elise Stefanik）](/content/gnews/6/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美国在用国旗保护七哥安全](/content/gnews/3/README.md)
+### [美国在用国旗保护七哥安全](/content/gnews/7/README.md)
  ` 雅典娜GNotes`
 
-### [美国中共病毒确诊逼近8000万凸显灭共大计迫在眉睫](/content/gnews/4/README.md)
+### [美国中共病毒确诊逼近8000万凸显灭共大计迫在眉睫](/content/gnews/8/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [不收捐款，可以有偿服务](/content/gnews/5/README.md)
+### [不收捐款，可以有偿服务](/content/gnews/9/README.md)
  ` 雅典娜GNotes`
 
-### [七哥绝不伸手 要战友捐一分钱](/content/gnews/6/README.md)
+### [七哥绝不伸手 要战友捐一分钱](/content/gnews/10/README.md)
  ` 雅典娜GNotes`
 
-### [2022年2月11日文贵先生直播摘要及音频—银河系农场](/content/gnews/7/README.md)
+### [2022年2月11日文贵先生直播摘要及音频—银河系农场](/content/gnews/11/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [七哥都在运筹的情况下行动](/content/gnews/8/README.md)
+### [七哥都在运筹的情况下行动](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
 
-### [郭先生直播厅-喜支付](/content/gnews/9/README.md)
+### [郭先生直播厅-喜支付](/content/gnews/13/README.md)
  ` MOS Designer香草山设计部`
 
-### [郭先生直播厅-新中国联邦2022年最重要做什么？](/content/gnews/10/README.md)
+### [郭先生直播厅-新中国联邦2022年最重要做什么？](/content/gnews/14/README.md)
  ` MOS Designer香草山设计部`
 
-### [七哥是美国最重要最需要保护的人](/content/gnews/11/README.md)
+### [七哥是美国最重要最需要保护的人](/content/gnews/15/README.md)
  ` 雅典娜GNotes`
 
-### [全球疫情更新（服用缓释的褪黑素很重要）](/content/gnews/12/README.md)
+### [全球疫情更新（服用缓释的褪黑素很重要）](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
 
-### [西方看华人就是蓝金黄和骗](/content/gnews/13/README.md)
+### [西方看华人就是蓝金黄和骗](/content/gnews/17/README.md)
  ` 雅典娜GNotes`
 
-### [郭先生直播厅-七哥谈“红色”](/content/gnews/14/README.md)
+### [郭先生直播厅-七哥谈“红色”](/content/gnews/18/README.md)
  ` MOS Designer香草山设计部`
 
-### [谷爱凌今天有多出名，未来就有多惨](/content/gnews/15/README.md)
+### [谷爱凌今天有多出名，未来就有多惨](/content/gnews/19/README.md)
  ` 雅典娜GNotes`
 
-### [相由心生](/content/gnews/16/README.md)
- ` 雅典娜GNotes`
-
-### [众筹平台GiveSendGo意欲无视安大略省的干预命令，坚持向卡车司机转送捐款。](/content/gnews/17/README.md)
+### [众筹平台GiveSendGo意欲无视安大略省的干预命令，坚持向卡车司机转送捐款。](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [怎么看待谷爱凌](/content/gnews/18/README.md)
- ` 雅典娜GNotes`
-
-### [乌克兰新闻 &#8211; 现场直播：由于担心俄罗斯入侵，英国人被告知立即离开该国](/content/gnews/19/README.md)
+### [乌克兰新闻 &#8211; 现场直播：由于担心俄罗斯入侵，英国人被告知立即离开该国](/content/gnews/21/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [【G时新闻】阿尔伯塔成为加拿大第二个取消疫苗护照的省](/content/gnews/20/README.md)
+### [【G时新闻】阿尔伯塔成为加拿大第二个取消疫苗护照的省](/content/gnews/22/README.md)
  ` G-时新闻`
 
-### [郭文贵先生将移居日本和英国 全面加速灭共](/content/gnews/21/README.md)
+### [郭文贵先生将移居日本和英国 全面加速灭共](/content/gnews/23/README.md)
  ` 焦點20分`
 
-### [郭文贵先生告UBS 正式在伦敦立案](/content/gnews/22/README.md)
- ` 焦點20分`
-
-### [有声|北韩自夸称能藉飞弹试射震撼世界以对抗美国](/content/gnews/23/README.md)
- ` MOSREC`
-
-### [有声|加拿大卡车司机抗议影响边境口岸 白宫忧危及供应链](/content/gnews/24/README.md)
+### [有声|北韩自夸称能藉飞弹试射震撼世界以对抗美国](/content/gnews/24/README.md)
  ` MOSREC`
 
 ### [2022/02/11 英喜时事速递](/content/gnews/25/README.md)
