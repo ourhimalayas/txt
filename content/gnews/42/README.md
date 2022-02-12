@@ -2,39 +2,57 @@
 ---
 
 
-## 郭先生解读中美关系
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1994833/)
+## 变本加厉：奥地利推出疫苗证书合规检查站
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1994941/)
 
-作者：纽约香草山信息部 6zero4
+#### 【雅典娜观察】和您一起洞察世界
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+翻译：文扬
+编辑：文泓
 
-在2月6日的大直播中，郭文贵先生提到了上个世纪在中国活跃的一批美国商人的感触，即中美两个民族完全可以优缺点互补，一旦双方能够友好合作，世界势必得到永远和平与繁荣。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/9-9.png)图片来源：The Telegraph
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-8.37.18-PM-1.png)
 
-郭先生指出，回顾历史，美国在清朝末年帮助中国建立了清华大学和协和医院等公共基础设施，还向落后于世界的中国传授西方文明。彼时，美中双方开启了友好往来。 即使是当下，美国的餐饮品牌和高科技依然是中共国社会推崇的主流文化，其产品和其普世价值也一直为中国民间所真切向往。
+当地时间2月10日，据自然新闻报道，从3月15日开始，奥地利将对新冠疫苗证书进行抽查，包括在全国各地的交通站点。
 
-但郭先生也补充道，自中共加入世界贸易组织后，中共的经济开始飞速上涨，而这也导致美国的工人大量失业，工厂大规模倒闭。更甚者，中共还通过绑架美国的经济及其供应链的手段，威胁美国企业无偿将技术转让给中共国。同时，中共还妄图操控美国的经济，并且大肆向美国输入毒品、病毒以及毒疫苗。
+该计划将于2024年1月31日到期。在此之前，每个未接种疫苗的奥地利人现在将面临每年多达四次的单独罚款，每次增加到3,400欧元（约3,884美元）。
 
-对此，郭先生强调，中美两国之间并没有任何历史冲突，更重要的是，美国经济反而是中国人致富的唯一源泉。如今，由于中共向全世界释放的病毒，美国乃至世界都与中共产生了不可调和的冲突。至于未来可以预见的全球贸易供应链断裂、世界经济崩塌和人类生存遭受威胁，最终都将追责于中共。人类面临大重启，邪恶必然被消灭。
+除了检查站之外，奥地利政府还在努力建立一个官方登记册，记录该国所有已接种疫苗的人，让政府将能够更容易地针对未接种疫苗的人出台惩罚措施。
 
-参考链接：[2022年2月6日 文贵大直播](https://gtv.org/video/id=61ffc26b3621aa7415d64d51)
+二战期间纳粹德国也曾设立类似的公民登记处，奥地利再次将一个少数群体作为迫害对象——可能最终会被处决吗？
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-Shadow.png)
+目前德国正在出台类似的方法，努力迫使其公民遵守。就像在二战期间一样，德国和奥地利正一起带头建立一个两级社会，即可信任的人（接种疫苗）和不良的人（未接种疫苗）。
 
-编辑：静言
-总编：文特
-校正/发稿：我不在这里
+相反，丹麦最近结束了几乎所有的新冠限制政策，荷兰也是如此。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+奥地利当局透露，从今年2月1日起，两次注射的有效期每次只有180天，唯一的例外是18岁以下的人，他们的有效期是210天。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当入境奥地利时，完全接种的旅客将在270天后被要求打第三剂加强针。
+
+根据欧洲疾病预防和控制中心（ECDC）的数据，72.8%的奥地利人口现在已经接种了新冠“初级”疫苗，这比欧盟/欧洲经济区人口的平均接种率高出约2.3%。
+
+迄今为止，全国约有54.1%的人接受了加强针，政府还在力推第三针，政府将对不打第三针的完全接种者罚款或骚扰。
+
+根据世界卫生组织（WHO）的数据，过去一周，奥地利登记了231697个新冠阳性病例，此外还有84人死亡。自大流行开始以来，该国报告了近200万个阳性病例，并有13,671人死亡。
+
+有一位读者写了作家哲学家安·兰德的一句话，体现了奥地利等地目前正在发生的事情：
+
+**我们正在快速接近终极颠倒阶段：政府可以为所欲为，而公民只能在允许的情况下行事；这是人类历史最黑暗时期的阶段，是野蛮统治的阶段**。
+
+另一个读者调侃地写道，奥地利政府应该重新开放其毛特豪森集中营，以安置未接种疫苗的人：
+
+**他们在正门上面写了一行新的字,“Impfung Macht Frei”，翻译成英文就是“接种疫苗让你自由**”。
+
+原文链接： [Roadway checkpoints for covid “vaccine” compliance rolling out in Austria… purebloods to be HUNTED by police – NaturalNews.com](https://www.naturalnews.com/2022-02-10-checkpoints-covid-vaccine-compliance-austria-purebloods-hunted.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

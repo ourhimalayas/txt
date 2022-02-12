@@ -2,28 +2,23 @@
 ---
 
 
-## 纽约警局将彻查韩国外交官无端遭袭案
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1995096/)
+## 有声|追回属于中国人的钱，让中国人的生老病死和教育免费
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1995391/)
 
-作者：首尔天池农场 – 追着曙光跑
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月11日，据韩国媒体报道，韩国驻纽约总领事馆在一份声明中指出，美国纽约警察局正在对一名韩国外交官遭遇不明男子无端袭击的案件进行调查。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-12-上午8.13.00.png)
-另据美国媒体消息显示，2月9日，一名50多岁的韩国外交官当天晚上八点左右在纽约市曼哈顿街头遭不明男子殴打。随后，该名外交官被送往医院救治，但袭击者却当场逃走。目前，这名外交官情况稳定。值得注意的是，上月29日，一位在纽约市布鲁克林区经营杂货店的60多岁韩国男子也遭到一名歹徒不分青红皂白的殴打。
+配音：香草山巡管部 – 格格
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+2月9日，郭文贵先生在大直播上指出， 瑞士集团以其对客户资料的严格保密政策和银行保密文化而著称，瑞士也因此成为世界上最大的黑金聚集地。中国从大清朝到国民党，再到共产党，这几百年来存储在瑞士集团的钱实在太多了。像伊拉克、罗马尼亚和利比亚（卡扎菲）等这些集权国家是无法比拟的。
 
-此外，纽约警方的数据表明，纽约市近期的反亚裔仇恨犯罪案件数量飙升，已经从2020年的28起增至去年的131起。
+郭先生强调，中国这几百年来在这里存储的钱必须还给中国人。现在所有中国人欠的房贷和欠的信用卡的钱的总和，中共宣布大概40万亿到50万亿美元。但由于中共的泡沫太严重，实际上是大概4到5万亿美元。新中国联邦在海外能追回大概50万亿美元，可以让中国人欠下的所有债务免10回都没问题。
 
-对此，郭文贵先生曾在此前的大直播中多次预警，全世界或将发生排华，甚至排亚的危险，望大家多加警醒，注意安全。
+郭先生进一步解释，这钱多到不但可以让现在所有中国人的房贷和信用卡一律不用还，而且足以让中国未来的教育、保险、生老病死免费。
 
-参考链接：
-1）**[뉴욕경찰, 한국외교관 ‘묻지마 폭행’ 피해 “신속·철저 수사”](https://news.kbs.co.kr/mobile/news/view.do?ncd=5392466)**
-2）**[뉴욕포스트 “한국 외교관, 뉴욕 맨해튼서 ‘묻지마 폭행’ 당해”](https://news.kbs.co.kr/mobile/news/view.do?ncd=5391959)**
+文字版原文：[追回属于中国人的钱，让中国人的生老病死和教育免费](https://gnews.org/zh-hans/1990444/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-总编：Ivy001
-编辑：静言
-校正/发稿：呼吸的雾霾（文小呼吸）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -31,7 +26,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

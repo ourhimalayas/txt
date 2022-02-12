@@ -2,19 +2,19 @@
 ---
 
 
-## 普京与马克龙会谈后，重申俄罗斯的强硬立场
-` DC政经` [轉載自GNews](https://gnews.org/zh-hans/1995410/)
+## 2022年2月12日，全球中共病毒疫情情况汇总
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1995511/)
 
-2月7日普京与马克龙会谈后，重申俄罗斯的强硬立场：一旦乌克兰加入北约，俄罗斯将与欧洲开战。
+制作：DT新闻组
 
-这意味着资金将逃离欧洲，喜币将大涨。
+**中共的杀戮还在继续……**
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/5CDF546A-762E-4B0E-B327-8C11256E0C4A.jpg)
 
-听写，翻译：蔻依 | 字幕，发布：文零
+发稿：信心的选择
 
-更多新闻咨讯请访问：[DC政经Gettr账号](https://gettr.com/user/dczhengjingquan)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/DCZJ_Gnews_960_160.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-3.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

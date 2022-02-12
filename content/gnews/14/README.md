@@ -2,30 +2,45 @@
 ---
 
 
-## 《历史的今天》2022.02.12
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1995469/)
+## 疫苗灾难绝对比你们想象的大的多
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1995537/)
 
-作者：JAY (杰伊)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-14.jpeg)
-一，1912年2月12日，隆裕太后代宣统帝溥仪颁布了清帝退位诏书，授袁世凯全权组织临时政府。
+作者：纽约香草山 福音部 -林礼
 
-二，1958年2月12日：中共发起“除四害”荒唐运动，大肆歼灭麻雀的导致次年粮食严重失收，产生极严重饥荒问题。
 
-三，2001年2月12日：科学家首次公布“人类基因组图谱”。
 
-四，2013年2月12日， 在联合国发出警告下，朝鲜依然进行核试验。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-5.jpg)
 
-五，2015年2月12日，乌克兰、俄罗斯、德国和法国就解决乌克兰东部地区冲突达成新明斯克协议。
 
-六，2018年2月12日，郭文贵先生首次尝试在郭媒体直播。
 
-七，2020年2月12日，郭文贵先生直播表示国际超级品牌将永远不再回中国市场，包括香港市场；全世界西方军事私下沟通和准备，防止中共对港台及周边国家做出穷凶极恶，恶狗跳墙，的最愚蠢行动；全世界政府都在联合了解病毒真相。
+2月9日在”文贵大直播”期间说到，王濛解说中让韩国运动员多打几针疫苗，这把全中国人都裹进去了；疫苗这件事情体验了人心、人的洞察能力和所有中国人对事情的看法。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1044-1.png)
+全世界的科学杂志、知识界和所谓严肃媒体都叫你认真地打疫苗，直到打死为止，这和共产党是如出一辙。
 
-八，2021年2月12日，因BBC报道中共国的新冠病毒疫情及中共迫害新疆维吾尔族人，中共国广电局禁止其在中共国境内播出，对其落地申请拒绝受理。
+ 你没打疫苗，是一生中唯一的最大最正确的决定。打了疫苗的家人，请赶快吃青蒿素，伊维菌素。世界上的政治，经济疫苗灾难，超出你想象的很多倍。我们爆料革命不灭中共，它自己都会被灭了，百分之一万地会被灭得干干净净。
 
-* * *
+参考来源：[https://gnews.org/zh-hans/1986483/](https://gnews.org/zh-hans/1986483/)
 
-*发布：Theodosia*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3.jpg)
+
+编辑：童谣
+校对/发稿：Daxia
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-6.jpg)
+
+
 
  
 
