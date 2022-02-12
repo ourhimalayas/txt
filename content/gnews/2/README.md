@@ -2,8 +2,8 @@
 ---
 
 
-## 相信美国的法律
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1992931/)
+## 共产党的法律就是黑道
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1993009/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

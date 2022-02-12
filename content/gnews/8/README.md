@@ -2,8 +2,8 @@
 ---
 
 
-## 揭露疫苗真相为我们带来很多朋友
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1992844/)
+## 相信美国的法律
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1992931/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
