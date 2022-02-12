@@ -2,36 +2,135 @@
 ---
 
 
-## 北京冬奥运会高塔背后的故事
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1994664/)
+## 中共领导人无权享有奥运会的荣耀
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1994702/)
 
-撰稿：小湫
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2A6C95BF-321F-4420-88AD-43CF1E82D21C.jpeg)图片来自网络
-冬奥会选手们习惯于在壮观的雪山背景下表演他们精湛的滑雪技术，但北京的首钢奥运场馆正因其更为“前卫”的城市环境而备受关注。
+[https://gtv.org/video/id=620416ea585ecc15d73f7dd0](https://gtv.org/video/id=620416ea585ecc15d73f7dd0)
 
-那些从60米高的坡道上滑下来的滑雪者身后，是熔炉、高耸的烟囱和冷却塔，它们建在一座旧钢铁厂的原址上。几十年来，这里一直是中国首都臭名昭著的空气污染的根源。  这家钢铁厂成立于1919年，2008年为了举办夏季奥运会净化北京空气，15年前就被停产了。
+Mike Pompeo (Former U.S. Sectary of State)
+迈克·蓬佩奥（美国前国务卿）
 
-工程设计公司奥雅纳(ARUP)表示，留下的一大片城市中心的黄金地段，已经具备了修复和更新的条件。奥雅纳将这里变成了一个繁忙的旅游和艺术展览中心，2013年甚至举办了一次电子音乐节。生锈、老化的残垣断壁从未被拆除，甚至2022年冬奥会有高空跳伞项目，也没有因此而被拆除。取而代之的是，老工厂被纳入首钢的设计之中， 其中一座冷却塔甚至印有奥运会的标志。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/9CE4EF43-19C7-4147-A8BC-835728EA5278.jpeg)图片来自网络
-这次跳伞吸引了社交媒体用户的注意，部分原因是为了举办这次活动而制造的假雪山，但也因为人们对这些塔是什么以及它们为什么还矗立在跳台后面产生了好奇。一些推特用户怀疑这可能是一座核电站。有的推特用户说，把某种核设施作为这次高空滑雪活动的背景，感觉真是太反乌托邦了。
+What Xi wants in return is really straightforward
+习想要的回报真的很简单
 
-首钢大航空馆是世界上第一个长期使用的永久性大型航空场馆。 据设计该跳台的建筑公司TeamMinus称，它坐落在群明湖岸边，位于冷却塔的西侧，海拔88米(288英尺)。在其网站上概述了设计背后的灵感，引用了中国飞天的影响，飞天在佛教和印度教文化中都有出现。据ARUP报道，北京政府称该项目为“绿色生态示范区”，可以在中国其他地区扩大规模。
+He wants to tell the world that the West is in decline.
+他想告诉世界，西方正在衰落
 
-尽管重新利用老化的基础设施是一个很好的再生项目，但工厂的关闭本质上并不是“绿色”的决定，因为这座大型炼钢厂已经转移到中国的另外一个地方排放温室气体了。
+And look how great China is
+看看中国有多伟大
 
-据奥雅纳(ARUP)报道，2005年，这座钢铁生产工厂已经搬迁到了毗邻北京的河北曹妃甸。搬迁该工厂项目是北京市政府经济结构调整和污染控制举措的一部分。中国是造成气候危机的温室气体最大排放国，其排放量占全球年排放量的四分之一以上。
+Look what a free, wonderful nation this is
+看看这是一个多么自由、美好的国家
 
-首钢大航空馆并不是北京奥运会中第一个让人质疑奥运会环保资质的元素。为奥运会制造的人造雪，在制造过程中用大量的水和电。美国有线电视新闻网(CNN)最近的一篇报道，展示了延庆场馆是建在松山国家自然保护区的前核心区。松山国家自然保护区成立于1985年，旨在保护其茂密的森林、高山草原和丰富的生物资源。
+And look how beautiful this
+看看如此的美丽
 
-CNN要求北京奥组委就是否知道滑雪场建在原自然保护区的核心区发表评论，但北京奥组委没有回应。但在对CNN的回复中，国际奥委会表示，延庆地区的发展，正在把这个北京郊区的农村地区转变为一个主要的四季旅游目的地，改善了当地的生活，促进了当地的经济。
+that’s why he put a Uighur in the opening games of ceremonies
+这就是为什么他让一个维吾尔人参加开幕式的原因
 
-参考信息：
+why he’s holding a million of that person’s family members in the western part of their China
+那么为什么他把那人的一百万家人关在他们中国的西部
 
-[Is that a nuclear plant? The story behind those towers at the Winter Olympics big air](https://www.9news.com.au/world/beijing-winter-olympics-story-behind-those-towers-nuclear-plant/c683eb71-72a8-4080-9a2b-680b507d4a44)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
-发稿：MG6
+and sterilizing women and conducting the worst kind of human rights violations
+对妇女进行绝育并进行最恶劣的侵犯人权行为
 
+that are about to genocide
+即将种族灭绝的
 
+while the genocide games is going on
+当种族灭绝的时候，比赛正在进行中
+
+So we know what Xi wants
+所以我们知道习近平想要什么
+
+Xi wants to whitewash his regime
+习近平想粉饰他的政权
+
+What’s in it for America safe and the reason I think
+这对美国的安全有什么好处，我认为
+
+that our athletes should not have been put in this place
+我们的运动员不应该被出现在这个地方的原因是
+
+is that when industry have talked about burner phones
+是当业界谈论一次性手机的时候
+
+and Speaker Pelosi said, hey, go over there
+佩洛西议长说，嘿，去那边
+
+and don’t express your views of America as a great country
+不要表达你对美国作为一个伟大国家的看法
+
+Just be quiet because the Chinese will pull you from the streets
+只是保持安静，因为中国人会把你从街上拉出来
+
+We also know that they will collect information on these young people
+我们也知道他们会收集这些年轻人的信息
+
+not only the digital footprint that they have in place
+不仅是他们拥有的数字信息
+
+why they’re asking them to take burner phones like a drug dealer would
+为什么他们要求他们像毒贩一样使用一次性的电话
+
+but they’ll collect the DNA from these athletes
+但他们会收集这些运动员的DNA
+
+This will be stored in Chinese databases and the military’s databases for years to come
+这将在未来几年存储在中国数据库和军方数据库中
+
+We know athletes should be subjected to that simply for the opportunity to demonstrate
+我们知道运动员应该只是为了有机会展示
+
+that they’re a world class athlete
+他们是世界级的运动员
+
+They want to compete against the best athletes in the world
+他们想与世界上最好的运动员竞争
+
+I called for a boycott
+我呼吁抵制
+
+not because I didn’t want these athletes to have the opportunity to compete itself
+不是因为我不希望这些运动员有机会参加比赛
+
+We could have done this in a million places
+我们可以在一百万个地方可以举办盛会
+
+Instead, we chose to do it
+相反，我们选择这样做
+
+in a regime with is conducting genocide and in Beijing with leadership
+在一个正在进行种族灭绝的政权中，在北京的领导下
+
+that has no right to the glory of these games to be hidden by American money
+这些比赛的荣耀无权被美国赞助商隐藏
+
+sponsors that are doing terrible things to support what’s going on in the western part of China
+赞助商正在做可怕的事情来支持中国西部正在发生的事情
+
+And I still regret that this these games are going on today in this terrible place
+我仍然很遗憾今天在这个可怕的地方进行这些比赛
+
+* * *
+
+Date:02/07/2022
+原视频标题: Communist Chinese leadership has no right to the glory of the Olympic games
+中共领导人无权享有奥运会的荣耀
+原视频日期：2022/02/07
+原视频链接:**[https://twitter.com/mikepompeo/status/1490486370145644548?s=24](https://twitter.com/mikepompeo/status/1490486370145644548?s=24)**
+任务编号：KE389(3692)
+视频时间段 : 0:00-1:39
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-文新
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

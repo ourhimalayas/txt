@@ -2,135 +2,28 @@
 ---
 
 
-## 中共领导人无权享有奥运会的荣耀
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1994702/)
+## 大直播后记：永远相信美国法律、永远相信我们的力量
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1994720/)
 
-[https://gtv.org/video/id=620416ea585ecc15d73f7dd0](https://gtv.org/video/id=620416ea585ecc15d73f7dd0)
+整理：馨馨 奮鬥
+编辑：Sadhu
 
-Mike Pompeo (Former U.S. Sectary of State)
-迈克·蓬佩奥（美国前国务卿）
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/6-13.png)图片来源：墨尔本雅典娜农场设计组
 
-What Xi wants in return is really straightforward
-习想要的回报真的很简单
 
-He wants to tell the world that the West is in decline.
-他想告诉世界，西方正在衰落
+战友刚才说信了新中国联邦全家得救的感觉，这在全人类，你说新中国联邦力量多大。就像我们这个法院，判决出来以后。我们急需的2个律师。这个时候不是谁都敢冲上前去的，其中一个律师说，Miles Guo这个案子我接了，因为我没打疫苗，这就来了，这就来了，你看到没有？后来我这正想，我要给王雁平发信息，我说有一个律师要接这个案子。 结果王燕平给我发一个链接说，这个哥们儿是老大，很厉害，他已经接了，而且人家已经在这儿尝试有没有conflict，律师要先看有没有conflict。
 
-And look how great China is
-看看中国有多伟大
+所以我告诉大家，就是新中国联邦不让你打疫苗，积下的福报和力量远远大过共产党的中国人民解放军共产党军队，你们会意识到的。我再说，咱们这个判决的事情。我也很伤心，我绝对无法接受，从第一天到现在这个案子我无法接受，因为这个案子根本不存在。 七哥是作为一个所谓曾经的个人担保，借款人是盘古。盘古跟他之间的，盘古它都在那儿，而且有这么良好的资产，你找盘古，你找我干什么？ 而且到纽约立案，根本管辖地都有问题，从管辖地最后有问题（案子）踢出去，突然间就立案。立案让我一句话没说就开始来判决了，一个又一个，判了1亿多美元，这又一个船的事情，又判1亿多美金的罚款，我创造了美国N个之罪。所以七哥一生中什么都是唯一，你没办法，你想不当唯一（都难）。我成了美国最大的一个日罚款50万美元，总罚款1.3亿美元。你看那个个人担保罚1亿多美元。 然后是所谓18楼的房子，18楼房子是不是我的天知地知，我住在那儿，就像瑞安平现在住在跟她老公一个共同的房子一样，安平说，现在房子都是我的，你问她老公愿不愿意？他不是因为你是他爹，这东西就是你的；他也不因为你是兄弟，这东西都归你的。 我小的时候借我2哥杀猪的钱，我2哥是当年在东北是杀猪的，在赵家沟卖猪肉的钱。300多块钱，让我借走了，结果借走以后我就没还他。我2哥坐30块钱的火车到山东老家跟我要300多块钱去。 你能说我2哥杀猪的钱就是我的吗？现在只要你家的都是你的。那我家的债务是不是也是我的呀？共产党把我们家债务都拿走了，他债务是不是我的？这个世界上你相信谁有钱你都不能相信七哥有钱，因为我受到了全人类的黑社会共产党的全面剥夺。
 
-Look what a free, wonderful nation this is
-看看这是一个多么自由、美好的国家
+资料来源：[2022年2月11日 文贵大直播](https://gettr.com/streaming/ptgw8b5f32)
 
-And look how beautiful this
-看看如此的美丽
+发布：tianzhihuan
 
-that’s why he put a Uighur in the opening games of ceremonies
-这就是为什么他让一个维吾尔人参加开幕式的原因
-
-why he’s holding a million of that person’s family members in the western part of their China
-那么为什么他把那人的一百万家人关在他们中国的西部
-
-and sterilizing women and conducting the worst kind of human rights violations
-对妇女进行绝育并进行最恶劣的侵犯人权行为
-
-that are about to genocide
-即将种族灭绝的
-
-while the genocide games is going on
-当种族灭绝的时候，比赛正在进行中
-
-So we know what Xi wants
-所以我们知道习近平想要什么
-
-Xi wants to whitewash his regime
-习近平想粉饰他的政权
-
-What’s in it for America safe and the reason I think
-这对美国的安全有什么好处，我认为
-
-that our athletes should not have been put in this place
-我们的运动员不应该被出现在这个地方的原因是
-
-is that when industry have talked about burner phones
-是当业界谈论一次性手机的时候
-
-and Speaker Pelosi said, hey, go over there
-佩洛西议长说，嘿，去那边
-
-and don’t express your views of America as a great country
-不要表达你对美国作为一个伟大国家的看法
-
-Just be quiet because the Chinese will pull you from the streets
-只是保持安静，因为中国人会把你从街上拉出来
-
-We also know that they will collect information on these young people
-我们也知道他们会收集这些年轻人的信息
-
-not only the digital footprint that they have in place
-不仅是他们拥有的数字信息
-
-why they’re asking them to take burner phones like a drug dealer would
-为什么他们要求他们像毒贩一样使用一次性的电话
-
-but they’ll collect the DNA from these athletes
-但他们会收集这些运动员的DNA
-
-This will be stored in Chinese databases and the military’s databases for years to come
-这将在未来几年存储在中国数据库和军方数据库中
-
-We know athletes should be subjected to that simply for the opportunity to demonstrate
-我们知道运动员应该只是为了有机会展示
-
-that they’re a world class athlete
-他们是世界级的运动员
-
-They want to compete against the best athletes in the world
-他们想与世界上最好的运动员竞争
-
-I called for a boycott
-我呼吁抵制
-
-not because I didn’t want these athletes to have the opportunity to compete itself
-不是因为我不希望这些运动员有机会参加比赛
-
-We could have done this in a million places
-我们可以在一百万个地方可以举办盛会
-
-Instead, we chose to do it
-相反，我们选择这样做
-
-in a regime with is conducting genocide and in Beijing with leadership
-在一个正在进行种族灭绝的政权中，在北京的领导下
-
-that has no right to the glory of these games to be hidden by American money
-这些比赛的荣耀无权被美国赞助商隐藏
-
-sponsors that are doing terrible things to support what’s going on in the western part of China
-赞助商正在做可怕的事情来支持中国西部正在发生的事情
-
-And I still regret that this these games are going on today in this terrible place
-我仍然很遗憾今天在这个可怕的地方进行这些比赛
-
-* * *
-
-Date:02/07/2022
-原视频标题: Communist Chinese leadership has no right to the glory of the Olympic games
-中共领导人无权享有奥运会的荣耀
-原视频日期：2022/02/07
-原视频链接:**[https://twitter.com/mikepompeo/status/1490486370145644548?s=24](https://twitter.com/mikepompeo/status/1490486370145644548?s=24)**
-任务编号：KE389(3692)
-视频时间段 : 0:00-1:39
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-文新
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
