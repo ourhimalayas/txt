@@ -2,10 +2,10 @@
 ---
 
 
-## 加拿大萨斯喀彻温省宣布其疫苗护照政策结束
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1993529/)
+## 冬奥会赞助商因中共国侵犯人权而遭受重创
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1993576/)
 
-02/08/2022 加拿大萨斯喀彻温省省长斯科特·莫宣布他所在省的疫苗护照政策结束，于 2 月 13 日星期日午夜生效。要求室内戴口罩的措施一直有效到2月底。
+02/09/2022 冬奥会赞助商因中共国侵犯人权而遭受重创
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

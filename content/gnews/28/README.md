@@ -2,22 +2,48 @@
 ---
 
 
-## 法俄揭晓普京马克龙长桌会谈真相
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1993448/)
+## 喜马拉雅日本银河系农场携战友为全球Hpay用户传递爱
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1993459/)
 
-整理编辑：东京樱花团｜上善若水
-![](https://lh5.googleusercontent.com/hMk6muAhfffWJKKF9zZhyQKQ_QkXdu3bsBq8LluFurTSwHIeR86udrp1l9zw_0j8jKZyiNPlEUExFAFteghCTN9kZYmvzgzTTFoOFFGMntbVXMx8OFU6LNjbiMp_dZzcMrOI_VeP)[*图片来源*](https://static.dw.com/image/60689791_403.jpg)
-路透社周五（2月11日）援引法国总统马克龙的两名随行人员报道称，马克龙日前拒绝克里姆林宫要求他在同俄罗斯总统普京会晤前，接受俄方的中共病毒检测，导致两人会晤时保持一定距离。该消息人士补充道，法方的这一决定是为了防止俄方获得马克龙的DNA。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/封面-8.jpg)
+Hpay to the Moon🌙，Hpay  to the Galaxy🪐
 
-俄罗斯卫星通讯社随后报道称，克里姆林宫证实，马克龙在会见普京前拒绝接受俄方中共病毒检测。“而这就是他们保持距离的原因”，俄罗斯总统新闻秘书佩斯科夫（Dmitry Peskov）当天如是表示。据报道，佩斯科夫还指出，让两位总统隔长桌落座的决定不是出于政治目的，也不会影响会谈，并称，俄方理解法国的立场，而在会议期间确保普京的安全是必要的。本周一，马克龙和普京在莫斯科举行会谈，谈及乌克兰问题。然而，会谈中两人之间的4米长桌格外吸引眼球。
+银河系向全球持有Hpay的战友或非战友问好，鉴于目前喜联储不支持美加日开设帐号的现状，而数字货币又是人类未来不可阻挡的大潮。
 
-两位了解法国总统健康协议的消息人士告诉路透社，马克龙当时面临一个选择：要么接受俄罗斯当局做的中共病毒核酸检测，则被允许接近普京；如果拒绝俄方检测要求，则必须遵守更严格的社交距离措施。一名消息人士强调：“我们很清楚双方不能握手，而且会有很长的长桌，但我们不能接受他们获得（马克龙）总统的DNA。”马克龙随行人员中的第二个消息人士介绍，其实马克龙在出发前已经在法国接受了核酸检测，并在俄罗斯进行了一次由他随行医生进行的抗原检测。该消息人士说：“俄罗斯人告诉我们，普京需要身处在一个严格管控的健康泡泡里。”然而，就在与马克龙举行此次会晤的三天后，普京接见了来访的哈萨克斯坦总统托卡耶夫。两人不仅握了手，而且会谈时只隔着一张小咖啡桌。
+为了推广喜币，让更多的人使用Hpay，银河系决定，为大家提供服务，我们建立了一支团队来帮助全球拥有Hpay的用户购买喜爱的日本产品。
 
-信息来源：[**法俄揭晓普京马克龙长桌会谈真相**](https://www.dw.com/zh/%E6%B3%95%E4%BF%84%E6%8F%AD%E6%99%93%E6%99%AE%E4%BA%AC%E9%A9%AC%E5%85%8B%E9%BE%99%E9%95%BF%E6%A1%8C%E4%BC%9A%E8%B0%88%E7%9C%9F%E7%9B%B8/a-60746651)
+点对点付帐，您只要在网上能够找到的商品，我们帮助您购买及运输，所有费用都会提供日本法定发票。
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+Hpay，将是世界无障碍流通手段，
+
+Hpay，己是爆料革命战友传递爱和温暖的桥梁。
+
+Hpay，更是所有人享受销费自由的唯一工具。
+
+日本银河系将在日本法律，正道主义，全球联盟的监督下，服务全球持有Hpay人士并推广喜币。同时为我们的第二故乡日本的经济恢复出力，回馈社会，在日本树立优质的中国人形象，打倒中共，为美好明天，你我加油。🛍🛍
+
+喜马拉雅日本银河系农场
+
+2022年2月11日
+![](https://assets.gnews.org/wp-content/uploads/2022/02/f715afda841d50a2c757d3852f7b91d8.jpg)
+撰稿：骄子 wung，Judy Lin，魔女Peace
+
+发布：黎明之前
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

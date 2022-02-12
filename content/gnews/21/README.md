@@ -2,10 +2,10 @@
 ---
 
 
-## 奥运选手曝北京隔离酒店恶劣条件，数十人错过比赛
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1993547/)
+## 新西兰警方拘捕50余名疫苗强制令抗议者
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1993602/)
 
-02/09/2022 奥运选手曝光北京隔离酒店恶劣条件，数十人检测呈阳性后错过比赛
+02/10/2022 新西兰警方强行驱赶过去三天在议会大厦外扎营抗议中共疫苗强制令的数百名抗议者，并拘捕了50余人
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

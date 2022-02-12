@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/12/2022 5:57 AM (UTC)`
+
+2/11/2022 Miles Guo: I understand the CCP's infiltration of the West because I saw how the CCP's evil plans were made, witnessed the obscenity and darkness of the Party of Davos, and experienced the corruption, stupidity, and insanity of the CCP's military and the eunuch mentality of the CCP's officialdom.<br/><br/>2/11/2022 文贵直播：文贵掌握了中共对西方的渗透是因为文贵见证了中共邪恶计划的制定，亲眼目睹了达沃斯党的荒淫与黑暗，经历过中共军队的腐败、愚蠢与疯狂以及中共官场的太监心理<br/>
+![img](https://media.gettr.com/group15/getter/2022/02/12/05/ed720be2-ef44-6ac6-5f5c-76450090696c/out.jpg)
+
+---
+
 `@miles 2/12/2022 4:14 AM (UTC)`
 
 2/11/2022 Miles Guo: Although my family is implicated by the PAG case, I will never compromise and will respect the American law and justice system even more. Fellow fighters should not bring their pressure and pain to their families, and the only way to keep them safe is to take down the CCP!<br/><br/>2/11/2022 文贵直播：虽然文贵的家人因PAG案受到牵连，但文贵绝不妥协，并会更加尊重美国的法律和司法体系；战友们不应把自己的压力和痛苦带给家人，让家人安全的唯一方式是灭共！
@@ -148,13 +155,6 @@ EP9: The Villains. Let's tear down the monstrous lies of this despicable #HBO #V
 
 2/9/2022 Miles Guo: To recover the wealth, dignity, and justice that the Chinese people have lost in the past 70 years, I will make myself a person that owns nothing and will move to London to fight UBS in court. After that, I will go to Japan to fight against the CCP at close range and will let the people across Communist China hear my voice directly.<br/><br/>2/9/2022 文贵直播：为找回中国人70年来失去的财富、尊严和公正，文贵将让自己变得一无所有，到伦敦跟UBS打官司，再到日本与中共短兵相接，让中共国每个角落都将直接听到七哥的声音<br/>
 ![img](https://media.gettr.com/group46/getter/2022/02/10/01/d8499755-2bce-d7bc-06f2-df59a27cd9ea/out.jpg)
-
----
-
-`@miles 2/9/2022 10:52 PM (UTC)`
-
-2/9/2022 Miles Guo: Three major events today - 1) I have started to openly fight the swamp in court for the first time; 2) I will go to the UK and Japan to fight the CCP at close range; 3) I will prepare for the worst in case of the CCP's threats. We will wage a full-scale war on the PAG case and will thoroughly expose the CCP’s BGY scheme and infiltration against the West<br/><br/>2/9/2022 文贵直播：今天的三件大事 - 1) 首次在法庭上跟沼泽地公开较量; 2) 文贵将去英国与日本与中共短兵相接；3) 面对中共的威胁，文贵将做好一切最坏准备；我们将对PAG案全面开战并彻底揭露中共对西方的蓝金黄和渗透<br/>
-![img](https://media.gettr.com/group47/getter/2022/02/09/22/de89e9c8-3bf5-1d8b-f5be-32a40b2bfe9b/out.jpg)
 
 ---
 

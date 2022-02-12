@@ -2,10 +2,10 @@
 ---
 
 
-## 安东尼·福奇称可能需要第四剂中共病毒疫苗加强针
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1993662/)
+## 同一个美国新闻网将北京冬奥会称为种族灭绝运动会
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1993749/)
 
-02/09/2022 安东尼·福奇: 可能还需要再次加强免疫，即根据年龄和原发疾病情况，对已接种mRNA个体的第四剂加强针。
+02/09/2022 同一个美国新闻网将北京冬奥会称为种族灭绝运动会
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

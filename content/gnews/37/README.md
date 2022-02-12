@@ -2,24 +2,24 @@
 ---
 
 
-## 俄乌战争一触即发 美澳相继呼吁本国公民尽快撤离
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1993192/)
+## 中日财经爆|中共国：铁矿石要“恶意涨价”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1993206/)
 
 撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1160.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fnimg.ws.126.net%2F%3Furl%3Dhttp%253A%252F%252Fdingyue.ws.126.net%252F2021%252F1226%252F19d3f0b8j00r4pew9006zc000z800omm.jpg%26thumbnail%3D650x2147483647%26quality%3D80%26type%3Djpg&amp;imgrefurl=https%3A%2F%2Fwww.163.com%2Fdy%2Farticle%2FGS52EI3H0550HKO5.html&amp;tbnid=Vk09RzixTVEf6M&amp;vet=12ahUKEwjTsMHjnPn1AhWIATQIHQlmAN8QMygBegUIARCtAQ..i&amp;docid=ViV_j0D72MWwlM&amp;w=650&amp;h=455&amp;q=%E4%BF%84%E4%B9%8C%E6%88%98%E4%BA%89&amp;ved=2ahUKEwjTsMHjnPn1AhWIATQIHQlmAN8QMygBegUIARCtAQ)
-澳洲总理莫里森周六（2月12日）表示，在乌克兰的澳洲公民应尽快离开该国，因为那里的局势越来越危险。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1161.png)[图片来源](https://www.sohu.com/a/237209596_334198)
+针对近期铁矿石价格出现异动等有关情况，中共国相关机构连番出手欲打压“恶意”涨价势头。
 
-“我们的建议很明确，目前局势危险…你们应该设法离开乌克兰，”莫里森在一次媒体吹风会上说。
+中共国家发改委和市场监管总局拟于近日派出联合调研组，赴部分商品交易所、重点港口开展铁矿石市场监管调研；将高度关注大宗商品价格变化，持续密切关注市场运行和价格走势。
 
-美国总统乔∙拜登星期四（2月10日）在接受美国国家广播公司（NBC）电视采访时，警告乌克兰境内的美国公民立即撤离该国，因为一旦美俄部队发生摩擦，将会导致潜在的大规模冲突。
+中国钢铁工业协会周五（2月11日）晚间表示，据其监测，近期部分涉矿企业违背商业道德，发布和炒作不实信息，严重干扰了市场公平秩序，损害市场主体的合法利益，钢铁协会对此表示谴责；大商所则宣布上调铁矿石期货相关合约手续费。
 
-拜登说，如果俄国入侵，他不会派遣部队进入乌克兰，即使救援美国人也不行。
+大连商品交易所周五晚间公告，自2月16日起，将铁矿石2202、2203、2204、2205合约手续费标准由成交金额的万分之一调高至万分之二。
 
-星期五在澳大利亚与澳大利亚、日本和印度所谓四国集团（QUAD）外长举行会晤的美国国务卿布林肯也向记者重申了拜登的警告。
+发改委微信公众号周五发布新闻稿称，调研组将重点了解近期铁矿石库存变化及有关企业参与铁矿石期现货交易情况，严厉打击捏造散布涨价信息、囤积居奇、哄抬价格、恶意炒作。
 
-布林肯说俄国可能在2月20日北京冬奥会闭幕前入侵乌克兰。
+中共国市监总局和国家发改委近日联合约谈有关铁矿石资讯企业，要求提供发布信息的事实来源，不得编造发布虚假价格信息，不得捏造散布涨价信息，不得哄抬价格。
 
-消息来源：[澳洲总理呼吁在乌克兰的澳洲人应尽快离开该国 因为情况危险](https://cn.reuters.com/article/au-morrison-ukraine-0212-idCNKBS2KH02I?il=0)
+消息来源：[中国连番出手平抑铁矿石异动 发改委等拟调研库存及大宗商品价格变化](https://cn.reuters.com/article/china-ndrc-iron-ore-price-0212-idCNKBS2KH02C?il=0)
 
 *编辑：东京樱花团/知了知了
 发布：东京樱花团/平安卿卿*
