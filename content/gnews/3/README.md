@@ -2,44 +2,52 @@
 ---
 
 
-## 世界最大恐怖组织中共搞乱世界后甩锅美国
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1996727/)
+## 魁北克省出现两组示威者，支持卡车司机，反对卡车司机，警察迅速将两组人分开
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1996815/)
 
-【**国内新闻短评】**
+**编译：16626**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/EC995E22-5228-4AA0-B340-9E05BAC22D4A.png)**图片来源：截屏于**[**https://www.tvanouvelles.ca/2022/02/12/camionneurs-et-mesures-sanitaires-les-pour-et-les-contre-manifestent-a-montreal**](https://www.tvanouvelles.ca/2022/02/12/camionneurs-et-mesures-sanitaires-les-pour-et-les-contre-manifestent-a-montreal)**  **
+**两组示威者出现，警察迅速将两组人分开**
 
-**长江新闻号2022年2月12日报道：加拿大首都失控后，又一国首都乱了！这次有人把账算在了美国头上**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/ha8twr-3k6an.jpg)**图片来源：网络**![](https://assets.gnews.org/wp-content/uploads/2022/02/canada.jpg)
-**短评：**
+周六（2022 年 2 月 12 日）早上，卡车司机（示威）的支持者和反对者在蒙特利尔的贾里公园（parc Jarry）附近举行示威。
 
-**2017年9月4日，新中国联邦爆料革命的郭文贵先生在与美国官员见面后，经过各种情况的实际考量，在卫生间烧掉了一份被称为“13579计划”的关系人类命运的中共一号绝密文件，因为对文贵先生警告的不信任与不重视，美国在五年前错失了一次自救机会。**
+蒙特利尔市警察局 (SPVM) 的警察迅速将聚集的两组示威者（两组示威者：支持卡车司机，反对卡车司机）分开。
 
-**“13579计划”是迟浩田亲自设计规划，由习近平签字的第一绝密文件：
-1 制造一种生物武器
-3 自2017年起三年内付诸实施
-5 保证此种武器五年内有效，有机会就对美国进行生物武器攻击
-7 彻底瘫痪七个国家（包括五眼联盟和日本、印度）
-9 九个月内出疫苗来要挟全世界**
+（2022 年 2 月 12 日）上午 10 点 20 分左右，支持卡车司机的示威活动平静地开始了。
 
-**就中共邪恶媒体长江新闻号2022年2月12日对加拿大卡车司机游行和对美国进行甩锅的这篇新闻报道来看，中共邪恶的“13579计划”已经成功八九成了。长江新闻号此篇报道提到了加拿大、新西兰、英国、法国的反中共毒疫苗游行可能波至全球，并对美国进行了一大波攻击与甩锅，五眼联盟的国家也恰好正是美国、英国、加拿大、新西兰和澳大利亚。由此可见中共“13579计划”之邪恶，由此可见中共“13579”瘫痪五眼联盟和日本、印度的邪恶计划已经成功八九成。虽然新中国联邦爆料革命郭文贵先生利用掌握的中共内部情报在2017年以来一再警告全世界中共邪恶的“13579计划”和中共“3F美国计划”，并警告全世界调查中共释放病毒的真相并呼吁别打毒疫苗，但全世界人民被媒体与金钱熏陶已久后的麻木、对所谓科学的迷信以及贪生怕死的恐惧，让全球的病毒灾难与毒疫苗灾难遂了中共的愿。**
+**一组示威者：支持卡车司机  **
 
-**在2019年的香港反送中事件上，新中国联邦爆料革命郭文贵先生也一再警告全世界：如果全世界都不拯救香港，中共会让香港的这一幕惨剧在美国在欧洲在全世界上演，回头看来令人不禁一颤，悲哀呀这个世界。2019年的香港反送中事件和中共在新疆在西藏的反人类大屠杀行径如出一辙，先是制造恶法并人为安排便衣假扮暴徒进行打砸抢烧，然后甩锅和平游行抗议的男女老少普通民众为暴徒，顺理成章地派警察派部队进行宵禁进行军管，从而奴役民众并利用恶警利和军队铲除异己巩固集权独裁统治。如今中共又在全世界释放病毒，然后顺理成章地进行强制宵禁封城与隔离，顺理成章地推出毒疫苗，强制打在全人类身上，以此清理地球人口实行更霸道的集权独裁统治；对清醒过来明白真相的百姓与产生毒疫苗生理反应的民众进行的类似加拿大卡车司机的游行抗议进行诋毁。正如新中国联邦爆料革命郭文贵先生在2022年全球大直播中提醒的那样：我们可以预见到中共接下来会在幕后通过蓝金黄等手段收买便衣扮演暴徒，企图让卡车司机的和平游行抗议变成暴力流血事件，从而像在香港那样“名正言顺”地用军警进行宵禁和接管，用军警不断扩大政府独裁的权力。我们再一次更深得体会到中共的邪恶，再一次更深刻地明白郭文贵先生警告战友不要参与煽动加拿大等地的暴力抗议行动的良苦用心与高超智慧，以避免被中共险恶利用，就像2020年美国总统竞选期间的国会山事件时的警告一样。**
+![](https://gnews.org/40c02b72-7bea-40c4-98bb-a699df8db3d2)**图片来源：****截屏于**[**https://www.tvanouvelles.ca/2022/02/12/camionneurs-et-mesures-sanitaires-les-pour-et-les-contre-manifestent-a-montreal**](https://www.tvanouvelles.ca/2022/02/12/camionneurs-et-mesures-sanitaires-les-pour-et-les-contre-manifestent-a-montreal)** ****，****一组示威者：支持卡车司机  **
 
-**只要有新中国联邦在，中共一次次的险恶用心与犯罪行径都会被拆穿，就像中共的“13579计划”与“3F美国计划”一样，就像中共释放病毒与强打毒疫苗一样，就像加拿大等地的卡车司机反疫苗游行一样。魔鬼中共你下的什么棋我们都知道，全世界全人类都知道；这里不是你魔鬼的地狱，这里是人间，中共，你完蛋了。**
+**两组示威者之间（相互对峙）的紧张情绪是显而易见的**
 
-**文章观点仅代表作者，与Gnews 平台无关**
+两组示威者之间（相互对峙）的紧张情绪是显而易见的，但是蒙特利尔市警察局SPVM表示，没有看到任何（冲突）爆发。
 
-**新闻链接：**
-[https://mr.baidu.com/r/Bc07QQrOiQ?f=cp&u=498dc803532ef54a](https://mr.baidu.com/r/Bc07QQrOiQ?f=cp&amp;u=498dc803532ef54a)
+**另一组示威者：反对卡车司机**
 
-素材：洛杉矶盘古农场 — 归去来兮
-评论：洛杉矶盘古农场 — 归去来兮
-编审：洛杉矶盘古农场 — 心照
-发布：洛杉矶盘古农场 —彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+![](https://gnews.org/855a1bf9-e148-42e4-bb9a-46227bba8f3b)**图片来源：****截屏于**[**https://www.tvanouvelles.ca/2022/02/12/camionneurs-et-mesures-sanitaires-les-pour-et-les-contre-manifestent-a-montreal**](https://www.tvanouvelles.ca/2022/02/12/camionneurs-et-mesures-sanitaires-les-pour-et-les-contre-manifestent-a-montreal)** **** ****，****另一组示威者：反对卡车司机**
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+据悉，在这次示威结束后，卡车司机将离开贾里公园 Jarry Park 加入蒙特利尔的（其它）示威。
 
+另外，Gnews（2022 年 2 月 10 日）发表一篇题为《魁北克省勒戈（Legault）政府指责反对党纵容示威者的武装, [https://gnews.org/zh-hans/1987160/](https://gnews.org/zh-hans/1987160/)  》的文章报道，上周末在魁北克省举行的卡车司机示威活动的组织者之一表示，有些人已经准备好拿起武器。魁北克省省长，弗朗索瓦·勒戈（François Legault），指责反对党纵容某些反卫生措施抗议者发出的武装暴力威胁。
+
+在2022年02月09日文贵大直播中，七哥讲到：
+
+*“**…**被共产党及完全失败的人控制着，小土豆完全是痴心的疯子。共产党希望加拿大和美国越乱越好，但这正不是我们希望发生的。”*
+
+我们谴责并反对暴力示威，我们相信魁北克省，乃至加拿大的公共卫生行政措施很快会发生变化。
+
+**参考资料**： [Camionneurs et mesures sanitaires: les pour et les contre manifestent à Montréal](https://www.tvanouvelles.ca/2022/02/12/camionneurs-et-mesures-sanitaires-les-pour-et-les-contre-manifestent-a-montreal)
+
+**编辑：LILY**
+
+**发布：歪桑**
+
+20220212
+
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3-4.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
