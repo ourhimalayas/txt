@@ -2,200 +2,98 @@
 ---
 
 
-## 喜支付体现人类无条件支付的本能
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1994476/)
+## 苹果和谷歌通过禁止中国人下载允许活动人士绕过中共严格审查的应用程序来保护北京
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1994651/)
 
-[https://gtv.org/video/id=6205b50bb0af02660af230c2](https://gtv.org/video/id=6205b50bb0af02660af230c2)
+[https://gtv.org/video/id=62041626585ecc15d73f7d9a](https://gtv.org/video/id=62041626585ecc15d73f7d9a)
 
-它一下就秒到了
-Por qué eso llega en cuestión de segundo
+Senator Marsha Blackburn
+参议员玛莎·布莱克本
 
-我们这叫在线支付
-Nosotros lo llamamos “pago en línea”
+Now of course much of that discussion has centered around the Olympics
+当然，现在大部分讨论都围绕着奥运会
 
-我们不是在线买卖
-Esto no es compra y venta en línea
+Because there is an app you have to download on your burner phones
+因为你必须在一次性的机手机上下载一个应用程序
 
-只要对方是卖车的
-Si la otra persona quiere vender el carro
+since you can’t take your own phone
+因为你不能用你自己的手机
 
-还有卖画的
-Y el que vende cuadros
+And it is available through the Apple App Store
+它（应用程序）可以通过苹果商店获得
 
-咱俩说好了叫约定式付款
-Si nosotros dos ya acordamos esto se llama “pago convenido”
+And this is one of the reasons as I said earlier
+这就是我之前所说的原因之一
 
-跟这个交易没毛关系
-No tiene ninguna relación con esta transacción
+we need these non discrimination policies
+我们需要这些非歧视政策
 
-可人类给它设定好了身份证、年龄、资金来源
-Pero el ser humano lo configuró con cédula de identidad, edad y fuente de fondos
+But the important thing to realize with this, what Apple is doing
+但重要的是要意识到这一点，苹果正在做的是
 
-这是全人类最黑暗的金融时代
-Esta es una Era financiera más oscura en toda la humanidad
+is with this app that you have to download for the Olympics
+你必须为奥运会下载这个应用程序
 
-就是因为它造了太多假
-Porque en eso se hacen muchas falsificaciones
+if you’re going to the Olympics, if you’re an athlete
+如果你要去参加奥运会，如果你是一名运动员
 
-我们有个战友 台湾的
-Tenemos un compañero luchador de Taiwán
+if you participate, then the Chinese Communist Party has access
+如果你参与，那么中国共产党就可以取得
 
-这不在我们农场的战友
-No está en nuestra finca
+and I would they probably say they have ownership of that data
+而且他们可能会说他们拥有这些数据的所有权
 
-一位女士 很棒的
-Una excelente dama
+they can surveil you they can track you
+他们可以监视你，他们可以跟踪你
 
-我的老朋友了 93岁今年
-Es mi viejo amigo, este año cumple los 93 años
+If you download that digital you want and they are in your wallet
+如果你下载了应用程序，它就像留在了你的口袋里
 
-她说文贵
-Ella dijo: “Wengui
+They know who you’re communicating with
+他们知道你在和谁交流
 
-我就等着这个
-Yo he estado esperando esto”
+They are able to surveil and audit those conversations
+他们能够监视和审核这些对话
 
-所以说人这个智商
-Por eso el coeficiente intelectual de una persona
+So we’re quite concerned about the security
+所以我们非常关注安全性
 
-我在说这个93岁的一个台湾人
-La taiwanesa de 93 años que estoy diciendo
+and safety of those Olympians while they are there
+和那些奥运选手在那里的人身安全
 
-昨天下午上线
-Ayer en la tarde se conectó
+And also John, let me add for developers and innovators
+另外，约翰，让我为那些想在App Store上推销他们的
 
-她咔咔咔就转几笔
-Y así de la nada ya hizo varias transacciones
+that want to market their app on the App Store
+应用程序的开发者和创新者补充一下
 
-人家93岁了
-Ella tiene 93 años
+Apple is taking 30% of that cost
+苹果会拿走30%的费用
 
-人家啪啪啪自己处理完
-Y en un dos por tres ella misma resolvió
+So if we can pass our bill
+因此，如果我们能够通过这个的法案
 
-她说七哥
-Ella dijo “Miles
+it is going to be security and protections for consumers
+这将是对消费者的安全和保护
 
-我把我这个手里边120万HDO
-Yo transferí 1.2 millones HDO que tenía en la mano
-
-转了还剩一万多
-Ahora me quedan 10 mil y pico”
-
-就这么简单
-Así de fácil
-
-而且就用自己的手机
-Además, con su propio celular
-
-大家记住第一个功能的核心
-Todos recuerden la primera función esencial
-
-无条件的交易支付
-Pago de transacción incondicional
-
-是你一生中找回你人类的财富的最本能
-Es el mayor instinto en la vida para recuperar tu riqueza humana
-
-第二条 买画
-Segundo, comprar cuadros
-
-吃饭、餐厅
-Comer, los restaurantes
-
-只要你足够有智慧
-Si tienes suficiente sabiduría
-
-你能省下完全
-Te podrás ahorrar totalmente
-
-你不需要过去支付的5%、10%、20%的钱
-No necesitas ir a pagar como en el pasado el 5, 10, 20% de dinero
-
-包括所有全世界的交易都是要付交易费
-Incluyendo todas las transacciones del mundo entero, debes pagar una tarifa por transacción
-
-这是给你0, 这个问题
-Este te está dando 0, este problema
-
-七哥跟他们奋斗了很长时间
-Yo tuve una lucha muy larga con ellos
-
-就那个王八蛋律师特别坏，他说
-Ese abogado infeliz muy malo, dijo
-
-必须收1.52什么高收费呀高风险
-Debes cobrar 1.52, que si tarifa alta, alto riesgo
-
-我说你
-Le dije
-
-要收1毛钱我就不
-Si tu vas a cobrar un centavo
-
-不会让新中国联邦任何人用你这个东西
-No dejaré que ninguno del Nuevo Estado Federal de China utilice esta cosa tuya
-
-必须是0交易
-Debe ser transacción 0
-
-为什么，我说我们战友没事了
-Por qué, le dije que nuestros compañeros luchadores si no tienen nada que hacer
-
-未来就是划钱玩
-En un futuro podrá jugar deslizando el dinero
-
-就这么简单 没事儿了
-Así de fácil, si no tiene nada que hacer
-
-睡觉前两口子就转钱玩
-Antes de dormir la pareja se pone a jugar transfiriendo dinero
-
-你给我100
-Tu me das 100
-
-我给你1000
-Yo te doy 1000
-
-你给我1000
-Tu me das 1000
-
-我给你，就划钱玩 咋的
-Yo te doy, así juegan deslizando el dinero, qué pasa
-
-你要是收费
-Si vas a cobrar
-
-我们就没有这个兴趣了
-Nosotros no tendremos este hobby
-
-你知道这意味着什么
-Sabes qué significado tiene esto
-
-兄弟姐妹们
-Hermanos y hermanas
-
-我们要让新中国联邦战友走出家门
-Nosotros queremos que los compañeros luchadores del Nuevo Estado Federal de China salgan de su casa
-
-去推销Hpay 的时候，你告诉他这是免费的
-Y promocionen el Hpay, le puedan decir que esto es gratis
+It also is going to lower the cost of the app
+它还将降低应用程序的发行成本
 
 * * *
 
-日期：02/09/2022
-原视频标题：喜支付体现人类无条件支付的本能
-H Pay refleja el instinto del pago incondicional del ser humano
-原视频日期：02/07/2022
-原视频网址：[**https://gettr.com/post/psxnq73faf**](https://gettr.com/post/psxnq73faf)
-任务编号：KC451(3697)
-视频时间段：0:00-02:19
-西听校：洛杉矶盘古农场- 小文萱
-翻译：洛杉矶盘古农场- 霙霙（文霙）
-翻译终校：洛杉矶盘古农场- 小文萱
-字幕+视频制作：洛杉矶盘古农场-天涯行
+Date:02/07/2022
+原视频标题: Apple and Google are protecting Beijing by banning people in China from downloading apps that would allow activists to circumvent the CCP’s strict censorship
+苹果和谷歌通过禁止中国人下载允许活动人士绕过中共严格审查的应用程序来保护北京
+原视频日期：2022/02/07
+原视频链接:[**https://twitter.com/marshablackburn/status/1490501700746108937?s=24**](https://twitter.com/marshablackburn/status/1490501700746108937?s=24)
+任务编号：3691
+视频时间段 : 0:00-1:34
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-文新
 审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
+发布 ：洛杉矶盘古农场-恩典
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

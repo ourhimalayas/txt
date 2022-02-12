@@ -2,32 +2,25 @@
 ---
 
 
-## 北京冬奥会成为中共以“法”作恶的舞台
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1994183/)
+## 美议员指责CCP和福奇共同掩盖新冠病毒的起源
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1994222/)
 
-撰稿: 新西兰伊甸农场 – 亚伦
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-2.png)
-2月10日，郭文贵先生在Gettr视频中透露，中共举办冬奥会就是他们以“法”的名义、行作恶之实的最好诠释。他们不但让参赛运动员五天吃同样的饭，还以奥林匹克检测规则的名义，把有得冠实力的芬兰运动员隔离起来，实施中共病毒检测，让其失去比赛资格。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1172.png)
-中共一直在全世界依靠“蓝金黄”手段，改变法律程序，操纵游戏规则。正如PAG太平联盟集团无理起诉郭先生后就可以在香港上市， UBS瑞银集团可以把郭先生家族基金的股票强迫交易后，就可以获得中国有史以来第一个外国银行金融牌照，中共善于用恶法黑掉揭露它作恶的人，而我们要用合法的手段让世界得知真相并维护正义，一切都是刚刚开始。
+撰稿：小湫
+![](https://assets.gnews.org/wp-content/uploads/2022/02/93DF0F77-F104-408E-BAF3-84A4795A594B.jpeg)图片来自网络
+来自肯塔基州共和党众议院监督委员会高级成员詹姆斯·科默（James Comer），指责CCP和白宫首席医疗顾问安东尼·福奇，病毒传播从第一天起就分开行动，掩盖新冠病毒的源头。
 
-编辑：飞虹
+詹姆斯·科默周四在接受福克斯新闻数字频道(Fox News Digital)的电话采访时，对福奇和CCP提出指控，并批评拜登政府浪费了大量时间调查武汉实验室泄漏真相。
 
-总编：Irene木木
+众议院监督委员会共和党领袖还指出，拜登总统曾承诺让他的情报团队在90天内调查此事，但这并没有得到一份肯定的答案。90天过去了，100天过去了，拜登终于发表了一份报告：好吧，他们什么也没发现。
 
-新闻链接：[2022年2月10日文贵先生盖特](https://gettr.com/post/ptobeh782f)
+詹姆斯·科默赞扬共和党人公布的电子邮件，这些邮件显示科学家们推测武汉实验室发生了病毒泄密。他警告说，对病毒起源的彻底调查时间越长，就越难具体证明病毒的起源。还指责CCP和福奇从一开始就一起掩盖新冠病毒的起源。  詹姆斯·科默质问：福奇是一个疯狂的科学家。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2-1.jpg)
+参考信息：
 
-校正/发稿：浪迹天涯
+[Rep. Comer accuses Fauci, CCP of covering up COVID origins ‘from day one’: ‘Is he a mad scientist?’](https://www.foxnews.com/politics/comer-fauci-ccp-cover-up-covid-origins-mad-scientist)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
+发稿：MG6
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

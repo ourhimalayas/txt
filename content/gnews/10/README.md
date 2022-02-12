@@ -2,191 +2,38 @@
 ---
 
 
-## 美国将在经济危机后有新的腾飞
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1994577/)
+## 大直播后记：如何做好男人好女人
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1994703/)
 
-[https://gtv.org/video/id=6205b61db0af02660af2311b](https://gtv.org/video/id=6205b61db0af02660af2311b)
+整理：风吹麦浪 HomeL
+编辑：Sadhu
 
-所以这次经济危机会让美国一次新的腾飞
-Por eso EE. UU tendrá un nuevo despegue tras la crisis económica de esta vez
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/6-13.png)图片来源：墨尔本雅典娜农场设计组
 
-但是不要忘了
-Pero no olviden
 
-这就是美国的另外的一面, 资本市场的残忍
-Esta es la otra cara de EE. UU, la crueldad del mercado capital
+我今天给大家分享七哥亲身做给你们看一个好男人、好女人，特别在家主事的人不要把你的哀伤和你的痛苦和压力带给你的家人，这对他们是不公平的。 第二个，有本事的人最后用结果说了算，而不是用眼泪，而不是用恐惧。 你会让大家看到你的实力，你七哥会让你们看到实力。
 
-它每次经济危机之后
-Luego de cada crisis económica
+同时我告诉女性不要在男人事业的任何时候，在他困苦（的时候）给他抱怨。而应该默默地支持，少说多做，按闻风而动的说，少说多做，床上支持、厨房支持大过你千言万语，多在床上呆一会儿，多在厨房里坐一会儿比对你说一万句话都管用。
 
-会把所谓一些大佬们
-Eliminarán a los llamados Boss
+这就是七哥跟你们分享，这就是七哥和战友的感情已经到这个境界了。就我的一切都给了战友，但是我不想把压力，我不想把我的一切分享给你们这个痛苦。
 
-所谓英雄们淘汰掉, 非常残忍
-Y a los héroes, es muy cruel
+我不想让你们跟我一样，我今天我要在这跟你们说一个小时哭死啊，你们都得哭死是吧？ 多少压力那太多事了。 其实76个案子你们（只）看到了几个。
 
-你现在很难想起来美国在过去二三十年所谓的
-Ahora se te hace difícil recordar en los pasados 20 a 30 años EE. UU
+你也想过七哥坐在法庭上，这个冰冷的椅子上15个小时连坐5天的感受吗？你想过我做118次deposition(法律取证，宣誓下的笔录)，每次都十几个小时。在这中间上厕所还给你们发信息给你们聊天，还聊流水的故事，风花雪月是吧？
 
-科技大佬
-Los Boss de la tecnología
+这些年就这么过来的我，同样的是我像对待家人一样，不想把压力和痛苦分享给你们。
 
-你给我数几个
-Sácame la cuenta
+这是七哥必须做到的，等有一天你们都懂了，你们会真正的爱战友还有我们的新中国联邦。
 
-我看看, 你能数出几个出来
-Voy a ver cuántos puedes contar
+资料来源：[2022年2月11日 文贵大直播](https://gettr.com/streaming/ptgw8b5f32)
 
-你数不出来, 美国人都忘记
-No lo podrás contar, si hasta los mismos estadounidenses lo olvidaron
+发布：tianzhihuan
 
-这个国家只往前看, 从来不往后看
-Este país sólo mira hacia adelante, nunca hacia atrás
-
-所以在美国这个国家, 很少人说后悔这个词
-Por eso en EE. UU, pocas personas mencionan la palabra “arrepentimiento”
-在美国这个国家也很少人说
-En EE. UU muy pocas personas lo dicen
-
-Unfair就是不公平
-Unfair es injusticia
-
-很少人说, 不像中国人, 啥都不公平
-Pocas personas lo dicen, no como los chinos que les parece injusto cualquier cosa
-
-这国家就是胜者王侯败者寇
-En este país, el vencedor es el rey y el perdedor es el bandido
-
-你别扯淡, 都往前看
-No digas tonterías, miran hacia adelante
-
-这个国家是每次经济危机之后
-Este país, después de pasar por cada crisis económica
-
-财富转移完又来一波, 科技升新把老的干掉一波
-Después de la transferencia de riqueza viene otra ola, la nueva tecnología matará a la antigua
-
-当年我在旧金山
-Estuve en San Francisco en aquel año
-
-我认识了咱们华人的几个所谓大佬
-Conocí a nuestros algunos llamados Boss chinos
-
-费正清当年就是美国
-En aquel año, Fei Zhengqing en EE. UU
-
-就是知中派, 他的下边这帮人
-Era quien sabía todo de China, la gente debajo de él
-
-我跟他们打交道
-Tenía contactos con ellos
-
-我就一个最大的感受
-Tenía el mayor sentimiento
-
-我每次到旧金山来
-Cada vez que iba a San Francisco
-
-跟这帮人接触都有一帮
-Hay una pandilla en contacto con este grupo de personas
-
-年轻人的介入, 都是小孩学生
-La intervención de los jóvenes y todos son estudiantes
-
-你再次来时候这些学生都走了
-Cuando ibas de nuevo, ya estos estudiantes se fueron
-
-都去成功了
-Todos salieron con éxito
-
-后来这些人我发现都去了哪儿
-Luego me dí cuenta a donde se fueron esta gente
-
-就是后来的Facebook, 谷歌, Youtube
-Es lo que ahora sabemos, Facebook, Google, Youtube
-
-推特
-Twitter
-
-都去发财了, 都走了
-Todos fueron a hacerse ricos
-
-然后那些老人家还在, 还在那儿呢
-Y esos viejos todavía están, ¿dónde están?
-
-还搞中美关系呢
-Todavía estaban revolviendo las relaciones chino-estadounidense
-
-后来我明白了
-Luego comprendí
-
-在美国说玩政治是最傻的, 一帮傻货
-Los que juegan con la política en EE. UU son los más tontos, un montón de tontos
-
-最笨的一帮笨蛋, 聪明人
-Son un grupo de idiotas más idiotas, gente inteligente
-
-全都搞玩政治就去搞钱去了, 所以在美国这个
-Luego de jugar a la política, se dirigen a ganar dinero, por eso en EE. UU
-
-国家你能看得出来搞政治的一帮都是傻球货
-Puedes notar los que salen a participar en la política son unos tontos
-
-都是没什么本事的人, 有本事都是
-Son aquellos que no tienen capacidad, los que son capaces
-
-搞钱搞技术, 搞哲学去了
-Ya fueron a enfocarse en el dinero, la tecnología y la filosofía
-
-所以说这次
-Por eso esta vez
-
-美国好莱坞大洗牌, 科技大洗牌
-Habrá un gran barajado en el Hollywood de EE. UU y en la tecnología
-
-经济大洗牌, 然后美国会
-Gran barajado de economía, después EE. UU
-
-让很多人包括战友当中, 绝大多数的美国人
-Hará que muchas personas incluyendo a los compañeros luchadores, la mayoría de los estadounidenses
-
-会一贫如洗
-Se empobrezcan
-
-因为你跟不上形势
-Porque no puedes seguir el ritmo de la situación
-
-你跟不上形势了就没你的了
-Si no logras seguir el ritmo de la situación, esto no será tuyo
-
-然后剩下以后就是世界的科技大腾飞
-Y lo que queda es el gran despegue tecnológica del mundo en un futuro
-
-生物科技、量子电脑、太空科技、新型材料
-Biotecnología, computadora cuántica, tecnología espacial, nuevos materiales
-
-一切都将改变
-Todo va a cambiar
-
-* * *
-
-日期：02/10/2022
-原视频标题：美国将在经济危机后有新的腾飞
-Estados Unidos tendrá un nuevo despegue tras la crisis económica
-原视频日期：02/07/2022
-原视频网址：[**https://gettr.com/post/psyunve420**](https://gettr.com/post/psyunve420)
-任务编号：KC452(3696)
-视频时间段：0:00-02:18
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

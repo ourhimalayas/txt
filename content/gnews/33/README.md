@@ -2,30 +2,32 @@
 ---
 
 
-## 美FDA推迟批准辉瑞COVID-19幼儿疫苗
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1994104/)
+## 北京冬奥会成为中共以“法”作恶的舞台
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1994183/)
 
-**撰稿：日本东京方舟农场 子辰**
+撰稿: 新西兰伊甸农场 – 亚伦
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-2.png)
+2月10日，郭文贵先生在Gettr视频中透露，中共举办冬奥会就是他们以“法”的名义、行作恶之实的最好诠释。他们不但让参赛运动员五天吃同样的饭，还以奥林匹克检测规则的名义，把有得冠实力的芬兰运动员隔离起来，实施中共病毒检测，让其失去比赛资格。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1172.png)
+中共一直在全世界依靠“蓝金黄”手段，改变法律程序，操纵游戏规则。正如PAG太平联盟集团无理起诉郭先生后就可以在香港上市， UBS瑞银集团可以把郭先生家族基金的股票强迫交易后，就可以获得中国有史以来第一个外国银行金融牌照，中共善于用恶法黑掉揭露它作恶的人，而我们要用合法的手段让世界得知真相并维护正义，一切都是刚刚开始。
 
-据大纪元2月12日报道，美国药品监管机构2月11日宣布，他们决定推迟授权辉瑞公司COVID-19疫苗用于年仅6个月至4岁的幼儿。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-175.jpg)（图片来自大纪元）
-美国食品和药物管理局（Food and Drug Administration，简称FDA）原计划在2月15日就幼儿接种COVID-19（中共病毒）疫苗问题咨询其顾问委员会，并可能在数小时内，就发布紧急使用授权（EUA）。但是，鉴于对辉瑞公司2月1日发送的初步数据的评估，这个计划已经发生改变并推迟。
+编辑：飞虹
 
-FDA认为，他们尚不能批准为6个月到4岁的儿童接种疫苗，他们还需要从一项针对该年龄组的三剂量方案试验中获得相关数据后才能得到答案并授权。
+总编：Irene木木
 
-食品和药物管理局生物制品评估与研究中心（Center for Biologics Evaluation and Research）主任彼得‧马克斯（Peter Marks）博士在电话采访中告诉《大纪元时报》（The Epoch Times）记者：“所看到的数据让我们意识到，我们还需要看一看正在进行的三剂量实验的数据，之后才能确定我们可以对之进行授权。”
+新闻链接：[2022年2月10日文贵先生盖特](https://gettr.com/post/ptobeh782f)
 
-他补充说，他们制定了一个新的标准，如果达不到这个标准就不会继续下去。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2-1.jpg)
 
-此外，有批评人士指出，疫苗带来的副作用风险，不值得让年幼的儿童去接种疫苗。
+校正/发稿：浪迹天涯
 
-参考链接：
-[https://www.epochtimes.com/b5/22/2/12/n13571520.htm](https://www.epochtimes.com/b5/22/2/12/n13571520.htm)
-
-素材采编：子辰
-编辑：老孙
-发布：爱放飞
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
