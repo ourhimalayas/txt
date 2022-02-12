@@ -2,32 +2,204 @@
 ---
 
 
-## 美国国务卿安布林肯表示，俄罗斯可能在奥运会期间入侵乌克兰
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1994410/)
+## 喜支付体现人类无条件支付的本能
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1994476/)
 
-撰稿：小湫
-![](https://assets.gnews.org/wp-content/uploads/2022/02/5D505542-3E69-4B33-A0DE-9F3A8BC30952.jpeg)图片来自网络
-美国国务卿布林肯上周五表示，俄罗斯可能在北京冬奥会期间入侵乌克兰，因此美国人应该立即离开这个东欧国家。 布林肯没有详细说明国务院呼吁所有美国公民离开乌克兰的最新安全警报背后的原因。
+[https://gtv.org/video/id=6205b50bb0af02660af230c2](https://gtv.org/video/id=6205b50bb0af02660af230c2)
 
-布林肯在澳大利亚墨尔本访问期间说，我们看到令人非常不安的俄罗斯持续升级的迹象，包括新部队抵达乌克兰边境。我们正处在随时看到俄罗斯入侵的窗口期，这包括奥运会期间，本届北京冬季奥运会定于2月20日结束。俄罗斯在乌克兰边境附近集结了超过10万军队。俄罗斯表示没有入侵的计划，但希望西方国家将乌克兰和其他前苏联解体的国家排除在北约之外。
+它一下就秒到了
+Por qué eso llega en cuestión de segundo
 
-周五，布林肯与印度、日本和澳大利亚外长在堪培拉举行会议，会议的主要议题是乌克兰的战争威胁以及俄罗斯和中国之间加强联盟，美国、印度、日本和澳大利亚四个国家组成的四方会谈，旨在对抗中国日益增长的地区影响。在关于四方联盟的问题上，印度外交部长Jaishankar强调，四方伙伴关系是为了共同的价值观，不是针对特定的国家，印度政府是俄罗斯军事硬件的最大客户之一。当记者问及俄罗斯对乌克兰的行为是否恰当时，Jaishankar回答说，四方会谈的重点是印度-太平洋地区，而不是欧洲。
+我们这叫在线支付
+Nosotros lo llamamos “pago en línea”
 
-布林肯早些时候表示，美国与中国在印太地区的冲突并非不可避免。我们同样担心，近年来中国在国内、印太地区以及在其他地区的行动越来越频繁。布林肯此行旨在加强美国在亚洲的利益，并遏制中国在该地区日益强硬的态度。 他还将访问斐济，并在夏威夷与日本和韩国领导人讨论有关朝鲜的紧迫问题。
+我们不是在线买卖
+Esto no es compra y venta en línea
 
-中国外交部发言人赵立坚驳斥了四方对北京在太平洋岛国日益扩大的影响力的担忧。 中国对太平洋岛国的支持是开放、透明和包容的，不针对任何第三方。我们希望所有国家都能采取实际行动，帮助太平洋岛国应对挑战，为地区和平、稳定和发展做出更多贡献。
+只要对方是卖车的
+Si la otra persona quiere vender el carro
 
-澳大利亚近年来遭到了贸易报复，原因是它的一些行动激怒了北京政府，这些行动包括禁止外国秘密干预国内政治，禁止中国科技巨头华为参与重大基础设施项目，并敦促对COVID-19大流行的起源进行独立调查。
+还有卖画的
+Y el que vende cuadros
 
-澳大利亚总理斯科特·莫里森说，在与布林肯、Jaishankar和日本外相林吉正会晤后，他对双方共同承诺反对胁迫感到放心。
+咱俩说好了叫约定式付款
+Si nosotros dos ya acordamos esto se llama “pago convenido”
 
-周五早些时候，布林肯和和日本外相林吉正举行了一次会议，他们对俄罗斯在乌克兰边境加强军事力量表示深切关注，一位不愿透露姓名的日本外务省官员说，两国领导人还对朝鲜不断升级的核武器和导弹开发方面表示严重关切。
+跟这个交易没毛关系
+No tiene ninguna relación con esta transacción
 
-参考信息：
+可人类给它设定好了身份证、年龄、资金来源
+Pero el ser humano lo configuró con cédula de identidad, edad y fuente de fondos
 
-[US Secretary of State Antony Blinken says Russia could invade Ukraine during Olympics](https://www.9news.com.au/world/quad-press-conference-us-secretary-of-state-antony-blinken-says-russia-could-invade-ukraine-during-olympics/7ac7ea6e-c71c-4194-a5ea-7f8cb11fcb75)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
-发稿：MG6
+这是全人类最黑暗的金融时代
+Esta es una Era financiera más oscura en toda la humanidad
+
+就是因为它造了太多假
+Porque en eso se hacen muchas falsificaciones
+
+我们有个战友 台湾的
+Tenemos un compañero luchador de Taiwán
+
+这不在我们农场的战友
+No está en nuestra finca
+
+一位女士 很棒的
+Una excelente dama
+
+我的老朋友了 93岁今年
+Es mi viejo amigo, este año cumple los 93 años
+
+她说文贵
+Ella dijo: “Wengui
+
+我就等着这个
+Yo he estado esperando esto”
+
+所以说人这个智商
+Por eso el coeficiente intelectual de una persona
+
+我在说这个93岁的一个台湾人
+La taiwanesa de 93 años que estoy diciendo
+
+昨天下午上线
+Ayer en la tarde se conectó
+
+她咔咔咔就转几笔
+Y así de la nada ya hizo varias transacciones
+
+人家93岁了
+Ella tiene 93 años
+
+人家啪啪啪自己处理完
+Y en un dos por tres ella misma resolvió
+
+她说七哥
+Ella dijo “Miles
+
+我把我这个手里边120万HDO
+Yo transferí 1.2 millones HDO que tenía en la mano
+
+转了还剩一万多
+Ahora me quedan 10 mil y pico”
+
+就这么简单
+Así de fácil
+
+而且就用自己的手机
+Además, con su propio celular
+
+大家记住第一个功能的核心
+Todos recuerden la primera función esencial
+
+无条件的交易支付
+Pago de transacción incondicional
+
+是你一生中找回你人类的财富的最本能
+Es el mayor instinto en la vida para recuperar tu riqueza humana
+
+第二条 买画
+Segundo, comprar cuadros
+
+吃饭、餐厅
+Comer, los restaurantes
+
+只要你足够有智慧
+Si tienes suficiente sabiduría
+
+你能省下完全
+Te podrás ahorrar totalmente
+
+你不需要过去支付的5%、10%、20%的钱
+No necesitas ir a pagar como en el pasado el 5, 10, 20% de dinero
+
+包括所有全世界的交易都是要付交易费
+Incluyendo todas las transacciones del mundo entero, debes pagar una tarifa por transacción
+
+这是给你0, 这个问题
+Este te está dando 0, este problema
+
+七哥跟他们奋斗了很长时间
+Yo tuve una lucha muy larga con ellos
+
+就那个王八蛋律师特别坏，他说
+Ese abogado infeliz muy malo, dijo
+
+必须收1.52什么高收费呀高风险
+Debes cobrar 1.52, que si tarifa alta, alto riesgo
+
+我说你
+Le dije
+
+要收1毛钱我就不
+Si tu vas a cobrar un centavo
+
+不会让新中国联邦任何人用你这个东西
+No dejaré que ninguno del Nuevo Estado Federal de China utilice esta cosa tuya
+
+必须是0交易
+Debe ser transacción 0
+
+为什么，我说我们战友没事了
+Por qué, le dije que nuestros compañeros luchadores si no tienen nada que hacer
+
+未来就是划钱玩
+En un futuro podrá jugar deslizando el dinero
+
+就这么简单 没事儿了
+Así de fácil, si no tiene nada que hacer
+
+睡觉前两口子就转钱玩
+Antes de dormir la pareja se pone a jugar transfiriendo dinero
+
+你给我100
+Tu me das 100
+
+我给你1000
+Yo te doy 1000
+
+你给我1000
+Tu me das 1000
+
+我给你，就划钱玩 咋的
+Yo te doy, así juegan deslizando el dinero, qué pasa
+
+你要是收费
+Si vas a cobrar
+
+我们就没有这个兴趣了
+Nosotros no tendremos este hobby
+
+你知道这意味着什么
+Sabes qué significado tiene esto
+
+兄弟姐妹们
+Hermanos y hermanas
+
+我们要让新中国联邦战友走出家门
+Nosotros queremos que los compañeros luchadores del Nuevo Estado Federal de China salgan de su casa
+
+去推销Hpay 的时候，你告诉他这是免费的
+Y promocionen el Hpay, le puedan decir que esto es gratis
+
+* * *
+
+日期：02/09/2022
+原视频标题：喜支付体现人类无条件支付的本能
+H Pay refleja el instinto del pago incondicional del ser humano
+原视频日期：02/07/2022
+原视频网址：[**https://gettr.com/post/psxnq73faf**](https://gettr.com/post/psxnq73faf)
+任务编号：KC451(3697)
+视频时间段：0:00-02:19
+西听校：洛杉矶盘古农场- 小文萱
+翻译：洛杉矶盘古农场- 霙霙（文霙）
+翻译终校：洛杉矶盘古农场- 小文萱
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

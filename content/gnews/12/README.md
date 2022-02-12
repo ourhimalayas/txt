@@ -2,38 +2,45 @@
 ---
 
 
-## 研究表明在中共实验室中有中共病毒的早期版本
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1994402/)
+## 拜登自曝曾因颅动脉瘤住院
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1994457/)
 
-撰稿：银河系农场 – 骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-2.png)
-据英国媒体2月10日消息，近日，匈牙利的科学家在检查来自南极洲的土壤DNA时发现了一种独特的中共病毒变异的痕迹，这些痕迹可能会支持中共病毒来自实验室的结论。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1177.png)图片来源：https://www.newsmax.com
-从土壤样本分析来看，科学家认为中共病毒应该不是从自然野生动物传染给人类的。研究人员还发现了来自中共的仓鼠和绿猴的遗传物质，这表明中共病毒利用动物或动物细胞进行过实验室实验。
+翻译：Jenny Ball
 
-越来越多的证据证明，在中共病毒大流行之前，中共科学家们在实验室设计了病毒，并增强了其传染性。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1183.png)图片来源：republicbrief.com
 
-新闻链接：
+周四，民主党人乔·拜登出席会议讨论降低处方药成本，并借此机会谈论他个人与脑动脉瘤的斗争。
 
-[‘Early version of Covid-19’ is discovered in Chinese lab, fuelling fears that scientists were studying the virus prior to outbreak](https://www.dailymail.co.uk/news/article-10495613/Early-version-Covid-19-discovered-Chinese-lab.html)
+他对脑瘤的承认发生在一个有趣的时间点，恰逢本周早些时候华盛顿一些共和党议员要求拜登接受认知测试，因为他们担心拜登的“精神衰退”已经“变得更加明显”，并可能阻碍他的判断。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+拜登在一些公开场合谈到他自己的医疗费经历时语无伦次，这被“转折点”成员丹尼·德·乌尔比纳（Danny De Urbina）重点强调。
 
-编辑：飞虹
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1185.png)图片来源：republicbrief.com
 
-总编：木木
+事实是，华盛顿早就知道拜登的健康问题。
 
-校正/发稿：浪迹天涯
+2020 年 10 月，福克斯新闻主持人玛丽亚·巴蒂罗莫 (Maria Bartiromo) 告诉全国观众：“我的消息来源很可靠，两个医生告诉我说，乔·拜登有两个脑动脉瘤，他需要向人们解释这一点。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-2.png)
+据当地特拉华新闻报道，自 1988 年以来，脑动脉瘤大部分都被掩盖了。
 
+保守派简报报道了 2020 年，希尔呼吁对拜登进行医学评估：
 
+“一群共和党议员再次向乔·拜登总统施压，要求他进行认知测试，因为他们认为，他的‘精神衰退’已经‘变得更加明显’，可能会阻碍他的判断。
+
+近 40 名共和党国会议员希望 79 岁的拜登效仿他的前任、前总统川普开创的先例，因为最近的民意调查越来越多地显示，越来越多的美国人不确定，拜登的心理是否适合担任这项艰巨的总统工作。
+
+周二，在前白宫医生、德克萨斯州众议员罗尼·杰克逊的带领下，其他 37 名共和党同事签署了一封致拜登的信，他们在信中表示，他们“担心”他的“当前认知状态”。
+
+“这不是党派问题。当我与川普总统讨论进行认知测试时，他急于向美国人民保证，并把假新闻媒体的故事戳穿，”杰克逊在信中写道。 “为什么拜登总统不这样做呢？”
+
+素材链接：[republicbrief.com] [Biden Reveals He Was Hospitalized For Cranial Aneurysms](http://republicbrief.com/biden-reveals-he-was-hospitalized-for-cranial-aneurysms/)
+
+* * *
+
+*审核：文乐
+校对：小东
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

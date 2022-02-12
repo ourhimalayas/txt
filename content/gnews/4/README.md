@@ -2,43 +2,192 @@
 ---
 
 
-## 乔·罗根拒绝一亿美元薪酬：就待在Spotify
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1994477/)
+## 美国将在经济危机后有新的腾飞
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1994577/)
 
-素材翻译： Jenny Ball
+[https://gtv.org/video/id=6205b61db0af02660af2311b](https://gtv.org/video/id=6205b61db0af02660af2311b)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1187.png)乔·罗根（Joe Rogan）于 2021 年 7 月 9 日在内华达州拉斯维加斯的 T-Mobile 竞技场参加 UFC 264 的称重仪式。（Stacy Revere/Getty Images）
+所以这次经济危机会让美国一次新的腾飞
+Por eso EE. UU tendrá un nuevo despegue tras la crisis económica de esta vez
 
-喜剧演员乔·罗根周二在德州告诉观众，他不会接受视频平台 Rumble 提供的 1 亿美元独家主持他的节目的报价。
+但是不要忘了
+Pero no olviden
 
-当罗根在 Spotify 的未来存在争议之际，Rumble的首席执行官本周在一篇广为流传的社交媒体帖子中向他提供了这份合同。在过去的几周里，罗根一直是各个在线平台强烈攻击的目标，以期迫使 Spotify 删除他关于 COVID-19 讨论的播客内容。
+这就是美国的另外的一面, 资本市场的残忍
+Esta es la otra cara de EE. UU, la crueldad del mercado capital
 
-“不，Spotify 莫名其妙地和我连在了一起，让我们看看会发生什么，”罗根在德克萨斯州奥斯汀的活动中说。
+它每次经济危机之后
+Luego de cada crisis económica
 
-本周早些时候，Rumble 首席执行官克里斯·帕夫洛夫斯基（Chris Pavlovski） 在一封信中写道，“我们愿意为你提供 1 亿”来使用 Rumble，Rumble 被视为 YouTube 或 TikTok 等视频平台的新兴替代品。
+会把所谓一些大佬们
+Eliminarán a los llamados Boss
 
-“你在四年内，以 1 亿美元的价格，将你所有的节目带到 Rumble，无论新旧，没有审查，你看如何？”巴甫洛夫斯基补充说， “这是我们拯救世界的机会。是的，这是完全合法的。”
+所谓英雄们淘汰掉, 非常残忍
+Y a los héroes, es muy cruel
 
-围绕 Spotify 的争议始于创作歌手尼尔·杨（Neil Young） 要求流媒体音乐服务，要么删除他的音乐，要么删除罗根的节目。后来，Spotify 的一位发言人表示，将删除杨的歌曲，尽管这家总部位于瑞典的公司表示，将在某些播客中添加有关 COVID-19 的警告。
+你现在很难想起来美国在过去二三十年所谓的
+Ahora se te hace difícil recordar en los pasados 20 a 30 años EE. UU
 
-上周晚些时候，一段经过大量编辑和断章取义的视频显示，罗根在 10 多年的播客中多次说出“黑人”（Nigger）。一天后，罗根对这段视频发表了讲话，并发表了道歉，但指出这段视频经过编辑，缺乏语境。
+科技大佬
+Los Boss de la tecnología
 
-然后在周日，Spotify 首席执行官丹尼尔·艾克（Daniel Ek） 宣布媒体将支持罗根，他也是 UFC 的长期评论员。
+你给我数几个
+Sácame la cuenta
 
-“虽然我强烈谴责乔所说的话，并且，我同意他从我们的平台上删除过去剧集的决定，但我意识到，有些人会想要更多。我想非常清楚地说明一点——我不相信让乔沉默是答案，”埃克在一份声明中说。
+我看看, 你能数出几个出来
+Voy a ver cuántos puedes contar
 
-他补充说：“我们应该在内容范围有明确的界限，并在跨越时采取行动，但取消声音是一个下坡路。要更广泛地看待这个问题，批判性思维和公开辩论，才能推动真正和必要的进展。”
+你数不出来, 美国人都忘记
+No lo podrás contar, si hasta los mismos estadounidenses lo olvidaron
 
-在 Rumble 给罗根报价信之后，2021 年 12 月与 Rumble 达成交易的“CF收购公司”（ CF Acquisition Corp. VI ）的股票，在本周飙升了约 39%。
+这个国家只往前看, 从来不往后看
+Este país sólo mira hacia adelante, nunca hacia atrás
 
-素材来源：【theepochtimes.com】[Joe Rogan Turns Down $100 Million Offer: ‘No, Spotify Has Hung in With Me’](https://www.theepochtimes.com/joe-rogan-turns-down-100-million-offer-no-spotify-has-hung-in-with-me_4269489.html?utm_source=Morningbrief&amp;utm_campaign=mb-2022-02-11&amp;utm_medium=email&amp;est=ovHDIK05zb0Uk%2FRxwzeD21imZLSmtfgLUH4SnFc%2FsvpGdWPVfwhadDu6KxrPoV1n196%2BIw%3D%3D)
+所以在美国这个国家, 很少人说后悔这个词
+Por eso en EE. UU, pocas personas mencionan la palabra “arrepentimiento”
+在美国这个国家也很少人说
+En EE. UU muy pocas personas lo dicen
+
+Unfair就是不公平
+Unfair es injusticia
+
+很少人说, 不像中国人, 啥都不公平
+Pocas personas lo dicen, no como los chinos que les parece injusto cualquier cosa
+
+这国家就是胜者王侯败者寇
+En este país, el vencedor es el rey y el perdedor es el bandido
+
+你别扯淡, 都往前看
+No digas tonterías, miran hacia adelante
+
+这个国家是每次经济危机之后
+Este país, después de pasar por cada crisis económica
+
+财富转移完又来一波, 科技升新把老的干掉一波
+Después de la transferencia de riqueza viene otra ola, la nueva tecnología matará a la antigua
+
+当年我在旧金山
+Estuve en San Francisco en aquel año
+
+我认识了咱们华人的几个所谓大佬
+Conocí a nuestros algunos llamados Boss chinos
+
+费正清当年就是美国
+En aquel año, Fei Zhengqing en EE. UU
+
+就是知中派, 他的下边这帮人
+Era quien sabía todo de China, la gente debajo de él
+
+我跟他们打交道
+Tenía contactos con ellos
+
+我就一个最大的感受
+Tenía el mayor sentimiento
+
+我每次到旧金山来
+Cada vez que iba a San Francisco
+
+跟这帮人接触都有一帮
+Hay una pandilla en contacto con este grupo de personas
+
+年轻人的介入, 都是小孩学生
+La intervención de los jóvenes y todos son estudiantes
+
+你再次来时候这些学生都走了
+Cuando ibas de nuevo, ya estos estudiantes se fueron
+
+都去成功了
+Todos salieron con éxito
+
+后来这些人我发现都去了哪儿
+Luego me dí cuenta a donde se fueron esta gente
+
+就是后来的Facebook, 谷歌, Youtube
+Es lo que ahora sabemos, Facebook, Google, Youtube
+
+推特
+Twitter
+
+都去发财了, 都走了
+Todos fueron a hacerse ricos
+
+然后那些老人家还在, 还在那儿呢
+Y esos viejos todavía están, ¿dónde están?
+
+还搞中美关系呢
+Todavía estaban revolviendo las relaciones chino-estadounidense
+
+后来我明白了
+Luego comprendí
+
+在美国说玩政治是最傻的, 一帮傻货
+Los que juegan con la política en EE. UU son los más tontos, un montón de tontos
+
+最笨的一帮笨蛋, 聪明人
+Son un grupo de idiotas más idiotas, gente inteligente
+
+全都搞玩政治就去搞钱去了, 所以在美国这个
+Luego de jugar a la política, se dirigen a ganar dinero, por eso en EE. UU
+
+国家你能看得出来搞政治的一帮都是傻球货
+Puedes notar los que salen a participar en la política son unos tontos
+
+都是没什么本事的人, 有本事都是
+Son aquellos que no tienen capacidad, los que son capaces
+
+搞钱搞技术, 搞哲学去了
+Ya fueron a enfocarse en el dinero, la tecnología y la filosofía
+
+所以说这次
+Por eso esta vez
+
+美国好莱坞大洗牌, 科技大洗牌
+Habrá un gran barajado en el Hollywood de EE. UU y en la tecnología
+
+经济大洗牌, 然后美国会
+Gran barajado de economía, después EE. UU
+
+让很多人包括战友当中, 绝大多数的美国人
+Hará que muchas personas incluyendo a los compañeros luchadores, la mayoría de los estadounidenses
+
+会一贫如洗
+Se empobrezcan
+
+因为你跟不上形势
+Porque no puedes seguir el ritmo de la situación
+
+你跟不上形势了就没你的了
+Si no logras seguir el ritmo de la situación, esto no será tuyo
+
+然后剩下以后就是世界的科技大腾飞
+Y lo que queda es el gran despegue tecnológica del mundo en un futuro
+
+生物科技、量子电脑、太空科技、新型材料
+Biotecnología, computadora cuántica, tecnología espacial, nuevos materiales
+
+一切都将改变
+Todo va a cambiar
 
 * * *
 
-审核：文乐
-校对：小东
-发布：花羽
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-3.jpeg)
+日期：02/10/2022
+原视频标题：美国将在经济危机后有新的腾飞
+Estados Unidos tendrá un nuevo despegue tras la crisis económica
+原视频日期：02/07/2022
+原视频网址：[**https://gettr.com/post/psyunve420**](https://gettr.com/post/psyunve420)
+任务编号：KC452(3696)
+视频时间段：0:00-02:18
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

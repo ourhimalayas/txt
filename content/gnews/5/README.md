@@ -2,205 +2,55 @@
 ---
 
 
-## 喜支付体现人类无条件支付的本能
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1994476/)
+## 北京冬奥会成中共献丑会
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1994544/)
 
-[https://gtv.org/video/id=6205b50bb0af02660af230c2](https://gtv.org/video/id=6205b50bb0af02660af230c2)
+撰稿：一碗兰州（文远）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1-12.jpg)图片来自网络
+“献丑了”原是一种谦逊的说辞，而在这次北京冬奥会上，中共国实打实地上演了一出“以武会友”，将对待中国人民的丑陋手段的亿分之一用在了“外国友人”身上，打了洋大人们一个猝不及防，给他们上了一节生动的“以警治国”课，希望由此使得他们认清中共的流氓本质。
 
-它一下就秒到了
-Por qué eso llega en cuestión de segundo
+中共国向来对新闻自由十分畏惧，将国内的高压舆论管控政策用在外国媒体身上，严格控制外国媒体的报道活动，外媒稍有不慎就会遭到干扰、阻拦，甚至受到暴力威胁。
 
-我们这叫在线支付
-Nosotros lo llamamos “pago en línea”
+荷兰广播公司NOS记者斯乔尔德·邓·达斯（Sjoerd den Daas）在北京街头进行直播报道时，突然被一名戴着“公共安全志愿者”（Public Safety Volunteer）红色袖章的中共安保人员粗暴地推走，其摄影灯也在被阻止直播后立刻遭到拆除。上述画面被全程直播了出去，与达斯进行直播连线的荷兰电视台女主持人一脸惊恐，不知所措，NOS电视台随即将画面切回了主播间。
 
-我们不是在线买卖
-Esto no es compra y venta en línea
+美国网友评论：When it comes to foreign correspondents reporting on the Olympics, Beijing thinks “No news, is good news”. *(翻译：对于外国记者报道奥运会，北京认为“没有消息就是好消息”。)*
 
-只要对方是卖车的
-Si la otra persona quiere vender el carro
+事后，荷兰记者达斯在推特上写道：“与此同时，另一个人拿走了我们的灯光装置。当被问到时，他们无法告诉我们做错了什么。最后我们在拐角处的停车场继续我们的电视直播。” “最近几周，我们和几位外国同事一样，在报道奥运会相关话题时，多次被警方阻挠或拦下。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide2-1.jpg)
+达斯推文截图
+达斯推文：“因此，很难像国际奥委会声称的那样将昨晚的事件视为孤立事件，尽管这种干扰很少在现场直播中发生。现在重新开始工作。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide3.jpg)
+达斯推文截图
+法国24频道记者安东尼·莫雷尔（Antoine Morel）在推特上发文表示，中共国给他们指派了一名所谓的“导游”，此人一直跟踪他们，一旦发现被采访者偏离官方话语，这名“导游”就会把他们拉走。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide4.jpg)
+安东尼·莫雷尔推文截图
+美国专题报道新闻公司（Feature Story News）的记者帕特里克·霍克（Patrick Fok）在推特上写道：“我在王府井被安保人员拦住，我出示了记者证，被告知不能采访人们关于冬奥会的感受。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide5.jpg)
+记者帕特里克·霍克推文截图
+除了对外国媒体记者的监控、限制，对于运动员们的抱怨，中共国也按照对待中国老百姓的办法处理——逼他们删除负面信息。
 
-还有卖画的
-Y el que vende cuadros
+芬兰运动员的宿舍发生严重漏水事故，一些运动员将现场照片及视频上传到了Twitter和Instagram上，然后就受到中共国压力，要求他们删除相关信息。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide6-2.jpg)
+Reddit网站相关帖文![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-4.jpg)
+网传中共国冬奥会相关人员聊天
+控制媒体、管控舆论，是中共愚弄、统治人民的一贯手段，此次用到参加冬奥会的外国人身上也不是什么新鲜事。在2022寅虎灭共年这一重要时期，中共的愚蠢与疯狂只会让更多人认清它的邪恶，从而加速其灭亡！
 
-咱俩说好了叫约定式付款
-Si nosotros dos ya acordamos esto se llama “pago convenido”
+参考消息：
 
-跟这个交易没毛关系
-No tiene ninguna relación con esta transacción
+大纪元：[被尾随 被监视 多国记者谈冬奥报导境遇](https://www.epochtimes.com/gb/22/2/8/n13563606.htm)
 
-可人类给它设定好了身份证、年龄、资金来源
-Pero el ser humano lo configuró con cédula de identidad, edad y fuente de fondos
+推特：荷兰NOS 记者[达斯推文](https://twitter.com/sjoerddendaas/status/1489926485536391170?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1489926485536391170%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.epochtimes.com%2Fgb%2F22%2F2%2F8%2Fn13563606.htm)
 
-这是全人类最黑暗的金融时代
-Esta es una Era financiera más oscura en toda la humanidad
+推特：法国24频道记者[安东尼推文](https://twitter.com/Antwanmorel/status/1490214278837653504)
 
-就是因为它造了太多假
-Porque en eso se hacen muchas falsificaciones
+推特：美国专题报道记者[霍克推文](https://twitter.com/PaddyFok/status/1490528612650713088?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1490528612650713088%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.epochtimes.com%2Fgb%2F22%2F2%2F8%2Fn13563606.htm)
 
-我们有个战友 台湾的
-Tenemos un compañero luchador de Taiwán
+Reddit：[Finland’s Olympic athlete dormitory in Beijing experienced a serious water leakage today. Some Finnish athletes posted this incident on Twitter and Instagram … and they were told to delete them by the Chinese authorities](https://www.reddit.com/r/China/comments/spwrtv/finlands_olympic_athlete_dormitory_in_beijing/)
 
-这不在我们农场的战友
-No está en nuestra finca
+推特：[灭霸小米(澳喜特战旅) ：冬奥村，芬兰选手房间水管爆了，中共第一时间找到该名选手，想要解决一下提出问题的人](https://twitter.com/V56445280/status/1492092319692394498)
 
-一位女士 很棒的
-Una excelente dama
-
-我的老朋友了 93岁今年
-Es mi viejo amigo, este año cumple los 93 años
-
-她说文贵
-Ella dijo: “Wengui
-
-我就等着这个
-Yo he estado esperando esto”
-
-所以说人这个智商
-Por eso el coeficiente intelectual de una persona
-
-我在说这个93岁的一个台湾人
-La taiwanesa de 93 años que estoy diciendo
-
-昨天下午上线
-Ayer en la tarde se conectó
-
-她咔咔咔就转几笔
-Y así de la nada ya hizo varias transacciones
-
-人家93岁了
-Ella tiene 93 años
-
-人家啪啪啪自己处理完
-Y en un dos por tres ella misma resolvió
-
-她说七哥
-Ella dijo “Miles
-
-我把我这个手里边120万HDO
-Yo transferí 1.2 millones HDO que tenía en la mano
-
-转了还剩一万多
-Ahora me quedan 10 mil y pico”
-
-就这么简单
-Así de fácil
-
-而且就用自己的手机
-Además, con su propio celular
-
-大家记住第一个功能的核心
-Todos recuerden la primera función esencial
-
-无条件的交易支付
-Pago de transacción incondicional
-
-是你一生中找回你人类的财富的最本能
-Es el mayor instinto en la vida para recuperar tu riqueza humana
-
-第二条 买画
-Segundo, comprar cuadros
-
-吃饭、餐厅
-Comer, los restaurantes
-
-只要你足够有智慧
-Si tienes suficiente sabiduría
-
-你能省下完全
-Te podrás ahorrar totalmente
-
-你不需要过去支付的5%、10%、20%的钱
-No necesitas ir a pagar como en el pasado el 5, 10, 20% de dinero
-
-包括所有全世界的交易都是要付交易费
-Incluyendo todas las transacciones del mundo entero, debes pagar una tarifa por transacción
-
-这是给你0, 这个问题
-Este te está dando 0, este problema
-
-七哥跟他们奋斗了很长时间
-Yo tuve una lucha muy larga con ellos
-
-就那个王八蛋律师特别坏，他说
-Ese abogado infeliz muy malo, dijo
-
-必须收1.52什么高收费呀高风险
-Debes cobrar 1.52, que si tarifa alta, alto riesgo
-
-我说你
-Le dije
-
-要收1毛钱我就不
-Si tu vas a cobrar un centavo
-
-不会让新中国联邦任何人用你这个东西
-No dejaré que ninguno del Nuevo Estado Federal de China utilice esta cosa tuya
-
-必须是0交易
-Debe ser transacción 0
-
-为什么，我说我们战友没事了
-Por qué, le dije que nuestros compañeros luchadores si no tienen nada que hacer
-
-未来就是划钱玩
-En un futuro podrá jugar deslizando el dinero
-
-就这么简单 没事儿了
-Así de fácil, si no tiene nada que hacer
-
-睡觉前两口子就转钱玩
-Antes de dormir la pareja se pone a jugar transfiriendo dinero
-
-你给我100
-Tu me das 100
-
-我给你1000
-Yo te doy 1000
-
-你给我1000
-Tu me das 1000
-
-我给你，就划钱玩 咋的
-Yo te doy, así juegan deslizando el dinero, qué pasa
-
-你要是收费
-Si vas a cobrar
-
-我们就没有这个兴趣了
-Nosotros no tendremos este hobby
-
-你知道这意味着什么
-Sabes qué significado tiene esto
-
-兄弟姐妹们
-Hermanos y hermanas
-
-我们要让新中国联邦战友走出家门
-Nosotros queremos que los compañeros luchadores del Nuevo Estado Federal de China salgan de su casa
-
-去推销Hpay 的时候，你告诉他这是免费的
-Y promocionen el Hpay, le puedan decir que esto es gratis
-
-* * *
-
-日期：02/09/2022
-原视频标题：喜支付体现人类无条件支付的本能
-H Pay refleja el instinto del pago incondicional del ser humano
-原视频日期：02/07/2022
-原视频网址：[**https://gettr.com/post/psxnq73faf**](https://gettr.com/post/psxnq73faf)
-任务编号：KC451(3697)
-视频时间段：0:00-02:19
-西听校：洛杉矶盘古农场- 小文萱
-翻译：洛杉矶盘古农场- 霙霙（文霙）
-翻译终校：洛杉矶盘古农场- 小文萱
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+编辑：云彩
+![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

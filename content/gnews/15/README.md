@@ -2,42 +2,33 @@
 ---
 
 
-## 美大学生校队完胜中共外聘职业联军
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1994371/)
+## 美国国务卿安布林肯表示，俄罗斯可能在奥运会期间入侵乌克兰
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1994410/)
 
-撰稿：纽约香草山 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-2.png)
-2月10日，冬奥会冰球男子组预赛，由美高校学生组成的美国队，以8:0完胜中共出巨资打造的，由美、加、俄职业球员组成的中国队。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1175.png)图片来源：https://news.sina.cn
-此前，自去年12月美国国家冰球联盟NHL宣布不派联盟球员参加2022北京冬奥会，冰球强国美国和加拿大匆忙组建了各自的国家队跨洋出征。这些年轻的球员绝大多数是在校大学生，从没参加过国际比赛；反观中国队的阵容，25人中，本土球员只有6人，其余的19人几乎都是通过中共国运作了四年的“大国战略”高薪招募的外籍球员，而且大部分是NHL职业球员。
+撰稿：小湫
+![](https://assets.gnews.org/wp-content/uploads/2022/02/5D505542-3E69-4B33-A0DE-9F3A8BC30952.jpeg)图片来自网络
+美国国务卿布林肯上周五表示，俄罗斯可能在北京冬奥会期间入侵乌克兰，因此美国人应该立即离开这个东欧国家。 布林肯没有详细说明国务院呼吁所有美国公民离开乌克兰的最新安全警报背后的原因。
 
-根据国际冰球联合会的规则，允许球员代表一个国家效力，只要在那里生活了至少两年。中共国本来没有冰球队，仅仅为了实现奥运会东道主国“全项目”参与，不惜花费巨资打造了这支联合球队，没想到在首场美中交锋中，就以这般不堪入目的成绩，展现在世人面前。网友尴尬评论：落花流水。
+布林肯在澳大利亚墨尔本访问期间说，我们看到令人非常不安的俄罗斯持续升级的迹象，包括新部队抵达乌克兰边境。我们正处在随时看到俄罗斯入侵的窗口期，这包括奥运会期间，本届北京冬季奥运会定于2月20日结束。俄罗斯在乌克兰边境附近集结了超过10万军队。俄罗斯表示没有入侵的计划，但希望西方国家将乌克兰和其他前苏联解体的国家排除在北约之外。
 
-正如郭先生所说，北京冬奥会，一切都是假的。这场比赛正是另一个有力的佐证。
+周五，布林肯与印度、日本和澳大利亚外长在堪培拉举行会议，会议的主要议题是乌克兰的战争威胁以及俄罗斯和中国之间加强联盟，美国、印度、日本和澳大利亚四个国家组成的四方会谈，旨在对抗中国日益增长的地区影响。在关于四方联盟的问题上，印度外交部长Jaishankar强调，四方伙伴关系是为了共同的价值观，不是针对特定的国家，印度政府是俄罗斯军事硬件的最大客户之一。当记者问及俄罗斯对乌克兰的行为是否恰当时，Jaishankar回答说，四方会谈的重点是印度-太平洋地区，而不是欧洲。
 
-【新闻链接】
+布林肯早些时候表示，美国与中国在印太地区的冲突并非不可避免。我们同样担心，近年来中国在国内、印太地区以及在其他地区的行动越来越频繁。布林肯此行旨在加强美国在亚洲的利益，并遏制中国在该地区日益强硬的态度。 他还将访问斐济，并在夏威夷与日本和韩国领导人讨论有关朝鲜的紧迫问题。
 
-[US spoils host China’s hockey debut in 8-0 thrashing](https://www.france24.com/en/live-news/20220210-us-spoils-host-china-s-hockey-debut-in-8-0-thrashing)
+中国外交部发言人赵立坚驳斥了四方对北京在太平洋岛国日益扩大的影响力的担忧。 中国对太平洋岛国的支持是开放、透明和包容的，不针对任何第三方。我们希望所有国家都能采取实际行动，帮助太平洋岛国应对挑战，为地区和平、稳定和发展做出更多贡献。
 
-[China’s Olympic hockey hopes rest on North American talent](https://www.foxnews.com/sports/china-olympic-hockey-north-american-talent)
+澳大利亚近年来遭到了贸易报复，原因是它的一些行动激怒了北京政府，这些行动包括禁止外国秘密干预国内政治，禁止中国科技巨头华为参与重大基础设施项目，并敦促对COVID-19大流行的起源进行独立调查。
 
-[中国男子冰球历史首登冬奥舞台，0-8不敌美国队](https://news.sina.cn/gn/2022-02-10/detail-ikyakumy5282501.d.html?from=wap)
+澳大利亚总理斯科特·莫里森说，在与布林肯、Jaishankar和日本外相林吉正会晤后，他对双方共同承诺反对胁迫感到放心。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
+周五早些时候，布林肯和和日本外相林吉正举行了一次会议，他们对俄罗斯在乌克兰边境加强军事力量表示深切关注，一位不愿透露姓名的日本外务省官员说，两国领导人还对朝鲜不断升级的核武器和导弹开发方面表示严重关切。
 
-编辑：谐趣园
+参考信息：
 
-总编：Ivy001
+[US Secretary of State Antony Blinken says Russia could invade Ukraine during Olympics](https://www.9news.com.au/world/quad-press-conference-us-secretary-of-state-antony-blinken-says-russia-could-invade-ukraine-during-olympics/7ac7ea6e-c71c-4194-a5ea-7f8cb11fcb75)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
+发稿：MG6
 
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
