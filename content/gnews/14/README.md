@@ -2,33 +2,42 @@
 ---
 
 
-## 大直播后记：北京冬奥会是一出中共假恶丑的闹剧
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1994347/)
+## 美大学生校队完胜中共外聘职业联军
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1994371/)
 
-整理：GraceFang、sadhu
-编辑：小鱼儿
+撰稿：纽约香草山 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-2.png)
+2月10日，冬奥会冰球男子组预赛，由美高校学生组成的美国队，以8:0完胜中共出巨资打造的，由美、加、俄职业球员组成的中国队。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1175.png)图片来源：https://news.sina.cn
+此前，自去年12月美国国家冰球联盟NHL宣布不派联盟球员参加2022北京冬奥会，冰球强国美国和加拿大匆忙组建了各自的国家队跨洋出征。这些年轻的球员绝大多数是在校大学生，从没参加过国际比赛；反观中国队的阵容，25人中，本土球员只有6人，其余的19人几乎都是通过中共国运作了四年的“大国战略”高薪招募的外籍球员，而且大部分是NHL职业球员。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/16-4.png)图片来源：雅典娜设计组（614）
+根据国际冰球联合会的规则，允许球员代表一个国家效力，只要在那里生活了至少两年。中共国本来没有冰球队，仅仅为了实现奥运会东道主国“全项目”参与，不惜花费巨资打造了这支联合球队，没想到在首场美中交锋中，就以这般不堪入目的成绩，展现在世人面前。网友尴尬评论：落花流水。
 
+正如郭先生所说，北京冬奥会，一切都是假的。这场比赛正是另一个有力的佐证。
 
-嘉宾六月的鲜花，解说PPT：史无前例的造假，奥运会从头到尾都是假。比赛场地，百分之百使用人工造雪——就那一块有雪，周围全是光秃秃的。 运动员国籍造假，很多的国籍造假。其中一个就是冰球队，男队25个里面，有19个都是归化的外籍球员；女队23个里面，13个是归化的。 男队，刚刚还0:8输给了美国。 上届的花样滑冰冠军，日本的羽生结弦在起跳的时候，卡进了冰窟窿。你说这种国际赛场的冰，居然能够有个冰窟窿！中共称，奥运史上收视率是最高的。而实际上，全美广播公司（NBC）说它是史上最低的——连以前的一半都不到。中共大规模删除，有关北京冬奥的、社交媒体的评论——据说是以万计的啊！
+【新闻链接】
 
-玩弄奥运规则，中共肆意妄为。遭国际滑总，竞赛一年的裁判黄峰——以前就是以偏袒著名——这次重返奥运，而且担任花滑项目的技术总监。奥运工作人员滥用职权，把保加利亚选手的比赛工具挂在赛场大门上，而且强迫她离开，中共就是用种种卑劣手段。芬兰男子冰球前锋马尔科·安蒂拉，检测呈现阳性后18天，他仍然被隔离——就是不让他参加比赛。
+[US spoils host China’s hockey debut in 8-0 thrashing](https://www.france24.com/en/live-news/20220210-us-spoils-host-china-s-hockey-debut-in-8-0-thrashing)
 
-中共选手范可新，在女子500米短道速滑四分之一决赛中，恶意放倒加拿大选手——实际上，她是两抓着，把加拿大选手给扳倒了。 南韩选手黄大宪，在男子1000米竞速滑冰比赛中，拿下第一。但是，挡了中国队夺冠的路，就把他判犯规。 这样的话，中国队就可以出线了。连续五天，中共给运动员供应的那个餐点，网上都有很多照片，既没有营养，而且是同样的、而且分量还不够。短道速滑1000米决赛中，匈牙利选手刘少林，被中国选手任子威推倒。这种种怪象，现在都在网络上流传。
+[China’s Olympic hockey hopes rest on North American talent](https://www.foxnews.com/sports/china-olympic-hockey-north-american-talent)
 
-奥林匹克之精神被玷污。嘉宾安平：做这个节目前，我上网认真查一下，到底什么是奥林匹克？奥林匹克宪章里面明确规定了，体育运动是一项人权。奥林匹克的核心是什么？——是不歧视。 奥林匹克的精神——是世界和平和友谊的象征。 奥林匹克最终极的目标是什么？——重建更美好的世界（Rebuilding Better World）。大家想一想,哪一个字跟北京冬奥有关。这就是中共几个独裁者，利用奥林匹克之名，榨取整个中国同胞的、万亿的血汗钱。同时，中国付出自然环境被摧毁至万年的代价。中共呢，利用奥林匹克，在为他血腥的统治，苟延残喘。甚至他真正的是，在玷污、在强奸、在蹂躏奥林匹克之精神。
+[中国男子冰球历史首登冬奥舞台，0-8不敌美国队](https://news.sina.cn/gn/2022-02-10/detail-ikyakumy5282501.d.html?from=wap)
 
-资料来源：[2022年2月11日 ——文贵大直播](https://gettr.com/streaming/ptvq9q8759)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/F1C30581-642E-4728-BA67-6179D9B8FC58-2.jpg)
 
-发布：tianzhihuan
+编辑：谐趣园
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+总编：Ivy001
 
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

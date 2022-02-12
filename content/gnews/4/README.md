@@ -2,37 +2,204 @@
 ---
 
 
-## 郭文贵先生与UBS之诉，将让更多同胞觉醒
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1994412/)
+## 喜支付体现人类无条件支付的本能
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1994476/)
 
-作者：Ruihua
-编辑：Mttfly
+[https://gtv.org/video/id=6205b50bb0af02660af230c2](https://gtv.org/video/id=6205b50bb0af02660af230c2)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/78.png)图片来源：www.sharjah24.ae
+它一下就秒到了
+Por qué eso llega en cuestión de segundo
 
+我们这叫在线支付
+Nosotros lo llamamos “pago en línea”
 
-2022年2月10日，文贵先生起诉UBS的官司在伦敦正式立案。
+我们不是在线买卖
+Esto no es compra y venta en línea
 
-UBS的中文名叫瑞银集团，其在全球各大金融中心都设有办公机构，但只在瑞士的苏黎世、巴塞尔有总部。自清朝以来，直至民国破亡，中共建政，UBS一直藏匿着原本属于中国人民的大量财富。这些黑钱沾满了中国人民的鲜血。
+只要对方是卖车的
+Si la otra persona quiere vender el carro
 
-文贵先生在直播中直言，“爆料革命在与UBS的较量中，会遭遇很多意想不到的困难，中共会给英国施加巨大的政治压力，埋下各种突发的变数，包括造假、抹黑、仇恨、甚至谋杀。他们会想尽一切办法，集全球的政治、经济、媒体之能量，将这个案子本身抹掉。”UBS像一个千年恶龙，滋养着全世界的暗黑势力，但这不能阻挡郭先生灭共的进程，即使冒着生命危险。
+还有卖画的
+Y el que vende cuadros
 
-文贵先生在七年的时间里没有放弃这个案子，顶着暗黑势力的重压，直到今天终于立案成功。他经历了多大的挑战，我们是想象不到的。他有一颗多么强大的心，可以承受这些黑暗的侵袭。在我们跟随文贵先生发起的爆料革命的过程中，我们看到了他坚定的信念，永不放弃的精神。我们所了解文贵先生面临的压力，如冰山一角。文贵先生从来不在战友面前，直播中，表露自己所遇到的压力，总是云淡风轻。正如郭先生咬破手指，引天地惊雷，创立新中国联邦。上天站在我们这一边，有信仰的人才能驾驭八面来风，挑战邪恶，临危不惧。
+咱俩说好了叫约定式付款
+Si nosotros dos ya acordamos esto se llama “pago convenido”
 
-UBS的立案是对共产党的毁灭性的打击。共产党这帮老杂毛想要与文贵先生和他的家人勾兑，被文贵先生和他的家人拒绝了。共产党要不惜一切代价，阻止这个官司的立案。因为共产党知道立案后，双方当事人要在法庭上出示文件。这时侯中共和UBS勾结的丑恶必定会暴露在世界人民面前。共产党不得不解释，无产阶级的、爹亲娘亲不如党亲的党怎么会有那么多的钱呢？在UBS的钱不是500个Million！是很大的钱，是50万亿美元，中国的老百姓你知道吗？
+跟这个交易没毛关系
+No tiene ninguna relación con esta transacción
 
-我想所有的中国人都是不敢想的，盗国贼利用他们的公权力把中国人民的血汗钱都存在了海外，人民财富据为己有，我们的人民都蒙在鼓里。共产党不管什么样的钱都不放过。就算给杨改兰的最低生活费也要苛扣，使她和她的孩子无法生活下去。我们看到徐州8个孩子的母亲在24年里的蹂躏，这些都是血淋淋的事实。共产党压榨中国人民70年了，我们中国人再不自省的话，那就真的没救了。而这一次诉讼，必定会唤醒更多被中共洗脑的同胞！
+可人类给它设定好了身份证、年龄、资金来源
+Pero el ser humano lo configuró con cédula de identidad, edad y fuente de fondos
 
-我们是新中国联邦人，要跟共产党彻底的清算，这一笔笔的血泪。所以说，消灭中共是人类正义的需要。让所有的人认清共产党的罪恶，我们要紧跟文贵先生，传播爆料革命真相，让更多的人开眼看到UBS与中共丑恶的交媾。
+这是全人类最黑暗的金融时代
+Esta es una Era financiera más oscura en toda la humanidad
 
-发布：tianzhihuan
+就是因为它造了太多假
+Porque en eso se hacen muchas falsificaciones
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+我们有个战友 台湾的
+Tenemos un compañero luchador de Taiwán
+
+这不在我们农场的战友
+No está en nuestra finca
+
+一位女士 很棒的
+Una excelente dama
+
+我的老朋友了 93岁今年
+Es mi viejo amigo, este año cumple los 93 años
+
+她说文贵
+Ella dijo: “Wengui
+
+我就等着这个
+Yo he estado esperando esto”
+
+所以说人这个智商
+Por eso el coeficiente intelectual de una persona
+
+我在说这个93岁的一个台湾人
+La taiwanesa de 93 años que estoy diciendo
+
+昨天下午上线
+Ayer en la tarde se conectó
+
+她咔咔咔就转几笔
+Y así de la nada ya hizo varias transacciones
+
+人家93岁了
+Ella tiene 93 años
+
+人家啪啪啪自己处理完
+Y en un dos por tres ella misma resolvió
+
+她说七哥
+Ella dijo “Miles
+
+我把我这个手里边120万HDO
+Yo transferí 1.2 millones HDO que tenía en la mano
+
+转了还剩一万多
+Ahora me quedan 10 mil y pico”
+
+就这么简单
+Así de fácil
+
+而且就用自己的手机
+Además, con su propio celular
+
+大家记住第一个功能的核心
+Todos recuerden la primera función esencial
+
+无条件的交易支付
+Pago de transacción incondicional
+
+是你一生中找回你人类的财富的最本能
+Es el mayor instinto en la vida para recuperar tu riqueza humana
+
+第二条 买画
+Segundo, comprar cuadros
+
+吃饭、餐厅
+Comer, los restaurantes
+
+只要你足够有智慧
+Si tienes suficiente sabiduría
+
+你能省下完全
+Te podrás ahorrar totalmente
+
+你不需要过去支付的5%、10%、20%的钱
+No necesitas ir a pagar como en el pasado el 5, 10, 20% de dinero
+
+包括所有全世界的交易都是要付交易费
+Incluyendo todas las transacciones del mundo entero, debes pagar una tarifa por transacción
+
+这是给你0, 这个问题
+Este te está dando 0, este problema
+
+七哥跟他们奋斗了很长时间
+Yo tuve una lucha muy larga con ellos
+
+就那个王八蛋律师特别坏，他说
+Ese abogado infeliz muy malo, dijo
+
+必须收1.52什么高收费呀高风险
+Debes cobrar 1.52, que si tarifa alta, alto riesgo
+
+我说你
+Le dije
+
+要收1毛钱我就不
+Si tu vas a cobrar un centavo
+
+不会让新中国联邦任何人用你这个东西
+No dejaré que ninguno del Nuevo Estado Federal de China utilice esta cosa tuya
+
+必须是0交易
+Debe ser transacción 0
+
+为什么，我说我们战友没事了
+Por qué, le dije que nuestros compañeros luchadores si no tienen nada que hacer
+
+未来就是划钱玩
+En un futuro podrá jugar deslizando el dinero
+
+就这么简单 没事儿了
+Así de fácil, si no tiene nada que hacer
+
+睡觉前两口子就转钱玩
+Antes de dormir la pareja se pone a jugar transfiriendo dinero
+
+你给我100
+Tu me das 100
+
+我给你1000
+Yo te doy 1000
+
+你给我1000
+Tu me das 1000
+
+我给你，就划钱玩 咋的
+Yo te doy, así juegan deslizando el dinero, qué pasa
+
+你要是收费
+Si vas a cobrar
+
+我们就没有这个兴趣了
+Nosotros no tendremos este hobby
+
+你知道这意味着什么
+Sabes qué significado tiene esto
+
+兄弟姐妹们
+Hermanos y hermanas
+
+我们要让新中国联邦战友走出家门
+Nosotros queremos que los compañeros luchadores del Nuevo Estado Federal de China salgan de su casa
+
+去推销Hpay 的时候，你告诉他这是免费的
+Y promocionen el Hpay, le puedan decir que esto es gratis
+
+* * *
+
+日期：02/09/2022
+原视频标题：喜支付体现人类无条件支付的本能
+H Pay refleja el instinto del pago incondicional del ser humano
+原视频日期：02/07/2022
+原视频网址：[**https://gettr.com/post/psxnq73faf**](https://gettr.com/post/psxnq73faf)
+任务编号：KC451(3697)
+视频时间段：0:00-02:19
+西听校：洛杉矶盘古农场- 小文萱
+翻译：洛杉矶盘古农场- 霙霙（文霙）
+翻译终校：洛杉矶盘古农场- 小文萱
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
