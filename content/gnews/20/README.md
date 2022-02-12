@@ -2,10 +2,34 @@
 ---
 
 
-## 2/11/2022 文贵直播：所有反对强打疫苗的都是我们战友,疫苗和冬奥会让全世界和我们站在一起灭共
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1992718/)
+## 2022年2月11日 晚 新中国联邦新闻、GTV新闻访谈简报
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1993049/)
 
-秘密翻译组-北美组
+作者：香草山翻译部
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO.jpg)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-10.png)
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+来源：
+
+新闻：[https://gtv.org/broadcast/watch/62070eaea1fe5e57a4271e34](https://gtv.org/broadcast/watch/62070eaea1fe5e57a4271e34)
+访谈：[https://gtv.org/broadcast/watch/620715c4a1fe5e57a4272299](https://gtv.org/broadcast/watch/620715c4a1fe5e57a4272299)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

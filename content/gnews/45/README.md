@@ -2,34 +2,24 @@
 ---
 
 
-## 美立法者继续商议监管加密货币稳定币措施
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1990694/)
+## 纽约警察局彻查韩外交官遭无端袭击案件
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1990836/)
 
-作者：银河系农场—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月8日，据当地媒体报道，美国众议院当天就联邦政府是否应该迫使加密货币稳定币的发行人严格遵守联邦银行的法规和保险进行了辩论。众议院表示，此举将有利于监管未来因加密货币市场快速增长而引起的相关风险。
+撰稿：追着曙光跑
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide12-2.jpeg)
+据韩国KBS新闻2月11日的报道，韩国驻纽约总领事馆11日表示，美国纽约警察局正对韩国的一名外交官遭不明男子无端袭击案件进行迅速调查。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-12-at-00.44.14.jpeg)图片来源：原新闻
+据总领事馆方面介绍，尚不能确定这是否是“反亚裔仇恨犯罪”，正在进行调查。当地政界人士也纷纷联系总领事馆方面就此表示担忧，并表示将积极提供必要的帮助。
 
-报道提及，拜登政府此前建议美国监管与固定价值挂钩的加密货币，即稳定币。政府人员认为，加密货币稳定币旨在成为动荡的加密货币市场中的避风港，同时其将在数字货币和传统商业之间架设桥梁。因此，加密货币稳定币可以作为更便宜、更方便的支付方式用于国际交易。
+据《纽约邮报》的消息，一名50多岁的韩国外交官9日20时左右在纽约市曼哈顿街头遭不明男子殴打。受害者随后被送往医院救治，目前情况稳定。袭击者在殴打外交官后不久逃走，并没有立即被捕。
 
-数据显示，目前全球流通的加密货币稳定币的价值约为一千八百亿美元，其中，美国约有四分之一的民众参与投资了加密货币，而这一数据已经给财政监管机构造成了巨大的压力。联邦政府提出，眼下对于加密货币稳定币的监管方向主要集中在发行人的资产储备风险管理上。为此，联邦法律应该为稳定币发行人提供明确的标准，用以确保消费者有一个更安全、广泛和稳定的数字金融体系。
+此前，上个月29日，一名60多岁的韩国男子在纽约市布鲁克林经营一家杂货店，也遭到一名男子不分青红皂白的殴打。
 
-参考链接： [Lawmakers clash over how to regulate ‘stablecoins’](https://thehill.com/policy/finance/trade/593369-lawmakers-clash-over-how-to-regulate-stablecoins)
+此外，据纽约警方数据，纽约市反亚裔仇恨犯罪飙升，从2020年的28起增至去年的131起。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+信息来源：**[뉴욕경찰, 한국외교관 ‘묻지마 폭행’ 피해 “신속·철저 수사”](https://news.kbs.co.kr/mobile/news/view.do?ncd=5392466)**
+**[뉴욕포스트 “한국 외교관, 뉴욕 맨해튼서 ‘묻지마 폭행’ 당해”](https://news.kbs.co.kr/mobile/news/view.do?ncd=5391959)**
 
-总编：文特
-编辑：静言
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

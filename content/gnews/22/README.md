@@ -2,23 +2,36 @@
 ---
 
 
-## 起诉瑞银正式立案后灭共进入新阶段
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/1992646/)
+## 中共并未兑付中美贸易协议的2000亿美元承诺
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1992980/)
 
-加拿大温哥华扬帆农场    平民正道
+作者：银河系农场 — 骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国一家研究机构周二的分析显示，在2020年中美贸易协议中，中共并未购买承诺美国的价值2000亿美元的出口产品。
 
-在2月9日文贵大直播中透露了[新中国联邦]起诉[瑞银集团]已正式在伦敦立案的爆炸性消息之后，立即引起了西方媒体的争相报导。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-11-4.jpg)图片来源网络
 
-[彭博新闻]当天撰文称，[瑞银集团]在驳回文贵先生于2015年提起的5亿美元保证金追缴诉讼中败北。伦敦法庭裁定英国有权审理文贵先生对该银行发起的诉讼并正式立案！报导对此表示，此举将沉重打击曾试图以管辖权为由，要求伦敦法院终止受理该案的[瑞银集团]。
+根据此贸易协议要求，中共同意在2020年和2021年将某些美国商品和服务的购买量比2017年至少增加2000亿美元，这意味着中共将在这两年内总共需要购买5024亿美元的美国商品。数据显示在这两年内，美国的实际出口额为2888亿美元，比目标少了2130多亿美元，中共只购买了协议要求的57%。 白宫认为中共应该履行其承诺，但鉴于中共病毒大流行的出现，以及即使在交易达成后，美中贸易关系仍存在不确定性，实现2000亿美元的购买承诺异常困难。另外此协议还导致美国对中共征收的部分关税立即回落，但剩余的关税仍然在影响很多中国产品。
 
-文贵先生指出，UBS瑞银是决定世界和人类命运的沼泽地势力以及中共盗国贼家族重要的财富聚集地，该金融帝国内隐藏着数百年来所累积的上百万亿美元财富和黑账。因此，通过此案，在支持[新中国联邦]的正义沼泽地势力的帮助下，将首次撬开瑞银的秘密数据库大门，找回中共政权在西方藏匿的巨额盗国资产。同时追缴中南坑家族在海外的所有黑钱，并最终将这些非法所得还给中国人民。
 
-自此，在伦敦对瑞银的成功立案，正式发起了[新中国联邦]直面邪恶沼泽势力的第一战，也竖起了爆料革命在不懈灭共道路上一块新的里程碑！
 
-* * *
+相关链接:
 
-编辑： 平民正道    发布：平民正道
+[https://english.kyodonews.net/news/2022/02/f610890c5d56-china-didnt-buy-any-of-200-bil-us-exports-pledged-in-deal-study.html](https://english.kyodonews.net/news/2022/02/f610890c5d56-china-didnt-buy-any-of-200-bil-us-exports-pledged-in-deal-study.html)
 
+
+
+![This image has an empty alt attribute; its file name is 8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+
+编辑/校对/发稿：Petite abeille
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
