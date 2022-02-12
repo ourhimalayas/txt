@@ -2,205 +2,43 @@
 ---
 
 
-## 喜支付体现人类无条件支付的本能
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1994476/)
+## 乔·罗根拒绝一亿美元薪酬：就待在Spotify
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1994477/)
 
-[https://gtv.org/video/id=6205b50bb0af02660af230c2](https://gtv.org/video/id=6205b50bb0af02660af230c2)
+素材翻译： Jenny Ball
 
-它一下就秒到了
-Por qué eso llega en cuestión de segundo
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1187.png)乔·罗根（Joe Rogan）于 2021 年 7 月 9 日在内华达州拉斯维加斯的 T-Mobile 竞技场参加 UFC 264 的称重仪式。（Stacy Revere/Getty Images）
 
-我们这叫在线支付
-Nosotros lo llamamos “pago en línea”
+喜剧演员乔·罗根周二在德州告诉观众，他不会接受视频平台 Rumble 提供的 1 亿美元独家主持他的节目的报价。
 
-我们不是在线买卖
-Esto no es compra y venta en línea
+当罗根在 Spotify 的未来存在争议之际，Rumble的首席执行官本周在一篇广为流传的社交媒体帖子中向他提供了这份合同。在过去的几周里，罗根一直是各个在线平台强烈攻击的目标，以期迫使 Spotify 删除他关于 COVID-19 讨论的播客内容。
 
-只要对方是卖车的
-Si la otra persona quiere vender el carro
+“不，Spotify 莫名其妙地和我连在了一起，让我们看看会发生什么，”罗根在德克萨斯州奥斯汀的活动中说。
 
-还有卖画的
-Y el que vende cuadros
+本周早些时候，Rumble 首席执行官克里斯·帕夫洛夫斯基（Chris Pavlovski） 在一封信中写道，“我们愿意为你提供 1 亿”来使用 Rumble，Rumble 被视为 YouTube 或 TikTok 等视频平台的新兴替代品。
 
-咱俩说好了叫约定式付款
-Si nosotros dos ya acordamos esto se llama “pago convenido”
+“你在四年内，以 1 亿美元的价格，将你所有的节目带到 Rumble，无论新旧，没有审查，你看如何？”巴甫洛夫斯基补充说， “这是我们拯救世界的机会。是的，这是完全合法的。”
 
-跟这个交易没毛关系
-No tiene ninguna relación con esta transacción
+围绕 Spotify 的争议始于创作歌手尼尔·杨（Neil Young） 要求流媒体音乐服务，要么删除他的音乐，要么删除罗根的节目。后来，Spotify 的一位发言人表示，将删除杨的歌曲，尽管这家总部位于瑞典的公司表示，将在某些播客中添加有关 COVID-19 的警告。
 
-可人类给它设定好了身份证、年龄、资金来源
-Pero el ser humano lo configuró con cédula de identidad, edad y fuente de fondos
+上周晚些时候，一段经过大量编辑和断章取义的视频显示，罗根在 10 多年的播客中多次说出“黑人”（Nigger）。一天后，罗根对这段视频发表了讲话，并发表了道歉，但指出这段视频经过编辑，缺乏语境。
 
-这是全人类最黑暗的金融时代
-Esta es una Era financiera más oscura en toda la humanidad
+然后在周日，Spotify 首席执行官丹尼尔·艾克（Daniel Ek） 宣布媒体将支持罗根，他也是 UFC 的长期评论员。
 
-就是因为它造了太多假
-Porque en eso se hacen muchas falsificaciones
+“虽然我强烈谴责乔所说的话，并且，我同意他从我们的平台上删除过去剧集的决定，但我意识到，有些人会想要更多。我想非常清楚地说明一点——我不相信让乔沉默是答案，”埃克在一份声明中说。
 
-我们有个战友 台湾的
-Tenemos un compañero luchador de Taiwán
+他补充说：“我们应该在内容范围有明确的界限，并在跨越时采取行动，但取消声音是一个下坡路。要更广泛地看待这个问题，批判性思维和公开辩论，才能推动真正和必要的进展。”
 
-这不在我们农场的战友
-No está en nuestra finca
+在 Rumble 给罗根报价信之后，2021 年 12 月与 Rumble 达成交易的“CF收购公司”（ CF Acquisition Corp. VI ）的股票，在本周飙升了约 39%。
 
-一位女士 很棒的
-Una excelente dama
-
-我的老朋友了 93岁今年
-Es mi viejo amigo, este año cumple los 93 años
-
-她说文贵
-Ella dijo: “Wengui
-
-我就等着这个
-Yo he estado esperando esto”
-
-所以说人这个智商
-Por eso el coeficiente intelectual de una persona
-
-我在说这个93岁的一个台湾人
-La taiwanesa de 93 años que estoy diciendo
-
-昨天下午上线
-Ayer en la tarde se conectó
-
-她咔咔咔就转几笔
-Y así de la nada ya hizo varias transacciones
-
-人家93岁了
-Ella tiene 93 años
-
-人家啪啪啪自己处理完
-Y en un dos por tres ella misma resolvió
-
-她说七哥
-Ella dijo “Miles
-
-我把我这个手里边120万HDO
-Yo transferí 1.2 millones HDO que tenía en la mano
-
-转了还剩一万多
-Ahora me quedan 10 mil y pico”
-
-就这么简单
-Así de fácil
-
-而且就用自己的手机
-Además, con su propio celular
-
-大家记住第一个功能的核心
-Todos recuerden la primera función esencial
-
-无条件的交易支付
-Pago de transacción incondicional
-
-是你一生中找回你人类的财富的最本能
-Es el mayor instinto en la vida para recuperar tu riqueza humana
-
-第二条 买画
-Segundo, comprar cuadros
-
-吃饭、餐厅
-Comer, los restaurantes
-
-只要你足够有智慧
-Si tienes suficiente sabiduría
-
-你能省下完全
-Te podrás ahorrar totalmente
-
-你不需要过去支付的5%、10%、20%的钱
-No necesitas ir a pagar como en el pasado el 5, 10, 20% de dinero
-
-包括所有全世界的交易都是要付交易费
-Incluyendo todas las transacciones del mundo entero, debes pagar una tarifa por transacción
-
-这是给你0, 这个问题
-Este te está dando 0, este problema
-
-七哥跟他们奋斗了很长时间
-Yo tuve una lucha muy larga con ellos
-
-就那个王八蛋律师特别坏，他说
-Ese abogado infeliz muy malo, dijo
-
-必须收1.52什么高收费呀高风险
-Debes cobrar 1.52, que si tarifa alta, alto riesgo
-
-我说你
-Le dije
-
-要收1毛钱我就不
-Si tu vas a cobrar un centavo
-
-不会让新中国联邦任何人用你这个东西
-No dejaré que ninguno del Nuevo Estado Federal de China utilice esta cosa tuya
-
-必须是0交易
-Debe ser transacción 0
-
-为什么，我说我们战友没事了
-Por qué, le dije que nuestros compañeros luchadores si no tienen nada que hacer
-
-未来就是划钱玩
-En un futuro podrá jugar deslizando el dinero
-
-就这么简单 没事儿了
-Así de fácil, si no tiene nada que hacer
-
-睡觉前两口子就转钱玩
-Antes de dormir la pareja se pone a jugar transfiriendo dinero
-
-你给我100
-Tu me das 100
-
-我给你1000
-Yo te doy 1000
-
-你给我1000
-Tu me das 1000
-
-我给你，就划钱玩 咋的
-Yo te doy, así juegan deslizando el dinero, qué pasa
-
-你要是收费
-Si vas a cobrar
-
-我们就没有这个兴趣了
-Nosotros no tendremos este hobby
-
-你知道这意味着什么
-Sabes qué significado tiene esto
-
-兄弟姐妹们
-Hermanos y hermanas
-
-我们要让新中国联邦战友走出家门
-Nosotros queremos que los compañeros luchadores del Nuevo Estado Federal de China salgan de su casa
-
-去推销Hpay 的时候，你告诉他这是免费的
-Y promocionen el Hpay, le puedan decir que esto es gratis
+素材来源：【theepochtimes.com】[Joe Rogan Turns Down $100 Million Offer: ‘No, Spotify Has Hung in With Me’](https://www.theepochtimes.com/joe-rogan-turns-down-100-million-offer-no-spotify-has-hung-in-with-me_4269489.html?utm_source=Morningbrief&amp;utm_campaign=mb-2022-02-11&amp;utm_medium=email&amp;est=ovHDIK05zb0Uk%2FRxwzeD21imZLSmtfgLUH4SnFc%2FsvpGdWPVfwhadDu6KxrPoV1n196%2BIw%3D%3D)
 
 * * *
 
-日期：02/09/2022
-原视频标题：喜支付体现人类无条件支付的本能
-H Pay refleja el instinto del pago incondicional del ser humano
-原视频日期：02/07/2022
-原视频网址：[**https://gettr.com/post/psxnq73faf**](https://gettr.com/post/psxnq73faf)
-任务编号：KC451(3697)
-视频时间段：0:00-02:19
-西听校：洛杉矶盘古农场- 小文萱
-翻译：洛杉矶盘古农场- 霙霙（文霙）
-翻译终校：洛杉矶盘古农场- 小文萱
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+审核：文乐
+校对：小东
+发布：花羽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

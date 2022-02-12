@@ -2,39 +2,22 @@
 ---
 
 
-## 多国接连启动驻乌克兰使馆人员及家属的紧急撤离程序
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1994277/)
+## 习近平为何抓刘亚洲（下）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1994278/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1178.png)
-作者：台湾宝岛农场 快慢机
+#### 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王
+视频定位：BENJ1，WEI
 
-当地时间2月11日，美国国家安全顾问杰克沙利文，在例行的新闻发布会上对外界表示，白宫呼吁目前仍滞留在乌克兰的美国公民，务必在未来的24-48小时内，迅速撤出该国！
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-200.jpeg)
-据悉，沙利文在星期五的白宫新闻发布会上还着重强调了，鉴于目前俄乌军事对峙局势的不断升级，乌克兰随时都有被莫斯科调集的10万重装优势兵力突袭入侵的可能。如若俄军对乌展开军事打击，届时依然滞留在乌克兰境内的美国公民，将很难获取军事援助撤离该国的途径。换言之，如果不在未来的24-48小时内尽快撤出乌克兰，你的生命将在很大程度上受到俄乌军事冲突所带来的相当威胁，并无法得到有效保障。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-199.jpeg)
-与此同时，包括以色列、英国、澳大利亚、荷兰、日本等十几个国家，也迅速启动了针对本国公民驻乌克兰的紧急撤离程序。结合之前多国开始逐步撤出驻乌克兰使馆工作人及家属的行动来看，国际社会对于当下俄乌之间的军事对峙，上升至大规模武装冲突的预判越发担忧。
+往期回顾：[习近平为何抓刘亚洲（上）](https://gnews.org/zh-hans/1994223/)
 
-与上述多国政府相继紧急启动的驻乌克兰撤侨行动而言，中共北京当局却显得格外淡定，中共驻乌克兰使馆也在不久后对外发布了一则简短的公告，内容是建议目前在乌的中国人尽量留意乌克兰境内的新冠病毒疫情扩散问题，而对于俄乌之间随时一触即发的大规模战事却轻描淡写的一笔带过，更加没有类似如上述十几个国家针对本国驻乌公民，所启动的紧急撤离程序。
+*发布：玉米地守望者*
 
-当地时间2月10日，俄罗斯联邦总参谋部与东哈萨克斯坦地区，签署了一项关于“将哥萨克人引进俄军动员储备区”的战略协议。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-198.jpeg)
-该项战略协议是由东哈萨克斯坦地区的，俄军哥萨克将军尼古拉.多卢达将军，与俄联邦武装部队副总参谋长叶夫根尼.布尔丁斯基上校共同签署的。该项战略协议将赋予俄联邦总参谋部，全权接管哥萨克人加入俄军战备序列的一切授权许可。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-197.jpeg)
-据悉，就在该项战略协议签署当日，位于俄乌边境附近的库班区域，便出现了俄军哥萨克部队进驻前沿阵地的调动部署。这支俄军哥萨克部队是编属在国民近卫军的战斗序列之下。这也标志着俄罗斯总统普京，继1999年的二次车臣战争之后，再次恢复启动大规模征召饶勇善战的哥萨克人，以预备役及合同佣兵的多种形式，混编至俄军现役战斗序列开赴战区参战。
-
-当年的车臣之战，是奠定了普京在俄罗斯政坛定海神针的锚定一役，其惨烈程度几乎可以称得上是近代地区武装冲突之最。而哥萨克佣兵在其中起到了至关重要的作用。如今普京二次大规模启用哥萨克佣兵开赴俄乌边境锋线部署，足见该区域的安全稳定性方面已经达到了前所未有的压力临界值。
-
-此文仅代表笔者个人观点！
-
-资料链接：[https://www.dzwww.com/xinwen/guojixinwen/202202/t20220212\_9808555.htm](https://www.dzwww.com/xinwen/guojixinwen/202202/t20220212_9808555.htm)
-
-* * *
-
-***更多资讯***
-[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
-[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
-[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
