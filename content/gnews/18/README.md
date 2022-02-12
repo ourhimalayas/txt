@@ -2,65 +2,40 @@
 ---
 
 
-## 郭先生直播厅-新中国联邦2022年最重要做什么？
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1992198/)
+## 众议院紧急辩论-加拿大总理特鲁多选择继续为疫苗暴政站台
+` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1992319/)
 
-设计者：纽约香草山设计部 — 喜马拉雅大喵儿
+#### 加拿大温哥华扬帆农场 视频组
 
+素材：文倩
+翻译：文𤦍
+字幕：米小乐
 
+2022/2/8
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+反对党领袖：因为封锁和实施强制措施，我们看到事情发生了非常迅速的变化，因此谭博士说应该重新评估强制疫苗接种计划，今天魁北克自由党核心小组主席明确而强烈地表示，是时候结束分裂、政治化和强制措施了，保守派完全同意，这不应是一个缓慢而拖沓的过程，就因为总理的自负、自傲或拒绝承认，加拿大人太累了，加拿大人需要希望，那么，总理会遵循科学、证据、结束限制、结束强制措施吗？
 
+议长：尊敬的总理。
 
+总理：议长先生，每个人都厌倦了不得不作出牺牲和面对封锁措施，但在过去的两年里，加拿大人不断努力，互相支持，接种疫苗，这是我们在全国各地看到的团结一致，人们一直在为邻里服务，一直在为前线的卫生工作者服务，这将是加拿大人继续做的事情，这是我们度过难关和找回我们热爱的生活的方法，我们将继续遵循科学，继续支持加拿大人，也将继续保护人们的生命。
 
+反对党领：爱尔兰、瑞典、挪威、以色列、捷克共和国、英国、西班牙、丹麦等国家都在取消限制和强制令，它们都是疫苗接种率低于加拿大的国家，然而在加拿大，我们有一位总理拒绝带领人们却不断制造分裂，我必须同意路易斯·拜尔议员，他说人们不知道公共卫生问题止于何处，政治又何时介入，加拿大人希望恢复他们的生活，所以我再次质问总理，他会遵循证据吗？他会遵循科学并快速结束限制和强制令吗？
 
+议长：尊敬的总理。
 
+总理：议长先生，我们的每一步都得到加拿大人的支持，通过遵循科学与…
 
+议长：请安静并遵守规则，现在反对党领袖提出了一个问题，但她听不到总理的说话，尤其是在不断的起哄和喊叫中，所以我要求每个人保持安静，这样她才能听到来自总理的回答。
 
+总理：议长先生，从这场大流行开始我们就一直遵循科学，我们有加拿大人的支持，实际上与许多其他国家（包括反对党领袖所提到的国家）相比，加拿大的生活、生计和经济所遭受的影响并不那么严重，我们将继续遵循科学，作为加拿大人，我们将继续相互依靠以度过这场大流行，我们知道这很疲倦，这很累，但我们也知道，互相支持我们才能度过这场大流行。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-52ac6b5cbc994616-scaled.jpg)
-新中国联邦2022年最重要做什么？ 
-一、一心一意灭共； 
-二、全力以赴扩大新中国联邦被国际和各国家主权的认可度； 
-三、全力以赴在全球建立更多的农场； 
-四、让更多的战友从国内被救出来，同时让更多国内的人知道我们新中国联邦； 五、让所有新中国联邦的战友们在Ｇ系列里赚更多的钱，获得更多的机会； 
-六、让全世界爱好正义的、被共产党病毒伤害的和受到疫苗毒武器设计的人，找到病毒真相，找到毒疫苗解决的办法，要把全世界受到共产党经济威胁、超限战的人紧紧地和我们团结在一起，建立我们真正的爆料革命的国际被公认可的社交媒体大平台； 
-七、新中国联邦人要统一好我们的作战目标，统一行动，保命、保财、报仇。更重要的是让我们所有的战友都能共同度过这个至暗的时代。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-1-1-scaled.jpg)
-Top 7 Priorities for the NFSC in 2022 – 
-1. Be fully committed to the mission of Take Down the CCP; 
-2. Make every effort to increase the recognition of the NFSC, and make as many sovereignty countries as possible to recognize the NFSC; 
-3. Make every effort to establish many new Himalaya farms; 
-4. Rescue more fellow fighters from mainland China, while making more Chinese people aware and educated about the NFSC; 
-5. Continue to make NFSC fellow fighters’ investments in G-series appreciate more in value, while adding more opportunities； 
-6. Unite all the justice-loving people across the world; help those harmed by the virus or vaccine find out the truth about the virus, and solutions to counter the poisonous COVID vaccine. To unite around us all those harmed by the CCP’s economic threats and the unrestricted warfare, and to build the social media of the WM and NFSC, making it well-respected internationally; 
-7. All fellow fighters shall always act towards the same objective, and operate under one unified and coordinated strategy. “To save lives, to protect wealth, and to avenge”. More importantly, help our fellow fighters ride out the darkest hours in human history.
+议长： 反对党领袖。
 
+反对党领袖：总理已经将大流行政治化并造成了分裂，他自己的党派成员也看到了这一点，现在世界各国都在开放，甚至加拿大的一些省份也在开放，他们正在关注科学和证据，无论是BC省的亨利博士或安大略省的摩尔博士，他们都认同我们必须学会与新冠共存， 保守派认为与新冠共存意味着开放和结束强制令，我相信也有自由主义者持同样看法，那么，总理会遵循科学结束封锁，让加拿大再次成为真正强大而自由的北方国度吗？
 
+总理： 议长先生，我非常高兴听到保守党终于开始谈论科学，因为整个大流行期间他们对此陷入了困境，无论是选择不打疫苗，还是继续就现有公共卫生措施的有效性进行辩论，幸运的是，我们一直在与全国各地的省长合作，引入了拯救加拿大人生命的各类限制或强制措施，不幸的是我们看到保守派继续在此呼吁结束抗议，然而转头又去支持他们，他们需要成为更负责任的导者，减少对政治的玩弄，才能度过难关。
 
-**编辑/发稿：小鹿**
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-124.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
-
+编辑/发文：Kent
 
  
 

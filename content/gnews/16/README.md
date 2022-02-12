@@ -2,8 +2,8 @@
 ---
 
 
-## 七哥都在运筹的情况下行动
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1992203/)
+## 中共篡改法律，不尊重规则
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1992344/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
