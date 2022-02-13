@@ -2,32 +2,24 @@
 ---
 
 
-## 反对新冠病毒措施，堪培拉现大规模抗议活动
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1998391/)
+## 加拿大和美国边境抗议者继续堵住大使桥通道
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1998430/)
 
-翻译/编辑：小红帽
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-184.jpg)
+图片来源： www.sohu.com
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-47.png)图片来源：雅典娜设计组(614)
+美联社2月12日报道， 抗议新冠疫苗强制措施和其他限制措施的抗议者们周六在美加边境大使桥的主干道放弃用卡车堵路，但仍然通过其他抗议方式继续在加拿大各城市，包括首都渥太华进行，警方说在终止所谓的非法占道之前他们还在等待更多的警力。
 
+在连接美国底特律和加拿大温莎的大使桥两边发生的对歭紧张势态在加拿大警察说服抗议者移除卡车后稍微改善，但抗议者们在附近重新聚集，再次加强，周六仍然堵住了加拿大一边的通道，第六天继续堵住交通和商业。
 
-根据《RT》新闻2月12日报道， 周六，抗议者聚集在澳大利亚首都堪培拉的议会大厦，要求停止新冠病毒措施。这些示威者在过去一周里乘坐卡车、汽车和巴士抵达首都并在附近的一个节日场地扎营。
+在渥太华，抗议者人群继续在壮大，警察说大约有4000名抗议者，上两个周末，抗议者们在市中心扎营并放着响亮的音乐。
 
-示威活动的录像显示，大批民众涌入城市，在议会外集会。《7News》的记者詹妮弗·贝赫瓦蒂（Jennifer Bechwati）将这次集会描述为“我见过的最大的抗议活动之一”。
+来自美加边境桥，渥太华和其他地方的抗议者们与加拿大以外的抗议者们遥相呼应，与在法国，新西兰，挪威的抗议相类似，美国国土安全部警告说卡车护航抗议活动很可能在美国发生。
 
-在澳大利亚议会外，人群高呼“解雇他们”，指的是澳大利亚总理斯科特·莫里森（Scott Morrison）和负责实施一些世界上最严厉的大流行病相关限制的州长。例如，在维多利亚州，大多数室内环境都要求戴口罩和提供新冠疫苗接种证明。大多数部门的雇员都必须接种新冠疫苗才能工作。
+特鲁多称抗议者只是极少数，联邦和省领导人说他们不能命令警察做什么。疫情下加拿大的限制措施比美国更严格，如口罩令，去餐厅和剧院的疫苗护照，以至强制疫苗措施让加拿大卡车司机们忍无可忍站了出来。
 
-莫里森对抗议活动的回应是，敦促参与者以“和平和尊重的方式”进行示威。这位澳大利亚领导人表示，除了一些针对医护人员的规定外，该国所有的新冠疫苗规定都是由各州州长而不是他的政府实施的。
-
-新闻链接：[Thousands of protesters swarm Australian parliament](https://www.rt.com/news/549161-canberra-convoy-protest-parliament/)
-
-发布：  tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+##### 新闻来源： [Blockades on Canada-US border continue, protests swell](https://apnews.com/article/coronavirus-pandemic-health-united-states-justin-trudeau-blockades-f3368c041216343175d255a2ce23eb84)
 
  
 

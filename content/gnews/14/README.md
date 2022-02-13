@@ -2,18 +2,21 @@
 ---
 
 
-## 台湾男子注射疫苗后死亡获赔30万台币
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1998284/)
+## 日本名古屋市将开设疫苗后遗症沟通窗口
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1998286/)
 
-作者：纽约磐石农场—在远方
+作者：日本方舟农场 Andy5
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-台媒2月8日报道，台湾在大规模接诊中共病毒疫苗后，陆续出现死亡案例。根据台湾卫生福利部预防接种受害救济小组，最新审议结果，台南市一名接种莫德纳疫苗的男子死亡案例，其家属获得30万台币救济，是目前莫德纳疫苗救济金额的最高个案。
-![莫德納疫苗。本報資料照片](https://pgw.udn.com.tw/gw/photo.php?u=https://uc.udn.com.tw/photo/2022/02/08/realtime/15861604.jpeg&amp;x=0&amp;y=0&amp;sw=0&amp;sh=0&amp;sl=W&amp;fw=800&amp;exp=3600&amp;w=930)
-据了解，该男子在接种莫德纳疫苗的第三天，感到胸痛、全身酸痛和呼吸困难，之后失去意识而死亡。而台南市去年7月，也曾有一名64岁男子，在注射莫德纳疫苗后的次日死亡。
+当地时间2月8日，日本爱知县名古屋市市长河村先生，接受日媒采访时透露，名古屋市将最快在下周设立一个，专门为那些出现疫苗后遗症的人群，跟市政府联络的窗口。
+![坐看云起时(@yunqi11111111) / Twitter](https://pbs.twimg.com/ext_tw_video_thumb/1490260026371751939/pu/img/qYVPbT_4St9S3Faw?format=jpg&amp;name=large)
+截至目前，日本厚生劳动省对疫苗副作用的认定，仅限于那些在接种后立刻出现过敏反应的人员。相反对接种后超过5个月乏力只能卧床休息，或者接种后持续1个月以上出现舌头白斑等奇怪症状的人员，日本政府并没有任何措施。
 
-据悉，之前台湾政府救济金额较高的个案是阿斯利康疫苗，最高赔偿金额曾有90万至120万台币不等。
+分析人士指出，名古屋市在医学方面，公布伊维菌素对中共病毒有效，并允许对名古屋市内被感染的市民投入伊维菌素后，又在政策上针对疫苗后遗症迈出了关键的一步。
 
-参考链接：[注射莫德納疫苗隔天死亡 台南男子家屬獲賠30萬元](https://udn.com/news/story/122190/6082938?from=udn-catehotnews_ch2)
+参考链接：
+1）[https://www.gettr.com/post/ptg70k6e22](https://www.gettr.com/post/ptg70k6e22)
+2）[https://www.gettr.com/post/pstgh22a24](https://www.gettr.com/post/pstgh22a24)
+3）[https://www.gettr.com/post/piflnu1d73](https://www.gettr.com/post/piflnu1d73)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 

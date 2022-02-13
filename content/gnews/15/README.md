@@ -2,18 +2,20 @@
 ---
 
 
-## 联合国安理会为朝鲜开会 传中俄拒签谴责声明
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1998283/)
+## 韩国中共病毒单日确诊创新高
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1998285/)
 
-作者：台湾宝岛农场dobi
+作者：纽约香草山教育部 Naughty(文行)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月5日，国外媒体报道，联合国安理会当天应美国要求，针对朝鲜议题召开了闭门会议。美国针对朝鲜连续试射强威力导弹，起草了一份联合声明，对朝鲜的行为提出谴责。但中共和俄罗斯拒绝签署这一声明。
-![中國常駐聯合國代表張軍。 美聯社](https://pgw.udn.com.tw/gw/photo.php?u=https://uc.udn.com.tw/photo/2022/02/05/98/15797204.jpg&amp;x=0&amp;y=0&amp;sw=0&amp;sh=0&amp;sl=W&amp;fw=800&amp;exp=3600&amp;w=930)美聯社
-据悉，朝鲜仅在今年1月就7次试射导弹，其中包括自2017年以来威力最强的一枚，暗示了朝鲜可能会重启远程武器及核武器测试。
+据中央社9日报道，韩国单日确诊人数创下4万9567例新高纪录，较前一天大幅增加近1.3万例，居家治疗人数也增至16.8万例。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2000x1242_0995112501059.jpeg)
+韩国中央防疫对策本部统计，截至今天凌晨零时，境内新增4万9567例中共病毒确诊，累计113万1248例，新增案例包括4万9402例社区病例，165例境外迁入病例。其中，首尔、仁川、京畿道等人口密集的首都圈地区社区感染占近6成。
 
-报导还提及，中共与俄罗斯一直在联合国安理会阻拦有关朝鲜的措施，去年甚至还提出基于人道应放宽对朝鲜的制裁，但因得不到支持而没有进入表决程序。
+单日重症人数也开始回升，截至今天凌晨零时，重症人数为285例，较前一天增加17例。死亡病例增加21例，累计6943例，死亡率为0.61%。
 
-参考链接：[聯合國安理會為北韓開會 傳中俄拒簽譴責聲明](https://udn.com/news/story/6809/6077714?from=udn-referralnews_ch2artbottom)
+采取居家治疗的轻症及无症状患者持续快速增加，增至16万8020例；目前韩国居家治疗点已扩大至601处，可控人数增至18.3万，尚在可负担范围内。
+
+参考链接：[韓國單日確診近5萬例創新高 較前一天增1.3萬](https://www.cna.com.tw/news/aopl/202202090026.aspx?topic=2012)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
