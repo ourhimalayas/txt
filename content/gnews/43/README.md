@@ -2,41 +2,36 @@
 ---
 
 
-## 立陶宛敦促世界站出来反对中共国
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1997688/)
+## 从北京和东京奥运之差看选手网络发帖的价值！（之三）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1998608/)
 
-翻译：不要代表我Kari
-校对编辑：彩虹
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-185.jpg)
+[（图片源）](https://www.google.com/search?q=%E5%8C%97%E4%BA%AC%E5%A5%A5%E8%BF%90&amp;tbm=isch&amp;ved=2ahUKEwiGlfyin_z1AhUywosBHR5yCbcQ2-cCegQIABAA&amp;oq=%E5%8C%97%E4%BA%AC%E5%A5%A5%E8%BF%90&amp;gs_lcp=CgNpbWcQAzIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQ6BwgjEO8DECdQngZYlyNgyCZoAHAAeACAAeMBiAGTCZIBBTUuMy4xmAEAoAEBqgELZ3dzLXdpei1pbWfAAQE&amp;sclient=img&amp;ei=_74IYsaZArKEr7wPnuSluAs&amp;bih=648&amp;biw=1280&amp;rlz=1C1SQJL_jaJP828JP828#imgrc=e8MEBmDEbL1yvM）)
+今天是２０２２年２月１３日，我在日本。跟往日一样，今天也抽时间关注了冬奥相关信息。【从北京和东京奥运之差看选手网络发帖的价值！】这个题目，一下子抓住了我的眼球。查了下作者是德力基彦先生。联想到自２０２０年初中共病毒（新冠病毒Covid-19）爆发以来，特别是各国政府开始强推中共病毒疫苗以来不作为或反作为的媒体，炒了NNT鱿鱼的德力基彦先生的文章就更吸引我继续读下去，并想翻译给中文圈的人们共享了。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1269.png)
+(图片源自[北京五輪“検閲地獄”に強靱メンタル選手もお手上げ スキー川村あんりは一部SNS投稿を削除（日刊ゲンダイDIGITAL） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/075436a32849343e1e05c688ea29055fb870a872))
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/11-10.png)图片来源：Shanghainews
+以下是我的摘要翻译的连载（之三）
 
+**因中共国审查制度而被取消资格的风险**
 
-据《彭博社》2月11日报道，在访问澳大利亚期间，立陶宛最高外交官呼吁世界各国站出来反对中共国和俄罗斯侵犯人权行为，同时承认采取这种抵制行动会有“代价”。
+另一个主要因素是中国政府的审查制度。
 
-在堪培拉的国家新闻俱乐部（National Press Club），外交部长格比亚鲁斯·蓝斯柏吉斯（Gabrielius Landsbergis）说，各国需要减少对“全球秩序破坏者”的贸易和能源依赖，有必要加强“建立和维护基于规则的世界秩序的自由民主国家之间”的伙伴关系。他说，在立陶宛允许台湾在其首都开设代表处后，面临着非官方的贸易壁垒和与中共国的外交关系降级，北京认为此举违反了其一个中国原则。本周早些时候，中国正式停止了对立陶宛牛肉的进口，这在很大程度上是一个象征性的举措。
+据报道，在北京奥运会开幕前，北京奥组委曾在网上通报中明确警告：任何违背奥运精神的行为，特别是违反中共国法律法规的行为或言论，都将受到相应的具体处罚。其中似乎还提到了，如有冒犯中共国的言论，可能被取消奥运会的参赛资格。
 
-蓝斯柏吉斯的讲话是在墨尔本举行的四方外长会议的前一天发表的，四方外长是由澳大利亚、日本、印度和美国组成的安全伙伴关系。
+在这种情况下，选手们自然会采取不冒风险，不给自己带来不必要的麻烦之行动以保护自己。
 
-作为该集团更广泛关注的对抗中国军事崛起的一部分，预计这些国家将讨论网络安全和领土问题，俄罗斯在乌克兰边境的军事集结很可能会被提及。
+可毕竟，运动员们当然的不可能熟悉所谓违反中共国法律法规的言论之标准，所以他们本不应该因为社交网络帖子而存在被取消参赛资格的风险。所以，这也是我印象中北京奥运会期间运动员在社交网站上发的很多帖子都比较短的原因之一。
 
-弗拉基米尔·普京（Vladimir Putin）总统多次否认俄罗斯计划进攻乌克兰，并批评北约部队在该国边境附近的集结。当被问及世界对乌克兰边境的紧张局势和中国新疆地区普遍存在的侵犯人权行为的指控“缺乏具体反应”时，蓝斯柏吉斯说，答案是人们不要对这个问题 “保持沉默”。他说：“有些人希望这些问题不被谈论”，改变这种状况的唯一方法是继续“提出这些问题”。
+未完待续
 
-蓝斯柏吉斯说，将强迫劳动从供应链中移除将提高消费品的价格。不要指望当我们解决这些问题时，它们将是免费的。每个人都要付出代价，这些事情确实要付出代价，是原则性的代价。”
+信息来源：[北京五輪と東京五輪の違いから考える、日本代表選手のSNS投稿の価値（徳力基彦） – 個人 – Yahoo!ニュース](https://news.yahoo.co.jp/byline/tokurikimotohiko/20220213-00281847)
 
-根据报道，正在澳大利亚为新设立的立陶宛大使馆揭幕的蓝斯柏吉斯说，如果其他国家效仿他的做法，增加与台湾的外交关系，他 “不会感到惊讶，我不认为立陶宛在这方面是孤独的。”
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
-新闻来源
-
-[Squeezed Lithuania Urges World to Stand Up Against China, Russia](https://www.bloombergquint.com/politics/squeezed-lithuania-urges-world-to-stand-up-against-china-russia)
-
-*发布：*tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

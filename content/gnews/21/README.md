@@ -2,31 +2,83 @@
 ---
 
 
-## 华盛顿称俄罗斯随时可能入侵乌克兰 呼吁美国公民离境
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1999314/)
+## 长期使用漱口水的副作用以及如何减轻这些副作用？
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1999431/)
 
-整理编辑：东京樱花团｜上善若水
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-1-5.png)
-[*图片来源*](https://static.dw.com/image/60719694_403.jpg)
+**撰稿：Eva**
 
-美国方面的情报显示，俄罗斯可能打算在北京冬奥会结束前攻击乌克兰。此前，美国总统拜登已经敦促乌克兰境内的美国公民“立即离境”，警告当地情势可能很快遽变。德国等国也呼吁国民离开乌克兰。鉴于紧张局势飙升，拜登将在周六与普京通电话。美国官员表示，情报显示俄罗斯可能计划在北京冬奥会结束前袭击乌克兰。冬奥会目前正在进行中，将于2月20日闭幕。
+***第一节：针对COVID-19的预防和早期治疗之药用漱口水的使用参考文献：***
 
-美国总统拜登周四在接受美国国家广播公司新闻（NBC News）专访时说，“美国公民现在就该离开”。不过，拜登说：“这不像我们在与恐怖组织打交道。我们正在与世界上最大的军队之一打交道。这是一个非常不同的情况，事情可能会很快变得疯狂，”他说。NBC问拜登，什么情况会促使他派兵营救想要离境的美国人。拜登回答说：“没有。当美国和俄罗斯开始对战时，那是一场世界大战。”
+**FLCCC****预防配套之漱口药水**
 
-美国国务院周四（10日）另外发布警告称，“若俄罗斯在乌克兰任何地方采取军事行动，美国将无法撤离美国公民”。并称，一般的领事服务，包括协助公民离境等，将受到“严重影响”。布林肯周五在墨尔本再次重申“俄罗斯入侵乌克兰可能随时发生”，即便在北京冬奥会期间也不例外。周五（2月11日），日本外交部也向在乌克兰的本国公民发出“立即离开”的紧急建议。目前大约有150名日本公民生活在乌克兰。荷兰政府也呼吁本国公民离开乌克兰。而同一天，韩国政府则下令暂时禁止国民前往乌克兰的任何地区。德国外交部也在周六表示，德国人应尽可能撤离乌克兰，并针对该国发出旅行警告。
+英文原版Gargle mouthwash
 
-随着紧张局势飙升，华盛顿宣布美国总统拜登和俄罗斯总统普京将于本周六（2月12日）通电话。此外，德国总理肖尔茨也与拜登、法国总统马克龙和加拿大总理特鲁多进行了会谈，这些领导人重申了如果乌克兰遭到入侵进行强有力的快速制裁的必要性。法国总统府在一份声明中说，马克龙等西方领导人赞同将“外交、对话和威慑作为优先事项，以实现危机降级”。俄乌法德官员周四（10日）在柏林进行了一整天的会谈，但未能取得任何突破性进展。
+2 x daily – gargle (do not swallow) antiseptic mouthwash with cetylpyridinium chloride (e.g. ScopeTM, ActTM, CrestTM), 1% povidone/iodine solution or ListerineTM with essential oils.
 
-俄罗斯特使科扎克（Dmitry Kozak）表示，俄罗斯和乌克兰未能通过本次会谈解决彼此之前的分歧。双方对2015年的《明斯克协议》有不同的解释，外界普遍认为该协议是和平消弭俄乌危机的的最可能途径。乌克兰特使叶尔马克（Andriy Yermak）说，双方没有取得突破性进展，但都同意继续对话。乌克兰表示，自2014年以来，约有15,000人被杀害。
+中文版本
 
-《明斯克协议》是俄罗斯吞并克里米亚并继续支持乌东地区分离势力的情况下，为解决危机，通过“诺曼底模式”下所签署。多年来，俄罗斯和乌克兰都曾多次指责对方违反停火协议，该协议旨在化解乌克兰军队和亲俄分裂分子之间的冲突。目前，俄罗斯已经在乌克兰东部附近部署了超过10万名士兵，这也代表俄乌紧张情势可能持续。
+每天 2 次 – 使用 cetylpyridinium chloride（例如 ScopeTM、ActTM、CrestTM)、1% povidone/iodine 溶液或ListerineTM 含精油漱口（请勿吞咽）抗菌漱口水
 
-信息来源：[**华盛顿称俄罗斯随时可能入侵乌克兰 呼吁美国公民离境**](https://www.dw.com/zh/%E5%8D%8E%E7%9B%9B%E9%A1%BF%E7%A7%B0%E4%BF%84%E7%BD%97%E6%96%AF%E9%9A%8F%E6%97%B6%E5%8F%AF%E8%83%BD%E5%85%A5%E4%BE%B5%E4%B9%8C%E5%85%8B%E5%85%B0-%E5%91%BC%E5%90%81%E7%BE%8E%E5%9B%BD%E5%85%AC%E6%B0%91%E7%A6%BB%E5%A2%83/a-60738941)
+**FLCCC****早期治疗配套之漱口药水****/****鼻喷剂**
 
-校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+英文原版 Anti-septic Anti-VirAls
 
+Antiviral mouthwash: Gargle 3 x daily (do not swallow; must contain chlorhexidine, povidone-iodine, or cetylpyridinium chloride). Iodine nasal spray/drops: Use 1 % povidone-iodine commercial product as per instructions 2–3 x daily. If 1 %-product not available, must first dilute the more widely available 10 %- solution6 and apply 4–5 drops to each nostril every 4 hours. (No more than 5 days in pregnancy.)
+
+中文版本
+
+抗病毒漱口水: 每天漱口 3 次（请勿吞咽；必须含有 chlorhexidine、povidone-iodine 或 cetylpyridinium chloride)。 Iodine 喷鼻剂/滴剂: 依照说明每天使用 1% povidone-iodine 商用产品 2-3 次。 如果 1%-产品无法利用，必须先稀释更广泛使用的 10%- 溶液4並且每 4 小時在每個鼻孔中施用 4-5 滴。（怀孕期间使用不超过5天。)
+
+***第二节 爆料革命战友使用比较多的药用漱口水和鼻喷剂介绍***
+
+（1）1 % povidone-iodine漱口药水以及相应的喉咙喷剂，鼻喷剂 – 线下在Watson可以买到，单价大概10.60新元
+![](https://assets.gnews.org/wp-content/uploads/2022/02/11-11.png)
+（2）Chlorhexidine Mouthwash BP漱口药水 – 线下在 Polyclinic 药房公开买到，单价大概3.75新元
+![](https://assets.gnews.org/wp-content/uploads/2022/02/22-2.png)
+以上两款漱口药水，在线上shopee也可以买到。
+
+***第三节 长期使用的副作用，以及我自己如******何使用***
+
+长期使用药用漱口水，比较常见的副作用发生在牙齿和黏膜，症状主要表现为牙齿变黄、味觉改变。 因为药用漱口水含有抑菌剂，长期使用，可能会导致口腔菌群紊乱，或许引发身体疾病。
+
+为了尽可能地减少长期使用药用漱口水的副作用。我们家采取了下列原则：
+
+1. 凡是在家里没有外出的日子，都不使用。
+2. 外出时候口罩，脸部，手部，衣服，随身携带物品，都污染较少的，都不使用。
+3. 外面用餐时，和周围人一直保持在2米以外的都不使用。
+4. 外面用餐时和周围人距离只保持1米甚至更近的，回家使用漱口水+鼻喷剂。
+5. 去过人口密集的，密闭的，小空间，回家必须使用漱口水+鼻喷剂。
+6. 两种漱口水交替使用，
+7. 两种漱口水都稀释以后使用，如下面2图：
+
+
+
+
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/33.png)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/44.png)
+
+
+
+
+加入等量的冷开水稀释。
+
+（根据香草山医疗卫生部，只要你无法适应，还可以继续稀释。）
+
+图中也看到Betadine重要的一条注意事项：
+
+**6****岁以下的孩子不可以使用。**
+
+（网络图片，和我们买的说明，有所不同。）
+
+也是可以加入等量的冷开水稀释（网络图片）
+
+这是我家尝试的一些做法，在此抛砖引玉，也希望爆料革命战友们多多分享。
 
  
 

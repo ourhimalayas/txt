@@ -3,10 +3,12 @@
 
 
 ## 华盛顿称俄罗斯随时可能入侵乌克兰 呼吁美国公民离境
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1999079/)
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1999314/)
 
 整理编辑：东京樱花团｜上善若水
-![](https://lh3.googleusercontent.com/VEcogKExvH13zGI2TUvv_QoJRAeo04D0_smSAeNDMgEHLtg16ISV3AA41o0u2dj9mGXIy3_bRBKoTR8C-RCgczerSxtx7QGX9EY0S4gISVPv22J59R2C43Wtuc-G4L6PhcIg8BMF)[*图片来源*](https://static.dw.com/image/60719694_403.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-1-5.png)
+[*图片来源*](https://static.dw.com/image/60719694_403.jpg)
+
 美国方面的情报显示，俄罗斯可能打算在北京冬奥会结束前攻击乌克兰。此前，美国总统拜登已经敦促乌克兰境内的美国公民“立即离境”，警告当地情势可能很快遽变。德国等国也呼吁国民离开乌克兰。鉴于紧张局势飙升，拜登将在周六与普京通电话。美国官员表示，情报显示俄罗斯可能计划在北京冬奥会结束前袭击乌克兰。冬奥会目前正在进行中，将于2月20日闭幕。
 
 美国总统拜登周四在接受美国国家广播公司新闻（NBC News）专访时说，“美国公民现在就该离开”。不过，拜登说：“这不像我们在与恐怖组织打交道。我们正在与世界上最大的军队之一打交道。这是一个非常不同的情况，事情可能会很快变得疯狂，”他说。NBC问拜登，什么情况会促使他派兵营救想要离境的美国人。拜登回答说：“没有。当美国和俄罗斯开始对战时，那是一场世界大战。”
@@ -21,9 +23,11 @@
 
 信息来源：[**华盛顿称俄罗斯随时可能入侵乌克兰 呼吁美国公民离境**](https://www.dw.com/zh/%E5%8D%8E%E7%9B%9B%E9%A1%BF%E7%A7%B0%E4%BF%84%E7%BD%97%E6%96%AF%E9%9A%8F%E6%97%B6%E5%8F%AF%E8%83%BD%E5%85%A5%E4%BE%B5%E4%B9%8C%E5%85%8B%E5%85%B0-%E5%91%BC%E5%90%81%E7%BE%8E%E5%9B%BD%E5%85%AC%E6%B0%91%E7%A6%BB%E5%A2%83/a-60738941)
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+校对：东京樱花团 / 東洋武士
+发布：东京樱花团 / yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

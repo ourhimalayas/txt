@@ -2,45 +2,45 @@
 ---
 
 
-## 《疫苗后遗症》导演讲述伊维菌素
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1998987/)
+## 美日印澳召开“四方机制”外长会议，商讨印太区域安全
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1999041/)
 
-作者：日本方舟农场 Andy5
+![](https://assets.gnews.org/wp-content/uploads/2022/02/9595.jpg)(左-右)澳大利亚外交部长兼女性事务部长玛丽斯·佩恩、印度外长苏杰生、澳大利亚总理斯科特·莫里森、日本外务大臣林芳正，美国国务卿安东尼·布林肯于2022年2月11日在澳大利亚墨尔本的联邦议会办公室。
+澳大利亚、美国、印度和日本四国集团国家的外长于2月11日在墨尔本会晤，举行了第四轮会谈。议程上的重要问题包括区域安全——包括俄罗斯、中共国和朝鲜——经济交往、新技术、气候变化、人道主义议题以及对中共病毒的应对。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+澳大利亚总理斯科特·莫里森在会议开始前参加了一个简短的新闻发布会，欢迎美国国务卿安东尼·布林肯、澳大利亚外长玛丽斯·佩恩、印度外长苏杰生和日本外相林芳正。
+
+莫里森赞扬说，“在一个非常脆弱、破碎和有争议的世界”，这次对话是支持的来源。
+
+“我对我们的观点感到欣慰，我对彼此间的理解感到欣慰，我对澳大利亚从四国集团伙伴得到的令人难以置信的强有力的支持感到欣慰。”他告诉记者，指的是北京当局对澳大利亚出口行业发动的经济胁迫运动。
+
+“我们将继续始终坚持把我们团结在一起的价值观。我们通过这样做对抗那些试图胁迫我们的国家。”
+
+美国国务卿布林肯赞扬了莫里森在推进四方安全对话机制方面的领导作用。“一群国家聚在一起，不是因为我们反对什么，而是因为我们追求什么。我们所追求的是一个自由和开放的印太地区。”他说。
+
+“世界上最有活力的地区，增长最快的经济体，世界上一半的人口，人们应该自由地生活，各国应该有自由选择与谁合作和交往。”他补充说，“我们可以一起证明，我们能有效地为我们的人民带来好处。”
+
+在首次访问澳大利亚时，印度的苏杰生说，四方安全对话机制之所以运作良好，是因为澳大利亚和印度之间的双边关系很牢固，而日本的林芳正说澳日关系已经达到了“新的高度”，他提到了最近缔结的为加强两国国防事务合作的“历史性”《互惠准入协定》(Reciprocal Access Agreement )。
+
+澳大利亚外交部长佩恩说，会谈将重点讨论与前几十年“不同规模”的挑战。她在一份新闻声明中表示：“在当前的世界环境中，不止一个专制政权正在提出挑战——朝鲜，以及中国——它们将是我们讨论的一部分。”
+
+“我们在印太地区的合作正在呈指数级增长，看到在该地区的这么多伙伴与我们双方的协作，这非常有意义。”
+
+**简评:** 四国集团外长会议的核心议题正是应对中共集权。中共近年来明显的强势扩张，破坏国际规则，对亚太地区乃至世界秩序造成致命损害。这严重影响到相关国家的利益。四国集团在亚太地区都有这各自的核心利益，大家没有选择，必须联合消灭中共。政治规则中没有永远的朋友，只有永远的利益。美国和日本在中共恶魔崛起和发展壮大中都起了重要作用。如今轮到他们站出来把中共这个人类文明的毒瘤尽快切除。
+
+新闻链接：[https://m.theepochtimes.com/a-world-order-that-favors-freedom-quad-foreign-ministers-meet-in-melbourne-australia\_4271409.html](https://m.theepochtimes.com/a-world-order-that-favors-freedom-quad-foreign-ministers-meet-in-melbourne-australia_4271409.html)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-当地时间2月11日晚，《疫苗后遗症》在日本东京最后一次公映。公映前，本片导演长尾和宏医生，讲述了伊维菌素与病毒之间的关系。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-13-at-9.37.35-PM.png)
-长尾医生表示，在去年他跟伊维菌素发明者大村智先生的对谈中，大村智先生提到伊维菌素可以治疗流感和中共病毒，甚至对疫苗后遗症都有一定疗效，属于这方面的万能药。只不过对疫苗后遗症的效果没有对中共病毒那么立竿见影。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-但是大村智先生的伊维菌素在日本受到打压，原因是只有研发新药相关企业才有利润。日本法律仅允许个人进口少量伊维菌素，如个人将进口的药分享给他人，就属于违法。
-
-在场的观众中，有80%以上都已经购买了伊维菌素，这让长尾医生感到备受鼓舞。
-
-最后长尾医生表示，他在日本质疑疫苗带来副作用同时推广伊维菌素，已经被之前的朋友和同行医生视为异端，并逐渐疏远，但是为了一名医生的良知和尊严，他愿意继续为真实发声。
-
-参考链接：
-
-1. [兩年沒去過涉谷……](https://www.gettr.com/post/pu0b8959f9)
-2. [20220128日本紀錄片「疫苗副作用」預告片](https://www.gettr.com/post/pr7v6gcdfb)
-3. [纪录片广告（2/11 sold out，这个状态已经持续了2周）](https://vaccine-kohisho-movie.com/)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-3.png)
-
-编辑：飞虹
-总编：文特
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

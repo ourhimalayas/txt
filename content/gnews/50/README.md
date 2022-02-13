@@ -2,52 +2,43 @@
 ---
 
 
-## 魁北克省出现两组示威者，支持卡车司机，反对卡车司机，警察迅速将两组人分开
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1996815/)
+## 商业集团敦促美加解决边境封锁
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1996919/)
 
-**编译：16626**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/EC995E22-5228-4AA0-B340-9E05BAC22D4A.png)**图片来源：截屏于**[**https://www.tvanouvelles.ca/2022/02/12/camionneurs-et-mesures-sanitaires-les-pour-et-les-contre-manifestent-a-montreal**](https://www.tvanouvelles.ca/2022/02/12/camionneurs-et-mesures-sanitaires-les-pour-et-les-contre-manifestent-a-montreal)**  **
-**两组示威者出现，警察迅速将两组人分开**
+编译：聖地香港
 
-周六（2022 年 2 月 12 日）早上，卡车司机（示威）的支持者和反对者在蒙特利尔的贾里公园（parc Jarry）附近举行示威。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-3-3.jpg)图片来源：sohu.com
 
-蒙特利尔市警察局 (SPVM) 的警察迅速将聚集的两组示威者（两组示威者：支持卡车司机，反对卡车司机）分开。
+美国最大的商业集团呼吁北美领导人结束因卡车司机抗议强制接种中共病毒疫苗而造成的美加边境口岸中断。
 
-（2022 年 2 月 12 日）上午 10 点 20 分左右，支持卡车司机的示威活动平静地开始了。
+美国商会、全国制造商及商业圆桌会议于周四晚表示，边境封锁导致美国公司的供应链压力增大。
 
-**一组示威者：支持卡车司机  **
+商业集体在一份声明中说：“商业界正在尽全力寻找变通办法保持设施正常运转，但已经有一些工厂减产、减少班次及临时关厂。”
 
-![](https://gnews.org/40c02b72-7bea-40c4-98bb-a699df8db3d2)**图片来源：****截屏于**[**https://www.tvanouvelles.ca/2022/02/12/camionneurs-et-mesures-sanitaires-les-pour-et-les-contre-manifestent-a-montreal**](https://www.tvanouvelles.ca/2022/02/12/camionneurs-et-mesures-sanitaires-les-pour-et-les-contre-manifestent-a-montreal)** ****，****一组示威者：支持卡车司机  **
+“北美经济依赖于包括制造业在内的紧密合作。我们需要运用同样的合作精神来解决该问题。”
 
-**两组示威者之间（相互对峙）的紧张情绪是显而易见的**
+几天来，抗议跨境疫苗规定的卡车司机封锁了连接安大略省和底特律的大使桥，该桥承载了美国和加拿大之间约 25% 的贸易量。
 
-两组示威者之间（相互对峙）的紧张情绪是显而易见的，但是蒙特利尔市警察局SPVM表示，没有看到任何（冲突）爆发。
+封锁迫使汽车制造商停止运营，并对本已由于计算机芯片短缺造成产量不足的疫情相关行业造成更深影响。福特、通用汽车、Stellantis、本田和丰田由于缺少零部件于本周暂停了部分运营。
 
-**另一组示威者：反对卡车司机**
+安大略省温莎市官员周四要求法院发出禁令，以对抗议者进行清场。拜登政府已敦促加拿大政府利用联邦权力结束卡车封锁，此举得到了美国商业集团的赞扬。
 
-![](https://gnews.org/855a1bf9-e148-42e4-bb9a-46227bba8f3b)**图片来源：****截屏于**[**https://www.tvanouvelles.ca/2022/02/12/camionneurs-et-mesures-sanitaires-les-pour-et-les-contre-manifestent-a-montreal**](https://www.tvanouvelles.ca/2022/02/12/camionneurs-et-mesures-sanitaires-les-pour-et-les-contre-manifestent-a-montreal)** **** ****，****另一组示威者：反对卡车司机**
+商业集团在一份声明中说：“我们恭请加拿大政府迅速采取行动，解决贸易流动中断及其对边境两侧制造商和其他企业的影响。”
 
-据悉，在这次示威结束后，卡车司机将离开贾里公园 Jarry Park 加入蒙特利尔的（其它）示威。
+**评论：**
 
-另外，Gnews（2022 年 2 月 10 日）发表一篇题为《魁北克省勒戈（Legault）政府指责反对党纵容示威者的武装, [https://gnews.org/zh-hans/1987160/](https://gnews.org/zh-hans/1987160/)  》的文章报道，上周末在魁北克省举行的卡车司机示威活动的组织者之一表示，有些人已经准备好拿起武器。魁北克省省长，弗朗索瓦·勒戈（François Legault），指责反对党纵容某些反卫生措施抗议者发出的武装暴力威胁。
+**加拿大卡车司机为了所有人的自由进行抗议，其中也包括商人的自由，然而妨碍了商人赚钱，商人敦促结束抗议，结束了抗议谁为你争取自由？好一个怪圈！**
 
-在2022年02月09日文贵大直播中，七哥讲到：
+参考资料：[thehill][Business groups urge Canada, US to resolve border blockade](https://thehill.com/business-a-lobbying/business-a-lobbying/593843-business-groups-urge-canada-us-to-resolve-border)
 
-*“**…**被共产党及完全失败的人控制着，小土豆完全是痴心的疯子。共产党希望加拿大和美国越乱越好，但这正不是我们希望发生的。”*
+* * *
 
-我们谴责并反对暴力示威，我们相信魁北克省，乃至加拿大的公共卫生行政措施很快会发生变化。
+*审核：文乐
+校对：信心满满
+发稿：信心的选择*
 
-**参考资料**： [Camionneurs et mesures sanitaires: les pour et les contre manifestent à Montréal](https://www.tvanouvelles.ca/2022/02/12/camionneurs-et-mesures-sanitaires-les-pour-et-les-contre-manifestent-a-montreal)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-3.jpeg)
 
-**编辑：LILY**
-
-**发布：歪桑**
-
-20220212
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3-4.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
