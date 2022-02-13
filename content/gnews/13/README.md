@@ -2,26 +2,42 @@
 ---
 
 
-## 香草山翻译部周刊|2022年2月13日第35期
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2000923/)
+## TikTok，中共国和俄罗斯在与西方的数据战争中的“武器”（一）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2000982/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO.jpg)
+**编译：七龙珠**
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/02/MosWeekly2022_2_13CN.png)
-文章仅代表作者本人观点，与Gnews无关
+![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnipTikTok，中共国和俄罗斯在与西方的数据战争中的武器.png)图片来源：vozpopuli.com
 
-总编： GBWater
-编辑： Lakers
-发稿： Lakers
+世界各地45.5亿社交网络用户的数据岌岌可危
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-callendar-1.jpeg)
+目前俄罗斯和美国领导的北约之间的冲突集中在一个叫做乌克兰的地理位置上，但在一个更加困难的地形上，还有另一场“战争”正在进行，它也使东方和西方相互对抗。我们正在谈论的是虚拟战场——互联网。在这种情况下，其目的不是为了获得地位，而是为了获得数据。基本上可以在社交网络上获得的信息。如果我们把自己局限于这些平台，每个超级大国都有自己的盟友。Facebook、WhatsApp、Twitter和Instagram都诞生于北美。TikTok来自中共国，是俄罗斯的战略伙伴，世界各地45.5亿社交网络用户的数据正处于危险之中。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+正如谚语所说，信息就是力量，而在互联网上，这种资源是丰富的。数据情报公司DOMO估计，在你阅读这篇文章的20秒左右的时间里，几乎有30万Twitter用户上传了一个帖子。他们中的许多人表达自己的政治和意识形态。每分钟有6.5万张照片在Instagram上发布，24万张图片在Facebook上发布，1.67亿条视频在TikTok上被观看。这是一个丰富的信息资源，对任何国家的情报部门都至关重要。
+
+如今，中央情报局或克格勃（现在的联邦安全局）不必破锁、破门而入、或者翻箱倒柜，查阅垃圾箱，就能知道被调查对象吃了什么，在哪里购物，以及在哪里度过了最后几个小时。这些信息是我们在没有人拿枪指着我们的情况下发布的，而且我们是在自愿上传或者不知情下信息泄露的，这就是为什么相对容易收集和分析。
+
+访问在线服务和社交网络，表面上看上去是免费的，但并不是真正的免费。各软件平台是以个人数据为交换条件的。包括：个人私人信息：名字、姓氏、住宅街道、喜好、年龄、宗教或种族，文字。
+
+为什么要收集这些信息呢？一个非常令人不安的因素，收集这些私人信息的目的是为了发送假新闻或引导账户有利于往某个目标发展，例如改变选票，有必要了解投票人，以使其发送的信息发挥效力。
+
+考虑一下最相关的超能力。一边是中共国和俄罗斯，另一边是美国。就中共国而言，其征服西方用户的社交媒体最大的数据军队，是TikTok，它相当于美国的Instagram（Facebook）。一段时间以来，这些网络已经成为大众的最爱。这些平台在国际地缘战略中的重要性是一个事实。只要分析一下这两个“核心”的领导人是如何看待他们和他们的创造者的，就不难知道他们的用心。
+
+2020年9月，美国司法部将TikTok的创始人称为中国共产党的代言人。一年前，俄罗斯指责Twitter未能删除与毒品、自杀或色情有关的非法内容，并威胁要在该国封锁该应用程序。对中共国来说，西方的社交网络不是一个问题，在中共国大陆上几乎被全面禁止。
+
+【接下篇：TikTok，中共国和俄罗斯在与西方的数据战争中的“武器”（二）】
+
+**新闻来源**：[vozpopuli.com][TikTok, el ‘arma’ de China y Rusia en la guerra del dato contra Occidente](https://www.vozpopuli.com/actualidad/tiktok-arma-china-rusia.html)
+
+* * *
+
+***审核：Aries的星
+校对：阿伯塔
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1.jpeg)
+
+
 
  
 

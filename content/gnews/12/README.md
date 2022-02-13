@@ -2,38 +2,42 @@
 ---
 
 
-## 【秘翻在线】美国的制裁威胁能否阻止俄罗斯的入侵？
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2000925/)
+## 伊内斯-坎特被交易到火箭队后又被抛弃
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2001011/)
 
-**撰稿：Grace**
+***评论：人权是中共在国际上非常敏感和畏惧的话题。世界上任何人批评或者揭发中共践踏人权的行为，中共都会动用一个国家的力量通过“蓝金黄”去围剿他们以达其目的。中共此恶魔不除，隐患何时能清除？***
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-13-at-1.55.05-PM.jpeg)图片来源：philipinotimes
-据《福克斯新闻》2月13日报道，五角大楼新闻秘书约翰·柯比（John Kirby）周日表示，虽然美国对俄罗斯的制裁威胁具有 “威慑作用”，但在俄罗斯做出任何可能入侵乌克兰的行动之前，美国都不会对俄罗斯实施制裁。
+**据《dailycaller》作者：dailycaller，2022年2月11日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/a3v1p-lldxt.jpg)
+2021年10月22日，波士顿凯尔特人队中锋伊内斯-坎特（13岁）在TD花园与多伦多猛龙队比赛前的热身赛中。图片来源：Brian Fluharty/USA TODAY Sports 通过 Reuters (路透社)
 
-两周前，美国国务院曾经警告说，如果俄罗斯入侵乌克兰，[北溪2号管道](https://gnews.org/zh-hans/1926081/)（Nord Stream 2）将在海洋底部闲置。
+伊内斯-坎特在NBA的职业生涯可能已经结束。
 
-而且，德国外交部长安娜莱娜·贝尔博克（Annalena Baerbock）也曾经表示，德国“正在制定强有力的一揽子制裁措施”, 并指出[北溪2号管道](https://gnews.org/zh-hans/1926081/)只是其中一个感兴趣的经济领域。
+据Adrian Wojnarowski报道，这位前波士顿凯尔特人队中锋周四被交易到火箭队，随后他被火箭队放弃。
 
-然而，柯比承认，目前的情报显示，尽管有制裁的威胁，俄罗斯 “现在任何一天 ”都可能发动入侵。
+他很有可能再也不能在联盟中打球了。
 
-柯比表示， 美国现在没有考虑“先发制人的制裁制度”。
+还记得我说过坎特对中共国和中共的直言不讳的批评，可能会使他的职业生涯付出代价吗？嗯，看起来这已经发生了。
 
-柯比解释说，现在对俄罗斯实施制裁最终除了从美国箭筒中移除一支箭外，最终将无济于事，同时给俄罗斯更多入侵的理由。
+坎特是100%的优秀，足以成为NBA中一个优秀的出色球员。这只是一个事实，但他的上场时间被凯尔特人队削减了，因为他揭露了北京独裁政权的可怕罪行，而现在他被交易后又被丢弃。
 
-柯比说：“如果它是一种威慑，而你在侵略或违法行为发生之前使用它，那么你就会失去威慑效果。。。我们已经向国际社会和普京先生非常清楚地说明了他可能面临的经济后果的严重性”。”
+如果有其他球队签下他，我会感到震惊。联盟向北京叩头讨好，而球队最不想做的事情就是惹恼中共。
 
-该报道认为，威慑似乎并没有很好地发挥作用，因为柯比承认五角大楼认为入侵可能迫在眉睫。
+签下埃内斯-坎特并让他打球将是对中国共产党的一个巨大的中指。我们都知道，NBA不会做任何威胁到他们与中国共产党关系的事情。
 
-在2月11日，白宫国家安全顾问杰克·沙利文（Jake Sullivan）已经在白宫新闻发布发出警告说：“任何在乌克兰的美国人都应该尽快离开，而且无论如何要在未来24到48小时内离开。”
+所以，坎特为人权表明了立场，他可能再也不会在NBA打任何一分钟的篮球了。这就是真正的勇气和牺牲的样子。
 
-沙利文还表示，俄罗斯”有非常现实的可能性“，将“夺取乌克兰的大量领土和夺取主要城市，包括首都[基辅]”。
+**文章来源:**[https://dailycaller.com/2022/02/11/enes-kanter-freedom-traded-rockets-waived-career-future/](https://dailycaller.com/2022/02/11/enes-kanter-freedom-traded-rockets-waived-career-future/)
 
-同样在周五， 美国国务卿安东尼·布林肯（Antony Blinken）在澳大利亚墨尔本表明，在奥运会期间俄罗斯对乌克兰的入侵“可能随时开始”。
+翻译：洛杉矶盘古农场 – Mike Li
+校对：洛杉矶盘古农场 – 郭班之樱
+评论：洛杉矶盘古农场 – 郭班之樱
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 —彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-另外，柯比还指出，俄罗斯在白俄罗斯边境继续集结军队，目前人数已超过 10万 人，他还表示美国“所看到的情报的马赛克” 表明“现在情况正在为普京先生形成某种渐强的机会”。
-
-新闻来源： [Pentagon spox says threat of Russia sanctions has ‘deterrent effect’, but admits invasion may be ‘days away’](https://www.foxnews.com/politics/pentagon-spox-kirby-us-not-considering-sanctions-against-russia)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

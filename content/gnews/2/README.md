@@ -2,24 +2,21 @@
 ---
 
 
-## 加拿大总理特鲁多威胁人们参加自由卡车集会是在犯法，可能会因此失去执照和背上犯罪记录
-` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/2001103/)
+## 雅典娜时报-第203期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2001175/)
 
-#### 加拿大温哥华扬帆农场 视频组
+#### 《雅典娜时报》汇聚全球新闻时事
 
-素材：文倩
-翻译：Kent
-字幕：文所未闻
+#### 编辑：精灵蓝
+排版：小蚂蚁614
+![圖片](https://media.discordapp.net/attachments/825592691433668612/942260765686104074/155.png?width=762&amp;height=1135)![圖片](https://media.discordapp.net/attachments/825592691433668612/942260766143291462/155_1.png?width=762&amp;height=1135)
+*发布：陶子*
 
-让我提醒你们，加拿大将永远在此捍卫和平抗议的权利。
-
-加拿大将始终支持世界各地人民和平抗议的权利。
-
-我想把情况说清楚，利用我们的街区和经济运作作为‘人质’的非法封锁，和我们对新冠的集体疲劳是两个不同的事情，如果你因为厌倦了新冠政策而加入抗议活动，你需要明白那是在犯法。
-
-后果将变得越来越严重，你不希望因为参加集会而最终失去你的执照，背上犯罪记录，这将影响你的工作，你的生计，甚至你的国际旅行能力，包括旅行到美国，我们已经听到了你对新冠政策的失望，这些措施是为了保护人们的安全，我们已经听到你的想法了，现在是时候回家了。
-
-编辑/发文：Kent
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
