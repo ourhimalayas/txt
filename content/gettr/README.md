@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/13/2022 1:01 PM (UTC)`
+
+2022年2月13日 文贵大直播：加拿大卡车清理事件；冬奥会连续爆丑闻；世界经济市场突发；西方法律系统渗透
+![img](https://media.gettr.com/group27/origin/2022/02/13/12/b168ba83-81ae-6c19-61da-9f6aa2eb91bc/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 2/13/2022 7:43 AM (UTC)`
 
 2/11/2022 Miles Guo: Eileen Gu doesn’t have faith, and she is hypocritical, selfish, despicable, and ungrateful. Eileen Gu disobeys the law, makes things up, lies through her teeth, and kowtows to the CCP shamelessly. Why do all the democratic countries in the world boycott the Winter Olympics?<br/><br/>2/11/2022 文贵直播：谷爱凌没有信仰、虚伪、自私、卑鄙、不懂得感恩，她无法无天、完全造假、瞪眼撒谎，无耻地跪舔中共却抹黑养大自己的美国；为什么全球的民主国家都反对冬奥会？
@@ -147,13 +154,6 @@
 
 2022年2月11日 文贵大直播：冬奥会爆出“美”谷爱凌；黑操作假裁判破坏规则；共产党蓝金黄无孔不入；感染下降疫苗政策在变
 ![img](https://media.gettr.com/group9/origin/2022/02/11/12/ea8bfaef-dab3-4dcd-d451-1709f28e050c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 2/11/2022 2:42 AM (UTC)`
-
-2/10/2022 Miles Guo’s GETTR: The CCP uses the law to manipulate and change the rules of the game around the world. During the Winter Olympics, the CCP quarantined athletes in the name of doing COVID testing so they could not compete, and the CCP had used the same rogue tactics to fabricate charges against me. We must let the world know the truth about PAG and UBS by using the law in a legal way.<br/><br/>2/10/2022 文贵盖特：中共利用法律在全世界操纵和改变游戏规则；中共在冬奥会用检测的名义让运动员隔离，导致其无法比赛，中共用同样的流氓手段给文贵罗织罪名；我们要合理地使用法律让世界知道关于PAG和UBS的真相！<br/>
-![img](https://media.gettr.com/group41/getter/2022/02/11/02/a5d22859-40e5-029b-834d-c1b7b573cd7f/out.jpg)
 
 ---
 
