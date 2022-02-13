@@ -2,21 +2,21 @@
 ---
 
 
-## 学生演讲讽刺强迫戴口罩
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1997432/)
+## 七哥爆料陈全国（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1997433/)
 
-##### 翻译：George Yang
-校对：Lish
-剪辑|字幕：文驰
-编辑：Mttfly
+#### 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王
+视频定位：BENJ1，WEI
 
-一位美国学生公开演讲，指责美国政府所实施的严苛而无用的防疫手段。这场大流行的倒行逆施背离了美国的传统价值观。强制疫苗和口罩禁令，严重危害了美国学生的心理健康。学生们本该具有反抗与批判的自由精神，而不是现在屈服于政府的威压。
+相关链接：
+[七哥爆料陈全国（一）](https://gnews.org/zh-hans/1994328/)
+[七哥爆料陈全国（二）](https://gnews.org/zh-hans/1997409/)
+[七哥爆料陈全国（三）](https://gnews.org/zh-hans/1997433/)
+[七哥爆料陈全国（四）](https://gnews.org/zh-hans/1997435/)
 
-视频链接：[“Thank you for teaching students that our own mental health is much less important than making triple vaccinated adults feel safe.”](https://twitter.com/backtolife_2022/status/1484200287237775361?s=21)
+*发布：玉米地守望者*
 
-*发布：Mttfly*
-**
-更多资讯，请关注：
+**更多资讯，请关注：
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)

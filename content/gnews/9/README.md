@@ -2,8 +2,8 @@
 ---
 
 
-## 中国人十之八九都撒谎
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1997578/)
+## 日本媒体传播盘古龙头改龟头
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1997588/)
 
 #### 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王
 视频定位：BENJ1，WEI

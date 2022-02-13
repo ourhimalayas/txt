@@ -2,26 +2,34 @@
 ---
 
 
-## 最后一个澳洲国庆日
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1997619/)
+## 2022年2月12日 晚 新中国联邦新闻、GTV新闻访谈简报
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1997629/)
 
-##### 翻译：Lish
-校对：精靈藍
-剪辑|字幕：蛮吉
-编辑：Kari 、精靈藍
+作者：香草山翻译部
 
-每年的1月26日是澳大利亚的国庆日，以纪念1788年1月26日首批欧洲人抵达澳大利亚的日子。澳大利亚日备受部分澳洲人的争议，尤其对澳大利亚原住民来说，欧洲人的入侵是二百年来所受非人道待遇的开端。就像原住民无法理解即将降临在他身上的厄运一样。 234年后的今天，大多数澳大利亚人也一样，站在十字路口面临命运的抉择，一个是来自专制的澳洲当局用疫苗和封锁施压民众，另一选择是生而平等的天赋人权。请看下一段视频，前陆军特种部队中校、澳大利亚如一党（Australia one）领袖里卡多·波西呼吁澳大利亚人团结起来揭示真相为自由而战。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO.jpg)
 
-视频来源：[AUSTRALIAONE PARTY (A1) – THE LAST AUSTRALIA DAY](https://www.bitchute.com/video/MOApJljrSq9f/)
 
-*发布：Mttfly*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-11.png)
+校对：Stay文苑
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+来源：
+
+新闻：[https://gtv.org/broadcast/watch/62085ebda1fe5e57a4278c38](https://gtv.org/broadcast/watch/62085ebda1fe5e57a4278c38)
+访谈：[https://gtv.org/broadcast/watch/6208666ca1fe5e57a4278fdf](https://gtv.org/broadcast/watch/6208666ca1fe5e57a4278fdf)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
