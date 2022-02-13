@@ -2,45 +2,34 @@
 ---
 
 
-## 《疫苗后遗症》导演讲述伊维菌素
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1998987/)
+## 2022/02/11 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1999024/)
 
-作者：日本方舟农场 Andy5
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
-
-当地时间2月11日晚，《疫苗后遗症》在日本东京最后一次公映。公映前，本片导演长尾和宏医生，讲述了伊维菌素与病毒之间的关系。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-13-at-9.37.35-PM.png)
-长尾医生表示，在去年他跟伊维菌素发明者大村智先生的对谈中，大村智先生提到伊维菌素可以治疗流感和中共病毒，甚至对疫苗后遗症都有一定疗效，属于这方面的万能药。只不过对疫苗后遗症的效果没有对中共病毒那么立竿见影。
-
-但是大村智先生的伊维菌素在日本受到打压，原因是只有研发新药相关企业才有利润。日本法律仅允许个人进口少量伊维菌素，如个人将进口的药分享给他人，就属于违法。
-
-在场的观众中，有80%以上都已经购买了伊维菌素，这让长尾医生感到备受鼓舞。
-
-最后长尾医生表示，他在日本质疑疫苗带来副作用同时推广伊维菌素，已经被之前的朋友和同行医生视为异端，并逐渐疏远，但是为了一名医生的良知和尊严，他愿意继续为真实发声。
-
-参考链接：
-
-1. [兩年沒去過涉谷……](https://www.gettr.com/post/pu0b8959f9)
-2. [20220128日本紀錄片「疫苗副作用」預告片](https://www.gettr.com/post/pr7v6gcdfb)
-3. [纪录片广告（2/11 sold out，这个状态已经持续了2周）](https://vaccine-kohisho-movie.com/)
+1. 天津河北区，被封锁小区的居民自嘲缓解压力和情绪的方式是通过遮挡板看封控防范区以外的世界。
+2. 中共政府通报新增19例新冠病毒确诊病例的辽宁绥中县，家家户户被贴上封条，市民不准出门。
+3. 2月9日，河南新乡。男子外出打工临走时妻子假装不在乎 转身走后妻子便悄悄抹眼泪。在中共国为了谋生，有多少人不得不离开家人？
+4. 湖南娄底，春节后母亲外出打工孩子不舍倒地痛哭，拼命拉扯母亲衣服想留住母亲。
+5. 2月9日，四川。年后爸妈外出务工，女孩望着背影久久不愿离开，一声“妈妈”令母亲破防。
+6. 2月9日，北京。早高峰孕妈妈穿“勿推勿挤”的警示马甲挤地铁，网友感叹当代年轻人的压力非常大。
+7. 2月9日，黑龙江鸡西。一男子疑醉酒后从商场三楼跳下, 万幸的是下面都是儿童玩耍的海洋球，游乐设施救下了男子性命。
+8. 某地隔离人员晒出酒店14天隔离费用，如今中共国的隔离消费已被发展成为了一套成熟的产业链。
+9. 宏伟的辽宁朝阳市市政府大楼！如此宏大的建筑工程消耗的都是老百姓的纳税钱，但决对不会允许老百姓过问。
+10. 2月9日，福建长乐。节后机关单位上班时间聚众抽烟喝茶，“过完年比较闲”，被暗访记者曝光。
+11. 2月10日，广东深圳龙华汽车站门口，一饭店老板为无家可归者免费提供餐食。
+12. 广东深圳，拥有大量在外漂泊无固定工作流浪的人，以天为被地为床，到了晚上都集体在路边打地铺。
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-3.png)
+* * *
 
-编辑：飞虹
-总编：文特
-校正/发稿：我不在这里
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

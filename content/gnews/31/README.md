@@ -2,84 +2,42 @@
 ---
 
 
-## 长期使用漱口水的副作用以及如何减轻这些副作用？
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1999431/)
+## 奥运光芒无法掩盖中共活摘人体器官的罪恶
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1999593/)
 
-**撰稿：Eva**
+撰稿：银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-3.png)
+2月10日，国外媒体的一篇报道提醒大家，正在举办冬奥会的中共是一个从事人体器官活摘的邪恶犯罪组织。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1297.png)图片来自：https://nypost.com/
+首先，中共会从维族穆斯林和法轮功学员等政治犯那里活体摘取器官。分析师兼调查伊桑·古特曼估计，2000年至2008年，6.5万名法轮功学员和2000至4000名维族人、西藏人的器官被强行摘取。犹他大学医学院和亨茨曼癌症研究所的肿瘤学家吉尔克里斯博士呼吁，停止使用来自中共的人体器官。
 
-***第一节：针对COVID-19的预防和早期治疗之药用漱口水的使用参考文献：***
+其次，1984年，中共通过了允许从囚犯身上摘取器官的法律。由于中共独裁统治的特点，任何持有不同政治观点和宗教信仰的人都可能成为囚犯，从而形成庞大的活摘器官供应市场，供体器官等待时间只需三天。
 
-**FLCCC****预防配套之漱口药水**
-
-英文原版Gargle mouthwash
-
-2 x daily – gargle (do not swallow) antiseptic mouthwash with cetylpyridinium chloride (e.g. ScopeTM, ActTM, CrestTM), 1% povidone/iodine solution or ListerineTM with essential oils.
-
-中文版本
-
-每天 2 次 – 使用 cetylpyridinium chloride（例如 ScopeTM、ActTM、CrestTM)、1% povidone/iodine 溶液或ListerineTM 含精油漱口（请勿吞咽）抗菌漱口水
-
-**FLCCC****早期治疗配套之漱口药水****/****鼻喷剂**
-
-英文原版 Anti-septic Anti-VirAls
-
-Antiviral mouthwash: Gargle 3 x daily (do not swallow; must contain chlorhexidine, povidone-iodine, or cetylpyridinium chloride). Iodine nasal spray/drops: Use 1 % povidone-iodine commercial product as per instructions 2–3 x daily. If 1 %-product not available, must first dilute the more widely available 10 %- solution6 and apply 4–5 drops to each nostril every 4 hours. (No more than 5 days in pregnancy.)
-
-中文版本
-
-抗病毒漱口水: 每天漱口 3 次（请勿吞咽；必须含有 chlorhexidine、povidone-iodine 或 cetylpyridinium chloride)。 Iodine 喷鼻剂/滴剂: 依照说明每天使用 1% povidone-iodine 商用产品 2-3 次。 如果 1%-产品无法利用，必须先稀释更广泛使用的 10%- 溶液4並且每 4 小時在每個鼻孔中施用 4-5 滴。（怀孕期间使用不超过5天。)
-
-***第二节 爆料革命战友使用比较多的药用漱口水和鼻喷剂介绍***
-
-（1）1 % povidone-iodine漱口药水以及相应的喉咙喷剂，鼻喷剂 – 线下在Watson可以买到，单价大概10.60新元
-![](https://assets.gnews.org/wp-content/uploads/2022/02/11-11.png)
-（2）Chlorhexidine Mouthwash BP漱口药水 – 线下在 Polyclinic 药房公开买到，单价大概3.75新元
-![](https://assets.gnews.org/wp-content/uploads/2022/02/22-2.png)
-以上两款漱口药水，在线上shopee也可以买到。
-
-***第三节 长期使用的副作用，以及我自己如******何使用***
-
-长期使用药用漱口水，比较常见的副作用发生在牙齿和黏膜，症状主要表现为牙齿变黄、味觉改变。 因为药用漱口水含有抑菌剂，长期使用，可能会导致口腔菌群紊乱，或许引发身体疾病。
-
-为了尽可能地减少长期使用药用漱口水的副作用。我们家采取了下列原则：
-
-1. 凡是在家里没有外出的日子，都不使用。
-2. 外出时候口罩，脸部，手部，衣服，随身携带物品，都污染较少的，都不使用。
-3. 外面用餐时，和周围人一直保持在2米以外的都不使用。
-4. 外面用餐时和周围人距离只保持1米甚至更近的，回家使用漱口水+鼻喷剂。
-5. 去过人口密集的，密闭的，小空间，回家必须使用漱口水+鼻喷剂。
-6. 两种漱口水交替使用，
-7. 两种漱口水都稀释以后使用，如下面2图：
+中共独裁政府不可能主动停止其邪恶行为，为了阻止中共继续活摘器官，美国可以采取的措施包括：停止来自中共的器官捐赠，禁止医疗公司使用来自中共的器官，对相关公司进行严格审计，杜绝与中共官员的勾结等。但评论人士指出，仅仅这些抵制措施不能杜绝中共活摘器官的恶行，只有彻底消灭中国共产党这个独裁政党，才能真正消除这种灭绝人性的罪恶勾当。
 
 
 
+新闻来源：
 
+[Olympic glamour cannot hide the horrors of Chinese organ harvesting](https://www.lifesitenews.com/blogs/olympic-glamour-cannot-hide-the-horrors-of-chinese-organ-harvesting/)
 
+[Olympics veneer can’t hide China’s atrocities](https://www.foxnews.com/opinion/china-olympics-veneer-atrocities-sen-todd-young)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-3.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/33.png)
+总编：Ivy001
 
+编辑：静言
 
+校正/发稿：浪迹天涯
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/44.png)
-
-
-
-
-加入等量的冷开水稀释。
-
-（根据香草山医疗卫生部，只要你无法适应，还可以继续稀释。）
-
-图中也看到Betadine重要的一条注意事项：
-
-**6****岁以下的孩子不可以使用。**
-
-（网络图片，和我们买的说明，有所不同。）
-
-也是可以加入等量的冷开水稀释（网络图片）
-
-这是我家尝试的一些做法，在此抛砖引玉，也希望爆料革命战友们多多分享。
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

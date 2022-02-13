@@ -2,40 +2,35 @@
 ---
 
 
-## 美中常驻联合国代表在乌克兰问题上交锋
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/1999740/)
+## 有声|人类研究保护联盟主席呼吁反对强制中共病毒疫苗
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1999844/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image003-12.jpg)
-美国**1**月**31**日与俄罗斯在联合国安理会就乌克兰危机正面交锋。华府称俄罗斯的部队集结是对**“**国际和平**”**的重大威胁，但莫斯科将此次会议斥为华府的**“**公关噱头**”**。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月10日，据盖特消息显示，纳粹大屠杀幸存者、人类研究保护联盟创始人兼主席维拉-沙拉夫近日在欧盟总部布鲁塞尔表示，中共病毒疫苗使用了一种实验性基因转移技术，而制药公司正在对全球人口进行测试——这一行为严重违反了全球民众自愿知情同意权这一最重要的人权。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-4.jpeg)
+沙拉夫指出，自2020年中共病毒大流行伊始，各国政府随即宣布进入紧急状态。其后，全球都在推进一种致命的医疗指令，即强制民众接种中共病毒疫苗。这令那些未接种疫苗者受到越来越严重的惩罚和歧视。
 
-据联合早报**2**月**11**日消息，美国常驻联合国代表格林菲尔德周四表示，她希望中共敦促俄罗斯在乌克兰问题上**“**做正确的事**”**。中共常驻联合国代表张军迅速作出回应，呼吁开展外交活动，停止**“**刺激紧张局势**”**。**
+如今，大量的事实证明，中共病毒疫苗既不能防止病毒的感染和传播，也不能让接种者产生相应的免疫效力。为此，沙拉夫呼吁，人类正处在历史上一个灾难性的转折点，如果我们想生存下去，就必须团结起来避免灾难的发生。
 
-**据路透社报道，美国要求由**15**个成员国组成的联合国安理会就俄罗斯在乌克兰与俄罗斯和白俄罗斯的边界集结军队一事举行会议，但在表决中中共国是唯一与俄罗斯一道投反对票的国家，阻挠未能成功。**
+文字版原文：[人类研究保护联盟主席呼吁反对强制中共病毒疫苗](https://gnews.org/zh-hans/1996266/)
 
-**如果莫斯科入侵乌克兰，西方外交官希望说服北京不要再次站在俄罗斯一边，关注主权和领土完整，不要把乌克兰局势描绘成全球大国之间的紧张关系。 美国明知中共才是乌克兰问题的最大作祟者。政客们为了自己的利益在台上演戏给世界看。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-**推出问题，敲出真相，爆料在路上！**
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-**请关注和订阅我们的以下账号：**
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-**新西兰伊甸农场盖特**：https://gettr.com/user/himalayanz
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-**【玫瑰看新闻】盖特**：https://gettr.com/user/rosenews
-
-**玫瑰看新闻YouTube账号**：
-
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**Rose news**
-
-**【玫瑰看新闻】推特账号**：
-
-**Rose News (@RoseNews4)a**
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

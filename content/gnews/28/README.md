@@ -2,35 +2,33 @@
 ---
 
 
-## 美议员：共产主义是癌症 不能让它蔓延
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1999552/)
+## 美众议院提案为因拒绝接种中共疫苗解职的军人复职
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1999617/)
 
-撰稿：台湾宝岛农场 motdfry(文旦)/银河系农场—骄子
+撰稿：银河系农场—骄子
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-3.png)
-2月10日，美国联邦参议员里克·斯科特在美国智库——美国优先政策研究所——主办的论坛上说，中共正按照它自己的计划重塑世界，如果美国人不希望他们珍视的自由被剥夺，必须采取行动。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1296.png)
-在北京冬奥会的开幕式上，一位面带微笑的维吾尔族运动员作为最后一名奥运火炬手，试图展示中共所谓的“民族团结”。斯科特对此认为：“这是一个完美的例子，说明了中共的宣传方式，他们只是想粉饰自己的罪行。”
+2月10日，美国媒体消息，本周，美国共和党人公布了一项立法提案，旨在确保拒绝接种中共病毒疫苗的美国军人能够继续服役。该项立法涉及：不得使用联邦资金要求武装部队成员接种中共病毒疫苗；有关秘书不得以武装部队成员拒绝接种中共病毒疫苗为由，对该成员采取任何不利行动。该法案还要求之前因拒绝接种疫苗被开除的士兵被恢复之前的军事级别，以及损失的工资与删除的服役记录。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1298.png)图片来自：https://www.axios.com/
+据悉，由于拜登政府的强制新冠疫苗令，数百名宝贵的美国军人被迫离开军队，带走了他们多年的专业技能、无私奉献的职业生涯和终生的军事梦想，造成不可接受的结果。同时，接种新冠疫苗后的美国军人，出现各类严重并发症的数据比率严重暴增。
 
-同一天，共和党众议员克里斯·史密斯在接受采访时也认为，北京冬奥会是希特勒1936年奥运会的翻版，中共政府就相当于当今世界的纳粹分子。已有文件清楚地表明，习近平政府正在对新疆和香港人进行种族大屠杀，包括实施严重侵犯人权的酷刑、暴虐和强制堕胎等罪恶。
+媒体称，在世界如此紧张的局势下，此提案如立法，对中共疫苗带给美国军队的负面影响，将会起到一定的缓和作用。
 
-中共是对世界秩序和美国人民生计的最大威胁，这一观点在华府得到了越来越多的共鸣。
+新闻来源：[House conservatives introduce bill to protect, reinstate soldiers who refuse COVID shots](https://www.lifesitenews.com/news/house-conservatives-introduce-bill-to-protect-reinstate-soldiers-who-refuse-covid-shots/)
 
-链接：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-3.png)
 
-[‘They are butchering people’: Republican Congressman scorches China’s ‘Genocide Olympics’](https://www.lifesitenews.com/news/they-are-butchering-people-republican-congressman-scorches-chinas-genocide-olympics/)
+总编：Ivy001
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-2.png)
-
-总编/编辑: Ivy001
+编辑：静言
 
 校正/发稿：浪迹天涯
 
 **更多资讯，更多关注**
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-3.png)
  
 

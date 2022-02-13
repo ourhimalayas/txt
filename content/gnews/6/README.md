@@ -2,37 +2,42 @@
 ---
 
 
-## 有声|英国查尔斯王子再次确诊中共病毒
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1999804/)
+## 荷兰阿斯麦指东方晶源推销或侵犯知识产权的产品
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/1999952/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月10日，据相关媒体报道，英国克拉伦斯宫当天在声明中宣告，由于查尔斯王子的中共病毒检测结果称阳性，目前他本人正在自我隔离中。为此，现年 73 岁的英国王位继承人不得不缺席当天在英国温彻斯特市举行的活动。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide6-6.jpeg)
-据王室消息人士透露，查尔斯王子在确诊前两天会见了英国女王伊丽莎白二世，但女王尚未出现任何症状。
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image005-8.jpg)
+**2**月**10**日，荷兰光刻机供货商阿斯麦（**ASML**）指一家名为东方晶源微电子科技的中共国企业，已开始推销可能侵犯阿斯麦知识产权的产品。**
 
-报道提及，这是查尔斯王子第二次确诊感染中共病毒。早在2020年3月，查尔斯王子就曾出现过轻微的感染症状，并在随后的病毒检测中被确诊。值得注意的是，此次确诊感染前，查尔斯王子和他的妻子卡米拉均已完全接种了中共病毒疫苗及其加强针。
+**阿斯麦早前指控**XTAL**窃取阿斯麦商业机密，美国法庭**2019**年裁定阿斯麦胜诉并获得赔偿。**
 
-然而，如同大多数研究结果显示的，中共病毒疫苗并没有为其接种者查尔斯王子提供必要的保护。
+**阿斯麦呼吁部分客户不要说明东方晶源，并说公司正在密切关注事态发展，也做好准备在适当时候采取法律行动。**
 
-文字版原文：[英国查尔斯王子再次确诊中共病毒](https://gnews.org/zh-hans/1996231/)
+**据中共媒体香港《南华早报》报导，阿斯麦是世界上最大的光刻机供货商，而光刻机用于制造芯片。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+**推出问题，敲出真相，爆料在路上！**
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+**请关注和订阅我们的以下账号：**
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**新西兰伊甸农场盖特**：https://gettr.com/user/himalayanz
+
+**【玫瑰看新闻】盖特**：https://gettr.com/user/rosenews
+
+**玫瑰看新闻YouTube账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**Rose news**
+
+**【玫瑰看新闻】推特账号**：
+
+**Rose News (@RoseNews4)a**
 
  
 

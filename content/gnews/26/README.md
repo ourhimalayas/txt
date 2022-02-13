@@ -2,16 +2,18 @@
 ---
 
 
-## 自由卡车 反抗暴政
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1999557/)
+## 20220211郭文贵大直播：铁链女孩事件全党参于作案 横跨中共江 胡 习三代领导人
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/1999645/)
 
-文贵大直播20220213
+作者：东京樱花团小视频组
 
-撰稿：莲心不染（扬帆）MyWay（扬帆）大废墙（扬帆）
+校对：东京樱花团小视频组
 
-美工：凌点夜话（香草山）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide2-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide3-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide4-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide5-4.png)
-*发布：Theodosia*
+编辑发布：东京樱花团小视频组
+
+* * *
+![喜马拉雅东京樱花团](https://assets.gnews.org/wp-content/uploads/2022/02/樱花-3-2-1.jpg)喜马拉雅东京樱花团
+
 
  
 
