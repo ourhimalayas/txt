@@ -2,27 +2,20 @@
 ---
 
 
-## 新中国联邦引领世界大卡车反抗暴政运动
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2001469/)
+## 世界正在发生大战，幕后黑手就是共产党
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2001573/)
 
-加拿大温哥华扬帆农场：硫酸羟氯喹64
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/a-13-edited.png)图片来源：GTV
+*发布：陶子*
 
-
-据2月13日GTV大直播报道，文贵先生发起的暴料革命于2019年在香港反送中运动中所策划的使用货车和汽车以阻断中共恶警涂炭香港的行动方式，开启了世界上和平对抗暴政并使人类有效实现新型民主的先河。
-
-报道指出，目前在加拿大和法国以及全球各地正如火如荼进行的卡车司机车队反抗疫苗暴政的集会示威活动，与当年文贵先生在香港抵抗中共政权入侵中所采取堵塞和瘫痪当地交通的方式如出一辙。而且新中国联邦在当前这些和平抗议运动中所起的实践指导作用举足轻重。
-
-对此，文贵先生指出，大卡车反疫苗政策运动的本质，就是把全球现在和未来的经济，完美地与利用政治运动来和平有效地推翻独裁统治联系在一起。如果最终能不被煽动、不使用暴力，那么它的意义和价值将是非凡和深远的。
-
-新闻来源：
-
-[https://gettr.com/streaming/pu9dbgdec1](https://gettr.com/streaming/pu9dbgdec1)
-
-* * *
-
-采编：青青 编辑撰稿，发稿：硫酸羟氯喹64
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
