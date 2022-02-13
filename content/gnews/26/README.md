@@ -2,26 +2,31 @@
 ---
 
 
-## 在阿富汗营救美国人的退伍军人团体为乌克兰危机做准备
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1997636/)
+## 你怼任你怼！硬汉欧文就是不喵
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/1997807/)
 
-#### 撰稿：彩虹
+还记得2016年NBA总决赛欧文绝杀勇士的关键三分吗？硬汉欧文关键时刻的神仙球就是那么帅！欧文作为NBA特立独行的存在，虽然饱受争议，但一直本我如初坚持着自己的主见！
 
-#### 责编:白夜        
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1253.png)图片来源：CBS News
-2月12日，《新闻极限》发布文章，引述《国会山报》的报道，自阿富汗撤军以来，一个由美国退伍军人和平民组成的团体已经从阿富汗解救了200多名美国国民。随着紧张局势的升温，该团体正准备帮助乌克兰撤离美国公民和居民。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-55.jpg)
 
-据《福克斯新闻》上个月报道，这个名为“Dynamo项目”的组织主要由捐款资助，自西方军队于8月离开阿富汗以来，该组织已协助美军从该国营救公民、盟友和合法居民。
+据2月12日虎扑留言版，那些自私的想看球的网友，又因为欧文不打疫苗而怼起来了。欧文作为NBA的超级巨星，想打球有错吗？这是人家的职业好吧！欧文作为一个明白人，不打疫苗不光是自由的选择，更是自己健康的保证，已经远远甩了那些打疫苗球员好几条街了！
 
-文章说，上个月，“Dynamo项目”已经为在军事冲突中被困在乌克兰和俄罗斯军队之间的美国人调查了一个预备地点。
+**下面是网友对欧文不打疫苗的留言：**
 
-周五，“Dynamo 项目”联合创始人布莱恩·斯特恩（Bryan Stern）告诉《国会山报》，“现在每个人都在紧张地处理这场危机，但没有人比我们的政府雇员和他们目前在乌克兰的家人更紧张。我们正在努力抢占先机，这样的话，如果局势恶化，我们将能够准备好立即采取行动，让每一位美国公民和居民回到美国本土，远离危险。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3-31.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/4-19.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/5-18.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/6-18.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/7-15.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/8-12.jpg)
+虽然很多人对欧文不打疫苗冠以了“自私”的名号，不少网友的眼睛还是雪亮的，自私的人为了金钱早就去打了，有因为自私不打主场损失几千万的球员吗？那些“自私”的球迷因为看不了欧文打球快急疯了！
 
-报道指，白宫新闻秘书詹妮·普萨基（Jen Psaki）警告说：“美国不会派兵去救援在乌克兰的美国人。”她说：“美国通常不会进行大规模的疏散行动，有一系列的方式可由美国人选择来离开乌克兰，我们一直在鼓励他们这样做。”
+正如一位网友的留言说：错的并不是你，而是全世界！当欧文因不打疫苗而被众人所怼时，却依然坚持着自己的职业生涯，依旧如生命般热爱着篮球，这才是真正的NBA巨星！
 
-**新闻来源**
+新闻来源：[虎扑体育](https://bbs.hupu.com/49412600.html?is_reflow=1&amp;cid=84251238&amp;bddid=UDAZAD5YWF2DVRPBK36YBEW4UMJUZ3EIWM6V2VCZRHI2I5DUEZGA01&amp;puid=&amp;client=397FA2D6-6247-417F-BF33-2C94B55C93C3)
 
-[Veterans Group That Rescued Americans in Afghanistan Prepares for Ukraine Crisis](https://www.newsmax.com/newsfront/project-dynamo-afghanistan-withdrawal-russia/2022/02/11/id/1056538/)
+撰稿/发布：一叶知秋
+
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

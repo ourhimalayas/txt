@@ -2,27 +2,20 @@
 ---
 
 
-## 最后一个澳洲国庆日
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1997619/)
+## 美防长奥斯汀命驻乌克兰美军撤离
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1997746/)
 
-##### 翻译：Lish
-校对：精靈藍
-剪辑|字幕：蛮吉
-编辑：Kari 、精靈藍
+撰稿：东京樱花团/文小白
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-20.jpg)[图片来源](https://www.sankei.com/resizer/VAzIOopPZjtX68OvAefFbeXZ7us=/1200x630/smart/cloudfront-ap-northeast-1.images.arcpublishing.com/sankei/RQOWQZUCTJJKLNIRRXMTOUD47I.jpg)
+产经新闻2月13 日清晨报道，五角大楼发言人柯比在一份声明中说，为了应对乌克兰日益紧张的局势，美国国防部长约翰-奥斯汀命令驻扎在乌克兰的160名美国士兵撤离到欧洲其他国家。 这160人来自佛罗里达州的国民警卫队，自去年11月底以来一直在帮助乌克兰部队进行训练。 目前还不清楚他们将被安置到欧洲哪里国家。 柯比说，此举是为了美国士兵的安全，并强调这 “并不意味着我们支持乌克兰军队的决心有所改变。” 鉴于部署在边境附近的俄罗斯军队入侵乌克兰的风险越来越高，美国国务院于12日下令美国驻乌克兰大使馆的美国人员撤离该国。其他主要国家的政府也相继撤离本国公民离开乌克兰。
 
-每年的1月26日是澳大利亚的国庆日，以纪念1788年1月26日首批欧洲人抵达澳大利亚的日子。澳大利亚日备受部分澳洲人的争议，尤其对澳大利亚原住民来说，欧洲人的入侵是二百年来所受非人道待遇的开端。就像原住民无法理解即将降临在他身上的厄运一样。 234年后的今天，大多数澳大利亚人也一样，站在十字路口面临命运的抉择，一个是来自专制的澳洲当局用疫苗和封锁施压民众，另一选择是生而平等的天赋人权。请看下一段视频，前陆军特种部队中校、澳大利亚如一党（Australia one）领袖里卡多·波西呼吁澳大利亚人团结起来揭示真相为自由而战。
+信息来源：
 
-视频来源：[AUSTRALIAONE PARTY (A1) – THE LAST AUSTRALIA DAY](https://www.bitchute.com/video/MOApJljrSq9f/)
+[米国防長官、ウクライナから米兵１６０人国外移動命じる](https://www.sankei.com/article/20220213-7C63KDXWNNLBRC2XFX3EXTO2CA/%20)
 
-*发布：Mttfly*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

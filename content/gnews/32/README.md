@@ -2,26 +2,34 @@
 ---
 
 
-## 学生演讲讽刺强迫戴口罩
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1997432/)
+## 2022年2月12日 晚 新中国联邦新闻、GTV新闻访谈简报
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1997629/)
 
-##### 翻译：George Yang
-校对：Lish
-剪辑|字幕：文驰
-编辑：Mttfly
+作者：香草山翻译部
 
-一位美国学生公开演讲，指责美国政府所实施的严苛而无用的防疫手段。这场大流行的倒行逆施背离了美国的传统价值观。强制疫苗和口罩禁令，严重危害了美国学生的心理健康。学生们本该具有反抗与批判的自由精神，而不是现在屈服于政府的威压。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO.jpg)
 
-视频链接：[“Thank you for teaching students that our own mental health is much less important than making triple vaccinated adults feel safe.”](https://twitter.com/backtolife_2022/status/1484200287237775361?s=21)
 
-*发布：Mttfly*
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-11.png)
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+来源：
+
+新闻：[https://gtv.org/broadcast/watch/62085ebda1fe5e57a4278c38](https://gtv.org/broadcast/watch/62085ebda1fe5e57a4278c38)
+访谈：[https://gtv.org/broadcast/watch/6208666ca1fe5e57a4278fdf](https://gtv.org/broadcast/watch/6208666ca1fe5e57a4278fdf)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
