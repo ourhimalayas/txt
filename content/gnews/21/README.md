@@ -2,34 +2,26 @@
 ---
 
 
-## 2022年2月12日 晚 新中国联邦新闻、GTV新闻访谈简报
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1997629/)
+## 在阿富汗营救美国人的退伍军人团体为乌克兰危机做准备
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1997636/)
 
-作者：香草山翻译部
+#### 撰稿：彩虹
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO.jpg)
+#### 责编:白夜        
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1253.png)图片来源：CBS News
+2月12日，《新闻极限》发布文章，引述《国会山报》的报道，自阿富汗撤军以来，一个由美国退伍军人和平民组成的团体已经从阿富汗解救了200多名美国国民。随着紧张局势的升温，该团体正准备帮助乌克兰撤离美国公民和居民。
 
+据《福克斯新闻》上个月报道，这个名为“Dynamo项目”的组织主要由捐款资助，自西方军队于8月离开阿富汗以来，该组织已协助美军从该国营救公民、盟友和合法居民。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-11.png)
-校对：Stay文苑
+文章说，上个月，“Dynamo项目”已经为在军事冲突中被困在乌克兰和俄罗斯军队之间的美国人调查了一个预备地点。
 
-编辑：Stay文苑
+周五，“Dynamo 项目”联合创始人布莱恩·斯特恩（Bryan Stern）告诉《国会山报》，“现在每个人都在紧张地处理这场危机，但没有人比我们的政府雇员和他们目前在乌克兰的家人更紧张。我们正在努力抢占先机，这样的话，如果局势恶化，我们将能够准备好立即采取行动，让每一位美国公民和居民回到美国本土，远离危险。”
 
-发稿：Stay文苑
+报道指，白宫新闻秘书詹妮·普萨基（Jen Psaki）警告说：“美国不会派兵去救援在乌克兰的美国人。”她说：“美国通常不会进行大规模的疏散行动，有一系列的方式可由美国人选择来离开乌克兰，我们一直在鼓励他们这样做。”
 
-来源：
+**新闻来源**
 
-新闻：[https://gtv.org/broadcast/watch/62085ebda1fe5e57a4278c38](https://gtv.org/broadcast/watch/62085ebda1fe5e57a4278c38)
-访谈：[https://gtv.org/broadcast/watch/6208666ca1fe5e57a4278fdf](https://gtv.org/broadcast/watch/6208666ca1fe5e57a4278fdf)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[Veterans Group That Rescued Americans in Afghanistan Prepares for Ukraine Crisis](https://www.newsmax.com/newsfront/project-dynamo-afghanistan-withdrawal-russia/2022/02/11/id/1056538/)
 
  
 
