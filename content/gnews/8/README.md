@@ -2,33 +2,30 @@
 ---
 
 
-## 世界转折点——敦刻尔克
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1997003/)
+## 有声|众议院保守党人对数千名中国共产党官员提出制裁建议
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1997095/)
 
-**作者：**姐夫说说
-**编辑：**翼族
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%96%B0-9.png)
+据Breitbart News独家报道，针对中共日益严重的人权问题和对世界安全构成最大威胁的独裁政府，美国众议院高层保守派人士提出了一项立法提案，欲正式制裁数千名中国共产党（CCP）官员，包括中国独裁者习近平及其整个家庭。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Dunkirk-Movie-Review-1-1.jpg)Navylookout
+该提案来自众议员Lisa McClain（R-MI），得到了共和党研究委员会（RSC）主席众议员Jim Banks（R-IN）和众议院军事委员会高级成员众议员Mike Rogers（R-AL）的支持。
 
+该法案将禁止2000多名中共党官员和他们的家人进入美国和美国的金融体系，这样他们就不能利用家人偷偷摸摸地绕过制裁。
 
-1939年9月1号，希特勒闪电战占领波兰，二战爆发。紧接着德军绕过德法之间的马奇诺防线，从比利时进入法国，将英法联军打了个措手不及。英法联军在德国强大攻势下，英军决定在敦刻尔克这个边境小港口进行了战略大撤退，这也是历史上最大规模的撤兵。
+文字版原文：[众议院保守党人对数千名中国共产党官员提出制裁建议](https://gnews.org/zh-hans/1994125/)
 
-英军从敦刻尔克大撤退回英国是第二次世界大战三大转折点的第一个，它改变了德军势如破竹的命运，更改变了世界的命运。今天，文贵先生同样去英国，既成为他前半生与后半生的分水岭，也同样是爆料革命转守为攻的转折点，更是第三次世界大战——病毒疫苗灭共超限战的转折点！
+音频处理/发稿：Daxia
 
-当时敦刻尔克大撤退时，德军欢喜雀跃，认为英军是一次狼狈的撤退，40万大军命悬一线。有如这几天的伪类们纷纷跳出来借此事攻击文贵先生，袁弓夷和火鸡龚更胡说文贵先生政治生涯就此终结。首先，这根本不是简单的政治，而是第三次世界大战进行时；而且，正如郭先生说的，他连共产党和沼泽地都能敢挑战，难道会让PAG这个小流氓撂倒吗？所以这根本不是撤退，而是伪类们无法理解的一个策略。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-相反，在敦刻尔克大撤退时，德军做了非常错误的选择——占领法国（眼前利益），而非消灭40万英国大军（敌人有生力量）。导致40万大军退回英国坚守本土，从而德军无法登陆英国本土，打破了德军百战百胜的传说，成为了二战三大转折点的第一个。今天的文贵先生也是一样，作为灭共第一人，他不可能为了PAG这样的小流氓（眼前利益），而放弃瑞银——共产党一半的财富（敌人有生力量）。
-
-当年，因为突如其来的敦刻尔克撤退，40余万的英国士兵并非全部由军舰运送回国，大部分士兵搭乘的是英国民众自己的私人船只，富人开游艇，渔夫开渔船。香港大学抗争的学生们，最后也是由民众的摩托车运送离开，脱离黑警虐杀。今天文贵先生宣布离开美国后，不但世界各地的农场和战友提出捐款，而且正义一方的沼泽地、商界和政界都纷纷出手相助，从安保到住宿都提出帮助，场面感天动地！虽然文贵先生没有接受任何捐款，但这种众志成城的必胜精神，正是敦刻尔克精神！正道主义精神！
-
-*发布：翼族*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

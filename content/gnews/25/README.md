@@ -2,52 +2,46 @@
 ---
 
 
-## 魁北克省出现两组示威者，支持卡车司机，反对卡车司机，警察迅速将两组人分开
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1996815/)
+## 延安性事（短篇纪实文学）（一）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1996822/)
 
-**编译：16626**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/EC995E22-5228-4AA0-B340-9E05BAC22D4A.png)**图片来源：截屏于**[**https://www.tvanouvelles.ca/2022/02/12/camionneurs-et-mesures-sanitaires-les-pour-et-les-contre-manifestent-a-montreal**](https://www.tvanouvelles.ca/2022/02/12/camionneurs-et-mesures-sanitaires-les-pour-et-les-contre-manifestent-a-montreal)**  **
-**两组示威者出现，警察迅速将两组人分开**
+出品：西班牙巴塞罗那喜悦农场
+作者：DT挖掘机团队
 
-周六（2022 年 2 月 12 日）早上，卡车司机（示威）的支持者和反对者在蒙特利尔的贾里公园（parc Jarry）附近举行示威。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/5677406e-0f09-4f79-9f6e-5bb7eb160de6.jpg)
 
-蒙特利尔市警察局 (SPVM) 的警察迅速将聚集的两组示威者（两组示威者：支持卡车司机，反对卡车司机）分开。
+## 揭露中共1942年前后在陕北延安的换妻运动的内幕！
 
-（2022 年 2 月 12 日）上午 10 点 20 分左右，支持卡车司机的示威活动平静地开始了。
+在革命圣地延安不是只有革命，还有性！延安“性”事很有特色，特别是女性知识分子开始涌入后，延安的婚恋花絮增多。自由恋爱、组织分配、历尽坎坷、花样百出，三姐妹嫁三兄弟的“三刘嫁三王”，各有各的戏，各有各的故事。
 
-**一组示威者：支持卡车司机  **
+由老一辈无产阶级革命家们带头，睡睡女学生，换换老婆，更是家常便饭，这叫革命浪漫主义！“打下榆林城，一人一个女学生！”
 
-![](https://gnews.org/40c02b72-7bea-40c4-98bb-a699df8db3d2)**图片来源：****截屏于**[**https://www.tvanouvelles.ca/2022/02/12/camionneurs-et-mesures-sanitaires-les-pour-et-les-contre-manifestent-a-montreal**](https://www.tvanouvelles.ca/2022/02/12/camionneurs-et-mesures-sanitaires-les-pour-et-les-contre-manifestent-a-montreal)** ****，****一组示威者：支持卡车司机  **
+从毛贼东开始到所谓的十大元帅到革命将军，人人对女学生们垂涎三丈，休了原配黄脸婆，再迎娶年轻美貌的城市学生！所以各种私生子私生女们浩浩荡荡的以另一个名字另一种身份潜伏了下来。
 
-**两组示威者之间（相互对峙）的紧张情绪是显而易见的**
+在马克思、恩格斯“消灭家庭”思想的哲学指导下，在一望无际的“南泥湾献花开满山”的罂粟花照耀下，在张思德去烧“烟泡”（鸦片）被倒塌砖窑砸死的时候，中共领导层开展了轰轰烈烈的性运动！
 
-两组示威者之间（相互对峙）的紧张情绪是显而易见的，但是蒙特利尔市警察局SPVM表示，没有看到任何（冲突）爆发。
+延安“性”事很有特色。举个例子，陶铸的老婆，曾志：
 
-**另一组示威者：反对卡车司机**
+1933年5月18日，陶铸在上海亭子间被捕，下了南京大狱。其妻曾志（1911～1998）在闽东任临时特委组织部长，同时相好于宣传部长叶飞（后为上将、福建省委书记）、游击队长任铁峰，遭处分，曾志说：
 
-![](https://gnews.org/855a1bf9-e148-42e4-bb9a-46227bba8f3b)**图片来源：****截屏于**[**https://www.tvanouvelles.ca/2022/02/12/camionneurs-et-mesures-sanitaires-les-pour-et-les-contre-manifestent-a-montreal**](https://www.tvanouvelles.ca/2022/02/12/camionneurs-et-mesures-sanitaires-les-pour-et-les-contre-manifestent-a-montreal)** **** ****，****另一组示威者：反对卡车司机**
+“当时我思想不通，为什么要我负主要责任？！只因为我是女人吗？我并没有去招惹他们，但我承认在这个问题上确实有小资产阶级浪漫情调，我认为恋爱是我的权利……我对叶飞是有好感的……当时，我与他们两人关系较好，工作之余经常来往……陶铸来信说，他被判处无期徒刑，恢复自由遥遥无期。而那时我才23岁，我是共产党员、职业革命者，为革命随时都要做出牺牲；同时也早将‘三从四德’、贞节牌坊那种封建的东西，抛到九霄云外去了。因此，重新找对象是我的自由，我有权利作出选择。”
 
-据悉，在这次示威结束后，卡车司机将离开贾里公园 Jarry Park 加入蒙特利尔的（其它）示威。
+高岗在西安看到省委领导逛妓院，起初很惊讶，后来理解了——环境险恶，说不定哪天就会掉脑袋，过一天算一天，还不该及时行乐么？！1934年1月，高岗因奸污妇女受到严厉处分，但他仍每到一处都找女人。中央红军到延安后，他见党内一些高干与自己“同好”，自然不但不收勒自羁，还有所发展。随着权位日高，部属投好，女人送怀，高岗从西北一直“玩”到东北再到北京，其妻李力群多次向周恩来哭诉丈夫“腐化”。但“生活小节”并未影响高岗政治上一路走强，若非毛泽东权衡利弊弃高保刘，高岗差点取代刘少奇成为“接班人”。
 
-另外，Gnews（2022 年 2 月 10 日）发表一篇题为《魁北克省勒戈（Legault）政府指责反对党纵容示威者的武装, [https://gnews.org/zh-hans/1987160/](https://gnews.org/zh-hans/1987160/)  》的文章报道，上周末在魁北克省举行的卡车司机示威活动的组织者之一表示，有些人已经准备好拿起武器。魁北克省省长，弗朗索瓦·勒戈（François Legault），指责反对党纵容某些反卫生措施抗议者发出的武装暴力威胁。
+对了，刘少奇也是“消灭家庭”的积极倡导者！
 
-在2022年02月09日文贵大直播中，七哥讲到：
+大批女学生聚延，婚恋很快成为“问题”。此时，无论性别比例还是拥挤的居住条件，都决定中共只能以献身抗日之名行禁欲之实。1937年9月“黄克功事件”以前，延安执行清教徒式的禁欲政策，抗大规定学习期间不准谈恋爱不准结婚——全心意心扑在党的事业上。
 
-*“**…**被共产党及完全失败的人控制着，小土豆完全是痴心的疯子。共产党希望加拿大和美国越乱越好，但这正不是我们希望发生的。”*
+【接下篇：《延安性事（短篇纪实文学）（二）》】
 
-我们谴责并反对暴力示威，我们相信魁北克省，乃至加拿大的公共卫生行政措施很快会发生变化。
+* * *
 
-**参考资料**： [Camionneurs et mesures sanitaires: les pour et les contre manifestent à Montréal](https://www.tvanouvelles.ca/2022/02/12/camionneurs-et-mesures-sanitaires-les-pour-et-les-contre-manifestent-a-montreal)
+*审核：Bryan
+校对：信心满满
+发稿：信心的选择*
 
-**编辑：LILY**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-3.jpeg)
 
-**发布：歪桑**
-
-20220212
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3-4.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

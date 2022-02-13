@@ -2,38 +2,40 @@
 ---
 
 
-## 有声|中共极度畏惧新中国联邦喜币
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1996856/)
+## 欧洲药物监管机构重新调查与疫苗有关的月经问题报告
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1996900/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生在2月9日的大直播中再次谈到了喜币的威力。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3-27.jpg)
-郭先生透露，中共最怕墙内民众知道他们金钱走向的来龙去脉，更妄想控制中国所有的财富。为此，他们实行媒体管制，删除对其不利的消息；大搞网络封锁，不让民众了解墙外真相；控制银行，阻止民众将资金汇入喜联储。
+**编译: 真北007**
 
-但郭先生补充道，喜币和喜美元如今打破了中共独裁体制对银行中介的禁锢，让全球民众有了与喜联储沟通的新渠道。此外，他们可以合理合法地避税，还能不受控制地自由花钱，更能不受限制且无费用地转移资金并快速到账。更为重要的是，喜币和喜美元未来必将成为全球通用的货币。
+来自POLITICO.EU 二月十一日的新闻报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/F80121F6-E1C8-406A-897D-170D83B7015B.jpeg)**图片来源：**https://www.politico.eu
+在报告大量出血和错过月经以及科学文献中的新发现后，欧洲药品管理局（EMA） 将重新调查 mRNA 疫苗。
 
-郭先生解释道，人民有了私产，才能有独立人格；有了独立人格，才会有独立思想。有远见卓识的中国人都已了然，人民币将一文不值，最好的办法是将手中的人民币换成喜美元与喜币。因此，新中国联邦已然成为中共最惧怕的力量。
+欧洲药品监管机构周五表示，正在调查与注射 mRNA 冠状病毒疫苗有关的女性月经问题的报告。
 
-文字版原文：[中共极度畏惧新中国联邦喜币](https://gnews.org/zh-hans/1990443/)
+在使用 Moderna 和 BioNTech/Pfizer 注射剂后，欧洲药品管理局的药物安全委员会正在调查大出血以及错过月经的两个病例。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+药物警戒风险评估委员会此前曾调查过与 COVID-19 疫苗相关的月经失调，并得出结论认为没有关联。 现在，在收到问题报告以及科学文献的新发现后，它正在重新审理此案。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+该委员会将进行深入调查，查看报告的事件，以及临床试验数据和已发表的科学文章。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+EMA强调，没有证据表明疫苗对生育有任何影响。 监管机构补充说，目前尚不清楚疫苗与月经过多或错过月经之间是否存在联系。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+科学家们发现与 COVID-19 疫苗有关的月经周期的微小变化。
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+**原文链接：**
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[Europe’s drug regulator probes reports of menstrual problems linked to vaccines](https://www.politico.eu/article/ema-investigates-reports-of-menstrual-problems-linked-to-vaccines/)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**编辑：LILY**
 
+**发布：歪桑**
+
+20220212
+
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3-4.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

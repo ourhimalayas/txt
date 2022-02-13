@@ -2,30 +2,49 @@
 ---
 
 
-## 有声|众议院保守党人对数千名中国共产党官员提出制裁建议
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1997095/)
+## 灭共漫画 | 福尔摩斯历险记：中共病毒
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1997131/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%96%B0-9.png)
-据Breitbart News独家报道，针对中共日益严重的人权问题和对世界安全构成最大威胁的独裁政府，美国众议院高层保守派人士提出了一项立法提案，欲正式制裁数千名中国共产党（CCP）官员，包括中国独裁者习近平及其整个家庭。
+设计者：纽约香草山设计部 — 宇倫
 
-该提案来自众议员Lisa McClain（R-MI），得到了共和党研究委员会（RSC）主席众议员Jim Banks（R-IN）和众议院军事委员会高级成员众议员Mike Rogers（R-AL）的支持。
 
-该法案将禁止2000多名中共党官员和他们的家人进入美国和美国的金融体系，这样他们就不能利用家人偷偷摸摸地绕过制裁。
 
-文字版原文：[众议院保守党人对数千名中国共产党官员提出制裁建议](https://gnews.org/zh-hans/1994125/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-音频处理/发稿：Daxia
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+
+
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-holmes_2_p1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/2-holmes_2_p2-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/3-holmes_2_p3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/4-holmes_2_p4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/5-holmes_2_p5.jpg)
+
+
+**编辑/发稿：小鹿**
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-124.jpg)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

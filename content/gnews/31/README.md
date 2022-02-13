@@ -2,45 +2,32 @@
 ---
 
 
-## 文耀时间｜战友实例分享私人信托设立（二） 上期节目答疑 模拟器计算财富 欧洲信托信息(6)
-` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/1996437/)
+## Miles Guo Live Broadcast summary February 11, 2022
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1996446/)
 
-供稿：中华联邦公民
-编辑发稿：am夏天
-喜马拉雅纽伦堡正义农场
-![](https://assets.gnews.org/wp-content/uploads/2022/02/800-5.png)
-**GTV与喜币投资哪个收益更大？**
-喜币配额已经没有了，以后只能到市场上购入喜币，是用现金继续购入喜币，还是用0.1元的原始喜币去投资GTV？
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1236.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1237.png)
-红线为喜币发行价格，设持有喜币之后不再增持，保持不变情况下的增长趋势。
-蓝线为喜币原始投资折成GTV股价，其股价主要推动力量为喜币的发行收入，此线代表GTV股价受喜币发行收入影响的增长趋势。
-在不再增持的情况下，约在6年左右GTV股票收益超过喜币。
-红线：拥有喜币配额即0.1元原始币，可在第二年喜币增发时以优惠30%的幅度购入相应数量的喜币，此时如无资金购入可采用抵押原始币的方式购入，在采用此种方式下的喜币增长趋势。比如增发时喜币价格为100元，原始币有1万个，则有100万可抵押，如果抵押率为30%，则可抵押得30万元，再用这笔钱以30%的优惠购入喜币，实现循环股资。以此种方式增持GTV股价就明显落后了。但如果没有原始币的话是不可能以这种方式超越GTV股票的。
-柱状图是增幅倍数，从长远来看GTV是代代相传的投资，喜币是当代的投资。
-但可能存在两种可能，一是只按原始币配发，即持有原始币之后在增发之前又从市场购入喜币，则购入部分不计算在配发数额之内。二是如果没有原始币，在增发之前所购入的喜币计入配发数额，比如购入了1万个币，那么增发之后只能按1万个币进行优惠购入，超出配额的不享有优惠。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-11-at-12.42.40-PM.jpeg)
+**Source**[https://gtv.org/video/id=62065c00a1fe5e57a426b9e1](https://gtv.org/video/id=62065c00a1fe5e57a426b9e1)
 
-**关于循环投资的说明**
-在第二次增发时，以新的市场价格将部分喜币售出以偿还抵押贷款，再将余下纯净值喜币再作一次抵押贷款，重新购入喜币。
-配额转让费率：如果有喜币配额，但缺少资金足额购入，空缺部分可以在市场上转让，例如有1万个币的采购配额，但无力购买，此时可以出售此部分配额，在当日价格不变的情况下，当日买当日卖就可获取发行价30%的利润。
+**Summary**
 
-设市场价为100元，收取优惠部分20%的转让费，优惠比例为30%，也即收取此部分的20%的费用，
-转让费：100×10000×30%×20%=60000元（市价100时出售10000个配额）
-买方付出：100×10000×70%+60000=76000元（市价100时购入10000个喜币）
-GTV总发行股数：七哥说过GTV估值600亿，一股1元，则为600亿股
-GTV持有喜联储5%，把喜币获利部分平均到600亿股上，算出GTV每股可从喜币每年的增发上获利多少。
-HCN换GTV市场价格：设喜币价为50$，可用50$买一个喜币，或是以0.1元买入50股GTV股票（按配股价格计算）即两者比例为500:1
+1. Tens of billions of dollars can’t undo the damage caused by Eileen Feng Gu to the Chinese and Asians.
 
-**健身健心战友：**假设大家都在第二年同一时间认购增值配额，如果都在那个时间段集中买币还款，会造成市场波动吗？
-**KillCCP：**一定会造成市场波动，但是增发配额比例为100%，在数量上已经进行限制，假设你一个币都不卖的情况下，第一，福利币总数只有六亿个，增发的时候你最多能买六亿个币，这还是假设六亿个币都在你手里的情况下，而每年发十亿个，那还4亿个是你买不到的。
-而且还是在你喜币一个都不卖的情况下才能达到这个程度，如果你卖掉了一部分就要进行相应的扣除。假设明年十一月份市场上喜币的价格是100元，然后又增发了10亿个喜币，市场上总的发行量就是20亿个币，理论上如无新的投资进入就相当于把喜币价值稀释一倍，但喜币的价格就会从100块钱直接降到50吗？不会的，因为后面还有连续98年的增发，大家看中的是未来的发展，尤其是基金这些大额投资者。但价格肯定会受到影响，波动的程度可是从100降到80或者90的样子，毕竟增发会带来稀释，但一子降到50的概率会非常小。
-同样的道理比如我们又增执了6亿个币，再拿增执部分去卖，这个比例应该是在10%左右，对市场会有冲击，但很难计算，所以表中忽略此部分的影响。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1238.png)
-横轴：喜币市场价格
-百分比轴：抵押率，即不同的抵押率下一个币能挣多少
-纵轴：一个币抵押之后按30%折扣能挣多少
-例：市场价1000 抵押率50% 能挣约160
-市场价100 抵押率50% 能挣约十几元
-![](https://assets.gnews.org/wp-content/uploads/2022/02/德农二维码-27.png)
+2. The chained woman in Xuzhou, China has been a sexual slave for 24 years and has eight children. Her parents are members of Communist Party. This matter spans the three generations of the party, Jiang, Hu and Xi. The whole party committed crimes and cheated each other.
+
+3. Brother Miles has an exceptional contribution to the United States. The United States wants to ensure the most excellent safety to him. Miles can go to Japan and United Kingdom only if United States government confirms the safety and agrees. I will leave after June at the earliest. In Japan, Brother Miles has the highest medal of Honor and is protected at the highest-level.
+
+4. Brother Miles thanks every fellow fighter for their willingness to donate. $260 million is a small amount of money for him. Brother Miles will not and cannot accept any donations. The Communist Party’s unrestricted warfare has many tricks to consume your energy and destroy your honor. Miles will appeal the unfavorable judgment on the PAG lawsuit to uncover the truth behind the strange verdict of the Communist infiltration. We want to expose Shan Weijian and Pacific Alliance Group (PAG),which deceives hundreds of billions of dollars in the United States. Miles will fight back with American law.
+
+5. There was little or no audiences at the opening ceremony of the Winter Olympics. But the photos taken by the CCP were all filled with people. The forgery under Xi has reached a disastrous level. The Winter Olympics will be Xi Jinping’s last international show of deception.
+
+6. African countries are undergoing coups. The Chinese Communist Party’s investment in Africa will be wasted.
+
+7. Immune deficiencies caused by COVID-19 vaccines will begin to break out in spring 2022. The Netherland has found many AIDS variants. The United Kingdom and Australia have begun to a large scale of the HIV screening. Pfizer starts recommending HIV drugs to treat COVID-19.
+
+8. The global supply chains are broken. Duo to the threat of the Communist Party to Hong Kong, the living condition in Hong Kong will still be very bad, and so will the rest of the world.
+
+Translator: Latin | Proofread: Fine Food | Editor & Publish:shandianxunlian
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
