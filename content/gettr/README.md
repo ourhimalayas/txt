@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/13/2022 10:14 PM (UTC)`
+
+2/13/2022 Miles Guo: We will soon witness a dramatic change in the world! The Freedom Convoy around the world was started by the New Federal State of China and me, and it originated from the Hong Kong movement that I planned. The Freedom Convoy has opened a new way of peacefully protesting tyranny, with its essence being completely uniting the future economy and the political movements against dictatorship.<br/><br/>2/13/2022 文贵直播：很快，我们将见证世界巨变！全球大卡车运动的发起人是新中国联邦和文贵，它源自于文贵策划的香港运动；大卡车运动开启了和平对抗暴政的新方式，其本质是将未来的经济和反对独裁的政治运动彻底联合在一起<br/>
+![img](https://media.gettr.com/group23/getter/2022/02/13/22/552e2581-002f-8d1c-807a-5f3e10d95095/out.jpg)
+
+---
+
 `@miles 2/13/2022 1:01 PM (UTC)`
 
 2022年2月13日 文贵大直播：加拿大卡车清理事件；冬奥会连续爆丑闻；世界经济市场突发；西方法律系统渗透
@@ -147,13 +154,6 @@
 
 2/11/2022 Miles Guo: The ruling of the PAG case is absolutely unacceptable, and we will never compromise! The PAG case is certainly not a normal case, neither is it about money. Instead, I am going to find out the truth. The foreign banking license UBS received was approved by Wang Qishan and signed by Cai Esheng.<br/><br/>2/11/2022 文贵直播：绝不接受PAG案子的判决，我们绝不妥协！PAG案绝非正常案件，打这个官司绝不是钱的问题，文贵要找到真相；UBS的外国银行牌照是王岐山批准并由蔡鄂生签署的
 ![img](https://media.gettr.com/group32/getter/2022/02/12/00/b560822e-1ff0-fe0a-08e8-61552b195180/out.jpg)
-
----
-
-`@miles 2/11/2022 12:52 PM (UTC)`
-
-2022年2月11日 文贵大直播：冬奥会爆出“美”谷爱凌；黑操作假裁判破坏规则；共产党蓝金黄无孔不入；感染下降疫苗政策在变
-![img](https://media.gettr.com/group9/origin/2022/02/11/12/ea8bfaef-dab3-4dcd-d451-1709f28e050c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
