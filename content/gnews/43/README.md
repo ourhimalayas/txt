@@ -2,26 +2,26 @@
 ---
 
 
-## 立陶宛敦促全球抵制中共和俄罗斯
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1996199/)
+## 英国查尔斯王子再次确诊中共病毒
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1996231/)
 
-作者：银河系农场—骄子
+作者：纽约香草山农场- Naughty(文行)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月10日，据外国媒体报道，立陶宛高级外交官在访问澳大利亚期间向全球发出呼吁称，各国政府应该勇敢抵制中共和俄罗斯侵犯人权的行为，哪怕会因此付出代价。
+当地时间2月10日，据相关媒体报道，英国克拉伦斯宫当天在声明中宣告，由于查尔斯王子的中共病毒检测结果称阳性，目前他本人正在自我隔离中。为此，现年 73 岁的英国王位继承人不得不缺席当天在英国温彻斯特市举行的活动。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide5-6.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide6-6.jpeg)
 
-立陶宛外交官建议道，全球目前应逐步减少对中共和俄罗斯的贸易与能源依赖，同时，部分国家需要建立基于自由民主原则的同盟伙伴关系。
+据王室消息人士透露，查尔斯王子在确诊前两天会见了英国女王伊丽莎白二世，但女王尚未出现任何症状。
 
-该外交官也表示，人们不应该对中共在新疆犯下的种族大屠杀保持沉默，反而应该持续向其发出质询。另一方面，中共还在新疆地区实施强迫劳动的暴行，而这种原则性问题绝不能被无视。如果全球因顾忌物价上涨因素而继续将中共新疆地区的相关产品纳入供应链中，那么每个人都将为强迫劳动带来的低廉商品付出代价。
+报道提及，这是查尔斯王子第二次确诊感染中共病毒。早在2020年3月，查尔斯王子就曾出现过轻微的感染症状，并在随后的病毒检测中被确诊。值得注意的是，此次确诊感染前，查尔斯王子和他的妻子卡米拉均已完全接种了中共病毒疫苗及其加强针。
 
-这位外交官还强调称，乌克兰如今正面临着如同台湾一般的困局，虽然立陶宛此前因与台湾的友好外交关系惹怒中共，但一定还有其他国家将效仿立陶宛的做法，加强与台湾的友好外交关系，这也是全球必然的趋势。
+然而，如同大多数研究结果显示的，中共病毒疫苗并没有为其接种者查尔斯王子提供必要的保护。
 
-参考链接：[Squeezed Lithuania urges world to stand up against China, Russia](https://www.straitstimes.com/asia/australianz/squeezed-lithuania-urges-world-to-stand-up-against-china-russia)
+参考链接：[What concerns are there for the Queen’s health after Prince Charles tests positive for COVID-19?](https://www.abc.net.au/news/2022-02-11/prince-charles-covid-positive-after-meeting-with-queen/100822562)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-总编：Ivy001 
+总编：Irene木木
 编辑：静言
 校正/发稿：谐趣园
 

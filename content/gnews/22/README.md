@@ -2,13 +2,19 @@
 ---
 
 
-## 日本媒体传播盘古龙头改龟头
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1997588/)
+## 最后一个澳洲国庆日
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1997619/)
 
-#### 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王
-视频定位：BENJ1，WEI
+##### 翻译：Lish
+校对：精靈藍
+剪辑|字幕：蛮吉
+编辑：Kari 、精靈藍
 
-*发布：玉米地守望者*
+每年的1月26日是澳大利亚的国庆日，以纪念1788年1月26日首批欧洲人抵达澳大利亚的日子。澳大利亚日备受部分澳洲人的争议，尤其对澳大利亚原住民来说，欧洲人的入侵是二百年来所受非人道待遇的开端。就像原住民无法理解即将降临在他身上的厄运一样。 234年后的今天，大多数澳大利亚人也一样，站在十字路口面临命运的抉择，一个是来自专制的澳洲当局用疫苗和封锁施压民众，另一选择是生而平等的天赋人权。请看下一段视频，前陆军特种部队中校、澳大利亚如一党（Australia one）领袖里卡多·波西呼吁澳大利亚人团结起来揭示真相为自由而战。
+
+视频来源：[AUSTRALIAONE PARTY (A1) – THE LAST AUSTRALIA DAY](https://www.bitchute.com/video/MOApJljrSq9f/)
+
+*发布：Mttfly*
 
 **更多资讯，请关注：
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena

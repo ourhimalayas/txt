@@ -2,20 +2,20 @@
 ---
 
 
-## 沈阳232路公交车发生爆炸
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1997440/)
+## 七哥拒绝10家媒体采访的原因
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1997595/)
 
-撰稿：追着曙光跑
-目击者拍摄的视频
-据中共新浪新闻2月12日的报道，12日17时55分，一辆232路公交车行驶至皇姑区黄河南大街与宁山中路路口附近时发生爆炸。
+#### 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王
+视频定位：BENJ1，WEI
 
-目前，爆炸已造成1人死亡，2人重伤，40人轻伤。受伤人员已送医院救治，事故原因正在调查中。
+*发布：玉米地守望者*
 
-根据现场目击者拍摄的视频显示，周围地面一片狼藉，一辆黄色车身的公交车停在路边，车窗玻璃全部被震碎，地面散落着玻璃碎片。车尾不远处，一名受伤市民坐在路边的绿化带旁，面部流着血，正在等待救援。
-
-拍摄者称，受伤的人不少，救护车已经拉走好几车，车上的空调设施都崩到10米左右的地面。
-
-新闻来源：[沈阳公交车爆炸已致1死42伤](https://news.sina.com.cn/c/2022-02-12/doc-ikyakumy5607999.shtml)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
