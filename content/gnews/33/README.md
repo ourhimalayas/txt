@@ -2,36 +2,46 @@
 ---
 
 
-## 从北京和东京奥运之差看选手网络发帖的价值！（之三）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1998608/)
+## 七哥春晚歌唱现场的钢琴、三套服饰及所有东西铸就传奇
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1998972/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-185.jpg)
-[（图片源）](https://www.google.com/search?q=%E5%8C%97%E4%BA%AC%E5%A5%A5%E8%BF%90&amp;tbm=isch&amp;ved=2ahUKEwiGlfyin_z1AhUywosBHR5yCbcQ2-cCegQIABAA&amp;oq=%E5%8C%97%E4%BA%AC%E5%A5%A5%E8%BF%90&amp;gs_lcp=CgNpbWcQAzIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQ6BwgjEO8DECdQngZYlyNgyCZoAHAAeACAAeMBiAGTCZIBBTUuMy4xmAEAoAEBqgELZ3dzLXdpei1pbWfAAQE&amp;sclient=img&amp;ei=_74IYsaZArKEr7wPnuSluAs&amp;bih=648&amp;biw=1280&amp;rlz=1C1SQJL_jaJP828JP828#imgrc=e8MEBmDEbL1yvM）)
-今天是２０２２年２月１３日，我在日本。跟往日一样，今天也抽时间关注了冬奥相关信息。【从北京和东京奥运之差看选手网络发帖的价值！】这个题目，一下子抓住了我的眼球。查了下作者是德力基彦先生。联想到自２０２０年初中共病毒（新冠病毒Covid-19）爆发以来，特别是各国政府开始强推中共病毒疫苗以来不作为或反作为的媒体，炒了NNT鱿鱼的德力基彦先生的文章就更吸引我继续读下去，并想翻译给中文圈的人们共享了。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1269.png)
-(图片源自[北京五輪“検閲地獄”に強靱メンタル選手もお手上げ スキー川村あんりは一部SNS投稿を削除（日刊ゲンダイDIGITAL） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/075436a32849343e1e05c688ea29055fb870a872))
+G-TV视频链接：[https://gtv.org/video/id=6208a56fb0af02660af31141](https://gtv.org/video/id=6208a56fb0af02660af31141)
 
-以下是我的摘要翻译的连载（之三）
+**郭文贵先生：**我反正唱下来了这歌，看看我们Q May我们的纯洁的雪，纯洁的雪，不是肮脏的雪、虚假的雪。所以这首歌我们唱得特别好！感谢Ryan、唐平、威廉王！我们在场的现在我们的墨镜、小白、甜甜、BoBo、我们的青藤，还有G-Fashion的Doaa、Kamel、雁平，谢谢每位兄弟姐妹们、小白！
 
-**因中共国审查制度而被取消资格的风险**
+我们这首歌唱得真的是我认为这个感觉是最好的之一，我觉得今天我比练的每一次都好。
 
-另一个主要因素是中国政府的审查制度。
+Q May：对。
 
-据报道，在北京奥运会开幕前，北京奥组委曾在网上通报中明确警告：任何违背奥运精神的行为，特别是违反中共国法律法规的行为或言论，都将受到相应的具体处罚。其中似乎还提到了，如有冒犯中共国的言论，可能被取消奥运会的参赛资格。
+今天Q May，你看就这个钢琴，就这么漂亮的钢琴，保时捷的设计，灰色、黑色，然后和我们今天这三套衣服配在一起。然后大家看一看所有的东西今天，包括音乐，整个的音乐，我相信今天Q May的先生Ryan会给大家一个惊喜。所以说这个歌真的是太棒了、太棒了！现在我们进行下一个节目，七哥的歌今天唱完了啊。咱们这个歌肯定不打榜，绝对不打榜，这三首歌都不打榜，因为我们一打榜天下就是绝对第一了啊，那不用打了，是吧？不用打了，肯定第一。不打榜了兄弟姐妹们。谢谢、谢谢！新年快乐！
 
-在这种情况下，选手们自然会采取不冒风险，不给自己带来不必要的麻烦之行动以保护自己。
+字幕来源：[2022年1月31日 《春节大直播》 全文字版（一）](https://gnews.org/zh-hans/1943980/)
 
-可毕竟，运动员们当然的不可能熟悉所谓违反中共国法律法规的言论之标准，所以他们本不应该因为社交网络帖子而存在被取消参赛资格的风险。所以，这也是我印象中北京奥运会期间运动员在社交网站上发的很多帖子都比较短的原因之一。
+编辑整理：Jacques；
 
-未完待续
+字幕文件制作：知津；
 
-信息来源：[北京五輪と東京五輪の違いから考える、日本代表選手のSNS投稿の価値（徳力基彦） – 個人 – Yahoo!ニュース](https://news.yahoo.co.jp/byline/tokurikimotohiko/20220213-00281847)
+视频制作及上传：Cindy；
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+G-News发布：小满；
 
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

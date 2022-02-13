@@ -2,40 +2,37 @@
 ---
 
 
-## 短视频：以色列疫苗最高负责人承认应相信自然免疫
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1998452/)
+## 从北京和东京奥运之差看选手网络发帖的价值！（之五）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1998702/)
 
-翻译：不要代表我
-校对：精靈藍
-剪辑字幕：向上James 
-编辑：文泓
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-187.jpg)
+[（图片源自](https://www.google.com/search?q=%E5%8C%97%E4%BA%AC%E5%A5%A5%E8%BF%90&amp;tbm=isch&amp;ved=2ahUKEwiGlfyin_z1AhUywosBHR5yCbcQ2-cCegQIABAA&amp;oq=%E5%8C%97%E4%BA%AC%E5%A5%A5%E8%BF%90&amp;gs_lcp=CgNpbWcQAzIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQ6BwgjEO8DECdQngZYlyNgyCZoAHAAeACAAeMBiAGTCZIBBTUuMy4xmAEAoAEBqgELZ3dzLXdpei1pbWfAAQE&amp;sclient=img&amp;ei=_74IYsaZArKEr7wPnuSluAs&amp;bih=648&amp;biw=1280&amp;rlz=1C1SQJL_jaJP828JP828#imgrc=e8MEBmDEbL1yvM）)）
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/811-2.png)图片来源：视频截屏
+今天是２０２２年２月１３日，我在日本。跟往日一样，今天也抽时间关注了冬奥相关信息。【从北京和东京奥运之差看选手网络发帖的价值！】这个题目，一下子抓住了我的眼球。查了下作者是德力基彦先生。联想到自２０２０年初中共病毒（新冠病毒Covid-19）爆发以来，特别是各国政府开始强推中共病毒疫苗以来不作为或反作为的媒体，炒了NNT鱿鱼的德力基彦先生的文章就更吸引我继续读下去，并想翻译给中文圈的人们共享了。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1273.png)
+(图片源自本文链接)
 
+以下是我的摘要翻译的连载（之五）
 
-首先，我们从中了解到的是，那些疫苗在预防方面比较出色，我想说的是预防严重的疾病，严重的病例方面非常好。但不幸的是，它们对（防止）传染的有效性有所降低。而这是一个教训。
+**更加感受到选手们“真实声音”的价值所在**
 
-这让你感到很惊讶吗？你是以色列疫苗领域的最高负责人，您是否期望（新冠）疫苗在预防传播方面比以前更好？
+以上连载四篇中所有这些因素都导致了北京奥运会期间日本运动员在社交媒体上缺乏“真实的声音”。
 
-是的，我告诉你为什么，在以色列，我是少数几个真正关注此事的人之一。
+北京奥运会和东京奥运会同样采用了泡沫管理措施，这意味着媒体在运动员村几乎无法报道运动员的情况。
 
-你知道，特别是我们在3月、4月所看到的。我的意思是，你知道，去年春天我们在以色列所感受到的。
+这个原因，造成我的印象是，北京奥运会，甚至比东京奥运会更成为一个我们无法看到运动员村里发生的事情或比赛结束后运动员的状况之奥运会。
 
-在致命的（去年）1月份有超过4000人死亡，在此之后，经历了第三次封锁之后，突然间，又逐渐的解封、开放、解封，病例在逐渐减少，医院变得空荡荡。不是在开玩笑，我的同事们，医生们在走廊里跳舞，都是出于喜悦，（都认为）疫情结束了。
+所以, 从这个意义上讲，可以说在北京奥运会期间继续在社交网站上发帖的日本运动员是冒着各种风险来发布他们的照片和信息的。
 
-因此，我们当时确实相信，疫苗可以预防也防止传播（病毒），而且数据也证实了这一点。所以我们相信，你知道，疫苗可以预防传播，可能在接种后不久，但不会持续很长时间。
+全文终。感谢您的阅读！
 
-因此，是的，最后我们惊讶地发现，不！**疫苗并没有保护我们，也没有产生我们（期待）所谓的消除性免疫力。**
+信息来源：[北京五輪と東京五輪の違いから考える、日本代表選手のSNS投稿の価値（徳力基彦） – 個人 – Yahoo!ニュース](https://news.yahoo.co.jp/byline/tokurikimotohiko/20220213-00281847)
 
-视频链接：[Israeli vaccine advisor: “We have made mistakes” – The Post (unherd.com)](https://unherd.com/thepost/israeli-vaccine-chief-we-have-made-mistakes/)
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
-发布：文泓
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

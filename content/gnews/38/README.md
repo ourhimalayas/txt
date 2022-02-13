@@ -2,28 +2,39 @@
 ---
 
 
-## 民众觉醒：真科学迎来春天？
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1998444/)
+## 从北京和东京奥运之差看选手网络发帖的价值！（之四）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1998675/)
 
-编译：致敬香港！
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-56.jpg)
-图片来源：The Japan Times
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-186.jpg)
+[（图片源自](https://www.google.com/search?q=%E5%8C%97%E4%BA%AC%E5%A5%A5%E8%BF%90&amp;tbm=isch&amp;ved=2ahUKEwiGlfyin_z1AhUywosBHR5yCbcQ2-cCegQIABAA&amp;oq=%E5%8C%97%E4%BA%AC%E5%A5%A5%E8%BF%90&amp;gs_lcp=CgNpbWcQAzIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQ6BwgjEO8DECdQngZYlyNgyCZoAHAAeACAAeMBiAGTCZIBBTUuMy4xmAEAoAEBqgELZ3dzLXdpei1pbWfAAQE&amp;sclient=img&amp;ei=_74IYsaZArKEr7wPnuSluAs&amp;bih=648&amp;biw=1280&amp;rlz=1C1SQJL_jaJP828JP828#imgrc=e8MEBmDEbL1yvM）)）
 
-“零对冲”网2月13日转载文章揭露美国新冠疫情2年跌宕起伏，“科学”一方面被扭曲利用，而一方面却被全力封杀。随着更多民众觉醒，科学真相能否最终浮出水面？
+今天是２０２２年２月１３日，我在日本。跟往日一样，今天也抽时间关注了冬奥相关信息。【从北京和东京奥运之差看选手网络发帖的价值！】这个题目，一下子抓住了我的眼球。查了下作者是德力基彦先生。联想到自２０２０年初中共病毒（新冠病毒Covid-19）爆发以来，特别是各国政府开始强推中共病毒疫苗以来不作为或反作为的媒体，炒了NNT鱿鱼的德力基彦先生的文章就更吸引我继续读下去，并想翻译给中文圈的人们共享了。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1270.png)
+[(图片源自](https://cn.nikkei.com/politicsaeconomy/politicsasociety/47507-2022-01-30-13-20-04.html%29))：
 
-科学，是为理解真相而不断提问和探索的过程，它永远是一种方法而不是答案。而在这场新冠疫情中，号称民众必须遵从“科学”的政客们告诉我们：
+以下是我的摘要翻译的连载（之四）
 
-口罩：不需要戴、还是需要戴、需要戴2层、需要戴3层、布口罩无效、只有N95有效……
+**被诽谤中伤的风险**
 
-新冠疫苗：阻止疫情100%有效、96%有效、70%效、有效期6个月、加强针是唯一的出路、这是一场未接种者的疫情……
+上述两个风险因素是在中共国举行的北京奥运会所特有的，当然还有一直都存在的，对运动员的诽谤问题，这在东京奥运会上也成为了一个问题。以至于在北京奥运会之前，日本体育局局长室伏希先生呼吁人们不要在社交媒体上诽谤运动员。
 
-睿智民众给政客们口中的“科学”加了个商标符号，一针见血地揭露出他们的“科学TM ”是由他们独家拥有的、并根据他们的需要而可以随时被篡改的一套“答案”，跟真实的科学根本毫不相关。众多科研人员遵循着科学原则持续观察和研究，提出病康复者会获得比疫苗更强大的自然免疫力，他们却被 “事实核查”大军以迅雷不及掩耳之势从网上抹杀。
+在北京奥运期间，有一个诽谤中伤的例子，是针对高梨沙罗等女运动员的，已过时的批评，如 ：”如果你有时间化妆，倒是应该去练习”。
 
-但历史的车轮滚滚向前，如今无可避免地、越来越多的民众看清了各种管制政策的无效和危害，大规模抗议和抵制活动开始在各地涌现，政客们不得不开始转向灭火。对于新冠阳性的入院患者，拜登政府终于开始组织“卫生与公众服务部”和“疾控与预防中心”的专家组与各地医院合作，把因新冠病情入院的、和因其它原因入院的分开来进行统计；之前各政府部门一直拒绝透露相关的具体数据，导致新冠重症和死亡率呈现虚高，其中一个匪夷所思的案例是，一个因吸毒过量而死亡的人因3个月前曾呈新冠阳性、而被记录为新冠死亡……
+参考：对高梨沙罗的化妆的批评有道理吗？ 相反，大错特错的应该是那句”如果你有时间化妆，倒是应该去练习”。
 
-但提高数据准确率和透明度仅仅是一小步，言论审查和网络封杀等仍然是众多勇敢传播真相的科学家无法挣脱的枷锁。近日，收听率爆棚的乔·罗根播客节目先后邀请多名顶级科学家讨论新冠疫情、疫苗和早期治疗话题；同期的另一个新闻热点事件是亿万富豪爱泼斯坦性侵和性交易未成年少女案，客户涉及全球上千名流，爱泼斯坦本人在最严密看守级别的联邦监狱中离奇“自杀”后，其重要同犯女友案件开审。两者之间，主流媒体似乎更关注怎样让乔·罗根闭嘴，而不是去深挖魔爪伸向未成年少女的、国际政商名流的犯罪集团。
+当然，即使球员不使用社交网站，这种对球员的诽谤也可能发生在匿名论坛和新闻网站的评论区。然而，球员自己的社交媒体帖子可能会激发这种评论，或者招致直接的诽谤中伤。
 
-**新闻来源：** [‘Team Doom’ Suddenly Reversing COVID Restrictions Shows It Was Never About Science, Only Your Compliance](https://www.zerohedge.com/political/team-doom-suddenly-reversing-covid-restrictions-shows-it-was-never-about-science-only)
+自然，在北京奥运会期间，选手们会接受东京奥运会期间的诽谤中伤的教训，避免在社交网站上发帖招致诽谤中伤的选手肯定不止一两个人。
+
+未完待续
+
+信息来源：[北京五輪と東京五輪の違いから考える、日本代表選手のSNS投稿の価値（徳力基彦） – 個人 – Yahoo!ニュース](https://news.yahoo.co.jp/byline/tokurikimotohiko/20220213-00281847)
+
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
 
  
 

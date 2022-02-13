@@ -2,24 +2,26 @@
 ---
 
 
-## 加拿大和美国边境抗议者继续堵住大使桥通道
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1998430/)
+## 莫德纳CEO在抛售了数千万美元的股票后删除其推特帐户
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1998614/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-184.jpg)
-图片来源： www.sohu.com
+#### 翻译/撰稿：zzballack
 
-美联社2月12日报道， 抗议新冠疫苗强制措施和其他限制措施的抗议者们周六在美加边境大使桥的主干道放弃用卡车堵路，但仍然通过其他抗议方式继续在加拿大各城市，包括首都渥太华进行，警方说在终止所谓的非法占道之前他们还在等待更多的警力。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-2-1.jpg)图片来源：福布斯
+据《The Covid World》2月13日报道，莫德纳（Moderna）公司的首席执行官（CEO）斯特凡·班塞尔（Stéphane Bancel）本周在卖出数千万美元的莫德纳股票后删除了其推特帐户。据Gurufocus网站显示，班塞尔在2月10日出售了19000股莫德纳股票，获利2000多万美元。目前仍不清楚班塞尔为何删除其推特账户，莫德纳CEO的这项奇怪举动让投资者感到担心和困惑，该公司也尚未发表官方声明对此做出解释。
 
-在连接美国底特律和加拿大温莎的大使桥两边发生的对歭紧张势态在加拿大警察说服抗议者移除卡车后稍微改善，但抗议者们在附近重新聚集，再次加强，周六仍然堵住了加拿大一边的通道，第六天继续堵住交通和商业。
+此事发生后不久，前贝莱德 (BlackRock)对冲基金经理爱德华·唐德（Edward Dowd）2月10日在推特上回复莫德纳的官方账户说：“你们的CEO昨天关闭了他的推特账户，我猜是在内部律师的建议下完成的。毫无疑问！”
 
-在渥太华，抗议者人群继续在壮大，警察说大约有4000名抗议者，上两个周末，抗议者们在市中心扎营并放着响亮的音乐。
+唐德上个月在接受《班农战斗室》采访时指控辉瑞和莫德纳在其新冠疫苗的临床试验中存在欺诈行为。如果这些指控被证明属实，这将意味着辉瑞和莫德纳都要对其疫苗造成的所有伤害和死亡负责。唐德说：“我相信，由于当时的制度性要求，以及他们试图批准这些使用未经验证技术的产品的速度，辉瑞和莫德纳疫苗的临床试验数据存在欺诈，以便强行通过审批。”
 
-来自美加边境桥，渥太华和其他地方的抗议者们与加拿大以外的抗议者们遥相呼应，与在法国，新西兰，挪威的抗议相类似，美国国土安全部警告说卡车护航抗议活动很可能在美国发生。
+辉瑞、莫德纳等大药厂在这次新冠疫情中仓促推出其不成熟的疫苗产品，在大发横财的同时对世界造成了深重灾难。做贼心虚的他们知道，已看清其真实面目的全球民众不会放过对他们的追责，等待他们的将是纽伦堡2.0大审判。
 
-特鲁多称抗议者只是极少数，联邦和省领导人说他们不能命令警察做什么。疫情下加拿大的限制措施比美国更严格，如口罩令，去餐厅和剧院的疫苗护照，以至强制疫苗措施让加拿大卡车司机们忍无可忍站了出来。
+新闻来源：
 
-##### 新闻来源： [Blockades on Canada-US border continue, protests swell](https://apnews.com/article/coronavirus-pandemic-health-united-states-justin-trudeau-blockades-f3368c041216343175d255a2ce23eb84)
+[Moderna CEO Stéphane Bancel Deletes Twitter Account, Sells Tens Of Millions Of Dollars In Stock](https://thecovidworld.com/moderna-ceo-stephane-bancel-deletes-twitter-account-sells-tens-of-millions-of-dollars-in-stock/)
+
+[Bancel Stephane](https://www.gurufocus.com/insider/Bancel+Stephane/name)
 
  
 

@@ -2,13 +2,16 @@
 ---
 
 
-## 日本东京樱花团 中文新闻播报第七期
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/1999313/)
+## 爆料革命会让世界看到共产党冬奥会的假疫苗灾难的严重后果
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/1999537/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/BAO2.jpg)
-**播报：东京樱花团-和光同尘/爆米花/NAN的曙光**
+作者：东京樱花团小视频组
 
-**发布： 东京樱花团-eiei**
+校对：东京樱花团小视频组
+
+编辑发布：东京樱花团小视频组
+
+* * *
 ![喜马拉雅东京樱花团](https://assets.gnews.org/wp-content/uploads/2022/02/樱花-3-2-1.jpg)喜马拉雅东京樱花团
  
 

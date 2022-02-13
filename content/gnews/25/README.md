@@ -2,49 +2,28 @@
 ---
 
 
-## 灭共的雪用无暇身躯净化被谎言笼罩的世界唤醒无尽黑夜
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1998944/)
+## 华盛顿称俄罗斯随时可能入侵乌克兰 呼吁美国公民离境
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1999079/)
 
-G-TV视频链接：[https://gtv.org/video/id=6208a0c5b0af02660af30f77](https://gtv.org/video/id=6208a0c5b0af02660af30f77)
+整理编辑：东京樱花团｜上善若水
+![](https://lh3.googleusercontent.com/VEcogKExvH13zGI2TUvv_QoJRAeo04D0_smSAeNDMgEHLtg16ISV3AA41o0u2dj9mGXIy3_bRBKoTR8C-RCgczerSxtx7QGX9EY0S4gISVPv22J59R2C43Wtuc-G4L6PhcIg8BMF)[*图片来源*](https://static.dw.com/image/60719694_403.jpg)
+美国方面的情报显示，俄罗斯可能打算在北京冬奥会结束前攻击乌克兰。此前，美国总统拜登已经敦促乌克兰境内的美国公民“立即离境”，警告当地情势可能很快遽变。德国等国也呼吁国民离开乌克兰。鉴于紧张局势飙升，拜登将在周六与普京通电话。美国官员表示，情报显示俄罗斯可能计划在北京冬奥会结束前袭击乌克兰。冬奥会目前正在进行中，将于2月20日闭幕。
 
-**郭文贵先生：**我爱你 塞北的雪  飘飘洒洒漫天遍野  你的舞姿是那样的轻盈  你的心地是那样的纯洁  你是消灭那共匪的战友  你是上天派出的使节   灭共的使节  我爱你 灭共的雪  轰轰烈烈漫山遍野  你用自己无暇的身躯  净化被谎言笼罩的世界  你把真相传递给了人间  唤醒那无尽的黑夜
+美国总统拜登周四在接受美国国家广播公司新闻（NBC News）专访时说，“美国公民现在就该离开”。不过，拜登说：“这不像我们在与恐怖组织打交道。我们正在与世界上最大的军队之一打交道。这是一个非常不同的情况，事情可能会很快变得疯狂，”他说。NBC问拜登，什么情况会促使他派兵营救想要离境的美国人。拜登回答说：“没有。当美国和俄罗斯开始对战时，那是一场世界大战。”
 
-我唱这首歌，刚才这个是我们改版的，（现在）我唱一段原版的，Q May。（注：开始唱）我爱你～
+美国国务院周四（10日）另外发布警告称，“若俄罗斯在乌克兰任何地方采取军事行动，美国将无法撤离美国公民”。并称，一般的领事服务，包括协助公民离境等，将受到“严重影响”。布林肯周五在墨尔本再次重申“俄罗斯入侵乌克兰可能随时发生”，即便在北京冬奥会期间也不例外。周五（2月11日），日本外交部也向在乌克兰的本国公民发出“立即离开”的紧急建议。目前大约有150名日本公民生活在乌克兰。荷兰政府也呼吁本国公民离开乌克兰。而同一天，韩国政府则下令暂时禁止国民前往乌克兰的任何地区。德国外交部也在周六表示，德国人应尽可能撤离乌克兰，并针对该国发出旅行警告。
 
-没有原版的，我唱的不是原版的这个，没打出来原版的。
+随着紧张局势飙升，华盛顿宣布美国总统拜登和俄罗斯总统普京将于本周六（2月12日）通电话。此外，德国总理肖尔茨也与拜登、法国总统马克龙和加拿大总理特鲁多进行了会谈，这些领导人重申了如果乌克兰遭到入侵进行强有力的快速制裁的必要性。法国总统府在一份声明中说，马克龙等西方领导人赞同将“外交、对话和威慑作为优先事项，以实现危机降级”。俄乌法德官员周四（10日）在柏林进行了一整天的会谈，但未能取得任何突破性进展。
 
-歌词：我爱你 塞北的雪  飘飘洒洒漫天遍野  你的舞姿是那样的轻盈  你的心地是那样的纯洁  你是消灭那共匪的战友  你是上天派出的使节 灭共的使节
+俄罗斯特使科扎克（Dmitry Kozak）表示，俄罗斯和乌克兰未能通过本次会谈解决彼此之前的分歧。双方对2015年的《明斯克协议》有不同的解释，外界普遍认为该协议是和平消弭俄乌危机的的最可能途径。乌克兰特使叶尔马克（Andriy Yermak）说，双方没有取得突破性进展，但都同意继续对话。乌克兰表示，自2014年以来，约有15,000人被杀害。
 
-太棒了！我们这首歌是由唐平老师、威廉王老师、Q May、Ryan一起改编谱的曲，今天由Q May一琴打天下，我们要唱这《塞北的雪》。
+《明斯克协议》是俄罗斯吞并克里米亚并继续支持乌东地区分离势力的情况下，为解决危机，通过“诺曼底模式”下所签署。多年来，俄罗斯和乌克兰都曾多次指责对方违反停火协议，该协议旨在化解乌克兰军队和亲俄分裂分子之间的冲突。目前，俄罗斯已经在乌克兰东部附近部署了超过10万名士兵，这也代表俄乌紧张情势可能持续。
 
-字幕来源：[2022年1月31日 《春节大直播》 全文字版（一）](https://gnews.org/zh-hans/1943980/)
+信息来源：[**华盛顿称俄罗斯随时可能入侵乌克兰 呼吁美国公民离境**](https://www.dw.com/zh/%E5%8D%8E%E7%9B%9B%E9%A1%BF%E7%A7%B0%E4%BF%84%E7%BD%97%E6%96%AF%E9%9A%8F%E6%97%B6%E5%8F%AF%E8%83%BD%E5%85%A5%E4%BE%B5%E4%B9%8C%E5%85%8B%E5%85%B0-%E5%91%BC%E5%90%81%E7%BE%8E%E5%9B%BD%E5%85%AC%E6%B0%91%E7%A6%BB%E5%A2%83/a-60738941)
 
-编辑整理：Jacques；
-
-字幕文件制作：知津；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,26 +2,39 @@
 ---
 
 
-## 莫德纳CEO在抛售了数千万美元的股票后删除其推特帐户
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1998614/)
+## 徐州铁链女事件在共产党内部造成了人心瓦解
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1998986/)
 
-#### 翻译/撰稿：zzballack
+作者：银河系农场 骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-2-1.jpg)图片来源：福布斯
-据《The Covid World》2月13日报道，莫德纳（Moderna）公司的首席执行官（CEO）斯特凡·班塞尔（Stéphane Bancel）本周在卖出数千万美元的莫德纳股票后删除了其推特帐户。据Gurufocus网站显示，班塞尔在2月10日出售了19000股莫德纳股票，获利2000多万美元。目前仍不清楚班塞尔为何删除其推特账户，莫德纳CEO的这项奇怪举动让投资者感到担心和困惑，该公司也尚未发表官方声明对此做出解释。
 
-此事发生后不久，前贝莱德 (BlackRock)对冲基金经理爱德华·唐德（Edward Dowd）2月10日在推特上回复莫德纳的官方账户说：“你们的CEO昨天关闭了他的推特账户，我猜是在内部律师的建议下完成的。毫无疑问！”
+2月11日郭先生大直播中爆料，徐州铁链女事件在共产党内部引起震动。共产党企图利用包装冬奥会谷爱凌事件，来掩盖徐州锁链女的悲惨现状。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-13-at-9.11.34-PM.png)
+铁链女被拐的当年就有相关报道，她的家人几乎都要把她找到了。但在共产党的集体掩盖之下，报道被压下，信件被拿走，锁链女24年过着猪狗不如的生活。此事历经了共产党的江泽民、胡锦涛、习近平三代领导班子。近日共产党对此事的处理多次改换口风，在社交媒体发达的今日，如此明目张胆地欺骗，引发了网络舆论风暴。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-13-at-9.12.53-PM.png)
+郭先生说徐州此地有神论祭祀盛行，且还与某中央首长具有深厚关系，共产党官员上下级互相掩盖和欺骗，一切为了维护共产党中央的虚假统治。徐州锁链女事件每次被爆出都被掩盖，此事若往深究，就是大政治。
 
-唐德上个月在接受《班农战斗室》采访时指控辉瑞和莫德纳在其新冠疫苗的临床试验中存在欺诈行为。如果这些指控被证明属实，这将意味着辉瑞和莫德纳都要对其疫苗造成的所有伤害和死亡负责。唐德说：“我相信，由于当时的制度性要求，以及他们试图批准这些使用未经验证技术的产品的速度，辉瑞和莫德纳疫苗的临床试验数据存在欺诈，以便强行通过审批。”
+铁链女的叔叔是中共党员，他书写的要求中央彻查此事的信件在共产党内部造成了恐慌。共产党独裁的特点之一就是阶级化，老百姓的孩子被拐卖那是活该，但是就连共产党员的孩子都被拐卖，且过了24年铁链生活，这让党内所有人的内心都开始分崩离析和瓦解。
 
-辉瑞、莫德纳等大药厂在这次新冠疫情中仓促推出其不成熟的疫苗产品，在大发横财的同时对世界造成了深重灾难。做贼心虚的他们知道，已看清其真实面目的全球民众不会放过对他们的追责，等待他们的将是纽伦堡2.0大审判。
+参考链接：[2022年2月11日 文贵大直播（09:12开始）](https://gtv.org/video/id=62065c00a1fe5e57a426b9e1)
 
-新闻来源：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-3.png)
 
-[Moderna CEO Stéphane Bancel Deletes Twitter Account, Sells Tens Of Millions Of Dollars In Stock](https://thecovidworld.com/moderna-ceo-stephane-bancel-deletes-twitter-account-sells-tens-of-millions-of-dollars-in-stock/)
+编辑：谐趣园
+总编：Zion文恩
+校正/发稿：我不在这里
 
-[Bancel Stephane](https://www.gurufocus.com/insider/Bancel+Stephane/name)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
 
  
 

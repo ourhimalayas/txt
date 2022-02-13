@@ -2,38 +2,49 @@
 ---
 
 
-## 从北京和东京奥运之差看选手网络发帖的价值！（之四）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1998675/)
+## 采访中国网球运动员彭帅的法国记者怀疑她是否自由
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1999009/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-186.jpg)
-[（图片源自](https://www.google.com/search?q=%E5%8C%97%E4%BA%AC%E5%A5%A5%E8%BF%90&amp;tbm=isch&amp;ved=2ahUKEwiGlfyin_z1AhUywosBHR5yCbcQ2-cCegQIABAA&amp;oq=%E5%8C%97%E4%BA%AC%E5%A5%A5%E8%BF%90&amp;gs_lcp=CgNpbWcQAzIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQ6BwgjEO8DECdQngZYlyNgyCZoAHAAeACAAeMBiAGTCZIBBTUuMy4xmAEAoAEBqgELZ3dzLXdpei1pbWfAAQE&amp;sclient=img&amp;ei=_74IYsaZArKEr7wPnuSluAs&amp;bih=648&amp;biw=1280&amp;rlz=1C1SQJL_jaJP828JP828#imgrc=e8MEBmDEbL1yvM）)）
+**编译：七龙珠**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip采访中国网球运动员彭帅的法国记者怀疑她是否自由.png)中国网球运动员彭帅。 盖蒂
+\* 彭帅接受了L’Equipe的独家采访，这是她在争议发生后首次接受西方媒体的采访。
 
-今天是２０２２年２月１３日，我在日本。跟往日一样，今天也抽时间关注了冬奥相关信息。【从北京和东京奥运之差看选手网络发帖的价值！】这个题目，一下子抓住了我的眼球。查了下作者是德力基彦先生。联想到自２０２０年初中共病毒（新冠病毒Covid-19）爆发以来，特别是各国政府开始强推中共病毒疫苗以来不作为或反作为的媒体，炒了NNT鱿鱼的德力基彦先生的文章就更吸引我继续读下去，并想翻译给中文圈的人们共享了。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1270.png)
-[(图片源自](https://cn.nikkei.com/politicsaeconomy/politicsasociety/47507-2022-01-30-13-20-04.html%29))：
+\* 在一位中国奥运官员在房间里陪同下，并翻译了与这位网球运动员的对话。
 
-以下是我的摘要翻译的连载（之四）
+\* 这位中共国网球运动员坚称她“从未”说过她被一名前中共国高级官员性侵犯。
 
-**被诽谤中伤的风险**
+法国日报《L’Equipe》的两名记者之一文图亚克（Marc Ventouillac）首次作为西方媒体采访了中共国网球运动员彭帅，采访后他仍然不确定这位年轻女子是否有人身自由。“这是不可能的”他告诉美联社。据《卫报》报道，一名中共国奥运官员长期在她房间里，并翻译了文图亚克与这位网球运动员的对话。
 
-上述两个风险因素是在中共国举行的北京奥运会所特有的，当然还有一直都存在的，对运动员的诽谤问题，这在东京奥运会上也成为了一个问题。以至于在北京奥运会之前，日本体育局局长室伏希先生呼吁人们不要在社交媒体上诽谤运动员。
+在本周接受《L’Equipe》的采访时，彭帅否认曾被中共前副总理张高丽性侵，并表示11月引发争议的社交媒体帖子是一个“巨大的误解”，她“从未”消失。“每个人都能看到我”。她补充说：“只是很多人，比如我的朋友或国际奥委会的人，给我发了信息，不可能回复这么多。”
 
-在北京奥运期间，有一个诽谤中伤的例子，是针对高梨沙罗等女运动员的，已过时的批评，如 ：”如果你有时间化妆，倒是应该去练习”。
+彭帅的报告被从中共国社交网络微博上删除，这位网球运动员从公共生活中消失了数周，引发了外界对她处境的担忧，这在网络上引发了一场以“彭帅在哪里”为主题的运动。
 
-参考：对高梨沙罗的化妆的批评有道理吗？ 相反，大错特错的应该是那句”如果你有时间化妆，倒是应该去练习”。
+中共国奥委会的“宣传”
 
-当然，即使球员不使用社交网站，这种对球员的诽谤也可能发生在匿名论坛和新闻网站的评论区。然而，球员自己的社交媒体帖子可能会激发这种评论，或者招致直接的诽谤中伤。
+在国际奥委会的帮助下，通过中共国奥委会安排了这家法国体育报纸对彭帅的采访，《L’Equipe》同意提前发送问题，并逐字逐句公布他的答案。
 
-自然，在北京奥运会期间，选手们会接受东京奥运会期间的诽谤中伤的教训，避免在社交网站上发帖招致诽谤中伤的选手肯定不止一两个人。
+文图亚克表示：“中共国的意图很明确，在北京举办冬奥会期间接受采访，中共官员希望结束这场争论，以免给冬奥会蒙上阴影，这是中共国奥委会宣传的一部分”，文图亚克在《L’Equipe》发表他的独家报道一天后，于周二告诉美联社。
 
-未完待续
+自从彭帅重新露面后，人们多次看到她，包括她接受电视采访，但对她发生的事情和她的情况仍然不确定，尽管她自己澄清说她的发表是一个误解，她仍然在北京，没有任何问题或压力。
 
-信息来源：[北京五輪と東京五輪の違いから考える、日本代表選手のSNS投稿の価値（徳力基彦） – 個人 – Yahoo!ニュース](https://news.yahoo.co.jp/byline/tokurikimotohiko/20220213-00281847)
+对那些“关心”她的人表示感激
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+“我已经在上海的一次采访中回答了这个问题，也在给WTA的邮件和其他许多邮件中回答了这个问题”。彭帅在周一发表的采访中回答说：“这份出版物在外界引起了很大的误解，我希望它的意义不再被歪曲……”。
+
+彭帅感谢所有“关心”她的人。“但我没想到会有这么多关注，我想知道：为什么有这么多关注？”她强调说，她是“一个完全正常的女孩和一个完全正常的网球运动员，也没有离开中共国的障碍。”她解释说：“以前，如果我出国旅行，那是为了参加比赛或治疗我的膝盖。”
+
+上周六，利用北京冬奥会的庆祝活动，她得以与国际奥委会主席托马斯-巴赫共进晚餐，据说他们“谈了很多，愉快地交换了意见”，尽管一切都转向了她在体育层面的未来计划。
+
+**新闻来源**：[niusdiario.es][El periodista francés que entrevistó a la tenista china Peng Shuai duda que sea libre](https://www.niusdiario.es/deportes/periodista-frances-lequipe-entrevisto-tenista-china-peng-shuai-duda-sea-libre_18_3280470142.html)
+
+* * *
+
+***审核：Aries的星
+校对：阿伯塔
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1.jpeg)
+
 
 
  
