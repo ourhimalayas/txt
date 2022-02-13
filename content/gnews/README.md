@@ -15,83 +15,83 @@
 
 ---
 
-### [音乐不是创造密码就拥有藏宝地,找到密码者才得到藏宝](/content/gnews/1/README.md)
+### [新中国联邦人必须要让中国人找回浪漫尊严善良和平友好](/content/gnews/1/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [官方数据显示：完全接种者可能已患上疫苗引起的艾滋病](/content/gnews/2/README.md)
+### [灭共版一帘幽梦要一改娘了吧唧唱邓丽君的中国男人风](/content/gnews/2/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [北京冬奥：习的造神运动无与伦比](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [音乐的魅力在于万里之外感觉精神上有一只手抚摸你的心](/content/gnews/4/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [音乐不是创造密码就拥有藏宝地,找到密码者才得到藏宝](/content/gnews/5/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [官方数据显示：完全接种者可能已患上疫苗引起的艾滋病](/content/gnews/6/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [邓丽君的歌曲让当年听她歌儿的一代人一下回到那个过去](/content/gnews/3/README.md)
+### [邓丽君的歌曲让当年听她歌儿的一代人一下回到那个过去](/content/gnews/7/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [5 岁以下儿童的 CCP病毒疫苗接种计划在美受到推迟](/content/gnews/4/README.md)
+### [5 岁以下儿童的 CCP病毒疫苗接种计划在美受到推迟](/content/gnews/8/README.md)
  ` 澳喜特战旅Gnews`
 
-### [壬寅年的“雪”](/content/gnews/5/README.md)
+### [壬寅年的“雪”](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [完全接种疫苗的足球运动员基努·斯塔德（Keanu Staude）患上心肌炎](/content/gnews/6/README.md)
+### [完全接种疫苗的足球运动员基努·斯塔德（Keanu Staude）患上心肌炎](/content/gnews/10/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [音乐最重要的是唱出自己唱出心声和真实更重要的是利他](/content/gnews/7/README.md)
+### [音乐最重要的是唱出自己唱出心声和真实更重要的是利他](/content/gnews/11/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [从北京和东京奥运之差看选手网络发帖的价值！（之五）](/content/gnews/8/README.md)
+### [从北京和东京奥运之差看选手网络发帖的价值！（之五）](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [从北京和东京奥运之差看选手网络发帖的价值！（之二）](/content/gnews/9/README.md)
+### [从北京和东京奥运之差看选手网络发帖的价值！（之二）](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [从北京和东京奥运之差看选手网络发帖的价值！（之一）](/content/gnews/10/README.md)
+### [从北京和东京奥运之差看选手网络发帖的价值！（之一）](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [没有共产党的控制,音乐就会戳穿它的虚伪、官僚和欺骗](/content/gnews/11/README.md)
+### [没有共产党的控制,音乐就会戳穿它的虚伪、官僚和欺骗](/content/gnews/15/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [从北京和东京奥运之差看选手网络发帖的价值！（之四）](/content/gnews/12/README.md)
+### [从北京和东京奥运之差看选手网络发帖的价值！（之四）](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中央电视台春晚表面辉煌背后是老百姓被洗脑的凄惨生活](/content/gnews/13/README.md)
+### [中央电视台春晚表面辉煌背后是老百姓被洗脑的凄惨生活](/content/gnews/17/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [以色列顾问：疫苗护照不为阻止传播，而为扩大接种](/content/gnews/14/README.md)
+### [以色列顾问：疫苗护照不为阻止传播，而为扩大接种](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [瑞银企图躲避中国亿万富翁5亿美元诉讼的尝试落败](/content/gnews/15/README.md)
+### [瑞银企图躲避中国亿万富翁5亿美元诉讼的尝试落败](/content/gnews/19/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [瓦格纳以音乐杀掉几百万犹太人苏联以音乐开启杀地主](/content/gnews/16/README.md)
+### [瓦格纳以音乐杀掉几百万犹太人苏联以音乐开启杀地主](/content/gnews/20/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [从江苏泗阳姜集村贩卖人口大案再谈丰县锁链女](/content/gnews/17/README.md)
+### [从江苏泗阳姜集村贩卖人口大案再谈丰县锁链女](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [除了你自己没有任何人能帮你成为最后留下来的5%成员](/content/gnews/18/README.md)
+### [除了你自己没有任何人能帮你成为最后留下来的5%成员](/content/gnews/22/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [莫德纳CEO在抛售了数千万美元的股票后删除其推特帐户](/content/gnews/19/README.md)
+### [莫德纳CEO在抛售了数千万美元的股票后删除其推特帐户](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [从北京和东京奥运之差看选手网络发帖的价值！（之三）](/content/gnews/20/README.md)
+### [从北京和东京奥运之差看选手网络发帖的价值！（之三）](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国通胀率创40年新高，物价自2021年起上涨7.5%](/content/gnews/21/README.md)
+### [美国通胀率创40年新高，物价自2021年起上涨7.5%](/content/gnews/25/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [为何我要灭共,是谁带来苦痛,多少愤恨在心中,唯有战友能懂](/content/gnews/22/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [艾森豪威尔对福奇的预言](/content/gnews/23/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [美议员谈《制止中共法案》：我们触动了某些人的神经](/content/gnews/24/README.md)
+### [美议员谈《制止中共法案》：我们触动了某些人的神经](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [24小时48小时后会看到新中国联邦春晚会给你带来什么](/content/gnews/25/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [一人一票几多艰难](/content/gnews/26/README.md)
- ` 骄子`
 
 ### [【影片】单伟建支持中共“香港国安法”暴露其是中共间谍的真面目](/content/gnews/27/README.md)
  ` G-NEWS TAIWAN`

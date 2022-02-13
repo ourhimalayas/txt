@@ -2,26 +2,34 @@
 ---
 
 
-## 莫德纳CEO在抛售了数千万美元的股票后删除其推特帐户
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1998614/)
+## 瑞银企图躲避中国亿万富翁5亿美元诉讼的尝试落败
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1998649/)
 
-#### 翻译/撰稿：zzballack
+评论：***郭文贵先生与瑞银的诉讼是一个历史性事件，把与中共的战斗推到了新的高度。***
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-2-1.jpg)图片来源：福布斯
-据《The Covid World》2月13日报道，莫德纳（Moderna）公司的首席执行官（CEO）斯特凡·班塞尔（Stéphane Bancel）本周在卖出数千万美元的莫德纳股票后删除了其推特帐户。据Gurufocus网站显示，班塞尔在2月10日出售了19000股莫德纳股票，获利2000多万美元。目前仍不清楚班塞尔为何删除其推特账户，莫德纳CEO的这项奇怪举动让投资者感到担心和困惑，该公司也尚未发表官方声明对此做出解释。
+据《彭博社》 2022年2月9日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3709.png)图片来源：彭博社
+瑞银集团因2015年巨额保证金追加清仓疏忽而被中国民主斗士郭文贵先生提起5亿美元诉讼。瑞银躲避失据。
 
-此事发生后不久，前贝莱德 (BlackRock)对冲基金经理爱德华·唐德（Edward Dowd）2月10日在推特上回复莫德纳的官方账户说：“你们的CEO昨天关闭了他的推特账户，我猜是在内部律师的建议下完成的。毫无疑问！”
+一名伦敦法官裁定，英国确实有权审理与前美国总统唐纳德-川普顾问史蒂夫-班农关系密切的富商郭文贵先生提起的诉讼。这意味着该诉讼可以继续审理。 对于试图以管辖权理由驳回部分案件的瑞银来说，这是一个沉重打击。
 
-唐德上个月在接受《班农战斗室》采访时指控辉瑞和莫德纳在其新冠疫苗的临床试验中存在欺诈行为。如果这些指控被证明属实，这将意味着辉瑞和莫德纳都要对其疫苗造成的所有伤害和死亡负责。唐德说：“我相信，由于当时的制度性要求，以及他们试图批准这些使用未经验证技术的产品的速度，辉瑞和莫德纳疫苗的临床试验数据存在欺诈，以便强行通过审批。”
+瑞银和郭文贵先生的律师没有立即回应置评。
 
-辉瑞、莫德纳等大药厂在这次新冠疫情中仓促推出其不成熟的疫苗产品，在大发横财的同时对世界造成了深重灾难。做贼心虚的他们知道，已看清其真实面目的全球民众不会放过对他们的追责，等待他们的将是纽伦堡2.0大审判。
+郭文贵先生称，因瑞银疏忽，导致他需要举债维持持有的海通证券公司股票的交易。在香港挂牌市场海通股票价格攀升之际，因瑞银的强制清仓行为，该交易几乎全部损失。
 
-新闻来源：
+一名伦敦法官周三表示，她可以监督此案，因为伦敦是“伤害事件”的发生地，而瑞银的伦敦部门是“充分且显着地参与了构成索赔行动的几个要素”。
 
-[Moderna CEO Stéphane Bancel Deletes Twitter Account, Sells Tens Of Millions Of Dollars In Stock](https://thecovidworld.com/moderna-ceo-stephane-bancel-deletes-twitter-account-sells-tens-of-millions-of-dollars-in-stock/)
+文章来源:[**https://www.bloomberg.com/news/articles/2022-02-11/china-s-edutech-crackdown-expands-to-high-school-tutoring**](https://www.bloomberg.com/news/articles/2022-02-11/china-s-edutech-crackdown-expands-to-high-school-tutoring)
 
-[Bancel Stephane](https://www.gurufocus.com/insider/Bancel+Stephane/name)
+翻译：洛杉矶盘古农场 – Mike Li
+校对：洛杉矶盘古农场 – 轰炸机
+评论：洛杉矶盘古农场 – 轰炸机
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

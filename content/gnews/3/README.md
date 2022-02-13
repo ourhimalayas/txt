@@ -2,46 +2,33 @@
 ---
 
 
-## 邓丽君的歌曲让当年听她歌儿的一代人一下回到那个过去
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1998801/)
+## 北京冬奥：习的造神运动无与伦比
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1998921/)
 
-G-TV视频链接：[https://gtv.org/video/id=62089f96b0af02660af30f36](https://gtv.org/video/id=62089f96b0af02660af30f36)
+作者：东京樱花团｜捆绑CCP一千年
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-7.png)
+**北京冬奥会官宣的调门将人性的丑陋演绎到了极致，1936年德国纳粹运动会也不能与之相比，因为中共笃定主意认为，只要世界敢来参加我的冬奥会，就是在默许和赞赏中共在全球杀戮几百万人的合法性。世界因此应该记住，第24届冬季奥林匹克运动会将永远载入人类史册，因为这个东道主的反人性超越了德国纳粹党。**
 
-**郭文贵先生：**我觉得首先邓丽君的歌永远不会过时，永远不会过时。邓丽君把中国人从一个最土的过去的那个民族带向了一个国际化，让那个时候黑暗的时代，最黑暗的时代，大家能哼着小曲，叫“靡靡之音”。
+据中共国新华每日电讯13日消息，北京冬奥官宣正在进一步神化、美化冬奥会。一篇题为《北京冬奥会大受美国民众欢迎凸显人心所向》一文最为骇人听闻的表述是，“北京冬奥会比以往任何时候都更受美国人欢迎。”他的理由是“冬奥会”在美国的高收视率。
 
-大家当然知道这是共产党的邪恶，让很多人还有的时候还能生孩子，还知道男女之间的欢愉、人的本性，带来多少快乐。我就给你们说，我那时候带着录音机在火车上餐厅，我往那一按，《甜蜜蜜》还有《在水一方》、《小城的故事》，所有的餐厅服务员那走道都不一样，端着盘子都不一样了，那是给领导专享的车，是吧？
+该消息反驳了“北京冬奥会在美国收视率下降”，称“奥林匹克转播服务公司（OBS）首席执行官埃克萨科斯表示，北京冬奥会在全球社交媒体上已吸引超20亿人次的关注。”中共国的逻辑是，只要收看点击率高就好，当然也包括国际社会关注如何批北京纳粹运动会点击率。
 
-然后我那时候穿的牛仔裤、大长发往那一坐，然后大人参烟，还有进口的万宝路，我拿出万宝路：大家抽烟。哇塞，男女全都在点着烟，就是抽着烟，然后给我来点儿锅包肉是吧？那种感觉、那个音乐一下就让人快乐起来了，这就是邓丽君当年最牛的，你们没有这个感受啊。
+- ***延展阅读：***[***为什么美国必须认真对待中共的虚假信息行动***](https://thediplomat.com/2022/01/why-the-us-must-take-chinas-disinformation-operations-seriously/)
 
-这就是这一代人谁在听邓丽君的歌的时候，就一下子就回到了那个过去。就这个音乐的魅力就在这里，这就是为什么他与神的沟通。那么这个歌儿，我接下来还要唱的一个歌啊，我真的沟通很多。
 
-字幕来源：[2022年1月31日 《春节大直播》 全文字版（一）](https://gnews.org/zh-hans/1943980/)
+- ***延展阅读：***[***军事压力下，台湾面对北京冬奥会的两难选择***](https://www.rfi.fr/cn/%E4%B8%93%E6%A0%8F%E6%A3%80%E7%B4%A2/%E5%85%AC%E6%B0%91%E8%AE%BA%E5%9D%9B/20220204-%E5%86%9B%E4%BA%8B%E5%8E%8B%E5%8A%9B%E4%B8%8B%EF%BC%8C%E5%8F%B0%E6%B9%BE%E9%9D%A2%E5%AF%B9%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E4%BC%9A%E7%9A%84%E4%B8%A4%E9%9A%BE%E9%80%89%E6%8B%A9)
 
-编辑整理：Jacques；
 
-字幕文件制作：大好河山；
+中共以为奥林匹克转播公司可以对北京表示沉默，但他们说出了愤怒。OBS首席内容官[Mark Wallace](https://twitter.com/wallaceme/status/1491097653496922115?s=20&amp;t=192ZF9oZuglAEnxjH0_d0g)看到北京冬奥会升起奥林匹克会旗的时候实在忍无可忍，在推特上质问：“奥运会是为猖獗的中国军国主义提供的脆弱掩护？是什么让你产生了这个想法？”
 
-视频制作及上传：Cindy；
+最后，中共新华社消息开始闭上眼睛自嗨地认为，“北京‘更团结’的冬奥会正是全人类共同期盼的图景，也是的现实写照。这样的冬奥会，谁能不爱呢！”更匪夷所思的是，中共对西方的仇恨超过中共历史上仇恨西方民主的程度，却仍在为自己失败的冬奥会不那么难看，便编一些谎言骗自己。这就是一个杀害全球几百万人的中共政权，好比一个杀人犯杀人无数，还自己在骗自己说，被害者说他杀人杀的好。世界上哪有这样的政权？！就算是希特勒统治下的德国也不会像新华社那样报道说“[我们在世界上最安全的地方！外国人点赞北京冬奥防疫](http://www.news.cn/2022-02/13/c_1211568858.htm)”。
 
-G-News发布：小满；
+2022年2月13日
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+校对：东京樱花团 / 東洋武士
+发布：东京樱花团 / yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
