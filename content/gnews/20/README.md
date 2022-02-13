@@ -2,46 +2,22 @@
 ---
 
 
-## 希望彭丽媛跟我们一起唱响北京冬奥会主打歌曲塞北的雪
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1998960/)
+## 最会跪舔中共的阿根廷驻华大使牛望道
+` 儒为` [轉載自GNews](https://gnews.org/zh-hans/1998992/)
 
-G-TV视频链接：[https://gtv.org/video/id=6208a53fb0af02660af31135](https://gtv.org/video/id=6208a53fb0af02660af31135)
+作者：意大利罗马达芬奇农场-儒为
+![](https://assets.gnews.org/wp-content/uploads/2022/02/牛望道.jpeg)封面来源：网络图片
+新华社北京2022年2月12日报道，这两天，一段元首外交的花絮视频“火”了，获得很多中共国网友点赞。视频中，习近平同阿根廷总统费尔南德斯的会见结束后，一名阿方随行人员面对习近平主席用中文说：“没有共产党就没有新中国。”习近平主席微笑致意：“说得好，说得好，谢谢你的支持。”新华社记者称，一眼就认出这位“随行人员”就是新华社多次采访过的阿根廷驻华大使牛望道。
 
-**郭文贵先生：**听说这个《塞北的雪》是当年彭丽媛入京的重要的歌，又听说马上在2月4号要开的北京冬奥会，他们叫做主打歌，但愿他们也和我们一起唱，虽然歌词不一样。
+中共这段戏码演的太恶心了！不由想到七哥在大直播中的一段爆料，中共总后勤部副部长谷俊山在一次聚餐中，一堆人吃饭喝多了，喝多之前还都叫将军呢，突然间把裤子褪下来，过来过来给我舔两下，某明星就当众12人的餐桌上就是毫不犹豫地过去，很专业把手抓住舔上，谷俊山说不错，3000万我给你了，开演唱会去。谷俊山为了升官发财把自己女儿献给徐才厚玩弄之际，自己就在外屋坐着，脸色如常。
 
-但是《塞北的雪》被共产党给侮辱了。雪是纯洁的，它不应该是人造的，而共产党要在全世界人面前要制造假的雪，就像假的民主、假的法治、假的粮食一样，还制造了病毒。
+阿根廷驻华大使牛望道跪舔中共的行为和这个女明星的跪舔有何不同？他的跪舔行为比这个明星恶劣的多，不仅利己更是害人。因为是2021农历牛年来到中共国所以中文名中以“牛”为姓，在疫情如此严重期间竟然走过20多个省，而且看到的都是老百姓对习近平的感情和对党的尊重，可笑吗？因为最早把《共产党宣言》译为中文的译者就叫陈望道，所以中文名字中以“望道”为名，而且还感到极大荣幸，理解吗？我只能感叹，这个所谓“学者型外交官”太会跪舔中共了！
 
-那么今天我非常的开心在这个时候唱这个《塞北的雪》，我在开始唱和大家一起，战友们，把你们电视的声音调大点，戴上耳机，戴上耳机得把耳朵堵住。
+就在中共宣扬阿根廷驻华大使牛望道一句“没有共产党就没有新中国”舔的习近平无比舒服之际、就在中共国老百姓又感到“强大了我的国”的自嗨之际、就在全世界都在传送这段视频人们各种正反评论嘻嘻哈哈之际，阿根廷拿到的却是中共提供的230亿美金的贷款，这是多么讽刺和可悲的画面。
 
-我爱你 灭共的雪  轰轰烈烈漫山遍野  你用自己无暇的身躯  净化被谎言笼罩的世界  你把真相传递给了人间  唤醒那无尽的黑夜  沉睡的心田  啊～我爱你  啊～灭共的雪 塞北的雪
+新闻来源：🔗[他的一句中文获习主席点赞 这位驻华大使有故事](https://xhpfmapi.xinhuaxmt.com/vh512/share/10591276?channel=weixin)
 
-字幕来源：[2022年1月31日 《春节大直播》 全文字版（一）](https://gnews.org/zh-hans/1943980/)
-
-编辑整理：Jacques；
-
-字幕文件制作：知津；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+*编辑/校对/发稿：意大利罗马达芬奇农场-儒为*
 
  
 

@@ -2,37 +2,29 @@
 ---
 
 
-## 2022年1月国际社会对中共的打击制裁汇总与分析
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1998214/)
+## 民众觉醒：真科学迎来春天？
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1998444/)
 
-作者：香草山教育部 – 无名先生
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-据不完全统计，在2022年1月1日-1月31日的一个月时间，国际社会对中共的打击制裁次数有7次，其中5次由美国发起、另2次由欧洲发起。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/10-9.jpg)
-一月份国际社会对中共的打击制裁的形式有三种：第一、议会提案和动议4次，包括《2022年新冠病毒法》、《2022年恢复基本能源和稀土在岸安全储备法案》、《2022年美国竞争法》的提案和指出中共在新疆犯下“反人类罪和种族灭绝罪”的动议；第二、议会决议1次：《关于香港侵犯基本自由》的决议案；第三、美国政府对中共企业实施的具体制裁2次，包括对航天科技集团第一研究院、中国航天科工集团第四研究院、保利科技股份有限公司和中国联通的制裁。
+编译：致敬香港！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-56.jpg)
+图片来源：The Japan Times
 
-从一月份国际社会对中共的打击制裁上可以看到三点：一是对中共新冠病毒真相溯源的诉求已经由民众和媒体层面上升到了议会层面；二是中共在新疆犯下“反人类罪和种族灭绝罪”已经成为国际共识并不断发酵；三是中共对人类安全的威胁已经受到美国的高度重视，美国正在以国家安全为由对中共进行多方位打击制裁。
+“零对冲”网2月13日转载文章揭露美国新冠疫情2年跌宕起伏，“科学”一方面被扭曲利用，而一方面却被全力封杀。随着更多民众觉醒，科学真相能否最终浮出水面？
 
-参考链接：
+科学，是为理解真相而不断提问和探索的过程，它永远是一种方法而不是答案。而在这场新冠疫情中，号称民众必须遵从“科学”的政客们告诉我们：
 
-- [https://www.whitehouse.xn--gov-e36s/](https://www.whitehouse.xn--gov-e36s/)
-- [https://www.commerce.xn--gov-e36s/](https://www.commerce.xn--gov-e36s/)
-- [https://www.voachinese.com/](https://www.voachinese.com/)
+口罩：不需要戴、还是需要戴、需要戴2层、需要戴3层、布口罩无效、只有N95有效……
 
+新冠疫苗：阻止疫情100%有效、96%有效、70%效、有效期6个月、加强针是唯一的出路、这是一场未接种者的疫情……
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
+睿智民众给政客们口中的“科学”加了个商标符号，一针见血地揭露出他们的“科学TM ”是由他们独家拥有的、并根据他们的需要而可以随时被篡改的一套“答案”，跟真实的科学根本毫不相关。众多科研人员遵循着科学原则持续观察和研究，提出病康复者会获得比疫苗更强大的自然免疫力，他们却被 “事实核查”大军以迅雷不及掩耳之势从网上抹杀。
 
-总编：飞虹
-编辑：飞虹
-校正/发稿：海阔天空1
+但历史的车轮滚滚向前，如今无可避免地、越来越多的民众看清了各种管制政策的无效和危害，大规模抗议和抵制活动开始在各地涌现，政客们不得不开始转向灭火。对于新冠阳性的入院患者，拜登政府终于开始组织“卫生与公众服务部”和“疾控与预防中心”的专家组与各地医院合作，把因新冠病情入院的、和因其它原因入院的分开来进行统计；之前各政府部门一直拒绝透露相关的具体数据，导致新冠重症和死亡率呈现虚高，其中一个匪夷所思的案例是，一个因吸毒过量而死亡的人因3个月前曾呈新冠阳性、而被记录为新冠死亡……
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+但提高数据准确率和透明度仅仅是一小步，言论审查和网络封杀等仍然是众多勇敢传播真相的科学家无法挣脱的枷锁。近日，收听率爆棚的乔·罗根播客节目先后邀请多名顶级科学家讨论新冠疫情、疫苗和早期治疗话题；同期的另一个新闻热点事件是亿万富豪爱泼斯坦性侵和性交易未成年少女案，客户涉及全球上千名流，爱泼斯坦本人在最严密看守级别的联邦监狱中离奇“自杀”后，其重要同犯女友案件开审。两者之间，主流媒体似乎更关注怎样让乔·罗根闭嘴，而不是去深挖魔爪伸向未成年少女的、国际政商名流的犯罪集团。
+
+**新闻来源：** [‘Team Doom’ Suddenly Reversing COVID Restrictions Shows It Was Never About Science, Only Your Compliance](https://www.zerohedge.com/political/team-doom-suddenly-reversing-covid-restrictions-shows-it-was-never-about-science-only)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,27 +2,28 @@
 ---
 
 
-## 以色列顾问：疫苗护照不为阻止传播，而为扩大接种
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1998650/)
+## 壬寅年的“雪”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1998742/)
 
-##### 翻译：不要代表我Kari
-校对：精靈藍
-剪辑|字幕：向上James
-编辑：Mttfly
+撰稿：东京樱花团/Garrettw
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-57.jpg)
+[图片来源](http://www.dzwww.com/xinwen/guoneixinwen/202201/t20220121_9724202.htm)
 
-以色列卫生部*SARS*‑CoV‑2疫苗临床试验咨询委员会成员Cyrille Cohen近日表示，维持疫苗护照已经没有意义。他在采访中委婉表示，他不想触碰疫苗护照在政治方面的问题。但一个公开的秘密是，疫苗护照不是为了防止传播，是为了鼓励人们接种疫苗。
+正月十三，北京天津等地迎来农历虎年的第一场降雪，雪花飘飘，北京各区13日均出现了明显降雪。13时许，北京市气象台升级发布暴雪黄色预警信号，其中，延庆区、昌平区气象部门在上午分别发布暴雪黄色预警、暴雪橙色预警，昌平十三陵大岭沟站降雪量已超10毫米。预计至14日5时，北京大部分地区累计降雪量将大于6毫米，西部北部局地可达10毫米以上。受降雪影响，目前京津高速、京沪高速和京藏高速的部分路段封闭，京承高速发生多起交通事故。截至2月13日13时30分，受此次降雪影响，北京公交集团共计195条线路采取措施，采取停驶措施166条，采取区间措施24条，采取绕行甩站措施5条。首都国际机场、大兴国际机场部分航班取消。北京部分高速公路已采取临时管控措施。
 
-视频来源：[Israeli vaccine chief- -We have made mistakes](https://unherd.com/thepost/israeli-vaccine-chief-we-have-made-mistakes/)
+纷飞的雪花为“灭共的雪”平添许多情感和梦境。虎年春节里，新中国联邦的战友们，听了 “甜蜜蜜”，“一帘幽梦”，“灭共的雪”，它正在下着，迎合着我们的歌曲；它不停的下着，净化人的心灵漫山遍野；它勇敢的下着，把真相带到了人世间；它认真的下着，将七十年的冤屈和不满统统呈现；它无私的下着，将黑暗带走呈现一片光明；它就是灭共的雪……
 
-*发布：Mttfly*
+壬寅之虎初雪曝，党媒雪花甚至好，
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+全民灭共时机到，北京冬奥节节爆。
 
+雪后联邦帅众来，决战瑞士银联倒，
+
+壮士归来盘古聚，七十阴霾仍需祛。
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
 
  

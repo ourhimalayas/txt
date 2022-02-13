@@ -2,33 +2,45 @@
 ---
 
 
-## 2022/02/11 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1999024/)
+## 【图说】喜联储秒杀中共银行
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/1999093/)
 
-1. 天津河北区，被封锁小区的居民自嘲缓解压力和情绪的方式是通过遮挡板看封控防范区以外的世界。
-2. 中共政府通报新增19例新冠病毒确诊病例的辽宁绥中县，家家户户被贴上封条，市民不准出门。
-3. 2月9日，河南新乡。男子外出打工临走时妻子假装不在乎 转身走后妻子便悄悄抹眼泪。在中共国为了谋生，有多少人不得不离开家人？
-4. 湖南娄底，春节后母亲外出打工孩子不舍倒地痛哭，拼命拉扯母亲衣服想留住母亲。
-5. 2月9日，四川。年后爸妈外出务工，女孩望着背影久久不愿离开，一声“妈妈”令母亲破防。
-6. 2月9日，北京。早高峰孕妈妈穿“勿推勿挤”的警示马甲挤地铁，网友感叹当代年轻人的压力非常大。
-7. 2月9日，黑龙江鸡西。一男子疑醉酒后从商场三楼跳下, 万幸的是下面都是儿童玩耍的海洋球，游乐设施救下了男子性命。
-8. 某地隔离人员晒出酒店14天隔离费用，如今中共国的隔离消费已被发展成为了一套成熟的产业链。
-9. 宏伟的辽宁朝阳市市政府大楼！如此宏大的建筑工程消耗的都是老百姓的纳税钱，但决对不会允许老百姓过问。
-10. 2月9日，福建长乐。节后机关单位上班时间聚众抽烟喝茶，“过完年比较闲”，被暗访记者曝光。
-11. 2月10日，广东深圳龙华汽车站门口，一饭店老板为无家可归者免费提供餐食。
-12. 广东深圳，拥有大量在外漂泊无固定工作流浪的人，以天为被地为床，到了晚上都集体在路边打地铺。
+新中国联邦的喜联储全球首个真正意义上的加密货币生态系统，随时，随地，随心，无缝交易！超越国家主权，解放生产力与人际关系，解放精神，最重要的是在互联网的信息时代保证绝对的财富安全！
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-191.jpg)
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/2-59.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/4-22.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/6-20.jpg)
 
 
-* * *
+**下面来看看中共银行的无耻操作：**
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/1-190.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/2-58.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/3-32.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/4-20.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/5-19.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/6-19.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/7-17.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/8-14.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/9-9.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+钱放在中共银行，辛辛苦苦一辈子，不光存款会时不时的不翼而飞，动不动的还欠银行的钱！老少爷们大娘大妈们，咱们在中共血腥的压迫下小心翼翼的过日子，好不容易攒点钱，还被中共的无赖银行给整没了，不光钱不翼而飞还没处说理，这日子过得苦不苦冤不冤！
+
+现在新中国联邦爆料革命给了全世界一个财富安全的保障，还热心的帮助咱们生活在中共国水深火热的劳苦大众发财，这么好的千载难逢的机会还赶快的抓紧行动！加入喜马拉雅联盟农场，各农场自由随心选，有热心的战友帮助大家注册喜联储，一个自由无国界的世界正在向你招手！还在犹豫什么赶快来吧！
+
+喜马拉雅联盟多伦多蓝莲花农场，是一个新成立侧重专注于Hpay推广的农场，打破传统银行的枷锁，自由无国界的贸易模式，小伙伴们赶快来！
+
+撰稿/发布：一叶知秋
+
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 
