@@ -2,8 +2,8 @@
 ---
 
 
-## 如何双休延长20秒
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1997733/)
+## 喜币一定超过比特币
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1997777/)
 
 #### 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王
 视频定位：BENJ1，WEI

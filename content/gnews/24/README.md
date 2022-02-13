@@ -2,20 +2,26 @@
 ---
 
 
-## 沈阳232路公交车发生爆炸
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1997440/)
+## 新冠政策制定者要对数十万人的死亡负直接责任
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1997520/)
 
-撰稿：追着曙光跑
-目击者拍摄的视频
-据中共新浪新闻2月12日的报道，12日17时55分，一辆232路公交车行驶至皇姑区黄河南大街与宁山中路路口附近时发生爆炸。
+##### 翻译：文载 Jenny
+校对：Lish
+剪辑|字幕：清净
+编辑：Mttfly
 
-目前，爆炸已造成1人死亡，2人重伤，40人轻伤。受伤人员已送医院救治，事故原因正在调查中。
+口罩、封锁等不必要的限制，造成了巨大的伤害，特别是在我们的儿童身上。卫生机构和机关必须停止干预医生与病人的关系。政策制定者要对数十万人的死亡负直接责任，这些人可能构成危害人类罪。
 
-根据现场目击者拍摄的视频显示，周围地面一片狼藉，一辆黄色车身的公交车停在路边，车窗玻璃全部被震碎，地面散落着玻璃碎片。车尾不远处，一名受伤市民坐在路边的绿化带旁，面部流着血，正在等待救援。
+视频来源：[Policymakers are directly responsible for hundreds of 1000s of deaths](https://twitter.com/sabinehazanmd/status/1485493217780899842?s=21)
 
-拍摄者称，受伤的人不少，救护车已经拉走好几车，车上的空调设施都崩到10米左右的地面。
+*发布：Mttfly*
 
-新闻来源：[沈阳公交车爆炸已致1死42伤](https://news.sina.com.cn/c/2022-02-12/doc-ikyakumy5607999.shtml)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

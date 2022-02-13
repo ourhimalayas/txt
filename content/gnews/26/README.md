@@ -2,26 +2,20 @@
 ---
 
 
-## 学生演讲讽刺强迫戴口罩
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1997432/)
+## 沈阳232路公交车发生爆炸
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1997440/)
 
-##### 翻译：George Yang
-校对：Lish
-剪辑|字幕：文驰
-编辑：Mttfly
+撰稿：追着曙光跑
+目击者拍摄的视频
+据中共新浪新闻2月12日的报道，12日17时55分，一辆232路公交车行驶至皇姑区黄河南大街与宁山中路路口附近时发生爆炸。
 
-一位美国学生公开演讲，指责美国政府所实施的严苛而无用的防疫手段。这场大流行的倒行逆施背离了美国的传统价值观。强制疫苗和口罩禁令，严重危害了美国学生的心理健康。学生们本该具有反抗与批判的自由精神，而不是现在屈服于政府的威压。
+目前，爆炸已造成1人死亡，2人重伤，40人轻伤。受伤人员已送医院救治，事故原因正在调查中。
 
-视频链接：[“Thank you for teaching students that our own mental health is much less important than making triple vaccinated adults feel safe.”](https://twitter.com/backtolife_2022/status/1484200287237775361?s=21)
+根据现场目击者拍摄的视频显示，周围地面一片狼藉，一辆黄色车身的公交车停在路边，车窗玻璃全部被震碎，地面散落着玻璃碎片。车尾不远处，一名受伤市民坐在路边的绿化带旁，面部流着血，正在等待救援。
 
-*发布：Mttfly*
-**
-更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+拍摄者称，受伤的人不少，救护车已经拉走好几车，车上的空调设施都崩到10米左右的地面。
+
+新闻来源：[沈阳公交车爆炸已致1死42伤](https://news.sina.com.cn/c/2022-02-12/doc-ikyakumy5607999.shtml)
 
  
 
