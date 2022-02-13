@@ -2,8 +2,8 @@
 ---
 
 
-## 盘古裕达一定会回到新中国联邦
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1997715/)
+## 数字货币势不可挡
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1997741/)
 
 #### 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王
 视频定位：BENJ1，WEI

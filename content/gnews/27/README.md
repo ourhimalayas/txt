@@ -2,30 +2,34 @@
 ---
 
 
-## 德国新闻报道称，俄罗斯将于周三入侵乌克兰
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1997596/)
+## 2022年2月12日 晚 新中国联邦新闻、GTV新闻访谈简报
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1997629/)
 
-#### 撰稿：彩虹       
+作者：香草山翻译部
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1252.png)图片来源：PGurus
-德国《明镜》是一份在德国发行的中左翼（center-left）周刊，每周的平均发行量近110万册，1947年创刊，用德文和英文在汉堡出版。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO.jpg)
 
-据《新闻极限》2月11日报道，《每日邮报》援引明镜的周五消息，说俄罗斯计划在2月16日（星期三）入侵乌克兰。
 
-该新闻机构声称这一警告来自于美国情报部门与北约盟国的秘密简报，包括中情局、美国军方和特勤局。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-11.png)
+校对：Stay文苑
 
-《每日邮报》说，该德国报纸也概述了俄罗斯军事部队可能进入该国的详细路线。
+编辑：Stay文苑
 
-文章说，在过去的几个月里，在乌克兰的边境地区，俄罗斯集结了十多万军队，增加了军事装备，美国官员警告说发动入侵的窗口期正在关闭。
+发稿：Stay文苑
 
-周五，美国国家安全顾问杰克·苏利文（Jake Sullivan）在白宫新闻发布会上告诉记者说，美国已经看到俄罗斯新部队抵达乌克兰边境的证据。
+来源：
 
-他说：“如果俄罗斯总统弗拉基米尔·普京(Vladimir Putin)决定下令入侵，我们正处于随时可能开始入侵的窗口期。我不会评论我们情报信息的细节，但我确实想清楚地说明，它（入侵）可能在奥运会期间开始。”
+新闻：[https://gtv.org/broadcast/watch/62085ebda1fe5e57a4278c38](https://gtv.org/broadcast/watch/62085ebda1fe5e57a4278c38)
+访谈：[https://gtv.org/broadcast/watch/6208666ca1fe5e57a4278fdf](https://gtv.org/broadcast/watch/6208666ca1fe5e57a4278fdf)
 
-**新闻来源**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar.png)
 
-[Russia to Invade Ukraine Wednesday, German News Report Claims](https://www.newsmax.com/newsfront/russia-ukraine-germany-nato/2022/02/11/id/1056550/)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
