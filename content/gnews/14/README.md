@@ -2,46 +2,44 @@
 ---
 
 
-## 希望彭丽媛跟我们一起唱响北京冬奥会主打歌曲塞北的雪
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1998960/)
+## 专家批评中共的 “国家队”- 这太离谱了
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1998963/)
 
-G-TV视频链接：[https://gtv.org/video/id=6208a53fb0af02660af31135](https://gtv.org/video/id=6208a53fb0af02660af31135)
+撰稿：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-188.jpg)
+图片来源：TV2
 
-**郭文贵先生：**听说这个《塞北的雪》是当年彭丽媛入京的重要的歌，又听说马上在2月4号要开的北京冬奥会，他们叫做主打歌，但愿他们也和我们一起唱，虽然歌词不一样。
+据丹麦媒体TV2 体育频道2月13号的报道，冰球专家Morten Green说他不是中国国家冰球队的粉丝，因为这支球队由许多非中国人的球员组成。
 
-但是《塞北的雪》被共产党给侮辱了。雪是纯洁的，它不应该是人造的，而共产党要在全世界人面前要制造假的雪，就像假的民主、假的法治、假的粮食一样，还制造了病毒。
+“我一点也不喜欢，这太离谱了”，TV 2 SPORT的冰球专家Morten Green说。
 
-那么今天我非常的开心在这个时候唱这个《塞北的雪》，我在开始唱和大家一起，战友们，把你们电视的声音调大点，戴上耳机，戴上耳机得把耳朵堵住。
+在代表中国国家冰球队参加奥运会的25人中，有两名加拿大人和一名美国人。25名球员中的18人在加拿大或美国出生或长大。
 
-我爱你 灭共的雪  轰轰烈烈漫山遍野  你用自己无暇的身躯  净化被谎言笼罩的世界  你把真相传递给了人间  唤醒那无尽的黑夜  沉睡的心田  啊～我爱你  啊～灭共的雪 塞北的雪
+有些人与中国是有联系，例如Brandon Yip，他的中国祖先150年前就去了北美。但他们中的许多人的家谱上没有中国的影子，讽刺就是讽刺。
 
-字幕来源：[2022年1月31日 《春节大直播》 全文字版（一）](https://gnews.org/zh-hans/1943980/)
+**为什么会出现这样的可能**
+这25名球员的共同点在于他们都为中国球队HC昆仑红星队效力，该队参加大陆冰球联赛（KHL）。所有25人都在国内打了两年多的比赛，而在国际冰球联合会（IIHF）允许球员为另一个国家参赛之前，必须满足这一标准。
 
-编辑整理：Jacques；
+Morten Green说，这些球员当时基本上只是被召集起来，问他们是否愿意代表中国参加奥运会。
 
-字幕文件制作：知津；
+除了在该国打过至少两年的比赛外，球员还必须是他们所代表的国家的公民。而双重国籍在中国是非法的，但在中国只要是涉及运动员时就有特权特例。一个完美的例子就是谷爱凌，这为所谓的中国滑雪明星在美国出生和长大，拥有美国和中国双重国籍。
 
-视频制作及上传：Cindy；
+**一开始就不应该出现在那里**
+中国正在参加奥运会，因为它是奥运会的主办国。如果由Morten Green决定，中国队根本就没资格出现在那里。
 
-G-News发布：小满；
+Green说：“在奥运会上获得冰球比赛的资格是非常困难的，那里只有12个名额，所以像中国这样在世界排名第32位的国家可以随便获得一个免费名额，这是完全错误的”。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+中国在前两场比赛后积0分，进球数为2-11。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+“如果这次比赛用的都是NHL球员，中国会以两位数的比分输掉每一场比赛–可能都是20比0和30比0″，Green总结道。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+中国在周日进行最后一场小组赛，对手是冰球强国加拿大。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+谷爱凌和那些冰球运动员被中共摧残和利用，代表共产党中国行事。中共不尊重规则、法律和道德，冬奥会对运动员和自然环境都造成了巨大伤害。被中共绑架的中国人怎么可能以这种欺骗的方式获得西方和体育界的尊重呢？
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+来源：
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[Gnews.com](https://gnews.org/1998859/)
 
  
 
