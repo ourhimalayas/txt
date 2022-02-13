@@ -2,44 +2,46 @@
 ---
 
 
-## 专家批评中共的 “国家队”- 这太离谱了
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1998963/)
+## 七哥春晚歌唱现场的钢琴、三套服饰及所有东西铸就传奇
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1998972/)
 
-撰稿：Skagen
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-188.jpg)
-图片来源：TV2
+G-TV视频链接：[https://gtv.org/video/id=6208a56fb0af02660af31141](https://gtv.org/video/id=6208a56fb0af02660af31141)
 
-据丹麦媒体TV2 体育频道2月13号的报道，冰球专家Morten Green说他不是中国国家冰球队的粉丝，因为这支球队由许多非中国人的球员组成。
+**郭文贵先生：**我反正唱下来了这歌，看看我们Q May我们的纯洁的雪，纯洁的雪，不是肮脏的雪、虚假的雪。所以这首歌我们唱得特别好！感谢Ryan、唐平、威廉王！我们在场的现在我们的墨镜、小白、甜甜、BoBo、我们的青藤，还有G-Fashion的Doaa、Kamel、雁平，谢谢每位兄弟姐妹们、小白！
 
-“我一点也不喜欢，这太离谱了”，TV 2 SPORT的冰球专家Morten Green说。
+我们这首歌唱得真的是我认为这个感觉是最好的之一，我觉得今天我比练的每一次都好。
 
-在代表中国国家冰球队参加奥运会的25人中，有两名加拿大人和一名美国人。25名球员中的18人在加拿大或美国出生或长大。
+Q May：对。
 
-有些人与中国是有联系，例如Brandon Yip，他的中国祖先150年前就去了北美。但他们中的许多人的家谱上没有中国的影子，讽刺就是讽刺。
+今天Q May，你看就这个钢琴，就这么漂亮的钢琴，保时捷的设计，灰色、黑色，然后和我们今天这三套衣服配在一起。然后大家看一看所有的东西今天，包括音乐，整个的音乐，我相信今天Q May的先生Ryan会给大家一个惊喜。所以说这个歌真的是太棒了、太棒了！现在我们进行下一个节目，七哥的歌今天唱完了啊。咱们这个歌肯定不打榜，绝对不打榜，这三首歌都不打榜，因为我们一打榜天下就是绝对第一了啊，那不用打了，是吧？不用打了，肯定第一。不打榜了兄弟姐妹们。谢谢、谢谢！新年快乐！
 
-**为什么会出现这样的可能**
-这25名球员的共同点在于他们都为中国球队HC昆仑红星队效力，该队参加大陆冰球联赛（KHL）。所有25人都在国内打了两年多的比赛，而在国际冰球联合会（IIHF）允许球员为另一个国家参赛之前，必须满足这一标准。
+字幕来源：[2022年1月31日 《春节大直播》 全文字版（一）](https://gnews.org/zh-hans/1943980/)
 
-Morten Green说，这些球员当时基本上只是被召集起来，问他们是否愿意代表中国参加奥运会。
+编辑整理：Jacques；
 
-除了在该国打过至少两年的比赛外，球员还必须是他们所代表的国家的公民。而双重国籍在中国是非法的，但在中国只要是涉及运动员时就有特权特例。一个完美的例子就是谷爱凌，这为所谓的中国滑雪明星在美国出生和长大，拥有美国和中国双重国籍。
+字幕文件制作：知津；
 
-**一开始就不应该出现在那里**
-中国正在参加奥运会，因为它是奥运会的主办国。如果由Morten Green决定，中国队根本就没资格出现在那里。
+视频制作及上传：Cindy；
 
-Green说：“在奥运会上获得冰球比赛的资格是非常困难的，那里只有12个名额，所以像中国这样在世界排名第32位的国家可以随便获得一个免费名额，这是完全错误的”。
+G-News发布：小满；
 
-中国在前两场比赛后积0分，进球数为2-11。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-“如果这次比赛用的都是NHL球员，中国会以两位数的比分输掉每一场比赛–可能都是20比0和30比0″，Green总结道。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-中国在周日进行最后一场小组赛，对手是冰球强国加拿大。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-谷爱凌和那些冰球运动员被中共摧残和利用，代表共产党中国行事。中共不尊重规则、法律和道德，冬奥会对运动员和自然环境都造成了巨大伤害。被中共绑架的中国人怎么可能以这种欺骗的方式获得西方和体育界的尊重呢？
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-来源：
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-[Gnews.com](https://gnews.org/1998859/)
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

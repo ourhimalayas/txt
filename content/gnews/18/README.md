@@ -2,47 +2,49 @@
 ---
 
 
-## 邓丽君的歌曲让当年听她歌儿的一代人一下回到那个过去
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1998801/)
+## 官方数据显示：完全接种者可能已患上疫苗引起的艾滋病
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1998819/)
 
-G-TV视频链接：[https://gtv.org/video/id=62089f96b0af02660af30f36](https://gtv.org/video/id=62089f96b0af02660af30f36)
+翻译： Jenny Ball
 
-**郭文贵先生：**我觉得首先邓丽君的歌永远不会过时，永远不会过时。邓丽君把中国人从一个最土的过去的那个民族带向了一个国际化，让那个时候黑暗的时代，最黑暗的时代，大家能哼着小曲，叫“靡靡之音”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1287.png)图片来源：naturalnews.com
 
-大家当然知道这是共产党的邪恶，让很多人还有的时候还能生孩子，还知道男女之间的欢愉、人的本性，带来多少快乐。我就给你们说，我那时候带着录音机在火车上餐厅，我往那一按，《甜蜜蜜》还有《在水一方》、《小城的故事》，所有的餐厅服务员那走道都不一样，端着盘子都不一样了，那是给领导专享的车，是吧？
+《自然新闻》最新数据显示，武汉冠状病毒（Covid-19）“疫苗”的长期影响最终于开始显现，像由疫苗引起的艾滋病。
 
-然后我那时候穿的牛仔裤、大长发往那一坐，然后大人参烟，还有进口的万宝路，我拿出万宝路：大家抽烟。哇塞，男女全都在点着烟，就是抽着烟，然后给我来点儿锅包肉是吧？那种感觉、那个音乐一下就让人快乐起来了，这就是邓丽君当年最牛的，你们没有这个感受啊。
+英国政府数据显示，“完全接种疫苗”的英国人可能已经到了无法回头的地步，因为许多注射疫苗的人现在患有自身免疫性疾病。
 
-这就是这一代人谁在听邓丽君的歌的时候，就一下子就回到了那个过去。就这个音乐的魅力就在这里，这就是为什么他与神的沟通。那么这个歌儿，我接下来还要唱的一个歌啊，我真的沟通很多。
+英国卫生安全局 (HAS) 的最新数据表明，接种疫苗的“病例”大幅增加。与此同时，未接种疫苗的人大多情况良好。
 
-字幕来源：[2022年1月31日 《春节大直播》 全文字版（一）](https://gnews.org/zh-hans/1943980/)
+“正如你所清楚看到的，尽管未接种疫苗的人被迫比完全接种疫苗的人受到更多的限制，但英格兰正在经历一场完全接种疫苗的大流行。2022 年 1 月，18岁以上接种疫苗的人，整体记录了令人震惊的 167万例，而 18 岁以上未接种疫苗的人群中，只有 228,750 例，” 《每日曝光》（Daily Exposé） 报道。
 
-编辑整理：Jacques；
+《每日曝光》提出了自己的计算方法来确定“完全接种”病例之间的差异，包括双重和三重接种，以及“未接种”病例，因为政府在其报告中没有区分这些。
 
-字幕文件制作：大好河山；
+根据这些方法，《每日曝光》确定，在英格兰进行新冠病毒注射的实际效果，实际上为负 183%——这意味着负面效果。
 
-视频制作及上传：Cindy；
+换句话说，注射会降低一个人的免疫能力，正如我们所报道的那样，随着时间的推移，免疫能力会继续减弱，因此有了 VAIDS（疫苗诱导的艾滋病）的新名称。
 
-G-News发布：小满；
+Covid“疫苗”似乎会永久损害自然免疫功能
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+顺便说一句，疫苗有效性并不是真正衡量疫苗的标准。它实际上是与没有打疫苗时的“纯血” 时的免疫系统性能与注射后的免疫系统性能相比，疫苗接受者的衡量标准。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+疫苗的作用，包括所谓的**C****ovid **“疫苗**”**，是训练免疫系统识别外来入侵者，在**C****ovid **疫苗这种情况下，即是**SARS-CoV-2 **刺突蛋白。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+它通过引入人工刺突蛋白片段来做到这一点——或者在 mRNA（信使 RNA）注射的情况下，则为身体制定蓝图来产生自己的刺突蛋白。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+一直以来的说法是，这些刺突蛋白和/或刺突蛋白蓝图会在一段时间后消失，让您的身体来处理其余部分。但从长远来看，注射Covid疫苗对身体有什么影响？
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+答案似乎是：免疫系统不仅被削弱了，而且还被设置为最终破坏的速成程序。随着时间的推移，它似乎会继续减弱，使被接种的人容易患上各种疾病，就像艾滋病患者一样。
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+“……在英格兰，完全接种疫苗的人的免疫系统，平均只剩下最后 35% 的免疫系统来对抗某些类型的病毒和某些癌症，”《曝光》补充道， “问题是，他们剩余的 35% 的免疫系统何时会耗尽？”
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+素材链接：[naturalnews.com][The fully vaccinated may already be suffering from jab-induced AIDS, government data suggests](https://www.naturalnews.com/2022-02-10-fully-vaccinated-suffering-jab-induced-aids-data.html)
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+* * *
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*审核：文乐
+校对：小东
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

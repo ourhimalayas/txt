@@ -2,33 +2,46 @@
 ---
 
 
-## 北京冬奥：习的造神运动无与伦比
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1998921/)
+## 灭共版一帘幽梦要一改娘了吧唧唱邓丽君的中国男人风
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1998927/)
 
-作者：东京樱花团｜捆绑CCP一千年
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-7.png)
-**北京冬奥会官宣的调门将人性的丑陋演绎到了极致，1936年德国纳粹运动会也不能与之相比，因为中共笃定主意认为，只要世界敢来参加我的冬奥会，就是在默许和赞赏中共在全球杀戮几百万人的合法性。世界因此应该记住，第24届冬季奥林匹克运动会将永远载入人类史册，因为这个东道主的反人性超越了德国纳粹党。**
+G-TV视频链接：[https://gtv.org/video/id=6208a040b0af02660af30f5d](https://gtv.org/video/id=6208a040b0af02660af30f5d)
 
-据中共国新华每日电讯13日消息，北京冬奥官宣正在进一步神化、美化冬奥会。一篇题为《北京冬奥会大受美国民众欢迎凸显人心所向》一文最为骇人听闻的表述是，“北京冬奥会比以往任何时候都更受美国人欢迎。”他的理由是“冬奥会”在美国的高收视率。
+**郭文贵先生：**小新你是很有感觉的是吧？刚才那个感觉就出来，我相信这个歌儿七哥唱完以后，新中国联邦会创造一个这个歌的绝对辉煌！一改中国男人唱邓丽君的歌唱得娘了吧唧的，咱们这回要唱的非常男人，而且非常有力量，而且每个人都能感到唱的跟神沟通的感觉，我觉得特别特别重要，就是一张嘴“为何我要灭共？是谁带来苦痛？多少愤恨在心中，唯有战友能懂”。这个“唯有战友能懂”我是练好的，别说是错的，唐平跟Q May纠正我好多遍，我才练这样的，是正确的啊。“他毁香港圣城，犯下罪孽深重，欲战台湾大一统，必是黄粱一梦,谁与七哥与共？”或者说“谁与七哥灭共？打破千年的牢笼，中华儿女多英雄，今朝盘古必相逢。啦啦啦啦啦。…”
 
-该消息反驳了“北京冬奥会在美国收视率下降”，称“奥林匹克转播服务公司（OBS）首席执行官埃克萨科斯表示，北京冬奥会在全球社交媒体上已吸引超20亿人次的关注。”中共国的逻辑是，只要收看点击率高就好，当然也包括国际社会关注如何批北京纳粹运动会点击率。
+谁与七哥灭共～哇，这是我改的词啊，我改了两句，（是）三句：它毁香港圣城、欲占台湾大一统，但今天青藤打字，说了十遍，我在唱歌的时候打的词他给打错了。
 
-- ***延展阅读：***[***为什么美国必须认真对待中共的虚假信息行动***](https://thediplomat.com/2022/01/why-the-us-must-take-chinas-disinformation-operations-seriously/)
+欲占台湾，它毁香港，欲占台湾大一统，你看到没有？“谁愿生死与共”（改成了）谁与七哥灭共，你看看。但是我临时纠正了，因为这词这三句是我改的，所以说你看什么叫音乐了吗？小新。
 
+七哥和唐平、威廉王他所有改完的，我改这仨字仨词，但这就是刚才我们的长岛哥找到感觉了，因为他跟我见得最多，过去他受的苦是最深刻的，他体会我最多的。什么叫相濡以沫呀？就你共同的感觉经历过后，你现在让小新和三百年飞飞坐在一起，他俩的感受和我们所有人的感受都不一样，因为她被病毒威胁过，她孤独过。
 
-- ***延展阅读：***[***军事压力下，台湾面对北京冬奥会的两难选择***](https://www.rfi.fr/cn/%E4%B8%93%E6%A0%8F%E6%A3%80%E7%B4%A2/%E5%85%AC%E6%B0%91%E8%AE%BA%E5%9D%9B/20220204-%E5%86%9B%E4%BA%8B%E5%8E%8B%E5%8A%9B%E4%B8%8B%EF%BC%8C%E5%8F%B0%E6%B9%BE%E9%9D%A2%E5%AF%B9%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E4%BC%9A%E7%9A%84%E4%B8%A4%E9%9A%BE%E9%80%89%E6%8B%A9)
+字幕来源：[2022年1月31日 《春节大直播》 全文字版（一）](https://gnews.org/zh-hans/1943980/)
 
+编辑整理：Jacques；
 
-中共以为奥林匹克转播公司可以对北京表示沉默，但他们说出了愤怒。OBS首席内容官[Mark Wallace](https://twitter.com/wallaceme/status/1491097653496922115?s=20&amp;t=192ZF9oZuglAEnxjH0_d0g)看到北京冬奥会升起奥林匹克会旗的时候实在忍无可忍，在推特上质问：“奥运会是为猖獗的中国军国主义提供的脆弱掩护？是什么让你产生了这个想法？”
+字幕文件制作：知津；
 
-最后，中共新华社消息开始闭上眼睛自嗨地认为，“北京‘更团结’的冬奥会正是全人类共同期盼的图景，也是的现实写照。这样的冬奥会，谁能不爱呢！”更匪夷所思的是，中共对西方的仇恨超过中共历史上仇恨西方民主的程度，却仍在为自己失败的冬奥会不那么难看，便编一些谎言骗自己。这就是一个杀害全球几百万人的中共政权，好比一个杀人犯杀人无数，还自己在骗自己说，被害者说他杀人杀的好。世界上哪有这样的政权？！就算是希特勒统治下的德国也不会像新华社那样报道说“[我们在世界上最安全的地方！外国人点赞北京冬奥防疫](http://www.news.cn/2022-02/13/c_1211568858.htm)”。
+视频制作及上传：Cindy；
 
-2022年2月13日
+G-News发布：小满；
 
-校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
