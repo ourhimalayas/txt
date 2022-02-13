@@ -2,11 +2,27 @@
 ---
 
 
-## 2月11日文贵大直播摘要（图1-3
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1997379/)
+## 七哥爆料陈全国（四）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1997435/)
 
-设计 五月花农场 科存
-![](https://assets.gnews.org/wp-content/uploads/2022/02/C99B3D97-0E56-4248-B3CC-B61D5D9B3F76.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/A2DA2FE1-842C-4656-BE0D-1D3622E9D549.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/0DED8955-59BF-41C7-9A4E-EE3575A3E72E.png)
+#### 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王
+视频定位：BENJ1，WEI
+
+相关链接：
+[七哥爆料陈全国（一）](https://gnews.org/zh-hans/1994328/)
+[七哥爆料陈全国（二）](https://gnews.org/zh-hans/1997409/)
+[七哥爆料陈全国（三）](https://gnews.org/zh-hans/1997433/)
+[七哥爆料陈全国（四）](https://gnews.org/zh-hans/1997435/)
+
+*发布：玉米地守望者*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

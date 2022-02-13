@@ -2,39 +2,40 @@
 ---
 
 
-## 纽约州法院系统培训主任被指搞裙带关系后辞职
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1996654/)
+## 欧洲药物监管机构重新调查与疫苗有关的月经问题报告
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1996900/)
 
-翻译： Jenny Ball
+**编译: 真北007**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/image0-5-3.jpg)图片来自网络
+来自POLITICO.EU 二月十一日的新闻报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/F80121F6-E1C8-406A-897D-170D83B7015B.jpeg)**图片来源：**https://www.politico.eu
+在报告大量出血和错过月经以及科学文献中的新发现后，欧洲药品管理局（EMA） 将重新调查 mRNA 疫苗。
 
-纽约州法院系统针对数千名当地法官的培训项目主任，在被指控裙带关系后宣布辞职。
+欧洲药品监管机构周五表示，正在调查与注射 mRNA 冠状病毒疫苗有关的女性月经问题的报告。
 
-萨拉托加县法官兼该州司法法院支持办公室全职主任南希·苏努克金（Nancy Sunukjian ），被指控为亲戚的未婚妻找到一份工作，然后，对一名揭露此事的法院雇员进行报复。
+在使用 Moderna 和 BioNTech/Pfizer 注射剂后，欧洲药品管理局的药物安全委员会正在调查大出血以及错过月经的两个病例。
 
-苏努克金在 1 月中旬被传唤就这些指控作证，但她却宣布辞职。
+药物警戒风险评估委员会此前曾调查过与 COVID-19 疫苗相关的月经失调，并得出结论认为没有关联。 现在，在收到问题报告以及科学文献的新发现后，它正在重新审理此案。
 
-作为州镇和乡村法院培训项目的负责人，苏努克金负责 1,300 个地方法院寻求支持的项目。从 2020 年 12 月起，她的名字就出现在首席法官的每周致辞中。
+该委员会将进行深入调查，查看报告的事件，以及临床试验数据和已发表的科学文章。
 
-苏努克金的案件由该州的司法行为委员会处理，该委员会处理对现任法官的不当行为指控。
+EMA强调，没有证据表明疫苗对生育有任何影响。 监管机构补充说，目前尚不清楚疫苗与月经过多或错过月经之间是否存在联系。
 
-苏努克金是首都地区沃特福德镇的一名法官。她的辞职于 2 月 15 日生效。她将不再被允许寻求或担任司法职务。
+科学家们发现与 COVID-19 疫苗有关的月经周期的微小变化。
 
-行为委员会的声明中没有公开指控其他细节。苏努克金自 2010 年以来一直是镇法官，她目前的任期将在 2023 年到期。
+**原文链接：**
 
-“每当有人因裙带关系或偏袒而获得法院系统工作时，司法行政就会受到损害，”委员会管理员罗伯特 （H. Tembeckjian ）在新闻稿中写道。 “即使受雇人可能有资格，但通过法官的特殊影响，而不是根据业绩获得该职位——并对反对不法行为的人进行报复——都会削弱公众对司法公正的信心。”
+[Europe’s drug regulator probes reports of menstrual problems linked to vaccines](https://www.politico.eu/article/ema-investigates-reports-of-menstrual-problems-linked-to-vaccines/)
 
-**参考资料：**[syracuse][NY judge who directed training for 1000s of judges resigns after accusations of nepotism](https://www.syracuse.com/crime/2022/02/ny-judge-who-trains-other-judges-resigns-after-accusations-of-nepotism.html)
+**编辑：LILY**
 
-* * *
+**发布：歪桑**
 
-*审核：文乐
-校对：阿伯塔
-发稿：信心的选择*
+20220212
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-3.jpeg)
-
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3-4.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

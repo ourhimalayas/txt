@@ -2,40 +2,43 @@
 ---
 
 
-## 欧洲药物监管机构重新调查与疫苗有关的月经问题报告
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1996900/)
+## 商业集团敦促美加解决边境封锁
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1996919/)
 
-**编译: 真北007**
+编译：聖地香港
 
-来自POLITICO.EU 二月十一日的新闻报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/02/F80121F6-E1C8-406A-897D-170D83B7015B.jpeg)**图片来源：**https://www.politico.eu
-在报告大量出血和错过月经以及科学文献中的新发现后，欧洲药品管理局（EMA） 将重新调查 mRNA 疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-3-3.jpg)图片来源：sohu.com
 
-欧洲药品监管机构周五表示，正在调查与注射 mRNA 冠状病毒疫苗有关的女性月经问题的报告。
+美国最大的商业集团呼吁北美领导人结束因卡车司机抗议强制接种中共病毒疫苗而造成的美加边境口岸中断。
 
-在使用 Moderna 和 BioNTech/Pfizer 注射剂后，欧洲药品管理局的药物安全委员会正在调查大出血以及错过月经的两个病例。
+美国商会、全国制造商及商业圆桌会议于周四晚表示，边境封锁导致美国公司的供应链压力增大。
 
-药物警戒风险评估委员会此前曾调查过与 COVID-19 疫苗相关的月经失调，并得出结论认为没有关联。 现在，在收到问题报告以及科学文献的新发现后，它正在重新审理此案。
+商业集体在一份声明中说：“商业界正在尽全力寻找变通办法保持设施正常运转，但已经有一些工厂减产、减少班次及临时关厂。”
 
-该委员会将进行深入调查，查看报告的事件，以及临床试验数据和已发表的科学文章。
+“北美经济依赖于包括制造业在内的紧密合作。我们需要运用同样的合作精神来解决该问题。”
 
-EMA强调，没有证据表明疫苗对生育有任何影响。 监管机构补充说，目前尚不清楚疫苗与月经过多或错过月经之间是否存在联系。
+几天来，抗议跨境疫苗规定的卡车司机封锁了连接安大略省和底特律的大使桥，该桥承载了美国和加拿大之间约 25% 的贸易量。
 
-科学家们发现与 COVID-19 疫苗有关的月经周期的微小变化。
+封锁迫使汽车制造商停止运营，并对本已由于计算机芯片短缺造成产量不足的疫情相关行业造成更深影响。福特、通用汽车、Stellantis、本田和丰田由于缺少零部件于本周暂停了部分运营。
 
-**原文链接：**
+安大略省温莎市官员周四要求法院发出禁令，以对抗议者进行清场。拜登政府已敦促加拿大政府利用联邦权力结束卡车封锁，此举得到了美国商业集团的赞扬。
 
-[Europe’s drug regulator probes reports of menstrual problems linked to vaccines](https://www.politico.eu/article/ema-investigates-reports-of-menstrual-problems-linked-to-vaccines/)
+商业集团在一份声明中说：“我们恭请加拿大政府迅速采取行动，解决贸易流动中断及其对边境两侧制造商和其他企业的影响。”
 
-**编辑：LILY**
+**评论：**
 
-**发布：歪桑**
+**加拿大卡车司机为了所有人的自由进行抗议，其中也包括商人的自由，然而妨碍了商人赚钱，商人敦促结束抗议，结束了抗议谁为你争取自由？好一个怪圈！**
 
-20220212
+参考资料：[thehill][Business groups urge Canada, US to resolve border blockade](https://thehill.com/business-a-lobbying/business-a-lobbying/593843-business-groups-urge-canada-us-to-resolve-border)
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3-4.jpg)
+* * *
+
+*审核：文乐
+校对：信心满满
+发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-3.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

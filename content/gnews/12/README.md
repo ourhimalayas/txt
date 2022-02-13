@@ -2,21 +2,11 @@
 ---
 
 
-## 七哥爆料陈全国（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1997409/)
+## 2月11日文贵大直播摘要（10-12
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1997495/)
 
-#### 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王
-视频定位：BENJ1，WEI
-
-*发布：玉米地守望者*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+设计 五月花农场 科存
+![](https://assets.gnews.org/wp-content/uploads/2022/02/C47E6D54-DE55-4E7C-82C3-F5536A9AA3CD.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/8891A492-8B8C-435E-8B41-BA292C388613.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/6220868F-B86F-4CFA-9190-1874D79E22B4.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
