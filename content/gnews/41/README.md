@@ -2,29 +2,36 @@
 ---
 
 
-## 秘翻在线 ：司法公正不容侵犯！美国两位纽约州法官因性丑闻和滥用职权而离职
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1996168/)
+## 立陶宛敦促全球抵制中共和俄罗斯
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1996199/)
 
-**撰稿：William**
+作者：银河系农场—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月10日，据外国媒体报道，立陶宛高级外交官在访问澳大利亚期间向全球发出呼吁称，各国政府应该勇敢抵制中共和俄罗斯侵犯人权的行为，哪怕会因此付出代价。
 
-**校对：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/00.jpg)图片来源：[www.deccanherald.com](http://www.deccanherald.com/)
-根据《纽约邮报》(New York Post)的报导, 一个监管组织周二宣布，一名美国纽约州法官被指控，关于他贿赂一名未成年女孩以试图让她和自己儿子发生性关系，并在调查中提出辞职。自 1999 年以来，乔治·威特林格(George Wittlinger）一直担任纽约州哥伦比亚县安克拉姆镇(Ancram Town )法院的法官，他已于 去年12 月 31 日辞职，此前司法行为委员会通知他正在调查有关他迫使未成年人与儿子发生性关系的指控。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide5-6.jpeg)
 
-哥伦比亚县的诉讼表示，在据称受害者对法官乔治·威特林格和他的儿子丹尼尔·威特林格(Daniel Wittlinger)提起爆炸性的 700 万美元民事诉讼后，委员会开始调查此事，声称该法官不只迫使受害女子与儿子发生性关系，还向她提供金钱对该法官发生性举动。
+立陶宛外交官建议道，全球目前应逐步减少对中共和俄罗斯的贸易与能源依赖，同时，部分国家需要建立基于自由民主原则的同盟伙伴关系。
 
-委员会行政长官罗伯特·滕贝克健(Robert Tembeckjian )在一份声明中说：“为了维护公众对法院的信心，必须迅速公平地处理性不当指控，特别是涉及法官和未成年人的指控。他表示“无论此类严重指控是否导致刑事或民事诉讼，司法行为委员会都会进行调查并采取适当的纪律处分。让法官永久离开替补席是我们最重要的权力，这就发生在这里。”
+该外交官也表示，人们不应该对中共在新疆犯下的种族大屠杀保持沉默，反而应该持续向其发出质询。另一方面，中共还在新疆地区实施强迫劳动的暴行，而这种原则性问题绝不能被无视。如果全球因顾忌物价上涨因素而继续将中共新疆地区的相关产品纳入供应链中，那么每个人都将为强迫劳动带来的低廉商品付出代价。
 
-另外，根据Syracuse 的报导，同样在纽约州，一位负责培训数千名当地法官的州法院系统培训项目主任在被指控裙带关系后宣布辞职。身为萨拉托加县(Saratoga County)法官兼该州司法法院支持办公室全职主任的南希·苏努克金(Nancy Sunukjian)被指控为亲戚的未婚妻找到一份工作，然后对举报她违规的法院雇员进行报复。
+这位外交官还强调称，乌克兰如今正面临着如同台湾一般的困局，虽然立陶宛此前因与台湾的友好外交关系惹怒中共，但一定还有其他国家将效仿立陶宛的做法，加强与台湾的友好外交关系，这也是全球必然的趋势。
 
-苏努克金的案件由该州的司法行为委员会(Judicial Conduct Commission)处理，该委员会将处理对现任法官的不当行为指控。苏努克金是沃特福德镇( Waterford)的一名法官。她的辞职于 2 月 15 日生效。她将不再被允许寻求或担任司法职务。行为委员会的声明中没有公开指控的其他细节。 苏努克金自 2010 年以来一直是镇法官，她目前的任期本应在 2023 年结束。
+参考链接：[Squeezed Lithuania urges world to stand up against China, Russia](https://www.straitstimes.com/asia/australianz/squeezed-lithuania-urges-world-to-stand-up-against-china-russia)
 
-“每当有人因裙带关系或偏袒而获得法院系统工作时，司法行政就会受到损害，”委员会管理员罗伯特·H·滕贝克健(Robert H. Tembeckjian)在新闻稿中写道。 “即使受雇人可能有资格，通过法官的特殊影响而不是根据业绩获得该职位，并对反对不法行为的人进行报复，这会削弱公众对司法公正的信心。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-**新闻来源：**[https://nypost.com/2022/02/08/ny-judge-resigns-over-probe-into-claims-of-bribing-teen-to-sleep-with-his-son/](https://nypost.com/2022/02/08/ny-judge-resigns-over-probe-into-claims-of-bribing-teen-to-sleep-with-his-son/)
+总编：Ivy001 
+编辑：静言
+校正/发稿：谐趣园
 
-[https://www.syracuse.com/crime/2022/02/ny-judge-who-trains-other-judges-resigns-after-accusations-of-nepotism.html](https://www.syracuse.com/crime/2022/02/ny-judge-who-trains-other-judges-resigns-after-accusations-of-nepotism.html)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
