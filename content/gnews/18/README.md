@@ -2,11 +2,21 @@
 ---
 
 
-## 2月11日文贵大直播摘要（7-9
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1997466/)
+## 日本人的进步
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1997571/)
 
-设计 五月花农场 科存
-![](https://assets.gnews.org/wp-content/uploads/2022/02/14A65126-7CD3-423A-9B42-82FEA750E716.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/9F967DAA-F4C0-4F30-8A16-70A1CF00D0E2.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/2947B0DE-4B26-4476-B4EA-28D918883860.png)
+#### 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王
+视频定位：BENJ1，WEI
+
+*发布：玉米地守望者*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

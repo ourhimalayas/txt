@@ -2,19 +2,13 @@
 ---
 
 
-## 新冠政策制定者要对数十万人的死亡负直接责任
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1997520/)
+## 七哥拒绝10家媒体采访的原因
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1997595/)
 
-##### 翻译：文载 Jenny
-校对：Lish
-剪辑|字幕：清净
-编辑：Mttfly
+#### 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王
+视频定位：BENJ1，WEI
 
-口罩、封锁等不必要的限制，造成了巨大的伤害，特别是在我们的儿童身上。卫生机构和机关必须停止干预医生与病人的关系。政策制定者要对数十万人的死亡负直接责任，这些人可能构成危害人类罪。
-
-视频来源：[Policymakers are directly responsible for hundreds of 1000s of deaths](https://twitter.com/sabinehazanmd/status/1485493217780899842?s=21)
-
-*发布：Mttfly*
+*发布：玉米地守望者*
 
 **更多资讯，请关注：
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
