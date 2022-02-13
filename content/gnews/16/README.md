@@ -2,38 +2,28 @@
 ---
 
 
-## 有声|英国查尔斯王子再次确诊中共病毒
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1999804/)
+## 有声|郭先生解读中美关系
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1999864/)
 
-配音：香草山佛教部 – 李傻
+配音：香草山健身部 – 玫瑰园
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月10日，据相关媒体报道，英国克拉伦斯宫当天在声明中宣告，由于查尔斯王子的中共病毒检测结果称阳性，目前他本人正在自我隔离中。为此，现年 73 岁的英国王位继承人不得不缺席当天在英国温彻斯特市举行的活动。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide6-6.jpeg)
-据王室消息人士透露，查尔斯王子在确诊前两天会见了英国女王伊丽莎白二世，但女王尚未出现任何症状。
+在2月6日的大直播中，郭文贵先生提到了上个世纪在中国活跃的一批美国商人的感触，即中美两个民族完全可以优缺点互补，一旦双方能够友好合作，世界势必得到永远和平与繁荣。
 
-报道提及，这是查尔斯王子第二次确诊感染中共病毒。早在2020年3月，查尔斯王子就曾出现过轻微的感染症状，并在随后的病毒检测中被确诊。值得注意的是，此次确诊感染前，查尔斯王子和他的妻子卡米拉均已完全接种了中共病毒疫苗及其加强针。
+郭先生指出，回顾历史，美国在清朝末年帮助中国建立了清华大学和协和医院等公共基础设施，还向落后于世界的中国传授西方文明。彼时，美中双方开启了友好往来。 即使是当下，美国的餐饮品牌和高科技依然是中共国社会推崇的主流文化，其产品和其普世价值也一直为中国民间所真切向往。
 
-然而，如同大多数研究结果显示的，中共病毒疫苗并没有为其接种者查尔斯王子提供必要的保护。
+文字版原文：[郭先生解读中美关系](https://gnews.org/zh-hans/1994833/)
 
-文字版原文：[英国查尔斯王子再次确诊中共病毒](https://gnews.org/zh-hans/1996231/)
+音频处理/发稿：Daxia
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

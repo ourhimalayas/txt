@@ -2,45 +2,28 @@
 ---
 
 
-## 美国向朝鲜抛出橄榄枝
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1999770/)
+## 有声|纽约警局将彻查韩国外交官无端遭袭案
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1999832/)
 
-作者：香草山健身部-正道新闻
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-2月13日，据《消息报》援引美国国务卿安东尼·布林肯在夏威夷檀香山举行的新闻发布会的讲话，白宫对与朝鲜无条件对话持开放态度，对朝鲜没有敌意。
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月11日，据韩国媒体报道，韩国驻纽约总领事馆在一份声明中指出，美国纽约警察局正在对一名韩国外交官遭遇不明男子无端袭击的案件进行调查。
 
-我想强调：“我们对朝鲜没有敌意。如果平壤选择这条道路，我们仍然对无条件的对话持开放态度。”美国国务卿说，他的讲话在美国国务院的YouTube频道上播放。
+另据美国媒体消息显示，2月9日，一名50多岁的韩国外交官当天晚上八点左右在纽约市曼哈顿街头遭不明男子殴打。随后，该名外交官被送往医院救治，但袭击者却当场逃走。目前，这名外交官情况稳定。值得注意的是，上月29日，一位在纽约市布鲁克林区经营杂货店的60多岁韩国男子也遭到一名歹徒不分青红皂白的殴打。
 
-据布林肯说，朝鲜可能在世界其他地方发生事件的背景下再次进行挑衅。他提到平壤的导弹发射是这样的。
+文字版原文：[纽约警局将彻查韩国外交官无端遭袭案](https://gnews.org/zh-hans/1995096/)
 
-他强调说：“我们大家都很清楚，朝鲜正处于挑衅阶段。”
+音频处理/发稿：Daxia
 
-2月4日，在联合国安理会关于朝鲜导弹试验的闭门磋商中，8个成员国支持华盛顿的声明，而其余6个成员国则反对。在声明中，美方呼吁朝鲜“停止破坏稳定的行动，回到对话中来”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-2月3日，人们知道，美国当局仍然没有收到朝鲜对举行会谈建议的答复。据国务院发言人内德·普莱斯说，华盛顿仍然致力于朝鲜半岛的无核化，并准备继续“与该地区和其他国家”就这一问题进行协调努力。
-
-1月31日，韩国的韩联社写道，朝鲜证实前一天向日本海发射了一枚中程弹道导弹。这次试验被描述为2017年11月发射洲际弹道导弹以来最大的一次。
-
-自今年年初以来，由于华盛顿在两国核谈判陷入长期僵局的情况下加大了制裁压力，平壤以一系列导弹发射加剧了紧张局势。
-
-朝鲜在2022年1月发射了自朝鲜领导人金正恩于2011年底上台以来最高的月度导弹数量。
-
-PS：美俄紧密磋商合作之中，中共已经慌不择路，只能戳弄朝鲜发几个烟花来吓唬韩日。这个时候美国向朝鲜抛出橄榄枝，希望金三胖兄弟识时务者为俊杰，不要再与中共苟同，中共灭亡已成定局。
-
-[https://iz.ru/1290708/2022-02-13/blinken-otmetil-otkrytost-ssha-k-dialogu-s-kndr-bez-uslovii](https://iz.ru/1290708/2022-02-13/blinken-otmetil-otkrytost-ssha-k-dialogu-s-kndr-bez-uslovii)
-
-校对/发稿：菩提树
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2月-2.jpg)
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,35 +2,34 @@
 ---
 
 
-## 有声|回顾中共的十年文化大革命
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1999901/)
+## 有声|害人害己 冬奥会中共选手又出阴招
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1999960/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-1966年，毛泽东提议在全国范围内开启文化大革命，并指派了中央文革小组执行。随后，该小组成员煽动民众，尤其青年学生，开始攻击所谓的“走资派”。彼时，学校停学、工厂停工、农村停耕，举国上下先后被卷入大规模的武斗和游行批判的运动中。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+中国滑冰选手范可新近日在北京冬奥委会女子500米短道竞速滑冰八强赛中，将场上障碍物推到前方对手脚下，导致对方摔倒，自己也因此被对方绊倒，双方均被淘汰。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/11-02-2022-1.png)图片来源网络
+综合外媒报导，中国女将范可新在国际享誉盛名，曾多次在国际赛事上出现争议行为。 有网友查看比赛回放画面，发现是在转弯的时候，范可新伸手越过一名选手，用手向查尔斯推了一个标记，标记滑到加拿大选手的冰鞋下，导致加拿大选手跌倒在冰上，而她本人也被绊倒，比赛场面异常混乱。 现场画面随后被传到网上，不到1天就超过800万次观看。引发网友纷纷讽刺：中国滑冰选手又在展现“运动家精神”；这就是少林溜冰吗？动作很熟练，一定有练过。 自从冬奥委会开幕以来争议事件频传，各国媒体纷批评这次冬奥委会根本就是场闹剧！
 
-其后的十年间，中共变本加厉地开启了一系列政治运动，政治异议者，包括思想异议者几乎无人能逃脱中共专政的铁拳镇压。这些运动也造成了境内诸多地区的大屠杀事件，从而导致中共国内上亿民众被不同程度的迫害，超过千万人自杀或被杀害，全民死伤惨重。
+文字版原文：[害人害己 冬奥会中共选手又出阴招](https://gnews.org/zh-hans/1992602/)
 
-此外，十年浩劫中，中共对中国传统文化的破坏也达到了顶峰：大量的文物被焚烧，古迹被铲除，其所造成的损失难以估量。
-
-另一当面，中共通过文革毁掉了一代中国人的道德与诚信：亲人互相检举揭发，官员造假欺上瞒下在当时屡见不鲜。其所导致的恶果就是中国民众丧失了彼此之间的信任关系，余毒甚至影响至今。
-
-研究人员分析称，文革实际上是中共党内最高层争权夺利的结果：三年大饥荒使得毛泽东被迫退居二线，而为了重回高位，其不惜发动堪称十年浩劫的文化大革命，把中华民族推向了几乎毁灭的边缘。但由于中共官方的蓄意掩盖，世界至今无法估算当时中国人伤亡的准确数字。
-
-文字版原文：[回顾中共的十年文化大革命](https://gnews.org/zh-hans/1995097/)
-
-音频处理：Fei797
-发稿：Fei797
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
-
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

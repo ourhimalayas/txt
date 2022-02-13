@@ -2,15 +2,15 @@
 ---
 
 
-## 政治局势的瞬息万变对全球经济的影响
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1999418/)
+## CCP对美国司法渗透所带来的威胁
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1999407/)
 
 文贵大直播20220213
 
-撰稿：Nine Lee（DC）背靠背（frankie）（五月花）
+撰稿：铲共骑侠（香草山）大卫观星人（DC）dingding（香草山）伞兵（香草山）
 
-美工：嘿虎（雅典娜）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片1-13.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片2-13.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片3-13.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片4-13.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片5-13.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片6-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片7-8.png)
+美工：健身建心（英喜）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide2-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide3-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide4-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide5-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide6-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-1.png)
 *发布：Theodosia*
 
  
