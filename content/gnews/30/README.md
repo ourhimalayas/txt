@@ -2,34 +2,30 @@
 ---
 
 
-## 美众议院提案为因拒绝接种中共疫苗解职的军人复职
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1999617/)
+## 美国新冠病肆虐下出于对亚裔居民憎恨的暴力犯罪激增4.4倍
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1999836/)
 
-撰稿：银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-3.png)
-2月10日，美国媒体消息，本周，美国共和党人公布了一项立法提案，旨在确保拒绝接种中共病毒疫苗的美国军人能够继续服役。该项立法涉及：不得使用联邦资金要求武装部队成员接种中共病毒疫苗；有关秘书不得以武装部队成员拒绝接种中共病毒疫苗为由，对该成员采取任何不利行动。该法案还要求之前因拒绝接种疫苗被开除的士兵被恢复之前的军事级别，以及损失的工资与删除的服役记录。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1298.png)图片来自：https://www.axios.com/
-据悉，由于拜登政府的强制新冠疫苗令，数百名宝贵的美国军人被迫离开军队，带走了他们多年的专业技能、无私奉献的职业生涯和终生的军事梦想，造成不可接受的结果。同时，接种新冠疫苗后的美国军人，出现各类严重并发症的数据比率严重暴增。
+翻译：文明志
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-7.png)图片来源：[https://news.yahoo.co.jp](https://news.yahoo.co.jp)
+**摘要：**2021年美国8座大城市针对亚裔居民的憎恨性暴力犯罪与前年相比激增了4.4倍。
 
-媒体称，在世界如此紧张的局势下，此提案如立法，对中共疫苗带给美国军队的负面影响，将会起到一定的缓和作用。
+据2月12日每日新闻驻洛杉矶记者报道，美加利福尼亚州立大学圣贝纳迪诺分校憎恨与过激主义研究中心在调查中获知，2021年美国8座大城市出于对亚裔居民憎恨的暴力犯罪与前年相比激增了4.4倍。至此，伴随中国武汉的新冠病毒蔓延全球导致的对亚裔族群的莫名暴力攻击的日益严重的事态，在新冠病毒第二年已显现出来。
 
-新闻来源：[House conservatives introduce bill to protect, reinstate soldiers who refuse COVID shots](https://www.lifesitenews.com/news/house-conservatives-introduce-bill-to-protect-reinstate-soldiers-who-refuse-covid-shots/)
+此项调查以该大学中心收集到的美各大城市警署的数据为暂定值进行统计。2021年对亚裔的增恨性暴力犯罪最多的城市中，纽约为133起（比上一年增加103起）；旧金山为60起（同比增加51起）；洛杉矶41起（同比增加26起）；华盛顿23起（同比增加22起）等等。八大主要城市共发生了274起对亚裔的憎恨性暴力犯罪（同比增加212起）。以亚裔人口较多的东西海岸大城市为中心事件多发地。2020年的憎恨性暴力事件是上一年的2.2倍。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-3.png)
+另一方面，2021年美国的暴力犯罪18座大城市总计发生2106起，比上一年增加了47%。
 
-总编：Ivy001
+信息来源：[https://news.yahoo.co.jp/articles/aadfc0803c6572b9d5324c7b914e4e681c21422b](https://news.yahoo.co.jp/articles/aadfc0803c6572b9d5324c7b914e4e681c21422b)
 
-编辑：静言
+编辑：LILY
 
-校正/发稿：浪迹天涯
+发布：面包飞上天
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-3.png)
+20220213
+
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3-4.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,30 +2,43 @@
 ---
 
 
-## Moderna首席执行官刚刚抛售了 4亿美元的股票并删除了他的推特账户
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1999795/)
+## 荷兰阿斯麦指东方晶源推销或侵犯知识产权的产品
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/1999952/)
 
-Baxter Dmitry
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image005-8.jpg)
+**2**月**10**日，荷兰光刻机供货商阿斯麦（**ASML**）指一家名为东方晶源微电子科技的中共国企业，已开始推销可能侵犯阿斯麦知识产权的产品。**
 
-翻译：沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-51.png)图片来源：[https://newspunch.com](https://newspunch.com)
-在辉瑞承认安全审计可能会抹去数十亿美元的股票市场估值后几天，Moderna 首席执行官 Stéphane Bancel 抛售了数亿美元的股票并删除了他的 Twitter 账户。
+**阿斯麦早前指控**XTAL**窃取阿斯麦商业机密，美国法庭**2019**年裁定阿斯麦胜诉并获得赔偿。**
 
-在一位前 Blackrock 高管开始调查保险公司和殡仪馆的死亡统计数据后不久，这位 Moderna 首席执行官的奇怪举动就出现了。
+**阿斯麦呼吁部分客户不要说明东方晶源，并说公司正在密切关注事态发展，也做好准备在适当时候采取法律行动。**
 
-Edward Dowd 是前对冲基金经理，他开始研究保险公司和殡仪馆的死亡统计数据，他还开始指责辉瑞和 Moderna 在疫苗临床试验中存在欺诈行为。
+**据中共媒体香港《南华早报》报导，阿斯麦是世界上最大的光刻机供货商，而光刻机用于制造芯片。
 
-来源链接：[https://newspunch.com/moderna-ceo-just-dumped-400-million-in-stock-and-deleted-his-twitter-account/amp/](https://newspunch.com/moderna-ceo-just-dumped-400-million-in-stock-and-deleted-his-twitter-account/amp/)
 
-编辑：LILY
 
-发布：面包飞上天
 
-20220213
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3-4.jpg)
+**推出问题，敲出真相，爆料在路上！**
+
+**请关注和订阅我们的以下账号：**
+
+**新西兰伊甸农场盖特**：https://gettr.com/user/himalayanz
+
+**【玫瑰看新闻】盖特**：https://gettr.com/user/rosenews
+
+**玫瑰看新闻YouTube账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**Rose news**
+
+**【玫瑰看新闻】推特账号**：
+
+**Rose News (@RoseNews4)a**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

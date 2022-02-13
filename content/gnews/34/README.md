@@ -2,36 +2,41 @@
 ---
 
 
-## 美议员：共产主义是癌症 不能让它蔓延
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1999552/)
+## 美中常驻联合国代表在乌克兰问题上交锋
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/1999740/)
 
-撰稿：台湾宝岛农场 motdfry(文旦)/银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-3.png)
-2月10日，美国联邦参议员里克·斯科特在美国智库——美国优先政策研究所——主办的论坛上说，中共正按照它自己的计划重塑世界，如果美国人不希望他们珍视的自由被剥夺，必须采取行动。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1296.png)
-在北京冬奥会的开幕式上，一位面带微笑的维吾尔族运动员作为最后一名奥运火炬手，试图展示中共所谓的“民族团结”。斯科特对此认为：“这是一个完美的例子，说明了中共的宣传方式，他们只是想粉饰自己的罪行。”
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image003-12.jpg)
+美国**1**月**31**日与俄罗斯在联合国安理会就乌克兰危机正面交锋。华府称俄罗斯的部队集结是对**“**国际和平**”**的重大威胁，但莫斯科将此次会议斥为华府的**“**公关噱头**”**。
 
-同一天，共和党众议员克里斯·史密斯在接受采访时也认为，北京冬奥会是希特勒1936年奥运会的翻版，中共政府就相当于当今世界的纳粹分子。已有文件清楚地表明，习近平政府正在对新疆和香港人进行种族大屠杀，包括实施严重侵犯人权的酷刑、暴虐和强制堕胎等罪恶。
+据联合早报**2**月**11**日消息，美国常驻联合国代表格林菲尔德周四表示，她希望中共敦促俄罗斯在乌克兰问题上**“**做正确的事**”**。中共常驻联合国代表张军迅速作出回应，呼吁开展外交活动，停止**“**刺激紧张局势**”**。**
 
-中共是对世界秩序和美国人民生计的最大威胁，这一观点在华府得到了越来越多的共鸣。
+**据路透社报道，美国要求由**15**个成员国组成的联合国安理会就俄罗斯在乌克兰与俄罗斯和白俄罗斯的边界集结军队一事举行会议，但在表决中中共国是唯一与俄罗斯一道投反对票的国家，阻挠未能成功。**
 
-链接：
+**如果莫斯科入侵乌克兰，西方外交官希望说服北京不要再次站在俄罗斯一边，关注主权和领土完整，不要把乌克兰局势描绘成全球大国之间的紧张关系。 美国明知中共才是乌克兰问题的最大作祟者。政客们为了自己的利益在台上演戏给世界看。
 
-[‘They are butchering people’: Republican Congressman scorches China’s ‘Genocide Olympics’](https://www.lifesitenews.com/news/they-are-butchering-people-republican-congressman-scorches-chinas-genocide-olympics/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-2.png)
 
-总编/编辑: Ivy001
+**推出问题，敲出真相，爆料在路上！**
 
-校正/发稿：浪迹天涯
+**请关注和订阅我们的以下账号：**
 
-**更多资讯，更多关注**
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-3.png)
+**新西兰伊甸农场盖特**：https://gettr.com/user/himalayanz
+
+**【玫瑰看新闻】盖特**：https://gettr.com/user/rosenews
+
+**玫瑰看新闻YouTube账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**Rose news**
+
+**【玫瑰看新闻】推特账号**：
+
+**Rose News (@RoseNews4)a**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

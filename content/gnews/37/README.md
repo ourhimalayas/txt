@@ -2,18 +2,16 @@
 ---
 
 
-## 2022年2月13日，全球中共病毒疫情情况汇总
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1999159/)
+## CCP对美国司法渗透所带来的威胁
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1999407/)
 
-制作：DT新闻组
+文贵大直播20220213
 
-**中共的杀戮还在继续……**
+撰稿：铲共骑侠（香草山）大卫观星人（DC）dingding（香草山）伞兵（香草山）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/DCDD11C7-5C1D-476F-B673-FEDE5DFADB3B.jpg)
-
-发稿：信心的选择
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1.jpeg)
+美工：健身建心（英喜）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide2-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide3-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide4-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide5-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide6-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-1.png)
+*发布：Theodosia*
 
  
 

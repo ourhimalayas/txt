@@ -2,30 +2,28 @@
 ---
 
 
-## 男子速滑接连“抢跑” 北京冬奥裁判争议不断
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1999791/)
+## 有声|中华民国再指中共对台统战
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1999926/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2022/02/4-26.jpg)
-[图片来源](https://anonymous-post.mobi/archives/16298)
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月10日，据台湾媒体报道，中华民国大陆委员会当天发布声明表示，台湾政府已经注意到中共近期正在加强针对台湾民众的促统认知作战，包括积极策划对在陆台胞进行的各种统战宣传工作。
 
-舆论对北京2022年冬奥会评委的质疑连日来有增无减，同时，男子500米速滑项目的裁判也引来日本媒体关注。
+陆委会指出，中共的这一系列行为都是企图遂行其对台统战分化的图谋。为此，台湾当局希望国民能够珍惜自由的生活，并认清中共既打又拉的手段与野心。
 
-日本《雅虎体育》报道说，两名金牌竞争者新滨立也（日本）和名将洛朗·迪布勒伊（加拿大）在12日的男子500米速滑比赛中，在上半场的最后两组比赛中接连受到裁判判定的“抢跑”的影响。最终，高亭宇（中国）以34.32秒创造了奥运纪录，获得了金牌。
+文字版原文：[中华民国再指中共对台统战](https://gnews.org/zh-hans/1994834/)
 
-该媒体报道，接连判定“抢跑”在社交媒体上引起热议，并例举出数项对裁判的质疑，包括对日本跳台滑雪选手违反西装规定的裁定以及对短道速滑的偏向性判定，还有男子单板滑雪的评分等等。北京冬奥会的质疑声不绝于耳。
+音频处理/发稿：Daxia
 
-一场种族灭绝的冬奥会妥妥地成了对准中共的“照妖镜”。原形毕露，无处遁形。误“裁”他国人，必定被人“裁”。对中共的大审判指日可待。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-信息源：
-
-[日本も怒りを爆発…スピードスケート男子500mで「疑惑のフライング判定」＝北京冬季五輪](https://news.yahoo.co.jp/articles/7c0994112213ebe935f5d459008515e418454ea0)
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
