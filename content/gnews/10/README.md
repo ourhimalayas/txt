@@ -2,40 +2,35 @@
 ---
 
 
-## 中共国突发新闻：沈阳一公交车爆炸1死42伤
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2000490/)
+## 美众议员称国际奥委会掩盖中共人权恶行
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2000552/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image015.jpg)
-据中央社报导，中共国沈阳市一辆公交车傍晚近6时在行驶中突然爆炸，现场一片狼藉，引发社会关注与热议。据沈阳警方晚间8时许通报，目前爆炸已造成1人死亡，42人轻重伤，事故原因正在调查中。
+作者：纽约磐石农场—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+盖特消息，近日美国国会共和党众议员麦克.加拉格尔，在接受福克斯采访时表示，国际奥委会一直在掩盖中共国侵犯人权的行为。他还强调当共和党夺回众议院的时候，将继续开展中共病毒溯源调查。
 
-据沈阳市公安局官方微博晚上8时16分通报，2月12日傍晚5时55分，指挥中心接到报警，一辆232路公交车行驶至皇姑区黄河南大街与宁山中路路口附近时发生爆炸。接到报警后，省、市领导及公安、应急、急救等部门人员第一时间赶到现场进行处置。据通报，目前，爆炸已造成1人死亡，2人重伤，40人轻伤。受伤人员已送医院救治，事故原因正在调查中。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-4.jpeg)
 
-综合陆媒报导，今天傍晚5时52分，沈阳市皇姑区黄河大街一辆公交车发生爆炸，现场一片狼籍，公交车玻璃碎裂，有人受伤蹲地。现场目击市民称，爆炸时公交车内发出巨响，但没有起火。
+加拉格尔说，国际奥委会的行为非常卑鄙，他们声称见到了彭帅，而事实上彭帅被中共非法拘禁、扣为人质，并被禁言，但国际奥委会却在帮助中共掩盖事实，无耻的做中共的同谋。加拉格尔反对在北京举办冬奥会，声称美国应当想方设法保护自己的参赛运动员。
 
-据悉，腾讯视频1月11日才播出“开端”，这是一部描述公交车爆炸的时空轮回剧。事件发生后，“沈阳一公交车爆炸”在微博阅读量迄今已破7500万，引发网友热议，不少人怀疑事件恐怕有罪犯要模仿该剧。
+对于中共病毒溯源问题，他说现在仍然不清楚武毒所到底发生了什么，美国纳税人的钱如何资助武毒所，开展了病毒功能增强性研究。当共和党夺回众议院的时候，就会立即开展全面调查，也会给蝠奇等一些所谓的科学家送去传票，美国人都应该知道中共病毒大瘟疫到底是如何开始的。
 
+参考链接： [https://gettr.com/post/pu1qpu6b33](https://gettr.com/post/pu1qpu6b33)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-**推出问题，敲出真相，爆料在路上！**
+总编：Zion文恩
+编辑：Lakeman文仁
+校正/发稿：谐趣园
 
-**请关注和订阅我们的以下账号：**
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
-
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
-
-**玫瑰看新闻YOUTUBE账号**：
-
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**ROSE NEWS**
-
-**【玫瑰看新闻】推特账号**：
-
-**ROSE NEWS (@ROSENEWS4)A**
 
  
 

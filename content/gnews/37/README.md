@@ -2,34 +2,41 @@
 ---
 
 
-## 《疫苗后遗症》主创人员解析疫苗怪相
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2000054/)
+## 英国王位继承人查尔斯王子第二次感染中共病毒
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2000095/)
 
-作者：日本方舟农场 Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月11日，《疫苗后遗症》在日本首映结束，导演长尾和宏医生和主创鸟集彻记者，进行了20分钟的现场对谈。他们讲述了疫苗推广之后日本出现的四个怪相。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-13-上午10.06.20.png)
-首先，观众大多看到或体验过家人朋友饱受中共疫苗后遗症的苦恼，然而除了鸟集记者的刊物，以及CBC新闻的大石解说，几乎没有媒体报道这类患者的状况。记者稿件被封存，医生被排挤打压，真实的数据难以昭告民众。第二，无论是日本政府还是医疗界，都因为之前大肆推举疫苗接种，而陷入了难以认错，难以立刻停止疫苗的境地；第三，作为医疗界统筹部门的日本医师会，一味地推广新药以及新疫苗，已经沦为制药公司的宣传机器；（到此全为视频1的内容）最后，鸟集彻记者特别指出，明明是政府为了达到群体免疫才呼吁人们接种的，然而，一旦出现后遗症却立刻否认这些问题跟疫苗有关。
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image009.jpg)
+路透社报导，**2**月**10**日** **，英国克莱伦斯宫表示，查尔斯王子的中共病毒检测结果呈阳性，这是他第二次感染中共病毒。目前已在隔离中。英国媒体报导，查尔斯确诊两天前，曾在温莎城堡（**Windsor**）见过女王伊丽莎白二世。**73**岁的查尔斯**2020**年**3**月首次验出病毒阳性反应，随后在女王位于苏格兰的巴尔莫勒尔堡（**Balmoral Castle**）隔离约一周。 查尔斯本应参加在英国西南部小镇温切斯特举行的纪念他母亲伊丽莎白女王登基**70**周年的活动。其办公室表示，查尔斯王子对不能参加该活动**”**深感失望**”**。**
 
-正如長尾和宏医生演讲时所说，病毒并不可怕，但是医学界对病毒渲染的恐慌是病毒本身的10倍，疫苗对人的伤害是病毒的100倍，但是最可怕的是人心，利欲熏心比病毒更可怕1000倍！另据独家消息，长尾和宏医生已经同意接受新中国联邦媒体的专访。本台将跟踪报道。
+**查尔斯王子的妻子卡米拉的检测结果呈阴性。幕僚人员表示，查尔斯再次感染病毒是经由例行检测发现的，他已经完整接种了所谓的疫苗。该事件再此说明，针对本轮大流行推出的中共病毒疫苗毫无防护效果可言！**
+**
 
-参考链接：
-1）[https://www.gettr.com/post/pu1olva507](https://www.gettr.com/post/pu1olva507)
-2）[https://www.gettr.com/post/pu1m2ic001](https://www.gettr.com/post/pu1m2ic001)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-总编：飞虹
-编辑：Zion文恩
-校正/发稿：呼吸的雾霾（文小呼吸）
+**推出问题，敲出真相，爆料在路上！**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**请关注和订阅我们的以下账号：**
+
+**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+
+**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+
+**玫瑰看新闻YOUTUBE账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**ROSE NEWS**
+
+**【玫瑰看新闻】推特账号**：
+
+**ROSE NEWS (@ROSENEWS4)A**
+
+**
+**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

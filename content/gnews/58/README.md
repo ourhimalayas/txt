@@ -2,26 +2,47 @@
 ---
 
 
-## 投机主义者谷爱凌跪舔中共图利益，海外辛劳华人无辜遭痛击
-` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1992651/)
+## 喜马拉雅日本银河系农场携战友为全球Hpay用户传递爱
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1993459/)
 
-新西兰伊甸农场Gnews组 财经G乐部-亚伦
+![](https://assets.gnews.org/wp-content/uploads/2022/02/封面-8.jpg)
+Hpay to the Moon🌙，Hpay  to the Galaxy🪐
 
-2月8日，代表中国出战的谷爱凌在北京冬奥会女子自由式滑雪大跳台决赛中夺冠，然而其在美国出生、长大和训练的过程和敏感的双重国籍身份，让这位投机的归化选手引发了国际热议。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/download-1-2.jpg)图片来源todayhot
+银河系向全球持有Hpay的战友或非战友问好，鉴于目前喜联储不支持美加日开设帐号的现状，而数字货币又是人类未来不可阻挡的大潮。
 
+为了推广喜币，让更多的人使用Hpay，银河系决定，为大家提供服务，我们建立了一支团队来帮助全球拥有Hpay的用户购买喜爱的日本产品。
 
-2月11日，郭文贵先生于GTV、Gettr大直播中做出回应，谷爱凌和她母亲不知感恩、耍小聪明的嘴脸，在双重身份上瞪眼撒谎是完全的投机利己主义者，并表示，此事对海外华人的伤害巨大。
+点对点付帐，您只要在网上能够找到的商品，我们帮助您购买及运输，所有费用都会提供日本法定发票。
 
-谷爱凌及母亲谷燕为了几百万美元广告费跪舔中共的吃相，就和当年原解放军中将谷俊山在酒桌上的一幕一模一样，只不过是精神上、金钱上的舔。当时谷俊山在酒后把裤子脱了当众让一位女明星（现在还很火）舔阳具，那位女明星屁颠而专业的手嘴配合舔得谷俊山大爽，当即答应提供3000万让其开演唱会。
+Hpay，将是世界无障碍流通手段，
 
-谷爱凌在美国出生、长大、训练，却中共国拿冠军。尤其在此刻，中共新疆大屠杀、种族灭绝罪、香港大屠杀、台湾危机、彭帅事件和徐州“锁链女”的档口，中共正好利用冬奥会的所谓正能量掩盖徐州的“锁链女”等罪行。中共通过“百人计划”、“千人计划”对西方假、骗、偷地渗透已经让西方世界的反华、甚至反亚裔情绪暗藏已久，谷爱凌事件给海外华人火上浇油地拉得新仇，谷爱凌及母亲谷燕也一定会为中共献身而付出更多的代价。
+Hpay，己是爆料革命战友传递爱和温暖的桥梁。
 
-谷爱凌及母亲谷燕与中共苟合、漠视公平与法律、玩弄规则，欺骗世界的结局只有灭亡。虽说利用拙劣的手段赢取暂时的胜利，但也是她个人灾难的开始。无奈的是还有为她所谓成功而抬轿高呼的无脑民众，不知此事对所有的海外华人都是伤害，对所有在海外上学的孩子都会产生巨大的威胁。北京冬奥会是中共举国体育碾压社会体育、个人体育的最好诠释，也为海外华人敲响了警钟。
+Hpay，更是所有人享受销费自由的唯一工具。
 
-除了归化海外军团，中共的黑手还延伸到冬奥会的裁判身上，在北京冬奥会的裁判正如中共治下的流氓法官一样，胆敢在全世界媒体面前公开地造假、错判、漏判。
+日本银河系将在日本法律，正道主义，全球联盟的监督下，服务全球持有Hpay人士并推广喜币。同时为我们的第二故乡日本的经济恢复出力，回馈社会，在日本树立优质的中国人形象，打倒中共，为美好明天，你我加油。🛍🛍
 
-据悉，在现场的奥林匹克高层女官员，面对北京冬奥会的现状接连唉声叹气。
+喜马拉雅日本银河系农场
+
+2022年2月11日
+![](https://assets.gnews.org/wp-content/uploads/2022/02/f715afda841d50a2c757d3852f7b91d8.jpg)
+撰稿：骄子 wung，Judy Lin，魔女Peace
+
+发布：黎明之前
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

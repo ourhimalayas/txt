@@ -2,38 +2,28 @@
 ---
 
 
-## 有声|立陶宛敦促全球抵制中共和俄罗斯
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2000286/)
+## 有声|谷爱凌被追问国籍闪烁其词 奥委会官网泄露秘密
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2000424/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-当地时间2月10日，据外国媒体报道，立陶宛高级外交官在访问澳大利亚期间向全球发出呼吁称，各国政府应该勇敢抵制中共和俄罗斯侵犯人权的行为，哪怕会因此付出代价。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide5-6.jpeg)
-立陶宛外交官建议道，全球目前应逐步减少对中共和俄罗斯的贸易与能源依赖，同时，部分国家需要建立基于自由民主原则的同盟伙伴关系。
+配音：香草山巡管部– 文凯琳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月8日，美国出生、代表中共国出征的奥运自由式滑雪运动员谷爱凌，在赢得金牌后的记者会上，回避了有关公民身份的问题。然而，奥委会官网暴露了谷双重国籍的事实。
 
-该外交官也表示，人们不应该对中共在新疆犯下的种族大屠杀保持沉默，反而应该持续向其发出质询。另一方面，中共还在新疆地区实施强迫劳动的暴行，而这种原则性问题绝不能被无视。如果全球因顾忌物价上涨因素而继续将中共新疆地区的相关产品纳入供应链中，那么每个人都将为强迫劳动带来的低廉商品付出代价。
+在为中国队夺得女子自由式滑雪大跳台冠军之后举行的新闻发布会上，谷爱凌多次被记者追问是否放弃了美国国籍来中国参赛。这位18岁的选手每次都回避了这个问题。她说，“我在美国的时候是美国人，在中国的时候是中国人。我的任务是促进国家之间的联系，而不是一种分裂的力量。”
 
-这位外交官还强调称，乌克兰如今正面临着如同台湾一般的困局，虽然立陶宛此前因与台湾的友好外交关系惹怒中共，但一定还有其他国家将效仿立陶宛的做法，加强与台湾的友好外交关系，这也是全球必然的趋势。
+文字版原文：[谷爱凌被追问国籍闪烁其词 奥委会官网泄露秘密](https://gnews.org/zh-hans/1995139/)
 
-文字版原文：[立陶宛敦促全球抵制中共和俄罗斯](https://gnews.org/zh-hans/1996199/)
+音频处理/发稿：Daxia
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,48 +2,36 @@
 ---
 
 
-## 喜马拉雅日本银河系农场携战友为全球Hpay用户传递爱
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1993459/)
+## 日本非政府组织支援出现人道主义危机的阿富汗
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1994307/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/封面-8.jpg)
-Hpay to the Moon🌙，Hpay  to the Galaxy🪐
+撰稿：东京樱花团/向海
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-3.jpg)[图片来源](https://news.un.org/zh/story/2021/10/1092342)
+日本雅虎新闻报道，阿富汗一半的土地覆盖着陡峭的山脉。12月至2月，部分地区气温降至-20摄氏度。
 
-银河系向全球持有Hpay的战友或非战友问好，鉴于目前喜联储不支持美加日开设帐号的现状，而数字货币又是人类未来不可阻挡的大潮。
+“没什么可吃的。但如果没有取暖就要挨冻。人们正在生死边缘，为了寻找柴火而长途跋涉。”
 
-为了推广喜币，让更多的人使用Hpay，银河系决定，为大家提供服务，我们建立了一支团队来帮助全球拥有Hpay的用户购买喜爱的日本产品。
+1月14日，当地人道主义非政府组织NGO“CWS　JAPAN”（东京）的男性工作人员萨菲（45岁）向朝日新闻在线采访时诉说。
 
-点对点付帐，您只要在网上能够找到的商品，我们帮助您购买及运输，所有费用都会提供日本法定发票。
+“CWS　JAPAN”在去年底通过众筹筹集的270万日元（约15万人民币），以当地货币阿富汗尼分发给楠格哈尔省东部75个失去收入，孩子营养不良的家庭。
 
-Hpay，将是世界无障碍流通手段，
+日本远程统筹业务的执行董事 小美野剛说：“由于每个家庭需要不同的物资，给付现金在这种紧急情况下非常有效。”
 
-Hpay，己是爆料革命战友传递爱和温暖的桥梁。
+过去获得过该帮助的萨菲先生本人，曾因苏军入侵阿富汗引发的动乱，于1981年与家人从阿富汗逃往邻国巴基斯坦。那时，我们在山里徘徊了将近两个星期，父亲不能动了。父亲说：“我晚点去，你先跑吧。”家人把他留在了那里。
 
-Hpay，更是所有人享受销费自由的唯一工具。
+后来，我在巴基斯坦再次见到了我的父亲，但之后的难民生活持续了 19 年。起初，他连帐篷都没有，生活在野外。
 
-日本银河系将在日本法律，正道主义，全球联盟的监督下，服务全球持有Hpay人士并推广喜币。同时为我们的第二故乡日本的经济恢复出力，回馈社会，在日本树立优质的中国人形象，打倒中共，为美好明天，你我加油。🛍🛍
+在阿富汗，由于担心塔利班的统治和导致土地干涸的干旱，境内流离失所者的人数再次增加。据联合国难民事务高级专员公署 (UNHCR) 称，去年有超过680,000人在国内无家可归。
 
-喜马拉雅日本银河系农场
+还有更多的担忧。根据萨菲先生的说法，一些家庭由于花光了所有积蓄，甚至欠债，无奈把孩子送到了有钱人家，据说还有卖孩子的情况。
 
-2022年2月11日
-![](https://assets.gnews.org/wp-content/uploads/2022/02/f715afda841d50a2c757d3852f7b91d8.jpg)
-撰稿：骄子 wung，Judy Lin，魔女Peace
+信息来源：
 
-发布：黎明之前
+[金欠で子ども売る家族も　人道危機のアフガン、日本のNGOが支援](https://news.yahoo.co.jp/articles/ab56ecd270b069c405cfd42be204e41cb5d7033f)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

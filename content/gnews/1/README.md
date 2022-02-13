@@ -2,12 +2,43 @@
 ---
 
 
-## 对中共国奥运队是否作弊的指责甚嚣尘上
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2000571/)
+## 今日盖特大V推荐 — 斯都·彼得斯（Stew Peters）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2000644/)
 
-02/11/2022 天空新闻网：随着冬奥会的进行，虽然没人看，但对中共国奥运队是否作弊的指责甚嚣尘上。奥运会从来都不是关于民族主义的，而是关于国际主义的。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1324-e1644773240996.png)
+盖特链接：[https://gettr.com/user/RealStewPeters](https://gettr.com/user/RealStewPeters)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1325.png)
+**斯都·彼得斯自述**：
 
-By:【秘密翻译组-精翻组 G-Translators/Elite Team】
+斯都·彼得斯秀主持人
+
+寻求真相的事实迷毫无歉意
+
+💯 正宗纯种美国爱国者🇺🇸
+
+网站Stewpeters.shop 👕
+
+图片来源：网络
+
+**斯都·彼得斯简介：**
+
+彼得斯于1980年出生于威斯康星州的拉克罗斯，是一位美国电台主持人和播客。 彼得斯以主持以播客为主的 Stew Peters Show 而闻名。
+
+他曾担任私人保释调查机构的高级调查员约20年。2021年3月，他改变了职业道路，开始在MoJo 5.0电台担任电台主持人。
+
+彼得斯因为反新冠疫苗，敢说真话，被油管和推特以散布“阴谋论”为由而删除。
+
+编撰：洛杉矶盘古农场 — 郭友(文苏)
+
+校审：洛杉矶盘古农场 — 心照
+
+发布：洛杉矶盘古农场 — 子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
