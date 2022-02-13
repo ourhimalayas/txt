@@ -2,32 +2,41 @@
 ---
 
 
-## 美印太战略应对中共威胁维护台海和平
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2000056/)
+## 英国王位继承人查尔斯王子第二次感染中共病毒
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2000095/)
 
-作者：纽约香草山 医疗部 云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月11日，美国白宫公布印太战略报告。 主要内容提及，美国将致力于应对中共对印太区域的威胁，维护台海和平稳定，帮助台湾自卫，及确保台湾民众可自由选择未来生活的方式，保障印太地区繁荣安全，捍卫美国及盟友在该区域的利益。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-13-上午10.06.53.png)
-报告指出，中共在印太区域持续增强扩张力度，不但以军事行动侵扰台海、南海，威胁各国在该区域自由航行的权利。 还积极对周边国家进行渗透侵略，使印太区域陷入不稳定状态。美国将在未来2年展开多项核心工作，包括在印太地区投入新资源、推动印太经济架构、加强威慑战力、强化东南亚国家协会、支持印度在区域内的发展、强化四方安全对话（Quad）、扩大美日韩合作、协助太平洋岛国持续发展等。
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image009.jpg)
+路透社报导，**2**月**10**日** **，英国克莱伦斯宫表示，查尔斯王子的中共病毒检测结果呈阳性，这是他第二次感染中共病毒。目前已在隔离中。英国媒体报导，查尔斯确诊两天前，曾在温莎城堡（**Windsor**）见过女王伊丽莎白二世。**73**岁的查尔斯**2020**年**3**月首次验出病毒阳性反应，随后在女王位于苏格兰的巴尔莫勒尔堡（**Balmoral Castle**）隔离约一周。 查尔斯本应参加在英国西南部小镇温切斯特举行的纪念他母亲伊丽莎白女王登基**70**周年的活动。其办公室表示，查尔斯王子对不能参加该活动**”**深感失望**”**。**
 
-为达成对中共的军事威慑力量，美国行政部门将与国会合作，为《太平洋威慑倡议》与《海事安全倡议》提供所需的资金。
+**查尔斯王子的妻子卡米拉的检测结果呈阴性。幕僚人员表示，查尔斯再次感染病毒是经由例行检测发现的，他已经完整接种了所谓的疫苗。该事件再此说明，针对本轮大流行推出的中共病毒疫苗毫无防护效果可言！**
+**
 
-参考链接：[美公布印太戰略 維護台海和平、威嚇軍事侵略](https://www.cna.com.tw/news/aopl/202202120010.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-总编：飞虹
-编辑：Zion文恩
-校正/发稿：呼吸的雾霾（文小呼吸）
+**推出问题，敲出真相，爆料在路上！**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**请关注和订阅我们的以下账号：**
+
+**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+
+**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+
+**玫瑰看新闻YOUTUBE账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**ROSE NEWS**
+
+**【玫瑰看新闻】推特账号**：
+
+**ROSE NEWS (@ROSENEWS4)A**
+
+**
+**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

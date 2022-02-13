@@ -2,47 +2,28 @@
 ---
 
 
-## 奥林匹克网站悄悄删除有关谷爱凌公民身份的信息
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2000462/)
+## 有声|称“数据不足” 辉瑞推迟婴幼儿疫苗接种申请
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2000489/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image009-1.jpg)
-关于美国出生的中共奥林匹克队明星谷爱凌公民身份之谜仍在燃烧。据悉，在谷爱凌获得北京冬奥委会第一枚金牌之后，两个奥林匹克网站删除了有关她公民身份相互矛盾的信息。
+配音：香草山巡管部– 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9D%A1%E5%B9%85.png)
+2月11日，辉瑞·拜恩特生物技术公司突然以“数据不足”为由，推迟了正在向美国食品和药物管理局提出的、针对6个月至4岁儿童的两剂中共病毒疫苗的授权申请。
 
-根据奥林匹克宪章第41条的规定，谷爱凌必须是中共国公民身份才能代表中共国参赛。但是，要归化成中共国公民，中共国籍法第8条规定，该人不能“保留外国国籍”。
+辉瑞公司声明，正在等待其第三针疫苗的测试数据，该数据预计于四月初公布。辉瑞公司称第三针“可能为这个年龄组提供更高水平的保护”。然而，该公司在去年12月份的数据表明，在2至4岁儿童的试验中，两剂疫苗没有产生应有的免疫反应。
 
-星期四（2月9日）之前，北京冬奥委会组委会的网站Beijing2020.cn 关于谷爱凌简历介绍中说：“2019年在她第一次在意大利获得世界杯金牌后，她放弃了美国国籍，加入中国国籍，以便能在2022年北京冬奥委会代表中国。”
+文字版原文：[称“数据不足” 辉瑞推迟婴幼儿疫苗接种申请](https://gnews.org/zh-hans/1998216/)
 
-星期四，这段话已经改成：“2019年在她第一次在意大利获得世界杯金牌后，她决定将代表中国参赛。”
+音频处理/发稿：Daxia
 
-谷爱凌在不同场合多次说过：“当我在美国，我是美国人；当我在中国，我是中国人。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-台湾新闻网站星期三在一份报导中提到，Olympics.com 网站在一篇题为“你不知道的谷爱凌的5件事”的文章中提到，谷爱凌具有“双重国籍”。
-
-这句话星期四也从文章中消失。中共国北京冬眠会已经成为名副其实的造假会！
-
-
-
-**推出问题，敲出真相，爆料在路上！**
-
-**请关注和订阅我们的以下账号：**
-
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
-
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
-
-**玫瑰看新闻YOUTUBE账号**：
-
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**ROSE NEWS**
-
-**【玫瑰看新闻】推特账号**：
-
-**ROSE NEWS (@ROSENEWS4)A**
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

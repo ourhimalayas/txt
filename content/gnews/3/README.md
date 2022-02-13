@@ -2,34 +2,41 @@
 ---
 
 
-## 有声|中共侵犯人權 立陶宛外長促各國站起來對抗
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2000475/)
+## 中共国突发新闻：沈阳一公交车爆炸1死42伤
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2000490/)
 
-配音：香草山巡管部– 文凯琳
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image015.jpg)
+据中央社报导，中共国沈阳市一辆公交车傍晚近6时在行驶中突然爆炸，现场一片狼藉，引发社会关注与热议。据沈阳警方晚间8时许通报，目前爆炸已造成1人死亡，42人轻重伤，事故原因正在调查中。
+
+据沈阳市公安局官方微博晚上8时16分通报，2月12日傍晚5时55分，指挥中心接到报警，一辆232路公交车行驶至皇姑区黄河南大街与宁山中路路口附近时发生爆炸。接到报警后，省、市领导及公安、应急、急救等部门人员第一时间赶到现场进行处置。据通报，目前，爆炸已造成1人死亡，2人重伤，40人轻伤。受伤人员已送医院救治，事故原因正在调查中。
+
+综合陆媒报导，今天傍晚5时52分，沈阳市皇姑区黄河大街一辆公交车发生爆炸，现场一片狼籍，公交车玻璃碎裂，有人受伤蹲地。现场目击市民称，爆炸时公交车内发出巨响，但没有起火。
+
+据悉，腾讯视频1月11日才播出“开端”，这是一部描述公交车爆炸的时空轮回剧。事件发生后，“沈阳一公交车爆炸”在微博阅读量迄今已破7500万，引发网友热议，不少人怀疑事件恐怕有罪犯要模仿该剧。
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-5.jpg)
+**推出问题，敲出真相，爆料在路上！**
 
+**请关注和订阅我们的以下账号：**
 
+**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
 
-目前正在澳大利亞出訪的立陶宛外長，敦促世界各國站起來對抗中共侵犯人權的行為，呼籲大家不要對這些問題「保持沉默」。他還提及了俄羅斯在烏克蘭邊境的軍事集結。
+**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
 
-在被問及世界各國對烏克蘭邊境危機和中國新疆地區普遍存在的侵犯人權行為的指控「缺乏具體反應」時，藍斯柏吉斯回應說，答案是人們不要對這些問題「保持沉默」。
+**玫瑰看新闻YOUTUBE账号**：
 
-文字版原文：[中共侵犯人權 立陶宛外長促各國站起來對抗](https://gnews.org/zh-hans/1995589/)
+**玫瑰看新闻**
 
-音频处理/发稿：Daxia
+**黑森林的故事**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+**ROSE NEWS**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+**【玫瑰看新闻】推特账号**：
+
+**ROSE NEWS (@ROSENEWS4)A**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
