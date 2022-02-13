@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/13/2022 2:00 AM (UTC)`
+
+2/12/2022 Miles Guo’s GETTR: How to make big decisions in your life? In addition to seeing through life and death and letting go of fear, you should also make independent judgment without being influenced by others. You can do whatever you decide to do so long as you feel in your heart that your decision is meaningful, right, and will not hurt others or can help others.<br/><br/>2/12/2022 文贵盖特：回答战友关于如何做出人生重大决定的问题，除了看透生死、放下恐惧，还要独立判断、不受他人影响，只要是你内心觉得有意义的、正确的、不伤害别人或能帮助别人的都可以做<br/>
+![img](https://media.gettr.com/group16/getter/2022/02/13/02/4d1086ac-8769-32b3-d14b-fc9063928dc9/out.jpg)
+
+---
+
+`@miles 2/13/2022 1:55 AM (UTC)`
+
+2/11/2022 Miles Guo: I will get to the bottom of everything about Weijian Shan and PAG. The CCP has trampled on the international rules. The more the CCP infiltrates, attacks, and falsifies in the West, the worse the CCP will end up. Coups are taking place in many African countries, and the anti-CCP forces will replace those pro-CCP forces.<br/><br/>2/11/2022 文贵直播：文贵必将把单伟健和PAG的事情整明白；中共践踏国际规则，在西方的渗透、攻击和造假越多，中共下场越惨；非洲多国在发生政变，反共势力将取代亲共势力
+![img](https://media.gettr.com/group18/getter/2022/02/13/01/345aa676-5510-85ca-964f-8cd80bd3ebc7/out.jpg)
+
+---
+
 `@miles 2/13/2022 1:25 AM (UTC)`
 
 2/11/2022 Miles Guo: Eileen Gu and Gu Yan are instigating hatred against the Chinese people, pitting the Asians against the entire world and stirring up anti-Chinese sentiment. How many chained women are there in Communist China? The CCP’s Foreign Ministry is lying about the chained woman, while the Chinese people are all silent. For me, doing a live broadcast is to fight against the dark forces by risking my life.<br/><br/>2/11/2022 文贵直播： 谷爱凌和谷燕给中国人拉仇恨，让亚裔跟全世界对立，掀起了排华浪潮；中共国有多少铁链女？中共外交部撒谎而人们却集体沉默；文贵的直播是用生命跟黑暗作斗争<br/>
@@ -140,20 +154,6 @@
 
 2/10/2022 Miles Guo’s GETTR: Anyone colluding with the CCP will inevitably be punished. Fellow fighters should strictly adhere to the principles of justice, morality, and the law. In the face of the CCP's global campaign going after me, I am risking my life to do the live broadcasts, hoping that fellow fighters will understand that it is not easy to take down the CCP<br/><br/>2/10/2022 文贵盖特：任何跟中共勾兑的人都逃不被制裁的命运；战友们要严守正义、道德和法律的原则；面对中共在全球的围追堵截，文贵冒着生命危险在直播，望战友们理解灭共的不容易<br/>
 ![img](https://media.gettr.com/group20/getter/2022/02/11/01/e6267e31-a3a4-0242-fd02-fa2e2072f987/out.jpg)
-
----
-
-`@miles 2/11/2022 1:54 AM (UTC)`
-
-2/9/2022 Miles Guo: After Putin turned against the CCP during the Winter Olympics, Europe immediately extended an olive branch to him. Russia will surely sell out the CCP, while Europe will also kick the ass of the CCP. Anyway, it is always the Chinese people who will bear the cost.<br/><br/>2/9/2022 文贵直播：普京在冬奥会跟中共翻脸后，欧洲随即伸出橄榄枝；俄罗斯必将出卖中共，欧洲也会在背后踢中共一脚！不论如何，牺牲的都是中国人的血汗钱！<br/>
-![img](https://media.gettr.com/group16/getter/2022/02/11/01/2dbdb4ef-1832-dfd2-1bc5-de51d2b342c0/out.jpg)
-
----
-
-`@miles 2/11/2022 1:52 AM (UTC)`
-
-2/10/2022 Miles Guo’s GETTR: Eileen Gu and her mother are wrecked and taken advantage of by the CCP to act on behalf of Communist China. The CCP does not respect the rules, laws, and morality, and the Winter Olympics have done great harm to both the athletes and the natural environment. What will it take for the Chinese people kidnapped by the CCP to gain the respect of the West?<br/><br/>2/10/2022 文贵盖特：谷爱玲母女竟被中共玩弄和利用去代表中共国；中共不尊重规则、法律、道德，冬奥会对运动员和自然环境造成了巨大的伤害，中共绑架的中国人要怎么才能得到西方的尊重呢？<br/>
-![img](https://media.gettr.com/group33/getter/2022/02/11/01/46e23ccf-bc63-d229-b24c-4ca877b254ed/out.jpg)
 
 ---
 
