@@ -2,39 +2,37 @@
 ---
 
 
-## 2022.2.13大直播后记：大卡车运动来源于七哥
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2001260/)
+## 有声|中华民国再指中共对台统战
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2001317/)
 
-**整理：清水冷香、Lucy Liu
-编辑：Candy**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/13-5.png)
-我今天告诉你们，下次直播的时候，不会超过3次直播，你会看到世界一切都变了。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+当地时间2月10日，据台湾媒体报道，中华民国大陆委员会当天发布声明表示，台湾政府已经注意到中共近期正在加强针对台湾民众的促统认知作战，包括积极策划对在陆台胞进行的各种统战宣传工作。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-8.49.26-PM.png)
+陆委会指出，中共的这一系列行为都是企图遂行其对台统战分化的图谋。为此，台湾当局希望国民能够珍惜自由的生活，并认清中共既打又拉的手段与野心。
 
-有些绝密的话不能在这说，你们不知道你们跟我一起经历的人类的巨变。很有可能下次直播之前，也可能下两次直播，一定是这些。我已经说很长时间了，再说你们睡着了。你们说吧，交给小飞象主持人。
+陆委会副主任邱垂正还解释道，中华民国是主权国家，台湾更是对自由民主的体制充满信心，其从来都不是中共国的一部分。同时，绝大多数的国民既不会配合中共的统战作为，更不会附和其意识形态与政治立场。相反的，中共拉拢并分化台湾社会只会让台湾民众徒增反感。
 
-“我有一帘幽梦，不知与谁能共……”哎呀，我一看歌词就想唱，咋弄你说。这世界太美好， 就咱家好！你说，这时候咱要不唱两句吧，对不起自己；唱多了吧，对不起全世界。 这很尴尬，是吧？别人说，你说相声吗？ 你是自淫。
+另外，针对美国对台出售爱国者导弹系统一事，邱垂正强调，中华民国有权与包含美国在内的国际社会进行广泛的合作，也绝不会接受中共国台办、外交部和军方的错误威胁言论。邱垂正也要求中共当局立即停止对台湾的挑衅与威胁行径。
 
-但现在是真的，就是咱家好！
+文字版原文：[中华民国再指中共对台统战](https://gnews.org/zh-hans/1994834/)
 
-我想跟大家说大卡车这个事情，就用最简单的三句话告诉大家：
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-所有的大卡车在法国和加拿大的这场运动，就是来源于我们香港七哥策划的当年的香港运动。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-刚才的PPT，听着我想哭，最后我先唱一唱吧，安慰我这已经被你们伤害的心——世界上大卡车运动，发起人只有爆料革命、新中国联邦Miles Guo，你们都忘了。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-第二句话，大卡车运动是开启世界上一个和平的、对抗暴政的、让人类走向新的民主的方式，绝对的方式。
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-第三，大卡车运动的本质，是把现代和未来的经济，完整地、完美地和政治运动、和独裁政治彻底地联合在一起。意义之非凡，价值之深远，你们没有一个战友解释得了。
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-过去几周来，我一直偷偷地流泪，今天必须告诉你。
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-***发布：Candy***
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
