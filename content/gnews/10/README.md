@@ -2,8 +2,8 @@
 ---
 
 
-## 海牙荷兰反疫苗授权
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2000057/)
+## 奧地利抗議加劇 病例激增 國家出現兩極分化
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2000224/)
 
 作者：东京樱花团小视频组
 

@@ -2,8 +2,8 @@
 ---
 
 
-## 意大利的里雅斯特反疫苗通行证
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2000001/)
+## 海牙荷兰反疫苗授权
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2000057/)
 
 作者：东京樱花团小视频组
 

@@ -2,23 +2,24 @@
 ---
 
 
-## 有声|疫苗灾难绝对比你们想象的大的多
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1999961/)
+## 美印太战略应对中共威胁维护台海和平
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2000056/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-2月9日在”文贵大直播”期间说到，王濛解说中让韩国运动员多打几针疫苗，这把全中国人都裹进去了；疫苗这件事情体验了人心、人的洞察能力和所有中国人对事情的看法。
+作者：纽约香草山 医疗部 云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月11日，美国白宫公布印太战略报告。 主要内容提及，美国将致力于应对中共对印太区域的威胁，维护台海和平稳定，帮助台湾自卫，及确保台湾民众可自由选择未来生活的方式，保障印太地区繁荣安全，捍卫美国及盟友在该区域的利益。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-13-上午10.06.53.png)
+报告指出，中共在印太区域持续增强扩张力度，不但以军事行动侵扰台海、南海，威胁各国在该区域自由航行的权利。 还积极对周边国家进行渗透侵略，使印太区域陷入不稳定状态。美国将在未来2年展开多项核心工作，包括在印太地区投入新资源、推动印太经济架构、加强威慑战力、强化东南亚国家协会、支持印度在区域内的发展、强化四方安全对话（Quad）、扩大美日韩合作、协助太平洋岛国持续发展等。
 
-全世界的科学杂志、知识界和所谓严肃媒体都叫你认真地打疫苗，直到打死为止，这和共产党是如出一辙。
+为达成对中共的军事威慑力量，美国行政部门将与国会合作，为《太平洋威慑倡议》与《海事安全倡议》提供所需的资金。
 
-你没打疫苗，是一生中唯一的最大最正确的决定。打了疫苗的家人，请赶快吃青蒿素，伊维菌素。世界上的政治，经济疫苗灾难，超出你想象的很多倍。我们爆料革命不灭中共，它自己都会被灭了，百分之一万地会被灭得干干净净。
+参考链接：[美公布印太戰略 維護台海和平、威嚇軍事侵略](https://www.cna.com.tw/news/aopl/202202120010.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-文字版原文：[疫苗灾难绝对比你们想象的大的多](https://gnews.org/zh-hans/1995537/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-音频处理：Fei797
-发稿：Fei797
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+总编：飞虹
+编辑：Zion文恩
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

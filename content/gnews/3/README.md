@@ -2,16 +2,16 @@
 ---
 
 
-## 有声|巴西发现Omicron BA.2次变异株
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2000279/)
+## 有声|美警告中共勿支持俄罗斯侵犯乌克兰
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2000392/)
 
 配音：香草山巡管部– 文凯琳
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月8 日媒体报导，巴西卫生部报告已经收到7例Omicron次变异株BA.2的病例通知。
+台媒报道，当地时间2月6日，美国白宫安全顾问苏利文表示，最快在未来几周、甚至几天内，俄罗斯将侵犯乌克兰。为此他警告中共当局，如果中共支持俄罗斯的侵略行为，将付出惨重代价。
 
-此BA.2次变异株已经在世界上近60个国家被发现，目前所知它的传播力比原始Omicron病毒株更强，需高度关切。 BA.2次变异株是在去年11月首次由菲律宾提出报告，目前在有些国家已经占了中共病毒感染一半以上的病例。在丹麦、印度、德国皆有快速增加的病例，在美国也已经有近半数的州发现此BA.2次变异株。丹麦国家血清研究所(Statens Serum Institut)初步发表的数据显示，BA.2传播力较Omicron原病毒株BA.1强1.5倍。 Omicron目前已知有包括BA.1，BA.2，BA.3、B.1.1.529等四种谱系。虽然BA.1和BA.2结构相似，但它们相差了20个突变。BA.2已经在快速取代BA.1成为主要病毒株。关于BA.2的致病强度，据目前所掌握的数据，没有足够的证据来确定BA.2是否比Omicron BA.1更容易引起严重的疾病。此点需要密切观察。
+苏利文称虽然冬奥会习近平与普京会面后，所发声明未提及乌克兰，显示中共对于俄罗斯侵略乌克兰的态度，并不积极支持。他还是要正告中共，不要有进一步动作。
 
-文字版原文：[巴西发现Omicron BA.2次变异株](https://gnews.org/zh-hans/1992828/)
+文字版原文：[美警告中共勿支持俄罗斯侵犯乌克兰](https://gnews.org/zh-hans/1995138/)
 
 音频处理/发稿：Daxia
 
@@ -24,8 +24,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

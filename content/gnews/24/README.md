@@ -2,10 +2,10 @@
 ---
 
 
-## 绥中县疫情爆发被封城
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/1999925/)
+## 柏林举行了声势浩大的游行
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2000035/)
 
-撰稿：东京樱花团小视频组
+作者：东京樱花团小视频组
 
 *编辑：东京樱花团小视频组
 发布：东京樱花团小视频组*

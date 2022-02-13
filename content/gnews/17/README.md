@@ -2,55 +2,92 @@
 ---
 
 
-## 有声|2022年1月国际社会对中共的打击制裁汇总与分析
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2000006/)
+## 中共拒绝就发动生物武器战争赔偿 主动向美国发起进攻
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2000091/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-摘要：据不完全统计，在2022年1月1日-1月31日的一个月时间，国际社会对中共的打击制裁次数有7次，其中5次由美国发起、另2次由欧洲发起。
+作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏）
 
-2022年1月，国际社会对中共的打击制裁的形式有三种：第一、议会提案和动议4次，包括《2022年新冠病毒法》、《2022年恢复基本能源和稀土在岸安全储备法案》、《2022年美国竞争法》的提案和指出中共在新疆犯下“反人类罪和种族灭绝罪”的动议；第二、议会决议1次：《关于香港侵犯基本自由》的决议案；第三、美国政府对中共企业实施的具体制裁2次，包括对航天科技集团第一研究院、中国航天科工集团第四研究院、保利科技股份有限公司和中国联通的制裁。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Unknown-2.jpeg)
-一月份国际社会对中共的打击制裁的内容涵盖多个当下国际社会最关注的问题。既有对中共新冠病毒真相溯源的强烈要求，又有对中共在新疆犯下“反人类罪和种族灭绝罪”的国际共识，还有对中共侵犯香港基本自由的密切关注；既有对中共军事科研机构的制裁，又有对中共军工企业的制裁，还有对中共通信公司的制裁。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-从一月份国际社会对中共的打击制裁上可以看到三点：一是对中共新冠病毒真相溯源的诉求已经由民众和媒体层面上升到了议会层面；二是中共在新疆犯下“反人类罪和种族灭绝罪”已经成为国际共识并不断发酵；三是中共对人类安全的威胁已经受到美国的高度重视，美国正在以国家安全为由对中共进行多方位打击制裁。
+截止到美东时间2022年2月13日早上6点21分，中共向全世界发动的这场生化武器战争已经导致全球4.1亿人感染，杀死5,81万人，仅美国就有7,771万人感染，92万人被虐杀。
 
-附录：2022年1月国际社会对中共的打击制裁一览表
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-13_22-52-51.png)
 
-1、2022年1月11日，参议院情报委员会副主席、来自佛罗里达州的共和党籍联邦参议员鲁比奥（Sen. Marco Rubio, R-FL）与15位共和党人联手推出《2022年新冠病毒法》（COVID Act of 2022）。根据法案内容，如果中国共产党持续不允许国际调查进入在武汉的实验室针对新冠疫情起源问题展开可信且全面的调查，法案将在生效90天后授权美国政府对中国有关人员进行制裁。法案指出，制裁对象包括中国中科院及其附属机构和实验室的领导层及其家人，其中包括武汉病毒研究所。《新冠病毒法》还将暂停所有学术领域对涉及与中科院合作研究的联邦研究资金补助，并禁止联邦资助用于任何美国个人或机构与在中国的对等单位进行新冠病毒的功能增益研究（gain-of-function virus research）。制裁内容包括禁止有关人员所有在美国的财产和权益交易、禁止向他们颁发签证和入境美国，以及吊销现有有效签证。
+无论中共如何狡辩，对中共病毒进行溯源调查，追究CCP向世界投放COVID-19病毒，发动生化武器战争，对全世界人民的生命和世界经济巨大破坏的责任，是共惨党无法绕过的问题。
 
-2、2022年1月14日，美国参议院两党议员推出的一项立法
+2021年12月19日，美国前总统唐纳德·川普在参加Maria Bartiromo主持的福克斯新闻Sunday Morning Futures节目时再次谈到，COVID-19的起源于武汉实验室非常明显，任何不同意这一点的人都是在自欺欺人，中共国应对COVID-19大流行的全球蔓延负责。他呼吁中共国为全球疫情造成的损失支付60万亿美元。
 
-《2022年恢复基本能源和稀土在岸安全储备法案》(Restoring Essential Energy and Security Holdings Onshore for Rare Earths of 2022)，将迫使国防承包商在2026年底前停止从中国购买稀土，并利用五角大楼建立这个战略矿产的永久储备。这个由阿肯色州共和党籍参议员汤姆·科顿(Tom Cotton)和亚利桑那州民主党籍参议员马克·凯利(Mark Kelly)发起的法案，是美国一系列旨在阻止中国近乎控制该领域的列立法议案中的最新一项。这项议案基本上是利用五角大楼对价值数十亿美元的战斗机、导弹和其他武器的采购作为杠杆，来要求承包商停止依赖中国，进而支持美国稀土生产的复苏。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/tchx.jpg_1718483346.jpg)
 
-3、2022年1月20日，欧洲议会以585票赞成、46票反对和41票弃权通过《关于香港侵犯基本自由》的决议案，首次要求欧盟委员会检视香港在世界贸易组织（World Trade Organization）的会籍，并就香港人权及言论自由被指恶化强烈遣责、呼吁制裁相关官员，以及敦促欧盟抵制北京冬奥。
+在这之前，全世界已经有很多国家就中共故意传播冠状病毒，向法院提起诉讼，要求赔偿。
 
-4、2022年1月20日，法国国民议会通过了一项不具约束力的动议，指出中国当局对新疆维吾尔穆斯林少数民族犯下“反人类罪和种族灭绝罪”，并敦促法国当局谴责北京。这项以169票对1票获得压倒性通过的动议是由社会党人和其他在野党领导的。除了谴责中国，该动议还敦促政府保护法国的维吾尔族裔移民社区免受中国的骚扰。
+2020年3月12日，佛罗里达州The Berman Law Group律师事务所向佛州南区法院就中共国、湖北省、武汉市和多个中共国政府部门提起集体诉讼《[THE BERMAN LAW GROUP FILES CLASS ACTION COMPLAINT AGAINST THE CHINESE GOVERNMENT FOR THEIR FAILURES TO CONTAIN THE CORONAVIRUS](https://www.bermanlawgroup.com/practice-area/class-action/coronavirus-class-action/)》，参与的人数逾1万人，总计索赔金额约6万美元。
 
-5、2022年1月21日，美国国务院决定根据经修订的《武器出口管制法》和经修订的《1979年出口管理法》、以从事导弹技术扩散活动为由，宣布对中国航天科技集团第一研究院、中国航天科工集团第四研究院、保利科技股份有限公司及其下属单位和继任（后续）公司实施制裁。
+2020年3月18日，美国前司法部检察官，保守法律组织Freed‧m Watch创办人克莱曼Larry Klayman向德克萨斯州联邦法院提起诉讼《[CLASS ACTION COMPLAINT CONCERNING MASSIVE DAMAGE CAUSED BY DEFENDANTS AS A RESULT OF CLOVID-19 RELEASE FROM AN ILLEGAL AND INTERNATIONALLY OUTLAWED BIOWEAPONS FACILITY IN THE CITY OF WUHAN OF THE PEOPLE’S REPUBLIC OF CHINA](https://www.freedomwatchusa.org/pdf/200317-CoronavirusFILEDComplaint177113137478.pdf)》，要求从中共国政府因为其“冷酷、鲁莽的冷漠和恶意行为导致新冠病毒大游行”赔偿至少20万亿美元。
 
-6、美国众议院1月25号提出《2022年美国竞争法》，主要为了加强美国竞争力并且抗衡中国，当中也包括一亿美元对抗北京审查与假资讯、强化对台关系、呼吁将台湾驻美代表处改名等条款。
+2020年4月20日，美国Missouri检察总长Eric S.Schmitt向在美国密苏里州地区法院东部地区东南部分院就中共国政府、国家卫建委、武汉病毒研究所等部门隐瞒疫情、涉嫌囤积医疗装备，致使该州蒙受高达至少数十亿美元的经济损失提起诉讼《[Case: 1:20-cv-00099](https://ago.mo.gov/docs/default-source/press-releases/2019/prc-complaint.pdf?sfvrsn=86ae7ab_2)》，推定赔偿金额数十亿美元。
 
-7、2022年1月27日，美国联邦通信委员会发布命令，以国家安全为由将中国联通美洲公司列入违规名单，并终止其在美国的经营授权，还要求该公司在命令发布的60天内停止在美的任何经营。
+2020年4月5日，英国智库Henry Jackson Society协会公布44页的《[CORONAVIRUS COMPENSATION? ASSESSING CHINA’S POTENTIAL CULPABILITY AND AVENUES OF LEGAL RESPONSE](https://henryjacksonsociety.org/wp-content/uploads/2020/04/Coronavirus-Compensation.pdf)》报告，指控中共违反国际法，造成新冠疫情全球扩散，给各国带来重大损失。报告建议，国际社会应追究中共责任，通过国际法庭等10种法律途径向中共索赔，以维护基于规则的国际秩序，仅G7国家索赔金额就高达6.5万亿美元。
 
-文字版原文：[2022年1月国际社会对中共的打击制裁汇总与分析](https://gnews.org/zh-hans/1993436/)
+2020年4月21日，意大利非盈利组织ONEurope Onlus成立了“[COVID19 Class Action](https://www.covid19classaction.it/join-covid19-class-action/)”的联名网站，预估连名人数将超过50万人，并计划索赔1000亿欧元（约1080亿美元）。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+同一天，意大利北部知名滑雪胜地柯蒂纳戴比索De La Poste酒店，向意大利法院提起对中共国卫生部门的赔偿诉讼，要求中共卫生部门承担没有及时向世卫组织报告新冠病毒的传播状况、故意隐瞒的严重致命影响及2019年11月和2019年12月，未对离境旅客采取必要的管控措施承担赔偿责任。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+2020年4月23日，意大利消费者权益保护协会（Codacons）与美国律师事务所 Kenneth B. Mol发表倡议《[PREADERISCI GRATUITAMENTE ALL’AZIONE DEL CODACONS DI RISARCIMENTO DANNI CONTRO LA CINA, PER LE GRAVI RESPONSABILITA’ ED OMISSIONI NEL CONTRASTO DELLA DIFFUSIONE DEL COVID 19](https://codacons.it/risarcimento-cina/)》，决定对中共国可能承担故意传播与隐瞒COVID-19病毒的责任进行调查，并正在考虑对所有意大利公民在中共国、意大利或美国受到损害提出索赔。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+2020年4月7日，埃及律师Mohamed Talaat向中共国驻开罗大使馆及中共国家主席警告，他将向国际法庭提起法律诉讼，要中共国就新冠疫情对埃及造成的伤害赔偿10万亿美元。中共驻埃及大使馆律师立即给Mohamed Talaat打电话，要求和他见面，被Mohamed Talaat律师拒绝。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1.gif)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+2020年4月27日， 由Azinge and Azinge牵头的尼日利亚律师团体就中共故意传播状病毒，造成很多人失去生命、经济遭扼杀、创伤、苦难、社会迷失方向、精神折磨及尼日利亚民众日常生活所受破坏，向法院提出集体诉讼，要求中共国赔偿2000亿美元。
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+澳洲“太阳先驱报（The Sun-Herald）”报道，超过1000名澳洲人士拟向中共国采取索赔行动，索赔金额超过10万亿澳币，折合6.5万亿美元。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+印度律师协会称，已将中国政府告上联合国人权理事会，要求中方就隐瞒疫情导致病毒全球大流行，追讨20万亿美元的赔偿。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-13_23-00-38.png)
+
+2020年4月15日，德国《图片报》刊文，指责中共未遵守对世界卫生组织（WHO）的信息通报义务，隐瞒冠状病毒大流行的行为已违反国际法，并详细算出中共国仅2020年3月、4月份对德国各行业造成的遗失，就应赔偿1490亿欧元、约合1602亿美元。
+
+根据金一南在《[庚子之奇耻，国人当自醒！](http://www.kunlunce.com/e/wap/show.php?classid=176&amp;id=148490)》演讲中提到的数字，仅6个国家曾向中共国提出过的索赔总额，就高达200万亿美元。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-13_23-18-06.png)
+
+目前，中共病毒在全球新增感染病例越来越多，未来向中共国提出赔偿的何止6个国家，恐怕最少也是150个国家。按照中共的预计，最少是1000万亿美元。即使按照中共宣称的目前全国人口14亿人，平均每个中国人要分摊71万美元，相当于500万人民币！
+
+中共一直拒绝赔偿。2021年12月30日，中共外交部发言人赵立坚在回答“中国在应对新冠肺炎疫情中的失职”要求赔偿中说，“中方在应对新冠肺炎疫情方面是无可指责的，对中国的所谓疫情滥诉和指责都只会是一场闹剧。”
+
+中共喉舌《侠客岛公众号》称，“[西方扬言“向中国索赔”？门儿都没有！](https://cn.chinadaily.com.cn/a/202004/23/WS5ea0d743a310c00b73c78fc7.html)”。习猪头死猪不怕开水烫的嘴脸暴露无遗。
+
+中共从来没有停止过把病毒溯源问题复杂化，混淆视听！中共甚至要求主动追究美国的责任！
+
+除了中共外交部、人民日报、央视等媒体，中共智库《[昆仑策](https://www.kunlunce.com/)》和中共军事门户《[西陆网](http://shizheng.xilu.com/)》几乎每月都会发表一篇文章，要求“[新冠病毒溯源这场仗，中国该主动发起进攻了！](http://shizheng.xilu.com/20220213/1000010001199067_4.html)”。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2fe73bd071e83f1ec5c3b34c72e71972.jpg)
+
+参考数据：
+
+[THE BERMAN LAW GROUP FILES CLASS ACTION COMPLAINT AGAINST THE CHINESE GOVERNMENT FOR THEIR FAILURES TO CONTAIN THE CORONAVIRUS](https://www.bermanlawgroup.com/practice-area/class-action/coronavirus-class-action/)
+
+[CLASS ACTION COMPLAINT CONCERNING MASSIVE DAMAGE CAUSED BY DEFENDANTS AS A RESULT OF CLOVID-19 RELEASE FROM AN ILLEGAL AND INTERNATIONALLY OUTLAWED BIOWEAPONS FACILITY IN THE CITY OF WUHAN OF THE PEOPLE’S REPUBLIC OF CHINA](https://www.freedomwatchusa.org/pdf/200317-CoronavirusFILEDComplaint177113137478.pdf)
+
+[COVID19 Class Action](https://www.covid19classaction.it/join-covid19-class-action/)
+
+[CORONAVIRUS COMPENSATION? ASSESSING CHINA’S POTENTIAL CULPABILITY AND AVENUES OF LEGAL RESPONSE](https://henryjacksonsociety.org/wp-content/uploads/2020/04/Coronavirus-Compensation.pdf)
+
+[Case: 1:20-cv-00099](https://ago.mo.gov/docs/default-source/press-releases/2019/prc-complaint.pdf?sfvrsn=86ae7ab_2)
+
+[新冠病毒溯源这场仗，中国该主动发起进攻了！](http://shizheng.xilu.com/20220213/1000010001199067_4.html)
+
+[庚子之奇耻，国人当自醒！](http://www.kunlunce.com/e/wap/show.php?classid=176&amp;id=148490)
+
+[中国应主动进行新冠病毒溯源，不能排除美国是病毒源头](https://www.kunlunce.com/ssjj/fl11/2022-01-05/157932.html)
+
+[PREADERISCI GRATUITAMENTE ALL’AZIONE DEL CODACONS DI RISARCIMENTO DANNI CONTRO LA CINA, PER LE GRAVI RESPONSABILITA’ ED OMISSIONI NEL CONTRASTO DELLA DIFFUSIONE DEL COVID 19](https://codacons.it/risarcimento-cina/)
+
+[西方扬言“向中国索赔”？门儿都没有！](https://cn.chinadaily.com.cn/a/202004/23/WS5ea0d743a310c00b73c78fc7.html)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 
