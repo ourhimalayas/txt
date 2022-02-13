@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/13/2022 7:43 AM (UTC)`
+
+2/11/2022 Miles Guo: Eileen Gu doesn’t have faith, and she is hypocritical, selfish, despicable, and ungrateful. Eileen Gu disobeys the law, makes things up, lies through her teeth, and kowtows to the CCP shamelessly. Why do all the democratic countries in the world boycott the Winter Olympics?<br/><br/>2/11/2022 文贵直播：谷爱凌没有信仰、虚伪、自私、卑鄙、不懂得感恩，她无法无天、完全造假、瞪眼撒谎，无耻地跪舔中共却抹黑养大自己的美国；为什么全球的民主国家都反对冬奥会？
+![img](https://media.gettr.com/group33/getter/2022/02/13/07/16d54a09-60ba-9514-0d15-6f02794d1c15/out.jpg)
+
+---
+
 `@miles 2/13/2022 2:00 AM (UTC)`
 
 2/12/2022 Miles Guo’s GETTR: How to make big decisions in your life? In addition to seeing through life and death and letting go of fear, you should also make independent judgment without being influenced by others. You can do whatever you decide to do so long as you feel in your heart that your decision is meaningful, right, and will not hurt others or can help others.<br/><br/>2/12/2022 文贵盖特：回答战友关于如何做出人生重大决定的问题，除了看透生死、放下恐惧，还要独立判断、不受他人影响，只要是你内心觉得有意义的、正确的、不伤害别人或能帮助别人的都可以做<br/>
@@ -147,13 +154,6 @@
 
 2/10/2022 Miles Guo’s GETTR: The CCP uses the law to manipulate and change the rules of the game around the world. During the Winter Olympics, the CCP quarantined athletes in the name of doing COVID testing so they could not compete, and the CCP had used the same rogue tactics to fabricate charges against me. We must let the world know the truth about PAG and UBS by using the law in a legal way.<br/><br/>2/10/2022 文贵盖特：中共利用法律在全世界操纵和改变游戏规则；中共在冬奥会用检测的名义让运动员隔离，导致其无法比赛，中共用同样的流氓手段给文贵罗织罪名；我们要合理地使用法律让世界知道关于PAG和UBS的真相！<br/>
 ![img](https://media.gettr.com/group41/getter/2022/02/11/02/a5d22859-40e5-029b-834d-c1b7b573cd7f/out.jpg)
-
----
-
-`@miles 2/11/2022 1:56 AM (UTC)`
-
-2/10/2022 Miles Guo’s GETTR: Anyone colluding with the CCP will inevitably be punished. Fellow fighters should strictly adhere to the principles of justice, morality, and the law. In the face of the CCP's global campaign going after me, I am risking my life to do the live broadcasts, hoping that fellow fighters will understand that it is not easy to take down the CCP<br/><br/>2/10/2022 文贵盖特：任何跟中共勾兑的人都逃不被制裁的命运；战友们要严守正义、道德和法律的原则；面对中共在全球的围追堵截，文贵冒着生命危险在直播，望战友们理解灭共的不容易<br/>
-![img](https://media.gettr.com/group20/getter/2022/02/11/01/e6267e31-a3a4-0242-fd02-fa2e2072f987/out.jpg)
 
 ---
 

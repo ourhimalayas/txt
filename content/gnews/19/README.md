@@ -2,27 +2,30 @@
 ---
 
 
-## 有声|2022年2月10日 晚 新中国联邦新闻、GTV新闻访谈简报
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1998082/)
+## 英国发现新型混合变异株德尔塔克戎案例
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1998152/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-9.png)
+撰稿：东京樱花团/asket
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/英国发现新型混合变异株德尔塔克戎案例.png)[**图片来源**](https://www.ntdtv.com/b5/2022/02/12/a103346503.html)
 
-文字版原文：[2022年2月10日 晚 新中国联邦新闻、GTV新闻访谈简报](https://gnews.org/zh-hans/1987578/)
+日前英国《每日邮报》（daily mail）报导，英国卫生安全局（UKHSA）最近发布的每周更新显示，在英国境内已经发现了感染混合变异株Deltacron的病例。而早在一个月前，塞普勒斯曾宣布发现一种疑似由奥密克戎（Omicron）和德尔塔（Delta）变种组合形成的德尔塔克戎（Deltacron）新变种毒株，但当时专家们认为那是实验污染所致。
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+报导说，现在英国境内发现的Deltacron相关感染病例数量“还很低”，还不清楚这一毒株到底是从海外传入还是在英国本土出现的。UKHSA官员表示，至今还不知道这种新变种感染力有多强，或有多严重，也还不能确认它是否会影响疫苗性能。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+不过，报导引述东英吉利大学传染病专家保罗．亨特教授的观点称，因为英国人对Omicron和Delta变异株已经具备了很高的免疫力，所以这种病毒“应该不会构成太大的威胁”，不必过度担心。亨特说：“如果Delta和Omicron都在下降，那麽理论上，这个‘变体’应该难以造成大规模疫情。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+近日，英国的中共病毒（COVID-19）疫情呈现出明显消退的状态，每日确诊病例、死亡人数和住院人数均持续下降。在这一轮大流行中，英国发现了几种“重组”变体，但它们都没有导致爆发更严重疫情。
+
+目前，还没有专家证实，英国发现的Deltacron毒株与当初塞普勒斯发现的那些疑似混合变异株，是否为相同毒株。
+
+信息来源：
+
+[**英媒：英國發現新型混合變異株德爾塔克戎案例**](https://www.ntdtv.com/b5/2022/02/12/a103346503.html)
+
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

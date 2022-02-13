@@ -2,47 +2,26 @@
 ---
 
 
-## 俄罗斯入侵迫在眉睫，澳大利亚撤离基辅大使馆
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1998183/)
+## 美国多个州正在推动立法，允许医生使用伊维菌素等药物治疗新冠
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1998253/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+#### 翻译/撰稿：zzballack
 
-翻译：文扬
-编辑：文泓
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-22.jpg)图片来源：Business Today
+据《真正美国之声》（Real America’s Voice）2月12日报道，为了反击阻止人们以仿单标示外(Off-label)的方法治疗新冠或者威胁要调查开具新冠治疗药物的医生的医疗许可委员会（medical licensure board）、医院和药剂师，美国多个州正在考虑制定不同程度的立法，授权医生配发羟氯喹、伊维菌素等药物治疗新冠。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/13-3.png)图片来源：The Guandian
+立法者的此项行动是反对联邦政府一再污蔑廉价的潜在新冠疗法。FDA误导人们说伊维菌素是一种只针对马的治疗药物，尽管这种抗寄生虫药物已被世界各地的人们广泛使用，但这种误解仍然存在并流行。耶鲁大学公共卫生教授哈维·里奇（Harvey Risch）谴责联邦政府利用“伪造的劣质研究”，将羟氯喹和伊维菌素描绘成是无效和危险的药物。
 
+俄克拉荷马州总检察长约翰·奥康纳 (John O’Connor) 2月8日[宣布](https://www.oag.ok.gov/articles/attorney-general-oconnor-assures-oklahoma-physicians-are-not-prohibited-prescribing-label)，他的办公室不会起诉开具获美国食品药品监管局（FDA）批准的仿单标示外（Off-label）新冠治疗药物的医生。他说：“州医疗许可委员会没有法律依据对行使合理判断和安全开具伊维菌素或羟氯喹治疗新冠的持证医生进行处罚。我们的医护人员应该拥有一切可用的工具来对抗新冠。为了公共安全，必须这样做。”
 
-当地时间2月13日，据美国广播公司报道，外长玛丽斯·佩恩说，她已经指示驻乌克兰大使馆的工作人员离开。
+2月10日，南达科他州（North Dakota）众议院的卫生和公共服务委员会（Health and Human Services Committee）以微弱优势通过了[HB 1267](https://sdlegislature.gov/Session/Bill/23406)法案，允许“从业人员根据公认的医疗标准，在有或没有处方的情况下向人们发放伊维菌素。”该法案的主要发起人菲尔·詹森 (Phil Jensen)说医生将不再冒着“失去执照或影响生计”的风险（开具药物）。
 
-澳大利亚政府将撤离其驻基辅大使馆，并警告俄罗斯入侵乌克兰迫在眉睫，莫里森总理警告说，局势正在恶化并达到“危险阶段”。
+堪萨斯州 (Kansas)参议院公共卫生和福利委员会（Public Health and Welfare ）1月24日提出了[SB 381](http://kslegislature.com/li/b2021_22/measures/documents/sb381_00_0000.pdf)法案，“处方医师可以开具、药剂师应该配发获FDA批准的药物，包括但不限于硫酸羟氯喹和伊维菌素等新冠治疗药物，即使病人没有接触过新冠或对其检测呈阳性。处方医生和药剂师在根据该法案行事时，他们的行为和保健决定应免于承担损害赔偿、行政罚款或处罚，因为他们的行为不应视为非专业行为。与新冠治疗有关的建议、处方、使用或意见，即使不是由许可委员会、卫生部或FDA推荐或监管的，也不会被视为非专业行为。”该法案由堪萨斯州参议员马克·斯特芬 (Mark Steffen)提出。他是一名麻醉师，在过去一年半里因开具伊维菌素而受到调查。他说：“堪萨斯州治疗行为委员会正在利用调查来压制我、让我闭嘴。”
 
-这一决定是在美国国务院采取类似行动之后作出的，美国国务院已经命令非紧急的使馆工作人员离开乌克兰。
+宾夕法尼亚州众议院卫生委员会（Health Committee）2月7日批准了在去年夏天提出的一项修正案（[HB 1741](https://www.legis.state.pa.us/cfdocs/legis/PN/Public/btCheck.cfm?txtType=HTM&amp;sessYr=2021&amp;sessInd=0&amp;billBody=H&amp;billTyp=B&amp;billNbr=1741&amp;pn=2713)），该法案说，“药剂师可以向医生配发FDA批准的治疗药物，用于病人的预防、或者居家、门诊和住院患者的新冠治疗。许可委员会不能将这种行为视为非法的、不道德的、未经授权的或不专业的行为。”
 
-佩恩外长周日上午发表声明称，政府将把（大使馆）业务转移到基辅以西几百公里，靠近波兰边境的利沃夫。
-
-她说：“鉴于俄罗斯军队在乌克兰边境集结所造成的安全局势恶化，政府已指示驻基辅大使馆的工作人员撤离，并暂停我们在基辅大使馆的业务，业务将转移到利沃夫的一个临时办公室。”
-
-周六，佩恩参议员再次敦促在乌克兰的澳大利亚人离开该国，警告安全状况可能会在短时间内发生变化。
-
-她说：“我们已经敦促所有澳大利亚人立即离开乌克兰，并且外交部已经继续联系澳大利亚人，重申这一旅行建议。”
-
-“我们将敦促俄罗斯就这一特殊的单边行动继续进行对等的外交对话。我们支持乌克兰的主权和领土完整。我们支持欧洲和北约的统一反应。在这个非常困难的时刻，我们与乌克兰站在一起。”
-
-莫里森也一再警告澳大利亚人离开乌克兰，因为担心俄罗斯的入侵。
-
-他说：“我们给他们的建议非常明确，这是一个非常危险的局势，为了你们自己的安全，你们应该设法离开乌克兰，如果那里发生冲突，将是一个非常不稳定的局势。”
-
-原文链接： [Australia to evacuate Kyiv embassy amid threat of Russian invasion of Ukraine – ABC News](https://www.abc.net.au/news/2022-02-13/australia-evacuates-ukraine-embassy/100826352)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻来源：[States push to ease access to ivermectin, other COVID treatments that establishment blocked](https://americasvoice.news/justthenews/lawmakers-tackle-hurdles-covid-patients-get-treatments-opposed-medical/)
 
  
 

@@ -2,45 +2,39 @@
 ---
 
 
-## 文•贵天成——文贵先生谈“普京”（四）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1998162/)
+## 称“数据不足” 辉瑞推迟婴幼儿疫苗接种申请
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1998216/)
 
-整理：BENJ1
-编辑：小红帽
+作者：纽约香草山 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+2月11日，辉瑞·拜恩特生物技术公司突然以“数据不足”为由，推迟了正在向美国食品和药物管理局提出的、针对6个月至4岁儿童的两剂中共病毒疫苗的授权申请。
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/02/5-20.png)图片来源：雅典娜设计组（614）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8-13.jpg)
+
+辉瑞公司声明，正在等待其第三针疫苗的测试数据，该数据预计于四月初公布。辉瑞公司称第三针“可能为这个年龄组提供更高水平的保护”。然而，该公司在去年12月份的数据表明，在2至4岁儿童的试验中，两剂疫苗没有产生应有的免疫反应。
+
+据两位熟悉FDA规划的人士说，已有众多外部专家对该机构提交了大量的文件，质疑辉瑞的数据不够充分。FDA生物制品评估和研究中心主任彼得·马克斯博士表示，监管机构审查了辉瑞公司的两针剂数据后，决定在考虑授权之前需要先看到第三针疫苗接种试验的效果。
+
+分析人士指出，辉瑞公司要求授权婴幼儿的两剂疫苗不符合科学和常理，因为前两剂疫苗没有效果，也不能保证增加第三剂就起作用。在欧洲各国纷纷取消疫苗通行证和各种限制的时间关口，也许辉瑞公司这一个不同寻常的推迟授权请求，标志着疫苗政策的转向。
+
+参考链接：
+
+- [Pfizer postpones FDA request for Covid vaccine for kids under 5](https://www.nbcnews.com/health/health-news/pfizer-covid-vaccine-kids-fda-authorization-postponed-rcna15730?cid=sm_npd_ms_tw_ma)
 
 
-**郭文贵先生2020年12月12日盖特**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
 
-普京上来以后，当时任命谁当他的教育部长？你的教育部事实在平常就是战时的部。普京是有脑子的，干克格勃出来的。
+总编：Irene木木
+编辑：Lakeman文仁
+校正/发稿：海阔天空1
 
-**郭文贵先生2020年12月19日盖特**
-
-昨天晚上，听说有关——做梦，梦见的，听说的，俄罗斯暴怒，说:“你们要是敢再来我家，敢把这事儿嫁祸于我，那我就把你的底儿全给兜出去！特别是你共产党的病毒的事儿，我可知道！”老共这边儿还挺嚣张，警告俄罗斯:“不要再次重回几十年前走错的路，中共已经不是过去的中共了！”听说俄罗斯听完以后，还没反应呢。啥反应？俄罗斯听了啥反应，兄弟姐妹们？干它？公开弄它？普京是个成熟的政治家，普京认为还不到火候，最起码等美国大选完了以后:“我到底是亮枪啊，还是给你俄罗斯的鱼子酱？”这个普京太厉害了！所以说，兄弟姐妹们，这就是世界上的真相，背后都有交易，背后都有巨大的交易！就像我告诉你，为什么Facebook扎克伯格折腾呢？就是想控制下届政府，弄虚拟货币，控制全人类！
-
-**郭文贵先生2021年1月25日直播**
-
-昨天晚上很多台湾的朋友真害怕了，过去三四年没联络的，过去的台湾朋友也发信息来，看来是真要打仗。我告诉他，可能不会那么快，共产党现在是在干什么？现在是叫逼统，逼着你统（一）。现在表演表演，让美国让欧洲看看，是吧？我要打了，我真打了，按真的来，行动多着嘞，放心吧。然后，台湾国民党出来了。哎呀，投票，投票，投票，为了台湾的统一、为了台湾的未来，识时务者为俊杰。就像那个俄罗斯搞多米尼亚一样。投票吧，一投票，同意回归或者是千年的和(平)协议——实质的回归，搞个一张纸出来。共产党这套都学普京的，学得很LOW。然后是什么？只要是你一投票，只要内部有人呼应，就是打了你也是合法。
-
-**郭文贵先生2021年1月28日直播**
-
-兄弟姐妹们太可怕啦！俄罗斯的那些官员说，你知道冠状病毒出来以后，从普京到下面官员都说这个共产党真的是疯了，它真以为全世界它能糊弄得住？说这事来自于蝙蝠，来自于穿山甲。像俄罗斯这种国家，一秒钟就知道你干啥。
-
-往期回顾：
-[文•贵天成——文贵先生谈“普京”（一）](https://gnews.org/zh-hans/1990454/)
-[文•贵天成——文贵先生谈“普京”（二）](https://gnews.org/zh-hans/1992091/)
-[文•贵天成——文贵先生谈“普京”（三）](https://gnews.org/zh-hans/1997756/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

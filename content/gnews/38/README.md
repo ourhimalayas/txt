@@ -2,42 +2,37 @@
 ---
 
 
-## 尽管 Omicron 激增，挪威仍取消了大多数 中共病毒限制
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1996910/)
+## 丹麦和瑞典敦促公民离开乌克兰，欧盟表示不会撤离基辅
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1997400/)
 
-**编译：沉默老歌**
+#### 撰稿：彩虹       
 
-挪威周二宣布，尽管 Omicron 推动了感染激增，但它将取消对中共病毒的大部分限制，并表示社会必须与这种病毒“共存”。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/21048738-729C-431F-A0C7-8E25A0EC6E34.jpeg)图片来源：https://www.rti.org.tw/
-Omicron 变种已导致挪威的病例数飙升，但在疫苗覆盖范围广泛的人群中，重症 的中共病毒患者的住院人数并未增加。
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1249.png)图片来源：Anadolu Agency
+据《国会山报》2月12日引述相关报道，面临俄罗斯可能入侵乌克兰的境况，丹麦和瑞典都在敦促其公民离开乌克兰，而欧盟则表示不会关闭基辅的外交使团。
 
-“我们终于达到了可以解除今年冬天不得不采取的许多健康措施” ，总理乔纳斯·加尔商店在新闻发布会上说。 “我们将不得不生活在高感染率中，我们可以生活在高感染率中”，他补充说。
+据CNN报道，周五，丹麦外交部长一份声明中说：“建议不要去乌克兰旅行，建议所有在乌克兰的丹麦人离开该国。仍有可能通过常规的航空路线、公路和铁路离开乌克兰，但现在不可能说这些机会是否或何时会被削减，因此，鼓励在乌克兰的丹麦人离开该国。”
 
-如果挪威人是感染者的接触者，他们将不必隔离，尽管建议日常进行的五天的检测，而新冠病毒病例的隔离期将从六天缩短到四天。
+目前，丹麦在乌克兰的大使馆仍然开放。
 
-远程工作将不再是强制性的，无限制数量的人可以访问其他家庭并参加体育赛事；进入斯堪的纳维亚地区的旅客将不再需要接受检测；酒吧和餐馆对酒类销售的限制也将结束。这些措施将于周二晚上 11 点（格林威治标准时间 22：00 点）生效。
+周六，瑞典则发表了一份类似的声明，称所有公民应该尽快离开乌克兰，并建议不要前往该国“进行一切旅行”。
 
-在公共交通和商店等无法遵循推荐的一米社交距离准则的环境中，口罩将仍然是强制性的。
+瑞典外交部长安·林德（Ann Linde）在一条推文中说：“由于乌克兰及其周边地区严重和不可预测的安全局势，外交部今天决定建议不要前往乌克兰，并敦促所有身在乌克兰的瑞典人离开该国。”
 
-因此，挪威不会像邻国丹麦那样走得那么远，丹麦在周二成为第一个取消其所有国内中共病毒 限制的欧盟国家。
+根据报道，周六上午，美国国务院发布了四级旅行警告，说美国将“在乌克兰利沃夫（Lviv）保持一个小规模的领事机构以处理紧急情况，但将无法提供护照、签证或常规领事服务。”
 
-挪威记录了超过 781,000 例病例和 1,440 例与病毒相关的死亡，其中近 91% 的人口已完全接种疫苗。
+同样在周六，德国外交部长安娜莱娜·贝尔博克（Annalena Baerbock）也说：“我们将保持在基辅的大使馆开放，但将减少我们的外交人员。我们的顿涅茨克总领馆（Consulate General Donetsk）自2014年以来一直驻扎在第聂伯罗（Dnipro），目前正暂时迁往利沃夫（Lviv）。”
 
-挪威公共卫生研究所估计，到今年夏天，540 万人口中可能有 300万 至 400 万人将被感染中共病毒。
+周六同一天，欧盟理事会（The Council of the European Union）发布了一份声明，说：“鉴于目前（俄罗斯）对乌克兰的威胁，欧盟及其成员国正在协调其行动，我们的外交使团并没有关闭，仍然留在基辅（Kyiv）并继续运作，以支持欧盟公民并与乌克兰当局合作。考虑到安全情况，工作人员的存在和对欧盟公民的旅行建议正在进行必要的调整。”
 
-**来源链接：**
+声明指出：“我们重申，我们继续支持乌克兰的领土完整和主权，以及为缓和局势所做的外交努力。任何对乌克兰的进一步军事侵略都将带来巨大的后果和严重的代价。”
 
-[Norway Scraps Most Covid Curbs Despite Omicron Surge](https://www.barrons.com/amp/news/norway-scraps-most-covid-curbs-despite-omicron-surge-01643745608)
+**新闻来源**
 
-**编辑：LILY**
+[Sweden, Denmark urge citizens to leave Ukraine](https://thehill.com/policy/international/594007-sweden-denmark-urge-citizens-to-leave-ukraine)
 
-**发布：歪桑**
+[EU not closing diplomatic missions in Kyiv amid threat of Russian invasion](https://thehill.com/policy/international/594009-council-of-eu-says-diplomatic-missions-are-not-closing-in-kyiv-amid)
 
-20220212
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3-4.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

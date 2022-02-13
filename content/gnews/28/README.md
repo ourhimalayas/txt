@@ -2,20 +2,31 @@
 ---
 
 
-## 美防长奥斯汀命驻乌克兰美军撤离
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1997746/)
+## 有声|欧盟公布芯片法案 肯定台湾重要地位
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1998078/)
 
-撰稿：东京樱花团/文小白
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-20.jpg)[图片来源](https://www.sankei.com/resizer/VAzIOopPZjtX68OvAefFbeXZ7us=/1200x630/smart/cloudfront-ap-northeast-1.images.arcpublishing.com/sankei/RQOWQZUCTJJKLNIRRXMTOUD47I.jpg)
-产经新闻2月13 日清晨报道，五角大楼发言人柯比在一份声明中说，为了应对乌克兰日益紧张的局势，美国国防部长约翰-奥斯汀命令驻扎在乌克兰的160名美国士兵撤离到欧洲其他国家。 这160人来自佛罗里达州的国民警卫队，自去年11月底以来一直在帮助乌克兰部队进行训练。 目前还不清楚他们将被安置到欧洲哪里国家。 柯比说，此举是为了美国士兵的安全，并强调这 “并不意味着我们支持乌克兰军队的决心有所改变。” 鉴于部署在边境附近的俄罗斯军队入侵乌克兰的风险越来越高，美国国务院于12日下令美国驻乌克兰大使馆的美国人员撤离该国。其他主要国家的政府也相继撤离本国公民离开乌克兰。
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+欧洲联盟今天公布《欧洲芯片法案》，宣布将投入超过430亿欧元的公共和民间投资，让欧盟在2030年市场占有率较现阶段的10%翻倍至20%。欧盟执委会执行副主席兼数字执委维斯塔哲及欧盟负责内部市场业务的执行委员布勒东在对法案进行说明时，公开肯定台湾是《欧洲芯片法案》理念相近的伙伴，欧洲市场也会对台湾开放。
 
-信息来源：
+布勒东强调，台湾在全球半导体制造领域的地位非常重要，欧洲使用的半导体可能50%是在台湾生产的，台湾拥有许多专业知识，欧洲当然欢迎。
 
-[米国防長官、ウクライナから米兵１６０人国外移動命じる](https://www.sankei.com/article/20220213-7C63KDXWNNLBRC2XFX3EXTO2CA/%20)
+布勒东近期曾表示，《欧洲芯片法案》的重点在确保欧盟自主供应安全，因为当前全球主要芯片供货商位于中共国周边地区，存在严重地缘政治风险，一旦发生事端欧洲大多数工厂运作将瘫痪。
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+文字版原文：[欧盟公布芯片法案 肯定台湾重要地位](https://gnews.org/zh-hans/1982957/)
+
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

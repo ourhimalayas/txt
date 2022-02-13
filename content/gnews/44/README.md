@@ -2,36 +2,22 @@
 ---
 
 
-## 英国查尔斯王子再次确诊中共病毒
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1996231/)
+## 华裔女下班途中被击，战友们需提高防范意识
+` 全球G系列咨服群` [轉載自GNews](https://gnews.org/zh-hans/1996544/)
 
-作者：纽约香草山农场- Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月10日，据相关媒体报道，英国克拉伦斯宫当天在声明中宣告，由于查尔斯王子的中共病毒检测结果称阳性，目前他本人正在自我隔离中。为此，现年 73 岁的英国王位继承人不得不缺席当天在英国温彻斯特市举行的活动。
+据外媒2月9日报道，亚马逊华裔女工程师王胜男（音译，Emma Shengnan Wang）在美国西雅图下班的回家途中，遭流浪汉用棒球棒从背后袭击，造成颅骨骨折，需要“重大手术”。 警方根据监控视频辨认出，这名袭击者是31岁的“惯犯”万特兹·图洛斯，他和受害者并不认识。事发第二天，图洛斯便被警方逮捕，目前已被控一级袭击罪，一旦罪名成立，他将面临长达12年的监禁。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide6-6.jpeg)
+在此前1月15日上午在9点半左右，美国纽约地铁站也出现惊魂一幕，一名40岁的华裔女子在时代广场地铁站候车时，惨遭非裔游民西蒙推下铁轨，被迎面驶来的进站列车当场碾过身亡，而嫌犯西蒙被捕时一脸的满不在乎。
 
-据王室消息人士透露，查尔斯王子在确诊前两天会见了英国女王伊丽莎白二世，但女王尚未出现任何症状。
+面对越来越多因疫苗灾难而出现的排华排亚裔事件，郭先生在直播中多次强调要战友们一定注意保护好自己和家人，加大爆料革命在世界的宣传强度，让西方和世界清醒认识到CCP不等于中国人，CCP不能代表中国，尽量减少西方排华情绪对爆料革命、新中国联邦和战友们的伤害。
 
-报道提及，这是查尔斯王子第二次确诊感染中共病毒。早在2020年3月，查尔斯王子就曾出现过轻微的感染症状，并在随后的病毒检测中被确诊。值得注意的是，此次确诊感染前，查尔斯王子和他的妻子卡米拉均已完全接种了中共病毒疫苗及其加强针。
+*新闻来源：[https://www.sohu.com/a/521913625\_116237](https://www.sohu.com/a/521913625_116237)
+ [https://posts.careerengine.us/p/61e4d4216b302b241bc62e42](https://posts.careerengine.us/p/61e4d4216b302b241bc62e42)*
 
-然而，如同大多数研究结果显示的，中共病毒疫苗并没有为其接种者查尔斯王子提供必要的保护。
+*撰稿：Miyali7768(文玉)*
 
-参考链接：[What concerns are there for the Queen’s health after Prince Charles tests positive for COVID-19?](https://www.abc.net.au/news/2022-02-11/prince-charles-covid-positive-after-meeting-with-queen/100822562)
+*审核：文随*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
-
-总编：Irene木木
-编辑：静言
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
