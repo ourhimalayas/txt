@@ -2,28 +2,50 @@
 ---
 
 
-## 民众觉醒：真科学迎来春天？
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1998444/)
+## 打开秘密的人可能获得更多喜币,也可能是喜币价格破千时
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1998463/)
 
-编译：致敬香港！
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-56.jpg)
-图片来源：The Japan Times
+G-TV视频链接：[https://gtv.org/video/id=62089a28b0af02660af30daf](https://gtv.org/video/id=62089a28b0af02660af30daf)
 
-“零对冲”网2月13日转载文章揭露美国新冠疫情2年跌宕起伏，“科学”一方面被扭曲利用，而一方面却被全力封杀。随着更多民众觉醒，科学真相能否最终浮出水面？
+**郭文贵先生：**战友们好！咱们今天唱的这个歌儿是我们的历史上伴随着我们几代人成长的《甜蜜蜜》。七哥今天你看看后面的红色的联邦旗加上七哥今天的纯红的，所有的一切都是新的。看看，这是红色什么？百宝书，红色给我们带来力量。
 
-科学，是为理解真相而不断提问和探索的过程，它永远是一种方法而不是答案。而在这场新冠疫情中，号称民众必须遵从“科学”的政客们告诉我们：
+红色，共产党霸占了红色，抢夺了我们的自由，让我们失去了未来、失去了家人，我们只有团结还有团队，才能一起合作，干掉CCP。
 
-口罩：不需要戴、还是需要戴、需要戴2层、需要戴3层、布口罩无效、只有N95有效……
+在2022年虎年春节到来之际，兄弟姐妹们，我们只有打开“甜蜜蜜运动”的这把钥匙，才能一起合作消灭CCP。希望能解放我们在乡村、在我们老家的被奴役了几代人的父母，这是对我们最重要的。
 
-新冠疫苗：阻止疫情100%有效、96%有效、70%效、有效期6个月、加强针是唯一的出路、这是一场未接种者的疫情……
+这里面的秘密将随着“甜蜜蜜运动”而揭开。而且等到我有一天告诉大家这个上面的秘密的时候，大家要记住：可能是喜币已经涨到1000的时候，也有可能获得这个密码的人将获得更多的喜币。所以这个是秘密。
 
-睿智民众给政客们口中的“科学”加了个商标符号，一针见血地揭露出他们的“科学TM ”是由他们独家拥有的、并根据他们的需要而可以随时被篡改的一套“答案”，跟真实的科学根本毫不相关。众多科研人员遵循着科学原则持续观察和研究，提出病康复者会获得比疫苗更强大的自然免疫力，他们却被 “事实核查”大军以迅雷不及掩耳之势从网上抹杀。
+那么我就再和Q May一起来唱我们的《甜蜜蜜》。今天特别开心，我是在两周前准备好的今天的春节联欢会，由唐平老师、威廉王老师、Q May、还有Q May的先生Ryan，还有我们的青藤、我们的墨镜、小白、甜甜，很多人啊，多少人真的是不眠之夜，昨天他们就睡了一个小时、俩小时，我们练这歌儿。歌儿唱得非常好，关键你们会不会听。大家要听我们的歌儿的时候要认真听啊，不一样，这里面不一样！
 
-但历史的车轮滚滚向前，如今无可避免地、越来越多的民众看清了各种管制政策的无效和危害，大规模抗议和抵制活动开始在各地涌现，政客们不得不开始转向灭火。对于新冠阳性的入院患者，拜登政府终于开始组织“卫生与公众服务部”和“疾控与预防中心”的专家组与各地医院合作，把因新冠病情入院的、和因其它原因入院的分开来进行统计；之前各政府部门一直拒绝透露相关的具体数据，导致新冠重症和死亡率呈现虚高，其中一个匪夷所思的案例是，一个因吸毒过量而死亡的人因3个月前曾呈新冠阳性、而被记录为新冠死亡……
+再次地感谢Q May、唐平老师、威廉王、Ryan、所有的兄弟姐妹们，开始我们的2022灭共年！耶……！太棒了！
 
-但提高数据准确率和透明度仅仅是一小步，言论审查和网络封杀等仍然是众多勇敢传播真相的科学家无法挣脱的枷锁。近日，收听率爆棚的乔·罗根播客节目先后邀请多名顶级科学家讨论新冠疫情、疫苗和早期治疗话题；同期的另一个新闻热点事件是亿万富豪爱泼斯坦性侵和性交易未成年少女案，客户涉及全球上千名流，爱泼斯坦本人在最严密看守级别的联邦监狱中离奇“自杀”后，其重要同犯女友案件开审。两者之间，主流媒体似乎更关注怎样让乔·罗根闭嘴，而不是去深挖魔爪伸向未成年少女的、国际政商名流的犯罪集团。
+字幕来源：[2022年1月31日 《春节大直播》 全文字版（一）](https://gnews.org/zh-hans/1943980/)
 
-**新闻来源：** [‘Team Doom’ Suddenly Reversing COVID Restrictions Shows It Was Never About Science, Only Your Compliance](https://www.zerohedge.com/political/team-doom-suddenly-reversing-covid-restrictions-shows-it-was-never-about-science-only)
+编辑整理：Jacques；
+
+字幕文件制作：知津；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

@@ -2,33 +2,27 @@
 ---
 
 
-## 日本名古屋市将开设疫苗后遗症沟通窗口
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1998286/)
+## 河南省公安厅党委委员、副厅长高万象接受调查
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1998317/)
 
-作者：日本方舟农场 Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月8日，日本爱知县名古屋市市长河村先生，接受日媒采访时透露，名古屋市将最快在下周设立一个，专门为那些出现疫苗后遗症的人群，跟市政府联络的窗口。
-![坐看云起时(@yunqi11111111) / Twitter](https://pbs.twimg.com/ext_tw_video_thumb/1490260026371751939/pu/img/qYVPbT_4St9S3Faw?format=jpg&amp;name=large)
-截至目前，日本厚生劳动省对疫苗副作用的认定，仅限于那些在接种后立刻出现过敏反应的人员。相反对接种后超过5个月乏力只能卧床休息，或者接种后持续1个月以上出现舌头白斑等奇怪症状的人员，日本政府并没有任何措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/9591.jpg)高万象 资料图
+据澎湃新闻2月12日报道，河南省公安厅党委委员、副厅长高万象涉嫌严重违纪违法，目前正接受河南省纪委监委纪律审查和监察调查。
 
-分析人士指出，名古屋市在医学方面，公布伊维菌素对中共病毒有效，并允许对名古屋市内被感染的市民投入伊维菌素后，又在政策上针对疫苗后遗症迈出了关键的一步。
+高万象，现年59岁，自2020年3月起担任河南省公安厅党委委员、副厅长、一级巡视员。按照中共国省厅级官员的退休年龄规定，年满60岁就可以退休，高万象可以说是临门失脚。为中共卖命一辈子，马上要退休回家享清福了，却一脚迈进了监狱的大门。在中共国，没有不违法违纪的官员，被抓的不冤，没抓的侥幸。到了中共灭亡的时刻，绞肉机一刻不停地高速运转，人人都在刀刃边，随时随地会被卷进去，最先粉身碎骨的就是这些现任和曾经的高官。惩处这些官员，既可以杀一儆百，又可以获利丰厚。中共不灭，好人、坏人都没有出路。好人奋起反抗，坏人弃暗投明。
 
-参考链接：
-1）[https://www.gettr.com/post/ptg70k6e22](https://www.gettr.com/post/ptg70k6e22)
-2）[https://www.gettr.com/post/pstgh22a24](https://www.gettr.com/post/pstgh22a24)
-3）[https://www.gettr.com/post/piflnu1d73](https://www.gettr.com/post/piflnu1d73)
+新闻参考链接：[https://www.thepaper.cn/newsDetail\_forward\_16670937](https://www.thepaper.cn/newsDetail_forward_16670937)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+* * *
 
-编辑/校正/发稿：呼吸的雾霾（文小呼吸）
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

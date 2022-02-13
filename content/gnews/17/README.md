@@ -2,34 +2,28 @@
 ---
 
 
-## 苹果承认AirTag追踪设备被滥用于“恶意或犯罪目的”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1998362/)
+## 您储备好粮食和物资了吗？
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1998400/)
 
-翻译/编辑：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-02-下午10.11.59-11.png)
-根据《RT》新闻2月12日报道，苹果(Apple)公司已经承认，其至少有一款产品，即AirTag追踪设备，被滥用于“恶意或犯罪目的”。该公司表示将改变其政策，以遏制犯罪和侵犯隐私的行为。
+撰稿：东京樱花团/闻雨
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1265.png)
+2月13日据CNN报道：
 
-苹果公司周五宣布，即将到来的软件更新将更明确地警告用户并说明未经人们许可或在他们不知情的情况下操作追踪器的后果。
+塞尔维亚总统武契奇2月13日宣布，他已下令进行大量粮食储备，以应对乌克兰日益紧张的局势，人们担心俄罗斯军队会在那里进行军事入侵。
 
-虽然AirTags与跟踪或汽车盗窃等涉嫌犯罪有关，但该公司表示，它现在将警告每一个设置该设备的用户，“在世界各地的许多地区，未经同意跟踪人是一种犯罪行为”。
+据当地N1电视台报道，这是总统在11日由政府的电视台直播的一场辩论中说的。
 
-苹果公司警告说，“根据传票或执法部门的有效要求，”涉嫌犯罪者的个人苹果ID数据可能会与警方共享，苹果公司已经“与各种安全团体和执法机构密切合作”，帮助逮捕和指控犯罪者。
+当局订购的粮食储备包括3千万公斤盐，豌豆和其他豆类各1百万公斤，3千万公斤小麦粉和奶粉。
 
-今年后期，苹果公司将实施一些额外的功能来遏制不必要的跟踪，包括改进对附近未知AirTags的警报。
+总统指出，在整个世界都预测俄罗斯和乌克兰之间有很大的可能会发生什么的时候，我们不可能假装什么都不会发生。他还说，我们还没有确保燃料油的供应。
 
-苹果公司强调，AirTags的设计目的是“帮助人们找到他们的个人物品，而不是追踪人或他人的财产”，并表示谴责对该产品的“任何恶意使用”。
+战争一旦发生世界各地都会发生物资紧缺，该准备的就要及时准备了。大家都准备好了吗？
 
-参考链接：[Apple admits unwanted tracking](https://www.rt.com/news/549169-apple-airtag-tracking-crime/)
+信息来源：[セルビア政府、大量の食糧備蓄を命令　ウクライナ情勢で](https://www.cnn.co.jp/world/35183453.html)
 
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
