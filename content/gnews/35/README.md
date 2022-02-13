@@ -2,30 +2,32 @@
 ---
 
 
-## Moderna首席执行官刚刚抛售了 4亿美元的股票并删除了他的推特账户
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1999795/)
+## 美印太战略应对中共威胁维护台海和平
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2000056/)
 
-Baxter Dmitry
+作者：纽约香草山 医疗部 云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月11日，美国白宫公布印太战略报告。 主要内容提及，美国将致力于应对中共对印太区域的威胁，维护台海和平稳定，帮助台湾自卫，及确保台湾民众可自由选择未来生活的方式，保障印太地区繁荣安全，捍卫美国及盟友在该区域的利益。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-13-上午10.06.53.png)
+报告指出，中共在印太区域持续增强扩张力度，不但以军事行动侵扰台海、南海，威胁各国在该区域自由航行的权利。 还积极对周边国家进行渗透侵略，使印太区域陷入不稳定状态。美国将在未来2年展开多项核心工作，包括在印太地区投入新资源、推动印太经济架构、加强威慑战力、强化东南亚国家协会、支持印度在区域内的发展、强化四方安全对话（Quad）、扩大美日韩合作、协助太平洋岛国持续发展等。
 
-翻译：沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-51.png)图片来源：[https://newspunch.com](https://newspunch.com)
-在辉瑞承认安全审计可能会抹去数十亿美元的股票市场估值后几天，Moderna 首席执行官 Stéphane Bancel 抛售了数亿美元的股票并删除了他的 Twitter 账户。
+为达成对中共的军事威慑力量，美国行政部门将与国会合作，为《太平洋威慑倡议》与《海事安全倡议》提供所需的资金。
 
-在一位前 Blackrock 高管开始调查保险公司和殡仪馆的死亡统计数据后不久，这位 Moderna 首席执行官的奇怪举动就出现了。
+参考链接：[美公布印太戰略 維護台海和平、威嚇軍事侵略](https://www.cna.com.tw/news/aopl/202202120010.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-Edward Dowd 是前对冲基金经理，他开始研究保险公司和殡仪馆的死亡统计数据，他还开始指责辉瑞和 Moderna 在疫苗临床试验中存在欺诈行为。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-来源链接：[https://newspunch.com/moderna-ceo-just-dumped-400-million-in-stock-and-deleted-his-twitter-account/amp/](https://newspunch.com/moderna-ceo-just-dumped-400-million-in-stock-and-deleted-his-twitter-account/amp/)
+总编：飞虹
+编辑：Zion文恩
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-编辑：LILY
-
-发布：面包飞上天
-
-20220213
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3-4.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

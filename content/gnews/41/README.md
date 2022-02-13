@@ -2,34 +2,34 @@
 ---
 
 
-## 2022/02/11 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1999024/)
+## 美众议院提案为因拒绝接种中共疫苗解职的军人复职
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1999617/)
 
-1. 天津河北区，被封锁小区的居民自嘲缓解压力和情绪的方式是通过遮挡板看封控防范区以外的世界。
-2. 中共政府通报新增19例新冠病毒确诊病例的辽宁绥中县，家家户户被贴上封条，市民不准出门。
-3. 2月9日，河南新乡。男子外出打工临走时妻子假装不在乎 转身走后妻子便悄悄抹眼泪。在中共国为了谋生，有多少人不得不离开家人？
-4. 湖南娄底，春节后母亲外出打工孩子不舍倒地痛哭，拼命拉扯母亲衣服想留住母亲。
-5. 2月9日，四川。年后爸妈外出务工，女孩望着背影久久不愿离开，一声“妈妈”令母亲破防。
-6. 2月9日，北京。早高峰孕妈妈穿“勿推勿挤”的警示马甲挤地铁，网友感叹当代年轻人的压力非常大。
-7. 2月9日，黑龙江鸡西。一男子疑醉酒后从商场三楼跳下, 万幸的是下面都是儿童玩耍的海洋球，游乐设施救下了男子性命。
-8. 某地隔离人员晒出酒店14天隔离费用，如今中共国的隔离消费已被发展成为了一套成熟的产业链。
-9. 宏伟的辽宁朝阳市市政府大楼！如此宏大的建筑工程消耗的都是老百姓的纳税钱，但决对不会允许老百姓过问。
-10. 2月9日，福建长乐。节后机关单位上班时间聚众抽烟喝茶，“过完年比较闲”，被暗访记者曝光。
-11. 2月10日，广东深圳龙华汽车站门口，一饭店老板为无家可归者免费提供餐食。
-12. 广东深圳，拥有大量在外漂泊无固定工作流浪的人，以天为被地为床，到了晚上都集体在路边打地铺。
+撰稿：银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-3.png)
+2月10日，美国媒体消息，本周，美国共和党人公布了一项立法提案，旨在确保拒绝接种中共病毒疫苗的美国军人能够继续服役。该项立法涉及：不得使用联邦资金要求武装部队成员接种中共病毒疫苗；有关秘书不得以武装部队成员拒绝接种中共病毒疫苗为由，对该成员采取任何不利行动。该法案还要求之前因拒绝接种疫苗被开除的士兵被恢复之前的军事级别，以及损失的工资与删除的服役记录。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1298.png)图片来自：https://www.axios.com/
+据悉，由于拜登政府的强制新冠疫苗令，数百名宝贵的美国军人被迫离开军队，带走了他们多年的专业技能、无私奉献的职业生涯和终生的军事梦想，造成不可接受的结果。同时，接种新冠疫苗后的美国军人，出现各类严重并发症的数据比率严重暴增。
 
+媒体称，在世界如此紧张的局势下，此提案如立法，对中共疫苗带给美国军队的负面影响，将会起到一定的缓和作用。
 
-* * *
+新闻来源：[House conservatives introduce bill to protect, reinstate soldiers who refuse COVID shots](https://www.lifesitenews.com/news/house-conservatives-introduce-bill-to-protect-reinstate-soldiers-who-refuse-covid-shots/)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-3.png)
 
+总编：Ivy001
 
-编辑：【英国伦敦喜庄园编辑部】
+编辑：静言
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+校正/发稿：浪迹天涯
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

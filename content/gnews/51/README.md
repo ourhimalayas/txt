@@ -2,42 +2,36 @@
 ---
 
 
-## 商业集团敦促美加解决边境封锁
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1996919/)
+## 丹麦和瑞典敦促公民离开乌克兰，欧盟表示不会撤离基辅
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1997400/)
 
-编译：聖地香港
+#### 撰稿：彩虹       
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-3-3.jpg)图片来源：sohu.com
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1249.png)图片来源：Anadolu Agency
+据《国会山报》2月12日引述相关报道，面临俄罗斯可能入侵乌克兰的境况，丹麦和瑞典都在敦促其公民离开乌克兰，而欧盟则表示不会关闭基辅的外交使团。
 
-美国最大的商业集团呼吁北美领导人结束因卡车司机抗议强制接种中共病毒疫苗而造成的美加边境口岸中断。
+据CNN报道，周五，丹麦外交部长一份声明中说：“建议不要去乌克兰旅行，建议所有在乌克兰的丹麦人离开该国。仍有可能通过常规的航空路线、公路和铁路离开乌克兰，但现在不可能说这些机会是否或何时会被削减，因此，鼓励在乌克兰的丹麦人离开该国。”
 
-美国商会、全国制造商及商业圆桌会议于周四晚表示，边境封锁导致美国公司的供应链压力增大。
+目前，丹麦在乌克兰的大使馆仍然开放。
 
-商业集体在一份声明中说：“商业界正在尽全力寻找变通办法保持设施正常运转，但已经有一些工厂减产、减少班次及临时关厂。”
+周六，瑞典则发表了一份类似的声明，称所有公民应该尽快离开乌克兰，并建议不要前往该国“进行一切旅行”。
 
-“北美经济依赖于包括制造业在内的紧密合作。我们需要运用同样的合作精神来解决该问题。”
+瑞典外交部长安·林德（Ann Linde）在一条推文中说：“由于乌克兰及其周边地区严重和不可预测的安全局势，外交部今天决定建议不要前往乌克兰，并敦促所有身在乌克兰的瑞典人离开该国。”
 
-几天来，抗议跨境疫苗规定的卡车司机封锁了连接安大略省和底特律的大使桥，该桥承载了美国和加拿大之间约 25% 的贸易量。
+根据报道，周六上午，美国国务院发布了四级旅行警告，说美国将“在乌克兰利沃夫（Lviv）保持一个小规模的领事机构以处理紧急情况，但将无法提供护照、签证或常规领事服务。”
 
-封锁迫使汽车制造商停止运营，并对本已由于计算机芯片短缺造成产量不足的疫情相关行业造成更深影响。福特、通用汽车、Stellantis、本田和丰田由于缺少零部件于本周暂停了部分运营。
+同样在周六，德国外交部长安娜莱娜·贝尔博克（Annalena Baerbock）也说：“我们将保持在基辅的大使馆开放，但将减少我们的外交人员。我们的顿涅茨克总领馆（Consulate General Donetsk）自2014年以来一直驻扎在第聂伯罗（Dnipro），目前正暂时迁往利沃夫（Lviv）。”
 
-安大略省温莎市官员周四要求法院发出禁令，以对抗议者进行清场。拜登政府已敦促加拿大政府利用联邦权力结束卡车封锁，此举得到了美国商业集团的赞扬。
+周六同一天，欧盟理事会（The Council of the European Union）发布了一份声明，说：“鉴于目前（俄罗斯）对乌克兰的威胁，欧盟及其成员国正在协调其行动，我们的外交使团并没有关闭，仍然留在基辅（Kyiv）并继续运作，以支持欧盟公民并与乌克兰当局合作。考虑到安全情况，工作人员的存在和对欧盟公民的旅行建议正在进行必要的调整。”
 
-商业集团在一份声明中说：“我们恭请加拿大政府迅速采取行动，解决贸易流动中断及其对边境两侧制造商和其他企业的影响。”
+声明指出：“我们重申，我们继续支持乌克兰的领土完整和主权，以及为缓和局势所做的外交努力。任何对乌克兰的进一步军事侵略都将带来巨大的后果和严重的代价。”
 
-**评论：**
+**新闻来源**
 
-**加拿大卡车司机为了所有人的自由进行抗议，其中也包括商人的自由，然而妨碍了商人赚钱，商人敦促结束抗议，结束了抗议谁为你争取自由？好一个怪圈！**
+[Sweden, Denmark urge citizens to leave Ukraine](https://thehill.com/policy/international/594007-sweden-denmark-urge-citizens-to-leave-ukraine)
 
-参考资料：[thehill][Business groups urge Canada, US to resolve border blockade](https://thehill.com/business-a-lobbying/business-a-lobbying/593843-business-groups-urge-canada-us-to-resolve-border)
-
-* * *
-
-*审核：文乐
-校对：信心满满
-发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-3.jpeg)
+[EU not closing diplomatic missions in Kyiv amid threat of Russian invasion](https://thehill.com/policy/international/594009-council-of-eu-says-diplomatic-missions-are-not-closing-in-kyiv-amid)
 
  
 

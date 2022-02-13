@@ -2,20 +2,26 @@
 ---
 
 
-## 有声|称“数据不足” 辉瑞推迟婴幼儿疫苗接种申请
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2000489/)
+## 美众议员称国际奥委会掩盖中共人权恶行
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2000552/)
 
-配音：香草山巡管部– 文凯琳
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9D%A1%E5%B9%85.png)
-2月11日，辉瑞·拜恩特生物技术公司突然以“数据不足”为由，推迟了正在向美国食品和药物管理局提出的、针对6个月至4岁儿童的两剂中共病毒疫苗的授权申请。
+作者：纽约磐石农场—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+盖特消息，近日美国国会共和党众议员麦克.加拉格尔，在接受福克斯采访时表示，国际奥委会一直在掩盖中共国侵犯人权的行为。他还强调当共和党夺回众议院的时候，将继续开展中共病毒溯源调查。
 
-辉瑞公司声明，正在等待其第三针疫苗的测试数据，该数据预计于四月初公布。辉瑞公司称第三针“可能为这个年龄组提供更高水平的保护”。然而，该公司在去年12月份的数据表明，在2至4岁儿童的试验中，两剂疫苗没有产生应有的免疫反应。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-4.jpeg)
 
-文字版原文：[称“数据不足” 辉瑞推迟婴幼儿疫苗接种申请](https://gnews.org/zh-hans/1998216/)
+加拉格尔说，国际奥委会的行为非常卑鄙，他们声称见到了彭帅，而事实上彭帅被中共非法拘禁、扣为人质，并被禁言，但国际奥委会却在帮助中共掩盖事实，无耻的做中共的同谋。加拉格尔反对在北京举办冬奥会，声称美国应当想方设法保护自己的参赛运动员。
 
-音频处理/发稿：Daxia
+对于中共病毒溯源问题，他说现在仍然不清楚武毒所到底发生了什么，美国纳税人的钱如何资助武毒所，开展了病毒功能增强性研究。当共和党夺回众议院的时候，就会立即开展全面调查，也会给蝠奇等一些所谓的科学家送去传票，美国人都应该知道中共病毒大瘟疫到底是如何开始的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+参考链接： [https://gettr.com/post/pu1qpu6b33](https://gettr.com/post/pu1qpu6b33)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+
+总编：Zion文恩
+编辑：Lakeman文仁
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -23,7 +29,9 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
