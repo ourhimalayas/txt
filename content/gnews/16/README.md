@@ -2,41 +2,28 @@
 ---
 
 
-## 中共国突发新闻：沈阳一公交车爆炸1死42伤
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2000490/)
+## 有声|日本《疫苗后遗症》电影公映
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2000492/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image015.jpg)
-据中央社报导，中共国沈阳市一辆公交车傍晚近6时在行驶中突然爆炸，现场一片狼藉，引发社会关注与热议。据沈阳警方晚间8时许通报，目前爆炸已造成1人死亡，42人轻重伤，事故原因正在调查中。
+配音：香草山巡管部– 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9D%A1%E5%B9%85.png)
+2月11日，由日本长尾诊所院长——长尾和宏医生作为导演的纪录片《疫苗后遗症》，举行了最后一场在东京的公映。本片在上映的两周前，就将690个席位销售一空。而在大阪，目前所有2月的场次均已爆满。该片导演长尾医生曾收治过53名因疫苗副作用造成后遗症的患者。
 
-据沈阳市公安局官方微博晚上8时16分通报，2月12日傍晚5时55分，指挥中心接到报警，一辆232路公交车行驶至皇姑区黄河南大街与宁山中路路口附近时发生爆炸。接到报警后，省、市领导及公安、应急、急救等部门人员第一时间赶到现场进行处置。据通报，目前，爆炸已造成1人死亡，2人重伤，40人轻伤。受伤人员已送医院救治，事故原因正在调查中。
+影片上映前，长尾医生发表了20分钟的演讲，讲述他为何要制作这部影片以及上映前后的故事。
 
-综合陆媒报导，今天傍晚5时52分，沈阳市皇姑区黄河大街一辆公交车发生爆炸，现场一片狼籍，公交车玻璃碎裂，有人受伤蹲地。现场目击市民称，爆炸时公交车内发出巨响，但没有起火。
+文字版原文：[日本《疫苗后遗症》电影公映](https://gnews.org/zh-hans/1998215/)
 
-据悉，腾讯视频1月11日才播出“开端”，这是一部描述公交车爆炸的时空轮回剧。事件发生后，“沈阳一公交车爆炸”在微博阅读量迄今已破7500万，引发网友热议，不少人怀疑事件恐怕有罪犯要模仿该剧。
+音频处理/发稿：Daxia
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-
-**推出问题，敲出真相，爆料在路上！**
-
-**请关注和订阅我们的以下账号：**
-
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
-
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
-
-**玫瑰看新闻YOUTUBE账号**：
-
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**ROSE NEWS**
-
-**【玫瑰看新闻】推特账号**：
-
-**ROSE NEWS (@ROSENEWS4)A**
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
