@@ -2,76 +2,28 @@
 ---
 
 
-## 孤狼
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2000164/)
+## 有声|香港日增新冠突破1000，6个月来首次出现死亡病例
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2000365/)
 
-作者：蓝之灵
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-（此诗献给所有曾经孤军奋战过的人）
+配音：香草山巡管部– 文凯琳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+港共政府模仿大陆实施“清零”政策以来，香港中共病毒确诊人数不断攀升。周三单日中共病毒病毒确诊个案“破千”达1,161例，再创两年疫情以来新高，当中1,153例为本地感染；至于初步确诊亦达到约800例。
 
-你是一只孤狼
-独自舔着流血的伤
-有压迫出现
-就跳出最高
-厮杀狠咬
-即便在黑夜里奔跑
-也追逐着光
-那光
-是希望
-是生之使命
-永远也不会忘记的
-族人的血和同伴的伤
+林郑月娥周二宣布防疫措施升级，包括将公众场所进行群组聚集的人数限制（限聚令）由四人收紧至二人，并首度将“限聚令”延伸至私人处所，禁止两个以上的跨家庭聚会。
 
-![歌曲孤狼-西瓜视频搜索](http://p26-sign.bdxiguaimg.com/pgc-image/15274030633675de3b26e80~tplv-pk90l89vgd-crop-center:864:486.jpeg?x-expires=1663158493&amp;x-signature=yGXmiMJ8e%2FwyBE3rYLa2G5mmfLA%3D)
+文字版原文：[香港日增新冠突破1000，6个月来首次出现死亡病例](https://gnews.org/zh-hans/1995136/)
 
-你在奔跑
-你在战斗
-孤独的你
-一只坚强的狼
+音频处理/发稿：Daxia
 
-有一天
-你遇到了同类
-有人防备
-有人欢迎
-你试着靠近
-再靠近
-直到所有人
-都接纳了你
-从此
-你又有了同伴和族人
-您和他们并肩作战
-受伤了
-有同伴为你疗伤
-你幸福的闭上眼睛
-感受这温暖
-不再孤独和悲伤
-
-天
-终于
-露出来
-曙光
-孤狼的眼睛
-闪闪发亮
-希望在前方
-何惧这短暂的伤
-你
-已经不再是
-一只孤独的狼
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-4.jpg)
-
-**校对/发稿：童谣**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

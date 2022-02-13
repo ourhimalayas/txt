@@ -2,31 +2,34 @@
 ---
 
 
-## 加拿大法官加入了对卡车司机的镇压
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1999591/)
+## 美众议院提案为因拒绝接种中共疫苗解职的军人复职
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1999617/)
 
-撰稿：小毛牛
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2.13C.jpg)网络图片
-据报道：一名加拿大法官已下令在与美国接壤的大桥上的抗议者必须结束他们的封锁行为。因为该封锁扰乱了两国之间的货物流通，并导致了双方汽车业的生产倒退。
+撰稿：银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-3.png)
+2月10日，美国媒体消息，本周，美国共和党人公布了一项立法提案，旨在确保拒绝接种中共病毒疫苗的美国军人能够继续服役。该项立法涉及：不得使用联邦资金要求武装部队成员接种中共病毒疫苗；有关秘书不得以武装部队成员拒绝接种中共病毒疫苗为由，对该成员采取任何不利行动。该法案还要求之前因拒绝接种疫苗被开除的士兵被恢复之前的军事级别，以及损失的工资与删除的服役记录。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1298.png)图片来自：https://www.axios.com/
+据悉，由于拜登政府的强制新冠疫苗令，数百名宝贵的美国军人被迫离开军队，带走了他们多年的专业技能、无私奉献的职业生涯和终生的军事梦想，造成不可接受的结果。同时，接种新冠疫苗后的美国军人，出现各类严重并发症的数据比率严重暴增。
 
-但是，目前尚不清楚法院何时或者是否会派出执法人员前往现场驱散示威者。示威者在大桥附近停放了自己的车辆以抗议加拿大对 COVID-19 的限制措施，以及表达对总理小土豆的愤怒。
+媒体称，在世界如此紧张的局势下，此提案如立法，对中共疫苗带给美国军队的负面影响，将会起到一定的缓和作用。
 
-在此法官令下达后不久，当地警方立即警告封锁者说：封锁街道的示威者可能会被捕，而且他们的车辆也可能会被没收。
+新闻来源：[House conservatives introduce bill to protect, reinstate soldiers who refuse COVID shots](https://www.lifesitenews.com/news/house-conservatives-introduce-bill-to-protect-reinstate-soldiers-who-refuse-covid-shots/)
 
-随后小土豆也嚣张的警告封锁者：你们的这种非法行为必须结束，立马回家去，否则……
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-3.png)
 
-同样，另一狠角色安大略省省长道格福特随后也宣布了他的省进入紧急状态，并威胁要对那些干扰货物和人员自由流动的人处以重罚。 并扬言道，违反者将面临最高一年的监禁，以及有可能会取消任何不遵守规定的人的个人和商业执照。
+总编：Ivy001
 
-小土豆随后表示了与自己沆瀣一气的该省长的欣赏：道格福特的决定是负责任和必要的。
+编辑：静言
 
-小土豆还继续离间封锁者和普通民众：我理解抗议者对疫情感到沮丧，但抗议者的这些封锁正在伤害普通家庭、汽车装配工人、农民、卡车司机和蓝领加拿大人。抗议活动已经导致汽车零部件短缺，迫使通用汽车、福特、丰田和本田关闭工厂或取消轮班。
+校正/发稿：浪迹天涯
 
-抗议者们表示：政府对 COVID-19引起的限制已经相当过分，我们必须封锁道路，因为只有这样才能引起政府的反思。最为重要的是，我们应该由每个人自己决定注射什么到自己的身体里，额不是被强制，这事关我们赖以生存的自由。
-
-新闻来源：
-
-[Canadian judge orders end to COVID-19 protest blockade at US border bridge](https://www.abc.net.au/news/2022-02-12/canadian-judge-orders-an-end-to-blockade-at-border-bridge/100825460)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

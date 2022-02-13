@@ -2,32 +2,76 @@
 ---
 
 
-## 美印太战略应对中共威胁维护台海和平
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2000056/)
+## 孤狼
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2000164/)
 
-作者：纽约香草山 医疗部 云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月11日，美国白宫公布印太战略报告。 主要内容提及，美国将致力于应对中共对印太区域的威胁，维护台海和平稳定，帮助台湾自卫，及确保台湾民众可自由选择未来生活的方式，保障印太地区繁荣安全，捍卫美国及盟友在该区域的利益。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-13-上午10.06.53.png)
-报告指出，中共在印太区域持续增强扩张力度，不但以军事行动侵扰台海、南海，威胁各国在该区域自由航行的权利。 还积极对周边国家进行渗透侵略，使印太区域陷入不稳定状态。美国将在未来2年展开多项核心工作，包括在印太地区投入新资源、推动印太经济架构、加强威慑战力、强化东南亚国家协会、支持印度在区域内的发展、强化四方安全对话（Quad）、扩大美日韩合作、协助太平洋岛国持续发展等。
+作者：蓝之灵
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+（此诗献给所有曾经孤军奋战过的人）
 
-为达成对中共的军事威慑力量，美国行政部门将与国会合作，为《太平洋威慑倡议》与《海事安全倡议》提供所需的资金。
+你是一只孤狼
+独自舔着流血的伤
+有压迫出现
+就跳出最高
+厮杀狠咬
+即便在黑夜里奔跑
+也追逐着光
+那光
+是希望
+是生之使命
+永远也不会忘记的
+族人的血和同伴的伤
 
-参考链接：[美公布印太戰略 維護台海和平、威嚇軍事侵略](https://www.cna.com.tw/news/aopl/202202120010.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+![歌曲孤狼-西瓜视频搜索](http://p26-sign.bdxiguaimg.com/pgc-image/15274030633675de3b26e80~tplv-pk90l89vgd-crop-center:864:486.jpeg?x-expires=1663158493&amp;x-signature=yGXmiMJ8e%2FwyBE3rYLa2G5mmfLA%3D)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+你在奔跑
+你在战斗
+孤独的你
+一只坚强的狼
 
-总编：飞虹
-编辑：Zion文恩
-校正/发稿：呼吸的雾霾（文小呼吸）
+有一天
+你遇到了同类
+有人防备
+有人欢迎
+你试着靠近
+再靠近
+直到所有人
+都接纳了你
+从此
+你又有了同伴和族人
+您和他们并肩作战
+受伤了
+有同伴为你疗伤
+你幸福的闭上眼睛
+感受这温暖
+不再孤独和悲伤
+
+天
+终于
+露出来
+曙光
+孤狼的眼睛
+闪闪发亮
+希望在前方
+何惧这短暂的伤
+你
+已经不再是
+一只孤独的狼
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-4.jpg)
+
+**校对/发稿：童谣**
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
