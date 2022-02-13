@@ -2,40 +2,28 @@
 ---
 
 
-## 短视频：以色列疫苗最高负责人承认应相信自然免疫
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1998452/)
+## 美议员谈《制止中共法案》：我们触动了某些人的神经
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1998540/)
 
-翻译：不要代表我
-校对：精靈藍
-剪辑字幕：向上James 
-编辑：文泓
+#### 翻译/撰稿：zzballack
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/811-2.png)图片来源：视频截屏
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-2-9.jpg)图片来源：推特
+据《布雷特巴特新闻网》（Breitbart News）2月12日报道，美国共和党众议员丽莎·麦克莱恩 (Lisa McClain)2月12日在接受播客《布雷特巴特新闻星期六》（Breitbart News Saturday）的主持人马修·博伊尔（Matthew Boyle）采访时谈论了她新近提出的《制止中共法案》（Stop CCP Act），该法案将对中共官员及其亲属实施制裁。
 
+麦克莱恩说：“《制止中共法案》将限制中共党员及其家庭成员的出行，并对其实施金融制裁。这个法案发出了一个强烈信息，即中共的行为不会被容忍。由于拜登政府没有对中共采取强硬措施，国会需要这样做。软弱会滋生侵略，看看现今世界，这种情况正在发生。”
 
-首先，我们从中了解到的是，那些疫苗在预防方面比较出色，我想说的是预防严重的疾病，严重的病例方面非常好。但不幸的是，它们对（防止）传染的有效性有所降低。而这是一个教训。
+在采访中，博伊尔特别提到了如果该法案正式成为法律，那么习近平的女儿将不被允许上哈佛大学。另外中共喉舌胡锡进叫嚣威胁说，如果该法案被正式通过，将对美国政府成员实施报复性制裁。麦克莱恩对此表示欢迎，她告诉博伊尔：“看起来我们触动了某些人的神经。尽管制裁吧，反正我短期内没有去中共国旅行的计划，我也不会把我的孩子送到中共的孔子学院去接受教育。对于制裁，我没有任何担心。”
 
-这让你感到很惊讶吗？你是以色列疫苗领域的最高负责人，您是否期望（新冠）疫苗在预防传播方面比以前更好？
+麦克莱恩说国会需要停止对中共的各种侵犯人权行为视而不见，无论是香港、维吾尔穆斯林，还是台湾。“我们必须停止这样做。因为我还是那句话，软弱会滋生侵略。”
 
-是的，我告诉你为什么，在以色列，我是少数几个真正关注此事的人之一。
+采访中，两人讨论了让《制止中共法案》与《年度国防授权法案》（National Defense Authorization Act）捆绑在一起的可能性。麦克莱恩说，这是一种可能，但由于民主党控制着众议院、参议院和白宫，在我们夺回众议院之前，它很可能不会通过。
 
-你知道，特别是我们在3月、4月所看到的。我的意思是，你知道，去年春天我们在以色列所感受到的。
+新闻来源：
 
-在致命的（去年）1月份有超过4000人死亡，在此之后，经历了第三次封锁之后，突然间，又逐渐的解封、开放、解封，病例在逐渐减少，医院变得空荡荡。不是在开玩笑，我的同事们，医生们在走廊里跳舞，都是出于喜悦，（都认为）疫情结束了。
+[Exclusive — Rep. Lisa McClain on Stop CCP Act: ‘We’ve Struck a Nerve’](https://www.breitbart.com/politics/2022/02/12/exclusive-rep-lisa-mcclain-on-stop-ccp-act-weve-struck-a-nerve/)
 
-因此，我们当时确实相信，疫苗可以预防也防止传播（病毒），而且数据也证实了这一点。所以我们相信，你知道，疫苗可以预防传播，可能在接种后不久，但不会持续很长时间。
-
-因此，是的，最后我们惊讶地发现，不！**疫苗并没有保护我们，也没有产生我们（期待）所谓的消除性免疫力。**
-
-视频链接：[Israeli vaccine advisor: “We have made mistakes” – The Post (unherd.com)](https://unherd.com/thepost/israeli-vaccine-chief-we-have-made-mistakes/)
-
-发布：文泓
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[众议院保守派提出针对数千名中共官员的制裁法案](https://gnews.org/zh-hans/1983139/)
 
  
 

@@ -2,49 +2,49 @@
 ---
 
 
-## 官方数据显示：完全接种者可能已患上疫苗引起的艾滋病
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1998819/)
+## 灭共的雪用无暇身躯净化被谎言笼罩的世界唤醒无尽黑夜
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1998944/)
 
-翻译： Jenny Ball
+G-TV视频链接：[https://gtv.org/video/id=6208a0c5b0af02660af30f77](https://gtv.org/video/id=6208a0c5b0af02660af30f77)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1287.png)图片来源：naturalnews.com
+**郭文贵先生：**我爱你 塞北的雪  飘飘洒洒漫天遍野  你的舞姿是那样的轻盈  你的心地是那样的纯洁  你是消灭那共匪的战友  你是上天派出的使节   灭共的使节  我爱你 灭共的雪  轰轰烈烈漫山遍野  你用自己无暇的身躯  净化被谎言笼罩的世界  你把真相传递给了人间  唤醒那无尽的黑夜
 
-《自然新闻》最新数据显示，武汉冠状病毒（Covid-19）“疫苗”的长期影响最终于开始显现，像由疫苗引起的艾滋病。
+我唱这首歌，刚才这个是我们改版的，（现在）我唱一段原版的，Q May。（注：开始唱）我爱你～
 
-英国政府数据显示，“完全接种疫苗”的英国人可能已经到了无法回头的地步，因为许多注射疫苗的人现在患有自身免疫性疾病。
+没有原版的，我唱的不是原版的这个，没打出来原版的。
 
-英国卫生安全局 (HAS) 的最新数据表明，接种疫苗的“病例”大幅增加。与此同时，未接种疫苗的人大多情况良好。
+歌词：我爱你 塞北的雪  飘飘洒洒漫天遍野  你的舞姿是那样的轻盈  你的心地是那样的纯洁  你是消灭那共匪的战友  你是上天派出的使节 灭共的使节
 
-“正如你所清楚看到的，尽管未接种疫苗的人被迫比完全接种疫苗的人受到更多的限制，但英格兰正在经历一场完全接种疫苗的大流行。2022 年 1 月，18岁以上接种疫苗的人，整体记录了令人震惊的 167万例，而 18 岁以上未接种疫苗的人群中，只有 228,750 例，” 《每日曝光》（Daily Exposé） 报道。
+太棒了！我们这首歌是由唐平老师、威廉王老师、Q May、Ryan一起改编谱的曲，今天由Q May一琴打天下，我们要唱这《塞北的雪》。
 
-《每日曝光》提出了自己的计算方法来确定“完全接种”病例之间的差异，包括双重和三重接种，以及“未接种”病例，因为政府在其报告中没有区分这些。
+字幕来源：[2022年1月31日 《春节大直播》 全文字版（一）](https://gnews.org/zh-hans/1943980/)
 
-根据这些方法，《每日曝光》确定，在英格兰进行新冠病毒注射的实际效果，实际上为负 183%——这意味着负面效果。
+编辑整理：Jacques；
 
-换句话说，注射会降低一个人的免疫能力，正如我们所报道的那样，随着时间的推移，免疫能力会继续减弱，因此有了 VAIDS（疫苗诱导的艾滋病）的新名称。
+字幕文件制作：知津；
 
-Covid“疫苗”似乎会永久损害自然免疫功能
+视频制作及上传：Cindy；
 
-顺便说一句，疫苗有效性并不是真正衡量疫苗的标准。它实际上是与没有打疫苗时的“纯血” 时的免疫系统性能与注射后的免疫系统性能相比，疫苗接受者的衡量标准。
+G-News发布：小满；
 
-疫苗的作用，包括所谓的**C****ovid **“疫苗**”**，是训练免疫系统识别外来入侵者，在**C****ovid **疫苗这种情况下，即是**SARS-CoV-2 **刺突蛋白。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-它通过引入人工刺突蛋白片段来做到这一点——或者在 mRNA（信使 RNA）注射的情况下，则为身体制定蓝图来产生自己的刺突蛋白。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-一直以来的说法是，这些刺突蛋白和/或刺突蛋白蓝图会在一段时间后消失，让您的身体来处理其余部分。但从长远来看，注射Covid疫苗对身体有什么影响？
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-答案似乎是：免疫系统不仅被削弱了，而且还被设置为最终破坏的速成程序。随着时间的推移，它似乎会继续减弱，使被接种的人容易患上各种疾病，就像艾滋病患者一样。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-“……在英格兰，完全接种疫苗的人的免疫系统，平均只剩下最后 35% 的免疫系统来对抗某些类型的病毒和某些癌症，”《曝光》补充道， “问题是，他们剩余的 35% 的免疫系统何时会耗尽？”
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-素材链接：[naturalnews.com][The fully vaccinated may already be suffering from jab-induced AIDS, government data suggests](https://www.naturalnews.com/2022-02-10-fully-vaccinated-suffering-jab-induced-aids-data.html)
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-* * *
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-*审核：文乐
-校对：小东
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1.jpeg)
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

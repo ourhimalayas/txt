@@ -2,26 +2,28 @@
 ---
 
 
-## 莫德纳CEO在抛售了数千万美元的股票后删除其推特帐户
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1998614/)
+## 以色列顾问：疫苗护照不为阻止传播，而为扩大接种
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1998650/)
 
-#### 翻译/撰稿：zzballack
+##### 翻译：不要代表我Kari
+校对：精靈藍
+剪辑|字幕：向上James
+编辑：Mttfly
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-2-1.jpg)图片来源：福布斯
-据《The Covid World》2月13日报道，莫德纳（Moderna）公司的首席执行官（CEO）斯特凡·班塞尔（Stéphane Bancel）本周在卖出数千万美元的莫德纳股票后删除了其推特帐户。据Gurufocus网站显示，班塞尔在2月10日出售了19000股莫德纳股票，获利2000多万美元。目前仍不清楚班塞尔为何删除其推特账户，莫德纳CEO的这项奇怪举动让投资者感到担心和困惑，该公司也尚未发表官方声明对此做出解释。
+以色列卫生部*SARS*‑CoV‑2疫苗临床试验咨询委员会成员Cyrille Cohen近日表示，维持疫苗护照已经没有意义。他在采访中委婉表示，他不想触碰疫苗护照在政治方面的问题。但一个公开的秘密是，疫苗护照不是为了防止传播，是为了鼓励人们接种疫苗。
 
-此事发生后不久，前贝莱德 (BlackRock)对冲基金经理爱德华·唐德（Edward Dowd）2月10日在推特上回复莫德纳的官方账户说：“你们的CEO昨天关闭了他的推特账户，我猜是在内部律师的建议下完成的。毫无疑问！”
+视频来源：[Israeli vaccine chief- -We have made mistakes](https://unherd.com/thepost/israeli-vaccine-chief-we-have-made-mistakes/)
 
-唐德上个月在接受《班农战斗室》采访时指控辉瑞和莫德纳在其新冠疫苗的临床试验中存在欺诈行为。如果这些指控被证明属实，这将意味着辉瑞和莫德纳都要对其疫苗造成的所有伤害和死亡负责。唐德说：“我相信，由于当时的制度性要求，以及他们试图批准这些使用未经验证技术的产品的速度，辉瑞和莫德纳疫苗的临床试验数据存在欺诈，以便强行通过审批。”
+*发布：Mttfly*
 
-辉瑞、莫德纳等大药厂在这次新冠疫情中仓促推出其不成熟的疫苗产品，在大发横财的同时对世界造成了深重灾难。做贼心虚的他们知道，已看清其真实面目的全球民众不会放过对他们的追责，等待他们的将是纽伦堡2.0大审判。
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-新闻来源：
 
-[Moderna CEO Stéphane Bancel Deletes Twitter Account, Sells Tens Of Millions Of Dollars In Stock](https://thecovidworld.com/moderna-ceo-stephane-bancel-deletes-twitter-account-sells-tens-of-millions-of-dollars-in-stock/)
-
-[Bancel Stephane](https://www.gurufocus.com/insider/Bancel+Stephane/name)
 
  
 

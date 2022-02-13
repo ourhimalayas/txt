@@ -2,24 +2,40 @@
 ---
 
 
-## 加拿大和美国边境抗议者继续堵住大使桥通道
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1998430/)
+## 短视频：以色列疫苗最高负责人承认应相信自然免疫
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1998452/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-184.jpg)
-图片来源： www.sohu.com
+翻译：不要代表我
+校对：精靈藍
+剪辑字幕：向上James 
+编辑：文泓
 
-美联社2月12日报道， 抗议新冠疫苗强制措施和其他限制措施的抗议者们周六在美加边境大使桥的主干道放弃用卡车堵路，但仍然通过其他抗议方式继续在加拿大各城市，包括首都渥太华进行，警方说在终止所谓的非法占道之前他们还在等待更多的警力。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/811-2.png)图片来源：视频截屏
 
-在连接美国底特律和加拿大温莎的大使桥两边发生的对歭紧张势态在加拿大警察说服抗议者移除卡车后稍微改善，但抗议者们在附近重新聚集，再次加强，周六仍然堵住了加拿大一边的通道，第六天继续堵住交通和商业。
 
-在渥太华，抗议者人群继续在壮大，警察说大约有4000名抗议者，上两个周末，抗议者们在市中心扎营并放着响亮的音乐。
+首先，我们从中了解到的是，那些疫苗在预防方面比较出色，我想说的是预防严重的疾病，严重的病例方面非常好。但不幸的是，它们对（防止）传染的有效性有所降低。而这是一个教训。
 
-来自美加边境桥，渥太华和其他地方的抗议者们与加拿大以外的抗议者们遥相呼应，与在法国，新西兰，挪威的抗议相类似，美国国土安全部警告说卡车护航抗议活动很可能在美国发生。
+这让你感到很惊讶吗？你是以色列疫苗领域的最高负责人，您是否期望（新冠）疫苗在预防传播方面比以前更好？
 
-特鲁多称抗议者只是极少数，联邦和省领导人说他们不能命令警察做什么。疫情下加拿大的限制措施比美国更严格，如口罩令，去餐厅和剧院的疫苗护照，以至强制疫苗措施让加拿大卡车司机们忍无可忍站了出来。
+是的，我告诉你为什么，在以色列，我是少数几个真正关注此事的人之一。
 
-##### 新闻来源： [Blockades on Canada-US border continue, protests swell](https://apnews.com/article/coronavirus-pandemic-health-united-states-justin-trudeau-blockades-f3368c041216343175d255a2ce23eb84)
+你知道，特别是我们在3月、4月所看到的。我的意思是，你知道，去年春天我们在以色列所感受到的。
+
+在致命的（去年）1月份有超过4000人死亡，在此之后，经历了第三次封锁之后，突然间，又逐渐的解封、开放、解封，病例在逐渐减少，医院变得空荡荡。不是在开玩笑，我的同事们，医生们在走廊里跳舞，都是出于喜悦，（都认为）疫情结束了。
+
+因此，我们当时确实相信，疫苗可以预防也防止传播（病毒），而且数据也证实了这一点。所以我们相信，你知道，疫苗可以预防传播，可能在接种后不久，但不会持续很长时间。
+
+因此，是的，最后我们惊讶地发现，不！**疫苗并没有保护我们，也没有产生我们（期待）所谓的消除性免疫力。**
+
+视频链接：[Israeli vaccine advisor: “We have made mistakes” – The Post (unherd.com)](https://unherd.com/thepost/israeli-vaccine-chief-we-have-made-mistakes/)
+
+发布：文泓
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
