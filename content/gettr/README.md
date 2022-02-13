@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/13/2022 10:46 PM (UTC)`
+
+2月13号：尊敬的战友们好，你们健身了吗？传播CCP病毒．疫苗解药的真相了吗？一切都已经开始！
+![img](https://media.gettr.com/group41/getter/2022/02/13/22/1a155b9d-b14b-1e36-f289-8ad8c5256ee7/out.jpg)
+
+---
+
 `@miles 2/13/2022 10:14 PM (UTC)`
 
 2/13/2022 Miles Guo: We will soon witness a dramatic change in the world! The Freedom Convoy around the world was started by the New Federal State of China and me, and it originated from the Hong Kong movement that I planned. The Freedom Convoy has opened a new way of peacefully protesting tyranny, with its essence being completely uniting the future economy and the political movements against dictatorship.<br/><br/>2/13/2022 文贵直播：很快，我们将见证世界巨变！全球大卡车运动的发起人是新中国联邦和文贵，它源自于文贵策划的香港运动；大卡车运动开启了和平对抗暴政的新方式，其本质是将未来的经济和反对独裁的政治运动彻底联合在一起<br/>
@@ -147,13 +154,6 @@
 
 2/11/2022 Miles Guo: All those who are protesting against the COVID vaccine mandate<br/>are our fellow fighters. After the PAG case was ruled, those who want to donate money to me the most are the rich Westerners who followed my advice and didn't get the COVID jabs. The COVID vaccines and the Winter Olympics have made the world stand with us to eliminate the CCP. I have never felt so great and blessed in the cause of taking down the CCP.<br/><br/>2/11/2022 文贵直播：所有反对强打疫苗的都是我们战友！PAG判决出来后，最想要给文贵捐钱的是听了文贵的劝没打疫苗的西方富豪；疫苗和冬奥会让全世界和我们站在一起灭共；文贵从未感觉到灭共事业是如此的伟大和幸福！<br/>
 ![img](https://media.gettr.com/group40/getter/2022/02/12/01/91779aa7-3f1c-40f7-b0ce-8dc3c26d3501/out.jpg)
-
----
-
-`@miles 2/12/2022 12:51 AM (UTC)`
-
-2/11/2022 Miles Guo: The ruling of the PAG case is absolutely unacceptable, and we will never compromise! The PAG case is certainly not a normal case, neither is it about money. Instead, I am going to find out the truth. The foreign banking license UBS received was approved by Wang Qishan and signed by Cai Esheng.<br/><br/>2/11/2022 文贵直播：绝不接受PAG案子的判决，我们绝不妥协！PAG案绝非正常案件，打这个官司绝不是钱的问题，文贵要找到真相；UBS的外国银行牌照是王岐山批准并由蔡鄂生签署的
-![img](https://media.gettr.com/group32/getter/2022/02/12/00/b560822e-1ff0-fe0a-08e8-61552b195180/out.jpg)
 
 ---
 
