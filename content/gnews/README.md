@@ -15,116 +15,116 @@
 
 ---
 
-### [2月11日文贵大直播（图4-6](/content/gnews/1/README.md)
- ` 波士顿五月花农场`
-
-### [七哥爆料陈全国（二）](/content/gnews/2/README.md)
+### [日本让你自己站起来](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [丹麦和瑞典敦促公民离开乌克兰，欧盟表示不会撤离基辅](/content/gnews/3/README.md)
- ` 秘密翻譯組G-Translators`
+### [不能依靠别人](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
 
-### [2/11/2022 文贵直播：文贵必将把单伟健和PAG的事情整明白，中共践踏国际规则，在西方的渗透、攻击和造假越多，中共下场越惨](/content/gnews/4/README.md)
- ` 秘密翻译组-北美组`
+### [美国从阿富汗撤军的原因](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
 
-### [2月11日文贵大直播摘要（图1-3](/content/gnews/5/README.md)
+### [2月11日文贵大直播摘要（10-12](/content/gnews/4/README.md)
  ` 波士顿五月花农场`
 
-### [2/11/2022 文贵直播： 谷爱凌和谷燕给中国人拉仇恨，让亚裔跟全世界对立，掀起了排华浪潮](/content/gnews/6/README.md)
- ` 秘密翻译组-北美组`
+### [2月11日文贵大直播摘要（7-9](/content/gnews/5/README.md)
+ ` 波士顿五月花农场`
 
-### [2/11/2022 文贵直播：战友们要捐钱给文贵的好意文贵心领了，但文贵从来不向任何人伸手要钱，也从不接受任何捐赠，所以战友们千万不要捐钱给文贵](/content/gnews/7/README.md)
- ` 秘密翻译组-北美组`
+### [沈阳232路公交车发生爆炸](/content/gnews/6/README.md)
+ ` 首尔天池农场`
 
-### [2/11/2022 文贵直播: 中共大肆宣传谷爱凌意在利用冬奥会的所谓正能量掩盖锁链女事件](/content/gnews/8/README.md)
- ` 秘密翻译组-北美组`
+### [七哥爆料陈全国（四）](/content/gnews/7/README.md)
+ ` 雅典娜GNotes`
 
-### [郭文贵先生2022年2月12日盖特视频（9分20秒）全文字版](/content/gnews/9/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [与感染者同居 有发热症状的密接者阳性率高](/content/gnews/10/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [2/12/2022 文贵盖特：回答战友关于如何做出人生重大决定的问题，除了看透生死、放下恐惧，还要独立判断、不受他人影响，只要是你内心觉得有意义的、正确的、不伤害别人或能帮助别人的都可以做](/content/gnews/11/README.md)
- ` 秘密翻译组-北美组`
-
-### [【粤语配音】2022年2月12日：人生要做你自己](/content/gnews/12/README.md)
- ` MOS香港部`
-
-### [举报人揭露军队中疫苗伤害，国防部继续掩盖真相](/content/gnews/13/README.md)
+### [乔•罗根抨击收视率不断下滑的CNN不诚实](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [恐惧和冲动只会失去机会远离胜利](/content/gnews/14/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [七哥爆料陈全国（三）](/content/gnews/9/README.md)
+ ` 雅典娜GNotes`
 
-### [七哥去英国日本前必须要满足的几个条件](/content/gnews/15/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [英国间谍案](/content/gnews/16/README.md)
- ` 【去疫前线】`
-
-### [灭共者之郭氏情报站（二十四）2022/02/11 文贵大直播](/content/gnews/17/README.md)
- ` MOS Designer香草山设计部`
-
-### [全球疫情更新(全球反强制疫苗示威风起云涌）](/content/gnews/18/README.md)
+### [学生演讲讽刺强迫戴口罩](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|瑞典取消疫苗护照等限制措施](/content/gnews/19/README.md)
- ` MOSREC`
+### [2月11日文贵大直播（图4-6](/content/gnews/11/README.md)
+ ` 波士顿五月花农场`
 
-### [灭共漫画 | 福尔摩斯历险记：中共病毒](/content/gnews/20/README.md)
- ` MOS Designer香草山设计部`
+### [七哥爆料陈全国（二）](/content/gnews/12/README.md)
+ ` 雅典娜GNotes`
 
-### [前辉瑞研究员的惊人揭秘—疫苗临床试验涉嫌数据造假](/content/gnews/21/README.md)
+### [丹麦和瑞典敦促公民离开乌克兰，欧盟表示不会撤离基辅](/content/gnews/13/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声|美大学生校队完胜中共外聘职业联军](/content/gnews/22/README.md)
- ` MOSREC`
+### [2/11/2022 文贵直播：文贵必将把单伟健和PAG的事情整明白，中共践踏国际规则，在西方的渗透、攻击和造假越多，中共下场越惨](/content/gnews/14/README.md)
+ ` 秘密翻译组-北美组`
 
-### [防火墙是中国人精神里的墙](/content/gnews/23/README.md)
+### [2月11日文贵大直播摘要（图1-3](/content/gnews/15/README.md)
+ ` 波士顿五月花农场`
+
+### [2/11/2022 文贵直播： 谷爱凌和谷燕给中国人拉仇恨，让亚裔跟全世界对立，掀起了排华浪潮](/content/gnews/16/README.md)
+ ` 秘密翻译组-北美组`
+
+### [2/11/2022 文贵直播：战友们要捐钱给文贵的好意文贵心领了，但文贵从来不向任何人伸手要钱，也从不接受任何捐赠，所以战友们千万不要捐钱给文贵](/content/gnews/17/README.md)
+ ` 秘密翻译组-北美组`
+
+### [2/11/2022 文贵直播: 中共大肆宣传谷爱凌意在利用冬奥会的所谓正能量掩盖锁链女事件](/content/gnews/18/README.md)
+ ` 秘密翻译组-北美组`
+
+### [郭文贵先生2022年2月12日盖特视频（9分20秒）全文字版](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|众议院保守党人对数千名中国共产党官员提出制裁建议](/content/gnews/24/README.md)
- ` MOSREC`
+### [与感染者同居 有发热症状的密接者阳性率高](/content/gnews/20/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [艾格里斯医生对于新变异病毒的预防和治疗，以及疫苗解毒的最新综合用药治疗方案](/content/gnews/25/README.md)
+### [2/12/2022 文贵盖特：回答战友关于如何做出人生重大决定的问题，除了看透生死、放下恐惧，还要独立判断、不受他人影响，只要是你内心觉得有意义的、正确的、不伤害别人或能帮助别人的都可以做](/content/gnews/21/README.md)
+ ` 秘密翻译组-北美组`
+
+### [举报人揭露军队中疫苗伤害，国防部继续掩盖真相](/content/gnews/22/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [7·24系列——出席北京冬奥会的国家政要们](/content/gnews/23/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [全球疫情更新(全球反强制疫苗示威风起云涌）](/content/gnews/24/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [前辉瑞研究员的惊人揭秘—疫苗临床试验涉嫌数据造假](/content/gnews/25/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [艾格里斯医生对于新变异病毒的预防和治疗，以及疫苗解毒的最新综合用药治疗方案](/content/gnews/26/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [郝董：HPAY 重塑家庭中人与人之间的关系](/content/gnews/26/README.md)
+### [郝董：HPAY 重塑家庭中人与人之间的关系](/content/gnews/27/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [商业集团敦促美加解决边境封锁](/content/gnews/27/README.md)
+### [商业集团敦促美加解决边境封锁](/content/gnews/28/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [苦难的中国女性、中国母亲](/content/gnews/28/README.md)
+### [苦难的中国女性、中国母亲](/content/gnews/29/README.md)
  ` 澳喜农场`
 
-### [尽管 Omicron 激增，挪威仍取消了大多数 中共病毒限制](/content/gnews/29/README.md)
+### [尽管 Omicron 激增，挪威仍取消了大多数 中共病毒限制](/content/gnews/30/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [欧洲药物监管机构重新调查与疫苗有关的月经问题报告](/content/gnews/30/README.md)
+### [欧洲药物监管机构重新调查与疫苗有关的月经问题报告](/content/gnews/31/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [仅最近几个小时意大利不同地区因新冠疫苗死亡的人数在增加。](/content/gnews/31/README.md)
+### [仅最近几个小时意大利不同地区因新冠疫苗死亡的人数在增加。](/content/gnews/32/README.md)
  ` xiaobaige`
 
-### [魁北克省出现两组示威者，支持卡车司机，反对卡车司机，警察迅速将两组人分开](/content/gnews/32/README.md)
+### [魁北克省出现两组示威者，支持卡车司机，反对卡车司机，警察迅速将两组人分开](/content/gnews/33/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [纽约州法院系统培训主任被指搞裙带关系后辞职](/content/gnews/33/README.md)
+### [纽约州法院系统培训主任被指搞裙带关系后辞职](/content/gnews/34/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [华裔女下班途中被击，战友们需提高防范意识](/content/gnews/34/README.md)
+### [华裔女下班途中被击，战友们需提高防范意识](/content/gnews/35/README.md)
  ` 全球G系列咨服群`
 
-### [2022/02/12 英喜时事速递](/content/gnews/35/README.md)
+### [2022/02/12 英喜时事速递](/content/gnews/36/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [NFSC新闻、G|TV新闻访谈简报|2022年2月12日早](/content/gnews/36/README.md)
+### [NFSC新闻、G|TV新闻访谈简报|2022年2月12日早](/content/gnews/37/README.md)
  ` 纽约香草山MOS01`
-
-### [北京冬奥会是第一个完全依赖人工造雪的冬季奥运会](/content/gnews/37/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [“男人都去哪儿了？”为维族冬奥滑雪选手欢呼的家人尽数女性](/content/gnews/38/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`

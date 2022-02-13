@@ -2,11 +2,11 @@
 ---
 
 
-## 2/12/2022 文贵盖特：回答战友关于如何做出人生重大决定的问题，除了看透生死、放下恐惧，还要独立判断、不受他人影响，只要是你内心觉得有意义的、正确的、不伤害别人或能帮助别人的都可以做
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1997306/)
+## 2月11日文贵大直播（图4-6
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1997410/)
 
-秘密翻译组-北美组
-
+设计 五月花农场 科存
+![](https://assets.gnews.org/wp-content/uploads/2022/02/565120C2-8750-401A-A2AB-5DA3E217FE90.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/19E0D25C-97CF-45FA-8BD4-45899720F52B.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/CE0BE7A7-07DB-4A5F-BBBC-1A25CB47035A.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

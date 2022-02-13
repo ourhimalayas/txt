@@ -2,8 +2,8 @@
 ---
 
 
-## 七哥爆料陈全国（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1997409/)
+## 不能依靠别人
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1997545/)
 
 #### 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王
 视频定位：BENJ1，WEI

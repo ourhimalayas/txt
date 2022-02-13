@@ -2,10 +2,26 @@
 ---
 
 
-## 2/11/2022 文贵直播：战友们要捐钱给文贵的好意文贵心领了，但文贵从来不向任何人伸手要钱，也从不接受任何捐赠，所以战友们千万不要捐钱给文贵
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1997352/)
+## 七哥爆料陈全国（四）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1997435/)
 
-秘密翻译组-北美组
+#### 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王
+视频定位：BENJ1，WEI
+
+相关链接：
+[七哥爆料陈全国（一）](https://gnews.org/zh-hans/1994328/)
+[七哥爆料陈全国（二）](https://gnews.org/zh-hans/1997409/)
+[七哥爆料陈全国（三）](https://gnews.org/zh-hans/1997433/)
+[七哥爆料陈全国（四）](https://gnews.org/zh-hans/1997435/)
+
+*发布：玉米地守望者*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
