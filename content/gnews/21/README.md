@@ -2,37 +2,39 @@
 ---
 
 
-## SEC 退款对GTV投资者的影响和意义
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1998192/)
+## 称“数据不足” 辉瑞推迟婴幼儿疫苗接种申请
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1998216/)
 
-撰稿：信心满满
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-13-002831.png)网路截图
-最近美国证监会发出对GTV私募投资者，G Coin 和G Dollar 投资者进行退款， 退款是
+作者：纽约香草山 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+2月11日，辉瑞·拜恩特生物技术公司突然以“数据不足”为由，推迟了正在向美国食品和药物管理局提出的、针对6个月至4岁儿童的两剂中共病毒疫苗的授权申请。
 
-美国证券交易委员会行政审理案列号 3-20537依据美国证券交易委员会法规条列17 C.F.R. § 01.1101。退款时间范围是对GTV投资在2020年4月20号到 2020 年6月20号，G Coin 和G Dollar投资在2020年 4月1号到2020年6月30日。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8-13.jpg)
 
-SEC文件中声明归还投资者金额 $486,745,063加预计利息$17,688,365。 SEC正式批准分配计划后15天内，基金管理人会
+辉瑞公司声明，正在等待其第三针疫苗的测试数据，该数据预计于四月初公布。辉瑞公司称第三针“可能为这个年龄组提供更高水平的保护”。然而，该公司在去年12月份的数据表明，在2至4岁儿童的试验中，两剂疫苗没有产生应有的免疫反应。
 
-- 制作中英文《索赔表格》，交给SEC律师审阅及批准； 建立符合退款资格战友的通讯和索赔数据库；
-- 以邮寄或电子邮件方式向符合退款战友发送《分配计划通知》；中英文公允基金网站[www.GTVMediaGroupFairFund.com](http://www.GTVMediaGroupFairFund.com)会建立。基金管理人将在网络及/或SEC接受的印刷媒体上发布《简报通知》。
-- 通知发布一共4 次，第1次通知在分配计划获批后10天内发布。
-- 公允基金网站上将会明确标出提交《索赔表格》的截止日的具体日历日期。
-- 收到符合退款战友邮件、电话或电子邮件退款要求，基金管理人会及时向潜在退款战 友提供索赔文件包。
-- 符合退款战友必须在提出索赔申请截止日当日或之前填写并提交《索赔表格》截止日应该自首次邮寄《分配计划通知》之日起四十五天
-- 基金管理人对收到符合退款战友填写的《索赔表格》会在截止时间之前及时用邮寄，电子，电话方式处理符合退款战友退款要求
-- 鼓励电子方式提交 SEC鼓励以电子方式提交索赔要求。
+据两位熟悉FDA规划的人士说，已有众多外部专家对该机构提交了大量的文件，质疑辉瑞的数据不够充分。FDA生物制品评估和研究中心主任彼得·马克斯博士表示，监管机构审查了辉瑞公司的两针剂数据后，决定在考虑授权之前需要先看到第三针疫苗接种试验的效果。
+
+分析人士指出，辉瑞公司要求授权婴幼儿的两剂疫苗不符合科学和常理，因为前两剂疫苗没有效果，也不能保证增加第三剂就起作用。在欧洲各国纷纷取消疫苗通行证和各种限制的时间关口，也许辉瑞公司这一个不同寻常的推迟授权请求，标志着疫苗政策的转向。
+
+参考链接：
+
+- [Pfizer postpones FDA request for Covid vaccine for kids under 5](https://www.nbcnews.com/health/health-news/pfizer-covid-vaccine-kids-fda-authorization-postponed-rcna15730?cid=sm_npd_ms_tw_ma)
 
 
-若网上提交，必须在提出索赔申请截止日当晚11:59分（美东时间）提交索赔表格。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
 
-文贵先生从2017年爆料已经经过了五个年头，文贵先生所经历的压力和困难不是我们普通战友能承受的。文贵先生被共产党操控的官司譬如PAG，UBS瑞士信贷银行，共产党走狗伪类缠身，受到各种威胁。其中九指妖, Sarah 和共产党勾结利用战友对文贵先生，爆料革命的信任骗取投资款，导致投资款被SEC监管和冻结。真战友会一直跟随文贵先生，爆料革命虽然在灭共有曲直和艰难。但是，我们从这次SEC退款可以让不坚定投资人或者破坏爆料革命的共产党走狗移除出去，让爆料革命队伍更加纯洁和灭共信念更坚定。
+总编：Irene木木
+编辑：Lakeman文仁
+校正/发稿：海阔天空1
 
-资料来源
-
-[https://www.sec.gov/litigation/admin/2022/34-94107-pdp.pdf](https://www.sec.gov/litigation/admin/2022/34-94107-pdp.pdf)
-
-文贵先生直播
-![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

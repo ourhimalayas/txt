@@ -2,29 +2,22 @@
 ---
 
 
-## 奥密克戎亚变种BA.2 接种者更易感染
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1998217/)
+## 联合国安理会为朝鲜开会 传中俄拒签谴责声明
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1998283/)
 
-作者：台湾宝岛农 – dobi
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-台媒2月10日消息，最新研究指出，奥密克戎亚变种BA.2病毒与先前出现的病毒相比，不仅具有更强的传染力，对曾接种过疫苗者，也更容易感染。
+作者：台湾宝岛农场dobi
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月5日，国外媒体报道，联合国安理会当天应美国要求，针对朝鲜议题召开了闭门会议。美国针对朝鲜连续试射强威力导弹，起草了一份联合声明，对朝鲜的行为提出谴责。但中共和俄罗斯拒绝签署这一声明。
+![中國常駐聯合國代表張軍。 美聯社](https://pgw.udn.com.tw/gw/photo.php?u=https://uc.udn.com.tw/photo/2022/02/05/98/15797204.jpg&amp;x=0&amp;y=0&amp;sw=0&amp;sh=0&amp;sl=W&amp;fw=800&amp;exp=3600&amp;w=930)美聯社
+据悉，朝鲜仅在今年1月就7次试射导弹，其中包括自2017年以来威力最强的一枚，暗示了朝鲜可能会重启远程武器及核武器测试。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/7-16.jpg)
+报导还提及，中共与俄罗斯一直在联合国安理会阻拦有关朝鲜的措施，去年甚至还提出基于人道应放宽对朝鲜的制裁，但因得不到支持而没有进入表决程序。
 
-爆料革命曾引疫苗专家吉尔特·范登·保茨博士的研究警告，中共疫苗接种不仅会破坏免疫系统，更会使接种者容易感染新变种病毒。而各国政府企图提高疫苗接种率的做法，对民众健康与全球卫生安全，极具危害。
+参考链接：[聯合國安理會為北韓開會 傳中俄拒簽譴責聲明](https://udn.com/news/story/6809/6077714?from=udn-referralnews_ch2artbottom)
 
-上述最新研究，不仅打破了疫苗公司推广时宣称的高保护力说法，颠覆了大众对中共疫苗的认知与期待，更对应保茨博士与爆料革命的警告，告诉各国政府，不应该再继续漠视中共病毒疫苗对人体健康的危害，应立即停止通过刻意操纵，可能导致的更严重的疫苗灾难。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-参考链接：
-
-- [Omicron的「妹妹」傳染力高33% 更能躲避疫苗](https://udn.com/news/story/6809/6089984?from=udn-catehotnews_ch2)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
-
-总编：Irene木木
-编辑：静言
-校正/发稿：海阔天空1
+编辑/校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

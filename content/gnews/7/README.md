@@ -2,33 +2,29 @@
 ---
 
 
-## 日本名古屋市将开设疫苗后遗症沟通窗口
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1998286/)
+## 拜登警告普京：入侵乌克兰将引发西方反应
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1998334/)
 
-作者：日本方舟农场 Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月8日，日本爱知县名古屋市市长河村先生，接受日媒采访时透露，名古屋市将最快在下周设立一个，专门为那些出现疫苗后遗症的人群，跟市政府联络的窗口。
-![坐看云起时(@yunqi11111111) / Twitter](https://pbs.twimg.com/ext_tw_video_thumb/1490260026371751939/pu/img/qYVPbT_4St9S3Faw?format=jpg&amp;name=large)
-截至目前，日本厚生劳动省对疫苗副作用的认定，仅限于那些在接种后立刻出现过敏反应的人员。相反对接种后超过5个月乏力只能卧床休息，或者接种后持续1个月以上出现舌头白斑等奇怪症状的人员，日本政府并没有任何措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/9592.jpg)美国总统拜登在戴维营与俄罗斯总统普京通话并发出警告（2022年2月12日）
+据美国之音2月13日报道，美国总统拜登警告俄罗斯总统普京，如果俄罗斯入侵乌克兰，将会引发西方迅速而果断的反应，后果很严重，会降低俄罗斯的世界地位。美国国务卿布林肯表示，如果普京决定入侵乌克兰，华盛顿将立即施加经济制裁。
 
-分析人士指出，名古屋市在医学方面，公布伊维菌素对中共病毒有效，并允许对名古屋市内被感染的市民投入伊维菌素后，又在政策上针对疫苗后遗症迈出了关键的一步。
+美国政府表示，俄罗斯可能随时入侵乌克兰，可能从空袭开始。美国国务院12日命令大部分驻乌克兰使馆人员离开，五角大楼正在撤出大约150名军事训练人员。以色列、葡萄牙和保加利亚也要求本国公民离开乌克兰。
 
-参考链接：
-1）[https://www.gettr.com/post/ptg70k6e22](https://www.gettr.com/post/ptg70k6e22)
-2）[https://www.gettr.com/post/pstgh22a24](https://www.gettr.com/post/pstgh22a24)
-3）[https://www.gettr.com/post/piflnu1d73](https://www.gettr.com/post/piflnu1d73)
+普京对乌克兰朝思暮想，就像习近平对台湾是志在必得。两大邪恶轴心国毫不掩饰自己的野心和扩张。西方世界容忍了共产主义的发展和壮大，造就了几个邪恶的共产主义轴心国，正所谓养虎为患。要想不被虎伤，就要在必要的时候出手打击，否则美国就会像在中共的病毒和疫情面前一样：措手不及、损失惨重。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+新闻参考链接：[https://www.voachinese.com/a/6439274.html](https://www.voachinese.com/a/6439274.html)
 
-编辑/校正/发稿：呼吸的雾霾（文小呼吸）
+* * *
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

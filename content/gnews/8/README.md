@@ -2,32 +2,20 @@
 ---
 
 
-## 韩国中共病毒单日确诊创新高
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1998285/)
+## 日美韩三国外长在夏威夷会晤，讨论威慑朝鲜问题
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1998318/)
 
-作者：纽约香草山教育部 Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据中央社9日报道，韩国单日确诊人数创下4万9567例新高纪录，较前一天大幅增加近1.3万例，居家治疗人数也增至16.8万例。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2000x1242_0995112501059.jpeg)
-韩国中央防疫对策本部统计，截至今天凌晨零时，境内新增4万9567例中共病毒确诊，累计113万1248例，新增案例包括4万9402例社区病例，165例境外迁入病例。其中，首尔、仁川、京畿道等人口密集的首都圈地区社区感染占近6成。
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1264.png)（图片源自本文链接）
+2月13日共同通信社消息：日本时间13日上午，日本外相林芳正在夏威夷檀香山会见了美国国务卿詹姆斯·布林肯和韩国外长郑义溶。确认了三国之间在阻止朝鲜今年发射一系列弹道导弹的措施方面进行合作的重要性。三位外长在联合新闻发布会上宣布，林先生在解决朝鲜绑架日本国民的问题上寻求理解和合作，并得到了支持。
 
-单日重症人数也开始回升，截至今天凌晨零时，重症人数为285例，较前一天增加17例。死亡病例增加21例，累计6943例，死亡率为0.61%。
+在新闻发布会上，布林肯先生宣称：”我们讨论了深化日本、美国和韩国三国之间合作的措施，以遏制朝鲜。”郑义溶谴责朝鲜发射弹道导弹“令人遗憾”，并强调对话和外交才是可选之路。
 
-采取居家治疗的轻症及无症状患者持续快速增加，增至16万8020例；目前韩国居家治疗点已扩大至601处，可控人数增至18.3万，尚在可负担范围内。
+信息来源：[日米韓外相、北朝鮮抑止へ連携](https://nordot.app/865452823566401536?c=768367547562557440)
 
-参考链接：[韓國單日確診近5萬例創新高 較前一天增1.3萬](https://www.cna.com.tw/news/aopl/202202090026.aspx?topic=2012)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
-
-编辑/校正/发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

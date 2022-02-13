@@ -2,18 +2,14 @@
 ---
 
 
-## 有声|欧盟公布芯片法案 肯定台湾重要地位
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1998078/)
+## 有声|NFSC新闻、G|TV新闻访谈简报|2022年2月11日早
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1998087/)
 
 配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-欧洲联盟今天公布《欧洲芯片法案》，宣布将投入超过430亿欧元的公共和民间投资，让欧盟在2030年市场占有率较现阶段的10%翻倍至20%。欧盟执委会执行副主席兼数字执委维斯塔哲及欧盟负责内部市场业务的执行委员布勒东在对法案进行说明时，公开肯定台湾是《欧洲芯片法案》理念相近的伙伴，欧洲市场也会对台湾开放。
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-10.png)
 
-布勒东强调，台湾在全球半导体制造领域的地位非常重要，欧洲使用的半导体可能50%是在台湾生产的，台湾拥有许多专业知识，欧洲当然欢迎。
 
-布勒东近期曾表示，《欧洲芯片法案》的重点在确保欧盟自主供应安全，因为当前全球主要芯片供货商位于中共国周边地区，存在严重地缘政治风险，一旦发生事端欧洲大多数工厂运作将瘫痪。
-
-文字版原文：[欧盟公布芯片法案 肯定台湾重要地位](https://gnews.org/zh-hans/1982957/)
+文字版原文：[NFSC新闻、G|TV新闻访谈简报|2022年2月11日早](https://gnews.org/zh-hans/1991465/)
 
 音频处理：呼吸的雾霾（文小呼吸）
 发稿：呼吸的雾霾（文小呼吸）

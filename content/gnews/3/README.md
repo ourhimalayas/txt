@@ -2,28 +2,32 @@
 ---
 
 
-## 拜登警告普京：入侵乌克兰将引发西方反应
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1998334/)
+## 反对新冠病毒措施，堪培拉现大规模抗议活动
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1998391/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/9592.jpg)美国总统拜登在戴维营与俄罗斯总统普京通话并发出警告（2022年2月12日）
-据美国之音2月13日报道，美国总统拜登警告俄罗斯总统普京，如果俄罗斯入侵乌克兰，将会引发西方迅速而果断的反应，后果很严重，会降低俄罗斯的世界地位。美国国务卿布林肯表示，如果普京决定入侵乌克兰，华盛顿将立即施加经济制裁。
+翻译/编辑：小红帽
 
-美国政府表示，俄罗斯可能随时入侵乌克兰，可能从空袭开始。美国国务院12日命令大部分驻乌克兰使馆人员离开，五角大楼正在撤出大约150名军事训练人员。以色列、葡萄牙和保加利亚也要求本国公民离开乌克兰。
-
-普京对乌克兰朝思暮想，就像习近平对台湾是志在必得。两大邪恶轴心国毫不掩饰自己的野心和扩张。西方世界容忍了共产主义的发展和壮大，造就了几个邪恶的共产主义轴心国，正所谓养虎为患。要想不被虎伤，就要在必要的时候出手打击，否则美国就会像在中共的病毒和疫情面前一样：措手不及、损失惨重。
-
-新闻参考链接：[https://www.voachinese.com/a/6439274.html](https://www.voachinese.com/a/6439274.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-47.png)图片来源：雅典娜设计组(614)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+根据《RT》新闻2月12日报道， 周六，抗议者聚集在澳大利亚首都堪培拉的议会大厦，要求停止新冠病毒措施。这些示威者在过去一周里乘坐卡车、汽车和巴士抵达首都并在附近的一个节日场地扎营。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+示威活动的录像显示，大批民众涌入城市，在议会外集会。《7News》的记者詹妮弗·贝赫瓦蒂（Jennifer Bechwati）将这次集会描述为“我见过的最大的抗议活动之一”。
+
+在澳大利亚议会外，人群高呼“解雇他们”，指的是澳大利亚总理斯科特·莫里森（Scott Morrison）和负责实施一些世界上最严厉的大流行病相关限制的州长。例如，在维多利亚州，大多数室内环境都要求戴口罩和提供新冠疫苗接种证明。大多数部门的雇员都必须接种新冠疫苗才能工作。
+
+莫里森对抗议活动的回应是，敦促参与者以“和平和尊重的方式”进行示威。这位澳大利亚领导人表示，除了一些针对医护人员的规定外，该国所有的新冠疫苗规定都是由各州州长而不是他的政府实施的。
+
+新闻链接：[Thousands of protesters swarm Australian parliament](https://www.rt.com/news/549161-canberra-convoy-protest-parliament/)
+
+发布：  tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

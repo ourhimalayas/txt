@@ -2,30 +2,27 @@
 ---
 
 
-## 台湾男子注射疫苗后死亡获赔30万台币
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1998284/)
+## 河南省公安厅党委委员、副厅长高万象接受调查
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1998317/)
 
-作者：纽约磐石农场—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-台媒2月8日报道，台湾在大规模接诊中共病毒疫苗后，陆续出现死亡案例。根据台湾卫生福利部预防接种受害救济小组，最新审议结果，台南市一名接种莫德纳疫苗的男子死亡案例，其家属获得30万台币救济，是目前莫德纳疫苗救济金额的最高个案。
-![莫德納疫苗。本報資料照片](https://pgw.udn.com.tw/gw/photo.php?u=https://uc.udn.com.tw/photo/2022/02/08/realtime/15861604.jpeg&amp;x=0&amp;y=0&amp;sw=0&amp;sh=0&amp;sl=W&amp;fw=800&amp;exp=3600&amp;w=930)
-据了解，该男子在接种莫德纳疫苗的第三天，感到胸痛、全身酸痛和呼吸困难，之后失去意识而死亡。而台南市去年7月，也曾有一名64岁男子，在注射莫德纳疫苗后的次日死亡。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/9591.jpg)高万象 资料图
+据澎湃新闻2月12日报道，河南省公安厅党委委员、副厅长高万象涉嫌严重违纪违法，目前正接受河南省纪委监委纪律审查和监察调查。
 
-据悉，之前台湾政府救济金额较高的个案是阿斯利康疫苗，最高赔偿金额曾有90万至120万台币不等。
+高万象，现年59岁，自2020年3月起担任河南省公安厅党委委员、副厅长、一级巡视员。按照中共国省厅级官员的退休年龄规定，年满60岁就可以退休，高万象可以说是临门失脚。为中共卖命一辈子，马上要退休回家享清福了，却一脚迈进了监狱的大门。在中共国，没有不违法违纪的官员，被抓的不冤，没抓的侥幸。到了中共灭亡的时刻，绞肉机一刻不停地高速运转，人人都在刀刃边，随时随地会被卷进去，最先粉身碎骨的就是这些现任和曾经的高官。惩处这些官员，既可以杀一儆百，又可以获利丰厚。中共不灭，好人、坏人都没有出路。好人奋起反抗，坏人弃暗投明。
 
-参考链接：[注射莫德納疫苗隔天死亡 台南男子家屬獲賠30萬元](https://udn.com/news/story/122190/6082938?from=udn-catehotnews_ch2)
+新闻参考链接：[https://www.thepaper.cn/newsDetail\_forward\_16670937](https://www.thepaper.cn/newsDetail_forward_16670937)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+* * *
 
-编辑/校正/发稿：呼吸的雾霾（文小呼吸）
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

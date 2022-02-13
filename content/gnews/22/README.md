@@ -2,48 +2,43 @@
 ---
 
 
-## 俄罗斯入侵迫在眉睫，澳大利亚撤离基辅大使馆
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1998183/)
+## 日本《疫苗后遗症》电影公映
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1998215/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+作者：日本方舟农场 – Andy5
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+2月11日，由日本长尾诊所院长——长尾和宏医生作为导演的纪录片《疫苗后遗症》，举行了最后一场在东京的公映。本片在上映的两周前，就将690个席位销售一空。而在大阪，目前所有2月的场次均已爆满。该片导演长尾医生曾收治过53名因疫苗副作用造成后遗症的患者。
 
-翻译：文扬
-编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2022/02/9-11.png)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/13-3.png)图片来源：The Guandian
+影片上映前，长尾医生发表了20分钟的演讲，讲述他为何要制作这部影片以及上映前后的故事。
+
+首先他提到这部影片的初衷有两个，一是不满媒体每天大肆宣传鼓动人们去接种这个成分都没有研究清楚的疫苗；二是希望阻止将从3月开始的对5～11岁儿童的接种。
+
+谈及为何要反对现在的所谓疫苗，他举例称，他接收了一位高中生的病患，接种疫苗前是学校名列前茅的优等生，却在接种后出现记忆障碍，成绩滑到谷底，而这样的例子在影片中多达十几位。而厚生劳动省并没有仔细调查疫苗后遗症，甚至连真实死亡人数以及原因都没有进行过调查。
+
+在日本，各大院线都禁止《疫苗后遗症》这部影片的上映，只有为数不多的小剧场勉强排出日程。并且这部影片已经被Youtube等媒体封杀。
+
+参考链接：
+
+- [https://www.gettr.com/post/pu0b8959f9](https://www.gettr.com/post/pu0b8959f9)
+- [20220128日本紀錄片「疫苗副作用」預告片](https://www.gettr.com/post/pr7v6gcdfb)
+- [2022年1月29日(土) 大阪シアターセブンにて緊急上映会決定！](https://vaccine-kohisho-movie.com/)
 
 
-当地时间2月13日，据美国广播公司报道，外长玛丽斯·佩恩说，她已经指示驻乌克兰大使馆的工作人员离开。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
 
-澳大利亚政府将撤离其驻基辅大使馆，并警告俄罗斯入侵乌克兰迫在眉睫，莫里森总理警告说，局势正在恶化并达到“危险阶段”。
+总编：飞虹
+编辑：飞虹
+校正/发稿：海阔天空1
 
-这一决定是在美国国务院采取类似行动之后作出的，美国国务院已经命令非紧急的使馆工作人员离开乌克兰。
-
-佩恩外长周日上午发表声明称，政府将把（大使馆）业务转移到基辅以西几百公里，靠近波兰边境的利沃夫。
-
-她说：“鉴于俄罗斯军队在乌克兰边境集结所造成的安全局势恶化，政府已指示驻基辅大使馆的工作人员撤离，并暂停我们在基辅大使馆的业务，业务将转移到利沃夫的一个临时办公室。”
-
-周六，佩恩参议员再次敦促在乌克兰的澳大利亚人离开该国，警告安全状况可能会在短时间内发生变化。
-
-她说：“我们已经敦促所有澳大利亚人立即离开乌克兰，并且外交部已经继续联系澳大利亚人，重申这一旅行建议。”
-
-“我们将敦促俄罗斯就这一特殊的单边行动继续进行对等的外交对话。我们支持乌克兰的主权和领土完整。我们支持欧洲和北约的统一反应。在这个非常困难的时刻，我们与乌克兰站在一起。”
-
-莫里森也一再警告澳大利亚人离开乌克兰，因为担心俄罗斯的入侵。
-
-他说：“我们给他们的建议非常明确，这是一个非常危险的局势，为了你们自己的安全，你们应该设法离开乌克兰，如果那里发生冲突，将是一个非常不稳定的局势。”
-
-原文链接： [Australia to evacuate Kyiv embassy amid threat of Russian invasion of Ukraine – ABC News](https://www.abc.net.au/news/2022-02-13/australia-evacuates-ukraine-embassy/100826352)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
