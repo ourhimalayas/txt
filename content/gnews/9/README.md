@@ -2,50 +2,83 @@
 ---
 
 
-## 文耀时间｜战友实例分享私人信托设立（二） 上期节目答疑 模拟器计算财富 欧洲信托信息(8)
-` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2001235/)
+## 拜登表示美国将迅速果断地回应俄对乌克兰的任何进一步侵略
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2001326/)
 
-供稿：中华联邦公民
-编辑发稿：am夏天
-喜马拉雅纽伦堡正义农场
-![](https://assets.gnews.org/wp-content/uploads/2022/02/800-4.png)
-第二部分 用仿真器计算未来的财富
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-13-at-21.37.56.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1359.png)
-
-GTV有三个5%，第一个是持有GCLUB的5%；第二是持有喜币（喜联储）的5%；第三个是持有盖特的5%，所以当时初衷就是计算一下这三个5%在接下来几年中的增值情况，
-GCLUB的会员数最高是5万，表中的会员数为10年间假设的增长情况，
-市盈率（P/E）是指普通股每股市价与每股收益的比率，在这里假设第一年是20倍，第二年是25倍，到最后的第十年是50倍，以此来计算我们持有的5%的市场价格，
-关于喜币的市场价格改了好多次，这只是一个参数，如果战友觉得这些参数过高或过于保守，可以自己修改，喜币11月1号才上市，一年到期计作100相对是合理的。
-盖特的价格就比较简单，就是在估值的时候用市场可比的一个办法，就相当于我跟Twitter比，它第一年上市的时候价格是多少、第二年是多少，因为Twitter的价格是固定的，那就加上一个市场可比系数，这样就不会第一年就跟Twitter的第一年完全一样，设为Gettr的市场价格第一年是Twitter第一年的10%，第五年的时候达到100%，这已经比较保守了，然后到第十年的时候达到Twitter两倍的市场价格。
-最后一项GTV估值倍数，有两种假设，一种是用净值来计算，就是前面三项的总和算出来之后是多少就是多少，完全不考虑GTV本身的价值，也就是不考虑P/E值。此处我们采用考虑P/E值的计算，这一项的10-30数值也还算保守。这个倍数是起步价是10，因为上市价格是一块钱一股，其实给我们的是1比10配给的，就是一毛钱一个，所以一上市一分钱不涨的情况下，按发行价就已经是10倍了。这样算的话第二年的15也就是1.5倍，非常保守。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1360.png)
-计算说明：
-1.年费收入=卡费收入×5%
-2.市值= 年费收入×(P/E) +卡费收入
-3.Gclub股权价值=市值×5%
-4.较去年增长率=当年控股总价÷前年控股总价-1（第一年为100%）
-5.GTV上市估值-固定（以0.1元购入价，上市价1元计算，则固定为10） 6.投资收益比例-固定 =（去年的“投资收益比例-固定”）× （当年的“较去年增长率”+1） 7.投资收益比例-变动 =（当年“投资收益比例-固定”）× （GTV上市估值-变动÷GTV上市估值-固定）
-8.HCoin总市值（发行收入）不是简单相乘得出，涉及每年的价格预测，原始发行为第0年，第一年再加上10亿币，并按增发之后的数量来计算，原始币以0.1元计算应该为1亿，视频中的表格有点瑕疵。在第一年增发时按100元的价格发行10亿个币，即为1千亿，加上初始上市的1亿，即为101亿。
-9.GTV三个5%的总控股价值=5% Gclub股权价值+5% HCoin股权价值+5% Gettr股权价值
-10.表中Twitter市值比视频中多出的数据收集于https://companiesmarketcap.com 网站
+**白宫**：拜登总统 @POTUS 今天与乌克兰总统泽连斯基进行了交谈，明确表示美国将迅速果断地回应俄罗斯对乌克兰的任何进一步侵略。 两国领导人一致认同，有必要继续寻求外交和威慑，以应对俄罗斯的军事集结。
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1361.png)
-左轴为柱形图坐标，单位为亿$；右轴为折线图坐标，单位为10000倍。可见主要收益来源为HCoin，采用保守估计10年投资收益在5万倍左右。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1362.png)
-参数说明：
-HCOIN配额（$）为固定值，买10500个喜币 需1050$ 此为上限
-HCOIN配额（$）=( Gclub+农场借款1+法制基金捐款) ×0.05
-转GTV股份上限为20000$ 按每股0.1$计算为200000股（上限）
-转GTV股份（$）=Gclub+农场借款1+农场借款2
-提现或是抵押可自行选择（总量为20万股）
 
-出售股票方式（每年售出股票，设每年需变现5万美元，随着股票的增值，每年出售的股票数量急速下滑，从第一年到第十年出需出售的股票数量变化巨大）
-抵押贷款方式（每年抵押股票，按年利率5%计息，于次年付息，并再次抵押，每年贷款5万美元，至第十年付息并还本50万美元）
-于下页的折线图可见，第四年开始由于HCoin增值倍数的放缓，收益线上明显出现一个转折点，增长势头也随之放缓。
-由于采用抵押方式时收益与提取之后的收益曲线重合度极大，特分成两张折线图展示。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1363.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1364.png)
+> .[@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) spoke with President Zelenskyy today to make clear the U.S. would respond swiftly and decisively to any further Russian aggression against Ukraine. The leaders agreed on the need to continue pursuing diplomacy and deterrence in response to Russia’s military build-up.
+> — The White House (@WhiteHouse) [February 13, 2022](https://twitter.com/WhiteHouse/status/1492919768290111489?ref_src=twsrc%5Etfw)
+
+
+
+**美国国务卿·布林肯**：前往墨尔本参加了四方会议，去斐济与太平洋岛国领导人进行了会面，并在檀香山与日本和韩国举行了三边会议。 美国是印-太地区引以为豪的一部分，该地区对我们国家的安全和繁荣至关重要。
+【附视频，2月11日布林肯在美奥印日四边会议上的讲话】
+
+
+
+> Had an excellent trip to Melbourne for the Quad, Fiji to meet with Pacific Island leaders, and Honolulu for a trilateral meeting with Japan and the ROK. The U.S. is a proud part of the Indo-Pacific, and this region is critically important to our nation’s security and prosperity. [pic.twitter.com/Ng8IiIhk8d](https://t.co/Ng8IiIhk8d)
+> — Secretary Antony Blinken (@SecBlinken) [February 13, 2022](https://twitter.com/SecBlinken/status/1492947628799275009?ref_src=twsrc%5Etfw)
+
+
+
+**美国国务卿布林肯**：与韩国外相郑、日本外相林志良会面。 我们的国家正在向世界展示，如果我们齐心协力，我们可以走得更远、更快。 美-日-韩三边关系对于应对最紧迫的全球挑战至关重要。
+
+
+
+> Great meeting with ROK Foreign Minister Chung and Japanese Foreign Minister Hayashi. Our countries are showing the world we can go farther and faster if we go together. The U.S.-Japan-ROK trilateral relationship is critical to address the most pressing global challenges. [pic.twitter.com/5Nz9wpFUr4](https://t.co/5Nz9wpFUr4)
+> — Secretary Antony Blinken (@SecBlinken) [February 13, 2022](https://twitter.com/SecBlinken/status/1492848464383942658?ref_src=twsrc%5Etfw)
+
+
+
+**众议员迈克·沃尔茨**：球星埃内斯·坎特@EnesFreedom 敢于发声反对 #中国共产党，为人权而战。
+NBA赞扬社会正义的激进主义，但却向埃内斯展示了大门所在 (要扫地出门) 。
+为什么？ 向中共的金钱$$$ 卑躬屈膝
+
+
+
+> .[@EnesFreedom](https://twitter.com/EnesFreedom?ref_src=twsrc%5Etfw) had the courage to speak out against the Chinese Communist Party and fought for human rights.
+> 
+> The NBA celebrated activism for social justice but showed Enes the door. 
+> 
+> Why? Bowing down to Chinese $$$
+> — Rep. Mike Waltz (@michaelgwaltz) [February 13, 2022](https://twitter.com/michaelgwaltz/status/1492910748460273665?ref_src=twsrc%5Etfw)
+
+
+
+**比尔·戈茨**：加州大学伯克利分校物理学名誉教授理查德·穆勒 (Richard Muller) 说：“当你评估这两种理论时，绝大多数人都支持实验室泄漏，以至于其他的一切都只是关于所发生事件细节的附带证据。”
+【转福克斯新闻：科学家认为冠状病毒起源于中国武汉实验室的 10 个理由
+新冠COVID19的起源在致命的流行病爆发两年后仍未确定，但实验室泄漏理论不再被广泛驳斥】
+
+
+
+> “When you evaluate the two theories, it is so overwhelmingly in favor of the lab leak that everything else is just incidental evidence about the details of what happened," said Richard Muller, emeritus professor of physics at the University of California Berkeley.” [https://t.co/b0S4qetP7O](https://t.co/b0S4qetP7O)
+> — Bill Gertz (@BillGertz) [February 13, 2022](https://twitter.com/BillGertz/status/1492887227537391618?ref_src=twsrc%5Etfw)
+
+
+
+**参议员罗杰·马歇尔** : 现在是我们将日常生活的权力和控制权从乔·拜登和福奇博士手中夺回的时候了。更多来自我接受玛丽亚节目@SundayFutures 采访，关于我打算在下周引入的立法以结束新冠 COVID 紧急状态：
+【附采访视频，马歇尔议员说明要提出法案以结束拜登的病毒大流行紧急状态及福奇的新冠疫苗强制】
+
+
+
+> It's time for us to take the power and control of our everyday lives out of the hands of Joe Biden and Dr. Fauci. More from my [@SundayFutures](https://twitter.com/SundayFutures?ref_src=twsrc%5Etfw) interview about legislation I intend to introduce next week to put an end to the COVID state of emergency: [pic.twitter.com/55bI9KI4HH](https://t.co/55bI9KI4HH)
+> — Dr. Roger Marshall (@RogerMarshallMD) [February 13, 2022](https://twitter.com/RogerMarshallMD/status/1492907226390011910?ref_src=twsrc%5Etfw)
+
+
+
+**参议员乔什·霍利**：现在我们知道了。 2016 年克林顿的竞选活动是一场犯罪活动。 支付技术高管渗透川普 (大厦) 以及白宫服务器。是时候让某人入狱了
+【附福克斯报道：克林顿竞选团队付款“渗透”川普大厦、白宫服务器以将川普与俄罗斯联系起来：达勒姆 (报告）】
+
+
+
+> Now we know. The 2016 Clinton campaign was a criminal enterprise. Paying tech executives to infiltrate Trump servers & the White House. Time for someone to go to jail [https://t.co/JmCWI8RrwW](https://t.co/JmCWI8RrwW)
+> — Josh Hawley (@HawleyMO) [February 13, 2022](https://twitter.com/HawleyMO/status/1492659767508148225?ref_src=twsrc%5Etfw)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
