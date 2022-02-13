@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/13/2022 1:25 AM (UTC)`
+
+2/11/2022 Miles Guo: Eileen Gu and Gu Yan are instigating hatred against the Chinese people, pitting the Asians against the entire world and stirring up anti-Chinese sentiment. How many chained women are there in Communist China? The CCP’s Foreign Ministry is lying about the chained woman, while the Chinese people are all silent. For me, doing a live broadcast is to fight against the dark forces by risking my life.<br/><br/>2/11/2022 文贵直播： 谷爱凌和谷燕给中国人拉仇恨，让亚裔跟全世界对立，掀起了排华浪潮；中共国有多少铁链女？中共外交部撒谎而人们却集体沉默；文贵的直播是用生命跟黑暗作斗争<br/>
+![img](https://media.gettr.com/group33/getter/2022/02/13/01/2efddf89-550d-5364-2b22-ea72778d4d8e/out.jpg)
+
+---
+
+`@miles 2/13/2022 1:18 AM (UTC)`
+
+2/11/2022 Miles Guo: I really appreciate that fellow fighters are willing to donate money to me. However, I have never asked and will never ask anyone for money, and I never accept any donations. So, fellow fighters, please don’t donate money to me!<br/><br/>2/11/2022 文贵直播：战友们要捐钱给文贵的好意文贵心领了，但文贵从来不向任何人伸手要钱，也从不接受任何捐赠，所以战友们千万不要捐钱给文贵！<br/>
+![img](https://media.gettr.com/group45/getter/2022/02/13/01/979dbd7b-c4c4-4423-e5fe-38a17baa7217/out.jpg)
+
+---
+
 `@miles 2/13/2022 12:52 AM (UTC)`
 
 2/11/2022 Miles Guo: The CCP is propagating Eileen Gu on a massive scale to cover up the chained woman incident by using the so-called "positive energy" of the Winter Olympics. The chained woman is a family member of a CCP member, and the incident has made everyone in the CCP worry about themselves, and this will certainly provoke the collapse inside the CCP!<br/><br/>2/11/2022 文贵直播: 中共大肆宣传谷爱凌意在利用冬奥会的所谓正能量掩盖锁链女事件；锁链女是共产党员的家人，此事令中共人人自危，必将激起中共党内的土崩瓦解！<br/>
@@ -140,19 +154,6 @@
 
 2/10/2022 Miles Guo’s GETTR: Eileen Gu and her mother are wrecked and taken advantage of by the CCP to act on behalf of Communist China. The CCP does not respect the rules, laws, and morality, and the Winter Olympics have done great harm to both the athletes and the natural environment. What will it take for the Chinese people kidnapped by the CCP to gain the respect of the West?<br/><br/>2/10/2022 文贵盖特：谷爱玲母女竟被中共玩弄和利用去代表中共国；中共不尊重规则、法律、道德，冬奥会对运动员和自然环境造成了巨大的伤害，中共绑架的中国人要怎么才能得到西方的尊重呢？<br/>
 ![img](https://media.gettr.com/group33/getter/2022/02/11/01/46e23ccf-bc63-d229-b24c-4ca877b254ed/out.jpg)
-
----
-
-`@miles 2/10/2022 10:52 PM (UTC)`
-
-2月10日，“Hcoin To the Moon ” MV上线第63天美国🇺🇸重回iTunesMV摇滚榜榜首🥇，累计共30次排名第一🎉🎉🎉<br/><br/>位列柬埔寨🇰🇭iTunes 歌曲综合榜榜首🥇🎉🎉🎉<br/><br/>“Fight For Hong Kong” 位列老挝🇱🇦iTunes 摇滚歌曲榜榜首🥇🙏🙏🙏<br/><br/>万分感谢澳门，美国，柬埔寨，老挝的兄弟姐妹们! 祝虎年吉祥平安！🧧🧧🧧🙏🙏🙏<br/><br/>https://gnews.org/zh-hans/1984856/<br/><br/>Feb 10, 2022 MV "Hcoin To the Moon" back to No.1 🥇on USA 🇺🇸 iTunes Rock Music Video Chart on 63 Day of Launch, hit No .1 for 30 times in total🎉🎉🎉<br/><br/>Hit No.1🥇 on Cambodia 🇰🇭 iTunes all Genres Song Chart🎉🎉🎉<br/><br/>“Fight For Hong Kong” Hit No.1🥇on Laos 🇱🇦 iTunes Rock Song Chart 🎉🎉🎉<br/><br/><br/>Thank you very much to our brothers and sisters in USA, Cambodia, Laos. Have a safe and lucky year of Tiger!🧧🧧🧧🙏🙏🙏
-
----
-
-`@miles 2/10/2022 10:38 PM (UTC)`
-
-2/9/2022 Miles Guo: How many heads of state that the CCP’s Foreign Ministry had claimed would attend the Winter Olympics failed to show up? The CCP has been attempting to maintain the illusion of the warm-up of the Since-US relationship by squandering the Chinese Lao Baixing’s hard-earned money. Before Putin left Beijing, he revealed the truth about the opening ceremony of the Winter Olympics by saying that there was virtually nobody on site!<br/><br/>2/9/2022 文贵直播：有多少中共外交部口口声声说要来冬奥会的外国领导人放了鸽子？中共竟拿着老百姓的血汗钱去维系中美关系回暖的假象；普京离开前一语道破开幕式真相 - 现场根本没人！<br/>
-![img](https://media.gettr.com/group3/getter/2022/02/10/22/0d434338-13b0-159a-0d28-dae41ae4e77f/out.jpg)
 
 ---
 

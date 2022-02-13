@@ -2,8 +2,8 @@
 ---
 
 
-## 七哥去英国日本前必须要满足的几个条件
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1997215/)
+## 恐惧和冲动只会失去机会远离胜利
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1997228/)
 
 作者:东京樱花团小视频组
 

@@ -2,91 +2,77 @@
 ---
 
 
-## 全球疫情更新(全球反强制疫苗示威风起云涌）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1997156/)
+## 灭共者之郭氏情报站（二十四）2022/02/11 文贵大直播
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/1997157/)
 
-**整理/编辑：枳实**
+设计者：纽约香草山设计部 — 喜马拉雅大喵儿，天马星空J
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1245.png)图片：雅典娜农场设计组 精灵蓝
 
-雅典娜疫情更新（2022年 2月12日）
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-**一，全球疫情基本数据**
 
-感染总数：407,721,355（日新增2,322,415人，14天增幅-31%）
 
-死亡总数：5,797,405（日新增10,307人，14天增幅 +13%）
 
-**二，全球“疫苗”毒针统计数据**
 
-“疫苗”毒针注射总数：103亿
 
-完全“接种”：42.4亿人
 
-完全“接种”百分比：54.4%
 
-**三，澳洲疫情和“疫苗”数据**** **
 
-感染总数：2,878,245（今日新增22,755人）
+**灭共者-郭氏情报站**
+**2022年2月11日 文贵大直播总结提炼**
 
-死亡总数：4,546人（今日新增 67人）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-130.png)
 
-每万人感染人数：1115.5044人
+1、世界变化很快，72小时发生了很多事情！冬奥会；加拿大卡车司机运动、；欧盟和日本的疫苗政治运动；共产党控制的荒唐判决，2.6亿美元罚款，下周三不交罚款就进监狱。
 
-“疫苗”毒针注射总数：52,212,465  （今日新增203,969    针）
+2、郭先生去日本和英国的前提：
+1） 需要美国政府同意。美国政府可以直接发特殊贡献护照，但是一直没有获得政治庇护，就是想保证七哥安全，不想让七哥离开美国；
+2）必须在美国政府确认安全的情况下，才可以离开美国。
 
-完全“接种”：19,376,508人
+3、共产党开出引渡郭先生的条件：只要把郭先生弄回中国，一切条件可谈。共产党不惜蓝金黄，改变西方国家法律规则，只为了引渡郭先生。安哥拉石油40%的回扣，蓝金黄改变规则。
 
-第二针“接种”百分比：79.2%
+4、谷爱凌2003年9月3日出生于美国加利福尼亚州旧金山，中美双重国籍。北京滑雪协会花了中国人的钱，资助美国公民谷爱凌，是否合法？单伟建上千亿美元欺骗，一定会公开天下。郭先生带领爆料革命扫平恶魔，单伟建只是个苍蝇，爆料革命一定赢。
 
-16岁以上人口接种至少一剂疫苗的比例：&gt;95%
+5、注意！英国、德国、加拿大、荷兰、澳大利亚，疫苗导致免疫力缺陷第一批开始爆发！第一批接种疫苗的人，在2022年春天后免疫力降为0！荷兰发现高传染爱滋变种！英国、澳大利亚开始大规模排查HIV。辉瑞、莫德纳开始使用艾滋病药治疗新冠！
 
-16岁以上人口接种至少两剂疫苗的比例：94%
+6、1.34亿不交，就进监狱，只有5天的时间。这次七哥最难受的是把压力带给了家人。不能因为荒唐的判决，而不相信美国的法律。让家人安全，免于恐惧，唯一的方法就是消灭共产党。七哥就是要用美国的法律干掉共产党。
 
-加强针总数：9,901,711（日新增：174,198针）
+7、冬奥会是习近平最后的一场表演，让普京看到了共产党的疯狂。普京说：你们真会玩啊（真敢骗），你以为别人真的不知道吗？普京见马克龙，明确说乌克兰就是我的女人。共产党的骗就是消灭共产党最好的武器。
 
-**四，全球反对强制疫苗的示威风起云涌**
+8、没有见过共产党蓝金黄，13579，灭白计划，达沃斯论坛里那些喝酒玩小女孩肮脏的德行，你不会知道邪恶势力的肮脏，爆料革命的伟大。没有见过防化兵实验室，装甲兵学院，武汉P4实验室，你不会知道解放军是多么的烂，疯狂，愚蠢。
 
-澳大利亚疫苗“专家”周四[正式更改完全接种的定义](https://www.9news.com.au/national/coronavirus-australia-updates-debate-over-triple-vaccine-mandate-for-tourists/fc5a4840-8953-420b-b3c8-2fa6bec5b9fa)，认定完成2针注射后3个月就应该再次注射，如果6个月后还没有注射第三针，则被认定为“过期”，他们玩弄文字游戏，废弃了以往的“完全接种”概念，为将来没完没了的“疫苗”注射留下了空间。这个变本加厉推进疫苗强制的举动，让澳洲人受够了。[周末在首都堪培拉的反对强制疫苗令的游行，达到空前的规模](https://www.rebelnews.com/australias_biggest_convoy_descends_on_the_capital)。
+9、七哥谈人生的转变：看破生死最核心，人生最重要的是勇气。
 
-民众从澳洲各地涌向堪培拉。昨晚，随着轿车、大篷车、卡车和公共汽车从各州涌入堪培拉，交通陷入停顿。人群今天在英联邦公园会面，然后开始向国会大厦进发，一系列演讲者向人群发表讲话。
+**上一期：**
 
-数千人在议会外高呼“把他们全部解雇！”，人们对联邦政府和议员们感到不满，因为他们对取消疫苗强制令和封锁措施无所作为。人群中的许多人因为这些命令而失去了生计，一些消防员、护理人员、护士和飞行员穿着他们过去每天工作时穿的制服。
+**[灭共者之郭氏情报站（二十三）2022/02/09 文贵大直播 – GNEWS](https://gnews.org/zh-hans/1987568/)**
 
-在这波全球自由运动的源头，[加拿大首都渥太华的抗议已经进入了第三周。](https://www.rebelnews.com/ottawa_convoy_protest_enters_third_week_in_nations_capital)
 
-这些车游示威活动最初只是一名卡车司机抗议联邦政府强加的跨境疫苗强制令，但很快演变为反对 COVID-19 限制的广泛运动，并激发了加拿大和世界各地城市每周一次的车游。1 月 28 日至 29 日，成千上万的卡车司机和支持者涌入渥太华，此后许多人一直坚守在渥太华。
 
-安大略省省长道格福特宣布进入紧急状态，以应对封锁温莎大使桥的抗议者以及他所说的加拿大人在本国首都的“占领”。
+**编辑/发稿：小鹿**
 
-车游参与者似乎在做市政应该做的工作，包括捡垃圾，铲公共人行道上的雪。与左翼抗议经常演变成的情况不同，区域内的卫生条件也仍然很高。
 
-周六，退伍军人抗议者前往渥太华的国家战争纪念馆拆除纪念碑周围的路障，并进行一些急需的维护。退伍军人通过清理冰雪和周围堆积的碎片来表达对纪念碑的尊重。警察没能阻止退伍军人们拆除路障或清理该地点。
 
-在全球其它国家包括法国，美国，比利时，奥地利，受到加拿大自由车队的激励，类似的示威活动也在酝酿或展开中。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-124.jpg)
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+**更多资讯，更多关注**
 
-数据来源：
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)      [Our world in data](https://ourworldindata.org/coronavirus-data)        [澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)    [covidlive.com.au](https://covidlive.com.au/)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-*发布：盘古相聚*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
+
 
  
 
