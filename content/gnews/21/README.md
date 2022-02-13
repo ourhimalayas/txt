@@ -2,11 +2,27 @@
 ---
 
 
-## 勿忘香港（图片3
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1998002/)
+## 有声|2022年2月9日 晚 新中国联邦新闻、GTV新闻访谈简报
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1998077/)
 
-设计 五月花农场 企鹅
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8D08C6D3-2B88-4999-9557-C851EC23B716.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/9BE29E8E-8ADF-4789-A876-BA022C2C52FA.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/860E0B44-A16A-4E04-A5E4-B60561354DD5.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/2B4AFEE8-196C-424C-8592-B0999AF997F6.jpeg)
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-8.png)
+
+
+文字版原文：[2022年2月9日 晚 新中国联邦新闻、GTV新闻访谈简报](https://gnews.org/zh-hans/1982247/)
+
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

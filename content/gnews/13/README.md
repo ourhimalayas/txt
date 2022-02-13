@@ -2,33 +2,26 @@
 ---
 
 
-## 有声|纽约白尾鹿感染奥密克戎恐成新变种宿主
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1998088/)
+## 日本参议员痛批北京冬奥会 为史上最可耻奥运
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1998129/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-据纽约时报8日报道，研究人员表示，史泰登岛上的白尾鹿身上验出中共病毒变种爱密克戎，人们担忧美国3000万只白尾鹿可能成为中共病毒新变种的宿主。
+撰稿：东京樱花团/asket
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1260.png)[**图片来源**](https://www.epochtimes.com/b5/22/2/8/n13562378.htm)
+日本国会议员山田宏痛批，本届北京冬奥简直是史上最可耻奥运，并对IOC的立场提出质疑。
 
-路透社报导，研究人员对在纽约州史塔登岛抓到的131只鹿采集血液与鼻咽拭子样本。宾州州立大学科学家率领的研究人员表示，检验结果显示这群白尾鹿先前感染过新型冠状病毒，容易再度感染新变种。
+山田宏说：“这是史上最可耻的奥运会，支持它的国际奥委会（IOC）怎么了？” 对于那些存在争议的问题，山田宏则认为，众多事实表明中共为奥运夺冠不择手段，不讲规则。
 
-科学家们表示，如果研究结果成立，并且鹿可以反复被新变种重新感染，就会增加动物成为病毒宿主的风险。 这是首度在野生动物上侦测到奥密克戎变种。与此同时，美国民众感染奥密克戎的病例数已经逐渐减缓下来。 美国农业部表示，没有证据显示动物正把病毒传给人类，大多数中共病毒感染是出现在与中共病毒患者有过近距离接触的情况下。 目前已经在美国15 个州的鹿身上发现了中共病毒。
+他接着说：“竞赛中有很多作弊，甚至竞赛本身也不公平。就连韩国也很愤怒。只为提高政权威望而按自己的规则为所欲为，这不能称之为奥运会，我希望它立即停止。此外，各国选手都称奥运竞技本身不公平，成为了中共选手包揽金银铜奖的奥运会。”
 
+外国选手被莫名判违规、中共选手频频做出干扰动作，以及裁判的偏袒致使中共选手屡获奖牌，对此日本民众发出了比赛结果不公平的声音。北京冬奥接连发生裁判对中共队作弊视而不见、频频取消外国队选手资格的事件，引发各方舆论。
 
+本届北京冬奥之际，山田宏呼吁国际社会必须团结起来，解决中共的人权问题，共同遏止中共的侵略行径，早日给世界带来和平。
 
-文字版原文：[纽约白尾鹿感染奥米炕 恐成新变种宿主](https://gnews.org/zh-hans/1992919/)
+信息来源： [冬奥黑幕多 日参议员痛批：史上最可耻奥运](https://www.ntdtv.com/b5/2022/02/12/a103346592.html)
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
