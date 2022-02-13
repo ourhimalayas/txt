@@ -2,11 +2,11 @@
 ---
 
 
-## 2/11/2022 文贵直播：文贵必将把单伟健和PAG的事情整明白，中共践踏国际规则，在西方的渗透、攻击和造假越多，中共下场越惨
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1997396/)
+## 2月11日文贵大直播（图4-6
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1997410/)
 
-秘密翻译组-北美组
-
+设计 五月花农场 科存
+![](https://assets.gnews.org/wp-content/uploads/2022/02/565120C2-8750-401A-A2AB-5DA3E217FE90.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/19E0D25C-97CF-45FA-8BD4-45899720F52B.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/CE0BE7A7-07DB-4A5F-BBBC-1A25CB47035A.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

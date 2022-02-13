@@ -15,80 +15,80 @@
 
 ---
 
-### [2/11/2022 文贵直播：文贵必将把单伟健和PAG的事情整明白，中共践踏国际规则，在西方的渗透、攻击和造假越多，中共下场越惨](/content/gnews/1/README.md)
- ` 秘密翻译组-北美组`
-
-### [2月11日文贵大直播摘要（图1-3](/content/gnews/2/README.md)
+### [2月11日文贵大直播（图4-6](/content/gnews/1/README.md)
  ` 波士顿五月花农场`
 
-### [2/11/2022 文贵直播： 谷爱凌和谷燕给中国人拉仇恨，让亚裔跟全世界对立，掀起了排华浪潮](/content/gnews/3/README.md)
- ` 秘密翻译组-北美组`
+### [七哥爆料陈全国（二）](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
 
-### [2/11/2022 文贵直播：战友们要捐钱给文贵的好意文贵心领了，但文贵从来不向任何人伸手要钱，也从不接受任何捐赠，所以战友们千万不要捐钱给文贵](/content/gnews/4/README.md)
- ` 秘密翻译组-北美组`
-
-### [2/11/2022 文贵直播: 中共大肆宣传谷爱凌意在利用冬奥会的所谓正能量掩盖锁链女事件](/content/gnews/5/README.md)
- ` 秘密翻译组-北美组`
-
-### [郭文贵先生2022年2月12日盖特视频（9分20秒）全文字版](/content/gnews/6/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [与感染者同居 有发热症状的密接者阳性率高](/content/gnews/7/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [2/12/2022 文贵盖特：回答战友关于如何做出人生重大决定的问题，除了看透生死、放下恐惧，还要独立判断、不受他人影响，只要是你内心觉得有意义的、正确的、不伤害别人或能帮助别人的都可以做](/content/gnews/8/README.md)
- ` 秘密翻译组-北美组`
-
-### [【粤语配音】2022年2月12日：人生要做你自己](/content/gnews/9/README.md)
- ` MOS香港部`
-
-### [举报人揭露军队中疫苗伤害，国防部继续掩盖真相](/content/gnews/10/README.md)
- ` 墨尔本雅典娜农场`
-
-### [恐惧和冲动只会失去机会远离胜利](/content/gnews/11/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [七哥去英国日本前必须要满足的几个条件](/content/gnews/12/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [英国间谍案](/content/gnews/13/README.md)
- ` 【去疫前线】`
-
-### [灭共者之郭氏情报站（二十四）2022/02/11 文贵大直播](/content/gnews/14/README.md)
- ` MOS Designer香草山设计部`
-
-### [全球疫情更新(全球反强制疫苗示威风起云涌）](/content/gnews/15/README.md)
- ` 墨尔本雅典娜农场`
-
-### [有声|瑞典取消疫苗护照等限制措施](/content/gnews/16/README.md)
- ` MOSREC`
-
-### [灭共漫画 | 福尔摩斯历险记：中共病毒](/content/gnews/17/README.md)
- ` MOS Designer香草山设计部`
-
-### [前辉瑞研究员的惊人揭秘—疫苗临床试验涉嫌数据造假](/content/gnews/18/README.md)
+### [丹麦和瑞典敦促公民离开乌克兰，欧盟表示不会撤离基辅](/content/gnews/3/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声|美大学生校队完胜中共外聘职业联军](/content/gnews/19/README.md)
- ` MOSREC`
+### [2/11/2022 文贵直播：文贵必将把单伟健和PAG的事情整明白，中共践踏国际规则，在西方的渗透、攻击和造假越多，中共下场越惨](/content/gnews/4/README.md)
+ ` 秘密翻译组-北美组`
 
-### [防火墙是中国人精神里的墙](/content/gnews/20/README.md)
+### [2月11日文贵大直播摘要（图1-3](/content/gnews/5/README.md)
+ ` 波士顿五月花农场`
+
+### [2/11/2022 文贵直播： 谷爱凌和谷燕给中国人拉仇恨，让亚裔跟全世界对立，掀起了排华浪潮](/content/gnews/6/README.md)
+ ` 秘密翻译组-北美组`
+
+### [2/11/2022 文贵直播：战友们要捐钱给文贵的好意文贵心领了，但文贵从来不向任何人伸手要钱，也从不接受任何捐赠，所以战友们千万不要捐钱给文贵](/content/gnews/7/README.md)
+ ` 秘密翻译组-北美组`
+
+### [2/11/2022 文贵直播: 中共大肆宣传谷爱凌意在利用冬奥会的所谓正能量掩盖锁链女事件](/content/gnews/8/README.md)
+ ` 秘密翻译组-北美组`
+
+### [郭文贵先生2022年2月12日盖特视频（9分20秒）全文字版](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|众议院保守党人对数千名中国共产党官员提出制裁建议](/content/gnews/21/README.md)
- ` MOSREC`
+### [与感染者同居 有发热症状的密接者阳性率高](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [在引发HIV假阳性结果后，5000万针原计划疫苗报废了](/content/gnews/22/README.md)
- ` 【去疫前线】`
+### [2/12/2022 文贵盖特：回答战友关于如何做出人生重大决定的问题，除了看透生死、放下恐惧，还要独立判断、不受他人影响，只要是你内心觉得有意义的、正确的、不伤害别人或能帮助别人的都可以做](/content/gnews/11/README.md)
+ ` 秘密翻译组-北美组`
 
-### [艾格里斯医生对于新变异病毒的预防和治疗，以及疫苗解毒的最新综合用药治疗方案](/content/gnews/23/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [【粤语配音】2022年2月11日： 谷爱玲母女将为其行为付出绝对的代价](/content/gnews/24/README.md)
+### [【粤语配音】2022年2月12日：人生要做你自己](/content/gnews/12/README.md)
  ` MOS香港部`
 
-### [世界转折点——敦刻尔克](/content/gnews/25/README.md)
+### [举报人揭露军队中疫苗伤害，国防部继续掩盖真相](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
+
+### [恐惧和冲动只会失去机会远离胜利](/content/gnews/14/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [七哥去英国日本前必须要满足的几个条件](/content/gnews/15/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [英国间谍案](/content/gnews/16/README.md)
+ ` 【去疫前线】`
+
+### [灭共者之郭氏情报站（二十四）2022/02/11 文贵大直播](/content/gnews/17/README.md)
+ ` MOS Designer香草山设计部`
+
+### [全球疫情更新(全球反强制疫苗示威风起云涌）](/content/gnews/18/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [有声|瑞典取消疫苗护照等限制措施](/content/gnews/19/README.md)
+ ` MOSREC`
+
+### [灭共漫画 | 福尔摩斯历险记：中共病毒](/content/gnews/20/README.md)
+ ` MOS Designer香草山设计部`
+
+### [前辉瑞研究员的惊人揭秘—疫苗临床试验涉嫌数据造假](/content/gnews/21/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [有声|美大学生校队完胜中共外聘职业联军](/content/gnews/22/README.md)
+ ` MOSREC`
+
+### [防火墙是中国人精神里的墙](/content/gnews/23/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有声|众议院保守党人对数千名中国共产党官员提出制裁建议](/content/gnews/24/README.md)
+ ` MOSREC`
+
+### [艾格里斯医生对于新变异病毒的预防和治疗，以及疫苗解毒的最新综合用药治疗方案](/content/gnews/25/README.md)
+ ` 喜马拉雅农场新西兰站`
 
 ### [郝董：HPAY 重塑家庭中人与人之间的关系](/content/gnews/26/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
@@ -126,38 +126,38 @@
 ### [北京冬奥会是第一个完全依赖人工造雪的冬季奥运会](/content/gnews/37/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国计划设立所罗门群岛大使馆以对抗中国](/content/gnews/38/README.md)
- ` Shuizhuyu`
-
-### [“男人都去哪儿了？”为维族冬奥滑雪选手欢呼的家人尽数女性](/content/gnews/39/README.md)
+### [“男人都去哪儿了？”为维族冬奥滑雪选手欢呼的家人尽数女性](/content/gnews/38/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [人类研究保护联盟主席呼吁反对强制疫苗](/content/gnews/40/README.md)
+### [人类研究保护联盟主席呼吁反对强制疫苗](/content/gnews/39/README.md)
  ` NFSC News`
 
-### [英国查尔斯王子再次确诊中共病毒](/content/gnews/41/README.md)
+### [英国查尔斯王子再次确诊中共病毒](/content/gnews/40/README.md)
  ` NFSC News`
 
-### [立陶宛敦促全球抵制中共和俄罗斯](/content/gnews/42/README.md)
+### [立陶宛敦促全球抵制中共和俄罗斯](/content/gnews/41/README.md)
  ` NFSC News`
 
-### [樱花解说┃郭文贵先生起诉UBS案情始末](/content/gnews/43/README.md)
+### [樱花解说┃郭文贵先生起诉UBS案情始末](/content/gnews/42/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花灭共诗——春回冬奥中共造雪记（新韵）](/content/gnews/44/README.md)
+### [樱花灭共诗——春回冬奥中共造雪记（新韵）](/content/gnews/43/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国好时巧克力正在退出中共国市场](/content/gnews/45/README.md)
+### [美国好时巧克力正在退出中共国市场](/content/gnews/44/README.md)
  ` 日本东京方舟农场`
 
-### [美国务卿在澳大利亚发出警告称中共政权意图主宰世界](/content/gnews/46/README.md)
+### [美国务卿在澳大利亚发出警告称中共政权意图主宰世界](/content/gnews/45/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [肥料价格飙升和对中共国的进口依赖威胁美国农业](/content/gnews/47/README.md)
+### [肥料价格飙升和对中共国的进口依赖威胁美国农业](/content/gnews/46/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2/12/2022国际财经快讯：英国经济在通胀挑战前遭受欧米茄的打击；华尔街因担心乌克兰冲突而大幅收跌](/content/gnews/48/README.md)
+### [2/12/2022国际财经快讯：英国经济在通胀挑战前遭受欧米茄的打击；华尔街因担心乌克兰冲突而大幅收跌](/content/gnews/47/README.md)
  ` 秘密翻译组金融团队`
+
+### [七哥爆料陈全国（一）、特供冬虫夏草](/content/gnews/48/README.md)
+ ` 雅典娜GNotes`
 
 ### [日本非政府组织支援出现人道主义危机的阿富汗](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
