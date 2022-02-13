@@ -2,33 +2,40 @@
 ---
 
 
-## 挪威从2月12号起将取消所有的入境新冠限制
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2000437/)
+## 新西兰奥克兰市医院13人确诊感染中共病毒
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2000476/)
 
-**撰稿:  日本东京方舟农场JIHO**
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image011.jpg)
+2月12日，据RNZ报导，新西兰奥克兰市医院（Auckland City Hospital）6名工作人员和7名患者的检测呈阳性。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image012.png)
+该医院一个老年人病房的一名工作人员最近出现感染中共病毒症状，并显示阳性结果。
 
-据挪威旅游网站visitnorway.com报道，从2022年2月12日起，入境挪威将无需测试、无需隔离、无需疫苗护照，其他规则也有所放宽。现在，您不必在全国任何地方戴口罩，社交生活照常进行：所有酒吧、餐馆和博物馆都开放，您可以参加各种活动，例如音乐会和会议。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片-1-13.jpeg)（图片取自：visitnorway.com）
-
-如果你感染了新冠病毒会怎样？
-
-如果您感到不适，建议您自我隔离 4 天。症状出现后 4 天，且至少 24 小时未发烧，即可结束隔离。如果您的旅伴不感到不适，则无需进行自我检测或自我隔离。
-
-斯瓦尔巴群岛的特殊入境规则
-
-所有没有有效 COVID 证书的旅行者，包括挪威人，在前往斯瓦尔巴群岛之前必须提供阴性检测结果。所有旅客必须在抵达后 24 小时内进行测试。
-
-这是个好消息，自由在胜利的路上！
-
-参考链接：
-[https://www.visitnorway.com/plan-your-trip/coronavirus-and-travelling-to-norway/](https://www.visitnorway.com/plan-your-trip/coronavirus-and-travelling-to-norway/)
-
-素材采编：JIHO
-编辑：老孙
-发布：文曦
+随后对病房内的工作人员和患者进行了检测，另外发现了12例病例。 2月12日，新西兰小区中的每日Covid-19 病例数已达到新高，上升至454 例。边境病例8例；截至2月12日中午，共有27例病例住院，住院患者平均年龄为52岁，没有人在重症监护/加护病房。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image014.jpg)
+此外，新西兰卫生部在一份声明中表示，新病例发生在北地（12）、奥克兰（294）、怀卡托（72）、丰盛湾（23）、湖泊（8）、霍克斯湾（7）、中部（5）)、塔拉纳基(1)、惠灵顿(5)、赫特河谷(12)、怀拉拉帕(2) 和南部(13)。
 
 
+
+**推出问题，敲出真相，爆料在路上！**
+
+**请关注和订阅我们的以下账号：**
+
+**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+
+**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+
+**玫瑰看新闻YOUTUBE账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**ROSE NEWS**
+
+**【玫瑰看新闻】推特账号**：
+
+**ROSE NEWS (@ROSENEWS4)A**
 
  
 

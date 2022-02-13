@@ -2,30 +2,30 @@
 ---
 
 
-## 中共国批准辉瑞新冠口服药
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2000691/)
+## NFSC新闻、G|TV新闻访谈简报|2022年2月13日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2000786/)
 
-**撰稿：日本东京方舟农场  幽蘭自得**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO.jpg)
 
-2月11日，中（共）国国家药监局发布消息称，应急附条件批准辉瑞新冠病毒（中共病毒）治疗药物Paxlovid进口注册，这是中共国批准的第一款专门用于治疗中共病毒感染的口服药。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-12.png)
+文章仅代表作者本人观点，与Gnews无关
 
-据《德国之声》报道，中共国国家药监局声称，该药品为口服小分子中共病毒治疗药物，用于治疗成人伴有进展为重症高风险因素的轻至中度新型冠状病毒肺炎(中共病毒)患者，例如伴有高龄、慢性肾脏疾病、糖尿病、心血管疾病、慢性肺病等重症高风险因素的患者。
+视频参看：
+[2022.02.13早 《NFSC新闻》](https://gtv.org/video/id=62090779a456fe1dea30275e)
+[2022.02.13早 G|TV《新闻访谈》](https://gtv.org/video/id=62090fb2a456fe1dea303e60)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片-1-2-6.jpeg)（图片来自德国之声）
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-然而，事实上这类中共病毒口服药对人体造成的伤害比疫苗带给人的危害更严重、更可怕。这是新中国联邦创始人郭文贵先生在去年11月10日的直播中就揭露了。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-callendar-1.jpeg)
 
-他在直播中指出，此前已经揭露过关于中共病毒和疫苗的真相，目前身在欧洲的科学家对此发出警告称，中共病毒口服药可能比疫苗更可怕，其成分是含有用于治疗艾滋病、非洲痢疾、霍乱等疾病的元素，有严重的激素副作用，还会诱发严重心脏病，特别是对有癌症病例或曾经做过手术的人。此外，该药物还会对人的神经系统、血液循环系统和消化系统造成慢性的、毁灭性的伤害。
-
-此前，这位科学家曾多次向郭先生提供有关中共病毒和疫苗真相的信息，并一一得到验证。
-
-参考链接：
-1.[https://www.dw.com/zh/%E4%B8%AD%E5%9B%BD%E5%BA%94%E6%80%A5%E9%99%84%E6%9D%A1%E4%BB%B6%E6%89%B9%E5%87%86%E8%BE%89%E7%91%9E%E6%96%B0%E5%86%A0%E5%8F%A3%E6%9C%8D%E8%8D%AFpaxlovid/a-60754403](https://www.dw.com/zh/%E4%B8%AD%E5%9B%BD%E5%BA%94%E6%80%A5%E9%99%84%E6%9D%A1%E4%BB%B6%E6%89%B9%E5%87%86%E8%BE%89%E7%91%9E%E6%96%B0%E5%86%A0%E5%8F%A3%E6%9C%8D%E8%8D%AFpaxlovid/a-60754403)
-2.[https://gtv.org/video/id=618bc611e7e7703792324e25](https://gtv.org/video/id=618bc611e7e7703792324e25)
-
-素材采编：幽蘭自得
-编辑：青城道姑
-发布：文曦
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

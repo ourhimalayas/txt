@@ -2,41 +2,38 @@
 ---
 
 
-## 新西兰奥克兰市医院13人确诊感染中共病毒
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2000476/)
+## 索马里兰称中共无权在台湾问题上向其发号施令
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2000511/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image011.jpg)
-2月12日，据RNZ报导，新西兰奥克兰市医院（Auckland City Hospital）6名工作人员和7名患者的检测呈阳性。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image012.png)
-该医院一个老年人病房的一名工作人员最近出现感染中共病毒症状，并显示阳性结果。
+作者：纽约香草山教育部 Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据外媒报道，2月12日索马里兰地区外交部长周五在一次受到北京谴责的台湾之行中表示，中共国无权规定索马里兰可以与谁建立关系，因为我们是一个主权国家，并且生而自由。
 
-随后对病房内的工作人员和患者进行了检测，另外发现了12例病例。 2月12日，新西兰小区中的每日Covid-19 病例数已达到新高，上升至454 例。边境病例8例；截至2月12日中午，共有27例病例住院，住院患者平均年龄为52岁，没有人在重症监护/加护病房。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image014.jpg)
-此外，新西兰卫生部在一份声明中表示，新病例发生在北地（12）、奥克兰（294）、怀卡托（72）、丰盛湾（23）、湖泊（8）、霍克斯湾（7）、中部（5）)、塔拉纳基(1)、惠灵顿(5)、赫特河谷(12)、怀拉拉帕(2) 和南部(13)。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-5.jpeg)
 
+索马里兰位于非洲之角，与吉布提接壤，战略地位非常重要。索马里兰于1991年脱离索马里，但其独立没有得到广泛的国际承认。
 
+2020年索马里兰和台湾在彼此的首都设立了代表处，此举激怒了中共国和索马里。
 
-**推出问题，敲出真相，爆料在路上！**
+中共国外交部对本周台湾接待索马里兰的高级部长级代表团表示不满。
 
-**请关注和订阅我们的以下账号：**
+索马里兰外交部长在接受采访时表示，索马里兰生来自由，中共国无权向他的国家发号施令。索马里兰愿意与任何尊重其主权的国家合作。
 
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+参考链接：[‘Born free’: Somaliland says China can’t dictate to it over Taiwan](https://www.reuters.com/world/china/born-free-somaliland-says-china-cant-dictate-it-over-taiwan-2022-02-11/)
 
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-**玫瑰看新闻YOUTUBE账号**：
+总编：Zion文恩
+编辑：Lakeman文仁
+校正/发稿：谐趣园
 
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**ROSE NEWS**
-
-**【玫瑰看新闻】推特账号**：
-
-**ROSE NEWS (@ROSENEWS4)A**
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

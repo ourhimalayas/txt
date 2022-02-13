@@ -2,34 +2,31 @@
 ---
 
 
-## 美国正在挫败中共在非洲的大西洋基地计划
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2000605/)
+## 中共国批准辉瑞新冠口服药
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2000691/)
 
-作者：银河系农场—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据外媒报道，近日，拜登政府正在游说赤道几内亚拒绝中共在该国大西洋海岸建立军事基地。美国政府官员表示，一个由美国高级外交和军事官员组成的代表团计划下周访问这个非洲中部小国，预计将讨论美国的反海盗援助和其他议题，旨在说服赤道几内亚总统拒绝中共的扩张。
+**撰稿：日本东京方舟农场  幽蘭自得**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-7.jpeg)
+2月11日，中（共）国国家药监局发布消息称，应急附条件批准辉瑞新冠病毒（中共病毒）治疗药物Paxlovid进口注册，这是中共国批准的第一款专门用于治疗中共病毒感染的口服药。
 
-据悉，中共打算在赤道几内亚巴塔镇建造第一个大西洋海军或空军军事基地，以符合中共整合贸易和政治目标。另外，巴塔已经有一个中国建造的商业港口，水深足以停靠海军舰艇。
+据《德国之声》报道，中共国国家药监局声称，该药品为口服小分子中共病毒治疗药物，用于治疗成人伴有进展为重症高风险因素的轻至中度新型冠状病毒肺炎(中共病毒)患者，例如伴有高龄、慢性肾脏疾病、糖尿病、心血管疾病、慢性肺病等重症高风险因素的患者。
 
-美国表示，并不是要求赤道几内亚在中共和美国之间做出选择，只是要求他们考虑其他的国际伙伴，因为中共在赤道几内亚的军事基地令美国和所有合作伙伴非常担心。美国目前正在努力尝试使赤道几内亚远离中共。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片-1-2-6.jpeg)（图片来自德国之声）
 
-参考链接： [US aims to thwart China’s Atlantic base plan in Africa](https://goodwordnews.com/us-aims-to-thwart-chinas-atlantic-base-plan-in-africa/amp/)
+然而，事实上这类中共病毒口服药对人体造成的伤害比疫苗带给人的危害更严重、更可怕。这是新中国联邦创始人郭文贵先生在去年11月10日的直播中就揭露了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+他在直播中指出，此前已经揭露过关于中共病毒和疫苗的真相，目前身在欧洲的科学家对此发出警告称，中共病毒口服药可能比疫苗更可怕，其成分是含有用于治疗艾滋病、非洲痢疾、霍乱等疾病的元素，有严重的激素副作用，还会诱发严重心脏病，特别是对有癌症病例或曾经做过手术的人。此外，该药物还会对人的神经系统、血液循环系统和消化系统造成慢性的、毁灭性的伤害。
 
-总编：Zion文恩
-编辑：谐趣园
-校正/发稿：谐趣园
+此前，这位科学家曾多次向郭先生提供有关中共病毒和疫苗真相的信息，并一一得到验证。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+参考链接：
+1.[https://www.dw.com/zh/%E4%B8%AD%E5%9B%BD%E5%BA%94%E6%80%A5%E9%99%84%E6%9D%A1%E4%BB%B6%E6%89%B9%E5%87%86%E8%BE%89%E7%91%9E%E6%96%B0%E5%86%A0%E5%8F%A3%E6%9C%8D%E8%8D%AFpaxlovid/a-60754403](https://www.dw.com/zh/%E4%B8%AD%E5%9B%BD%E5%BA%94%E6%80%A5%E9%99%84%E6%9D%A1%E4%BB%B6%E6%89%B9%E5%87%86%E8%BE%89%E7%91%9E%E6%96%B0%E5%86%A0%E5%8F%A3%E6%9C%8D%E8%8D%AFpaxlovid/a-60754403)
+2.[https://gtv.org/video/id=618bc611e7e7703792324e25](https://gtv.org/video/id=618bc611e7e7703792324e25)
+
+素材采编：幽蘭自得
+编辑：青城道姑
+发布：文曦
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

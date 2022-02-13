@@ -2,20 +2,26 @@
 ---
 
 
-## 有声|安大略省宣布进入紧急状态，法院对加美边境的卡车封锁发出禁令
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2000494/)
+## 美国正在挫败中共在非洲的大西洋基地计划
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2000605/)
 
-配音：香草山巡管部– 文凯琳
+作者：银河系农场—骄子
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-根据《国家邮报》2月11 日报道，加拿大安省省长周五宣布该省进入紧急状态，并承诺为警察提供更多资源，对封锁渥太华街道和温莎大使大桥的抗议者实施新的处罚。
+据外媒报道，近日，拜登政府正在游说赤道几内亚拒绝中共在该国大西洋海岸建立军事基地。美国政府官员表示，一个由美国高级外交和军事官员组成的代表团计划下周访问这个非洲中部小国，预计将讨论美国的反海盗援助和其他议题，旨在说服赤道几内亚总统拒绝中共的扩张。
 
-紧急状态将包括新的命令，明确说明封锁机场、高速公路、港口和桥梁等关键基础设施是非法的，封锁市政道路、阻止公共交通的救护车也是非法的。罚款将是严厉的，每天的处罚高达10万美元，或高达一年的监禁，并可能暂停商业和个人驾驶执照。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-7.jpeg)
 
-文字版原文：[安大略省宣布进入紧急状态，法院对加美边境的卡车封锁发出禁令](https://gnews.org/zh-hans/1998291/)
+据悉，中共打算在赤道几内亚巴塔镇建造第一个大西洋海军或空军军事基地，以符合中共整合贸易和政治目标。另外，巴塔已经有一个中国建造的商业港口，水深足以停靠海军舰艇。
 
-音频处理/发稿：Daxia
+美国表示，并不是要求赤道几内亚在中共和美国之间做出选择，只是要求他们考虑其他的国际伙伴，因为中共在赤道几内亚的军事基地令美国和所有合作伙伴非常担心。美国目前正在努力尝试使赤道几内亚远离中共。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+参考链接： [US aims to thwart China’s Atlantic base plan in Africa](https://goodwordnews.com/us-aims-to-thwart-chinas-atlantic-base-plan-in-africa/amp/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+
+总编：Zion文恩
+编辑：谐趣园
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -23,7 +29,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,43 +2,21 @@
 ---
 
 
-## 今日盖特大V推荐 — 斯都·彼得斯（Stew Peters）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2000644/)
+## 新中国联邦行的正道主义和救命主义 获得全世界坚定盟友的支持
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2000784/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1324-e1644773240996.png)
-盖特链接：[https://gettr.com/user/RealStewPeters](https://gettr.com/user/RealStewPeters)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1325.png)
-**斯都·彼得斯自述**：
+新中国联邦行救命主义，揭露疫苗真相，广结善缘，获得全世界坚定盟友的支持。
 
-斯都·彼得斯秀主持人
+俄罗斯玛莎带着战友们做了几期郭文贵先生讲疫苗真相的俄语节目，救了郭先生一位俄罗斯朋友的一家人。
 
-寻求真相的事实迷毫无歉意
+这位俄国朋友，透露普京早就知道疫苗危害，同时中共上层都不打疫苗，但是推广疫苗。
 
-💯 正宗纯种美国爱国者🇺🇸
+爆料革命行的就是正道主义和救命主义，通过揭露疫苗真相，广结善缘，救助世界各地的朋友，行成了新中国联邦全世界的盟友大军。
 
-网站Stewpeters.shop 👕
-
-图片来源：网络
-
-**斯都·彼得斯简介：**
-
-彼得斯于1980年出生于威斯康星州的拉克罗斯，是一位美国电台主持人和播客。 彼得斯以主持以播客为主的 Stew Peters Show 而闻名。
-
-他曾担任私人保释调查机构的高级调查员约20年。2021年3月，他改变了职业道路，开始在MoJo 5.0电台担任电台主持人。
-
-彼得斯因为反新冠疫苗，敢说真话，被油管和推特以散布“阴谋论”为由而删除。
-
-编撰：洛杉矶盘古农场 — 郭友(文苏)
-
-校审：洛杉矶盘古农场 — 心照
-
-发布：洛杉矶盘古农场 — 子萍
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+视频来源: 20220211—郭先生大直播
+视频制作: 文星光，梦田
+文案:文星光
+上传: 零点
 
  
 
