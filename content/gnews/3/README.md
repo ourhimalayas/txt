@@ -2,28 +2,44 @@
 ---
 
 
-## 美议员谈《制止中共法案》：我们触动了某些人的神经
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1998540/)
+## 没有共产党的控制,音乐就会戳穿它的虚伪、官僚和欺骗
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1998684/)
 
-#### 翻译/撰稿：zzballack
+G-TV视频链接：[https://gtv.org/video/id=62089f09b0af02660af30f18](https://gtv.org/video/id=62089f09b0af02660af30f18)
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-2-9.jpg)图片来源：推特
-据《布雷特巴特新闻网》（Breitbart News）2月12日报道，美国共和党众议员丽莎·麦克莱恩 (Lisa McClain)2月12日在接受播客《布雷特巴特新闻星期六》（Breitbart News Saturday）的主持人马修·博伊尔（Matthew Boyle）采访时谈论了她新近提出的《制止中共法案》（Stop CCP Act），该法案将对中共官员及其亲属实施制裁。
+**郭文贵先生：**为什么共产党要网络屏蔽？它为啥不敢让我们唱进去？那么这就是音乐的力量，它不独专享它就会被假的干掉，如果它要是不控制真正的音乐，音乐就会把整个虚伪和官僚、欺骗全部给戳穿。
 
-麦克莱恩说：“《制止中共法案》将限制中共党员及其家庭成员的出行，并对其实施金融制裁。这个法案发出了一个强烈信息，即中共的行为不会被容忍。由于拜登政府没有对中共采取强硬措施，国会需要这样做。软弱会滋生侵略，看看现今世界，这种情况正在发生。”
+真正的音乐是像我刚才似的，是发自我们内心的，音乐是不会死亡的。音乐就像邓丽君女士刚才的歌，谁听了、看了都受不了，是人就受不了，除非他是魔鬼。我相信王岐山、习近平听她也会哭，因为他是人呢，他不是畜生啊！
 
-在采访中，博伊尔特别提到了如果该法案正式成为法律，那么习近平的女儿将不被允许上哈佛大学。另外中共喉舌胡锡进叫嚣威胁说，如果该法案被正式通过，将对美国政府成员实施报复性制裁。麦克莱恩对此表示欢迎，她告诉博伊尔：“看起来我们触动了某些人的神经。尽管制裁吧，反正我短期内没有去中共国旅行的计划，我也不会把我的孩子送到中共的孔子学院去接受教育。对于制裁，我没有任何担心。”
+邓丽君说出了人最基本的要求，她没有任何，她也不是什么党，她甚至跟你习近平、王岐山都不认识是吧？她是要的是一个人类的基本人和畜生分别的一个分水岭叫民主、叫人权，这就是音乐的力量。
 
-麦克莱恩说国会需要停止对中共的各种侵犯人权行为视而不见，无论是香港、维吾尔穆斯林，还是台湾。“我们必须停止这样做。因为我还是那句话，软弱会滋生侵略。”
+字幕来源：[2022年1月31日 《春节大直播》 全文字版（一）](https://gnews.org/zh-hans/1943980/)
 
-采访中，两人讨论了让《制止中共法案》与《年度国防授权法案》（National Defense Authorization Act）捆绑在一起的可能性。麦克莱恩说，这是一种可能，但由于民主党控制着众议院、参议院和白宫，在我们夺回众议院之前，它很可能不会通过。
+编辑整理：Jacques；
 
-新闻来源：
+字幕文件制作：大好河山；
 
-[Exclusive — Rep. Lisa McClain on Stop CCP Act: ‘We’ve Struck a Nerve’](https://www.breitbart.com/politics/2022/02/12/exclusive-rep-lisa-mcclain-on-stop-ccp-act-weve-struck-a-nerve/)
+视频制作及上传：Cindy；
 
-[众议院保守派提出针对数千名中共官员的制裁法案](https://gnews.org/zh-hans/1983139/)
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

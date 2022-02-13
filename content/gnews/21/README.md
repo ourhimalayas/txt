@@ -2,42 +2,44 @@
 ---
 
 
-## 英国资深议员称，中共间谍机构正在噤声英国大学的辩论
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1998349/)
+## 共产党不能垄断红色，新中国联邦全新秀出红底信仰之星
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1998485/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/9593.jpg)2019年4月9日，保守派议员汤姆-图根哈特在伦敦威斯敏斯特大厅参加一个保守派研究小组的会议。(Tolga Akmen/AFP via Getty Images)
-来自《大纪元时报》2022年02月11日的报道，英国外交事务委员会主席汤姆·图根哈特(Tom Tugendhat)2月10日告诉下议院，中共国的国家安全部(MSS)，即这个共产主义政权的主要情报机构，一直在努力侵蚀英国大学校园的自由。图根哈特说，他在前一天与一些学生谈过，这些学生告诉他，“他们在大学里的辩论被噤声了”。
+G-TV视频链接：[https://gtv.org/video/id=62089c74b0af02660af30e48](https://gtv.org/video/id=62089c74b0af02660af30e48)
 
-“他们说，人们不愿意为他们知道的事实发声或者站出来，因为他们会面临国家安全部（中共国的执法部门）的压力，让他们在英国的辩论中噤声。”图根哈特说，他也是由保守党议员组成的“中国研究小组”的联合创始人。图根哈特说，学生们告诉他，这种干扰“往往来自同学，或者来自以某种方式与该国有联系的老师或讲师”。
+**郭文贵先生：**我今天穿的衣服，是在昨天下午六点钟从意大利才运来的，这块儿最起码有十几种颜色。我穿这个衣服的料子，就是上次直播那个Scabal, 这个料子是3000美金一Yard成本，上身3Yard，一个裤子最起码两Yard,那5Yard就1.5万美元了，就这一套成本，不算费用。
 
-他说：“我们看着英国公民和那些来到这里寻求自由的人的自由受到侵蚀，无论他们来自哪个国家，因为我们在捍卫自由方面不够强硬，令人遗憾。”图根哈特警告说，中共国和俄罗斯等独裁国家正试图破坏民主制度，他说：“在英国，我们正看着我们自己的自由受到侵蚀。”
+Q May穿着都是这，全都这衣服，我们今天都这。我们这全都这个。就是我们要拿出卖的话5万美金这套衣服，最低，甚至更多。你告诉我，中央电视台谁会让做这样的衣服？我们后边今天，我们所有打印出来的这些都是红的，第一次是红的带49星——信仰之星。我给CC嗝屁说你打这个，把他吓一大跳。他说：“你确定吗？”我说：“我确定”
 
-他说，英国需要关闭由中共政权资助的设立在英国大学里的孔子学院，因为它们是“由中共中央统战部部署的敌对国家的机构”，中共统战部是中国共产党的一个部门，专门从事国内外的影响操作。这位资深议员说，捍卫“英国人民在自由环境中研究和学习任何种类、任何形式的思想的自由”是政府的一个基本作用。“噤声辩论破坏了我们，侵蚀了自由。它也侵蚀了我们通往未来的道路。”他补充说。
+红色不能让共产党垄断，就像中国的权力不能被共产党垄断一样。幸福和健康也不能是共产党说了算，就像“恭喜发财”然后得党先强大。
 
-在一场关于英国与台湾关系的辩论中，图根哈特说，他仍然很乐观，因为他认为台湾是“一个例子，表明中国社会和文化，虽然表现形式不一样，但在本质上是自由的。”他说，他看到了中国共产党让人民噤声的企图最终会失败的希望。
+字幕来源：[2022年1月31日 《春节大直播》 全文字版（一）](https://gnews.org/zh-hans/1943980/)
 
-艾丽西娅·凯恩斯(Alicia Kearn)是下议院外交事务委员会的另一位保守党成员，她也是中国研究小组的指导委员会成员。她称台湾是“活生生的事实，即根植于中华文化的社会有能力发展成为自由市场、民主和尊重规则的国际社会的成员。”
+编辑整理：Jacques；
 
-“正是这一事实解释了为什么中国共产党如此害怕台湾，因为只要台湾存在，世界就会知道，政府不需要像我们在中国共产党统治下看到的那样，被控制、镇压、甚至种族灭绝所定义。”她说。
+字幕文件制作：知津；
 
-凯恩斯说，自由世界“不能坐等任何如香港这样的悲剧再次发生”。她敦促英国政府“与我们在世界各地的盟友合作，与那些尊重自由并与我们有同样关切的国家接触，建立威慑和外交手段，以保护我们的台湾朋友。”
+视频制作及上传：Cindy；
 
-**简评：**中共一直用谎言治理国家，参与外交事务，但这个世界存在因果，中共也最终会被自己编造的谎言欺骗。俗话说，上行下效，独裁者习近平很难从身边的人那里获取真实的信息，这使得他踌躇满志，自以为控制了14亿中国人民就可以控制整个世界。在中共渗透海外世界的进程中，他们也用在中共国对付老百姓的手段通过噤声、封口来解决反对的声音。中共长期持强凌弱，把中共国老百姓折磨得困苦不堪，长此以往，导致中共出现错觉，误以为只要自己够无耻，所有人都会拜倒在它的淫威下。但是，在英国法治、民主、自由的环境下成长起来的学生，这种霸权主义的行为方式是行不通的，更何况西方社会有完整的法律体系做支撑。
+G-News发布：小满；
 
-中国人在中国共产党的绑架和丑化下，已经引起了西方社会的反感。幸运的是，香港人民和台湾人民用事实向世界展示了，在法治，民主，自由的社会环境下，中国人民有能力发展成为自由市场、民主、尊重规则的国际社会的成员。中国人需要做的，就是消灭中国共产党，把这个邪恶的共产主义非法政权从中华大地清除，唯有如此，才能让中国融入民主、文明的正常社会之中。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-新闻链接: [https://www.theepochtimes.com/chinese-spy-agency-silences-uk-university-debates-lawmaker\_4272114.html](https://www.theepochtimes.com/chinese-spy-agency-silences-uk-university-debates-lawmaker_4272114.html)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-* * *
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-编辑：【英国伦敦喜庄园编辑部】
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

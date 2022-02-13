@@ -2,28 +2,46 @@
 ---
 
 
-## 拜登警告普京：入侵乌克兰将引发西方反应
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1998334/)
+## 中共春晚充斥着藏污纳垢的金钱交易,每个人唱得都是假的
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1998475/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/9592.jpg)美国总统拜登在戴维营与俄罗斯总统普京通话并发出警告（2022年2月12日）
-据美国之音2月13日报道，美国总统拜登警告俄罗斯总统普京，如果俄罗斯入侵乌克兰，将会引发西方迅速而果断的反应，后果很严重，会降低俄罗斯的世界地位。美国国务卿布林肯表示，如果普京决定入侵乌克兰，华盛顿将立即施加经济制裁。
+G-TV视频链接：[https://gtv.org/video/id=62089b8eb0af02660af30e0c](https://gtv.org/video/id=62089b8eb0af02660af30e0c)
 
-美国政府表示，俄罗斯可能随时入侵乌克兰，可能从空袭开始。美国国务院12日命令大部分驻乌克兰使馆人员离开，五角大楼正在撤出大约150名军事训练人员。以色列、葡萄牙和保加利亚也要求本国公民离开乌克兰。
+**郭文贵先生：**我说我到中央电视台现场去过，我这一说，王雁平：“接着又来了！”我去现场去过，你当年每年春节联欢晚会都给我们10张、50张、80张票，我送过太多人到现场去看去了。那时候在中国是一票难求，十几亿人，你怎么能得十几票、几十票呢？第一花钱买，第二就是现场那帮，到现场去看过以后。你知道中国所谓中央电视台，十几亿人看的，那些电视前面那些傻子，包括我，我也傻了很多年。就你不知道梅地亚宾馆里边儿的藏污纳垢的金钱交易。
 
-普京对乌克兰朝思暮想，就像习近平对台湾是志在必得。两大邪恶轴心国毫不掩饰自己的野心和扩张。西方世界容忍了共产主义的发展和壮大，造就了几个邪恶的共产主义轴心国，正所谓养虎为患。要想不被虎伤，就要在必要的时候出手打击，否则美国就会像在中共的病毒和疫情面前一样：措手不及、损失惨重。
+你看赵忠祥，逮住那些来参加的拿着票的人就卖字。河南的当年的那个搞传销的，本来说好的50万给写一副字，祝周总身体健康，什么什么安康什么公司健康。写完了，追出门去——你得给我再加100万，我得200万。为啥？我字儿给你写得多。
 
-新闻参考链接：[https://www.voachinese.com/a/6439274.html](https://www.voachinese.com/a/6439274.html)
+梅地亚宾馆是大牌待的，那些群众演员你都到外边儿待着吧，弄盒饭吃去吧，那盒饭都是馊饭，都吃过回扣的。所有中央电视台的摆设、一切，每道东西都是回扣，每个人唱的都是假的。
 
-* * *
+那你想想，这个中央《春节联欢晚会》，让我们老百姓看的时候，哪个又不是假的呢？但是中国人现在90%以上的人是反应不过来的。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+字幕来源：[2022年1月31日 《春节大直播》 全文字版（一）](https://gnews.org/zh-hans/1943980/)
 
+编辑整理：Jacques；
 
-编辑：【英国伦敦喜庄园编辑部】
+字幕文件制作：知津；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

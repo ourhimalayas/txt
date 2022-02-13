@@ -2,46 +2,26 @@
 ---
 
 
-## 中共春晚充斥着藏污纳垢的金钱交易,每个人唱得都是假的
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1998475/)
+## 莫德纳CEO在抛售了数千万美元的股票后删除其推特帐户
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1998614/)
 
-G-TV视频链接：[https://gtv.org/video/id=62089b8eb0af02660af30e0c](https://gtv.org/video/id=62089b8eb0af02660af30e0c)
+#### 翻译/撰稿：zzballack
 
-**郭文贵先生：**我说我到中央电视台现场去过，我这一说，王雁平：“接着又来了！”我去现场去过，你当年每年春节联欢晚会都给我们10张、50张、80张票，我送过太多人到现场去看去了。那时候在中国是一票难求，十几亿人，你怎么能得十几票、几十票呢？第一花钱买，第二就是现场那帮，到现场去看过以后。你知道中国所谓中央电视台，十几亿人看的，那些电视前面那些傻子，包括我，我也傻了很多年。就你不知道梅地亚宾馆里边儿的藏污纳垢的金钱交易。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-2-1.jpg)图片来源：福布斯
+据《The Covid World》2月13日报道，莫德纳（Moderna）公司的首席执行官（CEO）斯特凡·班塞尔（Stéphane Bancel）本周在卖出数千万美元的莫德纳股票后删除了其推特帐户。据Gurufocus网站显示，班塞尔在2月10日出售了19000股莫德纳股票，获利2000多万美元。目前仍不清楚班塞尔为何删除其推特账户，莫德纳CEO的这项奇怪举动让投资者感到担心和困惑，该公司也尚未发表官方声明对此做出解释。
 
-你看赵忠祥，逮住那些来参加的拿着票的人就卖字。河南的当年的那个搞传销的，本来说好的50万给写一副字，祝周总身体健康，什么什么安康什么公司健康。写完了，追出门去——你得给我再加100万，我得200万。为啥？我字儿给你写得多。
+此事发生后不久，前贝莱德 (BlackRock)对冲基金经理爱德华·唐德（Edward Dowd）2月10日在推特上回复莫德纳的官方账户说：“你们的CEO昨天关闭了他的推特账户，我猜是在内部律师的建议下完成的。毫无疑问！”
 
-梅地亚宾馆是大牌待的，那些群众演员你都到外边儿待着吧，弄盒饭吃去吧，那盒饭都是馊饭，都吃过回扣的。所有中央电视台的摆设、一切，每道东西都是回扣，每个人唱的都是假的。
+唐德上个月在接受《班农战斗室》采访时指控辉瑞和莫德纳在其新冠疫苗的临床试验中存在欺诈行为。如果这些指控被证明属实，这将意味着辉瑞和莫德纳都要对其疫苗造成的所有伤害和死亡负责。唐德说：“我相信，由于当时的制度性要求，以及他们试图批准这些使用未经验证技术的产品的速度，辉瑞和莫德纳疫苗的临床试验数据存在欺诈，以便强行通过审批。”
 
-那你想想，这个中央《春节联欢晚会》，让我们老百姓看的时候，哪个又不是假的呢？但是中国人现在90%以上的人是反应不过来的。
+辉瑞、莫德纳等大药厂在这次新冠疫情中仓促推出其不成熟的疫苗产品，在大发横财的同时对世界造成了深重灾难。做贼心虚的他们知道，已看清其真实面目的全球民众不会放过对他们的追责，等待他们的将是纽伦堡2.0大审判。
 
-字幕来源：[2022年1月31日 《春节大直播》 全文字版（一）](https://gnews.org/zh-hans/1943980/)
+新闻来源：
 
-编辑整理：Jacques；
+[Moderna CEO Stéphane Bancel Deletes Twitter Account, Sells Tens Of Millions Of Dollars In Stock](https://thecovidworld.com/moderna-ceo-stephane-bancel-deletes-twitter-account-sells-tens-of-millions-of-dollars-in-stock/)
 
-字幕文件制作：知津；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[Bancel Stephane](https://www.gurufocus.com/insider/Bancel+Stephane/name)
 
  
 

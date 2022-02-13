@@ -2,33 +2,29 @@
 ---
 
 
-## 日本名古屋市将开设疫苗后遗症沟通窗口
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1998286/)
+## 民众觉醒：真科学迎来春天？
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1998444/)
 
-作者：日本方舟农场 Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月8日，日本爱知县名古屋市市长河村先生，接受日媒采访时透露，名古屋市将最快在下周设立一个，专门为那些出现疫苗后遗症的人群，跟市政府联络的窗口。
-![坐看云起时(@yunqi11111111) / Twitter](https://pbs.twimg.com/ext_tw_video_thumb/1490260026371751939/pu/img/qYVPbT_4St9S3Faw?format=jpg&amp;name=large)
-截至目前，日本厚生劳动省对疫苗副作用的认定，仅限于那些在接种后立刻出现过敏反应的人员。相反对接种后超过5个月乏力只能卧床休息，或者接种后持续1个月以上出现舌头白斑等奇怪症状的人员，日本政府并没有任何措施。
+编译：致敬香港！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-56.jpg)
+图片来源：The Japan Times
 
-分析人士指出，名古屋市在医学方面，公布伊维菌素对中共病毒有效，并允许对名古屋市内被感染的市民投入伊维菌素后，又在政策上针对疫苗后遗症迈出了关键的一步。
+“零对冲”网2月13日转载文章揭露美国新冠疫情2年跌宕起伏，“科学”一方面被扭曲利用，而一方面却被全力封杀。随着更多民众觉醒，科学真相能否最终浮出水面？
 
-参考链接：
-1）[https://www.gettr.com/post/ptg70k6e22](https://www.gettr.com/post/ptg70k6e22)
-2）[https://www.gettr.com/post/pstgh22a24](https://www.gettr.com/post/pstgh22a24)
-3）[https://www.gettr.com/post/piflnu1d73](https://www.gettr.com/post/piflnu1d73)
+科学，是为理解真相而不断提问和探索的过程，它永远是一种方法而不是答案。而在这场新冠疫情中，号称民众必须遵从“科学”的政客们告诉我们：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+口罩：不需要戴、还是需要戴、需要戴2层、需要戴3层、布口罩无效、只有N95有效……
 
-编辑/校正/发稿：呼吸的雾霾（文小呼吸）
+新冠疫苗：阻止疫情100%有效、96%有效、70%效、有效期6个月、加强针是唯一的出路、这是一场未接种者的疫情……
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+睿智民众给政客们口中的“科学”加了个商标符号，一针见血地揭露出他们的“科学TM ”是由他们独家拥有的、并根据他们的需要而可以随时被篡改的一套“答案”，跟真实的科学根本毫不相关。众多科研人员遵循着科学原则持续观察和研究，提出病康复者会获得比疫苗更强大的自然免疫力，他们却被 “事实核查”大军以迅雷不及掩耳之势从网上抹杀。
+
+但历史的车轮滚滚向前，如今无可避免地、越来越多的民众看清了各种管制政策的无效和危害，大规模抗议和抵制活动开始在各地涌现，政客们不得不开始转向灭火。对于新冠阳性的入院患者，拜登政府终于开始组织“卫生与公众服务部”和“疾控与预防中心”的专家组与各地医院合作，把因新冠病情入院的、和因其它原因入院的分开来进行统计；之前各政府部门一直拒绝透露相关的具体数据，导致新冠重症和死亡率呈现虚高，其中一个匪夷所思的案例是，一个因吸毒过量而死亡的人因3个月前曾呈新冠阳性、而被记录为新冠死亡……
+
+但提高数据准确率和透明度仅仅是一小步，言论审查和网络封杀等仍然是众多勇敢传播真相的科学家无法挣脱的枷锁。近日，收听率爆棚的乔·罗根播客节目先后邀请多名顶级科学家讨论新冠疫情、疫苗和早期治疗话题；同期的另一个新闻热点事件是亿万富豪爱泼斯坦性侵和性交易未成年少女案，客户涉及全球上千名流，爱泼斯坦本人在最严密看守级别的联邦监狱中离奇“自杀”后，其重要同犯女友案件开审。两者之间，主流媒体似乎更关注怎样让乔·罗根闭嘴，而不是去深挖魔爪伸向未成年少女的、国际政商名流的犯罪集团。
+
+**新闻来源：** [‘Team Doom’ Suddenly Reversing COVID Restrictions Shows It Was Never About Science, Only Your Compliance](https://www.zerohedge.com/political/team-doom-suddenly-reversing-covid-restrictions-shows-it-was-never-about-science-only)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

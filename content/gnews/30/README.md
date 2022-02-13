@@ -2,43 +2,34 @@
 ---
 
 
-## 日本《疫苗后遗症》电影公映
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1998215/)
+## 苹果承认AirTag追踪设备被滥用于“恶意或犯罪目的”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1998362/)
 
-作者：日本方舟农场 – Andy5
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-2月11日，由日本长尾诊所院长——长尾和宏医生作为导演的纪录片《疫苗后遗症》，举行了最后一场在东京的公映。本片在上映的两周前，就将690个席位销售一空。而在大阪，目前所有2月的场次均已爆满。该片导演长尾医生曾收治过53名因疫苗副作用造成后遗症的患者。
+翻译/编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-02-下午10.11.59-11.png)
+根据《RT》新闻2月12日报道，苹果(Apple)公司已经承认，其至少有一款产品，即AirTag追踪设备，被滥用于“恶意或犯罪目的”。该公司表示将改变其政策，以遏制犯罪和侵犯隐私的行为。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/9-11.png)
+苹果公司周五宣布，即将到来的软件更新将更明确地警告用户并说明未经人们许可或在他们不知情的情况下操作追踪器的后果。
 
-影片上映前，长尾医生发表了20分钟的演讲，讲述他为何要制作这部影片以及上映前后的故事。
+虽然AirTags与跟踪或汽车盗窃等涉嫌犯罪有关，但该公司表示，它现在将警告每一个设置该设备的用户，“在世界各地的许多地区，未经同意跟踪人是一种犯罪行为”。
 
-首先他提到这部影片的初衷有两个，一是不满媒体每天大肆宣传鼓动人们去接种这个成分都没有研究清楚的疫苗；二是希望阻止将从3月开始的对5～11岁儿童的接种。
+苹果公司警告说，“根据传票或执法部门的有效要求，”涉嫌犯罪者的个人苹果ID数据可能会与警方共享，苹果公司已经“与各种安全团体和执法机构密切合作”，帮助逮捕和指控犯罪者。
 
-谈及为何要反对现在的所谓疫苗，他举例称，他接收了一位高中生的病患，接种疫苗前是学校名列前茅的优等生，却在接种后出现记忆障碍，成绩滑到谷底，而这样的例子在影片中多达十几位。而厚生劳动省并没有仔细调查疫苗后遗症，甚至连真实死亡人数以及原因都没有进行过调查。
+今年后期，苹果公司将实施一些额外的功能来遏制不必要的跟踪，包括改进对附近未知AirTags的警报。
 
-在日本，各大院线都禁止《疫苗后遗症》这部影片的上映，只有为数不多的小剧场勉强排出日程。并且这部影片已经被Youtube等媒体封杀。
+苹果公司强调，AirTags的设计目的是“帮助人们找到他们的个人物品，而不是追踪人或他人的财产”，并表示谴责对该产品的“任何恶意使用”。
 
-参考链接：
+参考链接：[Apple admits unwanted tracking](https://www.rt.com/news/549169-apple-airtag-tracking-crime/)
 
-- [https://www.gettr.com/post/pu0b8959f9](https://www.gettr.com/post/pu0b8959f9)
-- [20220128日本紀錄片「疫苗副作用」預告片](https://www.gettr.com/post/pr7v6gcdfb)
-- [2022年1月29日(土) 大阪シアターセブンにて緊急上映会決定！](https://vaccine-kohisho-movie.com/)
+*发布：tianzhihuan*
 
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
-
-总编：飞虹
-编辑：飞虹
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

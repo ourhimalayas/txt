@@ -2,186 +2,37 @@
 ---
 
 
-## 为何我要灭共,是谁带来苦痛,多少愤恨在心中,唯有战友能懂
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1998557/)
+## 从北京和东京奥运之差看选手网络发帖的价值！（之五）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1998702/)
 
-G-TV视频链接：[https://gtv.org/video/id=62089dfcb0af02660af30ec6](https://gtv.org/video/id=62089dfcb0af02660af30ec6)
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-187.jpg)
+[（图片源自](https://www.google.com/search?q=%E5%8C%97%E4%BA%AC%E5%A5%A5%E8%BF%90&amp;tbm=isch&amp;ved=2ahUKEwiGlfyin_z1AhUywosBHR5yCbcQ2-cCegQIABAA&amp;oq=%E5%8C%97%E4%BA%AC%E5%A5%A5%E8%BF%90&amp;gs_lcp=CgNpbWcQAzIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQ6BwgjEO8DECdQngZYlyNgyCZoAHAAeACAAeMBiAGTCZIBBTUuMy4xmAEAoAEBqgELZ3dzLXdpei1pbWfAAQE&amp;sclient=img&amp;ei=_74IYsaZArKEr7wPnuSluAs&amp;bih=648&amp;biw=1280&amp;rlz=1C1SQJL_jaJP828JP828#imgrc=e8MEBmDEbL1yvM）)）
 
-**邓丽君女士：**谢谢大家这么热心！在香港我们大家聚在一起，大家努力争取民主。
+今天是２０２２年２月１３日，我在日本。跟往日一样，今天也抽时间关注了冬奥相关信息。【从北京和东京奥运之差看选手网络发帖的价值！】这个题目，一下子抓住了我的眼球。查了下作者是德力基彦先生。联想到自２０２０年初中共病毒（新冠病毒Covid-19）爆发以来，特别是各国政府开始强推中共病毒疫苗以来不作为或反作为的媒体，炒了NNT鱿鱼的德力基彦先生的文章就更吸引我继续读下去，并想翻译给中文圈的人们共享了。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1273.png)
+(图片源自本文链接)
 
-歌词：我的家在山的那一边，那儿有茂密的森林，
+以下是我的摘要翻译的连载（之五）
 
-那儿有无边的草原，
+**更加感受到选手们“真实声音”的价值所在**
 
-春天播种豆麦的种子
+以上连载四篇中所有这些因素都导致了北京奥运会期间日本运动员在社交媒体上缺乏“真实的声音”。
 
-秋天收割等待着新年
+北京奥运会和东京奥运会同样采用了泡沫管理措施，这意味着媒体在运动员村几乎无法报道运动员的情况。
 
-张大叔从不发愁
+这个原因，造成我的印象是，北京奥运会，甚至比东京奥运会更成为一个我们无法看到运动员村里发生的事情或比赛结束后运动员的状况之奥运会。
 
-李大婶永远乐观
+所以, 从这个意义上讲，可以说在北京奥运会期间继续在社交网站上发帖的日本运动员是冒着各种风险来发布他们的照片和信息的。
 
-自从窑洞里钻出來貍鼠，一切都改变了
+全文终。感谢您的阅读！
 
-它嚼食了深埋的枯骨
+信息来源：[北京五輪と東京五輪の違いから考える、日本代表選手のSNS投稿の価値（徳力基彦） – 個人 – Yahoo!ニュース](https://news.yahoo.co.jp/byline/tokurikimotohiko/20220213-00281847)
 
-侵毒來人性毒良善
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
-朋友，不要贪一时欢乐
-
-朋友，不要贪一时苟安
-
-要尽快的回去
-
-把民主的火把点燃
-
-不要忘了我们生长的地方
-
-是在山的那一边
-
-山的那一边
-
-**邓丽君女士：**谢谢！我是中国人，无论到世界何处，在哪儿生活也好，我都是中国人。所以今年中国所发生的事情让我感到很痛心，中国的未来究竟在哪里？我十分担忧，我渴望自由，而且所有人都该享有自由。如果自由受到威胁，那是多么可悲的事。但是，这种悲痛的心情总有一天会好起来的，无论是谁都一定能够互相了解的，深信那一天的到来。
-
-**郭文贵先生：**
-
-我有一帘幽梦 不知与谁能共
-
-多少秘密在其中 欲诉无人能懂
-
-窗外更深露重 今夜落花成冢
-
-春来春去俱无踪 徒留一帘幽梦
-
-谁能解我情衷 谁将柔情深种
-
-若能相知又相逢 共似一帘幽梦
-
-窗外更深露重 今夜落花成冢
-
-春来春去俱无踪 徒留一帘幽梦
-
-我有一帘幽梦 不知与谁能共
-
-多少秘密在其中 欲诉无人能懂
-
-窗外更深露重 今夜落花成冢
-
-春来春去俱无踪 徒留一帘幽梦
-
-谁能解我情衷 谁将柔情深种
-
-若能相知又相逢 共似一帘幽梦
-
-窗外更深露重 今夜落花成冢
-
-春来春去俱无踪 徒留一帘幽梦
-
-兄弟姐妹们，刚才看邓丽君那个时候，没有多少人能控制的住，唐平找到这段，让我们真的看到，就是中国人呐，骨子里是有浪漫的，也是有追求民主、法治、自由的。
-
-邓丽君女士已经作古了，但是这一段我真的从来没有看过，我们选择了《一帘幽梦》。今天特别荣幸的和Q May，由她一人弹着钢琴，还有他的先生Ryan。还有我们的唐平老师，威廉老师，改写了这个《一帘幽梦》。这个《一帘幽梦》是我们几代人一起唱的歌，像《甜蜜蜜》一样。
-
-但是当我听到邓丽君女士最后那一段的时候，真的收不住，每次，真的是收不住，我昨天晚上听两遍的时候，我就整个人都无法冷静啊。我觉得这才是精彩，这才是浪漫，她让我们知道我们活着的价值和意义。
-
-邓丽君没有去过大陆，但她作为一个台湾人，台湾同胞，中国同胞，一直在为我们的同胞，民主、自由奋斗，她从来没放弃过。
-
-愿上天万佛万神保佑，邓丽君女士在天堂的快乐安息。我们会完成她想追求的，消灭共产党，让中国人有法治、自由、民主。
-
-现在我来演唱，我们新中国联邦版的《一帘幽梦》，感谢唐平老师，威廉老师，Rain，Q May。
-
-为何我要灭共，是谁带来苦痛，
-
-多少愤恨在心中，唯有战友能懂，
-
-它毁香港圣城，犯下罪孽深重，
-
-欲占台湾大一统，必是黄粱一梦，
-
-谁愿生死与共，打破千年的牢笼，
-
-中华儿女多英雄，今朝盘古必相逢。
-
-为何我要灭共，是谁带来苦痛，
-
-多少愤恨在心中，唯有战友能懂，
-
-它毁香港圣城，犯下罪孽深重，
-
-欲占台湾大一统，终是黄粱一梦，
-
-谁与七哥灭共，打破千年的牢笼，
-
-中华儿女多英雄，今朝盘古必相逢。
-
-啦啦啦啦啦，啦啦啦啦啦啦啦，
-
-啦啦啦啦啦啦啦，啦啦啦啦啦啦，
-
-谁与七哥灭共，打破千年的牢笼，
-
-感动，这首歌真的，我觉得唐平。
-
-咱忘了设计个情节，得有纸巾啊。行，没事没事，不要不要。再来一段，从为何我要灭共开始。
-
-为何我要灭共，
-
-是……啊……
-
-谢谢Q May，Q May今天的 ,Q May的琴真能,真能弹死人，也能弹活人.就是当时Q May在这钢琴前面,就是第一次弹的时候，我一下子就觉得我能唱好。然后唐平就一直忽悠，反正老鼓励我。
-
-就是先录好的歌我听，然后就买了钢琴，然后她和她先生带着孩子每天就在这块，在这块每天准备着。我觉得这个歌特别是《一帘幽梦》，它伴随着我们几代人。
-
-音乐是没有寿命的，音乐是永恒的，所有的时尚，还有电视剧，电影你都会忘记，包括我们直播，但是音乐是不会被忘记的，这就是它的力量。
-
-这就今天我们看邓丽君的歌的时候，让我们每个人的感动，她激励着我们它，让每个人，你的内心的世界都打开了另外一个激情的门，我们从来没有忘记过，从来也不会放弃。这下一段送给在天堂的邓丽君女士，我们一定会完成你的使命。
-
-为何我要灭共，是谁带来苦痛，
-
-多少愤恨在心中，唯有战友能懂，
-
-它毁香港圣城，犯下罪孽深重，
-
-欲占台湾大一统，必是黄粱一梦，
-
-谁与七哥灭共，打破千年的牢笼，
-
-中华儿女多英雄，今朝盘古必相逢。
-
-啦啦啦啦啦，啦啦啦啦啦啦，
-
-啦啦啦啦啦啦，啦啦啦啦啦啦。
-
-共产党你完蛋了！
-
-谢谢Q May、Ryan，谢谢墨镜、小白、田田。谢谢青藤，谢谢唐平老师、威廉王。爱战友，谢谢！
-
-字幕来源：[2022年1月31日 《春节大直播》 全文字版（一）](https://gnews.org/zh-hans/1943980/)
-
-编辑整理：Jacques；
-
-字幕文件制作：知津；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

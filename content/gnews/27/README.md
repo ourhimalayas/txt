@@ -2,32 +2,25 @@
 ---
 
 
-## 韩国中共病毒单日确诊创新高
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1998285/)
+## 加拿大和美国边境抗议者继续堵住大使桥通道
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1998430/)
 
-作者：纽约香草山教育部 Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据中央社9日报道，韩国单日确诊人数创下4万9567例新高纪录，较前一天大幅增加近1.3万例，居家治疗人数也增至16.8万例。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2000x1242_0995112501059.jpeg)
-韩国中央防疫对策本部统计，截至今天凌晨零时，境内新增4万9567例中共病毒确诊，累计113万1248例，新增案例包括4万9402例社区病例，165例境外迁入病例。其中，首尔、仁川、京畿道等人口密集的首都圈地区社区感染占近6成。
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-184.jpg)
+图片来源： www.sohu.com
 
-单日重症人数也开始回升，截至今天凌晨零时，重症人数为285例，较前一天增加17例。死亡病例增加21例，累计6943例，死亡率为0.61%。
+美联社2月12日报道， 抗议新冠疫苗强制措施和其他限制措施的抗议者们周六在美加边境大使桥的主干道放弃用卡车堵路，但仍然通过其他抗议方式继续在加拿大各城市，包括首都渥太华进行，警方说在终止所谓的非法占道之前他们还在等待更多的警力。
 
-采取居家治疗的轻症及无症状患者持续快速增加，增至16万8020例；目前韩国居家治疗点已扩大至601处，可控人数增至18.3万，尚在可负担范围内。
+在连接美国底特律和加拿大温莎的大使桥两边发生的对歭紧张势态在加拿大警察说服抗议者移除卡车后稍微改善，但抗议者们在附近重新聚集，再次加强，周六仍然堵住了加拿大一边的通道，第六天继续堵住交通和商业。
 
-参考链接：[韓國單日確診近5萬例創新高 較前一天增1.3萬](https://www.cna.com.tw/news/aopl/202202090026.aspx?topic=2012)
+在渥太华，抗议者人群继续在壮大，警察说大约有4000名抗议者，上两个周末，抗议者们在市中心扎营并放着响亮的音乐。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+来自美加边境桥，渥太华和其他地方的抗议者们与加拿大以外的抗议者们遥相呼应，与在法国，新西兰，挪威的抗议相类似，美国国土安全部警告说卡车护航抗议活动很可能在美国发生。
 
-编辑/校正/发稿：呼吸的雾霾（文小呼吸）
+特鲁多称抗议者只是极少数，联邦和省领导人说他们不能命令警察做什么。疫情下加拿大的限制措施比美国更严格，如口罩令，去餐厅和剧院的疫苗护照，以至强制疫苗措施让加拿大卡车司机们忍无可忍站了出来。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+##### 新闻来源： [Blockades on Canada-US border continue, protests swell](https://apnews.com/article/coronavirus-pandemic-health-united-states-justin-trudeau-blockades-f3368c041216343175d255a2ce23eb84)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

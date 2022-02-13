@@ -2,38 +2,41 @@
 ---
 
 
-## 安大略省宣布进入紧急状态，法院对加美边境的卡车封锁发出禁令
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1998291/)
+## 短视频：以色列疫苗最高负责人承认应相信自然免疫
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1998452/)
 
-作者：加拿大温哥华扬帆农场 Spirit
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-根据《国家邮报》2月11 日报道，加拿大安省省长周五宣布该省进入紧急状态，并承诺为警察提供更多资源，对封锁渥太华街道和温莎大使大桥的抗议者实施新的处罚。
+翻译：不要代表我
+校对：精靈藍
+剪辑字幕：向上James 
+编辑：文泓
 
-![卡车司机示威：安大略省宣布进入紧急状态| Radio-Canada.ca](https://images.radio-canada.ca/q_auto,w_700/v1/ici-info/16x9/police-manifestation-toronto-camionneurs.JPG)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/811-2.png)图片来源：视频截屏
 
-紧急状态将包括新的命令，明确说明封锁机场、高速公路、港口和桥梁等关键基础设施是非法的，封锁市政道路、阻止公共交通的救护车也是非法的。罚款将是严厉的，每天的处罚高达10万美元，或高达一年的监禁，并可能暂停商业和个人驾驶执照。
 
-温莎市获得了法院的强制令，以清除封锁大使桥多日的抗议者。该禁令定于周五晚间7点生效，但不清楚何时执行。渥太华市也宣布将寻求法院对那里的抗议者发出禁令，并要求增加更多警察以帮助结束对市中心的抗议。
+首先，我们从中了解到的是，那些疫苗在预防方面比较出色，我想说的是预防严重的疾病，严重的病例方面非常好。但不幸的是，它们对（防止）传染的有效性有所降低。而这是一个教训。
 
-特鲁多周五与美国总统乔-拜登进行了交谈，一位高级政府官员透露特鲁多向拜登保证，抗议活动将很快结束，但他们不能公开具体电话内容。拜登也承认这是一个共同的问题，指出美国可能很快就会发生类似的抗议活动，而且抗议活动得到了美国的财政支持。
+这让你感到很惊讶吗？你是以色列疫苗领域的最高负责人，您是否期望（新冠）疫苗在预防传播方面比以前更好？
 
-特鲁多说政府将在下周有关于放宽一些旅行限制的消息。然而，他强调人们接种疫苗才能旅行、跨越边境或为联邦公共服务部门工作的规定不会很快改变。
+是的，我告诉你为什么，在以色列，我是少数几个真正关注此事的人之一。
 
-紧急状态，法院禁令，增派警力，特鲁多政府的强硬态度都不能解决问题，加拿大人在觉醒，世界民众在觉醒，只有取消疫苗强制规定，才能获得民心，尽快结束这场规模空前的和平抗议。
+你知道，特别是我们在3月、4月所看到的。我的意思是，你知道，去年春天我们在以色列所感受到的。
 
-参考链接：[‘The consequences are becoming more and more severe,’ Freedom convoy warned](https://nationalpost.com/news/politics/ford-declares-state-of-emergency-promises-heavy-fines-for-truckers-in-ottawa-windsor/wcm/9f31360d-4413-4be4-99cb-bef2c26303f9/amp/)
+在致命的（去年）1月份有超过4000人死亡，在此之后，经历了第三次封锁之后，突然间，又逐渐的解封、开放、解封，病例在逐渐减少，医院变得空荡荡。不是在开玩笑，我的同事们，医生们在走廊里跳舞，都是出于喜悦，（都认为）疫情结束了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+因此，我们当时确实相信，疫苗可以预防也防止传播（病毒），而且数据也证实了这一点。所以我们相信，你知道，疫苗可以预防传播，可能在接种后不久，但不会持续很长时间。
 
-编辑/校正/发稿：呼吸的雾霾（文小呼吸）
+因此，是的，最后我们惊讶地发现，不！**疫苗并没有保护我们，也没有产生我们（期待）所谓的消除性免疫力。**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+视频链接：[Israeli vaccine advisor: “We have made mistakes” – The Post (unherd.com)](https://unherd.com/thepost/israeli-vaccine-chief-we-have-made-mistakes/)
+
+发布：文泓
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
