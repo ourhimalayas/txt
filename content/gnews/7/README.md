@@ -2,8 +2,8 @@
 ---
 
 
-## 爆料革命会让世界看到共产党冬奥会的假疫苗灾难的严重后果
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/1999537/)
+## 共产主义就是最大资本主义！
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/1999572/)
 
 作者：东京樱花团小视频组
 

@@ -2,27 +2,42 @@
 ---
 
 
-## 狮城快讯：中共国稀土垄断的优势正在减少
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1999556/)
+## 奥运光芒无法掩盖中共活摘人体器官的罪恶
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1999593/)
 
-**撰稿：verifunny**
+撰稿：银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-3.png)
+2月10日，国外媒体的一篇报道提醒大家，正在举办冬奥会的中共是一个从事人体器官活摘的邪恶犯罪组织。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1297.png)图片来自：https://nypost.com/
+首先，中共会从维族穆斯林和法轮功学员等政治犯那里活体摘取器官。分析师兼调查伊桑·古特曼估计，2000年至2008年，6.5万名法轮功学员和2000至4000名维族人、西藏人的器官被强行摘取。犹他大学医学院和亨茨曼癌症研究所的肿瘤学家吉尔克里斯博士呼吁，停止使用来自中共的人体器官。
 
-据零对冲报道，在微芯片、电子产品和电动机生产中发挥重要作用的珍贵稀土几乎全部来自中共国。 然而近年来，随着新玩家进入市场，一些国家再次恢复生产稀土，至少在一定程度上实现了多样化。
+其次，1984年，中共通过了允许从囚犯身上摘取器官的法律。由于中共独裁统治的特点，任何持有不同政治观点和宗教信仰的人都可能成为囚犯，从而形成庞大的活摘器官供应市场，供体器官等待时间只需三天。
 
-根据美国地质调查局的数据，到 2021 年为止，中共国仍占全球稀土产量的 60%。
+中共独裁政府不可能主动停止其邪恶行为，为了阻止中共继续活摘器官，美国可以采取的措施包括：停止来自中共的器官捐赠，禁止医疗公司使用来自中共的器官，对相关公司进行严格审计，杜绝与中共官员的勾结等。但评论人士指出，仅仅这些抵制措施不能杜绝中共活摘器官的恶行，只有彻底消灭中国共产党这个独裁政党，才能真正消除这种灭绝人性的罪恶勾当。
 
-但由于许多国家对依赖中共国持谨慎态度，特别是在技术产品方面，拥有稀土矿床的国家可能会进一步利用它们。然而，美国仍在将其稀土运往中共国进行加工，但正在寻求利用两党基础设施​​协议的资金增加国内稀土加工设施。
 
-中共国虽然拥有最大的已知稀土矿床，但巴西、越南和俄罗斯在该领域也有很多（大部分）未开发的潜力。
 
-美国和澳大利亚在 2010 年后增加了稀土产量，最近，缅甸和泰国也开始大量开采稀土。正如我们的图表所示，美国过去曾开采和生产用于军事用途的稀土，并随着稀土作为关键技术实施的一部分变得越来越重要而重新进入市场。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-13-213324.jpg)
-**新闻来源：**
+新闻来源：
 
-[https://www.statista.com/chart/18278/global-rare-earth-production/](https://www.statista.com/chart/18278/global-rare-earth-production/)
+[Olympic glamour cannot hide the horrors of Chinese organ harvesting](https://www.lifesitenews.com/blogs/olympic-glamour-cannot-hide-the-horrors-of-chinese-organ-harvesting/)
 
-[https://www.zerohedge.com/geopolitical/chinas-rare-earth-monopoly-diminishing-0](https://www.zerohedge.com/geopolitical/chinas-rare-earth-monopoly-diminishing-0)
+[Olympics veneer can’t hide China’s atrocities](https://www.foxnews.com/opinion/china-olympics-veneer-atrocities-sen-todd-young)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-3.png)
+
+总编：Ivy001
+
+编辑：静言
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

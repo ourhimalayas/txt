@@ -2,39 +2,33 @@
 ---
 
 
-## 徐州铁链女事件在共产党内部造成了人心瓦解
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1998986/)
+## 2022/02/11 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1999024/)
 
-作者：银河系农场 骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
-2月11日郭先生大直播中爆料，徐州铁链女事件在共产党内部引起震动。共产党企图利用包装冬奥会谷爱凌事件，来掩盖徐州锁链女的悲惨现状。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-13-at-9.11.34-PM.png)
-铁链女被拐的当年就有相关报道，她的家人几乎都要把她找到了。但在共产党的集体掩盖之下，报道被压下，信件被拿走，锁链女24年过着猪狗不如的生活。此事历经了共产党的江泽民、胡锦涛、习近平三代领导班子。近日共产党对此事的处理多次改换口风，在社交媒体发达的今日，如此明目张胆地欺骗，引发了网络舆论风暴。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-13-at-9.12.53-PM.png)
-郭先生说徐州此地有神论祭祀盛行，且还与某中央首长具有深厚关系，共产党官员上下级互相掩盖和欺骗，一切为了维护共产党中央的虚假统治。徐州锁链女事件每次被爆出都被掩盖，此事若往深究，就是大政治。
-
-铁链女的叔叔是中共党员，他书写的要求中央彻查此事的信件在共产党内部造成了恐慌。共产党独裁的特点之一就是阶级化，老百姓的孩子被拐卖那是活该，但是就连共产党员的孩子都被拐卖，且过了24年铁链生活，这让党内所有人的内心都开始分崩离析和瓦解。
-
-参考链接：[2022年2月11日 文贵大直播（09:12开始）](https://gtv.org/video/id=62065c00a1fe5e57a426b9e1)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-3.png)
-
-编辑：谐趣园
-总编：Zion文恩
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1. 天津河北区，被封锁小区的居民自嘲缓解压力和情绪的方式是通过遮挡板看封控防范区以外的世界。
+2. 中共政府通报新增19例新冠病毒确诊病例的辽宁绥中县，家家户户被贴上封条，市民不准出门。
+3. 2月9日，河南新乡。男子外出打工临走时妻子假装不在乎 转身走后妻子便悄悄抹眼泪。在中共国为了谋生，有多少人不得不离开家人？
+4. 湖南娄底，春节后母亲外出打工孩子不舍倒地痛哭，拼命拉扯母亲衣服想留住母亲。
+5. 2月9日，四川。年后爸妈外出务工，女孩望着背影久久不愿离开，一声“妈妈”令母亲破防。
+6. 2月9日，北京。早高峰孕妈妈穿“勿推勿挤”的警示马甲挤地铁，网友感叹当代年轻人的压力非常大。
+7. 2月9日，黑龙江鸡西。一男子疑醉酒后从商场三楼跳下, 万幸的是下面都是儿童玩耍的海洋球，游乐设施救下了男子性命。
+8. 某地隔离人员晒出酒店14天隔离费用，如今中共国的隔离消费已被发展成为了一套成熟的产业链。
+9. 宏伟的辽宁朝阳市市政府大楼！如此宏大的建筑工程消耗的都是老百姓的纳税钱，但决对不会允许老百姓过问。
+10. 2月9日，福建长乐。节后机关单位上班时间聚众抽烟喝茶，“过完年比较闲”，被暗访记者曝光。
+11. 2月10日，广东深圳龙华汽车站门口，一饭店老板为无家可归者免费提供餐食。
+12. 广东深圳，拥有大量在外漂泊无固定工作流浪的人，以天为被地为床，到了晚上都集体在路边打地铺。
 
 
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

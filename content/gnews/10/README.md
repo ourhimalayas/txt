@@ -2,84 +2,36 @@
 ---
 
 
-## 长期使用漱口水的副作用以及如何减轻这些副作用？
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1999431/)
+## 美议员：共产主义是癌症 不能让它蔓延
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1999552/)
 
-**撰稿：Eva**
+撰稿：台湾宝岛农场 motdfry(文旦)/银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-3.png)
+2月10日，美国联邦参议员里克·斯科特在美国智库——美国优先政策研究所——主办的论坛上说，中共正按照它自己的计划重塑世界，如果美国人不希望他们珍视的自由被剥夺，必须采取行动。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1296.png)
+在北京冬奥会的开幕式上，一位面带微笑的维吾尔族运动员作为最后一名奥运火炬手，试图展示中共所谓的“民族团结”。斯科特对此认为：“这是一个完美的例子，说明了中共的宣传方式，他们只是想粉饰自己的罪行。”
 
-***第一节：针对COVID-19的预防和早期治疗之药用漱口水的使用参考文献：***
+同一天，共和党众议员克里斯·史密斯在接受采访时也认为，北京冬奥会是希特勒1936年奥运会的翻版，中共政府就相当于当今世界的纳粹分子。已有文件清楚地表明，习近平政府正在对新疆和香港人进行种族大屠杀，包括实施严重侵犯人权的酷刑、暴虐和强制堕胎等罪恶。
 
-**FLCCC****预防配套之漱口药水**
+中共是对世界秩序和美国人民生计的最大威胁，这一观点在华府得到了越来越多的共鸣。
 
-英文原版Gargle mouthwash
+链接：
 
-2 x daily – gargle (do not swallow) antiseptic mouthwash with cetylpyridinium chloride (e.g. ScopeTM, ActTM, CrestTM), 1% povidone/iodine solution or ListerineTM with essential oils.
+[‘They are butchering people’: Republican Congressman scorches China’s ‘Genocide Olympics’](https://www.lifesitenews.com/news/they-are-butchering-people-republican-congressman-scorches-chinas-genocide-olympics/)
 
-中文版本
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-2.png)
 
-每天 2 次 – 使用 cetylpyridinium chloride（例如 ScopeTM、ActTM、CrestTM)、1% povidone/iodine 溶液或ListerineTM 含精油漱口（请勿吞咽）抗菌漱口水
+总编/编辑: Ivy001
 
-**FLCCC****早期治疗配套之漱口药水****/****鼻喷剂**
+校正/发稿：浪迹天涯
 
-英文原版 Anti-septic Anti-VirAls
-
-Antiviral mouthwash: Gargle 3 x daily (do not swallow; must contain chlorhexidine, povidone-iodine, or cetylpyridinium chloride). Iodine nasal spray/drops: Use 1 % povidone-iodine commercial product as per instructions 2–3 x daily. If 1 %-product not available, must first dilute the more widely available 10 %- solution6 and apply 4–5 drops to each nostril every 4 hours. (No more than 5 days in pregnancy.)
-
-中文版本
-
-抗病毒漱口水: 每天漱口 3 次（请勿吞咽；必须含有 chlorhexidine、povidone-iodine 或 cetylpyridinium chloride)。 Iodine 喷鼻剂/滴剂: 依照说明每天使用 1% povidone-iodine 商用产品 2-3 次。 如果 1%-产品无法利用，必须先稀释更广泛使用的 10%- 溶液4並且每 4 小時在每個鼻孔中施用 4-5 滴。（怀孕期间使用不超过5天。)
-
-***第二节 爆料革命战友使用比较多的药用漱口水和鼻喷剂介绍***
-
-（1）1 % povidone-iodine漱口药水以及相应的喉咙喷剂，鼻喷剂 – 线下在Watson可以买到，单价大概10.60新元
-![](https://assets.gnews.org/wp-content/uploads/2022/02/11-11.png)
-（2）Chlorhexidine Mouthwash BP漱口药水 – 线下在 Polyclinic 药房公开买到，单价大概3.75新元
-![](https://assets.gnews.org/wp-content/uploads/2022/02/22-2.png)
-以上两款漱口药水，在线上shopee也可以买到。
-
-***第三节 长期使用的副作用，以及我自己如******何使用***
-
-长期使用药用漱口水，比较常见的副作用发生在牙齿和黏膜，症状主要表现为牙齿变黄、味觉改变。 因为药用漱口水含有抑菌剂，长期使用，可能会导致口腔菌群紊乱，或许引发身体疾病。
-
-为了尽可能地减少长期使用药用漱口水的副作用。我们家采取了下列原则：
-
-1. 凡是在家里没有外出的日子，都不使用。
-2. 外出时候口罩，脸部，手部，衣服，随身携带物品，都污染较少的，都不使用。
-3. 外面用餐时，和周围人一直保持在2米以外的都不使用。
-4. 外面用餐时和周围人距离只保持1米甚至更近的，回家使用漱口水+鼻喷剂。
-5. 去过人口密集的，密闭的，小空间，回家必须使用漱口水+鼻喷剂。
-6. 两种漱口水交替使用，
-7. 两种漱口水都稀释以后使用，如下面2图：
-
-
-
-
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/33.png)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/44.png)
-
-
-
-
-加入等量的冷开水稀释。
-
-（根据香草山医疗卫生部，只要你无法适应，还可以继续稀释。）
-
-图中也看到Betadine重要的一条注意事项：
-
-**6****岁以下的孩子不可以使用。**
-
-（网络图片，和我们买的说明，有所不同。）
-
-也是可以加入等量的冷开水稀释（网络图片）
-
-这是我家尝试的一些做法，在此抛砖引玉，也希望爆料革命战友们多多分享。
-
+**更多资讯，更多关注**
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

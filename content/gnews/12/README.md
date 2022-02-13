@@ -2,8 +2,8 @@
 ---
 
 
-## 共产党上层不打疫苗但推广疫苗
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/1999428/)
+## 谷爱凌事件本质是共产党为了迷惑你的人心、掩盖你的眼睛
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/1999495/)
 
 作者：东京樱花团小视频组
 

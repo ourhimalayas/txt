@@ -2,47 +2,45 @@
 ---
 
 
-## 七哥春晚歌唱现场的钢琴、三套服饰及所有东西铸就传奇
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1998972/)
+## 《疫苗后遗症》导演讲述伊维菌素
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1998987/)
 
-G-TV视频链接：[https://gtv.org/video/id=6208a56fb0af02660af31141](https://gtv.org/video/id=6208a56fb0af02660af31141)
+作者：日本方舟农场 Andy5
 
-**郭文贵先生：**我反正唱下来了这歌，看看我们Q May我们的纯洁的雪，纯洁的雪，不是肮脏的雪、虚假的雪。所以这首歌我们唱得特别好！感谢Ryan、唐平、威廉王！我们在场的现在我们的墨镜、小白、甜甜、BoBo、我们的青藤，还有G-Fashion的Doaa、Kamel、雁平，谢谢每位兄弟姐妹们、小白！
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-我们这首歌唱得真的是我认为这个感觉是最好的之一，我觉得今天我比练的每一次都好。
 
-Q May：对。
 
-今天Q May，你看就这个钢琴，就这么漂亮的钢琴，保时捷的设计，灰色、黑色，然后和我们今天这三套衣服配在一起。然后大家看一看所有的东西今天，包括音乐，整个的音乐，我相信今天Q May的先生Ryan会给大家一个惊喜。所以说这个歌真的是太棒了、太棒了！现在我们进行下一个节目，七哥的歌今天唱完了啊。咱们这个歌肯定不打榜，绝对不打榜，这三首歌都不打榜，因为我们一打榜天下就是绝对第一了啊，那不用打了，是吧？不用打了，肯定第一。不打榜了兄弟姐妹们。谢谢、谢谢！新年快乐！
+当地时间2月11日晚，《疫苗后遗症》在日本东京最后一次公映。公映前，本片导演长尾和宏医生，讲述了伊维菌素与病毒之间的关系。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-13-at-9.37.35-PM.png)
+长尾医生表示，在去年他跟伊维菌素发明者大村智先生的对谈中，大村智先生提到伊维菌素可以治疗流感和中共病毒，甚至对疫苗后遗症都有一定疗效，属于这方面的万能药。只不过对疫苗后遗症的效果没有对中共病毒那么立竿见影。
 
-字幕来源：[2022年1月31日 《春节大直播》 全文字版（一）](https://gnews.org/zh-hans/1943980/)
+但是大村智先生的伊维菌素在日本受到打压，原因是只有研发新药相关企业才有利润。日本法律仅允许个人进口少量伊维菌素，如个人将进口的药分享给他人，就属于违法。
 
-编辑整理：Jacques；
+在场的观众中，有80%以上都已经购买了伊维菌素，这让长尾医生感到备受鼓舞。
 
-字幕文件制作：知津；
+最后长尾医生表示，他在日本质疑疫苗带来副作用同时推广伊维菌素，已经被之前的朋友和同行医生视为异端，并逐渐疏远，但是为了一名医生的良知和尊严，他愿意继续为真实发声。
 
-视频制作及上传：Cindy；
+参考链接：
 
-G-News发布：小满；
+1. [兩年沒去過涉谷……](https://www.gettr.com/post/pu0b8959f9)
+2. [20220128日本紀錄片「疫苗副作用」預告片](https://www.gettr.com/post/pr7v6gcdfb)
+3. [纪录片广告（2/11 sold out，这个状态已经持续了2周）](https://vaccine-kohisho-movie.com/)
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-3.png)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+编辑：飞虹
+总编：文特
+校正/发稿：我不在这里
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

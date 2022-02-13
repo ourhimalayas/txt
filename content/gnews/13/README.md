@@ -2,8 +2,8 @@
 ---
 
 
-## 爆料革命依美国的法律找出共产党与PAG之间深层的勾兑
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/1999417/)
+## 全世界疫苗政治革命已全面燃起
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/1999470/)
 
 作者：东京樱花团小视频组
 

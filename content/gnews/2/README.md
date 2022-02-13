@@ -2,26 +2,18 @@
 ---
 
 
-## 奥运光芒无法掩盖中共活摘人体器官的罪恶
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1999593/)
+## 美众议院提案为因拒绝接种中共疫苗解职的军人复职
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1999617/)
 
 撰稿：银河系农场—骄子
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-3.png)
-2月10日，国外媒体的一篇报道提醒大家，正在举办冬奥会的中共是一个从事人体器官活摘的邪恶犯罪组织。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1297.png)图片来自：https://nypost.com/
-首先，中共会从维族穆斯林和法轮功学员等政治犯那里活体摘取器官。分析师兼调查伊桑·古特曼估计，2000年至2008年，6.5万名法轮功学员和2000至4000名维族人、西藏人的器官被强行摘取。犹他大学医学院和亨茨曼癌症研究所的肿瘤学家吉尔克里斯博士呼吁，停止使用来自中共的人体器官。
+2月10日，美国媒体消息，本周，美国共和党人公布了一项立法提案，旨在确保拒绝接种中共病毒疫苗的美国军人能够继续服役。该项立法涉及：不得使用联邦资金要求武装部队成员接种中共病毒疫苗；有关秘书不得以武装部队成员拒绝接种中共病毒疫苗为由，对该成员采取任何不利行动。该法案还要求之前因拒绝接种疫苗被开除的士兵被恢复之前的军事级别，以及损失的工资与删除的服役记录。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1298.png)图片来自：https://www.axios.com/
+据悉，由于拜登政府的强制新冠疫苗令，数百名宝贵的美国军人被迫离开军队，带走了他们多年的专业技能、无私奉献的职业生涯和终生的军事梦想，造成不可接受的结果。同时，接种新冠疫苗后的美国军人，出现各类严重并发症的数据比率严重暴增。
 
-其次，1984年，中共通过了允许从囚犯身上摘取器官的法律。由于中共独裁统治的特点，任何持有不同政治观点和宗教信仰的人都可能成为囚犯，从而形成庞大的活摘器官供应市场，供体器官等待时间只需三天。
+媒体称，在世界如此紧张的局势下，此提案如立法，对中共疫苗带给美国军队的负面影响，将会起到一定的缓和作用。
 
-中共独裁政府不可能主动停止其邪恶行为，为了阻止中共继续活摘器官，美国可以采取的措施包括：停止来自中共的器官捐赠，禁止医疗公司使用来自中共的器官，对相关公司进行严格审计，杜绝与中共官员的勾结等。但评论人士指出，仅仅这些抵制措施不能杜绝中共活摘器官的恶行，只有彻底消灭中国共产党这个独裁政党，才能真正消除这种灭绝人性的罪恶勾当。
-
-
-
-新闻来源：
-
-[Olympic glamour cannot hide the horrors of Chinese organ harvesting](https://www.lifesitenews.com/blogs/olympic-glamour-cannot-hide-the-horrors-of-chinese-organ-harvesting/)
-
-[Olympics veneer can’t hide China’s atrocities](https://www.foxnews.com/opinion/china-olympics-veneer-atrocities-sen-todd-young)
+新闻来源：[House conservatives introduce bill to protect, reinstate soldiers who refuse COVID shots](https://www.lifesitenews.com/news/house-conservatives-introduce-bill-to-protect-reinstate-soldiers-who-refuse-covid-shots/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-3.png)
 
