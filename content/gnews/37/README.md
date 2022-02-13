@@ -2,24 +2,29 @@
 ---
 
 
-## 有声|爆料革命将用法律让世界知道真相
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1998090/)
+## 2022年1月国际社会对中共的打击制裁汇总与分析
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1998214/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-2月10日，郭文贵先生在盖特表示，中共利用法律在全世界操纵和改变游戏规则。在冬奥会用检测的名义隔离运动员，导致其无法参赛。中共用同样的流氓手段给郭先生罗织罪名，而爆料革命也将合理的使用法律，让世界知道PAG和UBS的真相。
+作者：香草山教育部 – 无名先生
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+据不完全统计，在2022年1月1日-1月31日的一个月时间，国际社会对中共的打击制裁次数有7次，其中5次由美国发起、另2次由欧洲发起。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/10-9.jpg)
+一月份国际社会对中共的打击制裁的形式有三种：第一、议会提案和动议4次，包括《2022年新冠病毒法》、《2022年恢复基本能源和稀土在岸安全储备法案》、《2022年美国竞争法》的提案和指出中共在新疆犯下“反人类罪和种族灭绝罪”的动议；第二、议会决议1次：《关于香港侵犯基本自由》的决议案；第三、美国政府对中共企业实施的具体制裁2次，包括对航天科技集团第一研究院、中国航天科工集团第四研究院、保利科技股份有限公司和中国联通的制裁。
 
-郭先生说，冬奥会就是共产党的末日会，其本质就抢劫和“依法”耍流氓。共产党把芬兰有可能获得冠军，或者拿奖项的运动员，以检测的名义、以奥利匹克法律规则为名，把他们黑掉。就像中共大连法院，给郭先生栽赃一个所谓的“强迫交易罪”，虽然郭先生给中共纳税几百亿，但是中共却还要倒罚郭先生几百亿，这是历史上绝无仅有的。有墙内战友告诉郭先生，他们农行最好的一笔贷款，就是当年盘古酒店的贷款，不但提前还款，还为农行赢得几十亿的利息。PAG太平联盟，不找债主找担保人，然后编造假文件，将客户黑掉。
+从一月份国际社会对中共的打击制裁上可以看到三点：一是对中共新冠病毒真相溯源的诉求已经由民众和媒体层面上升到了议会层面；二是中共在新疆犯下“反人类罪和种族灭绝罪”已经成为国际共识并不断发酵；三是中共对人类安全的威胁已经受到美国的高度重视，美国正在以国家安全为由对中共进行多方位打击制裁。
 
-郭先生表示，共产党走遍全世界，就是用所谓的“法律”，以及改变和操纵游戏规则的非法手段，来把坏事做尽。许多去参加冬奥会的外国运动员被中共的邪恶所震惊和伤害，但也是咎由自取。就像美国司法部的希金.博坦、艾略特.布罗迪、史蒂文.韦恩等人，都是拿了中共的大钱，却在干着伤天害理的事情，但是这个世界终究还有有真理的，特别是美国，真相一定会出来的。
+参考链接：
 
-郭先生表示，太平联盟准备要在香港上市，还有UBS把郭先生家族的股票给强迫出售之后，然后就变成了第一家在中共国获得经营牌照的外国银行，这都说明PAG和UBS的内幕很深，但一切都是刚刚开始。中共既然能用法律黑掉敌人，反之我们爆料革命也要合法的运用法律，让世界知道真相。
+- [https://www.whitehouse.xn--gov-e36s/](https://www.whitehouse.xn--gov-e36s/)
+- [https://www.commerce.xn--gov-e36s/](https://www.commerce.xn--gov-e36s/)
+- [https://www.voachinese.com/](https://www.voachinese.com/)
 
-文字版原文：[爆料革命将用法律让世界知道真相](https://gnews.org/zh-hans/1994002/)
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
+
+总编：飞虹
+编辑：飞虹
+校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -27,7 +32,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
