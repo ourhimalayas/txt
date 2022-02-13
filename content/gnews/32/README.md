@@ -2,45 +2,37 @@
 ---
 
 
-## 【图说】喜联储秒杀中共银行
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/1999093/)
+## 谷爱凌事件对亚裔的伤害难以弥补
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1999430/)
 
-新中国联邦的喜联储全球首个真正意义上的加密货币生态系统，随时，随地，随心，无缝交易！超越国家主权，解放生产力与人际关系，解放精神，最重要的是在互联网的信息时代保证绝对的财富安全！
+撰稿: 纽约香草山-宁文静
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-3.png)
+在2月11日的大直播中，郭先生警告，风头正劲的谷爱凌母女的所作所为，将给亚裔特别是海外华人的生存环境，带来难以预测，以致无法弥补的伤害。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-191.jpg)
+郭先生说，谷爱凌母女凭借小聪明，破坏规则，欺骗法律，一边讨好、奉承中共，一边背叛、欺骗美国。母女俩把美国玩弄于鼓掌之间，是精致的利己主义者与投机主义者。她们让全世界看清了，共产党用洗脑手段统治下的中国人没有信仰，不懂感恩，带着虚伪、自私、卑鄙的民族劣根性。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1295.png)图片来自：https://radiichina.com/![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1298.png)
+郭先生痛心地指出，美国抵制北京冬奥会，是因为中共对新疆的大屠杀，犯下反人类罪行。而谷爱凌母女一系列丑陋的言行，犹如火上浇油，不仅引起了日韩跟华人的对立，更让整个西方世界为之愤怒。一股反亚裔反华的情绪正在暗流涌动。谷爱凌母女现在被捧得有多高，以后就会摔得有多惨。但是她们给中国人，尤其是海外华人拉来的仇恨，恐怕永远无法赎清了。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/2-59.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/4-22.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/6-20.jpg)
+郭先生告诫海外华人，一定要意识到这股危险之势。同时，只有彻底消灭中共，重塑华人遵纪守法的正面形象，才是中国人民唯一的救赎之路。
 
+新闻链接：[2022年2月11日 文贵大直播](https://gtv.org/video/id=62065c00a1fe5e57a426b9e1)
 
-**下面来看看中共银行的无耻操作：**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-3.png)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/1-190.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/2-58.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/3-32.jpg)
+总编: Ivy001
 
+编辑: 静言
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/4-20.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/5-19.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/6-19.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/7-17.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/8-14.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/9-9.jpg)
+校正/发稿：浪迹天涯
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-钱放在中共银行，辛辛苦苦一辈子，不光存款会时不时的不翼而飞，动不动的还欠银行的钱！老少爷们大娘大妈们，咱们在中共血腥的压迫下小心翼翼的过日子，好不容易攒点钱，还被中共的无赖银行给整没了，不光钱不翼而飞还没处说理，这日子过得苦不苦冤不冤！
-
-现在新中国联邦爆料革命给了全世界一个财富安全的保障，还热心的帮助咱们生活在中共国水深火热的劳苦大众发财，这么好的千载难逢的机会还赶快的抓紧行动！加入喜马拉雅联盟农场，各农场自由随心选，有热心的战友帮助大家注册喜联储，一个自由无国界的世界正在向你招手！还在犹豫什么赶快来吧！
-
-喜马拉雅联盟多伦多蓝莲花农场，是一个新成立侧重专注于Hpay推广的农场，打破传统银行的枷锁，自由无国界的贸易模式，小伙伴们赶快来！
-
-撰稿/发布：一叶知秋
-
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv2.png)
 
  
 

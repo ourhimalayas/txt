@@ -2,31 +2,16 @@
 ---
 
 
-## 樱花灭共诗——元夕送王语还乡詹州
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1999400/)
+## 自由卡车 反抗暴政
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/1999557/)
 
-撰稿：东京樱花团/小小杜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-52.jpg)
-适逢新岁日，
+文贵大直播20220213
 
-归意望云霄。
+撰稿：莲心不染（扬帆）MyWay（扬帆）大废墙（扬帆）
 
-盛世人真老，
-
-青春路未遥。
-
-早辞江北雪，
-
-夕看海南潮。
-
-送罢归来后，
-
-凭谁诉寂寥。
-
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
+美工：凌点夜话（香草山）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide2-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide3-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide4-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide5-4.png)
+*发布：Theodosia*
 
  
 

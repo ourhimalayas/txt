@@ -2,36 +2,26 @@
 ---
 
 
-## 从北京和东京奥运之差看选手网络发帖的价值！（之三）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1998608/)
+## 莫德纳CEO在抛售了数千万美元的股票后删除其推特帐户
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1998614/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-185.jpg)
-[（图片源）](https://www.google.com/search?q=%E5%8C%97%E4%BA%AC%E5%A5%A5%E8%BF%90&amp;tbm=isch&amp;ved=2ahUKEwiGlfyin_z1AhUywosBHR5yCbcQ2-cCegQIABAA&amp;oq=%E5%8C%97%E4%BA%AC%E5%A5%A5%E8%BF%90&amp;gs_lcp=CgNpbWcQAzIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQ6BwgjEO8DECdQngZYlyNgyCZoAHAAeACAAeMBiAGTCZIBBTUuMy4xmAEAoAEBqgELZ3dzLXdpei1pbWfAAQE&amp;sclient=img&amp;ei=_74IYsaZArKEr7wPnuSluAs&amp;bih=648&amp;biw=1280&amp;rlz=1C1SQJL_jaJP828JP828#imgrc=e8MEBmDEbL1yvM）)
-今天是２０２２年２月１３日，我在日本。跟往日一样，今天也抽时间关注了冬奥相关信息。【从北京和东京奥运之差看选手网络发帖的价值！】这个题目，一下子抓住了我的眼球。查了下作者是德力基彦先生。联想到自２０２０年初中共病毒（新冠病毒Covid-19）爆发以来，特别是各国政府开始强推中共病毒疫苗以来不作为或反作为的媒体，炒了NNT鱿鱼的德力基彦先生的文章就更吸引我继续读下去，并想翻译给中文圈的人们共享了。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1269.png)
-(图片源自[北京五輪“検閲地獄”に強靱メンタル選手もお手上げ スキー川村あんりは一部SNS投稿を削除（日刊ゲンダイDIGITAL） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/075436a32849343e1e05c688ea29055fb870a872))
+#### 翻译/撰稿：zzballack
 
-以下是我的摘要翻译的连载（之三）
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-2-1.jpg)图片来源：福布斯
+据《The Covid World》2月13日报道，莫德纳（Moderna）公司的首席执行官（CEO）斯特凡·班塞尔（Stéphane Bancel）本周在卖出数千万美元的莫德纳股票后删除了其推特帐户。据Gurufocus网站显示，班塞尔在2月10日出售了19000股莫德纳股票，获利2000多万美元。目前仍不清楚班塞尔为何删除其推特账户，莫德纳CEO的这项奇怪举动让投资者感到担心和困惑，该公司也尚未发表官方声明对此做出解释。
 
-**因中共国审查制度而被取消资格的风险**
+此事发生后不久，前贝莱德 (BlackRock)对冲基金经理爱德华·唐德（Edward Dowd）2月10日在推特上回复莫德纳的官方账户说：“你们的CEO昨天关闭了他的推特账户，我猜是在内部律师的建议下完成的。毫无疑问！”
 
-另一个主要因素是中国政府的审查制度。
+唐德上个月在接受《班农战斗室》采访时指控辉瑞和莫德纳在其新冠疫苗的临床试验中存在欺诈行为。如果这些指控被证明属实，这将意味着辉瑞和莫德纳都要对其疫苗造成的所有伤害和死亡负责。唐德说：“我相信，由于当时的制度性要求，以及他们试图批准这些使用未经验证技术的产品的速度，辉瑞和莫德纳疫苗的临床试验数据存在欺诈，以便强行通过审批。”
 
-据报道，在北京奥运会开幕前，北京奥组委曾在网上通报中明确警告：任何违背奥运精神的行为，特别是违反中共国法律法规的行为或言论，都将受到相应的具体处罚。其中似乎还提到了，如有冒犯中共国的言论，可能被取消奥运会的参赛资格。
+辉瑞、莫德纳等大药厂在这次新冠疫情中仓促推出其不成熟的疫苗产品，在大发横财的同时对世界造成了深重灾难。做贼心虚的他们知道，已看清其真实面目的全球民众不会放过对他们的追责，等待他们的将是纽伦堡2.0大审判。
 
-在这种情况下，选手们自然会采取不冒风险，不给自己带来不必要的麻烦之行动以保护自己。
+新闻来源：
 
-可毕竟，运动员们当然的不可能熟悉所谓违反中共国法律法规的言论之标准，所以他们本不应该因为社交网络帖子而存在被取消参赛资格的风险。所以，这也是我印象中北京奥运会期间运动员在社交网站上发的很多帖子都比较短的原因之一。
+[Moderna CEO Stéphane Bancel Deletes Twitter Account, Sells Tens Of Millions Of Dollars In Stock](https://thecovidworld.com/moderna-ceo-stephane-bancel-deletes-twitter-account-sells-tens-of-millions-of-dollars-in-stock/)
 
-未完待续
-
-信息来源：[北京五輪と東京五輪の違いから考える、日本代表選手のSNS投稿の価値（徳力基彦） – 個人 – Yahoo!ニュース](https://news.yahoo.co.jp/byline/tokurikimotohiko/20220213-00281847)
-
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
+[Bancel Stephane](https://www.gurufocus.com/insider/Bancel+Stephane/name)
 
  
 

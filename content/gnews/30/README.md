@@ -2,13 +2,16 @@
 ---
 
 
-## 日本东京樱花团 中文新闻播报第七期
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/1999313/)
+## 谷爱凌事件本质是共产党为了迷惑你的人心、掩盖你的眼睛
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/1999495/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/BAO2.jpg)
-**播报：东京樱花团-和光同尘/爆米花/NAN的曙光**
+作者：东京樱花团小视频组
 
-**发布： 东京樱花团-eiei**
+校对：东京樱花团小视频组
+
+编辑发布：东京樱花团小视频组
+
+* * *
 ![喜马拉雅东京樱花团](https://assets.gnews.org/wp-content/uploads/2022/02/樱花-3-2-1.jpg)喜马拉雅东京樱花团
  
 

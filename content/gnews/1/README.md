@@ -2,40 +2,28 @@
 ---
 
 
-## 中日财经爆┃Hpay的正式上线开启了人类社会新篇章
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1999765/)
+## 有声|郭先生解读中美关系
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1999864/)
 
-撰稿：东京樱花团/深藏不露
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3-36.jpg)
-美国东部时间2022年1月31日，中国农历寅虎年大年初一，爆料革命再次迎来一个历史性的时刻，在克服了常人难以想象的困难和阻碍之后，Himalaya Pay（Hpay）正式在谷歌和苹果的APP商店上线！
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在2月6日的大直播中，郭文贵先生提到了上个世纪在中国活跃的一批美国商人的感触，即中美两个民族完全可以优缺点互补，一旦双方能够友好合作，世界势必得到永远和平与繁荣。
 
-HPAY有四个重要功能：
+郭先生指出，回顾历史，美国在清朝末年帮助中国建立了清华大学和协和医院等公共基础设施，还向落后于世界的中国传授西方文明。彼时，美中双方开启了友好往来。 即使是当下，美国的餐饮品牌和高科技依然是中共国社会推崇的主流文化，其产品和其普世价值也一直为中国民间所真切向往。
 
-1、无条件的交易和支付
+文字版原文：[郭先生解读中美关系](https://gnews.org/zh-hans/1994833/)
 
-通过Hpay进行的交易和支付没有任何附加条件。附加条件都是交易成本的一部分，因此也是生产成本的一部分，无条件意味着成本的降低和利润的增加，而且这还是完全合法的！
+音频处理/发稿：Daxia
 
-2、所有全世界的交易费用是零
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-全世界的交易都是要付交易费的，通过Hpay进行的支付和交易没有任何手续费。零费用意味着成本的降低和利润的增加。
-
-3.没有任何限制交易的规则
-
-Hpay没有任何规则限制交易，而且零延迟即时到帐。时间就是金钱，没有任何限制规则，意味着没有繁杂的审核，可以直接降低资金流入方的时间成本。
-
-4没有任何额度限制
-
-现在，到银行要划转自己的1万美金以上现金会受到银行的严格管制，如果你要转10万、20万，那将更加手续繁琐，时间成本高昂！Hpay没有任何额度的限制，绝对体现了我的财富我说了算。
-
-存贷款利差各种手续费是传统银行获利的一个重要手段，因此Hpay点到点、无中心化的特征避免了中间商赚取差价。无中心化和完全加密不仅消除了国界和时空的限制，而且导致政府无法监管Hpay的支付和交易，从而也无法征税。因此，每增加一个使用Hpay的商户、每增加一笔Hpay的支付，都是对共产党、邪恶政府和世界黑暗势力的一次打击！
-
-Hpay的正式上线必将对传统金融业产生巨大的颠覆，代表着人类向往自由的天性和不可逆转的发展趋势，随着Hpay的迅速发展壮大传统金融将会消失，人类社会也将因此摆脱枷锁、迎来新一轮的生产力大解放！
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

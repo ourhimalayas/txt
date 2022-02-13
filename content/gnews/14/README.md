@@ -2,8 +2,8 @@
 ---
 
 
-## 共产主义就是最大资本主义！
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/1999572/)
+## 20220211郭文贵大直播：谷燕 谷爱凌事件敲响海外华人的警钟
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/1999678/)
 
 作者：东京樱花团小视频组
 

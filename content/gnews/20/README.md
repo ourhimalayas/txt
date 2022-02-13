@@ -2,12 +2,10 @@
 ---
 
 
-## 全世界疫苗政治革命已全面燃起
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/1999470/)
+## 20220211大直播：中共对世界的威胁与非洲政变
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/1999615/)
 
 作者：东京樱花团小视频组
-
-校对：东京樱花团小视频组
 
 编辑发布：东京樱花团小视频组
 

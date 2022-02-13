@@ -2,40 +2,34 @@
 ---
 
 
-## 从北京和东京奥运之差看选手网络发帖的价值！（之四）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1998675/)
+## 灭共是人类有史以来最艰巨的事业
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1998985/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-186.jpg)
-[（图片源自](https://www.google.com/search?q=%E5%8C%97%E4%BA%AC%E5%A5%A5%E8%BF%90&amp;tbm=isch&amp;ved=2ahUKEwiGlfyin_z1AhUywosBHR5yCbcQ2-cCegQIABAA&amp;oq=%E5%8C%97%E4%BA%AC%E5%A5%A5%E8%BF%90&amp;gs_lcp=CgNpbWcQAzIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQ6BwgjEO8DECdQngZYlyNgyCZoAHAAeACAAeMBiAGTCZIBBTUuMy4xmAEAoAEBqgELZ3dzLXdpei1pbWfAAQE&amp;sclient=img&amp;ei=_74IYsaZArKEr7wPnuSluAs&amp;bih=648&amp;biw=1280&amp;rlz=1C1SQJL_jaJP828JP828#imgrc=e8MEBmDEbL1yvM）)）
-
-今天是２０２２年２月１３日，我在日本。跟往日一样，今天也抽时间关注了冬奥相关信息。【从北京和东京奥运之差看选手网络发帖的价值！】这个题目，一下子抓住了我的眼球。查了下作者是德力基彦先生。联想到自２０２０年初中共病毒（新冠病毒Covid-19）爆发以来，特别是各国政府开始强推中共病毒疫苗以来不作为或反作为的媒体，炒了NNT鱿鱼的德力基彦先生的文章就更吸引我继续读下去，并想翻译给中文圈的人们共享了。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1270.png)
-[(图片源自](https://cn.nikkei.com/politicsaeconomy/politicsasociety/47507-2022-01-30-13-20-04.html%29))：
-
-以下是我的摘要翻译的连载（之四）
-
-**被诽谤中伤的风险**
-
-上述两个风险因素是在中共国举行的北京奥运会所特有的，当然还有一直都存在的，对运动员的诽谤问题，这在东京奥运会上也成为了一个问题。以至于在北京奥运会之前，日本体育局局长室伏希先生呼吁人们不要在社交媒体上诽谤运动员。
-
-在北京奥运期间，有一个诽谤中伤的例子，是针对高梨沙罗等女运动员的，已过时的批评，如 ：”如果你有时间化妆，倒是应该去练习”。
-
-参考：对高梨沙罗的化妆的批评有道理吗？ 相反，大错特错的应该是那句”如果你有时间化妆，倒是应该去练习”。
-
-当然，即使球员不使用社交网站，这种对球员的诽谤也可能发生在匿名论坛和新闻网站的评论区。然而，球员自己的社交媒体帖子可能会激发这种评论，或者招致直接的诽谤中伤。
-
-自然，在北京奥运会期间，选手们会接受东京奥运会期间的诽谤中伤的教训，避免在社交网站上发帖招致诽谤中伤的选手肯定不止一两个人。
-
-未完待续
-
-信息来源：[北京五輪と東京五輪の違いから考える、日本代表選手のSNS投稿の価値（徳力基彦） – 個人 – Yahoo!ニュース](https://news.yahoo.co.jp/byline/tokurikimotohiko/20220213-00281847)
-
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+作者：纽约香草山信息部 6zero4
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
+郭文贵先生在2月9日大直播中表示：新中国联邦正在充分利用北京冬奥会这个契机灭共，现场战友随时准备哼唱《灭共的雪》，周围人群一旦有感觉，将处处有人回应。以“一切都是刚刚开始” ，“甜蜜蜜”等暗号回应。灭共的力量在冬奥现场无处不在，爆料革命已深入人心，星星之火正在燎原。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-13-at-9.35.01-PM.png)
+纵观人类历史，爆料革命和新中国联邦的广大战友所参与的这场灭共事业，是一场前无古人的运动：在人类即将屈服于中共的淫威之际，在我们手无寸铁、还要尽量确保不发生流血冲突的情况下消灭共产党。其难度之大可见一斑。
+
+文贵先生进一步评价道：战友们现在所干的灭共大业，无论从人类世界，整个地球，甚至物理宇宙看来，几乎是不可能的事情。新中国联邦人无需对任何人保证，也不必向任何人做出承诺。但拜万佛万神所赐，我们新中国联邦与世界正义力量联合，正在接近完成消灭共产党的大业。
+
+参考链接：[2022年2月9日 文贵大直播](https://gtv.org/video/id=6203b7b13621aa7415d80e9e)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-3.png)
+
+编辑：静言
+总编：Zion文恩
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

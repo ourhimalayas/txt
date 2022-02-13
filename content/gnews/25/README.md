@@ -2,8 +2,8 @@
 ---
 
 
-## 爆料革命依美国的法律找出共产党与PAG之间深层的勾兑
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/1999417/)
+## 共产主义就是最大资本主义！
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/1999572/)
 
 作者：东京樱花团小视频组
 
