@@ -2,59 +2,32 @@
 ---
 
 
-## 除了你自己没有任何人能帮你成为最后留下来的5%成员
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1998615/)
+## 从北京和东京奥运之差看选手网络发帖的价值！（之二）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1998686/)
 
-G-TV视频链接：[https://gtv.org/video/id=62089e55b0af02660af30ee0](https://gtv.org/video/id=62089e55b0af02660af30ee0)
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1279.png)[图片来源](https://www.google.com/search?q=%E5%8C%97%E4%BA%AC%E5%A5%A5%E8%BF%90&amp;tbm=isch&amp;ved=2ahUKEwiGlfyin_z1AhUywosBHR5yCbcQ2-cCegQIABAA&amp;oq=%E5%8C%97%E4%BA%AC%E5%A5%A5%E8%BF%90&amp;gs_lcp=CgNpbWcQAzIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQ6BwgjEO8DECdQngZYlyNgyCZoAHAAeACAAeMBiAGTCZIBBTUuMy4xmAEAoAEBqgELZ3dzLXdpei1pbWfAAQE&amp;sclient=img&amp;ei=_74IYsaZArKEr7wPnuSluAs&amp;bih=648&amp;biw=1280&amp;rlz=1C1SQJL_jaJP828JP828#imgrc=e8MEBmDEbL1yvM)
+今天是２０２２年２月１３日，我在日本。跟往日一样，今天也抽时间关注了冬奥相关信息。【从北京和东京奥运之差看选手网络发帖的价值！】这个题目，一下子抓住了我的眼球。查了下作者是德力基彦先生。联想到自２０２０年初中共病毒（新冠病毒Covid-19）爆发以来，特别是各国政府开始强推中共病毒疫苗以来不作为或反作为的媒体，炒了NNT鱿鱼的德力基彦先生的文章就更吸引我继续读下去，并想翻译给中文圈的人们共享了。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1282.png)[图片来源](https://www3.nhk.or.jp/sports/news/k10013475281000/)
+以下是我的摘要翻译的连载（之二）
 
-**郭文贵先生：**我觉得没有任何人能让你成为5%，任何人都做不到，只有自己，谁都帮不了。这是我们今年春节最重要的时候，大家能看到我们一切都是真的，共产党一切都是假的，让你成为这个5%，假的肯定帮不了你成为5%是吧？这是最根本的，就不要假。
+**在中共国使用智能手机的信息泄露风险**
 
-就是这些密，这些招其中的，还有个要有勇气，要有担当，还有各种诱惑，太可怕了。就这几天我们在准备节目的时候，就和唐平、威廉王，你能感到想灭共的人，就这样，像Q May、像Ryan,带着她的先生孩子。
+第一个风险是已成为媒体热议话题的，在中共国使用智能手机本身的风险。
 
-我们有很多分歧，可以说我们甚至有很个性上的不同，但是我觉得一个根本的问题，我们有一个共同的目标就是灭共，当你认同这个共同目标的时候，什么都可以忽视，这就是最根本的问题。
+特别是有人指出，今年的比赛需要下载的健康管理应用程序存在安全问题，美国和加拿大甚至已经指示他们的运动员不要携带自己的手机去参加北京奥运会。
 
-如果你认为这个目标不是最重要的，你有另外一个目标：钱、爱情、所谓的尊严，什么良知。你就一定会被干掉的是吧？没有任何人可以帮你成为5%，只有你自己。所以说我觉得这个歌实在太好了，就是：
+在日本，奥运代表队没有得到指示，但残奥代表队却突然被要求使用一部特殊的专用手机，因此毫无疑问，这个问题在日本运动员中引起了极大的关注。
 
-为何我要灭共，是谁带来苦痛，
+在这种情况下，许多球员失去了使用自己的智能手机在社交网站上发帖的自由，这也是国内球员在社交网站上发帖数量减少的原因之一。
 
-多少愤恨在心中，唯有战友能懂，
+未完待续
 
-它毁香港圣城，犯下罪孽深重，
+信息来源：[北京五輪と東京五輪の違いから考える、日本代表選手のSNS投稿の価値（徳力基彦） – 個人 – Yahoo!ニュース](https://news.yahoo.co.jp/byline/tokurikimotohiko/20220213-00281847)
 
-欲占台湾大一统，终是黄粱一梦，
-
-谁与七哥与共，打破千年的牢笼……
-
-哎呀，我能唱下去，唱下去就激动的受不了。七哥的嗓子，从过去一个字、一个字的唱歌，到后来半句到一句的唱歌，到现在我们新创七哥张嘴就来。只有一个秘诀，就是我们想唱出来，我用我自己证明给你们看，是吧？长岛最感触的就两句话，因为他跟我心在一起。谢谢。
-
-字幕来源：[2022年1月31日 《春节大直播》 全文字版（一）](https://gnews.org/zh-hans/1943980/)
-
-编辑整理：Jacques；
-
-字幕文件制作：知津；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

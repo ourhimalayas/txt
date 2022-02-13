@@ -2,28 +2,34 @@
 ---
 
 
-## 美议员谈《制止中共法案》：我们触动了某些人的神经
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1998540/)
+## 瑞银企图躲避中国亿万富翁5亿美元诉讼的尝试落败
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1998649/)
 
-#### 翻译/撰稿：zzballack
+评论：***郭文贵先生与瑞银的诉讼是一个历史性事件，把与中共的战斗推到了新的高度。***
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-2-9.jpg)图片来源：推特
-据《布雷特巴特新闻网》（Breitbart News）2月12日报道，美国共和党众议员丽莎·麦克莱恩 (Lisa McClain)2月12日在接受播客《布雷特巴特新闻星期六》（Breitbart News Saturday）的主持人马修·博伊尔（Matthew Boyle）采访时谈论了她新近提出的《制止中共法案》（Stop CCP Act），该法案将对中共官员及其亲属实施制裁。
+据《彭博社》 2022年2月9日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3709.png)图片来源：彭博社
+瑞银集团因2015年巨额保证金追加清仓疏忽而被中国民主斗士郭文贵先生提起5亿美元诉讼。瑞银躲避失据。
 
-麦克莱恩说：“《制止中共法案》将限制中共党员及其家庭成员的出行，并对其实施金融制裁。这个法案发出了一个强烈信息，即中共的行为不会被容忍。由于拜登政府没有对中共采取强硬措施，国会需要这样做。软弱会滋生侵略，看看现今世界，这种情况正在发生。”
+一名伦敦法官裁定，英国确实有权审理与前美国总统唐纳德-川普顾问史蒂夫-班农关系密切的富商郭文贵先生提起的诉讼。这意味着该诉讼可以继续审理。 对于试图以管辖权理由驳回部分案件的瑞银来说，这是一个沉重打击。
 
-在采访中，博伊尔特别提到了如果该法案正式成为法律，那么习近平的女儿将不被允许上哈佛大学。另外中共喉舌胡锡进叫嚣威胁说，如果该法案被正式通过，将对美国政府成员实施报复性制裁。麦克莱恩对此表示欢迎，她告诉博伊尔：“看起来我们触动了某些人的神经。尽管制裁吧，反正我短期内没有去中共国旅行的计划，我也不会把我的孩子送到中共的孔子学院去接受教育。对于制裁，我没有任何担心。”
+瑞银和郭文贵先生的律师没有立即回应置评。
 
-麦克莱恩说国会需要停止对中共的各种侵犯人权行为视而不见，无论是香港、维吾尔穆斯林，还是台湾。“我们必须停止这样做。因为我还是那句话，软弱会滋生侵略。”
+郭文贵先生称，因瑞银疏忽，导致他需要举债维持持有的海通证券公司股票的交易。在香港挂牌市场海通股票价格攀升之际，因瑞银的强制清仓行为，该交易几乎全部损失。
 
-采访中，两人讨论了让《制止中共法案》与《年度国防授权法案》（National Defense Authorization Act）捆绑在一起的可能性。麦克莱恩说，这是一种可能，但由于民主党控制着众议院、参议院和白宫，在我们夺回众议院之前，它很可能不会通过。
+一名伦敦法官周三表示，她可以监督此案，因为伦敦是“伤害事件”的发生地，而瑞银的伦敦部门是“充分且显着地参与了构成索赔行动的几个要素”。
 
-新闻来源：
+文章来源:[**https://www.bloomberg.com/news/articles/2022-02-11/china-s-edutech-crackdown-expands-to-high-school-tutoring**](https://www.bloomberg.com/news/articles/2022-02-11/china-s-edutech-crackdown-expands-to-high-school-tutoring)
 
-[Exclusive — Rep. Lisa McClain on Stop CCP Act: ‘We’ve Struck a Nerve’](https://www.breitbart.com/politics/2022/02/12/exclusive-rep-lisa-mcclain-on-stop-ccp-act-weve-struck-a-nerve/)
+翻译：洛杉矶盘古农场 – Mike Li
+校对：洛杉矶盘古农场 – 轰炸机
+评论：洛杉矶盘古农场 – 轰炸机
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[众议院保守派提出针对数千名中共官员的制裁法案](https://gnews.org/zh-hans/1983139/)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
