@@ -2,52 +2,46 @@
 ---
 
 
-## 完全接种疫苗的足球运动员基努·斯塔德（Keanu Staude）患上心肌炎
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1998738/)
+## 灭共版一帘幽梦要一改娘了吧唧唱邓丽君的中国男人风
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1998927/)
 
-评论： ***接种疫苗的不良反应已经逐渐开始显现，任何推广打疫苗的人都是在谋杀犯罪。***
-![](https://assets.gnews.org/wp-content/uploads/2022/02/簡報1-1.png)图片来源：The Covid World
-职业足球运动员基努·斯塔德（Keanu Staude）在被诊断出患有心肌炎症（心肌炎）后至少缺阵一个月。 这位 25 岁的球员在慕尼黑1860足球俱乐部担任中场球员，他在 1 月 30 日球队与维多利亚科隆(Viktoria Köln)的比赛后抱怨感觉不适。
+G-TV视频链接：[https://gtv.org/video/id=6208a040b0af02660af30f5d](https://gtv.org/video/id=6208a040b0af02660af30f5d)
 
-去年 11 月，慕尼黑1860足球俱乐部主管冈瑟·戈伦泽尔（Günther Gorenzel）曾吹嘘球队已达到 100% 的疫苗接种率。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1286.png)图片来源：The Covid World
-25 岁的基努·斯塔德（Keanu Staude）患上了心肌炎，被迫休战至少一个月。 这名中场球员已完全接种疫苗。
+**郭文贵先生：**小新你是很有感觉的是吧？刚才那个感觉就出来，我相信这个歌儿七哥唱完以后，新中国联邦会创造一个这个歌的绝对辉煌！一改中国男人唱邓丽君的歌唱得娘了吧唧的，咱们这回要唱的非常男人，而且非常有力量，而且每个人都能感到唱的跟神沟通的感觉，我觉得特别特别重要，就是一张嘴“为何我要灭共？是谁带来苦痛？多少愤恨在心中，唯有战友能懂”。这个“唯有战友能懂”我是练好的，别说是错的，唐平跟Q May纠正我好多遍，我才练这样的，是正确的啊。“他毁香港圣城，犯下罪孽深重，欲战台湾大一统，必是黄粱一梦,谁与七哥与共？”或者说“谁与七哥灭共？打破千年的牢笼，中华儿女多英雄，今朝盘古必相逢。啦啦啦啦啦。…”
 
-斯塔德（Staude） 在 1 月 30 日以 1-0 战胜维多利亚科隆(Viktoria Köln)的比赛中发挥了关键作用。 然而，根据俱乐部官员的说法，这位前比勒费尔德球员在赛后抱怨身体不适，并接受了广泛的检查。 后来发现他的心肌发炎了。
+谁与七哥灭共～哇，这是我改的词啊，我改了两句，（是）三句：它毁香港圣城、欲占台湾大一统，但今天青藤打字，说了十遍，我在唱歌的时候打的词他给打错了。
 
-俱乐部的一份声明部分内容如下：
+欲占台湾，它毁香港，欲占台湾大一统，你看到没有？“谁愿生死与共”（改成了）谁与七哥灭共，你看看。但是我临时纠正了，因为这词这三句是我改的，所以说你看什么叫音乐了吗？小新。
 
-“为了不承担任何进一步的风险，基努·斯塔德（Keanu Staude）将至少有四个星期不能参加竞技运动，因此将无法代表‘狮子’出战。”
+七哥和唐平、威廉王他所有改完的，我改这仨字仨词，但这就是刚才我们的长岛哥找到感觉了，因为他跟我见得最多，过去他受的苦是最深刻的，他体会我最多的。什么叫相濡以沫呀？就你共同的感觉经历过后，你现在让小新和三百年飞飞坐在一起，他俩的感受和我们所有人的感受都不一样，因为她被病毒威胁过，她孤独过。
 
-俱乐部主管戈伦泽尔（Gorenzel）评论道：
+字幕来源：[2022年1月31日 《春节大直播》 全文字版（一）](https://gnews.org/zh-hans/1943980/)
 
-“基努（Keanu）暂时不会再进行任何训练，只有在得到我们医疗团队的批准后才会重新加入球队。”
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1288.png)图片来源：The Covid World
-慕尼黑1860足球俱乐部主管冈瑟·戈伦泽尔（Günther Gorenzel）曾吹嘘球队的疫苗接种率已达到 100%。
+编辑整理：Jacques；
 
-去年，当被问及他的俱乐部如何为包括球员和工作人员在内的所有 60 名成员接种疫苗时，戈伦泽尔（Gorenzel）回答说这不是一件容易的事，因为其中有几个“怀疑论者”。
+字幕文件制作：知津；
 
-“这不是一夜之间发生的，这是一个漫长的过程。 我进行了许多激烈的讨论。
+视频制作及上传：Cindy；
 
-我有一个开放的领导风格，尽量不发号施令。 你必须（不使用武力）带领别人。”
+G-News发布：小满；
 
-戈伦泽尔（Gorenzel）当时说他（并）没有强迫他的球员，但他补充说：
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-“我有自己的意见，但我没有表达。 我只能说，到目前为止，还没有人向我展示如何不接种疫苗摆脱大流行。”
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-1 月 14 日，接受三次疫苗接种的拜仁慕尼黑球星阿方索·戴维斯（Alphonso Davies）被诊断出患有心脏病。心肌的炎症（心肌炎）最近成为德国职业足球界备受讨论的话题。这位世界级的后卫目前尚未回到球场。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-原文链接： [**https://thecovidworld.com/keanu-staude-fully-vaccinated-football-player-develops-myocarditis-out-for-at-least-a-month/**](https://thecovidworld.com/keanu-staude-fully-vaccinated-football-player-develops-myocarditis-out-for-at-least-a-month/)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-翻译：洛杉矶盘古农场 – 海潮
-校对：洛杉矶盘古农场 – 轰炸机
-评论：洛杉矶盘古农场 – 轰炸机
-编辑：洛杉矶盘古农场 – Wendy
-发布 ：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

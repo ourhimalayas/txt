@@ -2,36 +2,41 @@
 ---
 
 
-## 丹麦和瑞典敦促公民离开乌克兰，欧盟表示不会撤离基辅
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1997400/)
+## 立陶宛敦促世界站出来反对中共国
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1997688/)
 
-#### 撰稿：彩虹       
+翻译：不要代表我Kari
+校对编辑：彩虹
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1249.png)图片来源：Anadolu Agency
-据《国会山报》2月12日引述相关报道，面临俄罗斯可能入侵乌克兰的境况，丹麦和瑞典都在敦促其公民离开乌克兰，而欧盟则表示不会关闭基辅的外交使团。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/11-10.png)图片来源：Shanghainews
 
-据CNN报道，周五，丹麦外交部长一份声明中说：“建议不要去乌克兰旅行，建议所有在乌克兰的丹麦人离开该国。仍有可能通过常规的航空路线、公路和铁路离开乌克兰，但现在不可能说这些机会是否或何时会被削减，因此，鼓励在乌克兰的丹麦人离开该国。”
 
-目前，丹麦在乌克兰的大使馆仍然开放。
+据《彭博社》2月11日报道，在访问澳大利亚期间，立陶宛最高外交官呼吁世界各国站出来反对中共国和俄罗斯侵犯人权行为，同时承认采取这种抵制行动会有“代价”。
 
-周六，瑞典则发表了一份类似的声明，称所有公民应该尽快离开乌克兰，并建议不要前往该国“进行一切旅行”。
+在堪培拉的国家新闻俱乐部（National Press Club），外交部长格比亚鲁斯·蓝斯柏吉斯（Gabrielius Landsbergis）说，各国需要减少对“全球秩序破坏者”的贸易和能源依赖，有必要加强“建立和维护基于规则的世界秩序的自由民主国家之间”的伙伴关系。他说，在立陶宛允许台湾在其首都开设代表处后，面临着非官方的贸易壁垒和与中共国的外交关系降级，北京认为此举违反了其一个中国原则。本周早些时候，中国正式停止了对立陶宛牛肉的进口，这在很大程度上是一个象征性的举措。
 
-瑞典外交部长安·林德（Ann Linde）在一条推文中说：“由于乌克兰及其周边地区严重和不可预测的安全局势，外交部今天决定建议不要前往乌克兰，并敦促所有身在乌克兰的瑞典人离开该国。”
+蓝斯柏吉斯的讲话是在墨尔本举行的四方外长会议的前一天发表的，四方外长是由澳大利亚、日本、印度和美国组成的安全伙伴关系。
 
-根据报道，周六上午，美国国务院发布了四级旅行警告，说美国将“在乌克兰利沃夫（Lviv）保持一个小规模的领事机构以处理紧急情况，但将无法提供护照、签证或常规领事服务。”
+作为该集团更广泛关注的对抗中国军事崛起的一部分，预计这些国家将讨论网络安全和领土问题，俄罗斯在乌克兰边境的军事集结很可能会被提及。
 
-同样在周六，德国外交部长安娜莱娜·贝尔博克（Annalena Baerbock）也说：“我们将保持在基辅的大使馆开放，但将减少我们的外交人员。我们的顿涅茨克总领馆（Consulate General Donetsk）自2014年以来一直驻扎在第聂伯罗（Dnipro），目前正暂时迁往利沃夫（Lviv）。”
+弗拉基米尔·普京（Vladimir Putin）总统多次否认俄罗斯计划进攻乌克兰，并批评北约部队在该国边境附近的集结。当被问及世界对乌克兰边境的紧张局势和中国新疆地区普遍存在的侵犯人权行为的指控“缺乏具体反应”时，蓝斯柏吉斯说，答案是人们不要对这个问题 “保持沉默”。他说：“有些人希望这些问题不被谈论”，改变这种状况的唯一方法是继续“提出这些问题”。
 
-周六同一天，欧盟理事会（The Council of the European Union）发布了一份声明，说：“鉴于目前（俄罗斯）对乌克兰的威胁，欧盟及其成员国正在协调其行动，我们的外交使团并没有关闭，仍然留在基辅（Kyiv）并继续运作，以支持欧盟公民并与乌克兰当局合作。考虑到安全情况，工作人员的存在和对欧盟公民的旅行建议正在进行必要的调整。”
+蓝斯柏吉斯说，将强迫劳动从供应链中移除将提高消费品的价格。不要指望当我们解决这些问题时，它们将是免费的。每个人都要付出代价，这些事情确实要付出代价，是原则性的代价。”
 
-声明指出：“我们重申，我们继续支持乌克兰的领土完整和主权，以及为缓和局势所做的外交努力。任何对乌克兰的进一步军事侵略都将带来巨大的后果和严重的代价。”
+根据报道，正在澳大利亚为新设立的立陶宛大使馆揭幕的蓝斯柏吉斯说，如果其他国家效仿他的做法，增加与台湾的外交关系，他 “不会感到惊讶，我不认为立陶宛在这方面是孤独的。”
 
-**新闻来源**
+新闻来源
 
-[Sweden, Denmark urge citizens to leave Ukraine](https://thehill.com/policy/international/594007-sweden-denmark-urge-citizens-to-leave-ukraine)
+[Squeezed Lithuania Urges World to Stand Up Against China, Russia](https://www.bloombergquint.com/politics/squeezed-lithuania-urges-world-to-stand-up-against-china-russia)
 
-[EU not closing diplomatic missions in Kyiv amid threat of Russian invasion](https://thehill.com/policy/international/594009-council-of-eu-says-diplomatic-missions-are-not-closing-in-kyiv-amid)
+*发布：*tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

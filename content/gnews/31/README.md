@@ -2,31 +2,39 @@
 ---
 
 
-## 反对新冠病毒措施，堪培拉现大规模抗议活动
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1998391/)
+## 短视频：以色列疫苗最高负责人承认应相信自然免疫
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1998452/)
 
-翻译/编辑：小红帽
+翻译：不要代表我
+校对：精靈藍
+剪辑字幕：向上James 
+编辑：文泓
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-47.png)图片来源：雅典娜设计组(614)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/811-2.png)图片来源：视频截屏
 
 
-根据《RT》新闻2月12日报道， 周六，抗议者聚集在澳大利亚首都堪培拉的议会大厦，要求停止新冠病毒措施。这些示威者在过去一周里乘坐卡车、汽车和巴士抵达首都并在附近的一个节日场地扎营。
+首先，我们从中了解到的是，那些疫苗在预防方面比较出色，我想说的是预防严重的疾病，严重的病例方面非常好。但不幸的是，它们对（防止）传染的有效性有所降低。而这是一个教训。
 
-示威活动的录像显示，大批民众涌入城市，在议会外集会。《7News》的记者詹妮弗·贝赫瓦蒂（Jennifer Bechwati）将这次集会描述为“我见过的最大的抗议活动之一”。
+这让你感到很惊讶吗？你是以色列疫苗领域的最高负责人，您是否期望（新冠）疫苗在预防传播方面比以前更好？
 
-在澳大利亚议会外，人群高呼“解雇他们”，指的是澳大利亚总理斯科特·莫里森（Scott Morrison）和负责实施一些世界上最严厉的大流行病相关限制的州长。例如，在维多利亚州，大多数室内环境都要求戴口罩和提供新冠疫苗接种证明。大多数部门的雇员都必须接种新冠疫苗才能工作。
+是的，我告诉你为什么，在以色列，我是少数几个真正关注此事的人之一。
 
-莫里森对抗议活动的回应是，敦促参与者以“和平和尊重的方式”进行示威。这位澳大利亚领导人表示，除了一些针对医护人员的规定外，该国所有的新冠疫苗规定都是由各州州长而不是他的政府实施的。
+你知道，特别是我们在3月、4月所看到的。我的意思是，你知道，去年春天我们在以色列所感受到的。
 
-新闻链接：[Thousands of protesters swarm Australian parliament](https://www.rt.com/news/549161-canberra-convoy-protest-parliament/)
+在致命的（去年）1月份有超过4000人死亡，在此之后，经历了第三次封锁之后，突然间，又逐渐的解封、开放、解封，病例在逐渐减少，医院变得空荡荡。不是在开玩笑，我的同事们，医生们在走廊里跳舞，都是出于喜悦，（都认为）疫情结束了。
 
-发布：  tianzhihuan
+因此，我们当时确实相信，疫苗可以预防也防止传播（病毒），而且数据也证实了这一点。所以我们相信，你知道，疫苗可以预防传播，可能在接种后不久，但不会持续很长时间。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+因此，是的，最后我们惊讶地发现，不！**疫苗并没有保护我们，也没有产生我们（期待）所谓的消除性免疫力。**
+
+视频链接：[Israeli vaccine advisor: “We have made mistakes” – The Post (unherd.com)](https://unherd.com/thepost/israeli-vaccine-chief-we-have-made-mistakes/)
+
+发布：文泓
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  

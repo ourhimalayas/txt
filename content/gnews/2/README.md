@@ -2,46 +2,44 @@
 ---
 
 
-## 希望彭丽媛跟我们一起唱响北京冬奥会主打歌曲塞北的雪
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1998960/)
+## 美日印澳召开“四方机制”外长会议，商讨印太区域安全
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1999041/)
 
-G-TV视频链接：[https://gtv.org/video/id=6208a53fb0af02660af31135](https://gtv.org/video/id=6208a53fb0af02660af31135)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/9595.jpg)(左-右)澳大利亚外交部长兼女性事务部长玛丽斯·佩恩、印度外长苏杰生、澳大利亚总理斯科特·莫里森、日本外务大臣林芳正，美国国务卿安东尼·布林肯于2022年2月11日在澳大利亚墨尔本的联邦议会办公室。
+澳大利亚、美国、印度和日本四国集团国家的外长于2月11日在墨尔本会晤，举行了第四轮会谈。议程上的重要问题包括区域安全——包括俄罗斯、中共国和朝鲜——经济交往、新技术、气候变化、人道主义议题以及对中共病毒的应对。
 
-**郭文贵先生：**听说这个《塞北的雪》是当年彭丽媛入京的重要的歌，又听说马上在2月4号要开的北京冬奥会，他们叫做主打歌，但愿他们也和我们一起唱，虽然歌词不一样。
+澳大利亚总理斯科特·莫里森在会议开始前参加了一个简短的新闻发布会，欢迎美国国务卿安东尼·布林肯、澳大利亚外长玛丽斯·佩恩、印度外长苏杰生和日本外相林芳正。
 
-但是《塞北的雪》被共产党给侮辱了。雪是纯洁的，它不应该是人造的，而共产党要在全世界人面前要制造假的雪，就像假的民主、假的法治、假的粮食一样，还制造了病毒。
+莫里森赞扬说，“在一个非常脆弱、破碎和有争议的世界”，这次对话是支持的来源。
 
-那么今天我非常的开心在这个时候唱这个《塞北的雪》，我在开始唱和大家一起，战友们，把你们电视的声音调大点，戴上耳机，戴上耳机得把耳朵堵住。
+“我对我们的观点感到欣慰，我对彼此间的理解感到欣慰，我对澳大利亚从四国集团伙伴得到的令人难以置信的强有力的支持感到欣慰。”他告诉记者，指的是北京当局对澳大利亚出口行业发动的经济胁迫运动。
 
-我爱你 灭共的雪  轰轰烈烈漫山遍野  你用自己无暇的身躯  净化被谎言笼罩的世界  你把真相传递给了人间  唤醒那无尽的黑夜  沉睡的心田  啊～我爱你  啊～灭共的雪 塞北的雪
+“我们将继续始终坚持把我们团结在一起的价值观。我们通过这样做对抗那些试图胁迫我们的国家。”
 
-字幕来源：[2022年1月31日 《春节大直播》 全文字版（一）](https://gnews.org/zh-hans/1943980/)
+美国国务卿布林肯赞扬了莫里森在推进四方安全对话机制方面的领导作用。“一群国家聚在一起，不是因为我们反对什么，而是因为我们追求什么。我们所追求的是一个自由和开放的印太地区。”他说。
 
-编辑整理：Jacques；
+“世界上最有活力的地区，增长最快的经济体，世界上一半的人口，人们应该自由地生活，各国应该有自由选择与谁合作和交往。”他补充说，“我们可以一起证明，我们能有效地为我们的人民带来好处。”
 
-字幕文件制作：知津；
+在首次访问澳大利亚时，印度的苏杰生说，四方安全对话机制之所以运作良好，是因为澳大利亚和印度之间的双边关系很牢固，而日本的林芳正说澳日关系已经达到了“新的高度”，他提到了最近缔结的为加强两国国防事务合作的“历史性”《互惠准入协定》(Reciprocal Access Agreement )。
 
-视频制作及上传：Cindy；
+澳大利亚外交部长佩恩说，会谈将重点讨论与前几十年“不同规模”的挑战。她在一份新闻声明中表示：“在当前的世界环境中，不止一个专制政权正在提出挑战——朝鲜，以及中国——它们将是我们讨论的一部分。”
 
-G-News发布：小满；
+“我们在印太地区的合作正在呈指数级增长，看到在该地区的这么多伙伴与我们双方的协作，这非常有意义。”
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+**简评:** 四国集团外长会议的核心议题正是应对中共集权。中共近年来明显的强势扩张，破坏国际规则，对亚太地区乃至世界秩序造成致命损害。这严重影响到相关国家的利益。四国集团在亚太地区都有这各自的核心利益，大家没有选择，必须联合消灭中共。政治规则中没有永远的朋友，只有永远的利益。美国和日本在中共恶魔崛起和发展壮大中都起了重要作用。如今轮到他们站出来把中共这个人类文明的毒瘤尽快切除。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+新闻链接：[https://m.theepochtimes.com/a-world-order-that-favors-freedom-quad-foreign-ministers-meet-in-melbourne-australia\_4271409.html](https://m.theepochtimes.com/a-world-order-that-favors-freedom-quad-foreign-ministers-meet-in-melbourne-australia_4271409.html)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+* * *
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+编辑：【英国伦敦喜庄园编辑部】
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
