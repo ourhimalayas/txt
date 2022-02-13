@@ -2,27 +2,11 @@
 ---
 
 
-## 香草山翻译部周刊|2022年2月13日第35期
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2000923/)
+## 2月13日文贵大直播要点（图片）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2000935/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO.jpg)
-
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/02/MosWeekly2022_2_13CN.png)
-文章仅代表作者本人观点，与Gnews无关
-
-总编： GBWater
-编辑： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-callendar-1.jpeg)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+设计 五月花农场 水涨船高
+![](https://assets.gnews.org/wp-content/uploads/2022/02/97121BA3-5234-4B3E-A8C7-48A06E205EC8.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/A72D5E3E-E135-4671-928A-7EACA0A836CF.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/BFCF9F62-330A-44C9-9993-FD6BFEC98BDE.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

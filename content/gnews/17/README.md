@@ -2,21 +2,30 @@
 ---
 
 
-## 新中国联邦行的正道主义和救命主义 获得全世界坚定盟友的支持
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2000784/)
+## NFSC新闻、G|TV新闻访谈简报|2022年2月13日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2000786/)
 
-新中国联邦行救命主义，揭露疫苗真相，广结善缘，获得全世界坚定盟友的支持。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO.jpg)
 
-俄罗斯玛莎带着战友们做了几期郭文贵先生讲疫苗真相的俄语节目，救了郭先生一位俄罗斯朋友的一家人。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-12.png)
+文章仅代表作者本人观点，与Gnews无关
 
-这位俄国朋友，透露普京早就知道疫苗危害，同时中共上层都不打疫苗，但是推广疫苗。
+视频参看：
+[2022.02.13早 《NFSC新闻》](https://gtv.org/video/id=62090779a456fe1dea30275e)
+[2022.02.13早 G|TV《新闻访谈》](https://gtv.org/video/id=62090fb2a456fe1dea303e60)
 
-爆料革命行的就是正道主义和救命主义，通过揭露疫苗真相，广结善缘，救助世界各地的朋友，行成了新中国联邦全世界的盟友大军。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-视频来源: 20220211—郭先生大直播
-视频制作: 文星光，梦田
-文案:文星光
-上传: 零点
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-callendar-1.jpeg)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -2,22 +2,32 @@
 ---
 
 
-## 维吾尔族女运动员点燃冬奥圣火 中共欲盖弥彰
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2000860/)
+## MV版Hcoin To the Moon上线66天第48次位列澳门iTunes热门MV榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2000886/)
 
-在2008北京奥运会上，点燃火炬的是李宁。众所周知，李宁是中共体育的功臣人物；今年北京冬奥会开幕式上，中共为什么选择一个20岁的无名小卒来点燃冬奥火炬呢？
+2/13/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线66天第48次位列澳门iTunes热门音乐视频榜榜首，第60次位列前三名
 
-非常有意思的安排。这前前后后国际上发生了什么？
-![](https://assets.gnews.org/wp-content/uploads/2022/02/eWE.jpg)
-随着冬奥会的临近和开幕，与中共联系在一起的一个话题：种族大屠杀、种族灭绝的讨论又开始此消彼长。
+* * *
 
-中共对维族的罪行，前美国国务卿彭佩奥已经提出了相应的法案，并且有越来越多的国际声音声援。中共在此时，特意安排一个维族运动员来点燃奥运圣火，这是洗地的举动，此地无银。
+[【PDF Download】Sunday-13-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-13-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-2.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-13-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-2.pdf)
 
-本想来掩饰其罪恶，没想到却引来一地鸡毛。白宫发言人普萨基发言，中共利用维族运动员点燃火炬，也无法让人们对中共在新疆犯下的，令人震惊的侵犯人权的行为和暴行忽略不计。这名维族女运动员在点燃火炬后的第二天，便从人们的视野中消失，外媒无法对她进行采访。 中共的种族灭绝罪行，最早是郭文贵先生第一个告诉全世界的。美国政府经过调查和在证据确凿的前提下宣布相关法案。中共的做戏，也无法掩盖残害维族的事实，这些是无法抹杀的。中共虽善于作假，掩盖，伪装他们的罪恶，但现在作假的难度和成本越来越大了。全世界终将面临一次大觉醒，只是代价有多大。
+* * *
 
-文案编辑：文勇
-校对整理：面包树
-上传: 零点
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-13-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-13-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-13-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-13-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-13-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_39.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-13-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-13-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-13-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-13-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_83.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-13-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_101.jpg)
+
+
+[【PDF Download】Sunday-13-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-13-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-2.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/02/Sunday-13-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-2.pdf)
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

@@ -2,30 +2,26 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年2月13日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2000786/)
+## 缺芯冲击众多行业 推升通胀
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2000797/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO.jpg)
+郭先生讲到宝马公司因为生产错了芯片导致全面停产。芯片短缺同样也冲击着美国的福特公司。福克斯商业对此的报道还是给这个行业带来了思考。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-12.png)
-文章仅代表作者本人观点，与Gnews无关
+芯片真的是无处不在，电脑摄像头、麦克风、鼠标包括蓝牙耳机都要用芯片。产业链问题包括全球芯片的问题,郭先生早就预警，尤其是全球主要航运的各种梗阻。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/wf.png)
+中共一定会打产业链的牌，通过制造业端让西方叩头，捏西方一把，可惜的是，西方政府和跨国企业也真的就范了，贪图蝇头小利，没有郭先生的眼界和格局。
 
-视频参看：
-[2022.02.13早 《NFSC新闻》](https://gtv.org/video/id=62090779a456fe1dea30275e)
-[2022.02.13早 G|TV《新闻访谈》](https://gtv.org/video/id=62090fb2a456fe1dea303e60)
+拜登政府说芯片短缺大概只持续到2022年下半年，恐怕还不止，可能会更长时间，各国需要很长时间修复。达沃斯党鼓吹人类命运共同体，地球村，全球化的概念，这些诟病都在这一场病毒面前完全暴露无遗。这也是中共和达沃斯全球布局带来的恶果。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+可喜的是西方国家正在醒来，比如2021年6月美国商务部长就敦促美国的国会议员，批准一项520亿美元的半导体行业的生产研发拨款计划，目的是对抗中共。美国外国投资委员会禁止了中共国的半导体股权投资基金对韩国半导体公司的收购。未来这种阻止（包括欧洲在内）会更多。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-callendar-1.jpeg)
+大家还记得荷兰最关键的光刻机合同吗？本来共产党要成功得手了，但现在又节外生了枝。所以各种行业的芯片短缺的阵痛会在持续一年左右时间，之后可能很快会反弹。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+爆料革命对芯片的理解高度非同一般，这场芯片短缺跟此前的芯片短缺是不一样的。更准确说应该是危机，是由于中共对全球释放病毒导致的，是整体的短缺。最终的罪魁祸首是中共。
+
+文案编辑：文勇
+校对整理：面包树
+上传: 零点
 
  
 
