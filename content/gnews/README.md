@@ -15,131 +15,131 @@
 
 ---
 
-### [【粤语配音】2022年2月12日：人生要做你自己](/content/gnews/1/README.md)
+### [与感染者同居 有发热症状的密接者阳性率高](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [2/12/2022 文贵盖特：回答战友关于如何做出人生重大决定的问题，除了看透生死、放下恐惧，还要独立判断、不受他人影响，只要是你内心觉得有意义的、正确的、不伤害别人或能帮助别人的都可以做](/content/gnews/2/README.md)
+ ` 秘密翻译组-北美组`
+
+### [【粤语配音】2022年2月12日：人生要做你自己](/content/gnews/3/README.md)
  ` MOS香港部`
 
-### [举报人揭露军队中疫苗伤害，国防部继续掩盖真相](/content/gnews/2/README.md)
+### [举报人揭露军队中疫苗伤害，国防部继续掩盖真相](/content/gnews/4/README.md)
  ` 墨尔本雅典娜农场`
 
-### [恐惧和冲动只会失去机会远离胜利](/content/gnews/3/README.md)
+### [恐惧和冲动只会失去机会远离胜利](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [七哥去英国日本前必须要满足的几个条件](/content/gnews/4/README.md)
+### [七哥去英国日本前必须要满足的几个条件](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [英国间谍案](/content/gnews/5/README.md)
+### [英国间谍案](/content/gnews/7/README.md)
  ` 【去疫前线】`
 
-### [灭共者之郭氏情报站（二十四）2022/02/11 文贵大直播](/content/gnews/6/README.md)
+### [灭共者之郭氏情报站（二十四）2022/02/11 文贵大直播](/content/gnews/8/README.md)
  ` MOS Designer香草山设计部`
 
-### [全球疫情更新(全球反强制疫苗示威风起云涌）](/content/gnews/7/README.md)
+### [全球疫情更新(全球反强制疫苗示威风起云涌）](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|瑞典取消疫苗护照等限制措施](/content/gnews/8/README.md)
+### [有声|瑞典取消疫苗护照等限制措施](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [灭共漫画 | 福尔摩斯历险记：中共病毒](/content/gnews/9/README.md)
+### [灭共漫画 | 福尔摩斯历险记：中共病毒](/content/gnews/11/README.md)
  ` MOS Designer香草山设计部`
 
-### [前辉瑞研究员的惊人揭秘—疫苗临床试验涉嫌数据造假](/content/gnews/10/README.md)
+### [前辉瑞研究员的惊人揭秘—疫苗临床试验涉嫌数据造假](/content/gnews/12/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声|美大学生校队完胜中共外聘职业联军](/content/gnews/11/README.md)
+### [有声|美大学生校队完胜中共外聘职业联军](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [防火墙是中国人精神里的墙](/content/gnews/12/README.md)
+### [防火墙是中国人精神里的墙](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|众议院保守党人对数千名中国共产党官员提出制裁建议](/content/gnews/13/README.md)
+### [有声|众议院保守党人对数千名中国共产党官员提出制裁建议](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [在引发HIV假阳性结果后，5000万针原计划疫苗报废了](/content/gnews/14/README.md)
+### [在引发HIV假阳性结果后，5000万针原计划疫苗报废了](/content/gnews/16/README.md)
  ` 【去疫前线】`
 
-### [艾格里斯医生对于新变异病毒的预防和治疗，以及疫苗解毒的最新综合用药治疗方案](/content/gnews/15/README.md)
+### [艾格里斯医生对于新变异病毒的预防和治疗，以及疫苗解毒的最新综合用药治疗方案](/content/gnews/17/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [【粤语配音】2022年2月11日： 谷爱玲母女将为其行为付出绝对的代价](/content/gnews/16/README.md)
+### [【粤语配音】2022年2月11日： 谷爱玲母女将为其行为付出绝对的代价](/content/gnews/18/README.md)
  ` MOS香港部`
 
-### [世界转折点——敦刻尔克](/content/gnews/17/README.md)
+### [世界转折点——敦刻尔克](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [郝董：HPAY 重塑家庭中人与人之间的关系](/content/gnews/18/README.md)
+### [郝董：HPAY 重塑家庭中人与人之间的关系](/content/gnews/20/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [全球工厂的供应链断裂危机及趋势](/content/gnews/19/README.md)
+### [全球工厂的供应链断裂危机及趋势](/content/gnews/21/README.md)
  ` 澳喜农场`
 
-### [商业集团敦促美加解决边境封锁](/content/gnews/20/README.md)
+### [商业集团敦促美加解决边境封锁](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [苦难的中国女性、中国母亲](/content/gnews/21/README.md)
+### [苦难的中国女性、中国母亲](/content/gnews/23/README.md)
  ` 澳喜农场`
 
-### [尽管 Omicron 激增，挪威仍取消了大多数 中共病毒限制](/content/gnews/22/README.md)
+### [尽管 Omicron 激增，挪威仍取消了大多数 中共病毒限制](/content/gnews/24/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [欧洲药物监管机构重新调查与疫苗有关的月经问题报告](/content/gnews/23/README.md)
+### [欧洲药物监管机构重新调查与疫苗有关的月经问题报告](/content/gnews/25/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [有声|中共并未兑付中美贸易协议的2000亿美元承诺](/content/gnews/24/README.md)
+### [有声|中共并未兑付中美贸易协议的2000亿美元承诺](/content/gnews/26/README.md)
  ` MOSREC`
 
-### [有声|盖特与纳瓦兹建立合作关系](/content/gnews/25/README.md)
+### [有声|盖特与纳瓦兹建立合作关系](/content/gnews/27/README.md)
  ` MOSREC`
 
-### [有声|中共国内无固定岗位人数超过2亿](/content/gnews/26/README.md)
+### [有声|中共国内无固定岗位人数超过2亿](/content/gnews/28/README.md)
  ` MOSREC`
 
-### [有声|中共极度畏惧新中国联邦喜币](/content/gnews/27/README.md)
- ` MOSREC`
-
-### [中共治下的八孩母亲与孟晚舟、彭丽媛](/content/gnews/28/README.md)
+### [中共治下的八孩母亲与孟晚舟、彭丽媛](/content/gnews/29/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [仅最近几个小时意大利不同地区因新冠疫苗死亡的人数在增加。](/content/gnews/29/README.md)
+### [仅最近几个小时意大利不同地区因新冠疫苗死亡的人数在增加。](/content/gnews/30/README.md)
  ` xiaobaige`
 
-### [延安性事（短篇纪实文学）（一）](/content/gnews/30/README.md)
+### [延安性事（短篇纪实文学）（一）](/content/gnews/31/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [魁北克省出现两组示威者，支持卡车司机，反对卡车司机，警察迅速将两组人分开](/content/gnews/31/README.md)
+### [魁北克省出现两组示威者，支持卡车司机，反对卡车司机，警察迅速将两组人分开](/content/gnews/32/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [纽约州法院系统培训主任被指搞裙带关系后辞职](/content/gnews/32/README.md)
+### [纽约州法院系统培训主任被指搞裙带关系后辞职](/content/gnews/33/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [华裔女下班途中被击，战友们需提高防范意识](/content/gnews/33/README.md)
+### [华裔女下班途中被击，战友们需提高防范意识](/content/gnews/34/README.md)
  ` 全球G系列咨服群`
 
-### [2022/02/12 英喜时事速递](/content/gnews/34/README.md)
+### [2022/02/12 英喜时事速递](/content/gnews/35/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [NFSC新闻、G|TV新闻访谈简报|2022年2月12日早](/content/gnews/35/README.md)
+### [NFSC新闻、G|TV新闻访谈简报|2022年2月12日早](/content/gnews/36/README.md)
  ` 纽约香草山MOS01`
 
-### [北京冬奥会是第一个完全依赖人工造雪的冬季奥运会](/content/gnews/36/README.md)
+### [北京冬奥会是第一个完全依赖人工造雪的冬季奥运会](/content/gnews/37/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国计划设立所罗门群岛大使馆以对抗中国](/content/gnews/37/README.md)
+### [美国计划设立所罗门群岛大使馆以对抗中国](/content/gnews/38/README.md)
  ` Shuizhuyu`
 
-### [“男人都去哪儿了？”为维族冬奥滑雪选手欢呼的家人尽数女性](/content/gnews/38/README.md)
+### [“男人都去哪儿了？”为维族冬奥滑雪选手欢呼的家人尽数女性](/content/gnews/39/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [人类研究保护联盟主席呼吁反对强制疫苗](/content/gnews/39/README.md)
+### [人类研究保护联盟主席呼吁反对强制疫苗](/content/gnews/40/README.md)
  ` NFSC News`
 
-### [英国查尔斯王子再次确诊中共病毒](/content/gnews/40/README.md)
+### [英国查尔斯王子再次确诊中共病毒](/content/gnews/41/README.md)
  ` NFSC News`
 
-### [立陶宛敦促全球抵制中共和俄罗斯](/content/gnews/41/README.md)
+### [立陶宛敦促全球抵制中共和俄罗斯](/content/gnews/42/README.md)
  ` NFSC News`
-
-### [秘翻在线 ：司法公正不容侵犯！美国两位纽约州法官因性丑闻和滥用职权而离职](/content/gnews/42/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [樱花解说┃郭文贵先生起诉UBS案情始末](/content/gnews/43/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
