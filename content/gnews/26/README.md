@@ -2,45 +2,27 @@
 ---
 
 
-## 六四学生运动
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1998213/)
+## 美国多个州正在推动立法，允许医生使用伊维菌素等药物治疗新冠
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1998253/)
 
-作者：纽约香草山农场教育部 – 马克文、朱丽叶
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-六四学生运动也称六四事件，或天安门民主运动，发生于1989年4月15日－6月4日。
+#### 翻译/撰稿：zzballack
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/11-6.jpg)
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-22.jpg)图片来源：Business Today
+据《真正美国之声》（Real America’s Voice）2月12日报道，为了反击阻止人们以仿单标示外(Off-label)的方法治疗新冠或者威胁要调查开具新冠治疗药物的医生的医疗许可委员会（medical licensure board）、医院和药剂师，美国多个州正在考虑制定不同程度的立法，授权医生配发羟氯喹、伊维菌素等药物治疗新冠。
 
-1989年4月15日，中共前总书记胡耀邦因心脏病去世。此时国内因长期积累的社会矛盾与民怨开始爆发，大批高校师生以悼念胡为名，开始和平示威游行，并喊出“反对贪污、腐败，要民主、自由”等口号。运动从4月中旬到6月初达到高峰，北京各界民众、机关干部、公司职员纷纷声援学生，上街游行，运动影响很快遍及全国，要求政治体制改革的呼声高涨。
+立法者的此项行动是反对联邦政府一再污蔑廉价的潜在新冠疗法。FDA误导人们说伊维菌素是一种只针对马的治疗药物，尽管这种抗寄生虫药物已被世界各地的人们广泛使用，但这种误解仍然存在并流行。耶鲁大学公共卫生教授哈维·里奇（Harvey Risch）谴责联邦政府利用“伪造的劣质研究”，将羟氯喹和伊维菌素描绘成是无效和危险的药物。
 
-随着运动波及范围扩大，越来越超出中共的掌控，很快中共将这场学生和平游行示威运动定性为“暴乱”，称其为有外国势力支持的反党反革命的运动，并决定对广场实施戒严，进而发展到武力镇压。
+俄克拉荷马州总检察长约翰·奥康纳 (John O’Connor) 2月8日[宣布](https://www.oag.ok.gov/articles/attorney-general-oconnor-assures-oklahoma-physicians-are-not-prohibited-prescribing-label)，他的办公室不会起诉开具获美国食品药品监管局（FDA）批准的仿单标示外（Off-label）新冠治疗药物的医生。他说：“州医疗许可委员会没有法律依据对行使合理判断和安全开具伊维菌素或羟氯喹治疗新冠的持证医生进行处罚。我们的医护人员应该拥有一切可用的工具来对抗新冠。为了公共安全，必须这样做。”
 
-6月3～4日凌晨，中共派大批军队进京，并且动用坦克、机枪、步枪，据后来流传海外的一些照片证实，现场军人对手无寸铁的学生及其他人员实施了惨无人道的屠杀，子弹击穿年轻学子的身体，坦克直接冲向人群，将活人身体碾成肉酱，现场血腥恐怖，惨不忍睹。事后，国务院发言人袁木竟然对外谎称：“天门广场没有死人”。六四事件之后，一度对学生充满同情的中共总书记赵紫阳下台。
+2月10日，南达科他州（North Dakota）众议院的卫生和公共服务委员会（Health and Human Services Committee）以微弱优势通过了[HB 1267](https://sdlegislature.gov/Session/Bill/23406)法案，允许“从业人员根据公认的医疗标准，在有或没有处方的情况下向人们发放伊维菌素。”该法案的主要发起人菲尔·詹森 (Phil Jensen)说医生将不再冒着“失去执照或影响生计”的风险（开具药物）。
 
-新中国联邦创始者，也是六四运动参与者的郭文贵先生曾指出，六四惨案也是共产党内部权力斗争的结果。郭先生曾因参加支持八九64学生运动被捕入狱，亲眼看到一名参加六四的学生，处男，竟然被冠上“强奸罪”罪名被枪毙。上百名人员因参与六四被施以酷刑后仍被枪毙。
+堪萨斯州 (Kansas)参议院公共卫生和福利委员会（Public Health and Welfare ）1月24日提出了[SB 381](http://kslegislature.com/li/b2021_22/measures/documents/sb381_00_0000.pdf)法案，“处方医师可以开具、药剂师应该配发获FDA批准的药物，包括但不限于硫酸羟氯喹和伊维菌素等新冠治疗药物，即使病人没有接触过新冠或对其检测呈阳性。处方医生和药剂师在根据该法案行事时，他们的行为和保健决定应免于承担损害赔偿、行政罚款或处罚，因为他们的行为不应视为非专业行为。与新冠治疗有关的建议、处方、使用或意见，即使不是由许可委员会、卫生部或FDA推荐或监管的，也不会被视为非专业行为。”该法案由堪萨斯州参议员马克·斯特芬 (Mark Steffen)提出。他是一名麻醉师，在过去一年半里因开具伊维菌素而受到调查。他说：“堪萨斯州治疗行为委员会正在利用调查来压制我、让我闭嘴。”
 
-为纪念中国人民因追求民主、自由、法制付出的巨大流血与牺牲，郭先生决定并庄严宣告，六月四日为新中国联邦的建国日，以激励中华儿女前赴后继，继承遗志，为中国人民争取真正的自由民主而奋斗。
+宾夕法尼亚州众议院卫生委员会（Health Committee）2月7日批准了在去年夏天提出的一项修正案（[HB 1741](https://www.legis.state.pa.us/cfdocs/legis/PN/Public/btCheck.cfm?txtType=HTM&amp;sessYr=2021&amp;sessInd=0&amp;billBody=H&amp;billTyp=B&amp;billNbr=1741&amp;pn=2713)），该法案说，“药剂师可以向医生配发FDA批准的治疗药物，用于病人的预防、或者居家、门诊和住院患者的新冠治疗。许可委员会不能将这种行为视为非法的、不道德的、未经授权的或不专业的行为。”
 
-参考链接：
+新闻来源：[States push to ease access to ivermectin, other COVID treatments that establishment blocked](https://americasvoice.news/justthenews/lawmakers-tackle-hurdles-covid-patients-get-treatments-opposed-medical/)
 
-- [六四事件](https://zh.wikipedia.org/wiki/%E5%85%AD%E5%9B%9B%E4%BA%8B%E4%BB%B6)
-- [中共党史掩盖和歪曲的重大历史事件(1): 八九六四那一夜，“人民军队” 残杀了人民](https://www.voachinese.com/a/distorted-ccp-history-part-1-Tienanmen-massacre/5908517.html)
-- [六四30周年：天安门大屠杀阴影下中国的变和不变](https://www.bbc.com/zhongwen/simp/chinese-news-48465191)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
-
-总编：Jack Li文阳
-编辑：静言
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

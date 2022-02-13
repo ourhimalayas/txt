@@ -2,35 +2,22 @@
 ---
 
 
-## 日本《疫苗后遗症》电影公映
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1998215/)
+## 联合国安理会为朝鲜开会 传中俄拒签谴责声明
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1998283/)
 
-作者：日本方舟农场 – Andy5
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-2月11日，由日本长尾诊所院长——长尾和宏医生作为导演的纪录片《疫苗后遗症》，举行了最后一场在东京的公映。本片在上映的两周前，就将690个席位销售一空。而在大阪，目前所有2月的场次均已爆满。该片导演长尾医生曾收治过53名因疫苗副作用造成后遗症的患者。
+作者：台湾宝岛农场dobi
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月5日，国外媒体报道，联合国安理会当天应美国要求，针对朝鲜议题召开了闭门会议。美国针对朝鲜连续试射强威力导弹，起草了一份联合声明，对朝鲜的行为提出谴责。但中共和俄罗斯拒绝签署这一声明。
+![中國常駐聯合國代表張軍。 美聯社](https://pgw.udn.com.tw/gw/photo.php?u=https://uc.udn.com.tw/photo/2022/02/05/98/15797204.jpg&amp;x=0&amp;y=0&amp;sw=0&amp;sh=0&amp;sl=W&amp;fw=800&amp;exp=3600&amp;w=930)美聯社
+据悉，朝鲜仅在今年1月就7次试射导弹，其中包括自2017年以来威力最强的一枚，暗示了朝鲜可能会重启远程武器及核武器测试。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/9-11.png)
+报导还提及，中共与俄罗斯一直在联合国安理会阻拦有关朝鲜的措施，去年甚至还提出基于人道应放宽对朝鲜的制裁，但因得不到支持而没有进入表决程序。
 
-影片上映前，长尾医生发表了20分钟的演讲，讲述他为何要制作这部影片以及上映前后的故事。
+参考链接：[聯合國安理會為北韓開會 傳中俄拒簽譴責聲明](https://udn.com/news/story/6809/6077714?from=udn-referralnews_ch2artbottom)
 
-首先他提到这部影片的初衷有两个，一是不满媒体每天大肆宣传鼓动人们去接种这个成分都没有研究清楚的疫苗；二是希望阻止将从3月开始的对5～11岁儿童的接种。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-谈及为何要反对现在的所谓疫苗，他举例称，他接收了一位高中生的病患，接种疫苗前是学校名列前茅的优等生，却在接种后出现记忆障碍，成绩滑到谷底，而这样的例子在影片中多达十几位。而厚生劳动省并没有仔细调查疫苗后遗症，甚至连真实死亡人数以及原因都没有进行过调查。
-
-在日本，各大院线都禁止《疫苗后遗症》这部影片的上映，只有为数不多的小剧场勉强排出日程。并且这部影片已经被Youtube等媒体封杀。
-
-参考链接：
-
-- [https://www.gettr.com/post/pu0b8959f9](https://www.gettr.com/post/pu0b8959f9)
-- [20220128日本紀錄片「疫苗副作用」預告片](https://www.gettr.com/post/pr7v6gcdfb)
-- [2022年1月29日(土) 大阪シアターセブンにて緊急上映会決定！](https://vaccine-kohisho-movie.com/)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
-
-总编：飞虹
-编辑：飞虹
-校正/发稿：海阔天空1
+编辑/校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

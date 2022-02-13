@@ -2,37 +2,37 @@
 ---
 
 
-## SEC 退款对GTV投资者的影响和意义
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1998192/)
+## 奥密克戎亚变种BA.2 接种者更易感染
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1998217/)
 
-撰稿：信心满满
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-13-002831.png)网路截图
-最近美国证监会发出对GTV私募投资者，G Coin 和G Dollar 投资者进行退款， 退款是
+作者：台湾宝岛农 – dobi
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+台媒2月10日消息，最新研究指出，奥密克戎亚变种BA.2病毒与先前出现的病毒相比，不仅具有更强的传染力，对曾接种过疫苗者，也更容易感染。
 
-美国证券交易委员会行政审理案列号 3-20537依据美国证券交易委员会法规条列17 C.F.R. § 01.1101。退款时间范围是对GTV投资在2020年4月20号到 2020 年6月20号，G Coin 和G Dollar投资在2020年 4月1号到2020年6月30日。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/7-16.jpg)
 
-SEC文件中声明归还投资者金额 $486,745,063加预计利息$17,688,365。 SEC正式批准分配计划后15天内，基金管理人会
+爆料革命曾引疫苗专家吉尔特·范登·保茨博士的研究警告，中共疫苗接种不仅会破坏免疫系统，更会使接种者容易感染新变种病毒。而各国政府企图提高疫苗接种率的做法，对民众健康与全球卫生安全，极具危害。
 
-- 制作中英文《索赔表格》，交给SEC律师审阅及批准； 建立符合退款资格战友的通讯和索赔数据库；
-- 以邮寄或电子邮件方式向符合退款战友发送《分配计划通知》；中英文公允基金网站[www.GTVMediaGroupFairFund.com](http://www.GTVMediaGroupFairFund.com)会建立。基金管理人将在网络及/或SEC接受的印刷媒体上发布《简报通知》。
-- 通知发布一共4 次，第1次通知在分配计划获批后10天内发布。
-- 公允基金网站上将会明确标出提交《索赔表格》的截止日的具体日历日期。
-- 收到符合退款战友邮件、电话或电子邮件退款要求，基金管理人会及时向潜在退款战 友提供索赔文件包。
-- 符合退款战友必须在提出索赔申请截止日当日或之前填写并提交《索赔表格》截止日应该自首次邮寄《分配计划通知》之日起四十五天
-- 基金管理人对收到符合退款战友填写的《索赔表格》会在截止时间之前及时用邮寄，电子，电话方式处理符合退款战友退款要求
-- 鼓励电子方式提交 SEC鼓励以电子方式提交索赔要求。
+上述最新研究，不仅打破了疫苗公司推广时宣称的高保护力说法，颠覆了大众对中共疫苗的认知与期待，更对应保茨博士与爆料革命的警告，告诉各国政府，不应该再继续漠视中共病毒疫苗对人体健康的危害，应立即停止通过刻意操纵，可能导致的更严重的疫苗灾难。
+
+参考链接：
+
+- [Omicron的「妹妹」傳染力高33% 更能躲避疫苗](https://udn.com/news/story/6809/6089984?from=udn-catehotnews_ch2)
 
 
-若网上提交，必须在提出索赔申请截止日当晚11:59分（美东时间）提交索赔表格。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
 
-文贵先生从2017年爆料已经经过了五个年头，文贵先生所经历的压力和困难不是我们普通战友能承受的。文贵先生被共产党操控的官司譬如PAG，UBS瑞士信贷银行，共产党走狗伪类缠身，受到各种威胁。其中九指妖, Sarah 和共产党勾结利用战友对文贵先生，爆料革命的信任骗取投资款，导致投资款被SEC监管和冻结。真战友会一直跟随文贵先生，爆料革命虽然在灭共有曲直和艰难。但是，我们从这次SEC退款可以让不坚定投资人或者破坏爆料革命的共产党走狗移除出去，让爆料革命队伍更加纯洁和灭共信念更坚定。
+总编：Irene木木
+编辑：静言
+校正/发稿：海阔天空1
 
-资料来源
-
-[https://www.sec.gov/litigation/admin/2022/34-94107-pdp.pdf](https://www.sec.gov/litigation/admin/2022/34-94107-pdp.pdf)
-
-文贵先生直播
-![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

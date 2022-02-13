@@ -2,48 +2,37 @@
 ---
 
 
-## 文•贵天成——文贵先生谈“普京”（五）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1998174/)
+## 2022年1月国际社会对中共的打击制裁汇总与分析
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1998214/)
 
-整理：BENJ1
-编辑：Kelly
+作者：香草山教育部 – 无名先生
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+据不完全统计，在2022年1月1日-1月31日的一个月时间，国际社会对中共的打击制裁次数有7次，其中5次由美国发起、另2次由欧洲发起。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/10-9.jpg)
+一月份国际社会对中共的打击制裁的形式有三种：第一、议会提案和动议4次，包括《2022年新冠病毒法》、《2022年恢复基本能源和稀土在岸安全储备法案》、《2022年美国竞争法》的提案和指出中共在新疆犯下“反人类罪和种族灭绝罪”的动议；第二、议会决议1次：《关于香港侵犯基本自由》的决议案；第三、美国政府对中共企业实施的具体制裁2次，包括对航天科技集团第一研究院、中国航天科工集团第四研究院、保利科技股份有限公司和中国联通的制裁。
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/02/5-20.png)图片来源：雅典娜设计组
+从一月份国际社会对中共的打击制裁上可以看到三点：一是对中共新冠病毒真相溯源的诉求已经由民众和媒体层面上升到了议会层面；二是中共在新疆犯下“反人类罪和种族灭绝罪”已经成为国际共识并不断发酵；三是中共对人类安全的威胁已经受到美国的高度重视，美国正在以国家安全为由对中共进行多方位打击制裁。
+
+参考链接：
+
+- [https://www.whitehouse.xn--gov-e36s/](https://www.whitehouse.xn--gov-e36s/)
+- [https://www.commerce.xn--gov-e36s/](https://www.commerce.xn--gov-e36s/)
+- [https://www.voachinese.com/](https://www.voachinese.com/)
 
 
-郭文贵先生**2021**年**2**月**6**日直播
+![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
 
-普京厉害吧？普京睡觉也是一天晚上换两三个地方。
+总编：飞虹
+编辑：飞虹
+校正/发稿：海阔天空1
 
-郭文贵先生**2021**年**3**月**22**日盖特
-
-所以说兄弟姐妹们，你觉得他现在公开的要跟俄罗斯站在一起，查查历史上，不要查太长时间，就查500年，或者从彼得大帝开始查一查，看看俄罗斯跟中国的历史上发生过什么好的事？这都是征兆，我觉得中南海的八个人加一堆，也玩不过普京的一个胳膊，中共真跟人家不是一个量级的，说实在话，你要是在生活中跟普京打过交道，你就会知道，普京是天生的政治家，你玩政治、玩军事，玩国际外交，（你中共跟他）那就不是一回事。
-
-叶利钦当时交权给他的时候，当时他把莫斯科市长给救出去，送出俄罗斯，保住了叶利钦家族在国内的核心利益，最后叶利钦说过这样一句话，俄罗斯几百年没出一个真正懂俄罗斯政治又懂国际政治的人，但出来了普京就是这样一个人。国际外交就是实力外交，在国内就是流氓外交，就是流氓政治，看谁能玩，普京是克格勃出身，玩情报的，你跟他玩啥呀？人家是从小到大，根红苗儿正，在圣彼得堡，好好了解了解人家家庭成长环境去，中南坑跟人家玩，真的是，太小儿科了，可悲的是中国即将迎来更大的灾难。
-
-最近很多俄罗斯的朋友跟我联系的时候，征求我的看法，我说但愿两国人民少遭点殃，只能这样，我们只能往好了想。但是有时候上天做什么裁决，还有这两国的这些实权的掌握者，也就是现任国家机器的控制者，中南坑和普京政府，很难说会发生什么事，但有一点是毋容置疑的，共产党必将灭亡，很快会灭亡。
-
-郭文贵先生**2021**年**5**月**21**日盖特
-
-现在共产党和我们（俄罗斯）玩什么？想玩让我们（俄罗斯）和美国人斗？他说不可能。普京很聪明，让我喊两嗓子我就喊两嗓子，是吧？但实际的事儿不可能做。国内的这些小粉红们就（已经）是愚蠢到自娱自乐的程度，就这么疯狂。
-
-资料来源：郭先生GTV和盖特直播视频
-
-往期回顾：
-[文•贵天成——文贵先生谈“普京”（一）](https://gnews.org/zh-hans/1990454/)
-[文•贵天成——文贵先生谈“普京”（二）](https://gnews.org/zh-hans/1992091/)
-[文•贵天成——文贵先生谈“普京”（三）](https://gnews.org/zh-hans/1997756/)
-[文•贵天成——文贵先生谈“普京”（四）](https://gnews.org/zh-hans/1998162/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

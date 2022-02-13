@@ -2,30 +2,20 @@
 ---
 
 
-## 联合国安理会为朝鲜开会 传中俄拒签谴责声明
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1998283/)
+## 日美韩三国外长在夏威夷会晤，讨论威慑朝鲜问题
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1998318/)
 
-作者：台湾宝岛农场dobi
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月5日，国外媒体报道，联合国安理会当天应美国要求，针对朝鲜议题召开了闭门会议。美国针对朝鲜连续试射强威力导弹，起草了一份联合声明，对朝鲜的行为提出谴责。但中共和俄罗斯拒绝签署这一声明。
-![中國常駐聯合國代表張軍。 美聯社](https://pgw.udn.com.tw/gw/photo.php?u=https://uc.udn.com.tw/photo/2022/02/05/98/15797204.jpg&amp;x=0&amp;y=0&amp;sw=0&amp;sh=0&amp;sl=W&amp;fw=800&amp;exp=3600&amp;w=930)美聯社
-据悉，朝鲜仅在今年1月就7次试射导弹，其中包括自2017年以来威力最强的一枚，暗示了朝鲜可能会重启远程武器及核武器测试。
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1264.png)（图片源自本文链接）
+2月13日共同通信社消息：日本时间13日上午，日本外相林芳正在夏威夷檀香山会见了美国国务卿詹姆斯·布林肯和韩国外长郑义溶。确认了三国之间在阻止朝鲜今年发射一系列弹道导弹的措施方面进行合作的重要性。三位外长在联合新闻发布会上宣布，林先生在解决朝鲜绑架日本国民的问题上寻求理解和合作，并得到了支持。
 
-报导还提及，中共与俄罗斯一直在联合国安理会阻拦有关朝鲜的措施，去年甚至还提出基于人道应放宽对朝鲜的制裁，但因得不到支持而没有进入表决程序。
+在新闻发布会上，布林肯先生宣称：”我们讨论了深化日本、美国和韩国三国之间合作的措施，以遏制朝鲜。”郑义溶谴责朝鲜发射弹道导弹“令人遗憾”，并强调对话和外交才是可选之路。
 
-参考链接：[聯合國安理會為北韓開會 傳中俄拒簽譴責聲明](https://udn.com/news/story/6809/6077714?from=udn-referralnews_ch2artbottom)
+信息来源：[日米韓外相、北朝鮮抑止へ連携](https://nordot.app/865452823566401536?c=768367547562557440)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
-
-编辑/校正/发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

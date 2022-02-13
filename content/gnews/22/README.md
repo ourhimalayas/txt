@@ -2,29 +2,24 @@
 ---
 
 
-## 奥密克戎亚变种BA.2 接种者更易感染
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1998217/)
+## 韩国中共病毒单日确诊创新高
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1998285/)
 
-作者：台湾宝岛农 – dobi
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-台媒2月10日消息，最新研究指出，奥密克戎亚变种BA.2病毒与先前出现的病毒相比，不仅具有更强的传染力，对曾接种过疫苗者，也更容易感染。
+作者：纽约香草山教育部 Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据中央社9日报道，韩国单日确诊人数创下4万9567例新高纪录，较前一天大幅增加近1.3万例，居家治疗人数也增至16.8万例。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2000x1242_0995112501059.jpeg)
+韩国中央防疫对策本部统计，截至今天凌晨零时，境内新增4万9567例中共病毒确诊，累计113万1248例，新增案例包括4万9402例社区病例，165例境外迁入病例。其中，首尔、仁川、京畿道等人口密集的首都圈地区社区感染占近6成。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/7-16.jpg)
+单日重症人数也开始回升，截至今天凌晨零时，重症人数为285例，较前一天增加17例。死亡病例增加21例，累计6943例，死亡率为0.61%。
 
-爆料革命曾引疫苗专家吉尔特·范登·保茨博士的研究警告，中共疫苗接种不仅会破坏免疫系统，更会使接种者容易感染新变种病毒。而各国政府企图提高疫苗接种率的做法，对民众健康与全球卫生安全，极具危害。
+采取居家治疗的轻症及无症状患者持续快速增加，增至16万8020例；目前韩国居家治疗点已扩大至601处，可控人数增至18.3万，尚在可负担范围内。
 
-上述最新研究，不仅打破了疫苗公司推广时宣称的高保护力说法，颠覆了大众对中共疫苗的认知与期待，更对应保茨博士与爆料革命的警告，告诉各国政府，不应该再继续漠视中共病毒疫苗对人体健康的危害，应立即停止通过刻意操纵，可能导致的更严重的疫苗灾难。
+参考链接：[韓國單日確診近5萬例創新高 較前一天增1.3萬](https://www.cna.com.tw/news/aopl/202202090026.aspx?topic=2012)
 
-参考链接：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-- [Omicron的「妹妹」傳染力高33% 更能躲避疫苗](https://udn.com/news/story/6809/6089984?from=udn-catehotnews_ch2)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
-
-总编：Irene木木
-编辑：静言
-校正/发稿：海阔天空1
+编辑/校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

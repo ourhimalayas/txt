@@ -2,48 +2,39 @@
 ---
 
 
-## 俄罗斯入侵迫在眉睫，澳大利亚撤离基辅大使馆
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1998183/)
+## 称“数据不足” 辉瑞推迟婴幼儿疫苗接种申请
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1998216/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+作者：纽约香草山 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+2月11日，辉瑞·拜恩特生物技术公司突然以“数据不足”为由，推迟了正在向美国食品和药物管理局提出的、针对6个月至4岁儿童的两剂中共病毒疫苗的授权申请。
 
-翻译：文扬
-编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8-13.jpg)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/13-3.png)图片来源：The Guandian
+辉瑞公司声明，正在等待其第三针疫苗的测试数据，该数据预计于四月初公布。辉瑞公司称第三针“可能为这个年龄组提供更高水平的保护”。然而，该公司在去年12月份的数据表明，在2至4岁儿童的试验中，两剂疫苗没有产生应有的免疫反应。
+
+据两位熟悉FDA规划的人士说，已有众多外部专家对该机构提交了大量的文件，质疑辉瑞的数据不够充分。FDA生物制品评估和研究中心主任彼得·马克斯博士表示，监管机构审查了辉瑞公司的两针剂数据后，决定在考虑授权之前需要先看到第三针疫苗接种试验的效果。
+
+分析人士指出，辉瑞公司要求授权婴幼儿的两剂疫苗不符合科学和常理，因为前两剂疫苗没有效果，也不能保证增加第三剂就起作用。在欧洲各国纷纷取消疫苗通行证和各种限制的时间关口，也许辉瑞公司这一个不同寻常的推迟授权请求，标志着疫苗政策的转向。
+
+参考链接：
+
+- [Pfizer postpones FDA request for Covid vaccine for kids under 5](https://www.nbcnews.com/health/health-news/pfizer-covid-vaccine-kids-fda-authorization-postponed-rcna15730?cid=sm_npd_ms_tw_ma)
 
 
-当地时间2月13日，据美国广播公司报道，外长玛丽斯·佩恩说，她已经指示驻乌克兰大使馆的工作人员离开。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
 
-澳大利亚政府将撤离其驻基辅大使馆，并警告俄罗斯入侵乌克兰迫在眉睫，莫里森总理警告说，局势正在恶化并达到“危险阶段”。
+总编：Irene木木
+编辑：Lakeman文仁
+校正/发稿：海阔天空1
 
-这一决定是在美国国务院采取类似行动之后作出的，美国国务院已经命令非紧急的使馆工作人员离开乌克兰。
-
-佩恩外长周日上午发表声明称，政府将把（大使馆）业务转移到基辅以西几百公里，靠近波兰边境的利沃夫。
-
-她说：“鉴于俄罗斯军队在乌克兰边境集结所造成的安全局势恶化，政府已指示驻基辅大使馆的工作人员撤离，并暂停我们在基辅大使馆的业务，业务将转移到利沃夫的一个临时办公室。”
-
-周六，佩恩参议员再次敦促在乌克兰的澳大利亚人离开该国，警告安全状况可能会在短时间内发生变化。
-
-她说：“我们已经敦促所有澳大利亚人立即离开乌克兰，并且外交部已经继续联系澳大利亚人，重申这一旅行建议。”
-
-“我们将敦促俄罗斯就这一特殊的单边行动继续进行对等的外交对话。我们支持乌克兰的主权和领土完整。我们支持欧洲和北约的统一反应。在这个非常困难的时刻，我们与乌克兰站在一起。”
-
-莫里森也一再警告澳大利亚人离开乌克兰，因为担心俄罗斯的入侵。
-
-他说：“我们给他们的建议非常明确，这是一个非常危险的局势，为了你们自己的安全，你们应该设法离开乌克兰，如果那里发生冲突，将是一个非常不稳定的局势。”
-
-原文链接： [Australia to evacuate Kyiv embassy amid threat of Russian invasion of Ukraine – ABC News](https://www.abc.net.au/news/2022-02-13/australia-evacuates-ukraine-embassy/100826352)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
