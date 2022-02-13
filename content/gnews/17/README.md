@@ -2,35 +2,27 @@
 ---
 
 
-## 有声|发现艾滋病毒法诺贝尔医学奖得主 宣称疫苗对人类的危害
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2001357/)
+## 新中国联邦引领世界大卡车反抗暴政运动
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2001469/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-法国科学家蒙坦耶（Luc Montagnier）于2008年时，因和同事巴尔．西诺希（Francoise Barre-Sinoussi）发现艾滋病毒，获颁诺贝尔医学奖殊荣，对人类对抗艾滋病毒（HIV）的贡献极大，也足见其在科学医学地位的举足轻重。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/FireShot-Capture-784-%E6%B3%95%E7%A7%91%E5%AD%B8%E5%AE%B6%E6%98%94%E7%99%BC%E7%8F%BEHIV%E5%BE%97%E8%AB%BE%E8%B2%9D%E7%88%BE%E7%8D%8E-%E4%BB%8A%E5%8F%8D%E7%96%AB%E8%8B%97%E9%BB%AF%E7%84%B6%E9%9B%A2%E4%B8%96-%E4%B8%96%E7%95%8C%E8%90%AC%E8%B1%A1-%E5%85%A8%E7%90%83-%E8%81%AF%E5%90%88%E6%96%B0%E8%81%9E%E7%B6%B2-udn.com_.png)
-遗憾的是，虽报导指出蒙坦耶是否已经逝世的消息目前尚未获得确认，但纳伊市长弗罗芒坦（Jean-Christophe Fromantin）告诉法新社蒙坦耶已于8日辞世，享年89岁。且报导中也提及，对于蒙坦耶逝世，法国总统马克宏（Emmanuel Macron）表示哀悼。
+加拿大温哥华扬帆农场：硫酸羟氯喹64
 
-尚且不论，蒙坦耶是否已经离世，回顾蒙坦耶（Luc Montagnier）的晚年，他勇于宣称病毒是实验室所制造，且后来会陆续出现变异株，乃是因为疫苗的缘故，他的反强制疫苗接种立场也可谓十分鲜明。虽遗憾他的立场目前尚未能顺利获得大多数科学界、学界的支持。然而，相信在蒙坦耶的勇敢揭示以及新中国联邦爆料革命的持续不断地对疫苗灾难是人为的等提出警讯下，就有机会拨乱为正，降低疫苗灾难对人道的危害.
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/a-13-edited.png)图片来源：GTV
 
-文字版原文：[发现艾滋病毒法诺贝尔医学奖得主 宣称疫苗对人类的危害](https://gnews.org/zh-hans/1995616/)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+据2月13日GTV大直播报道，文贵先生发起的暴料革命于2019年在香港反送中运动中所策划的使用货车和汽车以阻断中共恶警涂炭香港的行动方式，开启了世界上和平对抗暴政并使人类有效实现新型民主的先河。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+报道指出，目前在加拿大和法国以及全球各地正如火如荼进行的卡车司机车队反抗疫苗暴政的集会示威活动，与当年文贵先生在香港抵抗中共政权入侵中所采取堵塞和瘫痪当地交通的方式如出一辙。而且新中国联邦在当前这些和平抗议运动中所起的实践指导作用举足轻重。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+对此，文贵先生指出，大卡车反疫苗政策运动的本质，就是把全球现在和未来的经济，完美地与利用政治运动来和平有效地推翻独裁统治联系在一起。如果最终能不被煽动、不使用暴力，那么它的意义和价值将是非凡和深远的。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+新闻来源：
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[https://gettr.com/streaming/pu9dbgdec1](https://gettr.com/streaming/pu9dbgdec1)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+* * *
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+采编：青青 编辑撰稿，发稿：硫酸羟氯喹64
 
  
 

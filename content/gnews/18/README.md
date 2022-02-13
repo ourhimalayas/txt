@@ -2,37 +2,33 @@
 ---
 
 
-## 有声|俄可能使用受美制裁的油气田供应中国
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2001334/)
+## 欧盟专员：不再需要疫苗强制
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2001406/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-作为普京出席冬奥会的条件之一，俄罗斯天然气工业股份公司（Gazprom）最近与中石油（CNPC）签订了10年100万吨的能源合同。据消息人士透露，俄联邦可能会利用太平洋库页岛附近的一个被美国制裁的气田，向中国供应天然气。
-![Gas pipelines are pictured at the Atamanskaya compressor station, part of Gazprom's Power Of Siberia project outside the far eastern town of Svobodny, in Amur region, Russia November 29, 2019. REUTERS/Maxim Shemetov.//File Photo](https://cloudfront-us-east-2.images.arcpublishing.com/reuters/2Y7HRUPKRVI5FB6RRGK2D7Z3DA.jpg)
-俄罗斯总统普京上周五宣布与中国达成新的天然气供应协议，Gazprom表示，将通过远东线路供应天然气。
+加拿大温哥华扬帆农场 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-6.jpg)图片来源：The Irish Times
+根据《Deutsche Welle》2月13日报道，欧盟经济专员真蒂洛尼(Paolo Gentiloni)表示，讨论疫苗强制的时间已经过去。同时，一位重要的德国立法者表示，强制疫苗措施不会在议会中得到大多数人的支持。
 
-俄罗斯计划向中国增加100亿立方米的天然气供应，这些管道天然气将由中俄远东线输送至中国。中俄远东线达产后，俄罗斯向中国每年供应的管道天然气总量将达480亿立方米，较现有供应量规划提高约26%。
+真蒂洛尼认为，疫情的严重程度在下降，整个欧盟的死亡和住院人数总体上有所下降，各国政府没有理由再推出普及冠状病毒疫苗强制。他说”我们正走在放宽限制的同一条道路上，逐个国家都是如此”。
 
-两位消息人士称，天然气可能来自库页岛附近的气田，包括Yuzhno-Kirinskoye气田，美国于2015年因莫斯科在乌克兰危机中扮演的角色对这些气田实施制裁。
+德国议会中最大的反对派团体–保守的基民盟/基社盟的议会领袖说，联邦政府疫苗强制不会得到多数票。
 
-文字版原文：[俄可能使用受美制裁的油气田供应中国](https://gnews.org/zh-hans/1995137/)
+荷兰当局表示，剩余的疫情限制将于2月18日取消。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+香港当局表示，在一些大陆货车司机的检测结果呈阳性后，食品供应，特别是蔬菜和冰鲜家禽，可能会暂时中断。香港几乎所有的食品都是进口的，而中国是其最大的来源地。内地当局和香港政府正在密切合作，以确定详细安排，加快对香港的食品供应物流，以便使供应情况尽快恢复正常。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+北京奥组委宣布了三例与奥运会相关的COVID-19新病例。其中两人是运动员或团队成员。在奥运闭环系统中，所有参加奥运会的人都与中国普通民众完全隔离。所有参与人员每天都要接受检测。自1月23日以来，北京冬奥会上有429人检测结果呈阳性。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+澳大利亚警方让示威的COVID-19限制的抗议者在周日结束前离开首都堪培拉的占领区。警方发言人告诉路透社：”他们必须在今天之前离开“。警方拒绝透露如果抗议者违抗最后期限，他们将采取什么行动。数千人聚集在首都，到目前为止，没有一个抗议者被逮捕。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+全球各地抗议疫苗强制活动不断，各国都在渐渐放开限制和取消疫苗强制。
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+原文链接：
+[https://www.dw.com/en/covid-digest-vaccine-mandate-no-longer-necessary-eu-commissioner/a-60760531](https://www.dw.com/en/covid-digest-vaccine-mandate-no-longer-necessary-eu-commissioner/a-60760531)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+编辑，发稿 Spirit
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 
  
 

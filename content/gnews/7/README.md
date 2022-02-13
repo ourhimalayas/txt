@@ -2,8 +2,8 @@
 ---
 
 
-## 战争的残酷
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2001563/)
+## 澳大利亚运动最大的支持者就是七哥的朋友
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2001655/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

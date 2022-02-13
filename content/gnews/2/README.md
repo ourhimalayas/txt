@@ -2,8 +2,8 @@
 ---
 
 
-## 不超过三次大直播，人类将巨变
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2001598/)
+## 摩根家族的历史
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2001698/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

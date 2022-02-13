@@ -2,30 +2,20 @@
 ---
 
 
-## 中共批准辉瑞新冠口服药，打脸中医
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2001507/)
+## 大卡车事件看事件经济的脉络
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2001645/)
 
-撰稿：小毛牛
-![](https://assets.gnews.org/wp-content/uploads/2022/02/021005.jpg)辉瑞生产的新冠病毒口服药报道图片
-中共国家药监局附条件批准了Pfizer生产的Paxlovid新冠病毒口服药。药监局要求上市许可持有人限期完成附条件的要求，即时提交后续研究结果，但附带的条件细节并未透露。据称：辉瑞生产的这款新冠口服药是第一个获得中共批准的来自于外国的用于治疗新冠病毒的药物。
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-奇怪的是，其实中共早已声称其也在研制新冠病毒口服药，即由中共国科学院上海药物研究所、武汉病毒研究所、新疆理化技术研究所、中科院中亚药物研发中心等共同研发, 于2021年11月2日获批临床试验的VV116，已经在乌兹别克斯坦获得了紧急使用权。
+*发布：陶子*
 
-值得注意的是，早在2020年初，来自北京中医药大学副校长的王伟就声称：中药，清肺排毒汤，是治疗新冠肺炎的特效药，治愈出院率达99.28%，且一个疗程的费用仅需百元人民币。该院士还表示，通过基础研究可以表明，这个方子是个适用于轻型、普通型、重型新冠肺炎的通用方剂，具速效、高效、安全的特点。既然中医治愈率如此之高且便宜，为什么还要强制打疫苗？
-
-此外，令人不解的还有，既然中共已经有了自己的新冠病毒口服药，为什么还要批准辉瑞口服药，让美国佬赚钱？
-
-既然COVID-19疫苗号称可以防感染、防重症、防死亡，这对预防和应对CCCP病毒来讲已然足够。为什么还要开发口服药？
-
-显然，存在诸多的问题不能自圆其说。在搞清楚COVID-19是CCP释放的生化病毒之前，一切药物的研究都只是在愚弄百姓而已。
-
-新闻来源：[外药首次：中国批准辉瑞新冠口服药](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220212-%E5%A4%96%E8%8D%AF%E9%A6%96%E6%AC%A1-%E4%B8%AD%E5%9B%BD%E6%89%B9%E5%87%86%E8%BE%89%E7%91%9E%E6%96%B0%E5%86%A0%E5%8F%A3%E6%9C%8D%E8%8D%AF)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
-
-
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -15,83 +15,83 @@
 
 ---
 
-### [大卡车运动就是来源于七哥发起的香港卡车运动](/content/gnews/1/README.md)
+### [中共参与后的奥林匹克就是一个犯罪组织](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [不超过三次大直播，人类将巨变](/content/gnews/2/README.md)
+### [摩根家族的历史](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [无苗灭共者究竟有多大价值](/content/gnews/3/README.md)
+### [体育是个人自我的提现](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [普京必拿乌克兰](/content/gnews/4/README.md)
+### [没人看到冬奥会对我们爆料革命有多好](/content/gnews/4/README.md)
  ` 雅典娜GNotes`
 
-### [今天乌克兰的局面](/content/gnews/5/README.md)
+### [芯片原材料等暴涨的结局是什么](/content/gnews/5/README.md)
  ` 雅典娜GNotes`
 
-### [世界正在发生大战，幕后黑手就是共产党](/content/gnews/6/README.md)
+### [七哥对经济的判断，对欧洲局势的分析](/content/gnews/6/README.md)
  ` 雅典娜GNotes`
 
-### [战争的残酷](/content/gnews/7/README.md)
+### [澳大利亚运动最大的支持者就是七哥的朋友](/content/gnews/7/README.md)
  ` 雅典娜GNotes`
 
-### [2022年2月13日文贵先生直播摘要—银河系农场](/content/gnews/8/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [2022年2月13日大直播速记精萃](/content/gnews/9/README.md)
+### [大卡车运动就是学习香港卡车运动](/content/gnews/8/README.md)
  ` 雅典娜GNotes`
 
-### [中共批准辉瑞新冠口服药，打脸中医](/content/gnews/10/README.md)
- ` 澳喜特战旅Gnews`
+### [有声|奥密克戎亚变种BA.2 接种者更易感染](/content/gnews/9/README.md)
+ ` MOSREC`
 
-### [新中国联邦引领世界大卡车反抗暴政运动](/content/gnews/11/README.md)
+### [大卡车事件看事件经济的脉络](/content/gnews/10/README.md)
+ ` 雅典娜GNotes`
+
+### [有声|韩国中共病毒单日确诊创新高](/content/gnews/11/README.md)
+ ` MOSREC`
+
+### [传统银行的无耻](/content/gnews/12/README.md)
+ ` 雅典娜GNotes`
+
+### [Hpay越用越好，鼓励战友互相多用](/content/gnews/13/README.md)
+ ` 雅典娜GNotes`
+
+### [阿富汗央行称美国冻结资金的计划是“不公正的”](/content/gnews/14/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [大卡车运动就是来源于七哥发起的香港卡车运动](/content/gnews/15/README.md)
+ ` 雅典娜GNotes`
+
+### [文贵先生直播重点大纲 2022/02/13](/content/gnews/16/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [新中国联邦引领世界大卡车反抗暴政运动](/content/gnews/17/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [2月13日文贵大直播（图片8-11）](/content/gnews/12/README.md)
- ` 波士顿五月花农场`
-
-### [2月13日文贵大直播（图片4-7）](/content/gnews/13/README.md)
- ` 波士顿五月花农场`
-
-### [欧盟专员：不再需要疫苗强制](/content/gnews/14/README.md)
+### [欧盟专员：不再需要疫苗强制](/content/gnews/18/README.md)
  ` 温哥华扬帆农场`
 
-### [2月13日文贵大直播（图片1-3）](/content/gnews/15/README.md)
- ` 波士顿五月花农场`
-
-### [2022年2月13日文贵先生直播大雨围城速记](/content/gnews/16/README.md)
- ` G-时新闻`
-
-### [有声|发现艾滋病毒法诺贝尔医学奖得主 宣称疫苗对人类的危害](/content/gnews/17/README.md)
+### [有声|发现艾滋病毒法诺贝尔医学奖得主 宣称疫苗对人类的危害](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [有声|俄可能使用受美制裁的油气田供应中国](/content/gnews/18/README.md)
+### [有声|俄可能使用受美制裁的油气田供应中国](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [拜登表示美国将迅速果断地回应俄对乌克兰的任何进一步侵略](/content/gnews/19/README.md)
+### [拜登表示美国将迅速果断地回应俄对乌克兰的任何进一步侵略](/content/gnews/21/README.md)
  ` 美国政要直译推`
 
-### [有声|中华民国再指中共对台统战](/content/gnews/20/README.md)
+### [有声|中华民国再指中共对台统战](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [雅典娜时报-第203期](/content/gnews/21/README.md)
+### [雅典娜时报-第203期](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2/13银河快讯：日本考虑放松进入日本的管制;日本记者描述COVID-19的长期影响](/content/gnews/22/README.md)
+### [2/13银河快讯：日本考虑放松进入日本的管制;日本记者描述COVID-19的长期影响](/content/gnews/24/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [普京告诉拜登&#8211; 他没有解决俄罗斯的主要担忧](/content/gnews/23/README.md)
+### [普京告诉拜登&#8211; 他没有解决俄罗斯的主要担忧](/content/gnews/25/README.md)
  ` Shuizhuyu`
 
-### [加拿大总理特鲁多威胁人们参加自由卡车集会是在犯法，可能会因此失去执照和背上犯罪记录](/content/gnews/24/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [强制疫苗政策是巨大的灾难](/content/gnews/25/README.md)
+### [强制疫苗政策是巨大的灾难](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [渥太华78岁长者因支持自由车队鸣笛被警察粗暴逮捕并被罚款](/content/gnews/26/README.md)
- ` 加拿大温哥华扬帆农场视频组`
 
 ### [欧盟调查关于mRNA疫苗后月经紊乱的报告](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
