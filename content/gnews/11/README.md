@@ -2,14 +2,21 @@
 ---
 
 
-## 强制疫苗政策是巨大的灾难
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2001092/)
+## 雅典娜时报-第203期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2001175/)
 
-制作：peacelv
+#### 《雅典娜时报》汇聚全球新闻时事
 
-发稿：信心的选择
+#### 编辑：精灵蓝
+排版：小蚂蚁614
+![圖片](https://media.discordapp.net/attachments/825592691433668612/942260765686104074/155.png?width=762&amp;height=1135)![圖片](https://media.discordapp.net/attachments/825592691433668612/942260766143291462/155_1.png?width=762&amp;height=1135)
+*发布：陶子*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1.jpeg)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

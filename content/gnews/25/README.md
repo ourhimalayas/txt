@@ -2,24 +2,26 @@
 ---
 
 
-## 唯有灭共オ能消除无处不在的盲井
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2000843/)
+## 香草山翻译部周刊|2022年2月13日第35期
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2000923/)
 
-**《盲井》**这部电影真的值得我们看一下。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO.jpg)
 
-所谓的“厉害了我的国”还普遍存在拐卖人口。中共喊虽远必诛的时候，小粉红们在拥戴共产党的时候，没有想过这些底层的蝼蚁般的生活。这样的罪恶每天都在发生着。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/02/MosWeekly2022_2_13CN.png)
+文章仅代表作者本人观点，与Gnews无关
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/uyk.png)
+总编： GBWater
+编辑： Lakers
+发稿： Lakers
 
-此生不幸我们入了共匪中共CCP所祸乱的华夏，此生我们有幸参加了爆料革命，明眼开智。战友们是有使命的人，为了中国人真正的尊严和价值在战斗，也为自己的老小在战斗。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-callendar-1.jpeg)
 
-中国人权的问题真的是太可悲了。去年河南的水灾是把多个村庄变成哑巴村，没有人报道，没有人关注，事后也没有人再提起。太容易遗忘的民族，灾难才会源源不断过来。我们不能遗忘这么快，只有这些深刻的记忆，才能避免灾难远离我们中华民族。
-
-中共国没有任何的法制，这一切都是中共的恶造成的。几个老杂毛无限扩大自己家族的利益，用商鞅五术对待全体民众。正如灭共先锋郝海东先生所说，是这个体制的恶，因此必须干掉这个邪恶的根源，干掉共产党！
-
-文案编辑：文勇
-校对整理：面包树
-上传: 零点
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

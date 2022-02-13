@@ -2,37 +2,82 @@
 ---
 
 
-## 2/13银河快讯：日本考虑放松进入日本的管制;日本记者描述COVID-19的长期影响
-` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/2001171/)
+## 拜登表示美国将迅速果断地回应俄对乌克兰的任何进一步侵略
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2001326/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-53.png)[图片来源](https://english.kyodonews.net/)
-**1．经济安保法案给予国家调查企业供应商的权限**
+**白宫**：拜登总统 @POTUS 今天与乌克兰总统泽连斯基进行了交谈，明确表示美国将迅速果断地回应俄罗斯对乌克兰的任何进一步侵略。 两国领导人一致认同，有必要继续寻求外交和威慑，以应对俄罗斯的军事集结。
 
-[据NHK2月12日报道，面向强化经济安全保障，政府为半导体及医药品等民生不可或缺产品可保持安定供给，决定制定给予国家调查企业供应商权限的法律。政府计划在本月下旬在内阁议会确定规划强化经济安全保障的新法案，然后提交国会。对于稀土及用于电动车的大容量蓄电池，美国已制定支援在国内生产的方针，意图加速摆脱对中共国的依赖。日本也开始协调美国的步调。](https://www3.nhk.or.jp/news/html/20220212/k10013481171000.html?utm_int=news-business_contents_news-main_001)
 
-**2****．东京证券市场一部上市企业利益超过疫情前水准**
 
-[据NHK 2月12日报道，根据东京证券市场一部上市企业会计报告来看，从去年12月至今年9月的最终利润已经超过了中共病毒(新冠病毒Covid-19)疫情的水准。汽车生产以及消费的回复使得企业业绩的恢复更加明显。不过对于下月为止的年间业绩展望，SMBC日兴证券谈到：“由于奥密克戎的影响并未反应在各企业的年间业绩展望中，防止蔓延重点措施对经济影响到哪种地步是关键所在”。](https://www3.nhk.or.jp/news/html/20220212/k10013481161000.html?utm_int=news-business_contents_news-main_002)
+> .[@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) spoke with President Zelenskyy today to make clear the U.S. would respond swiftly and decisively to any further Russian aggression against Ukraine. The leaders agreed on the need to continue pursuing diplomacy and deterrence in response to Russia’s military build-up.
+> — The White House (@WhiteHouse) [February 13, 2022](https://twitter.com/WhiteHouse/status/1492919768290111489?ref_src=twsrc%5Etfw)
 
-**3****．第三轮疫苗职场接种开始，全日空日航捷足先登**
 
-[据共同社报道，全日空与日航于本月12日在羽田机场开始了中共病毒(新冠病毒Covid-19)疫苗的第三回职场接种。根据政府相关人士透露，这是首次在民间企业中开始第三轮职场疫苗接种。一般企业将会在本月14日那周开始第三轮接种。在12日的接种中，全日空日航两公司合计约有10人接受了接种。](https://news.yahoo.co.jp/articles/f5977f0720e4e52cad4cdd04a24d8b0b75d4d6bb)
 
-**4****．日美韩将于本月1****3****日在夏威夷召开三国外长会议**
+**美国国务卿·布林肯**：前往墨尔本参加了四方会议，去斐济与太平洋岛国领导人进行了会面，并在檀香山与日本和韩国举行了三边会议。 美国是印-太地区引以为豪的一部分，该地区对我们国家的安全和繁荣至关重要。
+【附视频，2月11日布林肯在美奥印日四边会议上的讲话】
 
-[据NHK 2月12日报道，正在访问澳大利亚的林芳正外务大臣将在日本时间13日，于夏威夷参加与韩美外长的三国外长会议。在这次会议中，三外长将对讨论如何应对反复发射弹道导弹的北韩。为出席参加美，澳，印，日四边安全对话的外长会议，林外相从11日起访问澳大利亚， 并于12日早晨和澳大利亚的马里斯·佩恩外长进行了个别会谈。](https://news.yahoo.co.jp/articles/f83584534ede48db245aa9bec9c55b1119eebb35)
 
-**5****．日本考虑从三月起放松对外国公民进入日本的管制**
 
-[据共同社报道，据某位知情者介绍，由于来自学术界和商圈的批评，日本考虑从三月起放松因防止奥密克戎扩散而对外国公民进入日本时实行的管制。现在的入境限制从去年11月底开始实施并计划到今年2月末结束。日本政府正在准备有关放松限制的具体实施细则，计划最早于下周公布。世界卫生组织WHO上月提到国际旅行限制应该被放宽因为这些措施不能有效阻止奥密克戎的传播扩散。](https://english.kyodonews.net/news/2022/02/68a458caf4f7-japan-to-consider-easing-nonresident-foreigner-entry-ban-kishida.html)
+> Had an excellent trip to Melbourne for the Quad, Fiji to meet with Pacific Island leaders, and Honolulu for a trilateral meeting with Japan and the ROK. The U.S. is a proud part of the Indo-Pacific, and this region is critically important to our nation’s security and prosperity. [pic.twitter.com/Ng8IiIhk8d](https://t.co/Ng8IiIhk8d)
+> — Secretary Antony Blinken (@SecBlinken) [February 13, 2022](https://twitter.com/SecBlinken/status/1492947628799275009?ref_src=twsrc%5Etfw)
 
-**6****．****日本记者描述了****中共病毒（****COVID-19****）****痛苦****而****长期****的****影响**
 
-[据共同社报道，2021年1月16日，共同社国内新闻部33岁女记者发现她感染上了中共病毒（新冠病毒COVID-19）。日本记者描述了中共病毒（新冠病毒COVID-19），由于症状较轻，1月后她恢复了工作。然而从那天开始，她就开始感到浑身乏力，异常疲劳，尽管体温正常，却感觉高烧在身。而4月后，症状开始加剧，导致卧床不起。到了6月体内未知的炎症令人发狂，使的她几乎想要自杀。后经70多次特殊治疗，终于在11月勉强恢复工作。现在她依然每天面对是否能维持并征集相关意见经验。](https://english.kyodonews.net/news/2022/02/b735fb355be4-feature-japanese-reporter-describes-agonizing-long-term-effects-of-covid-19.html)
 
-【日本银河系农场-阿尔法星球】
-作者：Tagomi
-校对：Windfish
+**美国国务卿布林肯**：与韩国外相郑、日本外相林志良会面。 我们的国家正在向世界展示，如果我们齐心协力，我们可以走得更远、更快。 美-日-韩三边关系对于应对最紧迫的全球挑战至关重要。
+
+
+
+> Great meeting with ROK Foreign Minister Chung and Japanese Foreign Minister Hayashi. Our countries are showing the world we can go farther and faster if we go together. The U.S.-Japan-ROK trilateral relationship is critical to address the most pressing global challenges. [pic.twitter.com/5Nz9wpFUr4](https://t.co/5Nz9wpFUr4)
+> — Secretary Antony Blinken (@SecBlinken) [February 13, 2022](https://twitter.com/SecBlinken/status/1492848464383942658?ref_src=twsrc%5Etfw)
+
+
+
+**众议员迈克·沃尔茨**：球星埃内斯·坎特@EnesFreedom 敢于发声反对 #中国共产党，为人权而战。
+NBA赞扬社会正义的激进主义，但却向埃内斯展示了大门所在 (要扫地出门) 。
+为什么？ 向中共的金钱$$$ 卑躬屈膝
+
+
+
+> .[@EnesFreedom](https://twitter.com/EnesFreedom?ref_src=twsrc%5Etfw) had the courage to speak out against the Chinese Communist Party and fought for human rights.
+> 
+> The NBA celebrated activism for social justice but showed Enes the door. 
+> 
+> Why? Bowing down to Chinese $$$
+> — Rep. Mike Waltz (@michaelgwaltz) [February 13, 2022](https://twitter.com/michaelgwaltz/status/1492910748460273665?ref_src=twsrc%5Etfw)
+
+
+
+**比尔·戈茨**：加州大学伯克利分校物理学名誉教授理查德·穆勒 (Richard Muller) 说：“当你评估这两种理论时，绝大多数人都支持实验室泄漏，以至于其他的一切都只是关于所发生事件细节的附带证据。”
+【转福克斯新闻：科学家认为冠状病毒起源于中国武汉实验室的 10 个理由
+新冠COVID19的起源在致命的流行病爆发两年后仍未确定，但实验室泄漏理论不再被广泛驳斥】
+
+
+
+> “When you evaluate the two theories, it is so overwhelmingly in favor of the lab leak that everything else is just incidental evidence about the details of what happened," said Richard Muller, emeritus professor of physics at the University of California Berkeley.” [https://t.co/b0S4qetP7O](https://t.co/b0S4qetP7O)
+> — Bill Gertz (@BillGertz) [February 13, 2022](https://twitter.com/BillGertz/status/1492887227537391618?ref_src=twsrc%5Etfw)
+
+
+
+**参议员罗杰·马歇尔** : 现在是我们将日常生活的权力和控制权从乔·拜登和福奇博士手中夺回的时候了。更多来自我接受玛丽亚节目@SundayFutures 采访，关于我打算在下周引入的立法以结束新冠 COVID 紧急状态：
+【附采访视频，马歇尔议员说明要提出法案以结束拜登的病毒大流行紧急状态及福奇的新冠疫苗强制】
+
+
+
+> It's time for us to take the power and control of our everyday lives out of the hands of Joe Biden and Dr. Fauci. More from my [@SundayFutures](https://twitter.com/SundayFutures?ref_src=twsrc%5Etfw) interview about legislation I intend to introduce next week to put an end to the COVID state of emergency: [pic.twitter.com/55bI9KI4HH](https://t.co/55bI9KI4HH)
+> — Dr. Roger Marshall (@RogerMarshallMD) [February 13, 2022](https://twitter.com/RogerMarshallMD/status/1492907226390011910?ref_src=twsrc%5Etfw)
+
+
+
+**参议员乔什·霍利**：现在我们知道了。 2016 年克林顿的竞选活动是一场犯罪活动。 支付技术高管渗透川普 (大厦) 以及白宫服务器。是时候让某人入狱了
+【附福克斯报道：克林顿竞选团队付款“渗透”川普大厦、白宫服务器以将川普与俄罗斯联系起来：达勒姆 (报告）】
+
+
+
+> Now we know. The 2016 Clinton campaign was a criminal enterprise. Paying tech executives to infiltrate Trump servers & the White House. Time for someone to go to jail [https://t.co/JmCWI8RrwW](https://t.co/JmCWI8RrwW)
+> — Josh Hawley (@HawleyMO) [February 13, 2022](https://twitter.com/HawleyMO/status/1492659767508148225?ref_src=twsrc%5Etfw)
+
+
 
  
 

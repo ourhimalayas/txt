@@ -2,31 +2,38 @@
 ---
 
 
-## TikTok，中共国和俄罗斯在与西方的数据战争中的“武器” （三）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2001150/)
+## 有声|中华民国再指中共对台统战
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2001317/)
 
-**编译：七龙珠**
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+当地时间2月10日，据台湾媒体报道，中华民国大陆委员会当天发布声明表示，台湾政府已经注意到中共近期正在加强针对台湾民众的促统认知作战，包括积极策划对在陆台胞进行的各种统战宣传工作。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-8.49.26-PM.png)
+陆委会指出，中共的这一系列行为都是企图遂行其对台统战分化的图谋。为此，台湾当局希望国民能够珍惜自由的生活，并认清中共既打又拉的手段与野心。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnipTikTok%EF%BC%8C%E4%B8%AD%E5%85%B1%E5%9B%BD%E5%92%8C%E4%BF%84%E7%BD%97%E6%96%AF%E5%9C%A8%E4%B8%8E%E8%A5%BF%E6%96%B9%E7%9A%84%E6%95%B0%E6%8D%AE%E6%88%98%E4%BA%89%E4%B8%AD%E7%9A%84%E6%AD%A6%E5%99%A8.png)图片来源：vozpopuli.com
+陆委会副主任邱垂正还解释道，中华民国是主权国家，台湾更是对自由民主的体制充满信心，其从来都不是中共国的一部分。同时，绝大多数的国民既不会配合中共的统战作为，更不会附和其意识形态与政治立场。相反的，中共拉拢并分化台湾社会只会让台湾民众徒增反感。
 
-虚假新闻，以数据为生的狙击手
+另外，针对美国对台出售爱国者导弹系统一事，邱垂正强调，中华民国有权与包含美国在内的国际社会进行广泛的合作，也绝不会接受中共国台办、外交部和军方的错误威胁言论。邱垂正也要求中共当局立即停止对台湾的挑衅与威胁行径。
 
-如果我们前面谈到从互联网的虚拟洪流中的任何地方提取数据的可能性，这个过程也可以反向进行。我们正在谈论社交网络上的假信息和假新闻的接种。想想唐纳德-川普在美国的选举以及几个月前在Facebook上发生的事情。选举结束后，随着川普坐上总统宝座，该社交网络估计在投票前发布了8万个来自俄罗斯的假新闻。
+文字版原文：[中华民国再指中共对台统战](https://gnews.org/zh-hans/1994834/)
 
-没有人可以免罪。Facebook在2018年暂停了剑桥分析公司的账户，这家咨询公司在2016年期间为唐纳德-川普的选举活动提供服务。暂停的原因是它违规使用和操纵了马克-扎克伯格的社交网络的5000万用户的信息。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-据《纽约时报》、《卫报》和《观察家报》报道，Facebook数据库中的信息是由一名外部研究人员提取的，他声称是出于学术目的需要，但这是在Facebook上的使用政策所禁止的。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-我们必须知道他们这么做的目的，为了锁定假新闻或将假账户引向某个目标，例如可以改变选票，人们需要了解候选人，这样的假信息就发挥它的效力，这就是人工智能的关键所在。它能够知道用户是否有这样或那样的政治倾向，以便用加强他们偏见的虚假新闻来喂养他们的投票感。这怎么可能是危言耸听的阴谋论，他们可以定点向指定的人推出对他们要投票的政党或候选人的可信度产生怀疑的新闻。在这种情况下，数据是关键，是原材料。这些社交平台就变成了金匠，这就是为什么这些数据对大国如此重要。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-新闻来源：[vozpopuli.com] [TikTok, el ‘arma’ de China y Rusia en la guerra del dato contra Occidente](https://www.vozpopuli.com/actualidad/tiktok-arma-china-rusia.html)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-* * *
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-*审核：Aries的星
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1.jpeg)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

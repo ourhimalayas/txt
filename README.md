@@ -15,115 +15,115 @@
 
 ---
 
-### [有声|中华民国再指中共对台统战](/content/gnews/1/README.md)
+### [2月13日文贵大直播（图片1-3）](/content/gnews/1/README.md)
+ ` 波士顿五月花农场`
+
+### [2022年2月13日文贵先生直播大雨围城速记](/content/gnews/2/README.md)
+ ` G-时新闻`
+
+### [有声|发现艾滋病毒法诺贝尔医学奖得主 宣称疫苗对人类的危害](/content/gnews/3/README.md)
  ` MOSREC`
 
-### [2022.2.13大直播后记：大卡车运动来源于七哥](/content/gnews/2/README.md)
+### [新中国联邦铸币权设计初探](/content/gnews/4/README.md)
+ ` 喜马拉雅德国纽伦堡正义农场`
+
+### [有声|俄可能使用受美制裁的油气田供应中国](/content/gnews/5/README.md)
+ ` MOSREC`
+
+### [拜登表示美国将迅速果断地回应俄对乌克兰的任何进一步侵略](/content/gnews/6/README.md)
+ ` 美国政要直译推`
+
+### [有声|中华民国再指中共对台统战](/content/gnews/7/README.md)
+ ` MOSREC`
+
+### [2022.2.13大直播后记：大卡车运动来源于七哥](/content/gnews/8/README.md)
  ` 雅典娜GNotes`
 
-### [文耀时间｜战友实例分享私人信托设立（二） 上期节目答疑 模拟器计算财富 欧洲信托信息(8)](/content/gnews/3/README.md)
+### [文耀时间｜战友实例分享私人信托设立（二） 上期节目答疑 模拟器计算财富 欧洲信托信息(8)](/content/gnews/9/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [乌克兰俄罗斯危机发酵 飞往乌克兰的航班被迫停飞](/content/gnews/4/README.md)
+### [乌克兰俄罗斯危机发酵 飞往乌克兰的航班被迫停飞](/content/gnews/10/README.md)
  ` 蓝莲花农场`
 
-### [雅典娜时报-第203期](/content/gnews/5/README.md)
+### [雅典娜时报-第203期](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2/13银河快讯：日本考虑放松进入日本的管制;日本记者描述COVID-19的长期影响](/content/gnews/6/README.md)
+### [2/13银河快讯：日本考虑放松进入日本的管制;日本记者描述COVID-19的长期影响](/content/gnews/12/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [TikTok，中共国和俄罗斯在与西方的数据战争中的“武器” （三）](/content/gnews/7/README.md)
+### [TikTok，中共国和俄罗斯在与西方的数据战争中的“武器” （三）](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [普京告诉拜登&#8211; 他没有解决俄罗斯的主要担忧](/content/gnews/8/README.md)
+### [普京告诉拜登&#8211; 他没有解决俄罗斯的主要担忧](/content/gnews/14/README.md)
  ` Shuizhuyu`
 
-### [加拿大总理特鲁多威胁人们参加自由卡车集会是在犯法，可能会因此失去执照和背上犯罪记录](/content/gnews/9/README.md)
+### [加拿大总理特鲁多威胁人们参加自由卡车集会是在犯法，可能会因此失去执照和背上犯罪记录](/content/gnews/15/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [《蓝枫法律》第四十二期 喜支付（HPAY）功能介绍和金融税务专题](/content/gnews/10/README.md)
+### [《蓝枫法律》第四十二期 喜支付（HPAY）功能介绍和金融税务专题](/content/gnews/16/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [强制疫苗政策是巨大的灾难](/content/gnews/11/README.md)
+### [强制疫苗政策是巨大的灾难](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [文耀时间｜战友实例分享私人信托设立（二） 上期节目答疑 模拟器计算财富 欧洲信托信息(7)](/content/gnews/12/README.md)
+### [文耀时间｜战友实例分享私人信托设立（二） 上期节目答疑 模拟器计算财富 欧洲信托信息(7)](/content/gnews/18/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [家庭反洗脑序列：第47篇 梦境](/content/gnews/13/README.md)
+### [家庭反洗脑序列：第47篇 梦境](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [渥太华78岁长者因支持自由车队鸣笛被警察粗暴逮捕并被罚款](/content/gnews/14/README.md)
+### [渥太华78岁长者因支持自由车队鸣笛被警察粗暴逮捕并被罚款](/content/gnews/20/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [伊内斯-坎特被交易到火箭队后又被抛弃](/content/gnews/15/README.md)
+### [伊内斯-坎特被交易到火箭队后又被抛弃](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [TikTok，中共国和俄罗斯在与西方的数据战争中的“武器”（一）](/content/gnews/16/README.md)
+### [TikTok，中共国和俄罗斯在与西方的数据战争中的“武器”（一）](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [欧盟调查关于mRNA疫苗后月经紊乱的报告](/content/gnews/17/README.md)
+### [欧盟调查关于mRNA疫苗后月经紊乱的报告](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2月13日文贵大直播要点（图片）](/content/gnews/18/README.md)
- ` 波士顿五月花农场`
-
-### [【秘翻在线】美国的制裁威胁能否阻止俄罗斯的入侵？](/content/gnews/19/README.md)
+### [【秘翻在线】美国的制裁威胁能否阻止俄罗斯的入侵？](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [香草山翻译部周刊|2022年2月13日第35期](/content/gnews/20/README.md)
+### [香草山翻译部周刊|2022年2月13日第35期](/content/gnews/25/README.md)
  ` 纽约香草山MOS01`
 
-### [MV版Hcoin To the Moon上线66天第48次位列澳门iTunes热门MV榜首](/content/gnews/21/README.md)
+### [MV版Hcoin To the Moon上线66天第48次位列澳门iTunes热门MV榜首](/content/gnews/26/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美联储激进加息预期缓解，期货扭转隔夜跌势](/content/gnews/22/README.md)
+### [美联储激进加息预期缓解，期货扭转隔夜跌势](/content/gnews/27/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [维吾尔族女运动员点燃冬奥圣火 中共欲盖弥彰](/content/gnews/23/README.md)
- ` 焦點20分`
-
-### [澳大利亚掀起了反疫苗令浪潮](/content/gnews/24/README.md)
+### [澳大利亚掀起了反疫苗令浪潮](/content/gnews/28/README.md)
  ` 澳喜特战旅Gnews`
 
-### [唯有灭共オ能消除无处不在的盲井](/content/gnews/25/README.md)
- ` 焦點20分`
-
-### [文贵爆料 2.13：没有雪的冬奥 被污染的国际组织](/content/gnews/26/README.md)
+### [文贵爆料 2.13：没有雪的冬奥 被污染的国际组织](/content/gnews/29/README.md)
  ` 秘密翻译组-原创组`
 
-### [NFSC新闻、G|TV新闻访谈简报|2022年2月13日早](/content/gnews/27/README.md)
+### [NFSC新闻、G|TV新闻访谈简报|2022年2月13日早](/content/gnews/30/README.md)
  ` 纽约香草山MOS01`
 
-### [新中国联邦行的正道主义和救命主义 获得全世界坚定盟友的支持](/content/gnews/28/README.md)
- ` 焦點20分`
-
-### [中共试图改变世界其他国家的法律和规则 只为了引渡郭文贵先生](/content/gnews/29/README.md)
- ` 焦點20分`
-
-### [锁链女案戳破盛世脓包 中共人权恶劣引爆舆情危机](/content/gnews/30/README.md)
+### [锁链女案戳破盛世脓包 中共人权恶劣引爆舆情危机](/content/gnews/31/README.md)
  ` 日本东京方舟农场`
 
-### [中共国批准辉瑞新冠口服药](/content/gnews/31/README.md)
+### [中共国批准辉瑞新冠口服药](/content/gnews/32/README.md)
  ` 日本东京方舟农场`
 
-### [赵立坚反咬美国经济胁迫](/content/gnews/32/README.md)
+### [赵立坚反咬美国经济胁迫](/content/gnews/33/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美国及世界疫情简报 （02-13-2022）](/content/gnews/33/README.md)
+### [美国及世界疫情简报 （02-13-2022）](/content/gnews/34/README.md)
  ` 波士顿五月花农场`
 
-### [众议院保守派提出对中共数千名官员的制裁法案](/content/gnews/34/README.md)
+### [众议院保守派提出对中共数千名官员的制裁法案](/content/gnews/35/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [发现奥米克戎的博士被欧洲政府打压，不能透露感染后的轻症特性](/content/gnews/35/README.md)
+### [发现奥米克戎的博士被欧洲政府打压，不能透露感染后的轻症特性](/content/gnews/36/README.md)
  ` Itana`
 
-### [中共国突发新闻：沈阳一公交车爆炸1死42伤](/content/gnews/36/README.md)
- ` 【🌹玫瑰新闻】`
-
-### [新西兰奥克兰市医院13人确诊感染中共病毒](/content/gnews/37/README.md)
+### [中共国突发新闻：沈阳一公交车爆炸1死42伤](/content/gnews/37/README.md)
  ` 【🌹玫瑰新闻】`
 
 ### [2/13/2022国内经济财经周报：1月新增贷款近4万亿，M2同比增速近10%；深圳春节楼市仅过户一套，楼市或难小阳春](/content/gnews/38/README.md)
