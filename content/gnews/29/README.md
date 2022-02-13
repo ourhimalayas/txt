@@ -2,14 +2,18 @@
 ---
 
 
-## 有声|2022年2月9日 晚 新中国联邦新闻、GTV新闻访谈简报
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1998077/)
+## 有声|美国防疫政策或将面临全面调整
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1998089/)
 
 配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-8.png)
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+2月7日，据当地媒体消息显示，美国多个民主党州宣布，本周起将逐渐解除当地针对中共病毒疫情的口罩限制。
 
+据悉，加利福尼亚州、康涅狄格州、特拉华州、新泽西州和俄勒冈州的民主党州长当天先后宣布了取消强制要求当地民众在室内或学校佩戴口罩的计划。而白宫发言人普萨基对此回应称，白宫虽然反对，但并不会干涉这些州的解封计划。
 
-文字版原文：[2022年2月9日 晚 新中国联邦新闻、GTV新闻访谈简报](https://gnews.org/zh-hans/1982247/)
+分析人士则指出，虽然许多共和党的执政州早已取消了这些疫情强制措施，但此番民主党州的突发行动无疑给联邦政府的防疫政策施加了来自内部的巨大压力。如今民主党执政州的严厉管控政策开始松动，加之民众对联邦政府推行的中共病毒疫苗强制接种令的大力反对，这或可预示着政府的封锁措施和强制疫苗令将在全美范围内逐渐瓦解。
+
+文字版原文：[美国防疫政策或将面临全面调整](https://gnews.org/zh-hans/1993305/)
 
 音频处理：呼吸的雾霾（文小呼吸）
 发稿：呼吸的雾霾（文小呼吸）

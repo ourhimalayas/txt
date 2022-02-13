@@ -2,37 +2,33 @@
 ---
 
 
-## 澳洲迄今最大的车队集结堪培拉，抗议疫苗强制
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1997837/)
+## 有声|纽约白尾鹿感染奥密克戎恐成新变种宿主
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1998088/)
 
-#### 澳洲新闻时事动态，尽在雅典娜【澳洲热点】
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+据纽约时报8日报道，研究人员表示，史泰登岛上的白尾鹿身上验出中共病毒变种爱密克戎，人们担忧美国3000万只白尾鹿可能成为中共病毒新变种的宿主。
 
-整理/编辑：小鱼儿
+路透社报导，研究人员对在纽约州史塔登岛抓到的131只鹿采集血液与鼻咽拭子样本。宾州州立大学科学家率领的研究人员表示，检验结果显示这群白尾鹿先前感染过新型冠状病毒，容易再度感染新变种。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/12-11.png)图片来源：The Canberra Times
+科学家们表示，如果研究结果成立，并且鹿可以反复被新变种重新感染，就会增加动物成为病毒宿主的风险。 这是首度在野生动物上侦测到奥密克戎变种。与此同时，美国民众感染奥密克戎的病例数已经逐渐减缓下来。 美国农业部表示，没有证据显示动物正把病毒传给人类，大多数中共病毒感染是出现在与中共病毒患者有过近距离接触的情况下。 目前已经在美国15 个州的鹿身上发现了中共病毒。
 
 
-当地时间2月12日，据反抗（Rebelnews）新闻报道，大量的车队前往堪培拉，参加反疫苗强制抗议，是迄今为止规模最大的一次。随着反疫苗强制的“前往堪培拉车队”抗议活动，在首都获得势头，一大群人涌向堪培拉。
 
-昨晚，随着汽车、大篷车、卡车和公共汽车从各个州涌入这座城市，交通陷入停顿。
+文字版原文：[纽约白尾鹿感染奥米炕 恐成新变种宿主](https://gnews.org/zh-hans/1992919/)
 
-今天，人群在英联邦公园聚集，然后向国会大厦进发——在那里有一系列演讲者向人群发表讲话。该活动的直播难以在网上播放，许多人在油管（YouTube） 和 脸书（Facebook） 上显示“无信号”的消息。
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-数千人在议会外高呼“全部解雇”，抗议者对（政府）取消疫苗强制和限制缺乏行动，感到沮丧。人群中的许多人，因为这些疫苗强制，而失去了生计。其中，一些消防员、护理人员、护士和飞行员穿着，他们过去，每天工作时穿的制服。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-澳洲民众在觉醒——为了自由和安全，他们在进行和平的抗议。为澳洲民众感到骄傲。
-
-参考新闻：[Australia’s BIGGEST convoy descends on the capital](https://www.rebelnews.com/australias_biggest_convoy_descends_on_the_capital)
-
-发布：tianzhihuan
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,35 +2,22 @@
 ---
 
 
-## 日本《疫苗后遗症》电影公映
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1998215/)
+## 台湾男子注射疫苗后死亡获赔30万台币
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/1998284/)
 
-作者：日本方舟农场 – Andy5
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-2月11日，由日本长尾诊所院长——长尾和宏医生作为导演的纪录片《疫苗后遗症》，举行了最后一场在东京的公映。本片在上映的两周前，就将690个席位销售一空。而在大阪，目前所有2月的场次均已爆满。该片导演长尾医生曾收治过53名因疫苗副作用造成后遗症的患者。
+作者：纽约磐石农场—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+台媒2月8日报道，台湾在大规模接诊中共病毒疫苗后，陆续出现死亡案例。根据台湾卫生福利部预防接种受害救济小组，最新审议结果，台南市一名接种莫德纳疫苗的男子死亡案例，其家属获得30万台币救济，是目前莫德纳疫苗救济金额的最高个案。
+![莫德納疫苗。本報資料照片](https://pgw.udn.com.tw/gw/photo.php?u=https://uc.udn.com.tw/photo/2022/02/08/realtime/15861604.jpeg&amp;x=0&amp;y=0&amp;sw=0&amp;sh=0&amp;sl=W&amp;fw=800&amp;exp=3600&amp;w=930)
+据了解，该男子在接种莫德纳疫苗的第三天，感到胸痛、全身酸痛和呼吸困难，之后失去意识而死亡。而台南市去年7月，也曾有一名64岁男子，在注射莫德纳疫苗后的次日死亡。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/9-11.png)
+据悉，之前台湾政府救济金额较高的个案是阿斯利康疫苗，最高赔偿金额曾有90万至120万台币不等。
 
-影片上映前，长尾医生发表了20分钟的演讲，讲述他为何要制作这部影片以及上映前后的故事。
+参考链接：[注射莫德納疫苗隔天死亡 台南男子家屬獲賠30萬元](https://udn.com/news/story/122190/6082938?from=udn-catehotnews_ch2)
 
-首先他提到这部影片的初衷有两个，一是不满媒体每天大肆宣传鼓动人们去接种这个成分都没有研究清楚的疫苗；二是希望阻止将从3月开始的对5～11岁儿童的接种。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-谈及为何要反对现在的所谓疫苗，他举例称，他接收了一位高中生的病患，接种疫苗前是学校名列前茅的优等生，却在接种后出现记忆障碍，成绩滑到谷底，而这样的例子在影片中多达十几位。而厚生劳动省并没有仔细调查疫苗后遗症，甚至连真实死亡人数以及原因都没有进行过调查。
-
-在日本，各大院线都禁止《疫苗后遗症》这部影片的上映，只有为数不多的小剧场勉强排出日程。并且这部影片已经被Youtube等媒体封杀。
-
-参考链接：
-
-- [https://www.gettr.com/post/pu0b8959f9](https://www.gettr.com/post/pu0b8959f9)
-- [20220128日本紀錄片「疫苗副作用」預告片](https://www.gettr.com/post/pr7v6gcdfb)
-- [2022年1月29日(土) 大阪シアターセブンにて緊急上映会決定！](https://vaccine-kohisho-movie.com/)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
-
-总编：飞虹
-编辑：飞虹
-校正/发稿：海阔天空1
+编辑/校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

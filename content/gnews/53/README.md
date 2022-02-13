@@ -2,10 +2,10 @@
 ---
 
 
-## 班农先生谈奥运选手梅尔曼斯被隔离向世界哭诉
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1993488/)
+## Aimee McBride用数据回击FDA审议5岁以下孩童紧急使用授权
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1994011/)
 
-02/07/2022 班农先生谈比利时选手梅尔曼斯被隔离向世界哭诉：世界上最优秀的选手们在中共种族灭绝奥运中，遭到监狱犯人般待遇。
+02/09/2022 美国“儿童健康防卫”组织的市场营销经理Aimee McBride用研究数据反对给孩童接种中共病毒疫苗。美国食药监局的疫苗与相关生物制品咨询委员会将于2月15日审议是否针对6个月到5岁年龄组批准紧急使用授权。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
