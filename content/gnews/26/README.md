@@ -2,52 +2,43 @@
 ---
 
 
-## 魁北克省出现两组示威者，支持卡车司机，反对卡车司机，警察迅速将两组人分开
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1996815/)
+## 中共治下的八孩母亲与孟晚舟、彭丽媛
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1996845/)
 
-**编译：16626**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/EC995E22-5228-4AA0-B340-9E05BAC22D4A.png)**图片来源：截屏于**[**https://www.tvanouvelles.ca/2022/02/12/camionneurs-et-mesures-sanitaires-les-pour-et-les-contre-manifestent-a-montreal**](https://www.tvanouvelles.ca/2022/02/12/camionneurs-et-mesures-sanitaires-les-pour-et-les-contre-manifestent-a-montreal)**  **
-**两组示威者出现，警察迅速将两组人分开**
+**【国内新闻短评】**
 
-周六（2022 年 2 月 12 日）早上，卡车司机（示威）的支持者和反对者在蒙特利尔的贾里公园（parc Jarry）附近举行示威。
+**环球网2022年2月10日报道：徐州公布“丰县生育八孩女子”事件调查处理情况：三人被采取刑事强制措施**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/avwz6-pi358.jpg)**图片来源：洛杉矶盘古农场小蔡（爱画画）制作**![](https://assets.gnews.org/wp-content/uploads/2022/02/kkhu.jpg)
+**短评：**
 
-蒙特利尔市警察局 (SPVM) 的警察迅速将聚集的两组示威者（两组示威者：支持卡车司机，反对卡车司机）分开。
+中共徐州发布大致内容：1）身份确定。2）三位替罪羊被采取刑事强制措施。3）当和政府组织多方关爱“八孩母亲”其子女及老人等。总之，就是党和政府行动迅速，处理果断、正确，对民关爱有加。
 
-（2022 年 2 月 12 日）上午 10 点 20 分左右，支持卡车司机的示威活动平静地开始了。
+对于徐州丰县“八孩母亲”事件，自事件“爆料”起，中共徐州市委市政府已做了多次欲盖弥彰而自相矛盾的发布，同时，国内上亿网民及海外众多媒体纷纷发声至今不断，有义愤者、有责问者、有扒料者、有洗地者……几日前笔者曾写过一文，题为《江苏丰县八孩母亲事件是集体、全面的犯罪》（链接：https://gnews.org/zh-hans/1967755/）。对此笔者不再赘述。今日，看到中共徐州政府的“伟光正”发布，惊诧之余，不禁想起了同为中国女性的孟晚舟和彭丽媛。
 
-**一组示威者：支持卡车司机  **
+作为一个卷入美国制裁伊朗案件及其间谍案的犯罪嫌疑人孟晚舟，中共政府动用了一切国家力量，甚至不惜使用下流的“人质外交”对一个拥有多国国籍的女性进行营救，在其达成司法协议“释放”回国时，受到了英雄般的欢迎，并唤起了众多“爱国者”的高潮、博取了众多红粉脑残的热泪。且不论中共出于何种阴暗目的引渡孟晚舟“回国”，相比丰县“八孩母亲”被拐卖、被精神病、被结婚、被生八个孩子、被锁狗链；同为“厉害国”女性，同在中共的“光辉照耀”之下，却在24年里从政府到村民到她孩子，对她集体沉默并共谋戕害。这难道仅仅是出生身份造就的？
 
-![](https://gnews.org/40c02b72-7bea-40c4-98bb-a699df8db3d2)**图片来源：****截屏于**[**https://www.tvanouvelles.ca/2022/02/12/camionneurs-et-mesures-sanitaires-les-pour-et-les-contre-manifestent-a-montreal**](https://www.tvanouvelles.ca/2022/02/12/camionneurs-et-mesures-sanitaires-les-pour-et-les-contre-manifestent-a-montreal)** ****，****一组示威者：支持卡车司机  **
+中共从军委到军区到军以上单位自上而下养着众多歌舞军妓团，最高级别的歌舞军妓团有总政、海政、空政、二炮星火等。这些歌舞军妓享用着奴隶们的血汗，甚至享受着文职上将、中将军衔和待遇，却只做着二件事，1）洗脑基层官兵和全国奴隶，2）作为首长的宠玩。其中女妓最著名的得宠者当属“隐国母”宋祖英和“国母”彭丽媛。“国母”彭丽媛不仅拥有少将军衔和五个教授头衔，同时她是联合国教科文组织“促进妇女儿童教育特使”。且不论彭丽媛与“八孩母亲”命运的天壤之别，作为“妇女儿童特使”并被红粉脑残爱称为“彭麻麻”的国母，是否应该对得起这一身份和爱戴，对“八孩母亲”事件有所表示？也许这一事件已经猛抽了她的耳光，使她无颜再做任何发声，亦或“特使国母彭麻麻”本就不屑关注众多“八孩母亲”的厄运。
 
-**两组示威者之间（相互对峙）的紧张情绪是显而易见的**
+因为妇女同为母亲，孟晚舟以犯罪嫌疑人之身，中共却可以不惜一切进行“营救”；彭丽媛可以唱歌唱成上将、国母、特使；而同为妇女同为母亲的“八孩母亲”24年的被摧残蹂躏，却是在当地政府的支持和默许之下。三者同在中共治下，相互对比，中共的邪恶不言而喻。
 
-两组示威者之间（相互对峙）的紧张情绪是显而易见的，但是蒙特利尔市警察局SPVM表示，没有看到任何（冲突）爆发。
+同为妇女同为母亲，犯罪嫌疑人孟晚舟收割了爱国脑残红粉的自豪、同情、膜拜和热泪；歌舞军妓彭丽媛让奴隶们仰视、爱戴、跪舔。而面对同为妇女同为母亲的“八孩母亲”，奴隶们却有意无意地参与了犯罪，脑残红粉们却选择了沉默无视。这种底层的奴性、愚昧及其无意识集体犯罪比中共的邪恶更可怕、更悲哀。
 
-**另一组示威者：反对卡车司机**
+中国这块土地上的恶是奴隶主和奴隶之间的互相造就。中共塑造了奴隶们的奴性、懦弱，愚昧和冷漠；奴隶们成就了中共的谎言、压榨、残暴和为所欲为。对比“八孩母亲”与孟晚舟、彭丽媛的待遇和命运，结合徐州公布的“丰县生育八孩女子”事件调查处理情况，再次充分证明了这一结论。
 
-![](https://gnews.org/855a1bf9-e148-42e4-bb9a-46227bba8f3b)**图片来源：****截屏于**[**https://www.tvanouvelles.ca/2022/02/12/camionneurs-et-mesures-sanitaires-les-pour-et-les-contre-manifestent-a-montreal**](https://www.tvanouvelles.ca/2022/02/12/camionneurs-et-mesures-sanitaires-les-pour-et-les-contre-manifestent-a-montreal)** **** ****，****另一组示威者：反对卡车司机**
+**文章观点仅代表作者，与Gnews 平台无关**
 
-据悉，在这次示威结束后，卡车司机将离开贾里公园 Jarry Park 加入蒙特利尔的（其它）示威。
+**新闻链接：**
+[https://china.huanqiu.com/article/46lK9FXrWFW](https://china.huanqiu.com/article/46lK9FXrWFW)
 
-另外，Gnews（2022 年 2 月 10 日）发表一篇题为《魁北克省勒戈（Legault）政府指责反对党纵容示威者的武装, [https://gnews.org/zh-hans/1987160/](https://gnews.org/zh-hans/1987160/)  》的文章报道，上周末在魁北克省举行的卡车司机示威活动的组织者之一表示，有些人已经准备好拿起武器。魁北克省省长，弗朗索瓦·勒戈（François Legault），指责反对党纵容某些反卫生措施抗议者发出的武装暴力威胁。
+素材：洛杉矶盘古农场 — 心照
+评论：洛杉矶盘古农场 — 心照
+编审：洛杉矶盘古农场 — 柯震恶
+发布：洛杉矶盘古农场 —彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-在2022年02月09日文贵大直播中，七哥讲到：
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-*“**…**被共产党及完全失败的人控制着，小土豆完全是痴心的疯子。共产党希望加拿大和美国越乱越好，但这正不是我们希望发生的。”*
-
-我们谴责并反对暴力示威，我们相信魁北克省，乃至加拿大的公共卫生行政措施很快会发生变化。
-
-**参考资料**： [Camionneurs et mesures sanitaires: les pour et les contre manifestent à Montréal](https://www.tvanouvelles.ca/2022/02/12/camionneurs-et-mesures-sanitaires-les-pour-et-les-contre-manifestent-a-montreal)
-
-**编辑：LILY**
-
-**发布：歪桑**
-
-20220212
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3-4.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

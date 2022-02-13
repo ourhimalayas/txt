@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/13/2022 12:52 AM (UTC)`
+
+2/11/2022 Miles Guo: The CCP is propagating Eileen Gu on a massive scale to cover up the chained woman incident by using the so-called "positive energy" of the Winter Olympics. The chained woman is a family member of a CCP member, and the incident has made everyone in the CCP worry about themselves, and this will certainly provoke the collapse inside the CCP!<br/><br/>2/11/2022 文贵直播: 中共大肆宣传谷爱凌意在利用冬奥会的所谓正能量掩盖锁链女事件；锁链女是共产党员的家人，此事令中共人人自危，必将激起中共党内的土崩瓦解！<br/>
+![img](https://media.gettr.com/group26/getter/2022/02/13/00/21ee1ca3-f151-e081-1d0d-93f530e1fdb0/out.jpg)
+
+---
+
+`@miles 2/13/2022 12:47 AM (UTC)`
+
+2/11/2022 Miles Guo: What are the implications of the Eileen Gu incident? The CCP has changed the rules of the Olympics via fabrication and deception. This is exactly the same as the 76 lawsuits filed against me in the US by the CCP, which seeks to use falsification and fraud to change the foundation of the US - the rule of law.<br/><br/>2/11/2022 文贵直播：谷爱凌事件体现了什么？共产党用造假和欺骗改变奥林匹克规则，这和共产党在美国告文贵的76个官司如出一辙，试图用造假和欺骗改变美国赖以生存的基石 - 法律<br/>
+![img](https://media.gettr.com/group37/getter/2022/02/13/00/d8448c02-1540-9b96-f24b-1eeb683ba9cf/out.jpg)
+
+---
+
+`@miles 2/13/2022 12:41 AM (UTC)`
+
+2/11/2022 Miles Guo: The CCP uses its monopoly of the market to hold the world hostage, causing serious consequences in Hollywood, Wall Street, Davos, and the world's media. The more extreme and insane the enemy's lies are, the greater the power of the truths will be and the closer we are to our goal of the Himalaya.<br/><br/>2/11/2022 文贵直播：中共用其垄断的市场来绑架全世界，在好莱坞、华尔街、达沃斯和世界媒体造成了严重后果；敌人的谎言越极端、越疯狂，真相的力量就越大，而我们离喜马拉雅会更近<br/><br/><br/>
+![img](https://media.gettr.com/group20/getter/2022/02/13/00/9d9505ed-bbeb-94c4-a493-0173f0febd86/out.jpg)
+
+---
+
 `@miles 2/12/2022 9:13 PM (UTC)`
 
 👍👍Dr. Roger Hodkinson (Pathologist, CEO and Medical Director of MedMalDoctors):<br/>There is an overwhelming consensus that nothing worked. Nothing could, did and will work. The two principal medical ethics have been trampled on by provincial and international medical institutions as well as this government: First DO NO HARM and INFORMED CONSENT. All doctors and surgeons in global medical institutions that do not tell the TRUTH and enforce mandatory COVID vaccines are co-conspirators with government in state-sanctioned murders. TRUTH MATTERS !<br/><br/>👍👍Roger Hodkinson博士 (病理学家、MedMalDoctors CEO兼医学主任):<br/>有一个压倒性的共识：疫苗没有任何作用，疫苗不能、不起、也不会有任何作用。两个主要的医学伦理被省内和国际医疗机构以及政府践踏了：不伤害和知情同意权。所有不告知人们真相且强制中共病毒疫苗接种的全球医疗机构的医生和外科医生都是政府认可的谋杀案的同谋者。
@@ -132,29 +153,6 @@
 
 2/9/2022 Miles Guo: How many heads of state that the CCP’s Foreign Ministry had claimed would attend the Winter Olympics failed to show up? The CCP has been attempting to maintain the illusion of the warm-up of the Since-US relationship by squandering the Chinese Lao Baixing’s hard-earned money. Before Putin left Beijing, he revealed the truth about the opening ceremony of the Winter Olympics by saying that there was virtually nobody on site!<br/><br/>2/9/2022 文贵直播：有多少中共外交部口口声声说要来冬奥会的外国领导人放了鸽子？中共竟拿着老百姓的血汗钱去维系中美关系回暖的假象；普京离开前一语道破开幕式真相 - 现场根本没人！<br/>
 ![img](https://media.gettr.com/group3/getter/2022/02/10/22/0d434338-13b0-159a-0d28-dae41ae4e77f/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@s7gril 2/10/2022 7:30 PM (UTC)`
-
-EP9: The Villains. Let's tear down the monstrous lies of this despicable #HBO #VICE production with TRUTH!  第九集：恶棍。让我们用真相揭露这部卑鄙的，充满谎言的 #HBO #VICE 制作 ！   #isobelyeung #vice @miles  #graphika  #jackstubbs #foreigninfluenceoperations #ccprunningdog #thevillans  #hbovice訪談真相 #伪类 <br/>#伪民运  #deception #unrestrictedwarfare #antsinaweb #takedowntheccp #weijianshan #单伟健 #ccpspies
-![img](https://media.gettr.com/group22/origin/2022/02/10/19/2169fd5d-34f5-9452-5d4a-2d5d21afa517/out.jpg)
-
----
-
-`@miles 2/10/2022 3:37 PM (UTC)`
-
-2/9/2022 Miles Guo: The CCP will technically become the defendant in the UBS case. UBS sold my stocks to a CCP-controlled fund by force and subsequently became the only foreign bank to receive the financial license from the CCP. Due to such “coincidences”, UBS will have no choice but to disclose its collusion with the CCP. So, the CCP is doomed!<br/><br/>2/9/2022 文贵直播：UBS案子的对方将变成中共！UBS将文贵的股票强买强卖给了中共的基金，并随后成为唯一获得中共金融牌照的外国银行，这些“巧合”让UBS将不得不把它和中共的勾兑和盘托出，中共完蛋了！<br/>
-![img](https://media.gettr.com/group29/getter/2022/02/10/15/03eafc42-80ae-a312-787a-4bf7d15d59f5/out.jpg)
-
----
-
-`@miles 2/10/2022 3:30 PM (UTC)`
-
-2/9/2022 Miles Guo: It is outrageous that UBS sold my family's stocks to the CCP-related funds in 20 seconds, and the people involved will eventually appear in court to explain the whereabouts of the stocks and how they were connected to the CCP. UBS will have no choice but to submit to the court the information regarding its secret deposits and client list<br/><br/>2/9/2022 文贵直播：UBS竟然在20秒内就把文贵家族的股票卖给了中共的基金；相关人士最终将出庭解释股票的下落以及他们是如何跟中共建立联系的；UBS将不得不向法庭提交其秘密存款信息和秘密客户名单<br/>
-![img](https://media.gettr.com/group22/getter/2022/02/10/15/d2f9064d-5feb-be44-d566-36a9b8e47327/out.jpg)
 
 ---
 
