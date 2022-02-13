@@ -2,14 +2,11 @@
 ---
 
 
-## 数字货币势不可挡（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1997748/)
+## 永远珍惜G系列平台
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/1997787/)
 
 #### 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王
 视频定位：BENJ1，WEI
-
-往期回顾：
-[数字货币势不可挡（一）](https://gnews.org/zh-hans/1997741/)
 
 *发布：玉米地守望者*
 

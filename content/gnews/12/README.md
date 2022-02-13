@@ -2,55 +2,56 @@
 ---
 
 
-## 山下传来女人的哭救声之三
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1997801/)
+## 德州高二学生和伊州高四学生在同一天晚上的篮球比赛中倒地去世
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1997812/)
 
-作者：纽约香草山健身部 – 杉杉
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-50.png)图片来自视频截图
+据《门户专家网》作者吉姆·霍夫特（Jim Hoft）2022 年 2 月 11 报道
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/gnews-logo-2.jpeg)
-
-
-
-出生在恶魔共产党统治下，三个女娃子有着不同的悲惨命运。近期被披露的沸沸扬扬的共匪国黑幕，徐州八孩母亲的身世，她代表着千千万万个悲惨女人们的缩影。她也许就是山下那凄惨哭救的女人，她也许就是一出生就遭抛弃的她们！
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture-12.jpg)
-（一）被丢弃在海滩上的她
-
-刚参加工作时，在单位里有个漂亮的姐姐，平时不善言谈，不拘言笑，有个性，但话匣子一旦打开就像祥林嫂一样重复着她的遭遇。
-
-她出生在山东某沿海地域，也是个传统重男轻女的家庭，虽说那个年代还没有计划生育，但她上面已经有二个姐姐了，可想而知妈妈在这个家的地位，妈妈是把所有的希望都寄托在这个即将出生的，可能是个男娃子的身上。因为祖母已经丢下了狠话，如果还是女娃立即丢弃，妈妈当时怀着忐忑不安的心情临盆，可是生出来的又是一个女娃娃。当妈妈看到孩子第一面，听到孩子第一声的啼哭，妈妈知道将是一个什么样的悲惨结局，刚生产完虚弱的妈妈心痛的哭到晕厥过去。当妈妈醒来时，孩子已经不在身边，妈妈顿时就像发了疯的狮子，哭喊着撕吼着，还我的孩子把孩子还给我，妈妈疯了，撕咬着他的爸爸。像这样的穷乡僻壤，把媳妇弄丢了便再也娶不起新娘子了。出于这样的考量，爸爸承认已经把孩子丢在海边的沙滩上了。听到此话妈妈以死相逼，当她被抱回来的时候，己经冻的全身发紫，奄奄一息，是妈妈用自己的体温把她暖了回来。
-
-（二）刚一出生，被父亲用铁锹丢弃的女婴
-
-至今父亲不承认说是祖母干的。这个高高的个头，热心又漂亮的80后小姑娘，心底确埋藏着一个伴随着她一生的阴影与痛。
-
-那年爸爸把她申请来到了美国，也拿到了驾照，开着她爸爸一辆破旧的车，出去打工，出了个小车祸，爸爸第一声的问候是，车怎么样了，接着就是责备，听到此时非常气愤与不解！小姑娘道出了她悲伤凄惨的身世，她出生在广东沿海地域，她的出生正是所谓的国家计划生育管控非常严厉的年代，当妈妈生下这个女娃时，是被她的父亲与祖母，用一个大铁锹铲进了垃圾堆里。是妈妈不顾一切，拖着刚生产完虚弱的身体，把这个身上已经爬满了苍蝇蚂蚁的娃娃救了回来，自此妈妈永远的离开了这个家。从这个小姑娘木然的表情与叙述中，没有眼泪悲伤，看到的是多么可怕的仇视。
-
-（三）被亲生父母硬生生丢弃在火车站近3岁的女娃
-
-妈妈有个比她小了很多的堂弟，他是个一表堂堂，年轻又帅气，一直被小辈们引以为豪的高材生，军校毕业便当了教官，由于受邪恶共产党教育栽培，他却不为自己做出的丑陋行径感到可耻。
-
-当时是通过他的父亲，也是我的表老爷把这件事的来龙去脉给披露出来的。事情的经过是，舅舅声称近3岁的女儿在火车站丢了，但事实是这个近3岁的女娃，是被她的亲生父母硬丢下抛弃掉的孩子。其目的是丢掉这个女娃，就是为了再生个儿子。苍天有眼，他们未能如愿， 我也因为此事再未与舅舅相见。
-
-当今天看到这个悲惨的锁链女人-8个孩子的妈，与山下那个被一群男人殴打，猥琐凌辱的女人，她们可能就是你们丢弃的女儿，舅舅，如果你还健在，看到这一幕幕惨状羞愤你可心安，为你们所做的丑恶而不耻。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-26.jpg)
-
-编辑/校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+一名来自德克萨斯州奥托（Alto） 的 15 岁高中篮球运动员，和一名来自伊利诺伊州芝加哥的 17 岁篮球运动员在周二晚上的篮球比赛中倒下后死亡。
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/gnews-logo-2.jpeg)
+> Devonte Mumphrey and Cameron Wheatley both collapsed and died in their high school basketball games this week.[#truckersforfreedom](https://twitter.com/hashtag/truckersforfreedom?src=hash&amp;ref_src=twsrc%5Etfw)[#truckersforfreedom2022](https://twitter.com/hashtag/truckersforfreedom2022?src=hash&amp;ref_src=twsrc%5Etfw)[#FreedomConvoy2022](https://twitter.com/hashtag/FreedomConvoy2022?src=hash&amp;ref_src=twsrc%5Etfw) [#EndTheMandates](https://twitter.com/hashtag/EndTheMandates?src=hash&amp;ref_src=twsrc%5Etfw) [#HonkHonk](https://twitter.com/hashtag/HonkHonk?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/Vy8u46ZWoG](https://t.co/Vy8u46ZWoG)
+> — UnacceptableBarriebeacon (@barriebeacon) [February 11, 2022](https://twitter.com/barriebeacon/status/1491949024160665603?ref_src=twsrc%5Etfw)
 
 
+
+*UnacceptableBarriebeacon @barriebeacon*
+
+*德文特·孟弗莱（Devonte Mumphrey ）和卡梅伦·惠特利（ Cameron Wheatley） 在本周的高中篮球比赛中倒下死亡。*
+
+*2022**年2月1**0**日*
+
+高中生德文特·孟弗莱是 Alto 高二（10年级）学生，他参加足球、篮球和田径运动，在与 Mount Enterprise 的主场篮球比赛中死亡。据报道，孟弗莱在比赛的第二节就倒下了。
+
+孟弗莱的死因仍然未知。
+
+Alto学区负责人在他去世后发表了一份声明：
+
+*在今晚的主场篮球赛中，Alto**学区**不幸失去了一名学生运动员。出于对家庭的尊重并考虑到学生的隐私义务，学区目前无法提供详细信息。在接下来的几天和几周内，我们将为我们的学生、教职员工和社区提供处理这场悲剧所需的支持。悲伤的辅导员和当地牧师将于 2 月 9 日星期三早上 7:15 在餐厅现场。Alto**学区**的所有成员**，**向学生的家人表示最深切的哀悼。请为我们的社区祈祷。*
+
+同一天晚上，不来梅高中 17 岁的四年级（12年级）学生卡梅伦·惠特利（Cameran Wheatley）在芝加哥农业科学高中的一场篮球比赛中倒下身亡。
+
+根据 FOX 2 的报道，芝加哥消防队表示，EMS（紧急医疗服务） 花了五分钟做出反应并对这名年轻人进行了复苏，然后将他送往基督医院，在那里他被宣布死亡。
+
+惠特利的父亲告诉 ABC 芝加哥，他的儿子从事体育运动近 10 年，身体很健康。
+
+目前还没有关于他死因的信息。
+
+原文链接：
+
+
+
+> [Texas Sophomore and Illinois Senior High School Students Tragically Pass Away After Collapsing During Basketball Games on Same Night (VIDEO)](https://www.thegatewaypundit.com/2022/02/texas-sophomore-illinois-senior-high-school-students-tragically-pass-away-collapsing-basketball-games-night-video/)
+
+
+
+
+
+
+
+翻译：Nick｜校对：JS709｜编辑&发布：闪电训练
 
  
 
