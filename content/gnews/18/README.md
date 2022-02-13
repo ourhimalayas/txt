@@ -2,28 +2,44 @@
 ---
 
 
-## 以色列顾问：疫苗护照不为阻止传播，而为扩大接种
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1998650/)
+## 没有共产党的控制,音乐就会戳穿它的虚伪、官僚和欺骗
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1998684/)
 
-##### 翻译：不要代表我Kari
-校对：精靈藍
-剪辑|字幕：向上James
-编辑：Mttfly
+G-TV视频链接：[https://gtv.org/video/id=62089f09b0af02660af30f18](https://gtv.org/video/id=62089f09b0af02660af30f18)
 
-以色列卫生部*SARS*‑CoV‑2疫苗临床试验咨询委员会成员Cyrille Cohen近日表示，维持疫苗护照已经没有意义。他在采访中委婉表示，他不想触碰疫苗护照在政治方面的问题。但一个公开的秘密是，疫苗护照不是为了防止传播，是为了鼓励人们接种疫苗。
+**郭文贵先生：**为什么共产党要网络屏蔽？它为啥不敢让我们唱进去？那么这就是音乐的力量，它不独专享它就会被假的干掉，如果它要是不控制真正的音乐，音乐就会把整个虚伪和官僚、欺骗全部给戳穿。
 
-视频来源：[Israeli vaccine chief- -We have made mistakes](https://unherd.com/thepost/israeli-vaccine-chief-we-have-made-mistakes/)
+真正的音乐是像我刚才似的，是发自我们内心的，音乐是不会死亡的。音乐就像邓丽君女士刚才的歌，谁听了、看了都受不了，是人就受不了，除非他是魔鬼。我相信王岐山、习近平听她也会哭，因为他是人呢，他不是畜生啊！
 
-*发布：Mttfly*
+邓丽君说出了人最基本的要求，她没有任何，她也不是什么党，她甚至跟你习近平、王岐山都不认识是吧？她是要的是一个人类的基本人和畜生分别的一个分水岭叫民主、叫人权，这就是音乐的力量。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+字幕来源：[2022年1月31日 《春节大直播》 全文字版（一）](https://gnews.org/zh-hans/1943980/)
 
+编辑整理：Jacques；
 
+字幕文件制作：大好河山；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

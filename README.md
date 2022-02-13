@@ -15,71 +15,71 @@
 
 ---
 
-### [新中国联邦人必须要让中国人找回浪漫尊严善良和平友好](/content/gnews/1/README.md)
+### [七哥春晚歌唱现场的钢琴、三套服饰及所有东西铸就传奇](/content/gnews/1/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [灭共版一帘幽梦要一改娘了吧唧唱邓丽君的中国男人风](/content/gnews/2/README.md)
+### [希望彭丽媛跟我们一起唱响北京冬奥会主打歌曲塞北的雪](/content/gnews/2/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [北京冬奥：习的造神运动无与伦比](/content/gnews/3/README.md)
+### [灭共的雪用无暇身躯净化被谎言笼罩的世界唤醒无尽黑夜](/content/gnews/3/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [新中国联邦人必须要让中国人找回浪漫尊严善良和平友好](/content/gnews/4/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [灭共版一帘幽梦要一改娘了吧唧唱邓丽君的中国男人风](/content/gnews/5/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [北京冬奥：习的造神运动无与伦比](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [音乐的魅力在于万里之外感觉精神上有一只手抚摸你的心](/content/gnews/4/README.md)
+### [音乐的魅力在于万里之外感觉精神上有一只手抚摸你的心](/content/gnews/7/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [音乐不是创造密码就拥有藏宝地,找到密码者才得到藏宝](/content/gnews/5/README.md)
+### [音乐不是创造密码就拥有藏宝地,找到密码者才得到藏宝](/content/gnews/8/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [官方数据显示：完全接种者可能已患上疫苗引起的艾滋病](/content/gnews/6/README.md)
+### [官方数据显示：完全接种者可能已患上疫苗引起的艾滋病](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [邓丽君的歌曲让当年听她歌儿的一代人一下回到那个过去](/content/gnews/7/README.md)
+### [邓丽君的歌曲让当年听她歌儿的一代人一下回到那个过去](/content/gnews/10/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [5 岁以下儿童的 CCP病毒疫苗接种计划在美受到推迟](/content/gnews/8/README.md)
+### [5 岁以下儿童的 CCP病毒疫苗接种计划在美受到推迟](/content/gnews/11/README.md)
  ` 澳喜特战旅Gnews`
 
-### [壬寅年的“雪”](/content/gnews/9/README.md)
+### [壬寅年的“雪”](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [完全接种疫苗的足球运动员基努·斯塔德（Keanu Staude）患上心肌炎](/content/gnews/10/README.md)
+### [完全接种疫苗的足球运动员基努·斯塔德（Keanu Staude）患上心肌炎](/content/gnews/13/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [音乐最重要的是唱出自己唱出心声和真实更重要的是利他](/content/gnews/11/README.md)
+### [音乐最重要的是唱出自己唱出心声和真实更重要的是利他](/content/gnews/14/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [从北京和东京奥运之差看选手网络发帖的价值！（之五）](/content/gnews/12/README.md)
+### [从北京和东京奥运之差看选手网络发帖的价值！（之五）](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [从北京和东京奥运之差看选手网络发帖的价值！（之二）](/content/gnews/13/README.md)
+### [从北京和东京奥运之差看选手网络发帖的价值！（之二）](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [从北京和东京奥运之差看选手网络发帖的价值！（之一）](/content/gnews/14/README.md)
+### [从北京和东京奥运之差看选手网络发帖的价值！（之一）](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [没有共产党的控制,音乐就会戳穿它的虚伪、官僚和欺骗](/content/gnews/15/README.md)
+### [没有共产党的控制,音乐就会戳穿它的虚伪、官僚和欺骗](/content/gnews/18/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [从北京和东京奥运之差看选手网络发帖的价值！（之四）](/content/gnews/16/README.md)
+### [从北京和东京奥运之差看选手网络发帖的价值！（之四）](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中央电视台春晚表面辉煌背后是老百姓被洗脑的凄惨生活](/content/gnews/17/README.md)
+### [中央电视台春晚表面辉煌背后是老百姓被洗脑的凄惨生活](/content/gnews/20/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [以色列顾问：疫苗护照不为阻止传播，而为扩大接种](/content/gnews/18/README.md)
+### [以色列顾问：疫苗护照不为阻止传播，而为扩大接种](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [瑞银企图躲避中国亿万富翁5亿美元诉讼的尝试落败](/content/gnews/19/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [瓦格纳以音乐杀掉几百万犹太人苏联以音乐开启杀地主](/content/gnews/20/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [从江苏泗阳姜集村贩卖人口大案再谈丰县锁链女](/content/gnews/21/README.md)
+### [从江苏泗阳姜集村贩卖人口大案再谈丰县锁链女](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
-
-### [除了你自己没有任何人能帮你成为最后留下来的5%成员](/content/gnews/22/README.md)
- ` 喜马拉雅日本银河系农场`
 
 ### [莫德纳CEO在抛售了数千万美元的股票后删除其推特帐户](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`

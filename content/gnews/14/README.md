@@ -2,32 +2,53 @@
 ---
 
 
-## 从北京和东京奥运之差看选手网络发帖的价值！（之一）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1998685/)
+## 音乐最重要的是唱出自己唱出心声和真实更重要的是利他
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1998728/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1271.png)[图片来源](https://www.google.com/search?q=%E5%8C%97%E4%BA%AC%E5%A5%A5%E8%BF%90&amp;tbm=isch&amp;ved=2ahUKEwiGlfyin_z1AhUywosBHR5yCbcQ2-cCegQIABAA&amp;oq=%E5%8C%97%E4%BA%AC%E5%A5%A5%E8%BF%90&amp;gs_lcp=CgNpbWcQAzIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQ6BwgjEO8DECdQngZYlyNgyCZoAHAAeACAAeMBiAGTCZIBBTUuMy4xmAEAoAEBqgELZ3dzLXdpei1pbWfAAQE&amp;sclient=img&amp;ei=_74IYsaZArKEr7wPnuSluAs&amp;bih=648&amp;biw=1280&amp;rlz=1C1SQJL_jaJP828JP828#imgrc=e8MEBmDEbL1yvM)
-今天是２０２２年２月１３日，我在日本。跟往日一样，今天也抽时间关注了冬奥相关信息。【从北京和东京奥运之差看选手网络发帖的价值！】这个题目，一下子抓住了我的眼球。查了下作者是德力基彦先生。联想到自２０２０年初中共病毒（新冠病毒Covid-19）爆发以来，特别是各国政府开始强推中共病毒疫苗以来不作为或反作为的媒体，炒了NNT鱿鱼的德力基彦先生的文章就更吸引我继续读下去，并想翻译给中文圈的人们共享了。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1272.png)(图片源自本文链接)
-以下是我的摘要翻译的连载（之一）
+G-TV视频链接：[https://gtv.org/video/id=62089f43b0af02660af30f29](https://gtv.org/video/id=62089f43b0af02660af30f29)
 
-**东京奥运会上，运动员的社交网络帖子激增**
+**郭文贵先生：**那你问你孩子什么样的音乐最好？你就要他记住，他心中喜欢的、真实的、对别人好的就是好音乐，而共产党的那些音乐一概不能听。
 
-北京奥运已开幕，赛程也已过半。虽然出现了许多问题，如奥密克戎菌株的传播，但我们中的许多人仍被运动员和他们的表现所鼓舞着。媒体和社交网站都在热议北京奥运会，特别引人注目的是，推特上每天都有日本运动员获得奖牌和谈论奥运会的故事。
+为什么今天唱《甜蜜蜜》全大陆要封掉它，《甜蜜蜜》没有政治，没有什么，就是个生活呀。“在哪里？在哪里见过你”是吧？“在梦里”，就是一个沟通。我学唱歌录那个什么的时候，我没有发出来那个歌儿。
 
-可是，如果我们将六个月前举行的东京奥运会与北京奥运会进行比较，社交媒体上的趋势有一个明显的区别。这就是运动员在社交网络上的发帖量。
+后来才出来个黑人老师，他说：“郭先生，唱歌就是对话。他就说你爱我吗？我说我爱你。你说你爱我，不爱我吗？你说不爱我，你恨我吗？你说你恨我，他说就这么个意思。唱歌就是沟通，你不要使劲儿。他说你愤怒吗？愤怒，愤怒就把劲儿提上来，他说放到你的胸部用嗓子喊出去。”
 
-当然，参加东京奥运会和北京奥运会的运动员数量是有区别的，选手们身在本国和身在海外也有差异，不同竞技所使用SNS的程度也有区别。简单地比较社交网络帖子的数量也是不公平的。然而，与东京奥运会相比，以开幕式的入场式为主的，日本运动员的社交媒体帖子本身就成了日常话题，而北京奥运会的此类帖子频率明显下降。
+我就唱歌有很大的改变呀，我从过去一个字儿一个字儿的蹦给拼出来的“Take down the CCP.”就一句话再不会了，到现在唱出来，那是什么？——音乐发自内心，他就是愉悦的，没有什么专业，别相信鬼专业化，绝不存在专业。
 
-东京奥运会的时候经常可以看到的，日本国家队的官方网站上的很多视频和照片，以及选手们自己发的获奖报告和单人照，这次我们几乎什么都看不到。这种现象好像是由北京奥运会特有的一些因素造成的。
+他一再说：“音乐没专业，所有的唱的熟了就是专业。”他“只要是你要开始唱你就是创造专业的人，你不要相信专业的话，包括那个调。”他说：“你千万不要跟那什么调，他先唱了你就跟他了你不就输了吗？是吧？”他说“你要唱你要先唱，人家就跟你的调，那为什么你要跟他的调呢？”
 
-未完待续
+这就是西方有摇滚乐、POP、嘻哈、还有民族乐出来。中国只有一种音乐——共产党的”洗脑”音乐，我们为什么要跟他唱呢？你看他昨天那叫什么的演员在四川唱《甜蜜蜜》，哎我受不了，蒋勤勤那叫什么斌呢？我不喜欢男人要唱女人那个样（学别人唱）：“甜蜜蜜”——你太监呢？，中国男人已经够娘的了好不好？干嘛要“甜蜜蜜”我听了就受不了。
 
-信息来源：[北京五輪と東京五輪の違いから考える、日本代表選手のSNS投稿の価値（徳力基彦） – 個人 – Yahoo!ニュース](https://news.yahoo.co.jp/byline/tokurikimotohiko/20220213-00281847)
+我就要唱出我自己的，所以说我觉得音乐要唱出自己、唱出心声、真实。更重要的事情要对别人好，你别老唱：“悟空你给我吧，悟空你上我们家床吧！”那肯定你唱不好，所以说真实、利他。谢谢。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+字幕来源：[2022年1月31日 《春节大直播》 全文字版（一）](https://gnews.org/zh-hans/1943980/)
+
+编辑整理：Jacques；
+
+字幕文件制作：大好河山；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

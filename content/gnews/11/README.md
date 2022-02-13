@@ -2,53 +2,25 @@
 ---
 
 
-## 音乐最重要的是唱出自己唱出心声和真实更重要的是利他
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1998728/)
+## 5 岁以下儿童的 CCP病毒疫苗接种计划在美受到推迟
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1998769/)
 
-G-TV视频链接：[https://gtv.org/video/id=62089f43b0af02660af30f29](https://gtv.org/video/id=62089f43b0af02660af30f29)
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/02/132.jpg)图片来自网络
+周五，针对 5 岁以下儿童的 CCP病毒疫苗接种计划在美国被推迟执行，预计将延长几个月的等待时间。最近一段时间，美国的监管机构突然停止了加快审查辉瑞青少年疫苗测试的努力。
 
-**郭文贵先生：**那你问你孩子什么样的音乐最好？你就要他记住，他心中喜欢的、真实的、对别人好的就是好音乐，而共产党的那些音乐一概不能听。
+此前，美国食品和药物管理局（FDA）由于担心 omicron 变种会对儿童造成伤害，因此打算采取非常措施，敦促辉瑞公司在明确儿童是否需要注射两针或三针之前，就申请批准儿童版低剂量疫苗——这使得大家原本以为接种将在数周内展开。
 
-为什么今天唱《甜蜜蜜》全大陆要封掉它，《甜蜜蜜》没有政治，没有什么，就是个生活呀。“在哪里？在哪里见过你”是吧？“在梦里”，就是一个沟通。我学唱歌录那个什么的时候，我没有发出来那个歌儿。
+然而到了星期五，FDA 却忽然转向，表示该机构需要等待关于第三次注射对最小年龄组的效果数据。而辉瑞在一份声明中表示，这一数据很可能需要在 4 月初才能够获得。因此在详细数据收到评估之前，全美 1800 万 5 岁以下的儿童还不能够接种疫苗。
 
-后来才出来个黑人老师，他说：“郭先生，唱歌就是对话。他就说你爱我吗？我说我爱你。你说你爱我，不爱我吗？你说不爱我，你恨我吗？你说你恨我，他说就这么个意思。唱歌就是沟通，你不要使劲儿。他说你愤怒吗？愤怒，愤怒就把劲儿提上来，他说放到你的胸部用嗓子喊出去。”
+FDA 的疫苗负责人彼得·马克斯博士称，之所以暂缓疫苗向更低年龄组推行，是正常而严格审查中的必要环节，同时也是为了再次对辉瑞迄今为止提出的证据报告做更进一步的评估。这一拘谨小心的口吻和之前FDA急切的态度形成了极为鲜明的反差。
 
-我就唱歌有很大的改变呀，我从过去一个字儿一个字儿的蹦给拼出来的“Take down the CCP.”就一句话再不会了，到现在唱出来，那是什么？——音乐发自内心，他就是愉悦的，没有什么专业，别相信鬼专业化，绝不存在专业。
+根据媒体分析，即使辉瑞公司在 4 月初能够完成相关证据的提交，FDA 和其他的卫生机构也还需要数周时间来审查和公开这些数据。因此在5月以前，美国5岁以下儿童应该暂时还不会受到CCP病毒疫苗的侵害，当然前提是FDA没有再次变卦的话。
 
-他一再说：“音乐没专业，所有的唱的熟了就是专业。”他“只要是你要开始唱你就是创造专业的人，你不要相信专业的话，包括那个调。”他说：“你千万不要跟那什么调，他先唱了你就跟他了你不就输了吗？是吧？”他说“你要唱你要先唱，人家就跟你的调，那为什么你要跟他的调呢？”
+新闻参考链接：[AP News](https://apnews.com/article/coronavirus-pandemic-science-business-health-coronavirus-vaccine-c283d0644db46578f18b0b1aa1bfb9a0)
 
-这就是西方有摇滚乐、POP、嘻哈、还有民族乐出来。中国只有一种音乐——共产党的”洗脑”音乐，我们为什么要跟他唱呢？你看他昨天那叫什么的演员在四川唱《甜蜜蜜》，哎我受不了，蒋勤勤那叫什么斌呢？我不喜欢男人要唱女人那个样（学别人唱）：“甜蜜蜜”——你太监呢？，中国男人已经够娘的了好不好？干嘛要“甜蜜蜜”我听了就受不了。
-
-我就要唱出我自己的，所以说我觉得音乐要唱出自己、唱出心声、真实。更重要的事情要对别人好，你别老唱：“悟空你给我吧，悟空你上我们家床吧！”那肯定你唱不好，所以说真实、利他。谢谢。
-
-字幕来源：[2022年1月31日 《春节大直播》 全文字版（一）](https://gnews.org/zh-hans/1943980/)
-
-编辑整理：Jacques；
-
-字幕文件制作：大好河山；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
