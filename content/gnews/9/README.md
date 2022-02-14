@@ -2,45 +2,39 @@
 ---
 
 
-## 马龙博士透露：Spotify的大投资者也是莫德纳大股东
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2003488/)
+## 新闻述评：北京冬奥吉祥物“冰墩墩”是熊猫外交的变体
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2003562/)
 
-编译：Jenny Ball
+作者：东京樱花团｜捆绑CCP一千年
+![此图像的alt属性为空；文件名为image-1403.png](https://assets.gnews.org/wp-content/uploads/2022/02/image-1403.png)[*图片来源*](https://cms.qz.com/wp-content/uploads/2022/02/2022-01-24T121451Z_2106233289_RC2F5S9GVD82_RTRMADP_3_LUNAR-NEWYEAR-CHINA-PANDAS-e1643912318224.jpg?quality=75&amp;strip=all&amp;w=1380&amp;h=776)
+**“冰墩墩”被指定为此次冬季奥运吉祥物，但违背设计师意图，这正是中共试图利用奥运外交再次开启中共国与世界的“熊猫外交”奇迹。相反，在COVID中共病毒侵袭下，增加了西方世界对中共的厌恶感。随着参与北京冬奥会的运动员切身体会的讲述，北京正在持续遭遇冬奥外交的惨败。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1400.png)图片来源：thegatewaypundit.com
+据中共国新华每日电讯14日消息称，北京冬奥组委发布对“冰墩墩”的著作权和注册商标专用权、等一系列知识产权保护，即《[北京冬奥组委发布“冰墩墩”使用规范](http://www.news.cn/mrdx/2022-02/14/c_1310469959.htm)》。这就是中共国的司法逻辑，他制作出任何产品，任何人仿冒必究，而个人创造的产品和美术作品却丝毫无知识产权保护，就“冰墩墩”设计的知识产权费，中共国只奖励给曹雪的设计（团队）费10万元人民币，这是花了七个月的时间反复易稿才获得的奖励，还不如一个搬运工的薪酬。
 
-mRNA 疫苗技术的发明者罗伯特·马龙（Robert Malone）博士今天与塔克·卡尔森(Tucker Carlson)一起讨论了取消文化，因为左翼人士呼吁取消乔·罗根（Joe Rogan），由于他在 COVID 疫苗上的立场，以及作为“种族主义者”的立场。
+在中共国毫无知识产权可言，包括针对任何一个国家特别是高科技产品，共产党都是抢、骗、偷、和“蓝金黄”诱骗获取，当西方国家禁止中共国盗窃知识产权的时候他就说“科技无国界，你不让我偷就说是限制中国发展”，而且这种强盗逻辑还有很多中国人相信。
 
-马龙博士向卡尔森透露，流媒体平台公司Spotify的最大投资人也是莫德纳（Moderna）的最大投资人。
+- ***延展阅读：***[***奥运会最新消息：尽管药检失败，俄罗斯少女 Valieva 仍继续滑冰***](https://asia.nikkei.com/Spotlight/Sports/Beijing-Winter-Olympics/Olympics-latest-Russian-teen-Valieva-skates-on-despite-failed-drug-test)
 
-“这是关于政治战和信息战，就是这样。许多人都认为所有这些只是文化战争或疫苗的喋喋不休的谎言。不，这不对。这是关于权力和金钱，这关乎 Spotify 的市值下降。 引人瞩目的一点是，Spotify 的主要拥有者也是莫德纳的最高所有者，”马龙博士告诉塔克。
 
-调查这一声明，《田纳西星报》的彼得·达布罗斯卡（Peter D’Abrosca）证明马龙没有说错。
+比如，北京冬奥吉祥物“冰墩墩”，中共国采取饥饿销售法，以禁止任何人通过非官方渠道获取这个并无美学价值的笨拙的作品，加上冬奥官宣的洗脑宣传，以激发所谓爱国热潮带动对儿童们“冰墩墩”强大的心理需求，引发父母们为其排长队购买，造成混乱和容易感染病毒的风险。对此，美国广播公司说，[冬奥会吉祥物冰墩墩因为“每人只限一只”，在北京引起混乱，人们连夜排队买娃娃](https://www.abc.net.au/news/2022-02-10/bing-dwen-dwen-winter-olympics-mascot-sending-beijing-wild/100820538)。
 
-“马龙的说法得到了证实，” 达布罗斯卡写道。
+但这些都不是问题，问题是，北京冬奥会吉祥物唤起中国悠久的“熊猫外交”历史。几个世纪以来，可爱的大熊猫一直担任中国的外交大使。最早记载的熊猫外交要追溯到唐朝，当时武则天皇后将一对熊猫送给日本天皇作为友谊的信物。后来，在1980年代停止赠送大熊猫，转变为“熊猫贷款外交”，以送到国外进行“科学研究”为由。
 
-莫德纳的最大股东是贝利吉福德公司（ Baillie Gifford and Company），该公司拥有莫德纳近 4600 万股股票，价值超过 116 亿美元。
+牛津大学的研究人员在2013年发表在《环境实践》杂志上的文章透露，“熊猫贷款”从 2008 年开始出现在中国的外贸交易中。比如哥本哈根在2019 年耗资 2400 万美元的熊猫馆揭幕时，抗议者聚集在哥本哈根动物园外，他们认为，将借来的熊猫安置在人群中虽然很受欢迎，但限制了丹麦批评中共国政策的能力。
 
-贝利吉福德公司也是 Spotify 的最大股东，持有该公司超过 2200 万股股票，价值超过 220 亿美元。
+- ***延展阅读：***[***50年后，美中“熊猫外交”的一些价值问题***](https://www.nytimes.com/2022/02/13/world/asia/us-china-panda-diplomacy.html)
+- ***延展阅读：***[***沙特阿拉伯王储和印度最高特使在最后一刻取消参加开幕式后，习近平的冬奥外交失败***](https://asia.nikkei.com/Politics/International-relations/Xi-s-Olympics-diplomacy-stumbles-as-leaders-avoid-Beijing-Games)
 
-持股人名称及比例：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1402.png)图片来源：thegatewaypundit.com
+这就是中共国熊猫外交的目的，不仅如此，冰墩墩还让中国的少儿们为之痴迷，父母们为了满足孩子的需求也都在失去对政府批评的能力，至少会在孩子面前停止批评，尽管是幕后的。这同样达到中共国愚民教育的目的，各中小学校要求孩子们在假期围绕冰墩墩和冬奥会做《一起向未来》的手抄报，写心得。
 
-根据去年 2020 年的一份报告，贝利吉福德公司击败联合创始人马丁·洛伦松（Martin Lorentzon），成为 Spotify 最大的利益相关者。
+正如批评人士所言，胖乎乎的冰熊猫“不那么可爱”，它分散了人们对实际问题的注意力。特别是北京试图利用降低对中共的批评，期望借此赢回失落的形象，但[西方国家真的应该知道熊猫外交的真正含义，这是一场可耻且有损尊严的政治游戏](https://qz.com/2122082/the-olympic-mascot-evokes-chinas-history-of-panda-diplomacy/)。
 
-“在提交给美国证券交易委员会（SEC）的披露中，贝利吉福德透露，自 2019 年 9 月以来，其 Spotify 总所有权增加了 260 万股，从 1910 万股增加到 2170 万股； 后者占 Spotify 的 11.82%。Spotify 联合创始人马丁·洛伦松现在是第二大股东，拥有该音乐流媒体平台 11.59% 的股份，”数字音乐新闻（Digital Music News ）报道。
+2022年2月14日
 
-**点评：跟着钱走就能看到这次大流行和疫苗灾难背后的黑手。**
-
-素材链接：[thegatewaypundit.com] [Dr. Malone Reveals That a Top Investor of Spotify Also Top Investor of Moderna (VIDEO)](https://www.thegatewaypundit.com/2022/02/dr-malone-revealed-tucker-carlson-top-investor-spotify-also-top-investor-moderna/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailyam&amp;utm_content=daily)
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1.jpeg)
+*校对：东京樱花团/東洋武士*
+*发布：东京樱花团/tdownc2p*
+![此图像的alt属性为空；文件名为yht.jpg](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

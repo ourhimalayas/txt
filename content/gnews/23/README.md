@@ -2,138 +2,33 @@
 ---
 
 
-## 无论俄罗斯是否攻打乌克兰 中国都是牺牲品
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2003319/)
+## 瑞士信贷投资者没有光明的迹象
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2003426/)
 
-[https://gtv.org/video/id=6209afe4b0af02660af35ea9](https://gtv.org/video/id=6209afe4b0af02660af35ea9)
+信息来源： 路透社
 
-After the meeting between Putin and Xi Jinping （at the opening ceremony of the Winter Olympics）
-（在冬奥会开幕式）普京和习见面（结束）之后
+翻译/整理： 意大利罗马达芬奇农场 Shuizhuyu
 
-What was the first thing Putin did?
-（普京)第一个(事)干了什么
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0049.jpg)
 
-Meeting Macron(President of France)
-见马克龙(法国总统)
 
-(Putin expressed his will) It’s time for me
-to go back to our white family
-(普京表达了意愿)我该回到咱们的白人家族了
+图片来源： 路透社
 
-go back to our Europe
-我该回到我们的欧洲了
+疲倦的瑞士信贷投资者担心，在一系列丑闻导致其市值蒸发数十亿美元并给管理层施加压力后，该银行需要等待很长时间才能重新开始。 尽管这家瑞士第二大银行表示，它可以通过以“关怀和企业家精神”为富有的客户提供服务来创造价值，但市场尚未信服，其股价在一年内下跌了近三分之一，市值达到约 100 亿瑞士 法郎（110亿美元）的估值。
 
-I’m not interested in playing with him(Xi)
-我没兴趣跟他（习）玩
+与此同时，受利率上升前景的提振，其他欧洲大型银行的股票市值同期上涨了近 50%，其在苏黎世的竞争对手瑞银 (UBSG.S) 已把瑞士信贷 (CSGN.S) 甩到后面。
 
-Do you think I want to attack Ukraine?
-你看我想进乌克兰吗
+“瑞士信贷有一长串丑闻和问题，”联合投资公司的债券投资者斯特凡·绍尔谢尔谈到该银行时说，该银行成立于 1856 年，并表示它在全球拥有 48,770 名员工和 3,510 名客户关系经理。  “我们一直认为管理流程会得到改善，然后下一个也被打击落地。如果再有十亿以上的损失，那将是一场灾难，”Sauerschell 补充道。 上周情况并没有好转，瑞士信贷报告季度亏损 22 亿美元，差于预期，并警告 2022 年前景黯淡，当时它表示收益将受到重组成本和薪酬的打击。
 
-I don’t actually want to
-我(其实)不想进
+这一前景进一步打击了其本已遭受重创的股票，此前一年该银行因与资不抵债的英国金融公司 Greensill 相关的 100 亿美元供应链金融基金倒闭以及 55 亿美元的损失而蒙受 16 亿瑞郎的亏损。 投资基金 Archegos 的内爆。 代理顾问 Ethos 对瑞士信贷决定不公布其对 Greensill 事件的调查表示批评。  “银行应该通过提供问题根源和原因的透明度来恢复其股东和利益相关者的信心，”Ethos 的文森特考夫曼在给路透社的电子邮件回复中说。
 
-What can you do for me to keep me from
-attacking Ukraine?
-你咋让我不进乌克兰呢
+2020 年瑞士信贷首席执行官的托马斯·戈特斯坦 (Thomas Gottstein) 在本周公布业绩后表示，他相信该公司已做好增长的准备，风险管理“是其业务的核心”。 瑞士信贷拒绝进一步置评。 然而，在听说该银行支付其高级员工的方式发生变化，加上业务下滑和前景黯淡之后，投资者和分析师并不相信。
 
-You need to buy more of my gas
-Pay more attention to my side in energy imports
-(我的)天然气(你)多买点 (能源进口上)多(侧重于我)付点钱
+瑞士银行 Vontobel 的分析师 Andreas Venditti 谈到瑞士信贷的困境时说：“他们处于非常困难的境地。我们已经看到 Greensill 和其他案件的问题渗透到业务中，减缓了业务发展。”  “与此同时，银行不得不支付更多现金来留住员工。虽然这可能会让员工感到高兴，但市场不喜欢更高的成本。而且前景黯淡。”
 
-Then the CCP will definitely be kicked out
-as a scapegoat
-然后 一定会把中共卖掉(当替罪羊)
+🔗 [瑞士信贷投资者没有光明的迹象](https://www.reuters.com/business/finance/no-sign-light-end-tunnel-credit-suisse-investors-2022-02-14/)
 
-So you see, Brothers and Sisters!
-所以 你看到 兄弟姐妹们
-
-Why is the first thing we talk about today is
-为啥今天第一个谈
-
-the relationship between Xi and Putin after the opening ceremony of the Winter Olympics?
-暨冬奥会开幕式后的习太阳和普京关系
-
-Let me tell you this
-我告诉大家
-
-If they go to attack Ukraine
-(如果)打乌克兰
-
-The Chinese will be forced to carry the blame for the attack on Ukraine
-中国人(将被迫)背着打乌克兰的锅
-
-Because to the outside world,this is seen as financial
-support and encouragement from the Chinese
-(在外界看来)是因为中国人的经济支持和怂恿
-
-If they don’t attack Ukraine
-不打乌克兰
-
-Coming soon, what is Europe doing?
-马上 欧洲正在干什么
-
-The so-called European version of the Trade Competition Act will be introduced soon
-叫欧洲版的(贸易)竞争法案马上出(来)
-
-Europe will kick CCP out of the trade
-就欧洲把你(从)贸易(往来)中踢出去
-
-So you can see in the relationship between Putin and
-Xi Jinping
-所以说从普习(关系)看出来
-
-and the European trade competition bill against the CCP
-(以及)欧洲对共产党的新的竞争法案
-
-That whether Russia attacks Ukraine or not
-China will be a casualty in both respects
-俄罗斯打不打乌克兰 中国都(将)是牺牲品
-
-Due to the CCP’s brain-damaged belief in personal relationships between leaders of major countries
-以及 所谓大国领导人迷信的个人领导关系
-
-They staked the security and well-being of
-our Chinese people
-以一国的 人的安全和福祉
-
-on a supposedly shitty, bullshit, untrustworthy
-押(注)在一个所谓鸟不拉屎的 根本胡扯球蛋的 不可相信的
-
-mutually exploitative relationship between the leaders of two countries
-相互利用的 两国领导人关系上
-
-It is the sadness of Chinese people’s politics, economy
-morality and beliefs
-是中国人 政治 经济 道德 信仰 的悲哀
-
-Shamed by the world
-被世界所耻
-
-But we Chinese don’t know
-但中国人不知
-
-Wake Up! My Fellow Countrymen!
-醒来吧 同胞们
-
-* * *
-
-Date:02/12/2022
-原视频标题: Whether Russia attavks Ukraine or not China willbe a casualtyin both respects
-无论俄罗斯是否攻打乌克兰 中国都是牺牲品
-原视频日期：2022/02/10
-原视频链接
-任务编号：KE398(3732)
-视频时间段 : 0:00-1:30
-英听校： 洛杉矶盘古农场 – 庚子
-翻译： 洛杉矶盘古农场 – 庚子
-翻译终校：洛杉矶盘古农场 – 银龙
-字幕+视频制作：洛杉矶盘古农场 – 庚子
-审片：洛杉矶盘古农场 – 银龙
-发布 ：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+编辑发布： Shuizhuyu
 
  
 

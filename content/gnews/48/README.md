@@ -2,19 +2,32 @@
 ---
 
 
-## 韩美日三国外长谴责北韩发射导弹，敦促其尽快重返对话
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2002112/)
+## 2022年2月10日 晚 新中国联邦新闻、GTV新闻访谈简报
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2002301/)
 
-撰稿：追着曙光跑
+作者：香草山翻译部
 
-据韩国KBS新闻2月13日的报道：韩国、美国、日本三国外长在夏威夷举行会谈，探讨韩半岛及其周边地区的安全形势。三国外长联合声明谴责北韩连续发射导弹，违反联合国安理会决议，敦促北韩尽快重返对话。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-14-at-11.48.14.jpeg)图片来源：原新闻
-韩美日外长深入探讨了北韩连续发射导弹等韩半岛有关问题，并就加快与北韩对话的现实性方案进行了磋商。同时，对北韩的挑衅行为正在引发地区的不稳定深表担忧。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO.jpg)
 
-对于朝鲜进一步挑衅的可能性，韩外长称，现在一致认为近期局势严重，并进行了多次讨论，以确保局势尽可能向积极的方向发展。
 
-信息来源：**[한미일외교장관 회담…“정부, 추가 대북 관여 방안 제안…美 경청”](http://world.kbs.co.kr/service/news_view.htm?lang=c&amp;Seq_Code=74460)**
-**[한미일 외교장관 공동성명 발표 “北미사일 규탄…北에 불법활동중단·대화 촉구”](https://news.kbs.co.kr/mobile/news/view.do?ncd=5393848)**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-12.png)
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+新闻：[https://gtv.org/broadcast/watch/6209b05ea456fe1dea30df21](https://gtv.org/broadcast/watch/6209b05ea456fe1dea30df21)
+访谈：[https://gtv.org/broadcast/watch/6209bbc3a456fe1dea30e784](https://gtv.org/broadcast/watch/6209bbc3a456fe1dea30e784)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-callendar-1.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
