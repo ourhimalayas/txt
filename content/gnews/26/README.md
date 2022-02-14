@@ -2,8 +2,8 @@
 ---
 
 
-## 20220213郭文贵大直播 ：国际奥委会、世界卫生组织、WTO和世界记者联盟就是共产党的帮凶
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2004003/)
+## 20220213郭文贵大直播 ：喜币的成功与冬奥会的造假，只有爆料革命新中国联帮告诉全世界真相
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2004050/)
 
 作者：东京樱花团小视频组
 

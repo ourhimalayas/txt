@@ -2,18 +2,18 @@
 ---
 
 
-## 2022年2月14日，全球中共病毒疫情情况汇总
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2004117/)
+## 20220213郭文贵大直播 ：不超过3次直播，世界巨变
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2004155/)
 
-制作：DT新闻组
+作者：东京樱花团小视频组
 
-**中共的杀戮还在继续……**
+校对：东京樱花团小视频组
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/B2A362A8-FCC2-43F6-A485-DAAF93C318CD.jpg)
+编辑发布：东京樱花团小视频组
 
-发稿：信心的选择
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1.jpeg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/樱花-3-1.jpg)
+喜马拉雅东京樱花团
 
  
 
