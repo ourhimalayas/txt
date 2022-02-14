@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/14/2022 2:37 AM (UTC)`
+
+2/13/2022 Miles Guo: The relationship between the US dollar and the Euro is not a zero-sum game. Instead, they depend on each other. The imminent world war is caused by the ignorance and hubris of Xi Jinping and the mutual deception in Communist China. When the world economy collapses, digital currencies, especially Himalaya Pay, are going to be the biggest winner.<br/><br/>2/13/2022 文贵直播：美元和欧元的关系不是你死我活，而是谁都离不开谁；一触即发的世界大战源于习太阳的无知、狂妄和中共国的欺骗互骗；世界经济崩塌时，数字货币、喜支付就是最大赢家<br/>
+![img](https://media.gettr.com/group16/getter/2022/02/14/02/843efa23-4f26-7459-ed47-696136ca9a52/out.jpg)
+
+---
+
+`@miles 2/14/2022 2:30 AM (UTC)`
+
+2/13/2022 Miles Guo: Trucks are essential to the world economy. The Freedom Convoy has made it imperative for people to oppose the COVID vaccine mandate. GETTR has had a tremendous impact on the Freedom Convoy. I told the leaders of the Freedom Convoy to refer to the success of trucks in the 2019 Hong Kong movement and warned them not to be violent.<br/><br/>2/13/2022 文贵直播：卡车是世界经济的必须，大卡车运动让人们必须反对疫苗强制令；盖特对大卡车运动有巨大的影响，文贵让大卡车运动的领头人参考香港运动中卡车的成功经验并告诫其不能有暴力<br/>
+![img](https://media.gettr.com/group45/getter/2022/02/14/02/3c9562d5-e2d0-0916-d8ca-42cd566a38a1/out.jpg)
+
+---
+
 `@miles 2/14/2022 2:18 AM (UTC)`
 
 2/13/2022 Miles Guo: The CCP and Russia will be destroyed once they start a war. The world economy will be restructured, and the whole world will investigate the Wuhan lab. The COVID vaccine disaster will change the Western media, healthcare, insurance, and political landscape. The over-issued fiat currencies will turn into a bubble, and the era of digital currency will commence. The New Federal State of China will be the winner!<br/><br/>2/13/2022 文贵直播：中共和俄罗斯一旦发动战争就必灭，世界经济将重整，全世界都会调查武汉实验室；疫苗灾难会改变西方的媒体、医疗、保险和政治格局；超发的法币会变成泡沫，数字货币时代将开启，新中国联邦是赢家！<br/>
@@ -142,20 +156,6 @@
 
 ⚠️⚠️Chronologie du nouvel État fédéral de Chine à propos du virus du PCC et du vaccin covid (Française)<br/><br/>Le NFSC a toujours été attaché à la vérité et à sauver des vies en exposant la nature perverse du PCC et le fait qu'ils ont créé le virus du PCC qui a tué des millions de personnes dans le monde. En outre, le NFSC a diffusé dans le monde les thérapies COVID et les médicaments associés, ainsi que les informations et données réelles sur le vaccin COVID. Tous les faits prouvent que ce que le PCC a fait n'a rien à voir avec le peuple chinois, le PCC ne peut pas représenter le peuple chinois, qui en est aussi la victime.<br/><br/>⚠️⚠️关于 #新中国联邦 爆料 #中共病毒 和 #中共病毒疫苗 灾难预警时间线（法语版）<br/><br/>新中国联邦致力于揭露中共邪恶本质，揭露他们制造中共病毒在全世界造成数百万人死亡的事实以及COVID疫苗的真实目的，揭示真相，拯救生命。中共的所作所为与中国人民无关，中共不代表中国人民，中国人民也是受害者。
 ![img](https://media.gettr.com/group8/origin/2022/02/12/14/a2f76901-8277-64d6-41a2-df652e420057/out.jpg)
-
----
-
-`@miles 2/12/2022 6:27 AM (UTC)`
-
-2/11/2022 Miles Guo: What are the security prerequisites for me to go to Japan and the UK? After I opened fire at the UBS and the Swamp, my safety has become a matter of the righteous people around the world. The UK and Japan have also awarded me the highest medals of honor. So fellow fighters, please don't worry about my safety.<br/><br/>2/11/2022 文贵直播：文贵去日本和英国的安保前提是什么？打响沼泽地UBS这一枪后，文贵的安全事关全球正义人士，英国和日本给文贵颁发了最高荣誉勋章，战友们不用担心文贵的安全
-![img](https://media.gettr.com/group10/getter/2022/02/12/06/b1c35537-357d-d7e9-a261-a489c37b5cc7/out.jpg)
-
----
-
-`@miles 2/12/2022 5:57 AM (UTC)`
-
-2/11/2022 Miles Guo: I understand the CCP's infiltration of the West because I saw how the CCP's evil plans were made, witnessed the obscenity and darkness of the Party of Davos, and experienced the corruption, stupidity, and insanity of the CCP's military and the eunuch mentality of the CCP's officialdom.<br/><br/>2/11/2022 文贵直播：文贵掌握了中共对西方的渗透是因为文贵见证了中共邪恶计划的制定，亲眼目睹了达沃斯党的荒淫与黑暗，经历过中共军队的腐败、愚蠢与疯狂以及中共官场的太监心理<br/>
-![img](https://media.gettr.com/group15/getter/2022/02/12/05/ed720be2-ef44-6ac6-5f5c-76450090696c/out.jpg)
 
 ---
 
