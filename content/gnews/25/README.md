@@ -2,41 +2,51 @@
 ---
 
 
-## 有声|现在卖掉喜币的人将来必定后悔
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2002364/)
+## 喜马拉雅币一周分析与总结（2月7日-2月13日）
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2002374/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+作者：香草山金融部 – ILOVE战神
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/FCSeY69XEAInXAV.jpg)
-2022年2月13日，在大直播中谈到喜币场外交易时，文贵先生说，现在场外交易卖掉喜币套现的战友，将来必定会后悔。
 
-大直播中，说到场外交易时，文贵先生就说，刚才收到草根小哥爆料，喜币在场外交易，60美金都买不着。但是在场内，喜币被压低到了40美金。
 
-文贵先生说，据他所知，场外交易有好几笔都在200美金左右交易的。这几天场外和场内的巨大价格差距，是因为基金在利用2亿个币，场内压低价格，场外交易炒高价格，在引诱着大家去场外交易卖出喜币，只要你一抛，他们就买进。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-郭先生说，现在卖币的人，你后悔？早着呢。很多战友在场外交易中，以60,65,70的价格，卖了手中的喜币。不远的将来，肯定会哭都没地方哭去，不会超过三个月。只要满足三个条件：国家主权认可，大额投资，HPAY全面使用，喜币的价值必然不可估量。
 
-目前世界格局在发生着巨大的变化，世界经济面临着崩塌，金融市场肯定会暴涨暴跌。在这样的巨变中，数字货币是未来发展的趋势，HPAY和喜币会成为其中最大的赢家。
 
-文字版原文：[现在卖掉喜币的人将来必定后悔](https://gnews.org/zh-hans/2001739/)
+过去一周喜马拉雅币价格回落至45美元左右，平均日交易量约为12万枚喜币。喜币上市以来总交易量约2800万枚 ，占今年总发行量的仅约2.8%。目前喜币交易在全球尚未完全开放，市场交易量较低，价格仍被严重低估。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide12-4.jpg)
+最近全球战友都积极投入到喜支付的推广活动中。2月10日，台湾农场团队直播了使用HPAY购买及交付第一辆汽车的实况。交易标的是一台2019年出厂的宝马 X3休旅车二手车，交易金额约为1200 HCN。买卖双方当场使用HPAY，瞬间就完成了买车款项的支付。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Picture1-7.jpg)
+据卖家台湾农场大象表示，他选择以喜币交易，好处是可以省去被信用卡公司抽取的手续费、货款可以瞬间入账不必经由银行造成延迟收款、也可以享受未来喜币预期的涨价空间。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+本周据郭文贵先生在大直播中透露，俄乌政治危机对全球供应链造成巨大伤害后，数字货币将成为全球经济危机中的最大赢家，其中H-Pay将成为数字货币中的最大赢家。经过一系列事件的发酵，3个月后喜币的价格将达到之前难以想象的新高度。郭先生还表示，喜币和喜支付将打破中共对钱的垄断，让中国人真正拥有自己的财富，从而拥有自己独立的人格和思想，这些都是中国人拥有人权和真相的基础。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture-14.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/Picture2-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/Picture3-5.png)
+参考链接：
+1.[Himalaya Exchange & HIMALAYA PAY – Your key to the Himalaya Ecosystem](https://himalaya.exchange/himalaya-pay)
+2. [台湾使用HPAY完成第一台汽车交易](https://gnews.org/zh-hans/1994357/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
+
 **更多资讯，更多关注**
 
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

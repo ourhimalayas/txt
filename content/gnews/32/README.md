@@ -2,32 +2,30 @@
 ---
 
 
-## 2022年2月10日 晚 新中国联邦新闻、GTV新闻访谈简报
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2002301/)
+## [ 聚焦港澳 ]香港蔡元培墓被破坏
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2002356/)
 
-作者：香草山翻译部
+撰稿：云彩
+视频来自网络
+近日观看了香港国际关系学者沈旭晖先生采访香港女作家潘惠莲女士的视频，得知原北京大学校长蔡元培先生晚年是在香港渡过。1940年在港病逝。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO.jpg)
+视频中沈先生说到，2019年反送中运动中，有大陆的小粉红来港破坏蔡元培先生的墓地。这件事被媒体曝光后，很多香港人才知道蔡元培先生的墓地是在香港。
 
+蔡元培先生于1937年底因日本侵华战争从大陆移居到香港，直到去世。1927年蔡元培先生支持在国民党内清理混入的共产党员。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-12.png)
-校对：Stay文苑
+大陆小粉红来港破坏其墓地，于2019年11月14日在其微博发文，说“将蔡元培的墓碑打磨了一下，贴上汪寿华和赵世炎照片”。由对香港学生反送中的不满迁怒到当年反共的蔡元培先生。汪寿华和赵世炎是当年被杀的共产党员。
 
-编辑：Stay文苑
+潘惠莲女士认为，中共针对性地使用蔡元培先生的个人历史。比如，到了“五四”，就宣传蔡校长如何关怀学生。而对于其反共立场少提或者根本不提。
 
-发稿：Stay文苑
+以前，笔者不知道蔡元培先生因为不认可共产党的主张而支持在国民党内清理混入的共产党员这段历史。
 
-新闻：[https://gtv.org/broadcast/watch/6209b05ea456fe1dea30df21](https://gtv.org/broadcast/watch/6209b05ea456fe1dea30df21)
-访谈：[https://gtv.org/broadcast/watch/6209bbc3a456fe1dea30e784](https://gtv.org/broadcast/watch/6209bbc3a456fe1dea30e784)
+中共政权自知不是民选政府，害怕人民知道真正的历史，动摇其统治根基。哪段历史有利就用哪段，或者篡改编造假历史。新中国联邦用真打共产党的假！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-callendar-1.jpeg)
+参考资料：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[香港蔡元培墓地被破坏](https://www.youtube.com/watch?v=czgrThiDvVs&amp;t=821s)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
+
 
  
 

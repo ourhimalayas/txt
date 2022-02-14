@@ -2,45 +2,34 @@
 ---
 
 
-## 专家批评中共的 “国家队”- 这太离谱了
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1998963/)
+## 美众议院提案为因拒绝接种中共疫苗解职的军人复职
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1999617/)
 
-撰稿：Skagen
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-188.jpg)
-图片来源：TV2
+撰稿：银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-3.png)
+2月10日，美国媒体消息，本周，美国共和党人公布了一项立法提案，旨在确保拒绝接种中共病毒疫苗的美国军人能够继续服役。该项立法涉及：不得使用联邦资金要求武装部队成员接种中共病毒疫苗；有关秘书不得以武装部队成员拒绝接种中共病毒疫苗为由，对该成员采取任何不利行动。该法案还要求之前因拒绝接种疫苗被开除的士兵被恢复之前的军事级别，以及损失的工资与删除的服役记录。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1298.png)图片来自：https://www.axios.com/
+据悉，由于拜登政府的强制新冠疫苗令，数百名宝贵的美国军人被迫离开军队，带走了他们多年的专业技能、无私奉献的职业生涯和终生的军事梦想，造成不可接受的结果。同时，接种新冠疫苗后的美国军人，出现各类严重并发症的数据比率严重暴增。
 
-据丹麦媒体TV2 体育频道2月13号的报道，冰球专家Morten Green说他不是中国国家冰球队的粉丝，因为这支球队由许多非中国人的球员组成。
+媒体称，在世界如此紧张的局势下，此提案如立法，对中共疫苗带给美国军队的负面影响，将会起到一定的缓和作用。
 
-“我一点也不喜欢，这太离谱了”，TV 2 SPORT的冰球专家Morten Green说。
+新闻来源：[House conservatives introduce bill to protect, reinstate soldiers who refuse COVID shots](https://www.lifesitenews.com/news/house-conservatives-introduce-bill-to-protect-reinstate-soldiers-who-refuse-covid-shots/)
 
-在代表中国国家冰球队参加奥运会的25人中，有两名加拿大人和一名美国人。25名球员中的18人在加拿大或美国出生或长大。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-3.png)
 
-有些人与中国是有联系，例如Brandon Yip，他的中国祖先150年前就去了北美。但他们中的许多人的家谱上没有中国的影子，讽刺就是讽刺。
+总编：Ivy001
 
-**为什么会出现这样的可能**
-这25名球员的共同点在于他们都为中国球队HC昆仑红星队效力，该队参加大陆冰球联赛（KHL）。所有25人都在国内打了两年多的比赛，而在国际冰球联合会（IIHF）允许球员为另一个国家参赛之前，必须满足这一标准。
+编辑：静言
 
-Morten Green说，这些球员当时基本上只是被召集起来，问他们是否愿意代表中国参加奥运会。
+校正/发稿：浪迹天涯
 
-除了在该国打过至少两年的比赛外，球员还必须是他们所代表的国家的公民。而双重国籍在中国是非法的，但在中国只要是涉及运动员时就有特权特例。一个完美的例子就是谷爱凌，这为所谓的中国滑雪明星在美国出生和长大，拥有美国和中国双重国籍。
-
-**一开始就不应该出现在那里**
-中国正在参加奥运会，因为它是奥运会的主办国。如果由Morten Green决定，中国队根本就没资格出现在那里。
-
-Green说：“在奥运会上获得冰球比赛的资格是非常困难的，那里只有12个名额，所以像中国这样在世界排名第32位的国家可以随便获得一个免费名额，这是完全错误的”。
-
-中国在前两场比赛后积0分，进球数为2-11。
-
-“如果这次比赛用的都是NHL球员，中国会以两位数的比分输掉每一场比赛–可能都是20比0和30比0″，Green总结道。
-
-中国在周日进行最后一场小组赛，对手是冰球强国加拿大。
-
-谷爱凌和那些冰球运动员被中共摧残和利用，代表共产党中国行事。中共不尊重规则、法律和道德，冬奥会对运动员和自然环境都造成了巨大伤害。被中共绑架的中国人怎么可能以这种欺骗的方式获得西方和体育界的尊重呢？
-
-来源：
-
-[Gnews.com](https://gnews.org/1998859/)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

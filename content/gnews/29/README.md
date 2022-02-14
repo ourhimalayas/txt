@@ -2,22 +2,52 @@
 ---
 
 
-## 中日财经爆|南非劳工部将华为告上法庭
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2002324/)
+## 美在所罗门群岛重设大使馆 防堵中共
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2002365/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1376.png)[图片来源](http://www.focac.org/zfgx/rwjl/202111/t20211117_10449589.htm)
-南非劳工部周五（2月11日）表示，他们已要求法院对中共国华为技术有限公司的南非部门进行罚款，因其违反了有关雇用当地人的规则，并责令华为改正。
+作者：纽约磐石农场-在远方，台湾宝岛农场-阿尔道夫
 
-劳工部援引2020年的一项审计报告说，华为当地公司大约90%的员工是外国公民，违反了“就业公平”法规所规定的40%上限。
 
-劳工部称已向法院提交文件，要求对涉嫌违反规定的华为当地公司处以150万兰特(99,151美元)或2020年度营业额2%的罚款。
 
-消息来源：[南非将华为当地部门告上法庭 因当地人雇佣比例偏低](https://cn.reuters.com/article/south-africa-huawei-lawsuit-hiring-0211-idCNKBS2KJ01Q?il=0)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+
+
+据多家媒体报道，2月12日，美国国务卿布林肯证实，在时隔29年后，美国计划在南太平洋岛国，所罗门群岛重新开设大使馆，在该地区投入更多外交和防卫资源，防范中共持续与太平洋岛国建立军事联系。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-5.jpg)
+据悉，布林肯在赴澳洲参加美日印澳四方安全对话峰会之后，转道访问斐济，并将与多名太平洋岛国领袖举行视频会议。据美国官员透露，很多迹象表明，中共妄图与太平洋岛国建立军事联系，首要目标就是所罗门群岛。而所罗门群岛2019年前曾是和台湾友好的邦交国之一，但自2019年后，它擅自背离了与台湾的外交关系，转而亲近中共。
+
+同一时间，美国政府发布《印度—太平洋战略报告》，计划在12至24个月内，提升在东南亚和太平洋岛国的外交姿态，以扩大美军在该地区的行动范围。
+
+参考链接：
+1. [相隔29年！防堵中國勢力擴張 美證實將在索羅門群島重設大使館](https://news.ltn.com.tw/news/world/breakingnews/3827779)
+2. [相隔29年 傳美將在索羅門群島恢復設立大使館](https://tw.news.yahoo.com/%E7%9B%B8%E9%9A%9429%E5%B9%B4-%E5%82%B3%E7%BE%8E%E5%B0%87%E5%9C%A8%E7%B4%A2%E7%BE%85%E9%96%80%E7%BE%A4%E5%B3%B6%E6%81%A2%E5%BE%A9%E8%A8%AD%E7%AB%8B%E5%A4%A7%E4%BD%BF%E9%A4%A8-043556408.html)
+3. [且看中共對所羅門群島的“藍金黃”](https://gnews.org/zh-hant/121332/)
+4. [中共勢力擴張至所羅門群島](https://gnews.org/zh-hant/1792032/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

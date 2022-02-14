@@ -2,26 +2,38 @@
 ---
 
 
-## 莫德纳CEO在抛售了数千万美元的股票后删除其推特帐户
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1998614/)
+## 德国医保公司拒绝帮助政府实施疫苗强制令
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1999330/)
 
-#### 翻译/撰稿：zzballack
+![](https://assets.gnews.org/wp-content/uploads/2022/02/9597.jpg)网络图片
+美国前线医生网站2022年2月10日消息，据德国《地方报》报道，德国的医疗保险供应商拒绝帮助德国政府实施其疫苗强制令。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-2-1.jpg)图片来源：福布斯
-据《The Covid World》2月13日报道，莫德纳（Moderna）公司的首席执行官（CEO）斯特凡·班塞尔（Stéphane Bancel）本周在卖出数千万美元的莫德纳股票后删除了其推特帐户。据Gurufocus网站显示，班塞尔在2月10日出售了19000股莫德纳股票，获利2000多万美元。目前仍不清楚班塞尔为何删除其推特账户，莫德纳CEO的这项奇怪举动让投资者感到担心和困惑，该公司也尚未发表官方声明对此做出解释。
+德国政府的民主派——即绿党，社会民主党和自由民主党——试图争取德国医疗保险公司的帮助，以打击未接种中共病毒疫苗的公民。政府的计划是让医疗保险公司记录那些未接种疫苗的人，并将他们的详细资料发送给政府。然后，政府将与这些人联系，为他们提供预约接种疫苗的机会。如果在四个星期内该人没有接种疫苗，国家将开始处以罚款。
 
-此事发生后不久，前贝莱德 (BlackRock)对冲基金经理爱德华·唐德（Edward Dowd）2月10日在推特上回复莫德纳的官方账户说：“你们的CEO昨天关闭了他的推特账户，我猜是在内部律师的建议下完成的。毫无疑问！”
+然而，德国的法定医疗保险提供商集团，即常说的“公立保险”(Gesetzliche Krankenversicherung,GKV)，拒绝了。GKV表示，他们将按照自己的职责通知和建议客户，但不会做别的。GKV发言人说：“另一方面，执行和控制可能的法定疫苗接种义务将是国家的任务。” 这并不是德国医疗保险公司第一次拒绝协助政府实施疫苗强制令。
 
-唐德上个月在接受《班农战斗室》采访时指控辉瑞和莫德纳在其新冠疫苗的临床试验中存在欺诈行为。如果这些指控被证明属实，这将意味着辉瑞和莫德纳都要对其疫苗造成的所有伤害和死亡负责。唐德说：“我相信，由于当时的制度性要求，以及他们试图批准这些使用未经验证技术的产品的速度，辉瑞和莫德纳疫苗的临床试验数据存在欺诈，以便强行通过审批。”
+12月，当巴伐利亚州卫生部长克劳斯·霍莱切克(Klaus Holetschek)提出让未接种疫苗的病人自己支付住院治疗费用的提议（一项得到了联邦社会法院院长雷纳·施莱格尔(Rainer Schlegel)支持的提议）时，德国的一家大型医疗保险公司拒绝了。
 
-辉瑞、莫德纳等大药厂在这次新冠疫情中仓促推出其不成熟的疫苗产品，在大发横财的同时对世界造成了深重灾难。做贼心虚的他们知道，已看清其真实面目的全球民众不会放过对他们的追责，等待他们的将是纽伦堡2.0大审判。
+AOK是德国最大的健康保险供应商之一，为2700万客户提供服务。AOK主席卡罗拉·赖曼(Carola Reimann)告诉政府，该保险公司不会接受该提案。
 
-新闻来源：
+赖曼说：“我们完全拒绝这种做法。”她接着说，把未接种疫苗的人挑出来是一个滑坡谬误。赖曼说：“如果你要对未接种疫苗的人征收更高的保费，你也必须为糖尿病患者、吸烟者和高风险运动员制定不同的收费标准。那么我们将会进入私人健康保险系统。”
 
-[Moderna CEO Stéphane Bancel Deletes Twitter Account, Sells Tens Of Millions Of Dollars In Stock](https://thecovidworld.com/moderna-ceo-stephane-bancel-deletes-twitter-account-sells-tens-of-millions-of-dollars-in-stock/)
+全球各地的健康保险公司开始对死亡人数上升40%表示担忧，一些人认为这可能与中共病毒疫苗有关。OneAmerica首席执行官斯科特·戴维森(Scott Davison)说：“…..死亡率比大流行前增加了40%。只是为了让你了解这有多糟糕，一个三西格玛统计计算(three-sigma)或200年一遇的灾难会比大流行前增加10%。所以（增加）40%是闻所未闻的。”
 
-[Bancel Stephane](https://www.gurufocus.com/insider/Bancel+Stephane/name)
+**简评：**作为最敏感的行业之一，全球各地的保险公司肯定早已嗅到了中共病毒疫苗副作用的味道。好比德国的医疗保健公司，在去年12月份全球疫苗盛行的时候，在法官赞成的情况下，依旧拒绝了政府的荒谬提案。他们肯定知道目前疫苗带来的巨大副作用以及未来疫苗追责的不可逆性。政府难道不知道么？显然不是，德国政府多次企图利用保险机构的行为，企图改变法律的叵测居心，证明了其妄图推诿责任、提前甩锅的真实意图。仅从文中统计数据可以看到，这场中共病毒以及疫苗带来的死亡率远高于任何情况下，而这只是刚刚开始。我们须保持一颗强心脏来面对这场疫苗带来的次生灾难，坚持传播疫苗病毒真相，尽早尽快尽力地拯救更多的人。
+
+新闻链接：[https://americasfrontlinedoctors.org/news/post/german-health-insurance-companies-refuse-to-persecute-unvaccinated/](https://americasfrontlinedoctors.org/news/post/german-health-insurance-companies-refuse-to-persecute-unvaccinated/)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

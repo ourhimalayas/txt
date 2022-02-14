@@ -2,24 +2,39 @@
 ---
 
 
-## 澳大利亚开始撤离基辅大使馆
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2002384/)
+## 有声|南非将华为当地部门的雇佣问题告上法庭
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2002396/)
 
-#### 撰稿：彩虹       
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+据[ONA网站](https://www.oann.com/south-africa-takes-huaweis-local-unit-to-court-over-hiring/)援引路透社的报道，南非劳工部周五表示，南非已要求法院对中共国华为技术公司的地方部门处以罚款，因为它违反了雇用当地人的规定，并命令该公司更改其做法。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-11T160315Z_1_LYNXMPEI1A0R1_RTROPTP_0_SAFRICA-HUAWEI-TECH_1.jpg)在这张2020年1月29日拍摄的插图照片中，在一块PC主板上可以看到带有华为和5G网络标志的智能手机。（REUTERS/Dado Ruvic/File Photo）
+劳工部援引2020年的审计报告说，华为当地公司约90%的员工是外国人，超过了雇佣外国人40%的上限，这违反了 “公平就业”的规定。
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1378.png)图片来源：路透社
-2月13日，《国会山报》报道，随着俄罗斯和乌克兰之间紧张局势的加剧，澳大利亚正在撤离其驻乌克兰大使馆。
+劳工部称，它已向法院提交文件，要求对华为涉嫌违反规则的当地公司处以150万兰特（99,151美元）或2020年年度营业额的2%的罚款。
 
-周日，澳大利亚外交部长玛丽斯·佩恩（Marise Payne）宣布，驻基辅（Kyiv）使馆的所有工作人员已被告知离开，大使馆的业务已经关闭，并转移到乌克兰西部城市利沃夫（Lviv）的一个临时办公室。
+劳工部表示，华为需要根据《移民条例》的规定，雇用60%的南非人和40%的外国国民。然而华为雇用的外国工人人数远远超过了这一数字，并计划雇用更多。
 
-她说，做出这些决定的原因是“俄罗斯军队在乌克兰边境的集结导致安全局势恶化”。
+此举是南非政府首次对这家中共国科技巨头提出法律挑战。与此同时，在美国，因有人指控该公司的设备可能被中共国政府用来从事间谍活动，华为正在应对针对这一指控的制裁。
 
-佩恩在一份声明中写道：“我们继续建议澳大利亚人立即通过商业手段离开乌克兰。安全状况可能在短时间内发生变化。俄罗斯对乌克兰的军事行动将严重限制我们向澳大利亚人提供领事援助的能力。”
+文字版原文：[南非将华为当地部门的雇佣问题告上法庭](https://gnews.org/zh-hans/2001780/)
 
-**新闻来源**
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-[Australia evacuates Kyiv embassy](https://thehill.com/policy/international/594024-australia-evacuates-kyiv-embassy)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
