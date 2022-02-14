@@ -15,89 +15,89 @@
 
 ---
 
-### [安省省长福特女儿拆台 支持车队自称不戴口罩](/content/gnews/1/README.md)
+### [2/13/2022 文贵直播：爆料革命战友们都是“无苗灭共者”，不打疫苗和一心灭共紧密关联](/content/gnews/1/README.md)
+ ` 秘密翻译组-北美组`
+
+### [美联储将取消对完全接种疫苗的加拿大旅行者的抵达前 PCR 检测](/content/gnews/2/README.md)
  ` MG FARM`
 
-### [安大略省将于 3 月取消疫苗要求证明； 加速重新开放](/content/gnews/2/README.md)
+### [【粤语配音】2022年2月14日：共产党荒唐的冬奥会对华人影响巨大](/content/gnews/3/README.md)
+ ` MOS香港部`
+
+### [抗议者在大使桥对峙，清场工作停滞不前](/content/gnews/4/README.md)
  ` MG FARM`
 
-### [文耀时间-从铸币权看喜币走势-黄金价格与全球GDP走势](/content/gnews/3/README.md)
+### [安省省长福特女儿拆台 支持车队自称不戴口罩](/content/gnews/5/README.md)
+ ` MG FARM`
+
+### [安大略省将于 3 月取消疫苗要求证明； 加速重新开放](/content/gnews/6/README.md)
+ ` MG FARM`
+
+### [文耀时间-从铸币权看喜币走势-黄金价格与全球GDP走势](/content/gnews/7/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [美国将乌克兰大使馆从基辅迁至利沃夫](/content/gnews/4/README.md)
+### [美国将乌克兰大使馆从基辅迁至利沃夫](/content/gnews/8/README.md)
  ` Shuizhuyu`
 
-### [福奇进行功能增强实验的铁证（四）](/content/gnews/5/README.md)
+### [福奇进行功能增强实验的铁证（四）](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [福奇进行功能增强实验的铁证（三）](/content/gnews/6/README.md)
+### [福奇进行功能增强实验的铁证（三）](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [卢比奥提出法案以打击美国在中共国的腐败行为](/content/gnews/7/README.md)
+### [卢比奥提出法案以打击美国在中共国的腐败行为](/content/gnews/11/README.md)
  ` 波士顿五月花农场`
 
-### [欧盟应对比利时警告：中共国手机存在安全风险](/content/gnews/8/README.md)
+### [欧盟应对比利时警告：中共国手机存在安全风险](/content/gnews/12/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [文耀时间｜战友实例分享私人信托设立（三)从铸币权看喜币走势 目前金融体系的问题](/content/gnews/9/README.md)
+### [文耀时间｜战友实例分享私人信托设立（三)从铸币权看喜币走势 目前金融体系的问题](/content/gnews/13/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [福奇进行功能增强实验的铁证（二）](/content/gnews/10/README.md)
+### [福奇进行功能增强实验的铁证（二）](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [福奇进行功能增强实验的铁证（一）](/content/gnews/11/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [美国批准与台湾达成爱国者导弹支持协议](/content/gnews/12/README.md)
- ` 波士顿五月花农场`
-
-### [联邦考虑动用紧急法案终止示威](/content/gnews/13/README.md)
+### [联邦考虑动用紧急法案终止示威](/content/gnews/15/README.md)
  ` MG FARM`
 
-### [上神坛容易下神坛难——俄罗斯](/content/gnews/14/README.md)
+### [上神坛容易下神坛难——俄罗斯](/content/gnews/16/README.md)
  ` 澳喜特战旅Gnews`
 
-### [Moderna制药负责人出售自家公司股票](/content/gnews/15/README.md)
+### [Moderna制药负责人出售自家公司股票](/content/gnews/17/README.md)
  ` 澳喜特战旅Gnews`
 
-### [点线面101系统推广Hpay支付](/content/gnews/16/README.md)
+### [点线面101系统推广Hpay支付](/content/gnews/18/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [MV版Hcoin To the Moon上线67天第49次位列澳门iTunes热门MV榜首](/content/gnews/17/README.md)
+### [MV版Hcoin To the Moon上线67天第49次位列澳门iTunes热门MV榜首](/content/gnews/19/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2022年2月13日《文贵大直播》全文字版](/content/gnews/18/README.md)
+### [2022年2月13日《文贵大直播》全文字版](/content/gnews/20/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [丹麦风电巨头公布遭受网络攻击细节](/content/gnews/19/README.md)
+### [丹麦风电巨头公布遭受网络攻击细节](/content/gnews/21/README.md)
  ` 秘密翻译组-原创组`
 
-### [习近平夜郎自大欲瞒天过海强攻台湾](/content/gnews/20/README.md)
+### [习近平夜郎自大欲瞒天过海强攻台湾](/content/gnews/22/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [有声| 鎖鏈八孩女性奴李瑩與中共馭民五術的基本國策](/content/gnews/21/README.md)
+### [有声| 鎖鏈八孩女性奴李瑩與中共馭民五術的基本國策](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [有声|孤狼](/content/gnews/22/README.md)
+### [有声|孤狼](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [文贵先生盖特精要- 2022/02/14](/content/gnews/23/README.md)
+### [文贵先生盖特精要- 2022/02/14](/content/gnews/25/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|NFSC新闻、G|TV新闻访谈简报|2022年2月13日早](/content/gnews/24/README.md)
+### [有声|NFSC新闻、G|TV新闻访谈简报|2022年2月13日早](/content/gnews/26/README.md)
  ` MOSREC`
 
-### [有声| 《疫苗后遗症》主创人员解析疫苗怪相](/content/gnews/25/README.md)
+### [有声| 《疫苗后遗症》主创人员解析疫苗怪相](/content/gnews/27/README.md)
  ` MOSREC`
 
-### [有声|香草山翻译部周刊|2022年2月13日第35期](/content/gnews/26/README.md)
- ` MOSREC`
-
-### [加拿大开放大使桥，但渥太华的卡车司机不愿让步](/content/gnews/27/README.md)
+### [加拿大开放大使桥，但渥太华的卡车司机不愿让步](/content/gnews/28/README.md)
  ` 温哥华扬帆农场`
-
-### [有声|外国公民加速离开基辅，下周六拜、普相约电话会晤](/content/gnews/28/README.md)
- ` MOSREC`
 
 ### [美眾議院對中共提起嚴厲製裁法案](/content/gnews/29/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`

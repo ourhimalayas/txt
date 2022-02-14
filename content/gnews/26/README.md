@@ -2,14 +2,14 @@
 ---
 
 
-## 有声|香草山翻译部周刊|2022年2月13日第35期
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2004768/)
+## 有声|NFSC新闻、G|TV新闻访谈简报|2022年2月13日早
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2004807/)
 
 配音：香草山教育部 – 子兵
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/UBS1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/三代.jpg)
 
-文字版原文：[香草山翻译部周刊|2022年2月13日第35期](https://gnews.org/zh-hans/2000923/)
+文字版原文：[NFSC新闻、G|TV新闻访谈简报|2022年2月13日早](https://gnews.org/zh-hans/2000786/)
 
 音频处理：Fei797
 发稿：Fei797
