@@ -2,40 +2,34 @@
 ---
 
 
-## 中日财经爆┃Hpay的正式上线开启了人类社会新篇章
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1999765/)
+## 美众议院提案为因拒绝接种中共疫苗解职的军人复职
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1999617/)
 
-撰稿：东京樱花团/深藏不露
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3-36.jpg)
-美国东部时间2022年1月31日，中国农历寅虎年大年初一，爆料革命再次迎来一个历史性的时刻，在克服了常人难以想象的困难和阻碍之后，Himalaya Pay（Hpay）正式在谷歌和苹果的APP商店上线！
+撰稿：银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-3.png)
+2月10日，美国媒体消息，本周，美国共和党人公布了一项立法提案，旨在确保拒绝接种中共病毒疫苗的美国军人能够继续服役。该项立法涉及：不得使用联邦资金要求武装部队成员接种中共病毒疫苗；有关秘书不得以武装部队成员拒绝接种中共病毒疫苗为由，对该成员采取任何不利行动。该法案还要求之前因拒绝接种疫苗被开除的士兵被恢复之前的军事级别，以及损失的工资与删除的服役记录。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1298.png)图片来自：https://www.axios.com/
+据悉，由于拜登政府的强制新冠疫苗令，数百名宝贵的美国军人被迫离开军队，带走了他们多年的专业技能、无私奉献的职业生涯和终生的军事梦想，造成不可接受的结果。同时，接种新冠疫苗后的美国军人，出现各类严重并发症的数据比率严重暴增。
 
-HPAY有四个重要功能：
+媒体称，在世界如此紧张的局势下，此提案如立法，对中共疫苗带给美国军队的负面影响，将会起到一定的缓和作用。
 
-1、无条件的交易和支付
+新闻来源：[House conservatives introduce bill to protect, reinstate soldiers who refuse COVID shots](https://www.lifesitenews.com/news/house-conservatives-introduce-bill-to-protect-reinstate-soldiers-who-refuse-covid-shots/)
 
-通过Hpay进行的交易和支付没有任何附加条件。附加条件都是交易成本的一部分，因此也是生产成本的一部分，无条件意味着成本的降低和利润的增加，而且这还是完全合法的！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-3.png)
 
-2、所有全世界的交易费用是零
+总编：Ivy001
 
-全世界的交易都是要付交易费的，通过Hpay进行的支付和交易没有任何手续费。零费用意味着成本的降低和利润的增加。
+编辑：静言
 
-3.没有任何限制交易的规则
+校正/发稿：浪迹天涯
 
-Hpay没有任何规则限制交易，而且零延迟即时到帐。时间就是金钱，没有任何限制规则，意味着没有繁杂的审核，可以直接降低资金流入方的时间成本。
-
-4没有任何额度限制
-
-现在，到银行要划转自己的1万美金以上现金会受到银行的严格管制，如果你要转10万、20万，那将更加手续繁琐，时间成本高昂！Hpay没有任何额度的限制，绝对体现了我的财富我说了算。
-
-存贷款利差各种手续费是传统银行获利的一个重要手段，因此Hpay点到点、无中心化的特征避免了中间商赚取差价。无中心化和完全加密不仅消除了国界和时空的限制，而且导致政府无法监管Hpay的支付和交易，从而也无法征税。因此，每增加一个使用Hpay的商户、每增加一笔Hpay的支付，都是对共产党、邪恶政府和世界黑暗势力的一次打击！
-
-Hpay的正式上线必将对传统金融业产生巨大的颠覆，代表着人类向往自由的天性和不可逆转的发展趋势，随着Hpay的迅速发展壮大传统金融将会消失，人类社会也将因此摆脱枷锁、迎来新一轮的生产力大解放！
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

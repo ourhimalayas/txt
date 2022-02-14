@@ -2,28 +2,36 @@
 ---
 
 
-## 中日财经爆|欧盟坚定支持立陶宛反抗中共胁迫
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2002328/)
+## 有声| 美众议员称国际奥委会掩盖中共人权恶行
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2002323/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1377.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.asiafinancial.com%2Fwp-content%2Fuploads%2F2021%2F12%2FThe-Lithuanian-and-European-Union-flags-flutter-at-border-crossing-point-in-Medininkai-Lithuania-in-Sept-2020.-RtrsInts-Kalnins.jpg&amp;imgrefurl=h)
-欧洲联盟(EU)轮值主席国─法国13日表示，在会员国立陶宛和中共国可能爆发的贸易战中，将会坚定支持立陶宛。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+盖特消息，近日美国国会共和党众议员麦克.加拉格尔，在接受福克斯采访时表示，国际奥委会一直在掩盖中共国侵犯人权的行为。他还强调当共和党夺回众议院的时候，将继续开展中共病毒溯源调查。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-4.jpeg)
+加拉格尔说，国际奥委会的行为非常卑鄙，他们声称见到了彭帅，而事实上彭帅被中共非法拘禁、扣为人质，并被禁言，但国际奥委会却在帮助中共掩盖事实，无耻的做中共的同谋。加拉格尔反对在北京举办冬奥会，声称美国应当想方设法保护自己的参赛运动员。
 
-立陶宛和中共国的争议始于台湾最近在立陶宛设立代表处，挂牌的名称是台湾而非台北。
+对于中共病毒溯源问题，他说现在仍然不清楚武毒所到底发生了什么，美国纳税人的钱如何资助武毒所，开展了病毒功能增强性研究。当共和党夺回众议院的时候，就会立即开展全面调查，也会给蝠奇等一些所谓的科学家送去传票，美国人都应该知道中共病毒大瘟疫到底是如何开始的。
 
-中共因而采取报复措施，调降对立陶宛的外交关系、让立陶宛出口到中共国的商品无法通关。有广泛的报导指称，中共国已警告欧洲出口商，要切断和立陶宛的所有关系。
+文字版原文：[美众议员称国际奥委会掩盖中共人权恶行](https://gnews.org/zh-hans/2000552/)
 
-里斯特说，一项赋予欧盟所谓反胁迫能力的提案进展顺利。作法可望包括冻结取得公营事业合约、暂停对某些产品的健康和安全授权、或禁止来自欧盟资助的研究项目。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-里斯特表示，对中国和其他「不义」行为者所采取的更强硬策略，是重视自由贸易与开辟新市场的欧盟，贸易政策「范例转变」的其中之一。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-他指出，贸易是欧洲经济的重要部份，但并非不惜任何代价，不能以不公平竞争作为代价，不能以牺牲价值观为代价。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-消息来源：[中國祭出經貿報復 歐盟表態力挺立陶宛](https://www.rti.org.tw/news/view/id/2124437)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

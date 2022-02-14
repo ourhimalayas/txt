@@ -15,65 +15,65 @@
 
 ---
 
-### [2月13日大直播后记：冬奥会运动员等于爆料革命侦察员](/content/gnews/1/README.md)
+### [大直播后记：没有比新中国联邦更伟大的组织](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [下周也许决定乌克兰的命运是战争 和平或僵局](/content/gnews/2/README.md)
+### [2月13日大直播后记：冬奥会运动员等于爆料革命侦察员](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
+
+### [新中国联邦人走向愉悦健康安全的未来](/content/gnews/3/README.md)
+ ` 纽约香草山MOS02`
+
+### [下周也许决定乌克兰的命运是战争 和平或僵局](/content/gnews/4/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [卡车司机抗议传导至法国 警方强行驱离](/content/gnews/3/README.md)
+### [卡车司机抗议传导至法国 警方强行驱离](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [超过13万名俄罗斯军队目前在乌克兰境外驻扎](/content/gnews/4/README.md)
+### [超过13万名俄罗斯军队目前在乌克兰境外驻扎](/content/gnews/6/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [乌克兰总统邀请美国拜登总统前往基辅稳定局势](/content/gnews/5/README.md)
+### [乌克兰总统邀请美国拜登总统前往基辅稳定局势](/content/gnews/7/README.md)
  ` 蓝莲花农场`
 
-### [灭共几乎是人类上万年来最难的一件事](/content/gnews/6/README.md)
+### [灭共几乎是人类上万年来最难的一件事](/content/gnews/8/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [锁链性奴李莹是中共驭民五术的受害人](/content/gnews/7/README.md)
+### [锁链性奴李莹是中共驭民五术的受害人](/content/gnews/9/README.md)
  ` 纽约香草山MOS03`
 
-### [2/13/2022 文贵直播：中共和俄罗斯是即将发生的世界大战的幕后黑手，乌克兰的代理人战争一触即发](/content/gnews/8/README.md)
+### [2/13/2022 文贵直播：中共和俄罗斯是即将发生的世界大战的幕后黑手，乌克兰的代理人战争一触即发](/content/gnews/10/README.md)
  ` 秘密翻译组-北美组`
 
-### [七哥关于自己下半生的重要决定](/content/gnews/9/README.md)
+### [七哥关于自己下半生的重要决定](/content/gnews/11/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [2月13日大直播后记：世上唯一没有操纵价格的币是喜币](/content/gnews/10/README.md)
+### [2月13日大直播后记：世上唯一没有操纵价格的币是喜币](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
 
-### [中共末日疯狂被利用，银行增发助Hcoin（喜币）成赢家](/content/gnews/11/README.md)
+### [中共末日疯狂被利用，银行增发助Hcoin（喜币）成赢家](/content/gnews/13/README.md)
  ` YALUN 亚伦`
 
-### [全日空和日航开始全面接种第三针疫苗](/content/gnews/12/README.md)
+### [全日空和日航开始全面接种第三针疫苗](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2/13/2022 文贵直播：文贵在石油期货、供应链和芯片上判断精准，俄国对乌克兰尚未开战，东欧和北欧等国已倒向美国，德国欢迎美国驻军并允许部署核武器](/content/gnews/13/README.md)
+### [2/13/2022 文贵直播：文贵在石油期货、供应链和芯片上判断精准，俄国对乌克兰尚未开战，东欧和北欧等国已倒向美国，德国欢迎美国驻军并允许部署核武器](/content/gnews/15/README.md)
  ` 秘密翻译组-北美组`
 
-### [郭文贵先生2022年2月13日盖特视频（7分59秒）全文字版](/content/gnews/14/README.md)
+### [郭文贵先生2022年2月13日盖特视频（7分59秒）全文字版](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [瑞银案将揭开中共藏钱的黑洞](/content/gnews/15/README.md)
+### [瑞银案将揭开中共藏钱的黑洞](/content/gnews/17/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [2月13日大直播后记：国际组织的丑陋堕落](/content/gnews/16/README.md)
+### [2月13日大直播后记：国际组织的丑陋堕落](/content/gnews/18/README.md)
  ` 雅典娜GNotes`
 
-### [大直播后记：大卡车事件跟世界经济的关系](/content/gnews/17/README.md)
+### [大直播后记：大卡车事件跟世界经济的关系](/content/gnews/19/README.md)
  ` 雅典娜GNotes`
 
-### [文•贵天成——文贵先生谈“普京”（七）](/content/gnews/18/README.md)
- ` 墨尔本雅典娜农场`
-
-### [有声|南非将华为当地部门的雇佣问题告上法庭](/content/gnews/19/README.md)
+### [有声|南非将华为当地部门的雇佣问题告上法庭](/content/gnews/20/README.md)
  ` MOSREC`
-
-### [乌克兰寻求在48小时内与俄罗斯会面，讨论边境集结问题](/content/gnews/20/README.md)
- ` 波士顿五月花农场金融部`
 
 ### [施泰因迈尔高票连任德国总统](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
@@ -108,83 +108,83 @@
 ### [秘翻在线：兴奋剂、争议判罚等乱象频发的北京冬奥会](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [[ 聚焦港澳 ]香港蔡元培墓被破坏](/content/gnews/32/README.md)
- ` 澳喜农场`
-
-### [中日财经爆|欧盟坚定支持立陶宛反抗中共胁迫](/content/gnews/33/README.md)
+### [中日财经爆|欧盟坚定支持立陶宛反抗中共胁迫](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声| 美众议员称国际奥委会掩盖中共人权恶行](/content/gnews/34/README.md)
+### [有声| 美众议员称国际奥委会掩盖中共人权恶行](/content/gnews/33/README.md)
  ` MOSREC`
 
-### [人权活动家扯下澳五矿的中共国旗，抗议独裁的中共政权](/content/gnews/35/README.md)
+### [人权活动家扯下澳五矿的中共国旗，抗议独裁的中共政权](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2022年2月10日 晚 新中国联邦新闻、GTV新闻访谈简报](/content/gnews/36/README.md)
+### [2022年2月10日 晚 新中国联邦新闻、GTV新闻访谈简报](/content/gnews/35/README.md)
  ` 纽约香草山MOS01`
 
-### [2/13/2022 文贵直播：美元和欧元的关系不是你死我活，而是谁都离不开谁；一触即发的世界大战源于习太阳的无知、狂妄和中共国的欺骗互骗](/content/gnews/37/README.md)
+### [2/13/2022 文贵直播：美元和欧元的关系不是你死我活，而是谁都离不开谁；一触即发的世界大战源于习太阳的无知、狂妄和中共国的欺骗互骗](/content/gnews/36/README.md)
  ` 秘密翻译组-北美组`
 
-### [币圈新闻动态：喜币（HCN）价格目前在45.663 HDO](/content/gnews/38/README.md)
+### [币圈新闻动态：喜币（HCN）价格目前在45.663 HDO](/content/gnews/37/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [加拿大银行冻结了“自由车队”卡车司机110万美元资金](/content/gnews/39/README.md)
+### [加拿大银行冻结了“自由车队”卡车司机110万美元资金](/content/gnews/38/README.md)
  ` 蓝莲花农场`
 
-### [多国反强制疫苗抗议活动民众被警察逮捕](/content/gnews/40/README.md)
+### [多国反强制疫苗抗议活动民众被警察逮捕](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [华夏专栏┃中国民主化进程的具体实现（一）](/content/gnews/41/README.md)
+### [华夏专栏┃中国民主化进程的具体实现（一）](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [停止种族灭绝游戏，停止精英的叛变，让中共蒙羞](/content/gnews/42/README.md)
+### [停止种族灭绝游戏，停止精英的叛变，让中共蒙羞](/content/gnews/41/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [安德鲁·朱利安尼将反抗民主党的中共病毒强制政策](/content/gnews/43/README.md)
+### [安德鲁·朱利安尼将反抗民主党的中共病毒强制政策](/content/gnews/42/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [全球疫情更新（维生素D的个体化用法）](/content/gnews/44/README.md)
+### [全球疫情更新（维生素D的个体化用法）](/content/gnews/43/README.md)
  ` 墨尔本雅典娜农场`
 
-### [赵立坚反咬美国经济胁迫](/content/gnews/45/README.md)
+### [赵立坚反咬美国经济胁迫](/content/gnews/44/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2/13/2022国内经济财经周报：1月新增贷款近4万亿，M2同比增速近10%；深圳春节楼市仅过户一套，楼市或难小阳春](/content/gnews/46/README.md)
+### [2/13/2022国内经济财经周报：1月新增贷款近4万亿，M2同比增速近10%；深圳春节楼市仅过户一套，楼市或难小阳春](/content/gnews/45/README.md)
  ` 秘密翻译组金融团队`
 
-### [绥中县疫情爆发被封城](/content/gnews/47/README.md)
+### [绥中县疫情爆发被封城](/content/gnews/46/README.md)
  ` Tokyo Sakura Video Group`
 
-### [中日财经爆┃Hpay的正式上线开启了人类社会新篇章](/content/gnews/48/README.md)
+### [中日财经爆┃Hpay的正式上线开启了人类社会新篇章](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美众议院提案为因拒绝接种中共疫苗解职的军人复职](/content/gnews/49/README.md)
+### [美众议院提案为因拒绝接种中共疫苗解职的军人复职](/content/gnews/48/README.md)
  ` NFSC News`
 
-### [德国医保公司拒绝帮助政府实施疫苗强制令](/content/gnews/50/README.md)
+### [德国医保公司拒绝帮助政府实施疫苗强制令](/content/gnews/49/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2022/02/11 墙内世界](/content/gnews/51/README.md)
+### [2022/02/11 墙内世界](/content/gnews/50/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国使出核弹级大狠招，吓坏中共高官](/content/gnews/52/README.md)
+### [美国使出核弹级大狠招，吓坏中共高官](/content/gnews/51/README.md)
  ` 墨尔本雅典娜农场`
 
-### [日美韩三国外长在夏威夷会晤，讨论威慑朝鲜问题](/content/gnews/53/README.md)
+### [日美韩三国外长在夏威夷会晤，讨论威慑朝鲜问题](/content/gnews/52/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [立陶宛敦促世界站出来反对中共国](/content/gnews/54/README.md)
+### [立陶宛敦促世界站出来反对中共国](/content/gnews/53/README.md)
  ` 墨尔本雅典娜农场`
 
-### [英国将从乌克兰撤军，美国在英国部署B-52远程核轰炸机](/content/gnews/55/README.md)
+### [英国将从乌克兰撤军，美国在英国部署B-52远程核轰炸机](/content/gnews/54/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [丹麦和瑞典敦促公民离开乌克兰，欧盟表示不会撤离基辅](/content/gnews/56/README.md)
+### [丹麦和瑞典敦促公民离开乌克兰，欧盟表示不会撤离基辅](/content/gnews/55/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [商业集团敦促美加解决边境封锁](/content/gnews/57/README.md)
+### [商业集团敦促美加解决边境封锁](/content/gnews/56/README.md)
  ` 西班牙巴塞罗那喜悦农场`
+
+### [为何我要灭共&#8212;-14亿个徐州铁链女](/content/gnews/57/README.md)
+ ` 新西兰伊甸农场听写编辑组`
 
 ### [喜马拉雅日本银河系农场携战友为全球Hpay用户传递爱](/content/gnews/58/README.md)
  ` 喜马拉雅日本银河系农场`
