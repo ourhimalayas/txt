@@ -2,55 +2,32 @@
 ---
 
 
-## 约克区警方在瓦萨加海滩寻找两名与绑架妇女有关的嫌疑人
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2005521/)
+## 箭在弦上 | 习近平和普京的侵略战争随时打响，世界政治经济大变革来临
+` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/2005545/)
 
-作者：Kerrisa Wilson
-翻译：KK
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-207.jpg)
-约克区警方表示，他们正在通缉两名嫌犯，他们疑似与上个月在Wasaga Beach被绑架一名妇女有关。
+新西兰伊甸农场Gnews组 财经G乐部-亚伦
 
-去年12月20日，警察赶到列治文山King William Crescent的一处住宅，该住宅靠近Yonge街和Bantry大道，有人报警称一名妇女在地下停车场遭到袭击。
+2月14日，郭文贵先生Gettr视频中透露，已8天未出镜的习近平以疗养为名正在准备着对台湾的随时战争，俄罗斯在乌克兰边境集结重兵被全世界聚焦，并表示，各国政府都紧张的金融市场大动荡和疫苗灾难已慢慢开始。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Reuters-Jason-Lee.jpg)图片来源路透社
 
-警员Laura Nicolle说：”两名嫌疑人从车上下来，袭击了女性受害者。她被人用煎锅砸了一下，然后嫌疑人回到车里，从该地区逃走。”
 
-通过调查，警方确定袭击事件中使用的车辆是在多伦多的Finch大道和Don Mills路地区被盗的车辆。
+至今，习已经8天未出镜，正以在某个养老院里疗养（身体确实出现问题）为名处心积虑地酝酿对台湾的整个作战计划，随时发动对台湾的侵略战争。同时，俄罗斯也正有条不紊地进行作战准备，大批军队进入白俄罗斯，这使得乌克兰面对被包围的形势。现在的结局是，只要俄罗斯开打乌克兰同时中共攻打台湾，或者只是俄罗斯开打乌克兰，俄罗斯普京时代必将结束。因为俄罗斯没有能力对抗全世界的力量，但世界经济也必因战争大乱（制造芯片的8大主要材料3样来自俄罗斯，并控制欧洲天然气输送等），届时全球都会向中共追责。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/WANG-Zhao-AFPFile.jpg)图片来源AFP
 
-两名男性嫌疑人都为25至30岁之间。
 
-其中一名嫌疑人身高6英尺2英寸，中等身材，棕色短发。他戴着口罩，穿着迷彩、蓬松的夹克和深色裤子。
+世界正处于巨变之中，中共随时被彻底消灭。只有新中国联邦早在2020年就告诉全世界，普京和习近平密谋相互配合在冬奥会期间俄取乌克兰、中共取台湾，同时中共把针对美国的3F计划（搞弱美国、搞乱美国、搞死美国）执行到底。
 
-另一名嫌疑人身高5英尺10英寸，中等身材，身穿深色连帽外套，戴着口罩。
+随着全球卡车运动将停止强制新冠毒疫苗，北京冬奥会结束战争一起，紧接着世界经济危机、新冠毒疫苗危机的大幕拉开，所有问题都会聚集在新冠病毒的源头——武汉P4实验室。
 
-警方周五确认事件中的受害者是37岁的Elnaz Hajtamiri，并确认她就是1月12日在Wasaga Beach的一处住宅中被绑架的妇女。
+所以，**未来三件大事：**
 
-Nicolle说：”我们相信这与OPP（安大略省警察）正在进行的绑架调查有关，为同一个受害者。”
+1.新冠毒疫苗造成的死亡使得社会动荡此起彼伏，西方世界的政治格局、所谓的主流严肃媒体和西方曾引以为傲的医疗规则都会重新改写，并且推行强制新冠毒疫苗的政客、媒体等一定面临最严格地审判甚至送会上绞刑架；
 
-根据OPP的说法，Hajtamiri在她位于Trailwood Place的住所，被三名穿着假警察制服的男性嫌疑人带走。
+2. 北京对台湾和俄罗斯对乌克兰的侵略，引发世界政治板块的彻底改变。西方的文明反抗运动将使西方民主社会存在的独裁和极左问题被彻底纠正，政治转型从极左派转到中间派甚至是极右派；
 
-嫌疑人来到家中，告诉Hajtamiri是来逮捕她的。警方说Hajtamiri试图拨打9-1-1，但被制止，随后遭到绑架。
+3.世界在过去20几个月印发了将近300万亿美元的法币，资产泡沫终将被刺破，数字货币登上历史舞台。
 
-星期五，Hajtamiri的家人聘请的律师Devin Bains说，绑架她的嫌疑人还没有被确认。她的家人呼吁嫌犯能平安释放Hajtamiri。
-
-Bains告诉CTV新闻：”他们非常希望Elnaz回家，我们必须保持希望。”
-
-警方继续要求任何知情者拨打1-866-876-5423转7250联系约克区警方，或匿名联系犯罪制止者1-800-222-TIPS。
-
-来源：https://www.cp24.com/news/york-regional-police-searching-for-2-suspects-in-connection-with-abduction-of-woman-in-wasaga-beach-1.5777935
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+伴随战争发动者中共和俄罗斯的灭亡，世界进入数字货币时代，Hcoin（喜币）和Hpay（喜支付）成为大赢家，新中国联邦成为最终的受益者。
 
  
 

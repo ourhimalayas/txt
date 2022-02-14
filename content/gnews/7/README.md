@@ -2,33 +2,27 @@
 ---
 
 
-## 美联储将取消对完全接种疫苗的加拿大旅行者的抵达前 PCR 检测
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2005507/)
+## 约克区警察曝光：最不用心的伪造车牌
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2005533/)
 
-作者：Nicole Bogart
+作者：Michael Talbot
 翻译：KK
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-206.jpg)
-一位政府高阶人士告诉CTV新闻，联邦政府即将取消针对已经完全接种疫苗的加拿大人，回国时无需再提前做PCR测试。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-208.jpg)
+伪造车牌违法，但让警察没想到的是，士嘉堡一位司机伪造车牌到了令人啼笑皆非的程度，用手绘车牌还不算，居然把字写得歪歪扭扭，唯一值得欣慰的是司机伪造车牌时还用铅笔画了底稿。
 
-目前，任何到国外旅行的人，在返回加拿大之前必须提供PCR阴性测试的证明。该测试必须在预定的航班出发或抵达陆地边界的前72小时内进行。
+约克区警方表示，周五清晨，在旺市一个俱乐部附近一名执勤警察发现了一个粗制滥造的安省车牌。
 
-CTV新闻已经证实，渥太华将在本月底取消这个要求。加拿大人将被要求仅出示抗原测试阴性的证明，而不是PCR测试，这一新规定与美国类似。
+该车于凌晨12点40分左右在Bowes road和Rivermeded road附近停下。
 
-卫生部长Jean-Yves Duclos周五表示，联邦政府将在下周宣布关于加拿大边境的疫情新规。
+警方发现前车牌被盖住了，当警察取下盖子时，发现被盖住的车牌居然是手绘的，牌照号码与车后部偷盗来的车牌相匹配。
 
-自12月中旬出现COVID-19的Omicron变种病毒后，联邦政府建议不要进行非必要的国际旅行。
+警方称，这名49岁士嘉堡男子违反了获释条件中的宵禁规定。
 
-入境加拿大的外国公民，以及在加拿大境内乘坐飞机、客运列车或船只旅行的人，必须接种疫苗。
+现在司机被控两项不遵守法院命令的罪名，以及拥有低于5000元犯罪所得财产的罪名。
 
-Duclos在一次新闻发布会上说，新一轮Omicron疫情最严重的时候已经过去，政府将”继续调整”相应的措施。
+他还面临《公路交通法》的指控，罪名是使用未经授权的车辆牌照以及驾驶无牌机动车。
 
-首席公共卫生官Theresa Tam博士也表示，正在评估最新的旅行政策。
-
-由于Omicron的传染性，Tam说很难在边境阻止病例传播入境，并防止受感染的人将病毒传染给其他人。
-
-加拿大的新病例数量已经下降到每天约11,000例，但这一数据是在限制仅对高危人群进行检测的前提下得出的。
-
-来源：https://www.ctvnews.ca/health/coronavirus/feds-to-eliminate-pre-arrival-pcr-testing-for-fully-vaccinated-canadian-travellers-source-says-1.5778453
+来源：https://toronto.citynews.ca/2022/02/11/york-regional-police-ontario-licence-plate/
 
 **免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 ![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)

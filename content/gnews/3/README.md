@@ -2,41 +2,20 @@
 ---
 
 
-## 约克区警察曝光：最不用心的伪造车牌
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2005533/)
+## 加拿大国会议员反对军方疫苗政策
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2005582/)
 
-作者：Michael Talbot
-翻译：KK
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-208.jpg)
-伪造车牌违法，但让警察没想到的是，士嘉堡一位司机伪造车牌到了令人啼笑皆非的程度，用手绘车牌还不算，居然把字写得歪歪扭扭，唯一值得欣慰的是司机伪造车牌时还用铅笔画了底稿。
+加拿大温哥华扬帆农场    平民正道
 
-约克区警方表示，周五清晨，在旺市一个俱乐部附近一名执勤警察发现了一个粗制滥造的安省车牌。
+据加拿大媒体【真北方】2月10日报道，保守党议员[加兰特]就军方强行开除未接种“新冠病毒”疫苗士兵一事向国防部长提出强烈抗议。
 
-该车于凌晨12点40分左右在Bowes road和Rivermeded road附近停下。
+报道称，[加兰特]在下议院国防委员会议上，指责自由党政府对未接种疫苗军人的非法处置，比对作奸犯科的恶棍还要强硬。并表示，加拿大军队士气由于疫情影响而处于历史最低。而愚昧的疫苗政策以及残酷的疫苗伤害已导致军队失去了近万名成员。
 
-警方发现前车牌被盖住了，当警察取下盖子时，发现被盖住的车牌居然是手绘的，牌照号码与车后部偷盗来的车牌相匹配。
+在国际以及加拿大本国反疫苗与减少封锁的趋势下，尽管加兰特引用了多方例证来抨击当局的防疫措施，但国防部长却逃避问题，只一味重申特鲁多对疫苗毫无根据的信念。
 
-警方称，这名49岁士嘉堡男子违反了获释条件中的宵禁规定。
+* * *
 
-现在司机被控两项不遵守法院命令的罪名，以及拥有低于5000元犯罪所得财产的罪名。
-
-他还面临《公路交通法》的指控，罪名是使用未经授权的车辆牌照以及驾驶无牌机动车。
-
-来源：https://toronto.citynews.ca/2022/02/11/york-regional-police-ontario-licence-plate/
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+加拿大温哥华扬帆农场   枫叶快讯   2月14日午间新闻归纳整理。
 
  
 

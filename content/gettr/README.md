@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/14/2022 11:00 PM (UTC)`
+
+2/14/2022 Miles Guo’s GETTR: Only the Lao Baixing in the civilized countries can speak up and rise up against the COVID vaccine mandate. The Winter Olympics and the incident of Eileen Gu and her mother has pitted the overseas Chinese against the entire world. Weijian Shan, who covers up for the CCP, has swindled countless pension funds across the globe. If the CCP and communism are not eliminated, there will be no peace in the world.<br/><br/>2/14/2022 文贵盖特：只有文明国家的老百姓才能发声并反抗强打疫苗；冬奥会和谷爱凌母女让海外华人与全世界对立；替共产党洗地的单伟建骗了全世界无数养老金；中共和共产主义不灭，世界永无和平<br/>
+![img](https://media.gettr.com/group9/getter/2022/02/14/22/34250528-372e-2e51-da1b-8b1f3ac908a5/out.jpg)
+
+---
+
 `@miles 2/14/2022 10:20 PM (UTC)`
 
 2/13/2022 Miles Guo: Why do I insist on filing for personal bankruptcy? Since I made up my mind to take down the CCP in 1989, I have never cared about my reputation. I only care about my fellow fighters!<br/><br/>2/13/2022 文贵直播：为什么文贵坚持要申请个人破产？自从1989年下定决心开始灭共以来，文贵就没有在乎过自己的羽毛，文贵只在乎战友们！
@@ -149,13 +156,6 @@
 
 2/12/2022 Miles Guo’s GETTR: How to make big decisions in your life? In addition to seeing through life and death and letting go of fear, you should also make independent judgment without being influenced by others. You can do whatever you decide to do so long as you feel in your heart that your decision is meaningful, right, and will not hurt others or can help others.<br/><br/>2/12/2022 文贵盖特：回答战友关于如何做出人生重大决定的问题，除了看透生死、放下恐惧，还要独立判断、不受他人影响，只要是你内心觉得有意义的、正确的、不伤害别人或能帮助别人的都可以做<br/>
 ![img](https://media.gettr.com/group16/getter/2022/02/13/02/4d1086ac-8769-32b3-d14b-fc9063928dc9/out.jpg)
-
----
-
-`@miles 2/13/2022 1:55 AM (UTC)`
-
-2/11/2022 Miles Guo: I will get to the bottom of everything about Weijian Shan and PAG. The CCP has trampled on the international rules. The more the CCP infiltrates, attacks, and falsifies in the West, the worse the CCP will end up. Coups are taking place in many African countries, and the anti-CCP forces will replace those pro-CCP forces.<br/><br/>2/11/2022 文贵直播：文贵必将把单伟健和PAG的事情整明白；中共践踏国际规则，在西方的渗透、攻击和造假越多，中共下场越惨；非洲多国在发生政变，反共势力将取代亲共势力
-![img](https://media.gettr.com/group18/getter/2022/02/13/01/345aa676-5510-85ca-964f-8cd80bd3ebc7/out.jpg)
 
 ---
 
