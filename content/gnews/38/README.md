@@ -2,48 +2,22 @@
 ---
 
 
-## 中共国人均可支配收入占GDP之比回到改革开放前
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2002372/)
+## 全日空和日航开始全面接种第三针疫苗
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2002432/)
 
-作者：香草山教育部-文斗
+撰稿：东京樱花团/文小白
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1382.png)
+据日本产经新闻2月14日消息，全日空航空公司今日向媒体披露了羽田机场接种新型冠状病毒疫苗的情况。日本航空公司也会同样跟进。这两家公司都先于其他民间公司，从12日开始了第三针新冠疫苗的接种。岸田文雄首相等人到现场进行了视察。12日的接种人数在10人左右，预定14日开始全面实施。
 
+接种对象包括全日空航空公司的员工、家人以及商业伙伴在内大约20,000人，日本航空公司大约17,000人，预计6月底前完成全员接种。第三针的接种将优先考虑担任海外航线任务，感染风险高的飞行员和空乘人员。
 
+作为对高传染性 Omicron 毒株的对应措施，日本政府加快了从2月下旬开始的公司和大学等职场的疫苗接种。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+信息来源：[全日空と日航、接種本格化　職場３回目、報道陣に公開](https://www.sankei.com/article/20220214-RBFBHDVXS5KHRB6MBOPQ3QIN5M/)
 
-
-
-中共国人均可支配收入占GDP比重在1978年时约为44%，改革开放初期曾超过60%，自20世纪80年代中期开始一路直线下降，2005年后重新回到改革开放前的44%左右，并一直原地踏步至今，大幅低于世界平均水平。
-
-其中城镇居民可支配收入占GDP比重1978年是89.09%，2021年是58.55%，下降了31个百分点。农村居民可支配收入占GDP的比重1978年是34.81%，20世纪80年代初期有所提升，此后一路走低，在2010后维持在20%左右，较1978年的34.81%下降了超过10个百分点。中共国所谓“改革开放”四十余年，严重不公平的财富分配体制丝毫未改，百姓依旧高付出低获得。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide10-6.jpg)
-参考链接：
-1. [陈宪：从人均可支配收入占人均GDP比重看为什么要减税](https://www.acem.sjtu.edu.cn/faculty/teacherview/37755.html)
-2. [从指标异常角度探讨共同富裕的路径](https://m.yicai.com/news/101152856.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

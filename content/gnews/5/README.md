@@ -2,43 +2,32 @@
 ---
 
 
-## TikTok，中共国和俄罗斯在与西方的数据战争中的“武器”（二）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2003296/)
+## 希望
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2003306/)
 
-**编译：七龙珠**
+**作者：大象腿**
+[![](https://express.adobe.com/page/S8dheRxnPzYL6/images/d48feef3-6595-424b-9dad-2eecb066c55e.jpg?asset_id=c6dbfe3a-778e-4feb-a239-ec2047606780&amp;img_etag=%22899212d47bede6fd99bc9c75f25766d1%22&amp;size=1024)](https://express.adobe.com/page/S8dheRxnPzYL6/images/d48feef3-6595-424b-9dad-2eecb066c55e.jpg?asset_id=c6dbfe3a-778e-4feb-a239-ec2047606780&amp;img_etag=%22899212d47bede6fd99bc9c75f25766d1%22&amp;size=1024)来源网络
+上学的时候老师告诉我，作文要写成阅卷老师喜欢的样子，那样你才能得到高分。可是我是一个长相丑陋，内心同样不够美丽的人，我不可能活成大人们期望的样子，所以家长老师的希望在我身上统统落空了，到现在我才明白，所谓的家长和老师只不过是为了自己的那份荣誉或者是虚荣心才逼迫孩子的。也许我也会逼迫自己的孩子做他不喜欢的事情，虽然我知道我的希望和现实相差太远。所有的父母都希望自己孩子有出息，可是事实是在中共这个体制下，家庭教育、学校教育和社会教育最终把所谓的“花朵们”都培养成了中共的奴隶，只知道干活和吃饭的动物。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnipTikTok%EF%BC%8C%E4%B8%AD%E5%85%B1%E5%9B%BD%E5%92%8C%E4%BF%84%E7%BD%97%E6%96%AF%E5%9C%A8%E4%B8%8E%E8%A5%BF%E6%96%B9%E7%9A%84%E6%95%B0%E6%8D%AE%E6%88%98%E4%BA%89%E4%B8%AD%E7%9A%84%E6%AD%A6%E5%99%A8.png)图片来源：vozpopuli.com
+我总是在想这是为什么，但是总也得不到答案。为什么有希望的一代人最后变成了木头人？变成了工具？为什么现实生活中最辛苦的人，反而对生活如此的向往和抱有希望？为什么他们意识不到自己是被邪恶中共奴役的，结局注定是悲剧？
 
-谁是TikTok的后台？
+有时候我在刷短视频时，总能看到很多身患绝症的人在直播卖货，为了自己的医药费乞求网友买他一单货，你知道他卖的什么吗？是垃圾桶塑料袋。与中共国的天价医药费相比，如此利润微薄的塑料袋竟然成了他活命的希望。围观的人都知道垃圾桶、塑料袋不可能为他们的生活带来任何光明和希望，可是这些生活在社会最底层的绝症患者们有其他的选择吗？中共掠夺了本属于百姓的资源，挥霍了百姓创造的财富，到头来生病生不起，活也活不起，死更死不起。更可悲的是被中共长期洗脑的百姓却浑然不知这一切都是中共造的孽，对这个烂透了的体制依然抱有一丝希望。
+[![](https://express.adobe.com/page/S8dheRxnPzYL6/images/6f4ab6b5-c2d9-4d98-9f16-305235433979.jpg?asset_id=4551b517-974d-42c0-9276-ed5964fe7c6f&amp;img_etag=%226d8305a4a73c6e9ee6e29b9fda055188%22&amp;size=1024)](https://express.adobe.com/page/S8dheRxnPzYL6/images/6f4ab6b5-c2d9-4d98-9f16-305235433979.jpg?asset_id=4551b517-974d-42c0-9276-ed5964fe7c6f&amp;img_etag=%226d8305a4a73c6e9ee6e29b9fda055188%22&amp;size=1024)
+来源网络
 
-TikTok由字节跳动ByteDance于2017年推出，字节跳动ByteDance是一家位于北京的中共国科技公司，在开曼群岛注册，它的估值为750亿美元，由企业家张一鸣在2012年创立。根据其网站上公布的数据，它由Coatue、General Atlantic、KKR、Sequoia Capital、Susquehanna International和Softbank等机构拥有。与其他中共国公司的情况一样，我们很难获得像西方上市公司那样的全面账目报告。该公司尚未在证券交易所上市，正在考虑在不久的将来在香港证券交易所上市。
+中国人就是这么可悲，自己活得如同乞丐一样却依然寄希望于别人，寄希望于这个被中共糟蹋得体无完肤的社会，从来不问是谁将苦难带给了中国人民。我在无数癌症患者的直播平台上留言，尝试分享我的想法，让他们明白自救的重要性，尽管只有一个人回复我，我也觉得很欣慰和很有意义，我更相信一个明是非、知善恶的坚强自救的人一定会得到天助。
 
-与马克-扎克伯格创立的公司（成立于2004年）相比，TikTok几乎是个新人，但它的发展速度比其直接竞争对手Facebook旗下的Instagram快得多。据路透社报道，去年夏天TikTok的月度活跃用户达到10亿。Instagram花了五年时间才达到这个数字，但TikTok在三年内就做到了。Facebook，这个地球上使用最多的社交网络，拥有19.29亿月度用户。
+我们新中国联邦人是最先开智的那一批人，我们有责任和义务传播真相，让更多的同胞们觉醒，让他们知晓是谁造就了今天的苦难，是谁让中国人变得是非不分、善恶不明。不要悲伤，战友们行动起来吧，我们的每一次分享、传播、自救、救人都会使苟延残喘的中共距离灭亡更近一步，保重待天明。
 
-尽管是中文，TikTok不能在中共国使用。它是为西方设计的，年轻的西方观众（青少年、20多岁的人）在其中找到了自己的快乐和潜力。对于共产党专政的公民，有一个类似的版本的社交软件，叫做“抖音”。它针对的是更广泛的年龄范围。
+*编辑：【英国伦敦喜庄园编辑部】*
 
-西方居民不能使用抖音，而中国人不能使用TikTok。这在平壤政权中很常见。谷歌、Instagram或WhatsApp等应用程序在中共国境内也是不允许的。但是他们在本地开发的“克隆版本”，如百度、抖音或微信。
+*校对：仙女儿-文善  | 审核：文明明  | Page: Daoiii*
 
-从官面上看，大陆版本的应用程序对用户进行了更大的控制。我们曾试图查阅抖音网（www.douyin.com）上的隐私政策，但没有成功。虽然可以查阅该网页，并看到来自西班牙的用户视频，但我们未能查阅其隐私政策，而这类服务条款会解释如何处理用户信息的。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-TikTok收集哪些数据？
-
-TikTok可以在用户同意的情况下，收集诸如位置、实际地址、出生日期、付款细节、浏览历史或设备标识符等信息，它还详细说明了这些信息的存储地点。“TikTok的用户数据储存在美国和新加坡的安全数据中心，我们已经宣布计划在爱尔兰和印度建立数据中心”该社交网络在其隐私政策中反映，“我们确保对用户数据进行加密，对员工访问这些信息实施强有力的限制，遵循我们所在市场的当地法律，并紧跟当地法规，实施高水平的实践”。
-
-但TikTok曾多次被指控向中共国发送用户信息，该社交网络对此予以否认。没有什么是该平台没有被指控过的。欧盟宣布这家美国公司在本国处理欧洲公民的数据是非法的。管辖欧盟的《通用数据保护条例》（GDPR）不允许将个人信息发送到在这方面不安全的国家。
-
-同样，没有什么是Facebook没有被指控过的。在布鲁塞尔将矛头指向Facebook后，该社交网络威胁要离开欧洲。一些非常值得怀疑的东西是值得相信的，首先，因为欧洲是一个拥有近4亿人口的巨大的市场，其次，由于数据的战略重要性，美国在欧洲等大陆保留像Facebook这样的巨头是很有意思的。
-
-新闻来源：[vozpopuli.com] [TikTok, el ‘arma’ de China y Rusia en la guerra del dato contra Occidente](https://www.vozpopuli.com/actualidad/tiktok-arma-china-rusia.html)
-
-【接下篇：[TikTok，中共国和俄罗斯在与西方的数据战争中的“武器”（三）](https://gnews.org/zh-hans/2001150/)】
-
-* * *
-
-*审核：Aries的星
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1.jpeg)
+[![](https://express.adobe.com/page/S8dheRxnPzYL6/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://express.adobe.com/page/S8dheRxnPzYL6/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

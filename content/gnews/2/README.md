@@ -2,61 +2,48 @@
 ---
 
 
-## 基努·里维斯对中共国有话说
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2003307/)
+## NBA 通过解雇埃内斯向中共磕头
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2003329/)
 
-翻译：**Lulumi**
+参议员玛莎.布莱克本：
+NBA 已经做出了一个经过深思熟虑的选择，通过解雇埃内斯 @EnesFreedom 向中共磕头，对他们的种族灭绝和压迫视而不见。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1393.png)2017年6月13日，基努·里维斯出席在日本东京六本木山举行的《约翰·威克：第二章》的日本首映式。(盖蒂图片)
+我与无论发生什么都勇敢捍卫正义的埃内斯站在一起。
 
-好莱坞与中国的恋情已经有据可查，但好莱坞演员对中国的爱恋却没有。
 
-近年来，迈克尔·道格拉斯、迈克尔·皮特、弗兰克·格里罗（担任《战狼2》主演，是中国历史上票房最高的电影）、布鲁斯·威利斯和阿德里安·布罗迪等美国演员都为亲中国的说法做出了表率。
 
-当然，在讨论演员和亲华叙事时，不能绕开约翰·塞纳，他曾大胆地称台湾为国家。因为这个“失言”，他用流利的普通话向中共道歉。塞纳的表演堪称奥斯卡级别。
+> The NBA has made a calculated choice to kowtow to the CCP and turn a blind eye to their genocide and oppression by firing [@EnesFreedom](https://twitter.com/EnesFreedom?ref_src=twsrc%5Etfw). 
+> 
+> I stand with Enes, who has bravely defended what’s right no matter what.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [February 13, 2022](https://twitter.com/MarshaBlackburn/status/1492964419814449153?ref_src=twsrc%5Etfw)
 
-值得庆幸的是，有一个演员对向中共道歉不感兴趣。这个人就是基努·里维斯。在谈到中国时，与上述演员不同，《黑客帝国》的主演显然选择了红色药丸而不是蓝色药丸。
 
-57岁的里维斯出生于贝鲁特，他不仅仅是一个有成就的演员，也恰好是一个有成就的音乐家。3月3日，他将在第35届西藏之家美国慈善音乐会上表演，与帕蒂·史密斯、特雷·阿纳斯塔西奥和杰森·伊塞尔等人同台。
 
-早在1987年，应达赖喇嘛的要求，西藏之家成立了一个位于纽约的教育非营利机构，致力于保存和保护西藏古老的哲学、艺术和文化传统。
+美国务卿安东尼·布林肯：
+前往墨尔本参加了四方会议，去斐济与太平洋岛国领导人进行了会面，并在檀香山与日本和韩国举行了三边会议。 美国是印-太地区引以为豪的一部分，该地区对我们国家的安全和繁荣至关重要。
+【附视频，2月11日布林肯在美奥印日四边会议上的讲话】
 
-正如我之前所表明的，中共对西藏感兴趣的原因非常明确——它的自然资源。西藏高原是4.6万多条冰川的故乡，拥有世界上最大的淡水储备之一。西藏被称为亚洲“水塔”，孟加拉国、柬埔寨、中国、印度、老挝、缅甸、尼泊尔、巴基斯坦、泰国和越南等10个国家的近25亿人都依靠这座“水塔”作为水源。不要搞错了，中共想要控制亚洲大陆的供水，因此它醉心于控制西藏。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1395.png)2021年6月4日，中国西藏林芝，政府组织的记者参观活动中拍摄的雅鲁藏布江。(盖蒂图片)
 
-表明立场
+> Had an excellent trip to Melbourne for the Quad, Fiji to meet with Pacific Island leaders, and Honolulu for a trilateral meeting with Japan and the ROK. The U.S. is a proud part of the Indo-Pacific, and this region is critically important to our nation’s security and prosperity. [pic.twitter.com/Ng8IiIhk8d](https://t.co/Ng8IiIhk8d)
+> — Secretary Antony Blinken (@SecBlinken) [February 13, 2022](https://twitter.com/SecBlinken/status/1492947628799275009?ref_src=twsrc%5Etfw)
 
-西藏人民是绝望的。值得称赞的是当世界上大多数人袖手旁观时，里维斯准备表明立场。毫不奇怪，中共国人很不高兴。
 
-正如《好莱坞报道》最近报道的那样，这位演员已经“招致”数百万中国民族主义者的愤怒。一群年轻的、具有强烈攻击性的、自我感觉超级好的键盘侠小粉红，建议里维斯以及他未来的所有作品都应该被禁止进入中国。这位电影明星正在迅速成为“中国娱乐界事实上不受欢迎的人”——这使得他捍卫西藏的意愿更加令人印象深刻。
 
-里维斯的身价约为3.8亿美元，他不需要表演。他不需要做任何事情。但他已经提出要做些事情。这是值得庆祝的事情。
+参议员瑞克·斯科特:
+埃内斯·坎特@EnesFreedom 是一名勇猛的自由和人权斗士，就像他在篮球场上展示的才华一样。 NBA 将埃内斯赶出去的企图只是其对 #共产主义中国 怯懦绥靖的最新令人作呕的例子。
 
-毕竟，已经很久没有一个真正的好莱坞重量级人物站出来反对中共国了。事实上，已经有30年之久了。
+# 支持埃内斯 #StandWithEnes
 
-1993年，理查·基尔，当时好莱坞最大明星之一，成为全世界尤其中国的头条新闻。在奥斯卡颁奖典礼上，基尔上台颁发了最佳艺术指导奖。然而，在宣布获奖者之前，作为一个虔诚的佛教徒和达赖喇嘛的长期朋友，基尔完全脱离讲稿，批评中共对西藏的占领以及其“非常可怕的人权状况”。因为说了实话，基尔受到了严厉的惩罚。委员会禁止他参加未来的奥斯卡奖，这个禁令至今仍然存在。
+【转报道：NBA与中共国同床共枕…】
 
-很明显，基尔已经为他的诚实付出了沉重的代价。2017年，这位演员告诉《好莱坞报道者》，一直有“我不能参加的电影，因为中国人会说，‘他不能参演’”。他补充说，“我最近有一个影片，有人说他们不能和我一起投资这部电影，因为这会让中国人不高兴。”
 
-在这次令人沮丧的采访前一年，音乐家Lady Gaga，一个本身就很厉害的歌手，与达赖喇嘛会面。因此她发现自己处于与基尔先生类似的境地。这位歌手现在被禁止在中国进行巡演或销售商品。
 
-这让我们回到里维斯先生身上。为什么要表明立场？为什么要砸他自己的演艺事业？
+> .[@EnesFreedom](https://twitter.com/EnesFreedom?ref_src=twsrc%5Etfw) is as fierce a fighter for freedom & human rights as he is talented on the basketball court. The [@NBA](https://twitter.com/NBA?ref_src=twsrc%5Etfw)’s efforts to push Enes out are just the latest disgusting example of its cowardly appeasement toward Communist China. [#StandWithEnes](https://twitter.com/hashtag/StandWithEnes?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/YONzDWxcbZ](https://t.co/YONzDWxcbZ)
+> — Rick Scott (@SenRickScott) [February 13, 2022](https://twitter.com/SenRickScott/status/1492937611220029441?ref_src=twsrc%5Etfw)
 
-提醒大家，说起电影，中国市场是迄今为止世界上最大的市场。但对里维斯来说，似乎有比钱更重要的东西。2019年，《纽约客》发表了一篇有趣的文章，题为“基努·里维斯对这个世界太好了”。读完这篇文章后，很难不同意。对好莱坞来说，他当然显得太优秀了，这个地方充满了道德上的哗众取宠和肤浅的关注。
 
-虽然许多演员假装表明立场，但里维斯真的付诸行动。就这一点而言，他应该得到很大的赞扬。
 
-本文所表达的观点是作者的意见，不反映《大纪元》的观点。
-
-素材链接：[theepochtimes.com] [Keanu Reeves Has a Message for China](https://www.theepochtimes.com/keanu-reeves-has-a-message-for-china_4259538.html)
-
-* * *
-
-*审核：文乐
-校对：小东
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

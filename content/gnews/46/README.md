@@ -2,10 +2,10 @@
 ---
 
 
-## 美日澳印四方外长会谈将讨论中共强硬态度和乌克兰危机
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2002141/)
+## 辉瑞收回向FDA提交5岁以下儿童的疫苗申请
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2002151/)
 
-02/11/2022 印度媒体Wion：美日澳印四方外长会谈将讨论中共的强硬态度和乌克兰危机。中共日益强硬的态度让这四个国家感到担忧。
+02/11/2022 辉瑞收回向FDA提交5岁以下儿童的疫苗申请。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

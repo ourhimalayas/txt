@@ -2,49 +2,52 @@
 ---
 
 
-## 喜马拉雅币一周分析与总结（2月7日-2月13日）
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2002374/)
+## 中共末日疯狂被利用，银行增发助Hcoin（喜币）成赢家
+` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/2002435/)
 
-作者：香草山金融部 – ILOVE战神
+新西兰伊甸农场Gnews组 财经G乐部-亚伦
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
+2月13日，郭文贵先生于GTV、Gettr大直播中透露中共的末日疯狂被俄罗斯利用，中共会被灭掉而欧洲因此重生，最后最大的赢家就是Hcoin（喜币）和Hpay（喜支付）。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1212.jpg)图片来源Finance QQ
 
 
-过去一周喜马拉雅币价格回落至45美元左右，平均日交易量约为12万枚喜币。喜币上市以来总交易量约2800万枚 ，占今年总发行量的仅约2.8%。目前喜币交易在全球尚未完全开放，市场交易量较低，价格仍被严重低估。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide12-4.jpg)
-最近全球战友都积极投入到喜支付的推广活动中。2月10日，台湾农场团队直播了使用HPAY购买及交付第一辆汽车的实况。交易标的是一台2019年出厂的宝马 X3休旅车二手车，交易金额约为1200 HCN。买卖双方当场使用HPAY，瞬间就完成了买车款项的支付。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Picture1-7.jpg)
-据卖家台湾农场大象表示，他选择以喜币交易，好处是可以省去被信用卡公司抽取的手续费、货款可以瞬间入账不必经由银行造成延迟收款、也可以享受未来喜币预期的涨价空间。
+美元和欧元是相互竞争又依赖的关系，美元需要欧元，否则人民币和瑞士法郎就会做大，但是美国又不允许欧元比美元强大。欧盟的核心利益就是避免与俄罗斯战争的前提下继续东扩，俄罗斯肯定不允许自己的势力被蚕食。美国放任俄罗斯开打乌克兰，可以弱化欧盟而增强自己的影响力。中共的末日疯狂被俄罗斯利用，赢家是美国和俄罗斯，中共会被灭掉而欧洲因此重生。在这个过程当中芯片、大型货运、石油和俄罗斯相关金属的价格都会暴涨，而金融股票市场会像坐火箭似的上蹿下跳，但数字货币会成为最终大赢家。
 
-本周据郭文贵先生在大直播中透露，俄乌政治危机对全球供应链造成巨大伤害后，数字货币将成为全球经济危机中的最大赢家，其中H-Pay将成为数字货币中的最大赢家。经过一系列事件的发酵，3个月后喜币的价格将达到之前难以想象的新高度。郭先生还表示，喜币和喜支付将打破中共对钱的垄断，让中国人真正拥有自己的财富，从而拥有自己独立的人格和思想，这些都是中国人拥有人权和真相的基础。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture-14.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/Picture2-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/Picture3-5.png)
-参考链接：
-1.[Himalaya Exchange & HIMALAYA PAY – Your key to the Himalaya Ecosystem](https://himalaya.exchange/himalaya-pay)
-2. [台湾使用HPAY完成第一台汽车交易](https://gnews.org/zh-hans/1994357/)
+过去法币时代的银行利用金融会计技巧无中生有的增发法币，又有不可兑现的法律权利。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+根据BBC纪录片《比特币：钱的终结》中的阐述，当储户把100美元存入银行，银行只留下3%的存款准备金（保证客户提取存款和资金清算需要而准备的资金）也就是3美元，97%即97美元借贷给张三。在银行的网络中，仍然有100美元在储户的户头，但是张三的银行账户里多了97美元的虚拟资产（这就是由借贷创造的新钱）。张三的收款银行同样留下3%的存款准备金（$97\*3%=$2.91）后，张三再用这笔钱去消费或投资到李四，那么李四银行的资产又多了94.01美元（$97-$2.91）。以此类推层层累加，原本100美元的存款通过成倍的增长最后在整个银行系统里变成3333美元。这样外借的过程使得银行获得比实际拥有量多得多的钱，这部分被称为银行的部分准备金（Fractional reserve banking），相当于更多的银行都拥有中央银行的印钞权。
 
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+除此之外，各国法律还规定银行破产可以不偿还本金给储户，即银行有不兑现的权利。所以，现代银行和法币是人类史上最大的骗局。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/47526bcf73cbc8e6d6e40d04ad64258a.png)图片来源Gettr 使用即金钱
 
 
+而大赢家数字货币中最大的赢家就是Hcoin（喜币）加Hpay（喜支付），因为Hcoin（喜币）具有4个方面的绝对优势。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+Hcoin（喜币）在出世之前就已经钉死每年最多发行10亿个的规则，多一个就是犯罪；
+
+第二、1稳定币HDO（喜美元）就对应实际1美元，绝不可能出现不能兑现的情况；
+
+第三、银行是第三方的经营中介，而Hcoin（喜币）和HDO（喜美元）通过Hpay（喜支付）是A到B直接的点到点，没有中介方；
+
+第四、Hpay（喜支付）免转账手续费（未来仅收取大额交易手续费）。
+
+而且，需要强调即将发生的主权国家认可、大额投资和Hpay（喜支付）的全面使用，会让Hcoin（喜币）的价值一个10万美元不是目标。
+
+**注：**
+
+以加拿大为例，前提存款机构是CDIC的成员银行，一旦成员破产或倒闭不能履行还款责任时，CDIC为每位存款人在其成员机构如所属的银行、信托公司、信贷公司的存款人，提供最高10万加元的存款保险。
+
+**受保的资产包括：** 储蓄和支票户头的本币或外币，GIC（担保投资证）等；
+
+**不受保的资产包括：**股票、互惠基金、政府、银行和公司的债券、数字货币等。
+
+**相关网站链接：**
+
+[https://gettr.com/post/pu58yv4a81](https://gettr.com/post/pu58yv4a81)
+
+
+
+> [Protecting your deposits](https://www.cdic.ca/your-coverage/protecting-your-deposit/)
 
 
 
