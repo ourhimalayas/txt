@@ -2,31 +2,28 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年2月14日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2004672/)
+## 有声|灭共是人类有史以来最艰巨的事业
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2004675/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO.jpg)
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生在2月9日大直播中表示：新中国联邦正在充分利用北京冬奥会这个契机灭共，现场战友随时准备哼唱《灭共的雪》，周围人群一旦有感觉，将处处有人回应。以“一切都是刚刚开始” ，“甜蜜蜜”等暗号回应。灭共的力量在冬奥现场无处不在，爆料革命已深入人心，星星之火正在燎原。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-13.png)
-文章仅代表作者本人观点，与Gnews无关
+纵观人类历史，爆料革命和新中国联邦的广大战友所参与的这场灭共事业，是一场前无古人的运动：在人类即将屈服于中共的淫威之际，在我们手无寸铁、还要尽量确保不发生流血冲突的情况下消灭共产党。其难度之大可见一斑。
 
-视频参看：
-[2022.02.14早 《NFSC新闻》](https://gtv.org/video/id=620a5919a456fe1dea313294)
-[2022.02.14早 G|TV《新闻访谈》](https://gtv.org/video/id=620a6221a456fe1dea31378b)
+文字版原文：[灭共是人类有史以来最艰巨的事业](https://gnews.org/zh-hans/1998985/)
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+音频处理/发稿：Daxia
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-callendar-1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
 **更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,23 +2,28 @@
 ---
 
 
-## 有声|德转强硬 将中共定为体制竞争对手
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2004537/)
+## 疫苗未能降低感染 引发其它病症死亡率上升
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2004588/)
 
-配音：香草山巡管部– 文凯琳
+作者：日本方舟农场-Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月11日，《疫苗后遗症》的导演长尾和宏医生和主创鸟集彻记者，在首映后的交谈中，讲述了中共病毒疫苗异于常理的怪相，以及造成死亡率上升的后果。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-14-上午11.21.27.png)
+首先，中共病毒疫苗与人们的常识相反，表现在未接种人群害怕接种人群传播病毒，接种人群实际上是感染源头。而这一点早在去年日本引入疫苗之前，国立感染研究院等机构就已经明确指出疫苗所造成的ADE效应，会让接种人群更容易感染。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+其次，中共病毒疫苗没有降低死亡数字，反而在大规模接种后出现死亡率上升的趋势。而日本2021年的人口相比2020年减少了6万人，也佐证了这个观点。对此长尾医生解释道，疫苗会降低整个人体的免疫力，使接种人群更容易诱发其他疾病。
 
-2月12日，德国媒体报导，德国外交部将发文给各政府部门，要求将中共定义为“体制竞争对手”。
+第三，因奥密克戎变种带来的感染峰值已经过去，现在推行加强针来降低感染的理由，已经失去了现实支撑。
 
-欧盟早在2019年就已将中共视为“体制竞争对手”，但是亲中共的前任默克尔政府一直不敢表态。新任德国联合政府显然已经开始转向，不再将中共视为亲密的伙伴。组成新联合政府的三个政党，之前在对待中共的问题上曾达成协议，包括指控中共在新疆设立劳改营，以及支持让台湾参与更多国际组织等。这次德国外交部的发文显示，德国新政府将逐步落实三党与中共有关的协议内容。
+同时，长尾医生在演讲的最后，希望民众能发出自己的声音，推动日本“小儿科”学会阻止3月份即将开始的对5-11岁儿童甚至6个月以上婴儿的疫苗接种。
 
-德国新政府这次并没有派官方代表去参加北京冬季奥运，而且总理萧兹将在与中共会面之前，先与印度及日本政府进行磋商商。目前属于社民党的德国总理萧兹及属于绿党的外交部长贝尔伯克都没有访问中共的计划。
+参考链接：[https://www.gettr.com/post/pu8h568408](https://www.gettr.com/post/pu8h568408)
 
-文字版原文：[德转强硬 将中共定为体制竞争对手](https://gnews.org/zh-hans/2002370/)
-音频处理/发稿：Daxia
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+总编：文真
+编辑：宁文静
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -26,7 +31,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
