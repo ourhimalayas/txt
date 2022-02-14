@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/14/2022 3:31 PM (UTC)`
+
+2月14号：尊敬的战友们好！再祝全天下的兄弟姐妹们，战友们．情人节快乐！
+![img](https://media.gettr.com/group50/getter/2022/02/14/15/f319ddca-6d74-5245-af1d-a42d87560118/out.jpg)
+
+---
+
 `@miles 2/14/2022 3:17 PM (UTC)`
 
 2/13/2022 Miles Guo: The International Olympic Committee is a criminal organization that has committed countless crimes. All the international organizations corrupted by the CCP such as the WTO, WHO, and the UN Commission on Human Rights are lawless and have been exploiting the Chinese people by colluding with the CCP. Without faith, humans will be more wicked than devils.<br/><br/>2/13/2022 文贵直播：国际奥委会是罪组织，其罪行罄竹难书；被中共腐败的WTO、WHO和联合国人权理事会等国际组织无法无天，跟中共沆瀣一气压迫中国人；若信仰缺失，人比魔更邪恶<br/>
@@ -149,13 +156,6 @@
 
 2/11/2022 Miles Guo: I really appreciate that fellow fighters are willing to donate money to me. However, I have never asked and will never ask anyone for money, and I never accept any donations. So, fellow fighters, please don’t donate money to me!<br/><br/>2/11/2022 文贵直播：战友们要捐钱给文贵的好意文贵心领了，但文贵从来不向任何人伸手要钱，也从不接受任何捐赠，所以战友们千万不要捐钱给文贵！<br/>
 ![img](https://media.gettr.com/group45/getter/2022/02/13/01/979dbd7b-c4c4-4423-e5fe-38a17baa7217/out.jpg)
-
----
-
-`@miles 2/13/2022 12:52 AM (UTC)`
-
-2/11/2022 Miles Guo: The CCP is propagating Eileen Gu on a massive scale to cover up the chained woman incident by using the so-called "positive energy" of the Winter Olympics. The chained woman is a family member of a CCP member, and the incident has made everyone in the CCP worry about themselves, and this will certainly provoke the collapse inside the CCP!<br/><br/>2/11/2022 文贵直播: 中共大肆宣传谷爱凌意在利用冬奥会的所谓正能量掩盖锁链女事件；锁链女是共产党员的家人，此事令中共人人自危，必将激起中共党内的土崩瓦解！<br/>
-![img](https://media.gettr.com/group26/getter/2022/02/13/00/21ee1ca3-f151-e081-1d0d-93f530e1fdb0/out.jpg)
 
 ---
 
