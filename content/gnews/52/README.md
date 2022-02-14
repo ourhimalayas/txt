@@ -2,13 +2,13 @@
 ---
 
 
-## 多国反强制疫苗抗议活动民众被警察逮捕
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2002076/)
+## 停止种族灭绝游戏，停止精英的叛变，让中共蒙羞
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2001992/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/20220214-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+02/11/2022 不要观看北京冬奥会，通过加入“genocidegames.org”来参加这场战役。让我们将这场运动进行到底并粉碎这些赛事。
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

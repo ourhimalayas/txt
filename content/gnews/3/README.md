@@ -2,34 +2,25 @@
 ---
 
 
-## 有声|中共在北京冬奥会上的造假登峰造极
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2004492/)
+## 秘翻在线：笔者斗胆猜测：甜蜜蜜灭了北京冬奥会的圣火
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2004541/)
 
-配音：香草山巡管部– 文凯琳
+撰稿：待命（文暁）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/画像1-19.png)（图片源自本文链接）
+2月14日TBS新闻消息：北京奥运话题持续升温，大雪纷飞时发生了这样的事。
+
+昨天，奥运场馆周围地区遭遇大雪，延庆的一些滑雪等项目被推迟。而且大雪所致，意想不到的地方出了问题。
+
+这是《美国日报》刊登的设置在颁奖区的圣火的照片。这张照片是昨天下午拍摄的，火炬似乎已经熄灭了。
+
+奥运会组委会告诉JNN：昨天由于大雪，圣火确实灭了。但今天早上已经恢复了。
+
+但是,笔者斗胆猜测：应该是新中国联邦的甜蜜蜜灭了北京冬奥会的圣火!
+
+信息源：[大雪で聖火が消えた!14日朝には復活 北京五輪でハプニング｜TBS NEWS](https://news.tbs.co.jp/newseye/tbs_newseye6002731.html)
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/gnews-logo-2.jpeg)
-
-
-
-郭先生在2月9日的大直播中谈道，共产党在本届冬奥会上的造假水平到了登峰造极的地步！
-
-中共的人工造冰与用人工催雪弹打下来的雪，用俄罗斯造雪机人工打造的滑雪跑道，让本届冬奥会现场到处充斥着假雪、假冰与假滑道，搞了个没有真冰雪的冬奥会，这是自1924年法国夏蒙尼首届冬奥会以来人类冬季奥运盛会的耻辱。尤其是在人工造雪上，俄罗斯人是有原则的，其造雪的原材料及其用途都有严格的规定和限制，一般仅用于室内冰雪娱乐和运动，中共却全拿到完全没有真雪的光秃秃的山上，孤零零地弄出一个个突兀的滑雪跑道，丝毫没有冰天雪地的场景。且人造雪的化学成份对大地的污染将万年不会消散，殃及子孙后代的生存环境，中共却无视其后果而只为其造假的面子工程。
-
-文字版原文：[中共在北京冬奥会上的造假登峰造极](https://gnews.org/zh-hans/2000436/)
-
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
