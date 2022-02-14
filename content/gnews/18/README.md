@@ -2,30 +2,24 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年2月14日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2004672/)
+## 加拿大安省宣布从3月1日起取消疫苗护照
+` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/2004674/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO.jpg)
+#### 加拿大温哥华扬帆农场 视频组
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-13.png)
-文章仅代表作者本人观点，与Gnews无关
+素材：文倩
+翻译：Kent
+字幕：Kent
 
-视频参看：
-[2022.02.14早 《NFSC新闻》](https://gtv.org/video/id=620a5919a456fe1dea313294)
-[2022.02.14早 G|TV《新闻访谈》](https://gtv.org/video/id=620a6221a456fe1dea31378b)
+根据事情的进展，两周前我们听到首席卫生医疗官摩尔博士说，我们正在快速的接近可以安全取消新冠限制措施的时间点。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+上周末我收到了摩尔博士关于重新安全开放经济和取消安省疫苗护照系统计划的建议，我已经接受了这些建议，因此今天我宣布，从2月17日开始，我们将取消所有的人数限制，但体育赛事、音乐会馆和剧院除外，这些场所的上限为容量的50%。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-callendar-1.jpeg)
+一些风险较高的场合也将被限制在25%，社交聚会的限制将增加到室内25人，室外100人，有组织的公共活动将增加到室内50人，室外没有限制。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+从3月1日起，我们计划取消所有室内公共场所的人数限制，同时根据摩尔医生的建议，我们将取消所有场所对疫苗接种证明的要求。
+
+编辑/发文：Kent
 
  
 

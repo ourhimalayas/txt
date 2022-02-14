@@ -2,23 +2,28 @@
 ---
 
 
-## 郭文贵盖特音频2022.02.14
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2004673/)
+## 有声|灭共是人类有史以来最艰巨的事业
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2004675/)
 
-音频提供者：左媛
-![](https://assets.gnews.org/wp-content/uploads/2022/02/out-12.jpg)
-### 视频链接：
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生在2月9日大直播中表示：新中国联邦正在充分利用北京冬奥会这个契机灭共，现场战友随时准备哼唱《灭共的雪》，周围人群一旦有感觉，将处处有人回应。以“一切都是刚刚开始” ，“甜蜜蜜”等暗号回应。灭共的力量在冬奥现场无处不在，爆料革命已深入人心，星星之火正在燎原。
 
-[https://www.gettr.com/post/puh5sv8f69](https://www.gettr.com/post/puh5sv8f69)
+纵观人类历史，爆料革命和新中国联邦的广大战友所参与的这场灭共事业，是一场前无古人的运动：在人类即将屈服于中共的淫威之际，在我们手无寸铁、还要尽量确保不发生流血冲突的情况下消灭共产党。其难度之大可见一斑。
 
-### 音频链接：
+文字版原文：[灭共是人类有史以来最艰巨的事业](https://gnews.org/zh-hans/1998985/)
 
+音频处理/发稿：Daxia
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-
-
-编辑发布：闪电训练
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
