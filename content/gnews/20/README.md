@@ -2,54 +2,39 @@
 ---
 
 
-## 福奇进行功能增强实验的铁证（三）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2005302/)
+## 安省省长福特女儿拆台 支持车队自称不戴口罩
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2005488/)
 
-**编译：The world**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip福奇进行功能增强实验的铁证（一）.png)DARPA 报告人确认了五角大楼拒绝福奇发布工程 Covid
-【接上篇：[福奇进行功能增强实验的铁证（二）](https://gnews.org/zh-hans/2005271/)】
+作者：Brooke Houghton
+翻译：KK
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-204.jpg)
+安省省长福特的女儿Krista Ford Haynes这个月9号在社交平台，再次发表了她对安省的口罩政策不满。Haynes不仅赞扬了渥太华的抗议行动，还分享了一个她是如何在公共场合不戴口罩的视频。
 
-那个人是国会山上最大的研究所成员之一。他是政府的一部分，他曾经认为他们在为和平建立这个全球化主义的体系。现在他意识到这是一个谎言。
+Haynes称自己是 “微笑倡导者 “和 “自由斗士”。在帖子中，她说自己经历了不戴口罩需要面临的各种情况。她还讲解了，人们应该如何处理这种情况：比如声称自己有医疗豁免，或者必要时离开商店。
 
-而现在，辉瑞公司的负责人承认，这都是纳米技术。我有这方面的视频。这是另一个大的爆炸性新闻，他上了彭博社的节目，我们有这个片段。他说，“人类的遗传学已经不行了，失败了。我们现在要通过下一次推出的疫苗。来改变你的DNA来修复你”。
+Haynes说：”当他们强制要求戴口罩时，我采取了强硬的态度。在整个新冠疫情期间，我几乎没有戴过口罩，也没有因此遇到过特别糟糕的情况。”
 
-这是一个企业医疗对全人类生物系统的接管。他们不想只是控制所有的农作物，所有的树和所有的农产品，成千上万的转基因生物系统。
+去年夏天，Haynes在没有戴口罩的情况下进入一家Shoppers，一名男子因为她没有戴口罩而 “非常生气”，对她大喊大叫。而Haynes只是微笑着说：”祝你有个愉快的一天”，然后继续自己的事情。
 
-我们才是最主要目标。这不是1980年代拍的电影《怪物》，在一个坠落的飞碟上。生物体被解冻并控制了人类。这是大医药公司在做慢动作，但现在它正在加速。
+而后这名男子找到了这家Shoppers的经理，经理又打电话给店主。Haynes拒绝戴上口罩，但表现 “非常有礼貌”，店主在她离开商店之前 “从未出现过”。
 
-辉瑞公司的首席执行官说，他们参与了对地球上所有生命的DNA基因控制计划，从人类开始，修复我们的DNA。
+在Haynes的视频中，她拿出一个塑料口罩，挂在她的鼻子下面。Haynes说，她把它用于像Costco这样的商店，因为那里的口罩规定执行得更严格。
 
-同时，参议院的民主党们提出了一项法案，要求全国强制要求“covid-19 疫苗护照”，在美国内部正在建设检查站、集中营、限制旅行。
+来源：https://www.narcity.com/toronto/doug-fords-daughter-shares-how-she-doesnt-wear-a-mask-calls-to-end-the-mandates
 
-有12个国家提出法案，逮捕不注射疫苗的人，并把拒绝的人关进集中营。“大重置”就是一场疯狂的科学革命。
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-辉瑞公司的负责人现在宣布了一项计划，要强行给全世界打疫苗，引用他们说的话，要来修复我们的DNA。想象一下，如果外星人登陆地球并说，我们要给你注射。让你们活得更长，一点问题都没有，相信我们吧。你们会说我不相信你们，尤其是当疫苗开始杀人，大家都死了的时候。
+**关注我们**
 
-而提出这一点的是，我们自己的物种。因为他们相信，他们可以与机器合2为1成为神，想控制人的遗传进化。而且他们试图强迫我们与之同流合污。
+Discord 账号
 
-还记得川普刚刚当选总统，那时他刚上任，福奇在2017年初就出来说，川普将受到一种新的致命病毒的挑战，全球病毒大流行将会实现。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-那时他已经去了五角大楼。他知道他已经试图获得授权，获得功能增强实验的授权。
+Gettr 账号
 
-他想要在中国释放病毒。他去找国防高等研究计划署，所以我们现在知道他们去找川普。因此，当他们发布这个病毒时，他们可以装作川普也参与了，五角大楼也参与了，这样同一个全球化主义集团就可以勒索五角大楼、国防高等研究计划署和川普。
-
-但是他们在那里失败了。而川普随后在2018年，停止了所有仍在进行的功能增强的研究资金。
-
-它在直播节目中，你可以得到它并分享它，因为这是五角大楼方面和国防高等研究计划署方面确认所有从福奇那里出来的文件。
-
-福奇与彼得-达扎克和比尔-盖茨一起犯下了大规模谋杀，他们必须被逮捕。现在，这里是报告的一部分。
-
-【接下篇：[福奇进行功能增强实验的铁证（四）](https://gnews.org/zh-hans/2005317/)】
-
-**新闻来源**：[banned.video][DARPA Whistleblower Confirms Pentagon Rejected Fauci’s Plan to Release Engineered COVID Pandemic](https://www.banned.video/watch?id=61dde46deb995c694b2a48a0)
-
-* * *
-
-***审核：阿伯塔
-校对：信心满满
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1.jpeg)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
