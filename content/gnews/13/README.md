@@ -2,32 +2,45 @@
 ---
 
 
-## MV版Hcoin To the Moon上线67天第49次位列澳门iTunes热门MV榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2005046/)
+## 郭文贵：我在做重大决策时会考虑哪些方面？
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2005086/)
 
-2/14/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线67天第49次位列澳门iTunes热门音乐视频榜榜首，第61次位列前三名
+**作者： Jenny Ball**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip郭文贵：我在做重大决策时会考虑哪些方面？2.png)文贵先生2月12日gettr视频截图
+郭先生2月12日在GETTR（[https://gettr.com/post/pu6z6sf756](https://gettr.com/post/pu6z6sf756) ）上发布了一段9分钟的视频，专门回答了这个问题，因为他觉得他在前一天的大直播中给战友的答案还不够完整，那就是，不仅要“**看穿生死，**放下恐惧，更重要的，如果你一生能有一次行动，帮助一个人，帮助正义，匡扶了正义，你就值得了。**”**
+
+文贵先生每次大直播，他所说的话不仅让我大开眼界。也成为拯救我的良药， 无形中，文贵先生将我从抑郁症中解救了出来，并引导我走上了“帮助正义，匡扶正义”的事业。正是文贵先生从一开始尖锐而坚决地指出，中共不等于中国人，中共不等于中国。 这一念头之别，犹如天地之别。
+
+时间来到了2017年，让我想起了我是如何退出一个微信群的。 这个特殊的群体的朋友，都是在海外工作生活30来年或与外国人结婚的中国朋友。尽管我们生活在不同的国家，但我曾经很享受在这个群里和朋友们互动，“美国之音”断播事件中偶然遇到了文贵先生，一起都改变了。
+
+很纳闷，文贵先生的名字对我来说是第一次听说，尽管他是中国顶级富豪，国内国际战果累累。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip郭文贵：我在做重大决策时会考虑哪些方面？3.png)Internet截图                          xiaomu2018.blogspot.com
+ 
+
+中国人不想惹麻烦，即使是说真话会带来“麻烦”。当我开始在这个微信群里讲述一些文贵先生揭露的中共罪恶真相时，群里的人都叫我闭嘴。经常警告我不要再发这样的内容，后来我选择退群。他们不解我为什么这样做，我说“因为我不能在这里说实话。”
+
+能猜出这位我一向尊敬的大姐如何回复我的吗？她不仅定居西方国家，也在西方生活了30多年，是一位联合国扶贫工作海外中国专家的夫人。
+
+她说：“你是自找麻烦。为什么非要说真话呢？又没有人给你钱！”
+
+她生活的地方没有网络高墙，但是究竟是利益蒙蔽了她的双眼，还是放弃了抗争，结果就是她选择了妥协，以为自己的漠视可以躲避灾难。
+
+在这场已经两年之久的大流行中，真相被掩盖了。现在我们看到，由于政府官员故意压制真相，强制注射COVID-19的 mRNA信使实验性疫苗，已经让无数人丧生致残，他们犯下了政府谋杀罪！我很想知道我的这位朋友会怎么理解真相的价值。
+
+此外，文贵先生不仅揭露了中共和达沃斯全球主义者的邪恶本性，还为后疫情世界建立了新经济时代的数字货币。喜币将使致力于寻找真相和拯救生命的爆料革命的战友和世界受益。 我想告诉我的这位朋友，上帝一定奖励说真话的人们。
+
+我想用文贵先生的话来结束文章：“一生哪怕干一件伟大的，超越自己的，超越自己的懦弱，干一件丰富人生的事情，都是值得的。”我认为，这也是每个人正确做出重大决定的指南。
 
 * * *
 
-[【PDF 下载】Monday-14-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-14-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-14-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+***审核：Bryan、阿伯塔
+校对：小东
+发布：信心满满***
 
-* * *
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-14-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-14-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-14-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-14-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-14-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_39.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-14-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-14-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-14-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-14-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_83.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-14-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_101.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1.jpeg)
 
 
-[【PDF 下载】Monday-14-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-14-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-14-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
