@@ -2,10 +2,10 @@
 ---
 
 
-## 中共国人均可支配收入占GDP之比回到改革开放前
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2002372/)
+## 喜马拉雅币一周分析与总结（2月7日-2月13日）
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2002374/)
 
-作者：香草山教育部-文斗
+作者：香草山金融部 – ILOVE战神
 
 
 
@@ -13,13 +13,17 @@
 
 
 
-中共国人均可支配收入占GDP比重在1978年时约为44%，改革开放初期曾超过60%，自20世纪80年代中期开始一路直线下降，2005年后重新回到改革开放前的44%左右，并一直原地踏步至今，大幅低于世界平均水平。
+过去一周喜马拉雅币价格回落至45美元左右，平均日交易量约为12万枚喜币。喜币上市以来总交易量约2800万枚 ，占今年总发行量的仅约2.8%。目前喜币交易在全球尚未完全开放，市场交易量较低，价格仍被严重低估。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide12-4.jpg)
+最近全球战友都积极投入到喜支付的推广活动中。2月10日，台湾农场团队直播了使用HPAY购买及交付第一辆汽车的实况。交易标的是一台2019年出厂的宝马 X3休旅车二手车，交易金额约为1200 HCN。买卖双方当场使用HPAY，瞬间就完成了买车款项的支付。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Picture1-7.jpg)
+据卖家台湾农场大象表示，他选择以喜币交易，好处是可以省去被信用卡公司抽取的手续费、货款可以瞬间入账不必经由银行造成延迟收款、也可以享受未来喜币预期的涨价空间。
 
-其中城镇居民可支配收入占GDP比重1978年是89.09%，2021年是58.55%，下降了31个百分点。农村居民可支配收入占GDP的比重1978年是34.81%，20世纪80年代初期有所提升，此后一路走低，在2010后维持在20%左右，较1978年的34.81%下降了超过10个百分点。中共国所谓“改革开放”四十余年，严重不公平的财富分配体制丝毫未改，百姓依旧高付出低获得。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide10-6.jpg)
+本周据郭文贵先生在大直播中透露，俄乌政治危机对全球供应链造成巨大伤害后，数字货币将成为全球经济危机中的最大赢家，其中H-Pay将成为数字货币中的最大赢家。经过一系列事件的发酵，3个月后喜币的价格将达到之前难以想象的新高度。郭先生还表示，喜币和喜支付将打破中共对钱的垄断，让中国人真正拥有自己的财富，从而拥有自己独立的人格和思想，这些都是中国人拥有人权和真相的基础。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture-14.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/Picture2-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/Picture3-5.png)
 参考链接：
-1. [陈宪：从人均可支配收入占人均GDP比重看为什么要减税](https://www.acem.sjtu.edu.cn/faculty/teacherview/37755.html)
-2. [从指标异常角度探讨共同富裕的路径](https://m.yicai.com/news/101152856.html)
+1.[Himalaya Exchange & HIMALAYA PAY – Your key to the Himalaya Ecosystem](https://himalaya.exchange/himalaya-pay)
+2. [台湾使用HPAY完成第一台汽车交易](https://gnews.org/zh-hans/1994357/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
 

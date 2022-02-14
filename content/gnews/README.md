@@ -15,143 +15,143 @@
 
 ---
 
-### [月在长空水中有影——元宵夜话](/content/gnews/1/README.md)
+### [秘翻在线：浅谈灭共战役中的核武器GNEWS](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [萨省省长斯科特·莫宣布终止口罩和疫苗接种强制令](/content/gnews/2/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [月在长空水中有影——元宵夜话](/content/gnews/3/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【宋词新作】定风波：生死同盟——新中国联邦力敌中共为首的全球黑暗势力](/content/gnews/2/README.md)
+### [【宋词新作】定风波：生死同盟——新中国联邦力敌中共为首的全球黑暗势力](/content/gnews/4/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [2/14/2022国际财经快讯：加拿大家庭大面积离开城市助长工资通货膨胀；乌克兰忧虑导致石油达7年峰值](/content/gnews/3/README.md)
+### [乌克兰可能为避免战争放弃加入北约申请](/content/gnews/5/README.md)
+ ` Shuizhuyu`
+
+### [2/14/2022国际财经快讯：加拿大家庭大面积离开城市助长工资通货膨胀；乌克兰忧虑导致石油达7年峰值](/content/gnews/6/README.md)
  ` 秘密翻译组金融团队`
 
-### [专家警告：“新冠疫苗副作用是意大利医药管理局所报告的640倍”](/content/gnews/4/README.md)
+### [专家警告：“新冠疫苗副作用是意大利医药管理局所报告的640倍”](/content/gnews/7/README.md)
  ` xiaobaige`
 
-### [樱花FM┃日本卫生部不推荐5～11岁接种疫苗](/content/gnews/5/README.md)
+### [樱花FM┃日本卫生部不推荐5～11岁接种疫苗](/content/gnews/8/README.md)
  ` 樱花FM`
 
-### [谷爱凌说VPN可免费下载引起中国人愤怒](/content/gnews/6/README.md)
+### [谷爱凌说VPN可免费下载引起中国人愤怒](/content/gnews/9/README.md)
  ` 澳喜农场`
 
-### [日本驻乌克兰大使馆人员撤离 并呼吁国民迅速离乌](/content/gnews/7/README.md)
+### [日本驻乌克兰大使馆人员撤离 并呼吁国民迅速离乌](/content/gnews/10/README.md)
  ` 日本东京方舟农场`
 
-### [中共外交官“声称”彭帅不太可能被性侵因她太强壮](/content/gnews/8/README.md)
+### [中共外交官“声称”彭帅不太可能被性侵因她太强壮](/content/gnews/11/README.md)
  ` 澳喜农场`
 
-### [奥米克戎大流行使人们对澳洲政府的信心跌到新低](/content/gnews/9/README.md)
+### [奥米克戎大流行使人们对澳洲政府的信心跌到新低](/content/gnews/12/README.md)
  ` 澳喜农场`
 
-### [中共国将不允许“非必要”的旅行目的护照更新](/content/gnews/10/README.md)
+### [中共国将不允许“非必要”的旅行目的护照更新](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花FM┃日本政府将向参加北京残奥会运动员发放手机，担心中共专用软件泄露信息](/content/gnews/11/README.md)
+### [樱花FM┃日本政府将向参加北京残奥会运动员发放手机，担心中共专用软件泄露信息](/content/gnews/14/README.md)
  ` 樱花FM`
 
-### [体育仲裁法庭的裁定之合理性可信吗？](/content/gnews/12/README.md)
+### [体育仲裁法庭的裁定之合理性可信吗？](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆|日本央行三年半来首次进行“限价操作”](/content/gnews/13/README.md)
+### [中日财经爆|日本央行三年半来首次进行“限价操作”](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [乌克兰寻求在48小时内与俄会晤](/content/gnews/14/README.md)
+### [乌克兰寻求在48小时内与俄会晤](/content/gnews/17/README.md)
  ` 澳喜农场`
 
-### [加拿大对卡车的疯狂司机镇压开始](/content/gnews/15/README.md)
+### [加拿大对卡车的疯狂司机镇压开始](/content/gnews/18/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [吃中共饭的谷爱凌母女——时事穿梭机第十八期](/content/gnews/16/README.md)
+### [吃中共饭的谷爱凌母女——时事穿梭机第十八期](/content/gnews/19/README.md)
  ` 澳喜农场`
 
-### [文贵直播大事记——七哥为什么讲昆仑山脉和帕米尔高原（一）](/content/gnews/17/README.md)
+### [文贵直播大事记——七哥为什么讲昆仑山脉和帕米尔高原（一）](/content/gnews/20/README.md)
  ` GNotes真.贵.记.录`
 
-### [大直播后记：中共突破人类底线，生存和互害模式](/content/gnews/18/README.md)
+### [观看文贵大直播的感悟](/content/gnews/21/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [大直播后记：中共突破人类底线，生存和互害模式](/content/gnews/22/README.md)
  ` 雅典娜GNotes`
 
-### [曼尼托巴省将解除大部分疫情封锁](/content/gnews/19/README.md)
+### [曼尼托巴省将解除大部分疫情封锁](/content/gnews/23/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [2月13日大直播后记：中共突破人类底线，生存和互害模式](/content/gnews/20/README.md)
+### [2月13日大直播后记：中共突破人类底线，生存和互害模式](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线：日本政府呼吁国民和使馆人员立即撤离乌克兰](/content/gnews/21/README.md)
+### [秘翻在线：日本政府呼吁国民和使馆人员立即撤离乌克兰](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [大直播后记：如何认识体育？](/content/gnews/22/README.md)
- ` 雅典娜GNotes`
-
-### [文贵先生对战友说的几句话](/content/gnews/23/README.md)
- ` 纽约香草山MOS03`
-
-### [短视频：这一切到底是科学还是政治？](/content/gnews/24/README.md)
+### [短视频：这一切到底是科学还是政治？](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [下周也许决定乌克兰的命运是战争 和平或僵局](/content/gnews/25/README.md)
+### [下周也许决定乌克兰的命运是战争 和平或僵局](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [卡车司机抗议传导至法国 警方强行驱离](/content/gnews/26/README.md)
+### [卡车司机抗议传导至法国 警方强行驱离](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [超过13万名俄罗斯军队目前在乌克兰境外驻扎](/content/gnews/27/README.md)
+### [超过13万名俄罗斯军队目前在乌克兰境外驻扎](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共国令人震惊的贩卖妇女案件数量](/content/gnews/28/README.md)
+### [中共国令人震惊的贩卖妇女案件数量](/content/gnews/30/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2022.2.13大直播后记：共产党渗透联合国](/content/gnews/29/README.md)
+### [2022.2.13大直播后记：共产党渗透联合国](/content/gnews/31/README.md)
  ` 雅典娜GNotes`
 
-### [中共末日疯狂被利用，银行增发助Hcoin（喜币）成赢家](/content/gnews/30/README.md)
+### [中共末日疯狂被利用，银行增发助Hcoin（喜币）成赢家](/content/gnews/32/README.md)
  ` YALUN 亚伦`
 
-### [全日空和日航开始全面接种第三针疫苗](/content/gnews/31/README.md)
+### [全日空和日航开始全面接种第三针疫苗](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [施泰因迈尔高票连任德国总统](/content/gnews/32/README.md)
+### [施泰因迈尔高票连任德国总统](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆|外资1月增持人民币债券大降近四成](/content/gnews/33/README.md)
+### [中日财经爆|外资1月增持人民币债券大降近四成](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [因存安全漏洞 日本冬奥代表团回国后要彻底删除“冬奥通”](/content/gnews/34/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [澳大利亚开始撤离基辅大使馆](/content/gnews/35/README.md)
+### [澳大利亚开始撤离基辅大使馆](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [喜马拉雅币一周分析与总结（2月7日-2月13日）](/content/gnews/36/README.md)
+### [喜马拉雅币一周分析与总结（2月7日-2月13日）](/content/gnews/37/README.md)
  ` NFSC News`
 
-### [中共国人均可支配收入占GDP之比回到改革开放前](/content/gnews/37/README.md)
+### [中共国人均可支配收入占GDP之比回到改革开放前](/content/gnews/38/README.md)
  ` NFSC News`
 
-### [德转强硬 将中共定为体制竞争对手](/content/gnews/38/README.md)
+### [德转强硬 将中共定为体制竞争对手](/content/gnews/39/README.md)
  ` NFSC News`
 
-### [美参议员称中共病毒团伙难以承受真相后果](/content/gnews/39/README.md)
+### [美参议员称中共病毒团伙难以承受真相后果](/content/gnews/40/README.md)
  ` NFSC News`
 
-### [美在所罗门群岛重设大使馆 防堵中共](/content/gnews/40/README.md)
+### [美在所罗门群岛重设大使馆 防堵中共](/content/gnews/41/README.md)
  ` NFSC News`
 
-### [人权活动家扯下澳五矿的中共国旗，抗议独裁的中共政权](/content/gnews/41/README.md)
+### [人权活动家扯下澳五矿的中共国旗，抗议独裁的中共政权](/content/gnews/42/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2022年2月10日 晚 新中国联邦新闻、GTV新闻访谈简报](/content/gnews/42/README.md)
+### [2022年2月10日 晚 新中国联邦新闻、GTV新闻访谈简报](/content/gnews/43/README.md)
  ` 纽约香草山MOS01`
 
-### [辉瑞收回向FDA提交5岁以下儿童的疫苗申请](/content/gnews/43/README.md)
+### [辉瑞收回向FDA提交5岁以下儿童的疫苗申请](/content/gnews/44/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [特鲁多威胁游行者是“非法的”，并将面临严重后果](/content/gnews/44/README.md)
+### [特鲁多威胁游行者是“非法的”，并将面临严重后果](/content/gnews/45/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美日澳印四方外长会谈将讨论中共强硬态度和乌克兰危机](/content/gnews/45/README.md)
+### [美日澳印四方外长会谈将讨论中共强硬态度和乌克兰危机](/content/gnews/46/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [加拿大银行冻结了“自由车队”卡车司机110万美元资金](/content/gnews/46/README.md)
- ` 蓝莲花农场`
 
 ### [多国反强制疫苗抗议活动民众被警察逮捕](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

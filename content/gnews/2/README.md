@@ -2,36 +2,75 @@
 ---
 
 
-## 【宋词新作】定风波：生死同盟——新中国联邦力敌中共为首的全球黑暗势力
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2003194/)
+## 萨省省长斯科特·莫宣布终止口罩和疫苗接种强制令
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2003223/)
 
-作者：蝴蝶泉
+[https://gtv.org/video/id=6209aefdb0af02660af35e5b](https://gtv.org/video/id=6209aefdb0af02660af35e5b)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2143.gif)
+Premier Scott Moe announces end of mask and vaccination mandate
+萨省省长斯科特·莫宣布终止口罩和疫苗接种强制令
 
-前言：2022年2月11日，2022年2月14日文贵大直播中，文贵先生反复提到，新中国联邦告诉病毒疫苗真相，拯救了天下无数生命，尤其是“无苗族”结成了“生死同盟”，不分种族肤色，大家同仇敌忾与全球黑暗势力作战，将最终赢得胜利，彻底灭掉中共！遂作词如下：
+Let’s not judge our neighbor because they may be vaccinated or because they may not be vaccinated
+我们不要因为我们的邻居可能接种了疫苗或没有接种疫苗而评判他们
 
-**毒苗横行蔽云天，
-生死徘徊鬼门关。
-爆料革命真相宣，
-救命，
-无苗重生心意坚。**
+Let’s not judge our neighbor if they should choose to wear a mask or not to choose to wear a mask in the weeks ahead
+我们不要因为我们的邻居在未来几周内选择戴口罩或不戴口罩而评判他们
 
-**黄白棕黑各色占，
-君看，
-新精英同盟战线。
-广耕深挖驱黑暗，
-中共，
-连根拔除绝后患！**
+Whenever someone is doing their own personal risk assessment which we have asked them to do in this province for a period of time now
+一段时间以来，我们要求每个人做自己的个人风险评
 
-词释意：
+They are doing that assessment for themselves possibly for their family
+每当人们进行个人风险评估时，他们既为自己做评估，可能也为他们的家人做
 
-病毒和疫苗都是中共人造生化武器，病毒是前戏，疫苗才是真正目的。中共与全球黑暗势力勾结，在各国推行疫苗接种，向民众注射毒针横行天下，全球经历着大屠杀、种族灭绝的威胁……地球75亿生命徘徊在鬼门关前，只有文贵先生引领的爆料革命，冒着生命危险向天下宣告真相。因而，拯救了数以亿计人的生命。尤其是听了爆料革命的信息，没有打疫苗的“无苗族”，获得了生命的重生，紧紧地团结在一起，坚定地和新中国联邦结成对抗邪恶的生死同盟。
+And they may come back with a different decision than what you might arrive at
+他们可能会做出与您不同的决定
 
-在新中国联邦的“生死同盟”里，有白种人、黄种人、棕色和黑色人种，大家不分肤色、不分种族、不分地区国家团结一起，您看，“无苗”的新人类精英已经结成了生死同盟的邪恶对抗战线。怀着共同的信仰，为了自由、民主、法治和正义而战，新中国联邦对全球邪恶势力浸染的土壤广耕深挖。文贵先生在正义力量的支持下，已经在英国伦敦获得UBS诉讼立案，打响了向邪恶沼泽地开战的胜利第一枪！只有把邪恶的土壤翻新，中共这棵邪恶代表的毒草，才会被连根拔除，永无翻身之可能，新中国联邦才会真正实现民主、自由、法治和信仰！
+And that different conclusion albeit may be different from where you have landed shouldn’t be judged
+而这个不同的结论尽管可能与你的结论不一样，但不应该被评判
 
-**审核校对：Barry Jack
-上传排版：V在途中**
+It should be respected, and it should be accepted
+它应该被尊重，应该被接受
+
+It is time for each of us as individuals now to make conscious effort to treat everyone in our daily lives that we encounter equality
+现在是我们每个人作为个体有意识地努力平等对待我们日常生活中遇到的每个人的时候了
+
+It’s also time for the proof of vaccination mandate end
+现在也是结束疫苗接种证明的时候了
+
+And so effective at midnight this Sunday, February the 13th, all provincial proof of vaccination requirements will end
+2 月 13 日星期日午夜开始，所有省级疫苗接种证明要求将结束
+
+in Saskatchewan business and venues and provincial regulated workplaces
+在萨斯喀彻温省的商业和场所以及省级监管的工作场所
+
+This means that the proof of vaccination or the negative test option that we provided will no longer be a provincial requirement starting on Valentin’s Day February the 14th.
+这意味着从 2 月 14 日情人节开始，提供疫苗接种证明或阴性检测选项将不再是省级要求
+
+This will be the case. This will leave one remaining covid measure in place and that is indoor masking
+情况将如此。 只有室内口罩要求这一项covid管控措施将被保留下来
+
+That measure remains in effect until the end of February
+该措施将在2月底结束
+
+* * *
+
+Date: 2/8/2022
+原视频标题: Premier Scott Moe announces end of mask and vaccination mandate
+萨省省长斯科特·莫宣布终止口罩和疫苗接种强制令
+原视频日期：2/8/2022
+原视频链接: https://twitter.com/disclosetv/status/1491116507899650050?s=24
+任务编号：KE396（3719）
+视频时间段 : 0:00-01:00
+中听校：洛杉矶盘古农场 -海潮
+翻译： 洛杉矶盘古农场 – 海潮
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 –Jambo
+审片：洛杉矶盘古农场 –银龙
+发布：洛杉矶盘古农场 –恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
