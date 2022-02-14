@@ -2,41 +2,51 @@
 ---
 
 
-## 有声|现在卖掉喜币的人将来必定后悔
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2002364/)
+## 美在所罗门群岛重设大使馆 防堵中共
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2002365/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+作者：纽约磐石农场-在远方，台湾宝岛农场-阿尔道夫
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/FCSeY69XEAInXAV.jpg)
-2022年2月13日，在大直播中谈到喜币场外交易时，文贵先生说，现在场外交易卖掉喜币套现的战友，将来必定会后悔。
 
-大直播中，说到场外交易时，文贵先生就说，刚才收到草根小哥爆料，喜币在场外交易，60美金都买不着。但是在场内，喜币被压低到了40美金。
 
-文贵先生说，据他所知，场外交易有好几笔都在200美金左右交易的。这几天场外和场内的巨大价格差距，是因为基金在利用2亿个币，场内压低价格，场外交易炒高价格，在引诱着大家去场外交易卖出喜币，只要你一抛，他们就买进。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-郭先生说，现在卖币的人，你后悔？早着呢。很多战友在场外交易中，以60,65,70的价格，卖了手中的喜币。不远的将来，肯定会哭都没地方哭去，不会超过三个月。只要满足三个条件：国家主权认可，大额投资，HPAY全面使用，喜币的价值必然不可估量。
 
-目前世界格局在发生着巨大的变化，世界经济面临着崩塌，金融市场肯定会暴涨暴跌。在这样的巨变中，数字货币是未来发展的趋势，HPAY和喜币会成为其中最大的赢家。
 
-文字版原文：[现在卖掉喜币的人将来必定后悔](https://gnews.org/zh-hans/2001739/)
+据多家媒体报道，2月12日，美国国务卿布林肯证实，在时隔29年后，美国计划在南太平洋岛国，所罗门群岛重新开设大使馆，在该地区投入更多外交和防卫资源，防范中共持续与太平洋岛国建立军事联系。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-5.jpg)
+据悉，布林肯在赴澳洲参加美日印澳四方安全对话峰会之后，转道访问斐济，并将与多名太平洋岛国领袖举行视频会议。据美国官员透露，很多迹象表明，中共妄图与太平洋岛国建立军事联系，首要目标就是所罗门群岛。而所罗门群岛2019年前曾是和台湾友好的邦交国之一，但自2019年后，它擅自背离了与台湾的外交关系，转而亲近中共。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+同一时间，美国政府发布《印度—太平洋战略报告》，计划在12至24个月内，提升在东南亚和太平洋岛国的外交姿态，以扩大美军在该地区的行动范围。
+
+参考链接：
+1. [相隔29年！防堵中國勢力擴張 美證實將在索羅門群島重設大使館](https://news.ltn.com.tw/news/world/breakingnews/3827779)
+2. [相隔29年 傳美將在索羅門群島恢復設立大使館](https://tw.news.yahoo.com/%E7%9B%B8%E9%9A%9429%E5%B9%B4-%E5%82%B3%E7%BE%8E%E5%B0%87%E5%9C%A8%E7%B4%A2%E7%BE%85%E9%96%80%E7%BE%A4%E5%B3%B6%E6%81%A2%E5%BE%A9%E8%A8%AD%E7%AB%8B%E5%A4%A7%E4%BD%BF%E9%A4%A8-043556408.html)
+3. [且看中共對所羅門群島的“藍金黃”](https://gnews.org/zh-hant/121332/)
+4. [中共勢力擴張至所羅門群島](https://gnews.org/zh-hant/1792032/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
+
 **更多资讯，更多关注**
 
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

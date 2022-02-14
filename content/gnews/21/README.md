@@ -2,26 +2,40 @@
 ---
 
 
-## 施泰因迈尔高票连任德国总统
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2002391/)
+## 有声|南非将华为当地部门的雇佣问题告上法庭
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2002396/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1381.png)[图片来源](https://www.libyanexpress.com/foreign-minister-frank-walter-steinmeier-elected-president-of-germany/)
-当地时间，2月13日（周日）中午，德国联邦大会的成员在柏林投票，选举下一届联邦总统。投票结果显示，现任总统施泰因迈尔（Frank-Walter Steinmeier）成功连任。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+据[ONA网站](https://www.oann.com/south-africa-takes-huaweis-local-unit-to-court-over-hiring/)援引路透社的报道，南非劳工部周五表示，南非已要求法院对中共国华为技术公司的地方部门处以罚款，因为它违反了雇用当地人的规定，并命令该公司更改其做法。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-11T160315Z_1_LYNXMPEI1A0R1_RTROPTP_0_SAFRICA-HUAWEI-TECH_1.jpg)在这张2020年1月29日拍摄的插图照片中，在一块PC主板上可以看到带有华为和5G网络标志的智能手机。（REUTERS/Dado Ruvic/File Photo）
+劳工部援引2020年的审计报告说，华为当地公司约90%的员工是外国人，超过了雇佣外国人40%的上限，这违反了 “公平就业”的规定。
 
-在现场参与投票的1472名代表中，施泰因迈尔获得了1045张选票。他的胜选几乎是没有悬念的，因为这位曾经担任德国外长的社民党政治家，得到了社民党、绿党、自民党以及联盟党的联合推举。三个执政党加上最大的在野党，他们在联邦大会中占有绝对的多数优势。
+劳工部称，它已向法院提交文件，要求对华为涉嫌违反规则的当地公司处以150万兰特（99,151美元）或2020年年度营业额的2%的罚款。
 
-联邦大会唯一的任务就是选举联邦总统。该机构一半的成员是联邦议院的议员，另一半则是人数相等的各州代表。本届联邦议院目前有736名联邦议员，这就意味着一共有1472名成员参与本次投票，这另一半代表中，除了16个联邦州派出的代表（包括州议会议员）之外，还有不少社会各界的代表人士。
+劳工部表示，华为需要根据《移民条例》的规定，雇用60%的南非人和40%的外国国民。然而华为雇用的外国工人人数远远超过了这一数字，并计划雇用更多。
 
-联邦总统在德国主要是象征性的国家元首，对内对外实行代表国家的职责，并不掌握实际的政治权力。
+此举是南非政府首次对这家中共国科技巨头提出法律挑战。与此同时，在美国，因有人指控该公司的设备可能被中共国政府用来从事间谍活动，华为正在应对针对这一指控的制裁。
 
-施泰因迈尔此前曾担任过施罗德执政时期的总理府部长，社民党议会党团主席，以及默克尔政府的外交部长等重要职务。2017年他接替前任高克（Joachim Gauck）。他也是联邦德国有史以来第五位寻求连任的总统。根据规定，联邦总统最多担任两届。
+文字版原文：[南非将华为当地部门的雇佣问题告上法庭](https://gnews.org/zh-hans/2001780/)
 
-信息来源：[施泰因迈尔再度当选为联邦总统](https://www.dw.com/zh/%E6%96%BD%E6%B3%B0%E5%9B%A0%E8%BF%88%E5%B0%94%E5%86%8D%E5%BA%A6%E5%BD%93%E9%80%89%E4%B8%BA%E8%81%94%E9%82%A6%E6%80%BB%E7%BB%9F/a-60761119)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
