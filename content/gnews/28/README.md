@@ -2,24 +2,30 @@
 ---
 
 
-## 秘翻在线：笔者斗胆猜测：甜蜜蜜灭了北京冬奥会的圣火
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2004541/)
+## NFSC新闻、G|TV新闻访谈简报|2022年2月14日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2004672/)
 
-撰稿：待命（文暁）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/画像1-19.png)（图片源自本文链接）
-2月14日TBS新闻消息：北京奥运话题持续升温，大雪纷飞时发生了这样的事。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO.jpg)
 
-昨天，奥运场馆周围地区遭遇大雪，延庆的一些滑雪等项目被推迟。而且大雪所致，意想不到的地方出了问题。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-13.png)
+文章仅代表作者本人观点，与Gnews无关
 
-这是《美国日报》刊登的设置在颁奖区的圣火的照片。这张照片是昨天下午拍摄的，火炬似乎已经熄灭了。
+视频参看：
+[2022.02.14早 《NFSC新闻》](https://gtv.org/video/id=620a5919a456fe1dea313294)
+[2022.02.14早 G|TV《新闻访谈》](https://gtv.org/video/id=620a6221a456fe1dea31378b)
 
-奥运会组委会告诉JNN：昨天由于大雪，圣火确实灭了。但今天早上已经恢复了。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-但是,笔者斗胆猜测：应该是新中国联邦的甜蜜蜜灭了北京冬奥会的圣火!
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-callendar-1.jpeg)
 
-信息源：[大雪で聖火が消えた!14日朝には復活 北京五輪でハプニング｜TBS NEWS](https://news.tbs.co.jp/newseye/tbs_newseye6002731.html)
-
-
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

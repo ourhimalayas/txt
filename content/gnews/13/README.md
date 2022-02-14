@@ -2,74 +2,33 @@
 ---
 
 
-## 有声|孤狼
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2004839/)
+## MV版Hcoin To the Moon上线67天第49次位列澳门iTunes热门MV榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2005046/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-（此诗献给所有曾经孤军奋战过的人）
+2/14/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线67天第49次位列澳门iTunes热门音乐视频榜榜首，第61次位列前三名
 
-你是一只孤狼
-独自舔着流血的伤
-有压迫出现
-就跳出最高
-厮杀狠咬
-即便在黑夜里奔跑
-也追逐着光
-那光
-是希望
-是生之使命
-永远也不会忘记的
-族人的血和同伴的伤
+* * *
 
-你在奔跑
-你在战斗
-孤独的你
-一只坚强的狼
+[【PDF 下载】Monday-14-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-14-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-14-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-有一天
-你遇到了同类
-有人防备
-有人欢迎
-你试着靠近
-再靠近
-直到所有人
-都接纳了你
-从此
-你又有了同伴和族人
-您和他们并肩作战
-受伤了
-有同伴为你疗伤
-你幸福的闭上眼睛
-感受这温暖
-不再孤独和悲伤
+* * *
 
-天
-终于
-露出来
-曙光
-孤狼的眼睛
-闪闪发亮
-希望在前方
-何惧这短暂的伤
-你
-已经不再是
-一只孤独的狼
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-14-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-14-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-14-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-14-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-14-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_39.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-14-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-14-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-14-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-14-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_83.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-14-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_101.jpg)
 
-文字版原文：[孤狼](https://gnews.org/zh-hans/2000164/)
 
-音频处理：Fei797
-发稿：Fei797
+[【PDF 下载】Monday-14-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-14-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/02/Monday-14-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,30 +2,39 @@
 ---
 
 
-## 夏季旅游有望迎来报复性增长
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2005041/)
+## 郊狼在多伦多市区频现
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2005151/)
 
-撰稿：小毛牛
-![](https://assets.gnews.org/wp-content/uploads/2022/02/021012.jpg)网络图片
-据汉莎航空和途易报道：今年夏季的机票以及一些旅游线路已经快被预定完了。这是因为旅客们认定在今年夏季的时候， COVID-19的肆虐将会得到很好地遏制，以及各个国家得限制措施将会大幅放松。对于一些国家和地区，预订量甚至是COVID-19发生之前的三倍。
+作者：Mira Miller
+翻译：KK
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-201.jpg)
+如果你住在多伦多，你很有可能看到人们最近在社交媒体上发布关于郊狼的信息。最近在多伦多市中心及其周边地区发现的郊狼确实越来越多，网上不断分享这些在城市中心游荡的狼的照片。
 
-汉莎航空董事会成员 Harry Hohmeister 告诉欣喜得说道：汉莎航空目前在复活节、圣灵降临节和夏季的假日航班需求很强劲。在历经两年COVID-19大流行之后, 人们旅行的愿望是巨大的。
+根据多伦多市政府的说法：“这是因为1月和2月是郊狼的交配季节，这意味着郊狼在这段时间更加活跃。”
 
-基于目前的形势，汉莎航空顺势增加了从美因河畔法兰克福飞往马略卡岛帕尔马、阿尔加维的法鲁、塞浦路斯的马德拉和拉纳卡的额外航班。由于预订量过大，汉莎航空还计划为马略卡岛航班使用 350 个座位的大型喷气式飞机。
+虽然部分是由于交配季节的原因，但冬季在公园和峡谷中也更容易发现郊野狼，因为它们没有被树叶遮住。由于郊狼天性警惕，它们在一年中的这个时候往往更容易在居民区游荡，因为冬天外面的人通常比较少。
 
-此外，自COVID-19大流行以来，途易首次向客户提供了位于马略卡岛的大约一千家合作酒店的所有服务。途易老板Stefan Baumer兴奋地说道：对阳光和大海的向往目前也在刺激对地中海旅游线路的短期需求。周五，我们的第一架自己的飞机再次起飞飞往马略卡岛，这比往年提前了大概四个星期，我们预计今年的度假者将超过 300 万人次。
+多伦多市政府表示：“郊狼已成为多伦多城市景观的自然组成部分，是生态系统的重要组成部分，因为它们控制着啮齿动物和兔子的数量。郊狼在城市地区大量出现是因为那里有丰富的食物和住所。”
 
-疫苗灾难已经悄然开始，今年人们满心期待的旅游旺季会否演变成旅游灾难季？
+尽管如此，市政府表示，居民应始终谨慎地对待郊狼，不要给它们喂食，确保垃圾不能被它们接触到，并看管外面的宠物（曾有过郊狼杀死小型宠物的情况）。
 
-听文贵先生的话，按捺住自己躁动的心，远离人群，远离公共交通。
+市政府提示居民：如果你遇到郊狼，你应该积极地挥舞手臂，发出巨大的声音，并向它的方向扔东西（但不是向它扔），以吓走它。这些行动使郊狼对人类感到害怕，这将最大限度地减少冲突。如果这些行动没有吓到野狼，请慢慢退后，远离该动物。不要转过身去或试图逃跑”。
 
-新闻来源：[Hohe Buchungszahlen für Urlaubssaison](https://www.tagesschau.de/wirtschaft/lufthansa-tui-101.html)
+来源：https://www.blogto.com/city/2022/02/people-toronto-spotting-coyotes/
 
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
+**关注我们**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
+Discord 账号
 
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
