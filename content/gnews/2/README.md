@@ -2,8 +2,8 @@
 ---
 
 
-## 摩根家族的历史
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2001698/)
+## 中共参与后的奥林匹克就是一个犯罪组织
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2001704/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
