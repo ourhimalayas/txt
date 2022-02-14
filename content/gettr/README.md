@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/14/2022 2:18 AM (UTC)`
+
+2/13/2022 Miles Guo: The CCP and Russia will be destroyed once they start a war. The world economy will be restructured, and the whole world will investigate the Wuhan lab. The COVID vaccine disaster will change the Western media, healthcare, insurance, and political landscape. The over-issued fiat currencies will turn into a bubble, and the era of digital currency will commence. The New Federal State of China will be the winner!<br/><br/>2/13/2022 文贵直播：中共和俄罗斯一旦发动战争就必灭，世界经济将重整，全世界都会调查武汉实验室；疫苗灾难会改变西方的媒体、医疗、保险和政治格局；超发的法币会变成泡沫，数字货币时代将开启，新中国联邦是赢家！<br/>
+![img](https://media.gettr.com/group43/getter/2022/02/14/02/901cdc9b-f456-bd9f-4130-f5b98412de39/out.jpg)
+
+---
+
 `@miles 2/14/2022 2:10 AM (UTC)`
 
 2/13/2022 Miles Guo: The COVID vaccine disaster is going to cause major political, military, and economic changes in the world. The CCP, Big Pharma, and those who are pushing the vaccine mandate are all going to be brought to justice. So fellow fighters, please rest assured. The vast majority of the people in the world want to take down the CCP and get to the bottom of the truth about the CCP virus and its vaccines.<br/><br/>2/13/2022 文贵直播：疫苗灾难将导致世界政治、军事和经济大变局；中共、大药厂和推行疫苗强制令的人终将被审判；战友们请放心，世界绝大多数人都要灭共并查清病毒和疫苗的真相<br/>
@@ -149,13 +156,6 @@
 
 2/11/2022 Miles Guo: I understand the CCP's infiltration of the West because I saw how the CCP's evil plans were made, witnessed the obscenity and darkness of the Party of Davos, and experienced the corruption, stupidity, and insanity of the CCP's military and the eunuch mentality of the CCP's officialdom.<br/><br/>2/11/2022 文贵直播：文贵掌握了中共对西方的渗透是因为文贵见证了中共邪恶计划的制定，亲眼目睹了达沃斯党的荒淫与黑暗，经历过中共军队的腐败、愚蠢与疯狂以及中共官场的太监心理<br/>
 ![img](https://media.gettr.com/group15/getter/2022/02/12/05/ed720be2-ef44-6ac6-5f5c-76450090696c/out.jpg)
-
----
-
-`@miles 2/12/2022 4:14 AM (UTC)`
-
-2/11/2022 Miles Guo: Although my family is implicated by the PAG case, I will never compromise and will respect the American law and justice system even more. Fellow fighters should not bring their pressure and pain to their families, and the only way to keep them safe is to take down the CCP!<br/><br/>2/11/2022 文贵直播：虽然文贵的家人因PAG案受到牵连，但文贵绝不妥协，并会更加尊重美国的法律和司法体系；战友们不应把自己的压力和痛苦带给家人，让家人安全的唯一方式是灭共！
-![img](https://media.gettr.com/group4/getter/2022/02/12/04/e1fc7512-54ee-5502-13b2-2d480ced2270/out.jpg)
 
 ---
 
