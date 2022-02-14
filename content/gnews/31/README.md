@@ -2,30 +2,25 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年2月14日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2004672/)
+## 美众议院对中共提起严厉制裁法案
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2004703/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO.jpg)
+采编：   风云小哥          编译撰稿：文明(添草灭共)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-13.png)
-文章仅代表作者本人观点，与Gnews无关
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/GettyImages-1153354315-640x480-1.png)图片来源：breitbart
 
-视频参看：
-[2022.02.14早 《NFSC新闻》](https://gtv.org/video/id=620a5919a456fe1dea313294)
-[2022.02.14早 G|TV《新闻访谈》](https://gtv.org/video/id=620a6221a456fe1dea31378b)
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+据【布莱特巴特新闻】近日报道，在共和党和众议院高层的支持下，美国众院议员麦克莱恩提出了名为[制止中共法案]的立法议案，拟对中共党魁习近平家族及其数千名中共高官进行制裁。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-callendar-1.jpeg)
+据悉，该法案针对中共高层官员以及”全国代表大会 “的每个成员及其直系亲属。制裁措施包括禁止他们获得美国签证、使用美国金融系统和取得美国资产等。同时也禁止美国公司与制裁对象个人及其亲属进行任何形式的交易。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+此外该法案还提出取消这些制裁的条件，就是必须停止种族灭绝和在香港的杀戮、停止盗窃美国的知识产权以及放弃对台湾的入侵。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：文明(添草灭共)
+
+原文链接： https://www.breitbart.com/politics/2022/02/09/exclusive-house-conservatives-introduce-sanctions-proposal-for-thousands-chinese-communist-party-officials/
 
  
 

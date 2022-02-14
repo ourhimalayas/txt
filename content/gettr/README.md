@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/14/2022 10:20 PM (UTC)`
+
+2/13/2022 Miles Guo: Why do I insist on filing for personal bankruptcy? Since I made up my mind to take down the CCP in 1989, I have never cared about my reputation. I only care about my fellow fighters!<br/><br/>2/13/2022 文贵直播：为什么文贵坚持要申请个人破产？自从1989年下定决心开始灭共以来，文贵就没有在乎过自己的羽毛，文贵只在乎战友们！
+![img](https://media.gettr.com/group46/getter/2022/02/14/22/3a7d6366-ccf0-ec6c-fcf7-084fc251f51d/out.jpg)
+
+---
+
+`@miles 2/14/2022 10:14 PM (UTC)`
+
+2/13/2022 Miles Guo: All fellow fighters of the Whistleblowers’ Movement are the terminators of the CCP without getting the COVID jabs. Not getting vaccinated against COVID is inextricably linked to taking down the CCP wholeheartedly. We will become the unvaccinated who successfully take down the CCP once we destroy it, and that will be the highest honor in everyone’s life!<br/><br/>2/13/2022 文贵直播：爆料革命战友们都是“无苗灭共者”，不打疫苗和一心灭共紧密关联；如果我们灭了共，我们就是“无苗灭共成功者”，这对大家是一生的荣光中的荣光！<br/>
+![img](https://media.gettr.com/group10/getter/2022/02/14/22/7bd132f2-72fd-1c44-ee53-09ae42619afc/out.jpg)
+
+---
+
 `@miles 2/14/2022 3:31 PM (UTC)`
 
 2月14号：尊敬的战友们好！再祝全天下的兄弟姐妹们，战友们．情人节快乐！
@@ -142,20 +156,6 @@
 
 2/11/2022 Miles Guo: I will get to the bottom of everything about Weijian Shan and PAG. The CCP has trampled on the international rules. The more the CCP infiltrates, attacks, and falsifies in the West, the worse the CCP will end up. Coups are taking place in many African countries, and the anti-CCP forces will replace those pro-CCP forces.<br/><br/>2/11/2022 文贵直播：文贵必将把单伟健和PAG的事情整明白；中共践踏国际规则，在西方的渗透、攻击和造假越多，中共下场越惨；非洲多国在发生政变，反共势力将取代亲共势力
 ![img](https://media.gettr.com/group18/getter/2022/02/13/01/345aa676-5510-85ca-964f-8cd80bd3ebc7/out.jpg)
-
----
-
-`@miles 2/13/2022 1:25 AM (UTC)`
-
-2/11/2022 Miles Guo: Eileen Gu and Gu Yan are instigating hatred against the Chinese people, pitting the Asians against the entire world and stirring up anti-Chinese sentiment. How many chained women are there in Communist China? The CCP’s Foreign Ministry is lying about the chained woman, while the Chinese people are all silent. For me, doing a live broadcast is to fight against the dark forces by risking my life.<br/><br/>2/11/2022 文贵直播： 谷爱凌和谷燕给中国人拉仇恨，让亚裔跟全世界对立，掀起了排华浪潮；中共国有多少铁链女？中共外交部撒谎而人们却集体沉默；文贵的直播是用生命跟黑暗作斗争<br/>
-![img](https://media.gettr.com/group33/getter/2022/02/13/01/2efddf89-550d-5364-2b22-ea72778d4d8e/out.jpg)
-
----
-
-`@miles 2/13/2022 1:18 AM (UTC)`
-
-2/11/2022 Miles Guo: I really appreciate that fellow fighters are willing to donate money to me. However, I have never asked and will never ask anyone for money, and I never accept any donations. So, fellow fighters, please don’t donate money to me!<br/><br/>2/11/2022 文贵直播：战友们要捐钱给文贵的好意文贵心领了，但文贵从来不向任何人伸手要钱，也从不接受任何捐赠，所以战友们千万不要捐钱给文贵！<br/>
-![img](https://media.gettr.com/group45/getter/2022/02/13/01/979dbd7b-c4c4-4423-e5fe-38a17baa7217/out.jpg)
 
 ---
 
