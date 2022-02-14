@@ -2,20 +2,20 @@
 ---
 
 
-## 有声|中华民国再指中共对台统战
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2001317/)
+## 有声|俄可能使用受美制裁的油气田供应中国
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2001334/)
 
 配音：香草山农场 – 纳米
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-当地时间2月10日，据台湾媒体报道，中华民国大陆委员会当天发布声明表示，台湾政府已经注意到中共近期正在加强针对台湾民众的促统认知作战，包括积极策划对在陆台胞进行的各种统战宣传工作。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-8.49.26-PM.png)
-陆委会指出，中共的这一系列行为都是企图遂行其对台统战分化的图谋。为此，台湾当局希望国民能够珍惜自由的生活，并认清中共既打又拉的手段与野心。
+作为普京出席冬奥会的条件之一，俄罗斯天然气工业股份公司（Gazprom）最近与中石油（CNPC）签订了10年100万吨的能源合同。据消息人士透露，俄联邦可能会利用太平洋库页岛附近的一个被美国制裁的气田，向中国供应天然气。
+![Gas pipelines are pictured at the Atamanskaya compressor station, part of Gazprom's Power Of Siberia project outside the far eastern town of Svobodny, in Amur region, Russia November 29, 2019. REUTERS/Maxim Shemetov.//File Photo](https://cloudfront-us-east-2.images.arcpublishing.com/reuters/2Y7HRUPKRVI5FB6RRGK2D7Z3DA.jpg)
+俄罗斯总统普京上周五宣布与中国达成新的天然气供应协议，Gazprom表示，将通过远东线路供应天然气。
 
-陆委会副主任邱垂正还解释道，中华民国是主权国家，台湾更是对自由民主的体制充满信心，其从来都不是中共国的一部分。同时，绝大多数的国民既不会配合中共的统战作为，更不会附和其意识形态与政治立场。相反的，中共拉拢并分化台湾社会只会让台湾民众徒增反感。
+俄罗斯计划向中国增加100亿立方米的天然气供应，这些管道天然气将由中俄远东线输送至中国。中俄远东线达产后，俄罗斯向中国每年供应的管道天然气总量将达480亿立方米，较现有供应量规划提高约26%。
 
-另外，针对美国对台出售爱国者导弹系统一事，邱垂正强调，中华民国有权与包含美国在内的国际社会进行广泛的合作，也绝不会接受中共国台办、外交部和军方的错误威胁言论。邱垂正也要求中共当局立即停止对台湾的挑衅与威胁行径。
+两位消息人士称，天然气可能来自库页岛附近的气田，包括Yuzhno-Kirinskoye气田，美国于2015年因莫斯科在乌克兰危机中扮演的角色对这些气田实施制裁。
 
-文字版原文：[中华民国再指中共对台统战](https://gnews.org/zh-hans/1994834/)
+文字版原文：[俄可能使用受美制裁的油气田供应中国](https://gnews.org/zh-hans/1995137/)
 
 音频处理：Tom Li
 发稿：Tom Li

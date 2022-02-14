@@ -2,32 +2,37 @@
 ---
 
 
-## 欧盟调查关于mRNA疫苗后月经紊乱的报告
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2000980/)
+## 有声|中华民国再指中共对台统战
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2001317/)
 
-**编译：七龙珠**
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+当地时间2月10日，据台湾媒体报道，中华民国大陆委员会当天发布声明表示，台湾政府已经注意到中共近期正在加强针对台湾民众的促统认知作战，包括积极策划对在陆台胞进行的各种统战宣传工作。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-8.49.26-PM.png)
+陆委会指出，中共的这一系列行为都是企图遂行其对台统战分化的图谋。为此，台湾当局希望国民能够珍惜自由的生活，并认清中共既打又拉的手段与野心。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip欧盟调查关于mRNA疫苗后月经紊乱的报告.png)新冠疫苗接种 -路透中文网
+陆委会副主任邱垂正还解释道，中华民国是主权国家，台湾更是对自由民主的体制充满信心，其从来都不是中共国的一部分。同时，绝大多数的国民既不会配合中共的统战作为，更不会附和其意识形态与政治立场。相反的，中共拉拢并分化台湾社会只会让台湾民众徒增反感。
 
-接种Covid疫苗与月经周期长度的暂时小变化有关
+另外，针对美国对台出售爱国者导弹系统一事，邱垂正强调，中华民国有权与包含美国在内的国际社会进行广泛的合作，也绝不会接受中共国台办、外交部和军方的错误威胁言论。邱垂正也要求中共当局立即停止对台湾的挑衅与威胁行径。
 
-欧洲药品管理局的安全委员会说，他们正在审查接受过辉瑞/摩德纳生物技术公司Covid疫苗的妇女的大量月经出血和没有月经的报告。
+文字版原文：[中华民国再指中共对台统战](https://gnews.org/zh-hans/1994834/)
 
-该机构说，该评估是根据接受这两种疫苗中的任何一种后出现月经紊乱的报告做出的，这两种疫苗都是基于mRNA技术的，目前还不清楚是否存在因果关系。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-根据美国国立卫生研究院资助的一项最新研究，接种Covid疫苗与月经周期长度的小幅暂时变化有关，该研究收集了近4000名跟踪月经周期的手机应用程序用户的数据。此前挪威的一项研究表明，一些妇女在接种疫苗后月经量增多。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-在审查了现有的证据之后，药物警戒风险评估委员会（PRAC）说，它决定要求对所有可用的数据进行评估，包括来自患者和医疗保健专业人士的报告、临床试验和已发表的文献。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-**新闻来源**：[abc.es][La UE investiga los informes sobre trastornos menstruales tras las vacunas de ARNm](https://www.abc.es/sociedad/abci-investiga-informes-sobre-trastornos-menstruales-tras-vacunas-arnm-202202121208_noticia.html)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-* * *
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-***审核：Aries的星
-校对：阿伯塔
-发布：信心满满***
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1.jpeg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
