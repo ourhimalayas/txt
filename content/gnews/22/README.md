@@ -2,30 +2,25 @@
 ---
 
 
-## 有声|美国正在挫败中共在非洲的大西洋基地计划
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2004641/)
+## 加拿大安省宣布从3月1日起取消疫苗护照
+` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/2004674/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据外媒报道，近日，拜登政府正在游说赤道几内亚拒绝中共在该国大西洋海岸建立军事基地。美国政府官员表示，一个由美国高级外交和军事官员组成的代表团计划下周访问这个非洲中部小国，预计将讨论美国的反海盗援助和其他议题，旨在说服赤道几内亚总统拒绝中共的扩张。
+#### 加拿大温哥华扬帆农场 视频组
 
-据悉，中共打算在赤道几内亚巴塔镇建造第一个大西洋海军或空军军事基地，以符合中共整合贸易和政治目标。另外，巴塔已经有一个中国建造的商业港口，水深足以停靠海军舰艇。
+素材：文倩
+翻译：Kent
+字幕：Kent
 
-美国表示，并不是要求赤道几内亚在中共和美国之间做出选择，只是要求他们考虑其他的国际伙伴，因为中共在赤道几内亚的军事基地令美国和所有合作伙伴非常担心。美国目前正在努力尝试使赤道几内亚远离中共。
+根据事情的进展，两周前我们听到首席卫生医疗官摩尔博士说，我们正在快速的接近可以安全取消新冠限制措施的时间点。
 
-文字版原文：[美国正在挫败中共在非洲的大西洋基地计划](https://gnews.org/zh-hans/2000605/)
+上周末我收到了摩尔博士关于重新安全开放经济和取消安省疫苗护照系统计划的建议，我已经接受了这些建议，因此今天我宣布，从2月17日开始，我们将取消所有的人数限制，但体育赛事、音乐会馆和剧院除外，这些场所的上限为容量的50%。
 
-音频处理/发稿：Daxia
+一些风险较高的场合也将被限制在25%，社交聚会的限制将增加到室内25人，室外100人，有组织的公共活动将增加到室内50人，室外没有限制。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+从3月1日起，我们计划取消所有室内公共场所的人数限制，同时根据摩尔医生的建议，我们将取消所有场所对疫苗接种证明的要求。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+编辑/发文：Kent
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,27 +2,34 @@
 ---
 
 
-## 有声|NFSC新闻、G|TV新闻访谈简报|2022年2月13日早
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2004807/)
+## 习近平夜郎自大欲瞒天过海强攻台湾
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2004862/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/三代.jpg)
+**加拿大温哥华扬帆农场 硫酸羟氯喹64**
 
-文字版原文：[NFSC新闻、G|TV新闻访谈简报|2022年2月13日早](https://gnews.org/zh-hans/2000786/)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/a-6-edited.jpg)图片来源：盖特
 
-音频处理：Fei797
-发稿：Fei797
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+据2月14日文贵盖特消息，在世界局势瞬息万变，中共政权随时崩溃的情况下，党魁习近平却失踪了8天之久，以身体微恙为由，试图瞒天过海，处心积虑梦魇着发动台海战争的计划。并幻想着在俄罗斯入侵乌克兰之际，通过武力攻台，以期实现其搞乱，搞弱和搞死美国的3F噩梦。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+文贵先生表示，目前冬奥会和谷爱凌母女丑闻，俄罗斯普京入侵乌克兰以及金融市场的动荡等已成为全世界关注的焦点。同时，因疫苗灾难不断大量涌现，西方各国政府现都已如临大敌。包括加拿大，法国，澳大利亚等疫苗政策的最大受害国，人民已开始呐喊并奋起反抗，淋漓体现出民主文明的真正内涵。
+
+此外，谷爱凌母女甘愿受中共摆布，公开在国籍问题上造假，以骗取奥运金牌的恶行，进一步加剧了中国和西方文明世界的对立和仇恨，并为可能发生的排华危机埋下了难以消除的祸根。
+
+更为恶劣的是，中共派出人渣单伟健父子，不仅在全世界蓝金黄，诈取各国的巨额养老金，还协助该政权通过残害香港人民，中饱私囊，享受着豪华奢靡的生活，其行可诛，其罪难逃。
+
+文贵先生还指出，与王岐山的海航长期合谋盗取国家巨额资产，剥削国人血汗的黑石公司，至今逍遥法外，无人追责。而这一切的背后主谋就是与邪恶黑暗势力勾结的中共卖国贼家族。
+
+如今，中共利用病毒和疫苗所犯下的反人类罪行，前所未有地拉起了全世界对所有华人的仇恨，并使中国人民进入了互联网的石器时代，毫无自由和话语权可言。
+
+有鉴于此，唯有加入揭露黑暗邪恶真相的爆料革命，才能在最大程度上避免当年印尼排华惨剧的再度发生。而已放下生死，征服了恐惧，一心灭共的[新中国联邦]才是笑到最后的胜利者。
+
+* * *
+
+新闻来源：https://gettr.com/post/puh5sv8f69
+
+编辑撰稿，发稿：硫酸羟氯喹64
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,37 +2,25 @@
 ---
 
 
-## 有声|美议员：共产主义是癌症 不能让它蔓延
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2004719/)
+## 新中国联邦引领世界大卡车反抗暴政运动
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2004752/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月10日，美国联邦参议员里克·斯科特在美国智库——美国优先政策研究所——主办的论坛上说，中共正按照它自己的计划重塑世界，如果美国人不希望他们珍视的自由被剥夺，必须采取行动。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1296.png)
-在北京冬奥会的开幕式上，一位面带微笑的维吾尔族运动员作为最后一名奥运火炬手，试图展示中共所谓的“民族团结”。斯科特对此认为：“这是一个完美的例子，说明了中共的宣传方式，他们只是想粉饰自己的罪行。”
+采编：青青           编辑撰稿：硫酸羟氯喹64
 
-同一天，共和党众议员克里斯·史密斯在接受采访时也认为，北京冬奥会是希特勒1936年奥运会的翻版，中共政府就相当于当今世界的纳粹分子。已有文件清楚地表明，习近平政府正在对新疆和香港人进行种族大屠杀，包括实施严重侵犯人权的酷刑、暴虐和强制堕胎等罪恶。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/a-13-edited-1.png)图片来源：gettr
 
-中共是对世界秩序和美国人民生计的最大威胁，这一观点在华府得到了越来越多的共鸣。
 
-文字版原文：[美议员：共产主义是癌症 不能让它蔓延](https://gnews.org/zh-hans/1999552/)
+据2月13日GTV大直播报道，文贵先生发起的暴料革命于2019年在香港反送中运动中所策划的使用货车和汽车以阻断中共恶警涂炭香港的行动方式，开启了世界上和平对抗暴政并使人类有效实现新型民主的先河。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+报道指出，目前在加拿大和法国以及全球各地正如火如荼进行的卡车司机车队反抗疫苗暴政的集会示威活动，与两年前文贵先生在抵抗中共政权入侵香港中所采取堵塞和瘫痪当地交通的方式如出一辙。而且新中国联邦及盖特的巨大影响力在当前这些和平抗议运动中所起的实践指导作用举足轻重。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+对此，文贵先生指出，大卡车反疫苗政策运动的本质，就是把全球现在和未来的经济，完美地与利用政治运动来和平有效地推翻独裁统治联系在一起。如果最终能不被煽动、不使用暴力，那么大卡车运动的意义和价值将是非凡和深远的。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+校对编辑：硫酸羟氯喹64
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+发稿：文明(添草灭共)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+原文链接：https://gettr.com/streaming/pu9dbgdec1
 
  
 

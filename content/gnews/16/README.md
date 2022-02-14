@@ -2,37 +2,25 @@
 ---
 
 
-## 有声|谷爱凌事件对亚裔的伤害难以弥补
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2004691/)
+## 美眾議院對中共提起嚴厲製裁法案
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2004733/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在2月11日的大直播中，郭先生警告，风头正劲的谷爱凌母女的所作所为，将给亚裔特别是海外华人的生存环境，带来难以预测，以致无法弥补的伤害。
+采編：   風雲小哥          編譯撰稿：文明(添草滅共)
 
-郭先生说，谷爱凌母女凭借小聪明，破坏规则，欺骗法律，一边讨好、奉承中共，一边背叛、欺骗美国。母女俩把美国玩弄于鼓掌之间，是精致的利己主义者与投机主义者。她们让全世界看清了，共产党用洗脑手段统治下的中国人没有信仰，不懂感恩，带着虚伪、自私、卑鄙的民族劣根性。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1295.png)图片来自：https://radiichina.com/![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1298.png)
-郭先生痛心地指出，美国抵制北京冬奥会，是因为中共对新疆的大屠杀，犯下反人类罪行。而谷爱凌母女一系列丑陋的言行，犹如火上浇油，不仅引起了日韩跟华人的对立，更让整个西方世界为之愤怒。一股反亚裔反华的情绪正在暗流涌动。谷爱凌母女现在被捧得有多高，以后就会摔得有多惨。但是她们给中国人，尤其是海外华人拉来的仇恨，恐怕永远无法赎清了。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/GettyImages-1153354315-640x480-1.png)圖片來源：breitbart
 
-郭先生告诫海外华人，一定要意识到这股危险之势。同时，只有彻底消灭中共，重塑华人遵纪守法的正面形象，才是中国人民唯一的救赎之路。
 
-文字版原文：[谷爱凌事件对亚裔的伤害难以弥补](https://gnews.org/zh-hans/1999430/)
+據【布萊特巴特新聞】近日報道，在共和黨和眾議院高層的支持下，美國眾院議員麥克萊恩提出了名為[製止中共法案]的立法議案，擬對中共黨魁習近平家族及其數千名中共高官進行製裁。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+據悉，該法案針對中共高層官員以及」全國代表大會 「的每個成員及其直系親屬。製裁措施包括禁止他們獲得美國簽證、使用美國金融系統和取得美國資產等。同時也禁止美國公司與製裁對象個人及其親屬進行任何形式的交易。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+此外該法案還提出取消這些製裁的條件，就是必須停止種族滅絕和在香港的殺戮、停止盜竊美國的知識產權以及放棄對臺灣的入侵。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+校對編輯：硫酸羥氯喹64
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+發稿：文明(添草滅共)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+原文鏈接： https://www.breitbart.com/politics/2022/02/09/exclusive-house-conservatives-introduce-sanctions-proposal-for-thousands-chinese-communist-party-officials/
 
  
 

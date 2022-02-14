@@ -2,28 +2,36 @@
 ---
 
 
-## 中日财经爆|日本央行三年半来首次进行“限价操作”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2002979/)
+## 跟随内心 做人生最重要的决定
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2002755/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-25.jpg)[图片来源](https://cn.nikkei.com/politicsaeconomy/economic-policy/46824-2021-11-29-09-35-55.html)
-14日上午，日本央行启动“限价操作”，以指定收益率无限购买国债，以遏制长期利率上升。他宣布将以0.25%的收益率购买新发行的10年期国债，但没有金融机构回应。
+作者：纽约香草山 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+在2月12日的盖特视频中，郭文贵先生强调：人生的价值就在于丰富和有意义。当面临人生的重要抉择时，我们应该遵从自己的内心，独立地、能够承担一切后果地做出决定。
 
-随着美国和欧洲采取行动提高利率，市场预计日本银行将收紧货币政策。日本央行维持其货币宽松政策，并对单边加息表现出谨慎态度。
+郭先生说，很多人终其一生只做一件事，单调而无聊，到死都不知道活着的意义。就算离开了中共国，在海外生活，依然固守着农耕文化，跳不出小圈子、小格局。中国人最怕惹事，却深受其害。中共几十年来种下的懦弱、自私、冷漠等思想层面的毒，已经融入华人的血液。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-31.jpg)
+郭先生认为，人生的价值，在于有勇气挑战自己，做匡扶正义之事；还在于超越自己，尝试创新之路。成功失败，都不重要，重要的是丰富了人生。权衡利弊之后的决定，往往结果不一定好。但跟随内心，不受别人影响，有勇气有担当，才能提高人生的层次。
 
-此次限价操作是自2018年7月以来约三年半的第一次。日本央行目前正在实施大规模货币宽松政策，将长期利率控制在0%左右。2009年3月，央行宣布将长期利率的波动幅度设定为“正负0.25%”。通过这种限价操作，民间金融机构将不再具有以高于0.25%的收益率（低价）向日本央行以外的银行出售的优势，市场利率将有效限制在0.25%。
+郭先生强调，新中国联邦人，这一次站在了时代的最前列，要学会与最高层面的人对决与合作。历史永远站在正义的一方。
 
-东京债市14日开盘，新发行的10年期国债收益率为0.21%，是长期利率的代表指标。由于收益率（高价）低于0.25%，没有金融机构接受限价操作。
+参考链接：[跟随内心 做人生最重要的决定](https://gettr.com/post/pu2dte2ff8)
 
-上周末10日，国债收益率一度升至0.23%，为近六年来的最高水平。对此，日本央行10日晚宣布实施限价操作。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
-消息来源:
+总编：飞虹
+编辑：飞虹
+校对/发稿：Hetangyuese
 
-[日銀が３年半ぶり「指し値オペ」、長期金利を抑制…応じる金融機関なし](https://www.yomiuri.co.jp/economy/20220214-OYT1T50021/)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
