@@ -2,39 +2,16 @@
 ---
 
 
-## 安省省长福特女儿拆台 支持车队自称不戴口罩
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2005488/)
+## 【粤语配音】2022年2月14日：共产党荒唐的冬奥会对华人影响巨大
+` MOS香港部` [轉載自GNews](https://gnews.org/zh-hans/2005502/)
 
-作者：Brooke Houghton
-翻译：KK
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-204.jpg)
-安省省长福特的女儿Krista Ford Haynes这个月9号在社交平台，再次发表了她对安省的口罩政策不满。Haynes不仅赞扬了渥太华的抗议行动，还分享了一个她是如何在公共场合不戴口罩的视频。
+紐約香草山-香港部
 
-Haynes称自己是 “微笑倡导者 “和 “自由斗士”。在帖子中，她说自己经历了不戴口罩需要面临的各种情况。她还讲解了，人们应该如何处理这种情况：比如声称自己有医疗豁免，或者必要时离开商店。
+这个谷爱凌母女事件和北京冬奥会，还有全世界都在瞪大了眼睛，在等待着俄罗斯和乌克兰(开战)，然后金融市场，你看看今天的场外交易，你看看今天的整个的大幅的经济动荡，包括大家都看到各国政府都紧张死了，因为疫苗灾难，在全世界上这个火已经开始了，还早着哪战友们。
 
-Haynes说：”当他们强制要求戴口罩时，我采取了强硬的态度。在整个新冠疫情期间，我几乎没有戴过口罩，也没有因此遇到过特别糟糕的情况。”
+加拿大、法国、澳大利亚，大家看到疫苗灾难最受害的是以色列，然后就是最夸张的澳大利亚，然后是加拿大，是吧，然后是法国，大家也要看到，也是在这些文明的国家老百姓奋起反抗，是不是文明，文不文明不是你哪个政府说了算的，是整个全世界人民作出评价，就世界上老百姓发声的，还是在这些文明的国家，如果中国老百姓能说话，中国人的智慧要打开，中国人的智慧真如海，真的智慧的水会把一切灾难冲掉，就不会有这么多锁链女，也不会有那么多悲剧，也不会那么多杨改兰，也不会有今天让全世界笑掉大牙的所谓的冬奥会，也不会有谷爱凌母女。
 
-去年夏天，Haynes在没有戴口罩的情况下进入一家Shoppers，一名男子因为她没有戴口罩而 “非常生气”，对她大喊大叫。而Haynes只是微笑着说：”祝你有个愉快的一天”，然后继续自己的事情。
-
-而后这名男子找到了这家Shoppers的经理，经理又打电话给店主。Haynes拒绝戴上口罩，但表现 “非常有礼貌”，店主在她离开商店之前 “从未出现过”。
-
-在Haynes的视频中，她拿出一个塑料口罩，挂在她的鼻子下面。Haynes说，她把它用于像Costco这样的商店，因为那里的口罩规定执行得更严格。
-
-来源：https://www.narcity.com/toronto/doug-fords-daughter-shares-how-she-doesnt-wear-a-mask-calls-to-end-the-mandates
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+一个国家找出一个在全世界人民面前，在摄像机面前找出了一个，不允许有一国两护照的中国政治下的，拥有美国护照又登记到中国，为中国去夺奥运金牌的，这种荒唐的游戏，丢尽了中国人的脸，而且把海外华人跟全世界对立起来，情何以堪，危机和危害会无法消除的长远的影响，你们想过吗？这帮流氓这帮王八蛋，共产党和共产主义不灭，世界没有安宁。
 
  
 
