@@ -2,32 +2,33 @@
 ---
 
 
-## 欧盟调查关于mRNA疫苗后月经紊乱的报告
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2000980/)
+## 欧盟专员：不再需要疫苗强制
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2001406/)
 
-**编译：七龙珠**
+加拿大温哥华扬帆农场 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-6.jpg)图片来源：The Irish Times
+根据《Deutsche Welle》2月13日报道，欧盟经济专员真蒂洛尼(Paolo Gentiloni)表示，讨论疫苗强制的时间已经过去。同时，一位重要的德国立法者表示，强制疫苗措施不会在议会中得到大多数人的支持。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip欧盟调查关于mRNA疫苗后月经紊乱的报告.png)新冠疫苗接种 -路透中文网
+真蒂洛尼认为，疫情的严重程度在下降，整个欧盟的死亡和住院人数总体上有所下降，各国政府没有理由再推出普及冠状病毒疫苗强制。他说”我们正走在放宽限制的同一条道路上，逐个国家都是如此”。
 
-接种Covid疫苗与月经周期长度的暂时小变化有关
+德国议会中最大的反对派团体–保守的基民盟/基社盟的议会领袖说，联邦政府疫苗强制不会得到多数票。
 
-欧洲药品管理局的安全委员会说，他们正在审查接受过辉瑞/摩德纳生物技术公司Covid疫苗的妇女的大量月经出血和没有月经的报告。
+荷兰当局表示，剩余的疫情限制将于2月18日取消。
 
-该机构说，该评估是根据接受这两种疫苗中的任何一种后出现月经紊乱的报告做出的，这两种疫苗都是基于mRNA技术的，目前还不清楚是否存在因果关系。
+香港当局表示，在一些大陆货车司机的检测结果呈阳性后，食品供应，特别是蔬菜和冰鲜家禽，可能会暂时中断。香港几乎所有的食品都是进口的，而中国是其最大的来源地。内地当局和香港政府正在密切合作，以确定详细安排，加快对香港的食品供应物流，以便使供应情况尽快恢复正常。
 
-根据美国国立卫生研究院资助的一项最新研究，接种Covid疫苗与月经周期长度的小幅暂时变化有关，该研究收集了近4000名跟踪月经周期的手机应用程序用户的数据。此前挪威的一项研究表明，一些妇女在接种疫苗后月经量增多。
+北京奥组委宣布了三例与奥运会相关的COVID-19新病例。其中两人是运动员或团队成员。在奥运闭环系统中，所有参加奥运会的人都与中国普通民众完全隔离。所有参与人员每天都要接受检测。自1月23日以来，北京冬奥会上有429人检测结果呈阳性。
 
-在审查了现有的证据之后，药物警戒风险评估委员会（PRAC）说，它决定要求对所有可用的数据进行评估，包括来自患者和医疗保健专业人士的报告、临床试验和已发表的文献。
+澳大利亚警方让示威的COVID-19限制的抗议者在周日结束前离开首都堪培拉的占领区。警方发言人告诉路透社：”他们必须在今天之前离开“。警方拒绝透露如果抗议者违抗最后期限，他们将采取什么行动。数千人聚集在首都，到目前为止，没有一个抗议者被逮捕。
 
-**新闻来源**：[abc.es][La UE investiga los informes sobre trastornos menstruales tras las vacunas de ARNm](https://www.abc.es/sociedad/abci-investiga-informes-sobre-trastornos-menstruales-tras-vacunas-arnm-202202121208_noticia.html)
+全球各地抗议疫苗强制活动不断，各国都在渐渐放开限制和取消疫苗强制。
 
-* * *
+原文链接：
+[https://www.dw.com/en/covid-digest-vaccine-mandate-no-longer-necessary-eu-commissioner/a-60760531](https://www.dw.com/en/covid-digest-vaccine-mandate-no-longer-necessary-eu-commissioner/a-60760531)
 
-***审核：Aries的星
-校对：阿伯塔
-发布：信心满满***
+编辑，发稿 Spirit
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1.jpeg)
+
 
  
 

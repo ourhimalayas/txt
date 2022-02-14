@@ -2,37 +2,27 @@
 ---
 
 
-## 有声|中华民国再指中共对台统战
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2001317/)
+## 新中国联邦引领世界大卡车反抗暴政运动
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2001469/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-当地时间2月10日，据台湾媒体报道，中华民国大陆委员会当天发布声明表示，台湾政府已经注意到中共近期正在加强针对台湾民众的促统认知作战，包括积极策划对在陆台胞进行的各种统战宣传工作。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-8.49.26-PM.png)
-陆委会指出，中共的这一系列行为都是企图遂行其对台统战分化的图谋。为此，台湾当局希望国民能够珍惜自由的生活，并认清中共既打又拉的手段与野心。
+加拿大温哥华扬帆农场：硫酸羟氯喹64
 
-陆委会副主任邱垂正还解释道，中华民国是主权国家，台湾更是对自由民主的体制充满信心，其从来都不是中共国的一部分。同时，绝大多数的国民既不会配合中共的统战作为，更不会附和其意识形态与政治立场。相反的，中共拉拢并分化台湾社会只会让台湾民众徒增反感。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/a-13-edited.png)图片来源：GTV
 
-另外，针对美国对台出售爱国者导弹系统一事，邱垂正强调，中华民国有权与包含美国在内的国际社会进行广泛的合作，也绝不会接受中共国台办、外交部和军方的错误威胁言论。邱垂正也要求中共当局立即停止对台湾的挑衅与威胁行径。
 
-文字版原文：[中华民国再指中共对台统战](https://gnews.org/zh-hans/1994834/)
+据2月13日GTV大直播报道，文贵先生发起的暴料革命于2019年在香港反送中运动中所策划的使用货车和汽车以阻断中共恶警涂炭香港的行动方式，开启了世界上和平对抗暴政并使人类有效实现新型民主的先河。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+报道指出，目前在加拿大和法国以及全球各地正如火如荼进行的卡车司机车队反抗疫苗暴政的集会示威活动，与当年文贵先生在香港抵抗中共政权入侵中所采取堵塞和瘫痪当地交通的方式如出一辙。而且新中国联邦在当前这些和平抗议运动中所起的实践指导作用举足轻重。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+对此，文贵先生指出，大卡车反疫苗政策运动的本质，就是把全球现在和未来的经济，完美地与利用政治运动来和平有效地推翻独裁统治联系在一起。如果最终能不被煽动、不使用暴力，那么它的意义和价值将是非凡和深远的。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+新闻来源：
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[https://gettr.com/streaming/pu9dbgdec1](https://gettr.com/streaming/pu9dbgdec1)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+* * *
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+采编：青青 编辑撰稿，发稿：硫酸羟氯喹64
 
  
 
