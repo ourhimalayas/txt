@@ -15,44 +15,44 @@
 
 ---
 
-### [美国将乌克兰大使馆从基辅迁至利沃夫](/content/gnews/1/README.md)
- ` Shuizhuyu`
+### [安省省长福特女儿拆台 支持车队自称不戴口罩](/content/gnews/1/README.md)
+ ` MG FARM`
 
-### [福奇进行功能增强实验的铁证（四）](/content/gnews/2/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [安大略省将于 3 月取消疫苗要求证明； 加速重新开放](/content/gnews/2/README.md)
+ ` MG FARM`
 
-### [福奇进行功能增强实验的铁证（三）](/content/gnews/3/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [卢比奥提出法案以打击美国在中共国的腐败行为](/content/gnews/4/README.md)
- ` 波士顿五月花农场`
-
-### [欧盟应对比利时警告：中共国手机存在安全风险](/content/gnews/5/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [文耀时间｜战友实例分享私人信托设立（三)从铸币权看喜币走势 目前金融体系的问题](/content/gnews/6/README.md)
+### [文耀时间-从铸币权看喜币走势-黄金价格与全球GDP走势](/content/gnews/3/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [福奇进行功能增强实验的铁证（二）](/content/gnews/7/README.md)
+### [美国将乌克兰大使馆从基辅迁至利沃夫](/content/gnews/4/README.md)
+ ` Shuizhuyu`
+
+### [福奇进行功能增强实验的铁证（四）](/content/gnews/5/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [福奇进行功能增强实验的铁证（一）](/content/gnews/8/README.md)
+### [福奇进行功能增强实验的铁证（三）](/content/gnews/6/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2月13日文贵大直播摘要（8-10）](/content/gnews/9/README.md)
+### [卢比奥提出法案以打击美国在中共国的腐败行为](/content/gnews/7/README.md)
  ` 波士顿五月花农场`
 
-### [美国批准与台湾达成爱国者导弹支持协议](/content/gnews/10/README.md)
- ` 波士顿五月花农场`
+### [欧盟应对比利时警告：中共国手机存在安全风险](/content/gnews/8/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2月13日文贵大直播摘要（图片5-7）](/content/gnews/11/README.md)
- ` 波士顿五月花农场`
+### [文耀时间｜战友实例分享私人信托设立（三)从铸币权看喜币走势 目前金融体系的问题](/content/gnews/9/README.md)
+ ` 喜马拉雅德国纽伦堡正义农场`
 
-### [2月13日文贵大直播摘要（图片1-4）](/content/gnews/12/README.md)
- ` 波士顿五月花农场`
-
-### [中国共产党是极权主义的坚定奉行者](/content/gnews/13/README.md)
+### [福奇进行功能增强实验的铁证（二）](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
+
+### [福奇进行功能增强实验的铁证（一）](/content/gnews/11/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [美国批准与台湾达成爱国者导弹支持协议](/content/gnews/12/README.md)
+ ` 波士顿五月花农场`
+
+### [联邦考虑动用紧急法案终止示威](/content/gnews/13/README.md)
+ ` MG FARM`
 
 ### [上神坛容易下神坛难——俄罗斯](/content/gnews/14/README.md)
  ` 澳喜特战旅Gnews`
@@ -108,50 +108,50 @@
 ### [NFSC新闻、G|TV新闻访谈简报|2022年2月14日早](/content/gnews/31/README.md)
  ` 纽约香草山MOS01`
 
-### [“长途跋涉”：美加边境口岸的车队抗议活动](/content/gnews/32/README.md)
+### [大卡车运动源自香港反送中运动](/content/gnews/32/README.md)
+ ` NFSC News`
+
+### [“长途跋涉”：美加边境口岸的车队抗议活动](/content/gnews/33/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [盖特将确保大卡车运动的信息顺利传递出去](/content/gnews/33/README.md)
+### [盖特将确保大卡车运动的信息顺利传递出去](/content/gnews/34/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [奥运村芬兰村的天花板水管漏水](/content/gnews/34/README.md)
+### [奥运村芬兰村的天花板水管漏水](/content/gnews/35/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [新闻述评：北京冬奥吉祥物“冰墩墩”是熊猫外交的变体](/content/gnews/35/README.md)
+### [新闻述评：北京冬奥吉祥物“冰墩墩”是熊猫外交的变体](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [乌克兰可能为避免战争放弃加入北约申请](/content/gnews/36/README.md)
+### [乌克兰可能为避免战争放弃加入北约申请](/content/gnews/37/README.md)
  ` Shuizhuyu`
 
-### [2/14/2022国际财经快讯：加拿大家庭大面积离开城市助长工资通货膨胀；乌克兰忧虑导致石油达7年峰值](/content/gnews/37/README.md)
+### [2/14/2022国际财经快讯：加拿大家庭大面积离开城市助长工资通货膨胀；乌克兰忧虑导致石油达7年峰值](/content/gnews/38/README.md)
  ` 秘密翻译组金融团队`
 
-### [中共国将不允许“非必要”的旅行目的护照更新](/content/gnews/38/README.md)
+### [中共国将不允许“非必要”的旅行目的护照更新](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆|日本央行三年半来首次进行“限价操作”](/content/gnews/39/README.md)
+### [中日财经爆|日本央行三年半来首次进行“限价操作”](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本医生： 疫苗比病毒可怕百倍，人心比病毒可怕千倍](/content/gnews/40/README.md)
+### [日本医生： 疫苗比病毒可怕百倍，人心比病毒可怕千倍](/content/gnews/41/README.md)
  ` NFSC News`
 
-### [NBC承认北京冬奥会收视率惨淡](/content/gnews/41/README.md)
+### [NBC承认北京冬奥会收视率惨淡](/content/gnews/42/README.md)
  ` NFSC News`
 
-### [日本滑雪女神高梨沙罗被取消成绩](/content/gnews/42/README.md)
+### [日本滑雪女神高梨沙罗被取消成绩](/content/gnews/43/README.md)
  ` NFSC News`
 
-### [共产党对北京冬奥会全面失控](/content/gnews/43/README.md)
+### [共产党对北京冬奥会全面失控](/content/gnews/44/README.md)
  ` NFSC News`
 
-### [跟随内心 做人生最重要的决定](/content/gnews/44/README.md)
+### [跟随内心 做人生最重要的决定](/content/gnews/45/README.md)
  ` NFSC News`
 
-### [卡车司机抗议传导至法国 警方强行驱离](/content/gnews/45/README.md)
+### [卡车司机抗议传导至法国 警方强行驱离](/content/gnews/46/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [超过13万名俄罗斯军队目前在乌克兰境外驻扎](/content/gnews/46/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [中共国令人震惊的贩卖妇女案件数量](/content/gnews/47/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
