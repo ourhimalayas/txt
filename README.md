@@ -15,65 +15,65 @@
 
 ---
 
-### [曼尼托巴省将解除大部分疫情封锁](/content/gnews/1/README.md)
+### [大直播后记：中共突破人类底线，生存和互害模式](/content/gnews/1/README.md)
+ ` 雅典娜GNotes`
+
+### [曼尼托巴省将解除大部分疫情封锁](/content/gnews/2/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [2月13日大直播后记：中共突破人类底线，生存和互害模式](/content/gnews/2/README.md)
+### [2月13日大直播后记：中共突破人类底线，生存和互害模式](/content/gnews/3/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线：日本政府呼吁国民和使馆人员立即撤离乌克兰](/content/gnews/3/README.md)
+### [秘翻在线：日本政府呼吁国民和使馆人员立即撤离乌克兰](/content/gnews/4/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [大直播后记：如何认识体育？](/content/gnews/4/README.md)
+### [大直播后记：如何认识体育？](/content/gnews/5/README.md)
  ` 雅典娜GNotes`
 
-### [文贵先生对战友说的几句话](/content/gnews/5/README.md)
+### [文贵先生对战友说的几句话](/content/gnews/6/README.md)
  ` 纽约香草山MOS03`
 
-### [短视频：这一切到底是科学还是政治？](/content/gnews/6/README.md)
+### [短视频：这一切到底是科学还是政治？](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [大直播后记：没有比新中国联邦更伟大的组织](/content/gnews/7/README.md)
+### [大直播后记：没有比新中国联邦更伟大的组织](/content/gnews/8/README.md)
  ` 雅典娜GNotes`
 
-### [2月13日大直播后记：冬奥会运动员等于爆料革命侦察员](/content/gnews/8/README.md)
+### [2月13日大直播后记：冬奥会运动员等于爆料革命侦察员](/content/gnews/9/README.md)
  ` 雅典娜GNotes`
 
-### [新中国联邦人走向愉悦健康安全的未来](/content/gnews/9/README.md)
+### [新中国联邦人走向愉悦健康安全的未来](/content/gnews/10/README.md)
  ` 纽约香草山MOS02`
 
-### [下周也许决定乌克兰的命运是战争 和平或僵局](/content/gnews/10/README.md)
+### [下周也许决定乌克兰的命运是战争 和平或僵局](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [卡车司机抗议传导至法国 警方强行驱离](/content/gnews/11/README.md)
+### [卡车司机抗议传导至法国 警方强行驱离](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [超过13万名俄罗斯军队目前在乌克兰境外驻扎](/content/gnews/12/README.md)
+### [超过13万名俄罗斯军队目前在乌克兰境外驻扎](/content/gnews/13/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共国令人震惊的贩卖妇女案件数量](/content/gnews/13/README.md)
+### [中共国令人震惊的贩卖妇女案件数量](/content/gnews/14/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2022.2.13大直播后记：共产党渗透联合国](/content/gnews/14/README.md)
+### [2022.2.13大直播后记：共产党渗透联合国](/content/gnews/15/README.md)
  ` 雅典娜GNotes`
 
-### [乌克兰总统邀请美国拜登总统前往基辅稳定局势](/content/gnews/15/README.md)
+### [乌克兰总统邀请美国拜登总统前往基辅稳定局势](/content/gnews/16/README.md)
  ` 蓝莲花农场`
 
-### [灭共几乎是人类上万年来最难的一件事](/content/gnews/16/README.md)
+### [灭共几乎是人类上万年来最难的一件事](/content/gnews/17/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [锁链性奴李莹是中共驭民五术的受害人](/content/gnews/17/README.md)
+### [锁链性奴李莹是中共驭民五术的受害人](/content/gnews/18/README.md)
  ` 纽约香草山MOS03`
 
-### [2/13/2022 文贵直播：中共和俄罗斯是即将发生的世界大战的幕后黑手，乌克兰的代理人战争一触即发](/content/gnews/18/README.md)
+### [2/13/2022 文贵直播：中共和俄罗斯是即将发生的世界大战的幕后黑手，乌克兰的代理人战争一触即发](/content/gnews/19/README.md)
  ` 秘密翻译组-北美组`
 
-### [七哥关于自己下半生的重要决定](/content/gnews/19/README.md)
+### [七哥关于自己下半生的重要决定](/content/gnews/20/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [2月13日大直播后记：世上唯一没有操纵价格的币是喜币](/content/gnews/20/README.md)
- ` 雅典娜GNotes`
 
 ### [中共末日疯狂被利用，银行增发助Hcoin（喜币）成赢家](/content/gnews/21/README.md)
  ` YALUN 亚伦`
