@@ -2,27 +2,76 @@
 ---
 
 
-## 樱花FM┃日本卫生部不推荐5～11岁接种疫苗
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2003035/)
+## 萨省省长斯科特·莫宣布终止口罩和疫苗接种强制令
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2003223/)
 
-音频：东京樱花团/战友520
-![](https://lh4.googleusercontent.com/z--0GmkCJQehS6D6AdmiOewsQrK3-ncxBBI3WpV1AuZsKu7E-0h1uZn946Ru7ewyyaf8uHxw4f5YDYAi14_lfhAbExzKNxGcxByP3AqEMZriJFACmIqOxhfQXfrCoM_cjNEtt4IG)
-据相关人士采访，日本卫生部正在调整对5至11岁儿童的新冠病毒疫苗接种的有关事项，暂时不让家长“努力地去接种” ，并认为疫苗有关 Omicron 菌株的有效性没有足够的数据支持。
+[https://gtv.org/video/id=6209aefdb0af02660af35e5b](https://gtv.org/video/id=6209aefdb0af02660af35e5b)
 
-上个月，由卫生部组织的专家小组委员会审查了辉瑞5至11岁的疫苗进行情况，意见出现分歧，10日将再次举行讨论。
+Premier Scott Moe announces end of mask and vaccination mandate
+萨省省长斯科特·莫宣布终止口罩和疫苗接种强制令
 
-最初，日本卫生部考虑将其作为父母的“努力义务”进行疫苗接种，但目前我们正在进行调整，使其不再是“努力义务”。
+Let’s not judge our neighbor because they may be vaccinated or because they may not be vaccinated
+我们不要因为我们的邻居可能接种了疫苗或没有接种疫苗而评判他们
 
-由于该儿童疫苗针对Omicron毒株的功效尚未在国外有报道，没有足够的数据证明可以预防儿童的重症化，也没有得到人们的普遍理解，把它定义为义务接种是不适宜的，这意味着等待是合适的。
+Let’s not judge our neighbor if they should choose to wear a mask or not to choose to wear a mask in the weeks ahead
+我们不要因为我们的邻居在未来几周内选择戴口罩或不戴口罩而评判他们
 
-10日，卫生部官员将再次与专家小组研究该政策，并讨论如何向父母说明接种疫苗的有关事宜。
+Whenever someone is doing their own personal risk assessment which we have asked them to do in this province for a period of time now
+一段时间以来，我们要求每个人做自己的个人风险评
 
-文字版原文：[日本卫生部不推荐5～11岁接种疫苗](https://gnews.org/zh-hans/1983500/)
+They are doing that assessment for themselves possibly for their family
+每当人们进行个人风险评估时，他们既为自己做评估，可能也为他们的家人做
 
-编辑：东京樱花团/喜马拉雅的微尘
+And they may come back with a different decision than what you might arrive at
+他们可能会做出与您不同的决定
 
-发布：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-1276x720-1.jpg)
+And that different conclusion albeit may be different from where you have landed shouldn’t be judged
+而这个不同的结论尽管可能与你的结论不一样，但不应该被评判
+
+It should be respected, and it should be accepted
+它应该被尊重，应该被接受
+
+It is time for each of us as individuals now to make conscious effort to treat everyone in our daily lives that we encounter equality
+现在是我们每个人作为个体有意识地努力平等对待我们日常生活中遇到的每个人的时候了
+
+It’s also time for the proof of vaccination mandate end
+现在也是结束疫苗接种证明的时候了
+
+And so effective at midnight this Sunday, February the 13th, all provincial proof of vaccination requirements will end
+2 月 13 日星期日午夜开始，所有省级疫苗接种证明要求将结束
+
+in Saskatchewan business and venues and provincial regulated workplaces
+在萨斯喀彻温省的商业和场所以及省级监管的工作场所
+
+This means that the proof of vaccination or the negative test option that we provided will no longer be a provincial requirement starting on Valentin’s Day February the 14th.
+这意味着从 2 月 14 日情人节开始，提供疫苗接种证明或阴性检测选项将不再是省级要求
+
+This will be the case. This will leave one remaining covid measure in place and that is indoor masking
+情况将如此。 只有室内口罩要求这一项covid管控措施将被保留下来
+
+That measure remains in effect until the end of February
+该措施将在2月底结束
+
+* * *
+
+Date: 2/8/2022
+原视频标题: Premier Scott Moe announces end of mask and vaccination mandate
+萨省省长斯科特·莫宣布终止口罩和疫苗接种强制令
+原视频日期：2/8/2022
+原视频链接: https://twitter.com/disclosetv/status/1491116507899650050?s=24
+任务编号：KE396（3719）
+视频时间段 : 0:00-01:00
+中听校：洛杉矶盘古农场 -海潮
+翻译： 洛杉矶盘古农场 – 海潮
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 –Jambo
+审片：洛杉矶盘古农场 –银龙
+发布：洛杉矶盘古农场 –恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
