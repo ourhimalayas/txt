@@ -2,34 +2,28 @@
 ---
 
 
-## 欧盟专员：不再需要疫苗强制
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2001406/)
+## 有声|韩国中共病毒单日确诊创新高
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2001640/)
 
-加拿大温哥华扬帆农场 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-6.jpg)图片来源：The Irish Times
-根据《Deutsche Welle》2月13日报道，欧盟经济专员真蒂洛尼(Paolo Gentiloni)表示，讨论疫苗强制的时间已经过去。同时，一位重要的德国立法者表示，强制疫苗措施不会在议会中得到大多数人的支持。
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据中央社9日报道，韩国单日确诊人数创下4万9567例新高纪录，较前一天大幅增加近1.3万例，居家治疗人数也增至16.8万例。
 
-真蒂洛尼认为，疫情的严重程度在下降，整个欧盟的死亡和住院人数总体上有所下降，各国政府没有理由再推出普及冠状病毒疫苗强制。他说”我们正走在放宽限制的同一条道路上，逐个国家都是如此”。
+韩国中央防疫对策本部统计，截至今天凌晨零时，境内新增4万9567例中共病毒确诊，累计113万1248例，新增案例包括4万9402例社区病例，165例境外迁入病例。其中，首尔、仁川、京畿道等人口密集的首都圈地区社区感染占近6成。
 
-德国议会中最大的反对派团体–保守的基民盟/基社盟的议会领袖说，联邦政府疫苗强制不会得到多数票。
+文字版原文：[韩国中共病毒单日确诊创新高](https://gnews.org/zh-hans/1998285/)
 
-荷兰当局表示，剩余的疫情限制将于2月18日取消。
+音频处理/发稿：Daxia
 
-香港当局表示，在一些大陆货车司机的检测结果呈阳性后，食品供应，特别是蔬菜和冰鲜家禽，可能会暂时中断。香港几乎所有的食品都是进口的，而中国是其最大的来源地。内地当局和香港政府正在密切合作，以确定详细安排，加快对香港的食品供应物流，以便使供应情况尽快恢复正常。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-北京奥组委宣布了三例与奥运会相关的COVID-19新病例。其中两人是运动员或团队成员。在奥运闭环系统中，所有参加奥运会的人都与中国普通民众完全隔离。所有参与人员每天都要接受检测。自1月23日以来，北京冬奥会上有429人检测结果呈阳性。
-
-澳大利亚警方让示威的COVID-19限制的抗议者在周日结束前离开首都堪培拉的占领区。警方发言人告诉路透社：”他们必须在今天之前离开“。警方拒绝透露如果抗议者违抗最后期限，他们将采取什么行动。数千人聚集在首都，到目前为止，没有一个抗议者被逮捕。
-
-全球各地抗议疫苗强制活动不断，各国都在渐渐放开限制和取消疫苗强制。
-
-原文链接：
-[https://www.dw.com/en/covid-digest-vaccine-mandate-no-longer-necessary-eu-commissioner/a-60760531](https://www.dw.com/en/covid-digest-vaccine-mandate-no-longer-necessary-eu-commissioner/a-60760531)
-
-编辑，发稿 Spirit
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
