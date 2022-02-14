@@ -2,8 +2,8 @@
 ---
 
 
-## 物质生活绝对会影响你的信仰影响你的人生
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2001915/)
+## 七哥相信美国的法律体系
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2001950/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
