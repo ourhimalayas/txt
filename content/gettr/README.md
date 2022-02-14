@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/14/2022 2:53 AM (UTC)`
+
+2月13号：衷心地感谢，喜安娜喜安迪姐妹制作精美的视频和唱得真美妙的歌曲……祝，全球的所有的战友们和全天下的人们，情人节快乐！
+![img](https://media.gettr.com/group25/getter/2022/02/14/02/c06aba87-231a-2e26-d3ec-05788301e836/out.jpg)
+
+---
+
 `@miles 2/14/2022 2:37 AM (UTC)`
 
 2/13/2022 Miles Guo: The relationship between the US dollar and the Euro is not a zero-sum game. Instead, they depend on each other. The imminent world war is caused by the ignorance and hubris of Xi Jinping and the mutual deception in Communist China. When the world economy collapses, digital currencies, especially Himalaya Pay, are going to be the biggest winner.<br/><br/>2/13/2022 文贵直播：美元和欧元的关系不是你死我活，而是谁都离不开谁；一触即发的世界大战源于习太阳的无知、狂妄和中共国的欺骗互骗；世界经济崩塌时，数字货币、喜支付就是最大赢家<br/>
@@ -149,13 +156,6 @@
 
 2月12号：尊敬的战友们好，你们健身了吗？传播CCP病毒，疫苗解药真相了吗？七哥继续和大家分享，昨天大直播中，我没回答完的问题……<br/>一切都已经开始！
 ![img](https://media.gettr.com/group5/getter/2022/02/12/14/d38caa60-69e5-628e-7121-f65d86c42ee8/out.jpg)
-
----
-
-`@miles 2/12/2022 2:21 PM (UTC)`
-
-⚠️⚠️Chronologie du nouvel État fédéral de Chine à propos du virus du PCC et du vaccin covid (Française)<br/><br/>Le NFSC a toujours été attaché à la vérité et à sauver des vies en exposant la nature perverse du PCC et le fait qu'ils ont créé le virus du PCC qui a tué des millions de personnes dans le monde. En outre, le NFSC a diffusé dans le monde les thérapies COVID et les médicaments associés, ainsi que les informations et données réelles sur le vaccin COVID. Tous les faits prouvent que ce que le PCC a fait n'a rien à voir avec le peuple chinois, le PCC ne peut pas représenter le peuple chinois, qui en est aussi la victime.<br/><br/>⚠️⚠️关于 #新中国联邦 爆料 #中共病毒 和 #中共病毒疫苗 灾难预警时间线（法语版）<br/><br/>新中国联邦致力于揭露中共邪恶本质，揭露他们制造中共病毒在全世界造成数百万人死亡的事实以及COVID疫苗的真实目的，揭示真相，拯救生命。中共的所作所为与中国人民无关，中共不代表中国人民，中国人民也是受害者。
-![img](https://media.gettr.com/group8/origin/2022/02/12/14/a2f76901-8277-64d6-41a2-df652e420057/out.jpg)
 
 ---
 
