@@ -2,16 +2,22 @@
 ---
 
 
-## NBC承认北京冬奥会收视率惨淡
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2002758/)
+## 共产党对北京冬奥会全面失控
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2002756/)
 
-作者：纽纽约香草山 – 侠肝义胆
+作者：银河系农场 — 骄子
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-2月12日，美国媒体报道，NBC体育主席皮特·贝瓦夸在两天前接受采访时表示，北京冬奥会转播的收视率非常糟糕，而且电视台对此毫无办法。贝瓦夸将观众缺乏收看冬奥会的激情，归咎于中共病毒疫情的限制，而丝毫不敢提及公众对NBC的普遍厌恶，以及NBC为了利益美化中共，无视中共在人权问题上无数暴行的行为。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-34.jpg)
-有网友评论称，北京冬奥会在国内的电视收视率已经达到灾难性的低点，NBC 转播的冬奥会也将成为历史上收视率最低的冬奥会。而公众不愿意看到中共举办冬奥会，是因为中共制造并故意传播了病毒，国际社会应该追查中共病毒的责任。这才是北京冬奥会收视率史上最低的真实原因！
+在2月11日的大直播中，郭文贵先生谴责中共在大庭广众之下把北京冬奥会办成了一场欺骗奥运会。但这些欺骗手段已逐步被国际社会看清，而一个清醒的世界将越来越远离中共，中共对冬奥会实际上已经失控，不可能再达到自己的目的。
 
-参考链接：[NBC承认北京冬奥会收视率惨淡](https://www.breitbart.com/entertainment/2022/02/12/nbc-admits-genocide-games-ratings-bust-for-us-its-been-difficult-theres-no-way-around-this/)
+首先，北京冬奥会的假雪是众所周知的欺骗，谷爱凌在拥有美国国籍的前提下代表中共参赛，这种欺骗已经是对国际体育规则的极度破坏。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-32.jpg)
+另外郭先生还爆料，俄罗斯一位在冬奥会现场的朋友，亲眼看到北京冬奥会现场没有观众，并拍摄了照片。中共政府要求俄罗斯报道一下冬奥会，且不允许使用别人拍摄的现场没有观众的照片，而是亲自给提供了同样角度，但现场坐满观众的照片。
+
+中共的黑社会欺骗手段还包括收买冬奥会现场的所有官员和裁判。在有摄像头有比赛规则的情况下，这些被中共收买和威胁的裁判们肆意破坏体育比赛的公正性，乱判成绩。
+
+国际奥委会的某位官员说，以后再不会有任何一个奥委会的官员会相信共产党，并再和共产党合作了。
+
+参考链接：[共产党对北京冬奥会全面失控](https://gtv.org/video/id=62065c00a1fe5e57a426b9e1)
 
 ![This image has an empty alt attribute; its file name is calendar.png](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 

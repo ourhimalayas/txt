@@ -2,38 +2,32 @@
 ---
 
 
-## 共产党对北京冬奥会全面失控
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2002756/)
+## 卡车司机抗议传导至法国 警方强行驱离
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2002654/)
 
-作者：银河系农场 — 骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-在2月11日的大直播中，郭文贵先生谴责中共在大庭广众之下把北京冬奥会办成了一场欺骗奥运会。但这些欺骗手段已逐步被国际社会看清，而一个清醒的世界将越来越远离中共，中共对冬奥会实际上已经失控，不可能再达到自己的目的。
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1384.png)[图片来源](https://www.dw.com/zh/%E8%87%AA%E7%94%B1%E8%BD%A6%E9%98%9F%E6%8A%97%E8%AE%AE%E5%BB%B6%E7%83%A7%E8%87%B3%E6%B3%95%E5%9B%BD-%E8%BF%91%E7%99%BE%E4%BA%BA%E5%B7%B4%E9%BB%8E%E8%A2%AB%E6%8D%95/a-60763022)
+受到加拿大卡车司机抗议的启发，不少法国反疫苗强制政策的示威者也从各地开车来到巴黎。最终警方使用催泪瓦斯驱散了这场抗议活动。对于近百名示威者来说，2月12日的集会以被逮捕告终。
 
-首先，北京冬奥会的假雪是众所周知的欺骗，谷爱凌在拥有美国国籍的前提下代表中共参赛，这种欺骗已经是对国际体育规则的极度破坏。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-32.jpg)
-另外郭先生还爆料，俄罗斯一位在冬奥会现场的朋友，亲眼看到北京冬奥会现场没有观众，并拍摄了照片。中共政府要求俄罗斯报道一下冬奥会，且不允许使用别人拍摄的现场没有观众的照片，而是亲自给提供了同样角度，但现场坐满观众的照片。
+法国巴黎警方的一份声明表示，在周六的抗议活动中，有97人被逮捕，还发出了513份警告。警方在推特上宣布，周日部署了大量警员，用来封锁“自由车队”。据悉，从周五（2月11日）到周一这段时间，当局动员了大约7500名警察，此外还部署了装甲车和水炮。
 
-中共的黑社会欺骗手段还包括收买冬奥会现场的所有官员和裁判。在有摄像头有比赛规则的情况下，这些被中共收买和威胁的裁判们肆意破坏体育比赛的公正性，乱判成绩。
+法国当局称，那些违反规定的人有可能被判处两年监禁，罚款4500欧元，并被吊销驾驶执照。
 
-国际奥委会的某位官员说，以后再不会有任何一个奥委会的官员会相信共产党，并再和共产党合作了。
+最近几日，来自法国各地的数千名示威者开着汽车、露营车、面包车等来到巴黎周边，加入抗议车队。参与者中有反对需要出示疫苗接种证明的人、有“黄马甲”运动的支持者，也有其他反对政府措施的人士。
 
-参考链接：[共产党对北京冬奥会全面失控](https://gtv.org/video/id=62065c00a1fe5e57a426b9e1)
+法国当局禁止了计划中的抗议活动。尽管如此，示威者还是在本周六下午设法进入了香榭丽舍中央大道，除步行者外，也有一百多辆汽车。
 
-![This image has an empty alt attribute; its file name is calendar.png](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
+据通讯社报道，当一支抗议新冠防疫限制、所谓的法国“自由车队”经过巴黎市中心的警察检查站时，凯旋门周围的交通陷入停顿。驾车者挥舞着法国国旗并且鸣笛，无视警察不得进入城区的命令。后来，警方用催泪瓦斯驱散了这场未经批准的示威。
 
-总编：飞虹
-编辑：飞虹
-校对/发稿：Hetangyuese
+根据法国内政部数据，周六有3.21万名示威者参加了在法国各地举行的反新冠防疫措施的集会，这些集会是得到批准的，其中包括在巴黎的近7600人。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+目前距离4月10日开始的法国总统大选还有几周时间，政府正试图阻止抗议活动的蔓延。
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+信息来源：[“自由车队”抗议延烧至法国 近百人巴黎被捕](https://www.dw.com/zh/%E8%87%AA%E7%94%B1%E8%BD%A6%E9%98%9F%E6%8A%97%E8%AE%AE%E5%BB%B6%E7%83%A7%E8%87%B3%E6%B3%95%E5%9B%BD-%E8%BF%91%E7%99%BE%E4%BA%BA%E5%B7%B4%E9%BB%8E%E8%A2%AB%E6%8D%95/a-60763022)
 
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
