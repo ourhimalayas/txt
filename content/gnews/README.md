@@ -15,107 +15,107 @@
 
 ---
 
-### [习太阳的无知绑架世界华人](/content/gnews/1/README.md)
- ` 雅典娜GNotes`
+### [【G时新闻】辉瑞公司向FDA推迟申请5岁以下儿童COVID疫苗](/content/gnews/1/README.md)
+ ` G-时新闻`
 
-### [20220201郭文贵大直播 ：联合国、国际奥委会和世界卫生组织就是一帮犯罪集团](/content/gnews/2/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [02/14/22 香港快讯 跨境运输业指目前可如常往返两地香港跨境司机不足50人](/content/gnews/3/README.md)
- ` 英喜-粵語組`
-
-### [美议员提出法案制裁国际奥委会掩盖中共人权罪行](/content/gnews/4/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [美国及世界疫情简报 （02-14-2022）](/content/gnews/5/README.md)
- ` 波士顿五月花农场`
-
-### [20220213郭文贵大直播 ：当今世界经济的三条脉络](/content/gnews/6/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [蓬佩奥：北京种族灭绝冬奥会为了粉饰中共的政权](/content/gnews/7/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [班农专访6: 美联储发布央行数字货币白皮书](/content/gnews/8/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [樱花FM┃中日财经爆┃MSCI中共国A股指数纳入中国移动 剔除阳光城](/content/gnews/9/README.md)
- ` 樱花FM`
-
-### [班农专访4：加拿大卡车司机抗议暴政引发全球运动](/content/gnews/10/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [樱花头条┃苏州四人检测阳性，苏州工业园区全员核酸检测](/content/gnews/11/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [20220213郭文贵大直播 ：习的疯狂被利用导致战后世界格局的变化](/content/gnews/12/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [文·贵天成——文贵先生谈“PAG太平联盟、单伟建”（五）](/content/gnews/13/README.md)
- ` 墨尔本雅典娜农场`
-
-### [樱花FM┃中日财经爆┃IMF：近100个国家正在研究CBDC央行数字货币](/content/gnews/14/README.md)
- ` 樱花FM`
-
-### [《历史上的今天》2022.02.14](/content/gnews/15/README.md)
+### [每日快报：拜登警告普京，美国军方会在一小时内做出回应](/content/gnews/2/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [2月13日大直播后记：程序不正义带来的不公及国人的互害](/content/gnews/16/README.md)
- ` 雅典娜GNotes`
-
-### [喜币超越一切国家法币](/content/gnews/17/README.md)
- ` 雅典娜GNotes`
-
-### [班农专访2: 北京冬奥会之后，习近平可能入侵台湾](/content/gnews/18/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [拜登政府将解冻阿富汗的70亿美元用于人道救助及赔偿911受害者](/content/gnews/19/README.md)
- ` GTV News Talk`
-
-### [班农专访1: 冬奥期间中俄签署万亿天然气管道协议](/content/gnews/20/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [拜登警告普京入侵乌克兰的沉重代价](/content/gnews/21/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [加拿大警察陆续来到大使桥，准备清场游行示威者](/content/gnews/22/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [盖特将确保大卡车运动的信息顺利传递出去](/content/gnews/23/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [樱花FM|美新任驻日本大使发推表示支持日本](/content/gnews/24/README.md)
+### [樱花FM┃中日财经爆┃美国考虑与盟国合作对中共国征收新关税](/content/gnews/3/README.md)
  ` 樱花FM`
 
-### [中共将为司法体系去殖民化](/content/gnews/25/README.md)
+### [20220213郭文贵大直播 ：不超过3次直播，世界巨变](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [后疫苗时代引发的三件事](/content/gnews/26/README.md)
- ` 雅典娜GNotes`
+### [班农专访3: 中共国拐卖幼女案坐实人权侵犯](/content/gnews/5/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [制造医院拒收乱像 逼家长带孩童注射疫苗](/content/gnews/27/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [DC大中华时事：中国大专应届毕业生首度破千万](/content/gnews/6/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [社会主义镰刀即将收割香港](/content/gnews/28/README.md)
- ` 波士顿五月花农场`
-
-### [锁链女案件折射出中共治下的黑暗](/content/gnews/29/README.md)
- ` 日本东京方舟农场`
-
-### [樱花FM┃为增加奥运奖牌数量 北京疑悄悄改变国籍规则](/content/gnews/30/README.md)
- ` 樱花FM`
-
-### [西媒头条 — 第172期](/content/gnews/31/README.md)
+### [2022年2月14日，全球中共病毒疫情情况汇总](/content/gnews/7/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [奥运村芬兰村的天花板水管漏水](/content/gnews/32/README.md)
+### [20220213郭文贵大直播 应该喊口号，我们是无苗灭共者](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共背后捣鬼，俄乌大战一触即发](/content/gnews/9/README.md)
+ ` 波士顿五月花农场`
+
+### [NewSGman┃纽约污水中发现超过4种冠状病毒不明突变](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [甜蜜蜜](/content/gnews/11/README.md)
+ ` 纽约香草山MOS03`
+
+### [从单伟建的履历看社会制度与人性的关系(二)](/content/gnews/12/README.md)
+ ` 纽约香草山MOS03`
+
+### [视频| 郭先生为何没有获得美国的政治庇护](/content/gnews/13/README.md)
+ ` MOSREC`
+
+### [2/13/2022 文贵直播：耗费上万亿美元民脂民膏的冬奥会却让全世界看到中共国的假和骗、腐败、和毫无底线的互害，冬奥会将让中共国经济崩溃、并引发全球排华](/content/gnews/14/README.md)
+ ` 秘密翻译组-北美组`
+
+### [DC每日热点0214](/content/gnews/15/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [20220213郭文贵大直播：疫苗灾难过后，改变世界格局的三件大事](/content/gnews/16/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [20220213郭文贵大直播 ：喜币的成功与冬奥会的造假，只有爆料革命新中国联帮告诉全世界真相](/content/gnews/17/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [【G时新闻】安大略省宣布进入紧急状态，法院对加美边境的卡车封锁发出禁令](/content/gnews/18/README.md)
+ ` G-时新闻`
+
+### [2/13/2022 文贵直播：冬奥会的外国运动员将成为中共永远的敌人，他们回国后会以亲身经历揭露中共的假丑恶，这将对爆料革命有巨大帮助](/content/gnews/19/README.md)
+ ` 秘密翻译组-北美组`
+
+### [大直播后记：Hpay是财富密码](/content/gnews/20/README.md)
+ ` 雅典娜GNotes`
+
+### [诺贝尔奖得主吕克·蒙塔尼耶去世](/content/gnews/21/README.md)
+ ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
+
+### [20220213郭文贵大直播 ：国际奥委会、世界卫生组织、WTO和世界记者联盟就是共产党的帮凶](/content/gnews/22/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [NewSGman┃中共统治下的悲惨——徐州八孩母亲](/content/gnews/23/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [20220201郭文贵大直播 ：联合国、国际奥委会和世界卫生组织就是一帮犯罪集团](/content/gnews/24/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [02/14/22 香港快讯 跨境运输业指目前可如常往返两地香港跨境司机不足50人](/content/gnews/25/README.md)
+ ` 英喜-粵語組`
+
+### [大理灭门案22年后将再审：被“杀人犯”改写的四代人](/content/gnews/26/README.md)
+ ` 纽约香草山MOS03`
+
+### [美国及世界疫情简报 （02-14-2022）](/content/gnews/27/README.md)
+ ` 波士顿五月花农场`
+
+### [樱花FM┃中日财经爆┃IMF：近100个国家正在研究CBDC央行数字货币](/content/gnews/28/README.md)
+ ` 樱花FM`
+
+### [《历史上的今天》2022.02.14](/content/gnews/29/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [盖特将确保大卡车运动的信息顺利传递出去](/content/gnews/30/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [文贵先生盖特精要- 2022/02/13](/content/gnews/33/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [樱花FM|美新任驻日本大使发推表示支持日本](/content/gnews/31/README.md)
+ ` 樱花FM`
 
-### [所有铁链女得到解救前，这社会没有情人节！](/content/gnews/34/README.md)
- ` 蓝莲花农场`
+### [中共将为司法体系去殖民化](/content/gnews/32/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [锁链女案件折射出中共治下的黑暗](/content/gnews/33/README.md)
+ ` 日本东京方舟农场`
+
+### [奥运村芬兰村的天花板水管漏水](/content/gnews/34/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [新闻述评：北京冬奥吉祥物“冰墩墩”是熊猫外交的变体](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
