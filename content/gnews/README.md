@@ -90,59 +90,59 @@
 ### [大卡车运动源自香港反送中运动](/content/gnews/25/README.md)
  ` NFSC News`
 
-### [有声|美国正在挫败中共在非洲的大西洋基地计划](/content/gnews/26/README.md)
- ` MOSREC`
-
-### [“长途跋涉”：美加边境口岸的车队抗议活动](/content/gnews/27/README.md)
+### [“长途跋涉”：美加边境口岸的车队抗议活动](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [罗杰-霍德金森抨击中共病毒疫苗](/content/gnews/28/README.md)
- ` NFSC News`
-
-### [疫苗未能降低感染 引发其它病症死亡率上升](/content/gnews/29/README.md)
- ` NFSC News`
-
-### [秘翻在线：笔者斗胆猜测：甜蜜蜜灭了北京冬奥会的圣火](/content/gnews/30/README.md)
+### [秘翻在线：笔者斗胆猜测：甜蜜蜜灭了北京冬奥会的圣火](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [NewSGman┃疫情新闻全球速报（2月10日）](/content/gnews/31/README.md)
+### [NewSGman┃疫情新闻全球速报（2月10日）](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [PCR测试拭子含环氧乙烷致癌物](/content/gnews/32/README.md)
+### [PCR测试拭子含环氧乙烷致癌物](/content/gnews/29/README.md)
  ` 温哥华扬帆农场`
 
-### [张艺谋的较真](/content/gnews/33/README.md)
+### [张艺谋的较真](/content/gnews/30/README.md)
  ` genwsGNEWS`
 
-### [加拿大曼尼托巴省宣布结束疫苗护照和口罩强制令](/content/gnews/34/README.md)
+### [加拿大曼尼托巴省宣布结束疫苗护照和口罩强制令](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [DC大中华时事：中共编造冬奥会谎言](/content/gnews/35/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [NewSGman┃疫情新闻全球速报（2月12日）](/content/gnews/36/README.md)
+### [NewSGman┃疫情新闻全球速报（2月12日）](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [盖特将确保大卡车运动的信息顺利传递出去](/content/gnews/37/README.md)
+### [盖特将确保大卡车运动的信息顺利传递出去](/content/gnews/33/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [奥运村芬兰村的天花板水管漏水](/content/gnews/38/README.md)
+### [奥运村芬兰村的天花板水管漏水](/content/gnews/34/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [新闻述评：北京冬奥吉祥物“冰墩墩”是熊猫外交的变体](/content/gnews/39/README.md)
+### [新闻述评：北京冬奥吉祥物“冰墩墩”是熊猫外交的变体](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [乌克兰可能为避免战争放弃加入北约申请](/content/gnews/40/README.md)
+### [乌克兰可能为避免战争放弃加入北约申请](/content/gnews/36/README.md)
  ` Shuizhuyu`
 
-### [2/14/2022国际财经快讯：加拿大家庭大面积离开城市助长工资通货膨胀；乌克兰忧虑导致石油达7年峰值](/content/gnews/41/README.md)
+### [2/14/2022国际财经快讯：加拿大家庭大面积离开城市助长工资通货膨胀；乌克兰忧虑导致石油达7年峰值](/content/gnews/37/README.md)
  ` 秘密翻译组金融团队`
 
-### [中共国将不允许“非必要”的旅行目的护照更新](/content/gnews/42/README.md)
+### [中共国将不允许“非必要”的旅行目的护照更新](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆|日本央行三年半来首次进行“限价操作”](/content/gnews/43/README.md)
+### [中日财经爆|日本央行三年半来首次进行“限价操作”](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
+
+### [霍德金森博士称不告知真相的医生是谋杀案同谋](/content/gnews/40/README.md)
+ ` NFSC News`
+
+### [日本医生： 疫苗比病毒可怕百倍，人心比病毒可怕千倍](/content/gnews/41/README.md)
+ ` NFSC News`
+
+### [NBC承认北京冬奥会收视率惨淡](/content/gnews/42/README.md)
+ ` NFSC News`
+
+### [日本滑雪女神高梨沙罗被取消成绩](/content/gnews/43/README.md)
+ ` NFSC News`
 
 ### [共产党对北京冬奥会全面失控](/content/gnews/44/README.md)
  ` NFSC News`

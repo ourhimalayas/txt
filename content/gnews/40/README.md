@@ -2,39 +2,35 @@
 ---
 
 
-## 乌克兰可能为避免战争放弃加入北约申请
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2003187/)
+## 霍德金森博士称不告知真相的医生是谋杀案同谋
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2002760/)
 
-信息来源： 路透社
+作者：纽约磐石农场 — 在远方
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+2月13日，郭文贵先生盖特转发视频消息，加拿大病理学家、某著名医疗保险机构CEO罗杰·霍德金森博士表示，中共病毒疫苗没有任何作用，所有不告知真相的医生，都是政府认可的谋杀案的同谋。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-36.jpg)
+霍德金森说，有一个压倒性的共识，即疫苗没有任何作用，疫苗是试验性和未经测试的。疫苗接种不仅是不必要的，实际上它正在杀人害人。
 
-翻译/整理： 意大利罗马达芬奇农场 Shuizhuyu
+他表示，如果医生没有被本应保护他们的机构所恐吓，以及没有受到失去收入和被解雇的威胁，病人们就会被告知真相。但是，医生们被剥夺了告诉病人真相的权利，而政府和医疗机构践踏了两个主要的医学伦理：不伤害和知情同意权。并且强制疫苗所杀死的人，比他们所拯救的人要多很多。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/7MDTIK23VFKKJCUMBXRMO4WNKQ.jpg)
+霍德金森着重讲到，整个加拿大和全球医疗机构的医生和外科医生，都是政府认可的谋杀案的同谋者。
 
+参考链接：[霍德金森博士称不告知真相的医生是谋杀案同谋](https://gettr.com/post/pu4owu389c)
 
-图片来源： 路透社
+![This image has an empty alt attribute; its file name is calendar.png](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
-英国广播公司援引乌克兰驻英国大使的话说，乌克兰可能会放弃加入北约以避免与俄罗斯发生战争，这相当于对莫斯科做出重大让步，以应对俄罗斯在其边境集结的军队。
+总编：文特
+编辑：文特
+校对/发稿：Hetangyuese
 
-Vadym Prystaiko 大使告诉 BBC，乌克兰愿意在加入大西洋军事联盟的目标上保持“灵活”，俄罗斯总统弗拉基米尔·普京表示，此举将引发战争。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-当被问及乌克兰是否可以改变其在北约成员国问题上的立场时，Prystaiko 说：“我们可能——尤其是受到这样的威胁、敲诈和逼迫。”
-
-乌克兰不是北约成员国，但从 2008 年起就承诺最终将有机会加入，这将使美国领导的联盟进入俄罗斯边境。
-
-普京表示，乌克兰与该联盟日益密切的关系可能使其成为北约针对俄罗斯的导弹的发射台。他说，俄罗斯需要划定“红线”来防止这种情况发生。
-
-最近几周，俄罗斯已将超过 100,000 名士兵和重型武器转移到乌克兰的打击范围内，这促使美国及其北约盟国警告说，入侵可能迫在眉睫。
-
-莫斯科否认它正在计划发动袭击，称其为军事演习，但已发出书面要求，要求北约放弃任何进一步向东扩张，包括乌克兰。北约成员国拒绝了这一要求。
-
-白宫表示，美国总统乔·拜登周日与乌克兰总统泽连斯基进行了交谈，并同意继续进行外交努力以试图解决危机。
-
-简评： 郭先生2月13日直播中已经明确， 普京认为乌克拉就是自己的， 话音未落， 今天就看到了这条新闻， 乌克兰可能为了避免战争， 放弃加入北约的申请， 这就意味着北约东扩的步伐减慢， 应对面前的东欧危机。 更严重的可能就是对俄罗斯的妥协。 欧洲依赖俄罗斯的能源供应。
-
-🔗[乌克兰可能为避免战争放弃加入北约申请](https://www.reuters.com/world/europe/ukraine-could-drop-nato-bid-avoid-war-ambassador-tells-bbc-2022-02-14/)
-
-编辑发布简评 ： Shuizhuyu
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 
