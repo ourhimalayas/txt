@@ -2,28 +2,28 @@
 ---
 
 
-## 有声|韩国中共病毒单日确诊创新高
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2001640/)
+## 中日财经爆┃日本将用卫星监控水稻生长优化品质
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2001786/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据中央社9日报道，韩国单日确诊人数创下4万9567例新高纪录，较前一天大幅增加近1.3万例，居家治疗人数也增至16.8万例。
+撰稿：东京樱花团/盖特第一批注册
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-54.png)[图片链接](https://news.yahoo.co.jp/articles/3148c8c97035501b712f4e40d9f59f1a5cec2063/images/000)
+为了帮助因人口老化和减少而长期劳动力短缺的农业发展，福井县政府将在2022年开始一项农业实验，利用卫星监控水稻生长，数据用来推算大米的蛋白质含量。
 
-韩国中央防疫对策本部统计，截至今天凌晨零时，境内新增4万9567例中共病毒确诊，累计113万1248例，新增案例包括4万9402例社区病例，165例境外迁入病例。其中，首尔、仁川、京畿道等人口密集的首都圈地区社区感染占近6成。
+使用卫星摄像机从距离地面约600公里的高空监测水稻的生长状况，并通过计算机分析推算蛋白质含量。根据这些分析结果调整明年的稻田施肥量。
 
-文字版原文：[韩国中共病毒单日确诊创新高](https://gnews.org/zh-hans/1998285/)
+如果水稻施肥过多，虽然蛋白质含量会提高，但是煮出的米饭会变得又硬又没有粘性，不好吃。
 
-音频处理/发稿：Daxia
+该卫星由福井县政府和一家当地公司开发，于去年3月发射，是日本第一个由地方政府发射的用于农业和防灾的卫星。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+信息源：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+[「宇宙から農業支えたい」人工衛星で稲を撮影しコメのおいしさ推定…福井県が実証実験へ](https://news.yahoo.co.jp/articles/3148c8c97035501b712f4e40d9f59f1a5cec2063)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

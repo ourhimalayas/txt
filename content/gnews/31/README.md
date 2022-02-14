@@ -2,32 +2,27 @@
 ---
 
 
-## 欧盟调查关于mRNA疫苗后月经紊乱的报告
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2000980/)
+## 新中国联邦引领世界大卡车反抗暴政运动
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2001469/)
 
-**编译：七龙珠**
+加拿大温哥华扬帆农场：硫酸羟氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip欧盟调查关于mRNA疫苗后月经紊乱的报告.png)新冠疫苗接种 -路透中文网
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/a-13-edited.png)图片来源：GTV
 
-接种Covid疫苗与月经周期长度的暂时小变化有关
 
-欧洲药品管理局的安全委员会说，他们正在审查接受过辉瑞/摩德纳生物技术公司Covid疫苗的妇女的大量月经出血和没有月经的报告。
+据2月13日GTV大直播报道，文贵先生发起的暴料革命于2019年在香港反送中运动中所策划的使用货车和汽车以阻断中共恶警涂炭香港的行动方式，开启了世界上和平对抗暴政并使人类有效实现新型民主的先河。
 
-该机构说，该评估是根据接受这两种疫苗中的任何一种后出现月经紊乱的报告做出的，这两种疫苗都是基于mRNA技术的，目前还不清楚是否存在因果关系。
+报道指出，目前在加拿大和法国以及全球各地正如火如荼进行的卡车司机车队反抗疫苗暴政的集会示威活动，与当年文贵先生在香港抵抗中共政权入侵中所采取堵塞和瘫痪当地交通的方式如出一辙。而且新中国联邦在当前这些和平抗议运动中所起的实践指导作用举足轻重。
 
-根据美国国立卫生研究院资助的一项最新研究，接种Covid疫苗与月经周期长度的小幅暂时变化有关，该研究收集了近4000名跟踪月经周期的手机应用程序用户的数据。此前挪威的一项研究表明，一些妇女在接种疫苗后月经量增多。
+对此，文贵先生指出，大卡车反疫苗政策运动的本质，就是把全球现在和未来的经济，完美地与利用政治运动来和平有效地推翻独裁统治联系在一起。如果最终能不被煽动、不使用暴力，那么它的意义和价值将是非凡和深远的。
 
-在审查了现有的证据之后，药物警戒风险评估委员会（PRAC）说，它决定要求对所有可用的数据进行评估，包括来自患者和医疗保健专业人士的报告、临床试验和已发表的文献。
+新闻来源：
 
-**新闻来源**：[abc.es][La UE investiga los informes sobre trastornos menstruales tras las vacunas de ARNm](https://www.abc.es/sociedad/abci-investiga-informes-sobre-trastornos-menstruales-tras-vacunas-arnm-202202121208_noticia.html)
+[https://gettr.com/streaming/pu9dbgdec1](https://gettr.com/streaming/pu9dbgdec1)
 
 * * *
 
-***审核：Aries的星
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1.jpeg)
+采编：青青 编辑撰稿，发稿：硫酸羟氯喹64
 
  
 

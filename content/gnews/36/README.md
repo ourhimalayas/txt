@@ -2,21 +2,17 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年2月13日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2000786/)
+## 香草山翻译部周刊|2022年2月13日第35期
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2000923/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO.jpg)
 
 作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-12.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/MosWeekly2022_2_13CN.png)
 文章仅代表作者本人观点，与Gnews无关
 
-视频参看：
-[2022.02.13早 《NFSC新闻》](https://gtv.org/video/id=62090779a456fe1dea30275e)
-[2022.02.13早 G|TV《新闻访谈》](https://gtv.org/video/id=62090fb2a456fe1dea303e60)
-
+总编： GBWater
 编辑： Lakers
-校对： Lakers
 发稿： Lakers
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-callendar-1.jpeg)

@@ -2,10 +2,10 @@
 ---
 
 
-## 北京冬奥会给我们的启示
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2001835/)
+## 喜币最牛4点
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2001879/)
 
-##### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
 
 *发布：陶子*

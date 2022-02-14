@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/14/2022 2:10 AM (UTC)`
+
+2/13/2022 Miles Guo: The COVID vaccine disaster is going to cause major political, military, and economic changes in the world. The CCP, Big Pharma, and those who are pushing the vaccine mandate are all going to be brought to justice. So fellow fighters, please rest assured. The vast majority of the people in the world want to take down the CCP and get to the bottom of the truth about the CCP virus and its vaccines.<br/><br/>2/13/2022 文贵直播：疫苗灾难将导致世界政治、军事和经济大变局；中共、大药厂和推行疫苗强制令的人终将被审判；战友们请放心，世界绝大多数人都要灭共并查清病毒和疫苗的真相<br/>
+![img](https://media.gettr.com/group33/getter/2022/02/14/02/4915f687-abfe-5e1e-db46-161ce9c31ad7/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@gwave 2/13/2022 11:39 PM (UTC)`
@@ -149,13 +156,6 @@
 
 2/11/2022 Miles Guo: Although my family is implicated by the PAG case, I will never compromise and will respect the American law and justice system even more. Fellow fighters should not bring their pressure and pain to their families, and the only way to keep them safe is to take down the CCP!<br/><br/>2/11/2022 文贵直播：虽然文贵的家人因PAG案受到牵连，但文贵绝不妥协，并会更加尊重美国的法律和司法体系；战友们不应把自己的压力和痛苦带给家人，让家人安全的唯一方式是灭共！
 ![img](https://media.gettr.com/group4/getter/2022/02/12/04/e1fc7512-54ee-5502-13b2-2d480ced2270/out.jpg)
-
----
-
-`@miles 2/12/2022 4:08 AM (UTC)`
-
-2/11/2022 Miles Guo: I said in 2018 that the US would enact laws to sanctions against the CCP, and now the bill has been officially introduced. Those who have not taken the COVID jabs will be the winners. Putin directly questioned the CCP's deception during the Winter Olympics, while Xi was lied to by his vassals. The CCP's ruling by deception would be the most powerful weapon to take down the CCP.<br/><br/>2/11/2022 文贵直播：文贵在2018年就说美国要立法制裁中共，现在法案已被正式提出，没打疫苗的人才会是赢家；普京在冬奥会质疑中共忽悠，而习却被蒙在鼓里，中共的以骗治国将成为灭共最有力的武器<br/>
-![img](https://media.gettr.com/group48/getter/2022/02/12/04/ac042ff4-e7f3-8544-141e-fe500c4335cf/out.jpg)
 
 ---
 

@@ -2,28 +2,32 @@
 ---
 
 
-## 纽约强制疫苗再加码
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2000924/)
+## 欧盟调查关于mRNA疫苗后月经紊乱的报告
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2000980/)
 
-撰稿：小毛牛
+**编译：七龙珠**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/021004.jpg)在周五，纽约市人们抗议公务员疫苗强制令，这是公务员接种疫苗的最后期限，强制令规定不接种疫苗就有失去工作的风险。图片：MEGA Agency
+![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip欧盟调查关于mRNA疫苗后月经紊乱的报告.png)新冠疫苗接种 -路透中文网
 
-根据福克斯新闻与美联社2月13日联合报道，
+接种Covid疫苗与月经周期长度的暂时小变化有关
 
-在世界各国纷纷放松甚至丢弃强制疫苗的背景下，纽约市逆风而动，宣布了公务员接种疫苗的最后期限，不接种疫苗就有失去工作的风险。
+欧洲药品管理局的安全委员会说，他们正在审查接受过辉瑞/摩德纳生物技术公司Covid疫苗的妇女的大量月经出血和没有月经的报告。
 
-有报道称：纽约市 37万 名工作人员中仅有约 1%的人目前还没有接种疫苗，如果他们不遵守纽约市的规定，他们就会有失业的风险，规定还要求所有人在最后期限内需要接受最少两剂COVID-19 疫苗。面临失业风险的公务员包括教师、消防员和警察。
+该机构说，该评估是根据接受这两种疫苗中的任何一种后出现月经紊乱的报告做出的，这两种疫苗都是基于mRNA技术的，目前还不清楚是否存在因果关系。
 
-纽约市市长埃里克·亚当斯（Eric Adams ）在新闻发布会上大言不惭地表示：生活在一个纽约这样一个国际化超级大城市意味着公民必须遵守规则。我们管不着那些不从政府部门领薪水的人们，但是如果你是公务员，就必须接种疫苗。
+根据美国国立卫生研究院资助的一项最新研究，接种Covid疫苗与月经周期长度的小幅暂时变化有关，该研究收集了近4000名跟踪月经周期的手机应用程序用户的数据。此前挪威的一项研究表明，一些妇女在接种疫苗后月经量增多。
 
-当然，纽约市的加强版强制疫苗令招来了大量的抗议者，抗议者普遍表达了自由的重要性。同时已经有几个工会帮助了不愿接种疫苗的人们向法院提起诉讼，以期阻止来自纽约市政府的解雇。然而，当地的一名法官已经在周四（2月10日）作出了不利于抗议者的裁决。
+在审查了现有的证据之后，药物警戒风险评估委员会（PRAC）说，它决定要求对所有可用的数据进行评估，包括来自患者和医疗保健专业人士的报告、临床试验和已发表的文献。
 
-新闻来源：[NYC protesters fight vaccine mandate as mayor doubles down on ‘the rule’](https://www.foxnews.com/us/nyc-protesters-vaccine-mandate-eric-adams)
+**新闻来源**：[abc.es][La UE investiga los informes sobre trastornos menstruales tras las vacunas de ARNm](https://www.abc.es/sociedad/abci-investiga-informes-sobre-trastornos-menstruales-tras-vacunas-arnm-202202121208_noticia.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
+* * *
 
+***审核：Aries的星
+校对：阿伯塔
+发布：信心满满***
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1.jpeg)
 
  
 
