@@ -2,8 +2,8 @@
 ---
 
 
-## 20220213郭文贵大直播 ：当今世界经济的三条脉络
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2003917/)
+## 20220201郭文贵大直播 ：联合国、国际奥委会和世界卫生组织就是一帮犯罪集团
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2003980/)
 
 作者：东京樱花团小视频组
 
@@ -12,7 +12,7 @@
 编辑发布：东京樱花团小视频组
 
 * * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/樱花-3.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/樱花-3-1.jpg)
 喜马拉雅东京樱花团
 
  

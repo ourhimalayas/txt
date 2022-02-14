@@ -2,10 +2,10 @@
 ---
 
 
-## 成千上万澳大利亚人聚集在首都抗议独裁专断的防疫措施
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2003667/)
+## 奥运村芬兰村的天花板水管漏水
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2003679/)
 
-02/12/2022 成千上万澳大利亚人聚集在首都抗议独裁专断的防疫措施。
+02/12/2022 奥运村芬兰村的天花板水管漏水，中共官员的第一反应是要求芬兰运动员删帖。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
