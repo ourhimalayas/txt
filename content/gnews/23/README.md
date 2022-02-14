@@ -2,24 +2,40 @@
 ---
 
 
-## 中日财经爆|外资1月增持人民币债券大降近四成
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2002386/)
+## 有声|南非将华为当地部门的雇佣问题告上法庭
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2002396/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1380.png)[图片来源](https://www.sohu.com/a/425770351_100110525)
-路透社周一（2月14日)根据中债登最新数据计算，境外机构投资者1月增持中国银行间债券501亿人民币，环比大降近四成；
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+据[ONA网站](https://www.oann.com/south-africa-takes-huaweis-local-unit-to-court-over-hiring/)援引路透社的报道，南非劳工部周五表示，南非已要求法院对中共国华为技术公司的地方部门处以罚款，因为它违反了雇用当地人的规定，并命令该公司更改其做法。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-11T160315Z_1_LYNXMPEI1A0R1_RTROPTP_0_SAFRICA-HUAWEI-TECH_1.jpg)在这张2020年1月29日拍摄的插图照片中，在一块PC主板上可以看到带有华为和5G网络标志的智能手机。（REUTERS/Dado Ruvic/File Photo）
+劳工部援引2020年的审计报告说，华为当地公司约90%的员工是外国人，超过了雇佣外国人40%的上限，这违反了 “公平就业”的规定。
 
-中债登公布的统计月报还显示，期末境外机构中债登债券托管余额37,335亿元，境外机构中债登国债托管余额为25,189亿元。
+劳工部称，它已向法院提交文件，要求对华为涉嫌违反规则的当地公司处以150万兰特（99,151美元）或2020年年度营业额的2%的罚款。
 
-境外机构投资者去年12月增持中债登托管的债券787亿元人民币，环比降逾一成；其中增持国债619亿元，环比降近三成。去年全年累计增持中债登债券规模7,986亿元，较2020年降两成，累计增持国债5,756亿。
+劳工部表示，华为需要根据《移民条例》的规定，雇用60%的南非人和40%的外国国民。然而华为雇用的外国工人人数远远超过了这一数字，并计划雇用更多。
 
-境外机构去年12月末在上清所持有债券余额为3,200亿元，加上在中债登托管的36,834亿元债券存量，在银行间市场人民币债券持有总额达到40,034亿元。
+此举是南非政府首次对这家中共国科技巨头提出法律挑战。与此同时，在美国，因有人指控该公司的设备可能被中共国政府用来从事间谍活动，华为正在应对针对这一指控的制裁。
 
-消息来源：[外资1月增持人民币债券501亿环比降近四成 但国债增持量环比小增–中债登](https://cn.reuters.com/article/foreign-investors-yuan-bonds-0214-mon-idCNKBS2KJ036?il=0)
+文字版原文：[南非将华为当地部门的雇佣问题告上法庭](https://gnews.org/zh-hans/2001780/)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

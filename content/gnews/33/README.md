@@ -2,28 +2,42 @@
 ---
 
 
-## 中日财经爆|欧盟坚定支持立陶宛反抗中共胁迫
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2002328/)
+## 有声|现在卖掉喜币的人将来必定后悔
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2002364/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1377.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.asiafinancial.com%2Fwp-content%2Fuploads%2F2021%2F12%2FThe-Lithuanian-and-European-Union-flags-flutter-at-border-crossing-point-in-Medininkai-Lithuania-in-Sept-2020.-RtrsInts-Kalnins.jpg&amp;imgrefurl=h)
-欧洲联盟(EU)轮值主席国─法国13日表示，在会员国立陶宛和中共国可能爆发的贸易战中，将会坚定支持立陶宛。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
 
-立陶宛和中共国的争议始于台湾最近在立陶宛设立代表处，挂牌的名称是台湾而非台北。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/FCSeY69XEAInXAV.jpg)
+2022年2月13日，在大直播中谈到喜币场外交易时，文贵先生说，现在场外交易卖掉喜币套现的战友，将来必定会后悔。
 
-中共因而采取报复措施，调降对立陶宛的外交关系、让立陶宛出口到中共国的商品无法通关。有广泛的报导指称，中共国已警告欧洲出口商，要切断和立陶宛的所有关系。
+大直播中，说到场外交易时，文贵先生就说，刚才收到草根小哥爆料，喜币在场外交易，60美金都买不着。但是在场内，喜币被压低到了40美金。
 
-里斯特说，一项赋予欧盟所谓反胁迫能力的提案进展顺利。作法可望包括冻结取得公营事业合约、暂停对某些产品的健康和安全授权、或禁止来自欧盟资助的研究项目。
+文贵先生说，据他所知，场外交易有好几笔都在200美金左右交易的。这几天场外和场内的巨大价格差距，是因为基金在利用2亿个币，场内压低价格，场外交易炒高价格，在引诱着大家去场外交易卖出喜币，只要你一抛，他们就买进。
 
-里斯特表示，对中国和其他「不义」行为者所采取的更强硬策略，是重视自由贸易与开辟新市场的欧盟，贸易政策「范例转变」的其中之一。
+郭先生说，现在卖币的人，你后悔？早着呢。很多战友在场外交易中，以60,65,70的价格，卖了手中的喜币。不远的将来，肯定会哭都没地方哭去，不会超过三个月。只要满足三个条件：国家主权认可，大额投资，HPAY全面使用，喜币的价值必然不可估量。
 
-他指出，贸易是欧洲经济的重要部份，但并非不惜任何代价，不能以不公平竞争作为代价，不能以牺牲价值观为代价。
+目前世界格局在发生着巨大的变化，世界经济面临着崩塌，金融市场肯定会暴涨暴跌。在这样的巨变中，数字货币是未来发展的趋势，HPAY和喜币会成为其中最大的赢家。
 
-消息来源：[中國祭出經貿報復 歐盟表態力挺立陶宛](https://www.rti.org.tw/news/view/id/2124437)
+文字版原文：[现在卖掉喜币的人将来必定后悔](https://gnews.org/zh-hans/2001739/)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

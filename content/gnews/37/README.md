@@ -2,10 +2,32 @@
 ---
 
 
-## 2/13/2022 文贵直播：美元和欧元的关系不是你死我活，而是谁都离不开谁；一触即发的世界大战源于习太阳的无知、狂妄和中共国的欺骗互骗
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2002282/)
+## 2022年2月10日 晚 新中国联邦新闻、GTV新闻访谈简报
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2002301/)
 
-秘密翻译组-北美组
+作者：香草山翻译部
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO.jpg)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-12.png)
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+新闻：[https://gtv.org/broadcast/watch/6209b05ea456fe1dea30df21](https://gtv.org/broadcast/watch/6209b05ea456fe1dea30df21)
+访谈：[https://gtv.org/broadcast/watch/6209bbc3a456fe1dea30e784](https://gtv.org/broadcast/watch/6209bbc3a456fe1dea30e784)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-callendar-1.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

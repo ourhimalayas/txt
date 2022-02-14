@@ -2,41 +2,48 @@
 ---
 
 
-## 有声|现在卖掉喜币的人将来必定后悔
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2002364/)
+## 美参议员称中共病毒团伙难以承受真相后果
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2002366/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+作者：纽约磐石农场 – 在远方
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/FCSeY69XEAInXAV.jpg)
-2022年2月13日，在大直播中谈到喜币场外交易时，文贵先生说，现在场外交易卖掉喜币套现的战友，将来必定会后悔。
 
-大直播中，说到场外交易时，文贵先生就说，刚才收到草根小哥爆料，喜币在场外交易，60美金都买不着。但是在场内，喜币被压低到了40美金。
 
-文贵先生说，据他所知，场外交易有好几笔都在200美金左右交易的。这几天场外和场内的巨大价格差距，是因为基金在利用2亿个币，场内压低价格，场外交易炒高价格，在引诱着大家去场外交易卖出喜币，只要你一抛，他们就买进。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-郭先生说，现在卖币的人，你后悔？早着呢。很多战友在场外交易中，以60,65,70的价格，卖了手中的喜币。不远的将来，肯定会哭都没地方哭去，不会超过三个月。只要满足三个条件：国家主权认可，大额投资，HPAY全面使用，喜币的价值必然不可估量。
 
-目前世界格局在发生着巨大的变化，世界经济面临着崩塌，金融市场肯定会暴涨暴跌。在这样的巨变中，数字货币是未来发展的趋势，HPAY和喜币会成为其中最大的赢家。
 
-文字版原文：[现在卖掉喜币的人将来必定后悔](https://gnews.org/zh-hans/2001739/)
+盖特2月12日消息，美国参议员罗恩·约翰逊在接受媒体采访时表示，中共病毒疫情造成美国大约90万人，全球超过550万人死亡，黑暗势力一定会难以承受疫情真相的后果。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-5.jpg)
+约翰逊说，中共病毒疫情揭露了美国联邦卫生机构、医学期刊、医疗机构，以及国际组织中所存在的大量腐败。而议员们需要做大量的工作去揭露他们，因为黑暗势力造成的破坏正在暴露，真相正在逐渐浮出水面。约翰逊把这些人称作中共病毒团伙，他们承担不起真相的后果，因为死去的人数太多。他们没有推行早期治疗，而中共病毒疫苗也不像人们所期望和祈祷的，那么安全有效。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+约翰逊强调说，中共病毒团伙不愿意承认这一事实，他们还在坚持自己对大瘟疫失败的管理方式，他们不会承认自己的错误。而媒体和科技巨头，也是真相掩盖和信息审查的同谋，因此他们也不会揭露实情。所以揭露中共病毒团伙的罪行，将是一件艰难的工作。
+
+参考链接：
+[Senator Ron Johnson: COVID團伙他們承擔不起真相的後果,死去的人數太多，美國大約90萬，全球超過5百50萬 媒體和大科技巨頭是（真相）掩蓋和（信息）審查的同謀，所以他們也不會揭露實情,所以證明這些人的錯誤將是一件很難的事情](https://gettr.com/post/pu1t0s82a8)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
+
 **更多资讯，更多关注**
 
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
