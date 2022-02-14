@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/14/2022 8:56 AM (UTC)`
+
+2/13/2022 Miles Guo: The Winter Olympics costing trillions of dollars of the Chinese people’s hard-earned money has shown the world the falsehood, deception, corruption, and unbridled mutual harm of individuals in Communist China. Xi Jinping is a madman, who is reckless, full of lies, and has no credibility, and Xi has ruined all the international relations of the CCP. The Winter Olympics will cause Communist China’s economy to collapse, leading to a worldwide anti-Chinese movement.<br/><br/>2/13/2022 文贵直播：耗费上万亿美元民脂民膏的冬奥会却让全世界看到中共国的假和骗、腐败、和毫无底线的互害；习太阳是一个混不吝、满嘴谎话、毫无信用的疯子，搞砸了中共所有的国际关系；冬奥会将让中共国经济崩溃、并引发全球排华<br/>
+![img](https://media.gettr.com/group41/getter/2022/02/14/08/27647312-621c-1ce1-8d0e-09c613a1e900/out.jpg)
+
+---
+
 `@miles 2/14/2022 8:49 AM (UTC)`
 
 2/13/2022 Miles Guo: The CCP has held hostage various international organizations to act as its accomplices by implementing the BGY scheme. The foreign athletes of the Winter Olympics will forever become the enemies of the CCP, and they will expose the fake, ugly, and evil of the CCP with their personal experiences after they return home. This will be of great help to the Whistleblowers' Movement<br/><br/>2/13/2022 文贵直播：中共用蓝金黄绑架了各个国际组织充当其帮凶；冬奥会的外国运动员将成为中共永远的敌人，他们回国后会以亲身经历揭露中共的假丑恶，这将对爆料革命有巨大帮助<br/>
@@ -149,13 +156,6 @@
 
 2/11/2022 Miles Guo: What are the implications of the Eileen Gu incident? The CCP has changed the rules of the Olympics via fabrication and deception. This is exactly the same as the 76 lawsuits filed against me in the US by the CCP, which seeks to use falsification and fraud to change the foundation of the US - the rule of law.<br/><br/>2/11/2022 文贵直播：谷爱凌事件体现了什么？共产党用造假和欺骗改变奥林匹克规则，这和共产党在美国告文贵的76个官司如出一辙，试图用造假和欺骗改变美国赖以生存的基石 - 法律<br/>
 ![img](https://media.gettr.com/group37/getter/2022/02/13/00/d8448c02-1540-9b96-f24b-1eeb683ba9cf/out.jpg)
-
----
-
-`@miles 2/13/2022 12:41 AM (UTC)`
-
-2/11/2022 Miles Guo: The CCP uses its monopoly of the market to hold the world hostage, causing serious consequences in Hollywood, Wall Street, Davos, and the world's media. The more extreme and insane the enemy's lies are, the greater the power of the truths will be and the closer we are to our goal of the Himalaya.<br/><br/>2/11/2022 文贵直播：中共用其垄断的市场来绑架全世界，在好莱坞、华尔街、达沃斯和世界媒体造成了严重后果；敌人的谎言越极端、越疯狂，真相的力量就越大，而我们离喜马拉雅会更近<br/><br/><br/>
-![img](https://media.gettr.com/group20/getter/2022/02/13/00/9d9505ed-bbeb-94c4-a493-0173f0febd86/out.jpg)
 
 ---
 
