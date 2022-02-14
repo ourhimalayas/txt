@@ -2,31 +2,39 @@
 ---
 
 
-## 短视频：这一切到底是科学还是政治？
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2002704/)
+## 文贵先生对战友说的几句话
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2002705/)
 
-翻译：不要代表我
-校对：精靈藍
-剪辑字幕：向上James
-编辑：文泓
+作者：纽约香草山教育部 – Jack Li文阳
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/无标题-2.png)图片来源：视频截屏
+![](https://assets.gnews.org/wp-content/uploads/2022/02/logo-5-768x103-28.jpg)
 
 
-那么，作为一名科学家和一名免疫学学者，有没有觉得很奇怪？在过去的两年里，你的学科变得如此政治化，以至于以前只是正常学术教学大纲一部分的群体免疫等概念几乎成为了被禁止的话题，因为政府和活动宣传人士如此热衷于将一条特定模式推向其他模式。依据你的经历，你是否觉得这很奇怪？
 
-让我用一句话来总结，如果你把政治和免疫学或健康科学混在一起，到最后，你就会得到政治，这就是我的感受。我可以清楚的告诉你，我和以色列的几名官员接触过，人们乐于接受，我说的是政府成员。我可以告诉你，他们是否愿意采纳我们认为所有合理的想法。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-136.png)
 
-但另一方面，我认为，在大多数情况下，我们的建议都是经过了评估，并不是说已经采取了实际的行动或类似这样的东西。从社会的角度来看，这很有趣，可能会对特定国家的政策产生可怕的影响，有时遵循这个或那个，可能会出问题。这就是为什么你需要在你周围拥有尽可能多的声音，然后做出正确的决定。
+2月13日，郭文贵先生在大直播中说：世界经济，政治，军事大变动，很快会发生。大家要注意自己的安全，防止排华发生，要和农场紧密联系。农场是大家利益核心安全的纽带。国内人民币转币的事情，找农场主，不管多少都能给你转出来，我们的秘密武器可以让你秒转，全变成美金，要把中共的美金给干掉。战友们一定要了解HPAY，一定要懂喜币。场内的交易和场外的交易，形成了多大的反比？
 
-视频链接：[Israeli vaccine advisor: “We have made mistakes” – The Post (unherd.com)](https://unherd.com/thepost/israeli-vaccine-chief-we-have-made-mistakes/)
-发布：文泓
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+郭先生说：战友们，世界大变革时，手里一定要有些钱，一定不要打疫苗。无苗灭共有币者，是荣光中的荣光。在人类上，如果是无苗灭共成功有币者，那就可以说是人生大赢家。大家要识时度势，我们爆料革命平均年龄28岁，政治局里的老杂毛平均年龄63岁，等也能把他们等死了。美好的生活必然属于我们。郭先生还表达了对战友的爱护之情：“我只在乎战友们和家人们的感受，其他人的我一点不在乎。”
+
+当今世界很乱，病毒和疫苗很毒。新中国联邦战友有七哥作为人生导师，教我们趋吉避凶，扶持我们登上爆料革命这艘诺亚方舟，乘风破浪，安全驶向美好未来。
+
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+来源：[https://gtv.org/video/id=62090115a456fe1dea300f5a](https://gtv.org/video/id=62090115a456fe1dea300f5a)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-27.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
