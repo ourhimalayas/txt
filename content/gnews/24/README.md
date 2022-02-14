@@ -2,35 +2,52 @@
 ---
 
 
-## 日美韩外长联合声明强调“台湾和平与稳定的重要性”
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2002109/)
+## 美在所罗门群岛重设大使馆 防堵中共
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2002365/)
 
-2022-02-13
+作者：纽约磐石农场-在远方，台湾宝岛农场-阿尔道夫
 
-翻译：文舞两道
-![](https://assets.gnews.org/wp-content/uploads/2022/02/409EQMQRZDKMS05@PUU.png)图片来源：https://www.sankei.com/
-日、美、韩三国外长发表联合声明，强调“台湾海峡的和平与稳定的重要性”，“反对中共国任何单方面改变现状，加剧该地区紧张局势的行动”。
 
-据日本产经新闻消息，日、美、韩三国外长12日（日本时间13日）在夏威夷举行会谈后发表联合声明，强调“台湾海峡的和平与稳定的重要性”，声明还表示，“反对中共国任何单方面改变现状，加剧该地区紧张局势的行动”。
 
-这是自2017年2月以来，近五年来日美韩外长首次发表联合声明。联合声明还包括定期举行外长级讨论，以及寻求广泛领域的合作。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-声明谴责北朝鲜发射弹道导弹，并对破坏该地区稳定的行动表示“严重关切”。在推进日美韩安全合作，根据联合国安理会决议严格执行对朝制裁的同时，声明表示对北朝鲜没有敌意，强调在没有任何先决条件下已经准备好了与北朝鲜的会面。
 
-此外，针对在乌克兰边境拥有大规模部队的俄罗斯，明确表示将“坚定不移地支持乌克兰主权和领土的统一”，在阻止事态的升级上三国确认了将密切合作。
 
-此外，声明还确认了将促进与全球变暖、供应链、性别平等和发展基金的合作，强调了在信息网络安全和经济安全保障方面合作的重要性。
+据多家媒体报道，2月12日，美国国务卿布林肯证实，在时隔29年后，美国计划在南太平洋岛国，所罗门群岛重新开设大使馆，在该地区投入更多外交和防卫资源，防范中共持续与太平洋岛国建立军事联系。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-5.jpg)
+据悉，布林肯在赴澳洲参加美日印澳四方安全对话峰会之后，转道访问斐济，并将与多名太平洋岛国领袖举行视频会议。据美国官员透露，很多迹象表明，中共妄图与太平洋岛国建立军事联系，首要目标就是所罗门群岛。而所罗门群岛2019年前曾是和台湾友好的邦交国之一，但自2019年后，它擅自背离了与台湾的外交关系，转而亲近中共。
+
+同一时间，美国政府发布《印度—太平洋战略报告》，计划在12至24个月内，提升在东南亚和太平洋岛国的外交姿态，以扩大美军在该地区的行动范围。
 
 参考链接：
+1. [相隔29年！防堵中國勢力擴張 美證實將在索羅門群島重設大使館](https://news.ltn.com.tw/news/world/breakingnews/3827779)
+2. [相隔29年 傳美將在索羅門群島恢復設立大使館](https://tw.news.yahoo.com/%E7%9B%B8%E9%9A%9429%E5%B9%B4-%E5%82%B3%E7%BE%8E%E5%B0%87%E5%9C%A8%E7%B4%A2%E7%BE%85%E9%96%80%E7%BE%A4%E5%B3%B6%E6%81%A2%E5%BE%A9%E8%A8%AD%E7%AB%8B%E5%A4%A7%E4%BD%BF%E9%A4%A8-043556408.html)
+3. [且看中共對所羅門群島的“藍金黃”](https://gnews.org/zh-hant/121332/)
+4. [中共勢力擴張至所羅門群島](https://gnews.org/zh-hant/1792032/)
 
-[日米韓外相「台湾の平和と安定重要」　共同声明で明記](https://www.sankei.com/article/20220213-YSWIW2JIUBIAJOTZNUG64TXZXU/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
 
-编辑：LILY
-发布：肥鯮
+总编/编辑：飞虹
+校对/发稿：为真不破20
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

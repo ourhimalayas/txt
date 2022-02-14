@@ -2,19 +2,48 @@
 ---
 
 
-## 韩美日三国外长谴责北韩发射导弹，敦促其尽快重返对话
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2002112/)
+## 美参议员称中共病毒团伙难以承受真相后果
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2002366/)
 
-撰稿：追着曙光跑
+作者：纽约磐石农场 – 在远方
 
-据韩国KBS新闻2月13日的报道：韩国、美国、日本三国外长在夏威夷举行会谈，探讨韩半岛及其周边地区的安全形势。三国外长联合声明谴责北韩连续发射导弹，违反联合国安理会决议，敦促北韩尽快重返对话。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-14-at-11.48.14.jpeg)图片来源：原新闻
-韩美日外长深入探讨了北韩连续发射导弹等韩半岛有关问题，并就加快与北韩对话的现实性方案进行了磋商。同时，对北韩的挑衅行为正在引发地区的不稳定深表担忧。
 
-对于朝鲜进一步挑衅的可能性，韩外长称，现在一致认为近期局势严重，并进行了多次讨论，以确保局势尽可能向积极的方向发展。
 
-信息来源：**[한미일외교장관 회담…“정부, 추가 대북 관여 방안 제안…美 경청”](http://world.kbs.co.kr/service/news_view.htm?lang=c&amp;Seq_Code=74460)**
-**[한미일 외교장관 공동성명 발표 “北미사일 규탄…北에 불법활동중단·대화 촉구”](https://news.kbs.co.kr/mobile/news/view.do?ncd=5393848)**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+盖特2月12日消息，美国参议员罗恩·约翰逊在接受媒体采访时表示，中共病毒疫情造成美国大约90万人，全球超过550万人死亡，黑暗势力一定会难以承受疫情真相的后果。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-5.jpg)
+约翰逊说，中共病毒疫情揭露了美国联邦卫生机构、医学期刊、医疗机构，以及国际组织中所存在的大量腐败。而议员们需要做大量的工作去揭露他们，因为黑暗势力造成的破坏正在暴露，真相正在逐渐浮出水面。约翰逊把这些人称作中共病毒团伙，他们承担不起真相的后果，因为死去的人数太多。他们没有推行早期治疗，而中共病毒疫苗也不像人们所期望和祈祷的，那么安全有效。
+
+约翰逊强调说，中共病毒团伙不愿意承认这一事实，他们还在坚持自己对大瘟疫失败的管理方式，他们不会承认自己的错误。而媒体和科技巨头，也是真相掩盖和信息审查的同谋，因此他们也不会揭露实情。所以揭露中共病毒团伙的罪行，将是一件艰难的工作。
+
+参考链接：
+[Senator Ron Johnson: COVID團伙他們承擔不起真相的後果,死去的人數太多，美國大約90萬，全球超過5百50萬 媒體和大科技巨頭是（真相）掩蓋和（信息）審查的同謀，所以他們也不會揭露實情,所以證明這些人的錯誤將是一件很難的事情](https://gettr.com/post/pu1t0s82a8)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

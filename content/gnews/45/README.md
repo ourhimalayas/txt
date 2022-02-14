@@ -2,45 +2,34 @@
 ---
 
 
-## 美日印澳召开“四方机制”外长会议，商讨印太区域安全
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1999041/)
+## 美众议院提案为因拒绝接种中共疫苗解职的军人复职
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/1999617/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/9595.jpg)(左-右)澳大利亚外交部长兼女性事务部长玛丽斯·佩恩、印度外长苏杰生、澳大利亚总理斯科特·莫里森、日本外务大臣林芳正，美国国务卿安东尼·布林肯于2022年2月11日在澳大利亚墨尔本的联邦议会办公室。
-澳大利亚、美国、印度和日本四国集团国家的外长于2月11日在墨尔本会晤，举行了第四轮会谈。议程上的重要问题包括区域安全——包括俄罗斯、中共国和朝鲜——经济交往、新技术、气候变化、人道主义议题以及对中共病毒的应对。
+撰稿：银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-3.png)
+2月10日，美国媒体消息，本周，美国共和党人公布了一项立法提案，旨在确保拒绝接种中共病毒疫苗的美国军人能够继续服役。该项立法涉及：不得使用联邦资金要求武装部队成员接种中共病毒疫苗；有关秘书不得以武装部队成员拒绝接种中共病毒疫苗为由，对该成员采取任何不利行动。该法案还要求之前因拒绝接种疫苗被开除的士兵被恢复之前的军事级别，以及损失的工资与删除的服役记录。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1298.png)图片来自：https://www.axios.com/
+据悉，由于拜登政府的强制新冠疫苗令，数百名宝贵的美国军人被迫离开军队，带走了他们多年的专业技能、无私奉献的职业生涯和终生的军事梦想，造成不可接受的结果。同时，接种新冠疫苗后的美国军人，出现各类严重并发症的数据比率严重暴增。
 
-澳大利亚总理斯科特·莫里森在会议开始前参加了一个简短的新闻发布会，欢迎美国国务卿安东尼·布林肯、澳大利亚外长玛丽斯·佩恩、印度外长苏杰生和日本外相林芳正。
+媒体称，在世界如此紧张的局势下，此提案如立法，对中共疫苗带给美国军队的负面影响，将会起到一定的缓和作用。
 
-莫里森赞扬说，“在一个非常脆弱、破碎和有争议的世界”，这次对话是支持的来源。
+新闻来源：[House conservatives introduce bill to protect, reinstate soldiers who refuse COVID shots](https://www.lifesitenews.com/news/house-conservatives-introduce-bill-to-protect-reinstate-soldiers-who-refuse-covid-shots/)
 
-“我对我们的观点感到欣慰，我对彼此间的理解感到欣慰，我对澳大利亚从四国集团伙伴得到的令人难以置信的强有力的支持感到欣慰。”他告诉记者，指的是北京当局对澳大利亚出口行业发动的经济胁迫运动。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-3.png)
 
-“我们将继续始终坚持把我们团结在一起的价值观。我们通过这样做对抗那些试图胁迫我们的国家。”
+总编：Ivy001
 
-美国国务卿布林肯赞扬了莫里森在推进四方安全对话机制方面的领导作用。“一群国家聚在一起，不是因为我们反对什么，而是因为我们追求什么。我们所追求的是一个自由和开放的印太地区。”他说。
+编辑：静言
 
-“世界上最有活力的地区，增长最快的经济体，世界上一半的人口，人们应该自由地生活，各国应该有自由选择与谁合作和交往。”他补充说，“我们可以一起证明，我们能有效地为我们的人民带来好处。”
+校正/发稿：浪迹天涯
 
-在首次访问澳大利亚时，印度的苏杰生说，四方安全对话机制之所以运作良好，是因为澳大利亚和印度之间的双边关系很牢固，而日本的林芳正说澳日关系已经达到了“新的高度”，他提到了最近缔结的为加强两国国防事务合作的“历史性”《互惠准入协定》(Reciprocal Access Agreement )。
-
-澳大利亚外交部长佩恩说，会谈将重点讨论与前几十年“不同规模”的挑战。她在一份新闻声明中表示：“在当前的世界环境中，不止一个专制政权正在提出挑战——朝鲜，以及中国——它们将是我们讨论的一部分。”
-
-“我们在印太地区的合作正在呈指数级增长，看到在该地区的这么多伙伴与我们双方的协作，这非常有意义。”
-
-**简评:** 四国集团外长会议的核心议题正是应对中共集权。中共近年来明显的强势扩张，破坏国际规则，对亚太地区乃至世界秩序造成致命损害。这严重影响到相关国家的利益。四国集团在亚太地区都有这各自的核心利益，大家没有选择，必须联合消灭中共。政治规则中没有永远的朋友，只有永远的利益。美国和日本在中共恶魔崛起和发展壮大中都起了重要作用。如今轮到他们站出来把中共这个人类文明的毒瘤尽快切除。
-
-新闻链接：[https://m.theepochtimes.com/a-world-order-that-favors-freedom-quad-foreign-ministers-meet-in-melbourne-australia\_4271409.html](https://m.theepochtimes.com/a-world-order-that-favors-freedom-quad-foreign-ministers-meet-in-melbourne-australia_4271409.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

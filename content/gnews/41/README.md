@@ -2,16 +2,13 @@
 ---
 
 
-## 绥中县疫情爆发被封城
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/1999925/)
+## 赵立坚反咬美国经济胁迫
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2000631/)
 
-撰稿：东京樱花团小视频组
+02/11/2022 中共外交部战狼发言人赵立坚反咬美国经济胁迫，坚称中共国”完全合理合法、无可指摘“。
 
-*编辑：东京樱花团小视频组
-发布：东京樱花团小视频组*
+By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-* * *
-![喜马拉雅东京樱花团](https://assets.gnews.org/wp-content/uploads/2022/02/樱花-3-2-1.jpg)喜马拉雅东京樱花团
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

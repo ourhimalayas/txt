@@ -2,38 +2,50 @@
 ---
 
 
-## 加拿大银行冻结了“自由车队”卡车司机110万美元资金
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2002121/)
+## 德转强硬 将中共定为体制竞争对手
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2002370/)
 
-翻译：灭共文明
+作者：纽约香草山医疗部-云豹
 
-编辑与校对：冰糖葫芦喵、灭共文明
 
-《华盛顿观察家报》2月13日报道，**周六，加拿大多伦多道明银行(Toronto-Dominion Bank)宣布，已经冻结了两个“自由车队”卡车司机的个人银行账户**，**这两个账户总共有140万加元，约合110万美元。**
 
-道明银行在一份声明中说，该银行周五向安大略省高级法院申请接管这些资金，以便将其发送给预定的收款人，或退还给 “已要求退款但TD银行无法确定其退款权利的捐款人。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/TD银行1-e1644806874131.jpg)多伦多金融中心一家TD银行分行（图片来源：网络）
-**卡车车队的律师基思•威尔逊(Keith Wilson)已经告诉TD银行，他们的行为是不恰当的，令人失望。**他还说，“自由车队”下星期将寻求法院命令，把这些捐款交给一个新的非盈利公司，该组织负责管理和分发这些捐款。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-此前，安大略省官员冻结了通过筹款平台GiveSendGo向“自由车队”的捐款。自GoFundMe启动以来，自由车队一直依靠该平台筹集的资金。而在2月4日GoFundMe以所谓的卡车司机违反了平台政策，而扣留了900万美元捐款。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1375.png)图片来源：路透社。
-**周五，加拿大总理贾斯廷·特鲁多在渥太华威胁这些和平抗议的卡车司机，声称要暂停他们的商业货运执照，并表示政府将提出指控**，可能会面临监禁和巨额罚款。这些惩罚措施还将禁止卡车司机进行国际旅行。
 
-周五，安大略省高等法院(Ontario Superior Court of Justice)批准了一项法院命令，结束卡车司机对温莎大使桥(Windsor Ambassador Bridge)的封锁。温莎大使桥是连接底特律的一条与美国的重要贸易通道。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/卡车司机.jpg)图片来源：网络。
-**报道最后指出，抗议卡车司机的支持者誓言要继续为驻扎在加拿大渥太华国会山附近的卡车司机们提供补给。**
 
-**评论：**
+2月12日，德国媒体报导，德国外交部将发文给各政府部门，要求将中共定义为“体制竞争对手”。
 
-TD银行的行为是赤裸裸的帮助加拿大政府助纣为虐，而这些大银行背后都有着中共的影子。**加拿大政府现在也被世界黑暗势力和中共的邪恶力量严重渗透和操控。**
+欧盟早在2019年就已将中共视为“体制竞争对手”，但是亲中共的前任默克尔政府一直不敢表态。新任德国联合政府显然已经开始转向，不再将中共视为亲密的伙伴。组成新联合政府的三个政党，之前在对待中共的问题上曾达成协议，包括指控中共在新疆设立劳改营，以及支持让台湾参与更多国际组织等。这次德国外交部的发文显示，德国新政府将逐步落实三党与中共有关的协议内容。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-7.jpg)
+德国新政府这次并没有派官方代表去参加北京冬季奥运，而且总理萧兹将在与中共会面之前，先与印度及日本政府进行磋商商。目前属于社民党的德国总理萧兹及属于绿党的外交部长贝尔伯克都没有访问中共的计划。
 
-**加拿大卡车司机能够勇敢地站出来，引领了全球和平抗议政府推行强制疫苗政策地行动，**清晰地表明，加拿大政府的暴政行为已经挑战了，加拿大民众的自由与和平的底线。
+隶属德国绿党的欧洲议会对中关系代表团团长包瑞翰表示：新政府展现的对中共政策，比前总理默克尔更有魄力。
 
-特鲁多政府强奸民意、违反宪法和政府越权等恶略行为，已经使加拿大逐渐成极权主义和独裁暴政的国家。**正如郭文贵先生所说，凡是强制推行毒疫苗政策的政府官员、所谓科学家和假新闻媒体必将受到世界人民地严厉审判。**
+参考链接：
+[傳德國將硬起來 呼應歐盟視中國為體制競爭對手](https://www.cna.com.tw/news/aopl/202202120237.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-新闻链接：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
 
-[TD Bank freezes two accounts with $1.1 million intended for Canadian protesters | Washington Examiner](https://www.washingtonexaminer.com/news/td-bank-freezes-two-personal-accounts-with-1-1-million-intended-for-canadian-protesters)
+总编/编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
