@@ -2,11 +2,11 @@
 ---
 
 
-## 2月13日文贵大直播摘要（图片5-7）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2005180/)
+## 2月13日文贵大直播摘要（8-10）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2005203/)
 
 设计 五月花农场 科存
-![](https://assets.gnews.org/wp-content/uploads/2022/02/B310297A-848D-40C4-ACD8-6FFE137BEE35.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/79F83E7F-8C80-462B-BE09-1E69C356965B.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/0F3EA0AB-725F-44A7-9422-A36F5A1ACF73.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/781170B1-7CB9-48E8-9B5F-FBEFCF7BB6A8.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/DD84912C-EF9C-45C4-99D2-7BBCB12995CA.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/2D6B0725-BCC7-4BBA-899C-654E7A56A070.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
