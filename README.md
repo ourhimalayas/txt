@@ -15,101 +15,101 @@
 
 ---
 
-### [【G时新闻】辉瑞公司向FDA推迟申请5岁以下儿童COVID疫苗](/content/gnews/1/README.md)
- ` G-时新闻`
+### [2/13/2022 文贵直播：国际奥委会是犯罪组织，其罪行罄竹难书；被中共腐败的WTO、WHO和联合国人权理事会等国际组织无法无天，跟中共沆瀣一气压迫中国人](/content/gnews/1/README.md)
+ ` 秘密翻译组-北美组`
 
-### [每日快报：拜登警告普京，美国军方会在一小时内做出回应](/content/gnews/2/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [Victor Gao说彭帅身高1.75米，不可能被张高丽性侵](/content/gnews/2/README.md)
+ ` DC政经`
 
-### [樱花FM┃中日财经爆┃美国考虑与盟国合作对中共国征收新关税](/content/gnews/3/README.md)
- ` 樱花FM`
-
-### [20220213郭文贵大直播 ：不超过3次直播，世界巨变](/content/gnews/4/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [班农专访3: 中共国拐卖幼女案坐实人权侵犯](/content/gnews/5/README.md)
+### [加拿大曼尼托巴省宣布结束疫苗护照和口罩强制令](/content/gnews/3/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [DC大中华时事：中国大专应届毕业生首度破千万](/content/gnews/6/README.md)
+### [DC大中华时事：中共编造冬奥会谎言](/content/gnews/4/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [2022年2月14日，全球中共病毒疫情情况汇总](/content/gnews/7/README.md)
+### [20220213郭文贵大直播 ：物质生活不一定决定你的信仰，但绝对会影响你的信仰！](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [每日快报：拜登警告普京，美国军方会在一小时内做出回应](/content/gnews/6/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [樱花FM┃中日财经爆┃美国考虑与盟国合作对中共国征收新关税](/content/gnews/7/README.md)
+ ` 樱花FM`
+
+### [20220213郭文贵大直播 ：不超过3次直播，世界巨变](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [安省宣布紧急状态对卡车封锁发出禁令](/content/gnews/9/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [班农专访3: 中共国拐卖幼女案坐实人权侵犯](/content/gnews/10/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [DC大中华时事：中国大专应届毕业生首度破千万](/content/gnews/11/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [2022年2月14日，全球中共病毒疫情情况汇总](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [20220213郭文贵大直播 应该喊口号，我们是无苗灭共者](/content/gnews/8/README.md)
+### [20220213郭文贵大直播 应该喊口号，我们是无苗灭共者](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共背后捣鬼，俄乌大战一触即发](/content/gnews/9/README.md)
+### [中共背后捣鬼，俄乌大战一触即发](/content/gnews/14/README.md)
  ` 波士顿五月花农场`
 
-### [NewSGman┃纽约污水中发现超过4种冠状病毒不明突变](/content/gnews/10/README.md)
+### [NewSGman┃纽约污水中发现超过4种冠状病毒不明突变](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [甜蜜蜜](/content/gnews/11/README.md)
+### [甜蜜蜜](/content/gnews/16/README.md)
  ` 纽约香草山MOS03`
 
-### [从单伟建的履历看社会制度与人性的关系(二)](/content/gnews/12/README.md)
+### [从单伟建的履历看社会制度与人性的关系(二)](/content/gnews/17/README.md)
  ` 纽约香草山MOS03`
 
-### [视频| 郭先生为何没有获得美国的政治庇护](/content/gnews/13/README.md)
+### [视频| 郭先生为何没有获得美国的政治庇护](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [2/13/2022 文贵直播：耗费上万亿美元民脂民膏的冬奥会却让全世界看到中共国的假和骗、腐败、和毫无底线的互害，冬奥会将让中共国经济崩溃、并引发全球排华](/content/gnews/14/README.md)
+### [2/13/2022 文贵直播：耗费上万亿美元民脂民膏的冬奥会却让全世界看到中共国的假和骗、腐败、和毫无底线的互害，冬奥会将让中共国经济崩溃、并引发全球排华](/content/gnews/19/README.md)
  ` 秘密翻译组-北美组`
 
-### [DC每日热点0214](/content/gnews/15/README.md)
+### [DC每日热点0214](/content/gnews/20/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [20220213郭文贵大直播：疫苗灾难过后，改变世界格局的三件大事](/content/gnews/16/README.md)
+### [20220213郭文贵大直播：疫苗灾难过后，改变世界格局的三件大事](/content/gnews/21/README.md)
  ` Tokyo Sakura Video Group`
 
-### [20220213郭文贵大直播 ：喜币的成功与冬奥会的造假，只有爆料革命新中国联帮告诉全世界真相](/content/gnews/17/README.md)
+### [20220213郭文贵大直播 ：喜币的成功与冬奥会的造假，只有爆料革命新中国联帮告诉全世界真相](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【G时新闻】安大略省宣布进入紧急状态，法院对加美边境的卡车封锁发出禁令](/content/gnews/18/README.md)
+### [【G时新闻】安大略省宣布进入紧急状态，法院对加美边境的卡车封锁发出禁令](/content/gnews/23/README.md)
  ` G-时新闻`
 
-### [2/13/2022 文贵直播：冬奥会的外国运动员将成为中共永远的敌人，他们回国后会以亲身经历揭露中共的假丑恶，这将对爆料革命有巨大帮助](/content/gnews/19/README.md)
- ` 秘密翻译组-北美组`
-
-### [大直播后记：Hpay是财富密码](/content/gnews/20/README.md)
+### [大直播后记：Hpay是财富密码](/content/gnews/24/README.md)
  ` 雅典娜GNotes`
 
-### [诺贝尔奖得主吕克·蒙塔尼耶去世](/content/gnews/21/README.md)
+### [诺贝尔奖得主吕克·蒙塔尼耶去世](/content/gnews/25/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [20220213郭文贵大直播 ：国际奥委会、世界卫生组织、WTO和世界记者联盟就是共产党的帮凶](/content/gnews/22/README.md)
+### [20220213郭文贵大直播 ：国际奥委会、世界卫生组织、WTO和世界记者联盟就是共产党的帮凶](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [NewSGman┃中共统治下的悲惨——徐州八孩母亲](/content/gnews/23/README.md)
+### [NewSGman┃中共统治下的悲惨——徐州八孩母亲](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [20220201郭文贵大直播 ：联合国、国际奥委会和世界卫生组织就是一帮犯罪集团](/content/gnews/24/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [特鲁多对加拿大人来说是耻辱，如果有人从他桌上把食物拿走，他会做什么？](/content/gnews/28/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
 
-### [02/14/22 香港快讯 跨境运输业指目前可如常往返两地香港跨境司机不足50人](/content/gnews/25/README.md)
+### [02/14/22 香港快讯 跨境运输业指目前可如常往返两地香港跨境司机不足50人](/content/gnews/29/README.md)
  ` 英喜-粵語組`
 
-### [大理灭门案22年后将再审：被“杀人犯”改写的四代人](/content/gnews/26/README.md)
+### [大理灭门案22年后将再审：被“杀人犯”改写的四代人](/content/gnews/30/README.md)
  ` 纽约香草山MOS03`
 
-### [美国及世界疫情简报 （02-14-2022）](/content/gnews/27/README.md)
- ` 波士顿五月花农场`
-
-### [樱花FM┃中日财经爆┃IMF：近100个国家正在研究CBDC央行数字货币](/content/gnews/28/README.md)
- ` 樱花FM`
-
-### [《历史上的今天》2022.02.14](/content/gnews/29/README.md)
+### [《历史上的今天》2022.02.14](/content/gnews/31/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [盖特将确保大卡车运动的信息顺利传递出去](/content/gnews/30/README.md)
+### [盖特将确保大卡车运动的信息顺利传递出去](/content/gnews/32/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [樱花FM|美新任驻日本大使发推表示支持日本](/content/gnews/31/README.md)
- ` 樱花FM`
-
-### [中共将为司法体系去殖民化](/content/gnews/32/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [锁链女案件折射出中共治下的黑暗](/content/gnews/33/README.md)
  ` 日本东京方舟农场`

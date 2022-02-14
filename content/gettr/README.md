@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/14/2022 3:17 PM (UTC)`
+
+2/13/2022 Miles Guo: The International Olympic Committee is a criminal organization that has committed countless crimes. All the international organizations corrupted by the CCP such as the WTO, WHO, and the UN Commission on Human Rights are lawless and have been exploiting the Chinese people by colluding with the CCP. Without faith, humans will be more wicked than devils.<br/><br/>2/13/2022 文贵直播：国际奥委会是罪组织，其罪行罄竹难书；被中共腐败的WTO、WHO和联合国人权理事会等国际组织无法无天，跟中共沆瀣一气压迫中国人；若信仰缺失，人比魔更邪恶<br/>
+![img](https://media.gettr.com/group26/getter/2022/02/14/15/f3a8b991-59b4-8848-2f56-fa1d419e307e/out.jpg)
+
+---
+
 `@miles 2/14/2022 8:56 AM (UTC)`
 
 2/13/2022 Miles Guo: The Winter Olympics costing trillions of dollars of the Chinese people’s hard-earned money has shown the world the falsehood, deception, corruption, and unbridled mutual harm of individuals in Communist China. Xi Jinping is a madman, who is reckless, full of lies, and has no credibility, and Xi has ruined all the international relations of the CCP. The Winter Olympics will cause Communist China’s economy to collapse, leading to a worldwide anti-Chinese movement.<br/><br/>2/13/2022 文贵直播：耗费上万亿美元民脂民膏的冬奥会却让全世界看到中共国的假和骗、腐败、和毫无底线的互害；习太阳是一个混不吝、满嘴谎话、毫无信用的疯子，搞砸了中共所有的国际关系；冬奥会将让中共国经济崩溃、并引发全球排华<br/>
@@ -149,13 +156,6 @@
 
 2/11/2022 Miles Guo: The CCP is propagating Eileen Gu on a massive scale to cover up the chained woman incident by using the so-called "positive energy" of the Winter Olympics. The chained woman is a family member of a CCP member, and the incident has made everyone in the CCP worry about themselves, and this will certainly provoke the collapse inside the CCP!<br/><br/>2/11/2022 文贵直播: 中共大肆宣传谷爱凌意在利用冬奥会的所谓正能量掩盖锁链女事件；锁链女是共产党员的家人，此事令中共人人自危，必将激起中共党内的土崩瓦解！<br/>
 ![img](https://media.gettr.com/group26/getter/2022/02/13/00/21ee1ca3-f151-e081-1d0d-93f530e1fdb0/out.jpg)
-
----
-
-`@miles 2/13/2022 12:47 AM (UTC)`
-
-2/11/2022 Miles Guo: What are the implications of the Eileen Gu incident? The CCP has changed the rules of the Olympics via fabrication and deception. This is exactly the same as the 76 lawsuits filed against me in the US by the CCP, which seeks to use falsification and fraud to change the foundation of the US - the rule of law.<br/><br/>2/11/2022 文贵直播：谷爱凌事件体现了什么？共产党用造假和欺骗改变奥林匹克规则，这和共产党在美国告文贵的76个官司如出一辙，试图用造假和欺骗改变美国赖以生存的基石 - 法律<br/>
-![img](https://media.gettr.com/group37/getter/2022/02/13/00/d8448c02-1540-9b96-f24b-1eeb683ba9cf/out.jpg)
 
 ---
 
