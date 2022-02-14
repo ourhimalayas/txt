@@ -2,32 +2,166 @@
 ---
 
 
-## 希望
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2003306/)
+## 美国有线电视新闻网的杰克·塔珀抨击好莱坞与中国共产党的密切关系
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2003349/)
 
-**作者：大象腿**
-[![](https://express.adobe.com/page/S8dheRxnPzYL6/images/d48feef3-6595-424b-9dad-2eecb066c55e.jpg?asset_id=c6dbfe3a-778e-4feb-a239-ec2047606780&amp;img_etag=%22899212d47bede6fd99bc9c75f25766d1%22&amp;size=1024)](https://express.adobe.com/page/S8dheRxnPzYL6/images/d48feef3-6595-424b-9dad-2eecb066c55e.jpg?asset_id=c6dbfe3a-778e-4feb-a239-ec2047606780&amp;img_etag=%22899212d47bede6fd99bc9c75f25766d1%22&amp;size=1024)来源网络
-上学的时候老师告诉我，作文要写成阅卷老师喜欢的样子，那样你才能得到高分。可是我是一个长相丑陋，内心同样不够美丽的人，我不可能活成大人们期望的样子，所以家长老师的希望在我身上统统落空了，到现在我才明白，所谓的家长和老师只不过是为了自己的那份荣誉或者是虚荣心才逼迫孩子的。也许我也会逼迫自己的孩子做他不喜欢的事情，虽然我知道我的希望和现实相差太远。所有的父母都希望自己孩子有出息，可是事实是在中共这个体制下，家庭教育、学校教育和社会教育最终把所谓的“花朵们”都培养成了中共的奴隶，只知道干活和吃饭的动物。
+[https://gtv.org/video/id=6209b0bdb0af02660af35f23](https://gtv.org/video/id=6209b0bdb0af02660af35f23)
 
-我总是在想这是为什么，但是总也得不到答案。为什么有希望的一代人最后变成了木头人？变成了工具？为什么现实生活中最辛苦的人，反而对生活如此的向往和抱有希望？为什么他们意识不到自己是被邪恶中共奴役的，结局注定是悲剧？
+Jake Tapper (CNN host)
+杰克·塔珀 (CNN主持人)
 
-有时候我在刷短视频时，总能看到很多身患绝症的人在直播卖货，为了自己的医药费乞求网友买他一单货，你知道他卖的什么吗？是垃圾桶塑料袋。与中共国的天价医药费相比，如此利润微薄的塑料袋竟然成了他活命的希望。围观的人都知道垃圾桶、塑料袋不可能为他们的生活带来任何光明和希望，可是这些生活在社会最底层的绝症患者们有其他的选择吗？中共掠夺了本属于百姓的资源，挥霍了百姓创造的财富，到头来生病生不起，活也活不起，死更死不起。更可悲的是被中共长期洗脑的百姓却浑然不知这一切都是中共造的孽，对这个烂透了的体制依然抱有一丝希望。
-[![](https://express.adobe.com/page/S8dheRxnPzYL6/images/6f4ab6b5-c2d9-4d98-9f16-305235433979.jpg?asset_id=4551b517-974d-42c0-9276-ed5964fe7c6f&amp;img_etag=%226d8305a4a73c6e9ee6e29b9fda055188%22&amp;size=1024)](https://express.adobe.com/page/S8dheRxnPzYL6/images/6f4ab6b5-c2d9-4d98-9f16-305235433979.jpg?asset_id=4551b517-974d-42c0-9276-ed5964fe7c6f&amp;img_etag=%226d8305a4a73c6e9ee6e29b9fda055188%22&amp;size=1024)
-来源网络
+now are behind the China’s wall series in which we go behind the fanfare
+现在是“中国墙背后”系列，在这个系列中
 
-中国人就是这么可悲，自己活得如同乞丐一样却依然寄希望于别人，寄希望于这个被中共糟蹋得体无完肤的社会，从来不问是谁将苦难带给了中国人民。我在无数癌症患者的直播平台上留言，尝试分享我的想法，让他们明白自救的重要性，尽管只有一个人回复我，我也觉得很欣慰和很有意义，我更相信一个明是非、知善恶的坚强自救的人一定会得到天助。
+and the glamour of the current Olympic Games the Chinese government obviously hoping
+我们将深入了解本届奥运会的宣传和“魅力”
 
-我们新中国联邦人是最先开智的那一批人，我们有责任和义务传播真相，让更多的同胞们觉醒，让他们知晓是谁造就了今天的苦难，是谁让中国人变得是非不分、善恶不明。不要悲伤，战友们行动起来吧，我们的每一次分享、传播、自救、救人都会使苟延残喘的中共距离灭亡更近一步，保重待天明。
+to use the games to distract the world from its crackdowns on freedoms
+中国政府显然希望利用比赛转移世界对自由的镇压
 
-*编辑：【英国伦敦喜庄园编辑部】*
+and crimes against humanity, and genocide
+以及危害人类罪和种族灭绝罪
 
-*校对：仙女儿-文善  | 审核：文明明  | Page: Daoiii*
+Today we’re going to take a look at how the Chinese government in effect censors
+今天我们来看看中共国政府是如何对好莱坞电影业
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+much of what comes out of the Hollywood film industry
+的大部分内容进行实际审查的
 
-[![](https://express.adobe.com/page/S8dheRxnPzYL6/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://express.adobe.com/page/S8dheRxnPzYL6/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+They don’t do this of course through direct control
+他们当然不会通过直接控制来做到这一点
+
+They do it through their enormous economic leverage
+他们通过巨大的经济影响力做到这一点
+
+and the fear from studios on missing out on a market of 1.4 billion people in China
+以及电影公司对错失中共国14亿人口市场的恐惧
+
+here to discuss Eric Schwartzel, he’s a Hollywood reporter for The Wall Street Journal
+在这里讨论埃里克·施瓦策尔，他是《华尔街日报》的好莱坞记者
+
+He’s author of a brand new book just released today
+他是今天刚出版的一本全新书的作者
+
+It’s called “red carpet, Hollywood, China, and the global battle for cultural supremacy”
+书名为《红地毯、好莱坞、中国和全球争夺文化霸权》
+
+Thank you so much for being here, Eric
+非常感谢你来到这里，埃里克
+
+So one of the films you write about which really captures the impact the Chinese government
+所以你写的关于其中一部电影真正体现了中共国对美国电影产生的影响
+
+is now able to have on American movies is found in Top Gun released in the 80s
+在80年代发行的《壮志凌云》中可以看到
+
+And it’s upcoming sequel when the original was released in 86
+它即将推出续集，当原版于86年发布时，
+
+offending China not a concern, but for the sequel
+得罪中共国不是问题，但对于续集来说
+
+The studio has made a significant change to the look
+电影公司对外观进行了重大更改
+
+on the jacket of this iconic character, “Maverick”
+在这个标志性人物“特立独行”的夹克上
+
+explaining to folks what’s going on here
+向人们解释这里发生了什么
+
+Eric Schwartze
+埃里克·施瓦策尔
+
+Yeah, you’re absolutely right, I mean
+是的，你完全正确，我的意思
+
+in 1986, not only was Hollywood not concern about the Chinese market
+1986年好莱坞不仅不关心中共国市场
+
+but I mean, we have an example of more rah rah cinema than the original “Top Gun”
+但我的意思是，我们有一个比最初的《壮志凌云》更多的电影的例子
+
+I mean, enlistment shut up after that movie came out
+我的意思是，那部电影上映后，征兵就闭嘴了
+
+And then when this more recent version was advertised a couple years ago
+然后当这个更新的版本在几年前被宣传时
+
+people noticed as you said, that the Taiwanese and the Japanese flag
+正如你所说，人们注意到台湾和日本国旗
+
+had been removed from Mavericks jacket and there’s a very clear reason why
+已经从“特立独行”的夹克上取下来了，原因很明确
+
+and that is that in the time between the original “Top Gun”
+那就是在最初的《壮志凌云》之间的时间
+
+and this reboot, China’s box office has grown to be the biggest in the world
+而这次重启，中共国的票房已经成长为世界第一的票房市场
+
+and any movie produced by a Hollywood studio
+以及由好莱坞制片厂制作的任何电影
+
+that’s as expensive as Top Gun needs that market often to turn a profit
+这和《壮志凌云》经常需要该市场来获利一样昂贵
+
+So that means that even down to something as small as a flag on a jacket
+所以这意味着即使是小到夹克上的一面旗帜
+
+might need to be removed in case it offends the Chinese censors
+可能需要删除以防冒犯中共国的审查员
+
+who decide whether or not this movie will get into those Chinese theaters
+该审查员决定这部电影是否会进入那些中共国的影院
+
+Jake Tapper
+杰克·塔珀
+
+Right, China obviously does not consider Taiwan to be an independent country
+是的，中共国显然不认为台湾是一个独立的国家
+
+Anything that calls into into question
+任何质疑一个中国政策的事情
+
+the One China policy is a portable third rail for the communist government
+对共产党政府来说都是不可容忍的
+
+You write about Brad Pitt’s starring in the 1997 film “Seven Years in Tibet”
+你写的是布拉德·皮特在1997年中主演的电影《在西藏七年》
+
+another country that China has conquered
+这是中共国征服的另一个国家
+
+and being in that film landed Brad Pitt in very hot water with Chinese authorities
+在那部电影中，布拉德·皮特与中共国当局陷入了困境
+
+they essentially banned Brad Pitt and his film from China for years and years
+他们基本上多年来一直在中共国禁止布拉德·皮特和他的电影
+
+Tell us more about that
+告诉我们更多相关信息
+
+* * *
+
+Date:02/11/2022
+原视频标题: CNN’s Jake Tapper Rails Against Hollywood’s Close Ties With The Chinese Communist Party
+美国有线电视新闻网的杰克·塔珀抨击好莱坞与中国共产党的密切关系
+原视频日期：2022/02/10
+原视频链接**[https://twitter.com/dailycaller/status/1491575140282363905?s=24](https://twitter.com/dailycaller/status/1491575140282363905?s=24)**
+任务编号：KE395（3718）
+视频时间段 : 0:00-2:37
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – brucce庚子
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

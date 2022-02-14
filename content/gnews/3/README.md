@@ -2,35 +2,53 @@
 ---
 
 
-## 冬奥会美国队横扫中共冰球外籍杂牌军
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2003372/)
+## 战友推荐的有关金钱历史的视频
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2003411/)
 
-翻译：**Lulumi**
+**撰稿：verifunny**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1397.png)2022年2月10日，在北京冬奥会冰球男子预赛A组比赛中，美国队的内森·史密斯在球队攻破中国队门将杰里米·史密斯的球门后进行庆祝。(盖蒂图片)
+我是一个财经小白。七年前，我的旧同事介绍了迈克尔·马洛尼 (Michael Maloney)的油管视频。看了视频后，我才知道纸币和货币的区分。之前，迈克尔一直认为黄金与白银是保值的工具，所以大多数的视频是以金属为避险的途径。后来，他发表了关于虚拟货币技术的视频，来探讨虚拟货币跟金属的相似度和诚信度。
 
-中共曾将其奥运冰球的希望寄托在一支主要由欧美出生的球员组成的队伍上。现实是他们在首次亮相中受到沉重打击。
+迈克尔·马洛尼 (Michael Maloney) 是 GoldSilver.com 的首席执行官和创始人，被公认为货币历史、经济学和贵金属方面的领先专家。 他是本世纪最畅销的贵金属投资书籍《黄金白银投资指南》的作者。 他还是 Hidden Secrets of Money 的主持人，这是一部关于金钱历史的视频系列，在他的 YouTube 频道上的观看次数超过 2000 万。 他也试着预测美元的崩溃的时间点。后来，迈克尔也意识到虚拟货币和区块链的进展，制作了新视频。
 
-周四晚上，在1000名观众面前，挤满了来自美国和加拿大的外国出生的新兵的中国冰球队，被一支面目一新的美国队以8比0击败。
+在观看Hidden Secrets of Money视频前，基于版权的理由，我没有翻译内容和重新上载到服务器。如果英语不容易懂请战友打开油管的翻译功能来观看。感谢！
 
-对一些人来说，这个结果并不令人惊讶。冰球在中国不是一项很流行的运动。七年前当北京赢得2022年奥运会主办权时，北京自动获得这项运动的参赛资格，但中国从未参加过男子冰球的奥运比赛，而且是有史以来获得此类赛事资格的得分最低的球队。
+视频一： 货币与法币的比较
 
-北京的解决方案是在全世界范围内寻找选手。在男子曲棍球队的25名球员中，有14人在美国和加拿大出生或长大，还有一人来自俄罗斯。女队面临同样的问题，从海外招募了23人中的13人。所有的外国球员在转换身份后都被冠以中国名字。
 
-如果球员已经在一个国家的联赛中生活和比赛了两年，国际冰球联合会允许他们代表这个国家。因此，2016年成立了一支新的中国球队HC昆仑红星，加入俄罗斯的职业联赛Kontinental Hockey League，为中国派出这些新的男子冰球员。中国没有自己的职业冰球联赛。
 
-但在过去的几个赛季中，中国球队的表现乏善可陈。事实上，球员的能力如此令人担忧，以至于国际冰球联合会认真考虑将中国国家队排除在奥运会之外，这对中共国这个主办国是一记响亮的耳光。
+视频二： 帝国兴衰的七步曲
 
-详细英文报道请看大纪元新闻链接。
 
-素材链接：[theepochtimes.com][China’s Foreign-Sourced Ice Hockey Team Suffers Crushing Defeat to US on Olympic Debut](https://www.theepochtimes.com/chinas-foreign-sourced-ice-hockey-team-suffer-crushing-defeat-to-us-on-olympic-debut_4273151.html?utm_source=uschinaia&amp;utm_campaign=uschina-2022-02-12&amp;utm_medium=email&amp;est=Q%2FCTrJ8ziSa03pyZYfUi9dYnXLd5np2ed5nQypclJOZz9%2Fk7CJ4cvoetgeDelpdFyQQtsCI%3D)
 
-* * *
+视频三： 时间线-美元身为储备货币的死亡
 
-*审核：文乐
-校对：小东
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1.jpeg)
+
+
+视频四： 人类历史最大的骗局
+
+
+
+视频五： 钱是哪里来的？
+
+
+
+视频六： 美国过山车的经济崩溃 – 通缩先
+
+
+
+视频七： 法币的生产力和金钱的幻觉
+
+
+
+视频八： 虚拟货币的视频
+
+
+
+声明：以上的内容的版权归迈克尔·马洛尼 (Michael Maloney)。
+
+附属： 如何打开油管翻译功能
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-14-191028.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

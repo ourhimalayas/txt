@@ -2,165 +2,50 @@
 ---
 
 
-## 美国有线电视新闻网的杰克·塔珀抨击好莱坞与中国共产党的密切关系
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2003349/)
+## 新西兰财经G乐部2022年2月14日:财经新闻整理
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2003407/)
 
-[https://gtv.org/video/id=6209b0bdb0af02660af35f23](https://gtv.org/video/id=6209b0bdb0af02660af35f23)
+采集整理：蚂蚁的城堡
 
-Jake Tapper (CNN host)
-杰克·塔珀 (CNN主持人)
+**提纲：**
 
-now are behind the China’s wall series in which we go behind the fanfare
-现在是“中国墙背后”系列，在这个系列中
+1、操作不当或亏40%！转债强赎潮来了
 
-and the glamour of the current Olympic Games the Chinese government obviously hoping
-我们将深入了解本届奥运会的宣传和“魅力”
+2、爱迪尔子公司爆出虚增营业收入，居然用员工银行账户造假
 
-to use the games to distract the world from its crackdowns on freedoms
-中国政府显然希望利用比赛转移世界对自由的镇压
+3、银行节后揽客忙，连员工年终奖都不“放过”
 
-and crimes against humanity, and genocide
-以及危害人类罪和种族灭绝罪
+4、美国律师对比特币欺诈行为认罪，该欺诈行为使投资者损失了500万美元
 
-Today we’re going to take a look at how the Chinese government in effect censors
-今天我们来看看中共国政府是如何对好莱坞电影业
+**正文**
 
-much of what comes out of the Hollywood film industry
-的大部分内容进行实际审查的
+**1、操作不当或亏40%！转债强赎潮来了**
+![img](https://media.gettr.com/group39/origin/2022/02/14/03/6c92170a-50e7-7cec-d0fa-90476e44d1ed/751f4985a57ac8e769aed670a5a5783c_500x0.png)
+2022年的可转债强赎比以往来得更早了一些，多只转债触发强赎条款，部分上市公司也选择了实施强赎。2月17日（周四），正元转债将迎来最后可操作日（转股或卖出），按照2月11日收盘价计算，若持有正元转债的投资者不操作，将亏损近40%。
 
-They don’t do this of course through direct control
-他们当然不会通过直接控制来做到这一点
+参考链接：[https://www.stcn.com/xw/sd/202202/t20220214\_4149675.html](https://www.stcn.com/xw/sd/202202/t20220214_4149675.html)
 
-They do it through their enormous economic leverage
-他们通过巨大的经济影响力做到这一点
+**2、爱迪尔子公司爆出虚增营业收入，居然用员工银行账户造假**
+![img](https://media.gettr.com/group48/origin/2022/02/14/04/163c5e01-9faf-a82a-171a-60f6c7f8b3f2/743e286dffb1b0ddf466e2e712fe7aab_500x0.png)
+继爆出子公司违规开具发票没几天，爱迪尔（002740.SZ）又爆出子公司虚增营业收入。2月13日晚，爱迪尔发布了“关于收到福建证监局警示函的公告”，在调查中，福建证监局发现爱迪尔存在至少三个问题，“重大诉讼、仲裁事项未及时披露”、“未披露非公开发行股票认购款及收益权特殊事项”以及“通过员工个人银行账户账外支付相关费用、虚增营业收入”。Wind数据显示，2015年-2020年，爱迪尔的营业收入从8.40亿元增至15.14亿元，归母净利润却从0.67亿元变成亏损15.59亿元。
 
-and the fear from studios on missing out on a market of 1.4 billion people in China
-以及电影公司对错失中共国14亿人口市场的恐惧
+参考链接：[http://www.21jingji.com/article/20220213/herald/2e5bae2490d0682f148efce59c713526.html](http://www.21jingji.com/article/20220213/herald/2e5bae2490d0682f148efce59c713526.html)
 
-here to discuss Eric Schwartzel, he’s a Hollywood reporter for The Wall Street Journal
-在这里讨论埃里克·施瓦策尔，他是《华尔街日报》的好莱坞记者
+**3、银行节后揽客忙连员工年终奖都不“放过”**
+![img](https://media.gettr.com/group11/origin/2022/02/14/04/ba8c301e-2ea1-c5ac-ce8f-ac8140010bd1/4ce018b590f23078bfc19dd400e0fd72_500x0.png)
+“年终奖发了吧，买点行里面的产品吗？有礼物送，还能抽奖！”春节假期一过，深圳某银行支行客户经理便向身边的同事热络地推销起来。在开门红“二次营销”的压力下，这位客户经理直言“蚊子腿也是肉”。有关系的找关系，没关系的想办法。上海证券报记者走访调研了解到，各家银行在春节假期后的“开门红”压力依然不小，即使大多银行完成了节前考核，但“全员营销”的态势丝毫不减。不过，今年的银行揽客“开门红”与以往有些不同。在资管新规落地后，银行业争夺的焦点正逐渐从核心存款，扩展至“存款+代销（理财、基金、保险等）”的全量资金。
 
-He’s author of a brand new book just released today
-他是今天刚出版的一本全新书的作者
+参考链接：[https://finance.sina.com.cn/money/bank/bank\_hydt/2022-02-14/doc-ikyamrna0619537.shtml](https://finance.sina.com.cn/money/bank/bank_hydt/2022-02-14/doc-ikyamrna0619537.shtml)
 
-It’s called “red carpet, Hollywood, China, and the global battle for cultural supremacy”
-书名为《红地毯、好莱坞、中国和全球争夺文化霸权》
+**4、美国律师对比特币欺诈行为认罪，该欺诈行为使投资者损失了500万美元**
+![img](https://media.gettr.com/group4/origin/2022/02/14/04/8294eda5-59de-1e90-3aa8-037a73fe9038/8745422cbf69ae19c517afd84c09ba3c_500x0.png)
+2月12日一名前律师在曼哈顿联邦法院认罪，承认串谋实施电汇欺诈，作为欺诈投资者的计划的一部分，他们认为他们正在投资比特币。PhilipReichenthal与同谋RandyCraigLevine和几名同伙一起说服受害者向他汇款数百万美元，称他将作为托管代理人为他们购买比特币。但Reichenthal和他的同事都没有向投资者提供任何比特币，也没有退还他们的钱。Reichenthal于2020年9月14日因犯罪被捕。78岁的Reichenthal于2019年10月在佛罗里达州的一家法院被取消律师资格，他将面临最高20年的监禁。自2005年以来一直在逃避美国当局的莱文的引渡程序正在审理中。
 
-Thank you so much for being here, Eric
-非常感谢你来到这里，埃里克
+参考链接：[https://www.coindesk.com/business/2022/02/11/former-attorney-pleads-guilty-to-bitcoin-fraud-that-bilked-investors-out-of-5m/](https://www.coindesk.com/business/2022/02/11/former-attorney-pleads-guilty-to-bitcoin-fraud-that-bilked-investors-out-of-5m/)
 
-So one of the films you write about which really captures the impact the Chinese government
-所以你写的关于其中一部电影真正体现了中共国对美国电影产生的影响
+审核校对：蚂蚁的城堡（一审）、文勇（二审）
 
-is now able to have on American movies is found in Top Gun released in the 80s
-在80年代发行的《壮志凌云》中可以看到
-
-And it’s upcoming sequel when the original was released in 86
-它即将推出续集，当原版于86年发布时，
-
-offending China not a concern, but for the sequel
-得罪中共国不是问题，但对于续集来说
-
-The studio has made a significant change to the look
-电影公司对外观进行了重大更改
-
-on the jacket of this iconic character, “Maverick”
-在这个标志性人物“特立独行”的夹克上
-
-explaining to folks what’s going on here
-向人们解释这里发生了什么
-
-Eric Schwartze
-埃里克·施瓦策尔
-
-Yeah, you’re absolutely right, I mean
-是的，你完全正确，我的意思
-
-in 1986, not only was Hollywood not concern about the Chinese market
-1986年好莱坞不仅不关心中共国市场
-
-but I mean, we have an example of more rah rah cinema than the original “Top Gun”
-但我的意思是，我们有一个比最初的《壮志凌云》更多的电影的例子
-
-I mean, enlistment shut up after that movie came out
-我的意思是，那部电影上映后，征兵就闭嘴了
-
-And then when this more recent version was advertised a couple years ago
-然后当这个更新的版本在几年前被宣传时
-
-people noticed as you said, that the Taiwanese and the Japanese flag
-正如你所说，人们注意到台湾和日本国旗
-
-had been removed from Mavericks jacket and there’s a very clear reason why
-已经从“特立独行”的夹克上取下来了，原因很明确
-
-and that is that in the time between the original “Top Gun”
-那就是在最初的《壮志凌云》之间的时间
-
-and this reboot, China’s box office has grown to be the biggest in the world
-而这次重启，中共国的票房已经成长为世界第一的票房市场
-
-and any movie produced by a Hollywood studio
-以及由好莱坞制片厂制作的任何电影
-
-that’s as expensive as Top Gun needs that market often to turn a profit
-这和《壮志凌云》经常需要该市场来获利一样昂贵
-
-So that means that even down to something as small as a flag on a jacket
-所以这意味着即使是小到夹克上的一面旗帜
-
-might need to be removed in case it offends the Chinese censors
-可能需要删除以防冒犯中共国的审查员
-
-who decide whether or not this movie will get into those Chinese theaters
-该审查员决定这部电影是否会进入那些中共国的影院
-
-Jake Tapper
-杰克·塔珀
-
-Right, China obviously does not consider Taiwan to be an independent country
-是的，中共国显然不认为台湾是一个独立的国家
-
-Anything that calls into into question
-任何质疑一个中国政策的事情
-
-the One China policy is a portable third rail for the communist government
-对共产党政府来说都是不可容忍的
-
-You write about Brad Pitt’s starring in the 1997 film “Seven Years in Tibet”
-你写的是布拉德·皮特在1997年中主演的电影《在西藏七年》
-
-another country that China has conquered
-这是中共国征服的另一个国家
-
-and being in that film landed Brad Pitt in very hot water with Chinese authorities
-在那部电影中，布拉德·皮特与中共国当局陷入了困境
-
-they essentially banned Brad Pitt and his film from China for years and years
-他们基本上多年来一直在中共国禁止布拉德·皮特和他的电影
-
-Tell us more about that
-告诉我们更多相关信息
-
-* * *
-
-Date:02/11/2022
-原视频标题: CNN’s Jake Tapper Rails Against Hollywood’s Close Ties With The Chinese Communist Party
-美国有线电视新闻网的杰克·塔珀抨击好莱坞与中国共产党的密切关系
-原视频日期：2022/02/10
-原视频链接**[https://twitter.com/dailycaller/status/1491575140282363905?s=24](https://twitter.com/dailycaller/status/1491575140282363905?s=24)**
-任务编号：KE395（3718）
-视频时间段 : 0:00-2:37
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – brucce庚子
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+上传排版：文勇
 
  
 

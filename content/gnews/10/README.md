@@ -2,43 +2,139 @@
 ---
 
 
-## TikTok，中共国和俄罗斯在与西方的数据战争中的“武器”（二）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2003296/)
+## 无论俄罗斯是否攻打乌克兰 中国都是牺牲品
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2003319/)
 
-**编译：七龙珠**
+[https://gtv.org/video/id=6209afe4b0af02660af35ea9](https://gtv.org/video/id=6209afe4b0af02660af35ea9)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnipTikTok%EF%BC%8C%E4%B8%AD%E5%85%B1%E5%9B%BD%E5%92%8C%E4%BF%84%E7%BD%97%E6%96%AF%E5%9C%A8%E4%B8%8E%E8%A5%BF%E6%96%B9%E7%9A%84%E6%95%B0%E6%8D%AE%E6%88%98%E4%BA%89%E4%B8%AD%E7%9A%84%E6%AD%A6%E5%99%A8.png)图片来源：vozpopuli.com
+After the meeting between Putin and Xi Jinping （at the opening ceremony of the Winter Olympics）
+（在冬奥会开幕式）普京和习见面（结束）之后
 
-谁是TikTok的后台？
+What was the first thing Putin did?
+（普京)第一个(事)干了什么
 
-TikTok由字节跳动ByteDance于2017年推出，字节跳动ByteDance是一家位于北京的中共国科技公司，在开曼群岛注册，它的估值为750亿美元，由企业家张一鸣在2012年创立。根据其网站上公布的数据，它由Coatue、General Atlantic、KKR、Sequoia Capital、Susquehanna International和Softbank等机构拥有。与其他中共国公司的情况一样，我们很难获得像西方上市公司那样的全面账目报告。该公司尚未在证券交易所上市，正在考虑在不久的将来在香港证券交易所上市。
+Meeting Macron(President of France)
+见马克龙(法国总统)
 
-与马克-扎克伯格创立的公司（成立于2004年）相比，TikTok几乎是个新人，但它的发展速度比其直接竞争对手Facebook旗下的Instagram快得多。据路透社报道，去年夏天TikTok的月度活跃用户达到10亿。Instagram花了五年时间才达到这个数字，但TikTok在三年内就做到了。Facebook，这个地球上使用最多的社交网络，拥有19.29亿月度用户。
+(Putin expressed his will) It’s time for me
+to go back to our white family
+(普京表达了意愿)我该回到咱们的白人家族了
 
-尽管是中文，TikTok不能在中共国使用。它是为西方设计的，年轻的西方观众（青少年、20多岁的人）在其中找到了自己的快乐和潜力。对于共产党专政的公民，有一个类似的版本的社交软件，叫做“抖音”。它针对的是更广泛的年龄范围。
+go back to our Europe
+我该回到我们的欧洲了
 
-西方居民不能使用抖音，而中国人不能使用TikTok。这在平壤政权中很常见。谷歌、Instagram或WhatsApp等应用程序在中共国境内也是不允许的。但是他们在本地开发的“克隆版本”，如百度、抖音或微信。
+I’m not interested in playing with him(Xi)
+我没兴趣跟他（习）玩
 
-从官面上看，大陆版本的应用程序对用户进行了更大的控制。我们曾试图查阅抖音网（www.douyin.com）上的隐私政策，但没有成功。虽然可以查阅该网页，并看到来自西班牙的用户视频，但我们未能查阅其隐私政策，而这类服务条款会解释如何处理用户信息的。
+Do you think I want to attack Ukraine?
+你看我想进乌克兰吗
 
-TikTok收集哪些数据？
+I don’t actually want to
+我(其实)不想进
 
-TikTok可以在用户同意的情况下，收集诸如位置、实际地址、出生日期、付款细节、浏览历史或设备标识符等信息，它还详细说明了这些信息的存储地点。“TikTok的用户数据储存在美国和新加坡的安全数据中心，我们已经宣布计划在爱尔兰和印度建立数据中心”该社交网络在其隐私政策中反映，“我们确保对用户数据进行加密，对员工访问这些信息实施强有力的限制，遵循我们所在市场的当地法律，并紧跟当地法规，实施高水平的实践”。
+What can you do for me to keep me from
+attacking Ukraine?
+你咋让我不进乌克兰呢
 
-但TikTok曾多次被指控向中共国发送用户信息，该社交网络对此予以否认。没有什么是该平台没有被指控过的。欧盟宣布这家美国公司在本国处理欧洲公民的数据是非法的。管辖欧盟的《通用数据保护条例》（GDPR）不允许将个人信息发送到在这方面不安全的国家。
+You need to buy more of my gas
+Pay more attention to my side in energy imports
+(我的)天然气(你)多买点 (能源进口上)多(侧重于我)付点钱
 
-同样，没有什么是Facebook没有被指控过的。在布鲁塞尔将矛头指向Facebook后，该社交网络威胁要离开欧洲。一些非常值得怀疑的东西是值得相信的，首先，因为欧洲是一个拥有近4亿人口的巨大的市场，其次，由于数据的战略重要性，美国在欧洲等大陆保留像Facebook这样的巨头是很有意思的。
+Then the CCP will definitely be kicked out
+as a scapegoat
+然后 一定会把中共卖掉(当替罪羊)
 
-新闻来源：[vozpopuli.com] [TikTok, el ‘arma’ de China y Rusia en la guerra del dato contra Occidente](https://www.vozpopuli.com/actualidad/tiktok-arma-china-rusia.html)
+So you see, Brothers and Sisters!
+所以 你看到 兄弟姐妹们
 
-【接下篇：[TikTok，中共国和俄罗斯在与西方的数据战争中的“武器”（三）](https://gnews.org/zh-hans/2001150/)】
+Why is the first thing we talk about today is
+为啥今天第一个谈
+
+the relationship between Xi and Putin after the opening ceremony of the Winter Olympics?
+暨冬奥会开幕式后的习太阳和普京关系
+
+Let me tell you this
+我告诉大家
+
+If they go to attack Ukraine
+(如果)打乌克兰
+
+The Chinese will be forced to carry the blame for the attack on Ukraine
+中国人(将被迫)背着打乌克兰的锅
+
+Because to the outside world,this is seen as financial
+support and encouragement from the Chinese
+(在外界看来)是因为中国人的经济支持和怂恿
+
+If they don’t attack Ukraine
+不打乌克兰
+
+Coming soon, what is Europe doing?
+马上 欧洲正在干什么
+
+The so-called European version of the Trade Competition Act will be introduced soon
+叫欧洲版的(贸易)竞争法案马上出(来)
+
+Europe will kick CCP out of the trade
+就欧洲把你(从)贸易(往来)中踢出去
+
+So you can see in the relationship between Putin and
+Xi Jinping
+所以说从普习(关系)看出来
+
+and the European trade competition bill against the CCP
+(以及)欧洲对共产党的新的竞争法案
+
+That whether Russia attacks Ukraine or not
+China will be a casualty in both respects
+俄罗斯打不打乌克兰 中国都(将)是牺牲品
+
+Due to the CCP’s brain-damaged belief in personal relationships between leaders of major countries
+以及 所谓大国领导人迷信的个人领导关系
+
+They staked the security and well-being of
+our Chinese people
+以一国的 人的安全和福祉
+
+on a supposedly shitty, bullshit, untrustworthy
+押(注)在一个所谓鸟不拉屎的 根本胡扯球蛋的 不可相信的
+
+mutually exploitative relationship between the leaders of two countries
+相互利用的 两国领导人关系上
+
+It is the sadness of Chinese people’s politics, economy
+morality and beliefs
+是中国人 政治 经济 道德 信仰 的悲哀
+
+Shamed by the world
+被世界所耻
+
+But we Chinese don’t know
+但中国人不知
+
+Wake Up! My Fellow Countrymen!
+醒来吧 同胞们
 
 * * *
 
-*审核：Aries的星
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1.jpeg)
+Date:02/12/2022
+原视频标题: Whether Russia attavks Ukraine or not China willbe a casualtyin both respects
+无论俄罗斯是否攻打乌克兰 中国都是牺牲品
+原视频日期：2022/02/10
+原视频链接
+任务编号：KE398(3732)
+视频时间段 : 0:00-1:30
+英听校： 洛杉矶盘古农场 – 庚子
+翻译： 洛杉矶盘古农场 – 庚子
+翻译终校：洛杉矶盘古农场 – 银龙
+字幕+视频制作：洛杉矶盘古农场 – 庚子
+审片：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
