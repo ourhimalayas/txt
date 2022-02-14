@@ -15,98 +15,98 @@
 
 ---
 
-### [MV版Hcoin To the Moon上线67天第49次位列澳门iTunes热门MV榜首](/content/gnews/1/README.md)
+### [勿忘香港 病毒（图片）](/content/gnews/1/README.md)
+ ` 波士顿五月花农场`
+
+### [安省重症人数一个月多来首次降到400人以下](/content/gnews/2/README.md)
+ ` MG FARM`
+
+### [Moderna制药负责人出售自家公司股票](/content/gnews/3/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [夫妇卖多伦多一百多万的房子 花了$66万买下50英亩庄园](/content/gnews/4/README.md)
+ ` MG FARM`
+
+### [MV版Hcoin To the Moon上线67天第49次位列澳门iTunes热门MV榜首](/content/gnews/5/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [文耀时间｜战友实例分享私人信托设立（三)从铸币权看喜币走势 欧洲信托设立信息](/content/gnews/2/README.md)
+### [夏季旅游有望迎来报复性增长](/content/gnews/6/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [文耀时间｜战友实例分享私人信托设立（三)从铸币权看喜币走势 欧洲信托设立信息](/content/gnews/7/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [2022年2月13日农场联盟工作汇报-G系列相关信息文字版](/content/gnews/3/README.md)
+### [2022年2月13日农场联盟工作汇报-G系列相关信息文字版](/content/gnews/8/README.md)
  ` 全球G系列咨服群`
 
-### [丹麦风电巨头公布遭受网络攻击细节](/content/gnews/4/README.md)
+### [2022年2月13日《文贵大直播》全文字版](/content/gnews/9/README.md)
+ ` 温哥华扬帆农场七哥直播全文听写组`
+
+### [丹麦风电巨头公布遭受网络攻击细节](/content/gnews/10/README.md)
  ` 秘密翻译组-原创组`
 
-### [习近平夜郎自大欲瞒天过海强攻台湾](/content/gnews/5/README.md)
+### [习近平夜郎自大欲瞒天过海强攻台湾](/content/gnews/11/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [有声| 鎖鏈八孩女性奴李瑩與中共馭民五術的基本國策](/content/gnews/6/README.md)
+### [有声| 鎖鏈八孩女性奴李瑩與中共馭民五術的基本國策](/content/gnews/12/README.md)
  ` MOSREC`
 
-### [有声|孤狼](/content/gnews/7/README.md)
+### [有声|孤狼](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [文贵先生盖特精要- 2022/02/14](/content/gnews/8/README.md)
+### [文贵先生盖特精要- 2022/02/14](/content/gnews/14/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|NFSC新闻、G|TV新闻访谈简报|2022年2月13日早](/content/gnews/9/README.md)
+### [有声|NFSC新闻、G|TV新闻访谈简报|2022年2月13日早](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [任何情况下不要攻击法官](/content/gnews/10/README.md)
+### [任何情况下不要攻击法官](/content/gnews/16/README.md)
  ` 雅典娜GNotes`
 
-### [七哥肯定了农场战友们的工作](/content/gnews/11/README.md)
+### [七哥肯定了农场战友们的工作](/content/gnews/17/README.md)
  ` 雅典娜GNotes`
 
-### [虚拟币Hcoin是最大赢家](/content/gnews/12/README.md)
+### [虚拟币Hcoin是最大赢家](/content/gnews/18/README.md)
  ` 雅典娜GNotes`
 
-### [有声| 《疫苗后遗症》主创人员解析疫苗怪相](/content/gnews/13/README.md)
+### [有声| 《疫苗后遗症》主创人员解析疫苗怪相](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [有声|香草山翻译部周刊|2022年2月13日第35期](/content/gnews/14/README.md)
+### [有声|香草山翻译部周刊|2022年2月13日第35期](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [2月13日大直播后记：不要放弃对好人的希望](/content/gnews/15/README.md)
- ` 雅典娜GNotes`
-
-### [加拿大开放大使桥，但渥太华的卡车司机不愿让步](/content/gnews/16/README.md)
+### [加拿大开放大使桥，但渥太华的卡车司机不愿让步](/content/gnews/21/README.md)
  ` 温哥华扬帆农场`
 
-### [新中国联邦引领世界大卡车反抗暴政运动](/content/gnews/17/README.md)
+### [新中国联邦引领世界大卡车反抗暴政运动](/content/gnews/22/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [有声|外国公民加速离开基辅，下周六拜、普相约电话会晤](/content/gnews/18/README.md)
+### [有声|外国公民加速离开基辅，下周六拜、普相约电话会晤](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [美眾議院對中共提起嚴厲製裁法案](/content/gnews/19/README.md)
+### [美眾議院對中共提起嚴厲製裁法案](/content/gnews/24/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [有声|奥运光芒无法掩盖中共活摘人体器官的罪恶](/content/gnews/20/README.md)
- ` MOSREC`
-
-### [有声|美议员：共产主义是癌症 不能让它蔓延](/content/gnews/21/README.md)
- ` MOSREC`
-
-### [美众议院对中共提起严厉制裁法案](/content/gnews/22/README.md)
+### [美众议院对中共提起严厉制裁法案](/content/gnews/25/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [有声|谷爱凌事件对亚裔的伤害难以弥补](/content/gnews/23/README.md)
- ` MOSREC`
-
-### [NFSC新闻、G|TV新闻访谈简报|2022年2月14日早](/content/gnews/24/README.md)
+### [NFSC新闻、G|TV新闻访谈简报|2022年2月14日早](/content/gnews/26/README.md)
  ` 纽约香草山MOS01`
 
-### [大卡车运动源自香港反送中运动](/content/gnews/25/README.md)
- ` NFSC News`
-
-### [“长途跋涉”：美加边境口岸的车队抗议活动](/content/gnews/26/README.md)
+### [“长途跋涉”：美加边境口岸的车队抗议活动](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [秘翻在线：笔者斗胆猜测：甜蜜蜜灭了北京冬奥会的圣火](/content/gnews/27/README.md)
+### [秘翻在线：笔者斗胆猜测：甜蜜蜜灭了北京冬奥会的圣火](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [NewSGman┃疫情新闻全球速报（2月10日）](/content/gnews/28/README.md)
+### [NewSGman┃疫情新闻全球速报（2月10日）](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [PCR测试拭子含环氧乙烷致癌物](/content/gnews/29/README.md)
+### [PCR测试拭子含环氧乙烷致癌物](/content/gnews/30/README.md)
  ` 温哥华扬帆农场`
 
-### [张艺谋的较真](/content/gnews/30/README.md)
+### [张艺谋的较真](/content/gnews/31/README.md)
  ` genwsGNEWS`
-
-### [加拿大曼尼托巴省宣布结束疫苗护照和口罩强制令](/content/gnews/31/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [NewSGman┃疫情新闻全球速报（2月12日）](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

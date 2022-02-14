@@ -2,25 +2,35 @@
 ---
 
 
-## 美眾議院對中共提起嚴厲製裁法案
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2004733/)
+## 有声| 《疫苗后遗症》主创人员解析疫苗怪相
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2004770/)
 
-采編：   風雲小哥          編譯撰稿：文明(添草滅共)
+配音：香草山农场 – 信念7
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+当地时间2月11日，《疫苗后遗症》在日本首映结束，导演长尾和宏医生和主创鸟集彻记者，进行了20分钟的现场对谈。他们讲述了疫苗推广之后日本出现的四个怪相。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E6%88%AA%E5%B1%8F2022-02-13-%E4%B8%8A%E5%8D%8810.06.20.png)
+首先，观众大多看到或体验过家人朋友饱受中共疫苗后遗症的苦恼，然而除了鸟集记者的刊物，以及CBC新闻的大石解说，几乎没有媒体报道这类患者的状况。记者稿件被封存，医生被排挤打压，真实的数据难以昭告民众。第二，无论是日本政府还是医疗界，都因为之前大肆推举疫苗接种，而陷入了难以认错，难以立刻停止疫苗的境地；第三，作为医疗界统筹部门的日本医师会，一味地推广新药以及新疫苗，已经沦为制药公司的宣传机器；（到此全为视频1的内容）最后，鸟集彻记者特别指出，明明是政府为了达到群体免疫才呼吁人们接种的，然而，一旦出现后遗症却立刻否认这些问题跟疫苗有关。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/GettyImages-1153354315-640x480-1.png)圖片來源：breitbart
+正如長尾和宏医生演讲时所说，病毒并不可怕，但是医学界对病毒渲染的恐慌是病毒本身的10倍，疫苗对人的伤害是病毒的100倍，但是最可怕的是人心，利欲熏心比病毒更可怕1000倍！另据独家消息，长尾和宏医生已经同意接受新中国联邦媒体的专访。本台将跟踪报道。
 
+文字版原文：[《疫苗后遗症》主创人员解析疫苗怪相](https://gnews.org/zh-hans/2000054/)
 
-據【布萊特巴特新聞】近日報道，在共和黨和眾議院高層的支持下，美國眾院議員麥克萊恩提出了名為[製止中共法案]的立法議案，擬對中共黨魁習近平家族及其數千名中共高官進行製裁。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-據悉，該法案針對中共高層官員以及」全國代表大會 「的每個成員及其直系親屬。製裁措施包括禁止他們獲得美國簽證、使用美國金融系統和取得美國資產等。同時也禁止美國公司與製裁對象個人及其親屬進行任何形式的交易。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-此外該法案還提出取消這些製裁的條件，就是必須停止種族滅絕和在香港的殺戮、停止盜竊美國的知識產權以及放棄對臺灣的入侵。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-校對編輯：硫酸羥氯喹64
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-發稿：文明(添草滅共)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-原文鏈接： https://www.breitbart.com/politics/2022/02/09/exclusive-house-conservatives-introduce-sanctions-proposal-for-thousands-chinese-communist-party-officials/
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
