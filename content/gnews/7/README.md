@@ -2,18 +2,21 @@
 ---
 
 
-## 《蓝枫法律》第四十三期 法律你我他 &#8211; 同性恋，双性恋和跨性别法律权力概览PPT展示- G_TV
-` 加拿大温哥华扬帆农场蓝枫法律` [轉載自GNews](https://gnews.org/zh-hans/2002107/)
+## 廉价的器官！黑市交易6万5公开收肾
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2002203/)
 
-#### **加拿大温哥华扬帆农场 蓝枫法律**
+中共统治下买卖器官随处可见，老百姓的器官只是个物件，山东聊城尿毒症患者群，公开收肾6万5，黑中介转手倒卖80万，转手涨价11倍。
+(视频来源：都市报道)
+走投无路廉价卖器官，不如中介转手赚的盆满钵满。只要你卖，就有人敢收，忽悠下的“自愿交易”，可谓童叟无欺还略带“爱心”。卖器官的可怜，黑中介可恨，而买器官的却显得那么的理应。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-135.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-56.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/3-40.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/4-30.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/5-21.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/6-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/7-16.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/8-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/9-12.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/10-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/11-12.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/12-13.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/13-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/14-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/15-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/16-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/17-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/18-1.png)
-直播视频：
+没有贯彻法治的国度，永远只是一个荒蛮的大部落，而中共就是在这种土壤下生存的如鱼得水！不灭共，只有苟活！灭共，才有生活！
 
-[第四十三期 法律你我他 – 同性恋，双性恋和跨性别法律权力概览](https://gtv.org/video/id=62084b6aa1fe5e57a4278346)
+撰稿/发布：一叶知秋
 
-编辑/发文：蓝枫法律栏目
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

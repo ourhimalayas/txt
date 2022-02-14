@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/14/2022 3:44 AM (UTC)`
+
+2/13/2022 Miles Guo: I’ve made accurate judgments on the oil futures, supply chains, and chips. Before Russia’s war against Ukraine, many countries in Eastern Europe and Northern Europe have sided with the US, with Germany welcoming the return of the US troops and the deployment of nukes. Xi Jinping and the CCP thought they were smart in terms of dealing with Russia, but they ended up in an embarrassing situation where Putin took hundreds of billions of dollars from them.<br/><br/>2/13/2022 文贵直播: 文贵在石油期货、供应链和芯片上判断精准；俄国对乌克兰尚未开战，东欧和北欧等国已倒向美国，德国欢迎美国驻军并允许部署核武器；习太阳和中共弄巧成拙，被普京卷走千亿美元
+![img](https://media.gettr.com/group34/getter/2022/02/14/03/2788a298-87c7-ede8-aa8a-5f5fbde164f8/out.jpg)
+
+---
+
 `@miles 2/14/2022 2:53 AM (UTC)`
 
 2月13号：衷心地感谢，喜安娜喜安迪姐妹制作精美的视频和唱得真美妙的歌曲……祝，全球的所有的战友们和全天下的人们，情人节快乐！
@@ -149,13 +156,6 @@
 
 2/11/2022 Miles Guo: Xuzhou, where the chained woman incident occurred, is one of “most theistic” places in Communist China - there are altars, and the CCP’s senior cadres are involved. The chained woman incident was the crime committed by the entire CCP, involving three generations of the CCP’s top leadership, and filled with superstition and deception. Everything about the CCP is fake and fraudulent.<br/><br/>2/11/2022 文贵直播：发生锁链女事件的徐州是中共国最有神论的地方之一 - 有祭坛并涉及中共高层领导；锁链女事件是全党作案、涉及中共三代领导班子并充斥着迷信和欺骗；中共的一切都是假和骗<br/>
 ![img](https://media.gettr.com/group30/getter/2022/02/12/15/78b278c1-9b71-ec2b-5011-84d71c0a1795/out.jpg)
-
----
-
-`@miles 2/12/2022 2:33 PM (UTC)`
-
-2月12号：尊敬的战友们好，你们健身了吗？传播CCP病毒，疫苗解药真相了吗？七哥继续和大家分享，昨天大直播中，我没回答完的问题……<br/>一切都已经开始！
-![img](https://media.gettr.com/group5/getter/2022/02/12/14/d38caa60-69e5-628e-7121-f65d86c42ee8/out.jpg)
 
 ---
 
