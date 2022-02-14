@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/14/2022 8:49 AM (UTC)`
+
+2/13/2022 Miles Guo: The CCP has held hostage various international organizations to act as its accomplices by implementing the BGY scheme. The foreign athletes of the Winter Olympics will forever become the enemies of the CCP, and they will expose the fake, ugly, and evil of the CCP with their personal experiences after they return home. This will be of great help to the Whistleblowers' Movement<br/><br/>2/13/2022 文贵直播：中共用蓝金黄绑架了各个国际组织充当其帮凶；冬奥会的外国运动员将成为中共永远的敌人，他们回国后会以亲身经历揭露中共的假丑恶，这将对爆料革命有巨大帮助<br/>
+![img](https://media.gettr.com/group26/getter/2022/02/14/08/cf1e03f3-6e88-7f7b-f455-ae6254801c5b/out.jpg)
+
+---
+
+`@miles 2/14/2022 8:44 AM (UTC)`
+
+2/13/2022 Miles Guo: The CCP and Russia are the culprits of the imminent world war behind the scenes. The proxy war in Ukraine is about to happen. The CCP has been claiming to wage a war against Taiwan in Coommunist China. Only the New Federal State of China and the Whistleblowers’ Movement have given the world an advance warning of the evil war plan of Russia and the CCP.<br/><br/>2/13/2022 文贵直播：中共和俄罗斯是即将发生的世界大战的幕后黑手，乌克兰的代理人战争一触即发；中共正在国内叫嚣对台开战，而只有新中国联邦、爆料革命向全球提前警告了中俄的邪恶战争计划<br/><br/>
+![img](https://media.gettr.com/group14/getter/2022/02/14/08/0956e524-9d92-bc39-a92a-f77cca9971c9/out.jpg)
+
+---
+
 `@miles 2/14/2022 3:44 AM (UTC)`
 
 2/13/2022 Miles Guo: I’ve made accurate judgments on the oil futures, supply chains, and chips. Before Russia’s war against Ukraine, many countries in Eastern Europe and Northern Europe have sided with the US, with Germany welcoming the return of the US troops and the deployment of nukes. Xi Jinping and the CCP thought they were smart in terms of dealing with Russia, but they ended up in an embarrassing situation where Putin took hundreds of billions of dollars from them.<br/><br/>2/13/2022 文贵直播: 文贵在石油期货、供应链和芯片上判断精准；俄国对乌克兰尚未开战，东欧和北欧等国已倒向美国，德国欢迎美国驻军并允许部署核武器；习太阳和中共弄巧成拙，被普京卷走千亿美元
@@ -142,20 +156,6 @@
 
 2/11/2022 Miles Guo: The CCP uses its monopoly of the market to hold the world hostage, causing serious consequences in Hollywood, Wall Street, Davos, and the world's media. The more extreme and insane the enemy's lies are, the greater the power of the truths will be and the closer we are to our goal of the Himalaya.<br/><br/>2/11/2022 文贵直播：中共用其垄断的市场来绑架全世界，在好莱坞、华尔街、达沃斯和世界媒体造成了严重后果；敌人的谎言越极端、越疯狂，真相的力量就越大，而我们离喜马拉雅会更近<br/><br/><br/>
 ![img](https://media.gettr.com/group20/getter/2022/02/13/00/9d9505ed-bbeb-94c4-a493-0173f0febd86/out.jpg)
-
----
-
-`@miles 2/12/2022 9:13 PM (UTC)`
-
-👍👍Dr. Roger Hodkinson (Pathologist, CEO and Medical Director of MedMalDoctors):<br/>There is an overwhelming consensus that nothing worked. Nothing could, did and will work. The two principal medical ethics have been trampled on by provincial and international medical institutions as well as this government: First DO NO HARM and INFORMED CONSENT. All doctors and surgeons in global medical institutions that do not tell the TRUTH and enforce mandatory COVID vaccines are co-conspirators with government in state-sanctioned murders. TRUTH MATTERS !<br/><br/>👍👍Roger Hodkinson博士 (病理学家、MedMalDoctors CEO兼医学主任):<br/>有一个压倒性的共识：疫苗没有任何作用，疫苗不能、不起、也不会有任何作用。两个主要的医学伦理被省内和国际医疗机构以及政府践踏了：不伤害和知情同意权。所有不告知人们真相且强制中共病毒疫苗接种的全球医疗机构的医生和外科医生都是政府认可的谋杀案的同谋者。
-![img](https://media.gettr.com/group20/origin/2022/02/12/21/94b4189f-b57a-fdf1-ed74-edc6e86fc88b/out.jpg)
-
----
-
-`@miles 2/12/2022 3:37 PM (UTC)`
-
-2/11/2022 Miles Guo: Xuzhou, where the chained woman incident occurred, is one of “most theistic” places in Communist China - there are altars, and the CCP’s senior cadres are involved. The chained woman incident was the crime committed by the entire CCP, involving three generations of the CCP’s top leadership, and filled with superstition and deception. Everything about the CCP is fake and fraudulent.<br/><br/>2/11/2022 文贵直播：发生锁链女事件的徐州是中共国最有神论的地方之一 - 有祭坛并涉及中共高层领导；锁链女事件是全党作案、涉及中共三代领导班子并充斥着迷信和欺骗；中共的一切都是假和骗<br/>
-![img](https://media.gettr.com/group30/getter/2022/02/12/15/78b278c1-9b71-ec2b-5011-84d71c0a1795/out.jpg)
 
 ---
 

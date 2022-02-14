@@ -2,51 +2,24 @@
 ---
 
 
-## 美在所罗门群岛重设大使馆 防堵中共
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2002365/)
+## 澳大利亚开始撤离基辅大使馆
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2002384/)
 
-作者：纽约磐石农场-在远方，台湾宝岛农场-阿尔道夫
+#### 撰稿：彩虹       
 
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1378.png)图片来源：路透社
+2月13日，《国会山报》报道，随着俄罗斯和乌克兰之间紧张局势的加剧，澳大利亚正在撤离其驻乌克兰大使馆。
 
+周日，澳大利亚外交部长玛丽斯·佩恩（Marise Payne）宣布，驻基辅（Kyiv）使馆的所有工作人员已被告知离开，大使馆的业务已经关闭，并转移到乌克兰西部城市利沃夫（Lviv）的一个临时办公室。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+她说，做出这些决定的原因是“俄罗斯军队在乌克兰边境的集结导致安全局势恶化”。
 
+佩恩在一份声明中写道：“我们继续建议澳大利亚人立即通过商业手段离开乌克兰。安全状况可能在短时间内发生变化。俄罗斯对乌克兰的军事行动将严重限制我们向澳大利亚人提供领事援助的能力。”
 
+**新闻来源**
 
-据多家媒体报道，2月12日，美国国务卿布林肯证实，在时隔29年后，美国计划在南太平洋岛国，所罗门群岛重新开设大使馆，在该地区投入更多外交和防卫资源，防范中共持续与太平洋岛国建立军事联系。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-5.jpg)
-据悉，布林肯在赴澳洲参加美日印澳四方安全对话峰会之后，转道访问斐济，并将与多名太平洋岛国领袖举行视频会议。据美国官员透露，很多迹象表明，中共妄图与太平洋岛国建立军事联系，首要目标就是所罗门群岛。而所罗门群岛2019年前曾是和台湾友好的邦交国之一，但自2019年后，它擅自背离了与台湾的外交关系，转而亲近中共。
-
-同一时间，美国政府发布《印度—太平洋战略报告》，计划在12至24个月内，提升在东南亚和太平洋岛国的外交姿态，以扩大美军在该地区的行动范围。
-
-参考链接：
-1. [相隔29年！防堵中國勢力擴張 美證實將在索羅門群島重設大使館](https://news.ltn.com.tw/news/world/breakingnews/3827779)
-2. [相隔29年 傳美將在索羅門群島恢復設立大使館](https://tw.news.yahoo.com/%E7%9B%B8%E9%9A%9429%E5%B9%B4-%E5%82%B3%E7%BE%8E%E5%B0%87%E5%9C%A8%E7%B4%A2%E7%BE%85%E9%96%80%E7%BE%A4%E5%B3%B6%E6%81%A2%E5%BE%A9%E8%A8%AD%E7%AB%8B%E5%A4%A7%E4%BD%BF%E9%A4%A8-043556408.html)
-3. [且看中共對所羅門群島的“藍金黃”](https://gnews.org/zh-hant/121332/)
-4. [中共勢力擴張至所羅門群島](https://gnews.org/zh-hant/1792032/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+[Australia evacuates Kyiv embassy](https://thehill.com/policy/international/594024-australia-evacuates-kyiv-embassy)
 
  
 

@@ -2,51 +2,24 @@
 ---
 
 
-## 德转强硬 将中共定为体制竞争对手
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2002370/)
+## 中日财经爆|外资1月增持人民币债券大降近四成
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2002386/)
 
-作者：纽约香草山医疗部-云豹
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1380.png)[图片来源](https://www.sohu.com/a/425770351_100110525)
+路透社周一（2月14日)根据中债登最新数据计算，境外机构投资者1月增持中国银行间债券501亿人民币，环比大降近四成；
 
+中债登公布的统计月报还显示，期末境外机构中债登债券托管余额37,335亿元，境外机构中债登国债托管余额为25,189亿元。
 
+境外机构投资者去年12月增持中债登托管的债券787亿元人民币，环比降逾一成；其中增持国债619亿元，环比降近三成。去年全年累计增持中债登债券规模7,986亿元，较2020年降两成，累计增持国债5,756亿。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+境外机构去年12月末在上清所持有债券余额为3,200亿元，加上在中债登托管的36,834亿元债券存量，在银行间市场人民币债券持有总额达到40,034亿元。
 
+消息来源：[外资1月增持人民币债券501亿环比降近四成 但国债增持量环比小增–中债登](https://cn.reuters.com/article/foreign-investors-yuan-bonds-0214-mon-idCNKBS2KJ036?il=0)
 
-
-2月12日，德国媒体报导，德国外交部将发文给各政府部门，要求将中共定义为“体制竞争对手”。
-
-欧盟早在2019年就已将中共视为“体制竞争对手”，但是亲中共的前任默克尔政府一直不敢表态。新任德国联合政府显然已经开始转向，不再将中共视为亲密的伙伴。组成新联合政府的三个政党，之前在对待中共的问题上曾达成协议，包括指控中共在新疆设立劳改营，以及支持让台湾参与更多国际组织等。这次德国外交部的发文显示，德国新政府将逐步落实三党与中共有关的协议内容。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-7.jpg)
-德国新政府这次并没有派官方代表去参加北京冬季奥运，而且总理萧兹将在与中共会面之前，先与印度及日本政府进行磋商商。目前属于社民党的德国总理萧兹及属于绿党的外交部长贝尔伯克都没有访问中共的计划。
-
-隶属德国绿党的欧洲议会对中关系代表团团长包瑞翰表示：新政府展现的对中共政策，比前总理默克尔更有魄力。
-
-参考链接：
-[傳德國將硬起來 呼應歐盟視中國為體制競爭對手](https://www.cna.com.tw/news/aopl/202202120237.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/01/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

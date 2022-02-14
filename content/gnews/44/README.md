@@ -2,13 +2,13 @@
 ---
 
 
-## 赵立坚反咬美国经济胁迫
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2000631/)
+## 多国反强制疫苗抗议活动民众被警察逮捕
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2002076/)
 
-02/11/2022 中共外交部战狼发言人赵立坚反咬美国经济胁迫，坚称中共国”完全合理合法、无可指摘“。
-
-By:【秘密翻译组-精翻组 G-Translators/Elite Team】
-
+![](https://assets.gnews.org/wp-content/uploads/2022/02/20220214-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
