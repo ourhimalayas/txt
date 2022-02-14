@@ -2,44 +2,134 @@
 ---
 
 
-## 二亿人灵活就业是中共企图用文字欺诈掩盖问题的把戏
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2003294/)
+## 无论俄罗斯是否攻打乌克兰 中国都是牺牲品
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2003319/)
 
-**【国内新闻短评】**
+[https://gtv.org/video/id=6209afe4b0af02660af35ea9](https://gtv.org/video/id=6209afe4b0af02660af35ea9)
 
-中国新闻网2022年2月9日发布：中国灵活就业者已达2亿人 线上工作受到年轻人追捧
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1391.png)图片来源：禁闻网
-**短评**：
+After the meeting between Putin and Xi Jinping （at the opening ceremony of the Winter Olympics）
+（在冬奥会开幕式）普京和习见面（结束）之后
 
-中国共产党国家统计局相关负责人日前表示，截至2021年底，中国灵活就业人员已经达到2亿人。
+What was the first thing Putin did?
+（普京)第一个(事)干了什么
 
-**文字欺诈是中共的惯用伎俩**
+Meeting Macron(President of France)
+见马克龙(法国总统)
 
-中共盛产谎言，其中最有迷惑性的谎言是文字游戏。比如对于“失业”中共就玩过很多花样，并且“与时俱进”，如：二十世纪八、九十年代的“待业青年”、二十世纪九十年代末二十一世纪初的“下岗职工”和“下岗再就业”、二十一事件一年代的“自主就业”等。现在又造了个新词叫“灵活就业”。有网友戏称；我们只有再就业，缓就业，轻就业，慢就业，自主就业，灵活就业，它就是没有失业。
+(Putin expressed his will) It’s time for me
+to go back to our white family
+(普京表达了意愿)我该回到咱们的白人家族了
 
-灵活就业等于失业，等于没有固定工作，说白了就是无业游民。面对2亿失业大军，中共不仅用文字游戏迷惑、欺骗民众，还言辞凿凿的解释说：“灵活就业不仅成为毕业生的一个就业途径，也为企业选人用人提供了便利”；“求职者选择更丰富”“多面型人才副业途径多”；“让灵活就业者更有干劲”……这种文字欺诈是中共的惯用伎俩，使人觉得中共在用拙劣的手段侮辱人类的智商。
+go back to our Europe
+我该回到我们的欧洲了
 
-**经济数据造假**
+I’m not interested in playing with him(Xi)
+我没兴趣跟他（习）玩
 
-中共中共官方提供的“2021年失业率5.1%”，按中共国8.11亿适龄劳动人口计算失业人口为0.4055亿，余数7.7045亿为就业人口。那么，即使以中共国2021年“灵活就业者”2亿的半数1亿为失业人口基数，所谓“灵活就业人口“的失业率约为13%，加上中共提供的5.1%，实际保守失业率为18.1%。而中共国统计局发布的2020年失业率为5.6%，
+Do you think I want to attack Ukraine?
+你看我想进乌克兰吗
 
-如果中共国所公布的失业率及经济增长数据属实，那么，中共官方公布的2021年经济同比2020年GDP增幅8.1%就是弥天大谎。如果2021年的GDP数据增幅属实，那么，显然2020年的失业率和2020年GDP增幅2.3%的数据就是造假。或者2亿灵活就业人口数据造假。其实造假不足为奇，因为中共从来没有说过一句真话。
+I don’t actually want to
+我(其实)不想进
 
-**社会动荡一触即发**
+What can you do for me to keep me from
+attacking Ukraine?
+你咋让我不进乌克兰呢
 
-2021年中共国灵活就业人员迅速增加至2亿，加上中共公布的超过0.4亿的失业人口，也就是超过2.4亿适龄工作人员没有固定工作和稳定收入来源，就等于包括房地产在内的各类企业破产倒闭或减产，就等于消费市场需求萎靡；而面对全球文明发达国家与中共的脱钩和制裁，2022年的境况更加严峻；也就意味着中共国经济行将崩溃。
+You need to buy more of my gas
+Pay more attention to my side in energy imports
+(我的)天然气(你)多买点 (能源进口上)多(侧重于我)付点钱
 
-随着经济的崩溃，失业大军愈加庞大，奴隶们吃不饱饭的时候到了。当奴隶们做不成奴隶的时候，社会矛盾必然加剧，社会动荡一触即发，中共欺骗、奴役、压榨、杀戮的时代就会结束。
+Then the CCP will definitely be kicked out
+as a scapegoat
+然后 一定会把中共卖掉(当替罪羊)
 
-文章观点仅代表作者，与Gnews 平台无关
+So you see, Brothers and Sisters!
+所以 你看到 兄弟姐妹们
 
-新闻链接：
-[**https://c.m.163.com/news/a/GVO95PGB0514R9KD.html?spss=newsapp**](https://c.m.163.com/news/a/GVO95PGB0514R9KD.html?spss=newsapp)
+Why is the first thing we talk about today is
+为啥今天第一个谈
 
-素材：洛杉矶盘古农场 — 鲁西西
-评论：洛杉矶盘古农场 — 心照
-编审：洛杉矶盘古农场 — 柯震恶
-发布：洛杉矶盘古农场 — 恩典
+the relationship between Xi and Putin after the opening ceremony of the Winter Olympics?
+暨冬奥会开幕式后的习太阳和普京关系
+
+Let me tell you this
+我告诉大家
+
+If they go to attack Ukraine
+(如果)打乌克兰
+
+The Chinese will be forced to carry the blame for the attack on Ukraine
+中国人(将被迫)背着打乌克兰的锅
+
+Because to the outside world,this is seen as financial
+support and encouragement from the Chinese
+(在外界看来)是因为中国人的经济支持和怂恿
+
+If they don’t attack Ukraine
+不打乌克兰
+
+Coming soon, what is Europe doing?
+马上 欧洲正在干什么
+
+The so-called European version of the Trade Competition Act will be introduced soon
+叫欧洲版的(贸易)竞争法案马上出(来)
+
+Europe will kick CCP out of the trade
+就欧洲把你(从)贸易(往来)中踢出去
+
+So you can see in the relationship between Putin and
+Xi Jinping
+所以说从普习(关系)看出来
+
+and the European trade competition bill against the CCP
+(以及)欧洲对共产党的新的竞争法案
+
+That whether Russia attacks Ukraine or not
+China will be a casualty in both respects
+俄罗斯打不打乌克兰 中国都(将)是牺牲品
+
+Due to the CCP’s brain-damaged belief in personal relationships between leaders of major countries
+以及 所谓大国领导人迷信的个人领导关系
+
+They staked the security and well-being of
+our Chinese people
+以一国的 人的安全和福祉
+
+on a supposedly shitty, bullshit, untrustworthy
+押(注)在一个所谓鸟不拉屎的 根本胡扯球蛋的 不可相信的
+
+mutually exploitative relationship between the leaders of two countries
+相互利用的 两国领导人关系上
+
+It is the sadness of Chinese people’s politics, economy
+morality and beliefs
+是中国人 政治 经济 道德 信仰 的悲哀
+
+Shamed by the world
+被世界所耻
+
+But we Chinese don’t know
+但中国人不知
+
+Wake Up! My Fellow Countrymen!
+醒来吧 同胞们
+
+* * *
+
+Date:02/12/2022
+原视频标题: Whether Russia attavks Ukraine or not China willbe a casualtyin both respects
+无论俄罗斯是否攻打乌克兰 中国都是牺牲品
+原视频日期：2022/02/10
+原视频链接
+任务编号：KE398(3732)
+视频时间段 : 0:00-1:30
+英听校： 洛杉矶盘古农场 – 庚子
+翻译： 洛杉矶盘古农场 – 庚子
+翻译终校：洛杉矶盘古农场 – 银龙
+字幕+视频制作：洛杉矶盘古农场 – 庚子
+审片：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – 恩典
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

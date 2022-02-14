@@ -2,32 +2,35 @@
 ---
 
 
-## 希望
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2003306/)
+## 冬奥会美国队横扫中共冰球外籍杂牌军
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2003372/)
 
-**作者：大象腿**
-[![](https://express.adobe.com/page/S8dheRxnPzYL6/images/d48feef3-6595-424b-9dad-2eecb066c55e.jpg?asset_id=c6dbfe3a-778e-4feb-a239-ec2047606780&amp;img_etag=%22899212d47bede6fd99bc9c75f25766d1%22&amp;size=1024)](https://express.adobe.com/page/S8dheRxnPzYL6/images/d48feef3-6595-424b-9dad-2eecb066c55e.jpg?asset_id=c6dbfe3a-778e-4feb-a239-ec2047606780&amp;img_etag=%22899212d47bede6fd99bc9c75f25766d1%22&amp;size=1024)来源网络
-上学的时候老师告诉我，作文要写成阅卷老师喜欢的样子，那样你才能得到高分。可是我是一个长相丑陋，内心同样不够美丽的人，我不可能活成大人们期望的样子，所以家长老师的希望在我身上统统落空了，到现在我才明白，所谓的家长和老师只不过是为了自己的那份荣誉或者是虚荣心才逼迫孩子的。也许我也会逼迫自己的孩子做他不喜欢的事情，虽然我知道我的希望和现实相差太远。所有的父母都希望自己孩子有出息，可是事实是在中共这个体制下，家庭教育、学校教育和社会教育最终把所谓的“花朵们”都培养成了中共的奴隶，只知道干活和吃饭的动物。
+翻译：**Lulumi**
 
-我总是在想这是为什么，但是总也得不到答案。为什么有希望的一代人最后变成了木头人？变成了工具？为什么现实生活中最辛苦的人，反而对生活如此的向往和抱有希望？为什么他们意识不到自己是被邪恶中共奴役的，结局注定是悲剧？
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1397.png)2022年2月10日，在北京冬奥会冰球男子预赛A组比赛中，美国队的内森·史密斯在球队攻破中国队门将杰里米·史密斯的球门后进行庆祝。(盖蒂图片)
 
-有时候我在刷短视频时，总能看到很多身患绝症的人在直播卖货，为了自己的医药费乞求网友买他一单货，你知道他卖的什么吗？是垃圾桶塑料袋。与中共国的天价医药费相比，如此利润微薄的塑料袋竟然成了他活命的希望。围观的人都知道垃圾桶、塑料袋不可能为他们的生活带来任何光明和希望，可是这些生活在社会最底层的绝症患者们有其他的选择吗？中共掠夺了本属于百姓的资源，挥霍了百姓创造的财富，到头来生病生不起，活也活不起，死更死不起。更可悲的是被中共长期洗脑的百姓却浑然不知这一切都是中共造的孽，对这个烂透了的体制依然抱有一丝希望。
-[![](https://express.adobe.com/page/S8dheRxnPzYL6/images/6f4ab6b5-c2d9-4d98-9f16-305235433979.jpg?asset_id=4551b517-974d-42c0-9276-ed5964fe7c6f&amp;img_etag=%226d8305a4a73c6e9ee6e29b9fda055188%22&amp;size=1024)](https://express.adobe.com/page/S8dheRxnPzYL6/images/6f4ab6b5-c2d9-4d98-9f16-305235433979.jpg?asset_id=4551b517-974d-42c0-9276-ed5964fe7c6f&amp;img_etag=%226d8305a4a73c6e9ee6e29b9fda055188%22&amp;size=1024)
-来源网络
+中共曾将其奥运冰球的希望寄托在一支主要由欧美出生的球员组成的队伍上。现实是他们在首次亮相中受到沉重打击。
 
-中国人就是这么可悲，自己活得如同乞丐一样却依然寄希望于别人，寄希望于这个被中共糟蹋得体无完肤的社会，从来不问是谁将苦难带给了中国人民。我在无数癌症患者的直播平台上留言，尝试分享我的想法，让他们明白自救的重要性，尽管只有一个人回复我，我也觉得很欣慰和很有意义，我更相信一个明是非、知善恶的坚强自救的人一定会得到天助。
+周四晚上，在1000名观众面前，挤满了来自美国和加拿大的外国出生的新兵的中国冰球队，被一支面目一新的美国队以8比0击败。
 
-我们新中国联邦人是最先开智的那一批人，我们有责任和义务传播真相，让更多的同胞们觉醒，让他们知晓是谁造就了今天的苦难，是谁让中国人变得是非不分、善恶不明。不要悲伤，战友们行动起来吧，我们的每一次分享、传播、自救、救人都会使苟延残喘的中共距离灭亡更近一步，保重待天明。
+对一些人来说，这个结果并不令人惊讶。冰球在中国不是一项很流行的运动。七年前当北京赢得2022年奥运会主办权时，北京自动获得这项运动的参赛资格，但中国从未参加过男子冰球的奥运比赛，而且是有史以来获得此类赛事资格的得分最低的球队。
 
-*编辑：【英国伦敦喜庄园编辑部】*
+北京的解决方案是在全世界范围内寻找选手。在男子曲棍球队的25名球员中，有14人在美国和加拿大出生或长大，还有一人来自俄罗斯。女队面临同样的问题，从海外招募了23人中的13人。所有的外国球员在转换身份后都被冠以中国名字。
 
-*校对：仙女儿-文善  | 审核：文明明  | Page: Daoiii*
+如果球员已经在一个国家的联赛中生活和比赛了两年，国际冰球联合会允许他们代表这个国家。因此，2016年成立了一支新的中国球队HC昆仑红星，加入俄罗斯的职业联赛Kontinental Hockey League，为中国派出这些新的男子冰球员。中国没有自己的职业冰球联赛。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+但在过去的几个赛季中，中国球队的表现乏善可陈。事实上，球员的能力如此令人担忧，以至于国际冰球联合会认真考虑将中国国家队排除在奥运会之外，这对中共国这个主办国是一记响亮的耳光。
 
-[![](https://express.adobe.com/page/S8dheRxnPzYL6/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://express.adobe.com/page/S8dheRxnPzYL6/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+详细英文报道请看大纪元新闻链接。
+
+素材链接：[theepochtimes.com][China’s Foreign-Sourced Ice Hockey Team Suffers Crushing Defeat to US on Olympic Debut](https://www.theepochtimes.com/chinas-foreign-sourced-ice-hockey-team-suffer-crushing-defeat-to-us-on-olympic-debut_4273151.html?utm_source=uschinaia&amp;utm_campaign=uschina-2022-02-12&amp;utm_medium=email&amp;est=Q%2FCTrJ8ziSa03pyZYfUi9dYnXLd5np2ed5nQypclJOZz9%2Fk7CJ4cvoetgeDelpdFyQQtsCI%3D)
+
+* * *
+
+*审核：文乐
+校对：小东
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

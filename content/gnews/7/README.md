@@ -2,56 +2,46 @@
 ---
 
 
-## 美国上诉法院不会恢复拜登对联邦雇员的疫苗授权
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2003479/)
+## 中共间谍单伟建将美国养老基金出售给中共
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2003511/)
 
-编译： Jenny Ball
+#### **【雅典娜观察】和您一起洞察世界**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/joe-biden-2-1-700x420-1.jpeg)Anna Moneymaker/Getty Images
+**翻译/编辑：文泓**
 
-美国上诉法院小组周三表示，不会恢复乔·拜登总统对联邦雇员的 COVID-19 疫苗授权，拒绝推翻下级法院暂停该命令的裁决。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/23-1.png)图片来源：信报
 
-第五巡回上诉法院以 2 比 1 的投票结果，维持下级法院对该授权的禁令，并要求双方在 3 月提交论据。
 
-下级法院对该授权的禁令是由德克萨斯州地区法官杰弗里·布朗（Jeffrey Brown）上个月发布的，他裁定拜登无权实施这样的授权。
+2月14日，在美国著名免费在线新闻网站上发布了一篇关于太平洋联盟集团（PAG）董事长兼首席执行官，中共间谍单伟建的文章，揭露超过4000亿美元的美国公共养老基金由于中共间谍单伟建的欺诈活动而永远消失。
 
-在长达 20 页的裁决中，法官站在原告一边，他们认为，联邦法律条款并未赋予政府强制执行任务。
+目前，美国一些最重要的养老基金投资了中共国上市公司海康威视。这家公司是世界上最大的视频监控系统的供应商，早在2019年10月被美国商务部列入贸易黑名单，川普政府表示，海康威视“参与了中共对维吾尔人、哈萨克人和其他穆斯林少数群体镇压、大规模任意拘留和高科技监控的行动”，帮助独裁中共政权迫害中国西部的新疆穆斯林少数民族。
 
-政府的律师表示，联邦法律规定，总统“可以为行政部门雇员的行为制定规定”，接种疫苗的行为是“明显的行为”。
+如此看来，美国的养老基金间接支持了中共大规模任意拘押新疆人。但是，到底是谁负责向共产主义中国出售美国养老基金吗？正是中共高级间谍太平洋联盟集团（PAG）董事长兼首席执行官单伟建将美国人民的毕生积蓄卖给了中共国。
 
-但原告表示，引用的行为必须是“工作场所行为”，拜登才能对其进行监管。
+美国政府和议会应彻查中共头号间谍单伟建及其太盟集团将数千万美国人的退休基金投入中共控制的从事犯罪活动公司的行为。美国是世界民主自由的灯塔，尽管如此，美国人民的养老基金仍被用于在关押超过100万维吾尔人的新疆拘留营中安装监控摄像头。
 
-“那么，是否需要接种 COVID-19 疫苗，尤其是对作为就业和工作场所的行为对条件下？在本月早些时候最高法院作出裁决后，这个问题的答案变得更加清晰，”布朗说，他提到了最高法院在 1 月初的裁决，即拜登对私营企业的疫苗授权，似乎超出了他的职权范围。
+单伟建和他的太盟集团利用虚假的市场报告和伪造的财务数据，在没有披露国家安全、洗钱和人权方面的尽职调查的情况下，引诱美国投资组合基金为中共相关基金做投资索引。例如，佛罗里达州和纽约州的养老基金、CalSTRS和CalPERS投资中共国上市公司科大讯飞数百万股。这家由政府控制的语音识别公司协助中共独裁者监控14亿中国人的日常通信，其中，CalPERS已经在中共的公司中投资了31亿美元。CalPERS的首席信息官孟宇先生是通过中共的千人计划聘用的，该计划由单伟建和他的太盟集团发起和推动。
 
-在周三的裁决中，第五巡回上诉法院没有做出解释。
+这位孟先生自述，1970年出生于中国，第一次来到美国时“带着一个背包和200美元”，之后在加州大学获得学位成为美国公民，曾在华尔街多家投行担任多个职务，孟先生于2008年首次加入 CalPERS，在那里担任了7年的投资总监，然后，在中共国家外管局担任副首席信息官。其情节跟“走出大漠戈壁的投资人”单伟建异曲同工。2020年于8月5日，孟在被指控违反披露规定和利益冲突后辞职。
 
-奥巴马任命的斯蒂芬·希金森（Stephen A. Higginson）法官在他对裁决的异议中辩称，在德克萨斯州南区的一名法官发布全国性初步禁令之前，其他 12 个地区法院拒绝了阻止该命令的请求。
+前国务卿迈克·蓬佩奥早在2020年便警告美国人，“加州的投资组合基金投资于为中共解放军（PLA）供应物资的公司，这些公司将美国士兵、水手、空军和海军陆战队置于高风险之中。”
 
-“今天，我们的法院也拒绝裁决，”希金森写道。 “因此，一项影响数百万联邦雇员的总统令已在全国范围内颁布，但两个独立的联邦法院，未能就政府的紧急暂缓请求作出裁决。现在唯一能及时提供决案的是最高法院。”
+为什么爱好和平的美国人允许他们的退休金资助共产党公司来破坏香港的民主和自由，并在新疆实施种族灭绝？是时候追究单伟建给美国养老基金造成超过4000亿美元损失的责任了吗？将如何弥补给美国人民造成的损失？
 
-上诉法院的裁决意味着，该案现在可以提交给最高法院。
+参考链接：
 
-拜登在 9 月要求联邦工作人员在 11 月 22 日之前接种 COVID-19 疫苗，否则将面临纪律处分或解雇。
+1、[The Chairman & CEO of Pacific Alliance Group (PAG), CCP’s Spy, Weijian Shan, Sold U.S. Pensions Funds to Communist China (prfree.org)](https://www.prfree.org/news-the-chairman-ceo-of-pacific-alliance-group-pag-ccps-spy-weijian-shan-sold-us-pensions-funds-to-communist-china-1058216.html)
 
-总统的行政命令取消了工人和承包商选择不接种疫苗的选项，除非他们申请宗教或医疗豁免，因为，工人之前可以出于任何原因选择不接种疫苗。
+2、[The Crucifixion of Ben Meng | Institutional Investor](https://www.institutionalinvestor.com/article/b1mz3b224c6m4y/The-Crucifixion-of-Ben-Meng)
 
-（点评：这是宪法赋予每个美国人的权利：我的身体我做主。）
+发布：tianzhihuan
 
-该命令影响了大约350万政府工作人员。
-
-目前，拜登政府对医护人员的 COVID-19 疫苗授权是唯一有效的联邦授权，最高法院允许该规则在 1 月份生效。
-
-**评论：作为非律师人士，译者认为拜登政府的强制疫苗授权，不是权限问题，而是严重违反了宪法，侵犯了美国人民最基本的权利。**
-
-**参考资料：**[theepochtimes][US Appeals Court Will Not Reinstate Biden’s Vaccine Mandate for Federal Employees](https://www.theepochtimes.com/us-appeals-court-will-not-reinstate-bidens-vaccine-mandate-for-federal-employees_4268882.html?utm_source=Morningbrief&amp;utm_campaign=mb-2022-02-11&amp;utm_medium=email&amp;est=d9qsVHCodm+sVk837i2r+f6peukA/7dGS00j4pSlq7XpBbaeA6gh3pj7DPalNKv1eBNOmQ==)
-
-* * *
-
-*审核：文乐
-校对：小东
-发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1.jpeg)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
