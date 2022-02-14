@@ -15,151 +15,151 @@
 
 ---
 
-### [【G时新闻】安大略省宣布进入紧急状态，法院对加美边境的卡车封锁发出禁令](/content/gnews/1/README.md)
- ` G-时新闻`
-
-### [世茂集团急于出售上海佘山深坑酒店 售价22.5亿元](/content/gnews/2/README.md)
- ` 日本东京方舟农场`
-
-### [有声|《疫苗后遗症》导演讲述伊维菌素](/content/gnews/3/README.md)
+### [有声|美参议员称中共病毒团伙难以承受真相后果](/content/gnews/1/README.md)
  ` MOSREC`
 
-### [2/13/2022 文贵直播：国际奥委会是犯罪组织，其罪行罄竹难书；被中共腐败的WTO、WHO和联合国人权理事会等国际组织无法无天，跟中共沆瀣一气压迫中国人](/content/gnews/4/README.md)
- ` 秘密翻译组-北美组`
+### [PCR测试拭子含环氧乙烷致癌物](/content/gnews/2/README.md)
+ ` 温哥华扬帆农场`
 
-### [犯罪率飙升佛州超市被迫“牛肉加锁”](/content/gnews/5/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [Victor Gao说彭帅身高1.75米，不可能被张高丽性侵](/content/gnews/6/README.md)
- ` DC政经`
-
-### [加拿大曼尼托巴省宣布结束疫苗护照和口罩强制令](/content/gnews/7/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [DC大中华时事：中共编造冬奥会谎言](/content/gnews/8/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [20220213郭文贵大直播 ：物质生活不一定决定你的信仰，但绝对会影响你的信仰！](/content/gnews/9/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [每日快报：拜登警告普京，美国军方会在一小时内做出回应](/content/gnews/10/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [樱花FM┃中日财经爆┃美国考虑与盟国合作对中共国征收新关税](/content/gnews/11/README.md)
- ` 樱花FM`
-
-### [20220213郭文贵大直播 ：不超过3次直播，世界巨变](/content/gnews/12/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [安省宣布紧急状态对卡车封锁发出禁令](/content/gnews/13/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [班农专访3: 中共国拐卖幼女案坐实人权侵犯](/content/gnews/14/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [DC大中华时事：中国大专应届毕业生首度破千万](/content/gnews/15/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [2022年2月14日，全球中共病毒疫情情况汇总](/content/gnews/16/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [20220213郭文贵大直播 应该喊口号，我们是无苗灭共者](/content/gnews/17/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共背后捣鬼，俄乌大战一触即发](/content/gnews/18/README.md)
- ` 波士顿五月花农场`
-
-### [NewSGman┃纽约污水中发现超过4种冠状病毒不明突变](/content/gnews/19/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [甜蜜蜜](/content/gnews/20/README.md)
- ` 纽约香草山MOS03`
-
-### [从单伟建的履历看社会制度与人性的关系(二)](/content/gnews/21/README.md)
- ` 纽约香草山MOS03`
-
-### [视频| 郭先生为何没有获得美国的政治庇护](/content/gnews/22/README.md)
+### [有声|中共在北京冬奥会上的造假登峰造极](/content/gnews/3/README.md)
  ` MOSREC`
 
-### [2/13/2022 文贵直播：耗费上万亿美元民脂民膏的冬奥会却让全世界看到中共国的假和骗、腐败、和毫无底线的互害，冬奥会将让中共国经济崩溃、并引发全球排华](/content/gnews/23/README.md)
- ` 秘密翻译组-北美组`
+### [有声|索马里兰称中共无权在台湾问题上向其发号施令](/content/gnews/4/README.md)
+ ` MOSREC`
 
-### [DC每日热点0214](/content/gnews/24/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [张艺谋的较真](/content/gnews/5/README.md)
+ ` 纽约香草山MOS03`
 
-### [20220213郭文贵大直播：疫苗灾难过后，改变世界格局的三件大事](/content/gnews/25/README.md)
- ` Tokyo Sakura Video Group`
-
-### [20220213郭文贵大直播 ：喜币的成功与冬奥会的造假，只有爆料革命新中国联帮告诉全世界真相](/content/gnews/26/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [大直播后记：Hpay是财富密码](/content/gnews/27/README.md)
- ` 雅典娜GNotes`
-
-### [诺贝尔奖得主吕克·蒙塔尼耶去世](/content/gnews/28/README.md)
- ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
-
-### [NewSGman┃中共统治下的悲惨——徐州八孩母亲](/content/gnews/29/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [特鲁多对加拿大人来说是耻辱，如果有人从他桌上把食物拿走，他会做什么？](/content/gnews/30/README.md)
+### [来自一名渥太华警员的信息：卡车司机们为渥太华无家可归者做的事情比可怜的市长所做的还要多](/content/gnews/6/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [大理灭门案22年后将再审：被“杀人犯”改写的四代人](/content/gnews/31/README.md)
- ` 纽约香草山MOS03`
+### [倡导者说13到19岁的青少年都是疫苗第三针的“合格者”](/content/gnews/7/README.md)
+ ` 温哥华圆成农场🇨🇦`
 
-### [盖特将确保大卡车运动的信息顺利传递出去](/content/gnews/32/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [有声|美印太战略应对中共威胁维护台海和平](/content/gnews/8/README.md)
+ ` MOSREC`
 
-### [锁链女案件折射出中共治下的黑暗](/content/gnews/33/README.md)
+### [【G时新闻】安大略省宣布进入紧急状态，法院对加美边境的卡车封锁发出禁令](/content/gnews/9/README.md)
+ ` G-时新闻`
+
+### [中共纵容买妻以及民众的平庸之恶](/content/gnews/10/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [张艺谋的较真](/content/gnews/11/README.md)
+ ` genwsGNEWS`
+
+### [世茂集团急于出售上海佘山深坑酒店 售价22.5亿元](/content/gnews/12/README.md)
  ` 日本东京方舟农场`
 
-### [奥运村芬兰村的天花板水管漏水](/content/gnews/34/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [有声|《疫苗后遗症》导演讲述伊维菌素](/content/gnews/13/README.md)
+ ` MOSREC`
 
-### [新闻述评：北京冬奥吉祥物“冰墩墩”是熊猫外交的变体](/content/gnews/35/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [2/13/2022 文贵直播：国际奥委会是犯罪组织，其罪行罄竹难书；被中共腐败的WTO、WHO和联合国人权理事会等国际组织无法无天，跟中共沆瀣一气压迫中国人](/content/gnews/14/README.md)
+ ` 秘密翻译组-北美组`
 
-### [乌克兰可能为避免战争放弃加入北约申请](/content/gnews/36/README.md)
- ` Shuizhuyu`
+### [犯罪率飙升佛州超市被迫“牛肉加锁”](/content/gnews/15/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [2/14/2022国际财经快讯：加拿大家庭大面积离开城市助长工资通货膨胀；乌克兰忧虑导致石油达7年峰值](/content/gnews/37/README.md)
- ` 秘密翻译组金融团队`
+### [爆料革命预警勿打疫苗功德初现](/content/gnews/16/README.md)
+ ` NFSC News`
 
-### [中共国将不允许“非必要”的旅行目的护照更新](/content/gnews/38/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [Victor Gao说彭帅身高1.75米，不可能被张高丽性侵](/content/gnews/17/README.md)
+ ` DC政经`
 
-### [中日财经爆|日本央行三年半来首次进行“限价操作”](/content/gnews/39/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [下周也许决定乌克兰的命运是战争 和平或僵局](/content/gnews/40/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [卡车司机抗议传导至法国 警方强行驱离](/content/gnews/41/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [超过13万名俄罗斯军队目前在乌克兰境外驻扎](/content/gnews/42/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [中共国令人震惊的贩卖妇女案件数量](/content/gnews/43/README.md)
+### [加拿大曼尼托巴省宣布结束疫苗护照和口罩强制令](/content/gnews/18/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共末日疯狂被利用，银行增发助Hcoin（喜币）成赢家](/content/gnews/44/README.md)
- ` YALUN 亚伦`
+### [DC大中华时事：中共编造冬奥会谎言](/content/gnews/19/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [澳大利亚开始撤离基辅大使馆](/content/gnews/45/README.md)
+### [20220213郭文贵大直播 ：物质生活不一定决定你的信仰，但绝对会影响你的信仰！](/content/gnews/20/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [每日快报：拜登警告普京，美国军方会在一小时内做出回应](/content/gnews/21/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [樱花FM┃中日财经爆┃美国考虑与盟国合作对中共国征收新关税](/content/gnews/22/README.md)
+ ` 樱花FM`
+
+### [20220213郭文贵大直播 ：不超过3次直播，世界巨变](/content/gnews/23/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [安省宣布紧急状态对卡车封锁发出禁令](/content/gnews/24/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [班农专访3: 中共国拐卖幼女案坐实人权侵犯](/content/gnews/25/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [DC大中华时事：中国大专应届毕业生首度破千万](/content/gnews/26/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [20220213郭文贵大直播 应该喊口号，我们是无苗灭共者](/content/gnews/27/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [NewSGman┃纽约污水中发现超过4种冠状病毒不明突变](/content/gnews/28/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [甜蜜蜜](/content/gnews/29/README.md)
+ ` 纽约香草山MOS03`
+
+### [从单伟建的履历看社会制度与人性的关系(二)](/content/gnews/30/README.md)
+ ` 纽约香草山MOS03`
+
+### [NewSGman┃疫情新闻全球速报（2月12日）](/content/gnews/31/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [特鲁多对加拿大人来说是耻辱，如果有人从他桌上把食物拿走，他会做什么？](/content/gnews/32/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [盖特将确保大卡车运动的信息顺利传递出去](/content/gnews/33/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [锁链女案件折射出中共治下的黑暗](/content/gnews/34/README.md)
+ ` 日本东京方舟农场`
+
+### [奥运村芬兰村的天花板水管漏水](/content/gnews/35/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [新闻述评：北京冬奥吉祥物“冰墩墩”是熊猫外交的变体](/content/gnews/36/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [乌克兰可能为避免战争放弃加入北约申请](/content/gnews/37/README.md)
+ ` Shuizhuyu`
+
+### [2/14/2022国际财经快讯：加拿大家庭大面积离开城市助长工资通货膨胀；乌克兰忧虑导致石油达7年峰值](/content/gnews/38/README.md)
+ ` 秘密翻译组金融团队`
+
+### [中共国将不允许“非必要”的旅行目的护照更新](/content/gnews/39/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中日财经爆|日本央行三年半来首次进行“限价操作”](/content/gnews/40/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [下周也许决定乌克兰的命运是战争 和平或僵局](/content/gnews/41/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [喜马拉雅币一周分析与总结（2月7日-2月13日）](/content/gnews/46/README.md)
+### [卡车司机抗议传导至法国 警方强行驱离](/content/gnews/42/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [超过13万名俄罗斯军队目前在乌克兰境外驻扎](/content/gnews/43/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中共国令人震惊的贩卖妇女案件数量](/content/gnews/44/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中共末日疯狂被利用，银行增发助Hcoin（喜币）成赢家](/content/gnews/45/README.md)
+ ` YALUN 亚伦`
+
+### [澳大利亚开始撤离基辅大使馆](/content/gnews/46/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [喜马拉雅币一周分析与总结（2月7日-2月13日）](/content/gnews/47/README.md)
  ` NFSC News`
 
-### [中共国人均可支配收入占GDP之比回到改革开放前](/content/gnews/47/README.md)
+### [中共国人均可支配收入占GDP之比回到改革开放前](/content/gnews/48/README.md)
  ` NFSC News`
 
-### [德转强硬 将中共定为体制竞争对手](/content/gnews/48/README.md)
- ` NFSC News`
-
-### [美参议员称中共病毒团伙难以承受真相后果](/content/gnews/49/README.md)
+### [德转强硬 将中共定为体制竞争对手](/content/gnews/49/README.md)
  ` NFSC News`
 
 ### [美在所罗门群岛重设大使馆 防堵中共](/content/gnews/50/README.md)
