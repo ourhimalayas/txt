@@ -2,36 +2,20 @@
 ---
 
 
-## 喜币必将在未来世界经济格局中占据重要地位
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2004544/)
+## 有声|灭共是人类有史以来最艰巨的事业
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2004675/)
 
-作者：纽约香草山农场-Ivy001
+配音：香草山健身部 – 玫瑰园
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月13日，郭文贵先生在大直播中谈及世界经济的变化和走向时，再次强调喜币和喜支付未来具有重大价值。
+郭文贵先生在2月9日大直播中表示：新中国联邦正在充分利用北京冬奥会这个契机灭共，现场战友随时准备哼唱《灭共的雪》，周围人群一旦有感觉，将处处有人回应。以“一切都是刚刚开始” ，“甜蜜蜜”等暗号回应。灭共的力量在冬奥现场无处不在，爆料革命已深入人心，星星之火正在燎原。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide5-8.jpeg)
+纵观人类历史，爆料革命和新中国联邦的广大战友所参与的这场灭共事业，是一场前无古人的运动：在人类即将屈服于中共的淫威之际，在我们手无寸铁、还要尽量确保不发生流血冲突的情况下消灭共产党。其难度之大可见一斑。
 
-郭先生认为，目前世界的经济脉络，主要在三条线上：第一是科技文明发展，科学的创意；第二是物流，98%人口在陆地上生活，没有任何交通工具可以代替货车。第三，是人与人之间、直接的货币流通，就像喜支付的功能一样。因此其发展趋势无人能挡。
+文字版原文：[灭共是人类有史以来最艰巨的事业](https://gnews.org/zh-hans/1998985/)
 
-喜币和喜支付的价值，源于四个无可匹敌的设计：
+音频处理/发稿：Daxia
 
-第一，传统银行会增发货币，而喜币不会增发。
-
-第二，传统银行有不兑现的权利。喜币绝不可能不兑现。
-
-第三，银行是一个支付的中介，是第三方。喜币通过喜支付直接交易，喜联储不能控制，没有第三方。
-
-第四，喜支付没有成本，没有第三方；喜币绝对原值，不可增发。世界上没有一家银行不增发。只有喜币，在上市之初，已经具体说明了发行的数量。一年只发行十亿个，多一个都是犯罪。
-
-世界一切都在变化， 全球的格局也会重新洗牌，喜币和喜支付必将在世界的未来占据重要的地位。
-
-参考链接： [2022年2月13日 文贵大直播：加拿大卡车清理事件；冬奥会连续爆丑闻；世界经济市场突发；西方法律系统渗透](https://gtv.org/video/id=62090115a456fe1dea300f5a)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
-
-总编：文真
-编辑：Jack Li文阳
-校正/发稿：谐趣园
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -39,7 +23,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

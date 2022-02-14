@@ -15,195 +15,198 @@
 
 ---
 
-### [与瑞士银行打官司要搞清楚它帮中共干了什么?](/content/gnews/1/README.md)
+### [有声|谷爱凌事件对亚裔的伤害难以弥补](/content/gnews/1/README.md)
+ ` MOSREC`
+
+### [有声|灭共是人类有史以来最艰巨的事业](/content/gnews/2/README.md)
+ ` MOSREC`
+
+### [加拿大安省宣布从3月1日起取消疫苗护照](/content/gnews/3/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [郭文贵盖特音频2022.02.14](/content/gnews/4/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [喜币必将在未来世界经济格局中占据重要地位](/content/gnews/2/README.md)
+### [NFSC新闻、G|TV新闻访谈简报|2022年2月14日早](/content/gnews/5/README.md)
+ ` 纽约香草山MOS01`
+
+### [有声|美国正在挫败中共在非洲的大西洋基地计划](/content/gnews/6/README.md)
+ ` MOSREC`
+
+### [有声|喜币必将占据未来世界经济格局中重要一席](/content/gnews/7/README.md)
+ ` MOSREC`
+
+### [郭文贵先生解释为何希望中共举办冬奥会](/content/gnews/8/README.md)
  ` NFSC News`
 
-### [秘翻在线：笔者斗胆猜测：甜蜜蜜灭了北京冬奥会的圣火](/content/gnews/3/README.md)
+### [有声|中共国人均可支配收入占GDP之比回到改革开放前](/content/gnews/9/README.md)
+ ` MOSREC`
+
+### [罗杰-霍德金森抨击中共病毒疫苗](/content/gnews/10/README.md)
+ ` NFSC News`
+
+### [疫苗未能降低感染 引发其它病症死亡率上升](/content/gnews/11/README.md)
+ ` NFSC News`
+
+### [北京冬奥会假骗震惊世界](/content/gnews/12/README.md)
+ ` NFSC News`
+
+### [与瑞士银行打官司要搞清楚它帮中共干了什么?](/content/gnews/13/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [喜币必将在未来世界经济格局中占据重要地位](/content/gnews/14/README.md)
+ ` NFSC News`
+
+### [秘翻在线：笔者斗胆猜测：甜蜜蜜灭了北京冬奥会的圣火](/content/gnews/15/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声|德转强硬 将中共定为体制竞争对手](/content/gnews/4/README.md)
+### [有声|德转强硬 将中共定为体制竞争对手](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [有声|美在所罗门群岛重设大使馆 防堵中共](/content/gnews/5/README.md)
+### [有声|美在所罗门群岛重设大使馆 防堵中共](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [有声|美参议员称中共病毒团伙难以承受真相后果](/content/gnews/6/README.md)
+### [国际组织与中共勾兑是世界堕落的根本原因](/content/gnews/18/README.md)
+ ` NFSC News`
+
+### [有声|美参议员称中共病毒团伙难以承受真相后果](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [PCR测试拭子含环氧乙烷致癌物](/content/gnews/7/README.md)
+### [NewSGman┃疫情新闻全球速报（2月10日）](/content/gnews/20/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [PCR测试拭子含环氧乙烷致癌物](/content/gnews/21/README.md)
  ` 温哥华扬帆农场`
 
-### [有声|中共在北京冬奥会上的造假登峰造极](/content/gnews/8/README.md)
+### [有声|中共在北京冬奥会上的造假登峰造极](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [有声|索马里兰称中共无权在台湾问题上向其发号施令](/content/gnews/9/README.md)
+### [有声|索马里兰称中共无权在台湾问题上向其发号施令](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [张艺谋的较真](/content/gnews/10/README.md)
+### [张艺谋的较真](/content/gnews/24/README.md)
  ` 纽约香草山MOS03`
 
-### [来自一名渥太华警员的信息：卡车司机们为渥太华无家可归者做的事情比可怜的市长所做的还要多](/content/gnews/11/README.md)
+### [来自一名渥太华警员的信息：卡车司机们为渥太华无家可归者做的事情比可怜的市长所做的还要多](/content/gnews/25/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [倡导者说13到19岁的青少年都是疫苗第三针的“合格者”](/content/gnews/12/README.md)
+### [倡导者说13到19岁的青少年都是疫苗第三针的“合格者”](/content/gnews/26/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [有声|美印太战略应对中共威胁维护台海和平](/content/gnews/13/README.md)
- ` MOSREC`
-
-### [【G时新闻】安大略省宣布进入紧急状态，法院对加美边境的卡车封锁发出禁令](/content/gnews/14/README.md)
- ` G-时新闻`
-
-### [中共纵容买妻以及民众的平庸之恶](/content/gnews/15/README.md)
+### [中共纵容买妻以及民众的平庸之恶](/content/gnews/27/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [张艺谋的较真](/content/gnews/16/README.md)
+### [张艺谋的较真](/content/gnews/28/README.md)
  ` genwsGNEWS`
 
-### [世茂集团急于出售上海佘山深坑酒店 售价22.5亿元](/content/gnews/17/README.md)
- ` 日本东京方舟农场`
-
-### [有声|《疫苗后遗症》导演讲述伊维菌素](/content/gnews/18/README.md)
- ` MOSREC`
-
-### [2/13/2022 文贵直播：国际奥委会是犯罪组织，其罪行罄竹难书；被中共腐败的WTO、WHO和联合国人权理事会等国际组织无法无天，跟中共沆瀣一气压迫中国人](/content/gnews/19/README.md)
+### [2/13/2022 文贵直播：国际奥委会是犯罪组织，其罪行罄竹难书；被中共腐败的WTO、WHO和联合国人权理事会等国际组织无法无天，跟中共沆瀣一气压迫中国人](/content/gnews/29/README.md)
  ` 秘密翻译组-北美组`
 
-### [爆料革命预警勿打疫苗功德初现](/content/gnews/20/README.md)
+### [爆料革命预警勿打疫苗功德初现](/content/gnews/30/README.md)
  ` NFSC News`
 
-### [Victor Gao说彭帅身高1.75米，不可能被张高丽性侵](/content/gnews/21/README.md)
- ` DC政经`
-
-### [加拿大曼尼托巴省宣布结束疫苗护照和口罩强制令](/content/gnews/22/README.md)
+### [加拿大曼尼托巴省宣布结束疫苗护照和口罩强制令](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [DC大中华时事：中共编造冬奥会谎言](/content/gnews/23/README.md)
+### [DC大中华时事：中共编造冬奥会谎言](/content/gnews/32/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [20220213郭文贵大直播 ：物质生活不一定决定你的信仰，但绝对会影响你的信仰！](/content/gnews/24/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [每日快报：拜登警告普京，美国军方会在一小时内做出回应](/content/gnews/25/README.md)
+### [每日快报：拜登警告普京，美国军方会在一小时内做出回应](/content/gnews/33/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [樱花FM┃中日财经爆┃美国考虑与盟国合作对中共国征收新关税](/content/gnews/26/README.md)
+### [樱花FM┃中日财经爆┃美国考虑与盟国合作对中共国征收新关税](/content/gnews/34/README.md)
  ` 樱花FM`
 
-### [安省宣布紧急状态对卡车封锁发出禁令](/content/gnews/27/README.md)
+### [安省宣布紧急状态对卡车封锁发出禁令](/content/gnews/35/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [DC大中华时事：中国大专应届毕业生首度破千万](/content/gnews/28/README.md)
+### [DC大中华时事：中国大专应届毕业生首度破千万](/content/gnews/36/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [NewSGman┃纽约污水中发现超过4种冠状病毒不明突变](/content/gnews/29/README.md)
+### [NewSGman┃疫情新闻全球速报（2月12日）](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [从单伟建的履历看社会制度与人性的关系(二)](/content/gnews/30/README.md)
- ` 纽约香草山MOS03`
-
-### [NewSGman┃疫情新闻全球速报（2月12日）](/content/gnews/31/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [特鲁多对加拿大人来说是耻辱，如果有人从他桌上把食物拿走，他会做什么？](/content/gnews/32/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [盖特将确保大卡车运动的信息顺利传递出去](/content/gnews/33/README.md)
+### [盖特将确保大卡车运动的信息顺利传递出去](/content/gnews/38/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [锁链女案件折射出中共治下的黑暗](/content/gnews/34/README.md)
- ` 日本东京方舟农场`
-
-### [奥运村芬兰村的天花板水管漏水](/content/gnews/35/README.md)
+### [奥运村芬兰村的天花板水管漏水](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [新闻述评：北京冬奥吉祥物“冰墩墩”是熊猫外交的变体](/content/gnews/36/README.md)
+### [新闻述评：北京冬奥吉祥物“冰墩墩”是熊猫外交的变体](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [乌克兰可能为避免战争放弃加入北约申请](/content/gnews/37/README.md)
+### [乌克兰可能为避免战争放弃加入北约申请](/content/gnews/41/README.md)
  ` Shuizhuyu`
 
-### [2/14/2022国际财经快讯：加拿大家庭大面积离开城市助长工资通货膨胀；乌克兰忧虑导致石油达7年峰值](/content/gnews/38/README.md)
+### [2/14/2022国际财经快讯：加拿大家庭大面积离开城市助长工资通货膨胀；乌克兰忧虑导致石油达7年峰值](/content/gnews/42/README.md)
  ` 秘密翻译组金融团队`
 
-### [中共国将不允许“非必要”的旅行目的护照更新](/content/gnews/39/README.md)
+### [中共国将不允许“非必要”的旅行目的护照更新](/content/gnews/43/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆|日本央行三年半来首次进行“限价操作”](/content/gnews/40/README.md)
+### [中日财经爆|日本央行三年半来首次进行“限价操作”](/content/gnews/44/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [下周也许决定乌克兰的命运是战争 和平或僵局](/content/gnews/41/README.md)
+### [卡车司机抗议传导至法国 警方强行驱离](/content/gnews/45/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [超过13万名俄罗斯军队目前在乌克兰境外驻扎](/content/gnews/46/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [卡车司机抗议传导至法国 警方强行驱离](/content/gnews/42/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [超过13万名俄罗斯军队目前在乌克兰境外驻扎](/content/gnews/43/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [中共国令人震惊的贩卖妇女案件数量](/content/gnews/44/README.md)
+### [中共国令人震惊的贩卖妇女案件数量](/content/gnews/47/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共末日疯狂被利用，银行增发助Hcoin（喜币）成赢家](/content/gnews/45/README.md)
+### [中共末日疯狂被利用，银行增发助Hcoin（喜币）成赢家](/content/gnews/48/README.md)
  ` YALUN 亚伦`
 
-### [澳大利亚开始撤离基辅大使馆](/content/gnews/46/README.md)
+### [澳大利亚开始撤离基辅大使馆](/content/gnews/49/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [喜马拉雅币一周分析与总结（2月7日-2月13日）](/content/gnews/47/README.md)
+### [喜马拉雅币一周分析与总结（2月7日-2月13日）](/content/gnews/50/README.md)
  ` NFSC News`
 
-### [中共国人均可支配收入占GDP之比回到改革开放前](/content/gnews/48/README.md)
- ` NFSC News`
-
-### [德转强硬 将中共定为体制竞争对手](/content/gnews/49/README.md)
- ` NFSC News`
-
-### [特鲁多威胁游行者是“非法的”，并将面临严重后果](/content/gnews/50/README.md)
+### [特鲁多威胁游行者是“非法的”，并将面临严重后果](/content/gnews/51/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [多国反强制疫苗抗议活动民众被警察逮捕](/content/gnews/51/README.md)
+### [多国反强制疫苗抗议活动民众被警察逮捕](/content/gnews/52/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [停止种族灭绝游戏，停止精英的叛变，让中共蒙羞](/content/gnews/52/README.md)
+### [停止种族灭绝游戏，停止精英的叛变，让中共蒙羞](/content/gnews/53/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [安德鲁·朱利安尼将反抗民主党的中共病毒强制政策](/content/gnews/53/README.md)
+### [安德鲁·朱利安尼将反抗民主党的中共病毒强制政策](/content/gnews/54/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [赵立坚反咬美国经济胁迫](/content/gnews/54/README.md)
+### [赵立坚反咬美国经济胁迫](/content/gnews/55/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2/13/2022国内经济财经周报：1月新增贷款近4万亿，M2同比增速近10%；深圳春节楼市仅过户一套，楼市或难小阳春](/content/gnews/55/README.md)
+### [2/13/2022国内经济财经周报：1月新增贷款近4万亿，M2同比增速近10%；深圳春节楼市仅过户一套，楼市或难小阳春](/content/gnews/56/README.md)
  ` 秘密翻译组金融团队`
 
-### [美国使出核弹级大狠招，吓坏中共高官](/content/gnews/56/README.md)
+### [美国使出核弹级大狠招，吓坏中共高官](/content/gnews/57/README.md)
  ` 墨尔本雅典娜农场`
 
-### [日美韩三国外长在夏威夷会晤，讨论威慑朝鲜问题](/content/gnews/57/README.md)
+### [日美韩三国外长在夏威夷会晤，讨论威慑朝鲜问题](/content/gnews/58/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美政府承认新中国联邦是中国人民的选择](/content/gnews/58/README.md)
+### [美政府承认新中国联邦是中国人民的选择](/content/gnews/59/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [史蒂夫·班农: 全国每个主要法院都拒绝了强制疫苗授权，现在欧洲正在效仿](/content/gnews/59/README.md)
+### [史蒂夫·班农: 全国每个主要法院都拒绝了强制疫苗授权，现在欧洲正在效仿](/content/gnews/60/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [当高盛严重错失收益时，这是一个不好的迹象 这比我们想象的还要糟糕——这就是股票下跌如此之多的原因](/content/gnews/60/README.md)
+### [当高盛严重错失收益时，这是一个不好的迹象 这比我们想象的还要糟糕——这就是股票下跌如此之多的原因](/content/gnews/61/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共国希望将美国文化女性化以进行控制](/content/gnews/61/README.md)
+### [中共国希望将美国文化女性化以进行控制](/content/gnews/62/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [我们的加息系统是负利率设置的，人们不了解我们的金融体系将发生的创伤将影响您的个人生活](/content/gnews/62/README.md)
+### [我们的加息系统是负利率设置的，人们不了解我们的金融体系将发生的创伤将影响您的个人生活](/content/gnews/63/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [国防部正在把福奇暴露出来](/content/gnews/63/README.md)
+### [国防部正在把福奇暴露出来](/content/gnews/64/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [玛乔丽·泰勒·格林: “这个国家现在有很多的问题都指向福奇博士”](/content/gnews/64/README.md)
+### [玛乔丽·泰勒·格林: “这个国家现在有很多的问题都指向福奇博士”](/content/gnews/65/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 

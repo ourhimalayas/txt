@@ -2,28 +2,34 @@
 ---
 
 
-## 世茂集团急于出售上海佘山深坑酒店 售价22.5亿元
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2004377/)
+## 有声|美在所罗门群岛重设大使馆 防堵中共
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2004519/)
 
-**撰稿：日本东京方舟农场  海星**
+配音：香草山巡管部– 文凯琳
 
-近期，有记者发现世茂集团通过中介在微信朋友圈转发出售上海佘山深坑酒店的信息，售价22.5亿元。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片-1-17.jpeg)（图片来源：搜狐）
 
-据《搜狐网》报导，第一财经记者近期发现多个中介在微信朋友圈转发出售上海佘山深坑酒店的信息。有一位中介向他表示，目前其所在公司正在代理出售该酒店，报价22.5亿元。此价格与记者此前获取的世茂集团待售资产清单信息一致。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-该报导称，有消息人士透露，中共国资企业曾与世茂集团有过接触，欲接手深坑酒店，不过转让事项暂无实质性进展。
 
-此前，世茂集团为降低其负债，已先后出售了位于香港、上海、广州等一线城市的多处核心资产，合计回笼资金逾94亿元。
 
-参考链接：
-[https://www.sohu.com/a/522790968\_120980999](https://www.sohu.com/a/522790968_120980999)
+据多家媒体报道，2月12日，美国国务卿布林肯证实，在时隔29年后，美国计划在南太平洋岛国，所罗门群岛重新开设大使馆，在该地区投入更多外交和防卫资源，防范中共持续与太平洋岛国建立军事联系。
 
-素材采编：海星
-编辑：青城道姑
-发布：文曦
+据悉，布林肯在赴澳洲参加美日印澳四方安全对话峰会之后，转道访问斐济，并将与多名太平洋岛国领袖举行视频会议。据美国官员透露，很多迹象表明，中共妄图与太平洋岛国建立军事联系，首要目标就是所罗门群岛。而所罗门群岛2019年前曾是和台湾友好的邦交国之一，但自2019年后，它擅自背离了与台湾的外交关系，转而亲近中共。
 
+文字版原文：[美在所罗门群岛重设大使馆 防堵中共](https://gnews.org/zh-hans/2002365/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
