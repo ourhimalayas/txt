@@ -2,10 +2,10 @@
 ---
 
 
-## 德转强硬 将中共定为体制竞争对手
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2002370/)
+## 喜马拉雅币一周分析与总结（2月7日-2月13日）
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2002374/)
 
-作者：纽约香草山医疗部-云豹
+作者：香草山金融部 – ILOVE战神
 
 
 
@@ -13,16 +13,17 @@
 
 
 
-2月12日，德国媒体报导，德国外交部将发文给各政府部门，要求将中共定义为“体制竞争对手”。
+过去一周喜马拉雅币价格回落至45美元左右，平均日交易量约为12万枚喜币。喜币上市以来总交易量约2800万枚 ，占今年总发行量的仅约2.8%。目前喜币交易在全球尚未完全开放，市场交易量较低，价格仍被严重低估。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide12-4.jpg)
+最近全球战友都积极投入到喜支付的推广活动中。2月10日，台湾农场团队直播了使用HPAY购买及交付第一辆汽车的实况。交易标的是一台2019年出厂的宝马 X3休旅车二手车，交易金额约为1200 HCN。买卖双方当场使用HPAY，瞬间就完成了买车款项的支付。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Picture1-7.jpg)
+据卖家台湾农场大象表示，他选择以喜币交易，好处是可以省去被信用卡公司抽取的手续费、货款可以瞬间入账不必经由银行造成延迟收款、也可以享受未来喜币预期的涨价空间。
 
-欧盟早在2019年就已将中共视为“体制竞争对手”，但是亲中共的前任默克尔政府一直不敢表态。新任德国联合政府显然已经开始转向，不再将中共视为亲密的伙伴。组成新联合政府的三个政党，之前在对待中共的问题上曾达成协议，包括指控中共在新疆设立劳改营，以及支持让台湾参与更多国际组织等。这次德国外交部的发文显示，德国新政府将逐步落实三党与中共有关的协议内容。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-7.jpg)
-德国新政府这次并没有派官方代表去参加北京冬季奥运，而且总理萧兹将在与中共会面之前，先与印度及日本政府进行磋商商。目前属于社民党的德国总理萧兹及属于绿党的外交部长贝尔伯克都没有访问中共的计划。
-
-隶属德国绿党的欧洲议会对中关系代表团团长包瑞翰表示：新政府展现的对中共政策，比前总理默克尔更有魄力。
-
+本周据郭文贵先生在大直播中透露，俄乌政治危机对全球供应链造成巨大伤害后，数字货币将成为全球经济危机中的最大赢家，其中H-Pay将成为数字货币中的最大赢家。经过一系列事件的发酵，3个月后喜币的价格将达到之前难以想象的新高度。郭先生还表示，喜币和喜支付将打破中共对钱的垄断，让中国人真正拥有自己的财富，从而拥有自己独立的人格和思想，这些都是中国人拥有人权和真相的基础。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture-14.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/Picture2-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/Picture3-5.png)
 参考链接：
-[傳德國將硬起來 呼應歐盟視中國為體制競爭對手](https://www.cna.com.tw/news/aopl/202202120237.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+1.[Himalaya Exchange & HIMALAYA PAY – Your key to the Himalaya Ecosystem](https://himalaya.exchange/himalaya-pay)
+2. [台湾使用HPAY完成第一台汽车交易](https://gnews.org/zh-hans/1994357/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
 
