@@ -2,13 +2,13 @@
 ---
 
 
-## 多国反强制疫苗抗议活动民众被警察逮捕
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2002076/)
+## 美日澳印四方外长会谈将讨论中共强硬态度和乌克兰危机
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2002141/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/20220214-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+02/11/2022 印度媒体Wion：美日澳印四方外长会谈将讨论中共的强硬态度和乌克兰危机。中共日益强硬的态度让这四个国家感到担忧。
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
