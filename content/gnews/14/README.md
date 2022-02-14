@@ -2,26 +2,27 @@
 ---
 
 
-## 新中国联邦引领世界大卡车反抗暴政运动
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2004752/)
+## 有声|香草山翻译部周刊|2022年2月13日第35期
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2004768/)
 
-采编：青青           编辑撰稿：硫酸羟氯喹64
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/UBS1.jpg)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/a-13-edited-1.png)图片来源：gettr
+文字版原文：[香草山翻译部周刊|2022年2月13日第35期](https://gnews.org/zh-hans/2000923/)
 
+音频处理：Fei797
+发稿：Fei797
 
-据2月13日GTV大直播报道，文贵先生发起的暴料革命于2019年在香港反送中运动中所策划的使用货车和汽车以阻断中共恶警涂炭香港的行动方式，开启了世界上和平对抗暴政并使人类有效实现新型民主的先河。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
 
-报道指出，目前在加拿大和法国以及全球各地正如火如荼进行的卡车司机车队反抗疫苗暴政的集会示威活动，与两年前文贵先生在抵抗中共政权入侵香港中所采取堵塞和瘫痪当地交通的方式如出一辙。而且新中国联邦及盖特的巨大影响力在当前这些和平抗议运动中所起的实践指导作用举足轻重。
-
-对此，文贵先生指出，大卡车反疫苗政策运动的本质，就是把全球现在和未来的经济，完美地与利用政治运动来和平有效地推翻独裁统治联系在一起。如果最终能不被煽动、不使用暴力，那么大卡车运动的意义和价值将是非凡和深远的。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：文明(添草灭共)
-
-原文链接：https://gettr.com/streaming/pu9dbgdec1
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

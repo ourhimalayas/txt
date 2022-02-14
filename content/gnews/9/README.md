@@ -2,33 +2,27 @@
 ---
 
 
-## 虚拟币Hcoin是最大赢家
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2004777/)
+## 有声|NFSC新闻、G|TV新闻访谈简报|2022年2月13日早
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2004807/)
 
-整理：流氓兔、sadhu
-编辑：朝花夕拾
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/三代.jpg)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/shine_1.png)
+文字版原文：[NFSC新闻、G|TV新闻访谈简报|2022年2月13日早](https://gnews.org/zh-hans/2000786/)
 
+音频处理：Fei797
+发稿：Fei797
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
 
-图片来源：墨尔本雅典娜农场设计组614
-
-
-美元和欧元之间的关系是啥你知道吗？战友们，我可以告诉大家，就是男女之间的关系——谁没了谁都不行。很多所谓的经济专家说的话，你要相信了，那就是找死了，你有多少钱赔多少钱。美国需要欧元，但不允许你比我强大。
-
-就是美元不能没有欧元，欧元不能没有美元，因为要是美元没有了欧元，人民币就做大，瑞元就做大。不存在所谓美元要干掉欧元，不存在欧元干掉美元。只有美元会自杀或欧元会自杀，不存在这个。现在弱美元对美国经济是最好的，而且强美元，欧元也不愿意干，因为欧元不想跟俄罗斯这么弄。欧洲最核心的利益就是跟俄罗斯别打，还东扩，但是俄罗斯说“孙子，你想弄死我还跟我不打仗，那我怎么干呢我非打你不行。”对美国而言，美国是（希望）俄国你现在打吧，你打了现在对我是好事。欧洲弱，我最强。美国的海外最大利益还是欧洲。这美元和欧元之间不会导致战争，它只是利益考量的一部分。而且美国内部政治的选举即将到来，很多人说美国是最大受益者，美国和俄罗斯的游戏，绝对错了，这是一场世界上，你未来会看到这场战争发生以后，绝对是中国的习太阳对政治的无知，对国际政治的无知，和自我的狂妄，和中国的骗—互相欺骗，就像那个告诉习太阳普京说是绝美的，绝妙的这个欺骗一样，是一种国际政治欺骗和14亿中国人认为美帝国主义一直在死亡中，在堕落中，中国要领导全世界这么无知一样，是愚蠢，无知，欺骗，对国际规则完全被欺骗的老百姓造出一个集体性的自杀决定的结果。就是中国共产党疯了，而且这个疯狂被俄罗斯彻底利用，赢家一定是俄罗斯，赢家一定是美国，灭的是中国。而且欧洲因此会重生。在这个过程当中芯片、芯片产业、大型货运、石油、石油产品和和俄罗斯有关的金属产品都会暴涨，大家能赚大钱。同样的是跟这无关的因战争受影响的会赔死你。金融市场会暴跌暴涨，上上下下，不是过山车那真的是跟坐火箭上下似的。虚拟货币是大赢家，这一点大家不用想的吧？虚拟货是最大赢家，虚拟货币最大赢家就是Hpay、Hcoin还用想吗？你最好别买有种别买，大家现在卖币的人，我告诉你，你后悔早着呢，就我能看到有些战友傻乎乎的场外60，70卖了，你哭的那天很快就会到来。记住我说的，你要超过3个月，你就天天骂我郭文贵。你不知道在发生什么，此时此刻在发生什么，我没有本事决定，我没有决定权，我没有控制权，我绝对影响他们。因为什么？我所有这些关系，他们信我的。我的积累信用和知识，我说兄弟姐妹们那3招，国家主权认可，大额投资，Hpay全面使用，你去想想发生什么事情，世界所有的经济在崩塌的时候，喜联储，Hcoin、Hpay接下来的躺平币，使用即金钱，记住国内的战友们，只要使用GETTR，你使用GTV，使用GNEWS，使用HCOIN就是钱，我不跟你们开玩笑。
-
-资料来源：郭先生GTV、盖特直播
-
-发布：星谕
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
