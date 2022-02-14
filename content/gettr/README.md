@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@gwave 2/13/2022 11:39 PM (UTC)`
+
+半夜12点，终于完工！<br/>波波新开一个系列节目啦！<br/>《中共盗国集团》系列节目<br/>第一集：美国养老金猎手PAG<br/>PS：这个系列做起来很累，需要大量资料，各位亲爱的战友们多发我有价值的信息，图片文字链接都可以，波波谢过啦🙏🙏🙏
+![img](https://media.gettr.com/group21/getter/2022/02/13/23/7b47cf9a-a7a0-59f3-388f-dabad0fa9388/out.jpg)
+
+---
+
 `@miles 2/13/2022 10:46 PM (UTC)`
 
 2月13号：尊敬的战友们好，你们健身了吗？传播CCP病毒．疫苗解药的真相了吗？一切都已经开始！
@@ -147,13 +156,6 @@
 
 2/11/2022 Miles Guo: I said in 2018 that the US would enact laws to sanctions against the CCP, and now the bill has been officially introduced. Those who have not taken the COVID jabs will be the winners. Putin directly questioned the CCP's deception during the Winter Olympics, while Xi was lied to by his vassals. The CCP's ruling by deception would be the most powerful weapon to take down the CCP.<br/><br/>2/11/2022 文贵直播：文贵在2018年就说美国要立法制裁中共，现在法案已被正式提出，没打疫苗的人才会是赢家；普京在冬奥会质疑中共忽悠，而习却被蒙在鼓里，中共的以骗治国将成为灭共最有力的武器<br/>
 ![img](https://media.gettr.com/group48/getter/2022/02/12/04/ac042ff4-e7f3-8544-141e-fe500c4335cf/out.jpg)
-
----
-
-`@miles 2/12/2022 1:28 AM (UTC)`
-
-2/11/2022 Miles Guo: All those who are protesting against the COVID vaccine mandate<br/>are our fellow fighters. After the PAG case was ruled, those who want to donate money to me the most are the rich Westerners who followed my advice and didn't get the COVID jabs. The COVID vaccines and the Winter Olympics have made the world stand with us to eliminate the CCP. I have never felt so great and blessed in the cause of taking down the CCP.<br/><br/>2/11/2022 文贵直播：所有反对强打疫苗的都是我们战友！PAG判决出来后，最想要给文贵捐钱的是听了文贵的劝没打疫苗的西方富豪；疫苗和冬奥会让全世界和我们站在一起灭共；文贵从未感觉到灭共事业是如此的伟大和幸福！<br/>
-![img](https://media.gettr.com/group40/getter/2022/02/12/01/91779aa7-3f1c-40f7-b0ce-8dc3c26d3501/out.jpg)
 
 ---
 
