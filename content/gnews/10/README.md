@@ -2,37 +2,25 @@
 ---
 
 
-## 有声|美议员：共产主义是癌症 不能让它蔓延
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2004719/)
+## 美眾議院對中共提起嚴厲製裁法案
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2004733/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月10日，美国联邦参议员里克·斯科特在美国智库——美国优先政策研究所——主办的论坛上说，中共正按照它自己的计划重塑世界，如果美国人不希望他们珍视的自由被剥夺，必须采取行动。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1296.png)
-在北京冬奥会的开幕式上，一位面带微笑的维吾尔族运动员作为最后一名奥运火炬手，试图展示中共所谓的“民族团结”。斯科特对此认为：“这是一个完美的例子，说明了中共的宣传方式，他们只是想粉饰自己的罪行。”
+采編：   風雲小哥          編譯撰稿：文明(添草滅共)
 
-同一天，共和党众议员克里斯·史密斯在接受采访时也认为，北京冬奥会是希特勒1936年奥运会的翻版，中共政府就相当于当今世界的纳粹分子。已有文件清楚地表明，习近平政府正在对新疆和香港人进行种族大屠杀，包括实施严重侵犯人权的酷刑、暴虐和强制堕胎等罪恶。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/GettyImages-1153354315-640x480-1.png)圖片來源：breitbart
 
-中共是对世界秩序和美国人民生计的最大威胁，这一观点在华府得到了越来越多的共鸣。
 
-文字版原文：[美议员：共产主义是癌症 不能让它蔓延](https://gnews.org/zh-hans/1999552/)
+據【布萊特巴特新聞】近日報道，在共和黨和眾議院高層的支持下，美國眾院議員麥克萊恩提出了名為[製止中共法案]的立法議案，擬對中共黨魁習近平家族及其數千名中共高官進行製裁。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+據悉，該法案針對中共高層官員以及」全國代表大會 「的每個成員及其直系親屬。製裁措施包括禁止他們獲得美國簽證、使用美國金融系統和取得美國資產等。同時也禁止美國公司與製裁對象個人及其親屬進行任何形式的交易。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+此外該法案還提出取消這些製裁的條件，就是必須停止種族滅絕和在香港的殺戮、停止盜竊美國的知識產權以及放棄對臺灣的入侵。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+校對編輯：硫酸羥氯喹64
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+發稿：文明(添草滅共)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+原文鏈接： https://www.breitbart.com/politics/2022/02/09/exclusive-house-conservatives-introduce-sanctions-proposal-for-thousands-chinese-communist-party-officials/
 
  
 

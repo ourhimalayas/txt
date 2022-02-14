@@ -2,34 +2,25 @@
 ---
 
 
-## 有声|美在所罗门群岛重设大使馆 防堵中共
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2004519/)
+## 秘翻在线：笔者斗胆猜测：甜蜜蜜灭了北京冬奥会的圣火
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2004541/)
 
-配音：香草山巡管部– 文凯琳
+撰稿：待命（文暁）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/画像1-19.png)（图片源自本文链接）
+2月14日TBS新闻消息：北京奥运话题持续升温，大雪纷飞时发生了这样的事。
+
+昨天，奥运场馆周围地区遭遇大雪，延庆的一些滑雪等项目被推迟。而且大雪所致，意想不到的地方出了问题。
+
+这是《美国日报》刊登的设置在颁奖区的圣火的照片。这张照片是昨天下午拍摄的，火炬似乎已经熄灭了。
+
+奥运会组委会告诉JNN：昨天由于大雪，圣火确实灭了。但今天早上已经恢复了。
+
+但是,笔者斗胆猜测：应该是新中国联邦的甜蜜蜜灭了北京冬奥会的圣火!
+
+信息源：[大雪で聖火が消えた!14日朝には復活 北京五輪でハプニング｜TBS NEWS](https://news.tbs.co.jp/newseye/tbs_newseye6002731.html)
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-据多家媒体报道，2月12日，美国国务卿布林肯证实，在时隔29年后，美国计划在南太平洋岛国，所罗门群岛重新开设大使馆，在该地区投入更多外交和防卫资源，防范中共持续与太平洋岛国建立军事联系。
-
-据悉，布林肯在赴澳洲参加美日印澳四方安全对话峰会之后，转道访问斐济，并将与多名太平洋岛国领袖举行视频会议。据美国官员透露，很多迹象表明，中共妄图与太平洋岛国建立军事联系，首要目标就是所罗门群岛。而所罗门群岛2019年前曾是和台湾友好的邦交国之一，但自2019年后，它擅自背离了与台湾的外交关系，转而亲近中共。
-
-文字版原文：[美在所罗门群岛重设大使馆 防堵中共](https://gnews.org/zh-hans/2002365/)
-
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,28 +2,26 @@
 ---
 
 
-## 疫苗未能降低感染 引发其它病症死亡率上升
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2004588/)
+## 有声|中共国人均可支配收入占GDP之比回到改革开放前
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2004590/)
 
-作者：日本方舟农场-Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月11日，《疫苗后遗症》的导演长尾和宏医生和主创鸟集彻记者，在首映后的交谈中，讲述了中共病毒疫苗异于常理的怪相，以及造成死亡率上升的后果。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-14-上午11.21.27.png)
-首先，中共病毒疫苗与人们的常识相反，表现在未接种人群害怕接种人群传播病毒，接种人群实际上是感染源头。而这一点早在去年日本引入疫苗之前，国立感染研究院等机构就已经明确指出疫苗所造成的ADE效应，会让接种人群更容易感染。
+配音：香草山健身部 – 玫瑰园
 
-其次，中共病毒疫苗没有降低死亡数字，反而在大规模接种后出现死亡率上升的趋势。而日本2021年的人口相比2020年减少了6万人，也佐证了这个观点。对此长尾医生解释道，疫苗会降低整个人体的免疫力，使接种人群更容易诱发其他疾病。
 
-第三，因奥密克戎变种带来的感染峰值已经过去，现在推行加强针来降低感染的理由，已经失去了现实支撑。
 
-同时，长尾医生在演讲的最后，希望民众能发出自己的声音，推动日本“小儿科”学会阻止3月份即将开始的对5-11岁儿童甚至6个月以上婴儿的疫苗接种。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-参考链接：[https://www.gettr.com/post/pu8h568408](https://www.gettr.com/post/pu8h568408)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-总编：文真
-编辑：宁文静
-校正/发稿：呼吸的雾霾（文小呼吸）
+中共国人均可支配收入占GDP比重在1978年时约为44%，改革开放初期曾超过60%，自20世纪80年代中期开始一路直线下降，2005年后重新回到改革开放前的44%左右，并一直原地踏步至今，大幅低于世界平均水平。
+
+其中城镇居民可支配收入占GDP比重1978年是89.09%，2021年是58.55%，下降了31个百分点。农村居民可支配收入占GDP的比重1978年是34.81%，20世纪80年代初期有所提升，此后一路走低，在2010后维持在20%左右，较1978年的34.81%下降了超过10个百分点。中共国所谓“改革开放”四十余年，严重不公平的财富分配体制丝毫未改，百姓依旧高付出低获得。
+
+文字版原文：[中共国人均可支配收入占GDP之比回到改革开放前](https://gnews.org/zh-hans/2002372/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -31,7 +29,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

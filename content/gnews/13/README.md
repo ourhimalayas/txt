@@ -2,28 +2,26 @@
 ---
 
 
-## 有声|灭共是人类有史以来最艰巨的事业
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2004675/)
+## 美众议院对中共提起严厉制裁法案
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2004703/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生在2月9日大直播中表示：新中国联邦正在充分利用北京冬奥会这个契机灭共，现场战友随时准备哼唱《灭共的雪》，周围人群一旦有感觉，将处处有人回应。以“一切都是刚刚开始” ，“甜蜜蜜”等暗号回应。灭共的力量在冬奥现场无处不在，爆料革命已深入人心，星星之火正在燎原。
+采编：   风云小哥          编译撰稿：文明(添草灭共)
 
-纵观人类历史，爆料革命和新中国联邦的广大战友所参与的这场灭共事业，是一场前无古人的运动：在人类即将屈服于中共的淫威之际，在我们手无寸铁、还要尽量确保不发生流血冲突的情况下消灭共产党。其难度之大可见一斑。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/GettyImages-1153354315-640x480-1.png)图片来源：breitbart
 
-文字版原文：[灭共是人类有史以来最艰巨的事业](https://gnews.org/zh-hans/1998985/)
 
-音频处理/发稿：Daxia
+据【布莱特巴特新闻】近日报道，在共和党和众议院高层的支持下，美国众院议员麦克莱恩提出了名为[制止中共法案]的立法议案，拟对中共党魁习近平家族及其数千名中共高官进行制裁。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+据悉，该法案针对中共高层官员以及”全国代表大会 “的每个成员及其直系亲属。制裁措施包括禁止他们获得美国签证、使用美国金融系统和取得美国资产等。同时也禁止美国公司与制裁对象个人及其亲属进行任何形式的交易。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+此外该法案还提出取消这些制裁的条件，就是必须停止种族灭绝和在香港的杀戮、停止盗窃美国的知识产权以及放弃对台湾的入侵。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：文明(添草灭共)
+
+原文链接： https://www.breitbart.com/politics/2022/02/09/exclusive-house-conservatives-introduce-sanctions-proposal-for-thousands-chinese-communist-party-officials/
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
