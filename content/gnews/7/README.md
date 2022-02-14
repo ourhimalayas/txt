@@ -2,27 +2,20 @@
 ---
 
 
-## 樱花FM┃中日财经爆┃IMF：近100个国家正在研究CBDC央行数字货币
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2003853/)
+## 樱花头条┃苏州四人检测阳性，苏州工业园区全员核酸检测
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2003867/)
 
-音频：东京樱花团/战友520
+撰稿：东京樱花团/樱花传媒
 
-![](https://lh3.googleusercontent.com/WKMjPxniQZraZYW29XVLRhncYY5vs4o_kbjhvtMpdiJevuwbrHjqkSORLY5_DGPFpg2xVFZ4vRaWJ441F0euF2LXy08vpCcSEva5998-TwRlY5h8DKQ1xYioWDLpj6iVTr-XIIB9)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/樱花头条┃苏州四人检测阳性，苏州工业园区全员核酸检测.jpg)
 
-国际货币基金组织（IMF）总裁2月9日表示，IMF预测目前有近100个国家正在研究央行数字货币，经验表明不存在统一标准模式。
+苏州2月13日在发热门诊就诊患者和“愿检尽检”人员中，有四人核酸检测初筛及复核结果均呈阳性。全市各类公众聚集性活动取消，中小学校、幼儿园暂缓开学，线下培训机构一律暂停。
 
-IMF在2月9日发布了一份研究报告，对包括中共国、瑞典和巴哈马在内的六个已经启动运行数字货币或处于后期测试阶段的国家进行了调研。
+信息来源：[https://gettr.com/post/puedxo90fe](https://gettr.com/post/puedxo90fe)
 
-IMF总裁格奥尔基耶娃在关于这份报告的讲话中表示，全球首批使用央行数字货币(CBDC)的经验表明，不存在放之四海而皆准的模式。金融稳定性和隐私考虑对CBDC的设计至关重要，同时也需要在设计和政权的发展之间取得平衡。
-
-格奥尔基耶娃补充说:“CBDC目前还处于早期阶段，我们不太清楚它们能走多远，能走多快。”
-
-文字版原文：[中日财经爆┃IMF：近100个国家正在研究CBDC央行数字货币– GNEWS](https://gnews.org/zh-hans/1982411/)
-
-编辑：东京樱花团/asket
-
-发布：东京樱花团/asket
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-1276x720-1.jpg)
+*编辑：东京樱花团/keyboard racing
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,35 +2,36 @@
 ---
 
 
-## 拜登政府将解冻阿富汗的70亿美元用于人道救助及赔偿911受害者
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2003820/)
+## 2月13日大直播后记：程序不正义带来的不公及国人的互害
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2003836/)
 
-作者：首尔天池农场—追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-26.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/1000.jpeg)一个卖面包的男孩看着穆斯林参加星期五祈祷。（美联社照片/Hussein Malla） 
-据美联社2月11日的报道，拜登总统周五（11日）签署命令，将解冻目前阿富汗在美国被冻结的70亿美元。
+整理：流氓兔、sadhu
+编辑：隔壁老章
 
-目前，不会立即释放任何资金， 但拜登总统的命令要求银行将冻结金额中的 35 亿美元提供给一个信托基金，通过人道主义组织分配，以满足阿富汗的救济和基本需求。 剩下的35亿美元将留在美国，以赔偿美国911受害者。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1386.png)图片来源：墨尔本雅典娜农场设计组614
 
-自去年8月，随着美军撤出，塔利班控制了阿富汗后，对阿富汗援助的国际资金全部被暂停，该国数十亿美元的海外资产（主要在美国）被冻结。导致阿富汗经济崩溃，民不聊生。 为此，拜登政府决定解冻阿富汗存在美国金融机构的70亿美元。
 
-新闻链接：[https://apnews.com/article/joe-biden-business-united-states-terrorism-b2743737c3286dbba95a7663615e37be](https://apnews.com/article/joe-biden-business-united-states-terrorism-b2743737c3286dbba95a7663615e37be)
+**美国法律 程序正义 互害**
 
-编辑/校对/发稿：小小安
+美国的法律最重要的是程序正义。程序在哪儿呢？证据是判决的基础，证据在哪儿呢？所有关于这个案子（PAG)，只要我们问的，法官一概拒绝，对方问的一概支持，程序不合法也没事儿。在美国，法律赋给法官这种倾向一方的权利吗？事实上法官绝大多数有这权力的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-196.jpeg)
+这种权力一旦滥用后会导致什么结果？极度不公，极度不公就会导致对方的绝对伤害，当然这一方最终肯定有申诉的权利。除此之外，还有向美国司法部门寻求监督的权利。
 
-**更多资讯，更多关注**
+听到法官对我们滥权欺民贼就高兴，伪类们就兴奋莫名，这就是中共国整个社会互害的表现。恨对方就希望对方在自己面前被强奸，被轮奸，被碎尸万段。全世界只有两个地方杀人、死人的时候，围观的人特别兴奋，就是阿富汗和中国。这些人从未想过，可能下一个轮到被枪毙的就是你。
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+许多国人愿意看到弱者被踹倒在地，殴打别人就兴奋莫名，而且自己也想上去踹几脚，根本不管这样做是对是错，世上也只有中共国这个族群是这样。海外的欺民贼，一辈子都没有机会被罚1.3亿美元，但是好多人不曾想过，他们能黑文贵也能黑你，黑死你都让你无可奈何。如果我这个案子放在欺民贼身上，他们还会有心情坐在这直播吗？
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+资料来源：[2022年2月13日 文贵大直播](https://gettr.com/streaming/pu9dbgdec1)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+发布：星谕
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-26.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

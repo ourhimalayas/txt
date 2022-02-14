@@ -2,12 +2,18 @@
 ---
 
 
-## 成千上万澳大利亚人聚集在首都抗议独裁专断的防疫措施
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2003667/)
+## 西媒头条 — 第172期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2003708/)
 
-02/12/2022 成千上万澳大利亚人聚集在首都抗议独裁专断的防疫措施。
+制作：蚂蚁兄弟
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/xm220214.001.jpeg)
+
+发稿：信心的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1.jpeg)
 
  
 
