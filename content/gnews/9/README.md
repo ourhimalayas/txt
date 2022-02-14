@@ -2,47 +2,29 @@
 ---
 
 
-## NBA 通过解雇埃内斯向中共磕头
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2003329/)
+## 今日说币：喜币四大重点好处
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2003459/)
 
-参议员玛莎.布莱克本：
-NBA 已经做出了一个经过深思熟虑的选择，通过解雇埃内斯 @EnesFreedom 向中共磕头，对他们的种族灭绝和压迫视而不见。
+**整理：小亮**
 
-我与无论发生什么都勇敢捍卫正义的埃内斯站在一起。
+- BBC纪录片《比特币：钱的终结》告诉你：传统银行是如何利用你的存款来增发货币（政府债务）并制造金融危机；
+- 美联储发布了中央银行数字货币白皮书，是否预示着美联储不久将会接纳数字货币：中央银行和中央政府要的是权力，他们这么做是为了保住他们的权力因为他们还继续在美国印钱，造成巨额赤字几乎毁掉美元；
+- 2月11日 Netflix 宣布订购一部关于一对已婚夫妇涉嫌在历史上最大刑事金融犯罪案件中洗钱价值数十亿美元被盗加密货币的纪录片系列。故事大致梗概是：Ilya “Dutch” Lichtenstein 和 Heather Morgan 于 2 月 8 日星期二在纽约市的公寓中被捕，现在面临合谋洗钱近 120,000 比特币的指控，这些比特币与 2016 年虚拟货币交易所的黑客行为有关。随着被盗比特币的价值从黑客攻击时的 7100 万美元飙升至近 50 亿美元，据称这对夫妇试图通过创建虚假身份和在线账户、购买实物黄金、NFT 等来清洗他们的数字货币——所有这些而调查人员则竞相追踪资金在区块链上的动向；
+- 数据显示，2021年，四大元宇宙平台上的房地产成交额超过5亿美元。传统房地产公司和许多投资者一样，纷纷在Decentraland和Sandbox等虚拟世界中争夺地块。尽管关于哪些平台和使用案例将在元宇宙热潮中获胜的重要问题仍然存在，但有一点是明确的——资本正在快速流入元宇宙，可以说“虚拟地产”也不例外；
+- 根据剑桥大学的统计的数据： 2021 年世界各国比特币开算力排名：俄罗斯排名前三，仅次于哈萨克斯坦和美国。美国以 35.4% 、哈萨克斯坦18.1%、俄罗斯11.23%、加拿大9.55%、爱尔兰4.68%、马来西亚4.59%、德国4.48%、伊朗3.11%；相比于2020年中国66.86%、俄罗斯8.17%、马来西亚6.23%、哈萨克斯坦4.57%、美国4.2% 的数据已经发生了根本性的转变；这只能一句话形容：别人已经进入大航海时代，中国还在闭关锁国。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/11-13.png)
+**2022/2/13 文贵先生大直播 ：喜币四大重点好处**
 
+1 不增发，每年稳定10亿个
 
-> The NBA has made a calculated choice to kowtow to the CCP and turn a blind eye to their genocide and oppression by firing [@EnesFreedom](https://twitter.com/EnesFreedom?ref_src=twsrc%5Etfw). 
-> 
-> I stand with Enes, who has bravely defended what’s right no matter what.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [February 13, 2022](https://twitter.com/MarshaBlackburn/status/1492964419814449153?ref_src=twsrc%5Etfw)
+2 喜币是稳定币，可兑现
 
+3 第三方经营化，无中介方
 
+4 零成本
 
-美国务卿安东尼·布林肯：
-前往墨尔本参加了四方会议，去斐济与太平洋岛国领导人进行了会面，并在檀香山与日本和韩国举行了三边会议。 美国是印-太地区引以为豪的一部分，该地区对我们国家的安全和繁荣至关重要。
-【附视频，2月11日布林肯在美奥印日四边会议上的讲话】
-
-
-
-> Had an excellent trip to Melbourne for the Quad, Fiji to meet with Pacific Island leaders, and Honolulu for a trilateral meeting with Japan and the ROK. The U.S. is a proud part of the Indo-Pacific, and this region is critically important to our nation’s security and prosperity. [pic.twitter.com/Ng8IiIhk8d](https://t.co/Ng8IiIhk8d)
-> — Secretary Antony Blinken (@SecBlinken) [February 13, 2022](https://twitter.com/SecBlinken/status/1492947628799275009?ref_src=twsrc%5Etfw)
-
-
-
-参议员瑞克·斯科特:
-埃内斯·坎特@EnesFreedom 是一名勇猛的自由和人权斗士，就像他在篮球场上展示的才华一样。 NBA 将埃内斯赶出去的企图只是其对 #共产主义中国 怯懦绥靖的最新令人作呕的例子。
-
-# 支持埃内斯 #StandWithEnes
-
-【转报道：NBA与中共国同床共枕…】
-
-
-
-> .[@EnesFreedom](https://twitter.com/EnesFreedom?ref_src=twsrc%5Etfw) is as fierce a fighter for freedom & human rights as he is talented on the basketball court. The [@NBA](https://twitter.com/NBA?ref_src=twsrc%5Etfw)’s efforts to push Enes out are just the latest disgusting example of its cowardly appeasement toward Communist China. [#StandWithEnes](https://twitter.com/hashtag/StandWithEnes?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/YONzDWxcbZ](https://t.co/YONzDWxcbZ)
-> — Rick Scott (@SenRickScott) [February 13, 2022](https://twitter.com/SenRickScott/status/1492937611220029441?ref_src=twsrc%5Etfw)
-
-
+这几天喜币从最高53元多，跌到最低39元多，现在是45的价位，走了一个跌宕起伏的行情。今天听七哥直播说，原来是有大基金在边打压边收货，基金是追求利润的，现在喜币的场外交易已经达到200美元，基金这样做无可厚非，但战友们这个时候可得搂着，能不卖就不卖，不然过不久，喜币呼啦啦往上涨很多时，再后悔就来不及了。投资喜币,投资G系列,不是投机,是要争取投票的权力!为了子孙后代不再被奴役,坚定信仰,保持清醒,拥抱财富,永不为奴!
 
  
 

@@ -2,45 +2,47 @@
 ---
 
 
-## 秘翻在线：浅谈灭共战役中的核武器GNEWS
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2003276/)
+## NBA 通过解雇埃内斯向中共磕头
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2003329/)
 
-撰稿：待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/画像2-1.jpg)（图片由作者本人设计）
-随着爆料革命的迅猛发展，ＧNEWS和GTV、GETTR一样，承载着拯救人类、捍卫言论自由、掘墓邪恶政权的使命，在新中国联邦创始人郭文贵先生的倡导下应运而生。
+参议员玛莎.布莱克本：
+NBA 已经做出了一个经过深思熟虑的选择，通过解雇埃内斯 @EnesFreedom 向中共磕头，对他们的种族灭绝和压迫视而不见。
 
-在中共举一国之力对G系列的疯狂围攻下，新中国联邦的战友们无论有否写作经验，很多人都是怀着用自己的肩膀扛起ＧNEWS的情怀，以键盘为武器，将篇篇檄文化作发发炮弹射向CCP。战友们的付出在全球掀起了巨大的灭共浪潮，仅仅1年半左右时间，ＧNEWS已成为月发稿量高达约12000多篇的媒体界一颗耀眼的新星。而且，ＧNEWS和GTV、GETTR构成的G系列媒体平台，一跃成为当今世界唯一的，说真话的媒体平台。能让CCP害怕到如此程度，这样的媒体，史无前例！
-
-作为最早涉足GNEWS的撰稿人、翻译、校对、编辑、上传亲历者，笔者像看着自己的孩子一样，每天都会情不自禁的去摸摸她、看看她，呵护他一天天的长大。看到他有不足的地方时，也会很着急，想尽己所能去完善他，使他更完美。在此分享写作体会如下。仅供参考！
-
-１、GNEWS是因使命而生。
-
-通常的媒体，要么是政府养的为维护其政权而发声的口舌，要么是为盈利而创办的企业。而GNEWS是通过419VOG断播门事件等被封口、被聋哑的舆论压制，而从石缝中顽强生长出的时代之产物，是带着使命诞生于世的。因此，唯真不破尤为重要。
-
-２、完成使命的前提，决定了GNEWS要尽力做到弹无虚发。
-
-GNEWS出自新中国联邦的爆料革命，是灭共战争中的核武器。而爆料革命就是旨在推翻CCP的现代战争，是战争就会有牺牲。现代战争的牺牲，不一定是尸横遍野、也可能看不到硝烟，但会牺牲战友们的时间和精力、会牺牲爆料革命的整体福利等等。也就是说，一篇没有对CCP产生打击的投稿，至少要消耗掉撰稿、校对、编辑、上传战友的时间和精力，以及联盟、农场为相关战友所记业绩，甚至分配的福利。因此，GNEWS的篇数固然重要，但弹无虚发更加重要！
-
-３、非专业撰稿人的基本要领
-
-爆料革命的绝大多数撰稿人都是非专业写手。为了战时需要，最好的办法就是设法使自己速成。具体地说：
-
-- 牢记写作目的是灭共，以使自己不至于出现选材方向错误。
-- 留意GNEWS编辑部最新要求，以保证与大部队步调一致。
-- 清楚自己是在传递灭共相关信息，以使自己重视起稿件的时效性。
-- 严格按照GNEWS编辑部的稿件相关要求投稿，把方便留给做校对上传的战友。
-- 保证消息报道的基本要素：文中不能少了时间、地点、人物、事件、结果。
-- 投稿前自己读一遍，以便自检出对原始信息的理解，以及文法、错别字等错误。
-- 寻找写作快感，以增强自己的写作兴趣。
+我与无论发生什么都勇敢捍卫正义的埃内斯站在一起。
 
 
-比如：在日本的战友，最早发现了日本的爆料革命相关信息，马上翻译成中文投稿，成了全联盟各农场第一个传递出这个信息的稿件。这个稿件又被其他战友翻译成各种语言，把这个消息传递到了世界各个角落。是不是件很有意义的事儿呢？
 
-以上，纯属个人观点。天意！刚好７条。
+> The NBA has made a calculated choice to kowtow to the CCP and turn a blind eye to their genocide and oppression by firing [@EnesFreedom](https://twitter.com/EnesFreedom?ref_src=twsrc%5Etfw). 
+> 
+> I stand with Enes, who has bravely defended what’s right no matter what.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [February 13, 2022](https://twitter.com/MarshaBlackburn/status/1492964419814449153?ref_src=twsrc%5Etfw)
 
-欢迎战友们一起交流，我的盖特：＠ｄａｉｍｉｎｇ＿ｗｅｎｘｉａｏ
 
-衷心祝愿我们的GNEWS越办越好！
+
+美国务卿安东尼·布林肯：
+前往墨尔本参加了四方会议，去斐济与太平洋岛国领导人进行了会面，并在檀香山与日本和韩国举行了三边会议。 美国是印-太地区引以为豪的一部分，该地区对我们国家的安全和繁荣至关重要。
+【附视频，2月11日布林肯在美奥印日四边会议上的讲话】
+
+
+
+> Had an excellent trip to Melbourne for the Quad, Fiji to meet with Pacific Island leaders, and Honolulu for a trilateral meeting with Japan and the ROK. The U.S. is a proud part of the Indo-Pacific, and this region is critically important to our nation’s security and prosperity. [pic.twitter.com/Ng8IiIhk8d](https://t.co/Ng8IiIhk8d)
+> — Secretary Antony Blinken (@SecBlinken) [February 13, 2022](https://twitter.com/SecBlinken/status/1492947628799275009?ref_src=twsrc%5Etfw)
+
+
+
+参议员瑞克·斯科特:
+埃内斯·坎特@EnesFreedom 是一名勇猛的自由和人权斗士，就像他在篮球场上展示的才华一样。 NBA 将埃内斯赶出去的企图只是其对 #共产主义中国 怯懦绥靖的最新令人作呕的例子。
+
+# 支持埃内斯 #StandWithEnes
+
+【转报道：NBA与中共国同床共枕…】
+
+
+
+> .[@EnesFreedom](https://twitter.com/EnesFreedom?ref_src=twsrc%5Etfw) is as fierce a fighter for freedom & human rights as he is talented on the basketball court. The [@NBA](https://twitter.com/NBA?ref_src=twsrc%5Etfw)’s efforts to push Enes out are just the latest disgusting example of its cowardly appeasement toward Communist China. [#StandWithEnes](https://twitter.com/hashtag/StandWithEnes?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/YONzDWxcbZ](https://t.co/YONzDWxcbZ)
+> — Rick Scott (@SenRickScott) [February 13, 2022](https://twitter.com/SenRickScott/status/1492937611220029441?ref_src=twsrc%5Etfw)
+
+
 
  
 

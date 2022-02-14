@@ -2,165 +2,28 @@
 ---
 
 
-## 美国有线电视新闻网的杰克·塔珀抨击好莱坞与中国共产党的密切关系
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2003349/)
+## 爆料革命——历史的今天12月25日
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2003469/)
 
-[https://gtv.org/video/id=6209b0bdb0af02660af35f23](https://gtv.org/video/id=6209b0bdb0af02660af35f23)
+**整理：Pride**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-14-193124.png)
+**2019年12月25日—**宗教已经是西方世界最要改革的，比经济、政治改革还要严重。宗教语言已经被牧师、大师解释透了、烂了。几乎拜访完的大师，包括达赖喇嘛、梵蒂冈各个教宗，没有任何大德。爆料革命追求信仰自由的中国，是解决我们内心贪嗔痴慢疑这些问题，不跟随任何人。战友们不管信哪个教，做到边修行边灭共，对身边的家人好就行。
 
-Jake Tapper (CNN host)
-杰克·塔珀 (CNN主持人)
+美国发起女权运动的时候，是在百分之八九十的人和媒体一片批评和谩骂中过来的。爆料革命现在也是被瞧不起，包括被共产党操作的蓝金黄媒体攻击。很多传统中立媒体已经变为谋利和政治利益集团操纵的工具，不值得任何尊重。我们已经脱掉利益集团的绑架和威胁，直奔灭共。
 
-now are behind the China’s wall series in which we go behind the fanfare
-现在是“中国墙背后”系列，在这个系列中
+**2020年12月25日—**不要以为共产党是我们的威胁，混在爆料革命的伪份子是更大威胁。
 
-and the glamour of the current Olympic Games the Chinese government obviously hoping
-我们将深入了解本届奥运会的宣传和“魅力”
+新中国联邦也是个政治实体，有管理就有利益、腐败者。VOG是独立的实体法人，G-TV没有和Sara签任何一纸协议。她打着G-TV名义收取战友投资，完全没有征得我们同意。跟我们说的话，提供的信息，几乎都是假的。
 
-to use the games to distract the world from its crackdowns on freedoms
-中国政府显然希望利用比赛转移世界对自由的镇压
+我们不接受任何人写遗嘱，他们联合起来让战友写签遗书，还说遗书没有法律效力。最终七哥会站在保护战友的核心利益，保护爆料革命平稳运行和新中国联邦实现目标。7哥决不妥协，一定负责到底。
 
-and crimes against humanity, and genocide
-以及危害人类罪和种族灭绝罪
+**2021年12月25日—**人类灵魂是存在的，来自于地球之外。人死亡之后，身体会迅速消瘦。体重永远是等比例，就是某种东西没了。不是没有重量，是有质量。造物主安排我们是有原罪或有原因，到这来深化。灵魂让我们超度自己，乘另外一个维度，更美好到达彼岸—另外一个维度。
 
-Today we’re going to take a look at how the Chinese government in effect censors
-今天我们来看看中共国政府是如何对好莱坞电影业
+在美国、欧洲，早已经验证外星人存在。因为有外星人，我们才发射火箭，登月、探索外空。一些秘密项目显示，外星力量和地球之外的力量对我们影响巨大。外星人的种类非常多，不一定长着眼睛、鼻子。可能是我们身体的几分之一，像细菌一样，本身就是一个菌类。
 
-much of what comes out of the Hollywood film industry
-的大部分内容进行实际审查的
+凡是胎生的都叫畜生道，是最接近于人类的道。每个人身上都是亦正亦邪，是佛又是魔的两面人。佛魔永远会相并存在，此消彼长。魔和佛最重要的区别是善恶辨别，把贪嗔痴慢疑做到极端，就成了魔。找到佛的一面，要有信仰。
 
-They don’t do this of course through direct control
-他们当然不会通过直接控制来做到这一点
-
-They do it through their enormous economic leverage
-他们通过巨大的经济影响力做到这一点
-
-and the fear from studios on missing out on a market of 1.4 billion people in China
-以及电影公司对错失中共国14亿人口市场的恐惧
-
-here to discuss Eric Schwartzel, he’s a Hollywood reporter for The Wall Street Journal
-在这里讨论埃里克·施瓦策尔，他是《华尔街日报》的好莱坞记者
-
-He’s author of a brand new book just released today
-他是今天刚出版的一本全新书的作者
-
-It’s called “red carpet, Hollywood, China, and the global battle for cultural supremacy”
-书名为《红地毯、好莱坞、中国和全球争夺文化霸权》
-
-Thank you so much for being here, Eric
-非常感谢你来到这里，埃里克
-
-So one of the films you write about which really captures the impact the Chinese government
-所以你写的关于其中一部电影真正体现了中共国对美国电影产生的影响
-
-is now able to have on American movies is found in Top Gun released in the 80s
-在80年代发行的《壮志凌云》中可以看到
-
-And it’s upcoming sequel when the original was released in 86
-它即将推出续集，当原版于86年发布时，
-
-offending China not a concern, but for the sequel
-得罪中共国不是问题，但对于续集来说
-
-The studio has made a significant change to the look
-电影公司对外观进行了重大更改
-
-on the jacket of this iconic character, “Maverick”
-在这个标志性人物“特立独行”的夹克上
-
-explaining to folks what’s going on here
-向人们解释这里发生了什么
-
-Eric Schwartze
-埃里克·施瓦策尔
-
-Yeah, you’re absolutely right, I mean
-是的，你完全正确，我的意思
-
-in 1986, not only was Hollywood not concern about the Chinese market
-1986年好莱坞不仅不关心中共国市场
-
-but I mean, we have an example of more rah rah cinema than the original “Top Gun”
-但我的意思是，我们有一个比最初的《壮志凌云》更多的电影的例子
-
-I mean, enlistment shut up after that movie came out
-我的意思是，那部电影上映后，征兵就闭嘴了
-
-And then when this more recent version was advertised a couple years ago
-然后当这个更新的版本在几年前被宣传时
-
-people noticed as you said, that the Taiwanese and the Japanese flag
-正如你所说，人们注意到台湾和日本国旗
-
-had been removed from Mavericks jacket and there’s a very clear reason why
-已经从“特立独行”的夹克上取下来了，原因很明确
-
-and that is that in the time between the original “Top Gun”
-那就是在最初的《壮志凌云》之间的时间
-
-and this reboot, China’s box office has grown to be the biggest in the world
-而这次重启，中共国的票房已经成长为世界第一的票房市场
-
-and any movie produced by a Hollywood studio
-以及由好莱坞制片厂制作的任何电影
-
-that’s as expensive as Top Gun needs that market often to turn a profit
-这和《壮志凌云》经常需要该市场来获利一样昂贵
-
-So that means that even down to something as small as a flag on a jacket
-所以这意味着即使是小到夹克上的一面旗帜
-
-might need to be removed in case it offends the Chinese censors
-可能需要删除以防冒犯中共国的审查员
-
-who decide whether or not this movie will get into those Chinese theaters
-该审查员决定这部电影是否会进入那些中共国的影院
-
-Jake Tapper
-杰克·塔珀
-
-Right, China obviously does not consider Taiwan to be an independent country
-是的，中共国显然不认为台湾是一个独立的国家
-
-Anything that calls into into question
-任何质疑一个中国政策的事情
-
-the One China policy is a portable third rail for the communist government
-对共产党政府来说都是不可容忍的
-
-You write about Brad Pitt’s starring in the 1997 film “Seven Years in Tibet”
-你写的是布拉德·皮特在1997年中主演的电影《在西藏七年》
-
-another country that China has conquered
-这是中共国征服的另一个国家
-
-and being in that film landed Brad Pitt in very hot water with Chinese authorities
-在那部电影中，布拉德·皮特与中共国当局陷入了困境
-
-they essentially banned Brad Pitt and his film from China for years and years
-他们基本上多年来一直在中共国禁止布拉德·皮特和他的电影
-
-Tell us more about that
-告诉我们更多相关信息
-
-* * *
-
-Date:02/11/2022
-原视频标题: CNN’s Jake Tapper Rails Against Hollywood’s Close Ties With The Chinese Communist Party
-美国有线电视新闻网的杰克·塔珀抨击好莱坞与中国共产党的密切关系
-原视频日期：2022/02/10
-原视频链接**[https://twitter.com/dailycaller/status/1491575140282363905?s=24](https://twitter.com/dailycaller/status/1491575140282363905?s=24)**
-任务编号：KE395（3718）
-视频时间段 : 0:00-2:37
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – brucce庚子
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+亚洲任何一个歌星出道，韩国是四大家族；日本三大帮会；台湾、香港是黑帮—台湾杨登魁，香港林建岳、杨受成这几个家族。所有台湾、香港歌手要么跟黑社会，要么和共产党。共产党培养的时候，一定要留把柄。现在共产党要杀富济贫，有钱的网络商、地产商、金融大佬、演艺、歌星、网红，超过千万收入都在杀富范围之内。
 
  
 

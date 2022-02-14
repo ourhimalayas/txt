@@ -2,32 +2,51 @@
 ---
 
 
-## 希望
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2003306/)
+## 新西兰财经G乐部2022年2月14日:财经新闻整理
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2003407/)
 
-**作者：大象腿**
-[![](https://express.adobe.com/page/S8dheRxnPzYL6/images/d48feef3-6595-424b-9dad-2eecb066c55e.jpg?asset_id=c6dbfe3a-778e-4feb-a239-ec2047606780&amp;img_etag=%22899212d47bede6fd99bc9c75f25766d1%22&amp;size=1024)](https://express.adobe.com/page/S8dheRxnPzYL6/images/d48feef3-6595-424b-9dad-2eecb066c55e.jpg?asset_id=c6dbfe3a-778e-4feb-a239-ec2047606780&amp;img_etag=%22899212d47bede6fd99bc9c75f25766d1%22&amp;size=1024)来源网络
-上学的时候老师告诉我，作文要写成阅卷老师喜欢的样子，那样你才能得到高分。可是我是一个长相丑陋，内心同样不够美丽的人，我不可能活成大人们期望的样子，所以家长老师的希望在我身上统统落空了，到现在我才明白，所谓的家长和老师只不过是为了自己的那份荣誉或者是虚荣心才逼迫孩子的。也许我也会逼迫自己的孩子做他不喜欢的事情，虽然我知道我的希望和现实相差太远。所有的父母都希望自己孩子有出息，可是事实是在中共这个体制下，家庭教育、学校教育和社会教育最终把所谓的“花朵们”都培养成了中共的奴隶，只知道干活和吃饭的动物。
+采集整理：蚂蚁的城堡
 
-我总是在想这是为什么，但是总也得不到答案。为什么有希望的一代人最后变成了木头人？变成了工具？为什么现实生活中最辛苦的人，反而对生活如此的向往和抱有希望？为什么他们意识不到自己是被邪恶中共奴役的，结局注定是悲剧？
+**提纲：**
 
-有时候我在刷短视频时，总能看到很多身患绝症的人在直播卖货，为了自己的医药费乞求网友买他一单货，你知道他卖的什么吗？是垃圾桶塑料袋。与中共国的天价医药费相比，如此利润微薄的塑料袋竟然成了他活命的希望。围观的人都知道垃圾桶、塑料袋不可能为他们的生活带来任何光明和希望，可是这些生活在社会最底层的绝症患者们有其他的选择吗？中共掠夺了本属于百姓的资源，挥霍了百姓创造的财富，到头来生病生不起，活也活不起，死更死不起。更可悲的是被中共长期洗脑的百姓却浑然不知这一切都是中共造的孽，对这个烂透了的体制依然抱有一丝希望。
-[![](https://express.adobe.com/page/S8dheRxnPzYL6/images/6f4ab6b5-c2d9-4d98-9f16-305235433979.jpg?asset_id=4551b517-974d-42c0-9276-ed5964fe7c6f&amp;img_etag=%226d8305a4a73c6e9ee6e29b9fda055188%22&amp;size=1024)](https://express.adobe.com/page/S8dheRxnPzYL6/images/6f4ab6b5-c2d9-4d98-9f16-305235433979.jpg?asset_id=4551b517-974d-42c0-9276-ed5964fe7c6f&amp;img_etag=%226d8305a4a73c6e9ee6e29b9fda055188%22&amp;size=1024)
-来源网络
+1、操作不当或亏40%！转债强赎潮来了
 
-中国人就是这么可悲，自己活得如同乞丐一样却依然寄希望于别人，寄希望于这个被中共糟蹋得体无完肤的社会，从来不问是谁将苦难带给了中国人民。我在无数癌症患者的直播平台上留言，尝试分享我的想法，让他们明白自救的重要性，尽管只有一个人回复我，我也觉得很欣慰和很有意义，我更相信一个明是非、知善恶的坚强自救的人一定会得到天助。
+2、爱迪尔子公司爆出虚增营业收入，居然用员工银行账户造假
 
-我们新中国联邦人是最先开智的那一批人，我们有责任和义务传播真相，让更多的同胞们觉醒，让他们知晓是谁造就了今天的苦难，是谁让中国人变得是非不分、善恶不明。不要悲伤，战友们行动起来吧，我们的每一次分享、传播、自救、救人都会使苟延残喘的中共距离灭亡更近一步，保重待天明。
+3、银行节后揽客忙，连员工年终奖都不“放过”
 
-*编辑：【英国伦敦喜庄园编辑部】*
+4、美国律师对比特币欺诈行为认罪，该欺诈行为使投资者损失了500万美元
 
-*校对：仙女儿-文善  | 审核：文明明  | Page: Daoiii*
+**正文**
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+**1、操作不当或亏40%！转债强赎潮来了**
+![img](https://media.gettr.com/group39/origin/2022/02/14/03/6c92170a-50e7-7cec-d0fa-90476e44d1ed/751f4985a57ac8e769aed670a5a5783c_500x0.png)
+2022年的可转债强赎比以往来得更早了一些，多只转债触发强赎条款，部分上市公司也选择了实施强赎。2月17日（周四），正元转债将迎来最后可操作日（转股或卖出），按照2月11日收盘价计算，若持有正元转债的投资者不操作，将亏损近40%。
 
-[![](https://express.adobe.com/page/S8dheRxnPzYL6/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://express.adobe.com/page/S8dheRxnPzYL6/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+参考链接：[https://www.stcn.com/xw/sd/202202/t20220214\_4149675.html](https://www.stcn.com/xw/sd/202202/t20220214_4149675.html)
+
+**2、爱迪尔子公司爆出虚增营业收入，居然用员工银行账户造假**
+![img](https://media.gettr.com/group48/origin/2022/02/14/04/163c5e01-9faf-a82a-171a-60f6c7f8b3f2/743e286dffb1b0ddf466e2e712fe7aab_500x0.png)
+继爆出子公司违规开具发票没几天，爱迪尔（002740.SZ）又爆出子公司虚增营业收入。2月13日晚，爱迪尔发布了“关于收到福建证监局警示函的公告”，在调查中，福建证监局发现爱迪尔存在至少三个问题，“重大诉讼、仲裁事项未及时披露”、“未披露非公开发行股票认购款及收益权特殊事项”以及“通过员工个人银行账户账外支付相关费用、虚增营业收入”。Wind数据显示，2015年-2020年，爱迪尔的营业收入从8.40亿元增至15.14亿元，归母净利润却从0.67亿元变成亏损15.59亿元。
+
+参考链接：[http://www.21jingji.com/article/20220213/herald/2e5bae2490d0682f148efce59c713526.html](http://www.21jingji.com/article/20220213/herald/2e5bae2490d0682f148efce59c713526.html)
+
+**3、银行节后揽客忙连员工年终奖都不“放过”**
+![img](https://media.gettr.com/group11/origin/2022/02/14/04/ba8c301e-2ea1-c5ac-ce8f-ac8140010bd1/4ce018b590f23078bfc19dd400e0fd72_500x0.png)
+“年终奖发了吧，买点行里面的产品吗？有礼物送，还能抽奖！”春节假期一过，深圳某银行支行客户经理便向身边的同事热络地推销起来。在开门红“二次营销”的压力下，这位客户经理直言“蚊子腿也是肉”。有关系的找关系，没关系的想办法。上海证券报记者走访调研了解到，各家银行在春节假期后的“开门红”压力依然不小，即使大多银行完成了节前考核，但“全员营销”的态势丝毫不减。不过，今年的银行揽客“开门红”与以往有些不同。在资管新规落地后，银行业争夺的焦点正逐渐从核心存款，扩展至“存款+代销（理财、基金、保险等）”的全量资金。
+
+参考链接：[https://finance.sina.com.cn/money/bank/bank\_hydt/2022-02-14/doc-ikyamrna0619537.shtml](https://finance.sina.com.cn/money/bank/bank_hydt/2022-02-14/doc-ikyamrna0619537.shtml)
+
+**4、美国律师对比特币欺诈行为认罪，该欺诈行为使投资者损失了500万美元**
+![img](https://media.gettr.com/group4/origin/2022/02/14/04/8294eda5-59de-1e90-3aa8-037a73fe9038/8745422cbf69ae19c517afd84c09ba3c_500x0.png)
+2月12日一名前律师在曼哈顿联邦法院认罪，承认串谋实施电汇欺诈，作为欺诈投资者的计划的一部分，他们认为他们正在投资比特币。PhilipReichenthal与同谋RandyCraigLevine和几名同伙一起说服受害者向他汇款数百万美元，称他将作为托管代理人为他们购买比特币。但Reichenthal和他的同事都没有向投资者提供任何比特币，也没有退还他们的钱。Reichenthal于2020年9月14日因犯罪被捕。78岁的Reichenthal于2019年10月在佛罗里达州的一家法院被取消律师资格，他将面临最高20年的监禁。自2005年以来一直在逃避美国当局的莱文的引渡程序正在审理中。
+
+参考链接：[https://www.coindesk.com/business/2022/02/11/former-attorney-pleads-guilty-to-bitcoin-fraud-that-bilked-investors-out-of-5m/](https://www.coindesk.com/business/2022/02/11/former-attorney-pleads-guilty-to-bitcoin-fraud-that-bilked-investors-out-of-5m/)
+
+审核校对：蚂蚁的城堡（一审）、文勇（二审）
+
+上传排版：文勇
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
