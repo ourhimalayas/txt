@@ -2,12 +2,18 @@
 ---
 
 
-## 盖特将确保大卡车运动的信息顺利传递出去
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2003779/)
+## 20220213郭文贵大直播 ：习的疯狂被利用导致战后世界格局的变化
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2003858/)
 
-02/11/2022 盖特发言人凯兰·多尔：盖特将确保大卡车运动的信息顺利传递出去。
+作者：东京樱花团小视频组
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+校对：东京樱花团小视频组
+
+编辑发布：东京樱花团小视频组
+
+* * *
+![喜马拉雅东京樱花团](https://assets.gnews.org/wp-content/uploads/2022/02/樱花-3-2.jpg)喜马拉雅东京樱花团
+喜马拉雅东京樱花团
 
  
 
