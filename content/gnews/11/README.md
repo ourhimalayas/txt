@@ -2,71 +2,44 @@
 ---
 
 
-## 萨省省长斯科特·莫宣布终止口罩和疫苗接种强制令
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2003223/)
+## 二亿人灵活就业是中共企图用文字欺诈掩盖问题的把戏
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2003294/)
 
-[https://gtv.org/video/id=6209aefdb0af02660af35e5b](https://gtv.org/video/id=6209aefdb0af02660af35e5b)
+**【国内新闻短评】**
 
-Premier Scott Moe announces end of mask and vaccination mandate
-萨省省长斯科特·莫宣布终止口罩和疫苗接种强制令
+中国新闻网2022年2月9日发布：中国灵活就业者已达2亿人 线上工作受到年轻人追捧
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1391.png)图片来源：禁闻网
+**短评**：
 
-Let’s not judge our neighbor because they may be vaccinated or because they may not be vaccinated
-我们不要因为我们的邻居可能接种了疫苗或没有接种疫苗而评判他们
+中国共产党国家统计局相关负责人日前表示，截至2021年底，中国灵活就业人员已经达到2亿人。
 
-Let’s not judge our neighbor if they should choose to wear a mask or not to choose to wear a mask in the weeks ahead
-我们不要因为我们的邻居在未来几周内选择戴口罩或不戴口罩而评判他们
+**文字欺诈是中共的惯用伎俩**
 
-Whenever someone is doing their own personal risk assessment which we have asked them to do in this province for a period of time now
-一段时间以来，我们要求每个人做自己的个人风险评
+中共盛产谎言，其中最有迷惑性的谎言是文字游戏。比如对于“失业”中共就玩过很多花样，并且“与时俱进”，如：二十世纪八、九十年代的“待业青年”、二十世纪九十年代末二十一世纪初的“下岗职工”和“下岗再就业”、二十一事件一年代的“自主就业”等。现在又造了个新词叫“灵活就业”。有网友戏称；我们只有再就业，缓就业，轻就业，慢就业，自主就业，灵活就业，它就是没有失业。
 
-They are doing that assessment for themselves possibly for their family
-每当人们进行个人风险评估时，他们既为自己做评估，可能也为他们的家人做
+灵活就业等于失业，等于没有固定工作，说白了就是无业游民。面对2亿失业大军，中共不仅用文字游戏迷惑、欺骗民众，还言辞凿凿的解释说：“灵活就业不仅成为毕业生的一个就业途径，也为企业选人用人提供了便利”；“求职者选择更丰富”“多面型人才副业途径多”；“让灵活就业者更有干劲”……这种文字欺诈是中共的惯用伎俩，使人觉得中共在用拙劣的手段侮辱人类的智商。
 
-And they may come back with a different decision than what you might arrive at
-他们可能会做出与您不同的决定
+**经济数据造假**
 
-And that different conclusion albeit may be different from where you have landed shouldn’t be judged
-而这个不同的结论尽管可能与你的结论不一样，但不应该被评判
+中共中共官方提供的“2021年失业率5.1%”，按中共国8.11亿适龄劳动人口计算失业人口为0.4055亿，余数7.7045亿为就业人口。那么，即使以中共国2021年“灵活就业者”2亿的半数1亿为失业人口基数，所谓“灵活就业人口“的失业率约为13%，加上中共提供的5.1%，实际保守失业率为18.1%。而中共国统计局发布的2020年失业率为5.6%，
 
-It should be respected, and it should be accepted
-它应该被尊重，应该被接受
+如果中共国所公布的失业率及经济增长数据属实，那么，中共官方公布的2021年经济同比2020年GDP增幅8.1%就是弥天大谎。如果2021年的GDP数据增幅属实，那么，显然2020年的失业率和2020年GDP增幅2.3%的数据就是造假。或者2亿灵活就业人口数据造假。其实造假不足为奇，因为中共从来没有说过一句真话。
 
-It is time for each of us as individuals now to make conscious effort to treat everyone in our daily lives that we encounter equality
-现在是我们每个人作为个体有意识地努力平等对待我们日常生活中遇到的每个人的时候了
+**社会动荡一触即发**
 
-It’s also time for the proof of vaccination mandate end
-现在也是结束疫苗接种证明的时候了
+2021年中共国灵活就业人员迅速增加至2亿，加上中共公布的超过0.4亿的失业人口，也就是超过2.4亿适龄工作人员没有固定工作和稳定收入来源，就等于包括房地产在内的各类企业破产倒闭或减产，就等于消费市场需求萎靡；而面对全球文明发达国家与中共的脱钩和制裁，2022年的境况更加严峻；也就意味着中共国经济行将崩溃。
 
-And so effective at midnight this Sunday, February the 13th, all provincial proof of vaccination requirements will end
-2 月 13 日星期日午夜开始，所有省级疫苗接种证明要求将结束
+随着经济的崩溃，失业大军愈加庞大，奴隶们吃不饱饭的时候到了。当奴隶们做不成奴隶的时候，社会矛盾必然加剧，社会动荡一触即发，中共欺骗、奴役、压榨、杀戮的时代就会结束。
 
-in Saskatchewan business and venues and provincial regulated workplaces
-在萨斯喀彻温省的商业和场所以及省级监管的工作场所
+文章观点仅代表作者，与Gnews 平台无关
 
-This means that the proof of vaccination or the negative test option that we provided will no longer be a provincial requirement starting on Valentin’s Day February the 14th.
-这意味着从 2 月 14 日情人节开始，提供疫苗接种证明或阴性检测选项将不再是省级要求
+新闻链接：
+[**https://c.m.163.com/news/a/GVO95PGB0514R9KD.html?spss=newsapp**](https://c.m.163.com/news/a/GVO95PGB0514R9KD.html?spss=newsapp)
 
-This will be the case. This will leave one remaining covid measure in place and that is indoor masking
-情况将如此。 只有室内口罩要求这一项covid管控措施将被保留下来
-
-That measure remains in effect until the end of February
-该措施将在2月底结束
-
-* * *
-
-Date: 2/8/2022
-原视频标题: Premier Scott Moe announces end of mask and vaccination mandate
-萨省省长斯科特·莫宣布终止口罩和疫苗接种强制令
-原视频日期：2/8/2022
-原视频链接: https://twitter.com/disclosetv/status/1491116507899650050?s=24
-任务编号：KE396（3719）
-视频时间段 : 0:00-01:00
-中听校：洛杉矶盘古农场 -海潮
-翻译： 洛杉矶盘古农场 – 海潮
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 –Jambo
-审片：洛杉矶盘古农场 –银龙
-发布：洛杉矶盘古农场 –恩典
+素材：洛杉矶盘古农场 — 鲁西西
+评论：洛杉矶盘古农场 — 心照
+编审：洛杉矶盘古农场 — 柯震恶
+发布：洛杉矶盘古农场 — 恩典
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
