@@ -2,12 +2,18 @@
 ---
 
 
-## 安省因卡车司机的抗议活动宣布进入紧急状态
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2003663/)
+## 西媒头条 — 第172期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2003708/)
 
-02/11/2022 安省省长道格·福特：我以安大略省省长的身份宣布我省进入紧急状态，对不遵守规定者将处以最高10万加元罚款和最多1年监禁的严厉处罚。
+制作：蚂蚁兄弟
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/xm220214.001.jpeg)
+
+发稿：信心的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1.jpeg)
 
  
 
