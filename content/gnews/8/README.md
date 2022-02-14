@@ -2,75 +2,45 @@
 ---
 
 
-## 萨省省长斯科特·莫宣布终止口罩和疫苗接种强制令
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2003223/)
+## 秘翻在线：浅谈灭共战役中的核武器GNEWS
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2003276/)
 
-[https://gtv.org/video/id=6209aefdb0af02660af35e5b](https://gtv.org/video/id=6209aefdb0af02660af35e5b)
+撰稿：待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/画像2-1.jpg)（图片由作者本人设计）
+随着爆料革命的迅猛发展，ＧNEWS和GTV、GETTR一样，承载着拯救人类、捍卫言论自由、掘墓邪恶政权的使命，在新中国联邦创始人郭文贵先生的倡导下应运而生。
 
-Premier Scott Moe announces end of mask and vaccination mandate
-萨省省长斯科特·莫宣布终止口罩和疫苗接种强制令
+在中共举一国之力对G系列的疯狂围攻下，新中国联邦的战友们无论有否写作经验，很多人都是怀着用自己的肩膀扛起ＧNEWS的情怀，以键盘为武器，将篇篇檄文化作发发炮弹射向CCP。战友们的付出在全球掀起了巨大的灭共浪潮，仅仅1年半左右时间，ＧNEWS已成为月发稿量高达约12000多篇的媒体界一颗耀眼的新星。而且，ＧNEWS和GTV、GETTR构成的G系列媒体平台，一跃成为当今世界唯一的，说真话的媒体平台。能让CCP害怕到如此程度，这样的媒体，史无前例！
 
-Let’s not judge our neighbor because they may be vaccinated or because they may not be vaccinated
-我们不要因为我们的邻居可能接种了疫苗或没有接种疫苗而评判他们
+作为最早涉足GNEWS的撰稿人、翻译、校对、编辑、上传亲历者，笔者像看着自己的孩子一样，每天都会情不自禁的去摸摸她、看看她，呵护他一天天的长大。看到他有不足的地方时，也会很着急，想尽己所能去完善他，使他更完美。在此分享写作体会如下。仅供参考！
 
-Let’s not judge our neighbor if they should choose to wear a mask or not to choose to wear a mask in the weeks ahead
-我们不要因为我们的邻居在未来几周内选择戴口罩或不戴口罩而评判他们
+１、GNEWS是因使命而生。
 
-Whenever someone is doing their own personal risk assessment which we have asked them to do in this province for a period of time now
-一段时间以来，我们要求每个人做自己的个人风险评
+通常的媒体，要么是政府养的为维护其政权而发声的口舌，要么是为盈利而创办的企业。而GNEWS是通过419VOG断播门事件等被封口、被聋哑的舆论压制，而从石缝中顽强生长出的时代之产物，是带着使命诞生于世的。因此，唯真不破尤为重要。
 
-They are doing that assessment for themselves possibly for their family
-每当人们进行个人风险评估时，他们既为自己做评估，可能也为他们的家人做
+２、完成使命的前提，决定了GNEWS要尽力做到弹无虚发。
 
-And they may come back with a different decision than what you might arrive at
-他们可能会做出与您不同的决定
+GNEWS出自新中国联邦的爆料革命，是灭共战争中的核武器。而爆料革命就是旨在推翻CCP的现代战争，是战争就会有牺牲。现代战争的牺牲，不一定是尸横遍野、也可能看不到硝烟，但会牺牲战友们的时间和精力、会牺牲爆料革命的整体福利等等。也就是说，一篇没有对CCP产生打击的投稿，至少要消耗掉撰稿、校对、编辑、上传战友的时间和精力，以及联盟、农场为相关战友所记业绩，甚至分配的福利。因此，GNEWS的篇数固然重要，但弹无虚发更加重要！
 
-And that different conclusion albeit may be different from where you have landed shouldn’t be judged
-而这个不同的结论尽管可能与你的结论不一样，但不应该被评判
+３、非专业撰稿人的基本要领
 
-It should be respected, and it should be accepted
-它应该被尊重，应该被接受
+爆料革命的绝大多数撰稿人都是非专业写手。为了战时需要，最好的办法就是设法使自己速成。具体地说：
 
-It is time for each of us as individuals now to make conscious effort to treat everyone in our daily lives that we encounter equality
-现在是我们每个人作为个体有意识地努力平等对待我们日常生活中遇到的每个人的时候了
+- 牢记写作目的是灭共，以使自己不至于出现选材方向错误。
+- 留意GNEWS编辑部最新要求，以保证与大部队步调一致。
+- 清楚自己是在传递灭共相关信息，以使自己重视起稿件的时效性。
+- 严格按照GNEWS编辑部的稿件相关要求投稿，把方便留给做校对上传的战友。
+- 保证消息报道的基本要素：文中不能少了时间、地点、人物、事件、结果。
+- 投稿前自己读一遍，以便自检出对原始信息的理解，以及文法、错别字等错误。
+- 寻找写作快感，以增强自己的写作兴趣。
 
-It’s also time for the proof of vaccination mandate end
-现在也是结束疫苗接种证明的时候了
 
-And so effective at midnight this Sunday, February the 13th, all provincial proof of vaccination requirements will end
-2 月 13 日星期日午夜开始，所有省级疫苗接种证明要求将结束
+比如：在日本的战友，最早发现了日本的爆料革命相关信息，马上翻译成中文投稿，成了全联盟各农场第一个传递出这个信息的稿件。这个稿件又被其他战友翻译成各种语言，把这个消息传递到了世界各个角落。是不是件很有意义的事儿呢？
 
-in Saskatchewan business and venues and provincial regulated workplaces
-在萨斯喀彻温省的商业和场所以及省级监管的工作场所
+以上，纯属个人观点。天意！刚好７条。
 
-This means that the proof of vaccination or the negative test option that we provided will no longer be a provincial requirement starting on Valentin’s Day February the 14th.
-这意味着从 2 月 14 日情人节开始，提供疫苗接种证明或阴性检测选项将不再是省级要求
+欢迎战友们一起交流，我的盖特：＠ｄａｉｍｉｎｇ＿ｗｅｎｘｉａｏ
 
-This will be the case. This will leave one remaining covid measure in place and that is indoor masking
-情况将如此。 只有室内口罩要求这一项covid管控措施将被保留下来
-
-That measure remains in effect until the end of February
-该措施将在2月底结束
-
-* * *
-
-Date: 2/8/2022
-原视频标题: Premier Scott Moe announces end of mask and vaccination mandate
-萨省省长斯科特·莫宣布终止口罩和疫苗接种强制令
-原视频日期：2/8/2022
-原视频链接: https://twitter.com/disclosetv/status/1491116507899650050?s=24
-任务编号：KE396（3719）
-视频时间段 : 0:00-01:00
-中听校：洛杉矶盘古农场 -海潮
-翻译： 洛杉矶盘古农场 – 海潮
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 –Jambo
-审片：洛杉矶盘古农场 –银龙
-发布：洛杉矶盘古农场 –恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+衷心祝愿我们的GNEWS越办越好！
 
  
 

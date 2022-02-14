@@ -2,61 +2,139 @@
 ---
 
 
-## 基努·里维斯对中共国有话说
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2003307/)
+## 无论俄罗斯是否攻打乌克兰 中国都是牺牲品
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2003319/)
 
-翻译：**Lulumi**
+[https://gtv.org/video/id=6209afe4b0af02660af35ea9](https://gtv.org/video/id=6209afe4b0af02660af35ea9)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1393.png)2017年6月13日，基努·里维斯出席在日本东京六本木山举行的《约翰·威克：第二章》的日本首映式。(盖蒂图片)
+After the meeting between Putin and Xi Jinping （at the opening ceremony of the Winter Olympics）
+（在冬奥会开幕式）普京和习见面（结束）之后
 
-好莱坞与中国的恋情已经有据可查，但好莱坞演员对中国的爱恋却没有。
+What was the first thing Putin did?
+（普京)第一个(事)干了什么
 
-近年来，迈克尔·道格拉斯、迈克尔·皮特、弗兰克·格里罗（担任《战狼2》主演，是中国历史上票房最高的电影）、布鲁斯·威利斯和阿德里安·布罗迪等美国演员都为亲中国的说法做出了表率。
+Meeting Macron(President of France)
+见马克龙(法国总统)
 
-当然，在讨论演员和亲华叙事时，不能绕开约翰·塞纳，他曾大胆地称台湾为国家。因为这个“失言”，他用流利的普通话向中共道歉。塞纳的表演堪称奥斯卡级别。
+(Putin expressed his will) It’s time for me
+to go back to our white family
+(普京表达了意愿)我该回到咱们的白人家族了
 
-值得庆幸的是，有一个演员对向中共道歉不感兴趣。这个人就是基努·里维斯。在谈到中国时，与上述演员不同，《黑客帝国》的主演显然选择了红色药丸而不是蓝色药丸。
+go back to our Europe
+我该回到我们的欧洲了
 
-57岁的里维斯出生于贝鲁特，他不仅仅是一个有成就的演员，也恰好是一个有成就的音乐家。3月3日，他将在第35届西藏之家美国慈善音乐会上表演，与帕蒂·史密斯、特雷·阿纳斯塔西奥和杰森·伊塞尔等人同台。
+I’m not interested in playing with him(Xi)
+我没兴趣跟他（习）玩
 
-早在1987年，应达赖喇嘛的要求，西藏之家成立了一个位于纽约的教育非营利机构，致力于保存和保护西藏古老的哲学、艺术和文化传统。
+Do you think I want to attack Ukraine?
+你看我想进乌克兰吗
 
-正如我之前所表明的，中共对西藏感兴趣的原因非常明确——它的自然资源。西藏高原是4.6万多条冰川的故乡，拥有世界上最大的淡水储备之一。西藏被称为亚洲“水塔”，孟加拉国、柬埔寨、中国、印度、老挝、缅甸、尼泊尔、巴基斯坦、泰国和越南等10个国家的近25亿人都依靠这座“水塔”作为水源。不要搞错了，中共想要控制亚洲大陆的供水，因此它醉心于控制西藏。
+I don’t actually want to
+我(其实)不想进
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1395.png)2021年6月4日，中国西藏林芝，政府组织的记者参观活动中拍摄的雅鲁藏布江。(盖蒂图片)
+What can you do for me to keep me from
+attacking Ukraine?
+你咋让我不进乌克兰呢
 
-表明立场
+You need to buy more of my gas
+Pay more attention to my side in energy imports
+(我的)天然气(你)多买点 (能源进口上)多(侧重于我)付点钱
 
-西藏人民是绝望的。值得称赞的是当世界上大多数人袖手旁观时，里维斯准备表明立场。毫不奇怪，中共国人很不高兴。
+Then the CCP will definitely be kicked out
+as a scapegoat
+然后 一定会把中共卖掉(当替罪羊)
 
-正如《好莱坞报道》最近报道的那样，这位演员已经“招致”数百万中国民族主义者的愤怒。一群年轻的、具有强烈攻击性的、自我感觉超级好的键盘侠小粉红，建议里维斯以及他未来的所有作品都应该被禁止进入中国。这位电影明星正在迅速成为“中国娱乐界事实上不受欢迎的人”——这使得他捍卫西藏的意愿更加令人印象深刻。
+So you see, Brothers and Sisters!
+所以 你看到 兄弟姐妹们
 
-里维斯的身价约为3.8亿美元，他不需要表演。他不需要做任何事情。但他已经提出要做些事情。这是值得庆祝的事情。
+Why is the first thing we talk about today is
+为啥今天第一个谈
 
-毕竟，已经很久没有一个真正的好莱坞重量级人物站出来反对中共国了。事实上，已经有30年之久了。
+the relationship between Xi and Putin after the opening ceremony of the Winter Olympics?
+暨冬奥会开幕式后的习太阳和普京关系
 
-1993年，理查·基尔，当时好莱坞最大明星之一，成为全世界尤其中国的头条新闻。在奥斯卡颁奖典礼上，基尔上台颁发了最佳艺术指导奖。然而，在宣布获奖者之前，作为一个虔诚的佛教徒和达赖喇嘛的长期朋友，基尔完全脱离讲稿，批评中共对西藏的占领以及其“非常可怕的人权状况”。因为说了实话，基尔受到了严厉的惩罚。委员会禁止他参加未来的奥斯卡奖，这个禁令至今仍然存在。
+Let me tell you this
+我告诉大家
 
-很明显，基尔已经为他的诚实付出了沉重的代价。2017年，这位演员告诉《好莱坞报道者》，一直有“我不能参加的电影，因为中国人会说，‘他不能参演’”。他补充说，“我最近有一个影片，有人说他们不能和我一起投资这部电影，因为这会让中国人不高兴。”
+If they go to attack Ukraine
+(如果)打乌克兰
 
-在这次令人沮丧的采访前一年，音乐家Lady Gaga，一个本身就很厉害的歌手，与达赖喇嘛会面。因此她发现自己处于与基尔先生类似的境地。这位歌手现在被禁止在中国进行巡演或销售商品。
+The Chinese will be forced to carry the blame for the attack on Ukraine
+中国人(将被迫)背着打乌克兰的锅
 
-这让我们回到里维斯先生身上。为什么要表明立场？为什么要砸他自己的演艺事业？
+Because to the outside world,this is seen as financial
+support and encouragement from the Chinese
+(在外界看来)是因为中国人的经济支持和怂恿
 
-提醒大家，说起电影，中国市场是迄今为止世界上最大的市场。但对里维斯来说，似乎有比钱更重要的东西。2019年，《纽约客》发表了一篇有趣的文章，题为“基努·里维斯对这个世界太好了”。读完这篇文章后，很难不同意。对好莱坞来说，他当然显得太优秀了，这个地方充满了道德上的哗众取宠和肤浅的关注。
+If they don’t attack Ukraine
+不打乌克兰
 
-虽然许多演员假装表明立场，但里维斯真的付诸行动。就这一点而言，他应该得到很大的赞扬。
+Coming soon, what is Europe doing?
+马上 欧洲正在干什么
 
-本文所表达的观点是作者的意见，不反映《大纪元》的观点。
+The so-called European version of the Trade Competition Act will be introduced soon
+叫欧洲版的(贸易)竞争法案马上出(来)
 
-素材链接：[theepochtimes.com] [Keanu Reeves Has a Message for China](https://www.theepochtimes.com/keanu-reeves-has-a-message-for-china_4259538.html)
+Europe will kick CCP out of the trade
+就欧洲把你(从)贸易(往来)中踢出去
+
+So you can see in the relationship between Putin and
+Xi Jinping
+所以说从普习(关系)看出来
+
+and the European trade competition bill against the CCP
+(以及)欧洲对共产党的新的竞争法案
+
+That whether Russia attacks Ukraine or not
+China will be a casualty in both respects
+俄罗斯打不打乌克兰 中国都(将)是牺牲品
+
+Due to the CCP’s brain-damaged belief in personal relationships between leaders of major countries
+以及 所谓大国领导人迷信的个人领导关系
+
+They staked the security and well-being of
+our Chinese people
+以一国的 人的安全和福祉
+
+on a supposedly shitty, bullshit, untrustworthy
+押(注)在一个所谓鸟不拉屎的 根本胡扯球蛋的 不可相信的
+
+mutually exploitative relationship between the leaders of two countries
+相互利用的 两国领导人关系上
+
+It is the sadness of Chinese people’s politics, economy
+morality and beliefs
+是中国人 政治 经济 道德 信仰 的悲哀
+
+Shamed by the world
+被世界所耻
+
+But we Chinese don’t know
+但中国人不知
+
+Wake Up! My Fellow Countrymen!
+醒来吧 同胞们
 
 * * *
 
-*审核：文乐
-校对：小东
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1.jpeg)
+Date:02/12/2022
+原视频标题: Whether Russia attavks Ukraine or not China willbe a casualtyin both respects
+无论俄罗斯是否攻打乌克兰 中国都是牺牲品
+原视频日期：2022/02/10
+原视频链接
+任务编号：KE398(3732)
+视频时间段 : 0:00-1:30
+英听校： 洛杉矶盘古农场 – 庚子
+翻译： 洛杉矶盘古农场 – 庚子
+翻译终校：洛杉矶盘古农场 – 银龙
+字幕+视频制作：洛杉矶盘古农场 – 庚子
+审片：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
