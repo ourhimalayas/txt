@@ -15,62 +15,62 @@
 
 ---
 
-### [中国的小人](/content/gnews/1/README.md)
+### [七哥金句：美媒体的操控](/content/gnews/1/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥说&#8221;共产党的法律完全是黑道&#8221;](/content/gnews/2/README.md)
+ ` MG FARM`
+
+### [谁与七哥灭共](/content/gnews/3/README.md)
+ ` MG FARM`
+
+### [七哥金句：共党带来恐惧](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥金句：付出和永赢](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥说&#8221;共产党就是要耗掉你的精力、毁掉你的荣誉，让你穷困潦倒、无人问你&#8221;](/content/gnews/6/README.md)
+ ` MG FARM`
+
+### [七哥说“这个国家是疯狂的”](/content/gnews/7/README.md)
+ ` MG FARM`
+
+### [七哥谈美国的制裁草案](/content/gnews/8/README.md)
+ ` MG FARM`
+
+### [中国的小人](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [瑞士与信托的使用](/content/gnews/2/README.md)
+### [瑞士与信托的使用](/content/gnews/10/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [七哥谈&#8221;中国人都喜欢教训别人&#8221;](/content/gnews/3/README.md)
+### [七哥谈&#8221;中国人都喜欢教训别人&#8221;](/content/gnews/11/README.md)
  ` MG FARM`
 
-### [“等有一天你们都懂了，你们会真正的爱战友、爱我们的新中国联邦”](/content/gnews/4/README.md)
+### [“等有一天你们都懂了，你们会真正的爱战友、爱我们的新中国联邦”](/content/gnews/12/README.md)
  ` MG FARM`
 
-### [七哥说&#8221;不要把恐惧和你的哀愁带回家人&#8221;](/content/gnews/5/README.md)
+### [七哥说&#8221;不要把恐惧和你的哀愁带回家人&#8221;](/content/gnews/13/README.md)
  ` MG FARM`
 
-### [瑞士与列支敦士登信托概况](/content/gnews/6/README.md)
+### [瑞士与列支敦士登信托概况](/content/gnews/14/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [七哥说&#8221;我要用美国的法律合法的跟它干到底&#8221;](/content/gnews/7/README.md)
+### [七哥说&#8221;我要用美国的法律合法的跟它干到底&#8221;](/content/gnews/15/README.md)
  ` MG FARM`
 
-### [魁北克政府今天下午宣布撤销疫苗护照的时间表](/content/gnews/8/README.md)
+### [魁北克政府今天下午宣布撤销疫苗护照的时间表](/content/gnews/16/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [七哥金句：喜联储的价值](/content/gnews/9/README.md)
- ` 雅典娜GNotes`
-
-### [阿拉伯国家的维吾尔人遭遣返中国](/content/gnews/10/README.md)
+### [阿拉伯国家的维吾尔人遭遣返中国](/content/gnews/17/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [七哥金句：所得&amp;所给](/content/gnews/11/README.md)
- ` 雅典娜GNotes`
-
-### [七哥金句：灾难核心](/content/gnews/12/README.md)
- ` 雅典娜GNotes`
-
-### [七哥金句：爆雷](/content/gnews/13/README.md)
- ` 雅典娜GNotes`
-
-### [七哥金句：江湖](/content/gnews/14/README.md)
- ` 雅典娜GNotes`
-
-### [七哥金句：喜币实力](/content/gnews/15/README.md)
- ` 雅典娜GNotes`
-
-### [延安性事（短篇纪实文学）（四）](/content/gnews/16/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [【秘翻在线】俄乌局势将密切影响全球能源市场](/content/gnews/17/README.md)
+### [【秘翻在线】俄乌局势将密切影响全球能源市场](/content/gnews/18/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [韩国CCP病毒感染死亡人数再度攀升，新增突破记录](/content/gnews/18/README.md)
+### [韩国CCP病毒感染死亡人数再度攀升，新增突破记录](/content/gnews/19/README.md)
  ` 澳喜特战旅Gnews`
-
-### [七哥谈他的人生是怎么过来的](/content/gnews/19/README.md)
- ` MG FARM`
 
 ### [俄入侵乌克兰将导致全球金融大崩塌](/content/gnews/20/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`

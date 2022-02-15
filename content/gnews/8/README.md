@@ -2,42 +2,32 @@
 ---
 
 
-## 魁北克政府今天下午宣布撤销疫苗护照的时间表
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2010074/)
+## 七哥谈美国的制裁草案
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2010209/)
 
-**编译及评论：16626**
+文编：Hima
+听写：叮叮
+视频：七哥
 
-y**图片来源：截屏于**[**https://www.tvanouvelles.ca/2022/02/15/vers-un-assouplissement-du-passeport-vaccinal**](https://www.tvanouvelles.ca/2022/02/15/vers-un-assouplissement-du-passeport-vaccinal)
+2022-02-11直播摘录10:19:59
 
-**今天下午宣布撤销疫苗护照的时间表**
+你孩子能出国上学吗？你能上哈佛吗？你看美国议会发起的对共产党的制裁和对习家的制裁，你们没有人注意到七哥啥时候说的？我2018年说的。那个《草案》起草了最起码100稿都不止，现在公开由这个议员提出来了。我可以告诉你，接下来那个议案的更夸张。那我请问中国同胞们，你觉得那个议案出来以后，你觉得你还在国内，你在国内喊爱国去吧，你尽管喊吧。 你吃谁家的饭 ，你有粮食吃吗？你每年将近40%的进口粮食。你看到今天阿富汗98%的人吃不饱，和每天死掉几百个人，你会不会像他一样？文化大革命遥远吗？“大跃进”遥远吗？现在中国搞大食堂，为什么？谷爱凌、古燕你还会记得她们吗？这才是真正的悲剧。再一个没打疫苗你就是天下的赢者，你珍惜这个没打疫苗，你能活下去远比你意淫所跟你没有关系的谷爱凌拿广告费的这个假、骗要实在的多。所以说兄弟姐妹们这个时候，我们要看到共产党的疯狂，在全世界上它已经彻底完了，冬奥会成了习最后的一次表演。
 
-魁北克政府可能会在今天下午宣布撤销疫苗护照的时间表。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-宣布撤销疫苗护照的时间表的新闻发布会定于下午 1 点 15 分举行。
+**关注我们**
 
-（撤销疫苗护照）应逐步进行，首先应在超市，魁北克酒业公司（SAQ），和魁北克大麻公司（SQDC）的所有分支机构终止疫苗护照。
+Discord 账号
 
-在国家公共卫生主任吕克·布瓦洛Luc Boileau 博士陪同下，卫生部长克里斯蒂安·杜贝Christian Dubé 将出席（宣布撤销疫苗护照的时间表的）新闻发布会。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-另外，根据Gnews（2022 年 2 月 8 日）发表一篇题为《萨斯喀彻温将于下周一放弃疫苗护照,[萨斯喀彻温将于下周一放弃疫苗护照](https://gnews.org/1977277/) 》的文章报道，萨斯喀彻温省已经于昨天，周一（2022 年 2 月14日），开始不再需要出示疫苗护照。
+Gettr 账号
 
-还有，Gnews（2022 年 2 月 15 日）发表一篇题为《魁北克省勒戈（Legault）政府拒绝实施《紧急措施法》, [魁北克省勒戈（Legault）政府拒绝实施《紧急措施法》](https://gnews.org/zh-hans/2009639/)  》的文章报道，《紧急措施法》并不一定意味着立即部署军队。加拿大总理贾斯汀·特尔多（Justin Trdeau）称，军事干预是“最后手段”。魁北克省省长François Legault“不希望”看到《紧急措施法》在魁北克领土上实施，他说，联邦的这项决定是“火上浇油”。
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
-现在，联邦施压实施《紧急措施法》，魁省民众示威抗议反对政府强制实行疫苗护照。魁省的公共卫生行政措施出现什么样的变化？让我们拭目以待。我们谴责并反对暴力示威，反对政府强制实行疫苗护照，更反对政府施加暴力于人民。我们相信魁北克省，乃至全加拿大很快会放弃强制实行疫苗护照。
-
-**参考资料**：
-
-[Vers un assouplissement du passeport vaccinal?](https://www.tvanouvelles.ca/2022/02/15/vers-un-assouplissement-du-passeport-vaccinal)
-
-**编辑：LILY**
-
-**发布：歪桑**
-
-20220215
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3-4.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
