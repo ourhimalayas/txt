@@ -2,38 +2,35 @@
 ---
 
 
-## 美公布印太战略 挺台自我防卫
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2009026/)
+## 有声|美国紧急撤离基辅大使馆，俄乌大战在即的警钟
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2009143/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image011-1.jpg)
-美国白宫**11**日公布**“**印度太平洋战略**”**报告，誓言对印太地区投注更多外交与安全资源，以对抗中国扩张势力，同时将与区域伙伴合作维持台海稳定，包括支持台湾的自我防卫能力，与确保台湾能有和平决定未来的环境，以及威慑包括台海在内的军事侵略行动。**
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据外媒报导，继美国总统拜登10日通告所有美国公民「马上撤离乌克兰」后，美国务院也担心俄军会在「冬奥闭幕前」攻打乌克兰，所以决定启动「终极应变」，预计周六清晨就会正式对美国驻乌克兰大使馆下达「紧急撤退令」，此举被视为是等同于「大战将至」的最高规模示警。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/164486174969272_P15977057.jpg)
+报导中也提及，美国此一预测与盟邦所掌握的证据一致，就连先前对俄乌危机持相对保守态度的德国军方，也反常态的提出警示：美方的情资，这回非常可信而骇人。
 
-**这份十九页的文件指出，美国加强聚焦印太，因为该区面临来自中共的挑战渐增。中共寻求在印太的影响力与称霸世界，其胁迫与侵略之举遍及全球，但在印太尤为严峻，包括对台湾的压力渐增，**“**美国与区域伙伴在未来十年的共同努力，将决定中华人民共和国是否会成功改变造福印太与世界的规则与规范**”**。**
+同时，俄乌大战在即的警钟，对于中共是否会趁机发动台海危机，应保持高度警戒，不容轻忽。
 
-**但是报告中也说，美国也同时会遵守一中政策，以及在台湾关系法、美中三公报与美对中六项保证中的长期承诺。
+文字版原文：[美国紧急撤离基辅大使馆，俄乌大战在即的警钟](https://gnews.org/zh-hans/2006481/)
 
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**推出问题，敲出真相，爆料在路上！**
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-**请关注和订阅我们的以下账号：**
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-**玫瑰看新闻YOUTUBE账号**：
-
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**ROSE NEWS**
-
-**【玫瑰看新闻】推特账号**：
-
-**ROSE NEWS (@ROSENEWS4)A**
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -2,28 +2,32 @@
 ---
 
 
-## 有声|北京冬奥会假骗震惊世界
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2009088/)
+## 樱花FM┃中日财经爆|广州最大民营企业 世界五百强雪松控股再次“爆雷”
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2009243/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月11日，郭文贵先生在大直播里，再次揭露中共在冬奥会造假的事实。
+音频：东京樱花团/战友520
+![](https://lh6.googleusercontent.com/o3YgIwa-ESqLSOcutQl75mgdkXQscok7CSaxF5likOAibiMFATRPdsKkplC2zTpzsrPUlRPjcZpW73iQpgjr1B_2ASf3FAyBb8LfgEOVNimy_LL9_yRmZKlXY0HF706jXGs3GjOW)
+2月10日，广州最大民营企业，世界五百强雪松控股总部楼下聚集了多名投资者进行维权，维权投资者的投资金额巨大，或与雪松控股春节前信托二度爆雷，理财无法按期兑付有关。
 
-某俄国消息人士向郭先生透露，在开幕式上，现场观众寥寥无几。在普京的坐席附近，他用同样角度，拍的照片背景里毫无人气。但是，中共为了达到宣传效果，公开放出的照片座无虚席，而且还诱使他使用处理过的假图欺骗世界。中共的造假程度令他深感震惊。
+1月30日晚，雪松控股集团突然发出致歉信，宣布原定于1月底完成的理财兑付无法落实，预计将延期至2月底。
 
-文字版原文：[北京冬奥会假骗震惊世界](https://gnews.org/zh-hans/2004562/)
+这已是雪松控股信托在一年间的第二次爆雷。2021年4月，在金虎339号、347号等多个信托产品的兑付截止日，雪松并未如期完成兑付；此外还有投资人爆料，雪松信托翻脸不认兑付协议书，涉及27个项目，逾期本金多达38.09亿元。
 
-音频处理/发稿：Daxia
+其中，雪松控股自主发行的长惠77号、长茂7号、长茂33号三个项目当时也在逾期兑付之列，上述3个项目，均和去年深陷债务危机的房地产企业华夏幸福有关。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+而在2020年9月，还有媒体调查发现，雪松信托连续发行超过200亿元的42只“长青”系列信托计划，声称是对知名国企的大额应收账款。但债务人基本否认了债务存在，其声称的底层资产实为虚无，更有借道假央企转移百亿巨资的嫌疑。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+雪松信托暴雷的项目中如雪松信托长盈133号，其底层资产为恒大集团紫熙投资有限公司在深圳的旧改项目，于去年9月出现了违约付息。雪松信托一年间的二度暴雷，或与深陷债务危机的另一知名房企恒大也有关联。
+
+另外，雪松控股还于2019年接盘了多个产品逾期爆雷，涉及金额超50亿元的中江信托。雪松信托自主发行的理财产品问题重重之外，还有着多个历史遗留问题亟待解决。
+
+目前雪松控股集团是广州最大的民营企业，在2018年，雪松控股以327亿美元的营收首次入围世界500强，排在第361位。随后2019-2021年，雪松控股连续3年入围世界500强，其中2021年以338.37亿美元位列世界500强359位。
+
+文字版原文：[中日财经爆|广州最大民营企业世界五百强雪松控股再次“爆雷” – GNEWS](https://gnews.org/zh-hans/1988707/)
+
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

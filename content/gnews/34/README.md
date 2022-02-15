@@ -2,12 +2,27 @@
 ---
 
 
-## 加拿大人支持卡车司机运动
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2008669/)
+## NewSGman┃中共收集北京冬奥会有何参与者生物数据邪恶目的
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2008748/)
 
-02/12/2022 加拿大一名亚裔女士带着孩子和老公上街支持卡车司机游行。她表示，特鲁多实际上在不知不觉中将加拿大人团结在了一起。
+撰稿：东京樱花团/NewSGman
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+中共收集北京冬奥会有何参与者生物数据邪恶目的
+
+国家元首DNA 运动员的DNA都被共产党掌握
+
+中共收集参加冬奥会各国领导人和运动员的尿和大便是服务于其邪恶的目的 – 提取并用他们的基因以生出“更优秀”的种族；中共骨子里是种族主义者并且崇拜优秀人体和基因
+
+——2022年2月6日郭文贵大直播
+
+2/6/2022 Miles Guo: The CCP collects urine and feces from the leaders and athletes of various countries participating in the Winter Olympics to serve its evil purpose – to extract and use their genes to produce a “better” race. The CCP is racist at its core and worships superior physiques and eugenics.
+
+盖特链接：https://gettr.com/post/pt0t4gc947
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
 
  
 

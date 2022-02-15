@@ -2,34 +2,28 @@
 ---
 
 
-## 有声|罗杰-霍德金森抨击中共病毒疫苗
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2009121/)
+## 有声|场外交易卖掉喜币 将来必后悔
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2009252/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月12日英喜农场报道，病理学家罗杰-霍德金森博士发表演说，揭露中共病毒疫苗的阴谋。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E6%88%AA%E5%B1%8F2022-02-14-%E4%B8%8A%E5%8D%8811.21.32.png)
-他说，疫苗没有任何作用，是一个压倒性的共识。而且，两个主要的医学伦理被省内和国际医疗机构以及政府践踏了，即不伤害和知情同意权。所有不告知人们真相，且强制中共病毒疫苗接种的全球医疗机构的医生和外科医生，都是政府认可的谋杀案的同谋者。
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+2022年2月13日，在大直播中谈到喜币场外交易时，郭文贵先生说，现在卖掉喜币套现的人，将来必定会后悔。
 
-文字版原文：[罗杰-霍德金森抨击中共病毒疫苗](https://gnews.org/zh-hans/2004589/)
+谈到最近喜币的场外交易价格时，他说，60块都买不着。但是在场内，喜币被压低到了40美金，而场外交易有好几笔都在200左右交易的。这几天场外和场内的巨大价格差距，是因为基金在利用2亿个币，故意吸引卖家抛售，然后基金趁机买入。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+文字版原文：[场外交易卖掉喜币 将来必后悔](https://gnews.org/zh-hans/2006012/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
