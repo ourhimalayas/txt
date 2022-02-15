@@ -15,122 +15,122 @@
 
 ---
 
-### [组织警告董文标若再自杀就让女儿被自杀警告张宏伟吐钱](/content/gnews/1/README.md)
+### [七哥能唱歌第一个感谢唐平,威廉王把七哥带进沧海一声啸](/content/gnews/1/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [黑石集团将以89亿收购赌涉嫌洗钱的澳洲皇冠度假集团](/content/gnews/2/README.md)
+### [七哥从不赞成一切荣耀归于上帝的说法而是该归谁就归谁](/content/gnews/2/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [澳洲议会点名周泽荣是被怀疑的中共“操纵者”](/content/gnews/3/README.md)
  ` 走进澳洲`
 
-### [马云给七哥发信息希望在直播中尽量别提他给他点儿机会](/content/gnews/3/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [乌克兰强调：加入北约目标不变](/content/gnews/4/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [不得人心的审查制度 微博前员工自爆偷做“四件事”](/content/gnews/5/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [雅典娜时报-第205期](/content/gnews/6/README.md)
+### [台湾国防部：一架中共民用飞机非常接近台湾岛屿](/content/gnews/4/README.md)
  ` 墨尔本雅典娜农场`
 
-### [近70岁西安战友依常例备60万冰敬被警察指着鼻子大骂](/content/gnews/7/README.md)
+### [在人类前所未有走向黑暗的春节我们却带领人类走向光明](/content/gnews/5/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [秘翻在线：北京冬奥会再爆选手摔成重伤](/content/gnews/8/README.md)
+### [何时起讣告越来越多?何缘故都不透露死因?](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [加国总理以解决&#8221;自由车队&#8221;的抗议为由寻求紧急权力](/content/gnews/7/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [乌克兰宣布2月16日为团结日，美更多战机抵达波兰](/content/gnews/8/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [除非这些人入狱,否则我们将不再是一个法治国家](/content/gnews/9/README.md)
+### [组织警告董文标若再自杀就让女儿被自杀警告张宏伟吐钱](/content/gnews/9/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [黑石集团将以89亿收购赌涉嫌洗钱的澳洲皇冠度假集团](/content/gnews/10/README.md)
+ ` 走进澳洲`
+
+### [马云给七哥发信息希望在直播中尽量别提他给他点儿机会](/content/gnews/11/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [英国官方实验室证实疫苗内含氧化石墨烯](/content/gnews/12/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [乌克兰强调：加入北约目标不变](/content/gnews/13/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [不得人心的审查制度 微博前员工自爆偷做“四件事”](/content/gnews/14/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [雅典娜时报-第205期](/content/gnews/15/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [近70岁西安战友依常例备60万冰敬被警察指着鼻子大骂](/content/gnews/16/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [秘翻在线：北京冬奥会再爆选手摔成重伤](/content/gnews/17/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [除非这些人入狱,否则我们将不再是一个法治国家](/content/gnews/18/README.md)
  ` 美国政要直译推`
 
-### [樱花FM┃谈古论今 | 新冠病毒生物战中我们应取的政治态度](/content/gnews/10/README.md)
+### [樱花FM┃谈古论今 | 新冠病毒生物战中我们应取的政治态度](/content/gnews/19/README.md)
  ` 樱花FM`
 
-### [有声｜美议员批国际奥委会无视中共活摘器官](/content/gnews/11/README.md)
+### [有声｜美议员批国际奥委会无视中共活摘器官](/content/gnews/20/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [别因有懦夫就不相信勇士别因有人说假话就不再相信真话](/content/gnews/12/README.md)
+### [别因有懦夫就不相信勇士别因有人说假话就不再相信真话](/content/gnews/21/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [联盟工作汇报文字版2022.2.13](/content/gnews/13/README.md)
+### [联盟工作汇报文字版2022.2.13](/content/gnews/22/README.md)
  ` 纽约香草山MOS02`
 
-### [卢比奥参议员：60天后的世界将变得非常不同](/content/gnews/14/README.md)
+### [卢比奥参议员：60天后的世界将变得非常不同](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [读懂共产党有很多办法,其中之一是看中共的新春联欢晚会](/content/gnews/15/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [悲吟](/content/gnews/16/README.md)
- ` 纽约香草山MOS03`
-
-### [樱花FM┃日媒：习近平两名部下权力更迭 中共二十大内斗加剧](/content/gnews/17/README.md)
+### [樱花FM┃日媒：习近平两名部下权力更迭 中共二十大内斗加剧](/content/gnews/24/README.md)
  ` 樱花FM`
 
-### [中央电视台把中国最好的饮食文化服饰文化和音乐全毁掉](/content/gnews/18/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [文·贵天成——文贵先生谈“PAG太平联盟、单伟建”（八）](/content/gnews/19/README.md)
+### [文·贵天成——文贵先生谈“PAG太平联盟、单伟建”（八）](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
-### [视频| 新中国联邦救了全世界无数的人](/content/gnews/20/README.md)
- ` MOSREC`
-
-### [2022年2月14日郭先生盖特 — 视频1「9分26秒」](/content/gnews/21/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [樱花FM┃我与青蒿素](/content/gnews/22/README.md)
+### [樱花FM┃我与青蒿素](/content/gnews/26/README.md)
  ` 樱花FM`
 
-### [乌克兰局势严峻 普通民众加入御敌行列](/content/gnews/23/README.md)
+### [乌克兰局势严峻 普通民众加入御敌行列](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [紧张局势加剧，岸田将与乌克兰总统举行首次会谈](/content/gnews/24/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共国产病毒测试棉棒导致健康危机](/content/gnews/25/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [聊聊中共文工团](/content/gnews/26/README.md)
+### [聊聊中共文工团](/content/gnews/28/README.md)
  ` 军情启示录`
 
-### [樱花FM|中日财经爆| 美厂商要求调查中共国太阳能面板逃避税行为](/content/gnews/27/README.md)
+### [樱花FM|中日财经爆| 美厂商要求调查中共国太阳能面板逃避税行为](/content/gnews/29/README.md)
  ` 樱花FM`
 
-### [樱花FM┃中日财经爆| 中国国航被美国交通部罚款14.3万美元](/content/gnews/28/README.md)
+### [樱花FM┃中日财经爆| 中国国航被美国交通部罚款14.3万美元](/content/gnews/30/README.md)
  ` 樱花FM`
 
-### [中日财经爆┃日本政府将针对产业链中人权问题专项立法](/content/gnews/29/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [加拿大公民权利协会谴责特鲁多动用国家紧急法](/content/gnews/30/README.md)
+### [加拿大公民权利协会谴责特鲁多动用国家紧急法](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2021全球清廉印象指数(CPI) 中共国仅45分](/content/gnews/31/README.md)
+### [2021全球清廉印象指数(CPI) 中共国仅45分](/content/gnews/32/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [华盛顿特区将终止中共病毒口罩令和室内疫苗规定](/content/gnews/32/README.md)
+### [华盛顿特区将终止中共病毒口罩令和室内疫苗规定](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [完全接种者感染艾滋病毒的风险大增](/content/gnews/33/README.md)
+### [完全接种者感染艾滋病毒的风险大增](/content/gnews/34/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [太平联盟诉郭文贵先生折射中共对西方司法体系威胁之巨](/content/gnews/34/README.md)
+### [太平联盟诉郭文贵先生折射中共对西方司法体系威胁之巨](/content/gnews/35/README.md)
  ` mary202064`
 
-### [有声｜中共病毒疫苗被证实内含氧化石墨烯](/content/gnews/35/README.md)
+### [有声｜中共病毒疫苗被证实内含氧化石墨烯](/content/gnews/36/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [新中国联邦新闻、GTV新闻访谈简报|2022年2月14日晚](/content/gnews/36/README.md)
+### [新中国联邦新闻、GTV新闻访谈简报|2022年2月14日晚](/content/gnews/37/README.md)
  ` 纽约香草山MOS01`
 
-### [樱花深度报道┃共产主义是毒瘤！参议员号召美国人“努力”对抗中共影响](/content/gnews/37/README.md)
+### [樱花深度报道┃共产主义是毒瘤！参议员号召美国人“努力”对抗中共影响](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [意大利外长访问乌克兰和俄罗斯](/content/gnews/38/README.md)
+### [意大利外长访问乌克兰和俄罗斯](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [加拿大特鲁多动用《紧急状态法》来镇压卡车司机的和平抗议活动](/content/gnews/39/README.md)
- ` 蓝莲花农场`
 
 ### [中日财经爆┃全球面临战争危机 喜币必将改变世界](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

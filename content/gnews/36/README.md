@@ -2,33 +2,43 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年2月14日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2006425/)
+## 有声｜中共病毒疫苗被证实内含氧化石墨烯
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2006482/)
 
-作者：香草山翻译部
+**By:秘翻新闻**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO.jpg)
+***2022-02-15***
 
+据英国《每日邮报》2月13日报道，中共病毒疫苗已经在英国进行了法医检验，一份官方实验室报告证实疫苗含有可以穿透人体天然屏障的石墨烯纳米材料，将损害中枢神经系统以及內藏，同时破坏血液健康，进而触发癌症，并在许多其他不良影响中引起基因功能的变化。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-13.png)
-校对：Stay文苑
+![](https://assets.gnews.org/wp-content/uploads/2022/02/B46CA945-8605-4421-BAD9-A68A6A74984E.jpeg)
 
-编辑：Stay文苑
+已确定的夹杂物包括：
 
-发稿：Stay文苑
+1.涂有聚乙二醇的石墨烯纳米带
 
-新闻：[https://gtv.org/broadcast/watch/620b0557432ae869226ca17e](https://gtv.org/broadcast/watch/620b0557432ae869226ca17e)
-访谈：[https://gtv.org/broadcast/watch/620b0de9432ae869226cac0c](https://gtv.org/broadcast/watch/620b0de9432ae869226cac0c)
+2.石墨烯复合形式 1
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar.png)
+3.石墨烯复合形式 2
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+4.含碳质包裹体的微晶方解石
 
+5.具有和不具有荧光的石墨烯纳米形式
+
+6.石墨烯纳米物体
+
+7.石墨烯纳米卷轴
+
+在调查进行期间，样本中的荧光来源是未知的，并且由于时间紧迫，当时无法进行调查。疫苗制造商从未声明这些成分，疫苗成分清单中也没有标明这些成分。然而，研究表明石墨烯是多么危险，但人们并未意识到他们正在被注射这种致命物质。
+
+该报告已交给英国警方处理，后者已提交到内政部实验室核查，这表明如果证据确凿将会向疫苗制造商提起公诉。
+
+(秘翻新闻 文雀 编译报导)
+
+发布:星星
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMAGE-2021-12-13-113746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
