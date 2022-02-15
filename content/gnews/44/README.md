@@ -2,24 +2,25 @@
 ---
 
 
-## 日本首相与乌克兰总统电话会谈 日方将提供高额贷款援助
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2008710/)
+## 加拿大广播公司加入了对自由车队的污蔑
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2009206/)
 
-撰稿:东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1499.png)[图片来源](https://newsatcl-pctr.c.yimg.jp/r/iwiz-amd/20220215-00000132-reut-000-3-view.jpg?exp=10800)
-2月15日晚，岸田文雄首相就目前俄乌紧张局势，与乌克兰总统泽连斯基通话，并表示准备提供至少1亿美元的贷款援助。
+撰稿：小毛牛
+![](https://assets.gnews.org/wp-content/uploads/2022/02/canada3.jpg)
+加拿大广播公司 (CBC) 新不伦瑞克省的主持人 Harry Forestell 和一名号称网络专家的嘉宾 David Shipley 周五在节目中表示，在加拿大抗议疫苗强制令的卡车司机受到外国代理人的指挥和操纵。
 
-同日，岸田首相与欧盟委员会主席和乌克兰总统分别举行了电话会谈。日本首相透露，两位领导人同意将通过外交努力来缓解紧张局势。同时，首相表明如果俄罗斯入侵乌克兰，日方将与包括七国集团在内的国际社会合作，采取适当措施，包括制裁。
+Shipley 说：谁现在有理由在加拿大造成这么多的混乱？没错，就是俄罗斯。我们现在正在参与一场关于乌克兰未来的地缘政治斗争。在Facebook里有人创建了几十万人的交流群，这明显就是俄罗斯背后操纵的风格。并且我有得到了一份报告，该报告显示
 
-岸田首相还明确向两位领导人重申，支持乌克兰的主权和领土完整。
+一名来自密苏里州的妇女的身份被盗，而她的名字被列为与卡车司机抗议有关的多个 Facebook 群组的创建者。但是这名妇女说她的页面被黑客了，她与加拿大的抗议活动无关。 造成今天这种混乱局面的原因是加拿大没有认真对待来自社交媒体虚假信息的威胁。
 
-虽然“贷款援助”总觉有点隔靴搔痒，但也算是个态度吧。毕竟中共病毒已让日本财政捉襟见肘了。
+另一位 CBC 主持人 Nil Köksal此前也曾暗示俄罗斯演员是抗议活动的幕后黑手。 他说到：鉴于加拿大在当前与俄罗斯的危机中支持乌克兰，这个可能有些牵强。但随着抗议活动的加剧，俄罗斯可能会继续助长目前的紧张事态。
 
-信息源：[1億ドル規模を借款で支援、岸田首相がウクライナ大統領に伝達](https://news.yahoo.co.jp/articles/7ad075d60b1f84ba97aff8e411a8bc3f0d3a9620)
+上周末，连接美国密歇根州底特律和加拿大安大略省温莎市的加拿大大使桥被自由车队的人封锁。但是在周日有 25 至 30 人被警察逮捕。随后，这座桥得以重新开放。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+眼下，加拿大卡车司机的自由车队运动所遭受的打压在西方国家是前所未见的。哪里有暴政，哪里就有反抗。当疫苗灾难爆发时，相信卡车司机们将会得以避免。
+
+新闻来源：[Canadian state news again suggests Russian forces behind trucker Freedom Convoy](https://www.foxnews.com/media/canadian-state-news-again-suggests-russian-forces-behind-freedom-convoy)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
