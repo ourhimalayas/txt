@@ -2,42 +2,25 @@
 ---
 
 
-## 香港新闻自由已死 港人因曾有的自由而遭惩治
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2004665/)
+## 美众议院对中共提起严厉制裁法案
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2004703/)
 
-翻译： Jenny Ball
+采编：   风云小哥          编译撰稿：文明(添草灭共)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-25.jpg)图片来源：thegatewaypundit.com
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/GettyImages-1153354315-640x480-1.png)图片来源：breitbart
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unknown-3-9.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unknown-5-6.png)图片来自原文
+据【布莱特巴特新闻】近日报道，在共和党和众议院高层的支持下，美国众院议员麦克莱恩提出了名为[制止中共法案]的立法议案，拟对中共党魁习近平家族及其数千名中共高官进行制裁。
 
-推文内容： 一个“错误”的词可能会让我们失去工作，或者更糟糕，会让我们入狱。每当我看到记者被捕或媒体机构被封时，我都会告诉自己，我必须更加努力地做好他们要做的事情。但我不知道这是否可能。
+据悉，该法案针对中共高层官员以及”全国代表大会 “的每个成员及其直系亲属。制裁措施包括禁止他们获得美国签证、使用美国金融系统和取得美国资产等。同时也禁止美国公司与制裁对象个人及其亲属进行任何形式的交易。
 
-《金融时报》报道了香港自由媒体的大量减少：
+此外该法案还提出取消这些制裁的条件，就是必须停止种族灭绝和在香港的杀戮、停止盗窃美国的知识产权以及放弃对台湾的入侵。
 
-记者广泛谴责香港的“新闻自由之死”，其充满活力的媒体场景——至少有 15 种带有政治倾向的报纸标题和超过 4 个新闻频道，为 740 万人口提供服务——曾被誉为亚洲最随心所欲“新闻自由”之一。让当地记者失去信心的不仅仅是最近这些高调的关闭。北京于 2020 年实施全面的《国家安全法》的连锁反应——导致数十名民主活动人士被捕或逃离城市，以及 50 多个民间社会团体被迫关闭——这些情况仍在恶化。去年 6 月，香港最大的民主派小报《苹果日报》在警方突袭，并逮捕其高级管理人员后被关闭。 “没有新闻自由，工资又低，没有人愿意再进入这个行业，”中文报纸《明报》的一名 20 多岁的记者说。她正在转向一份薪水更高的公关工作。
+校对编辑：硫酸羟氯喹64
 
-现在中共国（因为没有中共的批准，现在什么都做不了）要求香港再封锁两周。直到星期四，当再次采取关闭国家的 COVID 行动之前，理发店和寺庙都很忙。 不用担心。 香港应该在一年内开放。
+发稿：文明(添草灭共)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unknown-6-5.png)图片来自原文
-
-推文内容：香港将在“一年之内”开放？！？！？ 国泰航空濒临死亡，市场上没有蔬菜，证监会找不到工作人员，陈智思（立法会议员）说他“非常乐观”这座城市将在明年重新向世界开放。
-
-香港人因为曾经自由而受到惩罚。香港被封了。曾经伟大的世界级机场，每天有 250,000 人飞行，现在已减少到 5,000 人。
-
-美国现状离这个曾经美丽自由的香港还有多远？
-
-**参考资料：**[thegatewaypundit][The Free Press Is Dead and COVID Lockdowns Are Back in Place – The People of Hong Kong Are Being Punished for Once Being Free](https://www.thegatewaypundit.com/2022/02/free-press-dead-covid-lockdowns-back-place-people-hong-kong-punished-free/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=daily)
-
-* * *
-
-*审核：文乐
-校对：小东
-发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1.jpeg)
+原文链接： https://www.breitbart.com/politics/2022/02/09/exclusive-house-conservatives-introduce-sanctions-proposal-for-thousands-chinese-communist-party-officials/
 
  
 
