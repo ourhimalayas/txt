@@ -15,133 +15,133 @@
 
 ---
 
-### [2月15日勿忘香港 疫情（图片1-3）](/content/gnews/1/README.md)
+### [美国财政部确认，加密货币矿工不受美国国税局报告规则的约束](/content/gnews/1/README.md)
+ ` 温哥华扬帆农场`
+
+### [七哥金句：放毒锁国](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
+
+### [2月15日勿忘香港 疫情（图片4-6）](/content/gnews/3/README.md)
  ` 波士顿五月花农场`
 
-### [2/14银河快讯：日本考虑将外国人入境上限提高；选手返回日本后彻底删除冬奥APP](/content/gnews/2/README.md)
+### [2月15日勿忘香港 疫情（图片1-3）](/content/gnews/4/README.md)
+ ` 波士顿五月花农场`
+
+### [2/14银河快讯：日本考虑将外国人入境上限提高；选手返回日本后彻底删除冬奥APP](/content/gnews/5/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [2月13日文贵大直播摘要/（11-13）](/content/gnews/3/README.md)
+### [2月13日文贵大直播摘要/（11-13）](/content/gnews/6/README.md)
  ` 波士顿五月花农场`
 
-### [2022年2月15日，全球中共病毒疫情情况汇总](/content/gnews/4/README.md)
+### [2022年2月15日，全球中共病毒疫情情况汇总](/content/gnews/7/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [我和母亲的相处](/content/gnews/5/README.md)
+### [我和母亲的相处](/content/gnews/8/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [红血球和新冠疫苗混合后失去了携氧能力并开始凝结，这就发生在疫苗与血液结合的一天后](/content/gnews/6/README.md)
+### [红血球和新冠疫苗混合后失去了携氧能力并开始凝结，这就发生在疫苗与血液结合的一天后](/content/gnews/9/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [喜系列财富之门](/content/gnews/7/README.md)
+### [喜系列财富之门](/content/gnews/10/README.md)
  ` 纽约香草山MOS03`
 
-### [郭文贵盖特音频2022.02.15](/content/gnews/8/README.md)
+### [郭文贵盖特音频2022.02.15](/content/gnews/11/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [澳大利亚的CCP病毒死亡人数创下历史新高！](/content/gnews/9/README.md)
+### [澳大利亚的CCP病毒死亡人数创下历史新高！](/content/gnews/12/README.md)
  ` 澳喜特战旅Gnews`
 
-### [2/15银河快讯：日本撤走除少数驻乌克兰使馆人员外的所有人员；日本央行无限量购买日本国债](/content/gnews/10/README.md)
+### [2/15银河快讯：日本撤走除少数驻乌克兰使馆人员外的所有人员；日本央行无限量购买日本国债](/content/gnews/13/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [NFSC新闻、G|TV新闻访谈简报|2022年2月15日早](/content/gnews/11/README.md)
+### [NFSC新闻、G|TV新闻访谈简报|2022年2月15日早](/content/gnews/14/README.md)
  ` 纽约香草山MOS01`
 
-### [新南威尔士州注射疫苗前后感染中共病毒人数相差202倍](/content/gnews/12/README.md)
+### [新南威尔士州注射疫苗前后感染中共病毒人数相差202倍](/content/gnews/15/README.md)
  ` 温哥华扬帆农场`
 
-### [中共国的产业收购蓝图](/content/gnews/13/README.md)
+### [中共国的产业收购蓝图](/content/gnews/16/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [NewSGman┃川普支持加拿大卡车车队反对疫苗暴政](/content/gnews/14/README.md)
+### [NewSGman┃川普支持加拿大卡车车队反对疫苗暴政](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [挪威将取消大多数疫情限制措施](/content/gnews/15/README.md)
+### [挪威将取消大多数疫情限制措施](/content/gnews/18/README.md)
  ` NFSC News`
 
-### [挪威取消了几乎所有剩余的Covid-19限制](/content/gnews/16/README.md)
+### [挪威取消了几乎所有剩余的Covid-19限制](/content/gnews/19/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [魁北克省勒戈（Legault）政府拒绝实施《紧急措施法》](/content/gnews/17/README.md)
+### [魁北克省勒戈（Legault）政府拒绝实施《紧急措施法》](/content/gnews/20/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [加拿大疫情检验和疫苗强制政策骤现松动趋势](/content/gnews/18/README.md)
+### [加拿大疫情检验和疫苗强制政策骤现松动趋势](/content/gnews/21/README.md)
  ` NFSC News`
 
-### [美联储加息风暴与中国房地产泡沫破裂的核聚变](/content/gnews/19/README.md)
+### [美联储加息风暴与中国房地产泡沫破裂的核聚变](/content/gnews/22/README.md)
  ` 澳喜农场`
 
-### [有声|印度政府加码禁用54个中共应用程序](/content/gnews/20/README.md)
+### [有声|印度政府加码禁用54个中共应用程序](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [产经新闻：中国在阿拉伯各国关押、遣返维吾尔人，或存在执法黑屋](/content/gnews/21/README.md)
+### [产经新闻：中国在阿拉伯各国关押、遣返维吾尔人，或存在执法黑屋](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [《文贵大直播》揭示各国大卡车运动的深远意义](/content/gnews/22/README.md)
+### [《文贵大直播》揭示各国大卡车运动的深远意义](/content/gnews/25/README.md)
  ` NFSC News`
 
-### [NewSGman┃德国总理肖尔茨宣布不出席北京冬奥会](/content/gnews/23/README.md)
+### [NewSGman┃德国总理肖尔茨宣布不出席北京冬奥会](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|美元欧元互存，经济崩塌喜币将是最大赢家](/content/gnews/24/README.md)
+### [有声|美元欧元互存，经济崩塌喜币将是最大赢家](/content/gnews/27/README.md)
  ` MOSREC`
 
-### [针对新冠病毒疫苗护照和绿色通行证的抗议](/content/gnews/25/README.md)
+### [针对新冠病毒疫苗护照和绿色通行证的抗议](/content/gnews/28/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [有声|郭文贵先生谈喜币最牛的四大因素](/content/gnews/26/README.md)
+### [有声|郭文贵先生谈喜币最牛的四大因素](/content/gnews/29/README.md)
  ` MOSREC`
 
-### [还原一代科技宗师叶企孙先生所遭受的共产主义迫害](/content/gnews/27/README.md)
+### [还原一代科技宗师叶企孙先生所遭受的共产主义迫害](/content/gnews/30/README.md)
  ` NFSC News`
 
-### [中资企业拟收购澳洲稀土公司](/content/gnews/28/README.md)
+### [中资企业拟收购澳洲稀土公司](/content/gnews/31/README.md)
  ` NFSC News`
 
-### [众议员丽萨谈制裁中共法案已经触怒了中共](/content/gnews/29/README.md)
+### [众议员丽萨谈制裁中共法案已经触怒了中共](/content/gnews/32/README.md)
  ` NFSC News`
 
-### [加拿大公民自由团体谴责特鲁多的《紧急状态法》](/content/gnews/30/README.md)
+### [加拿大公民自由团体谴责特鲁多的《紧急状态法》](/content/gnews/33/README.md)
  ` 温哥华扬帆农场`
 
-### [有声|霍德金森博士称不告知真相的医生是谋杀案同谋](/content/gnews/31/README.md)
- ` MOSREC`
-
-### [中俄发动战争必被灭 世界经济将重整](/content/gnews/32/README.md)
+### [中俄发动战争必被灭 世界经济将重整](/content/gnews/34/README.md)
  ` NFSC News`
 
-### [秘翻在线：俄宣布从乌克兰边界部分撤军](/content/gnews/33/README.md)
+### [秘翻在线：俄宣布从乌克兰边界部分撤军](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [樱花FM┃美国担任APEC主席意在牵制中共](/content/gnews/34/README.md)
+### [樱花FM┃美国担任APEC主席意在牵制中共](/content/gnews/36/README.md)
  ` 樱花FM`
 
-### [NewSGman┃印度决定抵制北京冬奥开闭幕式](/content/gnews/35/README.md)
+### [NewSGman┃印度决定抵制北京冬奥开闭幕式](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [02/15 每日播报｜社媒消息:班农 罗伯特马龙博士](/content/gnews/36/README.md)
+### [02/15 每日播报｜社媒消息:班农 罗伯特马龙博士](/content/gnews/38/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [2/15/2022国际财经快讯：欧股下挫，俄乌关系紧张令市场不安；全球芯片2022年将增长8.8%](/content/gnews/37/README.md)
+### [2/15/2022国际财经快讯：欧股下挫，俄乌关系紧张令市场不安；全球芯片2022年将增长8.8%](/content/gnews/39/README.md)
  ` 秘密翻译组金融团队`
 
-### [2月11日晚法国足球运动员埃玛努埃尔•吉拉尔多特在一场足球比赛中突感不适死亡](/content/gnews/38/README.md)
+### [2月11日晚法国足球运动员埃玛努埃尔•吉拉尔多特在一场足球比赛中突感不适死亡](/content/gnews/40/README.md)
  ` xiaobaige`
 
-### [秘翻在线：新冠疫苗接种者占全部病例近九成 三针群体死亡率激增495%](/content/gnews/39/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [泽连斯基确认俄罗斯入侵警告， 美国驻乌大使馆迁出基辅](/content/gnews/40/README.md)
+### [泽连斯基确认俄罗斯入侵警告， 美国驻乌大使馆迁出基辅](/content/gnews/41/README.md)
  ` 澳喜特战旅Gnews`
 
-### [美议员国会推出议案 要求在美上市企业披露是否有中共参与](/content/gnews/41/README.md)
+### [美议员国会推出议案 要求在美上市企业披露是否有中共参与](/content/gnews/42/README.md)
  ` 日本东京方舟农场`
 
-### [NewSGman┃北京冬奥会搜集DNA是何邪恶目的](/content/gnews/42/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [NewSGman┃中共收集北京冬奥会有何参与者生物数据邪恶目的](/content/gnews/43/README.md)
+### [NewSGman┃北京冬奥会搜集DNA是何邪恶目的](/content/gnews/43/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [日本首相与乌克兰总统电话会谈 日方将提供高额贷款援助](/content/gnews/44/README.md)

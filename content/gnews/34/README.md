@@ -2,24 +2,37 @@
 ---
 
 
-## 樱花FM┃美国担任APEC主席意在牵制中共
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2009454/)
+## 中俄发动战争必被灭 世界经济将重整
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2009487/)
 
-音频：东京樱花团/战友520
-![](https://lh5.googleusercontent.com/k5fERQ99HKg1bT8fuPj_rwkvqbIwuz7SemMfScTcxPiSxPmelLvoYBJI30HW204VtEb3DM_Vpip9vdsj6cVUarnNZSW6YooUuv_nLTERGOLu3ZqSYz5oJ2VY3SiJzACVgg4_NliK)
-白宫2月10日宣布，美国将在2023年主持亚太经济合作组织（APEC）论坛，担任亚太经合组织主席，以努力加强与亚太地区的联系，并牵制中共在该地区日益增长的经济影响力。
+作者：纽约磐石农场—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在2月13日的大直播中，郭文贵先生概括性地分析了当前的世界局势及大致走向。
 
-拜登上任以来重新推动印太经济框架的政策，与日本和其他亚太经合组织成员建立共同的贸易和先进技术规则。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1-6.jpeg)
 
-拜登政府于2021年8月竞选主席，但在当年11月举行的APEC峰会上没有当选，之后在成员国间的斡旋下成为下届主席国。这是自2011年欧巴马政府以来，美国首次担任亚太经合组织主席国。
+郭先生认为，北京冬奥会结束之后，全世界的视线都会聚焦在武汉实验室的身上。俄罗斯一旦侵略乌克兰，不管中共打不打台湾，都意味着普京政权的结束，这会导致世界经济彻底混乱，然后重整，
 
-亚太经济合作组织成立于1989年，包括日本、美国和中国在内的21个国家和地区，是亚太区内各地区之间促进经济成长、合作、贸易、投资的论坛，为推动区域贸易投资自由化，加强成员间经济技术合作等方面发挥了不可替代的作用。
+之后，全世界会因释放病毒和支持俄罗斯追责中共，随后则将有三件事情发生：一是所有强迫民众施打疫苗的政客，都会被送上绞刑架。二是五月份以后，疫苗大灾难开始，大量人口死亡，社会动乱会此起彼伏。西方文明世界，将会重新改写。三是世界经济方面，经济泡沫会彻底破裂。世界上会有两种货币并存，即数字货币和法币。
 
-文字版原文：[美国担任APEC主席意在牵制中共– GNEWS](https://gnews.org/zh-hans/1988124/)
+在所有这些变革中，新中国联邦将是最大赢家。
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+参考链接： 
+ [https://www.gettr.com/post/pudoks629e](https://www.gettr.com/post/pudoks629e)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+
+总编：Zion文恩
+编辑：飞虹
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
