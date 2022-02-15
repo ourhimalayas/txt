@@ -2,35 +2,23 @@
 ---
 
 
-## 有声|美国紧急撤离基辅大使馆，俄乌大战在即的警钟
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2009143/)
+## NewSGman┃印度决定抵制北京冬奥开闭幕式
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2009293/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据外媒报导，继美国总统拜登10日通告所有美国公民「马上撤离乌克兰」后，美国务院也担心俄军会在「冬奥闭幕前」攻打乌克兰，所以决定启动「终极应变」，预计周六清晨就会正式对美国驻乌克兰大使馆下达「紧急撤退令」，此举被视为是等同于「大战将至」的最高规模示警。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/164486174969272_P15977057.jpg)
-报导中也提及，美国此一预测与盟邦所掌握的证据一致，就连先前对俄乌危机持相对保守态度的德国军方，也反常态的提出警示：美方的情资，这回非常可信而骇人。
+撰稿：东京樱花团/NewSGman
 
-同时，俄乌大战在即的警钟，对于中共是否会趁机发动台海危机，应保持高度警戒，不容轻忽。
+印度决定抵制北京冬奥开闭幕式
 
-文字版原文：[美国紧急撤离基辅大使馆，俄乌大战在即的警钟](https://gnews.org/zh-hans/2006481/)
+圣火传递手争议，中国与印度再生摩擦，这次是在北京冬季奥林匹克运动会，印度对于中国安排曾参与边界冲突的军官传递圣火感到“遗憾”决定不派外交官出席冬奥开幕和闭幕仪式。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+印度外交部发言人阿林丹·巴奇周四对记者说，中方选择将奥运会这样的赛事政治化令人遗憾。印度表示不会派高级外交官参加周五在中国北京开幕的冬奥会开幕式和闭幕式
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+盖特链接：https://gettr.com/post/psm17v2f1a
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -2,105 +2,34 @@
 ---
 
 
-## 新南威尔士州注射疫苗前后感染中共病毒人数相差202倍
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2009697/)
+## 我和母亲的相处
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2009793/)
 
-作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏）
+**作者：只有野草长的快**
+[![](https://express.adobe.com/page/bXwYgjreYpe4f/images/7ab317ca-014e-4b10-82d7-044b4904c210.jpg?asset_id=1fa1600c-c77b-4004-a428-4da52a8a705a&amp;img_etag=%2212c4139f29157e9b2c7ead921e88a066%22&amp;size=2560)](https://express.adobe.com/page/bXwYgjreYpe4f/images/7ab317ca-014e-4b10-82d7-044b4904c210.jpg?asset_id=1fa1600c-c77b-4004-a428-4da52a8a705a&amp;img_etag=%2212c4139f29157e9b2c7ead921e88a066%22&amp;size=1024)
+儿时被父母教导，现在我教导父母。儿时父母对我的教导是完全失败的，童年的我是一个极度的叛逆者，叛逆到小学五年级就退学，十一岁就独自混迹江湖……
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+现在，我已经快五十岁了。前年也就是2020年，我在钟南山下租了一个院子，决定和母亲一起住，一来是为了躲避疫情，二来是利用这段时间和母亲一起静静心。我对母亲说，我们能住在一起是很难得的，我们都要珍惜。
 
-COVID-19病毒非来源于自然，而是中共向全世界投放的生物化学武器，COVID-19病毒由[中国科学院武汉病毒研究所](http://www.whiov.cas.cn/)通过基因编辑技术人工合成，没有疫苗！
+一个院子前后小一亩地，打理起来是不容易的，我们都没有这样的生活经验。母亲曾是一个特别随性的人，不讲究生活，一直都是凑活过，家里乱到惨不忍睹，她也觉得没什么。事实上我也差不多，从小没有这方面的教育，简单的说就是没家教。我给母亲定下规矩，每天最重要的事就是打扫卫生。从厨房做起，水池里不能有剩饭残渣，地面要干净，卧室客厅都一样，院子也要天天打扫等。开始是很困难的，一段时间后，院子就变得清净舒服多了。我还要求母亲不要讲废话，不要讲是是非非，说话前要想一想，然后想好了再说，要说有用的话。母亲这几年幸亏是天天打坐静心，要不然是无法过这种生活的。曾经的母亲是一个说话颠三倒四的人，现在已经发生了翻天覆地的变化，但我相信她会有更多更好的改变。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/640px-Wuhan_Institute_of_Virology_main_entrance.jpg)
+一起慢生活了一段时间以后，我和母亲就有了深入的沟通。对于过去也有比较中立的总结，对现在的国情也有很多讨论。朋友们没事也来小院，了解我和母亲的相处方式以后都表示反对。说我简直是虐待老人，认为只要老人家高兴就好，想干嘛就让她干嘛，不要管她。我给朋友解释我的理由，他们也根本不听，我并不期待理解，我和母亲能如此的沟通觉得就很好了。
 
-试验性的COVID-19病毒疫苗不但不能预防感染，还会对人体免疫系统产生持续性的破坏，注射试验性的疫苗只会增加感染、住院、ICU甚至死亡。
+我之所以选择这样的生活，是因为要改变我们自己，要进步，要把我们都变成自律的人，能够独自面对生活的人，要变成清醒的人。我和母亲的沟通也变得更加坦诚，我甚至和母亲谈到，作为老年人不能消极地认为自己来日无多而得过且过，反而是要在生命的最后阶段训练自己，让自己清醒有觉察，做每件事都要用心。想要保持觉察，则需要大量的训练。我对母亲说希望她在临终那一刻，也能清清楚楚的保持觉察。母亲很赞同我，我对母亲说你不用敷衍我，我也没兴趣听好听的话，我也常常问她会不会觉得太严苛，不舒服，她说很好，她愿意听，因为我说的对。她还劝我不要和朋友争论，说他们不懂！这让我感到很高兴和欣慰。
 
-澳大利亚新南威尔士州的统计数据就是最好的证明！
+现在，我的母亲完全是一个可以独立的人，一个人独处也可以高高兴兴。每次我和母亲视频通话时，她都会说“儿子你看妈现在多开心啊”，每次视频我们都能聊很长时间。她对我讲她们的同学聚会，讲那些同学是怎样勾心斗角的，她只是一个旁观者，还能嘻嘻哈哈的逗她们哈哈大笑，化解尴尬，她说的风趣幽默。我看到她在视频里笑着描述她们同学之间的相处，她笑得合不拢嘴，还时不时问我她们同学搞笑不搞笑。有时她笑得都要掉眼泪，那种笑容像小孩一样的无所顾忌。
 
-截止到本月10日，澳大利亚新南威尔士州年满16岁的人单剂中共病毒疫苗接种率高达95.55%，接种两剂（或完全接种疫苗）的比例为91.14%，甚至三针或加强针的比例都高达46.5%。
+我不是一个什么孝子，压根也没有要去行孝的概念。我甚至对父母说，要是我们相处愉快，我们就一起生活，要是对方觉得不舒服，我们就立刻选择保持距离。我还说，我们尽量把自己照顾好，我以后不见得就照顾得了你们。说不定自己都很难活，我不愿意低声下气去挣钱，做叫花子我都想过，可见我不是一个什么孝顺的人。可就是这样一个人，却做了全天下最孝的事。我并没有预期会有这样的结果，本来只是想静静心提升一下，谁想母亲竟体会到了真正的快乐和洒脱！我曾经认真的对母亲说，我对你已经完全放心了，我们都不会再变成彼此的负担。曾经我很担心我的生命要去经历陪伴一个孤独，寂寞，躺在病床上怕死的一个老人。现在我心里完全没有这方面的顾虑，突然身体像是去掉了二十公斤，很轻松。我希望未来母亲的离去将是一次生命最绚烂的绽放，同时这也是我最深的祝福。
+[![](https://express.adobe.com/page/bXwYgjreYpe4f/images/c83eb6d6-b84a-4a19-bf87-ed8e9d6c5ee3.jpg?asset_id=b875df78-9708-4e4c-9aab-77abffff3148&amp;img_etag=%222f594f7bffc865fd40cde167aa6d0a11%22&amp;size=2560)](https://express.adobe.com/page/bXwYgjreYpe4f/images/c83eb6d6-b84a-4a19-bf87-ed8e9d6c5ee3.jpg?asset_id=b875df78-9708-4e4c-9aab-77abffff3148&amp;img_etag=%222f594f7bffc865fd40cde167aa6d0a11%22&amp;size=1024)
+*编辑：【英国伦敦喜庄园编辑部】*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-15_22-43-27.png)
+*校对：仙女儿-文善|审核：文明明| Page：小六月*
 
-如果试验性的COVID-19病毒疫苗真的可以预防感染，甚至即使没有任何作用，该州有如此高的疫苗接种率，中共病毒应当控制得相当好！
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
 
-然而，到今天为止，澳大利亚新南威尔士州的中共病毒确诊案例达到惊人的1,031,688，占该州816.3万人口的12.64%，其中，91.4%是在最近63天内感染的。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/NSW-Total-Cases.jpg)
-
-在去年1月25日澳大利亚开始注射COVID-19病毒疫苗以前，去年1月24日正好是该州发现第一例中共病毒感一周年的时候，染该州累计确诊人数仅为5,087人，只有目前的0.49%。在该州开始注射试验性的疫苗短短一年零22天的时间内，感染率就增加了202倍。
-
-按照新南威尔士州卫生部门2月4日发布的每周COVID-19监测报告（[COVID-19 WEEKLY SURVEILLANCE IN NSW EPIDEMIOLOGICAL WEEK 03 ENDING 22 JANUARY 2022—Published 4 February 2022](https://www.health.nsw.gov.au/Infectious/covid-19/Documents/covid-19-surveillance-report-20220204.pdf)）（2021年11月26日到2022年1月22日的数据）第32页的对疫苗接种状态的定义，该州卫生部门发布的每周COVID-19监测报告中，数据的统计标准是疫苗接种状态分为：
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/NWS-COVID-19-Vaccine-Status.jpg)
-
-未接种疫苗（No effective dose）：指从未接种过COVID-19病毒疫苗或者在PCR检测COVID-19呈阳性时，距离接种第1针COVID-19疫苗的日期不超过21天。
-
-接种过1针疫苗（Partially vaccinated）：指PCR检测COVID-19呈阳性时，接种过1针疫苗，且距离接种第1针疫苗的时间大于21天。如果接种了2针，则距离接种第2针的日期不超过14天。或者接种了1针Johnson & Johnson疫苗后不超过14天。
-
-完全接种疫苗（Fully vaccinated）：指PCR检测COVID-19呈阳性时，接种完所有疫苗，且接种疫苗的时间超过14天。
-
-疫苗接种状态不明确（Under investigation）
-
-查看上面该州年满16岁的人疫苗接种率的时间分布图，尽管该图无法查到去年11月26日前推14天的11月11日新南威尔士州加强针接种数据，但澳大利亚在去年10月7日才开始接种加强针，到去年11月11日时，加强针接种率为0.92%，而到2021年11月26日~2022年1月22日的中位日期2021年12月25日时，加强针接种率为7.98%，而到今年1月22日时，该州加强针疫苗接种率已经达到25.05%。
-
-结合上面的疫苗接种状态定义，显然存在大量接种3针和加强针的感染者被归入打了两针。
-
-而根据2月4日发布的每周COVID-19监测报告第11页，5~11岁儿童1针疫苗接种率，从1月9日开始接种，到1月22日已经达到25%左右。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Figure-7-Proportion-of-children-aged-5-11-years.jpg)
-
-结合上面的疫苗接种状态定义，显然存在大量接种1针不超过21天的感染者被归入未打疫苗的人群。
-
-尽管通过这样的刻意偷换概念，将很多接种COVID-19病毒疫苗不超过21天的COVID-19感染者记入未接种人群，仍然无法掩盖疫苗带来的严重灾难的事实！
-
-下图为根据2月4日发布的每周COVID-19监测报告第9页，根据疫苗接种状态划分的确诊感染、住院、ICU和死亡数据
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Table-5-Hospitalisations-ICU-admissions-and-deaths.jpg)
-去掉疫苗接种状态未知的数据，根据疫苗接种状态分类的病例、住院和死亡数据如下图
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-289-1.png)
-
-无论确诊、住院，还是死亡，接种疫苗的人群都占了绝大多数。
-
-去掉疫苗接种状态未知的数据，在11月26日至22日1月22日期间，新南威尔士州共有540,330例新增病例，其中接种疫苗的人数达到了惊人的467,558人，占86.53%，而未接种疫苗的人数仅为72,772人，占13.47%。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-290-1.png)
-
-去掉疫苗接种状态未知的数据，在11月26日至22日1月22日期间，新南威尔士州共有6,475人因Covid-19住院，其中接种疫苗的达到惊人的5,653人，占87.3%，而未接种疫苗的仅822人，占12.7%。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-291-1.png)
-
-去掉疫苗接种状态未知的数据，在11月26日至22日1月22日期间，新南威尔士州共有421人不幸丧生，不幸的是，接种疫苗的死亡人数是323人，而未接种疫苗的人数仅98人。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-292-1.png)
-
-新南威尔士州的这份报告按10岁的年龄分段来报告分年龄段的感染者数据，显然这是非常不科学。因为这样把0~4岁的未接种过疫苗的小孩和5~11岁接种过疫苗的儿童感染中共病毒情况无法区分开来，这会使分析者缺少对照组，无法进行深入的分析。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Figure-8-Number-of-PCR-tests-per-1000-population-by-age-group-NSW-16-June-2021-to-22-January-2022.jpg)
-
-参考数据：
-
-[COVID-19 WEEKLY SURVEILLANCE IN NSW EPIDEMIOLOGICAL WEEK 03 ENDING 22 JANUARY 2022—Published 4 February 2022](https://www.health.nsw.gov.au/Infectious/covid-19/Documents/covid-19-surveillance-report-20220204.pdf)
-
-[Live COVID-19 Vaccination Tracker Australia](https://covidvax.live/location/aus)
-
-[NSW – vaccine targets and forecasts](https://www.covid19data.com.au/vaccine-forecasts)
-
-[NSW data:Vaccination status of cases and hospitalisations](https://www.covid19data.com.au/nsw)
-
-[The latest case numbers, vaccination totals and statistics on coronavirus disease in NSW.](https://www.nsw.gov.au/covid-19/stay-safe/data-and-statistics)
-
-[Population of New South Wales 2022](https://www.population.net.au/population-of-new-south-wales/)
-
-[Data on COVID-19 (coronavirus) by Our World in Data](https://github.com/owid/covid-19-data/tree/master/public/data)
-
-[COVID-19 data and statistics](https://www.nsw.gov.au/covid-19/stay-safe/data-and-statistics)
-
-[Covid-19 Deaths are at record levels in Australia and 4 in every 5 of them are among the Fully Vaccinated](https://dailyexpose.uk/2022/02/15/australia-4-in-5-covid-deaths-fully-vaccinated/)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
-
-
-
+[![](https://express.adobe.com/page/bXwYgjreYpe4f/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://express.adobe.com/page/bXwYgjreYpe4f/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

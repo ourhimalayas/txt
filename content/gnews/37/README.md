@@ -2,38 +2,20 @@
 ---
 
 
-## 美公布印太战略 挺台自我防卫
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2009026/)
+## 2月11日晚法国足球运动员埃玛努埃尔•吉拉尔多特在一场足球比赛中突感不适死亡
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2009221/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image011-1.jpg)
-美国白宫**11**日公布**“**印度太平洋战略**”**报告，誓言对印太地区投注更多外交与安全资源，以对抗中国扩张势力，同时将与区域伙伴合作维持台海稳定，包括支持台湾的自我防卫能力，与确保台湾能有和平决定未来的环境，以及威慑包括台海在内的军事侵略行动。**
+#### 翻译 /简评                     意大利达芬奇农场                    小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-15-alle-11.30.11.png)图片来源：eventiavversinews.it
+埃玛努埃尔•吉拉尔多特是Fc Fontcouvert 队的一名足球老将，他同时还是一名体育老师。2月11日晚在一场足球比赛中突感不适。 在开场后的15分钟，吉拉尔多特心脏骤停，虽经经医生救治，但他没有活过来，刚到医院就离开了人世。
 
-**这份十九页的文件指出，美国加强聚焦印太，因为该区面临来自中共的挑战渐增。中共寻求在印太的影响力与称霸世界，其胁迫与侵略之举遍及全球，但在印太尤为严峻，包括对台湾的压力渐增，**“**美国与区域伙伴在未来十年的共同努力，将决定中华人民共和国是否会成功改变造福印太与世界的规则与规范**”**。**
+吉拉尔多特所在的Fc Fontcouverte 球队2月12日在其社交网站上宣布了他死亡的消息。“ FC Fontcouvert 球队怀着悲伤的心情宣布埃玛努埃尔•吉拉尔多特于昨晚去世。他是俱乐部的老球员，昨天在一场球赛中他突感不适。俱乐部向他的家人和亲人们致以慰问。”
 
-**但是报告中也说，美国也同时会遵守一中政策，以及在台湾关系法、美中三公报与美对中六项保证中的长期承诺。
+简评：每个星期我们都能读到或看到球员去世的消息，但是在报道中没有提球员是否接种了新冠疫苗。太多的心脏骤停，太多的年轻健康的运动员“突感不适”。还会有多少年轻健康的生命会突然逝去？
 
+原文链接：[https://www.eventiavversinews.it/francia-muore-colpito-da-malore-improvviso-venerdi-sera-11-febbraio-durante-una-partita-il-calciatore-emmanuel-girardot-rinviate-per-lutto-tutte-le-partite-del-weekend-nella-provincia/](https://www.eventiavversinews.it/francia-muore-colpito-da-malore-improvviso-venerdi-sera-11-febbraio-durante-una-partita-il-calciatore-emmanuel-girardot-rinviate-per-lutto-tutte-le-partite-del-weekend-nella-provincia/)
 
-
-**推出问题，敲出真相，爆料在路上！**
-
-**请关注和订阅我们的以下账号：**
-
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
-
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
-
-**玫瑰看新闻YOUTUBE账号**：
-
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**ROSE NEWS**
-
-**【玫瑰看新闻】推特账号**：
-
-**ROSE NEWS (@ROSENEWS4)A**
+编辑、上传： Xiao   baige
 
  
 

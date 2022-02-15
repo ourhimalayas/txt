@@ -2,24 +2,26 @@
 ---
 
 
-## 中资企业拟收购澳洲稀土公司
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2009515/)
+## 有声|印度政府加码禁用54个中共应用程序
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2009619/)
 
-作者：纽约香草山医疗部-云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月14日，澳洲媒体报导，中共企业盛和资源正在计划收购澳洲稀土开采公司PEK。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-15-上午10.45.48.png)
-报导称，盛和资源将向私募股权基金Appian Capital收购其持有的19.9% 的PEK股权。目前PEK公司拥有包括在坦尚尼亚恩拉矿区的稀土开采计划，并拥有在英国密得堡的稀土冶炼厂。中资企业如果收购成功，无疑将进一步加大中共在稀土资源上的掌控力量。
+配音：香草山巡管部– 文凯琳
 
-有专家表示，当前全球17种稀土元素，有八成的产量来自中共，稀土资源已经成为中共试图控制世界的另一种战略武器。
 
-参考链接：[中資擬收購澳洲稀土公司 媒體：緊掐全球供應命脈](https://www.cna.com.tw/news/aopl/202202140058.aspx)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-总编：Zion文恩
-编辑：飞虹
-校正/发稿：呼吸的雾霾（文小呼吸）
+
+
+当地时间2月14日，印度政府公告，因为信息安全的理由，加码禁止使用54个由中共制作的应用程序。阿里巴巴及腾讯等大公司出品的程序亦名列其中。
+
+印度电子暨信息科技部发现，这些被公告禁用的程序，在未经用户的同意下，将使用客户的敏感数据自动传送到包括中国在内的境外服务器，因此造成个人信息安全危险。谷歌等多家应用程序商店已被下令封锁这些应用程序。
+
+文字版原文：[印度政府加码禁用54个中共应用程序](https://gnews.org/zh-hans/2007701/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -27,7 +29,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

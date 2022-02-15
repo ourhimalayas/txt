@@ -2,32 +2,35 @@
 ---
 
 
-## 众议员丽萨谈制裁中共法案已经触怒了中共
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2009514/)
+## 产经新闻：中国在阿拉伯各国关押、遣返维吾尔人，或存在执法黑屋
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2009614/)
 
-作者：银河系农场—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月12日外媒报道，众议员丽萨-麦克莱恩谈及，她最近提出的关于制裁中共高官及其家人、资产的法案，她说这个法案明显已经触怒了中共，但是美国有勇气面对中共的报复和威胁。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-15-上午10.45.41.png)
-丽萨认为，该法案的提出，也说明了中共的行为是不能容忍的，美国国会不能再对中共的各种侵犯人权，以及进行种族大屠杀的行为视而不见，无论是对香港、维族穆斯林还是台湾。同时，她呼吁美国那些和中共合作的政府官员，应当即刻停止与中共的勾兑。
+翻译：宫米叶
 
-此制裁法案可能与之前的国防授权法联合起来。丽萨一再强调软弱与妥协只会让中共发动再次攻击。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-15-171105.jpg)图片来源：yahoo.co.jp
 
-参考链接：[Exclusive — Rep. Lisa McClain on Stop CCP Act: ‘We’ve Struck a Nerve’](https://www.breitbart.com/politics/2022/02/12/exclusive-rep-lisa-mcclain-on-stop-ccp-act-weve-struck-a-nerve/)
+欧美媒体相继报道了从中国新疆维吾尔自治区移居阿拉伯国家的维吾尔人在当地被拘留或被强行遣返中国的案件。这似乎也是应中国对经济联系密切的阿拉伯国家要求进行的拘留和遣返。欧美媒体和流亡维吾尔人组织“世界维吾尔会议”的干部还指出，阿联酋(UAE)可能有一个被称为“执法黑屋”的中国秘密收容所。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+英国天空新闻电视台9日报道，据推测，应中国的要求在阿拉伯国家被拘留或被强行遣返中国的维吾尔人自2001年以来已升至290多人。分析认为，除阿联酋外，埃及、摩洛哥、卡塔尔、沙特阿拉伯和叙利亚都参与了中国对维吾尔人的镇压。
 
-总编：Zion文恩
-编辑：Ivy001
-校正/发稿：呼吸的雾霾（文小呼吸）
+据天空新闻和美国CNN电视台报道，居住在阿联酋的维吾尔男子阿玛德（音）先生于2018年2月突然接到迪拜警方的出庭要求后被拘留。据悉，阿玛德先生在被遣返中国前夕曾对妻子说：“我确信中国的威胁甚至危及到了阿联酋的家人。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+也有迪拜存在“执法黑屋”的目击信息被曝光。据天空新闻和美联社报道，汉族妇女吴凡（音，时年26岁）去年5月因未婚夫支持香港民主示威而被迪拜警方拘留，并被带到一栋三层宅邸。
+
+在这座宅邸里，她被押进一个像牢房一样带金属门的小房间，保安用中文威胁她：“你绝对出不去的。”据悉，被关押期间，她听到一名被视为维吾尔族女子呼喊“我不想回中国，我要回土耳其”等。根据英国人权专家的说法，这座宅邸可能是一个中国在海外关押和审讯维吾尔人的秘密收容所。
+
+据英国媒体报道，中国让六千多家企业进驻阿联酋，与阿联酋经济联系紧密。世界维吾尔会议英国所长拉希玛·玛夫姆特（音）先生向产经新闻指出：“一些国家将经济利益看的比人命更重要而迎合中国政府的意图，关押维吾尔人。”他认为，除了迪拜之外，还可能存在别的“执法黑屋”，他对“中国的越境压迫和统治体系持续渗透”表示深感危机。
+
+尽管天空新闻已经向UAE等国寻求解释，但截至9日仍未获得答复。新疆维吾尔自治区发言人否认了天空新闻的报道，称“中国不可能在海外设置执法黑屋”。
+
+新闻来源：[yahoo.co.jp][アラブ諸国でウイグル人拘束　中国に送還、秘密収容所も存在か](https://news.yahoo.co.jp/articles/9a90b0183dd58015a18ae4f3d0da8722ac01eb3c)
+
+* * *
+
+*审核：天天 
+校对：zicoround
+发稿: Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-2.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
