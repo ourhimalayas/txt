@@ -2,20 +2,29 @@
 ---
 
 
-## 北京冬奥会挪威著名选手在接近终点时心脏突然不适，瘫倒在地
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2008036/)
+## 郭文贵精品视频-UBS瑞士银行的神秘黑洞将被我们撬开
+` cindy` [轉載自GNews](https://gnews.org/zh-hans/2008274/)
 
-#### 翻译                      意大利达芬奇农场                小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-15-alle-10.57.38.png)图片来源：eventiavversinews.it
-2月13日星期日，在北京张家口举行的冬季两项比赛中发生了戏剧性的一幕。
+撰稿：澳喜cindy
 
-挪威25岁选手英格丽德•兰德马克•坦勒沃尔在2019年瑞典的厄斯特松德，2020年的特伦蒂诺-上阿迪杰的安泰尔塞尔瓦湖，2021年在斯洛文尼亚的泊克留卡举行的滑雪比赛中， 三次获得世界冠军。但在这次冬奥会比赛直播中突感不适。
+新中国联邦的创始人郭文贵先生针对中共盗国贼家族在UBS瑞士银行使用和存放巨额非法资金及非法强卖郭先生家族基金所拥有的股票，损失惨重等罪行提起诉讼。历经7年磨难终于于2022年2月9日在英国伦敦被正式立案。
 
-这位来自斯堪的纳维亚半岛的选手正在全力争夺奖牌，几乎有得到铜牌的希望。但是在离终点还有500米的时候，坦勒沃尔的希望破灭，她被其他选手超越。一个突然而毁灭性的意外使她的目标毁于一旦， 最后她是第十四个到达终点站。突然不适使她失去获得奖牌的喜悦， 她由于心脏出了问题， 倒在地上。
+郭先生在美国76个官司的经历深深地体会到了美国司法已被中共严重的渗透了。文贵先生说：英国比较独立，司法系统没有像美国那样被中共渗透的太厉害。此次对瑞士银行的起诉案，从2015年开始，历经7年的困难与周折，终于在世界金融中心的伦敦被正式立案，自此开启了与中共及其背后沼泽地势力殊死搏斗的首场战役。
 
-原文链接：[https://www.eventiavversinews.it/momenti-drammatici-alle-olimpiadi-di-pechino-la-tre-volte-campionessa-del-mondo-di-biathlon-ingrid-tandrevold-crolla-a-terra-in-vista-del-traguardo-per-un-improvviso-](https://www.eventiavversinews.it/momenti-drammatici-alle-olimpiadi-di-pechino-la-tre-volte-campionessa-del-mondo-di-biathlon-ingrid-tandrevold-crolla-a-terra-in-vista-del-traguardo-per-un-improvviso-problema-cardiaco/)[problema-cardiaco/](https://www.eventiavversinews.it/momenti-drammatici-alle-olimpiadi-di-pechino-la-tre-volte-campionessa-del-mondo-di-biathlon-ingrid-tandrevold-crolla-a-terra-in-vista-del-traguardo-per-un-improvviso-problema-cardiaco/)
+目前全世界储存在瑞银的黑钱数量已超过100万亿美元以上。中共邪恶政权自其成立以来，所盗取的大部分国家财富一大部分存在这里。中共盗国贼存在UBS的巨额资金大约是该银行所拥有的总财富的一半。
 
-编辑、上传：  Xiao   baige
+郭先生坚信他的诉讼案肯定会牵扯出许多瑞银和中共见不得人的勾兑。许多秘密数据将最终被公之于众。这个深不可测的神秘的黑洞藏了多少黑钱？它背后又牵连到多少条鲜活的生命？
+
+这五年没有一个大律师敢接这个案子，给多少钱，他们也不敢接这个官司。因为共产党告诉UBS宁可花百亿千亿，提前付给世界上很多有名的大律师定金，将来这些大律师就不能参与郭先生告他们的案子了，否则就叫“利益冲突”。中共以此阴招妄想阻止郭先生对他们的追讨。
+
+郭先生说：此次跟UBS打官司如同在美国的76个官司一样，不为了钱，就是要得到中共和他们勾兑的数据，从而让中共的罪行曝光于天下。
+
+对UBS的起诉终于立案，这无疑是吹响了正义与邪恶决战的号角。此举对彻底铲除中共及世界沼泽地黑暗势力意义非凡。爆料革命和郭先生的人生将由此改变！
+
+*编辑：cindy*
+
+【[澳喜文章1](https://gnews.org/zh-hans/author/aujenny/)】
+【[澳喜文章2](https://gnews.org/zh-hans/author/himalaya-australia/)】
 
  
 
