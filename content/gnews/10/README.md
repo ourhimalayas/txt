@@ -2,46 +2,62 @@
 ---
 
 
-## 文•贵天成——文贵先生谈“PAG太平联盟、单伟建”（六）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2006362/)
+## 八孩母亲
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2006593/)
 
-整理：BENJ1
-编辑：文泓
+作者：蓝之灵
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+二十四载铁链中
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-14-下午10.41.50.png)
+泯灭人论父三人
 
+一孩二孩至八孩
 
-**郭文贵先生2021年12月8日直播**
+谁曾母亲叫一声
 
-单伟建的基金号称450亿美元，他在英国几个上市基金公司也是几百亿美元，说上市就上市，说下市就下市。整个达沃斯论坛期间，马云带着十几个厨师行贿世界领导人。单伟建去的时候，他在密室会见（各国领导人），马云还得到处带着钱、带着厨师公关。
+狗子尚且溜溜湾
 
-他出入沃顿商学院、美联储、美财政部，你去想想这是什么概念？这是王岐山绝对的最最忠实的马仔，然后又跟康典在一起，是吧？然后你看蔡崇信也是跟他在一起的，你想想王岐山这个力量有多大？这些人你觉得他能看得起习近平吗？他们根本看不起习。
+猪在圈里自由行
 
-只要有新中国联邦在，咱们绝对跟单伟建不拉倒。你为共产党花钱涂脂抹粉，你修理我们新中国联邦的人，出卖（中国人民）材料，投资吴征，和马云一起用腾讯音乐（美国上市）欺骗美国公民，你拿着美国护照给共产党干这事儿，你的背景就是共产党的特务，你有本事来告我!
+二十四载如一日
 
-我们一定会让你在西方付出代价和最终伏法，包括你的家人。你不是爱中国吗？(不是)中国的基础设施好吗？共产党政府有优越性吗？刚才我还没看到那一段，原来我还没注意，那好啊，你把你家人全送回中国去，你不要呆在香港，也不要呆在外国。（他协助中共）在香港犯下巨大的反人道罪行，绝对不能饶了他。
+堪堪活在一屋中
 
-（未来）我们这个送棺材的事儿要把他给包含进去，然后在单伟建所有其家人去的地方，我们都要进行抗议。现在战友们一定要发动起来写信，懂英文的要给美国、香港、全世界的政府调查部门、金融部门写信，把单伟建成立公司所有历史背景（揭露给西方社会），一定要写。（摔跤的）雅各你一定要写，让西方知道这个孙子就是共产党的特务，把他的背景和简介发给这些人，让单伟建和PAG在西方世界受到最严厉的严惩。
+破败棉絮漏寒风
 
-然后，了解所有过去PAG在英国（保荐）上市公司的、拥有股票信息的，请和农场联系，我们已经发起了在英国起诉他。然后对在美上市的腾讯音乐，过去大家买过股票的，一定联系农场，我们在美国起诉它。
+单衣瑟瑟抖如萍
 
-资料来源：郭先生GTV、盖特直播
+厉害国啊声威重
 
-**往期回顾：**
-[文·贵天成——文贵先生谈“太平联盟PAG”（一）](https://gnews.org/zh-hans/1575908/)
-[文·贵天成——文贵先生谈“太平联盟PAG”（二）](https://gnews.org/zh-hans/1576820/)
-[文·贵天成——文贵先生谈“太平联盟PAG及单伟建”（三）](https://gnews.org/zh-hans/2003549/)
-[文·贵天成——文贵先生谈“太平联盟PAG及单伟建”（四）](https://gnews.org/zh-hans/2003630/)
-[文·贵天成——文贵先生谈“太平联盟PAG及单伟建”（五）](https://gnews.org/zh-hans/2003856/)
+撒币送币乐融融
 
-发布：tianzhihuan
+威风八面地球村
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+为何独忘你是人
 
+你是人或不是人
+
+老王八们谁关心
+
+只管宾客来盈门
+
+管你活得似浮萍
+
+可怜八孩一母亲
+
+不如猪狗徒悲鸣
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+
+审核/编辑/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

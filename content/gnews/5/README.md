@@ -2,32 +2,26 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年2月14日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2006425/)
+## 加拿大公民权利协会谴责特鲁多动用国家紧急法
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2006624/)
 
-作者：香草山翻译部
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3-43.jpg)
+图片来源： www.dwnews.com
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO.jpg)
+零对冲网2月14日报道，加拿大公民权利协会已谴责总理特鲁多动用紧急法，他们在周一发推称“并没有触及关键点使加拿大政府必须采取此法。”
 
+紧急法仅仅在一个“严重威胁加拿大政府行使主权，安全和地区完整时”以及当局势不能有效地处理加拿大其他法律时可以动用。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-13.png)
-校对：Stay文苑
+而特鲁多周一试图动用紧急警察权力来驱散抗议强制疫苗和其他限制措施者，他说：“ 这不是和平抗议，当地警察已难以执行法律，联邦政府要介入。这将保卫加拿大的安全，保护人民的工作和重塑自信。”
 
-编辑：Stay文苑
+阿尔伯塔，曼尼托巴，魁北克,以及萨斯喀彻温省反对特鲁多对卡车司机动用紧急法，特鲁多的第一个动作企图遏止抗议的卡车司机的资金，采用反洗钱法规则，威胁他们是金融上的“恐怖主义”。特鲁多政府把人们的和平抗议称作是“恐怖主义”！
 
-发稿：Stay文苑
+周一美加大使桥重开，但抗议者们在全国各地关键通道的封堵运动仍在继续，看起来特鲁多不想答应抗议者的诉求。
 
-新闻：[https://gtv.org/broadcast/watch/620b0557432ae869226ca17e](https://gtv.org/broadcast/watch/620b0557432ae869226ca17e)
-访谈：[https://gtv.org/broadcast/watch/620b0de9432ae869226cac0c](https://gtv.org/broadcast/watch/620b0de9432ae869226cac0c)
+##### 新闻来源： [Canadian Civil Liberties Association Condemns Trudeau For Invoking National Emergency Over Truckers](https://www.zerohedge.com/political/trudeau-unleash-never-used-emergency-powers-act-counter-protests-us-canada-bridge-reopens)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+#  
 
  
 
