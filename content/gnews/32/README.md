@@ -2,31 +2,30 @@
 ---
 
 
-## 土豆正式宣布启动国家紧急状态
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2006325/)
+## 中日财经爆|比利时预警 用华为小米手机会被中共监控
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2006383/)
 
-2022-02-14
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/02/111-3.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fimages.tech.co%2Fwp-content%2Fuploads%2F2018%2F09%2F11065157%2FHuawei-China-Security-Safe.png&amp;imgrefurl=https%3A%2F%2Ftech.co%2Fnews%2Fhuawei-safe-china-state-military-2020-01&amp;tbnid=AK9fKesRCK29OM&amp;vet=1)
+比利时政府发出警告，使用华为和小米手机存在安全风险，可能被中共国监控。比利时国会议员呼吁欧洲联盟尽快应对。
 
-翻译：Elli
-![](https://assets.gnews.org/wp-content/uploads/2022/02/T9T@XCQL7GP9TY26A18.png)图片来源：https://rumble.com/
-加拿大特鲁多总理援引《战争措施法》的后续《紧急情况法》来平息加拿大的卡车司机抗议活动。特鲁多补充说：“我们将永远捍卫加拿大人和平集会和言论自由的权利，但这些封锁是非法的……现在是回家的时候了”。他昨天召开紧急会议宣布为了应对全国性的抗议活动，要启用以前从未用过的国家紧急状态法。
+比利时晚讯报（Le Soir）2月14日报导，国家安全部近日证实欧洲网络安全专家2021年夏天发布的一份报告，指出在华为、小米等智能手机中存在安全风险。
 
-这可能意味着土豆政府可以强行征用拖车公司的车去拖走卡车。大卡车司机会因此退让吗？了解这些朴实，吃苦耐劳，骨子里不服输卡车司机的人会告诉你“不”。一旦有任何强硬措施执行，只会引来更大的反弹。
+司法部长奎克恩柏纳（Vincent Van Quickenborne ）近日以书面回覆国会议员寇拉提（Samuel Cogolati）时表示，由于中共国法律要求手机公司将其数据存储在中共国当地的服务器，并赋予中共国安全部门权力查看，所以这些手机中的数据可能遭到风险，并转移到中共国当局。
 
-加拿大民众可能从四面八方赶来支援，边境口岸的一些人民应该学会打游击战了：军警来了就散去，走了再给堵上。加上加拿大军队不支持土豆的行动，美加边境线RCMP前线警员消极守岗，各省比较消极的在配合上级指示；渥太华会有更多点儿聚集，驻守人会增加相信胜利必然在和平，清醒和理智团结中不期而至。
+这则报导强调，比利时升高关于华为和小米手机用户资讯可能遭到监视的担忧。
 
-律师Tricia Lindsay今年在反疫苗强制令的演讲中提到美国宪法的基础的低级长官信条(Doctrine of Lesser Magistrate)， 清楚指明公民抗命抵制暴政是责任和义务。当暴君把魔爪申向我们下一代时，我们有义不容辞的责任为保护下一代而应战。 民不畏死，焉何以死惧之？
+寇拉提今天在社交媒体发文表示，正如其他政权使用恶意软体「飞马」（Pegasus），智能手机的间谍风险也凸显资讯安全和言论自由等急迫性问题，呼吁欧洲联盟尽快应对。
 
-参考链接：[https://t.me/disclosetv/6910](https://t.me/disclosetv/6910)
+去年立陶宛国防部的国家网络安全中心报告曾指出，小米在欧洲贩售的旗舰机种内建功能，得以侦测「自由西藏」、「台湾独立万岁」和「民主运动」等用语。报告表示，小米Mi 10T 5G手机软件内的审查功能在「欧盟地区」已被关闭，但随时可远端开启。
 
-[https://rumble.com/vuvjja-51860134.html](https://rumble.com/vuvjja-51860134.html)
+消息来源:
 
-编辑：LILY
-发布：肥鯮
+[比利時示警中國品牌手機風險 資訊可能遭監視](https://tw.news.yahoo.com/%E6%AF%94%E5%88%A9%E6%99%82%E7%A4%BA%E8%AD%A6%E4%B8%AD%E5%9C%8B%E5%93%81%E7%89%8C%E6%89%8B%E6%A9%9F%E9%A2%A8%E9%9A%AA-%E8%B3%87%E8%A8%8A%E5%8F%AF%E8%83%BD%E9%81%AD%E7%9B%A3%E8%A6%96-110706084.html)
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

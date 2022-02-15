@@ -2,37 +2,30 @@
 ---
 
 
-## 美国紧急撤离基辅大使馆，俄乌大战在即的警钟
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2006481/)
+## 中日财经爆| AMD敲定500亿美元收购赛灵思 创芯片业纪录
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2006617/)
 
-作者：台湾宝岛农场-阿尔道夫
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-26.png)
-据外媒报导，继美国总统拜登10日通告所有美国公民「马上撤离乌克兰」后，美国务院也担心俄军会在「冬奥闭幕前」攻打乌克兰，所以决定启动「终极应变」，预计周六清晨就会正式对美国驻乌克兰大使馆下达「紧急撤退令」，此举被视为是等同于「大战将至」的最高规模示警。
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1462.png)[图片来源](https://dtechted.com/next-week-amd-expects-to-close-its-acquisition-of-xilinx/)
+AMD (超微半导体) 2月14日表示，已经敲定收购Xilinx (赛灵思)的交易。这是芯片行业创纪录规模的交易，价值约为500亿美元。此将使AMD在关键的数据中心市场获得额外优势。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/164486174969272_P15977057.jpg)
+此前，Nvidia(辉达/英伟达)以监管障碍为由，决定放弃收购软银集团旗下Arm Ltd的计划。
 
-报导中也提及，美国此一预测与盟邦所掌握的证据一致，就连先前对俄乌危机持相对保守态度的德国军方，也反常态的提出警示：美方的情资，这回非常可信而骇人。
+AMD表示，赛灵思交易在获得所有必要的收购批准后向前推进。
 
-同时，俄乌大战在即的警钟，对于中共是否会趁机发动台海危机，应保持高度警戒，不容轻忽。
+AMD执行长苏姿丰告诉路透，在AMD的处理器技术和赛灵思的系统芯片和现场可编程芯片之间，这两家公司是互补的。苏姿丰说：“这是我们与世界各地的监管机构交谈时的重点。”她补充说，Arm是AMD的一个重要合作伙伴，但拒绝透露更多关于Arm可能的下一步行动。
 
-新闻链接：[https://global.udn.com/global\_vision/story/8662/6093256%E3%80%8B](https://global.udn.com/global_vision/story/8662/6093256%E3%80%8B)
+据AMD称，这项交易于2020年10月宣布，最初的估值为350亿美元，但已随AMD股价水涨船高。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-24.jpg)
+苏姿丰表示，通过收购赛灵思，AMD将能够在赛灵思拥有强大网络和人工智能的数据中心等关键市场，以及在5G通信、汽车、工业、航空航天和国防市场扩大广度。她说：“这些都是AMD很少涉足的市场，它们也都需要高性能计算。”
 
-编辑/校对/发稿：遍地开花
+AMD正在加强与英特尔在数据中心芯片市场的争夺。合并后的公司将拥有15,000多名工程师，并采取完全外包的制造策略，将主要依靠台积电。
 
-**更多资讯，更多关注**
+消息来源：[AMD敲定收购赛灵思的交易 价值约500亿美元创芯片业纪录](https://cn.reuters.com/article/amd-xilinx-acquisition-0215-idCNKBS2KK04E?il=0)
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-26.png)
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

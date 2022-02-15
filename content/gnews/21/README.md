@@ -2,39 +2,62 @@
 ---
 
 
-## 本届冬奥会是种族大屠杀的冬奥会
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2006404/)
+## 八孩母亲
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2006593/)
 
-撰稿：小湫
-视频来自网络
-维吾尔族餐馆老板哈米德·克里姆(Hamid Kerim)说，他不能看本届奥运会，因为这让他想起被关押在新疆老家的哥哥和嫂子。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1-18.jpg)
-哈米德·克里姆在新疆做生意时的照片
-克里姆向福克斯新闻讲述：“如果我观看奥运会，我会想起我的兄弟姐妹，我的国家和我的祖国。 他们在监狱里、再教育营里艰难的生活，在廉价劳动力工厂里艰难的生活。 所以，我不能看奥运会。”
+作者：蓝之灵
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+二十四载铁链中
 
-北京2022年冬奥会遭到维吾尔族和人权倡导者的抵制，尽管中国政府迫害少数民族，但奥组委仍赋予中国政府举办冬奥会的合法性。 根据美国国务院发布的一份2020年的报告，自2017年以来，中国西部新疆自治区针对维吾尔人的种族灭绝一直在进行。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide2-2.jpg)
-图片来自网络
-克里姆说:“中国共产党从不尊重维吾尔人，从不尊重维吾尔文化，从不尊重维吾尔人的人权。 所以我认为这是一届种族灭绝的奥运会，这不是一届普通的奥运会。”
+泯灭人论父三人
 
-克里姆说“这届冬奥会就像1936年纳粹德国奥运会一样，因为现在中国共产党像1936年德国纳粹一样，对维吾尔人进行种族灭绝，杀害维吾尔人，灭绝维吾尔人的文化。”
+一孩二孩至八孩
 
-克里姆在2017年搬到美国，此前他的朋友告诉他，政府正在关押他家乡新疆的人，他把那里称为“东突厥斯坦”。
+谁曾母亲叫一声
 
-克里姆向福克斯新闻讲述： “我失去在中国所有的公司，所有的生意。 我重新开始。 首先，我必须学习英语，在这个国家开始我的新生活，2018年，我在华盛顿开了第一家楼兰维吾尔餐厅。”
+狗子尚且溜溜湾
 
-自2018年开了楼兰维吾尔餐厅以来，Kerim在弗吉尼亚州开了第二家餐厅。 他告诉福克斯新闻，他的梦想是在全美50个州开一家维吾尔族餐馆。
+猪在圈里自由行
 
-克里姆说:“我哥哥说，祝你好运，要让孩子们在美国接受好的教育， 但几个月后，他的哥哥和嫂子都被关进了监狱。”政府判处克里姆的弟弟20年徒刑，妻子7年徒刑，这对夫妇的3个孩子目前由克里姆76岁的母亲照顾。
+二十四载如一日
 
-里姆说:“这太可怕了，这只是为了一个家庭。在东突厥斯坦有数百万个相同的家庭。我每天都在想这件事，因为我想念我的妈妈，我想念我的兄弟姐妹，我想念我的朋友和我的祖国。”
+堪堪活在一屋中
 
-参考信息：
+破败棉絮漏寒风
 
-[DC Uyghur restaurant owner: ‘This Olympic is genocide Olympics’](https://www.foxnews.com/world/dc-uyghur-restaurant-owner-this-olympic-is-genocide-olympics)
+单衣瑟瑟抖如萍
 
-编辑：云彩
-![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
+厉害国啊声威重
+
+撒币送币乐融融
+
+威风八面地球村
+
+为何独忘你是人
+
+你是人或不是人
+
+老王八们谁关心
+
+只管宾客来盈门
+
+管你活得似浮萍
+
+可怜八孩一母亲
+
+不如猪狗徒悲鸣
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+
+审核/编辑/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
