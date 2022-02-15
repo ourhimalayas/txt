@@ -2,10 +2,10 @@
 ---
 
 
-## 莫得纳CEO删除推特抛售公司股票达4亿美元
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2007695/)
+## 运动员发布奥运村漏水消息 被中共要求删除
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2007700/)
 
-作者：纽约香草山 – 宁文静
+作者：纽约香草山教育部 – Naughty(文行)
 
 
 
@@ -13,20 +13,19 @@
 
 
 
-2月13日，据外媒报道，莫得纳公司首席执行官斯特凡·班塞尔本周在卖出数千万美元的股票后删除了他的推特账户。如此怪异的举动引发了投资者的疑虑和担忧。据悉，在过去的一年里，班塞尔已经累计抛售总价约为4亿美元的公司股票。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide5-1.jpg)
-前黑石对冲基金经理爱德华·多德曾指控辉瑞公司和莫得纳公司，因当时的制度性要求，使用未经证实的技术并快速获得疫苗生产批准，在疫苗临床实验中存在故意欺骗的行为。多德进而对保险公司和殡仪馆的死亡统计数据展开调查。如果证明属实，这将意味着辉瑞公司和莫得纳公司都要对其疫苗造成的所有伤害和死亡负责。
+2月13日，国外多家媒体报道，参加北京冬奥会的芬兰滑雪运动员莱恩佩拉，上周在自己的社交媒体上发布了一些照片和视频，显示水从她在冬奥村住所的天花板上倾泻而下，并在地板上形成了水坑。还有一些照片显示，有电气设备被暴露在水中。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-6.jpg)
+林佩拉在视频中加上了“救命”的标题，同时还分享了中共国工作人员赶来清理的镜头。
 
-班塞尔的反常行为是否与多德的举报和调查有关，尚无定论。截至目前，莫得纳公司并未就CEO的举动发表官方声明。
+不过，在莱恩佩拉分享的图片中，最令人难以置信的是，有一张她收到的一条消息的屏幕截图，该消息要求她从社交媒体上删除她发布的相关帖子。
 
 参考链接：
-1. [Moderna CEO Stéphane Bancel Deletes Twitter Account, Sells Tens Of Millions Of Dollars In Stock](https://thecovidworld.com/moderna-ceo-stephane-bancel-deletes-twitter-account-sells-tens-of-millions-of-dollars-in-stock/)
-2. [Moderna CEO Just Dumped $400 Million in Stock and Deleted His Twitter Account](https://newspunch.com/moderna-ceo-just-dumped-400-million-in-stock-and-deleted-his-twitter-account/)
+1. [China orders athlete to delete photos that showed flooding in Olympic Village](https://news.yahoo.com/winter-olympics-2022-china-orders-athlete-delete-photos-205502218-013229001.html)
+2. [China orders Olympics star to delete photos](https://www.foxsports.com.au/beijing-olympics-2022/china-orders-olympics-star-to-delete-photos/news-story/175d019dbfdf429d59eded1ab72259d6)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
 
-总编：文真
-编辑：Jack Li文阳
+总编/编辑：飞虹
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**
