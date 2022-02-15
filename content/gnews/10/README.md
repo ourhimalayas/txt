@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：江湖
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2010046/)
+## 七哥金句：灾难核心
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2010061/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句-3..-1-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句5.jpeg)
 整理：雅典娜农场
 发布：枫叶红了
 
