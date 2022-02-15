@@ -2,32 +2,12 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年2月14日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2006425/)
+## 法国政府派出坦克来控制巴黎的抗议活动
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2006286/)
 
-作者：香草山翻译部
+02/12/2022 班农战斗室：法国政府派出坦克来控制巴黎的抗议活动，这证明他们的统治没有得到人民的同意。马克龙不太可能在即将到来的四月赢得总统大选。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO.jpg)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-13.png)
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-新闻：[https://gtv.org/broadcast/watch/620b0557432ae869226ca17e](https://gtv.org/broadcast/watch/620b0557432ae869226ca17e)
-访谈：[https://gtv.org/broadcast/watch/620b0de9432ae869226cac0c](https://gtv.org/broadcast/watch/620b0de9432ae869226cac0c)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

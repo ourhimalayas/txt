@@ -2,21 +2,26 @@
 ---
 
 
-## 雅典娜时报-第205期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2006898/)
+## 英国官方实验室证实疫苗内含氧化石墨烯
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2006915/)
 
-#### 《雅典娜时报》汇聚全球新闻时事
+加拿大温哥华杨帆农场 枫叶快讯
 
-#### 编辑：精灵蓝
-排版：小蚂蚁614
-![圖片](https://media.discordapp.net/attachments/825592691433668612/942951928386703370/155_4.png?width=812&amp;height=1209)![圖片](https://media.discordapp.net/attachments/825592691433668612/942951928877432842/155_5.png?width=812&amp;height=1209)
-*发布：陶子*
+采编撰稿：自由法兰西
+![](https://i0.wp.com/dailyexpose.uk/wp-content/uploads/2022/02/image-264.png?resize=639%2C606&amp;ssl=1)dailyexpose
+据英国媒体《内幕消息》2月13日报道，英国官方实验室已证实，现有的“新冠病毒”疫苗中的确含[氧化石墨烯]成份。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+报道称，此次送检疫苗包括[辉瑞]，[莫德納]和[阿斯利康]三家制药厂的产品。其中，生产商未申报的疫苗内含物是本次实验室检测的重点对象。分析结果显示，尽管所有送检样本中都存在石墨烯，并且普遍采用脂质纳米颗粒作为药物输送机制，但这些碳复合材料、石墨烯化合物和氧化铁等物质都是在疫苗成分列表上所没注明的。
+
+据悉，石墨烯纳米材料可以穿透人体的天然保护屏障，进而损害中枢神经系统。而石墨烯氧化物则不仅损害人体器官，破坏血液健康，引发癌症，而且还可导致基因功能发生衰变。但各国政府和生产药商却从未告知民众其疫苗中含有这些致命物质。
+
+目前，该调查报告已提交英国警方刑事部门，以期当局尽快采取进一步调查和追责行动。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：青青
+
+原文链接： [https://dailyexpose.uk/2022/02/13/uk-lab-confirms-graphene-in-covid-vaccines/](https://dailyexpose.uk/2022/02/13/uk-lab-confirms-graphene-in-covid-vaccines/)
 
  
 

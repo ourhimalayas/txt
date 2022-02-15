@@ -2,8 +2,8 @@
 ---
 
 
-## 国际奥委会、世界卫生组织、WTO和世界记者联盟就是共产党的帮凶
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2007004/)
+## 应该喊口号，我们是无苗灭共者
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2007050/)
 
 作者:东京樱花团小视频组
 
