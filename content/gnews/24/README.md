@@ -2,20 +2,21 @@
 ---
 
 
-## 樱花FM┃议员联署促公立医院免费治疗非本地确诊者
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2009076/)
+## 2月11日晚法国足球运动员埃玛努埃尔•吉拉尔多特在一场足球比赛中突感不适死亡
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2009221/)
 
-音频：东京樱花团/战友520
-![](https://lh6.googleusercontent.com/2uLbg0i7schL8A99UaEkoOlRX4SL5JpbBAP8YueMsjme43X566L0ZY0jMj4zS1iddZIkDXAzhx6pQvvIAAaNCc_2WsZF8PZRjVHYQZP2hm0WDjOdYZMYhrCtJATqkmtcGgUgsalM)
-14名立法会议员联署去信食物及卫生局长陈肇始，要求公立医院免费治疗合法留港的确诊非本地居民。非本地居民在公立医院的住院费每日5,100至24,400元不等，目前本港有约50,000名合法长期逗留的访客，包括港人的内地直系亲属，称港府在疫情特殊时期，不应忽视他们的人道需求。
+#### 翻译 /简评                     意大利达芬奇农场                    小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-15-alle-11.30.11.png)图片来源：eventiavversinews.it
+埃玛努埃尔•吉拉尔多特是Fc Fontcouvert 队的一名足球老将，他同时还是一名体育老师。2月11日晚在一场足球比赛中突感不适。 在开场后的15分钟，吉拉尔多特心脏骤停，虽经经医生救治，但他没有活过来，刚到医院就离开了人世。
 
-救死扶伤是医疗系统存在的目的，香港曾经是国际金融中心，社会财富丰富，能提供完善的医疗服务，配合完善的司法体系，有法治保障社会秩序，因此香港的医院一直沿用“先治病再付款”的人道方式，向香港这片土地上的人敞开大门，病人在出院的时侯会收到详细的费用清单，自觉去缴费处缴纳，没有人会监督你是否支付了费用，对于那些存心逃避费用的人，医管局会启动法律程序追讨，那些欠费出境的旅客，会被入境署列入黑名单拒绝再次抵港，除非缴清欠款和罚金。不过，香港的人道医疗被不少人利用，据医管局数据显示，2005-2012年期间，内地孕妇在公立医院急症室分娩欠费共10610单，总欠款烂账高达5亿港元以上。非本港居民新冠病医疗费在2020的欠款有86单，金额超过300万元，2021年的数据不详。据悉，医管局每年需要花费四百万元追讨欠款。由此可见，香港的公立医验变相为非港人提供了免费医疗。立法会议员此时提出免费治理非本地新冠患者的议案，根本是多此一举。中共病毒肆虐，港府无人性的强制防疫措施，导致香港的医疗系统崩溃，公立医验的护士还要被港府抽到隔离营，如此焦头烂额的状况下，立法会的议员没有提出过半点建议性的提案，反而不断施压港府用更严厉的全民禁足强检囚禁港人，以及颁布更强硬的限制措施普及新冠毒疫苗的注射。中共内部政治力量在香港疯狂角力，香港的黑暗极其深重，许多港人忍受不了去接种新冠疫苗，但等待他们的却是无差别的拘禁。
+吉拉尔多特所在的Fc Fontcouverte 球队2月12日在其社交网站上宣布了他死亡的消息。“ FC Fontcouvert 球队怀着悲伤的心情宣布埃玛努埃尔•吉拉尔多特于昨晚去世。他是俱乐部的老球员，昨天在一场球赛中他突感不适。俱乐部向他的家人和亲人们致以慰问。”
 
-文字版原文：[议员联署促公立医院免费治疗非本地确诊者– GNEWS](https://gnews.org/zh-hans/1984134/)
+简评：每个星期我们都能读到或看到球员去世的消息，但是在报道中没有提球员是否接种了新冠疫苗。太多的心脏骤停，太多的年轻健康的运动员“突感不适”。还会有多少年轻健康的生命会突然逝去？
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+原文链接：[https://www.eventiavversinews.it/francia-muore-colpito-da-malore-improvviso-venerdi-sera-11-febbraio-durante-una-partita-il-calciatore-emmanuel-girardot-rinviate-per-lutto-tutte-le-partite-del-weekend-nella-provincia/](https://www.eventiavversinews.it/francia-muore-colpito-da-malore-improvviso-venerdi-sera-11-febbraio-durante-una-partita-il-calciatore-emmanuel-girardot-rinviate-per-lutto-tutte-le-partite-del-weekend-nella-provincia/)
+
+编辑、上传： Xiao   baige
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

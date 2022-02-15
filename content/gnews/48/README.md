@@ -2,49 +2,34 @@
 ---
 
 
-## 运动员发布奥运村漏水消息 被中共要求删除
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2007700/)
+## 雅虎新闻：北京冬奥会圣火“熄灭”引起轩然大波
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2008228/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+翻译：宫米叶
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/00-1644861349151.png)Photo by David Ramos/Getty Images
 
+北京冬奥会期间，人们目睹“火焰过弱”的圣火因暴风雪而“熄灭”的疑惑浮出水面，引起了轩然大波。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+据美媒“今日美国”报道，受大雪影响进行中的北京奥委会“圣火已灭”，该报指出：“由于北京的狂风暴雪，奥运圣火可能已被吹灭。”并配以熄火的圣火台照片。
 
+圣火于奥运会期间熄灭非同小可。国际奥委会规定，奥运圣火只可在希腊奥林匹亚的赫拉神庙引阳光点燃。因此，圣火绝不允许于会期内熄灭，万一发生，也须从希腊调取备用火种。
 
+正因此背景，北京冬奥会组委会坚决否认圣火熄灭，称“目前火焰状态没有问题”，认为“恐怕是视线受影响”及“眼睛的错觉”。圣火在“今日美国”圣火台熄火照刊载后再度点燃，组委会强调从始至终无异常。
 
-2月13日，国外多家媒体报道，参加北京冬奥会的芬兰滑雪运动员莱恩佩拉，上周在自己的社交媒体上发布了一些照片和视频，显示水从她在冬奥村住所的天花板上倾泻而下，并在地板上形成了水坑。还有一些照片显示，有电气设备被暴露在水中。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-6.jpg)
-林佩拉在视频中加上了“救命”的标题，同时还分享了中共国工作人员赶来清理的镜头。
+围绕本次冬奥圣火，火炬接力者在开幕式上将手中传递的火炬直接插在圣火台上的表演也引发热议。虽然是以小火焰减排二氧化碳以实现“绿色奥运”为目的，但同时也引起担忧“火焰过弱”的指摘。
 
-不过，在莱恩佩拉分享的图片中，最令人难以置信的是，有一张她收到的一条消息的屏幕截图，该消息要求她从社交媒体上删除她发布的相关帖子。
+目前复燃的北京冬奥圣火难道“货真价实”吗？这似乎又酝酿出新争议。
 
-参考链接：
-1. [China orders athlete to delete photos that showed flooding in Olympic Village](https://news.yahoo.com/winter-olympics-2022-china-orders-athlete-delete-photos-205502218-013229001.html)
-2. [China orders Olympics star to delete photos](https://www.foxsports.com.au/beijing-olympics-2022/china-orders-olympics-star-to-delete-photos/news-story/175d019dbfdf429d59eded1ab72259d6)
+**参考资料：**[news.yahoo][北京五輪の聖火が〝消えた〟疑惑浮上で大波紋](https://news.yahoo.co.jp/articles/f186d3286fbaa686e8f87fe6bdcb6f259bcfc7a2)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+* * *
 
-总编/编辑：飞虹
-校对/发稿：为真不破20
+*审核：天天*
+*校对：zicoround*
+*发稿：信心的选择*
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-2.jpeg)
 
  
 

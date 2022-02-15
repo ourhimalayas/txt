@@ -2,50 +2,36 @@
 ---
 
 
-## 莫得纳CEO删除推特抛售公司股票达4亿美元
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2007695/)
+## 印度外长谴责中共违反国际协议，称要加强与澳合作
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2007995/)
 
-作者：纽约香草山 – 宁文静
+#### 【雅典娜快讯】，紧贴时代脉搏
 
+整理：Eileen（围剿维尼熊）
+编辑：MSGZ
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-2月13日，据外媒报道，莫得纳公司首席执行官斯特凡·班塞尔本周在卖出数千万美元的股票后删除了他的推特账户。如此怪异的举动引发了投资者的疑虑和担忧。据悉，在过去的一年里，班塞尔已经累计抛售总价约为4亿美元的公司股票。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide5-1.jpg)
-前黑石对冲基金经理爱德华·多德曾指控辉瑞公司和莫得纳公司，因当时的制度性要求，使用未经证实的技术并快速获得疫苗生产批准，在疫苗临床实验中存在故意欺骗的行为。多德进而对保险公司和殡仪馆的死亡统计数据展开调查。如果证明属实，这将意味着辉瑞公司和莫得纳公司都要对其疫苗造成的所有伤害和死亡负责。
-
-班塞尔的反常行为是否与多德的举报和调查有关，尚无定论。截至目前，莫得纳公司并未就CEO的举动发表官方声明。
-
-参考链接：
-1. [Moderna CEO Stéphane Bancel Deletes Twitter Account, Sells Tens Of Millions Of Dollars In Stock](https://thecovidworld.com/moderna-ceo-stephane-bancel-deletes-twitter-account-sells-tens-of-millions-of-dollars-in-stock/)
-2. [Moderna CEO Just Dumped $400 Million in Stock and Deleted His Twitter Account](https://newspunch.com/moderna-ceo-just-dumped-400-million-in-stock-and-deleted-his-twitter-account/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-
-总编：文真
-编辑：Jack Li文阳
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/4-34.png)图片来源：theaustralian
 
 
+根据澳大利亚人报中文网2月14日报道，印度外交部长苏杰生(Subrahmanyam Jaishankar)与他在四方安全对话中的同行们一起，对中国在本地区的行为和攻击性进行了严厉的公开批评。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+在接受《澳大利亚人报》的独家采访时，苏杰生说，北京继续在与印度接壤的喜马拉雅山脉边界集结军队，违反了国际协议。
 
+此前美国国务卿布林肯（Antony Blinken）表示，中国有在军事和经济上主宰世界的战略野心，日本外相林芳正（Yoshimasa Hayashi）说北京的军力建设和区域行动令人 “严重关切”。
 
+2020年6月，新德里称中国士兵越过有争议的边界，即喜马拉雅山脉的实际控制线（Line of Actual Control）前进，20名印度士兵在与中方的徒手搏击中死亡。苏杰生说，这一事件对印度对于中国的看法产生了强大的影响。
+
+另外苏杰生认为，澳大利亚-印度关系可能第一次实现其潜力。“四方”对话就是其中的一部分。近年来，印度和澳大利亚之间的军方合作有所增长，他希望这种合作能进一步增长。
+
+参考链接：[https://cn.theaustralian.com.au/2022/02/14/63558/](https://cn.theaustralian.com.au/2022/02/14/63558/)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

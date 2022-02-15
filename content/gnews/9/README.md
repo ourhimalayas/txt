@@ -2,23 +2,16 @@
 ---
 
 
-## 有声|谷氏母女
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2009279/)
+## 有声|大卡车运动源自香港反送中运动
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2009474/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2022/02/logo-5-768x103-27.jpg)
-一对女子太丢人
-母女二代暗娼门
-撒谎尿屁没实话
-媒体面前难抬头
-可怜一对可怜虫
-不知前路地狱门
-沾沾自喜代言人
-皆是共匪牺牲品
-牺牲品，牺牲品
-可叹可怜枉为人
+配音：香草山巡管部– 文凯琳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月13日，郭文贵先生在大直播中谈到，加拿大和法国的大卡车运动，起源于他在2019年给香港反送中运动的建议，爆料革命是世界大卡车运动的发起人。
 
-文字版原文：[谷氏母女](https://gnews.org/zh-hans/2006492/)
+2019年6月13日，郭先生在直播中提议香港大客车、大卡车和私家车上街，阻止中共解放军和假警察入侵香港。
+
+文字版原文：[大卡车运动源自香港反送中运动](https://gnews.org/zh-hans/2004658/)
 
 音频处理/发稿：Daxia
 

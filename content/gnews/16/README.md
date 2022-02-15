@@ -2,20 +2,23 @@
 ---
 
 
-## 2月11日晚法国足球运动员埃玛努埃尔•吉拉尔多特在一场足球比赛中突感不适死亡
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2009221/)
+## NewSGman┃印度决定抵制北京冬奥开闭幕式
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2009293/)
 
-#### 翻译 /简评                     意大利达芬奇农场                    小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-15-alle-11.30.11.png)图片来源：eventiavversinews.it
-埃玛努埃尔•吉拉尔多特是Fc Fontcouvert 队的一名足球老将，他同时还是一名体育老师。2月11日晚在一场足球比赛中突感不适。 在开场后的15分钟，吉拉尔多特心脏骤停，虽经经医生救治，但他没有活过来，刚到医院就离开了人世。
+撰稿：东京樱花团/NewSGman
 
-吉拉尔多特所在的Fc Fontcouverte 球队2月12日在其社交网站上宣布了他死亡的消息。“ FC Fontcouvert 球队怀着悲伤的心情宣布埃玛努埃尔•吉拉尔多特于昨晚去世。他是俱乐部的老球员，昨天在一场球赛中他突感不适。俱乐部向他的家人和亲人们致以慰问。”
+印度决定抵制北京冬奥开闭幕式
 
-简评：每个星期我们都能读到或看到球员去世的消息，但是在报道中没有提球员是否接种了新冠疫苗。太多的心脏骤停，太多的年轻健康的运动员“突感不适”。还会有多少年轻健康的生命会突然逝去？
+圣火传递手争议，中国与印度再生摩擦，这次是在北京冬季奥林匹克运动会，印度对于中国安排曾参与边界冲突的军官传递圣火感到“遗憾”决定不派外交官出席冬奥开幕和闭幕仪式。
 
-原文链接：[https://www.eventiavversinews.it/francia-muore-colpito-da-malore-improvviso-venerdi-sera-11-febbraio-durante-una-partita-il-calciatore-emmanuel-girardot-rinviate-per-lutto-tutte-le-partite-del-weekend-nella-provincia/](https://www.eventiavversinews.it/francia-muore-colpito-da-malore-improvviso-venerdi-sera-11-febbraio-durante-una-partita-il-calciatore-emmanuel-girardot-rinviate-per-lutto-tutte-le-partite-del-weekend-nella-provincia/)
+印度外交部发言人阿林丹·巴奇周四对记者说，中方选择将奥运会这样的赛事政治化令人遗憾。印度表示不会派高级外交官参加周五在中国北京开幕的冬奥会开幕式和闭幕式
 
-编辑、上传： Xiao   baige
+盖特链接：https://gettr.com/post/psm17v2f1a
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
 
  
 

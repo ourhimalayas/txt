@@ -2,28 +2,24 @@
 ---
 
 
-## 有声|霍德金森博士称不告知真相的医生是谋杀案同谋
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2009495/)
+## 针对新冠病毒疫苗护照和绿色通行证的抗议
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2009542/)
 
-配音：香草山巡管部– 文凯琳
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-2月13日，郭文贵先生盖特转发视频消息，加拿大病理学家、某著名医疗保险机构CEO罗杰·霍德金森博士表示，中共病毒疫苗没有任何作用，所有不告知真相的医生，都是政府认可的谋杀案的同谋。
+**作者**：Tommaso Coluzzi
+![](https://assets.gnews.org/wp-content/uploads/2022/02/canada-768x512-1.jpg)
+在全球范围内“自由车队”行动的增加，是针对绿色通行证，强制接种疫苗以及针对新冠病毒的各种限制的抗议活动， 来源于加拿大的“自由车队”正在抵达许多其他国家。
 
-霍德金森说，有一个压倒性的共识，即疫苗没有任何作用，疫苗是试验性和未经测试的。疫苗接种不仅是不必要的，实际上它正在杀人害人。
+反对绿色通行证和强制新冠疫苗的抗议活动继续像野火一样在世界各地蔓延。 自由车队运动正在越来越多的国家扎根，而不仅仅是加拿大， 澳大利亚也开始了卡车司机的抗议活动。  最近几天，示威浪潮， 在某些情况下还包括与警察的冲突和骚乱也蔓延到法国，昨天的抗议活动在法国以 300 多辆汽车被拦下而告终，然后蔓延到比利时、荷兰、奥地利、新西兰和美国。
 
-文字版原文：[霍德金森博士称不告知真相的医生是谋杀案同谋](https://gnews.org/zh-hans/2002760/)
+在法国，昨天成千上万的人涌入巴黎，企图封锁首都。其中许多抗议者被堵在城市入口处，不得不继续步行。他们要求结束针对新冠病毒的限制性措施，从绿色通行证开始，他们同时抗议现在的汽油价格高涨。  另一方面，在邻国比利时，已宣布明天在布鲁塞尔举行示威活动，并在社交网络上重新发起对欧洲各地的邀请。 警方已宣布将禁止进入布鲁塞尔市。 与此同时，荷兰海牙市中心昨天被要求结束限制的示威者封锁。 同样在奥地利，警方宣布绝对禁止所谓的“自由车队”。 他们原定于上周五抵达维也纳。
 
-音频处理/发稿：Daxia
+在世界的另一端新西兰，有抗议者在议会前扎营一周，要求结束对新冠病毒的而采取的所有限制。 警方使用喷水枪进行干预，随后逮捕了数十名示威者。 但这并没有阻止抗议者的行动。  美国白宫表示，知道有人试图在 3 月初组织一场加拿大式的抗议活动。 美国将采取“一切必要措施”以确保安全。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+**翻译**：文豪
+**校对**：水煮鱼
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+**新闻链接：**[https://www.fanpage.it/attualita/covid-le-proteste-contro-green-pass-e-vaccini-nel-mondo-aumentano-i-convogli-della-liberta/](https://www.fanpage.it/attualita/covid-le-proteste-contro-green-pass-e-vaccini-nel-mondo-aumentano-i-convogli-della-liberta/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

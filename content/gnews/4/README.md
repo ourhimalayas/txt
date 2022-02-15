@@ -2,24 +2,32 @@
 ---
 
 
-## 樱花FM┃美国担任APEC主席意在牵制中共
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2009454/)
+## 中资企业拟收购澳洲稀土公司
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2009515/)
 
-音频：东京樱花团/战友520
-![](https://lh5.googleusercontent.com/k5fERQ99HKg1bT8fuPj_rwkvqbIwuz7SemMfScTcxPiSxPmelLvoYBJI30HW204VtEb3DM_Vpip9vdsj6cVUarnNZSW6YooUuv_nLTERGOLu3ZqSYz5oJ2VY3SiJzACVgg4_NliK)
-白宫2月10日宣布，美国将在2023年主持亚太经济合作组织（APEC）论坛，担任亚太经合组织主席，以努力加强与亚太地区的联系，并牵制中共在该地区日益增长的经济影响力。
+作者：纽约香草山医疗部-云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月14日，澳洲媒体报导，中共企业盛和资源正在计划收购澳洲稀土开采公司PEK。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-15-上午10.45.48.png)
+报导称，盛和资源将向私募股权基金Appian Capital收购其持有的19.9% 的PEK股权。目前PEK公司拥有包括在坦尚尼亚恩拉矿区的稀土开采计划，并拥有在英国密得堡的稀土冶炼厂。中资企业如果收购成功，无疑将进一步加大中共在稀土资源上的掌控力量。
 
-拜登上任以来重新推动印太经济框架的政策，与日本和其他亚太经合组织成员建立共同的贸易和先进技术规则。
+有专家表示，当前全球17种稀土元素，有八成的产量来自中共，稀土资源已经成为中共试图控制世界的另一种战略武器。
 
-拜登政府于2021年8月竞选主席，但在当年11月举行的APEC峰会上没有当选，之后在成员国间的斡旋下成为下届主席国。这是自2011年欧巴马政府以来，美国首次担任亚太经合组织主席国。
+参考链接：[中資擬收購澳洲稀土公司 媒體：緊掐全球供應命脈](https://www.cna.com.tw/news/aopl/202202140058.aspx)
 
-亚太经济合作组织成立于1989年，包括日本、美国和中国在内的21个国家和地区，是亚太区内各地区之间促进经济成长、合作、贸易、投资的论坛，为推动区域贸易投资自由化，加强成员间经济技术合作等方面发挥了不可替代的作用。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-文字版原文：[美国担任APEC主席意在牵制中共– GNEWS](https://gnews.org/zh-hans/1988124/)
+总编：Zion文恩
+编辑：飞虹
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

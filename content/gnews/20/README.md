@@ -2,28 +2,28 @@
 ---
 
 
-## NewSGman┃疫情新闻全球速报（2月6日）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2009173/)
+## 有声|场外交易卖掉喜币 将来必后悔
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2009252/)
 
-撰稿：东京樱花团/NewSGman
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+2022年2月13日，在大直播中谈到喜币场外交易时，郭文贵先生说，现在卖掉喜币套现的人，将来必定会后悔。
 
-以色列医院院长承认新冠重症患者百分之八十完全接种了疫苗
+谈到最近喜币的场外交易价格时，他说，60块都买不着。但是在场内，喜币被压低到了40美金，而场外交易有好几笔都在200左右交易的。这几天场外和场内的巨大价格差距，是因为基金在利用2亿个币，故意吸引卖家抛售，然后基金趁机买入。
 
-伊克洛夫Ichilov医院新冠病毒科主任Yaakov Jerris教授接受采访表示大部分患者至少打了三针，70%至80%的重症患者是打过疫苗的，所以说疫苗对重病患者无任何用处
+文字版原文：[场外交易卖掉喜币 将来必后悔](https://gnews.org/zh-hans/2006012/)
 
-以色列近期新冠病毒患者死亡率世界上最高
+音频处理/发稿：Daxia
 
-根据霍普金斯大学的数据分析，以色列最近一周的每百万人口中的COVID死亡人数名列世界首位，并且重症病例中的80%是完全疫苗接种者
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-艾滋病阳性患者身上发现了具有令人担忧的变种数量的冠状病毒 ，1月14日发表的一项新研究估计南非有8万名艾滋病毒感染者符合冠状病毒感染的条件，其中冠状病毒可以加速病情的发展
-
-盖特链接：https://gettr.com/post/pst7w82b79
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

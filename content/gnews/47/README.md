@@ -2,48 +2,21 @@
 ---
 
 
-## 印度政府加码禁用54个中共应用程序
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2007701/)
+## 韩裔女子在纽约曼哈顿被陌生男子尾随并杀害
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2008229/)
 
-作者：纽约香草山医疗部 – 云豹
+撰稿：追着曙光跑
 
+据韩国KBS新闻2月15日的报道，一名30多岁的韩裔女性在纽约曼哈顿唐人街被一名流浪汉杀害。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-15-at-22.56.24.jpeg)图片来自原新闻
+《纽约时报》当地时间14日报道，邻居发现35岁的克里斯蒂娜·尤娜·李(音译)死在公寓里。警方于13日在克里斯蒂娜的一间公寓里将犯罪嫌疑人逮捕，并在浴缸里发现了死者。
 
+此外，上个月16日，一名亚裔女性被推落地铁轨道后身亡。本月9日晚上一名50多岁的韩国外交官在纽约市曼哈顿街头遭不明男子殴打。再加上李女士的遇害，使得纽约市的亚裔社区引起了恐慌。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+在中共病毒大流行期间，针对亚裔的袭击犯罪事件接连发生。再次证实了郭文贵先生多次在大直播指出的中共病毒会引发排华排亚裔的灾难性事件。
 
-
-
-当地时间2月14日，印度政府公告，因为信息安全的理由，加码禁止使用54个由中共制作的应用程序。阿里巴巴及腾讯等大公司出品的程序亦名列其中。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-7.jpg)
-印度电子暨信息科技部发现，这些被公告禁用的程序，在未经用户的同意下，将使用客户的敏感数据自动传送到包括中国在内的境外服务器，因此造成个人信息安全危险。谷歌等多家应用程序商店已被下令封锁这些应用程序。
-
-印度政府自2020年6月以来，已经禁止包括抖音、微信、ES档案浏览器等220多个由中共出品的应用程序。此次有许多是之前已经被禁用的程序，在厂商刻意更换公司名称，重新改名包装后又被再次推出。这些恶意应用程序的服务器，表面上可能是设在香港或新加坡，但是用户的敏感信息一样会被传送给中共。
-
-参考链接：
-[印度媒體：政府再禁54個中國應用程式](https://www.cna.com.tw/news/aopl/202202140135.aspx)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-
-总编/编辑：DM
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+信息来源：**[뉴욕 차이나타운서 30대 한국계 여성 피살…경찰 “노숙자 체포”](https://news.kbs.co.kr/mobile/news/view.do?ncd=5394992)**
+[Screams That ‘Went Quiet’: Prosecutors’ Account of Chinatown Killing](https://www.nytimes.com/2022/02/14/nyregion/suspect-christina-yuna-lee-murder.html?_ga=2.112399814.375310406.1644880793-1248351094.1644880793)
 
  
 
