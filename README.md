@@ -15,119 +15,119 @@
 
 ---
 
-### [【粤语配音】2022年2月15日：共产党马上就要被灭了](/content/gnews/1/README.md)
+### [2/15/2022 文贵盖特：习太阳消失8天后将露面，请台湾同胞务必小心；中共把冬奥会开成了国际大笑话；让所有人都过不好的中共马上就要被灭](/content/gnews/1/README.md)
+ ` 秘密翻译组-北美组`
+
+### [被副总理性侵的网球名将彭帅在冬奥会后的命运如何？](/content/gnews/2/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [北京冬奥会与谷爱凌事件对全球华人的伤害](/content/gnews/3/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [【粤语配音】2022年2月15日：共产党马上就要被灭了](/content/gnews/4/README.md)
  ` MOS香港部`
 
-### [从北京冬奥会看中共在世界上都玩坏了什么](/content/gnews/2/README.md)
+### [谁是神秘三十多岁中共间谍买家？](/content/gnews/5/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [从北京冬奥会看中共在世界上都玩坏了什么](/content/gnews/6/README.md)
  ` 秘密翻译组-原创组`
 
-### [你不能玩儿假动作，你得够力量砸到他身上](/content/gnews/3/README.md)
+### [你不能玩儿假动作，你得够力量砸到他身上](/content/gnews/7/README.md)
  ` MG FARM`
 
-### [“你只有掌握他、了解他，制定一个对他永远是克他于万里之外的绝招”](/content/gnews/4/README.md)
- ` MG FARM`
-
-### [七哥说你和什么人在一起就长得像谁](/content/gnews/5/README.md)
- ` MG FARM`
-
-### [爱情是精神的需要，生活是一个本能的一个生活现实的需要](/content/gnews/6/README.md)
- ` MG FARM`
-
-### [乔恩-斯图尔特为乔-罗根辩护：“谁能决定”什么是“错误信息”](/content/gnews/7/README.md)
+### [中共和对美国一样在香港释放病毒强夺香港](/content/gnews/8/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [七哥谈做重大的人生抉择时候的原则](/content/gnews/8/README.md)
+### [“你只有掌握他、了解他，制定一个对他永远是克他于万里之外的绝招”](/content/gnews/9/README.md)
  ` MG FARM`
 
-### [七哥谈UBS这个案子](/content/gnews/9/README.md)
+### [七哥说你和什么人在一起就长得像谁](/content/gnews/10/README.md)
  ` MG FARM`
 
-### [七哥说&#8221;你要想到人会死的&#8221;](/content/gnews/10/README.md)
+### [爱情是精神的需要，生活是一个本能的一个生活现实的需要](/content/gnews/11/README.md)
  ` MG FARM`
 
-### [聚焦：半独裁的俄罗斯承认国际数字资产为货币](/content/gnews/11/README.md)
+### [乔恩-斯图尔特为乔-罗根辩护：“谁能决定”什么是“错误信息”](/content/gnews/12/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [七哥谈做重大的人生抉择时候的原则](/content/gnews/13/README.md)
+ ` MG FARM`
+
+### [七哥谈UBS这个案子](/content/gnews/14/README.md)
+ ` MG FARM`
+
+### [七哥说&#8221;你要想到人会死的&#8221;](/content/gnews/15/README.md)
+ ` MG FARM`
+
+### [聚焦：半独裁的俄罗斯承认国际数字资产为货币](/content/gnews/16/README.md)
  ` 丁过`
 
-### [真正的墙就是共产党，不把共产党灭了，灭什么墙](/content/gnews/12/README.md)
+### [真正的墙就是共产党，不把共产党灭了，灭什么墙](/content/gnews/17/README.md)
  ` MG FARM`
 
-### [敌人的谎言越极端，我们的真相力量就越伟大](/content/gnews/13/README.md)
+### [敌人的谎言越极端，我们的真相力量就越伟大](/content/gnews/18/README.md)
  ` MG FARM`
 
-### [证据表明达沃斯国际刑事法庭有25% 的人被渗透](/content/gnews/14/README.md)
+### [证据表明达沃斯国际刑事法庭有25% 的人被渗透](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [七哥绝对不妥协、不和解](/content/gnews/15/README.md)
+### [七哥绝对不妥协、不和解](/content/gnews/20/README.md)
  ` MG FARM`
 
-### [七哥谈更深层次的问题](/content/gnews/16/README.md)
- ` MG FARM`
-
-### [加密货币贷款方BlockFi将支付1亿美元与SEC和各州和解](/content/gnews/17/README.md)
+### [加密货币贷款方BlockFi将支付1亿美元与SEC和各州和解](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [世行把6.24 亿美元的肯尼亚公路项目交给中共](/content/gnews/18/README.md)
+### [突发：特鲁多计划援引《紧急情况法》压制自由车队](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥谈PAG官司](/content/gnews/19/README.md)
- ` MG FARM`
-
-### [突发：特鲁多计划援引《紧急情况法》压制自由车队](/content/gnews/20/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [美国国税局为加密货币大开绿灯](/content/gnews/21/README.md)
+### [美国国税局为加密货币大开绿灯](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [七哥的Action、action、action，已经在全世界都已经成了名语了](/content/gnews/22/README.md)
+### [七哥的Action、action、action，已经在全世界都已经成了名语了](/content/gnews/24/README.md)
  ` MG FARM`
 
-### [德约科维奇“我不反对，但我的身体比任何头衔都重要”](/content/gnews/23/README.md)
+### [德约科维奇“我不反对，但我的身体比任何头衔都重要”](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中国的小人](/content/gnews/24/README.md)
+### [中国的小人](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [魁北克政府今天下午宣布撤销疫苗护照的时间表](/content/gnews/25/README.md)
+### [魁北克政府今天下午宣布撤销疫苗护照的时间表](/content/gnews/27/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [阿拉伯国家的维吾尔人遭遣返中国](/content/gnews/26/README.md)
+### [阿拉伯国家的维吾尔人遭遣返中国](/content/gnews/28/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [【秘翻在线】俄乌局势将密切影响全球能源市场](/content/gnews/27/README.md)
+### [【秘翻在线】俄乌局势将密切影响全球能源市场](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [韩国CCP病毒感染死亡人数再度攀升，新增突破记录](/content/gnews/28/README.md)
+### [韩国CCP病毒感染死亡人数再度攀升，新增突破记录](/content/gnews/30/README.md)
  ` 澳喜特战旅Gnews`
 
-### [红血球和新冠疫苗混合后失去了携氧能力并开始凝结，这就发生在疫苗与血液结合的一天后](/content/gnews/29/README.md)
+### [红血球和新冠疫苗混合后失去了携氧能力并开始凝结，这就发生在疫苗与血液结合的一天后](/content/gnews/31/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [喜系列财富之门](/content/gnews/30/README.md)
+### [喜系列财富之门](/content/gnews/32/README.md)
  ` 纽约香草山MOS03`
 
-### [澳大利亚的CCP病毒死亡人数创下历史新高！](/content/gnews/31/README.md)
- ` 澳喜特战旅Gnews`
-
-### [NFSC新闻、G|TV新闻访谈简报|2022年2月15日早](/content/gnews/32/README.md)
+### [NFSC新闻、G|TV新闻访谈简报|2022年2月15日早](/content/gnews/33/README.md)
  ` 纽约香草山MOS01`
 
-### [中共国的产业收购蓝图](/content/gnews/33/README.md)
+### [中共国的产业收购蓝图](/content/gnews/34/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [NewSGman┃川普支持加拿大卡车车队反对疫苗暴政](/content/gnews/34/README.md)
+### [NewSGman┃川普支持加拿大卡车车队反对疫苗暴政](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [挪威将取消大多数疫情限制措施](/content/gnews/35/README.md)
+### [挪威将取消大多数疫情限制措施](/content/gnews/36/README.md)
  ` NFSC News`
 
-### [魁北克省勒戈（Legault）政府拒绝实施《紧急措施法》](/content/gnews/36/README.md)
+### [魁北克省勒戈（Legault）政府拒绝实施《紧急措施法》](/content/gnews/37/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [加拿大疫情检验和疫苗强制政策骤现松动趋势](/content/gnews/37/README.md)
+### [加拿大疫情检验和疫苗强制政策骤现松动趋势](/content/gnews/38/README.md)
  ` NFSC News`
-
-### [有声|印度政府加码禁用54个中共应用程序](/content/gnews/38/README.md)
- ` MOSREC`
 
 ### [《文贵大直播》揭示各国大卡车运动的深远意义](/content/gnews/39/README.md)
  ` NFSC News`

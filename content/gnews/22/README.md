@@ -2,33 +2,36 @@
 ---
 
 
-## 七哥的Action、action、action，已经在全世界都已经成了名语了
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2010315/)
+## 突发：特鲁多计划援引《紧急情况法》压制自由车队
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2010334/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+翻译： Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2022/02/trudeau.png)`THE CANADIAN PRESS/Justin Tang`
+据接近总理办公室的消息人士透露，总理贾斯汀·特鲁多计划援引《紧急情况法》。
 
-2022-02-11直播摘录10:38:26
+据加拿大广播公司报道，特鲁多告诉他的核心小组，他将援引从未使用过的《紧急情况法》赋予联邦政府特殊权力，以处理加拿大各地正在进行的自由车队抗议活动。
 
-香港还会很坏，你看香港病毒的感染，还有香港的经济。你们不在香港住，七哥在香港住那么多年，我是很清楚的。香港绝大多数老百姓都是过着很富有的，但是都是很有程序化的，高消费的，但是很紧张的生活，所以香港很忙。它完全什么东西，99%都是完全靠供应。这个对香港来讲，供应链打断，还有共产党的威胁，还有未来共产党在香港的渗透。你去想想吧，两个半大的比新西兰还大的国家，这个香港，完全靠一个外来供应，它很可怕，香港，共产党的渗透和对共产党财富的掠夺，还早着呢。另外一个就是说京西宾馆的这个事是很大的，因为有些话我真不能透露，因为我就给大家说，那一次美国是给的共产党，严格讲是最后一次机会。我来跟你认真谈判，你别在那而给我扯犊子是吧，在我这里边渗透你以为我啥不知道是吧，你在贸易上你造假你不兑现，你在国际上这一堆。但是刘鹤你看到他那一套，在京西宾馆，还有共产党的疯狂，杨洁篪、王石摆谱，真的是彻底美国就下决心，这是共产党就有我没你，有我没他的。后来在天津，最后这一次天津彻底把事，大家都点炮了，说明白了，真的骂娘的，互相骂娘。你别以为两国之间，外交语言，不都是骗人的语言吗，这很简单嘛，就装修过的语言叫外交语言嘛是吧，真是就互相骂、互相威胁的。关于香港人到日本啊，你说咱们到日本去什么情况，到日本的事情，6月份以后咱们再说。这个韩国也好，香港也好，还是哪儿的到日本，你记住七哥只要到了英国的伦敦，咱们在那块儿的灭共行动，咱们的计划那都是现在你无法想象的。我们可不想高调的，像达赖喇嘛到哪儿演讲呐，整得多少信众啊，还有机场多少欢迎，那是俗到不能再俗的招了。
+该立法旨在取代《战争措施法》，该法将国家紧急状态定义为“紧急和危急情况”，即：“严重危及加拿大人的生命、健康或安全，其程度或性质超出了一个省的处理能力或权力。”
 
-七哥又不是当明星去了，七哥又不是到那儿搞双修去了，七哥非要去到那儿去搞双修对不对，咱是灭共去了，你想真的那么热闹，是不是？天天在那块儿谈天论地，你以为是共产主义呢？敌人一天不灭，我们没有任何轻松快乐享受的理由，一切都是战斗战术，战友们别一想象都是太多憧憬，太多想象。很多战友现在两年，quarantine在家待着，一切都是网络，一切都是想象，想象就是想象，它不是事实。七哥的Action、action、action，已经在全世界都已经成了名语了。
+该法案如果被援引，将赋予联邦政府 30 天的特别权力，以禁止公众集会、旅行和使用特定财产。它将允许渥太华指定受保护的地方，并迫使私营拖车公司为该市提供服务。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+这将是自特鲁多的父亲皮埃尔·埃利奥特·特鲁多 (Pierre Elliott Trudeau) 于 1970 年援引《战争措施法》来应对魁北克的十月危机以来，该法案首次实施。
 
-**关注我们**
+据报道，特鲁多周一上午在自由党核心小组的会议上表示，没有部署军队的计划。此举是在联邦内阁和事件响应小组周日召开会议之后进行的。
 
-Discord 账号
+周日晚些时候，特鲁多在推特上表示，事件响应小组讨论了“政府可以采取的进一步行动，以帮助结束封锁和占领。”
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+同一周日，应急准备部长比尔·布莱尔在“Rosemary Barton Live”节目中表示，联邦政府已经讨论过援引紧急权力来应对渥太华的抗议活动。布莱尔将援引《紧急情况法》的态度描述为“适当的谨慎”。
 
-Gettr 账号
+**参考资料：**[rebelnews][BREAKING: Trudeau plans to invoke Emergencies Act to deal with Freedom Convoy protests](https://www.rebelnews.com/trudeau_plans_to_invoke_emergencies_act_to_deal_with_freedom_convoy_protests)
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-2.jpeg)
 
  
 
