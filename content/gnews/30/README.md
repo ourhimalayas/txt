@@ -2,42 +2,58 @@
 ---
 
 
-## 加拿大疫情检验和疫苗强制政策骤现松动趋势
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2009635/)
+## 挪威取消了几乎所有剩余的Covid-19限制
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2009640/)
 
-作者：香草山- Naught（文行）， 银河系农场 骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-近日以来，加拿大局部地区的疫情检验和疫苗强制政策突现松动趋势。
+发布日期：2022年2月12日
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide4-8.jpeg)
+新闻来源：THE LOCAL NORWAY
 
-2月14日，安省省长福特宣布，大多数疫情限制措施自2月17日开始解除。3月1日将取消所有场所的疫苗证明要求，并取消室内设施容量限制。
+翻译：文虓Bobby
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1503.png)
+挪威已经取消了几乎所有剩余的Covid-19限制，取消了口罩和自我隔离要求，结束了一米规则，并将检测限制在有症状的人身上。
 
-这些限制措施包括：到月底前，社交聚会将增加到室内50人，室外100人；餐厅、健身房、会议、室内宗教活动等，取消容量限制；电影院、音乐会等场地开放50%；超市、药房等场所只要能保持2米距离，容量不受限制。从下月起，取消疫苗护照及所有限制。
+“一米规则正在取消中。我们将取消社交距离的建议，”挪威首相乔纳斯·加尔·斯托尔在新闻发布会上告诉记者。
 
-福特特别强调，提前重开计划，并非因为温莎的边境封锁，以及渥太华的抗议，而是基于疫情各项指标的持续改善。
+“现在我们可以像以前一样在夜生活、文化活动和其他社交场合进行社交。还包括坐公交车、火车和渡船去上下班的路上。”
 
-此外，据2月11日《路透社》消息，加拿大卫生部长周五表示，因为奥密克戎变种病毒爆发的最糟糕阶段已经过去，加拿大正在审查其与疫情相关的边境限制措施，并可能会在下周宣布政策变化。
+挪威解除限制的决定是在瑞典于周三、丹麦于2月1日解除限制的12天后做出的。
 
-据加拿大广播公司早先的报道，联邦政府即将取消其要求境外旅行的加拿大人，入境后必须接受强制性中共病毒PCR检测的要求。至发稿时，加拿大政府仍要求所有入境旅客在抵达后72小时内提供PCR检测呈阴性的证据。
+斯托尔将限制的变化归因于感染后症状更温和的新冠病毒变种奥米克戎（Omicron）。
 
-参考链接：
-1. [Ontario to end COVID-19 vaccine passport system March 1](https://amp.detroitnews.com/amp/6783275001)
-2. [Canada to make changes to COVID border restrictions next week-official](https://www.reuters.com/world/americas/canada-remove-mandatory-tests-vaccinated-canadians-who-travel-outside-country-2022-02-11/)
+“我们可以放松限制，因为奥米克戎不会像以前的变种那样导致严重的疾病。尽管感染率在上升，但最终住院的比例很低。我们得到了疫苗的良好保护。”他说到：“我们可以像治疗其他疾病一样治疗Covid-19。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+从周六上午10点起生效的调整包括:
 
-总编：Zion文恩
-编辑：Delilah小胖、宁文静
-校正/发稿：谐趣园
+- 一米规则被废除
+- 取消佩戴口罩的要求
+- 现在建议只有有症状的成年人接受Covid-19检测
+- 四天自我隔离的要求已降为推荐
+- 幼儿园和学校的孩子如果生病了应该呆在家里，但是可以在一天没有发烧之后回来
+- 所有剩下的在抵达挪威边境时必须证明呈阴性的要求都被取消了
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+那些无法或不愿接种疫苗的人以及弱势群体仍然建议戴口罩。
+
+根据新的检测要求，那些在家中使用抗原或横向流动检测呈阳性的人，被要求在当地市政府的感染跟踪系统中注册检测阳性。
+
+然而，加尔·斯托尔强调，“大流行尚未结束”，并建议未接种疫苗的人和处于风险群体的人继续保持社交距离，并在不可能保持社交距离的情况下戴上口罩。
+
+挪威公共卫生研究所(FHI)表示，该国尚未见到奥米克戎病毒激增的高峰，但预计很快就会出现。
+
+该机构主任卡米拉·斯托尔滕贝格(Camilla Stoltenberg)告诉记者，过去一周，收治新冠肺炎患者的人数上升了40%。
+
+截至周五，挪威已记录了986851例病例和1440例与病毒相关的死亡，该国超过91%的人口至少接种了两剂疫苗。
+
+挪威公共卫生研究所(FHI)估计，到今年夏天，540万人口中可能有300至400万人受到感染。
+
+***原文链接：***
+
+[https://www.thelocal.no/20220212/norway-scraps-almost-all-remaining-covid-19-restrictions/](https://www.thelocal.no/20220212/norway-scraps-almost-all-remaining-covid-19-restrictions/)
+
+审核校对：玫瑰天空
+上传排版：文勇
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,32 +2,30 @@
 ---
 
 
-## 加拿大公民自由团体谴责特鲁多的《紧急状态法》
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2009499/)
+## 有声|美元欧元互存，经济崩塌喜币将是最大赢家
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2009581/)
 
-加拿大温哥华扬帆农场 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/02/60777644_303.jpg)图片来源：DW
-根据《福克斯新闻》2月15日报道，在总理贾斯汀-特鲁多援引《紧急状态法》，切断对抗议的 “自由车队 “卡车司机的资助路线后，一些加拿大公民自由团体对其作出反应。
+配音：香草山巡管部– 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+在2月13日的大直播中，郭文贵先生表示，美元与欧元之间的关系是相互依存，一触即发的世界大战源于习近平的狂妄无知，而世界经济崩塌之时，喜币将是最大赢家。
 
-据路透社报道，虽然一些团体赞同切断抗议者资金的措施，但很多团体谴责这一行动，称其为政府过度扩张。
+郭先生分析，美元和欧元不存在消灭对方的说法。现在，弱美元对经济有利，美国是最大的受益者。
 
-加拿大公民自由协会说，卡车司机的抗议活动不符合特鲁多援引《紧急状态法》的标准，该法的存在是为了 “加拿大政府有能力维护加拿大的主权、安全和领土完整”，而且只适用于 “根据加拿大任何其他法律都无法有效处理的 “行动。
+他指出，中共的疯狂是因为习对国际政治的无知、狂妄，以及中共内部相互欺骗所导致的。就像中共给习汇报工作时，欺骗他说，“普京称冬奥会是一场绝美绝妙的盛会”。这是一种国际政治欺骗，给完全被洗脑的中共国老百姓，营造出一个集体性、自杀性的结果。
 
-加拿大公民自由协会补充说，这种危险的使用方式 “不应该被正常化”。
+文字版原文：[美元欧元互存，经济崩塌喜币将是最大赢家](https://gnews.org/zh-hans/2006014/)
 
-“我们认识到联邦政府决定援引《紧急状态法》的严重性。在呼吁联邦政府展示国家领导力时，我们本希望这是朝着结束全国封锁和维护法治迈出的一步，”加拿大人说公民自由协会说。
+音频处理/发稿：Daxia
 
-路透社报道了卡尔加里皇家山大学的政治教授洛里-威廉姆斯的意见：“使用《紧急状态法》来阻止抗议活动，有造成更多问题的危险。这必须是在州长的合作下完成的，如果他们不愿意实施《紧急状态法》，联邦政府就需要退后。这必须非常有针对性、非常战略性和非常克制，因为这些都是正在动用巨大的权力”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-其他一些公民自由专家担心特鲁多的决定可能会激发更多的抗议或民间动乱。
-
-原文链接：
-[https://www.foxnews.com/world/canadian-civil-liberties-groups-respond-to-trudeau-invoking-emergencies-act](https://www.foxnews.com/world/canadian-civil-liberties-groups-respond-to-trudeau-invoking-emergencies-act)
-
-编辑，发稿 Spirit
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
