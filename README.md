@@ -57,56 +57,56 @@
 ### [杰森·米勒：盖特在为卡车司机提供一个发声平台](/content/gnews/14/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共病毒至世界581.3万人死亡](/content/gnews/15/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [谁是2022年度的最大输家](/content/gnews/16/README.md)
+### [谁是2022年度的最大输家](/content/gnews/15/README.md)
  ` 秘密翻译组-原创组`
 
-### [欧洲自由车队涌入欧盟总部布鲁塞尔抗议疫苗暴政](/content/gnews/17/README.md)
+### [欧洲自由车队涌入欧盟总部布鲁塞尔抗议疫苗暴政](/content/gnews/16/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [世界的所有的经济在崩塌之际 躺平币使用既金钱](/content/gnews/18/README.md)
+### [世界的所有的经济在崩塌之际 躺平币使用既金钱](/content/gnews/17/README.md)
  ` DC政经`
 
-### [加拿大特鲁多援引紧急命令打击“自由车队”](/content/gnews/19/README.md)
+### [加拿大特鲁多援引紧急命令打击“自由车队”](/content/gnews/18/README.md)
  ` 澳喜特战旅Gnews`
 
-### [五月花简报（02/14/2022）](/content/gnews/20/README.md)
+### [五月花简报（02/14/2022）](/content/gnews/19/README.md)
  ` mayflowertranslate`
 
-### [有声|美众议院提案为因拒绝接种中共疫苗解职的军人复职](/content/gnews/21/README.md)
+### [有声|美众议院提案为因拒绝接种中共疫苗解职的军人复职](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [有声|文贵先生对战友说的几句话](/content/gnews/22/README.md)
+### [有声|文贵先生对战友说的几句话](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [有声|喜马拉雅币一周分析与总结（2月7日-2月13日）](/content/gnews/23/README.md)
+### [有声|喜马拉雅币一周分析与总结（2月7日-2月13日）](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [有声|2022年2月13日 晚 新中国联邦新闻、GTV新闻访谈简报](/content/gnews/24/README.md)
+### [有声|2022年2月13日 晚 新中国联邦新闻、GTV新闻访谈简报](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [有声|美国向朝鲜抛出橄榄枝](/content/gnews/25/README.md)
+### [有声|美国向朝鲜抛出橄榄枝](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [有声|六四学生运动](/content/gnews/26/README.md)
+### [有声|六四学生运动](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [有声|2022年1月国际社会对中共的打击制裁汇总与分析](/content/gnews/27/README.md)
+### [有声|2022年1月国际社会对中共的打击制裁汇总与分析](/content/gnews/26/README.md)
  ` MOSREC`
 
-### [澳大利亚敦促中共就乌克兰问题谴责俄罗斯](/content/gnews/28/README.md)
+### [澳大利亚敦促中共就乌克兰问题谴责俄罗斯](/content/gnews/27/README.md)
  ` 走进澳洲`
 
-### [太平联盟董事长中共间谍单伟建将美国养老基金卖给中共](/content/gnews/29/README.md)
+### [太平联盟董事长中共间谍单伟建将美国养老基金卖给中共](/content/gnews/28/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中日财经爆┃印度再禁54款中共国手机APP](/content/gnews/30/README.md)
+### [中日财经爆┃印度再禁54款中共国手机APP](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文贵直播大事记——七哥为什么要讲昆仑山脉和帕米尔高原（三）](/content/gnews/31/README.md)
+### [文贵直播大事记——七哥为什么要讲昆仑山脉和帕米尔高原（三）](/content/gnews/30/README.md)
  ` GNotes真.贵.记.录`
+
+### [加拿大政府和媒体对自由车队进行抹黑](/content/gnews/31/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [疫苗造成女性月经周期异常](/content/gnews/32/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
