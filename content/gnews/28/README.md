@@ -2,45 +2,33 @@
 ---
 
 
-## 中共政府表示不再批准非必要旅行的护照更新
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2005855/)
+## 场外交易卖掉喜币 将来必后悔
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2006012/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/021101-1.jpg)2020年11月5日中共国北京首都机场，中共病毒肺炎爆发后，携带行李戴着防护口罩的人们。图源：Thomas Peter摄/路透社
+作者：纽约香草山 – Ivy001
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+2022年2月13日，在大直播中谈到喜币场外交易时，郭文贵先生说，现在卖掉喜币套现的人，将来必定会后悔。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture1-20.jpg)
+谈到最近喜币的场外交易价格时，他说，60块都买不着。但是在场内，喜币被压低到了40美金，而场外交易有好几笔都在200左右交易的。这几天场外和场内的巨大价格差距，是因为基金在利用2亿个币，故意吸引卖家抛售，然后基金趁机买入。
 
-摘要翻译：
+文贵先生表示，现在卖币的人，不超过三个月，一定会后悔。请大家关注三个条件，1. 国家主权认可，2. 大额投资，3. HPAY的全面使用。并告诫战友们一定要记住，在世界经济崩塌的时候，HPAY，喜币，躺平币，使用即金钱。
 
-路透社上海2022年2月12日报道，
+参考链接：[场外交易卖掉喜币 将来必后悔](https://gtv.org/video/id=62090115a456fe1dea300f5a)
 
-中国国家移民管理局表示，在全球中共病毒肺炎疫情仍然严峻且对跨境旅行构成“巨大安全风险”的情况下，中共国将不会为非必要旅行更新护照。
+![This image has an empty alt attribute; its file name is calendar.png](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
-中共当局在社交媒体上的一份声明中表示，它“通常会只对需要赴境外留学、就业或商务的个人颁发护照”。
+总编：DM
+编辑：Jack Li文阳
+校对/发稿：Hetangyuese
 
-但中共当局表示，有关它将为希望出国休闲旅行的个人签发护照更新的谣言是错误的。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-中共国加强了对其公民跨境旅行的控制，以降低该病毒从海外带入并在国内传播的风险。它已暂停为因非紧急事项打算出国的个人签发新的普通护照。
-
-**简评：**
-
-中共表面上以控制病毒为由限制护照的办理和换发，其实是在悄悄关上国门。一方面是中共真没钱了，普通中国人就别满世界乱跑了，浪费党的外汇；另一方面也可暗示国人和世界，病毒主要来自外来输入，以此混淆视听，甩锅全世界。
-
-新闻链接：[China says not granting passport renewals for non-essential travel](https://www.reuters.com/world/china/china-says-not-granting-passport-renewals-non-essential-travel-2022-02-12/)
-
-*翻译/简评：xiaofeimao*
-
-*校对：Harvey（叶知秋）*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

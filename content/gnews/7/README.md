@@ -2,40 +2,31 @@
 ---
 
 
-## 有声|爆料革命预警勿打疫苗功德初现
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2006099/)
+## 土豆正式宣布启动国家紧急状态
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2006325/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在2月11日大直播中，郭先生欣慰地分享，爆料革命与新中国联邦，因传播中共病毒和疫苗真相，已经在世界上发展了一批誓死跟随的盟友。这种友谊不分种族，宗教，地域和性别，年龄，是用金钱收买与生殖器关系都无法摧毁的可贵的信任关系。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-199.jpg)
-郭先生经多方核实，各国上层都不打疫苗，但是他们却极力推广疫苗，用疫苗对全人类进行大屠杀。新中国联邦人与那些虚伪狡诈的上层人士形成鲜明对比，完全无私无我地认真救人，不贪图任何名利或回报。
+2022-02-14
 
-目前，新中国联邦救人的功德已经初步显现。
+翻译：Elli
+![](https://assets.gnews.org/wp-content/uploads/2022/02/T9T@XCQL7GP9TY26A18.png)图片来源：https://rumble.com/
+加拿大特鲁多总理援引《战争措施法》的后续《紧急情况法》来平息加拿大的卡车司机抗议活动。特鲁多补充说：“我们将永远捍卫加拿大人和平集会和言论自由的权利，但这些封锁是非法的……现在是回家的时候了”。他昨天召开紧急会议宣布为了应对全国性的抗议活动，要启用以前从未用过的国家紧急状态法。
 
-共产党发动海外的蓝金黄力量，滥用司法手段缠诉郭先生。当郭先生的官司急需律师之际，有两个律师挺身而出，表示愿意接手。原因很简单，因为相信爆料革命，没打疫苗。在西方资本主义轻义重利的社会环境下，很多富豪出乎意料地慷慨资助郭先生缴纳法院无理判决的罚款。
+这可能意味着土豆政府可以强行征用拖车公司的车去拖走卡车。大卡车司机会因此退让吗？了解这些朴实，吃苦耐劳，骨子里不服输卡车司机的人会告诉你“不”。一旦有任何强硬措施执行，只会引来更大的反弹。
 
-大量事实证明，爆料革命对中共疫苗灾难的揭露，是救人的大功德。新中国联邦因此得到世界的尊重和认可。
+加拿大民众可能从四面八方赶来支援，边境口岸的一些人民应该学会打游击战了：军警来了就散去，走了再给堵上。加上加拿大军队不支持土豆的行动，美加边境线RCMP前线警员消极守岗，各省比较消极的在配合上级指示；渥太华会有更多点儿聚集，驻守人会增加相信胜利必然在和平，清醒和理智团结中不期而至。
 
-文字版原文：[爆料革命预警勿打疫苗功德初现](https://gnews.org/zh-hans/2004248/)
+律师Tricia Lindsay今年在反疫苗强制令的演讲中提到美国宪法的基础的低级长官信条(Doctrine of Lesser Magistrate)， 清楚指明公民抗命抵制暴政是责任和义务。当暴君把魔爪申向我们下一代时，我们有义不容辞的责任为保护下一代而应战。 民不畏死，焉何以死惧之？
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+参考链接：[https://t.me/disclosetv/6910](https://t.me/disclosetv/6910)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[https://rumble.com/vuvjja-51860134.html](https://rumble.com/vuvjja-51860134.html)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+编辑：LILY
+发布：肥鯮
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

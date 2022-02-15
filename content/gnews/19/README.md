@@ -2,31 +2,48 @@
 ---
 
 
-## 七哥谈中共的黑社会手段
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2005936/)
+## 美国NBC承认北京种族灭绝冬奥会收视率可能达历史最低
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2006111/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+![](https://assets.gnews.org/wp-content/uploads/2022/02/beijingwinterolympicsratings1-640x480-1.jpg)Lintao Zhang摄/盖蒂图片社/NBC/BNN 编辑
+来自布赖特巴特新闻网2022年02月12日的报道，
 
-2022-02-11直播摘录09：09：14
+翻译：
 
-你知道共产党当年在香港的法官跟我们说什么吗？就香港查封我们钱的人，DBS的几百亿的人，法官后来离职了，他说：“你知道当时中共国威胁我，明确告诉我 ‘你不把郭文贵Miles Guo家族的钱给封了，我就把你所有的你在东莞嫖妓的事情和你家里边不正常的钱全公布’ 。” 这法官没办法，把钱全封了，现在还封着呢。这法官在香港离职了，是个英国人，大家你可以查查，是在英国在香港的十大法官之一，一辈子待在香港，这是被它威胁的法官，在香港就查封这么多资金，就这么查封的。所以共产党的黑社会手段绝对地伸进了现在冬奥会的所有的官员和那些裁判的身上。你都明显地你违规了，判人家违规。所以说在现场的冬奥会的官员跟咱们好的，他说：“Miles，对你来讲这都是天大的好事儿，我不相信任何一个国际奥林匹克运动会的任何官员还会再跟共产党合作，还会再相信共产党，永远不可能了。就连我们这两个头儿，女的，奥林匹克官员，冬季奥委会的官员在现场的，每天唉声叹气摇头。” 就不行了，就完全失控了！
+美国全国广播公司(NBC)公开回应了其对种族灭绝奥运会转播的低收视率，该公司的一位网络高管将情况描述为“困难”，同时将低迷的热度归咎于中共病毒大流行。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+在周四与记者的电话会议上，NBC体育频道主席皮特·贝瓦奎(Pete Bevacqua)阐述了过去一周令人沮丧的评估。据《好莱坞报道》的报道，他说：“对我们来说，这很困难。这是没办法的事。”
 
-**关注我们**
+他把缺乏典型的围绕奥运会的“激情和兴奋”归咎于中共病毒的限制。“这不是什么秘密，戴着口罩的运动员，没有观众的场馆。那么多的激情和兴奋，奥运会运动员拥抱他们的家人、朋友、配偶和伴侣的那些伟大时刻，那么多的神奇的时刻只是出于迫不得已而无法展现。”
 
-Discord 账号
+贝瓦奎似乎没有谈到民众对NBC美化中共国和回避中共诸多人权暴行的普遍反感。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+正如布赖特巴特新闻报道的那样，北京冬奥会的电视收视率已经达到灾难性的底点，有望成为NBC历史上收视率最低的冬季奥运会。NBC正在利用奥运会积极推动孔雀流媒体服务，该服务自2020年推出以来，一直未能点燃消费者的热情。
 
-Gettr 账号
+**简评：**
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+中共做的恶让其自食恶果。全球疫情确实是一部分人不关注北京冬奥会的原因，但全球疫情罪魁祸首就是中共。中共通过在赛场上搞小动作和赛后不公平的裁决等不光彩的手段获得奥运奖牌，就决定了没有人会愿意继续浪费时间看这场被操作的比赛。国际奥林匹克奥运会的精神是公平，而中共国从来没有过公平，中共也从来不会给任何人公平。在中共眼里，汉人、新疆人、西藏人、香港人、台湾人都是自己的奴隶，而自己作为奴隶主高高在上，让普通民众能吃饱饭就已经是这个邪恶的独裁政权认为“很高尚”的行为了。中共政府高官这类精神不健康的流氓群体，以为通过举办绚丽的奥运会就能美化并抹杀自己犯下的种族灭绝和反人类罪行，就是痴人说梦。中共的所作所为，不但中国人不会再忍受，全世界人民也不会继续容忍，看如今欧美日对中共政权的制裁不断加码，中共的末日已经为时不远。
+
+
+
+新闻链接：[NBC Admits Genocide Games Major Ratings Bust: ‘For Us, It’s Been Difficult. There’s No Way Around This’](https://www.breitbart.com/entertainment/2022/02/12/nbc-admits-genocide-games-ratings-bust-for-us-its-been-difficult-theres-no-way-around-this/)
+
+*翻译/简评: kkoto(芬兰大灰狼)*
+
+*校对:Harvey（叶知秋）*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

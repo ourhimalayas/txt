@@ -2,39 +2,39 @@
 ---
 
 
-## 日本医生： 疫苗比病毒可怕百倍，人心比病毒可怕千倍
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2002759/)
+## 乌克兰可能为避免战争放弃加入北约申请
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2003187/)
 
-作者：日本方舟农场 – Andy5
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-2月11日晚，在日本东京，电影《疫苗后遗症》公映后，影片的导演长尾和宏医生和主创鸟集彻记者，从三个方面提到了他们揭露疫苗后遗症后所有的遭遇。
+信息来源： 路透社
 
-首先，负责统筹日本医疗界的日本医师会高层，因为长尾医生揭露疫苗灾难，要求日本的私人医生不再收治感染中共病毒的患者，甚至打电话要求长尾医生闭嘴并删除所有的相关视频。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-35.jpg)
-其次，就像二战时期一样，日本的媒体开始跟政府联合起来欺骗日本国民，大肆宣扬所谓接种的好处而对危害避而不谈。
+翻译/整理： 意大利罗马达芬奇农场 Shuizhuyu
 
-最后，现在前线医生每天接收的感染者虽然有所减少，但其中依旧有80%左右时已经接种疫苗的人。甚至有些刚接种完第三针，就立刻出现了感染。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/7MDTIK23VFKKJCUMBXRMO4WNKQ.jpg)
 
-长尾医生总结说，我们根本不是在对抗所谓的奥密克戎变种，而是在对抗集权主义。现在这个疫苗比病毒可怕百倍，而人心比病毒可怕千倍。
 
-另据独家消息，长尾和宏医生已经同意接受新中国联邦媒体的专访。本台将跟踪报道。
+图片来源： 路透社
 
-参考链接：[日本医生： 疫苗比病毒可怕百倍，人心比病毒可怕千倍](https://www.gettr.com/post/pu1m2ic001)
+英国广播公司援引乌克兰驻英国大使的话说，乌克兰可能会放弃加入北约以避免与俄罗斯发生战争，这相当于对莫斯科做出重大让步，以应对俄罗斯在其边境集结的军队。
 
-![This image has an empty alt attribute; its file name is calendar.png](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
+Vadym Prystaiko 大使告诉 BBC，乌克兰愿意在加入大西洋军事联盟的目标上保持“灵活”，俄罗斯总统弗拉基米尔·普京表示，此举将引发战争。
 
-总编：飞虹
-编辑：Lakeman文仁
-校对/发稿：Hetangyuese
+当被问及乌克兰是否可以改变其在北约成员国问题上的立场时，Prystaiko 说：“我们可能——尤其是受到这样的威胁、敲诈和逼迫。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+乌克兰不是北约成员国，但从 2008 年起就承诺最终将有机会加入，这将使美国领导的联盟进入俄罗斯边境。
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+普京表示，乌克兰与该联盟日益密切的关系可能使其成为北约针对俄罗斯的导弹的发射台。他说，俄罗斯需要划定“红线”来防止这种情况发生。
+
+最近几周，俄罗斯已将超过 100,000 名士兵和重型武器转移到乌克兰的打击范围内，这促使美国及其北约盟国警告说，入侵可能迫在眉睫。
+
+莫斯科否认它正在计划发动袭击，称其为军事演习，但已发出书面要求，要求北约放弃任何进一步向东扩张，包括乌克兰。北约成员国拒绝了这一要求。
+
+白宫表示，美国总统乔·拜登周日与乌克兰总统泽连斯基进行了交谈，并同意继续进行外交努力以试图解决危机。
+
+简评： 郭先生2月13日直播中已经明确， 普京认为乌克拉就是自己的， 话音未落， 今天就看到了这条新闻， 乌克兰可能为了避免战争， 放弃加入北约的申请， 这就意味着北约东扩的步伐减慢， 应对面前的东欧危机。 更严重的可能就是对俄罗斯的妥协。 欧洲依赖俄罗斯的能源供应。
+
+🔗[乌克兰可能为避免战争放弃加入北约申请](https://www.reuters.com/world/europe/ukraine-could-drop-nato-bid-avoid-war-ambassador-tells-bbc-2022-02-14/)
+
+编辑发布简评 ： Shuizhuyu
 
  
 

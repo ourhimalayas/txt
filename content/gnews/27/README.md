@@ -2,31 +2,39 @@
 ---
 
 
-## 七哥谈中共不尊重游戏规则
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2005864/)
+## 郭文贵先生谈喜币最牛的四大因素
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2006013/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+作者：纽约香草山农场 – 恩永存
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+2月13日，郭文贵先生在大直播中再次谈到喜联储的喜币，喜美元和喜支付时，称其必将成为全球最牛的金融机构和币种，主要因素有四点。
 
-2022-02-11直播摘录09：03：45
+第一，无增发。放眼全球各国银行，存进100的钱，它会增发1000的币。新中国联邦的喜币绝对原值，每年就发行10亿，100年共1000亿，决不增发，这保证了其价值稳定。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture11.jpg)
+第二，可兑现。其它银行最可怕的问题，就是它们都有不兑现的权利。但新中国联邦的喜币绝不可能不兑现，还有20%的黄金锚定，保证了兑现的可能。
 
-他把这个龙头变成龟头，你想想TPG，还有PAG、单伟健这种流氓行动，单伟健是王岐山的马仔，康典的哥们，到今天在西方的渗透，他对我们越攻击，他造的假文件越多，他未来他倒霉越大。你们忘了吧，2016年、2015年、2016年、2017年比他牛叉的人是谁呀，海根巴森，美国建国以来最大的司法部腐败的案子，仅仅一个律师就7000多万美元，到了所谓的中共驻华盛顿大使馆去勾兑，背后是谁？斯蒂芬温！斯蒂芬温不比你屁大多了？Elliot Broidy要拿30亿美元搞我，孙立军、孟建筑、王岐山，康典、马云，杨钥匙兰老公，找班农去要把钥匙兰送给班农去，然后美国当时时任总统Donald Trump。“Miles Guo, Miles Guo，raper ，raper everybody， raper everybody，” 我强奸全世界所有人啊，“给我签那个字啊，Miles Guo rape everybody ，rape everybody。” 班农说：“谁谁谁谁？你再说一遍，Miles Guo，他怎么强奸所有人了？” 你想想当时的画面，是吧。你想想当时伯明，你想想当年的司法部长塞森斯，大早上起来的，七点钟给美国总统做检报，结果这川普拿过来，“哎~把那个文件给我签一下啊。” 那个律师困死，超级好，白宫律师说：“什么？你要签这个？你签了这个你就完了，你就得离开白宫。这是犯罪，你没权利签这个。” 然后说：“哎~~别别别，这是我们最重要的人，你怎么能签这个，你签着就完了。” “是吗？” 他说：“你知道他是你的马拉戈会员吗？” “是吗？” 他都不知道。他说：“他就是那个郭文贵，Miles Guo，你要签的这个强奸everybody的人，就是那个Miles Guo。” 斯蒂芬温、Elliot Broidy，Elliot Broidy的老婆律师，海根巴森，司法部副部长等，还有是华尔街什么Blackstone，你去想想全人类多牛啊，PAG算个鸟毛啊他算个。当时把七哥也没撂倒，你去想想当时啊，当时给欧洲的人打电话，给中东的某国家打电话说，只要你把郭文贵给我弄回来，一切交易可谈。所以说兄弟姐妹们，到今天你在看，共产党在美国是在全世界干什么？他完全不尊重游戏规则，而且在尝试改变一切国际上已存在的法律和游戏规则。
+第三，无中介。世界各大银行自己是中介，也与其它银行互为中介，捞取中介费，增大了各种风险。喜联储不是中介，也不会找中介。喜币，喜姜元从A到B点对点交易，喜联储不能控制。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+第四，零成本。用新中国联邦的喜币喜支付是秒到账，没有交易费，没有中介费，全球通用，自由交易。
 
-**关注我们**
+郭先生说，环顾世界经济的糟糕程度，唯有新中国联邦独好。盖特只能赚钱不会赔钱，GTV躺着就能挣钱，它拥有盖特，喜联储，GFashion，Gnews的股票，不会减少，只能是增加。
 
-Discord 账号
+参考链接：[郭文贵先生谈喜币最牛的四大因素](https://www.gettr.com/post/pudtie436f)
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+![This image has an empty alt attribute; its file name is calendar.png](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
-Gettr 账号
+总编：DM
+编辑：DM
+校对/发稿：Hetangyuese
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 
