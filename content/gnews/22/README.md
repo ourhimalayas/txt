@@ -2,18 +2,14 @@
 ---
 
 
-## 有声|美国宣布向台湾出售爱国者导弹
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2007454/)
+## 有声|NFSC新闻、G|TV新闻访谈简报|2022年2月12日早
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2007458/)
 
 配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-美国政府2月7日宣布，它已批准向台湾出售旨在改进该岛导弹防御系统的设备和服务，估计成本为 1 亿美元。这是自去年1月拜登总统上任以来，美国第二次对台军售。
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-11.png)
 
-该项交易旨在维持、维护和改进爱国者防空系统。还包括对传统制导增强型导弹和爱国者PAC-3导弹的现场监视支持，旨在确保爱国者导弹以及传统导弹库存可靠性和性能，并提供已部署导弹的定量可靠性评估。
 
-美国国防部下属的国防安全合作局DSCA表示，本次军售将有助于维持台湾的导弹密度并确保其为空中作战做好准备。将有助于改善台湾的安全，维持该地区的政治稳定、军事平衡、和经济发展。
-
-文字版原文：[美国宣布向台湾出售爱国者导弹](https://gnews.org/zh-hans/1995460/)
+文字版原文：[NFSC新闻、G|TV新闻访谈简报|2022年2月12日早](https://gnews.org/zh-hans/1996371/)
 
 音频处理：呼吸的雾霾（文小呼吸）
 发稿：呼吸的雾霾（文小呼吸）
