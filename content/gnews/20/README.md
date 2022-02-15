@@ -2,41 +2,28 @@
 ---
 
 
-## 纽约教师周日再次集会 抗议强制疫苗令
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2008797/)
+## 有声|拜登政府将解冻阿富汗的70亿美元用于人道救助及赔偿911受害者
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2008968/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image007-1.png)
-【大纪元**2**月**14**日讯】到上周五（**2**月**11**日），还没有打疫苗的市府公职人员就会失业。到目前为止，市府还没有确认到底有多少人真的失去工作。不过人们一直在不断地抗议纽约市的强制疫苗令。**
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-26.png)
+据美联社2月11日的报道，拜登总统周五（11日）签署命令，将解冻目前阿富汗在美国被冻结的70亿美元。
 
-**周日（**13**日），一部分教师在布碌仑的海洋高速路与**W**大道处集会，抗议市和州府对公务员以及对孩子的疫苗令。抗议者们表示，**“**我们将失去我们的基本自由，在我们甚至不知道的情况下。我们必须为保护天赋自由（的权利）而战。**”
+目前，不会立即释放任何资金， 但拜登总统的命令要求银行将冻结金额中的 35 亿美元提供给一个信托基金，通过人道主义组织分配，以满足阿富汗的救济和基本需求。 剩下的35亿美元将留在美国，以赔偿美国911受害者。
 
-**根据上周的市府数据，大约有**4,000**名公务员受到疫苗令的影响；还有**1.3**万人正在申请宗教或者医疗豁免，其中包括**5,000**名警察和**500**名消防员；教育局大约有**700**名教职员工将离职。
+文字版原文：[拜登政府将解冻阿富汗的70亿美元用于人道救助及赔偿911受害者](https://gnews.org/zh-hans/2003820/)
 
+音频处理/发稿：Daxia
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-
-
-**推出问题，敲出真相，爆料在路上！**
-
-**请关注和订阅我们的以下账号：**
-
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
-
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
-
-**玫瑰看新闻YOUTUBE账号**：
-
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**ROSE NEWS**
-
-**【玫瑰看新闻】推特账号**：
-
-**ROSE NEWS (@ROSENEWS4)A**
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

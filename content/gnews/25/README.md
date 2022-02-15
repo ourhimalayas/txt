@@ -2,27 +2,36 @@
 ---
 
 
-## NewSGman┃中共收集北京冬奥会有何参与者生物数据邪恶目的
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2008748/)
+## 英考虑放宽BNO签证　彭定康：不该遗忘年轻港人
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2008909/)
 
-撰稿：东京樱花团/NewSGman
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image009-2.jpg)
+英国上议院上周针对** BNO **签证计划的修正案展开辩论，将考虑放宽签证，让**1997**年后出生、未持有** BNO **护照的年轻港人能独立申请该签证，移居英国。
 
-中共收集北京冬奥会有何参与者生物数据邪恶目的
+香港在反送中运动与《香港国安法》实施后，掀起一波**“**离港潮**”**，许多港人透过英国的** BNO **签证计划，移居英国。但该计划因难以惠及**1997**年后出生、站在街头抗争最前线的大批香港年轻人而受到批评。
 
-国家元首DNA 运动员的DNA都被共产党掌握
 
-中共收集参加冬奥会各国领导人和运动员的尿和大便是服务于其邪恶的目的 – 提取并用他们的基因以生出“更优秀”的种族；中共骨子里是种族主义者并且崇拜优秀人体和基因
 
-——2022年2月6日郭文贵大直播
+**推出问题，敲出真相，爆料在路上！**
 
-2/6/2022 Miles Guo: The CCP collects urine and feces from the leaders and athletes of various countries participating in the Winter Olympics to serve its evil purpose – to extract and use their genes to produce a “better” race. The CCP is racist at its core and worships superior physiques and eugenics.
+**请关注和订阅我们的以下账号：**
 
-盖特链接：https://gettr.com/post/pt0t4gc947
+**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
 
+**玫瑰看新闻YOUTUBE账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**ROSE NEWS**
+
+**【玫瑰看新闻】推特账号**：
+
+**ROSE NEWS (@ROSENEWS4)A**
 
  
 

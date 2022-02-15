@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/15/2022 3:06 PM (UTC)`
+
+2月15号：尊敬的战友们好！文贵衷心的祝大家元宵节快乐！
+![img](https://media.gettr.com/group44/getter/2022/02/15/15/dc51fd09-d34b-f160-63bb-3033402d51f2/out.jpg)
+
+---
+
 `@miles 2/15/2022 3:57 AM (UTC)`
 
 2/13/2022 Miles Guo: I only seek to take down the CCP, and I have no interest in politics at all. The PAG case has exposed the CCP’s infiltration in the Western law firms and judicial system. The FBI will investigate this, won’t it? Anyway, I will never compromise on the verdict of this case. From day 1, I have been turning my wisdom and capabilities to create wealth into the tool to take down the CCP.<br/><br/>2/13/2022 文贵直播：文贵只想灭共，对政治没任何兴趣；PAG案揭露了中共对西方律所和司法的渗透, FBI难道会坐视不管？对于本案判决，文贵坚决不妥协；文贵从第一天起就把智慧和创造财富的能力变成灭共的工具<br/>
@@ -149,13 +156,6 @@
 
 2/13/2022 Miles Guo: We will soon witness a dramatic change in the world! The Freedom Convoy around the world was started by the New Federal State of China and me, and it originated from the Hong Kong movement that I planned. The Freedom Convoy has opened a new way of peacefully protesting tyranny, with its essence being completely uniting the future economy and the political movements against dictatorship.<br/><br/>2/13/2022 文贵直播：很快，我们将见证世界巨变！全球大卡车运动的发起人是新中国联邦和文贵，它源自于文贵策划的香港运动；大卡车运动开启了和平对抗暴政的新方式，其本质是将未来的经济和反对独裁的政治运动彻底联合在一起<br/>
 ![img](https://media.gettr.com/group23/getter/2022/02/13/22/552e2581-002f-8d1c-807a-5f3e10d95095/out.jpg)
-
----
-
-`@miles 2/13/2022 1:01 PM (UTC)`
-
-2022年2月13日 文贵大直播：加拿大卡车清理事件；冬奥会连续爆丑闻；世界经济市场突发；西方法律系统渗透
-![img](https://media.gettr.com/group27/origin/2022/02/13/12/b168ba83-81ae-6c19-61da-9f6aa2eb91bc/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

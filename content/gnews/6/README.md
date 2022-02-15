@@ -2,38 +2,33 @@
 ---
 
 
-## 美公布印太战略 挺台自我防卫
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2009026/)
+## 有声|罗杰-霍德金森抨击中共病毒疫苗
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2009121/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image011-1.jpg)
-美国白宫**11**日公布**“**印度太平洋战略**”**报告，誓言对印太地区投注更多外交与安全资源，以对抗中国扩张势力，同时将与区域伙伴合作维持台海稳定，包括支持台湾的自我防卫能力，与确保台湾能有和平决定未来的环境，以及威慑包括台海在内的军事侵略行动。**
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月12日英喜农场报道，病理学家罗杰-霍德金森博士发表演说，揭露中共病毒疫苗的阴谋。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E6%88%AA%E5%B1%8F2022-02-14-%E4%B8%8A%E5%8D%8811.21.32.png)
+他说，疫苗没有任何作用，是一个压倒性的共识。而且，两个主要的医学伦理被省内和国际医疗机构以及政府践踏了，即不伤害和知情同意权。所有不告知人们真相，且强制中共病毒疫苗接种的全球医疗机构的医生和外科医生，都是政府认可的谋杀案的同谋者。
 
-**这份十九页的文件指出，美国加强聚焦印太，因为该区面临来自中共的挑战渐增。中共寻求在印太的影响力与称霸世界，其胁迫与侵略之举遍及全球，但在印太尤为严峻，包括对台湾的压力渐增，**“**美国与区域伙伴在未来十年的共同努力，将决定中华人民共和国是否会成功改变造福印太与世界的规则与规范**”**。**
+文字版原文：[罗杰-霍德金森抨击中共病毒疫苗](https://gnews.org/zh-hans/2004589/)
 
-**但是报告中也说，美国也同时会遵守一中政策，以及在台湾关系法、美中三公报与美对中六项保证中的长期承诺。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-**推出问题，敲出真相，爆料在路上！**
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-**请关注和订阅我们的以下账号：**
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
-
-**玫瑰看新闻YOUTUBE账号**：
-
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**ROSE NEWS**
-
-**【玫瑰看新闻】推特账号**：
-
-**ROSE NEWS (@ROSENEWS4)A**
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
