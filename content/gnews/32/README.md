@@ -2,20 +2,29 @@
 ---
 
 
-## 有声|国际组织与中共勾兑是世界堕落的根本原因
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2009445/)
+## 中俄发动战争必被灭 世界经济将重整
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2009487/)
 
-配音：香草山巡管部– 文凯琳
+作者：纽约磐石农场—在远方
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在2月13日的大直播中，郭文贵先生揭示了挂着国际名号的“非盈利”组织或机构与中共勾兑，出卖中国人的各项权益，导致了整个世界的沉沦。
+在2月13日的大直播中，郭文贵先生概括性地分析了当前的世界局势及大致走向。
 
-在过去的三十年里，但凡有中共参与的国际组织机构，都变得漠视规则，腐败堕落。联合国人权委员会，不派调查组调查中共在新疆、西藏、香港犯下的侵犯人权的罪行，却相信中共的谎言，任由中共粉饰，荒唐至极。世界贸易组织对中共无视贸易规则，从不兑现承诺的行为不追究、不惩罚。中共病毒疫情爆发以后，世界卫生组织公然替中共掩盖，至今没有追查病毒起源。国际奥委会支持冬奥会在犯下反人类罪的国家举行，这是全人类的耻辱。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1-6.jpeg)
 
-文字版原文：[国际组织与中共勾兑是世界堕落的根本原因](https://gnews.org/zh-hans/2004515/)
+郭先生认为，北京冬奥会结束之后，全世界的视线都会聚焦在武汉实验室的身上。俄罗斯一旦侵略乌克兰，不管中共打不打台湾，都意味着普京政权的结束，这会导致世界经济彻底混乱，然后重整，
 
-音频处理/发稿：Daxia
+之后，全世界会因释放病毒和支持俄罗斯追责中共，随后则将有三件事情发生：一是所有强迫民众施打疫苗的政客，都会被送上绞刑架。二是五月份以后，疫苗大灾难开始，大量人口死亡，社会动乱会此起彼伏。西方文明世界，将会重新改写。三是世界经济方面，经济泡沫会彻底破裂。世界上会有两种货币并存，即数字货币和法币。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+在所有这些变革中，新中国联邦将是最大赢家。
+
+参考链接： 
+ [https://www.gettr.com/post/pudoks629e](https://www.gettr.com/post/pudoks629e)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+
+总编：Zion文恩
+编辑：飞虹
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -23,7 +32,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

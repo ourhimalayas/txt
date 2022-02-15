@@ -2,26 +2,20 @@
 ---
 
 
-## 秘翻在线：新冠疫苗接种者占全部病例近九成 三针群体死亡率激增495%
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2009058/)
+## 2月11日晚法国足球运动员埃玛努埃尔•吉拉尔多特在一场足球比赛中突感不适死亡
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2009221/)
 
-**翻译：明澈**
+#### 翻译 /简评                     意大利达芬奇农场                    小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-15-alle-11.30.11.png)图片来源：eventiavversinews.it
+埃玛努埃尔•吉拉尔多特是Fc Fontcouvert 队的一名足球老将，他同时还是一名体育老师。2月11日晚在一场足球比赛中突感不适。 在开场后的15分钟，吉拉尔多特心脏骤停，虽经经医生救治，但他没有活过来，刚到医院就离开了人世。
 
-**校对：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-15-223714.jpg)
-《自然新闻》2月14日援引苏格兰公共卫生局报告中的最新数据显示，绝大多数住院病例及死亡病例皆为新冠疫苗接种者。去年12月11日至1月7日期间，染疫患者中，单针者占9%，二针三针及三针以上接种者占总病例的85%，未接种疫苗者仅占总病例的15%；截至2月4日，在所有新增病例中，59%为两针接者，32%为三针者，未接种疫苗者的比例则下降至13%以下。
+吉拉尔多特所在的Fc Fontcouverte 球队2月12日在其社交网站上宣布了他死亡的消息。“ FC Fontcouvert 球队怀着悲伤的心情宣布埃玛努埃尔•吉拉尔多特于昨晚去世。他是俱乐部的老球员，昨天在一场球赛中他突感不适。俱乐部向他的家人和亲人们致以慰问。”
 
-苏格兰公共卫生局数据报告还显示，每五例中共病毒（Covid-19）住院和死亡病例中，就有四例为新冠疫苗接种者。与1月份相比，2月份的病例总体有所下降，但三针者群体的死亡率却在1月份飙升495%。与此同时，与去年12月份相比，1月份未接种新冠疫苗者的住院率下降24%，三针者群体的住院率则增加了88%。
+简评：每个星期我们都能读到或看到球员去世的消息，但是在报道中没有提球员是否接种了新冠疫苗。太多的心脏骤停，太多的年轻健康的运动员“突感不适”。还会有多少年轻健康的生命会突然逝去？
 
-据《曝光》报道，与去年12月11日至今年1月7日数据相比，今年1月总病例人数有所下降，其中接种新冠疫苗者为染疫主要群体。 2021年12月11日至22年1月8日，两针者为染疫主要群体，记录在案共14万5890例。 2022年在1月8日至22年2月4日，三针者则成为染疫主要群体，共记录4万6951例。近一个月以来，接种新冠疫苗者染疫率则占总病例87%，其中单针者占4%，两针者占33%，三针者占63%。
+原文链接：[https://www.eventiavversinews.it/francia-muore-colpito-da-malore-improvviso-venerdi-sera-11-febbraio-durante-una-partita-il-calciatore-emmanuel-girardot-rinviate-per-lutto-tutte-le-partite-del-weekend-nella-provincia/](https://www.eventiavversinews.it/francia-muore-colpito-da-malore-improvviso-venerdi-sera-11-febbraio-durante-una-partita-il-calciatore-emmanuel-girardot-rinviate-per-lutto-tutte-le-partite-del-weekend-nella-provincia/)
 
-21年12月11日至22年1月7日期间，接种疫苗群体占住院人数的75%，单针者占住院人数7%，两针者占住院人数47%，三剂针者占住院人数46%。近一个月，接种新冠疫苗者占住院人数的80.5%，单针者占住院人数的6%，两针者占住院人数的26%，三针者占住院人数的68%。
-
-此外，《曝光》在报道中直言不讳地点出，在染疫人口总数下降的情况下，未接种新冠疫苗者、单针及两针接种者病例下降最多，三针接种者病例减少最小，如果新冠疫苗真的有效，那这一数据就完全说不通。
-
-**[新闻来源](https://www.naturalnews.com/2022-02-14-triple-vaccinated-deaths-skyrocket-495-percent-january.html)**
-
-
+编辑、上传： Xiao   baige
 
  
 

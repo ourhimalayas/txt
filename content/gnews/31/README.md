@@ -2,24 +2,28 @@
 ---
 
 
-## 樱花FM┃美国担任APEC主席意在牵制中共
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2009454/)
+## 有声|霍德金森博士称不告知真相的医生是谋杀案同谋
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2009495/)
 
-音频：东京樱花团/战友520
-![](https://lh5.googleusercontent.com/k5fERQ99HKg1bT8fuPj_rwkvqbIwuz7SemMfScTcxPiSxPmelLvoYBJI30HW204VtEb3DM_Vpip9vdsj6cVUarnNZSW6YooUuv_nLTERGOLu3ZqSYz5oJ2VY3SiJzACVgg4_NliK)
-白宫2月10日宣布，美国将在2023年主持亚太经济合作组织（APEC）论坛，担任亚太经合组织主席，以努力加强与亚太地区的联系，并牵制中共在该地区日益增长的经济影响力。
+配音：香草山巡管部– 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+2月13日，郭文贵先生盖特转发视频消息，加拿大病理学家、某著名医疗保险机构CEO罗杰·霍德金森博士表示，中共病毒疫苗没有任何作用，所有不告知真相的医生，都是政府认可的谋杀案的同谋。
 
-拜登上任以来重新推动印太经济框架的政策，与日本和其他亚太经合组织成员建立共同的贸易和先进技术规则。
+霍德金森说，有一个压倒性的共识，即疫苗没有任何作用，疫苗是试验性和未经测试的。疫苗接种不仅是不必要的，实际上它正在杀人害人。
 
-拜登政府于2021年8月竞选主席，但在当年11月举行的APEC峰会上没有当选，之后在成员国间的斡旋下成为下届主席国。这是自2011年欧巴马政府以来，美国首次担任亚太经合组织主席国。
+文字版原文：[霍德金森博士称不告知真相的医生是谋杀案同谋](https://gnews.org/zh-hans/2002760/)
 
-亚太经济合作组织成立于1989年，包括日本、美国和中国在内的21个国家和地区，是亚太区内各地区之间促进经济成长、合作、贸易、投资的论坛，为推动区域贸易投资自由化，加强成员间经济技术合作等方面发挥了不可替代的作用。
+音频处理/发稿：Daxia
 
-文字版原文：[美国担任APEC主席意在牵制中共– GNEWS](https://gnews.org/zh-hans/1988124/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

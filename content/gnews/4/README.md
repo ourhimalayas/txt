@@ -2,22 +2,18 @@
 ---
 
 
-## 郭文贵盖特音频2022.02.15
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2009753/)
+## 2022年2月15日，全球中共病毒疫情情况汇总
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2009815/)
 
-音频提供者：左媛
-![](https://assets.gnews.org/wp-content/uploads/2022/02/out-14.jpg)
-### 视频链接：
+制作：DT新闻组
 
-[https://www.gettr.com/post/pupixc4e7b](https://www.gettr.com/post/pupixc4e7b)
+**中共的杀戮还在继续……**
 
-### 音频链接：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/CCBDB2D7-D051-4763-AAF6-1E1F19C62575.jpg)
 
+发稿：信心的选择
 
-
-
-
-编辑发布：闪电训练
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-2.jpeg)
 
  
 
