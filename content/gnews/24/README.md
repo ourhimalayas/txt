@@ -2,10 +2,10 @@
 ---
 
 
-## 加拿大警察逮捕和平的自由卡车司机
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2007214/)
+## 各国情报部门就乌克兰边境局势发出警告
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2007404/)
 
-02/13/2022 懦弱的加拿大警察和军队在大使桥上逮捕了和平的自由卡车司机
+02/12/2022 乌克兰总统泽连斯基呼吁人民保持冷静，但各国情报部门正就俄罗斯可能入侵乌克兰发出警告。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

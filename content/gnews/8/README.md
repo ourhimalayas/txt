@@ -2,31 +2,21 @@
 ---
 
 
-## 有声|美参议员认为自然免疫力优于中共病毒疫苗
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2007453/)
+## 世界的所有的经济在崩塌之际 躺平币使用既金钱
+` DC政经` [轉載自GNews](https://gnews.org/zh-hans/2007550/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-外媒2月10日报道，美国共和党参议员兰德.保罗称，自然免疫力比中共病毒疫苗好的多，但我们耽误了两年才承认自然免疫力的优越性。
+《2022年02月13日文贵大直播》节选
 
-保罗认为，已经有7,800万美国人感染了中共病毒，如果做随机抗体测试，就能知道到底有多少人因强制疫苗而遭到感染。而安东尼-福奇等人无视自然免疫力，强制推动接种中共病毒疫苗，是一种极大的误导和犯罪。我们在与中共病毒的对抗中已经形成了足够强大的自然免疫力，这是大自然母亲赐予我们的最好保护。
+我说，兄弟姐妹那三招，国家主权认可，大额投资，H-Pay全面使用。你去想想这事情，在发生什么事情？
 
-另有相关人士评论：美国重量级参议员的表态，意味着强制疫苗措施即将结束。但强制疫苗带来的惨痛代价，尤其值得让人警省。
+世界的所有的经济在崩塌的时候，喜联储、喜币、H-Pay，接下来的躺平币，使用即金钱，记住，国内的战友们，只要你使用盖特，你使用G-TV，使用G-News，使用H-Coin，就是钱。
 
-文字版原文：[美参议员认为自然免疫力优于中共病毒疫苗](https://gnews.org/zh-hans/1995493/)
+我不跟你们开玩笑！
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+素材，剪辑，字幕：小蜜蜂 | 发布：文零
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+更多新闻咨讯请访问：[DC政经Gettr账号](https://gettr.com/user/dczhengjingquan)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/DCZJ_Gnews_960_160.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

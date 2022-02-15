@@ -2,27 +2,13 @@
 ---
 
 
-## 有声|NFSC新闻、G|TV新闻访谈简报|2022年2月12日早
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2007458/)
+## 特鲁多政府拒绝会面谈判，反而一味地妖魔化卡车司机
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2007556/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-11.png)
+02/13/2022 居住在渥太华的自由撰稿人露帕·苏布拉曼尼亚采访过100多名卡车司机，她说卡车司机领导着加拿大卡车运动，并团结了来自全国的人民。他们要求政府撤销疫苗强制令和疫苗护照等防疫限制，而特鲁多政府不仅不去和他们对话谈判，反而一直在妖魔化他们
 
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-文字版原文：[NFSC新闻、G|TV新闻访谈简报|2022年2月12日早](https://gnews.org/zh-hans/1996371/)
-
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
