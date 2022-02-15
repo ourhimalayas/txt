@@ -2,31 +2,36 @@
 ---
 
 
-## 七哥谈中共不尊重游戏规则
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2005864/)
+## 一马公司（1MDB）丑闻进入审判阶段
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2005908/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+![article cover](https://cdn.sanity.io/images/bl383u0v/production/dcce255397a07b81e1e1012ac9be3eb4e4da9cb4-7084x4725.jpg?h=4725&amp;max-w=900&amp;q=70&amp;auto=format)前高盛银行家 Roger Ng (R) 和他的律师 Marc Agnifilo (L) 抵达纽约的美国联邦法院。(法新社)
+来自《Morning Brew》2022年02月13日的报道，高盛集团(Goldman Sachs)马来西亚投资银行业务的前负责人罗杰·吴(Roger Ng)将于今天开始在纽约受审。他被指控在从马来西亚主权财富基金（1MDB)掠夺数十亿美元的大规模洗钱计划中，扮演了重要角色。
 
-2022-02-11直播摘录09：03：45
+详情如下：在华尔街有史以来最大的丑闻之一中，高盛为1MDB的65亿美元债券销售提供了便利……但为了赢得商业银行家的支持，他们贿赂了政府官员，后来将一大笔钱用于购买奢侈品。挪用的资金被用来购买比佛利山庄的酒店，一艘价值2亿美元的超级游艇，甚至还用于资助了电影《华尔街之狼》。
 
-他把这个龙头变成龟头，你想想TPG，还有PAG、单伟健这种流氓行动，单伟健是王岐山的马仔，康典的哥们，到今天在西方的渗透，他对我们越攻击，他造的假文件越多，他未来他倒霉越大。你们忘了吧，2016年、2015年、2016年、2017年比他牛叉的人是谁呀，海根巴森，美国建国以来最大的司法部腐败的案子，仅仅一个律师就7000多万美元，到了所谓的中共驻华盛顿大使馆去勾兑，背后是谁？斯蒂芬温！斯蒂芬温不比你屁大多了？Elliot Broidy要拿30亿美元搞我，孙立军、孟建筑、王岐山，康典、马云，杨钥匙兰老公，找班农去要把钥匙兰送给班农去，然后美国当时时任总统Donald Trump。“Miles Guo, Miles Guo，raper ，raper everybody， raper everybody，” 我强奸全世界所有人啊，“给我签那个字啊，Miles Guo rape everybody ，rape everybody。” 班农说：“谁谁谁谁？你再说一遍，Miles Guo，他怎么强奸所有人了？” 你想想当时的画面，是吧。你想想当时伯明，你想想当年的司法部长塞森斯，大早上起来的，七点钟给美国总统做检报，结果这川普拿过来，“哎~把那个文件给我签一下啊。” 那个律师困死，超级好，白宫律师说：“什么？你要签这个？你签了这个你就完了，你就得离开白宫。这是犯罪，你没权利签这个。” 然后说：“哎~~别别别，这是我们最重要的人，你怎么能签这个，你签着就完了。” “是吗？” 他说：“你知道他是你的马拉戈会员吗？” “是吗？” 他都不知道。他说：“他就是那个郭文贵，Miles Guo，你要签的这个强奸everybody的人，就是那个Miles Guo。” 斯蒂芬温、Elliot Broidy，Elliot Broidy的老婆律师，海根巴森，司法部副部长等，还有是华尔街什么Blackstone，你去想想全人类多牛啊，PAG算个鸟毛啊他算个。当时把七哥也没撂倒，你去想想当时啊，当时给欧洲的人打电话，给中东的某国家打电话说，只要你把郭文贵给我弄回来，一切交易可谈。所以说兄弟姐妹们，到今天你在看，共产党在美国是在全世界干什么？他完全不尊重游戏规则，而且在尝试改变一切国际上已存在的法律和游戏规则。
+其后果是：高盛为其所扮演的角色道歉，并支付了50亿美元的罚款，但罗杰·吴是唯一一位因1MDB案而在美国受审的高盛银行家。整个活动的主使，马来西亚富豪刘特佐(Jho Low)仍然在逃，有传言说他躲藏在中共国。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+**简评**：
 
-**关注我们**
+马来西亚一直受中共全方位的渗透、掌控。中共利用自身大国的优势，收买，控制马来西亚政府官员，然后将中共在墙内的一套搬到马来西亚，窃取马来西亚人民的财富。郭文贵先生曾爆料，1MDB的创始人刘特佐(Jho Low)，就是前中共国中央政法委书记孟建柱的私生子。孟建柱通过自己控制中共国政法系统的权力，让其私生子刘特佐通过成立1MDB将马来西亚打造成自己私人帝国。这是中共向海外传播中共的主义、侵蚀、掌控世界的一种形式。当事情被揭露后，1MDB被全球调查，而刘特佐作为整个案件的核心，却跑到中共国躲藏，受到政府官方机构的保护。而且据说他住在上海最豪华的酒店，由武警保护，还日日当新郎，夜夜入洞房。作为中国人，我感到可悲。孟建柱作为中共高官没有为中国创造一分价值，而全中共国人的纳税钱，却要为他的私生子、一个外国人，支付酒店的各种昂贵的费用，派遣专门人员保障他的安全，为他找小姐买单。杨改兰如果能得到他万分之一的待遇，她的悲剧就不会发生。中共就是吸附在中共国人身上巨大的寄生虫，只有灭掉中共，中国人才能拥有健康，世界才能重回正轨。
 
-Discord 账号
+新闻链接: [https://www.morningbrew.com/daily/stories/2022/02/13/the-1mdb-scandal-goes-to-trial](https://www.morningbrew.com/daily/stories/2022/02/13/the-1mdb-scandal-goes-to-trial)
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+翻译/简评: kkoto(芬兰大灰狼)
 
-Gettr 账号
+PR：Julia Win
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

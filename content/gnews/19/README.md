@@ -2,44 +2,31 @@
 ---
 
 
-## 特鲁多援引《紧急状态法》应对大卡车抗议活动
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2005811/)
+## 七哥谈安保
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2005847/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+文编：Hima
+听写：叮叮
+视频：七哥
 
-翻译/编辑：文泓
+2022-02-11直播摘录08：33：11
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/1-150.png)图片来源：CBC
+给大家说到的，你一定、大家一定、大家要记住，我去日本去英国，它不是我一个人说了算，没经美国政府还有我的安保团队，律师团队，绝对的保证下都不可能。哎~俄罗斯跟中国那么好，俄罗斯在英国是最大势力了吧，几个哥们给我说：“Miles你要来了英国，我的所有安保团队全是你的，而且我这几个城堡啊，最好的城堡这个房子全部都是送给你，或你长期用啊，那绝对是安保的。” 我说：“我最担心就是你老板把我给毒了，我上你家去，我还不如直接吃他得了，甭去了。” 是吧，我说：“我才不会去呢。” 结果人家这哥们说了句话，他说：“我们非常清楚你到哪去都在美国、安全保护范围内，这个世界上只有人心的人，都希望你安全。” 所以说再次说，七哥的安全真不仅仅是爆料革命的事。七哥打开沼泽地UBS这一枪之后，那是多大的事啊，你想想，被沼泽地给学习的人那是多少人呢，是吧。还有美国的正义人士，加拿大的正义人士那有多少呢？你想我一说去英国，英国那M16也好，M15，多少咱的兄弟姐妹啊，多少年的关系啊。七哥是帮助英国和中共在24小时恢复建交的人，你想到我是功臣吧，共产党的一级勋章我不要，在英国的给我的荣誉我还是想要的，是吧。因为它有用，共产党那个是侮辱，对吧。所以说兄弟姐妹，包括日本，日本，你知道日本的内部勋章最高是什么吗？大家知道吗？最高的勋章七哥是有的，所以说你们绝不用担心，绝不用担心啊。我先说这段，现在咱做PPT。
 
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-当地时间2月14日，加拿大总理贾斯汀·特鲁多宣布，他要在加拿大历史上首次援引《紧急状态法》，该法赋予联邦政府额外的权力，处置正在进行中的抗议疫苗强制的大卡车运动。
+**关注我们**
 
-特鲁多在周一下午的新闻发布会上说，这些措施将具有地域针对性，“与它们要解决的威胁合理性相匹配”。
+Discord 账号
 
-他声称，《紧急状态法》的空前部署给了警方更多的手段和工具，在公众集会构成非法和危险活动的地方恢复秩序，如封锁和占领。特鲁多说，该法还将使加拿大皇家骑警能够在必要时拥有更大的执法权力。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-特鲁多说，援引该法案还将使政府能够确保提供基本服务——如移除卡车的拖车服务。联邦政府还将追查与车队抗议有关的非法活动的财政支持。
+Gettr 账号
 
-目前车队组织者已经筹集了数百万美元。他们首先通过GoFundMe众筹网站筹集资金。当GoFundMe关闭筹款活动时，组织者转向基督教众筹网站GiveSendGo。
-
-财政部长克里斯蒂亚·弗里兰说，根据《紧急状态法》，**众筹平台和他们使用的支付服务提供商必须在国家金融情报机构加拿大金融交易和报告分析中心（****FINTRAC****）登记，他们还必须向****FINTRAC****报告大额和可疑的交易。**
-
-“我们之所以做出这些改变，是因为我们知道这些平台被用来支持非法封锁和非法活动，这对加拿大经济造成了损害。”
-
-弗里兰说，如果加拿大金融机构怀疑某个账户被用来帮助支持大卡车运动，该机构现在可以暂时停止提供金融服务。“这项命令涵盖了个人和公司账户，”她补充说。
-
-目前，《紧急状态法》措施仍受《权利和自由宪章》约束。
-
-原文链接：[Federal government invokes Emergencies Act for first time ever in response to protests, blockades | CBC News](https://www.cbc.ca/news/politics/trudeau-premiers-cabinet-1.6350734)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
