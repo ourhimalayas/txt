@@ -2,16 +2,47 @@
 ---
 
 
-## 【粤语配音】2022年2月14日：共产党荒唐的冬奥会对华人影响巨大
-` MOS香港部` [轉載自GNews](https://gnews.org/zh-hans/2005502/)
+## 美联储将取消对完全接种疫苗的加拿大旅行者的抵达前 PCR 检测
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2005507/)
 
-紐約香草山-香港部
+作者：Nicole Bogart
+翻译：KK
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-206.jpg)
+一位政府高阶人士告诉CTV新闻，联邦政府即将取消针对已经完全接种疫苗的加拿大人，回国时无需再提前做PCR测试。
 
-这个谷爱凌母女事件和北京冬奥会，还有全世界都在瞪大了眼睛，在等待着俄罗斯和乌克兰(开战)，然后金融市场，你看看今天的场外交易，你看看今天的整个的大幅的经济动荡，包括大家都看到各国政府都紧张死了，因为疫苗灾难，在全世界上这个火已经开始了，还早着哪战友们。
+目前，任何到国外旅行的人，在返回加拿大之前必须提供PCR阴性测试的证明。该测试必须在预定的航班出发或抵达陆地边界的前72小时内进行。
 
-加拿大、法国、澳大利亚，大家看到疫苗灾难最受害的是以色列，然后就是最夸张的澳大利亚，然后是加拿大，是吧，然后是法国，大家也要看到，也是在这些文明的国家老百姓奋起反抗，是不是文明，文不文明不是你哪个政府说了算的，是整个全世界人民作出评价，就世界上老百姓发声的，还是在这些文明的国家，如果中国老百姓能说话，中国人的智慧要打开，中国人的智慧真如海，真的智慧的水会把一切灾难冲掉，就不会有这么多锁链女，也不会有那么多悲剧，也不会那么多杨改兰，也不会有今天让全世界笑掉大牙的所谓的冬奥会，也不会有谷爱凌母女。
+CTV新闻已经证实，渥太华将在本月底取消这个要求。加拿大人将被要求仅出示抗原测试阴性的证明，而不是PCR测试，这一新规定与美国类似。
 
-一个国家找出一个在全世界人民面前，在摄像机面前找出了一个，不允许有一国两护照的中国政治下的，拥有美国护照又登记到中国，为中国去夺奥运金牌的，这种荒唐的游戏，丢尽了中国人的脸，而且把海外华人跟全世界对立起来，情何以堪，危机和危害会无法消除的长远的影响，你们想过吗？这帮流氓这帮王八蛋，共产党和共产主义不灭，世界没有安宁。
+卫生部长Jean-Yves Duclos周五表示，联邦政府将在下周宣布关于加拿大边境的疫情新规。
+
+自12月中旬出现COVID-19的Omicron变种病毒后，联邦政府建议不要进行非必要的国际旅行。
+
+入境加拿大的外国公民，以及在加拿大境内乘坐飞机、客运列车或船只旅行的人，必须接种疫苗。
+
+Duclos在一次新闻发布会上说，新一轮Omicron疫情最严重的时候已经过去，政府将”继续调整”相应的措施。
+
+首席公共卫生官Theresa Tam博士也表示，正在评估最新的旅行政策。
+
+由于Omicron的传染性，Tam说很难在边境阻止病例传播入境，并防止受感染的人将病毒传染给其他人。
+
+加拿大的新病例数量已经下降到每天约11,000例，但这一数据是在限制仅对高危人群进行检测的前提下得出的。
+
+来源：https://www.ctvnews.ca/health/coronavirus/feds-to-eliminate-pre-arrival-pcr-testing-for-fully-vaccinated-canadian-travellers-source-says-1.5778453
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
