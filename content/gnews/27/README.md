@@ -2,22 +2,29 @@
 ---
 
 
-## 因拒绝接种疫苗 德约科维奇可能不参加法网和温网
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2007838/)
+## 印度政府再次下令禁止 54 款中共国应用程序
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2007817/)
 
-撰稿：东京樱花团/asket
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1486.png)[**图片来源**](https://apnews.com/article/novak-djokovic-coronavirus-pandemic-sports-health-tennis-66cc7243140ee6e6b78ffb9448d74763?utm_medium=AP&amp;utm_source=Twitter&amp;utm_campaign=SocialFlow)
-伦敦（美联社）报道，诺瓦克·德约科维奇在周二14日播出的采访中说，如果需要接种中共病毒（新冠病毒Covid-19）疫苗才能参赛，他准备跳过法国公开赛和温布尔登公开赛。
+**By:秘翻新闻**
 
-这位20次大满贯冠军在接受BBC采访时说，他没有接种疫苗，并补充说，错过接下来的两场大满贯和其他比赛是“我愿意付出的代价”。
+***2022-02-15***
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8-13.png)图片源于:路透社
+据《印度时报》2月14日报导，印度联邦政府已发布新命令，禁止超过 54款中共国应用程序，称其对印度人的隐私和安全造成威胁。其中包含2020 年就在印度被禁的重命名版本，基本属于腾讯、阿里巴巴和网易等大型中共国科技公司所开发。
 
-“我明白我的决定的后果，”德约科维奇说。“我明白，今天没有接种疫苗，你知道，我目前无法前往大部分的比赛。”
+印度电子和 IT 部发布了最新的禁令，理由是这些应用程序将印度人的隐私数据上传到中共国等外国的服务器上。一位官员表示， 根据 2000 年的《信息技术法》第 69a 条行使权力，将54 个中共国应用程序禁止通过印度的谷歌PlayStore 访问。
 
-信息来源： [**Unvaccinated Djokovic could skip French Open, Wimbledon**](https://apnews.com/article/novak-djokovic-coronavirus-pandemic-sports-health-tennis-66cc7243140ee6e6b78ffb9448d74763?utm_medium=AP&amp;utm_source=Twitter&amp;utm_campaign=SocialFlow)
+一位高级官员还表示，腾讯和阿里巴巴旗下的许多应用程序已经转手以隐藏所有权。它们也被托管在香港或新加坡等国家/地区，但数据最终会发送到中共国的服务器。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+印度政府以维护印度的主权和完整性、印度的防御、国家安全和公共秩序为初衷发出此禁令。自 2020 年 6 月以来，印度政府已从第一轮约 59 个应用程序开始，共禁止约 224 个中共国应用程序。
+
+新闻来源[**https://economictimes.indiatimes.com/tech/technology/union-government-issues-fresh-orders-to-ban-over-54-chinese-apps/articleshow/89551062.cms **](https://economictimes.indiatimes.com/tech/technology/union-government-issues-fresh-orders-to-ban-over-54-chinese-apps/articleshow/89551062.cms)
+
+(秘翻新闻 二丫、文洋 编译报导)
+
+发布 ：恩典
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMAGE-2021-12-13-113746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
