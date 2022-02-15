@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/15/2022 10:31 PM (UTC)`
+
+2/15/2022 Miles Guo’s GETTR: Xi Jinping is about to show up after disappearing for eight days. So, people of Taiwan must be very careful. The CCP has turned the Winter Olympics into an international joke. Although the CCP makes life difficult for everyone, it will soon be taken down. Don’t be fooled by the Grand Overseas Propaganda Campaign, which is the tool for the CCP to maintain its rule.<br/><br/>2/15/2022 文贵盖特：习太阳消失8天后将露面，请台湾同胞务必小心；中共把冬奥会开成了国际大笑话；让所有人都过不好的中共马上就要被灭；大外宣是中共维护统治的工具，千万别上当<br/>
+![img](https://media.gettr.com/group32/getter/2022/02/15/22/b4180361-e66f-60b6-1ea3-e6fde903f33e/out.jpg)
+
+---
+
 `@miles 2/15/2022 7:08 PM (UTC)`
 
 2月15号：无法无天罪恶深重……中国共产党必须被消灭！
@@ -146,15 +153,6 @@
 
 2/13/2022 Miles Guo: The COVID vaccine disaster is going to cause major political, military, and economic changes in the world. The CCP, Big Pharma, and those who are pushing the vaccine mandate are all going to be brought to justice. So fellow fighters, please rest assured. The vast majority of the people in the world want to take down the CCP and get to the bottom of the truth about the CCP virus and its vaccines.<br/><br/>2/13/2022 文贵直播：疫苗灾难将导致世界政治、军事和经济大变局；中共、大药厂和推行疫苗强制令的人终将被审判；战友们请放心，世界绝大多数人都要灭共并查清病毒和疫苗的真相<br/>
 ![img](https://media.gettr.com/group33/getter/2022/02/14/02/4915f687-abfe-5e1e-db46-161ce9c31ad7/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@gwave 2/13/2022 11:39 PM (UTC)`
-
-半夜12点，终于完工！<br/>波波新开一个系列节目啦！<br/>《中共盗国集团》系列节目<br/>第一集：美国养老金猎手PAG<br/>PS：这个系列做起来很累，需要大量资料，各位亲爱的战友们多发我有价值的信息，图片文字链接都可以，波波谢过啦🙏🙏🙏
-![img](https://media.gettr.com/group21/getter/2022/02/13/23/7b47cf9a-a7a0-59f3-388f-dabad0fa9388/out.jpg)
 
 ---
 
