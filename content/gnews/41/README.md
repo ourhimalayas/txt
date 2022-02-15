@@ -2,24 +2,24 @@
 ---
 
 
-## NewSGman┃印度决定抵制北京冬奥开闭幕式
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2009293/)
+## 樱花FM┃美国担任APEC主席意在牵制中共
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2009454/)
 
-撰稿：东京樱花团/NewSGman
+音频：东京樱花团/战友520
+![](https://lh5.googleusercontent.com/k5fERQ99HKg1bT8fuPj_rwkvqbIwuz7SemMfScTcxPiSxPmelLvoYBJI30HW204VtEb3DM_Vpip9vdsj6cVUarnNZSW6YooUuv_nLTERGOLu3ZqSYz5oJ2VY3SiJzACVgg4_NliK)
+白宫2月10日宣布，美国将在2023年主持亚太经济合作组织（APEC）论坛，担任亚太经合组织主席，以努力加强与亚太地区的联系，并牵制中共在该地区日益增长的经济影响力。
 
-印度决定抵制北京冬奥开闭幕式
+拜登上任以来重新推动印太经济框架的政策，与日本和其他亚太经合组织成员建立共同的贸易和先进技术规则。
 
-圣火传递手争议，中国与印度再生摩擦，这次是在北京冬季奥林匹克运动会，印度对于中国安排曾参与边界冲突的军官传递圣火感到“遗憾”决定不派外交官出席冬奥开幕和闭幕仪式。
+拜登政府于2021年8月竞选主席，但在当年11月举行的APEC峰会上没有当选，之后在成员国间的斡旋下成为下届主席国。这是自2011年欧巴马政府以来，美国首次担任亚太经合组织主席国。
 
-印度外交部发言人阿林丹·巴奇周四对记者说，中方选择将奥运会这样的赛事政治化令人遗憾。印度表示不会派高级外交官参加周五在中国北京开幕的冬奥会开幕式和闭幕式
+亚太经济合作组织成立于1989年，包括日本、美国和中国在内的21个国家和地区，是亚太区内各地区之间促进经济成长、合作、贸易、投资的论坛，为推动区域贸易投资自由化，加强成员间经济技术合作等方面发挥了不可替代的作用。
 
-盖特链接：https://gettr.com/post/psm17v2f1a
+文字版原文：[美国担任APEC主席意在牵制中共– GNEWS](https://gnews.org/zh-hans/1988124/)
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
-
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
