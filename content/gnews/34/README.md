@@ -2,28 +2,32 @@
 ---
 
 
-## 欧盟转向将逐渐抛弃疫苗护照
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2006354/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年2月14日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2006425/)
 
-加拿大温哥华杨帆农场 枫叶快讯
+作者：香草山翻译部
 
-
-
-采编：Spirit                  编辑撰稿：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO.jpg)
 
 
-![A person injects a vaccine into the upper arm of another (no faces visible)](https://static.dw.com/image/60525560_303.jpeg)
-图片来源：dw.com
+![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-13.png)
+校对：Stay文苑
 
-据《德国之声》2月13日报道，欧盟经济专员保罗当天指出，疫苗强制接种政策已成为过去时，目前所有相关的强制措施都将不会在欧盟议会中得到大多数成员的支持。
+编辑：Stay文苑
 
-报道称，由于疫情的危害程度正趋于缓和，整个欧盟因“新冠病毒”感染而死亡和住院的人数也都普遍下降。因此，欧盟高层官员认为各国政府再无理由强推疫苗护照及强制性防疫政策。并表示，欧盟正计划在近期内放宽大部分卫生限制，这已是大势所趋。
+发稿：Stay文苑
 
-校对编辑：硫酸羟氯喹64
+新闻：[https://gtv.org/broadcast/watch/620b0557432ae869226ca17e](https://gtv.org/broadcast/watch/620b0557432ae869226ca17e)
+访谈：[https://gtv.org/broadcast/watch/620b0de9432ae869226cac0c](https://gtv.org/broadcast/watch/620b0de9432ae869226cac0c)
 
-发稿：青青
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar.png)
 
-原文链接：[https://www.dw.com/en/covid-digest-vaccine-mandate-no-longer-necessary-eu-commissioner/a-60760531](https://www.dw.com/en/covid-digest-vaccine-mandate-no-longer-necessary-eu-commissioner/a-60760531)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

@@ -2,20 +2,29 @@
 ---
 
 
-## 意大利外长访问乌克兰和俄罗斯
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2006332/)
+## 欧盟转向将逐渐抛弃疫苗护照
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2006354/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-66.jpg)[图片来源](https://www.arabnews.com/node/1758516/world)
-2月15日时事通信在线消息，意大利外交部官员14日宣布，迪马约外长将于15日访问乌克兰，随后访问俄罗斯。俄罗斯方面也确认，迪马约预计于16日来访。
+加拿大温哥华杨帆农场 枫叶快讯
 
-迪马约14日表示，由于担心俄罗斯军队入侵乌克兰，局势紧张。我们决心向俄罗斯政府传达一个明确、团结和坚定的信息，停止攻击和加剧紧张局势的升级。并且强调，”我们正在与盟友和北大西洋公约组织（NATO）密切合作”，以阻止危机。
 
-信息来源：[伊外相が訪ロへ](https://www.jiji.com/jc/article?k=2022021500196&amp;g=int#:~:text=%E5%A4%A7-,%E4%BC%8A%E5%A4%96%E7%9B%)
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+采编：Spirit                  编辑撰稿：硫酸羟氯喹64
+
+
+![A person injects a vaccine into the upper arm of another (no faces visible)](https://static.dw.com/image/60525560_303.jpeg)
+图片来源：dw.com
+
+据《德国之声》2月13日报道，欧盟经济专员保罗当天指出，疫苗强制接种政策已成为过去时，目前所有相关的强制措施都将不会在欧盟议会中得到大多数成员的支持。
+
+报道称，由于疫情的危害程度正趋于缓和，整个欧盟因“新冠病毒”感染而死亡和住院的人数也都普遍下降。因此，欧盟高层官员认为各国政府再无理由强推疫苗护照及强制性防疫政策。并表示，欧盟正计划在近期内放宽大部分卫生限制，这已是大势所趋。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：青青
+
+原文链接：[https://www.dw.com/en/covid-digest-vaccine-mandate-no-longer-necessary-eu-commissioner/a-60760531](https://www.dw.com/en/covid-digest-vaccine-mandate-no-longer-necessary-eu-commissioner/a-60760531)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
