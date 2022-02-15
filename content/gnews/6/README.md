@@ -2,36 +2,31 @@
 ---
 
 
-## 突发：特鲁多计划援引《紧急情况法》压制自由车队
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2010334/)
+## 真正的墙就是共产党，不把共产党灭了，灭什么墙
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2010428/)
 
-翻译： Jenny Ball
-![](https://assets.gnews.org/wp-content/uploads/2022/02/trudeau.png)`THE CANADIAN PRESS/Justin Tang`
-据接近总理办公室的消息人士透露，总理贾斯汀·特鲁多计划援引《紧急情况法》。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-据加拿大广播公司报道，特鲁多告诉他的核心小组，他将援引从未使用过的《紧急情况法》赋予联邦政府特殊权力，以处理加拿大各地正在进行的自由车队抗议活动。
+2022-02-11直播摘录10:41:31
 
-该立法旨在取代《战争措施法》，该法将国家紧急状态定义为“紧急和危急情况”，即：“严重危及加拿大人的生命、健康或安全，其程度或性质超出了一个省的处理能力或权力。”
+你们就把Action、action行动、行动给忘了。我们去伦敦，去日本是灭共去了，在日本怎么让国内听到声音？当然七哥有办法，我防火墙千万别想像，共产党在就永远有防火墙，防火墙不是物理化防火墙，它是一个意识形态，它是一个国家恐怖主义的防火墙，防火墙根本没不存在。就像谷爱凌说的，你上谷歌、上苹果上下载一个VPN就可以翻墙了吗？这话都说了，你觉得她说的话不是真的吗？是真的，真要想翻墙不存在墙，是中国人心里边、精神上那个墙。谷爱凌就是在国内呢，你都相信这种事情，那有墙吗？墙在你心里边，在你脑子里边，真正的墙就是共产党，不把共产党灭了，灭什么墙？！战友们别天真，别天真，别天真，我听到你问这问题的时候，我就着急呀，着急呀，谢谢。
 
-该法案如果被援引，将赋予联邦政府 30 天的特别权力，以禁止公众集会、旅行和使用特定财产。它将允许渥太华指定受保护的地方，并迫使私营拖车公司为该市提供服务。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-这将是自特鲁多的父亲皮埃尔·埃利奥特·特鲁多 (Pierre Elliott Trudeau) 于 1970 年援引《战争措施法》来应对魁北克的十月危机以来，该法案首次实施。
+**关注我们**
 
-据报道，特鲁多周一上午在自由党核心小组的会议上表示，没有部署军队的计划。此举是在联邦内阁和事件响应小组周日召开会议之后进行的。
+Discord 账号
 
-周日晚些时候，特鲁多在推特上表示，事件响应小组讨论了“政府可以采取的进一步行动，以帮助结束封锁和占领。”
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-同一周日，应急准备部长比尔·布莱尔在“Rosemary Barton Live”节目中表示，联邦政府已经讨论过援引紧急权力来应对渥太华的抗议活动。布莱尔将援引《紧急情况法》的态度描述为“适当的谨慎”。
+Gettr 账号
 
-**参考资料：**[rebelnews][BREAKING: Trudeau plans to invoke Emergencies Act to deal with Freedom Convoy protests](https://www.rebelnews.com/trudeau_plans_to_invoke_emergencies_act_to_deal_with_freedom_convoy_protests)
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-2.jpeg)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
