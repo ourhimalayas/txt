@@ -2,10 +2,10 @@
 ---
 
 
-## 无耻中共喉舌高志凯：彭帅身材高大，不可能被张高丽性侵
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2007625/)
+## 加拿大退伍军人呼吁所有退伍军人站出来为自己的国家而战
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2007693/)
 
-02/13/2022 中共喉舌高志凯厚颜无耻地声称彭帅身材高大所以不可能被张高丽性侵
+02/13/2022 加拿大退伍军人呼吁所有退伍军人再次站出来，为自己的国家而战
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
