@@ -2,35 +2,20 @@
 ---
 
 
-## 有声|美国紧急撤离基辅大使馆，俄乌大战在即的警钟
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2009143/)
+## 2月11日晚法国足球运动员埃玛努埃尔•吉拉尔多特在一场足球比赛中突感不适死亡
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2009221/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据外媒报导，继美国总统拜登10日通告所有美国公民「马上撤离乌克兰」后，美国务院也担心俄军会在「冬奥闭幕前」攻打乌克兰，所以决定启动「终极应变」，预计周六清晨就会正式对美国驻乌克兰大使馆下达「紧急撤退令」，此举被视为是等同于「大战将至」的最高规模示警。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/164486174969272_P15977057.jpg)
-报导中也提及，美国此一预测与盟邦所掌握的证据一致，就连先前对俄乌危机持相对保守态度的德国军方，也反常态的提出警示：美方的情资，这回非常可信而骇人。
+#### 翻译 /简评                     意大利达芬奇农场                    小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-15-alle-11.30.11.png)图片来源：eventiavversinews.it
+埃玛努埃尔•吉拉尔多特是Fc Fontcouvert 队的一名足球老将，他同时还是一名体育老师。2月11日晚在一场足球比赛中突感不适。 在开场后的15分钟，吉拉尔多特心脏骤停，虽经经医生救治，但他没有活过来，刚到医院就离开了人世。
 
-同时，俄乌大战在即的警钟，对于中共是否会趁机发动台海危机，应保持高度警戒，不容轻忽。
+吉拉尔多特所在的Fc Fontcouverte 球队2月12日在其社交网站上宣布了他死亡的消息。“ FC Fontcouvert 球队怀着悲伤的心情宣布埃玛努埃尔•吉拉尔多特于昨晚去世。他是俱乐部的老球员，昨天在一场球赛中他突感不适。俱乐部向他的家人和亲人们致以慰问。”
 
-文字版原文：[美国紧急撤离基辅大使馆，俄乌大战在即的警钟](https://gnews.org/zh-hans/2006481/)
+简评：每个星期我们都能读到或看到球员去世的消息，但是在报道中没有提球员是否接种了新冠疫苗。太多的心脏骤停，太多的年轻健康的运动员“突感不适”。还会有多少年轻健康的生命会突然逝去？
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+原文链接：[https://www.eventiavversinews.it/francia-muore-colpito-da-malore-improvviso-venerdi-sera-11-febbraio-durante-una-partita-il-calciatore-emmanuel-girardot-rinviate-per-lutto-tutte-le-partite-del-weekend-nella-provincia/](https://www.eventiavversinews.it/francia-muore-colpito-da-malore-improvviso-venerdi-sera-11-febbraio-durante-una-partita-il-calciatore-emmanuel-girardot-rinviate-per-lutto-tutte-le-partite-del-weekend-nella-provincia/)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+编辑、上传： Xiao   baige
 
  
 

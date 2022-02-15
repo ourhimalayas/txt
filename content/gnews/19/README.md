@@ -2,39 +2,28 @@
 ---
 
 
-## 有声|疫苗未能降低感染 引发其它病症死亡率上升
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2009077/)
+## 有声|PAG美国养老金猎手
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2009197/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月11日，《疫苗后遗症》的导演长尾和宏医生和主创鸟集彻记者，在首映后的交谈中，讲述了中共病毒疫苗异于常理的怪相，以及造成死亡率上升的后果。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E6%88%AA%E5%B1%8F2022-02-14-%E4%B8%8A%E5%8D%8811.21.27.png)
-首先，中共病毒疫苗与人们的常识相反，表现在未接种人群害怕接种人群传播病毒，接种人群实际上是感染源头。而这一点早在去年日本引入疫苗之前，国立感染研究院等机构就已经明确指出疫苗所造成的ADE效应，会让接种人群更容易感染。
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+2月13日，郭文贵先生盖特转发的视频消息，据公开可查询信息，从2018年到2020年间，PAG从美国各州养老基金获得了近15亿美元。但由于各州的法律保护，许多投资与私募基金的持股免于被披露，因此，呈现出来的仅是冰山一角。
 
-其次，中共病毒疫苗没有降低死亡数字，反而在大规模接种后出现死亡率上升的趋势。而日本2021年的人口相比2020年减少了6万人，也佐证了这个观点。对此长尾医生解释道，疫苗会降低整个人体的免疫力，使接种人群更容易诱发其他疾病。
+据悉，PAG董事长单伟建，是中共正部级间谍，隶属于具有最高保密级别的六局，直接向中共常委汇报工作。其从美国养老基金获取资金的PAG，表面上是一家注册在香港的投资公司，但每一步都是为王岐山执行盗国计划，通过与邪恶资本集团共同运作，也将包括美国公共养老基金在内的巨额资金藏匿在全世界。
 
-第三，因奥密克戎变种带来的感染峰值已经过去，现在推行加强针来降低感染的理由，已经失去了现实支撑。
+文字版原文：[PAG美国养老金猎手](https://gnews.org/zh-hans/2006011/)
+音频处理/发稿：Daxia
 
-同时，长尾医生在演讲的最后，希望民众能发出自己的声音，推动日本“小儿科”学会阻止3月份即将开始的对5-11岁儿童甚至6个月以上婴儿的疫苗接种。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-文字版原文：[疫苗未能降低感染 引发其它病症死亡率上升](https://gnews.org/zh-hans/2004588/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+据信息显示，2020年，PAG的规模已经接近700亿美元，能查到的美国公共养老金投资与中国市场的公开信息，仅占总量的一少部分。消息称，PAG代表中共高官家族势力，布局全球并与华尔街亲共资本大鳄，通过一系列投资并购幕后交易、贿赂而渗透到全世界经济体，也是中共给西方自由世界埋下的经济炸弹。 至此，中共间谍单伟建的欺诈活动已经像癌症一样扩散到整个世界经济体；最终，将拖垮全世界。
 
  
 

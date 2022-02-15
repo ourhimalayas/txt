@@ -2,34 +2,28 @@
 ---
 
 
-## 樱花FM┃新闻述评：俄罗斯花滑冠军服兴奋剂被北京豁免
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2009341/)
+## 有声|大卡车运动源自香港反送中运动
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2009474/)
 
-音频：东京樱花团/战友520
-![](https://lh6.googleusercontent.com/YcQtE_4XpBo9KzROyX6O-_0FIYeOfArEWQDiKGOCtG_kQ9R37KVcwQpHLy-8sEO1O0y9YdVzv7X1wIcI6d0HfWzY11GTNfkLVGcWnMs37bvtLRRvcG-ReCu9sBwTZE5-QhX9KRo5)
-**北京冬奥会在兴奋剂检测和制裁方面区别对待俄罗斯和伊朗等国。在习近平对俄罗斯单方面依赖的所谓同盟关系上，兴奋剂制裁似乎和俄罗斯运动员无关，而且本届俄罗斯运动员因兴奋剂制裁仍在禁赛有效期内，却奇怪地可以参加北京冬奥会。**
+配音：香草山巡管部– 文凯琳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月13日，郭文贵先生在大直播中谈到，加拿大和法国的大卡车运动，起源于他在2019年给香港反送中运动的建议，爆料革命是世界大卡车运动的发起人。
 
-据[德国图片报](https://www.bild.de/sport/olympia/olympia/olympia-2022-trotz-doping-bei-kamila-valieva-russen-behalten-gold-79105166.bild.html%0a%0a)10日下午消息，本周三，北京得知花样滑冰团体赛的获胜队伍中有运动员被指服用兴奋剂。周四，俄罗斯媒体提供了这名年仅15岁运动员的名字：卡米拉·瓦列娃（Kamila Valieva）。
+2019年6月13日，郭先生在直播中提议香港大客车、大卡车和私家车上街，阻止中共解放军和假警察入侵香港。
 
-据报道，瓦列娃在比赛前进行的兴奋剂测试显示为曲美他嗪，一种治疗心绞痛的药物，自2015年以来该药一直在兴奋剂名单上。整个律师团队都在狂热地讨论这次测试的后果，但俄罗斯报纸《Championat》报道：瓦列娃不但不会被禁赛，而且还可以保住金牌。对此，中共国官媒只字不提，而中国足球部落自媒体证实了“[俄罗斯花滑官方回应兴奋剂传闻：瓦利耶娃没有被暂停比赛](https://k.sina.cn/article_6507359464_183de6ce8001011b20.html%0a%0a)”。
+文字版原文：[大卡车运动源自香港反送中运动](https://gnews.org/zh-hans/2004658/)
 
-据悉，法律团队设法推翻对瓦列娃暂停的决定，表示”该决定仍然可以上诉到瑞士洛桑-国际体育仲裁院（Cas Sports Court）。
+音频处理/发稿：Daxia
 
-有关俄罗运动员屡次服用兴奋剂，被国际媒体一次又一次地大做文章却屡次否认。但俄罗斯运动员终究被禁赛了，因为和北京的特殊关系，本届冬奥会俄罗斯运动员以俄罗斯国际奥林匹克的团体名义参加，而非代表俄罗斯，在名义上避免了被制裁而获准参赛。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-俄罗斯运动员自2018年以来已是系统性触犯国家兴奋剂条例，国际体育界已经对俄罗斯失去了所有信任，但北京包容了它。
-
-北京声称本届冬奥会首例兴奋剂检测报告异常的是[伊朗高山滑雪运动员](https://www.foxsports.com.au/beijing-olympics-2022/iranian-alpine-skier-hossein-saveh-shemshaki-tests-positive-to-steroid-amid-olympic-drug-drama/news-story/7059a7c69e68cae1fd8ac4bf66aa758d)，而非俄罗斯。中共国新华社10日消息称，北京冬奥组委9日深夜连同国际检查机构（ITA）发布报告称，一名伊朗男子高山滑雪运动员兴奋剂检测结果异常，称这是首例兴奋剂异常案例。
-
-对兴奋剂仲裁问题，北京声称邀请了国际大牌，当今世界反兴奋剂机构的最高领导层——主席维托尔德·班卡、副主席杨扬和总干事奥利维尔·尼格利”。他们接受了中共国新华社专访。班卡称赞了北京，他认为“北京冬奥会的赛前检查是历届冬奥会规模最大的。随着兴奋剂“入刑”，中国治理兴奋剂的法律法规愈加规范完善。但班卡先生接下来透露：“只有通过与各国政府的良好合作，我们才能加强反兴奋剂工作。”
-
-世界反兴奋剂机构的最高领导维托尔德·班卡主席上述讲话表明，本届冬奥会反兴奋剂检测只有通过北京政府的合作才能有效开展，这再一次证明中共反人类政权对国际体育仲裁机构的控制如同控制世界卫生组织掩盖病毒真相一样，完全无视国际规则，践踏了国际奥林匹克精神，再次让世界看清中共政权的存在只能对国际文明秩序带来侵害而非建设性。
-
-文字版原文：[https://gnews.org/zh-hans/1988623/](https://gnews.org/zh-hans/1988623/)
-
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

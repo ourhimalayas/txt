@@ -2,28 +2,22 @@
 ---
 
 
-## 有声|北京冬奥会假骗震惊世界
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2009088/)
+## 樱花FM┃戴不住了 美国多州宣布放宽口罩令
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2009198/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月11日，郭文贵先生在大直播里，再次揭露中共在冬奥会造假的事实。
+音频：东京樱花团/战友520
+![](https://lh6.googleusercontent.com/n3vv84AEqYf02A6BCdk1dKwJZnSN0x7yEF8pHpvUbBE0H2blZ4Y0D3ZjL-6dAh4DJlfK1eUkYtY9dDUj2xp8e4ttwkd5r0H7QCiIV1fKmfJy1BvoAfCExzj6AUM50B9g7OlJDJP6)
+历经因变种病毒奥密克戎（Omicron）造成的疫情高峰后，美国确诊数逐渐下降，多个由民主党执政的州认为疫情高峰已过，最近几天分别宣布将解除强制戴口罩的规定。对于是否强制戴口罩，在美国仍是争议议题，全国没有统一规定。许多民主党执政州有颁布戴口罩的命令，许多共和党保守派掌政的州如德州及佛罗里达州则没有强制口罩命令，或早已废除相关规定。
 
-某俄国消息人士向郭先生透露，在开幕式上，现场观众寥寥无几。在普京的坐席附近，他用同样角度，拍的照片背景里毫无人气。但是，中共为了达到宣传效果，公开放出的照片座无虚席，而且还诱使他使用处理过的假图欺骗世界。中共的造假程度令他深感震惊。
+根据官方统计，全美过去7天平均日增23万例中共病毒（Covid-19）确诊病例，较前一周大幅下将47%。有鉴于此，美国多个民主党执政的州政府宣布，即将松绑口罩规定。纽约州州长凯西·霍赫尔（Kathy Hochul）周三（2月9日）表示，将解除在公共场所必须戴口罩的规定，不过在学校则仍须戴口罩。另外，新泽西州州长墨菲（Phil Murphy）也已经宣布，3月7日起学校内无须配戴口罩。随后，包括康涅狄格州、特拉华州和俄勒冈州的民主党州长也各自宣布，他们将终止校内须戴口罩的规定。
 
-文字版原文：[北京冬奥会假骗震惊世界](https://gnews.org/zh-hans/2004562/)
+美联社指出，多个民主党州长过去几天自行松绑口罩的命令，已反映出民众对“走出疫情”的期待与情绪，而对此，拜登政府也正面临政治压力，至今联邦政府与CDC都尚未明确表明任何松绑时间表与建议政策。
 
-音频处理/发稿：Daxia
+文字版原文：[戴不住了美国多州宣布放宽口罩令](https://gnews.org/zh-hans/1984109/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
