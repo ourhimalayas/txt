@@ -2,37 +2,31 @@
 ---
 
 
-## 美元欧元互存，经济崩塌喜币将是最大赢家
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2006014/)
+## 七哥谈中共的欺骗
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2006044/)
 
-作者：纽约磐石农场 – 在远方
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-在2月13日的大直播中，郭文贵先生表示，美元与欧元之间的关系是相互依存，一触即发的世界大战源于习近平的狂妄无知，而世界经济崩塌之时，喜币将是最大赢家。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-郭先生分析，美元和欧元不存在消灭对方的说法。现在，弱美元对经济有利，美国是最大的受益者。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture1111-1.jpg)
-他指出，中共的疯狂是因为习对国际政治的无知、狂妄，以及中共内部相互欺骗所导致的。就像中共给习汇报工作时，欺骗他说，“普京称冬奥会是一场绝美绝妙的盛会”。这是一种国际政治欺骗，给完全被洗脑的中共国老百姓，营造出一个集体性、自杀性的结果。
+2022-02-11直播摘录09：15：11
 
-他认为，中共的疯狂会被俄罗斯彻底利用，赢家是俄、美，被消灭的则一定是中共，欧洲也会因此而重生。在此过程中，和俄罗斯有关的金属产业，价格都会暴涨。金融市场也会暴跌暴涨起伏剧烈，虚拟货币将是大赢家。
+咱们那个哥们儿给我讲一个，他说：“你说现在在党内在想啥啊？这还用说吗？这事儿少吗？天天都在发生啊！我们从来没承诺、从来没对外说中国没有贩卖妇女的 ，贩卖妇女是常态呀。而且现在很多人在批评习近平，你们真的要公平地说，这个女孩24年了被绑架，锁链24年，横跨江泽民、胡锦涛、习近平，这事儿不是习近平干的，是江泽民、胡锦涛干的。” 你觉得这事儿没报道过吗？我告诉你这个女孩儿的事情在当地就被报道过，谁压下的？当年就有报道过，差点儿就找着了，包括寄出去的信，寄到这个女孩儿家里的信，信被给拿掉了，谁拿掉的？这里边儿的意思大了去了！一，全党作案；第二，横跨三代24年；第三，这里边儿充满了迷信、祭祀、掩盖政治、相互欺骗，然后这次被爆出以后，又演了一把互相骗中央、中央骗地方、地方互相骗，然后篡改名字、篡改故事。所以说这个国家，你发现咱刚才说的这一切的话，就跟着两件事儿，发现了吗？假，就是假，一切都是假的；第二就骗，一切都是骗。中国人这个假，你能想到路大脑袋、蛇妖闫，小手儿，路大脑袋小手，九指“咔”来了，是吧？“上帝呀，我代表上帝呀，我给你自由啊，我要开傻币呀！” 然后 “绿帽子”塞林爹，“70天就来啦，拯救全人类啦” ，然后美国的什么这部队…… 他连美国部队的毛儿都没摸着过。还有就是蛇妖闫：“我就代替爆料革命啦，10个鸡蛋，不行给你炒10个鸡蛋，不行变俩鸡蛋”；还有那什么什么从不露脸的癌症丽，还有那个找爹博。而且中国人信这一套，最可怕的是中国人信这一套。
 
-郭先生强调说，尤其是当国家主权认可、大额投资进入、HPAY全面使用这三条具备，再加上接下来的“使用即金钱”的躺平币，都说明喜币将是最大赢家。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-参考链接：[美元欧元互存，经济崩塌喜币将是最大赢家](https://www.gettr.com/post/pudtie436f)
+**关注我们**
 
-![This image has an empty alt attribute; its file name is calendar.png](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
+Discord 账号
 
-总编：DM
-编辑：DM
-校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+Gettr 账号
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

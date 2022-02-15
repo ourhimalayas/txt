@@ -2,40 +2,31 @@
 ---
 
 
-## 有声|共产党对北京冬奥会全面失控
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2006310/)
+## 土豆正式宣布启动国家紧急状态
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2006325/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在2月11日的大直播中，郭文贵先生谴责中共在大庭广众之下把北京冬奥会办成了一场欺骗奥运会。但这些欺骗手段已逐步被国际社会看清，而一个清醒的世界将越来越远离中共，中共对冬奥会实际上已经失控，不可能再达到自己的目的。
+2022-02-14
 
-首先，北京冬奥会的假雪是众所周知的欺骗，谷爱凌在拥有美国国籍的前提下代表中共参赛，这种欺骗已经是对国际体育规则的极度破坏。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-32.jpg)
-另外郭先生还爆料，俄罗斯一位在冬奥会现场的朋友，亲眼看到北京冬奥会现场没有观众，并拍摄了照片。中共政府要求俄罗斯报道一下冬奥会，且不允许使用别人拍摄的现场没有观众的照片，而是亲自给提供了同样角度，但现场坐满观众的照片。
+翻译：Elli
+![](https://assets.gnews.org/wp-content/uploads/2022/02/T9T@XCQL7GP9TY26A18.png)图片来源：https://rumble.com/
+加拿大特鲁多总理援引《战争措施法》的后续《紧急情况法》来平息加拿大的卡车司机抗议活动。特鲁多补充说：“我们将永远捍卫加拿大人和平集会和言论自由的权利，但这些封锁是非法的……现在是回家的时候了”。他昨天召开紧急会议宣布为了应对全国性的抗议活动，要启用以前从未用过的国家紧急状态法。
 
-中共的黑社会欺骗手段还包括收买冬奥会现场的所有官员和裁判。在有摄像头有比赛规则的情况下，这些被中共收买和威胁的裁判们肆意破坏体育比赛的公正性，乱判成绩。
+这可能意味着土豆政府可以强行征用拖车公司的车去拖走卡车。大卡车司机会因此退让吗？了解这些朴实，吃苦耐劳，骨子里不服输卡车司机的人会告诉你“不”。一旦有任何强硬措施执行，只会引来更大的反弹。
 
-国际奥委会的某位官员说，以后再不会有任何一个奥委会的官员会相信共产党，并再和共产党合作了。
+加拿大民众可能从四面八方赶来支援，边境口岸的一些人民应该学会打游击战了：军警来了就散去，走了再给堵上。加上加拿大军队不支持土豆的行动，美加边境线RCMP前线警员消极守岗，各省比较消极的在配合上级指示；渥太华会有更多点儿聚集，驻守人会增加相信胜利必然在和平，清醒和理智团结中不期而至。
 
-文字版原文：[共产党对北京冬奥会全面失控](https://gnews.org/zh-hans/2002756/)
+律师Tricia Lindsay今年在反疫苗强制令的演讲中提到美国宪法的基础的低级长官信条(Doctrine of Lesser Magistrate)， 清楚指明公民抗命抵制暴政是责任和义务。当暴君把魔爪申向我们下一代时，我们有义不容辞的责任为保护下一代而应战。 民不畏死，焉何以死惧之？
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+参考链接：[https://t.me/disclosetv/6910](https://t.me/disclosetv/6910)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[https://rumble.com/vuvjja-51860134.html](https://rumble.com/vuvjja-51860134.html)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+编辑：LILY
+发布：肥鯮
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
