@@ -2,42 +2,37 @@
 ---
 
 
-## 魁北克政府今天下午宣布撤销疫苗护照的时间表
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2010074/)
+## 突发：特鲁多计划援引《紧急情况法》压制自由车队
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2010334/)
 
-**编译及评论：16626**
+翻译： Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2022/02/trudeau.png)`THE CANADIAN PRESS/Justin Tang`
+据接近总理办公室的消息人士透露，总理贾斯汀·特鲁多计划援引《紧急情况法》。
 
-y**图片来源：截屏于**[**https://www.tvanouvelles.ca/2022/02/15/vers-un-assouplissement-du-passeport-vaccinal**](https://www.tvanouvelles.ca/2022/02/15/vers-un-assouplissement-du-passeport-vaccinal)
+据加拿大广播公司报道，特鲁多告诉他的核心小组，他将援引从未使用过的《紧急情况法》赋予联邦政府特殊权力，以处理加拿大各地正在进行的自由车队抗议活动。
 
-**今天下午宣布撤销疫苗护照的时间表**
+该立法旨在取代《战争措施法》，该法将国家紧急状态定义为“紧急和危急情况”，即：“严重危及加拿大人的生命、健康或安全，其程度或性质超出了一个省的处理能力或权力。”
 
-魁北克政府可能会在今天下午宣布撤销疫苗护照的时间表。
+该法案如果被援引，将赋予联邦政府 30 天的特别权力，以禁止公众集会、旅行和使用特定财产。它将允许渥太华指定受保护的地方，并迫使私营拖车公司为该市提供服务。
 
-宣布撤销疫苗护照的时间表的新闻发布会定于下午 1 点 15 分举行。
+这将是自特鲁多的父亲皮埃尔·埃利奥特·特鲁多 (Pierre Elliott Trudeau) 于 1970 年援引《战争措施法》来应对魁北克的十月危机以来，该法案首次实施。
 
-（撤销疫苗护照）应逐步进行，首先应在超市，魁北克酒业公司（SAQ），和魁北克大麻公司（SQDC）的所有分支机构终止疫苗护照。
+据报道，特鲁多周一上午在自由党核心小组的会议上表示，没有部署军队的计划。此举是在联邦内阁和事件响应小组周日召开会议之后进行的。
 
-在国家公共卫生主任吕克·布瓦洛Luc Boileau 博士陪同下，卫生部长克里斯蒂安·杜贝Christian Dubé 将出席（宣布撤销疫苗护照的时间表的）新闻发布会。
+周日晚些时候，特鲁多在推特上表示，事件响应小组讨论了“政府可以采取的进一步行动，以帮助结束封锁和占领。”
 
-另外，根据Gnews（2022 年 2 月 8 日）发表一篇题为《萨斯喀彻温将于下周一放弃疫苗护照,[萨斯喀彻温将于下周一放弃疫苗护照](https://gnews.org/1977277/) 》的文章报道，萨斯喀彻温省已经于昨天，周一（2022 年 2 月14日），开始不再需要出示疫苗护照。
+同一周日，应急准备部长比尔·布莱尔在“Rosemary Barton Live”节目中表示，联邦政府已经讨论过援引紧急权力来应对渥太华的抗议活动。布莱尔将援引《紧急情况法》的态度描述为“适当的谨慎”。
 
-还有，Gnews（2022 年 2 月 15 日）发表一篇题为《魁北克省勒戈（Legault）政府拒绝实施《紧急措施法》, [魁北克省勒戈（Legault）政府拒绝实施《紧急措施法》](https://gnews.org/zh-hans/2009639/)  》的文章报道，《紧急措施法》并不一定意味着立即部署军队。加拿大总理贾斯汀·特尔多（Justin Trdeau）称，军事干预是“最后手段”。魁北克省省长François Legault“不希望”看到《紧急措施法》在魁北克领土上实施，他说，联邦的这项决定是“火上浇油”。
+**参考资料：**[rebelnews][BREAKING: Trudeau plans to invoke Emergencies Act to deal with Freedom Convoy protests](https://www.rebelnews.com/trudeau_plans_to_invoke_emergencies_act_to_deal_with_freedom_convoy_protests)
 
-现在，联邦施压实施《紧急措施法》，魁省民众示威抗议反对政府强制实行疫苗护照。魁省的公共卫生行政措施出现什么样的变化？让我们拭目以待。我们谴责并反对暴力示威，反对政府强制实行疫苗护照，更反对政府施加暴力于人民。我们相信魁北克省，乃至全加拿大很快会放弃强制实行疫苗护照。
+* * *
 
-**参考资料**：
+*审核：文乐
+校对：阿伯塔
+发稿：信心的选择*
 
-[Vers un assouplissement du passeport vaccinal?](https://www.tvanouvelles.ca/2022/02/15/vers-un-assouplissement-du-passeport-vaccinal)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-2.jpeg)
 
-**编辑：LILY**
-
-**发布：歪桑**
-
-20220215
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3-4.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
