@@ -2,43 +2,28 @@
 ---
 
 
-## 中共国的改革开放就是把人从猪圈里换到另外一个猪圈里
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2007146/)
+## 中日财经爆┃印度再禁54款中共国手机APP
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2007376/)
 
-G-TV视频链接：[https://gtv.org/video/id=620b19c3b0af02660af3ca60](https://gtv.org/video/id=620b19c3b0af02660af3ca60)
+撰稿：东京樱花团/asket
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1475.png)图片来源于本文链接
+2月14日《印度斯坦时报》（Hindustan Times）报导，印度电子和信息技术部（以下简称信息技术部）表示，已收到内政部（MHA）的请求，要求禁止54个应用程序。该部表示，根据内政部分享的一份报告，这些应用程序要么是克隆版本，要么涉及隐私问题和安全威胁。
 
-**郭文贵先生：**所谓改革开放是啥意思？就让人、就从猪圈里边儿换到另外一个猪圈里边儿，叫改革开放。你没有封锁闭国，你改什么革、开什么放啊？然后又讲了30年，你看共产党没有一次国家元首出访不讲一句话的，“中国将继续改革开放”。然后一没钱了就糊弄中国老百姓，我们将金融打开、国际合作。
+信息技术部表示，这次涉及的54款应用程序被指获得了各种关键权限并收集敏感的用户数据。被收集的实时数据被滥用并传输到位于敌对国家的服务器上。这将使他们能够汇编庞大的个人数据，供那些敌视印度主权和完整的势力挖掘、整理和分析。
 
-欸，亨利小哥你们最有感觉，你听了多少年了你还记得吧，没有一年不讲这故事的。他大爷的，从来私人能有开银行吗？能搞金融吗？就连海通和方正证券，我也只能当二股东是吧？大股东是北京大学李友、王恩哥这帮孙子，海通是江家，这当年的李长春家，朱云来，这是最牛的，是吧？朱镕基，清官，王岐山家。
+“此外，还有其它严重问题，因为其中一些应用程序可以通过摄像头／麦克风进行间谍活动和监视活动，获得定位信息并进行类似于以前被阻止的应用程序的恶意网络活动。据称，这些应用程序从事有损国家主权和完整的活动，也对国家安全和印度国防构成严重威胁。”信息技术部在声明中说。
 
-字幕来源：[2022年1月31日壬寅年新春大直播全文字版（四）](https://gnews.org/zh-hans/1947613/)
+彭博社援引知情人士说，被印度禁止的应用程序包括属于腾讯、阿里巴巴和网易等大型中国科技公司的应用程序，并且是2020年已被印度禁止的应用程序的重塑版本。
 
-编辑整理：Jacques；
+根据印度媒体的报导，本次被禁止的具体应用程序还包括Equalizer & Bass Booster、Tencent Xriver、Onmyoji Chess、Onmyoji Arena、AppLock和Dual Space Lite等等。
 
-字幕文件制作：知津；
+印度之前于2020年6月29日禁止了59款应用程序，随后于2020年8月10日禁止了47款相关／克隆应用程序。此后，2020年9月1日禁止了118款应用程序，2020年11月19日又禁止了另外43款应用程序，总计267款中国应用程序。
 
-视频制作及上传：Cindy；
+信息来源： [**因安全疑虑 印度再禁54款中国相关APP**](https://www.epochtimes.com/gb/22/2/14/n13576448.htm)
 
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

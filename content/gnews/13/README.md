@@ -2,17 +2,28 @@
 ---
 
 
-## 蓝枫法律第39期——漫谈黑客帝国中的矩阵PPT展示- G_TV
-` 加拿大温哥华扬帆农场蓝枫法律` [轉載自GNews](https://gnews.org/zh-hans/2007181/)
+## 北京冬奥耗巨资造出的是与自然雪成分不同的雪
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2007384/)
 
-#### **加拿大温哥华扬帆农场 蓝枫法律**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-154.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/2-63.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/3-43.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/4-33.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/5-23.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/6-16.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/7-17.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/8-12.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/9-13.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/10-17.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/11-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/12-16.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/13-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/14-7.png)
-直播视频：
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1478.png)（图片源自本文链接）
+２月15日消息：继索契80%人造雪和平昌90%人造雪之后，北京100%的人造雪，创最高纪录……电力消耗正在违背气候自然规律……冬奥会成本加大是不可避免的。
 
-[蓝枫法律第39期——漫谈黑客帝国中的矩阵](https://gtv.org/video/id=61e36432a6dfdd603154e027)
+正在进行的北京冬奥会，有史以来第一次使用100%的人工雪。气候变化致使如果没有人造雪，冬奥会就不能举行。而生产人造雪需要大量的水和电，又加剧了气候变化。因此，这是一个正在被重复的恶性循环。
 
-编辑/发文：蓝枫法律栏目
+人工雪的生产涉及巨大的财政和环境成本。中共国仅为冬奥会造雪就花费了1900亿日元（约120亿人民币）外加1.85亿升的水(足以为1亿人提供一天的饮用水)。中共国政府说，计划在奥运会后将雪融化并重新使用，但专家说40%的雪会被蒸发掉。
 
+科学家们说，天然雪和人工雪之间是有区别的。为索契和平昌提供雪的美国SMI造雪公司总裁乔·范德克伦告诉美国网络媒体VOX“机器制造的雪是真正的雪”。然而，加州理工学院的肯尼斯·利布莱希特教授反驳说“人工雪是准确的科学术语”。
+
+在显微镜下可以清楚地看到两种类型的雪之间的区别。人工雪不是由雪的晶体组成的，而是看起来像细小的冰粒。此外，人工雪是由30%的冰和70%的空气组成的，而天然雪是10%的冰和90%的空气。
+
+德克萨斯A&M大学的杰西卡·默弗里教授说：人工造雪机因气候变化而越来越受欢迎，它消耗了巨大的电力，可能会加剧气候变化。生产雪的成本也将增加冬季运动的成本，这种做法与被描述为精英主义的雪上运动更加不对等。
+
+信息来源：[北京五輪には「本物の雪」がない？（ハンギョレ新聞） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/ee5a2266e31e9752b74cfe3d572e39a7c4d893a3)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

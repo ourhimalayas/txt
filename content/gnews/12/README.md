@@ -2,42 +2,38 @@
 ---
 
 
-## 宋祖英买黄永玉50万/尺*百尺的猴戏莲花送给属猴领导
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2007209/)
+## 太平联盟董事长中共间谍单伟建将美国养老基金卖给中共
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2007391/)
 
-G-TV视频链接：[https://gtv.org/video/id=620b1e0db0af02660af3cb60](https://gtv.org/video/id=620b1e0db0af02660af3cb60)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1476.png)中共间谍单伟建（资料图）
+PRFree网站2022年2月14日发布，是时候揭露超过 4000 亿美元的美国公共养老基金由于中共间谍单伟建的欺诈活动而永远地的消失了。
+2022 年 2 月 13 日（美国）：美国一些最重要的养老基金投资了海康威视，海康威视是世界上最大的视频监控系统的供应商，据称其帮助极权主义的中共北京政权迫害中共国西部的新疆穆斯林人口。美国养老基金间接支持了中共大规模任意拘押新疆人。你知道谁负责将美国的养老基金卖给共产主义中国吗？中共高级间谍太平洋联盟集团(（PAG）)董事长兼首席执行官单伟建将美国人民的毕生积蓄卖给了共产主义中国。
 
-**郭文贵先生：**就共产党这个邪恶，亨利小哥我在这跟你说这话的时候，你陪练我不知啥背景，陪谁练哪？他要是过去陪着彭磊练球，嗯，陪练就厉害了是吧？爱德华，你要在国内你要陪着祖英同志，你帮她戴过胸罩，那你这事儿你麻烦大了是吧？现在谁拽过胸罩，郝海东跑了你可跑不了，搞你是吧？不是开玩笑的是吧？
+美国政府和立法者应该调查中共头号间谍单伟建及其太平洋联盟集团对数千万美国人的犯罪活动，即将美国人民的退休基金投资到中共控制的公司。美国是一个拥有民主、自由和人权的模典范国家。尽管如此，美国的养老金还是被用来给关押了一百多万维吾尔人的新疆拘留营所安装监控摄像头。
 
-你去想想亨利小哥，你知道宋祖英一个人身价不是几十亿呀，你主明星唱歌咋唱出几十亿、上百亿，她买黄永玉的画50万一尺，到那儿一画，来个50尺、100尺的，来个《莲花塘》，然后说：“《莲花塘》我送给领导，领导属猴儿的，这莲花咱跟猴儿放在一起啊？” 黄永玉啪啪就写出来了，是不是？“咵咵”写上词：这特么世界已经老了……唉，这特么世界已经变坏了，我也变老了，然后下边署着“猴戏莲花”。哇塞，50万一尺的画宋祖英拿走了，那宋祖英得画成啥呀？她给你写个几百万的画，得给她啥？你如果再拽两次胸罩，东弟再流点儿水，是吧，你想它是啥代价呀？老佛爷、就所谓的江泽民搞了，你说你谁算老几呀？
+单伟建和他的太平洋联盟集团（PAG）利用欺诈性虚假的市场报告和伪造的财务数据，在没有披露对国家安全、洗钱和人权方面尽职调查的情况下，引诱美国投资组合投资者进入对与中共的相关的指数化基金进行索引。例如，佛罗里达州和纽约州的养老基金、加州教师退休基金(（CalSTRS ）)和加州公务员退休基金(（CalPERS）)拥有科大讯飞股份有限公司(（IFlytek Co. Ltd.）)数百万股。这家由中共控制的语音识别公司协助共产党独裁者监控 14 亿中国人的日常通信。加州公务员退休基金（CalPERS）已向中共的公司投资了 31 亿美元。加州公务员退休基金CalPERS的首席投资官孟宇 先生(（Ben Meng）) 先生是通过由单伟建及其太平洋联盟集团（PAG）发起并推动的中共千人计划聘用的。
 
-字幕来源：[2022年1月31日壬寅年新春大直播全文字版（四）](https://gnews.org/zh-hans/1947613/)
+美国前国务卿迈克·彭蓬佩奥在2020 年警告美国人：“加州的投资基金投资于为中共的人民解放军 (PLA) 供货应的公司，这些公司将美国的士兵、水兵手、飞行员和海军陆战队员置于高风险之中。”为什么爱好和平的美国人允许他们的退休金资助共产党公司来破坏香港的民主和自由以及新疆的种族灭绝？现在是时候追究单伟建造成美国养老基金超过 4000 亿美元损失的责任了吗？美国人民将如何弥补这一损失？
 
-编辑整理：Jacques；
+**简评：**
+区别与大众固有的对军事情报，经济情报收集员的认知，一个被吹捧为传奇和投资巨头的单伟健，游走于国际达官显贵，政商贵胄之间，玩弄美国司法，作为中共高级间谍渗透西方世界，洗劫中国人民以及西方人民的财富。单伟健作为中共文革后首批留洋学生，接受中共组织任务，他的儿子单博与其一同担任中共白手套，在美进行洗钱活动，把他人的退休储蓄玩成了金钱的游戏。这件事代表着中共对美国立国之本的腐蚀和渗透，是西方资本权贵和中共深度勾兑的结果，也是以及共产主义对资本主义法治社会的全面占领，美国需要觉醒，西方世界需要彻底认清中共极权统治的本质，它们的目的绝不仅仅是要统治中共国14亿老百姓，他们是要以各种方式实现自己的极权夸张，进而控制全世界，是时候对这个邪恶的共产主义政权进行反击了。
 
-字幕文件制作：知津；
+新闻链接：[https://www.prfree.org/news-the-chairman-ceo-of-pacific-alliance-group-pag-ccps-spy-weijian-shan-sold-us-pensions-funds-to-communist-china-1058216.html](https://www.prfree.org/news-the-chairman-ceo-of-pacific-alliance-group-pag-ccps-spy-weijian-shan-sold-us-pensions-funds-to-communist-china-1058216.html)
 
-视频制作及上传：Cindy；
+翻译/简评：xiaofeimao
 
-G-News发布：小满；
+PR:Harvey（叶知秋）
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+* * *
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+编辑：【英国伦敦喜庄园编辑部】
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

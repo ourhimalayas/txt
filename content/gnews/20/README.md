@@ -2,15 +2,13 @@
 ---
 
 
-## 物质生活不一定决定你的信仰，但绝对会影响你的信仰！
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2007124/)
+## 一位渥太华市民为卡车游行运动加油鼓劲
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2007332/)
 
-作者:东京樱花团小视频组
+02/13/2022 一位渥太华市民为卡车游行运动加油鼓劲。他赞赏这是一场百分之百和平的抗议。
 
-校对：东京樱花团小视频组
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-发布：东京樱花团小视频组
-![喜马拉雅东京樱花团](https://assets.gnews.org/wp-content/uploads/2022/02/yht.jpg)喜马拉雅东京樱花团
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
