@@ -2,44 +2,26 @@
 ---
 
 
-## 2021全球清廉印象指数(CPI) 中共国仅45分
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2006601/)
+## 加拿大公民权利协会谴责特鲁多动用国家紧急法
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2006624/)
 
-编译：文斗
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3-43.jpg)
+图片来源： www.dwnews.com
 
-根据国际反贪腐组织「透明国际」（Transparency International）最新公布的清廉指数显示，中共国仅得45分，比全球平均分43分才高出2分。冠军国家是丹麦、芬兰及新西兰为88分。
+零对冲网2月14日报道，加拿大公民权利协会已谴责总理特鲁多动用紧急法，他们在周一发推称“并没有触及关键点使加拿大政府必须采取此法。”
 
-台湾25名(68分），美国27名(67分）。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/4-30.jpg)
-清廉印象指数是根据各国商人、学者与国情分析师，对各国公职人员与政治人物贪腐程度的评价，以满分100分代表最清廉，资料来源包含自由之家、瑞士洛桑国际管理学院（IMD）等10个国际组织。主观感知调查所呈现的结果未必同一个政府真实的腐败程度百分之百地相吻合。
+紧急法仅仅在一个“严重威胁加拿大政府行使主权，安全和地区完整时”以及当局势不能有效地处理加拿大其他法律时可以动用。
 
-我们以前后国家做个参照，帮助读者有感性认识。
+而特鲁多周一试图动用紧急警察权力来驱散抗议强制疫苗和其他限制措施者，他说：“ 这不是和平抗议，当地警察已难以执行法律，联邦政府要介入。这将保卫加拿大的安全，保护人民的工作和重塑自信。”
 
-中共国45分，与罗马尼亚、瓦努阿图、圣多美普林西比齐名，并列第66名。
+阿尔伯塔，曼尼托巴，魁北克,以及萨斯喀彻温省反对特鲁多对卡车司机动用紧急法，特鲁多的第一个动作企图遏止抗议的卡车司机的资金，采用反洗钱法规则，威胁他们是金融上的“恐怖主义”。特鲁多政府把人们的和平抗议称作是“恐怖主义”！
 
-比中共国低一分（44分）的是牙买加、突尼斯、南非。
+周一美加大使桥重开，但抗议者们在全国各地关键通道的封堵运动仍在继续，看起来特鲁多不想答应抗议者的诉求。
 
-2021年全球平均分43分，得分43分的国家有：所罗门群岛、加纳、匈牙利、科威特，塞內加而。
+##### 新闻来源： [Canadian Civil Liberties Association Condemns Trudeau For Invoking National Emergency Over Truckers](https://www.zerohedge.com/political/trudeau-unleash-never-used-emergency-powers-act-counter-protests-us-canada-bridge-reopens)
 
-全球50名之后，但排在中共国之前的国家有：塞浦路斯、格林纳达、卢旺达、沙特阿拉伯、阿曼、斯洛伐克、亚美尼亚、希腊、约旦、纳米比亚、马来西亚、克罗地亚、古巴、黑山。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/5-25.jpg)
-中共国2021年45分，较2012年39分，10年提高了6分，但「透明国际」报告指出：
-
-**习加强了自上而下的控制，打击了一些腐败形式。然而，包括共谋勾结这样新的腐败形式已经开始出现，即高层官员利用其权力将以前的国有资产重新分配给自己和有政治关系的公司。此外，中共国的反腐败战略受到其对人权和基本自由的漠视之天然限制。这使得公民社会和新闻自由无法充当反腐败监督者。**
-
-报告指出，中共国等一些国家的领导人能够将自己描绘成比国家机构更有效，并赢得授权以获得和保持权力。然而，这些国家中只有少数国家设法在控制腐败方面取得了进展，并且这些成果仍然很脆弱。
-
-参考来源：
-
-1、2021腐败印象指数
-
-[https://www.transparency.org/en/cpi/2021](https://www.transparency.org/en/cpi/2021)
-
-2、亚太地区2021年的CPI：巨大的腐败和缺乏自由阻碍了进展[https://www.transparency.org/en/news/cpi-2021-for-asia-pacific-grand-corruption-holding-back-progress](https://www.transparency.org/en/news/cpi-2021-for-asia-pacific-grand-corruption-holding-back-progress)
-
-3、维基百科-清廉印象指数
-
-[https://zh.m.wikipedia.org/wiki/%E8%B2%AA%E6%B1%A1%E6%84%9F%E7%9F%A5%E6%8C%87%E6%95%B8](https://zh.m.wikipedia.org/wiki/%E8%B2%AA%E6%B1%A1%E6%84%9F%E7%9F%A5%E6%8C%87%E6%95%B8)
+#  
 
  
 
