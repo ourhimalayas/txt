@@ -2,24 +2,26 @@
 ---
 
 
-## 完全接种者感染艾滋病毒的风险大增
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2006546/)
+## 加拿大公民权利协会谴责特鲁多动用国家紧急法
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2006624/)
 
-加拿大温哥华杨帆农场 枫叶快讯
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3-43.jpg)
+图片来源： www.dwnews.com
 
-采编/编译撰稿：文明
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-107-1.png)图片来源：
-据英国媒体《每日内幕》2月12日报道：[英国卫生安全局]和[苏格兰公共卫生部]近期联合公布的官方数据显示，完全接种“新冠病毒”疫苗的老年人和体弱群体将更有可能感染该病毒及患上艾滋病。
+零对冲网2月14日报道，加拿大公民权利协会已谴责总理特鲁多动用紧急法，他们在周一发推称“并没有触及关键点使加拿大政府必须采取此法。”
 
-报道称，官方数据清晰表明，相比那些未接种疫苗者，已接种人群更有可能因感染新冠病毒而患病住院甚至死亡。此外，mRNA疫苗将诱导“获得性免疫缺陷综合症”，并可使年轻的接种者在短短几周内就出现类似的自身免疫系统疾病如艾滋病症状等 。
+紧急法仅仅在一个“严重威胁加拿大政府行使主权，安全和地区完整时”以及当局势不能有效地处理加拿大其他法律时可以动用。
 
-评论指出，各项医疗数据和现实病例都逐渐证实了[新中国联邦]一直以来关于中共病毒及其疫苗均为生物武器的论点。同时也向世人揭露了中共政权长期勾结西方邪恶沼泽地势力，在全球范围内谋财害命的残酷真相。
+而特鲁多周一试图动用紧急警察权力来驱散抗议强制疫苗和其他限制措施者，他说：“ 这不是和平抗议，当地警察已难以执行法律，联邦政府要介入。这将保卫加拿大的安全，保护人民的工作和重塑自信。”
 
-校对编辑：硫酸羟氯喹64
+阿尔伯塔，曼尼托巴，魁北克,以及萨斯喀彻温省反对特鲁多对卡车司机动用紧急法，特鲁多的第一个动作企图遏止抗议的卡车司机的资金，采用反洗钱法规则，威胁他们是金融上的“恐怖主义”。特鲁多政府把人们的和平抗议称作是“恐怖主义”！
 
-发稿：青青
+周一美加大使桥重开，但抗议者们在全国各地关键通道的封堵运动仍在继续，看起来特鲁多不想答应抗议者的诉求。
 
-新闻来源: [https://dailyexpose.uk/2022/02/12/gov-data-shows-fully-vaccinated-elderly-have-aids/](https://dailyexpose.uk/2022/02/12/gov-data-shows-fully-vaccinated-elderly-have-aids/)
+##### 新闻来源： [Canadian Civil Liberties Association Condemns Trudeau For Invoking National Emergency Over Truckers](https://www.zerohedge.com/political/trudeau-unleash-never-used-emergency-powers-act-counter-protests-us-canada-bridge-reopens)
+
+#  
 
  
 

@@ -2,27 +2,22 @@
 ---
 
 
-## 加拿大公民权利协会谴责特鲁多动用国家紧急法
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2006624/)
+## 紧张局势加剧，岸田将与乌克兰总统举行首次会谈
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2006772/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3-43.jpg)
-图片来源： www.dwnews.com
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1466.png)图片来自本文网站
+2月15日FNN主要在线消息，岸田首相定于今日与乌克兰总统泽连斯基就乌克兰日益紧张的局势进行电话交谈。
 
-零对冲网2月14日报道，加拿大公民权利协会已谴责总理特鲁多动用紧急法，他们在周一发推称“并没有触及关键点使加拿大政府必须采取此法。”
+这是岸田首相与乌克兰总统泽连斯基的首次会晤，预计他们将对日益紧张的俄罗斯军事入侵交换意见。
 
-紧急法仅仅在一个“严重威胁加拿大政府行使主权，安全和地区完整时”以及当局势不能有效地处理加拿大其他法律时可以动用。
+另据日本政府称，截至14日，仍有约130名日本人留在乌克兰，今天的电话会谈中就保护日本国民和合作缓和紧张局势交换意见。
 
-而特鲁多周一试图动用紧急警察权力来驱散抗议强制疫苗和其他限制措施者，他说：“ 这不是和平抗议，当地警察已难以执行法律，联邦政府要介入。这将保卫加拿大的安全，保护人民的工作和重塑自信。”
+信息源：[【独自】ウクライナ大統領と初会談へ　岸田首相 情勢緊迫受け](https://news.yahoo.co.jp/articles/f4c85789af92a697eb046f8777a42bbc820777f5#:~:text=%E3%80%90%E7%8B%AC%E8%87%AA%)
 
-阿尔伯塔，曼尼托巴，魁北克,以及萨斯喀彻温省反对特鲁多对卡车司机动用紧急法，特鲁多的第一个动作企图遏止抗议的卡车司机的资金，采用反洗钱法规则，威胁他们是金融上的“恐怖主义”。特鲁多政府把人们的和平抗议称作是“恐怖主义”！
-
-周一美加大使桥重开，但抗议者们在全国各地关键通道的封堵运动仍在继续，看起来特鲁多不想答应抗议者的诉求。
-
-##### 新闻来源： [Canadian Civil Liberties Association Condemns Trudeau For Invoking National Emergency Over Truckers](https://www.zerohedge.com/political/trudeau-unleash-never-used-emergency-powers-act-counter-protests-us-canada-bridge-reopens)
-
-#  
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
