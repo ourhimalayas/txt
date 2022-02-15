@@ -15,98 +15,98 @@
 
 ---
 
-### [瑞士与信托的使用](/content/gnews/1/README.md)
- ` 喜马拉雅德国纽伦堡正义农场`
-
-### [“等有一天你们都懂了，你们会真正的爱战友、爱我们的新中国联邦”](/content/gnews/2/README.md)
- ` MG FARM`
-
-### [七哥说&#8221;不要把恐惧和你的哀愁带回家人&#8221;](/content/gnews/3/README.md)
- ` MG FARM`
-
-### [瑞士与列支敦士登信托概况](/content/gnews/4/README.md)
- ` 喜马拉雅德国纽伦堡正义农场`
-
-### [七哥说&#8221;我要用美国的法律合法的跟它干到底&#8221;](/content/gnews/5/README.md)
- ` MG FARM`
-
-### [魁北克政府今天下午宣布撤销疫苗护照的时间表](/content/gnews/6/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [七哥金句：喜联储的价值](/content/gnews/7/README.md)
- ` 雅典娜GNotes`
-
-### [阿拉伯国家的维吾尔人遭遣返中国](/content/gnews/8/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [七哥金句：所得&amp;所给](/content/gnews/9/README.md)
- ` 雅典娜GNotes`
-
-### [七哥金句：灾难核心](/content/gnews/10/README.md)
- ` 雅典娜GNotes`
-
-### [七哥金句：爆雷](/content/gnews/11/README.md)
- ` 雅典娜GNotes`
-
-### [七哥金句：江湖](/content/gnews/12/README.md)
- ` 雅典娜GNotes`
-
-### [七哥金句：喜币实力](/content/gnews/13/README.md)
- ` 雅典娜GNotes`
-
-### [延安性事（短篇纪实文学）（四）](/content/gnews/14/README.md)
+### [中国的小人](/content/gnews/1/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【秘翻在线】俄乌局势将密切影响全球能源市场](/content/gnews/15/README.md)
+### [瑞士与信托的使用](/content/gnews/2/README.md)
+ ` 喜马拉雅德国纽伦堡正义农场`
+
+### [七哥谈&#8221;中国人都喜欢教训别人&#8221;](/content/gnews/3/README.md)
+ ` MG FARM`
+
+### [“等有一天你们都懂了，你们会真正的爱战友、爱我们的新中国联邦”](/content/gnews/4/README.md)
+ ` MG FARM`
+
+### [七哥说&#8221;不要把恐惧和你的哀愁带回家人&#8221;](/content/gnews/5/README.md)
+ ` MG FARM`
+
+### [瑞士与列支敦士登信托概况](/content/gnews/6/README.md)
+ ` 喜马拉雅德国纽伦堡正义农场`
+
+### [七哥说&#8221;我要用美国的法律合法的跟它干到底&#8221;](/content/gnews/7/README.md)
+ ` MG FARM`
+
+### [魁北克政府今天下午宣布撤销疫苗护照的时间表](/content/gnews/8/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [七哥金句：喜联储的价值](/content/gnews/9/README.md)
+ ` 雅典娜GNotes`
+
+### [阿拉伯国家的维吾尔人遭遣返中国](/content/gnews/10/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [七哥金句：所得&amp;所给](/content/gnews/11/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥金句：灾难核心](/content/gnews/12/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥金句：爆雷](/content/gnews/13/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥金句：江湖](/content/gnews/14/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥金句：喜币实力](/content/gnews/15/README.md)
+ ` 雅典娜GNotes`
+
+### [延安性事（短篇纪实文学）（四）](/content/gnews/16/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [【秘翻在线】俄乌局势将密切影响全球能源市场](/content/gnews/17/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [韩国CCP病毒感染死亡人数再度攀升，新增突破记录](/content/gnews/16/README.md)
+### [韩国CCP病毒感染死亡人数再度攀升，新增突破记录](/content/gnews/18/README.md)
  ` 澳喜特战旅Gnews`
 
-### [七哥金句：钱，病毒](/content/gnews/17/README.md)
- ` 雅典娜GNotes`
-
-### [七哥谈他的人生是怎么过来的](/content/gnews/18/README.md)
+### [七哥谈他的人生是怎么过来的](/content/gnews/19/README.md)
  ` MG FARM`
 
-### [俄入侵乌克兰将导致全球金融大崩塌](/content/gnews/19/README.md)
+### [俄入侵乌克兰将导致全球金融大崩塌](/content/gnews/20/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [美国财政部确认，加密货币矿工不受美国国税局报告规则的约束](/content/gnews/20/README.md)
+### [美国财政部确认，加密货币矿工不受美国国税局报告规则的约束](/content/gnews/21/README.md)
  ` 温哥华扬帆农场`
 
-### [2/14银河快讯：日本考虑将外国人入境上限提高；选手返回日本后彻底删除冬奥APP](/content/gnews/21/README.md)
+### [2/14银河快讯：日本考虑将外国人入境上限提高；选手返回日本后彻底删除冬奥APP](/content/gnews/22/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [2022年2月15日，全球中共病毒疫情情况汇总](/content/gnews/22/README.md)
+### [2022年2月15日，全球中共病毒疫情情况汇总](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [红血球和新冠疫苗混合后失去了携氧能力并开始凝结，这就发生在疫苗与血液结合的一天后](/content/gnews/23/README.md)
+### [红血球和新冠疫苗混合后失去了携氧能力并开始凝结，这就发生在疫苗与血液结合的一天后](/content/gnews/24/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [喜系列财富之门](/content/gnews/24/README.md)
+### [喜系列财富之门](/content/gnews/25/README.md)
  ` 纽约香草山MOS03`
 
-### [澳大利亚的CCP病毒死亡人数创下历史新高！](/content/gnews/25/README.md)
+### [澳大利亚的CCP病毒死亡人数创下历史新高！](/content/gnews/26/README.md)
  ` 澳喜特战旅Gnews`
 
-### [2/15银河快讯：日本撤走除少数驻乌克兰使馆人员外的所有人员；日本央行无限量购买日本国债](/content/gnews/26/README.md)
+### [2/15银河快讯：日本撤走除少数驻乌克兰使馆人员外的所有人员；日本央行无限量购买日本国债](/content/gnews/27/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [NFSC新闻、G|TV新闻访谈简报|2022年2月15日早](/content/gnews/27/README.md)
+### [NFSC新闻、G|TV新闻访谈简报|2022年2月15日早](/content/gnews/28/README.md)
  ` 纽约香草山MOS01`
 
-### [中共国的产业收购蓝图](/content/gnews/28/README.md)
+### [中共国的产业收购蓝图](/content/gnews/29/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [NewSGman┃川普支持加拿大卡车车队反对疫苗暴政](/content/gnews/29/README.md)
+### [NewSGman┃川普支持加拿大卡车车队反对疫苗暴政](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [挪威将取消大多数疫情限制措施](/content/gnews/30/README.md)
+### [挪威将取消大多数疫情限制措施](/content/gnews/31/README.md)
  ` NFSC News`
-
-### [挪威取消了几乎所有剩余的Covid-19限制](/content/gnews/31/README.md)
- ` 喜马拉雅农场新西兰站`
 
 ### [魁北克省勒戈（Legault）政府拒绝实施《紧急措施法》](/content/gnews/32/README.md)
  ` 温哥华圆成农场🇨🇦`

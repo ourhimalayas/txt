@@ -2,32 +2,21 @@
 ---
 
 
-## “等有一天你们都懂了，你们会真正的爱战友、爱我们的新中国联邦”
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2010136/)
+## 瑞士与信托的使用
+` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2010152/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
-
-2022-02-11直播摘录10：10：31
-
-我要今天坐这儿跟你们说一个小时，文疯得哭死，你们都得哭死是吧，多少压力，那太多事儿了。76个案子你们看到了几个？你想过七哥坐在法庭上、那个冰冷的椅子上，15个小时连坐五天的感受吗？你想过我做118次deposition 每次都十几个小时，在这中间上厕所还给你们发信息、给你们聊天儿，还聊流水的故事、风花雪月，是吧，这些年就这么过来的。我同样的是，我像对待家人一样，不想把压力和痛苦分享给你们，这是七哥必须做到的。等有一天你们都懂了，你们会真正的爱战友、爱我们的新中国联邦。谢谢。
-
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
-
+供稿：中华联邦公民
+编辑发稿：am夏天
+喜马拉雅纽伦堡正义农场
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1506.png)
+在瑞士有很的公司、银行都有信托业务，在办理信托业务的时候可以选择适用的各国法律，也就是说所设立的信托并一定要在瑞士境内，也可以在巴拿马或者开曼群岛、维京群岛，但是受托人是在瑞士，在瑞士来管理管理全球资产，也就是专业管理人士是瑞士的管理人员，我们看中的就是瑞士受托人员的专业背景和该国稳定的社会环境，其它国家也能设立信托，但经济与社会的稳定性是首要考量。
+新中国联邦拥有喜币、联盟战友的诚信、以及我们新的金融系统，将来我们完全可以建立自己的信托公司，甚至在将来超过瑞士、列支敦士登、卢森堡、荷兰成为新的金融中心。但是现在迫在眉睫的如何处置资产的增值与分红，在目前的情况下完全可以使用私人信托来规避现在各国在房税收方面非常不合理的一些规定。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1507.png)
+瑞士的税收有一个原则，你的信托资产原则上不属于瑞士，只是委托给瑞士的受托人来管理，对信托资产所获得的资本利得、受益人所收钱款不收任何费用，只对受托人收取的服务性收入征税。但受益人受到居住国家的税收监管，需要申报收入，遵循所在国的税收法律。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1508.png)
+瑞士对受托人的资质有着非常严格的监管，这也是让大家放心的地方，当我们把钱和资产委托给第三方的话，第三方的信誉、诚信还有业务能力是最关键的，瑞士在这方面有非常非常严格的管理机构，如瑞士FINMA SRO牌照，只要是从事信托受托的人员一定要受到瑞士金管局和法律的严格限制。
+另外信托的一个基本的特点就是虽然把钱托付给了受托人，但从法律上来说，委托的财产和受托人自己本身的财产是没有任何关系的，如果受托人发生了债务问题的话，他也不能去触及被委托的资产。所以这一点在瑞士被限制地非常严格。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1509.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/德农二维码-4.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
