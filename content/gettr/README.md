@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/15/2022 1:27 AM (UTC)`
+
+2/14/2022 Miles Guo’s GETTR: Xi Jinping claims to be sick and is in hiding, while secretly planning to invade Taiwan. The CCP is the real traitor, colluding with the dark forces to steal the wealth of the Chinese people, selling out the Chinese territories, brainwashing the people in Communist China, and provoking anti-Chinese sentiment worldwide. Only the Whistleblowers’ Movement has exposed the CCP’s evil plans to the world in advance. The power of the New Federal State of China is infinite!<br/><br/>2/14/2022 文贵盖特：习近平称病神隐，暗中准备打台湾；中共是真正的卖国贼 - 跟黑暗势力勾结、盗走中国人的财富、出卖中国的领土、对内洗脑、对外挑起排华；只有爆料革命向全世界提前揭露了中共的邪恶计划，新中国联邦力量无限大！<br/>
+![img](https://media.gettr.com/group34/getter/2022/02/15/01/4ee613eb-5e21-b437-45c7-acabbd5bd2ee/out.jpg)
+
+---
+
 `@miles 2/14/2022 11:00 PM (UTC)`
 
 2/14/2022 Miles Guo’s GETTR: Only the Lao Baixing in the civilized countries can speak up and rise up against the COVID vaccine mandate. The Winter Olympics and the incident of Eileen Gu and her mother has pitted the overseas Chinese against the entire world. Weijian Shan, who covers up for the CCP, has swindled countless pension funds across the globe. If the CCP and communism are not eliminated, there will be no peace in the world.<br/><br/>2/14/2022 文贵盖特：只有文明国家的老百姓才能发声并反抗强打疫苗；冬奥会和谷爱凌母女让海外华人与全世界对立；替共产党洗地的单伟建骗了全世界无数养老金；中共和共产主义不灭，世界永无和平<br/>
@@ -149,13 +156,6 @@
 
 2/11/2022 Miles Guo: Eileen Gu doesn’t have faith, and she is hypocritical, selfish, despicable, and ungrateful. Eileen Gu disobeys the law, makes things up, lies through her teeth, and kowtows to the CCP shamelessly. Why do all the democratic countries in the world boycott the Winter Olympics?<br/><br/>2/11/2022 文贵直播：谷爱凌没有信仰、虚伪、自私、卑鄙、不懂得感恩，她无法无天、完全造假、瞪眼撒谎，无耻地跪舔中共却抹黑养大自己的美国；为什么全球的民主国家都反对冬奥会？
 ![img](https://media.gettr.com/group33/getter/2022/02/13/07/16d54a09-60ba-9514-0d15-6f02794d1c15/out.jpg)
-
----
-
-`@miles 2/13/2022 2:00 AM (UTC)`
-
-2/12/2022 Miles Guo’s GETTR: How to make big decisions in your life? In addition to seeing through life and death and letting go of fear, you should also make independent judgment without being influenced by others. You can do whatever you decide to do so long as you feel in your heart that your decision is meaningful, right, and will not hurt others or can help others.<br/><br/>2/12/2022 文贵盖特：回答战友关于如何做出人生重大决定的问题，除了看透生死、放下恐惧，还要独立判断、不受他人影响，只要是你内心觉得有意义的、正确的、不伤害别人或能帮助别人的都可以做<br/>
-![img](https://media.gettr.com/group16/getter/2022/02/13/02/4d1086ac-8769-32b3-d14b-fc9063928dc9/out.jpg)
 
 ---
 
