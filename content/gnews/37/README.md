@@ -2,10 +2,10 @@
 ---
 
 
-## 媒体显示疫苗有效性持续下降，但仍鼓励接种疫苗
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2007285/)
+## 国会女议员反对乔治华盛顿大学撤下反共画报
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2007287/)
 
-02/11/2022 媒体解释疫苗经过快速研发并通过临床试验证明安全有效，并鼓励人们接种疫苗。
+02/10/2022 国会女议员、教育和劳工委员会领袖弗吉尼亚·福克斯反对乔治华盛顿大学撤下反共画报。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

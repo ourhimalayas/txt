@@ -2,81 +2,38 @@
 ---
 
 
-## 锁链女为何不能是李莹
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2008386/)
+## 西喜时事新闻简报-美国时事篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2008401/)
 
-作者：香草山健身部 – 新世界的一员
+**翻译：土饭团**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnipBiden和美国官员对中共国在世界范围内不断上升的金融影响力没有清醒认识.png)图片来源：foxnews.com
+1.[Biden和美国官员对中共国在世界范围内不断上升的金融影响力“没有清醒认识”](https://www.foxnews.com/media/biden-us-officials-china-rising-financial-influence)
 
+福克斯新闻2月12日电，胡佛研究所研究员、加州审计长候选人Lanhee Chen称，中国共产党正在积极寻求让中共国货币取代美元，同时利用债务从实质上接管其他国家的基础设施，特别是在南美和非洲。中共国获得影响力的方式本质上是进入各国，为项目提供资金，不是用股权，而是用债务—他们实质上是将各国置于债务陷阱之中。
 
+2.[美国计划在所罗门群岛设立大使馆以对抗中共国](https://www.reuters.com/world/asia-pacific/us-planning-open-embassy-solomon-islands-official-2022-02-12/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
+路透社2月12日电，美国国务卿Antony Blinken表示，美国将在所罗门群岛开设大使馆，他承诺向太平洋地区提供更多外交和安全资源，以对抗中共国扩大影响力的努力。Blinken对斐济的访问是四十年来美国国务卿的首次。
 
+3.[Jake Sullivan就乌克兰问题在众议院私人电话会议上的讲话内容](https://www.politico.com/newsletters/national-security-daily/2022/02/14/inside-jake-sullivans-private-house-call-on-ukraine-00008672)
 
+POLITICO 2月14日电，美国国家安全顾问Jake Sullivan在私人电话中告诉众议院议员，如果与俄罗斯爆发一场更大规模的战争，五角大楼正在寻求一种新的方式来武装乌克兰人。美国可能向乌克兰提供10亿美元的主权贷款担保。华盛顿和柏林在如何惩罚俄罗斯的公开信息中尚未达成一致，特别是关于北溪2号管道，尽管两国首都的官员都坚称他们将一致行动。
 
-徐州丰县几次通告
-链锁废屋被乱轮奸污，沦为生育机器的铁链女
-从“无拐卖”到不是李莹
-真所谓整体上下煞费苦心
-死死咬住为小花梅
+4.[美国公布战略，在中共国崛起之际加强在印太地区的作用](https://english.kyodonews.net/news/2022/02/478af539e8d2-urgent-us-vows-in-new-indo-pacific-strategy-to-strengthen-role-in-region.html)
 
+共同社2月13日电，Joe Biden总统的美国政府周五在其印太战略中誓言要加强其安全和经济作用，以推进自由和开放的地区，同时与盟国建立“集体能力”，以对抗中共国日益增长的强硬态度。Biden政府表示，在未来12至24个月内采取的行动中，将加强对针对美国、其盟国和伙伴的军事侵略的威慑，包括台湾海峡两岸，并扩大其在东南亚的海岸警卫队的存在与合作。
 
+5.[CNN刊登有质疑的亲奥运广告，内容来自中共国官方媒体](https://nypost.com/2022/02/14/cnn-publishes-paid-ad-by-china-state-media-touting-olympics/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/20220215_1.jpg)
+纽约邮报2月14日电，在北京政府因涉嫌侵犯人权而受到批评之际，CNN投放的以中共国官方媒体新华社内容为特征，宣传冬奥会的付费广告引起了人们的关注。CNN的广告包涵一个指向新华社官网的链接，该链接对奥运会进行了“特别报道”，其中包括赞扬习近平主席“带领中国取得前所未有的奥运成就”的文章。美国媒体因在报道奥运会期间淡化中共国涉嫌侵犯人权而受到批评。
 
+* * *
 
+***审核：阿伯塔  
+校对：信心满满
+发布：信心满满***
 
-怕暴露14岁就被拘禁强奸生子
-怕暴露38岁生了八个娃的惨绝人寰事实
-怕暴露满口牙被“牙周炎”拔光的残忍
-怕抵不住一家俩代，一窝子都是强奸犯的悲愤舆情
-怕暴露结婚证下锁着整个“徐州剿总指挥部”
-怕千万网民海啸般的狼烟四起
-怕挖掘出中共篡国以来的陈年干屎
-怕掀搅起臭气熏天的污泥沉渣
-为了守住阵地
-可以把罪恶称为农村需要“传宗接代”
-就如猴子拉着女人性交一样荒唐
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/20220215_2.jpg)
-
-
-
-为了打下据高点
-聪慧漂亮的大学女李莹只能是云南边远地区失常的小花梅
-就如被拐卖的是贾府“傻大姐”
-和劫持林黛玉的区别
-悲剧、惨剧、惊悚剧、惊恐剧，
-愤怒和同情不可同日而语
-民心只能是叹息不能有震撼和痛心
-为了夺回失地
-总部不关心谁死谁活
-总部只关心自个局面
-统一作战统一指挥统一行径
-假、恶、丑
-无所不用其极
-争取最后的最好胜利
-殊不知这种瞪着眼睛说瞎话
-上纲上线
-激发了民智开启了民眼
-铁链女就像一根导火线
-在黑暗的四面围墙里面，搽亮了第一根蜡烛
-这给新中国联邦为开启民智
-占据了有意义的第一枪。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/202202_cal-1.jpg)
-
-编辑/校对/发稿：武裝的羔羊
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-2.jpeg)
 
  
 
