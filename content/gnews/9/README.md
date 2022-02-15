@@ -2,31 +2,78 @@
 ---
 
 
-## 七哥谈中共的黑社会手段
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2005936/)
+## 灭共者之郭氏情报站（25）2022/02/13 文贵大直播
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/2006086/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+设计者：纽约香草山设计部 — 喜马拉雅大喵儿，天马星空J
 
-2022-02-11直播摘录09：09：14
 
-你知道共产党当年在香港的法官跟我们说什么吗？就香港查封我们钱的人，DBS的几百亿的人，法官后来离职了，他说：“你知道当时中共国威胁我，明确告诉我 ‘你不把郭文贵Miles Guo家族的钱给封了，我就把你所有的你在东莞嫖妓的事情和你家里边不正常的钱全公布’ 。” 这法官没办法，把钱全封了，现在还封着呢。这法官在香港离职了，是个英国人，大家你可以查查，是在英国在香港的十大法官之一，一辈子待在香港，这是被它威胁的法官，在香港就查封这么多资金，就这么查封的。所以共产党的黑社会手段绝对地伸进了现在冬奥会的所有的官员和那些裁判的身上。你都明显地你违规了，判人家违规。所以说在现场的冬奥会的官员跟咱们好的，他说：“Miles，对你来讲这都是天大的好事儿，我不相信任何一个国际奥林匹克运动会的任何官员还会再跟共产党合作，还会再相信共产党，永远不可能了。就连我们这两个头儿，女的，奥林匹克官员，冬季奥委会的官员在现场的，每天唉声叹气摇头。” 就不行了，就完全失控了！
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-**关注我们**
 
-Discord 账号
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-Gettr 账号
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
+
+
+
+**灭共者-郭氏情报站**
+**2022年2月13日 文贵大直播**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/db4165b9994f1cdb.png)
+
+1、世界面临战争危机。美军的代理人战争已经到位。能源市场，石油等紧缺物资大涨。共产党造成了狼狈为奸的全球局面，对爆料革命有利，但是世界一片狼藉。中共在国内叫嚣需要一场战争。
+
+2、喜币场外交易60美元买不到，200美元成交的好几笔。牢记3件大事：国家主权认可，大额投资，Hpay全面使用。爆料革命战友是无苗灭共者！这五个字价值无限。不会超过3次直播的时间，世界人类即将发生巨变。
+
+3、法国和加拿大的大卡车运动：
+1）来源于郭先生发起的香港运动；
+2）大卡车运动将开启世界和平对抗暴政的和平方式；3）把现代经济和政治完美结合。
+
+4、欧元暴涨，美元大跌。欧盟的核心利益是俄罗斯别打仗别东扩，美国的核心利益是俄罗斯开打，弱化欧洲。欧洲会因此重生，共产党会被灭掉。芯片，石油，运输，俄罗斯控制的金属会暴涨。虚拟货币是大赢家。
+
+5、WTO，WHO，UN联合国变成了共产党的玩物。只要共产党参与的组织都是无法无天，腐败。北京冬奥会就是对国际奥林匹克组织最大的羞辱，参加冬奥会的运动员都会被清算，是他们一生最大错误。
+
+6、郭先生准备申请个人破产。战友不是因为主流媒体的报道，参加爆料革命。七哥开启爆料革命，从来没有在乎过个人的羽毛，只在乎战友。
+
+7、卡车事件，战争开启不会掩盖疫苗灾难。世界焦点会回归武汉实验室到底发生了什么。世界直面共产党，这是生化病毒。
+1）世界文明政治形势彻底改变；
+2）极左会被彻底纠正；
+3）经济泡沫破灭，数字货币时代。无论哪一条，爆料革命都是大赢家。
+
+8、共产党高官子女，这些年已经陆续把资金撤出美国。财富主要藏匿在数字货币，瑞士卢森堡。如果欧洲不和美国联手，目前动不了共产党的本。这就是必须联合欧洲共同灭共的原因。
+
+**上一期：**
+
+**[灭共者之郭氏情报站（二十四）2022/02/11 文贵大直播 – GNEWS](https://gnews.org/zh-hans/1997157/)**
+
+
+
+**编辑/发稿：小鹿**
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-124.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
 
  
 

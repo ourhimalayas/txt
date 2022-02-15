@@ -2,32 +2,28 @@
 ---
 
 
-## NBC承认北京冬奥会收视率惨淡
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2002758/)
+## 中日财经爆|日本央行三年半来首次进行“限价操作”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2002979/)
 
-作者：纽纽约香草山 – 侠肝义胆
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-2月12日，美国媒体报道，NBC体育主席皮特·贝瓦夸在两天前接受采访时表示，北京冬奥会转播的收视率非常糟糕，而且电视台对此毫无办法。贝瓦夸将观众缺乏收看冬奥会的激情，归咎于中共病毒疫情的限制，而丝毫不敢提及公众对NBC的普遍厌恶，以及NBC为了利益美化中共，无视中共在人权问题上无数暴行的行为。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-34.jpg)
-有网友评论称，北京冬奥会在国内的电视收视率已经达到灾难性的低点，NBC 转播的冬奥会也将成为历史上收视率最低的冬奥会。而公众不愿意看到中共举办冬奥会，是因为中共制造并故意传播了病毒，国际社会应该追查中共病毒的责任。这才是北京冬奥会收视率史上最低的真实原因！
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-25.jpg)[图片来源](https://cn.nikkei.com/politicsaeconomy/economic-policy/46824-2021-11-29-09-35-55.html)
+14日上午，日本央行启动“限价操作”，以指定收益率无限购买国债，以遏制长期利率上升。他宣布将以0.25%的收益率购买新发行的10年期国债，但没有金融机构回应。
 
-参考链接：[NBC承认北京冬奥会收视率惨淡](https://www.breitbart.com/entertainment/2022/02/12/nbc-admits-genocide-games-ratings-bust-for-us-its-been-difficult-theres-no-way-around-this/)
+随着美国和欧洲采取行动提高利率，市场预计日本银行将收紧货币政策。日本央行维持其货币宽松政策，并对单边加息表现出谨慎态度。
 
-![This image has an empty alt attribute; its file name is calendar.png](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
+此次限价操作是自2018年7月以来约三年半的第一次。日本央行目前正在实施大规模货币宽松政策，将长期利率控制在0%左右。2009年3月，央行宣布将长期利率的波动幅度设定为“正负0.25%”。通过这种限价操作，民间金融机构将不再具有以高于0.25%的收益率（低价）向日本央行以外的银行出售的优势，市场利率将有效限制在0.25%。
 
-总编：飞虹
-编辑：飞虹
-校对/发稿：Hetangyuese
+东京债市14日开盘，新发行的10年期国债收益率为0.21%，是长期利率的代表指标。由于收益率（高价）低于0.25%，没有金融机构接受限价操作。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+上周末10日，国债收益率一度升至0.23%，为近六年来的最高水平。对此，日本央行10日晚宣布实施限价操作。
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+消息来源:
 
+[日銀が３年半ぶり「指し値オペ」、長期金利を抑制…応じる金融機関なし](https://www.yomiuri.co.jp/economy/20220214-OYT1T50021/)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
