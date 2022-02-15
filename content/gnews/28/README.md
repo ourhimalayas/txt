@@ -2,10 +2,10 @@
 ---
 
 
-## 莫得纳CEO删除推特抛售公司股票达4亿美元
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2007695/)
+## 印度政府加码禁用54个中共应用程序
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2007701/)
 
-作者：纽约香草山 – 宁文静
+作者：纽约香草山医疗部 – 云豹
 
 
 
@@ -13,20 +13,18 @@
 
 
 
-2月13日，据外媒报道，莫得纳公司首席执行官斯特凡·班塞尔本周在卖出数千万美元的股票后删除了他的推特账户。如此怪异的举动引发了投资者的疑虑和担忧。据悉，在过去的一年里，班塞尔已经累计抛售总价约为4亿美元的公司股票。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide5-1.jpg)
-前黑石对冲基金经理爱德华·多德曾指控辉瑞公司和莫得纳公司，因当时的制度性要求，使用未经证实的技术并快速获得疫苗生产批准，在疫苗临床实验中存在故意欺骗的行为。多德进而对保险公司和殡仪馆的死亡统计数据展开调查。如果证明属实，这将意味着辉瑞公司和莫得纳公司都要对其疫苗造成的所有伤害和死亡负责。
+当地时间2月14日，印度政府公告，因为信息安全的理由，加码禁止使用54个由中共制作的应用程序。阿里巴巴及腾讯等大公司出品的程序亦名列其中。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-7.jpg)
+印度电子暨信息科技部发现，这些被公告禁用的程序，在未经用户的同意下，将使用客户的敏感数据自动传送到包括中国在内的境外服务器，因此造成个人信息安全危险。谷歌等多家应用程序商店已被下令封锁这些应用程序。
 
-班塞尔的反常行为是否与多德的举报和调查有关，尚无定论。截至目前，莫得纳公司并未就CEO的举动发表官方声明。
+印度政府自2020年6月以来，已经禁止包括抖音、微信、ES档案浏览器等220多个由中共出品的应用程序。此次有许多是之前已经被禁用的程序，在厂商刻意更换公司名称，重新改名包装后又被再次推出。这些恶意应用程序的服务器，表面上可能是设在香港或新加坡，但是用户的敏感信息一样会被传送给中共。
 
 参考链接：
-1. [Moderna CEO Stéphane Bancel Deletes Twitter Account, Sells Tens Of Millions Of Dollars In Stock](https://thecovidworld.com/moderna-ceo-stephane-bancel-deletes-twitter-account-sells-tens-of-millions-of-dollars-in-stock/)
-2. [Moderna CEO Just Dumped $400 Million in Stock and Deleted His Twitter Account](https://newspunch.com/moderna-ceo-just-dumped-400-million-in-stock-and-deleted-his-twitter-account/)
+[印度媒體：政府再禁54個中國應用程式](https://www.cna.com.tw/news/aopl/202202140135.aspx)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
 
-总编：文真
-编辑：Jack Li文阳
+总编/编辑：DM
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**

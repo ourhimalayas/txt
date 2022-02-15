@@ -2,49 +2,24 @@
 ---
 
 
-## 运动员发布奥运村漏水消息 被中共要求删除
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2007700/)
+## 标题: 加拿大安大略省撤销疫苗接种通行证
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2007736/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+翻译.整理: 萧亦
+![](https://cdn.discordapp.com/attachments/818760080212099082/943063662451638302/1e79ee5e-b1f5-498e-b3b6-e176395713e6.jpg)图片来自ilpost.it
+经过加拿大无疫苗(No Vax) 三周的抗议后，加拿大人口最多的省份安大略省的总理决定废除 Covid 通行证。总理道格福特在新闻发布会上说: “我们将从3月1日起放弃疫苗护照,不是因为有抗议，而是因为绝大多数人都接种了疫苗和Omicron的高峰现在已经过去了”。
 
+此外，从周四开始，提前四天，安大略省将取消餐厅 50% 的容量上限。
 
+取消卫生措施是封锁安大略省联邦首都渥太华两个多星期的抗议者提出的第一个要求。昨天，在警方干预清除了 No Vax 卡车司机后，连接美国和加拿大的主要桥梁大使桥被解锁，交通开始双向流通。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+“大使桥已经开放，美国和加拿大之间的货物自由流动已经恢复，”管理该设施的公司宣布。封锁对两国的工业，尤其是汽车行业产生了影响。边境警察还宣布重新开放该枢纽，但在最初的几个小时内，建议不要进行“非必要旅行”。
 
+加拿大警方花了两天时间才能够撤离这座桥。上周六，大部分阻塞交通的卡车和皮卡车已经撤离，但数百名示威者拒绝离开驻军。25 至 30 名示威者在驱逐行动中被捕。由于大使桥对加美贸易的重要性，华盛顿通过要求“联邦权力”结束对美国经济造成严重后果的封锁，向加拿大政府施加了一些压力。
 
+原文链接: [https://www.repubblica.it/esteri/2022/02/14/news/canada\_polizia\_sgombera\_ponte\_occupato\_da\_novax-337661138/](https://www.repubblica.it/esteri/2022/02/14/news/canada_polizia_sgombera_ponte_occupato_da_novax-337661138/)
 
-2月13日，国外多家媒体报道，参加北京冬奥会的芬兰滑雪运动员莱恩佩拉，上周在自己的社交媒体上发布了一些照片和视频，显示水从她在冬奥村住所的天花板上倾泻而下，并在地板上形成了水坑。还有一些照片显示，有电气设备被暴露在水中。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-6.jpg)
-林佩拉在视频中加上了“救命”的标题，同时还分享了中共国工作人员赶来清理的镜头。
-
-不过，在莱恩佩拉分享的图片中，最令人难以置信的是，有一张她收到的一条消息的屏幕截图，该消息要求她从社交媒体上删除她发布的相关帖子。
-
-参考链接：
-1. [China orders athlete to delete photos that showed flooding in Olympic Village](https://news.yahoo.com/winter-olympics-2022-china-orders-athlete-delete-photos-205502218-013229001.html)
-2. [China orders Olympics star to delete photos](https://www.foxsports.com.au/beijing-olympics-2022/china-orders-olympics-star-to-delete-photos/news-story/175d019dbfdf429d59eded1ab72259d6)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+责任编辑/发布:意大利达芬奇农场   萧亦
 
  
 

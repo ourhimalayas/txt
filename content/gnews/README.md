@@ -15,116 +15,116 @@
 
 ---
 
-### [印度外长谴责中共违反国际协议，称要加强与澳合作](/content/gnews/1/README.md)
+### [文•贵天成——文贵先生谈“PAG太平联盟、单伟建”（十二）](/content/gnews/1/README.md)
  ` 墨尔本雅典娜农场`
 
-### [常识：抗议不是暴力（二）](/content/gnews/2/README.md)
+### [文•贵天成——文贵先生谈“PAG太平联盟、单伟建”（十）](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [文•贵天成——文贵先生谈“PAG太平联盟、单伟建”（九）](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [印度外长谴责中共违反国际协议，称要加强与澳合作](/content/gnews/4/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [常识：抗议不是暴力（二）](/content/gnews/5/README.md)
  ` 骄子`
 
-### [DC大中华时事：中共《网络安全审查办法》今起施行](/content/gnews/3/README.md)
+### [DC大中华时事：中共《网络安全审查办法》今起施行](/content/gnews/6/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [02/04⽂贵直播：原来135个国家参加冬奥会，剩下33个（粤语配音）](/content/gnews/4/README.md)
+### [02/04⽂贵直播：原来135个国家参加冬奥会，剩下33个（粤语配音）](/content/gnews/7/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [常识：抗议不是暴力（一）](/content/gnews/5/README.md)
+### [常识：抗议不是暴力（一）](/content/gnews/8/README.md)
  ` 骄子`
 
-### [灭共加速中](/content/gnews/6/README.md)
+### [灭共加速中](/content/gnews/9/README.md)
  ` 银河勇气之星`
 
-### [每日快报：特鲁多援引从未使用过的《紧急状态法》镇压卡车司机](/content/gnews/7/README.md)
+### [每日快报：特鲁多援引从未使用过的《紧急状态法》镇压卡车司机](/content/gnews/10/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [五角大楼称俄罗斯在乌克兰边境有增兵](/content/gnews/8/README.md)
+### [五角大楼称俄罗斯在乌克兰边境有增兵](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [02/06⽂贵直播：七哥2020年就说疫苗会导致次生灾难会席卷全球（粤语配音）](/content/gnews/9/README.md)
+### [02/06⽂贵直播：七哥2020年就说疫苗会导致次生灾难会席卷全球（粤语配音）](/content/gnews/12/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [日本国内现有4种以上Omicron变异株流行](/content/gnews/10/README.md)
+### [日本国内现有4种以上Omicron变异株流行](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [致习近平主席的一封信](/content/gnews/11/README.md)
+### [致习近平主席的一封信](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [币圈新闻动态：喜币（HCN）价格目前在42.000 HDO](/content/gnews/12/README.md)
+### [币圈新闻动态：喜币（HCN）价格目前在42.000 HDO](/content/gnews/15/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [卫星图像显示，俄罗斯已近距离三面包围乌克兰](/content/gnews/13/README.md)
+### [卫星图像显示，俄罗斯已近距离三面包围乌克兰](/content/gnews/16/README.md)
  ` 波士顿五月花农场金融部`
 
-### [《避风港Haven》直播内容精选（第九集·上）](/content/gnews/14/README.md)
+### [《避风港Haven》直播内容精选（第九集·上）](/content/gnews/17/README.md)
  ` 喜马拉雅纽约磐石农场`
 
-### [因拒绝接种疫苗 德约科维奇可能不参加法网和温网](/content/gnews/15/README.md)
+### [因拒绝接种疫苗 德约科维奇可能不参加法网和温网](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [今日暴增1500多例！香港第五波病毒恶化](/content/gnews/16/README.md)
+### [今日暴增1500多例！香港第五波病毒恶化](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆┃中共特区深圳，二手房交易量15年新低](/content/gnews/17/README.md)
+### [中日财经爆┃中共特区深圳，二手房交易量15年新低](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [印度政府再次下令禁止 54 款中共国应用程序](/content/gnews/18/README.md)
+### [印度政府再次下令禁止 54 款中共国应用程序](/content/gnews/21/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [加总理特鲁多启动《紧急状态法》，应对自由车队抗议](/content/gnews/19/README.md)
+### [加总理特鲁多启动《紧急状态法》，应对自由车队抗议](/content/gnews/22/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [乌总统表示俄罗斯可能周三发动袭击，实际并非如此](/content/gnews/20/README.md)
+### [乌总统表示俄罗斯可能周三发动袭击，实际并非如此](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [华盛顿特区2月15日起停止疫苗强制令](/content/gnews/21/README.md)
+### [华盛顿特区2月15日起停止疫苗强制令](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [南韩3月9日举行总统大选，反中立场影响大选结果](/content/gnews/22/README.md)
+### [南韩3月9日举行总统大选，反中立场影响大选结果](/content/gnews/25/README.md)
  ` 波士顿五月花农场金融部`
 
-### [标题: 加拿大安大略省撤销疫苗接种通行证](/content/gnews/23/README.md)
+### [标题: 加拿大安大略省撤销疫苗接种通行证](/content/gnews/26/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [疫情实记：家人心灵上的中共病毒](/content/gnews/24/README.md)
+### [疫情实记：家人心灵上的中共病毒](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
 
-### [印度政府加码禁用54个中共应用程序](/content/gnews/25/README.md)
+### [印度政府加码禁用54个中共应用程序](/content/gnews/28/README.md)
  ` NFSC News`
 
-### [运动员发布奥运村漏水消息 被中共要求删除](/content/gnews/26/README.md)
+### [运动员发布奥运村漏水消息 被中共要求删除](/content/gnews/29/README.md)
  ` NFSC News`
 
-### [英国官方证明中共病毒疫苗诱发“艾滋病”](/content/gnews/27/README.md)
+### [英国官方证明中共病毒疫苗诱发“艾滋病”](/content/gnews/30/README.md)
  ` NFSC News`
 
-### [莫得纳CEO删除推特抛售公司股票达4亿美元](/content/gnews/28/README.md)
+### [莫得纳CEO删除推特抛售公司股票达4亿美元](/content/gnews/31/README.md)
  ` NFSC News`
 
-### [谁是2022年度的最大输家](/content/gnews/29/README.md)
+### [谁是2022年度的最大输家](/content/gnews/32/README.md)
  ` 秘密翻译组-原创组`
 
-### [欧洲自由车队涌入欧盟总部布鲁塞尔抗议疫苗暴政](/content/gnews/30/README.md)
+### [欧洲自由车队涌入欧盟总部布鲁塞尔抗议疫苗暴政](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [世界的所有的经济在崩塌之际 躺平币使用既金钱](/content/gnews/31/README.md)
- ` DC政经`
-
-### [加拿大特鲁多援引紧急命令打击“自由车队”](/content/gnews/32/README.md)
+### [加拿大特鲁多援引紧急命令打击“自由车队”](/content/gnews/34/README.md)
  ` 澳喜特战旅Gnews`
 
-### [五月花简报（02/14/2022）](/content/gnews/33/README.md)
+### [五月花简报（02/14/2022）](/content/gnews/35/README.md)
  ` mayflowertranslate`
 
-### [澳大利亚敦促中共就乌克兰问题谴责俄罗斯](/content/gnews/34/README.md)
+### [澳大利亚敦促中共就乌克兰问题谴责俄罗斯](/content/gnews/36/README.md)
  ` 走进澳洲`
 
-### [太平联盟董事长中共间谍单伟建将美国养老基金卖给中共](/content/gnews/35/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中日财经爆┃印度再禁54款中共国手机APP](/content/gnews/36/README.md)
+### [中日财经爆┃印度再禁54款中共国手机APP](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [文贵直播大事记——七哥为什么要讲昆仑山脉和帕米尔高原（三）](/content/gnews/37/README.md)
- ` GNotes真.贵.记.录`
 
 ### [加拿大政府和媒体对自由车队进行抹黑](/content/gnews/38/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`

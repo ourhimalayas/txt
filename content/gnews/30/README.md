@@ -2,24 +2,49 @@
 ---
 
 
-## 欧洲自由车队涌入欧盟总部布鲁塞尔抗议疫苗暴政
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2007552/)
+## 英国官方证明中共病毒疫苗诱发“艾滋病”
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2007696/)
 
-#### 翻译/撰稿：zzballack
+作者：纽约香草山 – 侠肝义胆
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-2-10.jpg)图片来源：英国独立报
-据《布雷特巴特新闻网》（Breitbart News）2月14日报道，2月14日上午，尽管当局颁布禁令禁止示威，但是由反对强制令的车主组成的自由车队仍会前往欧盟首都布鲁塞尔，举行抗议活动，反对封锁和疫苗强制令。
 
-据报道，大约有1300辆汽车正在进入布鲁塞尔。到目前为止，有30辆汽车被警方拦截。布鲁塞尔警方已警告司机不要试图驾车进入该城市。巴黎、维也纳等欧洲城市的市政当局也采取了相似举措，以阻止类似加拿大的反强制令抗议活动发生。
 
-据《布鲁塞尔时报》（Brussels Times）报道，车队的抗议者们表示，无论当局怎么表态，他们都将继续执行他们的计划。一位活动人士在网上说道：“他们无法阻止我们。继续为你的自由而战，无论抗议是否被禁止！这个政府实在是烂透了。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-上周末，巴黎、维也纳这两座城市的数千民众走上街头，反对封锁措施。在法国，警方动用了装甲车和催泪瓦斯驱散示威者，近100人被逮捕，另有数百人被罚款。在维也纳，一支车队穿过市中心游行抗议。记者马库斯·苏尔茨巴赫（Markus Sulzbacher）表示，车队抗议活动将成为维也纳反封锁示威活动的一个常规特征。
 
-加拿大的车队抗议行动越来越被世界各地所效仿，展示了人们不会屈服于违宪的、没有科学依据的疫苗暴政的决心，也不接受被以中共、达沃斯党为首的全球黑暗势力奴役。自由不是免费的，不自由，毋宁死！
 
-新闻来源：[‘They Can’t Stop Us’: Freedom Convoy Rolls into EU’s Capital Despite Government Ban](https://www.breitbart.com/europe/2022/02/14/they-cant-stop-us-freedom-convoy-rolls-into-eus-capital-despite-government-ban/)
+外媒2月13日报道，英国卫生安全局数据证明，随着时间的推移，中共病毒疫苗会损害人体免疫系统，造成疫苗诱发的“艾滋病”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide6-3.jpg)
+2月3日，英国卫生安全局发布的一月份病毒病例数据。按照疫苗接种状态分类，该月大多数病例属于接种三剂疫苗的病例。该数据表明，一个人的免疫系统接触疫苗的次数越多，病毒发病率就会越高。
+
+更重要的是该数据显示疫苗对人体免疫系统损害程度，研究发现，英国完全接种疫苗的成年人比未接种者的免疫应答低65％。 因此，完全疫苗接种者其人体免疫力只有正常人的35％，根本无法抵抗病毒和癌细胞侵蚀。
+
+参考链接：
+1. [UK government data proves COVID-19 vaccines continue to damage immune systems over time, creating vaccine-induced “AIDS”](https://newstarget.com/2022-02-13-uk-data-shows-vaccines-damaging-immune-systems.html)
+2. [News Target 02月13日报道【英国政府数据证明，随着时间的推移，COVID-19 疫苗会继续损害免疫系统，造成疫苗诱发的“艾滋病”】](https://gettr.com/post/puddb87733)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+
+总编/编辑：DM
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
