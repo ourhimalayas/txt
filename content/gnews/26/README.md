@@ -2,37 +2,78 @@
 ---
 
 
-## 美元欧元互存，经济崩塌喜币将是最大赢家
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2006014/)
+## 灭共者之郭氏情报站（25）2022/02/13 文贵大直播
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/2006086/)
 
-作者：纽约磐石农场 – 在远方
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-在2月13日的大直播中，郭文贵先生表示，美元与欧元之间的关系是相互依存，一触即发的世界大战源于习近平的狂妄无知，而世界经济崩塌之时，喜币将是最大赢家。
+设计者：纽约香草山设计部 — 喜马拉雅大喵儿，天马星空J
 
-郭先生分析，美元和欧元不存在消灭对方的说法。现在，弱美元对经济有利，美国是最大的受益者。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture1111-1.jpg)
-他指出，中共的疯狂是因为习对国际政治的无知、狂妄，以及中共内部相互欺骗所导致的。就像中共给习汇报工作时，欺骗他说，“普京称冬奥会是一场绝美绝妙的盛会”。这是一种国际政治欺骗，给完全被洗脑的中共国老百姓，营造出一个集体性、自杀性的结果。
 
-他认为，中共的疯狂会被俄罗斯彻底利用，赢家是俄、美，被消灭的则一定是中共，欧洲也会因此而重生。在此过程中，和俄罗斯有关的金属产业，价格都会暴涨。金融市场也会暴跌暴涨起伏剧烈，虚拟货币将是大赢家。
 
-郭先生强调说，尤其是当国家主权认可、大额投资进入、HPAY全面使用这三条具备，再加上接下来的“使用即金钱”的躺平币，都说明喜币将是最大赢家。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-参考链接：[美元欧元互存，经济崩塌喜币将是最大赢家](https://www.gettr.com/post/pudtie436f)
 
-![This image has an empty alt attribute; its file name is calendar.png](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
-总编：DM
-编辑：DM
-校对/发稿：Hetangyuese
+
+
+
+
+
+
+**灭共者-郭氏情报站**
+**2022年2月13日 文贵大直播**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/db4165b9994f1cdb.png)
+
+1、世界面临战争危机。美军的代理人战争已经到位。能源市场，石油等紧缺物资大涨。共产党造成了狼狈为奸的全球局面，对爆料革命有利，但是世界一片狼藉。中共在国内叫嚣需要一场战争。
+
+2、喜币场外交易60美元买不到，200美元成交的好几笔。牢记3件大事：国家主权认可，大额投资，Hpay全面使用。爆料革命战友是无苗灭共者！这五个字价值无限。不会超过3次直播的时间，世界人类即将发生巨变。
+
+3、法国和加拿大的大卡车运动：
+1）来源于郭先生发起的香港运动；
+2）大卡车运动将开启世界和平对抗暴政的和平方式；3）把现代经济和政治完美结合。
+
+4、欧元暴涨，美元大跌。欧盟的核心利益是俄罗斯别打仗别东扩，美国的核心利益是俄罗斯开打，弱化欧洲。欧洲会因此重生，共产党会被灭掉。芯片，石油，运输，俄罗斯控制的金属会暴涨。虚拟货币是大赢家。
+
+5、WTO，WHO，UN联合国变成了共产党的玩物。只要共产党参与的组织都是无法无天，腐败。北京冬奥会就是对国际奥林匹克组织最大的羞辱，参加冬奥会的运动员都会被清算，是他们一生最大错误。
+
+6、郭先生准备申请个人破产。战友不是因为主流媒体的报道，参加爆料革命。七哥开启爆料革命，从来没有在乎过个人的羽毛，只在乎战友。
+
+7、卡车事件，战争开启不会掩盖疫苗灾难。世界焦点会回归武汉实验室到底发生了什么。世界直面共产党，这是生化病毒。
+1）世界文明政治形势彻底改变；
+2）极左会被彻底纠正；
+3）经济泡沫破灭，数字货币时代。无论哪一条，爆料革命都是大赢家。
+
+8、共产党高官子女，这些年已经陆续把资金撤出美国。财富主要藏匿在数字货币，瑞士卢森堡。如果欧洲不和美国联手，目前动不了共产党的本。这就是必须联合欧洲共同灭共的原因。
+
+**上一期：**
+
+**[灭共者之郭氏情报站（二十四）2022/02/11 文贵大直播 – GNEWS](https://gnews.org/zh-hans/1997157/)**
+
+
+
+**编辑/发稿：小鹿**
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-124.jpg)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
 
  
 

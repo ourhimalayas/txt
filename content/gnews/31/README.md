@@ -2,26 +2,34 @@
 ---
 
 
-## 德国总理宣布向乌克兰提供财政援助
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2005925/)
+## 场外交易卖掉喜币 将来必后悔
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2006012/)
 
-撰稿：东京樱花团/文小白
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-5.jpg)
-日本每日新闻2月15日报道，德国总理宣布向乌克兰提供财政援助，并表示如果俄罗斯入侵将对其进行 “制裁”。
+作者：纽约香草山 – Ivy001
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+2022年2月13日，在大直播中谈到喜币场外交易时，郭文贵先生说，现在卖掉喜币套现的人，将来必定会后悔。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture1-20.jpg)
+谈到最近喜币的场外交易价格时，他说，60块都买不着。但是在场内，喜币被压低到了40美金，而场外交易有好几笔都在200左右交易的。这几天场外和场内的巨大价格差距，是因为基金在利用2亿个币，故意吸引卖家抛售，然后基金趁机买入。
 
-14日，德国总理安格拉-肖尔茨访问了局势高度紧张乌克兰，并会见了总统泽伦斯基。肖尔茨宣布了向乌克兰提供财政援助的新政策，并警告说，如果俄罗斯入侵乌克兰，将采取 “影响非常深远的有效制裁”。然而，在乌克兰加入北大西洋公约组织（NATO）等问题上存在着分歧。
+文贵先生表示，现在卖币的人，不超过三个月，一定会后悔。请大家关注三个条件，1. 国家主权认可，2. 大额投资，3. HPAY的全面使用。并告诫战友们一定要记住，在世界经济崩塌的时候，HPAY，喜币，躺平币，使用即金钱。
 
-继法国总统马克龙7日访问俄罗斯之后，肖尔茨总理将于15日访问俄罗斯，与俄罗斯总统普京会面，以帮助缓解与乌克兰的紧张关系。 　在与泽伦斯基总统会晤后的联合新闻发布会上，肖尔茨总理呼吁俄罗斯军队从乌克兰边境撤出，并表示俄罗斯对乌克兰的军事入侵 “将对俄罗斯产生严重的政治、经济和战略地缘政治后果。他还宣布计划向乌克兰提供约1.5亿欧元的紧急贷款以支持该国。
+参考链接：[场外交易卖掉喜币 将来必后悔](https://gtv.org/video/id=62090115a456fe1dea300f5a)
 
-另一方面，肖尔茨总理强调了谈判的必要性，他说：“我们准备与俄罗斯进行严肃的对话。至于俄罗斯要求北约不要将其成员资格扩大到乌克兰”，肖尔茨说：“乌克兰的成员资格问题实际上根本不在议程上。俄罗斯正在把此事弄成一个重大的政治问题。”作为回应，泽伦斯基总统重申了乌克兰加入北约的愿望。
+![This image has an empty alt attribute; its file name is calendar.png](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
-信息来源：
+总编：DM
+编辑：Jack Li文阳
+校对/发稿：Hetangyuese
 
-[独首相、ウクライナへの財政支援表明　ロシア侵攻なら「制裁措置」](https://news.yahoo.co.jp/articles/6056c9be27339367b178e721ac2159a20762f115%20)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
