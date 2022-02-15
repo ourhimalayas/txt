@@ -2,25 +2,33 @@
 ---
 
 
-## 安省省长福特女儿拆台 支持车队自称不戴口罩
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2005488/)
+## 美联储将取消对完全接种疫苗的加拿大旅行者的抵达前 PCR 检测
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2005507/)
 
-作者：Brooke Houghton
+作者：Nicole Bogart
 翻译：KK
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-204.jpg)
-安省省长福特的女儿Krista Ford Haynes这个月9号在社交平台，再次发表了她对安省的口罩政策不满。Haynes不仅赞扬了渥太华的抗议行动，还分享了一个她是如何在公共场合不戴口罩的视频。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-206.jpg)
+一位政府高阶人士告诉CTV新闻，联邦政府即将取消针对已经完全接种疫苗的加拿大人，回国时无需再提前做PCR测试。
 
-Haynes称自己是 “微笑倡导者 “和 “自由斗士”。在帖子中，她说自己经历了不戴口罩需要面临的各种情况。她还讲解了，人们应该如何处理这种情况：比如声称自己有医疗豁免，或者必要时离开商店。
+目前，任何到国外旅行的人，在返回加拿大之前必须提供PCR阴性测试的证明。该测试必须在预定的航班出发或抵达陆地边界的前72小时内进行。
 
-Haynes说：”当他们强制要求戴口罩时，我采取了强硬的态度。在整个新冠疫情期间，我几乎没有戴过口罩，也没有因此遇到过特别糟糕的情况。”
+CTV新闻已经证实，渥太华将在本月底取消这个要求。加拿大人将被要求仅出示抗原测试阴性的证明，而不是PCR测试，这一新规定与美国类似。
 
-去年夏天，Haynes在没有戴口罩的情况下进入一家Shoppers，一名男子因为她没有戴口罩而 “非常生气”，对她大喊大叫。而Haynes只是微笑着说：”祝你有个愉快的一天”，然后继续自己的事情。
+卫生部长Jean-Yves Duclos周五表示，联邦政府将在下周宣布关于加拿大边境的疫情新规。
 
-而后这名男子找到了这家Shoppers的经理，经理又打电话给店主。Haynes拒绝戴上口罩，但表现 “非常有礼貌”，店主在她离开商店之前 “从未出现过”。
+自12月中旬出现COVID-19的Omicron变种病毒后，联邦政府建议不要进行非必要的国际旅行。
 
-在Haynes的视频中，她拿出一个塑料口罩，挂在她的鼻子下面。Haynes说，她把它用于像Costco这样的商店，因为那里的口罩规定执行得更严格。
+入境加拿大的外国公民，以及在加拿大境内乘坐飞机、客运列车或船只旅行的人，必须接种疫苗。
 
-来源：https://www.narcity.com/toronto/doug-fords-daughter-shares-how-she-doesnt-wear-a-mask-calls-to-end-the-mandates
+Duclos在一次新闻发布会上说，新一轮Omicron疫情最严重的时候已经过去，政府将”继续调整”相应的措施。
+
+首席公共卫生官Theresa Tam博士也表示，正在评估最新的旅行政策。
+
+由于Omicron的传染性，Tam说很难在边境阻止病例传播入境，并防止受感染的人将病毒传染给其他人。
+
+加拿大的新病例数量已经下降到每天约11,000例，但这一数据是在限制仅对高危人群进行检测的前提下得出的。
+
+来源：https://www.ctvnews.ca/health/coronavirus/feds-to-eliminate-pre-arrival-pcr-testing-for-fully-vaccinated-canadian-travellers-source-says-1.5778453
 
 **免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 ![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)

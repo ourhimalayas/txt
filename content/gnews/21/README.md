@@ -2,16 +2,55 @@
 ---
 
 
-## 【粤语配音】2022年2月14日：共产党荒唐的冬奥会对华人影响巨大
-` MOS香港部` [轉載自GNews](https://gnews.org/zh-hans/2005502/)
+## 约克区警方在瓦萨加海滩寻找两名与绑架妇女有关的嫌疑人
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2005521/)
 
-紐約香草山-香港部
+作者：Kerrisa Wilson
+翻译：KK
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-207.jpg)
+约克区警方表示，他们正在通缉两名嫌犯，他们疑似与上个月在Wasaga Beach被绑架一名妇女有关。
 
-这个谷爱凌母女事件和北京冬奥会，还有全世界都在瞪大了眼睛，在等待着俄罗斯和乌克兰(开战)，然后金融市场，你看看今天的场外交易，你看看今天的整个的大幅的经济动荡，包括大家都看到各国政府都紧张死了，因为疫苗灾难，在全世界上这个火已经开始了，还早着哪战友们。
+去年12月20日，警察赶到列治文山King William Crescent的一处住宅，该住宅靠近Yonge街和Bantry大道，有人报警称一名妇女在地下停车场遭到袭击。
 
-加拿大、法国、澳大利亚，大家看到疫苗灾难最受害的是以色列，然后就是最夸张的澳大利亚，然后是加拿大，是吧，然后是法国，大家也要看到，也是在这些文明的国家老百姓奋起反抗，是不是文明，文不文明不是你哪个政府说了算的，是整个全世界人民作出评价，就世界上老百姓发声的，还是在这些文明的国家，如果中国老百姓能说话，中国人的智慧要打开，中国人的智慧真如海，真的智慧的水会把一切灾难冲掉，就不会有这么多锁链女，也不会有那么多悲剧，也不会那么多杨改兰，也不会有今天让全世界笑掉大牙的所谓的冬奥会，也不会有谷爱凌母女。
+警员Laura Nicolle说：”两名嫌疑人从车上下来，袭击了女性受害者。她被人用煎锅砸了一下，然后嫌疑人回到车里，从该地区逃走。”
 
-一个国家找出一个在全世界人民面前，在摄像机面前找出了一个，不允许有一国两护照的中国政治下的，拥有美国护照又登记到中国，为中国去夺奥运金牌的，这种荒唐的游戏，丢尽了中国人的脸，而且把海外华人跟全世界对立起来，情何以堪，危机和危害会无法消除的长远的影响，你们想过吗？这帮流氓这帮王八蛋，共产党和共产主义不灭，世界没有安宁。
+通过调查，警方确定袭击事件中使用的车辆是在多伦多的Finch大道和Don Mills路地区被盗的车辆。
+
+两名男性嫌疑人都为25至30岁之间。
+
+其中一名嫌疑人身高6英尺2英寸，中等身材，棕色短发。他戴着口罩，穿着迷彩、蓬松的夹克和深色裤子。
+
+另一名嫌疑人身高5英尺10英寸，中等身材，身穿深色连帽外套，戴着口罩。
+
+警方周五确认事件中的受害者是37岁的Elnaz Hajtamiri，并确认她就是1月12日在Wasaga Beach的一处住宅中被绑架的妇女。
+
+Nicolle说：”我们相信这与OPP（安大略省警察）正在进行的绑架调查有关，为同一个受害者。”
+
+根据OPP的说法，Hajtamiri在她位于Trailwood Place的住所，被三名穿着假警察制服的男性嫌疑人带走。
+
+嫌疑人来到家中，告诉Hajtamiri是来逮捕她的。警方说Hajtamiri试图拨打9-1-1，但被制止，随后遭到绑架。
+
+星期五，Hajtamiri的家人聘请的律师Devin Bains说，绑架她的嫌疑人还没有被确认。她的家人呼吁嫌犯能平安释放Hajtamiri。
+
+Bains告诉CTV新闻：”他们非常希望Elnaz回家，我们必须保持希望。”
+
+警方继续要求任何知情者拨打1-866-876-5423转7250联系约克区警方，或匿名联系犯罪制止者1-800-222-TIPS。
+
+来源：https://www.cp24.com/news/york-regional-police-searching-for-2-suspects-in-connection-with-abduction-of-woman-in-wasaga-beach-1.5777935
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
