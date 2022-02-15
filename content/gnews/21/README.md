@@ -2,31 +2,36 @@
 ---
 
 
-## 乌克兰宣布2月16日为团结日，美更多战机抵达波兰
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2006936/)
+## 科学家列出中共病毒起源于中共实验室的10个理由！
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2007114/)
 
-#### 撰稿：彩虹       
+**By:秘翻新闻**
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1469.png)图片来源：雅虎
-据《国会山报》2月14日报道，周一，乌克兰总统沃洛基米尔·泽伦斯基（Volodymyr Zelensky）宣布，周三（2月16日）将是一个团结的日子，因为俄罗斯可能在该日开始入侵他的国家。
+***2022-02-15***
+![](https://assets.gnews.org/wp-content/uploads/2022/02/6-15.png)图片源于:福克斯新闻
+据《福克斯新闻》2月14日报道，自2020 年初，中共病毒全球肆虐开始，实验室泄漏理论一直被排除在中共病毒起源的早期论文之外。如今，随着众多内幕被揭露，使病毒起源于武汉病毒研究所的理论已不再被视为一个阴谋，而是在科学界中获得了更多的关注，要求进一步调查。
 
-泽伦斯基在脸书（Facebook）上发布了一个声明，声明写道，宣布“团结日”（ Day of Unity）的法令已经签署。并说：“我们听说，2月16日将是（被）攻击的日子。”
+日前，福克斯新闻与几位研究过中共病毒起源的科学家和调查人员进行了交谈，他们列出了10个理由表明中共病毒大流行起源于武汉实验室：
 
-与此同时，《国会山报》说，据波兰国防部长布拉斯札克（Mariusz Błaszczak）称，又有8架美国F-15战机抵达波兰。
+1) 未发现动物感染 SARS-CoV-2
+2）没有任何大流行前感染的证据
+3）病毒的遗传指纹是非常独特，从未在天然冠状病毒中观察到
+4）病毒出现在人类身上，已经优化成极具传染性的版本
+5）武汉病毒研究所此前就在研究蝙蝠冠状病毒，并从事《功能性获得》的研究
+6）中共不配合调查，使调查人员没有完全进入实验室，也没有获得全部数据
+7) 实验室泄漏并不少见，但武毒所不应该在大流行开始后这么快就被拆除
+8）武汉病毒研究所的研究人员在社区爆发前就生病了
+9）武汉病毒研究所与中共国军方进行秘密研究项目
+10) 美国国立卫生研究院(NIH) 官员和相关人员，对迅速关闭实验室泄漏理论进行了精心策划的努力
 
-他在推特（Twitter）上写道：“更多的美国F-15战斗机今天降落在拉斯克（Lask）基地，在上周抵达波兰的那些飞机基础上再增加8驾飞机。”
+新闻来源：[https://www.foxnews.com/politics/reason-scientists-believe-coronavirus-originated-lab-wuhan-china](https://www.foxnews.com/politics/reason-scientists-believe-coronavirus-originated-lab-wuhan-china)
 
-报道说，现在，莫斯科在它与乌克兰边境附件布置了10万兵力，还有更多的兵力正在陆续赶到。而上周的数量是83个。
+(秘翻新闻 文洋MAS 编译报导)
 
-作为回应，美国正在向波兰、罗马尼亚和德国部署或重新部署6000名士兵，其中4700人被派往波兰。
+发布 : 恩典
 
-**新闻来源**
-
-[Ukrainian president declares Wednesday a ‘day of unity’ amid fears of Russian attack](https://thehill.com/policy/international/594151-zelensky-says-ukraine-has-been-informed-feb-16-will-be-day-of-attack)
-
-[More US fighter jets arrive in Poland](https://thehill.com/policy/defense/594131-more-us-fighter-jets-arrive-in-poland)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMAGE-2021-12-13-113746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

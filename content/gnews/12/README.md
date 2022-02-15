@@ -2,33 +2,43 @@
 ---
 
 
-## 有声｜美参议员马歇尔将提出法案 终止中共病毒国家紧急状态
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2007018/)
+## 宋祖英买黄永玉50万/尺*百尺的猴戏莲花送给属猴领导
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2007209/)
 
-**By:秘翻新闻**
+G-TV视频链接：[https://gtv.org/video/id=620b1e0db0af02660af3cb60](https://gtv.org/video/id=620b1e0db0af02660af3cb60)
 
-***2022-02-15***
+**郭文贵先生：**就共产党这个邪恶，亨利小哥我在这跟你说这话的时候，你陪练我不知啥背景，陪谁练哪？他要是过去陪着彭磊练球，嗯，陪练就厉害了是吧？爱德华，你要在国内你要陪着祖英同志，你帮她戴过胸罩，那你这事儿你麻烦大了是吧？现在谁拽过胸罩，郝海东跑了你可跑不了，搞你是吧？不是开玩笑的是吧？
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-15-下午1.58.13.png)
+你去想想亨利小哥，你知道宋祖英一个人身价不是几十亿呀，你主明星唱歌咋唱出几十亿、上百亿，她买黄永玉的画50万一尺，到那儿一画，来个50尺、100尺的，来个《莲花塘》，然后说：“《莲花塘》我送给领导，领导属猴儿的，这莲花咱跟猴儿放在一起啊？” 黄永玉啪啪就写出来了，是不是？“咵咵”写上词：这特么世界已经老了……唉，这特么世界已经变坏了，我也变老了，然后下边署着“猴戏莲花”。哇塞，50万一尺的画宋祖英拿走了，那宋祖英得画成啥呀？她给你写个几百万的画，得给她啥？你如果再拽两次胸罩，东弟再流点儿水，是吧，你想它是啥代价呀？老佛爷、就所谓的江泽民搞了，你说你谁算老几呀？
 
-**据《福克斯新闻》2月14日报导，美国共和党参议员罗杰·马歇尔计划在周一提出立法，旨在结束目前的中共病毒国家紧急状态。**
+字幕来源：[2022年1月31日壬寅年新春大直播全文字版（四）](https://gnews.org/zh-hans/1947613/)
 
-**该立法由《国家紧急状态法》，简称NEA中的一项条款提供支持，该法律在援引时授予总统特别权力，以处理自然灾害或战争之外的国家紧急状态。**
+编辑整理：Jacques；
 
-**据报道，马歇尔的法案将撤销联邦政府在全国范围内应对大流行病的许多权力。**
+字幕文件制作：知津；
 
-**马歇尔在周一的电子邮件中表示，随着中共病毒病例和住院人数的减少，94%的美国人对病毒有免疫力，口罩规定也在逐渐减少，70%的美国人同意现与病毒共同相处，并且很明显我们需要一个新的方法来应对并处理病毒。马歇尔认为这种新方法始于结束中共病毒国家紧急状态。**
+视频制作及上传：Cindy；
 
-**报道称拜登为应对病毒大流行，援引了国家能源局的规定，颁布并继续实施国家紧急状态。 并将紧急状态声明延长至2022年3月1日，而且很可能会再次延长紧急状态声明。**
+G-News发布：小满；
 
-**报道指出，负责决定国家紧急状态是否应该继续应该是国会，但现状是大部分决定权被交给了行政部门。**
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-（** 秘翻新闻 Grace 编译报导 ）**
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-**发布:星星**
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMAGE-2021-12-13-113746.jpg)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

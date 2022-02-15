@@ -2,24 +2,43 @@
 ---
 
 
-## 中日财经爆┃渣打香港成为首家境外直接参与CIPS外资银行
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2007070/)
+## 在地下室接收石发亮金马车的宋祖英也属猪今年流年不利
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2007372/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1471.png)[图片来源](https://gnews.org/wp-admin/post-new.php#imgrc=Pwm2VPihbhIe7M&amp;imgdii=6Wen-ulGa7nNYM)
-渣打集团旗下渣打香港2月14日宣布，公司取得跨境银行间支付清算有限责任公司（CIPS）直接参与者资格，为首家位于中共国境外能直接参与的外资银行。
+G-TV视频链接：[https://gtv.org/video/id=620b1b73b0af02660af3cad6](https://gtv.org/video/id=620b1b73b0af02660af3cad6)
 
-CIPS是指人民币跨境支付系统，该系统连接中共国及离岸人民币中心和市场，覆盖全球所有主要时区。
+**郭文贵先生：**就那一次，这里以前她住过很多次，她每次住在那儿，就地下室就忙活了，就是经常给戒严，亨利小哥你知道，领导搬着什么古董啊、什么洛阳的什么这古董、什么刚抓的什么盗墓贼都来了，当时的交通厅长石发亮给宋祖英真的是、就是那个什么金马车，喔噻，从地下室给送上去，就趴在那儿一个个给人家介绍，这就是小宋。
 
-渣打目前在全球39个市场提供人民币服务，并自2014年起获香港金融管理局指定为香港离岸人民币市场的一级流动性提供行。
+今天谈到小宋了，这小宋同志也属猪的，今年看来不太顺啊，是不是？属猪本来今年挺好的。我就讲这一点儿这个事情，你就知道共产党邪恶到什么程度，有邪恶到什么程度这个国家。我昨天我还在现场、我给Q May、还有甜甜我们在一起吃饭，我说：“我在美国当狗，我都不在中国当皇帝去。” 我就公开这么说，就那个国家民族已经被这些人强奸了、就是这个70年、100年，你都难想象人心糊涂到什么程度。
 
-渣打香港自2015年起成为CIPS间接参与者，渣打集团旗下的中共国子公司渣打银行（中国）则在同一年成为首批外资银行在中国境内的CIPS直接参与者。2021年．渣打中国的CIPS业务量在外资行中位列第一，参与者拓展在外资行中也位列第一。
+字幕来源：[2022年1月31日壬寅年新春大直播全文字版（四）](https://gnews.org/zh-hans/1947613/)
 
-消息来源：[外銀首家 渣打香港 獲陸跨境清算直接參與資格](https://tw.news.yahoo.com/%E5%A4%96%E9%8A%80%E9%A6%96%E5%AE%B6-%E6%B8%A3%E6%89%93%E9%A6%99%E6%B8%AF-%E7%8D%B2%E9%99%B8%E8%B7%A8%E5%A2%83%E6%B8%85%E7%AE%97%E7%9B%B4%E6%8E%A5%E5%8F%83%E8%88%87%E8%B3%87%E6%A0%BC-201000887.html)
+编辑整理：Jacques；
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+字幕文件制作：知津；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

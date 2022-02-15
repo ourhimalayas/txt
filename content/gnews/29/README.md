@@ -2,26 +2,26 @@
 ---
 
 
-## 加拿大公民权利协会谴责特鲁多动用国家紧急法
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2006624/)
+## 英国官方实验室证实疫苗内含氧化石墨烯
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2006915/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3-43.jpg)
-图片来源： www.dwnews.com
+加拿大温哥华杨帆农场 枫叶快讯
 
-零对冲网2月14日报道，加拿大公民权利协会已谴责总理特鲁多动用紧急法，他们在周一发推称“并没有触及关键点使加拿大政府必须采取此法。”
+采编撰稿：自由法兰西
+![](https://i0.wp.com/dailyexpose.uk/wp-content/uploads/2022/02/image-264.png?resize=639%2C606&amp;ssl=1)dailyexpose
+据英国媒体《内幕消息》2月13日报道，英国官方实验室已证实，现有的“新冠病毒”疫苗中的确含[氧化石墨烯]成份。
 
-紧急法仅仅在一个“严重威胁加拿大政府行使主权，安全和地区完整时”以及当局势不能有效地处理加拿大其他法律时可以动用。
+报道称，此次送检疫苗包括[辉瑞]，[莫德納]和[阿斯利康]三家制药厂的产品。其中，生产商未申报的疫苗内含物是本次实验室检测的重点对象。分析结果显示，尽管所有送检样本中都存在石墨烯，并且普遍采用脂质纳米颗粒作为药物输送机制，但这些碳复合材料、石墨烯化合物和氧化铁等物质都是在疫苗成分列表上所没注明的。
 
-而特鲁多周一试图动用紧急警察权力来驱散抗议强制疫苗和其他限制措施者，他说：“ 这不是和平抗议，当地警察已难以执行法律，联邦政府要介入。这将保卫加拿大的安全，保护人民的工作和重塑自信。”
+据悉，石墨烯纳米材料可以穿透人体的天然保护屏障，进而损害中枢神经系统。而石墨烯氧化物则不仅损害人体器官，破坏血液健康，引发癌症，而且还可导致基因功能发生衰变。但各国政府和生产药商却从未告知民众其疫苗中含有这些致命物质。
 
-阿尔伯塔，曼尼托巴，魁北克,以及萨斯喀彻温省反对特鲁多对卡车司机动用紧急法，特鲁多的第一个动作企图遏止抗议的卡车司机的资金，采用反洗钱法规则，威胁他们是金融上的“恐怖主义”。特鲁多政府把人们的和平抗议称作是“恐怖主义”！
+目前，该调查报告已提交英国警方刑事部门，以期当局尽快采取进一步调查和追责行动。
 
-周一美加大使桥重开，但抗议者们在全国各地关键通道的封堵运动仍在继续，看起来特鲁多不想答应抗议者的诉求。
+校对编辑：硫酸羟氯喹64
 
-##### 新闻来源： [Canadian Civil Liberties Association Condemns Trudeau For Invoking National Emergency Over Truckers](https://www.zerohedge.com/political/trudeau-unleash-never-used-emergency-powers-act-counter-protests-us-canada-bridge-reopens)
+发稿：青青
 
-#  
+原文链接： [https://dailyexpose.uk/2022/02/13/uk-lab-confirms-graphene-in-covid-vaccines/](https://dailyexpose.uk/2022/02/13/uk-lab-confirms-graphene-in-covid-vaccines/)
 
  
 

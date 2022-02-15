@@ -2,44 +2,47 @@
 ---
 
 
-## 2021全球清廉印象指数(CPI) 中共国仅45分
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2006601/)
+## 以色列人用加拿大式的车队抗议 Covid 规则
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2006809/)
 
-编译：文斗
+**翻译：文扬**
+**编辑：Candy**
 
-根据国际反贪腐组织「透明国际」（Transparency International）最新公布的清廉指数显示，中共国仅得45分，比全球平均分43分才高出2分。冠军国家是丹麦、芬兰及新西兰为88分。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/以色列.png)图片来源：insiderpaper网
 
-台湾25名(68分），美国27名(67分）。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/4-30.jpg)
-清廉印象指数是根据各国商人、学者与国情分析师，对各国公职人员与政治人物贪腐程度的评价，以满分100分代表最清廉，资料来源包含自由之家、瑞士洛桑国际管理学院（IMD）等10个国际组织。主观感知调查所呈现的结果未必同一个政府真实的腐败程度百分之百地相吻合。
 
-我们以前后国家做个参照，帮助读者有感性认识。
+周一（2月13日）， 成千上万的以色列人从全国各地涌入耶路撒冷，组成 “自由车队”反对冠状病毒限制，这与加拿大和世界各地类似的交通堵塞抗议活动完全一样。
 
-中共国45分，与罗马尼亚、瓦努阿图、圣多美普林西比齐名，并列第66名。
+示威者在走向以色列政府所在地的过程中按响了汽车喇叭，并挥舞着加拿大和以色列的国旗。抗议者举着反对戴口罩和其他冠状病毒限制的标志。其他活动人士在全国各地的路口和桥梁上拦截交通。
 
-比中共国低一分（44分）的是牙买加、突尼斯、南非。
+耶路撒冷的车队使交通陷入困境，其示威活动与加拿大的大规模抗议活动类似，该活动导致美国和加拿大的一个主要过境点关闭数日。
 
-2021年全球平均分43分，得分43分的国家有：所罗门群岛、加纳、匈牙利、科威特，塞內加而。
+类似的运动已经在法国、荷兰、瑞士、澳大利亚和新西兰兴起。
 
-全球50名之后，但排在中共国之前的国家有：塞浦路斯、格林纳达、卢旺达、沙特阿拉伯、阿曼、斯洛伐克、亚美尼亚、希腊、约旦、纳米比亚、马来西亚、克罗地亚、古巴、黑山。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/5-25.jpg)
-中共国2021年45分，较2012年39分，10年提高了6分，但「透明国际」报告指出：
+51岁的管理员沙尼·什洛莫（Shany Shlomo）说，她参加了在耶路撒冷举行的抗议活动，反对冠状病毒疫苗。
 
-**习加强了自上而下的控制，打击了一些腐败形式。然而，包括共谋勾结这样新的腐败形式已经开始出现，即高层官员利用其权力将以前的国有资产重新分配给自己和有政治关系的公司。此外，中共国的反腐败战略受到其对人权和基本自由的漠视之天然限制。这使得公民社会和新闻自由无法充当反腐败监督者。**
+她说：“没有人可以告诉我们应该把什么东西放进我们的身体。”
 
-报告指出，中共国等一些国家的领导人能够将自己描绘成比国家机构更有效，并赢得授权以获得和保持权力。然而，这些国家中只有少数国家设法在控制腐败方面取得了进展，并且这些成果仍然很脆弱。
+以色列是最早开展全国疫苗运动的国家之一，提供第三次和第四次加强注射，以抵消疫苗效力逐渐下降的影响。
 
-参考来源：
+最近几周，以色列当局放宽了限制，缩短了需要接种疫苗的场所名单。这是因为由高传播性的Omicron病毒株引发的失控感染似乎正在放缓。
 
-1、2021腐败印象指数
+上个月，有些日子出现了超过80,000个新的Covid病例。此后，感染率有所下降，周一登记的新病例约为3万个。
 
-[https://www.transparency.org/en/cpi/2021](https://www.transparency.org/en/cpi/2021)
+30岁的商业和法律专业的学生特兹维“`·肖里(Tzvi Shori)说，他想在冠状病毒限制中 “为自己的权利而战”。
 
-2、亚太地区2021年的CPI：巨大的腐败和缺乏自由阻碍了进展[https://www.transparency.org/en/news/cpi-2021-for-asia-pacific-grand-corruption-holding-back-progress](https://www.transparency.org/en/news/cpi-2021-for-asia-pacific-grand-corruption-holding-back-progress)
+他说：“你在夺取和控制并用很短的绳子拴住我们，基本上一直在说‘不’，现在你要按我们说的做。”
 
-3、维基百科-清廉印象指数
+原文链接： [Freedom convoy: Israelis protest Covid rules in Canada-style convoy – Insider Paper](https://insiderpaper.com/freedom-convoy-israelis-protest-covid-rules-in-canada-style-convoy/)
 
-[https://zh.m.wikipedia.org/wiki/%E8%B2%AA%E6%B1%A1%E6%84%9F%E7%9F%A5%E6%8C%87%E6%95%B8](https://zh.m.wikipedia.org/wiki/%E8%B2%AA%E6%B1%A1%E6%84%9F%E7%9F%A5%E6%8C%87%E6%95%B8)
+***发布：Candy***
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

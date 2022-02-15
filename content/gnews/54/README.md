@@ -2,10 +2,10 @@
 ---
 
 
-## 奥运村芬兰村的天花板水管漏水
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2003679/)
+## 盖特将确保大卡车运动的信息顺利传递出去
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2003779/)
 
-02/12/2022 奥运村芬兰村的天花板水管漏水，中共官员的第一反应是要求芬兰运动员删帖。
+02/11/2022 盖特发言人凯兰·多尔：盖特将确保大卡车运动的信息顺利传递出去。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

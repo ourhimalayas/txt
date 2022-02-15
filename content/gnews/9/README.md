@@ -2,14 +2,14 @@
 ---
 
 
-## 喜币的成功与冬奥会的造假，只有爆料革命新中国联帮告诉全世界真相
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2007028/)
+## 从法庭不允许七哥举证看中共对美国法律界的渗透
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2007229/)
 
 作者:东京樱花团小视频组
 
-校对：东京樱花团/小视频组
+校对：东京樱花团小视频组
 
-发布：东京樱花团/小视频组
+发布：东京樱花团小视频组
 ![喜马拉雅东京樱花团](https://assets.gnews.org/wp-content/uploads/2022/02/yht.jpg)喜马拉雅东京樱花团
  
 

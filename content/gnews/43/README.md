@@ -2,36 +2,39 @@
 ---
 
 
-## 一马公司（1MDB）丑闻进入审判阶段
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2005908/)
+## 郭文贵先生谈喜币最牛的四大因素
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2006013/)
 
-![article cover](https://cdn.sanity.io/images/bl383u0v/production/dcce255397a07b81e1e1012ac9be3eb4e4da9cb4-7084x4725.jpg?h=4725&amp;max-w=900&amp;q=70&amp;auto=format)前高盛银行家 Roger Ng (R) 和他的律师 Marc Agnifilo (L) 抵达纽约的美国联邦法院。(法新社)
-来自《Morning Brew》2022年02月13日的报道，高盛集团(Goldman Sachs)马来西亚投资银行业务的前负责人罗杰·吴(Roger Ng)将于今天开始在纽约受审。他被指控在从马来西亚主权财富基金（1MDB)掠夺数十亿美元的大规模洗钱计划中，扮演了重要角色。
+作者：纽约香草山农场 – 恩永存
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+2月13日，郭文贵先生在大直播中再次谈到喜联储的喜币，喜美元和喜支付时，称其必将成为全球最牛的金融机构和币种，主要因素有四点。
 
-详情如下：在华尔街有史以来最大的丑闻之一中，高盛为1MDB的65亿美元债券销售提供了便利……但为了赢得商业银行家的支持，他们贿赂了政府官员，后来将一大笔钱用于购买奢侈品。挪用的资金被用来购买比佛利山庄的酒店，一艘价值2亿美元的超级游艇，甚至还用于资助了电影《华尔街之狼》。
+第一，无增发。放眼全球各国银行，存进100的钱，它会增发1000的币。新中国联邦的喜币绝对原值，每年就发行10亿，100年共1000亿，决不增发，这保证了其价值稳定。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture11.jpg)
+第二，可兑现。其它银行最可怕的问题，就是它们都有不兑现的权利。但新中国联邦的喜币绝不可能不兑现，还有20%的黄金锚定，保证了兑现的可能。
 
-其后果是：高盛为其所扮演的角色道歉，并支付了50亿美元的罚款，但罗杰·吴是唯一一位因1MDB案而在美国受审的高盛银行家。整个活动的主使，马来西亚富豪刘特佐(Jho Low)仍然在逃，有传言说他躲藏在中共国。
+第三，无中介。世界各大银行自己是中介，也与其它银行互为中介，捞取中介费，增大了各种风险。喜联储不是中介，也不会找中介。喜币，喜姜元从A到B点对点交易，喜联储不能控制。
 
-**简评**：
+第四，零成本。用新中国联邦的喜币喜支付是秒到账，没有交易费，没有中介费，全球通用，自由交易。
 
-马来西亚一直受中共全方位的渗透、掌控。中共利用自身大国的优势，收买，控制马来西亚政府官员，然后将中共在墙内的一套搬到马来西亚，窃取马来西亚人民的财富。郭文贵先生曾爆料，1MDB的创始人刘特佐(Jho Low)，就是前中共国中央政法委书记孟建柱的私生子。孟建柱通过自己控制中共国政法系统的权力，让其私生子刘特佐通过成立1MDB将马来西亚打造成自己私人帝国。这是中共向海外传播中共的主义、侵蚀、掌控世界的一种形式。当事情被揭露后，1MDB被全球调查，而刘特佐作为整个案件的核心，却跑到中共国躲藏，受到政府官方机构的保护。而且据说他住在上海最豪华的酒店，由武警保护，还日日当新郎，夜夜入洞房。作为中国人，我感到可悲。孟建柱作为中共高官没有为中国创造一分价值，而全中共国人的纳税钱，却要为他的私生子、一个外国人，支付酒店的各种昂贵的费用，派遣专门人员保障他的安全，为他找小姐买单。杨改兰如果能得到他万分之一的待遇，她的悲剧就不会发生。中共就是吸附在中共国人身上巨大的寄生虫，只有灭掉中共，中国人才能拥有健康，世界才能重回正轨。
+郭先生说，环顾世界经济的糟糕程度，唯有新中国联邦独好。盖特只能赚钱不会赔钱，GTV躺着就能挣钱，它拥有盖特，喜联储，GFashion，Gnews的股票，不会减少，只能是增加。
 
-新闻链接: [https://www.morningbrew.com/daily/stories/2022/02/13/the-1mdb-scandal-goes-to-trial](https://www.morningbrew.com/daily/stories/2022/02/13/the-1mdb-scandal-goes-to-trial)
+参考链接：[郭文贵先生谈喜币最牛的四大因素](https://www.gettr.com/post/pudtie436f)
 
-翻译/简评: kkoto(芬兰大灰狼)
+![This image has an empty alt attribute; its file name is calendar.png](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
-PR：Julia Win
+总编：DM
+编辑：DM
+校对/发稿：Hetangyuese
 
-* * *
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 
