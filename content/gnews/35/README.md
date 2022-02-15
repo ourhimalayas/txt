@@ -2,36 +2,21 @@
 ---
 
 
-## 印度外长谴责中共违反国际协议，称要加强与澳合作
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2007995/)
+## 韩裔女子在纽约曼哈顿被陌生男子尾随并杀害
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2008229/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：追着曙光跑
 
-整理：Eileen（围剿维尼熊）
-编辑：MSGZ
+据韩国KBS新闻2月15日的报道，一名30多岁的韩裔女性在纽约曼哈顿唐人街被一名流浪汉杀害。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-15-at-22.56.24.jpeg)图片来自原新闻
+《纽约时报》当地时间14日报道，邻居发现35岁的克里斯蒂娜·尤娜·李(音译)死在公寓里。警方于13日在克里斯蒂娜的一间公寓里将犯罪嫌疑人逮捕，并在浴缸里发现了死者。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/4-34.png)图片来源：theaustralian
+此外，上个月16日，一名亚裔女性被推落地铁轨道后身亡。本月9日晚上一名50多岁的韩国外交官在纽约市曼哈顿街头遭不明男子殴打。再加上李女士的遇害，使得纽约市的亚裔社区引起了恐慌。
 
+在中共病毒大流行期间，针对亚裔的袭击犯罪事件接连发生。再次证实了郭文贵先生多次在大直播指出的中共病毒会引发排华排亚裔的灾难性事件。
 
-根据澳大利亚人报中文网2月14日报道，印度外交部长苏杰生(Subrahmanyam Jaishankar)与他在四方安全对话中的同行们一起，对中国在本地区的行为和攻击性进行了严厉的公开批评。
-
-在接受《澳大利亚人报》的独家采访时，苏杰生说，北京继续在与印度接壤的喜马拉雅山脉边界集结军队，违反了国际协议。
-
-此前美国国务卿布林肯（Antony Blinken）表示，中国有在军事和经济上主宰世界的战略野心，日本外相林芳正（Yoshimasa Hayashi）说北京的军力建设和区域行动令人 “严重关切”。
-
-2020年6月，新德里称中国士兵越过有争议的边界，即喜马拉雅山脉的实际控制线（Line of Actual Control）前进，20名印度士兵在与中方的徒手搏击中死亡。苏杰生说，这一事件对印度对于中国的看法产生了强大的影响。
-
-另外苏杰生认为，澳大利亚-印度关系可能第一次实现其潜力。“四方”对话就是其中的一部分。近年来，印度和澳大利亚之间的军方合作有所增长，他希望这种合作能进一步增长。
-
-参考链接：[https://cn.theaustralian.com.au/2022/02/14/63558/](https://cn.theaustralian.com.au/2022/02/14/63558/)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+信息来源：**[뉴욕 차이나타운서 30대 한국계 여성 피살…경찰 “노숙자 체포”](https://news.kbs.co.kr/mobile/news/view.do?ncd=5394992)**
+[Screams That ‘Went Quiet’: Prosecutors’ Account of Chinatown Killing](https://www.nytimes.com/2022/02/14/nyregion/suspect-christina-yuna-lee-murder.html?_ga=2.112399814.375310406.1644880793-1248351094.1644880793)
 
  
 
