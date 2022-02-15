@@ -2,46 +2,31 @@
 ---
 
 
-## 今日盖特大V推荐 — 迈克·林德尔（Mike Lindell）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2010619/)
+## 俄罗斯大兵压境乌克兰，中共国需要一场战争
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2010657/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1520-e1644963757862.png)
-盖特链接：[https://gettr.com/user/mikelindell](https://gettr.com/user/mikelindell)
+文编：Hima
+听写：叮叮
+视频：七哥
 
-**迈克·林德尔自述：**
+2022-02-13直播摘录08：17：43
 
-我的枕头（MyPillow）发明者和首席执行官。
+形成狼狈为奸的全球局面，对我们灭共形势是好的，但对人类真是个灾难。大兵压境30万到乌克兰，乌克兰内部已经发动了29万全民的部队，而且很多都是美女啊，都漂亮得不能再漂亮的美女啊！乌克兰美女的独特漂亮天下独有，你没跟乌克兰美女打过交道，你没去过乌克兰你是不知道的。而且现在是美军大量的科技人员、军事人员，所谓的叫代理人战争，已经到位。全球的金融市场、能源市场、能源石油，我们合作的基金都赚大钱了，都翻了一番，翻到1.5倍，兴奋得不得了，石油赚钱。各种紧缺物资大涨。可是你们想到没有，就像当年日军那些妇女、孩子，被自己的军队一枪一枪射杀的恐惧。当年苏军进了柏林在希特勒之后，那种奸杀，和我看到的日军在中国的山东奸杀孩子，在西安追杀、像追杀老母鸡一样追杀中国的女孩子，中国女孩那大饼裤裆，一拽“啪啦”一个白屁股露出来了，日军摁在地上，用嘴去亲她的屁股，从她后面亲她的阴部，这都是我看到的录像，然后再残忍的是，日军咬下了这个女性的阴唇，狂笑。这些镜头就是战争的必然结果，哪国战争不会说到时候亲你的屁股，然后还拍拍你的屁股，然后对方很开心，这是在床上。中共在中国国内叫嚣战争、培养战争，和军内现在说的“中共需要一场战争”、“中国人民需要一场战争”、“要把台湾打烂”。记住：全人类过去这么多年，只有咱爆料革命、新中国联邦告诉大家：俄罗斯和中共国和伊朗还有北朝鲜，它们构成了邪恶的五国。
 
-《概率有多大？从瘾君子到CEO》作者。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-执行制片人。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1521.png)图片来源：网络
-**迈克·林德尔简介：**
+**关注我们**
 
-迈克·林德尔（1961年6月28日）出生在明尼苏达州的查斯卡（Chaska），是一位美国商人，保守派政治活动家。他是枕头、床上用品和拖鞋制造公司My Pillow, Inc的创始人兼首席执行官，也被称为“枕头哥”。
+Discord 账号
 
-迈克·林德尔是著名的川普支持者，因为支持川普和揭露大选舞弊真相，林德尔受到主流媒体，零售商，银行等的打压。他的社交媒体账号和银行账户被封杀，更面临来自美国商界的制裁。主要零售商禁止销售“我的枕头”品牌产品。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-迈克·林德尔在《概率有多大？从瘾君子到CEO》（What are the odds？From Crack Addict to CEO）一书中，介绍了他神奇的人生经历。
+Gettr 账号
 
-参考链接：
-[https://michaeljlindell.com/](https://michaeljlindell.com/)
-
-[https://frankspeech.com/](https://frankspeech.com/)
-
-[https://www.mypillow.com/](https://www.mypillow.com/)
-
-编撰：洛杉矶盘古农场 — 郭友(文苏)
-
-校审：洛杉矶盘古农场 — 心照
-
-发布：洛杉矶盘古农场 — 子萍
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
