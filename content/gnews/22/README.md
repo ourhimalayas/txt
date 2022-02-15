@@ -2,36 +2,26 @@
 ---
 
 
-## 突发：特鲁多计划援引《紧急情况法》压制自由车队
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2010334/)
+## 证据表明达沃斯国际刑事法庭有25% 的人被渗透
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2010400/)
 
-翻译： Jenny Ball
-![](https://assets.gnews.org/wp-content/uploads/2022/02/trudeau.png)`THE CANADIAN PRESS/Justin Tang`
-据接近总理办公室的消息人士透露，总理贾斯汀·特鲁多计划援引《紧急情况法》。
+#### 编译：Cran
 
-据加拿大广播公司报道，特鲁多告诉他的核心小组，他将援引从未使用过的《紧急情况法》赋予联邦政府特殊权力，以处理加拿大各地正在进行的自由车队抗议活动。
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/02/16449590181.png)[Image souce](https://arealnews.com/dr-reiner-fuellmich-wiki/)
+据《先行新闻》2月15日报道，德国律师团队领队，赖纳 · 福埃尔米奇(Riner,Fuellmich) 指出，25%的国际刑事法庭的法官被达沃斯渗透。这就是为什么他所引领的国际律师团队选择自然（公共舆论）法庭而非国际刑事法院来进行大陪审团审判。
 
-该立法旨在取代《战争措施法》，该法将国家紧急状态定义为“紧急和危急情况”，即：“严重危及加拿大人的生命、健康或安全，其程度或性质超出了一个省的处理能力或权力。”
+该律师团队旨在将法律程序带到现有的法律系统以外来进行。因为据他称，现有的系统彻底的腐败了。这个现象在欧洲，特别在德国是真实的。那些司法系统还在正常运行的国家还不算太糟糕，比如美国一些州和印度。
 
-该法案如果被援引，将赋予联邦政府 30 天的特别权力，以禁止公众集会、旅行和使用特定财产。它将允许渥太华指定受保护的地方，并迫使私营拖车公司为该市提供服务。
+“在欧洲，我们不能再相信法庭了。 第三方不仅已经渗透进了政体和主流媒体，社会和政治机构，还有大学和司法系统”。
 
-这将是自特鲁多的父亲皮埃尔·埃利奥特·特鲁多 (Pierre Elliott Trudeau) 于 1970 年援引《战争措施法》来应对魁北克的十月危机以来，该法案首次实施。
+他指出，他所领导的团队已经掌握了证据，ICC和欧洲人权法庭的25%的法官已经被腐蚀。这些法官收了乔治，索罗斯 （Jorge Solos）和比尔，盖茨（Bill Gates) 的钱。
 
-据报道，特鲁多周一上午在自由党核心小组的会议上表示，没有部署军队的计划。此举是在联邦内阁和事件响应小组周日召开会议之后进行的。
+他解释说，将司法程序带到现有的司法系统以外来进行，是让公众看到真实的过程和信息。所以他们能够选择是否信任现有的司法系统。他们可以行动起来，推动现有的司法系统清廉运作。如果这个方法行不通，那么人民应该建立起自己的司法系统。这个方法已经在美国的部分州开始了。
 
-周日晚些时候，特鲁多在推特上表示，事件响应小组讨论了“政府可以采取的进一步行动，以帮助结束封锁和占领。”
+赖纳 · 福埃尔米奇：德国一个律师团队的首领，该团队是德国冠状病毒调查委员会的的成员。福埃尔米奇是一名德国律师，他是美德律师协会和德国律师协会的会员。
 
-同一周日，应急准备部长比尔·布莱尔在“Rosemary Barton Live”节目中表示，联邦政府已经讨论过援引紧急权力来应对渥太华的抗议活动。布莱尔将援引《紧急情况法》的态度描述为“适当的谨慎”。
-
-**参考资料：**[rebelnews][BREAKING: Trudeau plans to invoke Emergencies Act to deal with Freedom Convoy protests](https://www.rebelnews.com/trudeau_plans_to_invoke_emergencies_act_to_deal_with_freedom_convoy_protests)
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-2.jpeg)
+[Source](https://beforeitsnews.com/alternative/2022/02/reiner-fuellmich-says-theres-evidence-25-of-the-international-criminal-court-is-davos-infiltrated-video-3767446.html)
 
  
 

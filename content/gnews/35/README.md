@@ -2,23 +2,30 @@
 ---
 
 
-## NewSGman┃川普支持加拿大卡车车队反对疫苗暴政
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2009672/)
+## NFSC新闻、G|TV新闻访谈简报|2022年2月15日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2009701/)
 
-撰稿：东京樱花团/NewSGman
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO-1.jpg)
 
-成千上万的抗议者涌入渥太华，支持加拿大司机自由车队示威活动反对 COVID-19 疫苗授权
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-14.png)
+文章仅代表作者本人观点，与Gnews无关
 
-美国前总统川普近日在德州的公开演讲发言力挺支持声援加拿大示威司机车队
+视频参看：
+[2022.02.15早 《NFSC新闻》](https://gtv.org/video/id=620baa55432ae869226d13a2)
+[2022.02.15早 G|TV《新闻访谈》](https://gtv.org/video/id=620bb255432ae869226d1802)
 
-川普赞扬加拿大司机们：“他们在捍卫自由！”
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-盖特链接：https://gettr.com/post/ps5mvc2fe8
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-1.png)
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

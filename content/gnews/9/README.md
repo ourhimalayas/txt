@@ -2,31 +2,43 @@
 ---
 
 
-## “你只有掌握他、了解他，制定一个对他永远是克他于万里之外的绝招”
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2010508/)
+## 谁是神秘三十多岁中共间谍买家？
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2010554/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+![](https://assets.gnews.org/wp-content/uploads/2022/02/q2a0ayv-ha0lp.jpg)
+三十多岁的单博已经拥有两幢超过千万美元的豪宅。据记录显示，其中一处位于Brentwood, Los Angeles, CA.，价值1千九百七十万美金，2019年9以全现金交易方式支付房款而引起轰动。另外一幢位于豪宅小镇Atherton, CA ，于2016年以一千六百四十万美元价格购入，这部分公开信息非常少。据可靠消息称，单博是一名中共党员和间谍。
 
-2022-02-11直播摘录10:59:11
+作为独子，其父单伟健更为著名。单伟健是现居香港的经济学家和风险资本家，也是香港私募基金太盟集团（PAG Group）的首席执行官和董事长，管理450亿美元的资产。作为文革后第一批中共国公派留美学生之一，单伟健是一名有特殊任务的中共间谍和中共白手套。他和中共盗国贼王岐山——号称“世界上最有权势的人”——关系极为密切。
 
-这个不是“裆下十八式”啊，你别想多了啊，打架的那个高窍门这个腿是什么？对方出手的时候，你预测好，他出右侧，你出你出右侧，顺着他扫一定倒，是吧；对方出右拳的时候，你出左拳，你是力克力，但你也出右拳，但你出肘，比他快他一定倒。就这么简单啊。所以说这就是七哥给大家要分享的。对了，你这个肘打人的时候，耳朵上这过去“啪”一下，过去这耳朵一响，这人绝对他的脑子失重了就倒下啊；如果你这个肘过去，你能的把人的后旋腿再过去，你这个膝盖的照脑袋来一下子，他就是绝对连环倒啊，他不可能再有起来的机会。我对共产党全用这招是吧，他们就是左腿、右腿，这拳那拳，然后来个后扫。我从来不会的啊，我直接最起码四招啊，你躲过我前两招，你躲不过我后两招啊，知己知彼，还有个光知己知彼不行，就我知道你，我也知道我，但是我阳痿还有个屁用啊是吧？我看着瑞安平很漂亮，我也知道我很帅，但是我阳痿有屁用啊，知己知彼啊，还有战胜敌人的力量，哎这个才能赢！我就觉得中国人老是知己知彼，我说我知道他啊，我也知道我啊，那我知道马云，很知道马云啊，我也知道我啊，但是我不能超过马云，我知道马云，我也知道我，但是我就能超过马云，我有超马云的能力，你才牛。是吧？！知己知彼我还能胜过你，还胜过我，我还超过你，对吧？那就是，这就是人生的哲学。鲜花你跟Estie，你说：“我知道你啊，Estie！天天裸着是不是啊？在家都不穿衣裳。” 知道长啥样！Estie你也知道你也裸了，有啥用啊，你俩在床上表现，结果靠能力，能多坚持20秒吧？能！能多流水吗？能！这才是结果啊，这是发自内心的给大家的分享。所以说我告诉你，文疯，人生一定要记住，对共产党，你只有掌握他、了解他，制定一个对他永远是克他于万里之外的绝招。你看在这个冬奥会，还有它造的这些假。
+单伟健毕业于美国加州大学伯克利分校，游走于美国政商名流，曾经在沃顿商学院任教，竟然2020年公开支持港版国安法，宣称在中共的领导下，香港依然是一个自由社会。同时，单伟健积极推动中共盗取国外先进科教学和技术的间谍计划“千人计划”。中共于2008年启动的“千人计划”，吸引在国外受教育的科技人才，通过非法的手段，将国外的技术、知识产权和先进的科学研究转移到中共国。许多科学家成为“千人计划”的受害者，包括已故去斯坦福大学终身教授张首晟和在美认罪的哈佛大学教授查尔斯·利伯。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+单博作为对冲基金“戈壁资本有限责任公司”的创始人，自2009年8月1日起加入戈壁资本，拥有75%以上的股权。戈壁资本是一个对冲基金，有8个客户，管理资产为18.4亿美元。戈壁资本的总持股金额，在2016至2021年的5年间，增加近40倍。这些增长背后与不仅中共有密切联系，更与单伟健在美国的洗钱非法活动有关。戈壁资本公司里有“戈壁收购”（Gobi Acquisition），是一家单伟健的 PAG成立的空白支票公司（SPAC），计划在纳斯达克上市，代码为“GOBI”，进一步扰乱美国金融秩序。
 
-**关注我们**
+单博公司的最大投资在脸书、奈非和谷歌母公司Alphabet等美国网络媒体行业，共计14.4亿美元，超过投资总额50%，为中共进一步控制美国的媒体和娱乐业奠定基础。
 
-Discord 账号
+**参考资料：**
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+1，[https://en.wikipedia.org/wiki/Weijian\_Shan](https://en.wikipedia.org/wiki/Weijian_Shan)
 
-Gettr 账号
+2，[https://whalewisdom.com/filer/gobi-capital-llc](https://whalewisdom.com/filer/gobi-capital-llc)
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+3, [https://smartadvisormatch.com/advisor-firm-network/california/gobi-capital-llc-151427](https://smartadvisormatch.com/advisor-firm-network/california/gobi-capital-llc-151427)
+
+4，[https://privatefunddata.com/fund-companies/gobi-capital-llc/](https://privatefunddata.com/fund-companies/gobi-capital-llc/)
+
+5，[https://wallmine.com/adviser/243757/gobi-capital-llc](https://wallmine.com/adviser/243757/gobi-capital-llc)
+
+6，[https://wallmine.com/fund/2pb/gobi-capital-llc](https://wallmine.com/fund/2pb/gobi-capital-llc)
+
+【**文章观点仅代表作者观点，与gnews平台无关】**
+
+作者：洛杉矶盘古农场 — Poplar
+编辑：洛杉矶盘古农场 — 柯镇恶
+发布：洛杉矶盘古农场 — 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
