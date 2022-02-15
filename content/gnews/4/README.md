@@ -2,10 +2,10 @@
 ---
 
 
-## 杰森·米勒：盖特在为卡车司机提供一个发声平台
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2007585/)
+## 加拿大退伍军人呼吁所有退伍军人站出来为自己的国家而战
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2007693/)
 
-02/12/2022 杰森·米勒：我们在为卡车司机提供一个发声的平台。而如果有人不遵从命令，特鲁多就将其称为种族主义者。
+02/13/2022 加拿大退伍军人呼吁所有退伍军人再次站出来，为自己的国家而战
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

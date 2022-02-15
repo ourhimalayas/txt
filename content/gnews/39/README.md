@@ -2,26 +2,47 @@
 ---
 
 
-## 加拿大公民权利协会谴责特鲁多动用国家紧急法
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2006624/)
+## 以色列人用加拿大式的车队抗议 Covid 规则
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2006809/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3-43.jpg)
-图片来源： www.dwnews.com
+**翻译：文扬**
+**编辑：Candy**
 
-零对冲网2月14日报道，加拿大公民权利协会已谴责总理特鲁多动用紧急法，他们在周一发推称“并没有触及关键点使加拿大政府必须采取此法。”
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/以色列.png)图片来源：insiderpaper网
 
-紧急法仅仅在一个“严重威胁加拿大政府行使主权，安全和地区完整时”以及当局势不能有效地处理加拿大其他法律时可以动用。
 
-而特鲁多周一试图动用紧急警察权力来驱散抗议强制疫苗和其他限制措施者，他说：“ 这不是和平抗议，当地警察已难以执行法律，联邦政府要介入。这将保卫加拿大的安全，保护人民的工作和重塑自信。”
+周一（2月13日）， 成千上万的以色列人从全国各地涌入耶路撒冷，组成 “自由车队”反对冠状病毒限制，这与加拿大和世界各地类似的交通堵塞抗议活动完全一样。
 
-阿尔伯塔，曼尼托巴，魁北克,以及萨斯喀彻温省反对特鲁多对卡车司机动用紧急法，特鲁多的第一个动作企图遏止抗议的卡车司机的资金，采用反洗钱法规则，威胁他们是金融上的“恐怖主义”。特鲁多政府把人们的和平抗议称作是“恐怖主义”！
+示威者在走向以色列政府所在地的过程中按响了汽车喇叭，并挥舞着加拿大和以色列的国旗。抗议者举着反对戴口罩和其他冠状病毒限制的标志。其他活动人士在全国各地的路口和桥梁上拦截交通。
 
-周一美加大使桥重开，但抗议者们在全国各地关键通道的封堵运动仍在继续，看起来特鲁多不想答应抗议者的诉求。
+耶路撒冷的车队使交通陷入困境，其示威活动与加拿大的大规模抗议活动类似，该活动导致美国和加拿大的一个主要过境点关闭数日。
 
-##### 新闻来源： [Canadian Civil Liberties Association Condemns Trudeau For Invoking National Emergency Over Truckers](https://www.zerohedge.com/political/trudeau-unleash-never-used-emergency-powers-act-counter-protests-us-canada-bridge-reopens)
+类似的运动已经在法国、荷兰、瑞士、澳大利亚和新西兰兴起。
 
-#  
+51岁的管理员沙尼·什洛莫（Shany Shlomo）说，她参加了在耶路撒冷举行的抗议活动，反对冠状病毒疫苗。
+
+她说：“没有人可以告诉我们应该把什么东西放进我们的身体。”
+
+以色列是最早开展全国疫苗运动的国家之一，提供第三次和第四次加强注射，以抵消疫苗效力逐渐下降的影响。
+
+最近几周，以色列当局放宽了限制，缩短了需要接种疫苗的场所名单。这是因为由高传播性的Omicron病毒株引发的失控感染似乎正在放缓。
+
+上个月，有些日子出现了超过80,000个新的Covid病例。此后，感染率有所下降，周一登记的新病例约为3万个。
+
+30岁的商业和法律专业的学生特兹维“`·肖里(Tzvi Shori)说，他想在冠状病毒限制中 “为自己的权利而战”。
+
+他说：“你在夺取和控制并用很短的绳子拴住我们，基本上一直在说‘不’，现在你要按我们说的做。”
+
+原文链接： [Freedom convoy: Israelis protest Covid rules in Canada-style convoy – Insider Paper](https://insiderpaper.com/freedom-convoy-israelis-protest-covid-rules-in-canada-style-convoy/)
+
+***发布：Candy***
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

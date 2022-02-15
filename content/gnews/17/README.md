@@ -2,27 +2,15 @@
 ---
 
 
-## 有声|2022年2月13日 晚 新中国联邦新闻、GTV新闻访谈简报
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2007463/)
+## 墙内一负责检验核酸二维码的工作人员倒地
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2007538/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-12.png)
+撰稿：追着曙光跑
 
+2月14日，墙内战友发来一个短视频，显示着哈尔滨市西客站一幕，一位穿着核算检查制服的工作人员倒地不起，旁边的同事仍然在工作，乘客们见了躲避而走，都没有进行紧急救助。 不知道是否跟疫苗有关，但这些基层的人员估计99%都打了吧？
 
-文字版原文：[2022年2月13日 晚 新中国联邦新闻、GTV新闻访谈简报](https://gnews.org/zh-hans/2002301/)
+郭先生一直在向世界喊话，不要打疫苗，疫苗的灾难远比病毒可怕，疫苗灾难将在五月份来临。其实，中共国的疫苗灾难早已显现，西安的封城导致饿死多少人？天津、河北等地方，现在广西的白色。疫苗引发的灾难，都被中共掩盖不报道而已。
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
