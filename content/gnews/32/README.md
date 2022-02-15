@@ -2,12 +2,16 @@
 ---
 
 
-## 疫苗造成女性月经周期异常
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2007190/)
+## 五月花简报（02/14/2022）
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2007518/)
 
-02/10/2022 内奥米·沃尔夫博士：疫苗造成女性月经周期异常，并已导致了对数千名女性的伤害。所有造成这些伤害的人都应该因此被起诉并送进监狱。
+编辑：波士顿五月花—-冲天一怒
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+![](https://assets.gnews.org/wp-content/uploads/2022/02/5BBD960D-AFEE-49ED-8607-094578FED085.jpeg)
+
+*发布：思澈*
+
+
 
  
 
