@@ -2,10 +2,13 @@
 ---
 
 
-## 七哥金句：爆雷
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2010011/)
+## 七哥金句：江湖
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2010046/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句-2...jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句-3..-1-scaled.jpg)
+整理：雅典娜农场
+发布：枫叶红了
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

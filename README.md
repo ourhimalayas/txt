@@ -15,53 +15,53 @@
 
 ---
 
-### [七哥金句：江湖](/content/gnews/1/README.md)
+### [七哥金句：灾难核心](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [延安性事（短篇纪实文学）（四）](/content/gnews/2/README.md)
+### [七哥金句：爆雷](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥金句：江湖](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥金句：喜币实力](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [延安性事（短篇纪实文学）（四）](/content/gnews/5/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥金句：爆雷](/content/gnews/3/README.md)
- ` 雅典娜GNotes`
-
-### [【秘翻在线】俄乌局势将密切影响全球能源市场](/content/gnews/4/README.md)
+### [【秘翻在线】俄乌局势将密切影响全球能源市场](/content/gnews/6/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [韩国CCP病毒感染死亡人数再度攀升，新增突破记录](/content/gnews/5/README.md)
+### [韩国CCP病毒感染死亡人数再度攀升，新增突破记录](/content/gnews/7/README.md)
  ` 澳喜特战旅Gnews`
 
-### [七哥金句：钱，病毒](/content/gnews/6/README.md)
+### [七哥金句：钱，病毒](/content/gnews/8/README.md)
  ` 雅典娜GNotes`
 
-### [七哥金句：未来](/content/gnews/7/README.md)
+### [七哥金句：未来](/content/gnews/9/README.md)
  ` 雅典娜GNotes`
 
-### [七哥金句：投资](/content/gnews/8/README.md)
+### [七哥金句：投资](/content/gnews/10/README.md)
  ` 雅典娜GNotes`
 
-### [七哥谈美事不分男女的](/content/gnews/9/README.md)
+### [七哥谈美事不分男女的](/content/gnews/11/README.md)
  ` MG FARM`
 
-### [七哥金句：喜币](/content/gnews/10/README.md)
+### [七哥金句：喜币](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
 
-### [七哥谈救命主义](/content/gnews/11/README.md)
+### [七哥谈救命主义](/content/gnews/13/README.md)
  ` MG FARM`
 
-### [七哥谈感悟](/content/gnews/12/README.md)
+### [七哥谈感悟](/content/gnews/14/README.md)
  ` MG FARM`
 
-### [俄入侵乌克兰将导致全球金融大崩塌](/content/gnews/13/README.md)
+### [俄入侵乌克兰将导致全球金融大崩塌](/content/gnews/15/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [七哥说“共产党不灭，天下没有一个人是安全的”](/content/gnews/14/README.md)
- ` MG FARM`
-
-### [七哥金句：不安全](/content/gnews/15/README.md)
+### [七哥金句：不安全](/content/gnews/16/README.md)
  ` 雅典娜GNotes`
-
-### [七哥谈“在美国得荣誉，在中国搞爱国”](/content/gnews/16/README.md)
- ` MG FARM`
 
 ### [美国财政部确认，加密货币矿工不受美国国税局报告规则的约束](/content/gnews/17/README.md)
  ` 温哥华扬帆农场`
