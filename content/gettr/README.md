@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/15/2022 4:50 PM (UTC)`
+
+2月15号：上天给新中国联邦人元宵节最好的礼物［重磅！美国财政部确认，加密矿工和钱包运营商 #不受美国国税局报告规则的约束，并制定了适当的法规。 随着美国财政部计划让加密矿工和其他“附属方”免受纳税申报规则的影响，#美国加密货币行业即将取得重大法律胜利。https://cointelegraph.com/news/crypto-miners-exempt-from-irs-reporting-rules-us-treasury-affirms https://gettr.com/post/pumsxde238 https://cointelegraph.com/news/crypto-miners-exempt-from-irs-reporting-rules-us-treasury-affirms］
+
+---
+
 `@miles 2/15/2022 3:06 PM (UTC)`
 
 2月15号：尊敬的战友们好！文贵衷心的祝大家元宵节快乐！
@@ -149,13 +155,6 @@
 
 2月13号：尊敬的战友们好，你们健身了吗？传播CCP病毒．疫苗解药的真相了吗？一切都已经开始！
 ![img](https://media.gettr.com/group41/getter/2022/02/13/22/1a155b9d-b14b-1e36-f289-8ad8c5256ee7/out.jpg)
-
----
-
-`@miles 2/13/2022 10:14 PM (UTC)`
-
-2/13/2022 Miles Guo: We will soon witness a dramatic change in the world! The Freedom Convoy around the world was started by the New Federal State of China and me, and it originated from the Hong Kong movement that I planned. The Freedom Convoy has opened a new way of peacefully protesting tyranny, with its essence being completely uniting the future economy and the political movements against dictatorship.<br/><br/>2/13/2022 文贵直播：很快，我们将见证世界巨变！全球大卡车运动的发起人是新中国联邦和文贵，它源自于文贵策划的香港运动；大卡车运动开启了和平对抗暴政的新方式，其本质是将未来的经济和反对独裁的政治运动彻底联合在一起<br/>
-![img](https://media.gettr.com/group23/getter/2022/02/13/22/552e2581-002f-8d1c-807a-5f3e10d95095/out.jpg)
 
 ---
 

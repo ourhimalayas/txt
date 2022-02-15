@@ -2,24 +2,28 @@
 ---
 
 
-## 日本首相与乌克兰总统电话会谈 日方将提供高额贷款援助
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2008710/)
+## NewSGman┃中共收集北京冬奥会有何参与者生物数据邪恶目的
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2008748/)
 
-撰稿:东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1499.png)[图片来源](https://newsatcl-pctr.c.yimg.jp/r/iwiz-amd/20220215-00000132-reut-000-3-view.jpg?exp=10800)
-2月15日晚，岸田文雄首相就目前俄乌紧张局势，与乌克兰总统泽连斯基通话，并表示准备提供至少1亿美元的贷款援助。
+撰稿：东京樱花团/NewSGman
 
-同日，岸田首相与欧盟委员会主席和乌克兰总统分别举行了电话会谈。日本首相透露，两位领导人同意将通过外交努力来缓解紧张局势。同时，首相表明如果俄罗斯入侵乌克兰，日方将与包括七国集团在内的国际社会合作，采取适当措施，包括制裁。
+中共收集北京冬奥会有何参与者生物数据邪恶目的
 
-岸田首相还明确向两位领导人重申，支持乌克兰的主权和领土完整。
+国家元首DNA 运动员的DNA都被共产党掌握
 
-虽然“贷款援助”总觉有点隔靴搔痒，但也算是个态度吧。毕竟中共病毒已让日本财政捉襟见肘了。
+中共收集参加冬奥会各国领导人和运动员的尿和大便是服务于其邪恶的目的 – 提取并用他们的基因以生出“更优秀”的种族；中共骨子里是种族主义者并且崇拜优秀人体和基因
 
-信息源：[1億ドル規模を借款で支援、岸田首相がウクライナ大統領に伝達](https://news.yahoo.co.jp/articles/7ad075d60b1f84ba97aff8e411a8bc3f0d3a9620)
+——2022年2月6日郭文贵大直播
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+2/6/2022 Miles Guo: The CCP collects urine and feces from the leaders and athletes of various countries participating in the Winter Olympics to serve its evil purpose – to extract and use their genes to produce a “better” race. The CCP is racist at its core and worships superior physiques and eugenics.
+
+盖特链接：https://gettr.com/post/pt0t4gc947
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
