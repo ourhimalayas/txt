@@ -2,21 +2,32 @@
 ---
 
 
-## 中共十分愚蠢与危险的再次将体育国家化、政治化
-` DC政经` [轉載自GNews](https://gnews.org/zh-hans/2005737/)
+## 七哥谈加拿大卡车事件
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2005829/)
 
-《2022年02月11日文贵大直播》节选
+文编：Hima
+听写：叮叮
+视频：七哥
 
-类似谷爱凌事件也发生在1935年的希特勒和1980年的斯大林期间，当时就是想把体育变成国家工具。 这两个恶魔都被消灭了，而且影响了人类的命运。 今天再看到北京冬奥委会又是一场噩梦的开始。但对爆料革命，都是最好的消息。
+2022-02-11直播摘录08：13：40
 
-谷燕和谷爱凌这次的表演是敲醒全世界海外华人的一个最好的警钟，因为不会再有任何国家在网络时代，在一个这样的时代，让你谷燕和谷爱凌用这种和共产党明显勾兑，漠视法律，漠视公平，玩弄世界，玩弄整个国家。 这是不可能的。谷燕和谷爱凌，完全按照共产党那个就不按规则，不尊重法律，玩弄规则，玩弄法律，欺骗法律，欺骗规则的拙劣手段，她还赢了。 但这种赢绝对是她灾难的开始。
+在加拿大的卡车事件啊，在头两天这个美国很多我们的美国战友啊，要把盖特logo变成加拿大的火车抗议logo，甚至有人要变成那个手拎汽油的logo，甚至加拿大的很多政府官员跟我联系啊，让我们和我们新中国联邦、法制基金联合行动，等等等……这个卡车行动已经带动了全球。同时看到了丹麦啊，我们有很多很多战友在丹麦，对整个疫情是全面打开，全面取消。在英国已经形成了，可以这么说，疫苗的政治革命正在悄悄的燃起。在欧盟啊，已经以不可阻挡的疫苗的一场政治革命，政治运动已经全面燃起，没人可以停止啊，包括在日本。那么这个疫苗身影危及到我们每个人的生存，包括现在这个Omicron，很多国家城市都在所谓的感染病率下降，有些还在提高，在这种情况下很多人舒服了，包括我们战友啊，我们有战友家人过世了啊，有战友现在已经不戴口罩出去了，甚至有战友要开始开门做生意了，我们要谈的这些事情，今天的事很多。
 
-* * *
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-素材，剪辑，字幕：小蜜蜂 | 发布：文零
+**关注我们**
 
-更多新闻咨讯请访问：[DC政经Gettr账号](https://gettr.com/user/dczhengjingquan)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/DCZJ_Gnews_960_160.png)
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

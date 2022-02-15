@@ -2,30 +2,31 @@
 ---
 
 
-## 打开中国人的幽默感
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2005817/)
+## 七哥谈中共不尊重游戏规则
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2005864/)
 
-整理：馨馨、雨桐
-编辑：Mohegayer K. Simon
+文编：Hima
+听写：叮叮
+视频：七哥
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1386.png)图片来源：墨尔本雅典娜农场设计组614
+2022-02-11直播摘录09：03：45
 
+他把这个龙头变成龟头，你想想TPG，还有PAG、单伟健这种流氓行动，单伟健是王岐山的马仔，康典的哥们，到今天在西方的渗透，他对我们越攻击，他造的假文件越多，他未来他倒霉越大。你们忘了吧，2016年、2015年、2016年、2017年比他牛叉的人是谁呀，海根巴森，美国建国以来最大的司法部腐败的案子，仅仅一个律师就7000多万美元，到了所谓的中共驻华盛顿大使馆去勾兑，背后是谁？斯蒂芬温！斯蒂芬温不比你屁大多了？Elliot Broidy要拿30亿美元搞我，孙立军、孟建筑、王岐山，康典、马云，杨钥匙兰老公，找班农去要把钥匙兰送给班农去，然后美国当时时任总统Donald Trump。“Miles Guo, Miles Guo，raper ，raper everybody， raper everybody，” 我强奸全世界所有人啊，“给我签那个字啊，Miles Guo rape everybody ，rape everybody。” 班农说：“谁谁谁谁？你再说一遍，Miles Guo，他怎么强奸所有人了？” 你想想当时的画面，是吧。你想想当时伯明，你想想当年的司法部长塞森斯，大早上起来的，七点钟给美国总统做检报，结果这川普拿过来，“哎~把那个文件给我签一下啊。” 那个律师困死，超级好，白宫律师说：“什么？你要签这个？你签了这个你就完了，你就得离开白宫。这是犯罪，你没权利签这个。” 然后说：“哎~~别别别，这是我们最重要的人，你怎么能签这个，你签着就完了。” “是吗？” 他说：“你知道他是你的马拉戈会员吗？” “是吗？” 他都不知道。他说：“他就是那个郭文贵，Miles Guo，你要签的这个强奸everybody的人，就是那个Miles Guo。” 斯蒂芬温、Elliot Broidy，Elliot Broidy的老婆律师，海根巴森，司法部副部长等，还有是华尔街什么Blackstone，你去想想全人类多牛啊，PAG算个鸟毛啊他算个。当时把七哥也没撂倒，你去想想当时啊，当时给欧洲的人打电话，给中东的某国家打电话说，只要你把郭文贵给我弄回来，一切交易可谈。所以说兄弟姐妹们，到今天你在看，共产党在美国是在全世界干什么？他完全不尊重游戏规则，而且在尝试改变一切国际上已存在的法律和游戏规则。
 
-刚才我是夸娜娜酱的，我是说娜娜酱聪明，她卖了币买了设备，而且我是跟她开玩笑。我说你看小飞象嘴越来越能说，就昨天真人真事回答不好，我是在鼓励她，结果吓得她半死不活的，我是在夸你呢，聪明。同时体现了喜币可以交换是真实的，娜娜酱整的自己吓半死，你别这样了。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-中国人就不能开玩笑，一开玩笑就变成另外一边去了。我在生活中，我可以告诉大家，所有我讲的黄色笑话，我在生活中一句都不说，你可以问问所有身边人，我从来不说的。我要说的就是，把中国人脸皮打开。别认为自己有这么多忌讳。啥都不敢说。中国人活得我觉得全世界走哪都苦大仇深，黑摸个脸。而且所有的中国人不是东亚病夫就是东亚哭夫。看到哪都是这一副愁容的脸，而且眼睛老往左看，往右看就是不往前看，要么往下看也不往上看。我生活中真的不是这样子的，但是我希望能改变中国人。
+**关注我们**
 
-你可以问我的家人，你问我生活中人，我们家里边从来不讲黄色笑话。但我爱开玩笑，我给你们开的比较过，但是别介意。你看我跟娜娜酱开玩笑，把娜娜酱吓成这样，我是夸你呢。人家战友天天在下边喊，七哥叫叫我名，叫叫我名儿，都不叫1回，这提你娜娜酱，结果你还太难了。我才难呢。
+Discord 账号
 
-资料来源：郭先生GTV、盖特直播
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-发布：tianzhihuan
+Gettr 账号
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

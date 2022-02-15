@@ -2,45 +2,31 @@
 ---
 
 
-## 中共政府表示不再批准非必要旅行的护照更新
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2005855/)
+## 七哥谈双重国籍
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2005912/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/021101-1.jpg)2020年11月5日中共国北京首都机场，中共病毒肺炎爆发后，携带行李戴着防护口罩的人们。图源：Thomas Peter摄/路透社
+文编：Hima
+听写：叮叮
+视频：七哥
 
-摘要翻译：
+2022-02-11直播摘录09:06:45
 
-路透社上海2022年2月12日报道，
+当年到美国来驻美国大使能跟美国司法部的官员勾兑，要把中国一个在美国…….任何人到美国来，你只要脚一落地，你跟美国公民一样待遇，一样保护，任何人。这样的情况下，能勾兑要把这人要遣返。把美国这个国家总统周围人全部拿下。你想想要遣返一个Miles Guo。他在改变这法律和规则。然后你看他在欧洲、在中东、在非洲，你知道他们在非洲花那么多钱，非洲的这个安哥拉，那全家我都很熟啊，我这未来，非洲你七哥的板块你还没开始呢。我可能告诉你，共产党花这几千亿美元我让他变成零，还得负零。大家注意到最近非洲这些国家，共产党这回他发现什么了？一系列的政变，你们上网没有一个人报道。凡是共产党支持的国家都在政变，只是你太多事了，你们忘掉了。就所有支持的人都会打水漂，而且政变都是对方嘛，政变完你亲共的，全给你干掉，然后最后全都是反共。他在这些国家改变游戏规则，你像安哥拉，我要支持的人上去以后，就把安哥拉现在提供中国20%的能源市场全给他停了。共产党的回扣是40%，哇噻，你说想想有多可怕啊。就在安哥拉的石油40%的回扣。中国老百姓傻到没边儿，你想都不敢想的这种黑暗。这改变规则吧？然后从非洲到欧洲，然后到日本，到印度。所以“谷爱凌事件”造假、欺骗全世界，对全世界的法律都是威胁。而且最夸张的事情，他这个愚蠢到了在全世界媒体面前敢如此之造假。两国，你双重身份，你在美国出生，美国长大，然后美国的娘拿美国护照，然后在中国代表中国人拿冠军。然后你再看到这个冬奥会上，中国的裁判，在中国的外国裁判已经完全就像它控制的，法官一样。
 
-中国国家移民管理局表示，在全球中共病毒肺炎疫情仍然严峻且对跨境旅行构成“巨大安全风险”的情况下，中共国将不会为非必要旅行更新护照。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-中共当局在社交媒体上的一份声明中表示，它“通常会只对需要赴境外留学、就业或商务的个人颁发护照”。
+**关注我们**
 
-但中共当局表示，有关它将为希望出国休闲旅行的个人签发护照更新的谣言是错误的。
+Discord 账号
 
-中共国加强了对其公民跨境旅行的控制，以降低该病毒从海外带入并在国内传播的风险。它已暂停为因非紧急事项打算出国的个人签发新的普通护照。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-**简评：**
+Gettr 账号
 
-中共表面上以控制病毒为由限制护照的办理和换发，其实是在悄悄关上国门。一方面是中共真没钱了，普通中国人就别满世界乱跑了，浪费党的外汇；另一方面也可暗示国人和世界，病毒主要来自外来输入，以此混淆视听，甩锅全世界。
-
-新闻链接：[China says not granting passport renewals for non-essential travel](https://www.reuters.com/world/china/china-says-not-granting-passport-renewals-non-essential-travel-2022-02-12/)
-
-*翻译/简评：xiaofeimao*
-
-*校对：Harvey（叶知秋）*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
