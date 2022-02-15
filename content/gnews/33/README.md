@@ -2,10 +2,10 @@
 ---
 
 
-## 运动员发布奥运村漏水消息 被中共要求删除
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2007700/)
+## 英国官方证明中共病毒疫苗诱发“艾滋病”
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2007696/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+作者：纽约香草山 – 侠肝义胆
 
 
 
@@ -13,19 +13,19 @@
 
 
 
-2月13日，国外多家媒体报道，参加北京冬奥会的芬兰滑雪运动员莱恩佩拉，上周在自己的社交媒体上发布了一些照片和视频，显示水从她在冬奥村住所的天花板上倾泻而下，并在地板上形成了水坑。还有一些照片显示，有电气设备被暴露在水中。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-6.jpg)
-林佩拉在视频中加上了“救命”的标题，同时还分享了中共国工作人员赶来清理的镜头。
+外媒2月13日报道，英国卫生安全局数据证明，随着时间的推移，中共病毒疫苗会损害人体免疫系统，造成疫苗诱发的“艾滋病”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide6-3.jpg)
+2月3日，英国卫生安全局发布的一月份病毒病例数据。按照疫苗接种状态分类，该月大多数病例属于接种三剂疫苗的病例。该数据表明，一个人的免疫系统接触疫苗的次数越多，病毒发病率就会越高。
 
-不过，在莱恩佩拉分享的图片中，最令人难以置信的是，有一张她收到的一条消息的屏幕截图，该消息要求她从社交媒体上删除她发布的相关帖子。
+更重要的是该数据显示疫苗对人体免疫系统损害程度，研究发现，英国完全接种疫苗的成年人比未接种者的免疫应答低65％。 因此，完全疫苗接种者其人体免疫力只有正常人的35％，根本无法抵抗病毒和癌细胞侵蚀。
 
 参考链接：
-1. [China orders athlete to delete photos that showed flooding in Olympic Village](https://news.yahoo.com/winter-olympics-2022-china-orders-athlete-delete-photos-205502218-013229001.html)
-2. [China orders Olympics star to delete photos](https://www.foxsports.com.au/beijing-olympics-2022/china-orders-olympics-star-to-delete-photos/news-story/175d019dbfdf429d59eded1ab72259d6)
+1. [UK government data proves COVID-19 vaccines continue to damage immune systems over time, creating vaccine-induced “AIDS”](https://newstarget.com/2022-02-13-uk-data-shows-vaccines-damaging-immune-systems.html)
+2. [News Target 02月13日报道【英国政府数据证明，随着时间的推移，COVID-19 疫苗会继续损害免疫系统，造成疫苗诱发的“艾滋病”】](https://gettr.com/post/puddb87733)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
 
-总编/编辑：飞虹
+总编/编辑：DM
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**

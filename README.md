@@ -93,89 +93,89 @@
 ### [今日暴增1500多例！香港第五波病毒恶化](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆┃中共特区深圳，二手房交易量15年新低](/content/gnews/27/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [印度政府再次下令禁止 54 款中共国应用程序](/content/gnews/28/README.md)
+### [印度政府再次下令禁止 54 款中共国应用程序](/content/gnews/27/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [加总理特鲁多启动《紧急状态法》，应对自由车队抗议](/content/gnews/29/README.md)
+### [加总理特鲁多启动《紧急状态法》，应对自由车队抗议](/content/gnews/28/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [乌总统表示俄罗斯可能周三发动袭击，实际并非如此](/content/gnews/30/README.md)
+### [乌总统表示俄罗斯可能周三发动袭击，实际并非如此](/content/gnews/29/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [华盛顿特区2月15日起停止疫苗强制令](/content/gnews/31/README.md)
+### [华盛顿特区2月15日起停止疫苗强制令](/content/gnews/30/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [印度政府加码禁用54个中共应用程序](/content/gnews/32/README.md)
+### [印度政府加码禁用54个中共应用程序](/content/gnews/31/README.md)
  ` NFSC News`
 
-### [运动员发布奥运村漏水消息 被中共要求删除](/content/gnews/33/README.md)
+### [运动员发布奥运村漏水消息 被中共要求删除](/content/gnews/32/README.md)
  ` NFSC News`
 
-### [英国官方证明中共病毒疫苗诱发“艾滋病”](/content/gnews/34/README.md)
+### [英国官方证明中共病毒疫苗诱发“艾滋病”](/content/gnews/33/README.md)
  ` NFSC News`
 
-### [莫得纳CEO删除推特抛售公司股票达4亿美元](/content/gnews/35/README.md)
+### [莫得纳CEO删除推特抛售公司股票达4亿美元](/content/gnews/34/README.md)
  ` NFSC News`
 
-### [谁是2022年度的最大输家](/content/gnews/36/README.md)
+### [谁是2022年度的最大输家](/content/gnews/35/README.md)
  ` 秘密翻译组-原创组`
 
-### [加拿大特鲁多援引紧急命令打击“自由车队”](/content/gnews/37/README.md)
+### [加拿大特鲁多援引紧急命令打击“自由车队”](/content/gnews/36/README.md)
  ` 澳喜特战旅Gnews`
 
-### [中日财经爆┃印度再禁54款中共国手机APP](/content/gnews/38/README.md)
+### [中日财经爆┃印度再禁54款中共国手机APP](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [加拿大政府和媒体对自由车队进行抹黑](/content/gnews/39/README.md)
+### [加拿大政府和媒体对自由车队进行抹黑](/content/gnews/38/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [疫苗造成女性月经周期异常](/content/gnews/40/README.md)
+### [疫苗造成女性月经周期异常](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [有声｜“鹤岗化”蔓延 长三角地区也出现房屋“白菜价”](/content/gnews/41/README.md)
+### [有声｜“鹤岗化”蔓延 长三角地区也出现房屋“白菜价”](/content/gnews/40/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [【秘翻新视野】俄国还没开打乌克兰 欧洲已集体倒向美国](/content/gnews/42/README.md)
+### [【秘翻新视野】俄国还没开打乌克兰 欧洲已集体倒向美国](/content/gnews/41/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [澳洲议会点名周泽荣是被怀疑的中共“操纵者”](/content/gnews/43/README.md)
+### [澳洲议会点名周泽荣是被怀疑的中共“操纵者”](/content/gnews/42/README.md)
  ` 走进澳洲`
 
-### [乌克兰宣布2月16日为团结日，美更多战机抵达波兰](/content/gnews/44/README.md)
+### [乌克兰宣布2月16日为团结日，美更多战机抵达波兰](/content/gnews/43/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [太平联盟诉郭文贵先生折射中共对西方司法体系威胁之巨](/content/gnews/45/README.md)
+### [太平联盟诉郭文贵先生折射中共对西方司法体系威胁之巨](/content/gnews/44/README.md)
  ` mary202064`
 
-### [法国政府派出坦克来控制巴黎的抗议活动](/content/gnews/46/README.md)
+### [法国政府派出坦克来控制巴黎的抗议活动](/content/gnews/45/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [马克龙政府用催泪弹袭击游行者](/content/gnews/47/README.md)
+### [马克龙政府用催泪弹袭击游行者](/content/gnews/46/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中日财经爆┃全球面临战争危机 喜币必将改变世界](/content/gnews/48/README.md)
+### [中日财经爆┃全球面临战争危机 喜币必将改变世界](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [一马公司（1MDB）丑闻进入审判阶段](/content/gnews/49/README.md)
+### [一马公司（1MDB）丑闻进入审判阶段](/content/gnews/48/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中日财经爆┃新城控股销售额暴降 地方小银行的噩梦](/content/gnews/50/README.md)
+### [中日财经爆┃新城控股销售额暴降 地方小银行的噩梦](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [韩启动为免疫力低下人群接种第四针新冠疫苗](/content/gnews/51/README.md)
+### [韩启动为免疫力低下人群接种第四针新冠疫苗](/content/gnews/50/README.md)
  ` 首尔天池农场`
 
-### [美国务卿布林肯宣布关闭美驻乌克兰大使馆 并呼吁美在乌公民尽快离境](/content/gnews/52/README.md)
+### [美国务卿布林肯宣布关闭美驻乌克兰大使馆 并呼吁美在乌公民尽快离境](/content/gnews/51/README.md)
  ` 首尔天池农场`
 
-### [箭在弦上 | 习近平和普京的侵略战争随时打响，世界政治经济大变革来临](/content/gnews/53/README.md)
+### [箭在弦上 | 习近平和普京的侵略战争随时打响，世界政治经济大变革来临](/content/gnews/52/README.md)
  ` YALUN 亚伦`
 
-### [丹麦风电巨头公布遭受网络攻击细节](/content/gnews/54/README.md)
+### [丹麦风电巨头公布遭受网络攻击细节](/content/gnews/53/README.md)
  ` 秘密翻译组-原创组`
+
+### [NewSGman┃瑞银集团追缴5亿美元保证金案2月9日在英国正式立案](/content/gnews/54/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [“长途跋涉”：美加边境口岸的车队抗议活动](/content/gnews/55/README.md)
  ` 西班牙巴塞罗那喜悦农场`

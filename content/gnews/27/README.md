@@ -2,24 +2,29 @@
 ---
 
 
-## 中日财经爆┃中共特区深圳，二手房交易量15年新低
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2007831/)
+## 印度政府再次下令禁止 54 款中共国应用程序
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2007817/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1484.png)[图片来源](https://gnews.org/wp-admin/post-new.php#imgrc=R5AkSh9b9CCJoM&amp;imgdii=YVQqnC4Tea8ddM)
-2月15中国经济周刊报道，深圳部分热门小区成交均价下跌了20%—30%，部分小区相当于打了7折，深圳市房地产信息平台显示，2021年深圳二手住宅共成交40699套，同比减少57.3%，创下近15年的新低。
+**By:秘翻新闻**
 
-2021年，深圳楼市破了两个记录。一个是新房成交量创下近5年来新高，共成交54217套，同比上涨15.5%。而致使深圳新房成交创新高的原因主要有两个，一是新房供应量增加，二是在二手房指导价的打压下，不少购房者转向新房打新。但即便深圳新房市场取得了如此优异的成绩，也无法反映市场的真实状态，因为深圳是二手房占主导的市场，所以只有二手房才能展现市场最终的状态。
+***2022-02-15***
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8-13.png)图片源于:路透社
+据《印度时报》2月14日报导，印度联邦政府已发布新命令，禁止超过 54款中共国应用程序，称其对印度人的隐私和安全造成威胁。其中包含2020 年就在印度被禁的重命名版本，基本属于腾讯、阿里巴巴和网易等大型中共国科技公司所开发。
 
-第二个记录是2021年深圳二手房成交量创下了近15年的新低，仅成交了40699套，相较于2020年的95273套，同比大跌了57.4%，名副其实的腰斩，这样的跌幅，在深圳地产史，乃至中共国地产史上都是前所未有的。
+印度电子和 IT 部发布了最新的禁令，理由是这些应用程序将印度人的隐私数据上传到中共国等外国的服务器上。一位官员表示， 根据 2000 年的《信息技术法》第 69a 条行使权力，将54 个中共国应用程序禁止通过印度的谷歌PlayStore 访问。
 
-数据显示，春节期间（1月31日—2月6日），深圳市新房与二手房成交量（完成产权过户）分别为0套和1套。不仅仅是深圳，同处于珠三角省会城市广州，今年春节期间，新建住宅共成交17套，成交面积为1770平方米，成交量同比去年春节期间下降70.69%。
+一位高级官员还表示，腾讯和阿里巴巴旗下的许多应用程序已经转手以隐藏所有权。它们也被托管在香港或新加坡等国家/地区，但数据最终会发送到中共国的服务器。
 
-消息来源：[去年深圳二手房成交量创15年新低！部分成交价打7折，中介纷纷转做新房代理销售](https://mr.mbd.baidu.com/r/BlmHCsGdP2?f=cp&amp;rs=4094751807&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=8a5536d6a41b17ef&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
+印度政府以维护印度的主权和完整性、印度的防御、国家安全和公共秩序为初衷发出此禁令。自 2020 年 6 月以来，印度政府已从第一轮约 59 个应用程序开始，共禁止约 224 个中共国应用程序。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+新闻来源[**https://economictimes.indiatimes.com/tech/technology/union-government-issues-fresh-orders-to-ban-over-54-chinese-apps/articleshow/89551062.cms **](https://economictimes.indiatimes.com/tech/technology/union-government-issues-fresh-orders-to-ban-over-54-chinese-apps/articleshow/89551062.cms)
+
+(秘翻新闻 二丫、文洋 编译报导)
+
+发布 ：恩典
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMAGE-2021-12-13-113746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

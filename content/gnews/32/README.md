@@ -2,10 +2,10 @@
 ---
 
 
-## 印度政府加码禁用54个中共应用程序
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2007701/)
+## 运动员发布奥运村漏水消息 被中共要求删除
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2007700/)
 
-作者：纽约香草山医疗部 – 云豹
+作者：纽约香草山教育部 – Naughty(文行)
 
 
 
@@ -13,18 +13,19 @@
 
 
 
-当地时间2月14日，印度政府公告，因为信息安全的理由，加码禁止使用54个由中共制作的应用程序。阿里巴巴及腾讯等大公司出品的程序亦名列其中。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-7.jpg)
-印度电子暨信息科技部发现，这些被公告禁用的程序，在未经用户的同意下，将使用客户的敏感数据自动传送到包括中国在内的境外服务器，因此造成个人信息安全危险。谷歌等多家应用程序商店已被下令封锁这些应用程序。
+2月13日，国外多家媒体报道，参加北京冬奥会的芬兰滑雪运动员莱恩佩拉，上周在自己的社交媒体上发布了一些照片和视频，显示水从她在冬奥村住所的天花板上倾泻而下，并在地板上形成了水坑。还有一些照片显示，有电气设备被暴露在水中。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-6.jpg)
+林佩拉在视频中加上了“救命”的标题，同时还分享了中共国工作人员赶来清理的镜头。
 
-印度政府自2020年6月以来，已经禁止包括抖音、微信、ES档案浏览器等220多个由中共出品的应用程序。此次有许多是之前已经被禁用的程序，在厂商刻意更换公司名称，重新改名包装后又被再次推出。这些恶意应用程序的服务器，表面上可能是设在香港或新加坡，但是用户的敏感信息一样会被传送给中共。
+不过，在莱恩佩拉分享的图片中，最令人难以置信的是，有一张她收到的一条消息的屏幕截图，该消息要求她从社交媒体上删除她发布的相关帖子。
 
 参考链接：
-[印度媒體：政府再禁54個中國應用程式](https://www.cna.com.tw/news/aopl/202202140135.aspx)
+1. [China orders athlete to delete photos that showed flooding in Olympic Village](https://news.yahoo.com/winter-olympics-2022-china-orders-athlete-delete-photos-205502218-013229001.html)
+2. [China orders Olympics star to delete photos](https://www.foxsports.com.au/beijing-olympics-2022/china-orders-olympics-star-to-delete-photos/news-story/175d019dbfdf429d59eded1ab72259d6)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
 
-总编/编辑：DM
+总编/编辑：飞虹
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**

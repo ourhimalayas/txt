@@ -2,10 +2,10 @@
 ---
 
 
-## 英国官方证明中共病毒疫苗诱发“艾滋病”
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2007696/)
+## 莫得纳CEO删除推特抛售公司股票达4亿美元
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2007695/)
 
-作者：纽约香草山 – 侠肝义胆
+作者：纽约香草山 – 宁文静
 
 
 
@@ -13,19 +13,20 @@
 
 
 
-外媒2月13日报道，英国卫生安全局数据证明，随着时间的推移，中共病毒疫苗会损害人体免疫系统，造成疫苗诱发的“艾滋病”。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide6-3.jpg)
-2月3日，英国卫生安全局发布的一月份病毒病例数据。按照疫苗接种状态分类，该月大多数病例属于接种三剂疫苗的病例。该数据表明，一个人的免疫系统接触疫苗的次数越多，病毒发病率就会越高。
+2月13日，据外媒报道，莫得纳公司首席执行官斯特凡·班塞尔本周在卖出数千万美元的股票后删除了他的推特账户。如此怪异的举动引发了投资者的疑虑和担忧。据悉，在过去的一年里，班塞尔已经累计抛售总价约为4亿美元的公司股票。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide5-1.jpg)
+前黑石对冲基金经理爱德华·多德曾指控辉瑞公司和莫得纳公司，因当时的制度性要求，使用未经证实的技术并快速获得疫苗生产批准，在疫苗临床实验中存在故意欺骗的行为。多德进而对保险公司和殡仪馆的死亡统计数据展开调查。如果证明属实，这将意味着辉瑞公司和莫得纳公司都要对其疫苗造成的所有伤害和死亡负责。
 
-更重要的是该数据显示疫苗对人体免疫系统损害程度，研究发现，英国完全接种疫苗的成年人比未接种者的免疫应答低65％。 因此，完全疫苗接种者其人体免疫力只有正常人的35％，根本无法抵抗病毒和癌细胞侵蚀。
+班塞尔的反常行为是否与多德的举报和调查有关，尚无定论。截至目前，莫得纳公司并未就CEO的举动发表官方声明。
 
 参考链接：
-1. [UK government data proves COVID-19 vaccines continue to damage immune systems over time, creating vaccine-induced “AIDS”](https://newstarget.com/2022-02-13-uk-data-shows-vaccines-damaging-immune-systems.html)
-2. [News Target 02月13日报道【英国政府数据证明，随着时间的推移，COVID-19 疫苗会继续损害免疫系统，造成疫苗诱发的“艾滋病”】](https://gettr.com/post/puddb87733)
+1. [Moderna CEO Stéphane Bancel Deletes Twitter Account, Sells Tens Of Millions Of Dollars In Stock](https://thecovidworld.com/moderna-ceo-stephane-bancel-deletes-twitter-account-sells-tens-of-millions-of-dollars-in-stock/)
+2. [Moderna CEO Just Dumped $400 Million in Stock and Deleted His Twitter Account](https://newspunch.com/moderna-ceo-just-dumped-400-million-in-stock-and-deleted-his-twitter-account/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
 
-总编/编辑：DM
+总编：文真
+编辑：Jack Li文阳
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**
