@@ -2,24 +2,35 @@
 ---
 
 
-## 澳大利亚开始撤离基辅大使馆
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2002384/)
+## 跟随内心 做人生最重要的决定
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2002755/)
 
-#### 撰稿：彩虹       
+作者：纽约香草山 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+在2月12日的盖特视频中，郭文贵先生强调：人生的价值就在于丰富和有意义。当面临人生的重要抉择时，我们应该遵从自己的内心，独立地、能够承担一切后果地做出决定。
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1378.png)图片来源：路透社
-2月13日，《国会山报》报道，随着俄罗斯和乌克兰之间紧张局势的加剧，澳大利亚正在撤离其驻乌克兰大使馆。
+郭先生说，很多人终其一生只做一件事，单调而无聊，到死都不知道活着的意义。就算离开了中共国，在海外生活，依然固守着农耕文化，跳不出小圈子、小格局。中国人最怕惹事，却深受其害。中共几十年来种下的懦弱、自私、冷漠等思想层面的毒，已经融入华人的血液。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-31.jpg)
+郭先生认为，人生的价值，在于有勇气挑战自己，做匡扶正义之事；还在于超越自己，尝试创新之路。成功失败，都不重要，重要的是丰富了人生。权衡利弊之后的决定，往往结果不一定好。但跟随内心，不受别人影响，有勇气有担当，才能提高人生的层次。
 
-周日，澳大利亚外交部长玛丽斯·佩恩（Marise Payne）宣布，驻基辅（Kyiv）使馆的所有工作人员已被告知离开，大使馆的业务已经关闭，并转移到乌克兰西部城市利沃夫（Lviv）的一个临时办公室。
+郭先生强调，新中国联邦人，这一次站在了时代的最前列，要学会与最高层面的人对决与合作。历史永远站在正义的一方。
 
-她说，做出这些决定的原因是“俄罗斯军队在乌克兰边境的集结导致安全局势恶化”。
+参考链接：[跟随内心 做人生最重要的决定](https://gettr.com/post/pu2dte2ff8)
 
-佩恩在一份声明中写道：“我们继续建议澳大利亚人立即通过商业手段离开乌克兰。安全状况可能在短时间内发生变化。俄罗斯对乌克兰的军事行动将严重限制我们向澳大利亚人提供领事援助的能力。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
-**新闻来源**
+总编：飞虹
+编辑：飞虹
+校对/发稿：Hetangyuese
 
-[Australia evacuates Kyiv embassy](https://thehill.com/policy/international/594024-australia-evacuates-kyiv-embassy)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

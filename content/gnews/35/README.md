@@ -2,25 +2,26 @@
 ---
 
 
-## 美眾議院對中共提起嚴厲製裁法案
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2004733/)
+## 欧盟应对比利时警告：中共国手机存在安全风险
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2005291/)
 
-采編：   風雲小哥          編譯撰稿：文明(添草滅共)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/20220211110244-620692dcaa289af9f97bebb9jpeg3.jpg)关于手机的报道图片 © 网络照片
+据法国国际广播电台暨比利时晚讯2月14日报道，比利时国家安全部证实欧洲网络安全专家去年发布的报告，指出在华为、小米等中共国智能手机中存在安全风险，资讯可能被监视，并转移到中共国当局。比利时国会议员呼吁欧洲联盟尽快应对。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/GettyImages-1153354315-640x480-1.png)圖片來源：breitbart
+中共国法律要求手机公司将其资讯存储在中共国当地的服务器，安全部门有权力接触。中共对国产智能手机拥有“长臂管辖权”，不管手机网络搭建在哪里，只要使用中共国手机，就会处在中共全天候的网络监控中，“咫尺天涯，无一处不覆盖”，小到个人手机，大到国家安全网络。
+
+新闻参考链接：[https://www.rfi.fr/cn/欧洲/20220214-比利时警告中国手机安全风险-促欧盟整体应对](https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20220214-%E6%AF%94%E5%88%A9%E6%97%B6%E8%AD%A6%E5%91%8A%E4%B8%AD%E5%9B%BD%E6%89%8B%E6%9C%BA%E5%AE%89%E5%85%A8%E9%A3%8E%E9%99%A9-%E4%BF%83%E6%AC%A7%E7%9B%9F%E6%95%B4%E4%BD%93%E5%BA%94%E5%AF%B9)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-據【布萊特巴特新聞】近日報道，在共和黨和眾議院高層的支持下，美國眾院議員麥克萊恩提出了名為[製止中共法案]的立法議案，擬對中共黨魁習近平家族及其數千名中共高官進行製裁。
+编辑：【英国伦敦喜庄园编辑部】
 
-據悉，該法案針對中共高層官員以及」全國代表大會 「的每個成員及其直系親屬。製裁措施包括禁止他們獲得美國簽證、使用美國金融系統和取得美國資產等。同時也禁止美國公司與製裁對象個人及其親屬進行任何形式的交易。
-
-此外該法案還提出取消這些製裁的條件，就是必須停止種族滅絕和在香港的殺戮、停止盜竊美國的知識產權以及放棄對臺灣的入侵。
-
-校對編輯：硫酸羥氯喹64
-
-發稿：文明(添草滅共)
-
-原文鏈接： https://www.breitbart.com/politics/2022/02/09/exclusive-house-conservatives-introduce-sanctions-proposal-for-thousands-chinese-communist-party-officials/
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

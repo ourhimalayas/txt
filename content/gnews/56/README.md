@@ -2,10 +2,10 @@
 ---
 
 
-## 停止种族灭绝游戏，停止精英的叛变，让中共蒙羞
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2001992/)
+## 特鲁多威胁游行者是“非法的”，并将面临严重后果
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2002149/)
 
-02/11/2022 不要观看北京冬奥会，通过加入“genocidegames.org”来参加这场战役。让我们将这场运动进行到底并粉碎这些赛事。
+02/11/2022 独裁政府总理贾斯汀·特鲁多威胁游行者是“非法的”，并将面临严重后果，如失去执照，留下犯罪记录，甚至不能出境，包括美国等。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

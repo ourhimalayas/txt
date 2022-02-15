@@ -2,28 +2,49 @@
 ---
 
 
-## Moderna制药负责人出售自家公司股票
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2005105/)
+## Freeland 宣布针对众筹平台和加密货币的措施，以减少 Freedom Convoy 的资金
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2005553/)
 
-撰稿：小毛牛
+作者: Ian Miles Cheong
+翻译：KK
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-148.png)
+加拿大总理贾斯汀·特鲁多（Justin Trudeau）对《紧急情况法》的使用将使他能够采取前所未有的行动来平息自由车队的抗议活动，该抗议活动席卷了加拿大首都渥太华，并在全国其他地方引发了类似的封锁，甚至在国际上，在巴黎、布鲁塞尔、惠灵顿和堪培拉等。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/021014.jpg)Stéphane Bancel（49 岁），自 2011 年起他便担任了 Moderna 制药公司的负责人。网络图片
+在活动中，副总理兼财政部长克里斯蒂亚弗里兰宣布，正在采取措施减少对正在进行的抗议活动的资助，其中包括众筹平台以及数字资产和加密货币。
 
-据德国图片报报道：尽管Moderna的老板Stéphane Bancel个人的推特账号并不活跃，有记录显示他的上一条推特发布的时间在2019年4月2日，但是他不知缘由的注销了自己的这个推特账号。此外，更令人震惊的是，今年以来他已经出售了他在Moderna公司的多达114000股的股票。
+“在援引《紧急情况法》时，我们宣布立即采取以下行动：首先，我们正在扩大加拿大反洗钱和恐怖主义融资规则的范围，使其涵盖众筹平台和他们使用的支付服务提供商，”弗里兰说。
 
-他的这一举动引起了很多人的关注和讨论，现在互联网上出现了一种猜测：即删除 Twitter 帐户有更深层次的原因。论坛上有传言称，辉瑞公司可能会因披露两家公司疫苗中的 mRNA 技术而抹黑 Moderna，而 Bancel 希望在随后的崩盘中挽救自己的财富；这位 Moderna 的老板以迅雷不及掩耳的速度出售了他在公司的部分股份，关闭了他的 Twitter 账户，显然正准备退出。
+“这些变化涵盖了所有形式的交易，包括加密货币等数字资产。非法封锁突显了这样一个事实，即众筹平台和他们使用的一些支付服务提供商并未完全根据《犯罪所得和恐怖主义融资法案》得到保护，”她说。
 
-Moderna 尚未对这些事件发表评论。
+“我们的银行和金融机构已经有义务向加拿大金融交易和报告分析中心或 FINTRAC 报告，”弗里兰继续说道。“截至今天，所有众筹平台和他们使用的支付服务提供商都必须在 FINTRAC 注册，并且必须向 FINTRAC 报告大额可疑交易。”
 
-但是，有一些消息被放出来试图在辟谣：没错，根据Wallmine的股票页面，Bancel在过去六周内多次出售 Moderna 的股票。但是到目前为止，这位经理在 2022 年全年总共只卖出了大约 114,000 股，并且他仍然拥有该公司超过 7,000,000 股的股份。因此，自 1 月初以来，Bancel 已售出约 1.6% 的 Moderna 股票。
+“这将有助于降低这些平台收到非法资金的风险，提高 FINTRAC 收到的情报的质量和数量，并提供更多信息以支持执法部门对这些非法封锁进行调查，”她说。
 
-当然，嗅觉灵敏的人会一步步有条不紊的以难以察觉的方式为自己安排退路。显然，这位Moderna老板的举动证明了他自己已经察觉到疫苗的问题快要被彻底曝光了。
+“我们正在做出这些改变，因为我们知道这些平台被用来支持非法封锁和非法活动，这正在损害加拿大经济。政府还将提出立法，永久向 FINTRAC 提供这些权力，”她说，并指出这些措施将在封锁结束后很长时间内存在。
 
-新闻来源：[Was hat der Moderna-Chef zu verbergen?](https://www.bild.de/digital/internet/internet/geruechte-um-aktien-deal-was-hat-der-moderna-chef-zu-verbergen-79137220.bild.html###wt_ref=https:/news.google.com/&amp;wt_t=1644785937633)
+根据《紧急情况法》，弗里兰表示，政府正在命令金融机构停止向任何支持封锁的人提供金融服务，“如果该机构怀疑某个账户被用于推进非法封锁和占领。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
+“这个命令来自个人和公司账户，”她说，并补充说政府已命令银行审查他们与任何参与封锁的人的关系，并将其报告给当局。
 
+从今天起，任何银行或金融服务提供商都可以在没有法院命令的情况下立即冻结或暂停任何账户，并且“因善意提供的行为”而免于承担民事责任。
 
+“这是关于追踪金钱，”弗里兰说。“这是关于停止为这些非法封锁提供资金。我们今天发出通知。如果您的卡车被用于这些非法封锁，您的公司账户将被冻结。您车辆的保险将被暂停。将您的半挂车送回家。加拿大经济需要他们做合法的工作，而不是非法地让我们所有人变得更穷。”
+
+来源：https://www.rebelnews.com/freeland\_announces\_measures\_targeting\_crowdfunding\_platforms\_cryptocurrencies\_to\_curtail\_freedom\_convoy\_funding
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
