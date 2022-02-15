@@ -2,60 +2,105 @@
 ---
 
 
-## 魁北克省勒戈（Legault）政府拒绝实施《紧急措施法》
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2009639/)
+## 新南威尔士州注射疫苗前后感染中共病毒人数相差202倍
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2009697/)
 
-**编译及评论：16626**
+作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏）
 
-**不希望”看到《紧急措施法》在魁北克领土实施****，****联邦的这项决定是“火上浇油”**
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-魁北克省省长François Legault“不希望”看到《紧急措施法》在魁北克领土上实施，他说联邦的这项决定是“火上浇油”。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/70F3963D-A3F6-43BF-A0D7-75004FBFE259.png)**图片来源：截屏于**[**https://www.tvanouvelles.ca/2022/02/14/legault-rejette-la-loi-sur-les-mesures-durgence**](https://www.tvanouvelles.ca/2022/02/14/legault-rejette-la-loi-sur-les-mesures-durgence)
-**已经有几位省长表示反对**
+COVID-19病毒非来源于自然，而是中共向全世界投放的生物化学武器，COVID-19病毒由[中国科学院武汉病毒研究所](http://www.whiov.cas.cn/)通过基因编辑技术人工合成，没有疫苗！
 
-一位消息人士周一告诉 TVA Nouvelles，加拿大总理贾斯汀·特尔多（Justin Trdeau）今天早上通知了所有省长（有关《紧急措施法》的实施决定），已经有几位省长表示反对，包括阿尔伯塔省Alberta省长杰森肯尼Jason Kenney。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/640px-Wuhan_Institute_of_Virology_main_entrance.jpg)
 
-**目前没有发生有问题的示威活动**
+试验性的COVID-19病毒疫苗不但不能预防感染，还会对人体免疫系统产生持续性的破坏，注射试验性的疫苗只会增加感染、住院、ICU甚至死亡。
 
-魁北克省省长 François Legault 也是如此（反对《紧急措施法》的实施决定），他指出他所在的省目前没有发生有问题的示威活动。
+澳大利亚新南威尔士州的统计数据就是最好的证明！
 
-**让魁北克人团结起来，而不是分裂魁北克人**
+截止到本月10日，澳大利亚新南威尔士州年满16岁的人单剂中共病毒疫苗接种率高达95.55%，接种两剂（或完全接种疫苗）的比例为91.14%，甚至三针或加强针的比例都高达46.5%。
 
-“我们认为没有必要，我们在上周末看到了这一点，在魁北克，警察和魁北克省安全部Sûreté du Québec 已经设法保持并控制当前的局势，其次，我认为现在是让魁北克人团结起来的时刻，而不是分裂他们（魁北克人）”， 魁北克省省长François Legault解释说。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-15_22-43-27.png)
 
-**没有否决权 **
+如果试验性的COVID-19病毒疫苗真的可以预防感染，甚至即使没有任何作用，该州有如此高的疫苗接种率，中共病毒应当控制得相当好！
 
-魁北克政府没有办法阻止联邦政府采取行动。
+然而，到今天为止，澳大利亚新南威尔士州的中共病毒确诊案例达到惊人的1,031,688，占该州816.3万人口的12.64%，其中，91.4%是在最近63天内感染的。
 
-“省长有权对他的省做主（是否阻止联邦政府采取行动）”， 魁北克省省长François Legault说，并补充说，这是一个“政治”问题。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/NSW-Total-Cases.jpg)
 
-《紧急措施法》并不一定意味着立即部署军队。上周五，加拿大总理贾斯汀·特尔多（Justin Trdeau）坚称，军事干预是“最后手段”。
+在去年1月25日澳大利亚开始注射COVID-19病毒疫苗以前，去年1月24日正好是该州发现第一例中共病毒感一周年的时候，染该州累计确诊人数仅为5,087人，只有目前的0.49%。在该州开始注射试验性的疫苗短短一年零22天的时间内，感染率就增加了202倍。
 
-安大略省省长道格福特周一保证，他将支持“联邦政府提出的任何建议，为我们的省带来法律和秩序，并确保我们的稳定，我们的企业，和与世界的贸易（正常运转）”。
+按照新南威尔士州卫生部门2月4日发布的每周COVID-19监测报告（[COVID-19 WEEKLY SURVEILLANCE IN NSW EPIDEMIOLOGICAL WEEK 03 ENDING 22 JANUARY 2022—Published 4 February 2022](https://www.health.nsw.gov.au/Infectious/covid-19/Documents/covid-19-surveillance-report-20220204.pdf)）（2021年11月26日到2022年1月22日的数据）第32页的对疫苗接种状态的定义，该州卫生部门发布的每周COVID-19监测报告中，数据的统计标准是疫苗接种状态分为：
 
-**小土豆完全是痴心的疯子**
+![](https://assets.gnews.org/wp-content/uploads/2022/01/NWS-COVID-19-Vaccine-Status.jpg)
 
-另外，在2022年02月09日文贵大直播中，七哥讲到：
+未接种疫苗（No effective dose）：指从未接种过COVID-19病毒疫苗或者在PCR检测COVID-19呈阳性时，距离接种第1针COVID-19疫苗的日期不超过21天。
 
-*“**…**被共产党及完全失败的人控制着，小土豆完全是痴心的疯子。共产党希望加拿大和美国越乱越好，但这正不是我们希望发生的。”*
+接种过1针疫苗（Partially vaccinated）：指PCR检测COVID-19呈阳性时，接种过1针疫苗，且距离接种第1针疫苗的时间大于21天。如果接种了2针，则距离接种第2针的日期不超过14天。或者接种了1针Johnson & Johnson疫苗后不超过14天。
 
-**反对政府施加暴力于人民**
+完全接种疫苗（Fully vaccinated）：指PCR检测COVID-19呈阳性时，接种完所有疫苗，且接种疫苗的时间超过14天。
 
-我们谴责并反对暴力示威，更反对政府施加暴力于人民。我们相信魁北克省，乃至加拿大不会乱。
+疫苗接种状态不明确（Under investigation）
 
-**参考资料**：
+查看上面该州年满16岁的人疫苗接种率的时间分布图，尽管该图无法查到去年11月26日前推14天的11月11日新南威尔士州加强针接种数据，但澳大利亚在去年10月7日才开始接种加强针，到去年11月11日时，加强针接种率为0.92%，而到2021年11月26日~2022年1月22日的中位日期2021年12月25日时，加强针接种率为7.98%，而到今年1月22日时，该州加强针疫苗接种率已经达到25.05%。
 
-[Legault rejette la Loi sur les mesures d’urgence](https://www.tvanouvelles.ca/2022/02/14/legault-rejette-la-loi-sur-les-mesures-durgence)
+结合上面的疫苗接种状态定义，显然存在大量接种3针和加强针的感染者被归入打了两针。
 
-**编辑：LILY**
+而根据2月4日发布的每周COVID-19监测报告第11页，5~11岁儿童1针疫苗接种率，从1月9日开始接种，到1月22日已经达到25%左右。
 
-**发布：歪桑**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Figure-7-Proportion-of-children-aged-5-11-years.jpg)
 
-20220215
+结合上面的疫苗接种状态定义，显然存在大量接种1针不超过21天的感染者被归入未打疫苗的人群。
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3-4.jpg)
+尽管通过这样的刻意偷换概念，将很多接种COVID-19病毒疫苗不超过21天的COVID-19感染者记入未接种人群，仍然无法掩盖疫苗带来的严重灾难的事实！
+
+下图为根据2月4日发布的每周COVID-19监测报告第9页，根据疫苗接种状态划分的确诊感染、住院、ICU和死亡数据
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Table-5-Hospitalisations-ICU-admissions-and-deaths.jpg)
+去掉疫苗接种状态未知的数据，根据疫苗接种状态分类的病例、住院和死亡数据如下图
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-289-1.png)
+
+无论确诊、住院，还是死亡，接种疫苗的人群都占了绝大多数。
+
+去掉疫苗接种状态未知的数据，在11月26日至22日1月22日期间，新南威尔士州共有540,330例新增病例，其中接种疫苗的人数达到了惊人的467,558人，占86.53%，而未接种疫苗的人数仅为72,772人，占13.47%。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-290-1.png)
+
+去掉疫苗接种状态未知的数据，在11月26日至22日1月22日期间，新南威尔士州共有6,475人因Covid-19住院，其中接种疫苗的达到惊人的5,653人，占87.3%，而未接种疫苗的仅822人，占12.7%。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-291-1.png)
+
+去掉疫苗接种状态未知的数据，在11月26日至22日1月22日期间，新南威尔士州共有421人不幸丧生，不幸的是，接种疫苗的死亡人数是323人，而未接种疫苗的人数仅98人。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-292-1.png)
+
+新南威尔士州的这份报告按10岁的年龄分段来报告分年龄段的感染者数据，显然这是非常不科学。因为这样把0~4岁的未接种过疫苗的小孩和5~11岁接种过疫苗的儿童感染中共病毒情况无法区分开来，这会使分析者缺少对照组，无法进行深入的分析。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Figure-8-Number-of-PCR-tests-per-1000-population-by-age-group-NSW-16-June-2021-to-22-January-2022.jpg)
+
+参考数据：
+
+[COVID-19 WEEKLY SURVEILLANCE IN NSW EPIDEMIOLOGICAL WEEK 03 ENDING 22 JANUARY 2022—Published 4 February 2022](https://www.health.nsw.gov.au/Infectious/covid-19/Documents/covid-19-surveillance-report-20220204.pdf)
+
+[Live COVID-19 Vaccination Tracker Australia](https://covidvax.live/location/aus)
+
+[NSW – vaccine targets and forecasts](https://www.covid19data.com.au/vaccine-forecasts)
+
+[NSW data:Vaccination status of cases and hospitalisations](https://www.covid19data.com.au/nsw)
+
+[The latest case numbers, vaccination totals and statistics on coronavirus disease in NSW.](https://www.nsw.gov.au/covid-19/stay-safe/data-and-statistics)
+
+[Population of New South Wales 2022](https://www.population.net.au/population-of-new-south-wales/)
+
+[Data on COVID-19 (coronavirus) by Our World in Data](https://github.com/owid/covid-19-data/tree/master/public/data)
+
+[COVID-19 data and statistics](https://www.nsw.gov.au/covid-19/stay-safe/data-and-statistics)
+
+[Covid-19 Deaths are at record levels in Australia and 4 in every 5 of them are among the Fully Vaccinated](https://dailyexpose.uk/2022/02/15/australia-4-in-5-covid-deaths-fully-vaccinated/)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

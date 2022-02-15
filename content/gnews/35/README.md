@@ -2,19 +2,32 @@
 ---
 
 
-## 秘翻在线：俄宣布从乌克兰边界部分撤军
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2009463/)
+## 众议员丽萨谈制裁中共法案已经触怒了中共
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2009514/)
 
-#### 翻译/撰稿：文旺 |校对：沙拉猫
-![](https://assets.gnews.org/wp-content/uploads/2022/02/17oodqxwc5sdpcsj_1644821658.jpeg)图片来源：Republic World
-正当世界聚焦俄乌边界紧张局势，西方媒体普遍认为俄乌战争一触即发之际，美联社（AP）2月15日发布消息称，俄罗斯周二宣布，部分参加军事演习的军队正在返回他们的基地。
+作者：银河系农场—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月12日外媒报道，众议员丽萨-麦克莱恩谈及，她最近提出的关于制裁中共高官及其家人、资产的法案，她说这个法案明显已经触怒了中共，但是美国有勇气面对中共的报复和威胁。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-15-上午10.45.41.png)
+丽萨认为，该法案的提出，也说明了中共的行为是不能容忍的，美国国会不能再对中共的各种侵犯人权，以及进行种族大屠杀的行为视而不见，无论是对香港、维族穆斯林还是台湾。同时，她呼吁美国那些和中共合作的政府官员，应当即刻停止与中共的勾兑。
 
-报道指出，这消息或许增加了人们认为普金不会立即入侵乌克兰的一线希望，但并未打消人们的疑虑，因为它没有详细说明部队从哪里撤退，或者撤退的人数。就在俄罗斯国防部发表声明前几个小时，一名美国国防官员称，俄罗斯部队正在靠近，而不是远离乌克兰边境。北约负责人也表示，北约尚无俄罗斯撤退的证据。西方官员继续警告说，俄罗斯军队可能随时发动攻击，其中一些人认为周三仍可能是俄国入侵乌克兰的日子。
+此制裁法案可能与之前的国防授权法联合起来。丽萨一再强调软弱与妥协只会让中共发动再次攻击。
 
-尽管俄罗斯否认有任何入侵计划，却在乌克兰北部、南部和东部边境部署了超过 130,000 名士兵，并在附近进行大规模军事演习，因而加剧了人们对俄国入侵乌克兰的担忧。与此同时，美国和其北约盟国已向乌克兰增加了部队和运送军事物资，并承诺提供更多的财政援助给这个曾经属于前苏联的国家。
+参考链接：[Exclusive — Rep. Lisa McClain on Stop CCP Act: ‘We’ve Struck a Nerve’](https://www.breitbart.com/politics/2022/02/12/exclusive-rep-lisa-mcclain-on-stop-ccp-act-weve-struck-a-nerve/)
 
-消息来源：[Putin: Russia ready to discuss confidence-building measures](https://apnews.com/article/russia-ukraine-russia-london-europe-moscow-b158645ccf222e05aede08e26b9f62c1)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
+总编：Zion文恩
+编辑：Ivy001
+校正/发稿：呼吸的雾霾（文小呼吸）
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

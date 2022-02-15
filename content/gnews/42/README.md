@@ -2,34 +2,20 @@
 ---
 
 
-## 美议员国会推出议案 要求在美上市企业披露是否有中共参与
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2008936/)
+## 2月11日晚法国足球运动员埃玛努埃尔•吉拉尔多特在一场足球比赛中突感不适死亡
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2009221/)
 
-**撰稿：日本东京方舟农场 Kevin wang**
+#### 翻译 /简评                     意大利达芬奇农场                    小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-15-alle-11.30.11.png)图片来源：eventiavversinews.it
+埃玛努埃尔•吉拉尔多特是Fc Fontcouvert 队的一名足球老将，他同时还是一名体育老师。2月11日晚在一场足球比赛中突感不适。 在开场后的15分钟，吉拉尔多特心脏骤停，虽经经医生救治，但他没有活过来，刚到医院就离开了人世。
 
-2月14日，美数位共和党参议员宣布推出一项要求在美上市公司披露其运营中是否有中共组织参与的法案 。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-158.png)（图片来自网络）
-美国之音报道，共和党籍联邦参议员布莱克伯恩（Marsha Blackburn）和鲁比奥（Marco Rubio）2月14日宣布推出《禁止中国共产党行使诡计通过未登记的政权存在而隐瞒股东与等效方法》（No Chinese Communist Subterfuge via Unregistered Regime Presence Rendered Invisible to Shareholders and Equivalent Parties Act），简称为《禁止中国共产党出乎当事方意料法》（No Chinese Communist SURPRISE Parties Act）。该法案指示美国证券交易委员会要求在美国交易所上市的公司确认其运营中是否有中国共产党的组织。该法案还将要求任何公司详细说明中共组织对其公司治理决策的参与情况，并披露公司是否负有任何信托责任，包括外国信托责任。
+吉拉尔多特所在的Fc Fontcouverte 球队2月12日在其社交网站上宣布了他死亡的消息。“ FC Fontcouvert 球队怀着悲伤的心情宣布埃玛努埃尔•吉拉尔多特于昨晚去世。他是俱乐部的老球员，昨天在一场球赛中他突感不适。俱乐部向他的家人和亲人们致以慰问。”
 
-布莱克伯恩参议员在一份声明中表示，中国共产党继续通过强迫美国公司在其内部发展共产党组织来控制美国公司， 美国投资者有权知道，他们辛苦赚来的钱是否在支持受到中共控制的公司。
+简评：每个星期我们都能读到或看到球员去世的消息，但是在报道中没有提球员是否接种了新冠疫苗。太多的心脏骤停，太多的年轻健康的运动员“突感不适”。还会有多少年轻健康的生命会突然逝去？
 
-鲁比奥参议员在声明中表示，在美国的上市公司不应该成为中国共产党的工具，美国投资者有权知道是否有这种情况。
+原文链接：[https://www.eventiavversinews.it/francia-muore-colpito-da-malore-improvviso-venerdi-sera-11-febbraio-durante-una-partita-il-calciatore-emmanuel-girardot-rinviate-per-lutto-tutte-le-partite-del-weekend-nella-provincia/](https://www.eventiavversinews.it/francia-muore-colpito-da-malore-improvviso-venerdi-sera-11-febbraio-durante-una-partita-il-calciatore-emmanuel-girardot-rinviate-per-lutto-tutte-le-partite-del-weekend-nella-provincia/)
 
-鲁比奥参议员认为，该法案为中共“通过加深对美国金融市场的影响来颠覆美国的企图”提供了一个常识性的解决方案。
-
-另一共和党籍众议员坦尼（Claudia Tenney）在众议院也推出了相关的法案。坦尼众议员在声明中表示，中国共产党的恶意影响根深蒂固，而《禁止中国共产党出乎当事方意料法》将有助于揭示中共对上市公司的影响力和杠杆作用，并减少金融市场中的信息不对称。
-
-这是继2019年3月美国提出《外国公司问责法案》以来，共和党派议员提出的一系列针对中国投资或中概股的法案。
-
-据悉，2021年12月2日，美国证监会（SEC）通过《外国公司问责法案》修正案（HFCAA）细则。根据法案内容，从2022年起，如果PCAOB连续三年无法审查发行人的会计师事务所，则该股票将被禁止在全美交易所交易，并强制在美股市场退市（即2025年），这被认为是对在美上市中概股的“一记狠招”，该法要求企业上市三年内需要向美国公众公司会计监督委员会(PCAOB)提供审计底稿，否则可能会被强制退市。
-
-值得关注的是，中共在2019年11月审议批准的《中国共产党国有企业基层组织工作条例》，加强党对企业的领导。根据该条例，国有企业按照中共党员人数的多少设立党的基层委员会和总支部委员会。条例规定国有企业有三人以上的正式党员就要成立党支部。从此项条例可以看到，《外国公司问责法案》对于所有在美上市的企业带来了巨大的压力。
-
-在美上市的中国企业在美国政府日趋严格的监督和管控中，已经连续呈现暴跌的态势，可以预见的是，在美上市的中国企业的监管“噩梦”还会继续，依靠独裁扶持和造假必将付出沉重的代价。
-
-素材采编：Kevin wang
-编辑：青城道姑
-发布：爱放飞
+编辑、上传： Xiao   baige
 
  
 

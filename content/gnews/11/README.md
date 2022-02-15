@@ -2,23 +2,11 @@
 ---
 
 
-## 郭文贵盖特音频2022.02.15
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2009753/)
+## 2月13日文贵大直播摘要/（11-13）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2009818/)
 
-音频提供者：左媛
-![](https://assets.gnews.org/wp-content/uploads/2022/02/out-14.jpg)
-### 视频链接：
-
-[https://www.gettr.com/post/pupixc4e7b](https://www.gettr.com/post/pupixc4e7b)
-
-### 音频链接：
-
-
-
-
-
-编辑发布：闪电训练
-
+设计 五月花农场 科存
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3774C330-29EE-4A5C-ABFE-5795D2EEE52F.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/B3F82983-28FD-4C2A-ABE3-5312C8D4033C.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/D069B2EB-DCF1-406A-B57E-C4A3F69BB727.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
