@@ -2,35 +2,42 @@
 ---
 
 
-## 产经新闻：中国在阿拉伯各国关押、遣返维吾尔人，或存在执法黑屋
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2009614/)
+## 加拿大疫情检验和疫苗强制政策骤现松动趋势
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2009635/)
 
-翻译：宫米叶
+作者：香草山- Naught（文行）， 银河系农场 骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+近日以来，加拿大局部地区的疫情检验和疫苗强制政策突现松动趋势。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-15-171105.jpg)图片来源：yahoo.co.jp
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide4-8.jpeg)
 
-欧美媒体相继报道了从中国新疆维吾尔自治区移居阿拉伯国家的维吾尔人在当地被拘留或被强行遣返中国的案件。这似乎也是应中国对经济联系密切的阿拉伯国家要求进行的拘留和遣返。欧美媒体和流亡维吾尔人组织“世界维吾尔会议”的干部还指出，阿联酋(UAE)可能有一个被称为“执法黑屋”的中国秘密收容所。
+2月14日，安省省长福特宣布，大多数疫情限制措施自2月17日开始解除。3月1日将取消所有场所的疫苗证明要求，并取消室内设施容量限制。
 
-英国天空新闻电视台9日报道，据推测，应中国的要求在阿拉伯国家被拘留或被强行遣返中国的维吾尔人自2001年以来已升至290多人。分析认为，除阿联酋外，埃及、摩洛哥、卡塔尔、沙特阿拉伯和叙利亚都参与了中国对维吾尔人的镇压。
+这些限制措施包括：到月底前，社交聚会将增加到室内50人，室外100人；餐厅、健身房、会议、室内宗教活动等，取消容量限制；电影院、音乐会等场地开放50%；超市、药房等场所只要能保持2米距离，容量不受限制。从下月起，取消疫苗护照及所有限制。
 
-据天空新闻和美国CNN电视台报道，居住在阿联酋的维吾尔男子阿玛德（音）先生于2018年2月突然接到迪拜警方的出庭要求后被拘留。据悉，阿玛德先生在被遣返中国前夕曾对妻子说：“我确信中国的威胁甚至危及到了阿联酋的家人。”
+福特特别强调，提前重开计划，并非因为温莎的边境封锁，以及渥太华的抗议，而是基于疫情各项指标的持续改善。
 
-也有迪拜存在“执法黑屋”的目击信息被曝光。据天空新闻和美联社报道，汉族妇女吴凡（音，时年26岁）去年5月因未婚夫支持香港民主示威而被迪拜警方拘留，并被带到一栋三层宅邸。
+此外，据2月11日《路透社》消息，加拿大卫生部长周五表示，因为奥密克戎变种病毒爆发的最糟糕阶段已经过去，加拿大正在审查其与疫情相关的边境限制措施，并可能会在下周宣布政策变化。
 
-在这座宅邸里，她被押进一个像牢房一样带金属门的小房间，保安用中文威胁她：“你绝对出不去的。”据悉，被关押期间，她听到一名被视为维吾尔族女子呼喊“我不想回中国，我要回土耳其”等。根据英国人权专家的说法，这座宅邸可能是一个中国在海外关押和审讯维吾尔人的秘密收容所。
+据加拿大广播公司早先的报道，联邦政府即将取消其要求境外旅行的加拿大人，入境后必须接受强制性中共病毒PCR检测的要求。至发稿时，加拿大政府仍要求所有入境旅客在抵达后72小时内提供PCR检测呈阴性的证据。
 
-据英国媒体报道，中国让六千多家企业进驻阿联酋，与阿联酋经济联系紧密。世界维吾尔会议英国所长拉希玛·玛夫姆特（音）先生向产经新闻指出：“一些国家将经济利益看的比人命更重要而迎合中国政府的意图，关押维吾尔人。”他认为，除了迪拜之外，还可能存在别的“执法黑屋”，他对“中国的越境压迫和统治体系持续渗透”表示深感危机。
+参考链接：
+1. [Ontario to end COVID-19 vaccine passport system March 1](https://amp.detroitnews.com/amp/6783275001)
+2. [Canada to make changes to COVID border restrictions next week-official](https://www.reuters.com/world/americas/canada-remove-mandatory-tests-vaccinated-canadians-who-travel-outside-country-2022-02-11/)
 
-尽管天空新闻已经向UAE等国寻求解释，但截至9日仍未获得答复。新疆维吾尔自治区发言人否认了天空新闻的报道，称“中国不可能在海外设置执法黑屋”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-新闻来源：[yahoo.co.jp][アラブ諸国でウイグル人拘束　中国に送還、秘密収容所も存在か](https://news.yahoo.co.jp/articles/9a90b0183dd58015a18ae4f3d0da8722ac01eb3c)
+总编：Zion文恩
+编辑：Delilah小胖、宁文静
+校正/发稿：谐趣园
 
-* * *
-
-*审核：天天 
-校对：zicoround
-发稿: Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-2.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

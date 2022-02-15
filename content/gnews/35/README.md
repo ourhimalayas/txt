@@ -2,32 +2,32 @@
 ---
 
 
-## 众议员丽萨谈制裁中共法案已经触怒了中共
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2009514/)
+## 加拿大公民自由团体谴责特鲁多的《紧急状态法》
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2009499/)
 
-作者：银河系农场—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月12日外媒报道，众议员丽萨-麦克莱恩谈及，她最近提出的关于制裁中共高官及其家人、资产的法案，她说这个法案明显已经触怒了中共，但是美国有勇气面对中共的报复和威胁。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-15-上午10.45.41.png)
-丽萨认为，该法案的提出，也说明了中共的行为是不能容忍的，美国国会不能再对中共的各种侵犯人权，以及进行种族大屠杀的行为视而不见，无论是对香港、维族穆斯林还是台湾。同时，她呼吁美国那些和中共合作的政府官员，应当即刻停止与中共的勾兑。
+加拿大温哥华扬帆农场 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2022/02/60777644_303.jpg)图片来源：DW
+根据《福克斯新闻》2月15日报道，在总理贾斯汀-特鲁多援引《紧急状态法》，切断对抗议的 “自由车队 “卡车司机的资助路线后，一些加拿大公民自由团体对其作出反应。
 
-此制裁法案可能与之前的国防授权法联合起来。丽萨一再强调软弱与妥协只会让中共发动再次攻击。
+据路透社报道，虽然一些团体赞同切断抗议者资金的措施，但很多团体谴责这一行动，称其为政府过度扩张。
 
-参考链接：[Exclusive — Rep. Lisa McClain on Stop CCP Act: ‘We’ve Struck a Nerve’](https://www.breitbart.com/politics/2022/02/12/exclusive-rep-lisa-mcclain-on-stop-ccp-act-weve-struck-a-nerve/)
+加拿大公民自由协会说，卡车司机的抗议活动不符合特鲁多援引《紧急状态法》的标准，该法的存在是为了 “加拿大政府有能力维护加拿大的主权、安全和领土完整”，而且只适用于 “根据加拿大任何其他法律都无法有效处理的 “行动。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+加拿大公民自由协会补充说，这种危险的使用方式 “不应该被正常化”。
 
-总编：Zion文恩
-编辑：Ivy001
-校正/发稿：呼吸的雾霾（文小呼吸）
+“我们认识到联邦政府决定援引《紧急状态法》的严重性。在呼吁联邦政府展示国家领导力时，我们本希望这是朝着结束全国封锁和维护法治迈出的一步，”加拿大人说公民自由协会说。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+路透社报道了卡尔加里皇家山大学的政治教授洛里-威廉姆斯的意见：“使用《紧急状态法》来阻止抗议活动，有造成更多问题的危险。这必须是在州长的合作下完成的，如果他们不愿意实施《紧急状态法》，联邦政府就需要退后。这必须非常有针对性、非常战略性和非常克制，因为这些都是正在动用巨大的权力”。
+
+其他一些公民自由专家担心特鲁多的决定可能会激发更多的抗议或民间动乱。
+
+原文链接：
+[https://www.foxnews.com/world/canadian-civil-liberties-groups-respond-to-trudeau-invoking-emergencies-act](https://www.foxnews.com/world/canadian-civil-liberties-groups-respond-to-trudeau-invoking-emergencies-act)
+
+编辑，发稿 Spirit
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

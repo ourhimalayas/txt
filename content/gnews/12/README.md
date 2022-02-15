@@ -2,18 +2,12 @@
 ---
 
 
-## 2022年2月15日，全球中共病毒疫情情况汇总
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2009815/)
+## 七哥金句：放毒锁国
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2009884/)
 
-制作：DT新闻组
-
-**中共的杀戮还在继续……**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/CCBDB2D7-D051-4763-AAF6-1E1F19C62575.jpg)
-
-发稿：信心的选择
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-2.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句1-1-scaled.jpg)
+整理：雅典娜农场
+发布：枫叶红了
 
  
 

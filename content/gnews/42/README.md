@@ -2,20 +2,82 @@
 ---
 
 
-## 2月11日晚法国足球运动员埃玛努埃尔•吉拉尔多特在一场足球比赛中突感不适死亡
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2009221/)
+## 《新中国联邦不沉默》
+` 新西兰伊甸农场听写编辑组` [轉載自GNews](https://gnews.org/zh-hans/2009057/)
 
-#### 翻译 /简评                     意大利达芬奇农场                    小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-15-alle-11.30.11.png)图片来源：eventiavversinews.it
-埃玛努埃尔•吉拉尔多特是Fc Fontcouvert 队的一名足球老将，他同时还是一名体育老师。2月11日晚在一场足球比赛中突感不适。 在开场后的15分钟，吉拉尔多特心脏骤停，虽经经医生救治，但他没有活过来，刚到医院就离开了人世。
+作者：Kiwi snail、天下大同（文七）、希望之光0425、文勇
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1280px-新中国联邦国旗.svg_.png)
 
-吉拉尔多特所在的Fc Fontcouverte 球队2月12日在其社交网站上宣布了他死亡的消息。“ FC Fontcouvert 球队怀着悲伤的心情宣布埃玛努埃尔•吉拉尔多特于昨晚去世。他是俱乐部的老球员，昨天在一场球赛中他突感不适。俱乐部向他的家人和亲人们致以慰问。”
+```
+你包容 或者不包容
+战友就在那里 不舍不弃 以爱相宜
+你有感受 或者没感受
+战友的爱就在那里 不折不扣 永恒唯一
+你接受 或者不接受
+麻木的人啊就在那里 不管不顾 只有自己
+你欢喜 或者不欢喜
+喜币的价值就在那里
+不知不觉 悄无声息
+你参与 或者不参与
+战友的行动就在那里
+不屈不挠 坚定不移
+你发 或者不发
+盖特就在那里 不吐不快 字字珠玑
+捐款法治基金 或者 让法治基金来援助你
+信仰 拯救
+诚实 正义
+```
 
-简评：每个星期我们都能读到或看到球员去世的消息，但是在报道中没有提球员是否接种了新冠疫苗。太多的心脏骤停，太多的年轻健康的运动员“突感不适”。还会有多少年轻健康的生命会突然逝去？
 
-原文链接：[https://www.eventiavversinews.it/francia-muore-colpito-da-malore-improvviso-venerdi-sera-11-febbraio-durante-una-partita-il-calciatore-emmanuel-girardot-rinviate-per-lutto-tutte-le-partite-del-weekend-nella-provincia/](https://www.eventiavversinews.it/francia-muore-colpito-da-malore-improvviso-venerdi-sera-11-febbraio-durante-una-partita-il-calciatore-emmanuel-girardot-rinviate-per-lutto-tutte-le-partite-del-weekend-nella-provincia/)
 
-编辑、上传： Xiao   baige
+```
+你信 或者不信
+爆料革命就在那里 不卑不亢 勇往前行
+你加入 或者不加入
+新中国联邦就在那里 不破不立 只做自己
+你用 或者不用
+喜币就在那里 不即不离 畅通万里
+你打 或者不打
+CCP的毒针就在那里 不依不饶 要你小命
+你用 或者不用
+青蒿素的奇效就在那里 神秘强大 堪称奇迹
+```
+
+
+
+```
+你接受 或者不接受
+垂死的中共就在那里 无恶不作 必死无疑
+你屈服 或者不屈服
+盗国贼就在那里 不仁不义 邪恶至极
+你看 或者不看
+盗国贼的陷阱就在那里 不知不觉 扒皮抽筋
+你唾弃 或者不唾弃
+央视的春晚就在那里 群魔乱舞 表里不一
+你看见 或者不看见
+冤屈的灵魂哪就在那里 不明不白 但终有结局
+消灭中共 或者 坐等中共蹂躏你的妻女
+野蛮 残忍
+消失 忘记
+```
+
+
+
+```
+你见 或者不见
+信仰就在那里 不生不灭 不增不减
+塞北的雪 飘飘洒洒 漫天遍野
+你祈福 或者不祈福
+联邦和战友就在那里 不悲不喜 永恒淡定
+加入新中国联邦 或者 让新中国联邦拯救你
+大爱 宽容
+不离 不弃
+```
+
+
+审核校对：一念、面包树
+
+上传排版：文勇
 
  
 
