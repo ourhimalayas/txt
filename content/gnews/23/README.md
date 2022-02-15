@@ -2,12 +2,25 @@
 ---
 
 
-## 英国外长伊丽莎白·特拉斯：俄罗斯可能立即入侵乌克兰
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2008055/)
+## NewSGman┃疫情新闻全球速报（2月9日）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2008182/)
 
-02/14/2022 英国外长伊丽莎白·特拉斯：俄罗斯可能立即入侵乌克兰，但我们也在寻求一条外交和缓和局势的道路。 如果他们入侵乌克兰，俄罗斯将付出代价。我们刚刚推出了新的制裁立法，这是我们对俄罗斯采取的最严厉的制裁措施。
+撰稿：东京樱花团/NewSGman
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+广西壮族自治区百色市自2月7日起全民居家隔离，8日下午统计共126感染病例
+
+广东深圳宝安区石岩街道自4日升级为中风险地区至今未解封
+
+圣城香港2月8日报告新增625例病例，过去两周超2600人感染
+
+中港跨境货车司机感染致农产品供应下降
+
+盖特链接：https://gettr.com/post/ptehyyb5bf
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
 
  
 
