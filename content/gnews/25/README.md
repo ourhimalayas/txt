@@ -2,22 +2,31 @@
 ---
 
 
-## 因拒绝接种疫苗 德约科维奇可能不参加法网和温网
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2007838/)
+## 卫星图像显示，俄罗斯已近距离三面包围乌克兰
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2007862/)
 
-撰稿：东京樱花团/asket
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1486.png)[**图片来源**](https://apnews.com/article/novak-djokovic-coronavirus-pandemic-sports-health-tennis-66cc7243140ee6e6b78ffb9448d74763?utm_medium=AP&amp;utm_source=Twitter&amp;utm_campaign=SocialFlow)
-伦敦（美联社）报道，诺瓦克·德约科维奇在周二14日播出的采访中说，如果需要接种中共病毒（新冠病毒Covid-19）疫苗才能参赛，他准备跳过法国公开赛和温布尔登公开赛。
+素材整理：波士顿五月花 Vicky
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-15-at-5.13.41-PM.png)图片来源：Yahoo
+根据Maxar技术公司周一发布的新的卫星图像显示，俄罗斯大量陆军及空军单位已集结于白俄罗斯与乌克兰边境，俄罗斯军队正在走出集结区，向乌克兰北部，东部和南部集结军队。
 
-这位20次大满贯冠军在接受BBC采访时说，他没有接种疫苗，并补充说，错过接下来的两场大满贯和其他比赛是“我愿意付出的代价”。
+卫星图片也发现俄军已经大规模将部队与攻击直升机派往边境，同时地面攻击机与战斗轰炸机也在前线做好部署。
 
-“我明白我的决定的后果，”德约科维奇说。“我明白，今天没有接种疫苗，你知道，我目前无法前往大部分的比赛。”
+五角大楼周一下午表示，它仍然不知道俄罗斯总统弗拉基米尔-普京是否已经决定发动攻击。但他们说，如果他选择这样做，他已经准备好了。
 
-信息来源： [**Unvaccinated Djokovic could skip French Open, Wimbledon**](https://apnews.com/article/novak-djokovic-coronavirus-pandemic-sports-health-tennis-66cc7243140ee6e6b78ffb9448d74763?utm_medium=AP&amp;utm_source=Twitter&amp;utm_campaign=SocialFlow)
+五角大楼发言人柯比重申，在周一继续进行的会谈中，外交解决方案仍然是首选结果。美联社报道说，克里姆林宫表明它准备继续就乌克兰危机进行会谈。莫斯科一再否认有任何入侵乌克兰的意图，但也要求北约提供安全保证，不向乌克兰或其他前苏联国家提供成员资格，华盛顿拒绝了这一要求。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+拜登总统周六与普京通了电话，但白宫并没有表示这次通话削弱了欧洲即将发生战争的任何可能威胁。
+
+美国官员现在说，俄罗斯在乌克兰边境附近有超过13万的军队。
+
+Maxar在过去几个月发布的卫星图像显示，部队驻扎在乌克兰北部、与俄罗斯的西部边界周围以及克里米亚半岛。俄罗斯在2014年吞并了克里米亚。
+
+参考链接：[Russia sending troops, equipment closer to Ukraine, satellite images show](https://news.yahoo.com/russia-sending-troops-equipment-closer-032413007.html)
+
+* * *
+
+*编辑&发布：Vicky*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
