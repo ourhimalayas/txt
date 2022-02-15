@@ -2,27 +2,37 @@
 ---
 
 
-## NewSGman┃中共收集北京冬奥会有何参与者生物数据邪恶目的
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2008748/)
+## DC每日热点0215
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2008864/)
 
-撰稿：东京樱花团/NewSGman
+编辑：楚门门
+![](https://assets.gnews.org/wp-content/uploads/2022/02/92CD5B27-76B8-4281-85CB-E254C31852DD-scaled.jpeg)
+道琼斯指数 34566.17 ▼0.50%
+纳斯达克指数 13790.92 ▼0.10%
+WTI纽约原油CFD 92.650▼2.93%
+布伦特原油CFD 93.826 ▼2.75%
+标普50指数 2,836.40 ▼56.23%
+美元兑人民币 1USD=6.343 RMB
+美元兑港币 1USD=7.803 HKD
+国际黄金 1848.70美元/盎司
+全球CCP病毒感染人数414,605,069例
 
-中共收集北京冬奥会有何参与者生物数据邪恶目的
-
-国家元首DNA 运动员的DNA都被共产党掌握
-
-中共收集参加冬奥会各国领导人和运动员的尿和大便是服务于其邪恶的目的 – 提取并用他们的基因以生出“更优秀”的种族；中共骨子里是种族主义者并且崇拜优秀人体和基因
-
-——2022年2月6日郭文贵大直播
-
-2/6/2022 Miles Guo: The CCP collects urine and feces from the leaders and athletes of various countries participating in the Winter Olympics to serve its evil purpose – to extract and use their genes to produce a “better” race. The CCP is racist at its core and worships superior physiques and eugenics.
-
-盖特链接：https://gettr.com/post/pt0t4gc947
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
+1、五角大楼：美国海军正在南中国海打捞坠海F-35战机
+2、美共和党议员在两院推出议案 要求在美上市公司披露是否有中共组织
+3、德总理称西方愿意与俄罗斯认真谈判欧洲安全议题，美将驻乌大使馆运作转移出基辅
+4、历史首次：以色列总理访问巴林
+5、英国人权组织“香港监察”网站遭香港封锁 再惹网络自由忧虑
+6、人权组织称国际奥委会未进行充分调查 无法确保奥运服装未涉及强迫劳动
+7、卫星图像显示俄罗斯在乌克兰附近有新的军事活动 未指是撤军
+8、日本首相岸田文雄15日将与乌克兰总统电话会谈
+9、台湾宣布已加入欧盟就中共国压制立陶宛贸易问题在WTO提出的诉讼
+10、朝鲜核试验场附近发生小规模天然地震 疑核试验后果
+11、乌克兰总统表示继续争取加入北约，富豪们纷纷逃离乌克兰
+12、加拿大警方强行执法 逮捕阻碍交通要道民众
+13、欧盟：将制定反制计划 助立陶宛对抗中共胁迫
+14、法国绿党总统候选人罕见炮轰其他竞选者巴结普京
+15、伊拉克与法国石油巨头道达尔集团的一项巨额投资协议陷入僵局
+16、滴滴据报几乎全线业务都将裁员 总体比例约为20%
 
  
 

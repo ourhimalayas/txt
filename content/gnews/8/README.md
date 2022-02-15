@@ -2,42 +2,30 @@
 ---
 
 
-## 有声| 日本医生： 疫苗比病毒可怕百倍，人心比病毒可怕千倍
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2008817/)
+## 卡车司机使用的众筹支付平台被加拿大纳入反洗钱和恐怖主义金援行列
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2009009/)
 
-配音：香草山农场 – 信念7
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-2月11日晚，在日本东京，电影《疫苗后遗症》公映后，影片的导演长尾和宏医生和主创鸟集彻记者，从三个方面提到了他们揭露疫苗后遗症后所有的遭遇。
+翻译整理:Elli
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-63.png)图片来源：[https://gettr.com/post/pukgdu7637](https://gettr.com/post/pukgdu7637)
+加拿大副总理宣布将把众筹平台，众筹平台所使用的支付平台纳入加拿大反洗钱和打击恐怖主义金援的行列里。
 
-首先，负责统筹日本医疗界的日本医师会高层，因为长尾医生揭露疫苗灾难，要求日本的私人医生不再收治感染中共病毒的患者，甚至打电话要求长尾医生闭嘴并删除所有的相关视频。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-35.jpg)
-其次，就像二战时期一样，日本的媒体开始跟政府联合起来欺骗日本国民，大肆宣扬所谓接种的好处而对危害避而不谈。
+此言一出，一片哗然。锁住资金流动渠道，真是掐住自由车队的脖子。在加拿大的TD Bank冻结给卡车司机140万美金捐款之后，政府再出狠招。面不改色的朝令夕改，一脸凛然的宣布这些捐款支持自由车队的捐款，支付平台全部被扩大纳入反洗钱的名单。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-11.png)图片来源：[https://t.me/disclosetv/6911](https://t.me/disclosetv/6911)
+文贵先生很早就说过现在世界的银行系统和政府勾结，滥发货币，盗用储户的财富。并且深刻描述大卡车和世界经济的关系，世界的经济脉络在三条线上：第一是科技文明发展，创意；第二是商品流通，人类的97.8%是在陆地上住的，不可能有任何交通工具代替货车。大卡车告诉你，B2B，是必须的必，你必须依靠大卡车司机。第三，人与人之间的货币流通。喜支付HPAY就是可以完美超越银行系统，可靠，快速，极低手续费的点到点的支付体系。
 
-最后，现在前线医生每天接收的感染者虽然有所减少，但其中依旧有80%左右时已经接种疫苗的人。甚至有些刚接种完第三针，就立刻出现了感染。
+存储在银行的钱并不真正属于你，利用银行系统的转账也很脆弱，随时可以被流氓政府冻结。在BBC 最近的纪录片《比特币-钱的终结》中讲述了一旦民众要求银行提款超过其账面3%的价值，银行就会倒闭的原理。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片3-9.png)图片来源：[https://gettr.com/post/pu58yv4a81](https://gettr.com/post/pu58yv4a81)
+是时候清醒，在金融海啸吞没辛勤积攒的财富之前，将银行中法币取现，换成可靠安全的加密货币，贵金属和有实际价值，易于保存携带的大众商品了。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片4-5.png)参考链接：[https://gettr.com/post/pu58yv4a81 https://t.me/disclosetv/6911](https://gettr.com/post/pu58yv4a81%20%20https://t.me/disclosetv/6911)
+编辑：LILY
 
-长尾医生总结说，我们根本不是在对抗所谓的奥密克戎变种，而是在对抗集权主义。现在这个疫苗比病毒可怕百倍，而人心比病毒可怕千倍。
+发布：面包飞上天
 
-另据独家消息，长尾和宏医生已经同意接受新中国联邦媒体的专访。本台将跟踪报道。
+20220215
 
-文字版原文：[日本医生： 疫苗比病毒可怕百倍，人心比病毒可怕千倍](https://gnews.org/zh-hans/2002759/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3-4.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,35 +2,28 @@
 ---
 
 
-## 美议员国会推出议案 要求在美上市企业披露是否有中共参与
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2008936/)
+## 有声|北京冬奥会假骗震惊世界
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2009088/)
 
-**撰稿：日本东京方舟农场 Kevin wang**
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月11日，郭文贵先生在大直播里，再次揭露中共在冬奥会造假的事实。
 
-2月14日，美数位共和党参议员宣布推出一项要求在美上市公司披露其运营中是否有中共组织参与的法案 。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-158.png)（图片来自网络）
-美国之音报道，共和党籍联邦参议员布莱克伯恩（Marsha Blackburn）和鲁比奥（Marco Rubio）2月14日宣布推出《禁止中国共产党行使诡计通过未登记的政权存在而隐瞒股东与等效方法》（No Chinese Communist Subterfuge via Unregistered Regime Presence Rendered Invisible to Shareholders and Equivalent Parties Act），简称为《禁止中国共产党出乎当事方意料法》（No Chinese Communist SURPRISE Parties Act）。该法案指示美国证券交易委员会要求在美国交易所上市的公司确认其运营中是否有中国共产党的组织。该法案还将要求任何公司详细说明中共组织对其公司治理决策的参与情况，并披露公司是否负有任何信托责任，包括外国信托责任。
+某俄国消息人士向郭先生透露，在开幕式上，现场观众寥寥无几。在普京的坐席附近，他用同样角度，拍的照片背景里毫无人气。但是，中共为了达到宣传效果，公开放出的照片座无虚席，而且还诱使他使用处理过的假图欺骗世界。中共的造假程度令他深感震惊。
 
-布莱克伯恩参议员在一份声明中表示，中国共产党继续通过强迫美国公司在其内部发展共产党组织来控制美国公司， 美国投资者有权知道，他们辛苦赚来的钱是否在支持受到中共控制的公司。
+文字版原文：[北京冬奥会假骗震惊世界](https://gnews.org/zh-hans/2004562/)
 
-鲁比奥参议员在声明中表示，在美国的上市公司不应该成为中国共产党的工具，美国投资者有权知道是否有这种情况。
+音频处理/发稿：Daxia
 
-鲁比奥参议员认为，该法案为中共“通过加深对美国金融市场的影响来颠覆美国的企图”提供了一个常识性的解决方案。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-另一共和党籍众议员坦尼（Claudia Tenney）在众议院也推出了相关的法案。坦尼众议员在声明中表示，中国共产党的恶意影响根深蒂固，而《禁止中国共产党出乎当事方意料法》将有助于揭示中共对上市公司的影响力和杠杆作用，并减少金融市场中的信息不对称。
-
-这是继2019年3月美国提出《外国公司问责法案》以来，共和党派议员提出的一系列针对中国投资或中概股的法案。
-
-据悉，2021年12月2日，美国证监会（SEC）通过《外国公司问责法案》修正案（HFCAA）细则。根据法案内容，从2022年起，如果PCAOB连续三年无法审查发行人的会计师事务所，则该股票将被禁止在全美交易所交易，并强制在美股市场退市（即2025年），这被认为是对在美上市中概股的“一记狠招”，该法要求企业上市三年内需要向美国公众公司会计监督委员会(PCAOB)提供审计底稿，否则可能会被强制退市。
-
-值得关注的是，中共在2019年11月审议批准的《中国共产党国有企业基层组织工作条例》，加强党对企业的领导。根据该条例，国有企业按照中共党员人数的多少设立党的基层委员会和总支部委员会。条例规定国有企业有三人以上的正式党员就要成立党支部。从此项条例可以看到，《外国公司问责法案》对于所有在美上市的企业带来了巨大的压力。
-
-在美上市的中国企业在美国政府日趋严格的监督和管控中，已经连续呈现暴跌的态势，可以预见的是，在美上市的中国企业的监管“噩梦”还会继续，依靠独裁扶持和造假必将付出沉重的代价。
-
-素材采编：Kevin wang
-编辑：青城道姑
-发布：爱放飞
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
