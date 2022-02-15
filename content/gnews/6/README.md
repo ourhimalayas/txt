@@ -2,30 +2,36 @@
 ---
 
 
-## 加拿大公民自由团体谴责特鲁多的《紧急状态法》
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2009499/)
+## 《文贵大直播》揭示各国大卡车运动的深远意义
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2009585/)
 
-加拿大温哥华扬帆农场 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/02/60777644_303.jpg)图片来源：DW
-根据《福克斯新闻》2月15日报道，在总理贾斯汀-特鲁多援引《紧急状态法》，切断对抗议的 “自由车队 “卡车司机的资助路线后，一些加拿大公民自由团体对其作出反应。
+作者：首尔天池农场—追着曙光跑
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月13日，在《文贵大直播》中，郭先生表示，各国的大卡车运动将开启人类运用和平方式对抗暴政的新时代；也是人类走向新的民主的绝对有效方式。
 
-据路透社报道，虽然一些团体赞同切断抗议者资金的措施，但很多团体谴责这一行动，称其为政府过度扩张。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide2-5.jpeg)
 
-加拿大公民自由协会说，卡车司机的抗议活动不符合特鲁多援引《紧急状态法》的标准，该法的存在是为了 “加拿大政府有能力维护加拿大的主权、安全和领土完整”，而且只适用于 “根据加拿大任何其他法律都无法有效处理的 “行动。
+2019年6月，香港”反送中“和平抗议运动伊始，爆料革命对这场港人以寻求立法和司法独立，捍卫香港《基本法》为宗旨的民主运动给予了大量物力支持。彼时，郭先生更是建议香港的有识之士采取以大货车封路的行动，进而阻止中共匪警进入抗议现场迫害手无寸铁的港人。这一独特而影响深远的和平抗议方式，如今被各国反抗强制疫苗政策、强制隔离政策的民众纷纷采纳，在局部国家或地区已初见成效。
 
-加拿大公民自由协会补充说，这种危险的使用方式 “不应该被正常化”。
+郭先生认为，大卡车运动，本质上是草根大众通过现代社会的经济命脉影响政治的伟大尝试，这一运功能够彻底颠覆独裁政治。其意义之非凡，价值之深远，是不可估量的。
 
-“我们认识到联邦政府决定援引《紧急状态法》的严重性。在呼吁联邦政府展示国家领导力时，我们本希望这是朝着结束全国封锁和维护法治迈出的一步，”加拿大人说公民自由协会说。
+参考链接：
+1. [2022年2月13日 文贵大直播：加拿大卡车清理事件；冬奥会连续爆丑闻；世界经济市场突发；西方法律系统渗透](https://gtv.org/video/id=62090115a456fe1dea300f5a)
+2. [郭文贵2019年6月11日视频 20190611\_1 郭文贵先生直播连线香港](https://gwins.org/cn/milesguo/22018.html)
 
-路透社报道了卡尔加里皇家山大学的政治教授洛里-威廉姆斯的意见：“使用《紧急状态法》来阻止抗议活动，有造成更多问题的危险。这必须是在州长的合作下完成的，如果他们不愿意实施《紧急状态法》，联邦政府就需要退后。这必须非常有针对性、非常战略性和非常克制，因为这些都是正在动用巨大的权力”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-其他一些公民自由专家担心特鲁多的决定可能会激发更多的抗议或民间动乱。
+总编：Zion文恩
+编辑：Zion文恩
+校正/发稿：谐趣园
 
-原文链接：
-[https://www.foxnews.com/world/canadian-civil-liberties-groups-respond-to-trudeau-invoking-emergencies-act](https://www.foxnews.com/world/canadian-civil-liberties-groups-respond-to-trudeau-invoking-emergencies-act)
-
-编辑，发稿 Spirit
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
  

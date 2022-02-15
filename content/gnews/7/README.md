@@ -2,28 +2,26 @@
 ---
 
 
-## 有声|霍德金森博士称不告知真相的医生是谋杀案同谋
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2009495/)
+## NewSGman┃德国总理肖尔茨宣布不出席北京冬奥会
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2009583/)
 
-配音：香草山巡管部– 文凯琳
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-2月13日，郭文贵先生盖特转发视频消息，加拿大病理学家、某著名医疗保险机构CEO罗杰·霍德金森博士表示，中共病毒疫苗没有任何作用，所有不告知真相的医生，都是政府认可的谋杀案的同谋。
+撰稿：东京樱花团/NewSGman
 
-霍德金森说，有一个压倒性的共识，即疫苗没有任何作用，疫苗是试验性和未经测试的。疫苗接种不仅是不必要的，实际上它正在杀人害人。
+德国总理肖尔茨宣布不出席北京冬奥会
 
-文字版原文：[霍德金森博士称不告知真相的医生是谋杀案同谋](https://gnews.org/zh-hans/2002760/)
+德国总理肖尔茨2月2日宣布他不会出席北京冬奥会此前，美国、加拿大、英国和澳大利亚等国家因为中国国内发生的人权侵犯事件，已宣布对北京冬奥进行外交抵制
 
-音频处理/发稿：Daxia
+其他德国政要宣布不出席北京冬奥会的还包括德国外交部长贝尔博克Annalena Baerbock与内政部长费泽尔Nancy Faeser，两人皆在去年12月时表示她们已经做出了不参加北京冬奥的个人决定
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+此前，美国、加拿大、英国和澳大利亚等国家因为中国国内发生的人权侵犯事件，已宣布对北京冬奥进行外交抵制
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+盖特链接：https://gettr.com/post/psdw2e7f29
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
