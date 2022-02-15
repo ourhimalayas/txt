@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/15/2022 3:57 AM (UTC)`
+
+2/13/2022 Miles Guo: I only seek to take down the CCP, and I have no interest in politics at all. The PAG case has exposed the CCP’s infiltration in the Western law firms and judicial system. The FBI will investigate this, won’t it? Anyway, I will never compromise on the verdict of this case. From day 1, I have been turning my wisdom and capabilities to create wealth into the tool to take down the CCP.<br/><br/>2/13/2022 文贵直播：文贵只想灭共，对政治没任何兴趣；PAG案揭露了中共对西方律所和司法的渗透, FBI难道会坐视不管？对于本案判决，文贵坚决不妥协；文贵从第一天起就把智慧和创造财富的能力变成灭共的工具<br/>
+![img](https://media.gettr.com/group49/getter/2022/02/15/03/f0c72332-53af-811a-07e4-beff97c59d82/out.jpg)
+
+---
+
 `@miles 2/15/2022 1:27 AM (UTC)`
 
 2/14/2022 Miles Guo’s GETTR: Xi Jinping claims to be sick and is in hiding, while secretly planning to invade Taiwan. The CCP is the real traitor, colluding with the dark forces to steal the wealth of the Chinese people, selling out the Chinese territories, brainwashing the people in Communist China, and provoking anti-Chinese sentiment worldwide. Only the Whistleblowers’ Movement has exposed the CCP’s evil plans to the world in advance. The power of the New Federal State of China is infinite!<br/><br/>2/14/2022 文贵盖特：习近平称病神隐，暗中准备打台湾；中共是真正的卖国贼 - 跟黑暗势力勾结、盗走中国人的财富、出卖中国的领土、对内洗脑、对外挑起排华；只有爆料革命向全世界提前揭露了中共的邪恶计划，新中国联邦力量无限大！<br/>
@@ -149,13 +156,6 @@
 
 2022年2月13日 文贵大直播：加拿大卡车清理事件；冬奥会连续爆丑闻；世界经济市场突发；西方法律系统渗透
 ![img](https://media.gettr.com/group27/origin/2022/02/13/12/b168ba83-81ae-6c19-61da-9f6aa2eb91bc/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 2/13/2022 7:43 AM (UTC)`
-
-2/11/2022 Miles Guo: Eileen Gu doesn’t have faith, and she is hypocritical, selfish, despicable, and ungrateful. Eileen Gu disobeys the law, makes things up, lies through her teeth, and kowtows to the CCP shamelessly. Why do all the democratic countries in the world boycott the Winter Olympics?<br/><br/>2/11/2022 文贵直播：谷爱凌没有信仰、虚伪、自私、卑鄙、不懂得感恩，她无法无天、完全造假、瞪眼撒谎，无耻地跪舔中共却抹黑养大自己的美国；为什么全球的民主国家都反对冬奥会？
-![img](https://media.gettr.com/group33/getter/2022/02/13/07/16d54a09-60ba-9514-0d15-6f02794d1c15/out.jpg)
 
 ---
 
