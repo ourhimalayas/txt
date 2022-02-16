@@ -2,28 +2,35 @@
 ---
 
 
-## 印度再次以安全为由禁止54款中共国手机应用
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2011134/)
+## 有声|华盛顿特区15日起结束疫苗强制接种
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2011304/)
 
-**翻译:日本东京方舟农场 JIHO**
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月14日，华盛顿特区市长穆里尔·鲍泽在新闻发布会上说，刚刚实施了一个月的中共病毒疫苗强制接种政策，将于2月15日结束。另外，口罩令也将于3月1日取消。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/7-20.jpg)
+鲍泽说，进入室内场所，将不再要求顾客出示疫苗接种证明，但企业可自主决定是否把疫苗的要求，作为进入其场所的条件。从3月1日起，一些室内场所将不再需要口罩，包括餐馆、酒吧、体育和娱乐场所、健身房、企业、零售机构和杂货店。但学校、图书馆、托儿所和医疗机构、疗养院、为公众服务的特区政府办公室、公共交通、出租车和共享汽车仍然需要戴口罩。
 
-根据印度斯坦时报今日报道，印度政府将禁止 54 项对印度安全构成威胁的中共国应用程序。联邦电子和信息技术部表示，它已收到内政部 (MHA) 的请求，要求根据 IT 法案第 69(A) 条设想的紧急条款阻止 54 个应用程序。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-164.png)图片来自于网络
-被禁止的应用程序包括 Beauty Camera, Selfie Camera、Equalizer & Bass Booster、CamCard for SalesForce Ent、Isoland 2: Ashes of Time Lite、Viva Video Editor、Tencent Xriver、Onmyoji Chess、Onmyoji Arena、 AppLock 和 Dual Space Lite。
+该市还将在本月底结束设立在特区消防队的核酸测试服务。评论人士认为，尽管离全面解除各项限制政策尚有一定的距离，但作为一向严苛的民主党执政特区，毫无预兆地宣布结束疫苗证明和逐步取消口罩令，颇让人意外。
 
-该部表示，根据 MHA 分享的一份报告，这些应用程序要么是克隆版本，要么具有类似的功能、隐私问题和安全威胁，正如该中心之前在 2020 年阻止的 267 个应用程序中所声称的那样。
+文字版原文：[华盛顿特区15日起结束疫苗强制接种](https://gnews.org/zh-hans/2010742/)
 
-该中心于 2020 年 6 月 29 日屏蔽了 59 个应用程序，随后于 2020 年 8 月 10 日屏蔽了 47 个相关克隆应用程序。此后，2020 年 9 月 1 日屏蔽了 118 个应用程序，2020 年11 月 19 日屏蔽了另外 43 个应用程序。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-该部表示，这 54 个应用程序据称获得了各种关键权限并收集了敏感的用户数据。“这些收集的实时数据被滥用并传输到位于敌对国家的服务器。这将使他们能够汇编大量个人数据，以便对敌视印度主权和完整的分子以及危害国家安全的活动进行挖掘、整理、分析和描述，”IT 部在一份声明中表示。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-“此外，还有其他严重的问题，因为其中一些应用程序可以通过摄像头/麦克风进行间谍活动和监视活动，访问精确位置 (GPS) 并进行类似于以前被阻止的应用程序的恶意网络活动。据称，这些应用程序从事有损国家主权和完整的活动，也对国家安全和印度国防构成严重威胁，”它补充说。  最新举措可能是两个邻国之间的紧张关系陷入旷日持久的边界争端影响商业交易的一个例子。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-参考链接：
-[https://www.hindustantimes.com/india-news/govt-to-ban-54-chinese-apps-that-pose-threat-to-india-report-101644814634095.html](https://www.hindustantimes.com/india-news/govt-to-ban-54-chinese-apps-that-pose-threat-to-india-report-101644814634095.html)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-校对：青城道姑
-发布：爱放飞
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

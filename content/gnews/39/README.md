@@ -2,42 +2,38 @@
 ---
 
 
-## 魁北克政府今天下午宣布撤销疫苗护照的时间表
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2010074/)
+## 加拿大宣布动用特别紧急权力结束全国示威
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2010320/)
 
-**编译及评论：16626**
+作者：银河系农场 — 骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+加拿大总理特鲁多14日宣布，决定引用《紧急状态法》，动用特别紧急权力，平息蔓延至全国多个城市的示威运动。这是《紧急状态法》自1988年通过后首次被引用。根据法例，联邦政府的特别紧急权力可以凌驾各省政府，采取特殊的临时措施，让警方在执法现场，获得更多的行动选项。另外，金融机构也有可能会获得指示，授权监管和禁止个人或公司使用财产来资助或支持反抗疫苗暴政的示威游行。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-39.jpg)
+特鲁多表示，示威者的抗争行为，损害国家经济、危害公众安全，挑战警方的执法能力，政府不可以再容许这些违法和危险的活动持续发生。
 
-y**图片来源：截屏于**[**https://www.tvanouvelles.ca/2022/02/15/vers-un-assouplissement-du-passeport-vaccinal**](https://www.tvanouvelles.ca/2022/02/15/vers-un-assouplissement-du-passeport-vaccinal)
+不过，首都渥太华仍然有货车司机及其他示威者坚持抗争，有示威者表示，他们只是要求政府解除所有的防疫限制措施，确保民众拥有基本的自由和人权，这些诉求并不涉及政治，也没有危及社会治安。
 
-**今天下午宣布撤销疫苗护照的时间表**
+值得关注的是，经过示威者连续多日的抗争，安大略省省长福特日前宣布，安大略省将逐步放宽防疫限制，本周四开始将逐步取消室内和户外的聚集人数限制，下月一日起会解除所有室内的公众限制，同时，民众出行不再需要出示疫苗接种证明。
 
-魁北克政府可能会在今天下午宣布撤销疫苗护照的时间表。
+参考链接：
+1. [加拿大宣布动用特别紧急权力结束全国示威](https://www.dailywire.com/news/breaking-trudeau-announces-unprecedented-action-freezing-bank-accounts-of-freedom-convoy-protesters%20、)
+2. [加拿大宣布动用特别紧急权力结束全国示威](https://www.google.com.hk/url?sa=t&amp;rct=j&amp;q=&amp;esrc=s&amp;source=newssearch&amp;cd=&amp;ved=2ahUKEwjgzf6yn4H2AhXbKEQIHQbJBhEQxfQBKAB6BAgSEAI&amp;url=https%3A%2F%2Fwww.theguardian.com%2Fworld%2F2022%2Ffeb%2F14%2Fcanada-protests-justin-trudeau-use-rare-emergency-powers&amp;usg=AOvVaw1S1MyuVlirmxe80N7BuZRW)
 
-宣布撤销疫苗护照的时间表的新闻发布会定于下午 1 点 15 分举行。
+![This image has an empty alt attribute; its file name is calendar.png](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
-（撤销疫苗护照）应逐步进行，首先应在超市，魁北克酒业公司（SAQ），和魁北克大麻公司（SQDC）的所有分支机构终止疫苗护照。
+总编：天滅中共
+编辑：天滅中共
+校对/发稿：Hetangyuese
 
-在国家公共卫生主任吕克·布瓦洛Luc Boileau 博士陪同下，卫生部长克里斯蒂安·杜贝Christian Dubé 将出席（宣布撤销疫苗护照的时间表的）新闻发布会。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-另外，根据Gnews（2022 年 2 月 8 日）发表一篇题为《萨斯喀彻温将于下周一放弃疫苗护照,[萨斯喀彻温将于下周一放弃疫苗护照](https://gnews.org/1977277/) 》的文章报道，萨斯喀彻温省已经于昨天，周一（2022 年 2 月14日），开始不再需要出示疫苗护照。
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
-还有，Gnews（2022 年 2 月 15 日）发表一篇题为《魁北克省勒戈（Legault）政府拒绝实施《紧急措施法》, [魁北克省勒戈（Legault）政府拒绝实施《紧急措施法》](https://gnews.org/zh-hans/2009639/)  》的文章报道，《紧急措施法》并不一定意味着立即部署军队。加拿大总理贾斯汀·特尔多（Justin Trdeau）称，军事干预是“最后手段”。魁北克省省长François Legault“不希望”看到《紧急措施法》在魁北克领土上实施，他说，联邦的这项决定是“火上浇油”。
-
-现在，联邦施压实施《紧急措施法》，魁省民众示威抗议反对政府强制实行疫苗护照。魁省的公共卫生行政措施出现什么样的变化？让我们拭目以待。我们谴责并反对暴力示威，反对政府强制实行疫苗护照，更反对政府施加暴力于人民。我们相信魁北克省，乃至全加拿大很快会放弃强制实行疫苗护照。
-
-**参考资料**：
-
-[Vers un assouplissement du passeport vaccinal?](https://www.tvanouvelles.ca/2022/02/15/vers-un-assouplissement-du-passeport-vaccinal)
-
-**编辑：LILY**
-
-**发布：歪桑**
-
-20220215
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3-4.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

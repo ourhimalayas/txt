@@ -2,32 +2,32 @@
 ---
 
 
-## 韩国连续5天疫情加剧，总统候选人妻子染疫
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2010894/)
+## 北京下雪，中共喉舌假高潮嗨翻天
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2011098/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月14日，韩国中共病毒单日确诊新增5.46万例，已连续5天新增超过5万例，居家治疗人数已超过23万例。总统候选人安哲秀的妻子金美京也在此轮中不幸染疾。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/9-13.jpg)
-奥米克戎变异株疫情近期在韩国快速扩大，首尔、仁川、京畿道等人口密集的首都圈社区感染占56.9%。据韩国中央防疫对策本部统计，截至14日凌晨，全国累计确诊超140万例。采取居家治疗的大多为轻症及无症状患者，同时，重症及死亡人数增加速度相对放缓。
+**据网易2022年02月13日报道：“北京下雪，一些外媒记者嗨了”。但是，由于降雪天气，不少比赛被迫延期，包括北京冬奥会自由式滑雪女子坡面障碍技巧资格赛和自由式滑雪女子空中技巧资格赛。**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/62a0ayv-ha0lp.jpg)**图片来源：NASA Earth Observatory**
+全世界都知道北京冬奥会100%使用人造雪，并有研究指出整个冬奥会人工雪总量超过120万立方米，需要超过200万立方米的水来造雪。人工雪由30%冰和70%空气组成，而自然雪则是10%冰和90%空气组成。与天然雪道相比，在人造雪道上，速度更快，运动员更难控制身体，甚至出现事故。多国运动员不断受重伤已证明这一点。
 
-据悉，目前正在各地开展竞选活动的总统候选人安哲秀，昨天通过视频透露其妻金美京确诊消息，并表示妻子患有慢性疾病，病情并不乐观。同为首尔大学医学系毕业的两人自疫情爆发以来，一直在医疗前线工作，受到相当广泛的好评。
+然而，北京下一场雪后墙内媒体集体高潮，大肆报道“外媒记者嗨了”。这种无知和造假远远超出人类可以容忍的限度。首先，德国和美国都是冰雪运动大国，记者们根本不可能为下雪而惊叹！北京气象站几十年平均数据表明，整个冬季降雪量不到6.35厘米。以美国科罗拉多2月11至12日的降雪数据为例，一天内降雪量从6.35厘米到32厘米。稍有点科学常识都不至于因为这一场雪而编造如此离谱的假新闻。
 
-参考链接：[韓國確診連5天破5萬例 總統候選人安哲秀妻子染疫\[影\]](https://www.cna.com.tw/news/aopl/202202140034.aspx?topic=2012)
+再次，说是澳洲记者为人工扫雪而惊叹。清雪机是很多寒冷城市冬季的必备工具。延庆如果真的是降雪特别多，为何没有出现清雪机除雪？要么是雪量不大，清雪机效果很差；或者是延庆冬季降雪很少，没有储备清雪机。不管哪一条，都直接打脸所谓的大雪宣传。墙国宣称“科技大国”，冬奥会部署各种所谓智能机器人，另一方面却又用大量人力清雪，不是给党国抹黑么？
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+冬奥会中共各种违规作假，涉奥人员深有体会，大雪宣传集体假高潮更是新闻史上无人可及。新闻造假的鼻祖——纳粹德国和前苏联都已经消失，中共政权已病入膏肓，无药可救。
 
-总编: Zion文恩
-编辑： 宁文静
-校正/发稿：Fei797
+**声明：文章观点仅代表作者个人，与gnews平台无关**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**新闻链接：**[https://www.163.com/dy/article/H03VQVRH05504DP0.html](https://www.163.com/dy/article/H03VQVRH05504DP0.html)
+
+素材：洛杉矶盘古农场 — Poplar
+评论：洛杉矶盘古农场 — Poplar
+审核：洛杉矶盘古农场 — 柯镇恶
+发布：洛杉矶盘古农场 — 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

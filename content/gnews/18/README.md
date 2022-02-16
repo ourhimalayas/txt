@@ -2,31 +2,32 @@
 ---
 
 
-## 抗议千万不要有暴力
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2010946/)
+## 俄罗斯和乌克兰紧张局势缓和，股市上涨，油价下跌
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2011172/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+#### 翻譯：melody
+编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-69.png)图片来源：雅典娜设计组（614）
+根据路透社2月16日报道，华尔街和欧洲股市周二反弹，而油价下跌，此前俄罗斯曾表示将从乌克兰附近的演习中撤出部分军队，而普京则表示他看到了与西方进一步讨论的空间。
 
-2022-02-13直播摘录08:56:34
+乔·拜登总统随后表示，俄罗斯仍有可能对乌克兰发动袭击，美国将保卫北约的每一寸领土。
 
-香港我当时告诉这些孩子：“你只要，你真想跟共产党干，上楼。香港的狭窄的街道，就摩纳哥和香港这样。你只要在下面，老子就往下扔。” 是吧？最后是，结果是大陆的黑警把孩子从楼上扔下去，就是这个愚蠢的错误。所以法国、加拿大我跟你们说，第一、千万不要有暴力，不要让他抓住把柄，你只要有暴力，他就开始开枪，弄死你了，千万不要有暴力。我站在屋顶上，我合法吧？对不对？然后，加拿大也好，包括法国也好，包括澳大利亚。澳大利亚我那哥们儿跟我认识30年的哥们儿，意大利黑手党出身，是吧？建造悉尼歌剧院，叫帕玛斯迪迪莎，我说过，是因为裕达上的市。老人家是这次最大的主事，堪培拉抗议，连女儿、女婿全上了。女儿、女婿全会讲中文，还会讲粤语，你知道吗？他这上市公司是在新加坡上市的，是我看着长大的。他说：“我们该怎么办”？我说：“你第一，你别打疫苗”。他说：“我们家五、六十口全都要豁出去，不会打疫苗。”但是他们那个企业很多都是跟运输都有关系的，什么帷幕墙，很大，你知道吗？他们就影响了上万台车，不是几千台的，把我吓死了。我说：“这么大的车辆，你都可以搞一场运动了，冲上去啊，” 是吧？你们没有意识到，爆料革命这场成功的人类上启蒙的大卡车运动。你看班农先生，他傻乎乎地要让Jason Miller把盖特改成这个，我说：“那你就成了第二个川普的‘116‘”，是吧？没让他干，这就是赢家嘛。你看人一念之差，天地之别呀。就象当时川普那个“116“，我提前说“战友们，千万别到现场去，千万别去，会被人家利用。” 你看看，吃狗肉的Isobel Yeung利用咱们。我头一段时间给我们的律师说，我说：“告诉你，Ed. Moss、 PAG官司被踢出去以后，你会遭受到最大的报复，来自于单伟建。” 所以说人家法官就说了：“我会让你Miles Guo extremely painful，” 极端的痛苦。你看看134个million罚下来了，然后你五天不给钱，我就把你抓起来。extremely painful！哇噻！就这么说的。我那律师回来，Miles你都说对了，extremely painful，我们律师都吓得，都那样了。我们那律师事务所Baker也很大很大的，好不好？也是几百个人的律师事务所，是吧。一个常识的判断，一个常识的判断，战友们。
+黄金和债券价格下滑，因乌克兰紧张局势可能缓和，避险资产失去部分吸引力。但北约表示，尚未看到任何降级的证据，俄罗斯下议院的投票则威胁到更广泛的僵局。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+随着普京和德国总理奥拉夫·舒尔茨的讲话，美元指数缩减跌幅，这表明乌克兰的紧张局势尚未得到解决。
 
-**关注我们**
+虽然乌克兰危机正在酝酿之中，但劳工部报告称，美国1月份生产者价格涨幅为八个月来最大，这提醒人们，高通胀可能会持续到今年的大部分时间。
 
-Discord 账号
+新闻链接：[Stocks rally, oil slips as Russia-Ukraine tensions ease](https://www.reuters.com/markets/europe/global-markets-wrapup-1-2022-02-15/)
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+发布： wenly
 
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

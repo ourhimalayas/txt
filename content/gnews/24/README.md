@@ -2,34 +2,47 @@
 ---
 
 
-## 欧盟专员表示不再需要疫苗强制
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2010860/)
+## 共产党腐败了全世界组织
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2011087/)
 
-作者：加拿大温哥华扬帆农场 – Spirit
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-根据《德国之声》2月13日消息，欧盟经济专员真蒂洛尼(Paolo Gentiloni)表示，讨论疫苗强制的时间已经过去。同时，一位重要的德国立法者表示，强制疫苗措施不会在议会中得到大多数人的支持。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8-19.jpg)
-真蒂洛尼认为，疫情的严重程度在下降，整个欧盟的死亡和住院人数总体上有所下降，各国政府没有理由再推出普及冠状病毒疫苗强制。他说 “我们正走在放宽限制的同一条道路上，每个国家都是如此”。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-德国议会中最大的反对派团体–保守的基民盟/基社盟的议会领袖说，联邦政府疫苗强制不会得到多数票。
+2022-02-13直播摘录09：34：39
 
-世界各地抗议疫苗强制活动不断，很多国家都在渐渐放开疫情限制和取消疫苗强制。
+所以那时候我说“我希望冬奥会开成”，你们不知道我这意思，我希望它开成。昨天晚上咱国内的一个在冬奥会现场的（战友）说：“文贵呀，你太高了！当初你说这的时候我真的受不了，‘这文贵说啥呢这是？他怎么希望它搞成呢？我们都希望它王八蛋炸了才好呢’，现在我真明白了，这搞成比炸了还管用。我能感受到愤怒、辱骂、愤恨，这些人离开以后永远是共产党的敌人，终生不会再有任何改变，没有改变的机会。”
 
-参考链接：[COVID digest: Vaccine mandate no longer necessary — EU commissioner](https://www.dw.com/en/covid-digest-vaccine-mandate-no-longer-necessary-eu-commissioner/a-60760531)
+然后大家记住，204个国家的北京2008奥运会参与，204个国家，现在实际上就仨国家，严格讲仨国家都不算，就算一个国家。这是七哥当年最牛叉的盘古大观在整个现场、娘娘庙龙卷风，七哥唯我独尊，到今天都是。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+- 01:34:30你把这个龙头变成龟头这件事情的影响力大到什么程度，所有的人都在问：共产党在干什么？
 
-总编: Zion文恩
-编辑：Lakeman文仁
-校正/发稿：Fei797
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生：短短的十几年，“龙头”变成了“龟头”还缺两个睾丸。我叫瑞沃路森借你俩睾丸用用吧？放那去吧，共产党现在光搞“龟头”它没“睾丸”它没有力量啊，它“双修”不成啊，所以它就现在全都是事儿啊。从医学角度来讲，文紫，它是不吉利吧？你说你弄个“龟头”在那块儿没有“睾丸”，它能发挥力量吗？发挥不了啊，是吧？它肯定发挥不了啊。
+
+所以说所有的人现在运动员都在讲述盘古的故事。昨天晚上咱那个哥们给我说，他说：“你知道吗？你嫂子你说她有多疯狂，跟每个外国运动员都说：‘哎，你知道那盘古那楼为啥这样吗？’人家说：‘不知道啊，咋回事儿啊？’她说我告诉你什么故事，跟人家……最后你嫂子懒得烦了，她说在手机里我发给你呀，就发给人家外国运动员，所有外国运动员说：‘哎，是吗？拍照啊！’”——“龙头”变“龟头”成了传奇的故事。
+
+兄弟姐妹们，我不是给你们开玩笑的吧，你们想过七哥说过吗？你把这个“龙头”变成“龟头”这件事情的影响力大到什么程度，你这个“无神论”的党，而且在奥运会开幕前所谓的北京冬奥会。北京开冬奥会真的像高冰尘要当“鸭子”一样，是吧？绝对没人相信的事儿。想想这个多可怕，所有的人都在问：共产党在干什么？
+
+01：36：04只有中国人到了一个人类突破了人类底线生存模式，和人类上互害的模式，再下去完了
+
+郭文贵先生：另外一个共产党腐败了全世界组织，奥林匹克结束，“龙头”变“龟头”的这种故事，还有没有雪的雪上运动。大家还看到了什么？共产党当时穿大裤衩子——北京的高科技、北京的基础设施、六百多道菜……现在最被人诟病的就是你这个基础设施全是假的！什么狗屁高科技，连WI-FI都搞不定，而且所有的饭难吃到极点。
+
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

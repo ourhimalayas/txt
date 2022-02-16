@@ -2,35 +2,40 @@
 ---
 
 
-## 华盛顿特区15日起结束疫苗强制接种
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2010742/)
+## 最毒不过人心
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2011079/)
 
-作者：纽约香草山 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月14日，华盛顿特区市长穆里尔·鲍泽在新闻发布会上说，刚刚实施了一个月的中共病毒疫苗强制接种政策，将于2月15日结束。另外，口罩令也将于3月1日取消。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/7-20.jpg)
-鲍泽说，进入室内场所，将不再要求顾客出示疫苗接种证明，但企业可自主决定是否把疫苗的要求，作为进入其场所的条件。从3月1日起，一些室内场所将不再需要口罩，包括餐馆、酒吧、体育和娱乐场所、健身房、企业、零售机构和杂货店。但学校、图书馆、托儿所和医疗机构、疗养院、为公众服务的特区政府办公室、公共交通、出租车和共享汽车仍然需要戴口罩。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-该市还将在本月底结束设立在特区消防队的核酸测试服务。评论人士认为，尽管离全面解除各项限制政策尚有一定的距离，但作为一向严苛的民主党执政特区，毫无预兆地宣布结束疫苗证明和逐步取消口罩令，颇让人意外。
+2022-02-13直播摘录09:28:43
 
-参考链接：
-1) . [DC Is Ending Its Vaccination and Mask Mandates](https://www.washingtonian.com/2022/02/14/dc-is-ending-its-vaccination-and-mask-mandates/)
-2) . [COVID-19 ACTION PLAN 3 STATE OF EMERGENCY 2022 WINTER SURGE](https://coronavirus.dc.gov/sites/default/files/dc/sites/mayormb/release_content/attachments/Situational-Update-Presentation_02-14-22.pdf)
-3) . [LIVE: Mayor Bowser Provides COVID-19 Situational Update](https://twitter.com/mayorbowser/status/1493262671050776577?s=21)
+你们不知道七哥这几十年的战略！我走出清丰看守所，我阅尽人间的苍凉、人情的冷漠、人生的现实，世界上最毒不过人心我告诉你。很多人骂“狗改不了吃屎”，我想问问人类，人类上，记住狗是人类的朋友，狗吃人吗？可你人吃狗肉。狗改不了吃屎，你人改了吃屎了吗？你人还吃人呢。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+最毒不过人心我告诉你，人心一旦没有了信仰控制，比魔还魔，比狗还臭，不如狗！你看那“锁链女”，你看中国对女性，你看看周围人的冷漠，包括我，你能受得了吗？你们的妈妈、你们的姐妹、你们的闺女24年（被）锁着链子，被无数个男人来天天在那块强奸轮奸，还不让吃不让穿，然后生那么多孩子，这是人道吗？就这就有政府撒谎，有人到那蹭热度、蹭流量、拍视频，天诛地灭都不过为之。
 
-总编: Zion文恩
-编辑： 谐趣园
-校正/发稿：Fei797
+你再看共产党到联合国干的事，任何……只要共产党这过去三十年五十年掺和的组织，没有一个（不）是无法无天、无规则、不腐败。北京冬奥会这简直是世界上最荒唐——没有雪的冬奥会。没有雪的城市开冬奥会，我真R它八辈儿祖宗！这是对全人类的侮辱，这是西方世界必须要付出的代价！
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+你没见那些白人穿着西装打着领带，到了盘古喝点酒后那可比共产党还疯狂！天天在夜总会里边的嫖客没那么疯狂，他已经习以为常了，你就怕这些穿着西装的西方的这些所谓文明世界来的白人，你看（他们）到了盘古，一到晚餐后，在那种雅间里边白人那种疯狂，来自国际组织的，那简直是惨不忍睹。别说是人了，那猴子他都敢戳两下我跟你说。
+
+这个被禁闭的人的恶性一旦放出来，比魔还可怕！这不是我说的。共产党就把西方人类文明用千年挣来的民主自由、对人性的尊重，他到了中国给彻底释放出来，然后再用这些人的恶来绑架他们，让他们来传播这些恶和魔去。这就是奥林匹克委员会，这就是联合国，这就是世界卫生组织，这就是WTO，这就是世界的所谓的记者联盟、所谓媒体联盟！只要带国际的、只要称组织的，全是共产党的帮凶！
+
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
