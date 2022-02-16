@@ -2,39 +2,29 @@
 ---
 
 
-## Moderna总裁：破解mRNA可以玩弄整个生命王国
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2013473/)
+## 有声｜大陆中小银行股权拍卖遇冷 近六成流拍
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2013568/)
 
-作者: 银河系农场—骄子
+**By:秘翻新闻**
 
+***2022-02-16***
+![](https://assets.gnews.org/wp-content/uploads/2022/02/7777777.jpg)
+[大纪元](https://www.epochtimes.com/gb/22/2/15/n13578120.htm)2月15日消息。在大陆互联网拍卖平台，有很多城商行、农商行等的中小银行股在拍卖，但有近六成流拍。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-26.png)
-疫苗制造商Moderna的总裁曾说过，“如果你能够破解mRNA的规则，那么基本上整个生命王国都可以肆意被你玩弄”。随着mRNA技术应用于中共病毒疫苗真相的曝光，Moderna总裁这话听起来不免让人毛骨悚然。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/covid-19-vaccine-mrna-dna-1204201.jpeg)图片来源: 网络
-David Martin博士说，中共病毒疫苗并不是疫苗，使用“疫苗”这个词可以在公共卫生豁免下对公众形成误导。疫苗进入人体后会让人体自身细胞成为病原体制造者，结果会导致人体内的细胞互相攻击。大药商Moderna非常清楚这就是在杀人。
+据阿里拍卖网2月15日显示，中原银行5000万股挂在网上变卖，同时，还有宁波宁海农村商业银行股份有限公司4077股的股权、曲靖市商业银行股份有限公司2,843,750元股权、泉州农村商业银行股份有限公司内部员工股949,66股等几十家银行股权在拍卖。
 
-目前Moderna拥有数百名工程师和科学家，试图用生物信息技术来对人体进行攻击，并使人体依赖该技术，甚至他们称mRNA为生命软件。
+但在当前银行股权拍卖市场中，流拍已成为一个明显现象。据《第一财经》记者统计，自2月以来，共有92笔银行股权被拍卖，其中，流拍的占比近六成。
 
-另外该项邪恶计划还包括使用改良的mRNA来重新编程人类的干细胞功能，获得对干细胞的基因改造技术。这是一套完整的细胞级操作，编码、解码、调节、改变人体内的生理指令。
+光大银行金融市场部分析师周茂华认为，银行股权拍卖出现流拍主要有三方面原因，其中，最主要的还是与银行自身经营状况、前景有关。
 
-新闻链接: [https://newstarget.com/2022-02-14-moderna-president-stephen-hoge-hack-rules-mrna-kingdom-of-life.html](https://newstarget.com/2022-02-14-moderna-president-stephen-hoge-hack-rules-mrna-kingdom-of-life.html)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-32.jpg)
-编辑/校对/发稿: 卡夫卡的甲壳虫
+另据《财经》杂志第632期刊发的《一年“消失”20多家银行，4000家中小行路在何方？》一文显示：“2020年以来，已经有20多家中小银行完成或正在经历合并重组。”
 
-**更多资讯，更多关注**
+(秘翻新闻 二丫 编译报导)
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+发布:星星
 
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
-
-
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMAGE-2021-12-13-113746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

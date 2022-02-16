@@ -2,38 +2,26 @@
 ---
 
 
-## 美国通货膨胀导致信用卡债务激增
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2013577/)
+## 参加北京冬奥会的运动员被迫使用中共监视软件
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2013653/)
 
-作者: 银河系农场—骄子
+##### 翻译：不要代表我Kari
+校对：Lish
+剪辑|字幕：qingjing
+编辑：Mttfly
 
+美国参议员玛莎·布莱克表示，中共之所以能召开冬奥会的原因是渗入国际组织，蓝金黄了国际奥委会。布莱克指出，各国运动员在北京消费需要下载数字人民币软件，此软件是中共的监视跟踪软件。奥运会本该是竞争团结，但却成了为中共种族灭绝背书的一场不光彩的奥运会。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-21.png)
-据外媒文章，美国正面临近40年以来最严重的通货膨胀压力。成本飙升，物价上涨，实际收入无法提高。另外对于收入不高的人群来说，信用卡则成为最大的潜在威胁。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Jan22_18_1161990255-2-1.jpeg)图片来源: 网络
-自中共病毒侵袭全球，美国经济开始了下滑，一些美国制造业经历了可怕的衰退。随着中共病毒大流行持续性破坏，白宫推行实施的主要政策有：一、对美国国内能源的战争；二、高昂的借贷与支出；三、强制中共疫苗接种，其导致社会供应链和劳工严重不足等后勤问题。此三项政策使生活成本不断飙升，物价租金和原油价格都涨至高点。
+视频来源：[Athletes participating in the Winter Olympics in Beijing are “having to download an app… with information controlled by the Chinese Communist Party, that is their surveillance tool, their tracking tool,” said Sen.](https://twitter.com/newsmax/status/1490716683706802180?s=24)
 
-很多普通居民由于通胀的影响，到手工资的购买力持续性贬值，很多人只能靠信用卡以贷养贷来支付高昂的生活成本。
+*发布：Mttfly*
 
-郭先生此前曾提到，大概在今年3-5月份，美国信用卡和银行的烂账激增之时，美国经济会有巨大危机。目前看来，这些危机正逐步显现。
-
-参考来源: [https://gettr.com/post/puo4103c76](https://gettr.com/post/puo4103c76)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-33.jpg)
-编辑/校对/发稿: 卡夫卡的甲壳虫
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
-
-
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
