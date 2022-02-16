@@ -2,8 +2,8 @@
 ---
 
 
-## 七哥证明了自己是个有血有肉的人
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2017046/)
+## 七哥个人破产，创造了喜币今天的辉煌
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2017055/)
 
 #### 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王 视频定位：BENJ1，WEI
 

@@ -31,15 +31,6 @@
 
 ---
 
-**:arrows_clockwise: miles 已轉發**
-
-`@realfayfay 2/16/2022 7:07 AM (UTC)`
-
-Crazy Kids🙈
-![img](https://media.gettr.com/group8/gvision/2022/02/16/07/bf61095e-a30b-1822-8b4c-066003e176d8/out.jpg)
-
----
-
 `@miles 2/16/2022 12:54 PM (UTC)`
 
 2022年2月16日 文贵大直播：疫苗公司股价变化；中国人寿王滨被抓；世界多地反华苗头；冬奥会锁链女后续；太平联盟官司进展；七哥赴日英后安排
@@ -154,6 +145,13 @@ Crazy Kids🙈
 
 2/13/2022 Miles Guo: The International Olympic Committee is a criminal organization that has committed countless crimes. All the international organizations corrupted by the CCP such as the WTO, WHO, and the UN Commission on Human Rights are lawless and have been exploiting the Chinese people by colluding with the CCP. Without faith, humans will be more wicked than devils.<br/><br/>2/13/2022 文贵直播：国际奥委会是罪组织，其罪行罄竹难书；被中共腐败的WTO、WHO和联合国人权理事会等国际组织无法无天，跟中共沆瀣一气压迫中国人；若信仰缺失，人比魔更邪恶<br/>
 ![img](https://media.gettr.com/group26/getter/2022/02/14/15/f3a8b991-59b4-8848-2f56-fa1d419e307e/out.jpg)
+
+---
+
+`@miles 2/14/2022 8:56 AM (UTC)`
+
+2/13/2022 Miles Guo: The Winter Olympics costing trillions of dollars of the Chinese people’s hard-earned money has shown the world the falsehood, deception, corruption, and unbridled mutual harm of individuals in Communist China. Xi Jinping is a madman, who is reckless, full of lies, and has no credibility, and Xi has ruined all the international relations of the CCP. The Winter Olympics will cause Communist China’s economy to collapse, leading to a worldwide anti-Chinese movement.<br/><br/>2/13/2022 文贵直播：耗费上万亿美元民脂民膏的冬奥会却让全世界看到中共国的假和骗、腐败、和毫无底线的互害；习太阳是一个混不吝、满嘴谎话、毫无信用的疯子，搞砸了中共所有的国际关系；冬奥会将让中共国经济崩溃、并引发全球排华<br/>
+![img](https://media.gettr.com/group41/getter/2022/02/14/08/27647312-621c-1ce1-8d0e-09c613a1e900/out.jpg)
 
 ---
 

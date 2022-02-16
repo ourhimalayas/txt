@@ -15,73 +15,73 @@
 
 ---
 
-### [表叔是一名共产党“笔杆子”](/content/gnews/1/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [有声|中共网约车巨头处境艰难，滴滴全面大裁员](/content/gnews/2/README.md)
+### [有声|日本首次使用HPAY购买高档手表](/content/gnews/1/README.md)
  ` MOSREC`
 
-### [加拿大總理賈斯汀-特魯多援引《緊急狀態法案》](/content/gnews/3/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [中共很邪恶，把全国人变成傻子](/content/gnews/4/README.md)
- ` 雅典娜GNotes`
-
-### [中共不是新中国联邦，胡锡进休要发昏“感同身受”](/content/gnews/5/README.md)
+### [表叔是一名共产党“笔杆子”](/content/gnews/2/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [天道酬勤，地道酬人](/content/gnews/6/README.md)
- ` 雅典娜GNotes`
-
-### [有声|【信仰之声】同样的侍奉，不同的得着](/content/gnews/7/README.md)
+### [有声|中共网约车巨头处境艰难，滴滴全面大裁员](/content/gnews/3/README.md)
  ` MOSREC`
 
-### [加拿大总理贾斯汀-特鲁多援引《紧急状态法案》](/content/gnews/8/README.md)
+### [加拿大總理賈斯汀-特魯多援引《緊急狀態法案》](/content/gnews/4/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [七哥个人破产，创造了喜币今天的辉煌](/content/gnews/9/README.md)
+### [中共很邪恶，把全国人变成傻子](/content/gnews/5/README.md)
  ` 雅典娜GNotes`
 
-### [七哥证明了自己是个有血有肉的人](/content/gnews/10/README.md)
+### [中共不是新中国联邦，胡锡进休要发昏“感同身受”](/content/gnews/6/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [天道酬勤，地道酬人](/content/gnews/7/README.md)
  ` 雅典娜GNotes`
 
-### [七哥金句：懂得爱，音乐及力量](/content/gnews/11/README.md)
- ` 雅典娜GNotes`
+### [有声|【信仰之声】同样的侍奉，不同的得着](/content/gnews/8/README.md)
+ ` MOSREC`
 
-### [加拿大副總理兼財政部長：參與卡車示威民眾的賬戶會被凍結，車保險會被暫停](/content/gnews/12/README.md)
+### [加拿大总理贾斯汀-特鲁多援引《紧急状态法案》](/content/gnews/9/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [七哥个人破产，跟随七哥的本质是灭共不是为了钱](/content/gnews/13/README.md)
+### [七哥个人破产，创造了喜币今天的辉煌](/content/gnews/10/README.md)
  ` 雅典娜GNotes`
 
-### [锁链女父亲，报应](/content/gnews/14/README.md)
+### [七哥证明了自己是个有血有肉的人](/content/gnews/11/README.md)
  ` 雅典娜GNotes`
 
-### [加拿大副总理兼财政部长：参与卡车示威民众的账户会被冻结，车保险会被暂停](/content/gnews/15/README.md)
+### [七哥金句：懂得爱，音乐及力量](/content/gnews/12/README.md)
+ ` 雅典娜GNotes`
+
+### [加拿大副總理兼財政部長：參與卡車示威民眾的賬戶會被凍結，車保險會被暫停](/content/gnews/13/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [七哥谈个人破产](/content/gnews/16/README.md)
+### [七哥个人破产，跟随七哥的本质是灭共不是为了钱](/content/gnews/14/README.md)
  ` 雅典娜GNotes`
 
-### [瑞士取消疫苗护照和几乎所有 COVID-19 限制](/content/gnews/17/README.md)
+### [锁链女父亲，报应](/content/gnews/15/README.md)
+ ` 雅典娜GNotes`
+
+### [加拿大副总理兼财政部长：参与卡车示威民众的账户会被冻结，车保险会被暂停](/content/gnews/16/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [七哥谈个人破产](/content/gnews/17/README.md)
+ ` 雅典娜GNotes`
+
+### [瑞士取消疫苗护照和几乎所有 COVID-19 限制](/content/gnews/18/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [七哥金句：数字货币，躺平币，喜马拉雅，积累](/content/gnews/18/README.md)
+### [七哥金句：数字货币，躺平币，喜马拉雅，积累](/content/gnews/19/README.md)
  ` 雅典娜GNotes`
 
-### [如何面对亲人不听劝打疫苗的问题](/content/gnews/19/README.md)
+### [如何面对亲人不听劝打疫苗的问题](/content/gnews/20/README.md)
  ` 雅典娜GNotes`
 
-### [青蒿素的效果积极反应给农场](/content/gnews/20/README.md)
+### [青蒿素的效果积极反应给农场](/content/gnews/21/README.md)
  ` 雅典娜GNotes`
 
-### [台湾行政院将通过经济间谍法 防止中共窃取核心技术](/content/gnews/21/README.md)
+### [台湾行政院将通过经济间谍法 防止中共窃取核心技术](/content/gnews/22/README.md)
  ` 日本东京方舟农场`
 
-### [共产党全世界没有法律没有规则](/content/gnews/22/README.md)
- ` 雅典娜GNotes`
-
-### [人类一半人，不会放过黑暗势力、共产党](/content/gnews/23/README.md)
+### [共产党全世界没有法律没有规则](/content/gnews/23/README.md)
  ` 雅典娜GNotes`
 
 ### [全球反中共病毒反毒疫苗行动将成21世纪最美丽风景线](/content/gnews/24/README.md)
