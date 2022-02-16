@@ -2,23 +2,31 @@
 ---
 
 
-## 加拿大财长任职“世界经济论坛”的危害
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2011859/)
+## 有声|运动员发布奥运村漏水消息 被中共要求删除
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2011863/)
 
-采编/编译撰稿： 薇文
-![](https://assets.gnews.org/wp-content/uploads/2022/02/03-image-2.jpg)
-据加拿大[国家邮报]近日报道，现任副总理兼财政部长[弗里兰]代表加拿大参加全球主义精英汇集的[世界经济论坛]之举，已严重危及到该国的民主制度。
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+2月13日，国外多家媒体报道，参加北京冬奥会的芬兰滑雪运动员莱恩佩拉，上周在自己的社交媒体上发布了一些照片和视频，显示水从她在冬奥村住所的天花板上倾泻而下，并在地板上形成了水坑。还有一些照片显示，有电气设备被暴露在水中。
 
-[弗里兰]于2013年加入[世界经济论坛]，并在2019年后，作为唯一的政府部长担任该论坛董事会成员。此外，她还是与[达沃斯俱乐部]齐名的[阿斯彭研究所]的理事会成员，管理着为数众多的年轻政治精英。
+林佩拉在视频中加上了“救命”的标题，同时还分享了中共国工作人员赶来清理的镜头。
 
-报道称，作为加拿大公共财政监护人，由于[弗里兰]不仅行使着[世界经济论坛]的最高行政职责，同时还在[阿斯彭研究所]提供咨询以及管理财务。因此，者势必会产生国家和机构组织间的责任冲突和利益勾兑，并导致[世界经济论坛]的全球政策和立场将左右加拿大的国策，而使联邦政府沦为这些组织的附庸，并最终颠覆加拿大现有的民主制度。
+不过，在莱恩佩拉分享的图片中，最令人难以置信的是，有一张她收到的一条消息的屏幕截图，该消息要求她从社交媒体上删除她发布的相关帖子。
 
-校对编辑：硫酸羟氯喹64
+文字版原文：[运动员发布奥运村漏水消息 被中共要求删除](https://gnews.org/zh-hans/2007700/)
 
-发稿：苦尽甜来 (文来）
+音频处理：Fei797
+发稿：Fei797
 
-新闻来源: [Rupa Subramanya: Chrystia Freeland’s side gig with the WEF is endangering Canadian democracy](https://nationalpost.com/opinion/rupa-subramanya-chrystia-freelands-side-gig-with-the-wef-is-endangering-canadian-democracy)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

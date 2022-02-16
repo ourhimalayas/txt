@@ -2,31 +2,19 @@
 ---
 
 
-## 有声|运动员发布奥运村漏水消息 被中共要求删除
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2011863/)
+## 郭文贵先生签下第一份个人破产申请书应对中共的迫害
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2011876/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-2月13日，国外多家媒体报道，参加北京冬奥会的芬兰滑雪运动员莱恩佩拉，上周在自己的社交媒体上发布了一些照片和视频，显示水从她在冬奥村住所的天花板上倾泻而下，并在地板上形成了水坑。还有一些照片显示，有电气设备被暴露在水中。
+撰稿：追着曙光跑
 
-林佩拉在视频中加上了“救命”的标题，同时还分享了中共国工作人员赶来清理的镜头。
+根据郭文贵先生2月15日的盖特视频，郭文贵先生于美东时间2022年2月15日，正式签下他人生中的第一份个人破产申请书。由于多年受到中国共产党的迫害，郭先生决定申请个人破产来应对中共。具体内容请看视频。
 
-不过，在莱恩佩拉分享的图片中，最令人难以置信的是，有一张她收到的一条消息的屏幕截图，该消息要求她从社交媒体上删除她发布的相关帖子。
+此前，郭先生在2月9日的大直播中宣布，新中国联邦对UBS（瑞士集团）的诉讼在英国伦敦正式立案。UBS拥有1百万亿美元以上的存款和黑账，相当于人类过去500年积累的财富。中共存储在海外的钱大部分都在UBS，它也是唯一一个在中共国，获得准入的拥有独立经营牌照的海外银行。
 
-文字版原文：[运动员发布奥运村漏水消息 被中共要求删除](https://gnews.org/zh-hans/2007700/)
+UBS与中共用非法手段把郭先生的股票卖了，在过去5年里没有一个有名的律师敢接郭先生对UBS的诉讼，因为这些律师都被UBS和中共给钱强行站队了。美国跟UBS对抗了50年才打开它的数据之门，现在在英国能够立案。郭先生今天签署的个人破产申请书，就是为了全身心地跟中共对抗到底，直到胜诉的那一刻。
 
-音频处理：Fei797
-发稿：Fei797
+2月15日郭文贵先生盖特：[2月15号：七哥从这一刻起个人正式破产了……案件号码：Case No. 22-50073.](https://gettr.com/post/pute7afcba)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

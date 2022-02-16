@@ -2,25 +2,33 @@
 ---
 
 
-## 樱花FM┃中日财经爆：恒大“爆雷”前 总裁夏海钧套现3亿
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2011697/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年2月15日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2011724/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1012-2.png)
-据香港联交所2月9日披露的资料显示，中国恒大集团副主席兼总裁夏海钧在公司去年陷入债务危机前，沽清手上面值1.28亿美元的债券。同期夏海钧减持价值1.84亿元恒大系股份，两项共套现3亿。
+作者：香草山翻译部
 
-资料显示，夏海钧于去年7月至8月期间分批卖出三批恒大债券，分别为面值2,800万美元于2025年到期的8.75%优先票据、面值5,000万美元于2023年到期11.5%优先票据，以及面值5,000万美元于2022年到期11.5%优先票据。其出售上述债券的平均价格为票面价值的约35.9-52.4%。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO-1.jpg)
 
-在同一期间内，夏海钧亦减持恒大系股份，包括于去年8月11日在场内以每股平均价14.1785港元出售了300万股恒大汽车股份以及1,000万股恒大物业股份。
 
-恒大集团自去年中开始传出财困消息，至8月被中共国央行和银保监会约谈并要求化解债务风险，9月进入理财产品爆发兑付危机。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-1-1.png)
+校对：Stay文苑
 
-文字版原文：[中日财经爆：恒大“爆雷”前 总裁夏海钧套现3亿](https://gnews.org/zh-hans/1984421/)
+编辑：Stay文苑
 
-编辑：东京樱花团/asket
+发稿：Stay文苑
 
-发布：东京樱花团/asket
-![]()
+新闻：[https://gtv.org/broadcast/watch/620c549e432ae869226d48fa](https://gtv.org/broadcast/watch/620c549e432ae869226d48fa)
+访谈：[https://gtv.org/broadcast/watch/620c5ee4432ae869226d4dde](https://gtv.org/broadcast/watch/620c5ee4432ae869226d4dde)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-1.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

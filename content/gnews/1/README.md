@@ -2,23 +2,23 @@
 ---
 
 
-## 今日盖特大V推荐 — 比亚·基西斯（Bia Kicis）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2012121/)
+## 今日盖特大V推荐 — 迪内什·德·索萨（Dinesh D&#8217;Souza）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2012144/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1535-e1644987435306.png)
-盖特链接：[https://gettr.com/user/biakicis](https://gettr.com/user/biakicis)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1538-e1644988196112.png)
+盖特链接：[https://gettr.com/user/dineshdsouza](https://gettr.com/user/dineshdsouza)
 
-**比亚·基西斯自述**：
+**迪内希·德·索萨自述：**
 
-第一位主持CCJC/商会的女性。联邦地区检察官24年，副部长。联邦地区。
+我是Dinesh D’Souza播客的作者、电影制片人和主持人。 订阅：[https://podcasts.apple.com/us/podcast/the-dinesh-dsouza-podcast/id1547827376](https://podcasts.apple.com/us/podcast/the-dinesh-dsouza-podcast/id1547827376)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1539.png)图片来源：网络
+**迪内希·德·索萨简介：**
 
-[\[email protected\]](/cdn-cgi/l/email-protection)：[http://t.me/biakicisof…](https://t.me/biakicisof...)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1536.png)图片来源：网络
-**比亚·基西斯简介：**
+迪内希·德·索萨，1961年4月25日出生于印度孟买市，1991年入美国籍。美国政治评论家，作家，纪录片制片人。一位有着25年研究经验的学者和知识分子，曾在里根时代任白宫政策分析师。
 
-比亚·基西斯，出生于1961年9月19日，巴西政治家，活动家，律师和前总检察长，巴西联邦众议员，保守派社会自由党，巴西国民议会政府副领导人（2019～2020年）。
+迪内希·德·索萨曾先后于美国企业研究院和斯坦福大学的胡佛研究院出任研究员，并于2010～2012年担任纽约国王学院的校长。
 
-比亚·基西斯捍卫使用可验证的纸质投票记录，以防止电子投票系统导致的巴西的选举舞弊。
+迪内希·德·索萨拍摄过多部政治纪录片，在舆论场经常引发巨大争议。他通过多本著作成为公共政策领域最具影响力的亚裔美国人，被《纽约时报》评为美国最具影响力的保守派思想家之一。
 
 编撰：洛杉矶盘古农场 — 心照
 
