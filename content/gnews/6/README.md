@@ -2,72 +2,38 @@
 ---
 
 
-## 众议员莫·布鲁克斯推《中共国COVID-19赔偿法案》
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2012456/)
+## 美国海军工程师承认出售潜艇机密给外国政府
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2012493/)
 
-> 众议员莫·布鲁克斯：[#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw) 撒谎，人民死亡。我希望共产主义中国向受到伤害的美国人赔偿，因为他们制造了 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hash&amp;ref_src=twsrc%5Etfw) 之后还撒谎掩盖从而伤害了美国人。
-> 【附中字视频】 [https://t.co/N2vG2vMj8e](https://t.co/N2vG2vMj8e) [pic.twitter.com/2tcrnnTUAS](https://t.co/2tcrnnTUAS)
-> — 美国政要直译推 (@zhiyitw33) [February 16, 2022](https://twitter.com/zhiyitw33/status/1493784086158086148?ref_src=twsrc%5Etfw)
+#### 整理/编辑：小红帽
 
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Virginia_class_submarine.jpg)
 
-
-众议员马乔丽·泰勒·格林：
-如果共和党人无法阻止大科技审查，那么共和党人还能做什么？
-
-大科技公司在审查他们不喜欢的政治观点上做得太过了，它在压制真相。
-
-如果我们不能为保护真理而战，那还有什么可做的？
-
-共和党人到底是为了什么（而存在）？
+图片来源：www.19fortyfive.com
 
 
+根据RT新闻2月15日报道，一名前美国海军工程师周一承认，试图将有关美国核动力军舰的机密信息传递给他认为代表外国政府的人。
 
-> If Republicans can’t stop Big Tech Censorship, then what can Republicans even do?
-> 
-> Big Tech has gone way past censoring political opinions they don’t like, it’s silencing truth.
-> 
-> If we can’t fight to protect truth then what else is left?
-> 
-> And what are Republicans even for?
-> — Rep. Marjorie Taylor Greene (@RepMTG) [February 16, 2022](https://twitter.com/RepMTG/status/1493770857855995904?ref_src=twsrc%5Etfw)
+43岁的乔纳森·托比（Jonathan Toebbe）出现在西弗吉尼亚州马丁斯堡的联邦法院，他被指控犯有一项串谋传播限制性数据的罪名，可被判处12至17年监禁。
 
+托比和他的妻子戴安娜于10月被拘留，此前当局称托比利用了自己获得机密信息的机会，并出售有关弗吉尼亚级潜艇的详细信息。作为一名工程师，托比之前曾在国防部持有最高机密的安全许可。
 
+联邦调查局于2020年4月启动了一项卧底行动，以抓获托比。此前托比向外国政府寄了一包海军文件，美国当局从该未具名国家的法律专员办公室获得了这些文件。
 
-前国务卿迈克.蓬佩奥：
-社会主义行不通。 我在巡视 铁幕（指昔日西欧与中东欧共产党执政国家之间想象的屏障）时亲眼目睹了它——我知道它不会带来任何好处。
+一名冒充外国代表的联邦调查局特工与托比取得联系，并转移了10万美元的加密货币以换取他的机密信息。
 
+当联邦调查局特工搜查托比一家在马里兰州的住所时，特工发现了装有碎文件、价值数千美元现金的袋子和一个装有USB闪存驱动器的“随身袋”。
 
+新闻链接： [US Navy engineer admits selling submarine secrets](https://www.rt.com/news/549423-us-navy-engineer-selling-secrets/)
 
-> Socialism doesn’t work. I saw it firsthand when I patrolled the Iron Curtain — and I know nothing good comes of it.
-> — Mike Pompeo (@mikepompeo) [February 16, 2022](https://twitter.com/mikepompeo/status/1493765787621888007?ref_src=twsrc%5Etfw)
+发布：wenly
 
-
-
-比尔.格茨：
-作为阻止解放军进入美国证券市场的新政策的一部分，美国财政部将对 59 家中共国军工公司实施制裁
-【附比尔.格茨发布华盛顿时报报道：美国新的制裁规则打击了数十家中共国军工企业】
-
-
-
-> Treasury Department codifies sanctions on 59 Chinese military companies as part of a new policy blocking PLA from US securities markets [https://t.co/nDSNRttMHG](https://t.co/nDSNRttMHG)
-> — Bill Gertz (@BillGertz) [February 15, 2022](https://twitter.com/BillGertz/status/1493720810183282688?ref_src=twsrc%5Etfw)
-
-
-
-众议员帕特·法伦：
-
-中国是芬太尼的主要原产国——他们在我们的南部边境将其倾注进入美国。
-
-还认为边境危机不是国家安全威胁吗？
-
-
-
-> China is the primary country of origin for fentanyl – and they're pumping it into the America at our southern border.
-> 
-> Still think the border crisis isn't a national security threat?
-> — Rep. Pat Fallon (@RepPatFallon) [February 15, 2022](https://twitter.com/RepPatFallon/status/1493690831139528704?ref_src=twsrc%5Etfw)
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
