@@ -2,26 +2,28 @@
 ---
 
 
-## 樱花FM┃日本众议院通过决议谴责俄罗斯武力入侵乌克兰的企图
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2014957/)
+## 有声|俄可能打击芯片供应链
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2015104/)
 
-音频：东京樱花团/战友520
-![](https://lh3.googleusercontent.com/k-wXsZJ1q4DEP0bW6zYIUhWUbY6YArcTVg6s0QgFCDgNFPXUmy5errvXoJ2Krte_g0DS6p_7j1RIkW_YWvorshB-Pk7ZdLdjwlfrcz-bne0WtT1bY6MbvZwLJKNYeHJs-8VQWnQ7)
-日本众议院周二（2月8日）通过了一项关于乌克兰紧张局势加剧的决议，谴责俄罗斯以武力改变现状的企图，并敦促首相岸田文雄的政府尽其所能帮助乌克兰实现和平。
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-9-6.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-6.png)
+美国对俄出口限制后，俄罗斯报复措施会阻断芯片业关键原料供应，需要供应链多样化以应对市场调研机构Techcet 2月初发布报告，提示很多芯片制造商依赖于从俄，乌克兰采购的原材料，含钯，钪，氖，氦等。
 
-目前正值俄罗斯在俄乌边界集结逾10万兵力，引发了对爆发战争的担忧。
+据估计，美国的90%芯片级氖由乌克兰供应，35%的钯来自俄联邦。白宫国家安全委员会的Peter Harrell及其幕僚最近与多家芯片商接触，了解他们对俄，乌材料的需求，并提出希望找到其它供应源。
 
-议会在决议中表示：“议会对局势深表关切，宣布其始终与希望国家和地区稳定的乌克兰人民站在一起。任何国家用武力改变现状都是不可接受的。”
+文字版原文：[俄可能打击芯片供应链](https://gnews.org/zh-hans/2008821/)
 
-日本多名政府官员2月5日透露，如果俄罗斯军队入侵乌克兰，日本政府已经开始考虑对俄罗斯实施制裁。俄军在乌克兰边境大规模部署，紧张局势不断升级，日本计划与七国集团（G7）一致应对，外务省、经济产业省和内阁官房正在列出制裁清单。
+音频处理/发稿：Daxia
 
-在上个月的一次线上会议中，岸田和美国总统拜登承诺共同努力阻止俄罗斯对乌克兰的侵略，首相承诺与美国和国际社会密切协调，采取有力行动应对任何攻击。据美日外交消息人士称，双方正在讨论外交路线上的制裁清单。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-文字版原文：[日本众议院通过决议谴责俄罗斯武力入侵乌克兰的企图](https://gnews.org/zh-hans/1973983/)
-
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

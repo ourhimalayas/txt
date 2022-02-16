@@ -2,28 +2,47 @@
 ---
 
 
-## USTR发布年度报告聚焦中共国非市场政策
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2014639/)
+## 樱花数据分析┃英格兰：两针接种者更容易出现感染和死亡
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2014769/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-266.jpg)
-[图片源](https://www.newsweekjapan.jp/headlines/world/2021/09/345779.php)
+撰稿：东京樱花团/TV
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-181.png)
+英格兰政府自今年第三周以来，重心由公布两针接种感染数据，转为了三针接种感染数据。由于全球出现的两针接种者对感染增强的现象，我们对于英格兰数据进行了分析。令人吃惊的是，几乎所有年龄层的两针接种者，在感染，住院，及死亡风险全面大于未接种者。
 
-16日，美国贸易代表办公室（USTR）发布了关于中共国遵守世界贸易组织（WTO）规则状况的年度报告。指出针对中共国的“政府主导的非市场政策及做法”，美国亟待实施新的战略并急需修订相关法规。
+第6周《疫苗监督报告》[1]，公布了第2～5周感染、住院、死亡总人数统计。第3周～第6周的《全国流感及新冠病毒监督报告》[2,3,4,5]公布了第2～5周的疫苗接种率，我们取其平均做为第2～5周疫苗接种率。综合以上数据，我们得到第2～5周各年龄层的疫苗有效率结果。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1587.png)
+制图：chuansang
 
-报告指出，特朗普执政期间签署的美中第一阶段贸易协议，未能从根本上解决美方对中共国产业政策及大规模金融资源扶持政策的担忧。
+对18岁以上人群，疫苗防感染有效率为负值，两针接种者感染风险为未接种者的2.08～3.02倍。
 
-贸易代表戴琪在一份声明中指出，中共国种种行为违背其在加入世贸组织时作出的承诺。一直以来并未支持世贸组织以及世贸组织规则基石的市场原则。相反，在经济贸易方面正在扩大其政府主导的非市场政策。
+对30岁以上人群，疫苗防住院有效率为负值，两针接种者住院风险为未接种者的1.21～1.72倍。
 
-报告指出，中共国正在实施不公平的政策及做法，且已超出几十年前美国制定的许多贸易法律法规。并指出，目前相应法规急需修正，以确保为美国工人和企业提供更公平的竞争环境。
+对30岁以上人群，疫苗防死亡有效率为负值，两针接种者死亡风险为未接种者的1.05～2.76倍。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1588.png)
+制图：chuansang
 
-报告中明确指明，中方没有遵守第一阶段协议中的承诺，包括未做到对猪肉和牛肉中使用的促肥剂（莱克多巴胺）进行风险评估。
+两针接种者更易感染，住院，死亡。这与之前苏格兰公布的数据一致。不仅如此，如果仔细观察，我们会发现风险值有随年龄增大而上升趋势，80岁以上接种者死亡风险竟达到了2.76倍！由于高龄者接种最早，这似乎说明接种时间越久，越容易感染、住院及死亡。这可能与长期存在于体内的刺突蛋白对免疫系统的持续伤害有关。
 
-信息源：
+我们之前的文章[6]已经展示了，三针疫苗防感染有效率已经为负值，即防住院、防死亡不久也将达到两针接种相同结果。那么加强针意义何在？
 
-[ＵＳＴＲ、中国巡る通商報告　非市場的政策に対抗する戦略求める](https://news.yahoo.co.jp/articles/0ac0098abddae0915ab77c21dd1dd24fcd90e7ce)
+放眼全世界，真相还在被隐藏之中。这是一场愚蠢的实验？惊天的骗局？还是蓄意的屠杀？？？
 
-编辑：东京樱花团/知了知了
+数据来源：
+
+[\[1\]疫苗监督报告-第六周](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1054071/vaccine-surveillance-report-week-6.pdf)
+
+[\[2\]全国流感及新冠病毒监督报告 – 第3周](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1048531/Weekly_Flu_and_COVID-19_report_w3.pdf)
+
+[\[3\]全国流感及新冠病毒监督报告 – 第4周](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1050508/Weekly_Flu_and_COVID-19_report_w4.pdf)
+
+[\[4\]全国流感及新冠病毒监督报告 – 第5周](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1052357/Weekly_Flu_and_COVID-19_report_w5.pdf%20)
+
+[\[5\]全国流感及新冠病毒监督报告 – 第6周](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1054000/Weekly_Flu_and_COVID-19_report__w6.pdf%20)
+
+- [樱花数据分析｜英国：大多数三针接种者更易感染奥密克戎毒株](https://gnews.org/zh-hans/1903806/)
+
+
+编辑：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/yuxingcao01
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 

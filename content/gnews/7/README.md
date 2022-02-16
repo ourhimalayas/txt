@@ -2,28 +2,23 @@
 ---
 
 
-## 有声|众议员丽萨谈制裁中共法案已经触怒了中共
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2015160/)
+## 【G时新闻】加拿大安省宣布從3月1日起取消疫苗護照
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2015238/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月12日外媒报道，众议员丽萨-麦克莱恩谈及，她最近提出的关于制裁中共高官及其家人、资产的法案，她说这个法案明显已经触怒了中共，但是美国有勇气面对中共的报复和威胁。
+加拿大温哥华扬帆农场   播报：yuyu   视频制作: Gracelshan
 
-丽萨认为，该法案的提出，也说明了中共的行为是不能容忍的，美国国会不能再对中共的各种侵犯人权，以及进行种族大屠杀的行为视而不见，无论是对香港、维族穆斯林还是台湾。同时，她呼吁美国那些和中共合作的政府官员，应当即刻停止与中共的勾兑。
+根据事情的进展，两周前我们听到首席卫生医疗官摩尔博士说，我们正在快速的接近可以安全取消新冠限制措施的时间点。
 
-文字版原文：[众议员丽萨谈制裁中共法案已经触怒了中共](https://gnews.org/zh-hans/2009514/)
+上周末我收到了摩尔博士关于重新安全开放经济和取消疫苗护照系统计划的建议，我已经接受了这些建议
 
-音频处理/发稿：Daxia
+因此今天我宣布，从2月17日开始，我们将取消所有的人数限制，但体育赛事、音乐会馆和剧院除外，这些场所的上限为容量的50%，一些风险较高的场合也将被限制在25%，社交聚会的限制将增加到室内25人，室外100人。有组织的公共活动将增加到室内50人，室外没有限制。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+从3月1日起，我们计划取消所有室内公共场所的人数限制，同时根据摩尔医生的建议，我们将取消所有场所对疫苗接种证明的要求。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+听写/翻译：LuLu1312
+字幕：圣骑士
+编辑/上传：圣骑士
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
