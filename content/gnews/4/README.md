@@ -2,23 +2,32 @@
 ---
 
 
-## 芯片 运输 能源价格将暴涨 美国几乎已拿下东欧
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2012005/)
+## 印度财政部正在对数字货币进行磋商
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2012010/)
 
-芯片价格会暴涨，因为主要材料中3个来自俄罗斯。
+撰稿: 银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-26.png)
+日前，印度一名高级官员声明表示，短期内该国数字资产状况的监管不确定性将持续存在。
 
-俄罗斯西送的天然气影响着欧洲的命运和经济。现德国接受了美国在境内布置核武设施，挪威，丹麦等国也欢迎美国驻军。同时美军也已部署在了乌克兰，还没开打，美军几乎已经拿下东欧。
+据悉印度财政部长Nirmala Sitharaman在对2022-23年联邦预算的讨论时表示，她目前暂时不会合法化或是禁止数字货币，在财政部纳入审查磋商时，即刻就会有消息公示。 Sitharaman还提到，国家拥有公民从数字货币交易盈利的税收权力。此外，政府征收数字货币税的能力与合法承认资产类别的问题是区分开的。印度税务当局负责人也认为，对数字资产征税的计划并不一定意味着交易合法化。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1530.png)图片来自：https://cointelegraph.com/
+据悉印度最近成为数字货币重大监管新闻的爆发地，其中关于2021年底可能会禁止数字货币的谣言撼动动了全球数字货币市场。
 
-近期欧元暴涨，美元下跌。美元和欧元是相需关系，美元需要欧元以抵御人民币和瑞元，但又要防止欧元强大。
+目前，威胁已经过去，包含禁令提案的法案被排除在本届议程之外。同时印度政府可能在2022年晚些时候或2023年引入央行数字货币（CBDC）。
 
-欧盟的核心利益是避免对俄作战以及俄罗斯东扩。美国的利益是俄罗斯开战，弱化欧洲。这场战争的赢家会是美欧，共产党会被灭掉，欧洲会因此重生。
+新闻来源: [India’s finance minister waiting for consultations to decide whether to ban or regulate crypto](https://cointelegraph.com/news/india-s-finance-minister-waiting-for-consultations-to-decide-whether-to-ban-or-regulate-crypto)
 
-芯片产业，石油及产品，大型货运，俄罗斯相关的金属，都会暴涨，虚拟货币是世界金融的大赢家。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-196.jpeg)
 
-视频来源: 20220213—郭先生大直播
-视频制作: 文星光，梦田
-文案:文星光
+校正/发稿：浪迹天涯
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-25.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

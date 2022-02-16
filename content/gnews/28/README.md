@@ -2,27 +2,30 @@
 ---
 
 
-## 辉瑞用误导词汇推广他们的疫苗是100%有效
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2011731/)
+## 加拿大副总理兼财政部长克里斯蒂亚-弗里兰的祖父是纳粹分子
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2011751/)
 
-##### 素材：小菠萝
-翻译：Annabelle
-校对：Lish
-剪辑|字幕：向上James
-编辑：Mttfly
+翻译：冰糖葫芦喵
 
-根据辉瑞的数据，六个月后，打了疫苗的组里有20人死亡，打了安慰剂的组里死亡14人（每组各22000人）。这说明了如果你打了疫苗比不打疫苗高出48%的死亡概率。辉瑞对于他们死因的数据说的是：在打疫苗组里有5人死于心脏病，在安慰剂组，1人死于心脏病。所以你打疫苗，死于心脏病发作的几率会增加500%。我们看到死亡率高的超乎想象，可能只有低于1%的死亡病例被实际报告。许多打了疫苗几个月或几周后死亡的案例没有报告到VAERS系统里，根据美国卫生与公众服务部的一项调查显示，少于1%的疫苗死亡案例被报告。
+编辑与校对：冰糖葫芦喵、灭共文明
 
-视频链接：[Pfizer used deception to market their vaccines as “100% effective,” and compared to the placebo group, more people died amongst the vaccinated.](https://twitter.com/vigilantfox/status/1491171353206325248?s=21)
+《网关专家》2月15日报道，**加拿大副总理兼财政部长、克里斯蒂亚-弗里兰的祖父是纳粹分子，她崇拜乔治-索罗斯。所以，她给热爱自由的加拿大人贴上恐怖分子的标签不足为奇。**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/弗里兰3.jpg)索罗斯、特鲁多和弗里兰会面（图片来源：尼亚加拉独立报）
+**现在加拿大是由特鲁多和希特勒手下的高级纳粹的孙女领导的。 **克里斯蒂亚-**弗里兰的家庭与纳粹有着密切联系。 她的祖父是一名高级别纳粹分子，二战后被波兰当局追捕。**
 
-*发布：Mttfly*
+就在周一，克里斯蒂娅-弗里兰还宣布，为抗议自由的加拿大人进行的众筹将被视为恐怖主义融资。**弗里兰的母亲是哈丽娜，也是纳粹霍米克的女儿。** 他曾与波兰的高层纳粹分子合影。**弗里兰的祖父只比希特勒低三级，而希特勒是他老板的老板的老板。**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/弗里兰2.jpg)图片来源：《网关专家》
+弗里兰还是乔治-索罗斯的粉丝，不止一次与他合影。** 索罗斯在年轻时帮助过纳粹，也是极左组织“安提法”Antifa背后的资助者。“安提法” Antifa**是Anti-Fascist（反法西斯）的缩写，简称“反法”。起源于1930年代，在欧美各国都有分布，**成员多是年轻人，崇尚暴力，认为暴力攻击是必要手段，反政府、蔑视法律，属于极左，他们奉行共产主义。**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/弗里兰4.jpg)图片来源：网络。
+最后报道指出，现在克里斯蒂亚-**弗里兰向加拿大人推行反自由的议程，并把那些支持自由、抗议反自由的强制命令的正义人士视为恐怖分子。**
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻链接：
+
+[EXCLUSIVE: Canada’s Deputy Prime Minister Chrystia Freeland’s Grandfather Was a Nazi and She Admires George Soros. It’s No Surprise She’s Labeling Freedom-Loving Canadians Terrorists (thegatewaypundit.com)](https://www.thegatewaypundit.com/2022/02/exclusive-canadas-deputy-prime-minister-chrystia-freelands-grandfather-nazi-admires-george-soros-no-surprise-labeling-freedom-loving-canadians-terrorists/)
+
+[Blank spot: Why Chrystia Freeland’s refusal to acknowledge her grandfather’s Nazi past matters in 2020 – The Progress Report](https://www.theprogressreport.ca/blank_spot_why_chrystia_freeland_s_refusal_to_acknowledge_her_grandfather_s_nazi_past_matters_in_2020)
+
+[克里斯蒂亚·弗里兰（Chrystia Freeland）-维基百科 (wikichi.icu)](https://wikichi.icu/wiki/Chrystia_Freeland)
 
  
 

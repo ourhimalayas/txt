@@ -2,32 +2,43 @@
 ---
 
 
-## 印度财政部正在对数字货币进行磋商
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2012010/)
+## 邮件证据表明，福奇等人合谋压制中共病毒来源于实验室的理论
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2012012/)
 
-撰稿: 银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-26.png)
-日前，印度一名高级官员声明表示，短期内该国数字资产状况的监管不确定性将持续存在。
+#### 撰稿：彩虹       
 
-据悉印度财政部长Nirmala Sitharaman在对2022-23年联邦预算的讨论时表示，她目前暂时不会合法化或是禁止数字货币，在财政部纳入审查磋商时，即刻就会有消息公示。 Sitharaman还提到，国家拥有公民从数字货币交易盈利的税收权力。此外，政府征收数字货币税的能力与合法承认资产类别的问题是区分开的。印度税务当局负责人也认为，对数字资产征税的计划并不一定意味着交易合法化。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1530.png)图片来自：https://cointelegraph.com/
-据悉印度最近成为数字货币重大监管新闻的爆发地，其中关于2021年底可能会禁止数字货币的谣言撼动动了全球数字货币市场。
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1529.png)图片来源：参议院
+2月15日，《新闻极限》报道，罗杰·马歇尔（Roger Marshall）参议员说，安东尼·福奇（Anthony Fauci）博士和其他科学家之间的电子邮件显示，有人试图压制中共病毒（COVID-19）是从中共国武汉的一个实验室泄露的理论。
 
-目前，威胁已经过去，包含禁令提案的法案被排除在本届议程之外。同时印度政府可能在2022年晚些时候或2023年引入央行数字货币（CBDC）。
+在中共病毒疫情开始阶段，科学家们向国家过敏和传染病研究所(National Institute of Allergy and Infectious Disease)所长福奇和国家卫生研究院（NIH）院长弗朗西斯·柯林斯（Francis Collins）博士发送了电子邮件。
 
-新闻来源: [India’s finance minister waiting for consultations to decide whether to ban or regulate crypto](https://cointelegraph.com/news/india-s-finance-minister-waiting-for-consultations-to-decide-whether-to-ban-or-regulate-crypto)
+堪萨斯州参议员在马歇尔《华盛顿观察家报》上写道，这些电子邮件表明，科学界领导人认为该病毒具有看起来是经过设计的特征。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-196.jpeg)
+但是，据身为医生的马歇尔参议员说，在接下来的几个月里，这些科学家中的许多人，亦即具有联邦资助权力的人，完全推翻了他们的观点，并在三篇独立的科学杂志文章中说实验室起源理论是不可能的。
 
-校正/发稿：浪迹天涯
+马歇尔写道：“（2020年）2月1日，福奇博士和柯林斯博士带头与这些科学家中的几位举行了一次不公开的电话会议，以影响并扭转他们的观点，即‘基因组与进化论的推测是不一致的’并可能是在实验室中设计的观点。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-25.png)
+六周后，由这些科学家撰写的发表在《自然医学》上的一篇文章指出，这种新型冠状病毒来自自然界，而实验室的起源是不可能的。马歇尔写道，福奇的上司柯林斯在电子邮件中鼓励福奇否定实验室泄露的理论。
+
+“2月26日，学术期刊《新兴微生物感染》上发表的一封信指出，‘没有可信的证据支持关于该病毒是实验工程的说法’，但是，在2月16日，该文章的两位作者之间的电邮中却说‘我们不能排除它来自实验室泄露的蝙蝠病毒的可能性’。巧合的是，自从他们发表了该文章后，作者们就从福奇和柯林斯那里获得了超过1500万美元的联邦研究经费。”。
+
+参议员也提到了第三封信，由27位科学家和公共卫生专家于2020年2月底发表在《柳叶刀》上，谴责“说COVID-19不是自然来源的阴谋论”。
+
+参议员写道：“后来的报告显示，这些科学家中有26人与武汉病毒研究所的研究人员有联系。《柳叶刀》发表的这封信的作者中，有10人与生态健康联盟（EcoHealth Alliance）有密切关系，而该生态健康联盟是由彼得·达斯扎克（Peter Daszak）带头的美国非营利组织，利用纳税人的资金研究新出现的传染病。这些钱来自于福奇和柯林斯以及国防部提供的拨款。年度拨款报告提供了证据，表明生态健康联盟及其次级受资助者武汉病毒研究所（Wuhan Institute of Virology）从事病毒功能性增强研究，而美国国家卫生研究院可能并不完全了解这些研究。”
+
+参议员在文章中继续说：“不久前，国家媒体嘲笑并否定了任何认为COVID-19病毒是在实验室起源或泄漏的人。此外，在《新兴微生物感染》的文章发表后，柯林斯给福奇写了一封具有揭露性的电子邮件，称‘想知道NIH（国家卫生研究院）是否能做些什么来帮助平息这个极具破坏性的阴谋论，因为似乎势头越来越猛。我希望关于SARS-CoV-2基因组序列的《自然医学》上的文章能解决这个问题。但是（该文章）可能没有得到太多的关注。还有什么我们可以做的吗？请国家学院来权衡一下？’”
+
+参议员认为：“当纳税人数十亿的钱停留在几个强大的官僚的智囊团中数十年时，无论是有意识的还是潜意识的，利益冲突都会出现，并影响几乎所有人的视野、决策和科学评估。人类的天性决定了这一点。科学家们现在已经公开叙述了对如果他们不听话就会遭到反击的担忧。”
+
+报道说，参议员马歇尔和他的共和党同事们已经提出了立法，要成立一个无党派的，类似于911事件的调查委员会，以确定COVID-19（中共病毒）的起源。
+
+**新闻来源**
+
+[Sen. Roger Marshall: Fauci Emails Reveal Suppression of COVID Lab Theory](https://www.newsmax.com/newsfront/anthony-fauci-emails-covid-roger-marshall/2022/02/15/id/1056941/)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

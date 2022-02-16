@@ -2,41 +2,38 @@
 ---
 
 
-## 中日财经爆|美国SEC正在调查币安与赵长鹏的两家关联公司
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2011834/)
+## 中共《环球时报》为何高调支持澳洲大选的某一政党
+` 喜国公民` [轉載自GNews](https://gnews.org/zh-hans/2011856/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片4-2.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fstatic.cnbetacdn.com%2Fthumb%2Farticle%2F2021%2F0628%2F408e62577d0dfcf.jpg&amp;imgrefurl=https%3A%2F%2Fwww.cnbeta.com%2Farticles%2Ftech%2F1180689.htm&amp;tbnid=GLZXq25fTe9trM&amp;vet=12ahUKEwj06devn4P2AhWCD94KHSrGDnoQMygDegUIARC2AQ..i&amp;docid=KFQ3epJ7mSIVdM&amp;w=700&amp;h=394&amp;q=%E5%B8%81%E5%AE%89&amp;ved=2ahUKEwj06devn4P2AhWCD94KHSrGDnoQMygDegUIARC2AQ)
-知情人士透露，美国证券交易委员(SEC)会正在调查全球最大加密货币交易所币安（Binance）的美国分部和与币安创始人赵长鹏有关联的两家交易公司之间的关系。
+By：喜国公民
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1527.png)图片来自网络
+中共《环球时报》发表文章支持现澳洲工党领袖安东尼·阿尔巴尼斯，希望他在今年的联邦大选中胜出，接替现任总理斯科特·莫里森。文章认为工党领袖可以改善澳洲与中共国的关系。
 
-据报，两家交易公司SigmaChainAG和MeritPeakLtd担任在币安美国分部（Binance.US）交易所交易加密货币的做市商。知情人士表示，监管机构关注的一个领域是Binance.US如何向客户披露其与这些交易公司的联系。
+不用质疑，在历史上，工党的确与中共有着紧密的合作关系。例如，目前由工党执政的维州曾[与中共签署了一带一路的项目](https://www.internationalaffairs.org.au/australianoutlook/tearing-up-the-belt-and-road-initiative-australias-rejection-of-chinas-new-silk-road-in-victoria/)。前工党领袖以及前总理陆克文曾接受中共党校的资助，[跑到牛津大学研究习近平思想](https://twitter.com/vanessa_zhanguk/status/989592642748141570)，还紧跟潮流学习中共十九大报告。
 
-报道指，SEC要求币安的美国关联公司Binance.US提供有关上述两家实体的资讯。知情人士透露，Binance.US目前正遭遇执法调查。
+但值得令人深思的是，中共干预别国大选，一向是暗中动手脚，耍阴招，为何这次如此嚣张，明目张胆地公开支持工党，其背后的葫芦里买的又是什么药呢？
 
-虽然关于MeritPeak的信息很少公开，但SigmaChainAG位于瑞士楚格，吸引了以太坊基金会和Tezos等加密公司和组织。公司备案文件显示，赵长鹏担任总裁至2019年XNUMX月。现任总裁为陈光英。在一些币安公司文件上列出作为执行董事。这Blog消息人士称，截至去年，赵仍然有效地控制着SigmaChain和MeritPeak。
+同时，澳洲的主流媒体最近几天连续发表文章，高调批评工党与中共的勾结，曝光工党与中共的历史。不免让人感觉，执政党是否在利用中共故意炒作来提升自身的支持率。
 
-两家公司都是币安美国分部（Binance.US）的做市商，这意味着他们利用自己的资产进行交易。加密货币交易所的好坏取决于其流动性。如果您想以现行价格购买10,000美元的以太坊，您需要有人能够将其出售给您。做市商为交易所带来流动性，买卖资产并在每笔交易中获利，有点像赌场。
+执政党因为实施不得人心的疫苗强制接种政策，[其支持率明显下滑](https://www.theguardian.com/australia-news/2021/nov/09/scott-morrisons-approval-rating-at-lowest-point-since-aftermath-of-black-summer-bushfires)，最近又[改变了新冠疫苗完全接种的定义](https://www.servicesaustralia.gov.au/changes-to-definition-fully-vaccinated-for-covid-19)，积极推进新冠疫苗第三针的接种，不得人心，引发了澳洲民众在首都堪培拉的大规模抗议活动。
 
-SEC负责保护消费者并监督从事证券现货交易的交易所——购买这些金融资产的目的是希望从公司或核心团队的努力中获得利润。公司的股票是证券，美国证券交易委员会认为，一些加密货币也是如此。
+不管哪个政党执政，都必须对中共病毒的来源进行追责，并停止侵犯人权的新冠疫苗强行接种政策。
 
-主席加里·根斯勒(GaryGensler)的领导下，SEC认为该机构应该拥有更广泛的职权范围。根斯勒去年声称该机构应该监督稳定币，与法定货币挂钩的代币，是加密生态系统的命脉。
+相比之下，没有注射新冠疫苗的澳洲亿万富翁克莱夫·帕尔默准备参加今年的联邦选举。[他将开展有史以来最昂贵的选举活](https://www.brisbanetimes.com.au/national/queensland/unvaxxed-billionaire-clive-palmer-promises-most-expensive-election-campaign-ever-20220119-p59ph4.html)动。他的重返政坛非常令人瞩目。
 
-去年，币安的名字在美国政府机构中出现了很多。这是联合调查对象由司法部和国税局于2021年发布。
+消息来源：[China’s Global Times backs Anthony Albanese as Prime Minister as questions mount over Labor’s ties with Beijing](https://www.skynews.com.au/australia-news/politics/chinas-global-times-backs-anthony-albanese-as-prime-minister-as-questions-mount-over-labors-ties-with-beijing/news-story/2c0f4226a802df781026bcd967ca9f25)
 
-美国商品期货交易委员会（CFTC）也对它进行了调查，指控它使美国人太容易使用该平台。与其美国子公司不同，它还允许衍生品交易，这意味着人们可以推测资产的未来价格。它无权在美国境内提供这些交易。CFTC后来研究了该交易所潜在的内幕交易。
+[China will ‘try in every way’ to influence Australian politics](https://www.skynews.com.au/opinion/andrew-bolt/china-will-try-in-every-way-to-influence-australian-politics/video/ab56c848968db623619b19b666312eb9)
 
-据SEC称，尽管美国证券交易委员会在2020年传唤该交易所，要求提供有关其如何与全球交易所互动的信息，但这家美国关联公司开展的调查较少。
+[Tearing Up the Belt and Road Initiative: Australia’s Rejection of China’s New Silk Road in Victoria](https://www.internationalaffairs.org.au/australianoutlook/tearing-up-the-belt-and-road-initiative-australias-rejection-of-chinas-new-silk-road-in-victoria/)
 
-消息来源:
+[陆克文，不仅跑到牛津大学研究习近平思想，紧跟潮流学习十九大报告](https://twitter.com/vanessa_zhanguk/status/989592642748141570)
 
-[美國SEC據報正調查幣安美國分支的交易關聯公司](https://finance.mingpao.com/fin/instantf/20220216/1644976757025/%E7%BE%8E%E5%9C%8Bsec%E6%93%9A%E5%A0%B1%E6%AD%A3%E8%AA%BF%E6%9F%A5%E5%B9%A3%E5%AE%89%E7%BE%8E%E5%9C%8B%E5%88%86%E6%94%AF%E7%9A%84%E4%BA%A4%E6%98%93%E9%97%9C%E8%81%AF%E5%85%AC%E5%8F%B8)
+[Unvaxxed billionaire Clive Palmer promises most expensive election campaign ever](https://www.brisbanetimes.com.au/national/queensland/unvaxxed-billionaire-clive-palmer-promises-most-expensive-election-campaign-ever-20220119-p59ph4.html)
 
-**[美国证券交易委员会正在调查与币安创始人有关的交易公司：报告](https://zh-cn.bitcoinethereumnews.com/technology/sec-is-investigating-trading-firms-linked-to-binance-founder-report/)**
+[Scott Morrison’s approval rating at lowest point since aftermath of black summer bushfires](https://www.theguardian.com/australia-news/2021/nov/09/scott-morrisons-approval-rating-at-lowest-point-since-aftermath-of-black-summer-bushfires)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
-
+[Changes to the definition of fully vaccinated for COVID-19](https://www.servicesaustralia.gov.au/changes-to-definition-fully-vaccinated-for-covid-19)
 
  
 

@@ -2,38 +2,51 @@
 ---
 
 
-## 中共《环球时报》为何高调支持澳洲大选的某一政党
-` 喜国公民` [轉載自GNews](https://gnews.org/zh-hans/2011856/)
+## 美国表示：中国对俄罗斯的支持“正在敲响警钟”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2011858/)
 
-By：喜国公民
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1527.png)图片来自网络
-中共《环球时报》发表文章支持现澳洲工党领袖安东尼·阿尔巴尼斯，希望他在今年的联邦大选中胜出，接替现任总理斯科特·莫里森。文章认为工党领袖可以改善澳洲与中共国的关系。
+**翻译：文扬**
+**编辑：Candy**
 
-不用质疑，在历史上，工党的确与中共有着紧密的合作关系。例如，目前由工党执政的维州曾[与中共签署了一带一路的项目](https://www.internationalaffairs.org.au/australianoutlook/tearing-up-the-belt-and-road-initiative-australias-rejection-of-chinas-new-silk-road-in-victoria/)。前工党领袖以及前总理陆克文曾接受中共党校的资助，[跑到牛津大学研究习近平思想](https://twitter.com/vanessa_zhanguk/status/989592642748141570)，还紧跟潮流学习中共十九大报告。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/五角大楼.png)
 
-但值得令人深思的是，中共干预别国大选，一向是暗中动手脚，耍阴招，为何这次如此嚣张，明目张胆地公开支持工党，其背后的葫芦里买的又是什么药呢？
+图片来源：rt网
+**莫斯科此前曾表示，在与西方的僵局中，它指望北京。**
 
-同时，澳洲的主流媒体最近几天连续发表文章，高调批评工党与中共的勾结，曝光工党与中共的历史。不免让人感觉，执政党是否在利用中共故意炒作来提升自身的支持率。
+五角大楼警告说，在俄罗斯和乌克兰边境对峙数周之际，华盛顿对中国在欧洲大陆安全问题上的举动越来越关注，因为中国站在莫斯科一边。
 
-执政党因为实施不得人心的疫苗强制接种政策，[其支持率明显下滑](https://www.theguardian.com/australia-news/2021/nov/09/scott-morrisons-approval-rating-at-lowest-point-since-aftermath-of-black-summer-bushfires)，最近又[改变了新冠疫苗完全接种的定义](https://www.servicesaustralia.gov.au/changes-to-definition-fully-vaccinated-for-covid-19)，积极推进新冠疫苗第三针的接种，不得人心，引发了澳洲民众在首都堪培拉的大规模抗议活动。
+周一，国防部发言人约翰·柯比（John Kirby）在简报会上，发表了他对北京和莫斯科的看法。他认为：在西方压力越来越大的情况下，双方的合作日益密切。
 
-不管哪个政党执政，都必须对中共病毒的来源进行追责，并停止侵犯人权的新冠疫苗强行接种政策。
+“我们当然一直在关注——至少是公开的——俄罗斯和中国之间迅速发展的关系，”本月早些时候，他在评论俄罗斯总统弗拉基米尔·普京和中国国家主席习近平、呼吁停止北约扩张的声明时说。
 
-相比之下，没有注射新冠疫苗的澳洲亿万富翁克莱夫·帕尔默准备参加今年的联邦选举。[他将开展有史以来最昂贵的选举活](https://www.brisbanetimes.com.au/national/queensland/unvaxxed-billionaire-clive-palmer-promises-most-expensive-election-campaign-ever-20220119-p59ph4.html)动。他的重返政坛非常令人瞩目。
+柯比说：“他们2月4日的联合声明无疑提供了进一步的证据，表明中国已经决定在欧洲发生的事情上与俄罗斯站在一起。我们会说，他们对俄罗斯的默许，如果你愿意的话，是非常令人震惊的。”
 
-消息来源：[China’s Global Times backs Anthony Albanese as Prime Minister as questions mount over Labor’s ties with Beijing](https://www.skynews.com.au/australia-news/politics/chinas-global-times-backs-anthony-albanese-as-prime-minister-as-questions-mount-over-labors-ties-with-beijing/news-story/2c0f4226a802df781026bcd967ca9f25)
+科比认为，北京在高风险问题上对莫斯科的支持 “使欧洲的安全局势更加不稳定”。
 
-[China will ‘try in every way’ to influence Australian politics](https://www.skynews.com.au/opinion/andrew-bolt/china-will-try-in-every-way-to-influence-australian-politics/video/ab56c848968db623619b19b666312eb9)
+几个月来，西方领导人反复警告说，俄罗斯可能很快就会下令入侵乌克兰，官员们发出了莫斯科可能在北京冬奥会期间发动攻击的警报。白宫国家安全顾问杰克·沙利文（Jake Sullivan）本月早些时候警告说，由于双方的经济关系，中国将 “最终承担俄罗斯入侵乌克兰的部分成本”。
 
-[Tearing Up the Belt and Road Initiative: Australia’s Rejection of China’s New Silk Road in Victoria](https://www.internationalaffairs.org.au/australianoutlook/tearing-up-the-belt-and-road-initiative-australias-rejection-of-chinas-new-silk-road-in-victoria/)
+克里姆林宫一再否认它有任何攻击计划。周二，莫斯科国防部宣布，其军队已经结束了在靠近乌克兰的白俄罗斯的训练演习，并将开始撤军进程。
 
-[陆克文，不仅跑到牛津大学研究习近平思想，紧跟潮流学习十九大报告](https://twitter.com/vanessa_zhanguk/status/989592642748141570)
+国防部首席发言人伊戈尔·科纳申科夫（Igor Konashenkov）少将表示，“随着部队完成军事演习，他们将一如既往地完成多式联运，返回永久基地。”
 
-[Unvaxxed billionaire Clive Palmer promises most expensive election campaign ever](https://www.brisbanetimes.com.au/national/queensland/unvaxxed-billionaire-clive-palmer-promises-most-expensive-election-campaign-ever-20220119-p59ph4.html)
+在指责俄罗斯武装部队可能发动袭击的情况下，莫斯科一直在寻求获得安全保障，以排除北约向其边境扩张的可能性。
 
-[Scott Morrison’s approval rating at lowest point since aftermath of black summer bushfires](https://www.theguardian.com/australia-news/2021/nov/09/scott-morrisons-approval-rating-at-lowest-point-since-aftermath-of-black-summer-bushfires)
+在习近平和普京12月的会谈后，俄罗斯领导人的外交政策顾问尤里·乌沙科夫（Yuri Ushakov）透露，中国国家主席支持莫斯科寻求保证。克里姆林宫助理透露：“他自然很清楚并理解主要问题：俄罗斯对其西部边界的担忧。”
 
-[Changes to the definition of fully vaccinated for COVID-19](https://www.servicesaustralia.gov.au/changes-to-definition-fully-vaccinated-for-covid-19)
+莫斯科和北京强调了两国关系在贸易、能源、经济和国防等一系列领域的重要性，普京在 2 月初表示，两国关系已达到“前所未有的”水平。
+
+尽管有迹象表明俄罗斯和中国之间的合作不断加强，但一些分析人士暗示，与北约等其他集团相比，这种伙伴关系的发展程度较低。
+
+原文链接： [Chinese support for Russia ‘alarming’ – US — RT Russia & Former Soviet Union](https://www.rt.com/russia/549446-washington-china-support-alarm/)
+
+***发布：Candy***
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

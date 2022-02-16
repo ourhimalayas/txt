@@ -2,31 +2,26 @@
 ---
 
 
-## 韩国决定为高风险人群启动第四针疫苗的接种计划
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2010321/)
+## 证据表明达沃斯国际刑事法庭有25% 的人被渗透
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2010400/)
 
-作者：首尔天池农场 — 追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-韩国媒体14日报道，韩国政府决定启动为60岁以上的高危人群接种第四针中共病毒疫苗。 当局发言人表示，鉴于单日新增确诊人数已经连续第5天突破5万例，其中，60岁及以上人群的比例由1月第四周的8%上升到2月第二周的11.7%。随着老年确诊病例数的增加，担心会进一步导致重症率提升。因此，决定自本月底开始，为60岁以上的高风险人群，接种第四针疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-40.jpg)
-另外，以色列去年12月开始为 60岁以上人群接种第四针疫苗，可惜，根据最近一段时间的数据来看，该国的新增病例数并没有出现任何减缓的迹象。根据以色列的一项最新研究发现，虽然第四针疫苗会略微提高一点抗体水平，但对预防感染奥密克戎毒株的效果差强人意。
+#### 编译：Cran
 
-参考链接：[韩国决定为高风险人群启动第四针疫苗的接种计划](https://news.kbs.co.kr/mobile/news/view.do?ncd=5394452)
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/02/16449590181.png)[Image souce](https://arealnews.com/dr-reiner-fuellmich-wiki/)
+据《先行新闻》2月15日报道，德国律师团队领队，赖纳 · 福埃尔米奇(Riner,Fuellmich) 指出，25%的国际刑事法庭的法官被达沃斯渗透。这就是为什么他所引领的国际律师团队选择自然（公共舆论）法庭而非国际刑事法院来进行大陪审团审判。
 
-![This image has an empty alt attribute; its file name is calendar.png](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
+该律师团队旨在将法律程序带到现有的法律系统以外来进行。因为据他称，现有的系统彻底的腐败了。这个现象在欧洲，特别在德国是真实的。那些司法系统还在正常运行的国家还不算太糟糕，比如美国一些州和印度。
 
-总编：天滅中共
-编辑：天滅中共
-校对/发稿：Hetangyuese
+“在欧洲，我们不能再相信法庭了。 第三方不仅已经渗透进了政体和主流媒体，社会和政治机构，还有大学和司法系统”。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+他指出，他所领导的团队已经掌握了证据，ICC和欧洲人权法庭的25%的法官已经被腐蚀。这些法官收了乔治，索罗斯 （Jorge Solos）和比尔，盖茨（Bill Gates) 的钱。
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+他解释说，将司法程序带到现有的司法系统以外来进行，是让公众看到真实的过程和信息。所以他们能够选择是否信任现有的司法系统。他们可以行动起来，推动现有的司法系统清廉运作。如果这个方法行不通，那么人民应该建立起自己的司法系统。这个方法已经在美国的部分州开始了。
+
+赖纳 · 福埃尔米奇：德国一个律师团队的首领，该团队是德国冠状病毒调查委员会的的成员。福埃尔米奇是一名德国律师，他是美德律师协会和德国律师协会的会员。
+
+[Source](https://beforeitsnews.com/alternative/2022/02/reiner-fuellmich-says-theres-evidence-25-of-the-international-criminal-court-is-davos-infiltrated-video-3767446.html)
 
  
 
