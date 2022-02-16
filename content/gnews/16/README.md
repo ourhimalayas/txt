@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：信仰，喜币等
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2016646/)
+## 七哥金句：独裁，理智，爱，家人
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2016936/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句1-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句2-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句3-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句4-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句5-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句6-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句7.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句1-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句2-7.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句3-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句4-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句5-6.jpg)
 整理：雅典娜农场
 发布：枫叶红了
 
