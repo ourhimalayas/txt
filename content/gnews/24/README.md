@@ -2,34 +2,55 @@
 ---
 
 
-## 印中贸易地位不对等引发国家安全担忧
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2016052/)
+## 俄罗斯大使强烈警告丹麦，不能允许美国士兵进入丹麦博恩霍尔姆岛
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2016061/)
 
-作者：银河系农场—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月14日，据印度媒体报道，在进出口贸易方面，中共国2021年对印度的总出口额高达975亿美元，而印度对中共国的总出口额仅为281亿美元，后者尚不足前者的30%。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-16-下午12.27.18.png)
-资料显示，自中共病毒疫情爆发以来，印度大规模地增加了对中共国医疗设备和相关医疗源材料的进口，这也使得印度当地的外汇储备加速外流。尤其在2021年，中共国的贸易顺差达到了创纪录的六千七百六十亿美元，而这一极为不平衡的数字对印度，甚至对全球都造成了巨大的威胁。
+整撰：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-265.jpg)
+图片来源：TV2.DK
 
-对此，报道指出，于中共而言，此种极具差异的双边贸易关系导致了印度不可避免的附庸地位，而这正是中共政府迫切需要的政治筹码。据悉，中共一直以来都在企图通过控制金融，进而侵犯印度的国家安全、经济和完整主权。
+俄罗斯驻丹麦大使Vladimir V. Barbin强烈警告丹麦允许美国军队踏上博恩霍尔姆岛。
 
-为此，该媒体强调，印度当下必须严格警惕境内的中资公司，特别是那些非银行金融公司在印度采取的大规模欺诈行为，从而避免中共进一步劫持新德里的金融和商业，更需杜绝政府因贸易而丢失印度领土的可能性。
+Vladimir V. Barbin对丹麦媒体Berlingske说，如果丹麦允许这样的举动，如果外国军队抵达博恩霍尔姆岛，俄罗斯将被迫评估对俄罗斯和丹麦之间关系的影响。
 
-参考链接：[India-China trade ties not on an even keel](https://www.tribuneindia.com/news/comment/india-china-trade-ties-not-on-an-even-keel-369623)
+这一警告是在丹麦政府开始与美国就新的国防协议合作进行谈判之后发出的，这可能意味着美国军队和物资可以被安置在丹麦。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+俄罗斯人认为，美国在博恩霍尔姆岛的存在将 “影响 “波罗的海地区的安全。
 
-总编：Irene木木
-编辑：宁文静
-校正/发稿：呼吸的雾霾（文小呼吸）
+博恩霍尔姆岛是波罗的海中的一个丹麦岛屿，位于丹麦其他地区的东部，瑞典南部，德国东北部和波兰北部。由于博恩霍尔姆岛位于波罗的海的战略位置，几个世纪以来一直被周边国家争夺。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+俄罗斯的威胁，北约的保卫
+
+美国士兵出现在丹麦将是一个强烈的信号，表明北约在离俄罗斯边界不远的地方重要的军事存在。
+
+在周四（2月16日）的新闻发布会上，外交部长Jeppe Kofod被问及美国士兵在丹麦领土上是否可视为丹麦对俄罗斯的挑衅。
+
+“我们必须记住，是俄罗斯在威胁着欧洲的和平。我们在北约所做的是在保卫自己。这并不是因为俄罗斯和乌克兰的局势而产生的，”他说。
+
+只有丹麦才能决定在丹麦领土上发生的事情
+
+丹麦外交部长杰普·科福德Jeppe Kofod 非常明确地表示，美国士兵是否会来到丹麦本土，完全由丹麦决定。否则，俄罗斯对丹麦将与美国开始防务合作这一事实非常不满。这可能意味着美国军队可以留在丹麦。
+
+俄罗斯驻丹麦大使Vladimir V. Barbin告诉Berlingske，这将是对二战以来丹俄协议的违反。
+
+但是Berlingske文章说，丹麦外交部长是对的。
+
+“这并不是俄罗斯第一次提出这种错误的和不正确的主张，但这并不意味着它是真实的，”杰普·科福德给媒体Ritzau的书面评论中说。
+
+这位丹麦外长非常明确地说：“丹麦从未与俄罗斯或前苏联就博恩霍尔姆岛的外国军队达成过协议。而且我必须警告，不要把俄罗斯的这些宣布当作好事。”
+
+他强调：“让我说清楚，只有丹麦才能决定在丹麦土地上发生什么！”
+
+在Berlingske对俄罗斯大使Vladimir V. Barbin的采访中，这位大使并没有提出证据证明他所谓的协议是存在的。
+
+来源：
+
+[TV2.dk](https://nyheder.tv2.dk/udland/2022-02-15-ruslands-ambassadoer-advarer-kraftigt-mod-at-tillade-amerikanske-soldater-paa)
+
+[Berlingske.dk](https://www.berlingske.dk/politik/store-partier-affejer-russiske-trusler-om-bornholm-der-er-intet-hjoerne-af)
+
+[Politiken.dk](https://politiken.dk/udland/art8621246/%C2%BBDanmark-har-aldrig-haft-en-aftale-med-Rusland-om-udenlandske-tropper-p%C3%A5-Bornholm%C2%AB)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

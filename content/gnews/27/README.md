@@ -2,40 +2,34 @@
 ---
 
 
-## 樱花FM┃北京冬奥 差评如潮
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2015900/)
+## 印中贸易地位不对等引发国家安全担忧
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2016052/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-7-1.png)
-2月7日福布斯日本消息：参加北京奥运会的多国的奥运关系人士对中共作为东道国的所为提出了质疑，指谴责其对被隔离的运动员的非人道待遇、不合理规则、对外国媒体的压制。
+作者：银河系农场—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月14日，据印度媒体报道，在进出口贸易方面，中共国2021年对印度的总出口额高达975亿美元，而印度对中共国的总出口额仅为281亿美元，后者尚不足前者的30%。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-16-下午12.27.18.png)
+资料显示，自中共病毒疫情爆发以来，印度大规模地增加了对中共国医疗设备和相关医疗源材料的进口，这也使得印度当地的外汇储备加速外流。尤其在2021年，中共国的贸易顺差达到了创纪录的六千七百六十亿美元，而这一极为不平衡的数字对印度，甚至对全球都造成了巨大的威胁。
 
-据路透社报道，2月6日，芬兰男子冰球队教练Jukka Jalonen指责中共不尊重冰球运动员的人权，说冰球运动员Marko Anttila在中共病毒（新冠病毒Covid-19）检测呈阳性后的隔离期间，没有适当的食物，被置于巨大的压力下。
+对此，报道指出，于中共而言，此种极具差异的双边贸易关系导致了印度不可避免的附庸地位，而这正是中共政府迫切需要的政治筹码。据悉，中共一直以来都在企图通过控制金融，进而侵犯印度的国家安全、经济和完整主权。
 
-芬兰队医说，尽管18天前，安提拉的检测结果呈阳性，已不再被认为具有传染性。但中共国仍然强迫她接受隔离。
+为此，该媒体强调，印度当下必须严格警惕境内的中资公司，特别是那些非银行金融公司在印度采取的大规模欺诈行为，从而避免中共进一步劫持新德里的金融和商业，更需杜绝政府因贸易而丢失印度领土的可能性。
 
-此外，5日，德国队负责人告诉记者，滑雪运动员Eric Frenzel被安置的条件是 “不可接受的”。他抱怨自己的房间很脏、食物质量差、没有WiFi可用。倒是这些问题在第二天得到了解决。
+参考链接：[India-China trade ties not on an even keel](https://www.tribuneindia.com/news/comment/india-china-trade-ties-not-on-an-even-keel-369623)
 
-同样被强制隔离的比利时骨感女孩Kim Meieremans，周三在Instagram上发布了一段哭诉视频，称她已经连续两次检测呈阴性，以为自己会被解除隔离，但她却被隔离到了另一个地方。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-她哭着说，我甚至不知道我是否能再回到奥运村，不知道我是否要在孤立无援的情况下度过接下来的14天，我是否能参加比赛？
+总编：Irene木木
+编辑：宁文静
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-同时，中共国政府对待外国媒体的态度也受到了质疑。 4日，当局强行带走了一名在体育场外直播报道的荷兰电视台记者。这名记者在推特上说，他和其他媒体同事曾多次被不明身份的人阻止报道。
-
-包括美国、英国和加拿大在内的许多国家已经宣布对奥运会进行外交抵制，拒绝派遣部长和官员去参加北京冬奥会，以抗议中共对维吾尔自治区、西藏和台湾的人权侵犯行为。
-
-维吾尔族奥运选手作为最后一名火炬手出现在4日的开幕式上，但专家批评说这是基于中国政府的某种意图。研究新疆问题的弗罗斯特堡州立大学准教授马海云告诉路透社，中共这是试图通过选择维吾尔族运动员作为火炬手，来回击西方对其种族灭绝和迫害的批评。
-
-笔者也想补充一句，中共特意选以为维吾尔族奥运选手作为最后一名火炬手，堪称”此地无银三百两”的惟妙惟肖的演绎！
-
-文字版原文：
-
-[北京冬奥 差评如潮](https://gnews.org/zh-hans/1968663/)
-
-编辑：东京樱花团/asket
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

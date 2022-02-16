@@ -2,33 +2,40 @@
 ---
 
 
-## 七哥说“美好的生活是必然属于我们的”
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2016315/)
+## 美国指责中共对俄乌危机保持沉默令人震惊
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2016342/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+作者：纽约香草山教育部 Naughty(文行)
 
-2022-02-13直播摘录10:58:12
 
-所以兄弟姐妹们，美好的生活是必然属于我们的，它不是可能，它是必然属于我们的——“无苗灭共族”、“无苗有币者”！你想想这日子要多好有多好，干啥呢？一切都是小事儿，一切！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-24.png)
+据台湾中央社报道，五角大楼发言人柯比14日表示，中共国以沉默的方式支持俄罗斯的作法令人深感震惊，这会让欧洲安全局势更加不稳定。
 
-包括记住，七哥个人破产以后找到的感觉都要来自于你们，我只在乎你们的感觉，不在乎任何人的感觉，我只在乎你们和家人的感受，我谁的也不在乎。全世界都说我是狗屎，我就是狗屎，你说我是驴屎我就是驴屎，但我就在乎你们的感受，就刚才文紫、飞象、Danny、瑞沃路森，只要你们是跟着七哥、相信七哥这就够了。我们快乐我们知道，干嘛在乎人家呢？
+柯比说，美国国防部长奥斯汀计划明天前往欧洲北约总部举行危机会谈，他将会晤盟国防长和北约领袖，讨论俄罗斯在乌克兰边境集结大军一事。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+柯比表示，华府并不认为俄罗斯总统普京已就是否入侵乌克兰做出最终决定，但他可能会在几乎或完全没有警告的情况下采取行动。
 
-**关注我们**
+与此同时，美国国务院发言人普莱斯也说，美方没有看到俄乌边境出现明显的降温迹象。
 
-Discord 账号
+新闻来源：[https://www.cna.com.tw/news/aopl/202202150021.aspx](https://www.cna.com.tw/news/aopl/202202150021.aspx)
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-189.jpeg)
 
-Gettr 账号
+编辑/校对/发稿：滚滚长江都是水
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+
 
  
 
