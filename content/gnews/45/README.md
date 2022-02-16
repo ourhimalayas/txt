@@ -2,26 +2,37 @@
 ---
 
 
-## 【秘翻在线】俄乌局势将密切影响全球能源市场
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2010003/)
+## 郭文贵表明对PAG案件的态度：永不和解，永不退缩
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2010317/)
 
-#### 翻译/撰稿：zzballack
+作者：银河系农场 — 骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+中共特务单伟建，利用一个根本不存在的官司对郭文贵先生进行了长达五年的缠诉，最近，中共终于成功令郭先生败诉。对此，郭先生认为，正常情况下，美国的司法界、法律界是非常严谨、公正的，曾经有过一名法官，因为非常轻微的徇私行为，被人举报后立即离职。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture1-22.jpg)
+因此，PAG对郭先生的缠诉，深刻暴露了共产党对美国司法系统的破坏，这份法庭的判决书是由控方律师起草的，法官稍加修改，整份判决书欠缺足够的法律依据，这个案子的真相会让美国各界人士感到瞠目结舌，这不应该是美国法治应有的样子。
 
-#### 校对：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/16449488661.png)图片来源：亚洲与太平洋政策学会
-据《新闻极限》（Newsmax）2月15日报道，分析师说，如果俄罗斯入侵乌克兰并引发西方国家的制裁和报复，亚洲预计将面临更高的石油、天然气和煤炭价格。他们也警告说，如果俄罗斯将其能源出口从欧洲转移到东方，亚洲可能会受益。但欧洲从非俄罗斯国家购买天然气可能会推升液化天然气（LNG）的价格，并将运往亚洲的货物吸引走。
+不过，郭先生表示自己仍然相信美国的司法体系，相信美国的司法正义，相信自己有申诉的权利和向司法部门寻求公义的权利。
 
-美国和欧洲的威胁性制裁也可能阻碍亚洲利用俄罗斯可能提供的任何额外能源供应的能力。对这种供应破坏的担忧使得油价在2月14日达到七年来的高点。
+到目前为止，郭先生拒绝了许多人提出的和解建议，他相信美国的法律会让真相最终大白于天下，一定会让美国政府官员与共产党之间的台底交易全部暴露，也一定会让背后的始作俑者现出真容。
 
-冲突也刺激了贸易行动，中共国在上周与俄罗斯签署了为期30年的天然气供应协议，俄罗斯是中共国的第三大天然气供应商。
+郭先生对着镜头向共产党喊话，这个案件不仅不会阻止他爆料，并且对于欲加之罪，他永远不会和解，永远不会退缩，而且一定会赢。
 
-咨询公司Wood Mackenzie的研究总监苏斯汉特·古普塔（Sushant Gupta）表示：“在2021年，俄罗斯约37%的原油、大概每日190万桶，出口至以中共国、韩国和日本为首的亚洲。根据美国制裁的规模和程度，中共国不太可能受到压力，而运往韩国和日本的每日30万桶原油可能会受到影响，这与伊朗原油受到制裁时的情况类似。”
+参考链接：[郭文贵表明对PAG案件的态度：永不和解，永不退缩](https://gettr.com/post/pu9dbgdec1)
 
-分析师说，如果俄罗斯停止向欧洲出口天然气，欧洲和亚洲之间对液化天然气的竞争升温，可能导致价格上涨，抑制购买。Wood Mackenzie的亚太区副主席加文·汤普森（Gavin Thompson）说：“2022年，液化天然气的需求量可能比预期值下降9%。这也许意味着亚洲的电力公司需要最大限度地烧煤，以缓解液化天然气的供应压力，这听起来很有挑战性。”
+![This image has an empty alt attribute; its file name is calendar.png](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
-在煤炭方面，俄罗斯向亚洲供应约了9000万吨煤炭，占亚洲海运进口量的10%。俄罗斯是中共国、日本、韩国和越南的主要动力煤供应商。Wood Mackenzie的金属和矿业研究副总裁罗宾·格里芬（Robin Griffin）说：“俄罗斯向欧洲出口的高能动力煤（high-energy thermal coal）和喷吹煤粉（pulverized coal for injection）可能会转向亚洲，而制裁又是决定购买量和谁购买的关键。如果铁路运输可以承受的话，（这些媒）分流到亚洲是一种可能性。所以我们可能会看到更多的煤炭供应流向中共国、日本、韩国和台湾市场。但欧洲的高价可能会吸引其他亚洲国家和美国的煤炭供应商，最终导致价格上涨。”
+总编：天滅中共
+编辑：飞虹
+校对/发稿：Hetangyuese
 
-新闻来源：[Asia’s Energy Markets Watching for Russia-Ukraine Fallout](https://www.newsmax.com/streettalk/asian-energy-markets-russia-ukraine-potential-war/2022/02/15/id/1056854/)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

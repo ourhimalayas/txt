@@ -2,26 +2,36 @@
 ---
 
 
-## 弃用中共 欧盟将建设独立通信网络
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2011280/)
+## 美国财政部：加密货币矿工免于遵守国税局的报告规则
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2011405/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-29.jpg)[图片来源](https://www.esa.int/About_Us/Ministerial_Council_2012/Satellite_communications)
-2月15日，欧盟委员会（EU）宣布了建设欧洲专用人造卫星通信网络的提案。
+#### 翻译/编辑：小红帽  
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Cryptocurrencies_800x533_L_1556528074-1.jpg)图片来源：www.investing.com
+根据Cointelegraph 2月14日报道，美国财政部确认，加密货币矿工和钱包运营商可免于遵守美国国税局的报告规则。当局将编制适当的法规。
 
-项目总成本预计为 60 亿欧元（约合 7880 亿日元），其中 24 亿欧元将由欧盟预算（截止到2027年的预算）提供。同时，还将出台安全措施，对已完成运行的人造卫星、火箭碎片等进行定位跟踪。
+美国的加密货币行业即将取得一项重大的法律利好，因为美国财政部计划让加密货币矿工和其他“辅助方”免于遵守纳税报告规则。
 
-随着以美国、中共国和俄罗斯为中心进行的太空开发竞争日益加剧，此次提案的目的是为欧洲确保一个安全、可靠和独立的高速卫星通信网络，以供官民使用。负责内部市场的欧盟专员在新闻发布会上强调，此举将减少未来对欧洲以外系统的依赖。
+在周五致参议员的信中，美国财政部表示，它计划让加密货币矿工、造币商和其他市场参与者免于遵守要求加密货币经纪商与国内税收局共享客户交易数据的规则。
 
-此提案一旦实施，表明欧洲通信网络建设将会永远把中共国踢出局。
+财政部负责立法事务的助理部长乔纳森-戴维森（Jonathan Davidson）在信中表示，该部门的立场是，“无法获得对国税局有用的信息的辅助方，不打算被经纪人的报告要求所涵盖”。
 
-信息来源:
+戴维森还强调，加密货币验证者“不可能知道一项交易是否是销售的一部分”，而参与提供硬件或软件加密货币钱包相关服务的实体 “没有进行经纪活动”。
 
-[EU、衛星通信網を独自構築　宇宙ごみ対策も　欧州委提案](https://news.yahoo.co.jp/articles/21454bb98232c1f307ad9c1e001600d2bb20bb05)
+财政部还将考虑“数字资产市场中的其他各方，如集中式交易所和那些通常被称为分散式交易所和点对点交易所，应在多大程度上被视为经纪商。”
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+彭博社报道，财政部正计划发布拟议的法规，以包括其对经纪人定义的立场。
+
+新闻链接：[Crypto miners exempt from IRS reporting rules, US Treasury affirms](https://cointelegraph.com/news/crypto-miners-exempt-from-irs-reporting-rules-us-treasury-affirms)
+
+发布：wenly
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,26 +2,36 @@
 ---
 
 
-## 无论输赢，俄罗斯将为侵略乌克兰付出沉重代价
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2011380/)
+## 樱花FM|中日财经爆：中共贸易协议采购存巨大缺口 拜登将维持关税措施
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2011512/)
 
-##### 翻译：Annabelle
-校对：Lish
-剪辑|字幕：向上James
-编辑：Mttfly
+音频：东京樱花团/战友520
 
-美国国家安全部顾问Jake Sullivan警告说俄罗斯随时都可能侵略乌克兰。前美国副国家安全顾问KT MacFarland认为，如果乌克兰愿意战斗，即使最后他们失败也会使俄罗斯损失惨重。此外她还表示，俄罗斯有很多超限手段对付乌克兰。最令人担忧的是习近平和普京互相支持彼此对台湾和乌克兰的战争。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/中共贸易协议采购存巨大缺口-拜登将维持关税措施.jpg)
 
-视频链接：[Russia would pay a high price for invading Ukraine: KT McFarland](https://video.foxbusiness.com/v/6296099648001#sp=show-clips)
+2月8日发布的一份报告显示，中共国2020年签署的增加从美国进口商品和服务的承诺远远没有兑现。该报告基于特朗普政府期间签署的协议，实际进口与目标额相差超过2130亿美元。
 
-*发布：Mttfly*
+“第一阶段”贸易协议中，中共政府承诺从美国的进口比2017年中美贸易战开始前多2000亿美元。协定签署后，当时的总统特朗普和习近平都暂停了提高关税。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+该协议要求中共国在2021年底前履行其进口承诺。但据彼得森国际经济研究所的一份新报告显示，过去两年，中共国最终只进口了协议中所承诺份额的57%，而协议中承诺的2000亿美元的额外进口从未履行。该报告是基于对从商务部获得的最新贸易数据的分析。
+
+2020年协议签署后仅几周，新冠病毒大流行就导致了全球贸易停滞。这似乎让中共国更难履行其进口承诺。但从一开始，专家们就怀疑中共国能否实现其雄心勃勃的进口目标。因为该协议在制造业、农业、服务业和能源领域均设定了具体目标。
+
+拜登总统上个月表明，中共国没有达到设定的贸易目标，是维持现阶段高关税的原因。尽管有来自商业界的压力，但他已明确表示，不会取消这些关税措施。
+
+明知完不成贸易额还硬着头皮签署，随之就向世界释放病毒，然后全世界嫁祸，中共真是末日狂奔啊!
+
+文字版原文：
+
+
+| [中日财经爆│中共贸易协议采购存巨大缺口 拜登将维持关税措施](https://gnews.org/zh-hans/1979741/) |
+| --- |
+
+
+*编辑：东京樱花团/asket   
+发布：东京樱花团/老黑*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-1276x720-1.jpg)
 
  
 

@@ -2,29 +2,27 @@
 ---
 
 
-## 樱花FM| 欧洲国家接连放松国际旅客入境管制 法国将有条件跟随
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2011255/)
+## 无论输赢，俄罗斯将为侵略乌克兰付出沉重代价
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2011380/)
 
-音频：东京樱花团/战友520
+##### 翻译：Annabelle
+校对：Lish
+剪辑|字幕：向上James
+编辑：Mttfly
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/欧洲国家接连放松国际旅客入境管制-法国将有条件跟随.png)
+美国国家安全部顾问Jake Sullivan警告说俄罗斯随时都可能侵略乌克兰。前美国副国家安全顾问KT MacFarland认为，如果乌克兰愿意战斗，即使最后他们失败也会使俄罗斯损失惨重。此外她还表示，俄罗斯有很多超限手段对付乌克兰。最令人担忧的是习近平和普京互相支持彼此对台湾和乌克兰的战争。
 
-去年12月初因中共病毒变异株奥密克戎（Omicron）的出现，法国曾规定：对于所有来自欧盟以外国家的旅客，必须出示中共病毒检测阴性证明才准前往法国。
+视频链接：[Russia would pay a high price for invading Ukraine: KT McFarland](https://video.foxbusiness.com/v/6296099648001#sp=show-clips)
 
-法国负责欧洲事务的国务卿克莱门特·博纳（Clément Beaune）2月8日在法国电视二台上释出信息：法国很快将进一步放宽中共病毒防疫限制措施的讯息。但仔细了解发现，措施仍要求旅客打满疫苗，才可免去阴性证明。博纳向媒体指出，“很快打满疫苗的旅客将不再需要新冠检测呈现阴性证明，就可以入境法国。”
+*发布：Mttfly*
 
-法国目前规定：对于来自欧盟成员国或附近的某些国家（瑞士、冰岛、安道尔、列支敦士登、摩纳哥、挪威、圣马林和梵蒂冈）的已完整接种疫苗的旅客没有硬性规定做中共病毒阴性测试。除此之外，凡来自上述以外的其他国家或地区（几乎是欧洲以外所有国家）的乘客必须出示其 48 小时内所做阴性检测结果才能前往法国，而且无论他们是法国籍或是外国籍。但是据说这条规定很快就会消失，具体时间未知。松绑政策的原因可能是因为目前奥密克戎变种病毒感染浪潮正在“退潮”中。消息来源指出，未来几天内欧盟应该会提出这项建议。
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-文字版原文：
-
-
-| [欧洲国家接连放松国际旅客入境管制法国将有条件跟随– GNEWS](https://gnews.org/zh-hans/1980059/) |
-| --- |
-
-
-*编辑：东京樱花团/asket   
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-1276x720-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,38 +2,31 @@
 ---
 
 
-## 有声|欧盟专员表示不再需要疫苗强制
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2011339/)
+## 有声|日本滑雪女神高梨沙罗被取消成绩
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2011460/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-根据《德国之声》2月13日消息，欧盟经济专员真蒂洛尼(Paolo Gentiloni)表示，讨论疫苗强制的时间已经过去。同时，一位重要的德国立法者表示，强制疫苗措施不会在议会中得到大多数人的支持。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8-19.jpg)
-真蒂洛尼认为，疫情的严重程度在下降，整个欧盟的死亡和住院人数总体上有所下降，各国政府没有理由再推出普及冠状病毒疫苗强制。他说 “我们正走在放宽限制的同一条道路上，每个国家都是如此”。
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+2月7日，日本滑雪女神高梨沙罗在跳台滑雪混合项目中，第一跳就跳出了123米的好成绩。但让人意想不到的是，因大腿的紧身衣宽松了2公分，高梨沙罗被判因着装违规而取消资格，成绩被直接作废。
 
-德国议会中最大的反对派团体–保守的基民盟/基社盟的议会领袖说，联邦政府疫苗强制不会得到多数票。
+高梨沙罗向奥委会滑雪协会进行了申诉，但没有被接受。据悉，不只高梨沙罗，德国、奥地利、挪威等国的其他5名选手，也因为所谓服装违规被取消了成绩。
 
-世界各地抗议疫苗强制活动不断，很多国家都在渐渐放开疫情限制和取消疫苗强制。
+有分析人士称，中共为了赢得比赛已经到了无所不用其极的地步，他们不在奥运会前检查运动员的服装是否合格，偏要等到比赛开始才以衣服长了2厘米为由，取消他国成绩优异者的比赛成绩。但是，这些卑劣手段只能让世界对他的本质认识得越来越深刻。
 
-文字版原文：[欧盟专员表示不再需要疫苗强制](https://gnews.org/zh-hans/2010860/)
+文字版原文：[日本滑雪女神高梨沙罗被取消成绩](https://gnews.org/zh-hans/2002757/)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+音频处理：Fei797
+发稿：Fei797
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

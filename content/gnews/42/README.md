@@ -2,23 +2,27 @@
 ---
 
 
-## 日本首次使用HPAY购买高档手表
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2010318/)
+## 加拿大宣布动用特别紧急权力结束全国示威
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2010320/)
 
-作者：香草山福音部 — 林礼
+作者：银河系农场 — 骄子
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-据日本樱花团战友2月14日盖特消息，情人节当天，樱花农场成功帮助战友使用HPAY在日本日新堂购买了两块劳力士手表，单价分别为 12650 HDO和 22245 HDO。这是日本樱花农场首次使用HPAY成功购物。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture1-23.jpg)
-我们在为这位战友送去最真挚的情人节祝福的同时，也祝贺新中国联邦日本樱花农场推广HPAY走出了非常关键的第一步！
+加拿大总理特鲁多14日宣布，决定引用《紧急状态法》，动用特别紧急权力，平息蔓延至全国多个城市的示威运动。这是《紧急状态法》自1988年通过后首次被引用。根据法例，联邦政府的特别紧急权力可以凌驾各省政府，采取特殊的临时措施，让警方在执法现场，获得更多的行动选项。另外，金融机构也有可能会获得指示，授权监管和禁止个人或公司使用财产来资助或支持反抗疫苗暴政的示威游行。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-39.jpg)
+特鲁多表示，示威者的抗争行为，损害国家经济、危害公众安全，挑战警方的执法能力，政府不可以再容许这些违法和危险的活动持续发生。
 
-据悉，自HPAY成功上线以来，各农场战友就开始积极推广HPAY应用。目前推广比较成功的是台湾宝岛农场，已经使用HPAY成功交易了茶叶、摩托车等物品。 日本樱花团是目前全球达成交易的第二家农场。
+不过，首都渥太华仍然有货车司机及其他示威者坚持抗争，有示威者表示，他们只是要求政府解除所有的防疫限制措施，确保民众拥有基本的自由和人权，这些诉求并不涉及政治，也没有危及社会治安。
 
-参考链接：[日本首次使用HPAY购买高档手表](https://gettr.com/post/pufvkqf056)
+值得关注的是，经过示威者连续多日的抗争，安大略省省长福特日前宣布，安大略省将逐步放宽防疫限制，本周四开始将逐步取消室内和户外的聚集人数限制，下月一日起会解除所有室内的公众限制，同时，民众出行不再需要出示疫苗接种证明。
+
+参考链接：
+1. [加拿大宣布动用特别紧急权力结束全国示威](https://www.dailywire.com/news/breaking-trudeau-announces-unprecedented-action-freezing-bank-accounts-of-freedom-convoy-protesters%20、)
+2. [加拿大宣布动用特别紧急权力结束全国示威](https://www.google.com.hk/url?sa=t&amp;rct=j&amp;q=&amp;esrc=s&amp;source=newssearch&amp;cd=&amp;ved=2ahUKEwjgzf6yn4H2AhXbKEQIHQbJBhEQxfQBKAB6BAgSEAI&amp;url=https%3A%2F%2Fwww.theguardian.com%2Fworld%2F2022%2Ffeb%2F14%2Fcanada-protests-justin-trudeau-use-rare-emergency-powers&amp;usg=AOvVaw1S1MyuVlirmxe80N7BuZRW)
 
 ![This image has an empty alt attribute; its file name is calendar.png](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
 总编：天滅中共
-编辑：飞虹
+编辑：天滅中共
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**

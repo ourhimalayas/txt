@@ -2,29 +2,33 @@
 ---
 
 
-## 有声|NBC承认北京冬奥会收视率惨淡
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2011521/)
+## 纽约市解雇1400多名拒绝接种疫苗的员工
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2011778/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-2月12日，美国媒体报道，NBC体育主席皮特·贝瓦夸在两天前接受采访时表示，北京冬奥会转播的收视率非常糟糕，而且电视台对此毫无办法。贝瓦夸将观众缺乏收看冬奥会的激情，归咎于中共病毒疫情的限制，而丝毫不敢提及公众对NBC的普遍厌恶，以及NBC为了利益美化中共，无视中共在人权问题上无数暴行的行为。
+2022-02-15
 
-有网友评论称，北京冬奥会在国内的电视收视率已经达到灾难性的低点，NBC 转播的冬奥会也将成为历史上收视率最低的冬奥会。而公众不愿意看到中共举办冬奥会，是因为中共制造并故意传播了病毒，国际社会应该追查中共病毒的责任。这才是北京冬奥会收视率史上最低的真实原因！
+翻译：文舞两道
+![](https://assets.gnews.org/wp-content/uploads/2022/02/@63ELQITUWMDI44P4D3U.png)图片来源：https://www3.nhk.or.jp/
+美国纽约市14日宣布，解雇了1400多名没有接种疫苗的员工
 
-文字版原文：[NBC承认北京冬奥会收视率惨淡](https://gnews.org/zh-hans/2002758/)
+据NHK新闻2月16日报道，美国纽约市14日宣布，已经解雇了1400多名没有接种疫苗的员工。
 
-音频处理：Fei797
-发稿：Fei797
+在美国，要求员工必须接种疫苗的大城市和公司越来越多，不过反对意见也根深蒂固，两种意见泾渭分明。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+纽约市要求市政府工作人员包括医护人员和教师在内，至少需接种一次新冠病毒疫苗。对截止去年10月底未接种疫苗者实行无薪休假，其中约2400人在本月11日休假期限结束。14日纽约市宣布解雇了1400多名没有接种疫苗的员工。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+纽约市的数据显示，在大约 370,000 名员工中，至少接种过一次疫苗的比例从去年 10 月的 85% 增加到目前的约 95%。
+
+在美国，虽然在伊利诺伊州芝加哥和马萨诸塞州波士顿等大城市要求员工接种疫苗的运动越来越多，但反对意见也根深蒂固，拜登政府的大公司员工强制接种疫苗的政策被联邦最高裁判所叫停并取消后，因地区和政治立场而产生的分歧越来越大。
+
+参考链接：[アメリカ ニューヨーク市 接種拒否の職員1400人余を解雇](https://www3.nhk.or.jp/news/html/20220216/k10013486171000.html)
+
+编辑：LILY
+发布：肥鯮
+
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

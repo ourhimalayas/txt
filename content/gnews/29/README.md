@@ -2,77 +2,39 @@
 ---
 
 
-## 印度以威胁国家安全为由禁止 54 款中国应用程序
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2011243/)
+## 失败的冬奥促习侵台决心 同时中共释放乌白军演烟雾弹
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2011305/)
 
-撰稿：小雨
-![](https://assets.gnews.org/wp-content/uploads/2022/02/dn8hcv7tdqldfa0w_1644815997.jpg)
-根据2月14日印度媒体Republic World报道，印度政府已发布新命令，禁止 54 款对国家安全构成威胁的中共国应用程序。值得注意的是，自 2020 年以来，政府已禁止 270 款应用程序。一些报道表明，这些应用程序来自腾讯、阿里巴巴、游戏公司网易等中国主要科技公司。消息人士称，最新禁令将由电子和信息技术部发布，理由是这些应用程序正在将印度人的敏感数据传输到中共国等国外的服务器上。该禁令将根据《信息技术法》第 69A 条实施。
-
-## 54款应用程序的清单
-
-1. Beauty Camera: Sweet Selfie HD
-2. Beauty Camera – Selfie Camera
-3. Equalizer – Bass Booster & Volume EQ & Virtualizer
-4. Music Player – Music, MP3 Player
-5. Equalizer & Bass Booster – Music Volume EQ
-6. Music Plus – MP3 Player
-7. Equalizer Pro – Volume Booster & Bass Booster
-8. Video Player – Media All Format
-9. Music Player – Equalizer & MP3
-10. Volume Booster – Loud Speaker & Sound Booster
-11. Music Player – MP3 Player
-12. CamCard for SalesForce Ent
-13. Isoland 2: Ashes of Time Lite
-14. Rise of Kingdoms: Lost Crusade
-15. APUS Security HD (Pad Version)
-16. Parallel Space Lite 32 Support
-17. Viva Video Editor – Snack Video Maker with Music
-18. Nice video baidu
-19. Tencent Xriver
-20. Onmyoji Chess
-21. Onmyoji Arena
-22. AppLock
-23. Dual Space Lite – Multiple Accounts & Clone App
-24. Dual Space Pro – Multiple Accounts & App Cloner
-25. DualSpace Lite – 32Bit Support
-26. DualSpace – 32Bit Support
-27. DualSpace – 64Bit Support
-28. DualSpace Pro – 32Bit Support
-29. Conquer Online – MMORPG Game
-30. Conquer Online II
-31. Live Weather & Radar – Alerts
-32. Notes – Colour Notepad, Notebook
-33. MP3 Cutter – Ringtone Maker & Audio Cutter
-34. Voice Recorder & Voice Changer
-35. Barcode Scanner – QR Code Scan
-36. Lica Cam – Selfie camera app
-37. EVE Echoes
-38. Astracraft
-39. UU Game Booster-network solution for high ping
-40. Extraordinary Ones
-41. Badlanders
-42. Stick Fight: The Game Mobile
-43. Twilight Pioneers
-44. CuteU: Match with the World
-45. SmallWorld-Enjoy group chat and video chat
-46. CuteU Pro
-47. FancyU – Video Chat & Meetup
-48. RealU: Go Live, Make Friends
-49. MoonChat: Enjoy Video Chats
-50. RealU Lite – Video to live!
-51. Wink: Connect Now
-52. FunChat Meet People Around You
-53. FancyU pro – Instant Meetup through video chat!
-54. Garena Free Fire – Illuminate
+作者：东京樱花团｜捆绑CCP一千年
+![](https://assets.gnews.org/wp-content/uploads/2022/02/pasted-image-0-7.png)[*图片来源*](https://www.aljazeera.com/news/2022/2/9/russian-war-games-in-belarus-designed-to-send-ukraine-a-message)
+- **习近平正在酝酿对台湾战争的整个作战计划；**
+- **世界大战一触即发，俄军发动乌克兰战争将是一场历史转折点；**
+- **正乌克兰国防部：迎接敌人的方式不是鲜花，将是“毒刺”。**
 
 
-据悉，其中清单中的许多应用程序属于腾讯、阿里巴巴和游戏公司网易等中共国大型科技公司，是自 2020 年以来在印度被禁止的应用程序的“重新命名或重新命名的变身”。
+据中共国新华社15日消息，[乌克兰国防部](https://www.mil.gov.ua/)长列兹尼科夫14日与白俄罗斯国防部长赫列宁通电话，双方同意互派武官观摩对方演习。据说，此次通话旨在恢复对话、降低风险水平、确保地区安全，以排除突发情况，并相互通报紧急情况。
 
-2020年6月，印度政府第一轮禁止了包括TikTok、微信和Helo在内的59款中国移动应用程序，以应对这些应用程序对该国“主权和安全”构成的威胁。在中印边境冲突后，由于印度和中国之间的紧张局势升级，其他一些著名的应用程序包括 ShareIT、UC 浏览器和购物应用程序 Clubfactory。
+问题是，突发情况已经在酝酿中，始作俑者中共国习近平正在为酝酿“突发情况”做准备。据郭文贵先生美国当地时间14日透露，冬奥会开幕式后8天没见习近平露面，习和他的团队所有人在处心积虑地酝酿一场对台湾战争的整个作战计划。这就是爆料革命一直在向世界发出战争预警，因为“只有爆料革命告诉全世界，普京和习近平在2020年和2021年都已经密谋好，你（中共）取台湾，我（俄罗斯）取乌克兰，而这一天就要来了。”（[见 7:21分时段](https://gettr.com/post/puh5sv8f69)）
 
-新闻链接：[India To Ban 54 Chinese Apps Over Threat To National Security; Here’s A List Of The Apps](https://www.republicworld.com/technology-news/apps/india-bans-54-more-chinese-apps-over-national-security-heres-a-list-of-banned-apps-articleshow.html)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
+- ***延展阅读：***[***欧盟-挪威敦促其公民避免前往乌克兰、白俄罗斯和俄罗斯***](https://www.schengenvisainfo.com/news/norway-urges-its-citizens-to-avoid-travel-to-ukraine-belarus-russia/)
+
+
+狼真的来了！中共国新华社的“乌白军演”讯息旨在释放的战前烟雾弹。乌克兰和白俄罗斯在2013年前曾有军事互动，之后两国因为俄罗斯的缘故处于敌对状态，新华社此举旨在进一步安抚国内强大的俄中同盟关系的又一次洗脑而已。
+
+俄乌剑拔弩张，问题严峻，在强敌面前，乌克兰国防部长誓言军方绝对准备好反击，而不是去白俄罗斯观摩所谓军演。不过，发生在白俄罗斯的军事演习是真的，据称，俄军已于 1 月中旬开始抵达白俄罗斯，预计约有 30,000 名作战部队将参加被称为“联合决心”的演习。因为，[俄罗斯在白俄罗斯的军事演习旨在向乌克兰“传达信息](https://www.aljazeera.com/news/2022/2/9/russian-war-games-in-belarus-designed-to-send-ukraine-a-message)”，而不是邀请乌克兰观摩“俄白联盟”如何侵吞乌克兰。
+
+- ***延展阅读：***[***不只是乌克兰 – 俄罗斯与白俄罗斯的联合被忽视了***](https://www.forbes.com/sites/craighooper/2022/02/14/its-not-just-ukraine-russias-anschluss-in-belarus-has-gone-unnoticed/)
+
+
+乌克兰在被俄军包围下仍未选择屈服，而是背靠强大的北约和美军的坚定支持准备与俄军决一死战。根据美国[国会山](https://thehill.com/policy/defense/594001-ukrainian-defense-minister-vows-military-is-absolutely-ready-to-fight-back?rl=1)消息，面对俄军随时入侵的可能，乌克兰军方誓言绝地反击，称“乌克兰武装部队准备用“毒刺”而不是“鲜花”来迎接俄罗斯军队。”
+
+乌克兰态度明确，乌克兰国防部长表示，“自2014年俄罗斯吞并乌克兰的克里米亚半岛以来。当‘兄弟’明目张胆地在背后捅刀时，军队和志愿者们设法站稳了脚跟。那个时候，很多人还没有做好抗拒昨天同桌的心理准备。”雷兹尼科夫说，“克里姆林宫很清楚这一点，这是一个重要的威慑，今天，我们拥有过去 15 年来乌克兰最强大的军队和欧洲最强大的军队。”
+
+2022年2月15日
+
+*校对：东京樱花团/東洋武士*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
