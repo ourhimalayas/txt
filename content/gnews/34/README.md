@@ -2,80 +2,73 @@
 ---
 
 
-## 币圈新闻动态：喜币（HCN）价格目前在43.400 HDO
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2012280/)
+## 众议员莫·布鲁克斯推《中共国COVID-19赔偿法案》
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2012456/)
 
-*喜马拉雅华盛顿DC 编辑：aQ*
-
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/07/ScreenShot-2021-07-31-at-16.20.22@2x.png)
-
-
-
-## 每日一问
+> 众议员莫·布鲁克斯：[#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw) 撒谎，人民死亡。我希望共产主义中国向受到伤害的美国人赔偿，因为他们制造了 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hash&amp;ref_src=twsrc%5Etfw) 之后还撒谎掩盖从而伤害了美国人。
+> 【附中字视频】 [https://t.co/N2vG2vMj8e](https://t.co/N2vG2vMj8e) [pic.twitter.com/2tcrnnTUAS](https://t.co/2tcrnnTUAS)
+> — 美国政要直译推 (@zhiyitw33) [February 16, 2022](https://twitter.com/zhiyitw33/status/1493784086158086148?ref_src=twsrc%5Etfw)
 
 
 
+众议员马乔丽·泰勒·格林：
+如果共和党人无法阻止大科技审查，那么共和党人还能做什么？
 
+大科技公司在审查他们不喜欢的政治观点上做得太过了，它在压制真相。
 
-美国财政部确认将加密货币矿工等排除在征税范围之外，意味着什么?
+如果我们不能为保护真理而战，那还有什么可做的？
 
-
-
-
-
-## 喜马拉雅交易所要闻
-
-
+共和党人到底是为了什么（而存在）？
 
 
 
-- 喜交所网站行情显示，喜币（HCN）价格目前在43.400 HDO，24H最高价格为44.502 HDO，24H最低价格为40.200 HDO，24H成交量约为114269.157 HCN。
+> If Republicans can’t stop Big Tech Censorship, then what can Republicans even do?
+> 
+> Big Tech has gone way past censoring political opinions they don’t like, it’s silencing truth.
+> 
+> If we can’t fight to protect truth then what else is left?
+> 
+> And what are Republicans even for?
+> — Rep. Marjorie Taylor Greene (@RepMTG) [February 16, 2022](https://twitter.com/RepMTG/status/1493770857855995904?ref_src=twsrc%5Etfw)
 
 
 
+前国务卿迈克.蓬佩奥：
+社会主义行不通。 我在巡视 铁幕（指昔日西欧与中东欧共产党执政国家之间想象的屏障）时亲眼目睹了它——我知道它不会带来任何好处。
 
 
 
-## 新闻动态
+> Socialism doesn’t work. I saw it firsthand when I patrolled the Iron Curtain — and I know nothing good comes of it.
+> — Mike Pompeo (@mikepompeo) [February 16, 2022](https://twitter.com/mikepompeo/status/1493765787621888007?ref_src=twsrc%5Etfw)
 
 
 
-
-
-1. 2月16日消息，基于Aurora的去中心化借贷市场Aurigami宣布完成融资，由Dragonfly Capital和Polychain Capital共同领投。据了解，Aurigami可使得Aurora上的资产可以更有战略性和更有效地利用。闲置资产可以变成有息的auToken，可以通过抵押借贷来实现杠杆，借来的资金可以部署到其他地方以获得额外收益。该项目正在计划推出主网。
-2. 2月16日消息，根据摩根士丹利发布的简报称，中国“元宇宙”市场的潜在总规模将高达52万亿元人民币（约8万亿美元）。其中，腾讯、字节跳动、万兴科技、中青宝、网易等国内企业亦大力加快布局元宇宙的商业步伐，大批互联网巨头和其关联企业争相申请注册元宇宙相关商标。在一级市场中，高瓴资本、红杉资本、真格基金、五源资本、险峰长青、晨兴资本、星瀚资本等一线投资机构，均已开启元宇宙赛道布局。Gartner研究副总裁Marty Resnick表示：“通过从数字业务转向元宇宙业务，企业将能够以前所未有的方式扩大和加强他们的业务模式。到2026年，全球30%的企业机构将拥有用于元宇宙的产品和服务。”
-3. Coindesk报道，去中心化物联网平台DIMO背后开发公司Digital Infrastructure宣布完成700万美元融资。本轮融资将帮助Digital Infrastructure及其合作伙伴公司将核心软件开源，并为开发人员构建网络应用程序推出软件开发工具包(SDK)。DIMO是一个去中心化的软件和硬件物联网(IoT)平台，它允许用户创建经过验证的车辆数据流并与应用程序共享，这可以让用户获得更优质的服务体验。
-4. 2月15日，Solana链上NFT数据分析网站Solanalysis宣布完成450万美元种子轮融资并更名为Hyperspace，本轮融资由Dragonfly和Pantera Capital联合领投。据悉，本次融资在几个月前进行，但直到最近才对外公开。Hyperspace计划构建NFT交易聚合器，帮助用户在主流Solana链上NFT市场购买NFT，所有交易价格信息都能在一个地方浏览访问。
-5. Techcrunch报道，Web3移动钱包初创公司Rainbow完成1800万美元A轮融资，由Reddit联合创始人Alexis Ohanian的风险投资公司Seven SevenSix领投。去年10月，该项目曾完成150万美元种子轮融资。据悉，Rainbow是一家构建移动钱包应用程序的加密初创公司，它允许用户与以太坊区块链上的去中心化应用程序进行交互，并试图从流程中提取尽可能多的技术知识，让购买或出售价值数千美元的NFT之类的事情像Uber打车之类的任务一样简单，近期已推出适用于Android的Rainbow应用程序公开测试版。
-6. 2月15日消息，区块链互操作性网络Axelar宣布完成3500万美元融资，估值达到10亿美元。该项目自1月下旬以来正在分阶段推出主网。据悉，Axelar正在构建一个去中心化的网络和工具，将跨多个区块链生态系统的用户、资产和dApp连接起来。该网络使开发人员能够在满足其需求的最佳平台上进行构建，同时利用Axelar堆栈来解锁跨链可组合性和流动性。Axelar Network由协议套件、工具和API组成，旨在打破跨链通信的障碍。
-7. 2月15日消息，NFTID通用身份协议Skill Wallet宣布完成165万美元融资，本轮融资由Third Kind Venture Capital(3kvc)领投。Skill Wallet是一个基于技能和贡献的不可转让的NFTID通用身份协议，用户可以通过Skill Wallet跨平台、跨社区证明他们的技能和声誉，该协议旨在释放Web3社区真正的潜力。
-8. 2月16日消息，去中心化交易终端Dex Guru宣布完成500万美元融资。Dex Guru计划成为任何链上无需许可的DeFi市场的彭博终端，提供链上现货市场和去中心化AMM交易所的详细信息，未来还计划提供NFT、期权、合约、债券市场等类型产品的信息，提供整个加密市场及其主要利益相关者的简洁实时概览，并允许web3交易者轻松监控任何和所有资产的链上流动。
-9. 2月16日消息，NFT交易平台X2Y2宣布12%的代币（1.2亿枚）将用于向OpenSea历史交易用户空投，在北京时间2022年1月1日20:00:03前在OpenSea进行过交易的用户均可领取空投，约86万个地址符合条件。Opensea交易量高于30个ETH的用户均可领取1000个X2Y2空投，交易量在0-30个ETH的用户可领取的空投数量与交易量成正比。
-10. 2月16日消息，去中心化资产跨链网络Nerve Network宣布Nerve 2.0 Beta版现已正式上线，用户可在全新UI中进行跨链资产管理，并新增跨链交易与流动性池功能。同时，跨链桥Nerve Bridge已经连接了8个主流区块链网络。
-11. 2月16日消息，DeFi预言机Umbrella Network宣布与去中心化跨链质押平台rRing Finance达成合作。BRING/USDT交易对数据将作为L2数据提供在Umbrella Network的去中心化预言机上。
-12. 2月15日消息，Drift Protocol宣布在Web3漏洞赏金平台Immunefi上发布漏洞赏金计划，本次漏洞赏金计划专注于检查智能合约，防止用户本金、收益资金或治理资金被盗窃或冻结。该计划将根据漏洞等级支付赏金，最高可获得500,000美元。
-13. Theblock报道，房地产投资公司Vesta Equity宣布在Algorand上推出NFT平台，据称该平台也是世界上第一个由房地产支持的NFT资产P2P市场。对于已经购买了房产物业的房主来说，他们可以将自己一部分房产变成代币化、碎片化的NFT，然后再将其打包成一种证券进行出售。Vesta Equity首席执行官迈克尔•卡彭蒂尔表示，这种方式可以让房主在无需抵押或出售房屋的情况下获得房屋的价值，这意味着，如果当地房价上涨，理论上房主（或投资者）就可以从房地产升值中受益。
-14. Coindesk报道，摩根大通周二宣布在Decentraland开设了一个虚拟空间Onyx Lounge，名称来源于其专注于加密和区块链的部门Onyx，摩根大通声称是银行业第一家进入元宇宙的公司，该公司还发布了一篇名为“Opportunities in the metaverse”的研究报告，探讨企业如何在元宇宙中寻找机会。
-15. Coindesk报道，在线加密货币平台Voyager Digital Ltd(VYGVF)第二财季的营业收入为320万美元，而去年同期为亏损280万美元。第二财季总收入为1.648亿美元，低于分析师估计的1.781亿美元，但比第一季度翻了一番多，比上一年增长了4,400%。
-16. Coindesk报道，巴菲特的伯克希尔哈撒韦公司抛售了部分Visa和Mastercard持股，并增加了巴西最大的金融科技银行Nubank的投资敞口。该公司已在2021年第四季度购买了价值10亿美元的Nubank A类股票，同时分别出售了价值18亿美元和13亿美元的Visa和Mastercard股票。伯克希尔哈撒韦于2021年7月向Nubank投资了5亿美元。
-17. 雅虎财经报道，Valkyrie Investments资产管理规模（AUM）已超过10亿美元，其ETF业务的AUM约为4600万美元，Valkyrie总资产的另外90%来自定制的独立管理账户(SMA)、针对机构投资者的加密协议信托，以及专注于去中心化金融的对冲基金。
-18. Theblock报道，Gnosis Safe生态系统拟议的管理方Safe Foundation正计划通过代币销售募集1亿美元资金，据悉，Safe Foundation将铸造10亿枚SAFE代币（一种尚未推出的治理代币），其中总供应量的8%会指定出售给一些战略投资者。
-19. Seekingalpha报道，美国财政部负责国内金融事务的副部长Nellie Liang周二表示，稳定币存在没有真正美元储备的风险，虽然稳定币发行商通常表示拥有一比一的支持，但Liang表示：“在压力时期、围绕赎回和未披露费用的问题下，稳定币资产可能无法提供1美元，赎回问题最终会产生运行风险”。
-20. Cryptopotato报道，美国民主党成员Josh Gottheimer已公布了一份关于稳定币监管的早期立法草案，其中建议某些数字货币只有在可以一对一兑换成美元的情况下才“符合”稳定币的条件。发行此类产品的机构应该是联邦支持的银行或同意维持由美元或美国债务组成的100%储备资产的非银行机构。
-21. Etfstream报道，富达国际已经进入加密货币领域，富达实物比特币ETP（FBTC）在德意志交易所和法兰克福证券交易所上市，总费用率（TER）为0.75%，FBTC将在未来几周在瑞士证券交易所上市。有实体支持的FBTC将由Eurex Clearing集中清算，由Fidelity Digital Assets担任托管人。布朗兄弟哈里曼公司将担任该产品的管理人和转让代理。富达国际表示，在富达数字资产调查发现70%的机构受访者预计未来将投资于数字资产之后，它为机构和专业客户推出了FBTC。
-22. Cointelegraph报道，白俄罗斯总统亚历山大•卢卡申科（Alexander Lukashenko）签署了一项法令，确认该国正式支持比特币（BTC）等加密货币自由流通。
-23. Izvestia报道，俄罗斯经济发展部已经批准了该国加密采矿监管的概念，提议允许在“可持续电能过剩”的地区进行挖矿。作为该提案的一部分，该部建议降低在俄罗斯特定地区建立采矿场和数据中心的费用，并为这些设施提供更低的能源费率。该部还希望为个人采矿建立电力使用限制
-24. 卫星新闻报道，俄罗斯央行新闻处表示，央行和市场参与者已开始进行数字卢布平台测试，首批个人账户间的汇款顺利完成。
+比尔.格茨：
+作为阻止解放军进入美国证券市场的新政策的一部分，美国财政部将对 59 家中共国军工公司实施制裁
+【附比尔.格茨发布华盛顿时报报道：美国新的制裁规则打击了数十家中共国军工企业】
 
 
 
+> Treasury Department codifies sanctions on 59 Chinese military companies as part of a new policy blocking PLA from US securities markets [https://t.co/nDSNRttMHG](https://t.co/nDSNRttMHG)
+> — Bill Gertz (@BillGertz) [February 15, 2022](https://twitter.com/BillGertz/status/1493720810183282688?ref_src=twsrc%5Etfw)
 
 
-*编辑：aQ
-发布：文顾*
+
+众议员帕特·法伦：
+
+中国是芬太尼的主要原产国——他们在我们的南部边境将其倾注进入美国。
+
+还认为边境危机不是国家安全威胁吗？
 
 
- 
+
+> China is the primary country of origin for fentanyl – and they're pumping it into the America at our southern border.
+> 
+> Still think the border crisis isn't a national security threat?
+> — Rep. Pat Fallon (@RepPatFallon) [February 15, 2022](https://twitter.com/RepPatFallon/status/1493690831139528704?ref_src=twsrc%5Etfw)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,18 +2,21 @@
 ---
 
 
-## Covid 对养老金的影响：节省了 11 亿欧元
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2013007/)
+## 辉瑞令人震惊的内部数据：新冠患者接种新冠疫苗 3 个月内死亡率约为 3%
+` GTV新聞訪談` [轉載自GNews](https://gnews.org/zh-hans/2013273/)
 
-翻译/整理: 萧亦
-![](https://assets.gnews.org/wp-content/uploads/2022/02/02162.jpg)图片来自today.it
-谈到 Covid 对意大利养老金支出的影响。阿尔贝托·布兰比拉总统向参议院提交的社会保障路线研究中心的报告揭示:在 2020 年大流行开始的那一年，由于死亡率急剧上升，从而节省了 11 亿欧元的养老金支票支出。
+编者：台湾宝岛农场 寻文客
 
-事实上，2020 年 96.3% 的 COVID 超额死亡涉及 65 岁及以上的人。这些都是属于退休人员的年龄范围之内。报告强调，到 2029 年，社会保障支出将减少 119 亿欧元。
+辉瑞公司的新冠疫苗研究资料在美国《信息自由法案》的要求下正在逐渐被公布。不久前，加拿大非营利组织 Strong and Free Canada 发现并报导了辉瑞公司公开的研究资料中令人震惊的数据：新冠患者接种新冠疫苗 3 个月内死亡率约为 3%。 [1]
+根据辉瑞公司公开的新冠疫苗研究资料[2] ，2020年 12 月 1 日至 2021年 2 月 28 日期间，辉瑞公司的第一批获得临时授权的新冠疫苗开始紧急供应给世界各地。直到 2021 年 2 月 28 日，辉瑞公司收到了来自超过 60个国家的一共 42,086 份病例报告，其中有 1,223 例病例被确认死亡。即新冠病毒患者接种辉瑞 BNT 新冠疫苗后 3 个月内死亡率约为 3%(2.91%)。
 
-原文链接: [https://www.today.it/video/effetto-covid-sulle-pensioni-per-inps-risparmi-per-1-1-miliardi-9jtor.askanews.html](https://www.today.it/video/effetto-covid-sulle-pensioni-per-inps-risparmi-per-1-1-miliardi-9jtor.askanews.html)
+根据世界卫生组织的最新数据，新冠病毒的致死率约为 1.41%。 [3] 而根据辉瑞公司内部研究资料，接种辉瑞新冠疫苗 3 个月内死亡率已经是新冠病毒致死率的 2 倍有馀。从数据上看，新冠疫苗更像是对人类的毒药而不是对病毒的解药。
+此外，根据该研究资料，31% 成年人和 40% 的儿童在接种辉瑞新冠疫苗后遭受了长期的副作用。
 
-责任编辑/发布:意大利达芬奇农场   萧亦
+参考来源
+[1] https://strongandfreecanada.org/facts-and-data/pfizer-trial/
+[2] https://strongandfreecanada.org/wp-content/uploads/2021/12/Pfizer-trial-results-first-3-months.pdf
+[3] https://covid19.who.int/table
 
  
 

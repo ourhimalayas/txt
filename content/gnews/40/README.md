@@ -2,51 +2,44 @@
 ---
 
 
-## 美国表示：中国对俄罗斯的支持“正在敲响警钟”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2011858/)
+## 答案不是让我沉默，而是让你做得更好
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2012051/)
 
-**翻译：文扬**
-**编辑：Candy**
+据《福克斯新闻》作者： Joseph A. Wulfsohn，2022年2月12日发布：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1532-e1644986170230.png)（摄影：Ronald Martinez /盖蒂图片社|路透社/Lucas Jackson/档案照片/档案照片）
+播客巨头Joe Rogan向传统媒体提供建议，因为让他脱离Spotify平台的努力仍在继续。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/五角大楼.png)
+在周四的《The Joe Rogan Experience》节目中，Rogan谈到了各种新闻来源对他的 “问题”，即 “更多的人相信我或信任我或想听我说话”。
 
-图片来源：rt网
-**莫斯科此前曾表示，在与西方的僵局中，它指望北京。**
+Rogan表示：“答案不是让我沉默，答案是让你做得更好，答案是你要有更好的论据。当你在电视上谈论我如何服用马用驱虫剂，而你知道那不是真的。”
 
-五角大楼警告说，在俄罗斯和乌克兰边境对峙数周之际，华盛顿对中国在欧洲大陆安全问题上的举动越来越关注，因为中国站在莫斯科一边。
+Rogan问道：“你应该说的是，Joe Rogan怎么这么快就好了？他怎么会得了杀死所有人的新冠病毒，而他在五天内就好了，五天内就阴性了，六天就锻炼了？为什么从来没有人讨论过这个问题？”
 
-周一，国防部发言人约翰·柯比（John Kirby）在简报会上，发表了他对北京和莫斯科的看法。他认为：在西方压力越来越大的情况下，双方的合作日益密切。
+在澄清了他认为在他与新冠病毒的斗争中他服用的单克隆抗体比伊维菌素对他的帮助更大之后，他把矛头转向了CNN，后者大力宣传 “马用驱虫剂”的谎言。
 
-“我们当然一直在关注——至少是公开的——俄罗斯和中国之间迅速发展的关系，”本月早些时候，他在评论俄罗斯总统弗拉基米尔·普京和中国国家主席习近平、呼吁停止北约扩张的声明时说。
+Rogan讲道：“如果你在做生意，你的生意就是新闻，你想让更多的人关注，你应该诚实，而我对CNN的想法，我对他们的建议……我不恨CNN。我曾经每天都去看他们的新闻，直到他们开始讨厌我。”
 
-柯比说：“他们2月4日的联合声明无疑提供了进一步的证据，表明中国已经决定在欧洲发生的事情上与俄罗斯站在一起。我们会说，他们对俄罗斯的默许，如果你愿意的话，是非常令人震惊的。”
+Rogan说：“如果你想做得更好，就他妈的改变你的模式，改变你的方式。停止这种编辑视角，像Brian Stelter 和 Don Lemon这样的人，没有人会去听。没有人喜欢插话说，哦，是的，我们终于得到了理性的声音。没有人这么想。”随后Rogan继续说道：“要有能发出有效新闻、客观新闻的人，相反，我会支持你。我会百分之百地转身……我会成为告诉人们我在CNN上看到了这个，在CNN上看这个的人。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1533-e1644986127242.png)喜剧演员Joe Rogan一直受到左翼媒体的抨击。（摄影：Vivian Zink/Syfy/NBCU Photo Bank/NBCUniversal盖蒂图片社）
+去年几位CNN明星指责Rogan服用 “马用驱虫剂”，因为这位播客主持人宣布他患上新冠，并在康复期间服用了医生开给他的伊维菌素，以及其他治疗。
 
-科比认为，北京在高风险问题上对莫斯科的支持 “使欧洲的安全局势更加不稳定”。
+Rogan后来在一次有争议的采访交流中迫使CNN的首席医学记者Sanjay Gupta博士承认他的同事把他使用伊维菌素说成是牲畜药物是错误的。
 
-几个月来，西方领导人反复警告说，俄罗斯可能很快就会下令入侵乌克兰，官员们发出了莫斯科可能在北京冬奥会期间发动攻击的警报。白宫国家安全顾问杰克·沙利文（Jake Sullivan）本月早些时候警告说，由于双方的经济关系，中国将 “最终承担俄罗斯入侵乌克兰的部分成本”。
+即使在被指责兜售错误信息之后，CNN仍然不依不饶，在一份声明中声称：“CNN在这里唯一做错的事情是挫伤了一个受欢迎的播客的自尊心，他推崇危险的阴谋论，并为此冒着数百万人的生命危险。”
 
-克里姆林宫一再否认它有任何攻击计划。周二，莫斯科国防部宣布，其军队已经结束了在靠近乌克兰的白俄罗斯的训练演习，并将开始撤军进程。
+原文连接：[https://www.foxnews.com/media/joe-rogan-to-media-do-better](https://www.foxnews.com/media/joe-rogan-to-media-do-better)
 
-国防部首席发言人伊戈尔·科纳申科夫（Igor Konashenkov）少将表示，“随着部队完成军事演习，他们将一如既往地完成多式联运，返回永久基地。”
+翻译：洛杉矶盘古农场- KY
 
-在指责俄罗斯武装部队可能发动袭击的情况下，莫斯科一直在寻求获得安全保障，以排除北约向其边境扩张的可能性。
+校对：洛杉矶盘古农场 – Mike Li
 
-在习近平和普京12月的会谈后，俄罗斯领导人的外交政策顾问尤里·乌沙科夫（Yuri Ushakov）透露，中国国家主席支持莫斯科寻求保证。克里姆林宫助理透露：“他自然很清楚并理解主要问题：俄罗斯对其西部边界的担忧。”
+编辑：洛杉矶盘古农场 – 柯镇恶
 
-莫斯科和北京强调了两国关系在贸易、能源、经济和国防等一系列领域的重要性，普京在 2 月初表示，两国关系已达到“前所未有的”水平。
 
-尽管有迹象表明俄罗斯和中国之间的合作不断加强，但一些分析人士暗示，与北约等其他集团相比，这种伙伴关系的发展程度较低。
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-原文链接： [Chinese support for Russia ‘alarming’ – US — RT Russia & Former Soviet Union](https://www.rt.com/russia/549446-washington-china-support-alarm/)
-
-***发布：Candy***
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

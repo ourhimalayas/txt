@@ -2,30 +2,33 @@
 ---
 
 
-## 2022年2月16日新闻集
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2013082/)
+## 有声｜网络爆料中共极端“清零”防疫的暴利黑幕
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2013322/)
 
-撰稿人：文远Bruce
-![](https://assets.gnews.org/wp-content/uploads/2022/02/文远-1.png)图片来源作者
-**1.2.普金推拉操作骚  市场惊魂上下跳！**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/文远2-1.png)ww’l网络截图![](https://assets.gnews.org/wp-content/uploads/2022/02/文远3-1.png)网络截图
-**3.4. 徐州丰县铁索寒——共产党以骗治国、以假治国、上梁不正下梁歪，丰县造假企图掩盖真相令人发指！**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/文远4-1.png)网络截图![](https://assets.gnews.org/wp-content/uploads/2022/02/文远5-1.png)网络截图
-**5.路透社：美国12月份资本净流出524亿美元。对比2013年8月的叙利亚生化武器危机，这次的战争宣传有一部分原因是驱赶国际热钱，买美国国债，美债利率已站上2%，2013年8月16日的美债利率是2.83%**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/文远6-1.png)网络截图
-**6.英特尔收购以色列芯片制造商Tower**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/文远7-1.png)网络截图
-**7.AMD花费500亿美元收购Xilinx创并购记录**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/文远8-1.png)网络截图
-**8.Odyx混合动力飞机续航达1000英里(1609公里)**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/文远9-1.png)网络截图
-编辑：MG4
+**By:秘翻新闻**
 
-[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+**2022-02-16**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8-14.png)图片来源 新唐人
+新唐人北京时间2月15日消息。最近，网络热传一段疑似哈佛学者黄万盛的录音，披露了中共的防疫敛财黑幕，引发关注。
 
-【[澳喜文章1](https://gnews.org/zh-hans/author/aujenny/)】
-【[澳喜文章2](https://gnews.org/zh-hans/author/himalaya-australia/)】
-![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
+在录音中，黄万盛爆料称，2020年7月疫情爆发半年后，中共最高层花17万元为他购买单程机票紧急召他回国，领导一个科技防疫项目。
+
+据黄万盛透露，中共高层的白手套和家属们染指核酸试剂领域，多地的多轮全员核酸检测皆因此而起。因为只有采购量才有利润。
+
+他说：全世界没有一个国家用这种方式进行免疫，这实际上是给利益集团输送利益，包括中共强推的多针剂疫苗，都与利益集团有关系。
+
+黄万盛还透露，中共国某个集团仅仅通过核酸检测这一项，就赚了六千七百亿。
+
+据美国南卡罗莱纳大学艾肯商学院终身教授谢田称，黄万盛并非真正的哈佛学者，而是一个1977年毕业的工农兵大学生，哲学背景出身。黄之所以借哈佛的名头，是为了让中共觉得这可能是个很好的资历，以便把他请回去参加科技防疫类的协会。并指黄万盛大概是在参与防疫有关项目后，从科技防疫人员处得知此消息。
+
+新闻来源[**https://www.ntdtv.com/gb/2022/02/15/a103348516.html**](https://www.ntdtv.com/gb/2022/02/15/a103348516.html)
+
+秘翻新闻 采集 / 撰稿 EY120
+
+发布 : 恩典
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMAGE-2021-12-13-113746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

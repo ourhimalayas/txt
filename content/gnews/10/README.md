@@ -2,22 +2,38 @@
 ---
 
 
-## 众多人士批评美国联邦机构追踪寻求疫苗宗教豁免人群
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2013071/)
+## 美国务卿布林肯宣布关闭美驻乌克兰大使馆 并呼吁美在乌公民尽快离境
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2013317/)
 
-#### 翻译/撰稿：zzballack
+作者: 首尔天池农场—祥瑞舟
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-3-5.jpg)图片来源：布雷特巴特新闻网
-据《真正美国之声》（Real America’s Voice）2月15日报道，美国有55个联邦机构颁布了修订规则，以追踪那些寻求豁免的联邦雇员或申请人。有些仅限于新冠疫苗豁免，有些则追踪所有豁免，包括那些寻求不在安息日（Shabbat）或星期日工作的人。很多人对此做法提出批评，认为这是对有信仰的人的歧视。
 
-有报道说，美国政府正在建立一个数据库，记录那些申请豁免的人。非营利组织自由律师会（Liberty Counsel）的主席马修·斯塔韦 (Mathew Staver)上个月在接受采访时将其比作纳粹德国用来追踪犹太人的一个数据库：“这个数据库的唯一可能目的是找出和歧视有信仰的人，以服务于非法或者不合理目的。我们不能允许这种情况发生，我们不能允许一个联邦数据库按照人们的宗教或医疗状况进行分类。我想不出这类政府名单能带来什么好处？”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-26.png)
+据路透社2月14日的报道，当地时间2月14日，美国国务卿布林肯宣布已下令关闭位于基辅的美国驻乌克兰大使馆，并将“暂时性地”把留在基辅的少数外交人员转移到乌克兰西部城市利沃夫。布林肯并呼吁位于乌克兰的美国公民尽快离境。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/blinken.jpeg)图片来源: 网络
+布林肯在声明中说：“我下令采取这些措施的原因只有一个，那就是我们工作人员的安全。我们强烈敦促所有留在乌克兰的美国公民立即离开乌克兰。” 他同时表示，这些决定并不会改变美国对乌克兰的承诺，美国也仍然会与俄罗斯保持沟通，为达成外交解决方案做进一步努力。美国国务院表示，本周末将在利沃夫维持一个小型领事馆来用于紧急服务。
 
-美国议员也纷纷采取行动反对联邦政府的宗教豁免追踪系统。南卡罗来纳州的众议员拉尔夫·诺曼 (Ralph Norman)提出了《宗教自由高于强制令法案》（Religious Freedom Over Mandates Act）。该法案将“禁止将联邦资金用于任何有关新冠疫苗接种要求的宗教豁免记录系统”。
+在多国发布撤离在乌克兰公务和商务人员之后，美国国务卿关闭大使馆的行政命令，意味着俄乌紧张局势达到战争临界点的一个重大标志。
 
-20名共和党议员写信给总统拜登，要求联邦政府不要针对或跟踪那些提出宗教豁免申请的人。信中写道：“你们政府不能利用联邦政府权力来追踪那些寻求疫苗宗教豁免的联邦雇员。从第一天起，你们就对那些在生活中把信仰放在首位的美国人表现出一贯的蔑视态度，将以宗教为由拒绝接种疫苗的美国人排除在外，这是不可原谅的，必须撤回。大多数通知没有解释机构计划存储数据多长时间、为什么需要在联邦机构之间分享数据，或者为什么机构在决定批准或拒绝雇员的宗教便利请求后，需要保留数据。你们政府没有为这些侵入性数据库提供合理解释，这些数据库只会被用来针对那些因为宗教信仰而拒绝接种疫苗的美国人。”
+新闻链接: [https://www.reuters.com/world/europe/us-moving-remaining-ukraine-embassy-staff-kyiv-lviv-blinken-2022-02-14/](https://www.reuters.com/world/europe/us-moving-remaining-ukraine-embassy-staff-kyiv-lviv-blinken-2022-02-14/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-34.jpg)
+编辑/校对/发稿: 卡夫卡的甲壳虫
 
-新闻来源：[Criticism mounts as 55 federal agencies track COVID vaccine religious exemption requests](https://americasvoice.news/justthenews/criticism-mounts-federal-policies-tracking-covid-vaccine-religious/)
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+
+
+
+
 
  
 

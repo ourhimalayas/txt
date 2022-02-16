@@ -2,114 +2,64 @@
 ---
 
 
-## 纽约时报大卫布·鲁克斯谈俄罗斯可能入侵乌克兰：“这将是自 1945 年以来欧洲大陆上最重大的军事行动”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2012659/)
+## SEC调查币安美国分部及其做市商的关系
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2012941/)
 
-[https://gtv.org/video/id=620a12a7b0af02660af37dbe](https://gtv.org/video/id=620a12a7b0af02660af37dbe)
+#### 撰稿：彩虹
 
-Judy Woodruff (PBS NewsHour host)
-朱迪·伍德拉夫 (公共广播服务新闻小时主持人)
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-2-11.jpg)图片来源：Hanlire
+2022年2月15日，《华尔街日报》报道说，熟悉调查的人士称，针对全球最大的加密货币交易所币安（Binance）的美国分部和两家与币安创始人有联系的交易公司之间的关系，SEC（美国证券交易委员会）正在进行审查。
 
-Our colleague, Nick Schifrin reporting tonight
-我们的同事尼克·席弗林今晚报道
+这两家交易公司分别是Sigma Chain AG和Merit Peak Ltd.，他们作为做市商，在Binance.US（币安美国分部）交易所交易加密货币。知情人说，监管机构关注的一个领域是Binance.US如何向客户披露其与这些交易公司的关系。
 
-that US officials are saying a Russian invasion of Ukraine could come at any time
-美国官员说俄罗斯可能随时入侵乌克兰
+Binance.US在其网站上称，关联做市商可以在交易所进行交易，但它没有指明哪些公司可以这样做。
 
-And you were telling us that you’ve been talking to administration officials today yourself?
-你刚才告诉我们，你今天亲自与政府官员进行了交谈？
+知情人士说，SEC要求Binance.US提供有关这两家实体的信息，Binance.US是币安的美国分支机构，是现有执法调查的对象。
 
-David Brooks (NYT columnist)
-大卫·布鲁克斯（纽约时报专栏作家）
+2019年的公司文件显示币安的创始人兼首席执行官赵长鹏与这两家做市商有关系。前高管们说，截至去年年底，赵长鹏一直控制着这两家公司。
 
-Yeah, I don’t think people is when I’m talking to people
-是的，当我与人交谈时
+Binance.US的发言人扎卡里·廷德尔（Zachary Tindall）拒绝就SEC的调查以及与这两家关联公司的任何关系发表评论。他表示，“Binance.US致力于维护最高的合规标准”。
 
-And you know, in the course of my career
-你知道，在我的职业生涯中
+币安的发言人斯蒂芬·米尔顿（Stephen Milton）说，作为一家私人公司，它不需要披露其投资者或公司结构的细节。“但是，当监管机构提出要求时，我们会与之分享这些信息。”Milton先生说，赵长鹏先生不方便发表评论。据《华尔街日报》此前报道，赵长鹏是币安和Binance.US的多数股权所有者。
 
-I’ve been hundreds 1000s of briefings of this sort
-我已经接受了成百上千次此类简报
+做市商是交易世界中的重要角色。他们通过不断地买入和卖出，帮助平抑价格波动，即使是在市场不稳定的时候也是如此。他们通过收取买入价和卖出价之间的少量差价获得报酬。
 
-I’m not sure I’ve ever been in as one is sobering as the one I was in today
-我不确定我是否曾经去过像今天这样清醒
+美国证券交易委员会已经对没有披露其平台上有关联公司交易的交易所采取了执法行动。2015年，后来被Virtu收购的Investment Technology Group Inc.（ITG）支付了2,000万美元，并承认了相关错误行为，包括经营一个秘密交易平台，与发送到ITG交易平台的订单进行互动，即所谓的暗池。
 
-Over the last couple of weeks, there has been an accumulation of concern
-在过去的几周里，人们越来越担心
+乔治敦大学麦克唐纳商学院（Georgetown University’s McDonough School of Business）的金融学教授詹姆斯·安吉尔(James Angel)说，这个问题是“你是否给你的关联公司某种不公平的优势？他们得到了优惠的准入条件吗？他们是否能更快地进行交易？”
 
-and US government over the last several days, couple days that has accelerated
-和美国政府过去几天已经对事态升级了
+加密货币做市商B2C2有限公司的联合首席执行官罗伯·卡塔拉内罗（Rob Catalanello）说，与交易股票或交易所交易基金等受监管证券的做市商不同，加密货币市场的做市商不受监管，他们的做法可能差别很大。
 
-and they won’t, they can’t tell us
-他们不会，他们不能告诉我们
+他说：“它们现在太缺乏标准化了。”
 
-what exactly they’ve learned over the last several days
-他们在过去几天里到底知道了什么
+作为币安的竞争对手，FTX和FTX的做市商之一Alameda Research有同一个创始人山姆·班克曼· 弗莱德（Sam Bankman-Fried）。弗莱德先生说，虽然Alameda在FTX上进行交易，但“他们的交易量只占整个交易所交易量的很小一部分，而且他们账户的访问权限与其他人的相同。”
 
-but it’s been something that has caused them alarm
-但这件事引起了他们的警觉
+另一家大型加密货币交易所Coinbase Global Inc.的发言人表示，没有做市商与该公司、其高管或董事会有关联。
 
-And so there is now a possibility
-所以现在有一种可能性
+要对币安的美国分部采取执法行动，SEC需要证明它对Binance.US提供的一些加密货币有管辖权。美国证券交易委员会表示，许多数字币是证券，因此属于其监管范围，而加密货币公司则表示，监管机构没有（办法）证明哪些代币是证券。币安有自己的数字币BNB，于2017年向公众出售，在Binance.US和币安上交易。
 
-and I told you even a relatively high probability
-而且我告诉过你甚至是一个相对较高的可能性
+Binance.US的发言人廷德尔先生拒绝就BNB发表评论。币安的发言人米尔顿先生则说，该交易所没有上市任何证券。
 
-that we will see some sort of incursion into Ukraine
-我们会看到俄罗斯对乌克兰的某种入侵
+文章说，有时SEC在开始和结束调查时，并没有提出不法行为的指控或采取执法行动。
 
-And that would be the most significant military action on the European continent since 1945
-这将是自1945年以来欧洲大陆上最重大的军事行动
+据《华尔街日报》此前报道，SEC最初在2020年底向币安的美国分部发出传票。根据《华尔街日报》查看的传票，它要求提供有关谁控制币安、如何赚钱、向客户披露什么信息以及Binance.US的交易是否独立于更大的全球交易所的活动的信息。
 
-It would test the NATO alliance, and it would test the liberal order that existed in 1945
-它将考验北约联盟，它将考验1945年存在的自由秩序
+SEC的使命是保护投资者，已经采取了近100次涉及加密货币的执法行动。SEC主席加里·根斯勒（Gary Gensler）表示，加密货币市场是一个“狂野的西部”，需要正式的规则来保护交易者。根斯勒先生将注意力集中在加密货币交易所。
 
-I always assume that what Putin’s objective here was just to push NATO back a little
-我一直认为普京在这里的目的只是压制北约东扩
+币安由加拿大籍华人计算机程序员赵长鹏于2017年在上海创立，目前已发展到每天处理数十亿美元的加密货币交易。它在几乎没有监管的情况下建立了自己的业务，从头开始创建了其交易系统。
 
-make sure in NATO promises never to include Ukraineas one of its members
-确保在北约承诺永远不会将乌克兰作为其成员之一
+值得注意的是，据前高管称，SEC正在审查的两家做市商Sigma和Merit Peak，在Binance.US于2019年推出后不久就开始在该交易所进行加密货币交易。前高管表示，Binance.US的法律和合规团队担心的是，他们还没有清楚地了解这两家公司用于交易的资金来自哪里。
 
-never puts US troops or Western troops on Ukrainian soil
-永远不将美国军队或西方军队置于乌克兰领土上
+前高管们披露说，做市商Sigma在Binance.US上执行所有订单，其中用户以当前市场价格购买或出售某种加密货币。而Merit以及后来的其他做市商处理的订单，则只有在加密货币的价格移动到某个数值时才会执行。
 
-But it’s quite possible to Putin’s objectives are much more ambitious
-但普京的目标很有可能更加雄心勃勃
+截止目前，币安和Binance.US的发言人都没有对这两家做市商或他们与赵长鹏的关系发表评论。
 
-to really disrupt NATO to take back Ukraine
-真正扰乱北约来夺回乌克兰
+在2019年1月的一份瑞士公司注册文件中，赵长鹏被列为Sigma的董事会主席，不过他后来被另一位与币安有关系的人取代。2019年底，赵长鹏代表Merit签署了一份文件，批准Merit向Binance.US注资以换取该公司的股份。在2020年12月的SEC传票中，SEC将Merit称为币安的一个附属实体。
 
-which a lot of Russians think is always been part of Russia was stolen from Russia
-很多俄罗斯人认为它一直是俄罗斯的一部分，它被从俄罗斯窃取
+**新闻来源**
 
-to create a buffer between in case there’s an incursion from the west
-以创建一个缓冲区，以防从西方入侵欧洲
-
-And so it’s, it’s scary
-所以它是，它是可怕的
-
-That’s, that’s all I can say
-这就是我所能说的
-
-* * *
-
-Date:02/12/2022
-原视频标题: NYT David Brooks on a possible Russian incursion of Ukraine: “That would be the most significant military action on the European continent since 1945”
-纽约时报大卫布·鲁克斯谈俄罗斯可能入侵乌克兰：“这将是自 1945 年以来欧洲大陆上最重大的军事行动”
-原视频日期：2022/02/11
-原视频链接**[https://twitter.com/newshour/status/1492298693164339200?s=24](https://twitter.com/newshour/status/1492298693164339200?s=24)**
-任务编号：LP002
-视频时间段 : 0:00-1:36
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[SEC Probes Trading Affiliates of Crypto Giant Binance’s U.S. Arm](https://www.wsj.com/amp/articles/sec-probes-trading-affiliates-of-crypto-giant-binances-u-s-arm-11644948162)
 
  
 
