@@ -2,72 +2,39 @@
 ---
 
 
-## 众议员莫·布鲁克斯推《中共国COVID-19赔偿法案》
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2012456/)
+## 郭文贵先生独创热词分析
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2013006/)
 
-> 众议员莫·布鲁克斯：[#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw) 撒谎，人民死亡。我希望共产主义中国向受到伤害的美国人赔偿，因为他们制造了 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hash&amp;ref_src=twsrc%5Etfw) 之后还撒谎掩盖从而伤害了美国人。
-> 【附中字视频】 [https://t.co/N2vG2vMj8e](https://t.co/N2vG2vMj8e) [pic.twitter.com/2tcrnnTUAS](https://t.co/2tcrnnTUAS)
-> — 美国政要直译推 (@zhiyitw33) [February 16, 2022](https://twitter.com/zhiyitw33/status/1493784086158086148?ref_src=twsrc%5Etfw)
+作者/编辑：Rianna
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-64.png)
+“在国际互联网信息海洋中，搜索引擎是航行的罗盘和灯塔。熟练地使用搜索引擎，有助于记者在浩如烟海信息海洋中快速识别并收集到有用信息，从而提高工作效率。”[1]
 
+郭文贵先生在近5年的直播中创造了很多热词，开创了旧词新用，这并不是随便拿几个词热炒，它是有战略意义的。“搜索引擎在输入关键词后开始工作，查找出包含关键词的信息，列出相关网站链接。通常出现在最前列的网站是最有用的。”[2]
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3-47.png)图片来源：谷歌搜索
+第一个原因是作为词汇文本链接。首先“战友”这个词在过去是军队系统、退伍老兵、专业军人之间交流常用的称呼，互称为战友。那么他们这个被洗脑很深的群体，在翻墙网络检索时候本来想找老同事、老战友联络，结果发现会链接到G-news 灭共文章里，发现新中国联邦人之间也是互称战友，例如一首歌里唱的“战友啊战友……战友情谊真。” 他们会好奇、感兴趣，看看是什么内容文章，下面是国内法治网的一篇退伍老兵向战友们传递奥林匹克精神的新闻。还有“双修党”这个词，因为中共国党内从十九大以来掀起了德法双修、内外双修、城市双创双修活动。比如最右图谷歌搜索一篇新疆沙雅县党委宣传高龄党员要发光发热内外双修的一篇文章。中南坑的老杂毛们平日里满脑子想着奢靡搞邪教、祭祀、男女双修迷信活动，他们在电脑、手机上最喜欢搜索“双修”、“老黄瓜“、“流水”内容，根据搜索习惯他们翻墙一搜看到都是灭共文章，一篇篇都是射向他们的子弹，让他们吓得阳痿！那么在搜索引擎里键入双修党这个词，第一条就会链接到G-news秘密翻译组发布的陈峰、王岐山、孙力军等仁波切的表情包和文章。并且“双修”、“仁波切”这些词能绕开某些邪教网页、一些小说网直接链接到G-news 文本。如果国内网民翻墙搜“盘古龟头”就会显示全部是郭文贵先生和战友们的视频、热帖讨论，而不会链接到黄网，如图所示G-news 平台把星火小说网抵到最下面搜索页面尾部。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/4-35.png)图片来源：谷歌搜索
+第二原因是反破冰文化，敏感词脱敏。谷歌面试要求面试者讲黄色笑话才能通过面试，500强企业都是如此。破冰文化、真心话大冒险等游戏来源于欧美企业。“它就是通过言语有意识地突出性事实和性关系……通过说出那些猥亵话，被攻击者被迫想象出这些话中所谈到的那部分肉体或性行为的某个程序。” [3] 破冰文化起源于欧洲邪教、巫术和秘社，和斯坦福监狱实验类似的精神控制技巧，破冰文化只不过是现代版而已。巫术的本质是没有超自然现象也没有超自然力量，它的秘诀在于心理暗示、精神控制。因为这一方面内容与灭共主线无关，笔者也无资料不详述了。
 
+现代社会大家普遍从互联网搜索引擎上获取新闻、信息，电视媒体日渐淘汰没落，互联网媒体已经成为第四权力和话语权，我们新中国联邦舆情要占据话语权，就需要熟练掌握网络搜索引擎内容。“下一代搜索引擎应该是深层搜索。目前的搜索引擎主要处理普通网页，难以搜索到深层的网页信息。深层搜索能搜索与网页链接的数据库信息。同时下一代搜索引擎应该是跨媒体的。也就是说，用户通过统一的界面和单一提问，能获得以各种媒体形式存在的语义相似的结果。”[4]
 
-众议员马乔丽·泰勒·格林：
-如果共和党人无法阻止大科技审查，那么共和党人还能做什么？
+[1]. 高钢2020年《新闻写作精要 新闻报道的原则与方法 》第五节使用搜索引擎.
 
-大科技公司在审查他们不喜欢的政治观点上做得太过了，它在压制真相。
+[2].（德）塞巴斯蒂安.索尔著2017年《学会利用网络》.
 
-如果我们不能为保护真理而战，那还有什么可做的？
+[3]. “阿里破冰文化”上热搜，为什么“破冰”总爱搞黄色？
 
-共和党人到底是为了什么（而存在）？
+[https://m.sohu.com/a/482641286\_115112/?pvid=000115\_3w\_a](https://m.sohu.com/a/482641286_115112/?pvid=000115_3w_a)
 
+[4]. 吴功宜，吴英编著2020年《深入理解互联网》第五章应用层协议的研究与发展.
 
+***发布：tianzhihuan***
 
-> If Republicans can’t stop Big Tech Censorship, then what can Republicans even do?
-> 
-> Big Tech has gone way past censoring political opinions they don’t like, it’s silencing truth.
-> 
-> If we can’t fight to protect truth then what else is left?
-> 
-> And what are Republicans even for?
-> — Rep. Marjorie Taylor Greene (@RepMTG) [February 16, 2022](https://twitter.com/RepMTG/status/1493770857855995904?ref_src=twsrc%5Etfw)
-
-
-
-前国务卿迈克.蓬佩奥：
-社会主义行不通。 我在巡视 铁幕（指昔日西欧与中东欧共产党执政国家之间想象的屏障）时亲眼目睹了它——我知道它不会带来任何好处。
-
-
-
-> Socialism doesn’t work. I saw it firsthand when I patrolled the Iron Curtain — and I know nothing good comes of it.
-> — Mike Pompeo (@mikepompeo) [February 16, 2022](https://twitter.com/mikepompeo/status/1493765787621888007?ref_src=twsrc%5Etfw)
-
-
-
-比尔.格茨：
-作为阻止解放军进入美国证券市场的新政策的一部分，美国财政部将对 59 家中共国军工公司实施制裁
-【附比尔.格茨发布华盛顿时报报道：美国新的制裁规则打击了数十家中共国军工企业】
-
-
-
-> Treasury Department codifies sanctions on 59 Chinese military companies as part of a new policy blocking PLA from US securities markets [https://t.co/nDSNRttMHG](https://t.co/nDSNRttMHG)
-> — Bill Gertz (@BillGertz) [February 15, 2022](https://twitter.com/BillGertz/status/1493720810183282688?ref_src=twsrc%5Etfw)
-
-
-
-众议员帕特·法伦：
-
-中国是芬太尼的主要原产国——他们在我们的南部边境将其倾注进入美国。
-
-还认为边境危机不是国家安全威胁吗？
-
-
-
-> China is the primary country of origin for fentanyl – and they're pumping it into the America at our southern border.
-> 
-> Still think the border crisis isn't a national security threat?
-> — Rep. Pat Fallon (@RepPatFallon) [February 15, 2022](https://twitter.com/RepPatFallon/status/1493690831139528704?ref_src=twsrc%5Etfw)
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

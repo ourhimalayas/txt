@@ -2,38 +2,54 @@
 ---
 
 
-## 短视频：普京可能在冬奥会期间或之后入侵乌克兰
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2013795/)
+## 更多高中运动员接种后崩溃和死亡 媒体假装与疫苗无关联
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2014117/)
 
-翻译：不要代表我
-校对：Lish
-剪辑字幕：qingjing 
-编辑：文泓
+**编译： Jenny Ball**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/无标题-5.png)图片来源：视频截屏
+![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip更多高中运动员接种后崩溃和死亡-媒体假装与疫苗无关联.png)图片来源：newstarget.com
 
+上周，又有两名年轻男子，他们都是强壮的运动员，在打篮球时猝死。
 
-还有两个国家的首脑——习近平和普京，在奥运会期间他们显然是在一起，还有一些事情正在闭门发生，真不算是在暗中进行的，而是和乌克兰有关，（俄罗斯）最终可能入侵乌克兰。
+一起事件发生在德克萨斯州东部，而另一事件发生在芝加哥郊区。然而，他们的情况几乎相同，在比赛中倒下，然后死去。
 
-我想为您播放这个视频，如果可以的话请您做出回应。这是国家安全局的杰克·沙利文关于（俄罗斯）入侵乌克兰的可能性讲话。
+在德克萨斯州的阿尔托，名叫孟弗莱（D. Mumphrey）的年轻人，去年他被选为 22-2A 区年度新人。这个月，就在他英年早逝之前，孟弗莱被提名为戴夫·坎贝尔的德州本周最佳篮球运动员奖。
 
-我们必须为俄罗斯在奥运会结束前采取军事行动的可能性做好准备，我们也必须为奥运会结束后（俄罗斯的军事）行动做好准备。
+阿尔托独立学区发表了一份声明，说明为什么选择不公布学生的姓名，声称这与“尊重家庭”和“学生隐私义务”有关。
 
-因此，在这一点上，我们仍处于（战争）窗口期。也就是说，我们不能只是假设它将在几个星期内发生？抑或这是否是一种可能的情况？或者有理由相信它可能在这个时间范围内发生？是的。但也有理由相信，在普京总统的指示下，俄罗斯可能在那之前采取军事措施。
+事实证明，一位亲戚向泰勒晨电报确认孟弗莱，所以他的身份现在已知。
 
-还有人提到，如果普京真的入侵，他会付出巨大的人力代价，这会是在部队抵达东欧时发生。参议员，请谈一下你对局势以及对事态发展的看法。
+还要有多少孩子将死于新冠“疫苗”才能停止给他们注射？
 
-这届政府裹足不前，他们认为可以通过谈判摆脱困境。问题是，普京不尊重乔·拜登，他认为他软弱无能，做事毫无章法。
+在伊利诺伊州，17 岁的不来梅高中的卡梅伦·惠特利（Cameran Wheatley），在与芝加哥农业科学高中的比赛中倒下。
 
-视频链接：[Newsmax 在 Twitter: “Athletes participating in the Winter Olympics in Beijing are “having to download an app… with information controlled by the Chinese Communist Party, that is their surveillance tool, their tracking tool,”](https://twitter.com/newsmax/status/1490716683706802180?s=24)
+事件发生在晚上 9 点 20 分左右，芝加哥消防队表示，急诊只用了五分钟就响应，并对男孩进行了心肺复苏术，然后将他送到了基督医院，在那里他被宣布死亡。
 
-发布：文泓
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+“这很悲惨，因为我不知道是什么，**”**家长马库**​​**斯**·**莫里斯在事件发生后说。** “**我认为这样的事情不会发生在高中孩子的身上。”
+
+不来梅高中校长在一份声明中表示，他和学校的其他工作人员“对失去我们的学生运动员感到非常难过”。
+
+虽然这两个男孩的疫苗接种状况都没有公开披露，但他们很可能都接受了疫苗接种。可悲的是，许多像他们一样的其他运动员，我们知道的事实是，被疫苗伤害的方式几乎相同，包括意外死亡。
+
+当身体突然发生某些事情时，似乎完全注射了疫苗的运动员往往只是像往常一样进行他们的运动。然后，他们在传球或射门中间倒下，然后死去，有时是即刻死亡。
+
+“这是一个巧合吗？”有人在谈到这两起最新事件时写道， “他是疫苗受害病例。”
+
+“要求由私人法医病理学家进行的法医病理学调查， 而不是由州验尸官进行，”另一位建议父母如何将事情掌握在自己手中。 “这些都是反人类罪！** **福奇等人是**21**世纪的纳粹！**”**
+
+“有一个问题：为什么学校认为他们应该为学生提供‘悲伤辅导员’？” 另一个人问道。 “那不应该是由家庭或教会去辅导他们自己的孩子吗？ 谁在为学校的“悲伤辅导员”买单？”
+
+辉瑞为您进行“悲痛咨询”吗？有人回答说。
+
+**新闻来源**：[newstarget.com][More high school athletes collapse and DIE after taking vaccines as pharma-pimping corporate media pretends there’s no link](https://www.newstarget.com/2022-02-14-more-athletes-collapse-die-after-covid-vaccination.html)
+
+* * *
+
+***审核：文乐
+校对：花羽
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-4.jpeg)
 
  
 

@@ -2,25 +2,22 @@
 ---
 
 
-## 秘翻在线：为证明中共蓝金黄美国司法系统郭先生申请个人破产与中共抗争到底
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2013696/)
+## 樱花FM┃德国总理在制裁俄罗斯问题上倾向美国
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2014005/)
 
-**撰稿：明澈**
+音频：东京樱花团/战友520
+![](https://lh3.googleusercontent.com/hdnHSOUcQfynk1TXLnyydEwEXKL_Lvxwt0ag4RZb9a4hON7NTw1nlq_qfWUw5jW-bUfe3jXTwx-NM3QP3fJbcDZJTOjH_XBYCIzJn9TeG09ODUkyoQFhCGS4dTseCBDQP7agcoeJ)
+在1月7日访问华盛顿特区后，德国总理肖尔茨在与美国总统拜登举行的联合新闻发布会上警告说，如果俄罗斯入侵乌克兰，他将实施 “强有力的、意义深远的制裁”，并表示在制裁俄罗斯问题上将与美国 “一致行动”。
 
-**责编：人间四月**
+德国拒绝向乌克兰出口武器，至今没有对俄罗斯实施制裁，这让美国对它是否是一个可靠的盟友产生过怀疑。
 
-综合媒体2月16日消息，上周郭文贵先生因将LadyMay行驶出美国管辖之外的巴哈马，而被控诉藐视法庭。同时，在PAG案中，郭文贵先生被南区法院勒令缴纳2.6亿美金巨额罚款，限时5日需缴清1.34亿美金，不然文贵先生可能被送进监狱。
+当被问及德国是否是一个可靠的合作伙伴时，拜登说：”德国是可信赖的盟友，美国和德国之间的信任是牢固可靠的。
 
-一份法庭文件的记录显示，郭文贵先生并非LadyMay游艇的所有者，但法庭认定文贵先生对这艘游艇有支配权和控制权，以此作为依据，做出限制文贵先生将这艘游艇驶出法院管辖范围的决定。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-16-194444.jpg)
-据悉，此前，中共曾没收郭文贵先生在中共国及香港的所有财产共计130多亿美金，现在又利用已被蓝金黄多年的美国司法系统，向郭文贵先生罚款2.6亿美金。为与中共抗争到底，并向世界展示中共蓝金黄美国法律体系的可怕影响，郭文贵先生毅然决定不与PAG和解，并于美国时间2月15日向法院提出个人破产申请，绝不会缴纳罚款并将继续上诉。
+文字版原文：[德国总理在制裁俄罗斯问题上倾向美国](https://gnews.org/zh-hans/1977398/)
 
-诺拉时评指出，LadyMay原价2700万美金，但法庭判决1.34亿美元罚款，在美国历史上是首次突破法律，已远超船本身的价值向个人发出罚款命令。
-
-另据《商务时报》和《彭博社》等媒体报道，郭文贵先生居住多年的曼哈顿公寓于2月16日，在塞雷娜·博德曼（Serena Boardman）网站上以4500万美元的价格出售，比2015年的购买价少了约2300万美元。而拥有该公寓的实体Genever Holdings在2020年已申请破产保护，前破产法官梅兰妮·西加诺夫斯基（Melanie Cyganowski)被安排处理该公寓的出售过程。
-
-[新闻来源](https://www.businesstimes.com.sg/real-estate/nyc-condo-listed-at-us45m-housed-exiled-chinese-tycoon?amphttps://www.youtube.com/watch?v=ZlkaNjk0fU0)
-
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

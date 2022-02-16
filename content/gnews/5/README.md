@@ -2,26 +2,31 @@
 ---
 
 
-## 樱花FM┃震惊业界：上海私募基金经理高杉失踪
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2014143/)
+## 新冠团伙无法承担后果：死亡人数众多，疫苗无效
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2014227/)
 
-音频：东京樱花团/战友520
-![](https://lh6.googleusercontent.com/Bx4keum2A--EQ_h5SdcwjLs7nWEr144eTDjCcs-FLruH8nv4XUOM3cXoxAJmWcB_1QDwf-ZWJPDpBbT6kmJaPjeHb5CNuq6ogQNHZFZsb4svx0BAwE72voHQT0D_Sa3-xLOlIJ9P)
-2022年2月8日上海某私募机构实控人、基金经理高杉失踪的消息震惊金融圈，并登上百度热搜榜。据上海第一财经2月8日报导，高杉在1月10日滨江夜跑时失踪的消息在基金圈传开。警方日前从黄浦江里打捞出一具尸体，8日通知家属认尸。
+[![](https://express.adobe.com/page/QQ27EWhS4SvOp/images/a02f1e00-7a93-4c36-a5b6-a4c4a2f78245.png?asset_id=3e5a18df-8730-4586-a698-e19abd6c29cf&amp;img_etag=%22ec78681079e0a5984bb7878357de5c49%22&amp;size=2560)](https://express.adobe.com/page/QQ27EWhS4SvOp/images/a02f1e00-7a93-4c36-a5b6-a4c4a2f78245.png?asset_id=3e5a18df-8730-4586-a698-e19abd6c29cf&amp;img_etag=%22ec78681079e0a5984bb7878357de5c49%22&amp;size=1024)
+**简评：**
 
-2月8日上午，熟悉高杉的公司同事表示，高杉于1月上旬失踪，公司向警方报警，并在1月中旬前后减仓应对客户赎回。警方已介入调查，并联系高杉家属进行DNA比对。此前，高杉的个人公众号几乎每周都会更新市场策略（亲自执笔），但从1月1日至今未有更新。
+新冠疫情暴露了联邦卫生机构、医学期刊、医疗机构，还有国际组织中的大量腐败。这些COVID团伙没有推行早期治疗，导致大量的人员死亡，美国大约90万，全球超过550万，而且疫苗不起作用。因为媒体和科技巨头是新冠大流行的同谋，而这些团伙不愿意承认错误和失败，证明这些人的错误将会很难。
 
-熟悉高杉的机构、企业人士表示，他为人随和，在投资方面经历了多轮市场牛熊周期。8日的华铭智能公告称，近日华铭智能无法与公司独立董事高杉先生取得联系，其处于失联状态，高杉失联的具体情况尚需等待调查结果。截至目前，公司尚未能了解到高杉失联的具体原因。
+GETTR视频链接：[https://gettr.com/post/ptxx5s7633](https://gettr.com/post/ptxx5s7633)
 
-公开资料显示，高杉拥有10多年证券从业经验，先后在泰信基金、上投摩根基金和国泰基金工作，从行业研究员做到绝对收益基金经理。2013年9月，高杉创办上海倍霖山投资管理有限公司，任总经理、投资总监等职务。2014年他取得了阳光私募牌照。2018年3月，高杉任泰诚资本管理有限公司的投资总监，2020年6月任安徽明泽投资管理有限公司投资总监、高级合伙人至今。2021年，高杉成为上海环懿投资的实控人、首席投资官。今年1月之前，他的公司管理的资金规模接近40亿元。
+GTV视频链接：[Senator Ron Johnson:COVID團伙他們承擔不起真相的後果,死去的人數太多](https://gtv.org/video/id=62077730b0af02660af2b96a)
 
-**年轻帅气掌管40亿资产的私募基金经理，失踪1个多月后从黄浦江里被打捞上来，让人不得不联想到另一个人——叶简明，这是否是白手套们被消失的套路？惋惜也罢，痛骂也罢，跟着CCP走进火葬场。**
+**视频字幕：**
 
-文字版原文：[震惊业界：上海私募基金经理高杉失踪](https://gnews.org/zh-hans/1977125/)
+**Ron Jonson：**COVID揭露了我们的联邦卫生机构、医学期刊、医疗机构，当然还有国际组织中的大量腐败。我们需要做大量的工作，我认为造成的破坏正在暴露。真相逐渐浮出水面。这些人，我称之为COVID主宰，让我们称其为COVID团伙吧。他们承担不起真相的后果。死去的人数太多，美国大约90万，全球超过550万。他们错了，他们没有推行早期治疗。疫苗不像我们期望和祈祷的那么安全、那么有效。他们不愿意承认这一事实，他们还在坚持自己对大瘟疫失败的管理。他们不会承认自己的错误。问题是，因为媒体和大科技巨头是（真相）掩盖和（信息）审查的同谋，所以他们也不会揭露实情，所以证明这些人的错误将是一件很难的事情。
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+*编辑：【英国伦敦喜庄园编辑部】*
+
+*字幕：雨中漫步|听写：云岭|翻译：Roberts| 校对：Blue|简评/文字整理/编辑：胖丁| Page：小六月*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
+
+[![](https://express.adobe.com/page/QQ27EWhS4SvOp/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://express.adobe.com/page/QQ27EWhS4SvOp/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

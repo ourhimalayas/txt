@@ -2,42 +2,47 @@
 ---
 
 
-## 两名少年接种第二针辉瑞疫苗几天后死在床上
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2014013/)
+## NeilYoung 不敌Joe Rogan, 疫苗真相终会大白天下
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/2014160/)
 
-**翻译**：**Lulumi**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip两名少年接种第二针辉瑞疫苗几天后死在床上.png)图片来源：infowars.com
-研究报告指出：这两个男孩都是在家中被宣布死亡，没有尝试过抢救。
+作者：Rebecca (一切心皆不可得！)
 
-彼得·麦卡洛博士警告说：父母和孩子应该意识到会有更多的死亡发生。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Picture1-10.png)
 
-根据临床病理学研究人员发布的一项研究，辉瑞公司的实验性中共病毒Covid-19疫苗注射剂的第二剂导致两名少年死亡。
+图片来自网络
 
-该论文由耶鲁大学和密歇根大学的法医共同撰写，知名心脏病专家彼得·麦卡洛博士周二在社交媒体上强调。
+2022年2月13日，最新消息，Neil Young又悄悄地回到了Spotify 平台。几周前，Neil Young、Joni Mitchell 和 Paul Simon 等音乐家都决定从 Spotify 上撤下他们的音乐，声称播客主持人乔-罗根（Joe Rogan）一再播放关于中共病毒大流行、疫苗、和其他问题 – 正在损害社会，而 Spotify，不编辑或事实检查播客，纵容了这一行为。 大有不把乔罗根拉逐出SPOTIFY不罢休的气势。
 
-麦卡洛警告说：“父母和孩子们应该知道将会发生更多的死亡。”
+1月11日，乔-罗根（Joe Rogan）与喜剧演员蒂姆-狄龙（Tim Dillon）的一期节目中，罗根说，有相当多的人在接种中共病毒疫苗后，出现了严重不良反应。他认识的至少15个接种疫苗后，出现了月经问题、中风、神经系统疾病、慢性疲劳等不良反应。
 
-周二发表在《病理学和实验室医学档案》医学杂志上的一篇论文研究了这两名十几岁男孩的尸检结果，他们的名字、年龄和地点都没有透露。
+按千分之一的不良反应计算的话，现在整个国家数以亿计的人接种疫苗时，就会有很多人出现不良副作用。
 
-这两名男孩“在接受辉瑞-生物科技公司COVID-19疫苗第二剂后3天和4天被发现死在床上，”该论文指出，“这两名男孩在家中被宣布死亡，没有试图进行抢救。”
+但是，疫苗不良反应报告系统（VAERS）的不良反应报告率却很低。
 
-研究人员发现，这两名男孩的致命心肌炎诊断并不“典型”，更接近于中毒性心肌病。
+同时，社交媒体公司对疫苗伤害的审查，压制了中共病毒疫苗真相的报道。
 
-科学家们写道：“显微镜检查显示了类似于儿茶酚胺诱导的损伤的特征，而不是典型的心肌炎病理，”他们补充说，他们的工作可以在未来使其他病理学家受益。
+比如，抖音（TikTok）上有个高中生因接种中共病毒疫苗后得了心肌炎，好像是个运动员。他在医院里，有数百万次的播放。但很快抖音删除了该视频。理由是：因为该视频不符合叙事方式。更令人震惊的是，他们认为自己在做善事。非常糟糕。
 
-“在这些疫苗接种后的心脏中看到的心肌损伤与典型的心肌炎不同，其外观最接近于儿茶酚胺介导的应激性（毒性）心肌病。了解这些情况与典型的心肌炎不同，以及细胞因子风暴与儿茶酚胺有已知的反馈回路，可能有助于指导筛选和治疗”。
+罗根也说，他朋友好友的女儿14岁，接种中共病毒疫苗后，立即出现了呼吸衰竭，进了重症监护室，生活被搞得一团糟。
 
-**新闻来源**：[infowars.com][Two Teen Boys Found Dead in Bed 3 & 4 Days After Receiving Second Dose of Pfizer COVID-19 Vaccine](https://www.infowars.com/posts/two-teen-boys-found-dead-in-bed-3-4-days-after-receiving-second-dose-of-pfizer-covid-19-vaccine/)
+最后，罗根说，制药公司总是在历史上对不良的副作用撒谎，以赚取利润。
 
-* * *
+在过去，辉瑞公司是被罚款最多的公司之一。
 
-***审核：文乐
-校对：花羽
-发布：信心满满***
+NeilYoung无可奈何地回归，是否标志着对疫苗真相发起的攻击开始节节败退？
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-4.jpeg)
+备注：
+
+- 疫苗：是指新冠疫苗
+- 中共病毒：是指新冠病毒Covid-19
+- Covid疫苗本身就是随时爆发的病毒
+- 我们不反疫苗，只针对假疫苗
+- 我们不反科学，只针对反人类
 
 
+新闻来源链接：[Joe Rogan Says He Personally Knows 15 People Who Suffered Serious Adverse Reactions To The COVID-19 Vaccines](https://thecovidworld.com/joe-rogan-says-he-personally-knows-15-people-who-suffered-serious-adverse-reactions-to-the-covid-vaccines/)
+
+*上传排版：**Hong*
 
  
 

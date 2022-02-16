@@ -2,53 +2,24 @@
 ---
 
 
-## 瑞典双金选手批评中共侵犯人权 不应举办冬奥会
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2011758/)
+## 樱花FM┃中美贸易战：数据曝北京采购承诺存巨大缺口
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2012270/)
 
-作者：纽约香草山教育部—Noemi
+音频：东京樱花团/战友520
+![](https://lh4.googleusercontent.com/wZ5DXCRhAE5R6Sn11uIIh4BlJ-mxMpOmQQtlx7z7o3RwoFb2M17H9Dnr1nz0wl2WoASTCrlJ2BveiCwh1q1rcmswLyyqMcdut_-SP2KrPW2gC_2qL9SqRq95fjWAdrk3HneNqk7s)
+美国12月对中共国货品出口下降，远远未兑现前总统川普时期中美两国达成的“第一阶段”贸易协议中作出的两年采购承诺。美国普查局周二（2月8日）表示，美国2021年与中共国的货物贸易逆差扩大450亿美元或14.5%，达到3,553亿美元，是2018年创下4,182亿美元记录以来的最大逆差。而2020年对华贸易逆差则达到3,103亿美元，在疫情的影响下创下了10年来最低。该数据显示，中共国远远没有兑现在2017年基础上，增购价值2,000亿美元的美国农产品、制成品、能源和服务的承诺。
 
+美国前总统川普执政时，签署的第一阶段贸易协议阻止了世界上最大的两个经济体持续了将近三年的贸易战进一步升级，但保留了双方针对对方数千亿美元的产品进口实施的关税。该贸易协议于2021年底到期，中共国承诺将在两年内额外购买价值2,000亿美元的美国商品，但并未实现此目标。
 
+彼得森国际经济研究所资深研究员鲍恩（Chad Bown）对美国普查局的数据分析称，中共国仅兑现了两年商品和服务采购目标的57%。他指出，北京对第一阶段所协议的商品、能源和服务的购买规模甚至不足以回到中共国2017年对美国采购的基线水平。受到报复性关税影响，中共国对美国商品的采购在2018和2019年减少了43%。鲍恩说：“换句话说，中共国没有购买协议中承诺的额外2000亿美元的出口。”并称，中共国对美国农产品的购买量超过了2017年的基线规模，但只达到了739亿美元，是该类产品两年增购目标的83%。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+向中共国出口服务曾是美国贸易的亮点之一，但由于中共病毒疫情削减了中共国赴美旅游和商务旅行，中共国学生前往美国留学的数量也减少，服务出口急剧下降，只达到目标的52%。美国官员周一早些时候还告诉路透社，他们希望中共政府采取具体行动，弥补其购买承诺的不足。若中国官员“显示出就其购买承诺达成协议严肃看待”，他们将继续目前的会谈。
 
+文字版原文：[中美贸易战：数据曝北京采购承诺存巨大缺口](https://gnews.org/zh-hans/1979734/)
 
-
-外媒15日报道，本届冬奥会长道速滑双金获得者，瑞典明鉴尼尔斯·范德普尔在归国后发表评论称，让中共这样严重侵犯人权的国家举办奥运，是极度不负责任的行为。
-
-范德普尔曾说不方便在冬奥会前，发表他对北京冬奥会的反对意见，因此，在回到瑞典之后，他对中共严重的侵犯人权，公开了自己的看法。但他仍然认为自己目前还不能够说的太多，因为他的国家还有其他运动员仍然在北京参加比赛。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-8.jpg)
-范德普尔表示自己比较了希特勒在入侵波兰之前举办的奥运会，以及俄罗斯在入侵乌克兰之前举办的冬奥会，认为中共治下的本届北京冬奥会和他们一样，根本不应该由这些严重侵犯人权的政权主办奥运赛事。
-
-此前，郭文贵先生曾经预言，所有前去参加冬奥会的运动员都相当于新中国联邦派去中共的侦查员，他们会在中共冬奥会上见识到种种的虚假和丑恶，不遗余力地传播到各个国家中去，并将终生成为坚定的灭共者。
-
-参考链接：
-1. [瑞典冬奥双金选手批中共侵犯人权 不应办奥运](https://www.epochtimes.com/gb/22/2/14/n13576539.htm)
-2. [Nils van der Poel saw the Olympic Games in China – dare to tell after the gold](https://newsbeezer.com/swedeneng/nils-van-der-poel-saw-the-olympic-games-in-china-dare-to-tell-after-the-gold/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-
-总编：天滅中共
-编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
