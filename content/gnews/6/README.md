@@ -2,22 +2,73 @@
 ---
 
 
-## 樱花FM┃议员倡公仆考习近平思想 处理多国籍问题
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2012314/)
+## 众议员莫·布鲁克斯推《中共国COVID-19赔偿法案》
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2012456/)
 
-音频：东京樱花团/战友520
-![](https://lh3.googleusercontent.com/JqvLRueqDRckP-y8EGG8qbvdvO1aDlzVxjjmDG6iKQzpwviDa1Vpu3KB8HQRXHwHTw3FfyN7vc1yciO7Nh6VhXGdqNgI0-s2cso4oe-UuimyDE39vIMuSzknMGzB_PZ_KaBjeOxK)
-今日立法会期间多名议员关注公务员招聘及培训等议题，选委界议员陈曼琪不断追问，新公务员招聘期间的考核内容，会否包含中共国特色社会主义法治思想、习近平法治思想，并要求港府评估公务员爱国忠诚，增加对公务员的国籍要求，研究如何处理公务员持有BNO护照等的情况。
+> 众议员莫·布鲁克斯：[#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw) 撒谎，人民死亡。我希望共产主义中国向受到伤害的美国人赔偿，因为他们制造了 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hash&amp;ref_src=twsrc%5Etfw) 之后还撒谎掩盖从而伤害了美国人。
+> 【附中字视频】 [https://t.co/N2vG2vMj8e](https://t.co/N2vG2vMj8e) [pic.twitter.com/2tcrnnTUAS](https://t.co/2tcrnnTUAS)
+> — 美国政要直译推 (@zhiyitw33) [February 16, 2022](https://twitter.com/zhiyitw33/status/1493784086158086148?ref_src=twsrc%5Etfw)
 
-香港的立法会选举制度被中共篡改，今界的立法会选出的是清一色挺习的建制议员，与港府的高官势同水火，经常借势教港府做事，甚至刁难和羞辱出席议会的高官，港府曾幻想没有民主派的议会能与之同舟共济和睦同居，现实却被无数次狠狠回击。今日的立法会依旧充满批判的火药味，有议员不满高官仅在公务员培训在中纳入习思想，提出要将习近平思想加入公务员招聘的考核中，并将其广泛成为影响香港公务员入职、考评和晋升的必要条件。这些议员为了偷习所好都语无伦次了，完全不考虑到人是有独立思想的，即使中共党校培养出来的党员也绝无忠心可言，所有人只不过借中共体制达成自己想要的罢了。
 
-议员们还要求港府处理公务员双重国籍的问题，尤其是持有英国BN(O)护照的。BN(O)护照是港英政府在离开前留给香港人一个福利，所有97年前出生的港人均可申请。当时的BN（O）持有者在英国只有旅游者的身份，但许多人仍争相申请，当然包括香港的公务员。时至今日，BN（O）护照已进化成为港人的救生艇，帮助众多逃离香港的人在英国安居，对于公务员而言，BN（O）护照是他们进退自如的保护伞，因此港府一直对此采取回避的态度，即使宣誓效忠中共也不因此而受影响。中共早前已公开拒绝承认BN（O）护照，但却一直对港人坚持持有BN（O）愤愤不已，当务之急从公务员下手剥夺他们的BN（O），才有机会想全港开刀，全面“洁净“港人的国籍。
 
-文字版原文：[议员倡公仆考习近平思想 处理多国籍问题](https://gnews.org/zh-hans/1979378/)
+众议员马乔丽·泰勒·格林：
+如果共和党人无法阻止大科技审查，那么共和党人还能做什么？
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+大科技公司在审查他们不喜欢的政治观点上做得太过了，它在压制真相。
+
+如果我们不能为保护真理而战，那还有什么可做的？
+
+共和党人到底是为了什么（而存在）？
+
+
+
+> If Republicans can’t stop Big Tech Censorship, then what can Republicans even do?
+> 
+> Big Tech has gone way past censoring political opinions they don’t like, it’s silencing truth.
+> 
+> If we can’t fight to protect truth then what else is left?
+> 
+> And what are Republicans even for?
+> — Rep. Marjorie Taylor Greene (@RepMTG) [February 16, 2022](https://twitter.com/RepMTG/status/1493770857855995904?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿迈克.蓬佩奥：
+社会主义行不通。 我在巡视 铁幕（指昔日西欧与中东欧共产党执政国家之间想象的屏障）时亲眼目睹了它——我知道它不会带来任何好处。
+
+
+
+> Socialism doesn’t work. I saw it firsthand when I patrolled the Iron Curtain — and I know nothing good comes of it.
+> — Mike Pompeo (@mikepompeo) [February 16, 2022](https://twitter.com/mikepompeo/status/1493765787621888007?ref_src=twsrc%5Etfw)
+
+
+
+比尔.格茨：
+作为阻止解放军进入美国证券市场的新政策的一部分，美国财政部将对 59 家中共国军工公司实施制裁
+【附比尔.格茨发布华盛顿时报报道：美国新的制裁规则打击了数十家中共国军工企业】
+
+
+
+> Treasury Department codifies sanctions on 59 Chinese military companies as part of a new policy blocking PLA from US securities markets [https://t.co/nDSNRttMHG](https://t.co/nDSNRttMHG)
+> — Bill Gertz (@BillGertz) [February 15, 2022](https://twitter.com/BillGertz/status/1493720810183282688?ref_src=twsrc%5Etfw)
+
+
+
+众议员帕特·法伦：
+
+中国是芬太尼的主要原产国——他们在我们的南部边境将其倾注进入美国。
+
+还认为边境危机不是国家安全威胁吗？
+
+
+
+> China is the primary country of origin for fentanyl – and they're pumping it into the America at our southern border.
+> 
+> Still think the border crisis isn't a national security threat?
+> — Rep. Pat Fallon (@RepPatFallon) [February 15, 2022](https://twitter.com/RepPatFallon/status/1493690831139528704?ref_src=twsrc%5Etfw)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
