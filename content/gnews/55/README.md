@@ -2,24 +2,37 @@
 ---
 
 
-## 日本首相与乌克兰总统电话会谈 日方将提供高额贷款援助
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2008710/)
+## 美科学家称中共病毒来自武汉病毒研究所
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2012234/)
 
-撰稿:东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1499.png)[图片来源](https://newsatcl-pctr.c.yimg.jp/r/iwiz-amd/20220215-00000132-reut-000-3-view.jpg?exp=10800)
-2月15日晚，岸田文雄首相就目前俄乌紧张局势，与乌克兰总统泽连斯基通话，并表示准备提供至少1亿美元的贷款援助。
+作者：纽约磐石农场—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月10日，据盖特消息显示，美国国会众议员斯卡里斯在接受采访时表示，那些支持中共病毒实验室起源的科学家们应该针对病毒溯源问题前往国会作证。
 
-同日，岸田首相与欧盟委员会主席和乌克兰总统分别举行了电话会谈。日本首相透露，两位领导人同意将通过外交努力来缓解紧张局势。同时，首相表明如果俄罗斯入侵乌克兰，日方将与包括七国集团在内的国际社会合作，采取适当措施，包括制裁。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide5-10.jpeg)
 
-岸田首相还明确向两位领导人重申，支持乌克兰的主权和领土完整。
+斯卡里斯提到，他在与其他议员调查中共病毒起源时发现，包括福奇的高级顾问在内的许多科学家都认为中共病毒来源于武汉病毒研究所。然而，在他们参与了福奇召开的电话会议后，这些学科家们纷纷转变了态度。同时，大多数与会科学家在其后的时间里陆续获得了数百万美元的联邦拨款。
 
-虽然“贷款援助”总觉有点隔靴搔痒，但也算是个态度吧。毕竟中共病毒已让日本财政捉襟见肘了。
+斯卡里斯强调，美国政府应该就中共病毒起源问题举行国会听证会，而这些改口的科学家们也必须在听证会上接受质询。即使佩洛西议长一直阻挠该听证会的举行，但众议院一定会挖出有关中共病毒来源的真相。
 
-信息源：[1億ドル規模を借款で支援、岸田首相がウクライナ大統領に伝達](https://news.yahoo.co.jp/articles/7ad075d60b1f84ba97aff8e411a8bc3f0d3a9620)
+参考链接：
+[https://gettr.com/post/ptm6ez6d3a](https://gettr.com/post/ptm6ez6d3a)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+
+总编：Irene木木
+编辑：宁文静
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

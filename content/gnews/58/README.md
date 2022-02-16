@@ -2,35 +2,34 @@
 ---
 
 
-## 雅虎新闻：北京冬奥会圣火“熄灭”引起轩然大波
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2008228/)
+## 郭先生解读中共卖国本质与习近平神隐真相
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2012014/)
 
-翻译：宫米叶
+作者：纽约磐石农场 – 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月15日，郭文贵先生在一则盖特视频中向战友们解读了中共卖国贼的本质，以及习近平称病神隐，实则暗中密谋攻打台湾的计划。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-70.jpg)
+郭先生表示，共产党一向中西勾兑、内外勾结，他们才是真正的卖国贼。此外，为了保护几个家族的利益以及平息高层内部的政治斗争，中共对内蒙蔽百姓，对外通过“蓝金黄”危害各国政府和相关机构。然而，中共的所作所为最终都将由中国人买单。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/00-1644861349151.png)Photo by David Ramos/Getty Images
+另一方面，郭先生也提到，习近平正与相关人物密谋针对台湾的战争。为此，习谎称身体有恙，其实正在暗中酝酿对台的作战计划。同时，中共将在北京冬奥会期间把对西方的3F计划执行到底。
 
-北京冬奥会期间，人们目睹“火焰过弱”的圣火因暴风雪而“熄灭”的疑惑浮出水面，引起了轩然大波。
+郭先生补充道，爆料革命通过反复的示警已经唤醒了世界，在全球巨变的过程中，中共随时会被彻底地打击和消灭，但海外华人再次期间一定要警惕随时可能爆发的排华大灾难。
 
-据美媒“今日美国”报道，受大雪影响进行中的北京奥委会“圣火已灭”，该报指出：“由于北京的狂风暴雪，奥运圣火可能已被吹灭。”并配以熄火的圣火台照片。
+参考链接：[2/14/2022 文贵盖特：习近平称病神隐，暗中准备打台湾；中共是真正的卖国贼 – 跟黑暗势力勾结、盗走中国人的财富、出卖中国的领土、对内洗脑、对外挑起排华；只有爆料革命向全世界提前揭露了中共的邪恶计划，新中国联邦力量无限大！](https://www.gettr.com/post/puktcoe6ce)
 
-圣火于奥运会期间熄灭非同小可。国际奥委会规定，奥运圣火只可在希腊奥林匹亚的赫拉神庙引阳光点燃。因此，圣火绝不允许于会期内熄灭，万一发生，也须从希腊调取备用火种。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-正因此背景，北京冬奥会组委会坚决否认圣火熄灭，称“目前火焰状态没有问题”，认为“恐怕是视线受影响”及“眼睛的错觉”。圣火在“今日美国”圣火台熄火照刊载后再度点燃，组委会强调从始至终无异常。
+总编: Irene木木
+编辑： 静言
+校正/发稿：Fei797
 
-围绕本次冬奥圣火，火炬接力者在开幕式上将手中传递的火炬直接插在圣火台上的表演也引发热议。虽然是以小火焰减排二氧化碳以实现“绿色奥运”为目的，但同时也引起担忧“火焰过弱”的指摘。
-
-目前复燃的北京冬奥圣火难道“货真价实”吗？这似乎又酝酿出新争议。
-
-**参考资料：**[news.yahoo][北京五輪の聖火が〝消えた〟疑惑浮上で大波紋](https://news.yahoo.co.jp/articles/f186d3286fbaa686e8f87fe6bdcb6f259bcfc7a2)
-
-* * *
-
-*审核：天天*
-*校对：zicoround*
-*发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-2.jpeg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

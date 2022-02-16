@@ -2,73 +2,29 @@
 ---
 
 
-## 众议员莫·布鲁克斯推《中共国COVID-19赔偿法案》
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2012456/)
+## 有声｜大陆中小银行股权拍卖遇冷 近六成流拍
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2013568/)
 
-> 众议员莫·布鲁克斯：[#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw) 撒谎，人民死亡。我希望共产主义中国向受到伤害的美国人赔偿，因为他们制造了 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hash&amp;ref_src=twsrc%5Etfw) 之后还撒谎掩盖从而伤害了美国人。
-> 【附中字视频】 [https://t.co/N2vG2vMj8e](https://t.co/N2vG2vMj8e) [pic.twitter.com/2tcrnnTUAS](https://t.co/2tcrnnTUAS)
-> — 美国政要直译推 (@zhiyitw33) [February 16, 2022](https://twitter.com/zhiyitw33/status/1493784086158086148?ref_src=twsrc%5Etfw)
+**By:秘翻新闻**
 
+***2022-02-16***
+![](https://assets.gnews.org/wp-content/uploads/2022/02/7777777.jpg)
+[大纪元](https://www.epochtimes.com/gb/22/2/15/n13578120.htm)2月15日消息。在大陆互联网拍卖平台，有很多城商行、农商行等的中小银行股在拍卖，但有近六成流拍。
 
+据阿里拍卖网2月15日显示，中原银行5000万股挂在网上变卖，同时，还有宁波宁海农村商业银行股份有限公司4077股的股权、曲靖市商业银行股份有限公司2,843,750元股权、泉州农村商业银行股份有限公司内部员工股949,66股等几十家银行股权在拍卖。
 
-众议员马乔丽·泰勒·格林：
-如果共和党人无法阻止大科技审查，那么共和党人还能做什么？
+但在当前银行股权拍卖市场中，流拍已成为一个明显现象。据《第一财经》记者统计，自2月以来，共有92笔银行股权被拍卖，其中，流拍的占比近六成。
 
-大科技公司在审查他们不喜欢的政治观点上做得太过了，它在压制真相。
+光大银行金融市场部分析师周茂华认为，银行股权拍卖出现流拍主要有三方面原因，其中，最主要的还是与银行自身经营状况、前景有关。
 
-如果我们不能为保护真理而战，那还有什么可做的？
+另据《财经》杂志第632期刊发的《一年“消失”20多家银行，4000家中小行路在何方？》一文显示：“2020年以来，已经有20多家中小银行完成或正在经历合并重组。”
 
-共和党人到底是为了什么（而存在）？
+(秘翻新闻 二丫 编译报导)
 
+发布:星星
 
-
-> If Republicans can’t stop Big Tech Censorship, then what can Republicans even do?
-> 
-> Big Tech has gone way past censoring political opinions they don’t like, it’s silencing truth.
-> 
-> If we can’t fight to protect truth then what else is left?
-> 
-> And what are Republicans even for?
-> — Rep. Marjorie Taylor Greene (@RepMTG) [February 16, 2022](https://twitter.com/RepMTG/status/1493770857855995904?ref_src=twsrc%5Etfw)
-
-
-
-前国务卿迈克.蓬佩奥：
-社会主义行不通。 我在巡视 铁幕（指昔日西欧与中东欧共产党执政国家之间想象的屏障）时亲眼目睹了它——我知道它不会带来任何好处。
-
-
-
-> Socialism doesn’t work. I saw it firsthand when I patrolled the Iron Curtain — and I know nothing good comes of it.
-> — Mike Pompeo (@mikepompeo) [February 16, 2022](https://twitter.com/mikepompeo/status/1493765787621888007?ref_src=twsrc%5Etfw)
-
-
-
-比尔.格茨：
-作为阻止解放军进入美国证券市场的新政策的一部分，美国财政部将对 59 家中共国军工公司实施制裁
-【附比尔.格茨发布华盛顿时报报道：美国新的制裁规则打击了数十家中共国军工企业】
-
-
-
-> Treasury Department codifies sanctions on 59 Chinese military companies as part of a new policy blocking PLA from US securities markets [https://t.co/nDSNRttMHG](https://t.co/nDSNRttMHG)
-> — Bill Gertz (@BillGertz) [February 15, 2022](https://twitter.com/BillGertz/status/1493720810183282688?ref_src=twsrc%5Etfw)
-
-
-
-众议员帕特·法伦：
-
-中国是芬太尼的主要原产国——他们在我们的南部边境将其倾注进入美国。
-
-还认为边境危机不是国家安全威胁吗？
-
-
-
-> China is the primary country of origin for fentanyl – and they're pumping it into the America at our southern border.
-> 
-> Still think the border crisis isn't a national security threat?
-> — Rep. Pat Fallon (@RepPatFallon) [February 15, 2022](https://twitter.com/RepPatFallon/status/1493690831139528704?ref_src=twsrc%5Etfw)
-
-
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMAGE-2021-12-13-113746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

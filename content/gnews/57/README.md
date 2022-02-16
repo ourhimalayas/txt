@@ -2,22 +2,34 @@
 ---
 
 
-## 美邀请韩国加入印度·太平洋多边合作体系
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2008437/)
+## 中共病毒疫苗即将引发世界变局
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2012035/)
 
-撰稿：东京樱花团/风翼
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1497.png)图片来源于网络
-据中央日报报道：美国国务院负责日本和韩国事务的副助理国务卿马克-兰伯特在2月15日，在韩美联盟基金会组织的一个论坛上说：”如果我们在印度洋-太平洋地区建立一个多边合作体系，韩国将是我们很想并且第一个邀请加入的国家“。
+作者：银河系农场 – 骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在2月11日的大直播中，郭文贵先生再次重申了中共病毒疫苗灾难将导致的严重后果。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3-44.jpg)
+郭先生表示，目前，各国的卫生部门和媒体故意把中共病毒所导致的并发症与中共病毒疫苗的副作用混淆，但此举只会给这些浑水摸鱼者添加更多的罪责而已。在不远的将来，世界不仅要溯源中共病毒的真相，亦会严惩强制中共病毒疫苗接种的政府、媒体及大药厂等机构。最终，中共病毒疫苗灾难必将导致世界政治、军事和经济的大变局。
 
-副助理国务卿兰伯特对于有人说韩国将被排除在AUKUS和四方（日本-美国-澳大利亚-印度战略对话）之外，表示说“不认为是事实，韩国是G20国家，拥有最强大的军队。说它是全世界最强大的军队一点也不夸张，韩国的加入是强大的助力”。兰伯特指出，因为印度-太平洋地区非常重要性，希望建立一个包括韩国、日本、美国、澳大利亚和东盟10东盟国家的强大机制。
+郭先生也提到，相对的，爆料革命一直在病毒问题上向世界预警，从最初的中共释放生物武器冠状病毒，到后来的中共病毒疫苗灾难。期间，灭共的浪潮也从小声音发展成了大趋势。未来，出于政治的需要，一些持亲共立场的组织必将转变其态度。
 
-他还说，关于美国告诫日、韩两国要友好的时代将被韩国和日本在共同理解的基础上自愿改善关系所取代。表示韩国和日本之间的良好关系，将使美国安全上得到更好的保障。特别是3月份韩国将举行总统选举，而新总统上任前的两个月时间是至关重要的。而在此期间积极与新总统建立良好关系并能协调安全政策。
+为此，郭先生告诫战友称，大家不必担忧世界当下所呈现出来的某些疯狂现象，这些现状只能加速邪恶力量的灭亡。
 
-信息来源：[米国務省日韓担当副次官補「韓国はＧ２０の中で最も強い軍隊保有…クアッドなどから疎外されないだろう」](https://s.japanese.joins.com/JArticle/287797)
+参考链接：[2/13/2022 文贵直播：疫苗灾难将导致世界政治、军事和经济大变局；中共、大药厂和推行疫苗强制令的人终将被审判；战友们请放心，世界绝大多数人都要灭共并查清病毒和疫苗的真相](https://gettr.com/post/pudyihfe7a)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+
+总编: Irene木木
+编辑： 静言
+校正/发稿：Fei797
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
