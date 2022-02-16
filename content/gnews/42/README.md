@@ -2,52 +2,24 @@
 ---
 
 
-## 中共网约车巨头处境艰难，滴滴全面大裁员
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2011767/)
+## 中日财经爆┃多名高管离职 小米虎年以裁员10%开局
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2011828/)
 
-作者：纽约香草山教育部—Naughty(文行)
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-71.png)[图片来源](https://www.aditechonline.com/article/6365131.html)
+近日，小米集团再出裁员传闻，脉脉平台上甚至出现“传小米裁员10%”的话题标签，而裁员对象，可能以新员工或应届毕业生为主。
 
+早在2021年11月，就有小米裁员的传闻，小米计划对非手机业务生态链进行大规模裁撤，裁员比例可能达到20%。12月末，再有小米员工吐槽称，“年初入职小米，绩效是强制百分之10的C，作为新人只能背下组里唯一一个C了，现在领导让等HR联系，像这种情况可以拿n+1吗？”
 
+事实上，除了普通员工，小米管理团队近期也出现波动情况。1月28日，小米集团通过内部文件宣布，原集团副总裁、中国区新零售部总经理尚进以及原集团副总裁、小米手机产品部总经理常程均离职。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+信息来源：
 
+[传小米计划裁员10%，新员工/应届毕业生或成裁撤重点人群\_市场\_手机](https://www.sohu.com/a/522944332_166680)
 
-
-党媒14日报道，中共网约车巨头，”滴滴“传出内部消息，最新的裁员方案已经敲定，预计裁员20%，各部门裁员比例不一，但覆盖面几乎遍及全线业务。
-
-据滴滴内部人士透露指，本次裁员的执行周期会非常短，月底前就会完成通知工作，补偿方案将按法定的N+1标准执行。截至收稿前，滴滴网约车、两轮车、货运等出行业务的负责人都已经陆续收到裁员通知，仅剩自动驾驶、国际化部门暂未受到影响。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture-21.jpg)
-另外，按照市场情况来看，滴滴出行仍然无法注册，App也没有恢复上架，用户及收入持续流失，原本一个季度可以净赚十多亿的生意现在净亏2900万，网约车市场份额也从原来的90％跌至70％。
-
-目前，滴滴的市值是 188.4 亿美元，低于 2016 年的融资估值，与上市后的最高点相比，也降低了大约 75%。随着股价的一路重挫，滴滴员工及股东手中股票价值也将继续大幅缩水。
-
-参考链接：
-1. [滴滴几乎全线业务都将裁员](http://滴滴几乎全线业务都将裁员)
-2. [滴滴出行揮大刀裁員2成 2000名員工失業](https://www.cna.com.tw/news/acn/202202150028.aspx)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-
-总编/编辑：天滅中共
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

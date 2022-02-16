@@ -2,32 +2,26 @@
 ---
 
 
-## 有声｜ 加拿大渥太华警察局长因对抗议事件处理不力而辞职
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2012332/)
+## 中共病毒感染后心血管疾病的风险增加
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2012513/)
 
-**By:秘翻新闻**
+撰稿：东京樱花团/立正道
 
-***2022-02-1*6**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/6-19.png)图片源于：反抗新闻
-据《反抗新闻》2月15日报道，周二，加拿大首都渥太华市警察局局长彼得·斯洛利，因应对卡车司机的和平抗议活动不力而辞职。这些和平抗议活动在渥太华已经持续了近三个星期，批评人士抨击了他对自由车队抗议的处理方式。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/中共病毒感染后心血管疾病的风险增加.png)[图片来源](https://news.yahoo.co.jp/articles/4559c508abfad26cde290f3000a83079e125519f/images/000)
 
-据报道称，和平示威者于1月27日开始抵达这座城市。在渥太华市中心度过了一个周末后，数千人来到这里，表达了他们对疫苗强制命令的反对态度，许多停在市中心街道上的重型卡车和其他车辆并没有离开。
+华盛顿大学一项研究指出，感染中共病毒（新冠病毒Covid-19）后会增加患心脏和血管疾病的风险，该研究发表在美国一家医学杂志上。
 
-报道还指出，许多人批评斯洛利没有采取足够的措施来平息和平抗议，而加拿大的一些政客和所谓主流媒体将和平抗议活动描述为“非法占领”和“围困”。
+7日，美国华盛顿大学利用2020年3月至2021年1月在一家退伍军人医院里，对感染中共病毒后存活30天以上的约15万人的数据发布了研究结果。
 
-渥太华非裔加拿大人协会的负责人赫克托·艾迪生说，斯洛利被当成了替罪羊，因为他根本无力阻止渥太华市中心卡车司机的和平抗议活动。
+无论是严重还是轻微者，感染后第一年患20种心脏和血管系统疾病的风险增加。 与感染前的数据相比，心脏病发作增加了63%，中风增加了52%，心力衰竭增加了72%。调查对象主要是退伍军人的白人男性，他宣称，“一般来说，数据虽然存在缺陷，但足以敲响警钟”。
 
-此前，斯洛利曾因指责卡车司机和支持者的和平抗议活动有害，并宣称他们的活动是“仇恨”和“暴力”的，而饱受各界人士的指责。
+信息来源：
 
-新闻来源[https://www.rebelnews.com/breaking\_ottawa\_police\_chief\_resigns\_source\_sayshttps://torontosun.com/news/local-news/ottawa-police-chief-peter-sloly-resigns-amid-criticism-over-handling-of-convoy-protests/wcm/77251246-1ef8-4278-b0a7-bd0a13992c1c](https://www.rebelnews.com/breaking_ottawa_police_chief_resigns_source_sayshttps://torontosun.com/news/local-news/ottawa-police-chief-peter-sloly-resigns-amid-criticism-over-handling-of-convoy-protests/wcm/77251246-1ef8-4278-b0a7-bd0a13992c1c)
+[コロナ感染後 心臓や血管系の疾患リスクが上昇する可能性を指摘 ワシントン大学](https://news.yahoo.co.jp/articles/4559c508abfad26cde290f3000a83079e125519f)
 
-秘翻新闻 冰糖葫芦喵编译报道
-秘翻新闻 采集/编辑 BT119
-
-发布：恩典
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMAGE-2021-12-13-113746.jpg)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

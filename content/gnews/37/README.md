@@ -2,32 +2,45 @@
 ---
 
 
-## 中日财经爆┃世茂集团欲22亿出售上海深坑酒店还债
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2011907/)
+## 答案不是让我沉默，而是让你做得更好
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2012051/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-13.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https://i.tlaidesign.com/uploads/2019/02/1551063163140379.jpg&amp;imgrefurl=https://www.tlaidesign.com/shanghai-sheshan-shimao-shenkeng-intercontinental-architecture-design-jade-qa.html&amp;tbnid=pktmcxhEVWGMHM&amp;vet=12ahUKEwjv3eewo4P2AhXaEKYKHQxfDooQMygFegUIARCOAQ..i&amp;docid=iM0OKIU9I_whJM&amp;w=1349&amp;h=900&amp;q=%E4%B8%8A%E6%B5%B7%E4%BD%98%E5%B1%B1%E4%B8%96%E8%8C%82%E6%B4%B2%E9%99%85%E9%85%92%E5%BA%97&amp;ved=2ahUKEwjv3eewo4P2AhXaEKYKHQxfDooQMygFegUIARCOAQ)
-继以45亿元出售上海外滩茂悦大酒店之后，地产巨头世茂集团近日又因“挂牌22.5亿元出售深坑酒店”上了热搜。
+据《福克斯新闻》作者： Joseph A. Wulfsohn，2022年2月12日发布：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1532-e1644986170230.png)（摄影：Ronald Martinez /盖蒂图片社|路透社/Lucas Jackson/档案照片/档案照片）
+播客巨头Joe Rogan向传统媒体提供建议，因为让他脱离Spotify平台的努力仍在继续。
 
-近期网传世茂集团将出售上海佘山世茂深坑酒店的消息，并标明“现报价22.5亿对外出售”。该报价信息与此前流出的世茂集团待售资产清单信息一致，该酒店挂牌其评估值为22.5亿元，抵押融资余额为20.73亿元。
+在周四的《The Joe Rogan Experience》节目中，Rogan谈到了各种新闻来源对他的 “问题”，即 “更多的人相信我或信任我或想听我说话”。
 
-公开资料显示，深坑酒店的全称为上海佘山世茂洲际酒店，历时12年打造、总投资超过20亿元，2018年11月正式营业，位于上海市西南郊佘山景区的天马山深坑内，是世茂集团在废弃的采石矿坑壁打造的自然生态酒店。该酒店海拔负88米，是全球人工海拔最低的五星级酒店，还被美国国家地理频道《世界伟大工程巡礼》评为“世界十大建筑奇迹”酒店。
+Rogan表示：“答案不是让我沉默，答案是让你做得更好，答案是你要有更好的论据。当你在电视上谈论我如何服用马用驱虫剂，而你知道那不是真的。”
 
-财务数据显示，2018年深坑酒店收入约为3200万元，2019年实现收入约2.79亿元，2020年实现收入约2.65亿元；2021年上半年实现收入约1.34亿元。近三年累计收入超6亿元。
+Rogan问道：“你应该说的是，Joe Rogan怎么这么快就好了？他怎么会得了杀死所有人的新冠病毒，而他在五天内就好了，五天内就阴性了，六天就锻炼了？为什么从来没有人讨论过这个问题？”
 
-对于世贸集团出售历时十几年打造的豪华酒店，原因则是欠债太多了。
+在澄清了他认为在他与新冠病毒的斗争中他服用的单克隆抗体比伊维菌素对他的帮助更大之后，他把矛头转向了CNN，后者大力宣传 “马用驱虫剂”的谎言。
 
-根据去年上半年年报数据，截至上半年世茂集团的总负债达4636.33亿，其中1200.71亿元为长期借款，短期借款为444.43亿，而其账上的现金及现金等价物仅有747.69亿。
+Rogan讲道：“如果你在做生意，你的生意就是新闻，你想让更多的人关注，你应该诚实，而我对CNN的想法，我对他们的建议……我不恨CNN。我曾经每天都去看他们的新闻，直到他们开始讨厌我。”
 
-另据瑞银报告，世茂集团在2022全年将有价值44亿美元的境内、境外债券以及境外银团贷款到期，且不包括1200亿元人民币的表外债务，世茂集团的负债压力极大。
+Rogan说：“如果你想做得更好，就他妈的改变你的模式，改变你的方式。停止这种编辑视角，像Brian Stelter 和 Don Lemon这样的人，没有人会去听。没有人喜欢插话说，哦，是的，我们终于得到了理性的声音。没有人这么想。”随后Rogan继续说道：“要有能发出有效新闻、客观新闻的人，相反，我会支持你。我会百分之百地转身……我会成为告诉人们我在CNN上看到了这个，在CNN上看这个的人。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1533-e1644986127242.png)喜剧演员Joe Rogan一直受到左翼媒体的抨击。（摄影：Vivian Zink/Syfy/NBCU Photo Bank/NBCUniversal盖蒂图片社）
+去年几位CNN明星指责Rogan服用 “马用驱虫剂”，因为这位播客主持人宣布他患上新冠，并在康复期间服用了医生开给他的伊维菌素，以及其他治疗。
 
-信息来源：
+Rogan后来在一次有争议的采访交流中迫使CNN的首席医学记者Sanjay Gupta博士承认他的同事把他使用伊维菌素说成是牲畜药物是错误的。
 
-[22.5亿出售深坑酒店？昔日巨头世茂集团最新回应](https://finance.sina.com.cn/chanjing/gsnews/2022-02-14/doc-ikyamrna0595561.shtml)
+即使在被指责兜售错误信息之后，CNN仍然不依不饶，在一份声明中声称：“CNN在这里唯一做错的事情是挫伤了一个受欢迎的播客的自尊心，他推崇危险的阴谋论，并为此冒着数百万人的生命危险。”
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+原文连接：[https://www.foxnews.com/media/joe-rogan-to-media-do-better](https://www.foxnews.com/media/joe-rogan-to-media-do-better)
+
+翻译：洛杉矶盘古农场- KY
+
+校对：洛杉矶盘古农场 – Mike Li
+
+编辑：洛杉矶盘古农场 – 柯镇恶
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

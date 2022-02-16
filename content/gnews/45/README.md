@@ -2,10 +2,10 @@
 ---
 
 
-## 德国规划三月放松防疫限制
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2011749/)
+## NBA为取悦中共解雇球员埃内斯·坎特
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2011759/)
 
-作者：纽约香草山医疗部 – 云豹
+作者：日本方舟农场—Miyale7768(文玉)
 
 
 
@@ -13,18 +13,17 @@
 
 
 
-台媒14日报道，德国政府计划从三月开始，逐步放松防疫的各种限制。包括解除私人见面的人数限制，放宽出入公共场合必须出示疫苗接种证明的要求等等。
+外媒11日报道，NBA为取悦中共，最近突然解雇了球员埃内斯·坎特。 坎特曾多次在推特上，抨击中共在新疆、西藏、香港问题上严重践踏人权的暴行。这些批评言论顯然让NBA在面對中共時感到害怕，因为他们在和中共的合作中，通過中共血腥压迫人民，赚取了每年数百万美元的利润。
 
-预计在3月20日前，德国将完成解除大部分对民众在社交、经济、以及文娱活动方面的各种限制，民众只需戴好医疗口罩，做好基本的个人防护即可。
-
-在过去的一段时间内，德国政府规定，所有民众在进入酒吧与餐厅前，除了要提供完全接种疫苗的证明，或者是染疫后康复者的证明外，还需提供疫苗加强剂的接种证明以及病毒阴性筛查证明，另外，私人聚会也被要求控制在10人以内。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-7.jpg)
+對此，埃内斯·坎特在接受媒体采访时说：“我不在乎我是否被禁止或者被罚款，我是一名篮球运动员，但我认为我所做的事情比篮球更重要。明確自己是在为无辜的人做正確的事情，总是会额外為自己帶來更多的希望和动力。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-8.jpg)
 参考链接：
-[德國規劃3月解除多數防疫限制 沒打疫苗也能進餐廳](https://www.cna.com.tw/news/aopl/202202140376.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+[NBA Wants No Part of Freedom: China Critic Bounced Out of the League](https://newsbusters.org/blogs/culture/jay-maxson/2022/02/11/nba-wants-no-part-freedom-china-critic-bounced-out-league)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
 
-总编/编辑：飞虹
+总编：天滅中共
+编辑：飞虹
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**

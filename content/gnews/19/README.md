@@ -2,57 +2,36 @@
 ---
 
 
-## 布拉德：数字表明通胀正在扩大
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2012724/)
+## 前联合国大师抨击谷爱凌：代表自由还是人权侵犯
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2012984/)
 
-[https://gtv.org/video/id=620c61f8b0af02660af423d2](https://gtv.org/video/id=620c61f8b0af02660af423d2)
+撰稿：小湫
 
-Jim Bullard (the president and CEO of the Federal Reserve Bank of St. Louis)
-吉姆·布拉德 (圣路易斯联邦储备银行总裁兼首席执行官)
+前美国驻联合国大使妮基·海利(Nikki Haley)表示，当奥运运动员选择代表某些国家参赛时，你代表的是自由还是代表的是侵犯人权，没有中间选择。
 
-We’ve been surprised to the upside on inflation
-我们对通胀上行感到惊讶
+周二，海利是在接受《真实清晰政治》栏目发布的采访时，发表的这番言论。她特别针对的是在美国出生的奥运会滑雪运动员谷爱凌，代表她母亲的祖国（中国）参加了2022年北京冬奥会。
 
-This is a lot of inflation in the US economy 7.5%
-美国经济中的通胀率高达7.5%，这是一个很大的问题
+海利告诉媒体。 “就公民身份而言，你必须选择一个阵营，因为你要么是美国人，要么是中国人，这是是两个完全不同的国家。 每个运动员都需要知道，当他们插上国旗时，你是在捍卫自由还是在捍卫侵犯人权。 没有中间地带。”
 
-on the headline CPI, these are numbers that Alan Greenspan never saw
-在头条的消费者价格指数，这些是艾伦·格林斯潘从未见过的数字
+谷爱凌出生在旧金山，代表中国参加奥运会而受到批评，中国政府一直在进行新疆种族大屠杀。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/小秋-2.png)图片：前南卡罗来纳州州长兼美国驻联合国大使妮基·海利
 
-They haven’t occurred in 40 years
-已经有40年没有出现了
+海利提到了维吾尔人在中国面临着严重的侵犯人权问题，海里说“我的脑海里一直浮现着人们被蒙着眼睛跪在地上，知道即将发生什么事的画面。我不能想象有任何理由可以支持中国政府举办冬奥会”
 
-So our credibility is on the line here
-所以我们的信誉就在这里很危险了
+这位前南卡罗来纳州州长海利表示，她希望并祈祷美国人可以明白是中国政府给我们带来了新冠病毒。 中国是窃取知识产权的国家。 中国是一个侵犯人权的国家。 而中国已经成为一个处处被监视国家，现在将开始对我们的美国公司发号施令，这就是美国公司离开中国的原因。在某种程度上，我们需要明白，是时候离开中国，继续前行了！
 
-And we do have to react to data
-我们必须对数据做出反应
+谷爱凌已获得女子自由滑雪金牌和女子坡面障碍技巧银牌，她多次回避有关她的国籍以及她是否为了代表中国参赛而放弃美国国籍的问题。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/小秋2.png)图片来自网络
 
-However, I think we can do it in a way that’s organized and not disruptive to markets
-但是，我认为我们可以以一种有组织且不会破坏市场的方式来做到这一点
+2019年，她在Instagram上宣布决定代表中国参加奥运会，她表示，她“为自己的血统感到骄傲，也为自己在美国的成长经历感到骄傲。在2022年北京冬奥会期间，2022年北京冬奥会是一个千载难逢的机会，可以为我母亲的祖国的年轻人推广我热爱的这项运动。
 
-We’re only removing it
-我们只是删除它
+参考信息：
 
-* * *
+[Nikki Haley slams Eileen Gu: Olympic athletes must choose to represent ‘freedom’ or ‘human rights abuses’](https://www.foxnews.com/politics/nikki-haley-eileen-gu-olympic-athletes-must-choose-represent-freedom-human-rights-abuses)
 
-Date:02/14/2022
-原视频标题:Bullard: numbers indicate inflation is broadening
-布拉德：数字表明通胀正在扩大
-原视频日期：2022/02/14
-原视频链接[**https://twitter.com/squawkcnbc/status/1493217938224078853?s=24**](https://twitter.com/squawkcnbc/status/1493217938224078853?s=24)
-任务编号：KE401（3750）
-视频时间段 : 0:00-0:28
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-文新
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+发稿：MG4
+![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
