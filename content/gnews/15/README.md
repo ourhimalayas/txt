@@ -2,23 +2,72 @@
 ---
 
 
-## 欧洲议会将表决台湾法案
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2012367/)
+## 众议员莫·布鲁克斯推《中共国COVID-19赔偿法案》
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2012456/)
 
-撰稿—虎眼
-校对/上传—无明逆流
+> 众议员莫·布鲁克斯：[#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw) 撒谎，人民死亡。我希望共产主义中国向受到伤害的美国人赔偿，因为他们制造了 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hash&amp;ref_src=twsrc%5Etfw) 之后还撒谎掩盖从而伤害了美国人。
+> 【附中字视频】 [https://t.co/N2vG2vMj8e](https://t.co/N2vG2vMj8e) [pic.twitter.com/2tcrnnTUAS](https://t.co/2tcrnnTUAS)
+> — 美国政要直译推 (@zhiyitw33) [February 16, 2022](https://twitter.com/zhiyitw33/status/1493784086158086148?ref_src=twsrc%5Etfw)
 
-《自由时报》15日报道，欧洲议会预计在亚洲时间16日晚，针对“共同外交暨安全政策（GFSP）”及“共同安全暨防卫政策（CSDP）”两份涉及台湾的报告议案进行表决。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Wh4.16.30.jpeg)图：欧洲议会
-其中，共同外交暨安全政策（GFSP）报告提出，支持台湾以观察员身份参与国际组织会议、机制和活动；提倡欧盟深化与台湾的合作，包括欧台双边投资协议（BIA），报告呼吁尽快展开对欧台投资协议的评估、公众咨询与范畴界定工作。
 
-共同安全暨防卫政策（CSDP）报告则对中共在台海地区的军演活动表达了关切，报告中喊话中共，“停止对台海以及印太地区和平稳定构成严重威胁的军事恫吓，重申中共应通过对话解决双边问题，反对中共单方面改变现状的军事行动。”
 
-报告还强调欧盟与其成员国应该积极与志同道合的国际伙伴进行合作，寻求台海和平稳定，并与台湾的民主政府建立伙伴关系。
+众议员马乔丽·泰勒·格林：
+如果共和党人无法阻止大科技审查，那么共和党人还能做什么？
 
-CSDP年度报告决议案除了重申台海与印太地区和平稳定的重要性外，对中共对外逐渐增加的侵略性、持续扩张的军事行动也表达了担忧。
+大科技公司在审查他们不喜欢的政治观点上做得太过了，它在压制真相。
 
-新闻参考：[歐洲議會兩項友台議案 明表決](https://news.ltn.com.tw/amp/news/politics/paper/1500697)
+如果我们不能为保护真理而战，那还有什么可做的？
+
+共和党人到底是为了什么（而存在）？
+
+
+
+> If Republicans can’t stop Big Tech Censorship, then what can Republicans even do?
+> 
+> Big Tech has gone way past censoring political opinions they don’t like, it’s silencing truth.
+> 
+> If we can’t fight to protect truth then what else is left?
+> 
+> And what are Republicans even for?
+> — Rep. Marjorie Taylor Greene (@RepMTG) [February 16, 2022](https://twitter.com/RepMTG/status/1493770857855995904?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿迈克.蓬佩奥：
+社会主义行不通。 我在巡视 铁幕（指昔日西欧与中东欧共产党执政国家之间想象的屏障）时亲眼目睹了它——我知道它不会带来任何好处。
+
+
+
+> Socialism doesn’t work. I saw it firsthand when I patrolled the Iron Curtain — and I know nothing good comes of it.
+> — Mike Pompeo (@mikepompeo) [February 16, 2022](https://twitter.com/mikepompeo/status/1493765787621888007?ref_src=twsrc%5Etfw)
+
+
+
+比尔.格茨：
+作为阻止解放军进入美国证券市场的新政策的一部分，美国财政部将对 59 家中共国军工公司实施制裁
+【附比尔.格茨发布华盛顿时报报道：美国新的制裁规则打击了数十家中共国军工企业】
+
+
+
+> Treasury Department codifies sanctions on 59 Chinese military companies as part of a new policy blocking PLA from US securities markets [https://t.co/nDSNRttMHG](https://t.co/nDSNRttMHG)
+> — Bill Gertz (@BillGertz) [February 15, 2022](https://twitter.com/BillGertz/status/1493720810183282688?ref_src=twsrc%5Etfw)
+
+
+
+众议员帕特·法伦：
+
+中国是芬太尼的主要原产国——他们在我们的南部边境将其倾注进入美国。
+
+还认为边境危机不是国家安全威胁吗？
+
+
+
+> China is the primary country of origin for fentanyl – and they're pumping it into the America at our southern border.
+> 
+> Still think the border crisis isn't a national security threat?
+> — Rep. Pat Fallon (@RepPatFallon) [February 15, 2022](https://twitter.com/RepPatFallon/status/1493690831139528704?ref_src=twsrc%5Etfw)
+
+
 
  
 

@@ -2,22 +2,16 @@
 ---
 
 
-## 加拿大宣布动用特别紧急权力结束全国示威
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2010320/)
+## 韩国决定为高风险人群启动第四针疫苗的接种计划
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2010321/)
 
-作者：银河系农场 — 骄子
+作者：首尔天池农场 — 追着曙光跑
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-加拿大总理特鲁多14日宣布，决定引用《紧急状态法》，动用特别紧急权力，平息蔓延至全国多个城市的示威运动。这是《紧急状态法》自1988年通过后首次被引用。根据法例，联邦政府的特别紧急权力可以凌驾各省政府，采取特殊的临时措施，让警方在执法现场，获得更多的行动选项。另外，金融机构也有可能会获得指示，授权监管和禁止个人或公司使用财产来资助或支持反抗疫苗暴政的示威游行。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-39.jpg)
-特鲁多表示，示威者的抗争行为，损害国家经济、危害公众安全，挑战警方的执法能力，政府不可以再容许这些违法和危险的活动持续发生。
+韩国媒体14日报道，韩国政府决定启动为60岁以上的高危人群接种第四针中共病毒疫苗。 当局发言人表示，鉴于单日新增确诊人数已经连续第5天突破5万例，其中，60岁及以上人群的比例由1月第四周的8%上升到2月第二周的11.7%。随着老年确诊病例数的增加，担心会进一步导致重症率提升。因此，决定自本月底开始，为60岁以上的高风险人群，接种第四针疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-40.jpg)
+另外，以色列去年12月开始为 60岁以上人群接种第四针疫苗，可惜，根据最近一段时间的数据来看，该国的新增病例数并没有出现任何减缓的迹象。根据以色列的一项最新研究发现，虽然第四针疫苗会略微提高一点抗体水平，但对预防感染奥密克戎毒株的效果差强人意。
 
-不过，首都渥太华仍然有货车司机及其他示威者坚持抗争，有示威者表示，他们只是要求政府解除所有的防疫限制措施，确保民众拥有基本的自由和人权，这些诉求并不涉及政治，也没有危及社会治安。
-
-值得关注的是，经过示威者连续多日的抗争，安大略省省长福特日前宣布，安大略省将逐步放宽防疫限制，本周四开始将逐步取消室内和户外的聚集人数限制，下月一日起会解除所有室内的公众限制，同时，民众出行不再需要出示疫苗接种证明。
-
-参考链接：
-1. [加拿大宣布动用特别紧急权力结束全国示威](https://www.dailywire.com/news/breaking-trudeau-announces-unprecedented-action-freezing-bank-accounts-of-freedom-convoy-protesters%20、)
-2. [加拿大宣布动用特别紧急权力结束全国示威](https://www.google.com.hk/url?sa=t&amp;rct=j&amp;q=&amp;esrc=s&amp;source=newssearch&amp;cd=&amp;ved=2ahUKEwjgzf6yn4H2AhXbKEQIHQbJBhEQxfQBKAB6BAgSEAI&amp;url=https%3A%2F%2Fwww.theguardian.com%2Fworld%2F2022%2Ffeb%2F14%2Fcanada-protests-justin-trudeau-use-rare-emergency-powers&amp;usg=AOvVaw1S1MyuVlirmxe80N7BuZRW)
+参考链接：[韩国决定为高风险人群启动第四针疫苗的接种计划](https://news.kbs.co.kr/mobile/news/view.do?ncd=5394452)
 
 ![This image has an empty alt attribute; its file name is calendar.png](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
