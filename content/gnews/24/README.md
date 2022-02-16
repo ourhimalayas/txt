@@ -2,32 +2,34 @@
 ---
 
 
-## 樱花FM┃以色列中共病毒感染重症患者1229例 再创新高
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2015675/)
+## 有声|瑞典双金选手批评中共侵犯人权 不应举办冬奥会
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2015707/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-4-1.png)
-2月5日（当地时间）以色列卫生部宣布，有1229名患者感染中共病毒（新冠病毒Covid-19），因病情严重而住院治疗。据当地媒体《以色列时报》报道，这一数字超过了去年1月底的最高纪录1193人，再创新高。一天的死亡人数，也急剧上升到每百万人中有五人死亡。
-
-在过去的三天里，以色列每天的平均感染人数在五万人左右，以色列在打中共病毒疫苗方面，无论是加强针还是第一针和第二针都处于世界领先地位，是去年德尔塔病毒流行时最早引入疫苗的国家之一。
-
-以色列认为中共病毒疫苗有效地减少了感染者的数量。严重病例的激增是由于去年8月注射的加强针疫苗的效果下降所致。
-
-然而，希伯来大学的Barak Raveh教授告诉《每日电讯报》，“在以色列今年新死亡的822例中共病毒感染患者中，只有293例未接种疫苗。也就是说65%以上的死亡病例都是接种过中共病毒疫苗的人。”
-
-尽管如此，以色列仍然迷信这种毫无科学依据的疫苗有效论。还要向医务人员和60岁以上的人提供第四针中共病毒疫苗。
-
-这种失去逻辑思维的盲信，政府错误的决策，不知道会给以色列带来什么样的灾难性后果。
-
-文字版原文：
-
-[以色列中共病毒感染重症患者1229例 再创新高](https://gnews.org/zh-hans/1969051/)
-
-编辑：东京樱花团/asket
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+配音：香草山巡管部– 文凯琳
 
 
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+外媒15日报道，本届冬奥会长道速滑双金获得者，瑞典明鉴尼尔斯·范德普尔在归国后发表评论称，让中共这样严重侵犯人权的国家举办奥运，是极度不负责任的行为。
+
+范德普尔曾说不方便在冬奥会前，发表他对北京冬奥会的反对意见，因此，在回到瑞典之后，他对中共严重的侵犯人权，公开了自己的看法。但他仍然认为自己目前还不能够说的太多，因为他的国家还有其他运动员仍然在北京参加比赛。
+
+文字版原文：[瑞典双金选手批评中共侵犯人权 不应举办冬奥会](https://gnews.org/zh-hans/2011758/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

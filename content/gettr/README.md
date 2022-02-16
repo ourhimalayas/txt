@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@realfayfay 2/16/2022 7:07 AM (UTC)`
+
+Crazy Kids🙈
+![img](https://media.gettr.com/group8/gvision/2022/02/16/07/bf61095e-a30b-1822-8b4c-066003e176d8/out.jpg)
+
+---
+
 `@miles 2/16/2022 12:54 PM (UTC)`
 
 2022年2月16日 文贵大直播：疫苗公司股价变化；中国人寿王滨被抓；世界多地反华苗头；冬奥会锁链女后续；太平联盟官司进展；七哥赴日英后安排
@@ -145,13 +154,6 @@
 
 2/13/2022 Miles Guo: The CCP has held hostage various international organizations to act as its accomplices by implementing the BGY scheme. The foreign athletes of the Winter Olympics will forever become the enemies of the CCP, and they will expose the fake, ugly, and evil of the CCP with their personal experiences after they return home. This will be of great help to the Whistleblowers' Movement<br/><br/>2/13/2022 文贵直播：中共用蓝金黄绑架了各个国际组织充当其帮凶；冬奥会的外国运动员将成为中共永远的敌人，他们回国后会以亲身经历揭露中共的假丑恶，这将对爆料革命有巨大帮助<br/>
 ![img](https://media.gettr.com/group26/getter/2022/02/14/08/cf1e03f3-6e88-7f7b-f455-ae6254801c5b/out.jpg)
-
----
-
-`@miles 2/14/2022 8:44 AM (UTC)`
-
-2/13/2022 Miles Guo: The CCP and Russia are the culprits of the imminent world war behind the scenes. The proxy war in Ukraine is about to happen. The CCP has been claiming to wage a war against Taiwan in Coommunist China. Only the New Federal State of China and the Whistleblowers’ Movement have given the world an advance warning of the evil war plan of Russia and the CCP.<br/><br/>2/13/2022 文贵直播：中共和俄罗斯是即将发生的世界大战的幕后黑手，乌克兰的代理人战争一触即发；中共正在国内叫嚣对台开战，而只有新中国联邦、爆料革命向全球提前警告了中俄的邪恶战争计划<br/><br/>
-![img](https://media.gettr.com/group14/getter/2022/02/14/08/0956e524-9d92-bc39-a92a-f77cca9971c9/out.jpg)
 
 ---
 

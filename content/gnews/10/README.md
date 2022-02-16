@@ -2,73 +2,48 @@
 ---
 
 
-## 2022年2月16日文贵先生直播摘要及音频—银河系农场
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2015990/)
+## 人类上没有一个国家、一个政府、一个组织敢说这实话
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2016045/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/封面-11.jpg)
-盖特连接：[2022年2月16日 文贵大直播：疫苗公司股价变化；中国人寿王滨被抓；世界多地反华苗头；冬奥会锁链女后续；太平联盟官司进展；七哥赴日英后安排](https://gettr.com/streaming/puvpmn3ce1)
+文编：Hima
+听写：叮叮
+视频：七哥
 
-1、普京为什么突然宣布撤兵？美国，欧洲和日本，再加巴西，德国，法国和英国的强硬态度让普京软了，不过，也可能是战术撤军杀个回马枪；
+2022-02-13直播摘录09：45：15
 
-2、普京打乌克兰，又突然撤军，玩的是经济战争，对台湾是好事，如果打乌克兰，习近平一定打台湾；
+喜币最牛叉的四个，他完全搞（错）了。
 
-3、乌克兰战争经济：是普京和沼泽地几个大佬决定石油价格和金融涨跌；
+你存在银行的钱和过去的纸币，第一它增发，是吧？Danny给了我100块钱，我给你印出了1000块钱，你就被兑水了嘛——增发；第二个最可怕的问题，我们大家都忽视掉的问题，它是不可兑现，就是我可以不还给你，我有不兑现的权利，这是更可怕。喜币绝不可能，因为1美元就是1美元稳定币，1币就是1币就市场交易；
 
-4、中共国经济通胀通缩，20几家商行及房地产破产，200多家银行等待破产；
+第三件事情，它是一个中介就是第三方经营化，它不是点到点。咱们这喜币、喜美元是A到B，它喜联储不能控制，没有任何权利。今天小飞象跟小飞侠“流水”10个币，他俩就“流水”10个币，你中间不能任何人经手。文紫跟她老公上下一颠倒，多给12个币就12个币呀，它没有任何就是第三方，它没有、不是中介方，（这是）第三个；
 
-5、冬奥会已无法收场，真正参加的国家元首只有普京一人，运动员也是有史以来最差的一次；
+第四个最核心的是什么呀大家？它没成本，是吧？你去想想HPay没有成本，没有成本的、没有第三方的、绝对必须保证原值的、第四不可增发的。你银行你哪有这个呀？哪家银行不给你增发？哪家不给你印发呀？
 
-6、文贵先生很早就说过这些医药公司被做空，有一个人和群体这么牛X的吗！这些疫苗公司一定会破产就像共产党被消灭一样；
+而且关键最核心的这四样的基础是什么呀？它的价值。大家要记住，喜币一年就10个亿，多一个都是犯罪。所有美国人、所有全世界的币，政府一句话就可以印发，叫做超发。那这10亿个币是你知道的，关键是美国也好，我有一万个亿，我不增发，它没告诉你，我有一万个亿。喜币白皮书是先定下数量，就没有一个国家银行告诉你，我的币只有多少个，没有一个，只有喜币！
 
-7、文贵先生个人破产，却让无数人成为富豪；
+比特币牛就牛在今天的价值，它说我就2600万，是吧？26亿！我就这些个。但是不是又是另外一回事儿啊。就这一样它就赢了，它才有今天的比特币呀，这是核心在这儿呢。
 
-8、美国政府明确告诉CCP，不离开中国的前提是必须要病毒溯源，杨洁篪、王毅因此而不敢说话了；
+- 1:46:41世界上只有新中国联邦说真相说实话，作为海外华人，“无苗灭共族”每天都应该感恩
 
-9、因为报道锁链女真相被迫害的国内的人可获得1000-10000喜币；
 
-10、七哥宣布三件大事：
+郭文贵先生：所以说为什么场外交易人家拿着，场外交易都是机构拿走，拿着你的币的数量，人家做另外一个筹码去，因为这是有限度的。当发现喜币有任何一个蒸发的时候，你们记住你们一定告死他。那他会命都赔上，终身会蹲在监狱里。不可能的。所以说兄弟姐妹们，你们想这些问题之后你再想一想，你对世界的认知，对喜币的认知，对冬奥会的认知，对世界经济的认知，只有爆料革命新中国联邦能告诉你一切的真相和实话。
 
-1）短期内去英国日本不可能，甚至1-2年，或灭共以后。
+没有一个——人类上没有一个国家、一个政府、一个组织敢说这实话。
 
-2）马上推出新的H-Pay，喜贷款、喜抵押，不超过1个月，重大利好投资公告！
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-3）隆重宣布习太阳做了两个手术，脾和肾。加速共产党灭亡，对台行动暂缓。对台湾大好消息！
+**关注我们**
 
-11、喜联储很快可以交易比特币和其他数字货币；
+Discord 账号
 
-12、4月30日前战友抛喜币投G-TV，喜币下跌几块钱正常，G-TV是王；
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-13、喜币不管你现在多少钱卖，一定会后悔的；
+Gettr 账号
 
-14、喜联储不出一个月，会有重大消息。看到公告，会“吓死你”；
-
-15、冬奥会运动员公寓有暗摄像头；
-
-**注：大直播音频正在制作和上传中，敬请关注——**
-
-**（大直播音频位置）**
-
-编辑整理：文俊；
-
-发布：黎明之前
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

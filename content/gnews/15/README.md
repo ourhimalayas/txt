@@ -2,35 +2,30 @@
 ---
 
 
-## 福布斯日本：中共国“滴滴出行”大规模裁员，3000名员工被解雇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2015898/)
+## 习近平攻台后，各方真实心态
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2015930/)
 
-翻译：宫米叶
+作者：纽约香草山福音部–小草
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+美国：习近平如果打了台湾，以美国为首多国联军趁机宣布中共为非法政权，宣布习近平犯下侵略和反人类罪，公开承认新中国联邦合法性，代表全体中国人。习只要打台湾，美国可以用反中共侵台，轻松转移掉国内分裂、疫苗死伤、美元超发、中期选举视线压力，同时拉上欧洲再干一次打伊拉克战争。美国可以全面没收和冻结中共盗国贼及子女资产（算敌对方资产）。美国从阿富汗失分后，可以在台湾上外交得分。
+欧洲：全面推行去中共化运动，洗牌各国政府生态，转移掉国内反疫苗情绪。可以趁机冻结中共在UBS,德意志银行资产。
+俄罗斯：佯装打乌克兰，讹诈了一把欧美，得了中共一笔钱，用台湾把中共拖入泥潭，亚欧通吃。
+日本：捍卫台湾后，确认自己是亚洲之王，坚定支持新中国联邦，为未来的新亚洲打好基石。
+印度：亚洲最坚定支持保守派政府，反疫苗最成功国家，阻截中共南海霸权推到自己家门口。
+越南和菲律宾、印尼：一帮跟在后面的小弟，中共垮了可以接棒制造业和出口。[https://www.cnn.com/2022/02/15/investing/premarket-stocks-trading/index.html https://cn.reuters.com/article/graphic-us-fed-gold-price-0215-idCNKBS2KK08C https://news.futunn.com/post/12968091?src=3&report\_type=market&report\_id=196702&futusource=news\_headline\_list&level=1&data\_ticket=1644954367573408 https://www.foxbusiness.com/economy/producer-prices-inflation-january-2022 https://sputniknews.cn/20220215/1039212124.html https://www.cnn.com/2022/02/15/investing/oil-gas-russia-ukraine/index.html https://cn.reuters.com/article/ukraine-russia-impact-chips-0215-tues-idCNKBS2KK10W?il=0](https://www.cnn.com/2022/02/15/investing/premarket-stocks-trading/index.html%20https://cn.reuters.com/article/graphic-us-fed-gold-price-0215-idCNKBS2KK08C%20https://news.futunn.com/post/12968091?src=3&amp;report_type=market&amp;report_id=196702&amp;futusource=news_headline_list&amp;level=1&amp;data_ticket=1644954367573408%20https://www.foxbusiness.com/economy/producer-prices-inflation-january-2022%20https://sputniknews.cn/20220215/1039212124.html%20https://www.cnn.com/2022/02/15/investing/oil-gas-russia-ukraine/index.html%20https://cn.reuters.com/article/ukraine-russia-impact-chips-0215-tues-idCNKBS2KK10W?il=0)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-16-173230.jpg)图片来源：yahoo.co.jp
+编辑/校对/发稿：菩提树
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2月-2.jpg)
+**更多资讯，更多关注**
 
-有报道称，鉴于来自当局的监管压力持续升高，中共国网约车服务商“滴滴出行”的运营方Didi Global打算解雇总数多达20%的员工。
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-据中国媒体“晚点LatePost”2月14日报道，裁员从1月中旬已经开始，预计本月底前完成，其影响将涉及中共国国内的外卖和预约车服务，不波及海外业务。
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-根据招股说明书，截至2020年12月31日，总部位于北京的滴滴在国内市场雇佣了约一万五千人，20%的解聘将会导致3000人失去工作。
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-滴滴的发言人不予置评。中共国监管机构在滴滴去年6月通过纽约市场IPO筹集了44亿美元后不久，就启动了对该公司的网络安全调查，此后对国内打车服务企业保持强硬态度。
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-中共国监管机构14日再次宣布，将加强对科技企业的监控。据国营媒体“全球时报”报道，平台企业在违反有关用户个人信息、驾驶员权利和数据安全的规则时，可能会被勒令禁用app和停业。
-
-在收集和使用客户数据的相关问题上，滴滴已经从中共国应用商店中删除了25个app应用，这些应用程序处于新用户无法注册的状态。该公司股价在过去一年里下跌了70%，失去了数百亿美元的市场价值。仅2021年9月期间，该公司就亏损了47亿美元(约合5430亿日元)。
-
-39岁的亿万富豪程维领导的滴滴还表示打算取消在纽交所上市，准备在香港上市。根据匿名人士对香港英文报纸“南华早报(SCMP)”所放出的消息，该公司最早可能于今年第二季度在港交所上市。
-
-新闻来源：[yahoo.co.jp ][中国「滴滴出行」が大規模リストラ、3000人を一時解雇へ](https://news.yahoo.co.jp/articles/f60c862a6b643b0ac9cc61c670e94133799d1a01)
-
-* * *
-
-*审核：天天 
-校对：zicoround
-发稿: Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-4.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

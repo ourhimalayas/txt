@@ -2,31 +2,73 @@
 ---
 
 
-## 樱花FM┃渥太华市长宣布进入紧急状态 以应对卡车运输的封锁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2015915/)
+## 2022年2月16日文贵先生直播摘要及音频—银河系农场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2015990/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-8-1.png)
-渥太华市长吉姆-沃森周日宣布进入紧急状态，以处理抗议的卡车司机为期10天的空前占领。卡车司机队伍已封锁了加拿大首都的大部分中心。沃森在一份声明中强调需要其他管辖区和各级政府的支持。沃森在当天早些时候说，示威者的人数超过了警察，并控制了局势，他没有详细说明他可能采取的措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/封面-11.jpg)
+盖特连接：[2022年2月16日 文贵大直播：疫苗公司股价变化；中国人寿王滨被抓；世界多地反华苗头；冬奥会锁链女后续；太平联盟官司进展；七哥赴日英后安排](https://gettr.com/streaming/puvpmn3ce1)
 
-“自由卡车车队 “的抗议活动最初是由对穿越美加边境的卡车司机发起的，他们因抗议强制接种疫苗政策而自发组织队伍，但现在演变成对COVID-19健康限制和总理贾斯汀-特鲁多政府的更广泛抗议。
+1、普京为什么突然宣布撤兵？美国，欧洲和日本，再加巴西，德国，法国和英国的强硬态度让普京软了，不过，也可能是战术撤军杀个回马枪；
 
-加拿大公共安全部长马可-门迪奇诺星期天说，政府在这个问题上不会退缩。渥太华警方周日重新安置了一些抗议者，并设置了新的路障，称他们正在 “收集财务、数字、车辆登记……以及其他将用于刑事起诉的证据”。他们还宣布，他们将取缔试图携带油罐为封锁市中心大部分道路的，数百辆大卡车加油的行为。
+2、普京打乌克兰，又突然撤军，玩的是经济战争，对台湾是好事，如果打乌克兰，习近平一定打台湾；
 
-周六，在与渥太华官员的紧急会议上，警察局长彼得-斯洛利抱怨说，他缺乏资源来结束他所谓的 “围困”，并要求增援。大约250名加拿大皇家骑警，一支联邦部队，将很快抵达该市。
+3、乌克兰战争经济：是普京和沼泽地几个大佬决定石油价格和金融涨跌；
 
-而市议会议员戴安-迪恩斯周六在谈到抗议者时，定义卡车司机队为”这是一个全国性的叛乱。这是疯狂的”。
+4、中共国经济通胀通缩，20几家商行及房地产破产，200多家银行等待破产；
 
-加拿大民间和官方各有各的立场，可以看到加拿大社会的撕裂。郭先生在直播中提醒大家，不要以新中国联邦的名义参加任何卡车司机运动，以免重演如2021年1月6日美国华盛顿的“暴乱”运动。
+5、冬奥会已无法收场，真正参加的国家元首只有普京一人，运动员也是有史以来最差的一次；
 
-文字版原文：
+6、文贵先生很早就说过这些医药公司被做空，有一个人和群体这么牛X的吗！这些疫苗公司一定会破产就像共产党被消灭一样；
 
-[渥太华市长宣布进入紧急状态 以应对卡车运输的封锁](https://gnews.org/zh-hans/1968664/)
+7、文贵先生个人破产，却让无数人成为富豪；
 
-编辑：东京樱花团/asket
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+8、美国政府明确告诉CCP，不离开中国的前提是必须要病毒溯源，杨洁篪、王毅因此而不敢说话了；
 
+9、因为报道锁链女真相被迫害的国内的人可获得1000-10000喜币；
+
+10、七哥宣布三件大事：
+
+1）短期内去英国日本不可能，甚至1-2年，或灭共以后。
+
+2）马上推出新的H-Pay，喜贷款、喜抵押，不超过1个月，重大利好投资公告！
+
+3）隆重宣布习太阳做了两个手术，脾和肾。加速共产党灭亡，对台行动暂缓。对台湾大好消息！
+
+11、喜联储很快可以交易比特币和其他数字货币；
+
+12、4月30日前战友抛喜币投G-TV，喜币下跌几块钱正常，G-TV是王；
+
+13、喜币不管你现在多少钱卖，一定会后悔的；
+
+14、喜联储不出一个月，会有重大消息。看到公告，会“吓死你”；
+
+15、冬奥会运动员公寓有暗摄像头；
+
+**注：大直播音频正在制作和上传中，敬请关注——**
+
+**（大直播音频位置）**
+
+编辑整理：文俊；
+
+发布：黎明之前
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

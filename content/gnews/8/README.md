@@ -2,40 +2,38 @@
 ---
 
 
-## 中国人现在没有学会跟人相处
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2016036/)
+## 渣打被罚230万 墙内信用卡申请项目暂停
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2016053/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+作者：日本方舟农场-Andy
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月9日，据中共媒体消息显示，因违反了所谓的“信用信息查询相关管理规定”，渣打银行中共国有限公司被中共人民银行上海分行处以人民币230万元的罚款，同时，渣打银行零售个人金融信贷部总监陈燕来也被处以10万元人民币的罚金。目前，墙内渣打银行已经暂停了其信用卡申请项目，而该银行的多项业务也将一并调整。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-16-下午12.27.28.png)
+据了解，渣打银行并非第一家被中共政府处罚的外资银行。资料显示，中共于今年1月1日颁布了《征信业务管理办法》，而其后短短一个月半的时间里，中共对墙内各大银行实施罚款的总金额已经超过了四千万元人民币。其中，东亚银行于1月10日接到的近一千七百万元人民币的处罚堪称近年来外资银行在中共国内收到的最大罚单。
 
-2022-02-13直播摘录09：37：50
+另外，2021年年末，新韩和韩亚两家外资银行也被中共政府予以罚款，其金额高达620万元人民币。
 
-日本的昨天晚上跟我开会的那姐们儿给我说，她说：“我们运动员现在在中国真正地感受到这个国家没有任何未来，全都是假的。”你能想想改年龄、买外国人、“碰瓷儿”、买通裁判、黑人家，用这个假检测把人家干掉，几乎人类最损最烂的招儿让它用尽绝了。
+分析人士对此指出，中共巧立名目地处罚外资银行的做法突显出中共国内经济危机山雨欲来之势。当中，外资银行在“夹缝中生存”已经成了这个时代的缩影。
 
-所以说胡锦涛当年说过一句精彩的话说：“你看看全世界的文明，再看看我们这些年工业文明之后的世界的发展，只有中国人到了一个人类突破了人类底线生存模式，和人类上互害的模式，再下去完了。”这就是当时江泽民的所谓的要“以德治国”，后来过了胡锦涛之后叫“和谐社会”，他说：“咱都和谐不了！人跟人之间、人跟畜牲之间都想把对方吃了，连狗都不如，狗吃屎，你比屎都可怕，你比吃屎的狗都可怕。”——所以胡锦涛提出来“和谐社会”。
+参考链接：
+1）[渣打银行（中国）收到其有史以来最大百万级罚单 零售信贷部总监被罚10万元](https://finance.sina.com.cn/money/bank/gsdt/2022-02-14/doc-ikyakumy5837854.shtml)
+2）[https://finance.huanqiu.com/article/46pIno6oHEK](https://finance.huanqiu.com/article/46pIno6oHEK)
+3）[开年强监管持续 三家银行累计被罚8000万元](http://m.caijing.com.cn/api/show?contentid=4838570)
+4）[监管动态｜新韩、韩亚两家外资银行年底合计收620万元罚单，均涉及贷款管理、合规经营缺位问题](http://m.ce.cn/cj/gd/202201/07/t20220107_37236414.shtml)
 
-01：37：59习太阳是绝对战友，就连俄罗斯这样的所谓的生死关系全让他给拧掰了、全相反了，没人来了
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-郭文贵先生：再一个就是——“科学发展力”、“科技治国”，然后胡锦涛说：“咱别跟全世界斗了，咱连韩国都斗不了，人家有’三星’，咱有啥呀？”这是胡锦涛的原话。一个韩国咱都搞不了，说搞日本？胡锦涛说：“你可以恨日本，你还搞日本？”日本人一天所有在工作上的专注的时间，人家日本人工作专注时间、有效率是中国人的10倍，是什么意思啊？瑞沃路森趴在桌子上也工作，但是抠脚趾头、捋头发、抠眼屎、抠耳屎，是吧？就像“路大脑袋”似的，咳痰占掉你70%的时间。日本人工作是要效率的、专注的，是要有结果的。
+总编：Irene木木
+编辑：宁文静
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-这是为什么胡锦涛说：“中国人现在没有学会跟人相处，还没学会懂得科技的力量，你怎么跟世界相处啊？你怎么被人家接受呢？”
-
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
