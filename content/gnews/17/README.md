@@ -2,25 +2,32 @@
 ---
 
 
-## 数字货币行业将不受美国联邦税务规则限制
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2011909/)
+## 印度财政部正在对数字货币进行磋商
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2012010/)
 
-采编：Spirit，青青          编辑撰稿：文莱
-![](https://assets.gnews.org/wp-content/uploads/2022/02/04-image-4.png)
-据美国行业媒体《电报货币》2月14日报道，美国财政部近日确认，数字货币的使用者及其支付运营商将不受联邦税务规则的约束，并且相关数字资产的行业法规正在建立之中。
+撰稿: 银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-26.png)
+日前，印度一名高级官员声明表示，短期内该国数字资产状况的监管不确定性将持续存在。
 
-报道指出，由于财政部计划将加密货币的发行机构及其市场应用商和参与使用者等，都排除在联邦纳税报告规则之外，因此美国的数字货币行业即将迎来重大的法律支持和胜利。同时，财政部还将对“是否把数字资产市场中的交易所定义为某种程度上的经纪商”做出考量。
+据悉印度财政部长Nirmala Sitharaman在对2022-23年联邦预算的讨论时表示，她目前暂时不会合法化或是禁止数字货币，在财政部纳入审查磋商时，即刻就会有消息公示。 Sitharaman还提到，国家拥有公民从数字货币交易盈利的税收权力。此外，政府征收数字货币税的能力与合法承认资产类别的问题是区分开的。印度税务当局负责人也认为，对数字资产征税的计划并不一定意味着交易合法化。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1530.png)图片来自：https://cointelegraph.com/
+据悉印度最近成为数字货币重大监管新闻的爆发地，其中关于2021年底可能会禁止数字货币的谣言撼动动了全球数字货币市场。
 
-对此，参议员波特宣称：对财政部针对从事加密数字货币行业的机构和个人不需要承担纳税报告义务的决定表示支持。
+目前，威胁已经过去，包含禁令提案的法案被排除在本届议程之外。同时印度政府可能在2022年晚些时候或2023年引入央行数字货币（CBDC）。
 
-评论指出，结合此前GTV文贵大直播消息不难得知：新中国联邦的喜联储，目前已成为包括美国和欧盟在内的政府和金融机构在发展其数字货币系统时，不可替代的必然选择。正如文贵先生所述，一旦有国家主权的认可，喜币和喜支付必将把人类文明的发展引领到前所未有的新维度。
+新闻来源: [India’s finance minister waiting for consultations to decide whether to ban or regulate crypto](https://cointelegraph.com/news/india-s-finance-minister-waiting-for-consultations-to-decide-whether-to-ban-or-regulate-crypto)
 
-校对编辑：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-196.jpeg)
 
-发稿：苦尽甜来 (文来）
+校正/发稿：浪迹天涯
 
-新闻来源: [https://cointelegraph.com/news/crypto-miners-exempt-from-irs-reporting-rules-us-treasury-affirms](https://cointelegraph.com/news/crypto-miners-exempt-from-irs-reporting-rules-us-treasury-affirms)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-25.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,32 +2,24 @@
 ---
 
 
-## 印度财政部正在对数字货币进行磋商
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2012010/)
+## 梦继续做 习近平促加强涉外领域立法
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2012115/)
 
-撰稿: 银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-26.png)
-日前，印度一名高级官员声明表示，短期内该国数字资产状况的监管不确定性将持续存在。
+撰稿/配图：东京樱花团/Ob
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1537.png)
+中共总书记习近平在将于16日出版的第4期“求是”杂志发表文章说，要坚持走“中国特色社会主义法治道路”，强调要“用法治手段展开国际斗争”，加强涉外领域立法，进一步完善反制裁、反干涉、反制“长臂管辖”法律法规。
 
-据悉印度财政部长Nirmala Sitharaman在对2022-23年联邦预算的讨论时表示，她目前暂时不会合法化或是禁止数字货币，在财政部纳入审查磋商时，即刻就会有消息公示。 Sitharaman还提到，国家拥有公民从数字货币交易盈利的税收权力。此外，政府征收数字货币税的能力与合法承认资产类别的问题是区分开的。印度税务当局负责人也认为，对数字资产征税的计划并不一定意味着交易合法化。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1530.png)图片来自：https://cointelegraph.com/
-据悉印度最近成为数字货币重大监管新闻的爆发地，其中关于2021年底可能会禁止数字货币的谣言撼动动了全球数字货币市场。
+据中央社今天引述中共国官方消息说，中共总书记习近平发表文章表示，将加强涉外领域立法，运用法治手段展开国际斗争。习近平的文章还强调，在法治改革过程中，绝不能把改革变成“对标”西方法治体系和“追捧”西方法治实践；要发挥依规治党对党和国家事业发展的政治保障作用，形成国家法律和党内法规相辅相成的格局。
 
-目前，威胁已经过去，包含禁令提案的法案被排除在本届议程之外。同时印度政府可能在2022年晚些时候或2023年引入央行数字货币（CBDC）。
+据新华社消息称，将于16日出版的第4期“求是”杂志，发表习近平题为“坚持走中国特色社会主义法治道路，更好推进中国特色社会主义法治体系建设”的文章，提到上述内容。文章强调，要“运用法治手段展开国际斗争”，坚持统筹推进国内法治和涉外法治，加强涉外领域立法，进一步完善反制裁、反干涉、反制“长臂管辖”法律法规，推动建设中国法域外适用的法律体系。
 
-新闻来源: [India’s finance minister waiting for consultations to decide whether to ban or regulate crypto](https://cointelegraph.com/news/india-s-finance-minister-waiting-for-consultations-to-decide-whether-to-ban-or-regulate-crypto)
+多大能耐没点数，200斤山路的能耐却非要管天管地，管宇宙。骄淫猥琐，却心比天高，欲雄霸天下，一统江湖，万邦来朝。欲用国内法管天下，是脑子注了水，还是屎吃的太多。对别人没有尊重，对别的国家横加干涉，自然得不到别的国家的尊重和信仰。以一己之力欲统摄全球，其胆可谓大，其为可谓妄，胡作非为必将没有未来，全球正义人士必将铲除这些糟粕余孽。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-196.jpeg)
+消息来源：[斗争延扩国际 习近平促加强涉外领域立法](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220215-%E6%96%97%E4%BA%89%E5%BB%B6%E6%89%A9%E5%9B%BD%E9%99%85-%E4%B9%A0%E8%BF%91%E5%B9%B3%E4%BF%83%E5%8A%A0%E5%BC%BA%E6%B6%89%E5%A4%96%E9%A2%86%E5%9F%9F%E7%AB%8B%E6%B3%95)
 
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-25.png)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

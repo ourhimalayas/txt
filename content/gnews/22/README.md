@@ -2,22 +2,24 @@
 ---
 
 
-## 加拿大财长任职“世界经济论坛”的危害
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2011859/)
+## 纽约市解雇近1500名拒绝打疫苗的工作人员
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2011941/)
 
-采编/编译撰稿： 薇文
-![](https://assets.gnews.org/wp-content/uploads/2022/02/03-image-2.jpg)
-据加拿大[国家邮报]近日报道，现任副总理兼财政部长[弗里兰]代表加拿大参加全球主义精英汇集的[世界经济论坛]之举，已严重危及到该国的民主制度。
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-264.jpg)
+图片来源： www.163.com
 
-[弗里兰]于2013年加入[世界经济论坛]，并在2019年后，作为唯一的政府部长担任该论坛董事会成员。此外，她还是与[达沃斯俱乐部]齐名的[阿斯彭研究所]的理事会成员，管理着为数众多的年轻政治精英。
+零对冲网2月15日报道，自1月份以来，已有4000名纽约市工作人员收到通知必须有完全疫苗接种才能继续工作，约有3/4的工作人员因没有在到期以前打疫苗而无薪离开岗位。
 
-报道称，作为加拿大公共财政监护人，由于[弗里兰]不仅行使着[世界经济论坛]的最高行政职责，同时还在[阿斯彭研究所]提供咨询以及管理财务。因此，者势必会产生国家和机构组织间的责任冲突和利益勾兑，并导致[世界经济论坛]的全球政策和立场将左右加拿大的国策，而使联邦政府沦为这些组织的附庸，并最终颠覆加拿大现有的民主制度。
+纽约市长亚当在周一的陈述中建议拒绝打疫苗者离职。他说：“ 我们的目标是让你打疫苗，不是不让你工作。工作人员在疫情期间都是工作在第一线，他们需要做对的事情以保护自己。” 在纽约市37万工作人员中有1430名工作人员（不到1%）因不打疫苗而被解雇。
 
-校对编辑：硫酸羟氯喹64
+在被解雇的人中，64%是教育部门工作人员，其余还有来自市政府房屋管理部门，惩教署，卫生部门和警局。
 
-发稿：苦尽甜来 (文来）
+联合教师联合会已经与市政府达成协议，允许其成员在9月5日前无薪离职，但有700名教师工会成员选择不延期无薪离职，或者递交了疫苗证明。工会辩称应该给工作人员在解雇前有一个听证的过程的机会。
 
-新闻来源: [Rupa Subramanya: Chrystia Freeland’s side gig with the WEF is endangering Canadian democracy](https://nationalpost.com/opinion/rupa-subramanya-chrystia-freelands-side-gig-with-the-wef-is-endangering-canadian-democracy)
+##### 新闻来源： [New York City Fires Nearly 1,500 Workers For Refusing COVID-19 Vaccine: Mayor](https://www.zerohedge.com/political/new-york-city-fires-nearly-1500-workers-refusing-covid-19-vaccine-mayor)
+
+#####  
 
  
 
