@@ -2,27 +2,45 @@
 ---
 
 
-## 有声|《文贵大直播》揭示各国大卡车运动的深远意义
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2015193/)
+## 普萨基：美国不会在加入北约一事上向乌克兰施压
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2015320/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月13日，在《文贵大直播》中，郭先生表示，各国的大卡车运动将开启人类运用和平方式对抗暴政的新时代；也是人类走向新的民主的绝对有效方式。
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image003-14.jpg)
+白宫发言人普萨基表示，美国不会就乌克兰入约之事向基辅施压。
 
-2019年6月，香港”反送中“和平抗议运动伊始，爆料革命对这场港人以寻求立法和司法独立，捍卫香港《基本法》为宗旨的民主运动给予了大量物力支持。彼时，郭先生更是建议香港的有识之士采取以大货车封路的行动，进而阻止中共匪警进入抗议现场迫害手无寸铁的港人。这一独特而影响深远的和平抗议方式，如今被各国反抗强制疫苗政策、强制隔离政策的民众纷纷采纳，在局部国家或地区已初见成效。
+普萨基在新闻发布会上表示：“我们不会向乌克兰或其他国家施加压力，要求他们加入或不加入北约。”
 
-文字版原文：[《文贵大直播》揭示各国大卡车运动的深远意义](https://gnews.org/zh-hans/2009585/)
-音频处理/发稿：Daxia
+此前，美国总统拜登因乌克兰局势表示，美国认为俄罗斯对乌克兰“攻击”的可能性仍然存在。西方表示，一旦俄罗斯入侵乌克兰，将对俄实施重大制裁。在此背景下，美国政府已开始向欧洲增派部队。莫斯科则指出，俄罗斯可随意在本国领土调动部队，这不对任何方面构成威胁，俄方无意对哪国发动攻击；北约发表所谓俄方有意入侵乌克兰的言论是为了给在俄边界附近部署更多军事装备找借口。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+2月14日，俄罗斯总统会见了外长拉夫罗夫和防长绍伊古。俄罗斯国防部长在会见普京时报告称，“部分演习正接近尾声，部分将于近期结束”。俄罗斯国防部发言人伊戈尔•科纳申科夫少将2月15日对记者称，俄罗斯南部和西部军区已开始将部队调返驻扎地。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+
+
+
+
+
+**推出问题，敲出真相，爆料在路上！**
+
+**请关注和订阅我们的以下账号：**
+
+**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+
+**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+
+**玫瑰看新闻YOUTUBE账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**ROSE NEWS**
+
+**【玫瑰看新闻】推特账号**：
+
+**ROSE NEWS (@ROSENEWS4)A**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,24 +2,37 @@
 ---
 
 
-## 樱花FM┃拜登政府二度批准对台军售
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2012339/)
+## 美科学家称中共病毒来自武汉病毒研究所
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2012234/)
 
-音频：东京樱花团/战友520
-![](https://lh3.googleusercontent.com/bSY1RrxVwjxw0RUrhRHAMIh8oqydLM4Bsh03EHQsAxcJnxDa0T9AUFsgE5WwvhYNL3j2UQ901b_P_LWLAU7S9JdmCVyyaxGuowHfMynHltzoHBB2kymUJfvTlGLPmX-VlLlDo2Bx)
-美国国务院周一 (2月7日) 宣布，基于《台湾关系法》，已批准对台湾出售价值1亿美元、为期5年的爱国者系统工程勤务计划。美国国务院表示，这批军售案能有助于提高台湾的安全，并对维持区域政局稳定、军事平衡和经济进步都有帮助。这也是拜登政府上台后，第二次核准对台湾的军售。
+作者：纽约磐石农场—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月10日，据盖特消息显示，美国国会众议员斯卡里斯在接受采访时表示，那些支持中共病毒实验室起源的科学家们应该针对病毒溯源问题前往国会作证。
 
-美国国务院政军局在一份声明稿中说，这次军售将会有助于台湾维持其飞弹密度、确保台湾的空中作战战备能力，以达到区域吓阻作用。这次军售主要是提供支持台湾参与爱国者飞弹工程勤务及飞弹效能鉴测的相关设备与服务，为期共5年，提供的协助包含工程服务支援，以及维持与改善爱国者防空飞弹系统。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide5-10.jpeg)
 
-美国国务院政军局也重申，核准这次军售是为了使台湾的军队持续现代化且保持可靠的防御能力，因为这样的发展符合美国的国家、经济与安全利益。这次军售将会有助于台湾维持其飞弹密度、确保台湾的空中作战战备能力，以达到区域吓阻作用。
+斯卡里斯提到，他在与其他议员调查中共病毒起源时发现，包括福奇的高级顾问在内的许多科学家都认为中共病毒来源于武汉病毒研究所。然而，在他们参与了福奇召开的电话会议后，这些学科家们纷纷转变了态度。同时，大多数与会科学家在其后的时间里陆续获得了数百万美元的联邦拨款。
 
-台湾国防部说美国此举是基于《台湾关系法》与“六项保证”，持续帮助台湾维持足够的自我防卫能力，所以台湾国防部也向美国政府表示感谢。
+斯卡里斯强调，美国政府应该就中共病毒起源问题举行国会听证会，而这些改口的科学家们也必须在听证会上接受质询。即使佩洛西议长一直阻挠该听证会的举行，但众议院一定会挖出有关中共病毒来源的真相。
 
-文字版原文：[拜登政府二度批准对台军售](https://gnews.org/zh-hans/1979109/)
+参考链接：
+[https://gettr.com/post/ptm6ez6d3a](https://gettr.com/post/ptm6ez6d3a)
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+
+总编：Irene木木
+编辑：宁文静
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

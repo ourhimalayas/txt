@@ -2,16 +2,16 @@
 ---
 
 
-## 喜币与美国数字货币监管最新动向
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2014215/)
+## 五月花简报（02/15/2022）
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2014454/)
 
-文贵大直播20220216
+编辑：波士顿五月花—-冲天一怒
 
-撰稿：ILOVE战神（文凡）（香草山）Arthur（文徐）（DC）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/A65BD08E-6196-42F3-873F-E05CBBCA27B4.jpeg)
 
-美工：姐夫说说（雅典娜）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Digital_asset_slides_2-16-2022_page1-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Digital_asset_slides_2-16-2022_page2-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Digital_asset_slides_2-16-2022_page3-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Digital_asset_slides_2-16-2022_page4-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Digital_asset_slides_2-16-2022_page5-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Digital_asset_slides_2-16-2022_page6-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Digital_asset_slides_2-16-2022_page7-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Digital_asset_slides_2-16-2022_page8-1.png)
-*发布：Theodosia*
+*发布：思澈*
+
+
 
  
 

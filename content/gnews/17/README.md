@@ -2,25 +2,33 @@
 ---
 
 
-## 俄罗斯撤军 普习勾兑恐破产 台湾被拯救
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2015137/)
+## 有声|NBA为取悦中共解雇球员埃内斯·坎特
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2015290/)
 
-撰稿：大浪小水花
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+外媒11日报道，NBA为取悦中共，最近突然解雇了球员埃内斯·坎特。 坎特曾多次在推特上，抨击中共在新疆、西藏、香港问题上严重践踏人权的暴行。这些批评言论顯然让NBA在面對中共時感到害怕，因为他们在和中共的合作中，通過中共血腥压迫人民，赚取了每年数百万美元的利润。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-16-at-9.46.38-PM.jpeg)
+對此，埃内斯·坎特在接受媒体采访时说：“我不在乎我是否被禁止或者被罚款，我是一名篮球运动员，但我认为我所做的事情比篮球更重要。明確自己是在为无辜的人做正確的事情，总是会额外為自己帶來更多的希望和动力。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-8.jpg)
+文字版原文：[NBA为取悦中共解雇球员埃内斯·坎特](https://gnews.org/zh-hans/2011759/)
 
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-郭文贵先生在2022年2月16日大直播中向战友透露了普京突然宣布撤兵的原因。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-郭先生提到，普京如果打乌克兰，几乎可以说百分之百习一定会打台湾。部队里有种战友提供情报称习神隐八天就是为攻台做准备，就等俄乌开战。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-郭先生披露，现在占全世界GDP57%的最牛的力量，美国、欧洲、日本、巴西、德国、法国、英国等各国都已经明确私下向普京表态，在普京开战的那一刻，这些国家就会执行一系列包括驱逐俄罗斯人等针对俄罗斯的制裁。
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-所以普京态度开始软化，但是普京这人非常狡猾，他深谙声东击西，转移视线的战术。不排除普京宣布撤兵期间俄罗斯突然虚晃一枪，这是很有可能的。俄罗斯现在的动作都叫战略性动作，因为普京知道开战会有多严重的后果。
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-郭先生指出，普京撤军会面临着一个问题，他会失信于习，普习私下的交易就会破灭。希望普京骗习骗得越狠越好。 郭先生认为普京撤军这种局面对台湾是好事，可以让台湾免受战争的摧残。
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-参考链接：[2022年2月16日文贵大直播](https://gtv.org/broadcast/watch/620cf40c432ae869226d8db6)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -2,28 +2,19 @@
 ---
 
 
-## 有声|众议员丽萨谈制裁中共法案已经触怒了中共
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2015160/)
+## 文贵大直播 2/16 俄罗斯撤军乌克兰 暂时看对台湾人民是好消息
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2015304/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月12日外媒报道，众议员丽萨-麦克莱恩谈及，她最近提出的关于制裁中共高官及其家人、资产的法案，她说这个法案明显已经触怒了中共，但是美国有勇气面对中共的报复和威胁。
+撰稿：回响 【秘翻Gnews原创组】
+![](https://assets.gnews.org/wp-content/uploads/2022/02/snapshot-4.jpg)图片来源 GTV
+2月16日文贵大直播， 爆料革命发起人郭文贵先生出人意料地将俄乌紧张局势突现转机的落点放到了台湾人民身上。
 
-丽萨认为，该法案的提出，也说明了中共的行为是不能容忍的，美国国会不能再对中共的各种侵犯人权，以及进行种族大屠杀的行为视而不见，无论是对香港、维族穆斯林还是台湾。同时，她呼吁美国那些和中共合作的政府官员，应当即刻停止与中共的勾兑。
+郭先生基于对中共的极其了解和情报，之前就再三提示习近平已经神隐8天，目的就在台湾。然而普天下都聚焦乌克兰，聚焦战争经济带来此消彼长的所谓利益增长点。几乎没有人注意到台湾。
 
-文字版原文：[众议员丽萨谈制裁中共法案已经触怒了中共](https://gnews.org/zh-hans/2009514/)
+文贵先生对中俄关系缘起缘落，对世界变局的发展态势，对当前人类冲突的结点，成竹在胸，尽管他笑言俄罗斯也可能会杀回马枪，但至少目前对台湾人民是个好消息。
 
-音频处理/发稿：Daxia
+【来源链接】https://gtv.org/broadcast/watch/620cf40c432ae869226d8db6
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
