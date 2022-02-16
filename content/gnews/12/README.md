@@ -2,19 +2,22 @@
 ---
 
 
-## 锁链女父亲，报应
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2017019/)
+## 加拿大副總理兼財政部長：參與卡車示威民眾的賬戶會被凍結，車保險會被暫停
+` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/2017029/)
 
-#### 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王 视频定位：BENJ1，WEI
+#### 加拿大溫哥華揚帆農場 視頻組
 
-*发布：陶子*
+素材：文倩
+翻譯：Kent
+字幕：路仁
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+2022年2月14日，加拿大副總理兼財政部長方慧蘭在新聞發布會中提到：
+
+這是為了追蹤資金，是為了阻止對非法封鎖的資助，我們今天發出通知，如果妳的卡車被用於非法封鎖活動，妳的公司賬戶將被凍結，妳的車輛保險將被暫停。
+
+把妳的拖車開回家去，加拿大的經濟需要以合法的工作來支持，而不應非法地讓所有人都變的窮困。
+
+編輯/發文：Kent
 
  
 
