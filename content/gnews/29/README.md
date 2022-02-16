@@ -2,36 +2,30 @@
 ---
 
 
-## 文革受害者之北大教授俞大絪
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2016054/)
+## 特鲁多宣布紧急状态后，渥太华自由车队抗议继续
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2016220/)
 
-作者：纽约香草山农场-马克文、朱丽叶
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-俞大絪，北京大学教授，中国英语语言学家，对英国语言文学有着很高的素养，是中国最好、最流行的一套英语教材的作者之一，也培养了大批的青年教师。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-16-下午12.27.36.png)
-俞教授于1905年出生在浙江山阴的名门世家，是曾国藩的曾外孙女。而她的丈夫曾昭抡也是民国的知名学者，其在获得美国麻省理工学院化学博士学位后，回国任教授一职。20世纪40年代末，蒋介石在离开大陆前曾劝说夫妇二人同去台湾，但最终被他们遗憾拒绝。
+加拿大温哥华扬帆农场 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2022/02/NA-1566380.jpg)图片来源：Daily Express
+根据《独立报》（Independent) 2月16 日报道，加拿大皇家骑警（RCMP）和渥太华警方将开始行动结束来自加拿大首都和议会辖区的 “自由车队”，两天前总理特鲁多援引了几乎没有使用过的《紧急状态法》来处理危机。
 
-文革初期，俞大絪和曾昭抡被无辜定罪，随即遭到了红卫兵的抄家批斗。在批斗中，曾俞二人被迫下跪，甚至被红卫兵剥除上衣，用皮带死命抽打。1966年8月25日，独自在家的俞大絪悲愤难抑，遂服毒自尽。一年后，曾昭抡也不堪折辱，逝世在武汉。
+三位消息人士告诉路透社，特鲁多称卡车司机对Covid疫苗强制和其他限制的抗议活动是 “非法占领”，据说在第二个周末的抗议活动之后，他诉诸了紧急权力。
 
-资料显示，中共国内十年文化大革命期间，全国工、农、兵及社会各阶层均被动乱波及，尤其是中共针对高级知识分子的严酷批斗与暴力行为，导致中国大批科学家与教授、教师等宝贵人才死亡，造成了中华民族一代，甚至几代的人才断代，其所造成的损失极为惨痛，难以挽回。
+周二，渥太华的警察局长Peter Sloly在受到批评和两周多的示威活动后辞职。渥太华市长吉姆-沃森表示，他与 “自由车队 “成员达成协议，离开惠灵顿街以南的住宅区。
 
-参考链接：
-1）[俞大𬘡（维基百科）](https://zh.wikipedia.org/wiki/%E4%BF%9E%E5%A4%A7%E7%B5%AA)
-2）[俞大絪之死](https://botanwang.com/articles/202108/%E4%BF%9E%E5%A4%A7%E7%B5%AA%E4%B9%8B%E6%AD%BB.html)
+据当地新闻报道，加拿大当局现在将采取冻结对卡车司机的资助，加拿大皇家骑警将开始在议会区周围建立 “禁区”，以迫使人们离开。该国的公共卫生部长说，为了恢复秩序，任何拒绝的人都将被逮捕。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+政府已向停在该地区的车辆的乘客发放传单，警告他们离开，否则将面临刑事指控，禁止使用空气喇叭的禁令延长60天。
 
-总编：Irene木木
-编辑：静言
-校正/发稿：呼吸的雾霾（文小呼吸）
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+原文链接：
+[https://www.independent.co.uk/news/world/americas/canada-tuckers-convoy-protest-trudeau-live-b2016109.html](https://www.independent.co.uk/news/world/americas/canada-tuckers-convoy-protest-trudeau-live-b2016109.html)
+
+编辑，发稿 Spirit
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

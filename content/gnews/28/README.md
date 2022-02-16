@@ -2,54 +2,53 @@
 ---
 
 
-## 俄罗斯大使强烈警告丹麦，不能允许美国士兵进入丹麦博恩霍尔姆岛
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2016061/)
+## 七哥谈美国法官
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2016331/)
 
-整撰：Skagen
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-265.jpg)
-图片来源：TV2.DK
+文编：Hima
+听写：叮叮
+视频：七哥
 
-俄罗斯驻丹麦大使Vladimir V. Barbin强烈警告丹麦允许美国军队踏上博恩霍尔姆岛。
+2022-02-13直播摘录10:16:41
 
-Vladimir V. Barbin对丹麦媒体Berlingske说，如果丹麦允许这样的举动，如果外国军队抵达博恩霍尔姆岛，俄罗斯将被迫评估对俄罗斯和丹麦之间关系的影响。
+我更加相信美国的法官。你看到头两天纽约出现两个什么事情？大概4天前一个纽约的法官帮助自己的孩子找工作，结果有人一检举他，立马辞职了，是吧。
 
-这一警告是在丹麦政府开始与美国就新的国防协议合作进行谈判之后发出的，这可能意味着美国军队和物资可以被安置在丹麦。
+另外一个是更夸张的是法官帮助自己的儿子来给人家约炮，是吧，就好像是这个消息是吧？因为我没看明白。结果人家告他，一告他呢，就是结果这个案子被Demiss掉了，多夸张。人家告他，法官给他儿子约炮，然后他法官就不会立这个案子，那咋解决的呢？美国就是律师法律委员会，The BAR人家继续调查，这一调查这个法官立马就辞职了。
 
-俄罗斯人认为，美国在博恩霍尔姆岛的存在将 “影响 “波罗的海地区的安全。
+美国不是没人管，你在中共国，哪儿都有坏法官，哪儿都有坏法官，是吧，但是谁管的法官呢？管法官的人谁管他的呢？共产党。在美国它有两党，它有参议院，它有众议院，它有司法部，它有律师委员会，有法官委员会。它只是时间早晚的问题。
 
-博恩霍尔姆岛是波罗的海中的一个丹麦岛屿，位于丹麦其他地区的东部，瑞典南部，德国东北部和波兰北部。由于博恩霍尔姆岛位于波罗的海的战略位置，几个世纪以来一直被周边国家争夺。
+你像Edward Moss是吧？最早，这个孙子这百分之百是跟共产党是沟通的，Edward Moss这孙子百分之百就是，就是Melveny大律师事务Melveny这家事务所里边，它所有的律师所有的行为一定会受到美国调查的。
 
-俄罗斯的威胁，北约的保卫
+大家一看到今天就那个叫Higginbotham，Higginbotham作为一个司法部里的律师，跟司法部，美国历史以来，司法部没有被外国任何人腐败过。Higginbotham一个年轻的司法部的律师，能收7000多万美元，来自于马来西亚的Jho Low刘特佐，孟建柱的私生子。
 
-美国士兵出现在丹麦将是一个强烈的信号，表明北约在离俄罗斯边界不远的地方重要的军事存在。
+吴征，这帮孙子，他都收7000万，你想Elliott Broidy和Elliott Broidy的老婆，Nickle Lum Davis收多少钱？Steve Wynn多少钱？你想想那什么BlackStone这帮孙子得收多少钱？都是几百亿、几千亿要搞七哥呀，是吧。
 
-在周四（2月16日）的新闻发布会上，外交部长Jeppe Kofod被问及美国士兵在丹麦领土上是否可视为丹麦对俄罗斯的挑衅。
+然后是“418”起诉七哥的就是PAG，单伟建，单伟建作为TPG在整个，歪了一下啊，在全世界人面前是吧，这个弄了多少养老金？！单伟建的一个孩子在美国，两、三千万美元买个房子，兄弟姐妹们，你知道多大的事啊？全现金。
 
-“我们必须记住，是俄罗斯在威胁着欧洲的和平。我们在北约所做的是在保卫自己。这并不是因为俄罗斯和乌克兰的局势而产生的，”他说。
+你想想这在美国是多大的事，总统他也做不到啊，全现金啊，这得多夸张啊！听说他儿子和他美国的儿媳妇，有大量的股票资产。那么这个钱，干七哥的钱哪儿来的？大家都说这是单伟建拿钱。
 
-只有丹麦才能决定在丹麦领土上发生的事情
+大家想想，它在国内罚我家族，就是130亿美元，它给单伟建腐败这些律师，现在最起码这个律师事务所，它已经拿了大概两千万美元了，其他人应该拿了五、六千万美元。七、八千万美元花出去了，私下里面那是更多钱。这钱哪儿来的？都是七哥家族的钱，它用七哥的钱来干七哥呀。对比130亿美元，这算几个钱？多阴暗啊。再一个你记住，所有PAG的官司，七哥只是一个，所谓的不存在的3000万，我是一个担保人，我不欠它一分钱。
 
-丹麦外交部长杰普·科福德Jeppe Kofod 非常明确地表示，美国士兵是否会来到丹麦本土，完全由丹麦决定。否则，俄罗斯对丹麦将与美国开始防务合作这一事实非常不满。这可能意味着美国军队可以留在丹麦。
+而且担保，被担保的单位：盘古，跟它之间的关系，盘古都在那儿，共产党能帮你，能拿走130亿，就不能给你3000万吗？如果欠你的话？你为啥找我要呢? 而且为什么要“418”立案呢？
 
-俄罗斯驻丹麦大使Vladimir V. Barbin告诉Berlingske，这将是对二战以来丹俄协议的违反。
+而且立案PAG到现在，我有使用陪审团的权利，陪审团没有，不让我使用陪审团，不让我提供证据，不让我说一句话。就连那个文件真假鉴定都不让我提供。真的是和我觉得，阿富汗的、中共国的都不会这么黑呀。
 
-但是Berlingske文章说，丹麦外交部长是对的。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-“这并不是俄罗斯第一次提出这种错误的和不正确的主张，但这并不意味着它是真实的，”杰普·科福德给媒体Ritzau的书面评论中说。
+**关注我们**
 
-这位丹麦外长非常明确地说：“丹麦从未与俄罗斯或前苏联就博恩霍尔姆岛的外国军队达成过协议。而且我必须警告，不要把俄罗斯的这些宣布当作好事。”
+Discord 账号
 
-他强调：“让我说清楚，只有丹麦才能决定在丹麦土地上发生什么！”
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-在Berlingske对俄罗斯大使Vladimir V. Barbin的采访中，这位大使并没有提出证据证明他所谓的协议是存在的。
+Gettr 账号
 
-来源：
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
-[TV2.dk](https://nyheder.tv2.dk/udland/2022-02-15-ruslands-ambassadoer-advarer-kraftigt-mod-at-tillade-amerikanske-soldater-paa)
 
-[Berlingske.dk](https://www.berlingske.dk/politik/store-partier-affejer-russiske-trusler-om-bornholm-der-er-intet-hjoerne-af)
-
-[Politiken.dk](https://politiken.dk/udland/art8621246/%C2%BBDanmark-har-aldrig-haft-en-aftale-med-Rusland-om-udenlandske-tropper-p%C3%A5-Bornholm%C2%AB)
 
  
 

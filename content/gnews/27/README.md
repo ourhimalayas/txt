@@ -2,34 +2,38 @@
 ---
 
 
-## 朝日新闻：因冬奥会裁决偏颇，中共国留学生在韩国遭暴行
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2016101/)
+## 郭先生谈PAG案有感
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2016365/)
 
-翻译：宫米叶
+作者：纽约香草山 信息部 6zero4
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/20220211-00000097-ann-000-9-thumb.jpg)图片来源：news.yahoo.co.jp / All Nippon NewsNetwork(ANN)
 
-对于中国留学生在韩国遭到暴行一事，中国外交部表示：“我们正密切关注。”在韩国，围绕奥运会的裁决等问题，对中共国的批评不断上升。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-21.png)
+郭先生在2月11日的大直播中谈到郭美被卷入的PAG案，在清峰看守被恶警吊在墙上打得七窍流血昏死几天，被郑州反贪局抓起来关在满地是蛇的黑屋，刘志华案几年的缠斗，面对几百香港黑社会成员的决斗，2015年在华盛顿Hay Adams酒店凌晨五点被中共大使馆派人跟踪和追杀，自己在美国的76个案子和118次deposition等，这些事对任何一个人都是难以承受之重，成为压垮自己和家人的稻草。
 
-投稿中写道，9日晚，在韩国釜山，一名中国留学生被两名韩国男子殴打。
+郭先生最怕家人受自己事业和情绪的影响，不愿和家人分享任何痛苦和压力。PAG案不幸牵涉到郭美让郭先生很难过，但郭美出庭后最担心的却是给父亲带来麻烦，把责任全揽自己身上并给父亲道歉；回家时七嫂没一句抱怨，没掉一滴眼泪，默默给郭先生做吃的，用行动坚定支持郭先生，但仍能感受到七嫂的恐惧和痛苦！
 
-鉴于事态发展，中共国外交部在11日的记者会上表示：“我们正密切关注此事。已经与当事人取得了联系“。
+是男人就不应妥协和放弃，不要把压力、恐惧、哀愁和痛苦带回家，用实力和结果而不是眼泪和恐惧说话！郭先生希望战友们从PAG案领悟到，不让家人遭受恐惧唯一的途径就是灭共！
 
-在此基础上强调会“维护海外中国人民的权利和安全”。
+新闻来源：[https://gtv.org/video/id=62065c00a1fe5e57a426b9e1](https://gtv.org/video/id=62065c00a1fe5e57a426b9e1)
 
-据韩国媒体报道，当地警方表明他们并不是针对特定的中国人。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-196.jpeg)
 
-韩国目前由于北京奥运会短道速滑的裁定偏向中国，反华情绪高涨。
 
-**参考资料：**[news.yahoo][韓国で中国人留学生が暴行される　中国外務省「非常に注目」](https://news.yahoo.co.jp/articles/dde1893e679698c417e67ba7e9dd3e29c8a0c26d)
 
-* * *
+编辑/校对/发稿：滚滚长江都是水
 
-*审核：天天*
-*校对：zicoround*
-*发稿：信心的选择*
+**更多资讯，更多关注**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-4.jpeg)
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 

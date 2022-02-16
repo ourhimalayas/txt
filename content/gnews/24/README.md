@@ -2,29 +2,42 @@
 ---
 
 
-## 特鲁多宣布紧急状态后，渥太华自由车队抗议继续
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2016220/)
+## 北京冬奥会后灭共迎来大好局面！
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2016382/)
 
-加拿大温哥华扬帆农场 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/02/NA-1566380.jpg)图片来源：Daily Express
-根据《独立报》（Independent) 2月16 日报道，加拿大皇家骑警（RCMP）和渥太华警方将开始行动结束来自加拿大首都和议会辖区的 “自由车队”，两天前总理特鲁多援引了几乎没有使用过的《紧急状态法》来处理危机。
-
-三位消息人士告诉路透社，特鲁多称卡车司机对Covid疫苗强制和其他限制的抗议活动是 “非法占领”，据说在第二个周末的抗议活动之后，他诉诸了紧急权力。
-
-周二，渥太华的警察局长Peter Sloly在受到批评和两周多的示威活动后辞职。渥太华市长吉姆-沃森表示，他与 “自由车队 “成员达成协议，离开惠灵顿街以南的住宅区。
-
-据当地新闻报道，加拿大当局现在将采取冻结对卡车司机的资助，加拿大皇家骑警将开始在议会区周围建立 “禁区”，以迫使人们离开。该国的公共卫生部长说，为了恢复秩序，任何拒绝的人都将被逮捕。
-
-政府已向停在该地区的车辆的乘客发放传单，警告他们离开，否则将面临刑事指控，禁止使用空气喇叭的禁令延长60天。
+作者：纽约香草山 信息部 6zero4
 
 
-
-原文链接：
-[https://www.independent.co.uk/news/world/americas/canada-tuckers-convoy-protest-trudeau-live-b2016109.html](https://www.independent.co.uk/news/world/americas/canada-tuckers-convoy-protest-trudeau-live-b2016109.html)
-
-编辑，发稿 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-23.png)
 
 
+郭先生在2月9日的大直播中谈道，北京冬奥会后中美俄三角关系将发生实质性改变，全球灭共将进入空前利好局面！
+
+美国在冬奥会前的北京大使馆的“授权撤离”，将中共的合法性问题摆上了桌面。中共求美国制造“冬奥会两国关系回暖”的假象泡汤，看穿中共及普习“二人转”的拜登总统也表示“没什么新鲜的！”
+
+最近美国国会正在推出《制裁中共法案》, 拟制裁中共数千名现任全国人大代表及其家属，包裹习近平及其家属等中共高官。同时，100多个国际金融机构与30多个国际NGO组织开始研究如何配合美国制裁并查封中共高官海外资产。
+
+与欧洲同根的俄罗斯一直对被欧洲排斥在外耿耿于怀，但欧盟已意识到“让俄罗斯跟中共走得那么近”这个巨大的错误。普京跟习翻脸后欧洲随即向俄方伸出橄榄枝，马克龙立即飞莫斯科跟普京表示善意，普京也表示俄罗斯想回到欧洲白人家族，没兴趣跟中共玩儿。普京必将再次出卖中共并和欧洲站在一起，欧洲也会在背后踹中共一脚！
+
+透过北京冬奥会看穿中共“假大空”与习的“拎不清”后，中美俄三角力量的实质性改变不可避免。中共将在国际社会上空前孤立，新中国联邦将迎来灭共的大好局面！
+
+新闻来源：[https://gtv.org/video/id=6203b7b13621aa7415d80e9e&gt;](https://gtv.org/video/id=6203b7b13621aa7415d80e9e%3E)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-196.jpeg)
+
+编辑/校对/发稿：滚滚长江都是水
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 

@@ -2,53 +2,92 @@
 ---
 
 
-## 福奇拒为应对中共病毒政策失败负责
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2015171/)
+## 樱花FM|中日财经爆:美国加强对中共出口管制 33家实体上榜
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2015219/)
 
-翻译：Steven Hu
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-268.jpg)
-图片来源：谷歌图片
+音频：东京樱花团/战友520
+![](https://lh3.googleusercontent.com/i73YHXVmGPjYyGTMjIhPQ8YMWEShC8Yd5SOems06ihdX2VWA_ausbapC2y6i7vRMYqDsjmhTaaZP3JfGkSY1zvDItPEvwAZQFdoR_TW2CZzuy6ThYVuH4gBTDt1V7kK58LYPtxq9)
+美国商务部2月7日宣布，将33家中共实体列入“未经核实名单”(Unverified List)。这些实体获得美国产品，将必须接受更严格的出口管控。美国商务部发表的声明说，美国官员无法对清单中这些实体进行核查，以确定这些实体的“善意”(bona fides)，因此必须对这些公司从美国出口商那裡获取产品实施新的限制。
 
-《零对冲》报道了福奇不久前在参议院听证会上表示自己不该对美国应对中共病毒大流行的政策失败而负责的新闻。
+被纳入出口管制清单的33家中国实体，大多数是电子企业、光学公司、涡轮叶片公司、大学的国家实验室和其他企业。包括中国航发南方工业有限公司（AECC South Industry Co., Ltd）、北京世维通科技公司（Beijing SWT Science）、济南邦德激光（Jinan Bodor CNC Machine）、湖南大学（Hunan University）等。
 
-报道指出，已导致数百万美国人被感染，其中有超过80万人死亡的中共病毒大流行，让大多数人意识到华盛顿应对疫情的政策失败了。
+1. AECC South Industry Co., Ltd.
 
-为应对病毒而釆用的封锁仅仅是被动地推迟了本就不可避免的大流行，但同时也让民众遭受了诸如癌症、心血管疾病、糖尿病、结核病、心理健康、教育和其他许多多种疾病的巨大损害。
+2. Beijing SWT Science
 
-而所有参与政策制定的相关各方却都在竭尽全力的推御责任。在最近的参议院听证会上，福奇博士甚至都不屑为他的政策作任何辩护，反而坚持说：“我所说的一切都是对疾控中心的指导方针的支持。”
+3. Beijing Zhonghehangxun Technology Co., Ltd.
 
-作为国家过敏和传染病研究所（NIAID）主任的福奇与疾控中心的两名主管罗伯特.利得菲尔博士（Robert Redfield）和罗谢尔.瓦伦斯基博士（Rochelle Walensky）在整个疫情期间紧密合作，然而他现在把责任归咎于他们。这同他对他的前老板所做的如出一辙。正是福奇的推御责任导致了弗朗西斯·柯林斯博士（Francis. Collins）立即辞去了国家卫生研究院（NIH）所长一职。
+4. China National Erzhong Group Deyang Wanhang Die Forging Co., Ltd.
 
-柯林斯博士曾在整个疫情期间为福奇进行了激烈的辩护。2020年10月，《大巴林顿宣言》批评了福奇的封锁政策，呼吁重点保护高风险老年人，同时让儿童上学，年轻人可以过着近乎正常的生活。几天后，几乎没有公共卫生经验的遗传学家柯林斯给福奇写了一封电子邮件，建议“删除”宣言，并将其哈佛、牛津和斯坦福的作者描述为“边缘流行病学家”，福奇同意了他的老板的意见，但在最近的参议院听证会上被问及这一事件时，他回复这是“来自柯林斯博士发给我的电子邮件。”意思就是福奇本人仅仅是奉命行事而已。
+5. Chuzhou HKC Optoelectronics Technology Co., Ltd.
 
-作为公共卫生科学家和《大巴林顿宣言》的共同作者，我们一直对柯林斯博士、利得菲尔博士、瓦伦斯基博士倡导的疫情战略持批评态度。作为人类，我们只能对福奇博士试图将责任转移到他们身上的做法表示同情。在参议院听证会上，作为一个可能是政策主要设计和推宗者的福奇博士并没有像人们预期的那样，参与实质性的公共卫生讨论来捍卫其疫情战略。可以理解，政客、记者、学者和公众相信了福奇博士，那为什么现在要由他们来承担责任？
+6. Dongguan Durun Optical Technology Co., Ltd.
 
-福奇同时辩解说他收到了来自“疯子们”的死亡威胁。这是非常可悲的，但这同时也证明了疫情期间非官方的科学话语被限制了，所以在这方面，福奇并不孤单。他和柯林斯精心策划的有组织的“打击”，以及他们严重错误地将重点保护描述为一种撕裂国家的策略，导致了对《大巴灵顿宣言》作者的死亡威胁和种族主义袭击。正如旧金山加州大学的菲内.帕瑞沙德博士（Vinay Prasad）所指出的，NIH主任的工作是促进科学家之间的对话，并允许有不同的观点，但柯林斯却试图用打压来取代合法的辩论。”
+7. Dongguan Huiqun Electronic Co., Ltd.
 
-令人不解的是，参议院是福奇要面临科学审查的唯一机构，如此重要的角色落在了兰德.保尔博士（为数不多的受过医学培训的参议员之一）身上。如果美国福奇博士让意见分歧的公共卫生科学家参与了参议院政治环境以外的文明辩论。并且接受了公开的讨论，公众可能会从更好的大流行病政策中受益，例如：
+8. Guangdong Guanghua Sci-Tech Co.
 
-更准确的公共卫生沟通，减少散布恐惧，强调老年人和年轻人的新冠病毒死亡率风险差异超过1000倍。
+9. Guangxi Intai Technology Co., Ltd.
 
-釆用《大巴灵顿宣言》所提议的、更具针对性的公共卫生措施，更好地专注于保护老年人和其他高风险美国人。
+10. Guangzhou Hymson Laser Tehnology Co., Ltd.
 
-开放学校，让学生在大、中学课堂内接受面对面的授课。
+11. Harbin Xinguang Feitian
 
-减少次生的公共卫生灾难。
+12. Hefei Anxin Reed Precision Co., Ltd.
 
-减少对全世界贫穷和工薪阶层的伤害。
+13. Heshan Deren Electronic Technology Co., Ltd.
 
-迅速进行NIH/NIAID资助的非专利药物随机临床试验，以确定哪些方法可用来进行病毒患者早期的治疗，如果在这些评估中投入到与疫苗方面一样多的努力，许多人可能会幸免于难。
+14. Hubei Longchang Optical Co., Ltd.
 
-认识到康复的新冠病毒的自然免疫力，并利用它们来保护养老院居民和体弱的医院患者。
+15. Hubei Sinophorus Electronic Materials Co., Ltd.
 
-更有针对性的疫苗接种，而不是强制性的疫苗护照，并更快、更彻底地评估疫苗安全性，以提高公众对疫苗的信心。
+16. Hunan University
 
-不幸的是，博士坐在世界上最大的传染病研究资金储量之上，NIAID的年度预算超过60亿美元。Fauci在其他传染病科学家几乎没有反对的情况下指挥了国家的疫情战略。
+17. Jinan Bodor CNC Machine Co., Ltd.
 
-随着疫情的结束，像所有疫情一样，科学界还有很多工作要做，以重新赢得公众的信任。大流行病管理失败造成的附带损害包括公众对学术界更广泛的不信任。虽然只是少数科学家必须对错误的大流行战略负责，但所有科学家——无论是化学家、生物学家、物理学家、地质学家、经济学家、社会学家、心理学家、公共卫生历史学家、临床医生、流行病学家还是其他领域——现在都有责任恢复对科学和学术界的信任。而首先必须要做的就是承认所犯的错误。
+18. Jiutian Intelligent Equipment Co., Ltd.
 
-原文链接：[https://www.zerohedge.com/covid-19/does-fauci-bear-any-responsibility-he-says-no](https://www.zerohedge.com/covid-19/does-fauci-bear-any-responsibility-he-says-no)
+19. Kunshan Heng Rui Cheng Industrial Technology Co., Ltd.
 
+20. Shanghai Fansheng Optoelectronic Science & Technology Co., Ltd.
+
+21. Shanghai Micro Electronics Equipment (Group) Co., Ltd.
+
+22. Shuang Xiang (Fujian) Electronics
+
+23. Southern University of Science and Technology
+
+24. Suzhou Chaowei Jingna Optoelectric Co., Ltd.
+
+25. Suzhou Gyz Electronic Technology Co., Ltd.
+
+26. Suzhou Lylap Mould Technology Co., Ltd.
+
+27. Wuxi Biologics Co., Ltd.
+
+28. Wuxi Biologics (Shanghai) Co., Ltd.
+
+29. Wuxi Turbine Blade Co., Ltd.
+
+30. Yunnan Fs Optics Co., Ltd.
+
+31. Yunnan Tianhe Optoelectronic Co., Ltd.
+
+32. Zhengzhou Baiwai Intelligent Automation
+
+33. Zhuzhou CRRC Special Equipment Technology Co.
+
+截止目前，这份名单上的实体总数大约达到了175个。
+
+商务部负责出口执法的助理部长，马修‧阿克塞尔罗德（Matthew Axelrod）在声明中说：“通过及时完成最终用途核查，来核实外国当事方的合法性与可靠性，是我们出口管控制度的一项核心原则。”他表示，将33家中国实体加入“未经核实名单”，将协助美国出口商从事尽职调查并评估风险，并向中共政府发出信号，表明他们在安排最终用户核查方面予以配合的重要性。
+
+美国商务部要求，美国公司与纳入名单的实体进行交易，必须进行额外的尽职调查，包括提交更多的文件。按照限制措施，美国出口商若想与被列入名单的中国公司交易，必须获得许可证。同时，美方提醒被列入清单上的公司必须证明自己是合法的，并且愿意遵守美国法规才能继续接收货物。
+
+文字版原文：[中日财经爆┃美国加强对中共出口管制 33家实体上榜](https://gnews.org/zh-hans/1973444/)
+
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
