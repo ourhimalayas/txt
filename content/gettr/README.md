@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/16/2022 11:37 PM (UTC)`
+
+2/16/2022 Miles Guo: Under the threat posed by various Western countries, Putin backed down, withdrew its troops, and fooled the idiot, Xi Jinping, causing Putin and Xi to break up. This is great news for Taiwan! What Putin plays is the top game in the world - the War Economy. It is profitable whether Putin declares war or withdraws his troops.<br/><br/>2/16/2022 文贵直播：在西方各国的威胁下，普京服软撤军并耍了二货习近平，俩人因此彻底掰了，这对台湾是个大好事！普京玩的是世界最高等的游戏 - 战争经济，喊打喊撤都能赚钱！<br/>
+![img](https://media.gettr.com/group3/getter/2022/02/16/23/c5091315-af1b-2bd2-088b-5474d8fd469c/out.jpg)
+
+---
+
 `@miles 2/16/2022 11:20 PM (UTC)`
 
 2/16/2022 Miles Guo: Top secret intelligence! Biden told Xi Jinping that the prerequisite for the U.S. not to cut diplomatic ties with the CCP is the investigation into the origins of the virus. Discrimination and violence experienced by the Asians will drive them to protest across the globe. Biden will shift the blame of the disasters caused by the COVID virus and its vaccines to the CCP. Biden will trick the CCP into its demise.<br/><br/>2/16/2022 文贵直播：绝密情报！拜登告诉习太阳美中不断交的前提是病毒溯源；亚裔遭遇的歧视和暴力将推动全球亚裔集体抗议；拜登将把病毒和疫苗灾难的责任甩给中共，中共将被拜登玩死！<br/>
@@ -145,13 +152,6 @@
 
 2月14号：尊敬的战友们好！再祝全天下的兄弟姐妹们，战友们．情人节快乐！
 ![img](https://media.gettr.com/group50/getter/2022/02/14/15/f319ddca-6d74-5245-af1d-a42d87560118/out.jpg)
-
----
-
-`@miles 2/14/2022 3:17 PM (UTC)`
-
-2/13/2022 Miles Guo: The International Olympic Committee is a criminal organization that has committed countless crimes. All the international organizations corrupted by the CCP such as the WTO, WHO, and the UN Commission on Human Rights are lawless and have been exploiting the Chinese people by colluding with the CCP. Without faith, humans will be more wicked than devils.<br/><br/>2/13/2022 文贵直播：国际奥委会是罪组织，其罪行罄竹难书；被中共腐败的WTO、WHO和联合国人权理事会等国际组织无法无天，跟中共沆瀣一气压迫中国人；若信仰缺失，人比魔更邪恶<br/>
-![img](https://media.gettr.com/group26/getter/2022/02/14/15/f3a8b991-59b4-8848-2f56-fa1d419e307e/out.jpg)
 
 ---
 
