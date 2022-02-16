@@ -2,46 +2,32 @@
 ---
 
 
-## 七哥说“我希望冬奥会开成”
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2011077/)
+## 俄罗斯和乌克兰紧张局势缓和，股市上涨，油价下跌
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2011172/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+#### 翻譯：melody
+编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-69.png)图片来源：雅典娜设计组（614）
+根据路透社2月16日报道，华尔街和欧洲股市周二反弹，而油价下跌，此前俄罗斯曾表示将从乌克兰附近的演习中撤出部分军队，而普京则表示他看到了与西方进一步讨论的空间。
 
-2022-02-13直播摘录09：31：58
+乔·拜登总统随后表示，俄罗斯仍有可能对乌克兰发动袭击，美国将保卫北约的每一寸领土。
 
-你看看现在这个加拿大，你看看法国，你看看即将被砍头的乌克兰和俄国。世界元首都这么说话了：这是我的女人，我要拿回来！
+黄金和债券价格下滑，因乌克兰紧张局势可能缓和，避险资产失去部分吸引力。但北约表示，尚未看到任何降级的证据，俄罗斯下议院的投票则威胁到更广泛的僵局。
 
-就共产党这个毒，你就像认识路大脑袋一样，你跟他在一起你老是摸嗓子，因为他老吐痰，“咯儿～咯儿～”，你老摸嗓子；跟蛇妖闫你就老（身体）晃荡，你就老觉得好像地震似的，喔噻，她晃啊，晃得你晕啊，她坐在这儿她手老这么晃（注：模仿蛇妖闫闫丽梦晃身体）她就整得（人）受不了，就老在那得瑟。你看到鸡腿潘那个小样子的时候，你就发现原来你（自己）那么伟大那么巨大，是吧？
+随着普京和德国总理奥拉夫·舒尔茨的讲话，美元指数缩减跌幅，这表明乌克兰的紧张局势尚未得到解决。
 
-你看到高冰尘的时候，你发现：喔噻我自己太帅了！你说这（注：手指向同框男战友）别说七哥了，七哥只能排老三，是吧？你看瑞沃路森，“咔～”小头（型）、Danny这样子，你叫高冰尘得啥感觉呀？他老婆能不给他戴绿帽子吗？她得找一个亚洲的性能力强的给他戴绿帽子，那能不戴绿帽子吗？看着你这俩人不跟你跑了吗？它是个本能。
+虽然乌克兰危机正在酝酿之中，但劳工部报告称，美国1月份生产者价格涨幅为八个月来最大，这提醒人们，高通胀可能会持续到今年的大部分时间。
 
-所以说兄弟姐妹们你看到今天，我们所有兄弟姐妹们、爆料革命战友你看到，你想想北京冬奥会带给我们的启示，共产党几乎是霸占了全世界、污染了全世界所有的国际组织，而且北京冬奥会就是对世界人类上最大的耻辱！我不相信国际奥林匹克组织还有未来了。
+新闻链接：[Stocks rally, oil slips as Russia-Ukraine tensions ease](https://www.reuters.com/markets/europe/global-markets-wrapup-1-2022-02-15/)
 
-- 1:32:30 所有去北京的运动员等于爆料革命派去的侦察员，回国以后都会用亲身经历天天骂共产党
+发布： wenly
 
-
-郭文贵先生：你知道这冬奥会还没结束呢，一旦开打，它打台湾，国内再暴乱，世界经济剧下，所有的奥运会运动员回了国都会被清算，没有一个运动员回来会（被）说是英雄的，一个都不会，你记住我的话，一个都不会的。他们去就是一生中最大的错误。
-
-然后回来以后他一定是吐槽，任何人敢夸这个冬奥会，你就是感觉再好你也不敢夸，你夸你绝对死了，那只有骂，骂就往死地骂。这个传播的力量有多大呀？共产党给咱做的这锅饭做得多好呀？这还用咱爆料吗？有人就爆料啊。就所有去北京的运动员是咱爆料革命等于派去的侦察员，回来以后（用）亲身经历天天骂共产党，这力量有多大呀！它想停都停不了。
-
-所以那时候我说“我希望冬奥会开成”，你们不知道我这意思，我希望它开成。
-
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,38 +2,22 @@
 ---
 
 
-## 加拿大魁北克省截至三月十四日完全取消疫苗护照
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2010887/)
+## 韩国新增确诊病例首次突破9万例
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2011036/)
 
-**编译: 真北007**
+撰稿：追着曙光跑
 
-来自MONTREAL GAZETTE 二月十五日的新闻报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/02/5A040985-4FE9-49A1-A6FE-BFF0404E08B7.jpeg)图片来源：https://montrealgazette.com
-魁北克卫生部长周二宣布，魁北克将逐步淘汰疫苗接种护照系统，至 3 月 14 日完全取消。
+据韩国KBS新闻2月16日的报道，韩国中央检疫对策本部宣布，截至今日（16日）零时，新增确诊病例较昨天零时增加了3万多例，首次突破9万例，全国累计超过155万人次确诊。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-16-at-10.04.17-1.jpeg)图片来源：原新闻视频截图
+重症患者较昨日减少1人至313人。近期重症患者呈上升趋势，连续三天在300人左右。 单日死亡人数增加39人，累计死亡7202人，病死率为0.46%。全国重症病床使用率为 26.9%。
 
-魁北克卫生部长克里斯蒂安·杜贝（Christian Dubé）周二表示，魁北克将逐步淘汰疫苗接种护照系统。
+截至今天（16日）零时，全国接受在家治疗的患者人数为266,040人。
 
-从明天周三开始，您在进入 酒类专卖店Société des alcools du Québec (SAQ) 和 Société québécoise du大麻店 (SQDC) 或进入大型商店时将不再需要出示疫苗护照。
+韩国总人口5200万，中共病毒疫苗注射情况如下，首针接种率为87.14%，完全接种率为86.15%，第三针加强针接种率57.71%。另外，从昨天开始给免疫力低下人群接种第四针剂。
 
-从 2 月 21 日起，进入礼拜堂或参加葬礼将不再需要疫苗护照。3 月 14 日，疫苗护照将完全取消（ Dubé 建议魁北克人将应用程序保留在手机上，以防第六波浪潮和国际旅行）。
+信息来源：**[\[속보\] 코로나19 신규 확진 9만 443명…첫 9만 명대 발생](https://news.kbs.co.kr/mobile/news/view.do?ncd=5396251)**
+**[코로나19 신규 확진자 9만명대로 급증…위중증 환자는 감소](https://news.kbs.co.kr/mobile/news/view.do?ncd=5396253)**
 
-从3月 14 日起，您无需出示疫苗护照即可进入餐厅、酒吧、健身房或电影院，或参加其他公共活动。魁北克没有对在大多数室内环境中强制佩戴口罩的规定进行任何更改。
-
-周一，省长弗朗索瓦·乐高表示，他希望尽快放弃为抗击 COVID-19 而制定的所有卫生措施。
-
-**原文链接：**
-
-[Vaccine passport ‘has shown its usefulness,’ but is less necessary now, Dubé says](https://montrealgazette.com/news/local-news/vaccine-passport-has-shown-its-usefulness-but-is-less-necessary-now-dube-says)
-
-**编辑：LILY**
-
-**发布：歪桑**
-
-20220215
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3-4.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
