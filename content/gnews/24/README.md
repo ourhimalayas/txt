@@ -2,10 +2,10 @@
 ---
 
 
-## 日本居家疗养感染者超54万 创下新高
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2011239/)
+## 加拿大卡车司机反强制疫苗抗议已持续20天
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2011244/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2._16-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/20220216-scaled.jpg)
 *编辑：东京樱花团/简报小组
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)

@@ -2,36 +2,31 @@
 ---
 
 
-## 美国财政部：加密货币矿工免于遵守国税局的报告规则
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2011405/)
+## 有声|日本滑雪女神高梨沙罗被取消成绩
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2011460/)
 
-#### 翻译/编辑：小红帽  
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Cryptocurrencies_800x533_L_1556528074-1.jpg)图片来源：www.investing.com
-根据Cointelegraph 2月14日报道，美国财政部确认，加密货币矿工和钱包运营商可免于遵守美国国税局的报告规则。当局将编制适当的法规。
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+2月7日，日本滑雪女神高梨沙罗在跳台滑雪混合项目中，第一跳就跳出了123米的好成绩。但让人意想不到的是，因大腿的紧身衣宽松了2公分，高梨沙罗被判因着装违规而取消资格，成绩被直接作废。
 
-美国的加密货币行业即将取得一项重大的法律利好，因为美国财政部计划让加密货币矿工和其他“辅助方”免于遵守纳税报告规则。
+高梨沙罗向奥委会滑雪协会进行了申诉，但没有被接受。据悉，不只高梨沙罗，德国、奥地利、挪威等国的其他5名选手，也因为所谓服装违规被取消了成绩。
 
-在周五致参议员的信中，美国财政部表示，它计划让加密货币矿工、造币商和其他市场参与者免于遵守要求加密货币经纪商与国内税收局共享客户交易数据的规则。
+有分析人士称，中共为了赢得比赛已经到了无所不用其极的地步，他们不在奥运会前检查运动员的服装是否合格，偏要等到比赛开始才以衣服长了2厘米为由，取消他国成绩优异者的比赛成绩。但是，这些卑劣手段只能让世界对他的本质认识得越来越深刻。
 
-财政部负责立法事务的助理部长乔纳森-戴维森（Jonathan Davidson）在信中表示，该部门的立场是，“无法获得对国税局有用的信息的辅助方，不打算被经纪人的报告要求所涵盖”。
+文字版原文：[日本滑雪女神高梨沙罗被取消成绩](https://gnews.org/zh-hans/2002757/)
 
-戴维森还强调，加密货币验证者“不可能知道一项交易是否是销售的一部分”，而参与提供硬件或软件加密货币钱包相关服务的实体 “没有进行经纪活动”。
+音频处理：Fei797
+发稿：Fei797
 
-财政部还将考虑“数字资产市场中的其他各方，如集中式交易所和那些通常被称为分散式交易所和点对点交易所，应在多大程度上被视为经纪商。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
 
-彭博社报道，财政部正计划发布拟议的法规，以包括其对经纪人定义的立场。
-
-新闻链接：[Crypto miners exempt from IRS reporting rules, US Treasury affirms](https://cointelegraph.com/news/crypto-miners-exempt-from-irs-reporting-rules-us-treasury-affirms)
-
-发布：wenly
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

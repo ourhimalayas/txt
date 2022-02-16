@@ -2,32 +2,32 @@
 ---
 
 
-## 北京冬奥瑞典双金牌得主抨击中共国亵渎奥运精神
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2011144/)
+## 俄罗斯和乌克兰紧张局势缓和，股市上涨，油价下跌
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2011172/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Unknown-13.jpg)北京冬奥瑞典双金牌得主抨击中共国亵渎奥运精神 网络图片
-据美国之音2月16日报道，在北京冬奥会男子速度滑冰比赛中夺得5000米和10000米两枚金牌，并且在10000米速滑比赛中打破世界纪录的瑞典选手尼尔斯∙范德普尔，在返回瑞典之后，公开抨击国际奥委会（IOC）将奥运会交给中共国这样“公然侵犯人权”的国家主办是“极端不负责任”。
+#### 翻譯：melody
+编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-69.png)图片来源：雅典娜设计组（614）
+根据路透社2月16日报道，华尔街和欧洲股市周二反弹，而油价下跌，此前俄罗斯曾表示将从乌克兰附近的演习中撤出部分军队，而普京则表示他看到了与西方进一步讨论的空间。
 
-范德普尔在北京冬奥会开幕前曾表示不方面发表评论，在他返回瑞典后，表示北京的情况很“糟糕”，但他不想说太多，因为瑞典还有运动员在中共国参加比赛。他只是将北京冬奥会做了比较：德国1939年入侵波兰前举办过1936年柏林奥运会，俄罗斯2014年吞并乌克兰克里米亚半岛前举办过索契冬奥会。
+乔·拜登总统随后表示，俄罗斯仍有可能对乌克兰发动袭击，美国将保卫北约的每一寸领土。
 
-因为中共国人权问题，美国、英国、加拿大、澳大利亚和立陶宛等国对北京冬奥会实施了外交抵制。另有一些国家没有派遣高级官员出席冬奥会。全球主要人权团体一再呼吁各国政府全面抵制北京冬奥会。中共政府不仅否认所有指控，还抨击那些实施外交抵制的国家将体育“政治化”。这才是现实版的“贼喊捉贼”。
+黄金和债券价格下滑，因乌克兰紧张局势可能缓和，避险资产失去部分吸引力。但北约表示，尚未看到任何降级的证据，俄罗斯下议院的投票则威胁到更广泛的僵局。
 
-既然中共国不承认有新疆人权侵犯，就让外国记者进入新疆去考察；既然中共国不承认病毒来源于武汉病毒研究所，就打开实验室让世界各国的科学家去溯源。没做亏心事，不需要动不动暴跳如雷，又谴责又抗议。除了证明泼妇会骂街，人权问题和病毒问题还是没有解决。冬奥会召开了，各国运动员实地到了现场，每个人回来之后都会讲出自己真实的经历，对比习近平讲述的“中国故事”，孰真孰假，每个人都会分辨。
+随着普京和德国总理奥拉夫·舒尔茨的讲话，美元指数缩减跌幅，这表明乌克兰的紧张局势尚未得到解决。
 
-新闻参考链接：[https://www.voachinese.com/a/swedish-skater-says-extremely-irresponsible-china-hosting-olympics-amid-human-rights-abuses-20220215/6442759.html](https://www.voachinese.com/a/swedish-skater-says-extremely-irresponsible-china-hosting-olympics-amid-human-rights-abuses-20220215/6442759.html)
+虽然乌克兰危机正在酝酿之中，但劳工部报告称，美国1月份生产者价格涨幅为八个月来最大，这提醒人们，高通胀可能会持续到今年的大部分时间。
 
-* * *
+新闻链接：[Stocks rally, oil slips as Russia-Ukraine tensions ease](https://www.reuters.com/markets/europe/global-markets-wrapup-1-2022-02-15/)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+发布： wenly
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

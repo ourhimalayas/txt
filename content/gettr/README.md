@@ -17,6 +17,26 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/16/2022 2:37 AM (UTC)`
+
+2月15号：七哥从这一刻起个人正式破产了……案件号码：Case No. 22-50073.
+![img](https://media.gettr.com/group22/getter/2022/02/16/02/e8987dd5-aaf6-9e6b-4ee1-8cdc4355daae/d0bf02e954caa10226071004f47d06c4.jpg)
+
+---
+
+`@miles 2/16/2022 2:35 AM (UTC)`
+
+2月15号：七哥从这一刻起个人正式破产了……案件号码：Case No. 22-50073.
+![img](https://media.gettr.com/group4/getter/2022/02/16/02/8de03dc2-59fd-2bde-b547-5253b26dda08/out.jpg)
+
+---
+
+`@miles 2/16/2022 2:32 AM (UTC)`
+
+2月15号：赵长鹏．和币安玩球蛋了……全球最大比特币交易所币安遭SEC调查<br/><br/>夏雨辰 1小时前<br/>字数 451 阅读 2分钟<br/>摘要：币安在2022年又“摊上事了”，SEC怀疑其与两家交易附属公司之间有不正当关系。<br/>继2021年曾被各国监管机构“联合围剿”审查之后，全球最大的加密货币交易所币安在新的一年里又“摊上事了”。<br/><br/>《华尔街日报》援引知情人士称，美国证券交易委员会（SEC）正在审查币安美国交易所与两家交易附属公司之间的关系。<br/><br/>这两家交易公司Sigma Chain AG和Merit Peak Ltd担任着币安美国交易所的做市商，且截至去年底，二者均由币安创始人兼首席执行官赵长鹏控股。<br/><br/>https://wallstreetcn.com/articles/3652036
+
+---
+
 `@miles 2/16/2022 1:17 AM (UTC)`
 
 2月15号：这是真正的真相……
@@ -132,27 +152,6 @@
 
 2月13号：衷心地感谢，喜安娜喜安迪姐妹制作精美的视频和唱得真美妙的歌曲……祝，全球的所有的战友们和全天下的人们，情人节快乐！
 ![img](https://media.gettr.com/group25/getter/2022/02/14/02/c06aba87-231a-2e26-d3ec-05788301e836/out.jpg)
-
----
-
-`@miles 2/14/2022 2:37 AM (UTC)`
-
-2/13/2022 Miles Guo: The relationship between the US dollar and the Euro is not a zero-sum game. Instead, they depend on each other. The imminent world war is caused by the ignorance and hubris of Xi Jinping and the mutual deception in Communist China. When the world economy collapses, digital currencies, especially Himalaya Pay, are going to be the biggest winner.<br/><br/>2/13/2022 文贵直播：美元和欧元的关系不是你死我活，而是谁都离不开谁；一触即发的世界大战源于习太阳的无知、狂妄和中共国的欺骗互骗；世界经济崩塌时，数字货币、喜支付就是最大赢家<br/>
-![img](https://media.gettr.com/group16/getter/2022/02/14/02/843efa23-4f26-7459-ed47-696136ca9a52/out.jpg)
-
----
-
-`@miles 2/14/2022 2:30 AM (UTC)`
-
-2/13/2022 Miles Guo: Trucks are essential to the world economy. The Freedom Convoy has made it imperative for people to oppose the COVID vaccine mandate. GETTR has had a tremendous impact on the Freedom Convoy. I told the leaders of the Freedom Convoy to refer to the success of trucks in the 2019 Hong Kong movement and warned them not to be violent.<br/><br/>2/13/2022 文贵直播：卡车是世界经济的必须，大卡车运动让人们必须反对疫苗强制令；盖特对大卡车运动有巨大的影响，文贵让大卡车运动的领头人参考香港运动中卡车的成功经验并告诫其不能有暴力<br/>
-![img](https://media.gettr.com/group45/getter/2022/02/14/02/3c9562d5-e2d0-0916-d8ca-42cd566a38a1/out.jpg)
-
----
-
-`@miles 2/14/2022 2:18 AM (UTC)`
-
-2/13/2022 Miles Guo: The CCP and Russia will be destroyed once they start a war. The world economy will be restructured, and the whole world will investigate the Wuhan lab. The COVID vaccine disaster will change the Western media, healthcare, insurance, and political landscape. The over-issued fiat currencies will turn into a bubble, and the era of digital currency will commence. The New Federal State of China will be the winner!<br/><br/>2/13/2022 文贵直播：中共和俄罗斯一旦发动战争就必灭，世界经济将重整，全世界都会调查武汉实验室；疫苗灾难会改变西方的媒体、医疗、保险和政治格局；超发的法币会变成泡沫，数字货币时代将开启，新中国联邦是赢家！<br/>
-![img](https://media.gettr.com/group43/getter/2022/02/14/02/901cdc9b-f456-bd9f-4130-f5b98412de39/out.jpg)
 
 ---
 

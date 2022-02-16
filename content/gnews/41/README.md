@@ -2,23 +2,21 @@
 ---
 
 
-## 日本首次使用HPAY购买高档手表
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2010318/)
+## 班农相信能推翻共产党的只有中国人
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2010319/)
 
-作者：香草山福音部 — 林礼
+作者：纽约磐石农场 — 在远方
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-据日本樱花团战友2月14日盖特消息，情人节当天，樱花农场成功帮助战友使用HPAY在日本日新堂购买了两块劳力士手表，单价分别为 12650 HDO和 22245 HDO。这是日本樱花农场首次使用HPAY成功购物。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture1-23.jpg)
-我们在为这位战友送去最真挚的情人节祝福的同时，也祝贺新中国联邦日本樱花农场推广HPAY走出了非常关键的第一步！
+班农在最近一期的GTV采访中表示，他相信只有中国人才可以推翻共产党。他本人和班农战斗室将毕生支持中国人，与追求民主、自由、法治的中国人同在。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-38.jpg)
+班农指出，目前，全世界都受制于中共淫威，尤其是加拿大的特鲁多政府，但加拿大人民没有因为疫苗暴政而退缩，卡车司机们发起的和平示威运动，对于中国人来说，是一个很好的启迪。如果，中国人也可以像他们一样，不再对中共暴政逆来顺受，那么一定可以加速中共垮台。
 
-据悉，自HPAY成功上线以来，各农场战友就开始积极推广HPAY应用。目前推广比较成功的是台湾宝岛农场，已经使用HPAY成功交易了茶叶、摩托车等物品。 日本樱花团是目前全球达成交易的第二家农场。
-
-参考链接：[日本首次使用HPAY购买高档手表](https://gettr.com/post/pufvkqf056)
+参考链接：[班农相信能推翻共产党的只有中国人](https://gettr.com/post/pu89qz8791)
 
 ![This image has an empty alt attribute; its file name is calendar.png](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
 总编：天滅中共
-编辑：飞虹
+编辑：天滅中共
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**

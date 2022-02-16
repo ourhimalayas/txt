@@ -2,22 +2,31 @@
 ---
 
 
-## 无论输赢，俄罗斯将为侵略乌克兰付出沉重代价
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2011380/)
+## 美国财政部：加密货币矿工免于遵守国税局的报告规则
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2011405/)
 
-##### 翻译：Annabelle
-校对：Lish
-剪辑|字幕：向上James
-编辑：Mttfly
+#### 翻译/编辑：小红帽  
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Cryptocurrencies_800x533_L_1556528074-1.jpg)图片来源：www.investing.com
+根据Cointelegraph 2月14日报道，美国财政部确认，加密货币矿工和钱包运营商可免于遵守美国国税局的报告规则。当局将编制适当的法规。
 
-美国国家安全部顾问Jake Sullivan警告说俄罗斯随时都可能侵略乌克兰。前美国副国家安全顾问KT MacFarland认为，如果乌克兰愿意战斗，即使最后他们失败也会使俄罗斯损失惨重。此外她还表示，俄罗斯有很多超限手段对付乌克兰。最令人担忧的是习近平和普京互相支持彼此对台湾和乌克兰的战争。
+美国的加密货币行业即将取得一项重大的法律利好，因为美国财政部计划让加密货币矿工和其他“辅助方”免于遵守纳税报告规则。
 
-视频链接：[Russia would pay a high price for invading Ukraine: KT McFarland](https://video.foxbusiness.com/v/6296099648001#sp=show-clips)
+在周五致参议员的信中，美国财政部表示，它计划让加密货币矿工、造币商和其他市场参与者免于遵守要求加密货币经纪商与国内税收局共享客户交易数据的规则。
 
-*发布：Mttfly*
+财政部负责立法事务的助理部长乔纳森-戴维森（Jonathan Davidson）在信中表示，该部门的立场是，“无法获得对国税局有用的信息的辅助方，不打算被经纪人的报告要求所涵盖”。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+戴维森还强调，加密货币验证者“不可能知道一项交易是否是销售的一部分”，而参与提供硬件或软件加密货币钱包相关服务的实体 “没有进行经纪活动”。
+
+财政部还将考虑“数字资产市场中的其他各方，如集中式交易所和那些通常被称为分散式交易所和点对点交易所，应在多大程度上被视为经纪商。”
+
+彭博社报道，财政部正计划发布拟议的法规，以包括其对经纪人定义的立场。
+
+新闻链接：[Crypto miners exempt from IRS reporting rules, US Treasury affirms](https://cointelegraph.com/news/crypto-miners-exempt-from-irs-reporting-rules-us-treasury-affirms)
+
+发布：wenly
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
