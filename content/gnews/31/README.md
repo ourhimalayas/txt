@@ -2,27 +2,38 @@
 ---
 
 
-## 樱花FM┃速报：美国男子花样滑冰选手检测呈阳性或不能参赛
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2015350/)
+## 有声|Moderna总裁：破解mRNA可以玩弄整个生命王国
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2015438/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-1-6.png)
-2月7日：一位美国记者说，将参加北京奥运会男子单人花样滑冰项目的文森特-乔伊（美国）中共病毒(新冠病毒Covid-19)检测呈阳性。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+疫苗制造商Moderna的总裁曾说过，“如果你能够破解mRNA的规则，那么基本上整个生命王国都可以肆意被你玩弄”。随着mRNA技术应用于中共病毒疫苗真相的曝光，Moderna总裁这话听起来不免让人毛骨悚然。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/covid-19-vaccine-mrna-dna-1204201.jpeg)图片来源: 网络
+David Martin博士说，中共病毒疫苗并不是疫苗，使用“疫苗”这个词可以在公共卫生豁免下对公众形成误导。疫苗进入人体后会让人体自身细胞成为病原体制造者，结果会导致人体内的细胞互相攻击。大药商Moderna非常清楚这就是在杀人。
 
-21岁的乔伊是日本木下集团的成员。他在6日的团体赛中代表美国队参加了男子自由滑比赛，以171.44分取得第三名，帮助美国队获得了银牌。
+目前Moderna拥有数百名工程师和科学家，试图用生物信息技术来对人体进行攻击，并使人体依赖该技术，甚至他们称mRNA为生命软件。
 
-据美国滑冰协会的消息，文森特-乔伊昨天检测中共病毒呈阳性。乔伊将再次接受检测，如果这次测试结果为阴性，他才将有资格参加星期二开始的男子花样滑冰比赛。
+另外该项邪恶计划还包括使用改良的mRNA来重新编程人类的干细胞功能，获得对干细胞的基因改造技术。这是一套完整的细胞级操作，编码、解码、调节、改变人体内的生理指令。
 
-也就是说，如果这次检测仍呈阳性，那么乔伊选手就不能参赛了。
+文字版原文：[Moderna总裁：破解mRNA可以玩弄整个生命王国](https://gnews.org/zh-hans/2013473/)
 
-文字版原文：
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-[速报┃美国男子花样滑冰选手检测呈阳性或不能参赛](https://gnews.org/zh-hans/1969676/)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-编辑：东京樱花团/asket
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

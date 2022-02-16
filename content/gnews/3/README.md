@@ -2,39 +2,29 @@
 ---
 
 
-## 樱花FM┃北京冬奥 差评如潮
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2015900/)
+## 习近平攻台后，各方真实心态
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2015930/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-7-1.png)
-2月7日福布斯日本消息：参加北京奥运会的多国的奥运关系人士对中共作为东道国的所为提出了质疑，指谴责其对被隔离的运动员的非人道待遇、不合理规则、对外国媒体的压制。
+作者：纽约香草山福音部–小草
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+美国：习近平如果打了台湾，以美国为首多国联军趁机宣布中共为非法政权，宣布习近平犯下侵略和反人类罪，公开承认新中国联邦合法性，代表全体中国人。习只要打台湾，美国可以用反中共侵台，轻松转移掉国内分裂、疫苗死伤、美元超发、中期选举视线压力，同时拉上欧洲再干一次打伊拉克战争。美国可以全面没收和冻结中共盗国贼及子女资产（算敌对方资产）。美国从阿富汗失分后，可以在台湾上外交得分。
+欧洲：全面推行去中共化运动，洗牌各国政府生态，转移掉国内反疫苗情绪。可以趁机冻结中共在UBS,德意志银行资产。
+俄罗斯：佯装打乌克兰，讹诈了一把欧美，得了中共一笔钱，用台湾把中共拖入泥潭，亚欧通吃。
+日本：捍卫台湾后，确认自己是亚洲之王，坚定支持新中国联邦，为未来的新亚洲打好基石。
+印度：亚洲最坚定支持保守派政府，反疫苗最成功国家，阻截中共南海霸权推到自己家门口。
+越南和菲律宾、印尼：一帮跟在后面的小弟，中共垮了可以接棒制造业和出口。[https://www.cnn.com/2022/02/15/investing/premarket-stocks-trading/index.html https://cn.reuters.com/article/graphic-us-fed-gold-price-0215-idCNKBS2KK08C https://news.futunn.com/post/12968091?src=3&report\_type=market&report\_id=196702&futusource=news\_headline\_list&level=1&data\_ticket=1644954367573408 https://www.foxbusiness.com/economy/producer-prices-inflation-january-2022 https://sputniknews.cn/20220215/1039212124.html https://www.cnn.com/2022/02/15/investing/oil-gas-russia-ukraine/index.html https://cn.reuters.com/article/ukraine-russia-impact-chips-0215-tues-idCNKBS2KK10W?il=0](https://www.cnn.com/2022/02/15/investing/premarket-stocks-trading/index.html%20https://cn.reuters.com/article/graphic-us-fed-gold-price-0215-idCNKBS2KK08C%20https://news.futunn.com/post/12968091?src=3&amp;report_type=market&amp;report_id=196702&amp;futusource=news_headline_list&amp;level=1&amp;data_ticket=1644954367573408%20https://www.foxbusiness.com/economy/producer-prices-inflation-january-2022%20https://sputniknews.cn/20220215/1039212124.html%20https://www.cnn.com/2022/02/15/investing/oil-gas-russia-ukraine/index.html%20https://cn.reuters.com/article/ukraine-russia-impact-chips-0215-tues-idCNKBS2KK10W?il=0)
 
-据路透社报道，2月6日，芬兰男子冰球队教练Jukka Jalonen指责中共不尊重冰球运动员的人权，说冰球运动员Marko Anttila在中共病毒（新冠病毒Covid-19）检测呈阳性后的隔离期间，没有适当的食物，被置于巨大的压力下。
+编辑/校对/发稿：菩提树
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2月-2.jpg)
+**更多资讯，更多关注**
 
-芬兰队医说，尽管18天前，安提拉的检测结果呈阳性，已不再被认为具有传染性。但中共国仍然强迫她接受隔离。
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-此外，5日，德国队负责人告诉记者，滑雪运动员Eric Frenzel被安置的条件是 “不可接受的”。他抱怨自己的房间很脏、食物质量差、没有WiFi可用。倒是这些问题在第二天得到了解决。
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-同样被强制隔离的比利时骨感女孩Kim Meieremans，周三在Instagram上发布了一段哭诉视频，称她已经连续两次检测呈阴性，以为自己会被解除隔离，但她却被隔离到了另一个地方。
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-她哭着说，我甚至不知道我是否能再回到奥运村，不知道我是否要在孤立无援的情况下度过接下来的14天，我是否能参加比赛？
-
-同时，中共国政府对待外国媒体的态度也受到了质疑。 4日，当局强行带走了一名在体育场外直播报道的荷兰电视台记者。这名记者在推特上说，他和其他媒体同事曾多次被不明身份的人阻止报道。
-
-包括美国、英国和加拿大在内的许多国家已经宣布对奥运会进行外交抵制，拒绝派遣部长和官员去参加北京冬奥会，以抗议中共对维吾尔自治区、西藏和台湾的人权侵犯行为。
-
-维吾尔族奥运选手作为最后一名火炬手出现在4日的开幕式上，但专家批评说这是基于中国政府的某种意图。研究新疆问题的弗罗斯特堡州立大学准教授马海云告诉路透社，中共这是试图通过选择维吾尔族运动员作为火炬手，来回击西方对其种族灭绝和迫害的批评。
-
-笔者也想补充一句，中共特意选以为维吾尔族奥运选手作为最后一名火炬手，堪称”此地无银三百两”的惟妙惟肖的演绎！
-
-文字版原文：
-
-[北京冬奥 差评如潮](https://gnews.org/zh-hans/1968663/)
-
-编辑：东京樱花团/asket
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
