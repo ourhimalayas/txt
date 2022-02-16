@@ -2,28 +2,38 @@
 ---
 
 
-## 澳洲选举委员会呼吁各州勿将强制疫苗令引入投票站
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2015621/)
+## 印度再禁54款中共国App
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2015631/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Picture1-9.jpg)网络图片
-澳大利亚选举负责人近日发表声明，希望各州政府不要在选举投票站实施强制的CCP病毒疫苗接种规则 。
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image011-2.jpg)
+印度方面以安全顾虑为由，禁止了**54**款来自中共国的**App**应用软件，其中包括冬海集团的游戏**“Free Fire**我要活下去**“**。这是中印两国因边界纠纷导致双方关系紧张的大背景下，印方采取的最新步骤。
 
-来自澳大利亚选举委员会（AEC）的负责人汤姆罗杰斯在2月15日晚上告诉参议院，AEC 虽然要求其所有工作人员（包括临时工在内）接种疫苗，但不会要求选民必须注射疫苗后才能亲自到场投票。
+由腾讯、阿里巴巴及网易等中共国互联网公司开发的一些软件**2020**年已经被印方禁止，但是，其更名后的新版本这次再度被印度电子和信息技术部禁止使用。**
 
-罗杰斯先生强调，他“非常希望”任何州都不会在现场投票环节增加“强制CCP病毒疫苗规则”，因为他十分担心强制的CCP病毒疫苗规则会对整个选举过程造成干扰。
+“Free Fire**－我要活下去**“**是目前全球最受欢迎的移动游戏之一，在谷歌游戏的下载量已经超过十亿。冬海集团的快速成长主要得益于这款软件。根据工业追踪软件**Annie**显示的数据，这款游戏软件也是印度去年第三季度营业额最高的一款游戏软件。
 
-如果有任何州决定在选举投票过程中引入强制CCP病毒疫苗的机制，AEC会尽全力沟通并找到解决方案。
 
-罗杰斯先生表示，委员会将不得不考虑各州“不同”的卫生命令，并正在与地方当局讨论将采取哪些措施。据澳媒第九新闻报道，口罩强制令大概率会在各个投票场所实施，投票设施内也会提供相关物资。
 
-考虑到病毒大流行期间的安全措施，选举委员会预计将在本次投票中使用 450 万支铅笔——高于 2019 年的 100,000 支——以及 34,000 瓶表面清洁剂和 63,000 升洗手液。罗杰斯先生将本次选举称为“有史以来最为复杂的一次”。
+**推出问题，敲出真相，爆料在路上！**
 
-对于本次选举的公平性，网络及社交媒体目前也是众说纷纭。AEC最近甚至还制作了一段视频，向人们保证澳大利亚的选票将以人工计票的方式进行，而不会效法美国采用与Dominion类似的计票机器。
+**请关注和订阅我们的以下账号：**
 
-新闻参考链接：[Australian Electoral Commissioner ‘dearly’ hopes states won’t impose vaccination mandate on polling places](https://www.9news.com.au/national/federal-election-2022-australian-electoral-commissioner-dearly-hopes-states-wont-impose-vaccination-mandate-on-polling-places/d8092df2-847f-445d-a27f-e25ad3d66569)
+**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
+**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+
+**玫瑰看新闻YOUTUBE账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**ROSE NEWS**
+
+**【玫瑰看新闻】推特账号**：
+
+**ROSE NEWS (@ROSENEWS4)A**
 
  
 

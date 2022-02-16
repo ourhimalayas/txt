@@ -2,36 +2,35 @@
 ---
 
 
-## 文革受害者之北大教授俞大絪
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2016054/)
+## 朝日新闻：因冬奥会裁决偏颇，中共国留学生在韩国遭暴行
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2016101/)
 
-作者：纽约香草山农场-马克文、朱丽叶
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-俞大絪，北京大学教授，中国英语语言学家，对英国语言文学有着很高的素养，是中国最好、最流行的一套英语教材的作者之一，也培养了大批的青年教师。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-16-下午12.27.36.png)
-俞教授于1905年出生在浙江山阴的名门世家，是曾国藩的曾外孙女。而她的丈夫曾昭抡也是民国的知名学者，其在获得美国麻省理工学院化学博士学位后，回国任教授一职。20世纪40年代末，蒋介石在离开大陆前曾劝说夫妇二人同去台湾，但最终被他们遗憾拒绝。
+翻译：宫米叶
 
-文革初期，俞大絪和曾昭抡被无辜定罪，随即遭到了红卫兵的抄家批斗。在批斗中，曾俞二人被迫下跪，甚至被红卫兵剥除上衣，用皮带死命抽打。1966年8月25日，独自在家的俞大絪悲愤难抑，遂服毒自尽。一年后，曾昭抡也不堪折辱，逝世在武汉。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/20220211-00000097-ann-000-9-thumb.jpg)图片来源：news.yahoo.co.jp / All Nippon NewsNetwork(ANN)
 
-资料显示，中共国内十年文化大革命期间，全国工、农、兵及社会各阶层均被动乱波及，尤其是中共针对高级知识分子的严酷批斗与暴力行为，导致中国大批科学家与教授、教师等宝贵人才死亡，造成了中华民族一代，甚至几代的人才断代，其所造成的损失极为惨痛，难以挽回。
+对于中国留学生在韩国遭到暴行一事，中国外交部表示：“我们正密切关注。”在韩国，围绕奥运会的裁决等问题，对中共国的批评不断上升。
 
-参考链接：
-1）[俞大𬘡（维基百科）](https://zh.wikipedia.org/wiki/%E4%BF%9E%E5%A4%A7%E7%B5%AA)
-2）[俞大絪之死](https://botanwang.com/articles/202108/%E4%BF%9E%E5%A4%A7%E7%B5%AA%E4%B9%8B%E6%AD%BB.html)
+投稿中写道，9日晚，在韩国釜山，一名中国留学生被两名韩国男子殴打。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+鉴于事态发展，中共国外交部在11日的记者会上表示：“我们正密切关注此事。已经与当事人取得了联系“。
 
-总编：Irene木木
-编辑：静言
-校正/发稿：呼吸的雾霾（文小呼吸）
+在此基础上强调会“维护海外中国人民的权利和安全”。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据韩国媒体报道，当地警方表明他们并不是针对特定的中国人。
+
+韩国目前由于北京奥运会短道速滑的裁定偏向中国，反华情绪高涨。
+
+**参考资料：**[news.yahoo][韓国で中国人留学生が暴行される　中国外務省「非常に注目」](https://news.yahoo.co.jp/articles/dde1893e679698c417e67ba7e9dd3e29c8a0c26d)
+
+* * *
+
+*审核：天天*
+*校对：zicoround*
+*发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-4.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
