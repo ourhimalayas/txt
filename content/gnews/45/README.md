@@ -2,10 +2,10 @@
 ---
 
 
-## 瑞典双金选手批评中共侵犯人权 不应举办冬奥会
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2011758/)
+## NBA为取悦中共解雇球员埃内斯·坎特
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2011759/)
 
-作者：纽约香草山教育部—Noemi
+作者：日本方舟农场—Miyale7768(文玉)
 
 
 
@@ -13,17 +13,12 @@
 
 
 
-外媒15日报道，本届冬奥会长道速滑双金获得者，瑞典明鉴尼尔斯·范德普尔在归国后发表评论称，让中共这样严重侵犯人权的国家举办奥运，是极度不负责任的行为。
+外媒11日报道，NBA为取悦中共，最近突然解雇了球员埃内斯·坎特。 坎特曾多次在推特上，抨击中共在新疆、西藏、香港问题上严重践踏人权的暴行。这些批评言论顯然让NBA在面對中共時感到害怕，因为他们在和中共的合作中，通過中共血腥压迫人民，赚取了每年数百万美元的利润。
 
-范德普尔曾说不方便在冬奥会前，发表他对北京冬奥会的反对意见，因此，在回到瑞典之后，他对中共严重的侵犯人权，公开了自己的看法。但他仍然认为自己目前还不能够说的太多，因为他的国家还有其他运动员仍然在北京参加比赛。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-8.jpg)
-范德普尔表示自己比较了希特勒在入侵波兰之前举办的奥运会，以及俄罗斯在入侵乌克兰之前举办的冬奥会，认为中共治下的本届北京冬奥会和他们一样，根本不应该由这些严重侵犯人权的政权主办奥运赛事。
-
-此前，郭文贵先生曾经预言，所有前去参加冬奥会的运动员都相当于新中国联邦派去中共的侦查员，他们会在中共冬奥会上见识到种种的虚假和丑恶，不遗余力地传播到各个国家中去，并将终生成为坚定的灭共者。
-
+對此，埃内斯·坎特在接受媒体采访时说：“我不在乎我是否被禁止或者被罚款，我是一名篮球运动员，但我认为我所做的事情比篮球更重要。明確自己是在为无辜的人做正確的事情，总是会额外為自己帶來更多的希望和动力。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-8.jpg)
 参考链接：
-1. [瑞典冬奥双金选手批中共侵犯人权 不应办奥运](https://www.epochtimes.com/gb/22/2/14/n13576539.htm)
-2. [Nils van der Poel saw the Olympic Games in China – dare to tell after the gold](https://newsbeezer.com/swedeneng/nils-van-der-poel-saw-the-olympic-games-in-china-dare-to-tell-after-the-gold/)
+[NBA Wants No Part of Freedom: China Critic Bounced Out of the League](https://newsbusters.org/blogs/culture/jay-maxson/2022/02/11/nba-wants-no-part-freedom-china-critic-bounced-out-league)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
 
