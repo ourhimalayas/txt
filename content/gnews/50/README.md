@@ -2,26 +2,28 @@
 ---
 
 
-## 中共不灭 世界永无和平
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2012044/)
+## 越南即将结束对国际航班的疫情封锁措施
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2012251/)
 
-作者：纽约磐石农场 – 在远方
+作者：纽约香草山农场-Naughty(文行)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月15日，郭文贵先生在盖特视频中谈及，中共北京冬奥会和谷爱玲母女事件将造成海外华人与世界对立的结果。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/4-32.jpg)
-郭先生解释道，作为不承认双重国籍的中共国，美国人谷爱玲却为中共国夺得奥运金牌——这种荒唐事件不仅让中国人丢脸，也让海外华人与世界对立，其危害是深远的。同时，谷爱玲母女事件和北京冬奥会也让全世界看清了中共的真面目。此外，即将到来的中共病毒疫苗灾难正在让各国政府高度紧张，而文明国家的人民也在奋起反抗来自各个政府的疫苗暴政。
+当地时间2月13日，据相关媒体报道，自2月15日起，越南已经取消了因中共病毒疫情而在航空业方面实行的限制措施，此次解封包括所有的国际客运航班。
 
-郭先生也提到，中国人民智慧如海，能冲走一切灾难。因此，但凡中国人被容许说话，墙内就不会有锁链女、杨改兰等悲剧出现。但是，中共妄想领导世界，到处通过“蓝金黄”干涉他国内政，又派出特务单伟健骗走美国乃至全世界的养老基金。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide6-9.jpeg)
 
-对此，郭先生警告称，只要共产党和共产主义不灭，全世界将永无安宁。
+报道提及，自疫情爆发以来，越南实施了严格的边境控制政策，而该政策已经严重影响了当地的旅游行业。为此，从2022年年初开始，越南将逐步恢复与 15 个国家的国际航班，同时，当地政府也放宽了对入境旅客的隔离要求。
 
-参考链接：[2/14/2022 文贵盖特：只有文明国家的老百姓才能发声并反抗强打疫苗；冬奥会和谷爱凌母女让海外华人与全世界对立；替共产党洗地的单伟建骗了全世界无数养老金；中共和共产主义不灭，世界永无和平](https://www.gettr.com/post/puju3y2e52)
+据越南民航局副局长丁越松表示，当地的航班数量将不再收到限制，航班的频率也将缓慢恢复到大流行前的水平。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+据悉，越南已经向与其通航的国家通报了这一新政策，但目前只有中共国尚未同意恢复与越南的商业航班。
 
-总编: Irene木木
-编辑：静言
-校正/发稿：Fei797
+参考链接：[Vietnam to end COVID curbs on international flights from Feb 15](https://www.reuters.com/business/healthcare-pharmaceuticals/vietnam-end-covid-curbs-international-flights-feb-15-2022-02-13/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+
+总编：Irene木木
+编辑：宁文静
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

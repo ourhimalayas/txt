@@ -2,24 +2,28 @@
 ---
 
 
-## 樱花FM┃中日财经爆：日本将立法应对中共国产品断供危机
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2015433/)
+## 有声|班农相信能推翻共产党的只有中国人
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2015651/)
 
-音频：东京樱花团/战友520
-![](https://lh4.googleusercontent.com/xGz_ZiKBgbibytKFk_rLC-EmV_w4CdFm7k3GXopGqdee1_ghjpuK1YvpIxIaO229qmcIC0y4vbEHrQ9FhYVx65NF0k81Y4p9aQe3x-gcNVn7gUNTLMVGqOP1OKRThVq_40ImRibu)
-据韩国媒体环球经济7日援引日经亚洲的文章报道，日本在2019年有23.3%的进口产品来自中共，而从美国和德国进口的产品比重分别统计为18.1%和8.5%。
+配音：香草山巡管部– 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+班农在最近一期的GTV采访中表示，他相信只有中国人才可以推翻共产党。他本人和班农战斗室将毕生支持中国人，与追求民主、自由、法治的中国人同在。
 
-市场调查报告显示，日本进口中共国生产的电子产品的数量增加，但相对出口劳动密集型产品的数量却在减少。其原因是出口地区的重点已经转移到越南和印度尼西亚。从日本进口中共鞋量2009年的91%降低到2019年的66%，但随着人们对逐年增加电子产品的需求，担忧中共电子产品的供应链如果中断的话，将会严重影响国内经济。特别是，中共出口产品的任何收紧限制制度的出台都可能对日本造成严重打击。
+班农指出，目前，全世界都受制于中共淫威，尤其是加拿大的特鲁多政府，但加拿大人民没有因为疫苗暴政而退缩，卡车司机们发起的和平示威运动，对于中国人来说，是一个很好的启迪。如果，中国人也可以像他们一样，不再对中共暴政逆来顺受，那么一定可以加速中共垮台。
 
-因此，日本政府正计划推出《经济安全保证推进法》里的改进法案，以加强供应链的稳定性。据了解，改正法案特别说明如相关公司引进重要的系统时，将有义务向主管部长提交一份“引进计划”，包括设备的概要、部件以及维护和管理的承包商，政府将审查该计划。原则上，审查期为30天，如不遵守将被“判处两年以下监禁或100万日元以下罚款”。如在提出改变或暂停计划的建议后，发出了命令但没有得到遵守，同样的处罚也适用。
+文字版原文：[班农相信能推翻共产党的只有中国人](https://gnews.org/zh-hans/2010319/)
 
-对于改进法案的目的，内阁办公室解释说，“如果中共的出口因供应链或运输中断而受到影响的话，日本无法立刻从其他国家进口产品，经济影响会非常大”。
+音频处理/发稿：Daxia
 
-文字版原文：[中日财经爆┃日本将立法应对中共国产品断供危机](https://gnews.org/zh-hans/1970705/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

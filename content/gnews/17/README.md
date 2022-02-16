@@ -2,33 +2,40 @@
 ---
 
 
-## 有声|NBA为取悦中共解雇球员埃内斯·坎特
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2015290/)
+## 香港日新增2千感染病例民众质疑大陆仅26例
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2015569/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-外媒11日报道，NBA为取悦中共，最近突然解雇了球员埃内斯·坎特。 坎特曾多次在推特上，抨击中共在新疆、西藏、香港问题上严重践踏人权的暴行。这些批评言论顯然让NBA在面對中共時感到害怕，因为他们在和中共的合作中，通過中共血腥压迫人民，赚取了每年数百万美元的利润。
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image009-3.jpg)
+传播率极高的奥密克戎变异毒株正在全球肆虐，港媒报道，香港今日新增**4285**宗确诊案例，创疫情两年多来新高，初步确诊亦有超过**3000**宗，疫情未有回稳迹象。但是，中共官方公布全国**31**个省市本土日新增仅**26**例，此前一天也仅**28**例。大陆民众质疑中共对疫情数据造假。**
 
-對此，埃内斯·坎特在接受媒体采访时说：“我不在乎我是否被禁止或者被罚款，我是一名篮球运动员，但我认为我所做的事情比篮球更重要。明確自己是在为无辜的人做正確的事情，总是会额外為自己帶來更多的希望和动力。”
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-8.jpg)
-文字版原文：[NBA为取悦中共解雇球员埃内斯·坎特](https://gnews.org/zh-hans/2011759/)
+**香港中共病毒（新冠病毒）确诊宗数居高不下。据香港特区政府卫生署卫生防护中心**14**日公布，**14**日新增**1530**宗确诊案。香港从上周三，即**2**月**9**日，开始单日确诊数字突破**1,000**宗。截至**14**日零时，香港新增确诊病例**2,071**例，其中**2,052**例为本地感染病例。截至目前，香港累计确诊病例达**25,051**例。**
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+**香港政府之前声明指出，**2**月**11**日有自中共国大陆跨境的接驳货车司机在**PCR**检测呈现阳性，导致两地货车司机进行交接的接驳点暂停运作。**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+**此前中共卫健委官方网站数据显示，一年半时间，中共病毒爆发引起的死亡人数只有两人。这个数字被民间批评极其荒谬，中共官方的疫情数据被海外学术研究机构认为没有任何的参考价值。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+**推出问题，敲出真相，爆料在路上！**
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+**请关注和订阅我们的以下账号：**
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+
+**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+
+**玫瑰看新闻YOUTUBE账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**ROSE NEWS**
+
+**【玫瑰看新闻】推特账号**：
+
+**ROSE NEWS (@ROSENEWS4)A**
 
  
 

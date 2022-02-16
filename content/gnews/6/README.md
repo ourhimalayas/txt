@@ -2,43 +2,28 @@
 ---
 
 
-## 俄总统普京称俄罗斯不希望有战争
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2015454/)
+## 有声|加拿大宣布动用特别紧急权力结束全国示威
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2015674/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image005-10.jpg)
-俄罗斯卫星通讯社报道，俄罗斯总统普京在结束与德国总理朔尔茨的会谈后对媒体表示，会晤是在务实气氛中进行的，双方对所有热点问题进行了详细而具体的讨论。
+配音：香草山巡管部– 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+加拿大总理特鲁多14日宣布，决定引用《紧急状态法》，动用特别紧急权力，平息蔓延至全国多个城市的示威运动。这是《紧急状态法》自1988年通过后首次被引用。根据法例，联邦政府的特别紧急权力可以凌驾各省政府，采取特殊的临时措施，让警方在执法现场，获得更多的行动选项。另外，金融机构也有可能会获得指示，授权监管和禁止个人或公司使用财产来资助或支持反抗疫苗暴政的示威游行。
 
-普京说：“在今天的务实会谈中，我们就双边关系系列问题及其发展前景进行了详细而具体的讨论。当然，国际议程紧迫问题是会谈重点。”
+特鲁多表示，示威者的抗争行为，损害国家经济、危害公众安全，挑战警方的执法能力，政府不可以再容许这些违法和危险的活动持续发生。
 
-普京还表示，俄罗斯不希望战争，因此提出了关于安全的想法。
+文字版原文：[加拿大宣布动用特别紧急权力结束全国示威](https://gnews.org/zh-hans/2010320/)
 
-在与德国总理奥拉夫·朔尔茨会谈后的新闻发布会上，在回答欧洲是否将发生战争的问题时，普京说：“关于我们是否希望发生战争？当然，不希望。正是因此我们提出了谈判进程的建议，其结果是确保包括我们国家在内的所有国家的平等安全保障的协议。”
+音频处理/发稿：Daxia
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-
-
-
-**推出问题，敲出真相，爆料在路上！**
-
-**请关注和订阅我们的以下账号：**
-
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
-
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
-
-**玫瑰看新闻YOUTUBE账号**：
-
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**ROSE NEWS**
-
-**【玫瑰看新闻】推特账号**：
-
-**ROSE NEWS (@ROSENEWS4)A**
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

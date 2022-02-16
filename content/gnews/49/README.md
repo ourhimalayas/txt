@@ -2,26 +2,32 @@
 ---
 
 
-## 美科学家称中共病毒来自武汉病毒研究所
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2012234/)
+## 美国再次发生亚裔被害案件
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2012266/)
 
-作者：纽约磐石农场—在远方
+作者：台灣寶島農場 – 尋文客 ，首尔天池农场 – 追着曙光跑
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月10日，据盖特消息显示，美国国会众议员斯卡里斯在接受采访时表示，那些支持中共病毒实验室起源的科学家们应该针对病毒溯源问题前往国会作证。
+2月15日，据当地媒体报道，美国纽约再次发生了一起亚裔被害案件：35岁的克里斯蒂娜·尤娜·李于本月13日在曼哈屯下城被陌生男子尾随进屋并杀害。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide5-10.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-7.jpeg)
 
-斯卡里斯提到，他在与其他议员调查中共病毒起源时发现，包括福奇的高级顾问在内的许多科学家都认为中共病毒来源于武汉病毒研究所。然而，在他们参与了福奇召开的电话会议后，这些学科家们纷纷转变了态度。同时，大多数与会科学家在其后的时间里陆续获得了数百万美元的联邦拨款。
+据悉，这名韩国裔的李女士被发现死于公寓的浴缸内，涉案嫌疑人目前已经以谋杀和入室盗窃罪被纽约警方逮捕。
 
-斯卡里斯强调，美国政府应该就中共病毒起源问题举行国会听证会，而这些改口的科学家们也必须在听证会上接受质询。即使佩洛西议长一直阻挠该听证会的举行，但众议院一定会挖出有关中共病毒来源的真相。
+值得注意的是，这是纽约市本月内出现的第二起亚裔被害案件：本月9日，一名50多岁的韩国外交官在纽约市曼哈顿街头遭不明男子殴打。而上月16日，另有一名亚裔女性被推落地铁轨道后身亡。
+
+报道提及，李女士的遇害在纽约市的亚裔社区中引发了恐慌。为此，前来悼念的其他亚裔在采访时表示，无论政府采取何种预防措施，当地的亚洲人士都已经开始感到危险。
+
+而郭文贵先生也在直播中反复示警，中共病毒及其疫苗所带来的灾难将导致全球排华、排亚灾难事件的发生，海外华人，乃至全体亚裔都应对此保持警惕。
 
 参考链接：
-[https://gettr.com/post/ptm6ez6d3a](https://gettr.com/post/ptm6ez6d3a)
+1. [紐約唐人街亞裔女子被陌生男子尾隨並殺害](https://cn.nytimes.com/usa/20220215/suspect-christina-yuna-lee-murder/zh-hant/)
+2. [뉴욕 차이나타운서 30대 한국계 여성 피살…경찰 “노숙자 체포”](https://news.kbs.co.kr/mobile/news/view.do?ncd=5394992)
+3. [https://www.nytimes.com/2022/02/14/nyregion/suspect-christina-yuna-lee-murder.html?\_ga=2.112399814.375310406.1644880793-1248351094.1644880793](https://www.nytimes.com/2022/02/14/nyregion/suspect-christina-yuna-lee-murder.html?_ga=2.112399814.375310406.1644880793-1248351094.1644880793)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
 总编：Irene木木
-编辑：宁文静
+编辑：静言
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**

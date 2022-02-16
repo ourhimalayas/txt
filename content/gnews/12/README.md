@@ -2,27 +2,29 @@
 ---
 
 
-## 樱花FM┃速报：美国男子花样滑冰选手检测呈阳性或不能参赛
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2015350/)
+## 澳洲选举委员会呼吁各州勿将强制疫苗令引入投票站
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2015621/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-1-6.png)
-2月7日：一位美国记者说，将参加北京奥运会男子单人花样滑冰项目的文森特-乔伊（美国）中共病毒(新冠病毒Covid-19)检测呈阳性。
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Picture1-9.jpg)网络图片
+澳大利亚选举负责人近日发表声明，希望各州政府不要在选举投票站实施强制的CCP病毒疫苗接种规则 。
 
-21岁的乔伊是日本木下集团的成员。他在6日的团体赛中代表美国队参加了男子自由滑比赛，以171.44分取得第三名，帮助美国队获得了银牌。
+来自澳大利亚选举委员会（AEC）的负责人汤姆罗杰斯在2月15日晚上告诉参议院，AEC 虽然要求其所有工作人员（包括临时工在内）接种疫苗，但不会要求选民必须注射疫苗后才能亲自到场投票。
 
-据美国滑冰协会的消息，文森特-乔伊昨天检测中共病毒呈阳性。乔伊将再次接受检测，如果这次测试结果为阴性，他才将有资格参加星期二开始的男子花样滑冰比赛。
+罗杰斯先生强调，他“非常希望”任何州都不会在现场投票环节增加“强制CCP病毒疫苗规则”，因为他十分担心强制的CCP病毒疫苗规则会对整个选举过程造成干扰。
 
-也就是说，如果这次检测仍呈阳性，那么乔伊选手就不能参赛了。
+如果有任何州决定在选举投票过程中引入强制CCP病毒疫苗的机制，AEC会尽全力沟通并找到解决方案。
 
-文字版原文：
+罗杰斯先生表示，委员会将不得不考虑各州“不同”的卫生命令，并正在与地方当局讨论将采取哪些措施。据澳媒第九新闻报道，口罩强制令大概率会在各个投票场所实施，投票设施内也会提供相关物资。
 
-[速报┃美国男子花样滑冰选手检测呈阳性或不能参赛](https://gnews.org/zh-hans/1969676/)
+考虑到病毒大流行期间的安全措施，选举委员会预计将在本次投票中使用 450 万支铅笔——高于 2019 年的 100,000 支——以及 34,000 瓶表面清洁剂和 63,000 升洗手液。罗杰斯先生将本次选举称为“有史以来最为复杂的一次”。
 
-编辑：东京樱花团/asket
+对于本次选举的公平性，网络及社交媒体目前也是众说纷纭。AEC最近甚至还制作了一段视频，向人们保证澳大利亚的选票将以人工计票的方式进行，而不会效法美国采用与Dominion类似的计票机器。
 
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+新闻参考链接：[Australian Electoral Commissioner ‘dearly’ hopes states won’t impose vaccination mandate on polling places](https://www.9news.com.au/national/federal-election-2022-australian-electoral-commissioner-dearly-hopes-states-wont-impose-vaccination-mandate-on-polling-places/d8092df2-847f-445d-a27f-e25ad3d66569)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

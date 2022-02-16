@@ -2,19 +2,37 @@
 ---
 
 
-## 文贵大直播 2/16 俄罗斯撤军乌克兰 暂时看对台湾人民是好消息
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2015304/)
+## 有声|喜系列财富之门
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2015591/)
 
-撰稿：回响 【秘翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2022/02/snapshot-4.jpg)图片来源 GTV
-2月16日文贵大直播， 爆料革命发起人郭文贵先生出人意料地将俄乌紧张局势突现转机的落点放到了台湾人民身上。
+配音：香草山巡管部– 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
+曾经是为生活奔波忙碌的人
+选择正义就打开了财富的大门
+推开喜联储的大门
+前途一片光明
+喜悦伴随着音乐翩翩起舞
+浪漫是因为有币在手
 
-郭先生基于对中共的极其了解和情报，之前就再三提示习近平已经神隐8天，目的就在台湾。然而普天下都聚焦乌克兰，聚焦战争经济带来此消彼长的所谓利益增长点。几乎没有人注意到台湾。
+Miles郭创立的喜系列
+横空出世
+11月1日喜币吉祥降临
+一币飞跃在乱世犹如浩海
+巨星 一枝独秀风光无限好
 
-文贵先生对中俄关系缘起缘落，对世界变局的发展态势，对当前人类冲突的结点，成竹在胸，尽管他笑言俄罗斯也可能会杀回马枪，但至少目前对台湾人民是个好消息。
+文字版原文：[喜系列财富之门](https://gnews.org/zh-hans/2009758/)
 
-【来源链接】https://gtv.org/broadcast/watch/620cf40c432ae869226d8db6
+音频处理/发稿：Daxia
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
