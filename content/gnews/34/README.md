@@ -2,39 +2,16 @@
 ---
 
 
-## NewSGman┃NewS Gman给大家拜年啦
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2014198/)
+## 跌跌不休的疫苗股
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2014223/)
 
-撰稿：东京樱花团/NewSGman
+文贵大直播20220216
 
-NewS Gman给大家拜年啦
+撰稿：MyWay 坐看云起时（扬帆）
 
-祝大家虎年吉祥
-
-日本樱花团祝福全球战友虎虎生威火力全开灭共
-
-新的一年全力以赴与郭文贵先生一起共建新中国联邦！
-
-传播真相！开启新时代 ！
-
-新人类 新世纪 超越想象之未来
-
-关注我们获取新中国联邦最新信息
-
-紧跟郭文贵先生灭共进程
-
-NewS Gman=New Sakura Group man
-
-欢迎新年加入日本东京樱花团成为新中国联邦人
-
-请点击链接**🔗**[https://discord.gg/NNWCeV8SNY](https://discord.gg/NNWCeV8SNY)
-
-盖特链接：https://gettr.com/post/prrdj5fdf4
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
+美工：跟着北美教练（英喜）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片1-18.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片2-20.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片3-18.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片4-18.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片5-18.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片6-16.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片7-11.png)
+*发布：Theodosia*
 
  
 

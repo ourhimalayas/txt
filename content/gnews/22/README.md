@@ -2,16 +2,26 @@
 ---
 
 
-## 当务之急：中共≠中国人
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2014533/)
+## 麦卡洛医生谈华盛顿的大型抗议疫苗强制系列活动
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2014609/)
 
-文贵大直播20220216
+##### 翻译：ATX1230
+校对：枳实
+剪辑|字幕：小强
+编辑：守望黎明
 
-撰稿：Poplar（盘古）Lakeman（文仁）（77功成）
+文贵先生早在1月30日的大直播中，就评价说：由美国众多医学界和科学界人士签署的、在林肯纪念堂抗议强制疫苗活动上发表的演讲，具有史诗般的意义。现在，美国的有识之士也开始认识到，这是美国医学和科学界大觉醒的标志。而这种觉醒，对于人们改变对疫苗的认知，阻止强制疫苗政策，进而拯救无数无辜的生命、彻底终结疫苗灾害的继续发展，具有重大的意义。
 
-美工：健身建心（英喜）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片1-20.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片2-22.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片3-20.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片4-20.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片5-20.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片6-19.png)
-*发布：Theodosia*
+视频来源：[January was a month of -scientific reawakening- in America on the pandemic response and everyone is reassessing their situation.](https://twitter.com/p_mcculloughmd/status/1488495381705113602?s=21)
+
+*发布：Mttfly*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

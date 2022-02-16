@@ -2,22 +2,50 @@
 ---
 
 
-## 英国官方实验室证实疫苗内含氧化石墨烯
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2014646/)
+## 樱花数据分析┃英格兰：两针接种者更容易出现感染和死亡
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2014769/)
 
-加拿大温哥华扬帆农场    平民正道
+撰稿：东京樱花团/TV
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-181.png)
+英格兰政府自今年第三周以来，重心由公布两针接种感染数据，转为了三针接种感染数据。由于全球出现的两针接种者对感染增强的现象，我们对于英格兰数据进行了分析。令人吃惊的是，几乎所有年龄层的两针接种者，在感染，住院，及死亡风险全面大于未接种者。
 
-据英国媒体《内幕消息》2月13日报道，英国官方实验室已证实，现有的“新冠病毒”疫苗中的确含[氧化石墨烯]成份。
+第6周《疫苗监督报告》[1]，公布了第2～5周感染、住院、死亡总人数统计。第3周～第6周的《全国流感及新冠病毒监督报告》[2,3,4,5]公布了第2～5周的疫苗接种率，我们取其平均做为第2～5周疫苗接种率。综合以上数据，我们得到第2～5周各年龄层的疫苗有效率结果。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1587.png)
+制图：chuansang
 
-报道称，此次送检疫苗包括[辉瑞]，[莫德納]和[阿斯利康]三家制药厂的产品。其中，生产商未申报的疫苗内含物是本次实验室检测的重点对象。分析结果显示，尽管所有送检样本中都存在石墨烯，并且普遍采用脂质纳米颗粒作为药物输送机制，但这些碳复合材料、石墨烯化合物和氧化铁等物质都是在疫苗成分列表上所没有注明的。
+对18岁以上人群，疫苗防感染有效率为负值，两针接种者感染风险为未接种者的2.08～3.02倍。
 
-据悉，石墨烯纳米材料可以穿透人体的天然保护屏障，进而损害中枢神经系统。而石墨烯氧化物则不仅损害人体器官，破坏血液健康，引发癌症，而且还可导致基因功能发生衰变。但各国政府和生产药商却从未告知民众其疫苗中含有这些致命物质。
+对30岁以上人群，疫苗防住院有效率为负值，两针接种者住院风险为未接种者的1.21～1.72倍。
 
-目前，该调查报告已提交英国警方刑事部门，以期当局尽快采取进一步调查和追责行动。
+对30岁以上人群，疫苗防死亡有效率为负值，两针接种者死亡风险为未接种者的1.05～2.76倍。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1588.png)
+制图：chuansang
 
-* * *
+两针接种者更易感染，住院，死亡。这与之前苏格兰公布的数据一致。不仅如此，如果仔细观察，我们会发现风险值有随年龄增大而上升趋势，80岁以上接种者死亡风险竟达到了2.76倍！由于高龄者接种最早，这似乎说明接种时间越久，越容易感染、住院及死亡。这可能与长期存在于体内的刺突蛋白对免疫系统的持续伤害有关。
 
-编辑： 平民正道    发布：平民正道
+我们之前的文章[6]已经展示了，三针疫苗防感染有效率已经为负值，即防住院、防死亡不久也将达到两针接种相同结果。那么加强针意义何在？
+
+放眼全世界，真相还在被隐藏之中。这是一场愚蠢的实验？惊天的骗局？还是蓄意的屠杀？？？
+
+数据来源：
+
+[\[1\]疫苗监督报告-第六周](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1054071/vaccine-surveillance-report-week-6.pdf)
+
+[\[2\]全国流感及新冠病毒监督报告 – 第3周](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1048531/Weekly_Flu_and_COVID-19_report_w3.pdf)
+
+[\[3\]全国流感及新冠病毒监督报告 – 第4周](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1050508/Weekly_Flu_and_COVID-19_report_w4.pdf)
+
+[\[4\]全国流感及新冠病毒监督报告 – 第5周](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1052357/Weekly_Flu_and_COVID-19_report_w5.pdf%20)
+
+[\[5\]全国流感及新冠病毒监督报告 – 第6周](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1054000/Weekly_Flu_and_COVID-19_report__w6.pdf%20)
+
+- [樱花数据分析｜英国：大多数三针接种者更易感染奥密克戎毒株](https://gnews.org/zh-hans/1903806/)
+
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
 
  
 

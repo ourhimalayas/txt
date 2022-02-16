@@ -2,27 +2,26 @@
 ---
 
 
-## 消防员1989年从柏林墙逃离到2022年的堪培拉
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2014748/)
+## 樱花FM┃美国批准对台湾一亿美元军售
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2014826/)
 
-##### 翻译：George Yang
-校对：Lish
-剪辑|字幕：小强
-编辑：慕纱公子
+音频：东京樱花团/战友520
+![](https://lh4.googleusercontent.com/nn04NK2dkw8qGSS-GsG1bb0K5x70y2nJZjOhLK1omJ0EgkOjpLgOsRwsr3KiX_rDjkbE7_E01JlstcI_lCZoJ_kN7i_J5A1ahcgT3ueD3EiBTDkFupxceWisHig1QZsR5vT0Hz0g)
+美国国防部周一(2月7日)表示，美国已经批准向台湾出售价值或达1亿美元的设备和服务，以“维持、维护和改进”台湾爱国者导弹防御系统,台湾外交部对此表示“高度欢迎”。
 
-视频中的女士是一位昆士兰的消防志愿者，她是曾脱离自前极权国家东德来到的澳洲。她渴望自由。她说从两年前开始，澳大利亚变得和前东德一样了。她指出，澳洲政府施行的相关强制措施是错误的。由此，她呼吁更多的人来参加这个关乎个人自由的抗议活动。她强调，“当我们形成了强大的团队时，我们才能与暴政抗衡。只有团结一致才能更强大”。
+国防安全合作局在一份声明中说，对爱国者防御系统的升级将“有助于改善受援方的安全，并协助维护该地区的政治稳定、军事平衡、经济和发展”。
 
-视频来源：[Fire Fighter escaped Berlin wall 1989 to end up in Canberra 2022](https://www.youtube.com/watch?v=SnP9Tae5wWY)
+国防安全合作局说：“这项军售计划通过支持受援方继续努力使其武装部队现代化并保持可靠的防御能力，符合美国的国家、经济和安全利益。”
 
-*发布：Mttfly*
+台湾外交部在一份声明中称，面对中共国持续的军事扩张和挑衅行为，台湾将以坚实国防维护国家安全，并持续深化台美紧密安全伙伴关系。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+台湾国防部表示，该案可望在1个月后正式生效。
 
+文字版原文：[美国批准对台湾一亿美元军售](https://gnews.org/zh-hans/1974148/)
+
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

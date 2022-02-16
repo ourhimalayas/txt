@@ -2,32 +2,24 @@
 ---
 
 
-## 樱花灭共诗——遇盲人歌手张磊回乡转站淄博相送有赠
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2014738/)
+## 樱花FM┃中共国靠“黑哨”赢得男子短道速冠军 韩国不服将申诉
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2014815/)
 
-撰稿：东京樱花团/小小杜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-69.jpg)
-困顿谁知得，
+音频：东京樱花团/战友520
+![](https://lh5.googleusercontent.com/6le7uqeMvekmownPwO4lNbvHbr9-Jd96qrBVAfueSIf52V2CDG8buBsaK3akwFXBQ4gkGmCrpT0TBQiNkvLtlpvPD02ZCmNz0KZsyveOY0xQ409heSYMEQeHeA8WvM6U8NSfKfAV)
+韩国周二（2月8日）称，拟将其短道速滑运动员在北京冬奥会赛场上，遭遇不公正判罚一事诉诸国际体育仲裁法庭(CAS)，韩国公众对此事感到愤怒。
 
-归乡万里身。
+在周一举行的北京冬奥会短道速滑男子1000米半决赛中，韩国选手黄大宪和李俊瑞分别因“违规超越”和变道导致身体接触，被取消比赛成绩。
 
-鸣车将送客，
+韩国体育和奥林匹克委员会(KSOC)表示，将就这个不公判罚向CAS和国际奥委会(IOC)提出申诉。
 
-细雨欲留人。
+许多韩国人质疑判罚，特别是黄大宪第一个通过终点线。韩国选手被取消比赛成绩后，中共国运动员在决赛中包揽了冠亚军。
 
-陋俗多寻路，
+文字版原文：[中共国靠“黑哨”赢得男子短道速冠军 韩国不服将申诉](https://gnews.org/zh-hans/1974023/)
 
-贤能不问津。
-
-琴声无识者，
-
-一任掩灰尘。
-
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
-
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
