@@ -2,37 +2,35 @@
 ---
 
 
-## 有声|Moderna总裁：破解mRNA可以玩弄整个生命王国
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2015438/)
+## 樱花FM┃网球名将彭帅在官员陪同下接受外媒采访 并宣布退休
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2015525/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-疫苗制造商Moderna的总裁曾说过，“如果你能够破解mRNA的规则，那么基本上整个生命王国都可以肆意被你玩弄”。随着mRNA技术应用于中共病毒疫苗真相的曝光，Moderna总裁这话听起来不免让人毛骨悚然。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/covid-19-vaccine-mrna-dna-1204201.jpeg)图片来源: 网络
-David Martin博士说，中共病毒疫苗并不是疫苗，使用“疫苗”这个词可以在公共卫生豁免下对公众形成误导。疫苗进入人体后会让人体自身细胞成为病原体制造者，结果会导致人体内的细胞互相攻击。大药商Moderna非常清楚这就是在杀人。
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-2-3.png)
+中国网球名将彭帅在中共官员陪同下接受外媒采访时宣布退休，并再次否认了自己被性侵，引发各界关注。此前，彭帅曾举报中共前政治局常委张高丽性侵事件。
 
-目前Moderna拥有数百名工程师和科学家，试图用生物信息技术来对人体进行攻击，并使人体依赖该技术，甚至他们称mRNA为生命软件。
+法新社今天（2月7日）报导，彭帅接受法国体育媒体《团队报》（L’Equipe）访问时透露，她在北京冬季奥运与国际奥林匹克委员会（IOC）主席托马斯‧巴赫（Thomas Bach）见了面。
 
-另外该项邪恶计划还包括使用改良的mRNA来重新编程人类的干细胞功能，获得对干细胞的基因改造技术。这是一套完整的细胞级操作，编码、解码、调节、改变人体内的生理指令。
+彭帅说：“我们周六（5日）一起吃了晚餐，我们进行了愉快的讨论和交流。”彭帅还在访谈中宣布退休。据报导，彭帅在中共国奥委会官员王侃（音译，Wang Kan）的陪同下，在“奥运泡泡”内的一间旅馆告诉《团队报》的两位记者：“他（巴赫）问我是否考虑再上场比赛、我的规划是什么、我打算做怎么，等等。”
 
-文字版原文：[Moderna总裁：破解mRNA可以玩弄整个生命王国](https://gnews.org/zh-hans/2013473/)
+彭帅在访谈中表示，她从未指控任何人性侵她，她也把自己社群媒体上去年11月疑似有这样主张的发文给删除。她还表示，她从来没有“自人间蒸发”。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+国际奥委会2月7日发表声明表示，彭帅与巴赫5日在北京奥林匹克俱乐部共进晚餐，共同出席的还有前运动员委员会主席、国际奥委会成员科斯蒂‧考文垂（Kirsty Coventry）。声明提到，彭帅出席观看了中共国与挪威队的冰壸赛事。但声明中并未提及彭帅的性侵指控，或巴赫就该指控施压、要求展开调查的可能性。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+去年11月初，参加过三届奥运的彭帅在大陆新浪微博发帖，披露现年76岁的张高丽逼迫她发生性关系以及两人间的不伦关系。该帖文发表20分钟后被删除，她与外界失去联系。随后，国际社会高度关注彭帅的人身自由和安全，中共官方被迫让彭帅“露面”，但疑点重重。彭帅失踪事件也掀起国际上对北京冬奥会的抵制声浪。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+值得注意的是，彭帅每次发声及露面总有中共官员陪同，因此被怀疑是在中共安排下进行。各界为彭帅的人身安全担忧，认为她并未获得自由。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+美国媒体CNN曾分析，尽管张高丽不是习近平的盟友而是江派人物，但是如果中共迫于国际压力处理张，这将会影响“党”的形象。
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+文字版原文：
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[网球名将彭帅在官员陪同下接受外媒采访 并宣布退休](https://gnews.org/zh-hans/1969665/)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+编辑：东京樱花团/asket
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
 
  
 

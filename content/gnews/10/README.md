@@ -2,39 +2,28 @@
 ---
 
 
-## 印度再禁54款中共国App
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2015631/)
+## 有声|加拿大宣布动用特别紧急权力结束全国示威
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2015674/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image011-2.jpg)
-印度方面以安全顾虑为由，禁止了**54**款来自中共国的**App**应用软件，其中包括冬海集团的游戏**“Free Fire**我要活下去**“**。这是中印两国因边界纠纷导致双方关系紧张的大背景下，印方采取的最新步骤。
+配音：香草山巡管部– 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+加拿大总理特鲁多14日宣布，决定引用《紧急状态法》，动用特别紧急权力，平息蔓延至全国多个城市的示威运动。这是《紧急状态法》自1988年通过后首次被引用。根据法例，联邦政府的特别紧急权力可以凌驾各省政府，采取特殊的临时措施，让警方在执法现场，获得更多的行动选项。另外，金融机构也有可能会获得指示，授权监管和禁止个人或公司使用财产来资助或支持反抗疫苗暴政的示威游行。
 
-由腾讯、阿里巴巴及网易等中共国互联网公司开发的一些软件**2020**年已经被印方禁止，但是，其更名后的新版本这次再度被印度电子和信息技术部禁止使用。**
+特鲁多表示，示威者的抗争行为，损害国家经济、危害公众安全，挑战警方的执法能力，政府不可以再容许这些违法和危险的活动持续发生。
 
-“Free Fire**－我要活下去**“**是目前全球最受欢迎的移动游戏之一，在谷歌游戏的下载量已经超过十亿。冬海集团的快速成长主要得益于这款软件。根据工业追踪软件**Annie**显示的数据，这款游戏软件也是印度去年第三季度营业额最高的一款游戏软件。
+文字版原文：[加拿大宣布动用特别紧急权力结束全国示威](https://gnews.org/zh-hans/2010320/)
 
+音频处理/发稿：Daxia
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-**推出问题，敲出真相，爆料在路上！**
-
-**请关注和订阅我们的以下账号：**
-
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
-
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
-
-**玫瑰看新闻YOUTUBE账号**：
-
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**ROSE NEWS**
-
-**【玫瑰看新闻】推特账号**：
-
-**ROSE NEWS (@ROSENEWS4)A**
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,22 +2,30 @@
 ---
 
 
-## 樱花FM┃内地党媒不满香港与病毒共存
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2015547/)
+## 有声|香港因疫情延长对八个国家的航班的禁令
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2015620/)
 
-音频：东京樱花团/战友520
-![](https://lh6.googleusercontent.com/87_s32CIdbWHRgRW3ZdPQM66GYVaYPzV1iq8SlRfX6FzRRas2if4Hj7Evu88G2mMJeMhjH1dETLMvCsu9ORjfMUARvdDNgLosNHXop0pAq1iBz1nM8nPauwqlwAddiIKjdzaYL1c)
-党媒新华社昨日（6日）发文指，香港市民当务之急是统一思想，坚持“动态清零”，称内地疫情在动态清零总方针下有效被遏制，“与病毒共存”在科学上不能给出结论，将严重考验香港医疗系统的承受能力，阻碍与内地实施免检通关。《人民日报》今日（7日）发文称，有人歪曲动态清零，质疑港府不负责任地提出放弃动态清零，实行“与病毒共存”的“躺平”策略，错误论调将动摇全港抗疫信心，影响抗疫成效。
+配音：香草山巡管部– 文凯琳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据外媒2月11日报道，出于对日益严重的中共病毒疫情的担忧，香港政府当天延长了对美国、英国、澳大利亚、加拿大、法国、印度、巴基斯坦和菲律宾八个国家的入境航班的禁令。
 
-中共病毒Omicron变种毒株肆虐香港，今日有六百多人确诊，多个居民住宅被封楼，大量市民被迫停工排队检测，隔离营爆满，公立医院急症科轮候时间长达5-8小时，香港医疗系统接近崩溃，港府日前宣布将全民派发自助检测套装，林郑月娥在记者会上曾不讳地表示与中共防疫政策的分歧，强调“动态清零”是中共的要求。港府欲与国际接轨与病毒共存，却遭到中共的强烈批评，还出动最高喉舌媒体炮轰港府不负责任的错误策略；中共卫健委也派出专家指正港府，要坚持与中共保持一致“动态清零”。
+在对上述八个国家延长禁令的同时，香港政府还将禁令扩展到了尼泊尔，
 
-爆料革命郭文贵先生在近日的大直播中揭露各国运动员在北京冬奥遭受的非人待遇，中共以防疫卫为由对外国运动员频繁进行检测，包括羞辱人格的肛检；外国运动员人身自由被控制，外国记者的现场播报也被阻挠，冬奥会被中共糟蹋成了“冬眠会”。但中共党媒对这些影响中共国国家形象乱象无任何报道，反而十分操心香港的防疫工作，生怕港府挣脱中共的摆布，效仿西方文明国家与病毒共存的政策，保护了地方经济，维护了人民的民主权力。香港的政坛被中共的多股政治势力所牵引，从港府的施政倾向就能知道中共内部政治力量角力的战况。我们不会幻想港府能回转效力于港人，中共政权一日存在，港府只不过是中共政治力量的工具，任何所谓的利民施政都是为达到中共集权统治的目的。
+目前飞往香港的航班减少了90%，几乎没有航班被允许过境。
 
-文字版原文：[内地党媒不满香港与病毒共存](https://gnews.org/zh-hans/1970341/)
+文字原文：[香港因疫情延长对八个国家的航班的禁令](https://gnews.org/zh-hans/2010682/)
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
