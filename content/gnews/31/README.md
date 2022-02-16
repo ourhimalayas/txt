@@ -2,37 +2,28 @@
 ---
 
 
-## 有声|Moderna总裁：破解mRNA可以玩弄整个生命王国
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2015438/)
+## 俄罗斯入侵乌克兰将导致全球金融大崩塌
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2015592/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-疫苗制造商Moderna的总裁曾说过，“如果你能够破解mRNA的规则，那么基本上整个生命王国都可以肆意被你玩弄”。随着mRNA技术应用于中共病毒疫苗真相的曝光，Moderna总裁这话听起来不免让人毛骨悚然。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/covid-19-vaccine-mrna-dna-1204201.jpeg)图片来源: 网络
-David Martin博士说，中共病毒疫苗并不是疫苗，使用“疫苗”这个词可以在公共卫生豁免下对公众形成误导。疫苗进入人体后会让人体自身细胞成为病原体制造者，结果会导致人体内的细胞互相攻击。大药商Moderna非常清楚这就是在杀人。
+编辑撰稿：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2022/02/06-image-4.png)
+图片来源：GETTR
 
-目前Moderna拥有数百名工程师和科学家，试图用生物信息技术来对人体进行攻击，并使人体依赖该技术，甚至他们称mRNA为生命软件。
+据2月15日文贵先生盖特消息，在全球都在紧张关注俄罗斯和乌克兰可能开战之际，却无人相信中共将不惜一切发动台海战争，台湾局势目前因此已岌岌可危。
 
-另外该项邪恶计划还包括使用改良的mRNA来重新编程人类的干细胞功能，获得对干细胞的基因改造技术。这是一套完整的细胞级操作，编码、解码、调节、改变人体内的生理指令。
+消息指出，独裁党魁习近平在销声匿迹9天后，至今仍未露面，预计近日将出现并给台湾带来灾难。但世界经济在继续崩溃之中所导致的动乱，则进一步加速了中共政权的即将灭亡。
 
-文字版原文：[Moderna总裁：破解mRNA可以玩弄整个生命王国](https://gnews.org/zh-hans/2013473/)
+此外，中共当局在本次冬奥会上的所有欺诈，狂妄，无知，愚蠢和造假等恶行，现在都已成为最大的国际丑闻，而被西方各国所鄙视和唾弃。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+同时，世界某知名银行刚刚警告其各大股东，称俄罗斯一旦入侵乌克兰，将势必导致全球金融的大崩塌，而该银行就会因此宣告破产。但与此相反的是，完全符合人类文明发展特质的喜币和喜支付，由于其与生俱来的合法性，安全性和无中介性，而必然成为化解和避开这次金融危机的诺亚方舟。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+最后，文贵先生指出，中共的大外宣是独党统治的稳定器，对统一控制海内外所有华人的意识形态至关重要，也是该邪恶政权用来洗脑国人的终极利器，因此必须予以彻底的揭露。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+校对编辑：硫酸羟氯喹64
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+发稿：苦尽甜来 (文来）
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+新闻来源：https://gettr.com/post/pupixc4e7b
 
  
 

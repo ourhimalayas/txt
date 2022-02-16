@@ -2,26 +2,33 @@
 ---
 
 
-## 中共不灭 世界永无和平
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2012044/)
+## 美国再次发生亚裔被害案件
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2012266/)
 
-作者：纽约磐石农场 – 在远方
+作者：台灣寶島農場 – 尋文客 ，首尔天池农场 – 追着曙光跑
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月15日，郭文贵先生在盖特视频中谈及，中共北京冬奥会和谷爱玲母女事件将造成海外华人与世界对立的结果。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/4-32.jpg)
-郭先生解释道，作为不承认双重国籍的中共国，美国人谷爱玲却为中共国夺得奥运金牌——这种荒唐事件不仅让中国人丢脸，也让海外华人与世界对立，其危害是深远的。同时，谷爱玲母女事件和北京冬奥会也让全世界看清了中共的真面目。此外，即将到来的中共病毒疫苗灾难正在让各国政府高度紧张，而文明国家的人民也在奋起反抗来自各个政府的疫苗暴政。
+2月15日，据当地媒体报道，美国纽约再次发生了一起亚裔被害案件：35岁的克里斯蒂娜·尤娜·李于本月13日在曼哈屯下城被陌生男子尾随进屋并杀害。
 
-郭先生也提到，中国人民智慧如海，能冲走一切灾难。因此，但凡中国人被容许说话，墙内就不会有锁链女、杨改兰等悲剧出现。但是，中共妄想领导世界，到处通过“蓝金黄”干涉他国内政，又派出特务单伟健骗走美国乃至全世界的养老基金。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-7.jpeg)
 
-对此，郭先生警告称，只要共产党和共产主义不灭，全世界将永无安宁。
+据悉，这名韩国裔的李女士被发现死于公寓的浴缸内，涉案嫌疑人目前已经以谋杀和入室盗窃罪被纽约警方逮捕。
 
-参考链接：[2/14/2022 文贵盖特：只有文明国家的老百姓才能发声并反抗强打疫苗；冬奥会和谷爱凌母女让海外华人与全世界对立；替共产党洗地的单伟建骗了全世界无数养老金；中共和共产主义不灭，世界永无和平](https://www.gettr.com/post/puju3y2e52)
+值得注意的是，这是纽约市本月内出现的第二起亚裔被害案件：本月9日，一名50多岁的韩国外交官在纽约市曼哈顿街头遭不明男子殴打。而上月16日，另有一名亚裔女性被推落地铁轨道后身亡。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+报道提及，李女士的遇害在纽约市的亚裔社区中引发了恐慌。为此，前来悼念的其他亚裔在采访时表示，无论政府采取何种预防措施，当地的亚洲人士都已经开始感到危险。
 
-总编: Irene木木
+而郭文贵先生也在直播中反复示警，中共病毒及其疫苗所带来的灾难将导致全球排华、排亚灾难事件的发生，海外华人，乃至全体亚裔都应对此保持警惕。
+
+参考链接：
+1. [紐約唐人街亞裔女子被陌生男子尾隨並殺害](https://cn.nytimes.com/usa/20220215/suspect-christina-yuna-lee-murder/zh-hant/)
+2. [뉴욕 차이나타운서 30대 한국계 여성 피살…경찰 “노숙자 체포”](https://news.kbs.co.kr/mobile/news/view.do?ncd=5394992)
+3. [https://www.nytimes.com/2022/02/14/nyregion/suspect-christina-yuna-lee-murder.html?\_ga=2.112399814.375310406.1644880793-1248351094.1644880793](https://www.nytimes.com/2022/02/14/nyregion/suspect-christina-yuna-lee-murder.html?_ga=2.112399814.375310406.1644880793-1248351094.1644880793)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+
+总编：Irene木木
 编辑：静言
-校正/发稿：Fei797
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -30,6 +37,8 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,43 +2,29 @@
 ---
 
 
-## 美国再次发生亚裔被害案件
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2012266/)
+## 有声｜要求彻查八孩母事件 中共国高校学子接力联署
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2013394/)
 
-作者：台灣寶島農場 – 尋文客 ，首尔天池农场 – 追着曙光跑
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月15日，据当地媒体报道，美国纽约再次发生了一起亚裔被害案件：35岁的克里斯蒂娜·尤娜·李于本月13日在曼哈屯下城被陌生男子尾随进屋并杀害。
+**By:秘翻新闻**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-7.jpeg)
+***2022-02-16***
+![](https://assets.gnews.org/wp-content/uploads/2022/02/99999.png)
+[新唐人](https://m.ntdtv.com/gb/2022/02/15/a103348706.html)北京时间02月16日消息。中共徐州官方关于“八孩母”事件的所谓“调查结果”出台后，网络上开始大面积消声。但中共国多个高校学子开始接力联合署名，要求彻查真相。但联署信遭遇封杀。
 
-据悉，这名韩国裔的李女士被发现死于公寓的浴缸内，涉案嫌疑人目前已经以谋杀和入室盗窃罪被纽约警方逮捕。
+2月15日，微博上出现题为“100位北大学子呼吁彻查徐州被拐女子事件”的联署公开信。信中直言徐州官方的“调查结果”前后不一，漏洞百出，要求北京当局彻查“八孩母”真相，严厉打击拐卖妇女儿童犯罪。参与联署的多为已经毕业的北大校友。
 
-值得注意的是，这是纽约市本月内出现的第二起亚裔被害案件：本月9日，一名50多岁的韩国外交官在纽约市曼哈顿街头遭不明男子殴打。而上月16日，另有一名亚裔女性被推落地铁轨道后身亡。
+除北大外，清华、人大、浙大等几个名校校友都成立了“拐卖关注群”。北大联名信发出后，网友呼吁其它高校跟进。
 
-报道提及，李女士的遇害在纽约市的亚裔社区中引发了恐慌。为此，前来悼念的其他亚裔在采访时表示，无论政府采取何种预防措施，当地的亚洲人士都已经开始感到危险。
+徐州官方几次三番发出“八孩母”事件的不同“调查结果”后，网络开始大举删贴封号，据传四川公安也拒绝再追查“八孩母”是否是南充失踪女孩李莹。但网民的愤怒不息，关注度不减。
 
-而郭文贵先生也在直播中反复示警，中共病毒及其疫苗所带来的灾难将导致全球排华、排亚灾难事件的发生，海外华人，乃至全体亚裔都应对此保持警惕。
+“八孩母”被指未成年时就被拐卖到徐州，其容貌与当年被拐卖的四川南充未成年女孩李莹非常相似。出身徐州丰县的作家王圣强指出，当地人都知道“八孩母”就是李莹，但中共官方“不能让她是李莹”，因为李莹的父亲是军人，如果确认“八孩母”是李莹，会动摇军心。目前王圣强的相关帖文已经删除，据他说是遭遇了来自老家的压力。
 
-参考链接：
-1. [紐約唐人街亞裔女子被陌生男子尾隨並殺害](https://cn.nytimes.com/usa/20220215/suspect-christina-yuna-lee-murder/zh-hant/)
-2. [뉴욕 차이나타운서 30대 한국계 여성 피살…경찰 “노숙자 체포”](https://news.kbs.co.kr/mobile/news/view.do?ncd=5394992)
-3. [https://www.nytimes.com/2022/02/14/nyregion/suspect-christina-yuna-lee-murder.html?\_ga=2.112399814.375310406.1644880793-1248351094.1644880793](https://www.nytimes.com/2022/02/14/nyregion/suspect-christina-yuna-lee-murder.html?_ga=2.112399814.375310406.1644880793-1248351094.1644880793)
+(秘翻新闻 二丫 编译报导)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+发布:星星
 
-总编：Irene木木
-编辑：静言
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMAGE-2021-12-13-113746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

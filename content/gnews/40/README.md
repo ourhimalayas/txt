@@ -2,22 +2,88 @@
 ---
 
 
-## 樱花FM┃中日财经爆：药明生物被美国制裁 股价暴跌
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2014958/)
+## 樱花FM|中日财经爆:美国加强对中共出口管制 33家实体上榜
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2015219/)
 
 音频：东京樱花团/战友520
-![](https://lh3.googleusercontent.com/8HRvtTmKD9z0KwcjRIv4p9a_Nvz6uJT-58jorzXxgniGy_u5lqRq9oZOVdo0eKbg5KzGjZkfcLC-dvMzM05m2rwZkQvb1jr1Ib39wy5IfCF8q_lfjpXEO15WmwzJgMRNfZP30gxN)
-中共国企业药明生物多间关连企业被美国商务部纳入“未经核实”实体名单（Unverified List），包括药明生物关联企业无锡药明生物与上海药明生物都将被制裁，随后药明生物股价暴跌。
+![](https://lh3.googleusercontent.com/i73YHXVmGPjYyGTMjIhPQ8YMWEShC8Yd5SOems06ihdX2VWA_ausbapC2y6i7vRMYqDsjmhTaaZP3JfGkSY1zvDItPEvwAZQFdoR_TW2CZzuy6ThYVuH4gBTDt1V7kK58LYPtxq9)
+美国商务部2月7日宣布，将33家中共实体列入“未经核实名单”(Unverified List)。这些实体获得美国产品，将必须接受更严格的出口管控。美国商务部发表的声明说，美国官员无法对清单中这些实体进行核查，以确定这些实体的“善意”(bona fides)，因此必须对这些公司从美国出口商那裡获取产品实施新的限制。
 
-药明生物CEO陈智胜在周二投资者会上表示，对本次受影响出口产品，美国要求进口方不能转售或再出口，且美国有相应流程来核查进口方；本次受影响的两类产品，生物反应器的硬件控制器和超滤膜包，正在此列。
+被纳入出口管制清单的33家中国实体，大多数是电子企业、光学公司、涡轮叶片公司、大学的国家实验室和其他企业。包括中国航发南方工业有限公司（AECC South Industry Co., Ltd）、北京世维通科技公司（Beijing SWT Science）、济南邦德激光（Jinan Bodor CNC Machine）、湖南大学（Hunan University）等。
 
-受消息拖累，该股今早低开14.76%，报68.7元，成交额2.42亿元。其他跌势加深，现挫25.25%，报60.25元，而同系的药明康德﹙2359﹚现泻25.17%，报85元，药明巨诺则泻4.9%，报8.76元。
+1. AECC South Industry Co., Ltd.
 
-美国商务部周一（7日）宣布，把33家中共国企业纳入“未经核实”实体名单（Unverified List），指该批企业在合符法规方面存在问题，因此禁止美国企业向有关企业输出受管制技术，或进行业务往来。根据美国商务部声明，美国无法核实涉事中共国企业的公司背景及可信度，因此作出相关处置。
+2. Beijing SWT Science
 
-美国商务部上次把中共国企业纳入“未经核实”实体名单，是在2019年4月，当时两国处于贸易战期间。
+3. Beijing Zhonghehangxun Technology Co., Ltd.
 
-文字版原文：[中日财经爆|药明生物被美国制裁 股价暴跌](https://gnews.org/zh-hans/1973984/)
+4. China National Erzhong Group Deyang Wanhang Die Forging Co., Ltd.
+
+5. Chuzhou HKC Optoelectronics Technology Co., Ltd.
+
+6. Dongguan Durun Optical Technology Co., Ltd.
+
+7. Dongguan Huiqun Electronic Co., Ltd.
+
+8. Guangdong Guanghua Sci-Tech Co.
+
+9. Guangxi Intai Technology Co., Ltd.
+
+10. Guangzhou Hymson Laser Tehnology Co., Ltd.
+
+11. Harbin Xinguang Feitian
+
+12. Hefei Anxin Reed Precision Co., Ltd.
+
+13. Heshan Deren Electronic Technology Co., Ltd.
+
+14. Hubei Longchang Optical Co., Ltd.
+
+15. Hubei Sinophorus Electronic Materials Co., Ltd.
+
+16. Hunan University
+
+17. Jinan Bodor CNC Machine Co., Ltd.
+
+18. Jiutian Intelligent Equipment Co., Ltd.
+
+19. Kunshan Heng Rui Cheng Industrial Technology Co., Ltd.
+
+20. Shanghai Fansheng Optoelectronic Science & Technology Co., Ltd.
+
+21. Shanghai Micro Electronics Equipment (Group) Co., Ltd.
+
+22. Shuang Xiang (Fujian) Electronics
+
+23. Southern University of Science and Technology
+
+24. Suzhou Chaowei Jingna Optoelectric Co., Ltd.
+
+25. Suzhou Gyz Electronic Technology Co., Ltd.
+
+26. Suzhou Lylap Mould Technology Co., Ltd.
+
+27. Wuxi Biologics Co., Ltd.
+
+28. Wuxi Biologics (Shanghai) Co., Ltd.
+
+29. Wuxi Turbine Blade Co., Ltd.
+
+30. Yunnan Fs Optics Co., Ltd.
+
+31. Yunnan Tianhe Optoelectronic Co., Ltd.
+
+32. Zhengzhou Baiwai Intelligent Automation
+
+33. Zhuzhou CRRC Special Equipment Technology Co.
+
+截止目前，这份名单上的实体总数大约达到了175个。
+
+商务部负责出口执法的助理部长，马修‧阿克塞尔罗德（Matthew Axelrod）在声明中说：“通过及时完成最终用途核查，来核实外国当事方的合法性与可靠性，是我们出口管控制度的一项核心原则。”他表示，将33家中国实体加入“未经核实名单”，将协助美国出口商从事尽职调查并评估风险，并向中共政府发出信号，表明他们在安排最终用户核查方面予以配合的重要性。
+
+美国商务部要求，美国公司与纳入名单的实体进行交易，必须进行额外的尽职调查，包括提交更多的文件。按照限制措施，美国出口商若想与被列入名单的中国公司交易，必须获得许可证。同时，美方提醒被列入清单上的公司必须证明自己是合法的，并且愿意遵守美国法规才能继续接收货物。
+
+文字版原文：[中日财经爆┃美国加强对中共出口管制 33家实体上榜](https://gnews.org/zh-hans/1973444/)
 
 *编辑：东京樱花团/asket
 发布：东京樱花团/平安卿卿*

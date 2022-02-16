@@ -2,35 +2,34 @@
 ---
 
 
-## 福布斯日本：中共国“滴滴出行”大规模裁员，3000名员工被解雇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2015898/)
+## 印中贸易地位不对等引发国家安全担忧
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2016052/)
 
-翻译：宫米叶
+作者：银河系农场—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月14日，据印度媒体报道，在进出口贸易方面，中共国2021年对印度的总出口额高达975亿美元，而印度对中共国的总出口额仅为281亿美元，后者尚不足前者的30%。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-16-下午12.27.18.png)
+资料显示，自中共病毒疫情爆发以来，印度大规模地增加了对中共国医疗设备和相关医疗源材料的进口，这也使得印度当地的外汇储备加速外流。尤其在2021年，中共国的贸易顺差达到了创纪录的六千七百六十亿美元，而这一极为不平衡的数字对印度，甚至对全球都造成了巨大的威胁。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-16-173230.jpg)图片来源：yahoo.co.jp
+对此，报道指出，于中共而言，此种极具差异的双边贸易关系导致了印度不可避免的附庸地位，而这正是中共政府迫切需要的政治筹码。据悉，中共一直以来都在企图通过控制金融，进而侵犯印度的国家安全、经济和完整主权。
 
-有报道称，鉴于来自当局的监管压力持续升高，中共国网约车服务商“滴滴出行”的运营方Didi Global打算解雇总数多达20%的员工。
+为此，该媒体强调，印度当下必须严格警惕境内的中资公司，特别是那些非银行金融公司在印度采取的大规模欺诈行为，从而避免中共进一步劫持新德里的金融和商业，更需杜绝政府因贸易而丢失印度领土的可能性。
 
-据中国媒体“晚点LatePost”2月14日报道，裁员从1月中旬已经开始，预计本月底前完成，其影响将涉及中共国国内的外卖和预约车服务，不波及海外业务。
+参考链接：[India-China trade ties not on an even keel](https://www.tribuneindia.com/news/comment/india-china-trade-ties-not-on-an-even-keel-369623)
 
-根据招股说明书，截至2020年12月31日，总部位于北京的滴滴在国内市场雇佣了约一万五千人，20%的解聘将会导致3000人失去工作。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-滴滴的发言人不予置评。中共国监管机构在滴滴去年6月通过纽约市场IPO筹集了44亿美元后不久，就启动了对该公司的网络安全调查，此后对国内打车服务企业保持强硬态度。
+总编：Irene木木
+编辑：宁文静
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-中共国监管机构14日再次宣布，将加强对科技企业的监控。据国营媒体“全球时报”报道，平台企业在违反有关用户个人信息、驾驶员权利和数据安全的规则时，可能会被勒令禁用app和停业。
-
-在收集和使用客户数据的相关问题上，滴滴已经从中共国应用商店中删除了25个app应用，这些应用程序处于新用户无法注册的状态。该公司股价在过去一年里下跌了70%，失去了数百亿美元的市场价值。仅2021年9月期间，该公司就亏损了47亿美元(约合5430亿日元)。
-
-39岁的亿万富豪程维领导的滴滴还表示打算取消在纽交所上市，准备在香港上市。根据匿名人士对香港英文报纸“南华早报(SCMP)”所放出的消息，该公司最早可能于今年第二季度在港交所上市。
-
-新闻来源：[yahoo.co.jp ][中国「滴滴出行」が大規模リストラ、3000人を一時解雇へ](https://news.yahoo.co.jp/articles/f60c862a6b643b0ac9cc61c670e94133799d1a01)
-
-* * *
-
-*审核：天天 
-校对：zicoround
-发稿: Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-4.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
