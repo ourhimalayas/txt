@@ -2,41 +2,71 @@
 ---
 
 
-## 美国再次发生亚裔被害案件
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2012266/)
+## 众议员莫·布鲁克斯推《中共国COVID-19赔偿法案》
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2012456/)
 
-作者：台灣寶島農場 – 尋文客 ，首尔天池农场 – 追着曙光跑
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月15日，据当地媒体报道，美国纽约再次发生了一起亚裔被害案件：35岁的克里斯蒂娜·尤娜·李于本月13日在曼哈屯下城被陌生男子尾随进屋并杀害。
+> 众议员莫·布鲁克斯：[#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw) 撒谎，人民死亡。我希望共产主义中国向受到伤害的美国人赔偿，因为他们制造了 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hash&amp;ref_src=twsrc%5Etfw) 之后还撒谎掩盖从而伤害了美国人。
+> 【附中字视频】 [https://t.co/N2vG2vMj8e](https://t.co/N2vG2vMj8e) [pic.twitter.com/2tcrnnTUAS](https://t.co/2tcrnnTUAS)
+> — 美国政要直译推 (@zhiyitw33) [February 16, 2022](https://twitter.com/zhiyitw33/status/1493784086158086148?ref_src=twsrc%5Etfw)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-7.jpeg)
 
-据悉，这名韩国裔的李女士被发现死于公寓的浴缸内，涉案嫌疑人目前已经以谋杀和入室盗窃罪被纽约警方逮捕。
 
-值得注意的是，这是纽约市本月内出现的第二起亚裔被害案件：本月9日，一名50多岁的韩国外交官在纽约市曼哈顿街头遭不明男子殴打。而上月16日，另有一名亚裔女性被推落地铁轨道后身亡。
+众议员马乔丽·泰勒·格林：
+如果共和党人无法阻止大科技审查，那么共和党人还能做什么？
 
-报道提及，李女士的遇害在纽约市的亚裔社区中引发了恐慌。为此，前来悼念的其他亚裔在采访时表示，无论政府采取何种预防措施，当地的亚洲人士都已经开始感到危险。
+大科技公司在审查他们不喜欢的政治观点上做得太过了，它在压制真相。
 
-而郭文贵先生也在直播中反复示警，中共病毒及其疫苗所带来的灾难将导致全球排华、排亚灾难事件的发生，海外华人，乃至全体亚裔都应对此保持警惕。
+如果我们不能为保护真理而战，那还有什么可做的？
 
-参考链接：
-1. [紐約唐人街亞裔女子被陌生男子尾隨並殺害](https://cn.nytimes.com/usa/20220215/suspect-christina-yuna-lee-murder/zh-hant/)
-2. [뉴욕 차이나타운서 30대 한국계 여성 피살…경찰 “노숙자 체포”](https://news.kbs.co.kr/mobile/news/view.do?ncd=5394992)
-3. [https://www.nytimes.com/2022/02/14/nyregion/suspect-christina-yuna-lee-murder.html?\_ga=2.112399814.375310406.1644880793-1248351094.1644880793](https://www.nytimes.com/2022/02/14/nyregion/suspect-christina-yuna-lee-murder.html?_ga=2.112399814.375310406.1644880793-1248351094.1644880793)
+共和党人到底是为了什么（而存在）？
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-总编：Irene木木
-编辑：静言
-校正/发稿：谐趣园
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+> If Republicans can’t stop Big Tech Censorship, then what can Republicans even do?
+> 
+> Big Tech has gone way past censoring political opinions they don’t like, it’s silencing truth.
+> 
+> If we can’t fight to protect truth then what else is left?
+> 
+> And what are Republicans even for?
+> — Rep. Marjorie Taylor Greene (@RepMTG) [February 16, 2022](https://twitter.com/RepMTG/status/1493770857855995904?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿迈克.蓬佩奥：
+社会主义行不通。 我在巡视 铁幕（指昔日西欧与中东欧共产党执政国家之间想象的屏障）时亲眼目睹了它——我知道它不会带来任何好处。
+
+
+
+> Socialism doesn’t work. I saw it firsthand when I patrolled the Iron Curtain — and I know nothing good comes of it.
+> — Mike Pompeo (@mikepompeo) [February 16, 2022](https://twitter.com/mikepompeo/status/1493765787621888007?ref_src=twsrc%5Etfw)
+
+
+
+比尔.格茨：
+作为阻止解放军进入美国证券市场的新政策的一部分，美国财政部将对 59 家中共国军工公司实施制裁
+【附比尔.格茨发布华盛顿时报报道：美国新的制裁规则打击了数十家中共国军工企业】
+
+
+
+> Treasury Department codifies sanctions on 59 Chinese military companies as part of a new policy blocking PLA from US securities markets [https://t.co/nDSNRttMHG](https://t.co/nDSNRttMHG)
+> — Bill Gertz (@BillGertz) [February 15, 2022](https://twitter.com/BillGertz/status/1493720810183282688?ref_src=twsrc%5Etfw)
+
+
+
+众议员帕特·法伦：
+
+中国是芬太尼的主要原产国——他们在我们的南部边境将其倾注进入美国。
+
+还认为边境危机不是国家安全威胁吗？
+
+
+
+> China is the primary country of origin for fentanyl – and they're pumping it into the America at our southern border.
+> 
+> Still think the border crisis isn't a national security threat?
+> — Rep. Pat Fallon (@RepPatFallon) [February 15, 2022](https://twitter.com/RepPatFallon/status/1493690831139528704?ref_src=twsrc%5Etfw)
+
 
 
  

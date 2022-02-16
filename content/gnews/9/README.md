@@ -2,34 +2,36 @@
 ---
 
 
-## 印中贸易地位不对等引发国家安全担忧
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2016052/)
+## 七哥说“不灭共咱一切都完蛋”
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2016097/)
 
-作者：银河系农场—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月14日，据印度媒体报道，在进出口贸易方面，中共国2021年对印度的总出口额高达975亿美元，而印度对中共国的总出口额仅为281亿美元，后者尚不足前者的30%。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-16-下午12.27.18.png)
-资料显示，自中共病毒疫情爆发以来，印度大规模地增加了对中共国医疗设备和相关医疗源材料的进口，这也使得印度当地的外汇储备加速外流。尤其在2021年，中共国的贸易顺差达到了创纪录的六千七百六十亿美元，而这一极为不平衡的数字对印度，甚至对全球都造成了巨大的威胁。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-对此，报道指出，于中共而言，此种极具差异的双边贸易关系导致了印度不可避免的附庸地位，而这正是中共政府迫切需要的政治筹码。据悉，中共一直以来都在企图通过控制金融，进而侵犯印度的国家安全、经济和完整主权。
+2022-02-13直播摘录10:40:29
 
-为此，该媒体强调，印度当下必须严格警惕境内的中资公司，特别是那些非银行金融公司在印度采取的大规模欺诈行为，从而避免中共进一步劫持新德里的金融和商业，更需杜绝政府因贸易而丢失印度领土的可能性。
+上星期我们一个战友被关了一个多月放出来，给我拍手指头，（举起右手示意无名指）这个手指头是弯的，就是这个警察踩着他指头就踩了十几分钟，我看你能不能坚持住？就在那踩，摁着脖子踩住手指头，就给你碾，把手指头给你碾折了，真的是像彤宝国这样的人物绝对不是一个两个。所以兄弟姐妹们，不灭共咱一切都完蛋，不灭共，发生在七哥身上这种事会发生在每个人身上，因为共产党还有邪恶势力挨个跟你算！
 
-参考链接：[India-China trade ties not on an even keel](https://www.tribuneindia.com/news/comment/india-china-trade-ties-not-on-an-even-keel-369623)
+绝对什么瑞沃路森啊（模仿瑞沃路森右手将额头的头发向后一甩）你就别想捋头发了，人家就拿脚、拿鞋底给你头发给你捋了，知道吗！什么Danny，你那小头发、小胡子都给你拽下来，你刮什么刮！文紫、小飞象你跟人家回家“流水”去，别流了，是吧！把你水池子给你关了，这不是吓唬你，不是开玩笑。从我这个案子你看到，如果这个世界不灭共产党，从冬奥会能看到这世界不灭共产党，世界游戏、世界法律、世界人性、世界公平，人类、西方的技术一切尽毁！荒唐到你无法相信的荒唐！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+你想想咱们请的律师都是这么牛的人，一辈子没见过这样的案子，你觉得这事发生七哥身上它是偶然吗？没有背后的故事吗？怎么可能啊！是吧！
 
-总编：Irene木木
-编辑：宁文静
-校正/发稿：呼吸的雾霾（文小呼吸）
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

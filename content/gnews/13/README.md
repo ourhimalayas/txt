@@ -2,74 +2,38 @@
 ---
 
 
-## 2022年2月16日文贵先生直播摘要及音频—银河系农场
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2015990/)
+## 渣打被罚230万 墙内信用卡申请项目暂停
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2016053/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/封面-11.jpg)
-盖特连接：[2022年2月16日 文贵大直播：疫苗公司股价变化；中国人寿王滨被抓；世界多地反华苗头；冬奥会锁链女后续；太平联盟官司进展；七哥赴日英后安排](https://gettr.com/streaming/puvpmn3ce1)
+作者：日本方舟农场-Andy
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月9日，据中共媒体消息显示，因违反了所谓的“信用信息查询相关管理规定”，渣打银行中共国有限公司被中共人民银行上海分行处以人民币230万元的罚款，同时，渣打银行零售个人金融信贷部总监陈燕来也被处以10万元人民币的罚金。目前，墙内渣打银行已经暂停了其信用卡申请项目，而该银行的多项业务也将一并调整。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-16-下午12.27.28.png)
+据了解，渣打银行并非第一家被中共政府处罚的外资银行。资料显示，中共于今年1月1日颁布了《征信业务管理办法》，而其后短短一个月半的时间里，中共对墙内各大银行实施罚款的总金额已经超过了四千万元人民币。其中，东亚银行于1月10日接到的近一千七百万元人民币的处罚堪称近年来外资银行在中共国内收到的最大罚单。
 
-1、普京为什么突然宣布撤兵？美国，欧洲和日本，再加巴西，德国，法国和英国的强硬态度让普京软了，不过，也可能是战术撤军杀个回马枪；
+另外，2021年年末，新韩和韩亚两家外资银行也被中共政府予以罚款，其金额高达620万元人民币。
 
-2、普京打乌克兰，又突然撤军，玩的是经济战争，对台湾是好事，如果打乌克兰，习近平一定打台湾；
+分析人士对此指出，中共巧立名目地处罚外资银行的做法突显出中共国内经济危机山雨欲来之势。当中，外资银行在“夹缝中生存”已经成了这个时代的缩影。
 
-3、乌克兰战争经济：是普京和沼泽地几个大佬决定石油价格和金融涨跌；
+参考链接：
+1）[渣打银行（中国）收到其有史以来最大百万级罚单 零售信贷部总监被罚10万元](https://finance.sina.com.cn/money/bank/gsdt/2022-02-14/doc-ikyakumy5837854.shtml)
+2）[https://finance.huanqiu.com/article/46pIno6oHEK](https://finance.huanqiu.com/article/46pIno6oHEK)
+3）[开年强监管持续 三家银行累计被罚8000万元](http://m.caijing.com.cn/api/show?contentid=4838570)
+4）[监管动态｜新韩、韩亚两家外资银行年底合计收620万元罚单，均涉及贷款管理、合规经营缺位问题](http://m.ce.cn/cj/gd/202201/07/t20220107_37236414.shtml)
 
-4、中共国经济通胀通缩，20几家商行及房地产破产，200多家银行等待破产；
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-5、冬奥会已无法收场，真正参加的国家元首只有普京一人，运动员也是有史以来最差的一次；
+总编：Irene木木
+编辑：宁文静
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-6、文贵先生很早就说过这些医药公司被做空，有一个人和群体这么牛X的吗！这些疫苗公司一定会破产就像共产党被消灭一样；
-
-7、文贵先生个人破产，却让无数人成为富豪；
-
-8、美国政府明确告诉CCP，不离开中国的前提是必须要病毒溯源，杨洁篪、王毅因此而不敢说话了；
-
-9、因为报道锁链女真相被迫害的国内的人可获得1000-10000喜币；
-
-10、七哥宣布三件大事：
-
-1）短期内去英国日本不可能，甚至1-2年，或灭共以后。
-
-2）马上推出新的H-Pay，喜贷款、喜抵押，不超过1个月，重大利好投资公告！
-
-3）隆重宣布习太阳做了两个手术，脾和肾。加速共产党灭亡，对台行动暂缓。对台湾大好消息！
-
-11、喜联储很快可以交易比特币和其他数字货币；
-
-12、4月30日前战友抛喜币投G-TV，喜币下跌几块钱正常，G-TV是王；
-
-13、喜币不管你现在多少钱卖，一定会后悔的；
-
-14、喜联储不出一个月，会有重大消息。看到公告，会“吓死你”；
-
-15、冬奥会运动员公寓有暗摄像头；
-
-**注：大直播音频正在制作和上传中，敬请关注——**
-
-**（大直播音频位置）**
-
-编辑整理：文俊；
-
-发布：黎明之前
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,39 +2,54 @@
 ---
 
 
-## 中国人现在没有学会跟人相处
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2016036/)
+## 俄罗斯大使强烈警告丹麦，不能允许美国士兵进入丹麦博恩霍尔姆岛
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2016061/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+整撰：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-265.jpg)
+图片来源：TV2.DK
 
-2022-02-13直播摘录09：37：50
+俄罗斯驻丹麦大使Vladimir V. Barbin强烈警告丹麦允许美国军队踏上博恩霍尔姆岛。
 
-日本的昨天晚上跟我开会的那姐们儿给我说，她说：“我们运动员现在在中国真正地感受到这个国家没有任何未来，全都是假的。”你能想想改年龄、买外国人、“碰瓷儿”、买通裁判、黑人家，用这个假检测把人家干掉，几乎人类最损最烂的招儿让它用尽绝了。
+Vladimir V. Barbin对丹麦媒体Berlingske说，如果丹麦允许这样的举动，如果外国军队抵达博恩霍尔姆岛，俄罗斯将被迫评估对俄罗斯和丹麦之间关系的影响。
 
-所以说胡锦涛当年说过一句精彩的话说：“你看看全世界的文明，再看看我们这些年工业文明之后的世界的发展，只有中国人到了一个人类突破了人类底线生存模式，和人类上互害的模式，再下去完了。”这就是当时江泽民的所谓的要“以德治国”，后来过了胡锦涛之后叫“和谐社会”，他说：“咱都和谐不了！人跟人之间、人跟畜牲之间都想把对方吃了，连狗都不如，狗吃屎，你比屎都可怕，你比吃屎的狗都可怕。”——所以胡锦涛提出来“和谐社会”。
+这一警告是在丹麦政府开始与美国就新的国防协议合作进行谈判之后发出的，这可能意味着美国军队和物资可以被安置在丹麦。
 
-01：37：59习太阳是绝对战友，就连俄罗斯这样的所谓的生死关系全让他给拧掰了、全相反了，没人来了
+俄罗斯人认为，美国在博恩霍尔姆岛的存在将 “影响 “波罗的海地区的安全。
 
-郭文贵先生：再一个就是——“科学发展力”、“科技治国”，然后胡锦涛说：“咱别跟全世界斗了，咱连韩国都斗不了，人家有’三星’，咱有啥呀？”这是胡锦涛的原话。一个韩国咱都搞不了，说搞日本？胡锦涛说：“你可以恨日本，你还搞日本？”日本人一天所有在工作上的专注的时间，人家日本人工作专注时间、有效率是中国人的10倍，是什么意思啊？瑞沃路森趴在桌子上也工作，但是抠脚趾头、捋头发、抠眼屎、抠耳屎，是吧？就像“路大脑袋”似的，咳痰占掉你70%的时间。日本人工作是要效率的、专注的，是要有结果的。
+博恩霍尔姆岛是波罗的海中的一个丹麦岛屿，位于丹麦其他地区的东部，瑞典南部，德国东北部和波兰北部。由于博恩霍尔姆岛位于波罗的海的战略位置，几个世纪以来一直被周边国家争夺。
 
-这是为什么胡锦涛说：“中国人现在没有学会跟人相处，还没学会懂得科技的力量，你怎么跟世界相处啊？你怎么被人家接受呢？”
+俄罗斯的威胁，北约的保卫
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+美国士兵出现在丹麦将是一个强烈的信号，表明北约在离俄罗斯边界不远的地方重要的军事存在。
 
-**关注我们**
+在周四（2月16日）的新闻发布会上，外交部长Jeppe Kofod被问及美国士兵在丹麦领土上是否可视为丹麦对俄罗斯的挑衅。
 
-Discord 账号
+“我们必须记住，是俄罗斯在威胁着欧洲的和平。我们在北约所做的是在保卫自己。这并不是因为俄罗斯和乌克兰的局势而产生的，”他说。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+只有丹麦才能决定在丹麦领土上发生的事情
 
-Gettr 账号
+丹麦外交部长杰普·科福德Jeppe Kofod 非常明确地表示，美国士兵是否会来到丹麦本土，完全由丹麦决定。否则，俄罗斯对丹麦将与美国开始防务合作这一事实非常不满。这可能意味着美国军队可以留在丹麦。
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+俄罗斯驻丹麦大使Vladimir V. Barbin告诉Berlingske，这将是对二战以来丹俄协议的违反。
+
+但是Berlingske文章说，丹麦外交部长是对的。
+
+“这并不是俄罗斯第一次提出这种错误的和不正确的主张，但这并不意味着它是真实的，”杰普·科福德给媒体Ritzau的书面评论中说。
+
+这位丹麦外长非常明确地说：“丹麦从未与俄罗斯或前苏联就博恩霍尔姆岛的外国军队达成过协议。而且我必须警告，不要把俄罗斯的这些宣布当作好事。”
+
+他强调：“让我说清楚，只有丹麦才能决定在丹麦土地上发生什么！”
+
+在Berlingske对俄罗斯大使Vladimir V. Barbin的采访中，这位大使并没有提出证据证明他所谓的协议是存在的。
+
+来源：
+
+[TV2.dk](https://nyheder.tv2.dk/udland/2022-02-15-ruslands-ambassadoer-advarer-kraftigt-mod-at-tillade-amerikanske-soldater-paa)
+
+[Berlingske.dk](https://www.berlingske.dk/politik/store-partier-affejer-russiske-trusler-om-bornholm-der-er-intet-hjoerne-af)
+
+[Politiken.dk](https://politiken.dk/udland/art8621246/%C2%BBDanmark-har-aldrig-haft-en-aftale-med-Rusland-om-udenlandske-tropper-p%C3%A5-Bornholm%C2%AB)
 
  
 

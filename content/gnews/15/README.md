@@ -2,29 +2,48 @@
 ---
 
 
-## 习近平攻台后，各方真实心态
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2015930/)
+## 人类上没有一个国家、一个政府、一个组织敢说这实话
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2016045/)
 
-作者：纽约香草山福音部–小草
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-美国：习近平如果打了台湾，以美国为首多国联军趁机宣布中共为非法政权，宣布习近平犯下侵略和反人类罪，公开承认新中国联邦合法性，代表全体中国人。习只要打台湾，美国可以用反中共侵台，轻松转移掉国内分裂、疫苗死伤、美元超发、中期选举视线压力，同时拉上欧洲再干一次打伊拉克战争。美国可以全面没收和冻结中共盗国贼及子女资产（算敌对方资产）。美国从阿富汗失分后，可以在台湾上外交得分。
-欧洲：全面推行去中共化运动，洗牌各国政府生态，转移掉国内反疫苗情绪。可以趁机冻结中共在UBS,德意志银行资产。
-俄罗斯：佯装打乌克兰，讹诈了一把欧美，得了中共一笔钱，用台湾把中共拖入泥潭，亚欧通吃。
-日本：捍卫台湾后，确认自己是亚洲之王，坚定支持新中国联邦，为未来的新亚洲打好基石。
-印度：亚洲最坚定支持保守派政府，反疫苗最成功国家，阻截中共南海霸权推到自己家门口。
-越南和菲律宾、印尼：一帮跟在后面的小弟，中共垮了可以接棒制造业和出口。[https://www.cnn.com/2022/02/15/investing/premarket-stocks-trading/index.html https://cn.reuters.com/article/graphic-us-fed-gold-price-0215-idCNKBS2KK08C https://news.futunn.com/post/12968091?src=3&report\_type=market&report\_id=196702&futusource=news\_headline\_list&level=1&data\_ticket=1644954367573408 https://www.foxbusiness.com/economy/producer-prices-inflation-january-2022 https://sputniknews.cn/20220215/1039212124.html https://www.cnn.com/2022/02/15/investing/oil-gas-russia-ukraine/index.html https://cn.reuters.com/article/ukraine-russia-impact-chips-0215-tues-idCNKBS2KK10W?il=0](https://www.cnn.com/2022/02/15/investing/premarket-stocks-trading/index.html%20https://cn.reuters.com/article/graphic-us-fed-gold-price-0215-idCNKBS2KK08C%20https://news.futunn.com/post/12968091?src=3&amp;report_type=market&amp;report_id=196702&amp;futusource=news_headline_list&amp;level=1&amp;data_ticket=1644954367573408%20https://www.foxbusiness.com/economy/producer-prices-inflation-january-2022%20https://sputniknews.cn/20220215/1039212124.html%20https://www.cnn.com/2022/02/15/investing/oil-gas-russia-ukraine/index.html%20https://cn.reuters.com/article/ukraine-russia-impact-chips-0215-tues-idCNKBS2KK10W?il=0)
+文编：Hima
+听写：叮叮
+视频：七哥
 
-编辑/校对/发稿：菩提树
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2月-2.jpg)
-**更多资讯，更多关注**
+2022-02-13直播摘录09：45：15
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+喜币最牛叉的四个，他完全搞（错）了。
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+你存在银行的钱和过去的纸币，第一它增发，是吧？Danny给了我100块钱，我给你印出了1000块钱，你就被兑水了嘛——增发；第二个最可怕的问题，我们大家都忽视掉的问题，它是不可兑现，就是我可以不还给你，我有不兑现的权利，这是更可怕。喜币绝不可能，因为1美元就是1美元稳定币，1币就是1币就市场交易；
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+第三件事情，它是一个中介就是第三方经营化，它不是点到点。咱们这喜币、喜美元是A到B，它喜联储不能控制，没有任何权利。今天小飞象跟小飞侠“流水”10个币，他俩就“流水”10个币，你中间不能任何人经手。文紫跟她老公上下一颠倒，多给12个币就12个币呀，它没有任何就是第三方，它没有、不是中介方，（这是）第三个；
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+第四个最核心的是什么呀大家？它没成本，是吧？你去想想HPay没有成本，没有成本的、没有第三方的、绝对必须保证原值的、第四不可增发的。你银行你哪有这个呀？哪家银行不给你增发？哪家不给你印发呀？
+
+而且关键最核心的这四样的基础是什么呀？它的价值。大家要记住，喜币一年就10个亿，多一个都是犯罪。所有美国人、所有全世界的币，政府一句话就可以印发，叫做超发。那这10亿个币是你知道的，关键是美国也好，我有一万个亿，我不增发，它没告诉你，我有一万个亿。喜币白皮书是先定下数量，就没有一个国家银行告诉你，我的币只有多少个，没有一个，只有喜币！
+
+比特币牛就牛在今天的价值，它说我就2600万，是吧？26亿！我就这些个。但是不是又是另外一回事儿啊。就这一样它就赢了，它才有今天的比特币呀，这是核心在这儿呢。
+
+- 1:46:41世界上只有新中国联邦说真相说实话，作为海外华人，“无苗灭共族”每天都应该感恩
+
+
+郭文贵先生：所以说为什么场外交易人家拿着，场外交易都是机构拿走，拿着你的币的数量，人家做另外一个筹码去，因为这是有限度的。当发现喜币有任何一个蒸发的时候，你们记住你们一定告死他。那他会命都赔上，终身会蹲在监狱里。不可能的。所以说兄弟姐妹们，你们想这些问题之后你再想一想，你对世界的认知，对喜币的认知，对冬奥会的认知，对世界经济的认知，只有爆料革命新中国联邦能告诉你一切的真相和实话。
+
+没有一个——人类上没有一个国家、一个政府、一个组织敢说这实话。
+
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
