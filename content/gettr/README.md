@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/16/2022 8:36 PM (UTC)`
+
+2/16/2022 Miles Guo’s big announcement: 1: Miles will not leave the US in the near future; 2. Himalaya Reserve will launch H-Loan and H-Mortgage, and make a major favorable announcement to the investors soon. 3. Xi Jinping just had surgeries on his spleen and kidney. As the light of “Xi the Sun” is getting dimmer and dimmer, the invasion on Taiwan will be postponed. This is the will of God!<br/><br/>2/16/2022 文贵重大宣布：1. 文贵短期内不可能离开美国；2. 喜联储马上推出贷款和抵押政策，会有重大利好公告！3. 隆重宣布，习近平刚刚做了脾和肾的2个手术，习太阳光芒暗淡，对台湾行动暂缓，这是天意！<br/>
+![img](https://media.gettr.com/group5/getter/2022/02/16/20/a3316358-6b69-16be-1d8c-7000bf5592e2/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@realfayfay 2/16/2022 7:07 AM (UTC)`
@@ -147,13 +154,6 @@ Crazy Kids🙈
 
 2/13/2022 Miles Guo: The Winter Olympics costing trillions of dollars of the Chinese people’s hard-earned money has shown the world the falsehood, deception, corruption, and unbridled mutual harm of individuals in Communist China. Xi Jinping is a madman, who is reckless, full of lies, and has no credibility, and Xi has ruined all the international relations of the CCP. The Winter Olympics will cause Communist China’s economy to collapse, leading to a worldwide anti-Chinese movement.<br/><br/>2/13/2022 文贵直播：耗费上万亿美元民脂民膏的冬奥会却让全世界看到中共国的假和骗、腐败、和毫无底线的互害；习太阳是一个混不吝、满嘴谎话、毫无信用的疯子，搞砸了中共所有的国际关系；冬奥会将让中共国经济崩溃、并引发全球排华<br/>
 ![img](https://media.gettr.com/group41/getter/2022/02/14/08/27647312-621c-1ce1-8d0e-09c613a1e900/out.jpg)
-
----
-
-`@miles 2/14/2022 8:49 AM (UTC)`
-
-2/13/2022 Miles Guo: The CCP has held hostage various international organizations to act as its accomplices by implementing the BGY scheme. The foreign athletes of the Winter Olympics will forever become the enemies of the CCP, and they will expose the fake, ugly, and evil of the CCP with their personal experiences after they return home. This will be of great help to the Whistleblowers' Movement<br/><br/>2/13/2022 文贵直播：中共用蓝金黄绑架了各个国际组织充当其帮凶；冬奥会的外国运动员将成为中共永远的敌人，他们回国后会以亲身经历揭露中共的假丑恶，这将对爆料革命有巨大帮助<br/>
-![img](https://media.gettr.com/group26/getter/2022/02/14/08/cf1e03f3-6e88-7f7b-f455-ae6254801c5b/out.jpg)
 
 ---
 

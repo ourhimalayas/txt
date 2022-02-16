@@ -15,62 +15,62 @@
 
 ---
 
-### [反疫苗卡车司机的抗议到达欧洲（二）](/content/gnews/1/README.md)
+### [拜登当局的俄罗斯政策为什么会失败（一）](/content/gnews/1/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美国和北约称俄罗斯仍在乌克兰附近增兵](/content/gnews/2/README.md)
+### [文耀时间/从铸币权看喜币走势-荷兰基金的成立](/content/gnews/2/README.md)
+ ` 喜马拉雅德国纽伦堡正义农场`
+
+### [流氓媒体Vice不失时机地对班农和郭文贵先生进行负面报道](/content/gnews/3/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [反疫苗卡车司机的抗议到达欧洲（二）](/content/gnews/4/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [美国和北约称俄罗斯仍在乌克兰附近增兵](/content/gnews/5/README.md)
  ` Shuizhuyu`
 
-### [反疫苗卡车司机的抗议到达欧洲（一）](/content/gnews/3/README.md)
+### [反疫苗卡车司机的抗议到达欧洲（一）](/content/gnews/6/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [文耀时间/从铸币权看喜币走势-荷兰基金会及基金的成立](/content/gnews/4/README.md)
+### [文耀时间/从铸币权看喜币走势-荷兰基金会及基金的成立](/content/gnews/7/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [香港面临自大流行病开始以来最严重的病毒爆发](/content/gnews/5/README.md)
+### [香港面临自大流行病开始以来最严重的病毒爆发](/content/gnews/8/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥说&#8221;能翻墙的都是有点见解的人，有点勇气的人&#8221;](/content/gnews/6/README.md)
+### [七哥说&#8221;能翻墙的都是有点见解的人，有点勇气的人&#8221;](/content/gnews/9/README.md)
  ` MG FARM`
 
-### [2022年2月16日大直播速记精萃](/content/gnews/7/README.md)
+### [2022年2月16日大直播速记精萃](/content/gnews/10/README.md)
  ` 雅典娜GNotes`
 
-### [北京冬奥会后灭共迎来大好局面！](/content/gnews/8/README.md)
+### [北京冬奥会后灭共迎来大好局面！](/content/gnews/11/README.md)
  ` GTV News Talk`
 
-### [特鲁多因冻结反授权抗议者的银行账户而遭到抨击](/content/gnews/9/README.md)
+### [特鲁多因冻结反授权抗议者的银行账户而遭到抨击](/content/gnews/12/README.md)
  ` 温哥华扬帆农场`
 
-### [七哥说“我创造了世界之最”](/content/gnews/10/README.md)
+### [七哥说“我创造了世界之最”](/content/gnews/13/README.md)
  ` MG FARM`
 
-### [郭先生谈PAG案有感](/content/gnews/11/README.md)
+### [郭先生谈PAG案有感](/content/gnews/14/README.md)
  ` GTV News Talk`
 
-### [美国指责中共对俄乌危机保持沉默令人震惊](/content/gnews/12/README.md)
+### [美国指责中共对俄乌危机保持沉默令人震惊](/content/gnews/15/README.md)
  ` GTV News Talk`
 
-### [七哥谈美国法官](/content/gnews/13/README.md)
+### [七哥谈美国法官](/content/gnews/16/README.md)
  ` MG FARM`
 
-### [印度政府以国家安全为由再禁用中共54款APP](/content/gnews/14/README.md)
+### [印度政府以国家安全为由再禁用中共54款APP](/content/gnews/17/README.md)
  ` GTV News Talk`
 
-### [七哥说“美好的生活是必然属于我们的”](/content/gnews/15/README.md)
+### [七哥说“美好的生活是必然属于我们的”](/content/gnews/18/README.md)
  ` MG FARM`
 
-### [七哥说“三件事会发生”](/content/gnews/16/README.md)
- ` MG FARM`
-
-### [Hcoin To the Moon上线76天第27次位列新加坡iTunes摇滚音乐榜首](/content/gnews/17/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [Hpay支付打赏你的精彩 -挖矿就业在盖特](/content/gnews/18/README.md)
+### [Hpay支付打赏你的精彩 -挖矿就业在盖特](/content/gnews/19/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
-
-### [文贵先生直播“三件大事”的速评](/content/gnews/19/README.md)
- ` 纽约香草山MOS02`
 
 ### [特鲁多宣布紧急状态后，渥太华自由车队抗议继续](/content/gnews/20/README.md)
  ` 温哥华扬帆农场`
