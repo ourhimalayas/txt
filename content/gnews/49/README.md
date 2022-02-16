@@ -2,26 +2,32 @@
 ---
 
 
-## 证据表明达沃斯国际刑事法庭有25% 的人被渗透
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2010400/)
+## 北京冬奥瑞典双金牌得主抨击中共国亵渎奥运精神
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2011144/)
 
-#### 编译：Cran
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Unknown-13.jpg)北京冬奥瑞典双金牌得主抨击中共国亵渎奥运精神 网络图片
+据美国之音2月16日报道，在北京冬奥会男子速度滑冰比赛中夺得5000米和10000米两枚金牌，并且在10000米速滑比赛中打破世界纪录的瑞典选手尼尔斯∙范德普尔，在返回瑞典之后，公开抨击国际奥委会（IOC）将奥运会交给中共国这样“公然侵犯人权”的国家主办是“极端不负责任”。
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/16449590181.png)[Image souce](https://arealnews.com/dr-reiner-fuellmich-wiki/)
-据《先行新闻》2月15日报道，德国律师团队领队，赖纳 · 福埃尔米奇(Riner,Fuellmich) 指出，25%的国际刑事法庭的法官被达沃斯渗透。这就是为什么他所引领的国际律师团队选择自然（公共舆论）法庭而非国际刑事法院来进行大陪审团审判。
+范德普尔在北京冬奥会开幕前曾表示不方面发表评论，在他返回瑞典后，表示北京的情况很“糟糕”，但他不想说太多，因为瑞典还有运动员在中共国参加比赛。他只是将北京冬奥会做了比较：德国1939年入侵波兰前举办过1936年柏林奥运会，俄罗斯2014年吞并乌克兰克里米亚半岛前举办过索契冬奥会。
 
-该律师团队旨在将法律程序带到现有的法律系统以外来进行。因为据他称，现有的系统彻底的腐败了。这个现象在欧洲，特别在德国是真实的。那些司法系统还在正常运行的国家还不算太糟糕，比如美国一些州和印度。
+因为中共国人权问题，美国、英国、加拿大、澳大利亚和立陶宛等国对北京冬奥会实施了外交抵制。另有一些国家没有派遣高级官员出席冬奥会。全球主要人权团体一再呼吁各国政府全面抵制北京冬奥会。中共政府不仅否认所有指控，还抨击那些实施外交抵制的国家将体育“政治化”。这才是现实版的“贼喊捉贼”。
 
-“在欧洲，我们不能再相信法庭了。 第三方不仅已经渗透进了政体和主流媒体，社会和政治机构，还有大学和司法系统”。
+既然中共国不承认有新疆人权侵犯，就让外国记者进入新疆去考察；既然中共国不承认病毒来源于武汉病毒研究所，就打开实验室让世界各国的科学家去溯源。没做亏心事，不需要动不动暴跳如雷，又谴责又抗议。除了证明泼妇会骂街，人权问题和病毒问题还是没有解决。冬奥会召开了，各国运动员实地到了现场，每个人回来之后都会讲出自己真实的经历，对比习近平讲述的“中国故事”，孰真孰假，每个人都会分辨。
 
-他指出，他所领导的团队已经掌握了证据，ICC和欧洲人权法庭的25%的法官已经被腐蚀。这些法官收了乔治，索罗斯 （Jorge Solos）和比尔，盖茨（Bill Gates) 的钱。
+新闻参考链接：[https://www.voachinese.com/a/swedish-skater-says-extremely-irresponsible-china-hosting-olympics-amid-human-rights-abuses-20220215/6442759.html](https://www.voachinese.com/a/swedish-skater-says-extremely-irresponsible-china-hosting-olympics-amid-human-rights-abuses-20220215/6442759.html)
 
-他解释说，将司法程序带到现有的司法系统以外来进行，是让公众看到真实的过程和信息。所以他们能够选择是否信任现有的司法系统。他们可以行动起来，推动现有的司法系统清廉运作。如果这个方法行不通，那么人民应该建立起自己的司法系统。这个方法已经在美国的部分州开始了。
+* * *
 
-赖纳 · 福埃尔米奇：德国一个律师团队的首领，该团队是德国冠状病毒调查委员会的的成员。福埃尔米奇是一名德国律师，他是美德律师协会和德国律师协会的会员。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-[Source](https://beforeitsnews.com/alternative/2022/02/reiner-fuellmich-says-theres-evidence-25-of-the-international-criminal-court-is-davos-infiltrated-video-3767446.html)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 
