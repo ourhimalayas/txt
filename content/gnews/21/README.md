@@ -2,38 +2,55 @@
 ---
 
 
-## 渣打被罚230万 墙内信用卡申请项目暂停
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2016053/)
+## 俄罗斯大使强烈警告丹麦，不能允许美国士兵进入丹麦博恩霍尔姆岛
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2016061/)
 
-作者：日本方舟农场-Andy
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月9日，据中共媒体消息显示，因违反了所谓的“信用信息查询相关管理规定”，渣打银行中共国有限公司被中共人民银行上海分行处以人民币230万元的罚款，同时，渣打银行零售个人金融信贷部总监陈燕来也被处以10万元人民币的罚金。目前，墙内渣打银行已经暂停了其信用卡申请项目，而该银行的多项业务也将一并调整。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-16-下午12.27.28.png)
-据了解，渣打银行并非第一家被中共政府处罚的外资银行。资料显示，中共于今年1月1日颁布了《征信业务管理办法》，而其后短短一个月半的时间里，中共对墙内各大银行实施罚款的总金额已经超过了四千万元人民币。其中，东亚银行于1月10日接到的近一千七百万元人民币的处罚堪称近年来外资银行在中共国内收到的最大罚单。
+整撰：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-265.jpg)
+图片来源：TV2.DK
 
-另外，2021年年末，新韩和韩亚两家外资银行也被中共政府予以罚款，其金额高达620万元人民币。
+俄罗斯驻丹麦大使Vladimir V. Barbin强烈警告丹麦允许美国军队踏上博恩霍尔姆岛。
 
-分析人士对此指出，中共巧立名目地处罚外资银行的做法突显出中共国内经济危机山雨欲来之势。当中，外资银行在“夹缝中生存”已经成了这个时代的缩影。
+Vladimir V. Barbin对丹麦媒体Berlingske说，如果丹麦允许这样的举动，如果外国军队抵达博恩霍尔姆岛，俄罗斯将被迫评估对俄罗斯和丹麦之间关系的影响。
 
-参考链接：
-1）[渣打银行（中国）收到其有史以来最大百万级罚单 零售信贷部总监被罚10万元](https://finance.sina.com.cn/money/bank/gsdt/2022-02-14/doc-ikyakumy5837854.shtml)
-2）[https://finance.huanqiu.com/article/46pIno6oHEK](https://finance.huanqiu.com/article/46pIno6oHEK)
-3）[开年强监管持续 三家银行累计被罚8000万元](http://m.caijing.com.cn/api/show?contentid=4838570)
-4）[监管动态｜新韩、韩亚两家外资银行年底合计收620万元罚单，均涉及贷款管理、合规经营缺位问题](http://m.ce.cn/cj/gd/202201/07/t20220107_37236414.shtml)
+这一警告是在丹麦政府开始与美国就新的国防协议合作进行谈判之后发出的，这可能意味着美国军队和物资可以被安置在丹麦。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+俄罗斯人认为，美国在博恩霍尔姆岛的存在将 “影响 “波罗的海地区的安全。
 
-总编：Irene木木
-编辑：宁文静
-校正/发稿：呼吸的雾霾（文小呼吸）
+博恩霍尔姆岛是波罗的海中的一个丹麦岛屿，位于丹麦其他地区的东部，瑞典南部，德国东北部和波兰北部。由于博恩霍尔姆岛位于波罗的海的战略位置，几个世纪以来一直被周边国家争夺。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+俄罗斯的威胁，北约的保卫
+
+美国士兵出现在丹麦将是一个强烈的信号，表明北约在离俄罗斯边界不远的地方重要的军事存在。
+
+在周四（2月16日）的新闻发布会上，外交部长Jeppe Kofod被问及美国士兵在丹麦领土上是否可视为丹麦对俄罗斯的挑衅。
+
+“我们必须记住，是俄罗斯在威胁着欧洲的和平。我们在北约所做的是在保卫自己。这并不是因为俄罗斯和乌克兰的局势而产生的，”他说。
+
+只有丹麦才能决定在丹麦领土上发生的事情
+
+丹麦外交部长杰普·科福德Jeppe Kofod 非常明确地表示，美国士兵是否会来到丹麦本土，完全由丹麦决定。否则，俄罗斯对丹麦将与美国开始防务合作这一事实非常不满。这可能意味着美国军队可以留在丹麦。
+
+俄罗斯驻丹麦大使Vladimir V. Barbin告诉Berlingske，这将是对二战以来丹俄协议的违反。
+
+但是Berlingske文章说，丹麦外交部长是对的。
+
+“这并不是俄罗斯第一次提出这种错误的和不正确的主张，但这并不意味着它是真实的，”杰普·科福德给媒体Ritzau的书面评论中说。
+
+这位丹麦外长非常明确地说：“丹麦从未与俄罗斯或前苏联就博恩霍尔姆岛的外国军队达成过协议。而且我必须警告，不要把俄罗斯的这些宣布当作好事。”
+
+他强调：“让我说清楚，只有丹麦才能决定在丹麦土地上发生什么！”
+
+在Berlingske对俄罗斯大使Vladimir V. Barbin的采访中，这位大使并没有提出证据证明他所谓的协议是存在的。
+
+来源：
+
+[TV2.dk](https://nyheder.tv2.dk/udland/2022-02-15-ruslands-ambassadoer-advarer-kraftigt-mod-at-tillade-amerikanske-soldater-paa)
+
+[Berlingske.dk](https://www.berlingske.dk/politik/store-partier-affejer-russiske-trusler-om-bornholm-der-er-intet-hjoerne-af)
+
+[Politiken.dk](https://politiken.dk/udland/art8621246/%C2%BBDanmark-har-aldrig-haft-en-aftale-med-Rusland-om-udenlandske-tropper-p%C3%A5-Bornholm%C2%AB)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
