@@ -2,22 +2,19 @@
 ---
 
 
-## 谷爱凌的金牌VPN与锁链女的零自由
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2016624/)
+## 习真要打台湾，战争经济
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2016854/)
 
-加拿大温哥华扬帆农场    平民正道
+#### 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王 视频定位：BENJ1，WEI
 
-据《纽约时报》2月14日报道，因国籍造假获得本次冬奥会金牌丑闻而在国际舆论上引发轩然大波的美国滑雪运动员谷爱凌，近日由于在社交网络上发表不当言论，再次引发热议。
+*发布：陶子*
 
-报道称，当有人在Instagram上质问谷爱凌，为什么她可以在中共国使用该已被当局屏蔽的社交网站，而普通民众却不能时。这位奥运金牌得主回答道：任何人都可以下载VPN来翻墙上网。
-
-评论指出，为掩盖国情和当局的各种犯罪真相，特别是对[新中国联邦爆料革命]的无比恐惧，中共政权屏蔽了绝大多数国外新闻网站和社交媒体平台，而普通人甚至使用VPN上网都属违法。
-
-而相比为贪图眼前名利，不惜一切卖身中共为奴的谷爱凌母女，墙国最底层蝼蚁的锁链女，在遭遇拐卖，残害和禁锢后，却无人问及，只能听天由命。VPN可以让谷爱凌在互联网上畅通无阻，但一条狗链却让锁链女难逃生天！
-
-* * *
-
-编辑： 平民正道    发布：平民正道
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

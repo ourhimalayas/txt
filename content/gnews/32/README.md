@@ -2,34 +2,29 @@
 ---
 
 
-## 朝日新闻：因冬奥会裁决偏颇，中共国留学生在韩国遭暴行
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2016101/)
+## 特鲁多宣布紧急状态后，渥太华自由车队抗议继续
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2016220/)
 
-翻译：宫米叶
+加拿大温哥华扬帆农场 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2022/02/NA-1566380.jpg)图片来源：Daily Express
+根据《独立报》（Independent) 2月16 日报道，加拿大皇家骑警（RCMP）和渥太华警方将开始行动结束来自加拿大首都和议会辖区的 “自由车队”，两天前总理特鲁多援引了几乎没有使用过的《紧急状态法》来处理危机。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/20220211-00000097-ann-000-9-thumb.jpg)图片来源：news.yahoo.co.jp / All Nippon NewsNetwork(ANN)
+三位消息人士告诉路透社，特鲁多称卡车司机对Covid疫苗强制和其他限制的抗议活动是 “非法占领”，据说在第二个周末的抗议活动之后，他诉诸了紧急权力。
 
-对于中国留学生在韩国遭到暴行一事，中国外交部表示：“我们正密切关注。”在韩国，围绕奥运会的裁决等问题，对中共国的批评不断上升。
+周二，渥太华的警察局长Peter Sloly在受到批评和两周多的示威活动后辞职。渥太华市长吉姆-沃森表示，他与 “自由车队 “成员达成协议，离开惠灵顿街以南的住宅区。
 
-投稿中写道，9日晚，在韩国釜山，一名中国留学生被两名韩国男子殴打。
+据当地新闻报道，加拿大当局现在将采取冻结对卡车司机的资助，加拿大皇家骑警将开始在议会区周围建立 “禁区”，以迫使人们离开。该国的公共卫生部长说，为了恢复秩序，任何拒绝的人都将被逮捕。
 
-鉴于事态发展，中共国外交部在11日的记者会上表示：“我们正密切关注此事。已经与当事人取得了联系“。
+政府已向停在该地区的车辆的乘客发放传单，警告他们离开，否则将面临刑事指控，禁止使用空气喇叭的禁令延长60天。
 
-在此基础上强调会“维护海外中国人民的权利和安全”。
 
-据韩国媒体报道，当地警方表明他们并不是针对特定的中国人。
 
-韩国目前由于北京奥运会短道速滑的裁定偏向中国，反华情绪高涨。
+原文链接：
+[https://www.independent.co.uk/news/world/americas/canada-tuckers-convoy-protest-trudeau-live-b2016109.html](https://www.independent.co.uk/news/world/americas/canada-tuckers-convoy-protest-trudeau-live-b2016109.html)
 
-**参考资料：**[news.yahoo][韓国で中国人留学生が暴行される　中国外務省「非常に注目」](https://news.yahoo.co.jp/articles/dde1893e679698c417e67ba7e9dd3e29c8a0c26d)
+编辑，发稿 Spirit
 
-* * *
 
-*审核：天天*
-*校对：zicoround*
-*发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-4.jpeg)
 
  
 

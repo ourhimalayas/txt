@@ -2,20 +2,21 @@
 ---
 
 
-## 强生公司停止部分新冠病毒疫苗生产
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2016560/)
+## 七哥最感动的感受到战友的关心和感动
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2016739/)
 
-加拿大温哥华扬帆农场    平民正道
+#### 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王 视频定位：BENJ1，WEI
 
-据《网关专家》2月13日报道，[强生公司]已于2个月之前悄悄停止了其在荷兰一家药厂“新冠病毒”疫苗的生产。
+*发布：陶子*
 
-据悉，尽管本次暂时性停产将导致强生公司的该疫苗供应量大幅减少，但该药厂却计划开始生产一种实验性但可能获利更大的疫苗产品。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-报道称，明尼苏达州著名的[梅奥诊所]近期在《美国医学会杂志》发表的研究报告显示，[强生公司]目前生产的“新冠病毒”疫苗会极大增加接种者罹（离li）患罕见脑血栓以及其他严重心血管疾病的风险。
 
-* * *
-
-编辑： 平民正道    发布：平民正道
 
  
 

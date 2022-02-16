@@ -2,20 +2,19 @@
 ---
 
 
-## 加拿大财长任职“世界经济论坛”的危害
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2016607/)
+## 为什么普京撤兵
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2016841/)
 
-加拿大温哥华扬帆农场    平民正道
+#### 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王 视频定位：BENJ1，WEI
 
-据加拿大[国家邮报]近日报道，现任副总理兼财政部长[弗里兰]代表加拿大参加全球主义精英汇集的[世界经济论坛]之举，已严重危及到该国的民主制度。
+*发布：陶子*
 
-[弗里兰]于2013年加入[世界经济论坛]，并在2019年后，作为唯一的政府部长担任该论坛董事会成员。此外，她还是与[达沃斯俱乐部]齐名的[阿斯彭研究所]的理事会成员，管理着为数众多的年轻政治精英。
-
-报道称，作为加拿大公共财政监护人，由于[弗里兰]不仅行使着[世界经济论坛]的最高行政职责，同时还在[阿斯彭研究所]提供咨询以及管理财务。因此，者势必会产生国家和机构组织间的责任冲突和利益勾兑，并导致[世界经济论坛]的全球政策和立场将左右加拿大的国策，而使联邦政府沦为这些组织的附庸，并最终颠覆加拿大现有的民主制度。
-
-* * *
-
-编辑： 平民正道    发布：平民正道
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

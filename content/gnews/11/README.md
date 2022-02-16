@@ -2,20 +2,12 @@
 ---
 
 
-## 特鲁多的《紧急状态法》遭各界强烈谴责
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2016581/)
+## 七哥金句：疫苗灾难，青蒿素等
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2016753/)
 
-加拿大温哥华扬帆农场    平民正道
-
-据《福克斯新闻》2月15日报道，在加拿大总理特鲁多启动《紧急状态法》以阻断卡车司机自由车队的资助途径后，立即遭到了各界包括公民自由团体的强烈反对，并谴责当局此举实为政府统治权力的非法扩张。
-
-为此，[公民自由协会]称：由于《紧急状态法》的目的是为了“国家有能力维护其主权、安全和领土完整”，并只适用于“根据加拿大任何其他法律都无法有效处理”的事件。因此，当前民众的和平抗议活动，不仅完全不符合联邦政府启用该法案的标准，更极度危害了本国的民主制度。
-
-相关学者也指出：《紧急状态法》必须在各省政府的一致同意下，才能被启用。如果地方当局不愿合作，那么联邦政府就不得不放弃执行。此外，由于该法案所特有的针对性、战略性和克制性，因此，擅自实施《紧急状态法》将造成特鲁多政府权力的无限集中和膨胀，而最终导致灾难性的后果。
-
-* * *
-
-编辑： 平民正道    发布：平民正道
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句1-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句2-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句3-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句4-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句5-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句6-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句7-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句8.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句9.jpg)
+整理：雅典娜农场
+发布：枫叶红了
 
  
 
