@@ -2,12 +2,12 @@
 ---
 
 
-## 七哥金句：独裁，理智，爱，家人
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2016936/)
+## 七哥金句：数字货币，躺平币，喜马拉雅，积累
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2016989/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句1-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句2-7.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句3-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句4-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句5-6.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句-你的今天是你昨天积累的结果.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句-喜马拉雅是一个高度是一个我们的目标.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句-数字货币.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句躺平币.jpg)
 整理：雅典娜农场
-发布：枫叶红了
+发布：枫叶红 了
 
  
 

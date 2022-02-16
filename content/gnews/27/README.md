@@ -2,30 +2,22 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年2月16日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2016620/)
+## 听听这位卡车司机谈谈自己为何参加自由车队
+` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/2016650/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO-1.jpg)
+#### 加拿大温哥华扬帆农场 视频组
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-15.png)
-文章仅代表作者本人观点，与Gnews无关
+素材：坐看云起时
+翻译：Kent
+字幕：路仁
 
-视频参看：
-[2022.02.16早 《NFSC新闻》](https://gtv.org/video/id=620cfc14432ae869226da2dc)
-[2022.02.16早 G|TV《新闻访谈》](https://gtv.org/video/id=620d0382432ae869226dafd6)
+2022年2月10日，Breitbart新闻在加拿大首都渥太华对卡车司机瑞安进行了一次简短的采访：
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+瑞安是个卡车司机，他自己开车过来加入车队，瑞安，告诉我们你为何而来，你在支持什么？
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-1.png)
+我来支持这个国家的自由，我们很多人都一样，我们的祖先来自世界各地，我的祖先来自普鲁士、乌克兰，我的爷爷1925年来到加拿大以逃避迫害，逃避被屠杀、被迫害的命运，他们为了自由来到这个国家，为了自由来到加拿大，我们勤恳务农，我们在我们的小社区里是自由的，后来我们拥有了《权利宪章》，突然间所有的自由被抛出窗外，我们不再自由了，所以这就是我们来抗议的原因。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+编辑/发文：Kent
 
  
 
