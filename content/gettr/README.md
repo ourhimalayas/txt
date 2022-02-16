@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/16/2022 11:28 AM (UTC)`
+
+⚠️⚠️Cronología del Nuevo Estado Federal de China sobre el virus del PCC y las vacunas COVID<br/><br/>El NEFC siempre ha estado comprometido con la verdad y con salvar vidas exponiendo la naturaleza malvada del PCC y el hecho de que crearon el virus del PCC que ha matado a millones de personas en todo el mundo. Además, el NEFC ha estado difundiendo al mundo la terapéutica COVID y los medicamentos relacionados, así como la información y los datos reales sobre las vacunas COVID. Todos los hechos demuestran que lo que hizo el PCC no tiene nada que ver con el pueblo chino, el PCC no puede representar al pueblo chino, que también es la víctima.<br/><br/>⚠️⚠️关于新中国联邦爆料中共病毒和中共病毒疫苗灾难预警时间线—西语版<br/><br/>新中国联邦致力于揭露中共邪恶本质，揭露他们制造中共病毒在全世界造成数百万人死亡的事实以及COVID疫苗的真实目的，以拯救生命。中共的所作所为与中国人民无关，中共不代表中国人民，中国人民也是受害者。
+![img](https://media.gettr.com/group29/origin/2022/02/16/11/e4d24fa6-7110-1350-b8ec-cc57d3fd50c0/out.jpg)
+
+---
+
 `@miles 2/16/2022 2:37 AM (UTC)`
 
 2月15号：七哥从这一刻起个人正式破产了……案件号码：Case No. 22-50073.
@@ -145,13 +152,6 @@
 
 2/13/2022 Miles Guo: I’ve made accurate judgments on the oil futures, supply chains, and chips. Before Russia’s war against Ukraine, many countries in Eastern Europe and Northern Europe have sided with the US, with Germany welcoming the return of the US troops and the deployment of nukes. Xi Jinping and the CCP thought they were smart in terms of dealing with Russia, but they ended up in an embarrassing situation where Putin took hundreds of billions of dollars from them.<br/><br/>2/13/2022 文贵直播: 文贵在石油期货、供应链和芯片上判断精准；俄国对乌克兰尚未开战，东欧和北欧等国已倒向美国，德国欢迎美国驻军并允许部署核武器；习太阳和中共弄巧成拙，被普京卷走千亿美元
 ![img](https://media.gettr.com/group34/getter/2022/02/14/03/2788a298-87c7-ede8-aa8a-5f5fbde164f8/out.jpg)
-
----
-
-`@miles 2/14/2022 2:53 AM (UTC)`
-
-2月13号：衷心地感谢，喜安娜喜安迪姐妹制作精美的视频和唱得真美妙的歌曲……祝，全球的所有的战友们和全天下的人们，情人节快乐！
-![img](https://media.gettr.com/group25/getter/2022/02/14/02/c06aba87-231a-2e26-d3ec-05788301e836/out.jpg)
 
 ---
 
