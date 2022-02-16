@@ -2,39 +2,32 @@
 ---
 
 
-## 最毒不过人心
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2011079/)
+## 俄罗斯和乌克兰紧张局势缓和，股市上涨，油价下跌
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2011172/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+#### 翻譯：melody
+编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-69.png)图片来源：雅典娜设计组（614）
+根据路透社2月16日报道，华尔街和欧洲股市周二反弹，而油价下跌，此前俄罗斯曾表示将从乌克兰附近的演习中撤出部分军队，而普京则表示他看到了与西方进一步讨论的空间。
 
-2022-02-13直播摘录09:28:43
+乔·拜登总统随后表示，俄罗斯仍有可能对乌克兰发动袭击，美国将保卫北约的每一寸领土。
 
-你们不知道七哥这几十年的战略！我走出清丰看守所，我阅尽人间的苍凉、人情的冷漠、人生的现实，世界上最毒不过人心我告诉你。很多人骂“狗改不了吃屎”，我想问问人类，人类上，记住狗是人类的朋友，狗吃人吗？可你人吃狗肉。狗改不了吃屎，你人改了吃屎了吗？你人还吃人呢。
+黄金和债券价格下滑，因乌克兰紧张局势可能缓和，避险资产失去部分吸引力。但北约表示，尚未看到任何降级的证据，俄罗斯下议院的投票则威胁到更广泛的僵局。
 
-最毒不过人心我告诉你，人心一旦没有了信仰控制，比魔还魔，比狗还臭，不如狗！你看那“锁链女”，你看中国对女性，你看看周围人的冷漠，包括我，你能受得了吗？你们的妈妈、你们的姐妹、你们的闺女24年（被）锁着链子，被无数个男人来天天在那块强奸轮奸，还不让吃不让穿，然后生那么多孩子，这是人道吗？就这就有政府撒谎，有人到那蹭热度、蹭流量、拍视频，天诛地灭都不过为之。
+随着普京和德国总理奥拉夫·舒尔茨的讲话，美元指数缩减跌幅，这表明乌克兰的紧张局势尚未得到解决。
 
-你再看共产党到联合国干的事，任何……只要共产党这过去三十年五十年掺和的组织，没有一个（不）是无法无天、无规则、不腐败。北京冬奥会这简直是世界上最荒唐——没有雪的冬奥会。没有雪的城市开冬奥会，我真R它八辈儿祖宗！这是对全人类的侮辱，这是西方世界必须要付出的代价！
+虽然乌克兰危机正在酝酿之中，但劳工部报告称，美国1月份生产者价格涨幅为八个月来最大，这提醒人们，高通胀可能会持续到今年的大部分时间。
 
-你没见那些白人穿着西装打着领带，到了盘古喝点酒后那可比共产党还疯狂！天天在夜总会里边的嫖客没那么疯狂，他已经习以为常了，你就怕这些穿着西装的西方的这些所谓文明世界来的白人，你看（他们）到了盘古，一到晚餐后，在那种雅间里边白人那种疯狂，来自国际组织的，那简直是惨不忍睹。别说是人了，那猴子他都敢戳两下我跟你说。
+新闻链接：[Stocks rally, oil slips as Russia-Ukraine tensions ease](https://www.reuters.com/markets/europe/global-markets-wrapup-1-2022-02-15/)
 
-这个被禁闭的人的恶性一旦放出来，比魔还可怕！这不是我说的。共产党就把西方人类文明用千年挣来的民主自由、对人性的尊重，他到了中国给彻底释放出来，然后再用这些人的恶来绑架他们，让他们来传播这些恶和魔去。这就是奥林匹克委员会，这就是联合国，这就是世界卫生组织，这就是WTO，这就是世界的所谓的记者联盟、所谓媒体联盟！只要带国际的、只要称组织的，全是共产党的帮凶！
+发布： wenly
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

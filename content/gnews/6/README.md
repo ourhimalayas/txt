@@ -2,26 +2,36 @@
 ---
 
 
-## 弃用中共 欧盟将建设独立通信网络
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2011280/)
+## 有声|韩国连续5天疫情加剧，总统候选人妻子染疫
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2011369/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-29.jpg)[图片来源](https://www.esa.int/About_Us/Ministerial_Council_2012/Satellite_communications)
-2月15日，欧盟委员会（EU）宣布了建设欧洲专用人造卫星通信网络的提案。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月14日，韩国中共病毒单日确诊新增5.46万例，已连续5天新增超过5万例，居家治疗人数已超过23万例。总统候选人安哲秀的妻子金美京也在此轮中不幸染疾。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/9-13.jpg)
+奥米克戎变异株疫情近期在韩国快速扩大，首尔、仁川、京畿道等人口密集的首都圈社区感染占56.9%。据韩国中央防疫对策本部统计，截至14日凌晨，全国累计确诊超140万例。采取居家治疗的大多为轻症及无症状患者，同时，重症及死亡人数增加速度相对放缓。
 
-项目总成本预计为 60 亿欧元（约合 7880 亿日元），其中 24 亿欧元将由欧盟预算（截止到2027年的预算）提供。同时，还将出台安全措施，对已完成运行的人造卫星、火箭碎片等进行定位跟踪。
+据悉，目前正在各地开展竞选活动的总统候选人安哲秀，昨天通过视频透露其妻金美京确诊消息，并表示妻子患有慢性疾病，病情并不乐观。同为首尔大学医学系毕业的两人自疫情爆发以来，一直在医疗前线工作，受到相当广泛的好评。
 
-随着以美国、中共国和俄罗斯为中心进行的太空开发竞争日益加剧，此次提案的目的是为欧洲确保一个安全、可靠和独立的高速卫星通信网络，以供官民使用。负责内部市场的欧盟专员在新闻发布会上强调，此举将减少未来对欧洲以外系统的依赖。
+文字版原文：[韩国连续5天疫情加剧，总统候选人妻子染疫](https://gnews.org/zh-hans/2010894/)
 
-此提案一旦实施，表明欧洲通信网络建设将会永远把中共国踢出局。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-信息来源:
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[EU、衛星通信網を独自構築　宇宙ごみ対策も　欧州委提案](https://news.yahoo.co.jp/articles/21454bb98232c1f307ad9c1e001600d2bb20bb05)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

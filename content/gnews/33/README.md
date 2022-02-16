@@ -2,38 +2,29 @@
 ---
 
 
-## 加拿大魁北克省截至三月十四日完全取消疫苗护照
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2010887/)
+## 支持反送中运动的艺人阮民安 遭港警国安逮捕
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2010912/)
 
-**编译: 真北007**
+**撰稿：日本东京方舟农场  海星**
 
-来自MONTREAL GAZETTE 二月十五日的新闻报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/02/5A040985-4FE9-49A1-A6FE-BFF0404E08B7.jpeg)图片来源：https://montrealgazette.com
-魁北克卫生部长周二宣布，魁北克将逐步淘汰疫苗接种护照系统，至 3 月 14 日完全取消。
+2月15日，香港艺人阮民安遭到港警国安逮捕，警方称其涉嫌“煽动罪”及“洗黑钱罪”。该艺人曾积极参加反送中抗议运动。
 
-魁北克卫生部长克里斯蒂安·杜贝（Christian Dubé）周二表示，魁北克将逐步淘汰疫苗接种护照系统。
+据《中央社》报导，2月15日港警国安人员以涉嫌“煽动他人抗议政府罪”以及“挪用捐款罪”为由，拘捕了2位男性，其中1位是41岁歌手阮民安。
 
-从明天周三开始，您在进入 酒类专卖店Société des alcools du Québec (SAQ) 和 Société québécoise du大麻店 (SQDC) 或进入大型商店时将不再需要出示疫苗护照。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片-1-18.jpeg)（图片来源：Now新闻）
 
-从 2 月 21 日起，进入礼拜堂或参加葬礼将不再需要疫苗护照。3 月 14 日，疫苗护照将完全取消（ Dubé 建议魁北克人将应用程序保留在手机上，以防第六波浪潮和国际旅行）。
+报导指出，阮民安曾多次在社交媒体发表指责政府暴政的言论，并呼吁市民抗议政府的病毒封锁措施，远离致死的疫苗。在2021年3月至11月期间，他为因抗议政府而被捕的民主人士筹集了100万元港币的捐款。
 
-从3月 14 日起，您无需出示疫苗护照即可进入餐厅、酒吧、健身房或电影院，或参加其他公共活动。魁北克没有对在大多数室内环境中强制佩戴口罩的规定进行任何更改。
+阮民安是一位香港知名歌手。2019年，他积极参与了反送中抗议运动，去年10月在线上直播的演唱会中，他高声歌唱了“光复香港 时代革命”的歌曲，以此声援被笼罩在中共《国安法》阴影之下的香港。
 
-周一，省长弗朗索瓦·乐高表示，他希望尽快放弃为抗击 COVID-19 而制定的所有卫生措施。
+参考链接：
+1. [https://www.cna.com.tw/news/acn/202202150295.aspx](https://www.cna.com.tw/news/acn/202202150295.aspx)
+2. [https://news.now.com/home/local/player?newsId=466575](https://news.now.com/home/local/player?newsId=466575)
 
-**原文链接：**
+素材采编：海星
+编辑：青城道姑
+发布：文曦
 
-[Vaccine passport ‘has shown its usefulness,’ but is less necessary now, Dubé says](https://montrealgazette.com/news/local-news/vaccine-passport-has-shown-its-usefulness-but-is-less-necessary-now-dube-says)
-
-**编辑：LILY**
-
-**发布：歪桑**
-
-20220215
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3-4.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
