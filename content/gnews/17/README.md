@@ -2,36 +2,29 @@
 ---
 
 
-## 今日盖特大V推荐 — 比亚·基西斯（Bia Kicis）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2012121/)
+## 亚裔安危堪虑，纽约华埠再传女性遇害
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2012179/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1535-e1644987435306.png)
-盖特链接：[https://gettr.com/user/biakicis](https://gettr.com/user/biakicis)
+撰稿：Sam Cho
+![](https://assets.gnews.org/wp-content/uploads/2022/02/54152275-10509019-image-a-24_1644797415028-1.jpg)
+新闻摘要：
 
-**比亚·基西斯自述**：
+美国亚裔遇袭事件层出不穷。上周日（2月13日）纽约中国城再度传出韩裔女子在其居住公寓里，遇害身亡的案件。
 
-第一位主持CCJC/商会的女性。联邦地区检察官24年，副部长。联邦地区。
+透过监视录像，警方发现，嫌犯尾随受害者进入其位于曼哈顿唐人街的住所。在4.30am左右迅速抵达现场的警员甚至还听见女子尖叫声；5.55am在现场的救护人员宣布倒卧血泊的被害人身亡；警员将躲藏在被害人床下的嫌犯逮捕。
 
-[\[email protected\]](/cdn-cgi/l/email-protection)：[http://t.me/biakicisof…](https://t.me/biakicisof...)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1536.png)图片来源：网络
-**比亚·基西斯简介：**
+现年25岁的阿萨马德·纳什（Assamad Nash）是名累犯，被控多项罪名，包含一项袭击罪，先前受惠于左派政府缩减监狱人数的保释改革政策，获得保释中。
 
-比亚·基西斯，出生于1961年9月19日，巴西政治家，活动家，律师和前总检察长，巴西联邦众议员，保守派社会自由党，巴西国民议会政府副领导人（2019～2020年）。
+纽约市长埃里克亚当斯(Eric Adams)及州长凯西·霍赫尔（Kathy Hochul）都表达哀悼，并谴责这宗罪行。
 
-比亚·基西斯捍卫使用可验证的纸质投票记录，以防止电子投票系统导致的巴西的选举舞弊。
+受访的纽约布鲁克林警员表示，近来犯罪率暴增，没有一个社区是安全的；按照这个速度下去，在圣帕特里克节前，纽约将完全陷落，沦为犯罪之都。
 
-编撰：洛杉矶盘古农场 — 心照
+**简评：**
 
-校审：洛杉矶盘古农场 — 郭友(文苏)
+七哥在直播中心心念念，最没有把握的一件事就是暗潮涌动的排华情节及排华事件。除了这件看似随机杀人，尚未被上升到种族仇恨罪的案件外，发生在一月及去年的亚裔遇袭案件，承办检察官已提高指控，将其归为种族仇恨犯罪。正因如此，诸如VICE的杨贝贝及北京冬奥的谷爱凌之流，给亚裔拉仇恨的行进显得卑鄙可憎，是全球华人必须鸣鼓攻之，齐声讨伐的对象。
 
-发布：洛杉矶盘古农场 — 子萍
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+新闻来源：[Woman was tracked home from a night out and stabbed to death in her New York City apartment](https://wstpost.com/woman-was-tracked-home-from-a-night-out-and-stabbed-to-death-in-her-new-york-city-apartment/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
