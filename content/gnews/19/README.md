@@ -2,12 +2,26 @@
 ---
 
 
-## 诺瓦克·德约科维奇谈他被澳大利亚驱逐的原因
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2014268/)
+## 麦卡洛医生谈华盛顿的大型抗议疫苗强制系列活动
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2014609/)
 
-02/15/2022 诺瓦克·德约科维奇：我被驱逐出澳大利亚并不是因为我没有接种疫苗，也不是因为我违反了任何规则，或者说我的签证申报有误。我被驱逐的原因是移民部长利用他的自由裁量权取消了我的签证，因为他认为我可能在澳大利亚引发反疫苗的情绪，对此我完全不予认同。
+##### 翻译：ATX1230
+校对：枳实
+剪辑|字幕：小强
+编辑：守望黎明
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+文贵先生早在1月30日的大直播中，就评价说：由美国众多医学界和科学界人士签署的、在林肯纪念堂抗议强制疫苗活动上发表的演讲，具有史诗般的意义。现在，美国的有识之士也开始认识到，这是美国医学和科学界大觉醒的标志。而这种觉醒，对于人们改变对疫苗的认知，阻止强制疫苗政策，进而拯救无数无辜的生命、彻底终结疫苗灾害的继续发展，具有重大的意义。
+
+视频来源：[January was a month of -scientific reawakening- in America on the pandemic response and everyone is reassessing their situation.](https://twitter.com/p_mcculloughmd/status/1488495381705113602?s=21)
+
+*发布：Mttfly*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

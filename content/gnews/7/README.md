@@ -2,24 +2,51 @@
 ---
 
 
-## 港大发布报告称过敏病史者适合接种新冠疫苗
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2014459/)
+## 樱花数据分析┃英格兰：两针接种者更容易出现感染和死亡
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2014769/)
 
-作者：东京樱花团   阿恩
+撰稿：东京樱花团/TV
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-181.png)
+英格兰政府自今年第三周以来，重心由公布两针接种感染数据，转为了三针接种感染数据。由于全球出现的两针接种者对感染增强的现象，我们对于英格兰数据进行了分析。令人吃惊的是，几乎所有年龄层的两针接种者，在感染，住院，及死亡风险全面大于未接种者。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/港大发布报告称过敏病史者适合接种新冠疫苗.jpg)
+第6周《疫苗监督报告》[1]，公布了第2～5周感染、住院、死亡总人数统计。第3周～第6周的《全国流感及新冠病毒监督报告》[2,3,4,5]公布了第2～5周的疫苗接种率，我们取其平均做为第2～5周疫苗接种率。综合以上数据，我们得到第2～5周各年龄层的疫苗有效率结果。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1587.png)
+制图：chuansang
 
-养和医院与香港大学李嘉诚医学院最近在《世界过敏组织杂志》发表一项研究，称去年2月至6月接受疫苗过敏安全评估的个案中，近98%有过敏病史的求诊者，经免疫及过敏病科专科医生评估为适合接种新冠疫苗。该研究团队指，新冠疫苗对大部分过敏症状人士安全，市民无需进行不必要的转介而延误接种疫苗，团队还建议删除新冠疫苗过敏人士的指引。
+对18岁以上人群，疫苗防感染有效率为负值，两针接种者感染风险为未接种者的2.08～3.02倍。
 
-港府借第五波疫情对新冠疫苗的注射发起总攻，近日连三岁的幼童也批准注射。据港府的数据显示， 本港有726万人适合接种疫苗，但仍有161万人未曾注射。据悉大部分人因为疾病和过敏史获得豁免，面对新冠疫苗无效的显示问题，注射的阻力大增，港府唯有实行疫苗通行证强迫市民注射，但不少人宁愿不去受限制的场所也不肯注射，又轮到专家们用迂回的方式配合强制疫苗，近日港大声称发布了研究报告，其研究结果是98%的有过敏历史的人都适合注射新冠疫苗，并要求港府删除新冠疫苗过敏人士的指引。专家此举似乎掐断了这部分港人的后路，但命运是掌握在自己手上的，明知自己身体不适合接种，也知道新冠疫苗无效有毒必遭不测，如何能相信这些丧心病狂的专家，现在除了不去限制场所舍弃享乐外，港人还开创了另一条道路“司法复核”，即使没有公正的判决，百万市民接连向高院递交诉状一起和港府消磨时间。爆料革命郭文贵先生预告新冠疫苗注射将在短期内停止。因此没有注射的香港人一定要坚持，用尽一切办法保护自己和家人。
+对30岁以上人群，疫苗防住院有效率为负值，两针接种者住院风险为未接种者的1.21～1.72倍。
 
-资料来源：
+对30岁以上人群，疫苗防死亡有效率为负值，两针接种者死亡风险为未接种者的1.05～2.76倍。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1588.png)
+制图：chuansang
 
-[疫情消息｜首批「疫苗過敏安全門診」求診者 近98%適合接種疫苗](https://hd.stheadline.com/news/realtime/hk/2309141/%E5%8D%B3%E6%99%82-%E6%B8%AF%E8%81%9E-%E7%96%AB%E6%83%85%E6%B6%88%E6%81%AF-%E9%A6%96%E6%89%B9-%E7%96%AB%E8%8B%97%E9%81%8E%E6%95%8F%E5%AE%89%E5%85%A8%E9%96%80%E8%A8%BA-%E6%B1%82%E8%A8%BA%E8%80%85-%E8%BF%9198-%E9%81%A9%E5%90%88%E6%8E%A5%E7%A8%AE%E7%96%AB%E8%8B%97)
+两针接种者更易感染，住院，死亡。这与之前苏格兰公布的数据一致。不仅如此，如果仔细观察，我们会发现风险值有随年龄增大而上升趋势，80岁以上接种者死亡风险竟达到了2.76倍！由于高龄者接种最早，这似乎说明接种时间越久，越容易感染、住院及死亡。这可能与长期存在于体内的刺突蛋白对免疫系统的持续伤害有关。
 
-*校对：东京樱花团/文小白
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+我们之前的文章[6]已经展示了，三针疫苗防感染有效率已经为负值，即防住院、防死亡不久也将达到两针接种相同结果。那么加强针意义何在？
+
+放眼全世界，真相还在被隐藏之中。这是一场愚蠢的实验？惊天的骗局？还是蓄意的屠杀？？？
+
+数据来源：
+
+[\[1\]疫苗监督报告-第六周](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1054071/vaccine-surveillance-report-week-6.pdf)
+
+[\[2\]全国流感及新冠病毒监督报告 – 第3周](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1048531/Weekly_Flu_and_COVID-19_report_w3.pdf)
+
+[\[3\]全国流感及新冠病毒监督报告 – 第4周](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1050508/Weekly_Flu_and_COVID-19_report_w4.pdf)
+
+[\[4\]全国流感及新冠病毒监督报告 – 第5周](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1052357/Weekly_Flu_and_COVID-19_report_w5.pdf%20)
+
+[\[5\]全国流感及新冠病毒监督报告 – 第6周](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1054000/Weekly_Flu_and_COVID-19_report__w6.pdf%20)
+
+- [樱花数据分析｜英国：大多数三针接种者更易感染奥密克戎毒株](https://gnews.org/zh-hans/1903806/)
+
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
