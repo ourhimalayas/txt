@@ -2,26 +2,58 @@
 ---
 
 
-## 中共病毒感染后心血管疾病的风险增加
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2012513/)
+## 布拉德：数字表明通胀正在扩大
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2012724/)
 
-撰稿：东京樱花团/立正道
+[https://gtv.org/video/id=620c61f8b0af02660af423d2](https://gtv.org/video/id=620c61f8b0af02660af423d2)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/中共病毒感染后心血管疾病的风险增加.png)[图片来源](https://news.yahoo.co.jp/articles/4559c508abfad26cde290f3000a83079e125519f/images/000)
+Jim Bullard (the president and CEO of the Federal Reserve Bank of St. Louis)
+吉姆·布拉德 (圣路易斯联邦储备银行总裁兼首席执行官)
 
-华盛顿大学一项研究指出，感染中共病毒（新冠病毒Covid-19）后会增加患心脏和血管疾病的风险，该研究发表在美国一家医学杂志上。
+We’ve been surprised to the upside on inflation
+我们对通胀上行感到惊讶
 
-7日，美国华盛顿大学利用2020年3月至2021年1月在一家退伍军人医院里，对感染中共病毒后存活30天以上的约15万人的数据发布了研究结果。
+This is a lot of inflation in the US economy 7.5%
+美国经济中的通胀率高达7.5%，这是一个很大的问题
 
-无论是严重还是轻微者，感染后第一年患20种心脏和血管系统疾病的风险增加。 与感染前的数据相比，心脏病发作增加了63%，中风增加了52%，心力衰竭增加了72%。调查对象主要是退伍军人的白人男性，他宣称，“一般来说，数据虽然存在缺陷，但足以敲响警钟”。
+on the headline CPI, these are numbers that Alan Greenspan never saw
+在头条的消费者价格指数，这些是艾伦·格林斯潘从未见过的数字
 
-信息来源：
+They haven’t occurred in 40 years
+已经有40年没有出现了
 
-[コロナ感染後 心臓や血管系の疾患リスクが上昇する可能性を指摘 ワシントン大学](https://news.yahoo.co.jp/articles/4559c508abfad26cde290f3000a83079e125519f)
+So our credibility is on the line here
+所以我们的信誉就在这里很危险了
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+And we do have to react to data
+我们必须对数据做出反应
+
+However, I think we can do it in a way that’s organized and not disruptive to markets
+但是，我认为我们可以以一种有组织且不会破坏市场的方式来做到这一点
+
+We’re only removing it
+我们只是删除它
+
+* * *
+
+Date:02/14/2022
+原视频标题:Bullard: numbers indicate inflation is broadening
+布拉德：数字表明通胀正在扩大
+原视频日期：2022/02/14
+原视频链接[**https://twitter.com/squawkcnbc/status/1493217938224078853?s=24**](https://twitter.com/squawkcnbc/status/1493217938224078853?s=24)
+任务编号：KE401（3750）
+视频时间段 : 0:00-0:28
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-文新
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

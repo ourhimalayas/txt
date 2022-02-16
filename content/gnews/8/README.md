@@ -2,57 +2,52 @@
 ---
 
 
-## 布拉德：数字表明通胀正在扩大
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2012724/)
+## 文·贵天成——文贵先生谈“蓝、金、黄”计划（八）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2012933/)
 
-[https://gtv.org/video/id=620c61f8b0af02660af423d2](https://gtv.org/video/id=620c61f8b0af02660af423d2)
+#### 整理：BENJ1
+编辑：小红帽
 
-Jim Bullard (the president and CEO of the Federal Reserve Bank of St. Louis)
-吉姆·布拉德 (圣路易斯联邦储备银行总裁兼首席执行官)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/fengmian0216-1.jpg)图片来源：雅典娜农场设计组（614）
 
-We’ve been surprised to the upside on inflation
-我们对通胀上行感到惊讶
 
-This is a lot of inflation in the US economy 7.5%
-美国经济中的通胀率高达7.5%，这是一个很大的问题
+**郭文贵先生2017年9月6日直播**
 
-on the headline CPI, these are numbers that Alan Greenspan never saw
-在头条的消费者价格指数，这些是艾伦·格林斯潘从未见过的数字
+别小看了共产党这个系统！共产党这个系统就是绞肉机！绞肉机！现在谁摁着就使劲绞！使劲绞，转的快一点儿？慢一点儿？着点儿！共产党最后把自己也得绞进去！因为他绞着绞着自己就老了！权力萎缩了！犯罪多了！战斗力不行了！新的来了就把它给绞进去！这就是整个的中国的官场的文化！没有真相！没有公平！没有真理！你看看我们整个海外的世界,被蓝金黄到什么程度？
 
-They haven’t occurred in 40 years
-已经有40年没有出现了
+**郭文贵先生2017年9月9日直播**
 
-So our credibility is on the line here
-所以我们的信誉就在这里很危险了
+美国的法律,还有美联社和中国的沟通,大家能看到蓝金黄。盗国贼自己恼火,蓝金黄也到了美联社,就在我们身边,而且你看到的张痔疮还有癞蛤蟆,李伟东那个畜生。李伟东简直是个畜生。他发出去的，光说坏话的那些语音就不能听了。天下还有这种坏蛋,这个癞蛤蟆。这个李伟东简直是个畜生。这个李伟东，在癞蛤蟆里，还有屎诺这种人,还有这个这个张痔疮,这些人都是蓝金黄者。我今天在这宣布，我们很快会采取一系列的法律措施,对癞蛤蟆里的这些人–张痔疮，夏痔疮,还有美联社,我们早在几周前就有了计划。等着到他们都出手，都出完手以后，我们再出手。现在基本上已经接近成熟了,就到过谁这招用得差不多了,我们也要开始了。我们也要开始对他们出手。这些人，所有的这些作为，都是蓝金黄的结果。
 
-And we do have to react to data
-我们必须对数据做出反应
+曹长青先生披露当中美联社和中国政府的蓝金黄的过程和沟通，胡说所谓的这个长篇的定义，那种完全是假的定义。美联社那个小中国华裔的那个男孩子,绝对是有大问题的。
 
-However, I think we can do it in a way that’s organized and not disruptive to markets
-但是，我认为我们可以以一种有组织且不会破坏市场的方式来做到这一点
+**郭文贵先生2017年9月10日直播**
 
-We’re only removing it
-我们只是删除它
+这是文贵的个性和我的做人方式,我全力以赴对付海内外的蓝金黄者,和沉默的力量。这是破坏中国走向民主法治的狗和打手！我们必须拨开所有盖在我们老百姓头上的尘土，那些虱子，那些肮脏的东西。
 
-* * *
+**郭文贵先生2017年9月10日直播**
 
-Date:02/14/2022
-原视频标题:Bullard: numbers indicate inflation is broadening
-布拉德：数字表明通胀正在扩大
-原视频日期：2022/02/14
-原视频链接[**https://twitter.com/squawkcnbc/status/1493217938224078853?s=24**](https://twitter.com/squawkcnbc/status/1493217938224078853?s=24)
-任务编号：KE401（3750）
-视频时间段 : 0:00-0:28
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-文新
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+孙立军培养了一批吴征这样的人在海外搞蓝金黄。而且在这所有的情报系统里边儿,特别是上海江浙一代的人,安全厅的特务们,所有的人都被他控制着。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+资料来源：郭先生GTV和盖特直播视频
+
+往期回顾：
+[文·贵天成——文贵先生谈“蓝、金、黄”计划（一）](https://gnews.org/zh-hans/2008275/)
+[文·贵天成——文贵先生谈“蓝、金、黄”计划（二）](https://gnews.org/zh-hans/2008300/)
+[文·贵天成——文贵先生谈“蓝、金、黄”计划（三）](https://gnews.org/zh-hans/2008496/)
+[文•贵天成——文贵先生谈“蓝、金、黄”计划（四）](https://gnews.org/zh-hans/2008314/)
+[文•贵天成——文贵先生谈“蓝、金、黄”计划（五）](https://gnews.org/zh-hans/2008332/)
+[文•贵天成——文贵先生谈“蓝、金、黄”计划（六）](https://gnews.org/zh-hans/2008361/)
+[文•贵天成——文贵先生谈“蓝、金、黄”计划（七）](https://gnews.org/zh-hans/2008344/)
+
+发布：Frank2021
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,10 +2,10 @@
 ---
 
 
-## NBA为取悦中共解雇球员埃内斯·坎特
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2011759/)
+## 严歌苓怒斥“习近平就是人口贩子” 遭全网封杀
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2011763/)
 
-作者：日本方舟农场—Miyale7768(文玉)
+作者：纽约香草山—侠肝义胆
 
 
 
@@ -13,17 +13,20 @@
 
 
 
-外媒11日报道，NBA为取悦中共，最近突然解雇了球员埃内斯·坎特。 坎特曾多次在推特上，抨击中共在新疆、西藏、香港问题上严重践踏人权的暴行。这些批评言论顯然让NBA在面對中共時感到害怕，因为他们在和中共的合作中，通過中共血腥压迫人民，赚取了每年数百万美元的利润。
+徐州八孩铁链女事件引发外界关注中国人口拐卖问题，尽管中共已经释出多方面信息以平息民愤，但事件还是不断在网上发酵。
 
-對此，埃内斯·坎特在接受媒体采访时说：“我不在乎我是否被禁止或者被罚款，我是一名篮球运动员，但我认为我所做的事情比篮球更重要。明確自己是在为无辜的人做正確的事情，总是会额外為自己帶來更多的希望和动力。”
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-8.jpg)
+2月6日，国际知名华裔女作家严歌苓在公众微信号，“中国当代诗歌”上发表文章《母亲啊母亲》，表达了自己对”铁链女“事件的强烈愤怒。日前，她在出席一档网路节目中，怒斥“习近平就是人口贩子”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide10-7.jpg)
+严歌苓向來擅长从女性视角，对不同时代的社会现象进行观察，她参与的作品《天浴》、《少女小渔》、《陆犯焉识》、《第九个寡妇》、《芳华》、《金陵十三钗》等叫好又叫座，深受大众喜爱。
+
+不过，自从严歌苓的批评言论被爆光后，目前，中共控制下的新浪微博、百度百科、搜狗百科上已将“严歌苓”三个字全面封禁。有分析人士预计，接下来，严歌苓的作品也很有可能会在中国绝迹。
+
 参考链接：
-[NBA Wants No Part of Freedom: China Critic Bounced Out of the League](https://newsbusters.org/blogs/culture/jay-maxson/2022/02/11/nba-wants-no-part-freedom-china-critic-bounced-out-league)
+[Weibo censored a famous novelist who voiced her anger over China’s inhumanity to women](https://qz.com/2127169/censors-delete-geling-yans-wechat-essay-on-chained-woman-in-china/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
 
-总编：天滅中共
-编辑：飞虹
+总编/编辑：天滅中共
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**

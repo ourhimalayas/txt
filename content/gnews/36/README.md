@@ -2,41 +2,51 @@
 ---
 
 
-## 中日财经爆|美国SEC正在调查币安与赵长鹏的两家关联公司
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2011834/)
+## 美国表示：中国对俄罗斯的支持“正在敲响警钟”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2011858/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片4-2.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fstatic.cnbetacdn.com%2Fthumb%2Farticle%2F2021%2F0628%2F408e62577d0dfcf.jpg&amp;imgrefurl=https%3A%2F%2Fwww.cnbeta.com%2Farticles%2Ftech%2F1180689.htm&amp;tbnid=GLZXq25fTe9trM&amp;vet=12ahUKEwj06devn4P2AhWCD94KHSrGDnoQMygDegUIARC2AQ..i&amp;docid=KFQ3epJ7mSIVdM&amp;w=700&amp;h=394&amp;q=%E5%B8%81%E5%AE%89&amp;ved=2ahUKEwj06devn4P2AhWCD94KHSrGDnoQMygDegUIARC2AQ)
-知情人士透露，美国证券交易委员(SEC)会正在调查全球最大加密货币交易所币安（Binance）的美国分部和与币安创始人赵长鹏有关联的两家交易公司之间的关系。
+**翻译：文扬**
+**编辑：Candy**
 
-据报，两家交易公司SigmaChainAG和MeritPeakLtd担任在币安美国分部（Binance.US）交易所交易加密货币的做市商。知情人士表示，监管机构关注的一个领域是Binance.US如何向客户披露其与这些交易公司的联系。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/五角大楼.png)
 
-报道指，SEC要求币安的美国关联公司Binance.US提供有关上述两家实体的资讯。知情人士透露，Binance.US目前正遭遇执法调查。
+图片来源：rt网
+**莫斯科此前曾表示，在与西方的僵局中，它指望北京。**
 
-虽然关于MeritPeak的信息很少公开，但SigmaChainAG位于瑞士楚格，吸引了以太坊基金会和Tezos等加密公司和组织。公司备案文件显示，赵长鹏担任总裁至2019年XNUMX月。现任总裁为陈光英。在一些币安公司文件上列出作为执行董事。这Blog消息人士称，截至去年，赵仍然有效地控制着SigmaChain和MeritPeak。
+五角大楼警告说，在俄罗斯和乌克兰边境对峙数周之际，华盛顿对中国在欧洲大陆安全问题上的举动越来越关注，因为中国站在莫斯科一边。
 
-两家公司都是币安美国分部（Binance.US）的做市商，这意味着他们利用自己的资产进行交易。加密货币交易所的好坏取决于其流动性。如果您想以现行价格购买10,000美元的以太坊，您需要有人能够将其出售给您。做市商为交易所带来流动性，买卖资产并在每笔交易中获利，有点像赌场。
+周一，国防部发言人约翰·柯比（John Kirby）在简报会上，发表了他对北京和莫斯科的看法。他认为：在西方压力越来越大的情况下，双方的合作日益密切。
 
-SEC负责保护消费者并监督从事证券现货交易的交易所——购买这些金融资产的目的是希望从公司或核心团队的努力中获得利润。公司的股票是证券，美国证券交易委员会认为，一些加密货币也是如此。
+“我们当然一直在关注——至少是公开的——俄罗斯和中国之间迅速发展的关系，”本月早些时候，他在评论俄罗斯总统弗拉基米尔·普京和中国国家主席习近平、呼吁停止北约扩张的声明时说。
 
-主席加里·根斯勒(GaryGensler)的领导下，SEC认为该机构应该拥有更广泛的职权范围。根斯勒去年声称该机构应该监督稳定币，与法定货币挂钩的代币，是加密生态系统的命脉。
+柯比说：“他们2月4日的联合声明无疑提供了进一步的证据，表明中国已经决定在欧洲发生的事情上与俄罗斯站在一起。我们会说，他们对俄罗斯的默许，如果你愿意的话，是非常令人震惊的。”
 
-去年，币安的名字在美国政府机构中出现了很多。这是联合调查对象由司法部和国税局于2021年发布。
+科比认为，北京在高风险问题上对莫斯科的支持 “使欧洲的安全局势更加不稳定”。
 
-美国商品期货交易委员会（CFTC）也对它进行了调查，指控它使美国人太容易使用该平台。与其美国子公司不同，它还允许衍生品交易，这意味着人们可以推测资产的未来价格。它无权在美国境内提供这些交易。CFTC后来研究了该交易所潜在的内幕交易。
+几个月来，西方领导人反复警告说，俄罗斯可能很快就会下令入侵乌克兰，官员们发出了莫斯科可能在北京冬奥会期间发动攻击的警报。白宫国家安全顾问杰克·沙利文（Jake Sullivan）本月早些时候警告说，由于双方的经济关系，中国将 “最终承担俄罗斯入侵乌克兰的部分成本”。
 
-据SEC称，尽管美国证券交易委员会在2020年传唤该交易所，要求提供有关其如何与全球交易所互动的信息，但这家美国关联公司开展的调查较少。
+克里姆林宫一再否认它有任何攻击计划。周二，莫斯科国防部宣布，其军队已经结束了在靠近乌克兰的白俄罗斯的训练演习，并将开始撤军进程。
 
-消息来源:
+国防部首席发言人伊戈尔·科纳申科夫（Igor Konashenkov）少将表示，“随着部队完成军事演习，他们将一如既往地完成多式联运，返回永久基地。”
 
-[美國SEC據報正調查幣安美國分支的交易關聯公司](https://finance.mingpao.com/fin/instantf/20220216/1644976757025/%E7%BE%8E%E5%9C%8Bsec%E6%93%9A%E5%A0%B1%E6%AD%A3%E8%AA%BF%E6%9F%A5%E5%B9%A3%E5%AE%89%E7%BE%8E%E5%9C%8B%E5%88%86%E6%94%AF%E7%9A%84%E4%BA%A4%E6%98%93%E9%97%9C%E8%81%AF%E5%85%AC%E5%8F%B8)
+在指责俄罗斯武装部队可能发动袭击的情况下，莫斯科一直在寻求获得安全保障，以排除北约向其边境扩张的可能性。
 
-**[美国证券交易委员会正在调查与币安创始人有关的交易公司：报告](https://zh-cn.bitcoinethereumnews.com/technology/sec-is-investigating-trading-firms-linked-to-binance-founder-report/)**
+在习近平和普京12月的会谈后，俄罗斯领导人的外交政策顾问尤里·乌沙科夫（Yuri Ushakov）透露，中国国家主席支持莫斯科寻求保证。克里姆林宫助理透露：“他自然很清楚并理解主要问题：俄罗斯对其西部边界的担忧。”
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+莫斯科和北京强调了两国关系在贸易、能源、经济和国防等一系列领域的重要性，普京在 2 月初表示，两国关系已达到“前所未有的”水平。
 
+尽管有迹象表明俄罗斯和中国之间的合作不断加强，但一些分析人士暗示，与北约等其他集团相比，这种伙伴关系的发展程度较低。
+
+原文链接： [Chinese support for Russia ‘alarming’ – US — RT Russia & Former Soviet Union](https://www.rt.com/russia/549446-washington-china-support-alarm/)
+
+***发布：Candy***
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,30 +2,30 @@
 ---
 
 
-## 拜登释放数十亿美元阿富汗冻结资金用于救济9/11受害者
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2012580/)
+## 乌国防部和两家银行疑遭俄黑客攻击
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2012752/)
 
-据《美联社》记者：Aamer Madhani和Kathy Gannon报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1550.png)图片来源：美联社
-华盛顿（美联社）——总统乔·拜登周五签署命令，释放目前在美国冻结的70亿美元阿富汗资产。资金将分成两部分，一部分用于人道主义援助分配给贫困的阿富汗人，另一部分将用作9/11受害者的赔偿基金。9/11受害者仍在就这个造成数千人死亡并震惊世界的恐怖活动寻求救济。
+撰稿：东京樱花团/peterwong
 
-资金不会被立即释放。但拜登的命令要求银行将冻结金额中的35亿美元提供给一个信托基金，通过人道主义组织分配，以满足阿富汗的救济和基本需求。剩下的35亿美元将留在美国，以资助美国恐怖主义受害者的诉讼费用。这些受害者仍在通过法院进行诉讼。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/乌国防部和两家银行疑遭俄黑客攻击.png)[图片来源](https://gnews.org/wp-admin/post-new.php#imgrc=DSmqsOskTkUD-M&amp;imgdii=WrdfoMMwVY-SqM)
 
-8月，随着美军撤出，塔利班控制该国后，阿富汗的国际资金被暂停，该国数十亿美元在美国的海外资产被冻结。
+乌克兰国防部和两家银行的网络周二（2月15日）瘫痪，乌克兰的信息安全中心将矛头指向大军逼境俄罗斯。
 
-白宫在一份声明中表示，该命令旨在确保资金提供给阿富汗人民的途径，并同时使它们不会落入塔利班和恶意行为者的手中。
+隶属于文化部的乌克兰战略通信和信息安全中心在一份声明中称，“不排除侵略者因为其大规模的侵略计划不奏效，就使出这些肮脏的小伎俩。”
 
-文章来源：[**https://apnews.com/article/joe-biden-business-united-states-terrorism-b2743737c3286dbba95a7663615e37be**](https://apnews.com/article/joe-biden-business-united-states-terrorism-b2743737c3286dbba95a7663615e37be)
+基辅指责莫斯科在过去以及俄罗斯开始在俄乌边境附近集结超过10万兵力以来采取了类似的黑客行动。俄方的军事部署加剧了东西方的紧张关系，因为西方担心俄罗斯正计划攻击乌克兰。
 
-翻译：洛杉矶盘古农场 – WH
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – Grace
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+乌克兰当局周二报告的网络破坏类型被称为分散式阻断服务攻击–通常缩写为DDoS–但尚不清楚其规模。这种手段通过将来自多个来源的互联网流量引向一组服务器，在互联网上很常见，这种攻击在乌克兰和其他国家经常发生。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+美国和欧洲官员周二表示，美国及其盟友已经为俄罗斯在乌克兰紧张局势升级之际发动网络攻击做好了准备，报复行动或制裁的级别取决于黑客攻击的严重程度。
 
+消息来源:
+
+[（更正）乌克兰国防部和两家银行的网络遭到黑客攻击 乌方将矛头指向俄罗斯](https://cn.reuters.com/article/ukraine-defence-banks-hacking-attack-021-idCNKBS2KL04T?il=0)
+
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

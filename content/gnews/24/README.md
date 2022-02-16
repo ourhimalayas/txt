@@ -2,16 +2,20 @@
 ---
 
 
-## 樱花FM┃广西昨日新增本土确诊病例72例
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2012315/)
+## 樱花FM|日本政府将对冬奥参赛选手移动终端的信息安全采取坚定立场
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2012402/)
 
 音频：东京樱花团/战友520
-![](https://lh4.googleusercontent.com/eEMeAQH0RG6S8bnB0Bk7zW5yGXtstczBwM1zoPQXmDV283RXNwdzHnx6CMKQ_LrWuoBVid6Cp_pP6D67uyNTH_ry9xGSV0-AEzk49R6fu3Qf-eaQlzeo_C8k6v6gnMt6AsWfIIRh)
-据2月9日中共央视新闻报道，广西昨日新增本土确诊病例72例（其中2例由无症状感染者转确诊病例）。现有本土确诊病例180例，本土无症状感染者2例。当日新增密切接触者332人，解除医学观察密切接触者18人，现有密切接触者1129人。广西累计报告确诊病例903例，累计治愈出院625例，死亡2例，现在治确诊276例。
+![](https://lh5.googleusercontent.com/pz5ZOW3oA3ZicQlIYVookUZqIjp95jPmpbAHm0C-5igvNS44MAUl7ooQhB8zG9_M0AP8r4t0-L7kRBVwPCCKGd6GxWgDb8ZQOSCiTOKghxICojX8Q8vXla6PMXr3ApSYdcz8EHLc)
+为了所谓防范中共病毒，于2月4日开始的北京冬奥会主办方要求所有参赛运动员安装一个官方应用程序“My2022”，用来报告他们的身体状况。 然而，外国专家称该应用程序可能导致个人信息泄露，言论受到政治审查。
 
-中共国除了广西，广东、杭州、西安等地的疫情依然十分严峻，面对疫情，除了封城封小区就是强制打疫苗，墙内疫区的老百姓已经是苦不堪言，抵制疫苗，查明病毒真相，推翻中共的统治，才是拯救中国人乃至世界人民的唯一途径。
+日本奥林匹克委员会（JOC）通知运动员，最低限度使用该应用程序，并在回国的飞机上删除它们，或者尽可能在个人手机以外的设备上使用该应用程序。
 
-文字版原文：[广西昨日新增本土确诊病例72例](https://gnews.org/zh-hans/1979343/)
+日本体育局2月9日宣布，将对北京冬奥会归来的运动员的移动信息终端进行检查，如有必要将采取删除可疑应用程序等措施。
+
+日本将给参加于3月4日开幕的残奥会的选手配发临时终端设备。
+
+文字版原文：[日本政府将对冬奥参赛选手移动终端的信息安全采取坚定立场](https://gnews.org/zh-hans/1978855/)
 
 *编辑：东京樱花团/asket
 发布：东京樱花团/平安卿卿*
