@@ -2,22 +2,12 @@
 ---
 
 
-## 加拿大副总理兼财政部长：参与卡车示威民众的账户会被冻结，车保险会被暂停
-` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/2017012/)
+## 七哥金句：懂得爱，音乐及力量
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2017030/)
 
-#### 加拿大温哥华扬帆农场 视频组
-
-素材：文倩
-翻译：Kent
-字幕：路仁
-
-2022年2月14日，加拿大副总理兼财政部长方慧兰在新闻发布会中提到：
-
-这是为了追踪资金，是为了阻止对非法封锁的资助，我们今天发出通知，如果你的卡车被用于非法封锁活动，你的公司账户将被冻结，你的车辆保险将被暂停。
-
-把你的拖车开回家去，加拿大的经济需要以合法的工作来支持，而不应非法地让所有人都变的穷困。
-
-编辑/发文：Kent
+![](https://assets.gnews.org/wp-content/uploads/2022/02/竹叶-七哥金句-1-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/竹叶-七哥金句-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/竹叶-七哥金句12.10-1-2-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/竹叶-七哥金句12.10-2-2-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/竹叶-七哥金句1210-3-1.jpg)
+整理：雅典娜农场
+发布：枫叶红了
 
  
 

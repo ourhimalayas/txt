@@ -2,19 +2,22 @@
 ---
 
 
-## 天道酬勤，地道酬人
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2017063/)
+## 加拿大總理賈斯汀-特魯多援引《緊急狀態法案》
+` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/2017086/)
 
-#### 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王 视频定位：BENJ1，WEI
+#### 加拿大溫哥華揚帆農場 視頻組
 
-*发布：陶子*
+素材：文倩
+翻譯：Kent
+字幕：路仁
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+2022年2月14日加拿大總理特魯多在新聞發布會中說到：
+
+經過與內閣核心小組的討論，與所有省和地區負責人的協商，並與反對派領導人的交談後，聯邦政府將援引緊急狀態法，以補充省和地區處理自由車隊封鎖和占領的能（警）力。
+
+我要非常清楚的表達，這些措施的適用範圍將有時間限制、有地域針對性、也是合理和對應的。
+
+編輯/發文：kent
 
  
 

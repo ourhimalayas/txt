@@ -2,19 +2,12 @@
 ---
 
 
-## 共产党全世界没有法律没有规则
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2016967/)
+## 七哥金句：数字货币，躺平币，喜马拉雅，积累
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2016989/)
 
-#### 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王 视频定位：BENJ1，WEI
-
-*发布：陶子*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句-你的今天是你昨天积累的结果.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句-喜马拉雅是一个高度是一个我们的目标.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句-数字货币.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句躺平币.jpg)
+整理：雅典娜农场
+发布：枫叶红 了
 
  
 

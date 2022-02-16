@@ -2,8 +2,8 @@
 ---
 
 
-## 七哥个人破产，跟随七哥的本质是灭共不是为了钱
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2017025/)
+## 七哥个人破产，创造了喜币今天的辉煌
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2017055/)
 
 #### 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王 视频定位：BENJ1，WEI
 
