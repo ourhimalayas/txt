@@ -2,39 +2,26 @@
 ---
 
 
-## 美国海军工程师承认出售潜艇机密给外国政府
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2012493/)
+## 中共病毒感染后心血管疾病的风险增加
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2012513/)
 
-#### 整理/编辑：小红帽
+撰稿：东京樱花团/立正道
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Virginia_class_submarine.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/中共病毒感染后心血管疾病的风险增加.png)[图片来源](https://news.yahoo.co.jp/articles/4559c508abfad26cde290f3000a83079e125519f/images/000)
 
-图片来源：www.19fortyfive.com
+华盛顿大学一项研究指出，感染中共病毒（新冠病毒Covid-19）后会增加患心脏和血管疾病的风险，该研究发表在美国一家医学杂志上。
 
+7日，美国华盛顿大学利用2020年3月至2021年1月在一家退伍军人医院里，对感染中共病毒后存活30天以上的约15万人的数据发布了研究结果。
 
-根据RT新闻2月15日报道，一名前美国海军工程师周一承认，试图将有关美国核动力军舰的机密信息传递给他认为代表外国政府的人。
+无论是严重还是轻微者，感染后第一年患20种心脏和血管系统疾病的风险增加。 与感染前的数据相比，心脏病发作增加了63%，中风增加了52%，心力衰竭增加了72%。调查对象主要是退伍军人的白人男性，他宣称，“一般来说，数据虽然存在缺陷，但足以敲响警钟”。
 
-43岁的乔纳森·托比（Jonathan Toebbe）出现在西弗吉尼亚州马丁斯堡的联邦法院，他被指控犯有一项串谋传播限制性数据的罪名，可被判处12至17年监禁。
+信息来源：
 
-托比和他的妻子戴安娜于10月被拘留，此前当局称托比利用了自己获得机密信息的机会，并出售有关弗吉尼亚级潜艇的详细信息。作为一名工程师，托比之前曾在国防部持有最高机密的安全许可。
+[コロナ感染後 心臓や血管系の疾患リスクが上昇する可能性を指摘 ワシントン大学](https://news.yahoo.co.jp/articles/4559c508abfad26cde290f3000a83079e125519f)
 
-联邦调查局于2020年4月启动了一项卧底行动，以抓获托比。此前托比向外国政府寄了一包海军文件，美国当局从该未具名国家的法律专员办公室获得了这些文件。
-
-一名冒充外国代表的联邦调查局特工与托比取得联系，并转移了10万美元的加密货币以换取他的机密信息。
-
-当联邦调查局特工搜查托比一家在马里兰州的住所时，特工发现了装有碎文件、价值数千美元现金的袋子和一个装有USB闪存驱动器的“随身袋”。
-
-新闻链接： [US Navy engineer admits selling submarine secrets](https://www.rt.com/news/549423-us-navy-engineer-selling-secrets/)
-
-发布：wenly
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

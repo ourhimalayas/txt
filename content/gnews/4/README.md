@@ -2,90 +2,115 @@
 ---
 
 
-## 布达佩斯9区区长回应中共对匈牙利的警告
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2012612/)
+## 纽约时报大卫布·鲁克斯谈俄罗斯可能入侵乌克兰：“这将是自 1945 年以来欧洲大陆上最重大的军事行动”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2012659/)
 
-作者：香草山会员-simida
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2022年1月24日，匈牙利16个中共国组织共同写信给布达佩斯9区区长巴兰尼（Krisztina Baranyi），称他们代表匈牙利4万华人，要求巴兰尼区长更改相关街道名称。
+[https://gtv.org/video/id=620a12a7b0af02660af37dbe](https://gtv.org/video/id=620a12a7b0af02660af37dbe)
 
-有问题的街道名称是：
+Judy Woodruff (PBS NewsHour host)
+朱迪·伍德拉夫 (公共广播服务新闻小时主持人)
 
-- 光复香港道，
-- 维吾尔烈士路，
-- 达赖喇嘛之道，
-- 谢仕光主教路。
+Our colleague, Nick Schifrin reporting tonight
+我们的同事尼克·席弗林今晚报道
 
+that US officials are saying a Russian invasion of Ukraine could come at any time
+美国官员说俄罗斯可能随时入侵乌克兰
 
-去年6月2日，为抗议匈牙利政府同意上海复旦大学进驻该区，并凸显北京侵犯人权的行为，布达佩斯市长卡拉松尼（Gergely Karácsony）为新街名举行揭牌仪式，建议为街道改名的第9区区长巴兰尼一同出席。
+And you were telling us that you’ve been talking to administration officials today yourself?
+你刚才告诉我们，你今天亲自与政府官员进行了交谈？
 
-这16个组织主要以贸易组织为主，他们在信中警告说，中共国将街道更名一事视为干涉其内政，因此担心“匈牙利和中国的经济关系会朝着错误的方向发展”。
+David Brooks (NYT columnist)
+大卫·布鲁克斯（纽约时报专栏作家）
 
-巴兰尼区长于2月13日在Facebook上分享了这封信，并针对被迫移民的代表所有被压迫的藏传佛教徒的达赖喇嘛，最近被大规模拘禁的维吾尔族烈士，日益戏剧化的香港人自由，以及为宗教自由而斗争的象征性人物，天主教徒谢仕光主教做出回应，称“所有这些街道的更名都表达了对受迫害者的声援，同时支持普世人权。”基本上表明了更名街道的名称不会更改。
+Yeah, I don’t think people is when I’m talking to people
+是的，当我与人交谈时
 
-中共残暴践踏人权，已经引起越来越多国家的关注。中共以经济利益相要挟，以为可以让各国对此默不作声，殊不知世界上正义人士占大多数。中共对他国街道命名横加干预，却倒打一耙说别国干涉了中共国内政，可谓狂妄至极。中共绑架全世界的华人，不仅墙内同胞被代表，海外华人也被中共操纵的海外机构所代表。
+And you know, in the course of my career
+你知道，在我的职业生涯中
 
-中共制造并释放病毒生物武器，并用疫苗对人类进行大屠杀。真相大白于天下之时，就是它毁灭之日。为了早日消灭中共这个世界上最邪恶的犯罪组织，同时避免各国人民把对中共的愤怒发泄在无辜的海外华人身上，引发排华灾难，我们爆料革命战友要更加大力传播关于中共病毒、疫苗，以及中共各种恶行的真相，发出我们中国人不等于中共的声音，做好充分准备，迎接中共灭亡那一刻的到来。
+I’ve been hundreds 1000s of briefings of this sort
+我已经接受了成百上千次此类简报
 
-注：谢仕光（1917年6月－2005年8月25日：圣名雅各伯），是天主教中国籍地下教会主教，但不获中国政府承认。曾任福宁教区主教（闽东教区主教）。
+I’m not sure I’ve ever been in as one is sobering as the one I was in today
+我不确定我是否曾经去过像今天这样清醒
 
-附：
-1匈牙利16个中共国组织的警告信函图片及谷歌翻译
+Over the last couple of weeks, there has been an accumulation of concern
+在过去的几周里，人们越来越担心
 
-2巴拉尼区长的脸书回应及谷歌翻译
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-16-上午2.12.04.png)
-亲爱的区长！4万多匈牙利华人社区衷心感谢匈牙利包容、关怀的合作，并代表第4万华人社区感谢你们所做的工作。布达佩斯的大部分华人社区都在您所在的地区生活和工作，所有这些在共存、工作和承诺方面都非常重要，这样我们才能与首都和地区的领导建立良好的关系。我们承认匈牙利的所有政治力量都希望在选举前的竞争中取得最好的结果，我们对此表示尊重和支持。然而，我们遗憾地发现，复旦大学的建设问题也被纳入了这场政治斗争。不幸的是，因为我们要满足东道国（匈牙利）的政治思想，但我们也必须满足中国大陆的期望。因此，当复旦大学周边的街道名称被更改为不符合祖国政治思想的方式时，我们感到很遗憾。众所周知，祖国对政治反应的反应可被视为干涉此类内政，我们越来越担心匈牙利与中国之间的经济关系将朝着错误的方向发展。我们华人社区对局势进行了广泛讨论，得出的结论是，与中国的合作恶化不应该符合任何政治势力的利益。我们希望继续成为较小社区和国家整个社区的有用、良好合作的成员，因此我们恭请区长重新考虑街道名称情况的利弊，并在可能的情况下修改对中国不利的更名。希望合作富有成果，我们期待各市镇作出清醒的、开创未来的决定。签署组织的领导人以及与之相关的华人社区的签名证实了我们的要求。感谢您的理解。
+and US government over the last several days, couple days that has accelerated
+和美国政府过去几天已经对事态升级了
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片-1-64.png)
+and they won’t, they can’t tell us
+他们不会，他们不能告诉我们
 
-亲爱的签字人，亲爱的中国朋友们！
+what exactly they’ve learned over the last several days
+他们在过去几天里到底知道了什么
 
-我感谢你们在1月24日的来信，要求“重新思考在复旦发展计划周围地区引起和发展的街道名称的利弊，并在可能的情况下修改冒犯中国的更名。”
+but it’s been something that has caused them alarm
+但这件事引起了他们的警觉
 
-我想向你保证，在宣布更名之前，我已经仔细考虑过重命名的后果，如果有的话，好处是微不足道的。
+And so there is now a possibility
+所以现在有一种可能性
 
-在9区，我们重新命名了与中国有关的极其重要的话题相关的四条街道。
+and I told you even a relatively high probability
+而且我告诉过你甚至是一个相对较高的可能性
 
-被迫移民的达赖喇嘛，代表了所有被压迫的藏传佛教徒、最近被大规模拘禁的维吾尔烈士、日益戏剧化的香港人自由，以及为宗教自由而斗争的标志性人物谢仕光主教。
+that we will see some sort of incursion into Ukraine
+我们会看到俄罗斯对乌克兰的某种入侵
 
-似乎所有公共空间的重新命名都表达了对受迫害者的声援，同时也支持普遍人权。
+And that would be the most significant military action on the European continent since 1945
+这将是自1945年以来欧洲大陆上最重大的军事行动
 
-所以，当然，除了你的权利。
+It would test the NATO alliance, and it would test the liberal order that existed in 1945
+它将考验北约联盟，它将考验1945年存在的自由秩序
 
-尽管总体上人类自由的理想，特别是公共空间新同名的故事，都产生了一个清晰且尽可能引人注目的立场，但您可以看到：
+I always assume that what Putin’s objective here was just to push NATO back a little
+我一直认为普京在这里的目的只是压制北约东扩
 
-如果没有复旦大学匈牙利中心的计划，这个行动可能不会发生。
+make sure in NATO promises never to include Ukraineas one of its members
+确保在北约承诺永远不会将乌克兰作为其成员之一
 
-我看到——这与所有调查中绝大多数匈牙利人的观点一致——用我们的钱进行复旦发展将严重损害居住在这里的人们的利益。
+never puts US troops or Western troops on Ukrainian soil
+永远不将美国军队或西方军队置于乌克兰领土上
 
-我们对9区的公共场所进行更名，并不是像你信中所说的那样干涉中国内政，而是为了维护我们自己的利益。
+But it’s quite possible to Putin’s objectives are much more ambitious
+但普京的目标很有可能更加雄心勃勃
 
-一是反对匈牙利国家的腐败领导人，二是因为中国的利益正在干涉我们的内政。
+to really disrupt NATO to take back Ukraine
+真正扰乱北约来夺回乌克兰
 
-我敦促你们共同努力建设一个世界、一个中国和一座方济各会的城市，在这个城市中，不需要为藏人、维吾尔人、香港人或中国天主教徒挺身而出，因为没有人迫害他们。
+which a lot of Russians think is always been part of Russia was stolen from Russia
+很多俄罗斯人认为它一直是俄罗斯的一部分，它被从俄罗斯窃取
 
-在那里，不是国家仇恨宣传，而是有意帮助包括您在内的移民。
+to create a buffer between in case there’s an incursion from the west
+以创建一个缓冲区，以防从西方入侵欧洲
 
-我们共同财富的命运由体面的领导人而不是腐败的小偷决定。
+And so it’s, it’s scary
+所以它是，它是可怕的
 
-请允许我借此机会按照农历祝您新年快乐！
+That’s, that’s all I can say
+这就是我所能说的
 
-参考链接：
-1）[A magyar–kínai gazdasági kapcsolatok romlására figyelmeztetnek a kínaiak a sértő utcanevek miatt](https://www.msn.com/hu-hu/hirek/other/a-magyar%e2%80%93k%c3%adnai-gazdas%c3%a1gi-kapcsolatok-roml%c3%a1s%c3%a1ra-figyelmeztetnek-a-k%c3%adnaiak-a-s%c3%a9rt%c5%91-utcanevek-miatt/ar-AATNkre?ocid=mailsignout&amp;li=BBOMZdz)
-2）[为抗议布达佩斯建复旦分校 校址四街命名「光复香港道」等疆港人地](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210603-%E4%B8%BA%E6%8A%97%E8%AE%AE%E5%B8%83%E8%BE%BE%E4%BD%A9%E6%96%AF%E5%BB%BA%E5%A4%8D%E6%97%A6%E5%88%86%E6%A0%A1-%E6%A0%A1%E5%9D%80%E5%9B%9B%E8%A1%97%E5%91%BD%E5%90%8D-%E5%85%89%E5%A4%8D%E9%A6%99%E6%B8%AF%E9%81%93-%E7%AD%89%E7%96%86%E6%B8%AF%E4%BA%BA%E5%9C%B0)
-3）[脸书信息链接](https://www.facebook.com/baranyikrisztinakepviselo/posts/479059446921759)
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+Date:02/12/2022
+原视频标题: NYT David Brooks on a possible Russian incursion of Ukraine: “That would be the most significant military action on the European continent since 1945”
+纽约时报大卫布·鲁克斯谈俄罗斯可能入侵乌克兰：“这将是自 1945 年以来欧洲大陆上最重大的军事行动”
+原视频日期：2022/02/11
+原视频链接**[https://twitter.com/newshour/status/1492298693164339200?s=24](https://twitter.com/newshour/status/1492298693164339200?s=24)**
+任务编号：LP002
+视频时间段 : 0:00-1:36
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-审核/编辑/发稿：呼吸的雾霾（文小呼吸）
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

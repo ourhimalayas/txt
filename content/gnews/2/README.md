@@ -2,114 +2,35 @@
 ---
 
 
-## 纽约时报大卫布·鲁克斯谈俄罗斯可能入侵乌克兰：“这将是自 1945 年以来欧洲大陆上最重大的军事行动”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2012659/)
+## 短视频：特鲁多政府抹黑大卡车运动为暴力行为
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2012671/)
 
-[https://gtv.org/video/id=620a12a7b0af02660af37dbe](https://gtv.org/video/id=620a12a7b0af02660af37dbe)
+翻译：俏如来
+校对：精靈藍
+视频字幕：qingjing（清净）
+编辑：文泓
 
-Judy Woodruff (PBS NewsHour host)
-朱迪·伍德拉夫 (公共广播服务新闻小时主持人)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/无标题-3.png)图片来源：视频截屏
 
-Our colleague, Nick Schifrin reporting tonight
-我们的同事尼克·席弗林今晚报道
 
-that US officials are saying a Russian invasion of Ukraine could come at any time
-美国官员说俄罗斯可能随时入侵乌克兰
+根据贾斯汀·特鲁多的说法，在渥太华市拥有汽油现在是一种犯罪行为。
 
-And you were telling us that you’ve been talking to administration officials today yourself?
-你刚才告诉我们，你今天亲自与政府官员进行了交谈？
+现在，需要明确的是，渥太华确实宣布进入紧急状态，因为卡车司机们“点燃了一座法院，开枪伤人或夷平了教堂”——这是黑命贵运动（Black Lives Matter，BLM）的那些人做了所有这些事情。但贾斯汀·特鲁多强烈支持 BLM运动。前几天他还重申支持BLM，这就是问题所在。我们将让渥太华市长解释为什么和平的卡车司机对加拿大构成迫在眉睫的危险？
 
-David Brooks (NYT columnist)
-大卫·布鲁克斯（纽约时报专栏作家）
+当你看到抗议变成某种有趣的嘉年华时，你会感到不安，那里有充气城堡、热水浴缸和桑拿房。对过去七天一直忍受卡车司机的各种恶行的市民来说是种极端侮辱，对卡车司机的做法表现出极大的麻木不仁。
 
-Yeah, I don’t think people is when I’m talking to people
-是的，当我与人交谈时
+卡车司机竟然为孩子们准备了充气城堡，没有孩子的渥太华市长咆哮着说：“让我们伤害、惩罚他们。”是的，女士们，先生们，在卡车司机的领地，孩子们在充气城堡玩耍上是一个黑暗的场景。当然，与此同时，孩子的父母会向政府展示那些负责让孩子在充气城堡上玩耍的人是在犯罪。请观看一位“白人至上主义者”的抗议，解释他抗议的动机。
 
-And you know, in the course of my career
-你知道，在我的职业生涯中
+你当时在哪里呢？你根本不在那里。但是现在，你冒着严寒出来反对我的基本人权和自由吗？我不会接受你这种做法，我并不孤单，站在旁边的就是我的兄弟。这是我的兄弟，就在这里。你们都没有权利告诉我应该与谁交往，不与谁交往。因为你没有站出来表达你对贾斯汀·特鲁多因为我的医疗决定而禁止我离开这个国家的做法的担忧，只是因为我做了一个他不喜欢的决定他就不允许我离境。
 
-I’ve been hundreds 1000s of briefings of this sort
-我已经接受了成百上千次此类简报
-
-I’m not sure I’ve ever been in as one is sobering as the one I was in today
-我不确定我是否曾经去过像今天这样清醒
-
-Over the last couple of weeks, there has been an accumulation of concern
-在过去的几周里，人们越来越担心
-
-and US government over the last several days, couple days that has accelerated
-和美国政府过去几天已经对事态升级了
-
-and they won’t, they can’t tell us
-他们不会，他们不能告诉我们
-
-what exactly they’ve learned over the last several days
-他们在过去几天里到底知道了什么
-
-but it’s been something that has caused them alarm
-但这件事引起了他们的警觉
-
-And so there is now a possibility
-所以现在有一种可能性
-
-and I told you even a relatively high probability
-而且我告诉过你甚至是一个相对较高的可能性
-
-that we will see some sort of incursion into Ukraine
-我们会看到俄罗斯对乌克兰的某种入侵
-
-And that would be the most significant military action on the European continent since 1945
-这将是自1945年以来欧洲大陆上最重大的军事行动
-
-It would test the NATO alliance, and it would test the liberal order that existed in 1945
-它将考验北约联盟，它将考验1945年存在的自由秩序
-
-I always assume that what Putin’s objective here was just to push NATO back a little
-我一直认为普京在这里的目的只是压制北约东扩
-
-make sure in NATO promises never to include Ukraineas one of its members
-确保在北约承诺永远不会将乌克兰作为其成员之一
-
-never puts US troops or Western troops on Ukrainian soil
-永远不将美国军队或西方军队置于乌克兰领土上
-
-But it’s quite possible to Putin’s objectives are much more ambitious
-但普京的目标很有可能更加雄心勃勃
-
-to really disrupt NATO to take back Ukraine
-真正扰乱北约来夺回乌克兰
-
-which a lot of Russians think is always been part of Russia was stolen from Russia
-很多俄罗斯人认为它一直是俄罗斯的一部分，它被从俄罗斯窃取
-
-to create a buffer between in case there’s an incursion from the west
-以创建一个缓冲区，以防从西方入侵欧洲
-
-And so it’s, it’s scary
-所以它是，它是可怕的
-
-That’s, that’s all I can say
-这就是我所能说的
-
-* * *
-
-Date:02/12/2022
-原视频标题: NYT David Brooks on a possible Russian incursion of Ukraine: “That would be the most significant military action on the European continent since 1945”
-纽约时报大卫布·鲁克斯谈俄罗斯可能入侵乌克兰：“这将是自 1945 年以来欧洲大陆上最重大的军事行动”
-原视频日期：2022/02/11
-原视频链接**[https://twitter.com/newshour/status/1492298693164339200?s=24](https://twitter.com/newshour/status/1492298693164339200?s=24)**
-任务编号：LP002
-视频时间段 : 0:00-1:36
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+视频链接：[Wittgenstein 在 Twitter: “Tucker Carlson on how Canadian liberals want to intimidate the truckers https://t.co/Mt9Q4ccFCc” / Twitter](https://twitter.com/backtolife_2022/status/1491163995877027844?t=0ntydQ3gOH-bxoV5k-VL3A&amp;s=19)
+发布：文泓
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

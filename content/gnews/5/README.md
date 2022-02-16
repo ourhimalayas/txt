@@ -2,149 +2,41 @@
 ---
 
 
-## 普京取消人民币作为俄罗斯第二法币的合同的两个原因
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2012608/)
+## 锁链女再落虎口 央视探访引疑虑
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2012624/)
 
-[https://gtv.org/video/id=620b01a9b0af02660af3c397](https://gtv.org/video/id=620b01a9b0af02660af3c397)
+**撰稿：日本东京方舟农场 北极**
 
-**郭文贵
-Miles Guo**
+近期，徐州丰县锁链女事件持续引发海内外舆论关注，而中共央视最新流出的精神病院探访锁链女视频，再度引起舆论质疑。
 
-你想想
-If you think about it
+虎年伊始，网上流传的一段视频显示，在徐州丰县，一名年龄至多40岁的农村妇女（锁链女）在天寒地冻时节身着单衣，被所谓“丈夫”董志民用铁链栓在破屋内囚禁，24年间先后生养了八个小孩。影片曝光后引发舆论震惊，不少网友爆料当地拐卖妇女的黑幕，并直指基层政府充当这种罪恶的保护伞。
 
-普京是说好的，要呆超过从48小时到56个小时，甚至到60个小时
-Putin had said that he would stay longer than 48 hours to 56 hours, even to 60 hours
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片-1-63.png)中共央视近日推出「丰县生育八孩女子」事件的最新影片，再度引起舆论质疑。（图片来自大纪元）
 
-而且要第一个重大宣布
-And he would be the first one to make a major announcement
+在舆论压力下，徐州当局先后发布了四次前后矛盾的通报—
 
-俄罗斯开始把中共人民币作为俄罗斯的法币、第二货币流通
-Russia would have begun to circulate the Chinese RMB as Russia’s Fiat currency and the secondary currency
+首次通报称，锁链女与丰县欢口镇董志民领证结婚，不存在拐卖行为；
 
-来抵挡美国的所谓的制裁
-to resist the so-called sanctions of the United States
+第二次通报补充称，锁链女当时在该地区流浪，被董志民的父亲董某更（已故）收留，不存在拐卖行为；
 
-而且俄罗斯知道美国一定会经济制裁
-Moreover, Russia knew that the United States would definitely impose economic sanctions (on China)
+第三次通报补充了锁链女所谓“姓名及籍贯”，声称是来自云南福贡县亚谷村的“小花梅”，同村的桑某某将其带至江苏治疗精神疾病，结果两人到达江苏省东海县后“小花梅”走失，仍否认涉嫌拐卖行为；
 
-这么大事没签
-However, he didn’t sign for such a big deal
+第四次通告则草草将案件定性为董志民涉嫌“非法拘禁”罪，并未涉及是否犯有强奸罪和虐待罪，桑某某被定为犯“拐卖妇女”罪，并再次强调锁链女经所谓“DNA鉴定”为“云南小花梅”。
 
-直到昨天习才知道有人在楼里死了
-Xi Jinping didn’t know that individuals died in the building that Putin stayed until yesterday
+2月10日，央视报道了徐州丰县锁链女案件，再度引发舆论质疑。据央视播放的视频显示，锁链女被送到精神病医院，一名男医生与锁链女对话时，清楚地听到她喊道：“放我走！”
 
-但是不是普京的人，肯定跟普京有关系的
-These individuals are not Putin’s people but certainly related to Putin
+令舆论关注的是，央视记者进入病房后，镜头首先聚焦在病人的床头卡上，在年龄的位置显示为“52岁”，入院诊断为“偏执型精神分裂症”。
 
-那另外一个就是，这十来个人都是普京身边染上的
-The other thing is that ten individuals around Putin were infected (by the CCP virus)
+对此有网民提出质疑并发出警告称“精神病院是人权迫害的新武器”。该网民解释道，“精神病医院入院门槛低，不需要走法律程序， 一个副县长甚至一个派出所长就可以把人送进精神病院，完全剥夺人权，亲人不可探视，没有法律咨询，没有律师，没有适用法律，完全是法外之地。由于没有发言权，也不能正常申诉，你被诊断为疯子，所说的都是疯话。”
 
-普京恼火呀
-Putin was annoyed
+还有网民指出，在锁链女被解救时，视频里能清楚的听见她带着明显的四川口音说：“这个世界不要俺！这一窝都不是东西！全家都是强奸犯！放我出去！”这名网友问道，“该女子思维清晰，口齿比较清晰，完全可能说出自己的名字和经历，为什么不问问她？”
 
-俄罗斯的要求是绝对独立的保护和医疗措施进入到北京
-Russia’s request was absolutely independent protection and medical measures after arrived Beijing
+参考链接：
+[https://www.epochtimes.com/b5/22/2/11/n13571237.htm](https://www.epochtimes.com/b5/22/2/11/n13571237.htm)
 
-普京很害怕这个病毒, 最后给染上以后他恼火了
-Putin was very afraid of this virus and he was annoyed when his people got infected afterward
-
-更重要的事情
-More importantly
-
-中国人民币在俄罗斯关于汇率兑价
-the exchange rate of Chinese yuan in Russia
-
-中方曾经承诺，任何情况下俄罗斯停止使用人民币的时候
-China had promised that in any case when Russia stops using the yuan
-
-中方将按照黄金计算本位
-China will calculate the standard according to gold
-
-如果你的币没了、零了，你得给我黄金，
-It means that if your Fiat currency are gone or zero out, you have to pay me with gold
-
-叫黄金本位下的最后保底的价值
-This is called the final guaranteed value under the gold standard
-
-俄罗斯说你应该按照什么3个月和12个月、26个月之间的黄金差率兑换给我黄金
-Russia said that you should pay me gold with the gold exchange rate at the difference between 3 months, 12 months, and 26 months
-
-你（人民币）变成纸没事儿，你得给我黄金
-It would be okay that your (RMB) becomes paper as long as you pay me with the gold
-
-中共国不干
-The CCP China refused to accept
-
-普京说我来之前你干，我来了你就不干了？
-Putin said that you accepted it before I came, but refused when I came?
-
-这就是你们中国共产党
-That would be you, the Chinese Communist Party
-
-要不然你们老百姓不相信你呀？
-Otherwise, would your ordinary people not believe you?
-
-谁会相信你呀？
-Who would trust you?
-
-谁跟你打交道？
-Who would dealing with you?
-
-所谓的习骨子里边儿的恨西方白人世界
-The so-called deep-seated hatred that Xi Jinping has with the white people in the Western world are
-
-让你们运动员都死在这才好呢
-it would be great that letting the western athletes die there
-
-让你们吃屎，拉尿、喝尿，我让你们参加这冬奥会
-and letting them have the inhuman experiences while they participate the Winter Olympic
-
-所有共产党对西方的这种憎恨、习太阳对西方的憎恨，全部表露无遗。
-All these hatred that the CCP and Xi Jinping have for the West have been nakedly revealed
-
-普京连一秒钟都不想在北京呆
-Putin didn’t want to stay in Beijing for even one second
-
-就像我告诉的他的女朋友一样
-(The situation) just like what I said about his girlfriend
-
-每次来北京跟习见面
-Every time she goes to Beijing to meet with Xi Jinping
-
-私人飞机落到北京机场
-The private plane will land at Beijing airport
-
-见完习马上走就到自己的房间
-She goes straight to Xi and leave to her room immediately after
-
-就吃点东西就是路上吃点东西，飞机上吃的东西
-As far as eating, she would eat something while traveling on the road or on the plane
-
-全是俄罗斯带来的
-and everything are brought from Russia
-
-* * *
-
-Date: 02/09/2022
-原视频标题:
-普京取消人民币作为俄罗斯第二法币的合同，原因有二：第一，参加中共冬奥会的普京团队当中，十几个人感染中共病毒，所在酒店数人身亡，让普京很恼火；第二，中共没能信守人民币按金本位计算的承诺
-Putin canceled the contract for the RMB as Russia’s second legal currency for two reasons: first, among the Putin team participating in the CCP Winter Olympics, more than a dozen people were infected with the CCP virus, and several people died in the hotel, which made Putin very angry; second, the CCP Failed to keep its promise to run the RMB on the gold standard
-
-原视频日期：2022/02/06
-原视频链接: [**https://gettr.com/post/ptfedib84d**](https://gettr.com/post/ptfedib84d)
-任务编号：KC454（3713）
-视频时间段 : 0:00-02:18
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译：洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-文新
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+素材采编：北极
+编辑： 青城道姑
+发布：文曦
 
  
 

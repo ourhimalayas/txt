@@ -2,31 +2,38 @@
 ---
 
 
-## 中共间谍单伟建将美国养老基金出售给中共
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2012473/)
+## 美国海军工程师承认出售潜艇机密给外国政府
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2012493/)
 
-据《PRfree》记者：asstralsoul，2022年2月14日报道
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1544.png)
-是时候揭露超过4000亿美元的美国公共养老基金由于中共间谍单伟建的欺诈活动而永远消失了。
+#### 整理/编辑：小红帽
 
-2022年2月13日（美国）：美国一些最重要的养老基金投资了海康威视，海康威视是世界上最大的视频监控系统的供应商，据称帮助极权主义的北京政权迫害中国西部的新疆穆斯林人口。美国养老基金间接支持了中共大规模任意拘押新疆人。你知道谁负责把美国的养老基金卖给共产主义中国吗？中共高级间谍、太平洋联盟集团（PAG）董事长兼首席执行官单伟建将美国人民的毕生积蓄卖给了共产主义中国。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Virginia_class_submarine.jpg)
 
-美国政府和立法者应该调查中共头号间谍单伟建及其太平洋联盟集团，针对数千万美国人，将美国人的退休基金投入中共控制的公司的犯罪活动。美国是民主、自由和人权的模范国家。尽管如此，美国的养老基金仍被用于在关押超过100万维吾尔人的新疆拘留营中安装监控摄像头。
+图片来源：www.19fortyfive.com
 
-单伟建和他的Pacifica Alliance Group（PAG）使用欺诈性市场报告和虚假财务数据，来引诱美国投资组合投资者，在没有披露国家安全、洗钱和人权尽职调查的情况下，对CCP相关基金进行索引。例如，佛罗里达州和纽约州的养老基金、CalSTRS 和CalPERS拥有科大讯飞数百万股。这家由中共控制的语音识别公司协助共产党独裁者监控14亿中国人的日常通信。CalPERS已向CCP公司投资31亿美元。CalPERS的首席投资官孟玉本先生是通过由单伟建及其太平洋联盟集团（PAG）发起并推动的中共“千人计划”聘用的。
 
-前国务卿迈克·蓬佩奥（Mike Pompeo）在2020年警告美国人：“加州的投资基金投资于为中共人民解放军（PLA）提供物资的公司，这些公司将美国士兵、水手、空军和海军陆战队置于高风险之中。” 为什么爱好和平的美国人允许他们的退休金资助共产党公司来破坏香港的民主和自由以及新疆的种族灭绝？是时候追究单伟建造成美国养老基金损失超过4000亿美元的责任了！美国人民将如何弥补损失？
+根据RT新闻2月15日报道，一名前美国海军工程师周一承认，试图将有关美国核动力军舰的机密信息传递给他认为代表外国政府的人。
 
-文章来源：[**https://www.prfree.org/news-the-chairman-ceo-of-pacific-alliance-group-pag-ccps-spy-weijian-shan-sold-us-pensions-funds-to-communist-china-1058216.html**](https://www.prfree.org/news-the-chairman-ceo-of-pacific-alliance-group-pag-ccps-spy-weijian-shan-sold-us-pensions-funds-to-communist-china-1058216.html)
+43岁的乔纳森·托比（Jonathan Toebbe）出现在西弗吉尼亚州马丁斯堡的联邦法院，他被指控犯有一项串谋传播限制性数据的罪名，可被判处12至17年监禁。
 
-翻译：洛杉矶盘古农场 – Raul
-校对：洛杉矶盘古农场– Mike Li
-编辑：洛杉矶盘古农场 – 柯镇恶
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+托比和他的妻子戴安娜于10月被拘留，此前当局称托比利用了自己获得机密信息的机会，并出售有关弗吉尼亚级潜艇的详细信息。作为一名工程师，托比之前曾在国防部持有最高机密的安全许可。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+联邦调查局于2020年4月启动了一项卧底行动，以抓获托比。此前托比向外国政府寄了一包海军文件，美国当局从该未具名国家的法律专员办公室获得了这些文件。
+
+一名冒充外国代表的联邦调查局特工与托比取得联系，并转移了10万美元的加密货币以换取他的机密信息。
+
+当联邦调查局特工搜查托比一家在马里兰州的住所时，特工发现了装有碎文件、价值数千美元现金的袋子和一个装有USB闪存驱动器的“随身袋”。
+
+新闻链接： [US Navy engineer admits selling submarine secrets](https://www.rt.com/news/549423-us-navy-engineer-selling-secrets/)
+
+发布：wenly
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
