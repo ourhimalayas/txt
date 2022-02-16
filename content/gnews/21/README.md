@@ -2,25 +2,18 @@
 ---
 
 
-## 有声|喜系列财富之门
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2015591/)
+## 有声|香港因疫情延长对八个国家的航班的禁令
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2015620/)
 
 配音：香草山巡管部– 文凯琳
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
-曾经是为生活奔波忙碌的人
-选择正义就打开了财富的大门
-推开喜联储的大门
-前途一片光明
-喜悦伴随着音乐翩翩起舞
-浪漫是因为有币在手
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据外媒2月11日报道，出于对日益严重的中共病毒疫情的担忧，香港政府当天延长了对美国、英国、澳大利亚、加拿大、法国、印度、巴基斯坦和菲律宾八个国家的入境航班的禁令。
 
-Miles郭创立的喜系列
-横空出世
-11月1日喜币吉祥降临
-一币飞跃在乱世犹如浩海
-巨星 一枝独秀风光无限好
+在对上述八个国家延长禁令的同时，香港政府还将禁令扩展到了尼泊尔，
 
-文字版原文：[喜系列财富之门](https://gnews.org/zh-hans/2009758/)
+目前飞往香港的航班减少了90%，几乎没有航班被允许过境。
+
+文字原文：[香港因疫情延长对八个国家的航班的禁令](https://gnews.org/zh-hans/2010682/)
 
 音频处理/发稿：Daxia
 
