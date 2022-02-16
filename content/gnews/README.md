@@ -15,53 +15,53 @@
 
 ---
 
-### [文·贵天成——文贵先生谈“蓝、金、黄”计划（九）](/content/gnews/1/README.md)
+### [中日财经爆┃油价上涨 日本着手第二波释放油储](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [侵犯用户隐私 脸书被罚9000万美元](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [文·贵天成——文贵先生谈“蓝、金、黄”计划（九）](/content/gnews/3/README.md)
  ` 墨尔本雅典娜农场`
 
-### [Covid 对养老金的影响：节省了 11 亿欧元](/content/gnews/2/README.md)
+### [Covid 对养老金的影响：节省了 11 亿欧元](/content/gnews/4/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [郭文贵先生独创热词分析](/content/gnews/3/README.md)
+### [郭文贵先生独创热词分析](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2022年2月16日澳洲股市快讯](/content/gnews/4/README.md)
+### [2022年2月16日澳洲股市快讯](/content/gnews/6/README.md)
  ` 澳喜农场`
 
-### [德约科维奇：为了不接种疫苗，我准备放弃温网](/content/gnews/5/README.md)
+### [德约科维奇：为了不接种疫苗，我准备放弃温网](/content/gnews/7/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [秘翻新闻｜网络爆料中共极端“清零”防疫的暴利黑幕](/content/gnews/6/README.md)
+### [前联合国大师抨击谷爱凌：代表自由还是人权侵犯](/content/gnews/8/README.md)
+ ` 澳喜农场`
+
+### [秘翻新闻｜网络爆料中共极端“清零”防疫的暴利黑幕](/content/gnews/9/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [SEC调查币安美国分部及其做市商的关系](/content/gnews/7/README.md)
+### [SEC调查币安美国分部及其做市商的关系](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [文·贵天成——文贵先生谈“蓝、金、黄”计划（八）](/content/gnews/8/README.md)
+### [文·贵天成——文贵先生谈“蓝、金、黄”计划（八）](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [威斯康星州通过三项法案 防止中共间谍渗透州内大学](/content/gnews/9/README.md)
+### [威斯康星州通过三项法案 防止中共间谍渗透州内大学](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共大搞航天军备  今年发射将超50次](/content/gnews/10/README.md)
+### [中共大搞航天军备  今年发射将超50次](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [1月份物价较上年涨7.5%，创40年来最快通胀增速](/content/gnews/11/README.md)
+### [1月份物价较上年涨7.5%，创40年来最快通胀增速](/content/gnews/14/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中日财经爆|澳洲葡萄酒商或用NFT化解中共贸易报复](/content/gnews/12/README.md)
+### [中日财经爆|澳洲葡萄酒商或用NFT化解中共贸易报复](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [太平联盟无太平](/content/gnews/13/README.md)
+### [太平联盟无太平](/content/gnews/16/README.md)
  ` 骄子`
-
-### [只要合法，未来的数字加密支付系统会让黑警无法敲诈你，让上帝都找不着你的钱](/content/gnews/14/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [中日财经爆|失之东隅收之桑榆 澳洲红酒畅销东南亚](/content/gnews/15/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [乌国防部和两家银行疑遭俄黑客攻击](/content/gnews/16/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [布拉德：数字表明通胀正在扩大](/content/gnews/17/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
