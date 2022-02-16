@@ -2,31 +2,33 @@
 ---
 
 
-## Hpay支付打赏你的精彩 -挖矿就业在盖特
-` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2016250/)
+## Hcoin To the Moon上线76天第27次位列新加坡iTunes摇滚音乐榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2016251/)
 
-原创作者: 知即是心 写于壬寅元宵 
-供稿：G币西莲
-编辑发稿：am夏天
-喜马拉雅纽伦堡正义农场
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-14-at-20.24.10-2.png)
-你的贡献，你的精彩应该得到打赏，Hpay支付已经破空而生改变世界！
-Hpay支付是什么？是喜币，喜美元的支付系统，喜币（HCN)是加密数字货币，基于最新一代的区块链技术，喜美元(HDO)可以理解为电子美元，方便支付，与美元1:1兑换提现。
-你向喜马拉雅交易所汇入美元，立即1:1转换成喜美元，从此可以自由支付全球购物，秒到帐，零费用！！！我的钱我做主，再不需要恶心地说明财富来源，提交支付理由。银行，你的垄断独裁见鬼去吧，Hpay支付正在迅速改变世界金融格局！
-喜美元可购买喜币，喜币2021年11月1日0.1美元在喜马拉雅交易所上市，现在50美元左右等你，三个月涨500倍！喜币每年发行10亿个，发行一百年，百分之二十黄金锚定，现在市值五万亿美元，远超比特币，以太坊市值，已是币圈绝对第一市值巨无霸，是无中心化自由流通的世界货币，安全，自主，价值无限！币去物来点对点，返本归真，再无须银行中介，再不被盘剥抽血，再不受独裁政府霸凌压迫，终于自由了！
-你的价值，你的精彩在盖特绽放，必将得到Hpay打赏，点对点不打折打赏秒到帐，真金白银的喜美元，可以买米加油，买豪车飞机，买任何东西，购遍全球，秒到，零费用！！！
-有脚指头的都想得明白Hpay支付的巨大价值和机会，土豪钱多可以避险，逾期黑户可以翻身…有钱出钱，有力出力，在盖特都可获得财富。现在是：人少、钱多、快来！卖艺出力的有打赏，看热闹点赞转发也有贡献也奖励躺平币，这是注意力经济时代，新一代社交平台是所有会员共建而起，随贡献大小都予利益分配，多劳多得。
-Gettr ,Gnews,G-TV都是你绽放光彩，为正义发声，嬴得荣耀与财富的平台！
+2/16/2022 郭文贵先生的歌曲Hcoin To the Moon上线76天第27次位列新加坡iTunes摇滚音乐榜首
 
-欲从山前过，须问过来人，如何注册赚得喜币，参考下列文章。
-1.挖矿就业在盖特
+* * *
+
+[【PDF 下载】Wednesday-16-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/02/Wednesday-16-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/02/Wednesday-16-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+* * *
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Wednesday-16-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Wednesday-16-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Wednesday-16-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Wednesday-16-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Wednesday-16-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Wednesday-16-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Wednesday-16-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_80.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Wednesday-16-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_82.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Wednesday-16-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_83.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Wednesday-16-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_101.jpg)
 
 
+[【PDF 下载】Wednesday-16-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/02/Wednesday-16-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/02/Wednesday-16-Feb-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-> [挖矿就业在盖特](https://gnews.org/zh-hans/1958778/)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/德农二维码-24.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
