@@ -2,25 +2,23 @@
 ---
 
 
-## 欧盟专员表示不再需要疫苗强制
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2010860/)
+## 韩国连续5天疫情加剧，总统候选人妻子染疫
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2010894/)
 
-作者：加拿大温哥华扬帆农场 – Spirit
+作者：纽约香草山教育部 – Naughty(文行)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-根据《德国之声》2月13日消息，欧盟经济专员真蒂洛尼(Paolo Gentiloni)表示，讨论疫苗强制的时间已经过去。同时，一位重要的德国立法者表示，强制疫苗措施不会在议会中得到大多数人的支持。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8-19.jpg)
-真蒂洛尼认为，疫情的严重程度在下降，整个欧盟的死亡和住院人数总体上有所下降，各国政府没有理由再推出普及冠状病毒疫苗强制。他说 “我们正走在放宽限制的同一条道路上，每个国家都是如此”。
+当地时间2月14日，韩国中共病毒单日确诊新增5.46万例，已连续5天新增超过5万例，居家治疗人数已超过23万例。总统候选人安哲秀的妻子金美京也在此轮中不幸染疾。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/9-13.jpg)
+奥米克戎变异株疫情近期在韩国快速扩大，首尔、仁川、京畿道等人口密集的首都圈社区感染占56.9%。据韩国中央防疫对策本部统计，截至14日凌晨，全国累计确诊超140万例。采取居家治疗的大多为轻症及无症状患者，同时，重症及死亡人数增加速度相对放缓。
 
-德国议会中最大的反对派团体–保守的基民盟/基社盟的议会领袖说，联邦政府疫苗强制不会得到多数票。
+据悉，目前正在各地开展竞选活动的总统候选人安哲秀，昨天通过视频透露其妻金美京确诊消息，并表示妻子患有慢性疾病，病情并不乐观。同为首尔大学医学系毕业的两人自疫情爆发以来，一直在医疗前线工作，受到相当广泛的好评。
 
-世界各地抗议疫苗强制活动不断，很多国家都在渐渐放开疫情限制和取消疫苗强制。
-
-参考链接：[COVID digest: Vaccine mandate no longer necessary — EU commissioner](https://www.dw.com/en/covid-digest-vaccine-mandate-no-longer-necessary-eu-commissioner/a-60760531)
+参考链接：[韓國確診連5天破5萬例 總統候選人安哲秀妻子染疫\[影\]](https://www.cna.com.tw/news/aopl/202202140034.aspx?topic=2012)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
 总编: Zion文恩
-编辑：Lakeman文仁
+编辑： 宁文静
 校正/发稿：Fei797
 
 **更多资讯，更多关注**

@@ -2,28 +2,32 @@
 ---
 
 
-## 印度再次以安全为由禁止54款中共国手机应用
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2011134/)
+## 俄罗斯和乌克兰紧张局势缓和，股市上涨，油价下跌
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2011172/)
 
-**翻译:日本东京方舟农场 JIHO**
+#### 翻譯：melody
+编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-69.png)图片来源：雅典娜设计组（614）
+根据路透社2月16日报道，华尔街和欧洲股市周二反弹，而油价下跌，此前俄罗斯曾表示将从乌克兰附近的演习中撤出部分军队，而普京则表示他看到了与西方进一步讨论的空间。
 
-根据印度斯坦时报今日报道，印度政府将禁止 54 项对印度安全构成威胁的中共国应用程序。联邦电子和信息技术部表示，它已收到内政部 (MHA) 的请求，要求根据 IT 法案第 69(A) 条设想的紧急条款阻止 54 个应用程序。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-164.png)图片来自于网络
-被禁止的应用程序包括 Beauty Camera, Selfie Camera、Equalizer & Bass Booster、CamCard for SalesForce Ent、Isoland 2: Ashes of Time Lite、Viva Video Editor、Tencent Xriver、Onmyoji Chess、Onmyoji Arena、 AppLock 和 Dual Space Lite。
+乔·拜登总统随后表示，俄罗斯仍有可能对乌克兰发动袭击，美国将保卫北约的每一寸领土。
 
-该部表示，根据 MHA 分享的一份报告，这些应用程序要么是克隆版本，要么具有类似的功能、隐私问题和安全威胁，正如该中心之前在 2020 年阻止的 267 个应用程序中所声称的那样。
+黄金和债券价格下滑，因乌克兰紧张局势可能缓和，避险资产失去部分吸引力。但北约表示，尚未看到任何降级的证据，俄罗斯下议院的投票则威胁到更广泛的僵局。
 
-该中心于 2020 年 6 月 29 日屏蔽了 59 个应用程序，随后于 2020 年 8 月 10 日屏蔽了 47 个相关克隆应用程序。此后，2020 年 9 月 1 日屏蔽了 118 个应用程序，2020 年11 月 19 日屏蔽了另外 43 个应用程序。
+随着普京和德国总理奥拉夫·舒尔茨的讲话，美元指数缩减跌幅，这表明乌克兰的紧张局势尚未得到解决。
 
-该部表示，这 54 个应用程序据称获得了各种关键权限并收集了敏感的用户数据。“这些收集的实时数据被滥用并传输到位于敌对国家的服务器。这将使他们能够汇编大量个人数据，以便对敌视印度主权和完整的分子以及危害国家安全的活动进行挖掘、整理、分析和描述，”IT 部在一份声明中表示。
+虽然乌克兰危机正在酝酿之中，但劳工部报告称，美国1月份生产者价格涨幅为八个月来最大，这提醒人们，高通胀可能会持续到今年的大部分时间。
 
-“此外，还有其他严重的问题，因为其中一些应用程序可以通过摄像头/麦克风进行间谍活动和监视活动，访问精确位置 (GPS) 并进行类似于以前被阻止的应用程序的恶意网络活动。据称，这些应用程序从事有损国家主权和完整的活动，也对国家安全和印度国防构成严重威胁，”它补充说。  最新举措可能是两个邻国之间的紧张关系陷入旷日持久的边界争端影响商业交易的一个例子。
+新闻链接：[Stocks rally, oil slips as Russia-Ukraine tensions ease](https://www.reuters.com/markets/europe/global-markets-wrapup-1-2022-02-15/)
 
-参考链接：
-[https://www.hindustantimes.com/india-news/govt-to-ban-54-chinese-apps-that-pose-threat-to-india-report-101644814634095.html](https://www.hindustantimes.com/india-news/govt-to-ban-54-chinese-apps-that-pose-threat-to-india-report-101644814634095.html)
+发布： wenly
 
-校对：青城道姑
-发布：爱放飞
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

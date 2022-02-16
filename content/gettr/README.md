@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/16/2022 1:17 AM (UTC)`
+
+2月15号：这是真正的真相……
+![img](https://media.gettr.com/group3/getter/2022/02/16/01/ae4846dd-4dad-b407-47e4-31a31b8925bb/20f81414c9a8307b26bd4349b6408a70.jpg)
+
+---
+
 `@miles 2/15/2022 10:31 PM (UTC)`
 
 2/15/2022 Miles Guo’s GETTR: Xi Jinping is about to show up after disappearing for eight days. So, people of Taiwan must be very careful. The CCP has turned the Winter Olympics into an international joke. Although the CCP makes life difficult for everyone, it will soon be taken down. Don’t be fooled by the Grand Overseas Propaganda Campaign, which is the tool for the CCP to maintain its rule.<br/><br/>2/15/2022 文贵盖特：习太阳消失8天后将露面，请台湾同胞务必小心；中共把冬奥会开成了国际大笑话；让所有人都过不好的中共马上就要被灭；大外宣是中共维护统治的工具，千万别上当<br/>
@@ -146,13 +153,6 @@
 
 2/13/2022 Miles Guo: The CCP and Russia will be destroyed once they start a war. The world economy will be restructured, and the whole world will investigate the Wuhan lab. The COVID vaccine disaster will change the Western media, healthcare, insurance, and political landscape. The over-issued fiat currencies will turn into a bubble, and the era of digital currency will commence. The New Federal State of China will be the winner!<br/><br/>2/13/2022 文贵直播：中共和俄罗斯一旦发动战争就必灭，世界经济将重整，全世界都会调查武汉实验室；疫苗灾难会改变西方的媒体、医疗、保险和政治格局；超发的法币会变成泡沫，数字货币时代将开启，新中国联邦是赢家！<br/>
 ![img](https://media.gettr.com/group43/getter/2022/02/14/02/901cdc9b-f456-bd9f-4130-f5b98412de39/out.jpg)
-
----
-
-`@miles 2/14/2022 2:10 AM (UTC)`
-
-2/13/2022 Miles Guo: The COVID vaccine disaster is going to cause major political, military, and economic changes in the world. The CCP, Big Pharma, and those who are pushing the vaccine mandate are all going to be brought to justice. So fellow fighters, please rest assured. The vast majority of the people in the world want to take down the CCP and get to the bottom of the truth about the CCP virus and its vaccines.<br/><br/>2/13/2022 文贵直播：疫苗灾难将导致世界政治、军事和经济大变局；中共、大药厂和推行疫苗强制令的人终将被审判；战友们请放心，世界绝大多数人都要灭共并查清病毒和疫苗的真相<br/>
-![img](https://media.gettr.com/group33/getter/2022/02/14/02/4915f687-abfe-5e1e-db46-161ce9c31ad7/out.jpg)
 
 ---
 

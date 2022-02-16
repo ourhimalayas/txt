@@ -2,33 +2,41 @@
 ---
 
 
-## 俄罗斯和乌克兰紧张局势缓和，股市上涨，油价下跌
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2011172/)
+## 樱花FM|樱花灭共段子┃看七哥大直播有感序之一
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2011196/)
 
-#### 翻譯：melody
-编辑：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-69.png)图片来源：雅典娜设计组（614）
-根据路透社2月16日报道，华尔街和欧洲股市周二反弹，而油价下跌，此前俄罗斯曾表示将从乌克兰附近的演习中撤出部分军队，而普京则表示他看到了与西方进一步讨论的空间。
+音频：东京樱花团/战友520
 
-乔·拜登总统随后表示，俄罗斯仍有可能对乌克兰发动袭击，美国将保卫北约的每一寸领土。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/樱花灭共段子┃看七哥大直播有感序之一.jpg)
 
-黄金和债券价格下滑，因乌克兰紧张局势可能缓和，避险资产失去部分吸引力。但北约表示，尚未看到任何降级的证据，俄罗斯下议院的投票则威胁到更广泛的僵局。
+七哥直播又一期 不打疫苗灭共去
 
-随着普京和德国总理奥拉夫·舒尔茨的讲话，美元指数缩减跌幅，这表明乌克兰的紧张局势尚未得到解决。
+瑞银沼泽大混蛋 七哥一抓一条线
 
-虽然乌克兰危机正在酝酿之中，但劳工部报告称，美国1月份生产者价格涨幅为八个月来最大，这提醒人们，高通胀可能会持续到今年的大部分时间。
+寻回百年民财富 灭掉沼泽开始干
 
-新闻链接：[Stocks rally, oil slips as Russia-Ukraine tensions ease](https://www.reuters.com/markets/europe/global-markets-wrapup-1-2022-02-15/)
+多年准备盼此时 敬天爱地灭共去
 
-发布： wenly
+保佑七哥把魔杀 路上歌曲来相伴
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+祈祷上天帮和看 壬寅灭共在眼前
 
+全球战友全参战 坚持最后不掉链
+
+胜利曙光和笑颜 多年回头往回看
+
+不负英雄小少年 正义选择他在前
+
+文字版原文：
+
+
+| [樱花灭共段子┃看七哥大直播有感序之一– GNEWS](https://gnews.org/zh-hans/1987526/) |
+| --- |
+
+
+*编辑：东京樱花团/asket   
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-1276x720-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

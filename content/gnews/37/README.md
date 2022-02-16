@@ -2,42 +2,27 @@
 ---
 
 
-## 魁北克政府今天下午宣布撤销疫苗护照的时间表
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2010074/)
+## 脸书至白宫电邮曝光利益冲突
+` Little c` [轉載自GNews](https://gnews.org/zh-hans/2010345/)
 
-**编译及评论：16626**
+作者：波士顿五月花 Little c
+![](https://assets.gnews.org/wp-content/uploads/2022/02/vaccine-1.jpg)
+最近, ICAN组织依据《自由信息法》成功获得一封21年6月由脸书至白宫及政府雇员的电邮。
 
-y**图片来源：截屏于**[**https://www.tvanouvelles.ca/2022/02/15/vers-un-assouplissement-du-passeport-vaccinal**](https://www.tvanouvelles.ca/2022/02/15/vers-un-assouplissement-du-passeport-vaccinal)
+发信人是脸书公共政策经理（Public Policy Manager）Payton Iheme，收件人包括HHS雇员和白宫雇员。 在信中， Iheme 宣布了脸书发起的名为“促进医疗保健联盟” 的新项目（Alliance for Advancing Health Care）。此项目的合作者包括药企默克，疫苗信心项目，Sabin疫苗研究所和CDC基金会。值得关注的是，CDC基金会的合作伙伴和捐赠者包括了辉瑞在内的几百家大公司。
 
-**今天下午宣布撤销疫苗护照的时间表**
+Iheme在信中解释到，“此联盟会专注于促进公众理解如何利用社交媒体和行为科学来改善全世界社区的健康”。他们的第一个计划是“为那些探索如何用社交媒体和数字平台来建立疫苗信心并推动疫苗接种的研究者和组织提供经费”。
 
-魁北克政府可能会在今天下午宣布撤销疫苗护照的时间表。
+此邮件再一次表明政府机关，药企和大公司之间存在着惊人的利益冲突。CDC基金会的官方目的是支持CDC的工作，却同时获得大药企和大公司的资助，一起推动一个免责产品，并企图阻止任何发出质疑的人。 ICAN表示他们将永不停息地揭露有关这些产品的真相，或要求对任何疫苗有完全知情同意。
 
-宣布撤销疫苗护照的时间表的新闻发布会定于下午 1 点 15 分举行。
+参考链接：
 
-（撤销疫苗护照）应逐步进行，首先应在超市，魁北克酒业公司（SAQ），和魁北克大麻公司（SQDC）的所有分支机构终止疫苗护照。
+[https://www.icandecide.org/ican\_press/ican-obtained-email-shows-alliance-between-white-house-facebook-and-pharma/](https://www.icandecide.org/ican_press/ican-obtained-email-shows-alliance-between-white-house-facebook-and-pharma/)
 
-在国家公共卫生主任吕克·布瓦洛Luc Boileau 博士陪同下，卫生部长克里斯蒂安·杜贝Christian Dubé 将出席（宣布撤销疫苗护照的时间表的）新闻发布会。
+[https://about.fb.com/news/2021/06/facebook-leading-health-organizations-form-alliance-for-advancing-health-online/](https://about.fb.com/news/2021/06/facebook-leading-health-organizations-form-alliance-for-advancing-health-online/)
 
-另外，根据Gnews（2022 年 2 月 8 日）发表一篇题为《萨斯喀彻温将于下周一放弃疫苗护照,[萨斯喀彻温将于下周一放弃疫苗护照](https://gnews.org/1977277/) 》的文章报道，萨斯喀彻温省已经于昨天，周一（2022 年 2 月14日），开始不再需要出示疫苗护照。
+[https://www.cdcfoundation.org/partner-list/corporations](https://www.cdcfoundation.org/partner-list/corporations)
 
-还有，Gnews（2022 年 2 月 15 日）发表一篇题为《魁北克省勒戈（Legault）政府拒绝实施《紧急措施法》, [魁北克省勒戈（Legault）政府拒绝实施《紧急措施法》](https://gnews.org/zh-hans/2009639/)  》的文章报道，《紧急措施法》并不一定意味着立即部署军队。加拿大总理贾斯汀·特尔多（Justin Trdeau）称，军事干预是“最后手段”。魁北克省省长François Legault“不希望”看到《紧急措施法》在魁北克领土上实施，他说，联邦的这项决定是“火上浇油”。
-
-现在，联邦施压实施《紧急措施法》，魁省民众示威抗议反对政府强制实行疫苗护照。魁省的公共卫生行政措施出现什么样的变化？让我们拭目以待。我们谴责并反对暴力示威，反对政府强制实行疫苗护照，更反对政府施加暴力于人民。我们相信魁北克省，乃至全加拿大很快会放弃强制实行疫苗护照。
-
-**参考资料**：
-
-[Vers un assouplissement du passeport vaccinal?](https://www.tvanouvelles.ca/2022/02/15/vers-un-assouplissement-du-passeport-vaccinal)
-
-**编辑：LILY**
-
-**发布：歪桑**
-
-20220215
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3-4.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,40 +2,29 @@
 ---
 
 
-## 渥太华警察局局长彼得•斯洛利（Peter Sloly）辞职
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2010861/)
+## 支持反送中运动的艺人阮民安 遭港警国安逮捕
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2010912/)
 
-**编译及评论：16626**
+**撰稿：日本东京方舟农场  海星**
 
-**渥太华警察局局长彼得·斯洛利（Peter Sloly）已辞职**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/FE0862FD-FF0E-460D-85E2-015FFF82C0A1.jpeg)**图片来源：截屏于**[**https://globalnews.ca/news/8621091/ottawa-police-peter-sloly-resigns/?utm\_source=notification**](https://globalnews.ca/news/8621091/ottawa-police-peter-sloly-resigns/?utm_source=notification)
-据多个消息来源称，渥太华警察局局长彼得·斯洛利（Peter Sloly）已辞职。辞职涉及持续数周的”自由车队”抗议活动，这些抗议活动已经占领了渥太华市中心的大部分地区。
+2月15日，香港艺人阮民安遭到港警国安逮捕，警方称其涉嫌“煽动罪”及“洗黑钱罪”。该艺人曾积极参加反送中抗议运动。
 
-**渥太华警方不作为**
+据《中央社》报导，2月15日港警国安人员以涉嫌“煽动他人抗议政府罪”以及“挪用捐款罪”为由，拘捕了2位男性，其中1位是41岁歌手阮民安。
 
-（自由车队）抗议活动引起了国内和国际的关注，尤其是关注渥太华警方（不作为）没有采取行动阻止示威者违反法律和涉嫌骚扰渥太华居民（的抗议活动）。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片-1-18.jpeg)（图片来源：Now新闻）
 
-斯洛利Sloly于2019年10月加入警队，此前他在多伦多警察局担任了七年的副警察局长。
+报导指出，阮民安曾多次在社交媒体发表指责政府暴政的言论，并呼吁市民抗议政府的病毒封锁措施，远离致死的疫苗。在2021年3月至11月期间，他为因抗议政府而被捕的民主人士筹集了100万元港币的捐款。
 
-**更多内容即将推出…**
+阮民安是一位香港知名歌手。2019年，他积极参与了反送中抗议运动，去年10月在线上直播的演唱会中，他高声歌唱了“光复香港 时代革命”的歌曲，以此声援被笼罩在中共《国安法》阴影之下的香港。
 
-渥太华警察局长彼得·斯洛利（Peter Sloly）辞职是聪明的选择，还是被迫当替罪羊？
+参考链接：
+1. [https://www.cna.com.tw/news/acn/202202150295.aspx](https://www.cna.com.tw/news/acn/202202150295.aspx)
+2. [https://news.now.com/home/local/player?newsId=466575](https://news.now.com/home/local/player?newsId=466575)
 
-现在，联邦施压实施《紧急措施法》，政府很可能施加暴力于人民。我们谴责并反对暴力示威，更反对政府施加暴力于人民。
+素材采编：海星
+编辑：青城道姑
+发布：文曦
 
-**参考资料**：
-
-[Ottawa police Chief Peter Sloly resigns amid ‘freedom convoy’ blockade](https://globalnews.ca/news/8621091/ottawa-police-peter-sloly-resigns/?utm_source=notification)
-
-**编辑：LILY**
-
-**发布：歪桑**
-
-20220215
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3-4.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

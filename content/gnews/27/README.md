@@ -2,19 +2,34 @@
 ---
 
 
-## 【粤语配音】2022年2月15日：共产党马上就要被灭了
-` MOS香港部` [轉載自GNews](https://gnews.org/zh-hans/2010565/)
+## 香港因疫情延长对八个国家的航班的禁令
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2010682/)
 
-紐約香草山-香港部
+作者：纽约香草山教育部 – Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据外媒2月11日报道，出于对日益严重的中共病毒疫情的担忧，香港政府当天延长了对美国、英国、澳大利亚、加拿大、法国、印度、巴基斯坦和菲律宾八个国家的入境航班的禁令。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/6-24.jpg)
+在对上述八个国家延长禁令的同时，香港政府还将禁令扩展到了尼泊尔，
 
-你看这世界的形式，整个世界都在等待着俄罗斯和乌克兰，还有就在这个时候没有人知道，共产党要对台湾干啥，着急呀，咱们人轻言微呀，谁听啊，愿台湾同胞务必小心。
+目前飞往香港的航班减少了90%，几乎没有航班被允许过境。
 
-文贵在这里告诉大家一定要小心，习这消失的八天，憋的全是坏事儿，习消失八、九天了，到现在还没出来呢，估计今天晚上，明天上午就该露面了，坏事就开始了，我们不需要世界乱，但是看这世界不乱，共产党就不会被消灭。
+据悉，香港过去14天新增了大约4000个病例，是中共病毒在当地最大规模的爆发。尽管绝大多数近期增加的确诊病例都是本地病例，但在中共的控制下，这座城市仍希望通过将自己与世界隔离来控制病毒。
 
-共产党很疯狂，很嚣张，你看看现在国内成啥了，看看冬奥会开成国际大笑话了，可耻啊，丢人呢，一个公平竞争，体现人与大自然的和平相处，体现人的自然的超能力，团结友爱，帮助别人，尊重大自然，奥林匹克精神，一切都变了。非公平竞争，全是黑招儿，人也造假，户口也造假，护照也造假，成绩也造假，雪也造假，王八蛋，丢死中国人了，哪有竞争啊，是不是？根本没有竞争，全是政治诈骗。
+参考链接：[Hong Kong extends ban on flights from eight countries, adds Nepal](https://www.reuters.com/world/asia-pacific/hong-kong-extends-ban-flights-eight-countries-adds-nepal-2022-02-11/)
 
-奥林匹克的裁判、主办机构都腐败了，还有什么公平呢？对大自然假雪的伤害，万年都不会消失，在没有雪的北京山上，造出来用化学造的雪，狂妄、无知、愚蠢，只要共产党不灭，没有一个人有好的，共产党灭了，啥都好，就这么简单，而且共产党马上就会被灭掉，一点儿都不用担心。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
+总编: Zion文恩
+编辑： 飞虹
+校正/发稿：Fei797
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
