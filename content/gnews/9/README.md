@@ -2,38 +2,30 @@
 ---
 
 
-## 樱花FM┃谎言的“黑命”有多贵? “黑命贵”创始人犯重罪
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2014821/)
+## 有声|NFSC新闻、G|TV新闻访谈简报|2022年2月15日早
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2015135/)
 
-音频：东京樱花团/战友520
-![](https://lh6.googleusercontent.com/9nOFklZJuPJvK8IGbt1zMNJYnqRv4JPsi0RShcxwHXrmO5OG2zYZTvXyRvmzAJDeW3ACmUexgDwNDGATUdFzwFQJKKd7vS04v3FkCZkqFs5XfPqlBFtV7jT873euc37a3lMGAp1S)
-看中国2022年2月8日讯，美国孟菲斯“黑命贵”（BLM）分会的创始人在2015年承认犯有重罪并被定罪后，最近又因非法登记投票而被判处6年监禁。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-14-768x994-1.png)
+文字版原文：[NFSC新闻、G|TV新闻访谈简报|2022年2月15日早](https://gnews.org/zh-hans/2009701/)
 
-7年前，44岁的帕梅拉·摩西在跟踪和骚扰当地法官后承认犯有包括跟踪、篡改证据、伪造、伪证和盗窃低于500美元在内的2项重罪和3项轻罪，之后，她曾6次非法投票。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-摩西的犯罪行为使她永远失去了在美国田纳西州投票的资格。现在这位活动人士声称她不知道自己失去了选民权利，不知道她仍处于持续了7年的缓刑期间，并表示她相信她的投票权在2019年已经恢复了。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-“我没有伪造任何东西。我所做的只是试图按照选举委员会的人告诉我的方式以及书记员所做的方式重新拿回我投票的权利。”她在1月26日的量刑听证会上说。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-然而，法官马克·沃德判定摩西“欺骗缓刑部门”而非法获得投票权。
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-他说：“你欺骗缓刑部门给你文件表示你已经结束缓刑。”“在你于2015年被判重罪后，作为一个被判刑的重罪犯，你曾6次投票。”
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-然而，摩西辩称，当她在2015年认罪时，没有人告知，她失去了投票权。她去年告诉《卫报》：“他们从来没有提到任何关于投票的事情。他们从来没有提到任何关于不投票、能够投票的事情……都没有。”
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-在对她非法投票的审判期间，检察官指出，摩西在提交证明时就已经知道她没有资格，因为法官已经告诉了她，她的缓刑没有结束。
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-“帕梅拉．摩西故意或同意在她的永久登记上填写虚假信息。”
-
-法官马克．沃德因其“欺骗”缓刑部门和选举部门而判处摩西6年零1天的监禁。
-
-谎言是一个最不受人待见的人品问题，更是一个诚信社会人人唾弃的弊病。投机者总是寄希望从谎言中获利，往往时常又能从中短暂获益，反而增加了他们继续说谎的动力和信心。然而投机者往往又是短视和没有长远见地的。一时的利令智昏，让他们赌上全体人类和他自己的未来。全体人类是一体的，一荣俱荣，一损俱损，没有哪一个人能够独善其身。当我们破坏了我们共同乘坐的大船，实际上也是在毁灭我们自己。独自的好不为好，临时的获益是以牺牲其他人的福祉和自己的未来为代价的，这笔账不会消失，迟早是要还的。
-
-文字版原文：[谎言的“黑命”有多贵? “黑命贵”创始人犯重罪](https://gnews.org/zh-hans/1974149/)
-
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

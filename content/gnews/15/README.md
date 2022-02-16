@@ -2,27 +2,26 @@
 ---
 
 
-## 消防员1989年从柏林墙逃离到2022年的堪培拉
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2014748/)
+## 樱花FM| 中日财经爆：美司法部指控海能达窃取摩托罗拉技术
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2015019/)
 
-##### 翻译：George Yang
-校对：Lish
-剪辑|字幕：小强
-编辑：慕纱公子
+音频：东京樱花团/战友520
+![](https://lh3.googleusercontent.com/sG_Eyvo4OJJkNUbTXiHFf5wqV088CyKCTirH1EFvQNylKeRT2pA6oG4jrYH3uwVa0P1ClYy2Dyr9URYLAjtRaGfQCHhnPEz5u8D18b1KswKtW1i5nOjWDY4o7QWOIcvSUCZQJZo_)
+美国司法部周一（2月7日）表示，已对总部位于中共国深圳市的海能达通信股份有限公司提出刑事指控，指控该公司与摩托罗拉系统公司前员工合谋窃取摩托罗拉的数字移动无线电技术。
 
-视频中的女士是一位昆士兰的消防志愿者，她是曾脱离自前极权国家东德来到的澳洲。她渴望自由。她说从两年前开始，澳大利亚变得和前东德一样了。她指出，澳洲政府施行的相关强制措施是错误的。由此，她呼吁更多的人来参加这个关乎个人自由的抗议活动。她强调，“当我们形成了强大的团队时，我们才能与暴政抗衡。只有团结一致才能更强大”。
+在伊利诺伊州北区公布的一份隐去部分内容的起诉书中，美国政府指控海能达招聘摩托罗拉员工，窃取有关无线电、即“对讲机”的专有商业数据。
 
-视频来源：[Fire Fighter escaped Berlin wall 1989 to end up in Canberra 2022](https://www.youtube.com/watch?v=SnP9Tae5wWY)
+摩托罗拉执行副总裁兼总法律顾问Mark Hacker在一份声明中表示，对海能达的指控“突显了这家中共国公司的非法行为是精心策划、经过深思熟虑的”。
 
-*发布：Mttfly*
+“我们将继续在世界各地的司法管辖区对海能达提起民事诉讼，以防止该公司连续侵权，并为摩托罗拉索赔数亿美元。”Hacker补充道。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+2020年2月，陪审团在摩托罗拉诉海能达的窃取商业机密和版权侵权案中对摩托罗拉做出了有利裁决，后者获赔7.46亿美元。芝加哥一个陪审团裁定，总部位于深圳的海能达利用摩托罗拉的机密文件和受版权保护的源代码在双向无线电通信市场上展开竞争。海能达曾是摩托罗拉的分销商，当时该公司对陪审团称，相关产品是自主开发的。
 
+文字版原文：[中日财经爆|美司法部指控海能达窃取摩托罗拉技术](https://gnews.org/zh-hans/1973958/)
+
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,22 +2,51 @@
 ---
 
 
-## 樱花FM┃港府防疫令扩至私人处所 撇清劳资纠纷
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2014507/)
+## 樱花数据分析┃英格兰：两针接种者更容易出现感染和死亡
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2014769/)
 
-音频：东京樱花团/战友520
-![](https://lh6.googleusercontent.com/XFVe6hoF9zU4wV4_kJsXqMbeKaaXQsWnDgCMit57nyQc1ym7YofUsK9k4RlXTGLoQMbpU_TTEvzfhh-JREPUcNWLB1Vjv6s4Qob14smTrDENA_MZlCBdFGb-86yOk8xEHUQU4XkI)
-林郑月娥今日（8日）宣布最新防疫措施，限聚令收紧至2人，适用于私人处所，禁止两个家庭以上在私人地方进行跨家庭聚会。港府将修订《雇佣条例》，若雇员不愿接种疫苗而无法上班被解雇属合理解雇。雇员因被围封或须隔离而缺勤，雇主不得解雇雇员。林郑称，此修订可减少劳资争拗。
+撰稿：东京樱花团/TV
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-181.png)
+英格兰政府自今年第三周以来，重心由公布两针接种感染数据，转为了三针接种感染数据。由于全球出现的两针接种者对感染增强的现象，我们对于英格兰数据进行了分析。令人吃惊的是，几乎所有年龄层的两针接种者，在感染，住院，及死亡风险全面大于未接种者。
 
-新冠变种病毒Omicron蔓延全港，港府应专家们的强烈要求公布更严格的防疫禁令，只允许2人聚集，连市民的家也受监管。这种荒诞无人性的禁令在中共国是习以为常的，港府推出这样的禁令，足以证明民主自由已彻底在这片土地上消失。港府无休止的禁令导致百业萧条，尤其是封楼强检和强制隔离囚禁港人的防疫措施，导致许多人失去工作，收入大幅减少，雇主和雇员之间的矛盾重生，引发众多劳资纠纷，港府高官早前曾表示爱莫能助，今日港府却宣布将修订《雇佣条例》以减少劳资纠纷，但字里行间清晰地透露出港府刻意将暴政纳入现行的法规中，强制注射新冠疫苗在《雇佣条例》中将合法化，雇主可依法解雇反对疫苗的雇员；强制检测和强制隔离也合法化，雇主须依法承担雇员被防疫暴政造成的损失。港府偷梁换柱的手段与中共如出一辙，在此时修改《雇佣条例》，意味着疫情将长期持续下去，港府可依法免除暴力防疫所产生的责任。
+第6周《疫苗监督报告》[1]，公布了第2～5周感染、住院、死亡总人数统计。第3周～第6周的《全国流感及新冠病毒监督报告》[2,3,4,5]公布了第2～5周的疫苗接种率，我们取其平均做为第2～5周疫苗接种率。综合以上数据，我们得到第2～5周各年龄层的疫苗有效率结果。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1587.png)
+制图：chuansang
 
-大部分港人都明白今日所遭受的一切是港府过度防疫中共病毒所引起的，效仿西方民主国家与病毒共存的方法才是出路，但中共正是要利用病毒将香港推回奴隶社会，每日都为吃穿忧虑的港人如何有气力再去争取民主和自由。
+对18岁以上人群，疫苗防感染有效率为负值，两针接种者感染风险为未接种者的2.08～3.02倍。
 
-文字版原文：[港府防疫令扩至私人处所 撇清劳资纠纷](https://gnews.org/zh-hans/1974737/)
+对30岁以上人群，疫苗防住院有效率为负值，两针接种者住院风险为未接种者的1.21～1.72倍。
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+对30岁以上人群，疫苗防死亡有效率为负值，两针接种者死亡风险为未接种者的1.05～2.76倍。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1588.png)
+制图：chuansang
+
+两针接种者更易感染，住院，死亡。这与之前苏格兰公布的数据一致。不仅如此，如果仔细观察，我们会发现风险值有随年龄增大而上升趋势，80岁以上接种者死亡风险竟达到了2.76倍！由于高龄者接种最早，这似乎说明接种时间越久，越容易感染、住院及死亡。这可能与长期存在于体内的刺突蛋白对免疫系统的持续伤害有关。
+
+我们之前的文章[6]已经展示了，三针疫苗防感染有效率已经为负值，即防住院、防死亡不久也将达到两针接种相同结果。那么加强针意义何在？
+
+放眼全世界，真相还在被隐藏之中。这是一场愚蠢的实验？惊天的骗局？还是蓄意的屠杀？？？
+
+数据来源：
+
+[\[1\]疫苗监督报告-第六周](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1054071/vaccine-surveillance-report-week-6.pdf)
+
+[\[2\]全国流感及新冠病毒监督报告 – 第3周](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1048531/Weekly_Flu_and_COVID-19_report_w3.pdf)
+
+[\[3\]全国流感及新冠病毒监督报告 – 第4周](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1050508/Weekly_Flu_and_COVID-19_report_w4.pdf)
+
+[\[4\]全国流感及新冠病毒监督报告 – 第5周](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1052357/Weekly_Flu_and_COVID-19_report_w5.pdf%20)
+
+[\[5\]全国流感及新冠病毒监督报告 – 第6周](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1054000/Weekly_Flu_and_COVID-19_report__w6.pdf%20)
+
+- [樱花数据分析｜英国：大多数三针接种者更易感染奥密克戎毒株](https://gnews.org/zh-hans/1903806/)
+
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

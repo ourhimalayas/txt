@@ -2,73 +2,29 @@
 ---
 
 
-## 众议员莫·布鲁克斯推《中共国COVID-19赔偿法案》
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2012456/)
+## 有声｜要求彻查八孩母事件 中共国高校学子接力联署
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2013394/)
 
-> 众议员莫·布鲁克斯：[#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw) 撒谎，人民死亡。我希望共产主义中国向受到伤害的美国人赔偿，因为他们制造了 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hash&amp;ref_src=twsrc%5Etfw) 之后还撒谎掩盖从而伤害了美国人。
-> 【附中字视频】 [https://t.co/N2vG2vMj8e](https://t.co/N2vG2vMj8e) [pic.twitter.com/2tcrnnTUAS](https://t.co/2tcrnnTUAS)
-> — 美国政要直译推 (@zhiyitw33) [February 16, 2022](https://twitter.com/zhiyitw33/status/1493784086158086148?ref_src=twsrc%5Etfw)
+**By:秘翻新闻**
 
+***2022-02-16***
+![](https://assets.gnews.org/wp-content/uploads/2022/02/99999.png)
+[新唐人](https://m.ntdtv.com/gb/2022/02/15/a103348706.html)北京时间02月16日消息。中共徐州官方关于“八孩母”事件的所谓“调查结果”出台后，网络上开始大面积消声。但中共国多个高校学子开始接力联合署名，要求彻查真相。但联署信遭遇封杀。
 
+2月15日，微博上出现题为“100位北大学子呼吁彻查徐州被拐女子事件”的联署公开信。信中直言徐州官方的“调查结果”前后不一，漏洞百出，要求北京当局彻查“八孩母”真相，严厉打击拐卖妇女儿童犯罪。参与联署的多为已经毕业的北大校友。
 
-众议员马乔丽·泰勒·格林：
-如果共和党人无法阻止大科技审查，那么共和党人还能做什么？
+除北大外，清华、人大、浙大等几个名校校友都成立了“拐卖关注群”。北大联名信发出后，网友呼吁其它高校跟进。
 
-大科技公司在审查他们不喜欢的政治观点上做得太过了，它在压制真相。
+徐州官方几次三番发出“八孩母”事件的不同“调查结果”后，网络开始大举删贴封号，据传四川公安也拒绝再追查“八孩母”是否是南充失踪女孩李莹。但网民的愤怒不息，关注度不减。
 
-如果我们不能为保护真理而战，那还有什么可做的？
+“八孩母”被指未成年时就被拐卖到徐州，其容貌与当年被拐卖的四川南充未成年女孩李莹非常相似。出身徐州丰县的作家王圣强指出，当地人都知道“八孩母”就是李莹，但中共官方“不能让她是李莹”，因为李莹的父亲是军人，如果确认“八孩母”是李莹，会动摇军心。目前王圣强的相关帖文已经删除，据他说是遭遇了来自老家的压力。
 
-共和党人到底是为了什么（而存在）？
+(秘翻新闻 二丫 编译报导)
 
+发布:星星
 
-
-> If Republicans can’t stop Big Tech Censorship, then what can Republicans even do?
-> 
-> Big Tech has gone way past censoring political opinions they don’t like, it’s silencing truth.
-> 
-> If we can’t fight to protect truth then what else is left?
-> 
-> And what are Republicans even for?
-> — Rep. Marjorie Taylor Greene (@RepMTG) [February 16, 2022](https://twitter.com/RepMTG/status/1493770857855995904?ref_src=twsrc%5Etfw)
-
-
-
-前国务卿迈克.蓬佩奥：
-社会主义行不通。 我在巡视 铁幕（指昔日西欧与中东欧共产党执政国家之间想象的屏障）时亲眼目睹了它——我知道它不会带来任何好处。
-
-
-
-> Socialism doesn’t work. I saw it firsthand when I patrolled the Iron Curtain — and I know nothing good comes of it.
-> — Mike Pompeo (@mikepompeo) [February 16, 2022](https://twitter.com/mikepompeo/status/1493765787621888007?ref_src=twsrc%5Etfw)
-
-
-
-比尔.格茨：
-作为阻止解放军进入美国证券市场的新政策的一部分，美国财政部将对 59 家中共国军工公司实施制裁
-【附比尔.格茨发布华盛顿时报报道：美国新的制裁规则打击了数十家中共国军工企业】
-
-
-
-> Treasury Department codifies sanctions on 59 Chinese military companies as part of a new policy blocking PLA from US securities markets [https://t.co/nDSNRttMHG](https://t.co/nDSNRttMHG)
-> — Bill Gertz (@BillGertz) [February 15, 2022](https://twitter.com/BillGertz/status/1493720810183282688?ref_src=twsrc%5Etfw)
-
-
-
-众议员帕特·法伦：
-
-中国是芬太尼的主要原产国——他们在我们的南部边境将其倾注进入美国。
-
-还认为边境危机不是国家安全威胁吗？
-
-
-
-> China is the primary country of origin for fentanyl – and they're pumping it into the America at our southern border.
-> 
-> Still think the border crisis isn't a national security threat?
-> — Rep. Pat Fallon (@RepPatFallon) [February 15, 2022](https://twitter.com/RepPatFallon/status/1493690831139528704?ref_src=twsrc%5Etfw)
-
-
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMAGE-2021-12-13-113746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

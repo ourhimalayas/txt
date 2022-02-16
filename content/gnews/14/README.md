@@ -2,51 +2,36 @@
 ---
 
 
-## 樱花数据分析┃英格兰：两针接种者更容易出现感染和死亡
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2014769/)
+## 樱花FM|邪恶的中共政权才是万恶之源
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2015020/)
 
-撰稿：东京樱花团/TV
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-181.png)
-英格兰政府自今年第三周以来，重心由公布两针接种感染数据，转为了三针接种感染数据。由于全球出现的两针接种者对感染增强的现象，我们对于英格兰数据进行了分析。令人吃惊的是，几乎所有年龄层的两针接种者，在感染，住院，及死亡风险全面大于未接种者。
+音频：东京樱花团/战友520
+![](https://lh4.googleusercontent.com/20tbIAwSZgwItPb5QPgRv8HJxEiIyJqAytjX6DH23UBjnbYpNg_ddG-7dVMJCnJyZffdOFRXj67d5dRv2T3wIck-48HpJi7e358qdJqX5nfRSsXxmqD4uCv-Eq2o42RTmWKfqbT-)
+徐州丰县拐卖案，一直从年前发酵到年后。就这么一个全民公愤的事件，中共公共媒体全都沉默。到今天为止，还没一家正规大型媒体去实地采访报道。
 
-第6周《疫苗监督报告》[1]，公布了第2～5周感染、住院、死亡总人数统计。第3周～第6周的《全国流感及新冠病毒监督报告》[2,3,4,5]公布了第2～5周的疫苗接种率，我们取其平均做为第2～5周疫苗接种率。综合以上数据，我们得到第2～5周各年龄层的疫苗有效率结果。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1587.png)
-制图：chuansang
+被害人何时被锁上铁链的？何时精神失常的？牙齿是怎么被拔掉的，谁拔的？中间7年有没有生孩子，还是生了女婴卖了溺了？杨某侠的本名是什么，现在病情如何？这些都没有答案。但是，等来的却是徐州丰县的一份又一份的冰冷的官方通报！
 
-对18岁以上人群，疫苗防感染有效率为负值，两针接种者感染风险为未接种者的2.08～3.02倍。
+网络舆论热度一般不超过7天，没新的爆点，很快被下一个热点覆盖。但徐州铁链疯母这件事，其实一直在墙内发酵。到目前为止，网上可以查证的类似事件，至少还有很多起，而且这些女人都备受折辱！
 
-对30岁以上人群，疫苗防住院有效率为负值，两针接种者住院风险为未接种者的1.21～1.72倍。
+一个现代化文明社会，发生这样不把人当人的事情，为什么中共没有第一时间严厉处置，反而公然撒谎强力管控呢？想想看，仅1986年到1989年这三年，徐州六个县，就有近5万名被拐来的妇女。
 
-对30岁以上人群，疫苗防死亡有效率为负值，两针接种者死亡风险为未接种者的1.05～2.76倍。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1588.png)
-制图：chuansang
+1、中共老杂毛知道吗？
 
-两针接种者更易感染，住院，死亡。这与之前苏格兰公布的数据一致。不仅如此，如果仔细观察，我们会发现风险值有随年龄增大而上升趋势，80岁以上接种者死亡风险竟达到了2.76倍！由于高龄者接种最早，这似乎说明接种时间越久，越容易感染、住院及死亡。这可能与长期存在于体内的刺突蛋白对免疫系统的持续伤害有关。
+知道
 
-我们之前的文章[6]已经展示了，三针疫苗防感染有效率已经为负值，即防住院、防死亡不久也将达到两针接种相同结果。那么加强针意义何在？
+2、中共老杂毛想去治理吗？
 
-放眼全世界，真相还在被隐藏之中。这是一场愚蠢的实验？惊天的骗局？还是蓄意的屠杀？？？
+根本不想
 
-数据来源：
+3、中共老杂毛为什么不去管？
 
-[\[1\]疫苗监督报告-第六周](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1054071/vaccine-surveillance-report-week-6.pdf)
+商鞅五术为其治国理政的国策，不仅不去管，还在不断设置种种邪恶政策，最终目的贫民、辱民、弱民、愚民、疲民，不断挑动底层民众之间矛盾，已达到其邪恶统治的目的！在他们眼中，他们根本不拿老百姓当人，只是一群奴隶吧了！庆父不死鲁难未已，中共不灭灾难不止！邪恶的中共政权才是真正的万恶之源！
 
-[\[2\]全国流感及新冠病毒监督报告 – 第3周](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1048531/Weekly_Flu_and_COVID-19_report_w3.pdf)
+文字版原文：[邪恶的中共政权才是万恶之源](https://gnews.org/zh-hans/1973573/)
 
-[\[3\]全国流感及新冠病毒监督报告 – 第4周](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1050508/Weekly_Flu_and_COVID-19_report_w4.pdf)
-
-[\[4\]全国流感及新冠病毒监督报告 – 第5周](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1052357/Weekly_Flu_and_COVID-19_report_w5.pdf%20)
-
-[\[5\]全国流感及新冠病毒监督报告 – 第6周](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1054000/Weekly_Flu_and_COVID-19_report__w6.pdf%20)
-
-- [樱花数据分析｜英国：大多数三针接种者更易感染奥密克戎毒株](https://gnews.org/zh-hans/1903806/)
-
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
-
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,22 +2,38 @@
 ---
 
 
-## 樱花FM┃日本《自卫队法》修正案获批，意指共台开战可营救台湾人民
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2014775/)
+## 有声|挪威将取消大多数疫情限制措施
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2015028/)
 
-音频：东京樱花团/战友520
-![](https://lh3.googleusercontent.com/FpAMPEmy0yZfV6wDSekRgHvrnlY-RnEWcowMUjHqtA708BqaUMa44tGnFAccyrTgcn1b8Vod2f0q1H5AJcCwHOvbLkhaxYb9YgJTmxYiL-PXKEnNmLRBgsMiPe9Ntm5x_MaV69Sw)
-据JIJI.COM媒体报道，日本政府8月8日批准了一项自卫队法修正案草案，允许自卫队飞机在外国发生灾难、骚乱或其他紧急情况时仅运送外国国民。并表示还将修改确保运输安全的具体要件和要求。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+据英国媒体2月12日报道，挪威总理当天表示，由于奥密克戎变种的爆发并未对医疗系统造成严重影响，挪威将废除几乎所有剩余的中共病毒限制措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide5-9.jpeg)
+据悉，自2月1日起挪威已经取消了大多数限制，只对北极斯瓦尔巴群岛保留了一些限制。这次新规将取消几乎所有的中共病毒限制措施，并于2月12日10:00点生效。
 
-防卫大臣岸信夫在关于《自卫队修正案》的新闻发布会上强调，拟议的修正案，在未来的各种海外紧急情况下，能够更迅速和灵活地进行运输。并举例去年8月塔利班在阿富汗夺取政权时，政府向该地区派遣了自卫队飞机，但只有一名日本人撤离，而且大多数申请者是在日本大使馆工作的阿富汗人，但因自卫队法的盲点，而无法执行更人道的救助。
+挪威人将不再需要保持至少一米的社交距离，也不需要在拥挤的环境中戴口罩。这意味着夜总会和其他娱乐场所可以恢复全面运营。
 
-从日本首相岸田文雄对与台湾相近的与那国岛进行的模拟难民接收训练，到积极修改自卫队修正案，不难看出是对中共如侵犯台湾所作的一系列准备。
+出入境方面，前往挪威的旅客将不再需要提前登记，政府还取消了对未接种疫苗的乘客在出发前出示检测阴性证明的要求。
 
-文字版原文：[日本《自卫队法》修正案获批，意指共台开战可营救台湾人民](https://gnews.org/zh-hans/1974555/)
+文字版原文：[挪威将取消大多数疫情限制措施](https://gnews.org/zh-hans/2009666/)
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
