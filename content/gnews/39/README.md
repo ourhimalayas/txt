@@ -2,37 +2,18 @@
 ---
 
 
-## 有声|Moderna总裁：破解mRNA可以玩弄整个生命王国
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2015438/)
+## 郭文贵先生申请个人破产点燃战友的怒火
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2015450/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-疫苗制造商Moderna的总裁曾说过，“如果你能够破解mRNA的规则，那么基本上整个生命王国都可以肆意被你玩弄”。随着mRNA技术应用于中共病毒疫苗真相的曝光，Moderna总裁这话听起来不免让人毛骨悚然。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/covid-19-vaccine-mrna-dna-1204201.jpeg)图片来源: 网络
-David Martin博士说，中共病毒疫苗并不是疫苗，使用“疫苗”这个词可以在公共卫生豁免下对公众形成误导。疫苗进入人体后会让人体自身细胞成为病原体制造者，结果会导致人体内的细胞互相攻击。大药商Moderna非常清楚这就是在杀人。
+#### 撰稿：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/02/16450251471.png)
+2022年2月15日，也就是中国农历元宵节这天，七哥庄严地签订了他人生第一份破产申请。这一幕让无数战友泪目：这个为灭共付出一切的男人；这个把全球草根战友托举起来的男人；这个一人挑战全球深层沼泽地的男人；这个随时有几十个官司缠身，被各种黑恶势力诬告滥诉的男人；这个坚持唯真不破、在人类历史上把自己曝光最彻底的男人；……
 
-目前Moderna拥有数百名工程师和科学家，试图用生物信息技术来对人体进行攻击，并使人体依赖该技术，甚至他们称mRNA为生命软件。
+尽管在那么多风浪面前，他一直能逢凶化吉，尽管我们坚信七哥会再次遇难呈祥，甚至表面的示弱背后酝酿着更大的招，但是爱他的战友们看到这一幕还是抑制不住内心的悲愤！因为我们都清楚：这一切都是由于CCP的迫害！
 
-另外该项邪恶计划还包括使用改良的mRNA来重新编程人类的干细胞功能，获得对干细胞的基因改造技术。这是一套完整的细胞级操作，编码、解码、调节、改变人体内的生理指令。
+这一幕将永远印在爆料革命战友的脑海，这笔帐我们一定要向CCP讨回来！且冷眼看它们最后的疯狂，它们的疯狂只会让全球灭共同盟的怒火燃得更烈，加速它们的灭亡！
 
-文字版原文：[Moderna总裁：破解mRNA可以玩弄整个生命王国](https://gnews.org/zh-hans/2013473/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+共产党！你完了，你彻底完了！！！
 
  
 

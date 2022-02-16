@@ -2,28 +2,36 @@
 ---
 
 
-## 樱花FM┃中共官媒杜撰统台故事 被台湾网民轻易识破
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2015933/)
+## 文革受害者之北大教授俞大絪
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2016054/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-9.png)
-中共统战手段花招尽出，继先前抖音洗脑歌曲《2035去台湾》后，官媒也跟进展开创作，宣称一名在福建工作的“台籍火车司机”，期盼能“亲自驾驶火车到台湾去”，文章一出随即被台湾网友发现破绽百出，引来吐槽。
+作者：纽约香草山农场-马克文、朱丽叶
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+俞大絪，北京大学教授，中国英语语言学家，对英国语言文学有着很高的素养，是中国最好、最流行的一套英语教材的作者之一，也培养了大批的青年教师。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-16-下午12.27.36.png)
+俞教授于1905年出生在浙江山阴的名门世家，是曾国藩的曾外孙女。而她的丈夫曾昭抡也是民国的知名学者，其在获得美国麻省理工学院化学博士学位后，回国任教授一职。20世纪40年代末，蒋介石在离开大陆前曾劝说夫妇二人同去台湾，但最终被他们遗憾拒绝。
 
-中共官媒《中国新闻网》2月6日下午刊登一则报导，以“在大陆开火车的台籍司机：盼驾驶火车到台湾”为题，内容称出生于1968年的何志刚，目前任职于中国铁路南昌局集团公司福州机务段，是一名火车司机，也是一名“台籍司机”，何志刚自称父亲出生于花莲县，并表示自己期盼“亲自驾驶火车到台湾去”。 先前名为《2035去台湾》的歌在网路上窜红，何志刚说：“这首歌于我有特别的意义”。
+文革初期，俞大絪和曾昭抡被无辜定罪，随即遭到了红卫兵的抄家批斗。在批斗中，曾俞二人被迫下跪，甚至被红卫兵剥除上衣，用皮带死命抽打。1966年8月25日，独自在家的俞大絪悲愤难抑，遂服毒自尽。一年后，曾昭抡也不堪折辱，逝世在武汉。
 
-何志刚宣称，生于花莲县的父亲，1944年到大陆生活工作，父亲常带他去漳州的海边，朝着花莲的方向瞭望， 1997年时台湾发生一场地震，让何志刚的父亲再度与花莲亲人失去联系。
+资料显示，中共国内十年文化大革命期间，全国工、农、兵及社会各阶层均被动乱波及，尤其是中共针对高级知识分子的严酷批斗与暴力行为，导致中国大批科学家与教授、教师等宝贵人才死亡，造成了中华民族一代，甚至几代的人才断代，其所造成的损失极为惨痛，难以挽回。
 
-文章一出破绽百出，引来台湾网友吐槽，“漳州海边根本看不到花莲吧”、“出生和长大都在中国，装什么台籍”、“1944年你老爸还是日本人”、“1997年花莲有什么可以断通讯的地震？唬烂的报导”、“中国人连剧本都写的比台彩差XD可怜”。
+参考链接：
+1）[俞大𬘡（维基百科）](https://zh.wikipedia.org/wiki/%E4%BF%9E%E5%A4%A7%E7%B5%AA)
+2）[俞大絪之死](https://botanwang.com/articles/202108/%E4%BF%9E%E5%A4%A7%E7%B5%AA%E4%B9%8B%E6%AD%BB.html)
 
-文字版原文：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-[中共官媒杜撰统台故事 被台湾网民轻易识破](https://gnews.org/zh-hans/1968639/)
+总编：Irene木木
+编辑：静言
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-编辑：东京樱花团/asket
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

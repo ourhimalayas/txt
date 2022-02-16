@@ -2,27 +2,38 @@
 ---
 
 
-## 特鲁多宣布紧急状态后，渥太华自由车队抗议继续
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2016220/)
+## 美国指责中共对俄乌危机保持沉默令人震惊
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2016342/)
 
-加拿大温哥华扬帆农场 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/02/NA-1566380.jpg)图片来源：Daily Express
-根据《独立报》（Independent) 2月16 日报道，加拿大皇家骑警（RCMP）和渥太华警方将开始行动结束来自加拿大首都和议会辖区的 “自由车队”，两天前总理特鲁多援引了几乎没有使用过的《紧急状态法》来处理危机。
-
-三位消息人士告诉路透社，特鲁多称卡车司机对Covid疫苗强制和其他限制的抗议活动是 “非法占领”，据说在第二个周末的抗议活动之后，他诉诸了紧急权力。
-
-周二，渥太华的警察局长Peter Sloly在受到批评和两周多的示威活动后辞职。渥太华市长吉姆-沃森表示，他与 “自由车队 “成员达成协议，离开惠灵顿街以南的住宅区。
-
-据当地新闻报道，加拿大当局现在将采取冻结对卡车司机的资助，加拿大皇家骑警将开始在议会区周围建立 “禁区”，以迫使人们离开。该国的公共卫生部长说，为了恢复秩序，任何拒绝的人都将被逮捕。
-
-政府已向停在该地区的车辆的乘客发放传单，警告他们离开，否则将面临刑事指控，禁止使用空气喇叭的禁令延长60天。
+作者：纽约香草山教育部 Naughty(文行)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-24.png)
+据台湾中央社报道，五角大楼发言人柯比14日表示，中共国以沉默的方式支持俄罗斯的作法令人深感震惊，这会让欧洲安全局势更加不稳定。
 
-原文链接：
-[https://www.independent.co.uk/news/world/americas/canada-tuckers-convoy-protest-trudeau-live-b2016109.html](https://www.independent.co.uk/news/world/americas/canada-tuckers-convoy-protest-trudeau-live-b2016109.html)
+柯比说，美国国防部长奥斯汀计划明天前往欧洲北约总部举行危机会谈，他将会晤盟国防长和北约领袖，讨论俄罗斯在乌克兰边境集结大军一事。
 
-编辑，发稿 Spirit
+柯比表示，华府并不认为俄罗斯总统普京已就是否入侵乌克兰做出最终决定，但他可能会在几乎或完全没有警告的情况下采取行动。
+
+与此同时，美国国务院发言人普莱斯也说，美方没有看到俄乌边境出现明显的降温迹象。
+
+新闻来源：[https://www.cna.com.tw/news/aopl/202202150021.aspx](https://www.cna.com.tw/news/aopl/202202150021.aspx)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-189.jpeg)
+
+编辑/校对/发稿：滚滚长江都是水
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
 
 

@@ -2,30 +2,38 @@
 ---
 
 
-## 习近平攻台后，各方真实心态
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2015930/)
+## 渣打被罚230万 墙内信用卡申请项目暂停
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2016053/)
 
-作者：纽约香草山福音部–小草
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-美国：习近平如果打了台湾，以美国为首多国联军趁机宣布中共为非法政权，宣布习近平犯下侵略和反人类罪，公开承认新中国联邦合法性，代表全体中国人。习只要打台湾，美国可以用反中共侵台，轻松转移掉国内分裂、疫苗死伤、美元超发、中期选举视线压力，同时拉上欧洲再干一次打伊拉克战争。美国可以全面没收和冻结中共盗国贼及子女资产（算敌对方资产）。美国从阿富汗失分后，可以在台湾上外交得分。
-欧洲：全面推行去中共化运动，洗牌各国政府生态，转移掉国内反疫苗情绪。可以趁机冻结中共在UBS,德意志银行资产。
-俄罗斯：佯装打乌克兰，讹诈了一把欧美，得了中共一笔钱，用台湾把中共拖入泥潭，亚欧通吃。
-日本：捍卫台湾后，确认自己是亚洲之王，坚定支持新中国联邦，为未来的新亚洲打好基石。
-印度：亚洲最坚定支持保守派政府，反疫苗最成功国家，阻截中共南海霸权推到自己家门口。
-越南和菲律宾、印尼：一帮跟在后面的小弟，中共垮了可以接棒制造业和出口。[https://www.cnn.com/2022/02/15/investing/premarket-stocks-trading/index.html https://cn.reuters.com/article/graphic-us-fed-gold-price-0215-idCNKBS2KK08C https://news.futunn.com/post/12968091?src=3&report\_type=market&report\_id=196702&futusource=news\_headline\_list&level=1&data\_ticket=1644954367573408 https://www.foxbusiness.com/economy/producer-prices-inflation-january-2022 https://sputniknews.cn/20220215/1039212124.html https://www.cnn.com/2022/02/15/investing/oil-gas-russia-ukraine/index.html https://cn.reuters.com/article/ukraine-russia-impact-chips-0215-tues-idCNKBS2KK10W?il=0](https://www.cnn.com/2022/02/15/investing/premarket-stocks-trading/index.html%20https://cn.reuters.com/article/graphic-us-fed-gold-price-0215-idCNKBS2KK08C%20https://news.futunn.com/post/12968091?src=3&amp;report_type=market&amp;report_id=196702&amp;futusource=news_headline_list&amp;level=1&amp;data_ticket=1644954367573408%20https://www.foxbusiness.com/economy/producer-prices-inflation-january-2022%20https://sputniknews.cn/20220215/1039212124.html%20https://www.cnn.com/2022/02/15/investing/oil-gas-russia-ukraine/index.html%20https://cn.reuters.com/article/ukraine-russia-impact-chips-0215-tues-idCNKBS2KK10W?il=0)
+作者：日本方舟农场-Andy
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月9日，据中共媒体消息显示，因违反了所谓的“信用信息查询相关管理规定”，渣打银行中共国有限公司被中共人民银行上海分行处以人民币230万元的罚款，同时，渣打银行零售个人金融信贷部总监陈燕来也被处以10万元人民币的罚金。目前，墙内渣打银行已经暂停了其信用卡申请项目，而该银行的多项业务也将一并调整。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-16-下午12.27.28.png)
+据了解，渣打银行并非第一家被中共政府处罚的外资银行。资料显示，中共于今年1月1日颁布了《征信业务管理办法》，而其后短短一个月半的时间里，中共对墙内各大银行实施罚款的总金额已经超过了四千万元人民币。其中，东亚银行于1月10日接到的近一千七百万元人民币的处罚堪称近年来外资银行在中共国内收到的最大罚单。
 
-编辑/校对/发稿：菩提树
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2月-2.jpg)
+另外，2021年年末，新韩和韩亚两家外资银行也被中共政府予以罚款，其金额高达620万元人民币。
+
+分析人士对此指出，中共巧立名目地处罚外资银行的做法突显出中共国内经济危机山雨欲来之势。当中，外资银行在“夹缝中生存”已经成了这个时代的缩影。
+
+参考链接：
+1）[渣打银行（中国）收到其有史以来最大百万级罚单 零售信贷部总监被罚10万元](https://finance.sina.com.cn/money/bank/gsdt/2022-02-14/doc-ikyakumy5837854.shtml)
+2）[https://finance.huanqiu.com/article/46pIno6oHEK](https://finance.huanqiu.com/article/46pIno6oHEK)
+3）[开年强监管持续 三家银行累计被罚8000万元](http://m.caijing.com.cn/api/show?contentid=4838570)
+4）[监管动态｜新韩、韩亚两家外资银行年底合计收620万元罚单，均涉及贷款管理、合规经营缺位问题](http://m.ce.cn/cj/gd/202201/07/t20220107_37236414.shtml)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+
+总编：Irene木木
+编辑：宁文静
+校正/发稿：呼吸的雾霾（文小呼吸）
+
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

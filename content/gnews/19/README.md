@@ -2,73 +2,54 @@
 ---
 
 
-## 2022年2月16日文贵先生直播摘要及音频—银河系农场
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2015990/)
+## 俄罗斯大使强烈警告丹麦，不能允许美国士兵进入丹麦博恩霍尔姆岛
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2016061/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/封面-11.jpg)
-盖特连接：[2022年2月16日 文贵大直播：疫苗公司股价变化；中国人寿王滨被抓；世界多地反华苗头；冬奥会锁链女后续；太平联盟官司进展；七哥赴日英后安排](https://gettr.com/streaming/puvpmn3ce1)
+整撰：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-265.jpg)
+图片来源：TV2.DK
 
-1、普京为什么突然宣布撤兵？美国，欧洲和日本，再加巴西，德国，法国和英国的强硬态度让普京软了，不过，也可能是战术撤军杀个回马枪；
+俄罗斯驻丹麦大使Vladimir V. Barbin强烈警告丹麦允许美国军队踏上博恩霍尔姆岛。
 
-2、普京打乌克兰，又突然撤军，玩的是经济战争，对台湾是好事，如果打乌克兰，习近平一定打台湾；
+Vladimir V. Barbin对丹麦媒体Berlingske说，如果丹麦允许这样的举动，如果外国军队抵达博恩霍尔姆岛，俄罗斯将被迫评估对俄罗斯和丹麦之间关系的影响。
 
-3、乌克兰战争经济：是普京和沼泽地几个大佬决定石油价格和金融涨跌；
+这一警告是在丹麦政府开始与美国就新的国防协议合作进行谈判之后发出的，这可能意味着美国军队和物资可以被安置在丹麦。
 
-4、中共国经济通胀通缩，20几家商行及房地产破产，200多家银行等待破产；
+俄罗斯人认为，美国在博恩霍尔姆岛的存在将 “影响 “波罗的海地区的安全。
 
-5、冬奥会已无法收场，真正参加的国家元首只有普京一人，运动员也是有史以来最差的一次；
+博恩霍尔姆岛是波罗的海中的一个丹麦岛屿，位于丹麦其他地区的东部，瑞典南部，德国东北部和波兰北部。由于博恩霍尔姆岛位于波罗的海的战略位置，几个世纪以来一直被周边国家争夺。
 
-6、文贵先生很早就说过这些医药公司被做空，有一个人和群体这么牛X的吗！这些疫苗公司一定会破产就像共产党被消灭一样；
+俄罗斯的威胁，北约的保卫
 
-7、文贵先生个人破产，却让无数人成为富豪；
+美国士兵出现在丹麦将是一个强烈的信号，表明北约在离俄罗斯边界不远的地方重要的军事存在。
 
-8、美国政府明确告诉CCP，不离开中国的前提是必须要病毒溯源，杨洁篪、王毅因此而不敢说话了；
+在周四（2月16日）的新闻发布会上，外交部长Jeppe Kofod被问及美国士兵在丹麦领土上是否可视为丹麦对俄罗斯的挑衅。
 
-9、因为报道锁链女真相被迫害的国内的人可获得1000-10000喜币；
+“我们必须记住，是俄罗斯在威胁着欧洲的和平。我们在北约所做的是在保卫自己。这并不是因为俄罗斯和乌克兰的局势而产生的，”他说。
 
-10、七哥宣布三件大事：
+只有丹麦才能决定在丹麦领土上发生的事情
 
-1）短期内去英国日本不可能，甚至1-2年，或灭共以后。
+丹麦外交部长杰普·科福德Jeppe Kofod 非常明确地表示，美国士兵是否会来到丹麦本土，完全由丹麦决定。否则，俄罗斯对丹麦将与美国开始防务合作这一事实非常不满。这可能意味着美国军队可以留在丹麦。
 
-2）马上推出新的H-Pay，喜贷款、喜抵押，不超过1个月，重大利好投资公告！
+俄罗斯驻丹麦大使Vladimir V. Barbin告诉Berlingske，这将是对二战以来丹俄协议的违反。
 
-3）隆重宣布习太阳做了两个手术，脾和肾。加速共产党灭亡，对台行动暂缓。对台湾大好消息！
+但是Berlingske文章说，丹麦外交部长是对的。
 
-11、喜联储很快可以交易比特币和其他数字货币；
+“这并不是俄罗斯第一次提出这种错误的和不正确的主张，但这并不意味着它是真实的，”杰普·科福德给媒体Ritzau的书面评论中说。
 
-12、4月30日前战友抛喜币投G-TV，喜币下跌几块钱正常，G-TV是王；
+这位丹麦外长非常明确地说：“丹麦从未与俄罗斯或前苏联就博恩霍尔姆岛的外国军队达成过协议。而且我必须警告，不要把俄罗斯的这些宣布当作好事。”
 
-13、喜币不管你现在多少钱卖，一定会后悔的；
+他强调：“让我说清楚，只有丹麦才能决定在丹麦土地上发生什么！”
 
-14、喜联储不出一个月，会有重大消息。看到公告，会“吓死你”；
+在Berlingske对俄罗斯大使Vladimir V. Barbin的采访中，这位大使并没有提出证据证明他所谓的协议是存在的。
 
-15、冬奥会运动员公寓有暗摄像头；
+来源：
 
-**注：大直播音频正在制作和上传中，敬请关注——**
+[TV2.dk](https://nyheder.tv2.dk/udland/2022-02-15-ruslands-ambassadoer-advarer-kraftigt-mod-at-tillade-amerikanske-soldater-paa)
 
-**（大直播音频位置）**
+[Berlingske.dk](https://www.berlingske.dk/politik/store-partier-affejer-russiske-trusler-om-bornholm-der-er-intet-hjoerne-af)
 
-编辑整理：文俊；
-
-发布：黎明之前
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[Politiken.dk](https://politiken.dk/udland/art8621246/%C2%BBDanmark-har-aldrig-haft-en-aftale-med-Rusland-om-udenlandske-tropper-p%C3%A5-Bornholm%C2%AB)
 
  
 

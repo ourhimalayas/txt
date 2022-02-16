@@ -2,53 +2,92 @@
 ---
 
 
-## 文贵大直播要点（2022年2月16日）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2015206/)
+## 樱花FM|中日财经爆:美国加强对中共出口管制 33家实体上榜
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2015219/)
 
-整理：波士顿五月花 文合
-![](https://assets.gnews.org/wp-content/uploads/2022/02/20220128.jpg)
-1、普京如果不打乌克兰，就骗了习近平，两人就掰了，但普京知道这件事的重要性。
-2、世界金融起伏是由沼泽地和普京影响，这就是战争游戏、战争经济。
-3、罗斯柴尔德家族就是通过战争放贷发财，人类历史上就是这样。
-4、中共国20几家银行破产，200多家银行等待破产。房地产20几家大户破产，上万家小企业破产，2000家等待破产。印发50万亿人民币，银行和储户之间关系随时爆破。
-5、北京冬奥会将无法收场，运动员离开北京开始骂共产党，不会罢休，直到共产党消灭。
-6、辉瑞制药、莫德纳一定会破产。
-7、无苗族将来和有苗族怎么相处，跟法律和道德有关系，没有具体标准，只要跟着新中国联邦，为真不破、善待别人就没事。
-8、七哥相信缘分，破产也是一种缘分。七哥破产了，却让无数人成为富豪。
-9、通信防火墙没有太大用，主要是精神防火墙。
-10、全世界知名的严肃媒体给老百姓洗脑。
-11、任何帮助锁链女、为之发声受到迫害的人，能证明的，可以获得1000-10000喜币。
-12、拜登政府明确告诉习太阳，如果不想断交，必须要全面病毒溯源。
-13、全世界所有疫苗的问题都会推给习共。
-14、如果病毒不溯源，全世界的华人和亚裔会被歧视和排斥，受到威胁。
-15、班农将成为美国今年中期选举政治中主角中的主角。
-16、我们要通过病毒、疫苗事件，让中共不等于中国人成为全世界的共识。
-17、PAG的单伟健骗了美国养老金，替共产党擦地，最终一定像海航的王建。
-18、战友们有钱要去旅游，行万里路，二战历史是最好的一面镜子。
-19、在大灾大难来临时，除了有钱，还要有朋友，新中国联邦都安排了，而且有情报。
-20、银行是世界上最多余的，是财富掠夺的工具，银行破产是不赔偿的。
-21、喜交所已经是世界上第四大交易所，关键是不受第三方监管，无国界。
-22、美国全面使用喜币、HPay之后，全世界的钱在美国最安全，唯一比美国还安全的就是喜币、喜交所。
-23、人类生存下去需要有：第一希望，第二安全，第三健康，第四幸福。
-24、新中国联邦会带给战友：自信、希望、安全、尊严、真实、尽情享受人生。
-25、今天大直播三件大事：一、七哥在灭共之前不会离开美国去英国和日本。二、一个月内，喜联储将推出新政策，H贷款和抵押，会有重大利好投资的公告。三、习太阳刚做了脾和肾的手术，中共将加速灭亡，对台行动会暂缓。
-26、喜联储将可以交易比特币和其他数字币，都称作数字货币，而不是虚拟货币。
-27、美国有史以来，N个第一的案子，体现在Miles Guo身上：罚款单日最高、取消陪审团权利等。对西方影响极大，以身证明共产党用蓝金黄渗透西方法制。
-28、新中国联邦藏富于战友，有钱后一定做灭共和利他的事业。
-29、觉悟的人就是菩萨，许多战友就是菩萨。
-30、将来全世界任何商家，不使用HPay是不可能的。
-31、放下就是快乐，不必执着于拥有18楼。不要为失去而痛苦，为了灭共什么都可以失去。
-32、谷爱凌事件爆露了中共的各种造假，国外将追究此事的真相。
-33、北京冬奥会，国外运动员发现被中共安装了密拍摄像头。
+音频：东京樱花团/战友520
+![](https://lh3.googleusercontent.com/i73YHXVmGPjYyGTMjIhPQ8YMWEShC8Yd5SOems06ihdX2VWA_ausbapC2y6i7vRMYqDsjmhTaaZP3JfGkSY1zvDItPEvwAZQFdoR_TW2CZzuy6ThYVuH4gBTDt1V7kK58LYPtxq9)
+美国商务部2月7日宣布，将33家中共实体列入“未经核实名单”(Unverified List)。这些实体获得美国产品，将必须接受更严格的出口管控。美国商务部发表的声明说，美国官员无法对清单中这些实体进行核查，以确定这些实体的“善意”(bona fides)，因此必须对这些公司从美国出口商那裡获取产品实施新的限制。
 
-（整理要点仅供参考，准确含义以郭先生原视频为准。）
+被纳入出口管制清单的33家中国实体，大多数是电子企业、光学公司、涡轮叶片公司、大学的国家实验室和其他企业。包括中国航发南方工业有限公司（AECC South Industry Co., Ltd）、北京世维通科技公司（Beijing SWT Science）、济南邦德激光（Jinan Bodor CNC Machine）、湖南大学（Hunan University）等。
 
-* * *
+1. AECC South Industry Co., Ltd.
 
-*封面：霹雳鼠年*
+2. Beijing SWT Science
 
-*编辑 /发布：吐纳*
+3. Beijing Zhonghehangxun Technology Co., Ltd.
 
+4. China National Erzhong Group Deyang Wanhang Die Forging Co., Ltd.
+
+5. Chuzhou HKC Optoelectronics Technology Co., Ltd.
+
+6. Dongguan Durun Optical Technology Co., Ltd.
+
+7. Dongguan Huiqun Electronic Co., Ltd.
+
+8. Guangdong Guanghua Sci-Tech Co.
+
+9. Guangxi Intai Technology Co., Ltd.
+
+10. Guangzhou Hymson Laser Tehnology Co., Ltd.
+
+11. Harbin Xinguang Feitian
+
+12. Hefei Anxin Reed Precision Co., Ltd.
+
+13. Heshan Deren Electronic Technology Co., Ltd.
+
+14. Hubei Longchang Optical Co., Ltd.
+
+15. Hubei Sinophorus Electronic Materials Co., Ltd.
+
+16. Hunan University
+
+17. Jinan Bodor CNC Machine Co., Ltd.
+
+18. Jiutian Intelligent Equipment Co., Ltd.
+
+19. Kunshan Heng Rui Cheng Industrial Technology Co., Ltd.
+
+20. Shanghai Fansheng Optoelectronic Science & Technology Co., Ltd.
+
+21. Shanghai Micro Electronics Equipment (Group) Co., Ltd.
+
+22. Shuang Xiang (Fujian) Electronics
+
+23. Southern University of Science and Technology
+
+24. Suzhou Chaowei Jingna Optoelectric Co., Ltd.
+
+25. Suzhou Gyz Electronic Technology Co., Ltd.
+
+26. Suzhou Lylap Mould Technology Co., Ltd.
+
+27. Wuxi Biologics Co., Ltd.
+
+28. Wuxi Biologics (Shanghai) Co., Ltd.
+
+29. Wuxi Turbine Blade Co., Ltd.
+
+30. Yunnan Fs Optics Co., Ltd.
+
+31. Yunnan Tianhe Optoelectronic Co., Ltd.
+
+32. Zhengzhou Baiwai Intelligent Automation
+
+33. Zhuzhou CRRC Special Equipment Technology Co.
+
+截止目前，这份名单上的实体总数大约达到了175个。
+
+商务部负责出口执法的助理部长，马修‧阿克塞尔罗德（Matthew Axelrod）在声明中说：“通过及时完成最终用途核查，来核实外国当事方的合法性与可靠性，是我们出口管控制度的一项核心原则。”他表示，将33家中国实体加入“未经核实名单”，将协助美国出口商从事尽职调查并评估风险，并向中共政府发出信号，表明他们在安排最终用户核查方面予以配合的重要性。
+
+美国商务部要求，美国公司与纳入名单的实体进行交易，必须进行额外的尽职调查，包括提交更多的文件。按照限制措施，美国出口商若想与被列入名单的中国公司交易，必须获得许可证。同时，美方提醒被列入清单上的公司必须证明自己是合法的，并且愿意遵守美国法规才能继续接收货物。
+
+文字版原文：[中日财经爆┃美国加强对中共出口管制 33家实体上榜](https://gnews.org/zh-hans/1973444/)
+
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,38 +2,40 @@
 ---
 
 
-## 渣打被罚230万 墙内信用卡申请项目暂停
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2016053/)
+## 七哥说“我想灭共的那一天起就没想过有钱”
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2016148/)
 
-作者：日本方舟农场-Andy
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月9日，据中共媒体消息显示，因违反了所谓的“信用信息查询相关管理规定”，渣打银行中共国有限公司被中共人民银行上海分行处以人民币230万元的罚款，同时，渣打银行零售个人金融信贷部总监陈燕来也被处以10万元人民币的罚金。目前，墙内渣打银行已经暂停了其信用卡申请项目，而该银行的多项业务也将一并调整。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-16-下午12.27.28.png)
-据了解，渣打银行并非第一家被中共政府处罚的外资银行。资料显示，中共于今年1月1日颁布了《征信业务管理办法》，而其后短短一个月半的时间里，中共对墙内各大银行实施罚款的总金额已经超过了四千万元人民币。其中，东亚银行于1月10日接到的近一千七百万元人民币的处罚堪称近年来外资银行在中共国内收到的最大罚单。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-另外，2021年年末，新韩和韩亚两家外资银行也被中共政府予以罚款，其金额高达620万元人民币。
+2022-02-13直播摘录10:37:36
 
-分析人士对此指出，中共巧立名目地处罚外资银行的做法突显出中共国内经济危机山雨欲来之势。当中，外资银行在“夹缝中生存”已经成了这个时代的缩影。
+我有没有钱我知道，美国的《破产法》是很严的，你有钱你想弄破产，那就找死去了，是吧！我有没有钱我知道，我想灭共的那一天起就没想过有钱，我就想把我的智慧和创造财富的能力成为灭共的工具，从来没想变成我谋财的工具，是吧！我要变成我谋财的工具就不干灭共了，包括我家人，包括一切。
 
-参考链接：
-1）[渣打银行（中国）收到其有史以来最大百万级罚单 零售信贷部总监被罚10万元](https://finance.sina.com.cn/money/bank/gsdt/2022-02-14/doc-ikyakumy5837854.shtml)
-2）[https://finance.huanqiu.com/article/46pIno6oHEK](https://finance.huanqiu.com/article/46pIno6oHEK)
-3）[开年强监管持续 三家银行累计被罚8000万元](http://m.caijing.com.cn/api/show?contentid=4838570)
-4）[监管动态｜新韩、韩亚两家外资银行年底合计收620万元罚单，均涉及贷款管理、合规经营缺位问题](http://m.ce.cn/cj/gd/202201/07/t20220107_37236414.shtml)
+所以说在美国这次法律和司法彻底、这真是上天在——共产党像开冬奥会一样、开幕式在北京一样，最荒唐的结果，这件事远远没有结束，一定会大白于天下的。就像我们的摩根夫人昨天给我发信息，她哭了，看到这个判决受不了，她说：“美国怎么会这样？！”摩根先生暴怒啊，美国的朋友、我们很多战友的家人都是当律师的给我发信息要作这个律师，很多很多，特别特别地感谢！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+包括战友们千万别给我发信息捐币了，太多人要捐币、捐钱的了，还有战友直接给我说，咱们一位女战友说：“七哥，我现在可以借给你这笔钱。”没有向战友借钱去还债的，这种可能性就不该有。你们再别发信息，因为我还得给你回，我不回我还很难受，非常感动，永远记在心里！
 
-总编：Irene木木
-编辑：宁文静
-校正/发稿：呼吸的雾霾（文小呼吸）
+但是，这不是你和我的关系，不是钱的关系，这是邪恶和正义的关系，和灭共和不灭共的关系。这个决定是背后是共产党，而且最后一定美国政府会出来解决这问题的。据我所知美国政府相关部门已经高度关注这个事情，他们也知道单伟建是谁，单伟建早在他们这个“百人计划”、“千人计划”目标之中，TPG、PAG就在判决书下来不到二十个小时就在香港宣布：我要在香港上市融资20亿美元。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+你看这帮孙子，就跟当年UBS是一模一样的，所以说战友们，这次是对七哥的再一次的伤害，和Higginbotham还有Elliott Broidy，以及一切黑社会势力Steve Wynn这些挑战，你知道只是表面，你不知道的多了。战友们，你们每一次直播和你们每一次看到成就背后，七哥都是流着血，用生命换来的，你们一定要珍惜！不仅是七哥，国内多少无名的战友付出比七哥多得多得多得多！
+
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
