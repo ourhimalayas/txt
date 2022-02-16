@@ -2,30 +2,22 @@
 ---
 
 
-## 加拿大副总理兼财政部长克里斯蒂亚-弗里兰的祖父是纳粹分子
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2011751/)
+## 特鲁多的《紧急状态法》遭各界强烈谴责
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2011798/)
 
-翻译：冰糖葫芦喵
+采编： Spirit         编辑撰稿：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2022/02/02-image-2.jpg)
+据《福克斯新闻》2月15日报道，在加拿大总理特鲁多启动《紧急状态法》以阻断卡车司机自由车队的资助途径后，立即遭到了各界包括公民自由团体的强烈反对，并谴责当局此举实为政府统治权力的非法扩张。
 
-编辑与校对：冰糖葫芦喵、灭共文明
+为此，[公民自由协会]称：由于《紧急状态法》的目的是为了“国家有能力维护其主权、安全和领土完整”，并只适用于“根据加拿大任何其他法律都无法有效处理”的事件。因此，当前民众的和平抗议活动，不仅完全不符合联邦政府启用该法案的标准，更极度危害了本国的民主制度。
 
-《网关专家》2月15日报道，**加拿大副总理兼财政部长、克里斯蒂亚-弗里兰的祖父是纳粹分子，她崇拜乔治-索罗斯。所以，她给热爱自由的加拿大人贴上恐怖分子的标签不足为奇。**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/弗里兰3.jpg)索罗斯、特鲁多和弗里兰会面（图片来源：尼亚加拉独立报）
-**现在加拿大是由特鲁多和希特勒手下的高级纳粹的孙女领导的。 **克里斯蒂亚-**弗里兰的家庭与纳粹有着密切联系。 她的祖父是一名高级别纳粹分子，二战后被波兰当局追捕。**
+相关学者也指出：《紧急状态法》必须在各省政府的一致同意下，才能被启用。如果地方当局不愿合作，那么联邦政府就不得不放弃执行。此外，由于该法案所特有的针对性、战略性和克制性，因此，擅自实施《紧急状态法》将造成特鲁多政府权力的无限集中和膨胀，而最终导致灾难性的后果。
 
-就在周一，克里斯蒂娅-弗里兰还宣布，为抗议自由的加拿大人进行的众筹将被视为恐怖主义融资。**弗里兰的母亲是哈丽娜，也是纳粹霍米克的女儿。** 他曾与波兰的高层纳粹分子合影。**弗里兰的祖父只比希特勒低三级，而希特勒是他老板的老板的老板。**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/弗里兰2.jpg)图片来源：《网关专家》
-弗里兰还是乔治-索罗斯的粉丝，不止一次与他合影。** 索罗斯在年轻时帮助过纳粹，也是极左组织“安提法”Antifa背后的资助者。“安提法” Antifa**是Anti-Fascist（反法西斯）的缩写，简称“反法”。起源于1930年代，在欧美各国都有分布，**成员多是年轻人，崇尚暴力，认为暴力攻击是必要手段，反政府、蔑视法律，属于极左，他们奉行共产主义。**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/弗里兰4.jpg)图片来源：网络。
-最后报道指出，现在克里斯蒂亚-**弗里兰向加拿大人推行反自由的议程，并把那些支持自由、抗议反自由的强制命令的正义人士视为恐怖分子。**
+校对编辑：硫酸羟氯喹64
 
-新闻链接：
+发稿：苦尽甜来 (文来）
 
-[EXCLUSIVE: Canada’s Deputy Prime Minister Chrystia Freeland’s Grandfather Was a Nazi and She Admires George Soros. It’s No Surprise She’s Labeling Freedom-Loving Canadians Terrorists (thegatewaypundit.com)](https://www.thegatewaypundit.com/2022/02/exclusive-canadas-deputy-prime-minister-chrystia-freelands-grandfather-nazi-admires-george-soros-no-surprise-labeling-freedom-loving-canadians-terrorists/)
-
-[Blank spot: Why Chrystia Freeland’s refusal to acknowledge her grandfather’s Nazi past matters in 2020 – The Progress Report](https://www.theprogressreport.ca/blank_spot_why_chrystia_freeland_s_refusal_to_acknowledge_her_grandfather_s_nazi_past_matters_in_2020)
-
-[克里斯蒂亚·弗里兰（Chrystia Freeland）-维基百科 (wikichi.icu)](https://wikichi.icu/wiki/Chrystia_Freeland)
+原文链接： [https://www.foxnews.com/world/canadian-civil-liberties-groups-respond-to-trudeau-invoking-emergencies-act](https://www.foxnews.com/world/canadian-civil-liberties-groups-respond-to-trudeau-invoking-emergencies-act)
 
  
 

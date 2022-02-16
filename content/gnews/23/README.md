@@ -2,17 +2,18 @@
 ---
 
 
-## 创纪录的信用卡债务将在2022年中期打击美国人
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2011646/)
+## 辉瑞用误导词汇推广他们的疫苗是100%有效
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2011731/)
 
-##### 翻译：不要代表我Kari
+##### 素材：小菠萝
+翻译：Annabelle
 校对：Lish
-剪辑|字幕：qingjing
+剪辑|字幕：向上James
 编辑：Mttfly
 
-高级行业分析师Ted Rossman认为，在金融危机期间，信用卡债务经过六年时间才触底，然后经过了四年时间又重新攀升。这一次，我们在一年多一点的时间里触底。这意味着今年年中，我们可能会看到美国人有史以来最高的信用卡债务总额。
+根据辉瑞的数据，六个月后，打了疫苗的组里有20人死亡，打了安慰剂的组里死亡14人（每组各22000人）。这说明了如果你打了疫苗比不打疫苗高出48%的死亡概率。辉瑞对于他们死因的数据说的是：在打疫苗组里有5人死于心脏病，在安慰剂组，1人死于心脏病。所以你打疫苗，死于心脏病发作的几率会增加500%。我们看到死亡率高的超乎想象，可能只有低于1%的死亡病例被实际报告。许多打了疫苗几个月或几周后死亡的案例没有报告到VAERS系统里，根据美国卫生与公众服务部的一项调查显示，少于1%的疫苗死亡案例被报告。
 
-视频链接：[Record credit card debt will hit Americans mid-2022: Ted Rossman](https://video.foxbusiness.com/v/6296546732001#sp=show-clips)
+视频链接：[Pfizer used deception to market their vaccines as “100% effective,” and compared to the placebo group, more people died amongst the vaccinated.](https://twitter.com/vigilantfox/status/1491171353206325248?s=21)
 
 *发布：Mttfly*
 

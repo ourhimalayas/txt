@@ -2,31 +2,25 @@
 ---
 
 
-## 有声|运动员发布奥运村漏水消息 被中共要求删除
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2011863/)
+## 数字货币行业将不受美国联邦税务规则限制
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2011909/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-2月13日，国外多家媒体报道，参加北京冬奥会的芬兰滑雪运动员莱恩佩拉，上周在自己的社交媒体上发布了一些照片和视频，显示水从她在冬奥村住所的天花板上倾泻而下，并在地板上形成了水坑。还有一些照片显示，有电气设备被暴露在水中。
+采编：Spirit，青青          编辑撰稿：文莱
+![](https://assets.gnews.org/wp-content/uploads/2022/02/04-image-4.png)
+据美国行业媒体《电报货币》2月14日报道，美国财政部近日确认，数字货币的使用者及其支付运营商将不受联邦税务规则的约束，并且相关数字资产的行业法规正在建立之中。
 
-林佩拉在视频中加上了“救命”的标题，同时还分享了中共国工作人员赶来清理的镜头。
+报道指出，由于财政部计划将加密货币的发行机构及其市场应用商和参与使用者等，都排除在联邦纳税报告规则之外，因此美国的数字货币行业即将迎来重大的法律支持和胜利。同时，财政部还将对“是否把数字资产市场中的交易所定义为某种程度上的经纪商”做出考量。
 
-不过，在莱恩佩拉分享的图片中，最令人难以置信的是，有一张她收到的一条消息的屏幕截图，该消息要求她从社交媒体上删除她发布的相关帖子。
+对此，参议员波特宣称：对财政部针对从事加密数字货币行业的机构和个人不需要承担纳税报告义务的决定表示支持。
 
-文字版原文：[运动员发布奥运村漏水消息 被中共要求删除](https://gnews.org/zh-hans/2007700/)
+评论指出，结合此前GTV文贵大直播消息不难得知：新中国联邦的喜联储，目前已成为包括美国和欧盟在内的政府和金融机构在发展其数字货币系统时，不可替代的必然选择。正如文贵先生所述，一旦有国家主权的认可，喜币和喜支付必将把人类文明的发展引领到前所未有的新维度。
 
-音频处理：Fei797
-发稿：Fei797
+校对编辑：硫酸羟氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+发稿：苦尽甜来 (文来）
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+新闻来源: [https://cointelegraph.com/news/crypto-miners-exempt-from-irs-reporting-rules-us-treasury-affirms](https://cointelegraph.com/news/crypto-miners-exempt-from-irs-reporting-rules-us-treasury-affirms)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

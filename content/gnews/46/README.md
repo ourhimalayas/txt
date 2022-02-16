@@ -2,33 +2,26 @@
 ---
 
 
-## 日本首次使用HPAY购买高档手表
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2010318/)
+## 【秘翻在线】俄乌局势将密切影响全球能源市场
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2010003/)
 
-作者：香草山福音部 — 林礼
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-据日本樱花团战友2月14日盖特消息，情人节当天，樱花农场成功帮助战友使用HPAY在日本日新堂购买了两块劳力士手表，单价分别为 12650 HDO和 22245 HDO。这是日本樱花农场首次使用HPAY成功购物。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture1-23.jpg)
-我们在为这位战友送去最真挚的情人节祝福的同时，也祝贺新中国联邦日本樱花农场推广HPAY走出了非常关键的第一步！
+#### 翻译/撰稿：zzballack
 
-据悉，自HPAY成功上线以来，各农场战友就开始积极推广HPAY应用。目前推广比较成功的是台湾宝岛农场，已经使用HPAY成功交易了茶叶、摩托车等物品。 日本樱花团是目前全球达成交易的第二家农场。
+#### 校对：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/02/16449488661.png)图片来源：亚洲与太平洋政策学会
+据《新闻极限》（Newsmax）2月15日报道，分析师说，如果俄罗斯入侵乌克兰并引发西方国家的制裁和报复，亚洲预计将面临更高的石油、天然气和煤炭价格。他们也警告说，如果俄罗斯将其能源出口从欧洲转移到东方，亚洲可能会受益。但欧洲从非俄罗斯国家购买天然气可能会推升液化天然气（LNG）的价格，并将运往亚洲的货物吸引走。
 
-参考链接：[日本首次使用HPAY购买高档手表](https://gettr.com/post/pufvkqf056)
+美国和欧洲的威胁性制裁也可能阻碍亚洲利用俄罗斯可能提供的任何额外能源供应的能力。对这种供应破坏的担忧使得油价在2月14日达到七年来的高点。
 
-![This image has an empty alt attribute; its file name is calendar.png](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
+冲突也刺激了贸易行动，中共国在上周与俄罗斯签署了为期30年的天然气供应协议，俄罗斯是中共国的第三大天然气供应商。
 
-总编：天滅中共
-编辑：飞虹
-校对/发稿：Hetangyuese
+咨询公司Wood Mackenzie的研究总监苏斯汉特·古普塔（Sushant Gupta）表示：“在2021年，俄罗斯约37%的原油、大概每日190万桶，出口至以中共国、韩国和日本为首的亚洲。根据美国制裁的规模和程度，中共国不太可能受到压力，而运往韩国和日本的每日30万桶原油可能会受到影响，这与伊朗原油受到制裁时的情况类似。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+分析师说，如果俄罗斯停止向欧洲出口天然气，欧洲和亚洲之间对液化天然气的竞争升温，可能导致价格上涨，抑制购买。Wood Mackenzie的亚太区副主席加文·汤普森（Gavin Thompson）说：“2022年，液化天然气的需求量可能比预期值下降9%。这也许意味着亚洲的电力公司需要最大限度地烧煤，以缓解液化天然气的供应压力，这听起来很有挑战性。”
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+在煤炭方面，俄罗斯向亚洲供应约了9000万吨煤炭，占亚洲海运进口量的10%。俄罗斯是中共国、日本、韩国和越南的主要动力煤供应商。Wood Mackenzie的金属和矿业研究副总裁罗宾·格里芬（Robin Griffin）说：“俄罗斯向欧洲出口的高能动力煤（high-energy thermal coal）和喷吹煤粉（pulverized coal for injection）可能会转向亚洲，而制裁又是决定购买量和谁购买的关键。如果铁路运输可以承受的话，（这些媒）分流到亚洲是一种可能性。所以我们可能会看到更多的煤炭供应流向中共国、日本、韩国和台湾市场。但欧洲的高价可能会吸引其他亚洲国家和美国的煤炭供应商，最终导致价格上涨。”
+
+新闻来源：[Asia’s Energy Markets Watching for Russia-Ukraine Fallout](https://www.newsmax.com/streettalk/asian-energy-markets-russia-ukraine-potential-war/2022/02/15/id/1056854/)
 
  
 
