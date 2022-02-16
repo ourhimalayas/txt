@@ -2,21 +2,35 @@
 ---
 
 
-## 雅典娜时报-第206期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2012013/)
+## 今日盖特大V推荐 — 迪内什·德·索萨（Dinesh D&#8217;Souza）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2012144/)
 
-#### 《雅典娜时报》汇聚全球新闻时事
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1538-e1644988196112.png)
+盖特链接：[https://gettr.com/user/dineshdsouza](https://gettr.com/user/dineshdsouza)
 
-#### 编辑：精灵蓝
-排版：小蚂蚁614
-![圖片](https://media.discordapp.net/attachments/825592691433668612/943315690306306118/155_2-1.png?width=812&amp;height=1209)![圖片](https://media.discordapp.net/attachments/825592691433668612/943315690985762847/155_3-1.png?width=812&amp;height=1209)
-*发布：陶子*
+**迪内希·德·索萨自述：**
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+我是Dinesh D’Souza播客的作者、电影制片人和主持人。 订阅：[https://podcasts.apple.com/us/podcast/the-dinesh-dsouza-podcast/id1547827376](https://podcasts.apple.com/us/podcast/the-dinesh-dsouza-podcast/id1547827376)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1539.png)图片来源：网络
+**迪内希·德·索萨简介：**
+
+迪内希·德·索萨，1961年4月25日出生于印度孟买市，1991年入美国籍。美国政治评论家，作家，纪录片制片人。一位有着25年研究经验的学者和知识分子，曾在里根时代任白宫政策分析师。
+
+迪内希·德·索萨曾先后于美国企业研究院和斯坦福大学的胡佛研究院出任研究员，并于2010～2012年担任纽约国王学院的校长。
+
+迪内希·德·索萨拍摄过多部政治纪录片，在舆论场经常引发巨大争议。他通过多本著作成为公共政策领域最具影响力的亚裔美国人，被《纽约时报》评为美国最具影响力的保守派思想家之一。
+
+编撰：洛杉矶盘古农场 — 心照
+
+校审：洛杉矶盘古农场 — 郭友(文苏)
+
+发布：洛杉矶盘古农场 — 子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
