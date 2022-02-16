@@ -2,34 +2,18 @@
 ---
 
 
-## NewSGman┃NewS Gman给大家拜年啦
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2014198/)
+## NewSGman┃郭文贵先生2022新春大直播开场演唱甜蜜蜜
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2014424/)
 
 撰稿：东京樱花团/NewSGman
 
-NewS Gman给大家拜年啦
+happy chinese new year 2022
 
-祝大家虎年吉祥
+祝福全球战友新春甜蜜蜜健康平安
 
-日本樱花团祝福全球战友虎虎生威火力全开灭共
+七哥特别版甜蜜蜜歌声中开启虎年灭共！
 
-新的一年全力以赴与郭文贵先生一起共建新中国联邦！
-
-传播真相！开启新时代 ！
-
-新人类 新世纪 超越想象之未来
-
-关注我们获取新中国联邦最新信息
-
-紧跟郭文贵先生灭共进程
-
-NewS Gman=New Sakura Group man
-
-欢迎新年加入日本东京樱花团成为新中国联邦人
-
-请点击链接**🔗**[https://discord.gg/NNWCeV8SNY](https://discord.gg/NNWCeV8SNY)
-
-盖特链接：https://gettr.com/post/prrdj5fdf4
+盖特链接：https://gettr.com/post/prmblg165d
 
 编辑：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/yuxingcao01

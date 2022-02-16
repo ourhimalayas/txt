@@ -2,22 +2,27 @@
 ---
 
 
-## 樱花FM┃德国总理在制裁俄罗斯问题上倾向美国
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2014005/)
+## 殡葬业的澳籍举报人投下真相炸弹
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2014224/)
 
-音频：东京樱花团/战友520
-![](https://lh3.googleusercontent.com/hdnHSOUcQfynk1TXLnyydEwEXKL_Lvxwt0ag4RZb9a4hON7NTw1nlq_qfWUw5jW-bUfe3jXTwx-NM3QP3fJbcDZJTOjH_XBYCIzJn9TeG09ODUkyoQFhCGS4dTseCBDQP7agcoeJ)
-在1月7日访问华盛顿特区后，德国总理肖尔茨在与美国总统拜登举行的联合新闻发布会上警告说，如果俄罗斯入侵乌克兰，他将实施 “强有力的、意义深远的制裁”，并表示在制裁俄罗斯问题上将与美国 “一致行动”。
+##### 翻译：Julia Gao
+校对：Lish
+剪辑|字幕：向上James
+编辑：守望黎明
 
-德国拒绝向乌克兰出口武器，至今没有对俄罗斯实施制裁，这让美国对它是否是一个可靠的盟友产生过怀疑。
+新冠疫苗的灾难正在各方面显露出来，这位来自澳大利亚殡葬业爆料人的控诉，字字血泪。殡仪馆里的尸体越积越多，死掉的不仅有很多青壮年，还有打过疫苗的婴幼儿。触目惊心的惨象，让见惯了尸体的殡葬工人都承受不了啦！只要疫苗灾难不止，悲剧就还会不断地上演下去。这真的是一场可能会危害整个人类的大危机。
 
-当被问及德国是否是一个可靠的合作伙伴时，拜登说：”德国是可信赖的盟友，美国和德国之间的信任是牢固可靠的。
+视频链接：[The Funeral industry’s Aussie whistleblower drops the truth bomb](https://twitter.com/TheJuggernaut88/status/1490137007628062722)
 
-文字版原文：[德国总理在制裁俄罗斯问题上倾向美国](https://gnews.org/zh-hans/1977398/)
+*发布：Mttfly*
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
