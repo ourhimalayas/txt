@@ -2,58 +2,28 @@
 ---
 
 
-## 布拉德：数字表明通胀正在扩大
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2012724/)
+## 中日财经爆|失之东隅收之桑榆 澳洲红酒畅销东南亚
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2012779/)
 
-[https://gtv.org/video/id=620c61f8b0af02660af423d2](https://gtv.org/video/id=620c61f8b0af02660af423d2)
+撰稿：东京樱花团/麗子
 
-Jim Bullard (the president and CEO of the Federal Reserve Bank of St. Louis)
-吉姆·布拉德 (圣路易斯联邦储备银行总裁兼首席执行官)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/失之东隅收之桑榆-澳洲红酒畅销东南亚.png)[图片来源](https://www.cnn.co.jp/business/35163071.html)
 
-We’ve been surprised to the upside on inflation
-我们对通胀上行感到惊讶
+15日，以奔富等品牌闻名的葡萄酒生产商澳洲富邑葡萄酒集团（TWE）表示，中共国对澳大利亚葡萄酒实施制裁导致对中共国的出口大幅下降，但东南亚和其他地区的需求增长避免了最坏的情况发生。
 
-This is a lot of inflation in the US economy 7.5%
-美国经济中的通胀率高达7.5%，这是一个很大的问题
+根据该集团2021年下半年的业绩统计，受中共国关税制裁和中共病毒（新冠病毒Covid-19）大流行的影响，净利润同比下降了7.5%。对华出口额从去年同期的7800万澳元（约合64亿日元）急剧下降到200万澳元（约合1.6亿日元）。首席执行官蒂姆福特表示，马来西亚、新加坡、泰国和其他地方的需求表现强劲，业绩方面会有所抵消。
 
-on the headline CPI, these are numbers that Alan Greenspan never saw
-在头条的消费者价格指数，这些是艾伦·格林斯潘从未见过的数字
+由于中共国占澳大利亚葡萄酒出口总额的41%，普遍认为中共国关税制裁可能对澳大利亚葡萄酒行业造成致命打击。但TWE表示，中共国不会在2022年取消制裁关税，但集团有信心度过难关。
 
-They haven’t occurred in 40 years
-已经有40年没有出现了
+中共国不会又故技重施，高价回购澳洲出口到东南亚的红酒吧？！
 
-So our credibility is on the line here
-所以我们的信誉就在这里很危险了
+信息源:
 
-And we do have to react to data
-我们必须对数据做出反应
+[豪ワイン大手、対中輸出激減も東南アジアなどで好調](https://news.yahoo.co.jp/articles/4f6a55340509ba41ff36487b9e99b8444674be5f)
 
-However, I think we can do it in a way that’s organized and not disruptive to markets
-但是，我认为我们可以以一种有组织且不会破坏市场的方式来做到这一点
-
-We’re only removing it
-我们只是删除它
-
-* * *
-
-Date:02/14/2022
-原视频标题:Bullard: numbers indicate inflation is broadening
-布拉德：数字表明通胀正在扩大
-原视频日期：2022/02/14
-原视频链接[**https://twitter.com/squawkcnbc/status/1493217938224078853?s=24**](https://twitter.com/squawkcnbc/status/1493217938224078853?s=24)
-任务编号：KE401（3750）
-视频时间段 : 0:00-0:28
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-文新
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,24 +2,51 @@
 ---
 
 
-## 中日财经爆┃俄罗斯宣布部分撤军后纽约原油期货下跌
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2011809/)
+## 严歌苓怒斥“习近平就是人口贩子” 遭全网封杀
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2011763/)
 
-撰稿：东京樱花团/文小白
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片3-3.jpg)（图片来源于本文链接）
-日本NHK 2月16日消息，在俄罗斯宣布因乌克兰局势撤出部分军队后，纽约原油市场国际原油期货价格下跌，股市道琼斯工业平均指数上涨。
+作者：纽约香草山—侠肝义胆
 
-纽约原油市场上，作为国际原油价格指标的WTI期货价格15日一度跌至每桶90美元的水平。这是继俄罗斯国防部15日宣布部署在乌克兰边境附近的一部分部队将开始撤离后，对产油国俄罗斯原油供应下降的担忧有所缓解所致。
 
-由于对乌克兰局势的担忧，WTI期货价格近期持续上涨，14日一度突破每桶95美元，为时隔约7年零5个月以来的首次。此外，15日纽约证交所买单较多，道琼斯工业平均指数收盘价为34,988.84美分，较前一交易日上涨422.67美分。这也是道琼斯工业平均指数在四个工作日内的首次上涨。拥有众多IT相关股票的纳斯达克股票指数也大幅上涨了2.5%。一位市场官员表示。“乌克兰的紧张局势是否会就此趋于缓解非常不透明，许多投资者对未来发展持非常谨慎的态度。”
 
-信息来源：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-[NY原油先物価格が下落 ウクライナ 軍撤収の発表受けて](https://www3.nhk.or.jp/news/html/20220216/k10013486211000.html)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+
+徐州八孩铁链女事件引发外界关注中国人口拐卖问题，尽管中共已经释出多方面信息以平息民愤，但事件还是不断在网上发酵。
+
+2月6日，国际知名华裔女作家严歌苓在公众微信号，“中国当代诗歌”上发表文章《母亲啊母亲》，表达了自己对”铁链女“事件的强烈愤怒。日前，她在出席一档网路节目中，怒斥“习近平就是人口贩子”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide10-7.jpg)
+严歌苓向來擅长从女性视角，对不同时代的社会现象进行观察，她参与的作品《天浴》、《少女小渔》、《陆犯焉识》、《第九个寡妇》、《芳华》、《金陵十三钗》等叫好又叫座，深受大众喜爱。
+
+不过，自从严歌苓的批评言论被爆光后，目前，中共控制下的新浪微博、百度百科、搜狗百科上已将“严歌苓”三个字全面封禁。有分析人士预计，接下来，严歌苓的作品也很有可能会在中国绝迹。
+
+参考链接：
+[Weibo censored a famous novelist who voiced her anger over China’s inhumanity to women](https://qz.com/2127169/censors-delete-geling-yans-wechat-essay-on-chained-woman-in-china/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+
+总编/编辑：天滅中共
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

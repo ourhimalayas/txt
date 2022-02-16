@@ -2,36 +2,30 @@
 ---
 
 
-## 短视频：特鲁多政府抹黑大卡车运动为暴力行为
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2012671/)
+## 乌国防部和两家银行疑遭俄黑客攻击
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2012752/)
 
-翻译：俏如来
-校对：精靈藍
-视频字幕：qingjing（清净）
-编辑：文泓
+撰稿：东京樱花团/peterwong
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/无标题-3.png)图片来源：视频截屏
+![](https://assets.gnews.org/wp-content/uploads/2022/02/乌国防部和两家银行疑遭俄黑客攻击.png)[图片来源](https://gnews.org/wp-admin/post-new.php#imgrc=DSmqsOskTkUD-M&amp;imgdii=WrdfoMMwVY-SqM)
 
+乌克兰国防部和两家银行的网络周二（2月15日）瘫痪，乌克兰的信息安全中心将矛头指向大军逼境俄罗斯。
 
-根据贾斯汀·特鲁多的说法，在渥太华市拥有汽油现在是一种犯罪行为。
+隶属于文化部的乌克兰战略通信和信息安全中心在一份声明中称，“不排除侵略者因为其大规模的侵略计划不奏效，就使出这些肮脏的小伎俩。”
 
-现在，需要明确的是，渥太华确实宣布进入紧急状态，因为卡车司机们“点燃了一座法院，开枪伤人或夷平了教堂”——这是黑命贵运动（Black Lives Matter，BLM）的那些人做了所有这些事情。但贾斯汀·特鲁多强烈支持 BLM运动。前几天他还重申支持BLM，这就是问题所在。我们将让渥太华市长解释为什么和平的卡车司机对加拿大构成迫在眉睫的危险？
+基辅指责莫斯科在过去以及俄罗斯开始在俄乌边境附近集结超过10万兵力以来采取了类似的黑客行动。俄方的军事部署加剧了东西方的紧张关系，因为西方担心俄罗斯正计划攻击乌克兰。
 
-当你看到抗议变成某种有趣的嘉年华时，你会感到不安，那里有充气城堡、热水浴缸和桑拿房。对过去七天一直忍受卡车司机的各种恶行的市民来说是种极端侮辱，对卡车司机的做法表现出极大的麻木不仁。
+乌克兰当局周二报告的网络破坏类型被称为分散式阻断服务攻击–通常缩写为DDoS–但尚不清楚其规模。这种手段通过将来自多个来源的互联网流量引向一组服务器，在互联网上很常见，这种攻击在乌克兰和其他国家经常发生。
 
-卡车司机竟然为孩子们准备了充气城堡，没有孩子的渥太华市长咆哮着说：“让我们伤害、惩罚他们。”是的，女士们，先生们，在卡车司机的领地，孩子们在充气城堡玩耍上是一个黑暗的场景。当然，与此同时，孩子的父母会向政府展示那些负责让孩子在充气城堡上玩耍的人是在犯罪。请观看一位“白人至上主义者”的抗议，解释他抗议的动机。
+美国和欧洲官员周二表示，美国及其盟友已经为俄罗斯在乌克兰紧张局势升级之际发动网络攻击做好了准备，报复行动或制裁的级别取决于黑客攻击的严重程度。
 
-你当时在哪里呢？你根本不在那里。但是现在，你冒着严寒出来反对我的基本人权和自由吗？我不会接受你这种做法，我并不孤单，站在旁边的就是我的兄弟。这是我的兄弟，就在这里。你们都没有权利告诉我应该与谁交往，不与谁交往。因为你没有站出来表达你对贾斯汀·特鲁多因为我的医疗决定而禁止我离开这个国家的做法的担忧，只是因为我做了一个他不喜欢的决定他就不允许我离境。
+消息来源:
 
-视频链接：[Wittgenstein 在 Twitter: “Tucker Carlson on how Canadian liberals want to intimidate the truckers https://t.co/Mt9Q4ccFCc” / Twitter](https://twitter.com/backtolife_2022/status/1491163995877027844?t=0ntydQ3gOH-bxoV5k-VL3A&amp;s=19)
-发布：文泓
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[（更正）乌克兰国防部和两家银行的网络遭到黑客攻击 乌方将矛头指向俄罗斯](https://cn.reuters.com/article/ukraine-defence-banks-hacking-attack-021-idCNKBS2KL04T?il=0)
 
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
