@@ -2,34 +2,38 @@
 ---
 
 
-## 俄乌若开战，台湾危急，华人危险
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2010801/)
+## 加拿大魁北克省截至三月十四日完全取消疫苗护照
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2010887/)
 
-**据网易2022年02月13日报道：俄乌边境危机或将迎来最终时刻，乌克兰放狠话“欢迎来到地狱”。**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/kaxewi-lk65s.jpg)**图片来源：Twitter**
-郭先生爆料，过去两年，普习密谋发动乌克兰和台湾两场战争，极有可能在冬奥会期间，习已经隐身8天密谋攻打台湾。这一消息得到验证，乌克兰局势危急，乌总统2月14日发表讲话表示，得到消息，2月16日将是俄攻击日，乌全民备战。
+**编译: 真北007**
 
-普京计划攻打乌克兰，除个人私心外，还有战略和经济考量。习皇帝仅仅为了个人和家族利益，强行攻占台湾。普京将攻打乌克兰作为政治谈判筹码，在中共和欧美之间获利。习皇帝除在老百姓身上不断抽血外，就是梦想红朝大一统。若中俄联盟打两场战争，那么世界会联手采取一切可能手段，包括军事行动和各种制裁，把中俄共同消灭，社会主义余毒将在全世界消亡。
+来自MONTREAL GAZETTE 二月十五日的新闻报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/5A040985-4FE9-49A1-A6FE-BFF0404E08B7.jpeg)图片来源：https://montrealgazette.com
+魁北克卫生部长周二宣布，魁北克将逐步淘汰疫苗接种护照系统，至 3 月 14 日完全取消。
 
-乌以获得俄攻打日期，美英也早已通报俄进攻乌克兰的方式和策略。对于这样公昭于世的一场战争，普京会如何选择？特别在见识到冬奥会中共公然造假违约的情形后，依然要冒天下之大不韪强行攻打乌，换取自己王朝覆灭？还是假装佯攻，联手西方，获利在前，捅中共与后？历史上不乏战争疯子，大家拭目以待。
+魁北克卫生部长克里斯蒂安·杜贝（Christian Dubé）周二表示，魁北克将逐步淘汰疫苗接种护照系统。
 
-至于习皇帝，是否攻打台湾其结局都一样——死无葬身之地。打台湾，被世界迅速消灭，不打，高层内斗也会置习于死地。墙内百姓还为习欢呼，不知自己就是那个付出的代价。历来“一将功成万骨枯”，战场上死的少有显贵之子，都是百姓的孩子。在世界各国纷纷通知本国公民和驻外人员撤离的情况下，外交部今日表示，发布提醒注意安全。这就意味着中共国公民在乌的死活自己负责，不会有跨国救老百姓的神话。
+从明天周三开始，您在进入 酒类专卖店Société des alcools du Québec (SAQ) 和 Société québécoise du大麻店 (SQDC) 或进入大型商店时将不再需要出示疫苗护照。
 
-海外华人也会受到波及，反华浪潮开启。邪恶的中共，在最后崩塌前，还要拉上所有华人为其付出代价。所有华人都不能再心存幻想，应当团结、互助，广泛宣传中共不等于中国人这一事实，多一个声音就多一点生存空间。
+从 2 月 21 日起，进入礼拜堂或参加葬礼将不再需要疫苗护照。3 月 14 日，疫苗护照将完全取消（ Dubé 建议魁北克人将应用程序保留在手机上，以防第六波浪潮和国际旅行）。
 
-**声明**：**文章观点仅代表作者个人，与gnews平台无关**
+从3月 14 日起，您无需出示疫苗护照即可进入餐厅、酒吧、健身房或电影院，或参加其他公共活动。魁北克没有对在大多数室内环境中强制佩戴口罩的规定进行任何更改。
 
-**新闻链接：**[https://www.163.com/dy/article/H038AQCI0514FGV8.html](https://www.163.com/dy/article/H038AQCI0514FGV8.html)
+周一，省长弗朗索瓦·乐高表示，他希望尽快放弃为抗击 COVID-19 而制定的所有卫生措施。
 
-素材：洛杉矶盘古农场 — Poplar
-评论：洛杉矶盘古农场 — Poplar
-审核：洛杉矶盘古农场 — 柯镇恶
-发布：洛杉矶盘古农场 — 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+**原文链接：**
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[Vaccine passport ‘has shown its usefulness,’ but is less necessary now, Dubé says](https://montrealgazette.com/news/local-news/vaccine-passport-has-shown-its-usefulness-but-is-less-necessary-now-dube-says)
 
+**编辑：LILY**
+
+**发布：歪桑**
+
+20220215
+
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3-4.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,25 +2,25 @@
 ---
 
 
-## 香港因疫情延长对八个国家的航班的禁令
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2010682/)
+## 欧盟专员表示不再需要疫苗强制
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2010860/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+作者：加拿大温哥华扬帆农场 – Spirit
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据外媒2月11日报道，出于对日益严重的中共病毒疫情的担忧，香港政府当天延长了对美国、英国、澳大利亚、加拿大、法国、印度、巴基斯坦和菲律宾八个国家的入境航班的禁令。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/6-24.jpg)
-在对上述八个国家延长禁令的同时，香港政府还将禁令扩展到了尼泊尔，
+根据《德国之声》2月13日消息，欧盟经济专员真蒂洛尼(Paolo Gentiloni)表示，讨论疫苗强制的时间已经过去。同时，一位重要的德国立法者表示，强制疫苗措施不会在议会中得到大多数人的支持。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8-19.jpg)
+真蒂洛尼认为，疫情的严重程度在下降，整个欧盟的死亡和住院人数总体上有所下降，各国政府没有理由再推出普及冠状病毒疫苗强制。他说 “我们正走在放宽限制的同一条道路上，每个国家都是如此”。
 
-目前飞往香港的航班减少了90%，几乎没有航班被允许过境。
+德国议会中最大的反对派团体–保守的基民盟/基社盟的议会领袖说，联邦政府疫苗强制不会得到多数票。
 
-据悉，香港过去14天新增了大约4000个病例，是中共病毒在当地最大规模的爆发。尽管绝大多数近期增加的确诊病例都是本地病例，但在中共的控制下，这座城市仍希望通过将自己与世界隔离来控制病毒。
+世界各地抗议疫苗强制活动不断，很多国家都在渐渐放开疫情限制和取消疫苗强制。
 
-参考链接：[Hong Kong extends ban on flights from eight countries, adds Nepal](https://www.reuters.com/world/asia-pacific/hong-kong-extends-ban-flights-eight-countries-adds-nepal-2022-02-11/)
+参考链接：[COVID digest: Vaccine mandate no longer necessary — EU commissioner](https://www.dw.com/en/covid-digest-vaccine-mandate-no-longer-necessary-eu-commissioner/a-60760531)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
 总编: Zion文恩
-编辑： 飞虹
+编辑：Lakeman文仁
 校正/发稿：Fei797
 
 **更多资讯，更多关注**

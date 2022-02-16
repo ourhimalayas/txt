@@ -2,32 +2,32 @@
 ---
 
 
-## 韩国连续5天疫情加剧，总统候选人妻子染疫
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2010894/)
+## 经济的崩塌，虚拟货币是最大赢家
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2011012/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月14日，韩国中共病毒单日确诊新增5.46万例，已连续5天新增超过5万例，居家治疗人数已超过23万例。总统候选人安哲秀的妻子金美京也在此轮中不幸染疾。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/9-13.jpg)
-奥米克戎变异株疫情近期在韩国快速扩大，首尔、仁川、京畿道等人口密集的首都圈社区感染占56.9%。据韩国中央防疫对策本部统计，截至14日凌晨，全国累计确诊超140万例。采取居家治疗的大多为轻症及无症状患者，同时，重症及死亡人数增加速度相对放缓。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-据悉，目前正在各地开展竞选活动的总统候选人安哲秀，昨天通过视频透露其妻金美京确诊消息，并表示妻子患有慢性疾病，病情并不乐观。同为首尔大学医学系毕业的两人自疫情爆发以来，一直在医疗前线工作，受到相当广泛的好评。
+2022-02-13直播摘录09：06：38
 
-参考链接：[韓國確診連5天破5萬例 總統候選人安哲秀妻子染疫\[影\]](https://www.cna.com.tw/news/aopl/202202140034.aspx?topic=2012)
+就是中国共产党疯了，而且这个疯狂被俄罗斯彻底利用，赢家一定是俄罗斯，赢家一定是美国，灭的是中国，而且欧洲因此会重生。在这个过程当中，芯片、芯片产业、大型货运、石油、石油产品和俄罗斯有关的金属产品都会暴涨，大家都赚大钱；同样的，是跟这无关的、因战争受影响的，会赔死你。金融市场会暴跌暴涨，上上下下，不是过山车，那真的是跟上火箭上下似的。虚拟货币是大赢家，是吧，这一点大家不用想的吧？虚拟货币是最大赢家，虚拟货币最大赢家就是Hpay、H币，你还用想吗？你最好别买，有种别买。“我就有种！” 你有种别买。大家现在卖币的人我告诉你，你后悔早着呢，就我能看到有些战友傻呼呼的，场外60、65、70卖了，你哭那天很快就会到来。记住我今天说的，你要超过三个月，你就天天骂我郭文贵。你不知道在发生什么，此时此刻在发生什么。我没有本事决定，我没有决定权，我没有控制权，我绝对影响他们，因为什么？我所有这些关系，他们信我的，我的积累的信誉和知识。我说兄弟姐妹那三招儿：国家主权认可、大额投资、Hpay全面使用。你去想一想这事情，在发生什么事情？世界的所有的经济在崩塌的时候，喜联储、喜币、Hpay、接下来的躺平币，使用即金钱。记住，国内的战友们，只要你使用盖特，你使用GTV、使用GNew、使用HCoin，就是钱，我不跟你们开玩笑。Danny一会儿回去跟你老婆说，咱俩现在之间每天在“流水”前，咱俩互相传10个币，你别以为开玩笑，你未来会发现你的H币会比任何人都值钱。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-总编: Zion文恩
-编辑： 宁文静
-校正/发稿：Fei797
+**关注我们**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

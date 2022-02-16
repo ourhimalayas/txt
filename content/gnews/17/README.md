@@ -2,35 +2,32 @@
 ---
 
 
-## 华盛顿特区15日起结束疫苗强制接种
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2010742/)
+## 银行是人类上最大的骗局
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2010866/)
 
-作者：纽约香草山 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月14日，华盛顿特区市长穆里尔·鲍泽在新闻发布会上说，刚刚实施了一个月的中共病毒疫苗强制接种政策，将于2月15日结束。另外，口罩令也将于3月1日取消。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/7-20.jpg)
-鲍泽说，进入室内场所，将不再要求顾客出示疫苗接种证明，但企业可自主决定是否把疫苗的要求，作为进入其场所的条件。从3月1日起，一些室内场所将不再需要口罩，包括餐馆、酒吧、体育和娱乐场所、健身房、企业、零售机构和杂货店。但学校、图书馆、托儿所和医疗机构、疗养院、为公众服务的特区政府办公室、公共交通、出租车和共享汽车仍然需要戴口罩。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-该市还将在本月底结束设立在特区消防队的核酸测试服务。评论人士认为，尽管离全面解除各项限制政策尚有一定的距离，但作为一向严苛的民主党执政特区，毫无预兆地宣布结束疫苗证明和逐步取消口罩令，颇让人意外。
+2022-02-13直播摘录08：48：49
 
-参考链接：
-1) . [DC Is Ending Its Vaccination and Mask Mandates](https://www.washingtonian.com/2022/02/14/dc-is-ending-its-vaccination-and-mask-mandates/)
-2) . [COVID-19 ACTION PLAN 3 STATE OF EMERGENCY 2022 WINTER SURGE](https://coronavirus.dc.gov/sites/default/files/dc/sites/mayormb/release_content/attachments/Situational-Update-Presentation_02-14-22.pdf)
-3) . [LIVE: Mayor Bowser Provides COVID-19 Situational Update](https://twitter.com/mayorbowser/status/1493262671050776577?s=21)
+你们一定要看一看刚刚在BBC录的这个片儿，叫 “比特币结束金钱”。七哥讲了那么多遍你们不听，你们愿意听外国人的，那里边儿最简单的告诉你：你把钱存到银行了，100块钱，是吧？然后银行留下3%，它把97%记了个数据，它借给了另外一家银行。记住啊，这个在银行的报表上，你存100块钱，这钱就属于银行的了。银行答应你说，你可能把钱取回去，但法律规定：银行破产，一分不用还你。在你的钱放到银行报表，就是文紫辛辛苦苦当医生，就是一个月5000美金也好、3000美金也好。你放到银行，银行就把你的5000也好、3000也好，就借给，就贷给别人了，赔了，不用还你的。它在没倒闭前，只给你3%的备用金，其它都不是你的，都在账表上是它的钱。它给了另外一家银行，另外一家银行又变成了它的钱，是吧？又是5000，4900。又是5000，又给它。就这么一次次累加，这就叫银行资产。告诉你，这都是假的，这就叫数据。而且每8年来一回破产，这些钱都不用还了。然后银行根据它所有你的存款印出大量的钞票，这就叫流动性。流动性就是让你继续劳动，我越辛苦，你赚钱；你赚钱，你越辛苦，最后它赚钱，最后就落到几个人手里。就全人类就给几个人打工。最辛苦的人一定不是最幸福的人，一定不是，是吧，这就是游戏呀。金钱、银行是人类上最大的骗局，就这么简单。比特币本来是伟大得不能再伟大的，因为它现在就是因为邪恶要干掉它。我们希望比特币长命万岁万万岁，它没办法，因为它是去中心化，它是被人家利用洗钱犯罪。而且这个所谓的真正的、合法的流氓沼泽地要把它干掉的。为啥只剩下喜币？如果不相信，不要用喜币。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-总编: Zion文恩
-编辑： 谐趣园
-校正/发稿：Fei797
+**关注我们**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
