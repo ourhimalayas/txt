@@ -2,39 +2,32 @@
 ---
 
 
-## 中共《环球时报》为何高调支持澳洲大选的某一政党
-` 喜国公民` [轉載自GNews](https://gnews.org/zh-hans/2011856/)
+## 中日财经爆┃世茂集团欲22亿出售上海深坑酒店还债
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2011907/)
 
-By：喜国公民
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1527.png)图片来自网络
-中共《环球时报》发表文章支持现澳洲工党领袖安东尼·阿尔巴尼斯，希望他在今年的联邦大选中胜出，接替现任总理斯科特·莫里森。文章认为工党领袖可以改善澳洲与中共国的关系。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-13.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https://i.tlaidesign.com/uploads/2019/02/1551063163140379.jpg&amp;imgrefurl=https://www.tlaidesign.com/shanghai-sheshan-shimao-shenkeng-intercontinental-architecture-design-jade-qa.html&amp;tbnid=pktmcxhEVWGMHM&amp;vet=12ahUKEwjv3eewo4P2AhXaEKYKHQxfDooQMygFegUIARCOAQ..i&amp;docid=iM0OKIU9I_whJM&amp;w=1349&amp;h=900&amp;q=%E4%B8%8A%E6%B5%B7%E4%BD%98%E5%B1%B1%E4%B8%96%E8%8C%82%E6%B4%B2%E9%99%85%E9%85%92%E5%BA%97&amp;ved=2ahUKEwjv3eewo4P2AhXaEKYKHQxfDooQMygFegUIARCOAQ)
+继以45亿元出售上海外滩茂悦大酒店之后，地产巨头世茂集团近日又因“挂牌22.5亿元出售深坑酒店”上了热搜。
 
-不用质疑，在历史上，工党的确与中共有着紧密的合作关系。例如，目前由工党执政的维州曾[与中共签署了一带一路的项目](https://www.internationalaffairs.org.au/australianoutlook/tearing-up-the-belt-and-road-initiative-australias-rejection-of-chinas-new-silk-road-in-victoria/)。前工党领袖以及前总理陆克文曾接受中共党校的资助，[跑到牛津大学研究习近平思想](https://twitter.com/vanessa_zhanguk/status/989592642748141570)，还紧跟潮流学习中共十九大报告。
+近期网传世茂集团将出售上海佘山世茂深坑酒店的消息，并标明“现报价22.5亿对外出售”。该报价信息与此前流出的世茂集团待售资产清单信息一致，该酒店挂牌其评估值为22.5亿元，抵押融资余额为20.73亿元。
 
-但值得令人深思的是，中共干预别国大选，一向是暗中动手脚，耍阴招，为何这次如此嚣张，明目张胆地公开支持工党，其背后的葫芦里买的又是什么药呢？
+公开资料显示，深坑酒店的全称为上海佘山世茂洲际酒店，历时12年打造、总投资超过20亿元，2018年11月正式营业，位于上海市西南郊佘山景区的天马山深坑内，是世茂集团在废弃的采石矿坑壁打造的自然生态酒店。该酒店海拔负88米，是全球人工海拔最低的五星级酒店，还被美国国家地理频道《世界伟大工程巡礼》评为“世界十大建筑奇迹”酒店。
 
-同时，澳洲的主流媒体最近几天连续发表文章，高调批评工党与中共的勾结，曝光工党与中共的历史。不免让人感觉，执政党是否在利用中共故意炒作来提升自身的支持率。
+财务数据显示，2018年深坑酒店收入约为3200万元，2019年实现收入约2.79亿元，2020年实现收入约2.65亿元；2021年上半年实现收入约1.34亿元。近三年累计收入超6亿元。
 
-执政党因为实施不得人心的疫苗强制接种政策，[其支持率明显下滑](https://www.theguardian.com/australia-news/2021/nov/09/scott-morrisons-approval-rating-at-lowest-point-since-aftermath-of-black-summer-bushfires)，最近又[改变了新冠疫苗完全接种的定义](https://www.servicesaustralia.gov.au/changes-to-definition-fully-vaccinated-for-covid-19)，积极推进新冠疫苗第三针的接种，不得人心，引发了澳洲民众在首都堪培拉的大规模抗议活动。
+对于世贸集团出售历时十几年打造的豪华酒店，原因则是欠债太多了。
 
-不管哪个政党执政，都必须对中共病毒的来源进行追责，并停止侵犯人权的新冠疫苗强行接种政策。
+根据去年上半年年报数据，截至上半年世茂集团的总负债达4636.33亿，其中1200.71亿元为长期借款，短期借款为444.43亿，而其账上的现金及现金等价物仅有747.69亿。
 
-相比之下，没有注射新冠疫苗的澳洲亿万富翁克莱夫·帕尔默准备参加今年的联邦选举。[他将开展有史以来最昂贵的选举活](https://www.brisbanetimes.com.au/national/queensland/unvaxxed-billionaire-clive-palmer-promises-most-expensive-election-campaign-ever-20220119-p59ph4.html)动。他的重返政坛非常令人瞩目。
+另据瑞银报告，世茂集团在2022全年将有价值44亿美元的境内、境外债券以及境外银团贷款到期，且不包括1200亿元人民币的表外债务，世茂集团的负债压力极大。
 
-消息来源：[China’s Global Times backs Anthony Albanese as Prime Minister as questions mount over Labor’s ties with Beijing](https://www.skynews.com.au/australia-news/politics/chinas-global-times-backs-anthony-albanese-as-prime-minister-as-questions-mount-over-labors-ties-with-beijing/news-story/2c0f4226a802df781026bcd967ca9f25)
+信息来源：
 
-[China will ‘try in every way’ to influence Australian politics](https://www.skynews.com.au/opinion/andrew-bolt/china-will-try-in-every-way-to-influence-australian-politics/video/ab56c848968db623619b19b666312eb9)
+[22.5亿出售深坑酒店？昔日巨头世茂集团最新回应](https://finance.sina.com.cn/chanjing/gsnews/2022-02-14/doc-ikyamrna0595561.shtml)
 
-[Tearing Up the Belt and Road Initiative: Australia’s Rejection of China’s New Silk Road in Victoria](https://www.internationalaffairs.org.au/australianoutlook/tearing-up-the-belt-and-road-initiative-australias-rejection-of-chinas-new-silk-road-in-victoria/)
-
-[陆克文，不仅跑到牛津大学研究习近平思想，紧跟潮流学习十九大报告](https://twitter.com/vanessa_zhanguk/status/989592642748141570)
-
-[Unvaxxed billionaire Clive Palmer promises most expensive election campaign ever](https://www.brisbanetimes.com.au/national/queensland/unvaxxed-billionaire-clive-palmer-promises-most-expensive-election-campaign-ever-20220119-p59ph4.html)
-
-[Scott Morrison’s approval rating at lowest point since aftermath of black summer bushfires](https://www.theguardian.com/australia-news/2021/nov/09/scott-morrisons-approval-rating-at-lowest-point-since-aftermath-of-black-summer-bushfires)
-
-[Changes to the definition of fully vaccinated for COVID-19](https://www.servicesaustralia.gov.au/changes-to-definition-fully-vaccinated-for-covid-19)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

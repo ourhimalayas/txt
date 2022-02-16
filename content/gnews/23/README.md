@@ -2,27 +2,22 @@
 ---
 
 
-## 辉瑞用误导词汇推广他们的疫苗是100%有效
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2011731/)
+## 特鲁多的《紧急状态法》遭各界强烈谴责
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2011798/)
 
-##### 素材：小菠萝
-翻译：Annabelle
-校对：Lish
-剪辑|字幕：向上James
-编辑：Mttfly
+采编： Spirit         编辑撰稿：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2022/02/02-image-2.jpg)
+据《福克斯新闻》2月15日报道，在加拿大总理特鲁多启动《紧急状态法》以阻断卡车司机自由车队的资助途径后，立即遭到了各界包括公民自由团体的强烈反对，并谴责当局此举实为政府统治权力的非法扩张。
 
-根据辉瑞的数据，六个月后，打了疫苗的组里有20人死亡，打了安慰剂的组里死亡14人（每组各22000人）。这说明了如果你打了疫苗比不打疫苗高出48%的死亡概率。辉瑞对于他们死因的数据说的是：在打疫苗组里有5人死于心脏病，在安慰剂组，1人死于心脏病。所以你打疫苗，死于心脏病发作的几率会增加500%。我们看到死亡率高的超乎想象，可能只有低于1%的死亡病例被实际报告。许多打了疫苗几个月或几周后死亡的案例没有报告到VAERS系统里，根据美国卫生与公众服务部的一项调查显示，少于1%的疫苗死亡案例被报告。
+为此，[公民自由协会]称：由于《紧急状态法》的目的是为了“国家有能力维护其主权、安全和领土完整”，并只适用于“根据加拿大任何其他法律都无法有效处理”的事件。因此，当前民众的和平抗议活动，不仅完全不符合联邦政府启用该法案的标准，更极度危害了本国的民主制度。
 
-视频链接：[Pfizer used deception to market their vaccines as “100% effective,” and compared to the placebo group, more people died amongst the vaccinated.](https://twitter.com/vigilantfox/status/1491171353206325248?s=21)
+相关学者也指出：《紧急状态法》必须在各省政府的一致同意下，才能被启用。如果地方当局不愿合作，那么联邦政府就不得不放弃执行。此外，由于该法案所特有的针对性、战略性和克制性，因此，擅自实施《紧急状态法》将造成特鲁多政府权力的无限集中和膨胀，而最终导致灾难性的后果。
 
-*发布：Mttfly*
+校对编辑：硫酸羟氯喹64
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+发稿：苦尽甜来 (文来）
+
+原文链接： [https://www.foxnews.com/world/canadian-civil-liberties-groups-respond-to-trudeau-invoking-emergencies-act](https://www.foxnews.com/world/canadian-civil-liberties-groups-respond-to-trudeau-invoking-emergencies-act)
 
  
 

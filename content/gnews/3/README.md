@@ -2,25 +2,32 @@
 ---
 
 
-## 纽约市解雇近1500名拒绝打疫苗的工作人员
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2011941/)
+## 印度财政部正在对数字货币进行磋商
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2012010/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-264.jpg)
-图片来源： www.163.com
+撰稿: 银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-26.png)
+日前，印度一名高级官员声明表示，短期内该国数字资产状况的监管不确定性将持续存在。
 
-零对冲网2月15日报道，自1月份以来，已有4000名纽约市工作人员收到通知必须有完全疫苗接种才能继续工作，约有3/4的工作人员因没有在到期以前打疫苗而无薪离开岗位。
+据悉印度财政部长Nirmala Sitharaman在对2022-23年联邦预算的讨论时表示，她目前暂时不会合法化或是禁止数字货币，在财政部纳入审查磋商时，即刻就会有消息公示。 Sitharaman还提到，国家拥有公民从数字货币交易盈利的税收权力。此外，政府征收数字货币税的能力与合法承认资产类别的问题是区分开的。印度税务当局负责人也认为，对数字资产征税的计划并不一定意味着交易合法化。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1530.png)图片来自：https://cointelegraph.com/
+据悉印度最近成为数字货币重大监管新闻的爆发地，其中关于2021年底可能会禁止数字货币的谣言撼动动了全球数字货币市场。
 
-纽约市长亚当在周一的陈述中建议拒绝打疫苗者离职。他说：“ 我们的目标是让你打疫苗，不是不让你工作。工作人员在疫情期间都是工作在第一线，他们需要做对的事情以保护自己。” 在纽约市37万工作人员中有1430名工作人员（不到1%）因不打疫苗而被解雇。
+目前，威胁已经过去，包含禁令提案的法案被排除在本届议程之外。同时印度政府可能在2022年晚些时候或2023年引入央行数字货币（CBDC）。
 
-在被解雇的人中，64%是教育部门工作人员，其余还有来自市政府房屋管理部门，惩教署，卫生部门和警局。
+新闻来源: [India’s finance minister waiting for consultations to decide whether to ban or regulate crypto](https://cointelegraph.com/news/india-s-finance-minister-waiting-for-consultations-to-decide-whether-to-ban-or-regulate-crypto)
 
-联合教师联合会已经与市政府达成协议，允许其成员在9月5日前无薪离职，但有700名教师工会成员选择不延期无薪离职，或者递交了疫苗证明。工会辩称应该给工作人员在解雇前有一个听证的过程的机会。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-196.jpeg)
 
-##### 新闻来源： [New York City Fires Nearly 1,500 Workers For Refusing COVID-19 Vaccine: Mayor](https://www.zerohedge.com/political/new-york-city-fires-nearly-1500-workers-refusing-covid-19-vaccine-mayor)
+校正/发稿：浪迹天涯
 
-#####  
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-25.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

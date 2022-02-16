@@ -2,33 +2,33 @@
 ---
 
 
-## 有声|英国官方证明中共病毒疫苗诱发“艾滋病”
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2011658/)
+## 纽约市解雇1400多名拒绝接种疫苗的员工
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2011778/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+2022-02-15
 
+翻译：文舞两道
+![](https://assets.gnews.org/wp-content/uploads/2022/02/@63ELQITUWMDI44P4D3U.png)图片来源：https://www3.nhk.or.jp/
+美国纽约市14日宣布，解雇了1400多名没有接种疫苗的员工
 
-外媒2月13日报道，英国卫生安全局数据证明，随着时间的推移，中共病毒疫苗会损害人体免疫系统，造成疫苗诱发的“艾滋病”。
+据NHK新闻2月16日报道，美国纽约市14日宣布，已经解雇了1400多名没有接种疫苗的员工。
 
-2月3日，英国卫生安全局发布的一月份病毒病例数据。按照疫苗接种状态分类，该月大多数病例属于接种三剂疫苗的病例。该数据表明，一个人的免疫系统接触疫苗的次数越多，病毒发病率就会越高。
+在美国，要求员工必须接种疫苗的大城市和公司越来越多，不过反对意见也根深蒂固，两种意见泾渭分明。
 
-更重要的是该数据显示疫苗对人体免疫系统损害程度，研究发现，英国完全接种疫苗的成年人比未接种者的免疫应答低65％。 因此，完全疫苗接种者其人体免疫力只有正常人的35％，根本无法抵抗病毒和癌细胞侵蚀。
+纽约市要求市政府工作人员包括医护人员和教师在内，至少需接种一次新冠病毒疫苗。对截止去年10月底未接种疫苗者实行无薪休假，其中约2400人在本月11日休假期限结束。14日纽约市宣布解雇了1400多名没有接种疫苗的员工。
 
-文字版原文：[英国官方证明中共病毒疫苗诱发“艾滋病”](https://gnews.org/zh-hans/2007696/)
+纽约市的数据显示，在大约 370,000 名员工中，至少接种过一次疫苗的比例从去年 10 月的 85% 增加到目前的约 95%。
 
-音频处理：Fei797
-发稿：Fei797
+在美国，虽然在伊利诺伊州芝加哥和马萨诸塞州波士顿等大城市要求员工接种疫苗的运动越来越多，但反对意见也根深蒂固，拜登政府的大公司员工强制接种疫苗的政策被联邦最高裁判所叫停并取消后，因地区和政治立场而产生的分歧越来越大。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+参考链接：[アメリカ ニューヨーク市 接種拒否の職員1400人余を解雇](https://www3.nhk.or.jp/news/html/20220216/k10013486171000.html)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+编辑：LILY
+发布：肥鯮
+
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
