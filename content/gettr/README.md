@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/16/2022 12:54 PM (UTC)`
+
+2022年2月16日 文贵大直播：疫苗公司股价变化；中国人寿王滨被抓；世界多地反华苗头；冬奥会锁链女后续；太平联盟官司进展；七哥赴日英后安排
+![img](https://media.gettr.com/group19/origin/2022/02/16/12/3e8f4b44-52fd-03f4-f109-b29948e3a090/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 2/16/2022 11:28 AM (UTC)`
 
 ⚠️⚠️Cronología del Nuevo Estado Federal de China sobre el virus del PCC y las vacunas COVID<br/><br/>El NEFC siempre ha estado comprometido con la verdad y con salvar vidas exponiendo la naturaleza malvada del PCC y el hecho de que crearon el virus del PCC que ha matado a millones de personas en todo el mundo. Además, el NEFC ha estado difundiendo al mundo la terapéutica COVID y los medicamentos relacionados, así como la información y los datos reales sobre las vacunas COVID. Todos los hechos demuestran que lo que hizo el PCC no tiene nada que ver con el pueblo chino, el PCC no puede representar al pueblo chino, que también es la víctima.<br/><br/>⚠️⚠️关于新中国联邦爆料中共病毒和中共病毒疫苗灾难预警时间线—西语版<br/><br/>新中国联邦致力于揭露中共邪恶本质，揭露他们制造中共病毒在全世界造成数百万人死亡的事实以及COVID疫苗的真实目的，以拯救生命。中共的所作所为与中国人民无关，中共不代表中国人民，中国人民也是受害者。
@@ -145,13 +152,6 @@
 
 2/13/2022 Miles Guo: The CCP and Russia are the culprits of the imminent world war behind the scenes. The proxy war in Ukraine is about to happen. The CCP has been claiming to wage a war against Taiwan in Coommunist China. Only the New Federal State of China and the Whistleblowers’ Movement have given the world an advance warning of the evil war plan of Russia and the CCP.<br/><br/>2/13/2022 文贵直播：中共和俄罗斯是即将发生的世界大战的幕后黑手，乌克兰的代理人战争一触即发；中共正在国内叫嚣对台开战，而只有新中国联邦、爆料革命向全球提前警告了中俄的邪恶战争计划<br/><br/>
 ![img](https://media.gettr.com/group14/getter/2022/02/14/08/0956e524-9d92-bc39-a92a-f77cca9971c9/out.jpg)
-
----
-
-`@miles 2/14/2022 3:44 AM (UTC)`
-
-2/13/2022 Miles Guo: I’ve made accurate judgments on the oil futures, supply chains, and chips. Before Russia’s war against Ukraine, many countries in Eastern Europe and Northern Europe have sided with the US, with Germany welcoming the return of the US troops and the deployment of nukes. Xi Jinping and the CCP thought they were smart in terms of dealing with Russia, but they ended up in an embarrassing situation where Putin took hundreds of billions of dollars from them.<br/><br/>2/13/2022 文贵直播: 文贵在石油期货、供应链和芯片上判断精准；俄国对乌克兰尚未开战，东欧和北欧等国已倒向美国，德国欢迎美国驻军并允许部署核武器；习太阳和中共弄巧成拙，被普京卷走千亿美元
-![img](https://media.gettr.com/group34/getter/2022/02/14/03/2788a298-87c7-ede8-aa8a-5f5fbde164f8/out.jpg)
 
 ---
 

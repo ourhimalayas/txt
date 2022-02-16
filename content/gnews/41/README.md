@@ -2,73 +2,24 @@
 ---
 
 
-## 众议员莫·布鲁克斯推《中共国COVID-19赔偿法案》
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2012456/)
+## 樱花FM┃拜登政府二度批准对台军售
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2012339/)
 
-> 众议员莫·布鲁克斯：[#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw) 撒谎，人民死亡。我希望共产主义中国向受到伤害的美国人赔偿，因为他们制造了 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hash&amp;ref_src=twsrc%5Etfw) 之后还撒谎掩盖从而伤害了美国人。
-> 【附中字视频】 [https://t.co/N2vG2vMj8e](https://t.co/N2vG2vMj8e) [pic.twitter.com/2tcrnnTUAS](https://t.co/2tcrnnTUAS)
-> — 美国政要直译推 (@zhiyitw33) [February 16, 2022](https://twitter.com/zhiyitw33/status/1493784086158086148?ref_src=twsrc%5Etfw)
+音频：东京樱花团/战友520
+![](https://lh3.googleusercontent.com/bSY1RrxVwjxw0RUrhRHAMIh8oqydLM4Bsh03EHQsAxcJnxDa0T9AUFsgE5WwvhYNL3j2UQ901b_P_LWLAU7S9JdmCVyyaxGuowHfMynHltzoHBB2kymUJfvTlGLPmX-VlLlDo2Bx)
+美国国务院周一 (2月7日) 宣布，基于《台湾关系法》，已批准对台湾出售价值1亿美元、为期5年的爱国者系统工程勤务计划。美国国务院表示，这批军售案能有助于提高台湾的安全，并对维持区域政局稳定、军事平衡和经济进步都有帮助。这也是拜登政府上台后，第二次核准对台湾的军售。
 
+美国国务院政军局在一份声明稿中说，这次军售将会有助于台湾维持其飞弹密度、确保台湾的空中作战战备能力，以达到区域吓阻作用。这次军售主要是提供支持台湾参与爱国者飞弹工程勤务及飞弹效能鉴测的相关设备与服务，为期共5年，提供的协助包含工程服务支援，以及维持与改善爱国者防空飞弹系统。
 
+美国国务院政军局也重申，核准这次军售是为了使台湾的军队持续现代化且保持可靠的防御能力，因为这样的发展符合美国的国家、经济与安全利益。这次军售将会有助于台湾维持其飞弹密度、确保台湾的空中作战战备能力，以达到区域吓阻作用。
 
-众议员马乔丽·泰勒·格林：
-如果共和党人无法阻止大科技审查，那么共和党人还能做什么？
+台湾国防部说美国此举是基于《台湾关系法》与“六项保证”，持续帮助台湾维持足够的自我防卫能力，所以台湾国防部也向美国政府表示感谢。
 
-大科技公司在审查他们不喜欢的政治观点上做得太过了，它在压制真相。
+文字版原文：[拜登政府二度批准对台军售](https://gnews.org/zh-hans/1979109/)
 
-如果我们不能为保护真理而战，那还有什么可做的？
-
-共和党人到底是为了什么（而存在）？
-
-
-
-> If Republicans can’t stop Big Tech Censorship, then what can Republicans even do?
-> 
-> Big Tech has gone way past censoring political opinions they don’t like, it’s silencing truth.
-> 
-> If we can’t fight to protect truth then what else is left?
-> 
-> And what are Republicans even for?
-> — Rep. Marjorie Taylor Greene (@RepMTG) [February 16, 2022](https://twitter.com/RepMTG/status/1493770857855995904?ref_src=twsrc%5Etfw)
-
-
-
-前国务卿迈克.蓬佩奥：
-社会主义行不通。 我在巡视 铁幕（指昔日西欧与中东欧共产党执政国家之间想象的屏障）时亲眼目睹了它——我知道它不会带来任何好处。
-
-
-
-> Socialism doesn’t work. I saw it firsthand when I patrolled the Iron Curtain — and I know nothing good comes of it.
-> — Mike Pompeo (@mikepompeo) [February 16, 2022](https://twitter.com/mikepompeo/status/1493765787621888007?ref_src=twsrc%5Etfw)
-
-
-
-比尔.格茨：
-作为阻止解放军进入美国证券市场的新政策的一部分，美国财政部将对 59 家中共国军工公司实施制裁
-【附比尔.格茨发布华盛顿时报报道：美国新的制裁规则打击了数十家中共国军工企业】
-
-
-
-> Treasury Department codifies sanctions on 59 Chinese military companies as part of a new policy blocking PLA from US securities markets [https://t.co/nDSNRttMHG](https://t.co/nDSNRttMHG)
-> — Bill Gertz (@BillGertz) [February 15, 2022](https://twitter.com/BillGertz/status/1493720810183282688?ref_src=twsrc%5Etfw)
-
-
-
-众议员帕特·法伦：
-
-中国是芬太尼的主要原产国——他们在我们的南部边境将其倾注进入美国。
-
-还认为边境危机不是国家安全威胁吗？
-
-
-
-> China is the primary country of origin for fentanyl – and they're pumping it into the America at our southern border.
-> 
-> Still think the border crisis isn't a national security threat?
-> — Rep. Pat Fallon (@RepPatFallon) [February 15, 2022](https://twitter.com/RepPatFallon/status/1493690831139528704?ref_src=twsrc%5Etfw)
-
-
-
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

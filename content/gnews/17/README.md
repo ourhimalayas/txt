@@ -2,44 +2,34 @@
 ---
 
 
-## Mata财报季股价暴跌，扎克伯格玩精神胜利法
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2013785/)
+## 樱花FM┃彭帅被中共监视状态下接受外媒采访
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2013999/)
 
-翻译：攀登者
-编辑：文泓
+音频：东京樱花团/战友520
+![](https://lh5.googleusercontent.com/uBVqqaBPAgpb4sn1kWzvxXyYjrYIJlAaXtI_ooczk8URNG0Mi3ZTemMfN6j883npKgzG6wnIBDuTAQ_WXPDM0QP5mXj1ZAcAQAfbkPL817IRluBG5TiqlhB-lFqn8765ftKslm-q)
+中共国网球名将彭帅2月7日接受法国媒体《团队报》专访，针对去年11月微博发文指控中共高官张高丽性侵事件正面回应，从媒体曝光的照片可见，采访现场照片显示彭帅正在遭到中共当局监视。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/6-20.png)图片来源：ABCNews
+《团队报》这次专访彭帅收到诸多限制，双方在北京一间高档酒店16楼的某房间进行访问，其中一项限制就是，采访的问题都得事先提交，且彭帅只能用中文回答，当时她身边还配了一个翻译，那个人正是中共国奥委会总主席王侃。
 
+从外媒曝光的照片可见，彭帅身穿鲜红色且印有中国字样的外套，坐在房间椅子上拍照，而一旁的镜面也反射到，身穿白色衣服、印有中国国旗短袖上衣的王侃，双手交叉抱胸，不过他戴着口罩，因此无法看到他的表情。
 
-在2月初，因Mata公布的财务业绩出乎意料地糟糕，以至于[股价一度下跌25%](https://www.theguardian.com/technology/2022/feb/03/why-facebook-shares-are-in-freefall-meta-zuckerberg)，市值[损失2400亿美元](https://www.ft.com/content/51ea47e1-50c1-4b72-94d6-884017a1af4a)，当日纳斯达克指数下跌2%。
+英国媒体《每日邮报》也替这张照片写下一段注解：「在中共国网球明星受访的照片背景后面，捕捉到中国共产党员，她声称强奸指控是一个『巨大的误会』。」这张图加上这句话，疑似是在质疑彭帅这次接受访问相关内容的可信度。
 
-马克·扎克伯格在内部电话会议报告推出了三个原因，抖音（TikTok）的影响；苹果要求其手机用户同意被广告商追踪的举措；以及迄今为止脸书（Facebook）用户数量增长已陷入停滞。
+彭帅在这次采访中，除了屡次推翻去年指控被张高丽强迫上床的贴文，还表明自己将会退休，被问及退休原因时，她表示，除了年纪外，膝盖反覆受伤也是一大因素，这使她认为自己不可能再回到过往的水准。
 
-资本市场当然不听其解释，Mata股价持续走弱。近日，扎克伯格想出了新招。他告诉其员工，自公司去年更名为Meta（元）后，他们现在将被称为Metamates（元队友）。据报道，扎克伯格在周二与员工的虚拟会议上宣布了这一变化，随后在脸书上发布了一篇帖子，其中也提到了这个词。
+**事件回顾**
 
-**“元、元队友，我要成为完成我们公司使命的好管家”**，扎克伯格[写道](https://www.facebook.com/zuck/posts/10114316913387601)：**“这是我们对团队成功和作为队友彼此之间的责任感。这是关于照顾好我们的公司和彼此之间的关系”。**
+2021年11月2日，中共国网球运动员彭帅于新浪微博发文，自我披露同前政治局常委兼前副总理张高丽的特殊性关系。彭帅表示，自十多年前开始，张高丽便在天津向彭帅求爱并发展性关系。而当时张高丽于天津市就任市委书记。2012年11月，张高丽赴北京升任中共中央政治局常委，两人断绝联系。2018年，张高丽在退休后再次联系彭帅，约其在北京康铭大厦打球，后在其居所要求和彭发生性关系。
 
-Mata公司高管安德鲁·博斯沃思将于今年成为该公司的首席技术官（CTO），本周二[告诉](https://twitter.com/boztank/status/1493661545426870277)《边缘》记者亚历克斯·希思，“元队友”一词是由美国学者兼科学家道格拉斯·霍夫施塔特创造的。
+当日下午，彭帅称“我原本没有同意一直哭”。随后张高丽在晚餐时向彭帅说道，“宇宙很大很大，地球就是宇宙的一粒沙，我们人类连一粒沙都没有”，以此试图说服彭帅“放下思想包袱”。 又表示会善待彭，后在彭称“我又怕又慌”，“一个人（张高丽妻子康洁）在外帮守着”的情况下，两人发生性关系。彭帅亦指控张高丽妻子康洁对此一切知情且未阻止并接受两人关系发展，但在张背后却对彭帅多次进行言语侮辱。彭帅将康洁的行为描述为“好像《甄嬛传》的皇后一样”，并表示逐渐为这段感情感到“痛苦”。
 
-扎克伯格在周二与员工的虚拟[会议上](https://twitter.com/alexeheath/status/1493656663366246401)透露，Facebook的座右铭“快速移动”将成为“一起快速移动”，而“大胆”将成为“打造令人敬畏的东西”，“开放”将成为“生活在未来”。
+这段关系持续了七年。彭帅称张高丽于2021年10月31日向彭表示希望能在11月2日下午“好好谈谈”两人的关系。然而2日当天，一通自张向彭打来的电话又称“再联系”，并推脱一切。彭最终在悲愤交加下决定于微博发文披露同张的经历。同时彭声称知道此行无异于“飞蛾扑火”、“以卵击石”。即使如此，她表示也将说出同张的经历。上述文章于微博留有二十分钟，后被微博官方删除；同时彭的微博账号亦被禁言，相关关键字成为敏感词汇。次日，事件引起国际舆论关注。
 
-Facebook的“新闻提要”将更名为“Feed”，公司发言人告诉媒体，这一变化将“更好地反映人们在提要上看到的多样化内容”。
+文字版原文：[彭帅被中共监视状态下接受外媒采访](https://gnews.org/zh-hans/1977730/)
 
-新闻链接
-
-1、[Zuckerberg gives Facebook employees a new name — RT World News](https://www.rt.com/news/549492-zuckerberg-facebook-employees-name/)
-
-2、[For the first time in its history, Facebook is in decline. Has the tech giant begun to crumble? | John Naughton | The Guardian](https://www.theguardian.com/commentisfree/2022/feb/06/first-time-history-facebook-decline-has-tech-giant-begun-crumble)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
