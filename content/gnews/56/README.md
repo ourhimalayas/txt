@@ -2,71 +2,57 @@
 ---
 
 
-## 众议员莫·布鲁克斯推《中共国COVID-19赔偿法案》
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2012456/)
+## 02/16每日播报｜社媒消息:班农先生 德国医生埃迪·贝特曼
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2012701/)
 
-> 众议员莫·布鲁克斯：[#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw) 撒谎，人民死亡。我希望共产主义中国向受到伤害的美国人赔偿，因为他们制造了 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hash&amp;ref_src=twsrc%5Etfw) 之后还撒谎掩盖从而伤害了美国人。
-> 【附中字视频】 [https://t.co/N2vG2vMj8e](https://t.co/N2vG2vMj8e) [pic.twitter.com/2tcrnnTUAS](https://t.co/2tcrnnTUAS)
-> — 美国政要直译推 (@zhiyitw33) [February 16, 2022](https://twitter.com/zhiyitw33/status/1493784086158086148?ref_src=twsrc%5Etfw)
+**[BY :秘翻新闻](https://gtv.org/broadcast/watch/620c93b0432ae869226d6537)**
 
+***22-02-16***
+![](https://assets.gnews.org/wp-content/uploads/2022/02/s1-1.jpg)
+一、**[班农先生2月15日在盖特发文：](https://gettr.com/post/pullqf412e)**
 
+**卡车司机动摇了全球精英的核心——这些恶魔会想尽一切办法来阻止和镇压自由车队。** 【盖文转Vice报道，帮助加拿大反疫苗强制令的“自由车队”筹集到870万美元资金的众筹网站GiveSendGo 2月13日晚上被黑客攻击，超过92000名捐赠者的姓名和个人信息被泄露到网上。一些人没有提供他们的名字，例如目前最高金额21.5万美元的捐款者，但绝大多数人提供了他们的名字，包括美国软件业的亿万富翁托马斯·西贝尔 (Thomas Siebel)，他向“自由车队”捐赠了9万美元。研究人员对泄露数据分析后发现，来自美国和加拿大的捐款者分别占了56%和29%，捐赠金分别为360万和430万美元，英国、澳大利亚和爱尔兰等海外国家也有数万人捐款。泄露的数据中还包括一些捐款者在捐款时发布的信息，其中“上帝”或“耶稣”出现了13000多次，“暴政”一词被提到了数千次。】
 
-众议员马乔丽·泰勒·格林：
-如果共和党人无法阻止大科技审查，那么共和党人还能做什么？
+**秘翻新闻 巴拉克 编译报导**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/s2.jpg)
+二、**[德国医生埃迪·贝特曼（eddy bettermann）2月16日在盖特发文：](https://gettr.com/post/puqug05408)**
 
-大科技公司在审查他们不喜欢的政治观点上做得太过了，它在压制真相。
+由于新冠疫苗导致的血栓和心脏疾病，全球心脏起搏器的销售额将呈爆炸式增长。 【盖文转报道，经济学家预测，未来三年，全球心脏起搏器的销售额将增长5亿多美元，其中北美至少占了该市场份额的30%。
 
-如果我们不能为保护真理而战，那还有什么可做的？
+新冠疫苗接种者正在经历心肌炎、心律失常、罕见的血栓和神经系统损伤等疾病，这无疑会助涨心脏起搏器的“安装”数量。在过去两年中，针对心律异常的治疗和手术数量大量增加，高端医疗支出也随之激增，主要包括心脏起搏器。但主流媒体新闻却只字不提这一现象的幕后原因，只谈论该行业的技术进步。在过去二十年里，微软和IBM与心脏设备制造商美敦力公司 (Medtronic) 建立了合资企业，使心脏起搏器可以由心脏病专家通过互联网控制，并获得最新的心脏数据。但如果发生电磁脉冲（EMP）攻击、互联网瘫痪数月该怎么办？如果起搏器失效，患者的中风风险就会大大增加，特别是对那些有房颤（AFib）的人来说，风险增加了500%。同时，与心脏有关的死亡风险会增加200%。】
 
-共和党人到底是为了什么（而存在）？
+**秘翻新闻 巴拉克 编译报导**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/s3.jpg)
+三、**[真相工程2月16日在盖特发文：](https://gettr.com/post/pus5igc12f)**
 
+美国食品药品监管局FDA医疗对策倡议的执行官克里斯托夫·科尔（christopher cole）在一段由隐秘相机拍摄的采访中谈论了当前美国政府的疫苗政策：“拜登希望为尽可能多的人接种疫苗，你们不得不每年接种一次新冠疫苗。这些都还未正式公布，因为他们不想把所有人都激怒。制药公司、食品公司和疫苗公司每年给我们FDA数亿美元，以让审查员批准他们的产品。如果大药厂让每人每年接种一次疫苗，那么他们送出去的钱就会重新回到他们手里。”
 
+关于FDA是否会授予疫苗厂商紧急使用授权，以便给只有六个月大的孩子接种疫苗，科尔回答说，FDA不会不批准它。
 
-> If Republicans can’t stop Big Tech Censorship, then what can Republicans even do?
-> 
-> Big Tech has gone way past censoring political opinions they don’t like, it’s silencing truth.
-> 
-> If we can’t fight to protect truth then what else is left?
-> 
-> And what are Republicans even for?
-> — Rep. Marjorie Taylor Greene (@RepMTG) [February 16, 2022](https://twitter.com/RepMTG/status/1493770857855995904?ref_src=twsrc%5Etfw)
+**秘翻新闻 巴拉克 编译报导**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/s4.jpg)
+四、**[罗伯特马龙博士2月16日在盖特发文：](https://gettr.com/post/puruoi0897)**
 
+美国智库传统基金会（The Heritage Foundation）的研究员卡拉·弗雷德里克（Kara Frederick）说：“大科技公司正助力让美国朝着中共国的社会信用体系制度迈进。” 【盖文转《大纪元》报道，大科技公司正在助力美国政府，其行动与中共国的社会信用体系如出一辙。弗雷德里克最近撰写了一份题为《打击大科技的极权主义：路线图》的报告，其中详细介绍了大科技公司如何利用其权力审查美国人。报告提出了美国人可以采取的一系列行动来应对这种情况。弗雷德里克说：“政府和大科技公司正联手对言论进行审查，这令人不安，而且非常容易让人联想到即将到来的极权主义。审查变得无孔不入，大科技公司是政府真正对美国人民施以重手的自愿代理人。坦率地说，这些行为与中共在社会信用体系中的做法完全一致。美国公司应切断与中共的联系，恢复对美国的责任感。”】
 
+**秘翻新闻 巴拉克 编译报道**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/S5.jpg)
+五、**[印太新闻 – 关注中共威胁2月15日发推说：](https://twitter.com/IndoPac_Info/status/1493598472921964544)**
 
-前国务卿迈克.蓬佩奥：
-社会主义行不通。 我在巡视 铁幕（指昔日西欧与中东欧共产党执政国家之间想象的屏障）时亲眼目睹了它——我知道它不会带来任何好处。
+瑞典的速度滑冰运动员尼尔斯∙范德普尔（Nils van der Poel）抨击国际奥委会将奥运会交给中共这样“公然侵犯人权”的国家主办是“极端不负责任的”。 【推文转《台湾英文新闻网》报道，范德普尔在北京冬奥会上分别获得了男子5000米和10000米速度滑冰比赛的金牌。在冬奥会开幕之前他曾被瑞典媒体问及对中共国人权问题的看法，他那个时候表示不方面发表评论。2月13日返回瑞典后，他在接受瑞典体育报纸Sportbladet采访时表示，他认为北京的情况很“糟糕”，并将北京冬奥委会与1936年的柏林奥运做了比较。但又不想说太多，因为瑞典还有运动员在中共国参加比赛。“我认为将奥运会主办权交给像中共这样正在公然侵犯人权的国家是极端不负责任的。但是我所遇到的中国人都非常友善。”】
 
+**秘翻新闻 巴拉克 编译报道**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/s6.png)
+六、**[泽伦科医生2月15日在盖特发文：](https://gettr.com/post/pupo6h2668)**
 
+许多正单链RNA病毒（ssRNA）使用RNA复制酶（RdRp）来复制其遗传物质。这对于病毒的复制和传播是必需的。这些病毒包括：中共病毒及其所有变异株、流感、人类呼吸道合胞病毒 （RSV）、汉坦病毒、埃博拉病毒、马尔堡病毒。使用锌离子（Zinc Ionophores）和锌可以治疗这些病毒。下列药物可以产生锌离子：羟氯喹、伊维菌素、槲皮素和绿茶素。换句话说，我们可以用廉价、口服、有效和安全的药物预防和治疗上述病毒。其中一些是非处方药。
 
-> Socialism doesn’t work. I saw it firsthand when I patrolled the Iron Curtain — and I know nothing good comes of it.
-> — Mike Pompeo (@mikepompeo) [February 16, 2022](https://twitter.com/mikepompeo/status/1493765787621888007?ref_src=twsrc%5Etfw)
+**秘翻新闻 巴拉克 编译报导**
 
+发布：陸柒陸捌
 
-
-比尔.格茨：
-作为阻止解放军进入美国证券市场的新政策的一部分，美国财政部将对 59 家中共国军工公司实施制裁
-【附比尔.格茨发布华盛顿时报报道：美国新的制裁规则打击了数十家中共国军工企业】
-
-
-
-> Treasury Department codifies sanctions on 59 Chinese military companies as part of a new policy blocking PLA from US securities markets [https://t.co/nDSNRttMHG](https://t.co/nDSNRttMHG)
-> — Bill Gertz (@BillGertz) [February 15, 2022](https://twitter.com/BillGertz/status/1493720810183282688?ref_src=twsrc%5Etfw)
-
-
-
-众议员帕特·法伦：
-
-中国是芬太尼的主要原产国——他们在我们的南部边境将其倾注进入美国。
-
-还认为边境危机不是国家安全威胁吗？
-
-
-
-> China is the primary country of origin for fentanyl – and they're pumping it into the America at our southern border.
-> 
-> Still think the border crisis isn't a national security threat?
-> — Rep. Pat Fallon (@RepPatFallon) [February 15, 2022](https://twitter.com/RepPatFallon/status/1493690831139528704?ref_src=twsrc%5Etfw)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/01/截圖-2021-12-28-00.48.35.png)
 
 
  

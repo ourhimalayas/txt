@@ -2,24 +2,28 @@
 ---
 
 
-## 印度政府以国家安全为由再禁用中共54款APP
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2016330/)
+## 北京冬奥会后灭共迎来大好局面！
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2016382/)
 
-作者：纽约香草山教育部 Naughty(文行)
+作者：纽约香草山 信息部 6zero4
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/good-23.png)
-印度内政部14 日以“对印隐私和安全构成威胁”为由，要求禁用 54 个中国手机APP，范围从手游扩及到相机、视讯 APP 。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-274.jpg)图源网络
-印度内政部发布声明表示，这次禁用的54个中国手机APP据称可以透过镜头、麦克风收集敏感的用户数据，进行间谍和监视行动，并称这些被收集的数据或被滥用并传输至位于敌对国家的服务器，从事有损印度国家主权和完整的活动，对印度国家安全和国防构成重大威胁。
 
-印度内政部援引《信息技术法》第 69A 条来采取行动。该法条规定为维护印度主权完整、防御、国家安全，印度政府有权发布相关封禁指令。印度信息技术部稍后也将发布正式禁用通知。
 
-据称，印信息技术部已经指示 Google Play 等应用程序商店采取相应措施，这 54 个应用程序已经被禁止在印度通过应用商店使用。GOOGLE 印度分公司也在一份声明中证实了此事。
+郭先生在2月9日的大直播中谈道，北京冬奥会后中美俄三角关系将发生实质性改变，全球灭共将进入空前利好局面！
 
-新闻来源：[https://www.newindianexpress.com/nation/2022/feb/14/government-blocks-54-more-chinese-apps-over-security-threat-privacy-risks-2419397.html](https://www.newindianexpress.com/nation/2022/feb/14/government-blocks-54-more-chinese-apps-over-security-threat-privacy-risks-2419397.html)
+美国在冬奥会前的北京大使馆的“授权撤离”，将中共的合法性问题摆上了桌面。中共求美国制造“冬奥会两国关系回暖”的假象泡汤，看穿中共及普习“二人转”的拜登总统也表示“没什么新鲜的！”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-191.jpeg)
+最近美国国会正在推出《制裁中共法案》, 拟制裁中共数千名现任全国人大代表及其家属，包裹习近平及其家属等中共高官。同时，100多个国际金融机构与30多个国际NGO组织开始研究如何配合美国制裁并查封中共高官海外资产。
+
+与欧洲同根的俄罗斯一直对被欧洲排斥在外耿耿于怀，但欧盟已意识到“让俄罗斯跟中共走得那么近”这个巨大的错误。普京跟习翻脸后欧洲随即向俄方伸出橄榄枝，马克龙立即飞莫斯科跟普京表示善意，普京也表示俄罗斯想回到欧洲白人家族，没兴趣跟中共玩儿。普京必将再次出卖中共并和欧洲站在一起，欧洲也会在背后踹中共一脚！
+
+透过北京冬奥会看穿中共“假大空”与习的“拎不清”后，中美俄三角力量的实质性改变不可避免。中共将在国际社会上空前孤立，新中国联邦将迎来灭共的大好局面！
+
+新闻来源：[https://gtv.org/video/id=6203b7b13621aa7415d80e9e&gt;](https://gtv.org/video/id=6203b7b13621aa7415d80e9e%3E)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-196.jpeg)
 
 编辑/校对/发稿：滚滚长江都是水
 
@@ -34,8 +38,6 @@
 [**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-
 
  
 

@@ -2,40 +2,38 @@
 ---
 
 
-## 樱花FM┃北京冬奥 差评如潮
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2015900/)
+## 渣打被罚230万 墙内信用卡申请项目暂停
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2016053/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-7-1.png)
-2月7日福布斯日本消息：参加北京奥运会的多国的奥运关系人士对中共作为东道国的所为提出了质疑，指谴责其对被隔离的运动员的非人道待遇、不合理规则、对外国媒体的压制。
+作者：日本方舟农场-Andy
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月9日，据中共媒体消息显示，因违反了所谓的“信用信息查询相关管理规定”，渣打银行中共国有限公司被中共人民银行上海分行处以人民币230万元的罚款，同时，渣打银行零售个人金融信贷部总监陈燕来也被处以10万元人民币的罚金。目前，墙内渣打银行已经暂停了其信用卡申请项目，而该银行的多项业务也将一并调整。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-16-下午12.27.28.png)
+据了解，渣打银行并非第一家被中共政府处罚的外资银行。资料显示，中共于今年1月1日颁布了《征信业务管理办法》，而其后短短一个月半的时间里，中共对墙内各大银行实施罚款的总金额已经超过了四千万元人民币。其中，东亚银行于1月10日接到的近一千七百万元人民币的处罚堪称近年来外资银行在中共国内收到的最大罚单。
 
-据路透社报道，2月6日，芬兰男子冰球队教练Jukka Jalonen指责中共不尊重冰球运动员的人权，说冰球运动员Marko Anttila在中共病毒（新冠病毒Covid-19）检测呈阳性后的隔离期间，没有适当的食物，被置于巨大的压力下。
+另外，2021年年末，新韩和韩亚两家外资银行也被中共政府予以罚款，其金额高达620万元人民币。
 
-芬兰队医说，尽管18天前，安提拉的检测结果呈阳性，已不再被认为具有传染性。但中共国仍然强迫她接受隔离。
+分析人士对此指出，中共巧立名目地处罚外资银行的做法突显出中共国内经济危机山雨欲来之势。当中，外资银行在“夹缝中生存”已经成了这个时代的缩影。
 
-此外，5日，德国队负责人告诉记者，滑雪运动员Eric Frenzel被安置的条件是 “不可接受的”。他抱怨自己的房间很脏、食物质量差、没有WiFi可用。倒是这些问题在第二天得到了解决。
+参考链接：
+1）[渣打银行（中国）收到其有史以来最大百万级罚单 零售信贷部总监被罚10万元](https://finance.sina.com.cn/money/bank/gsdt/2022-02-14/doc-ikyakumy5837854.shtml)
+2）[https://finance.huanqiu.com/article/46pIno6oHEK](https://finance.huanqiu.com/article/46pIno6oHEK)
+3）[开年强监管持续 三家银行累计被罚8000万元](http://m.caijing.com.cn/api/show?contentid=4838570)
+4）[监管动态｜新韩、韩亚两家外资银行年底合计收620万元罚单，均涉及贷款管理、合规经营缺位问题](http://m.ce.cn/cj/gd/202201/07/t20220107_37236414.shtml)
 
-同样被强制隔离的比利时骨感女孩Kim Meieremans，周三在Instagram上发布了一段哭诉视频，称她已经连续两次检测呈阴性，以为自己会被解除隔离，但她却被隔离到了另一个地方。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-她哭着说，我甚至不知道我是否能再回到奥运村，不知道我是否要在孤立无援的情况下度过接下来的14天，我是否能参加比赛？
+总编：Irene木木
+编辑：宁文静
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-同时，中共国政府对待外国媒体的态度也受到了质疑。 4日，当局强行带走了一名在体育场外直播报道的荷兰电视台记者。这名记者在推特上说，他和其他媒体同事曾多次被不明身份的人阻止报道。
-
-包括美国、英国和加拿大在内的许多国家已经宣布对奥运会进行外交抵制，拒绝派遣部长和官员去参加北京冬奥会，以抗议中共对维吾尔自治区、西藏和台湾的人权侵犯行为。
-
-维吾尔族奥运选手作为最后一名火炬手出现在4日的开幕式上，但专家批评说这是基于中国政府的某种意图。研究新疆问题的弗罗斯特堡州立大学准教授马海云告诉路透社，中共这是试图通过选择维吾尔族运动员作为火炬手，来回击西方对其种族灭绝和迫害的批评。
-
-笔者也想补充一句，中共特意选以为维吾尔族奥运选手作为最后一名火炬手，堪称”此地无银三百两”的惟妙惟肖的演绎！
-
-文字版原文：
-
-[北京冬奥 差评如潮](https://gnews.org/zh-hans/1968663/)
-
-编辑：东京樱花团/asket
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
