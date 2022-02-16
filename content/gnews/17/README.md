@@ -2,21 +2,38 @@
 ---
 
 
-## 辉瑞令人震惊的内部数据：新冠患者接种新冠疫苗 3 个月内死亡率约为 3%
-` GTV新聞訪談` [轉載自GNews](https://gnews.org/zh-hans/2013273/)
+## Moderna总裁：破解mRNA可以玩弄整个生命王国
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2013473/)
 
-编者：台湾宝岛农场 寻文客
+作者: 银河系农场—骄子
 
-辉瑞公司的新冠疫苗研究资料在美国《信息自由法案》的要求下正在逐渐被公布。不久前，加拿大非营利组织 Strong and Free Canada 发现并报导了辉瑞公司公开的研究资料中令人震惊的数据：新冠患者接种新冠疫苗 3 个月内死亡率约为 3%。 [1]
-根据辉瑞公司公开的新冠疫苗研究资料[2] ，2020年 12 月 1 日至 2021年 2 月 28 日期间，辉瑞公司的第一批获得临时授权的新冠疫苗开始紧急供应给世界各地。直到 2021 年 2 月 28 日，辉瑞公司收到了来自超过 60个国家的一共 42,086 份病例报告，其中有 1,223 例病例被确认死亡。即新冠病毒患者接种辉瑞 BNT 新冠疫苗后 3 个月内死亡率约为 3%(2.91%)。
 
-根据世界卫生组织的最新数据，新冠病毒的致死率约为 1.41%。 [3] 而根据辉瑞公司内部研究资料，接种辉瑞新冠疫苗 3 个月内死亡率已经是新冠病毒致死率的 2 倍有馀。从数据上看，新冠疫苗更像是对人类的毒药而不是对病毒的解药。
-此外，根据该研究资料，31% 成年人和 40% 的儿童在接种辉瑞新冠疫苗后遭受了长期的副作用。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-26.png)
+疫苗制造商Moderna的总裁曾说过，“如果你能够破解mRNA的规则，那么基本上整个生命王国都可以肆意被你玩弄”。随着mRNA技术应用于中共病毒疫苗真相的曝光，Moderna总裁这话听起来不免让人毛骨悚然。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/covid-19-vaccine-mrna-dna-1204201.jpeg)图片来源: 网络
+David Martin博士说，中共病毒疫苗并不是疫苗，使用“疫苗”这个词可以在公共卫生豁免下对公众形成误导。疫苗进入人体后会让人体自身细胞成为病原体制造者，结果会导致人体内的细胞互相攻击。大药商Moderna非常清楚这就是在杀人。
 
-参考来源
-[1] https://strongandfreecanada.org/facts-and-data/pfizer-trial/
-[2] https://strongandfreecanada.org/wp-content/uploads/2021/12/Pfizer-trial-results-first-3-months.pdf
-[3] https://covid19.who.int/table
+目前Moderna拥有数百名工程师和科学家，试图用生物信息技术来对人体进行攻击，并使人体依赖该技术，甚至他们称mRNA为生命软件。
+
+另外该项邪恶计划还包括使用改良的mRNA来重新编程人类的干细胞功能，获得对干细胞的基因改造技术。这是一套完整的细胞级操作，编码、解码、调节、改变人体内的生理指令。
+
+新闻链接: [https://newstarget.com/2022-02-14-moderna-president-stephen-hoge-hack-rules-mrna-kingdom-of-life.html](https://newstarget.com/2022-02-14-moderna-president-stephen-hoge-hack-rules-mrna-kingdom-of-life.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-32.jpg)
+编辑/校对/发稿: 卡夫卡的甲壳虫
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+
+
 
  
 

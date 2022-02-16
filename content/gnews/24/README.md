@@ -2,49 +2,38 @@
 ---
 
 
-## 文·贵天成——文贵先生谈“蓝、金、黄”计划（九）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2013014/)
+## 美国务卿布林肯宣布关闭美驻乌克兰大使馆 并呼吁美在乌公民尽快离境
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2013317/)
 
-#### **整理：**BENJ1
-**编辑：**隔壁老章
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/fengmian0216.jpg)图片来源：雅典娜设计组（614）
+作者: 首尔天池农场—祥瑞舟
 
 
-**郭文贵先生2017****年9****月13****日直播**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-26.png)
+据路透社2月14日的报道，当地时间2月14日，美国国务卿布林肯宣布已下令关闭位于基辅的美国驻乌克兰大使馆，并将“暂时性地”把留在基辅的少数外交人员转移到乌克兰西部城市利沃夫。布林肯并呼吁位于乌克兰的美国公民尽快离境。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/blinken.jpeg)图片来源: 网络
+布林肯在声明中说：“我下令采取这些措施的原因只有一个，那就是我们工作人员的安全。我们强烈敦促所有留在乌克兰的美国公民立即离开乌克兰。” 他同时表示，这些决定并不会改变美国对乌克兰的承诺，美国也仍然会与俄罗斯保持沟通，为达成外交解决方案做进一步努力。美国国务院表示，本周末将在利沃夫维持一个小型领事馆来用于紧急服务。
 
-现在海外的各种民运组织里，有大量被蓝金黄的人，让他们自己暴露出来，最终他们一定会被海外的法律和正义人士，彻彻底底揭穿，受到他们应有的惩罚，这也正是我们走向喜马拉雅的必由之路。
+在多国发布撤离在乌克兰公务和商务人员之后，美国国务卿关闭大使馆的行政命令，意味着俄乌紧张局势达到战争临界点的一个重大标志。
 
-盗国贼的这些行为需要用钱，也会走审批程序，以国家安全、海外维稳的名义进行申请，获取大外宣、蓝金黄项目的资金，同时一定说是习主席同意的。这些党内的所谓程序，终有一天历史会清算。
+新闻链接: [https://www.reuters.com/world/europe/us-moving-remaining-ukraine-embassy-staff-kyiv-lviv-blinken-2022-02-14/](https://www.reuters.com/world/europe/us-moving-remaining-ukraine-embassy-staff-kyiv-lviv-blinken-2022-02-14/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-34.jpg)
+编辑/校对/发稿: 卡夫卡的甲壳虫
 
-我希望大家一起努力，团结海外的华人，形成强大的力量，让全世界政府不为中国的市场而向中共弯腰低头，让中共不能用市场做武器威胁全人类、威胁我们不准回国、蓝金黄我们。我们只要团结在一起，百分之百可以赢! 如果需要文贵支持，我会倾其所能，其他做不到的，请大家原谅。
+**更多资讯，更多关注**
 
-**郭文贵先生2017****年9****月24****日**
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-中共盗国贼拥有一个重要的国内贸易、商业市场，这个市场是以中国百姓的贫穷为代价换取的，盗国贼把市场作为强大的武器，实行了他们早就策划的蓝金黄计划，使美国和国际金融界、新闻界的精英们，一个个臣服于他们，协助甚至参与盗国贼的盗国计划。
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-中共在海外实施蓝金黄计划，建立海外的情报机构，通过纽约所谓的华侨梁冠军，还有姓郑的福建帮福清帮主席，以及多个被红通的人，像谢建升、郑介谱，骚扰诬陷文贵。 我真惊诧孙立军如此的狂妄，他把共产党的组织、孟建柱以及中央领导不放眼里，原因我终于明白了，是因为他经历了南普陀会议之类的计划后，对中共党内人员相互构陷、对最高领导人家人的蓝金黄等手段，都习以为常了，这使得他蔑视所有的中共最高领导人，他认为党内无人不贪，没有人不杀人，甚至可以按需杀人，把老百姓视为猪狗，所以他贪的时候肆无忌惮。
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-资料来源：郭先生GTV和盖特直播视频
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-往期回顾：
-[文·贵天成——文贵先生谈“蓝、金、黄”计划（一）](https://gnews.org/zh-hans/2008275/)
-[文·贵天成——文贵先生谈“蓝、金、黄”计划（二）](https://gnews.org/zh-hans/2008300/)
-[文·贵天成——文贵先生谈“蓝、金、黄”计划（三）](https://gnews.org/zh-hans/2008496/)
-[文•贵天成——文贵先生谈“蓝、金、黄”计划（四）](https://gnews.org/zh-hans/2008314/)
-[文•贵天成——文贵先生谈“蓝、金、黄”计划（五）](https://gnews.org/zh-hans/2008332/)
-[文•贵天成——文贵先生谈“蓝、金、黄”计划（六）](https://gnews.org/zh-hans/2008361/)
-[文•贵天成——文贵先生谈“蓝、金、黄”计划（七）](https://gnews.org/zh-hans/2008344/)
-[文•贵天成——文贵先生谈“蓝、金、黄”计划（八）](https://gnews.org/zh-hans/2012933/)
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
-发布：Frank2021
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
 
  
 

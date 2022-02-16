@@ -2,66 +2,72 @@
 ---
 
 
-## 出于对国家安全的考虑，印度禁止了54个中共国应用程序
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2012097/)
+## 众议员莫·布鲁克斯推《中共国COVID-19赔偿法案》
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2012456/)
 
-![Members of the City Youth Organisation hold posters with the logos of Chinese apps in support of the Indian government for banning the wildly popular video-sharing TikTok app, in Hyderabad, India, on June 30, 2020. India banned another 54 Chinese apps in Feburary 2022. (Noah Seelam/AFP via Getty Images)](https://img.theepochtimes.com/assets/uploads/2022/02/15/GettyImages-1223486637-700x420.jpg)2020 年 6 月 30 日，市青年组织成员在印度海得拉巴举着带有中国应用程序徽标的海报，支持印度政府禁止广受欢迎的视频共享 TikTok 应用程序。印度于 2 月又禁了 54 个中国应用程序。 （法新社）
-来自《大纪元时报》2022年02月14日的报道，据印度当地媒体报道，印度政府已发布命令，禁止54个中共国手机应用程序，称其对该国的国家安全构成威胁。此举是在双方旷日持久的边界争端中实施的一系列类似禁令的最新举措。
-
-印度内政部2月13日发表声明说，这54个应用程序可能通过手机摄像头和麦克风收集敏感的用户数据，用于间谍和监视活动。
-
-总部设在新德里的地缘政治和战略事务研究顾问帕蒂克里特·佩恩(Pathikrit Payne)告诉《大纪元时报》记者：“由于印度经济日益数字化，以及此类中共国应用程序和中共国电信设备对此构成的威胁，印度现在对网络安全更加重视。
-
-2020年6月，印度与中共国军队在有争议的喜马拉雅边境地区发生流血冲突，20名印度士兵在冲突中丧生，之后印度开始禁止中共国的应用程序。自那时起，该国已经禁止了267个应用程序，包括抖音、百度和微信。
-
-本周被禁止的其他应用程序包括从手机游戏到视频聊天和自拍应用程序，这些应用程序来自腾讯、阿里巴巴和网易等中共国公司。据当地媒体报道，其中一些应用程序是之前被禁止的应用程序的克隆版或翻版。
-
-该命令禁止的最受欢迎的应用程序是《我要活下去》(Free Fire)，这是一款由新加坡游戏巨头Sea拥有的战斗射击游戏。该公司的最大股东是中共国科技巨头腾讯公司。
-
-印度对中共国技术带来的安全风险的担忧与美国官员和专家的担忧不谋而合，他们警告说，这些应用程序可能被中共国共产党用来进行间谍活动，并引用了该国的法律，迫使企业在接到要求时与情报机构合作。
-
-在美国和香港拥有二十年游戏行业投资经验的前对冲基金经理詹姆斯·李(James Lee)此前告诉《大纪元时报》，从中共国应用程序中收集的数据被输入中共政权开发的人工智能(AI)程序。
-
-詹姆斯·李说：“这些游戏和应用程序实际上一直在收集世界各地公民的大量元数据，然后他们将其输入中共的人工智能机器。而我们都知道人工智能主要受制于数据。你拥有的数据越多，人工智能就越强大。一旦中共国控制了元数据以及渠道本身，他们就能够通过网络战争来调整人类的心理，或者调整人们的想法。”
-
-总部设在新德里的智囊团中国分析与战略中心的研究助理阿布舍克·达尔贝(Abhishek Darbey)告诉《大纪元时报》，印度政府自2020年以来禁止的许多应用程序都是在不同的公司名下被重新命名或重新投放到印度市场中的。
-
-他指出，Sea公司拥有的被禁的《我要活下去》游戏应用与中共国有关。该公司是由中共国出生的创始人在新加坡创立的，他们后来成为新加坡公民。虽然有些人可能没有意识到这种联系，但《我要活下去》的案例“表明中共国利用一切可能的漏洞渗透到印度市场，因为印度巨大的消费人口”。
-
-达尔贝表示，印度市场上的中共国应用程序的存在使中共占有优势，使其能够开拓印度市场，同时使印度民众暴露于间谍活动中，而中共国市场仍然将外国手机应用程序拒之门外。
-
-他说：“中共国不接受外国社交媒体应用程序或任何其他手机应用程序在他们的国土上，他们这样做是为了使自己更安全，免受任何形式的监视或间谍活动的影响。”
-
-在中共国，大量的西方网站和媒体平台被封锁，包括脸书、推特和谷歌。
-
-达尔贝说：“中共国共产党不希望其中共国民众与世界其他国家进行任何形式的交流。所有这些规定都由中共强加给中共国，被严格遵守，因此中国共产党为了保证他们的内部安全，不给任何类型的信息交流的机会。”
-
-达尔贝说，虽然中共国希望参与并控制新兴的印度市场，但它希望将其国内市场完全留给自己。
-
-**简评：**
-
-中共正毒害着中共国的一切。中共国的民营企业也不能幸免。任何一家有前景的中共国企业，中共都会发展党支部对其实施控制。因此任何一家到海外发展的企业，都必须为了中共的利益，做出伤害企业运营发展的行为。因此，在中共的控制下，中共国的民营企业想遵循市场规则进行正常拓展是不可能的，只能沦为中共的奴隶。
-
-中共政权对世界的控制是全方位，无死角的。不仅仅社交媒体，连游戏中共也不会错过，都要成为中共监视海外，窃取私人信息的工具。中共为了被禁止的应用程序再次进入印度市场，利用政策漏洞，换上新的马甲等等，中共的所作所为又一次体现出中共的无耻至极。这当中所耗费的精力若能有万分之一用来改善中共国的民生，中共国的劳动人民生活就会轻松许多。
-
-中共自己在海外的商业行为从来都不遵守规则，处处横冲直撞，但中共却从来不允许与中共无关的外国资本进入中共国市场，试问中共嘴里的公平在哪里。而被中共党媒鄙视的印度却拥有自由市场经济环境和开放的市场。中共一直禁止海外社交媒体平台进入中共国，从根本上来说是共产党想独占14亿中共国劳动人民剩余价值和担心中共国人民由此了解到中共的一切都是谎言，质疑中共执政的非法性，随着网络的无界化，随着中共对世界的影响力不断被削弱，被中共政权愚弄的中共国人民必将有朝一日联合起来，推翻共产党的统治。
-
-新闻链接: [https://www.theepochtimes.com/india-bans-54-more-chinese-apps-over-national-security-concerns\_4276541.html](https://www.theepochtimes.com/india-bans-54-more-chinese-apps-over-national-security-concerns_4276541.html)
-
-翻译/简评: kkoto(芬兰大灰狼)
-
-PR:Harvey（ 叶知秋）
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+> 众议员莫·布鲁克斯：[#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw) 撒谎，人民死亡。我希望共产主义中国向受到伤害的美国人赔偿，因为他们制造了 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hash&amp;ref_src=twsrc%5Etfw) 之后还撒谎掩盖从而伤害了美国人。
+> 【附中字视频】 [https://t.co/N2vG2vMj8e](https://t.co/N2vG2vMj8e) [pic.twitter.com/2tcrnnTUAS](https://t.co/2tcrnnTUAS)
+> — 美国政要直译推 (@zhiyitw33) [February 16, 2022](https://twitter.com/zhiyitw33/status/1493784086158086148?ref_src=twsrc%5Etfw)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+众议员马乔丽·泰勒·格林：
+如果共和党人无法阻止大科技审查，那么共和党人还能做什么？
+
+大科技公司在审查他们不喜欢的政治观点上做得太过了，它在压制真相。
+
+如果我们不能为保护真理而战，那还有什么可做的？
+
+共和党人到底是为了什么（而存在）？
+
+
+
+> If Republicans can’t stop Big Tech Censorship, then what can Republicans even do?
+> 
+> Big Tech has gone way past censoring political opinions they don’t like, it’s silencing truth.
+> 
+> If we can’t fight to protect truth then what else is left?
+> 
+> And what are Republicans even for?
+> — Rep. Marjorie Taylor Greene (@RepMTG) [February 16, 2022](https://twitter.com/RepMTG/status/1493770857855995904?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿迈克.蓬佩奥：
+社会主义行不通。 我在巡视 铁幕（指昔日西欧与中东欧共产党执政国家之间想象的屏障）时亲眼目睹了它——我知道它不会带来任何好处。
+
+
+
+> Socialism doesn’t work. I saw it firsthand when I patrolled the Iron Curtain — and I know nothing good comes of it.
+> — Mike Pompeo (@mikepompeo) [February 16, 2022](https://twitter.com/mikepompeo/status/1493765787621888007?ref_src=twsrc%5Etfw)
+
+
+
+比尔.格茨：
+作为阻止解放军进入美国证券市场的新政策的一部分，美国财政部将对 59 家中共国军工公司实施制裁
+【附比尔.格茨发布华盛顿时报报道：美国新的制裁规则打击了数十家中共国军工企业】
+
+
+
+> Treasury Department codifies sanctions on 59 Chinese military companies as part of a new policy blocking PLA from US securities markets [https://t.co/nDSNRttMHG](https://t.co/nDSNRttMHG)
+> — Bill Gertz (@BillGertz) [February 15, 2022](https://twitter.com/BillGertz/status/1493720810183282688?ref_src=twsrc%5Etfw)
+
+
+
+众议员帕特·法伦：
+
+中国是芬太尼的主要原产国——他们在我们的南部边境将其倾注进入美国。
+
+还认为边境危机不是国家安全威胁吗？
+
+
+
+> China is the primary country of origin for fentanyl – and they're pumping it into the America at our southern border.
+> 
+> Still think the border crisis isn't a national security threat?
+> — Rep. Pat Fallon (@RepPatFallon) [February 15, 2022](https://twitter.com/RepPatFallon/status/1493690831139528704?ref_src=twsrc%5Etfw)
+
+
 
  
 

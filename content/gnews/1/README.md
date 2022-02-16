@@ -2,26 +2,26 @@
 ---
 
 
-## 樱花FM|法国记者专访彭帅 其安全仍令人担忧
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2013432/)
+## 特鲁多在议会上回应疫苗强制令时惨遭嘲笑
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2013605/)
 
-音频：东京樱花团/战友520
-![](https://lh3.googleusercontent.com/xk0l8iBqLdMCPmMZPsHR_3aHxiFU_jc243-J12AAYB2PM-3AOc_bBp1vc5XfH7E3SYtjMa-MCmZrPFT-dKhvvKo_-VCjMFd6ffW6WYiy_0SJi-2kv_SEojAlpPLQ6JpfHhYpFsFu)
-在法国体育日报《团队报》发表与彭帅的独家专访隔天，其中一名参与访问的记者文图亚克 (Marc Ventouillac)周一 (2月8日)向美联社表示，他不确定彭帅是否可以自由地说和做她想做的事。他说：“这次采访并不能证明彭帅没有问题。”
+##### 素材：熊猫乱滚
+翻译：Frank
+校对：Lish
+剪辑|字幕： 向上James
+编辑：Mttfly
 
-文图亚克也说，中国的意图对他来说是清楚的。他认为，在举办北京冬奥会之际让彭帅接受西方媒体采访，显示中共官员希望平息争议，避免彭帅事件的争议影响到冬奥赛事。
+在爱尔兰、瑞典、挪威、以色列、捷克共和国、英国、西班牙、丹麦等国家都在取消限制和疫苗强制令时，加拿大总理特鲁多一意孤行，仍然宣扬所谓“遵循科学”，以加拿大人的利益为幌子，继续强推毒疫苗。在与保守党领袖Candice Bergen关于疫苗强制的论战中，特鲁多发言时惨遭议会众人嘲讽。
 
-他说：“这是中共国奥委会宣传的一部分。他们可以透过彭帅与一家欧洲大报的采访来证明彭帅没有任何问题。”彭帅在采访刊登的隔天与国际奥委会主席巴赫 (Thomas Bach) 一同出席北京冬奥自由式大跳台决赛，观看美国出生的中共国选手谷爱玲 (Eileen Gu) 夺金。
+*发布：Mttfly*
 
-文图亚克表示：“我认为，对于中国奥委会、中国共产党和中国的许多人来说，努力证明没有外界所谓的彭帅事件是很重要的。彭帅看起来很健康。”
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-他提到，法国《团队报》原本只得到半小时的访问时间，但最后他们却得到将近两倍的访问时间，且能问的问题比原先多出8至10个。除了文图亚克之外，国际女子网球协会 (WTA) 主席西蒙（Steve Simon）周一 (2月7日) 也发布声明，表示该访问并未消除国际女子网球协会对彭帅安危的疑虑。他在声明中表示：“无论是在采访中或出席冬奥会，看到彭帅现身总是令人高兴的。然而近期的采访并没有减轻我们对她11月2日发的帖子的担忧。”。
-
-文字版原文：[法国记者专访彭帅 其安全仍令人担忧](https://gnews.org/zh-hans/1978542/)
-
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

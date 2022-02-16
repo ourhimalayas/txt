@@ -2,72 +2,52 @@
 ---
 
 
-## 众议员莫·布鲁克斯推《中共国COVID-19赔偿法案》
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2012456/)
+## 文·贵天成——文贵先生谈“蓝、金、黄”计划（八）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2012933/)
 
-> 众议员莫·布鲁克斯：[#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw) 撒谎，人民死亡。我希望共产主义中国向受到伤害的美国人赔偿，因为他们制造了 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hash&amp;ref_src=twsrc%5Etfw) 之后还撒谎掩盖从而伤害了美国人。
-> 【附中字视频】 [https://t.co/N2vG2vMj8e](https://t.co/N2vG2vMj8e) [pic.twitter.com/2tcrnnTUAS](https://t.co/2tcrnnTUAS)
-> — 美国政要直译推 (@zhiyitw33) [February 16, 2022](https://twitter.com/zhiyitw33/status/1493784086158086148?ref_src=twsrc%5Etfw)
+#### 整理：BENJ1
+编辑：小红帽
 
-
-
-众议员马乔丽·泰勒·格林：
-如果共和党人无法阻止大科技审查，那么共和党人还能做什么？
-
-大科技公司在审查他们不喜欢的政治观点上做得太过了，它在压制真相。
-
-如果我们不能为保护真理而战，那还有什么可做的？
-
-共和党人到底是为了什么（而存在）？
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/fengmian0216-1.jpg)图片来源：雅典娜农场设计组（614）
 
 
+**郭文贵先生2017年9月6日直播**
 
-> If Republicans can’t stop Big Tech Censorship, then what can Republicans even do?
-> 
-> Big Tech has gone way past censoring political opinions they don’t like, it’s silencing truth.
-> 
-> If we can’t fight to protect truth then what else is left?
-> 
-> And what are Republicans even for?
-> — Rep. Marjorie Taylor Greene (@RepMTG) [February 16, 2022](https://twitter.com/RepMTG/status/1493770857855995904?ref_src=twsrc%5Etfw)
+别小看了共产党这个系统！共产党这个系统就是绞肉机！绞肉机！现在谁摁着就使劲绞！使劲绞，转的快一点儿？慢一点儿？着点儿！共产党最后把自己也得绞进去！因为他绞着绞着自己就老了！权力萎缩了！犯罪多了！战斗力不行了！新的来了就把它给绞进去！这就是整个的中国的官场的文化！没有真相！没有公平！没有真理！你看看我们整个海外的世界,被蓝金黄到什么程度？
 
+**郭文贵先生2017年9月9日直播**
 
+美国的法律,还有美联社和中国的沟通,大家能看到蓝金黄。盗国贼自己恼火,蓝金黄也到了美联社,就在我们身边,而且你看到的张痔疮还有癞蛤蟆,李伟东那个畜生。李伟东简直是个畜生。他发出去的，光说坏话的那些语音就不能听了。天下还有这种坏蛋,这个癞蛤蟆。这个李伟东简直是个畜生。这个李伟东，在癞蛤蟆里，还有屎诺这种人,还有这个这个张痔疮,这些人都是蓝金黄者。我今天在这宣布，我们很快会采取一系列的法律措施,对癞蛤蟆里的这些人–张痔疮，夏痔疮,还有美联社,我们早在几周前就有了计划。等着到他们都出手，都出完手以后，我们再出手。现在基本上已经接近成熟了,就到过谁这招用得差不多了,我们也要开始了。我们也要开始对他们出手。这些人，所有的这些作为，都是蓝金黄的结果。
 
-前国务卿迈克.蓬佩奥：
-社会主义行不通。 我在巡视 铁幕（指昔日西欧与中东欧共产党执政国家之间想象的屏障）时亲眼目睹了它——我知道它不会带来任何好处。
+曹长青先生披露当中美联社和中国政府的蓝金黄的过程和沟通，胡说所谓的这个长篇的定义，那种完全是假的定义。美联社那个小中国华裔的那个男孩子,绝对是有大问题的。
 
+**郭文贵先生2017年9月10日直播**
 
+这是文贵的个性和我的做人方式,我全力以赴对付海内外的蓝金黄者,和沉默的力量。这是破坏中国走向民主法治的狗和打手！我们必须拨开所有盖在我们老百姓头上的尘土，那些虱子，那些肮脏的东西。
 
-> Socialism doesn’t work. I saw it firsthand when I patrolled the Iron Curtain — and I know nothing good comes of it.
-> — Mike Pompeo (@mikepompeo) [February 16, 2022](https://twitter.com/mikepompeo/status/1493765787621888007?ref_src=twsrc%5Etfw)
+**郭文贵先生2017年9月10日直播**
 
+孙立军培养了一批吴征这样的人在海外搞蓝金黄。而且在这所有的情报系统里边儿,特别是上海江浙一代的人,安全厅的特务们,所有的人都被他控制着。
 
+资料来源：郭先生GTV和盖特直播视频
 
-比尔.格茨：
-作为阻止解放军进入美国证券市场的新政策的一部分，美国财政部将对 59 家中共国军工公司实施制裁
-【附比尔.格茨发布华盛顿时报报道：美国新的制裁规则打击了数十家中共国军工企业】
+往期回顾：
+[文·贵天成——文贵先生谈“蓝、金、黄”计划（一）](https://gnews.org/zh-hans/2008275/)
+[文·贵天成——文贵先生谈“蓝、金、黄”计划（二）](https://gnews.org/zh-hans/2008300/)
+[文·贵天成——文贵先生谈“蓝、金、黄”计划（三）](https://gnews.org/zh-hans/2008496/)
+[文•贵天成——文贵先生谈“蓝、金、黄”计划（四）](https://gnews.org/zh-hans/2008314/)
+[文•贵天成——文贵先生谈“蓝、金、黄”计划（五）](https://gnews.org/zh-hans/2008332/)
+[文•贵天成——文贵先生谈“蓝、金、黄”计划（六）](https://gnews.org/zh-hans/2008361/)
+[文•贵天成——文贵先生谈“蓝、金、黄”计划（七）](https://gnews.org/zh-hans/2008344/)
 
+发布：Frank2021
 
-
-> Treasury Department codifies sanctions on 59 Chinese military companies as part of a new policy blocking PLA from US securities markets [https://t.co/nDSNRttMHG](https://t.co/nDSNRttMHG)
-> — Bill Gertz (@BillGertz) [February 15, 2022](https://twitter.com/BillGertz/status/1493720810183282688?ref_src=twsrc%5Etfw)
-
-
-
-众议员帕特·法伦：
-
-中国是芬太尼的主要原产国——他们在我们的南部边境将其倾注进入美国。
-
-还认为边境危机不是国家安全威胁吗？
-
-
-
-> China is the primary country of origin for fentanyl – and they're pumping it into the America at our southern border.
-> 
-> Still think the border crisis isn't a national security threat?
-> — Rep. Pat Fallon (@RepPatFallon) [February 15, 2022](https://twitter.com/RepPatFallon/status/1493690831139528704?ref_src=twsrc%5Etfw)
-
-
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

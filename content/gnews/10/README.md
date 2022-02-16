@@ -2,37 +2,34 @@
 ---
 
 
-## 美国务卿布林肯宣布关闭美驻乌克兰大使馆 并呼吁美在乌公民尽快离境
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2013317/)
+## 有声｜俄国防部称俄军开始撤离回营 拜登表示消息尚未证实
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2013539/)
 
-作者: 首尔天池农场—祥瑞舟
+**By:秘翻新闻**
 
+**2022-02-16**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/10-18.png)图片来源 网络
+新唐人2月16日报道，针对媒体报道俄罗斯从俄乌边境撤军的消息，美国总统拜登表示，俄罗斯撤军是好消息，但尚未得到证实。他警告说，俄罗斯约有15万大军包围了乌克兰，入侵的可能性仍然很大。他呼吁美国侨民尽快离开乌克兰。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-26.png)
-据路透社2月14日的报道，当地时间2月14日，美国国务卿布林肯宣布已下令关闭位于基辅的美国驻乌克兰大使馆，并将“暂时性地”把留在基辅的少数外交人员转移到乌克兰西部城市利沃夫。布林肯并呼吁位于乌克兰的美国公民尽快离境。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/blinken.jpeg)图片来源: 网络
-布林肯在声明中说：“我下令采取这些措施的原因只有一个，那就是我们工作人员的安全。我们强烈敦促所有留在乌克兰的美国公民立即离开乌克兰。” 他同时表示，这些决定并不会改变美国对乌克兰的承诺，美国也仍然会与俄罗斯保持沟通，为达成外交解决方案做进一步努力。美国国务院表示，本周末将在利沃夫维持一个小型领事馆来用于紧急服务。
+综合媒体报道，俄罗斯国防部2月15日公布，部份军队在完成演习后，正在撤离靠近乌克兰的边境地区，返回基地。俄国防部强调国内仍会继续进行大规模演习。
 
-在多国发布撤离在乌克兰公务和商务人员之后，美国国务卿关闭大使馆的行政命令，意味着俄乌紧张局势达到战争临界点的一个重大标志。
+消息报道，英国政府将召开紧急会议，讨论如何应对此局面。
 
-新闻链接: [https://www.reuters.com/world/europe/us-moving-remaining-ukraine-embassy-staff-kyiv-lviv-blinken-2022-02-14/](https://www.reuters.com/world/europe/us-moving-remaining-ukraine-embassy-staff-kyiv-lviv-blinken-2022-02-14/)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-34.jpg)
-编辑/校对/发稿: 卡夫卡的甲壳虫
+乌克兰国家安全与国防委员会秘书丹尼洛夫在2月14日曾表示，政府没有看到俄罗斯16日或17日会全面入侵乌克兰的迹象。
 
-**更多资讯，更多关注**
+拜登2月15日在白宫记者会上表示，尽管俄方宣称其军队正在返回基地，但美国情报分析人员认为他们仍然非常具有威胁性。他重申，美国愿意和俄罗斯通过外交协商解决乌克兰危机。
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+拜登还向俄罗斯民众喊话，美国与北约对俄罗斯并不构成威胁，也没有计划在乌克兰部署导弹，美国也从未针对俄罗斯人民。
 
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+原文链接：
+[**https://www.hk01.com/%E5%8D%B3%E6%99%82%E5%9C%8B%E9%9A%9B/736077/%E4%BF%84%E7%BE%85%E6%96%AF%E9%83%A8%E4%BB%BD%E8%BB%8D%E9%9A%8A%E5%AE%8C%E6%88%90%E8%BB%8D%E6%BC%94%E9%9B%A2%E9%96%8B%E9%82%8A%E5%A2%83%E5%9B%9E%E7%87%9F-%E4%BF%84-%E8%A5%BF%E6%96%B9%E6%88%B0%E7%88%AD%E5%AE%A3%E5%82%B3%E5%A4%B1%E6%95%97%E4%B9%8B%E6%97%A5 https://m.ntdtv.com/b5/2022/02/16/a103348965.html**](https://www.hk01.com/%E5%8D%B3%E6%99%82%E5%9C%8B%E9%9A%9B/736077/%E4%BF%84%E7%BE%85%E6%96%AF%E9%83%A8%E4%BB%BD%E8%BB%8D%E9%9A%8A%E5%AE%8C%E6%88%90%E8%BB%8D%E6%BC%94%E9%9B%A2%E9%96%8B%E9%82%8A%E5%A2%83%E5%9B%9E%E7%87%9F-%E4%BF%84-%E8%A5%BF%E6%96%B9%E6%88%B0%E7%88%AD%E5%AE%A3%E5%82%B3%E5%A4%B1%E6%95%97%E4%B9%8B%E6%97%A5%20https://m.ntdtv.com/b5/2022/02/16/a103348965.html)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+(秘翻新闻StevenZ Julia联合编辑报道)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+发布 : 恩典
 
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
-
-
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMAGE-2021-12-13-113746.jpg)
 
 
  
