@@ -2,36 +2,26 @@
 ---
 
 
-## 突发：特鲁多计划援引《紧急情况法》压制自由车队
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2010334/)
+## 脸书至白宫电邮曝光利益冲突
+` Little c` [轉載自GNews](https://gnews.org/zh-hans/2010345/)
 
-翻译： Jenny Ball
-![](https://assets.gnews.org/wp-content/uploads/2022/02/trudeau.png)`THE CANADIAN PRESS/Justin Tang`
-据接近总理办公室的消息人士透露，总理贾斯汀·特鲁多计划援引《紧急情况法》。
+作者：波士顿五月花 Little c
+![](https://assets.gnews.org/wp-content/uploads/2022/02/vaccine-1.jpg)
+最近, ICAN组织依据《自由信息法》成功获得一封21年6月由脸书至白宫及政府雇员的电邮。
 
-据加拿大广播公司报道，特鲁多告诉他的核心小组，他将援引从未使用过的《紧急情况法》赋予联邦政府特殊权力，以处理加拿大各地正在进行的自由车队抗议活动。
+发信人是脸书公共政策经理（Public Policy Manager）Payton Iheme，收件人包括HHS雇员和白宫雇员。 在信中， Iheme 宣布了脸书发起的名为“促进医疗保健联盟” 的新项目（Alliance for Advancing Health Care）。此项目的合作者包括药企默克，疫苗信心项目，Sabin疫苗研究所和CDC基金会。值得关注的是，CDC基金会的合作伙伴和捐赠者包括了辉瑞在内的几百家大公司。
 
-该立法旨在取代《战争措施法》，该法将国家紧急状态定义为“紧急和危急情况”，即：“严重危及加拿大人的生命、健康或安全，其程度或性质超出了一个省的处理能力或权力。”
+Iheme在信中解释到，“此联盟会专注于促进公众理解如何利用社交媒体和行为科学来改善全世界社区的健康”。他们的第一个计划是“为那些探索如何用社交媒体和数字平台来建立疫苗信心并推动疫苗接种的研究者和组织提供经费”。
 
-该法案如果被援引，将赋予联邦政府 30 天的特别权力，以禁止公众集会、旅行和使用特定财产。它将允许渥太华指定受保护的地方，并迫使私营拖车公司为该市提供服务。
+此邮件再一次表明政府机关，药企和大公司之间存在着惊人的利益冲突。CDC基金会的官方目的是支持CDC的工作，却同时获得大药企和大公司的资助，一起推动一个免责产品，并企图阻止任何发出质疑的人。 ICAN表示他们将永不停息地揭露有关这些产品的真相，或要求对任何疫苗有完全知情同意。
 
-这将是自特鲁多的父亲皮埃尔·埃利奥特·特鲁多 (Pierre Elliott Trudeau) 于 1970 年援引《战争措施法》来应对魁北克的十月危机以来，该法案首次实施。
+参考链接：
 
-据报道，特鲁多周一上午在自由党核心小组的会议上表示，没有部署军队的计划。此举是在联邦内阁和事件响应小组周日召开会议之后进行的。
+[https://www.icandecide.org/ican\_press/ican-obtained-email-shows-alliance-between-white-house-facebook-and-pharma/](https://www.icandecide.org/ican_press/ican-obtained-email-shows-alliance-between-white-house-facebook-and-pharma/)
 
-周日晚些时候，特鲁多在推特上表示，事件响应小组讨论了“政府可以采取的进一步行动，以帮助结束封锁和占领。”
+[https://about.fb.com/news/2021/06/facebook-leading-health-organizations-form-alliance-for-advancing-health-online/](https://about.fb.com/news/2021/06/facebook-leading-health-organizations-form-alliance-for-advancing-health-online/)
 
-同一周日，应急准备部长比尔·布莱尔在“Rosemary Barton Live”节目中表示，联邦政府已经讨论过援引紧急权力来应对渥太华的抗议活动。布莱尔将援引《紧急情况法》的态度描述为“适当的谨慎”。
-
-**参考资料：**[rebelnews][BREAKING: Trudeau plans to invoke Emergencies Act to deal with Freedom Convoy protests](https://www.rebelnews.com/trudeau_plans_to_invoke_emergencies_act_to_deal_with_freedom_convoy_protests)
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-2.jpeg)
+[https://www.cdcfoundation.org/partner-list/corporations](https://www.cdcfoundation.org/partner-list/corporations)
 
  
 

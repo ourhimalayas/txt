@@ -2,31 +2,31 @@
 ---
 
 
-## 世界会发生巨变
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2010803/)
+## 世界精英跟着共产党走进火葬场
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2010932/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+**据网易2022年02月13日报道，中国冰球队华裔归化球员的场外发言，感动万千网。“我诚意邀约世界各领域的精英们一同回国，为中华民族精神世世代代延续下去。一起向未来！”**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3ageok-sduuq.jpg)**图片来源：网络**
+世界精英倘若跟着中共回到墙国，那就是跑步进入火葬场。 “中华民族多元一体格局”理论是由费孝通1988年提出，而费本人有英国留学背景，文革期间作为反动权威入狱近二十年。这就是早期作为海归精英回国的下场。网易小编但凡了解点事史实，也不会提到“中华民族精神”。文革期间，仅中共国中研院和中科院院士和其他著名自然科学家70人，其中海归精英占绝对优势，他们命运如何？其中21人遭整肃折磨自杀伤病至死、余下的科学家遭批斗羞辱致残甚至入狱。文革结束至今不到50年，这些世界归国的精英命运已被人忘记。
 
-2022-02-13直播摘录08：29：52
+世人皆知中共男女冰球队归化球员过半造假参加冬奥会。体育归国精英的命运不比知识分子更好。体育归国精英容国团怀揣爱国梦想，放弃英籍回到中共国，虽夺得世界冠军，于文革期间折磨受辱自杀。现在习皇帝已经开启文革2.0版，归国体育精英的命运已见分晓。同是归国体育运动员，谷爱凌夺冠称为所有媒体的新宠，朱易比赛失利骂声滚滚，嘘声一片。在中共国，成王败寇，任何人都是工具而已，随时都可以被抛弃。谷爱凌因为国籍问题引起世界关注，冬奥过后，就是她个人的悲惨命运的开始。
 
-下场直播的时候，不会超过三次直播，你会看到世界一切都变了！我可以告诉你，有些绝密的话不能在这儿说，你们就不知道你们跟我一起经历人类的巨变，很有可能下次直播之前，也可能下两次直播，一定是这结果。我已经说很长时间了，再说睡着了你们，你们说吧，交给小飞象主持人。
+再说那些怀揣富国梦想的科技和商业人才，被中共的百人计划、千人计划和各种其他人才计划吸引，本想名利双收，最后都被作为间谍罪和商业偷窃罪被所在国判处重罪，这种负面新闻不断刷新我们的认知。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+中共糟蹋了中华文化中一切美好的事物和概念。共产党这个外来毒瘤，根本不配提“中华民族”。中共所代表的根本不是“中华民族”，而只是那几个造假、偷窃、诈骗的犯罪家族而已。所有历史上的归国精英，已经用悲惨的结局和命运昭示世人：跟着共产党，只能飞速走向火葬场，甚至尸骨无存！
 
-**关注我们**
+**声明：文章观点仅代表作者个人，与gnews平台无关**
 
-Discord 账号
+**新闻链接**：[https://www.163.com/dy/article/H03UJVI4051481US.html](https://www.163.com/dy/article/H03UJVI4051481US.html)
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+素材：洛杉矶盘古农场 — Poplar
+评论：洛杉矶盘古农场 — Poplar
+审核：洛杉矶盘古农场 — 柯镇恶
+发布：洛杉矶盘古农场 — 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

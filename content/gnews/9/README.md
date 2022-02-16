@@ -2,26 +2,23 @@
 ---
 
 
-## 华盛顿特区15日起结束疫苗强制接种
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2010742/)
+## 韩国连续5天疫情加剧，总统候选人妻子染疫
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2010894/)
 
-作者：纽约香草山 – 宁文静
+作者：纽约香草山教育部 – Naughty(文行)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月14日，华盛顿特区市长穆里尔·鲍泽在新闻发布会上说，刚刚实施了一个月的中共病毒疫苗强制接种政策，将于2月15日结束。另外，口罩令也将于3月1日取消。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/7-20.jpg)
-鲍泽说，进入室内场所，将不再要求顾客出示疫苗接种证明，但企业可自主决定是否把疫苗的要求，作为进入其场所的条件。从3月1日起，一些室内场所将不再需要口罩，包括餐馆、酒吧、体育和娱乐场所、健身房、企业、零售机构和杂货店。但学校、图书馆、托儿所和医疗机构、疗养院、为公众服务的特区政府办公室、公共交通、出租车和共享汽车仍然需要戴口罩。
+当地时间2月14日，韩国中共病毒单日确诊新增5.46万例，已连续5天新增超过5万例，居家治疗人数已超过23万例。总统候选人安哲秀的妻子金美京也在此轮中不幸染疾。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/9-13.jpg)
+奥米克戎变异株疫情近期在韩国快速扩大，首尔、仁川、京畿道等人口密集的首都圈社区感染占56.9%。据韩国中央防疫对策本部统计，截至14日凌晨，全国累计确诊超140万例。采取居家治疗的大多为轻症及无症状患者，同时，重症及死亡人数增加速度相对放缓。
 
-该市还将在本月底结束设立在特区消防队的核酸测试服务。评论人士认为，尽管离全面解除各项限制政策尚有一定的距离，但作为一向严苛的民主党执政特区，毫无预兆地宣布结束疫苗证明和逐步取消口罩令，颇让人意外。
+据悉，目前正在各地开展竞选活动的总统候选人安哲秀，昨天通过视频透露其妻金美京确诊消息，并表示妻子患有慢性疾病，病情并不乐观。同为首尔大学医学系毕业的两人自疫情爆发以来，一直在医疗前线工作，受到相当广泛的好评。
 
-参考链接：
-1) . [DC Is Ending Its Vaccination and Mask Mandates](https://www.washingtonian.com/2022/02/14/dc-is-ending-its-vaccination-and-mask-mandates/)
-2) . [COVID-19 ACTION PLAN 3 STATE OF EMERGENCY 2022 WINTER SURGE](https://coronavirus.dc.gov/sites/default/files/dc/sites/mayormb/release_content/attachments/Situational-Update-Presentation_02-14-22.pdf)
-3) . [LIVE: Mayor Bowser Provides COVID-19 Situational Update](https://twitter.com/mayorbowser/status/1493262671050776577?s=21)
+参考链接：[韓國確診連5天破5萬例 總統候選人安哲秀妻子染疫\[影\]](https://www.cna.com.tw/news/aopl/202202140034.aspx?topic=2012)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
 总编: Zion文恩
-编辑： 谐趣园
+编辑： 宁文静
 校正/发稿：Fei797
 
 **更多资讯，更多关注**

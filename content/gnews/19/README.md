@@ -2,29 +2,34 @@
 ---
 
 
-## 臨戰中的銀行業瑟瑟發抖，Hcoin（喜幣）去掉中間商打破現有格局
-` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/2010646/)
+## 香港因疫情延长对八个国家的航班的禁令
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2010682/)
 
-新西蘭伊甸農場Gnews組 財經G樂部-亞倫
+作者：纽约香草山教育部 – Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据外媒2月11日报道，出于对日益严重的中共病毒疫情的担忧，香港政府当天延长了对美国、英国、澳大利亚、加拿大、法国、印度、巴基斯坦和菲律宾八个国家的入境航班的禁令。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/6-24.jpg)
+在对上述八个国家延长禁令的同时，香港政府还将禁令扩展到了尼泊尔，
 
-2月15日，郭文貴先生於Gettr視頻中透露，世界某銀行內部剛剛提醒所有股東，一旦俄羅斯開戰世界金融可能大崩塌而銀行也可能會破產。然而，與第三方中間商的傳統銀行不同，Hcoin（喜幣）和HDO（喜美元）沒有中間商，但所有的幣都是受到保護的。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Bank_Run_on_American_Union_Bank-scaled.jpeg)圖片來源維基百科
+目前飞往香港的航班减少了90%，几乎没有航班被允许过境。
 
+据悉，香港过去14天新增了大约4000个病例，是中共病毒在当地最大规模的爆发。尽管绝大多数近期增加的确诊病例都是本地病例，但在中共的控制下，这座城市仍希望通过将自己与世界隔离来控制病毒。
 
-為他人勞動，獲取他人的報酬；給予他人物品，他人歸還等價物品，生產價值交換推動人類文明。當今的交易鏈條中硬性夾雜了政府和銀行，政府、銀行都只是中間商（賺差價）。人類活動中最重要的就是物價交換，不需要政府抽稅，更不需要銀行截流。
-更何況如果戰爭的爆發導致銀行發生大規模儲戶擠兌，或者因為戰爭原因造成巨額貸款無法收回進而引發流動性危機，嚴重的就會破產。當銀行破產之時可以合法的不償還或由保險機構有限額的償還儲戶資本，只負責收稅的政府更不負責償還。只要勞動者把生產力價值存到銀行，法幣時代的銀行還可以利用金融會計技巧無中生有地增發法幣，這對勞動者來說是極度的不公平。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/60248a05ded2442da681e1c1f566d570.jpg)圖片來源info
+参考链接：[Hong Kong extends ban on flights from eight countries, adds Nepal](https://www.reuters.com/world/asia-pacific/hong-kong-extends-ban-flights-eight-countries-adds-nepal-2022-02-11/)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-相反，得來的Hcoin（喜幣）或者“躺平幣”通過Hpay（喜支付）可以直接兌換食物、購買房產，只要交易方接受，就可以交易。Hcoin（喜幣）通過自己的Hpay（喜支付）系統完成A點到B點的直接（沒有中間商）瞬時傳輸且免收轉賬手續費（未來僅收取大額交易手續費），而智慧地使用Hpay（喜支付）創造商業新模式還可以在國際貿易方面省去很多不必要的匯兌和稅務成本。
-最關鍵的是，Hcoin（喜幣）、HDO（喜美元）不會被兌水，也不會被消失，任何持幣人的任何幣都是受到法律保護的。要知道，Hcoin（喜幣）從第一天就有最完善、最合法的KYC開戶系統，是有中心化機構負責的。而且，超凡的冷錢包技術在設計之初就具備尋回機制，只要啟動當初設定的個人識別機制，就能按原數失而復得。
+总编: Zion文恩
+编辑： 飞虹
+校正/发稿：Fei797
 
-**附：**
-中共國的保險機構成員銀行面臨經營危機甚至破產時，存款保險機構對存款50萬元以下的存款人全額賠償，對存款50萬元以上的存款人從銀行清算資產中按比例賠償。（如果保險機構也破產……）
-**不賠付情況：**
-第一、 存款以外的金融產品，如保險、基金、證券等；
-第二、 沒有購買存款保險的銀行。
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
