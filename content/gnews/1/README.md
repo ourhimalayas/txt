@@ -2,27 +2,33 @@
 ---
 
 
-## 中共不择手段妄图取代美国称霸全球
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2011528/)
+## 有声|英国官方证明中共病毒疫苗诱发“艾滋病”
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2011658/)
 
-##### 翻译：俏如来
-校对：Lish
-剪辑|字幕：文驰
-编辑：Mttfly
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
 
-美国国家情报局局长约翰·拉特克里夫认为，中共试图称霸全球所采取的许多不同方式，不仅仅只是局限于拥有最大的海军，拥有最大的军队，还包括经济方面、技术方面和文化方面的方式。从本质上讲，中共所做的是，涉足一个行业，然后去窃取技术、专业知识、创意，通过美国的法律机制来窃取美国行业秘密。中共已经在风电领域成功这样做，他们正在关注美国的农业领域。
 
-视频来源：[China carrying out ‘master plan’ to take over United States: Ratcliffe](https://video.foxbusiness.com/v/6296094476001#sp=show-clips)
+外媒2月13日报道，英国卫生安全局数据证明，随着时间的推移，中共病毒疫苗会损害人体免疫系统，造成疫苗诱发的“艾滋病”。
 
-*发布：Mttfly*
+2月3日，英国卫生安全局发布的一月份病毒病例数据。按照疫苗接种状态分类，该月大多数病例属于接种三剂疫苗的病例。该数据表明，一个人的免疫系统接触疫苗的次数越多，病毒发病率就会越高。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+更重要的是该数据显示疫苗对人体免疫系统损害程度，研究发现，英国完全接种疫苗的成年人比未接种者的免疫应答低65％。 因此，完全疫苗接种者其人体免疫力只有正常人的35％，根本无法抵抗病毒和癌细胞侵蚀。
 
+文字版原文：[英国官方证明中共病毒疫苗诱发“艾滋病”](https://gnews.org/zh-hans/2007696/)
+
+音频处理：Fei797
+发稿：Fei797
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
