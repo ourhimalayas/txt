@@ -2,73 +2,28 @@
 ---
 
 
-## 众议员莫·布鲁克斯推《中共国COVID-19赔偿法案》
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2012456/)
+## 眼病再生医疗用细胞膜实用化
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2012485/)
 
-> 众议员莫·布鲁克斯：[#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw) 撒谎，人民死亡。我希望共产主义中国向受到伤害的美国人赔偿，因为他们制造了 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hash&amp;ref_src=twsrc%5Etfw) 之后还撒谎掩盖从而伤害了美国人。
-> 【附中字视频】 [https://t.co/N2vG2vMj8e](https://t.co/N2vG2vMj8e) [pic.twitter.com/2tcrnnTUAS](https://t.co/2tcrnnTUAS)
-> — 美国政要直译推 (@zhiyitw33) [February 16, 2022](https://twitter.com/zhiyitw33/status/1493784086158086148?ref_src=twsrc%5Etfw)
+撰稿：东京樱花团/ haruka春香
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/眼病再生医疗用细胞膜实用化.png)[图片来源](https://news.yahoo.co.jp/articles/79fe346576217e7921fbe3eafce188cc3b08c5d4/images/000)
 
+京都府立医科大学（京都市上京区）研究组为了治疗视力明显下降的“角膜上皮干细胞荒废症”，开发出了从患者本人的口腔粘膜培养的细胞薄片，作为再生医疗等产品，厚生劳动省批准了制造销售。
 
-众议员马乔丽·泰勒·格林：
-如果共和党人无法阻止大科技审查，那么共和党人还能做什么？
+从临床研究开始经过20年的岁月，随着实用化，今年秋天开始在附属医院进行细胞膜治疗。研究组表示:“好不容易才走到这一步。希望这能成为目前治疗困难的患者的新选择。”
 
-大科技公司在审查他们不喜欢的政治观点上做得太过了，它在压制真相。
+角膜上皮干细胞凋敝症是指角膜外侧部分出现障碍，角膜变浑浊，导致视力下降和疼痛。有先天性，也有因药品等外伤或疾病导致干细胞受损的后天性。特别是严重的状态被称为难治性眼表面疾病，眼皮和眼球粘连。据推测，韩国国内的患者每年达100人左右。开发人员是府立医科大学眼科外园千惠教授（59岁）细胞贴片的特点是使用人的羊膜，以羊膜为基础培养患者的细胞，制作成直径19毫米的圆形。由于使用口腔粘膜细胞，两眼干细胞受损的患者也可以成为治疗对象。治疗方法是，通过手术撕掉眼睛粘连部位，去除病变组织，缝合眼膜。仅凭这些就可以期待一定的视力恢复，而且随着眼睛表面的稳定化，角膜移植和佩戴治疗用隐形眼镜也成为可能。
 
-如果我们不能为保护真理而战，那还有什么可做的？
+细胞薄片的开发历史悠久，而且从外园的恩师担任教授时期开始，历经半个世纪进行研究。研究组从2002年开始了临床研究。虽然持续了7年，但由于当时没有制定再生医疗相关法律，需要庞大的程序，而且对象患者不多，因此很难得到企业的协助，而且因资金困难被迫中断。直到2017年才开始了试验，收集总计101人份的数据，确认了减轻眼睛表面粘连的效果。22年一月获得国内制造销售许可。由开发过程中得到协助的神户医疗产业城市推进机构制造，并由再生医疗风险企业广崎LI（青森县弘前市）销售。针对疲劳症等的再生医疗产品有3种，使用羊膜后强度得到了提高。外园教授说:“眼球里各处都可使用，而且应用范围很广。即使是现有治疗方法无法治愈的重度疾病，也可以适用。因为有患者在等着，所以继续研究下去。细胞贴的销售名称为‘樱花’，京都和弘前有很多樱花名胜，寓意着‘让患者看到樱花’的愿望。”
 
-共和党人到底是为了什么（而存在）？
+信息来源：
 
+[眼病の再生医療用細胞シート、20年越し実用化　京都府立医科大](https://news.yahoo.co.jp/articles/79fe346576217e7921fbe3eafce188cc3b08c5d4)
 
-
-> If Republicans can’t stop Big Tech Censorship, then what can Republicans even do?
-> 
-> Big Tech has gone way past censoring political opinions they don’t like, it’s silencing truth.
-> 
-> If we can’t fight to protect truth then what else is left?
-> 
-> And what are Republicans even for?
-> — Rep. Marjorie Taylor Greene (@RepMTG) [February 16, 2022](https://twitter.com/RepMTG/status/1493770857855995904?ref_src=twsrc%5Etfw)
-
-
-
-前国务卿迈克.蓬佩奥：
-社会主义行不通。 我在巡视 铁幕（指昔日西欧与中东欧共产党执政国家之间想象的屏障）时亲眼目睹了它——我知道它不会带来任何好处。
-
-
-
-> Socialism doesn’t work. I saw it firsthand when I patrolled the Iron Curtain — and I know nothing good comes of it.
-> — Mike Pompeo (@mikepompeo) [February 16, 2022](https://twitter.com/mikepompeo/status/1493765787621888007?ref_src=twsrc%5Etfw)
-
-
-
-比尔.格茨：
-作为阻止解放军进入美国证券市场的新政策的一部分，美国财政部将对 59 家中共国军工公司实施制裁
-【附比尔.格茨发布华盛顿时报报道：美国新的制裁规则打击了数十家中共国军工企业】
-
-
-
-> Treasury Department codifies sanctions on 59 Chinese military companies as part of a new policy blocking PLA from US securities markets [https://t.co/nDSNRttMHG](https://t.co/nDSNRttMHG)
-> — Bill Gertz (@BillGertz) [February 15, 2022](https://twitter.com/BillGertz/status/1493720810183282688?ref_src=twsrc%5Etfw)
-
-
-
-众议员帕特·法伦：
-
-中国是芬太尼的主要原产国——他们在我们的南部边境将其倾注进入美国。
-
-还认为边境危机不是国家安全威胁吗？
-
-
-
-> China is the primary country of origin for fentanyl – and they're pumping it into the America at our southern border.
-> 
-> Still think the border crisis isn't a national security threat?
-> — Rep. Pat Fallon (@RepPatFallon) [February 15, 2022](https://twitter.com/RepPatFallon/status/1493690831139528704?ref_src=twsrc%5Etfw)
-
-
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

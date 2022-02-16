@@ -2,30 +2,150 @@
 ---
 
 
-## 文耀时间/从铸币权看喜币走势-荷兰基金会信息分享
-` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2012506/)
+## 普京取消人民币作为俄罗斯第二法币的合同的两个原因
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2012608/)
 
-供稿：中华联邦公民
-编辑发稿：am夏天
-喜马拉雅纽伦堡正义农场
+[https://gtv.org/video/id=620b01a9b0af02660af3c397](https://gtv.org/video/id=620b01a9b0af02660af3c397)
 
-主讲：KillCCP 盖特：@lake\_br
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1545.png)官网地址 https://business.gov.nl/
-七哥提到荷兰是最好的成设基金的地方，上图为荷兰政府的官方网站，以供验证信托方面的信息，避免遇到虚假或资质不够的信托公司。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1546.png)
-在荷兰基金会被称为Stichting，英文称为Foundation，中文称基金会，基金会在荷兰的定义为不以盈利为目的的组织，相当于一个非营利组织，类似于NGO。所筹资金来源可以是捐款、贷款、补贴、遗产什么的，其主要目的是支持社会或非营利的事业，也可以去做一些经营性的业务。但是经营性业务所产生的利润是必须分配给基金设立时的目标组织，以支持社会或非营利性事业。
-只需支付50欧元的一次性费用即可在商业登记处注册您的基金会，重点是只需要在商业登记处登记即可，不用在政府部门登记。商业登记处相当于商会，属非政府组织，办理比较快捷。公证费用基本上在400到800欧元之间，每年的行政费用差不多是2000欧元左右，如有经营业务另需交税。
+**郭文贵
+Miles Guo**
 
-1 非政府组织（英语：Non-Governmental Organization，缩写：NGO）是一类不属于任何政府、不由任何国家建立的组织，通常独立于国家政府。虽然从定义上包含以营利为目的的企业，但该名词一般仅限于非商业化、合法的、与社会文化和环境相关的倡导群体。非政府组织通常是非营利组织，他们的基金至少有一部分来源于私人捐款。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1547.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1548.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1549.png)
+你想想
+If you think about it
 
-荷兰国家人口不到2000万人，从人口密度来讲是欧盟地区的第二大人口密度国家，全国有四万多个基金会，差不多不到500人就有一个基金会，数量惊人，是基金会的天堂。
-在荷兰的民法（荷兰语：Burgerlijk Wetboek）中对基金会有明确定义，有专门的民法对基金会进行监管。荷兰民法典第2章规定：由法律行为所创设的法人，其财产只能为了实现其目的而被使用。基金属于财团法人的一种，包括经营性基金以及非经营性基金两种。大部分荷兰的基金都属于公益目的的基金，比如学校、医院、养老院等等，这类基金往往由政府税务部门或者保险公司作为出资人。除此之外，荷兰法律并没有对基金的目的做出其它的限制。基金的设立程序很简单，在基金设立之初，发起人不需要一次性将资本注入基金账户，而可以在必要时候再将所需要的财产（包括不动产、资金、劳动者、动产等）转移到基金名下。一般来说，以社会公益为目的的基金可以享受税收优惠，不需要缴纳公司所得税，并与其有关的赠与和继承可以缴纳更低的赠与税或者继承税。
-荷兰的基金机构的演变，可以追溯到19世纪的后50年。在那个时期，教会、慈善机构通过社会募集的办法来筹集资金（ 甚至有些宗教机构会通过彩票的方式来筹集）。19世纪末，中央政府开始意识到有必要对社会上的各种资金募集方式加以规制各种公开募集的方式，于是在1854年颁布了“穷人法”来规定公开募集的条件和方式。早期的基金都与特定的公共目的有关，主要是为了帮助穷人、老人或者残疾人等。逐渐地，在荷兰社会也涌现出各种由私人或者公司所创设的基金，比如一些富人会小范围内筹集一些钱来用以支持某些社会活动的发展，包括艺术、体育、教育以及科技。二战后，电视、广播成为了用以募集基金来源的主要方式。1925年国家档案局（Center Archive）也就是现在的基金募集中心（Central Bureau for Fundraising）成立，成为了促进和管理募捐活动的主要机构。
-荷兰的公益主体主要包括基金、社会团体以及教堂三种形式。荷兰民法典（Burgerlijk Wetboek）对于基金和社会团体的设立、组织、管理都进行了规定，而教堂的活动由则教会的规则加以规范。基金和社会团体有很多相似地方，比如他们一半都是以公益为目的；都不得向其成员（包括投资人和管理人）分配基金的财产。两种组织形式的差异主要体现在两个方面。首先，基金的设立必须经过公证以及注册，而社会团体的设立则相对比较自由，成员可以选择非正式的手续成立团体。其次，基金的出资人可以是个人、也可以是多个组织，其内部存在一个管理层，往往由董事、监事组成；而社会团体则由至少两名团体成员组成，运作的模式为成员制。
-总体上来说，荷兰的基金属于比较简单的法律主体形式，可以适用于比较单一的非运营的慈善机构或者公益组织，也可以适用于复杂的财产管理模式。但是随着市场的发展，基金的募集和运作都变得越来越商业化，越来越多的基金采取市场化的运营模式、具备职业化的管理团队。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/德农二维码-27.png)
+普京是说好的，要呆超过从48小时到56个小时，甚至到60个小时
+Putin had said that he would stay longer than 48 hours to 56 hours, even to 60 hours
+
+而且要第一个重大宣布
+And he would be the first one to make a major announcement
+
+俄罗斯开始把中共人民币作为俄罗斯的法币、第二货币流通
+Russia would have begun to circulate the Chinese RMB as Russia’s Fiat currency and the secondary currency
+
+来抵挡美国的所谓的制裁
+to resist the so-called sanctions of the United States
+
+而且俄罗斯知道美国一定会经济制裁
+Moreover, Russia knew that the United States would definitely impose economic sanctions (on China)
+
+这么大事没签
+However, he didn’t sign for such a big deal
+
+直到昨天习才知道有人在楼里死了
+Xi Jinping didn’t know that individuals died in the building that Putin stayed until yesterday
+
+但是不是普京的人，肯定跟普京有关系的
+These individuals are not Putin’s people but certainly related to Putin
+
+那另外一个就是，这十来个人都是普京身边染上的
+The other thing is that ten individuals around Putin were infected (by the CCP virus)
+
+普京恼火呀
+Putin was annoyed
+
+俄罗斯的要求是绝对独立的保护和医疗措施进入到北京
+Russia’s request was absolutely independent protection and medical measures after arrived Beijing
+
+普京很害怕这个病毒, 最后给染上以后他恼火了
+Putin was very afraid of this virus and he was annoyed when his people got infected afterward
+
+更重要的事情
+More importantly
+
+中国人民币在俄罗斯关于汇率兑价
+the exchange rate of Chinese yuan in Russia
+
+中方曾经承诺，任何情况下俄罗斯停止使用人民币的时候
+China had promised that in any case when Russia stops using the yuan
+
+中方将按照黄金计算本位
+China will calculate the standard according to gold
+
+如果你的币没了、零了，你得给我黄金，
+It means that if your Fiat currency are gone or zero out, you have to pay me with gold
+
+叫黄金本位下的最后保底的价值
+This is called the final guaranteed value under the gold standard
+
+俄罗斯说你应该按照什么3个月和12个月、26个月之间的黄金差率兑换给我黄金
+Russia said that you should pay me gold with the gold exchange rate at the difference between 3 months, 12 months, and 26 months
+
+你（人民币）变成纸没事儿，你得给我黄金
+It would be okay that your (RMB) becomes paper as long as you pay me with the gold
+
+中共国不干
+The CCP China refused to accept
+
+普京说我来之前你干，我来了你就不干了？
+Putin said that you accepted it before I came, but refused when I came?
+
+这就是你们中国共产党
+That would be you, the Chinese Communist Party
+
+要不然你们老百姓不相信你呀？
+Otherwise, would your ordinary people not believe you?
+
+谁会相信你呀？
+Who would trust you?
+
+谁跟你打交道？
+Who would dealing with you?
+
+所谓的习骨子里边儿的恨西方白人世界
+The so-called deep-seated hatred that Xi Jinping has with the white people in the Western world are
+
+让你们运动员都死在这才好呢
+it would be great that letting the western athletes die there
+
+让你们吃屎，拉尿、喝尿，我让你们参加这冬奥会
+and letting them have the inhuman experiences while they participate the Winter Olympic
+
+所有共产党对西方的这种憎恨、习太阳对西方的憎恨，全部表露无遗。
+All these hatred that the CCP and Xi Jinping have for the West have been nakedly revealed
+
+普京连一秒钟都不想在北京呆
+Putin didn’t want to stay in Beijing for even one second
+
+就像我告诉的他的女朋友一样
+(The situation) just like what I said about his girlfriend
+
+每次来北京跟习见面
+Every time she goes to Beijing to meet with Xi Jinping
+
+私人飞机落到北京机场
+The private plane will land at Beijing airport
+
+见完习马上走就到自己的房间
+She goes straight to Xi and leave to her room immediately after
+
+就吃点东西就是路上吃点东西，飞机上吃的东西
+As far as eating, she would eat something while traveling on the road or on the plane
+
+全是俄罗斯带来的
+and everything are brought from Russia
+
+* * *
+
+Date: 02/09/2022
+原视频标题:
+普京取消人民币作为俄罗斯第二法币的合同，原因有二：第一，参加中共冬奥会的普京团队当中，十几个人感染中共病毒，所在酒店数人身亡，让普京很恼火；第二，中共没能信守人民币按金本位计算的承诺
+Putin canceled the contract for the RMB as Russia’s second legal currency for two reasons: first, among the Putin team participating in the CCP Winter Olympics, more than a dozen people were infected with the CCP virus, and several people died in the hotel, which made Putin very angry; second, the CCP Failed to keep its promise to run the RMB on the gold standard
+
+原视频日期：2022/02/06
+原视频链接: [**https://gettr.com/post/ptfedib84d**](https://gettr.com/post/ptfedib84d)
+任务编号：KC454（3713）
+视频时间段 : 0:00-02:18
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译：洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-文新
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

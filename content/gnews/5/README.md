@@ -2,41 +2,57 @@
 ---
 
 
-## 锁链女再落虎口 央视探访引疑虑
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2012624/)
+## 布拉德：数字表明通胀正在扩大
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2012724/)
 
-**撰稿：日本东京方舟农场 北极**
+[https://gtv.org/video/id=620c61f8b0af02660af423d2](https://gtv.org/video/id=620c61f8b0af02660af423d2)
 
-近期，徐州丰县锁链女事件持续引发海内外舆论关注，而中共央视最新流出的精神病院探访锁链女视频，再度引起舆论质疑。
+Jim Bullard (the president and CEO of the Federal Reserve Bank of St. Louis)
+吉姆·布拉德 (圣路易斯联邦储备银行总裁兼首席执行官)
 
-虎年伊始，网上流传的一段视频显示，在徐州丰县，一名年龄至多40岁的农村妇女（锁链女）在天寒地冻时节身着单衣，被所谓“丈夫”董志民用铁链栓在破屋内囚禁，24年间先后生养了八个小孩。影片曝光后引发舆论震惊，不少网友爆料当地拐卖妇女的黑幕，并直指基层政府充当这种罪恶的保护伞。
+We’ve been surprised to the upside on inflation
+我们对通胀上行感到惊讶
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片-1-63.png)中共央视近日推出「丰县生育八孩女子」事件的最新影片，再度引起舆论质疑。（图片来自大纪元）
+This is a lot of inflation in the US economy 7.5%
+美国经济中的通胀率高达7.5%，这是一个很大的问题
 
-在舆论压力下，徐州当局先后发布了四次前后矛盾的通报—
+on the headline CPI, these are numbers that Alan Greenspan never saw
+在头条的消费者价格指数，这些是艾伦·格林斯潘从未见过的数字
 
-首次通报称，锁链女与丰县欢口镇董志民领证结婚，不存在拐卖行为；
+They haven’t occurred in 40 years
+已经有40年没有出现了
 
-第二次通报补充称，锁链女当时在该地区流浪，被董志民的父亲董某更（已故）收留，不存在拐卖行为；
+So our credibility is on the line here
+所以我们的信誉就在这里很危险了
 
-第三次通报补充了锁链女所谓“姓名及籍贯”，声称是来自云南福贡县亚谷村的“小花梅”，同村的桑某某将其带至江苏治疗精神疾病，结果两人到达江苏省东海县后“小花梅”走失，仍否认涉嫌拐卖行为；
+And we do have to react to data
+我们必须对数据做出反应
 
-第四次通告则草草将案件定性为董志民涉嫌“非法拘禁”罪，并未涉及是否犯有强奸罪和虐待罪，桑某某被定为犯“拐卖妇女”罪，并再次强调锁链女经所谓“DNA鉴定”为“云南小花梅”。
+However, I think we can do it in a way that’s organized and not disruptive to markets
+但是，我认为我们可以以一种有组织且不会破坏市场的方式来做到这一点
 
-2月10日，央视报道了徐州丰县锁链女案件，再度引发舆论质疑。据央视播放的视频显示，锁链女被送到精神病医院，一名男医生与锁链女对话时，清楚地听到她喊道：“放我走！”
+We’re only removing it
+我们只是删除它
 
-令舆论关注的是，央视记者进入病房后，镜头首先聚焦在病人的床头卡上，在年龄的位置显示为“52岁”，入院诊断为“偏执型精神分裂症”。
+* * *
 
-对此有网民提出质疑并发出警告称“精神病院是人权迫害的新武器”。该网民解释道，“精神病医院入院门槛低，不需要走法律程序， 一个副县长甚至一个派出所长就可以把人送进精神病院，完全剥夺人权，亲人不可探视，没有法律咨询，没有律师，没有适用法律，完全是法外之地。由于没有发言权，也不能正常申诉，你被诊断为疯子，所说的都是疯话。”
+Date:02/14/2022
+原视频标题:Bullard: numbers indicate inflation is broadening
+布拉德：数字表明通胀正在扩大
+原视频日期：2022/02/14
+原视频链接[**https://twitter.com/squawkcnbc/status/1493217938224078853?s=24**](https://twitter.com/squawkcnbc/status/1493217938224078853?s=24)
+任务编号：KE401（3750）
+视频时间段 : 0:00-0:28
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-文新
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-还有网民指出，在锁链女被解救时，视频里能清楚的听见她带着明显的四川口音说：“这个世界不要俺！这一窝都不是东西！全家都是强奸犯！放我出去！”这名网友问道，“该女子思维清晰，口齿比较清晰，完全可能说出自己的名字和经历，为什么不问问她？”
-
-参考链接：
-[https://www.epochtimes.com/b5/22/2/11/n13571237.htm](https://www.epochtimes.com/b5/22/2/11/n13571237.htm)
-
-素材采编：北极
-编辑： 青城道姑
-发布：文曦
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
