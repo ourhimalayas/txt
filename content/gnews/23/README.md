@@ -2,46 +2,77 @@
 ---
 
 
-## 文•贵天成——文贵先生谈“PAG太平联盟、单伟建”（十一）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2011188/)
+## 印度以威胁国家安全为由禁止 54 款中国应用程序
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2011243/)
 
-**整理：**BENJ1
-**编辑：**翼族
-![文章配图](https://assets.gnews.org/wp-content/uploads/2022/02/image-1465.png)
-**郭文贵先生2021年12月10日直播**：
+撰稿：小雨
+![](https://assets.gnews.org/wp-content/uploads/2022/02/dn8hcv7tdqldfa0w_1644815997.jpg)
+根据2月14日印度媒体Republic World报道，印度政府已发布新命令，禁止 54 款对国家安全构成威胁的中共国应用程序。值得注意的是，自 2020 年以来，政府已禁止 270 款应用程序。一些报道表明，这些应用程序来自腾讯、阿里巴巴、游戏公司网易等中国主要科技公司。消息人士称，最新禁令将由电子和信息技术部发布，理由是这些应用程序正在将印度人的敏感数据传输到中共国等国外的服务器上。该禁令将根据《信息技术法》第 69A 条实施。
 
-西方投到中共的钱，它知道那风险很大，银行不给它贷款。而美国银行在中国被贷款是中国银行的荣耀，像苹果（公司在中国）就不贷钱，中国五大银行求苹果，“贷我们点钱吧，贷点钱吧”。能贷给苹果、贷给美国思科业务的这个银行，行长立马升职。（所以）你就知道谁好谁坏了。
+## 54款应用程序的清单
 
-投到中国的叫什么？就叫冒险家，叫对冲基金、风控基金、风险基金。单伟建这孙子就是专门搞这个，胆小的你不要去中国！正常人别去中国！就是胆大的、不要脸的冒险家，你去中国。
+1. Beauty Camera: Sweet Selfie HD
+2. Beauty Camera – Selfie Camera
+3. Equalizer – Bass Booster & Volume EQ & Virtualizer
+4. Music Player – Music, MP3 Player
+5. Equalizer & Bass Booster – Music Volume EQ
+6. Music Plus – MP3 Player
+7. Equalizer Pro – Volume Booster & Bass Booster
+8. Video Player – Media All Format
+9. Music Player – Equalizer & MP3
+10. Volume Booster – Loud Speaker & Sound Booster
+11. Music Player – MP3 Player
+12. CamCard for SalesForce Ent
+13. Isoland 2: Ashes of Time Lite
+14. Rise of Kingdoms: Lost Crusade
+15. APUS Security HD (Pad Version)
+16. Parallel Space Lite 32 Support
+17. Viva Video Editor – Snack Video Maker with Music
+18. Nice video baidu
+19. Tencent Xriver
+20. Onmyoji Chess
+21. Onmyoji Arena
+22. AppLock
+23. Dual Space Lite – Multiple Accounts & Clone App
+24. Dual Space Pro – Multiple Accounts & App Cloner
+25. DualSpace Lite – 32Bit Support
+26. DualSpace – 32Bit Support
+27. DualSpace – 64Bit Support
+28. DualSpace Pro – 32Bit Support
+29. Conquer Online – MMORPG Game
+30. Conquer Online II
+31. Live Weather & Radar – Alerts
+32. Notes – Colour Notepad, Notebook
+33. MP3 Cutter – Ringtone Maker & Audio Cutter
+34. Voice Recorder & Voice Changer
+35. Barcode Scanner – QR Code Scan
+36. Lica Cam – Selfie camera app
+37. EVE Echoes
+38. Astracraft
+39. UU Game Booster-network solution for high ping
+40. Extraordinary Ones
+41. Badlanders
+42. Stick Fight: The Game Mobile
+43. Twilight Pioneers
+44. CuteU: Match with the World
+45. SmallWorld-Enjoy group chat and video chat
+46. CuteU Pro
+47. FancyU – Video Chat & Meetup
+48. RealU: Go Live, Make Friends
+49. MoonChat: Enjoy Video Chats
+50. RealU Lite – Video to live!
+51. Wink: Connect Now
+52. FunChat Meet People Around You
+53. FancyU pro – Instant Meetup through video chat!
+54. Garena Free Fire – Illuminate
 
-（单伟建）说共产党的独裁，独裁有什么不好的？独裁有很好的基础设施，因为它掠夺的老百姓，因为美国不能搞拆迁，不能搞强拆。中国有很好的基础设施，而且中国共产党这个所谓的独裁是有优越性的。哈哈，单伟建这孙子！就是“它独裁是独裁中国人民，并不独裁你，你应该跟独裁一起赚更大的钱，去剥削他们。”这就是最简单的话，除非听不懂人话。
 
-就是单伟建这帮孙子，是该下万层地狱，和陈峰在哈佛演讲那种傲慢，和王岐山“让中国人吃三年草”，和“中国人就是不打就不行，中国人有饭吃就不行”，这都是如出一辙。像万达王健林、像马云、像所有的马化腾，所有的这些老板，都忘了自己出自于草根。他以为戴上五角星的帽，像梁万琪一样，像洗米沉（口误：应为洗米华）一样，是不是？就觉得我是共产党的亲儿子了，你没想到你永远不是。
+据悉，其中清单中的许多应用程序属于腾讯、阿里巴巴和游戏公司网易等中共国大型科技公司，是自 2020 年以来在印度被禁止的应用程序的“重新命名或重新命名的变身”。
 
-像单伟建（的）太平（联盟）TPG，投盘古、投海航、投吴征，我告诉你两件事，他百分之百犯法，绝对触碰中国的所谓外国投资者的登记制度，就像投盘古一样。他用了16家壳公司，最多21家壳公司，注册的公司变相地在国内给钱，在海外给钱，百分之百这钱进中国是不合法的。是吧？投海航也是，木兰机场，就是三亚的。投吴征也是。
+2020年6月，印度政府第一轮禁止了包括TikTok、微信和Helo在内的59款中国移动应用程序，以应对这些应用程序对该国“主权和安全”构成的威胁。在中印边境冲突后，由于印度和中国之间的紧张局势升级，其他一些著名的应用程序包括 ShareIT、UC 浏览器和购物应用程序 Clubfactory。
 
-第二，从国内还钱肯定不合法，你不可能结汇。一定是所谓的叫做“结构性的搭建”，一定是假的是吧？这就形成什么？必须是官方勾结、官商勾结、官金勾结。严格讲没有一笔交易合法化的。所以说太平洋（联盟）这帮孙子，单伟建，还有这个美国基金，他都是骗子。
-
-**往期回顾：
-**[文·贵天成——文贵先生谈“太平联盟PAG”（一）](https://gnews.org/zh-hans/1575908/)
-[文·贵天成——文贵先生谈“太平联盟PAG”（二）](https://gnews.org/zh-hans/1576820/)
-[文·贵天成——文贵先生谈“太平联盟PAG及单伟建”（三）](https://gnews.org/zh-hans/2003549/)
-[文·贵天成——文贵先生谈“太平联盟PAG及单伟建”（四）](https://gnews.org/zh-hans/2003630/)
-[文·贵天成——文贵先生谈“太平联盟PAG及单伟建”（五）](https://gnews.org/zh-hans/2003856/)
-[文·贵天成——文贵先生谈“太平联盟PAG及单伟建”（六）](https://gnews.org/zh-hans/2006362/)
-[文·贵天成——文贵先生谈“太平联盟PAG及单伟建”（七）](https://gnews.org/zh-hans/2006551/)
-[文·贵天成——文贵先生谈“PAG太平联盟、单伟建”（八）](https://gnews.org/zh-hans/2006821/)
-[文•贵天成——文贵先生谈“PAG太平联盟、单伟建”（九）](https://gnews.org/zh-hans/2008013/)
-[文•贵天成——文贵先生谈“PAG太平联盟、单伟建”（十）](https://gnews.org/zh-hans/2008030/)
-
-*发布：翼族*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+新闻链接：[India To Ban 54 Chinese Apps Over Threat To National Security; Here’s A List Of The Apps](https://www.republicworld.com/technology-news/apps/india-bans-54-more-chinese-apps-over-national-security-heres-a-list-of-banned-apps-articleshow.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
