@@ -2,24 +2,256 @@
 ---
 
 
-## 樱花FM┃拜登政府二度批准对台军售
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2012339/)
+## 每日快报：多数美国民众支持加拿大卡车司机运动
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2012311/)
 
-音频：东京樱花团/战友520
-![](https://lh3.googleusercontent.com/bSY1RrxVwjxw0RUrhRHAMIh8oqydLM4Bsh03EHQsAxcJnxDa0T9AUFsgE5WwvhYNL3j2UQ901b_P_LWLAU7S9JdmCVyyaxGuowHfMynHltzoHBB2kymUJfvTlGLPmX-VlLlDo2Bx)
-美国国务院周一 (2月7日) 宣布，基于《台湾关系法》，已批准对台湾出售价值1亿美元、为期5年的爱国者系统工程勤务计划。美国国务院表示，这批军售案能有助于提高台湾的安全，并对维持区域政局稳定、军事平衡和经济进步都有帮助。这也是拜登政府上台后，第二次核准对台湾的军售。
+*作者：*天使在人间
 
-美国国务院政军局在一份声明稿中说，这次军售将会有助于台湾维持其飞弹密度、确保台湾的空中作战战备能力，以达到区域吓阻作用。这次军售主要是提供支持台湾参与爱国者飞弹工程勤务及飞弹效能鉴测的相关设备与服务，为期共5年，提供的协助包含工程服务支援，以及维持与改善爱国者防空飞弹系统。
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/每日快报.png)
 
-美国国务院政军局也重申，核准这次军售是为了使台湾的军队持续现代化且保持可靠的防御能力，因为这样的发展符合美国的国家、经济与安全利益。这次军售将会有助于台湾维持其飞弹密度、确保台湾的空中作战战备能力，以达到区域吓阻作用。
+# ***今日摘要***
 
-台湾国防部说美国此举是基于《台湾关系法》与“六项保证”，持续帮助台湾维持足够的自我防卫能力，所以台湾国防部也向美国政府表示感谢。
+1. 最新民调显示：多数美国民众支持加拿大卡车司机运动
+2. 乌克兰紧张局势飙升之际，俄罗斯和中共签署了巨额石油交易
+3. 支持立陶宛抵抗胁迫 台湾证实已要求加入欧盟在世贸组织对中共国提起的投诉
+4. 渥太华警察局局长因处理自由车队抗议不当而辞职
+5. 美众议员表示共和党将赢得众议院，然后将展开调查希拉里克林顿
+6. 巧合？ NBA著名反中共球星坎特被交易至休斯顿火箭队后立即被裁掉!
 
-文字版原文：[拜登政府二度批准对台军售](https://gnews.org/zh-hans/1979109/)
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+# 重要事件
+
+- ** 02.16 ：**Breitbart: [最新民调显示：多数美国民众支持加拿大卡车司机运动](https://www.breitbart.com/politics/2022/02/15/survey-majority-americans-support-canadian-truckers-would-support-similar-movement-u-s/)
+
+
+大多数美国人支持加拿大卡车司机争取自由的行动，以反对该国的疫苗护照政策，并表示将支持美国的类似运动，这是拉斯穆森报告周二发布的一项调查。”加拿大的多个城市和与美国的边境口岸一直是加拿大卡车司机车队抗议COVID-19疫苗护照的主要场所。你支持还是反对加拿大卡车司机的抗议活动？”调查问道。总体而言，百分之五十九的人表示他们支持这项运动，其中42%的人”强烈”支持它。支持它的人包括77%的共和党人，60%的独立人士和40%的民主党人。
+
+当被问及美国卡车司机是否应该在美国举行类似的抗议活动以抗议国内的冠状病毒限制政策时，55%的人表示他们会支持，而38%的人表示他们会反对。值得注意的是，大多数共和党人（74%）和独立人士（57%）表示他们会支持这样的抗议活动，但57%的民主党人表示他们不会。
+
+根据拉斯穆森报告：每个种族类别的大多数人 – 56%的白人，55%的黑人选民和70%的其他少数民族 – 支持加拿大卡车司机抗议COVID-19限制政策。这也适用于美国对类似抗议活动的支持，52%的白人，55%的黑人选民和64%的其他少数族裔表示，他们将支持美国卡车司机抗议COVID-19限制。
+
+拜登总统最坚定的支持者最有可能反对加拿大卡车司机的抗议活动。在强烈支持拜登担任总统的选民中，只有33%的人支持”自由车队”抗议活动，而58%的人反对抗议活动。相比之下，在强烈反对拜登表现的选民中，86%的人支持加拿大的卡车司机抗议活动，只有9%的人反对。
+
+该调查于2022年2月13日至14日在1，000名可能的选民中进行，误差幅度为+/- 3%。周一，加拿大总理贾斯汀·特鲁多援引紧急使用权力，试图平息全国各地的自由抗议活动。”这是为了保证加拿大人的安全，保护人们的工作，恢复对我们政府的信心，”特鲁多声称。 同时他的政府威胁要冻结自由车队卡车司机的资产。
+
+- ** 02.16 ：**Zerohedge： [乌克兰紧张局势飙升之际，俄罗斯和中共签署了巨额石油交易](https://www.zerohedge.com/geopolitical/russia-and-china-inked-huge-oil-deals-amid-soaring-ukraine-tensions)
+
+
+莫斯科国有石油巨头俄罗斯石油公司签署了一项价值800亿美元的10年期协议，向中共国石油天然气集团公司供应1亿吨石油。向中共国输送原油的增加是尽可能大程度地规避对俄罗斯的国际制裁影响的战略的一部分。
+
+俄罗斯和中共国之间的这种多层次合作战略为俄罗斯提供了来自中共国的资金，而不必担心美国及其盟国可能实施制裁。大约在俄罗斯总统普京与中共国习近平进行了近两年来的首次面对面会晤的同时 – 在北京冬奥会开幕式上 – 双方重申俄罗斯和中共国的友谊可以是”无限的”，国家新闻机构宣布了石油和天然气领域及其他领域的一系列大型新合作协议。过去几年，两国在多个运营领域以越来越协调的方式开展工作，其核心目标是削弱美国的全球主导力量地位，然后取代之。
+
+在石油和天然气行业，这种协调战略在中东地区最为明显，特别是自2018年5月美国单方面退出与伊朗的联合全面行动计划以来。它随后于2021年9月从阿富汗撤军，然后在2021年12月在伊拉克的”战斗任务结束”，这增强了俄中轴心的信心，即实现其目标只是时间问题。
+
+北京现在可以把重点放在伊拉克上，因为它已经将伊朗 – 通过其与德黑兰达成的25年全面协议 – 视为”事实上的附庸国”，一位与伊朗石油部密切合作的石油和天然气行业高级官员上周独家告诉 OilPrice.com。为了利用几个中东国家日益表现出的政治模糊性，而这些国家以前可以毫不含糊地被称为美国的盟友，中国还试图通过与其多代权力攫取项目相关的资金，与他们达成”加州酒店”式的交易——”你可以随时退房/但你永远不能离开” “一带一路”。与此同时，俄罗斯目前更关注伊朗 – 据伊朗消息人士称，这是与中国商定的政策重点 – 继续在叙利亚与它合作，以及几个石油和天然气田的发展。
+
+俄罗斯和中共国之间的这种多层次合作战略为俄罗斯提供了从中共国向俄罗斯提供的资金，而不管美国及其盟国可能实施的制裁，包括大肆宣传的SWIFT国际支付系统禁令 – 即使在俄罗斯全面入侵乌克兰的情况下，也不太可能有效。另一方面，它为中共国提供了越来越多的石油和天然气，以推动其最迟在2030年之前超越美国成为世界最大经济体的名义GDP。按购买力平价计算，它已经是世界上最大的经济体，最大的制造业经济体和最大的贸易国。任何暂时的缺口，无论是俄罗斯的财政缺口，还是中共国的石油和天然气供应，都可能越来越多地被全球政治上模棱两可的国家的合作所填补，特别是在中东产油国之间。它们不仅是促进中共国经济增长的自然资源库。
+
+- ** 02.16 ：**美国之音中文网： [支持立陶宛抵抗胁迫 台湾证实已要求加入欧盟在世贸组织对中共国提起的投诉](https://www.voachinese.com/a/taiwan-joins-wto-case-against-china-over-lithuania-20220215/6443133.html)
+
+
+台湾外交部星期二(2月15日)证实台湾已经加入美国和澳大利亚等行列，要求加入欧盟在世界贸易组织针对中共国提起的投诉。欧盟指控北京对立陶宛实施贸易报复。欧盟上个月向世贸组织提出了投诉，指控中共国对欧盟成员立陶宛有贸易歧视做法，威胁了欧盟单一市场的完整性。
+
+只有280万人口的波罗的海国家立陶宛允许设立驻立陶宛台湾代表处，引发了北京的愤怒和报复。台湾在海外的代表机构一般使用“台北”名称而避免直接称“台湾”。中共国坚称实行民主和自治的台湾是中共国领土一部分，而且拒绝放弃武力统一威胁。
+
+中共国把与立陶宛的外交关系降级，还向跨国公司施压，要求他们切断与立陶宛的关系。台湾外交部发言人欧江安说，台湾已在上星期三(2月9日)按照世贸组织的争端解决程序，提出以第三方身份加入本案的磋商程序。她对媒体说，中共国的经济胁迫已违反国际经济及贸易规范，不应当被容忍。她说，台湾将与立陶宛和欧盟等志同道合的伙伴维持基于规则的国际贸易体系。
+
+美国、澳大利亚、英国和加拿大都已要求加入欧盟针对中共国的投诉。在欧盟向世贸组织提出投诉后，按照规则，各方获准进行60天的磋商，以达成解决方案。如果不能达成解决方案，欧盟可以选择发起正式的争端解决程序，设立一个世贸组织小组来研究欧盟针对中共国提出的投诉。
+
+- ** 02.16 ：**Gatewaypundit: [渥太华警察局局长因处理自由车队抗议不当而辞职](https://www.thegatewaypundit.com/2022/02/just-ottawa-police-chief-resigns-amid-freedom-convoy-protest/)
+
+
+据加拿大媒体CBC报道，渥太华警察局局长彼得·斯洛利周二辞职。消息人士称，彼得·斯洛利已辞去渥太华警察局长一职，并将在渥太华警察局长会议后公开宣布他将辞职。
+
+这位前负责人因处理卡车车队抗议活动而受到批评，该抗议活动对渥太华市中心造成了重大破坏。斯洛利辞职之际，消息人士告诉CBC新闻，他被指控欺凌和不确定的行为，破坏了与高级领导层的关系，并损害了警察部门应对卡车抗议活动的能力。
+
+多个消息人士告诉CBC新闻，据称斯洛利在同事面前贬低和谴责渥太华高级警察局官员，并且未能提出一个可靠的行动计划来结束危机。消息人士称，据称他与其他的成员发生冲突，这些成员负责在危机期间协助该市的执法工作。回想一下，彼得·斯洛利曾经发誓要起诉参加和平自由车队抗议活动的卡车司机。彼得·斯洛利表示，”目标是结束该市的示威活动”，并补充说，警方将”带来更多的资源来恢复秩序”。
+
+- ** 02. 16：**Newsmax: [美众议员表示共和党将赢得众议院，然后将展开调查希拉里克林顿](https://www.newsmax.com/newsmax-tv/dan-bishop-hillary-clinton-trump-russia/2022/02/15/id/1056923/)
+
+
+明年将成为众议院司法委员会成员的众议员丹·毕晓普周二告诉Newsmax，共和党人将重新获得对众议院的控制权，到那时”我们将发出传票”，以调查特别顾问约翰·达勒姆在一份文件中提出的说法，该报告称希拉里克林顿在2016年总统竞选活动中付钱给一家公司渗透到当时的共和党候选人川普的阵营，并最终渗透到白宫。
+
+“这位技术高管为一家公司工作，用达勒姆最近在法庭上提交的文件的话来说，这家公司可以通过敏感的途径，使他们能够访问进出白宫的互联网流量，他们出于政治原因利用了这一点，”这位北卡罗来纳州共和党人在Newsmax的”国家报告”中说。”这是在川普总统当选之后。总统所说的关于被监视的一切，他的直觉都是完全正确的。
+
+他补充说，这”使水门事件看起来相形见绌”。最终发生的事情在很大程度上取决于达勒姆以及他调查的其他内容，但众议院共和党人”希望我们能彻底了解这一点，”毕晓普说。”我们将发出传票。我们将迅速找出所发生事情的全部内容。他的表态是发生在66%的民主党人在一项新民意调查中表示他们希望看到希拉里克林顿因涉嫌试图通过将川普与俄罗斯联系起来来抹黑川普的行为而受到调查。
+
+毕晓普还对劳工部周二发布的一份报告表示担忧，该报告显示，美国1月份的批发通胀率再次上升至9.7%。”他们一直告诉我们，通货膨胀将相当温和和短暂，但每个月似乎都会带来另一个可怕的头条新闻，”毕晓普说。”这立即转化为对美国人民的伤害。
+
+他补充说，该报告是美国正在发生的”可怕的财政政策”的另一个例子。”现代货币理论的最大倡导者说，我们可以无限制地消费，我们不担心我们的债务，”毕晓普说。”事实并非如此。与此同时，几个州正在放弃对COVID的授权，毕晓普说，他认为这是因为自由派政客正在”急于退出”，因为美国人已经厌倦了口罩强制令和其他要求，这些要求正在”在全国范围内造成破坏”。
+
+- **02. 16：**Foxnews: [巧合？ NBA著名反中共球星坎特被交易至休斯顿火箭队后立即被裁掉!](https://www.foxnews.com/sports/china-basher-enes-kanter-freedom-gets-traded-then-waived-by-the-houston-rockets-coincidence)
+
+
+NBA选手Enes Kanter Freedom被交易，然后被休斯顿火箭队放弃。这是巧合吗？在他为凯尔特人队的最后一次出场中得到7分和12个篮板。休斯顿火箭队在交易后放弃了Enes Kanter Freedom，据ESPN的Adrian Wojnarowski报道。
+
+随着球队争相在周四下午3点（美国东部时间）NBA交易截止日期结束前完成交易，波士顿将包括坎特在内的几名球员打包送到休斯顿，以换取中锋丹尼尔·泰斯，后者曾在2017年至2020年期间为凯尔特人队效力。
+
+坎特本赛季在球场上的出场机会很少，一些球迷和支持者猜测，他的反华言论影响了他的出场时间，由于NBA与中共国市场的联系而使他成为一个负担。火箭队此前发现自己与中共的关系处于困境，当时前总经理达里尔·莫雷在2019年支持香港独立。莫雷因在推特上发表”为自由而战，与香港站在一起”而受到中共抨击。
+
+坎特本赛季在35场比赛中场均出场11.7分钟，得到3.7分和4.6个篮板。他的投篮命中率为52.6%。坎特没有被放弃所打败，但意识到幕后的潜在政治，他在他的推特上发布了一段视频 – 嘲笑湖人队超级巨星勒布朗詹姆斯和协会对中国国家主席习近平的忠诚。
+
+埃内斯·坎特·自由（Enes Kanter Freedom）面临着一项任务，即在一个联盟中寻找新家的任务，这个联盟疏远了他反对中国政府的亲自由信息。
+
+# 更多要闻链接
+
+1. [德克萨斯州将芬太尼”中毒”归咎于墨西哥卡特尔和背后的中共国](https://www.washingtonexaminer.com/policy/abbott-led-texas-looks-to-blame-fentanyl-poisonings-on-cartels-and-china)
+2. [TikTok绕过苹果和谷歌的保护程序来获取用户数据](https://www.washingtonexaminer.com/policy/tiktok-skirts-apple-and-google-protections-to-grab-user-data-report)
+3. [加拿大紧急状态令：没有加密货币的风险从未如之大](https://www.zerohedge.com/crypto/martial-law-canada-its-never-been-riskier-not-own-bitcoin)
+4. [沃尔玛已经开始将牛排放入”上锁的金属笼子”中，以防止小偷拿走它们](https://www.zerohedge.com/personal-finance/walmart-has-started-putting-steaks-inside-locked-metal-cages-keep-shoplifters)
+5. [Levi’s总裁因公司试图压制她对COVID限制的看法而公开辞职](https://www.thegatewaypundit.com/2022/02/levis-president-publicly-quits-companys-attempt-silence-views-covid-restrictions/)
+6. [募捐网站GiveSendGo在非法左翼黑客攻击后重新上线，发表声明说”我们正在战争中”](https://www.thegatewaypundit.com/2022/02/givesendgo-website-back-online-illegal-leftist-hack-issues-statement-saying-battle/)
+7. [菲律宾的马科斯希望有军事存在以保卫其在南中国海水域的利益](https://www.oann.com/philippines-marcos-wants-military-presence-to-defend-its-waters-in-south-china-sea/)
+8. [尽管2021年的利润达到创纪录的55亿美元, 特斯拉却无需支付一分钱的联邦税](https://www.breitbart.com/tech/2022/02/14/tesla-to-pay-0-in-federal-tax-despite-record-5-5-billion-profit-in-2021/)
+
+
+# 每日推特文摘
+
+
+
+重磅：FDA执行官员在隐蔽的摄像头前透露了未来的COVID政策”拜登希望为尽可能多的人接种疫苗””你必须每年注射一次”
+
+
+
+
+
+> BREAKING: [@US\_FDA](https://twitter.com/US_FDA?ref_src=twsrc%5Etfw) Executive Officer on Hidden Cam Reveals Future COVID policy
+> 
+> “Biden wants to inoculate as many people as possible”
+> 
+> 'You’ll have to get an annual shot'[#ExposeFDA](https://twitter.com/hashtag/ExposeFDA?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/yuZ6aAu4Fi](https://t.co/yuZ6aAu4Fi)
+> — Truckistani Underground Poso 🚛 (@JackPosobiec) [February 16, 2022](https://twitter.com/JackPosobiec/status/1493758514325504000?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+俄乌边境紧张情势持续，美国及盟友警告俄罗斯随时都有可能针对乌克兰采取军事行动，许多国家已开始将自己的外交官和公民撤离乌克兰。但是中共国没有宣布撤侨，使馆仍在正常运作。中共国此次为何没有要求公民撤离？中共有何盘算？
+
+
+
+
+
+> 俄乌战争阴云笼罩，中国为何不撤侨？ [https://t.co/CHJNLbfTxk](https://t.co/CHJNLbfTxk)
+> — 美国之音中文网 (@VOAChinese) [February 16, 2022](https://twitter.com/VOAChinese/status/1493771252120449028?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+即使是魁北克，长期以来一直拥有该国最严格的封锁政策，现在也正在放弃疫苗护照。而与此同时，特鲁多正在成为维持这些政策的暴君。
+
+
+
+
+
+> [#BREAKING](https://twitter.com/hashtag/BREAKING?src=hash&amp;ref_src=twsrc%5Etfw): Even Quebec, which for a long time had the strictest rules in the country, is now dropping mandates. Meanwhile, Justin Trudeau is becoming a tyrant to maintain them. [https://t.co/KKiJKnYMRo](https://t.co/KKiJKnYMRo)
+> — Canada Proud (@WeAreCanProud) [February 15, 2022](https://twitter.com/WeAreCanProud/status/1493679341703778304?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+震撼！2013年：贾斯汀·特鲁多说他敬佩中共国的独裁统治
+
+
+
+
+
+> Flashback: Shock! Justin Trudeau Says He Admires China's Dictatorship [pic.twitter.com/hBoCadrxWj](https://t.co/hBoCadrxWj)
+> — Breitbart News (@BreitbartNews) [February 15, 2022](https://twitter.com/BreitbartNews/status/1493651475209367741?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+佐治亚州共和党人抨击可口可乐，NBA与中共国的合作：”不要给他们免费通行证”
+
+
+
+
+
+> Georgia Republican slams Coke, NBA over cooperation with China: 'Don't give them a free pass' [https://t.co/5kOdkS2PF7](https://t.co/5kOdkS2PF7)
+> — Fox News (@FoxNews) [February 15, 2022](https://twitter.com/FoxNews/status/1493701652481667073?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+萨尔瓦多总统纳伊布·布克莱说，乌克兰只是一个障眼法，而”真正的战争”是针对疫苗护照的。
+
+
+
+
+
+> El Salvador President Nayib Bukele says Ukraine is just a distraction, while the “real war” is against vaccine mandates. [https://t.co/VFHIRgY3do](https://t.co/VFHIRgY3do)
+> — Breitbart News (@BreitbartNews) [February 15, 2022](https://twitter.com/BreitbartNews/status/1493694061701701637?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+有些人拒绝妥协！
+
+诺瓦克·德约科维奇愿意放弃”有史以来最伟大的”头衔来挑战疫苗授权
+
+
+
+
+
+> Some men refuse to bow down. [https://t.co/4BUT86XiEB](https://t.co/4BUT86XiEB)
+> — Breitbart News (@BreitbartNews) [February 15, 2022](https://twitter.com/BreitbartNews/status/1493660657367097347?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+TSMC在美国亚利桑那州的第一家先进芯片工厂的建设比原计划晚了三到六个月，这表明这家全球最大的合同芯片制造商发现海外扩张比在国内更具挑战性。@NikkeiAsia独家
+
+
+
+
+
+> Construction of [#TSMC](https://twitter.com/hashtag/TSMC?src=hash&amp;ref_src=twsrc%5Etfw)’s first advanced chip plant in the Arizona, U.S. is three to six months behind schedule, a sign that the world's biggest contract chipmaker is finding it more challenging to expand overseas than at home. [@NikkeiAsia](https://twitter.com/NikkeiAsia?ref_src=twsrc%5Etfw) exclusive [https://t.co/bEmoh9GERZ](https://t.co/bEmoh9GERZ)
+> — Cheng Ting-Fang (@ChengTingFang) [February 15, 2022](https://twitter.com/ChengTingFang/status/1493586104171532291?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+ 
+
+ 
+
+
+
+ 
+
+ 
+
+
+
+
+
+
+*编辑：天使在人间
+审核发布：文顾*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

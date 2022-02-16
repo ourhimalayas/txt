@@ -2,256 +2,80 @@
 ---
 
 
-## 每日快报：多数美国民众支持加拿大卡车司机运动
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2012311/)
+## 币圈新闻动态：喜币（HCN）价格目前在43.400 HDO
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2012280/)
 
-*作者：*天使在人间
+*喜马拉雅华盛顿DC 编辑：aQ*
 
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/每日快报.png)
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/07/ScreenShot-2021-07-31-at-16.20.22@2x.png)
 
-# ***今日摘要***
 
-1. 最新民调显示：多数美国民众支持加拿大卡车司机运动
-2. 乌克兰紧张局势飙升之际，俄罗斯和中共签署了巨额石油交易
-3. 支持立陶宛抵抗胁迫 台湾证实已要求加入欧盟在世贸组织对中共国提起的投诉
-4. 渥太华警察局局长因处理自由车队抗议不当而辞职
-5. 美众议员表示共和党将赢得众议院，然后将展开调查希拉里克林顿
-6. 巧合？ NBA著名反中共球星坎特被交易至休斯顿火箭队后立即被裁掉!
 
+## 每日一问
 
-# 重要事件
 
-- ** 02.16 ：**Breitbart: [最新民调显示：多数美国民众支持加拿大卡车司机运动](https://www.breitbart.com/politics/2022/02/15/survey-majority-americans-support-canadian-truckers-would-support-similar-movement-u-s/)
 
 
-大多数美国人支持加拿大卡车司机争取自由的行动，以反对该国的疫苗护照政策，并表示将支持美国的类似运动，这是拉斯穆森报告周二发布的一项调查。”加拿大的多个城市和与美国的边境口岸一直是加拿大卡车司机车队抗议COVID-19疫苗护照的主要场所。你支持还是反对加拿大卡车司机的抗议活动？”调查问道。总体而言，百分之五十九的人表示他们支持这项运动，其中42%的人”强烈”支持它。支持它的人包括77%的共和党人，60%的独立人士和40%的民主党人。
 
-当被问及美国卡车司机是否应该在美国举行类似的抗议活动以抗议国内的冠状病毒限制政策时，55%的人表示他们会支持，而38%的人表示他们会反对。值得注意的是，大多数共和党人（74%）和独立人士（57%）表示他们会支持这样的抗议活动，但57%的民主党人表示他们不会。
+美国财政部确认将加密货币矿工等排除在征税范围之外，意味着什么?
 
-根据拉斯穆森报告：每个种族类别的大多数人 – 56%的白人，55%的黑人选民和70%的其他少数民族 – 支持加拿大卡车司机抗议COVID-19限制政策。这也适用于美国对类似抗议活动的支持，52%的白人，55%的黑人选民和64%的其他少数族裔表示，他们将支持美国卡车司机抗议COVID-19限制。
 
-拜登总统最坚定的支持者最有可能反对加拿大卡车司机的抗议活动。在强烈支持拜登担任总统的选民中，只有33%的人支持”自由车队”抗议活动，而58%的人反对抗议活动。相比之下，在强烈反对拜登表现的选民中，86%的人支持加拿大的卡车司机抗议活动，只有9%的人反对。
 
-该调查于2022年2月13日至14日在1，000名可能的选民中进行，误差幅度为+/- 3%。周一，加拿大总理贾斯汀·特鲁多援引紧急使用权力，试图平息全国各地的自由抗议活动。”这是为了保证加拿大人的安全，保护人们的工作，恢复对我们政府的信心，”特鲁多声称。 同时他的政府威胁要冻结自由车队卡车司机的资产。
 
-- ** 02.16 ：**Zerohedge： [乌克兰紧张局势飙升之际，俄罗斯和中共签署了巨额石油交易](https://www.zerohedge.com/geopolitical/russia-and-china-inked-huge-oil-deals-amid-soaring-ukraine-tensions)
 
+## 喜马拉雅交易所要闻
 
-莫斯科国有石油巨头俄罗斯石油公司签署了一项价值800亿美元的10年期协议，向中共国石油天然气集团公司供应1亿吨石油。向中共国输送原油的增加是尽可能大程度地规避对俄罗斯的国际制裁影响的战略的一部分。
 
-俄罗斯和中共国之间的这种多层次合作战略为俄罗斯提供了来自中共国的资金，而不必担心美国及其盟国可能实施制裁。大约在俄罗斯总统普京与中共国习近平进行了近两年来的首次面对面会晤的同时 – 在北京冬奥会开幕式上 – 双方重申俄罗斯和中共国的友谊可以是”无限的”，国家新闻机构宣布了石油和天然气领域及其他领域的一系列大型新合作协议。过去几年，两国在多个运营领域以越来越协调的方式开展工作，其核心目标是削弱美国的全球主导力量地位，然后取代之。
 
-在石油和天然气行业，这种协调战略在中东地区最为明显，特别是自2018年5月美国单方面退出与伊朗的联合全面行动计划以来。它随后于2021年9月从阿富汗撤军，然后在2021年12月在伊拉克的”战斗任务结束”，这增强了俄中轴心的信心，即实现其目标只是时间问题。
 
-北京现在可以把重点放在伊拉克上，因为它已经将伊朗 – 通过其与德黑兰达成的25年全面协议 – 视为”事实上的附庸国”，一位与伊朗石油部密切合作的石油和天然气行业高级官员上周独家告诉 OilPrice.com。为了利用几个中东国家日益表现出的政治模糊性，而这些国家以前可以毫不含糊地被称为美国的盟友，中国还试图通过与其多代权力攫取项目相关的资金，与他们达成”加州酒店”式的交易——”你可以随时退房/但你永远不能离开” “一带一路”。与此同时，俄罗斯目前更关注伊朗 – 据伊朗消息人士称，这是与中国商定的政策重点 – 继续在叙利亚与它合作，以及几个石油和天然气田的发展。
 
-俄罗斯和中共国之间的这种多层次合作战略为俄罗斯提供了从中共国向俄罗斯提供的资金，而不管美国及其盟国可能实施的制裁，包括大肆宣传的SWIFT国际支付系统禁令 – 即使在俄罗斯全面入侵乌克兰的情况下，也不太可能有效。另一方面，它为中共国提供了越来越多的石油和天然气，以推动其最迟在2030年之前超越美国成为世界最大经济体的名义GDP。按购买力平价计算，它已经是世界上最大的经济体，最大的制造业经济体和最大的贸易国。任何暂时的缺口，无论是俄罗斯的财政缺口，还是中共国的石油和天然气供应，都可能越来越多地被全球政治上模棱两可的国家的合作所填补，特别是在中东产油国之间。它们不仅是促进中共国经济增长的自然资源库。
+- 喜交所网站行情显示，喜币（HCN）价格目前在43.400 HDO，24H最高价格为44.502 HDO，24H最低价格为40.200 HDO，24H成交量约为114269.157 HCN。
 
-- ** 02.16 ：**美国之音中文网： [支持立陶宛抵抗胁迫 台湾证实已要求加入欧盟在世贸组织对中共国提起的投诉](https://www.voachinese.com/a/taiwan-joins-wto-case-against-china-over-lithuania-20220215/6443133.html)
 
 
-台湾外交部星期二(2月15日)证实台湾已经加入美国和澳大利亚等行列，要求加入欧盟在世界贸易组织针对中共国提起的投诉。欧盟指控北京对立陶宛实施贸易报复。欧盟上个月向世贸组织提出了投诉，指控中共国对欧盟成员立陶宛有贸易歧视做法，威胁了欧盟单一市场的完整性。
 
-只有280万人口的波罗的海国家立陶宛允许设立驻立陶宛台湾代表处，引发了北京的愤怒和报复。台湾在海外的代表机构一般使用“台北”名称而避免直接称“台湾”。中共国坚称实行民主和自治的台湾是中共国领土一部分，而且拒绝放弃武力统一威胁。
 
-中共国把与立陶宛的外交关系降级，还向跨国公司施压，要求他们切断与立陶宛的关系。台湾外交部发言人欧江安说，台湾已在上星期三(2月9日)按照世贸组织的争端解决程序，提出以第三方身份加入本案的磋商程序。她对媒体说，中共国的经济胁迫已违反国际经济及贸易规范，不应当被容忍。她说，台湾将与立陶宛和欧盟等志同道合的伙伴维持基于规则的国际贸易体系。
 
-美国、澳大利亚、英国和加拿大都已要求加入欧盟针对中共国的投诉。在欧盟向世贸组织提出投诉后，按照规则，各方获准进行60天的磋商，以达成解决方案。如果不能达成解决方案，欧盟可以选择发起正式的争端解决程序，设立一个世贸组织小组来研究欧盟针对中共国提出的投诉。
+## 新闻动态
 
-- ** 02.16 ：**Gatewaypundit: [渥太华警察局局长因处理自由车队抗议不当而辞职](https://www.thegatewaypundit.com/2022/02/just-ottawa-police-chief-resigns-amid-freedom-convoy-protest/)
 
 
-据加拿大媒体CBC报道，渥太华警察局局长彼得·斯洛利周二辞职。消息人士称，彼得·斯洛利已辞去渥太华警察局长一职，并将在渥太华警察局长会议后公开宣布他将辞职。
 
-这位前负责人因处理卡车车队抗议活动而受到批评，该抗议活动对渥太华市中心造成了重大破坏。斯洛利辞职之际，消息人士告诉CBC新闻，他被指控欺凌和不确定的行为，破坏了与高级领导层的关系，并损害了警察部门应对卡车抗议活动的能力。
 
-多个消息人士告诉CBC新闻，据称斯洛利在同事面前贬低和谴责渥太华高级警察局官员，并且未能提出一个可靠的行动计划来结束危机。消息人士称，据称他与其他的成员发生冲突，这些成员负责在危机期间协助该市的执法工作。回想一下，彼得·斯洛利曾经发誓要起诉参加和平自由车队抗议活动的卡车司机。彼得·斯洛利表示，”目标是结束该市的示威活动”，并补充说，警方将”带来更多的资源来恢复秩序”。
+1. 2月16日消息，基于Aurora的去中心化借贷市场Aurigami宣布完成融资，由Dragonfly Capital和Polychain Capital共同领投。据了解，Aurigami可使得Aurora上的资产可以更有战略性和更有效地利用。闲置资产可以变成有息的auToken，可以通过抵押借贷来实现杠杆，借来的资金可以部署到其他地方以获得额外收益。该项目正在计划推出主网。
+2. 2月16日消息，根据摩根士丹利发布的简报称，中国“元宇宙”市场的潜在总规模将高达52万亿元人民币（约8万亿美元）。其中，腾讯、字节跳动、万兴科技、中青宝、网易等国内企业亦大力加快布局元宇宙的商业步伐，大批互联网巨头和其关联企业争相申请注册元宇宙相关商标。在一级市场中，高瓴资本、红杉资本、真格基金、五源资本、险峰长青、晨兴资本、星瀚资本等一线投资机构，均已开启元宇宙赛道布局。Gartner研究副总裁Marty Resnick表示：“通过从数字业务转向元宇宙业务，企业将能够以前所未有的方式扩大和加强他们的业务模式。到2026年，全球30%的企业机构将拥有用于元宇宙的产品和服务。”
+3. Coindesk报道，去中心化物联网平台DIMO背后开发公司Digital Infrastructure宣布完成700万美元融资。本轮融资将帮助Digital Infrastructure及其合作伙伴公司将核心软件开源，并为开发人员构建网络应用程序推出软件开发工具包(SDK)。DIMO是一个去中心化的软件和硬件物联网(IoT)平台，它允许用户创建经过验证的车辆数据流并与应用程序共享，这可以让用户获得更优质的服务体验。
+4. 2月15日，Solana链上NFT数据分析网站Solanalysis宣布完成450万美元种子轮融资并更名为Hyperspace，本轮融资由Dragonfly和Pantera Capital联合领投。据悉，本次融资在几个月前进行，但直到最近才对外公开。Hyperspace计划构建NFT交易聚合器，帮助用户在主流Solana链上NFT市场购买NFT，所有交易价格信息都能在一个地方浏览访问。
+5. Techcrunch报道，Web3移动钱包初创公司Rainbow完成1800万美元A轮融资，由Reddit联合创始人Alexis Ohanian的风险投资公司Seven SevenSix领投。去年10月，该项目曾完成150万美元种子轮融资。据悉，Rainbow是一家构建移动钱包应用程序的加密初创公司，它允许用户与以太坊区块链上的去中心化应用程序进行交互，并试图从流程中提取尽可能多的技术知识，让购买或出售价值数千美元的NFT之类的事情像Uber打车之类的任务一样简单，近期已推出适用于Android的Rainbow应用程序公开测试版。
+6. 2月15日消息，区块链互操作性网络Axelar宣布完成3500万美元融资，估值达到10亿美元。该项目自1月下旬以来正在分阶段推出主网。据悉，Axelar正在构建一个去中心化的网络和工具，将跨多个区块链生态系统的用户、资产和dApp连接起来。该网络使开发人员能够在满足其需求的最佳平台上进行构建，同时利用Axelar堆栈来解锁跨链可组合性和流动性。Axelar Network由协议套件、工具和API组成，旨在打破跨链通信的障碍。
+7. 2月15日消息，NFTID通用身份协议Skill Wallet宣布完成165万美元融资，本轮融资由Third Kind Venture Capital(3kvc)领投。Skill Wallet是一个基于技能和贡献的不可转让的NFTID通用身份协议，用户可以通过Skill Wallet跨平台、跨社区证明他们的技能和声誉，该协议旨在释放Web3社区真正的潜力。
+8. 2月16日消息，去中心化交易终端Dex Guru宣布完成500万美元融资。Dex Guru计划成为任何链上无需许可的DeFi市场的彭博终端，提供链上现货市场和去中心化AMM交易所的详细信息，未来还计划提供NFT、期权、合约、债券市场等类型产品的信息，提供整个加密市场及其主要利益相关者的简洁实时概览，并允许web3交易者轻松监控任何和所有资产的链上流动。
+9. 2月16日消息，NFT交易平台X2Y2宣布12%的代币（1.2亿枚）将用于向OpenSea历史交易用户空投，在北京时间2022年1月1日20:00:03前在OpenSea进行过交易的用户均可领取空投，约86万个地址符合条件。Opensea交易量高于30个ETH的用户均可领取1000个X2Y2空投，交易量在0-30个ETH的用户可领取的空投数量与交易量成正比。
+10. 2月16日消息，去中心化资产跨链网络Nerve Network宣布Nerve 2.0 Beta版现已正式上线，用户可在全新UI中进行跨链资产管理，并新增跨链交易与流动性池功能。同时，跨链桥Nerve Bridge已经连接了8个主流区块链网络。
+11. 2月16日消息，DeFi预言机Umbrella Network宣布与去中心化跨链质押平台rRing Finance达成合作。BRING/USDT交易对数据将作为L2数据提供在Umbrella Network的去中心化预言机上。
+12. 2月15日消息，Drift Protocol宣布在Web3漏洞赏金平台Immunefi上发布漏洞赏金计划，本次漏洞赏金计划专注于检查智能合约，防止用户本金、收益资金或治理资金被盗窃或冻结。该计划将根据漏洞等级支付赏金，最高可获得500,000美元。
+13. Theblock报道，房地产投资公司Vesta Equity宣布在Algorand上推出NFT平台，据称该平台也是世界上第一个由房地产支持的NFT资产P2P市场。对于已经购买了房产物业的房主来说，他们可以将自己一部分房产变成代币化、碎片化的NFT，然后再将其打包成一种证券进行出售。Vesta Equity首席执行官迈克尔•卡彭蒂尔表示，这种方式可以让房主在无需抵押或出售房屋的情况下获得房屋的价值，这意味着，如果当地房价上涨，理论上房主（或投资者）就可以从房地产升值中受益。
+14. Coindesk报道，摩根大通周二宣布在Decentraland开设了一个虚拟空间Onyx Lounge，名称来源于其专注于加密和区块链的部门Onyx，摩根大通声称是银行业第一家进入元宇宙的公司，该公司还发布了一篇名为“Opportunities in the metaverse”的研究报告，探讨企业如何在元宇宙中寻找机会。
+15. Coindesk报道，在线加密货币平台Voyager Digital Ltd(VYGVF)第二财季的营业收入为320万美元，而去年同期为亏损280万美元。第二财季总收入为1.648亿美元，低于分析师估计的1.781亿美元，但比第一季度翻了一番多，比上一年增长了4,400%。
+16. Coindesk报道，巴菲特的伯克希尔哈撒韦公司抛售了部分Visa和Mastercard持股，并增加了巴西最大的金融科技银行Nubank的投资敞口。该公司已在2021年第四季度购买了价值10亿美元的Nubank A类股票，同时分别出售了价值18亿美元和13亿美元的Visa和Mastercard股票。伯克希尔哈撒韦于2021年7月向Nubank投资了5亿美元。
+17. 雅虎财经报道，Valkyrie Investments资产管理规模（AUM）已超过10亿美元，其ETF业务的AUM约为4600万美元，Valkyrie总资产的另外90%来自定制的独立管理账户(SMA)、针对机构投资者的加密协议信托，以及专注于去中心化金融的对冲基金。
+18. Theblock报道，Gnosis Safe生态系统拟议的管理方Safe Foundation正计划通过代币销售募集1亿美元资金，据悉，Safe Foundation将铸造10亿枚SAFE代币（一种尚未推出的治理代币），其中总供应量的8%会指定出售给一些战略投资者。
+19. Seekingalpha报道，美国财政部负责国内金融事务的副部长Nellie Liang周二表示，稳定币存在没有真正美元储备的风险，虽然稳定币发行商通常表示拥有一比一的支持，但Liang表示：“在压力时期、围绕赎回和未披露费用的问题下，稳定币资产可能无法提供1美元，赎回问题最终会产生运行风险”。
+20. Cryptopotato报道，美国民主党成员Josh Gottheimer已公布了一份关于稳定币监管的早期立法草案，其中建议某些数字货币只有在可以一对一兑换成美元的情况下才“符合”稳定币的条件。发行此类产品的机构应该是联邦支持的银行或同意维持由美元或美国债务组成的100%储备资产的非银行机构。
+21. Etfstream报道，富达国际已经进入加密货币领域，富达实物比特币ETP（FBTC）在德意志交易所和法兰克福证券交易所上市，总费用率（TER）为0.75%，FBTC将在未来几周在瑞士证券交易所上市。有实体支持的FBTC将由Eurex Clearing集中清算，由Fidelity Digital Assets担任托管人。布朗兄弟哈里曼公司将担任该产品的管理人和转让代理。富达国际表示，在富达数字资产调查发现70%的机构受访者预计未来将投资于数字资产之后，它为机构和专业客户推出了FBTC。
+22. Cointelegraph报道，白俄罗斯总统亚历山大•卢卡申科（Alexander Lukashenko）签署了一项法令，确认该国正式支持比特币（BTC）等加密货币自由流通。
+23. Izvestia报道，俄罗斯经济发展部已经批准了该国加密采矿监管的概念，提议允许在“可持续电能过剩”的地区进行挖矿。作为该提案的一部分，该部建议降低在俄罗斯特定地区建立采矿场和数据中心的费用，并为这些设施提供更低的能源费率。该部还希望为个人采矿建立电力使用限制
+24. 卫星新闻报道，俄罗斯央行新闻处表示，央行和市场参与者已开始进行数字卢布平台测试，首批个人账户间的汇款顺利完成。
 
-- ** 02. 16：**Newsmax: [美众议员表示共和党将赢得众议院，然后将展开调查希拉里克林顿](https://www.newsmax.com/newsmax-tv/dan-bishop-hillary-clinton-trump-russia/2022/02/15/id/1056923/)
 
 
-明年将成为众议院司法委员会成员的众议员丹·毕晓普周二告诉Newsmax，共和党人将重新获得对众议院的控制权，到那时”我们将发出传票”，以调查特别顾问约翰·达勒姆在一份文件中提出的说法，该报告称希拉里克林顿在2016年总统竞选活动中付钱给一家公司渗透到当时的共和党候选人川普的阵营，并最终渗透到白宫。
 
-“这位技术高管为一家公司工作，用达勒姆最近在法庭上提交的文件的话来说，这家公司可以通过敏感的途径，使他们能够访问进出白宫的互联网流量，他们出于政治原因利用了这一点，”这位北卡罗来纳州共和党人在Newsmax的”国家报告”中说。”这是在川普总统当选之后。总统所说的关于被监视的一切，他的直觉都是完全正确的。
 
-他补充说，这”使水门事件看起来相形见绌”。最终发生的事情在很大程度上取决于达勒姆以及他调查的其他内容，但众议院共和党人”希望我们能彻底了解这一点，”毕晓普说。”我们将发出传票。我们将迅速找出所发生事情的全部内容。他的表态是发生在66%的民主党人在一项新民意调查中表示他们希望看到希拉里克林顿因涉嫌试图通过将川普与俄罗斯联系起来来抹黑川普的行为而受到调查。
-
-毕晓普还对劳工部周二发布的一份报告表示担忧，该报告显示，美国1月份的批发通胀率再次上升至9.7%。”他们一直告诉我们，通货膨胀将相当温和和短暂，但每个月似乎都会带来另一个可怕的头条新闻，”毕晓普说。”这立即转化为对美国人民的伤害。
-
-他补充说，该报告是美国正在发生的”可怕的财政政策”的另一个例子。”现代货币理论的最大倡导者说，我们可以无限制地消费，我们不担心我们的债务，”毕晓普说。”事实并非如此。与此同时，几个州正在放弃对COVID的授权，毕晓普说，他认为这是因为自由派政客正在”急于退出”，因为美国人已经厌倦了口罩强制令和其他要求，这些要求正在”在全国范围内造成破坏”。
-
-- **02. 16：**Foxnews: [巧合？ NBA著名反中共球星坎特被交易至休斯顿火箭队后立即被裁掉!](https://www.foxnews.com/sports/china-basher-enes-kanter-freedom-gets-traded-then-waived-by-the-houston-rockets-coincidence)
-
-
-NBA选手Enes Kanter Freedom被交易，然后被休斯顿火箭队放弃。这是巧合吗？在他为凯尔特人队的最后一次出场中得到7分和12个篮板。休斯顿火箭队在交易后放弃了Enes Kanter Freedom，据ESPN的Adrian Wojnarowski报道。
-
-随着球队争相在周四下午3点（美国东部时间）NBA交易截止日期结束前完成交易，波士顿将包括坎特在内的几名球员打包送到休斯顿，以换取中锋丹尼尔·泰斯，后者曾在2017年至2020年期间为凯尔特人队效力。
-
-坎特本赛季在球场上的出场机会很少，一些球迷和支持者猜测，他的反华言论影响了他的出场时间，由于NBA与中共国市场的联系而使他成为一个负担。火箭队此前发现自己与中共的关系处于困境，当时前总经理达里尔·莫雷在2019年支持香港独立。莫雷因在推特上发表”为自由而战，与香港站在一起”而受到中共抨击。
-
-坎特本赛季在35场比赛中场均出场11.7分钟，得到3.7分和4.6个篮板。他的投篮命中率为52.6%。坎特没有被放弃所打败，但意识到幕后的潜在政治，他在他的推特上发布了一段视频 – 嘲笑湖人队超级巨星勒布朗詹姆斯和协会对中国国家主席习近平的忠诚。
-
-埃内斯·坎特·自由（Enes Kanter Freedom）面临着一项任务，即在一个联盟中寻找新家的任务，这个联盟疏远了他反对中国政府的亲自由信息。
-
-# 更多要闻链接
-
-1. [德克萨斯州将芬太尼”中毒”归咎于墨西哥卡特尔和背后的中共国](https://www.washingtonexaminer.com/policy/abbott-led-texas-looks-to-blame-fentanyl-poisonings-on-cartels-and-china)
-2. [TikTok绕过苹果和谷歌的保护程序来获取用户数据](https://www.washingtonexaminer.com/policy/tiktok-skirts-apple-and-google-protections-to-grab-user-data-report)
-3. [加拿大紧急状态令：没有加密货币的风险从未如之大](https://www.zerohedge.com/crypto/martial-law-canada-its-never-been-riskier-not-own-bitcoin)
-4. [沃尔玛已经开始将牛排放入”上锁的金属笼子”中，以防止小偷拿走它们](https://www.zerohedge.com/personal-finance/walmart-has-started-putting-steaks-inside-locked-metal-cages-keep-shoplifters)
-5. [Levi’s总裁因公司试图压制她对COVID限制的看法而公开辞职](https://www.thegatewaypundit.com/2022/02/levis-president-publicly-quits-companys-attempt-silence-views-covid-restrictions/)
-6. [募捐网站GiveSendGo在非法左翼黑客攻击后重新上线，发表声明说”我们正在战争中”](https://www.thegatewaypundit.com/2022/02/givesendgo-website-back-online-illegal-leftist-hack-issues-statement-saying-battle/)
-7. [菲律宾的马科斯希望有军事存在以保卫其在南中国海水域的利益](https://www.oann.com/philippines-marcos-wants-military-presence-to-defend-its-waters-in-south-china-sea/)
-8. [尽管2021年的利润达到创纪录的55亿美元, 特斯拉却无需支付一分钱的联邦税](https://www.breitbart.com/tech/2022/02/14/tesla-to-pay-0-in-federal-tax-despite-record-5-5-billion-profit-in-2021/)
-
-
-# 每日推特文摘
-
-
-
-重磅：FDA执行官员在隐蔽的摄像头前透露了未来的COVID政策”拜登希望为尽可能多的人接种疫苗””你必须每年注射一次”
-
-
-
-
-
-> BREAKING: [@US\_FDA](https://twitter.com/US_FDA?ref_src=twsrc%5Etfw) Executive Officer on Hidden Cam Reveals Future COVID policy
-> 
-> “Biden wants to inoculate as many people as possible”
-> 
-> 'You’ll have to get an annual shot'[#ExposeFDA](https://twitter.com/hashtag/ExposeFDA?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/yuZ6aAu4Fi](https://t.co/yuZ6aAu4Fi)
-> — Truckistani Underground Poso 🚛 (@JackPosobiec) [February 16, 2022](https://twitter.com/JackPosobiec/status/1493758514325504000?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-俄乌边境紧张情势持续，美国及盟友警告俄罗斯随时都有可能针对乌克兰采取军事行动，许多国家已开始将自己的外交官和公民撤离乌克兰。但是中共国没有宣布撤侨，使馆仍在正常运作。中共国此次为何没有要求公民撤离？中共有何盘算？
-
-
-
-
-
-> 俄乌战争阴云笼罩，中国为何不撤侨？ [https://t.co/CHJNLbfTxk](https://t.co/CHJNLbfTxk)
-> — 美国之音中文网 (@VOAChinese) [February 16, 2022](https://twitter.com/VOAChinese/status/1493771252120449028?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-即使是魁北克，长期以来一直拥有该国最严格的封锁政策，现在也正在放弃疫苗护照。而与此同时，特鲁多正在成为维持这些政策的暴君。
-
-
-
-
-
-> [#BREAKING](https://twitter.com/hashtag/BREAKING?src=hash&amp;ref_src=twsrc%5Etfw): Even Quebec, which for a long time had the strictest rules in the country, is now dropping mandates. Meanwhile, Justin Trudeau is becoming a tyrant to maintain them. [https://t.co/KKiJKnYMRo](https://t.co/KKiJKnYMRo)
-> — Canada Proud (@WeAreCanProud) [February 15, 2022](https://twitter.com/WeAreCanProud/status/1493679341703778304?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-震撼！2013年：贾斯汀·特鲁多说他敬佩中共国的独裁统治
-
-
-
-
-
-> Flashback: Shock! Justin Trudeau Says He Admires China's Dictatorship [pic.twitter.com/hBoCadrxWj](https://t.co/hBoCadrxWj)
-> — Breitbart News (@BreitbartNews) [February 15, 2022](https://twitter.com/BreitbartNews/status/1493651475209367741?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-佐治亚州共和党人抨击可口可乐，NBA与中共国的合作：”不要给他们免费通行证”
-
-
-
-
-
-> Georgia Republican slams Coke, NBA over cooperation with China: 'Don't give them a free pass' [https://t.co/5kOdkS2PF7](https://t.co/5kOdkS2PF7)
-> — Fox News (@FoxNews) [February 15, 2022](https://twitter.com/FoxNews/status/1493701652481667073?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-萨尔瓦多总统纳伊布·布克莱说，乌克兰只是一个障眼法，而”真正的战争”是针对疫苗护照的。
-
-
-
-
-
-> El Salvador President Nayib Bukele says Ukraine is just a distraction, while the “real war” is against vaccine mandates. [https://t.co/VFHIRgY3do](https://t.co/VFHIRgY3do)
-> — Breitbart News (@BreitbartNews) [February 15, 2022](https://twitter.com/BreitbartNews/status/1493694061701701637?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-有些人拒绝妥协！
-
-诺瓦克·德约科维奇愿意放弃”有史以来最伟大的”头衔来挑战疫苗授权
-
-
-
-
-
-> Some men refuse to bow down. [https://t.co/4BUT86XiEB](https://t.co/4BUT86XiEB)
-> — Breitbart News (@BreitbartNews) [February 15, 2022](https://twitter.com/BreitbartNews/status/1493660657367097347?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-TSMC在美国亚利桑那州的第一家先进芯片工厂的建设比原计划晚了三到六个月，这表明这家全球最大的合同芯片制造商发现海外扩张比在国内更具挑战性。@NikkeiAsia独家
-
-
-
-
-
-> Construction of [#TSMC](https://twitter.com/hashtag/TSMC?src=hash&amp;ref_src=twsrc%5Etfw)’s first advanced chip plant in the Arizona, U.S. is three to six months behind schedule, a sign that the world's biggest contract chipmaker is finding it more challenging to expand overseas than at home. [@NikkeiAsia](https://twitter.com/NikkeiAsia?ref_src=twsrc%5Etfw) exclusive [https://t.co/bEmoh9GERZ](https://t.co/bEmoh9GERZ)
-> — Cheng Ting-Fang (@ChengTingFang) [February 15, 2022](https://twitter.com/ChengTingFang/status/1493586104171532291?ref_src=twsrc%5Etfw)
-
-
-
-
+*编辑：aQ
+发布：文顾*
 
 
  
-
- 
-
-
-
- 
-
- 
-
-
-
-
-
-
-*编辑：天使在人间
-审核发布：文顾*
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

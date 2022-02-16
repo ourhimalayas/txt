@@ -2,35 +2,72 @@
 ---
 
 
-## 短视频：特鲁多政府抹黑大卡车运动为暴力行为
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2012671/)
+## 众议员莫·布鲁克斯推《中共国COVID-19赔偿法案》
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2012456/)
 
-翻译：俏如来
-校对：精靈藍
-视频字幕：qingjing（清净）
-编辑：文泓
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/无标题-3.png)图片来源：视频截屏
+> 众议员莫·布鲁克斯：[#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw) 撒谎，人民死亡。我希望共产主义中国向受到伤害的美国人赔偿，因为他们制造了 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hash&amp;ref_src=twsrc%5Etfw) 之后还撒谎掩盖从而伤害了美国人。
+> 【附中字视频】 [https://t.co/N2vG2vMj8e](https://t.co/N2vG2vMj8e) [pic.twitter.com/2tcrnnTUAS](https://t.co/2tcrnnTUAS)
+> — 美国政要直译推 (@zhiyitw33) [February 16, 2022](https://twitter.com/zhiyitw33/status/1493784086158086148?ref_src=twsrc%5Etfw)
 
 
-根据贾斯汀·特鲁多的说法，在渥太华市拥有汽油现在是一种犯罪行为。
 
-现在，需要明确的是，渥太华确实宣布进入紧急状态，因为卡车司机们“点燃了一座法院，开枪伤人或夷平了教堂”——这是黑命贵运动（Black Lives Matter，BLM）的那些人做了所有这些事情。但贾斯汀·特鲁多强烈支持 BLM运动。前几天他还重申支持BLM，这就是问题所在。我们将让渥太华市长解释为什么和平的卡车司机对加拿大构成迫在眉睫的危险？
+众议员马乔丽·泰勒·格林：
+如果共和党人无法阻止大科技审查，那么共和党人还能做什么？
 
-当你看到抗议变成某种有趣的嘉年华时，你会感到不安，那里有充气城堡、热水浴缸和桑拿房。对过去七天一直忍受卡车司机的各种恶行的市民来说是种极端侮辱，对卡车司机的做法表现出极大的麻木不仁。
+大科技公司在审查他们不喜欢的政治观点上做得太过了，它在压制真相。
 
-卡车司机竟然为孩子们准备了充气城堡，没有孩子的渥太华市长咆哮着说：“让我们伤害、惩罚他们。”是的，女士们，先生们，在卡车司机的领地，孩子们在充气城堡玩耍上是一个黑暗的场景。当然，与此同时，孩子的父母会向政府展示那些负责让孩子在充气城堡上玩耍的人是在犯罪。请观看一位“白人至上主义者”的抗议，解释他抗议的动机。
+如果我们不能为保护真理而战，那还有什么可做的？
 
-你当时在哪里呢？你根本不在那里。但是现在，你冒着严寒出来反对我的基本人权和自由吗？我不会接受你这种做法，我并不孤单，站在旁边的就是我的兄弟。这是我的兄弟，就在这里。你们都没有权利告诉我应该与谁交往，不与谁交往。因为你没有站出来表达你对贾斯汀·特鲁多因为我的医疗决定而禁止我离开这个国家的做法的担忧，只是因为我做了一个他不喜欢的决定他就不允许我离境。
+共和党人到底是为了什么（而存在）？
 
-视频链接：[Wittgenstein 在 Twitter: “Tucker Carlson on how Canadian liberals want to intimidate the truckers https://t.co/Mt9Q4ccFCc” / Twitter](https://twitter.com/backtolife_2022/status/1491163995877027844?t=0ntydQ3gOH-bxoV5k-VL3A&amp;s=19)
-发布：文泓
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
+> If Republicans can’t stop Big Tech Censorship, then what can Republicans even do?
+> 
+> Big Tech has gone way past censoring political opinions they don’t like, it’s silencing truth.
+> 
+> If we can’t fight to protect truth then what else is left?
+> 
+> And what are Republicans even for?
+> — Rep. Marjorie Taylor Greene (@RepMTG) [February 16, 2022](https://twitter.com/RepMTG/status/1493770857855995904?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿迈克.蓬佩奥：
+社会主义行不通。 我在巡视 铁幕（指昔日西欧与中东欧共产党执政国家之间想象的屏障）时亲眼目睹了它——我知道它不会带来任何好处。
+
+
+
+> Socialism doesn’t work. I saw it firsthand when I patrolled the Iron Curtain — and I know nothing good comes of it.
+> — Mike Pompeo (@mikepompeo) [February 16, 2022](https://twitter.com/mikepompeo/status/1493765787621888007?ref_src=twsrc%5Etfw)
+
+
+
+比尔.格茨：
+作为阻止解放军进入美国证券市场的新政策的一部分，美国财政部将对 59 家中共国军工公司实施制裁
+【附比尔.格茨发布华盛顿时报报道：美国新的制裁规则打击了数十家中共国军工企业】
+
+
+
+> Treasury Department codifies sanctions on 59 Chinese military companies as part of a new policy blocking PLA from US securities markets [https://t.co/nDSNRttMHG](https://t.co/nDSNRttMHG)
+> — Bill Gertz (@BillGertz) [February 15, 2022](https://twitter.com/BillGertz/status/1493720810183282688?ref_src=twsrc%5Etfw)
+
+
+
+众议员帕特·法伦：
+
+中国是芬太尼的主要原产国——他们在我们的南部边境将其倾注进入美国。
+
+还认为边境危机不是国家安全威胁吗？
+
+
+
+> China is the primary country of origin for fentanyl – and they're pumping it into the America at our southern border.
+> 
+> Still think the border crisis isn't a national security threat?
+> — Rep. Pat Fallon (@RepPatFallon) [February 15, 2022](https://twitter.com/RepPatFallon/status/1493690831139528704?ref_src=twsrc%5Etfw)
+
+
 
  
 

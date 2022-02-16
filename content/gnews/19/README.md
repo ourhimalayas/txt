@@ -2,26 +2,39 @@
 ---
 
 
-## 樱花FM|法国记者专访彭帅 其安全仍令人担忧
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2013432/)
+## Moderna总裁：破解mRNA可以玩弄整个生命王国
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2013473/)
 
-音频：东京樱花团/战友520
-![](https://lh3.googleusercontent.com/xk0l8iBqLdMCPmMZPsHR_3aHxiFU_jc243-J12AAYB2PM-3AOc_bBp1vc5XfH7E3SYtjMa-MCmZrPFT-dKhvvKo_-VCjMFd6ffW6WYiy_0SJi-2kv_SEojAlpPLQ6JpfHhYpFsFu)
-在法国体育日报《团队报》发表与彭帅的独家专访隔天，其中一名参与访问的记者文图亚克 (Marc Ventouillac)周一 (2月8日)向美联社表示，他不确定彭帅是否可以自由地说和做她想做的事。他说：“这次采访并不能证明彭帅没有问题。”
+作者: 银河系农场—骄子
 
-文图亚克也说，中国的意图对他来说是清楚的。他认为，在举办北京冬奥会之际让彭帅接受西方媒体采访，显示中共官员希望平息争议，避免彭帅事件的争议影响到冬奥赛事。
 
-他说：“这是中共国奥委会宣传的一部分。他们可以透过彭帅与一家欧洲大报的采访来证明彭帅没有任何问题。”彭帅在采访刊登的隔天与国际奥委会主席巴赫 (Thomas Bach) 一同出席北京冬奥自由式大跳台决赛，观看美国出生的中共国选手谷爱玲 (Eileen Gu) 夺金。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-26.png)
+疫苗制造商Moderna的总裁曾说过，“如果你能够破解mRNA的规则，那么基本上整个生命王国都可以肆意被你玩弄”。随着mRNA技术应用于中共病毒疫苗真相的曝光，Moderna总裁这话听起来不免让人毛骨悚然。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/covid-19-vaccine-mrna-dna-1204201.jpeg)图片来源: 网络
+David Martin博士说，中共病毒疫苗并不是疫苗，使用“疫苗”这个词可以在公共卫生豁免下对公众形成误导。疫苗进入人体后会让人体自身细胞成为病原体制造者，结果会导致人体内的细胞互相攻击。大药商Moderna非常清楚这就是在杀人。
 
-文图亚克表示：“我认为，对于中国奥委会、中国共产党和中国的许多人来说，努力证明没有外界所谓的彭帅事件是很重要的。彭帅看起来很健康。”
+目前Moderna拥有数百名工程师和科学家，试图用生物信息技术来对人体进行攻击，并使人体依赖该技术，甚至他们称mRNA为生命软件。
 
-他提到，法国《团队报》原本只得到半小时的访问时间，但最后他们却得到将近两倍的访问时间，且能问的问题比原先多出8至10个。除了文图亚克之外，国际女子网球协会 (WTA) 主席西蒙（Steve Simon）周一 (2月7日) 也发布声明，表示该访问并未消除国际女子网球协会对彭帅安危的疑虑。他在声明中表示：“无论是在采访中或出席冬奥会，看到彭帅现身总是令人高兴的。然而近期的采访并没有减轻我们对她11月2日发的帖子的担忧。”。
+另外该项邪恶计划还包括使用改良的mRNA来重新编程人类的干细胞功能，获得对干细胞的基因改造技术。这是一套完整的细胞级操作，编码、解码、调节、改变人体内的生理指令。
 
-文字版原文：[法国记者专访彭帅 其安全仍令人担忧](https://gnews.org/zh-hans/1978542/)
+新闻链接: [https://newstarget.com/2022-02-14-moderna-president-stephen-hoge-hack-rules-mrna-kingdom-of-life.html](https://newstarget.com/2022-02-14-moderna-president-stephen-hoge-hack-rules-mrna-kingdom-of-life.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-32.jpg)
+编辑/校对/发稿: 卡夫卡的甲壳虫
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
