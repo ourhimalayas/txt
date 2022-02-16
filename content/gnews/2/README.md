@@ -2,39 +2,32 @@
 ---
 
 
-## 最毒不过人心
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2011079/)
+## 北京冬奥瑞典双金牌得主抨击中共国亵渎奥运精神
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2011144/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Unknown-13.jpg)北京冬奥瑞典双金牌得主抨击中共国亵渎奥运精神 网络图片
+据美国之音2月16日报道，在北京冬奥会男子速度滑冰比赛中夺得5000米和10000米两枚金牌，并且在10000米速滑比赛中打破世界纪录的瑞典选手尼尔斯∙范德普尔，在返回瑞典之后，公开抨击国际奥委会（IOC）将奥运会交给中共国这样“公然侵犯人权”的国家主办是“极端不负责任”。
 
-2022-02-13直播摘录09:28:43
+范德普尔在北京冬奥会开幕前曾表示不方面发表评论，在他返回瑞典后，表示北京的情况很“糟糕”，但他不想说太多，因为瑞典还有运动员在中共国参加比赛。他只是将北京冬奥会做了比较：德国1939年入侵波兰前举办过1936年柏林奥运会，俄罗斯2014年吞并乌克兰克里米亚半岛前举办过索契冬奥会。
 
-你们不知道七哥这几十年的战略！我走出清丰看守所，我阅尽人间的苍凉、人情的冷漠、人生的现实，世界上最毒不过人心我告诉你。很多人骂“狗改不了吃屎”，我想问问人类，人类上，记住狗是人类的朋友，狗吃人吗？可你人吃狗肉。狗改不了吃屎，你人改了吃屎了吗？你人还吃人呢。
+因为中共国人权问题，美国、英国、加拿大、澳大利亚和立陶宛等国对北京冬奥会实施了外交抵制。另有一些国家没有派遣高级官员出席冬奥会。全球主要人权团体一再呼吁各国政府全面抵制北京冬奥会。中共政府不仅否认所有指控，还抨击那些实施外交抵制的国家将体育“政治化”。这才是现实版的“贼喊捉贼”。
 
-最毒不过人心我告诉你，人心一旦没有了信仰控制，比魔还魔，比狗还臭，不如狗！你看那“锁链女”，你看中国对女性，你看看周围人的冷漠，包括我，你能受得了吗？你们的妈妈、你们的姐妹、你们的闺女24年（被）锁着链子，被无数个男人来天天在那块强奸轮奸，还不让吃不让穿，然后生那么多孩子，这是人道吗？就这就有政府撒谎，有人到那蹭热度、蹭流量、拍视频，天诛地灭都不过为之。
+既然中共国不承认有新疆人权侵犯，就让外国记者进入新疆去考察；既然中共国不承认病毒来源于武汉病毒研究所，就打开实验室让世界各国的科学家去溯源。没做亏心事，不需要动不动暴跳如雷，又谴责又抗议。除了证明泼妇会骂街，人权问题和病毒问题还是没有解决。冬奥会召开了，各国运动员实地到了现场，每个人回来之后都会讲出自己真实的经历，对比习近平讲述的“中国故事”，孰真孰假，每个人都会分辨。
 
-你再看共产党到联合国干的事，任何……只要共产党这过去三十年五十年掺和的组织，没有一个（不）是无法无天、无规则、不腐败。北京冬奥会这简直是世界上最荒唐——没有雪的冬奥会。没有雪的城市开冬奥会，我真R它八辈儿祖宗！这是对全人类的侮辱，这是西方世界必须要付出的代价！
+新闻参考链接：[https://www.voachinese.com/a/swedish-skater-says-extremely-irresponsible-china-hosting-olympics-amid-human-rights-abuses-20220215/6442759.html](https://www.voachinese.com/a/swedish-skater-says-extremely-irresponsible-china-hosting-olympics-amid-human-rights-abuses-20220215/6442759.html)
 
-你没见那些白人穿着西装打着领带，到了盘古喝点酒后那可比共产党还疯狂！天天在夜总会里边的嫖客没那么疯狂，他已经习以为常了，你就怕这些穿着西装的西方的这些所谓文明世界来的白人，你看（他们）到了盘古，一到晚餐后，在那种雅间里边白人那种疯狂，来自国际组织的，那简直是惨不忍睹。别说是人了，那猴子他都敢戳两下我跟你说。
+* * *
 
-这个被禁闭的人的恶性一旦放出来，比魔还可怕！这不是我说的。共产党就把西方人类文明用千年挣来的民主自由、对人性的尊重，他到了中国给彻底释放出来，然后再用这些人的恶来绑架他们，让他们来传播这些恶和魔去。这就是奥林匹克委员会，这就是联合国，这就是世界卫生组织，这就是WTO，这就是世界的所谓的记者联盟、所谓媒体联盟！只要带国际的、只要称组织的，全是共产党的帮凶！
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-**关注我们**
+编辑：【英国伦敦喜庄园编辑部】
 
-Discord 账号
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
