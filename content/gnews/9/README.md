@@ -2,35 +2,34 @@
 ---
 
 
-## 七哥说“不灭共咱一切都完蛋”
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2016097/)
+## 朝日新闻：因冬奥会裁决偏颇，中共国留学生在韩国遭暴行
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2016101/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+翻译：宫米叶
 
-2022-02-13直播摘录10:40:29
+![](https://assets.gnews.org/wp-content/uploads/2022/02/20220211-00000097-ann-000-9-thumb.jpg)图片来源：news.yahoo.co.jp / All Nippon NewsNetwork(ANN)
 
-上星期我们一个战友被关了一个多月放出来，给我拍手指头，（举起右手示意无名指）这个手指头是弯的，就是这个警察踩着他指头就踩了十几分钟，我看你能不能坚持住？就在那踩，摁着脖子踩住手指头，就给你碾，把手指头给你碾折了，真的是像彤宝国这样的人物绝对不是一个两个。所以兄弟姐妹们，不灭共咱一切都完蛋，不灭共，发生在七哥身上这种事会发生在每个人身上，因为共产党还有邪恶势力挨个跟你算！
+对于中国留学生在韩国遭到暴行一事，中国外交部表示：“我们正密切关注。”在韩国，围绕奥运会的裁决等问题，对中共国的批评不断上升。
 
-绝对什么瑞沃路森啊（模仿瑞沃路森右手将额头的头发向后一甩）你就别想捋头发了，人家就拿脚、拿鞋底给你头发给你捋了，知道吗！什么Danny，你那小头发、小胡子都给你拽下来，你刮什么刮！文紫、小飞象你跟人家回家“流水”去，别流了，是吧！把你水池子给你关了，这不是吓唬你，不是开玩笑。从我这个案子你看到，如果这个世界不灭共产党，从冬奥会能看到这世界不灭共产党，世界游戏、世界法律、世界人性、世界公平，人类、西方的技术一切尽毁！荒唐到你无法相信的荒唐！
+投稿中写道，9日晚，在韩国釜山，一名中国留学生被两名韩国男子殴打。
 
-你想想咱们请的律师都是这么牛的人，一辈子没见过这样的案子，你觉得这事发生七哥身上它是偶然吗？没有背后的故事吗？怎么可能啊！是吧！
+鉴于事态发展，中共国外交部在11日的记者会上表示：“我们正密切关注此事。已经与当事人取得了联系“。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+在此基础上强调会“维护海外中国人民的权利和安全”。
 
-**关注我们**
+据韩国媒体报道，当地警方表明他们并不是针对特定的中国人。
 
-Discord 账号
+韩国目前由于北京奥运会短道速滑的裁定偏向中国，反华情绪高涨。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+**参考资料：**[news.yahoo][韓国で中国人留学生が暴行される　中国外務省「非常に注目」](https://news.yahoo.co.jp/articles/dde1893e679698c417e67ba7e9dd3e29c8a0c26d)
 
-Gettr 账号
+* * *
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+*审核：天天*
+*校对：zicoround*
+*发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-4.jpeg)
 
  
 

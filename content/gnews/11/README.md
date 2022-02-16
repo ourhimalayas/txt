@@ -2,54 +2,41 @@
 ---
 
 
-## 俄罗斯大使强烈警告丹麦，不能允许美国士兵进入丹麦博恩霍尔姆岛
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2016061/)
+## 不要放弃对好人的希望，永远要相信好人多过坏人
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2016092/)
 
-整撰：Skagen
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-265.jpg)
-图片来源：TV2.DK
+文编：Hima
+听写：叮叮
+视频：七哥
 
-俄罗斯驻丹麦大使Vladimir V. Barbin强烈警告丹麦允许美国军队踏上博恩霍尔姆岛。
+2022-02-13直播摘录10:03:58
 
-Vladimir V. Barbin对丹麦媒体Berlingske说，如果丹麦允许这样的举动，如果外国军队抵达博恩霍尔姆岛，俄罗斯将被迫评估对俄罗斯和丹麦之间关系的影响。
+这就是七哥走到今天，从清丰看守所看到共产党这么邪恶，但是记住，那60多个勇士那是真真正正拿生命捍卫自己的尊严的勇士，你觉得中国只有这60个人吗？后来六四之后几万人被枪决、被秘密枪杀、被关押，你觉得会有少数吗？
 
-这一警告是在丹麦政府开始与美国就新的国防协议合作进行谈判之后发出的，这可能意味着美国军队和物资可以被安置在丹麦。
+包括海外，你看我天天骂欺民贼伪类，但是你觉得海外有没有一些有良知的人？——是有的，而且不在少数，只是他没有伸手要钱搞骗捐。
 
-俄罗斯人认为，美国在博恩霍尔姆岛的存在将 “影响 “波罗的海地区的安全。
+一定要记住，不要放弃对好人的希望，永远要相信好人多过坏人，而且永远要记住，坏人是有原因的，坏人是很多环境、社会经历造成，但是好人，我告诉你是更需要一个大家要相信一个更好的环境，那就是信仰，良知，勇气。
 
-博恩霍尔姆岛是波罗的海中的一个丹麦岛屿，位于丹麦其他地区的东部，瑞典南部，德国东北部和波兰北部。由于博恩霍尔姆岛位于波罗的海的战略位置，几个世纪以来一直被周边国家争夺。
+钱那个东西很重要，真的钱把很多人的腰给弯下来。一个国家的经济发展、一个国家的整个社会的稳定和有法律系统，最后有信仰是社会一系列的安全文明的保障。所以新中国联邦，你说“穷着搞革命”，我从来不相信，在这个时候大家有币和没币是啥感觉啊？想想。
 
-俄罗斯的威胁，北约的保卫
+第二个，我给你们天天伸手要钱，一直播“能不能先捐点钱呐？Danny、路森你们先别脱衣服，先给我捐100块，文紫医生，是吧？小飞象跟小飞侠你俩要不要先捐100块？” 不是钱的问题，你恶心得慌，我也没钱呐，是不是？不见得咱都有钱呐。
 
-美国士兵出现在丹麦将是一个强烈的信号，表明北约在离俄罗斯边界不远的地方重要的军事存在。
+所以七哥从第一天起，从清丰看守所出来，必须强大我的经济能力和国际关系和对事物辨别的能力和多交朋友
 
-在周四（2月16日）的新闻发布会上，外交部长Jeppe Kofod被问及美国士兵在丹麦领土上是否可视为丹麦对俄罗斯的挑衅。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-“我们必须记住，是俄罗斯在威胁着欧洲的和平。我们在北约所做的是在保卫自己。这并不是因为俄罗斯和乌克兰的局势而产生的，”他说。
+**关注我们**
 
-只有丹麦才能决定在丹麦领土上发生的事情
+Discord 账号
 
-丹麦外交部长杰普·科福德Jeppe Kofod 非常明确地表示，美国士兵是否会来到丹麦本土，完全由丹麦决定。否则，俄罗斯对丹麦将与美国开始防务合作这一事实非常不满。这可能意味着美国军队可以留在丹麦。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-俄罗斯驻丹麦大使Vladimir V. Barbin告诉Berlingske，这将是对二战以来丹俄协议的违反。
+Gettr 账号
 
-但是Berlingske文章说，丹麦外交部长是对的。
-
-“这并不是俄罗斯第一次提出这种错误的和不正确的主张，但这并不意味着它是真实的，”杰普·科福德给媒体Ritzau的书面评论中说。
-
-这位丹麦外长非常明确地说：“丹麦从未与俄罗斯或前苏联就博恩霍尔姆岛的外国军队达成过协议。而且我必须警告，不要把俄罗斯的这些宣布当作好事。”
-
-他强调：“让我说清楚，只有丹麦才能决定在丹麦土地上发生什么！”
-
-在Berlingske对俄罗斯大使Vladimir V. Barbin的采访中，这位大使并没有提出证据证明他所谓的协议是存在的。
-
-来源：
-
-[TV2.dk](https://nyheder.tv2.dk/udland/2022-02-15-ruslands-ambassadoer-advarer-kraftigt-mod-at-tillade-amerikanske-soldater-paa)
-
-[Berlingske.dk](https://www.berlingske.dk/politik/store-partier-affejer-russiske-trusler-om-bornholm-der-er-intet-hjoerne-af)
-
-[Politiken.dk](https://politiken.dk/udland/art8621246/%C2%BBDanmark-har-aldrig-haft-en-aftale-med-Rusland-om-udenlandske-tropper-p%C3%A5-Bornholm%C2%AB)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
