@@ -2,33 +2,28 @@
 ---
 
 
-## 纽约市解雇1400多名拒绝接种疫苗的员工
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2011778/)
+## 群体免疫不尽人意，新冠病毒可能与人类长期共存
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2011845/)
 
-2022-02-15
+##### 素材：熊猫乱滚
+翻译：不要代表我Kari
+校对：精靈藍
+剪辑|字幕： 向上James
+编辑：Mttfly
 
-翻译：文舞两道
-![](https://assets.gnews.org/wp-content/uploads/2022/02/@63ELQITUWMDI44P4D3U.png)图片来源：https://www3.nhk.or.jp/
-美国纽约市14日宣布，解雇了1400多名没有接种疫苗的员工
+在很长一段时间内，群体免疫力似乎是结束这种大流行病的圣杯。人们希望，如果有足够的人通过疫苗和感染新冠病毒产生免疫力，病毒的传播就会像天花病毒那样减缓。但是，新冠病毒无法通过群体免疫进行根除，那么更有可能，新冠会成为地方病长期与人类共存。
 
-据NHK新闻2月16日报道，美国纽约市14日宣布，已经解雇了1400多名没有接种疫苗的员工。
+视频来源：[COVID-19: On the brink of becoming endemic?](https://twitter.com/backtolife_2022/status/1491151858135539713?t=uO1rPFcb3GLAsIq_AA2u4Q&amp;s=19)
 
-在美国，要求员工必须接种疫苗的大城市和公司越来越多，不过反对意见也根深蒂固，两种意见泾渭分明。
+*发布：Mttfly*
 
-纽约市要求市政府工作人员包括医护人员和教师在内，至少需接种一次新冠病毒疫苗。对截止去年10月底未接种疫苗者实行无薪休假，其中约2400人在本月11日休假期限结束。14日纽约市宣布解雇了1400多名没有接种疫苗的员工。
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-纽约市的数据显示，在大约 370,000 名员工中，至少接种过一次疫苗的比例从去年 10 月的 85% 增加到目前的约 95%。
-
-在美国，虽然在伊利诺伊州芝加哥和马萨诸塞州波士顿等大城市要求员工接种疫苗的运动越来越多，但反对意见也根深蒂固，拜登政府的大公司员工强制接种疫苗的政策被联邦最高裁判所叫停并取消后，因地区和政治立场而产生的分歧越来越大。
-
-参考链接：[アメリカ ニューヨーク市 接種拒否の職員1400人余を解雇](https://www3.nhk.or.jp/news/html/20220216/k10013486171000.html)
-
-编辑：LILY
-发布：肥鯮
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

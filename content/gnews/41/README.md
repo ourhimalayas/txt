@@ -2,31 +2,34 @@
 ---
 
 
-## 韩国决定为高风险人群启动第四针疫苗的接种计划
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2010321/)
+## 临战中的银行业瑟瑟发抖，Hcoin（喜币）去掉中间商打破现有格局
+` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/2010626/)
 
-作者：首尔天池农场 — 追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-韩国媒体14日报道，韩国政府决定启动为60岁以上的高危人群接种第四针中共病毒疫苗。 当局发言人表示，鉴于单日新增确诊人数已经连续第5天突破5万例，其中，60岁及以上人群的比例由1月第四周的8%上升到2月第二周的11.7%。随着老年确诊病例数的增加，担心会进一步导致重症率提升。因此，决定自本月底开始，为60岁以上的高风险人群，接种第四针疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-40.jpg)
-另外，以色列去年12月开始为 60岁以上人群接种第四针疫苗，可惜，根据最近一段时间的数据来看，该国的新增病例数并没有出现任何减缓的迹象。根据以色列的一项最新研究发现，虽然第四针疫苗会略微提高一点抗体水平，但对预防感染奥密克戎毒株的效果差强人意。
+新西兰伊甸农场Gnews组 财经G乐部-亚伦
 
-参考链接：[韩国决定为高风险人群启动第四针疫苗的接种计划](https://news.kbs.co.kr/mobile/news/view.do?ncd=5394452)
+2月15日，郭文贵先生于Gettr视频中透露，世界某银行内部刚刚提醒所有股东，一旦俄罗斯开战世界金融可能大崩塌而银行也可能会破产。然而，与第三方中间商的传统银行不同，Hcoin（喜币）和HDO（喜美元）没有中间商，但所有的币都是受到保护的。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Bank_Run_on_American_Union_Bank-scaled.jpeg)图片来源维基百科
 
-![This image has an empty alt attribute; its file name is calendar.png](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
-总编：天滅中共
-编辑：天滅中共
-校对/发稿：Hetangyuese
+为他人劳动，获取他人的报酬；给予他人物品，他人归还等价物品，生产价值交换推动人类文明。当今的交易链条中硬性夹杂了政府和银行，政府、银行都只是中间商（赚差价）。人类活动中最重要的就是物价交换，不需要政府抽税，更不需要银行截流。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+更何况如果战争的爆发导致银行发生大规模储户挤兑，或者因为战争原因造成巨额贷款无法收回进而引发流动性危机，严重的就会破产。当银行破产之时可以合法的不偿还或由保险机构有限额的偿还储户资本，只负责收税的政府更不负责偿还。只要劳动者把生产力价值存到银行，法币时代的银行还可以利用金融会计技巧无中生有地增发法币，这对劳动者来说是极度的不公平。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/60248a05ded2442da681e1c1f566d570.jpg)图片来源info
 
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+相反，得来的Hcoin（喜币）或者“躺平币”通过Hpay（喜支付）可以直接兑换食物、购买房产，只要交易方接受，就可以交易。Hcoin（喜币）通过自己的Hpay（喜支付）系统完成A点到B点的直接（没有中间商）瞬时传输且免收转账手续费（未来仅收取大额交易手续费），而智慧地使用Hpay（喜支付）创造商业新模式还可以在国际贸易方面省去很多不必要的汇兑和税务成本。
+
+最关键的是，Hcoin（喜币）、HDO（喜美元）不会被兑水，也不会被消失，任何持币人的任何币都是受到法律保护的。要知道，Hcoin（喜币）从第一天就有最完善、最合法的KYC开户系统，是有中心化机构负责的。而且，超凡的冷钱包技术在设计之初就具备寻回机制，只要启动当初设定的个人识别机制，就能按原数失而复得。
+
+**附：**
+
+中共国的保险机构成员银行面临经营危机甚至破产时，存款保险机构对存款50万元以下的存款人全额赔偿，对存款50万元以上的存款人从银行清算资产中按比例赔偿。（如果保险机构也破产……）
+
+**不赔付情况：**
+
+- 存款以外的金融产品，如保险、基金、证券等；
+- 没有购买存款保险的银行。
+
 
  
 

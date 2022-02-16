@@ -2,36 +2,30 @@
 ---
 
 
-## 樱花FM|中日财经爆：中共贸易协议采购存巨大缺口 拜登将维持关税措施
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2011512/)
+## 加拿大副总理兼财政部长克里斯蒂亚-弗里兰的祖父是纳粹分子
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2011751/)
 
-音频：东京樱花团/战友520
+翻译：冰糖葫芦喵
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/中共贸易协议采购存巨大缺口-拜登将维持关税措施.jpg)
+编辑与校对：冰糖葫芦喵、灭共文明
 
-2月8日发布的一份报告显示，中共国2020年签署的增加从美国进口商品和服务的承诺远远没有兑现。该报告基于特朗普政府期间签署的协议，实际进口与目标额相差超过2130亿美元。
+《网关专家》2月15日报道，**加拿大副总理兼财政部长、克里斯蒂亚-弗里兰的祖父是纳粹分子，她崇拜乔治-索罗斯。所以，她给热爱自由的加拿大人贴上恐怖分子的标签不足为奇。**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/弗里兰3.jpg)索罗斯、特鲁多和弗里兰会面（图片来源：尼亚加拉独立报）
+**现在加拿大是由特鲁多和希特勒手下的高级纳粹的孙女领导的。 **克里斯蒂亚-**弗里兰的家庭与纳粹有着密切联系。 她的祖父是一名高级别纳粹分子，二战后被波兰当局追捕。**
 
-“第一阶段”贸易协议中，中共政府承诺从美国的进口比2017年中美贸易战开始前多2000亿美元。协定签署后，当时的总统特朗普和习近平都暂停了提高关税。
+就在周一，克里斯蒂娅-弗里兰还宣布，为抗议自由的加拿大人进行的众筹将被视为恐怖主义融资。**弗里兰的母亲是哈丽娜，也是纳粹霍米克的女儿。** 他曾与波兰的高层纳粹分子合影。**弗里兰的祖父只比希特勒低三级，而希特勒是他老板的老板的老板。**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/弗里兰2.jpg)图片来源：《网关专家》
+弗里兰还是乔治-索罗斯的粉丝，不止一次与他合影。** 索罗斯在年轻时帮助过纳粹，也是极左组织“安提法”Antifa背后的资助者。“安提法” Antifa**是Anti-Fascist（反法西斯）的缩写，简称“反法”。起源于1930年代，在欧美各国都有分布，**成员多是年轻人，崇尚暴力，认为暴力攻击是必要手段，反政府、蔑视法律，属于极左，他们奉行共产主义。**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/弗里兰4.jpg)图片来源：网络。
+最后报道指出，现在克里斯蒂亚-**弗里兰向加拿大人推行反自由的议程，并把那些支持自由、抗议反自由的强制命令的正义人士视为恐怖分子。**
 
-该协议要求中共国在2021年底前履行其进口承诺。但据彼得森国际经济研究所的一份新报告显示，过去两年，中共国最终只进口了协议中所承诺份额的57%，而协议中承诺的2000亿美元的额外进口从未履行。该报告是基于对从商务部获得的最新贸易数据的分析。
+新闻链接：
 
-2020年协议签署后仅几周，新冠病毒大流行就导致了全球贸易停滞。这似乎让中共国更难履行其进口承诺。但从一开始，专家们就怀疑中共国能否实现其雄心勃勃的进口目标。因为该协议在制造业、农业、服务业和能源领域均设定了具体目标。
+[EXCLUSIVE: Canada’s Deputy Prime Minister Chrystia Freeland’s Grandfather Was a Nazi and She Admires George Soros. It’s No Surprise She’s Labeling Freedom-Loving Canadians Terrorists (thegatewaypundit.com)](https://www.thegatewaypundit.com/2022/02/exclusive-canadas-deputy-prime-minister-chrystia-freelands-grandfather-nazi-admires-george-soros-no-surprise-labeling-freedom-loving-canadians-terrorists/)
 
-拜登总统上个月表明，中共国没有达到设定的贸易目标，是维持现阶段高关税的原因。尽管有来自商业界的压力，但他已明确表示，不会取消这些关税措施。
+[Blank spot: Why Chrystia Freeland’s refusal to acknowledge her grandfather’s Nazi past matters in 2020 – The Progress Report](https://www.theprogressreport.ca/blank_spot_why_chrystia_freeland_s_refusal_to_acknowledge_her_grandfather_s_nazi_past_matters_in_2020)
 
-明知完不成贸易额还硬着头皮签署，随之就向世界释放病毒，然后全世界嫁祸，中共真是末日狂奔啊!
-
-文字版原文：
-
-
-| [中日财经爆│中共贸易协议采购存巨大缺口 拜登将维持关税措施](https://gnews.org/zh-hans/1979741/) |
-| --- |
-
-
-*编辑：东京樱花团/asket   
-发布：东京樱花团/老黑*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-1276x720-1.jpg)
+[克里斯蒂亚·弗里兰（Chrystia Freeland）-维基百科 (wikichi.icu)](https://wikichi.icu/wiki/Chrystia_Freeland)
 
  
 

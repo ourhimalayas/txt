@@ -2,16 +2,16 @@
 ---
 
 
-## 班农相信能推翻共产党的只有中国人
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2010319/)
+## 韩国决定为高风险人群启动第四针疫苗的接种计划
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2010321/)
 
-作者：纽约磐石农场 — 在远方
+作者：首尔天池农场 — 追着曙光跑
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-班农在最近一期的GTV采访中表示，他相信只有中国人才可以推翻共产党。他本人和班农战斗室将毕生支持中国人，与追求民主、自由、法治的中国人同在。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-38.jpg)
-班农指出，目前，全世界都受制于中共淫威，尤其是加拿大的特鲁多政府，但加拿大人民没有因为疫苗暴政而退缩，卡车司机们发起的和平示威运动，对于中国人来说，是一个很好的启迪。如果，中国人也可以像他们一样，不再对中共暴政逆来顺受，那么一定可以加速中共垮台。
+韩国媒体14日报道，韩国政府决定启动为60岁以上的高危人群接种第四针中共病毒疫苗。 当局发言人表示，鉴于单日新增确诊人数已经连续第5天突破5万例，其中，60岁及以上人群的比例由1月第四周的8%上升到2月第二周的11.7%。随着老年确诊病例数的增加，担心会进一步导致重症率提升。因此，决定自本月底开始，为60岁以上的高风险人群，接种第四针疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-40.jpg)
+另外，以色列去年12月开始为 60岁以上人群接种第四针疫苗，可惜，根据最近一段时间的数据来看，该国的新增病例数并没有出现任何减缓的迹象。根据以色列的一项最新研究发现，虽然第四针疫苗会略微提高一点抗体水平，但对预防感染奥密克戎毒株的效果差强人意。
 
-参考链接：[班农相信能推翻共产党的只有中国人](https://gettr.com/post/pu89qz8791)
+参考链接：[韩国决定为高风险人群启动第四针疫苗的接种计划](https://news.kbs.co.kr/mobile/news/view.do?ncd=5394452)
 
 ![This image has an empty alt attribute; its file name is calendar.png](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
