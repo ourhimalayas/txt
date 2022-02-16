@@ -2,28 +2,39 @@
 ---
 
 
-## 伊说│请给我们一个打疫苗的理由
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2011799/)
+## 中共《环球时报》为何高调支持澳洲大选的某一政党
+` 喜国公民` [轉載自GNews](https://gnews.org/zh-hans/2011856/)
 
-撰稿：东京樱花团/华夏伊人
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-6.jpg)
-世界的黑暗已经到了令人发指的地步，全球确诊人数超4亿人，死亡人数近600万人。疫情爆发两年来，各国政府、科学界、媒体界、医药界众口铄词告诉民众：需要戴口罩、需要保持社交距离、需要呆在家中、需要无休止的进行PCR检测、没有有效的治疗药物、需要注射疫苗，把一切限制人们行为，剥夺权利的事情统统做一遍，却为何没有人去问一问COVID-19病毒到底是从哪里来的？为何没有人从科学的角度告诉民众COVID-19病毒到底是一种什么样的病毒？为何COVID-19病毒如此的神奇，可以攻击人体嗅觉、味觉、呼吸、神经、心血管、生殖、淋巴等不同系统？为何COVID-19病毒专攻年老体弱，先天免疫系统有缺陷的群体？ 政客和精英们应该做的是如何让病毒可防可控，而最终看到的结果却是对人进行了全方位的可防可控。
+By：喜国公民
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1527.png)图片来自网络
+中共《环球时报》发表文章支持现澳洲工党领袖安东尼·阿尔巴尼斯，希望他在今年的联邦大选中胜出，接替现任总理斯科特·莫里森。文章认为工党领袖可以改善澳洲与中共国的关系。
 
-当郭文贵先生以及其领导的新中国联邦向全世界告知：硫酸羟氯喹、伊维菌素、青蒿素可以治疗和预防COVID-19病毒的时候，各国政府、医药界却极力渲染病毒的危害，打压和诋毁科学用药进行预防和治疗；媒体在不遗余力地屏蔽真相的传播，误导民众，充分利用民众相信政府，相信科学，相信媒体的心理，丧心病狂地强迫他们打疫苗。
+不用质疑，在历史上，工党的确与中共有着紧密的合作关系。例如，目前由工党执政的维州曾[与中共签署了一带一路的项目](https://www.internationalaffairs.org.au/australianoutlook/tearing-up-the-belt-and-road-initiative-australias-rejection-of-chinas-new-silk-road-in-victoria/)。前工党领袖以及前总理陆克文曾接受中共党校的资助，[跑到牛津大学研究习近平思想](https://twitter.com/vanessa_zhanguk/status/989592642748141570)，还紧跟潮流学习中共十九大报告。
 
-没有人告诉你疫苗的成分是什么？没有人告诉你疫苗会起到怎样的保护作用？没有人告诉你疫苗的副作用是什么？更没有人告诉你疫苗会给人类带来的伤害是什么？在一切都未知的情况下，却在丧失人性般强制人们打疫苗。如果你选择不打，你就不可以去工作、不可以去上学、不可以乘坐交通工具出行、不可以去商场购物、不可以去餐厅就餐，不可以做任何事情。
+但值得令人深思的是，中共干预别国大选，一向是暗中动手脚，耍阴招，为何这次如此嚣张，明目张胆地公开支持工党，其背后的葫芦里买的又是什么药呢？
 
-目前，我们面对的唯一自以为合理的强制打疫苗的理由，那就是雇主、政府、医药公司要保护民众。但是没有人注意到，到底谁为疫苗的副作用负责。医药公司对于其疫苗产品有完全的责任豁免权，医药公司不会对任何疫苗造成的伤害或死亡负责，如果你打了疫苗，出现了副作用，你就自负全责。民众被迫接受实验性的疫苗，而且有证据充分证明，这个疫苗非常不成熟，成千上万的人因为疫苗死亡，成千上万的人因疫苗而住院。
+同时，澳洲的主流媒体最近几天连续发表文章，高调批评工党与中共的勾结，曝光工党与中共的历史。不免让人感觉，执政党是否在利用中共故意炒作来提升自身的支持率。
 
-强制打疫苗违背了两个主要的医学伦理：不伤害和知情同意权。大量数据已经显示，疫苗对COVID-19病毒不仅没有任何防护作用，甚至会因为接种疫苗而增加感染，接种疫苗不仅是不必要的，实际上它正在杀人害人。不伤害已经被践踏，强制疫苗杀死的人远比拯救的人要多得多。在没有明确疫苗副作用之前，在没有明确谁应该为疫苗副作用负责之前，任何形式的强制疫苗政策都是在杀人，在犯罪。那些鼓吹打疫苗的人，就是杀人犯。
+执政党因为实施不得人心的疫苗强制接种政策，[其支持率明显下滑](https://www.theguardian.com/australia-news/2021/nov/09/scott-morrisons-approval-rating-at-lowest-point-since-aftermath-of-black-summer-bushfires)，最近又[改变了新冠疫苗完全接种的定义](https://www.servicesaustralia.gov.au/changes-to-definition-fully-vaccinated-for-covid-19)，积极推进新冠疫苗第三针的接种，不得人心，引发了澳洲民众在首都堪培拉的大规模抗议活动。
 
-当人们发现自己的身体不能由自己做主的时候，当自己的知情同意权被严重践踏的时候，当疫苗副作用越来越多出现的时候，他们发现被欺骗了。于是，他们愤怒了。医生、护士、警察、消防员、律师、法官、卡车司机各个领域的人们纷纷走向街头，大声疾呼：停止疫苗，停止伤害，停止杀人。
+不管哪个政党执政，都必须对中共病毒的来源进行追责，并停止侵犯人权的新冠疫苗强行接种政策。
 
-现在，人们不仅仅需要一个被强迫打疫苗的理由，更需要知道真相：这一切为何发生？谁应该为此而负责？请告诉我们！
+相比之下，没有注射新冠疫苗的澳洲亿万富翁克莱夫·帕尔默准备参加今年的联邦选举。[他将开展有史以来最昂贵的选举活](https://www.brisbanetimes.com.au/national/queensland/unvaxxed-billionaire-clive-palmer-promises-most-expensive-election-campaign-ever-20220119-p59ph4.html)动。他的重返政坛非常令人瞩目。
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+消息来源：[China’s Global Times backs Anthony Albanese as Prime Minister as questions mount over Labor’s ties with Beijing](https://www.skynews.com.au/australia-news/politics/chinas-global-times-backs-anthony-albanese-as-prime-minister-as-questions-mount-over-labors-ties-with-beijing/news-story/2c0f4226a802df781026bcd967ca9f25)
+
+[China will ‘try in every way’ to influence Australian politics](https://www.skynews.com.au/opinion/andrew-bolt/china-will-try-in-every-way-to-influence-australian-politics/video/ab56c848968db623619b19b666312eb9)
+
+[Tearing Up the Belt and Road Initiative: Australia’s Rejection of China’s New Silk Road in Victoria](https://www.internationalaffairs.org.au/australianoutlook/tearing-up-the-belt-and-road-initiative-australias-rejection-of-chinas-new-silk-road-in-victoria/)
+
+[陆克文，不仅跑到牛津大学研究习近平思想，紧跟潮流学习十九大报告](https://twitter.com/vanessa_zhanguk/status/989592642748141570)
+
+[Unvaxxed billionaire Clive Palmer promises most expensive election campaign ever](https://www.brisbanetimes.com.au/national/queensland/unvaxxed-billionaire-clive-palmer-promises-most-expensive-election-campaign-ever-20220119-p59ph4.html)
+
+[Scott Morrison’s approval rating at lowest point since aftermath of black summer bushfires](https://www.theguardian.com/australia-news/2021/nov/09/scott-morrisons-approval-rating-at-lowest-point-since-aftermath-of-black-summer-bushfires)
+
+[Changes to the definition of fully vaccinated for COVID-19](https://www.servicesaustralia.gov.au/changes-to-definition-fully-vaccinated-for-covid-19)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

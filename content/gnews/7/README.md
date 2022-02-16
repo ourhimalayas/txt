@@ -2,22 +2,21 @@
 ---
 
 
-## 银行是人类金钱最大的骗局 世界唯一没有价格操纵的币就是喜币
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2011994/)
+## 雅典娜时报-第206期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2012013/)
 
-BBC《比特币结束金钱》。
+#### 《雅典娜时报》汇聚全球新闻时事
 
-个人存款进银行，钱就属于银行了，银行只留3%的金额，如果银行破产，法律规定其可以一份钱不归还存款人。银行就是人类金钱最大的骗局。
+#### 编辑：精灵蓝
+排版：小蚂蚁614
+![圖片](https://media.discordapp.net/attachments/825592691433668612/943315690306306118/155_2-1.png?width=812&amp;height=1209)![圖片](https://media.discordapp.net/attachments/825592691433668612/943315690985762847/155_3-1.png?width=812&amp;height=1209)
+*发布：陶子*
 
-世界唯一没有价格操纵的币就是喜币。
-
-世界的经济脉络：1.科技创新；2.交易流通；3.货币流通（Hpay）。
-
-坚持的越久，越能笑到最后，一定牢记3件大事：国家主权认可，大额投资，Hpay全面使用。
-
-视频来源: 20220213—郭先生大直播
-视频制作: 文星光，梦田
-文案:文星光
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

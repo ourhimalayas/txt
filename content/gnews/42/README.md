@@ -2,35 +2,77 @@
 ---
 
 
-## 临战中的银行业瑟瑟发抖，Hcoin（喜币）去掉中间商打破现有格局
-` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/2010626/)
+## 印度以威胁国家安全为由禁止 54 款中国应用程序
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2011243/)
 
-新西兰伊甸农场Gnews组 财经G乐部-亚伦
+撰稿：小雨
+![](https://assets.gnews.org/wp-content/uploads/2022/02/dn8hcv7tdqldfa0w_1644815997.jpg)
+根据2月14日印度媒体Republic World报道，印度政府已发布新命令，禁止 54 款对国家安全构成威胁的中共国应用程序。值得注意的是，自 2020 年以来，政府已禁止 270 款应用程序。一些报道表明，这些应用程序来自腾讯、阿里巴巴、游戏公司网易等中国主要科技公司。消息人士称，最新禁令将由电子和信息技术部发布，理由是这些应用程序正在将印度人的敏感数据传输到中共国等国外的服务器上。该禁令将根据《信息技术法》第 69A 条实施。
 
-2月15日，郭文贵先生于Gettr视频中透露，世界某银行内部刚刚提醒所有股东，一旦俄罗斯开战世界金融可能大崩塌而银行也可能会破产。然而，与第三方中间商的传统银行不同，Hcoin（喜币）和HDO（喜美元）没有中间商，但所有的币都是受到保护的。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Bank_Run_on_American_Union_Bank-scaled.jpeg)图片来源维基百科
+## 54款应用程序的清单
+
+1. Beauty Camera: Sweet Selfie HD
+2. Beauty Camera – Selfie Camera
+3. Equalizer – Bass Booster & Volume EQ & Virtualizer
+4. Music Player – Music, MP3 Player
+5. Equalizer & Bass Booster – Music Volume EQ
+6. Music Plus – MP3 Player
+7. Equalizer Pro – Volume Booster & Bass Booster
+8. Video Player – Media All Format
+9. Music Player – Equalizer & MP3
+10. Volume Booster – Loud Speaker & Sound Booster
+11. Music Player – MP3 Player
+12. CamCard for SalesForce Ent
+13. Isoland 2: Ashes of Time Lite
+14. Rise of Kingdoms: Lost Crusade
+15. APUS Security HD (Pad Version)
+16. Parallel Space Lite 32 Support
+17. Viva Video Editor – Snack Video Maker with Music
+18. Nice video baidu
+19. Tencent Xriver
+20. Onmyoji Chess
+21. Onmyoji Arena
+22. AppLock
+23. Dual Space Lite – Multiple Accounts & Clone App
+24. Dual Space Pro – Multiple Accounts & App Cloner
+25. DualSpace Lite – 32Bit Support
+26. DualSpace – 32Bit Support
+27. DualSpace – 64Bit Support
+28. DualSpace Pro – 32Bit Support
+29. Conquer Online – MMORPG Game
+30. Conquer Online II
+31. Live Weather & Radar – Alerts
+32. Notes – Colour Notepad, Notebook
+33. MP3 Cutter – Ringtone Maker & Audio Cutter
+34. Voice Recorder & Voice Changer
+35. Barcode Scanner – QR Code Scan
+36. Lica Cam – Selfie camera app
+37. EVE Echoes
+38. Astracraft
+39. UU Game Booster-network solution for high ping
+40. Extraordinary Ones
+41. Badlanders
+42. Stick Fight: The Game Mobile
+43. Twilight Pioneers
+44. CuteU: Match with the World
+45. SmallWorld-Enjoy group chat and video chat
+46. CuteU Pro
+47. FancyU – Video Chat & Meetup
+48. RealU: Go Live, Make Friends
+49. MoonChat: Enjoy Video Chats
+50. RealU Lite – Video to live!
+51. Wink: Connect Now
+52. FunChat Meet People Around You
+53. FancyU pro – Instant Meetup through video chat!
+54. Garena Free Fire – Illuminate
 
 
-为他人劳动，获取他人的报酬；给予他人物品，他人归还等价物品，生产价值交换推动人类文明。当今的交易链条中硬性夹杂了政府和银行，政府、银行都只是中间商（赚差价）。人类活动中最重要的就是物价交换，不需要政府抽税，更不需要银行截流。
+据悉，其中清单中的许多应用程序属于腾讯、阿里巴巴和游戏公司网易等中共国大型科技公司，是自 2020 年以来在印度被禁止的应用程序的“重新命名或重新命名的变身”。
 
-更何况如果战争的爆发导致银行发生大规模储户挤兑，或者因为战争原因造成巨额贷款无法收回进而引发流动性危机，严重的就会破产。当银行破产之时可以合法的不偿还或由保险机构有限额的偿还储户资本，只负责收税的政府更不负责偿还。只要劳动者把生产力价值存到银行，法币时代的银行还可以利用金融会计技巧无中生有地增发法币，这对劳动者来说是极度的不公平。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/60248a05ded2442da681e1c1f566d570.jpg)图片来源info
+2020年6月，印度政府第一轮禁止了包括TikTok、微信和Helo在内的59款中国移动应用程序，以应对这些应用程序对该国“主权和安全”构成的威胁。在中印边境冲突后，由于印度和中国之间的紧张局势升级，其他一些著名的应用程序包括 ShareIT、UC 浏览器和购物应用程序 Clubfactory。
 
-
-相反，得来的Hcoin（喜币）或者“躺平币”通过Hpay（喜支付）可以直接兑换食物、购买房产，只要交易方接受，就可以交易。Hcoin（喜币）通过自己的Hpay（喜支付）系统完成A点到B点的直接（没有中间商）瞬时传输且免收转账手续费（未来仅收取大额交易手续费），而智慧地使用Hpay（喜支付）创造商业新模式还可以在国际贸易方面省去很多不必要的汇兑和税务成本。
-
-最关键的是，Hcoin（喜币）、HDO（喜美元）不会被兑水，也不会被消失，任何持币人的任何币都是受到法律保护的。要知道，Hcoin（喜币）从第一天就有最完善、最合法的KYC开户系统，是有中心化机构负责的。而且，超凡的冷钱包技术在设计之初就具备寻回机制，只要启动当初设定的个人识别机制，就能按原数失而复得。
-
-**附：**
-
-中共国的保险机构成员银行面临经营危机甚至破产时，存款保险机构对存款50万元以下的存款人全额赔偿，对存款50万元以上的存款人从银行清算资产中按比例赔偿。（如果保险机构也破产……）
-
-**不赔付情况：**
-
-- 存款以外的金融产品，如保险、基金、证券等；
-- 没有购买存款保险的银行。
-
-
+新闻链接：[India To Ban 54 Chinese Apps Over Threat To National Security; Here’s A List Of The Apps](https://www.republicworld.com/technology-news/apps/india-bans-54-more-chinese-apps-over-national-security-heres-a-list-of-banned-apps-articleshow.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

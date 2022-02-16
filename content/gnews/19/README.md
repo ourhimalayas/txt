@@ -2,27 +2,18 @@
 ---
 
 
-## 群体免疫不尽人意，新冠病毒可能与人类长期共存
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2011845/)
+## 郭文贵先生签下第一份个人破产申请书应对中共的迫害
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2011876/)
 
-##### 素材：熊猫乱滚
-翻译：不要代表我Kari
-校对：精靈藍
-剪辑|字幕： 向上James
-编辑：Mttfly
+撰稿：追着曙光跑
 
-在很长一段时间内，群体免疫力似乎是结束这种大流行病的圣杯。人们希望，如果有足够的人通过疫苗和感染新冠病毒产生免疫力，病毒的传播就会像天花病毒那样减缓。但是，新冠病毒无法通过群体免疫进行根除，那么更有可能，新冠会成为地方病长期与人类共存。
+根据郭文贵先生2月15日的盖特视频，郭文贵先生于美东时间2022年2月15日，正式签下他人生中的第一份个人破产申请书。由于多年受到中国共产党的迫害，郭先生决定申请个人破产来应对中共。具体内容请看视频。
 
-视频来源：[COVID-19: On the brink of becoming endemic?](https://twitter.com/backtolife_2022/status/1491151858135539713?t=uO1rPFcb3GLAsIq_AA2u4Q&amp;s=19)
+此前，郭先生在2月9日的大直播中宣布，新中国联邦对UBS（瑞士集团）的诉讼在英国伦敦正式立案。UBS拥有1百万亿美元以上的存款和黑账，相当于人类过去500年积累的财富。中共存储在海外的钱大部分都在UBS，它也是唯一一个在中共国，获得准入的拥有独立经营牌照的海外银行。
 
-*发布：Mttfly*
+UBS与中共用非法手段把郭先生的股票卖了，在过去5年里没有一个有名的律师敢接郭先生对UBS的诉讼，因为这些律师都被UBS和中共给钱强行站队了。美国跟UBS对抗了50年才打开它的数据之门，现在在英国能够立案。郭先生今天签署的个人破产申请书，就是为了全身心地跟中共对抗到底，直到胜诉的那一刻。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+2月15日郭文贵先生盖特：[2月15号：七哥从这一刻起个人正式破产了……案件号码：Case No. 22-50073.](https://gettr.com/post/pute7afcba)
 
  
 

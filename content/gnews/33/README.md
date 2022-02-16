@@ -2,27 +2,32 @@
 ---
 
 
-## 郭文贵精品视频-中俄狼狈为奸欲挑起战争
-` cindy` [轉載自GNews](https://gnews.org/zh-hans/2011543/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年2月15日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2011724/)
 
-撰稿：澳喜cindy
+作者：香草山翻译部
 
-郭先生从2017年开始爆料起就常常告诉大家，世界的经济危机将要到来，并且是前所未有的惨烈。到了2019年底中共释放出了病毒，导致2年来世界各国经济崩塌。各国几十年积累的问题全部显现出来，更加速了经济危机的到来。特别是不按经济规律办事的世界第二大经济体-中国的不可调和的种种问题更是处在火山爆发前那相当危险、任何人都无法控制的局面。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO-1.jpg)
 
-几十年来，中国人最引以为豪的高铁、桥梁实际上是低效率、高负债运行的；看上去漂亮、精美的高楼大厦，实际上就是开发没本钱、没需要、没能力、更没有未来的过剩建筑。
 
-郭先生曾说过：“中国人根本不需要盖那么多房子，同时过剩的建筑产能会造成经济灾难、环境灾难、社会资源的混乱。最后这些房产堆积成的社会问题、经济问题，变成了真正打台湾的动机，转嫁矛盾，牺牲台湾。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-1-1.png)
+校对：Stay文苑
 
-郭先生从获得的情报得知：2020年习近平和普京就已经达成共识：趁世界由病毒引起的大混乱，美国的实力衰弱、内乱，普京攻打乌克兰，习近平攻打台湾。
+编辑：Stay文苑
 
-“共产党打台湾，除了习近平做梦想当秦始皇，还有就是政治斗争和经济崩塌的综合原因组成。打台湾的结果就是拖垮全球经济”。
+发稿：Stay文苑
 
-“中共国的房产倒保险就会倒，保险倒银行就会倒，银行倒则信托倒，之后没有了钱粮食也没了，这一系列的发生之后全世界都会去问到底这些钱都到哪里去了？一对台开战这上面的问题就一了百了，甚至可以换新的中共国货币，也没有人会问中国的黄金都去哪了？几千年来所有的皇族要灭国没落前，一定是社会大乱，砸碎一切，变成文革前从头再来”。这就是郭先生为大家解释的中共欲打台湾的前因后果。原来“打台湾”就是中共的遮羞布呀！
+新闻：[https://gtv.org/broadcast/watch/620c549e432ae869226d48fa](https://gtv.org/broadcast/watch/620c549e432ae869226d48fa)
+访谈：[https://gtv.org/broadcast/watch/620c5ee4432ae869226d4dde](https://gtv.org/broadcast/watch/620c5ee4432ae869226d4dde)
 
-*编辑：cindy*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-1.png)
 
-【[澳喜文章1](https://gnews.org/zh-hans/author/aujenny/)】
-【[澳喜文章2](https://gnews.org/zh-hans/author/himalaya-australia/)】
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

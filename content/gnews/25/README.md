@@ -2,22 +2,27 @@
 ---
 
 
-## 特鲁多的《紧急状态法》遭各界强烈谴责
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2011798/)
+## 群体免疫不尽人意，新冠病毒可能与人类长期共存
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2011845/)
 
-采编： Spirit         编辑撰稿：硫酸羟氯喹64
-![](https://assets.gnews.org/wp-content/uploads/2022/02/02-image-2.jpg)
-据《福克斯新闻》2月15日报道，在加拿大总理特鲁多启动《紧急状态法》以阻断卡车司机自由车队的资助途径后，立即遭到了各界包括公民自由团体的强烈反对，并谴责当局此举实为政府统治权力的非法扩张。
+##### 素材：熊猫乱滚
+翻译：不要代表我Kari
+校对：精靈藍
+剪辑|字幕： 向上James
+编辑：Mttfly
 
-为此，[公民自由协会]称：由于《紧急状态法》的目的是为了“国家有能力维护其主权、安全和领土完整”，并只适用于“根据加拿大任何其他法律都无法有效处理”的事件。因此，当前民众的和平抗议活动，不仅完全不符合联邦政府启用该法案的标准，更极度危害了本国的民主制度。
+在很长一段时间内，群体免疫力似乎是结束这种大流行病的圣杯。人们希望，如果有足够的人通过疫苗和感染新冠病毒产生免疫力，病毒的传播就会像天花病毒那样减缓。但是，新冠病毒无法通过群体免疫进行根除，那么更有可能，新冠会成为地方病长期与人类共存。
 
-相关学者也指出：《紧急状态法》必须在各省政府的一致同意下，才能被启用。如果地方当局不愿合作，那么联邦政府就不得不放弃执行。此外，由于该法案所特有的针对性、战略性和克制性，因此，擅自实施《紧急状态法》将造成特鲁多政府权力的无限集中和膨胀，而最终导致灾难性的后果。
+视频来源：[COVID-19: On the brink of becoming endemic?](https://twitter.com/backtolife_2022/status/1491151858135539713?t=uO1rPFcb3GLAsIq_AA2u4Q&amp;s=19)
 
-校对编辑：硫酸羟氯喹64
+*发布：Mttfly*
 
-发稿：苦尽甜来 (文来）
-
-原文链接： [https://www.foxnews.com/world/canadian-civil-liberties-groups-respond-to-trudeau-invoking-emergencies-act](https://www.foxnews.com/world/canadian-civil-liberties-groups-respond-to-trudeau-invoking-emergencies-act)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
