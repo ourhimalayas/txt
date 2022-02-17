@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：爱有缺陷的人
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2017900/)
+## 七哥金句：音乐的力量
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2017937/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/竹叶-七哥金句1210-3-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/竹叶-七哥金句-3.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/竹叶-七哥金句12.10-2-2-2.jpg)
 整理：雅典娜农场
 发布：枫叶红了
 

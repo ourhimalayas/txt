@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：躺平币
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2017868/)
+## 七哥金句：音乐是什么？
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2017918/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句躺平币-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/竹叶-七哥金句12.10-1-2-2.jpg)
 整理：雅典娜农场
 发布：枫叶红了
 
