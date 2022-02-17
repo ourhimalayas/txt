@@ -15,50 +15,50 @@
 
 ---
 
-### [多伦多乘客被评为全国最讨厌的Uber乘客](/content/gnews/1/README.md)
+### [昆特兰理工女大学生前男友认罪误杀侮辱尸体](/content/gnews/1/README.md)
  ` MG FARM`
 
-### [七哥金句：战友的事都是天大的事](/content/gnews/2/README.md)
+### [多伦多乘客被评为全国最讨厌的Uber乘客](/content/gnews/2/README.md)
+ ` MG FARM`
+
+### [七哥金句：战友的事都是天大的事](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [七哥金句：不能学共产党](/content/gnews/3/README.md)
+### [七哥金句：不能学共产党](/content/gnews/4/README.md)
  ` 雅典娜GNotes`
 
-### [七哥金句：中国人总有理由看不起自己](/content/gnews/4/README.md)
+### [七哥金句：中国人总有理由看不起自己](/content/gnews/5/README.md)
  ` 雅典娜GNotes`
 
-### [七哥金句：咱们老百姓被洗脑了](/content/gnews/5/README.md)
+### [七哥金句：咱们老百姓被洗脑了](/content/gnews/6/README.md)
  ` 雅典娜GNotes`
 
-### [七哥金句：丛林法则是勇者胜](/content/gnews/6/README.md)
+### [七哥金句：丛林法则是勇者胜](/content/gnews/7/README.md)
  ` 雅典娜GNotes`
 
-### [CDC主任表示将公布新的感染控制措施](/content/gnews/7/README.md)
+### [CDC主任表示将公布新的感染控制措施](/content/gnews/8/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [华盛顿智库：沉默的大多数正在威胁中共的独裁统治](/content/gnews/8/README.md)
+### [华盛顿智库：沉默的大多数正在威胁中共的独裁统治](/content/gnews/9/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [七哥金句：自然的规则](/content/gnews/9/README.md)
+### [七哥金句：自然的规则](/content/gnews/10/README.md)
  ` 雅典娜GNotes`
 
-### [七哥金句：父母是孩子最好的老师](/content/gnews/10/README.md)
+### [七哥金句：父母是孩子最好的老师](/content/gnews/11/README.md)
  ` 雅典娜GNotes`
 
-### [保护医生用伊维菌素治疗新冠的法案在宾州取得进展](/content/gnews/11/README.md)
+### [保护医生用伊维菌素治疗新冠的法案在宾州取得进展](/content/gnews/12/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [七哥金句：男女之间的关系](/content/gnews/12/README.md)
+### [七哥金句：男女之间的关系](/content/gnews/13/README.md)
  ` 雅典娜GNotes`
 
-### [自由卡车车队的组织者使用加密（数字）货币筹资](/content/gnews/13/README.md)
+### [自由卡车车队的组织者使用加密（数字）货币筹资](/content/gnews/14/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [2022/02/16 文贵先生直播精要](/content/gnews/14/README.md)
+### [2022/02/16 文贵先生直播精要](/content/gnews/15/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [七哥金句: G-Club](/content/gnews/15/README.md)
- ` 雅典娜GNotes`
 
 ### [2022/02/17 大卫作战室直播精要](/content/gnews/16/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
