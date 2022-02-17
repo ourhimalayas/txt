@@ -2,20 +2,46 @@
 ---
 
 
-## 中共以预防校园欺凌为由在中小学设置法治副校长
-` 儒为` [轉載自GNews](https://gnews.org/zh-hans/2019635/)
+## 因为贪婪和无知, 冬奥会和冬奥会地产商不知整死多少人
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2019669/)
 
-作者：意大利罗马达芬奇农场-儒为
-![](https://assets.gnews.org/wp-content/uploads/2022/02/法制副校长.jpeg)封面来源：网络图片
-新华网北京2022年2月17日报道，中共教育部召开新闻发布会，教育部政策法规司副司长王大泉介绍，在防治校园欺凌方面，中小学法治副校长可发挥重要作用，包括进行普法教育，督促和指导学校制定相关制度和规定，及时发现和制止校园欺凌行为，参与校园欺凌的认定，教育和矫治实施欺凌行为的学生等。
+G-TV视频链接：[https://gtv.org/video/id=620cc118b0af02660af4415a](https://gtv.org/video/id=620cc118b0af02660af4415a)
 
-中共以预防校园欺凌为由要求在中小学设置“法治副校长”，就类似于中共派驻各企事业单位的“党代表”角色。中共推出的《中小学法治副校长聘任与管理办法》将于5月1日起实施，《办法》要求每所中小学校至少配备1名法治副校长，并优先为偏远地区、农村地区学校和城市薄弱学校配备法治副校长。中共这种“农村包围城市”，从最容易欺骗和洗脑地区开始，用心何其险恶。
+**郭文贵先生：**就像冬奥会的某个地产商之前牛得就不行了，张家口赚大钱了，福建人，到那儿去了，为啥大家呀？大家知道河北的书记，在和福建这有关系，包括那省长是吧？哎呦，牛得不行了。
 
-中共对孩子的洗脑教育和管制工作已达空前绝后的程度，中共之前规定家庭教育和学校教育享有同等地位还嫌不足，如今还要强行派驻法制副校长进入学校，既可以指导校方对学生洗脑教育制度的制定标准，又可以监督校方对学生洗脑教育的执行情况，还可以解决一部分对党绝对忠诚的“老粉红”和“小粉红”们的一部分就业，可谓一箭三雕。
+结果头一段时间说：“七哥！坏了！我这贷款现在银行找我要，（房产）然后打5折银行都不收，我是想卖给银行，然后谁谁谁，就佩服你，成天看你直播，你能给他发个信息让他把我的房子给收了不？”
 
-新闻来源：🔗[教育部：防治校园欺凌中小学法治副校长可发挥重要作用](http://www.news.cn/politics/2022-02/17/c_1128384988.htm)
+你说就这人、就这人，我说：“你拉倒吧！你脑子没健全，你能活着不错了。”很不幸，大年27被警察抓走。抓走不到一个小时，老婆打了三针疫苗又直接“蹬腿”——就这么惨。
 
-*编辑/校对/发稿：意大利罗马达芬奇农场-儒为*
+冬奥会这个地产商和冬奥会不知道整死多少人，是吧？因为你的贪婪、你的无知限制了你的想象。你要么被共产党给搞死，你要么被疫苗搞死。
+
+字幕来源：[2022年2月2日 《文贵大直播 》全文字版](https://gnews.org/zh-hans/1952328/)
+
+编辑整理：海贼王M.D.LUFFY；
+
+字幕文件制作：知津；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

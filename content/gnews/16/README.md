@@ -2,47 +2,20 @@
 ---
 
 
-## 因为贪婪和无知, 冬奥会和冬奥会地产商不知整死多少人
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2019669/)
+## 樱花头条┃日本埼玉县公布首例因感染新冠死亡的健康青少年
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2019718/)
 
-G-TV视频链接：[https://gtv.org/video/id=620cc118b0af02660af4415a](https://gtv.org/video/id=620cc118b0af02660af4415a)
+撰稿：东京樱花团/樱花传媒
+![](https://lh3.googleusercontent.com/QrMxJp_1LHwcUZi6SAWIK4BjFKNxgFwXTaAmyevgHVTnu8vJEMgqENo_oxiCR441NiIOMdtiONdmdj16rwz8LGnTlAqLoLo-8WXGpTlMpNua0VE67ExJ1IYU4bP_Vvmb21GZ6jpo)
+埼玉市2月16日公布当天死于新型冠状病毒感染的五人中，其中一名10多岁的男学生于3日被诊断为阳性，并于9日死亡。死亡原因是弥散性血管内凝血综合征，这是一种在血管中形成血栓的疾病。
 
-**郭文贵先生：**就像冬奥会的某个地产商之前牛得就不行了，张家口赚大钱了，福建人，到那儿去了，为啥大家呀？大家知道河北的书记，在和福建这有关系，包括那省长是吧？哎呦，牛得不行了。
+该市表示，在日本全国，没有任何疾病的青少年死亡是罕见的，这也是该县第一个青少年死亡的案例。
 
-结果头一段时间说：“七哥！坏了！我这贷款现在银行找我要，（房产）然后打5折银行都不收，我是想卖给银行，然后谁谁谁，就佩服你，成天看你直播，你能给他发个信息让他把我的房子给收了不？”
+信息来源：[https://gettr.com/post/pv0ay4fdf4](https://gettr.com/post/pv0ay4fdf4)
 
-你说就这人、就这人，我说：“你拉倒吧！你脑子没健全，你能活着不错了。”很不幸，大年27被警察抓走。抓走不到一个小时，老婆打了三针疫苗又直接“蹬腿”——就这么惨。
-
-冬奥会这个地产商和冬奥会不知道整死多少人，是吧？因为你的贪婪、你的无知限制了你的想象。你要么被共产党给搞死，你要么被疫苗搞死。
-
-字幕来源：[2022年2月2日 《文贵大直播 》全文字版](https://gnews.org/zh-hans/1952328/)
-
-编辑整理：海贼王M.D.LUFFY；
-
-字幕文件制作：知津；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*编辑：东京樱花团/keyboard racing
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
