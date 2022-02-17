@@ -2,29 +2,30 @@
 ---
 
 
-## 樱花FM┃中日财经爆:“麻辣第一股”或成瑞幸咖啡第二
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2021196/)
+## NFSC新闻、G|TV新闻访谈简报|2022年2月17日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2021247/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-12.png)
-近日， 杨国福麻辣烫已向中共证监会递交境外首次公开发行股份审批的相关材料。资本市场惊呼“麻辣烫第一股”可能要诞生了！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO-1.jpg)
 
-据证监会国际部披露的上海杨国福企业管理（集团）股份有限公司（杨国福麻辣烫）提交的《股份有限公司境外首次公开发行股份(包括普通股、优先股等各类股票及股票派生的形式)审批》材料，杨国福麻辣烫的上市之路才刚刚开始，目前仅完成“接收材料”这第一步，后续可能还有“受理通知”“书面反馈”“书面回复”乃至“行政许可决定书”等多个环节。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-16.png)
+文章仅代表作者本人观点，与Gnews无关
 
-杨国福麻辣烫官网显示，公司成立于2003年，系专业从事麻辣小吃及特许经营的全国大型餐饮连锁企业，目前公司已拥有6000余家门店。2019年，杨国福接受媒体采访的时候表示，2019年公司营收预计将达到13亿元，而加盟费只占其中两成，多数收入来自商贸模块，比如向加盟商销售调味料、食材、厨房设备、餐厅家具等。在2021年，杨国福麻辣烫就开始为上市铺路。
+视频参看：
+[2022.02.17早 《NFSC新闻》](https://gtv.org/video/id=620e4d90b706176dd78ba22e)
+[2022.02.17早 G|TV《新闻访谈》](https://gtv.org/broadcast/watch/620e550db706176dd78baaa8)
 
-近年来，国内科技和制造企业不断消亡的情况下，转而包装劳动密集型的餐饮企业到海外上市圈钱，短期的有海底捞上市后出现关店潮，再之前2020年5月15日被爆财务造假而从美股退市的瑞幸咖啡。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-当前，中共面临房地产和金融全面暴雷，实体经济和大众消费萎靡不振，在资本加持下的杨国福麻辣烫境外上市，恐又是一出一地鸡毛的资本骗局。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-1.png)
 
-文字版原文：
-
-[中日财经爆┃“麻辣第一股”或成瑞幸咖啡第二](https://gnews.org/zh-hans/1961286/)
-
-编辑：东京樱花团/asket
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

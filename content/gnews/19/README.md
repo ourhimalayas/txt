@@ -2,30 +2,27 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年2月17日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2021247/)
+## 樱花FM┃中日财经爆：日本半导体投资火热 东芝将新建功率晶圆厂
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2021303/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO-1.jpg)
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-5-3.png)
+自去年日本政府推出半导体振兴战略以来，半导体及IC企业在日投资建设力度不断加大。据悉，2022年至2024年之间将有包括台积电和索尼的合资企业在内的几家新晶圆厂开建上线。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-16.png)
-文章仅代表作者本人观点，与Gnews无关
+东芝2月4日发布公告称，将在日本石川县建造新建300毫米晶圆制造厂，用于制造功率半导体器件。据《日经新闻》此前报道，东芝将投资约1000亿日元（8.7亿美元）来建设该工厂。
 
-视频参看：
-[2022.02.17早 《NFSC新闻》](https://gtv.org/video/id=620e4d90b706176dd78ba22e)
-[2022.02.17早 G|TV《新闻访谈》](https://gtv.org/broadcast/watch/620e550db706176dd78baaa8)
+根据声明，新工厂的建设将分两个阶段进行。第一阶段计划2024财年内投产，当一期工程满负荷运转时，东芝的功率半导体生产能力将是2021财年的2.5倍。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+东芝在其声明中称，车辆电气化和工业设备自动化是未来的两大趋势，将推动功率半导体的需求增长。东芝还称，其工厂将在未来100%依赖可再生能源。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-1.png)
+文字版原文：
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[中日财经爆┃日本半导体投资火热 东芝将新建功率晶圆厂](https://gnews.org/zh-hans/1960552/)
+
+编辑：东京樱花团/asket
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
 
  
 
