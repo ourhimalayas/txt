@@ -2,62 +2,100 @@
 ---
 
 
-## 中华民族一代科学宗师叶企孙竟然沦为乞丐
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2019963/)
+## 这不是左或右的问题 这是关于世界各地民主国家普通公民的反抗
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2020071/)
 
-作者：纽约香草山农场教育部-马克文、朱丽叶
+[https://gtv.org/video/id=620cd589b0af02660af445e4](https://gtv.org/video/id=620cd589b0af02660af445e4)
 
+**Bill:**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-29.png)
-叶企孙，男，汉族，1898年7月16日出生，江苏省上海县人。1923年6月，叶企孙获得哈佛大学物理学博士学位，导师是诺贝尔奖得主、高压物理创始人珀西·布里奇曼。叶企孙是中国物理学家、物理教育家，中国近代物理学的奠基人之一。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/叶企孙.001.jpeg)图源网络
-叶企孙生于上海县唐家弄一书香门第。曾祖蔼臣公在清朝道光年间当过官，晚年在家研究礼学，参与编纂《同治上海县志》； 祖父叶佳镇曾获得国子监簿街封赏，官至五品；父亲叶景沄是1894年甲午江南乡试第15名举人，曾任敬业学堂校长、清华学堂国文教员、 上海教育会会长等职务，参与编纂上海县志。
+What’s happening this week looks like is people understand this is about something more.
+本周发生的事情看起来像是人们明白这关于更多的事情
 
-叶企荪也作叶企孙，名鸿眷，字企荪，以字行。1907年，叶鸿眷到父亲主持的上海敬业学堂读书。1911年初，清政府将游美学务处改为清华学堂，叶鸿眷报考清华学堂获得录取， 成为清华学堂的第一批学员。1911年10月因武昌起义爆发，清华学堂停课，叶鸿眷转读江南制造局兵工中学。1913年夏清华学堂在上海恢复招生。叶鸿眷改名叶企孙，再次报考并被录取。
+They aren’t just the vaccine mandated, it’s becoming a big thing it’s happening all of the world now,
+它们不仅仅是强制性的疫苗，它正在成为一件大事，它正在全世界发生
 
-1918年6月，叶企孙从清华学校毕业，到美国芝加哥大学学习物理，1920年获物理学学士学位。同年9月叶企孙入读哈佛大学研究生院攻读博士学位， 导师是诺贝尔奖得主、高压物理创始人珀西·布里奇曼。1923年6月，叶企孙获得哈佛大学物理学博士学位，10月到欧洲旅游，1924年3月回到上海。
+they think it might happen here in Washington on super bowl on Sunday.
+他们认为这可能会在周日的华盛顿超级碗比赛中发生
 
-抗日战争爆发后，叶企孙本来负责协助清华资产转移至西南联大，但由于日军迅速占领了北平，他只好跟学生熊大缜逃到天津租界，协助学校人员转移到重庆。
+Do you agree it’s about something more and so what?
+你同意这是关于更多的东西吗？
 
-熊大缜是叶企孙的得意学生，叶原来打算保送他到德国留学，但他一心想到由共军方面吕正操领导的冀中抗日根据地参与抗日，他就没有去留学。在叶的支持下，熊大缜参与了抗日战争。但在国共两党的冲突中， 熊大缜因失言被诬陷为“钻入革命队伍中的特务”，由晋察冀军区“锄奸队”（军区时任政治部主任舒同）秘密逮捕并由康生指挥处决，由于当时子弹奇缺， 被用石头砸死。
+Vivek Ramaswamy:
 
-由于熊大缜是叶企孙的得意学生，熊大缜的死也成了文革时期叶企孙的罪证之一。
+Look I think it’s about something more,
+看， 我认为这与更多有关
 
-清华大学理学院于1929年成立，叶企孙出任理学院院长，叶是清华大学的核心领导人物之一。 1946年，中华民国选拔优秀学生到美国深造，在叶企孙的支持下，西南联大理学院的名额分配给本科尚未毕业的李政道。李政道后来成为诺贝尔奖物理得主。
+if you think it’s about vaccine mandates or about white supremacy.
+如果您认为这与疫苗授权或白人至上主义有关
 
-1949年春，中共占领大陆后，叶企孙出任清华大学校务委员会主任。1952年叶被调入北京大学。
+You’re missing the point, and this isn’t left right issue,
+你没有抓住重点，这也不是左右问题，
 
-叶企孙是跨越国共统治时期一代科学宗师，他不但在国民党统治时期培养了大批世界顶级科学家，也为中共培养出79名科学院士。 李政道、杨振宁、华罗庚、钱学森、钱伟长、钱三强、彭桓武、王大珩等都是他的学生，多人获得诺贝尔物理奖，因此，叶企孙也被称作“大师中的大师”。
+this is about an uprising of everyday citizens in democracies around the world,
+这是关于世界各地民主国家普通公民的反抗
 
-文化大革命开始后，在连普通国民党党员都不是的情况下，叶企孙被诬蔑成反动分子，工资停发，住房被抄，关进牛棚，被审查毒打。 肉体上的折磨，人格上的侮辱，使得叶身心备受摧残，最终沦为蓬头垢面的乞丐，在北京中关村沿街乞讨。
+not just Canada, it’s not the United States, it’s western Europe too,
+不只是加拿大，不是美国， 西欧也是
 
-悲惨遭遇让叶企孙两脚肿胀，前列腺肥大， 小便失禁，身体弯成90度。赵元任、任之恭、林家翘、戴振铎、杨振宁等人回国时提出要探望叶企孙，均被中共拒绝。
+rising against the biggest threat to actual democracy,
+对抗来自对民主的最大威胁
 
-1977年1月13日21时30分，叶企孙去世。追悼词对他解放前50年只字未提，只提及他在学术贡献方面做过有益工作，他的侄子叶铭汉为给叔父平反， 给政府写信均未获得答复。一代科学界宗师在中共残暴统治中就这样殒落！
+which I think is the rise of this managerial class in democracies around the world that are crushing the will of everyday people through bureaucracies,
+我认为这是世界各地民主国家中管理阶层的崛起，他们通过官僚机构粉碎了普通民众的意志
 
-参考来源：
+and it’s the same people by the way, Bill,
+顺便说一句，比尔， 是同一群人
 
-[叶企孙](https://zh.wikipedia.org/zh-cn/叶企孙)
+who staff corporate boards directors, who ends up as the associate deans of universities, who then end up being appointed diplomats abroad,
+担任公司董事会董事，最终成为大学的副院长，然后最终被任命为驻外外交官
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-36.jpg)
+these are unelected class of leaders that ultimately, I think, are using their bureaucratic power to supplant the will of everyday,
+这些是非选举产生的领导阶层，我认为，他们最终会利用他们的官僚权力来取代日常生活的意志
 
+not only Americans, but the Canadians and western Europeans too,
+不仅是美国人，还有加拿大人和西欧人
 
+that’s why we are seeing the fusion of both the left and the right,
+这就是为什么我们看到左派和右派的融合
 
-编辑/校对/发稿：兰兰
+here saying actually we want our voice heard,
+这里发生的是，实际上我们希望我们的声音被听见
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+we want to be able to speak without fear of putting food on the dinner table.
+我们希望能够说话而不必担心食物被剥夺
 
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+And you know what?
+你知道吗？
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+The beautiful thing of democracy is that so far thanks god this has been a peaceful set of protest,
+民主的美妙之处在于，感谢上帝，这到目前为止是一场和平的抗议
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+I hope it says stays that way.
+我希望它保持这种状态
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+That’s part of messiness of democracy, and this part of what makes it beautiful.
+这是民主混乱的一部分，也是使它美丽的部分
 
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-30.png)
+Date:02/14/2022
+原视频标题: This isn’t a left or right issue. This is about an uprising of everyday citizens in democracies around the world.
+这不是左或右的问题。这是关于世界各地民主国家普通公民的反抗
+原视频日期：2022/02/11
+原视频链接: https://twitter.com/realdailywire/status/1492346573031890947?s=24
+任务编号：3753
+视频时间段 : 0:00-1:25
+英听校：洛杉矶盘古农场 – Raul
+翻译：洛杉矶盘古农场 – Raul
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场- Jambo
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

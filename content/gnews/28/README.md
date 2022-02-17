@@ -2,27 +2,52 @@
 ---
 
 
-## 有声｜美国丛议员要求中共赔偿中共病毒造成的损失
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2019899/)
+## 乔恩·斯图尔特：“谁来决定”什么被认为是“错误信息”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2019957/)
 
-**By:秘翻新闻**
+[https://gtv.org/video/id=620cd4e0b0af02660af445ad](https://gtv.org/video/id=620cd4e0b0af02660af445ad)
 
-**2022-02-17**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/6-24.png)图片源自:网络
-据《布雷特巴特新闻网》（Breirbart News）2月16日报道，美国众议员莫·布鲁克斯 (Mo Brooks)本周二（2月15日）在推特上发布了一段视频，指控中共制造了新冠病毒，并在病毒一事上撒谎，同时要求中共赔偿被病毒严重伤害的美国人。对此他提出一项法案，旨在通过增加中共国商品的关税来获得中共的赔偿，无论中共是否愿意。
+Jon Stewart
+乔恩·斯图尔特
 
-布鲁克斯表示，中共应该对中共病毒造成的损失和伤害承担经济责任。这就是为什么要提出《中共国新冠赔偿法案》（China COVID–19 Restitution Act）。该法案由布鲁克斯在去年6月首次提出，要求美国总统对中共国制造的商品和部件征收关税，由此获得的资金为与新冠有关的损失提供补偿和赔偿。
+these are shifting sands
+风水轮流转（被审查）
 
-布鲁克斯称，多项证据表明中共在武汉的生物武器实验室中制造病毒。更糟糕的是，中共随后在中共病毒的传染性和致命性上撒了谎，因此增加了美国和美国人的生命和经济损失。中共撒谎，人们死亡，中共应该对其所造成的损失进行赔偿。布鲁克斯表示自己不会对此坐视不管，让中共逍遥法外。法案要求中共承担责任，这是每个美国人都应该同意的事实。
+And I think I get concerned with well, who gets to decide
+而且我想我关心的是谁来决定（是“错误信息”）
 
-上个月，参议员马尔科·鲁比奥 (Marco Rubio)和其他十几位议员还提出一项法案，表示如果中共继续阻挠新冠的起源调查，将对其进行制裁。去年12月，前总统川普认为，中共应该为其在中共病毒大流行中制造的灾难支付赔偿金60万亿美元。
+what that I mean, we in the Iraq War
+我的意思是，我们在伊拉克战争中
 
-( 秘翻新闻 巴拉克 编译报道 )
+I was on the side of what you would think on the mainstream misinformation
+我站在了你认为主流的错误信息一边
 
-发布:星星
+I was promoting what they would call misinformation
+我在宣传他们会称之为错误的信息
+
+But it turned out to be right years later and the establishment media was wrong
+但几年后事实证明这是对的，而老牌媒体是错的
 
 * * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMAGE-2021-12-13-113746.jpg)
+
+Date:02/14/2022
+原视频标题:Jon Stewart：“Who gets to decide” what’s considered “misinformation”
+乔恩·斯图尔特：“谁来决定”什么被认为是“错误信息”
+原视频日期：2022/02/14
+原视频链接[**https://twitter.com/calebhowe/status/1491875308546441223?s=24**](https://twitter.com/calebhowe/status/1491875308546441223?s=24)
+任务编号：3752
+视频时间段 : 0:00-0:33
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场- Jambo
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

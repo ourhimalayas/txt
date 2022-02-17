@@ -2,132 +2,180 @@
 ---
 
 
-## 谁来决定取消文化的规则？
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2020112/)
+## 俄罗斯取乌克兰的幕后黑手-中国共产党
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2020211/)
 
-[https://gtv.org/video/id=620d2b83b0af02660af45a38](https://gtv.org/video/id=620d2b83b0af02660af45a38)
+[https://gtv.org/video/id=620e24602403672096ab26e2](https://gtv.org/video/id=620e24602403672096ab26e2)
 
-Dan Bongino (conservative political commentator)
-丹邦·吉诺（保守派政治评论员）
+The world will have a big war
+世界将发生大战
 
-If conservatives made any kind of comment, anything close to that
-如果保守派发表任何评论，任何与之相似的评论
+Who does this war had to do with？
+这个大战跟谁有关系
 
-forget about canceled you
-一定会取消你
+The final culprit is the CCP
+最后的幕后黑手 就是中国共产党
 
-find yourself the subject of an investigation in the last case
-在上一个案件中发现自己成为调查对象
+What it’s going to do is
+Russia to invade Ukraine
+它要干的事情是 俄罗斯去侵占乌克兰
 
-So what exactly are the rules, the rules revolve around victimhood
-那么规则到底是什么，规则围绕着受害者
+while the CCP invades Taiwan
+中共国侵占台湾
 
-I mean, canceled culture doesn’t work without victims, right?
-我的意思是，没有受害者，取消的文化就行不通，对吧？
+Forming a Global Situation
+for the Alliance of Evil
+形成狼狈为奸的全球局面
 
-You need victimhood, but who gets to decide who the victims are?
-你需要受害者身份, 但是谁来决定谁是受害者呢？
+The situation is good for us to
+TAKE DOWN CCP
+对我们灭共形势是好的
 
-The left loves telling you who the victims are
-左派喜欢告诉你受害者是谁
+But a disaster for humanity
+但对人类真是个灾难
 
-who the oppressed people are
-被压迫的人们是谁
+300,000 Russian troops approached
+Ukraine
+大兵压境30万 到乌克兰
 
-But not everyone’s fallen for
-但并不是每个人都会相信
+290,000 soldiers have been formed
+within Ukraine
+乌克兰内部 已经发动了29万全民的部队
 
-Perhaps UFC fighter Terrence McKinney
-也许是终极格斗锦标赛拳手特伦斯·麦金尼
+And now a large number of U.S. military
+and scientific personnel
+而且现在是美军 大量的科技人员 军事人员
 
-He said it best about the whole Joe Rogan controversy when he said this
-当他说这句话时，他对整个乔·罗根的争议说得最好
+have been deployed in Ukraine
+The so-called proxy war
+所谓的叫代理人战争 已经到位
 
-“I don’t feel Joe Rogan is racist, and I don’t need white people telling me
-“我不觉得乔·罗根是种族主义者，我不需要白人告诉我
+Probably more than 10,000 U.S.
+troops in Ukraine by now
+乌克兰现在已经是 上万个美军都不止了吧
 
-what he says is supposed to offend me”
-他说的话应该会冒犯我”
+Germany has agreed to the placement of
+nuclear weapons by U.S. forces
+德国(同意美军)布置核武器
 
-that’s someone who refuses to be a victim
-那是拒绝成为受害者的人
+Norway, Denmark, Most sensitive country
+挪威 丹麦 最敏感的国家
 
-Another person I can tell you who refuses to be a victim is US Senate candidate
-我可以告诉你的另一个拒绝成为受害者的人是美国参议院候选人
+Both receive U.S. military placement and
+permanent presence
+都接受美军布置 长驻
 
-the great state of Georgia and former NFL running back Herschel Walker
-伟大的乔治亚州和前美国国家橄榄球联盟跑卫赫歇尔·沃克
+Lithuania, Latvia, all welcome U.S. troops
+Putin has not even attacked yet
+立陶宛 拉脱维亚 都欢迎美军来 普京还没打呢
 
-Herschel, thanks so much for joining the show
-赫歇尔，非常感谢你参加这个节目
+the whole of Eastern Europe has all
+come to the U.S. camp
+东欧已经尽失给美国了
 
-as a guy who grew up in bootstrap that Herschel you grew up poor
-作为一个在的引导下长大的人，赫歇尔你从小就贫穷
+Europe’s core interest is not to fight
+with Russia and to expand eastward
+欧洲最核心的利益 就是跟俄罗斯别打 还东扩
 
-you got to where you are today
-你取得了今天的成绩
+But Russia says
+are you fucking kidding me?
+但是俄罗斯说 孙子
 
-What are your thoughts on this growing victim culture where everybody out there seemingly a victim?
-你对这种日益增长的受害者文化有何看法，那里的每个人似乎都是受害者？
+You want to get me killed and try to avoid a hot fight?
+你想弄死我还跟我不打仗
 
-Herschel Walker (R-GA) U.S. Senate Candidate
-赫歇尔·沃克 (共和党-乔治亚州) 美国参议院候选人
+No way, I have to beat you up
+那我怎么干呢 我非打你不行
 
-Well, I’m sad
-好吧，我很难过
+For the U.S.
+对美国而言
 
-First of all, I’m sad because I know Joe Rogan
-首先，我很难过因为我认识乔·罗根
+As long as you Russia attack Ukraine
+it is good for me
+美国(意思)是 俄国你现在打吧 你打了 对我是好事
 
-Joe Rogan is not a racist, he’s a great guy, and I love Joe Rogan
-乔·罗根不是种族主义者，他是个好人，我爱乔·罗根
+If Europe becomes weaker
+I will be relatively stronger
+欧洲弱 我最强
 
-And I want to tell Joe Rogan Keep doing your thing
-我想告诉乔·罗根，继续做你的事
+America’s greatest overseas interest area
+is still Europe
+美国的海外最大利益还是欧洲
 
-And we got to get out of this cancel culture
-我们必须摆脱这种取消文化
+About this war
+the future will prove to you
+这是一场世界上 你未来会看到
 
-because, you know, in First Amendment
-因为，你知道，在第一修正案中
+When this war happens
+这场战争发生以后
 
-it gives you the right to say what you want to say
-它让你有权说出你想说的话
+It definitely stems from Xi Jinping’s
+ignorance of politics
+绝对是中国的习太阳 对政治的无知
 
-well, first of all, if you don’t agree with the layoff
-好吧，首先，如果你不同意这个局面
+Ignorance of international politics
+and arrogance of ego
+对国际政治的无知 和自我的狂妄
 
-you’re going to be canceled out that’s the reason I decided to run
-你会被取消这就是我决定参选的原因
+In addition
+1.4 billion Chinese have been brainwashed
+和14亿中国人(被洗脑)
 
-right now, I want everyone to stand up and say the buck stops here
-现在，我希望每个人都站起来说责任到此为止
+to believe that U.S. has been
+dying and falling
+认为美帝国主义一直在死亡中 在堕落中
 
-And that’s what I’m trying to tell them right now
-这就是我现在想告诉他们的
+Arrogance to the extent that
+China wants to lead the world
+中国要领导全世界
 
-While I’m running the buck is going to stop the Herschel Walker because I love America
-当我在奔跑时，没有什么会阻止赫歇尔·沃克，因为我爱美国
+So ignorant like this
+这么无知一样
+
+made such collective suicidal decisions
+is what lead to the war
+造出一个集体性的自杀决定的结果
+
+The CCP has gone crazy
+就是中国共产党疯了
+
+And thoroughly exploited by Russia
+而且这个疯狂被俄罗斯彻底利用
+
+The winner is definitely Russia
+赢家一定是俄罗斯
+
+The winner is definitely
+the United States
+赢家一定是美国
+
+The CCP will be wipe out
+灭的是中共
+
+And Europe will thus be reborn
+而且欧洲因此会重生
 
 * * *
 
-Date:02/15/2022
-原视频标题:Who gets to decide the rules of cancel culture?
-谁来决定取消文化的规则？
-原视频日期：2022/02/15
-原视频链接[**https://twitter.com/dailycaller/status/1493276406662500353?s=24**](https://twitter.com/dailycaller/status/1493276406662500353?s=24)
-任务编号：KE406（3759）
-视频时间段 : 0:00-1:41
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
+Date:02/17/2022
+原视频标题: Russia to invade Ukraine The final culprit is the CCP
+俄罗斯取乌克兰的幕后黑手-中国共产党
+原视频日期：2022/02/10
+原视频链接 [**https://twitter.com/bennyjohnson/status/1493035356924661769?s=2**](https://twitter.com/bennyjohnson/status/1493035356924661769?s=2)
+任务编号：LP004
+视频时间段 : 0:00-02：05
+英听校：洛杉矶盘古农场 – 庚子
+翻译：洛杉矶盘古农场 – 庚子
+翻译终校：洛杉矶盘古农场 – 银龙
+字幕+视频制作：洛杉矶盘古农场 – 庚子
 审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
+发布 ：洛杉矶盘古农场 – 恩典
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
 [https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+
 
  
 
