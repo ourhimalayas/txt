@@ -2,54 +2,53 @@
 ---
 
 
-## 警察和抗议者同样渴望人权,自由
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2021534/)
+## 多伦多发布极寒警告：今夜有25厘米暴雪
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2021623/)
 
-作者：香草山福音部 —melisa
+作者：Alex Arsenych
+翻译：KK
+![](https://assets.gnews.org/wp-content/uploads/2022/02/5_093522506.jpg)
+周四天气将变得令人毛骨悚然，多伦多发布了极度寒冷的警告，所以如果你想到户外活动，提醒你一定要穿上你最温暖的冬衣。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-3.jpg)
+截至2月17日星期四，多伦多对全市发布了极端寒冷天气警报，预测冰冻天气状况将持续24小时或更长时间。
 
+加拿大环境部已经对多伦多发布了天气警告，预计到2月18日上午，降雪量将达到15至 25厘米。然而天气不会以直接降雪的形式开始，预测会先降雨然后在下午结冰为雪，会持续到晚上。
 
+加拿大环境部说：天气变化过渡期间，今天下午或今晚早些时候也可能出现冻雨和冰粒。
 
+多伦多人会遇到路面结冰和湿滑的情况，而且有时能见度可能接近为零，尤其是今晚，因此您需要尽量避免在下班后上路，由于湿滑人行道和停车场也可能变得难以通过。
 
+据介绍，每当气温预计降至零下15摄氏度或更低，或者当风寒让人感觉至少有零下20摄氏度时，多伦多市都会发布极端寒冷天气警报。
 
+据The Weather Network报道，到周五早上，气温将保持在零下20摄氏度左右。预计在家庭日到来之前天气会暖和起来。
 
+据悉1月7日启动的所有取暖中心仍将向那些需要庇护和抵御寒冷的人开放。
 
-特鲁多宣布:国家紧急令之后。包括安大略省,魁北克省在内的省马上宣布:取消疫苗护照,逐步放开政策。但是这帮政客说:与自由卡车无关而是基于科学。
+四个取暖中心的地点分别是：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/687-0-1.jpg)
+129 Peter St.
 
-死要面子的元耻政客不承认取消疫苗护照是因为卡车司机的和平抗争让他们害怕了。
+5800 Yonge St.
 
-暴君特鲁多想用国家紧急令吓退卡车司机彻底失败。
+Exhibition Place, Better Living Centre, 195 Princes’ Blvd.
 
-在反对疫苗暴政。争取人权,自由的问题上连恐怖分子都不配合特鲁多政府。和平抗议是合法的。特鲁多找不到镇压的理由。警察也是人也渴望人权。自由。以他们与抗议者在国歌中互相拥抱这是信仰的力量。特鲁多将作为暴君载人史册这是他的遗产。
+Scarborough Civic Centre, 150 Borough Dr.
 
-文贵先生早在香港反送中运动中就提倡香港抗我者使用卡车阻挡警察的阵压。这这倡议证明是非常有效的明智选择。
+来源：https://www.narcity.com/toronto/extreme-cold-warning-issued-for-toronto-prepare-for-some-freezing-temperatures
 
-2022年2月17日
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-（本文仅代表作者个人观点）
+**关注我们**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-7.jpg)
+Discord 账号
 
-*编辑 /校对*：*Yuki*jiang
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-*发稿：Yuki*jiang
+Gettr 账号
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

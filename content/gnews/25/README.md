@@ -2,39 +2,47 @@
 ---
 
 
-## 樱花FM┃新闻述评：北京冬奥会开幕惊闻普京随从保镖感染病毒
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2021327/)
+## 研究表明中共病毒疫苗百害而无一利
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2021331/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-6-3.png)
-**中共希望借助冬奥会使其濒临破产的共产党重启，但在新中国联邦主动出击下很可能会事与愿违。冬奥会开幕当天，习近平与俄罗斯宣布联盟之时，普京的访华团队被瘟疫击中，当晚在普京下榻的宾馆发生疫情猝死事件。这些不可思议的事件都会令人惊奇，世界需要问一问习，病毒正在失控吗？**
-
-中共国新华社5日消息继续在为“北京冬奥会开幕”制造万国来朝的假新闻。该消息称，“北京冬奥会， 海外反响热烈”。所谓世界反响热烈，无非是用钱收买的关系，所谓巴基斯坦、英国华人、中埃员工在埃及、在土耳其的中资企业员工、在韩国的华人脑残粉、在白俄罗斯首都明斯克和坦桑尼亚的人在收看直播，然而真正发生的新闻都被掩盖了。
-
-外界有所不知，新中国联邦在北京冬奥会开幕之前就已经向中国共产党发出战书，一定要让冬奥会成为全世界最失败、最尴尬的纳粹“冬眠会”。
-
-***延展阅读：***[***为什么2022冬奥会开幕式毫无艺术价值、毫无灵感***](https://news.artnet.com/opinion/2022-olympic-ceremony-review-2068461)***？***
-
-开幕式当晚就有瘟疫（Omicron ）从冬奥开幕式旁边的盘古七星酒店龙头大厦（龙头已被改装成龟头）下击杀一名特警，当场猝死。郭文贵透露，“肯定是打疫苗打多了，而且是领头的狙击手，习近平吓的个半死啊，狙击手的头死了。”郭先生进一步解释说，中国人将此称作“祭旗”。
-
-更大的外交事件是**普京团队六个人染上了病毒**，两个保镖和四个随从官员，然后4个小时前确定是10个。据郭先生透露，“普京到北京参加冬奥会住华尔道夫酒店。昨天下午1点钟（美国时间2月3日），很不幸的是，在华尔道夫酒店已经死了三人，全部是抽搐而暴死。很恐惧啊，这个病毒又很有可能跑到冬眠会（冬奥会）现场去了。冬奥会才刚刚开始，盘古死人，华尔道夫酒店死人。”可以说，北京真正在开启一场走向死亡的冬奥之旅，而不是“一起向未来”。
-
-- ***延展阅读：***[***为什么巴基斯坦要派一名运动员和八名部长参加冬奥会***](https://theconversation.com/beijing-olympics-why-pakistan-is-sending-one-athlete-and-eight-ministers-to-the-winter-games-176287)
+作者：日本方舟农场-Andy5/银河系农场—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
-习近平将24届冬奥会口号定义为“一起向未来”的最大讽刺就是，习在病毒管控上不但明显失控，而且所谓宣布“中俄联盟”也将注定不会一起走向未来。虽然世界仍在高度关注普京和习近平的举动，但普京这次北京之旅将会因为疫情事件严重影响习普关系。这很重要，似乎谁都明白，普京入侵乌克兰计划虽然箭在弦上，但他很需要中共的经济援助，而中共虽然努力希望借助冬奥会祈求世界给他一个“和平的机会”，但这会事与愿违，因为习近平正在领导共产党走向毁灭。对于这一点，新中国联邦人毫不怀疑，因为我们选择了在中国的虎年对共产党主动出击，它正在随着“纳粹运动会”开启了被摧毁前的多米诺骨牌效应。
+2月11日，据相关媒体报道，美国疾病控制与预防中心发布的最新数据显示，中共病毒疫苗被媒体宣传的所谓保护率会在接种的四个月后极具降低。
 
-文字版原文：
+![圖片](https://media.discordapp.net/attachments/943738468943679518/943893587123400754/0217AM1-11.002.jpeg)
 
-[新闻述评：北京冬奥会开幕惊闻普京随从保镖感染病毒](https://gnews.org/zh-hans/1960499/)
+对于此种现象，日本的长尾和宏医生与新中国联邦的Mike医生和文恩医生都做过详细的解释。据悉，疫苗这种外来免疫方式只能暂时性地大幅提升人体内对特有病毒的抗体，这些抗体在接种后4到6个月内就会减少。同时，由于抗体依赖增强ADE效应，疫苗接种者在之后的时间里会更容易感染病毒。
 
-编辑：东京樱花团/asket
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+至于中共病毒疫苗，Mike医生则指出，其使用的刺突蛋白会抑制人体内的浆母细胞和造血干细胞等跟人体免疫系统息息相关的细胞。加之疫苗会使病毒在接种者体内出现突变，这将造成身体原本的非特异性免疫细胞应接不暇，最终导致接种者的免疫力下降。
+
+另有研究指出，中共病毒疫苗在进入人体后所产生的刺突蛋白会在血液中高水平循环。倘若疫苗接种者感染了中共病毒，其体内刺突蛋白的活动性反而会再度加剧。最终，这些大量活跃的刺突蛋白会让接种者产生各类后遗症。
+
+对此，长尾和宏医生在纪录片《疫苗后遗症》中证实，免疫力下降导致疫苗后遗症患者的症状千奇百怪，目前的医疗系统中很难找到统一的治疗方式。
+
+分析人士指出，现有的理论和数据已经完全表明，药厂、媒体和政府所宣称的疫苗保护性根本就是谎言，相反的，中共病毒疫苗对人体百害而无一利。
+
+参考链接：
+
+1. [美CDC研究：加強劑4個月後保護力大減 恐須打第4劑](https://udn.com/news/story/121707/6093056)
+2. [20220211長尾醫生+鳥集記者在電影結束後的對談part3](https://www.gettr.com/post/pu8h568408)
+3. [THEY LIED: Bombshell new research confirms that Reuters, AP misled the public about how long mRNA nanoparticles persist in the body following vaccinations](https://newstarget.com/2022-02-13-new-research-confirms-reuters-ap-misled-public.html)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-5.png)
 
+总编：Irene木木
+编辑：Irene木木
+校正/发稿：小野貓（文凱琳）
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
