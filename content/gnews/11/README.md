@@ -2,28 +2,48 @@
 ---
 
 
-## 五角大楼称俄罗斯战机拦截美国海军飞机
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2019205/)
+## H-Pay上线大家全傻眼,进入游戏规则彻底改变的新时代
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2019234/)
 
-编译：花岗岩
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-74.jpg)
-图片来源：网络截图
+G-TV视频链接：[https://gtv.org/video/id=620dcfaab0af02660af48fc1](https://gtv.org/video/id=620dcfaab0af02660af48fc1)
 
-据合众国际社 2月16日报道，美国国防新闻业务部主任海军上尉迈克·卡夫卡（Mike Kafka）周三宣布，俄罗斯军用飞机在周末以 “不专业 ”的方式拦截了三架在地中海上空的国际空域飞行的美国海军飞机。
+**郭文贵先生：**现在就别提了，H-Pay一上市，大家全傻眼了。我就在两周前，我给投资者中间开会的时候，我说你记住，H-Pay上线以后你会真正懂得，咱走着看，刚才一直给我打电话，从昨天到现在，是真的是GAME CHANGE，真的游戏规则改变了，我说你们不懂。你别以为你们有钱，你们祖宗十二代，从一战时期就有钱了。你们家有金币工厂，有金矿，你们家有银行，你们家有控制这些国家的这总统那总统的，那都是过去。
 
-“我们可以确认，在上周末的过程中，三架美国海军P-8A飞机遭遇了俄罗斯飞机的非专业拦截，”迈克在给合众国际社的一份声明中说。
+中国大秦朝时候啥样啊，大唐朝时候什么样啊？你到阿富汗去，当年的阿富汗是帝国的时候，阿富汗什么样啊？现在98%的人都没粮食吃，现在每分每钟都在饿死人。
 
-“我们已经通过外交渠道向俄罗斯官员表达了我们的关切。虽然没有人受伤，但像这样的互动可能会导致误判和错误，导致更危险的结果。美国将继续在国际水域和空域以安全、专业和符合国际法的方式运作。我们希望俄罗斯也能这样做”。
+我最讨厌人家一跟我讲，一夹手指头，“哎，我曾经，我过去……”我说：“哎哎哎”这人我“求求你了，你昨天你拉过屎不等于今天也要拉屎，你昨天有媳妇，这一天还真不见得媳妇跟你睡觉。你昨天咋滴昨天？我就说现在和明天吧，好不好？咱们就说这好不好？”所以说那投资委员会说“哎呀我们……Miles不要这么讲嘛，我Grandfather当年创造了什么什么”我说：“你闭嘴闭嘴，你Grandfather你见过吗？你Grand-grandfather你见过吗？你怎么知道那就是你爷爷？你能不能测一下你爷爷跟你DNA是不是一样啊？”这哥们笑就不吱声了。你怎么证明你爷爷就是你爷爷呢？是吧？你证明不了你爷爷就是你爷爷，你就证明不了你今天跟你爷爷一样伟大。你传宗了啥？你连血脉都没传宗啥，那哥们笑。
 
-这次近距离呼叫是在美俄之间因莫斯科在与乌克兰交界处集结军队而加剧的紧张局势中进行的。美国及其北约盟国已警告俄罗斯不要入侵乌克兰，并威胁要对莫斯科实施制裁和其他惩罚措施。
+我说：“咱走着看”。昨天晚上傻球眼了。她说“我拿着H-Pay我买台车，我买了一个雕塑，买了一幅画，然后呢最重要的一件事情，我给我女朋友——这是大概N个女朋友了，她的女朋友能说出来的是可以公开的女朋友，不是“一夜情”，中国人以为“一夜情”，外国人就是没结婚的居住者叫女朋友。但是对不起她是个女的啊，我说的不是个男的，她是个同性同志。
 
-俄罗斯表示，它谴责乌克兰加入北约的任何企图，并希望该军事联盟将其部署撤回到1997年之前的位置。
+她说我给我女朋友”咔“传过去了，秒到！秒到！太惊讶了，她说她又给我传回来，她传给她是十万，对方传给她九万。她又”咔“给她传过去十万，对方又给她传过去八万。我说：“这个事很好，你给她传的……”——女朋友永远比她少。”她说到最后我女朋友又把所有的钱给我打回来了，我又给她打回去，传着玩。”她说:“不可思议啊，女朋友在希腊，我在英国，一分费用没有。”
 
-美国国务卿安东尼·布林肯（Antony Blinken）周三表示，美国还没有看到军队从乌克兰边境 “有意义的撤退”。俄罗斯国防部表示，在完成军事训练演习后，它正在撤出一些部队。同时，北约秘书长延斯·斯托尔滕贝格（Jens Stoltenberg）表示，他看到俄罗斯仍在沿边境地区集结部队数量。
+字幕来源：[2022年2月2日 《文贵大直播 》全文字版](https://gnews.org/zh-hans/1952328/)
 
-新闻来源：[Russian jets intercept U.S. Navy planes, Pentagon says](https://www.upi.com/Top_News/US/2022/02/16/Russia-jets-military-intercept/9571645041363/)
+编辑整理：海贼王M.D.LUFFY；
 
+字幕文件制作：Cindy；
 
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
