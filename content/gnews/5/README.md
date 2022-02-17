@@ -2,22 +2,37 @@
 ---
 
 
-## 北京冬奥会2月16日上午出现可怕一幕，又一位运动员瘫倒在地，突发心血管病
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2020685/)
+## 有声|印中贸易地位不对等引发国家安全担忧
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2020796/)
 
-#### 翻译                          意大利达芬奇农场                  小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-17-alle-12.00.56.png)图片来源：avversinews.it
-上个星期天挪威世界冠军英格丽德•坦德雷沃尔德( Ingrid Tandrevold )在快要接近终点时所发生的一幕， 2月16日早上在4×6 冬季两项接力赛中又出现了。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+当地时间2月14日，据印度媒体报道，在进出口贸易方面，中共国2021年对印度的总出口额高达975亿美元，而印度对中共国的总出口额仅为281亿美元，后者尚不足前者的30%。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E6%88%AA%E5%B1%8F2022-02-16-%E4%B8%8B%E5%8D%8812.27.18.png)
+资料显示，自中共病毒疫情爆发以来，印度大规模地增加了对中共国医疗设备和相关医疗源材料的进口，这也使得印度当地的外汇储备加速外流。尤其在2021年，中共国的贸易顺差达到了创纪录的六千七百六十亿美元，而这一极为不平衡的数字对印度，甚至对全球都造成了巨大的威胁。
 
-在2022年冬奥会举办地张家口的雪地上，女子团体预赛于北京时间15点45分开始，对运动员来说，幸运的是，气温没有前几天那么令人望而生畏。瑞士队是有望夺冠的。
+对此，报道指出，于中共而言，此种极具差异的双边贸易关系导致了印度不可避免的附庸地位，而这正是中共政府迫切需要的政治筹码。据悉，中共一直以来都在企图通过控制金融，进而侵犯印度的国家安全、经济和完整主权。
 
-问题出在女子4×6公里冬季两项的接力赛，瑞士队比赛只进行了几分钟。由于呼吸问题，第一棒选手，伊雷妮•卡杜里施（Irene Cadurisch）不得不在传递接力棒之前放弃比赛，她被用担架抬离现场并送往医疗站。从而提前结束了瑞士队的比赛。
+为此，该媒体强调，印度当下必须严格警惕境内的中资公司，特别是那些非银行金融公司在印度采取的大规模欺诈行为，从而避免中共进一步劫持新德里的金融和商业，更需杜绝政府因贸易而丢失印度领土的可能性。
 
-这次比赛瑞典队夺得金牌。据瑞士网站报道30岁的伊雷妮•卡杜里施可能是心血管出了问题。
+文字版原文：[印中贸易地位不对等引发国家安全担忧](https://gnews.org/zh-hans/2016052/)
 
-原文链接：[https://www.eventiavversinews.it/olimpiadi-di-pechino-momenti-terribili-anche-stamattina-16-febbraio-unaltra-atleta-e-crollata-a-terra-stamattina-problemi-cardiovascolari-improvvisi-per-irene-cadurish/](https://www.eventiavversinews.it/olimpiadi-di-pechino-momenti-terribili-anche-stamattina-16-febbraio-unaltra-atleta-e-crollata-a-terra-stamattina-problemi-cardiovascolari-improvvisi-per-irene-cadurish/)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-编辑、上传： Xiao  baige
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

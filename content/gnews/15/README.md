@@ -2,10 +2,18 @@
 ---
 
 
-## 2/16/2022 文贵直播：文贵是世界上第一个自己破产却让无数人成为富豪的人；锁链女的父亲是援藏干部，结果让女儿遭报应
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2020590/)
+## 2022年2月17日，全球中共病毒疫情情况汇总
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2020680/)
 
-秘密翻译组-北美组
+制作：DT新闻组
+
+**中共的杀戮还在继续……**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/670EF45C-BD6B-434D-A313-89FB6D5ADA33.jpg)
+
+发稿：信心的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-4.jpeg)
 
  
 

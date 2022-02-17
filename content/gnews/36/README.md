@@ -2,75 +2,37 @@
 ---
 
 
-## 中共统治下数字呈现出的真相
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2020286/)
+## 普京会晤博尔索纳罗
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2020302/)
 
-撰稿: 纽约香草山 医疗部 云豹
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-4.png)
-2月15日，郭文贵先生于盖特中转贴了据称前重庆大学法学院院长陈忠林教授做出的一些统计数据。表明中共国民众的真实生活状态。其中有些数据我们无法证实，不便展示。但我们综合了一些类似统计指标的可查询数据，来反映中共统治下国民的真实状况。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1643.png)
-1.中共2021年全球清廉指数排名第66位。与之对比，台湾排名第25位。
+作者：香草山健身部-正道新闻
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+近日，据《消息报》报道，俄罗斯总统弗拉基米尔·普京形容他与巴西总统贾伊尔·博尔索纳罗的会晤是建设性的，并指出巴西是俄罗斯在拉丁美洲的主要贸易和经济伙伴之一。
 
-2.中共司法人员的犯罪率是一般民众的6倍。
+普京说：“今天我们进行了非常详细和建设性的谈判，并在会议结束时通过了一份联合声明，其中规定了进一步深化俄巴合作的指导方针。”
 
-3.2020年中共人均收入5150美元，美国为3.86万美元。中共人均收入只有美国的13%，而且内部不平等现象严重。
+国家元首特别表示，俄罗斯准备参与在巴西建设新的核电机组，包括小型和浮动的核电机组。此外，他指出，各国将继续坚定地捍卫多极世界秩序和以政治和外交方式解决冲突的原则。
 
-4.房价与年收入比，中共是20~40:1，美国是3:1。中共房价是美国的6~13倍。
+俄罗斯总统还就昨天巴西洪水造成的人员伤亡和破坏向博尔索纳罗表示慰问。
 
-5.中共官民比为1:20，美国为1:700。中共民众对官员的负担是美国的35倍。
+巴西总统贾伊尔·博尔索纳罗则表示，他对莫斯科的访问应该是向世界发出与俄罗斯保持良好关系的信号。他强调，双边关系有很大的前景，特别是在国防、石油和天然气以及农业方面。
 
-6.中共国有行业职工占全国职工总数8%，收入却占全国职工工资总额55%。
+两位领导人周三在莫斯科进行了会晤。据克里姆林宫官方网站报道，会谈期间，普京和博尔索纳罗讨论了发展文化、人道主义、科技和经贸领域的合作，国际问题，以及两国的战略伙伴关系。
 
-7.中共政府收入增长985倍，民众只增长19倍。
+PS：巴西总统是第一位入驻Gettr的在任总统，在感染两次中共冠状病毒康复后，并且没有打毒疫苗的状态下与普京亲切会谈，跟马克龙与普京会谈形成鲜明对比。会谈期间是否谈到灭共事宜？追究中共冠状病毒溯源是未来政治合作的方向。[https://iz.ru/1292365/2022-02-16/putin-nazval-konstruktivnoi-proshedshuiu-vstrechu-s-bolsonaru](https://iz.ru/1292365/2022-02-16/putin-nazval-konstruktivnoi-proshedshuiu-vstrechu-s-bolsonaru)
 
-8.中共贫困人口超过2.5亿人，排全球第二位。
-
-9.中共能享受到的教育及医疗费用占国内生产总值的3.8%，美国为21.5%。中共只有美国的17%。
-
-10.中共每年非正常死亡数超过320万人。
-
-新闻链接：
-[郭文贵先生2月16日盖特](https://app.gettr.com/post/pus4wg2897)
-
-[熱帖：什么才是真正的“國恥”，看完震驚](http://www.rocidea.com/one?id=33533)
-
-[國際透明組織2021年全球清廉印象指數](https://news.ltn.com.tw/news/society/breakingnews/3812587)
-
-[陳忠林: 中國絕對不敢公布的大數據](https://www.huaglad.com/zh-tw/aunews/20201002/405113.html)
-
-[陳忠林简介](https://www.newton.com.tw/wiki/%E9%99%B3%E5%BF%A0%E6%9E%97/6081045)
-
-[貪污感知指數](https://zh.wikipedia.org/wiki/%E8%B2%AA%E6%B1%A1%E6%84%9F%E7%9F%A5%E6%8C%87%E6%95%B8)
-
-https://chinadigitaltimes.net/chinese/347873.html
-
-[2020年全国居民人均可支配收入](http://www.gov.cn/guoqing/2021-04/09/content_5598662.htm)
-
-[2020年美国“人均收入”约为“人均GDP”的61%，占比为何这么高？](https://www.sohu.com/a/491183907_100110525)
-
-
-
-
-
-> [中共國平民為何普遍貧窮根源之一便是官民比](https://dev.gnews.org/zh-hant/423090/)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-3.png)
-
-编辑: 飛虹
-
-总编: zhong
-
-校正/发稿：浪迹天涯
-
+校对/发稿：菩提树
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2月-2.jpg)
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-4.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
