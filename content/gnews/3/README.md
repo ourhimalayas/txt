@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句: 爱和感恩
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2021975/)
+## 七哥金句:坚持灭共,为真不破
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2021999/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句1-11.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句2-.jpg)
 整理:雅典娜农场
 发布:枫叶红了
 

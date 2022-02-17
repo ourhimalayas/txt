@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句:共党干掉所有不可控因素
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2021990/)
+## 七哥金句:新中国联邦的孩子
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2022012/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句-.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句1-.jpg)
 整理:雅典娜农场
 发布:枫叶红了
 

@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/17/2022 9:20 PM (UTC)`
+
+2/16/2022 Miles Guo: The Himalaya Exchange has become the fourth largest digital currency exchange. The Himalaya Coin is free from looting by third parties and is without borders, with only a limited number of Himalaya coins being issued each year. The Himalaya Exchange is the safest place to keep money in humanity. The bright future brought by the Himalaya Coin is yet to come.<br/><br/>2/16/2022 文贵直播：喜联储已跻身全球第四大数字货币交易所；喜币不受第三方掠夺、无国界限制且每年发行数量有限；喜联储是人类最安全的存钱之地；喜币开启的人类美好未来尚未开始<br/>
+![img](https://media.gettr.com/group37/getter/2022/02/17/21/01b528e5-1ac7-8341-453c-2ead82eab943/out.jpg)
+
+---
+
+`@miles 2/17/2022 9:15 PM (UTC)`
+
+2/16/2022 Miles Guo: What is the real reason why Eileen Gu's two games were canceled a few days ago? The scandals of the CCP in the Winter Olympics have been frequently exposed, and the incident of Eileen Gu has crippled the CCP. As long as the Chinese people can distinguish the truth from the falsehood, the CCP, which is a paper tiger, can be destroyed in a few seconds.<br/><br/>2/16/2022 文贵直播：谷爱凌前几天的两场比赛被取消的真正原因是什么？中共冬奥会的丑闻频频曝光，谷爱凌的事件把中共打了个半死；只要中国人能辨真假善恶，中共这纸老虎分分钟玩完<br/>
+![img](https://media.gettr.com/group49/getter/2022/02/17/21/9af559db-dcbb-c5c6-6011-dcdcc0f98d67/out.jpg)
+
+---
+
+`@miles 2/17/2022 9:11 PM (UTC)`
+
+2/16/2022 Miles Guo: My bankruptcy is of great significance, while no one in the world can go bankrupt like I did. The CCP’s running dogs, Changpeng Zhao and Weijian Shan, are certainly going to end up miserable. Although I don't own a single Himalaya Coin, I managed to make so many fellow fighters rich by using my wisdom. What a magnificent and powerful act it is!<br/><br/>2/16/2022 文贵直播：文贵破产意义重大，而世界上却没人能像文贵一样破产；中共走狗赵长鹏和单伟建下场一定很惨；文贵没有一个喜币，却用智慧让这么多战友有钱，这是多么伟大的举动<br/>
+![img](https://media.gettr.com/group20/getter/2022/02/17/21/3fb30844-bfbb-fedb-37d1-6a3ada3d8431/out.jpg)
+
+---
+
 `@miles 2/17/2022 3:26 PM (UTC)`
 
 2月17号：尊敬的战友们好．盖特的短视频，新版上线了……非常非常的棒。大家一定要多使用——共产党的内部的经济危机．和．爱之福 H PAY．全球运转形成了鲜明的对比。我们正在拯救全人类的被共产党病毒奴役下的世界经济和被世界独裁政府绑架的个人财富，一切都已经开始！
@@ -133,27 +154,6 @@
 
 2022年2月16日 文贵大直播：疫苗公司股价变化；中国人寿王滨被抓；世界多地反华苗头；冬奥会锁链女后续；太平联盟官司进展；七哥赴日英后安排
 ![img](https://media.gettr.com/group19/origin/2022/02/16/12/3e8f4b44-52fd-03f4-f109-b29948e3a090/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 2/16/2022 11:28 AM (UTC)`
-
-⚠️⚠️Cronología del Nuevo Estado Federal de China sobre el virus del PCC y las vacunas COVID<br/><br/>El NEFC siempre ha estado comprometido con la verdad y con salvar vidas exponiendo la naturaleza malvada del PCC y el hecho de que crearon el virus del PCC que ha matado a millones de personas en todo el mundo. Además, el NEFC ha estado difundiendo al mundo la terapéutica COVID y los medicamentos relacionados, así como la información y los datos reales sobre las vacunas COVID. Todos los hechos demuestran que lo que hizo el PCC no tiene nada que ver con el pueblo chino, el PCC no puede representar al pueblo chino, que también es la víctima.<br/><br/>⚠️⚠️关于新中国联邦爆料中共病毒和中共病毒疫苗灾难预警时间线—西语版<br/><br/>新中国联邦致力于揭露中共邪恶本质，揭露他们制造中共病毒在全世界造成数百万人死亡的事实以及COVID疫苗的真实目的，以拯救生命。中共的所作所为与中国人民无关，中共不代表中国人民，中国人民也是受害者。
-![img](https://media.gettr.com/group29/origin/2022/02/16/11/e4d24fa6-7110-1350-b8ec-cc57d3fd50c0/out.jpg)
-
----
-
-`@miles 2/16/2022 2:37 AM (UTC)`
-
-2月15号：七哥从这一刻起个人正式破产了……案件号码：Case No. 22-50073.
-![img](https://media.gettr.com/group22/getter/2022/02/16/02/e8987dd5-aaf6-9e6b-4ee1-8cdc4355daae/d0bf02e954caa10226071004f47d06c4.jpg)
-
----
-
-`@miles 2/16/2022 2:35 AM (UTC)`
-
-2月15号：七哥从这一刻起个人正式破产了……案件号码：Case No. 22-50073.
-![img](https://media.gettr.com/group4/getter/2022/02/16/02/8de03dc2-59fd-2bde-b547-5253b26dda08/out.jpg)
 
 ---
 
