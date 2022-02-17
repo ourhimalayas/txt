@@ -2,37 +2,45 @@
 ---
 
 
-## 有声|中共网约车巨头处境艰难，滴滴全面大裁员
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2017089/)
+## 多伦多下周将放宽限制 重新开放市政厅和部分公众服务
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2017186/)
 
-配音：香草山农场 – 信念7
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-党媒14日报道，中共网约车巨头，”滴滴“传出内部消息，最新的裁员方案已经敲定，预计裁员20%，各部门裁员比例不一，但覆盖面几乎遍及全线业务。
+翻译：灭共文明
 
-据滴滴内部人士透露指，本次裁员的执行周期会非常短，月底前就会完成通知工作，补偿方案将按法定的N+1标准执行。截至收稿前，滴滴网约车、两轮车、货运等出行业务的负责人都已经陆续收到裁员通知，仅剩自动驾驶、国际化部门暂未受到影响。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture-21.jpg)
-另外，按照市场情况来看，滴滴出行仍然无法注册，App也没有恢复上架，用户及收入持续流失，原本一个季度可以净赚十多亿的生意现在净亏2900万，网约车市场份额也从原来的90％跌至70％。
+编辑与校对：灭共文明
 
-目前，滴滴的市值是 188.4 亿美元，低于 2016 年的融资估值，与上市后的最高点相比，也降低了大约 75%。随着股价的一路重挫，滴滴员工及股东手中股票价值也将继续大幅缩水。
+《华盛顿观察家报》2月16日报道，**周三，加拿大多伦多市长约翰·庄德利宣布，该市取消之前对中共病毒疫情的限制，从2月22日起，将全面恢复城市服务，包括开放市政厅和部分面对面的公众服务。**
 
-文字版原文**：**[中共网约车巨头处境艰难，滴滴全面大裁员](https://gnews.org/zh-hans/2011767/)
+市长庄德利表示，该决定是基于安省政府最近宣布放宽与中共病毒相关的限制而做出的。他还说：“我真诚的相信，更光明的日子就在眼前。”
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+> Next week, [@cityoftoronto](https://twitter.com/cityoftoronto?ref_src=twsrc%5Etfw) will begin the safe and gradual re-opening of City Hall and other city buildings to visitors.
+> 
+> Find a full list of counter services available in person here: [https://t.co/yZ5OaKxtJG](https://t.co/yZ5OaKxtJG) [pic.twitter.com/It2jziP5do](https://t.co/It2jziP5do)
+> — John Tory (@JohnTory) [February 16, 2022](https://twitter.com/JohnTory/status/1494011313944731652?ref_src=twsrc%5Etfw)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+多伦多市长庄德利巡捕开放城市服务
+此前，**安大略省周一宣布，将在周四之后取消许多与中共病毒相关的限制， 3月1日以后，该省计划取消所有限制和疫苗接种要求。**
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+另外，市政府宣布，现在大约有20%的城市雇员在远程办公，从3月21日起，所有员工将返回市政府办公室上班，公众将被允许进入服务柜台以外的其它公共区域。但仍要保持社交距离、佩戴口罩、加强消毒以及遵守清洁规则。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**从2月22日开始**，**多伦多**市政厅、北约克、士嘉堡、怡陶碧谷、约克和东约克等市民中心**将提供多项现场柜台服务，包括支付和咨询有关财产税、支付物业税、水电费以及违章停车罚款等等。**此外，结婚证书现在可以预约本人领取。所有服务将于3月21日开始提供。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/多伦多2.jpg)多伦多市民在妇女大学新冠病毒测试点排队（图片来源：路透社）
+加拿大保守党称，来自该省的这一消息“进一步巩固了这些谨慎乐观的计划，并给了我们重新开放城市的信心。”
+
+**多伦多市长庄德利说，这一决定意味着，多伦多市政府正在开放业务，但要以一种谨慎和稳妥的方式进行**。
+
+新闻链接：
+
+[WATCH: Toronto to relax COVID-19 restrictions and open city buildings | Washington Examiner](https://www.washingtonexaminer.com/news/watch-toronto-to-relax-covid-19-restrictions-and-open-city-buildings)
+
+[Toronto begins reopening city buildings delayed by Omicron | The Star](https://www.thestar.com/news/gta/2022/02/16/we-are-on-the-other-side-of-this-pandemic-mayor-john-tory-announces-reopening-of-city-buildings.html)
+
+[City of Toronto counter service reopening plan – City of Toronto](https://www.toronto.ca/news/city-of-toronto-counter-service-reopening-plan-2/)
+
+
 
  
 

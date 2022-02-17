@@ -2,45 +2,126 @@
 ---
 
 
-## 多伦多下周将放宽限制 重新开放市政厅和部分公众服务
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2017186/)
+## 西方支持中共要付出代价
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2017248/)
 
-翻译：灭共文明
+[https://gtv.org/video/id=620cd435b0af02660af4456e](https://gtv.org/video/id=620cd435b0af02660af4456e)
 
-编辑与校对：灭共文明
+那么现在我告诉你
+Entonces ahora te digo
 
-《华盛顿观察家报》2月16日报道，**周三，加拿大多伦多市长约翰·庄德利宣布，该市取消之前对中共病毒疫情的限制，从2月22日起，将全面恢复城市服务，包括开放市政厅和部分面对面的公众服务。**
+国民党百万大军的冤魂, 几百万的抗日英雄
+El alma de los millones de tropas del Partido Nacionalista Chino, millones de héroes anti-japoneses
 
-市长庄德利表示，该决定是基于安省政府最近宣布放宽与中共病毒相关的限制而做出的。他还说：“我真诚的相信，更光明的日子就在眼前。”
+8964被坦克辗死的人, 害死的人
+Las personas que fueron atropelladas por el tanque en el movimiento democrático de 1989 y el incidente en las Protestas de la plaza de Tiananmén de 1989
 
+还在整个64之后
+Y luego de todo el incidente de la plaza de Tiananmén
 
+在全国枪毙的人绝对数以万计
+Absolutamente decenas de miles de personas disparados en todo el país
 
-> Next week, [@cityoftoronto](https://twitter.com/cityoftoronto?ref_src=twsrc%5Etfw) will begin the safe and gradual re-opening of City Hall and other city buildings to visitors.
-> 
-> Find a full list of counter services available in person here: [https://t.co/yZ5OaKxtJG](https://t.co/yZ5OaKxtJG) [pic.twitter.com/It2jziP5do](https://t.co/It2jziP5do)
-> — John Tory (@JohnTory) [February 16, 2022](https://twitter.com/JohnTory/status/1494011313944731652?ref_src=twsrc%5Etfw)
+还有N个杨改兰女士
+E incontables damas como Yang Gailan
 
+还有新疆集中营被奸杀虐杀的人
+Y aquellos que fueron violados, asesinados y torturados en los campos de concentración de Xinjiang
 
-多伦多市长庄德利巡捕开放城市服务
-此前，**安大略省周一宣布，将在周四之后取消许多与中共病毒相关的限制， 3月1日以后，该省计划取消所有限制和疫苗接种要求。**
+和香港的勇士们
+Los héroes de Hong Kong
 
-另外，市政府宣布，现在大约有20%的城市雇员在远程办公，从3月21日起，所有员工将返回市政府办公室上班，公众将被允许进入服务柜台以外的其它公共区域。但仍要保持社交距离、佩戴口罩、加强消毒以及遵守清洁规则。
+西藏的勇士们
+Y Tibet
 
-**从2月22日开始**，**多伦多**市政厅、北约克、士嘉堡、怡陶碧谷、约克和东约克等市民中心**将提供多项现场柜台服务，包括支付和咨询有关财产税、支付物业税、水电费以及违章停车罚款等等。**此外，结婚证书现在可以预约本人领取。所有服务将于3月21日开始提供。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/多伦多2.jpg)多伦多市民在妇女大学新冠病毒测试点排队（图片来源：路透社）
-加拿大保守党称，来自该省的这一消息“进一步巩固了这些谨慎乐观的计划，并给了我们重新开放城市的信心。”
+你觉得他们会不会跟我们站在一起
+Crees tu que ellos estarán con nosotros
 
-**多伦多市长庄德利说，这一决定意味着，多伦多市政府正在开放业务，但要以一种谨慎和稳妥的方式进行**。
+我相信他
+Yo confío en que ellos
 
-新闻链接：
+会跟我们在一起
+Si estarán con nosotros
 
-[WATCH: Toronto to relax COVID-19 restrictions and open city buildings | Washington Examiner](https://www.washingtonexaminer.com/news/watch-toronto-to-relax-covid-19-restrictions-and-open-city-buildings)
+就是西方今天谈到任何问题
+En cuanto a cualquier problema mencionado hoy sobre el occidente
 
-[Toronto begins reopening city buildings delayed by Omicron | The Star](https://www.thestar.com/news/gta/2022/02/16/we-are-on-the-other-side-of-this-pandemic-mayor-john-tory-announces-reopening-of-city-buildings.html)
+他们要明白
+Ellos deben comprender
 
-[City of Toronto counter service reopening plan – City of Toronto](https://www.toronto.ca/news/city-of-toronto-counter-service-reopening-plan-2/)
+支持共产党的代价
+El precio por apoyar al Partido Comunista
 
+他们是一定要付的
+De seguro lo pagarán
 
+否则共产党会死灰复燃
+De lo contrario, el Partido Comunista resurgirá
+
+包括今天的冬奥会
+Incluyendo Los Juegos Olímpicos de Invierno de hoy
+
+疫苗, 冠状病毒
+Las vacunas, el coronavirus
+
+经济危机, 社会结构危机
+La crisis económica, la crisis del sistema social
+
+信仰急剧缺失, 社会动荡
+La fuerte pérdida de fe, el caos social
+
+这就是我们今天要新中国联邦人看到的
+Esto es lo que queremos que hoy vean las personas del Nuevo Estado Federal de China
+
+你当站在这些角度看问题的时候
+Cuando vean los problemas desde este punto de vista
+
+你就一切都释然了
+Te sentirás aliviado
+
+你就别激动
+No te emociones
+
+就去行动就够了
+Sólo actúa
+
+因为老天跟我们站在一起
+Porque Dios estará con nosotros
+
+我们一定会赢
+Seguro ganaremos
+
+会赢得无限精彩
+Y de infinita maravilla
+
+否则就不会有你七哥这种材料的人
+O sino no habrá una persona, así como yo
+
+出现在世界上
+Que aparezca en este mundo
+
+这个亨利小哥说对了
+Lo que dijo el hermano Henry tiene razón
+
+日期：02/11/2022
+原视频标题：西方支持中共要付出代价
+El apoyo occidental al PCCh tiene un precio
+
+原视频日期：02/09/2022
+**原视频网址：**[https://gettr.com/post/ptdv5qb55f](https://gettr.com/post/ptdv5qb55f)
+任务编号：KC453（3714）
+视频时间段：0:00-01:35
+
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-文新
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
