@@ -2,47 +2,77 @@
 ---
 
 
-## 昆特兰理工女大学生前男友认罪误杀侮辱尸体
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2022284/)
+## 灭共者之郭氏情报站（26）2022/02/16 文贵大直播
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/2022373/)
 
-作者：Janet Brown & Amy Judd
-翻译：KK
-![](https://assets.gnews.org/wp-content/uploads/2022/02/5_102FU35.jpg)
-BC省一名年仅19岁的女大学生遇害后被人放入汽车内放火焚尸，案发5年后她的前男友承认了一项过失杀人罪和一项侮辱尸体罪。年轻的女孩刚刚做完肾移植手术，对未来生活充满憧憬，不料阴差阳错死于男友走火的枪下。
+设计者：纽约香草山设计部 — 喜马拉雅大喵儿，天马星空J
 
-据报道，此案发生在2017年8月，正在昆特兰理工大学（Kwantlen Polytechnic University）就读的女大学生Bhavkiran “Kiran” Dhesi与男友Harjot Singh Deo在一起时意外死亡。
 
-事发后Harjot Singh Deo没有报警，反而是在家人帮助下将死者尸体放入一辆汽车内并放火伪造死亡现场。
 
-Harjot Singh Deo的辩护律师说，事发时Harjot Singh Deo手持一支上膛的、被禁止和受限的手枪，手枪走火导致Dhesi意外死亡。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-事发后Harjot Singh Deo试图隐藏死者的尸体。
 
-Deo的四名家庭成员——包括他的母亲、兄弟和姐妹——在谋杀案发生后也被指控犯有从犯罪。
 
-Deo的兄弟、25岁的Gurvinder Singh Deo和22岁的Talwinder Singh Khun Khun也被指控干扰尸体。Khun Khun被描述为一个大家庭的成员。
 
-此案审判将于5月30日开始，预计将进行三到六周。
 
-据报道，Dhesi的尸体于2017年8月在素里24 Avenue和187 Street附近的一辆烧毁的SUV 中被发现。
 
-她是昆特兰理工大学的一名学生，死前几个月刚刚接受了肾移植手术。
 
-来源：https://globalnews.ca/news/8621452/ex-boyfriend-manslaughter-kiran-dhesi/
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-**关注我们**
+**灭共者-郭氏情报站**
+**2022年2月16日 文贵大直播**
 
-Discord 账号
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8a5396ceef30aa32.png)
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+1、七哥重大宣布：
+1）短期离开美国不可能！
+2）喜联储马上推出贷款和抵押，会有重大利好公告！
+3）隆重宣布，习近平刚刚做了2个手术，脾和肾，习太阳光芒暗淡，对台湾行动暂缓，对台湾大利好。
 
-Gettr 账号
+2、很快喜币喜联储将推出新的HPAY政策，马上推出H贷款和H抵押，然后喜联储可能会有重大利好的新公告。七哥个人破产，但是你们越来越有钱，巨大的，很快的时间，不会超过一个月。
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+3、未来战友用HDO投GTV，HCN下跌是非常正常的。场外交易，场外抵押是不可阻挡。不管你现在多少钱卖HCN，一定会后悔。记住GTV永远是王，拥有5%的喜联储-1000亿的HCN的5%。
+
+4、喜币是有数量限制的，越老越值钱。美国合法的流通Hpay，比在美国还安全的财富港湾就是喜币。Gettr-Pay，躺平币，都是完全独立的。喜联储很快可以交易各种数字货币，包括比特币。记住喜币是数字币，不是虚拟币，虚拟币无和数字币价值衡量的。
+
+5、重要消息！拜登总统明确表态，美国不撤离中共国的前提，必须病毒溯源。拜登绝对是政治高手，“老奸巨猾”，玩死中共。全世界的疫苗问题，都会推责中共。
+
+6、为什么普京宣布突然撤兵？普京如果打乌克兰，习一定会打台湾。英国，法国，巴西等国强硬反应，普京知道如果开打，面临巨大国际压力；不打就把习近平玩了。此时此刻的习近平玩真的，打台湾。
+
+7、文贵最早向世界警示疫苗灾难，做空医药公司，听懂的人会赚多少钱？辉瑞，Mordena，Facebook，一定会破产。人类一半的人打了疫苗，深陷生死不明的处境，一定不会放过共产党和邪恶势力。
+
+8、中共的
+1）内部经济危机；2）对外影响力；3）病毒疫苗灾难；4）内部政治矛盾；5）对世界蓝金黄伤害的危机，回天乏术，共产党一定完了。
+
+**上一期：**
+
+**[灭共者之郭氏情报站（25）2022/02/13 文贵大直播 – GNEWS](https://gnews.org/zh-hans/2006086/)**
+
+
+
+**编辑/发稿：小鹿**
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-124.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
 
  
 

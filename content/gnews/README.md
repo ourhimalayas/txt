@@ -15,80 +15,80 @@
 
 ---
 
-### [为开战俄罗斯可能栽赃乌克兰使用化学武器](/content/gnews/1/README.md)
+### [以色列总理宣布终止疫苗“绿色通行证”](/content/gnews/1/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [灭共者之郭氏情报站（26）2022/02/16 文贵大直播](/content/gnews/2/README.md)
+ ` MOS Designer香草山设计部`
+
+### [为开战俄罗斯可能栽赃乌克兰使用化学武器](/content/gnews/3/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [昆特兰理工女大学生前男友认罪误杀侮辱尸体](/content/gnews/2/README.md)
+### [昆特兰理工女大学生前男友认罪误杀侮辱尸体](/content/gnews/4/README.md)
  ` MG FARM`
 
-### [伊隆 · 马斯克将特鲁多与希特勒相提并论而引发愤怒](/content/gnews/3/README.md)
+### [伊隆 · 马斯克将特鲁多与希特勒相提并论而引发愤怒](/content/gnews/5/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [多伦多乘客被评为全国最讨厌的Uber乘客](/content/gnews/4/README.md)
+### [多伦多乘客被评为全国最讨厌的Uber乘客](/content/gnews/6/README.md)
  ` MG FARM`
 
-### [七哥金句：战友的事都是天大的事](/content/gnews/5/README.md)
+### [七哥金句：战友的事都是天大的事](/content/gnews/7/README.md)
  ` 雅典娜GNotes`
 
-### [七哥金句：不能学共产党](/content/gnews/6/README.md)
+### [七哥金句：不能学共产党](/content/gnews/8/README.md)
  ` 雅典娜GNotes`
 
-### [美国称俄罗斯正准备为入侵乌克兰找借口](/content/gnews/7/README.md)
+### [美国称俄罗斯正准备为入侵乌克兰找借口](/content/gnews/9/README.md)
  ` 蓝莲花农场`
 
-### [七哥金句：中国人总有理由看不起自己](/content/gnews/8/README.md)
+### [七哥金句：中国人总有理由看不起自己](/content/gnews/10/README.md)
  ` 雅典娜GNotes`
 
-### [七哥金句：咱们老百姓被洗脑了](/content/gnews/9/README.md)
+### [七哥金句：咱们老百姓被洗脑了](/content/gnews/11/README.md)
  ` 雅典娜GNotes`
 
-### [七哥金句：丛林法则是勇者胜](/content/gnews/10/README.md)
+### [七哥金句：丛林法则是勇者胜](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
 
-### [CDC主任表示将公布新的感染控制措施](/content/gnews/11/README.md)
+### [CDC主任表示将公布新的感染控制措施](/content/gnews/13/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [华盛顿智库：沉默的大多数正在威胁中共的独裁统治](/content/gnews/12/README.md)
+### [华盛顿智库：沉默的大多数正在威胁中共的独裁统治](/content/gnews/14/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [七哥金句：自然的规则](/content/gnews/13/README.md)
+### [七哥金句：自然的规则](/content/gnews/15/README.md)
  ` 雅典娜GNotes`
 
-### [七哥金句：父母是孩子最好的老师](/content/gnews/14/README.md)
- ` 雅典娜GNotes`
-
-### [保护医生用伊维菌素治疗新冠的法案在宾州取得进展](/content/gnews/15/README.md)
+### [保护医生用伊维菌素治疗新冠的法案在宾州取得进展](/content/gnews/16/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [自由卡车车队的组织者使用加密（数字）货币筹资](/content/gnews/16/README.md)
+### [自由卡车车队的组织者使用加密（数字）货币筹资](/content/gnews/17/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [2022/02/16 文贵先生直播精要](/content/gnews/17/README.md)
+### [2022/02/16 文贵先生直播精要](/content/gnews/18/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2022/02/17 大卫作战室直播精要](/content/gnews/18/README.md)
+### [2022/02/17 大卫作战室直播精要](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [秘翻在线: 俄国驱逐美国大使馆二号人物](/content/gnews/19/README.md)
+### [秘翻在线: 俄国驱逐美国大使馆二号人物](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [多伦多一公司500员工改为每周工作四天](/content/gnews/20/README.md)
+### [多伦多一公司500员工改为每周工作四天](/content/gnews/21/README.md)
  ` MG FARM`
 
-### [联邦调查局组建数字货币部门，司法部启用新的加密货币执法团队](/content/gnews/21/README.md)
+### [联邦调查局组建数字货币部门，司法部启用新的加密货币执法团队](/content/gnews/22/README.md)
  ` 温哥华扬帆农场`
 
-### [2022年2月16日 《文贵大直播》全文字版](/content/gnews/22/README.md)
+### [2022年2月16日 《文贵大直播》全文字版](/content/gnews/23/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [新西兰财经G乐部2022年2月17日:财经新闻整理](/content/gnews/23/README.md)
+### [新西兰财经G乐部2022年2月17日:财经新闻整理](/content/gnews/24/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [警察和抗议者同样渴望人权,自由](/content/gnews/24/README.md)
+### [警察和抗议者同样渴望人权,自由](/content/gnews/25/README.md)
  ` 纽约香草山MOS02`
-
-### [特鲁多专制特权令加拿大皇家骑警将34个加密货币钱包列入黑名单](/content/gnews/25/README.md)
- ` 温哥华扬帆农场`
 
 ### [芯片 运输 能源价格将暴涨 美国几乎已拿下东欧](/content/gnews/26/README.md)
  ` 焦點20分`
