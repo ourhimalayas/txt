@@ -2,27 +2,31 @@
 ---
 
 
-## 多數人認為特魯多不能勝任國家領導職責
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2018414/)
+## 有声|中资企业拟收购澳洲稀土公司
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2018388/)
 
-采編撰稿： 薇文                校對編輯：硫酸羥氯喹64
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+2月14日，澳洲媒体报导，中共企业盛和资源正在计划收购澳洲稀土开采公司PEK。
 
-加拿大溫哥華楊帆農場 楓葉快訊
+报导称，盛和资源将向私募股权基金Appian Capital收购其持有的19.9% 的PEK股权。目前PEK公司拥有包括在坦尚尼亚恩拉矿区的稀土开采计划，并拥有在英国密得堡的稀土冶炼厂。中资企业如果收购成功，无疑将进一步加大中共在稀土资源上的掌控力量。
 
+有专家表示，当前全球17种稀土元素，有八成的产量来自中共，稀土资源已经成为中共试图控制世界的另一种战略武器。
 
-![](https://static.tnc.news/media/2022/01/website-af-29-696x365.jpg)圖片來源：真北方
-據加拿大[真北方]2月16日報道，隨著加拿大自由車隊反抗強製疫苗政策的和平抗議進入第三周，越來越多的加拿大人對總理特魯多的處理方式表示不滿。
+文字版原文：[中资企业拟收购澳洲稀土公司](https://gnews.org/zh-hans/2009515/)
 
-最新民調顯示，53%的加拿大人認為特魯多在面對抗議活動時的拙劣反應，顯示其在國家出現危機時表現出的軟弱無能。其中有63%的人不會根據該總理處置自由車隊事件的方式而再投票給他。
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-盡管主流媒體一邊倒地打壓和平抗議運動，但特魯未能借此提升自己的公眾形象。目前僅約30%的加拿大人認可他的表現，而多數人則認為他因激化了社會矛盾而再無資格成為自由黨領袖和聯邦政府總理，並應該對目前出現的危機負責。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-校對編輯：硫酸羥氯喹64
-
-發文：青青
-
-原文鏈接：[Poll finds half of Canadians believe Trudeau 「not up for the job」](https://tnc.news/2022/02/15/poll-finds-half-of-canadians-believe-trudeau-not-up-for-the-job/)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

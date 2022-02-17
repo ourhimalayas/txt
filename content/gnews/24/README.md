@@ -2,24 +2,23 @@
 ---
 
 
-## 樱花FM┃巴布亚新几内亚总理打过3针疫苗在北京确诊阳性
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2018471/)
+## 中共国江浙地区疫情大封锁
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2018437/)
 
-音频：东京樱花团/战友520
-![](https://lh5.googleusercontent.com/YqX1X1FW4OQdIx5xKsqeFI9KgADgRVlYBCFdhMrQZSnNKMvOoJnYYW9b6FYWUM-mJRfg79trw1fCHXxPYZ57lA_RlK2fR3s9d0IqEZFYKBwKlpQSRuYAXly9vDLXtoh7pJpGo560)
-巴布亚新几内亚总理办公室2月6日宣布，总理马拉普原定于4日出席北京冬季奥运开幕式，但他于3日抵达北京后发现确诊中共病毒（COVID-19），之后被隔离。
+加拿大温哥华杨帆农场 枫叶快讯
 
-巴布亚新几内亚总理办公室6日透过Facebook声明指出，“马拉普（James Marape）总理3日晚间抵达北京后，发现其中共病毒（2019冠状病毒疾病）采检结果呈阳性。受到防疫限制影响，他将放弃本趟出访行程的法国部分。马拉普预计今天返国，但未透露关于他健康情况的任何进一步细节。”
+采编：风云小哥     编译撰稿：文莱
+![Nurses wearing protective face masks enter a community hospital in Shanghai on February 13, 2020. - China's official death toll and infection numbers from the deadly COVID-19 coronavirus spiked dramatically on February 13 after authorities changed their counting methods, fuelling concern the epidemic is far worse than being reported. (Photo …](https://media.breitbart.com/media/2020/02/GettyImages-1200517193-640x480.png)图片来源：布莱特巴特新闻
+据【布莱特巴特新闻】2月15日报道，由于新出现了多起“新冠病毒”感染病例，中共国苏州市政府日前紧急关闭了其大部分医疗服务机构和学校，以试图遏制正在扩散的疫情。 报道称，苏州市在发现新增感染病例之后，已于2月13日暂停了所有医院的急诊医疗服务。并迅速关闭了抗生素，止咳和退烧药物的在线和零售购买业务。目前，该市至少有39个地区被当局全面封锁。
 
-根据巴布亚新几内亚中共病毒（COVID-19）国家疾控制中心官网上的声明，马拉普已于1月24日接种中共病毒疫苗追加剂。
+据悉，由于苏州毗邻上海，因此该市突发的疫情随即导致上海于日前暂停了连接这两座城市的所有公交和地铁线路。 对此，文贵先生早前已发出警告称，中共政权必定会利用冬奥会之机，大搞疫情恐怖政策，在全国各地自北向南连续人为传播病毒和实行大封锁，以此满足习近平当局奴役和控制全国的变态统治欲望。
 
-马拉普5日在北京与中共国国务院总理李克强举行线上会晤，商讨加强双边经济合作事宜。会后中共国驻美国大使馆发布联合声明，称中共国与巴布亚新几内亚同意强化贸易、投资、能源、资源与基础建设等领域的合作。
+校对编辑：硫酸羟氯喹64
 
-文字版原文：[巴布亚新几内亚总理打过3针疫苗在北京确诊阳性](https://gnews.org/zh-hans/1968127/)
+发文：青青
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+新闻来源：[China Imposes Local Ban on Anti-Cough Drugs, Locks Down City of 10+ Million over Coronavirus (breitbart.com)](https://www.breitbart.com/asia/2022/02/15/china-imposes-local-ban-on-anti-cough-drugs-locks-down-city-of-10-million-over-coronavirus/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

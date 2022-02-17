@@ -2,29 +2,43 @@
 ---
 
 
-## 有声｜加拿大冻结了至少34个资助 &#8220;自由车队 &#8220;的数字货币钱包
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2018826/)
+## 给老百姓带来快乐有绝对贡献的草根赵本山不该罪该如此
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2019029/)
 
-By:**秘翻新闻**
+G-TV视频链接：[https://gtv.org/video/id=620cb61db0af02660af43e4f](https://gtv.org/video/id=620cb61db0af02660af43e4f)
 
-**2022-02-17**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8-15.png)图片来源 网络
-据《华盛顿观察家报》2月16日报道，加拿大特鲁多政府已下令，使该国受监管的金融公司冻结至少34哥数字货币钱包，因其为名为 “自由车队 “的和平抗议活动参与者提供支持。此前支持抗议活动的GoFundMe账户在收到超过900万美元后被暂停，此后捐赠者转向数字货币来继续进行捐助。
+**郭文贵先生：**你再往回看赵本山《卖拐》，你再看赵本山的下场，你再看赵本山的演员，不管赵本山个人生活中怎么样，赵本山给中国人带来的快乐天下第一。你抛开任何道德再看赵本山绝对是个农民的“草根儿”，所有跟着他唱戏的人出来搞小品的人，他都给老百姓带来快乐。他是有功的——作为文艺工作者，中国所说的，西方叫做什么？这叫媒体人，他是绝对有贡献的，他不该罪该如此。
 
-一份报告指出，安大略省警察局和加拿大皇家骑警与加拿大金融交易和报告分析中心合作，对资助抗议加拿大疫苗强制令的加密货币捐款展开调查。至少有29个比特币地址，以及卡达诺、以太坊、以太坊精典、门罗币和莱特币共34个钱包地址已被列入黑名单中。
+但他有选择吗？谁让赵本山火的？怎么火的？我比谁都清楚。让赵本山火的，最重要的就是看电视的，就是我们的战友，就你们每天找的我们那个战友，他爹让他火的。当然他爹现在也待在监狱呢，也在秦城呢，是吧？他是被我们救出来了，跟我们在一起爆料，带着孩子我们在一起，我们太了解了。
 
-该名单于周三在社交媒体上发布，比特币新闻资源网CoinDesk证实了其真实性。已有超过20个比特币，估价超过87万美元被冻结。
+字幕来源：[2022年2月2日 《文贵大直播 》全文字版](https://gnews.org/zh-hans/1952328/)
 
-加拿大卡车司机长达数周的和平抗议活动引领了世界各地的人们发起类似的活动。2月14日，特鲁多利用《紧急状态法》在不需要法院命令，也不用承担民事责任的情况下，允许银行和金融机构冻结与 “自由车队 “有关的银行账户。他的这一行为被认为是非法的。
+编辑整理：海贼王M.D.LUFFY；
 
-新闻来源 [**https://www.washingtonexaminer.com/news/canada-freezes-at-least-34-crypto-wallets-funding-freedom-convoy**](https://www.washingtonexaminer.com/news/canada-freezes-at-least-34-crypto-wallets-funding-freedom-convoy)
+字幕文件制作：大好河山；
 
-秘翻新闻 冰糖葫芦喵 编译报道
+视频制作及上传：Cindy；
 
-发布 : 恩典
+G-News发布：小满；
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMAGE-2021-12-13-113746.jpg)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

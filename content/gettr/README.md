@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/17/2022 7:20 AM (UTC)`
+
+2/16/2022 Miles Guo: What is the suit I am wearing today? My personal bankruptcy is just a legal process, but I still own unlimited wisdom. My personal bankruptcy is no match for the fact that the CCP is going to be finished soon and the New Federal State of China that has turned the fellow fighters into those “rich capitalists” who didn’t get the COVID jabs and have Himalaya Coins.<br/><br/>2/16/2022 文贵直播：文贵今天穿的什么衣服？文贵只是法律上的破产，但仍拥有无限的智慧；相较于即将完蛋的中共和把战友们变成无苗有币族和”富豪阶级”的新中国联邦，文贵的破产不叫事儿！<br/>
+![img](https://media.gettr.com/group23/getter/2022/02/17/07/ac3d6c53-0981-b3b8-2625-11c86243fd18/out.jpg)
+
+---
+
+`@miles 2/17/2022 7:15 AM (UTC)`
+
+2/16/2022 Miles Guo: I am the first person in humanity who is personally broke but has made countless people extremely rich. The father of the chained woman was a CCP cadre sent to “aid Tibet”, but his daughter’s suffering is the retribution for her father's sins. My personal bankruptcy is the result of a natural karmic cycle. The reason why the fellow fighters are following me is not because of my money.<br/><br/>2/16/2022 文贵直播：文贵是世界上第一个自己破产却让无数人成为富豪的人；锁链女的父亲是援藏干部，结果让女儿遭报应；文贵的破产也是因果轮回的结果，战友们跟着文贵不是为了文贵的钱<br/>
+![img](https://media.gettr.com/group6/getter/2022/02/17/07/9b916a20-99ec-8174-90ce-d8e4dfc0f442/out.jpg)
+
+---
+
 `@miles 2/17/2022 4:08 AM (UTC)`
 
 2/16/2022 Miles Guo: I think it's my destiny to file for bankruptcy. The CCP has made me wait five years for the red light, while only in the United States could I choose the yellow light – bankruptcy. Taiwan is my role model. She chose the yellow light in the face of powerful forces, but she still has freedom and dignity.<br/><br/>2/16/2022 文贵直播：文贵认为命中必然会有这次破产；中共让文贵等了5年的红灯，而只有在美国才有黄灯可选 - 破产；台湾是文贵的样板，她在强大的势力面前选择了黄灯，但有自由与尊严
@@ -139,19 +153,6 @@
 
 2月15号：无法无天罪恶深重……中国共产党必须被消灭！
 ![img](https://media.gettr.com/group49/getter/2022/02/15/19/f4232b41-b94d-ec07-c92d-b71d73db0afd/out.jpg)
-
----
-
-`@miles 2/15/2022 4:50 PM (UTC)`
-
-2月15号：上天给新中国联邦人元宵节最好的礼物［重磅！美国财政部确认，加密矿工和钱包运营商 #不受美国国税局报告规则的约束，并制定了适当的法规。 随着美国财政部计划让加密矿工和其他“附属方”免受纳税申报规则的影响，#美国加密货币行业即将取得重大法律胜利。https://cointelegraph.com/news/crypto-miners-exempt-from-irs-reporting-rules-us-treasury-affirms https://gettr.com/post/pumsxde238 https://cointelegraph.com/news/crypto-miners-exempt-from-irs-reporting-rules-us-treasury-affirms］
-
----
-
-`@miles 2/15/2022 3:06 PM (UTC)`
-
-2月15号：尊敬的战友们好！文贵衷心的祝大家元宵节快乐！
-![img](https://media.gettr.com/group44/getter/2022/02/15/15/dc51fd09-d34b-f160-63bb-3033402d51f2/out.jpg)
 
 ---
 
