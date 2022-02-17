@@ -2,101 +2,36 @@
 ---
 
 
-## 这不是左或右的问题 这是关于世界各地民主国家普通公民的反抗
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2020071/)
+## 郭文贵先生将于美国法律监管下申请破产 开启灭共下一篇章
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2020275/)
 
-[https://gtv.org/video/id=620cd589b0af02660af445e4](https://gtv.org/video/id=620cd589b0af02660af445e4)
+撰稿：台湾宝岛农场zhong+首尔天池农场—追着曙光跑
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-4.png)
+新中国联邦发起人郭文贵，在共产党滥诉之下，被美国法院判处1.34亿美元的巨额罚款，此罚款金额突破历史记录。2月15日，郭文贵先生于盖特发布视频，郑重表示他将签署个人破产申请书。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1642.png)
+此前，郭先生在2月9日的大直播中宣布，新中国联邦对UBS瑞银集团的诉讼在英国伦敦正式立案。UBS拥有1百万亿美元以上的存款和黑账，相当于人类过去500年积累的财富。中共存储在海外的资金大部分都在UBS，它也是唯一一个在中共国获得准入、拥有独立经营牌照的海外银行。
 
-**Bill:**
+UBS与中共曾用非法手段出售了郭先生的股票，而在过去5年里没有一个有名的律师敢接郭先生对UBS的诉讼，因为这些律师都在接受UBS和中共的费用后强行站队了。同时，太平联盟无中生有、缠诉郭先生的案件在美国被判决，郭先生被判败诉后表示永不妥协。郭先生今天签署个人破产申请书，就是为了能够摆脱一些不必要的麻烦，使自己全身心地跟中共对抗到底，直到胜利的一刻。
 
-What’s happening this week looks like is people understand this is about something more.
-本周发生的事情看起来像是人们明白这关于更多的事情
+视频链接：
 
-They aren’t just the vaccine mandated, it’s becoming a big thing it’s happening all of the world now,
-它们不仅仅是强制性的疫苗，它正在成为一件大事，它正在全世界发生
+[https://gettr.com/post/pute7afcba](https://gettr.com/post/pute7afcba)
 
-they think it might happen here in Washington on super bowl on Sunday.
-他们认为这可能会在周日的华盛顿超级碗比赛中发生
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-3.png)
 
-Do you agree it’s about something more and so what?
-你同意这是关于更多的东西吗？
+编辑：飞虹、zhong
 
-Vivek Ramaswamy:
+总编: zhong
 
-Look I think it’s about something more,
-看， 我认为这与更多有关
+校正/发稿：浪迹天涯
 
-if you think it’s about vaccine mandates or about white supremacy.
-如果您认为这与疫苗授权或白人至上主义有关
-
-You’re missing the point, and this isn’t left right issue,
-你没有抓住重点，这也不是左右问题，
-
-this is about an uprising of everyday citizens in democracies around the world,
-这是关于世界各地民主国家普通公民的反抗
-
-not just Canada, it’s not the United States, it’s western Europe too,
-不只是加拿大，不是美国， 西欧也是
-
-rising against the biggest threat to actual democracy,
-对抗来自对民主的最大威胁
-
-which I think is the rise of this managerial class in democracies around the world that are crushing the will of everyday people through bureaucracies,
-我认为这是世界各地民主国家中管理阶层的崛起，他们通过官僚机构粉碎了普通民众的意志
-
-and it’s the same people by the way, Bill,
-顺便说一句，比尔， 是同一群人
-
-who staff corporate boards directors, who ends up as the associate deans of universities, who then end up being appointed diplomats abroad,
-担任公司董事会董事，最终成为大学的副院长，然后最终被任命为驻外外交官
-
-these are unelected class of leaders that ultimately, I think, are using their bureaucratic power to supplant the will of everyday,
-这些是非选举产生的领导阶层，我认为，他们最终会利用他们的官僚权力来取代日常生活的意志
-
-not only Americans, but the Canadians and western Europeans too,
-不仅是美国人，还有加拿大人和西欧人
-
-that’s why we are seeing the fusion of both the left and the right,
-这就是为什么我们看到左派和右派的融合
-
-here saying actually we want our voice heard,
-这里发生的是，实际上我们希望我们的声音被听见
-
-we want to be able to speak without fear of putting food on the dinner table.
-我们希望能够说话而不必担心食物被剥夺
-
-And you know what?
-你知道吗？
-
-The beautiful thing of democracy is that so far thanks god this has been a peaceful set of protest,
-民主的美妙之处在于，感谢上帝，这到目前为止是一场和平的抗议
-
-I hope it says stays that way.
-我希望它保持这种状态
-
-That’s part of messiness of democracy, and this part of what makes it beautiful.
-这是民主混乱的一部分，也是使它美丽的部分
-
-* * *
-
-Date:02/14/2022
-原视频标题: This isn’t a left or right issue. This is about an uprising of everyday citizens in democracies around the world.
-这不是左或右的问题。这是关于世界各地民主国家普通公民的反抗
-原视频日期：2022/02/11
-原视频链接: https://twitter.com/realdailywire/status/1492346573031890947?s=24
-任务编号：3753
-视频时间段 : 0:00-1:25
-英听校：洛杉矶盘古农场 – Raul
-翻译：洛杉矶盘古农场 – Raul
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场- Jambo
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-4.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

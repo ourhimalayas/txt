@@ -2,26 +2,77 @@
 ---
 
 
-## Moderna CEO称新冠大流行即将结束
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2019958/)
+## 在超级碗看比赛的名人都没有戴口罩
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2020160/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1640.png)[图片来源](https://www.nikkei.com/article/DGXZQOCB30A720Q1A131C2000000/)
-美国制药公司Moderna的首席执行官表示，新冠病毒大流行已经接近尾声。
+[https://gtv.org/video/id=620d2d85b0af02660af45b55](https://gtv.org/video/id=620d2d85b0af02660af45b55)
 
-当地时间16日，Moderna 首席执行官在接受CNBC采访时表示，根据合理推测，新冠流行已接近尾声。随着Omicron 毒株或新冠病毒的进化，有 80% 的可能性，其致命性将大大降低。另外， Omicron 毒株会产生更多致命的变异，也有20%概率。幸运的是，Omicron毒株并不致命，但全世界仍有数千人在失去生命，病毒是不可预测的。新冠病毒和流感一样，我们将必须与之共存。
+We are in Hollywood
+我们在好莱坞
 
-Moderna 计划通过在马来西亚、台湾、新加坡、香港等地建立新公司来扩大其在亚洲的影响力。
+Who we got here?
+我们有谁在这里？
 
-与此同时，世卫组织秘书长谭德塞在上月底警告称，假定Omicron 毒株是大流行时期的最后一个变种是危险的。
+We got Jay-Z, Matt Damon, Charlize Theron’s here
+我们有 Jay-Z、马特·达蒙、查理·兹塞隆在这里
 
-卖完疫苗再在世界各地建厂卖药，想法不错，可是信用已尽失。至于谭德塞这个小丑，也该曲终人散，与寂寞相伴了。
+LeBron (James), Jennifer (Lopez) & Ben (Affleck)
+勒布朗（詹姆斯）、詹妮弗（洛佩兹）和本（阿弗莱克）
 
-信息源：[モデルナ社CEO「コロナの拡散は “終盤”」](https://news.yahoo.co.jp/articles/2e5d95d67bd518927a2fc1629eba7c683a590c57)
+Emmitt Smith, here you go, there’s my kind celebrity
+埃米特·史密斯，来了，这是我类型的名人
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+Now we’re talking
+现在我们正在看到
+
+Of course this is all time celebrity role
+当然，这是所有的名人角色
+
+here tonight for Super Bowl 56 Andy Garcia
+今晚在这里观看第56届超级碗安迪·加西亚
+
+Chris Tucker take it all in, get those pictures
+克里斯·塔克接受一切，获取这些照片
+
+Basketball royalty in the house – LeBron James
+篮球皇在这里——勒布朗·詹姆斯
+
+And of course perfect magic Johnson
+当然还有完美的约翰逊魔术师
+
+Actress Charlize Theron is in the house
+女演员查理兹塞隆也来了
+
+Mark Wahlberg making a call, making feature here
+马克·沃尔伯格在打电话，在这里做特写
+
+Sean Penn, looking cool ever
+西恩·潘，看起来很酷
+
+Matt Damon find his spot as well
+马特·达蒙也找到了自己的位置
+
+It’s pretty cool
+它太棒了
+
+Date:02/14/2022
+原视频标题:None of the celebrities at the Super Bowl were wearing a mask
+在超级碗看比赛的名人都没有戴口罩
+原视频日期：2022/02/14
+原视频链接[**https://twitter.com/bennyjohnson/status/1493035356924661769?s=2**](https://twitter.com/bennyjohnson/status/1493035356924661769?s=2)
+任务编号：KE400（3749）
+视频时间段 : 0:00-0:58
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-文新
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

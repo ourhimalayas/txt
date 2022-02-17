@@ -2,50 +2,180 @@
 ---
 
 
-## 2/17/2022 国际财经快讯：美国司法部对空头展开广泛调查；亚洲发往美国海上集装箱运输量创新高
-` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/2020046/)
+## 俄罗斯取乌克兰的幕后黑手-中国共产党
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2020211/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/20220217-2-1.jpg)[图片来源](https://cn.nikkei.com/politicsaeconomy/investtrade/47656-2022-02-17-09-05-04.html)
-**1.美联储考虑加快升息步伐以缓解通胀**
+[https://gtv.org/video/id=620e24602403672096ab26e2](https://gtv.org/video/id=620e24602403672096ab26e2)
 
-[美联储官员在1月份会议上讨论了加快升息的时间表，在对高通胀感到不安的情况下，预期中的加息将从3月份开始。周三公布的1月25-26日会议纪要显示，美联储官员们一致认为，如果通胀率没有像他们预期的那样下降，FOMC以比他们目前预期更快的速度解除宽松政策将是合适的。美联储在2015年至2018年期间的加息是渐进的，从未在单季加息超过一次。会议纪要显示，作为基本情境，大多数美联储官员上个月建议，可能有理由以比2015年之后那段时期更快的速度来加息。](https://cn.wsj.com/articles/%E7%BE%8E%E8%81%94%E5%82%A8%E8%80%83%E8%99%91%E5%8A%A0%E5%BF%AB%E5%8A%A0%E6%81%AF%E6%AD%A5%E4%BC%90%E4%BB%A5%E7%BC%93%E8%A7%A3%E9%80%9A%E8%83%80-11645053642)
+The world will have a big war
+世界将发生大战
 
-**2.美国司法部对空头展开广泛调查**
+Who does this war had to do with？
+这个大战跟谁有关系
 
-[知情人士透露，联邦检察官正在调查卖空者是否通过提前分享负面研究报告和采取非法交易手段来合谋压低股票价格。这些知情人士说，美国司法部已查封了硬件、交易记录和私人通信记录，试图证明卖空公司股票的投资者之间存在广泛的合谋行为。他们说，正在调查的一种手法是“幌骗”(Spoofing)，这种非法的伎俩是通过向市场投入大量虚假交易指令来推动股价上涨或下跌。另一种则是“剥头皮交易”(Scalping)，即激进卖空者在没有披露的情况下将他们的头寸套现。](https://cn.wsj.com/articles/%E7%BE%8E%E5%9B%BD%E5%8F%B8%E6%B3%95%E9%83%A8%E5%AF%B9%E7%A9%BA%E5%A4%B4%E5%B1%95%E5%BC%80%E5%B9%BF%E6%B3%9B%E8%B0%83%E6%9F%A5-11645056402)
+The final culprit is the CCP
+最后的幕后黑手 就是中国共产党
 
-**3.油价逼近100美元，沙特顶住美国施压坚守欧佩克+协议**
+What it’s going to do is
+Russia to invade Ukraine
+它要干的事情是 俄罗斯去侵占乌克兰
 
-[油价的日益上涨和围绕俄罗斯可能入侵乌克兰的担忧让沙特面临两难抉择：是该增加原油产量，帮助西方国家给油市降温，还是该忠于一个有五年历史、正让俄罗斯受益但不利于美国的石油联盟？眼下，这个全球最大原油出口国沙特已表示站在俄罗斯一边。为降低汽油价格，美国总统拜登(Joe Biden)多次呼吁波斯湾产油国增产。在美国，汽油价格比起新冠疫情较早阶段时已上涨一倍左右。俄军在俄乌边境集结之际，油价近八年来首次升向100美元/桶，且有可能进一步上涨，拜登的呼吁由此显得更加紧迫。](https://cn.wsj.com/articles/%E4%BF%84%E4%B9%8C%E5%8D%B1%E6%9C%BA%E4%B8%8B%E6%B2%B9%E4%BB%B7%E9%80%BC%E8%BF%91100%E7%BE%8E%E5%85%83-%E6%B2%99%E7%89%B9%E9%A1%B6%E4%BD%8F%E7%BE%8E%E5%9B%BD%E6%96%BD%E5%8E%8B%E5%9D%9A%E5%AE%88%E6%AC%A7%E4%BD%A9%E5%85%8B+%E5%8D%8F%E8%AE%AE-11645072585)
+while the CCP invades Taiwan
+中共国侵占台湾
 
-**4.摩根大通打入元宇宙世界**
+Forming a Global Situation
+for the Alliance of Evil
+形成狼狈为奸的全球局面
 
-[准备好了，元世界同行们，摩根大通银行(JPMorgan Chase Bank)已经成为首个加入元宇宙的银行。摩根大通表示，其角色将是金融中介。摩根大通公司(JPMorgan Chase & Co., JPM)推出了虚拟银行——里面有一只遨游的老虎，当然还有首席执行官杰米·戴蒙(Jamie Dimon)的照片——同时还发布了份详细介绍虚拟世界机会的报告。他们指出，一块虚拟土地的平均价格已经从去年6月的6,000美元跃升至12,000美元。人们在虚拟商品上的花费已达到约540亿美元，Roblox (RBLX)上每天有600亿条信息被发送，而非同质化代币(NFT)的市值为410亿美元。](https://cn.wsj.com/articles/%E6%91%A9%E6%A0%B9%E5%A4%A7%E9%80%9A%E6%89%93%E5%85%A5%E5%85%83%E5%AE%87%E5%AE%99%E4%B8%96%E7%95%8C-11645058504)
+The situation is good for us to
+TAKE DOWN CCP
+对我们灭共形势是好的
 
-**5.日本3成企业4~12月净利润创新高**
+But a disaster for humanity
+但对人类真是个灾难
 
-[在中共病毒疫情下，仍有一些日本企业的盈利能力提高。620家日企2021年4～12月的净利润创历史新高，占到总体的3成。利润创新高的企业所占比例高于疫情前的2019年4～12月。制造业企业削减成本，抓住了经济复苏带来的需求增长。海运和商社等领域也有企业由于资源价格高涨而达到前所未有的盈利水平。在截至2月14日已发布4～12月财报、财年按3月划分的企业（不含金融等）中，日本经济新闻社对有5年以上可比数据的2053家企业进行了统计，利润创新高的企业占到总体的30.2%，超过疫情前的2019年4～12月（21.7%），仅次于日本企业利润水平最高的2017财年（截至2018年3月）的2017年4～12月](https://cn.nikkei.com/industry/management-strategy/47659-2022-02-17-10-53-55.html)。
+300,000 Russian troops approached
+Ukraine
+大兵压境30万 到乌克兰
 
-**6.亚洲发往美国海上集装箱运输量创新高**
+290,000 soldiers have been formed
+within Ukraine
+乌克兰内部 已经发动了29万全民的部队
 
-[美国调查公司笛卡尔·达塔明的统计数据显示，2022年1月亚洲发往美国的海上集装箱运输量同比增长7%，达到177万零937个（按20英尺集装箱换算）。作为1月份的单月数字，超过此前最高的2021年1月，并连续19个月高于上年同期。比中共疫情前的2020年1月多出22%。从10个主要国家和地区的数据来看，发自中国的运输量占到6成，同比增长11%，对总体起到拉动作用。发自印度和马来西亚的集装箱也分别大幅增长24%和63%。](https://cn.nikkei.com/politicsaeconomy/investtrade/47656-2022-02-17-09-05-04.html)
+And now a large number of U.S. military
+and scientific personnel
+而且现在是美军 大量的科技人员 军事人员
 
-**7.巴慕达10种产品将平均涨价8％**
+have been deployed in Ukraine
+The so-called proxy war
+所谓的叫代理人战争 已经到位
 
-[日本新兴家电企业巴慕达（BALMUDA）发布消息称，自4月1日起，其主力产品烤面包机等10种产品将平均涨价8％，涨价的品类相当于该企业销售产品的约三分之二。此举意在把上涨的半导体等原材料价格和运输费用转嫁到产品价格上。这是巴慕达首次上调产品价格。巴慕达将对主力产品蒸汽烤面包机等实施涨价。“BALMUDA The Toaster”将从现行价格2万5850日元上调至2万7940日元，涨幅为8％。此外，小型空气循环扇将涨价15％，烤箱和空气净化器也将涨价。2021年11月上市的智能手机则不在涨价范围之内。此次的平均涨幅为8％，巴慕达表示，“4月以后的销量可能会下降”。](https://cn.nikkei.com/industry/tradingretail/47661-2022-02-17-11-13-54.html)
+Probably more than 10,000 U.S.
+troops in Ukraine by now
+乌克兰现在已经是 上万个美军都不止了吧
 
-**8.荷兰合作银行警告咖啡价格可能”失控”，因为库存暴跌**
+Germany has agreed to the placement of
+nuclear weapons by U.S. forces
+德国(同意美军)布置核武器
 
-[根据由卡洛斯·梅拉（Carlos Mera）领导的荷兰合作银行（Rabobank）分析师的一份新报告，每天有超过1.5亿饮酒者可能会受到价格”失控飙升”的影响。在农业市场，供应中断以及中美洲和南美洲生产商的出口减少导致ICE期货交易所的阿拉比卡豆库存减少。不久前，我们注意到ICE期货交易所达到了二十年来最低的豆类存储水平。咖啡买家正在恐慌性囤积，因为有些人已经从阿拉比卡咖啡转向低档罗布斯塔咖啡。梅拉警告说，ICE监控的库存可能在三个月内暴跌至”五十万袋”，而”取消认证的快速步伐可能导致短期内不受控制的价格飙升”。](https://www.zerohedge.com/commodities/rabobank-warns-coffee-prices-may-soar-out-control-stockpiles-plunge)
+Norway, Denmark, Most sensitive country
+挪威 丹麦 最敏感的国家
 
-**9.截止6：00喜币价格24小时变化1.09%**
+Both receive U.S. military placement and
+permanent presence
+都接受美军布置 长驻
 
-[密翻金融组2月17日6：00报道，喜币（ HCN）最后价格为43.865美元（HDO），24小时变化1.09%， 24小时最高值为44.989美元(HDO)，24小时最低值为43.000美元(HDO)，24小时交易量为104,500.836HCN。](https://himalaya.exchange/trading?coinpair=HCN/HDO)
+Lithuania, Latvia, all welcome U.S. troops
+Putin has not even attacked yet
+立陶宛 拉脱维亚 都欢迎美军来 普京还没打呢
 
-评论： 今日HCN价格相较前几天是处于调整的回升之中，日交易量也相对较小。通过Hpay交易商品的记录不断被打破，使用过Hpay转账支付功能的人普遍都反馈好用方便快捷无手续费，可想而知未来Hpay的市场空间将会非常巨大，伴随之而来的是HCN的价值增长。郭先生昨天在大直播中提前透漏了喜联储近期将开通贷款和抵押业务，这更是一个重大利好，战友们可以将手中HCN进行抵押，用贷款支付各项需求，这样既保留了HCN，又解决了生活所需， 用HCN未来的升值来支付贷款利息，这种借钱花的生活模式，会让每个持币的战友拥有越来越多的财富，藏富于战友是新中国联邦实力灭共的国策，中共不灭，每个人没有安全更没有财富。
+the whole of Eastern Europe has all
+come to the U.S. camp
+东欧已经尽失给美国了
 
-By 【秘密翻译组-金融组】
-作者：和理非
+Europe’s core interest is not to fight
+with Russia and to expand eastward
+欧洲最核心的利益 就是跟俄罗斯别打 还东扩
+
+But Russia says
+are you fucking kidding me?
+但是俄罗斯说 孙子
+
+You want to get me killed and try to avoid a hot fight?
+你想弄死我还跟我不打仗
+
+No way, I have to beat you up
+那我怎么干呢 我非打你不行
+
+For the U.S.
+对美国而言
+
+As long as you Russia attack Ukraine
+it is good for me
+美国(意思)是 俄国你现在打吧 你打了 对我是好事
+
+If Europe becomes weaker
+I will be relatively stronger
+欧洲弱 我最强
+
+America’s greatest overseas interest area
+is still Europe
+美国的海外最大利益还是欧洲
+
+About this war
+the future will prove to you
+这是一场世界上 你未来会看到
+
+When this war happens
+这场战争发生以后
+
+It definitely stems from Xi Jinping’s
+ignorance of politics
+绝对是中国的习太阳 对政治的无知
+
+Ignorance of international politics
+and arrogance of ego
+对国际政治的无知 和自我的狂妄
+
+In addition
+1.4 billion Chinese have been brainwashed
+和14亿中国人(被洗脑)
+
+to believe that U.S. has been
+dying and falling
+认为美帝国主义一直在死亡中 在堕落中
+
+Arrogance to the extent that
+China wants to lead the world
+中国要领导全世界
+
+So ignorant like this
+这么无知一样
+
+made such collective suicidal decisions
+is what lead to the war
+造出一个集体性的自杀决定的结果
+
+The CCP has gone crazy
+就是中国共产党疯了
+
+And thoroughly exploited by Russia
+而且这个疯狂被俄罗斯彻底利用
+
+The winner is definitely Russia
+赢家一定是俄罗斯
+
+The winner is definitely
+the United States
+赢家一定是美国
+
+The CCP will be wipe out
+灭的是中共
+
+And Europe will thus be reborn
+而且欧洲因此会重生
+
+* * *
+
+Date:02/17/2022
+原视频标题: Russia to invade Ukraine The final culprit is the CCP
+俄罗斯取乌克兰的幕后黑手-中国共产党
+原视频日期：2022/02/10
+原视频链接 [**https://twitter.com/bennyjohnson/status/1493035356924661769?s=2**](https://twitter.com/bennyjohnson/status/1493035356924661769?s=2)
+任务编号：LP004
+视频时间段 : 0:00-02：05
+英听校：洛杉矶盘古农场 – 庚子
+翻译：洛杉矶盘古农场 – 庚子
+翻译终校：洛杉矶盘古农场 – 银龙
+字幕+视频制作：洛杉矶盘古农场 – 庚子
+审片：洛杉矶盘古农场 – 银龙
+发布 ：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+
 
  
 

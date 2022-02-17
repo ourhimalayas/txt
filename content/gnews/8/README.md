@@ -2,19 +2,15 @@
 ---
 
 
-## 西媒头条 — 第175期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2020215/)
+## 20220216：全世界疫苗的情况
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2020378/)
 
-制作：蚂蚁兄弟
+作者：东京樱花团小视频组
 
-关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。
+校对编辑发布：东京樱花团小视频组
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/xm220217.001.jpeg)
-
-发稿：信心的选择
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-4.jpeg)
-
+* * *
+![喜马拉雅东京樱花团](https://assets.gnews.org/wp-content/uploads/2022/02/yht-8.jpg)喜马拉雅东京樱花团
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,77 +2,75 @@
 ---
 
 
-## 在超级碗看比赛的名人都没有戴口罩
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2020160/)
+## 中共统治下数字呈现出的真相
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2020286/)
 
-[https://gtv.org/video/id=620d2d85b0af02660af45b55](https://gtv.org/video/id=620d2d85b0af02660af45b55)
+撰稿: 纽约香草山 医疗部 云豹
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-4.png)
+2月15日，郭文贵先生于盖特中转贴了据称前重庆大学法学院院长陈忠林教授做出的一些统计数据。表明中共国民众的真实生活状态。其中有些数据我们无法证实，不便展示。但我们综合了一些类似统计指标的可查询数据，来反映中共统治下国民的真实状况。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1643.png)
+1.中共2021年全球清廉指数排名第66位。与之对比，台湾排名第25位。
 
-We are in Hollywood
-我们在好莱坞
+2.中共司法人员的犯罪率是一般民众的6倍。
 
-Who we got here?
-我们有谁在这里？
+3.2020年中共人均收入5150美元，美国为3.86万美元。中共人均收入只有美国的13%，而且内部不平等现象严重。
 
-We got Jay-Z, Matt Damon, Charlize Theron’s here
-我们有 Jay-Z、马特·达蒙、查理·兹塞隆在这里
+4.房价与年收入比，中共是20~40:1，美国是3:1。中共房价是美国的6~13倍。
 
-LeBron (James), Jennifer (Lopez) & Ben (Affleck)
-勒布朗（詹姆斯）、詹妮弗（洛佩兹）和本（阿弗莱克）
+5.中共官民比为1:20，美国为1:700。中共民众对官员的负担是美国的35倍。
 
-Emmitt Smith, here you go, there’s my kind celebrity
-埃米特·史密斯，来了，这是我类型的名人
+6.中共国有行业职工占全国职工总数8%，收入却占全国职工工资总额55%。
 
-Now we’re talking
-现在我们正在看到
+7.中共政府收入增长985倍，民众只增长19倍。
 
-Of course this is all time celebrity role
-当然，这是所有的名人角色
+8.中共贫困人口超过2.5亿人，排全球第二位。
 
-here tonight for Super Bowl 56 Andy Garcia
-今晚在这里观看第56届超级碗安迪·加西亚
+9.中共能享受到的教育及医疗费用占国内生产总值的3.8%，美国为21.5%。中共只有美国的17%。
 
-Chris Tucker take it all in, get those pictures
-克里斯·塔克接受一切，获取这些照片
+10.中共每年非正常死亡数超过320万人。
 
-Basketball royalty in the house – LeBron James
-篮球皇在这里——勒布朗·詹姆斯
+新闻链接：
+[郭文贵先生2月16日盖特](https://app.gettr.com/post/pus4wg2897)
 
-And of course perfect magic Johnson
-当然还有完美的约翰逊魔术师
+[熱帖：什么才是真正的“國恥”，看完震驚](http://www.rocidea.com/one?id=33533)
 
-Actress Charlize Theron is in the house
-女演员查理兹塞隆也来了
+[國際透明組織2021年全球清廉印象指數](https://news.ltn.com.tw/news/society/breakingnews/3812587)
 
-Mark Wahlberg making a call, making feature here
-马克·沃尔伯格在打电话，在这里做特写
+[陳忠林: 中國絕對不敢公布的大數據](https://www.huaglad.com/zh-tw/aunews/20201002/405113.html)
 
-Sean Penn, looking cool ever
-西恩·潘，看起来很酷
+[陳忠林简介](https://www.newton.com.tw/wiki/%E9%99%B3%E5%BF%A0%E6%9E%97/6081045)
 
-Matt Damon find his spot as well
-马特·达蒙也找到了自己的位置
+[貪污感知指數](https://zh.wikipedia.org/wiki/%E8%B2%AA%E6%B1%A1%E6%84%9F%E7%9F%A5%E6%8C%87%E6%95%B8)
 
-It’s pretty cool
-它太棒了
+https://chinadigitaltimes.net/chinese/347873.html
 
-Date:02/14/2022
-原视频标题:None of the celebrities at the Super Bowl were wearing a mask
-在超级碗看比赛的名人都没有戴口罩
-原视频日期：2022/02/14
-原视频链接[**https://twitter.com/bennyjohnson/status/1493035356924661769?s=2**](https://twitter.com/bennyjohnson/status/1493035356924661769?s=2)
-任务编号：KE400（3749）
-视频时间段 : 0:00-0:58
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-文新
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+[2020年全国居民人均可支配收入](http://www.gov.cn/guoqing/2021-04/09/content_5598662.htm)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[2020年美国“人均收入”约为“人均GDP”的61%，占比为何这么高？](https://www.sohu.com/a/491183907_100110525)
 
+
+
+
+
+> [中共國平民為何普遍貧窮根源之一便是官民比](https://dev.gnews.org/zh-hant/423090/)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-3.png)
+
+编辑: 飛虹
+
+总编: zhong
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-4.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
