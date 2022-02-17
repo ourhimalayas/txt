@@ -2,45 +2,38 @@
 ---
 
 
-## 美国的授权撤离在历史上只用过两次:打伊拉克和南斯拉夫
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2018752/)
+## 樱花FM┃樱花深度报道┃联邦调查局局长指责中共从事针对美国科技的大规模黑客行动（上）
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2018862/)
 
-G-TV视频链接：[https://gtv.org/video/id=620caf1ab0af02660af43cae](https://gtv.org/video/id=620caf1ab0af02660af43cae)
+音频：东京樱花团/战友520
+![](https://lh3.googleusercontent.com/VTWV15ApHDafypRODBKIFKPt1iLxP5m_auKw2Ia9IcPKbrrHTz8hrFs7pAzlqHSOPNiUr1faiP6oehx9YLCra-ksiZ6Mxo23w0CxS9LWsbAZO0jqQ5vZMMvTQYqbUhBY7cSVe_E9)
+FBI 局长克里斯托弗·A·雷 (Christopher A. Wray) 表示，中国的情报部门和相关黑客正在参与一项“大规模、复杂”的计划来窃取信息，这是一项技术盗窃活动，规模比所有其他外国对手的总和还要大。
 
-**郭文贵先生：**然后呢这最夸张的美国，Eric你们看了吗？人家美国的那个发言人，人家问他：你安排好了吗？听说你们外交人员有改变。人家你看那副口气: 哈哈，就爱看他那样，不耐烦地——我们按照国际规则，国际保护！没有一个战友，真正说出这四个字“外交撤离”这是七哥第一个说的。在七哥说之前，人类上没存在，这你不参与外交你不懂，是我说的。
+此外，雷先生在加利福尼亚的一次演讲中说，中国情报人员，包括专业官员、政府官员和新入籍的美国人，都是获得宝贵的美国专有技术知识以支持执政的共产党政权的计划的一部分。周一晚上（2022 年 1 月 31 日），这位联邦调查局局长说，今天的中国威胁“达到了一个新的水平——比以往任何时候都更加肆无忌惮、更具破坏性——我们所有人一起关注这一威胁至关重要”。他指出，超过 2000 项 FBI 调查的重点是中国窃取美国信息和技术的行为。
 
-外交叫“撤离”，他可没有说外交调整，谁也没有说外交事件。“外交撤离”在美国历史上只用过两次。打伊拉克，南斯拉夫，“授权撤离”就是两个地方。你说这共产党被震到什么程度，内部什么程度。更夸张的事情，你看看周围这些所有的跟着的小国家全部现在动乱。
+“没有其他国家比中国对我们的思想、创新和经济安全构成更广泛的威胁，”他说，“中国政府窃取的信息量惊人，对各行各业造成了严重的、破坏性的损害，以至于我们每隔 12 小时就会不断地开立新的案件来反击他们的情报行动。”
 
-没有不动乱的地方，连非洲都动乱，叫什么狗屁国家，共产党我从小就念到什么，老挝、古巴、坦桑尼亚那些来访问看毛泽东的，毛泽东死也来哭的那些国家也乱了。更夸张的事情，共产党他做梦没有想到H-Pay昨天大年初一上线。
+雷先生在他对中国竞选活动的一些最广泛的评论中指出，联邦调查局在冷战期间与苏联作战中发挥了强大的作用，他说美国现在的主要对手是中国。
 
-字幕来源：[2022年2月2日 《文贵大直播 》全文字版](https://gnews.org/zh-hans/1952328/)
+“今天，我们在美国和西方世界发现自己正在与另一个全球对手：中国共产党进行一场截然不同的斗争，”他说。 “中国政府构成的威胁与苏联的历史威胁有一些表面上的相似之处。中国政府还拒绝我们作为美国人所珍视的基本自由、基本人权和民主规范。”
 
-编辑整理：海贼王M.D.LUFFY；
+与苏联不同，美国公司对中国经济进行了大量投资，北京向美国精英大学派遣了大量学生。雷先生说，与苏联在 1991 年解体前相比，中国还拥有更强大的金融实力和更有活力的经济。
 
-字幕文件制作：知津；
+他说，北京正在利用其全球影响力和市场力量“窃取和威胁，而不是合作和建设”。
 
-视频制作及上传：Cindy；
+“这种盗窃，那些威胁，几乎每天都在美国发生，”他说。
 
-G-News发布：小满；
+威胁不仅仅是经济上的；联邦调查局局长说，这也对美国的自由构成挑战。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+中国官方媒体没有立即对雷先生的言论作出回应。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+（未完待续）
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+文字版原文：[樱花深度报道┃联邦调查局局长指责中共从事针对美国科技的大规模黑客行动（上）](https://gnews.org/zh-hans/1965195/)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

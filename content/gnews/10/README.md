@@ -2,22 +2,29 @@
 ---
 
 
-## 樱花FM┃速报:疫情大爆发？广西百色宣布封城
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2018714/)
+## 有声｜加拿大冻结了至少34个资助 &#8220;自由车队 &#8220;的数字货币钱包
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2018826/)
 
-音频：东京樱花团/战友520
-![](https://lh4.googleusercontent.com/4WkHy5xzsldzuWEUywYa5P0GHBJUOynzboGMRB27KFr04-AfqTPtJdGM3zEUtbPC0jZ0A_s5tP2vFjsVyOcFMocS28sZxdoSZyo6I1oN7xh08tEqK65hkamxTlgUxHgOXtR_Aj4Z)
-据广西百色市官方消息，自2月4日发现第1例确诊病例以来，截至2月6日16时，广西百色市中共病毒（新冠病毒Covid-19）本轮疫情累计有确诊病例43例，其中德保县37例、右江区2例、田阳区1例、隆林县1例、靖西市2例。
+By:**秘翻新闻**
 
-百色市从2月6日起实施封城，在全市范围内交通管制，原则上车辆和人员不进不出，百色市内各县（市、区）之间、各县（市、区）内各乡（镇）之间不进不出，各县（市、区）、各乡（镇）内部严格执行人员管控，非必要不流动。
+**2022-02-17**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8-15.png)图片来源 网络
+据《华盛顿观察家报》2月16日报道，加拿大特鲁多政府已下令，使该国受监管的金融公司冻结至少34哥数字货币钱包，因其为名为 “自由车队 “的和平抗议活动参与者提供支持。此前支持抗议活动的GoFundMe账户在收到超过900万美元后被暂停，此后捐赠者转向数字货币来继续进行捐助。
 
-中共对待疫情从来都只有一招，封城。从武汉，到西安，到禹州，到安阳，到天津，到现在的百色。如此铁桶牢笼下多少人民正在失去生命，正在经历人道灾难，中共不灭永远都是个迷。
+一份报告指出，安大略省警察局和加拿大皇家骑警与加拿大金融交易和报告分析中心合作，对资助抗议加拿大疫苗强制令的加密货币捐款展开调查。至少有29个比特币地址，以及卡达诺、以太坊、以太坊精典、门罗币和莱特币共34个钱包地址已被列入黑名单中。
 
-文字版原文：[速报┃疫情大爆发？广西百色宣布封城](https://gnews.org/zh-hans/1965326/)
+该名单于周三在社交媒体上发布，比特币新闻资源网CoinDesk证实了其真实性。已有超过20个比特币，估价超过87万美元被冻结。
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+加拿大卡车司机长达数周的和平抗议活动引领了世界各地的人们发起类似的活动。2月14日，特鲁多利用《紧急状态法》在不需要法院命令，也不用承担民事责任的情况下，允许银行和金融机构冻结与 “自由车队 “有关的银行账户。他的这一行为被认为是非法的。
+
+新闻来源 [**https://www.washingtonexaminer.com/news/canada-freezes-at-least-34-crypto-wallets-funding-freedom-convoy**](https://www.washingtonexaminer.com/news/canada-freezes-at-least-34-crypto-wallets-funding-freedom-convoy)
+
+秘翻新闻 冰糖葫芦喵 编译报道
+
+发布 : 恩典
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMAGE-2021-12-13-113746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

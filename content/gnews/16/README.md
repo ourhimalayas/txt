@@ -2,30 +2,44 @@
 ---
 
 
-## 印度税务部门对华为多处办公室展开偷漏税搜查
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2018682/)
+## 美国的授权撤离在历史上只用过两次:打伊拉克和南斯拉夫
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2018752/)
 
-![印度一名妇女2019年10月在一次移动电信展销会上佩戴华为5G胸章。（路透社）](https://gdb.voanews.com/E750313C-1603-4EF5-BC3A-0D78DA2331B7_w1023_r1_s.jpg)印度一名妇女2019年10月在一次移动电信展销会上佩戴华为5G胸章。（路透社）
-据美国之音2月17日报道，印度税收部门15日对中共国电信设备制造商华为公司在印度的多处办公场所进行突击搜查，调查华为偷漏税。今年1月5日，印度政府表示，经调查发现中共国智能手机巨头小米在印度当地的公司有逃税行为，并要求补缴2017年4月至2020年6月期间的65.3亿卢比，约8800万美元的税金。
+G-TV视频链接：[https://gtv.org/video/id=620caf1ab0af02660af43cae](https://gtv.org/video/id=620caf1ab0af02660af43cae)
 
-印度政府2月14日以对民众隐私和国家安全构成威胁为由，再次封禁54款与中共国有关联的应用程序(APP)，同时还请谷歌等公司在印度境内的手机应用商店下架这些应用程序。自2020年6月起，印度政府先后封禁300多个与中共国有关联的应用程序，包括抖音、微信海外版等等视频分享社交或直播平台，称这些应用软件对印度的主权、完整及安全构成威胁。
+**郭文贵先生：**然后呢这最夸张的美国，Eric你们看了吗？人家美国的那个发言人，人家问他：你安排好了吗？听说你们外交人员有改变。人家你看那副口气: 哈哈，就爱看他那样，不耐烦地——我们按照国际规则，国际保护！没有一个战友，真正说出这四个字“外交撤离”这是七哥第一个说的。在七哥说之前，人类上没存在，这你不参与外交你不懂，是我说的。
 
-随着中印在边境冲突的加剧，中印关系也陷入紧张状态。世界上任何一个主权国家都会防范其他国家对本国的渗透。华为是偷来的技术，不需要钻研，不需要交税，还有内置的间谍软件。中共的行为破坏了全球的科研市场，扰乱了他国的经济政策，不仅会引来他国的不满，更是为海外华人积累仇恨。其他国家会把对中共的仇恨算到中国人民头上，海外华人会成为出气筒。消灭中共，就是保护海外华人，也是解放全中国人民，是正义的需要。
+外交叫“撤离”，他可没有说外交调整，谁也没有说外交事件。“外交撤离”在美国历史上只用过两次。打伊拉克，南斯拉夫，“授权撤离”就是两个地方。你说这共产党被震到什么程度，内部什么程度。更夸张的事情，你看看周围这些所有的跟着的小国家全部现在动乱。
 
-新闻参考链接：[https://www.voachinese.com/a/indian-tax-authorities-search-premises-of-china-s-huawei-20220216/6444375.html](https://www.voachinese.com/a/indian-tax-authorities-search-premises-of-china-s-huawei-20220216/6444375.html)
+没有不动乱的地方，连非洲都动乱，叫什么狗屁国家，共产党我从小就念到什么，老挝、古巴、坦桑尼亚那些来访问看毛泽东的，毛泽东死也来哭的那些国家也乱了。更夸张的事情，共产党他做梦没有想到H-Pay昨天大年初一上线。
 
-编辑：胖丁
+字幕来源：[2022年2月2日 《文贵大直播 》全文字版](https://gnews.org/zh-hans/1952328/)
 
-* * *
+编辑整理：海贼王M.D.LUFFY；
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+字幕文件制作：知津；
 
+视频制作及上传：Cindy；
 
-编辑：【英国伦敦喜庄园编辑部】
+G-News发布：小满；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

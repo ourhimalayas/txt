@@ -2,59 +2,23 @@
 ---
 
 
-## 02/17每日播报｜社媒消息:班农先生 娜塔莉温特斯
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2018436/)
+## 中共国江浙地区疫情大封锁
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2018437/)
 
-**[BY：秘翻新聞](https://gtv.org/broadcast/watch/620de481b706176dd78b5c95)**
+加拿大温哥华杨帆农场 枫叶快讯
 
-*[2022-02-17](https://gtv.org/broadcast/watch/620de481b706176dd78b5c95)*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/S1.jpg)
-**一、[班农先生2月16日在盖特发文：](https://gettr.com/post/putn6ec9ff)**
+采编：风云小哥     编译撰稿：文莱
+![Nurses wearing protective face masks enter a community hospital in Shanghai on February 13, 2020. - China's official death toll and infection numbers from the deadly COVID-19 coronavirus spiked dramatically on February 13 after authorities changed their counting methods, fuelling concern the epidemic is far worse than being reported. (Photo …](https://media.breitbart.com/media/2020/02/GettyImages-1200517193-640x480.png)图片来源：布莱特巴特新闻
+据【布莱特巴特新闻】2月15日报道，由于新出现了多起“新冠病毒”感染病例，中共国苏州市政府日前紧急关闭了其大部分医疗服务机构和学校，以试图遏制正在扩散的疫情。 报道称，苏州市在发现新增感染病例之后，已于2月13日暂停了所有医院的急诊医疗服务。并迅速关闭了抗生素，止咳和退烧药物的在线和零售购买业务。目前，该市至少有39个地区被当局全面封锁。
 
-**美国疾控中心CDC疫苗不良反应报告系统VAERS记录的数据显示，新冠疫苗正导致巨大灾难。但福奇对国会所说的却是截然相反，截然相反！**
+据悉，由于苏州毗邻上海，因此该市突发的疫情随即导致上海于日前暂停了连接这两座城市的所有公交和地铁线路。 对此，文贵先生早前已发出警告称，中共政权必定会利用冬奥会之机，大搞疫情恐怖政策，在全国各地自北向南连续人为传播病毒和实行大封锁，以此满足习近平当局奴役和控制全国的变态统治欲望。
 
-【盖文转世界日报 (World Net Daily)报道，1976年，在32人死于猪流感疫苗后，美国政府停止了大规模的疫苗接种活动。但是现在，尽管由CDC和美国食品药品监管局FDA的VAERS数据库报告了超过23000个与新冠疫苗有关的死亡病例，但企业媒体、CDC主任罗谢尔·瓦伦斯基（Rochelle Walensky）和福奇等卫生高官却说，没有人因为这个实验性疫苗死亡或遭受严重的不良影响。一个多月前，在参议院的一次听证会上，在被问及有关疫苗死亡和受伤人数的问题时，福奇和瓦伦斯基都避而不谈。据报道，迄今为止，瓦伦斯基仍未履行她对一位共和党参议员的承诺，向美国人民提供政府对疫苗相关死亡和副作用的循证估计。】
+校对编辑：硫酸羟氯喹64
 
-**秘翻新闻 巴拉克 编译报道**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/S2.jpg)
-**二、[娜塔莉温特斯2月16日在盖特发文：](https://gettr.com/post/puyinhe00d)**
+发文：青青
 
-**为了掩盖真相，美国政府顾问销毁了福奇领导的机构在奥巴马执政时期与武汉实验室的合作记录文件。 **
+新闻来源：[China Imposes Local Ban on Anti-Cough Drugs, Locks Down City of 10+ Million over Coronavirus (breitbart.com)](https://www.breitbart.com/asia/2022/02/15/china-imposes-local-ban-on-anti-cough-drugs-locks-down-city-of-10-million-over-coronavirus/)
 
-【盖文转《国家脉动》报道，美国国会多次要求美国国立卫生研究院NIH提供其与武毒所合作的文件，但NIH不仅未能遵从这一要求，反而强迫该机构人员“销毁提及武毒所、以及在奥巴马政府时期该实验室与美国政府合作的笔记和其他文件”。共和党众议院监督和改革委员会的成员给卫生与公众服务部HHS主任哈维尔·贝塞拉 (Xavier Becerra) 写了一封信，敦促公布这些可能与新冠起源高度相关的文件。信中写道：“HHS和NIH没有对委员会的共和党人保持透明，而是选择隐藏、混淆和掩盖真相。NIH的一名顾问早在2014年就被NIH强迫销毁与武毒所拨款有关的笔记和其他文件。”2021年11月5日，某人给委员会的工作人员发了一封电子邮件，说：“我签署了一份保密协议，其中我同意不与任何人讨论任何资助，除了研究部门的其他成员，而且一旦会议结束，我将把我在会议期间所做的任何笔记扔进会议室的粉碎机进行销毁。”尽管共和党委员会成员一再修改他们的要求，使其范围更广，更容易让联邦机构履行，但这HHS和NIH这两个联邦机构都拒绝交出任何文件。】
-
-**秘翻新闻 巴拉克 编译报道**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/S3.jpg)
-**三、[前贝莱德公司的投资组合经理爱德华·唐德2月17日在盖特发文：](https://gettr.com/post/puz1ny0b41)**
-
-** 特鲁多对卡车司机的报复行动正导致意想不到的后果。 **
-
-【盖文转报道，据报道，在特鲁多对自由车队进行报复所导致的政治危机中，加拿大的一些大银行现在已经“下线”。反抗新闻编辑埃兹拉·莱温特 (Ezra Levant)报道说：“加拿大最大的银行都下线了，包括加拿大皇家银行、蒙特利尔银行，加拿大帝国商业银行。是什么原因导致在特鲁多的征用令发布数小时后，这三家银行在同一天崩溃。难道是他们的数据库被入侵了？”据报道，道明加拿大信托公司和丰业银行也“下线”了。推特用户bu/ac写道：“五大银行同时下线。特鲁多在不到48小时内摧毁了消费者对银行的信心。一些仍允许用户提取现金的自动取款机已经无钞可取。银行现在已经锁定了每个人的资金!”自由车队的抗议者们最近在讨论，可以通过“挤兑银行”对加拿大政府进行经济报复。】
-
-** 秘翻新闻 巴拉克 编译报道**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/S4.jpg)
-**四、[布莱恩泰森医生2月17日在盖特发文：](https://gettr.com/post/puxrla6c40)**
-
-罗伯特·马龙博士2月15日告诉《正义新闻》（Just the News）记者娜塔莉亚米德尔斯塔特（Natalia Mittelstadt）说：“我们大约从2020年3月起就知道如何治愈新冠病毒。”关于民主党州长最近争先恐后的取消新冠强制令，马龙说，糟糕的民调数字驱使他们这么做。“他们诽谤和诋毁苏妮特拉·古普塔 (Sunetra Gupta)博士、杰伊·巴塔查里亚(Jayanta Bhattacharya)博士和马丁·库尔多夫 (Martin Kulldorff) 博士是‘边缘’流行病学家，但他们实际上是牛津大学、斯坦福大学和哈佛大学的全职教授。而且请注意，无论是福奇、弗朗西斯·柯林斯还是莱恩（Lane）博士都没有接受过任何正式的流行病学培训。”
-
-**秘翻新闻 巴拉克 编译报道**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/S5-1.jpg)
-**五、[引力波2月17日在盖特发文：](https://gettr.com/post/puy8ws0e08)**
-
-美国德克萨斯州雇员养老系统Texas ERS最近又向中共间谍企业太盟投资集团PAG投资了5000万美元！加上2019年的1亿美元和2020年的7500万美元，ERS已经把2.25亿美元投给了PAG！
-
-**秘翻新闻 巴拉克 编译报道**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/S6.jpg)
-**六、[Turckers4Freedom 2月16日在盖特发文：](https://gettr.com/post/puwbda82bf)**
-
-反抗疫苗暴政的自由车队卡车司机发现，政府在树干上安装了监视他们的摄像头。
-
-**秘翻新闻 巴拉克 编译报道**
-
-发布：陸柒陸捌
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMAGE-2021-12-13-113746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
