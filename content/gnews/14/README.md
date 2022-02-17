@@ -2,35 +2,35 @@
 ---
 
 
-## 有声|美科学家称中共病毒来自武汉病毒研究所
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2018126/)
+## 2月16日大直播后记：2025一定灭共
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2018292/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月10日，据盖特消息显示，美国国会众议员斯卡里斯在接受采访时表示，那些支持中共病毒实验室起源的科学家们应该针对病毒溯源问题前往国会作证。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide5-10.jpeg)
-斯卡里斯提到，他在与其他议员调查中共病毒起源时发现，包括福奇的高级顾问在内的许多科学家都认为中共病毒来源于武汉病毒研究所。然而，在他们参与了福奇召开的电话会议后，这些学科家们纷纷转变了态度。同时，大多数与会科学家在其后的时间里陆续获得了数百万美元的联邦拨款。
+整理：清水冷香、Lucy Liu
+编辑：小红帽
 
-斯卡里斯强调，美国政府应该就中共病毒起源问题举行国会听证会，而这些改口的科学家们也必须在听证会上接受质询。即使佩洛西议长一直阻挠该听证会的举行，但众议院一定会挖出有关中共病毒来源的真相。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/16-7.png)图片来源：雅典娜农场设计组（614）
 
-文字版原文：[美科学家称中共病毒来自武汉病毒研究所](https://gnews.org/zh-hans/2012234/)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+川普是直接斗啊，叽叽喳喳地就来了，给你斗，明斗。拜登是在背后控制那个人啊，悄无声息地就过去了，这绝对是政治高手。这回习太阳（习近平）遇到了我认为国际政治上最厉害的普京（他的“Partner”）。这就吓人了，习太阳无法想象，接下来他将面对的对手。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+就是在今年年底，欧洲的大选，法国的大选，英国上院下院，整个巴西，特别是美国的中期选举，共和党全部拿出来以后。共和党这几个新人了不得呀。兄弟姐妹们，这都是能人呐，都是天才呀。还有这个混不吝的班农，将成为主角中的主角。你想一想他们（共产党）怎么对付？
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+现在告诉大家排华事件，排亚裔事件，会越来越严重，非常之可怕。大家一定要小心，个人破产是小事儿，你没命了，你有再多钱，那才是悲剧。人去天堂了，钱还在银行，不就完了嘛，是吧？在海外的华人，在这种情况下，最重要的是你要安全。第二，我们希望中共不打台湾，不打乌克兰，最好也别打台湾。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+再一个，我就希望共产党嘎嘣就完蛋。我们希望美国能通过现在的整个病毒溯源，认定共产党在全世界上不能代表中国人，中国人不等同于共产党。把这个做为全世界人民的共同认识。中国人和亚洲人之间也不要有这么多的仇恨和误会。然后，我们就要让全世界知道，病毒是共产党造的，跟中国人没关系。
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+我们要通过这个来消灭共产党，这非常重要。接下来的事情，今年的变化太大了。水虎年呢，我觉的够习喝的。今明两年共产党再活下去的可能，我觉的很难了。2025年一定灭共。
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+资料来源：2022年2月16日郭文贵先生大直播
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

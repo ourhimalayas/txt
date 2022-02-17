@@ -2,40 +2,77 @@
 ---
 
 
-## 习近平脾肾动刀   天灭中共佑台湾
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2018020/)
+## 疫苗强制与科学无关，而始终与权力和政治有关
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2018127/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
+众议员安迪·比格斯：
+它（疫苗强制）与科学无关，而始终与权力和政治有关。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/习近平脾肾动刀-天灭中共佑台湾.png)
+我们必须反对所有用于执行疫苗强制的资金。
 
-2022年2月16日，郭文贵先生在大直播中爆料，习近平同时动了脾肾两个手术，这对于灭共和台湾都是利好消息。
+【附众议院自由核心小组推文：突发：众议院自由核心小组致函敦促参议院共和党人反对所有用于对美国公民执行疫苗强制的资金】
 
-**习太阳脾肾俱坏，光芒黯淡**
 
-** **“习太阳刚刚做了手术，两个手术，一个脾，一个肾，习太阳的光非常黯淡，可能对中国共产党剩下的最后千把天，对台湾是最好的消息，听说手术后，缓过来以后所有对台行动确实要暂缓，死亡面前没有那么疯狂，对台湾是大好消息，习彻底手术”，郭文贵先生透露。
 
-**作战室里动手术，大凶之兆**
+> This was never about the science, it was always about power & politics. 
+> 
+> We must oppose ALL funding towards enforcing vaccine mandates. [https://t.co/2uTjp3KxLo](https://t.co/2uTjp3KxLo)
+> — Rep Andy Biggs (@RepAndyBiggsAZ) [February 16, 2022](https://twitter.com/RepAndyBiggsAZ/status/1494012169318547460?ref_src=twsrc%5Etfw)
 
-关于习近平手术的时间和地点，郭文贵先生进一步透露，“28小时以前，在准备对台作战室的地方做了手术”。
 
-**天灭共党佑台湾，中华大幸**
 
-就在此次大直播的前两天，即2月14日、15日，郭文贵先生罕见地连续在盖特视频爆料中共攻台阴谋。
+参议员泰得·克鲁兹：
+今天很高兴见到埃内斯·弗里德姆!
+他表现出了巨大的勇气，并为站出来呼吁中国共产党的暴行和种族灭绝付出了个人代价。
+NBA把中共的金钱看得比正义和人权还重，所以没有球队让29岁的他上场。
 
-郭文贵先生反复预警，冬奥会开幕式后，习近平近期隐身的八九天，“正在处心积虑的酝酿对台作战计划，就连中南坑的人都不知道他去哪儿了，谎称自己身体不舒服，而且躲在某个地方在疗养”。
 
-孰料人算不如天算，习近平以冬奥会为掩护，计划与俄罗斯联手分头各取台湾和乌克兰，最终其身体无法支撑其疯狂，手术后暂缓攻台计划。郭文贵先生也感叹，“这是天意吧，台湾那么多庙、那么多念经，上帝会保佑台湾！”
 
-台湾避免了战火，同时也给大陆14亿国人避免了战火，实乃中华之大幸！经此一折腾而未遂的习近平与中共，必将加速败亡。
+> Great to meet [@EnesFreedom](https://twitter.com/EnesFreedom?ref_src=twsrc%5Etfw) today!
+> 
+> He’s shown enormous courage—and has paid a personal price for—standing up & calling out the atrocities & genocide of the Chinese Communist Party.
+> 
+> The [@nba](https://twitter.com/NBA?ref_src=twsrc%5Etfw) values CCP $$ more than Justice or human rights & so at age 29 no team will let him play. [pic.twitter.com/6UlcYf9EOg](https://t.co/6UlcYf9EOg)
+> — Ted Cruz (@tedcruz) [February 16, 2022](https://twitter.com/tedcruz/status/1494032026420273162?ref_src=twsrc%5Etfw)
 
-信息来源：
 
-[2022年2月16日文贵大直播：疫苗公司股价变化；看中共的普遍贪腐、以贪反贪、以反贪为名实施政治清理；世界多地反华苗头；冬奥会锁链女后续；太平联盟官司进展； – G|TV](https://gtv.org/video/id=620cf40c432ae869226d8db5)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+参议员玛莎.布莱克本：
+当我为埃内斯勇敢地与共产主义中国抗争鼓掌时，我没想到他会站得这么高！
+
+感谢您大声疾呼并追究中共的责任，感谢您今天与我们共进午餐，埃内斯 @EnesFreedom。
+
+
+
+> When I applauded Enes for his courage to stand up to Communist China, I didn’t think he’d be standing this tall!
+> 
+> Thank you for speaking up and holding the CCP accountable, and thank you for joining us at lunch today, [@EnesFreedom](https://twitter.com/EnesFreedom?ref_src=twsrc%5Etfw). [pic.twitter.com/OlqowUtc9B](https://t.co/OlqowUtc9B)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [February 16, 2022](https://twitter.com/MarshaBlackburn/status/1494077108833996810?ref_src=twsrc%5Etfw)
+
+
+
+众议院迈克·麦考尔：
+
+历史将把 2022北京作为耻辱铭记。虽然 #中共 迫切希望人们在奥运期间以积极的眼光看待其政权，但美国人应该将目光转向中共长期践踏人权的历史。这就是北京2022的真实故事。
+【转休斯顿纪事推文：尼基·海利，迈克·麦考尔：当你观看北京奥运时你不会看到的是什么】
+
+
+
+> History will remember [#Beijing2022](https://twitter.com/hashtag/Beijing2022?src=hash&amp;ref_src=twsrc%5Etfw) as a disgrace. While the CCP desperately wants people to see its regime in a positive light during the games, Americans should turn its gaze instead to the CCP’s long history of human rights abuses. That’s the true story of [#Beijing2022](https://twitter.com/hashtag/Beijing2022?src=hash&amp;ref_src=twsrc%5Etfw). [https://t.co/cWm5lw4mfR](https://t.co/cWm5lw4mfR)
+> — Michael McCaul (@RepMcCaul) [February 16, 2022](https://twitter.com/RepMcCaul/status/1494066290834747396?ref_src=twsrc%5Etfw)
+
+
+
+美前国务卿迈克·蓬佩奥：
+我希望你们和我一起祈祷，在东欧和平面临挑战之际，祈祷我们的世界领导人拥有智慧、耐心和力量。
+
+
+
+> I hope you will join me in praying for our world leaders to have wisdom, patience and strength, as this challenge to peace in Eastern Europe unfolds. [https://t.co/QYne2i1Z4b](https://t.co/QYne2i1Z4b)
+> — Mike Pompeo (@mikepompeo) [February 16, 2022](https://twitter.com/mikepompeo/status/1494081371635167240?ref_src=twsrc%5Etfw)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

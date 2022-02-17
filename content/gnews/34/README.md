@@ -2,22 +2,32 @@
 ---
 
 
-## 中美不断交的前提是中共配合病毒溯源调查
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2017853/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年2月16日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2017977/)
 
-撰稿：追着曙光跑
+作者：香草山翻译部
 
-2月16日，郭文贵先生在大直播中爆料，美国拜登总统明确告诉中共习近平，美国不和中共国断交的前提是，中共必须配合中共（冠状）病毒溯源的调查。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-17-at-12.12.51.jpeg)
-自从疫情爆发两年多以来，全球感染中共病毒人次超过4.17亿，死亡人数达580万（不含中共数据），感染人数和死亡人数还在不断地增加。加上强制疫苗政策，使得全球的经济和社会秩序处于崩溃边沿状态。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO-1.jpg)
 
-同时，这两个月在美国接连发生亚裔被杀被袭击的事件，已经影响到韩国和日本等其他亚裔。因为中共病毒伤害和疫苗伤害发生大规模排亚裔事件，这些亚洲国家一定不会替中共背锅，一定会发起抗议，最后蔓延到整个世界，迫使中共配合病毒溯源调查。
 
-此外，在北京冬奥会上，被媒体爆出谷爱凌国籍作假事件，再次把华人推上了风口浪尖，导致各国政府和人民对华人的不信任和排华情绪高涨。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-2-1.png)
+校对：Stay文苑
 
-郭先生继续指出，拜登总统只是巧妙地利用了国际社会对中共的怨恨，给中共造成压力，让中共无还手之力，到最后只好配合中共病毒溯源调查。
+编辑：Stay文苑
 
-信息来源：[2022年2月16日 文贵大直播：疫苗公司股价变化；看中共的普遍贪腐、以贪反贪、以反贪为名实施政治清理；世界多地反华苗头；冬奥会锁链女后续；太平联盟官司进展；](https://gtv.org/video/id=620cf40c432ae869226d8db5)
+发稿：Stay文苑
+
+新闻：[https://gtv.org/broadcast/watch/620da5f3432ae869226e07c3](https://gtv.org/broadcast/watch/620da5f3432ae869226e07c3)
+访谈：[https://gtv.org/broadcast/watch/620dae96432ae869226e0cc8](https://gtv.org/broadcast/watch/620dae96432ae869226e0cc8)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-1.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

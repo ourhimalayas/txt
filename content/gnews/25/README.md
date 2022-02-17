@@ -2,30 +2,23 @@
 ---
 
 
-## 中日财经爆┃日本贸易逆差创史上第二高
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2018036/)
+## 渥太华警察局长在自由车队抗议浪潮下辞职
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2018146/)
 
-撰稿:东京樱花团/麗子
+加拿大温哥华杨帆农场 枫叶快讯
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/中日财经爆┃日本贸易逆差创史上第二高.png)[图片来源](https://www.bank-daiwa.co.jp/column/articles/2020/2020_234.html)
+采编： UCool 优酷       编译撰稿：文明(添草灭共)
+![BREAKING: Ottawa Police Chief resigns](https://imgcache1.thepostmillennial.com/content/images/2022/02/ARTICLE-PHOTO--37--1-1.jpg)图片来源：thepostmillennial.com crypto
+据加拿大自媒体【后千禧年】2月15日报道，在卡车司机集结于渥太华市中心进行抗议活动的第 19 天，该市警察局长[斯洛利]宣布辞职。 报道称，[斯洛利]不久前还曾表示要争取更多警力和资源来结束抗议活动，并且没有任何辞职的计划。虽然未透露原因，但外界普遍认为该局长在全国“自由车队”反疫苗护照的浪潮下，承受着巨大压力。
 
-日本财政部公布的1月份贸易统计数据显示，贸易逆差为2.1911万亿日元。创史上第二高水平，也是连续第六个月出现贸易逆差。
+此前，渥太华警方因参与冻结卡车司机的筹款而被各方谴责。对此，“宪法自由司法中心”不仅指出抗议活动没有扰乱秩序，还抨击了警方对和平集会的污名化没有任何事实和证据。但当局以恢复秩序为借口，企图剥夺加拿大人在首都行使《宪章》所规定的自由表达、结社以及和平集会的基本权力。
 
-主要原因是受原油、煤炭和液化天然气价格飙升影响，进口额较去年1月增长39.6%，达到创纪录的8.5231万亿日元。
+校对编辑：硫酸羟氯喹64
 
-另一方面，出口额较去年1月增长9.6%,达到6.3320万亿日元。
+发文：青青
 
-摘要: 日本财政部公布的1月份贸易统计数据显示，贸易逆差为2.1911万亿日元。创史上第二高水平，也是连续第六个月出现贸易逆差。
+原文链接：[https://thepostmillennial.com/breaking-ottawa-police-chief-resigns-source](https://thepostmillennial.com/breaking-ottawa-police-chief-resigns-source)
 
-关键词:日本 贸易逆差 原油价格  出口额
-
-信息源:
-
-[1月の貿易収支 2兆円超の貿易赤字 原油・ガス・石炭の高騰が影響](https://news.yahoo.co.jp/articles/ad41a359b2ac5ffb7ce5a0c6441d6ae5a6b16893)
-
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
