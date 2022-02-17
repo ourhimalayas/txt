@@ -2,37 +2,27 @@
 ---
 
 
-## 医学研究怀疑 中共病毒恐导致神经损伤
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2018366/)
+## 多數人認為特魯多不能勝任國家領導職責
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2018414/)
 
-作者：银河系农场 – 骄子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-一项正在进行中的医学研究，在观察了中共病毒感染者的长期症状后，认为曾感染中共病毒的患者，都至少出現三种迷走神经功能障碍，而这些迷走神经功能障碍，被认为是中枢神经受到损害导致。
+采編撰稿： 薇文                校對編輯：硫酸羥氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/7-23-scaled.jpg)
-
-迷走神经从大脑开始连接心脏、肺、肠道和几块与吞咽有关的肌肉，主要控制心率、语言、呕吐反射、出汗和消化等功能。而研究觀察認為，被研究的患者存在与迷走神经神经障碍者的相同症状，如声音问题、吞咽困难、头晕、心率高、低血压和腹泻等等。
-
-研究者认为，迷走神经神经功能障碍是长期中共病毒患者的核心病理特征，中共病毒的特点就是通过控制神经系统，从而对身体造成巨大损伤。该研究结果預計在4月下旬的欧洲临床微生物学和传染病大会上发表。
-
-参考链接：
-
-- [Long COVID Symptoms Linked to Effects on Vagus Nerve](https://www.webmd.com/lung/news/20220215/covid-symptoms-linked-to-vagus-nerve)
+加拿大溫哥華楊帆農場 楓葉快訊
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
+![](https://static.tnc.news/media/2022/01/website-af-29-696x365.jpg)圖片來源：真北方
+據加拿大[真北方]2月16日報道，隨著加拿大自由車隊反抗強製疫苗政策的和平抗議進入第三周，越來越多的加拿大人對總理特魯多的處理方式表示不滿。
 
-总编：zhong
-编辑：zhong
-校正/发稿：海阔天空1
+最新民調顯示，53%的加拿大人認為特魯多在面對抗議活動時的拙劣反應，顯示其在國家出現危機時表現出的軟弱無能。其中有63%的人不會根據該總理處置自由車隊事件的方式而再投票給他。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+盡管主流媒體一邊倒地打壓和平抗議運動，但特魯未能借此提升自己的公眾形象。目前僅約30%的加拿大人認可他的表現，而多數人則認為他因激化了社會矛盾而再無資格成為自由黨領袖和聯邦政府總理，並應該對目前出現的危機負責。
+
+校對編輯：硫酸羥氯喹64
+
+發文：青青
+
+原文鏈接：[Poll finds half of Canadians believe Trudeau 「not up for the job」](https://tnc.news/2022/02/15/poll-finds-half-of-canadians-believe-trudeau-not-up-for-the-job/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

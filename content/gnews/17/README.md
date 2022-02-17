@@ -2,56 +2,60 @@
 ---
 
 
-## HPay实现在线支付而非在线买卖,约定式付款与交易无关
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2019268/)
+## 奥林匹克精神
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2019378/)
 
-G-TV视频链接：[https://gtv.org/video/id=620cbce1b0af02660af43fee](https://gtv.org/video/id=620cbce1b0af02660af43fee)
+作者：香草山健身部 — 新世界的一员
 
-**郭文贵先生：**战友们，你说这里边的重点在哪你们知道吗？重点在哪知道吗？我给你们数一数啊，买车，很多买车是各种限制都有，技术，登记，什么什么什么，多了去了。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-3.jpg)
 
-正义小Sarah去加拿大买个车去，出示你的驾照、你的居住地址、银行汇钱，还要查你银行，王八蛋加拿大银行还不让你汇呢我告诉你都有可能，那事多了去了。
 
-那为什么她能一下子就秒到了？我们这叫“在线支付”，我不是“在线买卖”。只要对方是卖车的，还有卖画的，咱俩说好了叫“约定式付款”，跟这个交易没毛关系。
 
-Eric高兴，现在兄弟我这没有账号，我这一个币都没有，给不了你们。我要现在……我要有的话，我这手一杵我给Eric了，我没有理由，我不需要理由，我爱给他呀。
 
-这是财富的基本，财富是谁有控制权，谁就有一次使用的权利，这是基本的属性。可人类给他设定好了，身份证、年龄、资金来源，这是全世界最黑暗的金融时代。就是因为他造了很多假，他不敢让你知道，他给你设定各种法律。
 
-就像“土豆”那个加拿大，人家大卡车上去抗议去，这是人家的权利，他把皇家骑警放在那，你过来！你过来！是吧？只要你过来你就是刑事犯罪！这叫什么？这在政治学，人类管理学和统治学有一个话叫做“故意地设置合法的障碍”，定义为“政权的本质”。是不是？警察就站在路中间我不动，你只要撞我，你就是袭击警察！
 
-现在银行给你设定了一大堆，只要你过来，只要你花钱，我就让你设置红线让你过不去，直到把你转球不花钱拉到，很多人没明白这个道理。
 
-我们有个战友台湾的，这不在我们农场的战友，一位女士，很棒的，我的老朋友了，93岁今年。她说：“文贵我就等着这个。”所以说这个智商，93岁的一个台湾战友，昨天下午上线，她“咔咔咔“就转几笔，我们很多，就连正义小Sarah小孩就在群里到处找，我们的安平妹妹：“我说哎？怎么找不着啊？”——安平没有一件事能找着过，你什么技术上线安平得问一百遍，啥也找不着，这就是安平，我老跟她开玩笑，啥都找不着到处问。
+2022/2/13//16 郭文贵先生在连续俩期直播中着重谈到了奥林匹克精神，是体现个人价值，弘扬世界和平，增加友谊，是快乐生活的 一种方式。体育精神是捍卫个人的独立性，追求人的身心协调 和全面发展的这样一个健康精神，是人与自然和谐共存的一种方式，不是一生的奋斗目标和信仰，但绝对是执着追求的自由的崇高的体育精神，奥林匹克精神。
 
-人家93岁了，人家“啪啪啪”自己处理完。她说：“七哥，我把我这手里面的120万HDO，转的还剩一万多。”——就这么简单啊，而且就用自己的手机啊。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/E69CAAE591BDE5908DE79A84E8AEBEE8AEA1-2022-01-29T085026.033.png)
 
-字幕来源：[2022年2月2日 《文贵大直播 》全文字版](https://gnews.org/zh-hans/1952328/)
 
-编辑整理：海贼王M.D.LUFFY；
 
-字幕文件制作：Cindy；
+用1908年美国宾夕法尼亚州大主教主持讲道时的一句话来说，那就是：“参与比获胜更重要”。
 
-视频制作及上传：Cindy；
+国际奥委会在《奥林匹克宪章》中“奥林匹克主义的原则”条款中有这样一段话：“每一个人都应享有从事体育运动的可能性，而不受任何形式的歧视，并体现相互理解、友谊、团结和公平竞争的奥林匹克精神”。也称现代奥林匹克精神。
 
-G-News发布：小满；
+奥林匹克的文化，民主、自由、竞争、拼搏、开拓、进取、重视个体、尊重科学等要素构成的一个有灵魂与核心的社会盛会，为各国文明与文化集萃、是全球文化多样性与差异性互补共存，集东西方文明交融与互动的一个平台。是全球化的超国家、超文化、超等级、超地域的百姓的巨型狂欢节，成为一种由国家主义、消费主义、商业主义共同主宰的泛文化。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+奥运会是体育精神、民族精神和国际主义精神于一身的世界级运动盛会，象征着世界的和平、互相理解，友谊长久和团结一致的健康精神。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+奥林匹克精神的源头是古代希腊对人的体格力量与健康的崇尚，奥林匹克运动竞技比赛是团结的奥林匹克精神，参与比获胜更重要。 是各国文明与文化集萃、对话与交往的论坛，成为全球文化多样性与差异性互补共存的平台，尤其是成为东西方文明交融与互动的平台。已经成为全球化时代人类文化发展的重要表征之一。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+奥林匹克精神的源头是古代希腊对人的体格力量与健康的崇尚，奥林匹克运动竞技比赛是团结的奥林匹克精神，参与比获胜更重要。 是各国文明与文化集萃、对话与交往的论坛，成为全球文化多样性与差异性互补共存的平台，尤其是成为东西方文明交融与互动的平台。已经成为全球化时代人类文化发展的重要表征之一。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+2022年2月17日
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+（本文仅代表作者个人观点）
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-7.jpg)
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+*编辑 /校对*：*Yuki*jiang
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+*发稿：Yuki*jiang
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

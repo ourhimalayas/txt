@@ -2,46 +2,29 @@
 ---
 
 
-## HPay的上线最希望体制内人看到以钱灭共以共灭共的开始
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2019343/)
+## 大直播后记 ：2025年一定灭共
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2019446/)
 
-G-TV视频链接：[https://gtv.org/video/id=620cbf27b0af02660af440ba](https://gtv.org/video/id=620cbf27b0af02660af440ba)
+整理：清水冷香、Lucy Liu
+编辑：小熊
 
-**郭文贵先生：**昨天上线（在）大年初一，真的是天意，万佛万神！它过了昨天初一，它跟今天初二都不一样。“啪”一上线，我最希望的是谁？不是战友你们感受到，我最希望的是让国内的体制内、行家、共产党的体制内的人知道这个H-Pay对他们有用。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/12-20.png)图片来源：墨尔本雅典娜农场设计组
 
-我们就是“以钱灭共”，就是“以共灭共”，是吧？你只要在任何地方的钱你放在H-Pay上使用、划，没有人挡得住。没有什么狗王八蛋的孙子说的这种什么信用支付，你大爷的你懂个屁你懂的。
 
-而且这种支付，我今天可以告诉大家，任何人被泄露、任何人被知道，我承担一切责任，世界上最绝密的。接下来的，现在是1.0版，你就看着，1版往上升完以后，我保证你们每个人惊掉下巴。如果说H-Pay今天是一个军队开始了拿起了一把真正的武器，走到了高度，我可以告诉你，这个军队的所有的军队只是你进了这个门而已今天是真正的是“隔空取钱”的开始，但是接下来绝对惊掉你下巴。你看到这个现在小枪，还是模具枪，现在所看到的，从小枪、中枪、大枪、长枪、大炮、坦克、无人机、遥控机、核武器一级一级给你推出来了。
+川普是直接斗啊，叽叽喳喳地就来了，跟你斗，明斗。拜登是在背后控制那个人啊，悄无声息地就过去了，这绝对是政治高手。这回习太阳遇到了我认为国际政治上最厉害的普京（他的“Partner”），这就吓人了。习太阳更无法想象的是，接下来他将面对的对手就是：今年年底欧洲的大选、法国的大选、英国上院下院、整个巴西，特别是美国的中期选举。共和党全部拿出来以后，共和党这几个新人了不得呀，兄弟姐妹们，这都是能人呐，都是天才呀。还有这个混不吝的班农，将成为主角中的主角。你想一想他们怎么对付？ 所以说，现在告诉大家排华事件、排亚裔事件会越来越严重，非常之可怕。大家一定要小心，个人破产是小事儿，你没命了，你有多少钱那才是悲剧呢。 人去天堂了，钱还在银行，不就完了吗？是吧？ 你要想，在这种情况下，（第一）：最重要的是你要安全，在海外的华人。 第二：我们希望他不打台湾啊，不打乌克兰，最好也别打台湾。再一个，我就希望共产党嘎嘣就完蛋吧。我们希望美国能通过现在的整个病毒溯源，能把共产党成为全世界上不能代表中国人，中国人不等同于共产党—把这个成为全世界人民的共同认识。然后中国人和亚洲人之间也不要有这么多的仇恨和误会。然后我们就要让全世界知道，病毒是共产党造的，跟中国人没关系。我们要通过这个来消灭共产党啊，这是非常重要的。所以说接下来的事情，今年的变化是太大了。水虎年呢，我觉的够习喝的。今明两年共产党再活下去的可能我觉得很难了，2025年一定灭共。
 
-记住今天直播啊，就像教皇，教皇，梵蒂冈的战友们还能知道我们爆料革命的力量，我就会让你知道。H-Pay只要是有空气的地方,只要是有物质,有量子的地方，它就有　H-Pay，而且无人能挡。从昨天到现在可以告诉大家，没有一个人能挡住H-Pay，而且上不封顶，下不封底，没有左右，没有高低，没有范围。只要你有呼吸的地方，有人的地方，就有H-Pay，而且H-Pay没有国界，没有民族，没有男女，没有时间，而且是绝对安全。我先说到这，再说下去我怕漏了。
+链接：https://gtv.org/video/id=620cf40c432ae869226d8db5
 
-字幕来源：[2022年2月2日 《文贵大直播 》全文字版](https://gnews.org/zh-hans/1952328/)
+资料来源：2022年2月16日郭文贵先生大直播
 
-编辑整理：海贼王M.D.LUFFY；
+发布：tianzhihuan
 
-字幕文件制作：大好河山；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
