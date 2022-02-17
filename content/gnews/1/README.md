@@ -2,12 +2,10 @@
 ---
 
 
-## 七哥金句：躺平币
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2017868/)
+## 2/16/2022 文贵直播：各国已开始承认疫苗含氧化石墨烯，全球将大变；全人类不会在病毒和疫苗问题上放过中共
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2017932/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句躺平币-1.jpg)
-整理：雅典娜农场
-发布：枫叶红了
+秘密翻译组-北美组
 
  
 

@@ -15,86 +15,86 @@
 
 ---
 
-### [七哥金句：躺平币](/content/gnews/1/README.md)
- ` 雅典娜GNotes`
-
-### [七哥金句：该我们赢了](/content/gnews/2/README.md)
- ` 雅典娜GNotes`
-
-### [2/16/2022 文贵直播：冬奥会已成“冬眠会”且一定会以中共的灭亡为结束；卡车司机、妇孺老人齐上街，创造了人类辉煌](/content/gnews/3/README.md)
+### [2/16/2022 文贵直播：各国已开始承认疫苗含氧化石墨烯，全球将大变；全人类不会在病毒和疫苗问题上放过中共](/content/gnews/1/README.md)
  ` 秘密翻译组-北美组`
 
-### [七哥金句：今天是你昨天的积累](/content/gnews/4/README.md)
+### [七哥金句：音乐是什么？](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [安省将提前解禁并取消疫苗护照](/content/gnews/5/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
+### [串珠582:接下来新中国联邦将让冬奥会永远闭不了幕](/content/gnews/3/README.md)
+ ` 郭爆料串珠`
 
-### [2/16/2022 文贵直播：在西方各国的威胁下，普京服软撤军并耍了二货习近平，俩人因此彻底掰了，这对台湾是个大好事](/content/gnews/6/README.md)
- ` 秘密翻译组-北美组`
-
-### [七哥金句：爆料革命愉悦灭共](/content/gnews/7/README.md)
- ` 雅典娜GNotes`
-
-### [谷爱凌为中共政权的互联网审查制度辩护却遭中共审查](/content/gnews/8/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [大直播后记：普京打乌克兰是战争经济](/content/gnews/9/README.md)
- ` 雅典娜GNotes`
-
-### [七哥金句：一家人](/content/gnews/10/README.md)
- ` 雅典娜GNotes`
-
-### [2/16/2022 文贵直播：绝密情报！拜登告诉习太阳美中不断交的前提是病毒溯源；亚裔遭遇的歧视和暴力将推动全球亚裔集体抗议](/content/gnews/11/README.md)
- ` 秘密翻译组-北美组`
-
-### [七哥金句：我视兄弟姐妹为一命](/content/gnews/12/README.md)
- ` 雅典娜GNotes`
-
-### [奥地利将于 3 月 5 日取消大多数冠状病毒措施](/content/gnews/13/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [七哥金句：爱和家的重要](/content/gnews/14/README.md)
- ` 雅典娜GNotes`
-
-### [【粤语配音】2022年2月16日：中共经济已经到了回天乏术](/content/gnews/15/README.md)
- ` MOS香港部`
-
-### [研究发现中共APP抖音可以绕过苹果和谷歌的隐私保护访问用户数据](/content/gnews/16/README.md)
- ` 首尔天池农场`
-
-### [小心—那些使用机器人来清空虚拟货币账户的欺诈者](/content/gnews/17/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [七哥金句：投资法则](/content/gnews/18/README.md)
- ` 雅典娜GNotes`
-
-### [七哥金句：信仰，宗教，人性](/content/gnews/19/README.md)
- ` 雅典娜GNotes`
-
-### [七哥的智慧](/content/gnews/20/README.md)
- ` 雅典娜GNotes`
-
-### [【秘翻在线】美议员要求中共为其制造的新冠病毒所造成的损失作出赔偿](/content/gnews/21/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [文贵先生向美国法院正式申请破产](/content/gnews/22/README.md)
- ` 澳喜特战旅Gnews`
-
-### [喜联储是人类最伟大的金融系统](/content/gnews/23/README.md)
- ` 雅典娜GNotes`
-
-### [有声|郭文贵表明对PAG案件的态度：永不和解，永不退缩](/content/gnews/24/README.md)
- ` MOSREC`
-
-### [2022年2月17日《樱花快报》：支持加拿大卡车司机小额捐款一半来自美国](/content/gnews/25/README.md)
+### [中日财经爆| “双减”致高途股价跌去90% 还会更糟](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [接种新冠疫苗者正在患上艾滋病](/content/gnews/26/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [七哥金句：爱有缺陷的人](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
 
-### [有声|新中国联邦新闻、GTV新闻访谈简报|2022年2月15日晚](/content/gnews/27/README.md)
- ` MOSREC`
+### [中共不得不正视粮食危机 时隔40年再次普查土地质量](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [法律你我他-加拿大同性及性少数人群相关法律](/content/gnews/7/README.md)
+ ` 加拿大温哥华扬帆农场蓝枫法律`
+
+### [七哥金句：躺平币](/content/gnews/8/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥金句：该我们赢了](/content/gnews/9/README.md)
+ ` 雅典娜GNotes`
+
+### [2/16/2022 文贵直播：冬奥会已成“冬眠会”且一定会以中共的灭亡为结束；卡车司机、妇孺老人齐上街，创造了人类辉煌](/content/gnews/10/README.md)
+ ` 秘密翻译组-北美组`
+
+### [七哥金句：今天是你昨天的积累](/content/gnews/11/README.md)
+ ` 雅典娜GNotes`
+
+### [安省将提前解禁并取消疫苗护照](/content/gnews/12/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [2/16/2022 文贵直播：在西方各国的威胁下，普京服软撤军并耍了二货习近平，俩人因此彻底掰了，这对台湾是个大好事](/content/gnews/13/README.md)
+ ` 秘密翻译组-北美组`
+
+### [七哥金句：爆料革命愉悦灭共](/content/gnews/14/README.md)
+ ` 雅典娜GNotes`
+
+### [谷爱凌为中共政权的互联网审查制度辩护却遭中共审查](/content/gnews/15/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [大直播后记：普京打乌克兰是战争经济](/content/gnews/16/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥金句：一家人](/content/gnews/17/README.md)
+ ` 雅典娜GNotes`
+
+### [2/16/2022 文贵直播：绝密情报！拜登告诉习太阳美中不断交的前提是病毒溯源；亚裔遭遇的歧视和暴力将推动全球亚裔集体抗议](/content/gnews/18/README.md)
+ ` 秘密翻译组-北美组`
+
+### [七哥金句：我视兄弟姐妹为一命](/content/gnews/19/README.md)
+ ` 雅典娜GNotes`
+
+### [奥地利将于 3 月 5 日取消大多数冠状病毒措施](/content/gnews/20/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [【粤语配音】2022年2月16日：中共经济已经到了回天乏术](/content/gnews/21/README.md)
+ ` MOS香港部`
+
+### [研究发现中共APP抖音可以绕过苹果和谷歌的隐私保护访问用户数据](/content/gnews/22/README.md)
+ ` 首尔天池农场`
+
+### [史无前例特鲁多政府冻结了资助 &#8220;自由车队 &#8220;的数字货币钱包](/content/gnews/23/README.md)
+ ` 蓝莲花农场`
+
+### [七哥的智慧](/content/gnews/24/README.md)
+ ` 雅典娜GNotes`
+
+### [【秘翻在线】美议员要求中共为其制造的新冠病毒所造成的损失作出赔偿](/content/gnews/25/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [文贵先生向美国法院正式申请破产](/content/gnews/26/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [2022年2月17日《樱花快报》：支持加拿大卡车司机小额捐款一半来自美国](/content/gnews/27/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [【秘翻在线】美国谴责中共未履行其世贸组织承诺](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`

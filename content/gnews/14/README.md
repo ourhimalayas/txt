@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：爱和家的重要
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2017729/)
+## 七哥金句：爆料革命愉悦灭共
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2017822/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句2-10.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句5-10.jpg)
 整理：雅典娜农场
 发布：枫叶红了
 

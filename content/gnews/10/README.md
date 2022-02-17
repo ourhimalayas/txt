@@ -2,12 +2,10 @@
 ---
 
 
-## 七哥金句：一家人
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2017812/)
+## 2/16/2022 文贵直播：冬奥会已成“冬眠会”且一定会以中共的灭亡为结束；卡车司机、妇孺老人齐上街，创造了人类辉煌
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2017854/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句4-9.jpg)
-整理：雅典娜农场
-发布：枫叶红了
+秘密翻译组-北美组
 
  
 
