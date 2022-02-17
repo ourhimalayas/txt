@@ -2,39 +2,40 @@
 ---
 
 
-## DC每日热点0217
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2020627/)
+## 美媒指福奇滥用国家权力为中共独裁效力
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2020792/)
 
-编辑：楚门门
-![](https://assets.gnews.org/wp-content/uploads/2022/02/ADE3F546-1B47-4954-BE8D-863615A4F949-scaled.jpeg)
-道琼斯指数 34934.27 ▼0.16%
-纳斯达克指数 14124.09 ▼0.11%
-WTI纽约原油CFD 92.602▼1.10%
-布伦特原油CFD 93.744 ▼1.12%
-标普50指数 2,942.151▼55.02%
-美元兑人民币 1USD=6.337 RMB
-美元兑港币 1USD=7.799 HKD
-国际黄金 1895.40美元/盎司
-全球CCP病毒感染人数418,827,241例
+作者：银河系农场—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-1、美国亚太事务助卿：推进印太经济框架的努力中不打算与中共国接触
-2、美国称三架P-8A反潜机遭俄罗斯不专业拦截 据信贴近时相隔只几英尺
-3、英澳首脑联合声明对新疆人权表关注并支持台湾参与国际组织
-4、CECC要求亚马逊公司赔偿因披露其供应商侵犯劳工而入狱的中共国维权人士
-5、著名墨西哥科学家承认帮助俄罗斯监督美国线民的控罪
-6、欧盟最高法院裁决：成员国若违背民主法治价值观 欧盟可以扣发资金
-7、美国与北约：俄罗斯在乌克兰附近正在增兵而不是撤军
-8、欧盟即将与非盟召开峰会，抗衡中共国与俄罗斯在非洲的影响力
-9、白宫为过渡至大流行病非危机阶段做准备
-10、香港医管局实施“疫苗通行证” 未打疫苗可被解雇 工会批做法不合理
-11、印度对华为多处办公室展开逃漏税搜查
-12、恒大因两子公司拖欠工程款而遭法院冻结资产
-13、美指责中共国未履行入世承诺 将研究新手段促其改变经贸行为
-14、中法签超17亿美元第三方市场合作项目 法方低调缄默
-15、法国 加拿大 欧洲盟友宣布从马里协调撤军
-16、德国奥地利计划3月解除大部分防疫限制措施
-17、俄议会吁普京承认乌东分离地区独立 欧美警告
 
+2月15日，据美国媒体报道，在全球对中共病毒溯源的过程中，福奇及美国其他领域的非民选官僚设置重重阻碍，用以掩盖中共实为病毒起源的事实。
+
+![圖片](https://media.discordapp.net/attachments/943738468943679518/943893565585620992/0217AM1-11.001.jpeg)
+
+该媒体指出，每当相关调查接近中共武汉病毒研究所实验室时，福奇和联邦卫生机构的某些官僚就会拐弯抹角地以政治手段，强制封口那些支持病毒实验室起源的科学家们。同时，大量被披露的电子邮件显示，福奇和美国国立卫生研究院的柯林斯一直在压制那些对中共不利的言论。非但如此，他们坚持对中共政府的谎言以及其拒绝国际调查的行为保持沉默，甚至还为中共开脱。
+
+报道还表示，截止目前，中共病毒已经造成了数十万美国人的死亡，但福奇等人仍然试图掩盖病毒来源的真相，其滥用职权的行为会将美国置于危险的境地，更将严重威胁到美国的国家安全。
+
+该媒体也强调，美国必须清楚地认识到，中共并不是值得信赖的贸易伙伴或供应链来源，中共政府的各种大规模军事集结带有邪恶的意图，其目的是迫使美国服从，进而统治世界。
+
+而作为一个法治国家，美国不应该继续容忍来自中共的威胁并对中共的谎言消极应对。
+
+参考链接：[Why were unelected bureaucrats led by Fauci running interference for China?](https://centerforsecuritypolicy.org/why-were-unelected-bureaucrats-led-by-fauci-running-interference-for-china/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-5.png)
+
+总编：Irene木木
+编辑：静言
+校正/发稿：小野貓（文凱琳）
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

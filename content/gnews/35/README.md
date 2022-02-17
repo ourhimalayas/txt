@@ -2,35 +2,22 @@
 ---
 
 
-## 突发新闻：俄罗斯驱逐美国驻莫斯科副大使戈尔曼
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/2020609/)
+## 北京冬奥会2月16日上午出现可怕一幕，又一位运动员瘫倒在地，突发心血管病
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2020685/)
 
-![1517293646_0-250-2400-1600_1280x0_80_0_0_55b38bcd0a28b39a21fcce4183e1eb85.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/757B70DF-94A8-4E7A-A9E8-97B750FCB8FB.jpeg)
-2 月 17 日 据俄新社报道，俄罗斯外交使团发言人杰森·雷布霍尔茨（Jason Rebholtz）告诉俄新社，俄罗斯已经驱逐了美国驻莫斯科副大使巴特·戈尔曼。
+#### 翻译                          意大利达芬奇农场                  小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-17-alle-12.00.56.png)图片来源：avversinews.it
+上个星期天挪威世界冠军英格丽德•坦德雷沃尔德( Ingrid Tandrevold )在快要接近终点时所发生的一幕， 2月16日早上在4×6 冬季两项接力赛中又出现了。
 
-“戈尔曼是[美国](http://ria.ru/location_United_States/)驻[莫斯科](http://ria.ru/location_Moskva/)大使馆的第二重要官员，仅次于大使，也是大使馆高级领导层的关键成员，”
+在2022年冬奥会举办地张家口的雪地上，女子团体预赛于北京时间15点45分开始，对运动员来说，幸运的是，气温没有前几天那么令人望而生畏。瑞士队是有望夺冠的。
 
-雷布霍尔茨 告诉该机构，戈尔曼持有有效签证，并且在俄罗斯待了不到三年。
+问题出在女子4×6公里冬季两项的接力赛，瑞士队比赛只进行了几分钟。由于呼吸问题，第一棒选手，伊雷妮•卡杜里施（Irene Cadurisch）不得不在传递接力棒之前放弃比赛，她被用担架抬离现场并送往医疗站。从而提前结束了瑞士队的比赛。
 
-华盛顿认为驱逐这位外交官是一个“升级步骤”，并正在考虑采取报复措施的可能性。
+这次比赛瑞典队夺得金牌。据瑞士网站报道30岁的伊雷妮•卡杜里施可能是心血管出了问题。
 
-近年来，俄罗斯驻美外交官的工作条件不断恶化。正如俄罗斯大使阿纳托利·安东诺夫所指出的那样，莫斯科完全失去了在美国西海岸的领事存在，那里有成千上万的俄罗斯人居 住。华盛顿还大幅收紧了签发签证的程序。
+原文链接：[https://www.eventiavversinews.it/olimpiadi-di-pechino-momenti-terribili-anche-stamattina-16-febbraio-unaltra-atleta-e-crollata-a-terra-stamattina-problemi-cardiovascolari-improvvisi-per-irene-cadurish/](https://www.eventiavversinews.it/olimpiadi-di-pechino-momenti-terribili-anche-stamattina-16-febbraio-unaltra-atleta-e-crollata-a-terra-stamattina-problemi-cardiovascolari-improvvisi-per-irene-cadurish/)
 
-此外，还经常大规模驱逐俄罗斯外交官。因此，在 9 月，华盛顿向莫斯科提交了另一份名单：27 人应在1 月 30 日之前离开美国，另外 28 人应在 2022 年 6 月底之前离开美国。
-
-6 月，在弗拉基米尔·普京总统和乔·拜登总统在日内瓦举行峰会后，莫斯科和华盛顿开始就使馆工作正常化的问题进行接触，但据俄罗斯外长谢尔盖·拉夫罗夫称，这一进程是“标记时间”，因为美国企图向俄罗斯施压。此外，安东诺夫所说，“对俄罗斯外交官的迫害仍在继续”，在这种情况下，莫斯科保留报复的权利。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2DAF4ABD-6126-415A-89CD-580AFDC1BA95.png)
-近几个月来，俄罗斯与西方的关系更加紧张，[乌克兰](http://ria.ru/location_Ukraine/)周边局势恶化。华盛顿和[布鲁塞尔](http://ria.ru/location_Brussels/)指责莫斯科准备“入侵”，宣布俄罗斯军队正被拉到与邻国的边界。在这种背景下，北大西洋联盟正在加强其在[东欧](http://ria.ru/location_vostochnaja_evropa/)的存在：它正在向那里派遣更多的部队和军事特遣队。
-
-克里姆林宫否认这些指控，并声称这是增加欧盟在俄罗斯边境附近军事存在的借口。还解释说，事态升级的主要原因是美国和北约的行为，他们正在把乌克兰推向军事冒险。
-
-另据俄卫星社最新消息，美国大使馆表示，华盛顿认为这一举动不合理，因为该外交官持有三年的签证，而他在俄罗斯的停留时间还不到三年。美国大使馆还强调，美方将对戈尔曼被驱逐一事作出回应。
-
-撰稿/米拉娅
-审阅/邱杰斯
-上传/天赐良闻
-
-援引链接：[https://ria.ru/20220217/posol-1773369117.html](https://ria.ru/20220217/posol-1773369117.html)
+编辑、上传： Xiao  baige
 
  
 

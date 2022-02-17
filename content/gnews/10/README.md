@@ -2,30 +2,27 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年2月17日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2021247/)
+## 樱花FM┃中日财经爆：今年央企改革继续国进民退：制造新寡头、覆盖全行业
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2021278/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO-1.jpg)
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-4-3.png)
+日前，中共国务院国资委秘书长、新闻发言人彭华岗表示，2021年央企重组整合项目之多、力度之大，是前所未有的。相关央企在战略性重组、专业化整合以及战略性新兴产业布局方面的一系列举措，有力推动了国有资本布局结构优化，提升了企业核心竞争力和发展质量。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-16.png)
-文章仅代表作者本人观点，与Gnews无关
+他表示，下一步，将注重做好总体统筹规划，扎实推进中央企业战略性重组和专业化整合。在战略性重组方面，按照“成熟一户、推进一户”的原则，稳步推进钢铁等领域的重组整合，在相关领域适时研究组建新的中央企业集团。在专业化整合方面，国资央企将以业务做强做精为目标，以优势企业为主体，积极推动粮食储备加工、港口码头等领域的专业化整合，切实提升资源配置效率和企业的核心竞争力。
 
-视频参看：
-[2022.02.17早 《NFSC新闻》](https://gtv.org/video/id=620e4d90b706176dd78ba22e)
-[2022.02.17早 G|TV《新闻访谈》](https://gtv.org/broadcast/watch/620e550db706176dd78baaa8)
+近年来，中共不断整合推出新的国企巨无霸，同时加大国进民退，不断向民生经济领域渗透覆盖。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+2021年，中国中化、中国电气装备、中国物流集团等多家央企重组。所谓战略性重组就是制造国企巨无霸，所谓专业化整合就是向一个或者多个产业领域上下游渗透延伸。可以说，2022年中共经济国有化将不断加剧，必将见证更多更新的央企新寡头出现，更多的行业将被央企覆盖渗透。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-1.png)
+文字版原文：
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[中日财经爆┃今年央企改革继续国进民退：制造新寡头、覆盖全行业](https://gnews.org/zh-hans/1960847/)
+
+编辑：东京樱花团/asket
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
 
  
 
