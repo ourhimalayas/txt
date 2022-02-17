@@ -2,27 +2,29 @@
 ---
 
 
-## 医学研究怀疑 中共病毒恐导致神经损伤
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2018366/)
+## 英实验室稱中共病毒疫苗含氧化石墨烯
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2018367/)
 
-作者：银河系农场 – 骄子
+作者：台灣寶島農場 – 尋文客
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-一项正在进行中的医学研究，在观察了中共病毒感染者的长期症状后，认为曾感染中共病毒的患者，都至少出現三种迷走神经功能障碍，而这些迷走神经功能障碍，被认为是中枢神经受到损害导致。
+据英媒2月13日报导，英国某官方实验室报告表示，已经证实中共病毒疫苗中肯定含有氧化石墨烯。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/7-23-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/6-23.png)
 
-迷走神经从大脑开始连接心脏、肺、肠道和几块与吞咽有关的肌肉，主要控制心率、语言、呕吐反射、出汗和消化等功能。而研究觀察認為，被研究的患者存在与迷走神经神经障碍者的相同症状，如声音问题、吞咽困难、头晕、心率高、低血压和腹泻等等。
+英国官方实验室派出调查员收集中共病毒疫苗注射瓶，主要包含辉瑞、莫德纳、阿斯利康三个品牌，将注射瓶中内容进行法医检查，确认了疫苗中含有大量的碳复合物、石墨烯化合物和氧化铁。
 
-研究者认为，迷走神经神经功能障碍是长期中共病毒患者的核心病理特征，中共病毒的特点就是通过控制神经系统，从而对身体造成巨大损伤。该研究结果預計在4月下旬的欧洲临床微生物学和传染病大会上发表。
+氧化石墨烯是一种有毒物质，可以破坏人类细胞和血液、损害人体器官、诱发癌症、甚至引起基因功能的改变。中共病毒疫苗的成分清单中并未声明含有氧化石墨烯。
+
+目前，该报告已被提交给参与英国刑事案件的警方，据说这为英国警方提供了充分的怀疑依据，即中共病毒疫苗的实验性治疗方面存在严重的可公诉罪行。
 
 参考链接：
 
-- [Long COVID Symptoms Linked to Effects on Vagus Nerve](https://www.webmd.com/lung/news/20220215/covid-symptoms-linked-to-vagus-nerve)
+- [Official U.K. Lab Report confirms Covid-19 Vaccines definitely contain Graphene Oxide](https://dailyexpose.uk/2022/02/13/uk-lab-confirms-graphene-in-covid-vaccines/)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
 
-总编：zhong
+总编：百香果
 编辑：zhong
 校正/发稿：海阔天空1
 

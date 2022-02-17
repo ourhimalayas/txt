@@ -2,8 +2,8 @@
 ---
 
 
-## 20220216爆料革命、新中国联邦奖励为铁链女发声的同胞
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2019525/)
+## 20220216中共病毒引起全世界排华、仇恨亚裔越发严重
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2019597/)
 
 作者:东京樱花团小视频组
 
