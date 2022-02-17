@@ -2,8 +2,8 @@
 ---
 
 
-## 七哥老家是贩卖人口最多的地方,中共不灭天理不容
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2017275/)
+## 喜币定量发行Hpay免费闪电支付
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2017357/)
 
 #### 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王 视频定位：BENJ1，WEI
 

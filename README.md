@@ -15,92 +15,92 @@
 
 ---
 
-### [七哥老家是贩卖人口最多的地方,中共不灭天理不容](/content/gnews/1/README.md)
+### [喜币定量发行Hpay免费闪电支付](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [看不到的黑暗有多黑 传说中共国有20年拐卖妇女史，苏北有个拐卖村](/content/gnews/2/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [七哥金句：信仰，喜币，传播真相](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
 
-### [文•贵天成——文贵先生谈“蓝、金、黄”计划（十）](/content/gnews/3/README.md)
+### [新中国联邦是最大收益者](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥很开心喜币给战友带来财富](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [要让全世界知道，病毒是共产党造的](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [病毒不溯源，亚裔人都将背起这个罪责](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [拜登将会对中国病毒溯源](/content/gnews/7/README.md)
+ ` 雅典娜GNotes`
+
+### [文•贵天成——文贵先生谈“蓝、金、黄”计划（十一）](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [习近平面对的对手](/content/gnews/4/README.md)
+### [西方世界一定会将乌克兰、疫苗事件推给中共国](/content/gnews/9/README.md)
  ` 雅典娜GNotes`
 
-### [日本麒麟公司宣布退出中共国饮料业务](/content/gnews/5/README.md)
+### [有声|共产党你完蛋了！](/content/gnews/10/README.md)
+ ` MOSREC`
+
+### [七哥老家是贩卖人口最多的地方,中共不灭天理不容](/content/gnews/11/README.md)
+ ` 雅典娜GNotes`
+
+### [看不到的黑暗有多黑 传说中共国有20年拐卖妇女史，苏北有个拐卖村](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共为俄军在乌克兰的军事佯攻辩称“开战日”是谎言](/content/gnews/6/README.md)
+### [文•贵天成——文贵先生谈“蓝、金、黄”计划（十）](/content/gnews/13/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [习近平面对的对手](/content/gnews/14/README.md)
+ ` 雅典娜GNotes`
+
+### [日本麒麟公司宣布退出中共国饮料业务](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [重大利好！喜贷款、喜抵押即将登场，喜联储一月内还有大公告](/content/gnews/7/README.md)
+### [中共为俄军在乌克兰的军事佯攻辩称“开战日”是谎言](/content/gnews/16/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [重大利好！喜贷款、喜抵押即将登场，喜联储一月内还有大公告](/content/gnews/17/README.md)
  ` YALUN 亚伦`
 
-### [【粤语配音】2022年2月16日：三件重大事件](/content/gnews/8/README.md)
+### [西方支持中共要付出代价](/content/gnews/18/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [【粤语配音】2022年2月16日：三件重大事件](/content/gnews/19/README.md)
  ` MOS香港部`
 
-### [意大利可能在三月底结束中共病毒紧急状态](/content/gnews/9/README.md)
+### [意大利可能在三月底结束中共病毒紧急状态](/content/gnews/20/README.md)
  ` 纽约香草山MOS02`
 
-### [多伦多下周将放宽限制 重新开放市政厅和部分公众服务](/content/gnews/10/README.md)
+### [多伦多下周将放宽限制 重新开放市政厅和部分公众服务](/content/gnews/21/README.md)
  ` 蓝莲花农场`
 
-### [有声|日本首次使用HPAY购买高档手表](/content/gnews/11/README.md)
+### [有声|日本首次使用HPAY购买高档手表](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [表叔是一名共产党“笔杆子”](/content/gnews/12/README.md)
+### [表叔是一名共产党“笔杆子”](/content/gnews/23/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [有声|中共网约车巨头处境艰难，滴滴全面大裁员](/content/gnews/13/README.md)
+### [有声|中共网约车巨头处境艰难，滴滴全面大裁员](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [加拿大總理賈斯汀-特魯多援引《緊急狀態法案》](/content/gnews/14/README.md)
+### [加拿大總理賈斯汀-特魯多援引《緊急狀態法案》](/content/gnews/25/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [中国坏男人太多](/content/gnews/15/README.md)
+### [中国坏男人太多](/content/gnews/26/README.md)
  ` 雅典娜GNotes`
 
-### [中共很邪恶，把全国人变成傻子](/content/gnews/16/README.md)
- ` 雅典娜GNotes`
-
-### [中共不是新中国联邦，胡锡进休要发昏“感同身受”](/content/gnews/17/README.md)
+### [中共不是新中国联邦，胡锡进休要发昏“感同身受”](/content/gnews/27/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [天道酬勤，地道酬人](/content/gnews/18/README.md)
- ` 雅典娜GNotes`
-
-### [有声|【信仰之声】同样的侍奉，不同的得着](/content/gnews/19/README.md)
+### [有声|【信仰之声】同样的侍奉，不同的得着](/content/gnews/28/README.md)
  ` MOSREC`
 
-### [加拿大总理贾斯汀-特鲁多援引《紧急状态法案》](/content/gnews/20/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [七哥个人破产，创造了喜币今天的辉煌](/content/gnews/21/README.md)
- ` 雅典娜GNotes`
-
-### [七哥证明了自己是个有血有肉的人](/content/gnews/22/README.md)
- ` 雅典娜GNotes`
-
-### [七哥金句：懂得爱，音乐及力量](/content/gnews/23/README.md)
- ` 雅典娜GNotes`
-
-### [加拿大副總理兼財政部長：參與卡車示威民眾的賬戶會被凍結，車保險會被暫停](/content/gnews/24/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [七哥个人破产，跟随七哥的本质是灭共不是为了钱](/content/gnews/25/README.md)
- ` 雅典娜GNotes`
-
-### [锁链女父亲，报应](/content/gnews/26/README.md)
- ` 雅典娜GNotes`
-
-### [加拿大副总理兼财政部长：参与卡车示威民众的账户会被冻结，车保险会被暂停](/content/gnews/27/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [瑞士取消疫苗护照和几乎所有 COVID-19 限制](/content/gnews/28/README.md)
+### [瑞士取消疫苗护照和几乎所有 COVID-19 限制](/content/gnews/29/README.md)
  ` 温哥华圆成农场🇨🇦`
-
-### [七哥金句：数字货币，躺平币，喜马拉雅，积累](/content/gnews/29/README.md)
- ` 雅典娜GNotes`
 
 ### [台湾行政院将通过经济间谍法 防止中共窃取核心技术](/content/gnews/30/README.md)
  ` 日本东京方舟农场`

@@ -2,10 +2,10 @@
 ---
 
 
-## 习近平面对的对手
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2017258/)
+## 七哥很开心喜币给战友带来财富
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2017322/)
 
-视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王 视频定位：BENJ1，WEI
+#### 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王 视频定位：BENJ1，WEI
 
 *发布：陶子*
 
