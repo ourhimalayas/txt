@@ -2,100 +2,32 @@
 ---
 
 
-## 这不是左或右的问题 这是关于世界各地民主国家普通公民的反抗
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2020071/)
+## 大直播后记：拜登对中共更有手段
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2020175/)
 
-[https://gtv.org/video/id=620cd589b0af02660af445e4](https://gtv.org/video/id=620cd589b0af02660af445e4)
+整理：文晋、枫叶红了
+编辑：小熊
 
-**Bill:**
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/12-20.png)图片来源：墨尔本雅典娜农场设计组
 
-What’s happening this week looks like is people understand this is about something more.
-本周发生的事情看起来像是人们明白这关于更多的事情
 
-They aren’t just the vaccine mandated, it’s becoming a big thing it’s happening all of the world now,
-它们不仅仅是强制性的疫苗，它正在成为一件大事，它正在全世界发生
+我觉得很可能他不会打，我真的希望，不管任何情况下，我希望，即使不灭共，我也不希望为灭共而去打台湾去。我们就晚点灭共我也选不打台湾，因为那是无法想象的惨剧。我觉得乌克兰也不要被打，你打了乌克兰，乌兰美女太多了，太可惜了是吧？ 谁也别打乌克兰，乌克兰也别被打，台湾也别被打，灭共晚一年两年都行啊。
 
-they think it might happen here in Washington on super bowl on Sunday.
-他们认为这可能会在周日的华盛顿超级碗比赛中发生
+但是我觉得现在一个比较好，还是美国这个国家，它很厉害，美国就是跟你明说，你打了以后我肯定揍你。从经济上先揍你，把你弄半残了，我再武力上把你解决掉。
 
-Do you agree it’s about something more and so what?
-你同意这是关于更多的东西吗？
+我觉得千万别小看了拜登总统这方面决心。这个就是头两天，这个所谓的我不能说这是国际上最有名的，所谓政治智库之一。 我们有一段这个通话，本来是20分钟的会，结果弄了将近50分钟。 我的老战友是美国的前参议员，也要我参加这个会：怎么来看待这个美国还有拜登总统、川普总统？他说，我知道你支持川普，你怎么看待拜登总统对美政策啊？ 我说，我从来谁都不支持，也不反对。不参与你们美国政治，但是你要让我现在比较两个总统对中国的政策，我认为拜登总统更现实。川普是有组织有计划，非常聪明的，把中共从这个国际所谓的全球一体化，全球贸易战略系统里边干出去了。但是拜登比他更有组织，更精密化地把共产党从金融系统和世界系统给踢出去，而且招招有效。比如说，授权撤离这一块，跟你玩个授权撤离，玩个半死吧？马上就花1000多亿美元，到美国来买买美国的农业科技。然后说，哎，那我再回去，我还继续派大使过去— 派沈阳大使。这边啪一下子来一个，这个对共的所谓的新法规，参议院众议院会立法，是吧？ 然后在欧洲也推动这新的所谓灭共法案。这都是非常有组织很精密的。然后在俄罗斯这个事上，直接把责任就推给你中共了，只要俄罗斯打了乌克兰，就让欧洲知道背后就是因为中共，直接不提普京。直接说我知道他俩好啊，这个东方某国支持他。就告诉你乌克兰，告诉中共，告诉欧洲，只要是他动了乌克兰，第二个坏蛋就是习太阳， 中共国。这都是非常精密的战略高手啊，没有这样的战略搞不定的。
 
-Vivek Ramaswamy:
+包括疫苗，你看，最后疫苗都会推给中共国。这说到这事，我跟那个某个组织说我得到绝密的情报：拜登总统，美国政府明确告诉习太阳，我们不会离开中国的前提就是必须要病毒溯源。在这个事上杨洁篪不敢说话了，人家美国人家拜登很冷静啊，记住，我要是不断交前提就是溯源。现在不敢咋呼了，就蔫了。是吧？ 拜登最后把全世界所有的疫苗问题全都会推给他。
 
-Look I think it’s about something more,
-看， 我认为这与更多有关
+资料来源：2022年2月16日郭文贵先生大直播
 
-if you think it’s about vaccine mandates or about white supremacy.
-如果您认为这与疫苗授权或白人至上主义有关
+发布：tianzhihuan
 
-You’re missing the point, and this isn’t left right issue,
-你没有抓住重点，这也不是左右问题，
-
-this is about an uprising of everyday citizens in democracies around the world,
-这是关于世界各地民主国家普通公民的反抗
-
-not just Canada, it’s not the United States, it’s western Europe too,
-不只是加拿大，不是美国， 西欧也是
-
-rising against the biggest threat to actual democracy,
-对抗来自对民主的最大威胁
-
-which I think is the rise of this managerial class in democracies around the world that are crushing the will of everyday people through bureaucracies,
-我认为这是世界各地民主国家中管理阶层的崛起，他们通过官僚机构粉碎了普通民众的意志
-
-and it’s the same people by the way, Bill,
-顺便说一句，比尔， 是同一群人
-
-who staff corporate boards directors, who ends up as the associate deans of universities, who then end up being appointed diplomats abroad,
-担任公司董事会董事，最终成为大学的副院长，然后最终被任命为驻外外交官
-
-these are unelected class of leaders that ultimately, I think, are using their bureaucratic power to supplant the will of everyday,
-这些是非选举产生的领导阶层，我认为，他们最终会利用他们的官僚权力来取代日常生活的意志
-
-not only Americans, but the Canadians and western Europeans too,
-不仅是美国人，还有加拿大人和西欧人
-
-that’s why we are seeing the fusion of both the left and the right,
-这就是为什么我们看到左派和右派的融合
-
-here saying actually we want our voice heard,
-这里发生的是，实际上我们希望我们的声音被听见
-
-we want to be able to speak without fear of putting food on the dinner table.
-我们希望能够说话而不必担心食物被剥夺
-
-And you know what?
-你知道吗？
-
-The beautiful thing of democracy is that so far thanks god this has been a peaceful set of protest,
-民主的美妙之处在于，感谢上帝，这到目前为止是一场和平的抗议
-
-I hope it says stays that way.
-我希望它保持这种状态
-
-That’s part of messiness of democracy, and this part of what makes it beautiful.
-这是民主混乱的一部分，也是使它美丽的部分
-
-* * *
-
-Date:02/14/2022
-原视频标题: This isn’t a left or right issue. This is about an uprising of everyday citizens in democracies around the world.
-这不是左或右的问题。这是关于世界各地民主国家普通公民的反抗
-原视频日期：2022/02/11
-原视频链接: https://twitter.com/realdailywire/status/1492346573031890947?s=24
-任务编号：3753
-视频时间段 : 0:00-1:25
-英听校：洛杉矶盘古农场 – Raul
-翻译：洛杉矶盘古农场 – Raul
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场- Jambo
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

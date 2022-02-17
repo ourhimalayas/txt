@@ -2,10 +2,10 @@
 ---
 
 
-## 达沃斯想在中国继续存在下去的可能性几乎没有
-` 新西兰农场【光影传镜】` [轉載自GNews](https://gnews.org/zh-hans/2019834/)
+## 有到时候讲拜拜——拜登布林肯授权撤离美国驻北京大使馆
+` 新西兰农场【光影传镜】` [轉載自GNews](https://gnews.org/zh-hans/2019902/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/20220215-2-.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/20220215-2-1-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/aebfe51dea19676b.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/114.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/1111.png)
 图文设计：新西兰农场设计组
 上 传：F
 
