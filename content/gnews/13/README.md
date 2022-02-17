@@ -2,49 +2,35 @@
 ---
 
 
-## 币安遭SEC调查 美财政部确认加密矿工和钱包商不受国税局部分规则约束
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2020391/)
+## 突发新闻：俄罗斯驱逐美国驻莫斯科副大使戈尔曼
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/2020609/)
 
-撰稿：银河系农场 – 骄子；加拿大温哥华扬帆农场 – Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-4.png)
-全球最大比特币交易所币安，因美国证券交易委员会怀疑币安可能存在内幕交易和市场操纵等不法行为，目前正遭到美国证券交易委员会的调查。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1645.png)图片来源：https://cointelegraph.com
-调查主要针对币安相关的两家交易公司Sigma Chain AG和Merit Peak Ltd，这两家公司是币安美国交易所的作市商，截至去年年底，这两家公司由币安创始人兼首席执行官赵长鹏控股。SEC正在了解币安美国交易所如何向客户披露与两家交易公司的关联。
+![1517293646_0-250-2400-1600_1280x0_80_0_0_55b38bcd0a28b39a21fcce4183e1eb85.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/757B70DF-94A8-4E7A-A9E8-97B750FCB8FB.jpeg)
+2 月 17 日 据俄新社报道，俄罗斯外交使团发言人杰森·雷布霍尔茨（Jason Rebholtz）告诉俄新社，俄罗斯已经驱逐了美国驻莫斯科副大使巴特·戈尔曼。
 
-此外，美国财政部对加密货币矿工和加密货币钱包运营商的税务监管进行表态。财政部表示，加密货币矿工和钱包运营商不受美国国税局报告规则的约束，而相关监管法规正在拟制当中。而美国财政部计划让加密货币矿工、造币商和其他市场参与者，免于遵守要求加密货币经纪商与国内税收局IRS共享客户交易数据的相关规则。
+“戈尔曼是[美国](http://ria.ru/location_United_States/)驻[莫斯科](http://ria.ru/location_Moskva/)大使馆的第二重要官员，仅次于大使，也是大使馆高级领导层的关键成员，”
 
-参议员罗布·波特曼在其社交媒体上宣布这一消息时说：“感谢财政部确认加密货币矿工、造币商和那些出售钱包的硬件和软件者，不需要承担纳税报告义务”。财政部还将考虑 “数字资产市场中的其他各方，如集中式交易所、那些通常被称为分散式交易所，以及点对点交易所，应在多大程度上被视为经纪商”。
+雷布霍尔茨 告诉该机构，戈尔曼持有有效签证，并且在俄罗斯待了不到三年。
 
-据了解，美财政部正在对加密货币经纪人寻求法律范围的解释，以及澄清加密货币的押金稅问题等。對此一重大消息，新中國聯邦發起人郭文貴於16日發布蓋特表示，美国加密货币行业即将取得重大法律胜利，意义深远。这是上天给予新中国联邦人元宵节最好的礼物。
+华盛顿认为驱逐这位外交官是一个“升级步骤”，并正在考虑采取报复措施的可能性。
 
-新闻链接：
+近年来，俄罗斯驻美外交官的工作条件不断恶化。正如俄罗斯大使阿纳托利·安东诺夫所指出的那样，莫斯科完全失去了在美国西海岸的领事存在，那里有成千上万的俄罗斯人居 住。华盛顿还大幅收紧了签发签证的程序。
 
-[郭文贵先生2月15号盖特](https://gettr.com/post/pupz7ee61a)
+此外，还经常大规模驱逐俄罗斯外交官。因此，在 9 月，华盛顿向莫斯科提交了另一份名单：27 人应在1 月 30 日之前离开美国，另外 28 人应在 2022 年 6 月底之前离开美国。
 
-[美国财政部确认，加密矿工和钱包运营商法规出台](https://gettr.com/post/pumsxde238)
+6 月，在弗拉基米尔·普京总统和乔·拜登总统在日内瓦举行峰会后，莫斯科和华盛顿开始就使馆工作正常化的问题进行接触，但据俄罗斯外长谢尔盖·拉夫罗夫称，这一进程是“标记时间”，因为美国企图向俄罗斯施压。此外，安东诺夫所说，“对俄罗斯外交官的迫害仍在继续”，在这种情况下，莫斯科保留报复的权利。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2DAF4ABD-6126-415A-89CD-580AFDC1BA95.png)
+近几个月来，俄罗斯与西方的关系更加紧张，[乌克兰](http://ria.ru/location_Ukraine/)周边局势恶化。华盛顿和[布鲁塞尔](http://ria.ru/location_Brussels/)指责莫斯科准备“入侵”，宣布俄罗斯军队正被拉到与邻国的边界。在这种背景下，北大西洋联盟正在加强其在[东欧](http://ria.ru/location_vostochnaja_evropa/)的存在：它正在向那里派遣更多的部队和军事特遣队。
 
-[2022年2月16日文贵大直播](https://gettr.com/post/puqtocd3a0)
+克里姆林宫否认这些指控，并声称这是增加欧盟在俄罗斯边境附近军事存在的借口。还解释说，事态升级的主要原因是美国和北约的行为，他们正在把乌克兰推向军事冒险。
 
-[Crypto miners exempt from IRS reporting rules, US Treasury affirms](https://cointelegraph.com/news/crypto-miners-exempt-from-irs-reporting-rules-us-treasury-affirms)
+另据俄卫星社最新消息，美国大使馆表示，华盛顿认为这一举动不合理，因为该外交官持有三年的签证，而他在俄罗斯的停留时间还不到三年。美国大使馆还强调，美方将对戈尔曼被驱逐一事作出回应。
 
-[全球最大比特币交易所币安遭SEC调查](https://wallstreetcn.com/articles/3652036)
+撰稿/米拉娅
+审阅/邱杰斯
+上传/天赐良闻
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-3.png)
-
-编辑：Delilah小胖
-
-总编：zhong
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-4.png)
-
+援引链接：[https://ria.ru/20220217/posol-1773369117.html](https://ria.ru/20220217/posol-1773369117.html)
 
  
 

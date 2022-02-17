@@ -2,37 +2,30 @@
 ---
 
 
-## 习近平神隐数日 欲发动对台作战计划
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2020347/)
+## 大直播后记：病毒灾难导致强烈排华伤及亚裔
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2020574/)
 
-撰稿：台湾宝岛农场- zhong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-4.png)
-郭文贵先生于2月14日和15日连续发布盖特视频爆料称，习近平神隐数日，正在准备对台湾的一场战争，处心积虑地酝酿对台湾的整个作战计划，对台湾极为危险。预计习近平将在16日左右现身，他呼吁台湾同胞务必小心，习近平正准备对台湾发动战争。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1644.png)
-此外，俄罗斯与乌克兰的军事风险、国际经济、金融的动荡及疫苗灾难，都是世界瞩目的焦点，而一切的灾难都来自于中国共产党。然而，中国共产党的恶行，最后将由中国人买单。
+整理：清水冷香、Lucy Liu
+编辑：Sadhu
 
-新闻链接：
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/12-20.png)
 
-[https://news.ltn.com.tw/news/politics/breakingnews/3831219](https://news.ltn.com.tw/news/politics/breakingnews/3831219)
 
-[https://gettr.com/post/purvnk5f66https://gettr.com/post/puh5sv8f69【播放影片】https://gettr.com/post/puh5sv8f69](https://gettr.com/post/purvnk5f66https://gettr.com/post/puh5sv8f69【播放影片】https://gettr.com/post/puh5sv8f69)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-3.png)
+图片来源：墨尔本雅典娜农场设计组
 
-编辑：飛虹
 
-总编：zhong
+拜登是很聪明的，我让你诈唬得完，你还诈唬吗？ 旁边倒卖的贩卖的绑架的人都出来了，你还诈唬？那8个孩子给你找出来了，你还诈唬？是吧？ 你诈唬不出来了，你看，拜登最后把全世界所有的疫苗问题全都会推给共产党。  香港这两天，病毒、疫苗（事件）发生得特别特别多，你没看到西方在干什么？包括有人说，辉瑞莫德纳（Modena）到香港卖疫苗去了，大家记住啊，我再给你重申一遍：在纽约把韩国这个亚裔女孩儿——在外国人眼里边，没有中国人和韩国人的区别，都叫亚裔，刺伤40多刀；在美国的西部一个城市里边，对三个华人进行了棍打威胁，包括多处出现了暴力对待亚裔的事件，包括大家，现在我们最担心的在海外的共产党谷爱凌事件导致的各国政府——已经不是老百姓了，排华事件，各国政府的歧华和不信任华，这些未来可能发生的结果是什么呢？各国政府最后一定跟中共说：如果病毒不溯源，海外华人亚洲人都将背起这个罪责。接下来的就是韩国人、日本人，亚裔人一定会站出来说话：你不把病毒溯源，我们背不了你这个锅。所以说病毒溯源很有可能从中国的亚洲周边国家集体抗议，到变成全球的抗议。 我很多台湾朋友在洛杉矶吓坏了，他说晚上根本不敢开车出去。我今天上直播前，咱们的台湾朋友，她说，我们这几天出去被人家骂，七哥你能不能在直播中说一说呀，我们是台湾人呢，被人骂，多冤枉。我说，谁知道你是台湾人，都说你是亚裔人。更夸张的是她说她去超市了，收款员说，“你是个婊子，你该回到你们中国去。”她说我是台湾的，她（收款员）说你台湾有什么不一样？台湾在哪？你们不都是中国人吗？这亚裔人背上的这种包袱，和亚裔人受到的残害和威胁，和你再看拜登多聪明，他充分地利用国际的怨声，和世界上疫苗的伤害，病毒的伤害，对经济的伤害，巧妙地就像乌克兰、俄罗斯（事件）一样，就把这个粥推到了你中共手里去，中共不敢推回来。拜登这招很厉害，所以我说拜登能把中国玩死。
 
-校正/发稿：浪迹天涯
+资料来源：[2022年2月16日 文贵大直播](https://gettr.com/streaming/ptgw8b5f32)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-4.png)
+发布：星谕
 
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,37 +2,26 @@
 ---
 
 
-## 美科学家称中共病毒来自武汉病毒研究所
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2012234/)
+## 樱花FM┃美国批准对台湾一亿美元军售
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2014826/)
 
-作者：纽约磐石农场—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月10日，据盖特消息显示，美国国会众议员斯卡里斯在接受采访时表示，那些支持中共病毒实验室起源的科学家们应该针对病毒溯源问题前往国会作证。
+音频：东京樱花团/战友520
+![](https://lh4.googleusercontent.com/nn04NK2dkw8qGSS-GsG1bb0K5x70y2nJZjOhLK1omJ0EgkOjpLgOsRwsr3KiX_rDjkbE7_E01JlstcI_lCZoJ_kN7i_J5A1ahcgT3ueD3EiBTDkFupxceWisHig1QZsR5vT0Hz0g)
+美国国防部周一(2月7日)表示，美国已经批准向台湾出售价值或达1亿美元的设备和服务，以“维持、维护和改进”台湾爱国者导弹防御系统,台湾外交部对此表示“高度欢迎”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide5-10.jpeg)
+国防安全合作局在一份声明中说，对爱国者防御系统的升级将“有助于改善受援方的安全，并协助维护该地区的政治稳定、军事平衡、经济和发展”。
 
-斯卡里斯提到，他在与其他议员调查中共病毒起源时发现，包括福奇的高级顾问在内的许多科学家都认为中共病毒来源于武汉病毒研究所。然而，在他们参与了福奇召开的电话会议后，这些学科家们纷纷转变了态度。同时，大多数与会科学家在其后的时间里陆续获得了数百万美元的联邦拨款。
+国防安全合作局说：“这项军售计划通过支持受援方继续努力使其武装部队现代化并保持可靠的防御能力，符合美国的国家、经济和安全利益。”
 
-斯卡里斯强调，美国政府应该就中共病毒起源问题举行国会听证会，而这些改口的科学家们也必须在听证会上接受质询。即使佩洛西议长一直阻挠该听证会的举行，但众议院一定会挖出有关中共病毒来源的真相。
+台湾外交部在一份声明中称，面对中共国持续的军事扩张和挑衅行为，台湾将以坚实国防维护国家安全，并持续深化台美紧密安全伙伴关系。
 
-参考链接：
-[https://gettr.com/post/ptm6ez6d3a](https://gettr.com/post/ptm6ez6d3a)
+台湾国防部表示，该案可望在1个月后正式生效。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+文字版原文：[美国批准对台湾一亿美元军售](https://gnews.org/zh-hans/1974148/)
 
-总编：Irene木木
-编辑：宁文静
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
