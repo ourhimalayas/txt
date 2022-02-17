@@ -15,128 +15,128 @@
 
 ---
 
-### [2/16/2022 文贵直播：文贵认为命中必然会有这次破产；中共让文贵等了5年的红灯，而只有在美国才有黄灯可选 &#8211; 破产](/content/gnews/1/README.md)
+### [大直播后记：病毒灾难导致强烈排华伤及亚裔](/content/gnews/1/README.md)
+ ` 雅典娜GNotes`
+
+### [大直播后记：七哥的个人破产，它所蕴含的价值是巨大的。](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
+
+### [大直播后记：喜联储即将交易数字货币](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [2/16/2022 文贵直播：文贵认为命中必然会有这次破产；中共让文贵等了5年的红灯，而只有在美国才有黄灯可选 &#8211; 破产](/content/gnews/4/README.md)
  ` 秘密翻译组-北美组`
 
-### [大直播后记：三件大事宣布](/content/gnews/2/README.md)
+### [大直播后记：三件大事宣布](/content/gnews/5/README.md)
  ` 雅典娜GNotes`
 
-### [美国南达科他州众议院通过HB1267伊维菌素法案](/content/gnews/3/README.md)
- ` 温哥华扬帆农场`
-
-### [20220216郭文贵大直播 ：行善不要在乎结果！](/content/gnews/4/README.md)
- ` Tokyo Sakura Video Group`
-
-### [樱花FM┃日本考虑对俄罗斯实施制裁](/content/gnews/5/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [秘翻新闻｜美议员提法案 禁中共高官子女赴美学习 及要求中共赔偿中共病毒造成的损失](/content/gnews/6/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [币安遭SEC调查 美财政部确认加密矿工和钱包商不受国税局部分规则约束](/content/gnews/7/README.md)
- ` NFSC News`
-
-### [20220216：全世界疫苗的情况](/content/gnews/8/README.md)
- ` Tokyo Sakura Video Group`
-
-### [《历史上的今天》 2022.02.17](/content/gnews/9/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [BioNTech计划在非洲建造模块化疫苗工厂](/content/gnews/10/README.md)
- ` 墨尔本雅典娜农场`
-
-### [习近平神隐数日 欲发动对台作战计划](/content/gnews/11/README.md)
- ` NFSC News`
-
-### [加拿大医生敦促同行站出来，否则就是疫苗的同谋](/content/gnews/12/README.md)
- ` DC政经`
-
-### [20220216：中共国经济等待破产](/content/gnews/13/README.md)
- ` Tokyo Sakura Video Group`
-
-### [普京会晤博尔索纳罗](/content/gnews/14/README.md)
- ` 纽约香草山MOS02`
-
-### [中共统治下数字呈现出的真相](/content/gnews/15/README.md)
- ` NFSC News`
-
-### [2022.2.17疫苗灾难](/content/gnews/16/README.md)
- ` 【去疫前线】`
-
-### [中共党媒齐报&#8221;丰县八孩锁链女子&#8221; 无法解决被拐妇女儿童悲惨命运](/content/gnews/17/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [加拿大的小土豆居然钦佩中共的独裁制度，还认为独裁制度有其灵活性](/content/gnews/18/README.md)
- ` DC政经`
-
-### [郭文贵先生将于美国法律监管下申请破产 开启灭共下一篇章](/content/gnews/19/README.md)
- ` NFSC News`
-
-### [西媒头条 — 第175期](/content/gnews/20/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [俄罗斯取乌克兰的幕后黑手-中国共产党](/content/gnews/21/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [大直播后记：我认为真的台湾的香港的狗都比大陆的富豪马云幸福。](/content/gnews/22/README.md)
- ` 雅典娜GNotes`
-
-### [大直播后记：人类生存关键需要什么](/content/gnews/23/README.md)
- ` 雅典娜GNotes`
-
-### [【視頻新聞】HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-4](/content/gnews/24/README.md)
- ` NFSC News`
-
-### [大直播后记：拜登对中共更有手段](/content/gnews/25/README.md)
- ` 雅典娜GNotes`
-
-### [2022/02/14 墙内世界](/content/gnews/26/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [在超级碗看比赛的名人都没有戴口罩](/content/gnews/27/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [谁来决定取消文化的规则？](/content/gnews/28/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [美国议员提法案禁中共高官子女赴美学习](/content/gnews/29/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [澳洲新南威尔士地区将于明日进一步放宽防疫限制](/content/gnews/30/README.md)
- ` 澳喜特战旅Gnews`
-
-### [这不是左或右的问题 这是关于世界各地民主国家普通公民的反抗](/content/gnews/31/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [2/17/2022 国际财经快讯：美国司法部对空头展开广泛调查；亚洲发往美国海上集装箱运输量创新高](/content/gnews/32/README.md)
- ` 秘密翻译组金融团队`
-
-### [【秘翻新视野】喜时代的来临](/content/gnews/33/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [中华民族一代科学宗师叶企孙竟然沦为乞丐](/content/gnews/34/README.md)
+### [大卡车运动源于郭先生当年在香港运动的策划！](/content/gnews/6/README.md)
  ` 纽约香草山MOS03`
 
-### [Moderna CEO称新冠大流行即将结束](/content/gnews/35/README.md)
+### [20220216郭文贵大直播 ：习太阳神隐9天](/content/gnews/7/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [美国南达科他州众议院通过HB1267伊维菌素法案](/content/gnews/8/README.md)
+ ` 温哥华扬帆农场`
+
+### [20220216郭文贵大直播 ：行善不要在乎结果！](/content/gnews/9/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [樱花FM┃日本考虑对俄罗斯实施制裁](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [以警治国升级！中共将选派警察担任法治副校长](/content/gnews/36/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [秘翻新闻｜美议员提法案 禁中共高官子女赴美学习 及要求中共赔偿中共病毒造成的损失](/content/gnews/11/README.md)
+ ` 秘密翻译组-即时新闻播报组`
 
-### [普京习近平演双簧，冬奥会后中共犯台](/content/gnews/37/README.md)
+### [Luc Montagnier教授在去世前接受采访，认为新冠病毒的确经过修改](/content/gnews/12/README.md)
+ ` DC政经`
+
+### [币安遭SEC调查 美财政部确认加密矿工和钱包商不受国税局部分规则约束](/content/gnews/13/README.md)
+ ` NFSC News`
+
+### [20220216：全世界疫苗的情况](/content/gnews/14/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [《历史上的今天》 2022.02.17](/content/gnews/15/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [BioNTech计划在非洲建造模块化疫苗工厂](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
 
-### [日本健康少年接种两针疫苗后染疫死亡](/content/gnews/38/README.md)
+### [习近平神隐数日 欲发动对台作战计划](/content/gnews/17/README.md)
+ ` NFSC News`
+
+### [加拿大医生敦促同行站出来，否则就是疫苗的同谋](/content/gnews/18/README.md)
+ ` DC政经`
+
+### [20220216：中共国经济等待破产](/content/gnews/19/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [普京会晤博尔索纳罗](/content/gnews/20/README.md)
+ ` 纽约香草山MOS02`
+
+### [中共统治下数字呈现出的真相](/content/gnews/21/README.md)
+ ` NFSC News`
+
+### [2022.2.17疫苗灾难](/content/gnews/22/README.md)
+ ` 【去疫前线】`
+
+### [中共党媒齐报&#8221;丰县八孩锁链女子&#8221; 无法解决被拐妇女儿童悲惨命运](/content/gnews/23/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [加拿大的小土豆居然钦佩中共的独裁制度，还认为独裁制度有其灵活性](/content/gnews/24/README.md)
+ ` DC政经`
+
+### [郭文贵先生将于美国法律监管下申请破产 开启灭共下一篇章](/content/gnews/25/README.md)
+ ` NFSC News`
+
+### [西媒头条 — 第175期](/content/gnews/26/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [俄罗斯取乌克兰的幕后黑手-中国共产党](/content/gnews/27/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [大直播后记：我认为真的台湾的香港的狗都比大陆的富豪马云幸福。](/content/gnews/28/README.md)
+ ` 雅典娜GNotes`
+
+### [大直播后记：人类生存关键需要什么](/content/gnews/29/README.md)
+ ` 雅典娜GNotes`
+
+### [【視頻新聞】HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-4](/content/gnews/30/README.md)
+ ` NFSC News`
+
+### [大直播后记：拜登对中共更有手段](/content/gnews/31/README.md)
+ ` 雅典娜GNotes`
+
+### [2022/02/14 墙内世界](/content/gnews/32/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [2/17/2022 国际财经快讯：美国司法部对空头展开广泛调查；亚洲发往美国海上集装箱运输量创新高](/content/gnews/33/README.md)
+ ` 秘密翻译组金融团队`
+
+### [【秘翻新视野】喜时代的来临](/content/gnews/34/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [中华民族一代科学宗师叶企孙竟然沦为乞丐](/content/gnews/35/README.md)
+ ` 纽约香草山MOS03`
+
+### [Moderna CEO称新冠大流行即将结束](/content/gnews/36/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [以警治国升级！中共将选派警察担任法治副校长](/content/gnews/37/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [普京习近平演双簧，冬奥会后中共犯台](/content/gnews/38/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [日本健康少年接种两针疫苗后染疫死亡](/content/gnews/39/README.md)
  ` 日本东京方舟农场`
 
-### [在伊朗谈判和乌克兰危机之间油价下跌](/content/gnews/39/README.md)
+### [在伊朗谈判和乌克兰危机之间油价下跌](/content/gnews/40/README.md)
  ` Shuizhuyu`
 
-### [郭文贵先生：中共暂缓武统台湾](/content/gnews/40/README.md)
+### [郭文贵先生：中共暂缓武统台湾](/content/gnews/41/README.md)
  ` 日本东京方舟农场`
-
-### [法院拒绝被拐卖妇女的离婚申诉，丰县经常发现女性尸体](/content/gnews/41/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [香港确诊及初阳破万 另有逾万染疫者等候入院](/content/gnews/42/README.md)
  ` 秘密翻译组-即时新闻播报组`

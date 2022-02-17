@@ -2,27 +2,30 @@
 ---
 
 
-## 澳洲新南威尔士地区将于明日进一步放宽防疫限制
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2020077/)
+## 【視頻新聞】HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-4
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2020190/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2022/02/176-2.png)图片来自网络
-根据澳大利亚媒体第九新闻与当地时间周三的最新消息，澳大利亚新南威尔士州州长多米尼克·佩罗特（Dominic Perrottet）宣布从明天起取消接待场所的容量限制，只有在某些特定场所（如夜总会或超过 1000 人的音乐节）才必须使用手机二维码进行签到。
+**撰稿: 台湾宝岛农场zhong **
+![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-7.png)
+在HBO VICE播放的郭文贵先生采访视频中，记者ISOBEL YEUNG借用华尔街日报的虚假报道，将文贵先生定义为双面间谍。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1641.png)图片来源：Gettre
+而在未经剪辑的采访视频中我们看到，当记者试图就“双面间谍”问题征求文贵先生的意见时，文贵先生已经从中共的邪恶本质、行为特征、采取的各种措施，以及西方媒体与中共的勾结等方面给出了有力的反驳。接下来我们还原事实真相的第四部分：反击HBO-VICE利用华尔街日报的双面间谍报道来诋毁郭先生。
 
-而从下一个周五开始，强制口罩禁令也将会进一步放宽，人们只有在公共交通、医院与护理设施、或1000人以上的音乐节等场所才需要强制佩戴口罩。
+链接：[#HBO #VICE 采访郭文贵先生背后的真相——揭露HBO-VICE精心编织的谎言 Part-4](https://www.gettr.com/post/pkg9qs8b34)
 
-佩罗特先生说：“我们将继续鼓励在无法与他人保持安全距离的室内环境中或在面向客户的零售店中佩戴口罩，以保护需要获得这些服务的弱势群体。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-3.png)
 
-从2月25日起，音乐节的20,000人的上限要求也将被取消，唱歌及跳舞等庆祝活动也都将被允许。在家工作的建议也将改变，并由雇主自行决定。未接种疫苗的旅客的酒店隔离期则将会从 过去的14 天缩短至 7天一周的时间。医疗机构虽然仍旧会采取过去的登记系统，但是非紧急类的择期手术也将得到恢复。
+总编: zhong
 
-今日，新南威尔士新报告了 9995 例CCP病毒感染案例和 14 例死亡。目前仍然有1447人因CCP病毒而住院，其中92人处于重症监护状态。该州94.7%的适合人群已经接种了两剂CCP病毒疫苗，而接种第三剂CCP病毒疫苗加强针的比例即将达到50%。
+校正/发稿：浪迹天涯
 
-然而佩罗特州长同时也提醒下一次的病例增长很可能还会出现，届时严格的防疫限制也可能视情况而重新回归。
-
-新闻参考链接：[NSW to ease major COVID-19 restrictions early](https://www.9news.com.au/national/coronavirus-update-nsw-restrictions-ease-on-mask-wearing-work-from-home-directives-dancing-in-nightclubs-allowed/150c2f73-3533-41bd-a7b1-63e2c53e597b)
-
-*发稿：mgjxs*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
