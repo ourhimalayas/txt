@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/17/2022 9:20 AM (UTC)`
+
+2月17号：尊敬的战友们好这比数字货币交易．将是改变数字货币与现实生活生产力．公平交易一个里程碑的事件！也是喜币走向另外一个新时代的开始！意义重大塞纳是汽车运动业的像神一般的存在超级超级英雄……他是巴西的象征，也是人类走向现代汽车运动的最有影响力的人物之一。［已故车神塞纳的车被喜币买走了……］
+![img](https://media.gettr.com/group27/getter/2022/02/17/09/690c04c0-81c4-defb-0c73-ff8fc67a45a2/07b4f16453974a85c19dc5520d23b6c7.jpg)
+
+---
+
+`@miles 2/17/2022 9:13 AM (UTC)`
+
+2月17号：尊敬的战友们好……视频做得特别特别好，但是核心的原因没敢说出来！
+![img](https://media.gettr.com/group4/getter/2022/02/17/09/7e2e70ce-b596-80c5-e5cc-bc6d376f2466/out.jpg)
+
+---
+
 `@miles 2/17/2022 7:20 AM (UTC)`
 
 2/16/2022 Miles Guo: What is the suit I am wearing today? My personal bankruptcy is just a legal process, but I still own unlimited wisdom. My personal bankruptcy is no match for the fact that the CCP is going to be finished soon and the New Federal State of China that has turned the fellow fighters into those “rich capitalists” who didn’t get the COVID jabs and have Himalaya Coins.<br/><br/>2/16/2022 文贵直播：文贵今天穿的什么衣服？文贵只是法律上的破产，但仍拥有无限的智慧；相较于即将完蛋的中共和把战友们变成无苗有币族和”富豪阶级”的新中国联邦，文贵的破产不叫事儿！<br/>
@@ -139,20 +153,6 @@
 
 2月15号：这是真正的真相……
 ![img](https://media.gettr.com/group3/getter/2022/02/16/01/ae4846dd-4dad-b407-47e4-31a31b8925bb/20f81414c9a8307b26bd4349b6408a70.jpg)
-
----
-
-`@miles 2/15/2022 10:31 PM (UTC)`
-
-2/15/2022 Miles Guo’s GETTR: Xi Jinping is about to show up after disappearing for eight days. So, people of Taiwan must be very careful. The CCP has turned the Winter Olympics into an international joke. Although the CCP makes life difficult for everyone, it will soon be taken down. Don’t be fooled by the Grand Overseas Propaganda Campaign, which is the tool for the CCP to maintain its rule.<br/><br/>2/15/2022 文贵盖特：习太阳消失8天后将露面，请台湾同胞务必小心；中共把冬奥会开成了国际大笑话；让所有人都过不好的中共马上就要被灭；大外宣是中共维护统治的工具，千万别上当<br/>
-![img](https://media.gettr.com/group32/getter/2022/02/15/22/b4180361-e66f-60b6-1ea3-e6fde903f33e/out.jpg)
-
----
-
-`@miles 2/15/2022 7:08 PM (UTC)`
-
-2月15号：无法无天罪恶深重……中国共产党必须被消灭！
-![img](https://media.gettr.com/group49/getter/2022/02/15/19/f4232b41-b94d-ec07-c92d-b71d73db0afd/out.jpg)
 
 ---
 
