@@ -2,74 +2,42 @@
 ---
 
 
-## 疫苗强制与科学无关，而始终与权力和政治有关
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2018127/)
+## 俄罗斯真的撤军了？美国北约认为恰恰相反
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2018232/)
 
-众议员安迪·比格斯：
-它（疫苗强制）与科学无关，而始终与权力和政治有关。
+**作者:  **青衣
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3-49.jpg)
+（图片来自网络）
 
-我们必须反对所有用于执行疫苗强制的资金。
+近日，战争乌云笼罩在俄乌边境。美国和北约均预测俄乌大战一触即发，美国总统拜登甚至还给出了明确时间表：2月16日。然而，截至目前，俄罗斯不仅尚未入侵乌克兰，反而声称已开始从边境撤军。那么，俄罗斯真的撤军了吗？
 
-【附众议院自由核心小组推文：突发：众议院自由核心小组致函敦促参议院共和党人反对所有用于对美国公民执行疫苗强制的资金】
+据《美国之音》2月17日报道，虽然莫斯科声称正在撤走一些部队，但是美国政府和北约负责人星期三（2月16日）却都表示，俄罗斯实际上正在增兵，并且已基本上包围了乌克兰。
 
+美国国务卿布林肯在美国广播公司（ABC）《早安美国》（Good Morning America）节目中表示，俄罗斯言行不一。目前不仅并没有看到有意义的撤军，相反，俄军部队继续集结在边界，特别是针对乌克兰发动任何新的侵略所需要的先头部队。
 
+白宫发言人莎琪则对记者表示，相信进攻随时都有可能发生，并且在那之前会有一个编造的借口，俄罗斯方面会以此作为发动入侵的口实。
 
-> This was never about the science, it was always about power & politics. 
-> 
-> We must oppose ALL funding towards enforcing vaccine mandates. [https://t.co/2uTjp3KxLo](https://t.co/2uTjp3KxLo)
-> — Rep Andy Biggs (@RepAndyBiggsAZ) [February 16, 2022](https://twitter.com/RepAndyBiggsAZ/status/1494012169318547460?ref_src=twsrc%5Etfw)
+美国国务院发言人普赖斯也指出，目前在乌克兰边界的俄军是更多了而不是更少了。并且更加令人关切的是，俄军正在进入作战位置。普赖斯还表示，美国国务院已就乌克兰事务建立了一个特别工作组，以便在俄罗斯军事威胁乌克兰之际迅速处理事态的发展。
 
+位于波兰的通过卫星图像追踪军事动向的独立防务咨询公司“罗尚咨询”（Rochan Consulting）也在一份报告中指出，在莫斯科宣布将一些部队调回原驻地后，却有更多的俄罗斯军用列车抵达了乌克兰附近。没有发现减少兵力的迹象，而事实正好相反。
 
+爱沙尼亚情报主管马兰甚至称，俄罗斯将对乌克兰发动有限进攻，包括导弹轰炸和占领关键地带。
 
-参议员泰得·克鲁兹：
-今天很高兴见到埃内斯·弗里德姆!
-他表现出了巨大的勇气，并为站出来呼吁中国共产党的暴行和种族灭绝付出了个人代价。
-NBA把中共的金钱看得比正义和人权还重，所以没有球队让29岁的他上场。
+北约秘书长斯托尔滕贝格在与北约30个成员国的国防部长于布鲁塞尔召开会议时表示，虽然从莫斯科传来有关准备好继续外交努力的信号，但到目前为止，并没有在实地看到有任何减缓，相反俄罗斯似乎在继续增兵。
 
+北约已于星期三下令指挥官草拟在北约联盟东南侧组建新战斗群的计划。斯托尔滕贝格表示，局势已经表明，欧洲正面临一场安全危机，并且将可能成为一种新常态。
 
+美国总统拜登星期二在白宫发表简短讲话时警告称，“入侵的可能性仍然明显”。他还表示，莫斯科如果发动入侵将导致“难以置信的人类痛苦”。
 
-> Great to meet [@EnesFreedom](https://twitter.com/EnesFreedom?ref_src=twsrc%5Etfw) today!
-> 
-> He’s shown enormous courage—and has paid a personal price for—standing up & calling out the atrocities & genocide of the Chinese Communist Party.
-> 
-> The [@nba](https://twitter.com/NBA?ref_src=twsrc%5Etfw) values CCP $$ more than Justice or human rights & so at age 29 no team will let him play. [pic.twitter.com/6UlcYf9EOg](https://t.co/6UlcYf9EOg)
-> — Ted Cruz (@tedcruz) [February 16, 2022](https://twitter.com/tedcruz/status/1494032026420273162?ref_src=twsrc%5Etfw)
+虽然美国和北约等国均认为战争已迫在眉睫，但俄罗斯方面却对此看法不屑一顾。俄罗斯驻欧盟大使奇佐夫在面对德国《世界报》（Welt）提问“俄罗斯是否会在星期三发动进攻时”时调侃称：“欧洲很少在星期三爆发战争。”
 
+克里姆林宫发言人佩斯科夫也对记者表示，俄罗斯总统普京甚至就此开玩笑询问“宣布发动战争的具体时间是什么时候”。佩斯科夫表示，普京愿意谈判，并且认为拜登继续外交对话的意愿是一个积极迹象。
 
+美国近期提出了包括“新的军控措施、新的透明措施、新的战略稳定措施”等多项建议，以解决俄罗斯和北约的安全危机。普京在星期二时表示，他已做好了与美国及其北约盟国就导弹部署和在欧洲军演重新谈判的准备。
 
-参议员玛莎.布莱克本：
-当我为埃内斯勇敢地与共产主义中国抗争鼓掌时，我没想到他会站得这么高！
+[https://www.voachinese.com/a/us-nato-russia-boosting-not-de-escalating-ukraine-military-presence-20220216/6444992.html?utm\_source=twitter&utm\_medium=social&utm\_campaign=dlvr.it](https://www.voachinese.com/a/us-nato-russia-boosting-not-de-escalating-ukraine-military-presence-20220216/6444992.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
 
-感谢您大声疾呼并追究中共的责任，感谢您今天与我们共进午餐，埃内斯 @EnesFreedom。
-
-
-
-> When I applauded Enes for his courage to stand up to Communist China, I didn’t think he’d be standing this tall!
-> 
-> Thank you for speaking up and holding the CCP accountable, and thank you for joining us at lunch today, [@EnesFreedom](https://twitter.com/EnesFreedom?ref_src=twsrc%5Etfw). [pic.twitter.com/OlqowUtc9B](https://t.co/OlqowUtc9B)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [February 16, 2022](https://twitter.com/MarshaBlackburn/status/1494077108833996810?ref_src=twsrc%5Etfw)
-
-
-
-众议院迈克·麦考尔：
-
-历史将把 2022北京作为耻辱铭记。虽然 #中共 迫切希望人们在奥运期间以积极的眼光看待其政权，但美国人应该将目光转向中共长期践踏人权的历史。这就是北京2022的真实故事。
-【转休斯顿纪事推文：尼基·海利，迈克·麦考尔：当你观看北京奥运时你不会看到的是什么】
-
-
-
-> History will remember [#Beijing2022](https://twitter.com/hashtag/Beijing2022?src=hash&amp;ref_src=twsrc%5Etfw) as a disgrace. While the CCP desperately wants people to see its regime in a positive light during the games, Americans should turn its gaze instead to the CCP’s long history of human rights abuses. That’s the true story of [#Beijing2022](https://twitter.com/hashtag/Beijing2022?src=hash&amp;ref_src=twsrc%5Etfw). [https://t.co/cWm5lw4mfR](https://t.co/cWm5lw4mfR)
-> — Michael McCaul (@RepMcCaul) [February 16, 2022](https://twitter.com/RepMcCaul/status/1494066290834747396?ref_src=twsrc%5Etfw)
-
-
-
-美前国务卿迈克·蓬佩奥：
-我希望你们和我一起祈祷，在东欧和平面临挑战之际，祈祷我们的世界领导人拥有智慧、耐心和力量。
-
-
-
-> I hope you will join me in praying for our world leaders to have wisdom, patience and strength, as this challenge to peace in Eastern Europe unfolds. [https://t.co/QYne2i1Z4b](https://t.co/QYne2i1Z4b)
-> — Mike Pompeo (@mikepompeo) [February 16, 2022](https://twitter.com/mikepompeo/status/1494081371635167240?ref_src=twsrc%5Etfw)
+* * *
 
 
 

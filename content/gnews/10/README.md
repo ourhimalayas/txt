@@ -2,37 +2,50 @@
 ---
 
 
-## 有声|中共不灭 世界永无和平
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2018105/)
+## 热点回顾：为什么辉瑞疫苗没有在印度上市？
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2018173/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月15日，郭文贵先生在盖特视频中谈及，中共北京冬奥会和谷爱玲母女事件将造成海外华人与世界对立的结果。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/4-32.jpg)
-郭先生解释道，作为不承认双重国籍的中共国，美国人谷爱玲却为中共国夺得奥运金牌——这种荒唐事件不仅让中国人丢脸，也让海外华人与世界对立，其危害是深远的。同时，谷爱玲母女事件和北京冬奥会也让全世界看清了中共的真面目。此外，即将到来的中共病毒疫苗灾难正在让各国政府高度紧张，而文明国家的人民也在奋起反抗来自各个政府的疫苗暴政。
+翻译：文斗
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-275.jpg)
+**热点回顾：为什么辉瑞疫苗没有在印度上市？**
 
-郭先生也提到，中国人民智慧如海，能冲走一切灾难。因此，但凡中国人被容许说话，墙内就不会有锁链女、杨改兰等悲剧出现。但是，中共妄想领导世界，到处通过“蓝金黄”干涉他国内政，又派出特务单伟健骗走美国乃至全世界的养老基金。
+2月16日，thegatewaypundit网站发表回顾文章并提出疑问：为什么辉瑞疫苗没有在印度上市？
 
-对此，郭先生警告称，只要共产党和共产主义不灭，全世界将永无安宁。
+2021年2月，在印度医药监管机构要求进行当地的安全性和免疫原性研究之后，辉瑞公司撤回了其COVID-19疫苗在印度的紧急使用授权申请。
 
-文字版原文：[中共不灭 世界永无和平](https://gnews.org/zh-hans/2012044/)
+去年，印度的COVID-19主题专家委员会（SEC）在一次会议上审查了辉瑞公司提交的数据。该委员会没有推荐辉瑞公司的疫苗，原因是国外报告的严重不良事件以及该公司缺乏针对印度人口的安全性和免疫原性研究。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+当地试验是印度在有新疫苗时实行的标准程序，以确定其安全性以及在其公民中产生免疫反应。然而，根据印度的规定，在某些情况下可以放弃这种试验。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+该决定将影响辉瑞公司COVID-19疫苗的上市，辉瑞疫苗将不能在印度和中国这两个世界上人口最多的国家销售。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+与其他公司为外国疫苗在印度进行小规模研究不同，辉瑞公司以其在美国和德国进行的试验获得了其他国家批准为由寻求例外。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+辉瑞公司在一份声明中说：“根据会议的审议情况以及我们对监管机构可能需要的额外信息之理解，公司决定此时撤回其申请。”
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+“辉瑞公司将继续与监管机构接触，并在不久的将来获得更多信息后重新提交其批准申请。”
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+现在，一年过去了，没有辉瑞重新申请的后续信息。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-73.jpg)
+截至2月16日，该文章上获得了152万次访问，在盖特上有大量评论与转发，表达其对辉瑞隐瞒信息的猜测以及对疫苗安全的质疑。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/6-25.jpg)
+（[https://www.gettr.com/post/puxg0m1ffa](https://www.gettr.com/post/puxg0m1ffa%EF%BC%89) 那么，印度意识到了不利影响，而我们却没有？）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/7-22.jpg)
+（[https://www.gettr.com/post/puwqtm8655](https://www.gettr.com/post/puwqtm8655) 辉瑞公司必须公布所有的数据，而且必须是不加处理过的。）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8-22.jpg)
+（[https://www.gettr.com/post/puwa9x6d5a](https://www.gettr.com/post/puwa9x6d5a) 基本上就是，印度要求辉瑞公司证明其疫苗的安全性和有效性，而辉瑞公司没有这样做（因为他们当然不能），而是直接撤回了在印度使用其疫苗的申请……那可是世界上人口第二多的国家！！ 他们宁愿承担经济损失，因为他们知道他们无法满足印度使用该产品的要求……
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+但是，用在美国人身上就可以了）
+
+新闻来源：
+
+
+
+> [Flashback: Pfizer Withdraws COVID Vaccine Application in India After Regulators Demand Local Safety and Immunogenicity Study](https://www.thegatewaypundit.com/2022/02/pfizer-withdraws-covid-vaccine-application-india-regulators-demand-local-safety-immunogenicity-study/)
+
+
+
+[https://mosnews.orkmail.com/statistics/link/post20220216\_2317F500D1.repost.html](https://mosnews.orkmail.com/statistics/link/post20220216_2317F500D1.repost.html)
 
  
 

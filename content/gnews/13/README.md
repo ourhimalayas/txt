@@ -2,35 +2,76 @@
 ---
 
 
-## 2月16日大直播后记：七哥越破产战友越有钱
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2018078/)
+## 疫苗强制与科学无关，而始终与权力和政治有关
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2018127/)
 
-整理：Anita、Lucy Liu
-编辑：小红帽
+众议员安迪·比格斯：
+它（疫苗强制）与科学无关，而始终与权力和政治有关。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/16-7.png)图片来源：雅典娜农场设计组（614）
+我们必须反对所有用于执行疫苗强制的资金。
+
+【附众议院自由核心小组推文：突发：众议院自由核心小组致函敦促参议院共和党人反对所有用于对美国公民执行疫苗强制的资金】
 
 
-有钱的时候买多少名牌，都不重要。第一要去旅游，行万里路，七哥就走过万里路。我到欧洲到德国去，看了希特勒那个二战（的历史）。为啥我老提二战？我感触太深了。人类这么近的历史，为啥不学习呢？你学那个大清朝（历史）有个屁用。二战是我们最好的一面镜子。在二战里边，大家最重要要学到的就是老百姓的无知，都相信希特勒。这不就是刚才战友问的问题吗？然后共产党要打台湾。你疯了打台湾。你的父母还有常识，说共产党一定会最后发动一场战争来让共产党继续活下去。你爸妈不简单。更重要的事情是财富，一旦在战时或大灾难，大病毒来时，如果你没有吃饭的钱，你真得饿死。还有你要有几个朋友，要有几个人。光有钱，在大难大战来时，你没有人是没有用的。新中国联邦都给你安排了有战友，有币，还有情报，还有让你开智。
 
-你看赵长鹏有多坏，他不做KYC的，不管什么钱都来，就是玩假的，这是犯罪。没有做KYC，赵长鹏就把所有人汇钱的信息给共产党。共产党抓了多少人弄了多少人？全世界就喜币喜支付，绝不可能有任何第三方拿走你的信息。谁拿走了，我负一切责任。更重要的，今天个人破产的时候，你想想，七哥但凡有一个币，喜联储和七哥就是犯罪啊！那不是开玩笑的。但是七哥作为一个最智慧的advisor（建议者），创造者，用这种智慧，让这么多人有钱，是一个多么伟大的行为啊。伟大到什么程度？这比共产党说的还伟大。它是爹亲娘亲不如党亲，七哥真是爹亲娘亲没有战友亲。战友们现在都发财了，而且你看44块钱，这是真的，你现在就可以卖呀。是真的真钱呐！关键有Hpay，大家啪啪地钱就转走了。战友们啥都可以干。什么叫交易，你给我你有的，我给你我的，咱俩形成交易。咱俩交易之间为什么需要中间第三方？
+> This was never about the science, it was always about power & politics. 
+> 
+> We must oppose ALL funding towards enforcing vaccine mandates. [https://t.co/2uTjp3KxLo](https://t.co/2uTjp3KxLo)
+> — Rep Andy Biggs (@RepAndyBiggsAZ) [February 16, 2022](https://twitter.com/RepAndyBiggsAZ/status/1494012169318547460?ref_src=twsrc%5Etfw)
 
-银行是世界上最多余的，是所有人财富掠夺的工具。别忘了存在银行的钱，银行破产是不用还的。你要承担责任，而它永远不负责任的。特别是有些苛捐杂税，你像Bunny这小孩儿，他要有个10万美元，8万美元，怎么拿出来？刚才看到了美国政府伟大啊，虚拟货币不在报税表里边儿。这里边儿有大文章啊，兄弟姐妹们。赵长鹏被灭了后，最大受益的就是咱啊！
 
-咱喜联储现在已经是全世界的四大交易所了。战友们，你们拥有第四大交易所。如果数字银行再公布，还有如果某国再进行投资，你看看，七哥越破产你们越有钱。关键你们这钱不受第三方监管，第三方掠夺。这是多大的利啊！更重要的是：无国界，无物理界限。
 
-在银行里的钱本来在追寻自由名下，看着看着钱变成了什么，你啥都没有。赵长鹏没有做KYC，（他的钱）现在被全世界（还一定被抓起来的）已经全部被没收，而这个勾兑一定会被刑事定罪。他完了。整个喜联储绝对全部做KYC，百分之百地的保证战友安全，绝不接受第三方在这块抽钱抽佣出卖战友信息，而且喜支付也给你配上了。最重要的事情，这个币是有限制的。币安是什么东西？它没限制，他想干多少干多少，永远不给你解释。
+参议员泰得·克鲁兹：
+今天很高兴见到埃内斯·弗里德姆!
+他表现出了巨大的勇气，并为站出来呼吁中国共产党的暴行和种族灭绝付出了个人代价。
+NBA把中共的金钱看得比正义和人权还重，所以没有球队让29岁的他上场。
 
-资料来源：2022年2月16日郭文贵先生大直播
 
-发布：tianzhihuan
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+> Great to meet [@EnesFreedom](https://twitter.com/EnesFreedom?ref_src=twsrc%5Etfw) today!
+> 
+> He’s shown enormous courage—and has paid a personal price for—standing up & calling out the atrocities & genocide of the Chinese Communist Party.
+> 
+> The [@nba](https://twitter.com/NBA?ref_src=twsrc%5Etfw) values CCP $$ more than Justice or human rights & so at age 29 no team will let him play. [pic.twitter.com/6UlcYf9EOg](https://t.co/6UlcYf9EOg)
+> — Ted Cruz (@tedcruz) [February 16, 2022](https://twitter.com/tedcruz/status/1494032026420273162?ref_src=twsrc%5Etfw)
+
+
+
+参议员玛莎.布莱克本：
+当我为埃内斯勇敢地与共产主义中国抗争鼓掌时，我没想到他会站得这么高！
+
+感谢您大声疾呼并追究中共的责任，感谢您今天与我们共进午餐，埃内斯 @EnesFreedom。
+
+
+
+> When I applauded Enes for his courage to stand up to Communist China, I didn’t think he’d be standing this tall!
+> 
+> Thank you for speaking up and holding the CCP accountable, and thank you for joining us at lunch today, [@EnesFreedom](https://twitter.com/EnesFreedom?ref_src=twsrc%5Etfw). [pic.twitter.com/OlqowUtc9B](https://t.co/OlqowUtc9B)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [February 16, 2022](https://twitter.com/MarshaBlackburn/status/1494077108833996810?ref_src=twsrc%5Etfw)
+
+
+
+众议院迈克·麦考尔：
+
+历史将把 2022北京作为耻辱铭记。虽然 #中共 迫切希望人们在奥运期间以积极的眼光看待其政权，但美国人应该将目光转向中共长期践踏人权的历史。这就是北京2022的真实故事。
+【转休斯顿纪事推文：尼基·海利，迈克·麦考尔：当你观看北京奥运时你不会看到的是什么】
+
+
+
+> History will remember [#Beijing2022](https://twitter.com/hashtag/Beijing2022?src=hash&amp;ref_src=twsrc%5Etfw) as a disgrace. While the CCP desperately wants people to see its regime in a positive light during the games, Americans should turn its gaze instead to the CCP’s long history of human rights abuses. That’s the true story of [#Beijing2022](https://twitter.com/hashtag/Beijing2022?src=hash&amp;ref_src=twsrc%5Etfw). [https://t.co/cWm5lw4mfR](https://t.co/cWm5lw4mfR)
+> — Michael McCaul (@RepMcCaul) [February 16, 2022](https://twitter.com/RepMcCaul/status/1494066290834747396?ref_src=twsrc%5Etfw)
+
+
+
+美前国务卿迈克·蓬佩奥：
+我希望你们和我一起祈祷，在东欧和平面临挑战之际，祈祷我们的世界领导人拥有智慧、耐心和力量。
+
+
+
+> I hope you will join me in praying for our world leaders to have wisdom, patience and strength, as this challenge to peace in Eastern Europe unfolds. [https://t.co/QYne2i1Z4b](https://t.co/QYne2i1Z4b)
+> — Mike Pompeo (@mikepompeo) [February 16, 2022](https://twitter.com/mikepompeo/status/1494081371635167240?ref_src=twsrc%5Etfw)
+
+
 
  
 

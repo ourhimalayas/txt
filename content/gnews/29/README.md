@@ -2,32 +2,70 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年2月16日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2017977/)
+## 中共国大使馆可能掌握俄罗斯入侵日期的线索
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2018003/)
 
-作者：香草山翻译部
+翻译：文扬
+编辑：Mttfly
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO-1.jpg)
+**【雅典娜观察】与您一起洞察世界**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/中共国大使馆可能掌握俄罗斯入侵日期的线索.jpg)图源：Getty Images
+尽管俄罗斯的军舰、坦克、大炮在紧锣密鼓的调动，但俄罗斯入侵乌克兰的最后一次预告可能发生在中共国驻乌克兰大使馆里。
 
+战争的征兆正在密集而快速地闪现。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-2-1.png)
-校对：Stay文苑
+俄罗斯动员了大规模的野战医院和调配血液供应。针对乌克兰政府的网络攻击正在准备中。急需维护的轰炸机已被部署到准备最少的跑道上。有报道称，军事工程师已经开始在距离乌克兰边境仅8公里的河流上建造一座桥梁。
 
-编辑：Stay文苑
+俄罗斯的入侵蓄势待发，就等普京一声令下。但是，何时入侵还是个未知数。最后的线索可能来自莫斯科唯一重要的朋友和支持者——北京。
 
-发稿：Stay文苑
+迄今为止，中共国一直贬低西方撤离驻乌克兰大使馆的做法。
 
-新闻：[https://gtv.org/broadcast/watch/620da5f3432ae869226e07c3](https://gtv.org/broadcast/watch/620da5f3432ae869226e07c3)
-访谈：[https://gtv.org/broadcast/watch/620dae96432ae869226e0cc8](https://gtv.org/broadcast/watch/620dae96432ae869226e0cc8)
+中共大使馆工作人员仍留在乌克兰首都基辅。尽管许多军事分析家认为这是弗拉基米尔·普京总统建立傀儡政府计划的重要部分。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-1.png)
+澳大利亚已经撤离了其工作人员。美国已将其外交官转移到离北约成员国波兰边境更近的一个乌克兰城市。英国、德国、立陶宛、日本、新西兰和荷兰也已敦促其国民立即离开。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+迄今为止，中共国一直保持着沉默的态度。
+
+中共国“战狼”外交官支持普京总统的路线，即普京无意入侵。但北京没有提供动员15万俄罗斯前线部队的其他理由。莫斯科也没有。这使中国国民和中共使馆人员无所适从。
+
+#### **北京因素**
+
+北京和莫斯科之间新兴的权力轴心是对抗华盛顿的关键力量。在本月早些时候的会议上，两人批评了“外部势力企图破坏共同毗邻地区的安全与稳定”。
+
+他们宣布，两国之间“没有合作的禁区”。但是，任何中共大使馆涉及乌克兰的举动都会使俄乌关系更加紧张。
+
+中共国支持俄罗斯所谓的“安全担忧”。它支持北约取消拉脱维亚、立陶宛、爱沙尼亚和罗马尼亚等前苏联集团国家的成员资格。北约部队应撤至1997年之前的阵地。乌克兰不应该有权独立解决自己的“安全问题”。
+
+这一立场引起了美国的批评。
+
+五角大楼发言人约翰·柯比（John Kirby）表示，北京对莫斯科的“默许”“令人深感震惊”。他补充说：“他们2月4日的联合声明无疑提供了进一步的证据，表明中共国已决定在欧洲发生的事情上与俄罗斯站在一起。”
+
+但北京对普京战争的想法故作镇定，继续装模做样。
+
+外交部发言人汪文斌周二表示，“我们呼吁各方保持理性，不要采取可能导致紧张局势升级、渲染和炒作危机的举动。我们认为各方应切实遵守明斯克二号协议，通过对话谈判，为乌克兰危机及相关问题的全面解决而努力。”
+
+汪文斌猛烈抨击澳大利亚总理斯科特·莫里森（Scott Morrison），指责其关于北京对莫斯科的战争准备“保持沉默”的言论。
+
+他说：“我们敦促澳大利亚方面放弃冷战思维和意识形态偏见，停止发表会使紧张局势升级的好战言论。这种通过鼓吹对抗来寻求自私的政治利益的行为是不道德的，也是危险的。”
+
+#### 乌克兰与台湾
+
+中共外交部发言人所谓理性善意的言论，实则司马昭之心。中共认为莫斯科所谓“安全担忧”与“为实现中华民族伟大复兴”而统一台湾有相似之处。
+
+普京把乌克兰当作在历史上是俄罗斯的一部分。不会说俄语的乌克兰人不同意。
+
+习近平认为台湾在历史上是中华人民共和国的一部分。但台湾是中华民国最后一片领土，中华民国从未向共产党投降过。
+
+参考新闻：[China’s embassy staff remaining in Kiev shows solidarity with Russia | news.com.au — Australia’s leading news site](https://www.news.com.au/technology/innovation/military/chinas-embassy-could-hold-the-clue-to-russia-invasion-date/news-story/b799dbe84a283ec9a56b0a5d913d3c09)
+
+*发布：Mttfly*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

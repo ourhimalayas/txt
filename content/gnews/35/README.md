@@ -2,21 +2,26 @@
 ---
 
 
-## 研究发现中共APP抖音可以绕过苹果和谷歌的隐私保护访问用户数据
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2017707/)
+## 安省将提前解禁并取消疫苗护照
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2017838/)
 
-撰稿/翻译：zzballack
-上传：追着曙光跑
+加拿大温哥华杨帆农场 枫叶快讯
 
-据《布雷特巴特新闻网》（Breitbart News）2月16日报道，《The Wrap》报道说，最近的两项研究显示，抖音可以绕过苹果和谷歌应用商店的安全保护措施，完全访问用户数据。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-17-at-10.38.18.jpeg)图片来源：原新闻
-这些研究在2020年11月和2021年1月完成。研究摘要表明，抖音能够绕过苹果和谷歌应用商店的代码审计。另外，抖音能够在用户不知情的情况下改变应用程式的行为，并访问设备追踪功能，使中共公司和第三方能够获得全部用户数据。
+采编：青青         编辑撰稿：苦尽甜来 (文來）
 
-这远远超过了脸书和推特等美国应用程式对用户数据的访问。网络安全公司Conquest Cyber的网络威胁工程师弗兰克·洛克曼（Frank Lockerman）在审查了这些研究后表示：“这些动态属性允许抖音在应用程式可以看到的范围内全权访问你的设备，抖音浏览器不仅拥有从网络到设备的转换权限，它还可以查询设备本身的东西。”
 
-尽管抖音声称其方法是标准的，但研究人员和专家说，该应用程式的代码使其更难监控。一项研究指出：“从后果上看，应用程式今天不做坏事，并不意味着它在未来不会做坏事。”
+![卡车司机车队抗议议会](https://www.ctvnews.ca/polopoly_fs/1.5780301.1644848006!/httpImage/image.jpg_gen/derivatives/landscape_960/image.jpg)图片来源：ctv
 
-信息来源： [China’s TikTok Can Bypass Apple and Google Privacy Protections, Access User Data](https://www.breitbart.com/tech/2022/02/16/study-chinas-tiktok-can-bypass-apple-and-google-privacy-protections-access-user-data/)
+
+据加拿大【CTV新闻】2月14日报道，安大略省将于2月17日提前四天执行重新开放计划的下一步，并将在3月初取消在公共场所强制使用疫苗接种证明的规定。
+
+报道称，在该省首席卫生官的建议之下，自 2 月 17 日起，社交聚会限制将增加到室内 50 人和室外100人。包括餐厅、健身房和电影院等大多数需要疫苗护照的室内公共场所将取消容量限制。 此外，魁北克卫生部长2月15日也宣布，该省的大型商业场所以及酒类和大麻专卖店将在翌日废除疫苗护照规定。并将分阶段，分场合逐步停止实施所有疫苗护照政策，直至3月14日前完全被取消为止。但省政府未对在大多数室内环境中强制配戴口罩的规定进行任何更改。
+
+校对编辑：硫酸羟氯喹64
+
+发文：青青
+
+原文链接：[Ontario to speed up reopening, will lift COVID-19 vaccine passport in March | CTV News](https://toronto.ctvnews.ca/ontario-to-lift-vaccine-passport-in-march-next-phase-of-covid-19-reopening-to-begin-early-1.5780257)
 
  
 

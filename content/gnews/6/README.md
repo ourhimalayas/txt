@@ -2,22 +2,30 @@
 ---
 
 
-## 渥太华警察局长在自由车队抗议浪潮下辞职
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2018146/)
+## 美指责中共国未履行承诺 将促其改变经贸行为
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2018240/)
 
-加拿大温哥华杨帆农场 枫叶快讯
+![资料照：美国贸易代表戴琪](https://gdb.voanews.com/35FC463E-0E71-475E-98AD-EFE9D6CC3A46_w1023_r1_s.jpg)资料照：美国贸易代表戴琪
+据美国之音2月16日报道，美国贸易代表办公室16日向国会提交中共国自2001年加入世贸后有关遵守世贸组织规则的年度评估报告。指责中共国没有履行加入世界贸易组织的承诺，没有向外国竞争者开放市场。报告列举了中共国种种不公平的经贸行为，以及中共国未能履行美中第一阶段贸易协议。
 
-采编： UCool 优酷       编译撰稿：文明(添草灭共)
-![BREAKING: Ottawa Police Chief resigns](https://imgcache1.thepostmillennial.com/content/images/2022/02/ARTICLE-PHOTO--37--1-1.jpg)图片来源：thepostmillennial.com crypto
-据加拿大自媒体【后千禧年】2月15日报道，在卡车司机集结于渥太华市中心进行抗议活动的第 19 天，该市警察局长[斯洛利]宣布辞职。 报道称，[斯洛利]不久前还曾表示要争取更多警力和资源来结束抗议活动，并且没有任何辞职的计划。虽然未透露原因，但外界普遍认为该局长在全国“自由车队”反疫苗护照的浪潮下，承受着巨大压力。
+美国前总统川普2020年1月与中共达成第一阶段贸易协议，对中共国价值3600亿美元的进口产品征收关税，中方承诺增加购买美国的农产品。但中共国未能兑现承诺，只完成了承诺的57%。美方表示要寻找新的战略及更新国内贸易手段，对抗中共国由国家主导的非市场政策和经济行为。
 
-此前，渥太华警方因参与冻结卡车司机的筹款而被各方谴责。对此，“宪法自由司法中心”不仅指出抗议活动没有扰乱秩序，还抨击了警方对和平集会的污名化没有任何事实和证据。但当局以恢复秩序为借口，企图剥夺加拿大人在首都行使《宪章》所规定的自由表达、结社以及和平集会的基本权力。
+如果用西方遵循的兑现承诺、履行职责等等作为与中共交往的原则，收获的永远是失望。除了偷你的没商量、拿你的不通报，中共说过的话连标点符号都不能信。为了达到目的，中共可以欺骗全世界；为了毁掉契约，中共可以翻脸不认人。答应好的贸易协定没有完成，制定方案，采取措施，打击中共，打疼了中共才会长记性。
 
-校对编辑：硫酸羟氯喹64
+新闻参考链接：[https://www.voachinese.com/a/ustr-says-new-trade-tools-needed-to-fight-china-state-led-trade-20220216/6444187.html](https://www.voachinese.com/a/ustr-says-new-trade-tools-needed-to-fight-china-state-led-trade-20220216/6444187.html)
 
-发文：青青
+编辑：胖丁
 
-原文链接：[https://thepostmillennial.com/breaking-ottawa-police-chief-resigns-source](https://thepostmillennial.com/breaking-ottawa-police-chief-resigns-source)
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
