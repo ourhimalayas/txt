@@ -2,22 +2,25 @@
 ---
 
 
-## 北京冬奥会2月16日上午出现可怕一幕，又一位运动员瘫倒在地，突发心血管病
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2020685/)
+## 樱花FM┃谭德塞与李克强会面 欲勾兑中共病毒溯源
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2020799/)
 
-#### 翻译                          意大利达芬奇农场                  小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-17-alle-12.00.56.png)图片来源：avversinews.it
-上个星期天挪威世界冠军英格丽德•坦德雷沃尔德( Ingrid Tandrevold )在快要接近终点时所发生的一幕， 2月16日早上在4×6 冬季两项接力赛中又出现了。
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-3-4.png)
+世界卫生组织WHO秘书长谭德塞2月5日与中共国务院总理李克强会面，讨论中共病毒（新冠病毒COVID-19）相关议题，其中也包括针对疫情起源的调查，勾兑痕迹明显。
 
-在2022年冬奥会举办地张家口的雪地上，女子团体预赛于北京时间15点45分开始，对运动员来说，幸运的是，气温没有前几天那么令人望而生畏。瑞士队是有望夺冠的。
+谭德塞发文说：“很高兴与李克强总理会面，我们讨论了中共病毒（新冠病毒COVID-19）以及今年在疫苗平权（Vaccine Equity）计划上积极努力，好让全球70%人口接种疫苗。”他补充道：“我们也讨论了在中共病毒溯源一事上加强合作的必要性，而这一切都将建立在科学与证据的基础之上。”
 
-问题出在女子4×6公里冬季两项的接力赛，瑞士队比赛只进行了几分钟。由于呼吸问题，第一棒选手，伊雷妮•卡杜里施（Irene Cadurisch）不得不在传递接力棒之前放弃比赛，她被用担架抬离现场并送往医疗站。从而提前结束了瑞士队的比赛。
+WHO与中共长期勾结，由其发起的溯源调查根本就是为中共洗地。而中共病毒最早于2019年底在中共国武汉市出现，中共当局为故意放毒。
 
-这次比赛瑞典队夺得金牌。据瑞士网站报道30岁的伊雷妮•卡杜里施可能是心血管出了问题。
+文字版原文：
 
-原文链接：[https://www.eventiavversinews.it/olimpiadi-di-pechino-momenti-terribili-anche-stamattina-16-febbraio-unaltra-atleta-e-crollata-a-terra-stamattina-problemi-cardiovascolari-improvvisi-per-irene-cadurish/](https://www.eventiavversinews.it/olimpiadi-di-pechino-momenti-terribili-anche-stamattina-16-febbraio-unaltra-atleta-e-crollata-a-terra-stamattina-problemi-cardiovascolari-improvvisi-per-irene-cadurish/)
+[谭德塞与李克强会面 欲勾兑中共病毒溯源](https://gnews.org/zh-hans/1964467/)
 
-编辑、上传： Xiao  baige
+编辑：东京樱花团/asket
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
 
  
 

@@ -2,37 +2,25 @@
 ---
 
 
-## 有声|印中贸易地位不对等引发国家安全担忧
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2020796/)
+## 樱花FM┃联合国秘书长：希望北京允许人权特使访新疆
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2020894/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-当地时间2月14日，据印度媒体报道，在进出口贸易方面，中共国2021年对印度的总出口额高达975亿美元，而印度对中共国的总出口额仅为281亿美元，后者尚不足前者的30%。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E6%88%AA%E5%B1%8F2022-02-16-%E4%B8%8B%E5%8D%8812.27.18.png)
-资料显示，自中共病毒疫情爆发以来，印度大规模地增加了对中共国医疗设备和相关医疗源材料的进口，这也使得印度当地的外汇储备加速外流。尤其在2021年，中共国的贸易顺差达到了创纪录的六千七百六十亿美元，而这一极为不平衡的数字对印度，甚至对全球都造成了巨大的威胁。
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-5-2.png)
+联合国表示，秘书长古特瑞斯（Antonio Guterres）2月5日告诉北京领导人，希望当局允许联合国人权事务高级专员巴舍莱到中共国进行“可信的”访问，包括停留新疆。
 
-对此，报道指出，于中共而言，此种极具差异的双边贸易关系导致了印度不可避免的附庸地位，而这正是中共政府迫切需要的政治筹码。据悉，中共一直以来都在企图通过控制金融，进而侵犯印度的国家安全、经济和完整主权。
+根据联合国提供的会谈内容，古特瑞斯在北京冬季奥运场边与中国国家主席习近平和外交部长王毅会面时，对两人表示：“期望联合国人权事务高级专员公署（Office of the UN High Commissioner for Human Rights, OHCHR）与中国当局的接触，能促成人权事务高级专员到中国进行可信的访问，包括新疆”。
 
-为此，该媒体强调，印度当下必须严格警惕境内的中资公司，特别是那些非银行金融公司在印度采取的大规模欺诈行为，从而避免中共进一步劫持新德里的金融和商业，更需杜绝政府因贸易而丢失印度领土的可能性。
+而中共新华社发出的会谈新闻并未提及人权议题。
 
-文字版原文：[印中贸易地位不对等引发国家安全担忧](https://gnews.org/zh-hans/2016052/)
+文字版原文：
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+[联合国秘书长：希望北京允许人权特使访新疆](https://gnews.org/zh-hans/1964448/)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+编辑：东京樱花团/asket
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
