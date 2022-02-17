@@ -2,8 +2,8 @@
 ---
 
 
-## 西方世界一定会将乌克兰、疫苗事件推给中共国
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2017288/)
+## 七哥宣布三件大事
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2017484/)
 
 #### 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王 视频定位：BENJ1，WEI
 

@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：盖特
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2017403/)
+## 七哥金句：大陆和台湾人
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2017585/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句5-7.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句7-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句9-1.jpg)
 整理：雅典娜农场
 发布：枫叶红了
 

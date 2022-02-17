@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：信仰，喜币，传播真相
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2017356/)
+## 七哥金句：共党在海外安排的组织
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2017543/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句1-6.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句2-8.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句3-6.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句4-7.jpg)
 整理：雅典娜农场
 发布：枫叶红了
 

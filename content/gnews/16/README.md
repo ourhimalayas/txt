@@ -2,56 +2,25 @@
 ---
 
 
-## 有声|共产党你完蛋了！
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2017279/)
+## 【秘翻在线】美国谴责中共未履行其世贸组织承诺
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2017483/)
 
-作者：香草山福音部-melisa/录音-黎明曙光
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-今天看到七哥盖特
+#### 翻译/撰稿：zzballack
 
-宣布破产这一智慧的决定
+#### 校对：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1616.png)       图片来源：日经亚洲
+据《新闻极限》（Newsmax）2月16日报道，本周三（2月16日），美国贸易代表办公室（USTR）发布了有关中共自2001年加入世贸组织后、履行相关承诺情况的年度报告。他们在报告中谴责中共没有兑现其加入WTO时向外国竞争开放市场的承诺，并呼吁拜登政府采取措施，以应对中共由国家主导的非市场政策和经济行为。
 
-心中非常敬佩七哥
+美国贸易代表戴琪（Katherine Tai）在声明中说：“相反，中共保留并扩大了国家主导的非市场经济和贸易方式。中共的政策和行为挑战了世贸组织规则的前提，对世界各地的工人和企业造成了严重伤害，特别是在中共产业计划中所针对的行业。”
 
-七哥从中共国出来那一刻开始
+报告列举了中共不公平的经贸行为：利用补贴和法规，以牺牲外国竞争者为代价，偏袒本国公司；用廉价的钢铁、铝和其他产品充斥世界市场；迫使美国和其他外国公司交出宝贵的技术以换取进入中国市场。中共长期无视并规避世贸组织规则，以及采取不公平、非市场与扭曲的贸易政策，并企图阻扰世贸组织监督机制。报告写道，中共领导层似乎对由政府主导的非市场经济和贸易政策信心十足，并认为没有必要遵守全球规则。
 
-头也不回灭共
+美国贸易代表办公室建议，美国必须更新现有的国内贸易法规，以应对中共当前的贸易政策。拜登政府会继续寻求与中共的双边接触，并采取更明确的国内贸易措施，确保美国劳工与企业有更公平的竞争环境；同时与盟友更紧密合作，并通过世贸组织向中共政府施加压力。
 
-决心已在心中以坚定不移
+评估报告还指出，中共未达成与前总统川普政府签署的“美中第一阶段贸易协议”的采购目标。彼得森国际经济研究所(Peterson Institute for International Trade)上周的一份报告指出，中共只购买了其承诺的美国出口产品的57%。
 
-因为七哥有相仰
+新闻来源：[US Accuses China of Backing Away From Free-trade Commitments](https://www.newsmax.com/streettalk/china-u-s-trade-wto/2022/02/16/id/1057063/)
 
-有勇敢的心有天下举世无双的智慧
-
-共产党你算什么
-
-七哥早就找到了灭共的金钥匙
-
-处处都点到共产党的死穴
-
-七哥的人格魁力
-
-七哥的人脉
-
-七哥的世界影响力
-
-闻名于天下
-
-新中国联邦人定用核导弹
-
-把中南坑的老杂毛们炸得纷腾漓稀
-
-共产党你完蛋了
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
-音频处理/编辑/发稿：Daxia
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

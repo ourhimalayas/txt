@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：人生什么最重要？
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2017426/)
+## 七哥金句：共党种下的毒瘤
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2017597/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句6-3.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句8-1.jpg)
 整理：雅典娜农场
 发布：枫叶红了
 

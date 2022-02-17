@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/17/2022 1:19 AM (UTC)`
+
+2/16/2022  STATEMENT OF MILES GUO REGARDING BANKRUPTCY FILING<br/><br/>2022年2月16日 郭文贵关于个人破产申请的声明
+![img](https://media.gettr.com/group31/getter/2022/02/17/01/7a683c3a-1f35-4486-a24e-6dff201c7515/out.jpg)
+
+---
+
 `@miles 2/17/2022 12:27 AM (UTC)`
 
 加拿大卡车司机：加拿大总理特鲁多的《紧急状态法》不会阻止他们。暂停他们的保险没有任何作用，他们没有打疫苗，唯一能说服他们离开的就是他们重获权利和自由。<br/><br/>Canadian truck drivers: Trudeau invoked this Emergencies Act won’t stop them. Suspend their insurance doesn’t do anything. They are not vaccinated, and the only thing that's gonna convince them to leave is getting their rights and freedoms back.
@@ -145,13 +152,6 @@
 
 2/13/2022 Miles Guo: Why do I insist on filing for personal bankruptcy? Since I made up my mind to take down the CCP in 1989, I have never cared about my reputation. I only care about my fellow fighters!<br/><br/>2/13/2022 文贵直播：为什么文贵坚持要申请个人破产？自从1989年下定决心开始灭共以来，文贵就没有在乎过自己的羽毛，文贵只在乎战友们！
 ![img](https://media.gettr.com/group46/getter/2022/02/14/22/3a7d6366-ccf0-ec6c-fcf7-084fc251f51d/out.jpg)
-
----
-
-`@miles 2/14/2022 10:14 PM (UTC)`
-
-2/13/2022 Miles Guo: All fellow fighters of the Whistleblowers’ Movement are the terminators of the CCP without getting the COVID jabs. Not getting vaccinated against COVID is inextricably linked to taking down the CCP wholeheartedly. We will become the unvaccinated who successfully take down the CCP once we destroy it, and that will be the highest honor in everyone’s life!<br/><br/>2/13/2022 文贵直播：爆料革命战友们都是“无苗灭共者”，不打疫苗和一心灭共紧密关联；如果我们灭了共，我们就是“无苗灭共成功者”，这对大家是一生的荣光中的荣光！<br/>
-![img](https://media.gettr.com/group10/getter/2022/02/14/22/7bd132f2-72fd-1c44-ee53-09ae42619afc/out.jpg)
 
 ---
 

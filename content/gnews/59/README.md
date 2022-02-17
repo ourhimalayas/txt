@@ -2,22 +2,36 @@
 ---
 
 
-## 美政府承认新中国联邦是中国人民的选择
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1948068/)
+## 美科学家称中共病毒来自武汉病毒研究所
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2012234/)
 
-采编：Quitman       编辑撰稿：硫酸羟氯喹64
-![](https://assets.gnews.org/wp-content/uploads/2022/02/06-image.png)
-据GTV和盖特近日新闻报道，班农先生在接受[新中国联邦]采访时指出：美国政府授权立即撤出驻北京大使馆所有外交人员的举动，是爆料革命迈出的巨大且具有里程碑意义的一步。这充分说明[新中国联邦]是中国人民的最佳选择。
+作者：纽约磐石农场—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月10日，据盖特消息显示，美国国会众议员斯卡里斯在接受采访时表示，那些支持中共病毒实验室起源的科学家们应该针对病毒溯源问题前往国会作证。
 
-对于郭文贵先生代表[新中国联邦]致拜登总统和布林肯国务卿的感谢信，班农指出，该外交信函的正式递交意义重大，充分表明[新中国联邦]已被美国政府所认可。并表示美国政府的该决定不仅是与中共彻底断绝外交关系的开始，也是重启“新冠病毒”溯源，调查武汉病毒研究的开始。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide5-10.jpeg)
 
-此外，班农还鼓励所有[新中国联邦]人，应该继续在GNews和GTV上不断揭露中共举办冬奥会的邪恶目的。并让全世界人民都知道，中共是一个跨国犯罪组织，是不能代表中国人民的非法政权。
+斯卡里斯提到，他在与其他议员调查中共病毒起源时发现，包括福奇的高级顾问在内的许多科学家都认为中共病毒来源于武汉病毒研究所。然而，在他们参与了福奇召开的电话会议后，这些学科家们纷纷转变了态度。同时，大多数与会科学家在其后的时间里陆续获得了数百万美元的联邦拨款。
 
-校对编辑：硫酸羟氯喹64
+斯卡里斯强调，美国政府应该就中共病毒起源问题举行国会听证会，而这些改口的科学家们也必须在听证会上接受质询。即使佩洛西议长一直阻挠该听证会的举行，但众议院一定会挖出有关中共病毒来源的真相。
 
-发稿： 苦尽甜来 (文来）
+参考链接：
+[https://gettr.com/post/ptm6ez6d3a](https://gettr.com/post/ptm6ez6d3a)
 
-新闻连接：[https://gettr.com/post/pr1kny4943](https://gettr.com/post/pr1kny4943)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+
+总编：Irene木木
+编辑：宁文静
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 
  
 

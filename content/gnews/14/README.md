@@ -2,55 +2,27 @@
 ---
 
 
-## 文•贵天成——文贵先生谈“蓝、金、黄”计划（十一）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2017295/)
+## 有声|新中国联邦新闻、GTV新闻访谈简报|2022年2月15日晚
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2017486/)
 
-整理：BENJ1
-编辑：Kelly
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/为取悦中共.jpg)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/fengmian0216-1.jpg)图片来源：墨尔本雅典娜设计组614
+文字版原文：[新中国联邦新闻、GTV新闻访谈简报|2022年2月15日晚](https://gnews.org/zh-hans/2011724/)
 
+音频处理：Fei797
+发稿：Fei797
 
-郭文贵先生**2017**年**10**月**5**日直播
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
 
-我觉得哈德逊（演讲）的事情，完全没有原则、没有规则地被取消，证明了这个文件和我以前提到的中共盗国贼有完整的BGY计划，叫 “蓝金黄”。他们用 “蓝金黄” 来控制和渗透世界，已无处不在，昨天在哈德逊的事情就充分证明了这一点。
-
-这个BGY项目事实上就包含了VOA的这个事情，是他们蓝金黄的一部分，我不想多说VOA断播事件是蓝金黄成功的结果。最重要的是，你在我家采访的时候，我从来不知道有一个人叫张晶，当时你就在我家，一直在接电话。安全部的领导给我打了一个电话说：“文贵，不会让你们直播成功的，一定会失败。”我当时很惊讶，他说：“我们已经动用了一切沉默的力量。”
-
-郭文贵先生**2017**年**10**月**8**日直播
-
-中共国还有什么是真的？还有什么能信的？吴征、杨澜，你竟然对美国现在所有的大集团，以给中国市场机会（为诱饵）公然的BGY蓝金黄，你这是假蓝金黄。蓝金黄已经够可怕了，你吴征、杨澜夫妇的假蓝金黄，骗法国人、骗香港人、骗新加坡人、骗马来西亚人、骗菲律宾，把菲律宾的总统威胁、控制、蓝金黄得彻底成功。
-
-郭文贵先生**2017**年**10**月**12**日直播
-
-推友们，大家要明白很多话我现在不能说、不能讲。我要是真讲出来，我要是把潘多拉盒子打开一个口，十九大绝对开不成！郭文贵有没有这个本事，党中央知道，当事人知道。我跟美国的有关部门说，我不想去开这个盒子，我也不想说，（这个情报）你们也抢不走。我要是讲了，世界大乱！
-
-蓝金黄计划重要的执行者就是李东、孙立军和孟建柱，它对美国、欧洲、日本等西方世界、法制世界的威胁超出你们的想象，对美国的3F方案远远超出你们的想象。你可以从郭文贵的各种事件中看得出来，但是它不代表中国人民，蓝金黄、3F方案不代表中国人民，也不代表习主席，不代表中国政府，我首先这么说。但是随着事情的发展，真相会越来越多。
-
-资料来源：郭先生GTV和盖特直播视频
-
-往期回顾：
-[文·贵天成——文贵先生谈“蓝、金、黄”计划（一）](https://gnews.org/zh-hans/2008275/)
-[文·贵天成——文贵先生谈“蓝、金、黄”计划（二）](https://gnews.org/zh-hans/2008300/)
-[文·贵天成——文贵先生谈“蓝、金、黄”计划（三）](https://gnews.org/zh-hans/2008496/)
-[文•贵天成——文贵先生谈“蓝、金、黄”计划（四）](https://gnews.org/zh-hans/2008314/)
-[文•贵天成——文贵先生谈“蓝、金、黄”计划（五）](https://gnews.org/zh-hans/2008332/)
-[文•贵天成——文贵先生谈“蓝、金、黄”计划（六）](https://gnews.org/zh-hans/2008361/)
-[文•贵天成——文贵先生谈“蓝、金、黄”计划（七）](https://gnews.org/zh-hans/2008344/)
-[文•贵天成——文贵先生谈“蓝、金、黄”计划（八）](https://gnews.org/zh-hans/2012933/)
-[文·贵天成——文贵先生谈“蓝、金、黄”计划（九）](https://gnews.org/zh-hans/2013014/)
-[文•贵天成——文贵先生谈“蓝、金、黄”计划（十）](https://gnews.org/zh-hans/2017262/)
-
-发布：tianzhihuan
-
-**
-**更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
