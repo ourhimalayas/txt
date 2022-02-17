@@ -15,44 +15,44 @@
 
 ---
 
-### [七哥金句:新中国联邦的孩子](/content/gnews/1/README.md)
+### [七哥金句:别把善意当屈服](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [FBI 组建数字货币部门，司法部任命新的加密货币检察官](/content/gnews/2/README.md)
+### [七哥金句:要有信仰,万物是有主的](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥金句:七哥谈为人](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥金句:什么叫善?什么叫恶?](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥金句:新中国联邦的孩子](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [FBI 组建数字货币部门，司法部任命新的加密货币检察官](/content/gnews/6/README.md)
  ` Shuizhuyu`
 
-### [七哥金句:坚持灭共,为真不破](/content/gnews/3/README.md)
+### [七哥金句:坚持灭共,为真不破](/content/gnews/7/README.md)
  ` 雅典娜GNotes`
 
-### [七哥金句:共党干掉所有不可控因素](/content/gnews/4/README.md)
+### [七哥金句:共党干掉所有不可控因素](/content/gnews/8/README.md)
  ` 雅典娜GNotes`
 
-### [七哥金句:勇士必备素质](/content/gnews/5/README.md)
+### [七哥金句:勇士必备素质](/content/gnews/9/README.md)
  ` 雅典娜GNotes`
 
-### [七哥金句: 爱和感恩](/content/gnews/6/README.md)
+### [七哥金句: 爱和感恩](/content/gnews/10/README.md)
  ` 雅典娜GNotes`
 
-### [秘翻在线: 俄国驱逐美国大使馆二号人物](/content/gnews/7/README.md)
+### [秘翻在线: 俄国驱逐美国大使馆二号人物](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [七哥金句:中共国出口面临的困难](/content/gnews/8/README.md)
- ` 雅典娜GNotes`
-
-### [换汤不换药的孔子学院奖学金](/content/gnews/9/README.md)
+### [换汤不换药的孔子学院奖学金](/content/gnews/12/README.md)
  ` 纽约香草山MOS03`
 
-### [七哥金句：不灭共什么都好不了](/content/gnews/10/README.md)
- ` 雅典娜GNotes`
-
-### [七哥金句：新中国联邦未来三个核心](/content/gnews/11/README.md)
- ` 雅典娜GNotes`
-
-### [联邦调查局组建数字货币部门，司法部启用新的加密货币执法团队](/content/gnews/12/README.md)
+### [联邦调查局组建数字货币部门，司法部启用新的加密货币执法团队](/content/gnews/13/README.md)
  ` 温哥华扬帆农场`
-
-### [醉驾超速撞死华人的烈市女司机假释出狱](/content/gnews/13/README.md)
- ` MG FARM`
 
 ### [2022年2月16日 《文贵大直播》全文字版](/content/gnews/14/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`

@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句:坚持灭共,为真不破
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2021999/)
+## 七哥金句:七哥谈为人
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2022041/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句2-.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句2-1-1.jpg)
 整理:雅典娜农场
 发布:枫叶红了
 

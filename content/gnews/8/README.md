@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句:中共国出口面临的困难
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2021965/)
+## 七哥金句:共党干掉所有不可控因素
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2021990/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句-.jpg)
 整理:雅典娜农场
 发布:枫叶红了
 

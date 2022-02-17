@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句:勇士必备素质
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2021979/)
+## 七哥金句:新中国联邦的孩子
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2022012/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句1-12.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句3-.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句1-.jpg)
 整理:雅典娜农场
 发布:枫叶红了
 

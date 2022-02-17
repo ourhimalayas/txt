@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句:共党干掉所有不可控因素
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2021990/)
+## 七哥金句:什么叫善?什么叫恶?
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2022029/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句-.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句1-01-1.jpg)
 整理:雅典娜农场
 发布:枫叶红了
 

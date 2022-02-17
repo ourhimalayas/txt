@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/17/2022 9:37 PM (UTC)`
+
+2/17/2022 Miles Guo’s GETTR: The CCP virus rampages in the CCP-occupied Hong Kong, with the medical system collapsing and the Hong Kong police turning into Hong Kong Popo. Accomplices of the CCP atrocities in Xinjiang and Tibet will get their retribution. The fellow fighters have successfully promoted the Himalaya Pay in Japan, Brazil, Spain, and Russia, with the food chain business benefiting the most.<br/><br/>2/17/2022 文贵盖特：中共独占的香港病毒肆虐、医疗系统崩溃、警察成黑警；中共在新疆和西藏暴行的帮凶将遭到天谴；战友们在日本、巴西、西班牙和俄罗斯成功推广了喜支付，食品链获益匪浅<br/>
+![img](https://media.gettr.com/group5/getter/2022/02/17/21/258897ab-b9f8-420f-c13b-bd3612694fde/out.jpg)
+
+---
+
 `@miles 2/17/2022 9:20 PM (UTC)`
 
 2/16/2022 Miles Guo: The Himalaya Exchange has become the fourth largest digital currency exchange. The Himalaya Coin is free from looting by third parties and is without borders, with only a limited number of Himalaya coins being issued each year. The Himalaya Exchange is the safest place to keep money in humanity. The bright future brought by the Himalaya Coin is yet to come.<br/><br/>2/16/2022 文贵直播：喜联储已跻身全球第四大数字货币交易所；喜币不受第三方掠夺、无国界限制且每年发行数量有限；喜联储是人类最安全的存钱之地；喜币开启的人类美好未来尚未开始<br/>
@@ -147,13 +154,6 @@
 
 2/16/2022 Miles Guo’s big announcement: 1: Miles will not leave the US in the near future; 2. Himalaya Reserve will launch H-Loan and H-Mortgage, and make a major favorable announcement to the investors soon. 3. Xi Jinping just had surgeries on his spleen and kidney. As the light of “Xi the Sun” is getting dimmer and dimmer, the invasion on Taiwan will be postponed. This is the will of God!<br/><br/>2/16/2022 文贵重大宣布：1. 文贵短期内不可能离开美国；2. 喜联储马上推出贷款和抵押政策，会有重大利好公告！3. 隆重宣布，习近平刚刚做了脾和肾的2个手术，习太阳光芒暗淡，对台湾行动暂缓，这是天意！<br/>
 ![img](https://media.gettr.com/group5/getter/2022/02/16/20/a3316358-6b69-16be-1d8c-7000bf5592e2/out.jpg)
-
----
-
-`@miles 2/16/2022 12:54 PM (UTC)`
-
-2022年2月16日 文贵大直播：疫苗公司股价变化；中国人寿王滨被抓；世界多地反华苗头；冬奥会锁链女后续；太平联盟官司进展；七哥赴日英后安排
-![img](https://media.gettr.com/group19/origin/2022/02/16/12/3e8f4b44-52fd-03f4-f109-b29948e3a090/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
