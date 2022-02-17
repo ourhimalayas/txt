@@ -2,26 +2,22 @@
 ---
 
 
-## 多數人認為特魯多不能勝任國家領導職責
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2018414/)
+## 中共国江浙地区疫情大封锁
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2018437/)
 
-采編撰稿： 薇文                校對編輯：硫酸羥氯喹64
+加拿大温哥华杨帆农场 枫叶快讯
 
-加拿大溫哥華楊帆農場 楓葉快訊
+采编：风云小哥     编译撰稿：文莱
+![Nurses wearing protective face masks enter a community hospital in Shanghai on February 13, 2020. - China's official death toll and infection numbers from the deadly COVID-19 coronavirus spiked dramatically on February 13 after authorities changed their counting methods, fuelling concern the epidemic is far worse than being reported. (Photo …](https://media.breitbart.com/media/2020/02/GettyImages-1200517193-640x480.png)图片来源：布莱特巴特新闻
+据【布莱特巴特新闻】2月15日报道，由于新出现了多起“新冠病毒”感染病例，中共国苏州市政府日前紧急关闭了其大部分医疗服务机构和学校，以试图遏制正在扩散的疫情。 报道称，苏州市在发现新增感染病例之后，已于2月13日暂停了所有医院的急诊医疗服务。并迅速关闭了抗生素，止咳和退烧药物的在线和零售购买业务。目前，该市至少有39个地区被当局全面封锁。
 
+据悉，由于苏州毗邻上海，因此该市突发的疫情随即导致上海于日前暂停了连接这两座城市的所有公交和地铁线路。 对此，文贵先生早前已发出警告称，中共政权必定会利用冬奥会之机，大搞疫情恐怖政策，在全国各地自北向南连续人为传播病毒和实行大封锁，以此满足习近平当局奴役和控制全国的变态统治欲望。
 
-![](https://static.tnc.news/media/2022/01/website-af-29-696x365.jpg)圖片來源：真北方
-據加拿大[真北方]2月16日報道，隨著加拿大自由車隊反抗強製疫苗政策的和平抗議進入第三周，越來越多的加拿大人對總理特魯多的處理方式表示不滿。
+校对编辑：硫酸羟氯喹64
 
-最新民調顯示，53%的加拿大人認為特魯多在面對抗議活動時的拙劣反應，顯示其在國家出現危機時表現出的軟弱無能。其中有63%的人不會根據該總理處置自由車隊事件的方式而再投票給他。
+发文：青青
 
-盡管主流媒體一邊倒地打壓和平抗議運動，但特魯未能借此提升自己的公眾形象。目前僅約30%的加拿大人認可他的表現，而多數人則認為他因激化了社會矛盾而再無資格成為自由黨領袖和聯邦政府總理，並應該對目前出現的危機負責。
-
-校對編輯：硫酸羥氯喹64
-
-發文：青青
-
-原文鏈接：[Poll finds half of Canadians believe Trudeau 「not up for the job」](https://tnc.news/2022/02/15/poll-finds-half-of-canadians-believe-trudeau-not-up-for-the-job/)
+新闻来源：[China Imposes Local Ban on Anti-Cough Drugs, Locks Down City of 10+ Million over Coronavirus (breitbart.com)](https://www.breitbart.com/asia/2022/02/15/china-imposes-local-ban-on-anti-cough-drugs-locks-down-city-of-10-million-over-coronavirus/)
 
  
 

@@ -2,14 +2,18 @@
 ---
 
 
-## 有声|新中国联邦新闻、GTV新闻访谈简报|2022年2月14日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2018387/)
+## 有声|中资企业拟收购澳洲稀土公司
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2018388/)
 
 配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-13.png)
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+2月14日，澳洲媒体报导，中共企业盛和资源正在计划收购澳洲稀土开采公司PEK。
 
+报导称，盛和资源将向私募股权基金Appian Capital收购其持有的19.9% 的PEK股权。目前PEK公司拥有包括在坦尚尼亚恩拉矿区的稀土开采计划，并拥有在英国密得堡的稀土冶炼厂。中资企业如果收购成功，无疑将进一步加大中共在稀土资源上的掌控力量。
 
-文字版原文：[新中国联邦新闻、GTV新闻访谈简报|2022年2月14日晚](https://gnews.org/zh-hans/2006425/)
+有专家表示，当前全球17种稀土元素，有八成的产量来自中共，稀土资源已经成为中共试图控制世界的另一种战略武器。
+
+文字版原文：[中资企业拟收购澳洲稀土公司](https://gnews.org/zh-hans/2009515/)
 
 音频处理：呼吸的雾霾（文小呼吸）
 发稿：呼吸的雾霾（文小呼吸）

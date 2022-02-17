@@ -2,40 +2,42 @@
 ---
 
 
-## 福奇的机构拒绝国会委员会要求其提供武毒所赠款文件
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2018439/)
+## DC大中华时事：中共称在欧亚大棋局地位愈发重要
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2018462/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+*编辑：西北风 / 作图：*hans（文玄）
 
-翻译/编辑：文泓
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/ScreenShot-2021-08-01-at-17.25.09@2x.png)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/11-19.png)图片来源：Vanity Fair
+#   墙国妄语每日驳
+
+### **0**2.15.2022
+
+[境外媒体：香港抗疫体现“一国两制”优势\_参考消息网 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/china/20220217/2469586.shtml)
+
+***简评：***香港给中国改革开放带来了国际技术，资金，人才和广阔的国际市场，曾经的香港影视剧，音乐丰富了几代中国人精神生活，香港是几代中国人梦想生活的样板，1997香港回归大陆，当时年少的我们也都欢呼雀跃，短短十几二十年香港就变成了现在这样悲惨，难道这样一个活生生展现在我们每一个成长过程中的鲜活案例还不能让我们去认识到中共的邪恶本质那我们东方这片土地真是被上天诅咒了。地球人现在都知道中共施放了生化病毒，2019年开始的香港反送中运动中共不是借施放冠状生化病毒给镇压了，冠壮病毒起始不就是因为香港反送中运动吗。现在香港疫情急速发展，那是疫情吗，这不是中共惯用的手段吗，中共自己放病毒，又己病毒疫情为借口加大对香港的管控，自中共出现在中国这片土地上，百年来中共不都是同样的方法来奴役中国老百姓吗。
+
+### 02.15.2022
+
+[港媒：中国在欧亚大棋局地位愈发重要\_参考消息网 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/column/20220217/2469527.shtml)
+
+***简评：***俄罗斯普京还没开打乌克兰呢，中共官宣已经开始自嗨了畅想了，中俄联盟要称霸世界了，如果这仅仅是给国内老百姓宣传洗脑打鸡血那到罢了，如果连这些中共执政者都是这样去认识和思考去构建国家战略，任何一个有在国外学习工作生活经历的人都明白这是愚蠢的不现实的，可极权的中共体制为了权力而你死我活的角斗最终必然为了权力而丧心病狂，行为无法理喻，就像今天的习太阳，毛病不改，积恶成习。
+
+### 02.15.2022
+
+[港刊文章：北京冬奥展现中国巧实力\_参考消息网 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/china/20220217/2469587.shtml)
+
+***简评：***大国的实力，八方来贡，万国来朝，看那花费上万亿美元展现的大国威武，这让墙内老百姓多么热血沸腾，国际世界友人多么啧啧赞叹称奇。可这是真实的中国吗？就像中共不会让你看到对新疆种族大屠杀，对西藏自然资源破坏掠夺，对香港上万青少年的奸杀……看看那个徐州丰县锁链女，那才是真实的中共国，她代表了一个真实的中国。
+
+#   港台资讯
+![](https://media.discordapp.net/attachments/858887785507323904/943728401024417842/1.PNG?width=1043&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/943728437808496689/2.PNG?width=1043&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/943728475196497941/3.PNG?width=1043&amp;height=586)
 
 
-当地时间2月16日，据《国家脉动》报道，美国国立卫生研究院（NIH）一再未能遵守国会要求提供与其与武汉病毒学研究所有关的文件，而是强迫其机构人员“粉碎笔记和其他文件”，文件涉及奥巴马政府时期的美国政府与中共运营的实验室及其与武汉病毒研究所的合作。
 
-共和党众议院监督与改革委员会成员致函卫生与公众服务部(HHS)主任泽维尔·贝塞拉，敦促公布这些文件，**这些文件可能与****新冠病毒的起源高度相关****。**
 
-“HHS和NIH没有对委员会的共和党人保持透明，而是选择隐藏、混淆和掩盖真相，”信中说。
-
-这封信显示，NIH的一名顾问“早在2014年就被NIH强迫要求粉碎了与武毒所赠款有关的笔记和其他文件”。2021年11月5日，一位化名的个人发给委员会工作人员的一封电子邮件显示以下内容：
-
-“我签署了一份保密协议，其中我同意不与任何人讨论任何资助，除非与研究部门的其他成员讨论，并且——一旦会议结束——我将销毁我在会议期间所做的任何笔记（我们确实是将它们扔进会议室的碎纸机中）。”
-
-这封信概述了“迄今为止，HHS和NIH拒绝提供任何回应性文件或信息”。国会一个委员会要求美国国立卫生研究院前主任弗朗西斯·[柯林斯](https://thenationalpulse.com/exclusive/nih-collins-advised-ccp-military-proxy-bgi-genomics/)提供有关2021年5月和7月由安东尼·[福奇的](https://thenationalpulse.com/analysis/exc-navarros-9-indisputable-facts-linking-fauci-to-covid-19-origin/)国家过敏和传染病研究所(NIAID)授予生态健康[联盟](https://thenationalpulse.com/2021/12/23/lancet-editor-admits-daszak-had-significant-conflict-of-interest/)和武毒所的2014年奥巴马时代拨款的文件。
-
-尽管共和党委员会的工作人员一再修改他们的要求，使其范围更广，更容易让联邦机构完成，但两个联邦机构都拒绝交出任何文件。
-
-新闻链接：[U.S. Govt Advisors SHRED Documents Detailing Fauci Agency’s Obama-Era Work With The Wuhan Lab. (thenationalpulse.com)](https://thenationalpulse.com/2022/02/16/nih-refuses-to-comply-with-congressional-doc-request/)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+*编辑：*西北风
+*作图：hans（文玄）
+发布：文顾*
 
  
 
