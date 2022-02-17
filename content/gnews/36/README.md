@@ -2,36 +2,40 @@
 ---
 
 
-## 突发新闻：俄罗斯驱逐美国驻莫斯科副大使戈尔曼
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/2020609/)
+## 美媒指福奇滥用国家权力为中共独裁效力
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2020792/)
 
-![1517293646_0-250-2400-1600_1280x0_80_0_0_55b38bcd0a28b39a21fcce4183e1eb85.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/757B70DF-94A8-4E7A-A9E8-97B750FCB8FB.jpeg)
-2 月 17 日 据俄新社报道，俄罗斯外交使团发言人杰森·雷布霍尔茨（Jason Rebholtz）告诉俄新社，俄罗斯已经驱逐了美国驻莫斯科副大使巴特·戈尔曼。
+作者：银河系农场—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-“戈尔曼是[美国](http://ria.ru/location_United_States/)驻[莫斯科](http://ria.ru/location_Moskva/)大使馆的第二重要官员，仅次于大使，也是大使馆高级领导层的关键成员，”
 
-雷布霍尔茨 告诉该机构，戈尔曼持有有效签证，并且在俄罗斯待了不到三年。
+2月15日，据美国媒体报道，在全球对中共病毒溯源的过程中，福奇及美国其他领域的非民选官僚设置重重阻碍，用以掩盖中共实为病毒起源的事实。
 
-华盛顿认为驱逐这位外交官是一个“升级步骤”，并正在考虑采取报复措施的可能性。
+![圖片](https://media.discordapp.net/attachments/943738468943679518/943893565585620992/0217AM1-11.001.jpeg)
 
-近年来，俄罗斯驻美外交官的工作条件不断恶化。正如俄罗斯大使阿纳托利·安东诺夫所指出的那样，莫斯科完全失去了在美国西海岸的领事存在，那里有成千上万的俄罗斯人居 住。华盛顿还大幅收紧了签发签证的程序。
+该媒体指出，每当相关调查接近中共武汉病毒研究所实验室时，福奇和联邦卫生机构的某些官僚就会拐弯抹角地以政治手段，强制封口那些支持病毒实验室起源的科学家们。同时，大量被披露的电子邮件显示，福奇和美国国立卫生研究院的柯林斯一直在压制那些对中共不利的言论。非但如此，他们坚持对中共政府的谎言以及其拒绝国际调查的行为保持沉默，甚至还为中共开脱。
 
-此外，还经常大规模驱逐俄罗斯外交官。因此，在 9 月，华盛顿向莫斯科提交了另一份名单：27 人应在1 月 30 日之前离开美国，另外 28 人应在 2022 年 6 月底之前离开美国。
+报道还表示，截止目前，中共病毒已经造成了数十万美国人的死亡，但福奇等人仍然试图掩盖病毒来源的真相，其滥用职权的行为会将美国置于危险的境地，更将严重威胁到美国的国家安全。
 
-6 月，在弗拉基米尔·普京总统和乔·拜登总统在日内瓦举行峰会后，莫斯科和华盛顿开始就使馆工作正常化的问题进行接触，但据俄罗斯外长谢尔盖·拉夫罗夫称，这一进程是“标记时间”，因为美国企图向俄罗斯施压。此外，安东诺夫所说，“对俄罗斯外交官的迫害仍在继续”，在这种情况下，莫斯科保留报复的权利。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2DAF4ABD-6126-415A-89CD-580AFDC1BA95.png)
-近几个月来，俄罗斯与西方的关系更加紧张，[乌克兰](http://ria.ru/location_Ukraine/)周边局势恶化。华盛顿和[布鲁塞尔](http://ria.ru/location_Brussels/)指责莫斯科准备“入侵”，宣布俄罗斯军队正被拉到与邻国的边界。在这种背景下，北大西洋联盟正在加强其在[东欧](http://ria.ru/location_vostochnaja_evropa/)的存在：它正在向那里派遣更多的部队和军事特遣队。
+该媒体也强调，美国必须清楚地认识到，中共并不是值得信赖的贸易伙伴或供应链来源，中共政府的各种大规模军事集结带有邪恶的意图，其目的是迫使美国服从，进而统治世界。
 
-克里姆林宫否认这些指控，并声称这是增加欧盟在俄罗斯边境附近军事存在的借口。还解释说，事态升级的主要原因是美国和北约的行为，他们正在把乌克兰推向军事冒险。
+而作为一个法治国家，美国不应该继续容忍来自中共的威胁并对中共的谎言消极应对。
 
-另据俄卫星社最新消息，美国大使馆表示，华盛顿认为这一举动不合理，因为该外交官持有三年的签证，而他在俄罗斯的停留时间还不到三年。美国大使馆还强调，美方将对戈尔曼被驱逐一事作出回应。
+参考链接：[Why were unelected bureaucrats led by Fauci running interference for China?](https://centerforsecuritypolicy.org/why-were-unelected-bureaucrats-led-by-fauci-running-interference-for-china/)
 
-撰稿/米拉娅
-审阅/邱杰斯
-上传/天赐良闻
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-5.png)
 
-援引链接：[https://ria.ru/20220217/posol-1773369117.html](https://ria.ru/20220217/posol-1773369117.html)
+总编：Irene木木
+编辑：静言
+校正/发稿：小野貓（文凱琳）
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

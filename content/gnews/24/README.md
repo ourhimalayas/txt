@@ -2,54 +2,30 @@
 ---
 
 
-## 情暖如春
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2021140/)
+## 秘翻在线：阿联酋批准给虚拟资产服务商国家牌照以吸引全球数字货币巨头加入
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2021159/)
 
-香草山健身部-新世界的一员
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-31.png)
+**翻译：明澈**
+
+**校对：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-18-002218.jpg)
+综合外媒2月17日消息，阿联酋正准备向数字货币业务相关的机构签发牌照，以此吸引全球数字货币巨头入驻阿联酋增强国家竞争力。彭博社指出，为了吸引更多的业务，阿联酋在去年年底完成了一项关于虚拟资产的风险评估，涉及14个公共部门机构和16个私营部门。阿联酋政府将规范包括有关欺诈、洗钱和数字货币的违规使用等问题，但不会禁止虚拟资产服务商（VASP）的发展。
+
+据彭博社观察，阿联酋将签发全国在线运营数字货币相关业务的国家牌照，其国家证券和资产管理局已进入了制定管理虚拟资产供应商 (VASP) 规则的最后阶段。目前，阿联酋的一些金融自由区已经为VASP发放了牌照，并由地区当局监管。彭博社指出，有政府报告显示，迪拜多种商品中心已批准了22张牌照，而阿布扎比全球市场批准了6张，迪拜硅绿洲管理局至少有1张，而作为华尔街银行中东中心的迪拜国际金融中心，目前还没有签发过。
+
+报道指出，VASP的国家牌照可以帮助阿联酋更好地与新加坡和香港等国家进行金融竞争。币安作为全球交易量最大的数字货币交易巨头，已经在阿联酋建立了一个本地团队，赵长鹏也是常驻人员。同时，据领英报道，总部位于旧金山的交易所Kraken目前正在阿布扎比招聘一名中东和北非地区的首席执行官。
+
+**新闻来源：**
+
+[https://compreiativo.com.br/uae-readies-regulation-to-attract-global-crypto-giants-and-build-mining-ecosystem-27568.html](https://compreiativo.com.br/uae-readies-regulation-to-attract-global-crypto-giants-and-build-mining-ecosystem-27568.html)
+
+[https://ca.finance.yahoo.com/news/uae-readies-national-crypto-licensing-074009211.html](https://ca.finance.yahoo.com/news/uae-readies-national-crypto-licensing-074009211.html)
 
 
-在喜币遨游世界的美好时刻， 在新中国联邦人酝酿着出现更多的亿万百亿富翁的时候。
 
-在战友喜悦的谈论躺平币盖特币， 创立币无敌的七哥却一人挡下了中共合一国之力的超限战，宣告个人财产破产。
+> [The UAE opens the legal path to welcome cryptocurrency organizations](https://coinlive.me/the-uae-opens-the-legal-path-to-welcome-cryptocurrency-companies-15185.html)
 
-十八楼被收， 平凡的我达不到深层次境界。 眼泪在那一刻汹涌而出， 心疼和气愤满胸腔乱串。
 
-气愤中共把丑陋的嘴脸带到了自由灯塔国， 到处传染无法无天的假大空 ，心疼七哥和七哥的家人为我们承受了所有。
-
-心疼七哥为了引领中国人走正道，受尽中共无数次围剿， 心疼七哥为迎中国人的普世价值， 数年身缠几十个官司。
-
-心疼智商如海的七哥为新中国联邦创造财富， 自己却拿着命抗敌还身无分文， 心疼七哥为了伟大的灭共运动总是付出太多太多。
-
-收走了十八楼，迎来了亿万更坚定的脚步， 我们的七哥是天下最富有的人。
-
-世界上从来没有，亿万的爱如潮水般涌，亿万的心更坚定的紧紧相连，亿万个更决绝灭共的脚步，亿万种真诚的表达，亿万股力量情深深意脉脉，法律形式的破产让七哥和战友们的心更亲志更坚 。
-
-让爆料革命灭共的力量又上了一个台阶，中共你的下三烂更彰显新中国联邦更强大更团结更一致。
-
-正者，为天下不计私利， 邪恶者为私利不顾天下。
-
-轻装上阵后的战神，一心担忧中共煽动的排华暗涌，谈笑风生中化解了所有战友们的牵挂。
-
-破产？只能迎来爆料革命更彻底的胜利
-
-破产？只会让新中国联邦赢得全世界的尊重！
-
-新中国联邦人千言万语汇聚一句， 感谢你我们尊敬的七哥，数年代我们承受中共的层层攻击，感谢你抛家舍园，义无反顾，毅然决然的引领我们走向正道， 感谢你，无私无畏无我的带领中国人追求自由，迎接民主， 爱需要大声的喊出来，七哥，我们爱你，不屈不饶，不离不弃！
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-30.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/image1-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/image2-3.jpg)
-编辑/审核/发稿：Bronx Bombers
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-37.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

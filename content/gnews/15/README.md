@@ -2,56 +2,43 @@
 ---
 
 
-## 同是印度 是否使用伊维菌素死亡率相差405倍
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2021237/)
+## 美国财政部确认，加密货币矿工免于遵守美国国税局的报告规则
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2021253/)
 
-作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
+评论：***在Covid-19大流行期间，全球各国政府开始大量印钞，这引发了人们对金融领域健康状况的担忧，并促使人们转向加密货币这种替代资产。美国财政部的这则消息是上天送给新中国联邦人元宵节最好的礼物。***
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+据《cointelegraph.com》作者 HELEN PARTZ，2022年2月14日报道：
+美国财政部申明，加密货币矿工和钱包运营商可免于遵守国税局的报告规则，编制适当的法规。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3766.png)图片来源：cointelegraph.com
+美国的加密货币行业即将取得一项重大的法律胜利，因为美国财政部计划免除加密货币矿工和其他“辅助方”的纳税报告规则。
 
-美国FDA一直误导民众，“[不应该使用伊维菌素来治疗或预防COVID-19](https://www.fda.gov/consumers/consumer-updates/why-you-should-not-use-ivermectin-treat-or-prevent-covid-19)”，FDA称，没有证据表明伊维菌素（Ivermectin）对COVID-19是安全或有效的，因此一直没有授权或批准伊维菌素用于预防或治疗人和动物的 COVID-19。
+在周五给一群参议员的信中，美国财政部表示，它计划让加密货币矿工、造币商和其他市场参与者免于遵守要求加密货币经纪商与国内税收局共享客户交易数据的规则。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-17_21-26-31.png)
+参议员罗布·波特曼在推特上宣布这一消息时说：“感谢财政部确认加密货币矿工、造币商和那些出售钱包的硬件和软件的人不需要承担纳税报告义务。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1648.png)
+财政部负责立法事务的助理部长乔纳森·戴维森在信中说，该部门的立场是，“无法获得对国税局有用的信息的辅助方，不打算被经纪人的报告要求所涵盖”。
 
-同是印度的喀拉拉邦（Kerala）和北方邦（Uttar Pradesh），前者拒绝伊维菌素，后者向民众发放伊维菌素套件包，感染率相差67倍，死亡率相差405倍。
+戴维森还强调，加密货币验证者“不可能知道一项交易是否是销售的一部分”，而参与提供硬件或软件加密货币钱包相关服务的实体“没有进行经纪活动”。
 
-拥有2.425亿人口的印度北方邦（Uttar Pradesh）在去年5月4日前一段时间，每日新增确诊感染人数达3万人以上。
+财政部还将考虑“数字资产市场中的其他各方，如集中式交易所和那些通常被称为分散式交易所和点对点交易所，应在多大程度上被视为经纪商。”
 
-自去年5月4日起，北方邦开始向每个家庭发放价值2.65美元的伊维菌素套件包，每个家用套件包含：扑热息痛片[泰诺]（Paracetamol tablets [tylenol]）、维生素C（Vitamin C）、多种维生素（Multivitamin）、锌（Zinc）、维生素D3（Vitamin D3）、伊维菌素12毫克[数量#10片] （Ivermectin 12 mg [quantity #10 tablets]）、多西环素100毫克[数量#10片]（Doxycycline 100 mg [quantity #10 tablets]）。其他非药物组件包括口罩（face masks）、消毒剂（sanitizer）、手套（gloves）和酒精湿巾（alcohol wipes）、数字温度计（digital thermometer）和脉搏血氧仪（pulse oximeter）。
+彭博社报道，财政部正计划发布拟议的法规，以包括其对经纪人定义的立场。
 
-自从发放伊维菌素套件包后，北方邦（Uttar Pradesh）每日新增病例迅速下降，在相当长一段时间内，北方邦每日新增感染人数甚至不足10人。
+据此前报道，美国总统乔·拜登在2021年11月中旬签署了价值1万亿美元的基础设施法案，要求加密货币市场参与者向国税局报告所有价值超过1万美元的数字资产交易。
 
-而印度相信疫苗、拒绝伊维菌素的喀拉拉邦（Kerala），虽然只有3,570万人口，仅有北方邦的14.7%，坚持全民打COVID-19病毒疫苗，新增COVID-19感染病例一直持续增长。
+包括Pat Toomey、Ron Wyden和Cynthia Lummis在内的几位参议员随后敦促财政部在12月澄清基础设施法中对经纪人的定义，计划提出相关立法。一批众议院民主党人也在11月支持了类似的倡议。
 
-目前，喀拉拉邦1针疫苗接种率达到100%，两针疫苗接种率82%。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Summary-of-COVID-Vaccine-Administered.jpg)
-到今日为止，北方邦累计确诊感染人数为2,061,413人，而喀拉拉邦累计确诊感染人数为 6,440,371人，喀拉拉邦的感染率是北方邦的21倍！
+原文连接：[**https://cointelegraph.com/news/crypto-miners-exempt-from-irs-reporting-rules-us-treasury-affirms**](https://cointelegraph.com/news/crypto-miners-exempt-from-irs-reporting-rules-us-treasury-affirms)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-17_21-04-26.png)
+翻译：洛杉矶盘古农场 – TrueSky
+校对：洛杉矶盘古农场 – 轰炸机
+评论：洛杉矶盘古农场 – 轰炸机
+编辑：洛杉矶盘古农场 – Wendy
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-如果只计算使用伊维菌素后的情况，并考虑伊维菌素包分发和正确使用需要一段时间，因此，选择从去年7月1日开始分析比较北方邦和喀拉拉邦的结果。
-
-去年6月30日，北方邦的累计确诊感染人数为1,705,951，喀拉拉邦累计确诊感染人数为2,910,507人。因此，从使用伊维菌素开始，北方邦新增感染病例为355,462（2,061,413-1,705,951）人，喀拉拉邦新增感染病例为3,529,864（6,440,371-2,910,507）人，喀拉拉邦的感染率是北方邦的67倍。
-
-截至今日，北方邦的累计死亡人数为23,414人，喀拉拉邦累计死亡人数为63,019人。喀拉拉邦的死亡率是北方邦的18倍。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-17_21-20-52.png)
-
-去年6月30日，北方邦的累计死亡人数为22,577人，喀拉拉邦累计死亡人数为13,093人。从使用伊维菌素开始，北方邦新增死亡病例为837（23,414-22,577）人，喀拉拉邦新增死亡病例为49,926（63,019-13,093）人，喀拉拉邦的死亡率是北方邦的405倍。
-
-参考数据：
-
-[Why You Should Not Use Ivermectin to Treat or Prevent COVID-19](https://www.fda.gov/consumers/consumer-updates/why-you-should-not-use-ivermectin-treat-or-prevent-covid-19)
-
-[India’s Ivermectin Blackout – Part V: The Secret Revealed](https://www.thedesertreview.com/opinion/columnists/indias-ivermectin-blackout---part-v-the-secret-revealed/article_9a37d9a8-1fb2-11ec-a94b-47343582647b.html)
-
-[Compare States](https://prsindia.org/covid-19/cases/statewisecomparison)
-
-[UTTAR PRADESH Going the last mile to stop COVID-19](UTTAR%20PRADESH%20Going%20the%20last%20mile%20to%20stop%20COVID-19)
-
-[Tale of Two States: Kerala, Uttar Pradesh Paint A Contrasting Picture of Covid-19](https://www.news18.com/news/india/tale-of-two-states-kerala-uttar-pradesh-paint-a-contrasting-picture-of-covid-19-4127714.html)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

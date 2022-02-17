@@ -2,29 +2,28 @@
 ---
 
 
-## 秘翻在线：阿联酋批准给虚拟资产服务商国家牌照以吸引全球数字货币巨头加入
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2021159/)
+## 樱花FM┃中日财经爆:“麻辣第一股”或成瑞幸咖啡第二
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2021196/)
 
-**翻译：明澈**
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-12.png)
+近日， 杨国福麻辣烫已向中共证监会递交境外首次公开发行股份审批的相关材料。资本市场惊呼“麻辣烫第一股”可能要诞生了！
 
-**校对：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-18-002218.jpg)
-综合外媒2月17日消息，阿联酋正准备向数字货币业务相关的机构签发牌照，以此吸引全球数字货币巨头入驻阿联酋增强国家竞争力。彭博社指出，为了吸引更多的业务，阿联酋在去年年底完成了一项关于虚拟资产的风险评估，涉及14个公共部门机构和16个私营部门。阿联酋政府将规范包括有关欺诈、洗钱和数字货币的违规使用等问题，但不会禁止虚拟资产服务商（VASP）的发展。
+据证监会国际部披露的上海杨国福企业管理（集团）股份有限公司（杨国福麻辣烫）提交的《股份有限公司境外首次公开发行股份(包括普通股、优先股等各类股票及股票派生的形式)审批》材料，杨国福麻辣烫的上市之路才刚刚开始，目前仅完成“接收材料”这第一步，后续可能还有“受理通知”“书面反馈”“书面回复”乃至“行政许可决定书”等多个环节。
 
-据彭博社观察，阿联酋将签发全国在线运营数字货币相关业务的国家牌照，其国家证券和资产管理局已进入了制定管理虚拟资产供应商 (VASP) 规则的最后阶段。目前，阿联酋的一些金融自由区已经为VASP发放了牌照，并由地区当局监管。彭博社指出，有政府报告显示，迪拜多种商品中心已批准了22张牌照，而阿布扎比全球市场批准了6张，迪拜硅绿洲管理局至少有1张，而作为华尔街银行中东中心的迪拜国际金融中心，目前还没有签发过。
+杨国福麻辣烫官网显示，公司成立于2003年，系专业从事麻辣小吃及特许经营的全国大型餐饮连锁企业，目前公司已拥有6000余家门店。2019年，杨国福接受媒体采访的时候表示，2019年公司营收预计将达到13亿元，而加盟费只占其中两成，多数收入来自商贸模块，比如向加盟商销售调味料、食材、厨房设备、餐厅家具等。在2021年，杨国福麻辣烫就开始为上市铺路。
 
-报道指出，VASP的国家牌照可以帮助阿联酋更好地与新加坡和香港等国家进行金融竞争。币安作为全球交易量最大的数字货币交易巨头，已经在阿联酋建立了一个本地团队，赵长鹏也是常驻人员。同时，据领英报道，总部位于旧金山的交易所Kraken目前正在阿布扎比招聘一名中东和北非地区的首席执行官。
+近年来，国内科技和制造企业不断消亡的情况下，转而包装劳动密集型的餐饮企业到海外上市圈钱，短期的有海底捞上市后出现关店潮，再之前2020年5月15日被爆财务造假而从美股退市的瑞幸咖啡。
 
-**新闻来源：**
+当前，中共面临房地产和金融全面暴雷，实体经济和大众消费萎靡不振，在资本加持下的杨国福麻辣烫境外上市，恐又是一出一地鸡毛的资本骗局。
 
-[https://compreiativo.com.br/uae-readies-regulation-to-attract-global-crypto-giants-and-build-mining-ecosystem-27568.html](https://compreiativo.com.br/uae-readies-regulation-to-attract-global-crypto-giants-and-build-mining-ecosystem-27568.html)
+文字版原文：
 
-[https://ca.finance.yahoo.com/news/uae-readies-national-crypto-licensing-074009211.html](https://ca.finance.yahoo.com/news/uae-readies-national-crypto-licensing-074009211.html)
+[中日财经爆┃“麻辣第一股”或成瑞幸咖啡第二](https://gnews.org/zh-hans/1961286/)
 
-
-
-> [The UAE opens the legal path to welcome cryptocurrency organizations](https://coinlive.me/the-uae-opens-the-legal-path-to-welcome-cryptocurrency-companies-15185.html)
-
+编辑：东京樱花团/asket
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
 
  
