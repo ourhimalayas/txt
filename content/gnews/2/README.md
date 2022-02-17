@@ -2,49 +2,37 @@
 ---
 
 
-## 文•贵天成——文贵先生谈“蓝、金、黄”计划（十二）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2018410/)
+## 福奇的机构拒绝国会委员会要求其提供武毒所赠款文件
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2018439/)
 
-整理：BENJ1
-编辑：Kelly
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/02/fengmian0216.jpg)图片来源：墨尔本雅典娜设计组614
+翻译/编辑：文泓
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/11-19.png)图片来源：Vanity Fair
 
 
-郭文贵先生**2017**年**10**月**14**日直播
+当地时间2月16日，据《国家脉动》报道，美国国立卫生研究院（NIH）一再未能遵守国会要求提供与其与武汉病毒学研究所有关的文件，而是强迫其机构人员“粉碎笔记和其他文件”，文件涉及奥巴马政府时期的美国政府与中共运营的实验室及其与武汉病毒研究所的合作。
 
-郭文贵说的BGY，蓝金黄项目和3F项目是切实存在的。它不仅在美国存在，在欧洲、在日本这些国家都存在。这是对西方世界、文明世界的巨大的威胁。它不仅是一个地方，一个美国，一个纽约。 可以看出来，郭文贵是他们政治打击对象，而且这些人和美国当地有着各种的勾结。3F项目和BGY是共同联手合作，对郭文贵等海外华人中所有积极人士以及所有西方文明国家造成了巨大的现实威胁，这就是我说的，黑暗已经来临！
+共和党众议院监督与改革委员会成员致函卫生与公众服务部(HHS)主任泽维尔·贝塞拉，敦促公布这些文件，**这些文件可能与****新冠病毒的起源高度相关****。**
 
-由于王岐山先生和孟建柱先生这种杀人机器、杀党机器、灭党机器的权力存在，对整个九千万党员、对中国人民实行了网络控制、媒体控制、大外宣政策和对西方形成了BGY蓝金黄的策略以及3F美国，都是为了保护自己的非法资产和见不得人的私生子女，掩盖他们完全违背了中国共产党的不允许家属持有外国身份、外国股权、外国证件的丑闻。根本的原因不是为了国强、民壮、民富或维护党的利益，根本目的是保护自己的利益、掩盖自己的丑闻、掩盖自己按需杀人、非法获得财富的信息外露，这才是真实的本质。所有反腐就是打击政治对手和对知情者灭口，为了维护自己非法政治目的和利益来源。
+“HHS和NIH没有对委员会的共和党人保持透明，而是选择隐藏、混淆和掩盖真相，”信中说。
 
-郭文贵先生**2017**年**10**月**31**日第一次直播
+这封信显示，NIH的一名顾问“早在2014年就被NIH强迫要求粉碎了与武毒所赠款有关的笔记和其他文件”。2021年11月5日，一位化名的个人发给委员会工作人员的一封电子邮件显示以下内容：
 
-教育战线所有的腐败、统战部海外的蓝金黄、海外港澳台所有的蓝金黄、港澳台商、华侨所有输送的利益，一年几百亿都不止！都是给予（中共国）市场份额。所有地产商包括医疗、教育门槛，你能跨过她去吗？
+“我签署了一份保密协议，其中我同意不与任何人讨论任何资助，除非与研究部门的其他成员讨论，并且——一旦会议结束——我将销毁我在会议期间所做的任何笔记（我们确实是将它们扔进会议室的碎纸机中）。”
 
-海外的蓝金黄、海外的情报系统，在海外华人世界的影响力，还有在文化界、体育界的什么黑暗她不知道？哪个人不是她摆平的？哪个人不靠她？吴征杨澜做主持，哪个时候不是刘延东在？
+这封信概述了“迄今为止，HHS和NIH拒绝提供任何回应性文件或信息”。国会一个委员会要求美国国立卫生研究院前主任弗朗西斯·[柯林斯](https://thenationalpulse.com/exclusive/nih-collins-advised-ccp-military-proxy-bgi-genomics/)提供有关2021年5月和7月由安东尼·[福奇的](https://thenationalpulse.com/analysis/exc-navarros-9-indisputable-facts-linking-fauci-to-covid-19-origin/)国家过敏和传染病研究所(NIAID)授予生态健康[联盟](https://thenationalpulse.com/2021/12/23/lancet-editor-admits-daszak-had-significant-conflict-of-interest/)和武毒所的2014年奥巴马时代拨款的文件。
 
-我们有共同的敌人，有共同的目标。在我的爆料当中，谁挺郭就一定是有深仇大恨的，是真正的明大义的人；反郭的、怀疑郭的，一定是被蓝金黄和统战有关的，而且一定是！不然没有理由反郭，我又不要你家钱，我也不要你家鸡蛋，我也不要你家女人。
+尽管共和党委员会的工作人员一再修改他们的要求，使其范围更广，更容易让联邦机构完成，但两个联邦机构都拒绝交出任何文件。
 
-资料来源：郭先生GTV和盖特直播视频
+新闻链接：[U.S. Govt Advisors SHRED Documents Detailing Fauci Agency’s Obama-Era Work With The Wuhan Lab. (thenationalpulse.com)](https://thenationalpulse.com/2022/02/16/nih-refuses-to-comply-with-congressional-doc-request/)
 
-往期回顾：
-[文·贵天成——文贵先生谈“蓝、金、黄”计划（一）](https://gnews.org/zh-hans/2008275/)
-[文·贵天成——文贵先生谈“蓝、金、黄”计划（二）](https://gnews.org/zh-hans/2008300/)
-[文·贵天成——文贵先生谈“蓝、金、黄”计划（三）](https://gnews.org/zh-hans/2008496/)
-[文•贵天成——文贵先生谈“蓝、金、黄”计划（四）](https://gnews.org/zh-hans/2008314/)
-[文•贵天成——文贵先生谈“蓝、金、黄”计划（五）](https://gnews.org/zh-hans/2008332/)
-[文•贵天成——文贵先生谈“蓝、金、黄”计划（六）](https://gnews.org/zh-hans/2008361/)
-[文•贵天成——文贵先生谈“蓝、金、黄”计划（七）](https://gnews.org/zh-hans/2008344/)
-[文•贵天成——文贵先生谈“蓝、金、黄”计划（八）](https://gnews.org/zh-hans/2012933/)
-[文·贵天成——文贵先生谈“蓝、金、黄”计划（九）](https://gnews.org/zh-hans/2013014/)
-[文•贵天成——文贵先生谈“蓝、金、黄”计划（十）](https://gnews.org/zh-hans/2017262/)
-[文•贵天成——文贵先生谈“蓝、金、黄”计划（十一）](https://gnews.org/zh-hans/2017295/)
+*发布：tianzhihuan*
 
-发布：tianzhihuan
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

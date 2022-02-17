@@ -2,35 +2,30 @@
 ---
 
 
-## 有声|美科学家称中共病毒来自武汉病毒研究所
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2018126/)
+## 美指责中共国未履行承诺 将促其改变经贸行为
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2018240/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月10日，据盖特消息显示，美国国会众议员斯卡里斯在接受采访时表示，那些支持中共病毒实验室起源的科学家们应该针对病毒溯源问题前往国会作证。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide5-10.jpeg)
-斯卡里斯提到，他在与其他议员调查中共病毒起源时发现，包括福奇的高级顾问在内的许多科学家都认为中共病毒来源于武汉病毒研究所。然而，在他们参与了福奇召开的电话会议后，这些学科家们纷纷转变了态度。同时，大多数与会科学家在其后的时间里陆续获得了数百万美元的联邦拨款。
+![资料照：美国贸易代表戴琪](https://gdb.voanews.com/35FC463E-0E71-475E-98AD-EFE9D6CC3A46_w1023_r1_s.jpg)资料照：美国贸易代表戴琪
+据美国之音2月16日报道，美国贸易代表办公室16日向国会提交中共国自2001年加入世贸后有关遵守世贸组织规则的年度评估报告。指责中共国没有履行加入世界贸易组织的承诺，没有向外国竞争者开放市场。报告列举了中共国种种不公平的经贸行为，以及中共国未能履行美中第一阶段贸易协议。
 
-斯卡里斯强调，美国政府应该就中共病毒起源问题举行国会听证会，而这些改口的科学家们也必须在听证会上接受质询。即使佩洛西议长一直阻挠该听证会的举行，但众议院一定会挖出有关中共病毒来源的真相。
+美国前总统川普2020年1月与中共达成第一阶段贸易协议，对中共国价值3600亿美元的进口产品征收关税，中方承诺增加购买美国的农产品。但中共国未能兑现承诺，只完成了承诺的57%。美方表示要寻找新的战略及更新国内贸易手段，对抗中共国由国家主导的非市场政策和经济行为。
 
-文字版原文：[美科学家称中共病毒来自武汉病毒研究所](https://gnews.org/zh-hans/2012234/)
+如果用西方遵循的兑现承诺、履行职责等等作为与中共交往的原则，收获的永远是失望。除了偷你的没商量、拿你的不通报，中共说过的话连标点符号都不能信。为了达到目的，中共可以欺骗全世界；为了毁掉契约，中共可以翻脸不认人。答应好的贸易协定没有完成，制定方案，采取措施，打击中共，打疼了中共才会长记性。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+新闻参考链接：[https://www.voachinese.com/a/ustr-says-new-trade-tools-needed-to-fight-china-state-led-trade-20220216/6444187.html](https://www.voachinese.com/a/ustr-says-new-trade-tools-needed-to-fight-china-state-led-trade-20220216/6444187.html)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+编辑：胖丁
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+* * *
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+编辑：【英国伦敦喜庄园编辑部】
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

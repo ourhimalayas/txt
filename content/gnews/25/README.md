@@ -2,22 +2,26 @@
 ---
 
 
-## 渥太华警察局长在自由车队抗议浪潮下辞职
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2018146/)
+## 多数人认为特鲁多不能胜任国家领导职责
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2018263/)
 
 加拿大温哥华杨帆农场 枫叶快讯
 
-采编： UCool 优酷       编译撰稿：文明(添草灭共)
-![BREAKING: Ottawa Police Chief resigns](https://imgcache1.thepostmillennial.com/content/images/2022/02/ARTICLE-PHOTO--37--1-1.jpg)图片来源：thepostmillennial.com crypto
-据加拿大自媒体【后千禧年】2月15日报道，在卡车司机集结于渥太华市中心进行抗议活动的第 19 天，该市警察局长[斯洛利]宣布辞职。 报道称，[斯洛利]不久前还曾表示要争取更多警力和资源来结束抗议活动，并且没有任何辞职的计划。虽然未透露原因，但外界普遍认为该局长在全国“自由车队”反疫苗护照的浪潮下，承受着巨大压力。
+采编撰稿： 薇文                校对编辑：硫酸羟氯喹64
 
-此前，渥太华警方因参与冻结卡车司机的筹款而被各方谴责。对此，“宪法自由司法中心”不仅指出抗议活动没有扰乱秩序，还抨击了警方对和平集会的污名化没有任何事实和证据。但当局以恢复秩序为借口，企图剥夺加拿大人在首都行使《宪章》所规定的自由表达、结社以及和平集会的基本权力。
+
+![](https://static.tnc.news/media/2022/01/website-af-29-696x365.jpg)图片来源：真北方
+据加拿大[真北方]2月16日报道，随着加拿大自由车队反抗强制疫苗政策的和平抗议进入第三周，越来越多的加拿大人对总理特鲁多的处理方式表示不满。
+
+最新民调显示，53%的加拿大人认为特鲁多在面对抗议活动时的拙劣反应，显示其在国家出现危机时表现出的软弱无能。其中有63%的人不会根据该总理处置自由车队事件的方式而再投票给他。
+
+尽管主流媒体一边倒地打压和平抗议运动，但特鲁未能借此提升自己的公众形象。目前仅约30%的加拿大人认可他的表现，而多数人则认为他因激化了社会矛盾而再无资格成为自由党领袖和联邦政府总理，并应该对目前出现的危机负责。
 
 校对编辑：硫酸羟氯喹64
 
 发文：青青
 
-原文链接：[https://thepostmillennial.com/breaking-ottawa-police-chief-resigns-source](https://thepostmillennial.com/breaking-ottawa-police-chief-resigns-source)
+原文链接：[Poll finds half of Canadians believe Trudeau “not up for the job”](https://tnc.news/2022/02/15/poll-finds-half-of-canadians-believe-trudeau-not-up-for-the-job/)
 
  
 

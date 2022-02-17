@@ -2,30 +2,50 @@
 ---
 
 
-## 一位卡车司机表示：特鲁多引发了内战 让加拿大变成了共产主义国家
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2018073/)
+## 热点回顾：为什么辉瑞疫苗没有在印度上市？
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2018173/)
 
-翻译：冰糖葫芦喵
+翻译：文斗
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-275.jpg)
+**热点回顾：为什么辉瑞疫苗没有在印度上市？**
 
-编辑与校对：冰糖葫芦喵、灭共文明
+2月16日，thegatewaypundit网站发表回顾文章并提出疑问：为什么辉瑞疫苗没有在印度上市？
 
-《布莱巴特新闻网》2月16日报道，**一位在渥太华参加自由车队游行的卡车司机、罗马尼亚裔加拿大人克里斯蒂安（Christian）在接受采访时表示，特鲁多正在加拿大人之间播下仇恨的种子，并将这个国家变成一个共产主义国家。**
+2021年2月，在印度医药监管机构要求进行当地的安全性和免疫原性研究之后，辉瑞公司撤回了其COVID-19疫苗在印度的紧急使用授权申请。
 
-他补充说，**这里不再是加拿大了。这是一个共产主义国家。特鲁多在分裂人民，憎恨人民。这是一场内战。**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/罗马尼亚卡车司机.jpg)罗马尼亚裔加拿大卡车司机接受布《莱巴特新闻》采访
-克里斯蒂安指出，省级和联邦政府强制实施的**中共病毒疫苗政策**，表面上是为了“公共卫生”和“公共安全”，但实际上这些政策**正在破坏人们的生计，并剥夺他们谋生的权利。**
+去年，印度的COVID-19主题专家委员会（SEC）在一次会议上审查了辉瑞公司提交的数据。该委员会没有推荐辉瑞公司的疫苗，原因是国外报告的严重不良事件以及该公司缺乏针对印度人口的安全性和免疫原性研究。
 
-这位卡车司机还说，作为应对中共病毒措施而推广的**政府法令已经导致企业倒闭，普通民众个人破产，并导致许多人失去工作。**
+当地试验是印度在有新疫苗时实行的标准程序，以确定其安全性以及在其公民中产生免疫反应。然而，根据印度的规定，在某些情况下可以放弃这种试验。
 
-这时克里斯蒂安深思道，当我来到这个国家时，我觉得它很美。加拿大充满了不可思议和许多可爱的人。
+该决定将影响辉瑞公司COVID-19疫苗的上市，辉瑞疫苗将不能在印度和中国这两个世界上人口最多的国家销售。
 
-采访中，克里斯蒂安说：“我们需要工作，需要最基本的生存保障。但现在因为特鲁多失去了一切。**特鲁多不会让我们生活，不会让我们回到工作岗位，回到家人身边，不会让我们像以前那样生活。”**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/特鲁多内战2.jpg)图片来源：网络。
-**最后他悲叹道:“现在看看我们这个社会，大家彼此憎恨。**我的儿子不能见他的祖父，因为他接种了疫苗，而他的祖父没有接种疫苗，所以他不能回到祖父的家。他很伤心。”
+与其他公司为外国疫苗在印度进行小规模研究不同，辉瑞公司以其在美国和德国进行的试验获得了其他国家批准为由寻求例外。
 
-**新闻链接：**
+辉瑞公司在一份声明中说：“根据会议的审议情况以及我们对监管机构可能需要的额外信息之理解，公司决定此时撤回其申请。”
 
-[Romanian-Canadian Trucker: Trudeau Turned Canada to Communist State (breitbart.com)](https://www.breitbart.com/clips/2022/02/16/exclusive-video-romanian-canadian-trucker-trudeau-has-caused-civil-war-turned-canada-communist/)
+“辉瑞公司将继续与监管机构接触，并在不久的将来获得更多信息后重新提交其批准申请。”
+
+现在，一年过去了，没有辉瑞重新申请的后续信息。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-73.jpg)
+截至2月16日，该文章上获得了152万次访问，在盖特上有大量评论与转发，表达其对辉瑞隐瞒信息的猜测以及对疫苗安全的质疑。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/6-25.jpg)
+（[https://www.gettr.com/post/puxg0m1ffa](https://www.gettr.com/post/puxg0m1ffa%EF%BC%89) 那么，印度意识到了不利影响，而我们却没有？）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/7-22.jpg)
+（[https://www.gettr.com/post/puwqtm8655](https://www.gettr.com/post/puwqtm8655) 辉瑞公司必须公布所有的数据，而且必须是不加处理过的。）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8-22.jpg)
+（[https://www.gettr.com/post/puwa9x6d5a](https://www.gettr.com/post/puwa9x6d5a) 基本上就是，印度要求辉瑞公司证明其疫苗的安全性和有效性，而辉瑞公司没有这样做（因为他们当然不能），而是直接撤回了在印度使用其疫苗的申请……那可是世界上人口第二多的国家！！ 他们宁愿承担经济损失，因为他们知道他们无法满足印度使用该产品的要求……
+
+但是，用在美国人身上就可以了）
+
+新闻来源：
+
+
+
+> [Flashback: Pfizer Withdraws COVID Vaccine Application in India After Regulators Demand Local Safety and Immunogenicity Study](https://www.thegatewaypundit.com/2022/02/pfizer-withdraws-covid-vaccine-application-india-regulators-demand-local-safety-immunogenicity-study/)
+
+
+
+[https://mosnews.orkmail.com/statistics/link/post20220216\_2317F500D1.repost.html](https://mosnews.orkmail.com/statistics/link/post20220216_2317F500D1.repost.html)
 
  
 

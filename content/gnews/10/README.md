@@ -2,22 +2,38 @@
 ---
 
 
-## 樱花FM┃篮球明星坎特再开炮 北京冬奥网络收视少上届43％
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2018310/)
+## 韩国單日确诊病例創歷史新高 首次突破9万例
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2018364/)
 
-音频：东京樱花团/战友520
-![](https://lh4.googleusercontent.com/i6xFLsaj8cGP1ZhiEYFEROkWfS5jxlWAurHyN4zW8bSmRFPYkig8Q_r9psnmxP8Uqc8pJqPc9fzGdq9plvcZLUriVftK9-KyFRjmCJo3DqSC4V9XywgMhu9oTSovEf68gsHQjPb8)
-2月7日，篮球明星坎特再度于脸书开炮，指称2022北京冬奥的开幕式仅有16Ｍ（1,600万）人观看，并且全时段直播的观众人数都很少。相较于上一次2018年2月的平昌冬奥有28.3M（2,830万）的观看人数，北京冬奥低了43％。
+作者：首尔天池农场 – 追着曙光跑
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+2月16日，韩国中央检疫对策本部宣布，截至16日零时，韩国本土共新增了9万0443例确诊个案，较前一天增加了3万多例，首次突破9万例，全国累计超过155万人次确诊。
 
-坎特也直接怒呛北京称，“这就是你们把田径比赛变成替邪恶帝国作政治宣传的结果”（This is what you get for turning athletics into propaganda for an EVIL EMPIRE）。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/9-14.jpg)
 
-事实上，坎特这几日都未曾停止在脸书挞伐中共，他持续在贴文中表示“人们要我专注在篮球上，不要搞政治，但我从未搞政治，政治和人权存在著差别”。“我们不能在面对不正义时保持沉默，世界需要清醒起来，认知到中国共产党并不是我们的朋友”。坎特过去曾多次就新疆、彭帅等问题批评中共，日前更杠上中共篮球协会主席的姚明，不仅指姚明封锁自己IG的行为很像小孩，还酸其“身高高心眼小”，喊话姚明“停止当中共的傀儡”。
+而患者的感染症状，在短时间内重症患者的比例呈上升趋势，连续三天在300人左右。 单日死亡人数增加39人，累计死亡7202人，病死率为0.46%。全国重症病床使用率为 26.9%。而全国接受在家治疗的患者人数共266,040人。
 
-文字版原文：[篮球明星坎特再开炮 北京冬奥网络收视少上届43％](https://gnews.org/zh-hans/1968547/)
+韩国目前防疫政策仍以疫苗为主，一剂疫苗覆盖率达到87.14%，两剂疫苗覆盖率则高达86.15%，加强针接种率则为57.71%。在疫苗覆盖率如此高的情况下，韩国确诊人数反而遽增，韩国政府更在14日开始为免疫力低下的族群接种第四剂中共病毒疫苗。
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+参考链接：
+
+- [코로나19 신규 확진 9만 443명…첫 9만 명대 발생](https://news.kbs.co.kr/mobile/news/view.do?ncd=5396251)
+- [코로나19 신규 확진자 9만명대로 급증…위중증 환자는 감소](https://news.kbs.co.kr/mobile/news/view.do?ncd=5396253)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
+
+总编：zhong
+编辑：zhong
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,20 +2,24 @@
 ---
 
 
-## 一名50多岁的日本人在中共国被拘留
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2018279/)
+## 樱花FM┃立陶宛外长今访澳 坚称不会更名台湾代表处
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2018353/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1625.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2F1.bp.blogspot.com%2F-Mhka2Dc8PJg%2FYTbOnZidp3I%2FAAAAAAAAELA%2FGwamae97kqEc89ThS84IgdzvCQPqhGPLwCLcBGAsYHQ%2Fs1250%2F07sept2021.jpg&amp;imgrefurl=https%3A%2F%2Fwww.chinaaid.org%2F2021%2F09%2Fccp-police-arre)
-去年12月，一名50多岁的日本男子在中国上海被当局扣留。现在仍在拘留中。他被拘留的原因和情况尚不清楚。中共国自2014年实施《反间谍法》以来，当局对外国人的拘押接连不断。
+音频：东京樱花团/战友520
+![](https://lh3.googleusercontent.com/qcAp5j-W5PlFtxWxEfPRCl3z9JJwJwW1u7OQq0MSgkZTM3f-DKE2Mz_iMp8ogvMHaeLhjkSZ-XNsCmUC2J_vGWdy01Mkd4n9w9SOqd3tuU2yWfSLERgle38eotZ2f5h45ZHHqJAk)
+立陶宛外长蓝斯柏吉斯（Gabrielus Landsbergis）于2月6日至10日，将先后访问新加坡、澳大利亚，开拓亚洲及大洋洲市场。据自由时报2月6日引述消息报道说，立陶宛外长蓝斯柏吉斯（Gabrielus Landsbergis）重申不会屈服中共经济胁迫。
 
-另外，据日本政府官员透露，一名70多岁的日本男子因在中国从事间谍活动被判处12年监禁，这名男子本月7日在北京一家医院因病死去。该男子2015年在北京被拘留，2018年12月在北京市第二中级人民法院被定罪。
+立陶宛外长蓝斯柏吉斯访澳前夕，接受《澳洲金融评论报》独家专访指出，立陶宛与澳大利亚此次交流议题将聚焦中共的胁迫和贸易制裁，立澳2国将就如何处理这种情况（被中国经济霸凌）以及学到了什么，又是如何从中变得更强大等议题交换意见，并互相帮助。
 
-信息源：[日本人の５０代男性を中国が拘束、理由や経緯は不明…服役中の７０代男性は北京で病死](text=%E6%97%A5%E6%9C%AC%E4%BA%BA%E3%)
+据该报称，蓝斯柏吉斯强调，某些国家不应使用经济等胁迫方式，迫使另一个国家改变外交政策。但当前国际商定的规则和法规，正受到“强权国家”挑战，我们正在捍卫国家主权。
 
-*编辑：东京樱花团/喜马拉雅的微尘
+对于外界盛传台湾驻立代表处可能因中共施压而更名一事，蓝斯柏吉斯再度驳斥，他重申，“无论如何，立陶宛都不打算更名。”“他们（指台湾）的正式名称不会改变。
+
+文字版原文：[立陶宛外长今访澳 坚称不会更名台湾代表处](https://gnews.org/zh-hans/1968214/)
+
+*编辑：东京樱花团/asket
 发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

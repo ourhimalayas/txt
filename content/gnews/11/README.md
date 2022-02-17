@@ -2,26 +2,37 @@
 ---
 
 
-## 樱花FM┃澳防长预警：如不对抗中共 澳将失去未来十年
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2018309/)
+## 波士顿法官阻止市长的强制疫苗计划
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2018363/)
 
-音频：东京樱花团/战友520
-![](https://lh4.googleusercontent.com/vbhNTuHBqPYYoPPH9n8naGp7bm-a5q8bQNmgopGnRqF88Y-vu1aaRgB3SC_3YomJ4QSAq2VU-uEPgUx5qK3ow8XW2AOuXZoIdmgvWBWflY0nEc4GRo9bgwJmudhGa7Y_0BIBclvI)
-澳大利亚国防部长皮特·杜登（Peter Dutton）警告，澳大利亚及其盟国必须在南海议题上挺身抵抗中共国，否则将会“失去未来十年”。
+作者：银河系农场 – 骄子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+2月15日，美国媒体报道，马萨诸塞州的一位上诉法官发布了一项禁令，阻止波士顿市长要求对城市雇员强制接种中共病毒疫苗的计划。各个工会包括波士顿消防员、波士顿警察高级官员联合会，以及波士顿警察侦探福利协会，都对此举表示了关切。
 
-悉尼晨驱报2月7日头版报导，标题为“杜登表示我们必须挺身面对中共国”。杜登说，美国及其盟国过去一度采取“默许”态度，任由中共国在主权有争议的南海航道上兴建人工岛，以及在珊瑚礁上兴建防卫基地。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/10-21.png)
 
-杜登认为，为了确保中共国不会重覆过去十年将南海军事化的做法，澳大利亚及盟国需要向中共国表明立场；他说，假如任由目前情况发展下去，澳洲及盟国将会“失去下一个十年”。
+该法官在命令中写道：强制接种中共病毒疫苗计划会对城市和公共健康造成伤害，为了不对工会造成更多的伤害，遂发布该项禁令。
 
-“四方安全对话”（Quad）外长会议将于本周在墨尔本举行，杜登发言与此有关。悉尼晨驱报表示，预料“四方安全对话”外长会议将会讨论美、日、澳、印四国该如何加强防卫及经济发展合作，以便对抗中共国。
+此举受到波士顿警察联合会的赞扬，他们表示，这是在保护我们的成员拥有正当的劳工权利，同时追究当选领导人责任的机会。这不仅仅是我们会员的胜利，也是公共安全和整个波士顿公民的胜利。
 
-报导提到，专家认为，为了协助维护印太地区和平，澳洲未来国防预算势必要增加。澳洲去年国防预算为446亿澳元，占澳洲国内生产毛额（GDP）2.1%；对于澳洲军力是否足以协助维护印太地区和平，已引起防卫专家的担心。
+参考链接：
 
-文字版原文：[澳防长预警：如不对抗中共 澳将失去未来十年](https://gnews.org/zh-hans/1968636/)
+- [北約秘書長批俄中欲擅自決定鄰國未來](https://www.newsmax.com/newsfront/covid-vaccine-mandates-unions-boston/2022/02/15/id/1057013/)
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
+
+总编：zhong
+编辑：飞虹
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
