@@ -2,26 +2,43 @@
 ---
 
 
-## 樱花FM┃中日财经爆：日本披露《经济安全促进法案》草案
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2019010/)
+## 珍惜生命远离中共，梵蒂冈以大主教礼遇给七哥赠送袖扣
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2019079/)
 
-音频：东京樱花团/战友520
-![](https://lh3.googleusercontent.com/HkulubgZIWzQM_1V8k3-JJucUgd_t3KLWBlc2QeSm2cqke9pFUWShC-fm10SVRafEeYxDT7XpzHA9fRhBfdRgx7oA9sBDoDyKQwHOBVCMtm0f4BxXsr8Hs1TiC9CPW3lELMfvkea)
-岸田政府的一项重要政策《经济安全促进法案》的草案已被披露，该法案以应对网络攻击和防止先进技术的泄漏，包括对私营公司和研究人员的惩罚，最高可判处两年的监禁。
+G-TV视频链接：[https://gtv.org/video/id=620cb676b0af02660af43e61](https://gtv.org/video/id=620cb676b0af02660af43e61)
 
-该草案由七章和98条组成包括四大支柱：加强供应链以确保人民生活和经济所需的重要商品的稳定性，在发生网络攻击时对关键基础设施进行预检，先进技术方面的公私合作，以及专利不公开，每条都包括惩罚措施。 政府专家小组的建议于1月1日定稿，其中没有包括具体的处罚细节。
+**郭文贵先生：**今天大过年的，大年初二了，我想告诉所有的中国同胞们：像人一样活着！你只要不像畜生一样活着！还有个你想活下去！——远离中共！珍惜生命！远离中共，不仅是演艺圈，不仅是企业家，也不仅是搞煤的，不管你多大岁数。我就今天奉劝所有的同胞，包括全世界的人，有点良知的看一看所有和中国共产党打交道的下场，马云、赵本山、宋祖英、香港台湾的歌星、以及美国的政要、欧洲的政要、欧洲的主席、包括梵蒂冈。
 
-在关键基础设施方面，政府将进行初步审查，以确保没有外国产品用于可能受到网络攻击的关键设备。具体包括14个部门：电力、天然气、石油、水、电信、广播、邮政、金融、信用卡、铁路、货运代理、海运、航空和机场。企业经营者将以主管部门发布的条例规定作为指导。就广播而言，预计NHK和商业广播公司将被纳入“《广播法》定义的核心广播机构”的范围。
+梵蒂冈给七哥送这是啥意思知道吗？梵蒂冈教皇给你送这个袖扣的时候就是把你当成大主教级的，和他平级的才能给你，你以为啥呢？最后告诉全世界人们聪明的人民，智慧的人民，永远要记住珍惜生命，远离中共！
 
-当这些公司引进重要的系统时，他们有义务向主管部长提交一份“引进计划”，包括设备、部件以及维护和管理承包商的概要，政府将审查该计划，审查期原则上为30天。
+字幕来源：[2022年2月2日 《文贵大直播 》全文字版](https://gnews.org/zh-hans/1952328/)
 
-根据草案，如果企业没有提交“引进计划”或提交虚假通知，将被判处两年以下的监禁或100万日元以下的罚款。 如果政府认为存在风险，在发出建议改变或停止劝告后公司仍然没有遵守，那就受到同样的处罚。
+编辑整理：海贼王M.D.LUFFY；
 
-文字版原文：[中日财经爆┃日本披露《经济安全促进法案》草案](https://gnews.org/zh-hans/1964799/)
+字幕文件制作：Cindy；
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

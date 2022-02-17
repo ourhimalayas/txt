@@ -2,31 +2,27 @@
 ---
 
 
-## 有声|喜联储、喜币与传统银行的本质区别
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2018390/)
+## 多數人認為特魯多不能勝任國家領導職責
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2018414/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-郭文贵先生在2月13日的大直播中，分别对喜联储、喜币与传统银行的本质区别进行了解读。
+采編撰稿： 薇文                校對編輯：硫酸羥氯喹64
 
-郭先生认为，首先，法币会增发，政府增发货币，会让民众存在银行的钱被稀释。而喜币一年就发行10亿枚，多发一枚都可能是违法行为；其次，人们普遍忽略的一个最重要的关键是，政府有不兑现法币的权利，但喜币，是与美元挂钩的稳定币；另外，法币只是一个中介，由第三方经营，它不是点对点的。而喜币和喜美元是点对点交易，喜联储不能控制，也没有任何权利进行干预；最后，喜币没有成本，但法币的印刷、发行都是有成本的。
+加拿大溫哥華楊帆農場 楓葉快訊
 
-郭先生强调，造成这四个本质区别的基础，就是政府随意的超发法币，而喜币的白皮书率先向世界公布发行量，并且绝对不会超发。
 
-文字版原文：[喜联储、喜币与传统银行的本质区别](https://gnews.org/zh-hans/2010316/)
+![](https://static.tnc.news/media/2022/01/website-af-29-696x365.jpg)圖片來源：真北方
+據加拿大[真北方]2月16日報道，隨著加拿大自由車隊反抗強製疫苗政策的和平抗議進入第三周，越來越多的加拿大人對總理特魯多的處理方式表示不滿。
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+最新民調顯示，53%的加拿大人認為特魯多在面對抗議活動時的拙劣反應，顯示其在國家出現危機時表現出的軟弱無能。其中有63%的人不會根據該總理處置自由車隊事件的方式而再投票給他。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+盡管主流媒體一邊倒地打壓和平抗議運動，但特魯未能借此提升自己的公眾形象。目前僅約30%的加拿大人認可他的表現，而多數人則認為他因激化了社會矛盾而再無資格成為自由黨領袖和聯邦政府總理，並應該對目前出現的危機負責。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+校對編輯：硫酸羥氯喹64
+
+發文：青青
+
+原文鏈接：[Poll finds half of Canadians believe Trudeau 「not up for the job」](https://tnc.news/2022/02/15/poll-finds-half-of-canadians-believe-trudeau-not-up-for-the-job/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

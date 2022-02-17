@@ -2,27 +2,29 @@
 ---
 
 
-## 日本疫情持续延烧 日本政府仍宣布3月将放宽边境管制
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2018365/)
+## 英实验室稱中共病毒疫苗含氧化石墨烯
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2018367/)
 
-作者：纽约香草山农场教育部 – Naughty(文行)
+作者：台灣寶島農場 – 尋文客
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-日本政府将调整边境防疫措施，基于经济考量将在3月起逐步放宽边境管制，包括有条件开放观光客以外的外国人新申请入境等边境防疫措施松绑等。具体规划将召开记者会进行说明。
+据英媒2月13日报导，英国某官方实验室报告表示，已经证实中共病毒疫苗中肯定含有氧化石墨烯。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8-23.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/6-23.png)
 
-目前日本政府正实施严格的边境管制，原则上禁止止外国人新申请入境，自国外入境后也必须在家中隔离7天。国民从国外入境后，也必须进行7天的居家隔离。日本政府即将放宽的边境管制措施，每日可入境的人数上限，从每天3500人提高到5000人。入境隔离期，则从原先的七天缩短为3天。此外，入境者若已接种三针疫苗，且来自奥米炕变种病毒并未广为传播的地区，入境则无须隔离。
+英国官方实验室派出调查员收集中共病毒疫苗注射瓶，主要包含辉瑞、莫德纳、阿斯利康三个品牌，将注射瓶中内容进行法医检查，确认了疫苗中含有大量的碳复合物、石墨烯化合物和氧化铁。
 
-据外媒报导，日本政府是基于经济考量，因而放宽边境管制。然而，日本疫情并未好转，2月12日单日新增6万8千多例确诊，重症患者数更增加到1300多人，此数据是一个月前的13倍。
+氧化石墨烯是一种有毒物质，可以破坏人类细胞和血液、损害人体器官、诱发癌症、甚至引起基因功能的改变。中共病毒疫苗的成分清单中并未声明含有氧化石墨烯。
+
+目前，该报告已被提交给参与英国刑事案件的警方，据说这为英国警方提供了充分的怀疑依据，即中共病毒疫苗的实验性治疗方面存在严重的可公诉罪行。
 
 参考链接：
 
-- [Japan Set to Relax COVID-19 Border Controls on March 1](https://www.nippon.com/en/news/yjj2022021501253/)
+- [Official U.K. Lab Report confirms Covid-19 Vaccines definitely contain Graphene Oxide](https://dailyexpose.uk/2022/02/13/uk-lab-confirms-graphene-in-covid-vaccines/)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
 
-总编：zhong
+总编：百香果
 编辑：zhong
 校正/发稿：海阔天空1
 

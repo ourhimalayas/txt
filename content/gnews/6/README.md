@@ -2,43 +2,28 @@
 ---
 
 
-## 珍惜生命远离中共，梵蒂冈以大主教礼遇给七哥赠送袖扣
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2019079/)
+## 中日财经爆┃前途暗淡！滴滴裁员两成
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2019176/)
 
-G-TV视频链接：[https://gtv.org/video/id=620cb676b0af02660af43e61](https://gtv.org/video/id=620cb676b0af02660af43e61)
+撰稿：东京樱花团/喜马拉雅的微尘
 
-**郭文贵先生：**今天大过年的，大年初二了，我想告诉所有的中国同胞们：像人一样活着！你只要不像畜生一样活着！还有个你想活下去！——远离中共！珍惜生命！远离中共，不仅是演艺圈，不仅是企业家，也不仅是搞煤的，不管你多大岁数。我就今天奉劝所有的同胞，包括全世界的人，有点良知的看一看所有和中国共产党打交道的下场，马云、赵本山、宋祖英、香港台湾的歌星、以及美国的政要、欧洲的政要、欧洲的主席、包括梵蒂冈。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/中日财经爆┃前途暗淡！滴滴裁员两成.png)
 
-梵蒂冈给七哥送这是啥意思知道吗？梵蒂冈教皇给你送这个袖扣的时候就是把你当成大主教级的，和他平级的才能给你，你以为啥呢？最后告诉全世界人们聪明的人民，智慧的人民，永远要记住珍惜生命，远离中共！
+近日，有媒体证实滴滴正在全面裁员，除国际化部门和一直独立于滴滴之外的自动驾驶部门之外的所有业务，包括网约车、两轮车、货运等各条出行业务，均受到波及。裁员比例约为20%。
 
-字幕来源：[2022年2月2日 《文贵大直播 》全文字版](https://gnews.org/zh-hans/1952328/)
+自去年7月4日，市占率接近80%的滴滴出行App被中共官方下架后，一场“围猎”滴滴的战役悄悄打响。下架半年之后，“网约车日订单减少约20%”的现实还是促使滴滴最终按下了裁员按钮。
 
-编辑整理：海贼王M.D.LUFFY；
+此外，滴滴目前的市值已经跌破200亿大关，仅剩188.4亿美元，相比巅峰时期的800亿美元，滴滴股价已经在不到一年的时间里蒸发了4000亿人民币。
 
-字幕文件制作：Cindy；
+曾经的滴滴是当之无愧的融资之王，从2012年至今，滴滴一共经历了22轮融资，投资机构超过40家，基本涵盖了当今所有著名的投资机构，超过790亿人民币的融资总额也非常辉煌。但与其他中概股一样，滴滴毫不例外的走了与中共权贵和权贵资本结合的路子，最终结局恐难逃“成也萧何败也萧何”的下场。
 
-视频制作及上传：Cindy；
+信息来源：
 
-G-News发布：小满；
+[裁员两成，滴滴的至暗时刻](https://www.sohu.com/a/523255892_115706?scm=1002.590044.0.10049-172&amp;spm=smpc.ch30.content1-n-4.5.1645016400054pb0QzDG)
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

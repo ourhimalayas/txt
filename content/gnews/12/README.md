@@ -2,24 +2,49 @@
 ---
 
 
-## 樱花FM┃北京冬奥会假雪威胁运动员生命安全
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2019012/)
+## 七哥坚信共产党搞不成冬奥会2022年不死也是半死不活
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2019119/)
 
-音频：东京樱花团/战友520
-![](https://lh4.googleusercontent.com/sgE5OblSlMx266b4LxkuXQwTgGEz13X6rSmgdlRiDlL_ysurGGUlEIysUVFqeYdUTs1dixiHbJuu8evem4kUYcBTLlJqxAhZgoVGy0IgpRqbXBihlOpTjHhT0-RgV0KIKkEat3JI)
-2022北京冬奥会在2月4日晚正式开幕，中共官方在宣传低碳环保的理念下，却被发现举办高山滑雪的延兴赛区使用大量的人造雪，而且会威胁到运动员的生命安全。
+G-TV视频链接：[https://gtv.org/video/id=620cb6a6b0af02660af43e6e](https://gtv.org/video/id=620cb6a6b0af02660af43e6e)
 
-据CNN报导，由于今年冬季奥运场馆周遭地区极度干旱，并非特别适合进行雪上运动。为确保自然保护区的赛道雪量充足，赛道上所用的雪大部分都是以造雪机所制造的人造雪。有国外地理学家估计，北京冬奥会使用了约250万立方公尺的人造雪，相当于12,000人全年的用水量。
+**郭文贵先生：**大家不知道背后就是它为啥选这个址，张家口这个地方。所有的这个地方就河北和北京，然后呢又要往北走，要有雪，还要在一个空旷当中搞房地产开发。然后还要达到刚才千叶草妹妹说那个，就是为了达到一个城市同时举办两个奥运会。这个里边的政治目的大家一看就知道，看上去是要北京城中国一个城市首都搞了两届奥运会。
 
-此外，2018年平昌冬奥会铜牌得主、法国越野滑雪运动员克莱芒· 帕里斯（Clément Parisse）指出，虽然在人造雪上的比赛并不少见，但它往往会变得非常光滑与冰冷，将带来更多的风险挑战。
+但到了这个地方以后你看房地产，最早房地产是哪儿的？盘古。我是1999年买的地，我1998年从河北承德往那边去，我在那块人家开发，那时候大概在一千一百块钱一平方米的房价的时候，我大概那会儿有几千亩，就现在的会场最重要的地方几个山坡。
 
-“这对运动员来说很危险，有些人已经死亡。”英国前自由滑雪运动员劳拉‧ 唐纳森（Laura Donaldson）也指出，“假雪”的结晶比天然雪坚硬许多，且更为湿滑。运动员在进行高速滑雪或高空下坠的动作时，若降落时有稍微不慎，随时有生命危险。
+而且一直到他们申请冬奥会拿了之后，我把这地整个退回去我不要了。就如果今天没有七哥爆料革命，都认为我是个神经病，说这个涨多少倍、百倍千倍的事儿你为啥要退了呢？
 
-文字版原文：[北京冬奥会假雪威胁运动员生命安全](https://gnews.org/zh-hans/1964856/)
+第一个孙子就是潘石屹他就去了，然后就是朱孟依，就这些闻到味了，合生创展，碧桂园，王健林到那儿直接干几公里。然后他们邀请我去说，承德的书记、当地的书记，什么什么的，河北的书记。你说那时候七哥在河北那时候省长、省委书记、政法委书记、公安厅长，全是我哥儿们，你想七哥有多牛！我一次都没有去。
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+我那时候告诉说：“你搞不成冬奥会”，我被安全部的董部长亲自当面警告我：“文贵，这话在外面可别说了，这说是政治大忌。”我今天在这儿第一次说出来，你觉得我，你说我当时说为啥搞不成冬奥会，知道吗？第一我知道共产党活不到2022年，我深信不疑，它活到也是半死的，我那时候就深信，我那时候我就信。
+
+字幕来源：[2022年2月2日 《文贵大直播 》全文字版](https://gnews.org/zh-hans/1952328/)
+
+编辑整理：海贼王M.D.LUFFY；
+
+字幕文件制作：Cindy；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

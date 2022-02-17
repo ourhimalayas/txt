@@ -2,35 +2,42 @@
 ---
 
 
-## 2月16日大直播后记：如何看待亲友不相信爆料革命
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2019062/)
+## 职业运动员一个不会去的北京冬奥会一定被吹成完美伟大
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2019162/)
 
-整理：文晋、枫叶红了
-整理：小红帽
+G-TV视频链接：[https://gtv.org/video/id=620cb7a7b0af02660af43eba](https://gtv.org/video/id=620cb7a7b0af02660af43eba)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/16-7.png)图片来源：雅典娜农场设计组（614）
+**郭文贵先生：**战友们，你们知道这2900个运动员80%甚至百分之更多的，绝都不是世界最顶级运动员，基本上都是西方的一辈子忙点事儿、没饭吃的，吃个汉堡包都跟过圣诞大节似的这些人，我告诉你。你见那顶级运动员会去那去吗？职业运动员一个都不会去，一个都不会去！只要去的，一定是有其他原因的。
 
+而且这个中间现在已经预测说各种所谓爆发事件，但是中共已经下令任何情况下都要向世界宣布“这是一个完美的、历史上从来没发生的完美的运动会”，然后  “爱北京，爱中国，中国无限伟大”，这调子已经定了。不管死多少人，死人它都是正常的，不管发生多少事儿都是正常的，只要别出现当年奥运会绑架事件就行了，是吧？
 
-我有两个最简单的办法让你们跨过这个坎儿去。
+字幕来源：[2022年2月2日 《文贵大直播 》全文字版](https://gnews.org/zh-hans/1952328/)
 
-第一个就是你做这件事情到底是为什么做的？人类有个毛病，就是自己说的，要别人听，你才爽。这实际是一种严重的病。最后听着听着就变成独裁了。你不听我的就干掉你。我认为这个是很病态的。我觉得很纳闷，很多战友，为什么你劝家人的时候，要旁边的人，要别人都接受你的奉劝呢？是吧？ 你做的事情不是让别人怎么做，是在乎你自己有没有这么做就够了。而且即使对方听了，你也别得意。不听，你也别沮丧。这是一个很高的境界。
+编辑整理：海贼王M.D.LUFFY；
 
-第二个我也告诉你。为什么你能做到呢？你要相信缘分。每个人有自己的命，是吧？ 你今天你Alice和Tiger睡在一起，就他俩有缘分。她没和我睡在一起就跟我没有上床的缘分。就这么简单，没有缘分都没在一起啊。我追寻自由，你既然没跟腹肌在一个房间，因为你俩没有同床之缘。Bunny，你不是我儿子，就是我们俩没有父子之缘，就这么简单。什么都是有缘分的。真的要相信缘分的时候，你什么都不在乎了，就包括我这个破产。你不觉得我有缘分吗？我就觉得我命中必然有这个破产。我给你嫂子说，人生我啥都经历过了，没破产好像不完美。
+字幕文件制作：Cindy；
 
-我在那个红绿灯等了5年了，永远是红灯，对方永远是绿灯。我就不能到下个红绿灯，问问警察，我能不能在这儿待着试一下？人家说这可以啊。这里不但有红灯，有绿灯，还有个黄灯。哎？我这第一回听说黄灯，是啥呀？警察说，黄灯叫你暂停，既不走也不要退。这不就叫个人破产？我感觉很好啊。我在那个红绿灯5年都是红灯，对方都是绿灯，还逆行，是吧？ 他们过得那么好，然后我这车油都没了，好不容易爬到这儿来，原来红绿灯十字路口还有黄灯。黄灯就是个人破产。所以我才知道，这个城市你不能有个坏警察，你就忘掉有真警察或者多个警察，你就杀人放火。我特别享受，我特别开心啊。就像昨天，我告诉所有人，我说，美国太伟大了，我最起码能找着黄灯。
+视频制作及上传：Cindy；
 
-那我要在北京，我要说我是郭文贵，我刚才在长安街西入口。听说我是郭文贵，警察一定说，郭文贵来这，一枪就把你给毙了。我这红灯绿灯都没有，我给你个死亡之灯，因为你是共产党的敌人。这是为什么我们爱台湾呢？我去台湾以后，就台湾的摩托车，你们知道在台湾那种感觉，吓死人了，比大陆还乱。但是台湾人遵守交通规则。台湾没有那么多黑警察，不用给人，给警察塞钱。你就觉得在台湾很享受。那是一种文化。
+G-News发布：小满；
 
-资料来源：2022年2月16日郭文贵先生大直播
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-发布：tianzhihuan
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

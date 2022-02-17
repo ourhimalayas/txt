@@ -2,22 +2,42 @@
 ---
 
 
-## 中共国江浙地区疫情大封锁
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2018437/)
+## DC大中华时事：中共称在欧亚大棋局地位愈发重要
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2018462/)
 
-加拿大温哥华杨帆农场 枫叶快讯
+*编辑：西北风 / 作图：*hans（文玄）
 
-采编：风云小哥     编译撰稿：文莱
-![Nurses wearing protective face masks enter a community hospital in Shanghai on February 13, 2020. - China's official death toll and infection numbers from the deadly COVID-19 coronavirus spiked dramatically on February 13 after authorities changed their counting methods, fuelling concern the epidemic is far worse than being reported. (Photo …](https://media.breitbart.com/media/2020/02/GettyImages-1200517193-640x480.png)图片来源：布莱特巴特新闻
-据【布莱特巴特新闻】2月15日报道，由于新出现了多起“新冠病毒”感染病例，中共国苏州市政府日前紧急关闭了其大部分医疗服务机构和学校，以试图遏制正在扩散的疫情。 报道称，苏州市在发现新增感染病例之后，已于2月13日暂停了所有医院的急诊医疗服务。并迅速关闭了抗生素，止咳和退烧药物的在线和零售购买业务。目前，该市至少有39个地区被当局全面封锁。
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/ScreenShot-2021-08-01-at-17.25.09@2x.png)
 
-据悉，由于苏州毗邻上海，因此该市突发的疫情随即导致上海于日前暂停了连接这两座城市的所有公交和地铁线路。 对此，文贵先生早前已发出警告称，中共政权必定会利用冬奥会之机，大搞疫情恐怖政策，在全国各地自北向南连续人为传播病毒和实行大封锁，以此满足习近平当局奴役和控制全国的变态统治欲望。
+#   墙国妄语每日驳
 
-校对编辑：硫酸羟氯喹64
+### **0**2.15.2022
 
-发文：青青
+[境外媒体：香港抗疫体现“一国两制”优势\_参考消息网 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/china/20220217/2469586.shtml)
 
-新闻来源：[China Imposes Local Ban on Anti-Cough Drugs, Locks Down City of 10+ Million over Coronavirus (breitbart.com)](https://www.breitbart.com/asia/2022/02/15/china-imposes-local-ban-on-anti-cough-drugs-locks-down-city-of-10-million-over-coronavirus/)
+***简评：***香港给中国改革开放带来了国际技术，资金，人才和广阔的国际市场，曾经的香港影视剧，音乐丰富了几代中国人精神生活，香港是几代中国人梦想生活的样板，1997香港回归大陆，当时年少的我们也都欢呼雀跃，短短十几二十年香港就变成了现在这样悲惨，难道这样一个活生生展现在我们每一个成长过程中的鲜活案例还不能让我们去认识到中共的邪恶本质那我们东方这片土地真是被上天诅咒了。地球人现在都知道中共施放了生化病毒，2019年开始的香港反送中运动中共不是借施放冠状生化病毒给镇压了，冠壮病毒起始不就是因为香港反送中运动吗。现在香港疫情急速发展，那是疫情吗，这不是中共惯用的手段吗，中共自己放病毒，又己病毒疫情为借口加大对香港的管控，自中共出现在中国这片土地上，百年来中共不都是同样的方法来奴役中国老百姓吗。
+
+### 02.15.2022
+
+[港媒：中国在欧亚大棋局地位愈发重要\_参考消息网 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/column/20220217/2469527.shtml)
+
+***简评：***俄罗斯普京还没开打乌克兰呢，中共官宣已经开始自嗨了畅想了，中俄联盟要称霸世界了，如果这仅仅是给国内老百姓宣传洗脑打鸡血那到罢了，如果连这些中共执政者都是这样去认识和思考去构建国家战略，任何一个有在国外学习工作生活经历的人都明白这是愚蠢的不现实的，可极权的中共体制为了权力而你死我活的角斗最终必然为了权力而丧心病狂，行为无法理喻，就像今天的习太阳，毛病不改，积恶成习。
+
+### 02.15.2022
+
+[港刊文章：北京冬奥展现中国巧实力\_参考消息网 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/china/20220217/2469587.shtml)
+
+***简评：***大国的实力，八方来贡，万国来朝，看那花费上万亿美元展现的大国威武，这让墙内老百姓多么热血沸腾，国际世界友人多么啧啧赞叹称奇。可这是真实的中国吗？就像中共不会让你看到对新疆种族大屠杀，对西藏自然资源破坏掠夺，对香港上万青少年的奸杀……看看那个徐州丰县锁链女，那才是真实的中共国，她代表了一个真实的中国。
+
+#   港台资讯
+![](https://media.discordapp.net/attachments/858887785507323904/943728401024417842/1.PNG?width=1043&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/943728437808496689/2.PNG?width=1043&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/943728475196497941/3.PNG?width=1043&amp;height=586)
+
+
+
+
+*编辑：*西北风
+*作图：hans（文玄）
+发布：文顾*
 
  
 
