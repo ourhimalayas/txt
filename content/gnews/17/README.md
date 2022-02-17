@@ -2,54 +2,36 @@
 ---
 
 
-## 中俄发动战争，中共必灭 世界经济将重整
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2020707/)
+## 有声|习近平攻台后，各方真实心态
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2020902/)
 
-作者：纽约磐石农场—在远方
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+美国：习近平如果打了台湾，以美国为首多国联军趁机宣布中共为非法政权，宣布习近平犯下侵略和反人类罪，公开承认新中国联邦合法性，代表全体中国人。习只要打台湾，美国可以用反中共侵台，轻松转移掉国内分裂、疫苗死伤、美元超发、中期选举视线压力，同时拉上欧洲再干一次打伊拉克战争。美国可以全面没收和冻结中共盗国贼及子女资产（算敌对方资产）。美国从阿富汗失分后，可以在台湾上外交得分。
+欧洲：全面推行去中共化运动，洗牌各国政府生态，转移掉国内反疫苗情绪。可以趁机冻结中共在UBS,德意志银行资产。
+俄罗斯：佯装打乌克兰，讹诈了一把欧美，得了中共一笔钱，用台湾把中共拖入泥潭，亚欧通吃。
+日本：捍卫台湾后，确认自己是亚洲之王，坚定支持新中国联邦，为未来的新亚洲打好基石。
+印度：亚洲最坚定支持保守派政府，反疫苗最成功国家，阻截中共南海霸权推到自己家门口。
+越南和菲律宾、印尼：一帮跟在后面的小弟，中共垮了可以接棒制造业和出口。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/download-8.jpg)
+文字版原文：[习近平攻台后，各方真实心态](https://gnews.org/zh-hans/2015930/)
 
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-33.png)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-在2022年2月13日的大直播中，郭文贵先生表示：中共和俄罗斯发动战争的代价是中共将被消灭，世界经济将会重整，全世界都会对中共病毒进行溯源，货币时代将开启，新中国联邦是最后赢家。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-file-2.jpeg)
-郭先生说，现在全世界都把疫苗造成的伤害和死亡归结到中共病毒起源中来，大卡车运动和反疫苗运动，就说明了事情的走向。北京冬奥结束之后，中共和俄罗斯一旦挑起战争，全世界的视线都会聚焦在武汉实验室。俄罗斯一旦侵略乌克兰，此时不管中共打不打台湾，都意味着普京政权的结束，因为俄罗斯不可能把各国全部消灭，而全世界一定会联合起来消灭俄罗斯，只是代价的大小而已。这会导致世界经济彻底混乱然后重整，而新中国联邦将是最大赢家。
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-郭先生说，到了那个时候，全世界就将开始追责中共，因为是中共在背后支持了俄罗斯。美国、欧洲和澳洲也会团结在一起，这将导致三件事情的发生：
-
-第一个是所有像加拿大总理特鲁多那样强迫民众施打疫苗的政客，都会被送上绞刑架。
-
-第二个是五月份以后，疫苗大灾难开始，大量的人口死亡，此时的社会动乱会此起彼伏。西方文明世界的政治形势、媒体界、医疗界和知识界将会重新改写，这就是天机。俄罗斯对乌克兰、中共对台湾的战争问题，将导致世界政治板块彻底改变，将改变西方资本主义所有的民主，和现存的独裁政权，将会把走向极左方向的国家彻底纠正过来。
-
-第三个是世界经济的变化。由于现在全世界已经印刷了三百万亿美元的超发货币，这将会导致经济泡沫彻底破裂。世界上两种货币并存，即数字货币和法币。
-
-综上所述，数字货币的出现和流通，世界政治从极端左派向中间派、甚至极右派转型，中共和俄罗斯独裁政权的灭亡，都说明新中国联邦将是最大赢家。
-
-参考来源：
-
-[https://www.gettr.com/post/pudoks629e](https://www.gettr.com/post/pudoks629e)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-38.jpg)
-
-
-
-编辑/校对/发稿：兰兰
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-34.png)
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

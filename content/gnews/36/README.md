@@ -2,24 +2,36 @@
 ---
 
 
-## 习近平神隐数日 欲发动对台作战计划
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2020347/)
+## 币安遭SEC调查 美财政部确认加密矿工和钱包商不受国税局部分规则约束
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2020391/)
 
-撰稿：台湾宝岛农场- zhong
+撰稿：银河系农场 – 骄子；加拿大温哥华扬帆农场 – Spirit
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-4.png)
-郭文贵先生于2月14日和15日连续发布盖特视频爆料称，习近平神隐数日，正在准备对台湾的一场战争，处心积虑地酝酿对台湾的整个作战计划，对台湾极为危险。预计习近平将在16日左右现身，他呼吁台湾同胞务必小心，习近平正准备对台湾发动战争。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1644.png)
-此外，俄罗斯与乌克兰的军事风险、国际经济、金融的动荡及疫苗灾难，都是世界瞩目的焦点，而一切的灾难都来自于中国共产党。然而，中国共产党的恶行，最后将由中国人买单。
+全球最大比特币交易所币安，因美国证券交易委员会怀疑币安可能存在内幕交易和市场操纵等不法行为，目前正遭到美国证券交易委员会的调查。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1645.png)图片来源：https://cointelegraph.com
+调查主要针对币安相关的两家交易公司Sigma Chain AG和Merit Peak Ltd，这两家公司是币安美国交易所的作市商，截至去年年底，这两家公司由币安创始人兼首席执行官赵长鹏控股。SEC正在了解币安美国交易所如何向客户披露与两家交易公司的关联。
+
+此外，美国财政部对加密货币矿工和加密货币钱包运营商的税务监管进行表态。财政部表示，加密货币矿工和钱包运营商不受美国国税局报告规则的约束，而相关监管法规正在拟制当中。而美国财政部计划让加密货币矿工、造币商和其他市场参与者，免于遵守要求加密货币经纪商与国内税收局IRS共享客户交易数据的相关规则。
+
+参议员罗布·波特曼在其社交媒体上宣布这一消息时说：“感谢财政部确认加密货币矿工、造币商和那些出售钱包的硬件和软件者，不需要承担纳税报告义务”。财政部还将考虑 “数字资产市场中的其他各方，如集中式交易所、那些通常被称为分散式交易所，以及点对点交易所，应在多大程度上被视为经纪商”。
+
+据了解，美财政部正在对加密货币经纪人寻求法律范围的解释，以及澄清加密货币的押金稅问题等。對此一重大消息，新中國聯邦發起人郭文貴於16日發布蓋特表示，美国加密货币行业即将取得重大法律胜利，意义深远。这是上天给予新中国联邦人元宵节最好的礼物。
 
 新闻链接：
 
-[https://news.ltn.com.tw/news/politics/breakingnews/3831219](https://news.ltn.com.tw/news/politics/breakingnews/3831219)
+[郭文贵先生2月15号盖特](https://gettr.com/post/pupz7ee61a)
 
-[https://gettr.com/post/purvnk5f66https://gettr.com/post/puh5sv8f69【播放影片】https://gettr.com/post/puh5sv8f69](https://gettr.com/post/purvnk5f66https://gettr.com/post/puh5sv8f69【播放影片】https://gettr.com/post/puh5sv8f69)
+[美国财政部确认，加密矿工和钱包运营商法规出台](https://gettr.com/post/pumsxde238)
+
+[2022年2月16日文贵大直播](https://gettr.com/post/puqtocd3a0)
+
+[Crypto miners exempt from IRS reporting rules, US Treasury affirms](https://cointelegraph.com/news/crypto-miners-exempt-from-irs-reporting-rules-us-treasury-affirms)
+
+[全球最大比特币交易所币安遭SEC调查](https://wallstreetcn.com/articles/3652036)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-3.png)
 
-编辑：飛虹
+编辑：Delilah小胖
 
 总编：zhong
 

@@ -2,75 +2,43 @@
 ---
 
 
-## 中共统治下数字呈现出的真相
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2020286/)
+## BioNTech计划在非洲建造模块化疫苗工厂
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2020357/)
 
-撰稿: 纽约香草山 医疗部 云豹
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-4.png)
-2月15日，郭文贵先生于盖特中转贴了据称前重庆大学法学院院长陈忠林教授做出的一些统计数据。表明中共国民众的真实生活状态。其中有些数据我们无法证实，不便展示。但我们综合了一些类似统计指标的可查询数据，来反映中共统治下国民的真实状况。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1643.png)
-1.中共2021年全球清廉指数排名第66位。与之对比，台湾排名第25位。
+整理报道：攀登者
+编辑：Mttfly
 
-2.中共司法人员的犯罪率是一般民众的6倍。
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/BioNTech.jpg)图源：*Andreas Arnold/dpa via AP*
+据美联社柏林报道，德国疫苗制造商BioNTech周三公布了在非洲建立疫苗制造设施的计划。该制造商曾与辉瑞一起开发了首例获得广泛批准的新冠病毒疫苗。
 
-3.2020年中共人均收入5150美元，美国为3.86万美元。中共人均收入只有美国的13%，而且内部不平等现象严重。
+在德国马尔堡举行的仪式上，该公司展示的模块化设计包括装有制造公司基于mRNA疫苗所需设备的海运集装箱，省去了将剂量放入瓶子的最后一步，这个过程被称为填充和完成。
 
-4.房价与年收入比，中共是20~40:1，美国是3:1。中共房价是美国的6~13倍。
+BioNTech因拒绝暂停其疫苗专利并让竞争对手制造疫苗而受到一些运动团体的批评，作为更广泛地提供疫苗的一部分，特别是在穷国。该公司辩称，mRNA疫苗的生产过程很困难，它更喜欢与当地伙伴合作，以确保全球疫苗的一致质量。
 
-5.中共官民比为1:20，美国为1:700。中共民众对官员的负担是美国的35倍。
+BioNTech表示，第一个统包设施将于今年下半年运往塞内加尔或卢旺达。它的目标是在12个月内开始每年生产多达5000万剂疫苗，等待当地监管机构的批准。
 
-6.中共国有行业职工占全国职工总数8%，收入却占全国职工工资总额55%。
+BioNTech表示，它最初将配备人员并运营这些设施，但后来将专业知识转让给当地合作伙伴，以实现独立运营。
 
-7.中共政府收入增长985倍，民众只增长19倍。
+该公司表示，该系统由12个容器组成，将来可以轻松扩展。在疟疾、癌症或结核病等其他疾病的新药物出现时，可以对其进行改装，以制造相应药物。
 
-8.中共贫困人口超过2.5亿人，排全球第二位。
+世界卫生组织负责人Tedros Adhanom Ghebreyesus秘书长欢迎BioNTech增加非洲大陆疫苗生产的计划。
 
-9.中共能享受到的教育及医疗费用占国内生产总值的3.8%，美国为21.5%。中共只有美国的17%。
+去年，世卫组织采取了不寻常的步骤，从根本上复制了美国现代公司制作的基于mRNA的新冠病毒疫苗。
 
-10.中共每年非正常死亡数超过320万人。
+尽管努力通过国际捐助机制向非洲提供数百万剂新冠病毒疫苗，但非洲大陆只有约11%的人口接种了疫苗，而全球平均水平约为50%。在新冠疫苗副作用如此明显的情况下，这未必是个好消息。
 
-新闻链接：
-[郭文贵先生2月16日盖特](https://app.gettr.com/post/pus4wg2897)
+参考新闻：[BioNTech计划在非洲建造模块化疫苗工厂](https://www.newsmax.com/amp/finance/streettalk/virus-outbreak-biontech-africa/2022/02/16/id/1057074/)
 
-[熱帖：什么才是真正的“國恥”，看完震驚](http://www.rocidea.com/one?id=33533)
+*发布**：**Mttfly*
 
-[國際透明組織2021年全球清廉印象指數](https://news.ltn.com.tw/news/society/breakingnews/3812587)
+**更****多资讯****，****请关注****：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-[陳忠林: 中國絕對不敢公布的大數據](https://www.huaglad.com/zh-tw/aunews/20201002/405113.html)
-
-[陳忠林简介](https://www.newton.com.tw/wiki/%E9%99%B3%E5%BF%A0%E6%9E%97/6081045)
-
-[貪污感知指數](https://zh.wikipedia.org/wiki/%E8%B2%AA%E6%B1%A1%E6%84%9F%E7%9F%A5%E6%8C%87%E6%95%B8)
-
-https://chinadigitaltimes.net/chinese/347873.html
-
-[2020年全国居民人均可支配收入](http://www.gov.cn/guoqing/2021-04/09/content_5598662.htm)
-
-[2020年美国“人均收入”约为“人均GDP”的61%，占比为何这么高？](https://www.sohu.com/a/491183907_100110525)
-
-
-
-
-
-> [中共國平民為何普遍貧窮根源之一便是官民比](https://dev.gnews.org/zh-hant/423090/)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-3.png)
-
-编辑: 飛虹
-
-总编: zhong
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-4.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

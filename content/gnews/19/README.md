@@ -2,22 +2,26 @@
 ---
 
 
-## 北京冬奥会2月16日上午出现可怕一幕，又一位运动员瘫倒在地，突发心血管病
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2020685/)
+## 【G时新闻】特鲁多宣布紧急状态后，渥太华自由车队抗议继续
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2020886/)
 
-#### 翻译                          意大利达芬奇农场                  小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-17-alle-12.00.56.png)图片来源：avversinews.it
-上个星期天挪威世界冠军英格丽德•坦德雷沃尔德( Ingrid Tandrevold )在快要接近终点时所发生的一幕， 2月16日早上在4×6 冬季两项接力赛中又出现了。
+加拿大温哥华扬帆农场   播报：文广   视频制作: Gracelshan
 
-在2022年冬奥会举办地张家口的雪地上，女子团体预赛于北京时间15点45分开始，对运动员来说，幸运的是，气温没有前几天那么令人望而生畏。瑞士队是有望夺冠的。
+特鲁多宣布紧急状态后，渥太华自由车队抗议继续。根据《独立报》（Independent) 2月16 日报道。
 
-问题出在女子4×6公里冬季两项的接力赛，瑞士队比赛只进行了几分钟。由于呼吸问题，第一棒选手，伊雷妮•卡杜里施（Irene Cadurisch）不得不在传递接力棒之前放弃比赛，她被用担架抬离现场并送往医疗站。从而提前结束了瑞士队的比赛。
+加拿大皇家骑警（RCMP）和渥太华警方将开始行动，结束来自加拿大首都和议会辖区的 “自由车队”抗议活动。
 
-这次比赛瑞典队夺得金牌。据瑞士网站报道30岁的伊雷妮•卡杜里施可能是心血管出了问题。
+两天前总理特鲁多援引了几乎没有使用过的《紧急状态法》来处理危机。三位消息人士告诉路透社，特鲁多称卡车司机对Covid疫苗强制和其他限制的抗议活动是 “非法占领”，据说在第二个周末的抗议活动之后，他诉诸了紧急权力。
 
-原文链接：[https://www.eventiavversinews.it/olimpiadi-di-pechino-momenti-terribili-anche-stamattina-16-febbraio-unaltra-atleta-e-crollata-a-terra-stamattina-problemi-cardiovascolari-improvvisi-per-irene-cadurish/](https://www.eventiavversinews.it/olimpiadi-di-pechino-momenti-terribili-anche-stamattina-16-febbraio-unaltra-atleta-e-crollata-a-terra-stamattina-problemi-cardiovascolari-improvvisi-per-irene-cadurish/)
+周二，渥太华的警察局长Peter Sloly在受到批评和两周多的示威活动后辞职，渥太华市长吉姆-沃森表示，他与 “自由车队 “成员达成协议，离开惠灵顿街以南的住宅区。
 
-编辑、上传： Xiao  baige
+据当地新闻报道，加拿大当局现在将采取冻结对卡车司机的资助，加拿大皇家骑警将开始在议会区周围建立 “禁区”以迫使人们离开。
+
+该国的公共卫生部长说，为了恢复秩序，任何拒绝的人都将被逮捕，政府已向停在该地区的车辆的乘客发放传单，警告他们离开，否则将面临刑事指控，禁止使用空气喇叭的禁令延长60天。
+
+听写/翻译：LuLu1312
+字幕：圣骑士
+编辑/上传：圣骑士
 
  
 
