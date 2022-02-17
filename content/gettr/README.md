@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/17/2022 1:39 AM (UTC)`
+
+2/16/2022 Miles Guo: The Winter Olympics has turned into a “Hibernation Games” and will end with the downfall of the CCP. Truckers, women, and senior people have all come out to protest in the streets, creating a glorious moment for humanity. Big Pharmas like Pfizer along with Facebook and Twitter will surely go bankrupt, and Emmanuel Macron is bound to be sent to the gallows.<br/><br/>2/16/2022 文贵直播：冬奥会已成“冬眠会”且一定会以中共的灭亡为结束；卡车司机、妇孺老人齐上街，创造了人类辉煌；辉瑞等医药公司和Facebook、Twitter一定会破产，马克龙一定会走上绞刑架<br/>
+![img](https://media.gettr.com/group46/getter/2022/02/17/01/6eaec051-ee26-c81f-81f6-62dbfd8d18d9/out.jpg)
+
+---
+
 `@miles 2/17/2022 1:19 AM (UTC)`
 
 2/16/2022  STATEMENT OF MILES GUO REGARDING BANKRUPTCY FILING<br/><br/>2022年2月16日 郭文贵关于个人破产申请的声明
@@ -145,13 +152,6 @@
 
 2/14/2022 Miles Guo’s GETTR: Only the Lao Baixing in the civilized countries can speak up and rise up against the COVID vaccine mandate. The Winter Olympics and the incident of Eileen Gu and her mother has pitted the overseas Chinese against the entire world. Weijian Shan, who covers up for the CCP, has swindled countless pension funds across the globe. If the CCP and communism are not eliminated, there will be no peace in the world.<br/><br/>2/14/2022 文贵盖特：只有文明国家的老百姓才能发声并反抗强打疫苗；冬奥会和谷爱凌母女让海外华人与全世界对立；替共产党洗地的单伟建骗了全世界无数养老金；中共和共产主义不灭，世界永无和平<br/>
 ![img](https://media.gettr.com/group9/getter/2022/02/14/22/34250528-372e-2e51-da1b-8b1f3ac908a5/out.jpg)
-
----
-
-`@miles 2/14/2022 10:20 PM (UTC)`
-
-2/13/2022 Miles Guo: Why do I insist on filing for personal bankruptcy? Since I made up my mind to take down the CCP in 1989, I have never cared about my reputation. I only care about my fellow fighters!<br/><br/>2/13/2022 文贵直播：为什么文贵坚持要申请个人破产？自从1989年下定决心开始灭共以来，文贵就没有在乎过自己的羽毛，文贵只在乎战友们！
-![img](https://media.gettr.com/group46/getter/2022/02/14/22/3a7d6366-ccf0-ec6c-fcf7-084fc251f51d/out.jpg)
 
 ---
 
