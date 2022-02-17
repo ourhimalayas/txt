@@ -2,8 +2,8 @@
 ---
 
 
-## 20220216中共病毒引起全世界排华、仇恨亚裔越发严重
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2019597/)
+## 20220216七哥拿鲜血和命来签署的破产法案是为了换我们安全的一种方式
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2019661/)
 
 作者:东京樱花团小视频组
 

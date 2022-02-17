@@ -2,46 +2,53 @@
 ---
 
 
-## 因为贪婪和无知, 冬奥会和冬奥会地产商不知整死多少人
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2019669/)
+## 乌克兰指控俄罗斯支持的叛乱分子炮击
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2019725/)
 
-G-TV视频链接：[https://gtv.org/video/id=620cc118b0af02660af4415a](https://gtv.org/video/id=620cc118b0af02660af4415a)
+信息来源： 路透社
 
-**郭文贵先生：**就像冬奥会的某个地产商之前牛得就不行了，张家口赚大钱了，福建人，到那儿去了，为啥大家呀？大家知道河北的书记，在和福建这有关系，包括那省长是吧？哎呦，牛得不行了。
+翻译/整理： 意大利罗马达芬奇农场 Shuizhuyu
 
-结果头一段时间说：“七哥！坏了！我这贷款现在银行找我要，（房产）然后打5折银行都不收，我是想卖给银行，然后谁谁谁，就佩服你，成天看你直播，你能给他发个信息让他把我的房子给收了不？”
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/FLUNCSRMUVFXLKYQTF2MTWKUQE.jpg)
 
-你说就这人、就这人，我说：“你拉倒吧！你脑子没健全，你能活着不错了。”很不幸，大年27被警察抓走。抓走不到一个小时，老婆打了三针疫苗又直接“蹬腿”——就这么惨。
 
-冬奥会这个地产商和冬奥会不知道整死多少人，是吧？因为你的贪婪、你的无知限制了你的想象。你要么被共产党给搞死，你要么被疫苗搞死。
+图片来源： 路透社
 
-字幕来源：[2022年2月2日 《文贵大直播 》全文字版](https://gnews.org/zh-hans/1952328/)
+俄罗斯支持的叛军和乌克兰军队周四相互指责，双方都在乌克兰东部的停火线上开火，在西方国家警告俄罗斯随时可能入侵的时候发出警报。
 
-编辑整理：海贼王M.D.LUFFY；
+事件的细节无法得到独立证实，最初的报告表明，它们的规模与八年冲突中常见的违反停火行为的规模相似。
 
-字幕文件制作：知津；
+在全球关注更广泛战争前景的时候出现的，超过 100,000 名俄罗斯军队在乌克兰边境附近。莫斯科否认它正在计划入侵，并在本周表示它正在撤回一些军队，尽管西方国家表示他们不相信。
 
-视频制作及上传：Cindy；
+乌克兰分裂分子指责政府军在过去 24 小时内四次向其领土开火，而乌克兰指责叛乱分子发射炮弹，其中一些炮弹击中幼儿园，造成两名平民受到炮击。
 
-G-News发布：小满；
+一名路透社摄影师在乌克兰叛军控制的卢甘斯克地区卡迪夫卡镇听到了来自接触线方向的一些炮火声，但无法立即评估事件的细节。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+基辅及其西方盟友最近几周一再表示，他们认为莫斯科可以利用分离主义冲突中的事件作为入侵的理由。俄罗斯方面则指责基辅试图挑起事态升级，以武力夺回叛军领土。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+一位外交消息人士说，欧洲安全与合作组织的一个长期监测团在周四凌晨记录了接触线沿线的多起炮击事件。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+自从 2015 年的停火结束了分离主义冲突中的重大战斗以来，欧安组织通常每天报告数十起违反停火的行为，每月有数次重大炮击或冲突导致伤亡。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+自称卢甘斯克人民共和国是两个反叛地区之一，乌克兰军队在周四的四起不同事件中使用了迫击炮、榴弹发射器和机关枪。
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+分离主义者在一份声明中说，“乌克兰武装部队粗暴地违反了停火制度，使用了重型武器，根据明斯克协议，这些武器应该被撤回，”
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+乌克兰军方在谈到叛军时说：“俄罗斯占领军特别玩世不恭地炮击了卢甘斯克地区的斯坦尼察卢甘斯克村。由于恐怖分子使用重型火炮武器，炮弹击中了幼儿园建筑。根据初步数据，两名平民受到炮弹冲击。”
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+俄罗斯议会下院周二投票要求总统弗拉基米尔·普京承认这两个自称为分离主义共和国的独立。
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+克里姆林宫已经暗示普京没有立即这样做的计划。在乌克兰人举起国旗奏国歌的团结场面的同时， 乌克兰也报告了黑客攻击。 乌克拉国防部表示， 黑客仍在轰炸其网站，并已成功发现程序代码中的漏洞。虽然基辅没有说出事件幕后黑手的名字，但一份声明暗示它正在将矛头指向俄罗斯。
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+俄罗斯联邦安全局没有立即回复路透社的置评请求。
+
+拜登周二在白宫的电视讲话中说：“如果俄罗斯通过对我们公司或关键基础设施的破坏性网络攻击等不对称手段攻击美国或我们的盟国，我们准备做出回应。”
+
+俄罗斯一直否认计划入侵乌克兰，但一直在敦促西方提供一系列安全保证，包括承诺其邻国乌克兰永远不会加入北约。
+
+🔗[https://www.reuters.com/world/europe/ukraine-rebels-accuse-govt-forces-mortar-shelling-report-2022-02-17/](https://www.reuters.com/world/europe/ukraine-rebels-accuse-govt-forces-mortar-shelling-report-2022-02-17/)
+
+编辑发布： Shuizhuyu
 
  
 

@@ -2,11 +2,11 @@
 ---
 
 
-## 曾经被洗过脑的洋五毛演唱的反洗脑神曲【The Party’s MC】
-` 新西兰农场【光影传镜】` [轉載自GNews](https://gnews.org/zh-hans/2019732/)
+## 参加达沃斯的无一人打疫苗
+` 新西兰农场【光影传镜】` [轉載自GNews](https://gnews.org/zh-hans/2019813/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/d092f3b6f44d1c5fff7ac33fddcb2721.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/3d6c40e9b0d4caea4755cf1d6722ef55.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/7e9ab3d13556aca3287577f2c6f3e771-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/8330ecf231d106baaa9bb04e7df929df-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/98a3fd57f17823233e6528454dca159d-1.jpg)
-图文：**爆料革命大事记WhistleBlowerMovement BigEvent**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/20220215-1-.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/20220215-1-1-1.jpg)
+图文设计：新西兰农场设计组
 上 传：F
 
  
