@@ -2,27 +2,30 @@
 ---
 
 
-## 樱花FM┃被共同富裕？京东CEO刘强东捐出23亿美元股票
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2021223/)
+## NFSC新闻、G|TV新闻访谈简报|2022年2月17日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2021247/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-2-5.png)
-2月2日，京东集团公告，公司董事会主席兼首席执行官刘强东将向第三方基金会捐赠 6237.66万股B类普通股，该捐赠将用于慈善目的。京东集团介绍称，此次捐赠股票价值超过23.4亿美元。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO-1.jpg)
 
-去年以来，中共全面整治互联网企业，众多知名互联网企业高层纷纷未老先退。去年4月，刘强东卸任京东集团CEO，由徐向前孙子徐雷接任集团总裁。刘强东陆续卸任多达数十家公司法人代表、董事长或其他高管职务。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-16.png)
+文章仅代表作者本人观点，与Gnews无关
 
-去年8月17日，中共中央财经委员会第十次会议提出“共同富裕”政策后，阿里、腾讯、字节跳动、拼多多、京东等头部互联网企业纷纷表态响应，阿里、腾讯更是官宣了千亿元规模的“共同富裕”基金，其他企业也都宣布了相应的目标和计划。
+视频参看：
+[2022.02.17早 《NFSC新闻》](https://gtv.org/video/id=620e4d90b706176dd78ba22e)
+[2022.02.17早 G|TV《新闻访谈》](https://gtv.org/broadcast/watch/620e550db706176dd78baaa8)
 
-有分析人士认为，鉴于中国企业家历来没有慈善捐赠传统，刘强东此次捐出股票或是被“共同富裕”。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-文字版原文：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-1.png)
 
-[被共同富裕？京东CEO刘强东捐出23亿美元股票](https://gnews.org/zh-hans/1961115/)
-
-编辑：东京樱花团/asket
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
