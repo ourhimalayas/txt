@@ -15,77 +15,77 @@
 
 ---
 
-### [GETTR VISION没有如期上线不能兑现承诺让七哥非常难堪](/content/gnews/1/README.md)
+### [喜支付象新鲜自由的空气一样必成为英国美国的不二之选](/content/gnews/1/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [HPay是生产力与人与人之间解放,物质大流通和精神解放](/content/gnews/2/README.md)
+### [20220216美国大使不撤离中国的前提，必须病毒溯源](/content/gnews/2/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [喜币喜支付的诞生未来必将面对全世界的挑战侮辱和限制](/content/gnews/3/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [放下（一）](/content/gnews/3/README.md)
+### [GETTR VISION没有如期上线不能兑现承诺让七哥非常难堪](/content/gnews/4/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [20220216爆料革命、新中国联邦奖励为铁链女发声的同胞](/content/gnews/5/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [放下（二）](/content/gnews/6/README.md)
  ` 骄子`
 
-### [20220216喜币美好的未来和重大的意义，开启了人类金融智慧的未来](/content/gnews/4/README.md)
+### [HPay是生产力与人与人之间解放,物质大流通和精神解放](/content/gnews/7/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [放下（一）](/content/gnews/8/README.md)
+ ` 骄子`
+
+### [20220216喜币美好的未来和重大的意义，开启了人类金融智慧的未来](/content/gnews/9/README.md)
  ` Tokyo Sakura Video Group`
 
-### [与中共勾结的蛇妖闫、路大脑袋和九指妖将终生付出代价](/content/gnews/5/README.md)
+### [与中共勾结的蛇妖闫、路大脑袋和九指妖将终生付出代价](/content/gnews/10/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [沈阳公交车爆炸指向访民因上访未果后制造的土炸弹](/content/gnews/6/README.md)
+### [沈阳公交车爆炸指向访民因上访未果后制造的土炸弹](/content/gnews/11/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [推广HPay回报率无限大+未来所在地区的支付和代理权利](/content/gnews/7/README.md)
+### [推广HPay回报率无限大+未来所在地区的支付和代理权利](/content/gnews/12/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [大直播后记 ：2025年一定灭共](/content/gnews/8/README.md)
+### [大直播后记 ：2025年一定灭共](/content/gnews/13/README.md)
  ` 雅典娜GNotes`
 
-### [有声｜美议员提法案 禁中共高官送子女赴美学习](/content/gnews/9/README.md)
+### [有声｜美议员提法案 禁中共高官送子女赴美学习](/content/gnews/14/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [有聲｜兩年爆發5輪疫情 內蒙古滿洲里再封城](/content/gnews/10/README.md)
+### [有聲｜兩年爆發5輪疫情 內蒙古滿洲里再封城](/content/gnews/15/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [喜支付系统里没有统治和纳税,所有价值是双方的信和用](/content/gnews/11/README.md)
+### [喜支付系统里没有统治和纳税,所有价值是双方的信和用](/content/gnews/16/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [福奇要跳船了 称要慎重考虑是否打第四针](/content/gnews/12/README.md)
+### [福奇要跳船了 称要慎重考虑是否打第四针](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [五月花简报（02/16/2022）](/content/gnews/13/README.md)
+### [五月花简报（02/16/2022）](/content/gnews/18/README.md)
  ` mayflowertranslate`
 
-### [人类从没像今天这样花钱比挣钱还难,越花越少,重复征税](/content/gnews/14/README.md)
+### [人类从没像今天这样花钱比挣钱还难,越花越少,重复征税](/content/gnews/19/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [20220216新中国联邦有战友有币还有情报，还有让你开智。](/content/gnews/15/README.md)
+### [20220216新中国联邦有战友有币还有情报，还有让你开智。](/content/gnews/20/README.md)
  ` Tokyo Sakura Video Group`
 
-### [有声｜郭文贵先生公布喜系列三大利好消息](/content/gnews/16/README.md)
+### [有声｜郭文贵先生公布喜系列三大利好消息](/content/gnews/21/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [奥林匹克精神](/content/gnews/17/README.md)
+### [奥林匹克精神](/content/gnews/22/README.md)
  ` 纽约香草山MOS03`
 
-### [人生最大的财富就是跳出自己的误区和被别人设计的误区](/content/gnews/18/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [郭文贵先生宣布的三件利好大事](/content/gnews/19/README.md)
- ` Tokyo Sakura Video Group`
-
-### [谷爱玲的赞助商展示了“腐败和软弱的美国公司”](/content/gnews/20/README.md)
+### [谷爱玲的赞助商展示了“腐败和软弱的美国公司”](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声｜两年爆发5轮疫情 内蒙古满洲里再封城](/content/gnews/21/README.md)
+### [有声｜两年爆发5轮疫情 内蒙古满洲里再封城](/content/gnews/24/README.md)
  ` 秘密翻译组-即时新闻播报组`
-
-### [HPay的上线最希望体制内人看到以钱灭共以共灭共的开始](/content/gnews/22/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [曾被认为是敌人的一位重要人士亲自参与协调HPay上线](/content/gnews/23/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [小议喜币和智慧](/content/gnews/24/README.md)
- ` 纽约香草山MOS03`
 
 ### [美国对中共国“脑控武器”军事研究的日益关注](/content/gnews/25/README.md)
  ` 澳喜特战旅Gnews`

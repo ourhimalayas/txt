@@ -2,46 +2,60 @@
 ---
 
 
-## HPay的上线最希望体制内人看到以钱灭共以共灭共的开始
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2019343/)
+## 奥林匹克精神
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2019378/)
 
-G-TV视频链接：[https://gtv.org/video/id=620cbf27b0af02660af440ba](https://gtv.org/video/id=620cbf27b0af02660af440ba)
+作者：香草山健身部 — 新世界的一员
 
-**郭文贵先生：**昨天上线（在）大年初一，真的是天意，万佛万神！它过了昨天初一，它跟今天初二都不一样。“啪”一上线，我最希望的是谁？不是战友你们感受到，我最希望的是让国内的体制内、行家、共产党的体制内的人知道这个H-Pay对他们有用。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-3.jpg)
 
-我们就是“以钱灭共”，就是“以共灭共”，是吧？你只要在任何地方的钱你放在H-Pay上使用、划，没有人挡得住。没有什么狗王八蛋的孙子说的这种什么信用支付，你大爷的你懂个屁你懂的。
 
-而且这种支付，我今天可以告诉大家，任何人被泄露、任何人被知道，我承担一切责任，世界上最绝密的。接下来的，现在是1.0版，你就看着，1版往上升完以后，我保证你们每个人惊掉下巴。如果说H-Pay今天是一个军队开始了拿起了一把真正的武器，走到了高度，我可以告诉你，这个军队的所有的军队只是你进了这个门而已今天是真正的是“隔空取钱”的开始，但是接下来绝对惊掉你下巴。你看到这个现在小枪，还是模具枪，现在所看到的，从小枪、中枪、大枪、长枪、大炮、坦克、无人机、遥控机、核武器一级一级给你推出来了。
 
-记住今天直播啊，就像教皇，教皇，梵蒂冈的战友们还能知道我们爆料革命的力量，我就会让你知道。H-Pay只要是有空气的地方,只要是有物质,有量子的地方，它就有　H-Pay，而且无人能挡。从昨天到现在可以告诉大家，没有一个人能挡住H-Pay，而且上不封顶，下不封底，没有左右，没有高低，没有范围。只要你有呼吸的地方，有人的地方，就有H-Pay，而且H-Pay没有国界，没有民族，没有男女，没有时间，而且是绝对安全。我先说到这，再说下去我怕漏了。
 
-字幕来源：[2022年2月2日 《文贵大直播 》全文字版](https://gnews.org/zh-hans/1952328/)
 
-编辑整理：海贼王M.D.LUFFY；
 
-字幕文件制作：大好河山；
 
-视频制作及上传：Cindy；
+2022/2/13//16 郭文贵先生在连续俩期直播中着重谈到了奥林匹克精神，是体现个人价值，弘扬世界和平，增加友谊，是快乐生活的 一种方式。体育精神是捍卫个人的独立性，追求人的身心协调 和全面发展的这样一个健康精神，是人与自然和谐共存的一种方式，不是一生的奋斗目标和信仰，但绝对是执着追求的自由的崇高的体育精神，奥林匹克精神。
 
-G-News发布：小满；
+![](https://assets.gnews.org/wp-content/uploads/2022/02/E69CAAE591BDE5908DE79A84E8AEBEE8AEA1-2022-01-29T085026.033.png)
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+用1908年美国宾夕法尼亚州大主教主持讲道时的一句话来说，那就是：“参与比获胜更重要”。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+国际奥委会在《奥林匹克宪章》中“奥林匹克主义的原则”条款中有这样一段话：“每一个人都应享有从事体育运动的可能性，而不受任何形式的歧视，并体现相互理解、友谊、团结和公平竞争的奥林匹克精神”。也称现代奥林匹克精神。
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+奥林匹克的文化，民主、自由、竞争、拼搏、开拓、进取、重视个体、尊重科学等要素构成的一个有灵魂与核心的社会盛会，为各国文明与文化集萃、是全球文化多样性与差异性互补共存，集东西方文明交融与互动的一个平台。是全球化的超国家、超文化、超等级、超地域的百姓的巨型狂欢节，成为一种由国家主义、消费主义、商业主义共同主宰的泛文化。
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+奥运会是体育精神、民族精神和国际主义精神于一身的世界级运动盛会，象征着世界的和平、互相理解，友谊长久和团结一致的健康精神。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+奥林匹克精神的源头是古代希腊对人的体格力量与健康的崇尚，奥林匹克运动竞技比赛是团结的奥林匹克精神，参与比获胜更重要。 是各国文明与文化集萃、对话与交往的论坛，成为全球文化多样性与差异性互补共存的平台，尤其是成为东西方文明交融与互动的平台。已经成为全球化时代人类文化发展的重要表征之一。
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+奥林匹克精神的源头是古代希腊对人的体格力量与健康的崇尚，奥林匹克运动竞技比赛是团结的奥林匹克精神，参与比获胜更重要。 是各国文明与文化集萃、对话与交往的论坛，成为全球文化多样性与差异性互补共存的平台，尤其是成为东西方文明交融与互动的平台。已经成为全球化时代人类文化发展的重要表征之一。
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+2022年2月17日
+
+（本文仅代表作者个人观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-7.jpg)
+
+*编辑 /校对*：*Yuki*jiang
+
+*发稿：Yuki*jiang
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
