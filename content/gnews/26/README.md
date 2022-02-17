@@ -2,24 +2,49 @@
 ---
 
 
-## 格兰仕任命外部董事的提案在象印魔瓶公司股东会上遭拒
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2019690/)
+## 新中国联邦正在制造奇迹停止死亡、终结中国付钱买墓地
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2019742/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1635.png)（图片源自本文链接）
-2月17日实时通信：象印魔瓶公司的年度股东大会于17日在大阪市召开，最大股东–中共国家电巨头格兰仕(Galanz)会上提出的任命一名外部董事的提议遭拒，双方就经营方针产生分歧。
+G-TV视频链接：[https://gtv.org/video/id=620cc1c0b0af02660af4418c](https://gtv.org/video/id=620cc1c0b0af02660af4418c)
 
-该公司包括格兰仕(Galanz)反对的延长收购防御措施在内的，全部五项提案，都获得了会议通过，最终以象印魔瓶方的胜利告终。
+**郭文贵先生：**今年大过年的战友们，七哥2017年爆料说什么？我说：中国共产党的所有的墓地、坟地，都被王岐山给垄断了，养老院。我说：共产党会让全世界墓地最赚钱、火葬场最赚钱。现在你们体会到了吗？
 
-格兰仕(Galanz)还曾在2020年股东大会上提出了任命一名外部董事的股东提案，但被拒绝。副主席梁惠强在股东大会后，线上对记者说：未来有各种可能性，也有减少投资或完全退出的可能。
+我告诉大家：什么都是轮回！共产党会发现他们建的这么多火葬场和墓地，最后埋的都是他们和他们家人。中国的老百姓很快墓地不用付钱，新中国联邦不会让他们老百姓（在）中国墓地付一分钱，火葬场不能付钱。
 
-不会是又想拉人来渗透日企吧？日方持谨慎态度予以拒绝完全可以理解。
+我们会让全世界的火葬场，还有墓地百分之八、九十让它关掉，停止死亡。新中国联邦正在做这个事情。包括打了疫苗的、得了新冠的，我们的科学家24小时昼夜不停地在研究着、在努力着。这是天给我们的机会！我不敢保证，但我相信一定会有奇迹！青蒿素已经是奇迹了。
 
-信息来源：[象印が勝利、買収防衛策承認　中国株主、撤退に言及（時事通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/1fa711ffdc2fbf1ce264d4642753dfd22bb03c0a)
+所以说只有新中国联邦人，给世界带来未来、安全、平安和希望。我们不是像中国在老百姓见面：恭喜发财！然后是：钱包拿来！还有一个：祝你平安健康！“祝你”“祝你”，能保证吗？
 
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+没有人给别人平安过，没别人给人健康，只有新中国联邦给你未来、给你平安、给你健康。而且不是恭喜发财，是让你发财。只有新中国联邦敢告诉全世界说：我让你发财，我让你有未来，我让你平安，我让你健康。我们已经做到了，服不服？信不信？你自己去看去。
+
+字幕来源：[2022年2月2日 《文贵大直播 》全文字版](https://gnews.org/zh-hans/1952328/)
+
+编辑整理：海贼王M.D.LUFFY；
+
+字幕文件制作：知津；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

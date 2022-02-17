@@ -2,10 +2,10 @@
 ---
 
 
-## 人类财富百万亿美元黑帐伦敦立案
-` 新西兰农场【光影传镜】` [轉載自GNews](https://gnews.org/zh-hans/2019791/)
+## 共产党跟世界脱钩就是中国人脱险 脱假 脱控
+` 新西兰农场【光影传镜】` [轉載自GNews](https://gnews.org/zh-hans/2019890/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/UBS3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/94318887-07CB-44D4-8E30-7AF8C061FEB1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/118.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/20220215-4-.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/20220215-4-2.jpg)
 图文设计：新西兰农场设计组
 上 传：F
 
