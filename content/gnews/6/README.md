@@ -2,26 +2,32 @@
 ---
 
 
-## 日本麒麟退出中共软饮料市场
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2022377/)
+## 美通过《2022年美国竞争法》，防止中共企业垄断
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2022413/)
 
-作者：银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-33.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/440C6CA7-B3D6-4D5B-A2C5-223EB74850C8.jpeg)（图片来自路透社）
-2月16日，日本麒麟控股宣布退出与中共华润集团共同开发的软饮料业务。麒麟公司将以约1150亿日元的价格将其全部股份转让给一家中共投资基金。麒麟公司于2月14日刚刚宣布退出缅甸的啤酒业务，并将通过审查其海外业务促进对增长领域的投资。
+作者：台湾宝岛农场\_阿尔道夫
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-33.png)
 
-目前该转让的具体日期尚未决定。麒麟预计在该销售中获得约390亿日元的收益。但麒麟表示会继续与中共华润集团在知识产权的使用和许可方面进行合作。
 
-据悉该日中合资企业名为华润麒麟饮料，麒麟持有其40%的股份，主要产品是矿泉水，并代理销售日本麒麟饮料旗下产品下午茶和FIRE咖啡。该公司历史长达11年。
+![](https://gdb.voanews.com/09dd0000-0a00-0242-f776-08d9e826901a_w1023_r1_s.png)（图片来自美国之音）
+
+近年来，中共积极游说国际电信联盟（ITU）、国际电工委员会（IEC）等机构，让中共的企业获得竞争优势。面对此冲击，美在北京冬奥开幕当天通过《2022年美国竞争法》，旨在帮助美半导体制造业，抵消中共扭曲市场的贸易行为，包括加强反倾销规则等。
+
+美国也和日本连手建立6G无人化技术的国际标准，防止中共企业垄断，并强化尖端技术保护，防范中俄经济间谍战。
+
+欧盟主管竞争事务的执委维斯塔哲（Margrethe Vestager）表示，中共近期重新定义网络的基本标准，让中共对国有网络的使用者有更大的控制权，因此，欧盟委员会提出对行业标准系统实施改革，藉以避免欧洲数码产业等被被中共主导。
+
+近日，北京大学在一份报告中罕见承认，美中科技脱钩后，中共无论在技术层面还是产业层面都明显落后，中共的芯片制造、人工智能及信息科技产业更将面临严重的发展瓶颈。该报告在墙内被火速删除。
 
 
 
 参考链接：
 
-[https://www.sankei.com/article/20220216-AB5VU6EZAJPPLJA5MI5RHL3FIM/](https://www.sankei.com/article/20220216-AB5VU6EZAJPPLJA5MI5RHL3FIM/)
+[https://www.epochtimes.com/b5/22/2/15/n13577942.htm%E3%80%8B](https://www.epochtimes.com/b5/22/2/15/n13577942.htm%E3%80%8B)
 
 编辑/校对/发稿：有莫举名
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-196.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-38.jpg)
 
 **更多资讯，更多关注**
 
