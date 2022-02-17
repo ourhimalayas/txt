@@ -2,61 +2,59 @@
 ---
 
 
-## 在奥沙瓦发现的坎迪斯·菲茨帕特里克的遗体； 被定罪的杀手带领警察找到遗体
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2021783/)
+## 换汤不换药的孔子学院奖学金
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2021964/)
 
-作者：Kerrisa Wilson
-翻译：KK
-![](https://assets.gnews.org/wp-content/uploads/2022/02/23_13453495G_1.jpg)
-大多伦多地区一名19岁少女自2008年失踪已达14年，近日，警方通过杀人犯提供的线索，终于找到了她的尸骸。这名杀人犯还杀害了另一名花季少女。
+作者：香草山写作组 — 静水流深
 
-Durham区警方表示，已经在奥沙华找到Kandis Fitzpatrick的尸骸，提供线索的是杀人犯Adam Strong。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-Strong最初被控两项一级谋杀罪名，涉及2017年8月失踪的18岁少女Rori Hache，以及2008年失踪的19岁Fitzpatrick。
 
-警方已于2017年9月找到了Hache的尸骸，但是一直没有找到Fitzpatrick的。
 
-去年3月，Strong在Hache之死一案中被判一级谋杀罪名成立，在Fitzpatrick之死一案中被判杀人罪。
 
-周三，警方表示Strong在去年夏天被囚期间，向狱警提供了Fitzpatrick尸骸的线索。随后几周，警方对Strong进行了一连串盘问，并由他带领警员找到了Fitzpatrick的尸骸。
 
-Det. Sgt. Doris Carriere说：“调查人员随后获准代为扣押Adam Strong，11月4日，我们进行了一次行动，他将我们带到了奥沙华Secreto Drive后面树林旁的一小块空地上。”
+早在2020年，美国国务院要求中共将孔子学院注册为外交使团，其后，中共将原来负责孔子学院的“中共国国家汉语国际推广领导小组办公室”更名为“教育部中外语言交流合作中心”。此外，孔子学院总部也在重组后交由“中共国国际中文教育基金会”负责。
 
-警方表示，11月8日至13日期间在现场发现了人体遗骸。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2020-03-05-at-10.13.07-AM.png)[图片来源](https://thenationalpulse.com/wp-content/uploads/Screen-Shot-2020-03-05-at-10.13.07-AM.png)
 
-在周三的新闻发布会上，警方证实，Fitzpatrick的遗体是在她失踪14年后才发现的。
+然而，中共这一系列“改头换面”的举动并未动摇孔子学院由中共操控的事实，也没有影响该机构惯有的运行模式。2021年12月，孔子学院奖学金更名为“国际中文教师奖学金申请办法”，但其本质仍然是资助非中国籍人士，并通过此类资金收买让这些外国人为中共统治服务。资料显示，该奖学金可涵盖外籍人士多种学习项目的学费、住宿费、书本资料费、生活费和综合医疗保险费。同时，这些外籍学生也将享受豪华的本校住宿条件或巨额的校外租房补贴。数据表明，外籍学生最高可获得多达42000元人民币的孔子学院奖学金。
 
-“这一发现不会改变这些悲剧事件的结果，也不会改变受害者的家人和朋友所受的创伤。我们的目标是为Kandis的家人和所有受到这次犯罪影响的人提供一个了结。”
+相比之下，中共国的大学在校生大多只能自费读书，硕、博士本地学生所能获得的补助不足外籍学生的三分之一，且校方提供的生活环境远远落后于那些外籍学生。至于奖学金方面，本地学生每年都得挤破脑袋才能争取到那一点点。而对于贫困生的资助则更是杯水车薪——这也导致很多学生需要勤工俭学、应聘各种兼职才能够勉强完成学业。
 
-Fitzpatrick和Hache的家人出席了今天的新闻发布会，在消息宣布后，他们互相拥抱。
+值得注意的是，中共对外籍学生提供免费教育，“慷慨”进行国际扶贫；但对内，中共踩着人民的肩膀、挥洒着百姓的血汗，却将日益增长的来华留学生数量当作是其软实力提升的政绩来自吹自擂。两相对比，中共吃里扒外、鱼肉本国国民的嘴脸暴露无遗！
 
-Carriere说，警方没有为了让Strong提供Fitzpatrick尸骸的位置提供任何激励。
+事实上，在中共的眼里，本国人民都是卑贱的奴隶，外国人才是他们主子！这样的邪恶政权，还能存活几天？
 
-“我们的行动没有给他经济上的补偿，也没有给他增加优待。至于为什么，那就是Strong的问题了。”
+**参考来源：**
 
-Carriere补充说，案件结束后，法庭不会重新对Strong定罪。
+1. [国际中文教师奖学金申请办法（2022年）](https://cis.chinese.cn/Account/Proceduresfor)
+2. [奖学金｜孔子学院奖学金](https://gjy.nuist.edu.cn/2836/listm.htm)
 
-“他已经被判犯有这些罪行，我们不能在定罪后将指控升级，目前我们不打算提出任何额外的指控。”
 
-高等法院法官Joseph Di Luca在去年3月的判决中表示，他认同Strong杀死了Fitzpatrick并肢解了她的尸体，但缺乏证据证明他谋杀了这名年轻女子，从而只能指控杀人罪。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-8.jpg)
 
-法官补充说，目前只能确定被告“非法导致了她的死亡”，而且“很可能确实是意图杀害Fitzpatrick”。
+***编辑：larking，Irene木木
+校对/发稿：小鹿***
 
-来源：https://toronto.ctvnews.ca/remains-of-kandis-fitzpatrick-found-in-oshawa-convicted-killer-led-police-to-remains-1.5783328
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-**关注我们**
+**更多资讯，更多关注**
 
-Discord 账号
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-Gettr 账号
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 

@@ -2,43 +2,54 @@
 ---
 
 
-## 特鲁多专制特权令加拿大皇家骑警将34个加密货币钱包列入黑名单
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2021524/)
+## 警察和抗议者同样渴望人权,自由
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2021534/)
 
-加拿大温哥华扬帆农场 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/02/trucker-800x445-1.jpg)图片来源：The Deep Dive
-根据《Counter Signal》2月16日报道，特鲁多给联邦警察部队发出命令，该命令要求加拿大所有受FINTRAC监管的公司停止与34个加密货币钱包进行交易。
+作者：香草山福音部 —melisa
 
-这些钱包据称与渥太华的自由车队有关。Counter Signal已经确认，至少有一个钱包包含价值超过100万美元的比特币，是HonkHonkHodl活动的一部分，通过加密货币支持卡车司机。
-
-警方的这一要求是否会阻碍资金的使用，目前尚不清楚。
-
-警方的命令是通过特鲁多的非常规和自我规定的紧急权力发出的，影响到超过25个比特币，价值约140万美元。
-
-安大略省警方和加拿大皇家骑警目前正在调查与属于《紧急状态法》范围内的非法行为有关的加密货币捐款。
-
-根据《紧急状态法》第19(1)款规定，有责任停止为与下列加密货币地址有关的任何交易提供便利。
-
-特鲁多的官员列出了29个比特币地址，2个以太坊，以及Cardano、Monero和Litecoin的各一个钱包。
-
-每个钱包都交易了价值0至110万美元的数字资产。
-
-执行特鲁多命令的加拿大皇家骑警要求：”任何有关这些地址的交易或拟议交易的信息，都应立即披露给加拿大皇家骑警专员，网址是[\[email protected\]](/cdn-cgi/l/email-protection)，”。
-
-虽然警方急于冻结任何与自由车队有关的资金，但这些数字现金很可能远远超出加拿大政府的范围。
-
-假设这些资产储存在受监管的加拿大加密货币交易所之外，这些资产可以很容易地分配给一个 “混合器”，这种在线工具可模糊执法部门识别能力。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-3.jpg)
 
 
 
-原文链接：
-[https://www.thecountersignal.com/news/rcmp-ban-34-crypto-wallets-from-working-in-canada](https://www.thecountersignal.com/news/rcmp-ban-34-crypto-wallets-from-working-in-canada)
 
 
 
-编辑，发稿 Spirit
 
+特鲁多宣布:国家紧急令之后。包括安大略省,魁北克省在内的省马上宣布:取消疫苗护照,逐步放开政策。但是这帮政客说:与自由卡车无关而是基于科学。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/687-0-1.jpg)
+
+死要面子的元耻政客不承认取消疫苗护照是因为卡车司机的和平抗争让他们害怕了。
+
+暴君特鲁多想用国家紧急令吓退卡车司机彻底失败。
+
+在反对疫苗暴政。争取人权,自由的问题上连恐怖分子都不配合特鲁多政府。和平抗议是合法的。特鲁多找不到镇压的理由。警察也是人也渴望人权。自由。以他们与抗议者在国歌中互相拥抱这是信仰的力量。特鲁多将作为暴君载人史册这是他的遗产。
+
+文贵先生早在香港反送中运动中就提倡香港抗我者使用卡车阻挡警察的阵压。这这倡议证明是非常有效的明智选择。
+
+2022年2月17日
+
+（本文仅代表作者个人观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-7.jpg)
+
+*编辑 /校对*：*Yuki*jiang
+
+*发稿：Yuki*jiang
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
