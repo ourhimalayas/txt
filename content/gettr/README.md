@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/17/2022 12:27 AM (UTC)`
+
+加拿大卡车司机：加拿大总理特鲁多的《紧急状态法》不会阻止他们。暂停他们的保险没有任何作用，他们没有打疫苗，唯一能说服他们离开的就是他们重获权利和自由。<br/><br/>Canadian truck drivers: Trudeau invoked this Emergencies Act won’t stop them. Suspend their insurance doesn’t do anything. They are not vaccinated, and the only thing that's gonna convince them to leave is getting their rights and freedoms back.
+![img](https://media.gettr.com/group29/getter/2022/02/17/00/5fc4dc94-173f-c1de-6e23-a5c4c5991e2c/out.jpg)
+
+---
+
 `@miles 2/16/2022 11:37 PM (UTC)`
 
 2/16/2022 Miles Guo: Under the threat posed by various Western countries, Putin backed down, withdrew its troops, and fooled the idiot, Xi Jinping, causing Putin and Xi to break up. This is great news for Taiwan! What Putin plays is the top game in the world - the War Economy. It is profitable whether Putin declares war or withdraws his troops.<br/><br/>2/16/2022 文贵直播：在西方各国的威胁下，普京服软撤军并耍了二货习近平，俩人因此彻底掰了，这对台湾是个大好事！普京玩的是世界最高等的游戏 - 战争经济，喊打喊撤都能赚钱！<br/>
@@ -145,13 +152,6 @@
 
 2/13/2022 Miles Guo: All fellow fighters of the Whistleblowers’ Movement are the terminators of the CCP without getting the COVID jabs. Not getting vaccinated against COVID is inextricably linked to taking down the CCP wholeheartedly. We will become the unvaccinated who successfully take down the CCP once we destroy it, and that will be the highest honor in everyone’s life!<br/><br/>2/13/2022 文贵直播：爆料革命战友们都是“无苗灭共者”，不打疫苗和一心灭共紧密关联；如果我们灭了共，我们就是“无苗灭共成功者”，这对大家是一生的荣光中的荣光！<br/>
 ![img](https://media.gettr.com/group10/getter/2022/02/14/22/7bd132f2-72fd-1c44-ee53-09ae42619afc/out.jpg)
-
----
-
-`@miles 2/14/2022 3:31 PM (UTC)`
-
-2月14号：尊敬的战友们好！再祝全天下的兄弟姐妹们，战友们．情人节快乐！
-![img](https://media.gettr.com/group50/getter/2022/02/14/15/f319ddca-6d74-5245-af1d-a42d87560118/out.jpg)
 
 ---
 
