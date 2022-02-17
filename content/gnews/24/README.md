@@ -2,10 +2,32 @@
 ---
 
 
-## 2/16/2022 文贵直播：冬奥会已成“冬眠会”且一定会以中共的灭亡为结束；卡车司机、妇孺老人齐上街，创造了人类辉煌
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2017854/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年2月16日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2017977/)
 
-秘密翻译组-北美组
+作者：香草山翻译部
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO-1.jpg)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-2-1.png)
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+新闻：[https://gtv.org/broadcast/watch/620da5f3432ae869226e07c3](https://gtv.org/broadcast/watch/620da5f3432ae869226e07c3)
+访谈：[https://gtv.org/broadcast/watch/620dae96432ae869226e0cc8](https://gtv.org/broadcast/watch/620dae96432ae869226e0cc8)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-1.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

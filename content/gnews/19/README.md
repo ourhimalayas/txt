@@ -2,33 +2,30 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年2月16日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2017977/)
+## 中日财经爆┃为获取更多人才，日立等主要电器公司正在加速人事制度改革
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2018004/)
 
-作者：香草山翻译部
+撰稿：东京樱花团/百花李香
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/为获取更多人才，日立等主要电器公司正在加速人事制度改革.png)图片来自本文网站
 
+2月17日时事通信在线报道，日立、富士通等大型电子公司正在加速引入“职务型”人事制度，明确从管理人员到普通员工的工作职责。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-2-1.png)
-校对：Stay文苑
+这是因为商业环境正在发生重大变化，数字化的推进和海外业务的扩张，传统的日式雇佣方式已经无法在与海外公司激烈的人力资源竞争中生存。
 
-编辑：Stay文苑
+在以职位为基础的人事制度下，每个职位所需的知识、经验、技能和资格在职位描述中都有明确规定。该系统的特点是任命符合这些标准的人，无论年龄大小。这样做的好处是更容易从公司内部和外部吸引专业和有动力的人。
 
-发稿：Stay文苑
+雷曼倒闭之后，日立公司开始改变其业务结构和改革人事制度，以应对出现的巨额赤字。现在，该集团37万名员工中有21万在海外。日立公司的高级管理中畑英信指出，现行的日本式雇用制度存在的问题，如果人事制度是基于新毕业生和资历的一次性招聘，多样化的人才就不会来日立。
 
-新闻：[https://gtv.org/broadcast/watch/620da5f3432ae869226e07c3](https://gtv.org/broadcast/watch/620da5f3432ae869226e07c3)
-访谈：[https://gtv.org/broadcast/watch/620dae96432ae869226e0cc8](https://gtv.org/broadcast/watch/620dae96432ae869226e0cc8)
+从今年7月起，日立也将在普通员工中推广“职务型”制度，因中共病毒的蔓延，在家工作的灵活方式变得越来越重要。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-1.png)
+信息源：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[電機大手、「ジョブ型」加速　一般社員に拡大、人材獲得激化](https://news.yahoo.co.jp/articles/25cffedcbb71cb5be12cb920523164203a3d661d#:~:text=%E9%9B%BB%E6%A9%9F%E5)
 
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

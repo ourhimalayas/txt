@@ -15,98 +15,98 @@
 
 ---
 
-### [大直播后记：冬眠会是共产党灭亡的开始](/content/gnews/1/README.md)
- ` 雅典娜GNotes`
+### [渥太华警察局长在自由车队抗议浪潮下辞职](/content/gnews/1/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [大直播后记 : 放下就是拥有](/content/gnews/2/README.md)
- ` 墨尔本雅典娜农场`
+### [疫苗强制与科学无关，而始终与权力和政治有关](/content/gnews/2/README.md)
+ ` 美国政要直译推`
 
-### [有声|中共病毒疫苗即将引发世界变局](/content/gnews/3/README.md)
+### [有声|美科学家称中共病毒来自武汉病毒研究所](/content/gnews/3/README.md)
  ` MOSREC`
 
-### [2月16日大直播后记：七哥越破产战友越有钱](/content/gnews/4/README.md)
+### [大直播后记：冬眠会是共产党灭亡的开始](/content/gnews/4/README.md)
  ` 雅典娜GNotes`
 
-### [秘翻在线：又一名日籍男子在上海被中共当局拘捕](/content/gnews/5/README.md)
+### [有声|中共不灭 世界永无和平](/content/gnews/5/README.md)
+ ` MOSREC`
+
+### [大直播后记 : 放下就是拥有](/content/gnews/6/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [有声|中共病毒疫苗即将引发世界变局](/content/gnews/7/README.md)
+ ` MOSREC`
+
+### [2月16日大直播后记：七哥越破产战友越有钱](/content/gnews/8/README.md)
+ ` 雅典娜GNotes`
+
+### [秘翻在线：又一名日籍男子在上海被中共当局拘捕](/content/gnews/9/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [樱花头条｜意总理强制疫苗政策激起民愤，热那亚街头爆发反抗游行](/content/gnews/6/README.md)
+### [一位卡车司机表示：特鲁多引发了内战 让加拿大变成了共产主义国家](/content/gnews/10/README.md)
+ ` 蓝莲花农场`
+
+### [樱花头条｜意总理强制疫苗政策激起民愤，热那亚街头爆发反抗游行](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [维州将放宽所有新冠限制，包括二维码和人数限制](/content/gnews/7/README.md)
+### [维州将放宽所有新冠限制，包括二维码和人数限制](/content/gnews/12/README.md)
  ` 走进澳洲`
 
-### [雅典娜时报-第207期](/content/gnews/8/README.md)
+### [雅典娜时报-第207期](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中日财经爆┃日本贸易逆差创史上第二高](/content/gnews/9/README.md)
+### [中日财经爆┃日本贸易逆差创史上第二高](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [习近平脾肾动刀   天灭中共佑台湾](/content/gnews/10/README.md)
+### [习近平脾肾动刀   天灭中共佑台湾](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [视频| 徐州八孩案](/content/gnews/11/README.md)
+### [视频| 徐州八孩案](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [2月16日大直播后记：七哥的破产是为了给予战友](/content/gnews/12/README.md)
+### [2月16日大直播后记：七哥的破产是为了给予战友](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [全球疫情更新（网球名将再次坚拒强迫“疫苗”）](/content/gnews/13/README.md)
+### [全球疫情更新（网球名将再次坚拒强迫“疫苗”）](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中日财经爆┃为获取更多人才，日立等主要电器公司正在加速人事制度改革](/content/gnews/14/README.md)
+### [中日财经爆┃为获取更多人才，日立等主要电器公司正在加速人事制度改革](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国大使馆可能掌握俄罗斯入侵日期的线索](/content/gnews/15/README.md)
+### [中共国大使馆可能掌握俄罗斯入侵日期的线索](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [血染的风采中共血蛊之毒 90后小伙被绑架“圈养” 每45天抽3大瓶血](/content/gnews/16/README.md)
+### [血染的风采中共血蛊之毒 90后小伙被绑架“圈养” 每45天抽3大瓶血](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [加拿大感病毒感染死亡者多数已完全接种疫苗](/content/gnews/17/README.md)
+### [加拿大感病毒感染死亡者多数已完全接种疫苗](/content/gnews/22/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [美加州长和省长要求政府对跨境卡车司机实施疫苗豁免](/content/gnews/18/README.md)
+### [美加州长和省长要求政府对跨境卡车司机实施疫苗豁免](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [新中国联邦新闻、GTV新闻访谈简报|2022年2月16日晚](/content/gnews/19/README.md)
+### [新中国联邦新闻、GTV新闻访谈简报|2022年2月16日晚](/content/gnews/24/README.md)
  ` 纽约香草山MOS01`
 
-### [拜登政府提出2023年度高达7700亿美元国防预算](/content/gnews/20/README.md)
+### [2022.2.16大直播后记：中国坏男人太多](/content/gnews/25/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [拜登政府提出2023年度高达7700亿美元国防预算](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [串珠585:黑人到山东学校里一人睡两三个女学生](/content/gnews/21/README.md)
- ` 郭爆料串珠`
-
-### [2/16/2022 文贵直播：各国已开始承认疫苗含氧化石墨烯，全球将大变；全人类不会在病毒和疫苗问题上放过中共](/content/gnews/22/README.md)
+### [2/16/2022 文贵直播：各国已开始承认疫苗含氧化石墨烯，全球将大变；全人类不会在病毒和疫苗问题上放过中共](/content/gnews/27/README.md)
  ` 秘密翻译组-北美组`
 
-### [法律你我他-加拿大同性及性少数人群相关法律](/content/gnews/23/README.md)
- ` 加拿大温哥华扬帆农场蓝枫法律`
-
-### [2/16/2022 文贵直播：冬奥会已成“冬眠会”且一定会以中共的灭亡为结束；卡车司机、妇孺老人齐上街，创造了人类辉煌](/content/gnews/24/README.md)
- ` 秘密翻译组-北美组`
-
-### [中美不断交的前提是中共配合病毒溯源调查](/content/gnews/25/README.md)
+### [中美不断交的前提是中共配合病毒溯源调查](/content/gnews/28/README.md)
  ` 首尔天池农场`
 
-### [安省将提前解禁并取消疫苗护照](/content/gnews/26/README.md)
+### [安省将提前解禁并取消疫苗护照](/content/gnews/29/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [谷爱凌为中共政权的互联网审查制度辩护却遭中共审查](/content/gnews/27/README.md)
+### [谷爱凌为中共政权的互联网审查制度辩护却遭中共审查](/content/gnews/30/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [研究发现中共APP抖音可以绕过苹果和谷歌的隐私保护访问用户数据](/content/gnews/28/README.md)
+### [研究发现中共APP抖音可以绕过苹果和谷歌的隐私保护访问用户数据](/content/gnews/31/README.md)
  ` 首尔天池农场`
-
-### [【秘翻在线】美议员要求中共为其制造的新冠病毒所造成的损失作出赔偿](/content/gnews/29/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [文贵先生向美国法院正式申请破产](/content/gnews/30/README.md)
- ` 澳喜特战旅Gnews`
-
-### [2022年2月17日《樱花快报》：支持加拿大卡车司机小额捐款一半来自美国](/content/gnews/31/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [【秘翻在线】美国谴责中共未履行其世贸组织承诺](/content/gnews/32/README.md)
  ` 秘密翻譯組G-Translators`
