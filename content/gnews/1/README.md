@@ -2,10 +2,12 @@
 ---
 
 
-## 2/16/2022 文贵直播：在西方各国的威胁下，普京服软撤军并耍了二货习近平，俩人因此彻底掰了，这对台湾是个大好事
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2017835/)
+## 七哥金句：躺平币
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2017868/)
 
-秘密翻译组-北美组
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句躺平币-1.jpg)
+整理：雅典娜农场
+发布：枫叶红了
 
  
 

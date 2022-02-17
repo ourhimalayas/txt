@@ -2,25 +2,27 @@
 ---
 
 
-## 特鲁多紧急状态法创加拿大历史之最
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2017465/)
+## 有声|新中国联邦新闻、GTV新闻访谈简报|2022年2月15日晚
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2017486/)
 
-加拿大温哥华杨帆农场 枫叶快讯
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/为取悦中共.jpg)
 
-采编：青青         编译撰稿：文莱
-![卡车司机车队抗议议会](https://www.ctvnews.ca/polopoly_fs/1.5780301.1644848006!/httpImage/image.jpg_gen/derivatives/landscape_960/image.jpg)图片来源：ctv
-据加拿大【CTV新闻】2月14日报道，总理特鲁多创造了联邦政府历史之最，成为该国第一位宣布公共秩序进入紧急状态而启用【紧急状态法】，并试图以此镇压自由车队和平抗议活动的领导人。
+文字版原文：[新中国联邦新闻、GTV新闻访谈简报|2022年2月15日晚](https://gnews.org/zh-hans/2011724/)
 
-报道称，特鲁多政府正在扩张权力推进一系列广泛新措施，包括从禁止参加被视为破坏和平且超出合法抗议范围的公共集会，到授权金融机构从根本上停止抗议活动的融资以及在没有法院命令的情况下立即冻结或暂停示威者的关联账户等，以此支持目前面临持续示威的省、市和警察部队，同时打击更具系统性的示威抗议活动。并对违反该法令的人处以最高5,000加元的罚款或最高五年的监禁。
+音频处理：Fei797
+发稿：Fei797
 
-据悉，最后一次启用[紧急状态法]是在1970年的十月危机期间。该法案规定：当联邦政府在公共福利和秩序，国际以及战争的紧急情况下，可以越权采取特别应对行动。因此该法案素有“最后的手段”之称。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
 
-校对编辑：硫酸羟氯喹64
-
-发文：青青
-
-原文链接： [Trucker convoy: What invoking the Emergencies Act means | CTV News](https://www.ctvnews.ca/politics/the-emergencies-act-has-been-enacted-here-s-what-that-means-1.5781457)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

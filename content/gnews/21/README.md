@@ -2,35 +2,23 @@
 ---
 
 
-## 有声|郭文贵表明对PAG案件的态度：永不和解，永不退缩
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2017570/)
+## 【秘翻在线】美议员要求中共为其制造的新冠病毒所造成的损失作出赔偿
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2017633/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-中共特务单伟建，利用一个根本不存在的官司对郭文贵先生进行了长达五年的缠诉，最近，中共终于成功令郭先生败诉。对此，郭先生认为，正常情况下，美国的司法界、法律界是非常严谨、公正的，曾经有过一名法官，因为非常轻微的徇私行为，被人举报后立即离职。
+#### 翻译/撰稿：zzballack
 
-因此，PAG对郭先生的缠诉，深刻暴露了共产党对美国司法系统的破坏，这份法庭的判决书是由控方律师起草的，法官稍加修改，整份判决书欠缺足够的法律依据，这个案子的真相会让美国各界人士感到瞠目结舌，这不应该是美国法治应有的样子。
+#### 校对：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1618.png)        图片来源：CNN
+据 《布雷特巴特新闻网》（Breirbart News）2月16日报道，美国众议员莫·布鲁克斯 (Mo Brooks) 本周二（2月15日）在推特上发布了一段视频，指控中共制造了新冠病毒，并在病毒一事上撒谎，要求中共为其释放的病毒对美国人造成的严重伤害作出赔偿。他提出了一项法案，旨在通过增加中国商品的关税来获得中共的赔偿，无论中共是否乐意。
 
-不过，郭先生表示自己仍然相信美国的司法体系，相信美国的司法正义，相信自己有申诉的权利和向司法部门寻求公义的权利。
+布鲁克斯说：“中共应该对新冠病毒造成的损失和伤害承担经济责任。这就是为什么我提出了《中国新冠赔偿法案》（China COVID–19 Restitution Act）。”该法案由布鲁克斯在去年6月首次提出，要求总统对中国制造的商品和部件征收关税，由此获得的资金为与新冠有关的损失提供补偿和赔偿。
 
-到目前为止，郭先生拒绝了许多人提出的和解建议，他相信美国的法律会让真相最终大白于天下，一定会让美国政府官员与共产党之间的台底交易全部暴露，也一定会让背后的始作俑者现出真容。
+布鲁克斯说：“证据已经说服了我，即新冠病毒是中共在其武汉的生物武器实验室中制造的。更糟糕的是，中共随后在新冠病毒的传染性和致命性上撒了谎，增加了美国和美国人的生命和经济损失。中共撒谎，人们死亡，中共应该对其所造成的损失进行赔偿。我不会对此坐视不管，让中共逍遥法外。我的法案要求中共承担责任，这是每个美国人都应该同意的事实。”
 
-郭先生对着镜头向共产党喊话，这个案件不仅不会阻止他爆料，并且对于欲加之罪，他永远不会和解，永远不会退缩，而且一定会赢。
+上个月，参议员马尔科·鲁比奥 (Marco Rubio)和其他十几位议员提出了一项法案，如果北京“继续阻挠新冠的起源调查”，将对其进行制裁。去年12月，前总统川普认为，中共应该为其在新冠大流行病中的作用支付赔偿金60万亿美元。
 
-文字版原文：[郭文贵表明对PAG案件的态度：永不和解，永不退缩](https://gnews.org/zh-hans/2010317/)
+新闻来源：[Mo Brooks Demands CCP Pay COVID Damages: ‘China Lied, People Died’](https://www.breitbart.com/politics/2022/02/16/mo-brooks-demands-ccp-pay-covid-damages-china-lied-people-died/)
 
-音频处理：Fei797
-发稿：Fei797
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

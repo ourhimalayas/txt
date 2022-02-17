@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/17/2022 2:35 AM (UTC)`
+
+2/16/2022 Miles Guo: Various countries have begun to admit that the COVID vaccines contain graphene oxide, and the world will be completely changed. All humankind will not let go of the CCP regarding the issues of the COVID virus and its vaccines. The CCP employs the same despicable tactics to deal with both the Winter Olympics and me by always giving themselves the green light and giving their opponents only the red light.<br/><br/>2/16/2022 文贵直播：各国已开始承认疫苗含氧化石墨烯，全球将大变；全人类不会在病毒和疫苗问题上放过中共；中共用同样的卑鄙手段对付文贵和冬奥会 - 给自己开绿灯，给对方只开红灯<br/>
+![img](https://media.gettr.com/group33/getter/2022/02/17/02/2a6bde2a-0e4b-2b3b-3397-7fe8e72d7c58/out.jpg)
+
+---
+
 `@miles 2/17/2022 2:01 AM (UTC)`
 
 2月16号：尊敬的战友们好，这是瑞秋和罗伊在直播中提到的安眠药……就是不会上瘾，不会头疼．非常非常健康的，不会让你失去记忆的安眠药，希望大家妥善使用．遵从医嘱！
@@ -145,13 +152,6 @@
 
 2/13/2022 Miles Guo: I only seek to take down the CCP, and I have no interest in politics at all. The PAG case has exposed the CCP’s infiltration in the Western law firms and judicial system. The FBI will investigate this, won’t it? Anyway, I will never compromise on the verdict of this case. From day 1, I have been turning my wisdom and capabilities to create wealth into the tool to take down the CCP.<br/><br/>2/13/2022 文贵直播：文贵只想灭共，对政治没任何兴趣；PAG案揭露了中共对西方律所和司法的渗透, FBI难道会坐视不管？对于本案判决，文贵坚决不妥协；文贵从第一天起就把智慧和创造财富的能力变成灭共的工具<br/>
 ![img](https://media.gettr.com/group49/getter/2022/02/15/03/f0c72332-53af-811a-07e4-beff97c59d82/out.jpg)
-
----
-
-`@miles 2/15/2022 1:27 AM (UTC)`
-
-2/14/2022 Miles Guo’s GETTR: Xi Jinping claims to be sick and is in hiding, while secretly planning to invade Taiwan. The CCP is the real traitor, colluding with the dark forces to steal the wealth of the Chinese people, selling out the Chinese territories, brainwashing the people in Communist China, and provoking anti-Chinese sentiment worldwide. Only the Whistleblowers’ Movement has exposed the CCP’s evil plans to the world in advance. The power of the New Federal State of China is infinite!<br/><br/>2/14/2022 文贵盖特：习近平称病神隐，暗中准备打台湾；中共是真正的卖国贼 - 跟黑暗势力勾结、盗走中国人的财富、出卖中国的领土、对内洗脑、对外挑起排华；只有爆料革命向全世界提前揭露了中共的邪恶计划，新中国联邦力量无限大！<br/>
-![img](https://media.gettr.com/group34/getter/2022/02/15/01/4ee613eb-5e21-b437-45c7-acabbd5bd2ee/out.jpg)
 
 ---
 
