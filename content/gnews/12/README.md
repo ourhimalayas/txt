@@ -2,42 +2,48 @@
 ---
 
 
-## DC大中华时事：中共称在欧亚大棋局地位愈发重要
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2018462/)
+## 上春晚关键看你或你老婆孩子跟谁睡或你有个当常委的爹
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2018619/)
 
-*编辑：西北风 / 作图：*hans（文玄）
+G-TV视频链接：[https://gtv.org/video/id=620cae3eb0af02660af43c79](https://gtv.org/video/id=620cae3eb0af02660af43c79)
 
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/ScreenShot-2021-08-01-at-17.25.09@2x.png)
+**郭文贵先生：**千叶草妹妹说85年，你从85年经历到今天你觉得上春晚看春晚的人变了吗？没变，只是看春晚的人少了些而已，或者有些人死去了而已。导演春晚，还有在春晚上主角变了吗？没变。决定谁上春晚、决定谁不上春晚的规则变了吗？没变。只是过去赵本山话要两万块钱让他上春晚，后来变成了两千万，后来赵本山变成了几十亿富豪了。是这意思不千叶草妹妹？
 
-#   墙国妄语每日驳
+德华说“假大空”，你觉得“假大空”仅仅是共产党吗？你觉得小Sarah看的时候她在电视机前面揉着眼，爸爸妈妈说：“你要看到底！” 不让她看还不行得看到底，她不看春晚她看啥你告诉我。
 
-### **0**2.15.2022
+转到辽宁电视台，那几个人都抓了，都是我认识的，江苏电视台不都一样吗？孩子上街最多看看扭秧歌，是吧？老人孩子最多抹点雪花膏，弄点什么红，然后在街上扭扭腚，叫秧歌。你还能干啥？早上起来吃猪头肉、羊肉饺子，这是你最好的生活了。你告诉我中国人不看春晚你看啥？
 
-[境外媒体：香港抗疫体现“一国两制”优势\_参考消息网 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/china/20220217/2469586.shtml)
+像Eric这样的男人这样有才华的人上中央电视台你拿一个亿你也当不了主角，关键你跟谁睡了吗？你有一个常委的爹吗？你跟人家睡了吗？你会把自己的老婆孩子送给中央电视台那些老不要脸的睡觉去吗？所以很多人他没有看到真正的本质。
 
-***简评：***香港给中国改革开放带来了国际技术，资金，人才和广阔的国际市场，曾经的香港影视剧，音乐丰富了几代中国人精神生活，香港是几代中国人梦想生活的样板，1997香港回归大陆，当时年少的我们也都欢呼雀跃，短短十几二十年香港就变成了现在这样悲惨，难道这样一个活生生展现在我们每一个成长过程中的鲜活案例还不能让我们去认识到中共的邪恶本质那我们东方这片土地真是被上天诅咒了。地球人现在都知道中共施放了生化病毒，2019年开始的香港反送中运动中共不是借施放冠状生化病毒给镇压了，冠壮病毒起始不就是因为香港反送中运动吗。现在香港疫情急速发展，那是疫情吗，这不是中共惯用的手段吗，中共自己放病毒，又己病毒疫情为借口加大对香港的管控，自中共出现在中国这片土地上，百年来中共不都是同样的方法来奴役中国老百姓吗。
+你看刚才谁“假大空”，这个德华，真是所有中国人老百姓这是明白人说的话，百分之九十老百姓说的是什么？这到过年这是我们的盼望啊、高兴啊、热闹啊。客观地说，中国春节联欢晚会没有赵本山，中国早就完了实际上，赵本山一完，没有东北人折腾这个晚会，中国的晚会全不是假大空，百分之一百的最无聊无质量的一个节目。
 
-### 02.15.2022
+字幕来源：[2022年2月2日 《文贵大直播 》全文字版](https://gnews.org/zh-hans/1952328/)
 
-[港媒：中国在欧亚大棋局地位愈发重要\_参考消息网 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/column/20220217/2469527.shtml)
+编辑整理：海贼王M.D.LUFFY；
 
-***简评：***俄罗斯普京还没开打乌克兰呢，中共官宣已经开始自嗨了畅想了，中俄联盟要称霸世界了，如果这仅仅是给国内老百姓宣传洗脑打鸡血那到罢了，如果连这些中共执政者都是这样去认识和思考去构建国家战略，任何一个有在国外学习工作生活经历的人都明白这是愚蠢的不现实的，可极权的中共体制为了权力而你死我活的角斗最终必然为了权力而丧心病狂，行为无法理喻，就像今天的习太阳，毛病不改，积恶成习。
+字幕文件制作：知津；
 
-### 02.15.2022
+视频制作及上传：Cindy；
 
-[港刊文章：北京冬奥展现中国巧实力\_参考消息网 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/china/20220217/2469587.shtml)
+G-News发布：小满；
 
-***简评：***大国的实力，八方来贡，万国来朝，看那花费上万亿美元展现的大国威武，这让墙内老百姓多么热血沸腾，国际世界友人多么啧啧赞叹称奇。可这是真实的中国吗？就像中共不会让你看到对新疆种族大屠杀，对西藏自然资源破坏掠夺，对香港上万青少年的奸杀……看看那个徐州丰县锁链女，那才是真实的中共国，她代表了一个真实的中国。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-#   港台资讯
-![](https://media.discordapp.net/attachments/858887785507323904/943728401024417842/1.PNG?width=1043&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/943728437808496689/2.PNG?width=1043&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/943728475196497941/3.PNG?width=1043&amp;height=586)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-*编辑：*西北风
-*作图：hans（文玄）
-发布：文顾*
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

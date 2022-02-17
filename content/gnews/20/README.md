@@ -2,39 +2,26 @@
 ---
 
 
-## 英实验室稱中共病毒疫苗含氧化石墨烯
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2018367/)
+## 樱花FM┃中日财经爆:美国将中共国进口光伏设备关税延长4年
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2018554/)
 
-作者：台灣寶島農場 – 尋文客
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-据英媒2月13日报导，英国某官方实验室报告表示，已经证实中共病毒疫苗中肯定含有氧化石墨烯。
+音频：东京樱花团/战友520
+![](https://lh5.googleusercontent.com/kSITld5sXRbahkrIJ4KYZr2i_Uvl_6fZ-OwiD1ZYNVeknihvpV3bnX9gZETeNzC4e2px8AizTakJEGRtkU-wPsSSdNXRxlQOGuSzNF_KUR7_FtppC5ljcEBF0xEwOE1qZ9s1Xs8C)
+美国总统拜登周五（2月4日）将川普时期主要针对中共国的进口光伏设备关税延长四年，但作为对安装商的一项重大让步，拜登也放宽了条款，将在美国大型项目中占据主导地位的面板技术排除在征税范围之外。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/6-23.png)
+根据白宫声明，这项延长四年的关税豁免了双面太阳能板(bifacial panel)，这种电池板可以两面发电，颇受大型开发商青睐。在川普开始征收关税时，这种技术刚刚起步，但现已用于多数美国大型太阳能设施。
 
-英国官方实验室派出调查员收集中共病毒疫苗注射瓶，主要包含辉瑞、莫德纳、阿斯利康三个品牌，将注射瓶中内容进行法医检查，确认了疫苗中含有大量的碳复合物、石墨烯化合物和氧化铁。
+拜登政府还为来自邻国加拿大和墨西哥的免税供应打开了通道，这两个国家目前占美国的进口量不到1%。
 
-氧化石墨烯是一种有毒物质，可以破坏人类细胞和血液、损害人体器官、诱发癌症、甚至引起基因功能的改变。中共病毒疫苗的成分清单中并未声明含有氧化石墨烯。
+前总统川普在2018年使用1974年贸易法案第201条规定的授权，对光伏产品进口产品实施了为期四年的关税措施，一开始税率为30%，在最后一年下降到15%，希望藉此在美国太阳能制造业创造就业机会。
 
-目前，该报告已被提交给参与英国刑事案件的警方，据说这为英国警方提供了充分的怀疑依据，即中共病毒疫苗的实验性治疗方面存在严重的可公诉罪行。
+这些措施原定2022年2月6日到期，但一些美国太阳能制造商去年寻求延期，认为他们的产品仍然无法与海外制造的商品竞争。这些商品主要来自中共国，在美国市场占据主导地位。他们举出一些不利因素，包括公司在关税生效前的进口囤积、中共病毒（新冠)疫情的经济影响以及成本上涨等。
 
-参考链接：
+文字版原文：[中日财经爆| 美国将中共国进口光伏设备关税延长4年](https://gnews.org/zh-hans/1968066/)
 
-- [Official U.K. Lab Report confirms Covid-19 Vaccines definitely contain Graphene Oxide](https://dailyexpose.uk/2022/02/13/uk-lab-confirms-graphene-in-covid-vaccines/)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
-
-总编：百香果
-编辑：zhong
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

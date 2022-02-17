@@ -2,37 +2,24 @@
 ---
 
 
-## 日本疫情持续延烧 日本政府仍宣布3月将放宽边境管制
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2018365/)
+## 樱花FM┃巴布亚新几内亚总理打过3针疫苗在北京确诊阳性
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2018471/)
 
-作者：纽约香草山农场教育部 – Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-日本政府将调整边境防疫措施，基于经济考量将在3月起逐步放宽边境管制，包括有条件开放观光客以外的外国人新申请入境等边境防疫措施松绑等。具体规划将召开记者会进行说明。
+音频：东京樱花团/战友520
+![](https://lh5.googleusercontent.com/YqX1X1FW4OQdIx5xKsqeFI9KgADgRVlYBCFdhMrQZSnNKMvOoJnYYW9b6FYWUM-mJRfg79trw1fCHXxPYZ57lA_RlK2fR3s9d0IqEZFYKBwKlpQSRuYAXly9vDLXtoh7pJpGo560)
+巴布亚新几内亚总理办公室2月6日宣布，总理马拉普原定于4日出席北京冬季奥运开幕式，但他于3日抵达北京后发现确诊中共病毒（COVID-19），之后被隔离。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8-23.jpg)
+巴布亚新几内亚总理办公室6日透过Facebook声明指出，“马拉普（James Marape）总理3日晚间抵达北京后，发现其中共病毒（2019冠状病毒疾病）采检结果呈阳性。受到防疫限制影响，他将放弃本趟出访行程的法国部分。马拉普预计今天返国，但未透露关于他健康情况的任何进一步细节。”
 
-目前日本政府正实施严格的边境管制，原则上禁止止外国人新申请入境，自国外入境后也必须在家中隔离7天。国民从国外入境后，也必须进行7天的居家隔离。日本政府即将放宽的边境管制措施，每日可入境的人数上限，从每天3500人提高到5000人。入境隔离期，则从原先的七天缩短为3天。此外，入境者若已接种三针疫苗，且来自奥米炕变种病毒并未广为传播的地区，入境则无须隔离。
+根据巴布亚新几内亚中共病毒（COVID-19）国家疾控制中心官网上的声明，马拉普已于1月24日接种中共病毒疫苗追加剂。
 
-据外媒报导，日本政府是基于经济考量，因而放宽边境管制。然而，日本疫情并未好转，2月12日单日新增6万8千多例确诊，重症患者数更增加到1300多人，此数据是一个月前的13倍。
+马拉普5日在北京与中共国国务院总理李克强举行线上会晤，商讨加强双边经济合作事宜。会后中共国驻美国大使馆发布联合声明，称中共国与巴布亚新几内亚同意强化贸易、投资、能源、资源与基础建设等领域的合作。
 
-参考链接：
+文字版原文：[巴布亚新几内亚总理打过3针疫苗在北京确诊阳性](https://gnews.org/zh-hans/1968127/)
 
-- [Japan Set to Relax COVID-19 Border Controls on March 1](https://www.nippon.com/en/news/yjj2022021501253/)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
-
-总编：zhong
-编辑：zhong
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,24 +2,39 @@
 ---
 
 
-## 樱花FM┃以色列逐渐废除疫苗护照
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2018352/)
+## 英实验室稱中共病毒疫苗含氧化石墨烯
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2018367/)
 
-音频：东京樱花团/战友520
-![](https://lh4.googleusercontent.com/tVWHCnKhBL3PvKHdcArWDp04pui1WxXSokUwJc-Vy4zLSXGysE3sxsdxn0mVmquwhq7NFRvtBTeCqKconQVaEsi504U24EQ-hqpH2TSmPsOpKDliRKsHObY3hV2_DBfGI5X7jyYj)
-随着中共病毒（新冠病毒Covid-19）感染人数的下降，以色列放宽规定，许多地方不再需要出示疫苗接种证明。
+作者：台灣寶島農場 – 尋文客
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+据英媒2月13日报导，英国某官方实验室报告表示，已经证实中共病毒疫苗中肯定含有氧化石墨烯。
 
-在以色列，从7日起，在餐厅、电影院、健身房、酒店等场所，不再需要出示“绿色通行证”的疫苗接种证明。尽管一些室内集会活动场所和俱乐部仍然需要“绿色疫苗护照”，但将取消对户外聚会和商业设施人数的限制以及对餐厅餐桌间距的限制。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/6-23.png)
 
-卫生部解释说，感染高峰正在过去，即使接种过疫苗的人也会感染Omicron毒株，因此已经失去了监管的有效性。
+英国官方实验室派出调查员收集中共病毒疫苗注射瓶，主要包含辉瑞、莫德纳、阿斯利康三个品牌，将注射瓶中内容进行法医检查，确认了疫苗中含有大量的碳复合物、石墨烯化合物和氧化铁。
 
-在以色列，上月底每天新增感染人数超过8.3万人，但最近已降至3.3万人左右。
+氧化石墨烯是一种有毒物质，可以破坏人类细胞和血液、损害人体器官、诱发癌症、甚至引起基因功能的改变。中共病毒疫苗的成分清单中并未声明含有氧化石墨烯。
 
-文字版原文：[以色列逐渐废除疫苗护照](https://gnews.org/zh-hans/1968308/)
+目前，该报告已被提交给参与英国刑事案件的警方，据说这为英国警方提供了充分的怀疑依据，即中共病毒疫苗的实验性治疗方面存在严重的可公诉罪行。
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+参考链接：
+
+- [Official U.K. Lab Report confirms Covid-19 Vaccines definitely contain Graphene Oxide](https://dailyexpose.uk/2022/02/13/uk-lab-confirms-graphene-in-covid-vaccines/)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
+
+总编：百香果
+编辑：zhong
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,37 +2,58 @@
 ---
 
 
-## 福奇的机构拒绝国会委员会要求其提供武毒所赠款文件
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2018439/)
+## 文•贵天成——文贵先生谈“蓝、金、黄”计划（十三）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2018614/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+整理：BENJ1
+编辑：Kelly
 
-翻译/编辑：文泓
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/11-19.png)图片来源：Vanity Fair
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/02/image-1491.png)图片来源：墨尔本雅典娜设计组614
 
 
-当地时间2月16日，据《国家脉动》报道，美国国立卫生研究院（NIH）一再未能遵守国会要求提供与其与武汉病毒学研究所有关的文件，而是强迫其机构人员“粉碎笔记和其他文件”，文件涉及奥巴马政府时期的美国政府与中共运营的实验室及其与武汉病毒研究所的合作。
+郭文贵先生**2018**年**2**月**4**日直播
 
-共和党众议院监督与改革委员会成员致函卫生与公众服务部(HHS)主任泽维尔·贝塞拉，敦促公布这些文件，**这些文件可能与****新冠病毒的起源高度相关****。**
+咱们所有人要记住，都要接受蓝金黄。接受蓝金黄不等于背叛良心，我们继续反盗国贼，但蓝金黄别出卖良心，都被蓝金黄才好呢，那就是文贵的战术。所以说，要动脑子！看我起诉完这些人以后，你就明白了，那两个大姐天天在广场上站着，天天在法拉盛，这个实际价值没多大。
 
-“HHS和NIH没有对委员会的共和党人保持透明，而是选择隐藏、混淆和掩盖真相，”信中说。
+郭文贵先生**2018**年**2**月**5**日第二次直播
 
-这封信显示，NIH的一名顾问“早在2014年就被NIH强迫要求粉碎了与武毒所赠款有关的笔记和其他文件”。2021年11月5日，一位化名的个人发给委员会工作人员的一封电子邮件显示以下内容：
+盗国贼们的蓝金黄力量绝不容小觑，已经深入到美国社会、西方社会的骨髓，而且现在打着民运旗号的假民运份子们完全靠假政庇，他们的末日已经来了，谁都挡不住，他们会和盗国贼一样，咔嚓就倒下来，不会是慢速的，放心吧，大家拭目以待。
 
-“我签署了一份保密协议，其中我同意不与任何人讨论任何资助，除非与研究部门的其他成员讨论，并且——一旦会议结束——我将销毁我在会议期间所做的任何笔记（我们确实是将它们扔进会议室的碎纸机中）。”
+郭文贵先生**2018**年**2**月**7**日第一次直播
 
-这封信概述了“迄今为止，HHS和NIH拒绝提供任何回应性文件或信息”。国会一个委员会要求美国国立卫生研究院前主任弗朗西斯·[柯林斯](https://thenationalpulse.com/exclusive/nih-collins-advised-ccp-military-proxy-bgi-genomics/)提供有关2021年5月和7月由安东尼·[福奇的](https://thenationalpulse.com/analysis/exc-navarros-9-indisputable-facts-linking-fauci-to-covid-19-origin/)国家过敏和传染病研究所(NIAID)授予生态健康[联盟](https://thenationalpulse.com/2021/12/23/lancet-editor-admits-daszak-had-significant-conflict-of-interest/)和武毒所的2014年奥巴马时代拨款的文件。
+田惠宇孩子买房的钱为什么都是你给呀？为什么田惠宇、田国立、还有进出口银行那都是王岐山的秘书，那怎么着中国只有王岐山可以给你贷款？中国的国家战略是侵略西方？“蓝金黄”西方？就为啥只让王岐山“蓝金黄”不让别人“蓝金黄”？既然是国家的使命，为什么只准你一个人干呢？这（思维）难道不是愚蠢至极吗？
 
-尽管共和党委员会的工作人员一再修改他们的要求，使其范围更广，更容易让联邦机构完成，但两个联邦机构都拒绝交出任何文件。
+今天，所有战友们都知道什么叫“蓝金黄”，好好看一看这篇文章《海航王健的内部讲话》，这就是对西方的“蓝金黄 ”。任何有良知的战友们把王健的讲话翻译成英文发给美国政府，发给美国国务院，发给美国FBI，发给美国媒体，让他们看看什么叫做“蓝金黄”。
 
-新闻链接：[U.S. Govt Advisors SHRED Documents Detailing Fauci Agency’s Obama-Era Work With The Wuhan Lab. (thenationalpulse.com)](https://thenationalpulse.com/2022/02/16/nih-refuses-to-comply-with-congressional-doc-request/)
+这绝对证明了陈峰和王健到西方来，是带着任务的，来对西方的政治、经济、文化进行侵略、技术掠夺。买美国的波音飞机都是要跟美国波音公司在战略上争高低，是个人都能够看清楚这个道理，这是最经典的“蓝金黄”。
 
-*发布：tianzhihuan*
+郭文贵先生**2018**年**2**月**8**日直播
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+今天盗国贼用一国之力在全世界各地进行各种布局，进行各种蓝金黄，而且整个国家把我列为头号敌人、头号的威胁，这个背后说明了什么？说明了我郭文贵所说的话、所要做的事对他们真正地构成了威胁。
+
+咱们温哥华的战友们，想想温哥华这个地方盗国贼们害怕了、恐惧了，那是什么结果？第一，他们要蓝金黄你们，我希望他们蓝金黄你们，这蓝金黄的钱，你们接着吧。第二就是威胁你们的家人，如果威胁不成功，那就要采取其它的办法，结果会是什么？把温哥华变成第二个战场。
+
+资料来源：郭先生GTV和盖特直播视频
+
+往期回顾：
+[文·贵天成——文贵先生谈“蓝、金、黄”计划（一）](https://gnews.org/zh-hans/2008275/)
+[文·贵天成——文贵先生谈“蓝、金、黄”计划（二）](https://gnews.org/zh-hans/2008300/)
+[文·贵天成——文贵先生谈“蓝、金、黄”计划（三）](https://gnews.org/zh-hans/2008496/)
+[文•贵天成——文贵先生谈“蓝、金、黄”计划（四）](https://gnews.org/zh-hans/2008314/)
+[文•贵天成——文贵先生谈“蓝、金、黄”计划（五）](https://gnews.org/zh-hans/2008332/)
+[文•贵天成——文贵先生谈“蓝、金、黄”计划（六）](https://gnews.org/zh-hans/2008361/)
+[文•贵天成——文贵先生谈“蓝、金、黄”计划（七）](https://gnews.org/zh-hans/2008344/)
+[文•贵天成——文贵先生谈“蓝、金、黄”计划（八）](https://gnews.org/zh-hans/2012933/)
+[文·贵天成——文贵先生谈“蓝、金、黄”计划（九）](https://gnews.org/zh-hans/2013014/)
+[文•贵天成——文贵先生谈“蓝、金、黄”计划（十）](https://gnews.org/zh-hans/2017262/)
+[文•贵天成——文贵先生谈“蓝、金、黄”计划（十一）](https://gnews.org/zh-hans/2017295/)
+[文•贵天成——文贵先生谈“蓝、金、黄”计划（十二）](https://gnews.org/zh-hans/2018410/)
+
+发布：tianzhihuan
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)

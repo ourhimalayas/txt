@@ -2,26 +2,37 @@
 ---
 
 
-## 樱花FM┃澳大利亚在经过近两年的边境关闭后 终于将对国际游客开放
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2018351/)
+## 医学研究怀疑 中共病毒恐导致神经损伤
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2018366/)
 
-音频：东京樱花团/战友520
-![](https://lh5.googleusercontent.com/iDRfKrcK_MoadkiYy9XWLDlkw7I2a3lJlr_q9hm1j1CFlj0__T0rVrmu7uwhD417PKNZ_d7NUsK0yz4dcQRp03_Ofkyy8GH3NUY7_yZKx_ef9gaTIKlzuVje1mnFtCzvhJge980-)
-澳大利亚的边境在经过近两年的关闭以阻止中共病毒（新冠病毒Covid-19）的传播后，终于将于2月21日对国际游客开放。但是，游客必须接受双重疫苗接种，否则就有可能像怀疑疫苗接种的网球明星诺瓦克·德约科维奇那样被拒之门外。他在上个月的澳大利亚网球公开赛之前被送回了家。
+作者：银河系农场 – 骄子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+一项正在进行中的医学研究，在观察了中共病毒感染者的长期症状后，认为曾感染中共病毒的患者，都至少出現三种迷走神经功能障碍，而这些迷走神经功能障碍，被认为是中枢神经受到损害导致。
 
-“条件是你必须接种两次疫苗才能来澳大利亚。这就是规则，每个人都应该遵守。”总理斯科特-莫里森说，“但如果你接种了双重疫苗，我们期待着欢迎你回到澳大利亚，我知道旅游业将期待着这一点。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/7-23-scaled.jpg)
 
-莫里森先生说，做出这个决定是因为澳大利亚现在已经被中共病毒的Omicron变体所蹂躏，这意味着国际旅行者不会构成额外的风险。
+迷走神经从大脑开始连接心脏、肺、肠道和几块与吞咽有关的肌肉，主要控制心率、语言、呕吐反射、出汗和消化等功能。而研究觀察認為，被研究的患者存在与迷走神经神经障碍者的相同症状，如声音问题、吞咽困难、头晕、心率高、低血压和腹泻等等。
 
-“该变种已经在澳大利亚境内。对于那些即将到来的双重疫苗接种者，他们不会比那些已经在澳大利亚的人带来更大的风险。”
+研究者认为，迷走神经神经功能障碍是长期中共病毒患者的核心病理特征，中共病毒的特点就是通过控制神经系统，从而对身体造成巨大损伤。该研究结果預計在4月下旬的欧洲临床微生物学和传染病大会上发表。
 
-而对未接种疫苗的签证持有者需要获得旅行豁免才能入境，并在抵达后接受各州和地区的检疫要求。
+参考链接：
 
-文字版原文：[澳大利亚在经过近两年的边境关闭后 终于将对国际游客开放](https://gnews.org/zh-hans/1968521/)
+- [Long COVID Symptoms Linked to Effects on Vagus Nerve](https://www.webmd.com/lung/news/20220215/covid-symptoms-linked-to-vagus-nerve)
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
+
+总编：zhong
+编辑：zhong
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

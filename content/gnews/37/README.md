@@ -2,23 +2,24 @@
 ---
 
 
-## 疾控中心暗示強制口罩令将会于下周终止
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2018261/)
+## 樱花FM┃立陶宛外长今访澳 坚称不会更名台湾代表处
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2018353/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/02/4-36.jpg)
-图片来源：www.cdc.gov
+音频：东京樱花团/战友520
+![](https://lh3.googleusercontent.com/qcAp5j-W5PlFtxWxEfPRCl3z9JJwJwW1u7OQq0MSgkZTM3f-DKE2Mz_iMp8ogvMHaeLhjkSZ-XNsCmUC2J_vGWdy01Mkd4n9w9SOqd3tuU2yWfSLERgle38eotZ2f5h45ZHHqJAk)
+立陶宛外长蓝斯柏吉斯（Gabrielus Landsbergis）于2月6日至10日，将先后访问新加坡、澳大利亚，开拓亚洲及大洋洲市场。据自由时报2月6日引述消息报道说，立陶宛外长蓝斯柏吉斯（Gabrielus Landsbergis）重申不会屈服中共经济胁迫。
 
-零对冲网2月16日报道，已经有十多个州包括人口最多的加利福尼亚州已经自行决定加弃在公共场合要求戴口罩的命令，联邦机构直到现在才准备放弃口罩令，美国全国广播电台新闻（NBC)最早报道疾控中心(CDC)计划放弃联邦口罩令，或放松室内口罩的指令，最早可能在下周实行，CDC主任对NBC说：“还没有最后确定，但CDC将考虑一个新的基准，到底是否需要口罩，这将基于严重疾病的程度和社区住院情况而定。”
+立陶宛外长蓝斯柏吉斯访澳前夕，接受《澳洲金融评论报》独家专访指出，立陶宛与澳大利亚此次交流议题将聚焦中共的胁迫和贸易制裁，立澳2国将就如何处理这种情况（被中国经济霸凌）以及学到了什么，又是如何从中变得更强大等议题交换意见，并互相帮助。
 
-白宫急需CDC提供室内口罩的推荐，但不想因此向CDC施加压力，甚至福奇博士也因近期新冠病例急剧下降而建议放弃口罩令。
+据该报称，蓝斯柏吉斯强调，某些国家不应使用经济等胁迫方式，迫使另一个国家改变外交政策。但当前国际商定的规则和法规，正受到“强权国家”挑战，我们正在捍卫国家主权。
 
-NBC报道后没多久，CDC主任沃任斯基博士说口罩令指南将于二月下旬或三月初改变。
+对于外界盛传台湾驻立代表处可能因中共施压而更名一事，蓝斯柏吉斯再度驳斥，他重申，“无论如何，立陶宛都不打算更名。”“他们（指台湾）的正式名称不会改变。
 
-NBC新闻注意到多数州已经决定”转换策略”，因为新的办法，例如新冠的治疗已经能作用。
+文字版原文：[立陶宛外长今访澳 坚称不会更名台湾代表处](https://gnews.org/zh-hans/1968214/)
 
-##### 新闻来源： [Leading From Behind: CDC Hints COVID Mask Mandate Will End ‘Next Week’ Now That States Have Moved First](https://www.zerohedge.com/covid-19/leading-behind-cdc-hints-covid-mask-mandate-will-end-next-week-now-states-have-moved-first)
-
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
