@@ -2,8 +2,8 @@
 ---
 
 
-## 20220216喜币美好的未来和重大的意义，开启了人类金融智慧的未来
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2019488/)
+## 20220216喜联储很快会和比特币和其它数字货币相互交易
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2019611/)
 
 作者:东京樱花团小视频组
 

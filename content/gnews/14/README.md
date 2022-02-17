@@ -2,33 +2,46 @@
 ---
 
 
-## 有声｜美议员提法案 禁中共高官送子女赴美学习
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2019430/)
+## 喜币喜支付的诞生未来必将面对全世界的挑战侮辱和限制
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2019566/)
 
-By:**秘翻新闻**
+G-TV视频链接：[https://gtv.org/video/id=620cc025b0af02660af44104](https://gtv.org/video/id=620cc025b0af02660af44104)
 
-**2022-02-17**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-19.png)图片来源
-2022年2月16日，美国联邦众议员维姬‧哈茨勒提❮保护高等教育免受中共影响法❯(Aaron P. Bernstein/Getty Images)
-据《大纪元》2022年02月17日报道，美国联邦共和党众议员哈茨勒周三(2月16日)提出一项法案，禁止中共高官及其家属进入美国大学学习。法案锁定对象还包括习近平和政治局常委等中共最高层成员及其家属。
+**郭文贵先生：**我们遇到的挑战远远没有开始呢，一样都没有开始。就像比特币那多灾多难，那这个杀那个砍的，没有任何人追着人民币去砍去，因为全世界人民币根本没有人要，是吧？没有人要，人追着比特币砍，所以比特币砍那么多钱，包括以太坊也是这国那国都在弄，是吧？
 
-众议员维姬‧哈茨勒的办公室周三表示，哈茨勒提出了《保护高等教育免受中共影响法》， 其中表明禁止中共官员及其家庭成员获得美国留学生签证或研究签证。法案锁定所有中共全国代表大会成员及其家属。法案中特别解释说明，其中的家属指的是中共官员的配偶、子女、父母、兄弟姐妹或孙辈。
+数字货币的诞生是人类的一切一切的开始，一切一切的改变。数字货币会跟这个法币之间的较量那就像黑天和白夜之间，有白天没黑夜，有黑夜没白天，实际上它最后必须黑天白夜同存。
 
-哈茨勒称，在中共实施种族灭绝和其它暴行的同时，中共却继续将其子女送到美国接受世界级教育。这种情况必须被制止，现在《保护高等教育免受中共影响法》结束了中共的这种行径。
+那么咱们的喜币还有喜支付所有这个的诞生，未来就是这个命运，全世界的人都要挑战我们，侮辱我们，这个收拾我们的，那个限制，那个法庭令，那个罚款，什么犯罪调查了，它不会少了。它没这个就不值钱了，就不好用了。
 
-哈茨勒补充说，美国不应该帮助那些积极致力于破坏我们国家的人，我的新立法禁止这些人进入美国大学。
+就像咱G-TV一样，全球追打，是吧？越追越大。现在我要在一年前说值600亿，你们都想尿我一脸，是吧？“你疯了吧郭文贵？七哥，我爱你，我相信你，那你这是疯了。”现在我说值600亿，你觉得我还疯吗？一年前我说喜币能涨五百倍，你们会拉我一脸都不拉倒，是吧？现在你觉得我疯了吗？是吧？大家因为，兄弟姐妹，你们对这个世界的认知和你们的经历，它局限了你的想法和对事物的判断。
 
-哈茨勒周三提出的法案是一个多星期内美国国会议员提出的第二个针对中共高官的法案。 2 月9日，美国众议院多名资深共和党议员提出《制裁中共暴政压迫人民之官员法》，简称《制裁 中共法》，锁定所有中国共产党全国代表大会成员及其直系亲属进行制裁。值得关注的是，制裁对象也同样包括习近平及其家人。议员们在声明中表示，中共必须为其令人发指和令人不安的人权侵犯行为承担责任。
+字幕来源：[2022年2月2日 《文贵大直播 》全文字版](https://gnews.org/zh-hans/1952328/)
 
-文章来源: **[https://www.epochtimes.com/b5/22/2/16/n13582372.htm](https://www.epochtimes.com/b5/22/2/16/n13582372.htm)**
+编辑整理：海贼王M.D.LUFFY；
 
-秘翻新闻 Milojai 编辑报道
+字幕文件制作：知津；
 
-发布 : 恩典
+视频制作及上传：Cindy；
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMAGE-2021-12-13-113746.jpg)
+G-News发布：小满；
 
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

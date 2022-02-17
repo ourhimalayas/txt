@@ -2,39 +2,23 @@
 ---
 
 
-## 英实验室稱中共病毒疫苗含氧化石墨烯
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2018367/)
+## 中共国江浙地区疫情大封锁
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2018437/)
 
-作者：台灣寶島農場 – 尋文客
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-据英媒2月13日报导，英国某官方实验室报告表示，已经证实中共病毒疫苗中肯定含有氧化石墨烯。
+加拿大温哥华杨帆农场 枫叶快讯
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/6-23.png)
+采编：风云小哥     编译撰稿：文莱
+![Nurses wearing protective face masks enter a community hospital in Shanghai on February 13, 2020. - China's official death toll and infection numbers from the deadly COVID-19 coronavirus spiked dramatically on February 13 after authorities changed their counting methods, fuelling concern the epidemic is far worse than being reported. (Photo …](https://media.breitbart.com/media/2020/02/GettyImages-1200517193-640x480.png)图片来源：布莱特巴特新闻
+据【布莱特巴特新闻】2月15日报道，由于新出现了多起“新冠病毒”感染病例，中共国苏州市政府日前紧急关闭了其大部分医疗服务机构和学校，以试图遏制正在扩散的疫情。 报道称，苏州市在发现新增感染病例之后，已于2月13日暂停了所有医院的急诊医疗服务。并迅速关闭了抗生素，止咳和退烧药物的在线和零售购买业务。目前，该市至少有39个地区被当局全面封锁。
 
-英国官方实验室派出调查员收集中共病毒疫苗注射瓶，主要包含辉瑞、莫德纳、阿斯利康三个品牌，将注射瓶中内容进行法医检查，确认了疫苗中含有大量的碳复合物、石墨烯化合物和氧化铁。
+据悉，由于苏州毗邻上海，因此该市突发的疫情随即导致上海于日前暂停了连接这两座城市的所有公交和地铁线路。 对此，文贵先生早前已发出警告称，中共政权必定会利用冬奥会之机，大搞疫情恐怖政策，在全国各地自北向南连续人为传播病毒和实行大封锁，以此满足习近平当局奴役和控制全国的变态统治欲望。
 
-氧化石墨烯是一种有毒物质，可以破坏人类细胞和血液、损害人体器官、诱发癌症、甚至引起基因功能的改变。中共病毒疫苗的成分清单中并未声明含有氧化石墨烯。
+校对编辑：硫酸羟氯喹64
 
-目前，该报告已被提交给参与英国刑事案件的警方，据说这为英国警方提供了充分的怀疑依据，即中共病毒疫苗的实验性治疗方面存在严重的可公诉罪行。
+发文：青青
 
-参考链接：
+新闻来源：[China Imposes Local Ban on Anti-Cough Drugs, Locks Down City of 10+ Million over Coronavirus (breitbart.com)](https://www.breitbart.com/asia/2022/02/15/china-imposes-local-ban-on-anti-cough-drugs-locks-down-city-of-10-million-over-coronavirus/)
 
-- [Official U.K. Lab Report confirms Covid-19 Vaccines definitely contain Graphene Oxide](https://dailyexpose.uk/2022/02/13/uk-lab-confirms-graphene-in-covid-vaccines/)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
-
-总编：百香果
-编辑：zhong
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

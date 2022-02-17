@@ -15,179 +15,179 @@
 
 ---
 
-### [喜支付象新鲜自由的空气一样必成为英国美国的不二之选](/content/gnews/1/README.md)
+### [因为贪婪和无知, 冬奥会和冬奥会地产商不知整死多少人](/content/gnews/1/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [20220216美国大使不撤离中国的前提，必须病毒溯源](/content/gnews/2/README.md)
+### [香港确诊及初阳破万 另有逾万染疫者等候入院](/content/gnews/2/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [20220216七哥拿鲜血和命来签署的破产法案是为了换我们安全的一种方式](/content/gnews/3/README.md)
  ` Tokyo Sakura Video Group`
 
-### [喜币喜支付的诞生未来必将面对全世界的挑战侮辱和限制](/content/gnews/3/README.md)
+### [冬奥的圣火早已在心中熄灭](/content/gnews/4/README.md)
+ ` 银河勇气之星`
+
+### [新中国联邦一切的一切都是因为有战友,没有战友啥都不是](/content/gnews/5/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [GETTR VISION没有如期上线不能兑现承诺让七哥非常难堪](/content/gnews/4/README.md)
+### [中共以预防校园欺凌为由在中小学设置法治副校长](/content/gnews/6/README.md)
+ ` 儒为`
+
+### [结婚证还是罪证？](/content/gnews/7/README.md)
+ ` 银河勇气之星`
+
+### [战友们要时刻宣传、全力推广喜币并研究使用领域和方法](/content/gnews/8/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [20220216爆料革命、新中国联邦奖励为铁链女发声的同胞](/content/gnews/5/README.md)
+### [20220216喜联储很快会和比特币和其它数字货币相互交易](/content/gnews/9/README.md)
  ` Tokyo Sakura Video Group`
 
-### [放下（二）](/content/gnews/6/README.md)
+### [喜币独有的稳定币&amp;支付系统后发先至碾压比特币以太坊](/content/gnews/10/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [20220216中共病毒引起全世界排华、仇恨亚裔越发严重](/content/gnews/11/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [喜支付象新鲜自由的空气一样必成为英国美国的不二之选](/content/gnews/12/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [20220216美国大使不撤离中国的前提，必须病毒溯源](/content/gnews/13/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [喜币喜支付的诞生未来必将面对全世界的挑战侮辱和限制](/content/gnews/14/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [中共国暴力强拆至人重伤，女孩发视频哭求帮助](/content/gnews/15/README.md)
+ ` 纽约香草山MOS02`
+
+### [GETTR VISION没有如期上线不能兑现承诺让七哥非常难堪](/content/gnews/16/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [20220216爆料革命、新中国联邦奖励为铁链女发声的同胞](/content/gnews/17/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [放下（二）](/content/gnews/18/README.md)
  ` 骄子`
 
-### [HPay是生产力与人与人之间解放,物质大流通和精神解放](/content/gnews/7/README.md)
+### [HPay是生产力与人与人之间解放,物质大流通和精神解放](/content/gnews/19/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [放下（一）](/content/gnews/8/README.md)
+### [放下（一）](/content/gnews/20/README.md)
  ` 骄子`
 
-### [20220216喜币美好的未来和重大的意义，开启了人类金融智慧的未来](/content/gnews/9/README.md)
+### [20220216喜币美好的未来和重大的意义，开启了人类金融智慧的未来](/content/gnews/21/README.md)
  ` Tokyo Sakura Video Group`
 
-### [与中共勾结的蛇妖闫、路大脑袋和九指妖将终生付出代价](/content/gnews/10/README.md)
+### [与中共勾结的蛇妖闫、路大脑袋和九指妖将终生付出代价](/content/gnews/22/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [沈阳公交车爆炸指向访民因上访未果后制造的土炸弹](/content/gnews/11/README.md)
+### [沈阳公交车爆炸指向访民因上访未果后制造的土炸弹](/content/gnews/23/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [推广HPay回报率无限大+未来所在地区的支付和代理权利](/content/gnews/12/README.md)
- ` 喜马拉雅日本银河系农场`
+### [看台上球迷心脏骤停，英格兰本赛季第二场比赛暂停](/content/gnews/24/README.md)
+ ` xiaobaige`
 
-### [大直播后记 ：2025年一定灭共](/content/gnews/13/README.md)
- ` 雅典娜GNotes`
-
-### [有声｜美议员提法案 禁中共高官送子女赴美学习](/content/gnews/14/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [有聲｜兩年爆發5輪疫情 內蒙古滿洲里再封城](/content/gnews/15/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [喜支付系统里没有统治和纳税,所有价值是双方的信和用](/content/gnews/16/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [福奇要跳船了 称要慎重考虑是否打第四针](/content/gnews/17/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [五月花简报（02/16/2022）](/content/gnews/18/README.md)
+### [五月花简报（02/16/2022）](/content/gnews/25/README.md)
  ` mayflowertranslate`
 
-### [人类从没像今天这样花钱比挣钱还难,越花越少,重复征税](/content/gnews/19/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [20220216新中国联邦有战友有币还有情报，还有让你开智。](/content/gnews/20/README.md)
- ` Tokyo Sakura Video Group`
-
-### [有声｜郭文贵先生公布喜系列三大利好消息](/content/gnews/21/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [奥林匹克精神](/content/gnews/22/README.md)
+### [奥林匹克精神](/content/gnews/26/README.md)
  ` 纽约香草山MOS03`
 
-### [谷爱玲的赞助商展示了“腐败和软弱的美国公司”](/content/gnews/23/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [有声｜两年爆发5轮疫情 内蒙古满洲里再封城](/content/gnews/24/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [美国对中共国“脑控武器”军事研究的日益关注](/content/gnews/25/README.md)
+### [美国对中共国“脑控武器”军事研究的日益关注](/content/gnews/27/README.md)
  ` 澳喜特战旅Gnews`
 
-### [五角大楼称俄罗斯战机拦截美国海军飞机](/content/gnews/26/README.md)
+### [五角大楼称俄罗斯战机拦截美国海军飞机](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [丰县被拐卖妇女离婚申诉屡遭法院拒绝 当地常现女尸](/content/gnews/27/README.md)
+### [丰县被拐卖妇女离婚申诉屡遭法院拒绝 当地常现女尸](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [亚马逊被要求赔偿因披露强迫劳动而入狱的中共维权人士](/content/gnews/28/README.md)
+### [亚马逊被要求赔偿因披露强迫劳动而入狱的中共维权人士](/content/gnews/30/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国加大制裁中共国军事公司的力度](/content/gnews/29/README.md)
+### [美国加大制裁中共国军事公司的力度](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [印度税务部门对华为多处办公室展开偷漏税搜查](/content/gnews/30/README.md)
+### [印度税务部门对华为多处办公室展开偷漏税搜查](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [樱花FM┃中日财经爆:美国将中共国进口光伏设备关税延长4年](/content/gnews/31/README.md)
+### [樱花FM┃中日财经爆:美国将中共国进口光伏设备关税延长4年](/content/gnews/33/README.md)
  ` 樱花FM`
 
-### [DC大中华时事：中共称在欧亚大棋局地位愈发重要](/content/gnews/32/README.md)
+### [DC大中华时事：中共称在欧亚大棋局地位愈发重要](/content/gnews/34/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [福奇的机构拒绝国会委员会要求其提供武毒所赠款文件](/content/gnews/33/README.md)
+### [福奇的机构拒绝国会委员会要求其提供武毒所赠款文件](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共国江浙地区疫情大封锁](/content/gnews/34/README.md)
+### [中共国江浙地区疫情大封锁](/content/gnews/36/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [多數人認為特魯多不能勝任國家領導職責](/content/gnews/35/README.md)
+### [多數人認為特魯多不能勝任國家領導職責](/content/gnews/37/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [英实验室稱中共病毒疫苗含氧化石墨烯](/content/gnews/36/README.md)
+### [英实验室稱中共病毒疫苗含氧化石墨烯](/content/gnews/38/README.md)
  ` NFSC News`
 
-### [医学研究怀疑 中共病毒恐导致神经损伤](/content/gnews/37/README.md)
+### [医学研究怀疑 中共病毒恐导致神经损伤](/content/gnews/39/README.md)
  ` NFSC News`
 
-### [日本疫情持续延烧 日本政府仍宣布3月将放宽边境管制](/content/gnews/38/README.md)
+### [日本疫情持续延烧 日本政府仍宣布3月将放宽边境管制](/content/gnews/40/README.md)
  ` NFSC News`
 
-### [韩国單日确诊病例創歷史新高 首次突破9万例](/content/gnews/39/README.md)
+### [韩国單日确诊病例創歷史新高 首次突破9万例](/content/gnews/41/README.md)
  ` NFSC News`
 
-### [樱花FM┃立陶宛外长今访澳 坚称不会更名台湾代表处](/content/gnews/40/README.md)
+### [樱花FM┃立陶宛外长今访澳 坚称不会更名台湾代表处](/content/gnews/42/README.md)
  ` 樱花FM`
 
-### [【秘翻在线】美国谴责中共未履行其世贸组织承诺](/content/gnews/41/README.md)
+### [【秘翻在线】美国谴责中共未履行其世贸组织承诺](/content/gnews/43/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [看不到的黑暗有多黑 传说中共国有20年拐卖妇女史，苏北有个拐卖村](/content/gnews/42/README.md)
+### [看不到的黑暗有多黑 传说中共国有20年拐卖妇女史，苏北有个拐卖村](/content/gnews/44/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本麒麟公司宣布退出中共国饮料业务](/content/gnews/43/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [重大利好！喜贷款、喜抵押即将登场，喜联储一月内还有大公告](/content/gnews/44/README.md)
+### [重大利好！喜贷款、喜抵押即将登场，喜联储一月内还有大公告](/content/gnews/45/README.md)
  ` YALUN 亚伦`
 
-### [2022/02/16 文贵先生直播重点大纲](/content/gnews/45/README.md)
+### [2022/02/16 文贵先生直播重点大纲](/content/gnews/46/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [流氓媒体Vice不失时机地对班农和郭文贵先生进行负面报道](/content/gnews/46/README.md)
+### [流氓媒体Vice不失时机地对班农和郭文贵先生进行负面报道](/content/gnews/47/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2022年2月16日大直播速记精萃](/content/gnews/47/README.md)
+### [2022年2月16日大直播速记精萃](/content/gnews/48/README.md)
  ` 雅典娜GNotes`
 
-### [美财政部确认加密货币矿工不受国税局约束](/content/gnews/48/README.md)
+### [美财政部确认加密货币矿工不受国税局约束](/content/gnews/49/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [习近平病危手术后暂停武统台湾](/content/gnews/49/README.md)
+### [习近平病危手术后暂停武统台湾](/content/gnews/50/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [郭文贵先生2月16日宣布三件大事](/content/gnews/50/README.md)
+### [郭文贵先生2月16日宣布三件大事](/content/gnews/51/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [樱花FM┃美国宣布取消部分对日本的钢铁关税](/content/gnews/51/README.md)
+### [樱花FM┃美国宣布取消部分对日本的钢铁关税](/content/gnews/52/README.md)
  ` 樱花FM`
 
-### [樱花FM| 中日财经爆：美司法部指控海能达窃取摩托罗拉技术](/content/gnews/52/README.md)
+### [樱花FM| 中日财经爆：美司法部指控海能达窃取摩托罗拉技术](/content/gnews/53/README.md)
  ` 樱花FM`
 
-### [樱花FM┃日本众议院通过决议谴责俄罗斯武力入侵乌克兰的企图](/content/gnews/53/README.md)
+### [樱花FM┃日本众议院通过决议谴责俄罗斯武力入侵乌克兰的企图](/content/gnews/54/README.md)
  ` 樱花FM`
 
-### [樱花FM┃美日强化合作关系 应对中共军事威胁](/content/gnews/54/README.md)
+### [樱花FM┃美日强化合作关系 应对中共军事威胁](/content/gnews/55/README.md)
  ` 樱花FM`
 
-### [樱花FM┃美国批准对台湾一亿美元军售](/content/gnews/55/README.md)
+### [樱花FM┃美国批准对台湾一亿美元军售](/content/gnews/56/README.md)
  ` 樱花FM`
 
-### [有声｜中共国因俩疑似偷渡者发动群众举报 最高悬赏十万](/content/gnews/56/README.md)
+### [有声｜中共国因俩疑似偷渡者发动群众举报 最高悬赏十万](/content/gnews/57/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [樱花FM┃德国总理在制裁俄罗斯问题上倾向美国](/content/gnews/57/README.md)
+### [樱花FM┃德国总理在制裁俄罗斯问题上倾向美国](/content/gnews/58/README.md)
  ` 樱花FM`
-
-### [有声｜大陆中小银行股权拍卖遇冷 近六成流拍](/content/gnews/58/README.md)
- ` 秘密翻译组-即时新闻播报组`
 
 ### [美科学家称中共病毒来自武汉病毒研究所](/content/gnews/59/README.md)
  ` NFSC News`
