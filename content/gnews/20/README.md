@@ -2,12 +2,38 @@
 ---
 
 
-## 曾经被洗过脑的洋五毛演唱的反洗脑神曲【The Party’s MC】
-` 新西兰农场【光影传镜】` [轉載自GNews](https://gnews.org/zh-hans/2019732/)
+## 法院拒绝被拐卖妇女的离婚申诉，丰县经常发现女性尸体
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2019747/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/d092f3b6f44d1c5fff7ac33fddcb2721.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/3d6c40e9b0d4caea4755cf1d6722ef55.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/7e9ab3d13556aca3287577f2c6f3e771-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/8330ecf231d106baaa9bb04e7df929df-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/98a3fd57f17823233e6528454dca159d-1.jpg)
-图文：**爆料革命大事记WhistleBlowerMovement BigEvent**
-上 传：F
+#### 【雅典娜观察】和您一起洞察世界
+
+整理/编辑：文泓
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/1-184.png)图片来源：墨尔本雅典娜农场设计组
+
+
+恶名满世界的徐州丰县，最近又传出新闻。据自由亚洲报道，丰县法院在审理多起被拐卖妇女要求离婚申诉时，法院不仅没有将犯罪信息移送警方，反而不准原告人离婚。而拐卖妇女案犯则被轻判。与此同时，有网民爆料，丰县河中发现多起女性尸体，警方并无后续通报。
+
+第一个案例发生在2014年，被拐卖到丰县的四川绵阳女子赵某起诉至丰县人民法院，要求与被告离婚。判决书显示，原告赵某1984年9月被拐卖至丰县；后双方以夫妻的名义同居生活。丰县法院以原告未提供证明双方感情破裂的证据，不予支持离婚。
+
+第二个案例判决书中，原告王某某系重庆人，1987年10月被人拐卖到丰县与被告同居生活，被告脾气暴躁，经常打骂原告。但丰县法院认为：双方偶有争执在所难免，被拐卖妇女王某某的家庭“是一个幸福美满的家庭”，离婚理由不被支持。
+
+2020年6月30日，中国裁判文书网发布丰县人民法院2012年作出的一份判决：被告人董某登犯拐卖妇女罪，判处有期徒刑五年。王某犯拐卖妇女罪，判处有期徒刑三年，缓刑三年。
+
+中共地方官对拐卖人口犯罪行为的放纵，加剧了人贩子对被拐卖妇女的残忍手段。网友“一剑光寒三千里”搜集到的媒体报道显示，丰县河里多次发现女性尸体。最近一次是今年1月16日，丰县一年轻女子抱着孩子在梁寨渊子湖投河自尽身亡；2020年3月31日上午，丰县师寨东营子河道发现一具女尸，死因不明；2020年5月13日9时许，丰县栖山镇卜楼村西麦地内发现无名女尸；2017年9月21日18时，丰县赵庄镇一井里发现一具女尸，当地派出所与应急救援队将尸体打捞上来，确认为女性。23日下午，丰县渠集村高庄河内发现一无名女尸……
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-67.png)图片来源：新浪微博网民发帖
+这些无辜女性无论是自杀或者他杀，在一个不尊重生命的国度，中共视百姓生命如蝼蚁，人民没有申诉或反抗的机会。七哥大直播里表达的很清晰，丰县八孩案子再追查下去就涉及到中南坑。是中共的罪恶体制造成了这一切，只要中共存在一天，这样的悲剧就永远不会结束。
+
+新闻链接：[法院拒绝多名被拐卖妇女离婚申诉 丰县经常发现女性尸体](https://www.rfa.org/mandarin/yataibaodao/renquanfazhi/ql2-02162022074435.html)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
