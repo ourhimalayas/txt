@@ -2,20 +2,38 @@
 ---
 
 
-## 一名50多岁的日本人在中共国被拘留
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2018279/)
+## 韩国單日确诊病例創歷史新高 首次突破9万例
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2018364/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1625.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2F1.bp.blogspot.com%2F-Mhka2Dc8PJg%2FYTbOnZidp3I%2FAAAAAAAAELA%2FGwamae97kqEc89ThS84IgdzvCQPqhGPLwCLcBGAsYHQ%2Fs1250%2F07sept2021.jpg&amp;imgrefurl=https%3A%2F%2Fwww.chinaaid.org%2F2021%2F09%2Fccp-police-arre)
-去年12月，一名50多岁的日本男子在中国上海被当局扣留。现在仍在拘留中。他被拘留的原因和情况尚不清楚。中共国自2014年实施《反间谍法》以来，当局对外国人的拘押接连不断。
+作者：首尔天池农场 – 追着曙光跑
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+2月16日，韩国中央检疫对策本部宣布，截至16日零时，韩国本土共新增了9万0443例确诊个案，较前一天增加了3万多例，首次突破9万例，全国累计超过155万人次确诊。
 
-另外，据日本政府官员透露，一名70多岁的日本男子因在中国从事间谍活动被判处12年监禁，这名男子本月7日在北京一家医院因病死去。该男子2015年在北京被拘留，2018年12月在北京市第二中级人民法院被定罪。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/9-14.jpg)
 
-信息源：[日本人の５０代男性を中国が拘束、理由や経緯は不明…服役中の７０代男性は北京で病死](text=%E6%97%A5%E6%9C%AC%E4%BA%BA%E3%)
+而患者的感染症状，在短时间内重症患者的比例呈上升趋势，连续三天在300人左右。 单日死亡人数增加39人，累计死亡7202人，病死率为0.46%。全国重症病床使用率为 26.9%。而全国接受在家治疗的患者人数共266,040人。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+韩国目前防疫政策仍以疫苗为主，一剂疫苗覆盖率达到87.14%，两剂疫苗覆盖率则高达86.15%，加强针接种率则为57.71%。在疫苗覆盖率如此高的情况下，韩国确诊人数反而遽增，韩国政府更在14日开始为免疫力低下的族群接种第四剂中共病毒疫苗。
+
+参考链接：
+
+- [코로나19 신규 확진 9만 443명…첫 9만 명대 발생](https://news.kbs.co.kr/mobile/news/view.do?ncd=5396251)
+- [코로나19 신규 확진자 9만명대로 급증…위중증 환자는 감소](https://news.kbs.co.kr/mobile/news/view.do?ncd=5396253)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
+
+总编：zhong
+编辑：zhong
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

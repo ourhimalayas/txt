@@ -2,37 +2,22 @@
 ---
 
 
-## 医学研究怀疑 中共病毒恐导致神经损伤
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2018366/)
+## 樱花FM┃中日财经爆：中共国春节旅游人数和收入远不及疫情之前
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2018473/)
 
-作者：银河系农场 – 骄子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-一项正在进行中的医学研究，在观察了中共病毒感染者的长期症状后，认为曾感染中共病毒的患者，都至少出現三种迷走神经功能障碍，而这些迷走神经功能障碍，被认为是中枢神经受到损害导致。
+音频：东京樱花团/战友520
+![](https://lh4.googleusercontent.com/mpg3JSEeOnKKYRBqjoiCflsRZsGpsTcHk6fpqekfg0FXO8LIrz8jBih4dbqQbDl2ThEInSNVjc-ysRySPc2XcZW1STmj-e2b_hVK90soPgVsAnN-mxjc-ubHAMls1mCNDkjyLuo6)
+中共国文化和旅游部数据中心测算称，春节假期七天全国国内旅游出游人数和旅游收入同比均大幅减少，远不及中共病毒（新冠）疫情前2019年水平。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/7-23-scaled.jpg)
+春节假期七天（1月31日至2月6日），全国国内旅游出游2.51亿人次，同比减少2%，只恢复到中共病毒（新冠）疫情前2019年春节假日同期的73.9%。旅游收入2,891.98亿元人民币，同比减少3.9%，只恢复到中共病毒（新冠）疫情前2019年春节假日同期的56.3%。
 
-迷走神经从大脑开始连接心脏、肺、肠道和几块与吞咽有关的肌肉，主要控制心率、语言、呕吐反射、出汗和消化等功能。而研究觀察認為，被研究的患者存在与迷走神经神经障碍者的相同症状，如声音问题、吞咽困难、头晕、心率高、低血压和腹泻等等。
+中共国交通运输部称，春节假期七天，预计全国铁路、公路、水路、民航发送旅客1.3亿人次，比2021年同期增长31.7%，比2019年中共病毒（新冠）疫情前同期下降69.2%。
 
-研究者认为，迷走神经神经功能障碍是长期中共病毒患者的核心病理特征，中共病毒的特点就是通过控制神经系统，从而对身体造成巨大损伤。该研究结果預計在4月下旬的欧洲临床微生物学和传染病大会上发表。
+文字版原文：[中日财经爆|中共国春节旅游人数和收入远不及疫情之前](https://gnews.org/zh-hans/1968104/)
 
-参考链接：
-
-- [Long COVID Symptoms Linked to Effects on Vagus Nerve](https://www.webmd.com/lung/news/20220215/covid-symptoms-linked-to-vagus-nerve)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
-
-总编：zhong
-编辑：zhong
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

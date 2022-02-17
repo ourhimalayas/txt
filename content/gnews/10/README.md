@@ -2,38 +2,24 @@
 ---
 
 
-## 韩国單日确诊病例創歷史新高 首次突破9万例
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2018364/)
+## 樱花FM┃巴布亚新几内亚总理打过3针疫苗在北京确诊阳性
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2018471/)
 
-作者：首尔天池农场 – 追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-2月16日，韩国中央检疫对策本部宣布，截至16日零时，韩国本土共新增了9万0443例确诊个案，较前一天增加了3万多例，首次突破9万例，全国累计超过155万人次确诊。
+音频：东京樱花团/战友520
+![](https://lh5.googleusercontent.com/YqX1X1FW4OQdIx5xKsqeFI9KgADgRVlYBCFdhMrQZSnNKMvOoJnYYW9b6FYWUM-mJRfg79trw1fCHXxPYZ57lA_RlK2fR3s9d0IqEZFYKBwKlpQSRuYAXly9vDLXtoh7pJpGo560)
+巴布亚新几内亚总理办公室2月6日宣布，总理马拉普原定于4日出席北京冬季奥运开幕式，但他于3日抵达北京后发现确诊中共病毒（COVID-19），之后被隔离。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/9-14.jpg)
+巴布亚新几内亚总理办公室6日透过Facebook声明指出，“马拉普（James Marape）总理3日晚间抵达北京后，发现其中共病毒（2019冠状病毒疾病）采检结果呈阳性。受到防疫限制影响，他将放弃本趟出访行程的法国部分。马拉普预计今天返国，但未透露关于他健康情况的任何进一步细节。”
 
-而患者的感染症状，在短时间内重症患者的比例呈上升趋势，连续三天在300人左右。 单日死亡人数增加39人，累计死亡7202人，病死率为0.46%。全国重症病床使用率为 26.9%。而全国接受在家治疗的患者人数共266,040人。
+根据巴布亚新几内亚中共病毒（COVID-19）国家疾控制中心官网上的声明，马拉普已于1月24日接种中共病毒疫苗追加剂。
 
-韩国目前防疫政策仍以疫苗为主，一剂疫苗覆盖率达到87.14%，两剂疫苗覆盖率则高达86.15%，加强针接种率则为57.71%。在疫苗覆盖率如此高的情况下，韩国确诊人数反而遽增，韩国政府更在14日开始为免疫力低下的族群接种第四剂中共病毒疫苗。
+马拉普5日在北京与中共国国务院总理李克强举行线上会晤，商讨加强双边经济合作事宜。会后中共国驻美国大使馆发布联合声明，称中共国与巴布亚新几内亚同意强化贸易、投资、能源、资源与基础建设等领域的合作。
 
-参考链接：
+文字版原文：[巴布亚新几内亚总理打过3针疫苗在北京确诊阳性](https://gnews.org/zh-hans/1968127/)
 
-- [코로나19 신규 확진 9만 443명…첫 9만 명대 발생](https://news.kbs.co.kr/mobile/news/view.do?ncd=5396251)
-- [코로나19 신규 확진자 9만명대로 급증…위중증 환자는 감소](https://news.kbs.co.kr/mobile/news/view.do?ncd=5396253)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
-
-总编：zhong
-编辑：zhong
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

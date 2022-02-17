@@ -2,36 +2,37 @@
 ---
 
 
-## 2月16日大直播后记：2025一定灭共
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2018292/)
+## 日本疫情持续延烧 日本政府仍宣布3月将放宽边境管制
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2018365/)
 
-整理：清水冷香、Lucy Liu
-编辑：小红帽
+作者：纽约香草山农场教育部 – Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+日本政府将调整边境防疫措施，基于经济考量将在3月起逐步放宽边境管制，包括有条件开放观光客以外的外国人新申请入境等边境防疫措施松绑等。具体规划将召开记者会进行说明。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/16-7.png)图片来源：雅典娜农场设计组（614）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8-23.jpg)
+
+目前日本政府正实施严格的边境管制，原则上禁止止外国人新申请入境，自国外入境后也必须在家中隔离7天。国民从国外入境后，也必须进行7天的居家隔离。日本政府即将放宽的边境管制措施，每日可入境的人数上限，从每天3500人提高到5000人。入境隔离期，则从原先的七天缩短为3天。此外，入境者若已接种三针疫苗，且来自奥米炕变种病毒并未广为传播的地区，入境则无须隔离。
+
+据外媒报导，日本政府是基于经济考量，因而放宽边境管制。然而，日本疫情并未好转，2月12日单日新增6万8千多例确诊，重症患者数更增加到1300多人，此数据是一个月前的13倍。
+
+参考链接：
+
+- [Japan Set to Relax COVID-19 Border Controls on March 1](https://www.nippon.com/en/news/yjj2022021501253/)
 
 
-川普是直接斗啊，叽叽喳喳地就来了，给你斗，明斗。拜登是在背后控制那个人啊，悄无声息地就过去了，这绝对是政治高手。这回习太阳（习近平）遇到了我认为国际政治上最厉害的普京（他的“Partner”）。这就吓人了，习太阳无法想象，接下来他将面对的对手。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
 
-就是在今年年底，欧洲的大选，法国的大选，英国上院下院，整个巴西，特别是美国的中期选举，共和党全部拿出来以后。共和党这几个新人了不得呀。兄弟姐妹们，这都是能人呐，都是天才呀。还有这个混不吝的班农，将成为主角中的主角。你想一想他们（共产党）怎么对付？
+总编：zhong
+编辑：zhong
+校正/发稿：海阔天空1
 
-现在告诉大家排华事件，排亚裔事件，会越来越严重，非常之可怕。大家一定要小心，个人破产是小事儿，你没命了，你有再多钱，那才是悲剧。人去天堂了，钱还在银行，不就完了嘛，是吧？在海外的华人，在这种情况下，最重要的是你要安全。第二，我们希望中共不打台湾，不打乌克兰，最好也别打台湾。
-
-再一个，我就希望共产党嘎嘣就完蛋。我们希望美国能通过现在的整个病毒溯源，认定共产党在全世界上不能代表中国人，中国人不等同于共产党。把这个做为全世界人民的共同认识。中国人和亚洲人之间也不要有这么多的仇恨和误会。然后，我们就要让全世界知道，病毒是共产党造的，跟中国人没关系。
-
-我们要通过这个来消灭共产党，这非常重要。接下来的事情，今年的变化太大了。水虎年呢，我觉的够习喝的。今明两年共产党再活下去的可能，我觉的很难了。2025年一定灭共。
-
-资料来源：2022年2月16日郭文贵先生大直播
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

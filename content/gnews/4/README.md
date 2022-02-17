@@ -2,52 +2,42 @@
 ---
 
 
-## 文•贵天成——文贵先生谈“蓝、金、黄”计划（十二）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2018410/)
+## 时来铁成金时去金如铁,HPay给很多人带来铁变钻石惊喜
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2018542/)
 
-整理：BENJ1
-编辑：Kelly
+G-TV视频链接：[https://gtv.org/video/id=620cade4b0af02660af43c5f](https://gtv.org/video/id=620cade4b0af02660af43c5f)
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/02/fengmian0216.jpg)图片来源：墨尔本雅典娜设计组614
+**郭文贵先生：**大年的初一、初二，七哥状态也好、心情也好、运气也好。中国有句老话呀：时去，时运过去了，黄金变成铁，时去金如铁，运去时如铁。时来是什么？时到来了，时来铁换成金。当这个时机、运气在你这边的时候，铁变成了金。“运去金如铁，时来铁如金”呐！我们今天就感觉到这个真的是铁去咱都变成钻石的感觉。
 
+就我这手机刚才都不能再看了，外国朋友发信息说：Miles，你敢相信吗？我买了一台车，我用H-Pay。另一个说：你敢相信吗？我女儿买了一个她的婚纱是用H-Pay买的。另外一个就更夸张啦，说：我把我的房贷‘咵嚓’我给付了。他说：这哥儿们一句说你能H-Pay吗？能有吗？来来来，可以给我钱。利息免了。对一个美国人、外国人来讲，一万多美金利息很大的钱你知道吗？免啦。他说：你更夸张，你还没有，我付这个钱、免这个帐，还没有手续费。一个在安哥拉的朋友说：七哥，我买了60吨油，我买了60吨油，一分钱费用没有。这好事实在太多啦！
 
-郭文贵先生**2017**年**10**月**14**日直播
+字幕来源：[2022年2月2日 《文贵大直播 》全文字版](https://gnews.org/zh-hans/1952328/)
 
-郭文贵说的BGY，蓝金黄项目和3F项目是切实存在的。它不仅在美国存在，在欧洲、在日本这些国家都存在。这是对西方世界、文明世界的巨大的威胁。它不仅是一个地方，一个美国，一个纽约。 可以看出来，郭文贵是他们政治打击对象，而且这些人和美国当地有着各种的勾结。3F项目和BGY是共同联手合作，对郭文贵等海外华人中所有积极人士以及所有西方文明国家造成了巨大的现实威胁，这就是我说的，黑暗已经来临！
+编辑整理：海贼王M.D.LUFFY；
 
-由于王岐山先生和孟建柱先生这种杀人机器、杀党机器、灭党机器的权力存在，对整个九千万党员、对中国人民实行了网络控制、媒体控制、大外宣政策和对西方形成了BGY蓝金黄的策略以及3F美国，都是为了保护自己的非法资产和见不得人的私生子女，掩盖他们完全违背了中国共产党的不允许家属持有外国身份、外国股权、外国证件的丑闻。根本的原因不是为了国强、民壮、民富或维护党的利益，根本目的是保护自己的利益、掩盖自己的丑闻、掩盖自己按需杀人、非法获得财富的信息外露，这才是真实的本质。所有反腐就是打击政治对手和对知情者灭口，为了维护自己非法政治目的和利益来源。
+字幕文件制作：知津；
 
-郭文贵先生**2017**年**10**月**31**日第一次直播
+视频制作及上传：Cindy；
 
-教育战线所有的腐败、统战部海外的蓝金黄、海外港澳台所有的蓝金黄、港澳台商、华侨所有输送的利益，一年几百亿都不止！都是给予（中共国）市场份额。所有地产商包括医疗、教育门槛，你能跨过她去吗？
+G-News发布：小满；
 
-海外的蓝金黄、海外的情报系统，在海外华人世界的影响力，还有在文化界、体育界的什么黑暗她不知道？哪个人不是她摆平的？哪个人不靠她？吴征杨澜做主持，哪个时候不是刘延东在？
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-我们有共同的敌人，有共同的目标。在我的爆料当中，谁挺郭就一定是有深仇大恨的，是真正的明大义的人；反郭的、怀疑郭的，一定是被蓝金黄和统战有关的，而且一定是！不然没有理由反郭，我又不要你家钱，我也不要你家鸡蛋，我也不要你家女人。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-资料来源：郭先生GTV和盖特直播视频
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-往期回顾：
-[文·贵天成——文贵先生谈“蓝、金、黄”计划（一）](https://gnews.org/zh-hans/2008275/)
-[文·贵天成——文贵先生谈“蓝、金、黄”计划（二）](https://gnews.org/zh-hans/2008300/)
-[文·贵天成——文贵先生谈“蓝、金、黄”计划（三）](https://gnews.org/zh-hans/2008496/)
-[文•贵天成——文贵先生谈“蓝、金、黄”计划（四）](https://gnews.org/zh-hans/2008314/)
-[文•贵天成——文贵先生谈“蓝、金、黄”计划（五）](https://gnews.org/zh-hans/2008332/)
-[文•贵天成——文贵先生谈“蓝、金、黄”计划（六）](https://gnews.org/zh-hans/2008361/)
-[文•贵天成——文贵先生谈“蓝、金、黄”计划（七）](https://gnews.org/zh-hans/2008344/)
-[文•贵天成——文贵先生谈“蓝、金、黄”计划（八）](https://gnews.org/zh-hans/2012933/)
-[文·贵天成——文贵先生谈“蓝、金、黄”计划（九）](https://gnews.org/zh-hans/2013014/)
-[文•贵天成——文贵先生谈“蓝、金、黄”计划（十）](https://gnews.org/zh-hans/2017262/)
-[文•贵天成——文贵先生谈“蓝、金、黄”计划（十一）](https://gnews.org/zh-hans/2017295/)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-发布：tianzhihuan
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

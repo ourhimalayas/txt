@@ -2,76 +2,33 @@
 ---
 
 
-## 疫苗强制与科学无关，而始终与权力和政治有关
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2018127/)
+## 大直播后记：疫苗灾难导致的世界大变局
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2018301/)
 
-众议员安迪·比格斯：
-它（疫苗强制）与科学无关，而始终与权力和政治有关。
+**整理：**奋斗、枫叶红了
+**编辑：**lili112333
+![](https://assets.gnews.org/wp-content/uploads/2022/01/12315456_4-2.png)
+再看全世界的疫苗，疫苗世界成了什么了？兄弟姐妹们，全人类就咱们爆料革命、新中国联邦（独好），咱是无苗有币族。我说过，疫苗灾难和疫苗次生灾难会超过一切。你看看澳大利亚、法国、加拿大，孩子、老人、妇孺全上街，这种人类上的辉煌的（运动），包括美国。
 
-我们必须反对所有用于执行疫苗强制的资金。
+现在你看辉瑞，七哥跟你说什么，做空辉瑞、Moderna，医药公司医药股降了多少？你见过有一个人，一个群体像我们那么牛叉吗？如果你们听七哥的，你们得赚多少钱呢？而且我告诉你——辉瑞、Moderna和Facebook都会破产，还有什么推（特），一定会破产。只要人类上有一个人在它都会破产，我告诉你，它是没有任何争议的。
 
-【附众议院自由核心小组推文：突发：众议院自由核心小组致函敦促参议院共和党人反对所有用于对美国公民执行疫苗强制的资金】
+就像我说，共产党一定会被消灭一样，没有任何存在的可能性。你想想共产党它怎么活呀？它怎么闭幕啊？冬眠会，它就是成啥了？你想想，现在卡车司机；你想想辉瑞、你想想Moderna、你想想这个国内的，卖6亿假疫苗——6亿假疫苗，赚了很多钱？但是这个钱赚得好。
 
+还有一个，前天下午咱一位日本朋友跟我说，她说郭先生我没敢跟你说，日本人很老实，她说我先生和我作为政府官员都必须打，她说我们也没打疫苗。医生“嚓”就给喷到地上了。她说我们现在就是回家喝点小酒，就感谢Miles，感谢你。我们两个最不诚实的就是这次没打疫苗。那么同时她非常相信日本的那些卖疫苗的一定也会被追究（责任），走上绞刑架。
 
+法国，我们的战友，在医疗界的，他说：“郭先生，我可以看到马克龙走上绞刑架的感觉”。我可以预想到他被送上绞刑架。他说我们家都没打疫苗，也是政府官员，而且妻子家都是搞军火的。
 
-> This was never about the science, it was always about power & politics. 
-> 
-> We must oppose ALL funding towards enforcing vaccine mandates. [https://t.co/2uTjp3KxLo](https://t.co/2uTjp3KxLo)
-> — Rep Andy Biggs (@RepAndyBiggsAZ) [February 16, 2022](https://twitter.com/RepAndyBiggsAZ/status/1494012169318547460?ref_src=twsrc%5Etfw)
+所以兄弟姐妹你看人类现在什么叫觉醒？这是多大的事！人类上一半的人被打了疫苗！他们可能处在一个生死不确定、得癌症随时死亡不确定的状态下，你觉得他（们）能放过这些媒体所谓的严肃媒体、黑暗的共产党势力，他能和共产党拉倒吗？
 
+**资料来源：**2022年2月16日 文贵大直播
 
+*发布：翼族*
 
-参议员泰得·克鲁兹：
-今天很高兴见到埃内斯·弗里德姆!
-他表现出了巨大的勇气，并为站出来呼吁中国共产党的暴行和种族灭绝付出了个人代价。
-NBA把中共的金钱看得比正义和人权还重，所以没有球队让29岁的他上场。
-
-
-
-> Great to meet [@EnesFreedom](https://twitter.com/EnesFreedom?ref_src=twsrc%5Etfw) today!
-> 
-> He’s shown enormous courage—and has paid a personal price for—standing up & calling out the atrocities & genocide of the Chinese Communist Party.
-> 
-> The [@nba](https://twitter.com/NBA?ref_src=twsrc%5Etfw) values CCP $$ more than Justice or human rights & so at age 29 no team will let him play. [pic.twitter.com/6UlcYf9EOg](https://t.co/6UlcYf9EOg)
-> — Ted Cruz (@tedcruz) [February 16, 2022](https://twitter.com/tedcruz/status/1494032026420273162?ref_src=twsrc%5Etfw)
-
-
-
-参议员玛莎.布莱克本：
-当我为埃内斯勇敢地与共产主义中国抗争鼓掌时，我没想到他会站得这么高！
-
-感谢您大声疾呼并追究中共的责任，感谢您今天与我们共进午餐，埃内斯 @EnesFreedom。
-
-
-
-> When I applauded Enes for his courage to stand up to Communist China, I didn’t think he’d be standing this tall!
-> 
-> Thank you for speaking up and holding the CCP accountable, and thank you for joining us at lunch today, [@EnesFreedom](https://twitter.com/EnesFreedom?ref_src=twsrc%5Etfw). [pic.twitter.com/OlqowUtc9B](https://t.co/OlqowUtc9B)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [February 16, 2022](https://twitter.com/MarshaBlackburn/status/1494077108833996810?ref_src=twsrc%5Etfw)
-
-
-
-众议院迈克·麦考尔：
-
-历史将把 2022北京作为耻辱铭记。虽然 #中共 迫切希望人们在奥运期间以积极的眼光看待其政权，但美国人应该将目光转向中共长期践踏人权的历史。这就是北京2022的真实故事。
-【转休斯顿纪事推文：尼基·海利，迈克·麦考尔：当你观看北京奥运时你不会看到的是什么】
-
-
-
-> History will remember [#Beijing2022](https://twitter.com/hashtag/Beijing2022?src=hash&amp;ref_src=twsrc%5Etfw) as a disgrace. While the CCP desperately wants people to see its regime in a positive light during the games, Americans should turn its gaze instead to the CCP’s long history of human rights abuses. That’s the true story of [#Beijing2022](https://twitter.com/hashtag/Beijing2022?src=hash&amp;ref_src=twsrc%5Etfw). [https://t.co/cWm5lw4mfR](https://t.co/cWm5lw4mfR)
-> — Michael McCaul (@RepMcCaul) [February 16, 2022](https://twitter.com/RepMcCaul/status/1494066290834747396?ref_src=twsrc%5Etfw)
-
-
-
-美前国务卿迈克·蓬佩奥：
-我希望你们和我一起祈祷，在东欧和平面临挑战之际，祈祷我们的世界领导人拥有智慧、耐心和力量。
-
-
-
-> I hope you will join me in praying for our world leaders to have wisdom, patience and strength, as this challenge to peace in Eastern Europe unfolds. [https://t.co/QYne2i1Z4b](https://t.co/QYne2i1Z4b)
-> — Mike Pompeo (@mikepompeo) [February 16, 2022](https://twitter.com/mikepompeo/status/1494081371635167240?ref_src=twsrc%5Etfw)
-
-
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

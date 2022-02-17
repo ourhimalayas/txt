@@ -2,40 +2,48 @@
 ---
 
 
-## 福奇的机构拒绝国会委员会要求其提供武毒所赠款文件
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2018439/)
+## 郝海东先生爆料宋祖英垫海绵扯胸罩让宋祖英哭成泪人儿
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2018585/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+G-TV视频链接：[https://gtv.org/video/id=620cae10b0af02660af43c6c](https://gtv.org/video/id=620cae10b0af02660af43c6c)
 
-翻译/编辑：文泓
+**郭文贵先生：**这个春晚，我觉得你们几个说得都对，都是你们个人的感受，但是你们还是那句话，你们没到过幕后，你们没跟这些后面人交往过。就像你们不能像郝海东兄弟似的拽过胸罩，郝海东现在拽胸罩国内闻名了。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/11-19.png)图片来源：Vanity Fair
+我昨天晚上国内都说半夜了，他说：“你说我跟小宋也很好，小宋哭得不行了：‘我咋惹过郝海东了？他说我这干什么呀？’ 哭得不行了。”说“小宋打完电话完了又和我打电话，还在电话上哭，她说：“你那个郭文贵吧，我也没招他惹他，他瞎编胡编乱造那也就算了，反正他也就是爆料的，那个郝海东我怎么惹他了呀？”又在那哭——宋祖英。
 
+我说：“哥们你太幸福了，大过年的独享宋祖英的哭。”他在那儿给我学，他说：“你就别提了，小宋给我打得呀，她打过来说：‘我怎么惹这个郝海东了？哭的呀。”我说海东这个威力太大了，就这个“拽胸罩”把小宋拽成那样，我说：“海东没说拽呀，就是比如，你怕啥呀？” 他说：“那大家都知道。” “都知道那你怕说啥呀？”
 
-当地时间2月16日，据《国家脉动》报道，美国国立卫生研究院（NIH）一再未能遵守国会要求提供与其与武汉病毒学研究所有关的文件，而是强迫其机构人员“粉碎笔记和其他文件”，文件涉及奥巴马政府时期的美国政府与中共运营的实验室及其与武汉病毒研究所的合作。
+你去想想啊，Eric，一个宋祖英被“拽胸罩”在中国成了一个现在过年后的最牛可以说在北京圈，咱别说到不了广西到不了杨改兰的老家，但是这个圈里边、政治圈、经济圈火了，你知道为啥呀我想问你们，这就是中央电视台最大的祸害。
 
-共和党众议院监督与改革委员会成员致函卫生与公众服务部(HHS)主任泽维尔·贝塞拉，敦促公布这些文件，**这些文件可能与****新冠病毒的起源高度相关****。**
+你要说宋祖英收了多少钱没人搭理你，她收一个亿、五个亿，甚至有人说：“小宋收五个亿正常啊。” 但是宋祖英一胸罩，你说你那胸罩关老百姓上学看病有啥关系呀？
 
-“HHS和NIH没有对委员会的共和党人保持透明，而是选择隐藏、混淆和掩盖真相，”信中说。
+字幕来源：[2022年2月2日 《文贵大直播 》全文字版](https://gnews.org/zh-hans/1952328/)
 
-这封信显示，NIH的一名顾问“早在2014年就被NIH强迫要求粉碎了与武毒所赠款有关的笔记和其他文件”。2021年11月5日，一位化名的个人发给委员会工作人员的一封电子邮件显示以下内容：
+编辑整理：海贼王M.D.LUFFY；
 
-“我签署了一份保密协议，其中我同意不与任何人讨论任何资助，除非与研究部门的其他成员讨论，并且——一旦会议结束——我将销毁我在会议期间所做的任何笔记（我们确实是将它们扔进会议室的碎纸机中）。”
+字幕文件制作：知津；
 
-这封信概述了“迄今为止，HHS和NIH拒绝提供任何回应性文件或信息”。国会一个委员会要求美国国立卫生研究院前主任弗朗西斯·[柯林斯](https://thenationalpulse.com/exclusive/nih-collins-advised-ccp-military-proxy-bgi-genomics/)提供有关2021年5月和7月由安东尼·[福奇的](https://thenationalpulse.com/analysis/exc-navarros-9-indisputable-facts-linking-fauci-to-covid-19-origin/)国家过敏和传染病研究所(NIAID)授予生态健康[联盟](https://thenationalpulse.com/2021/12/23/lancet-editor-admits-daszak-had-significant-conflict-of-interest/)和武毒所的2014年奥巴马时代拨款的文件。
+视频制作及上传：Cindy；
 
-尽管共和党委员会的工作人员一再修改他们的要求，使其范围更广，更容易让联邦机构完成，但两个联邦机构都拒绝交出任何文件。
+G-News发布：小满；
 
-新闻链接：[U.S. Govt Advisors SHRED Documents Detailing Fauci Agency’s Obama-Era Work With The Wuhan Lab. (thenationalpulse.com)](https://thenationalpulse.com/2022/02/16/nih-refuses-to-comply-with-congressional-doc-request/)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-*发布：tianzhihuan*
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

@@ -2,25 +2,47 @@
 ---
 
 
-## 美官员提醒：警惕俄罗斯撤军是虚晃一枪的阴谋
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2018378/)
+## 祈祷新中国联邦联合创始人班农先生仙逝的百岁父亲安息
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2018486/)
 
-撰稿：文西Eric
-![](https://assets.gnews.org/wp-content/uploads/2022/02/171.jpg)图片来源于网络
-据独立报(The Independent)报道，美国国务院顾问德里克-乔莱(Derek Chollet)说：乌克兰军队比2014年与俄罗斯支持的分裂分子战斗期间强大得多，如果俄罗斯入侵乌克兰，乌军将让俄军付出血的代价。
+G-TV视频链接：[https://gtv.org/video/id=620cad81b0af02660af43c43](https://gtv.org/video/id=620cad81b0af02660af43c43)
 
-乔莱先生认为莫斯科撤出一部分部队并不是化解当前对抗的真正举措，事实上，俄军在军队布置方面有进一步升级的迹象。有证据表明，俄罗斯将通过栽赃嫁祸（假旗行动）或某种破坏行动，为在乌克兰的军事行动提供借口。这是多年来俄罗斯试图愚弄我们的一种尝试，我们不会被他们愚弄。
+**Eric****：**在中共病毒和毒疫苗的血腥的黑暗之中，有一束光明，那就是爆料革命、新中国联邦，揭露中共的真相，捕获中共的情报，把解药和希望带给人类，新中国联邦、G系列，人类的诺亚方舟，引领灭共的大潮。
 
-克里姆林宫周二宣布，俄正在从乌克兰边境撤出一些部队，以此表明俄是寻求缓解紧张局势的。然而，美国和盟国坚持认为，战争危机仍然存在。北约秘书长延斯-斯托尔滕贝格(Jens Stoltenberg)在布鲁塞尔举行的成员国国防部长会议上宣布，北约正在考虑向东欧部署更多的战斗群，以补充由英国、加拿大、德国和美国领导的在爱沙尼亚、拉脱维亚、立陶宛和波兰的战斗群。
+七哥好！各位观众、各位战友们好！祝大家虎年如意！阖家安康！欢迎来到爆料革命虎年春晚之后的第一次《文贵大直播》。这里有惊天的爆料、灭共的良知和勇气、每分每秒的奇迹，还有对上天、自然和人类真挚的爱。
 
-法国政府已经提出要在罗马尼亚领导一个战斗小组。英国政府还宣布，它将把驻爱沙尼亚的部队规模扩大一倍，增加部队、装甲战车和坦克。阿帕奇武装直升机将与盟国进行演习，另外四架台风飞机将被派往塞浦路斯，在俄罗斯边境附近的天空进行巡逻。钻石号将与特伦特号一起加入地中海东部的NATO舰艇。
+我是主持人Eric，主角——爆料革命、新中国联邦、G系列的创始人、领路人、摇滚巨星郭文贵先生，出境嘉宾德华、正义小Sarah、千叶草。
 
-郭先生在2月16日提到普京老奸巨猾，这次部分撤军极有可能是虚打一枪，而乌俄一旦开战，习二极有可能对台湾开战。希望这次西方能给与俄罗斯足够的压力，迫使俄放弃这次阴谋，也毁掉习皇帝“武统台湾”的痴心妄想！
+特别需要强调的一点是，班农先生是新中国联邦的创始人之一，他的父亲马丁·班农先生，一位百岁老人刚刚去世，我们为他祈祷！愿他安息！
 
-新闻来源：[The Independent](https://www.independent.co.uk/news/world/europe/russia-ukraine-invasion-putin-nato-b2016781.html)
+字幕来源：[2022年2月2日 《文贵大直播 》全文字版](https://gnews.org/zh-hans/1952328/)
 
-*发稿：mgjxs*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
+编辑整理：喜马拉雅的肉夹馍；
+
+字幕文件制作：知津；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
