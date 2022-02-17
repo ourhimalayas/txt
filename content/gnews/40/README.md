@@ -2,30 +2,30 @@
 ---
 
 
-## 由加拿大中共病毒死亡数据看疫苗的无效性
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2016553/)
+## NFSC新闻、G|TV新闻访谈简报|2022年2月16日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2016620/)
 
-撰稿：西枫westca
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO-1.jpg)
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/02/10xp-canada-explainer-02-master1050.jpg)
-据“The Expose“新闻2月16日报道， 根据加拿大官方统计数字， 中共病毒的最新死亡数字中，每10人中就有7人是完全接种疫苗的。这证明加拿大正处于“完全接种疫苗的大流行”之中。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-15.png)
+文章仅代表作者本人观点，与Gnews无关
 
-加拿大政府一直在以一种使加拿大似乎正在经历“未接种疫苗的大流行”方式发表其官方的COVID-19的数据。加拿大政府的数据有令人难以置信的误导性，因为公布的数字包括数千例病例，住院治疗和死亡，当时只有0.3%的加拿大人口被认为完全接种了疫苗。
+视频参看：
+[2022.02.16早 《NFSC新闻》](https://gtv.org/video/id=620cfc14432ae869226da2dc)
+[2022.02.16早 G|TV《新闻访谈》](https://gtv.org/video/id=620d0382432ae869226dafd6)
 
-在2022年1月16日至1月22日这7天内共记录了206，048例病例，其中120，938例在未接种疫苗的人中，18，474例在部分接种疫苗的人中，66，636例在完全接种疫苗的人群中。这意味着在1月16日至1月22日期间，未接种疫苗的人群占每10例病例中的59%，而接种疫苗的人群占41%。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-在2022年1月16日至1月22日这7天内，加拿大共有4，231人因Covid-19住院，但其中大多数人已完全接种疫苗。未接种疫苗的人占1，367例住院治疗，部分接种疫苗的人占208例住院治疗，而完全接种疫苗的人占令人震惊的2，656例住院治疗。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-1.png)
 
-这意味着在1月16日至1月22日期间，每10例病例中接种疫苗的人口占中共病毒住院治疗的68%。
-
-以下死亡人数当然不能支持中共病毒疫苗在预防死亡方面高达95%的有效性的说法。在这7天里，总共有692人因中共病毒而不幸丧生，其中未接种疫苗的人占214人死亡，部分接种疫苗的人占20人死亡，但完全接种疫苗的人占458人死亡，这意味着在2022年1月16日至1月22日期间，接种疫苗的人口占每10例Covid-19死亡病例的69%，大多数人再次完全接种了疫苗。
-
-中共病毒疫苗明显无效的进一步线索来自2022年1月加拿大各地记录的死亡人数，目前一波的规模几乎与没有疫苗的第一波相等，并且已经取代了第二波的规模，当时只有0.3%的加拿大人被认为完全接种了疫苗。
-
-如果按政府所称，中共病毒疫苗将死亡风险降低了95%，那么加拿大接种疫苗的人口中每10例住院和死亡中就有7例死亡，是如何解释呢？ 显然政府在说谎。
-
-**新闻来源：**[Fully Vaccinated account for 7 in every 10 Covid-19 Deaths across Canada according to Government of Canada data – The Expose (dailyexpose.uk)](https://dailyexpose.uk/2022/02/15/canada-covid-deaths-70-percent-vaccinated/)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

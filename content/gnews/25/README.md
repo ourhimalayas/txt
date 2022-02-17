@@ -2,42 +2,21 @@
 ---
 
 
-## 史无前例特鲁多政府冻结了资助 &#8220;自由车队 &#8220;的数字货币钱包
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2017703/)
+## 研究发现中共APP抖音可以绕过苹果和谷歌的隐私保护访问用户数据
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2017707/)
 
-翻译：灭共文明
+撰稿/翻译：zzballack
+上传：追着曙光跑
 
-编辑与校对：灭共文明
+据《布雷特巴特新闻网》（Breitbart News）2月16日报道，《The Wrap》报道说，最近的两项研究显示，抖音可以绕过苹果和谷歌应用商店的安全保护措施，完全访问用户数据。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-17-at-10.38.18.jpeg)图片来源：原新闻
+这些研究在2020年11月和2021年1月完成。研究摘要表明，抖音能够绕过苹果和谷歌应用商店的代码审计。另外，抖音能够在用户不知情的情况下改变应用程式的行为，并访问设备追踪功能，使中共公司和第三方能够获得全部用户数据。
 
-《华盛顿观察家报》2月16日报道，**加拿大特鲁多政府命令，该国受监管的金融公司冻结 “自由车队 “和平抗议活动的数字货币钱包。**
+这远远超过了脸书和推特等美国应用程式对用户数据的访问。网络安全公司Conquest Cyber的网络威胁工程师弗兰克·洛克曼（Frank Lockerman）在审查了这些研究后表示：“这些动态属性允许抖音在应用程式可以看到的范围内全权访问你的设备，抖音浏览器不仅拥有从网络到设备的转换权限，它还可以查询设备本身的东西。”
 
-报道称，当支持抗议活动的GoFundMe账户在收到近1000万美元后被暂停，捐赠者转向数字货币来继续捐助。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/特鲁多数字货币1.jpg)图片来源: 网络。
-报告指出，**至少有29个比特币地址，以及卡达诺、以太坊、以太坊精典、门罗币和莱特币地址的至少34个数字货币钱包已被列入黑名单中。**
+尽管抖音声称其方法是标准的，但研究人员和专家说，该应用程式的代码使其更难监控。一项研究指出：“从后果上看，应用程式今天不做坏事，并不意味着它在未来不会做坏事。”
 
-安大略省警方和加拿大皇家骑警与加拿大金融交易和报告分析中心合作，对基于数字货币的捐款资助卡车司机和平抗议活动展开了调查。
-
-该名单于周三在社交媒体上发布，**比特币新闻资源网CoinDesk证实了**其真实性。有超过20个比特币，估价超过87万美元，**总计超过140万美元被冻结。**
-
-**加拿大卡车司机长达数周的和平抗议活动引领了世界各地的人们发起类似的活动。**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/特鲁多数字货币3-scaled.jpg)图片来源：网络。
-2月14日，**特鲁多利用《紧急状态法》**在不需要法院命令，也不用承担民事责任的情况下，**允许银行和金融机构冻结与 “自由车队 “有关的银行账户。他的这一行为被认为是非法的。**
-
-**小编简评：**
-
-**特鲁多政府利用金融手段对付卡车司机的和平抗议运动，开创了政府利用数字币这一新兴手段干预政治的先河。**作为民意表达的一个部分，抗议人士接到了来自加拿大大量民众的捐款，这不仅仅为抗议活动提供了源源不断地资金支持，也为抗议运动提供了精神地援助。
-
-为了让正义抗议人士屈服，**特鲁多政府**使用了几乎所有手段进行打压。他特意回避这次抗议运动的主题，仍然**顽固坚持疫苗强制，是典型地独裁暴政行径。**现在，**他也在独裁暴政的路上越走越远，未来等待他的将是人民的审判。**
-
-
-
-**新闻链接：**
-
-[Canada freezes at least 34 crypto wallets funding ‘Freedom Convoy’ | Washington Examiner](https://www.washingtonexaminer.com/news/canada-freezes-at-least-34-crypto-wallets-funding-freedom-convoy)
-
-[Canada Bans 34 Crypto Wallets Tied to Freedom Convoy – Crypto Briefing](https://cryptobriefing.com/canada-bans-34-crypto-wallets-tied-to-freedom-convoy/)
-
-
+信息来源： [China’s TikTok Can Bypass Apple and Google Privacy Protections, Access User Data](https://www.breitbart.com/tech/2022/02/16/study-chinas-tiktok-can-bypass-apple-and-google-privacy-protections-access-user-data/)
 
  
 
