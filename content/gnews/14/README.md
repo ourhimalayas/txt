@@ -2,22 +2,31 @@
 ---
 
 
-## 北京冬奥会2月16日上午出现可怕一幕，又一位运动员瘫倒在地，突发心血管病
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2020685/)
+## 樱花FM┃记者在北京直播连线报道冬奥会被粗暴驱赶
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2020738/)
 
-#### 翻译                          意大利达芬奇农场                  小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-17-alle-12.00.56.png)图片来源：avversinews.it
-上个星期天挪威世界冠军英格丽德•坦德雷沃尔德( Ingrid Tandrevold )在快要接近终点时所发生的一幕， 2月16日早上在4×6 冬季两项接力赛中又出现了。
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-2-4.png)
+2月4日，荷兰公共电台NOS驻京记者邓达斯(Sjoerd den Daas)在直播连线报道北京冬奥时，被中共国保安粗暴推搡驱离，该事件引发广泛关注。
 
-在2022年冬奥会举办地张家口的雪地上，女子团体预赛于北京时间15点45分开始，对运动员来说，幸运的是，气温没有前几天那么令人望而生畏。瑞士队是有望夺冠的。
+周五晚上（2月4日）邓达斯与演播室连线，直播画面可以看到，他在回答主播问题时画面出现一名黑衣人，他一边用中文说“咱们啊，往前走，哥们儿！”一边拉他，邓达斯用中文说“稍等一会儿，我现在在新闻联播。” 对方并没有停止推搡动作，并说“瞅我这一脑袋汗”。邓达斯继续向镜头方向播报了几句话后，被越推越远，直播只能中断。
 
-问题出在女子4×6公里冬季两项的接力赛，瑞士队比赛只进行了几分钟。由于呼吸问题，第一棒选手，伊雷妮•卡杜里施（Irene Cadurisch）不得不在传递接力棒之前放弃比赛，她被用担架抬离现场并送往医疗站。从而提前结束了瑞士队的比赛。
+根据《时代周刊》报道，事发后NOS在推特上表示，“我们的记者……被安保拉离了摄像机。不幸的是，这正日益成为记者在中共国的日常现实。”
 
-这次比赛瑞典队夺得金牌。据瑞士网站报道30岁的伊雷妮•卡杜里施可能是心血管出了问题。
+NOS主编格劳夫(Marcel Gelauff)接受荷兰《每日汇报》(Algemeen Dagblad)采访时表示，这段视频是中共国新闻自由状况的一个“痛苦的例子”。
 
-原文链接：[https://www.eventiavversinews.it/olimpiadi-di-pechino-momenti-terribili-anche-stamattina-16-febbraio-unaltra-atleta-e-crollata-a-terra-stamattina-problemi-cardiovascolari-improvvisi-per-irene-cadurish/](https://www.eventiavversinews.it/olimpiadi-di-pechino-momenti-terribili-anche-stamattina-16-febbraio-unaltra-atleta-e-crollata-a-terra-stamattina-problemi-cardiovascolari-improvvisi-per-irene-cadurish/)
+这并非是首次外国记者在中共国报道时发生不愉快的插曲。去年夏天郑州洪灾发生过后，德国记者马蒂亚斯·比林格（Mathias Bölinger）在郑州执行报道任务时曾面临当地不明人士的骚扰。比林格在郑州为德国之声做现场英语采访时，不明人士用手机拍摄他。他说有几个人还告诉他不允许拍摄。后来发现，人们把他和一位也在郑州采访的BBC记者弄混淆了。
 
-编辑、上传： Xiao  baige
+外国媒体驻华记者俱乐部（FCCC）近日发布的一份调查报告指出, 外国记者在中共国正面临“前所未有的障碍”。在北京冬奥会前夕，127名受访记者中有60%批评组织者提供的赛事信息不足。此外，记者们往往在新闻活动结束后才得知相关消息。只有10%的受访者表示，他们能得到参加奥运前相关活动的可靠信息。
+
+文字版原文：
+
+[记者在北京直播连线报道冬奥会被粗暴驱赶](https://gnews.org/zh-hans/1964466/)
+
+编辑：东京樱花团/asket
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
 
  
 

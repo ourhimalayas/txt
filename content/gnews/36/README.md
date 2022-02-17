@@ -2,36 +2,37 @@
 ---
 
 
-## 普京会晤博尔索纳罗
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2020302/)
+## 习近平神隐数日 欲发动对台作战计划
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2020347/)
 
-作者：香草山健身部-正道新闻
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-近日，据《消息报》报道，俄罗斯总统弗拉基米尔·普京形容他与巴西总统贾伊尔·博尔索纳罗的会晤是建设性的，并指出巴西是俄罗斯在拉丁美洲的主要贸易和经济伙伴之一。
+撰稿：台湾宝岛农场- zhong
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-4.png)
+郭文贵先生于2月14日和15日连续发布盖特视频爆料称，习近平神隐数日，正在准备对台湾的一场战争，处心积虑地酝酿对台湾的整个作战计划，对台湾极为危险。预计习近平将在16日左右现身，他呼吁台湾同胞务必小心，习近平正准备对台湾发动战争。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1644.png)
+此外，俄罗斯与乌克兰的军事风险、国际经济、金融的动荡及疫苗灾难，都是世界瞩目的焦点，而一切的灾难都来自于中国共产党。然而，中国共产党的恶行，最后将由中国人买单。
 
-普京说：“今天我们进行了非常详细和建设性的谈判，并在会议结束时通过了一份联合声明，其中规定了进一步深化俄巴合作的指导方针。”
+新闻链接：
 
-国家元首特别表示，俄罗斯准备参与在巴西建设新的核电机组，包括小型和浮动的核电机组。此外，他指出，各国将继续坚定地捍卫多极世界秩序和以政治和外交方式解决冲突的原则。
+[https://news.ltn.com.tw/news/politics/breakingnews/3831219](https://news.ltn.com.tw/news/politics/breakingnews/3831219)
 
-俄罗斯总统还就昨天巴西洪水造成的人员伤亡和破坏向博尔索纳罗表示慰问。
+[https://gettr.com/post/purvnk5f66https://gettr.com/post/puh5sv8f69【播放影片】https://gettr.com/post/puh5sv8f69](https://gettr.com/post/purvnk5f66https://gettr.com/post/puh5sv8f69【播放影片】https://gettr.com/post/puh5sv8f69)
 
-巴西总统贾伊尔·博尔索纳罗则表示，他对莫斯科的访问应该是向世界发出与俄罗斯保持良好关系的信号。他强调，双边关系有很大的前景，特别是在国防、石油和天然气以及农业方面。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-3.png)
 
-两位领导人周三在莫斯科进行了会晤。据克里姆林宫官方网站报道，会谈期间，普京和博尔索纳罗讨论了发展文化、人道主义、科技和经贸领域的合作，国际问题，以及两国的战略伙伴关系。
+编辑：飛虹
 
-PS：巴西总统是第一位入驻Gettr的在任总统，在感染两次中共冠状病毒康复后，并且没有打毒疫苗的状态下与普京亲切会谈，跟马克龙与普京会谈形成鲜明对比。会谈期间是否谈到灭共事宜？追究中共冠状病毒溯源是未来政治合作的方向。[https://iz.ru/1292365/2022-02-16/putin-nazval-konstruktivnoi-proshedshuiu-vstrechu-s-bolsonaru](https://iz.ru/1292365/2022-02-16/putin-nazval-konstruktivnoi-proshedshuiu-vstrechu-s-bolsonaru)
+总编：zhong
 
-校对/发稿：菩提树
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2月-2.jpg)
+校正/发稿：浪迹天涯
+
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-4.png)
+
 
  
 

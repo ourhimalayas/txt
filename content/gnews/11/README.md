@@ -2,34 +2,38 @@
 ---
 
 
-## 中日财经爆┃用脚投票！中国时尚零售商SHEIN主资产移至新加坡
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2020733/)
+## 有声|越南即将结束对国际航班的疫情封锁措施
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2020741/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
+配音：香草山农场 – 信念7
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+当地时间2月13日，据相关媒体报道，自2月15日起，越南已经取消了因中共病毒疫情而在航空业方面实行的限制措施，此次解封包括所有的国际客运航班。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide6-9.jpeg)
+报道提及，自疫情爆发以来，越南实施了严格的边境控制政策，而该政策已经严重影响了当地的旅游行业。为此，从2022年年初开始，越南将逐步恢复与 15 个国家的国际航班，同时，当地政府也放宽了对入境旅客的隔离要求。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/用脚投票！中国时尚零售商SHEIN主资产移至新加坡.png)
+据越南民航局副局长丁越松表示，当地的航班数量将不再收到限制，航班的频率也将缓慢恢复到大流行前的水平。
 
-知情人士和文件显示，中国时装零售商希音（SHEIN）正在积极扩大新加坡办事处，此前它已将一家新加坡公司作为其事实上的控股公司。
+据悉，越南已经向与其通航的国家通报了这一新政策，但目前只有中共国尚未同意恢复与越南的商业航班。
 
-文件显示，SHEIN创始人兼首席执行官许仰天（Chris Xu）已成为新加坡永久居民。
+文字版原文：[越南即将结束对国际航班的疫情封锁措施](https://gnews.org/zh-hans/2012251/)
 
-许仰天2008年在南京创立SHEIN，此后发展成一家全球时尚公司。但该公司去年注销了其中国主营实体南京领添信息技术有限公司。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-有媒体曾在1月报道，SHEIN已重新启动今年在纽约上市的计划，该公司的创办人正考虑变更国籍，以规避中国更为严格的海外首次公开发行(IPO)审查。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-新加坡备案文件显示，在新加坡注册的Roadget Business Pte于2019年成立，自2021年底以来一直是运营SHEIN全球网站的法人实体。文件显示，许仰天和另外三人是该公司的代表。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-Roadget目前拥有广州希音国际进出口有限公司以及SHEIN的商标，这些商标是从香港Zoetop Business Co转让的。另外，SHEIN在领英（LinkedIn）上的公司介绍页也显示总部在新加坡。
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-当前，中共已经开始政治、经济和社会的全面崩溃，虽然中共开动宣传机器营造“风景这边独好”的幻象，但是仍旧挡不住人才、资本用脚投票。
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-信息来源：
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-[中国时尚零售商SHEIN主资产移至新加坡| 早报](https://www.zaobao.com.sg/realtime/china/story20220216-1243402)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

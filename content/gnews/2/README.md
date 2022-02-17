@@ -2,36 +2,38 @@
 ---
 
 
-## 樱花FM┃欧洲多国运动员哭诉冬奥隔离酒店条件和饭菜差
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2020852/)
+## 郭先生爆料即将发生的三件大事
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2020915/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-4-2.png)
-一些不幸在北京奥运期间检测出中共病毒（新冠病毒Covid-19）阳性的外国运动员认为，他们的隔离条件正在使糟糕的情况变得更糟。食物不够，饭菜无法食用，没有训练器材，隔离房间卫生差。
+作者：纽约香草山农场-云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月16日，郭文贵先生在大直播中宣布了即将发生的三件大事。
 
-在北京一家隔离酒店隔离的俄罗斯冬季两项选手瓦莱里娅·瓦斯涅佐娃（Valeria Vasnetsova）在Instagram上发帖说“我的胃很痛，我脸色苍白，眼睛周围有巨大的黑眼圈。我要结束这一切。我每天都哭。我非常累。”她的问题不在于病毒引发的任何症状，而是食物。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1-8.jpeg)
 
-瓦斯涅佐娃周四（2月3日）发布了一张照片，她说这是一连五天所吃的早餐、午餐和晚餐。照片显示，一个餐盒里面装了普通意大利面（pasta）、橙色酱汁、几块骨头上带些烧焦的肉、几块土豆，没有任何绿色蔬菜。瓦斯涅佐娃说，她主要是靠那几块意大利pasta生存，因为其它东西都没法儿吃。她的体重已经减了很多，骨头已经凸显出来了。“我真的不明白，为什么以这样的态度对待我们这些运动员！”她写道。
+首先，经过安保单位及美、英、日三国安全机构的评估，郭先生两年内会继续停留美国，此前移居英、日两国的计划将暂时延期。
 
-在曾夺得三枚奥运金牌的德国选手埃里克·弗伦泽尔（Eric Frenzel）检测呈阳性并被隔离后，德国代表团团长德克·施梅尔普芬尼（Dirk Schimmelpfennig）抨击了“不合理”的隔离条件。
+其次，喜联储及HPay预计将在短期内宣布新政策，同时，喜贷款和喜投资等新项目也将同步推出。 此外，喜币已经可以在HPay中自由交易，并且可以随时在喜交所进行与美元之间的互换。郭先生也提醒战友们，未来的盖特币、盖特PAY和躺平币将与喜币一样具有极大的发展潜力，战友们应积极拥有这些未来的希望
 
-施梅尔普芬尼说，弗伦泽尔的隔离房间的条件“不可接受”。他告诉记者，隔离房间的条件并不符合运动员和团队的标准，无论是清洁方面、还是食物质量和WiFi都是问题。
+最后，郭先生透露，习近平在北京冬奥会开幕式后接受了脾肾方面的手术。据情报来源显示，习在28小时前刚刚从手术麻醉中清醒，其在略微恢复后立即对内宣布，原来预计攻打台湾的计画将暂缓。
 
-“隔离酒店房间（条件）不可接受，必须得改变。”他说。
+郭先生表示，无论习近平突然变更计划的原因为何，这都将避免许多无辜生命和财产的损失。另一方面，习近平手术后气势大衰，这也将加速中共的灭亡。
 
-比利时选手金·梅勒曼斯（Kim Meylemans）也对隔离酒店的条件提出了批评。梅勒曼斯在社交媒体上发布的流泪哭诉的视频引发了外界对隔离条件的关注。梅勒曼斯感觉在隔离酒店信息缺乏。她担心自己回不去奥运村了。
+参考链接：[2022年2月16日 文贵大直播：疫苗公司股价变化；看中共的普遍贪腐、以贪反贪、以反贪为名实施政治清理；世界多地反华苗头；冬奥会锁链女后续；太平联盟官司进展；](https://gtv.org/video/id=620cf40c432ae869226d8db5)
 
-“检测出阳性的数量和密切接触者的数量正处于高峰。这显然是北京奥组委和国际奥委会的一个组织问题。”德国代表团团长施梅尔普芬尼说。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-文字版原文：
+总编：Irene木木
+编辑：Irene木木
+校正/发稿：谐趣园
 
-[欧洲多国运动员哭诉冬奥隔离酒店条件和饭菜差](https://gnews.org/zh-hans/1964465/)
-
-编辑：东京樱花团/asket
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
