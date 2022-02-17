@@ -2,68 +2,53 @@
 ---
 
 
-## 新西兰财经G乐部2022年2月17日:财经新闻整理
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2021537/)
+## 多伦多发布极寒警告：今夜有25厘米暴雪
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2021623/)
 
-采集整理：蚂蚁的城堡
+作者：Alex Arsenych
+翻译：KK
+![](https://assets.gnews.org/wp-content/uploads/2022/02/5_093522506.jpg)
+周四天气将变得令人毛骨悚然，多伦多发布了极度寒冷的警告，所以如果你想到户外活动，提醒你一定要穿上你最温暖的冬衣。
 
-**提纲：**
+截至2月17日星期四，多伦多对全市发布了极端寒冷天气警报，预测冰冻天气状况将持续24小时或更长时间。
 
-1、组团忽悠：为包销股票积极唱多，券商“买入”研报引合规质疑
+加拿大环境部已经对多伦多发布了天气警告，预计到2月18日上午，降雪量将达到15至 25厘米。然而天气不会以直接降雪的形式开始，预测会先降雨然后在下午结冰为雪，会持续到晚上。
 
-2、爱迪尔：上市七年巨亏23亿，11亿金银珠宝离奇消失
+加拿大环境部说：天气变化过渡期间，今天下午或今晚早些时候也可能出现冻雨和冰粒。
 
-3、丰县：国企利润依赖政府补助，董事长被“围猎”落马
+多伦多人会遇到路面结冰和湿滑的情况，而且有时能见度可能接近为零，尤其是今晚，因此您需要尽量避免在下班后上路，由于湿滑人行道和停车场也可能变得难以通过。
 
-4、杭可科技实控人突遭立案，配偶一连8个月炒自家股票，知名基金经理重仓
+据介绍，每当气温预计降至零下15摄氏度或更低，或者当风寒让人感觉至少有零下20摄氏度时，多伦多市都会发布极端寒冷天气警报。
 
-5、乌克兰东部叛乱分子指责政府军用迫击炮轰击其领地
+据The Weather Network报道，到周五早上，气温将保持在零下20摄氏度左右。预计在家庭日到来之前天气会暖和起来。
 
-6、拜登寻求逾7,700亿美元2023年国防预算，料创纪录
+据悉1月7日启动的所有取暖中心仍将向那些需要庇护和抵御寒冷的人开放。
 
-**正文**
+四个取暖中心的地点分别是：
 
-**1、组团忽悠：为包销股票积极唱多券商“买入”研报引合规质疑**
-![img](https://media.gettr.com/group36/origin/2022/02/17/04/e6b32fe9-0cab-e04d-b90c-fbc84403941d/4a186016bf79aa948708c2a0e4df4ae8_500x0.png)
-近日，中信证券发布一篇关于“史上最贵新股”禾迈股份的研报。研报称禾迈股份股价能到1000元。研报称，禾迈股份深耕组件级电力电子领域，是全球领先的微型逆变器厂商，产品兼具成本、适用性、性能和可靠性优势，性价比竞争力突出，并持续拓展销售网络和客户群，业务高速增长。研报预计该公司2021~2023年每股收益（EPS）分别为4.93元、12.47元和22.50元，给予目标价1000元（对应2022年80倍PE），首次覆盖，给予“买入”评级。
+129 Peter St.
 
-财经G评：承销商历来都是敲锣打鼓组团忽悠的一部分！
+5800 Yonge St.
 
-参考链接：[https://finance.sina.com.cn/roll/2022-02-17/doc-ikyamrna1162716.shtml](https://finance.sina.com.cn/roll/2022-02-17/doc-ikyamrna1162716.shtml)
+Exhibition Place, Better Living Centre, 195 Princes’ Blvd.
 
-**2、     爱迪尔：上市七年巨亏23亿，11亿金银珠宝离奇消失**
-![img](https://media.gettr.com/group46/origin/2022/02/17/04/a8868839-4870-d388-f67b-763fd3e67c6f/7d4ffd74a89e3e6040391cf7c303c6bc_500x0.png)
-2022年1月29日，爱迪尔发布业绩预告称，2021年，公司的归母净利润预计亏损6亿-7.85亿。理由是公司业绩大幅下滑，相应计提应收账款坏账损失，以及收购来的千年珠宝和蜀茂钻石，因受疫情影响，拟对其剩余商誉全额计提减值。财务造假轻车熟路：2020年1月21日，公司同样公告预亏8.5亿-9.5亿。谁曾想三个月后，2021年4月28日（年报公告两天前），爱迪尔又发布了一条业绩修正公告，修正后的数据则变为了预亏15.71亿，几乎是之前预告最低亏损额的double！
+Scarborough Civic Centre, 150 Borough Dr.
 
-参考链接：[https://finance.sina.com.cn/stock/s/2022-02-16/doc-ikyakumy6295415.shtml](https://finance.sina.com.cn/stock/s/2022-02-16/doc-ikyakumy6295415.shtml)
+来源：https://www.narcity.com/toronto/extreme-cold-warning-issued-for-toronto-prepare-for-some-freezing-temperatures
 
-**3、丰县：国企利润依赖政府补助董事长被“围猎”落马**
-![img](https://media.gettr.com/group13/origin/2022/02/17/05/726eaa29-58fc-00d8-44e1-df758153665f/a7e27e3e303cb217ade83a006153f162_500x0.png)
-刘恒莲，丰县地方金融监督管理局原党组书记、局长，其另一身份，是丰县城市投资发展集团有限公司（以下简称“丰县城投”）原董事长。近日，刘恒莲所在的江苏徐州丰县，和他曾掌舵的丰县城投，在社交媒体、金融市场引发关注。丰县城投和丰县另一国企丰县经济开发区投资发展有限责任公司（以下简称“丰县经开”）在债券市场较为活跃，资产规模都达到了数百亿级别，但盈利能力并不乐观。丰县城投的盈利中，政府补助甚至占到了78%。手里掌握着大量资金和工程项目，2021年，丰县城投原董事长刘恒莲落马。
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-参考链接：[http://finance.sina.com.cn/money/bank/bank\_hydt/2022-02-16/doc-ikyamrna1120155.shtml](http://finance.sina.com.cn/money/bank/bank_hydt/2022-02-16/doc-ikyamrna1120155.shtml)
+**关注我们**
 
-**4、杭可科技实控人突遭立案，配偶一连8个月炒自家股票，知名基金经理重仓**
-![img](https://media.gettr.com/group6/origin/2022/02/17/05/64fe3861-6f72-320f-2765-d3e361511077/a28af7e71b4817b0eabc77643922fb77_500x0.png)
-实控人配偶短线炒自家的股票，遭立案了。2月16日晚间，杭可科技公告，实际控制人、董事长曹骥因配偶违规买卖公司股票导致其涉嫌短线交易，证监会决定对其立案。杭可科技最新收盘价80.15元，总市值323亿元。截至2021年三季度末，股东户数8169户。
+Discord 账号
 
-参考链接：[https://www.stcn.com/xw/sd/202202/t20220217\_4159805.html](https://www.stcn.com/xw/sd/202202/t20220217_4159805.html)
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-**5、乌克兰东部叛乱分子指责政府军用迫击炮轰击其领地**
-![img](https://media.gettr.com/group15/origin/2022/02/17/06/b404adaf-33cf-c267-71ef-a38fe5531658/2fb33347364562230772beeba8ab9637_500x0.png)
-路透莫斯科2月17日-俄罗斯新闻社(RIA)称，俄罗斯支持的乌克兰东部叛乱分子周四指责乌政府军用迫击炮攻击他们的领地，违反了旨在结束冲突的协议。俄罗斯在乌克兰边境附近集结了10多万兵力，同时要求北约承诺不接受乌克兰成为成员国。西方国家威胁称，如果俄罗斯攻击乌克兰，将对俄实施新的制裁；俄罗斯则否认计划对乌克兰进行任何攻击。
+Gettr 账号
 
-参考链接：[https://cn.reuters.com/article/ukraine-rebels-mortar-attacks-0217-idCNKBS2KM0D1?il=0](https://cn.reuters.com/article/ukraine-rebels-mortar-attacks-0217-idCNKBS2KM0D1?il=0)
-
-**6、拜登寻求逾7,700亿美元2023年国防预算料创纪录**
-![img](https://media.gettr.com/group41/origin/2022/02/17/06/037581ab-2eb2-6b4a-3341-d24cc339f002/f23e34f7b06f31edfd3c793a3f4d4b7f_500x0.jpg)
-路透2月17日-三名知情人士透露，由于五角大楼寻求军事现代化，美国总统拜登预计将向国会提出下一财年超过7,700亿美元的国防预算，超过了前总统特朗普提出的创纪录预算要求。上述消息人士称，美国国防部长奥斯汀和白宫行政管理和预算办公室(OMB)之间正在进行的从10月1日开始的2023财年预算谈判，围绕逾7,700亿美元国防预算要求展开。消息人士补充称，政府内部正在进行谈判，在未来几个月提出预算申请之前，最终金额可能会发生变化。其中两位消息人士说，国防部将获得约7,730亿美元的资金，其他需求将在此基础上进行，可能会使总额超过8,000亿美元。
-
-参考链接：[https://cn.reuters.com/article/us-2023-defence-budget-0217-idCNKBS2KM03T?il=0](https://cn.reuters.com/article/us-2023-defence-budget-0217-idCNKBS2KM03T?il=0)
-
-审核校对：蚂蚁的城堡（一审）、文勇（二审）
-
-上传排版：文勇
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
