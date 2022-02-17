@@ -2,27 +2,38 @@
 ---
 
 
-## 樱花FM┃中日财经爆：日本半导体投资火热 东芝将新建功率晶圆厂
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2021303/)
+## 拜登警告普京，入侵乌克兰将带来“严重后果”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2021361/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-5-3.png)
-自去年日本政府推出半导体振兴战略以来，半导体及IC企业在日投资建设力度不断加大。据悉，2022年至2024年之间将有包括台积电和索尼的合资企业在内的几家新晶圆厂开建上线。
+据《华盛顿观察家报》作者：Virginia Aabram 2022年2月12日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1651.png)图片来源：美联社
+总统乔·拜登在周六早上的电话中，警告俄罗斯总统弗拉基米尔·普京，入侵乌克兰将对俄罗斯造成“严重后果”。
 
-东芝2月4日发布公告称，将在日本石川县建造新建300毫米晶圆制造厂，用于制造功率半导体器件。据《日经新闻》此前报道，东芝将投资约1000亿日元（8.7亿美元）来建设该工厂。
+据一位高级政府官员称，尽管此次电话交谈并未带来俄罗斯与北约（NATO）之间日益紧张的关系所特有的“动态的根本变化”，但拜登重申，一旦俄罗斯入侵乌克兰，美国将支持乌克兰。
 
-根据声明，新工厂的建设将分两个阶段进行。第一阶段计划2024财年内投产，当一期工程满负荷运转时，东芝的功率半导体生产能力将是2021财年的2.5倍。
+“我们仍致力于保持事态降级和外交关系前景的生机活力。但我们​​也清楚地看到，鉴于俄罗斯在我们眼前采取的显而易见的步骤，我们这样做的风险太高，必须给予俄罗斯一切机会来避免采取我们认为将是灾难性的行动”。拜登政府的一位发言人补充说，“我们正在加紧努力以威慑俄罗斯，一旦它决定采取军事行动，我们将让它付出代价。”
 
-东芝在其声明中称，车辆电气化和工业设备自动化是未来的两大趋势，将推动功率半导体的需求增长。东芝还称，其工厂将在未来100%依赖可再生能源。
+拜登与普京就确保美国在乌克兰的美国人安全的计划“非常直接”，他还强调了与俄罗斯的孤立无援相比，北约力量已形成统一战线。
 
-文字版原文：
+“无论如何，俄罗斯都可能决定采取军事行动。确实，这是极有可能的。如果确实如此，那么对乌克兰、欧洲的安全，以及对俄罗斯的损害将是长远的。”这位发言人说，“这是拜登总统认为我们应该继续努力避免的结果。”
 
-[中日财经爆┃日本半导体投资火热 东芝将新建功率晶圆厂](https://gnews.org/zh-hans/1960552/)
+美国最近宣布将撤离驻乌克兰大使馆，因为军事行动可能随时开始。
 
-编辑：东京樱花团/asket
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+文章来源：[https://www.reuters.com/business/healthcare-pharmaceuticals/netherlands-set-announce-strict-christmas-lockdown-media-2021-12-18/](https://www.reuters.com/business/healthcare-pharmaceuticals/netherlands-set-announce-strict-christmas-lockdown-media-2021-12-18/)
 
+翻译：洛杉矶盘古农场 – maru
+
+校对：洛杉矶盘古农场 – Wendy
+
+评论：洛杉矶盘古农场 – maru
+
+编辑：洛杉矶盘古农场 – Wend
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

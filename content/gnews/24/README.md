@@ -2,56 +2,24 @@
 ---
 
 
-## 同是印度 是否使用伊维菌素死亡率相差405倍
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2021237/)
+## 狮城快讯：辉瑞疫苗未能达到印度的安全标准
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2021315/)
 
-作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
+**撰稿：Eva**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-18-004611.jpg)图片来源：路透社
+辉瑞公司已撤回其新冠（COVID）疫苗在印度的紧急使用授权申请。这发生在未能满足印度药物监管机构对当地安全性和免疫原性研究的要求之后。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+印度也同时对其他国家的新冠疫苗伤害表示担忧。
 
-美国FDA一直误导民众，“[不应该使用伊维菌素来治疗或预防COVID-19](https://www.fda.gov/consumers/consumer-updates/why-you-should-not-use-ivermectin-treat-or-prevent-covid-19)”，FDA称，没有证据表明伊维菌素（Ivermectin）对COVID-19是安全或有效的，因此一直没有授权或批准伊维菌素用于预防或治疗人和动物的 COVID-19。
+由此我们不得不思考：为什么我们非要相信新冠疫苗是完全必要的？为什么质疑这种信念的讨论和证据会受到审查？
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-17_21-26-31.png)
+截至今天，疫苗伤害报告一直是整个中共病毒疫情泛滥的共同主题。 截至 2021 年 10 月 15 日，在世界卫生组织 (WHO) 报告系统 VigiAccess 中，全球报告的新冠疫苗不良事件已超过 2,344,240 起。这些包括严重的不良反应，如死亡、永久性残疾、住院和急诊室就诊以及非常轻微的不良反应。在过去 30 年中，向 VAERS 报告的大约 50%的疫苗伤害都来自新冠疫苗。11 月发布的文件显示，辉瑞公司在新冠疫苗发售后的几个月内就发现了超过 5 万起严重的新冠疫苗反应。
 
-同是印度的喀拉拉邦（Kerala）和北方邦（Uttar Pradesh），前者拒绝伊维菌素，后者向民众发放伊维菌素套件包，感染率相差67倍，死亡率相差405倍。
+印度的决定意味着该注射剂将无法在这个人口众多的国家出售。印度正在使用其他产品开展免疫运动。在其他国家，例如美国和德国，批准辉瑞注射剂所依据的研究对于印度的药品监管机构来说还不够。
 
-拥有2.425亿人口的印度北方邦（Uttar Pradesh）在去年5月4日前一段时间，每日新增确诊感染人数达3万人以上。
+印度政府拒绝配合辉瑞和摩德纳就使用其新冠疫苗注射剂的任何副作用提出的法律保护要求。辉瑞和 Moderna在美国和加拿大等许多国家要求免职成功，但是在印度免于承担法律责任却碰了钉子。
 
-自去年5月4日起，北方邦开始向每个家庭发放价值2.65美元的伊维菌素套件包，每个家用套件包含：扑热息痛片[泰诺]（Paracetamol tablets [tylenol]）、维生素C（Vitamin C）、多种维生素（Multivitamin）、锌（Zinc）、维生素D3（Vitamin D3）、伊维菌素12毫克[数量#10片] （Ivermectin 12 mg [quantity #10 tablets]）、多西环素100毫克[数量#10片]（Doxycycline 100 mg [quantity #10 tablets]）。其他非药物组件包括口罩（face masks）、消毒剂（sanitizer）、手套（gloves）和酒精湿巾（alcohol wipes）、数字温度计（digital thermometer）和脉搏血氧仪（pulse oximeter）。
-
-自从发放伊维菌素套件包后，北方邦（Uttar Pradesh）每日新增病例迅速下降，在相当长一段时间内，北方邦每日新增感染人数甚至不足10人。
-
-而印度相信疫苗、拒绝伊维菌素的喀拉拉邦（Kerala），虽然只有3,570万人口，仅有北方邦的14.7%，坚持全民打COVID-19病毒疫苗，新增COVID-19感染病例一直持续增长。
-
-目前，喀拉拉邦1针疫苗接种率达到100%，两针疫苗接种率82%。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Summary-of-COVID-Vaccine-Administered.jpg)
-到今日为止，北方邦累计确诊感染人数为2,061,413人，而喀拉拉邦累计确诊感染人数为 6,440,371人，喀拉拉邦的感染率是北方邦的21倍！
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-17_21-04-26.png)
-
-如果只计算使用伊维菌素后的情况，并考虑伊维菌素包分发和正确使用需要一段时间，因此，选择从去年7月1日开始分析比较北方邦和喀拉拉邦的结果。
-
-去年6月30日，北方邦的累计确诊感染人数为1,705,951，喀拉拉邦累计确诊感染人数为2,910,507人。因此，从使用伊维菌素开始，北方邦新增感染病例为355,462（2,061,413-1,705,951）人，喀拉拉邦新增感染病例为3,529,864（6,440,371-2,910,507）人，喀拉拉邦的感染率是北方邦的67倍。
-
-截至今日，北方邦的累计死亡人数为23,414人，喀拉拉邦累计死亡人数为63,019人。喀拉拉邦的死亡率是北方邦的18倍。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-17_21-20-52.png)
-
-去年6月30日，北方邦的累计死亡人数为22,577人，喀拉拉邦累计死亡人数为13,093人。从使用伊维菌素开始，北方邦新增死亡病例为837（23,414-22,577）人，喀拉拉邦新增死亡病例为49,926（63,019-13,093）人，喀拉拉邦的死亡率是北方邦的405倍。
-
-参考数据：
-
-[Why You Should Not Use Ivermectin to Treat or Prevent COVID-19](https://www.fda.gov/consumers/consumer-updates/why-you-should-not-use-ivermectin-treat-or-prevent-covid-19)
-
-[India’s Ivermectin Blackout – Part V: The Secret Revealed](https://www.thedesertreview.com/opinion/columnists/indias-ivermectin-blackout---part-v-the-secret-revealed/article_9a37d9a8-1fb2-11ec-a94b-47343582647b.html)
-
-[Compare States](https://prsindia.org/covid-19/cases/statewisecomparison)
-
-[UTTAR PRADESH Going the last mile to stop COVID-19](UTTAR%20PRADESH%20Going%20the%20last%20mile%20to%20stop%20COVID-19)
-
-[Tale of Two States: Kerala, Uttar Pradesh Paint A Contrasting Picture of Covid-19](https://www.news18.com/news/india/tale-of-two-states-kerala-uttar-pradesh-paint-a-contrasting-picture-of-covid-19-4127714.html)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+**[新闻来源](https://thepulse.one/2022/02/14/pfizer-covid-vaccines-fail-to-meet-indias-safety-standards-they-wont-be-used-in-india/?fbclid=IwAR0ied-kKRTd__kv8n3boc4d04iY1ngVS7KboFKSjJJ-tYf6s-nmhbFwQTA)**
 
  
 

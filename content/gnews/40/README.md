@@ -2,36 +2,43 @@
 ---
 
 
-## 郭文贵先生将于美国法律监管下申请破产 开启灭共下一篇章
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2020275/)
+## BioNTech计划在非洲建造模块化疫苗工厂
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2020357/)
 
-撰稿：台湾宝岛农场zhong+首尔天池农场—追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-4.png)
-新中国联邦发起人郭文贵，在共产党滥诉之下，被美国法院判处1.34亿美元的巨额罚款，此罚款金额突破历史记录。2月15日，郭文贵先生于盖特发布视频，郑重表示他将签署个人破产申请书。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1642.png)
-此前，郭先生在2月9日的大直播中宣布，新中国联邦对UBS瑞银集团的诉讼在英国伦敦正式立案。UBS拥有1百万亿美元以上的存款和黑账，相当于人类过去500年积累的财富。中共存储在海外的资金大部分都在UBS，它也是唯一一个在中共国获得准入、拥有独立经营牌照的海外银行。
+整理报道：攀登者
+编辑：Mttfly
 
-UBS与中共曾用非法手段出售了郭先生的股票，而在过去5年里没有一个有名的律师敢接郭先生对UBS的诉讼，因为这些律师都在接受UBS和中共的费用后强行站队了。同时，太平联盟无中生有、缠诉郭先生的案件在美国被判决，郭先生被判败诉后表示永不妥协。郭先生今天签署个人破产申请书，就是为了能够摆脱一些不必要的麻烦，使自己全身心地跟中共对抗到底，直到胜利的一刻。
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/BioNTech.jpg)图源：*Andreas Arnold/dpa via AP*
+据美联社柏林报道，德国疫苗制造商BioNTech周三公布了在非洲建立疫苗制造设施的计划。该制造商曾与辉瑞一起开发了首例获得广泛批准的新冠病毒疫苗。
 
-视频链接：
+在德国马尔堡举行的仪式上，该公司展示的模块化设计包括装有制造公司基于mRNA疫苗所需设备的海运集装箱，省去了将剂量放入瓶子的最后一步，这个过程被称为填充和完成。
 
-[https://gettr.com/post/pute7afcba](https://gettr.com/post/pute7afcba)
+BioNTech因拒绝暂停其疫苗专利并让竞争对手制造疫苗而受到一些运动团体的批评，作为更广泛地提供疫苗的一部分，特别是在穷国。该公司辩称，mRNA疫苗的生产过程很困难，它更喜欢与当地伙伴合作，以确保全球疫苗的一致质量。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-3.png)
+BioNTech表示，第一个统包设施将于今年下半年运往塞内加尔或卢旺达。它的目标是在12个月内开始每年生产多达5000万剂疫苗，等待当地监管机构的批准。
 
-编辑：飞虹、zhong
+BioNTech表示，它最初将配备人员并运营这些设施，但后来将专业知识转让给当地合作伙伴，以实现独立运营。
 
-总编: zhong
+该公司表示，该系统由12个容器组成，将来可以轻松扩展。在疟疾、癌症或结核病等其他疾病的新药物出现时，可以对其进行改装，以制造相应药物。
 
-校正/发稿：浪迹天涯
+世界卫生组织负责人Tedros Adhanom Ghebreyesus秘书长欢迎BioNTech增加非洲大陆疫苗生产的计划。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-4.png)
+去年，世卫组织采取了不寻常的步骤，从根本上复制了美国现代公司制作的基于mRNA的新冠病毒疫苗。
+
+尽管努力通过国际捐助机制向非洲提供数百万剂新冠病毒疫苗，但非洲大陆只有约11%的人口接种了疫苗，而全球平均水平约为50%。在新冠疫苗副作用如此明显的情况下，这未必是个好消息。
+
+参考新闻：[BioNTech计划在非洲建造模块化疫苗工厂](https://www.newsmax.com/amp/finance/streettalk/virus-outbreak-biontech-africa/2022/02/16/id/1057074/)
+
+*发布**：**Mttfly*
+
+**更****多资讯****，****请关注****：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
