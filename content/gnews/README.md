@@ -15,62 +15,62 @@
 
 ---
 
-### [联邦调查局组建数字货币部门，司法部启用新的加密货币执法团队](/content/gnews/1/README.md)
+### [七哥金句：新中国联邦未来三个核心](/content/gnews/1/README.md)
+ ` 雅典娜GNotes`
+
+### [联邦调查局组建数字货币部门，司法部启用新的加密货币执法团队](/content/gnews/2/README.md)
  ` 温哥华扬帆农场`
 
-### [醉驾超速撞死华人的烈市女司机假释出狱](/content/gnews/2/README.md)
+### [醉驾超速撞死华人的烈市女司机假释出狱](/content/gnews/3/README.md)
  ` MG FARM`
 
-### [根据 2022-2024 年移民水平计划，加拿大将 2022 年移民目标提高到 432,000 人](/content/gnews/3/README.md)
+### [根据 2022-2024 年移民水平计划，加拿大将 2022 年移民目标提高到 432,000 人](/content/gnews/4/README.md)
  ` MG FARM`
 
-### [多伦多市中心受 Omicron 限制的打击最为严重，销售下降了 44%](/content/gnews/4/README.md)
+### [多伦多市中心受 Omicron 限制的打击最为严重，销售下降了 44%](/content/gnews/5/README.md)
  ` MG FARM`
 
-### [在奥沙瓦发现的坎迪斯·菲茨帕特里克的遗体； 被定罪的杀手带领警察找到遗体](/content/gnews/5/README.md)
+### [在奥沙瓦发现的坎迪斯·菲茨帕特里克的遗体； 被定罪的杀手带领警察找到遗体](/content/gnews/6/README.md)
  ` MG FARM`
 
-### [渥太华车队支持者称不怕紧急状态法](/content/gnews/6/README.md)
+### [渥太华车队支持者称不怕紧急状态法](/content/gnews/7/README.md)
  ` MG FARM`
 
-### [安省男子在 Instagram 骗局中损失 2,700 元](/content/gnews/7/README.md)
+### [安省男子在 Instagram 骗局中损失 2,700 元](/content/gnews/8/README.md)
  ` MG FARM`
 
-### [面包店因向车队捐赠而面临威胁和骚扰](/content/gnews/8/README.md)
+### [面包店因向车队捐赠而面临威胁和骚扰](/content/gnews/9/README.md)
  ` MG FARM`
 
-### [安省今天起彻底开放](/content/gnews/9/README.md)
+### [安省今天起彻底开放](/content/gnews/10/README.md)
  ` MG FARM`
 
-### [2022年2月16日 《文贵大直播》全文字版](/content/gnews/10/README.md)
+### [2022年2月16日 《文贵大直播》全文字版](/content/gnews/11/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [多伦多发布极寒警告：今夜有25厘米暴雪](/content/gnews/11/README.md)
+### [多伦多发布极寒警告：今夜有25厘米暴雪](/content/gnews/12/README.md)
  ` MG FARM`
 
-### [波罗的海三国也有春天](/content/gnews/12/README.md)
+### [波罗的海三国也有春天](/content/gnews/13/README.md)
  ` 澳喜农场`
 
-### [新西兰财经G乐部2022年2月17日:财经新闻整理](/content/gnews/13/README.md)
+### [新西兰财经G乐部2022年2月17日:财经新闻整理](/content/gnews/14/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [警察和抗议者同样渴望人权,自由](/content/gnews/14/README.md)
+### [警察和抗议者同样渴望人权,自由](/content/gnews/15/README.md)
  ` 纽约香草山MOS02`
 
-### [特鲁多专制特权令加拿大皇家骑警将34个加密货币钱包列入黑名单](/content/gnews/15/README.md)
+### [特鲁多专制特权令加拿大皇家骑警将34个加密货币钱包列入黑名单](/content/gnews/16/README.md)
  ` 温哥华扬帆农场`
 
-### [芯片 运输 能源价格将暴涨 美国几乎已拿下东欧](/content/gnews/16/README.md)
+### [芯片 运输 能源价格将暴涨 美国几乎已拿下东欧](/content/gnews/17/README.md)
  ` 焦點20分`
 
-### [银行是人类金钱最大的骗局 世界唯一没有价格操纵的币就是喜币](/content/gnews/17/README.md)
+### [银行是人类金钱最大的骗局 世界唯一没有价格操纵的币就是喜币](/content/gnews/18/README.md)
  ` 焦點20分`
 
-### [荷兰告别了大流行病：取消Covid护照、口罩、距离限制](/content/gnews/18/README.md)
+### [荷兰告别了大流行病：取消Covid护照、口罩、距离限制](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [马斯克暗讽竟把杜鲁多比作希特勒](/content/gnews/19/README.md)
- ` MG FARM`
 
 ### [2/16/2022 文贵直播：喜联储已跻身全球第四大数字货币交易所；喜币不受第三方掠夺、无国界限制且每年发行数量有限](/content/gnews/20/README.md)
  ` 秘密翻译组-北美组`

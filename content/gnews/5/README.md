@@ -2,47 +2,41 @@
 ---
 
 
-## 在奥沙瓦发现的坎迪斯·菲茨帕特里克的遗体； 被定罪的杀手带领警察找到遗体
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2021783/)
+## 多伦多市中心受 Omicron 限制的打击最为严重，销售下降了 44%
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2021817/)
 
-作者：Kerrisa Wilson
+作者：Rosa Saba
 翻译：KK
-![](https://assets.gnews.org/wp-content/uploads/2022/02/23_13453495G_1.jpg)
-大多伦多地区一名19岁少女自2008年失踪已达14年，近日，警方通过杀人犯提供的线索，终于找到了她的尸骸。这名杀人犯还杀害了另一名花季少女。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/70_164622R6.jpg)
+多伦多市中心的核心区因为受Omicron疫情防疫限制，导致消费下降了44%。
 
-Durham区警方表示，已经在奥沙华找到Kandis Fitzpatrick的尸骸，提供线索的是杀人犯Adam Strong。
+2021年末的Omicron限制极大地影响了多伦多市中心的人流、消费支出和就业，而此时商业正处于复苏阶段。新的数据显示，小企业和某些行业的工人受到的冲击比其他行业更大。
 
-Strong最初被控两项一级谋杀罪名，涉及2017年8月失踪的18岁少女Rori Hache，以及2008年失踪的19岁Fitzpatrick。
+多伦多地区贸易委员会周三公布的新数据显示，2021年11月后，亲身消费下降，特别是在大都市中心，由于工人继续远程办公而不是返回办公室，那里的消费比2019年的水平低44%。
 
-警方已于2017年9月找到了Hache的尸骸，但是一直没有找到Fitzpatrick的。
+数据显示，这种支出的下降是由娱乐、食品和其他类似行业推动的。多伦多地区贸易委员会发起的经济蓝图研究所副总裁Marcy Burchfield说，这些数字表明，在COVID的最初几波疫情之后，Omicron再一次阻碍了多伦多的复苏。
 
-去年3月，Strong在Hache之死一案中被判一级谋杀罪名成立，在Fitzpatrick之死一案中被判杀人罪。
+她说：”它伤害了经济，也伤害了企业，特别是直接面向消费者的企业，如餐馆和健身房，它们有更多限制。”
 
-周三，警方表示Strong在去年夏天被囚期间，向狱警提供了Fitzpatrick尸骸的线索。随后几周，警方对Strong进行了一连串盘问，并由他带领警员找到了Fitzpatrick的尸骸。
+在Omicron限制出台后，就业受到了打击，特别是在食品、住宿、文化和娱乐行业。根据贸易委员会的数据，在奥沙瓦、多伦多、汉密尔顿、圭尔夫和Kitchener-剑桥-滑铁卢，所有行业减少了11,000个职位。
 
-Det. Sgt. Doris Carriere说：“调查人员随后获准代为扣押Adam Strong，11月4日，我们进行了一次行动，他将我们带到了奥沙华Secreto Drive后面树林旁的一小块空地上。”
+虽然大部分数据并不令人惊讶，但Burchfield说，她对整个多伦多和周边地区工作岗位的大幅减少感到吃惊，这主要集中在受影响最严重的餐饮和娱乐等行业。
 
-警方表示，11月8日至13日期间在现场发现了人体遗骸。
+数据显示，在整个2021年，多伦多的企业一直在恢复，因为更多的游客和工人回到了市中心的核心区。尽管放松了限制，但企业仍在努力应对不断上升的债务水平。
 
-在周三的新闻发布会上，警方证实，Fitzpatrick的遗体是在她失踪14年后才发现的。
+然而数据显示，在Omicron期间，工人和游客都选择大部分时间留在家里。
 
-“这一发现不会改变这些悲剧事件的结果，也不会改变受害者的家人和朋友所受的创伤。我们的目标是为Kandis的家人和所有受到这次犯罪影响的人提供一个了结。”
+加拿大独立商业联合会（CFIB）安大略省事务主任Julie Kwiecinski说，即使像容量限制这样的限制取消，消费者的习惯是否已经永久改变的问题仍然存在。
 
-Fitzpatrick和Hache的家人出席了今天的新闻发布会，在消息宣布后，他们互相拥抱。
+她说：”如果你在金融区的员工被允许在家工作，人流量就会变少。”
 
-Carriere说，警方没有为了让Strong提供Fitzpatrick尸骸的位置提供任何激励。
+加拿大餐饮业集团加拿大中部地区副总裁James Rilett说，餐饮业几乎是马上受到Omicron的影响。12月初的销售额下降，一周后再次下降。
 
-“我们的行动没有给他经济上的补偿，也没有给他增加优待。至于为什么，那就是Strong的问题了。”
+Rilett补充说，金融区的企业尤其艰难，因为他们在等待办公人员返回。许多企业已经永久关闭，因为他们感觉到其中一些员工不会再回来，而远程工作可能继续保留。
 
-Carriere补充说，案件结束后，法庭不会重新对Strong定罪。
+Kwiecinski说，取消限制只是复苏的第一步，因为企业有很多债务。她说，一些CFIB成员预计可能需要两年或更长时间才能恢复。
 
-“他已经被判犯有这些罪行，我们不能在定罪后将指控升级，目前我们不打算提出任何额外的指控。”
-
-高等法院法官Joseph Di Luca在去年3月的判决中表示，他认同Strong杀死了Fitzpatrick并肢解了她的尸体，但缺乏证据证明他谋杀了这名年轻女子，从而只能指控杀人罪。
-
-法官补充说，目前只能确定被告“非法导致了她的死亡”，而且“很可能确实是意图杀害Fitzpatrick”。
-
-来源：https://toronto.ctvnews.ca/remains-of-kandis-fitzpatrick-found-in-oshawa-convicted-killer-led-police-to-remains-1.5783328
+来源：https://www.thestar.com/business/2022/02/16/businesses-in-torontos-downtown-core-hit-hardest-in-region-by-omicron-restrictions.html
 
 **免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 ![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
