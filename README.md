@@ -15,115 +15,115 @@
 
 ---
 
-### [昆特兰理工女大学生前男友认罪误杀侮辱尸体](/content/gnews/1/README.md)
- ` MG FARM`
-
-### [多伦多乘客被评为全国最讨厌的Uber乘客](/content/gnews/2/README.md)
- ` MG FARM`
-
-### [七哥金句：战友的事都是天大的事](/content/gnews/3/README.md)
- ` 雅典娜GNotes`
-
-### [七哥金句：不能学共产党](/content/gnews/4/README.md)
- ` 雅典娜GNotes`
-
-### [七哥金句：中国人总有理由看不起自己](/content/gnews/5/README.md)
- ` 雅典娜GNotes`
-
-### [七哥金句：咱们老百姓被洗脑了](/content/gnews/6/README.md)
- ` 雅典娜GNotes`
-
-### [七哥金句：丛林法则是勇者胜](/content/gnews/7/README.md)
- ` 雅典娜GNotes`
-
-### [CDC主任表示将公布新的感染控制措施](/content/gnews/8/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [华盛顿智库：沉默的大多数正在威胁中共的独裁统治](/content/gnews/9/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [七哥金句：自然的规则](/content/gnews/10/README.md)
- ` 雅典娜GNotes`
-
-### [七哥金句：父母是孩子最好的老师](/content/gnews/11/README.md)
- ` 雅典娜GNotes`
-
-### [保护医生用伊维菌素治疗新冠的法案在宾州取得进展](/content/gnews/12/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [七哥金句：男女之间的关系](/content/gnews/13/README.md)
- ` 雅典娜GNotes`
-
-### [自由卡车车队的组织者使用加密（数字）货币筹资](/content/gnews/14/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [2022/02/16 文贵先生直播精要](/content/gnews/15/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [2022/02/17 大卫作战室直播精要](/content/gnews/16/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [秘翻在线: 俄国驱逐美国大使馆二号人物](/content/gnews/17/README.md)
+### [为开战俄罗斯可能栽赃乌克兰使用化学武器](/content/gnews/1/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [多伦多一公司500员工改为每周工作四天](/content/gnews/18/README.md)
+### [昆特兰理工女大学生前男友认罪误杀侮辱尸体](/content/gnews/2/README.md)
  ` MG FARM`
 
-### [联邦调查局组建数字货币部门，司法部启用新的加密货币执法团队](/content/gnews/19/README.md)
+### [伊隆 · 马斯克将特鲁多与希特勒相提并论而引发愤怒](/content/gnews/3/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [多伦多乘客被评为全国最讨厌的Uber乘客](/content/gnews/4/README.md)
+ ` MG FARM`
+
+### [七哥金句：战友的事都是天大的事](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥金句：不能学共产党](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [美国称俄罗斯正准备为入侵乌克兰找借口](/content/gnews/7/README.md)
+ ` 蓝莲花农场`
+
+### [七哥金句：中国人总有理由看不起自己](/content/gnews/8/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥金句：咱们老百姓被洗脑了](/content/gnews/9/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥金句：丛林法则是勇者胜](/content/gnews/10/README.md)
+ ` 雅典娜GNotes`
+
+### [CDC主任表示将公布新的感染控制措施](/content/gnews/11/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [华盛顿智库：沉默的大多数正在威胁中共的独裁统治](/content/gnews/12/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [七哥金句：自然的规则](/content/gnews/13/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥金句：父母是孩子最好的老师](/content/gnews/14/README.md)
+ ` 雅典娜GNotes`
+
+### [保护医生用伊维菌素治疗新冠的法案在宾州取得进展](/content/gnews/15/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [自由卡车车队的组织者使用加密（数字）货币筹资](/content/gnews/16/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [2022/02/16 文贵先生直播精要](/content/gnews/17/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [2022/02/17 大卫作战室直播精要](/content/gnews/18/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [秘翻在线: 俄国驱逐美国大使馆二号人物](/content/gnews/19/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [多伦多一公司500员工改为每周工作四天](/content/gnews/20/README.md)
+ ` MG FARM`
+
+### [联邦调查局组建数字货币部门，司法部启用新的加密货币执法团队](/content/gnews/21/README.md)
  ` 温哥华扬帆农场`
 
-### [2022年2月16日 《文贵大直播》全文字版](/content/gnews/20/README.md)
+### [2022年2月16日 《文贵大直播》全文字版](/content/gnews/22/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [新西兰财经G乐部2022年2月17日:财经新闻整理](/content/gnews/21/README.md)
+### [新西兰财经G乐部2022年2月17日:财经新闻整理](/content/gnews/23/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [警察和抗议者同样渴望人权,自由](/content/gnews/22/README.md)
+### [警察和抗议者同样渴望人权,自由](/content/gnews/24/README.md)
  ` 纽约香草山MOS02`
 
-### [特鲁多专制特权令加拿大皇家骑警将34个加密货币钱包列入黑名单](/content/gnews/23/README.md)
+### [特鲁多专制特权令加拿大皇家骑警将34个加密货币钱包列入黑名单](/content/gnews/25/README.md)
  ` 温哥华扬帆农场`
 
-### [芯片 运输 能源价格将暴涨 美国几乎已拿下东欧](/content/gnews/24/README.md)
+### [芯片 运输 能源价格将暴涨 美国几乎已拿下东欧](/content/gnews/26/README.md)
  ` 焦點20分`
 
-### [银行是人类金钱最大的骗局 世界唯一没有价格操纵的币就是喜币](/content/gnews/25/README.md)
+### [银行是人类金钱最大的骗局 世界唯一没有价格操纵的币就是喜币](/content/gnews/27/README.md)
  ` 焦點20分`
 
-### [荷兰告别了大流行病：取消Covid护照、口罩、距离限制](/content/gnews/26/README.md)
+### [荷兰告别了大流行病：取消Covid护照、口罩、距离限制](/content/gnews/28/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2/16/2022 文贵直播：喜联储已跻身全球第四大数字货币交易所；喜币不受第三方掠夺、无国界限制且每年发行数量有限](/content/gnews/27/README.md)
+### [2/16/2022 文贵直播：喜联储已跻身全球第四大数字货币交易所；喜币不受第三方掠夺、无国界限制且每年发行数量有限](/content/gnews/29/README.md)
  ` 秘密翻译组-北美组`
 
-### [喜币场外交易额和喜联储KYC量再创新高](/content/gnews/28/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [研究表明中共病毒疫苗百害而无一利](/content/gnews/29/README.md)
+### [研究表明中共病毒疫苗百害而无一利](/content/gnews/30/README.md)
  ` NFSC News`
 
-### [樱花FM┃新闻述评：北京冬奥会开幕惊闻普京随从保镖感染病毒](/content/gnews/30/README.md)
+### [樱花FM┃新闻述评：北京冬奥会开幕惊闻普京随从保镖感染病毒](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [NFSC新闻、G|TV新闻访谈简报|2022年2月17日早](/content/gnews/31/README.md)
+### [NFSC新闻、G|TV新闻访谈简报|2022年2月17日早](/content/gnews/32/README.md)
  ` 纽约香草山MOS01`
 
-### [同是印度 是否使用伊维菌素死亡率相差405倍](/content/gnews/32/README.md)
+### [同是印度 是否使用伊维菌素死亡率相差405倍](/content/gnews/33/README.md)
  ` 温哥华扬帆农场`
 
-### [加拿大司法部长称将进行投票的紧急法应遵守权利和自由宪章](/content/gnews/33/README.md)
+### [加拿大司法部长称将进行投票的紧急法应遵守权利和自由宪章](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [樱花FM┃加拿大总理特鲁多在奥运会开幕之际 批评中共国人权记录](/content/gnews/34/README.md)
+### [樱花FM┃加拿大总理特鲁多在奥运会开幕之际 批评中共国人权记录](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [西班牙七家商业实体接受HPay交易](/content/gnews/35/README.md)
+### [西班牙七家商业实体接受HPay交易](/content/gnews/36/README.md)
  ` NFSC News`
 
-### [班农先生呼吁追责中共并改变治世模式](/content/gnews/36/README.md)
- ` NFSC News`
-
-### [美媒指福奇滥用国家权力为中共独裁效力](/content/gnews/37/README.md)
+### [班农先生呼吁追责中共并改变治世模式](/content/gnews/37/README.md)
  ` NFSC News`
 
 ### [郭先生指喜币未来的价值在于流通](/content/gnews/38/README.md)

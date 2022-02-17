@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：中国人总有理由看不起自己
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2022192/)
+## 七哥金句：战友的事都是天大的事
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2022251/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句-2.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句3.png)
 整理：雅典娜农场
 发布：枫叶红了
 

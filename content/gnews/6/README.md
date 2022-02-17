@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：咱们老百姓被洗脑了
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2022174/)
+## 七哥金句：不能学共产党
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2022219/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句.001.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句1-1-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句2-1-2.jpg)
 整理：雅典娜农场
 发布：枫叶红了
 

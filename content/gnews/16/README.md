@@ -2,68 +2,55 @@
 ---
 
 
-## 2022/02/17 大卫作战室直播精要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2022069/)
+## 自由卡车车队的组织者使用加密（数字）货币筹资
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2022088/)
 
-[![](https://express.adobe.com/page/zIZmxhw7b9AdA/images/893d587a-a540-4016-b188-186fb8212f99.jpg?asset_id=eaa143be-a4df-4ba6-9360-efaf1f837bde&amp;img_etag=%22df2a0a775c5e4075d30ce232c2ed41c2%22&amp;size=1024)](https://express.adobe.com/page/zIZmxhw7b9AdA/images/893d587a-a540-4016-b188-186fb8212f99.jpg?asset_id=eaa143be-a4df-4ba6-9360-efaf1f837bde&amp;img_etag=%22df2a0a775c5e4075d30ce232c2ed41c2%22&amp;size=1024)
-- [**GTV视频链接**](https://gtv.org/video/id=620e3fefb706176dd78b914f)
-- [**GETTR视频链接**](https://gettr.com/streaming/pv3cpf8d71)
-- [**YouTube视频链接**](https://www.youtube.com/watch?v=XVrfCrllt50)
+**编译及评论：16626**
 
+**联邦政府正在发起金融追捕（猎杀）**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/AD6977DA-C272-4514-854A-968CD7EE5FE1.png)![](https://gnews.org/f238343c-ab56-4f52-b605-813d55e7ad87)**图片来源：截屏于**[**https://www.tvanouvelles.ca/2022/02/14/mission-couper-les-vivres-aux-manifestants-1**](https://www.tvanouvelles.ca/2022/02/14/mission-couper-les-vivres-aux-manifestants-1)
 
-**板块1–解读文贵先生2022-2-16大直播**
+联邦政府正在发起一场史无前例的金融追捕（猎杀），以在经济上扼杀那些资助支持卡车司机示威者的人（或团体）。
 
-1. 《大卫作战室》打收益用于农场建设、线下活动开销、农场义工。战友们打赏是对《大卫作战室》的肯定和新任。
+筹资平台及其使用的支付服务（例如银行）必须遵守《（打击）犯罪（洗钱）和恐怖主义融资法案》。
 
-2. 文贵先生宣布三件大事：短期前往英国日本不可能；喜联储马上推出新的Hpay政策、贷款、抵押动能、重大投资利好公告；习刚做做脾和肾两个手术，暂缓对台作战计划。
+所有财务交易必须在“加拿大金融情报机构 (CANAFE，或FINTRAC) ”注册，该机构的任务是侦查、预防和威慑各种洗钱和恐怖活动融资（等犯罪行为）。
 
-3. 英喜Gettr账号（英国伦敦喜庄园Himalaya London Club UK）在文贵大直播实时截取重点内容并发布，请战友关注。
+**银行不需要法官批准即可立即冻结账户（的资金）**
 
-4. 文贵先生签出破产申明让不坚定战友提前“离场”，文贵先生战略性“躺平”，众多坚定战友依旧坚挺，更显珍贵。
+加拿大银行不需要法官批准即可立即冻结他们怀疑支持车队的个人和公司账户（的资金）。
 
-5. 美联储加息政策。唯独大宗商品振荡往上走，其余基本震荡下跌。国际金融市场关注热点-美联储释放何种消息、俄罗斯乌克兰形势变化、中共政局状态等。
+**加密****（数字）****货币 **
 
-**板块2–俄罗斯乌克兰局势**
+（支持卡车司机示威者）的组织者已经放弃了现在（使用的）筹资平台，转向加密（数字）货币。
 
-1. 文贵先生爆料：普京权衡利弊宣布撤兵，对习近平攻打台湾“放鸽子”，对台湾是重大利好。罗斯柴尔德家族利用战争对国家进行放贷，赚得盆满钵满。
+（支持卡车司机示威者）的组织者称，使用加密（数字）货币可以在没有任何法律障碍和银行监管的情况下接收国内和国际的捐款。
 
-2. 明面上发生炮击事件，暗地里各国开展“口水战”，有意引导市场情绪。
+**无法追踪**
 
-3. 数字货币市场（比特币）在敏感国际局势下，下跌并不是“逢低买入”的时机。
+（支持卡车司机示威者）的组织者称已经转向使用比特币进行筹资，因为它们（比特币）是从一台计算机传递（转账）到另一台计算机，而不是从一家银行（转账）到另一家银行，因此无法追踪（转账交易细节）。
 
-4. 黄金储备2021第三、第四季度状况：印度、俄罗斯、巴西、乌兹别克斯坦等国增持黄金储备，其中俄罗斯担心因乌克兰问题被国际制裁增持黄金稳定国内经济（高通胀压力巨大），并高价卖石油给中共国，持续提供天然气给欧洲。普京需要国内经济稳定维持政治稳定，并不需要一场战争。
+另外，根据Gnews（2022 年 2 月 5 日）发表一篇题为《埃隆马斯克抨击 GoFundMe卑躬屈膝特鲁多,取消资助自由卡车司机, [https://gnews.org/zh-hans/1962936/](https://gnews.org/zh-hans/1962936/) 》的文章报道，GoFundMe 因违反其服务条款为理由，取消了2022自由卡车车队（Freedom Convoy 2022） 筹款活动。剩余的资金 “由2022自由卡车车队 组织者选择并由 GoFundMe 验证（分配给）可信且成熟的慈善机构”。
 
-**板块3–喜交所**
+还有，Gnews（2022 年 2 月 5 日）发表一篇题为《自由车队：在新平台上筹集的资金已超过90万元,[https://gnews.org/zh-hans/1963141/](https://gnews.org/zh-hans/1963141/)   》的文章报道，在 GoFundMe 拒绝向全国各地示威反对强制接种疫苗的卡车司机支付筹集的资金后，他们（卡车司机）转向另一个平台，GiveSendGo，而且已经筹集了近 100 万元。
 
-1. 喜联出相当于印刷法币（HDO）的央行，HDO有20%黄金锚定。黄金在现国际实时政治情况下，今年将有增长空间。
+**破了特鲁多Trudeau的《紧急状态法》阴招**
 
-2. 喜联储贷款、抵押功能开通，为资金避险提供“好去处”且HDO资金池将快速“蓄水”。功能开通时机刚好抓住世界经济处于脆弱时。
+现在，联邦施压实施《紧急措施法》，迫使加密（数字）货币作为一个新资金来源来支持2022自由卡车司机的示威。使用加密（数字）货币很有可能破了特鲁多Trudeau的《紧急状态法》阴招。小土豆完全是痴心的疯子。加拿大总理，贾斯汀·特鲁多（Justin Trudeau），想学中共，使出下三滥的阴招，是难以得逞的。我们谴责并反对暴力示威，更反对政府借用下三滥的阴招施暴于人民。
 
-3. 中共国财政部召开会议有关与各地政府保持金融稳定，凸显地方财政吃紧。
+**参考资料**：
 
-**板块4–财经、中共病毒**
+[https://www.tvanouvelles.ca/2022/02/14/mission-couper-les-vivres-aux-manifestants-1](https://www.tvanouvelles.ca/2022/02/14/mission-couper-les-vivres-aux-manifestants-1)
 
-1.新西兰反疫苗强制人士受到加拿大卡车司机启发，封锁议会。加拿大大卡车司机游行受到2019年香港运动启发。
+**编辑：LILY**
 
-2.以色列作为全球疫苗接种率最高的国家之一，正在付出代价。二萬辆卡车和家用车参加全球自由车队游行活动。
+**发布：歪桑**
 
-**大卫作战室每周一**、**周四**、**周六直播：英国时间12点；美东早7点；盘古20点.**
+20220217
 
-- [欢迎关注GTV-大卫作战室](https://gtv.org/user/5e86008377d0e42087e2a56d#home)
-- [欢迎关注YouTube-大卫作战室](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
-- [欢迎关注YouTube-大卫作战室 备用直播号](https://www.youtube.com/channel/UCSjAwTM1autpHTLVihdJHHg)
-- [欢迎关注GETTR-大卫作战室](https://gettr.com/user/davidswarroom)
-
-[![](https://express.adobe.com/page/zIZmxhw7b9AdA/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)](https://express.adobe.com/page/zIZmxhw7b9AdA/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)
-*听写：call me uncle | 校对：乐禧禧 | Page：我是球大哥*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
-
-
-*编辑：【英国伦敦喜庄园编辑部】*
-[![](https://express.adobe.com/page/zIZmxhw7b9AdA/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://express.adobe.com/page/zIZmxhw7b9AdA/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/CA447262-385E-4CD3-932F-5D41680ACB09.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

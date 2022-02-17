@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：自然的规则
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2022121/)
+## 七哥金句：丛林法则是勇者胜
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2022157/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句8-.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句9-.jpg)
 整理：雅典娜农场
 发布：枫叶红了
 

@@ -2,47 +2,26 @@
 ---
 
 
-## 昆特兰理工女大学生前男友认罪误杀侮辱尸体
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2022284/)
+## 为开战俄罗斯可能栽赃乌克兰使用化学武器
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2022345/)
 
-作者：Janet Brown & Amy Judd
-翻译：KK
-![](https://assets.gnews.org/wp-content/uploads/2022/02/5_102FU35.jpg)
-BC省一名年仅19岁的女大学生遇害后被人放入汽车内放火焚尸，案发5年后她的前男友承认了一项过失杀人罪和一项侮辱尸体罪。年轻的女孩刚刚做完肾移植手术，对未来生活充满憧憬，不料阴差阳错死于男友走火的枪下。
+翻译播报：billwilliam
 
-据报道，此案发生在2017年8月，正在昆特兰理工大学（Kwantlen Polytechnic University）就读的女大学生Bhavkiran “Kiran” Dhesi与男友Harjot Singh Deo在一起时意外死亡。
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-7.jpg)图源：shriworldnews.com
+《零对冲》报道，在今天（2月17日）纽约联合国安理会大会上，美国国务卿布林肯称有证据表明俄罗斯正走向立即入侵乌克兰。但他表示，他不想开始一场战争，而是要阻止战争。布林肯呼吁俄罗斯无条件宣布不要入侵乌克兰并且撤军。同时布林肯警告，俄罗斯可能栽赃乌克兰来制造开战的借口，甚至包括栽赃乌克兰使用化学武器。
 
-事发后Harjot Singh Deo没有报警，反而是在家人帮助下将死者尸体放入一辆汽车内并放火伪造死亡现场。
+布林肯称，虽然俄罗斯一直嘲讽美国对于乌克兰战争的警告，俄罗斯15万大军陈兵乌克兰边境，并有能力进行大规模军事进攻。但是布林肯仍然在努力阻止战争爆发，他说，“如果俄罗斯没有入侵乌克兰，那我们会感到放松俄罗斯已经改变轨迹并证明我们的预测是错误的”。虽然俄罗斯自称已经撤回军队，但美国的信息清楚显示俄方的陆海空三军正在准备在未来几天内对乌克兰进行打击。布林肯强调，俄罗斯此刻不仅是乌克兰的威胁，也是全世界每个国家的威胁，因为两次世界大战和冷战后维护世界和平的基本原则正受到威胁—即一个国家不能以武力改变另一个国家的边界。布林肯同时也向俄罗斯的拉夫罗夫喊话，希望双方领导人展开峰会缓解局势，并在双方关注的安全问题方面达成理解。
 
-Harjot Singh Deo的辩护律师说，事发时Harjot Singh Deo手持一支上膛的、被禁止和受限的手枪，手枪走火导致Dhesi意外死亡。
+布林肯讲话中最令人震惊的部分是，他认为俄罗斯会通过栽赃乌克兰来制造开战的借口。比如制造在俄罗斯的暴力袭击事件，然后栽赃乌克兰，或者俄罗斯对乌克兰政府做出令人发指的指控。甚至俄罗斯制造的开战借口包括“虚假或真实的使用化学武器攻击”。
 
-事发后Harjot Singh Deo试图隐藏死者的尸体。
+布林肯解释称栽赃的借口“可以是编造的所谓俄罗斯境内发生恐怖炸弹袭击，编造出发现大型墓地，预先安排的无人机攻击平民，或者虚假或真实的使用化学武器攻击”。几周前，白宫发言人珍·普萨基（Jen Psaki）也表示俄罗斯已经在乌克兰东部边界部署进行栽赃行动的特工，这些特工受过城市战斗训练，并受训使用爆炸物对俄罗斯的代理人进行破坏攻击。
 
-Deo的四名家庭成员——包括他的母亲、兄弟和姐妹——在谋杀案发生后也被指控犯有从犯罪。
+同时，俄罗斯外交部矢口否认会入侵乌克兰。当然，因为战争尚未爆发，俄罗斯不一定真的进行栽赃行动。如果布林肯的预测成真，俄罗斯可能会对自己的阵地或城市进行恐怖袭击，然后栽赃乌克兰政府，借此理由开战。历史上的法西斯政权均擅长使用栽赃手法为开战找借口，所以还是要小心此类事件的发生。当然也要小心中共趁机攻打台湾，比如中共可以派间谍在台湾从事颠覆活动，假借台湾发生内乱或国民党与民进党之间发生暴力事件为由发动战争。栽赃诬陷的龌龊手法为我们敲响了警钟，中共更是全人类的威胁。
 
-Deo的兄弟、25岁的Gurvinder Singh Deo和22岁的Talwinder Singh Khun Khun也被指控干扰尸体。Khun Khun被描述为一个大家庭的成员。
+新闻来源：
 
-此案审判将于5月30日开始，预计将进行三到六周。
-
-据报道，Dhesi的尸体于2017年8月在素里24 Avenue和187 Street附近的一辆烧毁的SUV 中被发现。
-
-她是昆特兰理工大学的一名学生，死前几个月刚刚接受了肾移植手术。
-
-来源：https://globalnews.ca/news/8621452/ex-boyfriend-manslaughter-kiran-dhesi/
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+[https://www.zerohedge.com/markets/blinken-lays-out-russian-false-flag-chemical-attack-claims-dramatic-un-security-council](https://www.zerohedge.com/markets/blinken-lays-out-russian-false-flag-chemical-attack-claims-dramatic-un-security-council)
 
  
 
