@@ -2,17 +2,17 @@
 ---
 
 
-## 五月花简报（02/16/2022）
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2019403/)
+## 20220216爆料革命、新中国联邦奖励为铁链女发声的同胞
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2019525/)
 
-编辑：波士顿五月花—-冲天一怒
+作者:东京樱花团小视频组
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/FA2EF668-3BBC-423A-AB65-48A1DFA35640.jpeg)
+校对：东京樱花团小视频组
 
-*发布：思澈*
+编辑发布：东京樱花团小视频组
 
-
-
+* * *
+![喜马拉雅东京樱花团](https://assets.gnews.org/wp-content/uploads/2022/02/yht-8.jpg)喜马拉雅东京樱花团
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
