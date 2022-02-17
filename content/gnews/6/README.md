@@ -2,43 +2,40 @@
 ---
 
 
-## 多伦多乘客被评为全国最讨厌的Uber乘客
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2022256/)
+## 日本麒麟退出中共软饮料市场
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2022377/)
 
-作者：Jack Landau
-翻译：KK
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-188.png)
-如果你曾经因为在多伦多乘坐Uber，但对司机的服务不满意而给他不完美的评价。要知道你也可能被多伦多的司机们评价。
+作者：银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-33.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/440C6CA7-B3D6-4D5B-A2C5-223EB74850C8.jpeg)（图片来自路透社）
+2月16日，日本麒麟控股宣布退出与中共华润集团共同开发的软饮料业务。麒麟公司将以约1150亿日元的价格将其全部股份转让给一家中共投资基金。麒麟公司于2月14日刚刚宣布退出缅甸的啤酒业务，并将通过审查其海外业务促进对增长领域的投资。
 
-Uber乘客每次使用后也要被从一到五星给与评级，事实证明，多伦多的乘客是全加拿大最难以忍受的。
+目前该转让的具体日期尚未决定。麒麟预计在该销售中获得约390亿日元的收益。但麒麟表示会继续与中共华润集团在知识产权的使用和许可方面进行合作。
 
-Uber加拿大公司发布了一份乘客评价最好和最差的五个城市的名单，多伦多就像另外一个纽约，粗鲁人的名声再次抬头，因为多伦多的排名中接近垫底。
+据悉该日中合资企业名为华润麒麟饮料，麒麟持有其40%的股份，主要产品是矿泉水，并代理销售日本麒麟饮料旗下产品下午茶和FIRE咖啡。该公司历史长达11年。
 
-多伦多的表现很差，只有一个城市的排在多伦多之后——渥太华的排名最低，而蒙特利尔、伦敦和汉密尔顿的Uber乘客排名都在多伦多之上。
 
-不过，你会觉得很惊讶吗？
 
-排名前五位的最佳乘客都是一些较小的城市，萨斯卡通（Saskatoon, SK）现在可以夸耀自己是全加拿大拥有最好的Uber乘客的城市，其次是红鹿（Red Deer, AB）、阿伯茨福德（Abbotsford, BC）、布兰特福德（Brantford, ON）和莱斯布里奇（Lethbridge, AB）。
+参考链接：
 
-不过说实话，其中一些是基本的礼貌，你真的不需要从一个公司的声明中学习。
+[https://www.sankei.com/article/20220216-AB5VU6EZAJPPLJA5MI5RHL3FIM/](https://www.sankei.com/article/20220216-AB5VU6EZAJPPLJA5MI5RHL3FIM/)
 
-乘客被讨厌的事情包括：比如当司机到达时，你真的在路边等待；乘车时不要在陌生人的车里留下一个烂摊子；尊重司机；以及不要摔车门。
+编辑/校对/发稿：有莫举名
 
-来源：https://www.blogto.com/tech/2022/02/toronto-uber-passengers-ranked-worst-canada/
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-196.jpeg)
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+**更多资讯，更多关注**
 
-**关注我们**
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-Discord 账号
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-Gettr 账号
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-33.png)
+
 
  
 

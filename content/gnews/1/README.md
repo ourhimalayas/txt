@@ -2,42 +2,33 @@
 ---
 
 
-## 以色列总理宣布终止疫苗“绿色通行证”
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2022378/)
+## 有声|渣打被罚230万 墙内信用卡申请项目暂停
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2022405/)
 
-**编译: 真北007**
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+当地时间2月9日，据中共媒体消息显示，因违反了所谓的“信用信息查询相关管理规定”，渣打银行中共国有限公司被中共人民银行上海分行处以人民币230万元的罚款，同时，渣打银行零售个人金融信贷部总监陈燕来也被处以10万元人民币的罚金。目前，墙内渣打银行已经暂停了其信用卡申请项目，而该银行的多项业务也将一并调整。
 
-来自ALJAZEERA 二月十七日的新闻报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/02/AF2C86CD-4ABC-4379-AF7C-CDB2D12DEA86.jpeg)**图片来源：**https://www.aljazeera.com
-以色列总理Naftali Bennett 说，随着 COVID-19 严重病例和确诊感染的数量明显下降，现在是取消疫苗证明要求的“好时机”。
+据了解，渣打银行并非第一家被中共政府处罚的外资银行。资料显示，中共于今年1月1日颁布了《征信业务管理办法》，而其后短短一个月半的时间里，中共对墙内各大银行实施罚款的总金额已经超过了四千万元人民币。其中，东亚银行于1月10日接到的近一千七百万元人民币的处罚堪称近年来外资银行在中共国内收到的最大罚单。
 
-以色列总理纳夫塔利·贝内特（Naftali Bennett）宣布，随着感染浪潮的消退，要求出示冠状病毒疫苗接种证明进入各种场所的要求将很快结束。
+另外，2021年年末，新韩和韩亚两家外资银行也被中共政府予以罚款，其金额高达620万元人民币。
 
-以色列是世界上疫苗推广的早期开拓者，也是最早要求实施疫苗接种证书的国家之一，它称之为绿色通行证，用以进入一系列设施。
+分析人士对此指出，中共巧立名目地处罚外资银行的做法突显出中共国内经济危机山雨欲来之势。当中，外资银行在“夹缝中生存”已经成了这个时代的缩影。
 
-贝内特周四表示，随着 COVID-19 严重病例和确诊感染的数量明显下降，现在是取消疫苗证明要求的“好时机”。
+文字版原文：[渣打被罚230万 墙内信用卡申请项目暂停](https://gnews.org/zh-hans/2016053/)
 
-“我们将停止使用绿色通行证”，贝内特说。
+音频处理：Fei797
+发稿：Fei797
 
-在过去一年的大部分时间里，绿色通行证一直是以色列人生活的一部分，是进入酒吧、餐馆、酒店、健身房和礼拜堂等场所的必备条件。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
 
-**点评：**
-
-**卡车车队游行在以色列起到了作用，以色列政府还算明智能及时做出反应。本周一，数千名以色列人组成一个“自由车队”，从全国各地涌入耶路撒冷，反对冠状病毒的限制，这对应了加拿大和世界各地类似的交通阻塞抗议活动。示威者吹响了汽车喇叭并挥舞着加拿大和以色列国旗向以色列政府所在地行进。**
-
-**原文链接：**
-
-[Israel PM announces end of vaccine ‘green pass’](https://www.aljazeera.com/news/2022/2/17/israel-pm-announces-end-of-vaccine-green-pass)
-
-**编辑：LILY**
-
-**发布：歪桑**
-
-20220217
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3-4.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
