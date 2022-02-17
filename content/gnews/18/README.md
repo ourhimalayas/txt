@@ -2,8 +2,8 @@
 ---
 
 
-## 新中国联邦爆料革命是现世最大的菩萨行
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2017476/)
+## 在中共国真话是毒药
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2017577/)
 
 #### 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王 视频定位：BENJ1，WEI
 

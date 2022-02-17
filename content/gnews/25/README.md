@@ -2,30 +2,47 @@
 ---
 
 
-## 看不到的黑暗有多黑 传说中共国有20年拐卖妇女史，苏北有个拐卖村
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2017268/)
+## 突发：华盛顿特区终止疫苗和口罩强制令
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2017469/)
 
-撰稿/配图：东京樱花团/Ob
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-15.png)
-看中国2022年2月16日讯，2月15日，网传视频显示，中共国河北卫视“老梁有看法”的节目中，男主讲人讲述，“拐卖妇女在我们现代这个社会里，并不是什么少见的现象”，引发社会关注。
+[https://gtv.org/video/id=620d15e1b0af02660af45506](https://gtv.org/video/id=620d15e1b0af02660af45506)
 
-视频中男主讲说，“其实，拐卖妇女在我们现代这个社会里，并不是什么少见的现象，尤其是在偏远的山村各个地方，经常会出现拐卖妇女这种情况。你看在我们生活当中，你可能经常会看到什么服装批发市场、小商品批发市场，但你听说过妇女批发市场吗？2000年的时候，有一个拐卖妇女案子里边，就出现了这样的字眼，名字叫苏北人口批发市场。苏北指江苏北部，这说的是什么地方呢，就是江苏省泗阳县来安乡姜集村。”
+Much better place now to announce adjustments to that winter action plan
+现在是宣布调整（COVID-19）冬季行动计划的更好地步
 
-该主讲说，“这个地方有210个人参与了拐卖妇女，其中领头的是一个叫郑红先的人，他带着他郑氏家族、带领着全村靠拐卖妇女试图发家致富，而且从90年代初一直干到2000年案发为止，在高峰期的时候，一天就能卖6个妇女。他的方法是到云贵川这几个地方去收购妇女，连蒙带骗带绑架，然后弄到了姜集村，然后在这呢，再把她们卖到苏鲁皖鄂，包括新疆这些个地方。”
+First, the expiration of the indoor mask mandate will happen on Feb 28,
+首先，室内口罩规定将于2月28日到期
 
-该主讲还说，“那么这个过程是怎么开始的呢？姜集村这个地方有个特点，穷的要命，这个地方的男青年娶不上媳妇，所以外地的一些人贩子经常到这儿来，（他们说）‘你攒俩钱，我卖你个媳妇’。然后，把一些妇女拐卖到这来卖。这个郑氏家族的家长郑红先，一个很偶然的机会他帮了人贩子一点忙，为啥呢？他就是当地人哪，谁家没媳妇，谁家有点闲钱，他都清楚，他就给中间介绍了一下，结果这人贩子顺利把这妇女卖出去之后，给了他点好处费，没给多少，只给了50块钱。”
+and as of March 1st, the district’s indoor mask requirements will be dialed back.
+自3月1日起，该市（华盛顿特区）的室内口罩要求将被取消
 
-该主讲也说，“这郑红先尝到甜头了，一看这是个勤劳致富的办法，也不用种地，也不用干农活累的要命，我就干这个得了，所以从那以后他找到灵感了。一开始带着家里人给人介绍信息呀，他其实就等于中间做个中介，到后来发展成我主动出去收购去。到云贵川这些地方坑蒙拐骗，把妇女弄来，然后拿回到这来，以这为中转站卖，结果他这种缺德的生意越做越大，到后来成什么呢？村里边这些人都觉得这是发财门路，都跟着老郑家干这种缺德的事，全村总共100多户人家，只有两家没干这事。
+You of course know that DC health will maintain its advisories according to the level of spread
+您当然知道特区卫生局将根据（疫情）传播程度维持其建议
 
-穷山恶水出刁民，几近贫寒激发了人们杀出一条血路的致富本能。这都是中共罪大恶极的政策使然，极尽最大可能的激发人民内部仇恨，让人民相互残害。三年大自然灾害，文化大革命等都是使人们极度贫困，食不果腹，从而挑起了人们最基本的生存本能，激发出人们的兽性。及至改革开放，中共又一方面制造贫困差距，另一方面从各个层面激发人们对物欲的极致追求，从而使人们一直为利益疲于奔命，直至不择手段，杀人防火在所不惜，贩卖人口，活摘器官甚至堂而皇之的成为产业链。
+and you can go to coronavirus.dc.gov on any given day to find out what that level of spread is
+您可以在任何一天访问CORONAVIRUS.DC.GOV了解（疫情）传播程度
 
-消息来源：
+原视频链接:[https://gtv.org/video/id=620d15e1b0af02660af45506](https://gtv.org/video/id=620d15e1b0af02660af45506)
 
-[中国有20年拐卖妇女史？网传苏北有个拐卖村(图)](https://m.secretchina.com/news/gb/2022/02/16/997983.html)
+Date:02/15/2022
+原视频标题: BREAKING: Washington, D.C. to end vaccine and mask mandates
+突发：华盛顿特区终止疫苗和口罩强制令
+原视频日期：2022/02/14
+原视频链接:[https://gtv.org/video/id=620d15e1b0af02660af45506](https://gtv.org/video/id=620d15e1b0af02660af45506)
+任务编号：KE404（3761）
+视频时间段 : 0:00-00:45
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+英听校: 洛杉矶盘古农场 – Raul
+翻译：洛杉矶盘古农场 – Raul
+翻译终校：洛杉矶盘古农场 – Mick Li
+字幕+视频制作：洛杉矶盘古农场-Jambo
+审片：洛杉矶盘古农场- 银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

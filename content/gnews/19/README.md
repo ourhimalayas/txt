@@ -2,47 +2,35 @@
 ---
 
 
-## 突发：华盛顿特区终止疫苗和口罩强制令
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2017469/)
+## 有声|郭文贵表明对PAG案件的态度：永不和解，永不退缩
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2017570/)
 
-[https://gtv.org/video/id=620d15e1b0af02660af45506](https://gtv.org/video/id=620d15e1b0af02660af45506)
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+中共特务单伟建，利用一个根本不存在的官司对郭文贵先生进行了长达五年的缠诉，最近，中共终于成功令郭先生败诉。对此，郭先生认为，正常情况下，美国的司法界、法律界是非常严谨、公正的，曾经有过一名法官，因为非常轻微的徇私行为，被人举报后立即离职。
 
-Much better place now to announce adjustments to that winter action plan
-现在是宣布调整（COVID-19）冬季行动计划的更好地步
+因此，PAG对郭先生的缠诉，深刻暴露了共产党对美国司法系统的破坏，这份法庭的判决书是由控方律师起草的，法官稍加修改，整份判决书欠缺足够的法律依据，这个案子的真相会让美国各界人士感到瞠目结舌，这不应该是美国法治应有的样子。
 
-First, the expiration of the indoor mask mandate will happen on Feb 28,
-首先，室内口罩规定将于2月28日到期
+不过，郭先生表示自己仍然相信美国的司法体系，相信美国的司法正义，相信自己有申诉的权利和向司法部门寻求公义的权利。
 
-and as of March 1st, the district’s indoor mask requirements will be dialed back.
-自3月1日起，该市（华盛顿特区）的室内口罩要求将被取消
+到目前为止，郭先生拒绝了许多人提出的和解建议，他相信美国的法律会让真相最终大白于天下，一定会让美国政府官员与共产党之间的台底交易全部暴露，也一定会让背后的始作俑者现出真容。
 
-You of course know that DC health will maintain its advisories according to the level of spread
-您当然知道特区卫生局将根据（疫情）传播程度维持其建议
+郭先生对着镜头向共产党喊话，这个案件不仅不会阻止他爆料，并且对于欲加之罪，他永远不会和解，永远不会退缩，而且一定会赢。
 
-and you can go to coronavirus.dc.gov on any given day to find out what that level of spread is
-您可以在任何一天访问CORONAVIRUS.DC.GOV了解（疫情）传播程度
+文字版原文：[郭文贵表明对PAG案件的态度：永不和解，永不退缩](https://gnews.org/zh-hans/2010317/)
 
-原视频链接:[https://gtv.org/video/id=620d15e1b0af02660af45506](https://gtv.org/video/id=620d15e1b0af02660af45506)
+音频处理：Fei797
+发稿：Fei797
 
-Date:02/15/2022
-原视频标题: BREAKING: Washington, D.C. to end vaccine and mask mandates
-突发：华盛顿特区终止疫苗和口罩强制令
-原视频日期：2022/02/14
-原视频链接:[https://gtv.org/video/id=620d15e1b0af02660af45506](https://gtv.org/video/id=620d15e1b0af02660af45506)
-任务编号：KE404（3761）
-视频时间段 : 0:00-00:45
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
 
-英听校: 洛杉矶盘古农场 – Raul
-翻译：洛杉矶盘古农场 – Raul
-翻译终校：洛杉矶盘古农场 – Mick Li
-字幕+视频制作：洛杉矶盘古农场-Jambo
-审片：洛杉矶盘古农场- 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

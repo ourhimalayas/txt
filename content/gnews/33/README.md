@@ -2,40 +2,51 @@
 ---
 
 
-## 瑞士取消疫苗护照和几乎所有 COVID-19 限制
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2016992/)
+## 意大利可能在三月底结束中共病毒紧急状态
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2017218/)
 
-**编译: 真北007**
+作者：纽约香草山农场 – 四季
 
-来自POLITICO EU 二月十六日的新闻报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/02/6C245CA6-31E0-4A65-8364-D7F898041FAE.jpeg)**图片来源：**https://www.politico.eu
-瑞士人将不再需要出示 COVID 证书，但一些小防疫措施可能会持续到 3 月下旬。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-瑞士政府周三宣布，将从周四午夜起取消几乎所有大流行限制，人们相信 COVID-19 感染率已成功与住院治疗脱钩。
 
-瑞士人将不再需要在餐馆、酒吧或剧院和音乐厅等其它场所出示新冠病毒证书。但是对感染 COVID-19 的人的自我隔离要求将一直保留到 3 月底，在访问医疗机构和乘坐公共交通工具时戴口罩的要求也将继续有效。
 
-瑞士总统伊格纳齐奥·卡西斯（Ignazio Cassis）在伯尔尼举行的新闻发布会上说：“瑞士正在朝着正常化迈出了决定性和重要的一步” ，“病毒还在那里，但我们正在学习如何与病毒共存”。
 
-新政策还结束了对私人聚会规模的限制，而政府表示，当局将继续为想要出国旅行的瑞士居民提供欧盟认可的 COVID 证书。
 
-瑞士加入了越来越多的欧洲国家行列，取消了几乎所有与大流行相关的限制，包括丹麦、荷兰、挪威和瑞典。
+据[布赖特巴特新闻网](https://www.breitbart.com/europe/2022/02/16/italy-may-allow-coronavirus-state-of-emergency-to-expire-at-end-of-march/)2月16日报道，意大利卫生部副部长安德里亚 ·科斯塔 (Andrea Costa)表示，政府可能让其紧急状态在3月底到期，为结束中共病毒限制和该国的健康护照系统铺平道路。
 
-根据政府官方数据，本周瑞士医院的入住率为 81.9%，尽管其中只有约 8% 是由 COVID-19 造成的，而实验室确诊病例的 7 天滚动平均值已降至每 10 万居民 250 人。超过 70% 的瑞士人口至少接种过一剂疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GettyImages-1234502345-e1644957835331-640x481-1.jpg)ANDREASSOLARO/AFP via Getty Images
 
-**原文链接：**
+但科斯塔表示，他们必须完成第三剂疫苗的接种，以开启一个新的局面，逐步放宽包括绿色通行证在内的限制性措施。
 
-[Switzerland lifts almost all COVID-19 restrictions](https://www.politico.eu/article/switzerland-lifts-almost-all-covid-19-restrictions/)
+热那亚圣马蒂诺综合医院传染病诊所主任马蒂奥·巴塞蒂 (Matteo Bassetti) 教授本周表示，绿色通行证仍然是一个政治工具，而非一个健康决定。绿色通行证已经完成了它的工作，不需要延长它。但也有专家呼吁延长绿色通行证的期限，可能延长到今年年底。
 
-**编辑：LILY**
+意大利是少数几个强制要求所有超过一定年龄的居民接种疫苗的欧洲国家之一。从本周二开始，预计所有50岁以上的意大利人将全面接种疫苗，否则将面临600欧元至1500欧元的罚款。
 
-**发布：歪桑**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2月.jpg)
 
-20220216
+编辑/校对/发稿：小鹿
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3-4.jpg)
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

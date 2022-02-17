@@ -2,37 +2,29 @@
 ---
 
 
-## 有声|Moderna总裁：破解mRNA可以玩弄整个生命王国
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2015438/)
+## 习近平病危手术后暂停武统台湾
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2015725/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-疫苗制造商Moderna的总裁曾说过，“如果你能够破解mRNA的规则，那么基本上整个生命王国都可以肆意被你玩弄”。随着mRNA技术应用于中共病毒疫苗真相的曝光，Moderna总裁这话听起来不免让人毛骨悚然。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/covid-19-vaccine-mrna-dna-1204201.jpeg)图片来源: 网络
-David Martin博士说，中共病毒疫苗并不是疫苗，使用“疫苗”这个词可以在公共卫生豁免下对公众形成误导。疫苗进入人体后会让人体自身细胞成为病原体制造者，结果会导致人体内的细胞互相攻击。大药商Moderna非常清楚这就是在杀人。
+加拿大温哥华扬帆农场 硫酸羟氯喹64
 
-目前Moderna拥有数百名工程师和科学家，试图用生物信息技术来对人体进行攻击，并使人体依赖该技术，甚至他们称mRNA为生命软件。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/a-8-edited.jpg)图片来源：GETTR
 
-另外该项邪恶计划还包括使用改良的mRNA来重新编程人类的干细胞功能，获得对干细胞的基因改造技术。这是一套完整的细胞级操作，编码、解码、调节、改变人体内的生理指令。
 
-文字版原文：[Moderna总裁：破解mRNA可以玩弄整个生命王国](https://gnews.org/zh-hans/2013473/)
+据2月16日GTV大直播报道，文贵先生根据最新掌握的情报即时披露了三项重大消息：
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+首先，由于考虑到个人安全，起诉瑞银UBS案件的进展以及当前灭共形势的新状况，在美国相关政府机构，律师团队和安保团队的共同评估和确定之下，文贵先生将暂时搁置即将前往英国和日本的行程计划，并有可能在完全灭共之前不会离开美国。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+其次，喜联储将在最近一个月内推出新的HPAY政策，包括喜币的贷款和抵押业务，并同时推出各项有关喜币投资利好的重大公告。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+此外，党魁习近平的身体健康持续恶化，中共政权或因此气数将终，时日无多！同时，习近平在一天前刚刚做完脾脏和肾脏的手术之后，突发决定停止实施武力攻打台湾的自杀计划。而该利好消息无疑是对台湾人民的最大福报。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+* * *
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+编辑撰稿，发稿： 硫酸羟氯喹64
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+消息来源：https://gettr.com/streaming/puvpmn3ce1
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 
  
 

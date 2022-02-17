@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/17/2022 2:01 AM (UTC)`
+
+2月16号：尊敬的战友们好，这是瑞秋和罗伊在直播中提到的安眠药……就是不会上瘾，不会头疼．非常非常健康的，不会让你失去记忆的安眠药，希望大家妥善使用．遵从医嘱！
+![img](https://media.gettr.com/group10/getter/2022/02/17/02/1197958b-bcb6-e0ed-37bc-85af3dd567a9/5d9693856682ab0ca335940ed07ff24c.jpg)
+
+---
+
 `@miles 2/17/2022 1:39 AM (UTC)`
 
 2/16/2022 Miles Guo: The Winter Olympics has turned into a “Hibernation Games” and will end with the downfall of the CCP. Truckers, women, and senior people have all come out to protest in the streets, creating a glorious moment for humanity. Big Pharmas like Pfizer along with Facebook and Twitter will surely go bankrupt, and Emmanuel Macron is bound to be sent to the gallows.<br/><br/>2/16/2022 文贵直播：冬奥会已成“冬眠会”且一定会以中共的灭亡为结束；卡车司机、妇孺老人齐上街，创造了人类辉煌；辉瑞等医药公司和Facebook、Twitter一定会破产，马克龙一定会走上绞刑架<br/>
@@ -145,13 +152,6 @@
 
 2/14/2022 Miles Guo’s GETTR: Xi Jinping claims to be sick and is in hiding, while secretly planning to invade Taiwan. The CCP is the real traitor, colluding with the dark forces to steal the wealth of the Chinese people, selling out the Chinese territories, brainwashing the people in Communist China, and provoking anti-Chinese sentiment worldwide. Only the Whistleblowers’ Movement has exposed the CCP’s evil plans to the world in advance. The power of the New Federal State of China is infinite!<br/><br/>2/14/2022 文贵盖特：习近平称病神隐，暗中准备打台湾；中共是真正的卖国贼 - 跟黑暗势力勾结、盗走中国人的财富、出卖中国的领土、对内洗脑、对外挑起排华；只有爆料革命向全世界提前揭露了中共的邪恶计划，新中国联邦力量无限大！<br/>
 ![img](https://media.gettr.com/group34/getter/2022/02/15/01/4ee613eb-5e21-b437-45c7-acabbd5bd2ee/out.jpg)
-
----
-
-`@miles 2/14/2022 11:00 PM (UTC)`
-
-2/14/2022 Miles Guo’s GETTR: Only the Lao Baixing in the civilized countries can speak up and rise up against the COVID vaccine mandate. The Winter Olympics and the incident of Eileen Gu and her mother has pitted the overseas Chinese against the entire world. Weijian Shan, who covers up for the CCP, has swindled countless pension funds across the globe. If the CCP and communism are not eliminated, there will be no peace in the world.<br/><br/>2/14/2022 文贵盖特：只有文明国家的老百姓才能发声并反抗强打疫苗；冬奥会和谷爱凌母女让海外华人与全世界对立；替共产党洗地的单伟建骗了全世界无数养老金；中共和共产主义不灭，世界永无和平<br/>
-![img](https://media.gettr.com/group9/getter/2022/02/14/22/34250528-372e-2e51-da1b-8b1f3ac908a5/out.jpg)
 
 ---
 

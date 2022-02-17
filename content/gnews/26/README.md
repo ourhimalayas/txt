@@ -2,20 +2,25 @@
 ---
 
 
-## 日本麒麟公司宣布退出中共国饮料业务
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2017251/)
+## 特鲁多紧急状态法创加拿大历史之最
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2017465/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-31.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fi.ytimg.com%2Fvi%2FAGFr5sPLLxs%2Fmaxresdefault.jpg&amp;imgrefurl=https%3A%2F%2Fwww.youtube.com%2Fwatch%3Fv%3DAGFr5sPLLxs&amp;tbnid=0_lnLs1CH39n6M&amp;vet=12ahUKEwir_J3_voT2AhXad94KHSxSA_kQMyguegUIARD2AQ..i&amp;docid=JM)
-2月16日《共同通信》在线消息，麒麟控股（HD）今天宣布，它将退出与中共国华润集团共同经营的饮料业务。公司将以约1150亿日元的价格把其在合资企业中的全部股份转让给一家与中共国投资基金有关联的公司。在中共国的啤酒业务还将继续。
+加拿大温哥华杨帆农场 枫叶快讯
 
-本月14日麒麟公司刚刚宣布退出缅甸的啤酒业务。公司将重新审视海外战略，继续选择和集中业务。麒麟在2011年入股时出资约330亿日元，拥有了40%的股份。该公司的主要产品是矿泉水，同时还生产和销售由麒麟饮料公司生产的下午茶。
+采编：青青         编译撰稿：文莱
+![卡车司机车队抗议议会](https://www.ctvnews.ca/polopoly_fs/1.5780301.1644848006!/httpImage/image.jpg_gen/derivatives/landscape_960/image.jpg)图片来源：ctv
+据加拿大【CTV新闻】2月14日报道，总理特鲁多创造了联邦政府历史之最，成为该国第一位宣布公共秩序进入紧急状态而启用【紧急状态法】，并试图以此镇压自由车队和平抗议活动的领导人。
 
-信息源：[キリン、中国の清涼飲料事業撤退　海外戦略見直し](https://news.yahoo.co.jp/articles/cd93b7c4b1766e8df7048f89354b43666904418d#:~:text=%E3%82%AD%E3%83%AA%E3%83%B3)
+报道称，特鲁多政府正在扩张权力推进一系列广泛新措施，包括从禁止参加被视为破坏和平且超出合法抗议范围的公共集会，到授权金融机构从根本上停止抗议活动的融资以及在没有法院命令的情况下立即冻结或暂停示威者的关联账户等，以此支持目前面临持续示威的省、市和警察部队，同时打击更具系统性的示威抗议活动。并对违反该法令的人处以最高5,000加元的罚款或最高五年的监禁。
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+据悉，最后一次启用[紧急状态法]是在1970年的十月危机期间。该法案规定：当联邦政府在公共福利和秩序，国际以及战争的紧急情况下，可以越权采取特别应对行动。因此该法案素有“最后的手段”之称。
+
+校对编辑：硫酸羟氯喹64
+
+发文：青青
+
+原文链接： [Trucker convoy: What invoking the Emergencies Act means | CTV News](https://www.ctvnews.ca/politics/the-emergencies-act-has-been-enacted-here-s-what-that-means-1.5781457)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

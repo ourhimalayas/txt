@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：共党在海外安排的组织
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2017543/)
+## 七哥金句：投资法则
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2017692/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句4-7.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句5-9.jpg)
 整理：雅典娜农场
 发布：枫叶红了
 

@@ -2,50 +2,30 @@
 ---
 
 
-## 魁北克省媒体刊登漫画，揭露特鲁多Trudeau《紧急状态法》阴招
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2016904/)
+## 瑞士取消疫苗护照和几乎所有 COVID-19 限制
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2016992/)
 
-**编译及评论：16626**
+**编译: 真北007**
 
-**特鲁多Trudeau的《紧急状态法》阴招**
+来自POLITICO EU 二月十六日的新闻报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/6C245CA6-31E0-4A65-8364-D7F898041FAE.jpeg)**图片来源：**https://www.politico.eu
+瑞士人将不再需要出示 COVID 证书，但一些小防疫措施可能会持续到 3 月下旬。
 
-加拿大魁北克省的蒙特利尔日报（雅尼克•勒梅 Yannick Lemay, 蒙特利尔日报，2022 年 2 月 15 日）发表如下一张漫画图片:
-![](https://assets.gnews.org/wp-content/uploads/2022/02/5C89FA14-BDEE-4410-8E67-5CF3E0B2FAED.png)**图片来源：雅尼克•勒梅 Yannick Lemay, 蒙特利尔日报（2022 年 2 月 15 日）**
-**图片来源：雅尼克•勒梅 Yannick Lemay, 蒙特利尔日报（2022 年 12月 15 日）**
+瑞士政府周三宣布，将从周四午夜起取消几乎所有大流行限制，人们相信 COVID-19 感染率已成功与住院治疗脱钩。
 
-**更厉害的是这些人**
+瑞士人将不再需要在餐馆、酒吧或剧院和音乐厅等其它场所出示新冠病毒证书。但是对感染 COVID-19 的人的自我隔离要求将一直保留到 3 月底，在访问医疗机构和乘坐公共交通工具时戴口罩的要求也将继续有效。
 
-在漫画家，雅尼克•勒梅 Yannick Lemay的漫画中的文字显示：没有军队…，更厉害的是这些人…。
+瑞士总统伊格纳齐奥·卡西斯（Ignazio Cassis）在伯尔尼举行的新闻发布会上说：“瑞士正在朝着正常化迈出了决定性和重要的一步” ，“病毒还在那里，但我们正在学习如何与病毒共存”。
 
-在漫画中显示，加拿大总理，贾斯汀·特鲁多（Justin Trudeau），手指着身后的几个人，“银行”，“金融机构监督委员会”，…。
+新政策还结束了对私人聚会规模的限制，而政府表示，当局将继续为想要出国旅行的瑞士居民提供欧盟认可的 COVID 证书。
 
-**冻结反对强制疫苗抗议者的银行账户**
+瑞士加入了越来越多的欧洲国家行列，取消了几乎所有与大流行相关的限制，包括丹麦、荷兰、挪威和瑞典。
 
-根据Express UK报道，加拿大总理，贾斯汀·特鲁多（Justin Trudeau），要冻结反对强制疫苗抗议者的银行账户。
-
-魁北克省媒体刊登多幅漫画报道反强制疫苗抗议活动，例如，
-
-1. Gnews, 2022 年 1 月 28 日，《魁北克省媒体刊登第二张支持自由车队卡车司机抗议活动的漫画，[https://gnews.org/zh-hans/1926233/](https://gnews.org/zh-hans/1926233/)   》
-
-2. Gnews, 2022 年 1 月 27 日，《魁北克省媒体刊登2022自由车队卡车司机抗议活动的漫画，[https://gnews.org/zh-hans/1920342/](https://gnews.org/zh-hans/1920342/)  》
-
-3. Gnews, 2022 年 1 月 26 日，《魁北克省媒体刊登冠以极具政治敏感性标题：“公民不服从”的漫画，[https://gnews.org/zh-hans/1916348/](https://gnews.org/zh-hans/1916348/) 》
-
-**小土豆完全是痴心的疯子**
-
-在2022年02月09日文贵大直播中，七哥讲到：
-
-“…被共产党及完全失败的人控制着，小土豆完全是痴心的疯子。共产党希望加拿大和美国越乱越好，但这正不是我们希望发生的。”
-
-加拿大总理，贾斯汀·特鲁多（Justin Trudeau），想学中共，使出下三滥的阴招，是难以得逞的。我们谴责并反对暴力示威，更反对政府借用下三滥的阴招施暴于人民。
+根据政府官方数据，本周瑞士医院的入住率为 81.9%，尽管其中只有约 8% 是由 COVID-19 造成的，而实验室确诊病例的 7 天滚动平均值已降至每 10 万居民 250 人。超过 70% 的瑞士人口至少接种过一剂疫苗。
 
 **原文链接：**
 
-1. 蒙特利尔日报，Le Journal De Montreal，雅尼克·勒梅 Yannick Lemay,  2022 年 2 月 15 日，La caricature d’Ygreck，
-
-[La caricature d’Ygreck](https://www.journaldemontreal.com/2022/02/15/la-caricature-dygreck)
-
-2. [Justin Trudeau slammed for vowing to freeze anti-mandate protesters’ bank accounts](https://www.express.co.uk/news/world/1566380/Justin-Trudeau-freedom-convoy-freeze-bank-account-emergency-power-protest-covid-mandate)
+[Switzerland lifts almost all COVID-19 restrictions](https://www.politico.eu/article/switzerland-lifts-almost-all-covid-19-restrictions/)
 
 **编辑：LILY**
 
