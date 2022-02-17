@@ -2,46 +2,24 @@
 ---
 
 
-## 突发：华盛顿特区终止疫苗和口罩强制令
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2017469/)
+## 【秘翻在线】美国谴责中共未履行其世贸组织承诺
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2017483/)
 
-[https://gtv.org/video/id=620d15e1b0af02660af45506](https://gtv.org/video/id=620d15e1b0af02660af45506)
+#### 翻译/撰稿：zzballack
 
-Much better place now to announce adjustments to that winter action plan
-现在是宣布调整（COVID-19）冬季行动计划的更好地步
+#### 校对：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1616.png)       图片来源：日经亚洲
+据《新闻极限》（Newsmax）2月16日报道，本周三（2月16日），美国贸易代表办公室（USTR）发布了有关中共自2001年加入世贸组织后、履行相关承诺情况的年度报告。他们在报告中谴责中共没有兑现其加入WTO时向外国竞争开放市场的承诺，并呼吁拜登政府采取措施，以应对中共由国家主导的非市场政策和经济行为。
 
-First, the expiration of the indoor mask mandate will happen on Feb 28,
-首先，室内口罩规定将于2月28日到期
+美国贸易代表戴琪（Katherine Tai）在声明中说：“相反，中共保留并扩大了国家主导的非市场经济和贸易方式。中共的政策和行为挑战了世贸组织规则的前提，对世界各地的工人和企业造成了严重伤害，特别是在中共产业计划中所针对的行业。”
 
-and as of March 1st, the district’s indoor mask requirements will be dialed back.
-自3月1日起，该市（华盛顿特区）的室内口罩要求将被取消
+报告列举了中共不公平的经贸行为：利用补贴和法规，以牺牲外国竞争者为代价，偏袒本国公司；用廉价的钢铁、铝和其他产品充斥世界市场；迫使美国和其他外国公司交出宝贵的技术以换取进入中国市场。中共长期无视并规避世贸组织规则，以及采取不公平、非市场与扭曲的贸易政策，并企图阻扰世贸组织监督机制。报告写道，中共领导层似乎对由政府主导的非市场经济和贸易政策信心十足，并认为没有必要遵守全球规则。
 
-You of course know that DC health will maintain its advisories according to the level of spread
-您当然知道特区卫生局将根据（疫情）传播程度维持其建议
+美国贸易代表办公室建议，美国必须更新现有的国内贸易法规，以应对中共当前的贸易政策。拜登政府会继续寻求与中共的双边接触，并采取更明确的国内贸易措施，确保美国劳工与企业有更公平的竞争环境；同时与盟友更紧密合作，并通过世贸组织向中共政府施加压力。
 
-and you can go to coronavirus.dc.gov on any given day to find out what that level of spread is
-您可以在任何一天访问CORONAVIRUS.DC.GOV了解（疫情）传播程度
+评估报告还指出，中共未达成与前总统川普政府签署的“美中第一阶段贸易协议”的采购目标。彼得森国际经济研究所(Peterson Institute for International Trade)上周的一份报告指出，中共只购买了其承诺的美国出口产品的57%。
 
-原视频链接:[https://gtv.org/video/id=620d15e1b0af02660af45506](https://gtv.org/video/id=620d15e1b0af02660af45506)
-
-Date:02/15/2022
-原视频标题: BREAKING: Washington, D.C. to end vaccine and mask mandates
-突发：华盛顿特区终止疫苗和口罩强制令
-原视频日期：2022/02/14
-原视频链接:[https://gtv.org/video/id=620d15e1b0af02660af45506](https://gtv.org/video/id=620d15e1b0af02660af45506)
-任务编号：KE404（3761）
-视频时间段 : 0:00-00:45
-
-英听校: 洛杉矶盘古农场 – Raul
-翻译：洛杉矶盘古农场 – Raul
-翻译终校：洛杉矶盘古农场 – Mick Li
-字幕+视频制作：洛杉矶盘古农场-Jambo
-审片：洛杉矶盘古农场- 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+新闻来源：[US Accuses China of Backing Away From Free-trade Commitments](https://www.newsmax.com/streettalk/china-u-s-trade-wto/2022/02/16/id/1057063/)
 
  
 

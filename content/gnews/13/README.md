@@ -2,33 +2,20 @@
 ---
 
 
-## 文贵先生向美国法院正式申请破产
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2017632/)
+## 七哥的智慧
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2017664/)
 
-撰稿：小雨
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Clipboard03.jpg)[盖特直播链接](https://gettr.com/post/puz0m5711c)
-2 月 16 日（路透社）报道，一份法庭文件显示，中国商人郭文贵向位于布里奇波特（Bridgeport）的美国破产法庭申请个人破产保护。文贵先生签署破产文件时，同时在Gettr上直播了签字过程。“从这一刻起，由于中共的迫害，我个人破产了，”他说。
+#### 视频剪辑: WinterGuo ，开智则立 ，0-0 ，rmrf ，Qingjing ，玉米地的小蜗牛 ，牛魔王 视频定位：BENJ1，WEI
 
-郭先生在破产申请中列出的资产在 50,001 美元至 10万美元之间，负债在 1 亿美元至 5 亿美元之间。
+*发布：陶子*
 
-在文贵先生所有债权的债权人名单中，他将太平洋联盟亚洲机会基金列为最大的债权人，约2.54亿美元。该基金因涉嫌在 2008 年至 2011 年期间借入的价值 8800 万美元的未偿贷款而起诉郭先生，该基金已在纽约州法院立案并审理了4年。2月10日，纽约州法院判决文贵先生要在5填内支付1.34亿美元的罚款。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-去年9 月，美国证券交易委员会以非法向投资者出售股票和数字资产的罪名对与郭先生有关联的 3 家媒体公司处以 5.39 亿美元的罚款。
-
-参考新闻链接：[Chinese businessman Guo Wengui files for bankruptcy in U.S. court](https://www.reuters.com/markets/us/chinese-businessman-guo-wengui-files-bankruptcy-us-court-2022-02-16/)
-
-**特战后续报道**：
-
-文贵先生在几天前的直播中就几度透露要申请破产。今天，文贵先生签署了申请破产的文件。
-
-文贵先生在2月16日的大直播中表示，
-
-*关于七哥签署破产申请文件的过程是兴奋的，这绝对是七哥用鲜血和生命给爆料革命战友换来的安全方式。这也是西方法律的伟大。中共国只有红绿灯没有黄灯，这里七哥的破产就是黄灯。不管有多黑暗、如何被击倒，在黑暗面前，坚持相信你自己，做你自己，不要放弃。塞翁失马，焉知非福。天下路不是只有一条，只要活着，什么都有机会，对待敌人的方法，要懂得战略战术，才能用对功夫，否则都是失败者。*
-
-*一个破产的人，让很多人成为了富豪，是多伟大的传奇。因为我们有共同的信仰，叫新中国联邦，而且我们有了人类无限的希望，我们是“无苗”族，它的伟大超过了一切。从这点看，七哥破产的价值是巨大的。遇难成祥还能成机会。个人破产跟家族没有任何关系。美国很崇拜倒地又站起来的人。泰森、川普、林肯都破过产，七哥的破产律师全美第一，他看这案子都认为是不可思议的，同时认为，我都破产了，G系列、盖特依然发展壮大，所有跟随者都成为富豪，这是何其伟大。*
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
