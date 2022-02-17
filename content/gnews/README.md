@@ -15,104 +15,104 @@
 
 ---
 
-### [醉驾超速撞死华人的烈市女司机假释出狱](/content/gnews/1/README.md)
+### [联邦调查局组建数字货币部门，司法部启用新的加密货币执法团队](/content/gnews/1/README.md)
+ ` 温哥华扬帆农场`
+
+### [醉驾超速撞死华人的烈市女司机假释出狱](/content/gnews/2/README.md)
  ` MG FARM`
 
-### [根据 2022-2024 年移民水平计划，加拿大将 2022 年移民目标提高到 432,000 人](/content/gnews/2/README.md)
+### [根据 2022-2024 年移民水平计划，加拿大将 2022 年移民目标提高到 432,000 人](/content/gnews/3/README.md)
  ` MG FARM`
 
-### [多伦多市中心受 Omicron 限制的打击最为严重，销售下降了 44%](/content/gnews/3/README.md)
+### [多伦多市中心受 Omicron 限制的打击最为严重，销售下降了 44%](/content/gnews/4/README.md)
  ` MG FARM`
 
-### [在奥沙瓦发现的坎迪斯·菲茨帕特里克的遗体； 被定罪的杀手带领警察找到遗体](/content/gnews/4/README.md)
+### [在奥沙瓦发现的坎迪斯·菲茨帕特里克的遗体； 被定罪的杀手带领警察找到遗体](/content/gnews/5/README.md)
  ` MG FARM`
 
-### [渥太华车队支持者称不怕紧急状态法](/content/gnews/5/README.md)
+### [渥太华车队支持者称不怕紧急状态法](/content/gnews/6/README.md)
  ` MG FARM`
 
-### [安省男子在 Instagram 骗局中损失 2,700 元](/content/gnews/6/README.md)
+### [安省男子在 Instagram 骗局中损失 2,700 元](/content/gnews/7/README.md)
  ` MG FARM`
 
-### [面包店因向车队捐赠而面临威胁和骚扰](/content/gnews/7/README.md)
+### [面包店因向车队捐赠而面临威胁和骚扰](/content/gnews/8/README.md)
  ` MG FARM`
 
-### [安省今天起彻底开放](/content/gnews/8/README.md)
+### [安省今天起彻底开放](/content/gnews/9/README.md)
  ` MG FARM`
 
-### [2022年2月16日 《文贵大直播》全文字版](/content/gnews/9/README.md)
+### [2022年2月16日 《文贵大直播》全文字版](/content/gnews/10/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [多伦多发布极寒警告：今夜有25厘米暴雪](/content/gnews/10/README.md)
+### [多伦多发布极寒警告：今夜有25厘米暴雪](/content/gnews/11/README.md)
  ` MG FARM`
 
-### [波罗的海三国也有春天](/content/gnews/11/README.md)
+### [波罗的海三国也有春天](/content/gnews/12/README.md)
  ` 澳喜农场`
 
-### [新西兰财经G乐部2022年2月17日:财经新闻整理](/content/gnews/12/README.md)
+### [新西兰财经G乐部2022年2月17日:财经新闻整理](/content/gnews/13/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [警察和抗议者同样渴望人权,自由](/content/gnews/13/README.md)
+### [警察和抗议者同样渴望人权,自由](/content/gnews/14/README.md)
  ` 纽约香草山MOS02`
 
-### [特鲁多专制特权令加拿大皇家骑警将34个加密货币钱包列入黑名单](/content/gnews/14/README.md)
+### [特鲁多专制特权令加拿大皇家骑警将34个加密货币钱包列入黑名单](/content/gnews/15/README.md)
  ` 温哥华扬帆农场`
 
-### [芯片 运输 能源价格将暴涨 美国几乎已拿下东欧](/content/gnews/15/README.md)
+### [芯片 运输 能源价格将暴涨 美国几乎已拿下东欧](/content/gnews/16/README.md)
  ` 焦點20分`
 
-### [银行是人类金钱最大的骗局 世界唯一没有价格操纵的币就是喜币](/content/gnews/16/README.md)
+### [银行是人类金钱最大的骗局 世界唯一没有价格操纵的币就是喜币](/content/gnews/17/README.md)
  ` 焦點20分`
 
-### [荷兰告别了大流行病：取消Covid护照、口罩、距离限制](/content/gnews/17/README.md)
+### [荷兰告别了大流行病：取消Covid护照、口罩、距离限制](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [马斯克暗讽竟把杜鲁多比作希特勒](/content/gnews/18/README.md)
+### [马斯克暗讽竟把杜鲁多比作希特勒](/content/gnews/19/README.md)
  ` MG FARM`
 
-### [2/16/2022 文贵直播：喜联储已跻身全球第四大数字货币交易所；喜币不受第三方掠夺、无国界限制且每年发行数量有限](/content/gnews/19/README.md)
+### [2/16/2022 文贵直播：喜联储已跻身全球第四大数字货币交易所；喜币不受第三方掠夺、无国界限制且每年发行数量有限](/content/gnews/20/README.md)
  ` 秘密翻译组-北美组`
 
-### [喜币场外交易额和喜联储KYC量再创新高](/content/gnews/20/README.md)
+### [喜币场外交易额和喜联储KYC量再创新高](/content/gnews/21/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [从“8孩锁链女”事件见微知著知中共已穷途末路](/content/gnews/21/README.md)
+### [从“8孩锁链女”事件见微知著知中共已穷途末路](/content/gnews/22/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [今日盖特大V推荐 — 埃里克·泽穆尔（Éric Zemmour）](/content/gnews/22/README.md)
+### [今日盖特大V推荐 — 埃里克·泽穆尔（Éric Zemmour）](/content/gnews/23/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [拜登警告普京，入侵乌克兰将带来“严重后果”](/content/gnews/23/README.md)
+### [拜登警告普京，入侵乌克兰将带来“严重后果”](/content/gnews/24/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [维加诺大主教：亲爱的加拿大兄弟们，愿你们的活动获得成功，时至今日我们已经看到世界各国的暴君们正在逐渐失去力量](/content/gnews/24/README.md)
+### [维加诺大主教：亲爱的加拿大兄弟们，愿你们的活动获得成功，时至今日我们已经看到世界各国的暴君们正在逐渐失去力量](/content/gnews/25/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [研究表明中共病毒疫苗百害而无一利](/content/gnews/25/README.md)
+### [研究表明中共病毒疫苗百害而无一利](/content/gnews/26/README.md)
  ` NFSC News`
 
-### [樱花FM┃新闻述评：北京冬奥会开幕惊闻普京随从保镖感染病毒](/content/gnews/26/README.md)
+### [樱花FM┃新闻述评：北京冬奥会开幕惊闻普京随从保镖感染病毒](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [NFSC新闻、G|TV新闻访谈简报|2022年2月17日早](/content/gnews/27/README.md)
+### [NFSC新闻、G|TV新闻访谈简报|2022年2月17日早](/content/gnews/28/README.md)
  ` 纽约香草山MOS01`
 
-### [同是印度 是否使用伊维菌素死亡率相差405倍](/content/gnews/28/README.md)
+### [同是印度 是否使用伊维菌素死亡率相差405倍](/content/gnews/29/README.md)
  ` 温哥华扬帆农场`
 
-### [秘翻在线：阿联酋批准给虚拟资产服务商国家牌照以吸引全球数字货币巨头加入](/content/gnews/29/README.md)
+### [秘翻在线：阿联酋批准给虚拟资产服务商国家牌照以吸引全球数字货币巨头加入](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [加拿大司法部长称将进行投票的紧急法应遵守权利和自由宪章](/content/gnews/30/README.md)
+### [加拿大司法部长称将进行投票的紧急法应遵守权利和自由宪章](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：中共为什么如此气愤美国依法没收阿富汗中央银行在美财产？](/content/gnews/31/README.md)
+### [秘翻在线：中共为什么如此气愤美国依法没收阿富汗中央银行在美财产？](/content/gnews/32/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [樱花FM┃加拿大总理特鲁多在奥运会开幕之际 批评中共国人权记录](/content/gnews/32/README.md)
+### [樱花FM┃加拿大总理特鲁多在奥运会开幕之际 批评中共国人权记录](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [【TopNews】美军担忧中共国可能会利用乌克兰危机](/content/gnews/33/README.md)
- ` topnews`
 
 ### [西班牙七家商业实体接受HPay交易](/content/gnews/34/README.md)
  ` NFSC News`

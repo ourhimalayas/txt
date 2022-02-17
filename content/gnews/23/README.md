@@ -2,34 +2,25 @@
 ---
 
 
-## 拜登警告普京，入侵乌克兰将带来“严重后果”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2021361/)
+## 今日盖特大V推荐 — 埃里克·泽穆尔（Éric Zemmour）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2021362/)
 
-据《华盛顿观察家报》作者：Virginia Aabram 2022年2月12日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1651.png)图片来源：美联社
-总统乔·拜登在周六早上的电话中，警告俄罗斯总统弗拉基米尔·普京，入侵乌克兰将对俄罗斯造成“严重后果”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/026.png)
+盖特链接：[**https://gettr.com/user/zemmoureric**](https://gettr.com/user/zemmoureric)
 
-据一位高级政府官员称，尽管此次电话交谈并未带来俄罗斯与北约（NATO）之间日益紧张的关系所特有的“动态的根本变化”，但拜登重申，一旦俄罗斯入侵乌克兰，美国将支持乌克兰。
+埃里克·泽穆尔自述：
 
-“我们仍致力于保持事态降级和外交关系前景的生机活力。但我们​​也清楚地看到，鉴于俄罗斯在我们眼前采取的显而易见的步骤，我们这样做的风险太高，必须给予俄罗斯一切机会来避免采取我们认为将是灾难性的行动”。拜登政府的一位发言人补充说，“我们正在加紧努力以威慑俄罗斯，一旦它决定采取军事行动，我们将让它付出代价。”
+法国总统候选人
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1652.png)图片来源：网络
+埃里克·泽穆尔简介：
 
-拜登与普京就确保美国在乌克兰的美国人安全的计划“非常直接”，他还强调了与俄罗斯的孤立无援相比，北约力量已形成统一战线。
+埃里克·泽穆尔（法语：Éric Zemmour，1958年8月31日－）是犹太人，法国政治记者，散文家，作家，电视评论员。自2019至2021年期间，他是 CNews 电视台每日“Face à l’Info（面对新闻）”节目的编辑和参与者。其反对者及左派和极左派新闻媒体将泽穆尔描述为右派到极右派，而泽穆尔在政治上自我认同为戴高乐主义者和波拿巴主义者。
 
-“无论如何，俄罗斯都可能决定采取军事行动。确实，这是极有可能的。如果确实如此，那么对乌克兰、欧洲的安全，以及对俄罗斯的损害将是长远的。”这位发言人说，“这是拜登总统认为我们应该继续努力避免的结果。”
+埃里克·泽穆尔自建新党“收复失地党（Reconquete）”参加2022法国总统大选，川普总统力挺泽穆尔，他也有法国人民的支持，成为马克龙强有力的竞争对手。
 
-美国最近宣布将撤离驻乌克兰大使馆，因为军事行动可能随时开始。
-
-文章来源：[https://www.reuters.com/business/healthcare-pharmaceuticals/netherlands-set-announce-strict-christmas-lockdown-media-2021-12-18/](https://www.reuters.com/business/healthcare-pharmaceuticals/netherlands-set-announce-strict-christmas-lockdown-media-2021-12-18/)
-
-翻译：洛杉矶盘古农场 – maru
-
-校对：洛杉矶盘古农场 – Wendy
-
-评论：洛杉矶盘古农场 – maru
-
-编辑：洛杉矶盘古农场 – Wend
-
-
+编撰：洛杉矶盘古农场 — 郭友(文苏)
+校审：洛杉矶盘古农场 — 心照
+发布：洛杉矶盘古农场 — 恩典
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
