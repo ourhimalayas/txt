@@ -15,103 +15,103 @@
 
 ---
 
-### [曾被认为是敌人的一位重要人士亲自参与协调HPay上线](/content/gnews/1/README.md)
+### [喜支付系统里没有统治和纳税,所有价值是双方的信和用](/content/gnews/1/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [反对小土豆镇压自由车队 人们到加拿大驻美领事馆抗议](/content/gnews/2/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [七哥最恨中国人看不得别人好,别人一好就像挖他家祖坟](/content/gnews/3/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [HPay实现不用衡量没有定价规则贸易下最原始最高境界](/content/gnews/4/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [HPay采用独有的无物理行为无中心化支付货币加密系统](/content/gnews/5/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [HPay核心功能是无条件交易支付和零交易费的加密系统](/content/gnews/6/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [中日财经爆┃惠誉评级称全球通胀带来主权债务比率最大降幅](/content/gnews/7/README.md)
+### [福奇要跳船了 称要慎重考虑是否打第四针](/content/gnews/2/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [HPay实现在线支付而非在线买卖,约定式付款与交易无关](/content/gnews/8/README.md)
+### [人类从没像今天这样花钱比挣钱还难,越花越少,重复征税](/content/gnews/3/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [樱花深度报道┃反习文章海内外广泛传播 昭示习连任危机与中共灭亡](/content/gnews/9/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [黑孜然籽油的百里锟Thymoquinone (TQ) 含量比较](/content/gnews/10/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [H-Pay上线大家全傻眼,进入游戏规则彻底改变的新时代](/content/gnews/11/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [战友们和喜联储都看到结果而很难掌握背后的原因和情况](/content/gnews/12/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [樱花灭共诗——中共造假冬奥现形记（新韵）](/content/gnews/13/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [五角大楼称俄罗斯战机拦截美国海军飞机](/content/gnews/14/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [七哥会一直唱歌不停直到灭了共,最后到山里跟战友们练歌](/content/gnews/15/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [丰县被拐卖妇女离婚申诉屡遭法院拒绝 当地常现女尸](/content/gnews/16/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [郭文贵直播摘要和音频 2022.02.16](/content/gnews/17/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [亚马逊被要求赔偿因披露强迫劳动而入狱的中共维权人士](/content/gnews/18/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [单日死亡超200人！日本越打疫苗死亡率越高](/content/gnews/19/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [樱花FM┃日本首相官邸接连有人确诊 感染者曾与岸田会面](/content/gnews/20/README.md)
- ` 樱花FM`
-
-### [有声｜泽连科医生指出三种方式导致更多中共病毒变种](/content/gnews/21/README.md)
+### [有声｜郭文贵先生公布喜系列三大利好消息](/content/gnews/4/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [美国加大制裁中共国军事公司的力度](/content/gnews/22/README.md)
+### [人生最大的财富就是跳出自己的误区和被别人设计的误区](/content/gnews/5/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [郭文贵先生宣布的三件利好大事](/content/gnews/6/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [有声｜两年爆发5轮疫情 内蒙古满洲里再封城](/content/gnews/7/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [HPay的上线最希望体制内人看到以钱灭共以共灭共的开始](/content/gnews/8/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [曾被认为是敌人的一位重要人士亲自参与协调HPay上线](/content/gnews/9/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [反对小土豆镇压自由车队 人们到加拿大驻美领事馆抗议](/content/gnews/10/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [小议喜币和智慧](/content/gnews/11/README.md)
+ ` 纽约香草山MOS03`
+
+### [七哥最恨中国人看不得别人好,别人一好就像挖他家祖坟](/content/gnews/12/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [HPay实现不用衡量没有定价规则贸易下最原始最高境界](/content/gnews/13/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [HPay采用独有的无物理行为无中心化支付货币加密系统](/content/gnews/14/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [HPay核心功能是无条件交易支付和零交易费的加密系统](/content/gnews/15/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [中日财经爆┃惠誉评级称全球通胀带来主权债务比率最大降幅](/content/gnews/16/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [HPay实现在线支付而非在线买卖,约定式付款与交易无关](/content/gnews/17/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [樱花深度报道┃反习文章海内外广泛传播 昭示习连任危机与中共灭亡](/content/gnews/18/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [黑孜然籽油的百里锟Thymoquinone (TQ) 含量比较](/content/gnews/19/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [H-Pay上线大家全傻眼,进入游戏规则彻底改变的新时代](/content/gnews/20/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [五角大楼称俄罗斯战机拦截美国海军飞机](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [印度税务部门对华为多处办公室展开偷漏税搜查](/content/gnews/23/README.md)
+### [丰县被拐卖妇女离婚申诉屡遭法院拒绝 当地常现女尸](/content/gnews/22/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [亚马逊被要求赔偿因披露强迫劳动而入狱的中共维权人士](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [樱花FM┃中日财经爆:美国将中共国进口光伏设备关税延长4年](/content/gnews/24/README.md)
+### [有声｜泽连科医生指出三种方式导致更多中共病毒变种](/content/gnews/24/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [美国加大制裁中共国军事公司的力度](/content/gnews/25/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [印度税务部门对华为多处办公室展开偷漏税搜查](/content/gnews/26/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [樱花FM┃中日财经爆:美国将中共国进口光伏设备关税延长4年](/content/gnews/27/README.md)
  ` 樱花FM`
 
-### [DC大中华时事：中共称在欧亚大棋局地位愈发重要](/content/gnews/25/README.md)
+### [DC大中华时事：中共称在欧亚大棋局地位愈发重要](/content/gnews/28/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [福奇的机构拒绝国会委员会要求其提供武毒所赠款文件](/content/gnews/26/README.md)
+### [福奇的机构拒绝国会委员会要求其提供武毒所赠款文件](/content/gnews/29/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共国江浙地区疫情大封锁](/content/gnews/27/README.md)
+### [中共国江浙地区疫情大封锁](/content/gnews/30/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [多數人認為特魯多不能勝任國家領導職責](/content/gnews/28/README.md)
+### [多數人認為特魯多不能勝任國家領導職責](/content/gnews/31/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [有声|最后的疯狂](/content/gnews/29/README.md)
+### [有声|最后的疯狂](/content/gnews/32/README.md)
  ` MOSREC`
 
-### [有声|喜联储、喜币与传统银行的本质区别](/content/gnews/30/README.md)
- ` MOSREC`
-
-### [有声| 还原一代科技宗师叶企孙先生所遭受的共产主义迫害](/content/gnews/31/README.md)
- ` MOSREC`
-
-### [有声|中资企业拟收购澳洲稀土公司](/content/gnews/32/README.md)
- ` MOSREC`
-
-### [有声|新中国联邦新闻、GTV新闻访谈简报|2022年2月14日晚](/content/gnews/33/README.md)
+### [有声|喜联储、喜币与传统银行的本质区别](/content/gnews/33/README.md)
  ` MOSREC`
 
 ### [英实验室稱中共病毒疫苗含氧化石墨烯](/content/gnews/34/README.md)

@@ -2,14 +2,18 @@
 ---
 
 
-## 有声|新中国联邦新闻、GTV新闻访谈简报|2022年2月14日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2018387/)
+## 有声|喜联储、喜币与传统银行的本质区别
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2018390/)
 
 配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-13.png)
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+郭文贵先生在2月13日的大直播中，分别对喜联储、喜币与传统银行的本质区别进行了解读。
 
+郭先生认为，首先，法币会增发，政府增发货币，会让民众存在银行的钱被稀释。而喜币一年就发行10亿枚，多发一枚都可能是违法行为；其次，人们普遍忽略的一个最重要的关键是，政府有不兑现法币的权利，但喜币，是与美元挂钩的稳定币；另外，法币只是一个中介，由第三方经营，它不是点对点的。而喜币和喜美元是点对点交易，喜联储不能控制，也没有任何权利进行干预；最后，喜币没有成本，但法币的印刷、发行都是有成本的。
 
-文字版原文：[新中国联邦新闻、GTV新闻访谈简报|2022年2月14日晚](https://gnews.org/zh-hans/2006425/)
+郭先生强调，造成这四个本质区别的基础，就是政府随意的超发法币，而喜币的白皮书率先向世界公布发行量，并且绝对不会超发。
+
+文字版原文：[喜联储、喜币与传统银行的本质区别](https://gnews.org/zh-hans/2010316/)
 
 音频处理：呼吸的雾霾（文小呼吸）
 发稿：呼吸的雾霾（文小呼吸）

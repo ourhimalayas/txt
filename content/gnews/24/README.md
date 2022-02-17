@@ -2,26 +2,27 @@
 ---
 
 
-## 樱花FM┃中日财经爆:美国将中共国进口光伏设备关税延长4年
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2018554/)
+## 有声｜泽连科医生指出三种方式导致更多中共病毒变种
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2018984/)
 
-音频：东京樱花团/战友520
-![](https://lh5.googleusercontent.com/kSITld5sXRbahkrIJ4KYZr2i_Uvl_6fZ-OwiD1ZYNVeknihvpV3bnX9gZETeNzC4e2px8AizTakJEGRtkU-wPsSSdNXRxlQOGuSzNF_KUR7_FtppC5ljcEBF0xEwOE1qZ9s1Xs8C)
-美国总统拜登周五（2月4日）将川普时期主要针对中共国的进口光伏设备关税延长四年，但作为对安装商的一项重大让步，拜登也放宽了条款，将在美国大型项目中占据主导地位的面板技术排除在征税范围之外。
+By:**秘翻新闻**
 
-根据白宫声明，这项延长四年的关税豁免了双面太阳能板(bifacial panel)，这种电池板可以两面发电，颇受大型开发商青睐。在川普开始征收关税时，这种技术刚刚起步，但现已用于多数美国大型太阳能设施。
+**2022-02-17**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/10-22.png)图片来源 网络
+据《网关专家》2月16日报道，泽连科医生在受访时指出可能有三种方式造成更多中共病毒变种：首先是每种病毒都会产生突变，这使得病毒更易于生存。因此，某些中共病毒变种以这种方式出现是很自然的。
 
-拜登政府还为来自邻国加拿大和墨西哥的免税供应打开了通道，这两个国家目前占美国的进口量不到1%。
+然后根据免疫学家苏查里特·巴克迪(Sucharit Bhakdi)博士、世界免疫学专家之一的荷兰吉尔特·范登博世(Geert Van Den Bosch)博士、还有因发现 HIV 而获得了 2008 年的诺贝尔奖的法国病毒学家吕克·蒙塔尼耶(Luc Montagnier)博士的说法，如果在大流行期间给人们接种中共病毒疫苗，就会制造出更危险的变种。
 
-前总统川普在2018年使用1974年贸易法案第201条规定的授权，对光伏产品进口产品实施了为期四年的关税措施，一开始税率为30%，在最后一年下降到15%，希望藉此在美国太阳能制造业创造就业机会。
+第三种可能性，尽管泽连科医生表示没有证据，但这是一个合乎逻辑的推论：众所周知，中共病毒是一种人造生物武器，所以最初创造这个武器的人或政党，可以制造更多变体。
 
-这些措施原定2022年2月6日到期，但一些美国太阳能制造商去年寻求延期，认为他们的产品仍然无法与海外制造的商品竞争。这些商品主要来自中共国，在美国市场占据主导地位。他们举出一些不利因素，包括公司在关税生效前的进口囤积、中共病毒（新冠)疫情的经济影响以及成本上涨等。
+新闻来源 [**https://www.thegatewaypundit.com/2022/02/zelenko-vaccines-pandemics-evolutionary-pressure/**](https://www.thegatewaypundit.com/2022/02/zelenko-vaccines-pandemics-evolutionary-pressure/)
 
-文字版原文：[中日财经爆| 美国将中共国进口光伏设备关税延长4年](https://gnews.org/zh-hans/1968066/)
+秘翻新闻 文雀 编译报道
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+发布 : 恩典
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMAGE-2021-12-13-113746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,40 +2,30 @@
 ---
 
 
-## 福奇的机构拒绝国会委员会要求其提供武毒所赠款文件
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2018439/)
+## 印度税务部门对华为多处办公室展开偷漏税搜查
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2018682/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+![印度一名妇女2019年10月在一次移动电信展销会上佩戴华为5G胸章。（路透社）](https://gdb.voanews.com/E750313C-1603-4EF5-BC3A-0D78DA2331B7_w1023_r1_s.jpg)印度一名妇女2019年10月在一次移动电信展销会上佩戴华为5G胸章。（路透社）
+据美国之音2月17日报道，印度税收部门15日对中共国电信设备制造商华为公司在印度的多处办公场所进行突击搜查，调查华为偷漏税。今年1月5日，印度政府表示，经调查发现中共国智能手机巨头小米在印度当地的公司有逃税行为，并要求补缴2017年4月至2020年6月期间的65.3亿卢比，约8800万美元的税金。
 
-翻译/编辑：文泓
+印度政府2月14日以对民众隐私和国家安全构成威胁为由，再次封禁54款与中共国有关联的应用程序(APP)，同时还请谷歌等公司在印度境内的手机应用商店下架这些应用程序。自2020年6月起，印度政府先后封禁300多个与中共国有关联的应用程序，包括抖音、微信海外版等等视频分享社交或直播平台，称这些应用软件对印度的主权、完整及安全构成威胁。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/11-19.png)图片来源：Vanity Fair
+随着中印在边境冲突的加剧，中印关系也陷入紧张状态。世界上任何一个主权国家都会防范其他国家对本国的渗透。华为是偷来的技术，不需要钻研，不需要交税，还有内置的间谍软件。中共的行为破坏了全球的科研市场，扰乱了他国的经济政策，不仅会引来他国的不满，更是为海外华人积累仇恨。其他国家会把对中共的仇恨算到中国人民头上，海外华人会成为出气筒。消灭中共，就是保护海外华人，也是解放全中国人民，是正义的需要。
+
+新闻参考链接：[https://www.voachinese.com/a/indian-tax-authorities-search-premises-of-china-s-huawei-20220216/6444375.html](https://www.voachinese.com/a/indian-tax-authorities-search-premises-of-china-s-huawei-20220216/6444375.html)
+
+编辑：胖丁
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-当地时间2月16日，据《国家脉动》报道，美国国立卫生研究院（NIH）一再未能遵守国会要求提供与其与武汉病毒学研究所有关的文件，而是强迫其机构人员“粉碎笔记和其他文件”，文件涉及奥巴马政府时期的美国政府与中共运营的实验室及其与武汉病毒研究所的合作。
+编辑：【英国伦敦喜庄园编辑部】
 
-共和党众议院监督与改革委员会成员致函卫生与公众服务部(HHS)主任泽维尔·贝塞拉，敦促公布这些文件，**这些文件可能与****新冠病毒的起源高度相关****。**
-
-“HHS和NIH没有对委员会的共和党人保持透明，而是选择隐藏、混淆和掩盖真相，”信中说。
-
-这封信显示，NIH的一名顾问“早在2014年就被NIH强迫要求粉碎了与武毒所赠款有关的笔记和其他文件”。2021年11月5日，一位化名的个人发给委员会工作人员的一封电子邮件显示以下内容：
-
-“我签署了一份保密协议，其中我同意不与任何人讨论任何资助，除非与研究部门的其他成员讨论，并且——一旦会议结束——我将销毁我在会议期间所做的任何笔记（我们确实是将它们扔进会议室的碎纸机中）。”
-
-这封信概述了“迄今为止，HHS和NIH拒绝提供任何回应性文件或信息”。国会一个委员会要求美国国立卫生研究院前主任弗朗西斯·[柯林斯](https://thenationalpulse.com/exclusive/nih-collins-advised-ccp-military-proxy-bgi-genomics/)提供有关2021年5月和7月由安东尼·[福奇的](https://thenationalpulse.com/analysis/exc-navarros-9-indisputable-facts-linking-fauci-to-covid-19-origin/)国家过敏和传染病研究所(NIAID)授予生态健康[联盟](https://thenationalpulse.com/2021/12/23/lancet-editor-admits-daszak-had-significant-conflict-of-interest/)和武毒所的2014年奥巴马时代拨款的文件。
-
-尽管共和党委员会的工作人员一再修改他们的要求，使其范围更广，更容易让联邦机构完成，但两个联邦机构都拒绝交出任何文件。
-
-新闻链接：[U.S. Govt Advisors SHRED Documents Detailing Fauci Agency’s Obama-Era Work With The Wuhan Lab. (thenationalpulse.com)](https://thenationalpulse.com/2022/02/16/nih-refuses-to-comply-with-congressional-doc-request/)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

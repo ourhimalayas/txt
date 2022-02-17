@@ -2,48 +2,56 @@
 ---
 
 
-## H-Pay上线大家全傻眼,进入游戏规则彻底改变的新时代
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2019234/)
+## 小议喜币和智慧
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2019307/)
 
-G-TV视频链接：[https://gtv.org/video/id=620dcfaab0af02660af48fc1](https://gtv.org/video/id=620dcfaab0af02660af48fc1)
+作者：纽约香草山福音部 — 小草
 
-**郭文贵先生：**现在就别提了，H-Pay一上市，大家全傻眼了。我就在两周前，我给投资者中间开会的时候，我说你记住，H-Pay上线以后你会真正懂得，咱走着看，刚才一直给我打电话，从昨天到现在，是真的是GAME CHANGE，真的游戏规则改变了，我说你们不懂。你别以为你们有钱，你们祖宗十二代，从一战时期就有钱了。你们家有金币工厂，有金矿，你们家有银行，你们家有控制这些国家的这总统那总统的，那都是过去。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-3.jpg)
 
-中国大秦朝时候啥样啊，大唐朝时候什么样啊？你到阿富汗去，当年的阿富汗是帝国的时候，阿富汗什么样啊？现在98%的人都没粮食吃，现在每分每钟都在饿死人。
 
-我最讨厌人家一跟我讲，一夹手指头，“哎，我曾经，我过去……”我说：“哎哎哎”这人我“求求你了，你昨天你拉过屎不等于今天也要拉屎，你昨天有媳妇，这一天还真不见得媳妇跟你睡觉。你昨天咋滴昨天？我就说现在和明天吧，好不好？咱们就说这好不好？”所以说那投资委员会说“哎呀我们……Miles不要这么讲嘛，我Grandfather当年创造了什么什么”我说：“你闭嘴闭嘴，你Grandfather你见过吗？你Grand-grandfather你见过吗？你怎么知道那就是你爷爷？你能不能测一下你爷爷跟你DNA是不是一样啊？”这哥们笑就不吱声了。你怎么证明你爷爷就是你爷爷呢？是吧？你证明不了你爷爷就是你爷爷，你就证明不了你今天跟你爷爷一样伟大。你传宗了啥？你连血脉都没传宗啥，那哥们笑。
 
-我说：“咱走着看”。昨天晚上傻球眼了。她说“我拿着H-Pay我买台车，我买了一个雕塑，买了一幅画，然后呢最重要的一件事情，我给我女朋友——这是大概N个女朋友了，她的女朋友能说出来的是可以公开的女朋友，不是“一夜情”，中国人以为“一夜情”，外国人就是没结婚的居住者叫女朋友。但是对不起她是个女的啊，我说的不是个男的，她是个同性同志。
 
-她说我给我女朋友”咔“传过去了，秒到！秒到！太惊讶了，她说她又给我传回来，她传给她是十万，对方传给她九万。她又”咔“给她传过去十万，对方又给她传过去八万。我说：“这个事很好，你给她传的……”——女朋友永远比她少。”她说到最后我女朋友又把所有的钱给我打回来了，我又给她打回去，传着玩。”她说:“不可思议啊，女朋友在希腊，我在英国，一分费用没有。”
 
-字幕来源：[2022年2月2日 《文贵大直播 》全文字版](https://gnews.org/zh-hans/1952328/)
 
-编辑整理：海贼王M.D.LUFFY；
 
-字幕文件制作：Cindy；
 
-视频制作及上传：Cindy；
 
-G-News发布：小满；
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+智慧，一个挺高深的词。但实际上人的独一无二，对他人有帮助的特质都算是智慧。人的形象、创意、表达、叙述、技能、兴趣、注意力、时间 …都算智慧。这是人的专有财产之一。
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+![](https://assets.gnews.org/wp-content/uploads/2022/02/20220104-01.jpg)
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+在中共洗脑下，我们长期对自己的智慧一无所知，智慧被中共定价，多数人的智慧被盘剥。这是一个不公平的状态，必须打碎，喜币给了我们这个机会。今后,我们吃早点的时侯,可以唱着甜蜜蜜,打开盖特直播视频,大发对锁链女事件的愤怒,同步有人进语音房打赏喜币,喜币把人的智慧一秒变财富，智慧喜币化，这终结了少数人奴役多数人的游戏，这是一次真正解放人类运动。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+喜币,改变了过去智慧只能服务于少数人游戏。喜币砍掉了智慧交易成本（砍掉手续费、保证金）没有交易门槛、不需要你证明你妈是你妈。喜币真正地保护智慧所得不被二次盘剥,我们被各种税费分走了很多蛋糕。喜币和HPAY推翻了流通的防火墙,让你在世界上任何一个地方，只要有信号，可以不带钱包消费。喜联储培养良性智慧循环圈,让你清楚自己有那些缺陷，那里找到求助，那里不被金融黑社会欺负。有了喜币，智慧=资本
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+2022年2月17日
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+（本文仅代表作者个人观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-7.jpg)
+
+*编辑 /校对*：德州牛仔
+
+*发稿：Yuki*jiang
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
