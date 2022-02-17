@@ -2,20 +2,22 @@
 ---
 
 
-## 日本麒麟公司宣布退出中共国饮料业务
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2017251/)
+## 研究发现中共APP抖音可以绕过苹果和谷歌的隐私保护访问用户数据
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2017707/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-31.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fi.ytimg.com%2Fvi%2FAGFr5sPLLxs%2Fmaxresdefault.jpg&amp;imgrefurl=https%3A%2F%2Fwww.youtube.com%2Fwatch%3Fv%3DAGFr5sPLLxs&amp;tbnid=0_lnLs1CH39n6M&amp;vet=12ahUKEwir_J3_voT2AhXad94KHSxSA_kQMyguegUIARD2AQ..i&amp;docid=JM)
-2月16日《共同通信》在线消息，麒麟控股（HD）今天宣布，它将退出与中共国华润集团共同经营的饮料业务。公司将以约1150亿日元的价格把其在合资企业中的全部股份转让给一家与中共国投资基金有关联的公司。在中共国的啤酒业务还将继续。
+撰稿/翻译：zzballack
+上传：追着曙光跑
 
-本月14日麒麟公司刚刚宣布退出缅甸的啤酒业务。公司将重新审视海外战略，继续选择和集中业务。麒麟在2011年入股时出资约330亿日元，拥有了40%的股份。该公司的主要产品是矿泉水，同时还生产和销售由麒麟饮料公司生产的下午茶。
+据《布雷特巴特新闻网》（Breitbart News）2月16日报道，《The Wrap》报道说，最近的两项研究显示，抖音可以绕过苹果和谷歌应用商店的安全保护措施，完全访问用户数据。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-17-at-10.38.18.jpeg)图片来源：原新闻
+这些研究在2020年11月和2021年1月完成。研究摘要表明，抖音能够绕过苹果和谷歌应用商店的代码审计。另外，抖音能够在用户不知情的情况下改变应用程式的行为，并访问设备追踪功能，使中共公司和第三方能够获得全部用户数据。
 
-信息源：[キリン、中国の清涼飲料事業撤退　海外戦略見直し](https://news.yahoo.co.jp/articles/cd93b7c4b1766e8df7048f89354b43666904418d#:~:text=%E3%82%AD%E3%83%AA%E3%83%B3)
+这远远超过了脸书和推特等美国应用程式对用户数据的访问。网络安全公司Conquest Cyber的网络威胁工程师弗兰克·洛克曼（Frank Lockerman）在审查了这些研究后表示：“这些动态属性允许抖音在应用程式可以看到的范围内全权访问你的设备，抖音浏览器不仅拥有从网络到设备的转换权限，它还可以查询设备本身的东西。”
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+尽管抖音声称其方法是标准的，但研究人员和专家说，该应用程式的代码使其更难监控。一项研究指出：“从后果上看，应用程式今天不做坏事，并不意味着它在未来不会做坏事。”
+
+信息来源： [China’s TikTok Can Bypass Apple and Google Privacy Protections, Access User Data](https://www.breitbart.com/tech/2022/02/16/study-chinas-tiktok-can-bypass-apple-and-google-privacy-protections-access-user-data/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

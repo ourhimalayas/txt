@@ -2,22 +2,22 @@
 ---
 
 
-## 渥太华警察局长在自由车队抗议浪潮下辞职
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2018146/)
+## 疾控中心暗示強制口罩令将会于下周终止
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2018261/)
 
-加拿大温哥华杨帆农场 枫叶快讯
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/02/4-36.jpg)
+图片来源：www.cdc.gov
 
-采编： UCool 优酷       编译撰稿：文明(添草灭共)
-![BREAKING: Ottawa Police Chief resigns](https://imgcache1.thepostmillennial.com/content/images/2022/02/ARTICLE-PHOTO--37--1-1.jpg)图片来源：thepostmillennial.com crypto
-据加拿大自媒体【后千禧年】2月15日报道，在卡车司机集结于渥太华市中心进行抗议活动的第 19 天，该市警察局长[斯洛利]宣布辞职。 报道称，[斯洛利]不久前还曾表示要争取更多警力和资源来结束抗议活动，并且没有任何辞职的计划。虽然未透露原因，但外界普遍认为该局长在全国“自由车队”反疫苗护照的浪潮下，承受着巨大压力。
+零对冲网2月16日报道，已经有十多个州包括人口最多的加利福尼亚州已经自行决定加弃在公共场合要求戴口罩的命令，联邦机构直到现在才准备放弃口罩令，美国全国广播电台新闻（NBC)最早报道疾控中心(CDC)计划放弃联邦口罩令，或放松室内口罩的指令，最早可能在下周实行，CDC主任对NBC说：“还没有最后确定，但CDC将考虑一个新的基准，到底是否需要口罩，这将基于严重疾病的程度和社区住院情况而定。”
 
-此前，渥太华警方因参与冻结卡车司机的筹款而被各方谴责。对此，“宪法自由司法中心”不仅指出抗议活动没有扰乱秩序，还抨击了警方对和平集会的污名化没有任何事实和证据。但当局以恢复秩序为借口，企图剥夺加拿大人在首都行使《宪章》所规定的自由表达、结社以及和平集会的基本权力。
+白宫急需CDC提供室内口罩的推荐，但不想因此向CDC施加压力，甚至福奇博士也因近期新冠病例急剧下降而建议放弃口罩令。
 
-校对编辑：硫酸羟氯喹64
+NBC报道后没多久，CDC主任沃任斯基博士说口罩令指南将于二月下旬或三月初改变。
 
-发文：青青
+NBC新闻注意到多数州已经决定”转换策略”，因为新的办法，例如新冠的治疗已经能作用。
 
-原文链接：[https://thepostmillennial.com/breaking-ottawa-police-chief-resigns-source](https://thepostmillennial.com/breaking-ottawa-police-chief-resigns-source)
+##### 新闻来源： [Leading From Behind: CDC Hints COVID Mask Mandate Will End ‘Next Week’ Now That States Have Moved First](https://www.zerohedge.com/covid-19/leading-behind-cdc-hints-covid-mask-mandate-will-end-next-week-now-states-have-moved-first)
 
  
 

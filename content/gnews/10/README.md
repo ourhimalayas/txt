@@ -2,30 +2,37 @@
 ---
 
 
-## 一位卡车司机表示：特鲁多引发了内战 让加拿大变成了共产主义国家
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2018073/)
+## 有声|中共不灭 世界永无和平
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2018105/)
 
-翻译：冰糖葫芦喵
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月15日，郭文贵先生在盖特视频中谈及，中共北京冬奥会和谷爱玲母女事件将造成海外华人与世界对立的结果。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/4-32.jpg)
+郭先生解释道，作为不承认双重国籍的中共国，美国人谷爱玲却为中共国夺得奥运金牌——这种荒唐事件不仅让中国人丢脸，也让海外华人与世界对立，其危害是深远的。同时，谷爱玲母女事件和北京冬奥会也让全世界看清了中共的真面目。此外，即将到来的中共病毒疫苗灾难正在让各国政府高度紧张，而文明国家的人民也在奋起反抗来自各个政府的疫苗暴政。
 
-编辑与校对：冰糖葫芦喵、灭共文明
+郭先生也提到，中国人民智慧如海，能冲走一切灾难。因此，但凡中国人被容许说话，墙内就不会有锁链女、杨改兰等悲剧出现。但是，中共妄想领导世界，到处通过“蓝金黄”干涉他国内政，又派出特务单伟健骗走美国乃至全世界的养老基金。
 
-《布莱巴特新闻网》2月16日报道，**一位在渥太华参加自由车队游行的卡车司机、罗马尼亚裔加拿大人克里斯蒂安（Christian）在接受采访时表示，特鲁多正在加拿大人之间播下仇恨的种子，并将这个国家变成一个共产主义国家。**
+对此，郭先生警告称，只要共产党和共产主义不灭，全世界将永无安宁。
 
-他补充说，**这里不再是加拿大了。这是一个共产主义国家。特鲁多在分裂人民，憎恨人民。这是一场内战。**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/罗马尼亚卡车司机.jpg)罗马尼亚裔加拿大卡车司机接受布《莱巴特新闻》采访
-克里斯蒂安指出，省级和联邦政府强制实施的**中共病毒疫苗政策**，表面上是为了“公共卫生”和“公共安全”，但实际上这些政策**正在破坏人们的生计，并剥夺他们谋生的权利。**
+文字版原文：[中共不灭 世界永无和平](https://gnews.org/zh-hans/2012044/)
 
-这位卡车司机还说，作为应对中共病毒措施而推广的**政府法令已经导致企业倒闭，普通民众个人破产，并导致许多人失去工作。**
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-这时克里斯蒂安深思道，当我来到这个国家时，我觉得它很美。加拿大充满了不可思议和许多可爱的人。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-采访中，克里斯蒂安说：“我们需要工作，需要最基本的生存保障。但现在因为特鲁多失去了一切。**特鲁多不会让我们生活，不会让我们回到工作岗位，回到家人身边，不会让我们像以前那样生活。”**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/特鲁多内战2.jpg)图片来源：网络。
-**最后他悲叹道:“现在看看我们这个社会，大家彼此憎恨。**我的儿子不能见他的祖父，因为他接种了疫苗，而他的祖父没有接种疫苗，所以他不能回到祖父的家。他很伤心。”
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-**新闻链接：**
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[Romanian-Canadian Trucker: Trudeau Turned Canada to Communist State (breitbart.com)](https://www.breitbart.com/clips/2022/02/16/exclusive-video-romanian-canadian-trucker-trudeau-has-caused-civil-war-turned-canada-communist/)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
