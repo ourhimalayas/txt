@@ -2,50 +2,30 @@
 ---
 
 
-## 意大利可能在三月底结束中共病毒紧急状态
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2017218/)
+## 台湾行政院将通过经济间谍法 防止中共窃取核心技术
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2016968/)
 
-作者：纽约香草山农场 – 四季
+**撰稿：日本东京方舟农场  海星**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+2月16日，台湾行政院官员表示，明天行政院将通过修订国安法，明确经济间谍罪的条例，防止中共窃取核心技术的非法行为。
 
+据《自由时报》报导，台湾行政院将于2月17日召开的院会上通过由法务部、内政部、国防部共同拟定的《国家安全法》修正草案。报导指出，该法案旨在加强防止中共窃取国家核心关键技术的营业秘密，维护国家安全与经济发展命脉。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片-1-21.jpeg)（图片来源：自由时报）
 
+据行政官员透露，修正法案增加了侵害国家核心关键技术的经济间谍罪，违者可被判处5至12年有期徒刑并罚款500万至1亿台币，同时增加了国家核心关键技术营业秘密外泄的境外使用罪，违者可被判处3至10年有期徒刑并罚款500万至1亿台币，上述罪名同样适用于犯罪未遂者。
 
+据悉，中共公司不仅多次通过高薪招募，渗透高科技人才以获取营业机密，还为规避审查，迂回在台设立办公室，暗中窃取关键技术。
 
-据[布赖特巴特新闻网](https://www.breitbart.com/europe/2022/02/16/italy-may-allow-coronavirus-state-of-emergency-to-expire-at-end-of-march/)2月16日报道，意大利卫生部副部长安德里亚 ·科斯塔 (Andrea Costa)表示，政府可能让其紧急状态在3月底到期，为结束中共病毒限制和该国的健康护照系统铺平道路。
+同时，为防止中共企业假借他人名义，绕道来台投资，行政院明天还将通过两岸条例修正草案，明确中共企业绕道第三地及借由他人名义在台从事业务活动的管理机制，并规定受政府委托、补助、出资的核心关键技术人员赴中共国需要经过审查许可。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GettyImages-1234502345-e1644957835331-640x481-1.jpg)ANDREASSOLARO/AFP via Getty Images
+参考链接：
+1. [https://news.ltn.com.tw/news/politics/breakingnews/3832144](https://news.ltn.com.tw/news/politics/breakingnews/3832144)
+2. [https://www.epochtimes.com/gb/22/1/18/n13512818.htm](https://www.epochtimes.com/gb/22/1/18/n13512818.htm)
 
-但科斯塔表示，他们必须完成第三剂疫苗的接种，以开启一个新的局面，逐步放宽包括绿色通行证在内的限制性措施。
-
-热那亚圣马蒂诺综合医院传染病诊所主任马蒂奥·巴塞蒂 (Matteo Bassetti) 教授本周表示，绿色通行证仍然是一个政治工具，而非一个健康决定。绿色通行证已经完成了它的工作，不需要延长它。但也有专家呼吁延长绿色通行证的期限，可能延长到今年年底。
-
-意大利是少数几个强制要求所有超过一定年龄的居民接种疫苗的欧洲国家之一。从本周二开始，预计所有50岁以上的意大利人将全面接种疫苗，否则将面临600欧元至1500欧元的罚款。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2月.jpg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+素材采编：海星
+编辑：青城道姑
+发布：文曦
 
  
 

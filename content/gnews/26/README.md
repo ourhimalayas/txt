@@ -2,42 +2,26 @@
 ---
 
 
-## 史无前例特鲁多政府冻结了资助 &#8220;自由车队 &#8220;的数字货币钱包
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2017703/)
+## 安省将提前解禁并取消疫苗护照
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2017838/)
 
-翻译：灭共文明
+加拿大温哥华杨帆农场 枫叶快讯
 
-编辑与校对：灭共文明
-
-《华盛顿观察家报》2月16日报道，**加拿大特鲁多政府命令，该国受监管的金融公司冻结 “自由车队 “和平抗议活动的数字货币钱包。**
-
-报道称，当支持抗议活动的GoFundMe账户在收到近1000万美元后被暂停，捐赠者转向数字货币来继续捐助。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/特鲁多数字货币1.jpg)图片来源: 网络。
-报告指出，**至少有29个比特币地址，以及卡达诺、以太坊、以太坊精典、门罗币和莱特币地址的至少34个数字货币钱包已被列入黑名单中。**
-
-安大略省警方和加拿大皇家骑警与加拿大金融交易和报告分析中心合作，对基于数字货币的捐款资助卡车司机和平抗议活动展开了调查。
-
-该名单于周三在社交媒体上发布，**比特币新闻资源网CoinDesk证实了**其真实性。有超过20个比特币，估价超过87万美元，**总计超过140万美元被冻结。**
-
-**加拿大卡车司机长达数周的和平抗议活动引领了世界各地的人们发起类似的活动。**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/特鲁多数字货币3-scaled.jpg)图片来源：网络。
-2月14日，**特鲁多利用《紧急状态法》**在不需要法院命令，也不用承担民事责任的情况下，**允许银行和金融机构冻结与 “自由车队 “有关的银行账户。他的这一行为被认为是非法的。**
-
-**小编简评：**
-
-**特鲁多政府利用金融手段对付卡车司机的和平抗议运动，开创了政府利用数字币这一新兴手段干预政治的先河。**作为民意表达的一个部分，抗议人士接到了来自加拿大大量民众的捐款，这不仅仅为抗议活动提供了源源不断地资金支持，也为抗议运动提供了精神地援助。
-
-为了让正义抗议人士屈服，**特鲁多政府**使用了几乎所有手段进行打压。他特意回避这次抗议运动的主题，仍然**顽固坚持疫苗强制，是典型地独裁暴政行径。**现在，**他也在独裁暴政的路上越走越远，未来等待他的将是人民的审判。**
+采编：青青         编辑撰稿：苦尽甜来 (文來）
 
 
-
-**新闻链接：**
-
-[Canada freezes at least 34 crypto wallets funding ‘Freedom Convoy’ | Washington Examiner](https://www.washingtonexaminer.com/news/canada-freezes-at-least-34-crypto-wallets-funding-freedom-convoy)
-
-[Canada Bans 34 Crypto Wallets Tied to Freedom Convoy – Crypto Briefing](https://cryptobriefing.com/canada-bans-34-crypto-wallets-tied-to-freedom-convoy/)
+![卡车司机车队抗议议会](https://www.ctvnews.ca/polopoly_fs/1.5780301.1644848006!/httpImage/image.jpg_gen/derivatives/landscape_960/image.jpg)图片来源：ctv
 
 
+据加拿大【CTV新闻】2月14日报道，安大略省将于2月17日提前四天执行重新开放计划的下一步，并将在3月初取消在公共场所强制使用疫苗接种证明的规定。
+
+报道称，在该省首席卫生官的建议之下，自 2 月 17 日起，社交聚会限制将增加到室内 50 人和室外100人。包括餐厅、健身房和电影院等大多数需要疫苗护照的室内公共场所将取消容量限制。 此外，魁北克卫生部长2月15日也宣布，该省的大型商业场所以及酒类和大麻专卖店将在翌日废除疫苗护照规定。并将分阶段，分场合逐步停止实施所有疫苗护照政策，直至3月14日前完全被取消为止。但省政府未对在大多数室内环境中强制配戴口罩的规定进行任何更改。
+
+校对编辑：硫酸羟氯喹64
+
+发文：青青
+
+原文链接：[Ontario to speed up reopening, will lift COVID-19 vaccine passport in March | CTV News](https://toronto.ctvnews.ca/ontario-to-lift-vaccine-passport-in-march-next-phase-of-covid-19-reopening-to-begin-early-1.5780257)
 
  
 

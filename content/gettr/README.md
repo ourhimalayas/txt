@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/17/2022 4:08 AM (UTC)`
+
+2/16/2022 Miles Guo: I think it's my destiny to file for bankruptcy. The CCP has made me wait five years for the red light, while only in the United States could I choose the yellow light – bankruptcy. Taiwan is my role model. She chose the yellow light in the face of powerful forces, but she still has freedom and dignity.<br/><br/>2/16/2022 文贵直播：文贵认为命中必然会有这次破产；中共让文贵等了5年的红灯，而只有在美国才有黄灯可选 - 破产；台湾是文贵的样板，她在强大的势力面前选择了黄灯，但有自由与尊严
+![img](https://media.gettr.com/group46/getter/2022/02/17/04/8375a314-f866-cd70-9103-c9846353eea1/out.jpg)
+
+---
+
 `@miles 2/17/2022 2:35 AM (UTC)`
 
 2/16/2022 Miles Guo: Various countries have begun to admit that the COVID vaccines contain graphene oxide, and the world will be completely changed. All humankind will not let go of the CCP regarding the issues of the COVID virus and its vaccines. The CCP employs the same despicable tactics to deal with both the Winter Olympics and me by always giving themselves the green light and giving their opponents only the red light.<br/><br/>2/16/2022 文贵直播：各国已开始承认疫苗含氧化石墨烯，全球将大变；全人类不会在病毒和疫苗问题上放过中共；中共用同样的卑鄙手段对付文贵和冬奥会 - 给自己开绿灯，给对方只开红灯<br/>
@@ -145,13 +152,6 @@
 
 2月15号：尊敬的战友们好！文贵衷心的祝大家元宵节快乐！
 ![img](https://media.gettr.com/group44/getter/2022/02/15/15/dc51fd09-d34b-f160-63bb-3033402d51f2/out.jpg)
-
----
-
-`@miles 2/15/2022 3:57 AM (UTC)`
-
-2/13/2022 Miles Guo: I only seek to take down the CCP, and I have no interest in politics at all. The PAG case has exposed the CCP’s infiltration in the Western law firms and judicial system. The FBI will investigate this, won’t it? Anyway, I will never compromise on the verdict of this case. From day 1, I have been turning my wisdom and capabilities to create wealth into the tool to take down the CCP.<br/><br/>2/13/2022 文贵直播：文贵只想灭共，对政治没任何兴趣；PAG案揭露了中共对西方律所和司法的渗透, FBI难道会坐视不管？对于本案判决，文贵坚决不妥协；文贵从第一天起就把智慧和创造财富的能力变成灭共的工具<br/>
-![img](https://media.gettr.com/group49/getter/2022/02/15/03/f0c72332-53af-811a-07e4-beff97c59d82/out.jpg)
 
 ---
 

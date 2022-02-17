@@ -2,40 +2,37 @@
 ---
 
 
-## 美加州长和省长要求政府对跨境卡车司机实施疫苗豁免
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2017978/)
+## 维州将放宽所有新冠限制，包括二维码和人数限制
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2018054/)
 
-#### **【雅典娜快讯】，紧贴时代脉搏**
+#### 澳洲新闻时事动态，尽在雅典娜【澳洲热点】
 
-#### 翻译：文扬 
-编辑：文泓
+整理/编辑：小鱼儿
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/fengmian0217.jpg)图片来源：massnews
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-47.png)图片来源：雅典娜设计组
 
 
-当地时间2月17日，据RT电视台报道，加拿大阿尔伯塔省省长说，对卡车司机疫苗强制正在对“北美供应链产生明显的负面影响”。
+当地时间2月17日，据天空（Skynews）新闻报道，维州州长丹尼尔·安德鲁斯（Daniel Andrews）宣布，维多利亚州的限制将从周五下午 6 点开始放宽。
 
-**阿尔伯塔省省长杰森·肯尼签署了一封信，要求加拿大总理贾斯汀·特鲁多和美国总统乔·拜登“放弃对卡车司机的跨境疫苗强制”**，正是该强制措施最初引发了加拿大针对反对新冠疫苗强制的大规模抗议活动。
+维州将取消酒店和娱乐场所的人数限制，允许重新开放室内舞池。  零售场所、学校、托儿所和幼儿以及许多工作场所，员工的登记要求也将被取消。二维码登记将保留在“已接种疫苗的经济”环境中，例如：娱乐、招待场所。 安德鲁斯说：“如果你去不需要接种疫苗的超市，你就不需要二维码登记。”
 
-**除了肯尼的签名外，这封信还得到了16位美国州长的支持，包括蒙大拿州的格雷格·詹福特和南达科他州的克里斯蒂·诺姆。**
+肉类加工等一些关键行业的监督测试，将不再是强制性的，而是建议性的。医院工作人员的气泡（限制社交圈）也将不再需要，“但那时仍然可以由卫生服务部门自行决定使用。”
 
-这封信要求恢复豁免对过境卡车司机的疫苗和检疫要求。信中写道：“我们深感关切的是，对跨境卡车司机的疫苗强制，已对北美供应链、生活成本以及我们两国人民获得基本产品的途径产生了明显的负面影响。”
+未完全接种疫苗的海外旅客和机组人员的隔离期，已从 14 天减半至 7 天。
 
-肯尼省长以往在支持自由车队抗议者方面一直比较谨慎，他在本月早些时候说，他也同意抗议者的担忧，但认为某些参与大规模抗议的人带有“极端的、甚至可能是仇恨的观点”。
+他们不需要从维多利亚服务局获得国际入境许可证。
 
-特鲁多曾表示，参与抗议的人的观点“不可接受”，他最近援引了《紧急状态法》，该法案赋予政府和警察更多权力来扰乱车队的财务支持，以及在边境口岸压制“非法封锁”，并在主要城市警察一直在驱散抗议活动。
+另外，维州将于下周宣布，放宽对重返办公室和戴口罩的限制。安德鲁斯先生说：“（卫生部）部长还不能完全做出这些决定，我们只能等着看医院的人数继续下降。”
 
-目前，加拿大的反疫苗强制抗议活动已经持续了大约三周。他们最初是卡车司机抗议他们自己的具体任务，但示威活动的规模和范围都在扩大，特鲁多对新冠病毒和疫苗任务的处理普遍受到抗议。尽管受到当局的抵制，抗议者仍继续占领主要城市和地区，甚至最近占领了繁忙的美加边境口岸——大使桥，直到警察驱散人群。
+参考新闻：[Density limits scrapped, dancing back on and changes to QR code check-ins: All the restrictions being eased in Victoria](https://www.skynews.com.au/australia-news/coronavirus/density-limits-scrapped-dancing-back-on-and-changes-to-qr-code-checkins-all-the-restrictions-being-eased-in-victoria/news-story/67d1e737ed1b5eb4b1a8d28bc236ad53)
 
-原文链接： [Governors, premiers want trucker vaccine mandate dropped — RT World News](https://www.rt.com/news/549627-alberta-premier-trudea-freedom-convoy/)
+发布：tianzhihuan
 
-发布：Frank2021
-
-**更多资讯，请关注：****
+更多资讯，请关注：**
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
