@@ -2,41 +2,30 @@
 ---
 
 
-## 美国和北约称俄罗斯仍在乌克兰附近增兵
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2016447/)
+## NFSC新闻、G|TV新闻访谈简报|2022年2月16日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2016620/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO-1.jpg)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0051.jpg)
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-15.png)
+文章仅代表作者本人观点，与Gnews无关
 
+视频参看：
+[2022.02.16早 《NFSC新闻》](https://gtv.org/video/id=620cfc14432ae869226da2dc)
+[2022.02.16早 G|TV《新闻访谈》](https://gtv.org/video/id=620d0382432ae869226dafd6)
 
-资料来源：路透社
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-美国和北约周三表示，尽管莫斯科坚称要撤军，但俄罗斯仍在乌克兰周边增兵，并质疑总统弗拉基米尔·普京(Vladimir Putin)表示希望通过谈判解决危机的愿望。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-1.png)
 
-在乌克兰，人们举起旗帜并奏国歌以表示团结一致反对对入侵的恐惧，乌克兰政府表示， 袭击国防部的网络攻击是对乌克兰最严重的此类攻击。并指责俄罗斯攻击实施者。 但遭到了俄罗斯的否定。
-
-俄罗斯国防部表示，在乌克兰附近的南部和西部军区进行演习后，俄罗斯国防部表示，其部队正在撤退，这是大规模集结的一部分，同时也要求西方提供全面的安全保障。
-
-俄罗斯发布了视频，称坦克、步兵战车和自行火炮部队离开克里米亚半岛，莫斯科于 2014 年从乌克兰手中夺取了克里米亚半岛。
-
-但美国国务卿安东尼·布林肯在接受 MSNBC 采访时说：“这就是俄罗斯所说的。然后就是俄罗斯所做的。而且我们还没有看到其部队的任何撤退，” “我们继续看到关键部队向边境移动，而不是远离边境。”
-
-一位西方高级情报官员表示，在 2 月剩余时间内，俄罗斯侵略乌克兰的风险仍然很高，俄罗斯仍可能“在没有警告或几乎没有警告的情况下”攻击乌克兰。
-
-北约秘书长延斯·斯托尔滕贝格（Jens Stoltenberg）表示，来回移动部队和坦克并不构成撤军的证据。
-
-“我们看到的是，他们增加了部队的数量，更多的部队正在赶来。所以，到目前为止，警报并没有降级，”他在布鲁塞尔的一次联盟会议上说。
-
-斯托尔滕贝格后来表示，北约可以通过卫星图像证明俄罗斯并未撤军。
-
-乌克兰国防部长奥列克西·雷兹尼科夫（Oleksii Reznikov）在接受路透社采访时告诉路透社，该国最新的情报报告同样没有显示俄罗斯撤军的迹象。他说，在乌克兰边境附近，俄罗斯军队和亲俄分裂势力的总兵力约为 14 万人。
-
-克里姆林宫称北约的评估是错误的。莫斯科驻爱尔兰大使表示，俄罗斯西部的部队将在三到四周内恢复到平常水平。
-
-🔗 [美国和北约称俄罗斯仍在乌克兰附近增兵](https://www.reuters.com/world/europe/russian-pullout-meets-uk-scepticism-ukraine-defence-website-still-hacked-2022-02-16/)
-
-责任编辑/发布： Shuizhuyu
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

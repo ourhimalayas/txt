@@ -2,36 +2,42 @@
 ---
 
 
-## 文革受害者之北大教授俞大絪
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2016054/)
+## 美国和北约称俄罗斯仍在乌克兰附近增兵
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2016447/)
 
-作者：纽约香草山农场-马克文、朱丽叶
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-俞大絪，北京大学教授，中国英语语言学家，对英国语言文学有着很高的素养，是中国最好、最流行的一套英语教材的作者之一，也培养了大批的青年教师。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-16-下午12.27.36.png)
-俞教授于1905年出生在浙江山阴的名门世家，是曾国藩的曾外孙女。而她的丈夫曾昭抡也是民国的知名学者，其在获得美国麻省理工学院化学博士学位后，回国任教授一职。20世纪40年代末，蒋介石在离开大陆前曾劝说夫妇二人同去台湾，但最终被他们遗憾拒绝。
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-文革初期，俞大絪和曾昭抡被无辜定罪，随即遭到了红卫兵的抄家批斗。在批斗中，曾俞二人被迫下跪，甚至被红卫兵剥除上衣，用皮带死命抽打。1966年8月25日，独自在家的俞大絪悲愤难抑，遂服毒自尽。一年后，曾昭抡也不堪折辱，逝世在武汉。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0051.jpg)
 
-资料显示，中共国内十年文化大革命期间，全国工、农、兵及社会各阶层均被动乱波及，尤其是中共针对高级知识分子的严酷批斗与暴力行为，导致中国大批科学家与教授、教师等宝贵人才死亡，造成了中华民族一代，甚至几代的人才断代，其所造成的损失极为惨痛，难以挽回。
 
-参考链接：
-1）[俞大𬘡（维基百科）](https://zh.wikipedia.org/wiki/%E4%BF%9E%E5%A4%A7%E7%B5%AA)
-2）[俞大絪之死](https://botanwang.com/articles/202108/%E4%BF%9E%E5%A4%A7%E7%B5%AA%E4%B9%8B%E6%AD%BB.html)
+资料来源：路透社
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+美国和北约周三表示，尽管莫斯科坚称要撤军，但俄罗斯仍在乌克兰周边增兵，并质疑总统弗拉基米尔·普京(Vladimir Putin)表示希望通过谈判解决危机的愿望。
 
-总编：Irene木木
-编辑：静言
-校正/发稿：呼吸的雾霾（文小呼吸）
+在乌克兰，人们举起旗帜并奏国歌以表示团结一致反对对入侵的恐惧，乌克兰政府表示， 袭击国防部的网络攻击是对乌克兰最严重的此类攻击。并指责俄罗斯攻击实施者。 但遭到了俄罗斯的否定。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+俄罗斯国防部表示，在乌克兰附近的南部和西部军区进行演习后，俄罗斯国防部表示，其部队正在撤退，这是大规模集结的一部分，同时也要求西方提供全面的安全保障。
+
+俄罗斯发布了视频，称坦克、步兵战车和自行火炮部队离开克里米亚半岛，莫斯科于 2014 年从乌克兰手中夺取了克里米亚半岛。
+
+但美国国务卿安东尼·布林肯在接受 MSNBC 采访时说：“这就是俄罗斯所说的。然后就是俄罗斯所做的。而且我们还没有看到其部队的任何撤退，” “我们继续看到关键部队向边境移动，而不是远离边境。”
+
+一位西方高级情报官员表示，在 2 月剩余时间内，俄罗斯侵略乌克兰的风险仍然很高，俄罗斯仍可能“在没有警告或几乎没有警告的情况下”攻击乌克兰。
+
+北约秘书长延斯·斯托尔滕贝格（Jens Stoltenberg）表示，来回移动部队和坦克并不构成撤军的证据。
+
+“我们看到的是，他们增加了部队的数量，更多的部队正在赶来。所以，到目前为止，警报并没有降级，”他在布鲁塞尔的一次联盟会议上说。
+
+斯托尔滕贝格后来表示，北约可以通过卫星图像证明俄罗斯并未撤军。
+
+乌克兰国防部长奥列克西·雷兹尼科夫（Oleksii Reznikov）在接受路透社采访时告诉路透社，该国最新的情报报告同样没有显示俄罗斯撤军的迹象。他说，在乌克兰边境附近，俄罗斯军队和亲俄分裂势力的总兵力约为 14 万人。
+
+克里姆林宫称北约的评估是错误的。莫斯科驻爱尔兰大使表示，俄罗斯西部的部队将在三到四周内恢复到平常水平。
+
+🔗 [美国和北约称俄罗斯仍在乌克兰附近增兵](https://www.reuters.com/world/europe/russian-pullout-meets-uk-scepticism-ukraine-defence-website-still-hacked-2022-02-16/)
+
+责任编辑/发布： Shuizhuyu
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

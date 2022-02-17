@@ -2,12 +2,12 @@
 ---
 
 
-## 七哥金句：数字货币，躺平币，喜马拉雅，积累
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2016989/)
+## 七哥金句：懂得爱，音乐及力量
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2017030/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句-你的今天是你昨天积累的结果.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句-喜马拉雅是一个高度是一个我们的目标.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句-数字货币.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句躺平币.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/竹叶-七哥金句-1-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/竹叶-七哥金句-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/竹叶-七哥金句12.10-1-2-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/竹叶-七哥金句12.10-2-2-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/竹叶-七哥金句1210-3-1.jpg)
 整理：雅典娜农场
-发布：枫叶红 了
+发布：枫叶红了
 
  
 

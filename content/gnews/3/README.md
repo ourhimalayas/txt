@@ -2,45 +2,49 @@
 ---
 
 
-## 多伦多下周将放宽限制 重新开放市政厅和部分公众服务
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2017186/)
+## 文•贵天成——文贵先生谈“蓝、金、黄”计划（十）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2017262/)
 
-翻译：灭共文明
+整理：BEJIN
+编辑：朝花夕拾
 
-编辑与校对：灭共文明
-
-《华盛顿观察家报》2月16日报道，**周三，加拿大多伦多市长约翰·庄德利宣布，该市取消之前对中共病毒疫情的限制，从2月22日起，将全面恢复城市服务，包括开放市政厅和部分面对面的公众服务。**
-
-市长庄德利表示，该决定是基于安省政府最近宣布放宽与中共病毒相关的限制而做出的。他还说：“我真诚的相信，更光明的日子就在眼前。”
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/fengmian0216-1.jpg)图片来源：墨尔本雅典娜设计组614
 
 
+**郭文贵先生2017****年10****月4****日 ****直播**
 
-> Next week, [@cityoftoronto](https://twitter.com/cityoftoronto?ref_src=twsrc%5Etfw) will begin the safe and gradual re-opening of City Hall and other city buildings to visitors.
-> 
-> Find a full list of counter services available in person here: [https://t.co/yZ5OaKxtJG](https://t.co/yZ5OaKxtJG) [pic.twitter.com/It2jziP5do](https://t.co/It2jziP5do)
-> — John Tory (@JohnTory) [February 16, 2022](https://twitter.com/JohnTory/status/1494011313944731652?ref_src=twsrc%5Etfw)
+在哈德逊这个事情上，在我登飞机往D C飞之前，确确实实我还是犹豫的。但是我登上飞机以后，我认为这没问题了，风险期应该过了。但是没想到的是，我下了飞机以后，不到一个小时，我的同事就来了，告诉我说路上接了电话，哈德逊给他打电话说，这个找了各种理由吧，说要推迟，但这些理由都是不被我同事接受的。那么，很简单，他们受到了巨大的压力。
 
+我很惊讶的同时呢，我想，盗国贼终于出手了。因为盗国贼的出手无非是两招嘛，现在蓝金黄，蓝和金，他们还能来得及，“黄”可能还真来不及。那么“蓝”，就是他们掌握了他们的信息，掌握了他们的结构，作以威胁。“金”就是给利益。那么在这个哈德逊的事情上我们没有证据，听说了，跟他们有这个利益关系，捐助关系。更滑稽的事情，当通知暂停以后，就来了很多人跟我说情，说情的人，更多的是美国人，不是我们中国人和同胞，或者在美国的华人。
 
-多伦多市长庄德利巡捕开放城市服务
-此前，**安大略省周一宣布，将在周四之后取消许多与中共病毒相关的限制， 3月1日以后，该省计划取消所有限制和疫苗接种要求。**
+可以看到，盗国贼们的撒谎盗国贼们的卑劣，盗国贼的这种阴险，远远超出了常人的想象，我们海外这些由于文贵出来多出这么几个名人，没有看清这个本质，这个哈德逊演讲的本质就是蓝金黄彻底渗透进美国。
 
-另外，市政府宣布，现在大约有20%的城市雇员在远程办公，从3月21日起，所有员工将返回市政府办公室上班，公众将被允许进入服务柜台以外的其它公共区域。但仍要保持社交距离、佩戴口罩、加强消毒以及遵守清洁规则。
+海航，你用你的蓝金黄征服了哈德逊(本来文贵要在哈德逊媒体演讲的，被中止无限延期了)，江绵恒用江家的在美国的沉默的力量征服了哈德逊，但是文贵认为，你们这次的征服，给文贵送来了大礼，天助我也，我就在昨天下午，在国会山，我这一下午见了几个参议员、众议员的时候，他们都深刻的认识到，哈德逊事件把他们给镇住了。
 
-**从2月22日开始**，**多伦多**市政厅、北约克、士嘉堡、怡陶碧谷、约克和东约克等市民中心**将提供多项现场柜台服务，包括支付和咨询有关财产税、支付物业税、水电费以及违章停车罚款等等。**此外，结婚证书现在可以预约本人领取。所有服务将于3月21日开始提供。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/多伦多2.jpg)多伦多市民在妇女大学新冠病毒测试点排队（图片来源：路透社）
-加拿大保守党称，来自该省的这一消息“进一步巩固了这些谨慎乐观的计划，并给了我们重新开放城市的信心。”
+我不相信这个世界上任何人能把美国蓝金黄，我也不相信任何人能把Trump 总统蓝金黄，我绝不相信任何一个国家任何一个势力能征服美国，打败美国。不可能!
 
-**多伦多市长庄德利说，这一决定意味着，多伦多市政府正在开放业务，但要以一种谨慎和稳妥的方式进行**。
+所以，今天没有到那里演讲，变成了文贵早晨给大家的直播，这是天意，这是真正的天意，而且不但是天意，还让我无法形容的一种开心，上天真的在眷顾我们，演讲的影响力和这个被他们“蓝金黄”后，不演讲（影响力）可能更大。
 
-新闻链接：
+资料来源：郭先生GTV、盖特直播
 
-[WATCH: Toronto to relax COVID-19 restrictions and open city buildings | Washington Examiner](https://www.washingtonexaminer.com/news/watch-toronto-to-relax-covid-19-restrictions-and-open-city-buildings)
+往期回顾：
+[文·贵天成——文贵先生谈“蓝、金、黄”计划（一）](https://gnews.org/zh-hans/2008275/)
+[文·贵天成——文贵先生谈“蓝、金、黄”计划（二）](https://gnews.org/zh-hans/2008300/)
+[文·贵天成——文贵先生谈“蓝、金、黄”计划（三）](https://gnews.org/zh-hans/2008496/)
+[文•贵天成——文贵先生谈“蓝、金、黄”计划（四）](https://gnews.org/zh-hans/2008314/)
+[文•贵天成——文贵先生谈“蓝、金、黄”计划（五）](https://gnews.org/zh-hans/2008332/)
+[文•贵天成——文贵先生谈“蓝、金、黄”计划（六）](https://gnews.org/zh-hans/2008361/)
+[文•贵天成——文贵先生谈“蓝、金、黄”计划（七）](https://gnews.org/zh-hans/2008344/)
+[文•贵天成——文贵先生谈“蓝、金、黄”计划（八）](https://gnews.org/zh-hans/2012933/)
+[文·贵天成——文贵先生谈“蓝、金、黄”计划（九）](https://gnews.org/zh-hans/2013014/)
 
-[Toronto begins reopening city buildings delayed by Omicron | The Star](https://www.thestar.com/news/gta/2022/02/16/we-are-on-the-other-side-of-this-pandemic-mayor-john-tory-announces-reopening-of-city-buildings.html)
+发布：tianzhihuan
 
-[City of Toronto counter service reopening plan – City of Toronto](https://www.toronto.ca/news/city-of-toronto-counter-service-reopening-plan-2/)
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

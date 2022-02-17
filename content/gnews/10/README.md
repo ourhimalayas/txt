@@ -2,40 +2,45 @@
 ---
 
 
-## 中共不是新中国联邦，胡锡进休要发昏“感同身受”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2017065/)
+## 多伦多下周将放宽限制 重新开放市政厅和部分公众服务
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2017186/)
 
-环球时报2022年2月15日报道：胡锡进：台湾不是乌克兰，蔡英文休要发昏“感同身受”
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1608-e1645049552254.png)图片来源：网络![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1609.png)
-**短评：**
+翻译：灭共文明
 
-乌克兰局势几乎达到了沸点。拜登总统对欧洲联盟国通报了俄罗斯将攻打乌克兰的明确日期：2月16日。美国还宣布关闭驻乌克兰使馆，少量外交官从基辅撤到乌克兰西部城市利沃夫。乌克兰很多富豪乘私人飞机逃离基辅，乌总统泽连斯基将16日定为“团结日”，要求当天全国挂国旗，唱国歌。俄罗斯则斥责美国关于“俄罗斯即将入侵乌克兰”的警告已经达到了“荒谬”的程度。大家看，局势扑所迷离。美国情报机构捕获到了俄罗斯将要入侵乌克兰的情报，于是为了安全好心提醒本国及乌克兰人民，拜登总统也苦口婆心地进行发言警告。
+编辑与校对：灭共文明
 
-结果俄罗斯与中共将计就计，来了个缓兵之计，故意打障眼法给人造成“小规模撤军”的假象，延后入侵日期，试图混淆全世界人民的视听，妄想在全球民众面前颠倒黑白。进而颠倒黑白地证明美国情报机构是饭桶级的，诋毁拜登总统是谣言的最大制造和传播者，颠倒乾坤地说成是美国想要搅乱欧洲。这就像一伙强盗刀枪棍棒全副武装图谋抢劫一个村庄，而刚被屠杀的隔壁村庄的幸存警察跑来报告全村人民强盗将要入侵的真相，于是强盗们来了个缓兵之计，在村外驻扎下来就是不马上入侵，还派人假扮路人来诋毁警察，结果大家可想而知：强盗们确实没有马上入侵，但几天后强盗们就大张旗鼓地进了村，然后，血流成河。
+《华盛顿观察家报》2月16日报道，**周三，加拿大多伦多市长约翰·庄德利宣布，该市取消之前对中共病毒疫情的限制，从2月22日起，将全面恢复城市服务，包括开放市政厅和部分面对面的公众服务。**
 
-不仅美国情报部门和拜登总统是吹哨人，新中国联邦爆料革命郭文贵先生也是吹哨人，新中国联邦爆料革命郭文贵先生在爆料了中共《送中条例》的险恶用心后，又在2019年9月1日与美国平民运动大师班农先生的视频直播访谈中爆料了中共更加邪恶的双龙计划。中共的“双龙计划”指的是中共在香港的镇压反送中运动如果失控，如果美国对中共全面进行制裁，全面进行封锁，中共将对台湾采取军事行动，武力“收复（侵略）”台湾。中共给出的理由将是：香港发生的这场反送中的行动，是美国、西方敌对势力和台湾的台独分子在背后策划的，很多香港运动的领导人都藏在台湾，中共要抓回，抓捕这些人，借机对台湾进行军事行动，收复（侵略）台湾。“双龙计划”是不惜代价、不择手段，必须100%拿下台湾。而新中国联邦爆料革命郭文贵先生这几年来通过视频直播向全世界传递的中共内斗及释放病毒、强打毒疫苗、郑州水灾、阿富汗动乱、北京冬奥会变冬眠会变残奥会的情报都一直得到了验证。也因此澳大利亚防长达顿在他的一个最新表态中把新中国联邦爆料革命郭文贵先生前几天提到的乌克兰问题与台湾问题并列诉说，西方很多议员和媒体也做了进一步的分析。也因此台湾当局专门成立了一个特别工作组，以研究乌克兰局势对台湾安全的影响，蔡英文并声称“我们对乌克兰的情况感同身受”。
-
-中共是举世公认非法黑帮政权，当中共在全世界释放病毒强打毒疫苗以奴役全球的真相被举世皆知后更是如此。美国并不反华，世界也不反华，中华儿女是全球最勤劳最和平最温的群体之一，也正是因为中华儿女的温和才使得中共胆敢如此变本加厉地对中华儿女进行霸凌与奴役。美国与世界不反华，只反共，不仅反共，还要灭共。新中国联邦将与美国为首的正义力量一起，全球灭共、自动灭共，一起维护欧洲亚洲乃至全世界的健康与和平。
-
-世界和平最大的破坏者是中共，全球渗透进政府的黑暗势力如果死跟中共，终将成为北京的战术炮灰。不清醒的欧洲及亚洲黑暗势力将会落入中共蓝金黄的圈套，充当中共的战术垫脚石，甚至做它的磨刀石。中共作为互害的黑帮组织，连自己人刘少奇、林彪、邓小平、周永康、薄熙来都会迫害，在迫害全世界被蓝金黄的人士时更不会丝毫手软。被中共蓝金黄的人们清醒起来吧，弃恶从善，悬崖勒马，你们也是受害者，让我们一起联合起来，粉碎中共，粉碎万恶的社会主义。
-
-文章观点仅代表作者，与Gnews 平台无关
-
-新闻链接：[https://3g.163.com/dy/article/H09KSHON05504DP0.html?clickfrom=channel2018\_news\_index\_newslist#child=index&offset=45](https://3g.163.com/dy/article/H09KSHON05504DP0.html?clickfrom=channel2018_news_index_newslist#child=index&amp;offset=45)
-
-素材：洛杉矶盘古农场 — 归去来兮
-
-评论：洛杉矶盘古农场 — 归去来兮
-
-编审：洛杉矶盘古农场 — 心照
-
-发布：洛杉矶盘古农场 — 子萍
+市长庄德利表示，该决定是基于安省政府最近宣布放宽与中共病毒相关的限制而做出的。他还说：“我真诚的相信，更光明的日子就在眼前。”
 
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+> Next week, [@cityoftoronto](https://twitter.com/cityoftoronto?ref_src=twsrc%5Etfw) will begin the safe and gradual re-opening of City Hall and other city buildings to visitors.
+> 
+> Find a full list of counter services available in person here: [https://t.co/yZ5OaKxtJG](https://t.co/yZ5OaKxtJG) [pic.twitter.com/It2jziP5do](https://t.co/It2jziP5do)
+> — John Tory (@JohnTory) [February 16, 2022](https://twitter.com/JohnTory/status/1494011313944731652?ref_src=twsrc%5Etfw)
+
+
+多伦多市长庄德利巡捕开放城市服务
+此前，**安大略省周一宣布，将在周四之后取消许多与中共病毒相关的限制， 3月1日以后，该省计划取消所有限制和疫苗接种要求。**
+
+另外，市政府宣布，现在大约有20%的城市雇员在远程办公，从3月21日起，所有员工将返回市政府办公室上班，公众将被允许进入服务柜台以外的其它公共区域。但仍要保持社交距离、佩戴口罩、加强消毒以及遵守清洁规则。
+
+**从2月22日开始**，**多伦多**市政厅、北约克、士嘉堡、怡陶碧谷、约克和东约克等市民中心**将提供多项现场柜台服务，包括支付和咨询有关财产税、支付物业税、水电费以及违章停车罚款等等。**此外，结婚证书现在可以预约本人领取。所有服务将于3月21日开始提供。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/多伦多2.jpg)多伦多市民在妇女大学新冠病毒测试点排队（图片来源：路透社）
+加拿大保守党称，来自该省的这一消息“进一步巩固了这些谨慎乐观的计划，并给了我们重新开放城市的信心。”
+
+**多伦多市长庄德利说，这一决定意味着，多伦多市政府正在开放业务，但要以一种谨慎和稳妥的方式进行**。
+
+新闻链接：
+
+[WATCH: Toronto to relax COVID-19 restrictions and open city buildings | Washington Examiner](https://www.washingtonexaminer.com/news/watch-toronto-to-relax-covid-19-restrictions-and-open-city-buildings)
+
+[Toronto begins reopening city buildings delayed by Omicron | The Star](https://www.thestar.com/news/gta/2022/02/16/we-are-on-the-other-side-of-this-pandemic-mayor-john-tory-announces-reopening-of-city-buildings.html)
+
+[City of Toronto counter service reopening plan – City of Toronto](https://www.toronto.ca/news/city-of-toronto-counter-service-reopening-plan-2/)
+
+
 
  
 
