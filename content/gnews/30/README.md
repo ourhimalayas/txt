@@ -2,56 +2,38 @@
 ---
 
 
-## 同是印度 是否使用伊维菌素死亡率相差405倍
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2021237/)
+## 樱花FM┃新闻述评：北京冬奥会开幕惊闻普京随从保镖感染病毒
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2021327/)
 
-作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-6-3.png)
+**中共希望借助冬奥会使其濒临破产的共产党重启，但在新中国联邦主动出击下很可能会事与愿违。冬奥会开幕当天，习近平与俄罗斯宣布联盟之时，普京的访华团队被瘟疫击中，当晚在普京下榻的宾馆发生疫情猝死事件。这些不可思议的事件都会令人惊奇，世界需要问一问习，病毒正在失控吗？**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+中共国新华社5日消息继续在为“北京冬奥会开幕”制造万国来朝的假新闻。该消息称，“北京冬奥会， 海外反响热烈”。所谓世界反响热烈，无非是用钱收买的关系，所谓巴基斯坦、英国华人、中埃员工在埃及、在土耳其的中资企业员工、在韩国的华人脑残粉、在白俄罗斯首都明斯克和坦桑尼亚的人在收看直播，然而真正发生的新闻都被掩盖了。
 
-美国FDA一直误导民众，“[不应该使用伊维菌素来治疗或预防COVID-19](https://www.fda.gov/consumers/consumer-updates/why-you-should-not-use-ivermectin-treat-or-prevent-covid-19)”，FDA称，没有证据表明伊维菌素（Ivermectin）对COVID-19是安全或有效的，因此一直没有授权或批准伊维菌素用于预防或治疗人和动物的 COVID-19。
+外界有所不知，新中国联邦在北京冬奥会开幕之前就已经向中国共产党发出战书，一定要让冬奥会成为全世界最失败、最尴尬的纳粹“冬眠会”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-17_21-26-31.png)
+***延展阅读：***[***为什么2022冬奥会开幕式毫无艺术价值、毫无灵感***](https://news.artnet.com/opinion/2022-olympic-ceremony-review-2068461)***？***
 
-同是印度的喀拉拉邦（Kerala）和北方邦（Uttar Pradesh），前者拒绝伊维菌素，后者向民众发放伊维菌素套件包，感染率相差67倍，死亡率相差405倍。
+开幕式当晚就有瘟疫（Omicron ）从冬奥开幕式旁边的盘古七星酒店龙头大厦（龙头已被改装成龟头）下击杀一名特警，当场猝死。郭文贵透露，“肯定是打疫苗打多了，而且是领头的狙击手，习近平吓的个半死啊，狙击手的头死了。”郭先生进一步解释说，中国人将此称作“祭旗”。
 
-拥有2.425亿人口的印度北方邦（Uttar Pradesh）在去年5月4日前一段时间，每日新增确诊感染人数达3万人以上。
+更大的外交事件是**普京团队六个人染上了病毒**，两个保镖和四个随从官员，然后4个小时前确定是10个。据郭先生透露，“普京到北京参加冬奥会住华尔道夫酒店。昨天下午1点钟（美国时间2月3日），很不幸的是，在华尔道夫酒店已经死了三人，全部是抽搐而暴死。很恐惧啊，这个病毒又很有可能跑到冬眠会（冬奥会）现场去了。冬奥会才刚刚开始，盘古死人，华尔道夫酒店死人。”可以说，北京真正在开启一场走向死亡的冬奥之旅，而不是“一起向未来”。
 
-自去年5月4日起，北方邦开始向每个家庭发放价值2.65美元的伊维菌素套件包，每个家用套件包含：扑热息痛片[泰诺]（Paracetamol tablets [tylenol]）、维生素C（Vitamin C）、多种维生素（Multivitamin）、锌（Zinc）、维生素D3（Vitamin D3）、伊维菌素12毫克[数量#10片] （Ivermectin 12 mg [quantity #10 tablets]）、多西环素100毫克[数量#10片]（Doxycycline 100 mg [quantity #10 tablets]）。其他非药物组件包括口罩（face masks）、消毒剂（sanitizer）、手套（gloves）和酒精湿巾（alcohol wipes）、数字温度计（digital thermometer）和脉搏血氧仪（pulse oximeter）。
+- ***延展阅读：***[***为什么巴基斯坦要派一名运动员和八名部长参加冬奥会***](https://theconversation.com/beijing-olympics-why-pakistan-is-sending-one-athlete-and-eight-ministers-to-the-winter-games-176287)
 
-自从发放伊维菌素套件包后，北方邦（Uttar Pradesh）每日新增病例迅速下降，在相当长一段时间内，北方邦每日新增感染人数甚至不足10人。
 
-而印度相信疫苗、拒绝伊维菌素的喀拉拉邦（Kerala），虽然只有3,570万人口，仅有北方邦的14.7%，坚持全民打COVID-19病毒疫苗，新增COVID-19感染病例一直持续增长。
+习近平将24届冬奥会口号定义为“一起向未来”的最大讽刺就是，习在病毒管控上不但明显失控，而且所谓宣布“中俄联盟”也将注定不会一起走向未来。虽然世界仍在高度关注普京和习近平的举动，但普京这次北京之旅将会因为疫情事件严重影响习普关系。这很重要，似乎谁都明白，普京入侵乌克兰计划虽然箭在弦上，但他很需要中共的经济援助，而中共虽然努力希望借助冬奥会祈求世界给他一个“和平的机会”，但这会事与愿违，因为习近平正在领导共产党走向毁灭。对于这一点，新中国联邦人毫不怀疑，因为我们选择了在中国的虎年对共产党主动出击，它正在随着“纳粹运动会”开启了被摧毁前的多米诺骨牌效应。
 
-目前，喀拉拉邦1针疫苗接种率达到100%，两针疫苗接种率82%。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Summary-of-COVID-Vaccine-Administered.jpg)
-到今日为止，北方邦累计确诊感染人数为2,061,413人，而喀拉拉邦累计确诊感染人数为 6,440,371人，喀拉拉邦的感染率是北方邦的21倍！
+文字版原文：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-17_21-04-26.png)
+[新闻述评：北京冬奥会开幕惊闻普京随从保镖感染病毒](https://gnews.org/zh-hans/1960499/)
 
-如果只计算使用伊维菌素后的情况，并考虑伊维菌素包分发和正确使用需要一段时间，因此，选择从去年7月1日开始分析比较北方邦和喀拉拉邦的结果。
+编辑：东京樱花团/asket
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
-去年6月30日，北方邦的累计确诊感染人数为1,705,951，喀拉拉邦累计确诊感染人数为2,910,507人。因此，从使用伊维菌素开始，北方邦新增感染病例为355,462（2,061,413-1,705,951）人，喀拉拉邦新增感染病例为3,529,864（6,440,371-2,910,507）人，喀拉拉邦的感染率是北方邦的67倍。
 
-截至今日，北方邦的累计死亡人数为23,414人，喀拉拉邦累计死亡人数为63,019人。喀拉拉邦的死亡率是北方邦的18倍。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-17_21-20-52.png)
-
-去年6月30日，北方邦的累计死亡人数为22,577人，喀拉拉邦累计死亡人数为13,093人。从使用伊维菌素开始，北方邦新增死亡病例为837（23,414-22,577）人，喀拉拉邦新增死亡病例为49,926（63,019-13,093）人，喀拉拉邦的死亡率是北方邦的405倍。
-
-参考数据：
-
-[Why You Should Not Use Ivermectin to Treat or Prevent COVID-19](https://www.fda.gov/consumers/consumer-updates/why-you-should-not-use-ivermectin-treat-or-prevent-covid-19)
-
-[India’s Ivermectin Blackout – Part V: The Secret Revealed](https://www.thedesertreview.com/opinion/columnists/indias-ivermectin-blackout---part-v-the-secret-revealed/article_9a37d9a8-1fb2-11ec-a94b-47343582647b.html)
-
-[Compare States](https://prsindia.org/covid-19/cases/statewisecomparison)
-
-[UTTAR PRADESH Going the last mile to stop COVID-19](UTTAR%20PRADESH%20Going%20the%20last%20mile%20to%20stop%20COVID-19)
-
-[Tale of Two States: Kerala, Uttar Pradesh Paint A Contrasting Picture of Covid-19](https://www.news18.com/news/india/tale-of-two-states-kerala-uttar-pradesh-paint-a-contrasting-picture-of-covid-19-4127714.html)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

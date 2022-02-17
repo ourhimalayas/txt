@@ -2,25 +2,32 @@
 ---
 
 
-## 郭先生指喜币未来的价值在于流通
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2020616/)
+## 美媒指福奇滥用国家权力为中共独裁效力
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2020792/)
 
-作者：纽约香草山农场 – Noemi
+作者：银河系农场—骄子
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在2月13日的大直播中，郭文贵先生指出，喜币的价值取决于其在市场上的流通性。为此，战友们当下越频繁地利用HPay交易转账，大家手里的喜币在未来就越具有价值。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3-52.jpg)
-郭先生强调，HPay目前已经可以适用于任何领域的货币交易。同时，其还具有零费率、秒到账、安全、自由和私密的绝对支付优势。
 
-此外，郭先生也鼓励战友们将HPay充分地运用到彼此之间的交流互动中，比如在GTV和盖特的直播打赏、战友间的相互转账以及各类消费行为等方面，战友们都可以尽情地将HPay利用起来。
 
-郭先生最后呼吁道，战友们一定要大胆地去发掘HPay的无限支付潜能，使喜币的流通价值在未来得以充分展现。
+2月15日，据美国媒体报道，在全球对中共病毒溯源的过程中，福奇及美国其他领域的非民选官僚设置重重阻碍，用以掩盖中共实为病毒起源的事实。
 
-参考链接：[2022年2月16日 文贵大直播：疫苗公司股价变化；看中共的普遍贪腐、以贪反贪、以反贪为名实施政治清理；世界多地反华苗头；冬奥会锁链女后续；太平联盟官司进展](https://gtv.org/video/id=620cf40c432ae869226d8db5)
+![圖片](https://media.discordapp.net/attachments/943738468943679518/943893565585620992/0217AM1-11.001.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+该媒体指出，每当相关调查接近中共武汉病毒研究所实验室时，福奇和联邦卫生机构的某些官僚就会拐弯抹角地以政治手段，强制封口那些支持病毒实验室起源的科学家们。同时，大量被披露的电子邮件显示，福奇和美国国立卫生研究院的柯林斯一直在压制那些对中共不利的言论。非但如此，他们坚持对中共政府的谎言以及其拒绝国际调查的行为保持沉默，甚至还为中共开脱。
 
-总编/ 编辑: Irene木木
-校正/发稿：Fei797
+报道还表示，截止目前，中共病毒已经造成了数十万美国人的死亡，但福奇等人仍然试图掩盖病毒来源的真相，其滥用职权的行为会将美国置于危险的境地，更将严重威胁到美国的国家安全。
+
+该媒体也强调，美国必须清楚地认识到，中共并不是值得信赖的贸易伙伴或供应链来源，中共政府的各种大规模军事集结带有邪恶的意图，其目的是迫使美国服从，进而统治世界。
+
+而作为一个法治国家，美国不应该继续容忍来自中共的威胁并对中共的谎言消极应对。
+
+参考链接：[Why were unelected bureaucrats led by Fauci running interference for China?](https://centerforsecuritypolicy.org/why-were-unelected-bureaucrats-led-by-fauci-running-interference-for-china/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-5.png)
+
+总编：Irene木木
+编辑：静言
+校正/发稿：小野貓（文凱琳）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

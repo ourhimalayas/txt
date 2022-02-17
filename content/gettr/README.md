@@ -17,6 +17,23 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@ddnyc 2/17/2022 10:02 PM (UTC)`
+
+Always in style…@gfashion 
+> `@gfashion 2/17/2022 8:13 PM (UTC)`<br/>First drop Exotic Crocodile Jacket 🖤                                                                         Shop Now at gfashion.com
+![img](https://media.gettr.com/group43/getter/2022/02/17/20/54621472-51f5-e396-ed27-1845f56d8ca9/6447afe9edcab7243ee3c90aad642fcc.jpg)
+
+---
+
+`@miles 2/17/2022 9:57 PM (UTC)`
+
+2/17/2022 Miles Guo’s GETTR: The Himalaya Pay will free productivity so that the people can achieve financial independence and enjoy human rights. The governments have turned the people’s hard-earned money into a tool to threaten them. The amount of money spent by the CCP is equal to the sum of money spent by all governments across the globe. I feel so relieved after filing for personal bankruptcy.<br/><br/>2/17/2022 文贵盖特：H-Pay将解放生产力，让人们拥有财务自由和人权；政府竟把人民的血汗钱变成威胁他们的工具，中共的开销是全世界政府花老百姓的钱的总和；文贵破产后感觉老轻松了
+![img](https://media.gettr.com/group6/getter/2022/02/17/21/5f2fd3f5-17fd-20d3-b4b2-000a561863a3/out.jpg)
+
+---
+
 `@miles 2/17/2022 9:37 PM (UTC)`
 
 2/17/2022 Miles Guo’s GETTR: The CCP virus rampages in the CCP-occupied Hong Kong, with the medical system collapsing and the Hong Kong police turning into Hong Kong Popo. Accomplices of the CCP atrocities in Xinjiang and Tibet will get their retribution. The fellow fighters have successfully promoted the Himalaya Pay in Japan, Brazil, Spain, and Russia, with the food chain business benefiting the most.<br/><br/>2/17/2022 文贵盖特：中共独占的香港病毒肆虐、医疗系统崩溃、警察成黑警；中共在新疆和西藏暴行的帮凶将遭到天谴；战友们在日本、巴西、西班牙和俄罗斯成功推广了喜支付，食品链获益匪浅<br/>
@@ -140,20 +157,6 @@
 
 2/16/2022 Miles Guo: Top secret intelligence! Biden told Xi Jinping that the prerequisite for the U.S. not to cut diplomatic ties with the CCP is the investigation into the origins of the virus. Discrimination and violence experienced by the Asians will drive them to protest across the globe. Biden will shift the blame of the disasters caused by the COVID virus and its vaccines to the CCP. Biden will trick the CCP into its demise.<br/><br/>2/16/2022 文贵直播：绝密情报！拜登告诉习太阳美中不断交的前提是病毒溯源；亚裔遭遇的歧视和暴力将推动全球亚裔集体抗议；拜登将把病毒和疫苗灾难的责任甩给中共，中共将被拜登玩死！<br/>
 ![img](https://media.gettr.com/group9/getter/2022/02/16/23/188c9c63-9227-a5a4-0b2a-786fb942c3a2/out.jpg)
-
----
-
-`@miles 2/16/2022 9:37 PM (UTC)`
-
-2月16号：STATEMENT OF MILES GUO REGARDING BANKRUPTCY FILING<br/>I wish to make clear that this bankruptcy filing will in no way detract from my campaign of exposing the inherent evil of the Chinese Communist Party and its cadre of corrupt agents, lobbyists, and business proxies. I will continue to support the New Federal State of China and the millions of Chinese exiles and dissidents around the world demanding rule of law, democracy, and human rights in China. I<br/> am not Peng Shuai and will not “be disappeared” by the CCP.<br/> 
-![img](https://media.gettr.com/group41/getter/2022/02/16/21/c25dd2ce-4360-09d6-ec81-3128a8d9941b/out.jpg)
-
----
-
-`@miles 2/16/2022 8:36 PM (UTC)`
-
-2/16/2022 Miles Guo’s big announcement: 1: Miles will not leave the US in the near future; 2. Himalaya Reserve will launch H-Loan and H-Mortgage, and make a major favorable announcement to the investors soon. 3. Xi Jinping just had surgeries on his spleen and kidney. As the light of “Xi the Sun” is getting dimmer and dimmer, the invasion on Taiwan will be postponed. This is the will of God!<br/><br/>2/16/2022 文贵重大宣布：1. 文贵短期内不可能离开美国；2. 喜联储马上推出贷款和抵押政策，会有重大利好公告！3. 隆重宣布，习近平刚刚做了脾和肾的2个手术，习太阳光芒暗淡，对台湾行动暂缓，这是天意！<br/>
-![img](https://media.gettr.com/group5/getter/2022/02/16/20/a3316358-6b69-16be-1d8c-7000bf5592e2/out.jpg)
 
 ---
 
