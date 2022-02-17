@@ -2,36 +2,45 @@
 ---
 
 
-## 樱花FM┃郭文贵先生2022年2月6日盖特视频（2分54秒）全文字版
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2018683/)
+## 美国的授权撤离在历史上只用过两次:打伊拉克和南斯拉夫
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2018752/)
 
-音频：东京樱花团/战友520
-![](https://lh6.googleusercontent.com/R1G3MC_JFBURx3MQvgo96R_udzOkLthchke8yYvaD55NGvxEJry6aTnwkDGOBdYosNp_9i5q6cE1zawWiMCXW1N_mWmU5qCYgMlAQ6UHwwnyWcQUjMud6HpF-3KIQc-DfhNQ86_J)
-尊敬的战友们好啊！今天上午这个直播完以后，很多战友给我发信息，包括加拿大的战友给我发信息，就是说七哥说这个关于加拿大的大卡车司机，在首都温哥华的抗议事件不能使用GTV直播，是不是什么都不能谈，什么都不能直播啊？
+G-TV视频链接：[https://gtv.org/video/id=620caf1ab0af02660af43cae](https://gtv.org/video/id=620caf1ab0af02660af43cae)
 
-很多战友发信息，我在这给大家集体回复一下啊，兄弟姐妹们记住：什么都可以谈在GTV，你都可以用，所有战友都要用，积极的用，积极的谈加拿大这个卡车司机事件。
+**郭文贵先生：**然后呢这最夸张的美国，Eric你们看了吗？人家美国的那个发言人，人家问他：你安排好了吗？听说你们外交人员有改变。人家你看那副口气: 哈哈，就爱看他那样，不耐烦地——我们按照国际规则，国际保护！没有一个战友，真正说出这四个字“外交撤离”这是七哥第一个说的。在七哥说之前，人类上没存在，这你不参与外交你不懂，是我说的。
 
-我们说的三个不能，我跟Eric“湿男”学的三个不能：
+外交叫“撤离”，他可没有说外交调整，谁也没有说外交事件。“外交撤离”在美国历史上只用过两次。打伊拉克，南斯拉夫，“授权撤离”就是两个地方。你说这共产党被震到什么程度，内部什么程度。更夸张的事情，你看看周围这些所有的跟着的小国家全部现在动乱。
 
-第一个不能，就你不要在GTV上打着“爆料革命和新中国联邦的爆料革命的旗帜”来支持大卡车司机搞暴力行动，记住“搞暴力行动”，他不搞暴力行动，咱现在的情况随便报，随便说，随便直播。
+没有不动乱的地方，连非洲都动乱，叫什么狗屁国家，共产党我从小就念到什么，老挝、古巴、坦桑尼亚那些来访问看毛泽东的，毛泽东死也来哭的那些国家也乱了。更夸张的事情，共产党他做梦没有想到H-Pay昨天大年初一上线。
 
-第二个，不能在采访当中鼓动对方，煽动对方说“你要搞爆料，你要搞撞人呐，暴力啊”，是吧？甚至呢嗯（海东先生的手怎么伸这来了？哇，郭老板，你看我行吗？这样。太漂亮了,too beautiful现在流行啊，郭老板你觉得,怎么样啊？我就是你的了,是吧？)所以说兄弟姐妹们就不要再是用GTV直播鼓动对方搞暴力和参与暴力，这是两个不允许的。
+字幕来源：[2022年2月2日 《文贵大直播 》全文字版](https://gnews.org/zh-hans/1952328/)
 
-最后一个不允许的,在GTV上啊代表你的观点，发你个人也好，谁也好,就这么说，“我觉得你该暴力，你该杀人，你该撞人，你该撞车什么要这……”千万不要！千万不要！
+编辑整理：海贼王M.D.LUFFY；
 
-就这三样，不要啊：不要在GTV上煽动鼓动人家搞暴力。第二个，不要以爆料革命新中国联邦的名义搞暴力啊。第三个，不能在现场，在直播当中体现出代表GTV“我们什么GTV告诉大家，你们去搞着去搞暴力去啊”，这不可以的。
+字幕文件制作：知津；
 
-不要在GTV成为鼓动煽动暴力的部分，也不能代表新中联邦和爆料革命。除此之外，你想咋播你咋播，你播越多越好，是吧？播越多越好啊。
+视频制作及上传：Cindy；
 
-对了，我忘了啊，后来我说的那个成名的啊两次，第二次让七哥阳痿的人跟海东兄弟很熟，你问他对吧？开玩笑啊，都是开玩笑，没办法当真的，这都是开玩笑，关于海东兄弟都是开玩笑，关于我都是真的，姆该噻了。
+G-News发布：小满；
 
-稿件仅作参考，最终以郭文贵先生盖特视频内容为准。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-文字版原文：[郭文贵先生2022年2月6日盖特视频（2分54秒）全文字版](https://gnews.org/zh-hans/1968002/)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

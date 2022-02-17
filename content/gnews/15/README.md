@@ -2,49 +2,36 @@
 ---
 
 
-## 郝海东先生爆料宋祖英垫海绵扯胸罩让宋祖英哭成泪人儿
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2018585/)
+## 樱花FM┃郭文贵先生2022年2月6日盖特视频（2分54秒）全文字版
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2018683/)
 
-G-TV视频链接：[https://gtv.org/video/id=620cae10b0af02660af43c6c](https://gtv.org/video/id=620cae10b0af02660af43c6c)
+音频：东京樱花团/战友520
+![](https://lh6.googleusercontent.com/R1G3MC_JFBURx3MQvgo96R_udzOkLthchke8yYvaD55NGvxEJry6aTnwkDGOBdYosNp_9i5q6cE1zawWiMCXW1N_mWmU5qCYgMlAQ6UHwwnyWcQUjMud6HpF-3KIQc-DfhNQ86_J)
+尊敬的战友们好啊！今天上午这个直播完以后，很多战友给我发信息，包括加拿大的战友给我发信息，就是说七哥说这个关于加拿大的大卡车司机，在首都温哥华的抗议事件不能使用GTV直播，是不是什么都不能谈，什么都不能直播啊？
 
-**郭文贵先生：**这个春晚，我觉得你们几个说得都对，都是你们个人的感受，但是你们还是那句话，你们没到过幕后，你们没跟这些后面人交往过。就像你们不能像郝海东兄弟似的拽过胸罩，郝海东现在拽胸罩国内闻名了。
+很多战友发信息，我在这给大家集体回复一下啊，兄弟姐妹们记住：什么都可以谈在GTV，你都可以用，所有战友都要用，积极的用，积极的谈加拿大这个卡车司机事件。
 
-我昨天晚上国内都说半夜了，他说：“你说我跟小宋也很好，小宋哭得不行了：‘我咋惹过郝海东了？他说我这干什么呀？’ 哭得不行了。”说“小宋打完电话完了又和我打电话，还在电话上哭，她说：“你那个郭文贵吧，我也没招他惹他，他瞎编胡编乱造那也就算了，反正他也就是爆料的，那个郝海东我怎么惹他了呀？”又在那哭——宋祖英。
+我们说的三个不能，我跟Eric“湿男”学的三个不能：
 
-我说：“哥们你太幸福了，大过年的独享宋祖英的哭。”他在那儿给我学，他说：“你就别提了，小宋给我打得呀，她打过来说：‘我怎么惹这个郝海东了？哭的呀。”我说海东这个威力太大了，就这个“拽胸罩”把小宋拽成那样，我说：“海东没说拽呀，就是比如，你怕啥呀？” 他说：“那大家都知道。” “都知道那你怕说啥呀？”
+第一个不能，就你不要在GTV上打着“爆料革命和新中国联邦的爆料革命的旗帜”来支持大卡车司机搞暴力行动，记住“搞暴力行动”，他不搞暴力行动，咱现在的情况随便报，随便说，随便直播。
 
-你去想想啊，Eric，一个宋祖英被“拽胸罩”在中国成了一个现在过年后的最牛可以说在北京圈，咱别说到不了广西到不了杨改兰的老家，但是这个圈里边、政治圈、经济圈火了，你知道为啥呀我想问你们，这就是中央电视台最大的祸害。
+第二个，不能在采访当中鼓动对方，煽动对方说“你要搞爆料，你要搞撞人呐，暴力啊”，是吧？甚至呢嗯（海东先生的手怎么伸这来了？哇，郭老板，你看我行吗？这样。太漂亮了,too beautiful现在流行啊，郭老板你觉得,怎么样啊？我就是你的了,是吧？)所以说兄弟姐妹们就不要再是用GTV直播鼓动对方搞暴力和参与暴力，这是两个不允许的。
 
-你要说宋祖英收了多少钱没人搭理你，她收一个亿、五个亿，甚至有人说：“小宋收五个亿正常啊。” 但是宋祖英一胸罩，你说你那胸罩关老百姓上学看病有啥关系呀？
+最后一个不允许的,在GTV上啊代表你的观点，发你个人也好，谁也好,就这么说，“我觉得你该暴力，你该杀人，你该撞人，你该撞车什么要这……”千万不要！千万不要！
 
-字幕来源：[2022年2月2日 《文贵大直播 》全文字版](https://gnews.org/zh-hans/1952328/)
+就这三样，不要啊：不要在GTV上煽动鼓动人家搞暴力。第二个，不要以爆料革命新中国联邦的名义搞暴力啊。第三个，不能在现场，在直播当中体现出代表GTV“我们什么GTV告诉大家，你们去搞着去搞暴力去啊”，这不可以的。
 
-编辑整理：海贼王M.D.LUFFY；
+不要在GTV成为鼓动煽动暴力的部分，也不能代表新中联邦和爆料革命。除此之外，你想咋播你咋播，你播越多越好，是吧？播越多越好啊。
 
-字幕文件制作：知津；
+对了，我忘了啊，后来我说的那个成名的啊两次，第二次让七哥阳痿的人跟海东兄弟很熟，你问他对吧？开玩笑啊，都是开玩笑，没办法当真的，这都是开玩笑，关于海东兄弟都是开玩笑，关于我都是真的，姆该噻了。
 
-视频制作及上传：Cindy；
+稿件仅作参考，最终以郭文贵先生盖特视频内容为准。
 
-G-News发布：小满；
+文字版原文：[郭文贵先生2022年2月6日盖特视频（2分54秒）全文字版](https://gnews.org/zh-hans/1968002/)
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

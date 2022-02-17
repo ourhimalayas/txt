@@ -2,31 +2,29 @@
 ---
 
 
-## 印度税务部门对华为多处办公室展开偷漏税搜查
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2018682/)
+## 有声｜中共APP抖音可以绕过隐私保护直接访问用户数据
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2018744/)
 
-![印度一名妇女2019年10月在一次移动电信展销会上佩戴华为5G胸章。（路透社）](https://gdb.voanews.com/E750313C-1603-4EF5-BC3A-0D78DA2331B7_w1023_r1_s.jpg)印度一名妇女2019年10月在一次移动电信展销会上佩戴华为5G胸章。（路透社）
-据美国之音2月17日报道，印度税收部门15日对中共国电信设备制造商华为公司在印度的多处办公场所进行突击搜查，调查华为偷漏税。今年1月5日，印度政府表示，经调查发现中共国智能手机巨头小米在印度当地的公司有逃税行为，并要求补缴2017年4月至2020年6月期间的65.3亿卢比，约8800万美元的税金。
+By:**秘翻新闻**
 
-印度政府2月14日以对民众隐私和国家安全构成威胁为由，再次封禁54款与中共国有关联的应用程序(APP)，同时还请谷歌等公司在印度境内的手机应用商店下架这些应用程序。自2020年6月起，印度政府先后封禁300多个与中共国有关联的应用程序，包括抖音、微信海外版等等视频分享社交或直播平台，称这些应用软件对印度的主权、完整及安全构成威胁。
+**2022-02-17**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/7-22.png)图片来源 Dmitry Nogaev/Getty Images
+据《布雷特巴特新闻网》（Breitbart News）2月16日引用《The Wrap》的报道，称最近有两项研究显示，抖音可以绕过苹果和谷歌应用商店的安全保护措施，完全访问用户数据。
 
-随着中印在边境冲突的加剧，中印关系也陷入紧张状态。世界上任何一个主权国家都会防范其他国家对本国的渗透。华为是偷来的技术，不需要钻研，不需要交税，还有内置的间谍软件。中共的行为破坏了全球的科研市场，扰乱了他国的经济政策，不仅会引来他国的不满，更是为海外华人积累仇恨。其他国家会把对中共的仇恨算到中国人民头上，海外华人会成为出气筒。消灭中共，就是保护海外华人，也是解放全中国人民，是正义的需要。
+这些研究在2020年11月和2021年1月完成。研究摘要表明，抖音能够绕过苹果和谷歌应用商店的代码审查。另外，抖音能够在用户不知情的情况下改变应用程式的行为，并访问设备追踪功能，使中共公司和第三方能够获得全部用户数据。
 
-新闻参考链接：[https://www.voachinese.com/a/indian-tax-authorities-search-premises-of-china-s-huawei-20220216/6444375.html](https://www.voachinese.com/a/indian-tax-authorities-search-premises-of-china-s-huawei-20220216/6444375.html)
+这远远超过了脸书和推特等美国应用程式对用户隐私的侵犯。网络安全公司Conquest Cyber的网络威胁工程师弗兰克·洛克曼（Frank Lockerman）在审查了这些研究后表示，这些动态属性允许抖音在应用程式可以涉及的范围内全权访问你的设备，抖音浏览器不仅拥有从网络到设备的转换权限，它还可以查询设备本身的资料。
 
-编辑：胖丁
+尽管抖音声称其方法是标准的，但研究人员和专家称，抖音应用程式的代码使其更难被监管。一项研究指出，从后果上看，应用程式今天不做坏事，并不意味着它在未来不会做坏事。
+
+新闻来源 [**https://www.breitbart.com/tech/2022/02/16/study-chinas-tiktok-can-bypass-apple-and-google-privacy-protections-access-user-data/**](https://www.breitbart.com/tech/2022/02/16/study-chinas-tiktok-can-bypass-apple-and-google-privacy-protections-access-user-data/)
+
+秘翻新闻 巴拉克 编译报道
+
+发布 : 恩典
 
 * * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMAGE-2021-12-13-113746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
