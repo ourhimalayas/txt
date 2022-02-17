@@ -2,33 +2,40 @@
 ---
 
 
-## 大直播后记：三件大事宣布
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2020522/)
+## 美媒指福奇滥用国家权力为中共独裁效力
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2020792/)
 
-整理：文晋、枫叶红了
-编辑：Sadhu
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/12-20.png)图片来源：墨尔本雅典娜农场设计组
+作者：银河系农场—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
-今天三件大事，这段希望这个秘密翻译组，木兰尽马上把这个翻译成英文。我的个人法律团队和安全团队，还有这个跟日本和英国的所有的团队进行沟通以后，特别是美方的团队，明确告知，Miles你在短期内去英国，日本是不可能的。很明确，就是短期内离开美国是不可能的。 这是很明确啊! 所以说让日本的战友们，英国的战友们伤心了。 这是一个大问题啊！第一个大事儿，不去了。
+2月15日，据美国媒体报道，在全球对中共病毒溯源的过程中，福奇及美国其他领域的非民选官僚设置重重阻碍，用以掩盖中共实为病毒起源的事实。
 
-第2件大事儿，我现在告诉大家，马上，喜币喜联储将推出新的HPay政策，H币政策，马上推出H贷款和H抵押。 然后喜联储可能会有重大的利好的，完全震惊新的公告，巨大的很快就会出来，不会超过一个月， 大概啊！这是第2件大事儿。
+![圖片](https://media.discordapp.net/attachments/943738468943679518/943893565585620992/0217AM1-11.001.jpeg)
 
-第3件大事，我们现在隆重地宣布，习太阳同志刚刚作了手术。而且是同时2个手术，一个是脾，一个是肾。习太阳的光现在变得非常的暗淡。他的这场手术，我们战友对我的告知，可能对中国共产党，剩下最后的这个千把天，或者五六百天，可能更加加速地缩短。包括他对打台湾这件事上，对台湾今天真的是偶然，是最好的消息。 听说在手术缓过来以后。明确地说，对台的行动确实要暂缓。这里我估计这人，在死亡面前过了一回以后就没那么疯狂了。 所以我觉得对台湾又是个大好消息啊！ 台湾可以缓缓神，我可以告诉大家这个习刚刚彻底手术。
+该媒体指出，每当相关调查接近中共武汉病毒研究所实验室时，福奇和联邦卫生机构的某些官僚就会拐弯抹角地以政治手段，强制封口那些支持病毒实验室起源的科学家们。同时，大量被披露的电子邮件显示，福奇和美国国立卫生研究院的柯林斯一直在压制那些对中共不利的言论。非但如此，他们坚持对中共政府的谎言以及其拒绝国际调查的行为保持沉默，甚至还为中共开脱。
 
-这3件大事。 我告诉兄弟姐妹们，没有任何人有权力公布，习刚做过手术。28小时以前离开的手术急救室，我告诉你，这个手术地点也很神秘，他是坚持到冬奥会，马上做手术，在准备对台作战室的地方做的手术，但是我觉得这是个好消息，咱们这个战友说，他确确实实醒来以后有很大变化，就差点就把他命要了，是吧？这回对台湾会有很多的想法，我觉得会很好，这也是天意吧？我认为台湾有这么多庙，有这么多佛祖菩萨，念那么多年的经，我觉得上天会保佑台湾平安的。
+报道还表示，截止目前，中共病毒已经造成了数十万美国人的死亡，但福奇等人仍然试图掩盖病毒来源的真相，其滥用职权的行为会将美国置于危险的境地，更将严重威胁到美国的国家安全。
 
-资料来源：[2022年2月16日 文贵大直播](https://gettr.com/streaming/ptgw8b5f32)
+该媒体也强调，美国必须清楚地认识到，中共并不是值得信赖的贸易伙伴或供应链来源，中共政府的各种大规模军事集结带有邪恶的意图，其目的是迫使美国服从，进而统治世界。
 
-发布：tianzhihuan
+而作为一个法治国家，美国不应该继续容忍来自中共的威胁并对中共的谎言消极应对。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+参考链接：[Why were unelected bureaucrats led by Fauci running interference for China?](https://centerforsecuritypolicy.org/why-were-unelected-bureaucrats-led-by-fauci-running-interference-for-china/)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-5.png)
+
+总编：Irene木木
+编辑：静言
+校正/发稿：小野貓（文凱琳）
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,54 +2,37 @@
 ---
 
 
-## 警察和抗议者同样渴望人权,自由
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2021534/)
+## 安省今天起彻底开放
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2021659/)
 
-作者：香草山福音部 —melisa
+作者: The Canadian Press
+翻译：KK
+![](https://assets.gnews.org/wp-content/uploads/2022/02/5_0U446318.jpg)
+鉴于COVID-19指标的改善，安省继续取消大流行限制，从今天开始，要求顾客提供疫苗证明的餐馆、健身房和电影院彻底开放，不再有容量限制。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-3.jpg)
+其他使用疫苗接种证明系统的室内空间也不再受到容量限制，运动场和影剧院可以以一半容量开放。
 
+社交聚会和公共活动仍有容量限制，室内最多允许50人，而夜总会和性俱乐部等被认为风险较高的场所可以开放至25%的容量。
 
+户外社交聚会最多允许100人，而有组织的户外活动对人数没有限制。
 
+安省首席卫生官Kieran Moore博士将于今天下午晚些时候举行记者会回答有关问题。
 
+来源：https://toronto.ctvnews.ca/ontario-lifts-more-capacity-limits-on-businesses-gatherings-thursday-1.5784953
 
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
+**关注我们**
 
-特鲁多宣布:国家紧急令之后。包括安大略省,魁北克省在内的省马上宣布:取消疫苗护照,逐步放开政策。但是这帮政客说:与自由卡车无关而是基于科学。
+Discord 账号
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/687-0-1.jpg)
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-死要面子的元耻政客不承认取消疫苗护照是因为卡车司机的和平抗争让他们害怕了。
+Gettr 账号
 
-暴君特鲁多想用国家紧急令吓退卡车司机彻底失败。
-
-在反对疫苗暴政。争取人权,自由的问题上连恐怖分子都不配合特鲁多政府。和平抗议是合法的。特鲁多找不到镇压的理由。警察也是人也渴望人权。自由。以他们与抗议者在国歌中互相拥抱这是信仰的力量。特鲁多将作为暴君载人史册这是他的遗产。
-
-文贵先生早在香港反送中运动中就提倡香港抗我者使用卡车阻挡警察的阵压。这这倡议证明是非常有效的明智选择。
-
-2022年2月17日
-
-（本文仅代表作者个人观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-7.jpg)
-
-*编辑 /校对*：*Yuki*jiang
-
-*发稿：Yuki*jiang
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
