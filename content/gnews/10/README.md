@@ -2,23 +2,30 @@
 ---
 
 
-## 樱花FM┃普京参加冬奥会获北京“大礼” 却缺席习近平宴会
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2021126/)
+## NFSC新闻、G|TV新闻访谈简报|2022年2月17日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2021247/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-6.jpg)
-2月4日，俄罗斯总统普京和中国领导人习近平在北京冬奥会开幕式前进行了会晤。期间，双方签署了15项合作文件，其中包括俄罗斯向中国出口石油、天然气、小麦等大宗商品的购销协议。俄罗斯石油公司官网2月4日消息，普京率团访华期间，俄罗斯石油公司（Rosneft Oil）和中国石油天然气集团（下称中石油）签署过境哈萨克斯坦向中国供应1亿吨石油的协议，协议期为10年。俄罗斯卫星通讯社（Sputnik）报导，除上述石油供应协议外，中石油还与俄罗斯天然气工业股份有限公司（Gazprom）签订了一份天然气长期供应协议。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO-1.jpg)
 
-2月5日，习近平夫妇在人民大会堂举行宴会，欢迎出席北京冬奥会开幕式的国际宾客。但中共央视报导并未提及具体有哪些宾客。根据央视画面显示，出席这次宴会的国际级政要人数约有25人，但备受瞩目的普京未列其中，引发外界猜测。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-16.png)
+文章仅代表作者本人观点，与Gnews无关
 
-文字版原文：
+视频参看：
+[2022.02.17早 《NFSC新闻》](https://gtv.org/video/id=620e4d90b706176dd78ba22e)
+[2022.02.17早 G|TV《新闻访谈》](https://gtv.org/broadcast/watch/620e550db706176dd78baaa8)
 
-[普京参加冬奥会获北京“大礼” 却缺席习近平宴会](https://gnews.org/zh-hans/1963676/)
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-编辑：东京樱花团/asket
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-1.png)
 
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

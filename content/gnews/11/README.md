@@ -2,90 +2,56 @@
 ---
 
 
-## 2月16日老班长战友联盟答疑，G系列相关信息文字版
-` 全球G系列咨服群` [轉載自GNews](https://gnews.org/zh-hans/2021094/)
+## 同是印度 是否使用伊维菌素死亡率相差405倍
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2021237/)
 
-非官方整理，一切信息以联盟答疑音频为准
+作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
 
-G-听写： qiutian（邱甜）； 健康自由
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-（时段：开始～17:00 qiutian（邱甜））
+美国FDA一直误导民众，“[不应该使用伊维菌素来治疗或预防COVID-19](https://www.fda.gov/consumers/consumer-updates/why-you-should-not-use-ivermectin-treat-or-prevent-covid-19)”，FDA称，没有证据表明伊维菌素（Ivermectin）对COVID-19是安全或有效的，因此一直没有授权或批准伊维菌素用于预防或治疗人和动物的 COVID-19。
 
-1、问：GTV重建项目和新GTV追加投资这两个有什么区别？
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-17_21-26-31.png)
 
-答：重建项目和追加投资是一件事，老的GTV已经解散了，在新GTV很多战友想投资就追加了投资，这一块叫追加投资。11月1日之前报备的卡项目享有1:10福利，只限报备的金额，后增加的金额不再享有1:10福利。
+同是印度的喀拉拉邦（Kerala）和北方邦（Uttar Pradesh），前者拒绝伊维菌素，后者向民众发放伊维菌素套件包，感染率相差67倍，死亡率相差405倍。
 
-2、问：老椅子第二批没有排上，是排第几批？
+拥有2.425亿人口的印度北方邦（Uttar Pradesh）在去年5月4日前一段时间，每日新增确诊感染人数达3万人以上。
 
-答：和农场联系给补递上去最近的一批。
+自去年5月4日起，北方邦开始向每个家庭发放价值2.65美元的伊维菌素套件包，每个家用套件包含：扑热息痛片[泰诺]（Paracetamol tablets [tylenol]）、维生素C（Vitamin C）、多种维生素（Multivitamin）、锌（Zinc）、维生素D3（Vitamin D3）、伊维菌素12毫克[数量#10片] （Ivermectin 12 mg [quantity #10 tablets]）、多西环素100毫克[数量#10片]（Doxycycline 100 mg [quantity #10 tablets]）。其他非药物组件包括口罩（face masks）、消毒剂（sanitizer）、手套（gloves）和酒精湿巾（alcohol wipes）、数字温度计（digital thermometer）和脉搏血氧仪（pulse oximeter）。
 
-3、问：人民币转进去以后是转成HDO吗？
+自从发放伊维菌素套件包后，北方邦（Uttar Pradesh）每日新增病例迅速下降，在相当长一段时间内，北方邦每日新增感染人数甚至不足10人。
 
-答：现在农场在协助战友把人民币转到HDO上，各种办法不一样。
+而印度相信疫苗、拒绝伊维菌素的喀拉拉邦（Kerala），虽然只有3,570万人口，仅有北方邦的14.7%，坚持全民打COVID-19病毒疫苗，新增COVID-19感染病例一直持续增长。
 
-（时段：17:00～结束 健康自由）
+目前，喀拉拉邦1针疫苗接种率达到100%，两针疫苗接种率82%。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Summary-of-COVID-Vaccine-Administered.jpg)
+到今日为止，北方邦累计确诊感染人数为2,061,413人，而喀拉拉邦累计确诊感染人数为 6,440,371人，喀拉拉邦的感染率是北方邦的21倍！
 
-4、问：如果没有KYC ，农场是否可以帮忙转成HDO代存。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-17_21-04-26.png)
 
-答：可以，农场可以提供这样的服务。请跟自己农场联系。不过，请大家注意，新建GTV投资不接受第三方HDO付款的。 意思是，如果你自己没有喜账号，农场帮你代持HDO, 是不可以投GTV 的。
+如果只计算使用伊维菌素后的情况，并考虑伊维菌素包分发和正确使用需要一段时间，因此，选择从去年7月1日开始分析比较北方邦和喀拉拉邦的结果。
 
-联盟正在争取，希望以后可以。 如果要把墙内的钱转出来投资HCN，将来基金可以帮忙在二级市场的交易。这是一种抵押服务。
+去年6月30日，北方邦的累计确诊感染人数为1,705,951，喀拉拉邦累计确诊感染人数为2,910,507人。因此，从使用伊维菌素开始，北方邦新增感染病例为355,462（2,061,413-1,705,951）人，喀拉拉邦新增感染病例为3,529,864（6,440,371-2,910,507）人，喀拉拉邦的感染率是北方邦的67倍。
 
-5、问：老投资者想追加新GTV，只要在4月30号前报备并到账就可以了，对吗？
+截至今日，北方邦的累计死亡人数为23,414人，喀拉拉邦累计死亡人数为63,019人。喀拉拉邦的死亡率是北方邦的18倍。
 
-答：是的。其实现在，新的投资者也是一样。4/30 到账。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-17_21-20-52.png)
 
-6、问：喜账号有币，可以买币投资GTV吗？
+去年6月30日，北方邦的累计死亡人数为22,577人，喀拉拉邦累计死亡人数为13,093人。从使用伊维菌素开始，北方邦新增死亡病例为837（23,414-22,577）人，喀拉拉邦新增死亡病例为49,926（63,019-13,093）人，喀拉拉邦的死亡率是北方邦的405倍。
 
-答：如果是成功锁币，留下了的是10% 不超过5000个币，或者是二级市场买的币，是可以卖掉投资GTV的。
+参考数据：
 
-联盟正在与GTV沟通，希望可以用HCN 投资，这样大家就不需要卖币了。到时有结果会通知大家。
+[Why You Should Not Use Ivermectin to Treat or Prevent COVID-19](https://www.fda.gov/consumers/consumer-updates/why-you-should-not-use-ivermectin-treat-or-prevent-covid-19)
 
-7、问：在喜账号里的HDO，是 要投GTV 的款，到现在还没有收到联盟的公告如何转给GTV。
+[India’s Ivermectin Blackout – Part V: The Secret Revealed](https://www.thedesertreview.com/opinion/columnists/indias-ivermectin-blackout---part-v-the-secret-revealed/article_9a37d9a8-1fb2-11ec-a94b-47343582647b.html)
 
-答：是，现在还有几个点没有解决。GTV 不接受HDO第三方付款。如果是以自己的名字投，绝对是没有问题的。
+[Compare States](https://prsindia.org/covid-19/cases/statewisecomparison)
 
-另外，我们希望GTV 能接受第三方HDO 的投资。联盟还在跟他们谈。把这个事情简化并合理化。一有进展，会马上通知战友们。
+[UTTAR PRADESH Going the last mile to stop COVID-19](UTTAR%20PRADESH%20Going%20the%20last%20mile%20to%20stop%20COVID-19)
 
-8、问：G|CLUBS卡投资没有1：10福利了，对吗？
+[Tale of Two States: Kerala, Uttar Pradesh Paint A Contrasting Picture of Covid-19](https://www.news18.com/news/india/tale-of-two-states-kerala-uttar-pradesh-paint-a-contrasting-picture-of-covid-19-4127714.html)
 
-答：是的，卡项目已经结束，如果在去年11/1之前没有报备的话，现在买卡是没有GTV 股票的。而且，当时报备多少就是多少，不能增加。
-
-9、问：最近推出的数字法案，是否对美加的KYC 有帮助？
-
-答：是的，一定会有帮助。一定是利好，不过只限美国，日本和加拿大不行。不过具体实施方案还没有出炉。
-
-10、问：喜币联盟代购代持的，G系列是战友帮忙代持，这些需要填表吗？
-
-答：要填表。只要有福利币的人都要填，不管谁代持，锁币都要填锁币表。因为你是最终持有人，你有话语权。
-
-11、问：联盟代持的要填表吗？
-
-答：是的，不过是晚一点填。联盟已经自动锁了。当你有个人KYC的时候，就需要填锁币表。到时联盟会通知的。 或者问问义工。
-
-12、问：锁的喜币，可以贷款吗？
-
-答：可以。
-
-13、问：现在没有喜币，之后在交易所买的，可以抵押吗？
-
-答：可以。其实所有G系列资产，都可以抵押。这是战友的福利。而且以后就是一种借贷，任何人都可以的。
-
-14、问：联盟基金代持的可以抵押贷款吗？
-
-答：不可以。
-
-15、问：去年用卡项目追加GTV 投资，几个月前已经签了NDA，现在还没有收到合同。
-
-答：NDA 有好几种，可能你签的和重建GTV 的是不一样的。请和客服确认一下。
-
-G系列都是独立机构，联盟答疑不代表任何G系列，不承担任何法律责任。联盟只是一个沟通的桥梁，一切以当地法律和G系列官方为准。
-
-语音链接：[https://mega.nz/file/cSI1BQTJ#ilkePa3IWkkMEyQag\_ztanw9S3Rwfb-eXvAg3jd\_uYk](https://mega.nz/file/cSI1BQTJ#ilkePa3IWkkMEyQag_ztanw9S3Rwfb-eXvAg3jd_uYk)
-
-审核：夏目&山竹
-
-发布：夏目&山竹
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

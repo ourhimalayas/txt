@@ -2,40 +2,30 @@
 ---
 
 
-## 文革发生的社会政治机制与环境简析
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2021066/)
+## 秘翻在线：阿联酋批准给虚拟资产服务商国家牌照以吸引全球数字货币巨头加入
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2021159/)
 
-香草山写作组：静言
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-31.png)
-中共自49年开始，以独裁统治一党专政体制，将中国社会变成共产主义建设的试验场。66年文革发生，从当时的政治与社会环境来看，就像遍地干柴，一点即燃。尝试总结一下：
+**翻译：明澈**
 
-一、中共专制的政治体制，使得老百姓毫无自由人权。
+**校对：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-18-002218.jpg)
+综合外媒2月17日消息，阿联酋正准备向数字货币业务相关的机构签发牌照，以此吸引全球数字货币巨头入驻阿联酋增强国家竞争力。彭博社指出，为了吸引更多的业务，阿联酋在去年年底完成了一项关于虚拟资产的风险评估，涉及14个公共部门机构和16个私营部门。阿联酋政府将规范包括有关欺诈、洗钱和数字货币的违规使用等问题，但不会禁止虚拟资产服务商（VASP）的发展。
 
-二、五四启蒙精神被中共用极端左倾文化思潮攫取操控，中华大地再无现代文明思潮的生存空间。
+据彭博社观察，阿联酋将签发全国在线运营数字货币相关业务的国家牌照，其国家证券和资产管理局已进入了制定管理虚拟资产供应商 (VASP) 规则的最后阶段。目前，阿联酋的一些金融自由区已经为VASP发放了牌照，并由地区当局监管。彭博社指出，有政府报告显示，迪拜多种商品中心已批准了22张牌照，而阿布扎比全球市场批准了6张，迪拜硅绿洲管理局至少有1张，而作为华尔街银行中东中心的迪拜国际金融中心，目前还没有签发过。
 
-三、知识分子历来没有独立的身份，毫无存在的合法性与话语权，要么充当党的传声筒，或要么沦为阶下囚。
+报道指出，VASP的国家牌照可以帮助阿联酋更好地与新加坡和香港等国家进行金融竞争。币安作为全球交易量最大的数字货币交易巨头，已经在阿联酋建立了一个本地团队，赵长鹏也是常驻人员。同时，据领英报道，总部位于旧金山的交易所Kraken目前正在阿布扎比招聘一名中东和北非地区的首席执行官。
 
-四、法制对一个文明社会的保障是基本的要求，文革时期党代替法，权力代表法，使得全国上下人人自危，连国家主席都没有自卫的法律保障，老百姓更如同草芥。
+**新闻来源：**
 
-文革十年浩劫，中华民族已到毁灭的边缘。几十年来，国人也未好好反省，更谈不上清算那些作恶多端的人，亦无人记录这段可耻的历史以警后人。更可怕的是，那些文革既得利益者还在台上，作威作福，老百姓被洗脑蒙蔽，分不清好歹，甘当粉红，还为他们唱赞歌。
+[https://compreiativo.com.br/uae-readies-regulation-to-attract-global-crypto-giants-and-build-mining-ecosystem-27568.html](https://compreiativo.com.br/uae-readies-regulation-to-attract-global-crypto-giants-and-build-mining-ecosystem-27568.html)
 
-郭文贵先生说过，文革之后，中共官方第一批派往美国的留学生，就是文革的既得利益者。而这批人是为培养日后蓝金黄美国政商名流，搞垮美民主政治而培养的高级间谍。单伟健就是其中最高级别的人物。其实，在中共国今天的主要职位上的人，还是文革期间的那批人。故郭先生指出，这批红卫兵不死，世界不得安宁。不消灭共产党，中华民族没有出路。而新中国联邦就是要铲除中共独裁的专制，人治，不尊重人权等产生文革灾难的政治社会机制，让中华民族实现与世界自由民主联盟的伟大复兴。
+[https://ca.finance.yahoo.com/news/uae-readies-national-crypto-licensing-074009211.html](https://ca.finance.yahoo.com/news/uae-readies-national-crypto-licensing-074009211.html)
 
-参考书籍：文学史的命名与文学史观的反思（张富贵等）
 
-编辑/审核/发稿：Bronx Bombers
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-37.jpg)
+> [The UAE opens the legal path to welcome cryptocurrency organizations](https://coinlive.me/the-uae-opens-the-legal-path-to-welcome-cryptocurrency-companies-15185.html)
 
-**更多资讯，更多关注**
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

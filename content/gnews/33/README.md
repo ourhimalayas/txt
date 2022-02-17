@@ -2,38 +2,22 @@
 ---
 
 
-## DC每日热点0217
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2020627/)
+## 北京冬奥会2月16日上午出现可怕一幕，又一位运动员瘫倒在地，突发心血管病
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2020685/)
 
-编辑：楚门门
-![](https://assets.gnews.org/wp-content/uploads/2022/02/ADE3F546-1B47-4954-BE8D-863615A4F949-scaled.jpeg)
-道琼斯指数 34934.27 ▼0.16%
-纳斯达克指数 14124.09 ▼0.11%
-WTI纽约原油CFD 92.602▼1.10%
-布伦特原油CFD 93.744 ▼1.12%
-标普50指数 2,942.151▼55.02%
-美元兑人民币 1USD=6.337 RMB
-美元兑港币 1USD=7.799 HKD
-国际黄金 1895.40美元/盎司
-全球CCP病毒感染人数418,827,241例
+#### 翻译                          意大利达芬奇农场                  小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-17-alle-12.00.56.png)图片来源：avversinews.it
+上个星期天挪威世界冠军英格丽德•坦德雷沃尔德( Ingrid Tandrevold )在快要接近终点时所发生的一幕， 2月16日早上在4×6 冬季两项接力赛中又出现了。
 
-1、美国亚太事务助卿：推进印太经济框架的努力中不打算与中共国接触
-2、美国称三架P-8A反潜机遭俄罗斯不专业拦截 据信贴近时相隔只几英尺
-3、英澳首脑联合声明对新疆人权表关注并支持台湾参与国际组织
-4、CECC要求亚马逊公司赔偿因披露其供应商侵犯劳工而入狱的中共国维权人士
-5、著名墨西哥科学家承认帮助俄罗斯监督美国线民的控罪
-6、欧盟最高法院裁决：成员国若违背民主法治价值观 欧盟可以扣发资金
-7、美国与北约：俄罗斯在乌克兰附近正在增兵而不是撤军
-8、欧盟即将与非盟召开峰会，抗衡中共国与俄罗斯在非洲的影响力
-9、白宫为过渡至大流行病非危机阶段做准备
-10、香港医管局实施“疫苗通行证” 未打疫苗可被解雇 工会批做法不合理
-11、印度对华为多处办公室展开逃漏税搜查
-12、恒大因两子公司拖欠工程款而遭法院冻结资产
-13、美指责中共国未履行入世承诺 将研究新手段促其改变经贸行为
-14、中法签超17亿美元第三方市场合作项目 法方低调缄默
-15、法国 加拿大 欧洲盟友宣布从马里协调撤军
-16、德国奥地利计划3月解除大部分防疫限制措施
-17、俄议会吁普京承认乌东分离地区独立 欧美警告
+在2022年冬奥会举办地张家口的雪地上，女子团体预赛于北京时间15点45分开始，对运动员来说，幸运的是，气温没有前几天那么令人望而生畏。瑞士队是有望夺冠的。
+
+问题出在女子4×6公里冬季两项的接力赛，瑞士队比赛只进行了几分钟。由于呼吸问题，第一棒选手，伊雷妮•卡杜里施（Irene Cadurisch）不得不在传递接力棒之前放弃比赛，她被用担架抬离现场并送往医疗站。从而提前结束了瑞士队的比赛。
+
+这次比赛瑞典队夺得金牌。据瑞士网站报道30岁的伊雷妮•卡杜里施可能是心血管出了问题。
+
+原文链接：[https://www.eventiavversinews.it/olimpiadi-di-pechino-momenti-terribili-anche-stamattina-16-febbraio-unaltra-atleta-e-crollata-a-terra-stamattina-problemi-cardiovascolari-improvvisi-per-irene-cadurish/](https://www.eventiavversinews.it/olimpiadi-di-pechino-momenti-terribili-anche-stamattina-16-febbraio-unaltra-atleta-e-crollata-a-terra-stamattina-problemi-cardiovascolari-improvvisi-per-irene-cadurish/)
+
+编辑、上传： Xiao  baige
 
  
 

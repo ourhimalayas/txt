@@ -2,29 +2,38 @@
 ---
 
 
-## 用喜币支付购买巴西车神塞纳战车是里程碑事件
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2020727/)
+## 郭先生爆料即将发生的三件大事
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2020915/)
 
-作者：波士顿五月花 Frankie 背靠背
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-17-at-10.03.04-PM-1.png)图片来源：互联网
+作者：纽约香草山农场-云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月16日，郭文贵先生在大直播中宣布了即将发生的三件大事。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1-8.jpeg)
 
-郭先生盖特称：敬爱的战友们好这笔数字货币交易，将是改变数字货币与现实生活生产力，公平交易一个里程碑的事件！也是喜币走向另一个新时代的开始！意义重大，塞纳是汽车运动业的像神一般的存在的超级超级英雄……他是巴西的象征，也是人类走向现代汽车运动的最有影响力的人物之一。【已故车神塞纳的车被喜币买走了……】。[【1】](https://gettr.com/post/pv25o1f97a)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-17-at-10.04.39-PM-1.png)图片来源：Gettr
-郭先生盖文提到的F1赛车，5 月 11 日在摩纳哥，专家 Bonhams 拍卖就是传奇的迈凯伦福特 MP4/8A在 1993 赛季的顶级赛车运动中由艾尔顿塞纳驾驶。这辆完美无瑕的一级方程式单座赛车是 1993 年摩纳哥大奖赛的冠军和三届巴西飞行冠军（那个赛季也是塞纳在迈凯轮的最后一个赛季，在转会威廉姆斯 – 雷诺之前），处于最佳状态，准备好在世界上的任何赛道上启动和运行[【2】](https://www.motorpasion.com/formula1/mclaren-mp4-8a-ayrton-senna-subasta)。2018年的市场价值至少500万欧元，考虑物价通胀和货币超发，今天交易价格一定远超过当时价格。这辆战车是大多数汽车爱好者都希望拥有的，它是竞争史上的标志性的一辆F1赛车，并且由车神塞纳驱动的。喜币和喜支付(HPAY)具备安全，隐私保护，支付速度快，无条件（不限制金额），无物理化，无中介即交易双方通过喜币喜支付免去通过银行之间各种中间不必要的环节和费用，标志着喜币在私人高端收藏品交易市场粉墨登场。
+首先，经过安保单位及美、英、日三国安全机构的评估，郭先生两年内会继续停留美国，此前移居英、日两国的计划将暂时延期。
 
-巴西不仅有足球，更有赛车。最能展现艾尔顿塞纳竞技能力和高超技能的”上帝之圈“。发生在1993年的欧洲大奖赛，多宁顿赛道，第四位发车的塞纳，起步即掉到舒马赫身后，凭借其超高的雨中战力，2号弯内超越舒马赫，下一个弯外线超越温德林格，占全场第三位，接下来又在7号弯内线超达蒙希尔，上到全场第二位置，在第一圈最后两个弯角，塞纳强行超越阿兰普罗斯特，上升到全场第一位，第一圈连续超越四台赛车取得领跑位置，公认F1历史上最伟大的一圈。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-17-at-11.18.02-PM.png)图片来源：互联网
-埃尔顿·塞纳生平。于1960年3月21日出生于巴西圣保罗，4岁就开始开卡丁车巴西足球联赛空难，13岁开始参加卡丁车赛，1984年就加入杜尔曼车队开始了自己的F1生涯，并且曾在1988年、1990年、1991年取得F1世界冠军。
+其次，喜联储及HPay预计将在短期内宣布新政策，同时，喜贷款和喜投资等新项目也将同步推出。 此外，喜币已经可以在HPay中自由交易，并且可以随时在喜交所进行与美元之间的互换。郭先生也提醒战友们，未来的盖特币、盖特PAY和躺平币将与喜币一样具有极大的发展潜力，战友们应积极拥有这些未来的希望
 
-参考链接：[【1】https://gettr.com/post/pv25o1f97a](https://gettr.com/post/pv25o1f97a)
+最后，郭先生透露，习近平在北京冬奥会开幕式后接受了脾肾方面的手术。据情报来源显示，习在28小时前刚刚从手术麻醉中清醒，其在略微恢复后立即对内宣布，原来预计攻打台湾的计画将暂缓。
 
-[【2】El mítico Mclaren MP4/8A de Ayrton Senna sale a subasta: prepara al menos 5 millones de euros](https://www.motorpasion.com/formula1/mclaren-mp4-8a-ayrton-senna-subasta)
+郭先生表示，无论习近平突然变更计划的原因为何，这都将避免许多无辜生命和财产的损失。另一方面，习近平手术后气势大衰，这也将加速中共的灭亡。
 
-* * *
+参考链接：[2022年2月16日 文贵大直播：疫苗公司股价变化；看中共的普遍贪腐、以贪反贪、以反贪为名实施政治清理；世界多地反华苗头；冬奥会锁链女后续；太平联盟官司进展；](https://gtv.org/video/id=620cf40c432ae869226d8db5)
 
-*编辑&发布：Vicky*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
+总编：Irene木木
+编辑：Irene木木
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
