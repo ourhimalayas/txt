@@ -2,48 +2,47 @@
 ---
 
 
-## 新中国联邦正在制造奇迹停止死亡、终结中国付钱买墓地
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2019742/)
+## 澳洲华裔富豪周泽荣被指干预澳大利亚联邦大选
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2019746/)
 
-G-TV视频链接：[https://gtv.org/video/id=620cc1c0b0af02660af4418c](https://gtv.org/video/id=620cc1c0b0af02660af4418c)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/54208593-10513575-image-a-49_1644901197824.jpg)周博士与前外交部长朱莉-毕晓普和前澳大利亚战争纪念馆馆长布伦丹-纳尔逊合影
+图片来源: 每日邮报
+英国《每日邮报》2022年2月16日报道，一位中共国出生的房地产开发商在参议院财务听证会上被点名为外国干预下届选举计划的“操纵者”，其在澳大利亚有着悠久的影响力。
 
-**郭文贵先生：**今年大过年的战友们，七哥2017年爆料说什么？我说：中国共产党的所有的墓地、坟地，都被王岐山给垄断了，养老院。我说：共产党会让全世界墓地最赚钱、火葬场最赚钱。现在你们体会到了吗？
+周泽荣生于中共国广东省，于上世纪80年代移居澳大利亚，后来成为澳大利亚公民，长期以来一直自诩拥有高层的政治关系。
 
-我告诉大家：什么都是轮回！共产党会发现他们建的这么多火葬场和墓地，最后埋的都是他们和他们家人。中国的老百姓很快墓地不用付钱，新中国联邦不会让他们老百姓（在）中国墓地付一分钱，火葬场不能付钱。
+在本周的议会听证会上，这位商人被工党参议员*金伯利*•基钦(Kimberley Kitching)指名涉嫌参与针对今年将要举行的联邦大选的一场阴谋。澳大利亚安全情报组织(ASIO)负责人麦克·伯吉斯(Michael Burgess)拒绝证实参议员基钦指控的操纵者是谁。
 
-我们会让全世界的火葬场，还有墓地百分之八、九十让它关掉，停止死亡。新中国联邦正在做这个事情。包括打了疫苗的、得了新冠的，我们的科学家24小时昼夜不停地在研究着、在努力着。这是天给我们的机会！我不敢保证，但我相信一定会有奇迹！青蒿素已经是奇迹了。
+伯吉斯先生上周声称，有一项所谓的计划已经曝光，该计划涉及识别那些“可能参加选举的候选人，这些候选人要么支持外国政府的利益，要么被评估为容易受到引诱和培养”。
 
-所以说只有新中国联邦人，给世界带来未来、安全、平安和希望。我们不是像中国在老百姓见面：恭喜发财！然后是：钱包拿来！还有一个：祝你平安健康！“祝你”“祝你”，能保证吗？
+周二，愤怒的周博士回击了基钦参议员，威胁要起诉她，就像他去年在另外一起诽谤案中，成功胜诉了澳洲广播公司和九号新闻台，并获得59万澳元的赔偿。周博士是广州房地产开发商侨鑫集团的创始人，他与澳大利亚有着长期的，并有争议的联系。
 
-没有人给别人平安过，没别人给人健康，只有新中国联邦给你未来、给你平安、给你健康。而且不是恭喜发财，是让你发财。只有新中国联邦敢告诉全世界说：我让你发财，我让你有未来，我让你平安，我让你健康。我们已经做到了，服不服？信不信？你自己去看去。
+周博士身价超过10亿澳元，自2004年以来已向澳大利亚的两个主要政党提供了超过400万澳元的政治捐款。在陆克文上台的2008年联邦大选前两年，周博士向联盟党捐款98万澳元，向工党捐款40.2万澳元。这位房地产开发商经常与澳大利亚联邦政界人士合影，包括前总理约翰·霍华德和前外交部长朱莉·毕晓普。
 
-字幕来源：[2022年2月2日 《文贵大直播 》全文字版](https://gnews.org/zh-hans/1952328/)
+伯吉斯先生上周将这位操纵者描述为“与外国政府及其情报机构有直接而深厚的联系”的人。
 
-编辑整理：海贼王M.D.LUFFY；
+“我可以确认，ASIO最近在澳大利亚大选前查明并摧毁了一起外国干涉阴谋。”他上周三表示，“我不打算确定司法管辖范围，因为我们在所有州和地区的各级政府都看到了外国干预的企图。这位操纵者雇佣了一个人来进行外国干预行动，并使用一个离岸银行账户提供数十万美元的运营费用。”据说这名雇员利用与政界人士、工作人员和记者的关系来选择潜在的目标。
 
-字幕文件制作：知津；
+简评：
 
-视频制作及上传：Cindy；
+作为西方民主国家中对抗中共最前沿的国家，澳大利亚在今年5月就要进行联邦大选。这次大选前周泽荣再次被曝光出来确实值得讨论。
 
-G-News发布：小满；
+首先，周泽荣的与中共的关系不需置疑，他的名字至今还列在汕头统战部的网站上。众所周知中共的统战部就是对外的渗透和间谍组织。而他被澳大利亚安全情报组织（ASIO）在这个关键时刻提名并不令人意外。周泽荣历史上对澳洲的两大执政党都进行大量捐款也充分证明了郭文贵显示早就揭露的中共在干涉他国政治时会两头押注，利用两党的钟摆效应从中得利的手法。其次，如果此次ASIO所披露的操纵者就是周泽荣，则证明了澳洲媒体和参议员对他中共间谍的指证是正确的。这次让他这样一个曾经被高度曝光的有争议人物再次出马参与干预澳洲大选，一方面我相信这绝非他本人的选择，而是被中共所威胁，与中共这只恶狼为伍必然会付出全部身家；另一方面也表现出了中共在澳洲的渗透势力可能已经日渐衰竭，到了无人可用的地步。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+最后，2021年周泽荣曾经成功地诉讼了澳洲两家报道了他干预澳洲政治的电视台，并获得巨额赔偿。这充分地说明了西方国家司法制度的公平性：既每一个人都有通过法律来维护自己权益的权利。尽管这个制度已经被中共所利用和严重地渗透，但我们应该对它充满信心，让子弹飞一会儿，邪恶的中共和其爪牙必然会受到惩罚。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+新闻链接：[https://www.dailymail.co.uk/news/article-10513575/Dr-Chau-Chak-Wings-astonishing-life-Labor-senator-attacks-parliamentary-privilege.html](https://www.dailymail.co.uk/news/article-10513575/Dr-Chau-Chak-Wings-astonishing-life-Labor-senator-attacks-parliamentary-privilege.html)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+* * *
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+编辑：【英国伦敦喜庄园编辑部】
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

@@ -2,46 +2,100 @@
 ---
 
 
-## 习神与死神擦肩，会否幡然醒悟？
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2020049/)
+## 这不是左或右的问题 这是关于世界各地民主国家普通公民的反抗
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2020071/)
 
-作者：波士顿五月花 跟随战神
-![](https://assets.gnews.org/wp-content/uploads/2022/02/20220217-2.jpg)
-2022年2月16日，文贵先生在大直播中隆重宣布了一个重大事件：习近平刚刚做了手术，而且是两个手术，一个是脾、一个是肾。就在直播时的28小时前刚刚离开手术室，也就是北京时间2月15日傍晚。
+[https://gtv.org/video/id=620cd589b0af02660af445e4](https://gtv.org/video/id=620cd589b0af02660af445e4)
 
-从习近平近期公开露面的视频中看到，其面色阴沉晦暗，步履亦显蹒跚。脸色阴沉可能是因为心情不好，内外交困，不可能晴朗的起来，但面部晦暗发黑绝对是肾脏出了问题。而且从他突起的大肚子也可以推断，他身体的运化功能不畅，运化不畅的原因是脾脏的问题。可见，习近平的健康状况不佳已经由来已久。
+**Bill:**
 
-按说，习近平的“龙体”是重中之重的大事，出现问题应早做医治,为何拖到现在？实际情况是习有太多的苦衷。
+What’s happening this week looks like is people understand this is about something more.
+本周发生的事情看起来像是人们明白这关于更多的事情
 
-一是国内政治对手如狼似虎，时刻想置他于死地，正愁没有合适的机会。
+They aren’t just the vaccine mandated, it’s becoming a big thing it’s happening all of the world now,
+它们不仅仅是强制性的疫苗，它正在成为一件大事，它正在全世界发生
 
-二是习已经和普京总统密谋，在奥运期间对台湾动手，关键时刻岂能掉链子。
+they think it might happen here in Washington on super bowl on Sunday.
+他们认为这可能会在周日的华盛顿超级碗比赛中发生
 
-三是爆料革命如火如荼，以美国为首的西方阵营和新中国联邦一起对中共的打击太过猛烈，习的身体状况已经无暇顾及。
+Do you agree it’s about something more and so what?
+你同意这是关于更多的东西吗？
 
-习进行手术的地点非常神秘，是在准备对台作战室的地方。证明了文贵先生所说的，习近平近几天的隐身是在布置对台湾的军事行动，同时也说明，习的身体突然出现状况，已经到了非常危险的时刻，手术是临时紧急进行的。习原本是想在冬奥会结束后进行手术的。
+Vivek Ramaswamy:
 
-习近平的两个紧急手术带来了三大利好。
+Look I think it’s about something more,
+看， 我认为这与更多有关
 
-第一是攻打台湾的事情按下了暂停键。据爆料革命的内部战友说，习手术醒来后变化很大。习近平在缓过劲来后明确地说，对台湾的行动要暂缓。真是苍天有眼，百姓之福，上天在这千钧一发之际让习近平躺在了手术台上，台湾人民暂免荼毒，中华民族免受灾难。
+if you think it’s about vaccine mandates or about white supremacy.
+如果您认为这与疫苗授权或白人至上主义有关
 
-第二个是加速了中共的灭亡。按照文贵先生的灭共进程，从原来的五、六百天到1000天左右的灭共时间可能加速缩短，很可能中共会在近一两年内结束。此次的死里逃生，势必习太阳的光芒将会暗淡，中共的前景一片黑暗。
+You’re missing the point, and this isn’t left right issue,
+你没有抓住重点，这也不是左右问题，
 
-第三个是这场大病成了以共灭共的助燃剂。习近平坐稳位置以后大肆集权、大开杀戒，江派等政治对手只有招架之功毫无还手之力。此次习的身体状况将成为他的死穴，江派人马岂能放过如此良机。此消彼长，中共内部厮杀将会空前惨烈，以共灭共加速进行。
+this is about an uprising of everyday citizens in democracies around the world,
+这是关于世界各地民主国家普通公民的反抗
 
-习近平的两个手术看似是偶然实则必然，天意灭共习近平才有此大劫，这是上天对他的惩罚和警示。
+not just Canada, it’s not the United States, it’s western Europe too,
+不只是加拿大，不是美国， 西欧也是
 
-有一句老话说的好，人之将死其言也善。习近平这次鬼门关走了一遭，与死神擦肩而过，想必黄泉路上神灵对他有所点化，他应该会有所悟，否则也不会如战友所言，醒来后变化很大。希望习近平能够幡然醒悟，解散中共、放弃权利、放弃以人民为敌。如此，世界将少付出一些代价，中国人民将少受一些灾难。
+rising against the biggest threat to actual democracy,
+对抗来自对民主的最大威胁
 
-无论习近平本人是否醒悟，他的疯狂都会有所收敛。他可以让人民恐惧，死神却可以让他恐惧，与死神握过手的他会深有感触。但是无论如何，任何人也不能阻挡灭共的滚滚巨轮。
+which I think is the rise of this managerial class in democracies around the world that are crushing the will of everyday people through bureaucracies,
+我认为这是世界各地民主国家中管理阶层的崛起，他们通过官僚机构粉碎了普通民众的意志
+
+and it’s the same people by the way, Bill,
+顺便说一句，比尔， 是同一群人
+
+who staff corporate boards directors, who ends up as the associate deans of universities, who then end up being appointed diplomats abroad,
+担任公司董事会董事，最终成为大学的副院长，然后最终被任命为驻外外交官
+
+these are unelected class of leaders that ultimately, I think, are using their bureaucratic power to supplant the will of everyday,
+这些是非选举产生的领导阶层，我认为，他们最终会利用他们的官僚权力来取代日常生活的意志
+
+not only Americans, but the Canadians and western Europeans too,
+不仅是美国人，还有加拿大人和西欧人
+
+that’s why we are seeing the fusion of both the left and the right,
+这就是为什么我们看到左派和右派的融合
+
+here saying actually we want our voice heard,
+这里发生的是，实际上我们希望我们的声音被听见
+
+we want to be able to speak without fear of putting food on the dinner table.
+我们希望能够说话而不必担心食物被剥夺
+
+And you know what?
+你知道吗？
+
+The beautiful thing of democracy is that so far thanks god this has been a peaceful set of protest,
+民主的美妙之处在于，感谢上帝，这到目前为止是一场和平的抗议
+
+I hope it says stays that way.
+我希望它保持这种状态
+
+That’s part of messiness of democracy, and this part of what makes it beautiful.
+这是民主混乱的一部分，也是使它美丽的部分
 
 * * *
 
-*编辑：文合*
+Date:02/14/2022
+原视频标题: This isn’t a left or right issue. This is about an uprising of everyday citizens in democracies around the world.
+这不是左或右的问题。这是关于世界各地民主国家普通公民的反抗
+原视频日期：2022/02/11
+原视频链接: https://twitter.com/realdailywire/status/1492346573031890947?s=24
+任务编号：3753
+视频时间段 : 0:00-1:25
+英听校：洛杉矶盘古农场 – Raul
+翻译：洛杉矶盘古农场 – Raul
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场- Jambo
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-*封面：霹雳鼠年*
-
-*发布：吐纳*
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

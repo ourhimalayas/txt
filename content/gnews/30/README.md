@@ -2,24 +2,43 @@
 ---
 
 
-## 格兰仕任命外部董事的提案在象印魔瓶公司股东会上遭拒
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2019690/)
+## 感谢苹果IOS顶住各种压力春节期间保证HPay如期上线
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2019700/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1635.png)（图片源自本文链接）
-2月17日实时通信：象印魔瓶公司的年度股东大会于17日在大阪市召开，最大股东–中共国家电巨头格兰仕(Galanz)会上提出的任命一名外部董事的提议遭拒，双方就经营方针产生分歧。
+G-TV视频链接：[https://gtv.org/video/id=620cc170b0af02660af44176](https://gtv.org/video/id=620cc170b0af02660af44176)
 
-该公司包括格兰仕(Galanz)反对的延长收购防御措施在内的，全部五项提案，都获得了会议通过，最终以象印魔瓶方的胜利告终。
+**郭文贵先生：**兄弟姐妹们，我们新中国联邦想吹啥牛吹啥牛，我们的不用吹，我们就是天下最牛的。就像我说 H-Pay昨天能上线，那是多少人的付出啊！多大的利益挑战呐！
 
-格兰仕(Galanz)还曾在2020年股东大会上提出了任命一名外部董事的股东提案，但被拒绝。副主席梁惠强在股东大会后，线上对记者说：未来有各种可能性，也有减少投资或完全退出的可能。
+那是苹果店IOS啊！我们要特别感谢这次苹果顶住各种压力，让H-Pay上线。人家大过年也是人很多，人家是很多里边，人家是周末，人家大周末啊。人家上班啊，就为了让这个春节上啊。咱得感谢苹果呀！而且美国政府要是在这儿不让你上，你是绝对上不了的。刚才千叶妹妹说这很准确，美国政府说你上不了IP，你肯定上不了。
 
-不会是又想拉人来渗透日企吧？日方持谨慎态度予以拒绝完全可以理解。
+字幕来源：[2022年2月2日 《文贵大直播 》全文字版](https://gnews.org/zh-hans/1952328/)
 
-信息来源：[象印が勝利、買収防衛策承認　中国株主、撤退に言及（時事通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/1fa711ffdc2fbf1ce264d4642753dfd22bb03c0a)
+编辑整理：海贼王M.D.LUFFY；
 
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+字幕文件制作：知津；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

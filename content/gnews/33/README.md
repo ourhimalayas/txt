@@ -2,8 +2,8 @@
 ---
 
 
-## 20220216喜联储很快会和比特币和其它数字货币相互交易
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2019611/)
+## 20220216七哥拿鲜血和命来签署的破产法案是为了换我们安全的一种方式
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2019661/)
 
 作者:东京樱花团小视频组
 

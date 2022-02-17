@@ -2,101 +2,27 @@
 ---
 
 
-## 这不是左或右的问题 这是关于世界各地民主国家普通公民的反抗
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2020071/)
+## 澳洲新南威尔士地区将于明日进一步放宽防疫限制
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2020077/)
 
-[https://gtv.org/video/id=620cd589b0af02660af445e4](https://gtv.org/video/id=620cd589b0af02660af445e4)
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/02/176-2.png)图片来自网络
+根据澳大利亚媒体第九新闻与当地时间周三的最新消息，澳大利亚新南威尔士州州长多米尼克·佩罗特（Dominic Perrottet）宣布从明天起取消接待场所的容量限制，只有在某些特定场所（如夜总会或超过 1000 人的音乐节）才必须使用手机二维码进行签到。
 
-**Bill:**
+而从下一个周五开始，强制口罩禁令也将会进一步放宽，人们只有在公共交通、医院与护理设施、或1000人以上的音乐节等场所才需要强制佩戴口罩。
 
-What’s happening this week looks like is people understand this is about something more.
-本周发生的事情看起来像是人们明白这关于更多的事情
+佩罗特先生说：“我们将继续鼓励在无法与他人保持安全距离的室内环境中或在面向客户的零售店中佩戴口罩，以保护需要获得这些服务的弱势群体。”
 
-They aren’t just the vaccine mandated, it’s becoming a big thing it’s happening all of the world now,
-它们不仅仅是强制性的疫苗，它正在成为一件大事，它正在全世界发生
+从2月25日起，音乐节的20,000人的上限要求也将被取消，唱歌及跳舞等庆祝活动也都将被允许。在家工作的建议也将改变，并由雇主自行决定。未接种疫苗的旅客的酒店隔离期则将会从 过去的14 天缩短至 7天一周的时间。医疗机构虽然仍旧会采取过去的登记系统，但是非紧急类的择期手术也将得到恢复。
 
-they think it might happen here in Washington on super bowl on Sunday.
-他们认为这可能会在周日的华盛顿超级碗比赛中发生
+今日，新南威尔士新报告了 9995 例CCP病毒感染案例和 14 例死亡。目前仍然有1447人因CCP病毒而住院，其中92人处于重症监护状态。该州94.7%的适合人群已经接种了两剂CCP病毒疫苗，而接种第三剂CCP病毒疫苗加强针的比例即将达到50%。
 
-Do you agree it’s about something more and so what?
-你同意这是关于更多的东西吗？
+然而佩罗特州长同时也提醒下一次的病例增长很可能还会出现，届时严格的防疫限制也可能视情况而重新回归。
 
-Vivek Ramaswamy:
+新闻参考链接：[NSW to ease major COVID-19 restrictions early](https://www.9news.com.au/national/coronavirus-update-nsw-restrictions-ease-on-mask-wearing-work-from-home-directives-dancing-in-nightclubs-allowed/150c2f73-3533-41bd-a7b1-63e2c53e597b)
 
-Look I think it’s about something more,
-看， 我认为这与更多有关
-
-if you think it’s about vaccine mandates or about white supremacy.
-如果您认为这与疫苗授权或白人至上主义有关
-
-You’re missing the point, and this isn’t left right issue,
-你没有抓住重点，这也不是左右问题，
-
-this is about an uprising of everyday citizens in democracies around the world,
-这是关于世界各地民主国家普通公民的反抗
-
-not just Canada, it’s not the United States, it’s western Europe too,
-不只是加拿大，不是美国， 西欧也是
-
-rising against the biggest threat to actual democracy,
-对抗来自对民主的最大威胁
-
-which I think is the rise of this managerial class in democracies around the world that are crushing the will of everyday people through bureaucracies,
-我认为这是世界各地民主国家中管理阶层的崛起，他们通过官僚机构粉碎了普通民众的意志
-
-and it’s the same people by the way, Bill,
-顺便说一句，比尔， 是同一群人
-
-who staff corporate boards directors, who ends up as the associate deans of universities, who then end up being appointed diplomats abroad,
-担任公司董事会董事，最终成为大学的副院长，然后最终被任命为驻外外交官
-
-these are unelected class of leaders that ultimately, I think, are using their bureaucratic power to supplant the will of everyday,
-这些是非选举产生的领导阶层，我认为，他们最终会利用他们的官僚权力来取代日常生活的意志
-
-not only Americans, but the Canadians and western Europeans too,
-不仅是美国人，还有加拿大人和西欧人
-
-that’s why we are seeing the fusion of both the left and the right,
-这就是为什么我们看到左派和右派的融合
-
-here saying actually we want our voice heard,
-这里发生的是，实际上我们希望我们的声音被听见
-
-we want to be able to speak without fear of putting food on the dinner table.
-我们希望能够说话而不必担心食物被剥夺
-
-And you know what?
-你知道吗？
-
-The beautiful thing of democracy is that so far thanks god this has been a peaceful set of protest,
-民主的美妙之处在于，感谢上帝，这到目前为止是一场和平的抗议
-
-I hope it says stays that way.
-我希望它保持这种状态
-
-That’s part of messiness of democracy, and this part of what makes it beautiful.
-这是民主混乱的一部分，也是使它美丽的部分
-
-* * *
-
-Date:02/14/2022
-原视频标题: This isn’t a left or right issue. This is about an uprising of everyday citizens in democracies around the world.
-这不是左或右的问题。这是关于世界各地民主国家普通公民的反抗
-原视频日期：2022/02/11
-原视频链接: https://twitter.com/realdailywire/status/1492346573031890947?s=24
-任务编号：3753
-视频时间段 : 0:00-1:25
-英听校：洛杉矶盘古农场 – Raul
-翻译：洛杉矶盘古农场 – Raul
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场- Jambo
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
