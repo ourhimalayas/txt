@@ -2,38 +2,51 @@
 ---
 
 
-## 普京习近平演双簧，冬奥会后中共犯台
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2019923/)
+## 乔恩·斯图尔特：“谁来决定”什么被认为是“错误信息”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2019957/)
 
-作者：闲聊澳洲
-编辑：文泓
+[https://gtv.org/video/id=620cd4e0b0af02660af445ad](https://gtv.org/video/id=620cd4e0b0af02660af445ad)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/3-48.png)图片来源：禁闻网
+Jon Stewart
+乔恩·斯图尔特
 
+these are shifting sands
+风水轮流转（被审查）
 
-今天听了郭先生今天的盖特小视频，我的感觉就是普京和习近平在玩儿一个声东击西的策略：普京把俄军陈兵乌克兰边境，媒体配合大肆报道，吸引了全世界政府、金融机构和军事部门的目光，然后，似乎没有人注意中共。而习近平就偷偷地进行自己的计划，对台湾来个突然袭击，台湾人可是真的要小心了。
+And I think I get concerned with well, who gets to decide
+而且我想我关心的是谁来决定（是“错误信息”）
 
-普京那边儿有可能大打，也可能小打，或者是装装样子，但是中共打台湾才是重点。真是这样，普京从中共那儿拿到的利益真的是不少，让他这么配合习近平，不仅是其本人，还有俄罗斯在能源石油方面肯定拿到了利润丰厚的大单。
+what that I mean, we in the Iraq War
+我的意思是，我们在伊拉克战争中
 
-现在中共国正在举行冬奥会，人们的目光也都集中在冬奥会上。国内百姓跟着起哄，国外可能关注对冬奥会的批评，似乎没觉得中国会有什么军事的行动。但是，在私底下习的各种布置都已到位了。因为现代战争，尤其是对台作战，是不需要大规模陆军作战的，他只要整几千、几万架无人机，或者是核潜艇，或者是导弹部队之类的，不一定非得调动到福建那边，只要沿海地区，远在大连、青岛很多地方都可以实施对台攻击了。表面上看不到军队的各种调动，其实私底下已经准备就绪了。有可能在冬奥会临近结束或者是冬奥会结束的时候，这场战争就有可能打起来，这么冬奥会就是一个大的障眼法。因为没有人会想到中共会在这么一个对中国非常重要的冬奥会，这么一个喜庆的时刻对台湾动手，而习近平需要的就是突然袭击，兵贵神速，在非常短的时间内拿下台湾，之后西方对中共的制裁，习近平早就不在乎了。
+I was on the side of what you would think on the mainstream misinformation
+我站在了你认为主流的错误信息一边
 
-在我们心目中，郭先生是个神人，他的很多基于情报和对于世界政治经济形势的分析基本都很准，只是时间上会延迟一些，而这也是由于中共对西方的蓝金黄和西方某些势力的阻拦。
+I was promoting what they would call misinformation
+我在宣传他们会称之为错误的信息
 
-虽然郭先生对西方发出的警告都是准的，但是西方至今依然没有完全醒来，一个是由于西方的官僚体系效率严重低下；其二就是他们为了利益被中共蓝金黄拿下；再有就是他们与生俱来的傲慢。就像我们都知道这个病毒、疫苗是怎么回事儿，但是我们跟我们周围的朋友、家人、同学说，他们有相信的吗？虽然我们说的都是事实，但是他们就是不相信，估计郭先生碰到的也是这种情况。
+But it turned out to be right years later and the establishment media was wrong
+但几年后事实证明这是对的，而老牌媒体是错的
 
-在2月15日，普京宣布俄罗斯撤军的视频热播，一时间全球股市大涨，很多人都非常高兴，认为一场危机已经过去。但是截至目前，俄罗斯南部军区新闻稿中并没有太多关于撤军的信息，俄罗斯西部军区只宣布部分防空部队返回下诺夫哥罗德地区的基地。要知道，当年在叙利亚政府军也撤过部分军队，然后西方欢呼声刚起，一转身政府军杀了个回马枪，玩儿了把大的。
+* * *
 
-习近平对台湾依然虎视眈眈，所以，台湾的危险依然没有解除。
+Date:02/14/2022
+原视频标题:Jon Stewart：“Who gets to decide” what’s considered “misinformation”
+乔恩·斯图尔特：“谁来决定”什么被认为是“错误信息”
+原视频日期：2022/02/14
+原视频链接[**https://twitter.com/calebhowe/status/1491875308546441223?s=24**](https://twitter.com/calebhowe/status/1491875308546441223?s=24)
+任务编号：3752
+视频时间段 : 0:00-0:33
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场- Jambo
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-资料来源：[闲聊澳洲 – YouTube](https://www.youtube.com/channel/UCPxB0vpNpmHN0hORXK4gj2A)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

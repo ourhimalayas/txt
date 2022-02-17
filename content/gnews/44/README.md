@@ -2,24 +2,37 @@
 ---
 
 
-## 樱花FM┃立陶宛外长今访澳 坚称不会更名台湾代表处
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2018353/)
+## 医学研究怀疑 中共病毒恐导致神经损伤
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2018366/)
 
-音频：东京樱花团/战友520
-![](https://lh3.googleusercontent.com/qcAp5j-W5PlFtxWxEfPRCl3z9JJwJwW1u7OQq0MSgkZTM3f-DKE2Mz_iMp8ogvMHaeLhjkSZ-XNsCmUC2J_vGWdy01Mkd4n9w9SOqd3tuU2yWfSLERgle38eotZ2f5h45ZHHqJAk)
-立陶宛外长蓝斯柏吉斯（Gabrielus Landsbergis）于2月6日至10日，将先后访问新加坡、澳大利亚，开拓亚洲及大洋洲市场。据自由时报2月6日引述消息报道说，立陶宛外长蓝斯柏吉斯（Gabrielus Landsbergis）重申不会屈服中共经济胁迫。
+作者：银河系农场 – 骄子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+一项正在进行中的医学研究，在观察了中共病毒感染者的长期症状后，认为曾感染中共病毒的患者，都至少出現三种迷走神经功能障碍，而这些迷走神经功能障碍，被认为是中枢神经受到损害导致。
 
-立陶宛外长蓝斯柏吉斯访澳前夕，接受《澳洲金融评论报》独家专访指出，立陶宛与澳大利亚此次交流议题将聚焦中共的胁迫和贸易制裁，立澳2国将就如何处理这种情况（被中国经济霸凌）以及学到了什么，又是如何从中变得更强大等议题交换意见，并互相帮助。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/7-23-scaled.jpg)
 
-据该报称，蓝斯柏吉斯强调，某些国家不应使用经济等胁迫方式，迫使另一个国家改变外交政策。但当前国际商定的规则和法规，正受到“强权国家”挑战，我们正在捍卫国家主权。
+迷走神经从大脑开始连接心脏、肺、肠道和几块与吞咽有关的肌肉，主要控制心率、语言、呕吐反射、出汗和消化等功能。而研究觀察認為，被研究的患者存在与迷走神经神经障碍者的相同症状，如声音问题、吞咽困难、头晕、心率高、低血压和腹泻等等。
 
-对于外界盛传台湾驻立代表处可能因中共施压而更名一事，蓝斯柏吉斯再度驳斥，他重申，“无论如何，立陶宛都不打算更名。”“他们（指台湾）的正式名称不会改变。
+研究者认为，迷走神经神经功能障碍是长期中共病毒患者的核心病理特征，中共病毒的特点就是通过控制神经系统，从而对身体造成巨大损伤。该研究结果預計在4月下旬的欧洲临床微生物学和传染病大会上发表。
 
-文字版原文：[立陶宛外长今访澳 坚称不会更名台湾代表处](https://gnews.org/zh-hans/1968214/)
+参考链接：
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+- [Long COVID Symptoms Linked to Effects on Vagus Nerve](https://www.webmd.com/lung/news/20220215/covid-symptoms-linked-to-vagus-nerve)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
+
+总编：zhong
+编辑：zhong
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

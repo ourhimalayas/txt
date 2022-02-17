@@ -2,52 +2,20 @@
 ---
 
 
-## 乔恩·斯图尔特：“谁来决定”什么被认为是“错误信息”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2019957/)
+## 中共掐住香港生鲜物资供应 进一步奴化港人
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2019994/)
 
-[https://gtv.org/video/id=620cd4e0b0af02660af445ad](https://gtv.org/video/id=620cd4e0b0af02660af445ad)
+作者：东京樱花图｜阿恩
+![](https://assets.gnews.org/wp-content/uploads/2022/02/中共掐住香港生鲜物资供应-进一步奴化港人.jpg)[图片来源](https://www.hk01.com/%E5%8D%B3%E6%99%82%E4%B8%AD%E5%9C%8B/736836/%E7%96%AB%E6%83%85-%E4%BF%9D%E9%9A%9C%E4%BE%9B%E6%B8%AF%E8%B2%A8%E7%89%A9%E4%BE%9B%E6%87%89-%E5%BB%A3%E6%9D%B1%E9%97%A2-%E4%BD%9B%E5%B1%B1-%E5%B1%AF%E9%96%80-%E7%94%9F%E9%AE%AE%E7%89%A9%E8%B3%87%E6%B0%B4%E9%81%8B%E9%80%9A%E9%81%93)
+接连有香港跨境司机在内地确诊被强制隔离，蔬菜及鲜活食品供港问题备受关注。据中国新闻网报道，广州海关和相关部门新开航道「佛山南海九江-香港屯门」水运生鲜物资入港。16日下午，广东温氏佳润食品有限公司的24吨冰鲜鸡通过水路运往香港，近期该公司日均出口香港约1.2万只冰鲜鸡。
 
-Jon Stewart
-乔恩·斯图尔特
+中共病毒肆虐香港期间，香港的生鲜物资改由中港货车司机接力送入香港，内地司机负责去货源地取货，香港司机负责将货物从口岸运入香港，程序繁琐，运输时间延长，但还能保证香港市场的供应。但最近深圳海关接连强制隔离了近四百名中港司货车司机，故意降低香港的运力，香港市面的生鲜物资供应立即短缺，物价飞涨，抢购潮不断。香港虽是国际金融都市，但完全失去了自给自足的能力，港府混账限制了航空货运，海外物资入港减少，又被深圳海关掐住陆路运输能力，香港人出现有钱也卖不到东西的窘况。跨境司机本是非常有利可图的工作，可以利用穿梭中港两地夹带一些两地差价巨大的物资，因为收入非常可观，即使再辛苦跨境司机也工作得乐此不比，但深圳海关借防疫为由，截断了跨境司机入货源地取货的机会，香港的司机们只能在关口集中等候，不少司机因此染疫被深圳海关强制隔离，生计大受影响。现在内地政府干脆抛开跨境货车司机，用轮船将大批物资直接送入香港腹地，表面上打破了运输业对生鲜物资供应的垄断，实际上是将被香港垄断的部分收入内地运输业囊中，进一步蚕食了香港人的谋生范畴，大量的跨境货车司机会因此失业，家庭收入陷入困境。香港人谋生的环境越来越窄，富庶将不再，没有钱、没有自由，没有民主的香港人，只能在中共面前屈膝求食，中共奴化香港人的步伐更进了一步。
 
-these are shifting sands
-风水轮流转（被审查）
+资料来源：[疫情｜保障供港貨物供應　廣東闢「佛山-屯門」生鮮物資水運通道](https://www.hk01.com/%E5%8D%B3%E6%99%82%E4%B8%AD%E5%9C%8B/736836/%E7%96%AB%E6%83%85-%E4%BF%9D%E9%9A%9C%E4%BE%9B%E6%B8%AF%E8%B2%A8%E7%89%A9%E4%BE%9B%E6%87%89-%E5%BB%A3%E6%9D%B1%E9%97%A2-%E4%BD%9B%E5%B1%B1-%E5%B1%AF%E9%96%80-%E7%94%9F%E9%AE%AE%E7%89%A9%E8%B3%87%E6%B0%B4%E9%81%8B%E9%80%9A%E9%81%93)
 
-And I think I get concerned with well, who gets to decide
-而且我想我关心的是谁来决定（是“错误信息”）
-
-what that I mean, we in the Iraq War
-我的意思是，我们在伊拉克战争中
-
-I was on the side of what you would think on the mainstream misinformation
-我站在了你认为主流的错误信息一边
-
-I was promoting what they would call misinformation
-我在宣传他们会称之为错误的信息
-
-But it turned out to be right years later and the establishment media was wrong
-但几年后事实证明这是对的，而老牌媒体是错的
-
-* * *
-
-Date:02/14/2022
-原视频标题:Jon Stewart：“Who gets to decide” what’s considered “misinformation”
-乔恩·斯图尔特：“谁来决定”什么被认为是“错误信息”
-原视频日期：2022/02/14
-原视频链接[**https://twitter.com/calebhowe/status/1491875308546441223?s=24**](https://twitter.com/calebhowe/status/1491875308546441223?s=24)
-任务编号：3752
-视频时间段 : 0:00-0:33
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场- Jambo
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

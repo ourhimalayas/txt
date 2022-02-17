@@ -2,28 +2,77 @@
 ---
 
 
-## 美国议员提法案禁中共高官子女赴美学习
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2020097/)
+## 在超级碗看比赛的名人都没有戴口罩
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2020160/)
 
-撰稿：东京樱花团/asket
+[https://gtv.org/video/id=620d2d85b0af02660af45b55](https://gtv.org/video/id=620d2d85b0af02660af45b55)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/美国议员提法案禁中共高官子女赴美学习.png)
+We are in Hollywood
+我们在好莱坞
 
-美国联邦共和党众议员哈茨勒Vicky Hartzler周三（2月16日）提法案，禁止中共高官及其家属进入美国大学学习。法案锁定对象还包括习近平和政治局常委等中共最高层成员及其家属。
+Who we got here?
+我们有谁在这里？
 
-众议员维姬·哈茨勒（Vicky Hartzler）办公室发布新闻说，哈茨勒提出了《保护高等教育免受中共影响法》（Protecting Higher Education from the Chinese Communist Party Act），禁止中共官员及其家庭成员获得学生或研究签证。法案锁定所有中国共产党全国代表大会成员及其家属。法案特别解释说，这里的家属指的是中共官员的配偶、子女、父母、兄弟姐妹或孙辈。
+We got Jay-Z, Matt Damon, Charlize Theron’s here
+我们有 Jay-Z、马特·达蒙、查理·兹塞隆在这里
 
-“在中共实施种族灭绝和其它暴行的同时，他们继续将其子女送到美国接受世界级教育。这必须被制止”，哈茨勒说，“《保护高等教育免受中共影响法》结束了这种行径。”
+LeBron (James), Jennifer (Lopez) & Ben (Affleck)
+勒布朗（詹姆斯）、詹妮弗（洛佩兹）和本（阿弗莱克）
 
-哈茨勒周三在推特上也宣布了这一法案，并说：“当习近平和中国共产党实施种族灭绝时，他的女儿在哈佛大学接受了世界级的教育。” “美国不应该帮助那些积极致力于破坏我们国家的人”，哈茨勒说，“我的新立法禁止他们进入美国大学。”
+Emmitt Smith, here you go, there’s my kind celebrity
+埃米特·史密斯，来了，这是我类型的名人
 
-这项立法还将允许美国国务院拒绝向那些已经对美国实施间谍活动或知识产权盗窃的个人发放签证。
+Now we’re talking
+现在我们正在看到
 
-信息来源： [**美议员提法案 禁中共高官送子女赴美学习**](https://www.epochtimes.com/gb/22/2/16/n13582372.htm)
+Of course this is all time celebrity role
+当然，这是所有的名人角色
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+here tonight for Super Bowl 56 Andy Garcia
+今晚在这里观看第56届超级碗安迪·加西亚
+
+Chris Tucker take it all in, get those pictures
+克里斯·塔克接受一切，获取这些照片
+
+Basketball royalty in the house – LeBron James
+篮球皇在这里——勒布朗·詹姆斯
+
+And of course perfect magic Johnson
+当然还有完美的约翰逊魔术师
+
+Actress Charlize Theron is in the house
+女演员查理兹塞隆也来了
+
+Mark Wahlberg making a call, making feature here
+马克·沃尔伯格在打电话，在这里做特写
+
+Sean Penn, looking cool ever
+西恩·潘，看起来很酷
+
+Matt Damon find his spot as well
+马特·达蒙也找到了自己的位置
+
+It’s pretty cool
+它太棒了
+
+Date:02/14/2022
+原视频标题:None of the celebrities at the Super Bowl were wearing a mask
+在超级碗看比赛的名人都没有戴口罩
+原视频日期：2022/02/14
+原视频链接[**https://twitter.com/bennyjohnson/status/1493035356924661769?s=2**](https://twitter.com/bennyjohnson/status/1493035356924661769?s=2)
+任务编号：KE400（3749）
+视频时间段 : 0:00-0:58
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-文新
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

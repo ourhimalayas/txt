@@ -2,76 +2,32 @@
 ---
 
 
-## 在超级碗看比赛的名人都没有戴口罩
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2020160/)
+## 大直播后记：拜登对中共更有手段
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2020175/)
 
-[https://gtv.org/video/id=620d2d85b0af02660af45b55](https://gtv.org/video/id=620d2d85b0af02660af45b55)
+整理：文晋、枫叶红了
+编辑：小熊
 
-We are in Hollywood
-我们在好莱坞
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/12-20.png)图片来源：墨尔本雅典娜农场设计组
 
-Who we got here?
-我们有谁在这里？
 
-We got Jay-Z, Matt Damon, Charlize Theron’s here
-我们有 Jay-Z、马特·达蒙、查理·兹塞隆在这里
+我觉得很可能他不会打，我真的希望，不管任何情况下，我希望，即使不灭共，我也不希望为灭共而去打台湾去。我们就晚点灭共我也选不打台湾，因为那是无法想象的惨剧。我觉得乌克兰也不要被打，你打了乌克兰，乌兰美女太多了，太可惜了是吧？ 谁也别打乌克兰，乌克兰也别被打，台湾也别被打，灭共晚一年两年都行啊。
 
-LeBron (James), Jennifer (Lopez) & Ben (Affleck)
-勒布朗（詹姆斯）、詹妮弗（洛佩兹）和本（阿弗莱克）
+但是我觉得现在一个比较好，还是美国这个国家，它很厉害，美国就是跟你明说，你打了以后我肯定揍你。从经济上先揍你，把你弄半残了，我再武力上把你解决掉。
 
-Emmitt Smith, here you go, there’s my kind celebrity
-埃米特·史密斯，来了，这是我类型的名人
+我觉得千万别小看了拜登总统这方面决心。这个就是头两天，这个所谓的我不能说这是国际上最有名的，所谓政治智库之一。 我们有一段这个通话，本来是20分钟的会，结果弄了将近50分钟。 我的老战友是美国的前参议员，也要我参加这个会：怎么来看待这个美国还有拜登总统、川普总统？他说，我知道你支持川普，你怎么看待拜登总统对美政策啊？ 我说，我从来谁都不支持，也不反对。不参与你们美国政治，但是你要让我现在比较两个总统对中国的政策，我认为拜登总统更现实。川普是有组织有计划，非常聪明的，把中共从这个国际所谓的全球一体化，全球贸易战略系统里边干出去了。但是拜登比他更有组织，更精密化地把共产党从金融系统和世界系统给踢出去，而且招招有效。比如说，授权撤离这一块，跟你玩个授权撤离，玩个半死吧？马上就花1000多亿美元，到美国来买买美国的农业科技。然后说，哎，那我再回去，我还继续派大使过去— 派沈阳大使。这边啪一下子来一个，这个对共的所谓的新法规，参议院众议院会立法，是吧？ 然后在欧洲也推动这新的所谓灭共法案。这都是非常有组织很精密的。然后在俄罗斯这个事上，直接把责任就推给你中共了，只要俄罗斯打了乌克兰，就让欧洲知道背后就是因为中共，直接不提普京。直接说我知道他俩好啊，这个东方某国支持他。就告诉你乌克兰，告诉中共，告诉欧洲，只要是他动了乌克兰，第二个坏蛋就是习太阳， 中共国。这都是非常精密的战略高手啊，没有这样的战略搞不定的。
 
-Now we’re talking
-现在我们正在看到
+包括疫苗，你看，最后疫苗都会推给中共国。这说到这事，我跟那个某个组织说我得到绝密的情报：拜登总统，美国政府明确告诉习太阳，我们不会离开中国的前提就是必须要病毒溯源。在这个事上杨洁篪不敢说话了，人家美国人家拜登很冷静啊，记住，我要是不断交前提就是溯源。现在不敢咋呼了，就蔫了。是吧？ 拜登最后把全世界所有的疫苗问题全都会推给他。
 
-Of course this is all time celebrity role
-当然，这是所有的名人角色
+资料来源：2022年2月16日郭文贵先生大直播
 
-here tonight for Super Bowl 56 Andy Garcia
-今晚在这里观看第56届超级碗安迪·加西亚
+发布：tianzhihuan
 
-Chris Tucker take it all in, get those pictures
-克里斯·塔克接受一切，获取这些照片
-
-Basketball royalty in the house – LeBron James
-篮球皇在这里——勒布朗·詹姆斯
-
-And of course perfect magic Johnson
-当然还有完美的约翰逊魔术师
-
-Actress Charlize Theron is in the house
-女演员查理兹塞隆也来了
-
-Mark Wahlberg making a call, making feature here
-马克·沃尔伯格在打电话，在这里做特写
-
-Sean Penn, looking cool ever
-西恩·潘，看起来很酷
-
-Matt Damon find his spot as well
-马特·达蒙也找到了自己的位置
-
-It’s pretty cool
-它太棒了
-
-Date:02/14/2022
-原视频标题:None of the celebrities at the Super Bowl were wearing a mask
-在超级碗看比赛的名人都没有戴口罩
-原视频日期：2022/02/14
-原视频链接[**https://twitter.com/bennyjohnson/status/1493035356924661769?s=2**](https://twitter.com/bennyjohnson/status/1493035356924661769?s=2)
-任务编号：KE400（3749）
-视频时间段 : 0:00-0:58
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-文新
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
