@@ -2,34 +2,57 @@
 ---
 
 
-## mRNA 疫苗接种或产生“疫苗获得性免疫缺陷综合症”
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2023532/)
+## 奥林匹克NGO联合国华尔街好莱坞到中国男女都解裤带
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2023671/)
 
-撰稿：文月
-![](https://assets.gnews.org/wp-content/uploads/2022/02/181.jpg)图片来自网络
-越来越多的证据表明，mRNA 疫苗接种会产生免疫缺陷综合症——疫苗获得性免疫缺陷综合症或疫苗艾滋病。根据目前的情况，人们可能会在数周、数月或数年的时间窗口内由于曾经接种CCP病毒疫苗而导致该疾病。
+G-TV视频链接：[https://gtv.org/video/id=620e5edb2403672096ab5fe8](https://gtv.org/video/id=620e5edb2403672096ab5fe8)
 
-越来越多的报告显示，在接种疫苗的人群中出现了癌症、疱疹、带状疱疹和自身免疫性疾病等疾病。所有这些疾病的共同点是，防御这些疾病所依赖的免疫系统出了问题。越来越多的各种报告记录了CCP病毒疫苗所造成的损害，有些病毒疫苗损害导致的疾病需要在医院或重症监护室才能得到治疗。
+**摘要：**由于共产党独裁，西方组织都愿意去中国投资，想玩性奴，玩儿童，能交易的全干。为什么？中国会给他特权。杀人都能保护你。所以只要去中国。没有人挡得住。
 
-与此同时，越来越多和医药公司有关的警告信号也开始出现。例如，辉瑞公司出人意料地撤回了批准儿童mRNA制剂的申请，并在其年度报告中增加了新的业务风险：来自临床前和临床研究的“不利的安全隐患”可能会影响其业务。
-此外，Moderna 的首席执行官正在减持股票，并从 Twitter 上消失。强生公司正在停止生产其 COVID 疫苗。BioNTech 和 Moderna 的股价也处于下行甚至暴跌的趋势。
+**标签：**特权,国家保护,独裁,新中国联邦,郭文贵先生,
 
-其中一个可能的原因可能是来自苏格兰、丹麦、英格兰、加拿大的数据——这些国家对感染冠状病毒的患者有着相对全面数据统计。他们发现，与未接种疫苗的人相比，接种疫苗的人更容易受到感染、严重疾病和死亡的影响。这至少表明接种CCP病毒疫苗后的免疫系统被显著的削弱。
+**正文：**
 
-疫苗艾滋病与人们普遍所理解的艾滋病病毒关联不大，因为它们产生的原因是不同的。这种疫苗艾滋病是由基因工程、mRNA、由mRNA人工合成的刺突蛋白以及其他各种成分造成的。
+**郭文贵先生：**更重要的事情，由于共产党一党的独裁，西方像奥林匹克组织、像NGO组织、联合国组织。他在美国，美国没有腐败的机会，你搞女人，女人告你，就把你送到法庭上去。你想玩性奴，玩儿童，那你抓起来，你照样被抓，美国总统也保不了你。他去欧洲也这样，你到德国玩德国女孩，你玩英国女孩被人告了一样抓你。他得不到特权的感觉和特权的待遇和超出司法外的权力。
 
-同时为了能够接种疫苗的mRNA引入细胞，免疫系统必须被欺骗。这一点则是通过利用mRNA的脂质颗粒包围mRNA来完成的！
+坏了，这就是国际奥林匹克组织、和国际NGO组织、和联合国组织、和华尔街、和好莱坞都愿意去中国投资。为什么？所有外国人到中国去，第一件事所有人都去晚上喝酒，喝完酒，酒助熊人胆，那酒助坏人胆的时候啥结果啊？这个大石你有感觉，你是男人，小新，文真没感觉。这个酒要喝到俗人胆里面，他变成有种的人了——我噻，我有肌肉！我有拳头！
 
-慕尼黑Mitocare公司的现在的科学主管（Florian Schilling）曾经2006-2017年在自己的诊所工作，重点是肿瘤学和神经炎症，他解释了目前人们对于疫苗艾滋病的认知。非常重要的几个结论包括杀伤细胞的功能丧失、干扰素系统的关闭、辅助细胞的功能耗尽和防御细胞的基因重编程。
+你看看喝完酒以后说话都硬气了，都像个男人样了是吧？那酒要喝到坏人肚子里什么感觉呀？这个坏人就成了魔了——欻，就天下唯我独有了。“啊喳喳喳”，是吧？十个女人不够，一百个女人刚好。然后是啥都敢要，啥钱都给。然后是只要咱能做的，能交易的，我全干。
 
-除此之外，Schilling 报告了一项研究，该研究在动物实验中发现超过 6% 的测试对象存在感染增强抗体。它们的自然杀伤细胞、干扰素、Th1 和 Th2 以及其他参数的测量值显示出惊人的低值。相反，调节性 T 细胞 (Tregs)水平过高，这对接种疫苗的人造成了不可预见的负面影响。
+这个亨利你可以给大家解释解释酒桌后的坏人啥样子。七哥是开五星、七星酒店的，我天天24小时见这种场面——就外国人到了中国了，裤腰带就没了。男女都那样，不光是男的，别搞错了，男女都那德性。
 
-参考文献：
+然后这国际NGO组织就成了完全放松的，无法律状态。因为什么？中国会给他特权。杀人都能保护你。所以中国这个国家成了冒险家的乐园。这是为什么西方的社交媒体、好莱坞、华尔街、奥林匹克组织、梵蒂冈、还有这些所有的联合国全军覆没，只要去中国。
 
-[https://www.epochtimes.de/gesundheit/so-erzeugen-mrna-spike-impfungen-vakzin-aids-a3722648.html?telegram=1](https://www.epochtimes.de/gesundheit/so-erzeugen-mrna-spike-impfungen-vakzin-aids-a3722648.html?telegram=1)
+所以又到澳门赌一把，再在香港国际化一把，到大陆去脱了裤腰带完全畜生一把，都当了“皇帝”。你说那不是冒险家乐园吗？又能赚大钱还合法，国家保护你，没有人挡得住。
 
-*发稿：mgjxs*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
+字幕来源：[2022月2日6日 《文贵大直播》全文字版](https://gnews.org/zh-hans/1971450/)
+
+编辑整理：Davis；
+
+字幕文件制作：知津；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ)、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A)、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/)；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
