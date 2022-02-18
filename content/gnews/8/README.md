@@ -2,50 +2,49 @@
 ---
 
 
-## 真相工程：FDA高管爆疫苗是药厂稳定收入来源
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2024260/)
+## 证据：Covid“疫苗”导致艾滋病
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2024380/)
 
-翻译： Jenny Ball
+素材翻译：Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1693.png)图片来源：dailymail.co.uk
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1700.png)naturalnews.com
 
-- FDA 执行官克里斯托弗·科尔在一系列晚宴会议上被一名“真相工程”（ Project Veritas） 卧底员工秘密记录，该员工冒充他的约会对象。
+自然新闻 – 越来越多的证据表明，武汉冠状病毒（Covid-19）“疫苗”正在导致世界各地的接受者患上艾滋病。
 
+Covid-19 疫苗诱发的获得性免疫缺陷综合征（VAIDS），似乎是由注射引起的更严重的长期不良反应之一。从本质上讲，随着时间的推移，这些疫苗正在破坏人们的免疫系统，使他们更容易受到各种感染。
 
-- 他被镜头拍到表达他对疫苗授权的想法，并说他相信这将成为年度要求。
+正如一些人声称的那样，随着时间的推移，注射的有效性并没有减弱，而是免疫系统的表现确实在减弱。福奇流感疫苗可以说是免疫系统的死神。
 
+就它们提供的免疫保护而言，疫苗的有效性是负面的。数据显示，免疫功能在注射后净减少，这与疫苗应该起的作用的相反。
 
-- 他还暗示拜登政府在推动疫苗方面有经济激励措施，称这是“经常性”的收入来源。
+“+50% 的疫苗有效性，意味着完全接种疫苗的人，比未接种疫苗的人对 Covid-19 的保护能力高 50%，”《每日曝光》报道。 “换句话说，完全接种者的免疫系统在应对 Covid-19 方面要好 50%。”
 
+“但是，-50% 的疫苗有效性意味着：未接种疫苗的人对 Covid-19 的保护比完全接种疫苗的人多 50%。换句话说，接种者的免疫系统性比未接种者的自然免疫系统性能差50%。 因此，Covid-19 疫苗损害了免疫系统。”
 
-- 在后续的“真相工程”采访中，科尔说他在一次“黑客工作”调查中被欺骗了，他的评论被断章取义。
+双重注射的人平均只剩下 35% 的免疫功能
 
+英国卫生安全局 (UKHSA) 每周发布一份疫苗监测报告，其中包含四个星期的“病例”、住院和死亡数据。 这些报告继续表明，情况最糟糕的人是完全接种疫苗的人。
 
-- 他说他的办公室没有参与疫苗的批准。
+最新报告清楚地表明，未接种疫苗者的发病率最低，接种疫苗者的发病率最高。与未接种疫苗的人群相比，打了三针疫苗的人群的发病率是两倍，而打了双针人群的发病率是三倍。
 
+“即使是最热心的疫苗倡导者，仅这些数据就应该深感担忧，”《曝光》（Exposé ）报告说。
 
-- “真相工程”创始人詹姆斯·奥基夫（ James O’Keefe）现在要求 FDA 对有关其官员受到制药公司“收入源泉”激励的指控作出回应。
+《曝光》使用辉瑞的疫苗有效性公式发现，疫苗的实际有效性平均为 -183%。这绝对令人震惊和令人不安。
 
+“整个 2022 年 1 月，英格兰 40-49 岁年龄组的 Covid-19 疫苗有效性最低，记录为**–**** 209.4%**，50-59 岁年龄组紧随其后，”它确定。
 
-- 奥基夫周三晚上告诉肖恩·汉尼提（Sean Hannity）：“存在严重的道德问题”
+英国的数据更进一步表明，完全接种疫苗者现在的免疫性能是负面的。英格兰的双剂疫苗患者现在平均的免疫能力下降到正常免疫能力的仅35%，并且，随着时间的推移继续下降。
 
+这意味着，就他们的身体对抗病毒、细菌甚至癌症的能力而言，被完全注射的人正在引火烧身。
 
-据称“真相工程”的一名卧底记者拍摄一名FDA高管称 ，Covid 加强剂将成为年度要求，并且，拜登政府有推动疫苗的经济激励措施，“真相工程”的创始人要求 FDA 作出答复。
-
-“存在严重的道德问题，” 周三晚上，詹姆斯·奥基夫告诉福克斯新闻主持人肖恩·汉尼提，抨击联邦组织是腐败无边际。
-
-这位政治活动家说：“当政府从他们本应监管的人那里获得资金时，政府的一名执行官却说他不知道自己被记录在案，这会影响他们对产品批准。”
-
-详细内容请见专题报道。
-
-素材链接：[dailymail.co.uk][‘These are serious ethical issues’: James O’Keefe demands answers after FDA executive officer is caught on Project Veritas hidden camera admitting Biden will force an ANNUAL Covid shot that would be a ‘recurring fountain of revenue’ for drug firms](https://www.dailymail.co.uk/news/article-10520953/FDA-Executive-Officer-caught-hidden-camera-admitting-Biden-force-ANNUAL-COVID-shot.html)
+素材链接：[naturalnews.com] [Covid “vaccines” cause AIDS: proof](https://www.naturalnews.com/2022-02-16-covid-vaccines-cause-aids-proof.html)
 
 * * *
 
-*审核：文乐
+审核：文乐
 校对：花羽
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-4.jpeg)
+发布：花羽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-5.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
