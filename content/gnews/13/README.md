@@ -2,27 +2,22 @@
 ---
 
 
-## 北京冬奥会是种族屠杀运动会
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2025083/)
+## 美驻日大使发表声明称 俄乌问题日美步调一致
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2025161/)
 
-翻译：Annabelle
-校对：精靈藍
-剪辑|字幕：向上James
-编辑：慕纱公子
+撰稿：东京樱花团｜麗子
+![](https://lh5.googleusercontent.com/p2y47SLaetIphoWAGEaLFFWiHOI43QF7-_bBaaUgKe3IC7X044uGkHSmV5qG22Yl6R2y9TsfzW1RP09zwZiy8-fnSvLCNSmDhU9wB_yiWpfKw9s96YCHHYnzzJBOzO2vAGoYqgFz)[*图片来源*](https://www.nippon.com/ja/news/reu20220204KBN2K90MZ/)
+上个月抵达日本的美国驻日本大使伊曼纽尔就乌克兰局势发表声明，强调日美将步调一致。
 
-当前，中共的种族屠杀冬奥会已经激起了广泛的反对浪潮，在这个世界上只要是拥有良知和健全逻辑思维的人就会对中共的暴行感到愤怒。就像这个充满觉醒意识的美国青年，他驳斥的对象像极了中共的小粉红。他称，美国的人权黑暗历史已经是过去式了，可中共的种族屠杀却在当下进行。他强烈谴责收看冬奥会节目的人，并谴责了当权政客面对中共时的迁就与懦弱。
+伊曼纽尔大使在18日发表的声明中表示，日本和美国在俄罗斯问题上保持一致。并提到，岸田首相在17日举行的日俄电话会谈中，向普京提出通过外交努力缓解局势，重视以规则为基础的国际秩序，展现出岸田首相卓越的领导能力。
 
-视频链接：[GENOCIDE GAMES-BEIJING CHINA-OLYMPICS](https://www.bitchute.com/video/YJ5UuFky2o7Z/)
+驻日大使强调，美国和日本在解决俄罗斯问题上是团结一致的，并表示，欢迎日本与志同道合的伙伴一致发声。
 
-*发布：Mttfly*
+信息来源：[**対ロシア「日米の足並み揃っている」駐日大使が強調**](https://news.yahoo.co.jp/articles/e1e769b6166daf47621e19347ec48d0cf5cc7f8b)
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

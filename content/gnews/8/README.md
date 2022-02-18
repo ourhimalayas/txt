@@ -2,26 +2,18 @@
 ---
 
 
-## 卡尔加里警察批评渥太华警察对和平抗议者的镇压
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2025104/)
+## 文贵大直播 2/18 CCP病毒没结束 疫苗灾难没开始
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2025294/)
 
-翻译：俏如来
-校对：精靈藍
-字幕：qingjing（清净）
-编辑：守望黎明
+撰稿：回响 【秘翻Gnews原创组】
+![](https://assets.gnews.org/wp-content/uploads/2022/02/snapshot1-1.jpg)图片来源 GTV
+当下关于奥米克绒病毒和疫苗强制令，全球众说纷纭，纷乱摇摆。攸关几十亿生命，爆料革命如何解读？
 
-在一生当中，每一个执法者都可能会遇到一种两难的选择：是听政府的还是听人民的？是遵从上级的命令还是遵从自己的良心。现在，加拿大政府要对卡车司机抗议强制疫苗的“自由车队”采取行动，就让执行命令的警察们陷入到了这种两难的境地。我们听一听这位来自加拿大卡尔加里的警察，是如何表达他内心的感受的。
+2月18日的文贵大直播，爆料革命发起人郭文贵先生回答现场嘉宾的各种困惑。郭先生明确指出：经济、政治、病毒三大撑不住是各国政府解除禁令的主要原因，事实上在默认集体感染，放任灾难肆虐。CCP病毒没有结束，疫苗灾难尚未开始。
 
-视频链接：[NICK MOTYCKA – CALGARY POLICE SERVICE](https://www.bitchute.com/video/zokg4FrarxS0/)
+文贵先生再发警报：至少坚持到5月份，老老实实在家待着。生命只有一次，战友们务必小心！
 
-*发布：Mttfly*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+【来源链接】https://gtv.org/broadcast/watch/620f95cbb706176dd78c6f6f
 
  
 

@@ -2,28 +2,33 @@
 ---
 
 
-## 美国议员提法案禁中共高官子女赴美学习
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2020097/)
+## 4700名美军悉数抵达波兰，英国、波兰、乌克兰发联合声明
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2022568/)
 
-撰稿：东京樱花团/asket
+#### 撰稿：彩虹       
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/美国议员提法案禁中共高官子女赴美学习.png)
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/02/16451455791.png)图片来源：Notesfrompoland
+《国会山报》2月17日报道，周四，英国外交大臣利兹·特拉斯（Liz Truss）及波兰和乌克兰的外交部长发表联合声明，三国将制定一项《三边合作备忘录》（trilateral memorandum of co-operation），以支持乌克兰和打击俄罗斯的侵略。
 
-美国联邦共和党众议员哈茨勒Vicky Hartzler周三（2月16日）提法案，禁止中共高官及其家属进入美国大学学习。法案锁定对象还包括习近平和政治局常委等中共最高层成员及其家属。
+联合声明说：“这将表明我们致力于进一步加强三国之间在支持乌克兰的最优先问题上的战略合作和接触。我们将共同努力推进我们的合作，这包括但不限于协调对‘国际克里米亚平台’（ International Crimea Platform）的支持，增加我们在网络安全、能源安全方面的合作，以及促进战略沟通以打击虚假信息。”
 
-众议员维姬·哈茨勒（Vicky Hartzler）办公室发布新闻说，哈茨勒提出了《保护高等教育免受中共影响法》（Protecting Higher Education from the Chinese Communist Party Act），禁止中共官员及其家庭成员获得学生或研究签证。法案锁定所有中国共产党全国代表大会成员及其家属。法案特别解释说，这里的家属指的是中共官员的配偶、子女、父母、兄弟姐妹或孙辈。
+三人表示，英国和波兰声援乌克兰，帮助这个前苏联国家捍卫其独立和主权，并将向乌克兰提供支持。
 
-“在中共实施种族灭绝和其它暴行的同时，他们继续将其子女送到美国接受世界级教育。这必须被制止”，哈茨勒说，“《保护高等教育免受中共影响法》结束了这种行径。”
+联合声明还对俄罗斯进行了含蓄的斥责，但没有具体指名该国。
 
-哈茨勒周三在推特上也宣布了这一法案，并说：“当习近平和中国共产党实施种族灭绝时，他的女儿在哈佛大学接受了世界级的教育。” “美国不应该帮助那些积极致力于破坏我们国家的人”，哈茨勒说，“我的新立法禁止他们进入美国大学。”
+三人说：“我们重申，每个欧洲国家都可以自由选择或改变其安全安排，包括联盟条约，任何国家都不能将欧洲的任何地区视为其影响范围。”
 
-这项立法还将允许美国国务院拒绝向那些已经对美国实施间谍活动或知识产权盗窃的个人发放签证。
+报道说，周四，拜登总统表示，俄罗斯可能“在未来几天内”入侵乌克兰。
 
-信息来源： [**美议员提法案 禁中共高官送子女赴美学习**](https://www.epochtimes.com/gb/22/2/16/n13582372.htm)
+而根据《国会山报》同一天的报道，五角大楼官员告诉《纽约时报》，4700名美军已经全部抵达了波兰以东，以加强北约东翼的防御。4700名美军包括来自第82空降步兵旅战斗队的3000名士兵和第82空降师的1700名士兵。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+**新闻来源**
+
+[Ukraine, Poland and UK agree on accord to combat Russian aggression](https://thehill.com/policy/international/594802-ukraine-poland-and-uk-agree-to-accord-to-combat-russian-aggression)
+
+[Last US troops arrive in Poland](https://thehill.com/policy/defense/594743-last-us-troops-arrive-in-poland)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

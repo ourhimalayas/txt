@@ -2,19 +2,30 @@
 ---
 
 
-## 文贵大直播 2/18 CCP病毒没结束 疫苗灾难没开始
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2025294/)
+## 有声|美国再次发生亚裔被害案件
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2025416/)
 
-撰稿：回响 【秘翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2022/02/snapshot1-1.jpg)图片来源 GTV
-当下关于奥米克绒病毒和疫苗强制令，全球众说纷纭，纷乱摇摆。攸关几十亿生命，爆料革命如何解读？
+配音：香草山巡管部– 文凯琳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月15日，据当地媒体报道，美国纽约再次发生了一起亚裔被害案件：35岁的克里斯蒂娜·尤娜·李于本月13日在曼哈屯下城被陌生男子尾随进屋并杀害。
 
-2月18日的文贵大直播，爆料革命发起人郭文贵先生回答现场嘉宾的各种困惑。郭先生明确指出：经济、政治、病毒三大撑不住是各国政府解除禁令的主要原因，事实上在默认集体感染，放任灾难肆虐。CCP病毒没有结束，疫苗灾难尚未开始。
+据悉，这名韩国裔的李女士被发现死于公寓的浴缸内，涉案嫌疑人目前已经以谋杀和入室盗窃罪被纽约警方逮捕。
 
-文贵先生再发警报：至少坚持到5月份，老老实实在家待着。生命只有一次，战友们务必小心！
+值得注意的是，这是纽约市本月内出现的第二起亚裔被害案件：本月9日，一名50多岁的韩国外交官在纽约市曼哈顿街头遭不明男子殴打。而上月16日，另有一名亚裔女性被推落地铁轨道后身亡。
 
-【来源链接】https://gtv.org/broadcast/watch/620f95cbb706176dd78c6f6f
+文字版原文：[美国再次发生亚裔被害案件](https://gnews.org/zh-hans/2012266/)
 
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

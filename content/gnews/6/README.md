@@ -2,27 +2,24 @@
 ---
 
 
-## 中共举办的冬奥会变成了灾难
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2025157/)
+## 乌克兰东部发生多起炮击事件，政府与亲俄派互相指责
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2025301/)
 
-翻译：俏如来
-校对：Lish
-剪辑|字幕：蛮吉
-编辑：Mttfly
+撰稿：东京樱花团｜风翼
 
-据最新统计，冬奥运闭环区域内部报告了接近400人的冠状病毒感染病例。受感染的运动员正在分享来自隔离营的恐怖故事，而中共官方媒体正在尽其所能，转移责任和分散注意力。受感染的运动员和工作人员在不停抱怨比赛的安排、糟糕的食物、肮脏的房间、糟糕的互联网以及没有训练设备。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/乌克兰东部发生多起炮击事件，政府与亲俄派互相指责.png)
 
-视频链接：[GRAVITAS UKRAINE DIRECT: INFECTED ATHLETES IN CHINA’S QUARANTINE CAMPS LASH OUT](https://www.bitchute.com/video/UQeQjoimepxG/)
+据莫斯科路透社报道：乌克兰政府和该国东部的亲俄武装分子在2月18日称对方破坏了停火协议发起了攻击，并互相指责。在对俄罗斯军队入侵的日益担忧中，乌克兰政府和亲俄部队之间的指责游戏也在升级。
 
-*发布：Mttfly*
+据报道，亲俄武装组织“顿涅茨克人民共和国”声称，境内的一个村庄在18日凌晨遭到炮击，而另一个激进组织“卢甘斯克人民共和国”声称当日上午也受到几枚迫击炮的攻击。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+与此同时，乌克兰政府透露，亲俄部队在2月18日用火箭弹或迫击炮对其进行了四次攻击。
 
+信息来源：[**ウクライナ東部でまた砲撃　政府と親ロ派が非難合戦**](https://www.jiji.com/sp/article?k=2022021800715&amp;g=int)
+
+*编辑：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

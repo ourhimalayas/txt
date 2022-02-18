@@ -2,30 +2,54 @@
 ---
 
 
-## 是谁在推动疫苗护照和疫苗强制令？贝莱德和先锋集团？
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2024401/)
+## 一厢情愿“拥抱”新能源，澳最大燃煤电厂提前关闭
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2024770/)
 
-#### 翻译/撰稿：zzballack
+#### **【雅典娜观察】和您一起洞察世界**
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-79.png)图片来源：卫报
-据《儿童健康保护网站》（Children’s Health Defense）2月16日报道，在美国最高法院上个月叫停了拜登政府针对大型私人企业的疫苗强制令后，波音、通用电气和星巴克等公司放弃了实施该强制令的计划。但一些公司无视最高法院的这项裁决，它们根据平等就业机会委员会（Equal Employment Opportunity Commission）在2020年发布的指导意见，仍继续强迫其员工接种新冠疫苗。
+整理/编辑：文泓
 
-这些仍执行疫苗强制令的公司有一个共同点：贝莱德（BlackRock）和先锋集团 (The Vanguard Group) 是其股东。贝莱德是全球最大的资产管理公司，截至2021年7月，它管理的资产超过9.5万亿美元，投资领域涵盖各行各业，其影响力和实力无人能敌，以至于《彭博社》（Bloomberg）在2020年将贝莱德称为“政府的第四分支”。截至2021年1月，先锋持有超过7万亿美元的资产。值得注意的是，先锋是贝莱德的最大股东，持股7.61%；而贝莱德也是先锋的最大股东，持股13.06%。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/1-191.png)图片来源：雅典娜设计组
 
-目前还不清楚贝莱德和先锋集团能在多大程度上左右他们所持股公司的疫苗接种政策，但可以肯定的是，它们是大多数执行疫苗强制令的公司的前十大股东。下表列出了它们在这些公司中的持股情况：
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-17.png)
-作为世界资产管理行业的三巨头，贝莱德和先锋也是新冠疫苗厂商辉瑞、莫德纳和强生的前三大股东，这意味着这两家投资巨头将从这些公司飙升的利润和股价中获得巨额暴利。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片3-12.png)
-不仅如此，贝莱德和先锋还在开发疫苗护照、数字钱包以及跟踪和分配“个人碳配额”技术的科技公司中持有股份。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片4-7.png)
-罗伯特·马龙（Robert Malone）博士去年12月在接受乔·罗根（Joe Rogan）采访时，将贝莱德和先锋这类公司称作是“与民族、国家完全脱节的金融巨鳄，它们没有道德核心、没有道德目的，它们唯一在乎的是投资回报”。
 
-新闻来源：
+2月17日，一家运营商周四宣布，澳大利亚最大的燃煤发电厂将于2025年关闭，这比原计划的时间早几年。给出的理由是可再生能源的低成本，该发电厂不再可行。
 
-[Corporate Vaccine Mandates and Vaccine Passports — Brought to You by BlackRock and Vanguard?](https://childrenshealthdefense.org/defender/corporate-vaccine-mandates-passports-blackrock-vanguard/)
+能源巨头Origin告诉投资者，“可再生能源的使用”正在打破悉尼北部拥有数十年历史的大型埃拉林发电厂的经济可行性。
 
-[2 Giant Investment Firms Control Almost Everything You Buy — Here’s Why You Should Care](https://childrenshealthdefense.org/defender/blackrock-vanguard-control-almost-everything-you-buy/)
+澳大利亚是世界上最大的煤炭生产国之一，这种污染环境的燃料是澳洲出口收入的重要来源，本届政府支持更多这样的工厂。
+
+Origin首席执行官弗兰克·卡拉布里亚表示：“今天，我们已经暗示有可能将埃拉林发电厂的关闭提前到2025年中，”并承认此举对员工而言将是一次挑战。
+
+该工厂已运行近40年，原定于2032年退役。
+
+卡拉布里亚说：“现实情况是，太阳能、风能和电池等更清洁、成本更低的发电方式正在给燃煤发电站的经济带来越来越大的、不可持续的压力。”
+
+该工厂目前包括四台720兆瓦的燃煤发电机和一台42兆瓦的柴油发电机，为澳大利亚人口最多的新南威尔士州提供约四分之一的电力。
+
+该公司有一个2.4亿澳元的计划，以重新利用该工厂并安装一个700兆瓦的大型电池。
+
+一些煤矿和工厂也位于竞争激烈的选区，这意味着政府和反对党工党都试图避免激怒支持煤炭的选民。矿业和能源工会表示，这个决定让埃拉林电厂的工人“措手不及”。
+
+工会代表罗宾·威廉姆斯说：“对于许多依靠埃拉林电厂谋生的家庭而言，今天的公告给他们的未来带来了不确定性。”
+
+支持煤炭的政府联盟议员马特·卡纳万表示，关闭电厂“将是一场灾难”，预计居民电费将涨价。
+
+能源部长安格斯·泰勒支持纳税人投资于新燃煤电厂，他发誓要确保有一个 “类似的工厂”来替代原发电厂。为此，他发推说，此举“将（居民用电）可负担性和可靠性置于风险之中”。
+
+莫纳什大学能源专家阿里尔·利布曼表示，虽然Origin公司的决定是出于商业原因，但它指出了澳大利亚人获取能源的方式发生了更广泛的转变。
+
+他说，一切都在不断加快向可再生能源的能源转型，关闭导致的任何价格飙升都可能是短暂的。
+
+新闻链接：[Australia’s largest coal-fired power plant to close (phys.org)](https://phys.org/news/2022-02-australia-largest-coal-fired-power.html)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
