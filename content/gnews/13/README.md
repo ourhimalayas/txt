@@ -2,49 +2,30 @@
 ---
 
 
-## 新中国联邦主导整个冬奥会开幕式让普京看清真相后离开
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2023341/)
+## 中日财经爆|美国将淘宝、速卖通、拼多多列入“恶名市场”名单
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2023443/)
 
-G-TV视频链接：[https://gtv.org/video/id=620e5af92403672096ab5c41](https://gtv.org/video/id=620e5af92403672096ab5c41)
+撰稿：东京樱花团/peterwong
 
-**摘要：**我们成功地让这些国家的运动员和元首们看清了中共、看清了冬奥会。让他们一生不会再跟共产党参加任何所谓的国际仪式。我们让普京知道了真相，这就是普京离开的原因。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/美国将淘宝、速卖通、拼多多列入恶名市场名单.png)
 
-**标签：**冬奥会,普金离开,新中国联邦,爆料革命,郭文贵先生,
+美国贸易代表办公室周四（2月17日）表示，中共国腾讯控股有限公司和阿里巴巴集团控股有限公司运营的电子商务网站被列入美国政府最新的“恶名市场”名单，被指销售或为销售假冒商品提供便利。
 
-**正文：**
+该名单列出了42个在线市场和35个实体市场，据报这些市场从事或为大量假冒商标或盗版版权提供便利。
 
-**郭文贵先生：**新中国联邦人这次可以这么说，主导了整个冬奥会的开幕式。我们很成功地让这些国家的运动员和这些元首们看清了中共、看清了冬奥会。让他们一生不会再跟共产党参加的任何所谓的国际仪式。我先说到这儿，这就是普京离开的原因。
+美国贸易代表办公室在一份声明中表示:“这份清单首次包括了全球速卖通(AliExpress)和微信电子商务生态系统，这两个总部在中共国的重要在线市场据报道助长了大量商标造假行为。”
 
-我们让普京知道了事情的真相，普京当时拿到其中两张纸说：“如果这里边儿有任何一句话有人跟我提起，我会转身就走。”在他去之前我就跟他说好了共产党宣传的，到了以后怎么耍你，找什么理由。普京说：“只要这里边儿有一句话发生，我扭头就走。”——最后他扭身就走了，是吧？行，我说完了，再说就暴露了。
+美国贸易代表办公室说，总部设在中共国的网上市场百度网盘、敦煌网、拼多多和淘宝，以及位于中国境内的九个“以制造、分销和销售假冒商品而闻名”的实体市场也在名单之列。清单列出了据报参与或为大量商标造假或盗版提供便利的在线和实体市场。
 
-字幕来源：[2022月2日6日 《文贵大直播》全文字版](https://gnews.org/zh-hans/1971450/)
+美国服装和鞋业协会(AAFA)和电影协会(Motion Picture Association)等行业组织对美国贸易代表办公室发布的报告表示欢迎。
 
-编辑整理：Davis；
+消息来源:
 
-字幕文件制作：知津；
+[焦点：美国将腾讯和阿里巴巴的电子商务网站列入“恶名市场”名单](https://cn.reuters.com/article/us-notorious-markets-list-tencent-alibab-idCNKBS2KN040?il=0)
 
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ)、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A)、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/)；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

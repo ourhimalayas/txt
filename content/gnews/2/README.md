@@ -2,34 +2,55 @@
 ---
 
 
-## 德国冬奥金牌选手回国后吐槽再也不去中共国
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2023584/)
+## 从任何角度看中国人和美国人作对的条件现在一点都没有
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2023607/)
 
-撰稿：东京樱花团/peterwong
+G-TV视频链接：[https://gtv.org/video/id=620e5e582403672096ab5f70](https://gtv.org/video/id=620e5e582403672096ab5f70)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/德国冬奥金牌选手回国后吐槽再也不去中共国.png)
+**摘要：**华尔街、好莱坞、麦当劳，至于飞机、大炮、高科技，中国连边都沾不着，金融上美国有绝对话语权。事实上从任何角度，中国人跟美国人作对的条件一点都没有。
 
-在北京冬奥会拿下两面单人雪橇金牌的德国选手盖森伯格回国后表示，自己犹豫了很久才决定要参赛，准备时也尽量不去想人权问题，不过她说，「未来再也不去中共国」。
+**标签：**蒲安臣,话语权,新中国联邦,爆料革命,郭文贵先生,
 
-盖森伯格（Natalie Geisenberger）对奥运由侵犯人权的中共国主办感到不解，开幕前一直犹豫要不要参赛。她去年11月曾批评中共国测试赛的状况，当时也不确定是否将飞到北京参赛。
+**正文：**
 
-她上周在中共国夺金后被媒体问到中共国的人权问题时表示，必须小心注意发言的时间点与地点，她会等到离境后再对中共国发表评论。
+**郭文贵先生：**但是今天你看到美国，你看我们来到美国，从西到夏威夷到阿拉斯加，你到中国登陆的过去犹他州，蒲安臣的条约第一个允许欢迎中国人到美国来移民。
 
-盖森伯格回国后，2月16日在「德国第二电视台」（ZDF）的谈话节目表示，由于家人为她付出很多，而且不论是人权或比赛场地的环保问题，去或不去都不能改变什么，她最后还是决定参赛，完成任务就回家，「从此再也不去中共国」。
+大清政府，当时大清政府觉得很奇怪：你让我的老百姓都去美国干嘛去？当时清政府还不懂呢。美国人把中国人当神一样，真的觉得是天上的神。结果中国人来了，很多人是福建的，在犹他州登陆，修路，都是农民，来的很多都不是知识分子。几十万人呐死在了美国的修1号公路和犹他州建设上，这就是华人登陆美国的原因。
 
-因新疆维吾尔人受到迫害，美国等多国没有派官员出席北京冬奥开幕式。被问到中共国刻意安排维吾尔族选手点燃圣火时，盖森伯格说自己是运动员，不是政治人物，为了专心准备比赛，尽量不去想中共国的人权问题，这样参赛对运动员来说其实很辛苦。
+那么今天你再看美国从东部到西部的时候，犹他州的华人登陆，蒲安臣的欢迎中国人签证到今天，和到之后美国给中国人建“北京大学”和“协和医院”等等等等，就是因为中国人在国际的宗教上、信仰上、自由度上、对人的尊敬上、特别是教育上彻底输了，而美国人在这方面是赢的。
 
-她并指出，北京冬奥与过去几届奥运的气氛完全不同，参赛者与外界完全隔离，一抵达机场眼前就是高墙，根本看不到周遭环境，也没机会接触当地民众。
+在中美之间经济上忽高忽低，那么我们现在看到在美国所有的华尔街、好莱坞，大家能看到好莱坞已经把中国的所有文化彻底替代。饮食文化麦当劳、星巴克咖啡把中国彻底干掉。至于飞机、大炮、高科技，中国连边儿都沾不着，然后金融上美国几乎是有绝对的话语权，中国就没了。
 
-现年34岁的盖森伯格正职是警察，她8日在北京冬奥女子单人雪橇项目夺金，完成冬奥3连霸，并在团队接力摘下金牌，生涯累计获得6面奥运金牌，可说是冬奥史上最成功的德国女运动员。
+事实上从任何角度，中国人跟美国人想作对的条件一点儿都没有现在，就是你最自信的饮食文化和历史，和当时西方那种都没了。
 
-消息来源:
+字幕来源：[2022月2日6日 《文贵大直播》全文字版](https://gnews.org/zh-hans/1971450/)
 
-[關注人權 德國冬奧雙金選手：再也不去中國](https://tw.news.yahoo.com/%E9%97%9C%E6%B3%A8%E4%BA%BA%E6%AC%8A-%E5%BE%B7%E5%9C%8B%E5%86%AC%E5%A5%A7%E9%9B%99%E9%87%91%E9%81%B8%E6%89%8B-%E5%86%8D%E4%B9%9F%E4%B8%8D%E5%8E%BB%E4%B8%AD%E5%9C%8B-231807684.html)
+编辑整理：Davis；
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+字幕文件制作：知津；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ)、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A)、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/)；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

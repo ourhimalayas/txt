@@ -2,88 +2,40 @@
 ---
 
 
-## 全球疫情更新（英儿童“疫苗”获批背后的十亿美元猫腻）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2022829/)
+## 中共的清零防疫政策遭遇尴尬
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2022872/)
 
-**整理/编辑：枳实**
+**撰稿：日本东京方舟农场 東山堂主**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1528.png)图片：雅典娜农场设计组 精灵蓝
+自从张文宏的“病毒共存说”遭到批评打压，“共存派”似乎销声匿迹，人们知道“清零派”的后台是当今皇上，“清零”是习的一人之策，是习要彰显习帝国举国体制伟大成就之举，悖逆龙鳞是没有好下场的。在清零的既定方针下，“全党、全军、全国各族人民”劲往一处使，围绕如何能够一声令下就能实施“大规模流调排查、大规模全员核酸检测、大规模隔离管控”等措施。为了提升这三条主要能力，地方政府主导下，组建了以疾控、公安、大数据、政法人员的流调排查队伍，有些市多达数千人，大量扩充实验室采购核酸检测设备，建造隔离场所和强征酒店用于集中隔离，以满足数千或上万人的隔离需要，尽管有如此手腕，中共在“清零”的道路上面临种种尴尬。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-76.jpg)（图片来自新华社）
+**尴尬一，环顾诸国，发现坚持清零的没几个，中共处方失效**
 
+习当局认为，通过把中共国与世界隔离的“清零政策”，将能有效地控制疫情，也是习的伟大政绩，内外宣开足马力宣传使民众相信政策是正确的，是中共向世界贡献的“防疫良方”。但随着奥密克戎新株所引发的疫情浪潮：高传染性、低致病性，欧洲国家已开始逐步解除限制性的措施，当初选择清零战略的国家，如澳大利亚、新加坡、新西兰、越南等正在放弃清零战略，而中共要维持清零政策，不得不使用更加严厉的防疫措施。这些措施也越来越把中共推向孤立。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3-53.jpg)（图片来自网络，石家庄黄庄公寓集中隔离场所工地）
+**尴尬二，人员疲劳怨声四起**
 
-雅典娜疫情更新（2022年 2月17日）
+2020年以来起始彼伏的疫情，中共采取的运动式防疫，驱赶各级官员、公安人员、医务人员，夜以继日去排除管控；中共的不透明性宣传、多方混乱的信息和谣言增加了焦虑，引发了民众恐慌以及对政府和防疫工作者的怨恨，据报道，患者或家属被骚扰、威胁和人身攻击时有发生，如2月4日百色疫情零号感染者许某，就受到来自多发的骚扰和威胁，为防事态扩大，地方政府不得不适当压制。
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+公安和医生是最疲劳的群体，疫情结束，喧嚣过后，可能还要面临反腐清算，纯洁公安和医生队伍的“清零”行动。因为前者是权力部门，后者是灰色收入的群体，民众恶之。
 
-**一，全球疫情基本数据**
+**尴尬三，****“****清零****”****使经济受挫，财政承压，难以为继**
 
-感染总数：417,655,449（日新增2,062,397人，14天增幅-35%）
+“清零”是一场政治运动，投入是不计成本的，尽管中共发言人赵立坚宣传：“中国经济长期向好的基本面没有变，中国作为全球经济增长重要引擎的地位没有变，国际社会对中国经济的信心没有变”“为全球经济持续复苏注入动力”。
 
-死亡总数：5,849,200（日新增10,341      人，14天增幅 -1%）
+但是现实却并非如此：2022年应该是中共国经济非常糟糕的一年。高盛预测2022年的中国经济增长将为4.3%，几乎只有2021年的一半。以人口将近1300万的陕西西安为例，实施封城超过三周，“人不出户、车不上路”，给当地的经济造成巨大损失。随后的广西百色，虽然只有400多万人口，但封城的影响却波及全省，很显然，即使实施严厉的清零，也无法控制疫情的蔓延。起始彼伏的疫情和严苛的防疫政策冲击下，中小企业纷纷倒闭，财政空虚，工资发不出，这样的防疫，地方负荷巨大，难以为继！
 
-**二，全球“疫苗”毒针统计数据**
+**尴尬四，共存，还是清零？仍然是个难题**
 
-“疫苗”毒针注射总数：105亿
+习的好强、好功和死要面子，注定不会轻易改变防疫策略，政治运动或兵团作战般奴役人民使习充满了快感。中共的疫情专家并非没有提出“共存”理论，但都被打压，不敢发声，“清零派”在奥米克戎面前被啪啪打脸，实际上，大部分防疫官员都知道“清零”不可能，但不敢违背“圣意”。最近所谓的“动态清零”，在清零前加上“动态”，辩解说清零是“动态”的，不是追求“零感染”，是有一起扑灭一起，这其实就是“无法清零”，体现了习的内部意见不一又无可奈何的矛盾心理。
 
-完全“接种”：42.8亿人
+清零已是骑虎难下：放开，疫情肆虐，瞬间政绩化为乌有，啪啪打脸；坚持，重挫经济财政空虚，民怨四起。或者习并不在乎这些，而是想通过病毒管控刁民才是主要的，未来的家天下需要驯化的良民，才可确保江山永固！
 
-完全“接种”百分比：54.9%
+参考链接：
+[https://www.businesstoday.com.tw/article/category/80392/post/202201170015/](https://www.businesstoday.com.tw/article/category/80392/post/202201170015/)
 
-**三，澳洲疫情和“疫苗”数据**
-
-感染总数：2,967,078（今日新增28,052人）
-
-死亡总数：4,798人（今日新增 66人）
-
-每万人感染人数：1151.6461人
-
-“疫苗”毒针注射总数：52,859,039    （今日新增157,935    针）
-
-完全“接种”：19,409,879人
-
-第二针“接种”百分比：79.3%
-
-16岁以上人口接种至少一剂疫苗的比例：&gt;95%
-
-16岁以上人口接种至少两剂疫苗的比例：94.1%
-
-加强针总数：10,453,973    （日新增：136,476针）
-
-**四，****疫情新闻评论**
-
-澳大利亚和美国等国家早已批准了5-11岁的中共病毒疫苗毒针的广泛接种，而英国则一直没有批准，去年底12月，仅仅批准了对有并发症的儿童接种。但周二，英国政府终于也加入了进一步毒害儿童的行列，[根据英国疫苗接种和免疫联合委员会 (JCVI) 的建议](https://www.theguardian.com/world/2022/feb/17/limited-vaccine-access-for-children-in-england-aged-5-11-likely-to-widen-inequalities)，宣布[将为英格兰所有 5 至 11 岁的儿童提供中共病毒疫苗。](https://www.theguardian.com/world/2022/feb/16/five--to-11-year-old-children-in-england-to-be-offered-covid-vaccine)[威尔士](https://www.theguardian.com/uk-news/2022/feb/15/children-aged-five-to-11-in-wales-to-be-offered-covid-jab)和[苏格兰](https://www.theguardian.com/uk-news/2022/feb/16/scotland-to-offer-covid-jab-to-all-children-aged-five-to-11-says-sturgeon)也发布了类似的公告，北爱尔兰已经确认也会这样做。
-
-然而，今天《每日曝光》仅通过初步的搜索，就揭露了疫苗接种和免疫联合委员会中的六名成员以不同方式接受了盖茨基金会的资助，总额达到十亿美元之巨！然而这些委员却没有一人曾经申报过存在利益冲突。更令人震惊的是，其中一名委员领导着辉瑞疫苗卓越中心竟然也没有申报！
-
-还有其它蹊跷的事情。例如林魏生教授（PROFESSOR LIM WEI SHEN，音译）曾经在 2021 年 8 月 4 日明确表示，不会向12-15 岁的儿童  提供 COVID-19 疫苗。发表该声明后不到 6 周，就赞同了为 12-15 岁的孩子提供毒针，此后仅 6 个月，就扩展到了 5-11 岁的孩子们。
-
-再比如来自英国公共卫生部的KEVIN BROWN 博士。“BROWN 博士没有登记的利益冲突”，但他的雇主英国公共卫生部已从盖茨基金会获得 7,451,295 美元。另外布朗博士还与人合作进行了一项关于辉瑞和阿斯利康针剂的“真实世界有效性”的有利于药厂的研究。
-
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
-
-数据来源：
-
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+编辑：青城道姑
+发布：爱放飞
 
  
 
