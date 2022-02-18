@@ -2,24 +2,22 @@
 ---
 
 
-## 渥太华警察抓捕和平抗议组织者
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2024103/)
+## 俄罗斯驱逐美国驻莫斯科大使馆副馆长
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2024095/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-77.jpg)
-图片来源： http://newstar.superlife.ca/
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-285.jpg)
+图片来源：网络截图
 
-零对冲网2月17日报道，渥太华的为自由护航的抗议形势变得愈加严峻，今天关键组织者克里斯·巴伯被逮捕。
+据合众国际社2月17日报道，美国国务院周四证实，俄罗斯驱逐了美国驻莫斯科大使馆代理大使巴特·戈尔曼（Bart Gorman）。
 
-巴伯也是三个为自由护航组织者被起诉对象之一，该起诉案由21岁公共服务生李则希(音译）提起的由安省高级法院所受理。
+据外交专家（Diplopundit）网站报道，戈尔曼和他的家人于2月10日离开莫斯科，但原因尚未公开。2017年至2019年，戈尔曼在洪博培大使离职后担任俄罗斯大使馆的代理大使。2020年1月约翰·沙利文（John Sullivan）担任领导职务时，他担任了副手。
 
-同时，加拿大公民权利协会(CCLA)宣布将起诉联邦政府动用紧急法来对付抗议者。CCLA执行长诺阿·曼得森说：“紧急法不可能也必须不能用于正常事件，这严重地损害了加拿大人的自由与权利宪章。” 他说特鲁多报告中的“暴力，种族主义，同性恋歧视事件，并没有上升到需要动用紧急法的程度。抗议是民主社会人们分享他们所有的政治诉求，无论是环保活动，学生上街，土著居民保卫他们的土地，工人罢工，黑命贵以及所有反对政府的强制措施。”
+据自由欧洲电台（Radio Free Europe/RadioLiberty）报道，美国国务院发言人说：“俄罗斯对我国代理大使的行动是没有正当理由的，我们认为这是升级的一步，我们正在考虑回应。”
 
-加拿大副总理克利斯蒂亚·弗利伦周四说金融机构已经主动冻结了与医疗自由抗议有关的账号，目前还不知道具体多少抗议者的银行账户被冻结。
+此举是在美国和北约继续批评克里姆林宫在俄乌边境集结13万多军队，称其为入侵该国的借口。俄罗斯一再拒绝，甚至嘲笑美国官员对可能入侵乌克兰发出的警报。
 
-##### 新闻来源： [Convoy Chaos: Organizer Arrested, Dogs Threatened, Accounts Frozen And Govt. Sued](https://www.zerohedge.com/geopolitical/canada-freezes-convoy-bank-and-crypto-accounts-threaten-dogs-msm-journos-dox-donors)
-
-#  
+新闻来源：[Russia expels deputy chief of U.S. embassy in Moscow](https://www.upi.com/Top_News/World-News/2022/02/17/Bart-Gorman-expelled-US-embassy-Moscow/1971645114573/)
 
  
 

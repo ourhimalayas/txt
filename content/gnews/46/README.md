@@ -2,10 +2,10 @@
 ---
 
 
-## 在自由的世界里，继续行驶卡车
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2023718/)
+## 以安全威胁为由，印度政府禁用54款中共国应用程序
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2023736/)
 
-02/13/2022 在自由的世界里，继续行驶卡车。
+02/14/2022 印度媒体WION: 印度政府以隐私和国家安全为由发布命令，禁用54款中共国应用程序。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

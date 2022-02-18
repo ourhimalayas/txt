@@ -2,10 +2,10 @@
 ---
 
 
-## 今年年初以来，盖特用户增加了约170万用户，即50%
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2023716/)
+## 欧洲自由车队支持者正向欧盟总部所在地布鲁塞尔集结
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2023720/)
 
-02/14/2022 杰森·米勒：今年年初以来，盖特用户增加了约 170 万用户，即50%。
+02/14/2022 欧洲自由车队支持者正向欧盟总部所在地布鲁塞尔集结，当地警方严阵以待，设立检查站。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

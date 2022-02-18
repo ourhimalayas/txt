@@ -2,17 +2,17 @@
 ---
 
 
-## 中共国在冬奥会上对全世界运动员进行监控
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2025039/)
+## 北京冬奥会是种族屠杀运动会
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2025083/)
 
-翻译：圣地亚哥（文法）
-校对：Lish
+翻译：Annabelle
+校对：精靈藍
 剪辑|字幕：向上James
 编辑：慕纱公子
 
-福克斯主持人玛利亚和现任情报总监约翰•拉特克里夫谈到了中共强制参赛运动员下载用作监控的移动应用程序。拉特克里夫称，该程序包含了2500个受审查的词汇，借以对与会者进行监控。他还提到了进入美国制裁黑名单的“科大讯飞”，称该公司的语音识别技术被中共广泛用于种族灭绝和镇压。令人恐惧的是，当下各国的参赛运动员正被受控于这种技术。
+当前，中共的种族屠杀冬奥会已经激起了广泛的反对浪潮，在这个世界上只要是拥有良知和健全逻辑思维的人就会对中共的暴行感到愤怒。就像这个充满觉醒意识的美国青年，他驳斥的对象像极了中共的小粉红。他称，美国的人权黑暗历史已经是过去式了，可中共的种族屠杀却在当下进行。他强烈谴责收看冬奥会节目的人，并谴责了当权政客面对中共时的迁就与懦弱。
 
-视频链接：[JOHN RATCLIFFE: CHINA HAS A SURVEILANCE STATE OF ARTIFICIAL INTELLIGENCE, FACIAL RECOGNITION](https://www.bitchute.com/video/KOHaeqG4q9cC/)
+视频链接：[GENOCIDE GAMES-BEIJING CHINA-OLYMPICS](https://www.bitchute.com/video/YJ5UuFky2o7Z/)
 
 *发布：Mttfly*
 

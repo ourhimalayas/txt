@@ -2,10 +2,10 @@
 ---
 
 
-## 以安全威胁为由，印度政府禁用54款中共国应用程序
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2023736/)
+## 法国警察暴力殴打和平抗议者
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2023742/)
 
-02/14/2022 印度媒体WION: 印度政府以隐私和国家安全为由发布命令，禁用54款中共国应用程序。
+02/13/2022 残暴的法国警察无情地殴打包括妇女在内的和平抗议者，甚至动用军用装甲车。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
