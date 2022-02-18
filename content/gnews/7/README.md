@@ -2,31 +2,31 @@
 ---
 
 
-## 2022年2月18日澳洲股市简报
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2024217/)
+## 有声｜欧盟重新确立在非洲影响力 对抗中共“一带一路”
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2024278/)
 
-**撰稿：云彩**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1-19.jpg)图片来自the Australian
-由于俄罗斯和乌克兰的紧张局势，ASX 200 下跌1%，7222点收盘。
+By:**秘翻新闻**
 
-**QBE 表现不佳**
+**2022-02-18**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/6-26.png)图片来源 大纪元(Seyllou/AFP via Getty Images)
+《大纪元》2月17日报道，周四，欧盟欢迎四十多位来到布鲁塞尔的非洲领导人，以重新确立其在非洲大陆的影响力，对抗中共控制非洲的企图。
 
-保险公司QBE 转亏为盈，实现了10.4亿澳元利润，去年亏损20.9亿澳元。今年保费平均上涨9.7% 。
+欧盟将在峰会上提供几套支持方案，以加强非洲的卫生、教育和社会稳定，并将承诺将向非洲投资1500亿欧元，与中共的“一带一路”计划抗衡。
 
-但今天收盘股价下跌8.3%。
+欧盟外交政策负责人何塞‧博雷利表示，欧洲和非洲两个大陆紧密联系在一起，解决非洲的问题，也是在为解决欧洲问题而努力。
 
-**Ingham’s 承受巨大的成本压力**
+另外，欧洲投资银行周四宣布，它将向非洲国家提供5亿欧元的廉价贷款，以加强医疗保健系统。该银行表示，这一信贷额度预计将调动总计10亿欧元的私人和公共投资。
 
-鸡肉公司Ingham’s 表示家禽饲料成本和物流费用都在上涨。同时因为COVID-19 员工短缺严重，导致销售额减少。
+联合国大学区域研究专家弗兰克‧马泰斯表示，该倡议主要目标是根据欧盟自身议程设定的，比如能源多样化、实现气候目标、阻碍移民和遏制中共及其一带一路计划的全球影响力。
 
-其股价收盘时下跌 5.1% 。
+新闻来源[**https://www.epochtimes.com/gb/22/2/17/n13584975.htm**](https://www.epochtimes.com/gb/22/2/17/n13584975.htm)
 
-点评： 有币无苗族，这边风景独好。
+秘翻新闻 采集/编撰：BT119
 
-参考资料：
+发布 : 恩典
 
-[QBE dives on company results, as ASX follows Wall Street down](https://www.abc.net.au/news/2022-02-18/asx-wall-street-friday-ukraine-inghams-qbe/100841682)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMAGE-2021-12-13-113746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

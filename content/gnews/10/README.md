@@ -2,21 +2,27 @@
 ---
 
 
-## 意大利人的健康警报，+ 63% 的自杀风险和 + 85% 的抗焦虑药使用
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2024179/)
+## 有声｜特鲁多政府正在对自由车队抗议者发动全面的金融战
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2024229/)
 
-翻译/整理: 萧亦
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Immagine-1.jpg)图片来自stateofmind.it
-根据意大利桥梁基金会的数据显示:在 Covid-19 大流行期间，已经接受心理健康治疗的用户的生活和健康状况正在恶化，其中治疗的疗效性下降了68%，自杀风险增加了63%. 而在普通人群中，出现焦虑、抑郁和压力相关症状的风险已达到 95%，病理性成瘾增加 90%，抗焦虑药等处方科目和精神药物增加了 85%。”
+By:**秘翻新闻**
 
-桥梁基金会主席罗莎莉亚·伊尔迪诺评论道:“这些是政府不能忽视的令人震惊的数字,由于需要改造新冠患者专用通道，大流行的紧急情况给国家卫生系统带来了巨大压力，突显了照顾不同病症患者的系统中的潜在弱点。
+**2022-02-18**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/5-28.png)图片来源 儿童健康保护网站
+据《儿童健康保护网站》2月16日报道，为了平息卡车司机反疫苗强制令的和平抗议活动，加拿大总理贾斯廷·特鲁多通过在历史上首次启用《紧急状态法》，为其攫取了更多权力。
 
-心理学家协会的全国主席大卫·拉扎里强调: “大流行不仅增加了精神问题,而且使情况变得明显：除了严格意义上的精神疾病患者之外，还有数百万意大利人，即使他们不是精神病,但是他们有不适、疲劳和心理痛苦的状况，这严重影响工作、学习、感情、生活质量和健康的状况”。
+这些权力包括让加拿大银行能够在没有法院命令的情况下，“立即冻结或暂停”任何向卡车车队筹款账户捐赠25美元或以上的加拿大人的账户，而且还可以“扣留任何用于抗议活动的资金，包括加密货币”。
 
-原文链接: [https://www.today.it/partner/adnkronos/salute/salute-allarme-fondazione-the-bridge-63-rischio-suicidio-e-85-uso-ansiolitici.html](https://www.today.it/partner/adnkronos/salute/salute-allarme-fondazione-the-bridge-63-rischio-suicidio-e-85-uso-ansiolitici.html)
+据报道，安大略省警察和加拿大皇家骑警已经制裁了34个与卡车司机抗议活动有关的加密钱包。
 
-责任编辑/发布:意大利达芬奇农场   萧亦
+新闻来源 [**https://childrenshealthdefense.org/defender/trudeau-full-fledged-financial-warfare-freedom-convoy-protesters/**](https://childrenshealthdefense.org/defender/trudeau-full-fledged-financial-warfare-freedom-convoy-protesters/)
 
+秘翻新闻 采集/撰稿：ZZB104
+
+发布 : 恩典
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMAGE-2021-12-13-113746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,42 +2,22 @@
 ---
 
 
-## 马斯克暗指推出《紧急状态法》的特鲁多是独裁者
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2023913/)
+## 英国外交大臣访问乌克兰期间谈中共责任
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2024000/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿—八木
+校对/上传—无明逆流
 
-翻译/编辑：文泓
+英国外交大臣特拉斯在访问乌克兰基辅期间，谈到中共应该在俄乌局势中起到的作用时表示，“中国和俄罗斯不一样，中国人宣扬他们的不干涉政策。看到中国支持俄罗斯，这实在让人惊讶。”她说，“如果中国想被视作一个负责任的全球参与者，它必须尽其所能，让俄罗斯给西方让步。世界正在观察中国人的行动，看他们是促进和平稳定，还是煽动侵略。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/W52.09.jpeg)图片资料：（左）特斯拉 （右）库列巴 2月17日 乌克兰基辅 
+**中共无时不刻在支援俄罗斯的侵略政策。**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/8-17.png)图片来源：Sportskeeda
+俄罗斯对乌克兰的入侵政策使西方各国暂停了俄罗斯的天然气项目计划。2022年2月，中共无视美国对中共发出的警告，与俄罗斯签订高价巨额石油天然气协议，为俄罗斯缓解危机。
+中共在俄罗斯遭遇危机时，总是第一时间拿中国人的民脂民膏为俄罗斯买单。
 
+在乌克兰问题上，中共发布与俄罗斯的联合声明，更是直接表明态度，支持俄罗斯对乌克兰的入侵政策。
 
-据天空新闻2月18日报道，正值特鲁多总理在加拿大历史上首次援引《紧急状态法》扩张政府权力，试图借此阻止自由车队抗议者。特斯拉首席执行官埃隆马斯克发推，将特鲁多与独裁者相提并论。
-
-推文中中包括一张德国独裁者的黑白照片，标题是：“别再拿我和贾斯汀·特鲁多相比了，我有一个预算，”推文后被删除。
-
-在加拿大政府要求卡车司机在穿越美加边境之前完全接种疫苗的命令生效后，自由车队抗议活动开始了。数千名愤怒的抗议者驱车前往渥太华，以及两个美加边境口岸，封锁交通、挥舞旗帜，对该国的疫苗强制规定表示愤怒。
-
-一直以来马斯克先生都站在卡车司机一边，美国证券交易委员会(SEC)指责他总是直言不讳地批评政府。
-
-“（世界由）加拿大卡车司机统治”，马斯克先生上个月发推：“但自由被一次又一次地剥夺，直到它消失。”
-
-这次特鲁多援引《紧急状态法》，试图阻止数千名愤怒的卡车司机封锁美加边境口岸，阻塞城市并影响供应，以抗议加拿大推出的疫苗强制。
-
-特鲁多周一表示，政府将利用《紧急状态法》解决大卡车运动封锁和占领问题，以“确保加拿大人的安全”。
-
-他告诉记者：“我们不能也不会允许非法和危险的活动继续下去。”
-
-新闻链接：[Elon Musk slammed for comparing Justin Trudeau to Adolf Hitler after invoking emergency powers to end trucker protests | Sky News Australia](https://www.skynews.com.au/world-news/elon-musk-slammed-for-comparing-justin-trudeau-to-adolf-hitler-after-he-invoked-emergency-powers-to-end-trucker-protests/news-story/f29b8db8930ffad4d34120697a94bcd3)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+中共深知俄乌危机解决之后就是中共危机。中共明面上、暗地里运作支援俄罗斯也是因为看到了这一点。在这种情形下，国际社会单一对俄罗斯进行制裁并不能起到实际性作用；在制裁俄罗斯的同时对中共进行制裁，危机才可能真正得以解除。
 
  
 
