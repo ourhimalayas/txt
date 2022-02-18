@@ -2,143 +2,32 @@
 ---
 
 
-## 加拿大自由车队是非暴力抗议的“胜利”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2022514/)
+## 拜登印太战略强调与盟友合作，忽略中共国
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2022584/)
 
-[https://gtv.org/video/id=620e73682403672096ab73d5](https://gtv.org/video/id=620e73682403672096ab73d5)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Unknown-15.jpg)拜登印太战略强调与盟友合作，忽略中共国 网络图片
+据美国之音2月17日报道，白宫2月11日公布了拜登政府的《印太战略》报告，指出美国的印太战略在相当程度上是应对来自中共国日益增长的挑战。美国不寻求改变中共国，而是要重塑中共国周围的战略环境，在即将推出的印太经济框架中也无意与中共国打交道。主要是强调与盟友的合作，并且在经贸领域与中共国实现部分脱钩。
 
-Stuart:
-Bringing Stephen Moore to join us now, economist Stephen Moore
-现在让斯蒂芬-摩尔加入我们，经济学家斯蒂芬-摩尔
+《美国印太战略》报告说，中共国正在结合其各方面的综合实力，在印度洋-太平洋地区建立起一个势力范围，力图成为世界上最有影响力的大国。美国的目标不是改变中共国，而是改变中共国的战略环境。
 
-If there were an American truck convoy, would you support it?
-如果有美国卡车车队，你会支持吗？
+川普政府曾在2019年公布了美国的印太战略，提到对中共国侵略性的担忧，特别是中共国对台湾施加的压力。拜登政府的印太战略体现了美国对该地区战略的延续性，而不是断裂性。重点是放在与中共国的竞争方面，报告点名提出美国致力于提升的盟友和合作伙伴。在经贸领域，新的《美国印太战略》报告提出在2022年与中共国部分脱钩，在数字贸易、供应链和绿色技术等方面与盟友加强合作。
 
-And I ask, because these convoys have got nothing,
-我问，因为这些车队一无所有，
+中共对印太地区的威胁日益增长。中共的野心从来不只是台湾或者某一个地区，而是整个世界。全球联合起来，共同对抗中共。
 
-I mean this is about getting rid of the mandate for the jab.
-我的意思是这是关于摆脱疫苗强制令
+新闻参考链接：[https://www.voachinese.com/a/what-does-us-indo-pacific-strategy-mean-for-us-china-20220217/6445923.html](https://www.voachinese.com/a/what-does-us-indo-pacific-strategy-mean-for-us-china-20220217/6445923.html)
 
-And if we get one in America that could really complicate the supply chain again,
-如果我们在美国有卡车车队，真的会使供应链再次复杂化
+* * *
 
-could lead to some inflation, so are you in favor of an America truck convoy?
-可能会导致一些通货膨胀，所以你赞成美国卡车车队吗？
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-Stephen：
 
-Well, good morning Stuart, couple of points,
-早上好，斯图尔特，几个意义
+编辑：【英国伦敦喜庄园编辑部】
 
-number one, the Canadian protesters those truckers have won, they won,
-第一，那些卡车司机赢得的加拿大抗议者，他们赢了
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-they have made the point in an empathetic way.
-他们以让人同情的方式提出了这一点
 
-People see you know these pictures, it’s been misrepresented by the way, by the media.
-你知道，人们看到这些照片，它被媒体歪曲了
-
-It has been almost exclusively peaceful, no question about it.
-它几乎完全是和平的，毫无疑问
-
-These are people who have made an incredible point, not just to the Canadian government, to people around the world,
-这些人提出了令人难以置信的观点，不仅对加拿大政府，对世界各地的人们
-
-and you are right, you are starting to see this kind of protest now in some of European countries and New Zealand and others,
-你是对的，你现在开始在一些欧洲国家和新西兰和其他国家看到这种抗议，
-
-so it has been a victory for non-violent protest,
-所以这是非暴力抗议的胜利，
-
-and it’s probably time for…
-可能是时候……
-
-by the way I don’t think the protesters have the right to stop commerce and block bridges and things of that nature
-顺便说一句，我不认为抗议者有权停止商业并封锁桥梁和类似性质的东西
-
-so I think that the police acted correctly in cleaning the bridges,
-所以我认为警察清理桥梁的行为是正确的，
-
-so that commerce could commence
-这样商业才能持续
-
-and whether this should happen in the United States, you know, Stuart,
-以及这是否应该发生在美国，你知道，斯图尔特
-
-I actually think that what’s happening now in the US is a lot of these mandates and a lot of these mask requirements all over the country,
-实际上，我认为现在在美国发生的事情是很多这样的规定和全国各地的很多口罩要求
-
-even the democratic governors are getting rid of them now,
-即使是民主党的州长现在也正在摆脱它们，
-
-because the virus is in such rapid retreat,
-因为病毒正在迅速消退
-
-so hopefully I won’t need protest, because all of these mandates are going to go away in the next few weeks.
-所以希望我不需要抗议，因为所有这些强制令都将在接下来的几周内消失
-
-Stuart:
-
-Let me ask you about producer prices, we get the number tomorrow.
-让我问你关于生产者价格的问题，我们明天得到这个数字
-
-We are expecting a 9% annual inflation rate at the producer level.
-我们预计生产者层面的年通胀率为 9%
-
-If we get that 9%, does that mean higher consumer prices down the road?
-如果我们得到那 9%，这是否意味着未来的消费者价格会更高？
-
-Stephen:
-
-Well, by the way, one other quick thing about Canada, have you seen the latest Justin Trudeau approval ratings?
-好吧，顺便说一下，关于加拿大的另一件事，你看过贾斯汀·特鲁多最新的支持率吗？
-
-He’s as low as Joe Biden is in the United States, so again evidence these protests have really made a statement.
-他和乔·拜登在美国一样低，所以再次证明这些抗议活动确实起了作用
-
-Yeah, I think we’re going to see a high producer price index number
-是的，我认为我们将看到一个高生产者价格指数
-
-and of course that’s going to spread down to higher consumer prices,
-当然，这会蔓延到更高的消费者价格
-
-and there’s now word, as you’ve been reporting that the Fed may have some kind emergency rate increase,
-现在有消息，正如你一直在报道美联储可能会紧急加息
-
-I’m total in agreement with that,
-我完全同意这样做
-
-I only think they should have done that nine months ago,
-我只认为他们应该在九个月前这样做
-
-they are way behind the curve and fighting this inflation with that validations of it, we will see more validation behind the curve tomorrow.
-他们远远落后于曲线，并通过对它的验证来对抗这种通货膨胀，明天我们将在曲线后面看到更多的验证
-
-Stuart
-Lots of speculation about what the Fed will do when it will do it. Stephen Moore, thanks a lot for being with us. We will see you tomorrow
-很多人猜测美联储何时会采取行动。斯蒂芬-摩尔，非常感谢您与我们在一起。我们明天见
-
-**原视频链接:**[** **https://www.youtube.com/watch?v=AQ4jx17mcGI](https://www.youtube.com/watch?v=AQ4jx17mcGI)
-
-Date:02/15/2022
-原视频标题: Canada Freedom Convoy a ‘victory’ for non-violent protests
-加拿大自由车队是非暴力抗议的“胜利”
-原视频日期：2022/02/14
-**原视频链接: **https://www.youtube.com/watch?v=AQ4jx17mcGI
-任务编号：3760
-视频时间段 : 0:00-02:42
-
-英听校：洛杉矶盘古农场 – Raul
-翻译：洛杉矶盘古农场 – Raul
-翻译终校：洛杉矶盘古农场 – Mike Li
-审片：洛杉矶盘古农场 – 天涯行
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

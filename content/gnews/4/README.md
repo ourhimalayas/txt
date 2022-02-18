@@ -2,32 +2,28 @@
 ---
 
 
-## 4700名美军悉数抵达波兰，英国、波兰、乌克兰发联合声明
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2022568/)
+## FBI组建专门负责加密货币的虚拟资产开发小组
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2022635/)
 
 #### 撰稿：彩虹       
 
 #### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/16451455791.png)图片来源：Notesfrompoland
-《国会山报》2月17日报道，周四，英国外交大臣利兹·特拉斯（Liz Truss）及波兰和乌克兰的外交部长发表联合声明，三国将制定一项《三边合作备忘录》（trilateral memorandum of co-operation），以支持乌克兰和打击俄罗斯的侵略。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/16451478481.png)
+图片来源：Decrypt
 
-联合声明说：“这将表明我们致力于进一步加强三国之间在支持乌克兰的最优先问题上的战略合作和接触。我们将共同努力推进我们的合作，这包括但不限于协调对‘国际克里米亚平台’（ International Crimea Platform）的支持，增加我们在网络安全、能源安全方面的合作，以及促进战略沟通以打击虚假信息。”
+《国会山报》2月17日报道，司法部周四宣布，FBI（联邦调查局）正在组建一个专门负责加密货币的新团队。
 
-三人表示，英国和波兰声援乌克兰，帮助这个前苏联国家捍卫其独立和主权，并将向乌克兰提供支持。
+报道说，这个新的团队将与国家加密货币执法小组（National Cryptocurrency Enforcement Team）密切合作，检察官崔恩映（Eun Young Choi）将担任国家加密货币执法小组的第一任主任，他曾负责调查网络犯罪。
 
-联合声明还对俄罗斯进行了含蓄的斥责，但没有具体指名该国。
+在一份声明中，崔恩映说，“自数字货币诞生以来，该部门一直处于调查和起诉涉及数字货币犯罪的最前沿。NCET（国家加密货币执法小组）将发挥关键作用，确保随着围绕数字资产技术性增长和发展，该部门反过来加快和扩大其努力，以打击各类罪犯的非法滥用。我很高兴能领导NCET令人难以置信和有才华的律师团队，并开始为该部门的这一重要优先事项工作。”
 
-三人说：“我们重申，每个欧洲国家都可以自由选择或改变其安全安排，包括联盟条约，任何国家都不能将欧洲的任何地区视为其影响范围。”
+文章说，崔恩映周四开始全职工作。加密货币执法小组将专注于加密货币和数字资产的犯罪滥用所带来的挑战。该团队还将由整个部门的律师组成，包括具有加密货币、网络犯罪、洗钱和罚没背景的检察官。
 
-报道说，周四，拜登总统表示，俄罗斯可能“在未来几天内”入侵乌克兰。
-
-而根据《国会山报》同一天的报道，五角大楼官员告诉《纽约时报》，4700名美军已经全部抵达了波兰以东，以加强北约东翼的防御。4700名美军包括来自第82空降步兵旅战斗队的3000名士兵和第82空降师的1700名士兵。
+与之不同的是，FBI成立的这个负责加密货币的虚拟资产开发小组（Virtual Asset Exploitation Unit）新团队将由加密货币专家组成，为整个联邦调查局提供分析、支持和培训。该部门称，团队还将创新其加密货币工具，以预警未来威胁。
 
 **新闻来源**
 
-[Ukraine, Poland and UK agree on accord to combat Russian aggression](https://thehill.com/policy/international/594802-ukraine-poland-and-uk-agree-to-accord-to-combat-russian-aggression)
-
-[Last US troops arrive in Poland](https://thehill.com/policy/defense/594743-last-us-troops-arrive-in-poland)
+[FBI to form new cryptocurrency unit](https://thehill.com/policy/technology/594763-fbi-to-form-cryptocurrency-unit-doj-taps-enforcement-team-director?rl=1)
 
  
 

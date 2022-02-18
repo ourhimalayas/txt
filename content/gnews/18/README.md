@@ -2,45 +2,24 @@
 ---
 
 
-## 美通过《2022年美国竞争法》，防止中共企业垄断
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2022413/)
+## 中共病毒疫情下的日元处于50年来的新低点
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2022490/)
 
-作者：台湾宝岛农场\_阿尔道夫
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-33.png)
+撰稿：东京樱花团｜盖特第一批注册
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1675.png)[*图片来源*](https://www.jiji.com/jc/article?k=2022021701287&amp;g=eco&amp;p=20220217ax16S&amp;rel=pv)
+国际清算银行（BIS）在1月17日宣布，表明日元整体实力的实际有效汇率（2010=100）在1月份为67.55，是1972年6月以来近50年的最低水平。这个低值表明，由于日元持续贬值和价格低迷，日元的购买力正在下降。随着石油、面粉、大豆等进口的商品的价格高涨不落，强势日元的削弱也给家庭开支带来负担。
 
+与显示日元对美元价值的双边汇率不同，实际有效汇率是衡量一种货币总体购买力的指标，它考虑到了主要国家的价格上涨率和贸易量等因素。 数值越高，从国外购买商品就越便宜。
 
-![](https://gdb.voanews.com/09dd0000-0a00-0242-f776-08d9e826901a_w1023_r1_s.png)（图片来自美国之音）
+1995年4月，根据国际清算银行的数据，日元的实际有效汇率为150.85。在当时的政府和日本银行旨在削弱日元的政策背景下，它开始下降，降至现在不到其峰值的一半。
 
-近年来，中共积极游说国际电信联盟（ITU）、国际电工委员会（IEC）等机构，让中共的企业获得竞争优势。面对此冲击，美在北京冬奥开幕当天通过《2022年美国竞争法》，旨在帮助美半导体制造业，抵消中共扭曲市场的贸易行为，包括加强反倾销规则等。
+有分析家指出，日本的新冠对策不利，根本没有找到实质性的突破口，影响了日本的经济复苏。
 
-美国也和日本连手建立6G无人化技术的国际标准，防止中共企业垄断，并强化尖端技术保护，防范中俄经济间谍战。
+信息来源：[**円の実力、５０年ぶり低水準　購買力低下で景気悪影響も**](https://www.jiji.com/jc/article?k=2022021701287&amp;g=eco)
 
-欧盟主管竞争事务的执委维斯塔哲（Margrethe Vestager）表示，中共近期重新定义网络的基本标准，让中共对国有网络的使用者有更大的控制权，因此，欧盟委员会提出对行业标准系统实施改革，藉以避免欧洲数码产业等被被中共主导。
-
-近日，北京大学在一份报告中罕见承认，美中科技脱钩后，中共无论在技术层面还是产业层面都明显落后，中共的芯片制造、人工智能及信息科技产业更将面临严重的发展瓶颈。该报告在墙内被火速删除。
-
-
-
-参考链接：
-
-[https://www.epochtimes.com/b5/22/2/15/n13577942.htm%E3%80%8B](https://www.epochtimes.com/b5/22/2/15/n13577942.htm%E3%80%8B)
-
-编辑/校对/发稿：有莫举名
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-38.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-33.png)
+*校对：东京樱花团/東洋武士*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
 
 
  
