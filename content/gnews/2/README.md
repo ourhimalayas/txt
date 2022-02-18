@@ -2,35 +2,37 @@
 ---
 
 
-## 腾讯微信和阿里巴巴全球速卖通“荣登”美国恶名市场榜
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2024117/)
+## 喜剧演员在舞台上晕倒摔骨折 称不会再打第四针疫苗
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2024191/)
 
-**作者:  **青衣
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-286.jpg)
-（图片来自网络）
+素材翻译点评：Jenny Ball
 
-因假冒和盗版行为猖獗而臭名昭著的中共国公司，是美国每年度“恶意市场”名单上的“常客”。而今年，腾讯微信和阿里巴巴旗下的“全球速卖通”也首次“荣登”了美国“恶名市场”榜。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1689.png)thegatewaypundit.com
 
-据《美国之音》2月18日报道，美国贸易代表办公室周四（2月17日）公布了2021年“恶名市场”假冒和盗版行为审查结果。中共国的腾讯微信和阿里巴巴旗下的“全球速卖通”（AliExpress）首次被列入“恶名市场”名单。
+喜剧演员希瑟·麦克唐纳（Heather McDonald），最近在亚利桑那州坦佩的演出中，她开玩笑称自己已打了三针疫苗后几秒钟，就晕倒在舞台上，头骨骨折。
 
-所谓“恶名市场”，指的是那些参与盗版和商标侵权行为，或者为相关活动提供实质性便利的线上和线下交易平台。
+希瑟告诉内科医生德鲁·平斯基（Drew Pinsky），在舞台上晕倒后，她不会再接受第四次 Covid 疫苗。
 
-美国贸易代表戴琪表示，全球假冒和盗版贸易破坏了美国关键的创新和创造活动，伤害了美国工人的利益。戴琪办公室发布的新闻稿引用她的话说：“这种非法贸易增加了参与制造假冒商品的劳工容易受到剥削的风险；假冒商品也对世界各地消费者和工人的健康与安全构成了重大风险。”
+希瑟说，她在舞台上晕倒前 3 周，刚注射了新冠病毒疫苗加强针。
 
-在2021年“恶名市场”名单所确认的从事假冒或侵犯版权，或者为其提供实质性便利的市场中，有42个线上市场和35个线下市场，其中包括首次被列入这个名单的阿里巴巴旗下的全球速卖通（AliExpress），以及微信电商生态系统。美国贸易代表办公室认定，这两家电商为商标侵权活动提供了实质性的便利，符合“恶名市场”的标准。
+德鲁医生说，他有一个朋友，在打了Covid 加强针后，现状仍然不能走路，但他还在鼓励人们无论如何都要接种疫苗。
 
-中共国的线上平台——百度网盘、敦煌网（DHGate）、拼多多、淘宝、以及其它九个设在中共国境内的实体市场，这次再次榜上有名。这些市场涉及假冒产品的制造、分销和销售等多种活动。
+希瑟在讲完当晚的第二个笑话后，晕倒了，头撞到了地板上：“我打了疫苗，打了双重疫苗，打了加强疫苗……打了流感疫苗和带状疱疹疫苗，没有感染新冠病毒，耶稣最爱我。”
 
-美国贸易代表办公室从2006年开始，在“特别301报告”中设立了“恶名市场”名单。从2011年2月起，该办公室将“特别301报告”与“恶名市场”名单分别单独发布，以提高公众的关注度，帮助市场运作方和相关政府重视保护知识产权的相关法律，保护美国工商界和美国工人。
+起初，每个人都认为麦克唐纳昏倒是她喜剧套路的一部分，但事实并非如此。
 
-每年当这个名单公布后，中共国商务部便会无耻无赖地回应称：非官方，不承认！但今年到目前为止，还没有看到中共国官方对于此事的评论。
+麦克唐纳被她嫂子送上救护车送往当地医院。
 
-新闻链接：
+点评： 能够摔明白，也不白摔啊。难道仍未醒来的人，都想被摔醒吗？
 
-[https://www.voachinese.com/a/ustr-releases-2021-review-of-notorious-markets-for-counterfeiting-and-piracy-20220217/6446272.html?utm\_source=twitter&utm\_medium=social&utm\_campaign=dlvr.it](https://www.voachinese.com/a/ustr-releases-2021-review-of-notorious-markets-for-counterfeiting-and-piracy-20220217/6446272.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
+素材链接：【thegatewaypundit.com】 [Comedian Heather McDonald Says She Won’t Get 4th Covid Jab After Collapsing on Stage, Fracturing Skull (VIDEO)](https://www.thegatewaypundit.com/2022/02/comedian-heather-mcdonald-says-wont-get-4th-covid-jab-collapsing-stage-fracturing-skull-video/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailyam&amp;utm_content=daily)
 
 * * *
 
+审核：文乐
+校对：花羽
+发布：花羽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-4.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

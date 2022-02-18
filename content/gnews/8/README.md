@@ -2,29 +2,25 @@
 ---
 
 
-## 有声｜恒大危机延伸到足球队 球员薪资降幅高达88％
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2024082/)
+## 渥太华警察抓捕和平抗议组织者
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2024103/)
 
-By:**祕翻新聞**
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-77.jpg)
+图片来源： http://newstar.superlife.ca/
 
-**2022-02-18**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/11-23.png)图片来源 聯合報
-综合媒体2月18日消息，广州足球俱乐部16日发布《足球俱乐部球员定编及薪资标准》，文件制定了该俱乐部球员的编制和薪资方案，人员薪酬水平与两年前俱乐部恒大足校培养球员的薪资标准相比，新赛季广州队一线队球员起薪线从年薪人民币9.6万元降至6万元，主力球员的封顶年薪从人民币500万元大幅降至60万元，降幅高达88%。
+零对冲网2月17日报道，渥太华的为自由护航的抗议形势变得愈加严峻，今天关键组织者克里斯·巴伯被逮捕。
 
-与此同时，广州足球俱乐部16日发布公告称，与五名归化球员艾克森、高拉特、阿兰、洛国富和费南多终止合约。
+巴伯也是三个为自由护航组织者被起诉对象之一，该起诉案由21岁公共服务生李则希(音译）提起的由安省高级法院所受理。
 
-在恒大集团正陷入财务困境状态下，随着归化球员的解约，舆论预计，未来可能还会有一波高薪球员离队。
+同时，加拿大公民权利协会(CCLA)宣布将起诉联邦政府动用紧急法来对付抗议者。CCLA执行长诺阿·曼得森说：“紧急法不可能也必须不能用于正常事件，这严重地损害了加拿大人的自由与权利宪章。” 他说特鲁多报告中的“暴力，种族主义，同性恋歧视事件，并没有上升到需要动用紧急法的程度。抗议是民主社会人们分享他们所有的政治诉求，无论是环保活动，学生上街，土著居民保卫他们的土地，工人罢工，黑命贵以及所有反对政府的强制措施。”
 
-新闻来源 [**https://udn.com/news/story/7333/6105849
-http://finance.eastmoney.com/a/202202172280649629.html**](https://udn.com/news/story/7333/6105849
-http://finance.eastmoney.com/a/202202172280649629.html)
+加拿大副总理克利斯蒂亚·弗利伦周四说金融机构已经主动冻结了与医疗自由抗议有关的账号，目前还不知道具体多少抗议者的银行账户被冻结。
 
-秘翻新闻 明澈 编辑报道
+##### 新闻来源： [Convoy Chaos: Organizer Arrested, Dogs Threatened, Accounts Frozen And Govt. Sued](https://www.zerohedge.com/geopolitical/canada-freezes-convoy-bank-and-crypto-accounts-threaten-dogs-msm-journos-dox-donors)
 
-发布 : 恩典
+#  
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMAGE-2021-12-13-113746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

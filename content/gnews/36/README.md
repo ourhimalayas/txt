@@ -2,56 +2,47 @@
 ---
 
 
-## 日本近日的感染状况以及医疗前线的实况
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2023701/)
+## 疫苗及疫苗造成的政治军事技术贸易经济危机从五月开始
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2023810/)
 
-撰稿：东京樱花团/待命（文晓）
+G-TV视频链接：[https://gtv.org/video/id=620e60a52403672096ab6198](https://gtv.org/video/id=620e60a52403672096ab6198)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/日本近日的感染状况以及医疗前线的实况.png)
+**摘要：**七哥在一年前、16个月前都说过。疫苗次生灾难、疫苗造成的政治危机、军事危机、技术危机、贸易危机、经济金融危机会席卷全球，而且是从今年的5月份开始。
 
-早日电视新闻2月18日消息：17日，日本全国新确认中共病毒(新冠病毒)感染人数为95,210人。
+**标签：**此生灾难,危机,情报,爆料革命,郭文贵先生,
 
-**小池知事表示：重病患者人数呈增长趋势**
+**正文：**
 
-东京17日感染17,864人，已是连续第9天低于前一周的同一天。然而，死亡24人的这个日子，成为今年死亡人数最多的一天。
+**郭文贵先生：**最后一条看到就是加拿大的“土豆”、大卡车事件等，还有全世界的农民抗议事件，这七哥在一年前、16个月以前都说过。疫苗次生灾难、疫苗造成的政治危机、军事危机、技术危机、贸易危机、经济金融危机会席卷全球，而且是从今年的5月份开始。记住：七哥是从2020初、1、2月份就说过！我不是神仙我不能预测，就是我知道共产党的计划和计划的具体的细节，和基本的掌握的情报，这是我得出的结果。
 
-东京都知事小池百合子说：新的阳性病例数量呈下降趋势，但仍处于高水平。老年人的比例正在增加，患有严重疾病的人数也在增加，特别体现在老年人群中。
+字幕来源：[2022月2日6日 《文贵大直播》全文字版](https://gnews.org/zh-hans/1971450/)
 
-**一个病人出院了……马上就又进来一个**
+编辑整理：Davis；
 
-与此同时，大阪17日13,912人感染，比上周同一天增加了1,000多人。
+字幕文件制作：知津；
 
-感染正在大阪府蔓延，坂井市的邦和医院仅有的八张重度和中度感染病床，只要有人出院，马上就会有下一个患者住进来。
+视频制作及上传：Cindy；
 
-**一名接种了两剂疫苗的男性感染者自诉 “呼吸困难”**
+G-News发布：小满；
 
-16日，一位年长的男性感染者被送到医院。医生和这位感染者如下对话：
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-医生：你觉得呼吸困难吗？
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-病人：是的。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-医生：你打了几针疫苗？
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-病人：两针。
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ)、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A)、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-医生：两针啊。
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/)；
 
-医生：这里有个白色模糊的地方， 这被称为磨砂玻璃影，是我们发现的中共病毒感染的特征。我们将尝试消除它，使这块模糊的影子消失。所以要为您静脉注射一种叫做Lemdesivir的药物，这是抗病毒的药物。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-该男性被确诊为中共病毒２度感染肺炎，并决定采用新疗法，进药Remdesivi进行治疗，同时需要吸氧，需要住院治疗。
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-**致命的可不仅仅是呼吸衰竭**
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
-据该医院称，本月老年患者的数量有所增加，入院患者的平均年龄在80多岁。
-
-邦和医院院长和田邦雄说：我的印象是，大多数病人都是75岁以上的老年人，他们更有可能成为重病患者。他们常患有肺部疾病、糖尿病、高血压等其它潜在疾病。除了中共病毒的呼吸衰竭外，还可能威胁到生命。
-
-信息来源：[“2回接種”感染男性「息苦しい」　高齢患者増加「呼吸不全以外でも…」（テレビ朝日系（ANN）） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/21887d4f900c162a17e930b98e3eb76144dd9f22)
-
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
