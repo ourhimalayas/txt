@@ -2,38 +2,24 @@
 ---
 
 
-## 郭先生揭秘俄罗斯近期军事行为的背后原因
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2026053/)
+## 爱尔兰疫苗受害者提起刑事诉讼
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2026164/)
 
-作者：纽约香草山农场-AT，银河系农场-骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月16日，郭文贵先生在大直播中透露，在受到了来自国际社会的巨大压力后，普京宣布俄罗斯军演结束，并将从克里米亚半岛部分撤军。
+采编/编译撰稿：文明(添草灭共)                    校对编辑：硫酸羟氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide3-6.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot_20220218-124110_Samsung-Internet.jpg)图片来源：dailyexpose
 
-郭先生指出，美国、欧洲和日本近期联合向俄罗斯施压；法国、德国、英国和巴西等国家也明确警告俄罗斯，在其开战的那一刻，他们会实施各种方式的制裁措施，包括驱除在各国的俄罗斯人。
 
-郭先生表示，普京在强压之下示弱撤军。不过，俄军当前的行动仍属于战略性动作阶段，不排除普京为转移视线，采取表面上撤军，但背后突然用导弹袭击乌克兰的举动。
+据加拿大【反叛新闻】2月16日报道，因遭受“新冠病毒”疫苗伤害，爱尔兰的[布拉尼]女士于日前对相关机构和人员提起刑事诉讼。
 
-郭先生也提到，如果普京攻打乌克兰，习近平一定会借机打台湾。但是，作为目前最受国际瞩目的政治事件之一，普京深知，俄罗斯攻打乌克兰将对国际政治和经济产生巨大的影响；而如果放弃这次行动，他与习近平的关系将彻底结束。
+报道称，该指控的被告包括：疫苗接种人员、接种中心负责人、国家免疫咨询委员会负责人、健康与安全局负责人以及卫生部长唐纳利等。
 
-参考链接：
-1. [https://gettr.com/post/puel3n071f](https://gettr.com/post/puel3n071f)
-2. [普京撤军，黄金将崩跌了，一切都在预料中，就是这次咋呼的太过了！](https://gettr.com/post/puwl3mf1e1)
+据悉，[布拉尼]女士在去年5月接种疫苗后不久，就出现视力受损、面瘫、剧烈头痛等病症，经多次住院治疗至今仍未好转。由于失去了基本行动能力，该女士被迫长期居家不能外出，身心健康因此备受摧残。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+发稿：文明(添草灭共)
 
-总编：Irene木木
-编辑：飞虹
-校正/发稿：谐趣园
+新闻来源：[https://dailyexpose.uk/2022/02/16/vaccine-injured-woman-makes-criminal-complaint/](https://dailyexpose.uk/2022/02/16/vaccine-injured-woman-makes-criminal-complaint/)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

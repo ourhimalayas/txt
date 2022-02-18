@@ -2,38 +2,26 @@
 ---
 
 
-## 轻装前进 灭共百无禁忌
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2026014/)
+## 安省自由车队捐款者的信息被非法泄露
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2026063/)
 
-作者：日本东京方舟农场 – Miyali7768(文玉)，纽约香草山农场-宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月15日，郭文贵先生正式签署了破产文件，宣布个人破产。
+采编/编译撰稿：文明(添草灭共)                    校对编辑：硫酸羟氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1-9.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/website-bake3-1-edited.jpg)图片来源：tnc
 
-在第二日的直播中，郭先生表示，个人破产不过是人生路口的黄灯，而成为真正的“无产阶级”给他带来的只有全身心的轻松和愉悦。另一方面，执念让人痛苦，放下即是获得，郭先生借此机会养精蓄锐并放下执念后，才能继续轻装上阵。
 
-郭先生也解释道，五年来，他遭受了无数不公正的诉讼，而此案则更加清晰地警示出美国的司法体系已经被中共“蓝金黄”到令人发指的程度。但是，中共对个人的迫害必将激怒全世界，现在的这些挫折都将是未来以法灭共成功的徽章。
+据加拿大媒体【真北方】2月17日报道，安省一家面包店主因向“自由车队”捐款，而在社交媒体上和其营业场所中受到不明人员滋扰。
 
-郭先生还提到，为了灭共事业，他个人可以失去一切，更不要说十八楼与记录了郭氏家族浮沉与生死的裕达和盘古酒店相比，根本不值一提。何况，法律形式上的破产只会让郭先生的智慧财富变得无穷大，且他带领战友们义无反顾的灭共决心会更决绝。
+据悉，一名男子日前进入该商店并威胁正在工作的女员工，称向抗议车队捐赠1000元是支持“叛徒”。此后店主还收到了内容为“白人至上种族主义者”电子邮件的侮辱和谩骂。
 
-郭先生补充道，宣布破产这一重大举动只会淘汰出投机分子，真正的战友却会在经济上越来越强大，并更多地掌握全球话语权。他本人的破产只会让爆料革命更干净、更强大、更纯洁，同时藏富于战友，让爆料革命取得人类历史上最艰难、最有意义的灭共的胜利，成为史诗般的、伟大的人类壮举。
+报道称，已为“自由车队”募集到了数百万美元的筹款网页平台，近日被黑客非法入侵并导致大量捐款者个人信息被泄露。随后，有大量匿名的推特账户立即开始对这些支持者进行攻击。而传统媒体和自由党知名人士则在网上分享这些非法获取的信息。
 
-参考链接：[2022年2月16日 文贵大直播：疫苗公司股价变化；看中共的普遍贪腐、以贪反贪、以反贪为名实施政治清理；世界多地反华苗头；冬奥会锁链女后续；太平联盟官司进展；](https://gtv.org/video/id=620cf40c432ae869226d8db5)
+评论指出：当权者为维护其统治地位而不择手段地打压民意、制造分裂，挑起争端之举，已不再是独裁中共的专利。特鲁多假借[紧急状态法]剥夺和侵害加拿大人自由的罪行必将遭到强烈反抗和彻底追责。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+发稿：文明(添草灭共)
 
-总编：Irene木木
-编辑：Lakeman文仁
-校正/发稿：谐趣园
+原文链接： [https://tnc.news/2022/02/17/bakery-facing-threats-and-harassment-over-leaked-convoy-donation/](https://tnc.news/2022/02/17/bakery-facing-threats-and-harassment-over-leaked-convoy-donation/)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

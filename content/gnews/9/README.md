@@ -2,36 +2,29 @@
 ---
 
 
-## 谷爱凌争议言论开始发酵
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2026085/)
+## 关注“锁链女”
+` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2026193/)
 
-作者：纽约香草山农场 – AT，银河系农场 – 骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在2月16日的大直播中，郭文贵先生透露了一份独家情报：中共为了平息谷爱凌的国籍问题和外界对中共一系列违规操作的争议，其以气候为由，取消了谷爱凌的两场最重要赛事。
+作者:文华ma161
+编辑发稿：am夏天
+喜马拉雅纽伦堡正义农场
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide4-9.jpeg)
+很多人关注“锁链女”，不仅是因为我们这个民族血脉中流淌着的善良和爱，更是因为一种本能的同情和防范意识：我们跟奥运冠军相差十万八千里，但跟“锁链女奴”之间，只差一根锁链而已。那根冰冷的锁链，可以随时从天而降，套在你我她的脖子上，也可以套在我们的孩子、我们亲人或朋友的孩子脖子上。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-18-at-18.48.05.png)
+这是一种巨大的哀伤，也是一种巨大的疼痛。
 
-郭先生解释到，谷爱凌早先在获得自由式女子大跳台项目金牌后表示，她在美国就是美国人，在中国就是中国人。但这一言论完全违背了中共面向全世界颁布的“只承认一个国籍”的法律，也是对整个世界的欺骗和愚弄。目前，谷爱凌事件在全球引起了强烈的反弹，一些政府表示，要对其进行彻底的调查。
+我们用这个时代仅存的悲悯，呼唤真相，追寻正义。这种悲悯是我们这个民族灵魂中的标志。尽管，在很多说谎的人身上，已经荡然无存，但在很多普通人心中，依然顽强地跃动着……这是我们区别于禽兽和人渣的标志。
 
-另一方面，多国运动员在冬奥会房间内发现了中共安装的隐藏摄像头，同时，中共勾兑、收买裁判的行为也有了确凿的证据。
 
-郭先生指出，中共违背奥运精神、突破道德底线、违反法律的行为已经引发了多国运动员、政府及关注人士的愤怒。
+```
+试图遮掩是徒劳的。文可以删，人可以抓，但良心跳动的声音，谁也遮掩不了……
+```
 
-参考链接：[https://www.gettr.com/post/pv68n2aea7](https://www.gettr.com/post/pv68n2aea7)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-18-at-18.48.22.png)
+为了不让那根锁链，套在我们孩子和亲人的脖子上，我们会一直把真象揭穿出来……
+![](https://assets.gnews.org/wp-content/uploads/2022/02/德农二维码-28.png)
+图片来源：网络
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
-
-总编：Irene木木
-编辑：飞虹
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

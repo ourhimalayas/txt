@@ -2,30 +2,28 @@
 ---
 
 
-## 日本民间反抗对儿童的中共病毒疫苗接种
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2025578/)
+## “巫山童养媳”为“丰县锁链女”发声被报复
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2025782/)
 
-作者：日本方舟农场 – Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月16日，据日本媒体消息显示，日本兵库县宝冢市宫泽诊所的院长宫泽大辅，以及《疫苗后遗症》主创人员之一、京都大学的宫泽孝幸副教授近日联合了超过一万名医生，要求日本政府撤销对该国所有5到11岁的儿童发放的中共病毒疫苗接种券，改为由接种者自行申请的模式。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/7-27.jpg)
-据了解，日本政府即将于3月份在当地5到11岁的儿童群体中推广中共病毒疫苗，但这引起了日本民间对儿童接种疫苗的担忧和反抗。当天，在日本媒体对静冈县儿童家长的采访中，绝大多数父母都表示出对疫苗副作用的质疑。有家长提及，由于接种儿童的年龄较低，但凡出现接种副作用的情况，他们无法准确地向父母和医生表达出自己的症状，而这会严重威胁到孩子的安全。
+**撰稿：明澈**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕快照-2022-02-01-下午8.55.37.png)
+2月17日，微信朋友圈被疯转的几张图片，引起大家关注，让人不禁想问：谁是马泮艳？为什么她要为徐州锁链女发声？为什么当她在面对重庆市巫山县公安局的传唤时，在微博中并未表现出害怕，甚至在派出所所长打电话威胁要抓捕她时依然十分淡定？
 
-参考链接：[20220216日本關於5-11歲接種疫苗的反抗](https://www.gettr.com/post/pv1q2ce4f6)
+据媒体报道，20年前，马泮艳9岁时，父亲被患有精神病的母亲杀死，母亲离家出走，她自此成为孤儿，12岁时她大伯将她以童养媳的方式嫁给了比她大17岁的陈学生，完全没有顾虑她个人意愿。不久后马泮艳便遭陈学生性侵，还经常被毒打，她在14岁时生下了一名女婴，5年后再生下儿子。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+马泮艳曾多次报案，但都没有成功立案处理。 2008年陈学生还偷偷办理结婚登记，马泮艳完全被蒙在鼓里，直到2016年，马泮艳的遭遇被媒体报导后，引发社会广大关注，她控告陈学生性侵当时未成年的自己，法院受理马泮艳的离婚申请，而2人所生的儿女则交由陈学生抚养。
 
-总编: Irene木木
-编辑: 飞虹
-校正/发稿：Fei797
+2017年初，马泮艳再次回到巫山寻求解决问题，处理有关责任人员。 2月24日，巫山县政府就马泮艳的相关情况发布新闻稿，对马的遭遇深表同情，但认为巫山童养媳事件中，马泮艳所反映的强奸罪、非法拘禁、报警未立案等，均证据不足。不过，因为马泮艳的结婚证办理违规，当地民政局工作人员被给予党内严重警告处分。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当徐州锁链女事件在社会舆论压力下，中共官方不得不成立调查组后，中国人民才发现原来有这么多的媒体都在此事上，不约而同的保持着缄默不语态度。中央级媒体就连通报都反应迟钝，更别说指望他们去报道什么真相了。还有很多省级媒体，它们占着国家资源，既不为百姓发声，也不为国家分忧。仅有大量的公民记者，冒着被中共抓捕的危险，秘密潜入，试图找出锁链女们的真相。而或许是由于自身的经历，才能让曾经的“巫山童养媳”马泮艳坚定地为锁链女发声。
+
+**新闻链接：**
+[https://chinadigitaltimes.net/chinese/677081.html](https://chinadigitaltimes.net/chinese/677081.html)
+[https://www.jiemian.com/article/2157651.html](https://www.jiemian.com/article/2157651.html)
+[https://www.bannedbook.org/bnews/cnnews/20220218/1693778.html](https://www.bannedbook.org/bnews/cnnews/20220218/1693778.html)
+[https://kknews.cc/zh-tw/society/r9qp5kn.html](https://kknews.cc/zh-tw/society/r9qp5kn.html)
+[https://www.wikiwand.com/zh-hk/%E5%B7%AB%E5%B1%B1%E7%AB%A5%E5%85%BB%E5%AA%B3%E4%BA%8B%E4%BB%B6](https://www.wikiwand.com/zh-hk/%E5%B7%AB%E5%B1%B1%E7%AB%A5%E5%85%BB%E5%AA%B3%E4%BA%8B%E4%BB%B6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

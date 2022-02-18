@@ -2,34 +2,45 @@
 ---
 
 
-## 美中不断交前提是中共必须配合病毒溯源调查
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2026020/)
+## 有关PCR检查和二维码的诉讼,我们会进行到底
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2026083/)
 
-作者：首尔天池农场 – 追着曙光跑
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生在2月16日的大直播中爆料称，美国拜登总统明确告知习近平，美国与中共不断交的前提在于，后者必须配合国际上对中共病毒溯源的调查。
+韩国首尔天池农场
+翻译：恩真
+校对：鱼子酱
+上传：QCFM
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide2-7.jpeg)
+然后还有骗人的二维码……
+二维码，侵犯了私生活，
+连老婆丈夫都不知道我去哪了
+为什么要让文在寅知道我们在哪儿？
+已经告诉大家，我们开始了对废除二维码的诉讼
+关于滥发核酸检测
+为什么对身体进行的 核算检测要像对猪狗一样滥发呢？
+各位，这件事也是绝对不能容忍的
+我们什么时候对没有流感症状的人进行过流感检测？
+各位，我们要坚持到最后，不能放弃
+这是在为我们的自由而战斗
+是争取自由民主的一场斗争
+我们一定要打赢这场仗
+对于这些事的进展我想说
+下周全国范围内的关于疫苗通行证的诉讼开始后
+某种程度上律师的工作结束后
+会开始针对二维码的全国诉讼
+然后这个结束后也会开始
+针对核算检测的诉讼
+关于各位的自由
+我们没有经过检测的人
+因为大家都没有下载追踪软件
+所以没必要被他们追踪，大家太老实了
+各位没有下载软件
+所以自己看着办就好
+有人打电话就说会看着办的
+不需要再打电话就好
+最后我喊两个口号就下去了
+立即停止侵害国民隐私基本权利的非法二维码！
+停止欺骗和愚弄国民，将冠状病毒转变为季节性流感管理！
 
-郭先生表示， 中共病毒疫情爆发的这两年多来，全球的感染和死亡人数仍在不断增加，加之各国推行的中共病毒疫苗强制接种政策，全球的经济和社会秩序正处于崩溃边缘。 此外，由于中共病毒及其疫苗所造成的伤害，全球或将爆发大规模的排华，甚至排亚事件。但是，被牵连的日本和韩国等亚洲国家一定会发起抗议，最终联合全世界一同迫使中共配合病毒溯源的调查。
-
-郭先生指出，拜登总统巧妙地利用了国际社会对中共的怨恨向其施加压力，而中共已无还手之力。最后，中共只能配合做好国际病毒溯源的调查工作。
-
-参考链接： [https://www.gettr.com/post/puzr7k1d1d](https://www.gettr.com/post/puzr7k1d1d)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
-
-总编：Irene木木
-编辑：飞虹
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

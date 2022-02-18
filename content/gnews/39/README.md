@@ -2,87 +2,34 @@
 ---
 
 
-## 02/18/22 香港快讯 公院濒爆煲 伊院护士：急症室医护1对100病人
-` 英喜-粵語組` [轉載自GNews](https://gnews.org/zh-hans/2025281/)
+## 阿联酋将为数字资产服务商发放联邦许可证
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2025510/)
 
-搜集/整理：卡西欧
-![](https://assets.gnews.org/wp-content/uploads/2022/02/0218fenmian.jpg)
-封面素材：独立媒体
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-18-1.png)
-**1. ****全港新增****3629****宗确诊****耀安村解封　共发现****144****宗初确**
+作者：银河系农场 – 骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月17日，据相关媒体消息显示，阿联酋计划在2022年第一季度末为该国数字资产服务商发放联邦加密货币许可证。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/6-29.jpg)
+报道提及，这是阿联酋第一次以数字货币为重点在全国范围内实行的许可立法。目前，阿联酋证券和商品管理局正处于该立法程序出台的最后阶段。据悉，此次许可立法参考了巴黎的金融指导，以及英、美和新加坡等国家的数字货币政策。
 
-[据【Now新闻台】02月18日讯，本港新增3629宗确诊，除2宗属输入病例，其余均为本地个案；至于初步阳性个案约7600宗。](https://news.now.com/home/local/player?newsId=466949)
+报道也指出，阿联酋的数字货币许可证将由当地首席监管机构和中央银行共同监管。同时，数字资产服务商也可根据该法案制定本地的许可证指南。除此之外，阿联酋政府还准备建立和监管数字货币的采矿行业。
 
-[围封两晚的马鞍山耀安村耀平楼及东涌满东村满和楼解封，合共发现144宗初步阳性个案。](https://news.now.com/home/local/player?newsId=466949)
+报道表示，国家数字货币立法将有助于阿联酋成为领先的数字货币友好司法管辖区。
 
-[耀平楼周三列为受限区域，延长围封至今早，居民离开时须出示阴性检测结果，围封期间共有3160人次接受强制检测，当中发现64宗初步阳性及3宗检测结果不确定个案。](https://news.now.com/home/local/player?newsId=466949)
+参考链接：[UAE reportedly plans to issue federal crypto license for VASPs](https://cointelegraph.com/news/uae-reportedly-plans-to-issue-federal-crypto-license-for-vasps)
 
-[同样被围封两晚的满东村满和楼下午解封，发现80宗初步阳性及3宗不确定个案。政府向初步阳性个案住户提供消毒用品和口罩等，供他们在等候跟进期间使用。](https://news.now.com/home/local/player?newsId=466949)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-[【评论】中共把疫情政治化的说法一点也没夸张，这是要把人口清零的节奏嘛。](https://news.now.com/home/local/player?newsId=466949)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-18-2.png)
-**2. ****引用紧急法****   ****行政长官选举押后至「****5****‧****8****」举行**
+总编: Irene木木
+编辑: 静言
+校正/发稿：Fei797
 
-[据【Now新闻台】02月18日讯，行政长官林郑月娥表示，因应本港疫情严峻，行政会议通过引用紧急法，将行政长官选举由3月27日，押后至5月8日举行，原定于周日展开的提名期，亦相应押后到4月3日至16日，已向中央报告并获同意。](https://news.now.com/home/finance/player?newsId=466978)
-
-[林郑月娥说:「香港正面对两年抗疫以来最严峻的局面，可以说是形势危急，所以在公共卫生及保障市民健康的大前提下，特区政府必须集中力量应对疫情，不应分心，亦不容有失，这亦符合国家主席习近平近日的重要指示精神，即是说我们需要把稳控疫情，作为当前压倒一切的任务。」](https://news.now.com/home/finance/player?newsId=466978)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-18-3.png)
-**3. ****监狱率先推「全民检测」锁仓****10****日****   ****料大批案件需押后**
-
-[据【独立媒体】02月18日讯，特首林郑月娥近日转口风，称若能大幅提高本港检测能力，全民检测是一个考虑方案。惩教署今率先在监狱推行「全民检测」，并会锁仓10日，在囚人士期间暂停前往法庭应讯，料大批案件因此需要押后。](https://www.inmediahk.net/node/政經/監獄率先推「全民檢測」鎖倉10日-料大批案件需押後)
-
-[惩教署表示，因应惩教院所相继出现职员及在囚人士确诊个案，署方今日起在惩教院所推行「锁仓运作模式」，为所有职员及在囚人士进行全面检测，以切断隐形传播链。今日起至2月27日，在囚人士将暂停前往法庭应讯。](https://www.inmediahk.net/node/政經/監獄率先推「全民檢測」鎖倉10日-料大批案件需押後)
-
-[此外，惩教署自今月初同以疫情严重为由，暂停在囚人士亲友探访至今月24日，期间只准亲友期间送入认可物资一次。](https://www.inmediahk.net/node/政經/監獄率先推「全民檢測」鎖倉10日-料大批案件需押後)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-18-4.png)
-**4. ****公院濒爆煲****伊院护士：急症室医护****1****对****100****病人****   ****有同事情绪崩溃**
-
-[据【独立媒体】02月18日讯，确诊数字愈来愈高，公立医院已无法接收一般确诊者，昨日（2月17日）更有创新高的140名医护人员感染。在伊利沙伯医院急症室工作的护士向《独媒》表示，近日急症室一名医护人员需照顾60至100名病人，有患病的确诊长者，在急症室等候到病房期间失救，医护人员感到无力和绝望，又指已有不少同事情绪崩溃，休息及放工后躲在洗手间哭泣。](https://www.inmediahk.net/node/政經/公院瀕爆煲-伊院護士：急症室醫護1對100病人-有同事情緒崩潰)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-18-5.png)
-**5. ****何婉霞呼吁私人机构医护加入医管局医疗团队**
-
-[据【香港电台】02月18日讯，医管局总行政经理何婉霞说，很多医院在室外有病人等候，因为室内空间已很挤迫，但未来几日天气冻，担心病人的身体状况，目标在今日内安排所有病人移入室内。医管局在物资方面足够，反而最缺是人手，呼吁私人机构的医护加入医管局的医疗团队。](https://news.rthk.hk/rthk/ch/component/k2/1634500-20220218.htm)
-
-[何婉霞说，对于留院而身体状况稳定的长者，希望院舍合作接回他们，医管局会加强外展医疗队支援院舍，令他们安心接回长者。](https://news.rthk.hk/rthk/ch/component/k2/1634500-20220218.htm)
-
-[她表示，政府正研究不同方法增加社区隔离设施，当中包括酒店，会逐步安排适合的病人到这些设施。](https://news.rthk.hk/rthk/ch/component/k2/1634500-20220218.htm)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-18-6.png)
-**6.****「抗疫的士」专属车队首日服务截至中午逾****800****个预约**
-
-[据【香港电台】02月18日讯，的士车行车主协会主席表示，「抗疫的士」专属车队今日开始投入服务，截至中午12时，有超过800个预约，并完成约300宗接载，部分是跨区接载乘客到「指定诊所」。](https://news.rthk.hk/rthk/ch/component/k2/1634460-20220218.htm)
-
-[协会常务副主席郑敏怡表示，由于「指定诊所」早上9时开始运作，专属车队专于8时开始服务，呼吁市民如果未能成功预约或要取消，亦可以重新预约。](https://news.rthk.hk/rthk/ch/component/k2/1634460-20220218.htm)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-18-7.png)
-**7. ****聂德权：将向教育局及学界提出多项为幼童打针安排**
-
-[据【Now新闻台】02月18日讯，公务员事务局局长聂德权指，将会与教育局及学界开会，提出多项为小学及幼稚园学生接种疫苗的安排。](https://news.now.com/home/local/player?newsId=466899)
-
-[聂德权：「有什么方法尽量方便他们，一个小组一起到中心打针，一些校舍可以拿出来用，一间学校也好、几间学校集起来也好，一起做外展接种也可以，流动疫苗接种车也可以到学校，所有安排上都比较方便，所有方法我们都会去做。」](https://news.now.com/home/local/player?newsId=466899)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-18-8.png)
-**8.****【港股收市】恒指泻****465****点****.****美团急泻****200****点**
-
-[据【Now新闻台】02月18日讯，乌克兰局势紧张，加上监管阴霾再度笼罩新经济股，港股午后跌幅扩大，恒生指数一度泻逾500点。总结全周，恒指累跌578点，收市报24327点。大市全日成交逾1262亿元。](https://news.now.com/home/finance/player?newsId=466966)
-
-[科技指数跌182点，报5479点。](https://news.now.com/home/finance/player?newsId=466966)
-
-[发改委引导下调外卖商户服务费标准，美团急泻近15%，并拖低恒指逾200点。](https://news.now.com/home/finance/player?newsId=466966)
-
-[快手跌5%，小米集团、京东集团跌3%。](https://news.now.com/home/finance/player?newsId=466966)
-
-[关联平台被美国列入「恶名市场」名单的阿里巴巴及腾讯控股，分别跌1%及2%。](https://news.now.com/home/finance/player?newsId=466966)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-18-9.png)
-**9. ****英国突然取消黄金签证计划****   ****堵塞洗黑钱渠道**
-
-[据【大纪元时报】02月18日讯，英国内政大臣彭黛玲（Priti Patel）于当地时间2月17日，突然宣布终结「黄金签证」计划，取消以投资200万英镑方式来换取签证入英途径。目标明确，旨在打击洗黑钱，堵塞渠道遭不法之徒滥用。](https://hk.epochtimes.com/news/2022-02-18/51304835)
-
-[乌克兰危机触发英国提前斩断计划，考虑到国安问题，不论来自什么国家的申请均不再受理。此政策于13年前由工党推出，至今合共发放12,000个签证，当中包括大约2,500名俄罗斯公民。](https://hk.epochtimes.com/news/2022-02-18/51304835)
-
-[值得留意的是，据内政部资料显示，俄罗斯申请人并非占最多数，其仅排行第二位；首位申请地区乃中国大陆，占整体份额高达33%，远远抛离俄罗斯的18%，接下来是美国占6%、香港占5%与印度占3%等。](https://hk.epochtimes.com/news/2022-02-18/51304835)
-
-[彭黛玲直言：「我们采取『零容忍』态度去处理滥用移民系统问题，未来新的计划将会确保英国人安心，包括制止腐败『精英』前来威胁我国安全，以及杜绝黑金在英国各个城市流窜。」](https://hk.epochtimes.com/news/2022-02-18/51304835)
-
-校对 / 封面合成：文粤 / 发布：流光飞舞
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
