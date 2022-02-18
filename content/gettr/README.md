@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/18/2022 12:57 AM (UTC)`
+
+2/16/2022 Miles Guo: The fundamental reason why the CCP could turn more than one billion Chinese into obedient people is the establishment of a mental firewall. The lack of good education and faith, and the media's brainwashing have made people around us ticking time bombs. Those who are persecuted by the CCP for reporting on the chained woman will be given Himalaya Coins.<br/><br/>2/16/2022 文贵直播：中共让十几亿中国人变成顺民的根本原因是建立了精神防火墙；缺乏良好教育、无信仰和媒体洗脑让身边的人成为定时炸弹；因报道锁链女而被中共迫害的人将得到喜币<br/>
+![img](https://media.gettr.com/group3/getter/2022/02/18/00/7c79aabe-b3cd-d4f8-ab9c-576c3e3b50d5/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@ddnyc 2/17/2022 10:02 PM (UTC)`
@@ -150,13 +157,6 @@ Always in style…@gfashion
 
 2/16/2022 Miles Guo: Under the threat posed by various Western countries, Putin backed down, withdrew its troops, and fooled the idiot, Xi Jinping, causing Putin and Xi to break up. This is great news for Taiwan! What Putin plays is the top game in the world - the War Economy. It is profitable whether Putin declares war or withdraws his troops.<br/><br/>2/16/2022 文贵直播：在西方各国的威胁下，普京服软撤军并耍了二货习近平，俩人因此彻底掰了，这对台湾是个大好事！普京玩的是世界最高等的游戏 - 战争经济，喊打喊撤都能赚钱！<br/>
 ![img](https://media.gettr.com/group3/getter/2022/02/16/23/c5091315-af1b-2bd2-088b-5474d8fd469c/out.jpg)
-
----
-
-`@miles 2/16/2022 11:20 PM (UTC)`
-
-2/16/2022 Miles Guo: Top secret intelligence! Biden told Xi Jinping that the prerequisite for the U.S. not to cut diplomatic ties with the CCP is the investigation into the origins of the virus. Discrimination and violence experienced by the Asians will drive them to protest across the globe. Biden will shift the blame of the disasters caused by the COVID virus and its vaccines to the CCP. Biden will trick the CCP into its demise.<br/><br/>2/16/2022 文贵直播：绝密情报！拜登告诉习太阳美中不断交的前提是病毒溯源；亚裔遭遇的歧视和暴力将推动全球亚裔集体抗议；拜登将把病毒和疫苗灾难的责任甩给中共，中共将被拜登玩死！<br/>
-![img](https://media.gettr.com/group9/getter/2022/02/16/23/188c9c63-9227-a5a4-0b2a-786fb942c3a2/out.jpg)
 
 ---
 
