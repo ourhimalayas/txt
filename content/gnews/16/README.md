@@ -2,31 +2,32 @@
 ---
 
 
-## 有声｜包括Vice在内的大媒体帮助特鲁多摧毁加拿大民主
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2024031/)
+## 美国明州“双子城”放弃中共病毒疫苗强制令
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2024057/)
 
-By:**祕翻新闻**
+作者：纽约香草山农场-侠肝义胆
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月15日，据当地媒体报道，美国明尼苏达州的双子城——明尼阿波利斯和圣保罗市——已于2月10日起，放弃在当地执行强制民众接种中共病毒疫苗的紧急行政命令。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-18-上午2.26.28.png)
+据悉，双子城曾于今年1月19日宣布实施强制疫苗政策，而在不到一个月的时间里，这两个城市已经确认将不再要求当地民众在出入公共场所时出示中共病毒疫苗的接种证明。
 
-**2022-02-18**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/10-23.png)图片来源 真相卫报
-2月18日《真相卫报》综合报道称，加拿大自由卡车司机运动目的很明确：结束中共病毒封锁，特别是给予加拿大人决定其选择权利的自由，而不是被迫进行医疗勒索以换取他们的主要生活需求。但媒体帮助了特鲁多，将卡车司机贴上“肮脏的败类”和“恐怖分子”的标签。
+报道指出，双子城取消疫苗护照的主要原因在于当地的疫情正在逐步放缓，同时，中共病毒疫苗并没有表现出对奥密克戎变种病毒的防护作用。此外，一些政治领导人也明确表示，中共病毒疫苗的强制政策是对人权的羞辱和对自由的践踏。
 
-与犯罪、抢劫和纵火事件激增的美国“黑命贵”运动相比，加拿大的卡车抗议活动从开始到现在都相当和平。然而，世界各地的记者、政客和大企业都在反对和抹黑这些为真理和自由发声的人。
+参考链接：[Minneapolis, St. Paul drop vaccine mandates after less than a month](https://www.lifesitenews.com/news/minneapolis-st-paul-drop-vaccine-mandates-after-less-than-a-month/)
 
-大流行病开始之际，曾经诬陷灭共者郭文贵先生的Vice Media 刊登题为《反疫苗者害怕政府会‘强制实施’中共病毒疫苗》 的文章，将社交媒体上的“反中共病毒疫苗的团体称为“阴谋论的疯子”。这些团体声称，病毒将导致强制接种疫苗和无限制的监控。而现在这一切都已经发生了，Vice 并没有道歉，相反，Vice 正在帮助特鲁多抹黑和反击任何抱怨他的人。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-这是共产独裁暴政的架构，它不仅仅发生在加拿大，它正在美国，甚至全世界发生。
+总编：Irene木木
+编辑：飞虹
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-新闻来源 [**https://thetruedefender.com/how-the-big-media-helped-dictator-justin-trudeau-destroy-canadian-democracy/ **](https://thetruedefender.com/how-the-big-media-helped-dictator-justin-trudeau-destroy-canadian-democracy/)
-
-秘翻新闻 文雀 编译报道
-
-发布 : 恩典
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMAGE-2021-12-13-113746.jpg)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
