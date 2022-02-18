@@ -2,23 +2,32 @@
 ---
 
 
-## 英国外交大臣访问乌克兰期间谈中共责任
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2024000/)
+## 网球名将德约称 坚决反对强制接种疫苗
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2024056/)
 
-撰稿—八木
-校对/上传—无明逆流
+作者：银河系农场—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月15日，据相关媒体报道，网球名将诺瓦克·德约科维奇在接受采访时表示，如果任何赛方以接种中共病毒疫苗作为硬性参赛条件，他宁可放弃获得大满贯的机会。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-18-上午2.26.22.png)
+资料显示，德约在职业网球比赛中已经取得了9个冠军，而今年澳大利亚网球公开赛的冠军将带给他新的大满贯赛事冠军纪录。然而，今年1月，拒绝接种中共病毒疫苗的德约科维奇被澳州政府两次取消入境签证，并在法庭挑战失败后被驱逐出境。
 
-英国外交大臣特拉斯在访问乌克兰基辅期间，谈到中共应该在俄乌局势中起到的作用时表示，“中国和俄罗斯不一样，中国人宣扬他们的不干涉政策。看到中国支持俄罗斯，这实在让人惊讶。”她说，“如果中国想被视作一个负责任的全球参与者，它必须尽其所能，让俄罗斯给西方让步。世界正在观察中国人的行动，看他们是促进和平稳定，还是煽动侵略。”
-![](https://assets.gnews.org/wp-content/uploads/2022/02/W52.09.jpeg)图片资料：（左）特斯拉 （右）库列巴 2月17日 乌克兰基辅 
-**中共无时不刻在支援俄罗斯的侵略政策。**
+对此，德约表示，他深知自己目前无法参加世界上的大多数锦标赛，但这是他愿意为自由付出的代价。同时，德约也强调，民众必须保有选择是否接种中共病毒疫苗的权利。而这一言论也得到了塞尔维亚总统武契奇的大力支持。 据悉，德约将于下周在迪拜举行的2022年ATP职业网球巡回赛上重返赛场。
 
-俄罗斯对乌克兰的入侵政策使西方各国暂停了俄罗斯的天然气项目计划。2022年2月，中共无视美国对中共发出的警告，与俄罗斯签订高价巨额石油天然气协议，为俄罗斯缓解危机。
-中共在俄罗斯遭遇危机时，总是第一时间拿中国人的民脂民膏为俄罗斯买单。
+参考链接：[Not anti-vax but won’t be forced to take COVID-19 jab, says Djokovic](https://www.channelnewsasia.com/sport/covid-19-novak-djokovic-not-anti-vax-skip-tournaments-2499226)
 
-在乌克兰问题上，中共发布与俄罗斯的联合声明，更是直接表明态度，支持俄罗斯对乌克兰的入侵政策。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-中共深知俄乌危机解决之后就是中共危机。中共明面上、暗地里运作支援俄罗斯也是因为看到了这一点。在这种情形下，国际社会单一对俄罗斯进行制裁并不能起到实际性作用；在制裁俄罗斯的同时对中共进行制裁，危机才可能真正得以解除。
+总编：Irene木木
+编辑：宁文静
+校正/发稿：呼吸的雾霾（文小呼吸）
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

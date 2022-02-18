@@ -2,30 +2,29 @@
 ---
 
 
-## 中日财经爆┃中共发改委：共同富裕不能靠党要靠自己
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2023866/)
+## 研究证实伊维菌素治疗新冠奥米炕的效果最佳
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2023898/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-16.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https://img3.jiemian.com/101/original/20210918/163194343383918700_a640x364.jpg&amp;imgrefurl=https://m.jiemian.com/article/6614048.html&amp;tbnid=EE1H2Gn-Hy8gRM&amp;vet=12ahUKEwjPhNXDmYj2AhUKHqYKHa7YBTgQMygSegUIARDTAQ..i&amp;docid=qBmLmbkC275APM&amp;w=640&amp;h=364&amp;q=%E5%85%B1%E5%90%8C%E5%AF%8C%E8%A3%95&amp;ved=2ahUKEwjPhNXDmYj2AhUKHqYKHa7YBTgQMygSegUIARDTAQ)
-2月17日，中共国家发改委就业司司长哈增友17日在新闻发布会上表示，实现共同富裕要靠共同奋斗，不是“躺平”“等靠要”，也不是政府要搞“福利主义”。
+#### 翻译/撰稿：zzballack
 
-哈增友称，“实现共同富裕目标，首先需要通过共同奋斗把蛋糕做大做好，只有人人参与、人人尽力，才能真正实现人人享有。”
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-34.jpg)图片来源：卫报
+据《儿童健康保护网站》（Children’s Health Defense）2月16日报道，根据康奈尔大学预印版网站刊登的一篇论文，研究人员使用计算分析方法来评估10种药物对新冠奥米炕变种的表现，数据显示伊维菌素的效果最好。
 
-他称，一定要把保障和改善民生建立在经济发展和财力可持续的基础之上，不能好高骛远、吊高胃口，作兑现不了的承诺。即使将来发展更好、财力更雄厚了，也不能提过高的目标、搞过头的保障，坚决防止落入“福利主义”养懒汉的陷阱。
+研究人员发现奥米炕病毒的突变并没有明显影响药物和病毒主要蛋白酶之间的相互作用。这10种药物对奥米炕都有一定程度的疗效，但伊维菌素是最有效的。其它测试药物包括由辉瑞公司开发的防新冠口服药Paxlovid，该药在去年12月获得了美国食品药品监管局（FDA）的紧急使用授权，每个疗程花费529美元。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-7.jpg)
+伊维菌素通过抑制病毒复制来降低病毒载量，单一剂量的伊维菌素可以在48小时内杀死99.8%的病毒。预防性使用可使新冠感染率降低86%、加速病人康复、防止器官受损、降低住院和死亡的风险。分析显示，伊维菌素可使死亡率降低75%至83%。此外，在暴露于新冠病毒之前或之后服用该药能防止新冠的传播，早期治疗可以降低人们患上新冠长期症状的风险。这些证据清楚地表明伊维菌素可以完全消除这种大流行病，而且一个疗程仅需要48至95美元。
 
-“所谓量力而行，就是要清醒地看到，我国发展水平离发达国家还有很大差距，我们一定要把保障和改善民生建立在经济发展和财力可持续的基础之上。”他称。
+在贫瘠的非洲，新冠感染人数、重症患者人数、住院人数和死亡人数都低于世界其他地区，这可能是由于非洲有许多人使用伊维菌素治疗新冠以及河盲症，全球99%以上的河盲症患者生活在31个非洲国家。印度北方邦在广泛使用伊维菌素后，新冠患者的康复率高达98.6%，感染人数几乎清零。日本的一项研究表明，在医生被允许合法地给病人开伊维菌素后，短短12天过后新冠病例显著下降。
 
-去年8月17日，中共中央财经委员会第十次会议提出“共同富裕”这个目标，并把“三次分配”作为调节收入分配、实现共同富裕的有效路径。
+尽管伊维菌素在治疗新冠上是如此的有效，但自新冠大流行开始以来，主流媒体、公共卫生专家、政府机构、大药厂、科学界一直在阻止人们使用伊维菌素和羟氯喹等药物预防和治疗新冠，并对有关信息进行了史无前例的审查和打压，导致许多人无辜丧生。这是对人类的大屠杀，对这些杀手及其共犯的审判一定会来！
 
-中共发改委官员的此番表态说明，中共以不搞“福利主义”为名否定了先前“三次分配”这样的提法，把发改委官员的话翻译成大白话就是“共同富裕不能靠党，要靠自己”。
+新闻来源：
 
-信息来源：
+[Ivermectin Beats Out 9 Other Meds for Treating Omicron, Study Confirms](https://childrenshealthdefense.org/defender/ivermectin-beats-meds-treating-omicron/)
 
-[到底该如何实现“共同富裕”？国家发改委这场发布会点明重点](http://www.cnr.cn/news/20220217/t20220217_525743400.shtml)
+[Insights from a computational analysis of the SARS-CoV-2 Omicron variant: Host-pathogen interaction, pathogenicity and possible therapeutics](https://arxiv.org/abs/2201.08176v1)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
