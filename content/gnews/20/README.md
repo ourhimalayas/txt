@@ -2,25 +2,28 @@
 ---
 
 
-## 今日盖特大V推荐 — 香奈儿·里昂 OAN（Chanel Rion OAN）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2024600/)
+## 自今年年初起，意大利新冠疫苗注射量下跌75%以上，达到历史最低水平。
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2024675/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/027.png)
-盖特链接： [**https://gettr.com/user/chanelrion**](https://gettr.com/user/chanelrion)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1705.png)图片来源：网络
-香奈儿·里昂简介：
+#### 翻译                   意大利达芬奇农场                    小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-17-alle-23.06.04.png)图片来源：eventiavversinews.it
+意大利新冠疫苗注射中心空荡荡， 无人再信。
 
-香奈儿·里昂（生于1990年4月28日）广播员, 政治漫画家和儿童读物作者，有线电视频道美国新闻网（OAN）的首席白宫记者。
+意大利疫苗注射宣传失败了。据《24小时太阳报》的最新数据，有57.000.000意大利人是可接种疫苗的，（ 今天只有从0岁到4岁的孩子尚不可接种疫苗， 其数量是2.216.510，而2021年意大利总人口为59.236.213。有48.800.000人接种了两剂疫苗（有8.200.000 人没有接种），36.400.000人接种了第三针。现在大概有12.400.000人很可能是“后悔打疫苗”了， 他们在打了前两针疫苗之后，不会打第三针。
 
-2020年3月，香奈儿·里昂在OAN上主持了揭露中共冠状病毒的“恐惧、谎言和未知”特别节目。她在特别节目中声称：导致2019冠状病毒病大流行的SARS-CoV-2 新冠病毒是“中共病毒“，她说，唐纳德·川普总统对这一大流行病的反应是“强烈的”，并质疑该病毒是否来自中国武汉市。
+新冠疫苗接种前景暗淡。显然无人再相信政府——政府违宪并滥用紧急法令，人们不再被吓倒。
 
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 — 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+年初（1月3日）共注射了628.410针，1月11日达到了高峰，达到725.424针。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+这些天新冠疫苗注射量达到历史最低点。全意大利2月15日的注射量是180.020针，其中第一针的数量只有11.735（ 绝对负面记录），第二针和第三针的数量分别是48.312，119.973.
+
+儿童疫苗注射量由从1月11日的49.157针下降到2月15日的19.017针，下降了60%。
+
+意大利25.5%的5-11岁的儿童注射了两针辉瑞疫苗，10.8%的儿童预定了第二针。
+
+原文链接：[https://www.eventiavversinews.it/hub-deserti-minimo-storico-delle-vaccinazioni-nessuno-si-](https://www.eventiavversinews.it/hub-deserti-minimo-storico-delle-vaccinazioni-nessuno-si-fida-piu-da-inizio-anno-inoculazioni-crollate-oltre-il-75/)[fida-piu-da-inizio-anno-inoculazioni-crollate-oltre-il-75/](https://www.eventiavversinews.it/hub-deserti-minimo-storico-delle-vaccinazioni-nessuno-si-fida-piu-da-inizio-anno-inoculazioni-crollate-oltre-il-75/)
+
+编辑、上传： Xiao  baige
 
  
 

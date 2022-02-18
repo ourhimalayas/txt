@@ -2,16 +2,20 @@
 ---
 
 
-## 樱花FM┃中俄首脑冬奥会议 意在联合应对美欧
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2024551/)
+## 樱花FM┃美国又扇中共耳光 两党力推“台湾代表处”更名
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2024568/)
 
 音频：东京樱花团/战友520
-![](https://lh3.googleusercontent.com/Y3h3SVGn1x4R2yahOjo8vo192WFQx-BfFFmo1uAFKx5LzTLVFztQkhtZqauLGV7EDlAfn7GRqVMvKkioFLpt3_Jx2Vdz0lBvei6CMxZyNRQcZaNGW0pSyIsyqgcwIPFplOfK35iY)
-据路透华盛顿2月4日消息，美国负责东亚和太平洋事务的助理国务卿4日就中俄北京峰会表示，“在乌克兰问题上，本次应该是中国督促俄罗斯缓和外交紧张的机会。”
+![](https://lh4.googleusercontent.com/Px1-mEkVaVgJC9qo0d9Zm_Clkrk527r2iZ15wj02XbPGR19X8xiF9GExge4QHvj1h5fgAOo1lh0u5-UwHvIwBYoQwCgVH-M8Og2GevPCMe4OlNcbTl9I8Pp72DzyjrSAO0Xmt6RV)
+美国参众两院议员提出配套法案，要求将台北驻美国的代表处更名为“台湾代表处”。台湾外交部发言人欧江安表达感谢，并持续密切关注法案后续发展。
 
-俄罗斯总统普京4日在北京冬奥会开幕式上访华，并在北京会见了习近平主席。 明确了新的统一战略，例如反对北大西洋公约组织（NATO）的扩大和中国对台湾的立场。 乌克兰局势的冲突正在加深，似乎目的是为了遏制欧洲和美国。
+美国两党国会议员3日在联邦参众两院提出配套法案，要求美国针对台湾在华府的“驻美国台北经济文化代表处”（TECRO）更名为“台湾代表处”（Taiwan Representative Office）展开协商。
 
-文字版原文：[中俄首脑冬奥会议 意在联合应对美欧](https://gnews.org/zh-hans/1958120/)
+共同提出法案的共和党籍参议员卢比奥说：“美国必须清楚表明，尽管中国共产党竭尽全力恐吓并胁迫台湾，敌对势力也无权对民主国家主张主权。”
+
+孟南德兹表示，这些法案符合定义台美非正式关系的“台湾关系法”，且表明华府支持台湾“决定自己的未来”。
+
+文字版原文：[美国又扇中共耳光 两党力推“台湾代表处”更名](https://gnews.org/zh-hans/1958384/)
 
 *编辑：东京樱花团/asket
 发布：东京樱花团/平安卿卿*
