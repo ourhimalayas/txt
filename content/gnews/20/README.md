@@ -2,28 +2,22 @@
 ---
 
 
-## 有声|习近平神隐数日 欲发动对台作战计划
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2025559/)
+## 普京将亲自指挥19日举行的弹道导弹发射演习
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2025604/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-4.png)
-郭文贵先生于2月14日和15日连续发布盖特视频爆料称，习近平神隐数日，正在准备对台湾的一场战争，处心积虑地酝酿对台湾的整个作战计划，对台湾极为危险。预计习近平将在16日左右现身，他呼吁台湾同胞务必小心，习近平正准备对台湾发动战争。
+撰稿：东京樱花团｜待命（文晓）
 
-此外，俄罗斯与乌克兰的军事风险、国际经济、金融的动荡及疫苗灾难，都是世界瞩目的焦点，而一切的灾难都来自于中国共产党。然而，中国共产党的恶行，最后将由中国人买单。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/普京将亲自指挥19日举行的弹道导弹发射演习.png)（图片源自本文链接）
 
-文字版原文：[习近平神隐数日 欲发动对台作战计划](https://gnews.org/zh-hans/2020347/)
+2月18日时事通信社消息：俄罗斯国防部周二宣布，将于2月19日在总统弗拉基米尔-普京的亲自指挥下进行弹道导弹和巡航导弹发射演习。
 
-音频处理/发稿：Daxia
+据国际文传通讯社报道，这是一次包括核战部队在内的 “战略威慑性”演习。这次导弹演习是在乌克兰局势因俄罗斯军队在边境附近集结而变得紧张的情况下进行的，其紧张局势可能会进一步加剧。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+信息来源：[**ロシア、１９日に弾道ミサイル発射演習**](https://sp.m.jiji.com/article/show/2708591)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

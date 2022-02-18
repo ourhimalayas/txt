@@ -2,16 +2,27 @@
 ---
 
 
-## 光明与黑暗的对决—多国取消防疫限制
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2025150/)
+## 2022.2.18大直播 疫苗危机还未到来，战友们继续做好防护
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2025234/)
 
-文贵大直播20220218
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-18-at-9.13.33-PM.jpeg)
 
-撰稿：MyWay/莲心不染（扬帆） 枳实（澳雅）
 
-美工：青山（英喜）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片1-27.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片2-28.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片3-26.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片4-26.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片5-26.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片6-25.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片7-16.png)
-*发布：Theodosia*
+撰稿：大浪小水花
+
+郭先生在2022年2月18日大直播中重申，爆料革命最早声称强制疫苗和疫苗护照政策在2023年以前一定会停止。
+
+郭先生提到现在最让他担心的事情，目前随着奥米炕感染率的下降，全世界80%的国家开始停止各种疫情限制措施，人们开始恢复正常生活。
+
+郭先生指出，政府能强制限制人们打疫苗，强制戴口罩，强制人们呆在家里，同样也可以想办法让人们出门去。现在美国和欧洲各国事实上已经默认让人们集体感染，只是没说出来而已。各政府让人们出门，解除限制，开放学校的根本原因是经济撑不住了，第二是政治撑不住了，第三才是病毒减弱。
+
+郭先生呼吁战友们现在一定要冷静，一定要坚持到五月份，因为那时候疫苗死亡才刚开始，疫苗死亡导致的次生灾难才刚开始。如果现在就疏忽大意，后果不堪设想。
+
+郭先生认为战友们要继续坚持，在生活适当放开的情况下，还要继续做好防护，要保持警惕。如此才能保证自己的安全。
+
+郭先生忠告战友们心中要有数，疫苗灾难现在还没开始，大家一定要坚持到五月份，不能心怀侥幸，麻痹大意，因为生命只有一次。
+
+参考链接：[2022.2.18文贵大直播](https://gtv.org/broadcast/watch/620f95cbb706176dd78c6f6f)
 
  
 

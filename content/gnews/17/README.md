@@ -2,26 +2,26 @@
 ---
 
 
-## 有声|日本麒麟退出中共软饮料市场
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2025571/)
+## 加拿大通货膨胀率失控飙升
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2025642/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-33.png)
-2月16日，日本麒麟控股宣布退出与中共华润集团共同开发的软饮料业务。麒麟公司将以约1150亿日元的价格将其全部股份转让给一家中共投资基金。麒麟公司于2月14日刚刚宣布退出缅甸的啤酒业务，并将通过审查其海外业务促进对增长领域的投资。
+采编：文莱 翻译编辑：文所未闻
 
-文字版原文：[日本麒麟退出中共软饮料市场](https://gnews.org/zh-hans/2022377/)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/website-groceries2-800x420-1-edited-1.jpg)图片来源：tnc
 
-音频处理/发稿：Daxia
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+据加拿大媒体《真北方》2月16日报道，加拿大的年度通货膨胀率已经超过了5%，为1991年以来最高。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+据加拿大统计局当天数据显示，所有类别的商品价格都持续上涨，其中住房价格上涨6.2%，并直接导致其他所有相关商品价格的上扬。同时，食品成本也继续增长，与去年同期比上涨了6.5%；1月份的汽油价格比去年同期高出31%。
+
+报道称，加拿大国民在通货膨胀中不堪重负，约43%的人称其正为个人财务和偿还债务而挣扎。对此，保守党领导人贝尔根认为总理特鲁多应该对失控的高通胀率负责，同时谴责自由党政府在本次经济危机中没有实施任何有效解决方案。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：文明(添草灭共)
+
+原文链接： [https://tnc.news/2022/02/16/breaking-canadas-inflation-rate-rises-to-5-1/](https://tnc.news/2022/02/16/breaking-canadas-inflation-rate-rises-to-5-1/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
