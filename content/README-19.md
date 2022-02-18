@@ -16,6 +16,8 @@
 ---
 ## 頁面 19/40 [**<**](/content/README-18.md) [1](/content/README.md) ... [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) **19** [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) ... [40](/content/README-40.md) [**>**](/content/README-20.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年12月13日文贵报平安，王健的第四种死法](/content/2019/12/20191214-6641233035759881210.md)
+
 [文字版：2019年12月10日文贵报平安-共产党正炮制猛药去毒死香港人，王健死亡真相引发国内巨大震荡](/content/2019/12/20191212-5839330453623085189.md)
 
 [文字版：2019年12月9日郭文贵先生第二次直播王健尸体的高清照片](/content/2019/12/20191212-297605354411190045.md)
@@ -63,8 +65,6 @@
 [文字版：2019年11月16日解放军走出军营的那一刻，是历史的重大转折](/content/2019/11/20191117-3916342912052380154.md)
 
 [文字版:2019年11月15日郭文贵先生建议香港前线勇武义士蛰伏保留实力](/content/2019/11/20191117-5300701663572959846.md)
-
-[文字版：2019年11月14日郭文贵先生路上直播](/content/2019/11/20191116-589334000754628973.md)
 
 
 ## 頁面 19/40 [**<**](/content/README-18.md) [1](/content/README.md) ... [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) **19** [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) ... [40](/content/README-40.md) [**>**](/content/README-20.md) [查看全部](/content/README-all.md)
