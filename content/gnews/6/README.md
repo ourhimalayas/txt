@@ -2,30 +2,22 @@
 ---
 
 
-## 有声｜包括Vice在内的大媒体帮助特鲁多摧毁加拿大民主
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2024031/)
+## 俄罗斯驱逐美国驻莫斯科大使馆副馆长
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2024095/)
 
-By:**祕翻新闻**
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-285.jpg)
+图片来源：网络截图
 
-**2022-02-18**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/10-23.png)图片来源 真相卫报
-2月18日《真相卫报》综合报道称，加拿大自由卡车司机运动目的很明确：结束中共病毒封锁，特别是给予加拿大人决定其选择权利的自由，而不是被迫进行医疗勒索以换取他们的主要生活需求。但媒体帮助了特鲁多，将卡车司机贴上“肮脏的败类”和“恐怖分子”的标签。
+据合众国际社2月17日报道，美国国务院周四证实，俄罗斯驱逐了美国驻莫斯科大使馆代理大使巴特·戈尔曼（Bart Gorman）。
 
-与犯罪、抢劫和纵火事件激增的美国“黑命贵”运动相比，加拿大的卡车抗议活动从开始到现在都相当和平。然而，世界各地的记者、政客和大企业都在反对和抹黑这些为真理和自由发声的人。
+据外交专家（Diplopundit）网站报道，戈尔曼和他的家人于2月10日离开莫斯科，但原因尚未公开。2017年至2019年，戈尔曼在洪博培大使离职后担任俄罗斯大使馆的代理大使。2020年1月约翰·沙利文（John Sullivan）担任领导职务时，他担任了副手。
 
-大流行病开始之际，曾经诬陷灭共者郭文贵先生的Vice Media 刊登题为《反疫苗者害怕政府会‘强制实施’中共病毒疫苗》 的文章，将社交媒体上的“反中共病毒疫苗的团体称为“阴谋论的疯子”。这些团体声称，病毒将导致强制接种疫苗和无限制的监控。而现在这一切都已经发生了，Vice 并没有道歉，相反，Vice 正在帮助特鲁多抹黑和反击任何抱怨他的人。
+据自由欧洲电台（Radio Free Europe/RadioLiberty）报道，美国国务院发言人说：“俄罗斯对我国代理大使的行动是没有正当理由的，我们认为这是升级的一步，我们正在考虑回应。”
 
-这是共产独裁暴政的架构，它不仅仅发生在加拿大，它正在美国，甚至全世界发生。
+此举是在美国和北约继续批评克里姆林宫在俄乌边境集结13万多军队，称其为入侵该国的借口。俄罗斯一再拒绝，甚至嘲笑美国官员对可能入侵乌克兰发出的警报。
 
-新闻来源 [**https://thetruedefender.com/how-the-big-media-helped-dictator-justin-trudeau-destroy-canadian-democracy/ **](https://thetruedefender.com/how-the-big-media-helped-dictator-justin-trudeau-destroy-canadian-democracy/)
-
-秘翻新闻 文雀 编译报道
-
-发布 : 恩典
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMAGE-2021-12-13-113746.jpg)
-
+新闻来源：[Russia expels deputy chief of U.S. embassy in Moscow](https://www.upi.com/Top_News/World-News/2022/02/17/Bart-Gorman-expelled-US-embassy-Moscow/1971645114573/)
 
  
 

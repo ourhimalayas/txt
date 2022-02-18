@@ -2,10 +2,21 @@
 ---
 
 
-## 2/16/2022 文贵直播：中共在全球影响力、经济、内部政治回天乏术，无人敢跟中共做朋友；圣城香港揭穿了中共说中国人不配有民主自由的谎言
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2023601/)
+## 雅典娜时报-第208期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2023811/)
 
-秘密翻译组-北美组
+#### 《雅典娜时报》汇聚全球新闻时事
+
+#### 编辑：精灵蓝
+排版：小蚂蚁614
+![圖片](https://media.discordapp.net/attachments/825592691433668612/944114782292803684/155_8-2.png?width=812&amp;height=1209)![圖片](https://media.discordapp.net/attachments/825592691433668612/944114782716457000/155_7.png?width=812&amp;height=1209)
+*发布：陶子*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
