@@ -2,27 +2,57 @@
 ---
 
 
-## 乌政府指控亲俄分子炮轰幼儿园 致两教师受伤
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2022812/)
+## 五角大楼对与中共国的重大战争准备不足
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2023006/)
 
-**撰稿：日本东京方舟农场 Kevin wang**
+比尔·格茨: 高说，五角大楼对与 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的重大战争准备不足。海军准备不足，船员们疲惫不堪；F-35供应链困境；卫星通信容易被攻击。
 
-2月17 日，乌克兰政府指控俄罗斯支持的乌东分离主义分子炮击卢甘斯克地区，有炮弹击中了一所幼儿园，并造成2名老师脑震荡。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-189.png)（图片来自中央社）
-据《中央社》报道，当地市政人员和非政府组织Proliska的信息：攻击在当地上午9时发生，俄罗斯支持的乌东分离主义组织的部队炮击击中一所位于斯塔尼齐亚卢甘斯卡（Stanytsia Luhanska）幼儿园的音乐教室，学童当时在场但皆未受伤，有2名老师脑震荡。
 
-另有一名在卢甘斯克地区卡季伊夫卡镇的路透摄影记者表示有听见来自停火线方向的炮击声。
 
-报道称，基辅及其西方盟友认为莫斯科可能会利用乌东地区冲突事件作为入侵的理由。俄方则指控基辅试图让事态升级，以武力夺回分离主义者占据的领土。
+> GAO says the Pentagon is ill-prepared for major war with China. Navy readiness is down crews are fatigued; F-35 supply chain woes; vulnerable satellites cited [https://t.co/rBgFiSGUG9](https://t.co/rBgFiSGUG9)
+> — Bill Gertz (@BillGertz) [February 17, 2022](https://twitter.com/BillGertz/status/1494432267472551950?ref_src=twsrc%5Etfw)
 
-截至目前，此次炮击事件并未导致俄乌双方有任何升级的举措。
 
-参考链接：
-[https://www.cna.com.tw/news/aopl/202202170317.aspx](https://www.cna.com.tw/news/aopl/202202170317.aspx)
 
-素材采编：Kevin wang
-编辑：青城道姑
-发布：爱放飞
+众议员布莱恩·马斯特： 据报道，我们的军人在“觉醒”培训上花费了大约600万工时。而同时，塔利班接管了阿富汗，边境遭遇了200万非法移民，俄罗斯和 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 积极备战更进了一步。
+
+
+
+> It’s been reported that our servicemembers spent roughly 6 million man-hours on “woke” training. In that time, the Taliban took over Afghanistan, 2 million illegal immigrants were encountered at the border and Russia and China moved closer to war.[https://t.co/A52ik5OGHX](https://t.co/A52ik5OGHX)
+> — Rep. Brian Mast (@RepBrianMast) [February 18, 2022](https://twitter.com/RepBrianMast/status/1494476760469184516?ref_src=twsrc%5Etfw)
+
+
+
+参议员玛莎.布莱克本： 疫苗强制不起作用。 封城不起作用。 压制言论自由也不会行得通。
+
+
+
+> Mandates do not work. 
+> Lockdowns do not work. 
+> Silencing free speech will not work.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [February 17, 2022](https://twitter.com/MarshaBlackburn/status/1494374983929376773?ref_src=twsrc%5Etfw)
+
+
+
+参议员马可·卢比奥： 今天在乌克兰东部的战斗不是通常的小规模冲突，俄罗斯代理人今天发动的袭击比整个 1 月份还要多 今天标志着普京入侵前计划最后阶段之一的开始
+
+
+
+> The fighting today in eastern [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) is NOT the usual daily skirmishes,Russian proxies launched more attacks today than all of January
+> 
+> Today marks the beginning of one of the final phases of [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw)’s pre-invasion plan
+> — Marco Rubio (@marcorubio) [February 17, 2022](https://twitter.com/marcorubio/status/1494391486363938822?ref_src=twsrc%5Etfw)
+
+
+
+参议员约翰·肯尼迪： 俄罗斯并非孤军奋战。新的邪恶轴心包括中国和伊朗，他们正在利用乌克兰来测试拜登团队，看看美国是否是坚决严肃的。 【附肯尼迪参议员在福克斯的采访视频】
+
+
+
+> Russia is not acting alone. The new Axis of Evil includes China and Iran, and they’re using Ukraine to test the Biden admin to see whether or not the U.S. means business. [pic.twitter.com/sXmx8B24fj](https://t.co/sXmx8B24fj)
+> — John Kennedy (@SenJohnKennedy) [February 17, 2022](https://twitter.com/SenJohnKennedy/status/1494424175821443075?ref_src=twsrc%5Etfw)
+
+
 
  
 

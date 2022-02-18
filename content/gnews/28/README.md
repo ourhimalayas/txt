@@ -2,28 +2,30 @@
 ---
 
 
-## FBI组建专门负责加密货币的虚拟资产开发小组
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2022635/)
+## 台湾行政院推动修法防范北京偷盗核心技术
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2022793/)
 
-#### 撰稿：彩虹       
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Unknown-18.jpg)台湾行政院推动修法防范北京偷盗核心技术 网络图片
+据美国之音2月17日报道，为了防止核心技术外流，或中共国大陆通过经济间谍窃取情报，或核心技术人才遭北京利诱，台湾行政院17日通过国家安全法和条例修正草案，增订国家核心关键技术经济间谍罪，对包括半导体在内的台湾核心技术提供更多的保护。同时提高相关惩罚，对窃取或泄露核心技术者最高处12年有期徒刑，并处新台币1亿元以下罚金。此外，核心关键技术者如果需要前往中共国大陆，必须经过审查并获得许可才能成行。
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/16451478481.png)
-图片来源：Decrypt
+台湾虽然总体经济实力不如中共国大陆，但在特定的高科技领域却在全球独领风骚。台湾生产全世界最为先进的半导体芯片，不仅配备在顶尖的战机和其他武器装备上，而且也用于诸如手机这样的民用消费品中。与欧美一些国家一样，台湾也长期担心中共国大陆以经济间谍或其他手段窃取台湾的核心技术，复制台湾的成功前例，或削弱台湾的技术优势。
 
-《国会山报》2月17日报道，司法部周四宣布，FBI（联邦调查局）正在组建一个专门负责加密货币的新团队。
+高科技产业是台湾的经济命脉，近在咫尺的中共间谍以各种手段吸引台湾高科技人才，并且渗透到台湾的各行各业窃取关键的核心技术。台湾行政院通过的修法草案需要经过立法院的审理和通过，才能成为正式的法律。但是中共国间谍已经成为台湾，甚至全世界每一个发达国家的威胁，全世界都在防范和围堵盗窃手段高超的中共间谍。
 
-报道说，这个新的团队将与国家加密货币执法小组（National Cryptocurrency Enforcement Team）密切合作，检察官崔恩映（Eun Young Choi）将担任国家加密货币执法小组的第一任主任，他曾负责调查网络犯罪。
+新闻参考链接：[https://www.voachinese.com/a/taiwan-with-eye-on-china-to-boost-protection-for-its-semiconductor-secrets-20220217/6445871.html](https://www.voachinese.com/a/taiwan-with-eye-on-china-to-boost-protection-for-its-semiconductor-secrets-20220217/6445871.html)
 
-在一份声明中，崔恩映说，“自数字货币诞生以来，该部门一直处于调查和起诉涉及数字货币犯罪的最前沿。NCET（国家加密货币执法小组）将发挥关键作用，确保随着围绕数字资产技术性增长和发展，该部门反过来加快和扩大其努力，以打击各类罪犯的非法滥用。我很高兴能领导NCET令人难以置信和有才华的律师团队，并开始为该部门的这一重要优先事项工作。”
+* * *
 
-文章说，崔恩映周四开始全职工作。加密货币执法小组将专注于加密货币和数字资产的犯罪滥用所带来的挑战。该团队还将由整个部门的律师组成，包括具有加密货币、网络犯罪、洗钱和罚没背景的检察官。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-与之不同的是，FBI成立的这个负责加密货币的虚拟资产开发小组（Virtual Asset Exploitation Unit）新团队将由加密货币专家组成，为整个联邦调查局提供分析、支持和培训。该部门称，团队还将创新其加密货币工具，以预警未来威胁。
 
-**新闻来源**
+编辑：【英国伦敦喜庄园编辑部】
 
-[FBI to form new cryptocurrency unit](https://thehill.com/policy/technology/594763-fbi-to-form-cryptocurrency-unit-doj-taps-enforcement-team-director?rl=1)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

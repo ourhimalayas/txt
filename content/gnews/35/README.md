@@ -2,34 +2,31 @@
 ---
 
 
-## 有声|从马致远“断肠人在天涯”的悲哀到从神而来的喜悦
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2022496/)
+## 香港疫情失控，确诊病例爆炸性增长
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2022730/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-小时候，当我读到马致远的元曲《天净沙・秋思》时，被曲中的词深深地触动，“枯藤老树昏鸦，小桥流水人家，古道西风瘦马。夕阳西下，断肠人在天涯。” 句子中“枯”“老”“昏”“古道”“西风”“瘦”“夕阳”“断肠人”“天涯”，所有这些词都代表着疾病，老去，离别，寒冷，没有温暖，预示着死亡，没有希望。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Unknown-17.jpg)香港疫情失控，确诊病例爆炸性增长 网络图片
+据美国之音2月17日报道，香港17日新增Covid-19确诊病例6116例，再次大幅度超过前一天的4285例，新增死亡病例24人。香港今年1月以来累计确诊病例1.66万例，超过2020年和2021年两年病例的总和。
 
-作者来自北方，可能习惯于大漠草原，宽阔无拘束的生活，对于南方的小桥流水人家也不习惯，也可能是自己独自在异乡，没有亲人朋友，看到别人全家团圆，更让他思念自己的家乡与亲人，这种断肠人在天涯的悲伤该是多么的痛苦……
+病人数量大大超出医院的接纳能力，导致公立医院不堪重负。隔离设施已经达到满负荷，病床占用率已经超过90%。此外，香港的监狱也发现了疫情。
 
-所以我从小就是家乡观念很强，不太愿意离开自己的家乡，但是命运使然，我因家庭原因不得不离开家乡，来到北美。虽然很快适应了这里的生活，但还是很想念家乡，直到我认识了主耶稣基督，成为了神的儿女。有了对神的信仰后，我的心态也在慢慢改变。神是公义和慈爱的，当我们感受到神的爱，当我们有了永生的盼望，有了同是基督徒的弟兄姐妹的互相扶持，我们就无所畏惧，充满喜乐。以赛亚书9章2节： [“在黑暗中行走的百姓看见了大光；住在死荫之地的人有光照耀他们。”](https://wd.bible/isa.9.2.cunps)
+香港的学校、健身房、影院等公共场所已经关闭，许多政府和企业员工都在家上班。这样，就能缓解疫情吗？绝不可能。因为病毒的根源就是中共。不铲除中共，病毒会永远盘旋在香港，建再多的隔离设施，建再多的病房都不够用，只有消灭中共这个制造并释放病毒的源头，香港才可能停止病毒的扩散。
 
-回想过去，如果我自己没有信主，我的心态估计也会和马致远的心态一样，完全不知道神的创造的美好，而是顾影自怜，生活在痛苦之中。当有了对神的信仰后，我们会发现神的伟大，祂因着对人的爱和怜悯，差派独生爱子耶稣基督来到人间，因着我们人的罪，被定在十字架上，受死，埋葬，第三天从死里复活，让我们这些罪人因信而得救。这是多么美好的事情，感谢主！
-所以幸福与否，在于人们信不信圣父圣子圣灵的一念之差，愿更多的人回心转意，脱离老我，回到神的道上来，我们就充满平安喜乐。跟随主耶稣，奔走天路。
+新闻参考链接：[https://www.voachinese.com/a/hong-kong-s-covid-fight-intensifies-as-cases-multiply-by-60-times-20200217/6445883.html](https://www.voachinese.com/a/hong-kong-s-covid-fight-intensifies-as-cases-multiply-by-60-times-20200217/6445883.html)
 
-文字版原文：[从马致远“断肠人在天涯”的悲哀到从神而来的喜悦](https://gnews.org/zh-hans/2015662/)
+* * *
 
-音频处理：Fei797
-发稿：Fei797
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

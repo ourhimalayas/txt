@@ -2,29 +2,37 @@
 ---
 
 
-## 台湾行政院推动修法防范北京偷盗核心技术
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2022793/)
+## 谷爱凌获超4千万美元中共产品代言
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2022931/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Unknown-18.jpg)台湾行政院推动修法防范北京偷盗核心技术 网络图片
-据美国之音2月17日报道，为了防止核心技术外流，或中共国大陆通过经济间谍窃取情报，或核心技术人才遭北京利诱，台湾行政院17日通过国家安全法和条例修正草案，增订国家核心关键技术经济间谍罪，对包括半导体在内的台湾核心技术提供更多的保护。同时提高相关惩罚，对窃取或泄露核心技术者最高处12年有期徒刑，并处新台币1亿元以下罚金。此外，核心关键技术者如果需要前往中共国大陆，必须经过审查并获得许可才能成行。
+作者：台湾宝岛农场 – 寻文客
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+据布赖特巴特网2月16日报导，美国出生、却为中共国赢得冬奥会金牌、被中共捧为“冰雪公主”的谷爱凌，收获大量包括中国银行、中国移动、京东等大型企业的产品代言。据估算，通过产品代言，谷爱凌收入超过4200万美元。
 
-台湾虽然总体经济实力不如中共国大陆，但在特定的高科技领域却在全球独领风骚。台湾生产全世界最为先进的半导体芯片，不仅配备在顶尖的战机和其他武器装备上，而且也用于诸如手机这样的民用消费品中。与欧美一些国家一样，台湾也长期担心中共国大陆以经济间谍或其他手段窃取台湾的核心技术，复制台湾的成功前例，或削弱台湾的技术优势。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/6-26.jpg)
 
-高科技产业是台湾的经济命脉，近在咫尺的中共间谍以各种手段吸引台湾高科技人才，并且渗透到台湾的各行各业窃取关键的核心技术。台湾行政院通过的修法草案需要经过立法院的审理和通过，才能成为正式的法律。但是中共国间谍已经成为台湾，甚至全世界每一个发达国家的威胁，全世界都在防范和围堵盗窃手段高超的中共间谍。
+谷爱凌尽力为中共表演，做出为年轻女性和被压迫民族代言的姿态。而在中共对基督徒、穆斯林、法轮功等宗教国民残酷压迫，以及对西藏和香港的民主运动的镇压的事实面前，她却保持沉默。她还拒绝承认，中共对维吾尔族正在进行的种族灭绝和奴役。
 
-新闻参考链接：[https://www.voachinese.com/a/taiwan-with-eye-on-china-to-boost-protection-for-its-semiconductor-secrets-20220217/6445871.html](https://www.voachinese.com/a/taiwan-with-eye-on-china-to-boost-protection-for-its-semiconductor-secrets-20220217/6445871.html)
+此外，谷爱凌国籍造假事件，引发国际质疑和批评。郭文贵先生在直播中强调，谷爱凌的欺骗行为严重损害了海外华人的形象，或将助推海外排华情绪。
 
-* * *
+参考链接：
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- [Genocide Barbie Rakes in More than $40 Million in Chinese Product Endorsements](https://www.breitbart.com/sports/2022/02/16/genocide-barbie-rakes-in-more-than-40-million-in-chinese-product-endorsements/)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+总编：雪梨
+编辑：雪梨
+校正/发稿：海阔天空1
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
  
