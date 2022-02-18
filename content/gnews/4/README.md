@@ -2,31 +2,56 @@
 ---
 
 
-## 以色列即将取消，疫苗绿色通行证
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2023015/)
+## 给老师递纸的下一段是中国老师特别乡村老师都没好下场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2023078/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+G-TV视频链接：[https://gtv.org/video/id=620e56cb2403672096ab5831](https://gtv.org/video/id=620e56cb2403672096ab5831)
 
-整理/编辑：小鱼儿
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-02-下午10.11.59-13.png)
-当地时间2月18日，据俄罗斯电台（RT）报道，总理纳夫塔利·贝内特（Naftali Bennett）周四宣布，“今天早些时候，我与卫生部长和其他官员进行了讨论，我们将停止使用绿色通行证，”并补充说，“未来几天”将放宽更多限制。总理称，新冠病毒感染人数下降，是取消限制的理由。
+**摘要：**基本上在中国老师后来没什么好下场的,老了没人问,特别是乡村老师,谁管你呀是吧?就农村很少的一点点的工资,没多少人搭理你,也没人向着你老师
 
-在过去一年的大部分时间里，通行证系统要求以色列人，出示疫苗接种证明才能进入一长串室内公共场所，包括酒吧、酒店、餐馆、健身房甚至礼拜场所。
+**标签：**递纸巾,红庙村,新中国联邦,爆料革命,郭文贵先生,
 
-援引耶路撒冷邮报，虽然绿色通行证将在 3 月 1 日之前完全淘汰，但进入疗养院和其他高风险场所的人，仍需进行病毒检测。
+**正文：**
 
-政府取消疫苗通行证的决定，是在数千人涌入耶路撒冷，要求结束新冠限制几天后做出的。示威者称，这一行动为类似于最近几周，在加拿大看到的“自由车队” ，有些人甚至挥舞着加拿大国旗。
+**郭文贵先生：**我小时候记忆最深的事情，我老师夸我：“哎呀郭文贵你就是个天才，是吧？眼睛一扫答案就有了，用不完的劲儿，长得又帅，又有正义感，你简直就是侠客。”然后老师说：“你看我这今天要打煤球，就不能跟你说太多了。”“哎老师老师”我说：“我替你打煤球去。”是吧？这就是小新老师要干的事，你家要不要打煤球啊？是吧？除了递纸巾还要打煤球。
 
-参考新闻：[Israel scrapping Covid vaccine ‘green pass’](https://www.rt.com/news/549779-israel-ending-vaccine-green-pass/)
+后来，这个递纸巾后一段你们没听说吧？老师都有默契了是吧？老师自己不带纸了，看一眼我，我提前到了，是吧？老师还没脱裤子呢，我这纸巾都递过去了，是吧？然后老师等着人家大概“稀里哗啦”完了，人家纸巾一下，“哎？不够。郭文贵，这不够啊纸巾。”结果后来我就干坏事了，把很多同学的新书就拿去给递纸巾去了，结果学生打架，“老师，郭文贵把我的书给偷走了。”老师就笑。
 
-发布：tianzhihuan
+所以说这个递纸巾和被递纸巾的过程是老师和学生特殊沟通的方式，只要有了人性的老师，他的人生是不一样的。你们还不知道下一段。这个亨利跟我的年龄俺俩差不多，知道老师基本上在中国老师后来没什么好下场的，老了没人问，特别是乡村老师，老了谁管你呀是吧？亨利兄弟，你说共产党哪给你想着这个那个的，就农村很少的一点点的那个所谓的工资，基本上有本事的都跳槽走了，没本事你留在这儿，没多少人搭理你，也没人向着你老师。
 
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+像在我山东老家红庙那个老师，就是最好的一个女老师，最漂亮的老师，你很难想象嫁给了当地的副镇长的一个孩子，那个孩子有点痴呆，你想这个女老师的下场可想而之了。
+
+后来这个老师就乱搞了，是人就能跟她睡觉，后来副镇长老了死了蹬腿了，喝酒喝死了，就在我们老家，你现在可以上网查红庙，山东省莘县舍利寺乡红庙村，到东红庙、西红庙村之间那个过口上搭了一个草棚子，就在那儿卖什么，卖羊头肉、下水啊、炖熟肉的，到现在都干这事儿。七哥都到这儿去了，都建新中国联邦了。那她惨了，她没有钱，老公又傻，可依靠的副镇长的官爷爷已经走了，她就是什么人都跟她睡，经常的，谁都可以打她。
+
+小新老师，那不是说当老师递纸巾幸福，你年轻时候给你递纸巾你幸福，给你递纸巾的人已经到美国建立新中国联邦去了，你还在那村里边，是吧？嫁了一个副镇长的孩子，还是傻子，在风餐露宿的交叉口上卖熟肉，后来好像是她老公也死了，也不知道怎么样，很惨很惨的。
+
+字幕来源：[2022月2日6日 《文贵大直播》全文字版](https://gnews.org/zh-hans/1971450/)
+
+编辑整理：Davis；
+
+字幕文件制作：知津；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ)、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A)、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/)；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

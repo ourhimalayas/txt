@@ -2,57 +2,42 @@
 ---
 
 
-## 五角大楼对与中共国的重大战争准备不足
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2023006/)
+## 大直播后记：GTV是王与放下执着
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2023029/)
 
-比尔·格茨: 高说，五角大楼对与 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的重大战争准备不足。海军准备不足，船员们疲惫不堪；F-35供应链困境；卫星通信容易被攻击。
+#### 整理：Popeye、铁血丹心
+编辑：Mttfly
+![圖片](https://media.discordapp.net/attachments/906139544930361395/944075105250709524/f9718e79a6373fb9.jpg?width=2160&amp;height=1210)
+**GTV是王！战友们要去投资GTV，千万别落下！**
 
+七哥绝不能有任何个人私心，对于我个人破产大家要看到一个最根本的问题：如果我个人破产造假，如果我拥喜币或者股份，那就等于“作死”。战友们是最大股东。话又说回来，咱们战友们一定要懂得你们的价值，就像我在一年前告诉你们“千万别放弃喜币”！你们有谁真心听进去了？你能想到今天会涨到450倍吗？所以大家一定要去投资GTV的股份，千万别落下！
 
+你知道对于GTV的大股东和投资人而言，最好事情是你们战友都别投，他们但凡有一点头脑都会懂得这个道理。他们让你们战友投干嘛？你们加在一起才是4.5亿美金，这才是几个币的钱啊！他们凭什么让战友占20%-30%（股份），而且你除占20%-30%的GTV股份，你还占盖特、Gclub还有整个喜联储的股份。他们宁愿告诉你：你别投了，我给你十倍回报。
 
-> GAO says the Pentagon is ill-prepared for major war with China. Navy readiness is down crews are fatigued; F-35 supply chain woes; vulnerable satellites cited [https://t.co/rBgFiSGUG9](https://t.co/rBgFiSGUG9)
-> — Bill Gertz (@BillGertz) [February 17, 2022](https://twitter.com/BillGertz/status/1494432267472551950?ref_src=twsrc%5Etfw)
+但是我们现在要做到的是在任何情况下，都得让战友们投进去，这是我们的权益。我们跟你们这些大股东一起熬2-3年了，你必须得让我们投（资）。这就像谈恋爱一样，老娘跟你谈2-3年了，青春已经过2-3年了，你不能说现在你当富豪了、当官了，你让我去我改嫁，那不行！不管你给我多少钱，我也得必须跟你结婚了，这是因为我已经付出了，就这么简单，咱们必须要拿到这个东西。
 
+但是作为GTV的投资者，你但凡有一点儿逻辑，你去想想你要是能拿到GTV的的股份，这将来会值多少钱？战友们会在几天之后看到新的公告，你们看到公告时候会吓死你们！等看到公告的时候，战友们就明白我说的道理了，甭说卖喜币了，“卖血”都值了！但是千万别卖血啊，这是开玩笑啊。
 
+七哥谈失去与得到，大家可以看到七哥现在的状态，我从来没有像现在感觉这么舒服过，这么全身心的轻松愉悦，特别是在我签署个人破产文件之后，我思考为什么要有这么多钱，用这些钱干啥？你们看到了千万别死在钱上！更不应死在名和权力上！这些东西都不属于你，早晚你都得放下。
 
-众议员布莱恩·马斯特： 据报道，我们的军人在“觉醒”培训上花费了大约600万工时。而同时，塔利班接管了阿富汗，边境遭遇了200万非法移民，俄罗斯和 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 积极备战更进了一步。
+有些战友说，七哥咱们把那十八楼的房子拿回来吧，我说放下就是拥有，放下将拥有更多！十八楼现在卖四千五百万，我当时八千多万现金买回来的。但是这可以换来无数个战友们拥有八千万！你觉得我执着地拥有那个八千万的房子好呢，还是让无数个战友们有八千万好呢？！
 
+现在我拥有了天下所有的兄弟姐妹的心和信任，七哥放下太多了。十八楼、盘古、裕达，你看七哥少一块肉了吗？！你们不了解盘古和裕达，那是我的生命，我的付出，我的劳动。我全家人过去几十年的成长，我在那里的爱情，我的孩子的成长，我的家人的付出，家人的生生死死，哪一样不比“十八楼”大？！
 
+但是你要真正地了解到，你要灭共！你能活着，这就是上天给你的福分和恩赐了！你还没有打疫苗，你还有喜币……，这天下不都是咱们的了嘛？有太阳就有黑暗，从地球一百万亿年前碰撞之后产生出月亮，形成了磁场和引力之后，这个世界便有黑有白，有冷有热，有生有死，有失有得。人生最大的哲学和快乐就是“放得下”，享受失去和得到，真正地破掉内心的执着！
 
-> It’s been reported that our servicemembers spent roughly 6 million man-hours on “woke” training. In that time, the Taliban took over Afghanistan, 2 million illegal immigrants were encountered at the border and Russia and China moved closer to war.[https://t.co/A52ik5OGHX](https://t.co/A52ik5OGHX)
-> — Rep. Brian Mast (@RepBrianMast) [February 18, 2022](https://twitter.com/RepBrianMast/status/1494476760469184516?ref_src=twsrc%5Etfw)
+人生就这三万多天，你执着于那个十八楼干啥呢？无非是心中的一个执念而已，为什么要为了一个执念而让自己痛苦呢？放下就是最大的拥有，放下就是快乐，这就是我爱台湾的原因，因为台湾有佛学，台湾有人心，台湾善良！台湾人懂得多给你一些，因为它有佛教有信仰。不要为了失去而痛苦，你只能为你得到的太多而担心；你不要为失去而痛苦，你才真正的修行成功了！永远不要忘了，我们的一切的一切都是为了灭掉共产党，这叫“得到”，为了这个目标什么都可以失去，没有什么不可以失去的！
 
+资料来源：[2022年2月16日 文贵大直播（EST 11:00-11:10）](https://gtv.org/video/id=620cf40c432ae869226d8db5)
 
+*发布：陶子*
 
-参议员玛莎.布莱克本： 疫苗强制不起作用。 封城不起作用。 压制言论自由也不会行得通。
-
-
-
-> Mandates do not work. 
-> Lockdowns do not work. 
-> Silencing free speech will not work.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [February 17, 2022](https://twitter.com/MarshaBlackburn/status/1494374983929376773?ref_src=twsrc%5Etfw)
-
-
-
-参议员马可·卢比奥： 今天在乌克兰东部的战斗不是通常的小规模冲突，俄罗斯代理人今天发动的袭击比整个 1 月份还要多 今天标志着普京入侵前计划最后阶段之一的开始
-
-
-
-> The fighting today in eastern [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) is NOT the usual daily skirmishes,Russian proxies launched more attacks today than all of January
-> 
-> Today marks the beginning of one of the final phases of [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw)’s pre-invasion plan
-> — Marco Rubio (@marcorubio) [February 17, 2022](https://twitter.com/marcorubio/status/1494391486363938822?ref_src=twsrc%5Etfw)
-
-
-
-参议员约翰·肯尼迪： 俄罗斯并非孤军奋战。新的邪恶轴心包括中国和伊朗，他们正在利用乌克兰来测试拜登团队，看看美国是否是坚决严肃的。 【附肯尼迪参议员在福克斯的采访视频】
-
-
-
-> Russia is not acting alone. The new Axis of Evil includes China and Iran, and they’re using Ukraine to test the Biden admin to see whether or not the U.S. means business. [pic.twitter.com/sXmx8B24fj](https://t.co/sXmx8B24fj)
-> — John Kennedy (@SenJohnKennedy) [February 17, 2022](https://twitter.com/SenJohnKennedy/status/1494424175821443075?ref_src=twsrc%5Etfw)
-
-
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

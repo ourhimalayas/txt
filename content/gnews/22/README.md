@@ -2,30 +2,32 @@
 ---
 
 
-## 【秘翻在线】加拿大自由车队两名主要组织者已在渥太华被捕
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2022849/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年2月17日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2022903/)
 
-**撰稿：Grace**
+作者：香草山翻译部
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-17-at-9.46.30-PM.jpeg)图片来源：Fox news 
-据加拿大广播公司新闻（CBC） 2月17日报道，加拿大的自由车队的两名主要组织者塔玛拉·利奇（Tamara Lich）和克里斯·巴伯9 Chris Barber）已在渥太华被捕。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO.jpg)
 
-据报道，利奇在周四晚上被捕，巴伯在当天早些时候被渥太华警方逮捕。两人都仍被警方拘留，预计将受到刑事指控。
 
-利奇周四早些时候向加拿大媒体证实，当来自萨斯喀彻温省（Saskatchewan）的卡车司机巴伯被逮捕并被带离时，她就在现场。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-14.png)
+校对：Stay文苑
 
-利奇说，她对自己要入狱的事实心有不甘，并补充说她的个人银行账户已被冻结。
+编辑：Stay文苑
 
-报道称，他们是周四被逮捕的几个人之一。在离国会山几个街区的地方，有人看到巴伯被戴上手铐，夹在两名警察中间。
+发稿：Stay文苑
 
-据报道，他们是律师保罗·钱普（Paul Champ）代表他的客户21岁的公务员Zexi Li向安大略省高级法院（Ontario Superior Court of Justice）提起的拟议集体诉讼中的三名抗议活动组织者中的两人。
+新闻：[https://gtv.org/broadcast/watch/620ef789b706176dd78c26a2](https://gtv.org/broadcast/watch/620ef789b706176dd78c26a2)
+访谈：[https://gtv.org/broadcast/watch/620eff9cb706176dd78c2d28](https://gtv.org/broadcast/watch/620eff9cb706176dd78c2d28)
 
-该诉讼还提到了同为车队组织者的本杰明·迪克特（Benjamin Dichter）。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-1.png)
 
-据报道，当被问及巴伯的被捕时，渥太华警方表示，在提出指控之前，他们不会确认或否认对人的调查。
-
-**新闻来源：****[Convoy protest organizers Tamara Lich, Chris Barber arrested in Ottawa](https://www.cbc.ca/news/canada/ottawa/tamara-lich-chris-barber-arrested-ottawa-1.6355960)**
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

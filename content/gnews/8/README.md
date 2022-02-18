@@ -2,35 +2,46 @@
 ---
 
 
-## 因中共未能兑现贸易承诺 美国将腾讯、阿里巴巴等列入“恶名市场”名单
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2022959/)
+## 中共国民要求彻查锁链女事件
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2023025/)
 
-翻译：灭共文明
+撰稿：纽约香草山 -云豹
+![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-8.png)
+2月15日，北京大学校友及学生一百多人，联名向中共党中央及国务院发表公开信，要求彻查徐州锁链女案。该公开信提出4项主张，要求确认受虐女子的真实身份、调查20余年来忽视此受虐事件涉嫌渎职违法的相关官员、全面清查中共各地的人口拐卖案件并解救受害人、修订中共《刑法》，严惩拐卖妇女及儿童的行为。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/9-16.jpg)
+除北京大学外，清华大学、中国人民大学、浙江大学、四川大学等学校，也对此事件展开联署。 此外，湖南岳阳的民众手举标语，要求彻查事件真相；民间艺术家们也纷纷以诗歌、音乐、绘画等艺术形式，宣扬“断链”行动，引发社会的关注。
 
-编辑与校对：冰糖葫芦喵、灭共文明
+锁链女事件自1月28日被网友揭露后，中共官方说法，从初始的否认，到改为将受害人塑造成精神病患者，最后不得不承认有人口拐卖的事实，并拘捕相关涉案人。而后又被揭发，官方提供的身份涉嫌故意造假。
 
-《路透社》2月17日报道，**周四，美国贸易代表办公室表示，中共国腾讯控股有限公和阿里巴巴集团运营的电子商务网站，已被列入美国政府最新公布的“恶名市场”名单。**
+2月17日，江苏省委省政府通报成立“丰县生育八孩女子”事件调查组，似乎摆出一幅彻查此事的姿态。但在中共统治下，中共官员欺上瞒下已成常态。此次锁链女事件激起了民众积压已久的愤怒，这种民怨，或将成为击倒中共的燎原怒火。
 
-美国表示，**中共未能兑现在川普政府签署的“第一阶段”贸易协议中的一些承诺。**多年来，美国和中共国在关税、技术和知识产权等问题上一直处于贸易紧张状态。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/腾讯1.jpg)图片来源：路透社。
-报道指出，**该名单列出了42个在线市场和35个实体市场，它们为大量假冒商标或盗版商品销售提供便利。**
+[新闻连接]：
 
-美国贸易代表办公室在一份声明中表示:**“这包括首次确定全球速卖通(AliExpress)和微信电子商务生态系统，这两个位于中共国的重要在线市场助长了大量商标造假行为。”**
+[徐州8孩案延燒 中國民間群起要求徹查真相](https://www.cna.com.tw/news/acn/202202160360.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-美国贸易代表办公室说，总部设在中共国的网上市场**百度网盘、DHGate、拼多多和淘宝**，以及位于中共国境内的9个“以制造、分销和销售假冒商品而闻名”的实体市场**也在名单之列。**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/阿里express.jpg)在莫斯科的一家购物中心“全球速卖通”实体零售店（图片来源：彭博社）
-阿里巴巴表示，将继续与政府机构合作，解决各平台在知识产权保护方面的担忧。而腾讯则表示，它强烈反对这一决定，并“致力于合作解决这一问题”。
+[徐州8孩案證實涉人口拐賣 官方刑事拘留父親董志民等3人](https://www.cna.com.tw/news/acn/202202100387.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-报道称，**美国服装和鞋类协会**(American Apparel and Footwear Association, AAFA)和**美国电影协会**(Motion Picture Association)**在内的行业组织对美国贸易代表办公室发布的报告表示欢迎。**
+[徐州8孩案大轉折 小花梅行蹤成謎並非8孩媽](https://www.cna.com.tw/news/acn/202202150379.aspx?topic=3778?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-周三，美国贸易代表办公室发布的另一份报告中表示，**美国需要寻求新的战略，更新国内贸易工具，以应对中共所谓的”国家主导的非市场政策和做法”。**
-
-新闻链接：
-
-[U.S. adds e-commerce sites operated by Tencent, Alibaba to ‘notorious markets’ list | Reuters](https://www.reuters.com/technology/us-adds-e-commerce-sites-operated-by-tencent-alibaba-notorious-markets-list-2022-02-17/)
+[江苏成立“丰县生育八孩女子”事件调查组](https://www.163.com/dy/article/H0DN5TGN0512DFT3.html)
 
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-3.png)
+
+编辑：飞虹
+
+总编：雪梨
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-8.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

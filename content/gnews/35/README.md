@@ -2,39 +2,37 @@
 ---
 
 
-## 有声|美通过《2022年美国竞争法》，防止中共企业垄断
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2022734/)
+## 测试结果显示疫苗对卵巢和睾丸产生损害
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2022792/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**简评：**
 
-![](https://gdb.voanews.com/09dd0000-0a00-0242-f776-08d9e826901a_w1023_r1_s.png)
-近年来，中共积极游说国际电信联盟（ITU）、国际电工委员会（IEC）等机构，让中共的企业获得竞争优势。面对此冲击，美在北京冬奥开幕当天通过《2022年美国竞争法》，旨在帮助美半导体制造业，抵消中共扭曲市场的贸易行为，包括加强反倾销规则等。
+辉瑞制药违反常规，对雇员隐瞒疫苗成份。过去15年来，辉瑞一直在研究刺突蛋白和脂质纳米颗粒的炎症性损害。公开的研究显示，所有测试的疫苗种类都对卵巢和睾丸产生损害。不同批次的产品没有正确标签，只是用A-B-C-D来标注，还需要进一步调查真相。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/02-2.png)
+[**GETTR视频链接**](https://gettr.com/post/psu17d7e3a)
 
-美国也和日本连手建立6G无人化技术的国际标准，防止中共企业垄断，并强化尖端技术保护，防范中俄经济间谍战。
+[**GTV视频链接**](https://gtv.org/video/id=61ffd768585ecc15d73e1aeb)
 
-欧盟主管竞争事务的执委维斯塔哲（Margrethe Vestager）表示，中共近期重新定义网络的基本标准，让中共对国有网络的使用者有更大的控制权，因此，欧盟委员会提出对行业标准系统实施改革，藉以避免欧洲数码产业等被被中共主导。
+**视频字幕：**
 
-近日，北京大学在一份报告中罕见承认，美中科技脱钩后，中共无论在技术层面还是产业层面都明显落后，中共的芯片制造、人工智能及信息科技产业更将面临严重的发展瓶颈。该报告在墙内被火速删除。
+**主持人**：维特医生，这有来自艾普尔.摩丝关于辉瑞制药的爆料，难以置信的是他们竟然连雇员都保密疫苗的成份，而不是像他们常规做法，标注成份。他们用A-B-C-D包来标注，这违反了他们以前的任何规则。基于你的经验，维特医生，他们为什么这么做？
 
-文字版原文：[美通过《2022年美国竞争法》，防止中共企业垄断](https://gnews.org/zh-hans/2022413/)
+**维特医生**：我认为辉瑞对这些成份的掩盖，比你们认知的更加震惊。他们在过去15年来，一直在研究刺突蛋白和脂质纳米颗粒的炎症性损害，并且继续开展这项工作。我们公开的一些研究显示，所有测试的疫苗种类都对卵巢和睾丸产生损害。这正是目前正在发生的部分情况。事实上，不同批次的产品没有正确标签。不同批次的不良事件存在差异，这一事实也需要进一步调查。我很感谢艾普尔和你还有约翰，正在推进这项工作。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+*字幕：free20200604 | 听写：云岭 | 翻译：Blue |PR：Roberts｜简评/文字整理/编辑：胖丁 | Page：我是球大哥*
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+* * *
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+编辑：【英国伦敦喜庄园编辑部】
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 
  
 
