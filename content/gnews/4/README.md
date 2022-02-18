@@ -2,31 +2,28 @@
 ---
 
 
-## 今日盖特大V推荐 — 塞巴斯蒂安·戈尔卡博士（Sebastian Gorka DrG）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2024643/)
+## 自今年年初起，意大利新冠疫苗注射量下跌75%以上，达到历史最低水平。
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2024675/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/028.png)
-盖特链接：[**https://gettr.com/user/sebgorka**](https://gettr.com/user/sebgorka)
+#### 翻译                   意大利达芬奇农场                    小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-17-alle-23.06.04.png)图片来源：eventiavversinews.it
+意大利新冠疫苗注射中心空荡荡， 无人再信。
 
-塞巴斯蒂安·戈尔卡博士自述：
+意大利疫苗注射宣传失败了。据《24小时太阳报》的最新数据，有57.000.000意大利人是可接种疫苗的，（ 今天只有从0岁到4岁的孩子尚不可接种疫苗， 其数量是2.216.510，而2021年意大利总人口为59.236.213。有48.800.000人接种了两剂疫苗（有8.200.000 人没有接种），36.400.000人接种了第三针。现在大概有12.400.000人很可能是“后悔打疫苗”了， 他们在打了前两针疫苗之后，不会打第三针。
 
-国防部总统任命, #AMERICAFIRST & The Gorka Reality Check主持人， SebGorka.com，购买《美国灵魂之战》 https://amzn.to/3gfdPcJ
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1706.png)图片来源：网络
-塞巴斯蒂安·戈尔卡博士简介：
+新冠疫苗接种前景暗淡。显然无人再相信政府——政府违宪并滥用紧急法令，人们不再被吓倒。
 
-塞贝斯蒂安·戈尔卡（生于 1970 年 10 月 22 日）是英国出生的匈牙利裔美国军事和情报分析员，反恐专家。
+年初（1月3日）共注射了628.410针，1月11日达到了高峰，达到725.424针。
 
-他从2017年1月到2017年8月25日在美国总统唐纳德·川普的政府中担任总统副助理。 从 2017 年到 2019 年，他是福克斯新闻的撰稿人。
+这些天新冠疫苗注射量达到历史最低点。全意大利2月15日的注射量是180.020针，其中第一针的数量只有11.735（ 绝对负面记录），第二针和第三针的数量分别是48.312，119.973.
 
-2020 年 7 月，白宫宣布川普将任命戈尔卡为由 14 名成员组成的国家安全教育委员会的成员。该委员会通过向学生颁发奖学金和研究金以及向学院和大学提供助学金来解决“国家对关键语言和地区专家的需求。”
+儿童疫苗注射量由从1月11日的49.157针下降到2月15日的19.017针，下降了60%。
 
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 — 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+意大利25.5%的5-11岁的儿童注射了两针辉瑞疫苗，10.8%的儿童预定了第二针。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+原文链接：[https://www.eventiavversinews.it/hub-deserti-minimo-storico-delle-vaccinazioni-nessuno-si-](https://www.eventiavversinews.it/hub-deserti-minimo-storico-delle-vaccinazioni-nessuno-si-fida-piu-da-inizio-anno-inoculazioni-crollate-oltre-il-75/)[fida-piu-da-inizio-anno-inoculazioni-crollate-oltre-il-75/](https://www.eventiavversinews.it/hub-deserti-minimo-storico-delle-vaccinazioni-nessuno-si-fida-piu-da-inizio-anno-inoculazioni-crollate-oltre-il-75/)
+
+编辑、上传： Xiao  baige
 
  
 

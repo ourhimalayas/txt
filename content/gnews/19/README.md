@@ -2,24 +2,149 @@
 ---
 
 
-## 樱花FM┃谈古论今 : 只要愚昧，每天都是愚人节！
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2024503/)
+## 周日凌晨，一名 35 岁的女子在纽约唐人街的公寓内被谋杀
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2024541/)
 
-音频：东京樱花团/战友520
-![](https://lh6.googleusercontent.com/94W7q121su1iFXRW_e9eKSInPVJWUncmoi2W6bcD8W-JlcEXW6Vr5dc69TdT97R3KpwoXDkVxRvRGLO00ovzP4YtX_K4Q3_jVvEbrO_WTYWjDJDW-64Fi7cBVdM6R7kGpaUTZzmE)
-如今，我们正身处于新冠病毒生物战中，传统战争的攻击方和被攻击方以及发动攻击的时间点地点和攻击手段是清清楚楚明明白白的，而这个时代战争版本升级换代了，叫做超限战了。战争的发动者初看是一家，再看是多家联合作恶，再往下看就看不清楚了；被攻击的目标也不是单一的，到底是冲着某个人种还是某个国或是某个年龄段谁也说不清；战争开打的时间初看是两年前，再看才知道更久远；战争何时能结束，既看不到开始也看不到终结；战争手段是什么，除了病毒和疫苗还配合有金融战、贸易战还有造谣战，无论什么损招阴招都用得毫无底线……，你只能感觉这个世界除了邪恶就是被邪恶戏弄，几乎除了骗子就是被骗——天天都是愚人节！
+Jason Perry (NTD News reporter)
+杰森·佩里（新唐人新闻记者）
 
-以宏观视角看人类社会：往日里所有的科学家都神通广大，无所不知无所不晓，可新冠病毒一出现立刻集体变成弱智——明明是人造的病毒却认不得也识不出了。不论什么国体政体的政府治国者们瞬间集体变成病猫，这攻击性的病毒哪里来的不敢提也不敢问，但强制国民打毒疫苗的时候可就凶相毕露如猛虎了。全球所有的媒体，此刻意识上不分左派右派，高度统一成一个腔调，就连自由世界的老大美国也都被中共大外宣统一了口径。羟氯喹、伊维菌素、青蒿素明明能轻而易举解病毒的毒，却被所有的权力权威者们栽赃为副作用严重禁止使用。疫苗明明不但有毒而且还严重违法却在疯狂推行，一针一针再一针，按照季节更新加强下去的势头。更可悲的是几乎所有的凡夫，争先恐后接受毒疫苗，殊不知自己已经被人塞进“病毒法劣等人种淘汰筛”里过筛子去了。悲哉，这个世界一眼望去，除了作恶犯罪的就是帮凶犯罪的就是愚昧无知的……，清醒的比例有多少？
+Christina Yuna Lee was senior digital producer from music making companies Splice
+克里斯蒂娜·尤娜·李是音乐制作公司Splice的高级数字制作人
 
-具体微观看身边，可以说绝大多数凡夫愚夫都昏昏沌沌在梦中，天天看着身边的众生上演着活脱脱的愚人节、活生生的丑闹剧。一老板朋友，三十多员工中3人奥米克戎阳性，都是打了两针的，老板自己打了三针是阴性，于是该老板更觉得自己之所以事业成功就是比别人聪明，所以坚决要求员工全部补齐3针。一位退了休的药物研究研究员朋友，很认真地说我打了三针，即便感染了也可以避免重症化，心满意足的心态。一位一流大学的微生物医学博士后导师朋友，对疫苗深信不疑，积极三针打齐。一位亲属，为自己免费打了3针占得便宜而洋洋得意。一位学药出身的老板，自己专门挑的就是莫得纳，并坚定地为基因疫苗作辩护“怀疑什么，实际上已经有很多药物就是基因药物，全世界用了多少年了，你们不是药物专业的不知道而已！”一位高科技公司高层朋友郑重认真地说，外国的疫苗不可靠，副作用高发，还是国产疫苗好，为生为强国人而感到庆幸。例子举不尽，愚人何其多？！
+very early Sunday morning while she was walking home in Manhattan’s Chinatown
+周日清晨，她在曼哈顿唐人街步行回家时
 
-感恩上天派来文贵先生“一灯能除千年暗，一智能灭万年愚”，给有缘众生开启了心智，应了禅宗六祖慧能的经句“悟则刹那间，迷经千百劫”。悟者，看这个世界，看身边的芸芸众生，这个世界原本就是个愚人世界，天天过的都是愚人节！迷者，那些被打了毒针还满心欢喜的芸芸众生，今生今世还能开智吗？Elon Musk埃隆马斯克说了一句名言“我讨厌人们把教育和智力混为一谈，你可以拥有大学学历但仍然是个白痴”，的确，莫把知识和智慧划等号！所谓知识分子的专业知识其实不过是和木匠泥瓦匠一样，掌握的是技能，那算不上是智慧！没有智慧就是愚昧，只要愚昧，天天都是愚人节！
+Lee was followed all the way to her apartment on the sixth floor of this building
+被嫌疑人一直跟踪到她在这栋楼六楼的公寓
 
-文字版原文：[谈古论今 | 只要愚昧，每天都是愚人节！](https://gnews.org/zh-hans/1958479/)
+At around 4:20am, Police responded to a 911 call and arrived at the scene
+凌晨4时20分左右，警方接到911报警，赶到现场
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+The suspected killer first tried to flee down the fire escape
+凶手嫌疑人首先试图从防火梯逃走
+
+then barricaded himself inside the apartment where he was later arrested
+然后把自己关在公寓里，后来被捕
+
+Police found Lee stabbed to death in the bathtub of her apartment
+警方发现李在她公寓的浴缸里被刺死
+
+Concerned Citizens of East Broadway held a vigil for Lee
+东百老汇的关心的公民为李守夜
+
+and called on New York City’s elected officials to help Chinatown
+并呼吁纽约市民选官员帮助唐人街
+
+Enough is enough, enough is enough, enough is enough…
+够了，够了，够了，够了……
+
+Some members of the community are upset about the number of homeless shelters in Chinatown
+一些社区成员对唐人街无家可归者收容所的数量感到不安
+
+Male
+男士
+
+Chinatown already have five existing shelters
+唐人街已经有五个现有的避难所
+
+and the city is pulling three more in our neighborhood
+这座城市在我们附近又增加了三个
+
+Jason Perry
+杰森·佩里
+
+Some women at the rally said the senseless murder of a young woman really touches close to home
+集会上的一些妇女说，一名年轻女子的非蓄意谋杀真的离家很近
+
+So why did you come down here today?
+那你今天为什么来这里？
+
+Female 1
+女士1
+
+Because I read the news My heart broke and I just felt compelled to come
+因为我看了新闻我的心碎了，我只是觉得有必要来
+
+The woman is of a similar age
+那位女性的年龄与我相仿
+
+And what happened to her is something that haunts my dreams
+而发生在她身上的事情让我魂牵梦绕
+
+My reality theoretically all the time
+我的理论上现实一直都是
+
+I fear all the time. I don’t feel safe
+我无时无刻不在害怕，我没有安全感
+
+Female 2
+女士2
+
+I’m scared to take the subway
+我害怕坐地铁
+
+I’m scared to walk down the street at night by myself
+我害怕一个人在晚上走在街上
+
+How is it that in my own home and my own community that I can’t feel safe anymore?
+在我自己的家和我自己的社区里，我怎么会不再感到安全？
+
+This has happened over the last two years really we don’t feel safe
+这发生在过去两年里，我们真的不安全
+
+and I think about my daughters and they’re
+我想我的女儿们，她们是
+
+you know, I’m raising them here and I’m scared for them and their safety
+你知道，我在这里抚养他们，我为他们和他们的安全感到害怕
+
+Jason Perry
+杰森·佩里
+
+The suspect a 25 year old black male has now been officially charged with burglary and murder
+嫌疑人是一名25岁的黑人男性现已被正式指控犯有入室盗窃和谋杀罪
+
+As you can see this area is taped off
+如你所见，该区域已被放上了封条
+
+The victim walked through this doorway here of six flights of stairs to her home where she was murdered
+受害者穿过这六层楼梯的门口，来到她被谋杀的家
+
+NYPD has apprehended the suspect and the murder is under investigation
+纽约警察局已逮捕嫌疑人，谋杀案正在调查中
+
+Security experts say that if you do have to walk at night
+安全专家说，如果你必须在晚上走路
+
+try to walk in groups and stay in well lit areas
+尝试成群行走并留在光线充足的地方
+
+And also be aware of your surroundings
+还要注意周围的环境
+
+Jason Perry NTD News New York
+杰森·佩里，新唐人新闻，纽约
+
+* * *
+
+Date:02/15/2022
+原视频标题:A 35-year-old woman was murdered early Sunday morning inside her apartment in New York’s Chinatown
+周日凌晨，一名 35 岁的女子在纽约唐人街的公寓内被谋杀
+原视频日期：2022/02/15
+原视频链接**[https://twitter.com/jasonperryntd/status/1493377624244162569?s=24](https://twitter.com/jasonperryntd/status/1493377624244162569?s=24)**
+任务编号：3758
+视频时间段 : 0:00-2:16
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 文新
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

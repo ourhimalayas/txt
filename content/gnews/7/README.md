@@ -2,33 +2,31 @@
 ---
 
 
-## 美国在联合国警告俄罗斯计划在“未来几天”袭击乌克兰
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2024609/)
+## 今日盖特大V推荐 — 塞巴斯蒂安·戈尔卡博士（Sebastian Gorka DrG）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2024643/)
 
-信息来源： 路透社
+![](https://assets.gnews.org/wp-content/uploads/2022/02/028.png)
+盖特链接：[**https://gettr.com/user/sebgorka**](https://gettr.com/user/sebgorka)
 
-翻译/整理： 意大利罗马达芬奇农场 Shuizhuyu
+塞巴斯蒂安·戈尔卡博士自述：
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/EAH2GLUAPJJ7PCF3L2W2RWT62A.jpg)
+国防部总统任命, #AMERICAFIRST & The Gorka Reality Check主持人， SebGorka.com，购买《美国灵魂之战》 https://amzn.to/3gfdPcJ
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1706.png)图片来源：网络
+塞巴斯蒂安·戈尔卡博士简介：
 
+塞贝斯蒂安·戈尔卡（生于 1970 年 10 月 22 日）是英国出生的匈牙利裔美国军事和情报分析员，反恐专家。
 
-图片来源： 路透社
+他从2017年1月到2017年8月25日在美国总统唐纳德·川普的政府中担任总统副助理。 从 2017 年到 2019 年，他是福克斯新闻的撰稿人。
 
-周四，美国国务卿安东尼·布林肯在联合国安理会上阐述了华盛顿认为俄罗斯可能寻求入侵乌克兰的方式，并警告称莫斯科正准备在“未来几天”袭击其邻国。
+2020 年 7 月，白宫宣布川普将任命戈尔卡为由 14 名成员组成的国家安全教育委员会的成员。该委员会通过向学生颁发奖学金和研究金以及向学院和大学提供助学金来解决“国家对关键语言和地区专家的需求。”
 
-正如其他美国官员在过去两周所做的那样，布林肯指责俄罗斯计划为袭击乌克兰制造借口，其中可能包括“使用化学武器进行虚假甚至真实的袭击”，并表示：“俄罗斯可能将这一事件描述为种族清洗或种族灭绝。”
+编撰：洛杉矶盘古农场 — 心照
+校审：洛杉矶盘古农场 — 郭友(文苏)
+发布：洛杉矶盘古农场 — 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-俄罗斯副外长谢尔盖·维尔希宁拒绝了布林肯的声明，这是进一步加剧紧张局势的“令人遗憾”和“危险”的举动。他说，俄罗斯军队仍在俄罗斯领土上，一些部队已经在演习结束后返回基地。
-
-布林肯敦促莫斯科毫无保留地宣布不会入侵乌克兰。布林肯说：“俄罗斯需要向世界清楚地陈述不会入侵乌克兰，然后通过将你的部队、你的坦克、飞机送回他们的军营和机库并将你的外交官派到谈判桌上来证明这一点。”
-
-俄罗斯否认它想入侵乌克兰。然而，这场危机促使以美国为首的北约联盟加强其在靠近俄罗斯或乌克兰的成员国的存在。乌克兰不是北约成员国，俄罗斯不希望它被允许加入。
-
-布林肯出席了由 15 名成员组成的明斯克协议会议，该协议旨在结束乌克兰军队与俄罗斯支持的该国东部分离主义分子之间长达 8 年的冲突。
-
-🔗 [https://www.reuters.com/world/us-secretary-state-unexpectedly-speak-un-ukraine-meeting-2022-02-17/](https://www.reuters.com/world/us-secretary-state-unexpectedly-speak-un-ukraine-meeting-2022-02-17/)
-
-编辑发布： Shuizhuyu
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -2,26 +2,28 @@
 ---
 
 
-## 今日盖特大V推荐 — 香奈儿·里昂 OAN（Chanel Rion OAN）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2024600/)
+## 樱花FM┃北京冬奥会开幕式上进场的台湾队 NHK介绍为“台湾”
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2024638/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/027.png)
-盖特链接： [**https://gettr.com/user/chanelrion**](https://gettr.com/user/chanelrion)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1705.png)图片来源：网络
-香奈儿·里昂简介：
+音频：东京樱花团/战友520
+![](https://lh6.googleusercontent.com/bJCURn0UuCAbM7KCbrjgQ3voBppWbRBFspFnXMYBHL16-61jk3vWrMkC1Ucxb246_Sr7l85uyETHXtXwCTTeaRcY9AYA370jGXE_yaBU9SFcH66YZ_Y0rew2Hb4fQuAeJx5pwS1D)
+北京冬奥会开幕式2月4日晚在北京国家体育场（俗称“鸟巢”）举行，台湾队继日本后第11名入场。
 
-香奈儿·里昂（生于1990年4月28日）广播员, 政治漫画家和儿童读物作者，有线电视频道美国新闻网（OAN）的首席白宫记者。
+在中共压力的背景下，台湾在参加包括奥运会在内的许多国际比赛时，被迫使用官方名称“中华台北”而不是官方国名中华民国。
 
-2020年3月，香奈儿·里昂在OAN上主持了揭露中共冠状病毒的“恐惧、谎言和未知”特别节目。她在特别节目中声称：导致2019冠状病毒病大流行的SARS-CoV-2 新冠病毒是“中共病毒“，她说，唐纳德·川普总统对这一大流行病的反应是“强烈的”，并质疑该病毒是否来自中国武汉市。
+当播放“中华台北”的公告时，包括担任旗手的速滑女孩黄玉婷和高山滑雪运动员何冰瑞等共有三个人，进入会场大厅。
 
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 — 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+关于本届赛事的开闭幕式，台湾最初宣布因新冠病毒疫情缺席，但在开幕前四天的1月31日，“应国际奥委会频繁请求”宣布参加。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+另一方面，人们担心仪式会被称为“中国台北”，但现场公告牌却是“中华台北”，就像 2008 年北京夏季奥运会一样。此外，虽然中国官方的中央电视台将其播放为“中国台北”，但NHK在去年夏天东京奥运会后将其介绍为“台湾”，这使许多台湾人感到高兴。
 
+台湾队一共有15人。共有四名运动员将参加速度滑冰、雪橇和高山滑雪三项比赛。
+
+文字版原文：[北京冬奥会开幕式上进场的台湾队 NHK介绍为“台湾”](https://gnews.org/zh-hans/1958088/)
+
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
