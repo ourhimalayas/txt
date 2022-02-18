@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：总结2021年和对2022年的预判
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2026778/)
+## 七哥金句：对战友的爱和缘分
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2026801/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句1-1-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句2-1-3.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句3-1-2.jpg)
 整理：雅典娜农场
 发布：枫叶红了
 

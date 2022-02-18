@@ -15,80 +15,80 @@
 
 ---
 
-### [七哥金句：总结2021年和对2022年的预判](/content/gnews/1/README.md)
+### [七哥金句：对战友的爱和缘分](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [有声|香港疫情失控 医疗系统即将全面崩溃](/content/gnews/2/README.md)
+### [七哥金句：总结2021年和对2022年的预判](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
+
+### [有声|香港疫情失控 医疗系统即将全面崩溃](/content/gnews/3/README.md)
  ` MOSREC`
 
-### [有声|中共政治、经济已回天乏术](/content/gnews/3/README.md)
+### [有声|中共政治、经济已回天乏术](/content/gnews/4/README.md)
  ` MOSREC`
 
-### [有声|德国政府表示，将分阶段解除防疫限制](/content/gnews/4/README.md)
+### [有声|德国政府表示，将分阶段解除防疫限制](/content/gnews/5/README.md)
  ` MOSREC`
 
-### [延安性事（短篇纪实文学）（七）](/content/gnews/5/README.md)
+### [延安性事（短篇纪实文学）（七）](/content/gnews/6/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [加拿大议员康迪斯-贝尔根女士：总理在过去两年里无视加拿大人，骂他们、侮辱他们，现在是时候让我们每一个人展现领导力，对这个紧急状态法说不！](/content/gnews/6/README.md)
+### [加拿大议员康迪斯-贝尔根女士：总理在过去两年里无视加拿大人，骂他们、侮辱他们，现在是时候让我们每一个人展现领导力，对这个紧急状态法说不！](/content/gnews/7/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [七哥谈“验了人心人的能力，体验了所有中国人对事情的看法”](/content/gnews/7/README.md)
+### [七哥谈“验了人心人的能力，体验了所有中国人对事情的看法”](/content/gnews/8/README.md)
  ` MG FARM`
 
-### [七哥谈犹太人](/content/gnews/8/README.md)
+### [七哥谈犹太人](/content/gnews/9/README.md)
  ` MG FARM`
 
-### [从中共病毒到奥米克戎都是化学病](/content/gnews/9/README.md)
+### [从中共病毒到奥米克戎都是化学病](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [七哥谈用心做GTV](/content/gnews/10/README.md)
+### [七哥谈用心做GTV](/content/gnews/11/README.md)
  ` MG FARM`
 
-### [喜币场外交易额和喜联储KYC量再创新高](/content/gnews/11/README.md)
+### [喜币场外交易额和喜联储KYC量再创新高](/content/gnews/12/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [真相工程再爆猛料FDA执行官被拍](/content/gnews/12/README.md)
+### [真相工程再爆猛料FDA执行官被拍](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥说“我们要鼓动中国去打台湾，但我们坚决不能打乌克兰”](/content/gnews/13/README.md)
+### [七哥说“我们要鼓动中国去打台湾，但我们坚决不能打乌克兰”](/content/gnews/14/README.md)
  ` MG FARM`
 
-### [西班牙巴塞罗那喜悦农场Himalaya Pay推广追踪](/content/gnews/14/README.md)
+### [西班牙巴塞罗那喜悦农场Himalaya Pay推广追踪](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [渥太华刑事律师：向卡车司机捐款的人不应该担心他们的银行账户被政府冻结，愿意为有需要的人提供法律援助](/content/gnews/15/README.md)
+### [渥太华刑事律师：向卡车司机捐款的人不应该担心他们的银行账户被政府冻结，愿意为有需要的人提供法律援助](/content/gnews/16/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [在渥太华示威现场听听人民对这个国家的领导人有何看法](/content/gnews/16/README.md)
+### [在渥太华示威现场听听人民对这个国家的领导人有何看法](/content/gnews/17/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [加密货币是拒绝政府随意冻结银行账户的未来（四）](/content/gnews/17/README.md)
+### [加密货币是拒绝政府随意冻结银行账户的未来（四）](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [瑞士、奥地利和以色列取消所有限制，包括Covid护照和口罩](/content/gnews/18/README.md)
+### [瑞士、奥地利和以色列取消所有限制，包括Covid护照和口罩](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [加密货币是拒绝政府随意冻结银行账户的未来（三）](/content/gnews/19/README.md)
+### [加密货币是拒绝政府随意冻结银行账户的未来（三）](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [五月花简报（02/18/2022）](/content/gnews/20/README.md)
+### [五月花简报（02/18/2022）](/content/gnews/21/README.md)
  ` mayflowertranslate`
 
-### [文贵爆料 2.18：攻打乌克兰，普京一箭三雕](/content/gnews/21/README.md)
+### [文贵爆料 2.18：攻打乌克兰，普京一箭三雕](/content/gnews/22/README.md)
  ` 秘密翻译组-原创组`
 
-### [加密货币是拒绝政府随意冻结银行账户的未来（二）](/content/gnews/22/README.md)
+### [加密货币是拒绝政府随意冻结银行账户的未来（二）](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共国江浙地区疫情大封锁](/content/gnews/23/README.md)
+### [中共国江浙地区疫情大封锁](/content/gnews/24/README.md)
  ` 扬帆枫叶快讯`
 
-### [喜联储将公布重大利好投资公告 H贷款 H抵押 GETTR PAY和躺平币即将面世](/content/gnews/24/README.md)
+### [喜联储将公布重大利好投资公告 H贷款 H抵押 GETTR PAY和躺平币即将面世](/content/gnews/25/README.md)
  ` 焦點20分`
-
-### [多数人认为特鲁多不能胜任国家领导职责](/content/gnews/25/README.md)
- ` 扬帆枫叶快讯`
 
 ### [对付法律超限战的杀手锏——个人破产](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
