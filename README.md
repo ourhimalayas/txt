@@ -15,134 +15,134 @@
 
 ---
 
-### [第220期玫瑰看新闻](/content/gnews/1/README.md)
+### [乌克兰总统泽连斯基称加入北约是乌克兰的“安全](/content/gnews/1/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [有声|灭共者之郭氏情报站（26）2022/02/16 文贵大直播](/content/gnews/2/README.md)
- ` MOSREC`
-
-### [华为在印度多个办公室遭税务部门突击搜查](/content/gnews/3/README.md)
- ` 波士顿五月花农场`
-
-### [有声|郭先生指喜币未来的价值在于流通](/content/gnews/4/README.md)
- ` MOSREC`
-
-### [2022.2.18 疫苗灾难](/content/gnews/5/README.md)
- ` 【去疫前线】`
-
-### [有声|中共统治下数字呈现出的真相](/content/gnews/6/README.md)
- ` MOSREC`
-
-### [加拿大通货膨胀率失控飙升](/content/gnews/7/README.md)
+### [加拿大皇家骑警试图冻结多个数字货币钱包](/content/gnews/2/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [2/18/2022国际财经快讯：雷诺在扭亏为盈后加速偿还国家援助；挪威航空重组后扭亏为盈](/content/gnews/8/README.md)
- ` 秘密翻译组金融团队`
-
-### [有声|波士顿法官阻止市长的强制疫苗计划](/content/gnews/9/README.md)
- ` MOSREC`
-
-### [普京将亲自指挥19日举行的弹道导弹发射演习](/content/gnews/10/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声|HBO VICE 采访郭文贵先生背后的真相 – 揭露HBO VICE精心编织的谎言 Part-4](/content/gnews/11/README.md)
- ` MOSREC`
-
-### [樱花FM┃中共不顾运动员“喷井”式感染新冠病毒，强行举行冬奥开幕式](/content/gnews/12/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [日本民间反抗对儿童的中共病毒疫苗接种](/content/gnews/13/README.md)
- ` NFSC News`
-
-### [有声|日本麒麟退出中共软饮料市场](/content/gnews/14/README.md)
- ` MOSREC`
-
-### [樱花FM┃美国务院称俄罗斯伪造视频称遭受乌克兰军队袭击](/content/gnews/15/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声|无苗灭共者是爆料革命赠予未来的最大财富](/content/gnews/16/README.md)
- ` MOSREC`
-
-### [有声|习近平神隐数日 欲发动对台作战计划](/content/gnews/17/README.md)
- ` MOSREC`
-
-### [樱花FM┃中日财经爆：中共黔驴技穷，基建能成救命稻草？](/content/gnews/18/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声|郭文贵先生将于美国法律监管下申请破产 开启灭共下一篇章](/content/gnews/19/README.md)
- ` MOSREC`
-
-### [有声|西班牙七家商业实体接受HPay交易](/content/gnews/20/README.md)
- ` MOSREC`
-
-### [阿联酋将为数字资产服务商发放联邦许可证](/content/gnews/21/README.md)
- ` NFSC News`
-
-### [有声|中华民族一代科学宗师叶企孙竟然沦为乞丐](/content/gnews/22/README.md)
- ` MOSREC`
-
-### [秘翻在线：彻底失败的中共外交政治，将死之人习近平何去何从？](/content/gnews/23/README.md)
+### [“巫山童养媳”为“丰县锁链女”发声被报复](/content/gnews/3/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [印度税务部门对当地华为办公室展开搜查](/content/gnews/24/README.md)
- ` NFSC News`
+### [第220期玫瑰看新闻](/content/gnews/4/README.md)
+ ` 【🌹玫瑰新闻】`
 
-### [美国及世界疫情简报（02-18-2022）](/content/gnews/25/README.md)
+### [有声|灭共者之郭氏情报站（26）2022/02/16 文贵大直播](/content/gnews/5/README.md)
+ ` MOSREC`
+
+### [华为在印度多个办公室遭税务部门突击搜查](/content/gnews/6/README.md)
  ` 波士顿五月花农场`
 
-### [乐桃航空将减资至1亿日元，以改善因中共病毒造成的财务困难](/content/gnews/26/README.md)
+### [有声|郭先生指喜币未来的价值在于流通](/content/gnews/7/README.md)
+ ` MOSREC`
+
+### [2022.2.18 疫苗灾难](/content/gnews/8/README.md)
+ ` 【去疫前线】`
+
+### [有声|中共统治下数字呈现出的真相](/content/gnews/9/README.md)
+ ` MOSREC`
+
+### [加拿大通货膨胀率失控飙升](/content/gnews/10/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [2/18/2022国际财经快讯：雷诺在扭亏为盈后加速偿还国家援助；挪威航空重组后扭亏为盈](/content/gnews/11/README.md)
+ ` 秘密翻译组金融团队`
+
+### [有声|波士顿法官阻止市长的强制疫苗计划](/content/gnews/12/README.md)
+ ` MOSREC`
+
+### [普京将亲自指挥19日举行的弹道导弹发射演习](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文贵大直播 2/18 CCP病毒没结束 疫苗灾难没开始](/content/gnews/27/README.md)
+### [有声|HBO VICE 采访郭文贵先生背后的真相 – 揭露HBO VICE精心编织的谎言 Part-4](/content/gnews/14/README.md)
+ ` MOSREC`
+
+### [樱花FM┃中共不顾运动员“喷井”式感染新冠病毒，强行举行冬奥开幕式](/content/gnews/15/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [日本民间反抗对儿童的中共病毒疫苗接种](/content/gnews/16/README.md)
+ ` NFSC News`
+
+### [有声|日本麒麟退出中共软饮料市场](/content/gnews/17/README.md)
+ ` MOSREC`
+
+### [樱花FM┃美国务院称俄罗斯伪造视频称遭受乌克兰军队袭击](/content/gnews/18/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有声|无苗灭共者是爆料革命赠予未来的最大财富](/content/gnews/19/README.md)
+ ` MOSREC`
+
+### [有声|习近平神隐数日 欲发动对台作战计划](/content/gnews/20/README.md)
+ ` MOSREC`
+
+### [樱花FM┃中日财经爆：中共黔驴技穷，基建能成救命稻草？](/content/gnews/21/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有声|西班牙七家商业实体接受HPay交易](/content/gnews/22/README.md)
+ ` MOSREC`
+
+### [阿联酋将为数字资产服务商发放联邦许可证](/content/gnews/23/README.md)
+ ` NFSC News`
+
+### [有声|中华民族一代科学宗师叶企孙竟然沦为乞丐](/content/gnews/24/README.md)
+ ` MOSREC`
+
+### [秘翻在线：彻底失败的中共外交政治，将死之人习近平何去何从？](/content/gnews/25/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [印度税务部门对当地华为办公室展开搜查](/content/gnews/26/README.md)
+ ` NFSC News`
+
+### [美国及世界疫情简报（02-18-2022）](/content/gnews/27/README.md)
+ ` 波士顿五月花农场`
+
+### [乐桃航空将减资至1亿日元，以改善因中共病毒造成的财务困难](/content/gnews/28/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [2022年2月18日郭先生大直播 文字同步精要](/content/gnews/29/README.md)
+ ` 焦點20分`
+
+### [文贵大直播 2/18 CCP病毒没结束 疫苗灾难没开始](/content/gnews/30/README.md)
  ` 秘密翻译组-原创组`
 
-### [02/18/22 香港快讯 公院濒爆煲 伊院护士：急症室医护1对100病人](/content/gnews/28/README.md)
+### [02/18/22 香港快讯 公院濒爆煲 伊院护士：急症室医护1对100病人](/content/gnews/31/README.md)
  ` 英喜-粵語組`
 
-### [暂失自由 加拿大“自由卡车”领袖被捕](/content/gnews/29/README.md)
+### [暂失自由 加拿大“自由卡车”领袖被捕](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2022.2.18大直播 疫苗危机还未到来，战友们继续做好防护](/content/gnews/30/README.md)
+### [2022.2.18大直播 疫苗危机还未到来，战友们继续做好防护](/content/gnews/33/README.md)
  ` 秘密翻译组-原创组`
 
-### [美驻日大使发表声明称 俄乌问题日美步调一致](/content/gnews/31/README.md)
+### [美驻日大使发表声明称 俄乌问题日美步调一致](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【诗歌】招安](/content/gnews/32/README.md)
- ` 纽约香草山MOS03`
-
-### [中日财经爆┃阿里、腾讯电商网站被美国列“恶名市场”名单](/content/gnews/33/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [班农先生谈世界经济论坛渗透多国内阁](/content/gnews/34/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [网民团结的胜利:江苏被迫成立锁链女事件调查组](/content/gnews/35/README.md)
- ` 墨尔本雅典娜农场`
-
-### [战争是政治的延伸](/content/gnews/36/README.md)
+### [光明与黑暗的对决—多国取消防疫限制](/content/gnews/35/README.md)
  ` MilesGuoLivePPT`
 
-### [外界对德约科维奇是否接种中共病毒疫苗的重磅访谈褒贬不一](/content/gnews/37/README.md)
+### [中日财经爆┃阿里、腾讯电商网站被美国列“恶名市场”名单](/content/gnews/36/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [班农先生谈世界经济论坛渗透多国内阁](/content/gnews/37/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [网民团结的胜利:江苏被迫成立锁链女事件调查组](/content/gnews/38/README.md)
  ` 墨尔本雅典娜农场`
 
-### [奥运会不该在北京举行，川普谈中共入侵台湾](/content/gnews/38/README.md)
+### [战争是政治的延伸](/content/gnews/39/README.md)
+ ` MilesGuoLivePPT`
+
+### [外界对德约科维奇是否接种中共病毒疫苗的重磅访谈褒贬不一](/content/gnews/40/README.md)
  ` 墨尔本雅典娜农场`
 
-### [乌克兰东部遭遇多年来最严重的炮击](/content/gnews/39/README.md)
+### [奥运会不该在北京举行，川普谈中共入侵台湾](/content/gnews/41/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [乌克兰东部遭遇多年来最严重的炮击](/content/gnews/42/README.md)
  ` Shuizhuyu`
 
-### [《历史上的今天》2022.02.18](/content/gnews/40/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [铁人三项运动员的生命被生物武器中共病毒疫苗摧毁](/content/gnews/41/README.md)
+### [铁人三项运动员的生命被生物武器中共病毒疫苗摧毁](/content/gnews/43/README.md)
  ` 首尔天池农场`
-
-### [日媒周刊現代（其一）：冬奧會“判決騙局”離奇 質疑聲層出不窮](/content/gnews/42/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [马斯克在推特上用希特勒画像揶揄加拿大总理](/content/gnews/43/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [【G时新闻】多数人认为特鲁多不能胜任国家领导职责](/content/gnews/44/README.md)
  ` G-时新闻`

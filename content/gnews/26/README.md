@@ -2,22 +2,31 @@
 ---
 
 
-## 乐桃航空将减资至1亿日元，以改善因中共病毒造成的财务困难
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2025400/)
+## 印度税务部门对当地华为办公室展开搜查
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2025443/)
 
-撰稿：东京樱花团｜百花李香
+作者：纽约香草山农场 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月15日，据相关媒体报道，印度税务部门正在对当地多处中共华为公司办公场所展开搜查。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/5-34.jpg)
+消息人士透露，华为在新德里和邻近的主要商业中心古鲁格，以及第三大城市班加罗尔的办公室均被当地税务部门以严查逃税漏税、做假帐或利用空壳公司洗钱等理由进行了突击搜查。其中，当地税务官员查看了华为公司的部分财务文件、账簿和公司记录，还有其在印度的业务和海外交易的资料。另外，印度税务官还带走了该公司的一些相关文件。
+此前一天，印度政府还以对民众隐私和国家安全构成威胁为由，封禁了54款与中共国有关联的手机应用程序，当中多款软件被证实属于腾讯、阿里巴巴和网易等中共国大型科技公司。同时，印度还要求谷歌、苹果等公司在印度境内的手机软件商店中下架这些应用程序。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/乐桃航空将减资至1亿日元，以改善因中共病毒造成的财务困难.png)[*图片来源*](https://news.yahoo.co.jp/articles/b47ebbc15c08bc716b2e4ec70bdf123c115bfa78/images/000)
+参考链接：[Indian tax authorities search premises of China’s Huawei](https://www.reuters.com/world/india/indian-tax-authorities-search-premises-chinas-huawei-local-media-2022-02-16/)
 
-低成本航空公司（LCC）乐桃航空18日宣布，它将把资本从目前的75亿日元减少到1亿日元。因中共病毒爆发导致乘客数量下降，该公司一直面临着困难的经营状况，减少成本将有助于改善其财务困难。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-根据税务法，该公司将被视为中小型企业，将减少其税收支出。减资将于3月30日进行，公司还准备将资本储备金从74亿日元减少至零，以消除累计损失。乐桃截至2021年3月的净亏损额为295亿日元，这是该公司成立以来最大的亏损，2020年的净亏损为94亿日元，截至2022年3月的年度预测尚未公布。
+总编: Irene木木
+编辑: Lakeman文仁
+校正/发稿：Fei797
 
-信息源：[**LCCピーチが1億円に減資　コロナ禍直撃で財務改善目指す**](https://news.yahoo.co.jp/articles/b47ebbc15c08bc716b2e4ec70bdf123c115bfa78#:~:text=LCC%E3%83%94%E3%83%BC)
-
-*编辑：东京樱花团 / 東洋武士*
-*发布：东京樱花团 /*老黑
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
