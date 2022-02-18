@@ -2,77 +2,37 @@
 ---
 
 
-## 2022年2月18日文贵先生直播摘要及音频—银河系农场
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2025993/)
+## 唯真不破反洗脑 我信谁之三 —— 无耻的媒体
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2026027/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/封面-12.jpg)
-盖特连接：[2022年2月18日 文贵大直播：乌克兰俄罗斯危机各执一词；Omicron病毒解禁众说纷纭](https://gettr.com/streaming/pvbkea9266)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1712-e1645203945936.png)图片来源：GiveSendGo
+情人节，本来应该是个充满爱的日子。加拿大的气氛却全然相反。加拿大人从未如此分裂，胸中从未如此愤怒。
 
-1、80%国家解禁取消疫苗护照主要是：经济撑不住，政治撑不住，病毒撑不住了（病毒变弱）；
+当天，总理Justin Trudeau开创本国历史先河，宣布启动紧急状态法（Emergency Act），说只有这样才能保障加拿大人的安全与自由。据此，各银行可以冻结任何被认为支持自由车队（Free Convey）的银行账号，吊销相关人士的汽车牌照、保险，甚至把他们抓进监狱。
 
-2、疫情尚未结束：戴口罩，勤洗手，撑到5月份；
+在此一周前，小杜的政治盟友，联邦新民主党NDP党领Jameet Singh公开说，抗议者收受外国资金意图推翻政府。然而在随后召开的国会辩论中，当被问及此事时，执政联邦自由党内阁成员Mark Gerretsen却说一切仍在调查当中。
 
-3、新加坡不宜久留；
+紧接着，美国众筹平台GoFundMe冻结了自由车队获得的约900多万捐款。抗议者旋即转移至有宗教背景的另一众筹平台GiveSendGo，几日内又收到了几百万捐款。然而不久，该平台遭骇客入侵，捐款人的名字、IP地址、电邮地址等隐私信息被盗取并被公布。
 
-4、美国和共产党的较量，会把新加坡干掉；
+目前所知，9.2万名捐款人共捐了大约840万美元，大部分来自美、加两地，其中加拿大人的捐款约431万，美国人的则有362万。按人头计算，平均每人不到100元。单笔金额超过1000美元的不到700人；最大一笔是21.5万，捐款人不详；排第二的是9万元，捐款者是美国科技业富翁。接下来的是7.5万元，来自加拿大New Brunswick省一间高压清洗设备公司老板H先生；另外还有一笔2.5万元，来自Ontario省伦敦市某车行副总裁。
 
-5、李家江山争夺，华人成牺牲品；
+加拿大国家广播公司CBC，这家所谓的“主流媒体”，总摆出一副高尚的姿态，此时却是另一个样子。他们按照骇客偷来的资料找上加拿大境内最大捐款人H先生，公开他的全名、公司名称，地址，还特别选了一张大头照放在显眼处。照片中，H带着一顶写有美国前总统川普名字的棒球帽。CBC的报道还特别提及，H先生的公司在疫情当中曾经向政府申请加拿大紧急工资补贴CEWS，但不清楚到底拿到多少钱……把给自由车队的捐款与申请政府疫情补贴两件事放在一起写，是什么意思？个人捐款与公司运营根本不相干。而且，在加拿大政治捐款是合法的！
 
-6、打了疫苗，就是免疫功能丢失；
+回头看看过去一个月中发生的事情，加拿大普通国民在自媒体上的现场报道与“主流媒体”的说法根本是两个世界。前者有视频有真相，后者则充满了误导和政治正确。也正因此，坚守渥太华的自由车队组织者们，才会决定每天下午进行简报，确保自己的声音不会被歪曲。同时，加拿大人也真正清晰地认识到，原来曾经奉为金科玉律的“严肃报道”是掩耳盗铃，本应报道真相的记者们的脑袋里，只剩下媒体的傲慢，只有两个字合适他们：无耻。
 
-7、新加坡，以色列，香港等接种率高的国家导致免疫功能丢失，各种病症频发；
+**小结：***郭文贵先生说得对，咱们走走看。不出事还真看不出这么多问题。如今可好了，哗啦啦，看他楼塌了。媒体的无耻与政客的伪善在这一刻体现得淋漓尽致。*
 
-8、疫苗灾难主要症状：吐血，流鼻血，眼睛出血，月经不规则流血不止，孩子突然倒地；
+文章观点仅代表作者个人，与Gnews平台无关
 
-9、中共藏钱最多的是卢森堡，瑞士和新加坡；
+作者：洛杉矶盘古农场 — 十月
 
-10、新加坡票据业务全世界排第一（家族信托）；
+作者：洛杉矶盘古农场 — 心照
 
-11、接下来咖啡价格要涨3-5倍；
 
-12、锁链女事件：习家大为恼火，引发了江胡，习谁该负责的党内争论；
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-13、冬奥会开幕式花了72亿，张家口安保花费200多亿；
-
-14、比尔盖茨是媒体的爹，90%媒体使用的软件是微软；
-
-15、文贵先生破产：让共产党陷害文贵先生的76个案子全部自动停止，但是文贵先生告别人的案子不会停；
-
-16、谷爱凌事件：引发美国将立法对在美华人严格要求身份和家人等关系，欧洲也会跟进；
-
-17、美国警告俄罗斯，你要是打乌克兰我就停你的SWIFT，俄罗斯反问，中共打台湾停不停中共的SWIFT呢？美国没有说话，点点头，没有说出来；
-
-18、马化腾的老板毛道临+胡海青岳父胡锦涛。二部和三部是最大的技术支持，微信就是共产党的情报软件；
-
-19、躺平币优先法治基金捐款者、帮战友转人民币者、推广Hpay、之后就是义工和G系列投资者；
-
-20、战友绝对不能攻击欺骗战友，否则你的喜币一定会被追回；
-
-**注：大直播音频正在制作和上传中，敬请关注——**
-
-**（大直播音频位置）**
-
-编辑整理：文俊；
-
-发布：黎明之前
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

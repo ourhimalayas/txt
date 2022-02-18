@@ -2,36 +2,48 @@
 ---
 
 
-## 谷爱凌争议言论开始发酵
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2026085/)
+## 七哥说中共是黑社会组织的帮凶
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2026150/)
 
-作者：纽约香草山农场 – AT，银河系农场 – 骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在2月16日的大直播中，郭文贵先生透露了一份独家情报：中共为了平息谷爱凌的国籍问题和外界对中共一系列违规操作的争议，其以气候为由，取消了谷爱凌的两场最重要赛事。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide4-9.jpeg)
+2022-02-09直播摘录08:08:42
 
-郭先生解释到，谷爱凌早先在获得自由式女子大跳台项目金牌后表示，她在美国就是美国人，在中国就是中国人。但这一言论完全违背了中共面向全世界颁布的“只承认一个国籍”的法律，也是对整个世界的欺骗和愚弄。目前，谷爱凌事件在全球引起了强烈的反弹，一些政府表示，要对其进行彻底的调查。
+用黑社会组织来代替，我看上你就可以绑架你，但最恐怖的是，帮凶是谁？是中国共产党！
+他说：那我就纳闷了，为什么不来北京绑呢？
+外国人的想法很天真，我说啊，如果来北京绑，绑完就枪毙了，而且绑完马上找着了。
+又有人问，那为什么农村绑了就几十年找不着呢？
+我说：中国共产党想干的事，没有干不成的，但不想干的事，没有一件干成的。
+就这么简单，但外国人搞不明白。
+所以说，在中国这个造假，假雪花、假雪道、假新闻，被绑架的八个孩子的故事。
+还有一个就是，为什么中国有那么多的暴力犯罪、性犯罪，加上彭帅被退休了。
+彭帅那天到现场的时候，我们战友看到，前后跟了七台车。
+然后呢？最后还是让法国人，法国记者爆料，彭帅没事，彭帅退休了。
+全世界只有我郭文贵一个人说过，他一定会被退休，他一定会被消失，你觉得谁能像爆料革命，蒙那么多次都蒙对的？
+用什么话形容共产党，咱们中国人现在的生存现状都不为过，每天就是吃了睡睡了吃。
+早上起床可能不刷牙，但一定吃，吃完就扣着牙，挺着肚子送孩子，自己上班。
+中午再吃，也可能带盒饭，可能吃餐厅，可能喝，反正就是吃。
+下午有机会睡觉，没机会睡人家，然后继续干活，晚上呢，吃一顿也好，吃两顿也好，吃完睡觉。
+永远都是这样。
+然后，有病的话，看不起，治不起，一病致贫，拖垮一家人，拖死自己，然后还葬不起，埋不起，只能拉几八倒。
 
-另一方面，多国运动员在冬奥会房间内发现了中共安装的隐藏摄像头，同时，中共勾兑、收买裁判的行为也有了确凿的证据。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-郭先生指出，中共违背奥运精神、突破道德底线、违反法律的行为已经引发了多国运动员、政府及关注人士的愤怒。
+**关注我们**
 
-参考链接：[https://www.gettr.com/post/pv68n2aea7](https://www.gettr.com/post/pv68n2aea7)
+Discord 账号
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-总编：Irene木木
-编辑：飞虹
-校正/发稿：谐趣园
+Gettr 账号
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
