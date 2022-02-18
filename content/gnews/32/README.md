@@ -2,39 +2,38 @@
 ---
 
 
-## 日本麒麟退出中共软饮料市场
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2022377/)
+## 伊隆马斯克将加拿大暴君贾斯汀特鲁多比作希特勒
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2022394/)
 
-作者：银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-33.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/440C6CA7-B3D6-4D5B-A2C5-223EB74850C8.jpeg)（图片来自路透社）
-2月16日，日本麒麟控股宣布退出与中共华润集团共同开发的软饮料业务。麒麟公司将以约1150亿日元的价格将其全部股份转让给一家中共投资基金。麒麟公司于2月14日刚刚宣布退出缅甸的啤酒业务，并将通过审查其海外业务促进对增长领域的投资。
+**编译: 真北007**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/09550686-76AE-46A8-9634-7855C39EA8F5.jpeg)图片来源：https://www.thegatewaypundit.com
+来自GATEWAY PUNDIT二月十七日的新闻报道：
 
-目前该转让的具体日期尚未决定。麒麟预计在该销售中获得约390亿日元的收益。但麒麟表示会继续与中共华润集团在知识产权的使用和许可方面进行合作。
+在周一宣布紧急法案后，特鲁多政府正在追踪迫害自由抗议者及其支持者，并冻结他们的银行账户。
 
-据悉该日中合资企业名为华润麒麟饮料，麒麟持有其40%的股份，主要产品是矿泉水，并代理销售日本麒麟饮料旗下产品下午茶和FIRE咖啡。该公司历史长达11年。
+加拿大人因为向反对专制政府的抗议者捐款仅 100 美元而失去了政府工作。
 
+国营媒体吹嘘使用黑客数据来曝光、羞辱和惩罚向支持加拿大自由卡车司机的 GiveSendGo 活动捐款的加拿大人。
 
+与此同时，贾斯汀·特鲁多拒绝与抗议者会面或交谈，抗议已经持续了三周。
 
-参考链接：
+周四，埃隆 马斯克在推特上发布了一张希特勒的照片，上面标有”停止将他与贾斯汀特鲁多进行比较”。
 
-[https://www.sankei.com/article/20220216-AB5VU6EZAJPPLJA5MI5RHL3FIM/](https://www.sankei.com/article/20220216-AB5VU6EZAJPPLJA5MI5RHL3FIM/)
+这具有讽刺意味，特鲁多指责大规模抗议运动是支持纳粹的，因为在全国数十场集会中的仅有一次，一名神秘活动人士手持纳粹旗帜出现。
 
-编辑/校对/发稿：有莫举名
+**原文链接：**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-196.jpeg)
+[Elon Musk Compares Canadian Tyrant Justin Trudeau to Hitler](https://www.thegatewaypundit.com/2022/02/elon-musk-compares-justin-justin-trudeau-hitler/)
 
-**更多资讯，更多关注**
+**编辑：LILY**
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+**发布：歪桑**
 
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+20220217
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-33.png)
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3-4.jpg)
 
 
  

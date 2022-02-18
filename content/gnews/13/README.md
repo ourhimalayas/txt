@@ -2,144 +2,64 @@
 ---
 
 
-## 加拿大自由车队是非暴力抗议的“胜利”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2022514/)
+## 魁北克省记者“自爆”收到纽伦堡审判的照片
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2022554/)
 
-[https://gtv.org/video/id=620e73682403672096ab73d5](https://gtv.org/video/id=620e73682403672096ab73d5)
+2022-02-17
 
-Stuart:
-Bringing Stephen Moore to join us now, economist Stephen Moore
-现在让斯蒂芬-摩尔加入我们，经济学家斯蒂芬-摩尔
+编译及评论：16626
+![](https://assets.gnews.org/wp-content/uploads/2022/02/5KBOUQI9HJ2TH2BY09.png)图片来源：截屏于[https://static-alc-proxy-cover.akamaized.net/721515/688×250/0/0.jpg](https://static-alc-proxy-cover.akamaized.net/721515/688x250/0/0.jpg)
+#### 他给我发了一张纽伦堡审判的照片，（并）警告轮到我了。
 
-If there were an American truck convoy, would you support it?
-如果有美国卡车车队，你会支持吗？
+加拿大魁北克省的蒙特利尔日报（伊曼纽尔 拉特拉维斯，Emmanuelle Latraverse，2022 年 2 月 16 日）发表一篇题为《给我的一封蓄意挑衅的信》的文章报道，一位署名为安东尼奥斯·萨拉利利斯（Antonios Sarailis）的人，发给加拿大魁北克省的蒙特利尔日报记者，伊曼纽尔 拉特拉维斯，Emmanuelle Latraverse，一张纽伦堡审判处决的照片，并警告下一个就轮到这名记者了。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/6MM@@1DC7YCPV@GQAL_KI.png)图片来源：截屏于[https://www.journaldemontreal.com/2022/02/16/lettre-a-mes-trolls](https://www.journaldemontreal.com/2022/02/16/lettre-a-mes-trolls)       ，这位加拿大魁北克省的蒙特利尔日报记者，伊曼纽尔 拉特拉维斯，Emmanuelle Latraverse，的肖像照片。
+#### 一张纽伦堡审判的照片
 
-And I ask, because these convoys have got nothing,
-我问，因为这些车队一无所有，
+加拿大魁北克省的蒙特利尔日报记者，伊曼纽尔 拉特拉维斯，Emmanuelle Latraverse，的文章开篇的三行文字是：
 
-I mean this is about getting rid of the mandate for the jab.
-我的意思是这是关于摆脱疫苗强制令
+致：安东尼奥斯·萨拉利利斯（Antonios Sarailis），您给我发了一张纽伦堡审判的照片，（并）警告轮到我了）。
 
-And if we get one in America that could really complicate the supply chain again,
-如果我们在美国有卡车车队，真的会使供应链再次复杂化
+致：所有那些称我为纳粹，妓女，…，该死的荡妇的人。
 
-could lead to some inflation, so are you in favor of an America truck convoy?
-可能会导致一些通货膨胀，所以你赞成美国卡车车队吗？
+致：所有那些侮辱我的同事的人，….。
 
-Stephen：
+#### 这就是我谋生的方式
 
-Well, good morning Stuart, couple of points,
-早上好，斯图尔特，几个意义
+#### 我的老板付钱让我花上好几个小时…
 
-number one, the Canadian protesters those truckers have won, they won,
-第一，那些卡车司机赢得的加拿大抗议者，他们赢了
+#### 我是一名政治分析家
 
-they have made the point in an empathetic way.
-他们以让人同情的方式提出了这一点
+加拿大魁北克省的蒙特利尔日报记者，伊曼纽尔 拉特拉维斯，Emmanuelle Latraverse，的文章结尾的几行文字是：
 
-People see you know these pictures, it’s been misrepresented by the way, by the media.
-你知道，人们看到这些照片，它被媒体歪曲了
+对不起，这就是我谋生的方式。这对你（读者）来说可能听起来很疯狂（像是我头脑有问题），但我的老板付钱让我花上好几个小时，聆听新闻发布会，阅读复杂的报告文章，做比较研究，区分真假，思考再思考。
 
-It has been almost exclusively peaceful, no question about it.
-它几乎完全是和平的，毫无疑问
+在生活中，有些人是生物学家，护理员，牙科卫生员，教师，卡车司机或收银员。我是一名记者，确切地说是一名政治分析家。而且，就像他们一样，我尽我所能。
 
-These are people who have made an incredible point, not just to the Canadian government, to people around the world,
-这些人提出了令人难以置信的观点，不仅对加拿大政府，对世界各地的人们
+这位加拿大魁北克省的蒙特利尔日报记者，伊曼纽尔 拉特拉维斯，Emmanuelle Latraverse，曾经发表下面的文章：
 
-and you are right, you are starting to see this kind of protest now in some of European countries and New Zealand and others,
-你是对的，你现在开始在一些欧洲国家和新西兰和其他国家看到这种抗议，
+#### 卫生措施的反对者是“少数人”
 
-so it has been a victory for non-violent protest,
-所以这是非暴力抗议的胜利，
+加拿大魁北克省的蒙特利尔日报（伊曼纽尔 拉特拉维斯，Emmanuelle Latraverse， 蒙特利尔日报，2022 年 1 月 4 日，[https://www.journaldemontreal.com/2022/01/04/la-dictature-de-la-minorite](https://www.journaldemontreal.com/2022/01/04/la-dictature-de-la-minorite) ）发表一篇题为《“少数人”的独裁统治》的文章报道，自大流行开始以来，卫生措施的反对者是“少数人”（仅占11%），正是因为他们（的“少数人”的“独裁统治”），让89%的（大多数）人必须（接受）实施宵禁。
 
-and it’s probably time for…
-可能是时候……
+#### 工会对疫苗接种的沉默（不表态支持）是放弃他们（应有）的责任
 
-by the way I don’t think the protesters have the right to stop commerce and block bridges and things of that nature
-顺便说一句，我不认为抗议者有权停止商业并封锁桥梁和类似性质的东西
+加拿大魁北克省的蒙特利尔日报（伊曼纽尔 拉特拉维斯，Emmanuelle Latraverse， 蒙特利尔日报，2021 年 12 月 21 日，[https://www.journaldemontreal.com/2021/12/21/a-quand-la-vaccination-obligatoire](https://www.journaldemontreal.com/2021/12/21/a-quand-la-vaccination-obligatoire)  ）发表一篇题为《强制接种疫苗：我们还在等什么？》的文章指出，政府要求我们，作为公民，应该以知情和负责任的方式对待Omicron病毒。文章还指责工会对疫苗接种的沉默（不表态支持）是放弃他们（应有）的责任。
 
-so I think that the police acted correctly in cleaning the bridges,
-所以我认为警察清理桥梁的行为是正确的，
+#### 反对政府施加暴力于人民，纽伦堡审判的时刻快到了
 
-so that commerce could commence
-这样商业才能持续
+我们谴责并反对暴力示威，更反对政府施加暴力于人民。那些“老板付钱让我…”，颠倒黑白，替邪恶势力站台的媒体同样逃脱不了即将到来的纽伦堡审判。
 
-and whether this should happen in the United States, you know, Stuart,
-以及这是否应该发生在美国，你知道，斯图尔特
+参考资料：
 
-I actually think that what’s happening now in the US is a lot of these mandates and a lot of these mask requirements all over the country,
-实际上，我认为现在在美国发生的事情是很多这样的规定和全国各地的很多口罩要求
+1. [Legault rejette la Loi sur les mesures d’urgence](https://www.tvanouvelles.ca/2022/02/14/legault-rejette-la-loi-sur-les-mesures-durgence)
 
-even the democratic governors are getting rid of them now,
-即使是民主党的州长现在也正在摆脱它们，
 
-because the virus is in such rapid retreat,
-因为病毒正在迅速消退
+编辑：LILY
+发布：肥鯮
 
-so hopefully I won’t need protest, because all of these mandates are going to go away in the next few weeks.
-所以希望我不需要抗议，因为所有这些强制令都将在接下来的几周内消失
-
-Stuart:
-
-Let me ask you about producer prices, we get the number tomorrow.
-让我问你关于生产者价格的问题，我们明天得到这个数字
-
-We are expecting a 9% annual inflation rate at the producer level.
-我们预计生产者层面的年通胀率为 9%
-
-If we get that 9%, does that mean higher consumer prices down the road?
-如果我们得到那 9%，这是否意味着未来的消费者价格会更高？
-
-Stephen:
-
-Well, by the way, one other quick thing about Canada, have you seen the latest Justin Trudeau approval ratings?
-好吧，顺便说一下，关于加拿大的另一件事，你看过贾斯汀·特鲁多最新的支持率吗？
-
-He’s as low as Joe Biden is in the United States, so again evidence these protests have really made a statement.
-他和乔·拜登在美国一样低，所以再次证明这些抗议活动确实起了作用
-
-Yeah, I think we’re going to see a high producer price index number
-是的，我认为我们将看到一个高生产者价格指数
-
-and of course that’s going to spread down to higher consumer prices,
-当然，这会蔓延到更高的消费者价格
-
-and there’s now word, as you’ve been reporting that the Fed may have some kind emergency rate increase,
-现在有消息，正如你一直在报道美联储可能会紧急加息
-
-I’m total in agreement with that,
-我完全同意这样做
-
-I only think they should have done that nine months ago,
-我只认为他们应该在九个月前这样做
-
-they are way behind the curve and fighting this inflation with that validations of it, we will see more validation behind the curve tomorrow.
-他们远远落后于曲线，并通过对它的验证来对抗这种通货膨胀，明天我们将在曲线后面看到更多的验证
-
-Stuart
-Lots of speculation about what the Fed will do when it will do it. Stephen Moore, thanks a lot for being with us. We will see you tomorrow
-很多人猜测美联储何时会采取行动。斯蒂芬-摩尔，非常感谢您与我们在一起。我们明天见
-
-**原视频链接:**[** **https://www.youtube.com/watch?v=AQ4jx17mcGI](https://www.youtube.com/watch?v=AQ4jx17mcGI)
-
-Date:02/15/2022
-原视频标题: Canada Freedom Convoy a ‘victory’ for non-violent protests
-加拿大自由车队是非暴力抗议的“胜利”
-原视频日期：2022/02/14
-**原视频链接: **https://www.youtube.com/watch?v=AQ4jx17mcGI
-任务编号：3760
-视频时间段 : 0:00-02:42
-
-英听校：洛杉矶盘古农场 – Raul
-翻译：洛杉矶盘古农场 – Raul
-翻译终校：洛杉矶盘古农场 – Mike Li
-审片：洛杉矶盘古农场 – 天涯行
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

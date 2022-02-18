@@ -2,29 +2,28 @@
 ---
 
 
-## FBI组建专门负责加密货币的虚拟资产开发小组
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2022635/)
+## 岸田首相与普京电话会谈，表达对入侵乌克兰的担忧
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2022680/)
 
-#### 撰稿：彩虹       
+撰稿：东京樱花团/向海
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-32.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fimg.republicworld.com%2Frepublic-prod%2Fstories%2Fpromolarge%2Fxhdpi%2Fldoq2nw69ow3nsje_1645091947.jpeg&amp;imgrefurl=https%3A%2F%2Fwww.republicworld.com%2Fworld-news%2Frussia-ukraine-crisis%2Fjapans-pm-fum)
+日本首相岸田文雄2月17日在与俄罗斯总统普京通电话时表达了对乌克兰局势的担忧。
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/16451478481.png)
-图片来源：Decrypt
+据 NHK 报道，岸田首相在当天晚上 9 点 30 分左右与普京总统通电话时表示，“我正在密切关注事态发展。”
 
-《国会山报》2月17日报道，司法部周四宣布，FBI（联邦调查局）正在组建一个专门负责加密货币的新团队。
+针对岸田首相在电话谈判中不能单方面试图以武力改变现状，并敦促通过外交努力解决问题，普京总统就乌克兰局势发表了背景和立场。
 
-报道说，这个新的团队将与国家加密货币执法小组（National Cryptocurrency Enforcement Team）密切合作，检察官崔恩映（Eun Young Choi）将担任国家加密货币执法小组的第一任主任，他曾负责调查网络犯罪。
+在会后的记者会上，岸田首相表示，“如果我们允许（俄罗斯）以武力改变这一现象，这不仅会给欧洲，也会给亚洲和整个国际社会带来错误的信息。”他将继续和各国首脑进行外交努力。
 
-在一份声明中，崔恩映说，“自数字货币诞生以来，该部门一直处于调查和起诉涉及数字货币犯罪的最前沿。NCET（国家加密货币执法小组）将发挥关键作用，确保随着围绕数字资产技术性增长和发展，该部门反过来加快和扩大其努力，以打击各类罪犯的非法滥用。我很高兴能领导NCET令人难以置信和有才华的律师团队，并开始为该部门的这一重要优先事项工作。”
+当被问及在入侵乌克兰期间是否有任何关于制裁俄罗斯的辩论时，岸田首相只是说“我交换了意见”，但没有具体提及。
 
-文章说，崔恩映周四开始全职工作。加密货币执法小组将专注于加密货币和数字资产的犯罪滥用所带来的挑战。该团队还将由整个部门的律师组成，包括具有加密货币、网络犯罪、洗钱和罚没背景的检察官。
+另一方面，日经称如果俄罗斯入侵乌克兰，日本政府内部担心中国可能会加强在台湾和印度-太平洋地区的威胁行动。
 
-与之不同的是，FBI成立的这个负责加密货币的虚拟资产开发小组（Virtual Asset Exploitation Unit）新团队将由加密货币专家组成，为整个联邦调查局提供分析、支持和培训。该部门称，团队还将创新其加密货币工具，以预警未来威胁。
+[信息来源](https://news.yahoo.co.jp/articles/8ef3ce2665fb10500e760420c854524759fa485c)
 
-**新闻来源**
-
-[FBI to form new cryptocurrency unit](https://thehill.com/policy/technology/594763-fbi-to-form-cryptocurrency-unit-doj-taps-enforcement-team-director?rl=1)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
