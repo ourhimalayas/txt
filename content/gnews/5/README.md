@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：风水和迷信
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2027173/)
+## 七哥金句：要备药！
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2027221/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句4-1-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句-1.001-2.jpeg)
 整理：雅典娜农场
 发布：枫叶红了
 

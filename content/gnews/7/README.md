@@ -2,30 +2,28 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年2月18日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2027141/)
+## 丰县天量地方债看中共政府信用破产
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2027192/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO-2.jpg)
+撰稿：冰沙奶茶
+![](https://assets.gnews.org/wp-content/uploads/2022/02/7848DE1A-1571-461D-97C7-BCA663949123.jpeg)网络截图
+丰县，江苏北部不富裕的小县城，最近因“八孩母亲”事件发酵而世人皆知，如今又爆出天量的地方债而再度冲上热搜。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-17.png)
-文章仅代表作者本人观点，与Gnews无关
+据官方数据显示，丰县2021年的财政收入仅为33亿元，但其地方债高达123亿元，债务率高达373%，其中其近3年的城投债高达70亿元。
 
-视频参看：
-[2022.02.18早 《NFSC新闻》](https://gtv.org/video/id=620f9ee1b706176dd78c862a)
-[2022.02.18早 G|TV《新闻访谈》](https://gtv.org/video/id=620fa720b706176dd78c940b)
+丰县地区有两个融资平台**，**分别为丰县经济开发区投资发展有限责任公司，和丰县城市投资发展集团有限公司，实际控制人均为丰县人民政府。说白了城投公司就是地方政府借钱用的“马甲”。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+2009年中共为应对国际金融危机，推出了4万亿经济刺激计划，由此各类地方投融资平台遍地开花，而城投债作为政府信用背书而备受欢迎，政府也靠着城市基础建设拉动经济增长，一来二去地方债务债台高筑。疯狂扩张下的债市到2021年信用违约频繁发生。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/7A056E8A-CF24-4025-B535-861AA7FEACA4.jpeg)网络截图
+据统计，2020年全年债券违约规模超过500亿，创近5年内新高。2021年仅上半年，债券违约规模就已接近984亿元，大幅超过2020年同期水平。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-2.png)
+随着大牌国企天房、华晨、永煤、盛京能源相续违约，打破有“政府托底”和“刚性兑付”金身不破的传统。2022年将迎来城投债迎兑付高峰期，内外交困的政治、经济形势加上疫情的折腾，借新还旧的老套路难以为续，连环炸雷模式即将开启。天量债务违约意味着政府信用开始破产，中共政权休矣！
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+参考资料：
+
+[https://new.qq.com/omn/20220216/20220216A09T3U00.html](https://new.qq.com/omn/20220216/20220216A09T3U00.html)
+
+[http://www.nifd.cn/ResearchComment/Details/2910](http://www.nifd.cn/ResearchComment/Details/2910)
 
  
 

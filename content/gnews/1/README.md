@@ -2,12 +2,12 @@
 ---
 
 
-## 七哥金句：要备药！
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2027221/)
+## 2月18日文贵大直播摘要（图片9-12）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2027326/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句-1.001-2.jpeg)
-整理：雅典娜农场
-发布：枫叶红了
+设计：五月花农场 科存
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8AF50C1E-26AA-484A-9310-C52E9471D7A1.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/0884EA09-AA89-43F6-93DB-AEFF322B42DE.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/8EF0FC8D-9BF7-468D-A640-F6A1473F04FB.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/19E162D3-227E-4A6D-B530-93AF92B685F9.png)
+发布：水涨船高
 
  
 

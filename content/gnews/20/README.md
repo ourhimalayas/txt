@@ -2,20 +2,20 @@
 ---
 
 
-## 加拿大通货膨胀率失控飙升
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2027052/)
+## 新加坡不宜久留
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2027077/)
 
-加拿大温哥华扬帆农场    平民正道
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-据加拿大媒体《真北方》2月16日报道，加拿大的年度通货膨胀率已经超过了5%，为1991年以来最高。
+*发布：陶子*
 
-据加拿大统计局当天数据显示，所有类别的商品价格都持续上涨，其中住房价格上涨6.2%，并直接导致其他所有相关商品价格的上扬。同时，食品成本也继续增长，与去年同期比上涨了6.5%；1月份的汽油价格比去年同期高出31%。
-
-报道称，加拿大国民在通货膨胀中不堪重负，约43%的人称其正为个人财务和偿还债务而挣扎。对此，保守党领导人贝尔根认为总理特鲁多应该对失控的高通胀率负责，同时谴责自由党政府在本次经济危机中没有实施任何有效解决方案。
-
-* * *
-
-编辑： 平民正道    发布：平民正道
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

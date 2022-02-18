@@ -15,68 +15,68 @@
 
 ---
 
-### [七哥金句：要备药！](/content/gnews/1/README.md)
- ` 雅典娜GNotes`
-
-### [2月18日文贵大直播摘要（图片1-4）](/content/gnews/2/README.md)
+### [2月18日文贵大直播摘要（图片9-12）](/content/gnews/1/README.md)
  ` 波士顿五月花农场`
 
-### [【粤语配音】2022年2月18日：不要让无知把自己给毁了，五月份前坚持不要外出](/content/gnews/3/README.md)
+### [中央银行将不得不忍受更高的通货膨胀](/content/gnews/2/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [第200期 玫瑰看新闻](/content/gnews/3/README.md)
+ ` 【🌹玫瑰新闻】`
+
+### [2月18日文贵大直播摘要（图片5-8）](/content/gnews/4/README.md)
+ ` 波士顿五月花农场`
+
+### [七哥金句：要备药！](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [2月18日文贵大直播摘要（图片1-4）](/content/gnews/6/README.md)
+ ` 波士顿五月花农场`
+
+### [丰县天量地方债看中共政府信用破产](/content/gnews/7/README.md)
+ ` 澳喜农场`
+
+### [【粤语配音】2022年2月18日：不要让无知把自己给毁了，五月份前坚持不要外出](/content/gnews/8/README.md)
  ` MOS香港部`
 
-### [七哥金句：我们在一起的基础](/content/gnews/4/README.md)
+### [七哥金句：我们在一起的基础](/content/gnews/9/README.md)
  ` 雅典娜GNotes`
 
-### [七哥金句：风水和迷信](/content/gnews/5/README.md)
+### [俄罗斯刚刚炸毁乌克兰东部一条重要天然气管道](/content/gnews/10/README.md)
+ ` 美国政要直译推`
+
+### [七哥金句：风水和迷信](/content/gnews/11/README.md)
  ` 雅典娜GNotes`
 
-### [喜币场外交易额和喜联储KYC量再创新高](/content/gnews/6/README.md)
+### [喜币场外交易额和喜联储KYC量再创新高](/content/gnews/12/README.md)
  ` 扬帆枫叶快讯`
 
-### [NFSC新闻、G|TV新闻访谈简报|2022年2月18日早](/content/gnews/7/README.md)
+### [NFSC新闻、G|TV新闻访谈简报|2022年2月18日早](/content/gnews/13/README.md)
  ` 纽约香草山MOS01`
 
-### [2月18日文贵大直播要点（图片1-4）](/content/gnews/8/README.md)
+### [2月18日文贵大直播要点（图片1-4）](/content/gnews/14/README.md)
  ` 波士顿五月花农场`
 
-### [爱尔兰疫苗受害者提起刑事诉讼](/content/gnews/9/README.md)
+### [爱尔兰疫苗受害者提起刑事诉讼](/content/gnews/15/README.md)
  ` 扬帆枫叶快讯`
 
-### [七哥金句：人应先自助](/content/gnews/10/README.md)
+### [七哥金句：人应先自助](/content/gnews/16/README.md)
  ` 雅典娜GNotes`
 
-### [安省自由车队捐款者的信息被非法泄露](/content/gnews/11/README.md)
+### [安省自由车队捐款者的信息被非法泄露](/content/gnews/17/README.md)
  ` 扬帆枫叶快讯`
 
-### [渥太华警方将驱离和逮捕自由车队抗议者](/content/gnews/12/README.md)
+### [渥太华警方将驱离和逮捕自由车队抗议者](/content/gnews/18/README.md)
  ` 扬帆枫叶快讯`
 
-### [七哥金句：今天我们是流行音乐](/content/gnews/13/README.md)
+### [七哥金句：今天我们是流行音乐](/content/gnews/19/README.md)
  ` 雅典娜GNotes`
 
-### [新加坡不宜久留](/content/gnews/14/README.md)
+### [新加坡不宜久留](/content/gnews/20/README.md)
  ` 雅典娜GNotes`
 
-### [中共体制下只有铁链，不分你我它](/content/gnews/15/README.md)
- ` 波士顿五月花农场`
-
-### [文•贵天成——郭文贵先生谈“双龙计划”](/content/gnews/16/README.md)
- ` 墨尔本雅典娜农场`
-
-### [Casino 集团强力入住虚拟世界元宇宙沙盒 (SAND)](/content/gnews/17/README.md)
+### [Casino 集团强力入住虚拟世界元宇宙沙盒 (SAND)](/content/gnews/21/README.md)
  ` 纽约香草山MOS02`
-
-### [加拿大皇家骑警试图冻结多个数字货币钱包](/content/gnews/18/README.md)
- ` 扬帆枫叶快讯`
-
-### [新加坡疫苗很快停止，新加坡和共产党的勾兑](/content/gnews/19/README.md)
- ` 雅典娜GNotes`
-
-### [加拿大通货膨胀率失控飙升](/content/gnews/20/README.md)
- ` 扬帆枫叶快讯`
-
-### [七哥金句：你真的懂爆料革命吗](/content/gnews/21/README.md)
- ` 雅典娜GNotes`
 
 ### [2022/02/18 英喜时事速递](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
@@ -117,8 +117,8 @@
 ### [文贵爆料 2.18：攻打乌克兰，普京一箭三雕](/content/gnews/34/README.md)
  ` 秘密翻译组-原创组`
 
-### [西媒头条 — 第176期](/content/gnews/35/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [七哥谈以后的大直播只多不少](/content/gnews/35/README.md)
+ ` MG FARM`
 
 ### [谷爱凌争议言论开始发酵](/content/gnews/36/README.md)
  ` NFSC News`

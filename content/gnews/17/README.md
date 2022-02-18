@@ -2,68 +2,22 @@
 ---
 
 
-## Casino 集团强力入住虚拟世界元宇宙沙盒 (SAND)
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2027068/)
+## 安省自由车队捐款者的信息被非法泄露
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2027109/)
 
-译评：香草山商业部 — 文锤
+加拿大温哥华扬帆农场    平民正道
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+据加拿大媒体【真北方】2月17日报道，安省一家面包店主因向“自由车队”捐款，而在社交媒体上和其营业场所中受到不明人员滋扰。
 
+据悉，一名男子日前进入该商店并威胁正在工作的女员工，称向抗议车队捐赠1000元是支持“叛徒”。此后店主还收到了内容为“白人至上种族主义者”电子邮件的侮辱和谩骂。
 
+报道称，已为“自由车队”募集到了数百万美元的筹款网页平台，近日被黑客非法入侵并导致大量捐款者个人信息被泄露。随后，有大量匿名的推特账户立即开始对这些支持者进行攻击。而传统媒体和自由党知名人士则在网上分享这些非法获取的信息。
 
+评论指出：当权者为维护其统治地位而不择手段地打压民意、制造分裂，挑起争端之举，已不再是独裁中共的专利。特鲁多假借[紧急状态法]剥夺和侵害加拿大人自由的罪行必将遭到强烈反抗和彻底追责。
 
+* * *
 
-在家乐福之后，轮到法国大型超市零售集团宣布它进入虚拟世界了。这个法国集团来到沙盒 (SAND) 虚拟世界以分发可在现实世界中使用的促销和优惠券。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/groupe-casino-metaverse-the-sandbox-sand.jpg)[图片来源](https://cryptoast.fr/groupe-casino-metaverse-the-sandbox-sand/)
-
-**可以在Leader Price超市赢取优惠券的游戏**
-
-日前，法国零售巨头家乐福宣布[购买了沙盒世界（SAND）的虚拟地块](https://cryptoast-fr.translate.goog/carrefour-parcelle-terrain-metaverse-the-sandbox-sand/?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN)。如今，Casino 集团正在通过其房地产子公司大张旗鼓地进入元宇宙。
-
-如果家乐福没有具体说明它打算在元宇宙中做什么，那么Casino集团已经公布了它的部分雄心壮志。
-
-没有虚拟商店，而是一个采用了已在沙盒上找到的代码的游戏。它最初将保留给Casino 集团折扣品牌 Club Leader Price 的会员，他们将获得“黄金门票”。
-
-“我们于 2021 年底开始购买地块，但我们正在开展几个旨在提供客户体验的项目。我们采用工业方法。我们的目标是用这些新的虚拟资产创造价值，就像我们使用我们的真实资产一样。”Casino Immobilier 首席执行官 Nicolas Joly 在接受 Les Échos 采访时补充道。
-
-**Monoprix 和 Franprix 可以效仿 Leader Price 的例子**
-
-Casino集团开发的游戏目的很简单。在属于该组的元宇宙The SandBox的情节中，参与者将不得不从Club Leader Price的在线商店中搜索食物，以获得在现实世界中使用的代金券或折扣。
-
-该公司还在研究以不可替代代币（NFT）的形式实施奖励。
-
-为 Club Leader Price 会员准备的这款游戏将作为 Casino 集团的体验。如果它被证明是成功的，它应该将其他大型零售商，如 Monoprix 或 Franprix，带入元宇宙。
-
-**译者评**：鉴于喜马拉雅币即将被越来越多的人们所接受，Hpay凭借其瞬间交易功能和无手续费的巨大优势，可以甩其他加密货币几条街。在可预见的未来，虚拟世界一定是喜马拉雅币大显身手的领域。
-
-**原文链接：**
-
-**[Le groupe Casino débarque en force dans le metaverse The Sandbox (SAND) (cryptoast.fr)](https://cryptoast.fr/groupe-casino-metaverse-the-sandbox-sand/)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2月.jpg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+编辑： 平民正道    发布：平民正道
 
  
 

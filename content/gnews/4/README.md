@@ -2,12 +2,12 @@
 ---
 
 
-## 七哥金句：我们在一起的基础
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2027187/)
+## 2月18日文贵大直播摘要（图片5-8）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2027279/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句5-1-2.jpg)
-整理：雅典娜农场
-发布：枫叶红了
+设计：五月花农场 科存
+![](https://assets.gnews.org/wp-content/uploads/2022/02/14042BE8-2300-48EC-971C-6B1D49F9E3AE.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/241A47B5-2350-4DC9-B01B-1221A24C19AE.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/167BFED3-10FB-4721-B726-F2C12EE176B4.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/0DC283D4-AABC-47BC-85E3-2CA940192436.png)
+设计：水涨船高
 
  
 
