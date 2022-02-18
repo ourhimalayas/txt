@@ -2,21 +2,25 @@
 ---
 
 
-## 2023年G7峰会或在日本群马举行
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2023823/)
+## 围绕中共攻台作战想定 美军在冲绳开展离岛夺岛训练
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2023870/)
 
-撰稿：东京樱花团：百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-33.jpg)[图片来源](https://www.arabnews.com/node/1916191/world)
-2月18日《产经新闻》报道，外务大臣林芳正18日在外务省会见了群马县县长山本一太。山本要求将该县选为明年在日本举行的七国集团首脑会议的举办地。林芳正表示，”将与相关部门和机构协商，作好一切可能的准备，确保其成功。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-77.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https://cdn-japantimes.com/wp-content/uploads/2021/05/np_file_86462-870x489.jpeg&amp;imgrefurl=https://www.japantimes.co.jp/news/2021/05/11/national/sdf-us-france-joint-drills/&amp;tbnid=gwz37ubMcqrhhM&amp;vet=12ahUKEwiv_MfQr4j2AhVGx2EKHdbwDvoQMygGegUIARCRAQ..i&amp;docid=bnN0Opcg-r921M&amp;w=870&amp;h=489&amp;q=US%20military%20Okinawa%20military%20training&amp;ved=2ahUKEwiv_MfQr4j2AhVGx2EKHdbwDvoQMygGegUIARCRAQ)
+据日本共同社2月17日消息，美国海军陆战队正在进行新的“远征前进基地作战”（EABO）训练，把冲绳县多个美军设施视为离岛，分散运用小规模部队，主要考虑是中共的军事野心和可能的动作。
 
-政府将在今年6月德国举行七国集团峰会时决定主办城市。 1月，外交部在部内设立了 “2023年七国集团峰会筹备办公室”。收集候选地点的住宿、交通、安全和其它方面的信息。除群马县之外，广岛，名古屋和福冈等城市也已宣布有意主办该峰会。
+这是仅海军陆战队员就有约7500人参加的罕见大规模训练。除在近海和上空有美海军核动力航母等之外，日本航空自卫队的战机也参加了训练。
 
-信息源：
+参与策划训练的Phillip·Peacock中校称，“这是旨在迅速应对不测事态和地区危机的演练”，认为会提升支援美海军和自卫队的能力。
 
-[林外相に群馬・山本知事がＧ７サミット開催を要望](https://news.yahoo.co.jp/articles/b928862d39dab33d660a537482e24c5c1bcf9ced#:~:text=%E3%83%88%E3%)
+从此次美军训练将冲绳设置为离岛并实施夺岛的作战想定来看，美军应对中共攻台的战术演练已经非常成熟。
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
+信息来源：
+
+[独家：美军在冲绳实施将美军设施视为离岛的训练](https://china.kyodonews.net/news/2022/02/8d7cac987583.html)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 

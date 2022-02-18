@@ -2,31 +2,37 @@
 ---
 
 
-## 以色列即将取消，疫苗绿色通行证
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2023015/)
+## 拜登政府将提创纪录国防预算
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2023042/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：银河系农场-骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-8.png)
+据路透社2月17日消息，美国总统拜登预计将要求国会，为2023年提供超过7700亿美元的国防预算。而这一数字也将创下了美国国防预算的新纪录。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1682.png)
+据悉，国防部长劳埃德·奥斯汀、和白宫管理和预算办公室 (OMB) 正在进行预算谈判，国防部2023财政年度的预算，可能超过8000亿美元。此项预算包括，五角大楼工资、坦克、F35隐形喷气机等费用的支出。
 
-整理/编辑：小鱼儿
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-02-下午10.11.59-13.png)
-当地时间2月18日，据俄罗斯电台（RT）报道，总理纳夫塔利·贝内特（Naftali Bennett）周四宣布，“今天早些时候，我与卫生部长和其他官员进行了讨论，我们将停止使用绿色通行证，”并补充说，“未来几天”将放宽更多限制。总理称，新冠病毒感染人数下降，是取消限制的理由。
+除继续投资武器装备研发，应对与中俄之间可能的冲突与战争外，核现代化计划也被列入政府资助项目。据悉，该预算的首要任务包括造船、发展太空能力、导弹预警以及弹道导弹潜艇、轰炸机和陆基导弹的核“三位一体”现代化。
 
-在过去一年的大部分时间里，通行证系统要求以色列人，出示疫苗接种证明才能进入一长串室内公共场所，包括酒吧、酒店、餐馆、健身房甚至礼拜场所。
+新闻来源：
 
-援引耶路撒冷邮报，虽然绿色通行证将在 3 月 1 日之前完全淘汰，但进入疗养院和其他高风险场所的人，仍需进行病毒检测。
+[EXCLUSIVE Biden to seek more than $770 billion in 2023 defense budget, sources say](https://www.reuters.com/world/us/exclusive-biden-seek-more-than-770-billion-2023-defense-budget-sources-say-2022-02-16/)
 
-政府取消疫苗通行证的决定，是在数千人涌入耶路撒冷，要求结束新冠限制几天后做出的。示威者称，这一行动为类似于最近几周，在加拿大看到的“自由车队” ，有些人甚至挥舞着加拿大国旗。
+[英媒：为应对中俄 拜登将提创纪录国防预算](https://m.dw.com/zh/%E8%8B%B1%E5%AA%92%E7%82%BA%E6%87%89%E5%B0%8D%E4%B8%AD%E4%BF%84-%E6%8B%9C%E7%99%BB%E5%B0%87%E6%8F%90%E5%89%B5%E7%B4%80%E9%8C%84%E5%9C%8B%E9%98%B2%E9%A0%90%E7%AE%97/a-60807926)
 
-参考新闻：[Israel scrapping Covid vaccine ‘green pass’](https://www.rt.com/news/549779-israel-ending-vaccine-green-pass/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-3.png)
 
-发布：tianzhihuan
+编辑/总编：雪梨
 
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-8.png)
+
 
  
 
