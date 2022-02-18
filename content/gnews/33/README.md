@@ -2,18 +2,16 @@
 ---
 
 
-## 西媒头条 — 第176期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2026420/)
+## 五月花简报（02/18/2022）
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2026549/)
 
-制作：蚂蚁兄弟
+编辑：波士顿五月花—-冲天一怒
 
-关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/A26B7F28-A6EE-4A71-8172-9431CB105EC2.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/xm220218.001-1.jpeg)
+*发布：思澈*
 
-发稿：信心的选择
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-5.jpeg)
 
  
 

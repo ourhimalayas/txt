@@ -2,20 +2,20 @@
 ---
 
 
-## 病毒测试准确率不超50%
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2026957/)
+## 加拿大皇家骑警试图冻结多个数字货币钱包
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2027066/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+加拿大温哥华扬帆农场    平民正道
 
-*发布：陶子*
+据数字货币行业媒体《计数信号》2月16日报道，在总理特鲁多的授意之下，皇家骑警当天命令所有受[加拿大金融交易和报告分析中心]监管的机构，停止所有与渥太华自由车队有关的数字货币钱包交易。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+据悉，在被特鲁多政府禁止交易的34个数字货币钱包中，至少有一个比特币钱包的金额超过了100万美元。但警方目前仍未明确如何能阻止这些资金被用来支持自由车队的抗议者。
+
+尽管当局急于冻结所有与和平抗议活动有关的资金，但这些数字货币的流通使用已远超执法部门的识别能力及其可控制的范围和手段。目前，特鲁多疯狂阻截支持和平抗议的赞助资金之举已遭到各界的强烈抨击。
+
+* * *
+
+编辑： 平民正道    发布：平民正道
 
  
 

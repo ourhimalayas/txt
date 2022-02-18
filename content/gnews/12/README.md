@@ -2,20 +2,20 @@
 ---
 
 
-## 世人对毒疫苗的无知
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2027003/)
+## 渥太华警方将驱离和逮捕自由车队抗议者
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2027088/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+加拿大温哥华扬帆农场    平民正道
 
-*发布：陶子*
+据加拿大媒体[后千禧年]2月16日报道，渥太华警方当天发布公告，要求自由车队反疫苗护照运动的抗议者们立即离开市中心国会山前的集结现场，否则将被强行逮捕。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+报道指出，该公告是在渥太华前警察局长辞职一天后发布的，并声称：根据联邦《紧急状态法》，任何人在渥太华参加示威活动都属违法。警方将扣押抗议者车辆和吊销驾照，违法者还将面临罚款和牢狱之灾。尽管如此，聚集在渥太华的和平抗议民众仍誓言抗争到底，直到重获自由的权力为止。
+
+评论指出，加拿大反疫苗护照的自由车队抗议运动自其开展以来，如春风野火般燃遍全球。不仅得到了大多数民众的参与和支持，还迅速引起了美、澳、法、荷等国同行的响应。其声势之浩大，影响之广泛以至于特鲁多在惊恐无措之余，不得不强施[紧急状态法]，而再次成为加拿大的耻辱。
+
+* * *
+
+编辑： 平民正道    发布：平民正道
 
  
 

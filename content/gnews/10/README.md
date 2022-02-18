@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：坚信灭共信心
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2027015/)
+## 七哥金句：人应先自助
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2027129/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句14.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句15.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句3-1-3.jpg)
 整理：雅典娜农场
 发布：枫叶红了
 

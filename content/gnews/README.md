@@ -15,128 +15,128 @@
 
 ---
 
-### [新加坡不宜久留](/content/gnews/1/README.md)
+### [七哥金句：要备药！](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [文•贵天成——郭文贵先生谈“双龙计划”](/content/gnews/2/README.md)
+### [2月18日文贵大直播摘要（图片1-4）](/content/gnews/2/README.md)
+ ` 波士顿五月花农场`
+
+### [【粤语配音】2022年2月18日：不要让无知把自己给毁了，五月份前坚持不要外出](/content/gnews/3/README.md)
+ ` MOS香港部`
+
+### [七哥金句：我们在一起的基础](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥金句：风水和迷信](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [喜币场外交易额和喜联储KYC量再创新高](/content/gnews/6/README.md)
+ ` 扬帆枫叶快讯`
+
+### [NFSC新闻、G|TV新闻访谈简报|2022年2月18日早](/content/gnews/7/README.md)
+ ` 纽约香草山MOS01`
+
+### [2月18日文贵大直播要点（图片1-4）](/content/gnews/8/README.md)
+ ` 波士顿五月花农场`
+
+### [爱尔兰疫苗受害者提起刑事诉讼](/content/gnews/9/README.md)
+ ` 扬帆枫叶快讯`
+
+### [七哥金句：人应先自助](/content/gnews/10/README.md)
+ ` 雅典娜GNotes`
+
+### [安省自由车队捐款者的信息被非法泄露](/content/gnews/11/README.md)
+ ` 扬帆枫叶快讯`
+
+### [渥太华警方将驱离和逮捕自由车队抗议者](/content/gnews/12/README.md)
+ ` 扬帆枫叶快讯`
+
+### [七哥金句：今天我们是流行音乐](/content/gnews/13/README.md)
+ ` 雅典娜GNotes`
+
+### [新加坡不宜久留](/content/gnews/14/README.md)
+ ` 雅典娜GNotes`
+
+### [中共体制下只有铁链，不分你我它](/content/gnews/15/README.md)
+ ` 波士顿五月花农场`
+
+### [文•贵天成——郭文贵先生谈“双龙计划”](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
 
-### [加拿大皇家骑警试图冻结多个数字货币钱包](/content/gnews/3/README.md)
- ` 扬帆枫叶快讯`
-
-### [新加坡疫苗很快停止，新加坡和共产党的勾兑](/content/gnews/4/README.md)
- ` 雅典娜GNotes`
-
-### [加拿大通货膨胀率失控飙升](/content/gnews/5/README.md)
- ` 扬帆枫叶快讯`
-
-### [七哥金句：你真的懂爆料革命吗](/content/gnews/6/README.md)
- ` 雅典娜GNotes`
-
-### [新加坡对七哥的影响](/content/gnews/7/README.md)
- ` 雅典娜GNotes`
-
-### [2022/02/18 英喜时事速递](/content/gnews/8/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [疫苗灾难完全没有开始](/content/gnews/9/README.md)
- ` 雅典娜GNotes`
-
-### [七哥金句：坚信灭共信心](/content/gnews/10/README.md)
- ` 雅典娜GNotes`
-
-### [香港新加坡以色列的疫情灾难来自共产党毒疫苗](/content/gnews/11/README.md)
- ` 雅典娜GNotes`
-
-### [世人对毒疫苗的无知](/content/gnews/12/README.md)
- ` 雅典娜GNotes`
-
-### [西方的墓碑文明墓碑科技](/content/gnews/13/README.md)
- ` 雅典娜GNotes`
-
-### [研究显示：TikTok可以绕过苹果和谷歌的隐私保护获取用户数据](/content/gnews/14/README.md)
+### [Casino 集团强力入住虚拟世界元宇宙沙盒 (SAND)](/content/gnews/17/README.md)
  ` 纽约香草山MOS02`
 
-### [七哥说“我挣钱，我赚钱，我也享受人生，我也准备了，我也挑战了，我也收拾，受尽了天下”](/content/gnews/15/README.md)
- ` MG FARM`
+### [加拿大皇家骑警试图冻结多个数字货币钱包](/content/gnews/18/README.md)
+ ` 扬帆枫叶快讯`
 
-### [七哥金句：没有自我和修行](/content/gnews/16/README.md)
+### [新加坡疫苗很快停止，新加坡和共产党的勾兑](/content/gnews/19/README.md)
  ` 雅典娜GNotes`
 
-### [2022/02/15 墙内世界](/content/gnews/17/README.md)
+### [加拿大通货膨胀率失控飙升](/content/gnews/20/README.md)
+ ` 扬帆枫叶快讯`
+
+### [七哥金句：你真的懂爆料革命吗](/content/gnews/21/README.md)
+ ` 雅典娜GNotes`
+
+### [2022/02/18 英喜时事速递](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [病毒测试准确率不超50%](/content/gnews/18/README.md)
- ` 雅典娜GNotes`
+### [研究显示：TikTok可以绕过苹果和谷歌的隐私保护获取用户数据](/content/gnews/23/README.md)
+ ` 纽约香草山MOS02`
 
-### [埃内斯·坎特·自由荣获2022年诺贝尔和平奖提名](/content/gnews/19/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [2022/02/15 墙内世界](/content/gnews/24/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [DC每日热点0218](/content/gnews/20/README.md)
+### [DC每日热点0218](/content/gnews/25/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [香港中共病毒形势失控](/content/gnews/21/README.md)
+### [七哥谈周围的华人](/content/gnews/26/README.md)
+ ` MG FARM`
+
+### [香港中共病毒形势失控](/content/gnews/27/README.md)
  ` 纽约香草山MOS02`
 
-### [有声|香港疫情失控 医疗系统即将全面崩溃](/content/gnews/22/README.md)
- ` MOSREC`
-
-### [有声|中共政治、经济已回天乏术](/content/gnews/23/README.md)
- ` MOSREC`
-
-### [有声|德国政府表示，将分阶段解除防疫限制](/content/gnews/24/README.md)
- ` MOSREC`
-
-### [加拿大议员康迪斯-贝尔根女士：总理在过去两年里无视加拿大人，骂他们、侮辱他们，现在是时候让我们每一个人展现领导力，对这个紧急状态法说不！](/content/gnews/25/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [从中共病毒到奥米克戎都是化学病](/content/gnews/26/README.md)
+### [从中共病毒到奥米克戎都是化学病](/content/gnews/28/README.md)
  ` 墨尔本雅典娜农场`
 
-### [喜币场外交易额和喜联储KYC量再创新高](/content/gnews/27/README.md)
+### [喜币场外交易额和喜联储KYC量再创新高](/content/gnews/29/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [真相工程再爆猛料FDA执行官被拍](/content/gnews/28/README.md)
+### [真相工程再爆猛料FDA执行官被拍](/content/gnews/30/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [西班牙巴塞罗那喜悦农场Himalaya Pay推广追踪](/content/gnews/29/README.md)
+### [西班牙巴塞罗那喜悦农场Himalaya Pay推广追踪](/content/gnews/31/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [瑞士、奥地利和以色列取消所有限制，包括Covid护照和口罩](/content/gnews/30/README.md)
+### [瑞士、奥地利和以色列取消所有限制，包括Covid护照和口罩](/content/gnews/32/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [五月花简报（02/18/2022）](/content/gnews/31/README.md)
+### [五月花简报（02/18/2022）](/content/gnews/33/README.md)
  ` mayflowertranslate`
 
-### [文贵爆料 2.18：攻打乌克兰，普京一箭三雕](/content/gnews/32/README.md)
+### [文贵爆料 2.18：攻打乌克兰，普京一箭三雕](/content/gnews/34/README.md)
  ` 秘密翻译组-原创组`
 
-### [西媒头条 — 第176期](/content/gnews/33/README.md)
+### [西媒头条 — 第176期](/content/gnews/35/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [欧盟另一疯狂举动：五千万疫苗过期，即将扔掉](/content/gnews/34/README.md)
- ` xiaobaige`
-
-### [谷爱凌争议言论开始发酵](/content/gnews/35/README.md)
+### [谷爱凌争议言论开始发酵](/content/gnews/36/README.md)
  ` NFSC News`
 
-### [郭先生揭秘俄罗斯近期军事行为的背后原因](/content/gnews/36/README.md)
+### [郭先生揭秘俄罗斯近期军事行为的背后原因](/content/gnews/37/README.md)
  ` NFSC News`
 
-### [美中不断交前提是中共必须配合病毒溯源调查](/content/gnews/37/README.md)
+### [美中不断交前提是中共必须配合病毒溯源调查](/content/gnews/38/README.md)
  ` NFSC News`
 
-### [轻装前进 灭共百无禁忌](/content/gnews/38/README.md)
+### [轻装前进 灭共百无禁忌](/content/gnews/39/README.md)
  ` NFSC News`
 
-### [2022/02/16 墙内世界](/content/gnews/39/README.md)
+### [2022/02/16 墙内世界](/content/gnews/40/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2/18/2022国际财经快讯：雷诺在扭亏为盈后加速偿还国家援助；挪威航空重组后扭亏为盈](/content/gnews/40/README.md)
+### [2/18/2022国际财经快讯：雷诺在扭亏为盈后加速偿还国家援助；挪威航空重组后扭亏为盈](/content/gnews/41/README.md)
  ` 秘密翻译组金融团队`
-
-### [日本民间反抗对儿童的中共病毒疫苗接种](/content/gnews/41/README.md)
- ` NFSC News`
 
 ### [02/18/22 香港快讯 公院濒爆煲 伊院护士：急症室医护1对100病人](/content/gnews/42/README.md)
  ` 英喜-粵語組`
