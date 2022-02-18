@@ -2,8 +2,8 @@
 ---
 
 
-## 为什么停止打疫苗
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2026911/)
+## 新加坡对七哥的影响
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2027043/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

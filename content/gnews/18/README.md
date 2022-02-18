@@ -2,34 +2,20 @@
 ---
 
 
-## 七哥说“瑞银的伦敦部门充分的明显的参与了构成索赔的行动的几个要素”
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2026726/)
+## 病毒测试准确率不超50%
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2026957/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-2022-02-09直播摘录09：43：40
+*发布：陶子*
 
-很高兴。
-哇塞。
-在裁决方面，我们不是啊。不伦波格报的报道说，对于试图以管辖权理由驳回部分案件的运营来说，这是一个打击。
-伦敦的一名法官周山表示他可以监督此案，因为伦敦是有害事件发生的地方。而瑞银的伦敦部门充分的明显的参与了构成索赔的行动的几个要素。厉害了。
-
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

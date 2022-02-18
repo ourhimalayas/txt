@@ -2,31 +2,32 @@
 ---
 
 
-## 西班牙巴塞罗那喜悦农场Himalaya Pay推广追踪
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2026613/)
+## 有声|中共政治、经济已回天乏术
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2026760/)
 
-**作者：七叶之芒**
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-8.png)
+郭文贵先生在2月16日的直播中表示，无论是全球政治影响力，还是国内政治和经济，中共已回天乏术。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip西班牙巴塞罗那喜悦农场Himalaya-Pay推广追踪.png)
+在中共残杀香港同胞、对新疆实施种族灭绝，利用蓝金黄渗透全世界，释放中共病毒和疫苗残害全世界人民，北京冬奥会遭世界唾弃的事实面前，中共在全球的影响力已回天乏术。
 
-2021年2月14日，西班牙巴塞罗那喜悦农场Himalaya Pay推广工作正式起锚。西站战友在站长文戈七雄的带领下，“首航”当天就有7家商业实体加入Himalaya Pay支付系统。
+中共以黑治国，以警治国，以贪反贪，以黑反贪，党内斗争激烈，中共内部政治已回天乏术。
 
-在西站Himalaya Pay推广团队战友们的不断努力下，截止至2月19日，共有17家商业实体已成功加入到Himalaya Pay支付系统中。
+在二十几家商业银行已经破产，二百多家银行即将破产；两万家小房企破产，两千多家即将破产的情况下，中共国经济已回天乏术。
 
-17家商业实体涉及到西班牙、德国、巴拿马、韩国等国家。囊括的行业包含了宠物粮食及零食、帆船租赁、酒店旅游、印刷、百货商超、大型餐馆、大型精品卖场、连锁加盟超市、内衣批发、食品、药品、化妆品等行业。其中，商家“Happy M.Q”是提供欧洲主要的宠物粮食及零食的供应商，该供应商的客户几乎遍及全球；大型精品卖场“At Home”,大型餐馆“M\_WOK”均属当地本行业的龙头企业；韩国企业“生长国际株式会社LOEPEL”的下属公司“生长国际”的韩国护肤品和化妆品产品在亚洲地区受到女性朋友的广泛青睐；“Playa Bluff Lounge&Restaurant”度假酒店坐落在巴拿马西北部城市博卡斯德尔托罗，位于加勒比海博卡斯德尔托罗群岛克隆岛，岛上风景迷人，是旅游度假的好去处；“Mi jovl”印刷厂，是西班牙首家加入Himalaya Pay支付系统的实体经济商家，位于西班牙瓦伦西亚的拉尔科拉市，印刷厂主对喜支付的系统产生了浓厚的兴趣，期待着Himalaya Pay 在全球的使用……
+文字版原文：[中共政治、经济已回天乏术](https://gnews.org/zh-hans/2022917/)
 
-西班牙巴塞罗那喜悦农场Himalaya Pay推广团队的“无敌战舰”已经启航，作为西站今年最重要的线下工作已经全面启动。
+音频处理/发稿：Daxia
 
-静待西站团队的捷报再传。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-* * *
-
-***审核：Bryan
-校对：信心满满
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-5.jpeg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

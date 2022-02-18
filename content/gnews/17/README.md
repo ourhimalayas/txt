@@ -2,30 +2,33 @@
 ---
 
 
-## 有声|德国政府表示，将分阶段解除防疫限制
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2026755/)
+## 2022/02/15 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2026958/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9D%A1%E5%B9%85.png)
-2月16日，德国总理萧兹在与地方领导人会谈后表示，鉴于感染率持续下降，德国将分三个阶段逐步解除防疫限制。
+1. 2月15日，广东深圳的街道，中共以疫情防控为由进行的封控措施在常态化的持续着。
+2. 2月15日。中共通报湖南郴州出现2例香港返郴人员新冠肺炎确诊病例，整个城市经济瞬间陷入停摆，餐饮店老板忧心忡忡。
+3. 中共各地房地产房市呈现崩盘迹象，平均房价相比最高点均出现对折处理的情况。
+4. 未来中国大陆将会大量出现视频中这种无人居住的废弃楼盘的场景。
+5. 2月13日，云南，一岁女婴被拐30年后回乡认亲祭拜死去父亲。中共国大陆存在大量普通人家妇女儿童被拐案件被中共政府放纵无视。
+6. 河南市民吐槽申诉交通违章罚错退款被耗时一年走审批程序，花费¥300，退款¥200。
+7. 2月14日深圳，父亲通过远程摄像头记下赣州老家的儿子凌晨五点独自一人离家上学画面，小男孩打着手电，陪伴他的只有两条忠实的狗。 #留守儿童
+8. 2月14日，江苏昆山。大润发员工更换商品标签时，直接穿鞋进冷柜踩冷冻食品被曝光。
+9. 擅长丧事喜办的中共政府将2021年河南大水灾时救人的“京广路隧道呐喊哥”，项城人侯文超评为第八届周口市见义勇为道德模范。但是却严密掩盖郑州大水灾的实际死亡人数。
+10. 2月11日，山东沛县卡车司机接受记者采访时吐槽，现在行业艰难，大家都是勉力维持。
+11. 2月3日，浙江温州。一民警执勤时突然昏厥倒地被摄像头记录下来，中共宣传机构宣传为劳累所致。
 
-第一阶段，无需检查疫苗护照，非必要性商家向所有人开放。但民众仍需佩戴防疫口罩。
 
-第二阶段，自3月4日起，顾客无需检查疫苗接种证明，仅需提供检测阴性结果，即可进入餐厅和饭店就餐。
+* * *
 
-文字版原文：[德国政府表示，将分阶段解除防疫限制](https://gnews.org/zh-hans/2022928/)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-音频处理/发稿：Daxia
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+编辑：【英国伦敦喜庄园编辑部】
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

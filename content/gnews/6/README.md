@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：没有你们，我什么都不是
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2026912/)
+## 七哥金句：你真的懂爆料革命吗
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2027045/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句10.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句-1.001-1.jpeg)
 整理：雅典娜农场
 发布：枫叶红了
 

@@ -2,40 +2,20 @@
 ---
 
 
-## 七哥说“我们一定会让美国人知道PAG骗了多少美国人”
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2026891/)
+## 疫苗灾难完全没有开始
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2027028/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-2022-02-09直播摘录09:48:13
+*发布：陶子*
 
-美国老人的未来，我们一定会让美国人知道PAG骗了多少美国人，以色列人的钱。
-啊，单伟建为什么能从TPG到PAG。啊，都是机械列的是吧。你为什么喜欢那么机械列。
-是吧啊，然后造假合同，造假窑来黑展，然后用了美国最大的律师几个律师事务所。用了安迪莫斯，安迪莫斯竟然是为严重违反道德。
-严格讲他有没有被犯罪呢。我们一定会让安迪莫斯的这个律师执照给他取消了你走的看。
-啊，哥早着呢，他的律师书，他必须给他告下去啊，所以说，兄弟们，今天对咱又是个大日子。
-打开了沼泽地与中共的邪恶的勾对大门，而且我深信不疑。啊，疫苗冠状病毒啊，是一个，绝对和这些藏了这些黑钱的人有勾结。
-他们就笑着，都死赶紧来好了啊，这些人可最最想收益什么UBS啊。什么德医治啊，
-希望这人类人少一半的好的没人来拿他的钱了，全是人类的，一大半的黑钱都来手里边呢。
-过去几百年了，一点从大清朝的黑钱到固然哪个黑钱就在他那了，但不认账啊。啊。这才是邪恶的追着我们这个七哥上半生。
-今年一个52。
-
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

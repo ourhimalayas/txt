@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/18/2022 10:04 PM (UTC)`
+
+2/18/2022 Miles Guo: Singapore worships both the UK and the US and follows the CCP as well, but its vaccine mandate will soon be stopped. The CCP has taken complete control of Singapore and transferred most of its money hidden in the US to Singapore. The business of financial note in Singapore is ranked NO.1 in the world. Singapore is no longer suitable for a long-term stay, and the Singaporean Chinese will be the victims of its internal struggles.<br/><br/>2/18/2022 文贵直播：新加坡既崇拜英美又跟着中共，但其疫苗强制令很快会停；中共已彻底控制新加坡并将大多数藏在美国的钱转过去了；新加坡票据业务排全球第一；新加坡不宜久留，华人将是其内部斗争的牺牲品<br/>
+![img](https://media.gettr.com/group9/getter/2022/02/18/22/ba2a532f-1130-fce5-5934-0a157a7d1aa3/out.jpg)
+
+---
+
 `@miles 2/18/2022 5:34 PM (UTC)`
 
 ⚠️Cronologia degli stati federali della nuova Cina sul virus PCC e sul vaccino covid<br/><br/>Gli stati federali della nuova Cina si sono sempre impegnati per la verità e per salvare vite umane, esponendo la natura malvagia del PCC e il fatto che hanno creato il virus PCC che ha ucciso milioni di persone in tutto il mondo. Inoltre, gli SFNC hanno diffuso nel mondo la terapia COVID e i relativi farmaci, così come le informazioni e i dati reali sul vaccino COVID. Tutti i fatti dimostrano che ciò che il PCC ha fatto non ha nulla a che fare con il popolo cinese, il PCC non può rappresentare il popolo cinese, che è anche la vittima.<br/><br/>⚠️关于新中国联邦爆料 #中共病毒 和 #中共病毒疫苗 灾难预警时间线（意大利语版）<br/><br/>新中国联邦致力于揭露中共邪恶本质，揭露他们制造中共病毒在全世界造成数百万人死亡的事实以及COVID疫苗的真实目的，揭示真相，拯救生命。中共的所作所为与中国人民无关，中共不代表中国人民，中国人民也是受害者。
@@ -147,13 +154,6 @@
 
 2/16/2022  STATEMENT OF MILES GUO REGARDING BANKRUPTCY FILING<br/><br/>2022年2月16日 郭文贵关于个人破产申请的声明
 ![img](https://media.gettr.com/group31/getter/2022/02/17/01/7a683c3a-1f35-4486-a24e-6dff201c7515/out.jpg)
-
----
-
-`@miles 2/17/2022 12:27 AM (UTC)`
-
-加拿大卡车司机：加拿大总理特鲁多的《紧急状态法》不会阻止他们。暂停他们的保险没有任何作用，他们没有打疫苗，唯一能说服他们离开的就是他们重获权利和自由。<br/><br/>Canadian truck drivers: Trudeau invoked this Emergencies Act won’t stop them. Suspend their insurance doesn’t do anything. They are not vaccinated, and the only thing that's gonna convince them to leave is getting their rights and freedoms back.
-![img](https://media.gettr.com/group29/getter/2022/02/17/00/5fc4dc94-173f-c1de-6e23-a5c4c5991e2c/out.jpg)
 
 ---
 

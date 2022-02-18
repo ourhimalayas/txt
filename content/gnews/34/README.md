@@ -2,36 +2,23 @@
 ---
 
 
-## 谷爱凌争议言论开始发酵
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2026085/)
+## 欧盟另一疯狂举动：五千万疫苗过期，即将扔掉
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2026334/)
 
-作者：纽约香草山农场 – AT，银河系农场 – 骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在2月16日的大直播中，郭文贵先生透露了一份独家情报：中共为了平息谷爱凌的国籍问题和外界对中共一系列违规操作的争议，其以气候为由，取消了谷爱凌的两场最重要赛事。
+#### 翻译               意大利达芬奇农场          小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-18-alle-17.42.56.png)图片来源：il paragone.it
+欧盟购入的五千五百万支疫苗即将过期， 在2022年2月底将被扔掉。这是一个巨大的浪费。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide4-9.jpeg)
+考虑到欧盟今年年初赠给非洲三千多万支疫苗，将近一半将被扔掉。乐施会(Oxfam)和紧急医疗救护(Emergency)目前正在揭露这一现象，他们呼吁布鲁塞尔对非洲大陆表现出更大的慷慨。
 
-郭先生解释到，谷爱凌早先在获得自由式女子大跳台项目金牌后表示，她在美国就是美国人，在中国就是中国人。但这一言论完全违背了中共面向全世界颁布的“只承认一个国籍”的法律，也是对整个世界的欺骗和愚弄。目前，谷爱凌事件在全球引起了强烈的反弹，一些政府表示，要对其进行彻底的调查。
+在这两个非政府组织的要求中，还有一项关于暂停疫苗专利以允许本地生产的协议。从这个意义上说，意大利政府也要求在这方面采取明确的立场。正如一直所解释的那样，欧盟是世界最大的疫苗出口国。到目前为止， 只有8%的疫苗是发往非洲的。非洲有11%的人口接受了前两剂疫苗， 而根据一致估计，自疫情爆发以来， 非洲大陆至少一年有250,000人死于该病毒， 差不多一天七千人。
 
-另一方面，多国运动员在冬奥会房间内发现了中共安装的隐藏摄像头，同时，中共勾兑、收买裁判的行为也有了确凿的证据。
+辉瑞在疫苗生产方面的德国合作伙伴BioNTech也仅向非洲国家出售了1%的出口产品。乐施会(Oxfam)意大利全球健康高级顾问萨拉•阿尔比亚尼( Sara Albiani )表示：“尽管说与非洲有特殊关系，但欧盟将欧洲生产的剂量出售给能够支付高昂价格的富裕国家， 这使得只有制药公司的利润优先。” 萨拉•阿尔比亚尼和紧急医疗救护(Emergency)总裁罗塞拉•米奇奥还宣称：“ 欧盟继续将制药公司的利益置于拯救非洲生命的目标之前。世界卫生组织推动的Covax倡议旨在到2021年为贫困国家20% 的人口接种疫苗，尽管得到了欧盟的支持，但迄今为止证明是失败的。”
 
-郭先生指出，中共违背奥运精神、突破道德底线、违反法律的行为已经引发了多国运动员、政府及关注人士的愤怒。
+原文链接：[https://www.ilparagone.it/attualita/50-milioni-di-vaccini-scaduti-stanno-per-finire-nel-cestino-lennesima-follia-dellue/](https://www.ilparagone.it/attualita/50-milioni-di-vaccini-scaduti-stanno-per-finire-nel-cestino-lennesima-follia-dellue/)
 
-参考链接：[https://www.gettr.com/post/pv68n2aea7](https://www.gettr.com/post/pv68n2aea7)
+编辑、上传：Xiao  baige
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
-
-总编：Irene木木
-编辑：飞虹
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
