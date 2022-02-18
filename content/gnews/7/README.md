@@ -2,42 +2,46 @@
 ---
 
 
-## 大直播后记：GTV是王与放下执着
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2023029/)
+## 這個社會沒有正義,從來沒有任何人想幫別人——羅斯福
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2023142/)
 
-#### 整理：Popeye、铁血丹心
-编辑：Mttfly
-![圖片](https://media.discordapp.net/attachments/906139544930361395/944075105250709524/f9718e79a6373fb9.jpg?width=2160&amp;height=1210)
-**GTV是王！战友们要去投资GTV，千万别落下！**
+G-TV視頻鏈接：[https://gtv.org/video/id=620e58652403672096ab59eb](https://gtv.org/video/id=620e58652403672096ab59eb)
 
-七哥绝不能有任何个人私心，对于我个人破产大家要看到一个最根本的问题：如果我个人破产造假，如果我拥喜币或者股份，那就等于“作死”。战友们是最大股东。话又说回来，咱们战友们一定要懂得你们的价值，就像我在一年前告诉你们“千万别放弃喜币”！你们有谁真心听进去了？你能想到今天会涨到450倍吗？所以大家一定要去投资GTV的股份，千万别落下！
+**摘要：**這個社會沒有正義，這個社會從來沒有任何人想幫別人，甚至每個人都特別開心別人比自己活得差，從來沒接受過別人比自己好。而且說：「這兒一切都是假的。」
 
-你知道对于GTV的大股东和投资人而言，最好事情是你们战友都别投，他们但凡有一点头脑都会懂得这个道理。他们让你们战友投干嘛？你们加在一起才是4.5亿美金，这才是几个币的钱啊！他们凭什么让战友占20%-30%（股份），而且你除占20%-30%的GTV股份，你还占盖特、Gclub还有整个喜联储的股份。他们宁愿告诉你：你别投了，我给你十倍回报。
+**標籤：**沒有正義,都是假的,新中國聯邦,爆料革命,郭文貴先生,
 
-但是我们现在要做到的是在任何情况下，都得让战友们投进去，这是我们的权益。我们跟你们这些大股东一起熬2-3年了，你必须得让我们投（资）。这就像谈恋爱一样，老娘跟你谈2-3年了，青春已经过2-3年了，你不能说现在你当富豪了、当官了，你让我去我改嫁，那不行！不管你给我多少钱，我也得必须跟你结婚了，这是因为我已经付出了，就这么简单，咱们必须要拿到这个东西。
+**正文：**
 
-但是作为GTV的投资者，你但凡有一点儿逻辑，你去想想你要是能拿到GTV的的股份，这将来会值多少钱？战友们会在几天之后看到新的公告，你们看到公告时候会吓死你们！等看到公告的时候，战友们就明白我说的道理了，甭说卖喜币了，“卖血”都值了！但是千万别卖血啊，这是开玩笑啊。
+**郭文貴先生：**你再想想當年，蒲安臣跟美國人跟中國簽那個合約的時候，在他的記錄中說的話，包括當年，大家記住，羅斯福總統家族在上海都有辦事處的，對中國人的描述說：「這個國家永遠視作旁邊的同類窮困潦倒，甚至是被虐待被掠殺，就看著視而不見，這個社會沒有正義，這個社會從來沒有任何人想幫別人，甚至每個人都特別開心別人比自己活得差，從來沒接受過別人比自己好。」而且說：「這兒一切都是假的。」
 
-七哥谈失去与得到，大家可以看到七哥现在的状态，我从来没有像现在感觉这么舒服过，这么全身心的轻松愉悦，特别是在我签署个人破产文件之后，我思考为什么要有这么多钱，用这些钱干啥？你们看到了千万别死在钱上！更不应死在名和权力上！这些东西都不属于你，早晚你都得放下。
+字幕來源：[2022月2日6日 《文貴大直播》全文字版](https://gnews.org/zh-hans/1971450/)
 
-有些战友说，七哥咱们把那十八楼的房子拿回来吧，我说放下就是拥有，放下将拥有更多！十八楼现在卖四千五百万，我当时八千多万现金买回来的。但是这可以换来无数个战友们拥有八千万！你觉得我执着地拥有那个八千万的房子好呢，还是让无数个战友们有八千万好呢？！
+編輯整理：Davis；
 
-现在我拥有了天下所有的兄弟姐妹的心和信任，七哥放下太多了。十八楼、盘古、裕达，你看七哥少一块肉了吗？！你们不了解盘古和裕达，那是我的生命，我的付出，我的劳动。我全家人过去几十年的成长，我在那里的爱情，我的孩子的成长，我的家人的付出，家人的生生死死，哪一样不比“十八楼”大？！
+字幕文件製作：知津；
 
-但是你要真正地了解到，你要灭共！你能活着，这就是上天给你的福分和恩赐了！你还没有打疫苗，你还有喜币……，这天下不都是咱们的了嘛？有太阳就有黑暗，从地球一百万亿年前碰撞之后产生出月亮，形成了磁场和引力之后，这个世界便有黑有白，有冷有热，有生有死，有失有得。人生最大的哲学和快乐就是“放得下”，享受失去和得到，真正地破掉内心的执着！
+視頻製作及上傳：Cindy；
 
-人生就这三万多天，你执着于那个十八楼干啥呢？无非是心中的一个执念而已，为什么要为了一个执念而让自己痛苦呢？放下就是最大的拥有，放下就是快乐，这就是我爱台湾的原因，因为台湾有佛学，台湾有人心，台湾善良！台湾人懂得多给你一些，因为它有佛教有信仰。不要为了失去而痛苦，你只能为你得到的太多而担心；你不要为失去而痛苦，你才真正的修行成功了！永远不要忘了，我们的一切的一切都是为了灭掉共产党，这叫“得到”，为了这个目标什么都可以失去，没有什么不可以失去的！
+G-News發佈：小滿；
 
-资料来源：[2022年2月16日 文贵大直播（EST 11:00-11:10）](https://gtv.org/video/id=620cf40c432ae869226d8db5)
+**廣而告之：尊敬的戰友，你的每一篇文字、每一段視頻、每一段社交媒體發文都是壓垮駱駝的一根稻草，歡迎加入我們****——**[**日本銀河系農場****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，歡迎訂閱我們的油管頻道：**[**郭文貴先生直播精選**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；歡迎關注蓋特獨家文貴先生大直播精選發佈賬號：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-*发布：陶子*
+聲明：文中內容根據郭文貴先生直播視頻整理，如果文字內容與視頻內容衝突則以原視頻為準，標題僅為概括，標題與視頻內容衝突之處僅代表作者個人觀點。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+歡迎喜聯盟進駐以及各農場兄弟姐妹們坐客串門，請通過以下方式關注及訂閱我們——
+
+Discord：[日本銀河系農場Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本銀河系農場](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民熱線](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ)、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[銀河系檔案放映館](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A)、[郭文貴先生直播精選](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、[喜馬拉雅日本銀河系農場 G-News](https://gnews.org/zh-hant/author/jgalaxy2021/)、[日本銀河系農場-阿爾法星球](https://gnews.org/zh-hant/author/galaxyalphaplanet/)、[銀河勇氣之星](https://gnews.org/zh-hant/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hant/author/newfoc/)；
+
+蓋特：[日本銀河系農場@himalayajgalaxy蓋特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本銀河系農場](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

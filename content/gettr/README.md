@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/18/2022 4:53 AM (UTC)`
+
+2/16/2022 Miles Guo: The CCP’s impact in the world, economy, and its internal political stability are waning, and no one dares to befriend the CCP. Hong Kong, the holy city, has debunked the lies of the CCP that the Chinese people do not deserve democracy and freedom. The technological output of Taiwan is equal to the sum of that of the bottom 150 countries. The CCP might as well consider letting the whole world vote on the independence of Taiwan.<br/><br/>2/16/2022 文贵直播：中共在全球影响力、经济、内部政治回天乏术，无人敢跟中共做朋友；圣城香港揭穿了中共说中国人不配有民主自由的谎言；台湾的科技产出超过全球150个国家的总和，中共不妨接受让全世界为台湾是否独立投票<br/>
+![img](https://media.gettr.com/group21/getter/2022/02/18/04/21cdb99b-2847-f024-4e8e-e0c76aa7cae2/out.jpg)
+
+---
+
 `@miles 2/18/2022 12:57 AM (UTC)`
 
 2/16/2022 Miles Guo: The fundamental reason why the CCP could turn more than one billion Chinese into obedient people is the establishment of a mental firewall. The lack of good education and faith, and the media's brainwashing have made people around us ticking time bombs. Those who are persecuted by the CCP for reporting on the chained woman will be given Himalaya Coins.<br/><br/>2/16/2022 文贵直播：中共让十几亿中国人变成顺民的根本原因是建立了精神防火墙；缺乏良好教育、无信仰和媒体洗脑让身边的人成为定时炸弹；因报道锁链女而被中共迫害的人将得到喜币<br/>
@@ -150,13 +157,6 @@ Always in style…@gfashion
 
 加拿大卡车司机：加拿大总理特鲁多的《紧急状态法》不会阻止他们。暂停他们的保险没有任何作用，他们没有打疫苗，唯一能说服他们离开的就是他们重获权利和自由。<br/><br/>Canadian truck drivers: Trudeau invoked this Emergencies Act won’t stop them. Suspend their insurance doesn’t do anything. They are not vaccinated, and the only thing that's gonna convince them to leave is getting their rights and freedoms back.
 ![img](https://media.gettr.com/group29/getter/2022/02/17/00/5fc4dc94-173f-c1de-6e23-a5c4c5991e2c/out.jpg)
-
----
-
-`@miles 2/16/2022 11:37 PM (UTC)`
-
-2/16/2022 Miles Guo: Under the threat posed by various Western countries, Putin backed down, withdrew its troops, and fooled the idiot, Xi Jinping, causing Putin and Xi to break up. This is great news for Taiwan! What Putin plays is the top game in the world - the War Economy. It is profitable whether Putin declares war or withdraws his troops.<br/><br/>2/16/2022 文贵直播：在西方各国的威胁下，普京服软撤军并耍了二货习近平，俩人因此彻底掰了，这对台湾是个大好事！普京玩的是世界最高等的游戏 - 战争经济，喊打喊撤都能赚钱！<br/>
-![img](https://media.gettr.com/group3/getter/2022/02/16/23/c5091315-af1b-2bd2-088b-5474d8fd469c/out.jpg)
 
 ---
 

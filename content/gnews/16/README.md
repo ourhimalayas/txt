@@ -2,37 +2,46 @@
 ---
 
 
-## 抖音避开苹果和谷歌隐私保护，获取用户数据
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2022930/)
+## 中共国民要求彻查锁链女事件
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2023025/)
 
-作者：首尔天池农场 – zzballack
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-布赖特巴特网2月16日报道，据最近两项研究显示，抖音APP可以绕过苹果和谷歌应用商店的安全保护程序，和应用商店的代码审计，在用户不知情的情况下，改变应用程序的行为，访问设备追踪功能，使抖音和第三方公司能够获得全部用户数据。
+撰稿：纽约香草山 -云豹
+![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-8.png)
+2月15日，北京大学校友及学生一百多人，联名向中共党中央及国务院发表公开信，要求彻查徐州锁链女案。该公开信提出4项主张，要求确认受虐女子的真实身份、调查20余年来忽视此受虐事件涉嫌渎职违法的相关官员、全面清查中共各地的人口拐卖案件并解救受害人、修订中共《刑法》，严惩拐卖妇女及儿童的行为。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/9-16.jpg)
+除北京大学外，清华大学、中国人民大学、浙江大学、四川大学等学校，也对此事件展开联署。 此外，湖南岳阳的民众手举标语，要求彻查事件真相；民间艺术家们也纷纷以诗歌、音乐、绘画等艺术形式，宣扬“断链”行动，引发社会的关注。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/7-25.jpg)
+锁链女事件自1月28日被网友揭露后，中共官方说法，从初始的否认，到改为将受害人塑造成精神病患者，最后不得不承认有人口拐卖的事实，并拘捕相关涉案人。而后又被揭发，官方提供的身份涉嫌故意造假。
 
-据悉，这远远超过了脸书和推特等美国应用程序对用户数据的访问。网络安全工程师指出，这些动态属性，允许抖音在应用程序可以看到的范围内全权访问设备，抖音浏览器不仅拥有从网络到设备的转换权限，还可以查询设备本身。
+2月17日，江苏省委省政府通报成立“丰县生育八孩女子”事件调查组，似乎摆出一幅彻查此事的姿态。但在中共统治下，中共官员欺上瞒下已成常态。此次锁链女事件激起了民众积压已久的愤怒，这种民怨，或将成为击倒中共的燎原怒火。
 
-尽管抖音声称其为标准的应用程序，但研究人员和专家称，该应用程序的代码使其更难监控，埋下了安全隐患。
+[新闻连接]：
 
-参考链接：
+[徐州8孩案延燒 中國民間群起要求徹查真相](https://www.cna.com.tw/news/acn/202202160360.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-- [Study: China’s TikTok Can Bypass Apple and Google Privacy Protections, Access User Data](https://www.breitbart.com/tech/2022/02/16/study-chinas-tiktok-can-bypass-apple-and-google-privacy-protections-access-user-data/)
+[徐州8孩案證實涉人口拐賣 官方刑事拘留父親董志民等3人](https://www.cna.com.tw/news/acn/202202100387.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+
+[徐州8孩案大轉折 小花梅行蹤成謎並非8孩媽](https://www.cna.com.tw/news/acn/202202150379.aspx?topic=3778?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+
+[江苏成立“丰县生育八孩女子”事件调查组](https://www.163.com/dy/article/H0DN5TGN0512DFT3.html)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
 
-总编：Lakeman文仁
-编辑：雪梨
-校正/发稿：海阔天空1
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-3.png)
+
+编辑：飞虹
+
+总编：雪梨
+
+校正/发稿：浪迹天涯
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-8.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

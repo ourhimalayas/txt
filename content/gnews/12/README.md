@@ -2,57 +2,50 @@
 ---
 
 
-## 五角大楼对与中共国的重大战争准备不足
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2023006/)
+## 七哥给发小很多救济给老师800万,钱被借完后又回到原点
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2023094/)
 
-比尔·格茨: 高说，五角大楼对与 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的重大战争准备不足。海军准备不足，船员们疲惫不堪；F-35供应链困境；卫星通信容易被攻击。
+G-TV视频链接：[https://gtv.org/video/id=620e57312403672096ab589b](https://gtv.org/video/id=620e57312403672096ab589b)
 
+**摘要：**我曾经回去我给过她好多次钱，给她钱是没有用的。你发现在咱们老家这样的人你能救得了吗？……也救不了她，她的孩子怎么办呢？她的家庭怎么办呢？
 
+**标签：**借钱,救济,新中国联邦,爆料革命,郭文贵先生,
 
-> GAO says the Pentagon is ill-prepared for major war with China. Navy readiness is down crews are fatigued; F-35 supply chain woes; vulnerable satellites cited [https://t.co/rBgFiSGUG9](https://t.co/rBgFiSGUG9)
-> — Bill Gertz (@BillGertz) [February 17, 2022](https://twitter.com/BillGertz/status/1494432267472551950?ref_src=twsrc%5Etfw)
+**正文：**
 
+**郭文贵先生：**我曾经回去我给过她好多次钱，给她钱是没有用的。亨利小哥你发现在咱们老家这样的人你能救得了吗？你给一次10万，你给一次两次，你给100万也救不了她，因为她的孩子怎么办呢？她的家庭怎么办呢？
 
+你像我的发小同学，我救过很多，一见面给20万、30万很多钱了，他拿到20万、30万把账还一还，买个房子，他又没钱了，是吧？
 
-众议员布莱恩·马斯特： 据报道，我们的军人在“觉醒”培训上花费了大约600万工时。而同时，塔利班接管了阿富汗，边境遭遇了200万非法移民，俄罗斯和 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 积极备战更进了一步。
+你像我的老师，我最多给过她800万块钱，800万当时很多很多钱了，老师让我借80万块钱，我给她800万现金，我说：“老师，你就答应我一件事情，哪儿也别干去，你把这钱就存在这儿，就花钱就行了。” 结果老师的钱被家人借完，她又回到了原来的样子。
 
+字幕来源：[2022月2日6日 《文贵大直播》全文字版](https://gnews.org/zh-hans/1971450/)
 
+编辑整理：Davis；
 
-> It’s been reported that our servicemembers spent roughly 6 million man-hours on “woke” training. In that time, the Taliban took over Afghanistan, 2 million illegal immigrants were encountered at the border and Russia and China moved closer to war.[https://t.co/A52ik5OGHX](https://t.co/A52ik5OGHX)
-> — Rep. Brian Mast (@RepBrianMast) [February 18, 2022](https://twitter.com/RepBrianMast/status/1494476760469184516?ref_src=twsrc%5Etfw)
+字幕文件制作：知津；
 
+视频制作及上传：Cindy；
 
+G-News发布：小满；
 
-参议员玛莎.布莱克本： 疫苗强制不起作用。 封城不起作用。 压制言论自由也不会行得通。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-> Mandates do not work. 
-> Lockdowns do not work. 
-> Silencing free speech will not work.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [February 17, 2022](https://twitter.com/MarshaBlackburn/status/1494374983929376773?ref_src=twsrc%5Etfw)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ)、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A)、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/)；
 
-参议员马可·卢比奥： 今天在乌克兰东部的战斗不是通常的小规模冲突，俄罗斯代理人今天发动的袭击比整个 1 月份还要多 今天标志着普京入侵前计划最后阶段之一的开始
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-
-> The fighting today in eastern [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) is NOT the usual daily skirmishes,Russian proxies launched more attacks today than all of January
-> 
-> Today marks the beginning of one of the final phases of [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw)’s pre-invasion plan
-> — Marco Rubio (@marcorubio) [February 17, 2022](https://twitter.com/marcorubio/status/1494391486363938822?ref_src=twsrc%5Etfw)
-
-
-
-参议员约翰·肯尼迪： 俄罗斯并非孤军奋战。新的邪恶轴心包括中国和伊朗，他们正在利用乌克兰来测试拜登团队，看看美国是否是坚决严肃的。 【附肯尼迪参议员在福克斯的采访视频】
-
-
-
-> Russia is not acting alone. The new Axis of Evil includes China and Iran, and they’re using Ukraine to test the Biden admin to see whether or not the U.S. means business. [pic.twitter.com/sXmx8B24fj](https://t.co/sXmx8B24fj)
-> — John Kennedy (@SenJohnKennedy) [February 17, 2022](https://twitter.com/SenJohnKennedy/status/1494424175821443075?ref_src=twsrc%5Etfw)
-
-
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
