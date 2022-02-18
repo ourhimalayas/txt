@@ -2,63 +2,144 @@
 ---
 
 
-## 卡车抗议行动，特鲁多宣布国家进入紧急状态
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2024468/)
+## 周日凌晨，一名 35 岁的女子在纽约唐人街的公寓内被谋杀
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2024541/)
 
-据《大纪元》作者： 诺埃夏蒂埃(NoéChartier),  奥米德·戈雷西(Omid Ghoreishi)，2022年2月15日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1702.png)2022年2月14日，总理贾斯汀-特鲁多和他的一些内阁部长在渥太华的新闻发布会上发言。图片来源：（加拿大媒体/阿德里安·威尔德）
-由于卡车司机及其支持者对中共病毒强制令的持续抗议，加拿大联邦政府已宣布进入紧急状态。
+Jason Perry (NTD News reporter)
+杰森·佩里（新唐人新闻记者）
 
-在2月14日的新闻发布会上，总理贾斯汀-特鲁多说，抗议活动并不和平，而且损害了经济，需要采取措施加强执法。
+Christina Yuna Lee was senior digital producer from music making companies Splice
+克里斯蒂娜·尤娜·李是音乐制作公司Splice的高级数字制作人
 
-他说，“周五，安大略省启动了紧急状态，以应对封锁行动。这是负责任和必要的做法。今天，为了在这些努力的基础上再接再厉，联邦政府准备使用其掌握的更多工具，使局势得到完全控制。”
+very early Sunday morning while she was walking home in Manhattan’s Chinatown
+周日清晨，她在曼哈顿唐人街步行回家时
 
-特鲁多表示，《紧急状态法》的应用将有时间限制，并将以有针对性和相称性的方式使用。他补充，该法案将用于保护机场和跨境口岸等关键基础设施。
+Lee was followed all the way to her apartment on the sixth floor of this building
+被嫌疑人一直跟踪到她在这栋楼六楼的公寓
 
-副总理克里斯蒂亚-弗里兰宣布了一系列措施，以减少对抗议活动的资助。这些措施包括将反洗钱措施扩大到众筹平台和数字货币。银行也将能够冻结参与抗议活动的实体的账户。
+At around 4:20am, Police responded to a 911 call and arrived at the scene
+凌晨4时20分左右，警方接到911报警，赶到现场
 
-弗里兰还说，对于那些卡车被用于封锁的公司，其公司账户将被冻结，其保险也将被暂停。
-特鲁多是第一位援引《紧急状态法》的总理。
+The suspected killer first tried to flee down the fire escape
+凶手嫌疑人首先试图从防火梯逃走
 
-1988年，《紧急状态法》取代了《战争措施法》。在1970年十月危机期间，魁北克分离主义分子绑架并杀害了魁北克内阁部长皮埃尔-拉波特时，特鲁多的父亲，也即是当时的总理皮埃尔-特鲁多，使用了该法。
+then barricaded himself inside the apartment where he was later arrested
+然后把自己关在公寓里，后来被捕
 
-阿尔伯塔省、萨斯喀彻温省、马尼托巴省和魁北克省的省长们表示，他们不支持总理使用该法案。
+Police found Lee stabbed to death in the bathtub of her apartment
+警方发现李在她公寓的浴缸里被刺死
 
-阿尔伯塔省省长杰森-肯尼2月14日在推特上写道，“我们拥有维持秩序所需的所有法律工具和行动资源。该法案不会增加任何相关的额外权力或资源。”
+Concerned Citizens of East Broadway held a vigil for Lee
+东百老汇的关心的公民为李守夜
 
-萨斯喀彻温省省长斯科特-莫伊在推特上写道：“非法封锁必须结束，但警方已经有足够的工具来执法和清除封锁，正如他们周末在温莎所做的那样。”
+and called on New York City’s elected officials to help Chinatown
+并呼吁纽约市民选官员帮助唐人街
 
-“因此，萨斯喀彻温省不支持特鲁多政府援引《紧急状态法》。如果联邦政府真的着手采取这一措施，我希望它只在立法允许的情况下在提出要求的省份中援引。”
+Enough is enough, enough is enough, enough is enough…
+够了，够了，够了，够了……
 
-马尼托巴省省长希瑟·史蒂芬森 (Heather Stefanson)也在一条推文中写道，在她的省份不需要行使这种权力。
+Some members of the community are upset about the number of homeless shelters in Chinatown
+一些社区成员对唐人街无家可归者收容所的数量感到不安
 
-“我为马尼托巴省的执法官员感到骄傲，并对他们保护我们的社区充满信心。联邦政府提出的使用《紧急状态法》的建议对艾默生边境的局势并没有帮助。”
+Male
+男士
 
-据《新闻报》报道，魁北克省长弗朗索瓦-莱戈尔采取了类似的立场，他说他不希望该法案在魁北克适用，因为这是一个不必要的和分裂性的措施。
+Chinatown already have five existing shelters
+唐人街已经有五个现有的避难所
 
-在2月14日早些时候的新闻发布会上，自由车队的组织者塔玛拉-利奇说，抗议者将继续示威，直到他们的要求得到满足。
+and the city is pulling three more in our neighborhood
+这座城市在我们附近又增加了三个
 
-利奇指出：“我们将保持和平，但在解除授权之前，我们会在国会山上安顿下来。”
+Jason Perry
+杰森·佩里
 
-担任自由车队发言人的纽芬兰省前总理布莱恩-佩克福德（Brian Peckford）在新闻发布会上说，渥太华的抗议活动一直是和平的，并对宣布紧急状态的理由提出了质疑。
+Some women at the rally said the senseless murder of a young woman really touches close to home
+集会上的一些妇女说，一名年轻女子的非蓄意谋杀真的离家很近
 
-佩克福德表示，“看一下情况，特别是与2022年车队有关的情况，车队在渥太华这里……是和平的。自从卡车司机们到达后，街道很干净， [而且]犯罪率下降了。”
+So why did you come down here today?
+那你今天为什么来这里？
 
-为组织者提供法律代表的宪法自由正义中心发表声明，它将“立即向法院提出申请，寻求推翻这种声明”。
+Female 1
+女士1
 
-司法中心诉讼主任杰伊-卡梅伦在一份声明中说，“皮埃尔-特鲁多总理在1970年使用《战争措施法》来处理恐怖分子在魁北克实施的暴力、绑架和谋杀。今天，总理贾斯汀-特鲁多正在考虑使用《紧急状态法》来处理充气城堡和曲棍球。”
+Because I read the news My heart broke and I just felt compelled to come
+因为我看了新闻我的心碎了，我只是觉得有必要来
 
-“为无家可归者提供食物、铲雪、捡垃圾、在街头跳舞、打街头曲棍球、挥舞加拿大国旗、唱国歌和为儿童搭建充气城堡的和平抗议者，并没有‘严重危及加拿大人的生命、健康或安全’。这些和平活动也没有‘超出一个省的处理能力或权限’。”
-临时保守党领袖康迪斯-伯根（Candice Bergen）表示，她的政党将研究自由党政府的提议并评估其理由，然后决定是否支持它。
+The woman is of a similar age
+那位女性的年龄与我相仿
 
-卑尔根在2月14日的新闻发布会上指出：“我们对我们所看到的情况非常关注。”
+And what happened to her is something that haunts my dreams
+而发生在她身上的事情让我魂牵梦绕
 
-原文连接：[**https://www.theepochtimes.com/canadian-government-declares-state-of-emergency-over-protests-against-covid-19-mandates\_4277273.html**](https://www.theepochtimes.com/canadian-government-declares-state-of-emergency-over-protests-against-covid-19-mandates_4277273.html)
+My reality theoretically all the time
+我的理论上现实一直都是
 
-翻译：洛杉矶盘古农场- TrueSky
-校对：洛杉矶盘古农场- Freeearth
-编辑：洛杉矶盘古农场–柯镇恶
-发布：洛杉矶盘古农场–恩典
+I fear all the time. I don’t feel safe
+我无时无刻不在害怕，我没有安全感
+
+Female 2
+女士2
+
+I’m scared to take the subway
+我害怕坐地铁
+
+I’m scared to walk down the street at night by myself
+我害怕一个人在晚上走在街上
+
+How is it that in my own home and my own community that I can’t feel safe anymore?
+在我自己的家和我自己的社区里，我怎么会不再感到安全？
+
+This has happened over the last two years really we don’t feel safe
+这发生在过去两年里，我们真的不安全
+
+and I think about my daughters and they’re
+我想我的女儿们，她们是
+
+you know, I’m raising them here and I’m scared for them and their safety
+你知道，我在这里抚养他们，我为他们和他们的安全感到害怕
+
+Jason Perry
+杰森·佩里
+
+The suspect a 25 year old black male has now been officially charged with burglary and murder
+嫌疑人是一名25岁的黑人男性现已被正式指控犯有入室盗窃和谋杀罪
+
+As you can see this area is taped off
+如你所见，该区域已被放上了封条
+
+The victim walked through this doorway here of six flights of stairs to her home where she was murdered
+受害者穿过这六层楼梯的门口，来到她被谋杀的家
+
+NYPD has apprehended the suspect and the murder is under investigation
+纽约警察局已逮捕嫌疑人，谋杀案正在调查中
+
+Security experts say that if you do have to walk at night
+安全专家说，如果你必须在晚上走路
+
+try to walk in groups and stay in well lit areas
+尝试成群行走并留在光线充足的地方
+
+And also be aware of your surroundings
+还要注意周围的环境
+
+Jason Perry NTD News New York
+杰森·佩里，新唐人新闻，纽约
+
+* * *
+
+Date:02/15/2022
+原视频标题:A 35-year-old woman was murdered early Sunday morning inside her apartment in New York’s Chinatown
+周日凌晨，一名 35 岁的女子在纽约唐人街的公寓内被谋杀
+原视频日期：2022/02/15
+原视频链接**[https://twitter.com/jasonperryntd/status/1493377624244162569?s=24](https://twitter.com/jasonperryntd/status/1493377624244162569?s=24)**
+任务编号：3758
+视频时间段 : 0:00-2:16
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 文新
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

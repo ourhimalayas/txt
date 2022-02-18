@@ -2,18 +2,20 @@
 ---
 
 
-## 樱花FM┃香港今日新增破纪录 将实施疫苗通行证
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2024348/)
+## 樱花FM┃美议员促政府监测中共在冬奥推数字人民币
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2024443/)
 
 音频：东京樱花团/战友520
-![](https://lh6.googleusercontent.com/85aewYhJTnb5hyZgN5PAE_IrcG56zjteURsYF2qlU4bHi5gzx-i07zm_YGp34NimgNY8e_mpZzEUuUpaitWaWlsgZ3UjDBpftZ_jdZ9xdVMZGXlYejQ-q0p9nY03Y98ZJBWEu067)
-香港中共病毒（新冠病毒Covid-19）本土疫情愈趋严重，2月4日新增130例本地确诊个案，其中59例为源头不明，再创第五波单日新高。今日，2月5日，确诊数字约350例，创2年来单日新高。
+![](https://lh6.googleusercontent.com/QqFel67OYlgbuX_50ZC-8QOO0pVSDiUNcv94GdKFE_-gebOiI6tOooqQXhkS9lrX9D9wSLsnvtNtuEnWINwQGhr33m5xAmY_pOkQ-rAyzywpOUysRYFXsaYcz9Dg4AzYHAyEAa1S)
+美国参议院一位重要共和党议员Pat Toomey敦促拜登政府，密切关注中共最近推出的数字货币在北京冬奥会期间的使用情况，预计中共将在冬奥会上向外国游客展示该项目。
 
-据港媒报导，香港今日增350例确诊个案，远超今年1月27日创出单日164例确诊的纪录，势成为自2020年中共病毒疫情在香港爆发以来，最多患者确诊的一天。
+据路透社（Reuters）报导，宾夕法尼亚州共和党参议员帕特·图米（Pat Toomey）在周四（2月3日）写给美国财政部长珍妮特·耶伦（Janet Yellen）和国务卿安东尼·布林肯（Antony Blinken）的信中表示，担心中共政府可能会利用奥运这一全球性事件，推动其被称为“数字人民币”（e-CNY）的电子货币在全球获得立足点。
 
-此外，林郑月娥表示，将从24日起实施“疫苗通行证”制度，进入餐厅等特定处所必须至少接种1剂疫苗，之后还会提高至2剂，最终将规定必须打满3剂才符合“疫苗通行证”要求。
+他警告称，中共正努力掌控制定数字货币跨境支付标准的主动权，因为中共央行希望在发展央行数字货币的竞赛中领先于其它国家。
 
-文字版原文：[香港今日新增破纪录 将实施疫苗通行证](https://gnews.org/zh-hans/1960191/)
+图米要求财政部和国务院汇报2022年冬季奥林匹克运动会期间[数字人民币](https://www.epochtimes.com/gb/tag/%E6%95%B0%E5%AD%97%E4%BA%BA%E6%B0%91%E5%B8%81.html)的总发行量、外国游客与中国公民使用数字人民币的比率，以及在美国政府考虑发展自己的中央银行数字货币时，数字人民币的推出是否能提供任何经验教训。
+
+文字版原文：[美议员促政府监测中共在冬奥推数字人民币](https://gnews.org/zh-hans/1959028/)
 
 *编辑：东京樱花团/asket
 发布：东京樱花团/平安卿卿*

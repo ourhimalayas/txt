@@ -2,33 +2,22 @@
 ---
 
 
-## 4700名美军悉数抵达波兰，英国、波兰、乌克兰发联合声明
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2022568/)
+## 2023年G7峰会或在日本群马举行
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2023823/)
 
-#### 撰稿：彩虹       
+撰稿：东京樱花团：百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-33.jpg)[图片来源](https://www.arabnews.com/node/1916191/world)
+2月18日《产经新闻》报道，外务大臣林芳正18日在外务省会见了群马县县长山本一太。山本要求将该县选为明年在日本举行的七国集团首脑会议的举办地。林芳正表示，”将与相关部门和机构协商，作好一切可能的准备，确保其成功。
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/16451455791.png)图片来源：Notesfrompoland
-《国会山报》2月17日报道，周四，英国外交大臣利兹·特拉斯（Liz Truss）及波兰和乌克兰的外交部长发表联合声明，三国将制定一项《三边合作备忘录》（trilateral memorandum of co-operation），以支持乌克兰和打击俄罗斯的侵略。
+政府将在今年6月德国举行七国集团峰会时决定主办城市。 1月，外交部在部内设立了 “2023年七国集团峰会筹备办公室”。收集候选地点的住宿、交通、安全和其它方面的信息。除群马县之外，广岛，名古屋和福冈等城市也已宣布有意主办该峰会。
 
-联合声明说：“这将表明我们致力于进一步加强三国之间在支持乌克兰的最优先问题上的战略合作和接触。我们将共同努力推进我们的合作，这包括但不限于协调对‘国际克里米亚平台’（ International Crimea Platform）的支持，增加我们在网络安全、能源安全方面的合作，以及促进战略沟通以打击虚假信息。”
+信息源：
 
-三人表示，英国和波兰声援乌克兰，帮助这个前苏联国家捍卫其独立和主权，并将向乌克兰提供支持。
+[林外相に群馬・山本知事がＧ７サミット開催を要望](https://news.yahoo.co.jp/articles/b928862d39dab33d660a537482e24c5c1bcf9ced#:~:text=%E3%83%88%E3%)
 
-联合声明还对俄罗斯进行了含蓄的斥责，但没有具体指名该国。
-
-三人说：“我们重申，每个欧洲国家都可以自由选择或改变其安全安排，包括联盟条约，任何国家都不能将欧洲的任何地区视为其影响范围。”
-
-报道说，周四，拜登总统表示，俄罗斯可能“在未来几天内”入侵乌克兰。
-
-而根据《国会山报》同一天的报道，五角大楼官员告诉《纽约时报》，4700名美军已经全部抵达了波兰以东，以加强北约东翼的防御。4700名美军包括来自第82空降步兵旅战斗队的3000名士兵和第82空降师的1700名士兵。
-
-**新闻来源**
-
-[Ukraine, Poland and UK agree on accord to combat Russian aggression](https://thehill.com/policy/international/594802-ukraine-poland-and-uk-agree-to-accord-to-combat-russian-aggression)
-
-[Last US troops arrive in Poland](https://thehill.com/policy/defense/594743-last-us-troops-arrive-in-poland)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

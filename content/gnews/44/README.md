@@ -2,27 +2,30 @@
 ---
 
 
-## 美智库：世银国际金融机构非法资助新疆强迫劳动公司
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2022827/)
+## 中日财经爆┃中共发改委：共同富裕不能靠党要靠自己
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2023866/)
 
-**撰稿：日本东京方舟农场  海星**
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-16.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https://img3.jiemian.com/101/original/20210918/163194343383918700_a640x364.jpg&amp;imgrefurl=https://m.jiemian.com/article/6614048.html&amp;tbnid=EE1H2Gn-Hy8gRM&amp;vet=12ahUKEwjPhNXDmYj2AhUKHqYKHa7YBTgQMygSegUIARDTAQ..i&amp;docid=qBmLmbkC275APM&amp;w=640&amp;h=364&amp;q=%E5%85%B1%E5%90%8C%E5%AF%8C%E8%A3%95&amp;ved=2ahUKEwjPhNXDmYj2AhUKHqYKHa7YBTgQMygSegUIARDTAQ)
+2月17日，中共国家发改委就业司司长哈增友17日在新闻发布会上表示，实现共同富裕要靠共同奋斗，不是“躺平”“等靠要”，也不是政府要搞“福利主义”。
 
-近期，美国智库发布的一份报告披露，世界银行旗下国际金融公司（International Finance Corporation）向新疆强迫劳动的中共公司非法提供巨额资金。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-283.jpg)（图片来源：美联社）
-据《自由时报》报导，美国华盛顿智库大西洋理事会发布的一份报告披露，世界银行旗下国际金融公司向晨光生物科技集团（Chenguang Biotech Group）、骆驼集团（Camel Group）、九州通医药集团（Jointown Pharmaceutical Group）和世纪阳光集团（Century Sunshine）共4家中共公司非法提供巨额资金，金额高达4.85亿美元。
+哈增友称，“实现共同富裕目标，首先需要通过共同奋斗把蛋糕做大做好，只有人人参与、人人尽力，才能真正实现人人享有。”
 
-该报导指出，上述公司长期招聘新疆劳动人民，并强迫他们劳动，违反《全球马格尼茨基法案》。因此，大西洋理事会指控国际金融公司违反了国际标准，并呼吁该机构立即撤出对新疆强迫劳动公司的投资。
+他称，一定要把保障和改善民生建立在经济发展和财力可持续的基础之上，不能好高骛远、吊高胃口，作兑现不了的承诺。即使将来发展更好、财力更雄厚了，也不能提过高的目标、搞过头的保障，坚决防止落入“福利主义”养懒汉的陷阱。
 
-据悉，2019年美国国会及行政当局中国委员会（CECC）就因世界银行非法资助中共新疆劳改再教育营项目而对其提出控告，最终，世界银行终止了对该项目投资5000万美元的计划。
+“所谓量力而行，就是要清醒地看到，我国发展水平离发达国家还有很大差距，我们一定要把保障和改善民生建立在经济发展和财力可持续的基础之上。”他称。
 
-参考链接：
-1.[https://ec.ltn.com.tw/article/breakingnews/3832823](https://ec.ltn.com.tw/article/breakingnews/3832823)
-2.[https://www.ntdtv.com/b5/2019/11/12/a102705448.html](https://www.ntdtv.com/b5/2019/11/12/a102705448.html)
+去年8月17日，中共中央财经委员会第十次会议提出“共同富裕”这个目标，并把“三次分配”作为调节收入分配、实现共同富裕的有效路径。
 
-素材采编：海星
-编辑：青城道姑
-发布：爱放飞
+中共发改委官员的此番表态说明，中共以不搞“福利主义”为名否定了先前“三次分配”这样的提法，把发改委官员的话翻译成大白话就是“共同富裕不能靠党，要靠自己”。
 
+信息来源：
+
+[到底该如何实现“共同富裕”？国家发改委这场发布会点明重点](http://www.cnr.cn/news/20220217/t20220217_525743400.shtml)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

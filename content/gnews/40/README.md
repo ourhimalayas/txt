@@ -2,43 +2,29 @@
 ---
 
 
-## 马斯克暗指推出《紧急状态法》的特鲁多是独裁者
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2023913/)
+## 有声｜研究证明伊维菌素对“奥米炕”的治疗效果最佳
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2024080/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+**By:秘翻新闻**
 
-翻译/编辑：文泓
+**2022-02-18**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/F5709556-093D-4773-B80E-559B235A8072-scaled.jpeg)图片源于:网络
+据《儿童健康保护网站》2月16日报道，研究人员使用计算分析方法来评估10种药物对中共病毒新冠奥米炕变种的表现，数据显示伊维菌素的效果最好。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/8-17.png)图片来源：Sportskeeda
+研究人员利用分子对接发现奥米炕病毒的突变并没有明显影响药物和主要蛋白酶之间的相互作用。这10种药物对奥米炕都有一定程度的疗效，但伊维菌素是最有效的。
 
+伊维菌素通过抑制病毒复制来降低病毒载量，单一剂量的伊维菌素可以在48小时内杀死99.8%的病毒。预防性使用可使新冠感染率降低86%，并加速病人恢复、防止器官受损、降低住院和死亡的风险。分析显示，伊维菌素可使死亡率降低75%至83%。此外，在暴露于新冠病毒之前或之后服用该药还能防止新冠传播。
 
-据天空新闻2月18日报道，正值特鲁多总理在加拿大历史上首次援引《紧急状态法》扩张政府权力，试图借此阻止自由车队抗议者。特斯拉首席执行官埃隆马斯克发推，将特鲁多与独裁者相提并论。
+日本的一项研究表明，在医生被允许合法地给病人开伊维菌素后，短短12天过后新冠病例显著下降。
 
-推文中中包括一张德国独裁者的黑白照片，标题是：“别再拿我和贾斯汀·特鲁多相比了，我有一个预算，”推文后被删除。
+此外，早期治疗可以降低人们患上新冠长期症状的风险。
 
-在加拿大政府要求卡车司机在穿越美加边境之前完全接种疫苗的命令生效后，自由车队抗议活动开始了。数千名愤怒的抗议者驱车前往渥太华，以及两个美加边境口岸，封锁交通、挥舞旗帜，对该国的疫苗强制规定表示愤怒。
+（ 秘翻新闻 巴拉克 编译报导 ）
 
-一直以来马斯克先生都站在卡车司机一边，美国证券交易委员会(SEC)指责他总是直言不讳地批评政府。
+发布:星星
 
-“（世界由）加拿大卡车司机统治”，马斯克先生上个月发推：“但自由被一次又一次地剥夺，直到它消失。”
-
-这次特鲁多援引《紧急状态法》，试图阻止数千名愤怒的卡车司机封锁美加边境口岸，阻塞城市并影响供应，以抗议加拿大推出的疫苗强制。
-
-特鲁多周一表示，政府将利用《紧急状态法》解决大卡车运动封锁和占领问题，以“确保加拿大人的安全”。
-
-他告诉记者：“我们不能也不会允许非法和危险的活动继续下去。”
-
-新闻链接：[Elon Musk slammed for comparing Justin Trudeau to Adolf Hitler after invoking emergency powers to end trucker protests | Sky News Australia](https://www.skynews.com.au/world-news/elon-musk-slammed-for-comparing-justin-trudeau-to-adolf-hitler-after-he-invoked-emergency-powers-to-end-trucker-protests/news-story/f29b8db8930ffad4d34120697a94bcd3)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMAGE-2021-12-13-113746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
