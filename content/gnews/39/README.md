@@ -2,22 +2,31 @@
 ---
 
 
-## 2023年G7峰会或在日本群马举行
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2023823/)
+## 秘翻新闻｜拜登称  俄罗斯正进行嫁祸行动或数天内出兵
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2023963/)
 
-撰稿：东京樱花团：百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-33.jpg)[图片来源](https://www.arabnews.com/node/1916191/world)
-2月18日《产经新闻》报道，外务大臣林芳正18日在外务省会见了群马县县长山本一太。山本要求将该县选为明年在日本举行的七国集团首脑会议的举办地。林芳正表示，”将与相关部门和机构协商，作好一切可能的准备，确保其成功。
+**By:[秘翻新闻](https://gtv.org/broadcast/watch/620de481b706176dd78b5c95)**
 
-政府将在今年6月德国举行七国集团峰会时决定主办城市。 1月，外交部在部内设立了 “2023年七国集团峰会筹备办公室”。收集候选地点的住宿、交通、安全和其它方面的信息。除群马县之外，广岛，名古屋和福冈等城市也已宣布有意主办该峰会。
+**[2022-02-18](https://gtv.org/broadcast/watch/620de481b706176dd78b5c95)**
 
-信息源：
+**今日主题：**
 
-[林外相に群馬・山本知事がＧ７サミット開催を要望](https://news.yahoo.co.jp/articles/b928862d39dab33d660a537482e24c5c1bcf9ced#:~:text=%E3%83%88%E3%)
+**1.恒大危机延伸到足球队 球员薪资降幅高达88％**
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**2.江苏省将成立调查组全面调查“锁链女”事件**
+
+**3.拜登称  俄羅斯正進行嫁禍行動或數天內出兵**
+
+**4.研究证明伊维菌素对“奥米炕”的治疗效果最佳**
+
+**5.美国科罗拉多州2022年夏季将接受比特币纳税**
+
+**🔗GTV鏈接：**[https://gtv.org/broadcast/watch/620de481b706176dd78b5c95](https://gtv.org/broadcast/watch/620de481b706176dd78b5c95)
+
+发布:星星
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMAGE-2021-12-13-113746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

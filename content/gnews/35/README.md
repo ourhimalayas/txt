@@ -2,28 +2,22 @@
 ---
 
 
-## 研究证实伊维菌素治疗新冠奥米炕的效果最佳
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2023898/)
+## 俄罗斯驱逐美国驻莫斯科大使馆副馆长
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2024095/)
 
-#### 翻译/撰稿：zzballack
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-285.jpg)
+图片来源：网络截图
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-34.jpg)图片来源：卫报
-据《儿童健康保护网站》（Children’s Health Defense）2月16日报道，根据康奈尔大学预印版网站刊登的一篇论文，研究人员使用计算分析方法来评估10种药物对新冠奥米炕变种的表现，数据显示伊维菌素的效果最好。
+据合众国际社2月17日报道，美国国务院周四证实，俄罗斯驱逐了美国驻莫斯科大使馆代理大使巴特·戈尔曼（Bart Gorman）。
 
-研究人员发现奥米炕病毒的突变并没有明显影响药物和病毒主要蛋白酶之间的相互作用。这10种药物对奥米炕都有一定程度的疗效，但伊维菌素是最有效的。其它测试药物包括由辉瑞公司开发的防新冠口服药Paxlovid，该药在去年12月获得了美国食品药品监管局（FDA）的紧急使用授权，每个疗程花费529美元。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-7.jpg)
-伊维菌素通过抑制病毒复制来降低病毒载量，单一剂量的伊维菌素可以在48小时内杀死99.8%的病毒。预防性使用可使新冠感染率降低86%、加速病人康复、防止器官受损、降低住院和死亡的风险。分析显示，伊维菌素可使死亡率降低75%至83%。此外，在暴露于新冠病毒之前或之后服用该药能防止新冠的传播，早期治疗可以降低人们患上新冠长期症状的风险。这些证据清楚地表明伊维菌素可以完全消除这种大流行病，而且一个疗程仅需要48至95美元。
+据外交专家（Diplopundit）网站报道，戈尔曼和他的家人于2月10日离开莫斯科，但原因尚未公开。2017年至2019年，戈尔曼在洪博培大使离职后担任俄罗斯大使馆的代理大使。2020年1月约翰·沙利文（John Sullivan）担任领导职务时，他担任了副手。
 
-在贫瘠的非洲，新冠感染人数、重症患者人数、住院人数和死亡人数都低于世界其他地区，这可能是由于非洲有许多人使用伊维菌素治疗新冠以及河盲症，全球99%以上的河盲症患者生活在31个非洲国家。印度北方邦在广泛使用伊维菌素后，新冠患者的康复率高达98.6%，感染人数几乎清零。日本的一项研究表明，在医生被允许合法地给病人开伊维菌素后，短短12天过后新冠病例显著下降。
+据自由欧洲电台（Radio Free Europe/RadioLiberty）报道，美国国务院发言人说：“俄罗斯对我国代理大使的行动是没有正当理由的，我们认为这是升级的一步，我们正在考虑回应。”
 
-尽管伊维菌素在治疗新冠上是如此的有效，但自新冠大流行开始以来，主流媒体、公共卫生专家、政府机构、大药厂、科学界一直在阻止人们使用伊维菌素和羟氯喹等药物预防和治疗新冠，并对有关信息进行了史无前例的审查和打压，导致许多人无辜丧生。这是对人类的大屠杀，对这些杀手及其共犯的审判一定会来！
+此举是在美国和北约继续批评克里姆林宫在俄乌边境集结13万多军队，称其为入侵该国的借口。俄罗斯一再拒绝，甚至嘲笑美国官员对可能入侵乌克兰发出的警报。
 
-新闻来源：
-
-[Ivermectin Beats Out 9 Other Meds for Treating Omicron, Study Confirms](https://childrenshealthdefense.org/defender/ivermectin-beats-meds-treating-omicron/)
-
-[Insights from a computational analysis of the SARS-CoV-2 Omicron variant: Host-pathogen interaction, pathogenicity and possible therapeutics](https://arxiv.org/abs/2201.08176v1)
+新闻来源：[Russia expels deputy chief of U.S. embassy in Moscow](https://www.upi.com/Top_News/World-News/2022/02/17/Bart-Gorman-expelled-US-embassy-Moscow/1971645114573/)
 
  
 

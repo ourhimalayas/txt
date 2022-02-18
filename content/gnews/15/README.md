@@ -2,50 +2,24 @@
 ---
 
 
-## 真相工程：FDA高管爆疫苗是药厂稳定收入来源
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2024260/)
+## 樱花FM┃中俄联合声明贬损中华民国 台外交部严厉谴责
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2024444/)
 
-翻译： Jenny Ball
+音频：东京樱花团/战友520
+![](https://lh5.googleusercontent.com/wHjiFze5YphoinWzRWmJO9UQjQZO2-kBwiLGNZ5iwLCFW7LWSIoQ8vI88A-OZmD5EogHpESM1ZPnsfELglHpSk2GqZSChGz_OVA0Zvz1mVDL8W8CkBbTEvFu8WOaRlMocUaCopeS)
+中共与俄罗斯于4日晚间发布《中华人民共和国和俄罗斯联邦关于新时代国际关系和全球可持续发展的联合声明》中，俄罗斯重申“恪守一个中（共）国原则，承认台湾是中（共）国领土不可分割的一部分”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1693.png)图片来源：dailymail.co.uk
+中华民国外交部2月5日指出，针对中共与俄罗斯发表联合声明涉及对中华民国台湾主权的不实表述严厉谴责。
 
-- FDA 执行官克里斯托弗·科尔在一系列晚宴会议上被一名“真相工程”（ Project Veritas） 卧底员工秘密记录，该员工冒充他的约会对象。
+对此，中华民国外交部重申，中华民国台湾与中华人民共和国互不隶属，中华人民共和国政府从未统治过台湾，唯有经由台湾人民自由选举的政府才能在国际间代表台湾人民，无论中共政府如何扭曲其对台湾的主张，都无法改变这个事实。外交部表达严正抗议，并对此贬损中华民国台湾国家主权的不实表述予以严厉谴责。
 
+台湾外交部指出，中共政府持续在国际社会妄称“台湾属于中华人民共和国”的做法，与其惯于制造错假讯息的低劣手法如出一辙，不仅徒增台湾人民对于中共政府蛮横霸凌的反感与厌恶，更让世界各国认清中国共产党政权侵略扩张、破坏和平的狰狞面目。外交部强调，值此全球关注冬季奥运赛事、纷纷为各国运动员加油喝彩、也关注中共国人权劣行之际，中共政府藉与俄罗斯高峰会操弄威权主义扩张，有辱奥林匹克五环（The Olympic Rings）的和平精神，这将遭台湾人民唾弃，也会被民主国家感到不齿。
 
-- 他被镜头拍到表达他对疫苗授权的想法，并说他相信这将成为年度要求。
+文字版原文：[中俄联合声明贬损中华民国 台外交部严厉谴责](https://gnews.org/zh-hans/1959027/)
 
-
-- 他还暗示拜登政府在推动疫苗方面有经济激励措施，称这是“经常性”的收入来源。
-
-
-- 在后续的“真相工程”采访中，科尔说他在一次“黑客工作”调查中被欺骗了，他的评论被断章取义。
-
-
-- 他说他的办公室没有参与疫苗的批准。
-
-
-- “真相工程”创始人詹姆斯·奥基夫（ James O’Keefe）现在要求 FDA 对有关其官员受到制药公司“收入源泉”激励的指控作出回应。
-
-
-- 奥基夫周三晚上告诉肖恩·汉尼提（Sean Hannity）：“存在严重的道德问题”
-
-
-据称“真相工程”的一名卧底记者拍摄一名FDA高管称 ，Covid 加强剂将成为年度要求，并且，拜登政府有推动疫苗的经济激励措施，“真相工程”的创始人要求 FDA 作出答复。
-
-“存在严重的道德问题，” 周三晚上，詹姆斯·奥基夫告诉福克斯新闻主持人肖恩·汉尼提，抨击联邦组织是腐败无边际。
-
-这位政治活动家说：“当政府从他们本应监管的人那里获得资金时，政府的一名执行官却说他不知道自己被记录在案，这会影响他们对产品批准。”
-
-详细内容请见专题报道。
-
-素材链接：[dailymail.co.uk][‘These are serious ethical issues’: James O’Keefe demands answers after FDA executive officer is caught on Project Veritas hidden camera admitting Biden will force an ANNUAL Covid shot that would be a ‘recurring fountain of revenue’ for drug firms](https://www.dailymail.co.uk/news/article-10520953/FDA-Executive-Officer-caught-hidden-camera-admitting-Biden-force-ANNUAL-COVID-shot.html)
-
-* * *
-
-*审核：文乐
-校对：花羽
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-4.jpeg)
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
