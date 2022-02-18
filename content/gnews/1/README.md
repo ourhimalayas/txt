@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：对战友的爱和缘分
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2026801/)
+## 七哥金句：新中国联邦给你答案
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2026861/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句3-1-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句7.png)
 整理：雅典娜农场
 发布：枫叶红了
 
