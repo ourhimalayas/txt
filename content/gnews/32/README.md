@@ -2,26 +2,38 @@
 ---
 
 
-## 渥太华警方将驱离和逮捕自由车队抗议者
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2026030/)
+## 郭先生揭秘俄罗斯近期军事行为的背后原因
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2026053/)
 
-采编：UCool优酷               编译撰稿：自由法兰西
+作者：纽约香草山农场-AT，银河系农场-骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月16日，郭文贵先生在大直播中透露，在受到了来自国际社会的巨大压力后，普京宣布俄罗斯军演结束，并将从克里米亚半岛部分撤军。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Article-Photo-35-.jpg)图片来源：thepostmillennial
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide3-6.jpeg)
 
+郭先生指出，美国、欧洲和日本近期联合向俄罗斯施压；法国、德国、英国和巴西等国家也明确警告俄罗斯，在其开战的那一刻，他们会实施各种方式的制裁措施，包括驱除在各国的俄罗斯人。
 
-据加拿大媒体[后千禧年]2月16日报道，渥太华警方当天发布公告，要求自由车队反疫苗护照运动的抗议者们立即离开市中心国会山前的集结现场，否则将被强行逮捕。
+郭先生表示，普京在强压之下示弱撤军。不过，俄军当前的行动仍属于战略性动作阶段，不排除普京为转移视线，采取表面上撤军，但背后突然用导弹袭击乌克兰的举动。
 
-报道指出，该公告是在渥太华前警察局长辞职一天后发布的，并声称：根据联邦《紧急状态法》，任何人在渥太华参加示威活动都属违法。警方将扣押抗议者车辆和吊销驾照，违法者还将面临罚款和牢狱之灾。尽管如此，聚集在渥太华的和平抗议民众仍誓言抗争到底，直到重获自由的权力为止。
+郭先生也提到，如果普京攻打乌克兰，习近平一定会借机打台湾。但是，作为目前最受国际瞩目的政治事件之一，普京深知，俄罗斯攻打乌克兰将对国际政治和经济产生巨大的影响；而如果放弃这次行动，他与习近平的关系将彻底结束。
 
-评论指出，加拿大反疫苗护照的自由车队抗议运动自其开展以来，如春风野火般燃遍全球。不仅得到了大多数民众的参与和支持，还迅速引起了美、澳、法、荷等国同行的响应。其声势之浩大，影响之广泛以至于特鲁多在惊恐无措之余，不得不强施[紧急状态法]，而再次成为加拿大的耻辱。
+参考链接：
+1. [https://gettr.com/post/puel3n071f](https://gettr.com/post/puel3n071f)
+2. [普京撤军，黄金将崩跌了，一切都在预料中，就是这次咋呼的太过了！](https://gettr.com/post/puwl3mf1e1)
 
-校对编辑：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-发稿：文明(添草灭共)
+总编：Irene木木
+编辑：飞虹
+校正/发稿：谐趣园
 
-[新闻来源](https://thepostmillennial.com/ottawa-police-to-freedom-protestors-leave-the-area-now-or-face-arrest?utm_campaign=64483)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
