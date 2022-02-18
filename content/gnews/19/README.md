@@ -2,144 +2,32 @@
 ---
 
 
-## 参加冬奥会的国家元首DNA，运动员的DNA都被共产党掌握
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2024688/)
+## 文贵视角：郭文贵先生采取技术性破产，以回击PAG官司
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2024724/)
 
-[https://gtv.org/video/id=620f4d9d2403672096abe991](https://gtv.org/video/id=620f4d9d2403672096abe991)
+撰稿：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-72.png)
+图片：视频截图
 
-您知道冬奥会咱战友在里边
-Tu sabes nuestros compañeros luchadores están en Los Juegos Olímpicos de Invierno
+很多人都对郭文贵先生的破产感到不解和伤心，但正如郭先生所说，“七哥只是个人法律上形式上的破产，但是七哥的精神没有破产，智慧没有破产，智慧无穷大，财富无穷大，七哥拥有的是创造财富的智慧”。郭文贵先生采取的以退为进，是技术性破产，以回击PAG官司。
 
-在冬奥会里边有规定
-Hay una regla en Los Juegos Olímpicos de Invierno
+郭先生两大官司发展各不同，在英国伦敦控告UBS，获得法官受理，他誓言要把从清朝开始，高官放在UBS的贪污款，一直到国民党、到现在的共产党藏的钱，一并揭发，直到UBS交出数据。
 
-不许用苹果手机
-No es permitido usar celulares de Apple
+因为中共高层家人的钱在过去这几年基本上从美国撤出去了，撤出去后大部分钱是以数字货币存在了瑞士、卢森堡，共产党不怕美国的长臂管辖。而UBS不会跟美国站在一起的，UBS把美国所有的能停的业务早都停了，就不想让美国的长臂管辖能粘到它。因为UBS有“猫腻儿”所以怕美国。
 
-全用华为手机
-Todos deben usar teléfonos de Huawei
+所以说欧洲要不跟美国行动一起，美国动不了共产党的本钱。这就是为啥郭先生对UBS一定要下手。
 
-咱战友特聪明
-Nuestros compañeros luchadores son muy inteligentes
+但在美国和香港私募基金太盟集团（PAG Group）的诉讼，一审郭先生败诉，要被罚款上亿美元，还要求5天内交齐罚款，班农先生劝他和解，但郭先生不妥协，索性宣布破产。 他不忘对PGA执行长单伟建喊话，当年海航在美国要告他，最后海航的CEO王健死亡、陈峰后来锒铛入狱，他呼吁单伟建不要成为王健第二，结局或和王健一样，或自己和儿子被美国政府抓起来。
 
-七哥我给你发讯息
-Me dicen: “Miles, por enviarte un mensaje
+综上所述，郭先生这5年身负79个官司，上庭时候，15、6小时坐在法庭的板凳上听，阅读几十万页的英文资料，都是在为“以法灭共”做准备，郭先生“以身为饵”，挺身而出，迎战中共法律超限战，以挽救被打的溃败不堪的西方司法界。
 
-为了他们不监控
-Y para que ellos no vigilen
+纵贯中国历史，乃至当今的西方世界，了了无几，有郭先生这个胆量，一人战一国，向邪恶帝国—中共国开战。 他是美国的宝贵财富，他是中国老百姓的拯救者； 他是人类的珍宝。
 
-你知道我用啥招
-¿Sabes qué truco utilicé?”
+来源：
 
-我随时知道他们这个冬奥会的什么情况
-Puedo saber en cualquier momento la situación de estos Juegos Olímpicos de Invierno
+郭先生2022.13-16号直播和盖特
 
-筹委会什么情况
-Qué pasa con el Comité Preparatorio
-
-运动员到场情况
-La asistencia de los atletas
-
-包括有人专门收集所谓运动员的DNA
-Incluyendo las personas que se encargan de recolectar el ADN de los atletas
-
-还有一个, 想办法给运动员收集那个那个那个的
-Y hay otro, hacen lo posible de reunir esa, esa cosa
-
-就是都咱战友
-Todos son nuestros compañeros luchadores
-
-他说七哥你知道最后发生什么事情
-Él dijo: “Miles, sabes qué pasó al final
-
-运动员来的
-Los atletas que vinieron
-
-到这儿来的几乎就没有任何有成就的运动员
-No tienen casi ningún logro los que han venido”
-
-他说但凡过去有点成就的都年龄偏大
-Dijo que cualquiera que haya logrado algo en el pasado tiene un poco de edad
-
-就是已经过了这个黄金年龄了
-Ya pasó su época dorada
-
-而且你知道咱们马桶的尿是集中收, 大便集中收
-“Además, sabes que la orina de nuestro inodoro y las heces se recogen de forma centralizada”
-
-这都是咱战友管的
-Todo esto se encargan nuestros compañeros luchadores
-
-所以不管你哪个元首去中国
-Por eso no importa cuál de los jefes del Estado vaya a China
-
-从你开始到你最后走
-Desde tu llegada hasta tu ida
-
-收集你的尿和屎的
-Recolectan tu orina y heces
-
-化验的
-Las pruebas
-
-收集你的DNA的
-Los que reúnen tu ADN
-
-在房间里吃什么
-Lo que comes en el cuarto
-
-有没有被人尿上拉上的
-Si hay alguien que se orina en ti
-
-七哥全在掌握
-Todo está bajo mi control
-
-你觉得我是在吹牛吗
-Tú crees que estoy presumiendo
-
-我有必要吹这牛吗
-¿Tengo que presumir esto?
-
-你给我钱吗
-¿Tú me das dinero?
-
-新中国联邦人这次可以这么说
-Se puede decir que esta vez las personas del Nuevo Estado Federal de China
-
-主导了整个冬奥会的开幕式
-Dominaron la ceremonia de apertura de todo el Juego Olímpico de Invierno 
-我们很成功地让这些国家的运动员和这些元首们
-Logramos de manera exitosa para que estos atletas y jefe de los países
-
-看清了中共, 看清了冬奥会
-Vean claramente al PCCh, a los Juegos Olímpicos de Invierno
-
-让他们一生不会再跟共产党
-Para que nunca vuelvan a participar en esta vida
-
-参加任何所谓的国际仪式
-Cualquier llamado ceremonia internacional con el Partido Comunista
-
-日期：02/14/2022
-原视频标题：参加冬奥会的国家元首DNA，运动员的DNA都被共产党掌握
-El ADN de los jefes de Estado que participan en los Juegos Olímpicos de Invierno y el ADN de los atletas están todos en manos del Partido Comunista
-
-* * *
-
-原视频日期：02/09/2022
-原视频网址：[**https://gettr.com/post/ptcl8c104f**](https://gettr.com/post/ptcl8c104f)
-任务编号：KC456（3715）
-视频时间段：0:00-01:45
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+感谢大雨围城提供的文字速记
 
  
 

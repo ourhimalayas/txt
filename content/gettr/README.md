@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/18/2022 12:49 PM (UTC)`
+
+2022年2月18日 文贵大直播：乌克兰俄罗斯危机各执一词；Omicron病毒解禁众说纷纭
+![img](https://media.gettr.com/group48/origin/2022/02/18/12/d8dab02a-1030-f4b0-3f1a-8c1df7cadcc4/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 2/18/2022 4:53 AM (UTC)`
 
 2/16/2022 Miles Guo: The CCP’s impact in the world, economy, and its internal political stability are waning, and no one dares to befriend the CCP. Hong Kong, the holy city, has debunked the lies of the CCP that the Chinese people do not deserve democracy and freedom. The technological output of Taiwan is equal to the sum of that of the bottom 150 countries. The CCP might as well consider letting the whole world vote on the independence of Taiwan.<br/><br/>2/16/2022 文贵直播：中共在全球影响力、经济、内部政治回天乏术，无人敢跟中共做朋友；圣城香港揭穿了中共说中国人不配有民主自由的谎言；台湾的科技产出超过全球150个国家的总和，中共不妨接受让全世界为台湾是否独立投票<br/>
@@ -28,16 +35,6 @@
 
 2/16/2022 Miles Guo: The fundamental reason why the CCP could turn more than one billion Chinese into obedient people is the establishment of a mental firewall. The lack of good education and faith, and the media's brainwashing have made people around us ticking time bombs. Those who are persecuted by the CCP for reporting on the chained woman will be given Himalaya Coins.<br/><br/>2/16/2022 文贵直播：中共让十几亿中国人变成顺民的根本原因是建立了精神防火墙；缺乏良好教育、无信仰和媒体洗脑让身边的人成为定时炸弹；因报道锁链女而被中共迫害的人将得到喜币<br/>
 ![img](https://media.gettr.com/group3/getter/2022/02/18/00/7c79aabe-b3cd-d4f8-ab9c-576c3e3b50d5/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@ddnyc 2/17/2022 10:02 PM (UTC)`
-
-Always in style…@gfashion 
-> `@gfashion 2/17/2022 8:13 PM (UTC)`<br/>First drop Exotic Crocodile Jacket 🖤                                                                         Shop Now at gfashion.com
-![img](https://media.gettr.com/group43/getter/2022/02/17/20/54621472-51f5-e396-ed27-1845f56d8ca9/6447afe9edcab7243ee3c90aad642fcc.jpg)
 
 ---
 

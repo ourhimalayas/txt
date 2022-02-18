@@ -2,20 +2,18 @@
 ---
 
 
-## 樱花FM┃美国又扇中共耳光 两党力推“台湾代表处”更名
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2024568/)
+## 樱花FM┃北京奥运会场上和央视对台湾代表团称呼不一
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2024637/)
 
 音频：东京樱花团/战友520
-![](https://lh4.googleusercontent.com/Px1-mEkVaVgJC9qo0d9Zm_Clkrk527r2iZ15wj02XbPGR19X8xiF9GExge4QHvj1h5fgAOo1lh0u5-UwHvIwBYoQwCgVH-M8Og2GevPCMe4OlNcbTl9I8Pp72DzyjrSAO0Xmt6RV)
-美国参众两院议员提出配套法案，要求将台北驻美国的代表处更名为“台湾代表处”。台湾外交部发言人欧江安表达感谢，并持续密切关注法案后续发展。
+![](https://lh4.googleusercontent.com/2rOLWZEm-ILGl5YVCiP4sFOxQYmSQeJh2CPmn9nX3OJohYPcOCFbvvsqqVST_7GiGkCIBHjrjzhzqLjbPXodDPDdnD2PG1Vjuv0grUukIQYq6Nu4krSAiQ1Ntwl75Cj_GZ1O6OMD)
+2月4日时事通信社消息：4日晚举行的北京冬奥会开幕式的直播中，中共国营中央电视台（CCTV）的播音员将台湾代表团称为“中国台北”。
 
-美国两党国会议员3日在联邦参众两院提出配套法案，要求美国针对台湾在华府的“驻美国台北经济文化代表处”（TECRO）更名为“台湾代表处”（Taiwan Representative Office）展开协商。
+会场上的宣布和以前一样，是“中华台北”，而面向中共国老百姓时，还是基于“一个中国”原则，强调台湾也是中共国的一部分。
 
-共同提出法案的共和党籍参议员卢比奥说：“美国必须清楚表明，尽管中国共产党竭尽全力恐吓并胁迫台湾，敌对势力也无权对民主国家主张主权。”
+当台湾代表团入场时，中央电视台切换到习近平在贵宾席上观看的镜头。当香港代表团紧随其后时，中央电视台也播放了习近平相关画面，暗示他希望在“一国两制”下统一台湾。
 
-孟南德兹表示，这些法案符合定义台美非正式关系的“台湾关系法”，且表明华府支持台湾“决定自己的未来”。
-
-文字版原文：[美国又扇中共耳光 两党力推“台湾代表处”更名](https://gnews.org/zh-hans/1958384/)
+文字版原文：[北京奥运会场上和央视对台湾代表团称呼不一](https://gnews.org/zh-hans/1958096/)
 
 *编辑：东京樱花团/asket
 发布：东京樱花团/平安卿卿*
