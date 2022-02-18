@@ -2,33 +2,34 @@
 ---
 
 
-## 2022/02/16 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2025972/)
+## 美中不断交前提是中共必须配合病毒溯源调查
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2026020/)
 
-1. 2月15日，中俄边境城市内蒙古满洲里市被中共通报出现5例新冠病毒确诊病例，随即中共政府对满洲里市执行封城措施，所有人只有经过批准方可进出。
-2. 2月15日，湖南郴州。被中共通报出现2例新冠病毒确诊病例后城市停摆，道路被封，餐馆、街道无人出入，整个城市服务行业从业者都将面临巨大经济生活压力。
-3. 2月15日，中共政府通报江苏苏州新增18例新冠病毒确诊病例。视频为苏州市民做核酸检测现场，从控制病毒传播的角度来看，中共如此施行全民核酸检测的防疫措施纯粹只是为了玩弄老百姓。
-4. 天津河北区一封控小区内，一位老大爷因不满中共的隔离封控措施，随即被公安带走。
-5. 中共在香港释放病毒，导致香港确诊病例出现爆发性增长，医疗系统超负荷接近崩溃，人们纷纷被诱骗逃离香港。
-6. 2月15日，湖北农村刚刚过完元宵节，一个人都没有了，都出远门了，只有几个八十岁的老人留守。
-7. 在孩子的哀求声中，母亲也只能无奈心酸的忍痛离开。孩子无法在父母身边健康快乐的成长。
-8. 2月14日，湖北天门公立学校全体中小学生被强制要求集体配餐事件，引发天门市家长集体不满。成立仅3个月的公司接下全市公立学校的配餐，重复利用的餐具，不戴手套，口罩的操作，引发了家长的集体抗议。
-9. 2月14日，江苏徐州。孩子在中共手里都是绑架的工具。 老师指定学生必须到指定书店买书，导致书店人满为患。
-10. 2月15日，重庆，此前因驱逐吃饭民警的星巴克门店前被市民送白花扔鸡蛋，围观群众劝阻保洁人员“不要扫”。
-11. 2月13日，云南大理。女子穿和服在景区拍照被路人辱骂。中国大陆社会弥漫的民族主义对立情绪是中共政府的有意制造。
+作者：首尔天池农场 – 追着曙光跑
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生在2月16日的大直播中爆料称，美国拜登总统明确告知习近平，美国与中共不断交的前提在于，后者必须配合国际上对中共病毒溯源的调查。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide2-7.jpeg)
 
-* * *
+郭先生表示， 中共病毒疫情爆发的这两年多来，全球的感染和死亡人数仍在不断增加，加之各国推行的中共病毒疫苗强制接种政策，全球的经济和社会秩序正处于崩溃边缘。 此外，由于中共病毒及其疫苗所造成的伤害，全球或将爆发大规模的排华，甚至排亚事件。但是，被牵连的日本和韩国等亚洲国家一定会发起抗议，最终联合全世界一同迫使中共配合病毒溯源的调查。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+郭先生指出，拜登总统巧妙地利用了国际社会对中共的怨恨向其施加压力，而中共已无还手之力。最后，中共只能配合做好国际病毒溯源的调查工作。
 
+参考链接： [https://www.gettr.com/post/puzr7k1d1d](https://www.gettr.com/post/puzr7k1d1d)
 
-编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+总编：Irene木木
+编辑：飞虹
+校正/发稿：谐趣园
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

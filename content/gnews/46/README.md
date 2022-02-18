@@ -2,20 +2,26 @@
 ---
 
 
-## 【G时新闻】多数人认为特鲁多不能胜任国家领导职责
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2024798/)
+## 奥运会不该在北京举行，川普谈中共入侵台湾
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2024989/)
 
-加拿大温哥华扬帆农场   播报：yuyu   视频制作: Gracelshan
+翻译：文暉
+校对：精靈藍
+剪辑|字幕：小强
+编辑：守望黎明
 
-多数人认为特鲁多不能胜任国家领导职责。据加拿大[真北方]2月16日报道，随着加拿大自由车队反抗强制疫苗政策的和平抗议进入第三周，越来越多的加拿大人对总理特鲁多的处理方式表示不满。
+彭帅事件的发生和中共恶形恶状的洗地掩盖行为，被西方媒体持续报道，把中共的丑陋不堪展现在了世界的面前。而北京冬奥会上各种丑闻的频频曝光，让本来砸下大钱、想往自己的脸上涂脂抹粉的冬奥会，变成了中共丢人现眼的噩梦，也让习近平成了全球的笑话。
 
-最新民调显示，53%的加拿大人认为特鲁多在面对抗议活动时的拙劣反应，显示其在国家出现危机时，表现出的软弱无能。其中有63%的人不会根据该总理处置自由车队事件的方式而再投票给他。尽管主流媒体一边倒地打压和平抗议运动，但特鲁未能借此提升自己的公众形象。
+视频来源：[Olympics shouldn’t have been held in Beijing in the first place Rep.Gallagher\_1](https://www.foxbusiness.com/shows/mornings-with-maria)
 
-目前仅约30%的加拿大人认可他的表现，而多数人则认为他因激化了社会矛盾而再无资格成为自由党领袖和联邦政府总理，并应该对目前出现的危机负责。
+*发布：Mttfly*
 
-听写/翻译：LuLu1312
-字幕：圣骑士
-编辑/上传：圣骑士
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
