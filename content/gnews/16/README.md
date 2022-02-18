@@ -2,47 +2,26 @@
 ---
 
 
-## 有声|中共统治下数字呈现出的真相
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2025651/)
+## 加拿大皇家骑警试图冻结多个数字货币钱包
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2025797/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-2月15日，郭文贵先生于盖特中转贴了据称前重庆大学法学院院长陈忠林教授做出的一些统计数据。表明中共国民众的真实生活状态。其中有些数据我们无法证实，不便展示。但我们综合了一些类似统计指标的可查询数据，来反映中共统治下国民的真实状况。
+采编：Spirit       编辑撰稿：硫酸羟氯喹64
 
-1.中共2021年全球清廉指数排名第66位。与之对比，台湾排名第25位。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot_20220218-110516_Samsung-Internet-edited.jpg)图片来源：thecountersignal
 
-2.中共司法人员的犯罪率是一般民众的6倍。
 
-3.2020年中共人均收入5150美元，美国为3.86万美元。中共人均收入只有美国的13%，而且内部不平等现象严重。
+据数字货币行业媒体《计数信号》2月16日报道，在总理特鲁多的授意之下，皇家骑警当天命令所有受[加拿大金融交易和报告分析中心]监管的机构，停止所有与渥太华自由车队有关的数字货币钱包交易。
 
-4.房价与年收入比，中共是20~40:1，美国是3:1。中共房价是美国的6~13倍。
+据悉，在被特鲁多政府禁止交易的34个数字货币钱包中，至少有一个比特币钱包的金额超过了100万美元。但警方目前仍未明确如何能阻止这些资金被用来支持自由车队的抗议者。
 
-5.中共官民比为1:20，美国为1:700。中共民众对官员的负担是美国的35倍。
+尽管当局急于冻结所有与和平抗议活动有关的资金，但这些数字货币的流通使用已远超执法部门的识别能力及其可控制的范围和手段。目前，特鲁多疯狂阻截支持和平抗议的赞助资金之举已遭到各界的强烈抨击。
 
-6.中共国有行业职工占全国职工总数8%，收入却占全国职工工资总额55%。
+校对编辑：硫酸羟氯喹64
 
-7.中共政府收入增长985倍，民众只增长19倍。
+发稿：文明(添草灭共)
 
-8.中共贫困人口超过2.5亿人，排全球第二位。
+原文链接：[https://www.thecountersignal.com/news/rcmp-ban-34-crypto-wallets-from-working-in-canada](https://www.thecountersignal.com/news/rcmp-ban-34-crypto-wallets-from-working-in-canada)
 
-9.中共能享受到的教育及医疗费用占国内生产总值的3.8%，美国为21.5%。中共只有美国的17%。
-
-10.中共每年非正常死亡数超过320万人。
-
-文字版原文：[中共统治下数字呈现出的真相](https://gnews.org/zh-hans/2020286/)
-
-音频处理：Fei797
-发稿：Fei797
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

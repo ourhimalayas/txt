@@ -2,48 +2,77 @@
 ---
 
 
-## 乌克兰总统泽连斯基称加入北约是乌克兰的“安全
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2025872/)
+## 2022年2月18日文贵先生直播摘要及音频—银河系农场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2025993/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image003-15.jpg)
-2 月 17 日，塔斯社报道：乌克兰总统泽连斯基本周三表示，该国不能放弃加入北约的道路，因为加入北约是基辅的“安全保障”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/封面-12.jpg)
+盖特连接：[2022年2月18日 文贵大直播：乌克兰俄罗斯危机各执一词；Omicron病毒解禁众说纷纭](https://gettr.com/streaming/pvbkea9266)
 
-泽伦斯基说：
+1、80%国家解禁取消疫苗护照主要是：经济撑不住，政治撑不住，病毒撑不住了（病毒变弱）；
 
-“乌克兰需要安全保障。北约是我们的[安全保障]。保证我们不会失去独立，”
+2、疫情尚未结束：戴口罩，勤洗手，撑到5月份；
 
-俄罗斯外交部去年 12 月 17 日公布了俄罗斯的安全保证协议草案，莫斯科期望美国和北约能够签署这些协议。与美国和北约成员国达成的两项协议意味着，拒绝北约东扩，包括拒绝让乌克兰加入其中，以及实施限制部署严重进攻性武器，尤其是核武器。已经以各种形式举行了多轮磋商，但尚未宣布达成任何协议。
+3、新加坡不宜久留；
 
-周三，在俄乌边境局势持续紧张的背景下，英国议会下议院国防委员会主席托拜厄斯·埃尔伍德在接受天空新闻采访时 提议在乌克兰上空设立禁飞区。与此同时，此前主张将军事人员派往乌克兰的埃尔伍德没有解释他如何看待组织这样一个禁飞区的可能性。
+4、美国和共产党的较量，会把新加坡干掉；
 
-反过来，英国国防部长本·华莱士表示，尽管俄罗斯宣布撤军，但“过去两天，在与乌克兰接壤的俄罗斯军队人数增加了 7,000 人”。对此，他强调“俄罗斯入侵乌克兰将是一个战略错误”。
+5、李家江山争夺，华人成牺牲品；
 
-最近，在西方国家以及乌克兰，都有关于俄罗斯可能入侵乌克兰领土的声明。俄罗斯总统新闻秘书德米特里佩斯科夫称这些信息是空洞的，而且毫无根据地加剧了紧张局势。佩斯科夫强调，俄罗斯不会对任何人构成威胁。同时，他还警告说，试图以武力解决乌克兰东南部危机将产生最严重的后果。
+6、打了疫苗，就是免疫功能丢失；
 
+7、新加坡，以色列，香港等接种率高的国家导致免疫功能丢失，各种病症频发；
 
+8、疫苗灾难主要症状：吐血，流鼻血，眼睛出血，月经不规则流血不止，孩子突然倒地；
 
+9、中共藏钱最多的是卢森堡，瑞士和新加坡；
 
+10、新加坡票据业务全世界排第一（家族信托）；
 
-**推出问题，敲出真相，爆料在路上！**
+11、接下来咖啡价格要涨3-5倍；
 
-**请关注和订阅我们的以下账号：**
+12、锁链女事件：习家大为恼火，引发了江胡，习谁该负责的党内争论；
 
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+13、冬奥会开幕式花了72亿，张家口安保花费200多亿；
 
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+14、比尔盖茨是媒体的爹，90%媒体使用的软件是微软；
 
-**玫瑰看新闻YOUTUBE账号**：
+15、文贵先生破产：让共产党陷害文贵先生的76个案子全部自动停止，但是文贵先生告别人的案子不会停；
 
-**玫瑰看新闻**
+16、谷爱凌事件：引发美国将立法对在美华人严格要求身份和家人等关系，欧洲也会跟进；
 
-**黑森林的故事**
+17、美国警告俄罗斯，你要是打乌克兰我就停你的SWIFT，俄罗斯反问，中共打台湾停不停中共的SWIFT呢？美国没有说话，点点头，没有说出来；
 
-**ROSE NEWS**
+18、马化腾的老板毛道临+胡海青岳父胡锦涛。二部和三部是最大的技术支持，微信就是共产党的情报软件；
 
-**【玫瑰看新闻】推特账号**：
+19、躺平币优先法治基金捐款者、帮战友转人民币者、推广Hpay、之后就是义工和G系列投资者；
 
-**ROSE NEWS (@ROSENEWS4)A**
+20、战友绝对不能攻击欺骗战友，否则你的喜币一定会被追回；
+
+**注：大直播音频正在制作和上传中，敬请关注——**
+
+**（大直播音频位置）**
+
+编辑整理：文俊；
+
+发布：黎明之前
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

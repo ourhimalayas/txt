@@ -2,22 +2,31 @@
 ---
 
 
-## 美驻日大使发表声明称 俄乌问题日美步调一致
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2025161/)
+## 印度税务部门对当地华为办公室展开搜查
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2025443/)
 
-撰稿：东京樱花团｜麗子
-![](https://lh5.googleusercontent.com/p2y47SLaetIphoWAGEaLFFWiHOI43QF7-_bBaaUgKe3IC7X044uGkHSmV5qG22Yl6R2y9TsfzW1RP09zwZiy8-fnSvLCNSmDhU9wB_yiWpfKw9s96YCHHYnzzJBOzO2vAGoYqgFz)[*图片来源*](https://www.nippon.com/ja/news/reu20220204KBN2K90MZ/)
-上个月抵达日本的美国驻日本大使伊曼纽尔就乌克兰局势发表声明，强调日美将步调一致。
+作者：纽约香草山农场 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月15日，据相关媒体报道，印度税务部门正在对当地多处中共华为公司办公场所展开搜查。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/5-34.jpg)
+消息人士透露，华为在新德里和邻近的主要商业中心古鲁格，以及第三大城市班加罗尔的办公室均被当地税务部门以严查逃税漏税、做假帐或利用空壳公司洗钱等理由进行了突击搜查。其中，当地税务官员查看了华为公司的部分财务文件、账簿和公司记录，还有其在印度的业务和海外交易的资料。另外，印度税务官还带走了该公司的一些相关文件。
+此前一天，印度政府还以对民众隐私和国家安全构成威胁为由，封禁了54款与中共国有关联的手机应用程序，当中多款软件被证实属于腾讯、阿里巴巴和网易等中共国大型科技公司。同时，印度还要求谷歌、苹果等公司在印度境内的手机软件商店中下架这些应用程序。
 
-伊曼纽尔大使在18日发表的声明中表示，日本和美国在俄罗斯问题上保持一致。并提到，岸田首相在17日举行的日俄电话会谈中，向普京提出通过外交努力缓解局势，重视以规则为基础的国际秩序，展现出岸田首相卓越的领导能力。
+参考链接：[Indian tax authorities search premises of China’s Huawei](https://www.reuters.com/world/india/indian-tax-authorities-search-premises-chinas-huawei-local-media-2022-02-16/)
 
-驻日大使强调，美国和日本在解决俄罗斯问题上是团结一致的，并表示，欢迎日本与志同道合的伙伴一致发声。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-信息来源：[**対ロシア「日米の足並み揃っている」駐日大使が強調**](https://news.yahoo.co.jp/articles/e1e769b6166daf47621e19347ec48d0cf5cc7f8b)
+总编: Irene木木
+编辑: Lakeman文仁
+校正/发稿：Fei797
 
-*编辑：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
