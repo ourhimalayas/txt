@@ -2,41 +2,35 @@
 ---
 
 
-## 日本麒麟退出中共软饮料市场
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2022377/)
+## 有声|文贵先生直播“三件大事”的速评
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2022379/)
 
-作者：银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-33.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/440C6CA7-B3D6-4D5B-A2C5-223EB74850C8.jpeg)（图片来自路透社）
-2月16日，日本麒麟控股宣布退出与中共华润集团共同开发的软饮料业务。麒麟公司将以约1150亿日元的价格将其全部股份转让给一家中共投资基金。麒麟公司于2月14日刚刚宣布退出缅甸的啤酒业务，并将通过审查其海外业务促进对增长领域的投资。
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+文贵先生今日（2022-2-16）宣布三件大事：
+一、“经评估，在中共灭亡前不能离开美国，所以文贵短时间内不去日本英国。”
+评：很多人不理解文贵先生“个人正式签署、宣布破产”的重大意义，其实破产对文贵先生来说是“金蝉脱壳”！！！文贵先生在法律界、金融界变成“隐身人”，敌人根本无法伤害到他，而文贵先生却可以竭尽全力用各种法律、金融武器的影响力，逐个击破邪恶势力的围剿，最终必然胜出！另外，文贵先生不能离开美国，也是非常好的消息，虽然欧洲和亚洲区及日本的战友很想尽快与文贵先生会面，但文贵先生的自身安全永远是美国、全球良知人士、新中国联邦战友第一关切的对象。从此文贵先生可以在美国军事级别的保护下，更加专心灭共，一套连环拳直击ccp命脉。
 
-目前该转让的具体日期尚未决定。麒麟预计在该销售中获得约390亿日元的收益。但麒麟表示会继续与中共华润集团在知识产权的使用和许可方面进行合作。
+二、“喜联储将在一个月内推出抵押贷款和一系列新政策。 ”
+评：喜币抵押贷款的益处是不卖币、价格不跌；而比特币和其他数字币进入喜联储交易的益处是喜币将迅速增值、势不可挡！喜币在一个月内推出抵押贷款，战友们即将把手里所有的HDO和法币入金转换为HCN喜币，仅仅持有喜币就可以直接向自己的金融数字银行进行贷款提现，此乃一举两得：1.喜币没有人愿意再卖，价格没有大跌的可能性；2.喜币抵押贷款套现机制，是可以等到喜币迅速升值以后的1-3年期，用10-20%甚至更少的喜币直接还款之前的贷款数额，战友既拥有原始90%的喜币，又套现成功，而且贷款是免税的，这是重点！连着我们农场喜联盟即将发布的投资公告，是对战友投资新GTV的一大利好，并且千秋百代增值、继承！
 
-据悉该日中合资企业名为华润麒麟饮料，麒麟持有其40%的股份，主要产品是矿泉水，并代理销售日本麒麟饮料旗下产品下午茶和FIRE咖啡。该公司历史长达11年。
+三、“习近平刚做完脾和肾两个手术(约30小时前)，差点要了小命，手术后习近平觉得攻台要暂缓！”
+评：普京采用虚幻拳对待乌克兰，欲攻反退，无论是真心还是假戏，对普-习之间的约定是一种灭顶式打击，普京成功套取中共的2000亿美元，又把习近平忽悠了一把，攻台计划没有协助，言下之意就是不把习近平放眼里，但普京若要取下乌克兰也是轻而易举，只是他要付出沉重的代价，所以普京要三思。而习近平手术之后，也知道自己命不久矣，不能轻举妄动，一面自己身体吃不消恐遭反对势力下手，另一面普京出尔反尔无盟友，对台湾的稳定和台湾百姓的安全是一个重大利好！
 
+文字版原文：[文贵先生直播“三件大事”的速评](https://gnews.org/zh-hans/2016221/)
 
+音频处理：Fei797
+发稿：Fei797
 
-参考链接：
-
-[https://www.sankei.com/article/20220216-AB5VU6EZAJPPLJA5MI5RHL3FIM/](https://www.sankei.com/article/20220216-AB5VU6EZAJPPLJA5MI5RHL3FIM/)
-
-编辑/校对/发稿：有莫举名
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-196.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-33.png)
-
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

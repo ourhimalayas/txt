@@ -2,42 +2,143 @@
 ---
 
 
-## DC大中华时事：港共医管局规定须出示疫苗通行证，否则被解雇
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2022497/)
+## 加拿大自由车队是非暴力抗议的“胜利”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2022514/)
 
-*编辑：点苍山 / 作图：*hans（文玄）
+[https://gtv.org/video/id=620e73682403672096ab73d5](https://gtv.org/video/id=620e73682403672096ab73d5)
 
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/ScreenShot-2021-08-01-at-17.25.09@2x.png)
+Stuart:
+Bringing Stephen Moore to join us now, economist Stephen Moore
+现在让斯蒂芬-摩尔加入我们，经济学家斯蒂芬-摩尔
 
-#   墙国妄语每日驳
+If there were an American truck convoy, would you support it?
+如果有美国卡车车队，你会支持吗？
 
-### **0**217.凤凰网.江苏成立“丰县生育八孩女子”事件调查组
+And I ask, because these convoys have got nothing,
+我问，因为这些车队一无所有，
 
-[https://i.ifeng.com/c/8DhjjK2g4QM](https://i.ifeng.com/c/8DhjjK2g4QM)
+I mean this is about getting rid of the mandate for the jab.
+我的意思是这是关于摆脱疫苗强制令
 
-***简评：*****丰县“锁链女”事件在全球引发的舆论压力越来越大，人们的不满与国际舆论的热议让江苏省和地方政府焦头烂额，从几次通报的前后矛盾、漏洞百出、避重就轻等迹象看，锁链女的真实身份是民众最想了解而中共最想掩盖的真相。今天江苏成立专项调查组，与此同时《中国妇女报》刊文《期待江苏调查一锤定音》尽快查明事实真相，依法严惩违法犯罪行为，对有关责任人员严肃追责，向社会及时公布调查结果，还受害人一个公道，给公众一个一锤定音的结论。看来中共已经计划用敲定的最后结果堵住民众的悠悠之口，自1月28日丰县第一份调查报告到今天事件已经发酵了二十多天，国内民众紧追不舍揭露每一份报告的漏洞和虚假，仅仅扣住“锁链女”身份、各级政府包庇、纵容甚至是协同犯罪，以及中共国存在已久的人口贩卖市场等反人类的问题，在国内外掀起了轩然大波，严重危及到了中共在国内统治的稳定性与合法性。昨天郭先生爆料习太阳因攻打台湾计划和脾肾手术神隐多日，现已醒来，对锁链女事件的定性被提上日程。中共国《刑法》第四百一十六条设立的“妨碍解救被拐卖妇女罪”，犯罪主体是负责解救被拐卖妇女的国家机关工作人员，量刑标准是对被拐卖妇女儿童不解救，造成严重后果，处五年以下有期徒刑或拘役；对负有解救职责的国家机关工作人员利用职务阻碍解救的，处两年以上七年以下有期徒刑，情节较轻的处两年以下有期徒刑或拘役。“锁链女”被锁24年身份未知，阻碍她逃跑或有机会知道她是被拐卖而助纣为虐的人不在少数，这些人在中共国的刑法中量刑之低令人震惊，这个体制对人权的轻视令人发指。中共此时利用海内外宣传机器大肆抨击美国人口贩卖问题，引导国内风向，成立专项调查组一锤定音，目的在于尽快结束锁链女事件，中共执政不解决问题，而是解决舆论。**
+And if we get one in America that could really complicate the supply chain again,
+如果我们在美国有卡车车队，真的会使供应链再次复杂化
 
-### 0217.凤凰网.15人从香港偷渡回内地，已有4人确诊，多地发布悬赏通知
+could lead to some inflation, so are you in favor of an America truck convoy?
+可能会导致一些通货膨胀，所以你赞成美国卡车车队吗？
 
-[https://i.ifeng.com/c/8DhRMEJTQyj](https://i.ifeng.com/c/8DhRMEJTQyj)
+Stephen：
 
-***简评：*****中共对香港人偷渡回内地的这个事件有几个险恶目的和用心，第一，洗脑大陆民众，让大陆观众认为香港疫情严重，百姓不重视防疫，大陆法西斯化的防疫措施成果显著連香港人都要北上不惜偷渡入境避疫，大陆是最安全的地方。这种情况在国内很多微信群均有讨论，得到了大陆不少被洗脑民众的响应和认可。第二“商鞅驭民五术”中“弱民”手段的实际应用，用高额悬赏提供线索，挑起民间告密、举报、猜忌怀疑等对立关系，进一步拉低中国民众的道德底线，相互间无法团结信任，民间一盆散沙，世态炎凉。第三，丑化香港，为港共政府进一步严控香港、强制疫苗制造借口，同时也就偷渡者成功入境造成广东新增疫情等过失施压广东各级政府，给各地市一线政府部门压力，进一步敲打整治广东官场。爆料革命的战友们本阶段从广东疫情升温也能再次印证郭先生爆料中情报的准确，当时郭先生预警疫情从西安、京津冀豫地区、浙江、广东逐步到全国。**
+Well, good morning Stuart, couple of points,
+早上好，斯图尔特，几个意义
 
-### 0217.北京周报.新华社：反人性，将抗疫问题金钱化——美国沦为“最大抗疫失败国”
+number one, the Canadian protesters those truckers have won, they won,
+第一，那些卡车司机赢得的加拿大抗议者，他们赢了
 
-[http://www.beijingreview.com.cn/shishi/202202/t20220217\_800275970.html](http://www.beijingreview.com.cn/shishi/202202/t20220217_800275970.html)
+they have made the point in an empathetic way.
+他们以让人同情的方式提出了这一点
 
-***简评：*中共新华社发表的这篇文章痛批美国疫情严重，政府不注重民生，民生艰难物价上涨严重，美元升值将是全球经济危机的罪魁。如果没有比较，大众看着就会被引入中共设下的思维陷阱。对于美国抗疫情况笔者认为和中共一样黑，政府不给民众廉价有效的药，反而强调接种疫苗是有效方式的骗局。中共国则在大规模疫苗介接种后，仍然采取全民核酸检测和封小区、封学校、封城等法西斯手段赚钱和实践操练社会维稳行动方案。对于美国的丑化，中共抓住美国国内CPI上涨7.5%做文章，而我们对比一看，中共国今天也公布了1月的CPI数据，但只公布涨幅0.9%却不公布具体数值，最后大言不惭的说专家预测今年涨幅扩大，但在合理区间。对于预期美元加息，中共表现非常紧张，美元加息加剧美元撤离中国，中共毫无廉耻对自己未来美元债违约的原因归咎于美元加息升值，中共拿不出钱还债，无耻至极震惊业界。中共还拿2000年全球金融危机的导火索是美国次贷危机拿出来说事，而郭先生提前几年已经告诫全球中共国通过勾结华尔街欺骗美国各类基金、养老金将造成债务危机，加上全球疫情和疫苗灾难，人类历史上最大的金融危机早已酝酿爆发。中共将美元加息说成是未来山崩海啸金融危机的原因，简直是不要脸，当然我们还可以从另一个中共今天披露的数据看出中共国银行业的危机，证监会今日公布数据：中共国今年以来9家上市公司发行可转债的发行规模达125.17亿元，去年五家A股上市银行发行可转债达1280亿元，包括兴业银行，南京银行，上海银行，东方财富，杭州银行，中共国银行借新债还旧债的压力有多大可见一斑。去年引爆的中共国房地产企业债务危机，持续的国际违约房企比比皆是，西方各国正竭尽所能维持自己国家危在旦夕的金融体系，今年即将到来的疫苗危机，引发世界有史以来最大经济危机，中共的日子倒数，它知道自己逃不过惩罚，或也得到一些西方要动手的情报，在国内加紧洗脑和甩锅，这篇文章是其中之一，但也于事无补，改变不了它灭亡的结局。**
+People see you know these pictures, it’s been misrepresented by the way, by the media.
+你知道，人们看到这些照片，它被媒体歪曲了
 
-#   港台资讯
-![](https://himalayawashingtondc.org/wp-content/uploads/2022/02/8F571876-9B43-4723-A72E-DDE25024E655-1024x576.png)![](https://himalayawashingtondc.org/wp-content/uploads/2022/02/D74D4115-A519-4DB0-BD86-AD0E1920A83F-1024x576.png)![](https://himalayawashingtondc.org/wp-content/uploads/2022/02/CA14E243-217A-4856-8E85-06BEFCDE6AEF-1024x576.png)
+It has been almost exclusively peaceful, no question about it.
+它几乎完全是和平的，毫无疑问
 
+These are people who have made an incredible point, not just to the Canadian government, to people around the world,
+这些人提出了令人难以置信的观点，不仅对加拿大政府，对世界各地的人们
 
+and you are right, you are starting to see this kind of protest now in some of European countries and New Zealand and others,
+你是对的，你现在开始在一些欧洲国家和新西兰和其他国家看到这种抗议，
 
+so it has been a victory for non-violent protest,
+所以这是非暴力抗议的胜利，
 
-*编辑：点苍山*
-*作图：hans（文玄）
-发布：文顾*
+and it’s probably time for…
+可能是时候……
+
+by the way I don’t think the protesters have the right to stop commerce and block bridges and things of that nature
+顺便说一句，我不认为抗议者有权停止商业并封锁桥梁和类似性质的东西
+
+so I think that the police acted correctly in cleaning the bridges,
+所以我认为警察清理桥梁的行为是正确的，
+
+so that commerce could commence
+这样商业才能持续
+
+and whether this should happen in the United States, you know, Stuart,
+以及这是否应该发生在美国，你知道，斯图尔特
+
+I actually think that what’s happening now in the US is a lot of these mandates and a lot of these mask requirements all over the country,
+实际上，我认为现在在美国发生的事情是很多这样的规定和全国各地的很多口罩要求
+
+even the democratic governors are getting rid of them now,
+即使是民主党的州长现在也正在摆脱它们，
+
+because the virus is in such rapid retreat,
+因为病毒正在迅速消退
+
+so hopefully I won’t need protest, because all of these mandates are going to go away in the next few weeks.
+所以希望我不需要抗议，因为所有这些强制令都将在接下来的几周内消失
+
+Stuart:
+
+Let me ask you about producer prices, we get the number tomorrow.
+让我问你关于生产者价格的问题，我们明天得到这个数字
+
+We are expecting a 9% annual inflation rate at the producer level.
+我们预计生产者层面的年通胀率为 9%
+
+If we get that 9%, does that mean higher consumer prices down the road?
+如果我们得到那 9%，这是否意味着未来的消费者价格会更高？
+
+Stephen:
+
+Well, by the way, one other quick thing about Canada, have you seen the latest Justin Trudeau approval ratings?
+好吧，顺便说一下，关于加拿大的另一件事，你看过贾斯汀·特鲁多最新的支持率吗？
+
+He’s as low as Joe Biden is in the United States, so again evidence these protests have really made a statement.
+他和乔·拜登在美国一样低，所以再次证明这些抗议活动确实起了作用
+
+Yeah, I think we’re going to see a high producer price index number
+是的，我认为我们将看到一个高生产者价格指数
+
+and of course that’s going to spread down to higher consumer prices,
+当然，这会蔓延到更高的消费者价格
+
+and there’s now word, as you’ve been reporting that the Fed may have some kind emergency rate increase,
+现在有消息，正如你一直在报道美联储可能会紧急加息
+
+I’m total in agreement with that,
+我完全同意这样做
+
+I only think they should have done that nine months ago,
+我只认为他们应该在九个月前这样做
+
+they are way behind the curve and fighting this inflation with that validations of it, we will see more validation behind the curve tomorrow.
+他们远远落后于曲线，并通过对它的验证来对抗这种通货膨胀，明天我们将在曲线后面看到更多的验证
+
+Stuart
+Lots of speculation about what the Fed will do when it will do it. Stephen Moore, thanks a lot for being with us. We will see you tomorrow
+很多人猜测美联储何时会采取行动。斯蒂芬-摩尔，非常感谢您与我们在一起。我们明天见
+
+**原视频链接:**[** **https://www.youtube.com/watch?v=AQ4jx17mcGI](https://www.youtube.com/watch?v=AQ4jx17mcGI)
+
+Date:02/15/2022
+原视频标题: Canada Freedom Convoy a ‘victory’ for non-violent protests
+加拿大自由车队是非暴力抗议的“胜利”
+原视频日期：2022/02/14
+**原视频链接: **https://www.youtube.com/watch?v=AQ4jx17mcGI
+任务编号：3760
+视频时间段 : 0:00-02:42
+
+英听校：洛杉矶盘古农场 – Raul
+翻译：洛杉矶盘古农场 – Raul
+翻译终校：洛杉矶盘古农场 – Mike Li
+审片：洛杉矶盘古农场 – 天涯行
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
