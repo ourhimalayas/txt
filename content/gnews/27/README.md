@@ -2,28 +2,24 @@
 ---
 
 
-## 七哥破产
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2024726/)
+## 樱花FM┃美国又扇中共耳光 两党力推“台湾代表处”更名
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2024568/)
 
-作者：纽约香草山翻译部 – 博迪
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot_20220218-194701_Video-Player.jpg)
-将身饲虎自从容，一笑风云两袖空。
-地陷神州横赤焰，天开盘古跃真龙。
-密谋宵小阴衔恨，鏖战将军夜引弓。
-颠倒乾坤归正道，妖霾扫荡挽长虹。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-4.jpg)
-**审稿/校对/发稿：春草**
+音频：东京樱花团/战友520
+![](https://lh4.googleusercontent.com/Px1-mEkVaVgJC9qo0d9Zm_Clkrk527r2iZ15wj02XbPGR19X8xiF9GExge4QHvj1h5fgAOo1lh0u5-UwHvIwBYoQwCgVH-M8Og2GevPCMe4OlNcbTl9I8Pp72DzyjrSAO0Xmt6RV)
+美国参众两院议员提出配套法案，要求将台北驻美国的代表处更名为“台湾代表处”。台湾外交部发言人欧江安表达感谢，并持续密切关注法案后续发展。
 
-**更多资讯，更多关注**
+美国两党国会议员3日在联邦参众两院提出配套法案，要求美国针对台湾在华府的“驻美国台北经济文化代表处”（TECRO）更名为“台湾代表处”（Taiwan Representative Office）展开协商。
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+共同提出法案的共和党籍参议员卢比奥说：“美国必须清楚表明，尽管中国共产党竭尽全力恐吓并胁迫台湾，敌对势力也无权对民主国家主张主权。”
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+孟南德兹表示，这些法案符合定义台美非正式关系的“台湾关系法”，且表明华府支持台湾“决定自己的未来”。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+文字版原文：[美国又扇中共耳光 两党力推“台湾代表处”更名](https://gnews.org/zh-hans/1958384/)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
