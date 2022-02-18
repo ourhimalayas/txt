@@ -2,43 +2,26 @@
 ---
 
 
-## 多伦多乘客被评为全国最讨厌的Uber乘客
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2022256/)
+## 伊隆 · 马斯克将特鲁多与希特勒相提并论而引发愤怒
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2022272/)
 
-作者：Jack Landau
-翻译：KK
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-188.png)
-如果你曾经因为在多伦多乘坐Uber，但对司机的服务不满意而给他不完美的评价。要知道你也可能被多伦多的司机们评价。
+#### 编译：Cran
 
-Uber乘客每次使用后也要被从一到五星给与评级，事实证明，多伦多的乘客是全加拿大最难以忍受的。
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/02/16451360011.png)Image Source：美国之音
+据Rebel News2月17日报道，世界首富，伊隆 · 马斯克（Elon Mask）前不久曾在多条推文中表示过支持卡车司机领导的自由车队抗议活动。
 
-Uber加拿大公司发布了一份乘客评价最好和最差的五个城市的名单，多伦多就像另外一个纽约，粗鲁人的名声再次抬头，因为多伦多的排名中接近垫底。
+因为特斯拉创始人马斯克将加拿大总理贾斯汀 · 特鲁多（Justin Trudeau) 与阿道夫·希特勒 (Adolf Hilter) 相提并论，使他重新回到了聚光灯下。
 
-多伦多的表现很差，只有一个城市的排在多伦多之后——渥太华的排名最低，而蒙特利尔、伦敦和汉密尔顿的Uber乘客排名都在多伦多之上。
+马斯克在回应 Coindesk 网站的一篇文章时发布了一条推文。在引用的一张图片标题为 “我有预算” 中， 将特鲁多和希特勒进行了讽刺性的比较。 希特勒： “不要把我和贾斯汀 · 特鲁多相提并论”。据 Rebel News 报道，马斯克在推特上发布了 “加拿大卡车司机为统治者”，以表示对卡车司机的支持。有7000多万粉丝分享了这条推文。
 
-不过，你会觉得很惊讶吗？
+马斯克的言论并没有受到自由党支持者的欢迎，他们指责他把希特勒与特鲁多相提并论，淡化了大屠杀的恐怖。然而那些指责马斯克轻描淡写希特勒暴行的人，在为特鲁多指责卡车司机抗议而援引纳粹而辩论时，却很快就为自己找到了借口。特鲁多曾谴责和平抗议者是白人至上主义者，还用了一系列其他词语将他们等同于纳粹。加拿大媒体和左翼政治人物也持有同样的观点。
 
-排名前五位的最佳乘客都是一些较小的城市，萨斯卡通（Saskatoon, SK）现在可以夸耀自己是全加拿大拥有最好的Uber乘客的城市，其次是红鹿（Red Deer, AB）、阿伯茨福德（Abbotsford, BC）、布兰特福德（Brantford, ON）和莱斯布里奇（Lethbridge, AB）。
+周三，特鲁多在回应反对他立场的犹太保守党议员梅丽莎 · 兰特曼（Melissa Lantsman）时说: “保守党成员可以和挥舞纳粹党徽的人站在一起，他们可以和挥舞南方联盟旗帜的人站在一起”。他还称，他的党与人民站在一起，他要让他们找回自己的工作和生活。这些非法抗议必须停止。
 
-不过说实话，其中一些是基本的礼貌，你真的不需要从一个公司的声明中学习。
+伊隆 · 马斯克目前居住在美国，他的母亲是加拿大人，父亲是南非人，他十几岁时就住在加拿大，后来进入安大略省金斯顿的皇后大学学习。后来他搬到美国，在宾夕法尼亚大学学习。
 
-乘客被讨厌的事情包括：比如当司机到达时，你真的在路边等待；乘车时不要在陌生人的车里留下一个烂摊子；尊重司机；以及不要摔车门。
-
-来源：https://www.blogto.com/tech/2022/02/toronto-uber-passengers-ranked-worst-canada/
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+[Source](https://www.rebelnews.com/elon_musk_draws_ire_for_comparing_trudeau_to_hitler)
 
  
 

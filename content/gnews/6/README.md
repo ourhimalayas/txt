@@ -2,47 +2,27 @@
 ---
 
 
-## 美通过《2022年美国竞争法》，防止中共企业垄断
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2022413/)
+## 有声|北约秘书长批中共与俄罗斯领导人操弄小国未来
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2022442/)
 
-作者：台湾宝岛农场\_阿尔道夫
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-33.png)
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9D%A1%E5%B9%85.png)
+北大西洋公约组织（NATO）16日将举行国防部长会议，15日秘书长史托腾博格在回答记者提问时表示，中共及俄罗斯不认同西方的民主价值观，不喜欢遵守国际规则秩序，并想要剥夺一个主权民主国家选择自己未来的权力。
 
+對乌克兰危机一事，史托腾博格提到中共和俄罗斯在过去几年关系來往越来越密切，并在印度洋及不同海域进行联合军事演习的行為，他认为中俄领导人想要由大国来决定小国可以做什么。然而，相较于中共与俄罗斯，西方国家的人民则生活在法治秩序的世界中，这是中俄领导人与西方价值观的最大差异。
 
-![](https://gdb.voanews.com/09dd0000-0a00-0242-f776-08d9e826901a_w1023_r1_s.png)（图片来自美国之音）
+文字版原文：[北约秘书长批中共与俄罗斯领导人操弄小国未来](https://gnews.org/zh-hans/2018362/)
+音频处理/发稿：Daxia
 
-近年来，中共积极游说国际电信联盟（ITU）、国际电工委员会（IEC）等机构，让中共的企业获得竞争优势。面对此冲击，美在北京冬奥开幕当天通过《2022年美国竞争法》，旨在帮助美半导体制造业，抵消中共扭曲市场的贸易行为，包括加强反倾销规则等。
-
-美国也和日本连手建立6G无人化技术的国际标准，防止中共企业垄断，并强化尖端技术保护，防范中俄经济间谍战。
-
-欧盟主管竞争事务的执委维斯塔哲（Margrethe Vestager）表示，中共近期重新定义网络的基本标准，让中共对国有网络的使用者有更大的控制权，因此，欧盟委员会提出对行业标准系统实施改革，藉以避免欧洲数码产业等被被中共主导。
-
-近日，北京大学在一份报告中罕见承认，美中科技脱钩后，中共无论在技术层面还是产业层面都明显落后，中共的芯片制造、人工智能及信息科技产业更将面临严重的发展瓶颈。该报告在墙内被火速删除。
-
-
-
-参考链接：
-
-[https://www.epochtimes.com/b5/22/2/15/n13577942.htm%E3%80%8B](https://www.epochtimes.com/b5/22/2/15/n13577942.htm%E3%80%8B)
-
-编辑/校对/发稿：有莫举名
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-38.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-33.png)
-
-
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
