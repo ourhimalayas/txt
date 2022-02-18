@@ -2,38 +2,26 @@
 ---
 
 
-## 郭先生揭秘俄罗斯近期军事行为的背后原因
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2026053/)
+## 安省自由车队捐款者的信息被非法泄露
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2026063/)
 
-作者：纽约香草山农场-AT，银河系农场-骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月16日，郭文贵先生在大直播中透露，在受到了来自国际社会的巨大压力后，普京宣布俄罗斯军演结束，并将从克里米亚半岛部分撤军。
+采编/编译撰稿：文明(添草灭共)                    校对编辑：硫酸羟氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide3-6.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/website-bake3-1-edited.jpg)图片来源：tnc
 
-郭先生指出，美国、欧洲和日本近期联合向俄罗斯施压；法国、德国、英国和巴西等国家也明确警告俄罗斯，在其开战的那一刻，他们会实施各种方式的制裁措施，包括驱除在各国的俄罗斯人。
 
-郭先生表示，普京在强压之下示弱撤军。不过，俄军当前的行动仍属于战略性动作阶段，不排除普京为转移视线，采取表面上撤军，但背后突然用导弹袭击乌克兰的举动。
+据加拿大媒体【真北方】2月17日报道，安省一家面包店主因向“自由车队”捐款，而在社交媒体上和其营业场所中受到不明人员滋扰。
 
-郭先生也提到，如果普京攻打乌克兰，习近平一定会借机打台湾。但是，作为目前最受国际瞩目的政治事件之一，普京深知，俄罗斯攻打乌克兰将对国际政治和经济产生巨大的影响；而如果放弃这次行动，他与习近平的关系将彻底结束。
+据悉，一名男子日前进入该商店并威胁正在工作的女员工，称向抗议车队捐赠1000元是支持“叛徒”。此后店主还收到了内容为“白人至上种族主义者”电子邮件的侮辱和谩骂。
 
-参考链接：
-1. [https://gettr.com/post/puel3n071f](https://gettr.com/post/puel3n071f)
-2. [普京撤军，黄金将崩跌了，一切都在预料中，就是这次咋呼的太过了！](https://gettr.com/post/puwl3mf1e1)
+报道称，已为“自由车队”募集到了数百万美元的筹款网页平台，近日被黑客非法入侵并导致大量捐款者个人信息被泄露。随后，有大量匿名的推特账户立即开始对这些支持者进行攻击。而传统媒体和自由党知名人士则在网上分享这些非法获取的信息。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+评论指出：当权者为维护其统治地位而不择手段地打压民意、制造分裂，挑起争端之举，已不再是独裁中共的专利。特鲁多假借[紧急状态法]剥夺和侵害加拿大人自由的罪行必将遭到强烈反抗和彻底追责。
 
-总编：Irene木木
-编辑：飞虹
-校正/发稿：谐趣园
+发稿：文明(添草灭共)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+原文链接： [https://tnc.news/2022/02/17/bakery-facing-threats-and-harassment-over-leaked-convoy-donation/](https://tnc.news/2022/02/17/bakery-facing-threats-and-harassment-over-leaked-convoy-donation/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

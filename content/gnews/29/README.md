@@ -2,26 +2,36 @@
 ---
 
 
-## 安省自由车队捐款者的信息被非法泄露
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2026063/)
+## 谷爱凌争议言论开始发酵
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2026085/)
 
-采编/编译撰稿：文明(添草灭共)                    校对编辑：硫酸羟氯喹64
+作者：纽约香草山农场 – AT，银河系农场 – 骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在2月16日的大直播中，郭文贵先生透露了一份独家情报：中共为了平息谷爱凌的国籍问题和外界对中共一系列违规操作的争议，其以气候为由，取消了谷爱凌的两场最重要赛事。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/website-bake3-1-edited.jpg)图片来源：tnc
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide4-9.jpeg)
 
+郭先生解释到，谷爱凌早先在获得自由式女子大跳台项目金牌后表示，她在美国就是美国人，在中国就是中国人。但这一言论完全违背了中共面向全世界颁布的“只承认一个国籍”的法律，也是对整个世界的欺骗和愚弄。目前，谷爱凌事件在全球引起了强烈的反弹，一些政府表示，要对其进行彻底的调查。
 
-据加拿大媒体【真北方】2月17日报道，安省一家面包店主因向“自由车队”捐款，而在社交媒体上和其营业场所中受到不明人员滋扰。
+另一方面，多国运动员在冬奥会房间内发现了中共安装的隐藏摄像头，同时，中共勾兑、收买裁判的行为也有了确凿的证据。
 
-据悉，一名男子日前进入该商店并威胁正在工作的女员工，称向抗议车队捐赠1000元是支持“叛徒”。此后店主还收到了内容为“白人至上种族主义者”电子邮件的侮辱和谩骂。
+郭先生指出，中共违背奥运精神、突破道德底线、违反法律的行为已经引发了多国运动员、政府及关注人士的愤怒。
 
-报道称，已为“自由车队”募集到了数百万美元的筹款网页平台，近日被黑客非法入侵并导致大量捐款者个人信息被泄露。随后，有大量匿名的推特账户立即开始对这些支持者进行攻击。而传统媒体和自由党知名人士则在网上分享这些非法获取的信息。
+参考链接：[https://www.gettr.com/post/pv68n2aea7](https://www.gettr.com/post/pv68n2aea7)
 
-评论指出：当权者为维护其统治地位而不择手段地打压民意、制造分裂，挑起争端之举，已不再是独裁中共的专利。特鲁多假借[紧急状态法]剥夺和侵害加拿大人自由的罪行必将遭到强烈反抗和彻底追责。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-发稿：文明(添草灭共)
+总编：Irene木木
+编辑：飞虹
+校正/发稿：谐趣园
 
-原文链接： [https://tnc.news/2022/02/17/bakery-facing-threats-and-harassment-over-leaked-convoy-donation/](https://tnc.news/2022/02/17/bakery-facing-threats-and-harassment-over-leaked-convoy-donation/)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
