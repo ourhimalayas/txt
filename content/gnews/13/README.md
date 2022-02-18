@@ -2,12 +2,26 @@
 ---
 
 
-## 中共计生办拐卖孩子，但依中共法律却不可以追究
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2025037/)
+## 北京冬奥会是种族屠杀运动会
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2025083/)
 
-某司法考试培训班展示了一个案例研究：中共计生办没收别人的孩子，送到儿童福利院，通过所谓的收养程序卖给境外机构。这是典型的拐卖儿童的行为，但依中共法律却不可以追究这些政府单位。
+翻译：Annabelle
+校对：精靈藍
+剪辑|字幕：向上James
+编辑：慕纱公子
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+当前，中共的种族屠杀冬奥会已经激起了广泛的反对浪潮，在这个世界上只要是拥有良知和健全逻辑思维的人就会对中共的暴行感到愤怒。就像这个充满觉醒意识的美国青年，他驳斥的对象像极了中共的小粉红。他称，美国的人权黑暗历史已经是过去式了，可中共的种族屠杀却在当下进行。他强烈谴责收看冬奥会节目的人，并谴责了当权政客面对中共时的迁就与懦弱。
+
+视频链接：[GENOCIDE GAMES-BEIJING CHINA-OLYMPICS](https://www.bitchute.com/video/YJ5UuFky2o7Z/)
+
+*发布：Mttfly*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

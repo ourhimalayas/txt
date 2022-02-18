@@ -2,10 +2,10 @@
 ---
 
 
-## “中共国是美国第一战略性威胁，美国不应向北约作出更多承诺”
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2025023/)
+## 以色列自由车队向耶路撒冷进发
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2025056/)
 
-02/15/2022 基恩将军：中共国是美国第一战略性威胁。美国不应向北约作出更多承诺。中共国对欧洲和美国都有威胁，欧洲自己也应该正视中共国的威胁
+02/14/2022 以色列自由车队向耶路撒冷进发
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

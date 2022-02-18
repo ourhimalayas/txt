@@ -2,22 +2,19 @@
 ---
 
 
-## 美驻日大使发表声明称 俄乌问题日美步调一致
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2025161/)
+## 文贵大直播 2/18 CCP病毒没结束 疫苗灾难没开始
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2025294/)
 
-撰稿：东京樱花团｜麗子
-![](https://lh5.googleusercontent.com/p2y47SLaetIphoWAGEaLFFWiHOI43QF7-_bBaaUgKe3IC7X044uGkHSmV5qG22Yl6R2y9TsfzW1RP09zwZiy8-fnSvLCNSmDhU9wB_yiWpfKw9s96YCHHYnzzJBOzO2vAGoYqgFz)[*图片来源*](https://www.nippon.com/ja/news/reu20220204KBN2K90MZ/)
-上个月抵达日本的美国驻日本大使伊曼纽尔就乌克兰局势发表声明，强调日美将步调一致。
+撰稿：回响 【秘翻Gnews原创组】
+![](https://assets.gnews.org/wp-content/uploads/2022/02/snapshot1-1.jpg)图片来源 GTV
+当下关于奥米克绒病毒和疫苗强制令，全球众说纷纭，纷乱摇摆。攸关几十亿生命，爆料革命如何解读？
 
-伊曼纽尔大使在18日发表的声明中表示，日本和美国在俄罗斯问题上保持一致。并提到，岸田首相在17日举行的日俄电话会谈中，向普京提出通过外交努力缓解局势，重视以规则为基础的国际秩序，展现出岸田首相卓越的领导能力。
+2月18日的文贵大直播，爆料革命发起人郭文贵先生回答现场嘉宾的各种困惑。郭先生明确指出：经济、政治、病毒三大撑不住是各国政府解除禁令的主要原因，事实上在默认集体感染，放任灾难肆虐。CCP病毒没有结束，疫苗灾难尚未开始。
 
-驻日大使强调，美国和日本在解决俄罗斯问题上是团结一致的，并表示，欢迎日本与志同道合的伙伴一致发声。
+文贵先生再发警报：至少坚持到5月份，老老实实在家待着。生命只有一次，战友们务必小心！
 
-信息来源：[**対ロシア「日米の足並み揃っている」駐日大使が強調**](https://news.yahoo.co.jp/articles/e1e769b6166daf47621e19347ec48d0cf5cc7f8b)
+【来源链接】https://gtv.org/broadcast/watch/620f95cbb706176dd78c6f6f
 
-*编辑：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
