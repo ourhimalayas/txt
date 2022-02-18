@@ -2,12 +2,42 @@
 ---
 
 
-## 七哥金句：我们在一起的基础
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2027187/)
+## 第200期 玫瑰看新闻
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2027280/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句5-1-2.jpg)
-整理：雅典娜农场
-发布：枫叶红了
+【回魂时刻】疫苗受害者专题新闻
+
+1.杀毒软件先驱约翰·迈克菲McAfee 被发现死在牢房里“永远不要接种疫苗”
+
+2.新西兰36 岁男子Dan Allen 接种疫苗三周后心脏病发作
+
+3.世界纪录保持者34岁的Florian Dagoury接种疫苗后患心脏病职业生涯面临终结
+
+4.美国45 岁知名漫画家Jesse Hamm 接种疫苗后死亡
+
+
+
+
+
+**推出问题，敲出真相，爆料在路上！**
+
+**请关注和订阅我们的以下账号：**
+
+**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+
+**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+
+**玫瑰看新闻YOUTUBE账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**ROSE NEWS**
+
+**【玫瑰看新闻】推特账号**：
+
+**ROSE NEWS (@ROSENEWS4)A**
 
  
 

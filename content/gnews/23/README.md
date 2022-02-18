@@ -2,50 +2,32 @@
 ---
 
 
-## 研究显示：TikTok可以绕过苹果和谷歌的隐私保护获取用户数据
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2026982/)
+## 七哥谈三个最惨最危险的国家
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2027010/)
 
-作者：纽约香草山农场 – 四季
+文编：Hima
+听写：叮叮
+视频：七哥
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+2022-02-09直播摘录11：06：25
 
+最惨的，最危险的， 我认为三个国家。 俄罗斯， 就东欧国家排华会超出你想象。 还有个再一次会席卷印尼东南亚， 然后就是共产党给了无数个处女让人家睡觉的 非洲。 非洲是太危险了， 太危险了。
+非洲、 东南亚、 东欧、 俄罗斯。 七哥在这个问题上一点信心都没有 。我们努力吧。 谢谢。
 
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
+**关注我们**
 
+Discord 账号
 
-据[布莱特巴特新闻网](https://www.breitbart.com/tech/2022/02/16/study-chinas-tiktok-can-bypass-apple-and-google-privacy-protections-access-user-data/)2月16日报道，最近的两项研究显示，中共拥有的社交媒体TikTok可以绕过苹果和谷歌应用商店的安全保护措施，获得对用户数据的全面访问权限。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/China-computers-640x480-1.jpg)Dmitry Nogaev/Getty Images
+Gettr 账号
 
-这些研究是由 “白帽子”网络安全专家分别于2020年11月和2021年1月完成的。
-
-研究摘要表明，TikTok能够绕过苹果和谷歌应用商店的代码审计，并能够在用户不知情的情况下更改应用程序的行为、访问设备跟踪功能，使中共国公司和第三方能够访问完整的用户数据。
-
-网络安全公司Conquest Cyber表示，这远远超过了Facebook和Twitter等美国制造的应用程序对用户数据的访问权限。这些动态属性允许TikTok在应用程序可以看到的范围内全权访问您的设备。TikTok浏览器不仅可以访问从网络到设备的转换，而且还可以查询设备本身的内容。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2月.jpg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

@@ -2,12 +2,12 @@
 ---
 
 
-## 七哥金句：风水和迷信
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2027173/)
+## 2月18日文贵大直播摘要（图片1-4）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2027218/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句4-1-1.jpg)
-整理：雅典娜农场
-发布：枫叶红了
+设计：五月花农场 科存
+![](https://assets.gnews.org/wp-content/uploads/2022/02/C45CA077-5E1B-44FA-9CD4-0DFA983B4F43.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/94DFF92B-A3A1-4E67-B326-CB8E3C507D7F.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/AF25633A-D5BF-4911-8592-A77816A6F140.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/B6B663A0-0A78-4A44-BC88-4FE35E2EAB44.png)
+发布：水涨船高
 
  
 
