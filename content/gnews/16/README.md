@@ -2,41 +2,34 @@
 ---
 
 
-## 樱花FM┃冬奥会开幕令北京市公安局如临大敌
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2025486/)
+## 阿联酋将为数字资产服务商发放联邦许可证
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2025510/)
 
-音频：东京樱花团/战友520
+作者：银河系农场 – 骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月17日，据相关媒体消息显示，阿联酋计划在2022年第一季度末为该国数字资产服务商发放联邦加密货币许可证。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/6-29.jpg)
+报道提及，这是阿联酋第一次以数字货币为重点在全国范围内实行的许可立法。目前，阿联酋证券和商品管理局正处于该立法程序出台的最后阶段。据悉，此次许可立法参考了巴黎的金融指导，以及英、美和新加坡等国家的数字货币政策。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/冬奥会开幕令北京市公安局如临大敌-1.png)
+报道也指出，阿联酋的数字货币许可证将由当地首席监管机构和中央银行共同监管。同时，数字资产服务商也可根据该法案制定本地的许可证指南。除此之外，阿联酋政府还准备建立和监管数字货币的采矿行业。
 
-**中共国冬奥会如临大敌，北京市公安局一面强调“四个自信”，一面要求监控所有可能的威胁区域。而国际社会继续谴责中国共产党的种族灭绝罪，并在中共病毒（奥密克戎）侵蚀下继续举办冬季奥运会，将反人性的审查和逆自然气候的做法强加给运动员，严重违反“奥林匹克精神”。美国众议院议长警告美国运动员谨防中国共产党的人身伤害。**
+报道表示，国家数字货币立法将有助于阿联酋成为领先的数字货币友好司法管辖区。
 
-据中共国新华社北京时间4日下午消息，2022年北京冬奥会开幕式将于晚八点举行。北京市公安局在新中国联邦宣战下如临大敌，设立北京冬奥“联合作战指挥中心”。
+参考链接：[UAE reportedly plans to issue federal crypto license for VASPs](https://cointelegraph.com/news/uae-reportedly-plans-to-issue-federal-crypto-license-for-vasps)
 
-就连周边的天津也高度戒备，市委书记李鸿忠对冬奥安保作战中心实地考察，要求“对涉疫地区、重要进京交通卡口、重点商贸街区等实时画面监控”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-李鸿忠在调研检查中指出，举世瞩目的重要历史节点的冬奥会作为重大标志性活动，是展示中共国政党形象的舞台。要严格守住天津作为首都的东大门。全面践行习近平的“四个意识”、坚定“四个自信”、捍卫“两个确立”、做到“两个维护”、牢固树立底线思维和风险意识，强化全市公安指挥系统，突出管控重点，强化矛盾纠纷排查化解，切实将问题解决在萌芽状态。
+总编: Irene木木
+编辑: 静言
+校正/发稿：Fei797
 
-- ***延展阅读：***[***美国花样滑冰团体赛的第一天领先。南希佩洛西警告美国运动员不要在周五的开幕式上抗议***](https://www.nytimes.com/live/2022/02/03/sports/olympics-winter-beijing)
-- ***延展阅读：***[***今晚白宫点亮红、白、蓝色灯光支持美国冬奥运动员代表国家出征北京***](https://twitter.com/WhiteHouse/status/1489410131674677250?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1489410131674677250%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.cnn.com%2Fworld%2Flive-news%2Fbeijing-winter-olympics-2022-opening-ceremony-spt-intl-hnk%2Findex.html)***！***
-
-
-从冬奥安保强调的“四个自信”可见其不自信程度已经到了如同惊弓之鸟一般恐惧程度。中共很清楚，国际社会对中共国政府的主要三大犯罪指控包括世界有目共睹的“**种族灭绝”**的指控：奥运会东道国对维吾尔人和其他穆斯林少数群体的人权侵犯“有系统地试图摧毁维吾尔人”的种族灭绝犯罪指控。其次是“**政治犯**”：对维吾尔人的严厉对待并不是中国对人权的唯一批评，主要是备受瞩目的系统性、有目的地针对香港的政治犯罪、和禁止运动员发表政治声明、威胁要惩罚外国运动员。严重侵犯《奥林匹克宪章》。再有就是“**违背奥林匹克精神**”：中共国走得更远，中国共产党扭曲奥林匹克精神，将“任何违背中共国虚假的”法律法规“的行为或言论视为违背奥林匹克精神，特别是要受到一定的惩罚。
-
-对于威权主义共产中国一贯地侵犯人权行为，美国众议院议长南希佩洛西警告美国运动员说：“你是来比赛的，不要冒险招致中共政府的愤怒，因为他们是无情的，”佩洛西周四对国会中国执行委员会说，“我知道有些人会在那里时说出来，我尊重但我也担心中共政府可能会诋毁他们的名誉和他们的家人。”
-
-2022年2月4日
-
-文字版原文：
-
-
-| [冬奥会开幕令北京市公安局如临大敌](https://gnews.org/zh-hans/1954676/) |
-| --- |
-
-
-*编辑：东京樱花团/asket   
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

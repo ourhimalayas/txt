@@ -2,64 +2,27 @@
 ---
 
 
-## 【诗歌】招安
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2025089/)
+## 2022.2.18大直播 疫苗危机还未到来，战友们继续做好防护
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2025234/)
 
-作者：香草山健身部 — 新世界的一员
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-3.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-18-at-9.13.33-PM.jpeg)
 
 
+撰稿：大浪小水花
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-1-1.png)
+郭先生在2022年2月18日大直播中重申，爆料革命最早声称强制疫苗和疫苗护照政策在2023年以前一定会停止。
 
-二猪愣充天蓬帅
+郭先生提到现在最让他担心的事情，目前随着奥米炕感染率的下降，全世界80%的国家开始停止各种疫情限制措施，人们开始恢复正常生活。
 
-狸鼠獠牙窥虎位
+郭先生指出，政府能强制限制人们打疫苗，强制戴口罩，强制人们呆在家里，同样也可以想办法让人们出门去。现在美国和欧洲各国事实上已经默认让人们集体感染，只是没说出来而已。各政府让人们出门，解除限制，开放学校的根本原因是经济撑不住了，第二是政治撑不住了，第三才是病毒减弱。
 
-心魔恶胆暗谋划
+郭先生呼吁战友们现在一定要冷静，一定要坚持到五月份，因为那时候疫苗死亡才刚开始，疫苗死亡导致的次生灾难才刚开始。如果现在就疏忽大意，后果不堪设想。
 
-唯我独尊苍生劫
+郭先生认为战友们要继续坚持，在生活适当放开的情况下，还要继续做好防护，要保持警惕。如此才能保证自己的安全。
 
-口称同胞大一统
+郭先生忠告战友们心中要有数，疫苗灾难现在还没开始，大家一定要坚持到五月份，不能心怀侥幸，麻痹大意，因为生命只有一次。
 
-一手持香一手枪
-
-奈何上了手术台
-
-上天怜悯惜台湾
-
-猪脑若还存人性
-
-学苏解体散恶制
-
-蓝旗仁义瀚海怀
-
-民安国安既家安！
-
-（本文仅代表作者个人观点）
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-7.jpg)
-
-*编辑 /校对*：*Yuki*jiang
-
-*发稿：Yuki*jiang
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+参考链接：[2022.2.18文贵大直播](https://gtv.org/broadcast/watch/620f95cbb706176dd78c6f6f)
 
  
 

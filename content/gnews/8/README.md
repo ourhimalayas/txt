@@ -2,20 +2,22 @@
 ---
 
 
-## 有声|习近平神隐数日 欲发动对台作战计划
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2025559/)
+## 日本民间反抗对儿童的中共病毒疫苗接种
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2025578/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-4.png)
-郭文贵先生于2月14日和15日连续发布盖特视频爆料称，习近平神隐数日，正在准备对台湾的一场战争，处心积虑地酝酿对台湾的整个作战计划，对台湾极为危险。预计习近平将在16日左右现身，他呼吁台湾同胞务必小心，习近平正准备对台湾发动战争。
+作者：日本方舟农场 – Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月16日，据日本媒体消息显示，日本兵库县宝冢市宫泽诊所的院长宫泽大辅，以及《疫苗后遗症》主创人员之一、京都大学的宫泽孝幸副教授近日联合了超过一万名医生，要求日本政府撤销对该国所有5到11岁的儿童发放的中共病毒疫苗接种券，改为由接种者自行申请的模式。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/7-27.jpg)
+据了解，日本政府即将于3月份在当地5到11岁的儿童群体中推广中共病毒疫苗，但这引起了日本民间对儿童接种疫苗的担忧和反抗。当天，在日本媒体对静冈县儿童家长的采访中，绝大多数父母都表示出对疫苗副作用的质疑。有家长提及，由于接种儿童的年龄较低，但凡出现接种副作用的情况，他们无法准确地向父母和医生表达出自己的症状，而这会严重威胁到孩子的安全。
 
-此外，俄罗斯与乌克兰的军事风险、国际经济、金融的动荡及疫苗灾难，都是世界瞩目的焦点，而一切的灾难都来自于中国共产党。然而，中国共产党的恶行，最后将由中国人买单。
+参考链接：[20220216日本關於5-11歲接種疫苗的反抗](https://www.gettr.com/post/pv1q2ce4f6)
 
-文字版原文：[习近平神隐数日 欲发动对台作战计划](https://gnews.org/zh-hans/2020347/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+总编: Irene木木
+编辑: 飞虹
+校正/发稿：Fei797
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -23,7 +25,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

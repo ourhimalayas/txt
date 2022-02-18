@@ -2,28 +2,31 @@
 ---
 
 
-## 有声|韩国單日确诊病例創歷史新高 首次突破9万例
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2025485/)
+## 樱花FM┃中日财经爆：国际油价突破每桶90美元 为克里米亚危机以来新高
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2025506/)
 
-配音：香草山巡管部– 文凯琳
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9D%A1%E5%B9%85.png)
-2月16日，韩国中央检疫对策本部宣布，截至16日零时，韩国本土共新增了9万0443例确诊个案，较前一天增加了3万多例，首次突破9万例，全国累计超过155万人次确诊。
+音频：东京樱花团/战友520
 
-而患者的感染症状，在短时间内重症患者的比例呈上升趋势，连续三天在300人左右。 单日死亡人数增加39人，累计死亡7202人，病死率为0.46%。全国重症病床使用率为 26.9%。而全国接受在家治疗的患者人数共266,040人。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/中日财经爆：国际油价突破每桶90美元-为克里米亚危机以来新高.png)
 
-文字版原文：[韩国單日确诊病例創歷史新高 首次突破9万例](https://gnews.org/zh-hans/2018364/)
+美国西德州期油继周四站上90美元大关后，周五盘中续涨0.5％到90.73美元，延续7周上涨；布兰特油价周五也涨0.4％到91.45美元，均为克里米亚危机以来的新高。
 
-音频处理/发稿：Daxia
+核心的上涨原因是，俄罗斯有意加剧乌克兰紧张局势，欲制造乌克兰战争，并由此产生的能源供应链是否会断裂的担忧。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+Sunward交易公司分析师Chiyoki Chen指出，由于乌克兰地缘政治风险持续升高，加上OPEC维持温和增产计划，油价预料短期将朝100美元迈进。花旗集团认为，随着俄乌局势越来越不确定，OPEC很可能会坐等事态发展。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+不过，RBC Capital Markets的首席大宗商品策略师Helima Croft指出，沙特仍然是OPEC的主要决策者，目前对超量增产计划持谨慎态度，但如果欧洲本土爆发常规战争且油价飙升至每桶100美元，沙特想法可能会改变，用实际行动来打压油价上涨过快过猛。
+
+文字版原文：
+
+
+| [中日财经爆┃国际油价突破每桶90美元 为克里米亚危机以来新高](https://gnews.org/zh-hans/1954637/) |
+| --- |
+
+
+*编辑：东京樱花团/asket   
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

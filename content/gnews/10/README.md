@@ -2,28 +2,33 @@
 ---
 
 
-## 有声|郭文贵先生将于美国法律监管下申请破产 开启灭共下一篇章
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2025547/)
+## 樱花FM┃美国务院称俄罗斯伪造视频称遭受乌克兰军队袭击
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2025564/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-4.png)
-新中国联邦发起人郭文贵，在共产党滥诉之下，被美国法院判处1.34亿美元的巨额罚款，此罚款金额突破历史记录。2月15日，郭文贵先生于盖特发布视频，郑重表示他将签署个人破产申请书。
+音频：东京樱花团/战友520
 
-此前，郭先生在2月9日的大直播中宣布，新中国联邦对UBS瑞银集团的诉讼在英国伦敦正式立案。UBS拥有1百万亿美元以上的存款和黑账，相当于人类过去500年积累的财富。中共存储在海外的资金大部分都在UBS，它也是唯一一个在中共国获得准入、拥有独立经营牌照的海外银行。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/美国务院称俄罗斯伪造视频称遭受乌克兰军队袭击-1.png)
 
-文字版原文：[郭文贵先生将于美国法律监管下申请破产 开启灭共下一篇章](https://gnews.org/zh-hans/2020275/)
+美国国务院发言人内德-普莱斯周三在新闻发布会上说，俄罗斯伪造其受到乌克兰军队袭击的录像，并说这可能被用作军事入侵乌克兰的借口。
 
-音频处理/发稿：Daxia
+美国政府认为，制作该视频的目的是为入侵乌克兰找借口。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+视频中出现了爆炸、尸体和被毁坏的场地等虚假的场景，发言人指出这都是由俄罗斯情报部门剪辑编造的宣传片。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+视频中还有意出现所谓西方提供给乌克兰的军事装备，暗示美国和欧洲参与其中。
+
+随着乌克兰局势的持续紧张，美国政府对俄罗斯利用虚假信息操纵局势的行为越来越警惕，表示将继续努力阻止俄罗斯为在乌克兰的军事行动寻找任何借口。
+
+文字版原文：
+
+
+| [美国务院称俄罗斯伪造视频称遭受乌克兰军队袭击](https://gnews.org/zh-hans/1954536/) |
+| --- |
+
+
+*编辑：东京樱花团/asket   
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

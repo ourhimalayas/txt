@@ -2,33 +2,34 @@
 ---
 
 
-## 樱花FM┃美国务院称俄罗斯伪造视频称遭受乌克兰军队袭击
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2025564/)
+## 有声|HBO VICE 采访郭文贵先生背后的真相 – 揭露HBO VICE精心编织的谎言 Part-4
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2025600/)
 
-音频：东京樱花团/战友520
+配音：香草山农场 – 信念7
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+在HBO VICE播放的郭文贵先生采访视频中，记者ISOBEL YEUNG借用华尔街日报的虚假报道，将文贵先生定义为双面间谍。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1641.png)图片来源：Gettre
+而在未经剪辑的采访视频中我们看到，当记者试图就“双面间谍”问题征求文贵先生的意见时，文贵先生已经从中共的邪恶本质、行为特征、采取的各种措施，以及西方媒体与中共的勾结等方面给出了有力的反驳。接下来我们还原事实真相的第四部分：反击HBO-VICE利用华尔街日报的双面间谍报道来诋毁郭先生。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/美国务院称俄罗斯伪造视频称遭受乌克兰军队袭击-1.png)
+文字版原文：[HBO VICE 采访郭文贵先生背后的真相 – 揭露HBO VICE精心编织的谎言 Part-4](https://gnews.org/zh-hans/2020190/)
 
-美国国务院发言人内德-普莱斯周三在新闻发布会上说，俄罗斯伪造其受到乌克兰军队袭击的录像，并说这可能被用作军事入侵乌克兰的借口。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-美国政府认为，制作该视频的目的是为入侵乌克兰找借口。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-视频中出现了爆炸、尸体和被毁坏的场地等虚假的场景，发言人指出这都是由俄罗斯情报部门剪辑编造的宣传片。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-视频中还有意出现所谓西方提供给乌克兰的军事装备，暗示美国和欧洲参与其中。
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-随着乌克兰局势的持续紧张，美国政府对俄罗斯利用虚假信息操纵局势的行为越来越警惕，表示将继续努力阻止俄罗斯为在乌克兰的军事行动寻找任何借口。
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-文字版原文：
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-| [美国务院称俄罗斯伪造视频称遭受乌克兰军队袭击](https://gnews.org/zh-hans/1954536/) |
-| --- |
-
-
-*编辑：东京樱花团/asket   
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
