@@ -2,27 +2,27 @@
 ---
 
 
-## 美南达科他州众议院通过伊维菌素法案
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2022929/)
+## 抖音避开苹果和谷歌隐私保护，获取用户数据
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2022930/)
 
-作者：纽约香草山 – 侠肝义胆
+作者：首尔天池农场 – zzballack
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-周一，美国南达科他州众议院，以40-28票通过了HB 1267法案，将伊维菌素作为治疗中共病毒的药物。该法案规定，医生可以按照医疗标准 ，向患者开具伊维菌素。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8-25.jpg)
-多项研究表明，伊维菌素能有效治疗冠状病毒，减少中共病毒患者的疾病和死亡。
+布赖特巴特网2月16日报道，据最近两项研究显示，抖音APP可以绕过苹果和谷歌应用商店的安全保护程序，和应用商店的代码审计，在用户不知情的情况下，改变应用程序的行为，访问设备追踪功能，使抖音和第三方公司能够获得全部用户数据。
 
-该法案的提案人之一、共和党州议员塔菲·霍华德表示，该方案旨在为那些因担心职业处分、而不愿意为中共病毒病人开具伊维菌素的医生提供支持。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/7-25.jpg)
 
-据悉，该法案已进入南达科他州参议院进行审理。
+据悉，这远远超过了脸书和推特等美国应用程序对用户数据的访问。网络安全工程师指出，这些动态属性，允许抖音在应用程序可以看到的范围内全权访问设备，抖音浏览器不仅拥有从网络到设备的转换权限，还可以查询设备本身。
+
+尽管抖音声称其为标准的应用程序，但研究人员和专家称，该应用程序的代码使其更难监控，埋下了安全隐患。
 
 参考链接：
 
-- [South Dakota state House passes bill allowing doctors to prescribe ivermectin](https://www.lifesitenews.com/news/south-dakota-state-house-passes-bill-allowing-doctors-to-prescribe-ivermectin/)
+- [Study: China’s TikTok Can Bypass Apple and Google Privacy Protections, Access User Data](https://www.breitbart.com/tech/2022/02/16/study-chinas-tiktok-can-bypass-apple-and-google-privacy-protections-access-user-data/)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
 
-总编：雪梨
+总编：Lakeman文仁
 编辑：雪梨
 校正/发稿：海阔天空1
 

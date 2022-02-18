@@ -2,27 +2,27 @@
 ---
 
 
-## 抖音避开苹果和谷歌隐私保护，获取用户数据
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2022930/)
+## 谷爱凌获超4千万美元中共产品代言
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2022931/)
 
-作者：首尔天池农场 – zzballack
+作者：台湾宝岛农场 – 寻文客
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-布赖特巴特网2月16日报道，据最近两项研究显示，抖音APP可以绕过苹果和谷歌应用商店的安全保护程序，和应用商店的代码审计，在用户不知情的情况下，改变应用程序的行为，访问设备追踪功能，使抖音和第三方公司能够获得全部用户数据。
+据布赖特巴特网2月16日报导，美国出生、却为中共国赢得冬奥会金牌、被中共捧为“冰雪公主”的谷爱凌，收获大量包括中国银行、中国移动、京东等大型企业的产品代言。据估算，通过产品代言，谷爱凌收入超过4200万美元。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/7-25.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/6-26.jpg)
 
-据悉，这远远超过了脸书和推特等美国应用程序对用户数据的访问。网络安全工程师指出，这些动态属性，允许抖音在应用程序可以看到的范围内全权访问设备，抖音浏览器不仅拥有从网络到设备的转换权限，还可以查询设备本身。
+谷爱凌尽力为中共表演，做出为年轻女性和被压迫民族代言的姿态。而在中共对基督徒、穆斯林、法轮功等宗教国民残酷压迫，以及对西藏和香港的民主运动的镇压的事实面前，她却保持沉默。她还拒绝承认，中共对维吾尔族正在进行的种族灭绝和奴役。
 
-尽管抖音声称其为标准的应用程序，但研究人员和专家称，该应用程序的代码使其更难监控，埋下了安全隐患。
+此外，谷爱凌国籍造假事件，引发国际质疑和批评。郭文贵先生在直播中强调，谷爱凌的欺骗行为严重损害了海外华人的形象，或将助推海外排华情绪。
 
 参考链接：
 
-- [Study: China’s TikTok Can Bypass Apple and Google Privacy Protections, Access User Data](https://www.breitbart.com/tech/2022/02/16/study-chinas-tiktok-can-bypass-apple-and-google-privacy-protections-access-user-data/)
+- [Genocide Barbie Rakes in More than $40 Million in Chinese Product Endorsements](https://www.breitbart.com/sports/2022/02/16/genocide-barbie-rakes-in-more-than-40-million-in-chinese-product-endorsements/)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
 
-总编：Lakeman文仁
+总编：雪梨
 编辑：雪梨
 校正/发稿：海阔天空1
 
@@ -33,6 +33,8 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

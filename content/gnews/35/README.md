@@ -2,30 +2,39 @@
 ---
 
 
-## 香港疫情失控，确诊病例爆炸性增长
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2022730/)
+## 有声|美通过《2022年美国竞争法》，防止中共企业垄断
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2022734/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Unknown-17.jpg)香港疫情失控，确诊病例爆炸性增长 网络图片
-据美国之音2月17日报道，香港17日新增Covid-19确诊病例6116例，再次大幅度超过前一天的4285例，新增死亡病例24人。香港今年1月以来累计确诊病例1.66万例，超过2020年和2021年两年病例的总和。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-病人数量大大超出医院的接纳能力，导致公立医院不堪重负。隔离设施已经达到满负荷，病床占用率已经超过90%。此外，香港的监狱也发现了疫情。
+![](https://gdb.voanews.com/09dd0000-0a00-0242-f776-08d9e826901a_w1023_r1_s.png)
+近年来，中共积极游说国际电信联盟（ITU）、国际电工委员会（IEC）等机构，让中共的企业获得竞争优势。面对此冲击，美在北京冬奥开幕当天通过《2022年美国竞争法》，旨在帮助美半导体制造业，抵消中共扭曲市场的贸易行为，包括加强反倾销规则等。
 
-香港的学校、健身房、影院等公共场所已经关闭，许多政府和企业员工都在家上班。这样，就能缓解疫情吗？绝不可能。因为病毒的根源就是中共。不铲除中共，病毒会永远盘旋在香港，建再多的隔离设施，建再多的病房都不够用，只有消灭中共这个制造并释放病毒的源头，香港才可能停止病毒的扩散。
+美国也和日本连手建立6G无人化技术的国际标准，防止中共企业垄断，并强化尖端技术保护，防范中俄经济间谍战。
 
-新闻参考链接：[https://www.voachinese.com/a/hong-kong-s-covid-fight-intensifies-as-cases-multiply-by-60-times-20200217/6445883.html](https://www.voachinese.com/a/hong-kong-s-covid-fight-intensifies-as-cases-multiply-by-60-times-20200217/6445883.html)
+欧盟主管竞争事务的执委维斯塔哲（Margrethe Vestager）表示，中共近期重新定义网络的基本标准，让中共对国有网络的使用者有更大的控制权，因此，欧盟委员会提出对行业标准系统实施改革，藉以避免欧洲数码产业等被被中共主导。
 
-* * *
+近日，北京大学在一份报告中罕见承认，美中科技脱钩后，中共无论在技术层面还是产业层面都明显落后，中共的芯片制造、人工智能及信息科技产业更将面临严重的发展瓶颈。该报告在墙内被火速删除。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+文字版原文：[美通过《2022年美国竞争法》，防止中共企业垄断](https://gnews.org/zh-hans/2022413/)
 
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-编辑：【英国伦敦喜庄园编辑部】
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

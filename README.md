@@ -36,98 +36,98 @@
 ### [五角大楼对与中共国的重大战争准备不足](/content/gnews/7/README.md)
  ` 美国政要直译推`
 
-### [2/17/2022 文贵盖特：H-Pay将解放生产力，让人们拥有财务自由和人权；政府竟把人民的血汗钱变成威胁他们的工具，中共的开销是全世界政府花老百姓的钱的总和](/content/gnews/8/README.md)
+### [因中共未能兑现贸易承诺 美国将腾讯、阿里巴巴等列入“恶名市场”名单](/content/gnews/8/README.md)
+ ` 蓝莲花农场`
+
+### [2/17/2022 文贵盖特：H-Pay将解放生产力，让人们拥有财务自由和人权；政府竟把人民的血汗钱变成威胁他们的工具，中共的开销是全世界政府花老百姓的钱的总和](/content/gnews/9/README.md)
  ` 秘密翻译组-北美组`
 
-### [谷爱凌获超4千万美元中共产品代言](/content/gnews/9/README.md)
+### [谷爱凌获超4千万美元中共产品代言](/content/gnews/10/README.md)
  ` NFSC News`
 
-### [抖音避开苹果和谷歌隐私保护，获取用户数据](/content/gnews/10/README.md)
+### [抖音避开苹果和谷歌隐私保护，获取用户数据](/content/gnews/11/README.md)
  ` NFSC News`
 
-### [美南达科他州众议院通过伊维菌素法案](/content/gnews/11/README.md)
+### [美南达科他州众议院通过伊维菌素法案](/content/gnews/12/README.md)
  ` NFSC News`
 
-### [德国政府表示，将分阶段解除防疫限制](/content/gnews/12/README.md)
+### [德国政府表示，将分阶段解除防疫限制](/content/gnews/13/README.md)
  ` NFSC News`
 
-### [中共政治、经济已回天乏术](/content/gnews/13/README.md)
+### [中共政治、经济已回天乏术](/content/gnews/14/README.md)
  ` NFSC News`
 
-### [2/17/2022 文贵盖特：中共独占的香港病毒肆虐、医疗系统崩溃、警察成黑警；中共在新疆和西藏暴行的帮凶将遭到天谴](/content/gnews/14/README.md)
+### [2/17/2022 文贵盖特：中共独占的香港病毒肆虐、医疗系统崩溃、警察成黑警；中共在新疆和西藏暴行的帮凶将遭到天谴](/content/gnews/15/README.md)
  ` 秘密翻译组-北美组`
 
-### [新中国联邦新闻、GTV新闻访谈简报|2022年2月17日晚](/content/gnews/15/README.md)
+### [新中国联邦新闻、GTV新闻访谈简报|2022年2月17日晚](/content/gnews/16/README.md)
  ` 纽约香草山MOS01`
 
-### [英国监管机构表示，币安与支付网络之间的合作联系令人担忧](/content/gnews/16/README.md)
+### [英国监管机构表示，币安与支付网络之间的合作联系令人担忧](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [喜币的四个核心价值](/content/gnews/17/README.md)
+### [喜币的四个核心价值](/content/gnews/18/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [魔鬼的圈套——评杨贝贝和她的所谓采访（六）](/content/gnews/18/README.md)
+### [魔鬼的圈套——评杨贝贝和她的所谓采访（六）](/content/gnews/19/README.md)
  ` 纽约香草山MOS03`
 
-### [中共的清零防疫政策遭遇尴尬](/content/gnews/19/README.md)
+### [中共的清零防疫政策遭遇尴尬](/content/gnews/20/README.md)
  ` 日本东京方舟农场`
 
-### [从美元和欧元看到中共的狂妄](/content/gnews/20/README.md)
+### [从美元和欧元看到中共的狂妄](/content/gnews/21/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [【秘翻在线】加拿大自由车队两名主要组织者已在渥太华被捕](/content/gnews/21/README.md)
+### [【秘翻在线】加拿大自由车队两名主要组织者已在渥太华被捕](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [币圈新闻动态：喜币（HCN）价格目前在45.000 HDO](/content/gnews/22/README.md)
+### [币圈新闻动态：喜币（HCN）价格目前在45.000 HDO](/content/gnews/23/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [全球疫情更新（英儿童“疫苗”获批背后的十亿美元猫腻）](/content/gnews/23/README.md)
+### [全球疫情更新（英儿童“疫苗”获批背后的十亿美元猫腻）](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美智库：世银国际金融机构非法资助新疆强迫劳动公司](/content/gnews/24/README.md)
+### [美智库：世银国际金融机构非法资助新疆强迫劳动公司](/content/gnews/25/README.md)
  ` 日本东京方舟农场`
 
-### [西方警告称俄罗斯在乌克兰附近的军事集结正在增长而不是缩减](/content/gnews/25/README.md)
+### [西方警告称俄罗斯在乌克兰附近的军事集结正在增长而不是缩减](/content/gnews/26/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [乌政府指控亲俄分子炮轰幼儿园 致两教师受伤](/content/gnews/26/README.md)
+### [乌政府指控亲俄分子炮轰幼儿园 致两教师受伤](/content/gnews/27/README.md)
  ` 日本东京方舟农场`
 
-### [2月16日大直播后记：G-MALL和喜币场外交易](/content/gnews/27/README.md)
+### [2月16日大直播后记：G-MALL和喜币场外交易](/content/gnews/28/README.md)
  ` 雅典娜GNotes`
 
-### [台湾行政院推动修法防范北京偷盗核心技术](/content/gnews/28/README.md)
+### [台湾行政院推动修法防范北京偷盗核心技术](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [测试结果显示疫苗对卵巢和睾丸产生损害](/content/gnews/29/README.md)
+### [测试结果显示疫苗对卵巢和睾丸产生损害](/content/gnews/30/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [拉脱维亚运动员嘲笑北京冬奥会为“政治剧场”](/content/gnews/30/README.md)
+### [拉脱维亚运动员嘲笑北京冬奥会为“政治剧场”](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [疫情+人祸=香港医疗系统崩溃！](/content/gnews/31/README.md)
+### [疫情+人祸=香港医疗系统崩溃！](/content/gnews/32/README.md)
  ` 澳喜农场`
 
-### [樱花头条｜《黄石公园》演员福里-J-史密斯因疫苗而抵制SAG颁奖典礼](/content/gnews/32/README.md)
+### [樱花头条｜《黄石公园》演员福里-J-史密斯因疫苗而抵制SAG颁奖典礼](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [法国病毒学家、诺贝尔奖获得者卢克·蒙塔尼耶教授逝世前三周在意大利发表演讲](/content/gnews/33/README.md)
+### [法国病毒学家、诺贝尔奖获得者卢克·蒙塔尼耶教授逝世前三周在意大利发表演讲](/content/gnews/34/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [有声|美通过《2022年美国竞争法》，防止中共企业垄断](/content/gnews/34/README.md)
+### [有声|美通过《2022年美国竞争法》，防止中共企业垄断](/content/gnews/35/README.md)
  ` MOSREC`
 
-### [香港疫情失控，确诊病例爆炸性增长](/content/gnews/35/README.md)
+### [香港疫情失控，确诊病例爆炸性增长](/content/gnews/36/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [儿童不需要接种新冠疫苗](/content/gnews/36/README.md)
+### [儿童不需要接种新冠疫苗](/content/gnews/37/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【秘翻在线】美国教育部免除了大学生的4.15亿美元的借款](/content/gnews/37/README.md)
+### [【秘翻在线】美国教育部免除了大学生的4.15亿美元的借款](/content/gnews/38/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [有声|班农先生呼吁追责中共并改变治世模式](/content/gnews/38/README.md)
- ` MOSREC`
 
 ### [4700名美军悉数抵达波兰，英国、波兰、乌克兰发联合声明](/content/gnews/39/README.md)
  ` 秘密翻譯組G-Translators`
