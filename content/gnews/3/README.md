@@ -2,26 +2,31 @@
 ---
 
 
-## 围绕中共攻台作战想定 美军在冲绳开展离岛夺岛训练
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2023870/)
+## 有声｜美发布恶名市场名单 微信和全球速卖通上榜
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2023895/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-77.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https://cdn-japantimes.com/wp-content/uploads/2021/05/np_file_86462-870x489.jpeg&amp;imgrefurl=https://www.japantimes.co.jp/news/2021/05/11/national/sdf-us-france-joint-drills/&amp;tbnid=gwz37ubMcqrhhM&amp;vet=12ahUKEwiv_MfQr4j2AhVGx2EKHdbwDvoQMygGegUIARCRAQ..i&amp;docid=bnN0Opcg-r921M&amp;w=870&amp;h=489&amp;q=US%20military%20Okinawa%20military%20training&amp;ved=2ahUKEwiv_MfQr4j2AhVGx2EKHdbwDvoQMygGegUIARCRAQ)
-据日本共同社2月17日消息，美国海军陆战队正在进行新的“远征前进基地作战”（EABO）训练，把冲绳县多个美军设施视为离岛，分散运用小规模部队，主要考虑是中共的军事野心和可能的动作。
+By:**祕翻新闻**
 
-这是仅海军陆战队员就有约7500人参加的罕见大规模训练。除在近海和上空有美海军核动力航母等之外，日本航空自卫队的战机也参加了训练。
+**2022-02-18**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8-16.png)图片来源 大纪元(USTR报告截图)
+大纪元2月18日报道，美国贸易代表办公室周四发布了最新“恶名市场”年度清单，中共国信息平台微信和阿里巴巴的在线交易平台“全球速卖通”上榜。
 
-参与策划训练的Phillip·Peacock中校称，“这是旨在迅速应对不测事态和地区危机的演练”，认为会提升支援美海军和自卫队的能力。
+这是一份涉及假冒和盗版行为的市场名单，也是一份包括全球最严重知识产权滥用和仿冒者的年度汇编。
 
-从此次美军训练将冲绳设置为离岛并实施夺岛的作战想定来看，美军应对中共攻台的战术演练已经非常成熟。
+2021年“恶名市场”年度清单审查确定了42个在线市场和35个实体市场，这些市场参与或助长了大量商标假冒或版权盗窃行为。
 
-信息来源：
+美国贸易代表戴琪在声明中说，“假冒和盗版商品的全球贸易破坏了美国的关键创新和创造力，并伤害了美国工人。”她还指出，“这种非法贸易还增加了对参与制造假冒商品工人的剥削性劳工行为，假冒商品可能对世界各地消费者和工人的健康和安全构成重大风险。”
 
-[独家：美军在冲绳实施将美军设施视为离岛的训练](https://china.kyodonews.net/news/2022/02/8d7cac987583.html)
+中共国最大的在线零售商之一拼多多在2019年首次被纳入这份名单。淘宝、百度网盘和敦煌网等中国电子商务服务提供商也仍在2021年度名单上。这份最新名单里还包括位于中共国境内的九个以制造、分销和销售假冒商品而闻名的实体市场，它们分别是：福建省莆田市安福市场，上海亚太新阳服饰礼品市场，广东省广州市站西路附近的一些服装批发市场和钟表城，广东省汕头市澄海区，广东省深圳市的华强北电子商城，深圳罗湖市场，北京秀水市场， 辽宁省沈阳市五爱市场，浙江省义乌市义乌国际商贸城。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+新闻来源 [**https://www.epochtimes.com/gb/22/2/17/n13585023.htm**](https://www.epochtimes.com/gb/22/2/17/n13585023.htm)
+
+秘翻新闻 采集/编辑 二丫
+
+发布 : 恩典
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMAGE-2021-12-13-113746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

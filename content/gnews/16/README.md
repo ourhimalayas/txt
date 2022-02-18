@@ -2,24 +2,56 @@
 ---
 
 
-## 狮城快讯：疫苗和安全管理措施 估计避免8000人死亡？
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2023679/)
+## 不可调和的冲突加疫苗病毒灾难摧毁美国经济后中共最惨
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2023710/)
 
-**撰稿：Eva**
+G-TV视频链接：[https://gtv.org/video/id=620e5f7b2403672096ab607d](https://gtv.org/video/id=620e5f7b2403672096ab607d)
 
-据联合早报的报道，新加坡针对冠病疫情推出的公共卫生措施，以及为全国人口接种疫苗的努力，成功地将去年8月至12月的冠病死亡人数减少约8000人。
+**摘要：**病毒一放出来，美国和共产党不可调和的军事、贸易、地区冲突、又染上溯源无法回避、疫苗挑战和供应链挑战，你觉得美国会好吗？美国经济不好的代价是什么？
 
-卫生部2月17日的网站快照显示，在 533,425 例病例中，有930人死亡。这意味着所有年龄段的感染者的存活率约为99.83%。生存机会非常高。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/11-22.png)
-高疫苗接种率是否会导致这种结果？
+**标签：**病毒,疫苗,隔离,经济,郭文贵先生,
 
-让我们回到早报说的“去年8月至12月”之前的7月31日，这一天，我们共有37人死亡和64,981例病例，这相当于 99.94% 的存活率。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/22-6.png)
-让我们再回到疫苗推出前，2020年12月30日。这一天，我们共有29 人死亡和58,629例病例，这相当于 99.95% 的存活率。甚至更好的结果！我们世界一流的医疗系统应该为保持低死亡率而受到称赞。尽管如此，我们应该认识到，剩下的 545 万人口没有受到病毒的伤害。换句话说，我们的人口足够健康，自身免疫力可以抵抗病毒。
+**正文：**
 
-把以上数据汇总，清楚可见去年8月到12月存活率，比7月之前的减少了万分之11.74.
-![](https://assets.gnews.org/wp-content/uploads/2022/02/33-2.png)
-那么早报，可以请教下你的估算来源吗？相关财政预算增加190万，就是让你们这样估计的吗？
+**郭文贵先生：**然后共产党疯狂的放出了病毒，这个病毒一放出来，什么经济冲突、利益冲突、贸易冲突、台湾战略、地区战略冲突、都变得渺小的不能再渺小了。摆在前面就两个选择，怎么停止疫苗和病毒的全球大扼杀，大屠杀；怎么解决疫苗还有现在这个病毒的对世界经济的毁灭性打击。
+
+宝马公司昨天啊，我们微蓝的老公是宝马的高管，昨天宝马宣布不能生产了。为什么？宝马生产错了芯片，哈哈。生产错了芯片在历史上你见过几次发生？宝马全面停产。
+
+大家再看看，就我在英国买了一样东西，二个月以前了，每次联系都下周发货，到现在没给我发过来。就一个小东西，就英国有，就是一个灯上的小配件，我总不值叫人给送一趟吧。为什么？就是一个病毒和隔离措施导致的。
+
+那你想想这个世界在美国和共产党不可调和的军事、贸易、地区冲突、又染上了溯源无法回避的这个情况，又全人类疫苗挑战，和供应链的挑战，你觉得美国经济会好吗？
+
+美国经济不好的代价是什么呢？大家一点都不懂。共产党以为美国完蛋了它就能强大，恰恰不是。美国完蛋最惨的就是中共国。而且美国这个国家是辐射性经济，他就是说它包含万千。所有人都跟它有关系。
+
+他在一百年前的工业，他就发明了OEM。他在全球叫外包加工化，也就是分包化，就是他完大家都完。
+
+字幕来源：[2022月2日6日 《文贵大直播》全文字版](https://gnews.org/zh-hans/1971450/)
+
+编辑整理：Davis；
+
+字幕文件制作：知津；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ)、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A)、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/)；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
