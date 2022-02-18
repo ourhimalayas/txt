@@ -2,34 +2,26 @@
 ---
 
 
-## 美中不断交前提是中共必须配合病毒溯源调查
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2026020/)
+## 渥太华警方将驱离和逮捕自由车队抗议者
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2026030/)
 
-作者：首尔天池农场 – 追着曙光跑
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生在2月16日的大直播中爆料称，美国拜登总统明确告知习近平，美国与中共不断交的前提在于，后者必须配合国际上对中共病毒溯源的调查。
+采编：UCool优酷               编译撰稿：自由法兰西
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide2-7.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Article-Photo-35-.jpg)图片来源：thepostmillennial
 
-郭先生表示， 中共病毒疫情爆发的这两年多来，全球的感染和死亡人数仍在不断增加，加之各国推行的中共病毒疫苗强制接种政策，全球的经济和社会秩序正处于崩溃边缘。 此外，由于中共病毒及其疫苗所造成的伤害，全球或将爆发大规模的排华，甚至排亚事件。但是，被牵连的日本和韩国等亚洲国家一定会发起抗议，最终联合全世界一同迫使中共配合病毒溯源的调查。
 
-郭先生指出，拜登总统巧妙地利用了国际社会对中共的怨恨向其施加压力，而中共已无还手之力。最后，中共只能配合做好国际病毒溯源的调查工作。
+据加拿大媒体[后千禧年]2月16日报道，渥太华警方当天发布公告，要求自由车队反疫苗护照运动的抗议者们立即离开市中心国会山前的集结现场，否则将被强行逮捕。
 
-参考链接： [https://www.gettr.com/post/puzr7k1d1d](https://www.gettr.com/post/puzr7k1d1d)
+报道指出，该公告是在渥太华前警察局长辞职一天后发布的，并声称：根据联邦《紧急状态法》，任何人在渥太华参加示威活动都属违法。警方将扣押抗议者车辆和吊销驾照，违法者还将面临罚款和牢狱之灾。尽管如此，聚集在渥太华的和平抗议民众仍誓言抗争到底，直到重获自由的权力为止。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+评论指出，加拿大反疫苗护照的自由车队抗议运动自其开展以来，如春风野火般燃遍全球。不仅得到了大多数民众的参与和支持，还迅速引起了美、澳、法、荷等国同行的响应。其声势之浩大，影响之广泛以至于特鲁多在惊恐无措之余，不得不强施[紧急状态法]，而再次成为加拿大的耻辱。
 
-总编：Irene木木
-编辑：飞虹
-校正/发稿：谐趣园
+校对编辑：硫酸羟氯喹64
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+发稿：文明(添草灭共)
+
+[新闻来源](https://thepostmillennial.com/ottawa-police-to-freedom-protestors-leave-the-area-now-or-face-arrest?utm_campaign=64483)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

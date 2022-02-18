@@ -2,23 +2,22 @@
 ---
 
 
-## 爱尔兰疫苗受害者提起刑事诉讼
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2026164/)
+## 欧盟另一疯狂举动：五千万疫苗过期，即将扔掉
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2026334/)
 
-采编/编译撰稿：文明(添草灭共)                    校对编辑：硫酸羟氯喹64
+#### 翻译               意大利达芬奇农场          小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-18-alle-17.42.56.png)图片来源：il paragone.it
+欧盟购入的五千五百万支疫苗即将过期， 在2022年2月底将被扔掉。这是一个巨大的浪费。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot_20220218-124110_Samsung-Internet.jpg)图片来源：dailyexpose
+考虑到欧盟今年年初赠给非洲三千多万支疫苗，将近一半将被扔掉。乐施会(Oxfam)和紧急医疗救护(Emergency)目前正在揭露这一现象，他们呼吁布鲁塞尔对非洲大陆表现出更大的慷慨。
 
+在这两个非政府组织的要求中，还有一项关于暂停疫苗专利以允许本地生产的协议。从这个意义上说，意大利政府也要求在这方面采取明确的立场。正如一直所解释的那样，欧盟是世界最大的疫苗出口国。到目前为止， 只有8%的疫苗是发往非洲的。非洲有11%的人口接受了前两剂疫苗， 而根据一致估计，自疫情爆发以来， 非洲大陆至少一年有250,000人死于该病毒， 差不多一天七千人。
 
-据加拿大【反叛新闻】2月16日报道，因遭受“新冠病毒”疫苗伤害，爱尔兰的[布拉尼]女士于日前对相关机构和人员提起刑事诉讼。
+辉瑞在疫苗生产方面的德国合作伙伴BioNTech也仅向非洲国家出售了1%的出口产品。乐施会(Oxfam)意大利全球健康高级顾问萨拉•阿尔比亚尼( Sara Albiani )表示：“尽管说与非洲有特殊关系，但欧盟将欧洲生产的剂量出售给能够支付高昂价格的富裕国家， 这使得只有制药公司的利润优先。” 萨拉•阿尔比亚尼和紧急医疗救护(Emergency)总裁罗塞拉•米奇奥还宣称：“ 欧盟继续将制药公司的利益置于拯救非洲生命的目标之前。世界卫生组织推动的Covax倡议旨在到2021年为贫困国家20% 的人口接种疫苗，尽管得到了欧盟的支持，但迄今为止证明是失败的。”
 
-报道称，该指控的被告包括：疫苗接种人员、接种中心负责人、国家免疫咨询委员会负责人、健康与安全局负责人以及卫生部长唐纳利等。
+原文链接：[https://www.ilparagone.it/attualita/50-milioni-di-vaccini-scaduti-stanno-per-finire-nel-cestino-lennesima-follia-dellue/](https://www.ilparagone.it/attualita/50-milioni-di-vaccini-scaduti-stanno-per-finire-nel-cestino-lennesima-follia-dellue/)
 
-据悉，[布拉尼]女士在去年5月接种疫苗后不久，就出现视力受损、面瘫、剧烈头痛等病症，经多次住院治疗至今仍未好转。由于失去了基本行动能力，该女士被迫长期居家不能外出，身心健康因此备受摧残。
-
-发稿：文明(添草灭共)
-
-新闻来源：[https://dailyexpose.uk/2022/02/16/vaccine-injured-woman-makes-criminal-complaint/](https://dailyexpose.uk/2022/02/16/vaccine-injured-woman-makes-criminal-complaint/)
+编辑、上传：Xiao  baige
 
  
 
