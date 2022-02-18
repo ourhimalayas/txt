@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：远离城市，最安全的是你的老家
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2026809/)
+## 七哥金句：水和火几乎是生命的源泉
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2026922/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句4.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句11.png)
 整理：雅典娜农场
 发布：枫叶红了
 
