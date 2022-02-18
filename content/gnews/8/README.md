@@ -2,52 +2,33 @@
 ---
 
 
-## 中俄交好纯属作死,中共造成美国年流失五千亿美元和失业
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2023627/)
+## 中日财经爆|世行旗下IFC在新疆资助涉强迫劳动的公司
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2023812/)
 
-G-TV视频链接：[https://gtv.org/video/id=620e5e9e2403672096ab5fad](https://gtv.org/video/id=620e5e9e2403672096ab5fad)
+撰稿：东京樱花团/peterwong
 
-**摘要：**这个时候中国和俄罗斯好那纯粹是作死。从那角度？从经济上看，俄罗斯一万亿美元GDP，加一起他能给你带来好处也就几万亿，不跟人家做都跟你做，他能给你啥？
+![](https://assets.gnews.org/wp-content/uploads/2022/02/世行旗下IFC在新疆资助涉强迫劳动的公司.png)
 
-**标签：**中俄交好,GDP,新中国联邦,爆料革命,郭文贵先生,
+2月16日，在大西洋理事会的网站上发表的一份报告显示，世行旗下的国际金融公司（International Finance Corporation，简称：IFC)，一直在向可能依赖新疆维吾尔族和其他少数民族强迫劳动的企业提供数亿美元的贷款。
 
-**正文：**
+这份报告由英国谢菲尔德-哈勒姆大学(Sheffield Hallam University)海伦娜肯尼迪国际司法中心与对企业提供人权指导的非政府研究机构NomoGaia联合研究，并与华盛顿智库大西洋理事会数字取证研究实验室（DFRLab）合作发表，星期三（2月16日）刊登在大西洋理事会的网站上。
 
-**郭文贵先生：**那你这个时候你要看到中国和俄罗斯好那纯粹是作死。从那角度？从经济上看，俄罗斯一万亿美元的GDP，加在一起他能给你带来好处也就几百万亿，都不跟人家做，都跟你做，他能给你啥？
+题为《融资与种族灭绝:发展融资与维吾尔地区的危机》的[报告](https://www.atlanticcouncil.org/wp-content/uploads/2022/02/Financing__Genocide.pdf)提供的证据表明，近年来，IFC向四家中共国公司提供了贷款，这些公司与该地区的强迫劳动和土地征用、破坏环境破坏和破坏原住民文化遗产有关。
 
-就现在亨利、文真，今天你们几个把你们所有赚的钱都给七哥，都不够七哥吃顿饭的，你说我要你钱干啥去呀，对吧？我要你钱干啥去呀？这最简单道理，他疯了！
+报告中提到的四家公司分别是晨光生物科技集团、骆驼集团、世纪阳光和九州通医药集团。它说，IFC目前对在新疆地区经营的这四家公司有大约4.86亿美元的直接贷款和股权投资。
 
-那么中国和美国，一年搞人家五千亿美元，一年搞五千亿美元，他是从中国2000年加入的，得到的冬奥会和《世贸协议》，把中国的1.5万亿GDP到今天的15万亿GDP。你没有美国的这几千亿外汇不可能的。
+IFC是世界银行集团向私营部门提供融资的发展机构，是最大的专门关注发展中国家私营部门的国际发展机构。
 
-那美国这几千亿给中国的外汇当中，美国得到的什么呢？大量的工厂被关闭，所谓全球化。美国大量的工人失业，而且美国发展高科技的同时，把自己的像造口罩哇、轻工产品啊，生活产品全部都移到中国去了，特别像耐克鞋呀这些东西。
+这份报告说，从公司的披露和宣传活动、政府指令、国家媒体和其他可公开获取的信息中获得的证据表明，这四家公司直接参与并受益于国家支持的强迫劳动项目和国家发起的强制征地；参与要求少数民族公民向中国共产党宣誓并接受思想灌输的项目；分派少数民族公民在没有安全设备的情况下从事危险工作；参与破坏环境和损害文化遗产等。
 
-字幕来源：[2022月2日6日 《文贵大直播》全文字版](https://gnews.org/zh-hans/1971450/)
+消息来源:
 
-编辑整理：Davis；
+[报告：世行旗下国际金融公司在新疆资助涉嫌强迫劳动的公司](https://www.voachinese.com/a/xinjiang-forced-labor-ifc-20220217/6447126.html)
 
-字幕文件制作：知津；
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
 
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ)、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A)、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/)；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
 
  
 

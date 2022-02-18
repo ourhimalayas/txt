@@ -2,46 +2,34 @@
 ---
 
 
-## 中共国民要求彻查锁链女事件
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2023025/)
+## mRNA 疫苗接种或产生“疫苗获得性免疫缺陷综合症”
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2023532/)
 
-撰稿：纽约香草山 -云豹
-![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-8.png)
-2月15日，北京大学校友及学生一百多人，联名向中共党中央及国务院发表公开信，要求彻查徐州锁链女案。该公开信提出4项主张，要求确认受虐女子的真实身份、调查20余年来忽视此受虐事件涉嫌渎职违法的相关官员、全面清查中共各地的人口拐卖案件并解救受害人、修订中共《刑法》，严惩拐卖妇女及儿童的行为。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/9-16.jpg)
-除北京大学外，清华大学、中国人民大学、浙江大学、四川大学等学校，也对此事件展开联署。 此外，湖南岳阳的民众手举标语，要求彻查事件真相；民间艺术家们也纷纷以诗歌、音乐、绘画等艺术形式，宣扬“断链”行动，引发社会的关注。
+撰稿：文月
+![](https://assets.gnews.org/wp-content/uploads/2022/02/181.jpg)图片来自网络
+越来越多的证据表明，mRNA 疫苗接种会产生免疫缺陷综合症——疫苗获得性免疫缺陷综合症或疫苗艾滋病。根据目前的情况，人们可能会在数周、数月或数年的时间窗口内由于曾经接种CCP病毒疫苗而导致该疾病。
 
-锁链女事件自1月28日被网友揭露后，中共官方说法，从初始的否认，到改为将受害人塑造成精神病患者，最后不得不承认有人口拐卖的事实，并拘捕相关涉案人。而后又被揭发，官方提供的身份涉嫌故意造假。
+越来越多的报告显示，在接种疫苗的人群中出现了癌症、疱疹、带状疱疹和自身免疫性疾病等疾病。所有这些疾病的共同点是，防御这些疾病所依赖的免疫系统出了问题。越来越多的各种报告记录了CCP病毒疫苗所造成的损害，有些病毒疫苗损害导致的疾病需要在医院或重症监护室才能得到治疗。
 
-2月17日，江苏省委省政府通报成立“丰县生育八孩女子”事件调查组，似乎摆出一幅彻查此事的姿态。但在中共统治下，中共官员欺上瞒下已成常态。此次锁链女事件激起了民众积压已久的愤怒，这种民怨，或将成为击倒中共的燎原怒火。
+与此同时，越来越多和医药公司有关的警告信号也开始出现。例如，辉瑞公司出人意料地撤回了批准儿童mRNA制剂的申请，并在其年度报告中增加了新的业务风险：来自临床前和临床研究的“不利的安全隐患”可能会影响其业务。
+此外，Moderna 的首席执行官正在减持股票，并从 Twitter 上消失。强生公司正在停止生产其 COVID 疫苗。BioNTech 和 Moderna 的股价也处于下行甚至暴跌的趋势。
 
-[新闻连接]：
+其中一个可能的原因可能是来自苏格兰、丹麦、英格兰、加拿大的数据——这些国家对感染冠状病毒的患者有着相对全面数据统计。他们发现，与未接种疫苗的人相比，接种疫苗的人更容易受到感染、严重疾病和死亡的影响。这至少表明接种CCP病毒疫苗后的免疫系统被显著的削弱。
 
-[徐州8孩案延燒 中國民間群起要求徹查真相](https://www.cna.com.tw/news/acn/202202160360.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+疫苗艾滋病与人们普遍所理解的艾滋病病毒关联不大，因为它们产生的原因是不同的。这种疫苗艾滋病是由基因工程、mRNA、由mRNA人工合成的刺突蛋白以及其他各种成分造成的。
 
-[徐州8孩案證實涉人口拐賣 官方刑事拘留父親董志民等3人](https://www.cna.com.tw/news/acn/202202100387.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+同时为了能够接种疫苗的mRNA引入细胞，免疫系统必须被欺骗。这一点则是通过利用mRNA的脂质颗粒包围mRNA来完成的！
 
-[徐州8孩案大轉折 小花梅行蹤成謎並非8孩媽](https://www.cna.com.tw/news/acn/202202150379.aspx?topic=3778?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+慕尼黑Mitocare公司的现在的科学主管（Florian Schilling）曾经2006-2017年在自己的诊所工作，重点是肿瘤学和神经炎症，他解释了目前人们对于疫苗艾滋病的认知。非常重要的几个结论包括杀伤细胞的功能丧失、干扰素系统的关闭、辅助细胞的功能耗尽和防御细胞的基因重编程。
 
-[江苏成立“丰县生育八孩女子”事件调查组](https://www.163.com/dy/article/H0DN5TGN0512DFT3.html)
+除此之外，Schilling 报告了一项研究，该研究在动物实验中发现超过 6% 的测试对象存在感染增强抗体。它们的自然杀伤细胞、干扰素、Th1 和 Th2 以及其他参数的测量值显示出惊人的低值。相反，调节性 T 细胞 (Tregs)水平过高，这对接种疫苗的人造成了不可预见的负面影响。
 
+参考文献：
 
+[https://www.epochtimes.de/gesundheit/so-erzeugen-mrna-spike-impfungen-vakzin-aids-a3722648.html?telegram=1](https://www.epochtimes.de/gesundheit/so-erzeugen-mrna-spike-impfungen-vakzin-aids-a3722648.html?telegram=1)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-3.png)
-
-编辑：飞虹
-
-总编：雪梨
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-8.png)
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

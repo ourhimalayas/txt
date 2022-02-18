@@ -2,41 +2,296 @@
 ---
 
 
-## 德国政府表示，将分阶段解除防疫限制
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2022928/)
+## 每日快报： &#8220;微信&#8221;及&#8221;全球速卖通&#8221;首次上榜美&#8221;恶名市场&#8221;黑名单
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2023014/)
 
-作者：纽约香草山 – Naughty（文行）
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-2月16日，德国总理萧兹在与地方领导人会谈后表示，鉴于感染率持续下降，德国将分三个阶段逐步解除防疫限制。
+*作者：*映兰轩
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/9-16.jpg)
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/每日快报.png)
 
-第一阶段，无需检查疫苗护照，非必要性商家向所有人开放。但民众仍需佩戴防疫口罩。
+# ***今日摘要***
 
-第二阶段，自3月4日起，顾客无需检查疫苗接种证明，仅需提供检测阴性结果，即可进入餐厅和饭店就餐。
-
-而针对社会、经济、文化等的防疫限制，将在3月20日前被取消。
-
-此外，瑞士和奥地利也表示加入撤销防疫限制的行列。
-
-参考链接：
-
-- [Omicron高峰期已過 德國將分階段解除防疫限制](https://udn.com/news/story/121707/6104153?from=udn-catelistnews_ch2)
+1. **[美国公布2021″恶名市场”黑名单 “微信””全球速卖通”首次上榜](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220217-%E7%BE%8E%E5%9B%BD%E5%85%AC%E5%B8%832021-%E6%81%B6%E5%90%8D%E5%B8%82%E5%9C%BA-%E9%BB%91%E5%90%8D%E5%8D%95-%E5%BE%AE%E4%BF%A1-%E5%85%A8%E7%90%83%E9%80%9F%E5%8D%96%E9%80%9A-%E9%A6%96%E6%AC%A1%E4%B8%8A%E6%A6%9C) **
+2. [**曝光：电子邮件显示CDC指导Facebook对Covid “错误信息 “的宣传和审查活动**](https://beckernews.com/2-exposed-emails-show-cdc-directed-facebooks-propaganda-censorship-campaign-on-covid-misinformation-44192/)
+3. **[爆炸性新闻：自由车队的组织者在渥太华被捕](https://thepostmillennial.com/breaking-freedom-convoy-organizer-reportedly-arrested-in-ottawa/)**
+4. **[司法部任命崔恩英领导打击加密货币犯罪的工作](https://www.newsweek.com/feds-announce-new-teams-enforce-investigate-cryptocurrency-crimes-1680349?utm_term=Autofeed&amp;utm_medium=Social&amp;utm_source=Twitter#Echobox=1645131544)**
+5. **[JCVI告诉政府向5至11岁的儿童提供该疫苗，但没有告诉我们他们与辉瑞公司和盖茨基金会的联系](https://dailyexpose.uk/2022/02/17/jcvi-advises-the-jab-for-5-to-11-year-olds-but-dont-advise-us-of-their-links-with-pfizer-the-gates-foundation/)**
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
+# 重要事件
 
-总编：雪梨
-编辑：雪梨
-校正/发稿：海阔天空1
+- **[02.17.Rfi：美国公布2021″恶名市场”黑名单 “微信””全球速卖通”首次上榜](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220217-%E7%BE%8E%E5%9B%BD%E5%85%AC%E5%B8%832021-%E6%81%B6%E5%90%8D%E5%B8%82%E5%9C%BA-%E9%BB%91%E5%90%8D%E5%8D%95-%E5%BE%AE%E4%BF%A1-%E5%85%A8%E7%90%83%E9%80%9F%E5%8D%96%E9%80%9A-%E9%A6%96%E6%AC%A1%E4%B8%8A%E6%A6%9C) **
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+美国贸易代表署公布2021年”恶名市场”黑名单”，中国社交网络占主导地位的”微信”和零售平台”全球速卖通”首次被列入销售假冒商品和侵犯知识产权的恶名市场黑名单；中国虾皮、淘宝、拼多多等平台今年再次上榜。报告指出，中国仍是全球第一大仿冒品来源地。
+
+美国贸易代表署（USTR）周四公布2021年仿冒与盗版”恶名市场”（notorious markets）报告，点名42个虚拟网站与包括中国、印度、马来西亚、越南等18国的35个实体市场。美国贸易代表戴琪表示，假冒与盗版商品的全球贸易破坏美国关键创新与创造力，并损害美国劳工。这样的非法贸易还增加参与制造仿冒品劳工的被剥削性劳动行为，仿冒商品也可能对全球消费者与劳工健康与安全构成重大风险。
+
+中央社报道，中国依然是”恶名市场”黑名单”主要国家。报告指出，中国是美国海关与边境保护局（CBP）查获仿冒品与强迫劳动商品数量最多的国家。非政府组织与行业联系人也提报表示，位于中国的仿冒品制造工厂的工作环境通常不安全，没有遵守当地或国际环境、健康与安全标准。过去多年被列入恶名市场名单的虾皮、百度网盘、敦煌网、拼多多、淘宝今年依然榜上有名。隶属于阿里巴巴集团的速卖通（Aliexpress）以及微信电子商务生态系统（Wechat “Weixin” E-Commerce Ecosystem）今年被列入恶名市场黑名单。
+
+在提到架设在新加坡的虾皮购物时，报告指出，虾皮主要服务于东南亚、拉丁美洲与欧洲，除了台湾虾皮外，所有的虾皮平台上假冒商品数量都相当惊人。报告指出，总部设在中国的微信电子商务生态系统据信是中国最大仿冒商品平台之一，2021年活跃用户达12亿，其电子商务生态系统在微信平台无缝运作并促进分销与销售仿冒品的状况令人担忧。
+
+实体市场黑名单部分，报告指出，中国仍是全球第一大仿冒品来源地，来自中国连同从中国转到香港的商品佔美国海关与边境保护局2020年查获仿冒品总值的83%，以数量计算也达到79%。包括福建莆田安福批发市场、上海亚太新阳服饰礼品市场、深圳华强北电子产品商业带、广州金都站西一带批发市场、深圳罗湖市场、北京秀水街、辽宁五爱市场、浙江义乌国际商贸城客运中心以及广东汕头澄海区都被列入黑名单中。
+
+过去多年都遭点名并被指架设于台湾的”电影天堂”（DYTT8）今年再度列榜，但报告不再提到网站架设在台湾，仅表示该”电影天堂”是全球最受欢迎的非英语盗版网站之一，提供未经授权电影、电视节目、音乐与软体，严重威胁中国境内外合法内容供应商。
+
+- [**02.17.Beckernews：曝光：电子邮件显示CDC指导Facebook对Covid “错误信息 “的宣传和审查活动**](https://beckernews.com/2-exposed-emails-show-cdc-directed-facebooks-propaganda-censorship-campaign-on-covid-misinformation-44192/)
+
+
+疾病控制和预防中心是 “幕后黑手”，指导Facebook对 “质疑科学 “的人进行审查活动，同时偷偷地扩大政府关于Covid大流行病政策的宣传。这是一位律师的新披露，他正在起诉食品和药物管理局向公众隐瞒辉瑞公司的临床试验数据。
+
+律师Siri在推特上说：”代表@ICANdecide获得的CDC和Facebook之间的电子邮件显示，CDC正在指导FB的信息传递。例如，CDC告诉FB下周的重点信息包括重新考虑旅行，虚拟收集，戴上面具，然后是爱国口号”。这些电子邮件代表了一些最直接的证据，表明大科技公司与政府机构和官员勾结，压制政治异议和镇压公民的言论。
+
+这些电子邮件包括针对美国人的节日信息。”责任的信息，例如，’为了你的家庭，为了你的国家’，似乎最能引起你个人和男性的共鸣（原文如此）。随函附上对通信的行为洞察力的总结”。这些信件包括关于戴口罩、家庭聚会和转介到CDC的指令。(脸书用户还注意到，只要提到关于病毒或疫苗的任何事情，甚至在帖子和小组对话中，该公司都会指示用户去找CDC）。
+
+它变得更加令人担忧。脸书的公共政策团队宣布了一个 “推进在线健康联盟”，该联盟与招商局、世界卫生组织、世界银行、麻省理工学院数字经济倡议、萨宾疫苗研究所、CDC基金会、湾区全球健康联盟以及伦敦卫生与热带医学学院的疫苗信心项目合作。
+
+通讯中宣布，Facebook和默克公司都为该倡议捐款4000万美元，该倡议 “专注于促进公众对如何利用社交媒体和行为科学来改善世界各地的社区健康的理解”。大科技公司和大制药公司正在与大政府勾结，”利用社交媒体和行为科学 “来支配公共健康对话，限制美国人的言论、获取信息和个人医疗决定。
+
+- **[02.17.Thepostmillennial：爆炸性新闻：自由车队的组织者在渥太华被捕BREAKING: Freedom Convoy organizer arrested in Ottawa](https://thepostmillennial.com/breaking-freedom-convoy-organizer-reportedly-arrested-in-ottawa/) **
+
+
+CTV的议会记者Glen McGregor分享了一张自由车队共同组织者Chris Barber周四被渥太华警方逮捕的照片。麦格雷戈报告说，巴伯是在阿尔伯特街被捕的。根据CBC的报道，巴伯预计将面临指控。渥太华市中心的抗议活动已经进入第三周。
+
+在向安大略省最高法院提起的集体诉讼中，巴伯也被列为三名抗议活动组织者之一。该诉讼是由律师Paul Champ代表他的客户，21岁的公务员Zexi Li提起的。诉讼中还提到了其他组织者Tamara Lich和Benjamin Dichter。由于该诉讼，安大略省最高法院法官Hugh McLean发出了为期10天的禁令，禁止卡车司机和抗议者鸣笛。对卡车司机的诉讼中，代表渥太华居民的律师说，”大声和长时间的鸣笛 “对居民造成了身体伤害。
+
+作为对该裁决的回应，街上的卡车司机们纷纷鸣笛。随着抗议活动的继续进行，特鲁多政府对示威活动采取了越来越多的限制性行动。本周早些时候，总理贾斯汀-特鲁多宣布，他将援引《紧急状态法》，以处理正在进行的抗议活动。
+“《紧急状态法》将用于加强和支持全国各级执法机构，”特鲁多说。”这是为了保持加拿大人的安全，保护人们的工作，并恢复对我们机构的信心，”他补充说。特鲁多说，警察将被赋予 “更多的工具，以便在公众集会可能构成非法和危险活动的地方恢复秩序，例如在渥太华、大使桥和其他地方看到的封锁和占领。”
+
+这些工具包括加强他们实施罚款和监禁的能力。最近，加拿大皇家骑警向所有主要银行提供了一份涉嫌参与或协助抗议活动的人的名单，以便他们可以冻结其账户。据《金融邮报》报道，”紧急命令要求加拿大金融系统的几乎所有参与者–银行、投资公司、信用社、贷款公司、证券交易商、筹款平台以及支付和结算服务”。这样做是为了 “确定他们是否拥有或控制参加非法抗议活动或向示威者提供用品的人的财产”。
+
+- ** [02.17.Newsweek：司法部任命崔恩英领导打击加密货币犯罪的工作DOJ Names Eun Young Choi to Lead Crackdown on Cryptocurrency Crimes](https://www.newsweek.com/feds-announce-new-teams-enforce-investigate-cryptocurrency-crimes-1680349?utm_term=Autofeed&amp;utm_medium=Social&amp;utm_source=Twitter#Echobox=1645131544) **
+
+
+美国司法部已宣布其专门处理加密货币诈骗的部门的新负责人。副司法部长Lisa Monaco宣布，Eun Young Choi将领导国家加密货币执法队，即NCET。该小组将重点分析区块链以及资产如何合法和非法地从区块链中提取。该公告是在加密货币骗局随着替代货币的日益流行而变得更加普遍的情况下发布的。该团队于2021年10月正式宣布，联邦调查局于2月17日宣布也将颁布一个类似的团队。
+
+此前，Choi曾起诉一名负责窃取8000多万摩根大通公司客户信息的俄罗斯黑客的案件，她作为网络犯罪协调人已经工作了近十年。”自数字货币诞生以来，该部门一直处于调查和起诉涉及数字货币犯罪的最前沿，”Choi在周四发表的一份声明中说，”NCET将发挥关键作用，确保随着围绕数字资产的技术的增长和发展，该部门反过来加快和扩大其努力，以打击各类犯罪分子的非法滥用。”
+
+可以说，现在比以往任何时候都更需要这样一个团队。加密货币业务在全球范围内急剧上升，与之相关的骗局也在不断增加。关于这个部门的领导公告也是在关于可能的行政命令来监管加密货币的报道被质疑的时候发布的。《新闻周刊》此前报道，一家虚假的加密货币企业被美国商业促进局指控骗取未来的雇员进行比特币交易。《新闻周刊》最近还报道了Ilya Lichtenstein和Heather Morgan的被捕，他们被指控对价值约45亿美元的比特币进行洗钱。
+
+正如10月份宣布的那样，NCET部门是司法部刑事司的一个分支，特别是其洗钱和资产追回以及计算机犯罪和知识产权部门。助理司法部长Kenneth A. Polite Jr.说：”随着数字资产和分布式账本技术的快速创新，我们看到犯罪分子对它们的非法使用有所增加，他们利用这些技术助长网络攻击、勒索软件和敲诈计划；在线贩运毒品、黑客工具和非法违禁品；实施盗窃和诈骗；以及清洗他们的犯罪所得。NCET将作为该部门努力解决涉及这些技术的犯罪增长的协调中心”。
+
+- **[02.17.Dailyexpose：JCVI告诉政府向5至11岁的儿童提供该疫苗，但没有告诉我们他们与辉瑞公司和盖茨基金会的联系JCVI tells the Government to offer the jab to kids aged 5 to 11, but fails to tell us about their links with Pfizer & the Gates Foundation](https://dailyexpose.uk/2022/02/17/jcvi-advises-the-jab-for-5-to-11-year-olds-but-dont-advise-us-of-their-links-with-pfizer-the-gates-foundation/) **
+
+
+英国疫苗接种和免疫联合委员会（JCVI），根据政府的说法，是一个 “为英国卫生部门提供免疫建议 “的机构，但却没有声明他们的成员为一些组织工作，这些组织总共从盖茨基金会获得了大约10亿美元–10亿美元”。
+
+2020年2月16日，他们建议向所有5至11岁的儿童提供2个（10微克）剂量的辉瑞-生物技术儿童疫苗的非紧急报价。当他们没有声明他们的利益冲突和在工作场所从比尔和梅林达-盖茨基金会收到的大笔资金时，他们有资格向我们的孩子建议接种COVID疫苗吗？
+
+JCVI于2月16日发表了一份声明。”疫苗接种和免疫联合委员会（JCVI）已经更新了对5至11岁儿童的疫苗接种建议，以期加强对未来潜在的冠状病毒（COVID-19）的保。”
+
+负责该声明的JCVI COVID -19小组委员会没有一个成员声明有利益冲突。然而，他们中的大多数人都与制药公司和/或盖茨基金会有联系，通过他们的研究资金或他们的机构从他们那里获得巨额资金。
+
+JCVI有一个COVID-19小组委员会，有15名核心成员和一名非专业成员。
+
+Anthony Harnden教授，副主席（牛津大学）
+Kevin Brown博士（英格兰公共卫生局）
+Rebecca Cordery博士（英格兰公共卫生局）。
+Maggie Wearmouth博士（东苏塞克斯医疗保健NHS信托）。
+Matt Keeling教授（华威大学）
+艾莉森-劳伦斯（非专业成员）
+罗伯特-瑞德教授（南安普顿综合医院）
+Anthony Scott教授（伦敦卫生与热带医学学院）
+亚当-芬恩教授(布里斯托尔大学)
+Fiona van der Klis博士（荷兰国家公共卫生与环境研究所）
+Maarten Postma教授 (格罗宁根大学)
+Simon Kroll教授（伦敦帝国学院）
+Martin Williams博士（布里斯托尔大学医院）
+杰里米-布朗教授（伦敦大学学院附属医院）
+
+“JCVI “的总主席是Andrew Pollard教授，主席（牛津大学）。成员详情报告说：”为了防止任何被认为的利益冲突，大家同意JCVI主席（Andrew Pollard教授）参与牛津大学SARS-CoV-2疫苗的开发，他将回避所有JCVI COVID-19会议”。
+
+他们中的五个人在 “非声明 “中提供了额外的信息，事实上揭示了利益冲突。此外，Zoe Harcombe博士对其余成员进行了 “粗略的 “搜索，发现有六名成员存在利益冲突，包括进行COVID-19疫苗试验和担任其组织的辉瑞公司的代表。
+
+令人震惊的是，一名成员甚至没有声明他领导着辉瑞公司的卓越疫苗中心。
+
+# 每日文贵说
+![img](https://media.gettr.com/group48/getter/2022/02/17/23/3318e498-8a6f-f6ad-5922-58c7d206d19f/ae5ea5a2081a345a63b2c743666bdc94.jpg)
+# 更多要闻链接
+
+1. [一名共和党参议员要求取消疫苗授权的努力在周四晚上失败了A GOP senator’s effort to defund vaccine mandates failed Thursday night.](https://www.newsmax.com/politics/vaccine-mandates-federal-funding-continuing-resolution/2022/02/17/id/1057348/)
+2. [未接种疫苗的卡车司机运送疫苗和COVID设备免于遵守边境规定Unvaccinated truckers delivering vaccines, COVID devices exempt from border rules](https://globalnews.ca/news/8626881/unvaccinated-truckers-exempt-border-rules/)
+3. [乌克兰危机：北京指责美国及北约扩张](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220217-%E4%B9%8C%E5%85%8B%E5%85%B0%E5%8D%B1%E6%9C%BA-%E5%8C%97%E4%BA%AC%E6%8C%87%E8%B4%A3%E7%BE%8E%E5%9B%BD%E5%8F%8A%E5%8C%97%E7%BA%A6%E6%89%A9%E5%BC%A0)
+4. [世界银行被指”资助新疆镇压运动”](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20220217-%E4%B8%96%E7%95%8C%E9%93%B6%E8%A1%8C%E8%A2%AB%E6%8C%87-%E8%B5%84%E5%8A%A9%E6%96%B0%E7%96%86%E9%95%87%E5%8E%8B%E8%BF%90%E5%8A%A8)
+5. [美国指责俄罗斯驱逐美驻俄副大使”使局势升级”](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220217-%E7%BE%8E%E5%9B%BD%E6%8C%87%E8%B4%A3%E4%BF%84%E7%BD%97%E6%96%AF%E9%A9%B1%E9%80%90%E7%BE%8E%E9%A9%BB%E4%BF%84%E5%89%AF%E5%A4%A7%E4%BD%BF-%E4%BD%BF%E7%B4%A7%E5%BC%A0%E5%B1%80%E5%8A%BF%E5%8D%87%E7%BA%A7)
+6. [伊朗核问题新协议 “很可能 “很快签署，以色列官员对此感到担忧](https://www.haaretz.com/israel-news/.premium-israeli-officials-wary-as-new-iran-nuclear-deal-very-likely-to-be-signed-soon-1.10619540)
+
+
+# 每日推特文摘
+
+
+
+人类未来
+
+
+
+
+
+> 人类未来 [pic.twitter.com/lyaAub1s2X](https://t.co/lyaAub1s2X)
+> — 姐夫說说 (@g7qYTDhk3S6Oljy) [February 17, 2022](https://twitter.com/g7qYTDhk3S6Oljy/status/1494288068185968644?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+CCP去年11月对阳光城延期债务、自卖资产还债大加讚扬，想要让全世界都以为CCP房地产的债务爆雷得到缓和了 2月17日，作为“表率”的阳光城宣布2726亿美元债，未能在宽限的30天内偿还，看来CCP的房地产爆雷只会愈演愈烈 延期有个屁用，该爆雷还得爆 [https://gettr.com/post/pv77w1068b](https://t.co/EFNeu2srEt)
+
+
+
+
+
+> CCP去年11月對陽光城延期債務、自賣資產還債大加讚揚，想要讓全世界都以為CCP房地產的債務爆雷得到緩和了
+> 2月17日，作為「表率」的陽光城宣布2726億美元債，未能在寬限的30天內償還，看來CCP的房地產爆雷只會愈演愈烈
+> 延期有個屁用，該爆雷還得爆[https://t.co/EFNeu2srEt](https://t.co/EFNeu2srEt) [pic.twitter.com/OpGXwG1TXP](https://t.co/OpGXwG1TXP)
+> — Andy5 (@andy5\_123) [February 18, 2022](https://twitter.com/andy5_123/status/1494462402624385028?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+##### 新西兰🇳🇿国会抗议第10天：军车进入 #惠灵顿，拖车公司或将介入移走数百辆汽车
+
+目前，示威者连同他们的数百辆汽车、卡车和露营车，仍然盘踞在惠灵顿的六条街道上。越来越多的人来到这里，有人告诉RNZ，他们无意挪走。
+
+
+
+
+
+> [#新西兰](https://twitter.com/hashtag/%E6%96%B0%E8%A5%BF%E5%85%B0?src=hash&amp;ref_src=twsrc%5Etfw)🇳🇿国会抗议第10天：军车进入 [#惠灵顿](https://twitter.com/hashtag/%E6%83%A0%E7%81%B5%E9%A1%BF?src=hash&amp;ref_src=twsrc%5Etfw)，拖车公司或将介入移走数百辆汽车
+> 
+> 目前，示威者连同他们的数百辆汽车、卡车和露营车，仍然盘踞在惠灵顿的六条街道上。越来越多的人来到这里，有人告诉RNZ，他们无意挪走。[#vaccines](https://twitter.com/hashtag/vaccines?src=hash&amp;ref_src=twsrc%5Etfw) [#nz](https://twitter.com/hashtag/nz?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/chKoaC66gR](https://t.co/chKoaC66gR)
+> — 存在主义咖啡馆 3 (@ExistCafe2021) [February 17, 2022](https://twitter.com/ExistCafe2021/status/1494436041654415363?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+今天加拿大五大银行遭遇挤兑。 土豆政府摧毁了人们对银行信任
+
+
+
+
+
+> 今天加拿大五大银行遭遇挤兑。
+> 土豆政府摧毁了人们对银行信任 [pic.twitter.com/pbhDTyhLMD](https://t.co/pbhDTyhLMD)
+> — 姐夫說说 (@g7qYTDhk3S6Oljy) [February 17, 2022](https://twitter.com/g7qYTDhk3S6Oljy/status/1494356474067255296?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+丰县衹是正好撞了舆论的枪口上而已，贩卖人口才是你国悠久历史传统
+
+
+
+
+
+> 丰縣衹是正好撞了輿論的槍口上而已，販賣人口才是你國悠久歷史傳統 [pic.twitter.com/vzQtlaGmb7](https://t.co/vzQtlaGmb7)
+> — 变态辣椒RebelPepper (@remonwangxt) [February 17, 2022](https://twitter.com/remonwangxt/status/1494427843887050752?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+Canada’s new authoritarian is also a Master of Disguise. We’ve made a new shirt showcasing some of his best costumes.
+
+
+
+
+
+> Canada's new authoritarian is also a Master of Disguise. We've made a new shirt showcasing some of his best costumes.
+> 
+> Get it here: [https://t.co/BFgIH6yJpp](https://t.co/BFgIH6yJpp)
+> — Tucker Carlson (@TuckerCarlson) [February 17, 2022](https://twitter.com/TuckerCarlson/status/1494441461428928514?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+苏州以防疫为由，强征苏州西交利物浦大学学生宿舍，打包学生物品
+
+
+
+
+
+> 苏州以防疫为由，强征苏州西交利物浦大学学生宿舍，打包学生物品 [pic.twitter.com/c1ThH2GDPu](https://t.co/c1ThH2GDPu)
+> — 银河系勇气之星🌟🛸🌟 (@COURAGESTARnew) [February 16, 2022](https://twitter.com/COURAGESTARnew/status/1493769179518103556?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+安徽孙梦姣24岁，20年5月打第二针，7月患急性白血病，化疗快半年，发现最近入院10名同类患者中8人都因打疫苗导致，不觉醒则痛醒的悲剧 [#新冠病毒](https://twitter.com/hashtag/%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92?src=hashtag_click) 是中共生化武器，[#新冠疫苗](https://twitter.com/hashtag/%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97?src=hashtag_click) 是中共与黑暗势力的要命毒针，值此生死存亡之际，请保护好亲友并传播 [#青蒿素](https://twitter.com/hashtag/%E9%9D%92%E8%92%BF%E7%B4%A0?src=hashtag_click)
+
+
+
+
+
+> 安徽孙梦姣24岁，20年5月打第二针，7月患急性白血病，化疗快半年，发现最近入院10名同类患者中8人都因打疫苗导致，不觉醒则痛醒的悲剧[#新冠病毒](https://twitter.com/hashtag/%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92?src=hash&amp;ref_src=twsrc%5Etfw) 是中共生化武器，[#新冠疫苗](https://twitter.com/hashtag/%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97?src=hash&amp;ref_src=twsrc%5Etfw) 是中共与黑暗势力的要命毒针，值此生死存亡之际，请保护好亲友并传播 [#青蒿素](https://twitter.com/hashtag/%E9%9D%92%E8%92%BF%E7%B4%A0?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/BaBrsD2Cfc](https://t.co/BaBrsD2Cfc)
+> — 觉醒的人@2 (@Ix02PDWyJKszVG6) [February 17, 2022](https://twitter.com/Ix02PDWyJKszVG6/status/1494354538060566537?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+这普通话~狠不普通🧐🧐🧐
+兄弟姐妹们~老少爷们们🙏🙏🙏
+点👍大赞~火箭🚀转啊💪 💪💪
+
+
+
+
+
+> 这普通话~狠不普通🧐🧐🧐
+> 兄弟姐妹们~老少爷们们🙏🙏🙏
+> 点👍大赞~火箭🚀转啊💪 💪💪 [pic.twitter.com/2PMS1py9Pl](https://t.co/2PMS1py9Pl)
+> — 新西兰奥克兰伊甸农场 (@edendomain) [February 17, 2022](https://twitter.com/edendomain/status/1494209400973971456?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+参议员约翰·肯尼迪： 俄罗斯并非孤军奋战。新的邪恶轴心包括中国和伊朗，他们正在利用乌克兰来测试拜登团队，看看美国是否是坚决严肃的。 【附肯尼迪参议员在福克斯的采访视频】
+
+
+
+
+
+> 参议员约翰·肯尼迪：
+> 
+> 俄罗斯并非孤军奋战。新的邪恶轴心包括中国和伊朗，他们正在利用乌克兰来测试拜登团队，看看美国是否是坚决严肃的。
+> 【附肯尼迪参议员在福克斯的采访视频】 [https://t.co/xgf7QJm2rr](https://t.co/xgf7QJm2rr)
+> — 美国政要直译推 (@zhiyitw33) [February 17, 2022](https://twitter.com/zhiyitw33/status/1494452000276115456?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+
+
+*编辑：映兰轩
+审核发布：文顾*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
