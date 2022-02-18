@@ -2,34 +2,26 @@
 ---
 
 
-## 中日财经爆|世行旗下IFC在新疆资助涉强迫劳动的公司
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2023812/)
+## 围绕中共攻台作战想定 美军在冲绳开展离岛夺岛训练
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2023870/)
 
-撰稿：东京樱花团/peterwong
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-77.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https://cdn-japantimes.com/wp-content/uploads/2021/05/np_file_86462-870x489.jpeg&amp;imgrefurl=https://www.japantimes.co.jp/news/2021/05/11/national/sdf-us-france-joint-drills/&amp;tbnid=gwz37ubMcqrhhM&amp;vet=12ahUKEwiv_MfQr4j2AhVGx2EKHdbwDvoQMygGegUIARCRAQ..i&amp;docid=bnN0Opcg-r921M&amp;w=870&amp;h=489&amp;q=US%20military%20Okinawa%20military%20training&amp;ved=2ahUKEwiv_MfQr4j2AhVGx2EKHdbwDvoQMygGegUIARCRAQ)
+据日本共同社2月17日消息，美国海军陆战队正在进行新的“远征前进基地作战”（EABO）训练，把冲绳县多个美军设施视为离岛，分散运用小规模部队，主要考虑是中共的军事野心和可能的动作。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/世行旗下IFC在新疆资助涉强迫劳动的公司.png)
+这是仅海军陆战队员就有约7500人参加的罕见大规模训练。除在近海和上空有美海军核动力航母等之外，日本航空自卫队的战机也参加了训练。
 
-2月16日，在大西洋理事会的网站上发表的一份报告显示，世行旗下的国际金融公司（International Finance Corporation，简称：IFC)，一直在向可能依赖新疆维吾尔族和其他少数民族强迫劳动的企业提供数亿美元的贷款。
+参与策划训练的Phillip·Peacock中校称，“这是旨在迅速应对不测事态和地区危机的演练”，认为会提升支援美海军和自卫队的能力。
 
-这份报告由英国谢菲尔德-哈勒姆大学(Sheffield Hallam University)海伦娜肯尼迪国际司法中心与对企业提供人权指导的非政府研究机构NomoGaia联合研究，并与华盛顿智库大西洋理事会数字取证研究实验室（DFRLab）合作发表，星期三（2月16日）刊登在大西洋理事会的网站上。
+从此次美军训练将冲绳设置为离岛并实施夺岛的作战想定来看，美军应对中共攻台的战术演练已经非常成熟。
 
-题为《融资与种族灭绝:发展融资与维吾尔地区的危机》的[报告](https://www.atlanticcouncil.org/wp-content/uploads/2022/02/Financing__Genocide.pdf)提供的证据表明，近年来，IFC向四家中共国公司提供了贷款，这些公司与该地区的强迫劳动和土地征用、破坏环境破坏和破坏原住民文化遗产有关。
+信息来源：
 
-报告中提到的四家公司分别是晨光生物科技集团、骆驼集团、世纪阳光和九州通医药集团。它说，IFC目前对在新疆地区经营的这四家公司有大约4.86亿美元的直接贷款和股权投资。
+[独家：美军在冲绳实施将美军设施视为离岛的训练](https://china.kyodonews.net/news/2022/02/8d7cac987583.html)
 
-IFC是世界银行集团向私营部门提供融资的发展机构，是最大的专门关注发展中国家私营部门的国际发展机构。
-
-这份报告说，从公司的披露和宣传活动、政府指令、国家媒体和其他可公开获取的信息中获得的证据表明，这四家公司直接参与并受益于国家支持的强迫劳动项目和国家发起的强制征地；参与要求少数民族公民向中国共产党宣誓并接受思想灌输的项目；分派少数民族公民在没有安全设备的情况下从事危险工作；参与破坏环境和损害文化遗产等。
-
-消息来源:
-
-[报告：世行旗下国际金融公司在新疆资助涉嫌强迫劳动的公司](https://www.voachinese.com/a/xinjiang-forced-labor-ifc-20220217/6447126.html)
-
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
