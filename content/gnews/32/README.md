@@ -2,53 +2,28 @@
 ---
 
 
-## 02/18每日播报｜社媒消息:莲心不染 Disclose.tv
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2024521/)
+## 樱花FM┃加国前亚太国务卿谴责北京冬奥 批评中共犯下反人类罪
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2024553/)
 
-**[BY:秘翻新闻](秘翻新闻)**
+音频：东京樱花团/战友520
+![](https://lh5.googleusercontent.com/CXNL_xkMWou-aQ5EMddUT5ZOkdJymKiBFOep3SMsPSu8DgUUOl-jCC5-B05p0jcBLCY6zPV5zcbc5_UlWlyR_d59GjAoiXiU-rFtshAZUXttbE-rlwyejUaiom0h3cLTE74dsiA9)
+加拿大媒体2月3日刊登前亚太国务卿大卫‧乔高（David Kilgour）投书，指出北京冬奥被称为“群体灭绝奥运”的原因，是中共被公认犯下反人类罪；他批评国际奥委会的做法，并呼吁世界站出来，捍卫所有中国人的权利。
 
-***[2022-02-18](https://gtv.org/video/id=620f3576b706176dd78c4afb)***
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-288.jpg)
-**一、[莲心不染2月18日在盖特发文：](https://gettr.com/post/pv4d2jcb95)**
+加拿大《渥太华公民报》（Ottawa Citizen）3日刊登，前亚太国务卿大卫‧乔高的文章《冬季奥运——何以我们称之群体灭绝运动会》（Kilgour: Winter Olympics — here’s why we’re calling them the ‘Genocide Games’）。
 
-英国15-19岁年龄段的男性死亡人数突然上升，医生、科学家等学术专家要求政府对此立即进行调查。该年龄段的死亡人数上升时间与新冠疫苗的推出时间一致，人们已经知道新冠疫苗会增加患上心肌炎的风险，特别是在接种了第二剂疫苗后。
+“2月4日，‘群体灭绝奥运会’将开始。”乔高在投书中指出，没有法治（rule-of-law）治理的制衡机制（checks and balances），悲剧就会发生。世界最近纪念“国际大屠杀日”（1月27日），回忆极权纳粹针对六百万犹太人与其他群体实施多年的可怕灭绝政策；在中共相似的治理模式下，对少数群体的严厉迫害，仍持续在中国各地发生。
 
-**秘翻新闻 巴拉克 编译报道**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-70.png)
-**二、[推特用户jana 2月17日发推说：](https://twitter.com/janagatien73/status/1494078486490669056)**
+乔高呼吁，国际奥委会应停止把奥运赛举办权授予极权政权。《奥林匹克宪章》宣扬崇高的理想，但国际奥委会却将2022年冬季奥运会授予中方，中共当局被公认持续犯下反人类罪行，由于中共在人类尊严方面的恶劣记录，八个国家包括加拿大、美国、英国，已宣布外交抵制北京冬季奥运。
 
-我刚收到了一封来自小镇火葬场的电子邮件。他们正在看到火葬人数呈“爆炸式增长”。通常每天的火葬人数最多只有6到8人，但现在预计每天处理24到30具尸体，这令人难以置信。50和60多岁的死者很多，在以往，死者通常都是80岁到90岁的老人。
+大卫‧乔高2002年曾任加拿大内阁亚太国务卿，1979年至2006年担任国会议员。2009年乔高和人权律师大卫‧麦塔斯（David Matas）出版《血腥的活摘器官》。
 
-** 秘翻新闻 巴拉克 编译报道**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3-55.jpg)
-**三、[Disclose.tv 2月17日在盖特发文：](https://gettr.com/post/puwqh13e9f)**
+2021年2月加拿大国会表决无异议通过，认定中共行为构成群体灭绝。
 
-Youtube的首席执行官苏珊·沃西基 (Susan Wojcicki)推荐建议政府通过制定法律，来获得对网络言论以及其它方面的更多控制权。
+文字版原文：[加国前亚太国务卿谴责北京冬奥 批评中共犯下反人类罪](https://gnews.org/zh-hans/1958365/)
 
-**秘翻新闻 巴拉克 编译报道**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/4-38.png)
-**四、[Disclose.tv 2月18日在盖特发文：](https://gettr.com/post/pv4a533634)**
-
-美国司法部宣布，联邦调查局新成立了一个负责加密货币的部门，聚焦于区块链分析和比特币等虚拟资产的扣押。
-
-**秘翻新闻 巴拉克 编译报道**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/5-33.jpg)
-**五、[Andy再开2月17日在盖特发文：](https://gettr.com/post/pv1q2ce4f6)**
-
-日本一些医生和家长反对给5-11岁孩子接种新冠疫苗。日本兵库县宝冢市，宫泽诊所的院长和京都大学宫泽副教授联合10330名医生署名，反对日本政府向每一个家庭发放接种券。呼吁日本政府改为希望接种的人自行申请的模式。日本静冈县，很多家长都害怕给孩子造成副作用疾病，而不打算一开始就接种。
-
-**秘翻新闻 巴拉克 编辑报道**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/6-28.jpg)
-**六、**[**英国伦敦喜庄园2月17日在盖特发文：**](https://gettr.com/post/pv1mtd13c2)
-
-复旦大学上海医学院副院长、上海市疫情防控公共卫生专家组成员吴凡说，目前的新冠疫苗，不管是哪种疫苗，无论是中国的灭活疫苗，还是拜恩泰科（BioNTech）或者莫德纳，所有的疫苗都不能预防感染。
-
-**秘翻新闻 巴拉克 编辑报道**
-
-发布：陸柒陸捌
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMAGE-2021-12-13-113746.jpg)
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

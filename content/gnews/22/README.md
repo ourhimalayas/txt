@@ -2,22 +2,30 @@
 ---
 
 
-## 中共能否稳住原材料大宗商品供应？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2024710/)
+## 打压 or 追捧？“元宇宙”在中共国褒贬不一
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2024762/)
 
-撰稿：东京樱花团｜盐和光
-![](https://lh5.googleusercontent.com/2rJNmbUUAdOL1At6vlJ9K9Njw9_kds_0BY-M8SZ-CVMpciY1Z6-_rLEXrazPgb5UPCwqoD-HaxI36ruQj02TPv2GcWuKrLxt4_BHxfyP7l4Kgmx38owEydx97doAsMfVt-Y7TPRf)[*图片来源*](http://5b0988e595225.cdn.sohucs.com/images/20180622/f9531af491644a8ba31586730b294cd3.jpeg)
-据《中新经纬》2月18日报道，据国家发改委网站18日消息，国家发改委、财政部等十二部门发布《关于印发促进工业经济平稳增长的若干政策的通知》，通知要求做好铁矿石、化肥等重要原材料和初级产品保供稳价，进一步强化大宗商品期现货市场监管，加强大宗商品价格监测预警，支持企业投资开发铁矿、铜矿等国内具备资源条件、符合生态环境保护要求的矿产开发项目。
+撰稿：东京樱花团｜麗子
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-13.png)
+[*图片来源*](https://relipasoft.com/blog/what-is-metaverse/)
 
-中共国大宗商品都有由国企垄断，而通知中指出要支持企业投资开发，这是自我喊话？自我鼓励？自我支持？
+中共国银监会（CBIRC）18日警告称，元界（元宇宙）可能被用作非法融资工具。
 
-继中共病毒和毒疫苗相继肆虐全球之后，关乎民生的能源危机正在悄悄发生，又因能源短缺、极端天气引发了一系列供应链问题。中共既要垄断市场，又要稳定价格，还要保证供应充足，它想要的稳定只会越来越不稳定。
+该委员会在其网站上发布的一份文件中指出，一些公司正在利用元界非法集资、诈骗，并染指投资虚拟房地产。文件写道，请勿扰必小心，不要上当，若发现可疑犯罪行为，应积极向有关地方当局报告。
 
-信息来源：[**做好铁矿石、化肥等重要原材料和初级产品保供稳价**](https://me.mbd.baidu.com/r/BwghitFTHO?f=cp&amp;rs=1304446856&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=76c38e1fe626788c&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
+投资者、企业家和大型中共国科技公司都在进入元界市场。 然而，中共当局的反应喜忧参半。
+
+由于投机过热，中共及官方媒体对“元界泡沫”保持警惕。 另一方面，一些地方政府正在召开关于元界的座谈会，考虑是否可以将其作为传播党的意识形态的手段。
+
+信息来源：
+
+[**中国当局、メタバース巡り警告　違法資金調達の場になるリスク**](https://news.yahoo.co.jp/articles/8e0481ba4dca467003629eec4ccdb4cd2b12b0d9)
 
 *编辑：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+*发布：东京樱花团 / yuxingcao01*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
