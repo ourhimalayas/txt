@@ -2,16 +2,18 @@
 ---
 
 
-## 樱花FM┃中俄首脑冬奥会议 意在联合应对美欧
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2024551/)
+## 樱花FM┃北京奥运会场上和央视对台湾代表团称呼不一
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2024637/)
 
 音频：东京樱花团/战友520
-![](https://lh3.googleusercontent.com/Y3h3SVGn1x4R2yahOjo8vo192WFQx-BfFFmo1uAFKx5LzTLVFztQkhtZqauLGV7EDlAfn7GRqVMvKkioFLpt3_Jx2Vdz0lBvei6CMxZyNRQcZaNGW0pSyIsyqgcwIPFplOfK35iY)
-据路透华盛顿2月4日消息，美国负责东亚和太平洋事务的助理国务卿4日就中俄北京峰会表示，“在乌克兰问题上，本次应该是中国督促俄罗斯缓和外交紧张的机会。”
+![](https://lh4.googleusercontent.com/2rOLWZEm-ILGl5YVCiP4sFOxQYmSQeJh2CPmn9nX3OJohYPcOCFbvvsqqVST_7GiGkCIBHjrjzhzqLjbPXodDPDdnD2PG1Vjuv0grUukIQYq6Nu4krSAiQ1Ntwl75Cj_GZ1O6OMD)
+2月4日时事通信社消息：4日晚举行的北京冬奥会开幕式的直播中，中共国营中央电视台（CCTV）的播音员将台湾代表团称为“中国台北”。
 
-俄罗斯总统普京4日在北京冬奥会开幕式上访华，并在北京会见了习近平主席。 明确了新的统一战略，例如反对北大西洋公约组织（NATO）的扩大和中国对台湾的立场。 乌克兰局势的冲突正在加深，似乎目的是为了遏制欧洲和美国。
+会场上的宣布和以前一样，是“中华台北”，而面向中共国老百姓时，还是基于“一个中国”原则，强调台湾也是中共国的一部分。
 
-文字版原文：[中俄首脑冬奥会议 意在联合应对美欧](https://gnews.org/zh-hans/1958120/)
+当台湾代表团入场时，中央电视台切换到习近平在贵宾席上观看的镜头。当香港代表团紧随其后时，中央电视台也播放了习近平相关画面，暗示他希望在“一国两制”下统一台湾。
+
+文字版原文：[北京奥运会场上和央视对台湾代表团称呼不一](https://gnews.org/zh-hans/1958096/)
 
 *编辑：东京樱花团/asket
 发布：东京樱花团/平安卿卿*

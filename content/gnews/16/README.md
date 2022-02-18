@@ -2,28 +2,32 @@
 ---
 
 
-## 樱花FM┃加国前亚太国务卿谴责北京冬奥 批评中共犯下反人类罪
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2024553/)
+## 今日盖特大V推荐 — 塞巴斯蒂安·戈尔卡博士（Sebastian Gorka DrG）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2024643/)
 
-音频：东京樱花团/战友520
-![](https://lh5.googleusercontent.com/CXNL_xkMWou-aQ5EMddUT5ZOkdJymKiBFOep3SMsPSu8DgUUOl-jCC5-B05p0jcBLCY6zPV5zcbc5_UlWlyR_d59GjAoiXiU-rFtshAZUXttbE-rlwyejUaiom0h3cLTE74dsiA9)
-加拿大媒体2月3日刊登前亚太国务卿大卫‧乔高（David Kilgour）投书，指出北京冬奥被称为“群体灭绝奥运”的原因，是中共被公认犯下反人类罪；他批评国际奥委会的做法，并呼吁世界站出来，捍卫所有中国人的权利。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/028.png)
+盖特链接：[**https://gettr.com/user/sebgorka**](https://gettr.com/user/sebgorka)
 
-加拿大《渥太华公民报》（Ottawa Citizen）3日刊登，前亚太国务卿大卫‧乔高的文章《冬季奥运——何以我们称之群体灭绝运动会》（Kilgour: Winter Olympics — here’s why we’re calling them the ‘Genocide Games’）。
+塞巴斯蒂安·戈尔卡博士自述：
 
-“2月4日，‘群体灭绝奥运会’将开始。”乔高在投书中指出，没有法治（rule-of-law）治理的制衡机制（checks and balances），悲剧就会发生。世界最近纪念“国际大屠杀日”（1月27日），回忆极权纳粹针对六百万犹太人与其他群体实施多年的可怕灭绝政策；在中共相似的治理模式下，对少数群体的严厉迫害，仍持续在中国各地发生。
+国防部总统任命, #AMERICAFIRST & The Gorka Reality Check主持人， SebGorka.com，购买《美国灵魂之战》 https://amzn.to/3gfdPcJ
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1706.png)图片来源：网络
+塞巴斯蒂安·戈尔卡博士简介：
 
-乔高呼吁，国际奥委会应停止把奥运赛举办权授予极权政权。《奥林匹克宪章》宣扬崇高的理想，但国际奥委会却将2022年冬季奥运会授予中方，中共当局被公认持续犯下反人类罪行，由于中共在人类尊严方面的恶劣记录，八个国家包括加拿大、美国、英国，已宣布外交抵制北京冬季奥运。
+塞贝斯蒂安·戈尔卡（生于 1970 年 10 月 22 日）是英国出生的匈牙利裔美国军事和情报分析员，反恐专家。
 
-大卫‧乔高2002年曾任加拿大内阁亚太国务卿，1979年至2006年担任国会议员。2009年乔高和人权律师大卫‧麦塔斯（David Matas）出版《血腥的活摘器官》。
+他从2017年1月到2017年8月25日在美国总统唐纳德·川普的政府中担任总统副助理。 从 2017 年到 2019 年，他是福克斯新闻的撰稿人。
 
-2021年2月加拿大国会表决无异议通过，认定中共行为构成群体灭绝。
+2020 年 7 月，白宫宣布川普将任命戈尔卡为由 14 名成员组成的国家安全教育委员会的成员。该委员会通过向学生颁发奖学金和研究金以及向学院和大学提供助学金来解决“国家对关键语言和地区专家的需求。”
 
-文字版原文：[加国前亚太国务卿谴责北京冬奥 批评中共犯下反人类罪](https://gnews.org/zh-hans/1958365/)
+编撰：洛杉矶盘古农场 — 心照
+校审：洛杉矶盘古农场 — 郭友(文苏)
+发布：洛杉矶盘古农场 — 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

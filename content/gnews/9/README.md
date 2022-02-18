@@ -2,22 +2,22 @@
 ---
 
 
-## 樱花FM┃北京奥运会场上和央视对台湾代表团称呼不一
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2024637/)
+## 中共能否稳住原材料大宗商品供应？
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2024710/)
 
-音频：东京樱花团/战友520
-![](https://lh4.googleusercontent.com/2rOLWZEm-ILGl5YVCiP4sFOxQYmSQeJh2CPmn9nX3OJohYPcOCFbvvsqqVST_7GiGkCIBHjrjzhzqLjbPXodDPDdnD2PG1Vjuv0grUukIQYq6Nu4krSAiQ1Ntwl75Cj_GZ1O6OMD)
-2月4日时事通信社消息：4日晚举行的北京冬奥会开幕式的直播中，中共国营中央电视台（CCTV）的播音员将台湾代表团称为“中国台北”。
+撰稿：东京樱花团｜盐和光
+![](https://lh5.googleusercontent.com/2rJNmbUUAdOL1At6vlJ9K9Njw9_kds_0BY-M8SZ-CVMpciY1Z6-_rLEXrazPgb5UPCwqoD-HaxI36ruQj02TPv2GcWuKrLxt4_BHxfyP7l4Kgmx38owEydx97doAsMfVt-Y7TPRf)[*图片来源*](http://5b0988e595225.cdn.sohucs.com/images/20180622/f9531af491644a8ba31586730b294cd3.jpeg)
+据《中新经纬》2月18日报道，据国家发改委网站18日消息，国家发改委、财政部等十二部门发布《关于印发促进工业经济平稳增长的若干政策的通知》，通知要求做好铁矿石、化肥等重要原材料和初级产品保供稳价，进一步强化大宗商品期现货市场监管，加强大宗商品价格监测预警，支持企业投资开发铁矿、铜矿等国内具备资源条件、符合生态环境保护要求的矿产开发项目。
 
-会场上的宣布和以前一样，是“中华台北”，而面向中共国老百姓时，还是基于“一个中国”原则，强调台湾也是中共国的一部分。
+中共国大宗商品都有由国企垄断，而通知中指出要支持企业投资开发，这是自我喊话？自我鼓励？自我支持？
 
-当台湾代表团入场时，中央电视台切换到习近平在贵宾席上观看的镜头。当香港代表团紧随其后时，中央电视台也播放了习近平相关画面，暗示他希望在“一国两制”下统一台湾。
+继中共病毒和毒疫苗相继肆虐全球之后，关乎民生的能源危机正在悄悄发生，又因能源短缺、极端天气引发了一系列供应链问题。中共既要垄断市场，又要稳定价格，还要保证供应充足，它想要的稳定只会越来越不稳定。
 
-文字版原文：[北京奥运会场上和央视对台湾代表团称呼不一](https://gnews.org/zh-hans/1958096/)
+信息来源：[**做好铁矿石、化肥等重要原材料和初级产品保供稳价**](https://me.mbd.baidu.com/r/BwghitFTHO?f=cp&amp;rs=1304446856&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=76c38e1fe626788c&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+*编辑：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
