@@ -2,29 +2,28 @@
 ---
 
 
-## 自今年年初起，意大利新冠疫苗注射量下跌75%以上，达到历史最低水平。
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2024675/)
+## 七哥破产
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2024726/)
 
-#### 翻译                   意大利达芬奇农场                    小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-17-alle-23.06.04.png)图片来源：eventiavversinews.it
-意大利新冠疫苗注射中心空荡荡， 无人再信。
+作者：纽约香草山翻译部 – 博迪
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot_20220218-194701_Video-Player.jpg)
+将身饲虎自从容，一笑风云两袖空。
+地陷神州横赤焰，天开盘古跃真龙。
+密谋宵小阴衔恨，鏖战将军夜引弓。
+颠倒乾坤归正道，妖霾扫荡挽长虹。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-4.jpg)
+**审稿/校对/发稿：春草**
 
-意大利疫苗注射宣传失败了。据《24小时太阳报》的最新数据，有57.000.000意大利人是可接种疫苗的，（ 今天只有从0岁到4岁的孩子尚不可接种疫苗， 其数量是2.216.510，而2021年意大利总人口为59.236.213。有48.800.000人接种了两剂疫苗（有8.200.000 人没有接种），36.400.000人接种了第三针。现在大概有12.400.000人很可能是“后悔打疫苗”了， 他们在打了前两针疫苗之后，不会打第三针。
+**更多资讯，更多关注**
 
-新冠疫苗接种前景暗淡。显然无人再相信政府——政府违宪并滥用紧急法令，人们不再被吓倒。
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-年初（1月3日）共注射了628.410针，1月11日达到了高峰，达到725.424针。
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-这些天新冠疫苗注射量达到历史最低点。全意大利2月15日的注射量是180.020针，其中第一针的数量只有11.735（ 绝对负面记录），第二针和第三针的数量分别是48.312，119.973.
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-儿童疫苗注射量由从1月11日的49.157针下降到2月15日的19.017针，下降了60%。
-
-意大利25.5%的5-11岁的儿童注射了两针辉瑞疫苗，10.8%的儿童预定了第二针。
-
-原文链接：[https://www.eventiavversinews.it/hub-deserti-minimo-storico-delle-vaccinazioni-nessuno-si-](https://www.eventiavversinews.it/hub-deserti-minimo-storico-delle-vaccinazioni-nessuno-si-fida-piu-da-inizio-anno-inoculazioni-crollate-oltre-il-75/)[fida-piu-da-inizio-anno-inoculazioni-crollate-oltre-il-75/](https://www.eventiavversinews.it/hub-deserti-minimo-storico-delle-vaccinazioni-nessuno-si-fida-piu-da-inizio-anno-inoculazioni-crollate-oltre-il-75/)
-
-编辑、上传： Xiao  baige
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

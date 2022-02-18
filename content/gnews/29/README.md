@@ -2,28 +2,29 @@
 ---
 
 
-## 樱花FM┃北京冬奥会开幕式上进场的台湾队 NHK介绍为“台湾”
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2024638/)
+## 自今年年初起，意大利新冠疫苗注射量下跌75%以上，达到历史最低水平。
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2024675/)
 
-音频：东京樱花团/战友520
-![](https://lh6.googleusercontent.com/bJCURn0UuCAbM7KCbrjgQ3voBppWbRBFspFnXMYBHL16-61jk3vWrMkC1Ucxb246_Sr7l85uyETHXtXwCTTeaRcY9AYA370jGXE_yaBU9SFcH66YZ_Y0rew2Hb4fQuAeJx5pwS1D)
-北京冬奥会开幕式2月4日晚在北京国家体育场（俗称“鸟巢”）举行，台湾队继日本后第11名入场。
+#### 翻译                   意大利达芬奇农场                    小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-17-alle-23.06.04.png)图片来源：eventiavversinews.it
+意大利新冠疫苗注射中心空荡荡， 无人再信。
 
-在中共压力的背景下，台湾在参加包括奥运会在内的许多国际比赛时，被迫使用官方名称“中华台北”而不是官方国名中华民国。
+意大利疫苗注射宣传失败了。据《24小时太阳报》的最新数据，有57.000.000意大利人是可接种疫苗的，（ 今天只有从0岁到4岁的孩子尚不可接种疫苗， 其数量是2.216.510，而2021年意大利总人口为59.236.213。有48.800.000人接种了两剂疫苗（有8.200.000 人没有接种），36.400.000人接种了第三针。现在大概有12.400.000人很可能是“后悔打疫苗”了， 他们在打了前两针疫苗之后，不会打第三针。
 
-当播放“中华台北”的公告时，包括担任旗手的速滑女孩黄玉婷和高山滑雪运动员何冰瑞等共有三个人，进入会场大厅。
+新冠疫苗接种前景暗淡。显然无人再相信政府——政府违宪并滥用紧急法令，人们不再被吓倒。
 
-关于本届赛事的开闭幕式，台湾最初宣布因新冠病毒疫情缺席，但在开幕前四天的1月31日，“应国际奥委会频繁请求”宣布参加。
+年初（1月3日）共注射了628.410针，1月11日达到了高峰，达到725.424针。
 
-另一方面，人们担心仪式会被称为“中国台北”，但现场公告牌却是“中华台北”，就像 2008 年北京夏季奥运会一样。此外，虽然中国官方的中央电视台将其播放为“中国台北”，但NHK在去年夏天东京奥运会后将其介绍为“台湾”，这使许多台湾人感到高兴。
+这些天新冠疫苗注射量达到历史最低点。全意大利2月15日的注射量是180.020针，其中第一针的数量只有11.735（ 绝对负面记录），第二针和第三针的数量分别是48.312，119.973.
 
-台湾队一共有15人。共有四名运动员将参加速度滑冰、雪橇和高山滑雪三项比赛。
+儿童疫苗注射量由从1月11日的49.157针下降到2月15日的19.017针，下降了60%。
 
-文字版原文：[北京冬奥会开幕式上进场的台湾队 NHK介绍为“台湾”](https://gnews.org/zh-hans/1958088/)
+意大利25.5%的5-11岁的儿童注射了两针辉瑞疫苗，10.8%的儿童预定了第二针。
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+原文链接：[https://www.eventiavversinews.it/hub-deserti-minimo-storico-delle-vaccinazioni-nessuno-si-](https://www.eventiavversinews.it/hub-deserti-minimo-storico-delle-vaccinazioni-nessuno-si-fida-piu-da-inizio-anno-inoculazioni-crollate-oltre-il-75/)[fida-piu-da-inizio-anno-inoculazioni-crollate-oltre-il-75/](https://www.eventiavversinews.it/hub-deserti-minimo-storico-delle-vaccinazioni-nessuno-si-fida-piu-da-inizio-anno-inoculazioni-crollate-oltre-il-75/)
+
+编辑、上传： Xiao  baige
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

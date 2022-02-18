@@ -2,144 +2,54 @@
 ---
 
 
-## 参加冬奥会的国家元首DNA，运动员的DNA都被共产党掌握
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2024688/)
+## 一厢情愿“拥抱”新能源，澳最大燃煤电厂提前关闭
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2024770/)
 
-[https://gtv.org/video/id=620f4d9d2403672096abe991](https://gtv.org/video/id=620f4d9d2403672096abe991)
+#### **【雅典娜观察】和您一起洞察世界**
 
-您知道冬奥会咱战友在里边
-Tu sabes nuestros compañeros luchadores están en Los Juegos Olímpicos de Invierno
+整理/编辑：文泓
 
-在冬奥会里边有规定
-Hay una regla en Los Juegos Olímpicos de Invierno
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/1-191.png)图片来源：雅典娜设计组
 
-不许用苹果手机
-No es permitido usar celulares de Apple
 
-全用华为手机
-Todos deben usar teléfonos de Huawei
+2月17日，一家运营商周四宣布，澳大利亚最大的燃煤发电厂将于2025年关闭，这比原计划的时间早几年。给出的理由是可再生能源的低成本，该发电厂不再可行。
 
-咱战友特聪明
-Nuestros compañeros luchadores son muy inteligentes
+能源巨头Origin告诉投资者，“可再生能源的使用”正在打破悉尼北部拥有数十年历史的大型埃拉林发电厂的经济可行性。
 
-七哥我给你发讯息
-Me dicen: “Miles, por enviarte un mensaje
+澳大利亚是世界上最大的煤炭生产国之一，这种污染环境的燃料是澳洲出口收入的重要来源，本届政府支持更多这样的工厂。
 
-为了他们不监控
-Y para que ellos no vigilen
+Origin首席执行官弗兰克·卡拉布里亚表示：“今天，我们已经暗示有可能将埃拉林发电厂的关闭提前到2025年中，”并承认此举对员工而言将是一次挑战。
 
-你知道我用啥招
-¿Sabes qué truco utilicé?”
+该工厂已运行近40年，原定于2032年退役。
 
-我随时知道他们这个冬奥会的什么情况
-Puedo saber en cualquier momento la situación de estos Juegos Olímpicos de Invierno
+卡拉布里亚说：“现实情况是，太阳能、风能和电池等更清洁、成本更低的发电方式正在给燃煤发电站的经济带来越来越大的、不可持续的压力。”
 
-筹委会什么情况
-Qué pasa con el Comité Preparatorio
+该工厂目前包括四台720兆瓦的燃煤发电机和一台42兆瓦的柴油发电机，为澳大利亚人口最多的新南威尔士州提供约四分之一的电力。
 
-运动员到场情况
-La asistencia de los atletas
+该公司有一个2.4亿澳元的计划，以重新利用该工厂并安装一个700兆瓦的大型电池。
 
-包括有人专门收集所谓运动员的DNA
-Incluyendo las personas que se encargan de recolectar el ADN de los atletas
+一些煤矿和工厂也位于竞争激烈的选区，这意味着政府和反对党工党都试图避免激怒支持煤炭的选民。矿业和能源工会表示，这个决定让埃拉林电厂的工人“措手不及”。
 
-还有一个, 想办法给运动员收集那个那个那个的
-Y hay otro, hacen lo posible de reunir esa, esa cosa
+工会代表罗宾·威廉姆斯说：“对于许多依靠埃拉林电厂谋生的家庭而言，今天的公告给他们的未来带来了不确定性。”
 
-就是都咱战友
-Todos son nuestros compañeros luchadores
+支持煤炭的政府联盟议员马特·卡纳万表示，关闭电厂“将是一场灾难”，预计居民电费将涨价。
 
-他说七哥你知道最后发生什么事情
-Él dijo: “Miles, sabes qué pasó al final
+能源部长安格斯·泰勒支持纳税人投资于新燃煤电厂，他发誓要确保有一个 “类似的工厂”来替代原发电厂。为此，他发推说，此举“将（居民用电）可负担性和可靠性置于风险之中”。
 
-运动员来的
-Los atletas que vinieron
+莫纳什大学能源专家阿里尔·利布曼表示，虽然Origin公司的决定是出于商业原因，但它指出了澳大利亚人获取能源的方式发生了更广泛的转变。
 
-到这儿来的几乎就没有任何有成就的运动员
-No tienen casi ningún logro los que han venido”
+他说，一切都在不断加快向可再生能源的能源转型，关闭导致的任何价格飙升都可能是短暂的。
 
-他说但凡过去有点成就的都年龄偏大
-Dijo que cualquiera que haya logrado algo en el pasado tiene un poco de edad
+新闻链接：[Australia’s largest coal-fired power plant to close (phys.org)](https://phys.org/news/2022-02-australia-largest-coal-fired-power.html)
 
-就是已经过了这个黄金年龄了
-Ya pasó su época dorada
+*发布：tianzhihuan*
 
-而且你知道咱们马桶的尿是集中收, 大便集中收
-“Además, sabes que la orina de nuestro inodoro y las heces se recogen de forma centralizada”
-
-这都是咱战友管的
-Todo esto se encargan nuestros compañeros luchadores
-
-所以不管你哪个元首去中国
-Por eso no importa cuál de los jefes del Estado vaya a China
-
-从你开始到你最后走
-Desde tu llegada hasta tu ida
-
-收集你的尿和屎的
-Recolectan tu orina y heces
-
-化验的
-Las pruebas
-
-收集你的DNA的
-Los que reúnen tu ADN
-
-在房间里吃什么
-Lo que comes en el cuarto
-
-有没有被人尿上拉上的
-Si hay alguien que se orina en ti
-
-七哥全在掌握
-Todo está bajo mi control
-
-你觉得我是在吹牛吗
-Tú crees que estoy presumiendo
-
-我有必要吹这牛吗
-¿Tengo que presumir esto?
-
-你给我钱吗
-¿Tú me das dinero?
-
-新中国联邦人这次可以这么说
-Se puede decir que esta vez las personas del Nuevo Estado Federal de China
-
-主导了整个冬奥会的开幕式
-Dominaron la ceremonia de apertura de todo el Juego Olímpico de Invierno 
-我们很成功地让这些国家的运动员和这些元首们
-Logramos de manera exitosa para que estos atletas y jefe de los países
-
-看清了中共, 看清了冬奥会
-Vean claramente al PCCh, a los Juegos Olímpicos de Invierno
-
-让他们一生不会再跟共产党
-Para que nunca vuelvan a participar en esta vida
-
-参加任何所谓的国际仪式
-Cualquier llamado ceremonia internacional con el Partido Comunista
-
-日期：02/14/2022
-原视频标题：参加冬奥会的国家元首DNA，运动员的DNA都被共产党掌握
-El ADN de los jefes de Estado que participan en los Juegos Olímpicos de Invierno y el ADN de los atletas están todos en manos del Partido Comunista
-
-* * *
-
-原视频日期：02/09/2022
-原视频网址：[**https://gettr.com/post/ptcl8c104f**](https://gettr.com/post/ptcl8c104f)
-任务编号：KC456（3715）
-视频时间段：0:00-01:45
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
