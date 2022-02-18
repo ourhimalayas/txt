@@ -2,50 +2,46 @@
 ---
 
 
-## 七哥给发小很多救济给老师800万,钱被借完后又回到原点
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2023094/)
+## 這個社會沒有正義,從來沒有任何人想幫別人——羅斯福
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2023142/)
 
-G-TV视频链接：[https://gtv.org/video/id=620e57312403672096ab589b](https://gtv.org/video/id=620e57312403672096ab589b)
+G-TV視頻鏈接：[https://gtv.org/video/id=620e58652403672096ab59eb](https://gtv.org/video/id=620e58652403672096ab59eb)
 
-**摘要：**我曾经回去我给过她好多次钱，给她钱是没有用的。你发现在咱们老家这样的人你能救得了吗？……也救不了她，她的孩子怎么办呢？她的家庭怎么办呢？
+**摘要：**這個社會沒有正義，這個社會從來沒有任何人想幫別人，甚至每個人都特別開心別人比自己活得差，從來沒接受過別人比自己好。而且說：「這兒一切都是假的。」
 
-**标签：**借钱,救济,新中国联邦,爆料革命,郭文贵先生,
+**標籤：**沒有正義,都是假的,新中國聯邦,爆料革命,郭文貴先生,
 
 **正文：**
 
-**郭文贵先生：**我曾经回去我给过她好多次钱，给她钱是没有用的。亨利小哥你发现在咱们老家这样的人你能救得了吗？你给一次10万，你给一次两次，你给100万也救不了她，因为她的孩子怎么办呢？她的家庭怎么办呢？
+**郭文貴先生：**你再想想當年，蒲安臣跟美國人跟中國簽那個合約的時候，在他的記錄中說的話，包括當年，大家記住，羅斯福總統家族在上海都有辦事處的，對中國人的描述說：「這個國家永遠視作旁邊的同類窮困潦倒，甚至是被虐待被掠殺，就看著視而不見，這個社會沒有正義，這個社會從來沒有任何人想幫別人，甚至每個人都特別開心別人比自己活得差，從來沒接受過別人比自己好。」而且說：「這兒一切都是假的。」
 
-你像我的发小同学，我救过很多，一见面给20万、30万很多钱了，他拿到20万、30万把账还一还，买个房子，他又没钱了，是吧？
+字幕來源：[2022月2日6日 《文貴大直播》全文字版](https://gnews.org/zh-hans/1971450/)
 
-你像我的老师，我最多给过她800万块钱，800万当时很多很多钱了，老师让我借80万块钱，我给她800万现金，我说：“老师，你就答应我一件事情，哪儿也别干去，你把这钱就存在这儿，就花钱就行了。” 结果老师的钱被家人借完，她又回到了原来的样子。
+編輯整理：Davis；
 
-字幕来源：[2022月2日6日 《文贵大直播》全文字版](https://gnews.org/zh-hans/1971450/)
+字幕文件製作：知津；
 
-编辑整理：Davis；
+視頻製作及上傳：Cindy；
 
-字幕文件制作：知津；
+G-News發佈：小滿；
 
-视频制作及上传：Cindy；
+**廣而告之：尊敬的戰友，你的每一篇文字、每一段視頻、每一段社交媒體發文都是壓垮駱駝的一根稻草，歡迎加入我們****——**[**日本銀河系農場****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，歡迎訂閱我們的油管頻道：**[**郭文貴先生直播精選**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；歡迎關注蓋特獨家文貴先生大直播精選發佈賬號：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-G-News发布：小满；
+聲明：文中內容根據郭文貴先生直播視頻整理，如果文字內容與視頻內容衝突則以原視頻為準，標題僅為概括，標題與視頻內容衝突之處僅代表作者個人觀點。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+歡迎喜聯盟進駐以及各農場兄弟姐妹們坐客串門，請通過以下方式關注及訂閱我們——
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+Discord：[日本銀河系農場Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+YouTube：[日本銀河系農場](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民熱線](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ)、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[銀河系檔案放映館](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A)、[郭文貴先生直播精選](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、[喜馬拉雅日本銀河系農場 G-News](https://gnews.org/zh-hant/author/jgalaxy2021/)、[日本銀河系農場-阿爾法星球](https://gnews.org/zh-hant/author/galaxyalphaplanet/)、[銀河勇氣之星](https://gnews.org/zh-hant/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hant/author/newfoc/)；
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ)、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A)、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/)；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+蓋特：[日本銀河系農場@himalayajgalaxy蓋特](https://www.gettr.com/user/himalayajgalaxy)；
 
 推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+G-TV：[日本銀河系農場](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

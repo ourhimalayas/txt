@@ -2,38 +2,50 @@
 ---
 
 
-## 也许加密货币毕竟不是 “老鼠药&#8221;？
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2023136/)
+## 七哥让开幕式不成功之后再变成永不能结束的北京冬奥会
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2023177/)
 
-素材整理：波士顿五月花 Vicky
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-18-at-12.27.54-PM.png)图片来源：互联网
-**沃伦-巴菲特曾经说过加密货币是 “老鼠药”，是一种无益的资产，”根本没有独特的价值”。现在他的钱却在说相反的话。**
+G-TV视频链接：[https://gtv.org/video/id=620e58e92403672096ab5a5f](https://gtv.org/video/id=620e58e92403672096ab5a5f)
 
-**他的公司伯克希尔-哈撒韦(Berkshire Hathaway)已经购买了一家专注于加密货币的数字银行价值10亿美元的股票。**
+**摘要：**我说共产党冬奥会一定会开成“冬眠会”。 你知道，我有这智慧。我让他开不成闭幕会，我让他开成一个羞耻的闭幕会，永不能闭幕的闭幕会。共产党真完了！
 
-**伯克希尔-哈撒韦公司在本周早些时候向美国证券交易委员会提交了一份文件，公开了其加密货币投资。文件显示，巴菲特的公司已经购买了Nubank 10亿美元的股票，这是一家位于巴西的数字银行，也是拉丁美洲最大的数字银行。**
+**标签：**冬眠会,冬奥会,共产党完了,新中国联邦,爆料革命,
 
-**Nubank是一家新银行，是一种在传统银行系统规则之外运作的银行。该数字银行的投资部门NuInvest允许用户将资金投入到比特币交易所交易基金（ETF）中。**
+**正文：**
 
-**巴菲特的长期合作伙伴、伯克希尔-哈撒韦公司的副董事长查理-芒格也几乎没有回避过发表他对加密货币的强烈排斥。芒格最近表示，他希望加密货币 “从未被发明过”，他甚至表示，他不希望任何加密货币交易商嫁入他的家庭。**
+**郭文贵先生：**好。我说共产党冬奥会一定会开成“冬眠会”。你知道，亨利小哥在体制内知道，共产党永远相信：只要开幕式成功，就成功了一半，每个人都相信这句话。我告诉大家，七哥给他招儿是什么？我让你开幕式也开不成功，我让你开幕式以后永远不能结束这场冬奥会。不能结束的冬奥会，这就是咱新中国联邦做的。
 
-**芒格对交易量最大的加密货币比特币特别反感，曾称其 “令人厌恶，违背了文明的利益”。**
+我可以告诉大家，我无处不在的战友说：“七哥，凡是在这块想跟共产党来蹭钱的，放心七哥，我让他这一辈子难忘中国，我叫他一生不再来中国。”咱这战友也够坏的，我说你别太过分，是吧？你得尊重人权。他说他们来跟共产党勾兑，我凭啥尊重他人权？我不拉他一屎锅里边儿就不错了，我就让他恶心，是吧？
 
-**虽然巴菲特和芒格可能对加密货币有个人厌恶和鄙视，但是伯克希尔-哈撒韦公司对Nubank的最新投资却并不是这家企业集团第一次涉足这一市场。**
+放心，兄弟姐妹们，七哥把他冬奥会开成“冬眠会”，《开幕式》让它永远开成一个永远不能闭幕的冬奥会。而且大家要记住，小新你们记住，文真，在中共国这个闭幕的时候谁能来？你想过吗？普京都窜了，你觉得《闭幕式》谁来？今天这是大话题，七哥原来没透露吧？共产党没这个智慧，我有这智慧。我让他开不成闭幕会，我让他开成一个羞耻的闭幕会，永不能闭幕的闭幕会。共产党真完了！
 
-**去年夏天，在该数字银行于2021年12月上市前的几个月，伯克希尔已经购买了Nubank的5亿美元股份。当时，Nubank宣布，这是该金融科技银行有史以来获得的最大一笔投资。**
+字幕来源：[2022月2日6日 《文贵大直播》全文字版](https://gnews.org/zh-hans/1971450/)
 
-**随着伯克希尔去年加大对加密货币领域的投资，该公司也放弃了一些其他更传统的金融资产。在显示对Nubank的10亿美元投资的同一份SEC文件中，伯克希尔透露，它已经放弃了超过30亿美元的Visa和Mastercard的股份。**
+编辑整理：Davis；
 
-**在拉丁美洲，新兴的数字银行之间存在着巨大的竞争，那里有很大一部分人觉得传统的银行和金融体系服务不足。像Nubank这样的公司正在寻求进入一个巨大的潜在消费市场，这些人在很大程度上对现有系统感到不满。**
+字幕文件制作：知津；
 
-**“Nubank联合创始人Cristina Junqueira去年6月告诉《财富》。”在世界范围内，没有任何地方比拉丁美洲更适合金融科技公司处理的巨大机会。”**
+视频制作及上传：Cindy；
 
-参考链接：[Years after calling Bitcoin ‘rat poison,’ Warren Buffett just invested $1 billion in a crypto-friendly bank](https://fortune.com/2022/02/16/warren-buffett-invested-1-billion-crypto-bank/)
+G-News发布：小满；
 
-* * *
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-*编辑&发布：Vicky*
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ)、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A)、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/)；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
