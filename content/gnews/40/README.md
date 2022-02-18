@@ -2,64 +2,54 @@
 ---
 
 
-## 新西兰财经G乐部2022年2月18日:财经新闻整理
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2024499/)
+## 一厢情愿“拥抱”新能源，澳最大燃煤电厂提前关闭
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2024770/)
 
-采集整理：蚂蚁的城堡
+#### **【雅典娜观察】和您一起洞察世界**
 
-**提纲：**
+整理/编辑：文泓
 
-1、九坤投资旗下2亿美元基金1月亏损近40%
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/1-191.png)图片来源：雅典娜设计组
 
-2、雪松信托最新表态：否认存在200亿元规模逾期项目
 
-3、SEC调查加密货币巨头币安美国分部的交易关联公司
+2月17日，一家运营商周四宣布，澳大利亚最大的燃煤发电厂将于2025年关闭，这比原计划的时间早几年。给出的理由是可再生能源的低成本，该发电厂不再可行。
 
-4、马斯克和特斯拉吐槽SEC“无休止”的骚扰,称“已经受够了”
+能源巨头Origin告诉投资者，“可再生能源的使用”正在打破悉尼北部拥有数十年历史的大型埃拉林发电厂的经济可行性。
 
-5、西班牙中央银行授权 Bit2Me 成为该国第一家加密服务提供商
+澳大利亚是世界上最大的煤炭生产国之一，这种污染环境的燃料是澳洲出口收入的重要来源，本届政府支持更多这样的工厂。
 
-**正文**
+Origin首席执行官弗兰克·卡拉布里亚表示：“今天，我们已经暗示有可能将埃拉林发电厂的关闭提前到2025年中，”并承认此举对员工而言将是一次挑战。
 
-**1、九坤投资旗下2亿美元基金1月亏损近40%**
-![img](https://media.gettr.com/group29/origin/2022/02/18/03/a4891277-3f2a-4560-e0e3-a710caa006de/d17a2b6b55d25355a644b3303000bfb7_500x0.png)
-近日有市场传闻称，量化私募巨头九坤投资旗下一只约2亿规模的美元产品1月份亏损近40%。对此，2月17日，九坤投资人士向证券报记者回应表示，亏损基金为九坤投资海外关联公司所管理的美元基金Ubiquant Asia Pacific Quantitative Hedge Fund，1月份该基金平层回撤超7%，叠加5倍左右杠杆，因此1月份净值跌幅为39.13%。
+该工厂已运行近40年，原定于2032年退役。
 
-参考链接：[https://www.cs.com.cn/tzjj/jjdt/202202/t20220217\_6242793.html](https://www.cs.com.cn/tzjj/jjdt/202202/t20220217_6242793.html)
+卡拉布里亚说：“现实情况是，太阳能、风能和电池等更清洁、成本更低的发电方式正在给燃煤发电站的经济带来越来越大的、不可持续的压力。”
 
-**2、     雪松信托最新表态：否认存在200亿元规模逾期项目**
-![img](https://media.gettr.com/group24/origin/2022/02/18/04/309c1750-71fc-4faa-ccf9-6e229b0d1293/694c4aa493b28266720badd768b142ba_500x0.png)
-据“雪松国际信托”微信公众号17日消息，雪松国际信托召开2022年度工作会议，对近期外界的关注焦点进行了说明：雪松国际信托目前组织架构稳定，经营正常有序开展，并不存在外界误传的有200亿规模的逾期项目。此前，一段投资者聚集于广州市的雪松控股总部维权的视频在网上流传。投资者私下统计发现，金交所涉及的投资者8000余人，总金额约200亿元。
+该工厂目前包括四台720兆瓦的燃煤发电机和一台42兆瓦的柴油发电机，为澳大利亚人口最多的新南威尔士州提供约四分之一的电力。
 
-财经G评：从云南泛亚诈骗430亿、再到E租宝诈骗500亿延伸到全国各地的P2P暴雷万亿级别的金融诈骗，哪一个大点的金融公司不是到中共央视做广告和中共地方政府做背书！还有去年的恒大的投资者维权多少被抓、被闭嘴！
+该公司有一个2.4亿澳元的计划，以重新利用该工厂并安装一个700兆瓦的大型电池。
 
-中共每一次解决方案都是一套活：无法兑付——维权——新闻爆料——否认危机安抚投资者——承诺画饼——警察抓人——投资者闭嘴——政府称：危机已经化解！
+一些煤矿和工厂也位于竞争激烈的选区，这意味着政府和反对党工党都试图避免激怒支持煤炭的选民。矿业和能源工会表示，这个决定让埃拉林电厂的工人“措手不及”。
 
-参考链接： [https://finance.sina.com.cn/roll/2022-02-18/doc-ikyamrna1395431.shtml](https://finance.sina.com.cn/roll/2022-02-18/doc-ikyamrna1395431.shtml)
+工会代表罗宾·威廉姆斯说：“对于许多依靠埃拉林电厂谋生的家庭而言，今天的公告给他们的未来带来了不确定性。”
 
-**3、SEC调查加密货币巨头币安美国分部的交易关联公司**
-![img](https://media.gettr.com/group26/origin/2022/02/18/04/0084787c-86f0-969e-605f-0c421b7b9590/eef4f82fb3a1565496132ba02ee0a904_500x0.png)
-据知情人士透露，美国证券交易委员会(SEC)正在调查全球最大加密货币交易所币安(Binance)的美国分部和与币安创始人有关联的两家交易公司之间的关系。这两家交易公司Sigma Chain AG和Merit Peak Ltd担任在Binance.US交易所交易加密货币的做市商。知情人士说，监管机构关注的一个领域是Binance.US如何向客户披露其与这些交易公司的联系。Binance.US在其网站上称，关联做市商可以在该交易所进行交易，但未说明哪些公司可以这样做。SEC要求币安的美国关联公司Binance.US提供有关这两家实体的信息。知情人士说，Binance.US目前正遭遇执法调查。
+支持煤炭的政府联盟议员马特·卡纳万表示，关闭电厂“将是一场灾难”，预计居民电费将涨价。
 
-参考链接：[https://cn.wsj.com/articles/sec%E8%B0%83%E6%9F%A5%E5%8A%A0%E5%AF%86%E8%B4%A7%E5%B8%81%E5%B7%A8%E5%A4%B4%E5%B8%81%E5%AE%89%E7%BE%8E%E5%9B%BD%E5%88%86%E9%83%A8%E7%9A%84%E4%BA%A4%E6%98%93%E5%85%B3%E8%81%94%E5%85%AC%E5%8F%B8-11644968740](https://cn.wsj.com/articles/sec%E8%B0%83%E6%9F%A5%E5%8A%A0%E5%AF%86%E8%B4%A7%E5%B8%81%E5%B7%A8%E5%A4%B4%E5%B8%81%E5%AE%89%E7%BE%8E%E5%9B%BD%E5%88%86%E9%83%A8%E7%9A%84%E4%BA%A4%E6%98%93%E5%85%B3%E8%81%94%E5%85%AC%E5%8F%B8-11644968740)
+能源部长安格斯·泰勒支持纳税人投资于新燃煤电厂，他发誓要确保有一个 “类似的工厂”来替代原发电厂。为此，他发推说，此举“将（居民用电）可负担性和可靠性置于风险之中”。
 
-**4、马斯克和特斯拉吐槽SEC“无休止”的骚扰，称“已经受够了”**
-![img](https://media.gettr.com/group50/origin/2022/02/18/05/f0a7747e-977b-070c-daf7-8a30d5077c00/c05e0db452ae1508730a7ea07bb06e7c_500x0.png)
-路透纽约2月17日 – 特斯拉及其CEO马斯克周四指责美国证券交易委员会(SEC)用“无休止”和“不留情面”的调查来骚扰他们，以惩罚马斯克对政府直言不讳的批评。
+莫纳什大学能源专家阿里尔·利布曼表示，虽然Origin公司的决定是出于商业原因，但它指出了澳大利亚人获取能源的方式发生了更广泛的转变。
 
-这一指责是在写给美国曼哈顿地区法官Alison Nathan的信中提出的。2018年，Nathan主审了SEC与马斯克关于其可能将特斯拉私有化推文的和解案。“马斯克先生和特斯拉恭敬地寻求(SEC)改正做法，”马斯克和特斯拉的律师Alex Spiro写道，“我们已经受够了。”SEC未予置评。Nathan在只有一句话的命令中指示SEC在2月24日之前做出回应。
+他说，一切都在不断加快向可再生能源的能源转型，关闭导致的任何价格飙升都可能是短暂的。
 
-参考链接：  [https://cn.reuters.com/article/tesla-musk-sec-0218-idCNKBS2KN05Q?il=0](https://cn.reuters.com/article/tesla-musk-sec-0218-idCNKBS2KN05Q?il=0)
+新闻链接：[Australia’s largest coal-fired power plant to close (phys.org)](https://phys.org/news/2022-02-australia-largest-coal-fired-power.html)
 
-**5、西班牙中央银行授权 Bit2Me 成为该国第一家加密服务提供商**
-![img](https://media.gettr.com/group19/origin/2022/02/18/05/dfc76bca-f23a-f7f1-41fc-5f570bf274df/54c6e7249d4dadc550447176f703ce4b_500x0.png)
-西班牙领先的加密货币交易所 Bit2Me 已获得西班牙银行的批准，成为“第一家将虚拟货币兑换成法定货币和托管数字钱包的服务提供商”。一位公司官员告诉 CoinDesk，Bit2Me 现在将能够为西班牙银行提供白标服务，允许在其平台上进行加密交易，并补充说它目前正在与“几家银行”进行谈判。
+*发布：tianzhihuan*
 
-参考链接： [https://www.coindesk.com/policy/2022/02/17/spains-central-bank-licenses-bit2me-to-be-countrys-first-crypto-services-provider/](https://www.coindesk.com/policy/2022/02/17/spains-central-bank-licenses-bit2me-to-be-countrys-first-crypto-services-provider/)
-
-审核校对：蚂蚁的城堡（一审）、文勇（二审）
-
-上传排版：文勇
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

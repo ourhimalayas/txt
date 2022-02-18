@@ -2,48 +2,26 @@
 ---
 
 
-## 㚑魂使命
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2024893/)
+## 奥运会不该在北京举行，川普谈中共入侵台湾
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2024989/)
 
-作者：紐約香草山教育部–蓝之㚑（Hortencia)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/37B01702-F45B-489E-A2D9-C6729B7ADD1E.jpeg)
-我们是蓝色灵魂
-带着沉睡心灵
-只等那呼唤声音
-醒来，醒来
-敲响灭共钟声
-如
-漫山遍野雪花
-如
-春天里的新芽
-![](https://assets.gnews.org/wp-content/uploads/2022/02/春天.jpg)
-我们是蓝色灵魂
-使命成就人生
-等到了那呼唤声音
-醒来，醒来
-追随他坚定身影
-看
-一颗颗射向魔鬼子弹
-看
-魔鬼们抱头鼠窜
+翻译：文暉
+校对：精靈藍
+剪辑|字幕：小强
+编辑：守望黎明
 
-斗转星移
-移山倒海
-雪花汇成大海
-淹没魔鬼猖獗
-新芽长成树冠
-庇护新世纪秩序
+彭帅事件的发生和中共恶形恶状的洗地掩盖行为，被西方媒体持续报道，把中共的丑陋不堪展现在了世界的面前。而北京冬奥会上各种丑闻的频频曝光，让本来砸下大钱、想往自己的脸上涂脂抹粉的冬奥会，变成了中共丢人现眼的噩梦，也让习近平成了全球的笑话。
 
-我们是蓝色灵魂
-为使命聚集你于中心
-点燃七芒星火种
-唤醒那沉睡心灵
+视频来源：[Olympics shouldn’t have been held in Beijing in the first place Rep.Gallagher\_1](https://www.foxbusiness.com/shows/mornings-with-maria)
 
-編輯/校正/发稿：玫瑰圓
+*发布：Mttfly*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/BE201CC2-D9F5-4E40-9190-A09F8DFAD87F.jpeg)
-
-
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

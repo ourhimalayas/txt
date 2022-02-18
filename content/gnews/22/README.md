@@ -2,64 +2,18 @@
 ---
 
 
-## 【诗歌】招安
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2025089/)
+## 文贵大直播 2/18 CCP病毒没结束 疫苗灾难没开始
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2025294/)
 
-作者：香草山健身部 — 新世界的一员
+撰稿：回响 【秘翻Gnews原创组】
+![](https://assets.gnews.org/wp-content/uploads/2022/02/snapshot1-1.jpg)图片来源 GTV
+当下关于奥米克绒病毒和疫苗强制令，全球众说纷纭，纷乱摇摆。攸关几十亿生命，爆料革命如何解读？
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-3.jpg)
+2月18日的文贵大直播，爆料革命发起人郭文贵先生回答现场嘉宾的各种困惑。郭先生明确指出：经济、政治、病毒三大撑不住是各国政府解除禁令的主要原因，事实上在默认集体感染，放任灾难肆虐。CCP病毒没有结束，疫苗灾难尚未开始。
 
+文贵先生再发警报：至少坚持到5月份，老老实实在家待着。生命只有一次，战友们务必小心！
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-1-1.png)
-
-二猪愣充天蓬帅
-
-狸鼠獠牙窥虎位
-
-心魔恶胆暗谋划
-
-唯我独尊苍生劫
-
-口称同胞大一统
-
-一手持香一手枪
-
-奈何上了手术台
-
-上天怜悯惜台湾
-
-猪脑若还存人性
-
-学苏解体散恶制
-
-蓝旗仁义瀚海怀
-
-民安国安既家安！
-
-（本文仅代表作者个人观点）
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-7.jpg)
-
-*编辑 /校对*：*Yuki*jiang
-
-*发稿：Yuki*jiang
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+【来源链接】https://gtv.org/broadcast/watch/620f95cbb706176dd78c6f6f
 
  
 

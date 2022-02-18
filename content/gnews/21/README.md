@@ -2,22 +2,22 @@
 ---
 
 
-## 美驻日大使发表声明称 俄乌问题日美步调一致
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2025161/)
+## 乐桃航空将减资至1亿日元，以改善因中共病毒造成的财务困难
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2025400/)
 
-撰稿：东京樱花团｜麗子
-![](https://lh5.googleusercontent.com/p2y47SLaetIphoWAGEaLFFWiHOI43QF7-_bBaaUgKe3IC7X044uGkHSmV5qG22Yl6R2y9TsfzW1RP09zwZiy8-fnSvLCNSmDhU9wB_yiWpfKw9s96YCHHYnzzJBOzO2vAGoYqgFz)[*图片来源*](https://www.nippon.com/ja/news/reu20220204KBN2K90MZ/)
-上个月抵达日本的美国驻日本大使伊曼纽尔就乌克兰局势发表声明，强调日美将步调一致。
+撰稿：东京樱花团｜百花李香
 
-伊曼纽尔大使在18日发表的声明中表示，日本和美国在俄罗斯问题上保持一致。并提到，岸田首相在17日举行的日俄电话会谈中，向普京提出通过外交努力缓解局势，重视以规则为基础的国际秩序，展现出岸田首相卓越的领导能力。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/乐桃航空将减资至1亿日元，以改善因中共病毒造成的财务困难.png)[*图片来源*](https://news.yahoo.co.jp/articles/b47ebbc15c08bc716b2e4ec70bdf123c115bfa78/images/000)
 
-驻日大使强调，美国和日本在解决俄罗斯问题上是团结一致的，并表示，欢迎日本与志同道合的伙伴一致发声。
+低成本航空公司（LCC）乐桃航空18日宣布，它将把资本从目前的75亿日元减少到1亿日元。因中共病毒爆发导致乘客数量下降，该公司一直面临着困难的经营状况，减少成本将有助于改善其财务困难。
 
-信息来源：[**対ロシア「日米の足並み揃っている」駐日大使が強調**](https://news.yahoo.co.jp/articles/e1e769b6166daf47621e19347ec48d0cf5cc7f8b)
+根据税务法，该公司将被视为中小型企业，将减少其税收支出。减资将于3月30日进行，公司还准备将资本储备金从74亿日元减少至零，以消除累计损失。乐桃截至2021年3月的净亏损额为295亿日元，这是该公司成立以来最大的亏损，2020年的净亏损为94亿日元，截至2022年3月的年度预测尚未公布。
+
+信息源：[**LCCピーチが1億円に減資　コロナ禍直撃で財務改善目指す**](https://news.yahoo.co.jp/articles/b47ebbc15c08bc716b2e4ec70bdf123c115bfa78#:~:text=LCC%E3%83%94%E3%83%BC)
 
 *编辑：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+*发布：东京樱花团 /*老黑
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
