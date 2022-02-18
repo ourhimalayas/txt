@@ -2,40 +2,50 @@
 ---
 
 
-## 【秘翻在线】法院要求川普总统及其两位家人宣誓作证
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2023141/)
+## 冬奥会参赛国一路从130到97吹到25实际不超过一巴掌
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2023307/)
 
-**撰稿：Grace**
+G-TV视频链接：[https://gtv.org/video/id=620e5a712403672096ab5bcb](https://gtv.org/video/id=620e5a712403672096ab5bcb)
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-287.jpeg)图片来源：newsbreak
-据《美国国家公共广播电台》（NPR）2月17日报道，纽约州的一名法官周四下令前总统川普及其两个最大的孩子小唐纳德·川普和伊万卡·川普在21天内宣誓作证，驳回了川普夫妇的律师试图阻止或延缓纽约州总检察长莱蒂西亚·詹姆斯（Letitia James）发出传票的论点。
+**摘要：**王毅说多少国家争着来。外交部你给我数一数，真正的国家元首二十几个国家，到现场的、有实力的超过五个手指头了吗？这真的已经不止“冬眠会”这么差了。
 
-报道称，纽约州最高法院的亚瑟·恩戈隆（Arthur Engoron）法官的决定是在两个小时的激烈口头辩论后作出的，川普总统的律师认为詹姆斯的调查构成了选择性执法和 “观点歧视”，并可能不适当地将民事调查的结果与詹姆斯也是一方的独立刑事案件混为一谈。
+**标签：**冬眠会,王毅,新中国联邦,爆料革命,郭文贵先生,
 
-恩戈隆法官写道：“一位州检察长开始调查一个商业实体，发现了大量可能的财务欺诈的证据，并希望在宣誓后询问该实体的几个负责人，包括其名字。她有明确的权利这样做。”
+**正文：**
 
-据报道，川普总统在裁决后的一份声明中批评了詹姆斯的调查。
+**郭文贵先生：**冬奥会，习，你看一看，亨利小哥你记得七哥说的吗？他自己说的130个国家来，然后97个国家。你看那张艺谋的采访也承认97个国家，你看看那个王毅说，多少国家争着来，外交部。你要但凡有一点点脸，得用鞋底抽自己的脸、咬自己的舌头，然后把绳子拴在自己的小鸡鸡上把自己吊死。就是你外交部公开讲那么多话，是吧？一百多个国家来，你还咋有脸见人呢？是吧？
 
-川普总统说：“她正在他们腐败的自由裁量权范围内做一切事情来干涉我的商业关系，以及政治进程。这是历史上最伟大的猎巫行动的延续–请记住，由于法官和司法部门对我的憎恨，我无法在纽约获得公平的听证。这是不可能的！”
+我小时候打架的时候，我们对所有的失败的惩罚，男同志，是吧？弄个绳捡到自己小鸡鸡上，然后拿舌头咬，是吧？连咬十下，是吧？作为男人输掉的羞耻。你外交部，你共产党，你但凡要点儿脸，你该拴上个绳咬死自己，这帮不要脸的东西！
 
-报道指出，詹姆斯于2019年3月开始对川普组织进行民事调查，几周后，川普组织的前高管迈克尔·科恩（Michael Cohen ）在国会作证说，川普总统”会指示我撒谎以促进他的商业利益”。科恩还提供了三年的财务报表来支持他自己的说法。
+结果是25个国家，谁说25个国家？你给我数一数？真正的国家元首二十几个国家，真正的到现场的、有实力的超过五个手指头了吗？这已经不是“冬眠会”了，真的已经不止“冬眠会”这么差了。
 
-据报道，詹姆斯的调查于2020年8月公开化。
+字幕来源：[2022月2日6日 《文贵大直播》全文字版](https://gnews.org/zh-hans/1971450/)
 
-2021年12月，詹姆斯向唐纳德·川普，小唐纳德·川普和伊万卡·川普发出传票，要求他们三人提供宣誓证词，并要求唐纳德·川普提供文件。
+编辑整理：Davis；
 
-报道称，此举被许多人认为表明詹姆斯的调查可能接近尾声，她已经从川普组织、该公司的前会计师事务所和贷款人德意志银行获得了数十万页的文件。詹姆斯尚未就是否提起诉讼作出决定。
+字幕文件制作：知津；
 
-关于传票的斗争迅速升级。唐纳德·川普和川普组织于12月底在联邦法院联合起诉詹姆斯，要求法官阻止詹姆斯的调查。
+视频制作及上传：Cindy；
 
-据报道，1月，詹姆斯表示，她已经初步认定川普组织 “利用欺诈性和误导性的资产评估来获取经济利益”，她在一份长达115页的法庭文件中详细说明了一些有问题的行为。
+G-News发布：小满；
 
-本月，长期为川普组织服务的会计师事务所结束了与该公司的关系，并在一封信中警告说，2011年至2020年的财务报表 “不应该再被依赖”。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-今年7月，一个大陪审团起诉了川普组织及其前首席财务官艾伦·韦塞尔伯格（Allen Weisselberg），指控其精心策划了一个逃避联邦、州和地方税收的计划。詹姆斯已经从她的办公室派来律师，与地区检察官合作处理他的案件，该案件可能最快在明年夏天进行审判。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-**新闻来源：****[N.Y. Supreme Court justice orders the Trumps to testify under oath](https://www.npr.org/2022/02/17/1081426859/ny-supreme-court-justice-orders-the-trumps-to-testify-under-oath)**
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ)、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A)、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/)；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
