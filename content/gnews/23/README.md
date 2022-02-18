@@ -2,8 +2,8 @@
 ---
 
 
-## 多國醫療健康組織會議 疫苗絕對無效 沒有任何科學依據
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2025879/)
+## 特鲁多的财政部长威胁持不同意见者会被实时追踪和冻结账户
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2025963/)
 
 作者：东京樱花团小视频组
 
@@ -18,7 +18,7 @@
 *发布：东京樱花团小视频组*
 
 * * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-7.jpg)
+![喜马拉雅东京樱花团](https://assets.gnews.org/wp-content/uploads/2022/02/yht-8.jpg)喜马拉雅东京樱花团
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

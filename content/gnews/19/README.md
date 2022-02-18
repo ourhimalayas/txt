@@ -2,32 +2,77 @@
 ---
 
 
-## 2022/02/16 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2025972/)
+## 2022年2月18日文贵先生直播摘要及音频—银河系农场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2025993/)
 
-1. 2月15日，中俄边境城市内蒙古满洲里市被中共通报出现5例新冠病毒确诊病例，随即中共政府对满洲里市执行封城措施，所有人只有经过批准方可进出。
-2. 2月15日，湖南郴州。被中共通报出现2例新冠病毒确诊病例后城市停摆，道路被封，餐馆、街道无人出入，整个城市服务行业从业者都将面临巨大经济生活压力。
-3. 2月15日，中共政府通报江苏苏州新增18例新冠病毒确诊病例。视频为苏州市民做核酸检测现场，从控制病毒传播的角度来看，中共如此施行全民核酸检测的防疫措施纯粹只是为了玩弄老百姓。
-4. 天津河北区一封控小区内，一位老大爷因不满中共的隔离封控措施，随即被公安带走。
-5. 中共在香港释放病毒，导致香港确诊病例出现爆发性增长，医疗系统超负荷接近崩溃，人们纷纷被诱骗逃离香港。
-6. 2月15日，湖北农村刚刚过完元宵节，一个人都没有了，都出远门了，只有几个八十岁的老人留守。
-7. 在孩子的哀求声中，母亲也只能无奈心酸的忍痛离开。孩子无法在父母身边健康快乐的成长。
-8. 2月14日，湖北天门公立学校全体中小学生被强制要求集体配餐事件，引发天门市家长集体不满。成立仅3个月的公司接下全市公立学校的配餐，重复利用的餐具，不戴手套，口罩的操作，引发了家长的集体抗议。
-9. 2月14日，江苏徐州。孩子在中共手里都是绑架的工具。 老师指定学生必须到指定书店买书，导致书店人满为患。
-10. 2月15日，重庆，此前因驱逐吃饭民警的星巴克门店前被市民送白花扔鸡蛋，围观群众劝阻保洁人员“不要扫”。
-11. 2月13日，云南大理。女子穿和服在景区拍照被路人辱骂。中国大陆社会弥漫的民族主义对立情绪是中共政府的有意制造。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/封面-12.jpg)
+盖特连接：[2022年2月18日 文贵大直播：乌克兰俄罗斯危机各执一词；Omicron病毒解禁众说纷纭](https://gettr.com/streaming/pvbkea9266)
 
+1、80%国家解禁取消疫苗护照主要是：经济撑不住，政治撑不住，病毒撑不住了（病毒变弱）；
 
-* * *
+2、疫情尚未结束：戴口罩，勤洗手，撑到5月份；
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+3、新加坡不宜久留；
 
+4、美国和共产党的较量，会把新加坡干掉；
 
-编辑：【英国伦敦喜庄园编辑部】
+5、李家江山争夺，华人成牺牲品；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+6、打了疫苗，就是免疫功能丢失；
+
+7、新加坡，以色列，香港等接种率高的国家导致免疫功能丢失，各种病症频发；
+
+8、疫苗灾难主要症状：吐血，流鼻血，眼睛出血，月经不规则流血不止，孩子突然倒地；
+
+9、中共藏钱最多的是卢森堡，瑞士和新加坡；
+
+10、新加坡票据业务全世界排第一（家族信托）；
+
+11、接下来咖啡价格要涨3-5倍；
+
+12、锁链女事件：习家大为恼火，引发了江胡，习谁该负责的党内争论；
+
+13、冬奥会开幕式花了72亿，张家口安保花费200多亿；
+
+14、比尔盖茨是媒体的爹，90%媒体使用的软件是微软；
+
+15、文贵先生破产：让共产党陷害文贵先生的76个案子全部自动停止，但是文贵先生告别人的案子不会停；
+
+16、谷爱凌事件：引发美国将立法对在美华人严格要求身份和家人等关系，欧洲也会跟进；
+
+17、美国警告俄罗斯，你要是打乌克兰我就停你的SWIFT，俄罗斯反问，中共打台湾停不停中共的SWIFT呢？美国没有说话，点点头，没有说出来；
+
+18、马化腾的老板毛道临+胡海青岳父胡锦涛。二部和三部是最大的技术支持，微信就是共产党的情报软件；
+
+19、躺平币优先法治基金捐款者、帮战友转人民币者、推广Hpay、之后就是义工和G系列投资者；
+
+20、战友绝对不能攻击欺骗战友，否则你的喜币一定会被追回；
+
+**注：大直播音频正在制作和上传中，敬请关注——**
+
+**（大直播音频位置）**
+
+编辑整理：文俊；
+
+发布：黎明之前
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
