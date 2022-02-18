@@ -2,24 +2,32 @@
 ---
 
 
-## 樱花FM┃美国又扇中共耳光 两党力推“台湾代表处”更名
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2024568/)
+## 今日盖特大V推荐 — 塞巴斯蒂安·戈尔卡博士（Sebastian Gorka DrG）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2024643/)
 
-音频：东京樱花团/战友520
-![](https://lh4.googleusercontent.com/Px1-mEkVaVgJC9qo0d9Zm_Clkrk527r2iZ15wj02XbPGR19X8xiF9GExge4QHvj1h5fgAOo1lh0u5-UwHvIwBYoQwCgVH-M8Og2GevPCMe4OlNcbTl9I8Pp72DzyjrSAO0Xmt6RV)
-美国参众两院议员提出配套法案，要求将台北驻美国的代表处更名为“台湾代表处”。台湾外交部发言人欧江安表达感谢，并持续密切关注法案后续发展。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/028.png)
+盖特链接：[**https://gettr.com/user/sebgorka**](https://gettr.com/user/sebgorka)
 
-美国两党国会议员3日在联邦参众两院提出配套法案，要求美国针对台湾在华府的“驻美国台北经济文化代表处”（TECRO）更名为“台湾代表处”（Taiwan Representative Office）展开协商。
+塞巴斯蒂安·戈尔卡博士自述：
 
-共同提出法案的共和党籍参议员卢比奥说：“美国必须清楚表明，尽管中国共产党竭尽全力恐吓并胁迫台湾，敌对势力也无权对民主国家主张主权。”
+国防部总统任命, #AMERICAFIRST & The Gorka Reality Check主持人， SebGorka.com，购买《美国灵魂之战》 https://amzn.to/3gfdPcJ
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1706.png)图片来源：网络
+塞巴斯蒂安·戈尔卡博士简介：
 
-孟南德兹表示，这些法案符合定义台美非正式关系的“台湾关系法”，且表明华府支持台湾“决定自己的未来”。
+塞贝斯蒂安·戈尔卡（生于 1970 年 10 月 22 日）是英国出生的匈牙利裔美国军事和情报分析员，反恐专家。
 
-文字版原文：[美国又扇中共耳光 两党力推“台湾代表处”更名](https://gnews.org/zh-hans/1958384/)
+他从2017年1月到2017年8月25日在美国总统唐纳德·川普的政府中担任总统副助理。 从 2017 年到 2019 年，他是福克斯新闻的撰稿人。
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+2020 年 7 月，白宫宣布川普将任命戈尔卡为由 14 名成员组成的国家安全教育委员会的成员。该委员会通过向学生颁发奖学金和研究金以及向学院和大学提供助学金来解决“国家对关键语言和地区专家的需求。”
+
+编撰：洛杉矶盘古农场 — 心照
+校审：洛杉矶盘古农场 — 郭友(文苏)
+发布：洛杉矶盘古农场 — 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

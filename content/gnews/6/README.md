@@ -2,18 +2,18 @@
 ---
 
 
-## 樱花FM┃东京大规模接种疫苗 将扩大到每天约5000人
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2024554/)
+## 樱花FM┃北京奥运会场上和央视对台湾代表团称呼不一
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2024637/)
 
 音频：东京樱花团/战友520
-![](https://lh4.googleusercontent.com/INOJ1Q0o-AYrA3fwVSg_0p8FulBWRe05HEHLZ1z9ZMKbja_1EKKkecPoYp34pz4-s6AVw6CMjjGIryVrsPQpOr6qFTWSUhsN2yN2IF_QCDf6HoZ3Sbgs7Kp-So257p6K10lJ2JRm)
-2月2日《日本电视新闻》报道，今天，岸田文雄首相在国会宣布，由自卫队在东京运营的中共病毒（新冠病毒covid-19）疫苗大规模接种场所从下周开始将每天的接种人数从目前的720人增加到约5000人，以便与去年相同的速度进行接种。
+![](https://lh4.googleusercontent.com/2rOLWZEm-ILGl5YVCiP4sFOxQYmSQeJh2CPmn9nX3OJohYPcOCFbvvsqqVST_7GiGkCIBHjrjzhzqLjbPXodDPDdnD2PG1Vjuv0grUukIQYq6Nu4krSAiQ1Ntwl75Cj_GZ1O6OMD)
+2月4日时事通信社消息：4日晚举行的北京冬奥会开幕式的直播中，中共国营中央电视台（CCTV）的播音员将台湾代表团称为“中国台北”。
 
-位于东京的大规模疫苗接种点目前每天为720人接种疫苗，原计划从本月7日起将人数增加三倍，每天达到2160人。
+会场上的宣布和以前一样，是“中华台北”，而面向中共国老百姓时，还是基于“一个中国”原则，强调台湾也是中共国的一部分。
 
-因大规模预约接种点短时间内人数爆满，执政党和反对党都在呼吁增加大规模疫苗接种点的接种人数。
+当台湾代表团入场时，中央电视台切换到习近平在贵宾席上观看的镜头。当香港代表团紧随其后时，中央电视台也播放了习近平相关画面，暗示他希望在“一国两制”下统一台湾。
 
-文字版原文：[东京大规模接种疫苗 将扩大到每天约5000人](https://gnews.org/zh-hans/1958377/)
+文字版原文：[北京奥运会场上和央视对台湾代表团称呼不一](https://gnews.org/zh-hans/1958096/)
 
 *编辑：东京樱花团/asket
 发布：东京樱花团/平安卿卿*
