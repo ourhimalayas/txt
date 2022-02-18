@@ -2,40 +2,144 @@
 ---
 
 
-## 新闻述评：从即将闭幕的冬奥会看中共行将结束的政权
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2022491/)
+## 加拿大自由车队是非暴力抗议的“胜利”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2022514/)
 
-作者：东京樱花团｜捆绑CCP一千年
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1674.png)[*图片来源*](https://www.firstpost.com/sports/beijing-winter-olympics-2022-organisers-hit-out-at-xinjiang-lies-claim-taiwan-an-indivisible-part-of-china-10382401.html)
-**随着北京冬奥即将闭幕，北京政权开始自吹双奥之都。但世界从2008夏季奥运到2022冬季奥运看中共国的由盛到衰的历史演进，人们不难发现，在这其间，中共国经济命运又和台湾有着紧密相连，甚至可以看出，两岸关系兴衰关乎中共命运。这其间奥秘，无人可解，但这是客观事实。**
+[https://gtv.org/video/id=620e73682403672096ab73d5](https://gtv.org/video/id=620e73682403672096ab73d5)
 
-据中共国新华社17日消息，北京冬奥会周日闭幕，国家体育馆附近及其相关道路按惯例采取交通管制，交通限制时间从2月20日6时至闭幕式结束。这是中共吹嘘的双熬之城，注定成为中共政权以奥运会的形式为其画上句号的标志性事件。
+Stuart:
+Bringing Stephen Moore to join us now, economist Stephen Moore
+现在让斯蒂芬-摩尔加入我们，经济学家斯蒂芬-摩尔
 
-该消息透露，本届奥运会闭幕式的交通受限制道路面积从“慧忠路地下隧道、国家体育场北路、大屯路（不含大屯路地下隧道）”到“奥林东路北向南方向主辅路、北辰东路北向南方向主辅路、北辰路南向北方向主辅路（民族园路至北辰桥）。另外，“除持有闭幕式或冬奥组委核发的奥林匹克运动会专用证件的车辆和人员外，禁止其他车辆和行人通行。社会车辆和公交车绕行。”其中第六条规定，“闭幕式期间，将适时对北四环主辅路（健翔桥至安慧桥）采取临时交通管制措施，禁止车辆及行人通行。”
+If there were an American truck convoy, would you support it?
+如果有美国卡车车队，你会支持吗？
 
-- ***延展阅读：***[***2022年北京冬奥会：组织者抨击新疆“谎言”；声称台湾是“中国不可分割的一部分***](https://www.firstpost.com/sports/beijing-winter-olympics-2022-organisers-hit-out-at-xinjiang-lies-claim-taiwan-an-indivisible-part-of-china-10382401.html)***”***
+And I ask, because these convoys have got nothing,
+我问，因为这些车队一无所有，
 
+I mean this is about getting rid of the mandate for the jab.
+我的意思是这是关于摆脱疫苗强制令
 
-这将是一场非同寻常的冬季奥运会闭幕，相比2008年夏季奥运会闭幕式[交通管制](http://www.gov.cn/govweb/fwxx/sh/2008-08/21/content_1076130.htm)，本届习近平的纳粹运动会相当严格。例如，“2008年北京奥运会闭幕式定于2008年8月24日（星期日）20时在国家体育场举行。届时有15万中、外宾客出席闭幕式。”这是非同寻常的盛大的开幕式，而本届冬奥闭幕式没有提及具体人数和闭幕式具体时间。而且管制时间是从“13时30分起至闭幕式结束，采取交通管制措施。”最后要求“除奥运专用车辆、公共汽车外，顺行方向禁止其他车辆通行。”从本届冬奥会闭幕式管制时间6点开始，且一切社会车辆和公交车辆都禁行的严格程度与08年奥运会相比，它是极其严格的、全天候的。
+And if we get one in America that could really complicate the supply chain again,
+如果我们在美国有卡车车队，真的会使供应链再次复杂化
 
-和开幕式一样，中共国再次如临大敌，但能否闭幕？这本身就是个问题。历史戏剧性地证明，中国经济腾飞从08年奥运会继续保持中共国的辉煌后，从2010年之后经济增长不再保持“数十年的两位数增长”。可见，中共国2008年的奥运经济由2007年的[23.1%](https://zh.wikipedia.org/wiki/%E4%B8%AD%E5%8D%8E%E4%BA%BA%E6%B0%91%E5%85%B1%E5%92%8C%E5%9B%BD%E5%9B%BD%E5%86%85%E7%94%9F%E4%BA%A7%E6%80%BB%E5%80%BC#%E5%B9%B4%E5%BA%A6%E6%95%B0%E6%8D%AE)的最高增长率下滑到[18.2%](https://zh.wikipedia.org/wiki/%E4%B8%AD%E5%8D%8E%E4%BA%BA%E6%B0%91%E5%85%B1%E5%92%8C%E5%9B%BD%E5%9B%BD%E5%86%85%E7%94%9F%E4%BA%A7%E6%80%BB%E5%80%BC#%E5%B9%B4%E5%BA%A6%E6%95%B0%E6%8D%AE)，这就已经是开启了虚假繁荣的魔咒。中共国不可持续的谎言治国从经济起伏涨落到本届奥运会可见一斑。
+could lead to some inflation, so are you in favor of an America truck convoy?
+可能会导致一些通货膨胀，所以你赞成美国卡车车队吗？
 
-虽然国际社会对中共国纳粹运动会不公正裁判还有很多激烈的批评，但这场国际性丑陋、邪恶的表演终于要闭幕了。相信世界应该借此醒来，如果说，国际社会还能继续支持北京，那真的是一个人类社会大悲剧。它不仅仅是裁判舞弊那么简单，人们更应该看到[像韩国运动员郭允基（Kwak Yoongy）](https://7news.com.au/sport/winter-olympics/south-korean-skaters-winter-olympics-podium-dance-a-tribute-to-bts-after-china-controversy-c-5731575)那样的勇气，以K-pop男孩乐队的热门歌曲《炸药》（Dynamite）劲爆的舞蹈片段来抗议北京丑陋的裁判。
+Stephen：
 
-中共国冬奥会丑陋的裁判让国际社会进一步认清了中共的邪恶。这种强盗体育和强盗政治正是它的政治经济学本质。可见，中共国经济真正出现放缓迹象也是2008年夏季奥运会。一个分水岭的标志性时间点自“2011 年第三季度增长 9.1%”以后，就不再是两千位数了。而且至今从未起来过。
+Well, good morning Stuart, couple of points,
+早上好，斯图尔特，几个意义
 
-- ***延展阅读：***[***中国官员在奥运会上首次就台湾和新疆发表声明，宣布“一个中国”***](https://www.reuters.com/world/china/chinese-official-makes-first-statement-taiwan-xinjiang-games-declares-one-china-2022-02-17/)
+number one, the Canadian protesters those truckers have won, they won,
+第一，那些卡车司机赢得的加拿大抗议者，他们赢了
 
+they have made the point in an empathetic way.
+他们以让人同情的方式提出了这一点
 
-2011年到底发生了什么？一则有趣的消息是，“[2010年12月2日，前总统陈水扁日前因龙潭购地弊案和101买官案分别被判刑11年、8年定谳，下午发监至台北监狱服刑，成为中华民国第一位因罪入狱的卸任元首](https://zh.wikipedia.org/wiki/2010%E5%B9%B4%E8%87%BA%E7%81%A3#1%E6%9C%88)。”这不是偶然的，一年后，即2010年7月12日胡锦涛总书记会见中国国民党荣誉主席吴伯雄。之后于同年11月13日在日本横滨访问期间会见了台湾国民党荣誉主席连战。可见，中国共产党和台湾国民党的会见创造了划时代意义，而这正是胡锦涛自《反国家分裂法》颁布后发生的台湾局势。此后，中共国经济增长名义上从2017年起就显著放缓，然而，从 2007 年的[14.2%](https://zh.wikipedia.org/wiki/%E4%B8%AD%E5%8D%8E%E4%BA%BA%E6%B0%91%E5%85%B1%E5%92%8C%E5%9B%BD%E5%9B%BD%E5%86%85%E7%94%9F%E4%BA%A7%E6%80%BB%E5%80%BC#%E5%B9%B4%E5%BA%A6%E6%95%B0%E6%8D%AE) 降至 2018 年的[6.6%](https://zh.wikipedia.org/wiki/%E4%B8%AD%E5%8D%8E%E4%BA%BA%E6%B0%91%E5%85%B1%E5%92%8C%E5%9B%BD%E5%9B%BD%E5%86%85%E7%94%9F%E4%BA%A7%E6%80%BB%E5%80%BC#%E5%B9%B4%E5%BA%A6%E6%95%B0%E6%8D%AE)的数据看，它的变化本身说明了中共国经济与台湾关系的变化。
+People see you know these pictures, it’s been misrepresented by the way, by the media.
+你知道，人们看到这些照片，它被媒体歪曲了
 
-实际上从2011年的9.6%就已经是个位数。从此后，中共国再也无法回到过去。这就是两届奥运会看中共由盛到衰的历史演绎，因此，北京冬奥注定为中共政权画上句号。
+It has been almost exclusively peaceful, no question about it.
+它几乎完全是和平的，毫无疑问
 
-2022年2月17日
+These are people who have made an incredible point, not just to the Canadian government, to people around the world,
+这些人提出了令人难以置信的观点，不仅对加拿大政府，对世界各地的人们
 
-*校对：东京樱花团/東洋武士*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+and you are right, you are starting to see this kind of protest now in some of European countries and New Zealand and others,
+你是对的，你现在开始在一些欧洲国家和新西兰和其他国家看到这种抗议，
+
+so it has been a victory for non-violent protest,
+所以这是非暴力抗议的胜利，
+
+and it’s probably time for…
+可能是时候……
+
+by the way I don’t think the protesters have the right to stop commerce and block bridges and things of that nature
+顺便说一句，我不认为抗议者有权停止商业并封锁桥梁和类似性质的东西
+
+so I think that the police acted correctly in cleaning the bridges,
+所以我认为警察清理桥梁的行为是正确的，
+
+so that commerce could commence
+这样商业才能持续
+
+and whether this should happen in the United States, you know, Stuart,
+以及这是否应该发生在美国，你知道，斯图尔特
+
+I actually think that what’s happening now in the US is a lot of these mandates and a lot of these mask requirements all over the country,
+实际上，我认为现在在美国发生的事情是很多这样的规定和全国各地的很多口罩要求
+
+even the democratic governors are getting rid of them now,
+即使是民主党的州长现在也正在摆脱它们，
+
+because the virus is in such rapid retreat,
+因为病毒正在迅速消退
+
+so hopefully I won’t need protest, because all of these mandates are going to go away in the next few weeks.
+所以希望我不需要抗议，因为所有这些强制令都将在接下来的几周内消失
+
+Stuart:
+
+Let me ask you about producer prices, we get the number tomorrow.
+让我问你关于生产者价格的问题，我们明天得到这个数字
+
+We are expecting a 9% annual inflation rate at the producer level.
+我们预计生产者层面的年通胀率为 9%
+
+If we get that 9%, does that mean higher consumer prices down the road?
+如果我们得到那 9%，这是否意味着未来的消费者价格会更高？
+
+Stephen:
+
+Well, by the way, one other quick thing about Canada, have you seen the latest Justin Trudeau approval ratings?
+好吧，顺便说一下，关于加拿大的另一件事，你看过贾斯汀·特鲁多最新的支持率吗？
+
+He’s as low as Joe Biden is in the United States, so again evidence these protests have really made a statement.
+他和乔·拜登在美国一样低，所以再次证明这些抗议活动确实起了作用
+
+Yeah, I think we’re going to see a high producer price index number
+是的，我认为我们将看到一个高生产者价格指数
+
+and of course that’s going to spread down to higher consumer prices,
+当然，这会蔓延到更高的消费者价格
+
+and there’s now word, as you’ve been reporting that the Fed may have some kind emergency rate increase,
+现在有消息，正如你一直在报道美联储可能会紧急加息
+
+I’m total in agreement with that,
+我完全同意这样做
+
+I only think they should have done that nine months ago,
+我只认为他们应该在九个月前这样做
+
+they are way behind the curve and fighting this inflation with that validations of it, we will see more validation behind the curve tomorrow.
+他们远远落后于曲线，并通过对它的验证来对抗这种通货膨胀，明天我们将在曲线后面看到更多的验证
+
+Stuart
+Lots of speculation about what the Fed will do when it will do it. Stephen Moore, thanks a lot for being with us. We will see you tomorrow
+很多人猜测美联储何时会采取行动。斯蒂芬-摩尔，非常感谢您与我们在一起。我们明天见
+
+**原视频链接:**[** **https://www.youtube.com/watch?v=AQ4jx17mcGI](https://www.youtube.com/watch?v=AQ4jx17mcGI)
+
+Date:02/15/2022
+原视频标题: Canada Freedom Convoy a ‘victory’ for non-violent protests
+加拿大自由车队是非暴力抗议的“胜利”
+原视频日期：2022/02/14
+**原视频链接: **https://www.youtube.com/watch?v=AQ4jx17mcGI
+任务编号：3760
+视频时间段 : 0:00-02:42
+
+英听校：洛杉矶盘古农场 – Raul
+翻译：洛杉矶盘古农场 – Raul
+翻译终校：洛杉矶盘古农场 – Mike Li
+审片：洛杉矶盘古农场 – 天涯行
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

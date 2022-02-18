@@ -2,57 +2,47 @@
 ---
 
 
-## 同是印度 是否使用伊维菌素死亡率相差405倍
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2021237/)
+## 研究表明中共病毒疫苗百害而无一利
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2021331/)
 
-作者：加拿大温哥华扬帆农场[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
+作者：日本方舟农场-Andy5/银河系农场—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-美国FDA一直误导民众，“[不应该使用伊维菌素来治疗或预防COVID-19](https://www.fda.gov/consumers/consumer-updates/why-you-should-not-use-ivermectin-treat-or-prevent-covid-19)”，FDA称，没有证据表明伊维菌素（Ivermectin）对COVID-19是安全或有效的，因此一直没有授权或批准伊维菌素用于预防或治疗人和动物的 COVID-19。
+2月11日，据相关媒体报道，美国疾病控制与预防中心发布的最新数据显示，中共病毒疫苗被媒体宣传的所谓保护率会在接种的四个月后极具降低。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-17_21-26-31.png)
+![圖片](https://media.discordapp.net/attachments/943738468943679518/943893587123400754/0217AM1-11.002.jpeg)
 
-同是印度的喀拉拉邦（Kerala）和北方邦（Uttar Pradesh），前者拒绝伊维菌素，后者向民众发放伊维菌素套件包，感染率相差67倍，死亡率相差405倍。
+对于此种现象，日本的长尾和宏医生与新中国联邦的Mike医生和文恩医生都做过详细的解释。据悉，疫苗这种外来免疫方式只能暂时性地大幅提升人体内对特有病毒的抗体，这些抗体在接种后4到6个月内就会减少。同时，由于抗体依赖增强ADE效应，疫苗接种者在之后的时间里会更容易感染病毒。
 
-拥有2.425亿人口的印度北方邦（Uttar Pradesh）在去年5月4日前一段时间，每日新增确诊感染人数达3万人以上。
+至于中共病毒疫苗，Mike医生则指出，其使用的刺突蛋白会抑制人体内的浆母细胞和造血干细胞等跟人体免疫系统息息相关的细胞。加之疫苗会使病毒在接种者体内出现突变，这将造成身体原本的非特异性免疫细胞应接不暇，最终导致接种者的免疫力下降。
 
-自去年5月4日起，北方邦开始向每个家庭发放价值2.65美元的伊维菌素套件包，每个家用套件包含：扑热息痛片[泰诺]（Paracetamol tablets [tylenol]）、维生素C（Vitamin C）、多种维生素（Multivitamin）、锌（Zinc）、维生素D3（Vitamin D3）、伊维菌素12毫克[数量#10片] （Ivermectin 12 mg [quantity #10 tablets]）、多西环素100毫克[数量#10片]（Doxycycline 100 mg [quantity #10 tablets]）。其他非药物组件包括口罩（face masks）、消毒剂（sanitizer）、手套（gloves）和酒精湿巾（alcohol wipes）、数字温度计（digital thermometer）和脉搏血氧仪（pulse oximeter）。
+另有研究指出，中共病毒疫苗在进入人体后所产生的刺突蛋白会在血液中高水平循环。倘若疫苗接种者感染了中共病毒，其体内刺突蛋白的活动性反而会再度加剧。最终，这些大量活跃的刺突蛋白会让接种者产生各类后遗症。
 
-自从发放伊维菌素套件包后，北方邦（Uttar Pradesh）每日新增病例迅速下降，在相当长一段时间内，北方邦每日新增感染人数甚至不足10人。
+对此，长尾和宏医生在纪录片《疫苗后遗症》中证实，免疫力下降导致疫苗后遗症患者的症状千奇百怪，目前的医疗系统中很难找到统一的治疗方式。
 
-而印度相信疫苗、拒绝伊维菌素的喀拉拉邦（Kerala），虽然只有3,570万人口，仅有北方邦的14.7%，坚持全民打COVID-19病毒疫苗，新增COVID-19感染病例一直持续增长。
+分析人士指出，现有的理论和数据已经完全表明，药厂、媒体和政府所宣称的疫苗保护性根本就是谎言，相反的，中共病毒疫苗对人体百害而无一利。
 
-目前，喀拉拉邦1针疫苗接种率达到100%，两针疫苗接种率82%。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Summary-of-COVID-Vaccine-Administered.jpg)
-到今日为止，北方邦累计确诊感染人数为2,061,413人，而喀拉拉邦累计确诊感染人数为 6,440,371人，喀拉拉邦的感染率是北方邦的21倍！
+参考链接：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-17_21-04-26.png)
+1. [美CDC研究：加強劑4個月後保護力大減 恐須打第4劑](https://udn.com/news/story/121707/6093056)
+2. [20220211長尾醫生+鳥集記者在電影結束後的對談part3](https://www.gettr.com/post/pu8h568408)
+3. [THEY LIED: Bombshell new research confirms that Reuters, AP misled the public about how long mRNA nanoparticles persist in the body following vaccinations](https://newstarget.com/2022-02-13-new-research-confirms-reuters-ap-misled-public.html)
 
-如果只计算使用伊维菌素后的情况，并考虑伊维菌素包分发和正确使用需要一段时间，因此，选择从去年7月1日开始分析比较北方邦和喀拉拉邦的结果。
 
-去年6月30日，北方邦的累计确诊感染人数为1,705,951，喀拉拉邦累计确诊感染人数为2,910,507人。因此，从使用伊维菌素开始，北方邦新增感染病例为355,462（2,061,413-1,705,951）人，喀拉拉邦新增感染病例为3,529,864（6,440,371-2,910,507）人，喀拉拉邦的感染率是北方邦的67倍。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-5.png)
 
-截至今日，北方邦的累计死亡人数为23,414人，喀拉拉邦累计死亡人数为63,019人。喀拉拉邦的死亡率是北方邦的18倍。
+总编：Irene木木
+编辑：Irene木木
+校正/发稿：小野貓（文凱琳）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-17_21-20-52.png)
-
-去年6月30日，北方邦的累计死亡人数为22,577人，喀拉拉邦累计死亡人数为13,093人。从使用伊维菌素开始，北方邦新增死亡病例为837（23,414-22,577）人，喀拉拉邦新增死亡病例为49,926（63,019-13,093）人，喀拉拉邦的死亡率是北方邦的405倍。
-
-参考数据：
-
-[Why You Should Not Use Ivermectin to Treat or Prevent COVID-19](https://www.fda.gov/consumers/consumer-updates/why-you-should-not-use-ivermectin-treat-or-prevent-covid-19)
-
-[India’s Ivermectin Blackout – Part V: The Secret Revealed](https://www.thedesertreview.com/opinion/columnists/indias-ivermectin-blackout---part-v-the-secret-revealed/article_9a37d9a8-1fb2-11ec-a94b-47343582647b.html)
-
-[Compare States](https://prsindia.org/covid-19/cases/statewisecomparison)
-
-[UTTAR PRADESH Going the last mile to stop COVID-19](UTTAR%20PRADESH%20Going%20the%20last%20mile%20to%20stop%20COVID-19)
-
-[Tale of Two States: Kerala, Uttar Pradesh Paint A Contrasting Picture of Covid-19](https://www.news18.com/news/india/tale-of-two-states-kerala-uttar-pradesh-paint-a-contrasting-picture-of-covid-19-4127714.html)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

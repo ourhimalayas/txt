@@ -2,30 +2,36 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年2月17日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2021247/)
+## 荷兰告别了大流行病：取消Covid护照、口罩、距离限制
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2021450/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO-1.jpg)
+**编译：七龙珠**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip荷兰告别了大流行病：取消Covid护照、口罩、距离限制.png)图片来源：20minutos.es
+荷兰政府在周二宣布，在确认这波病毒现已达到高峰后，将停止在室内使用口罩，停止使用Covid健康护照进行社交活动，停止1.5米的人际距离，并停止远程办公。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-16.png)
-文章仅代表作者本人观点，与Gnews无关
+卫生部长恩斯特-凯珀斯（Ernst Kuipers）在新闻发布会上说，放宽措施将在本周二至2月25日期间分阶段生效，这是自2020年3月以来第一次没有包括总理马克-吕特，他因大流行病的“新阶段”而退居幕后。
 
-视频参看：
-[2022.02.17早 《NFSC新闻》](https://gtv.org/video/id=620e4d90b706176dd78ba22e)
-[2022.02.17早 G|TV《新闻访谈》](https://gtv.org/broadcast/watch/620e550db706176dd78baaa8)
+凯珀斯强调，“在过去几个月里，更多的人被感染，比以往任何时候都多”，“我们对病毒的抵抗力更强了，这也是为什么，尽管感染率很高”，他说，现在是“重新开放国家”的时候了，因为“现在看来，我们已经低于当前浪潮的峰值”。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+最直接的放宽措施涉及结束的限制和全职远程工作。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-1.png)
+将于周五生效的放宽措施包括：将酒店和文化的开放时间延长至凌晨1点；在需要新冠通行证进入的人数少于 500 人的地方，无需佩戴口罩或保持人际距离。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+感染者必须隔离的天数也将从7天减少到5天，条件是他们至少24小时内没有症状。
+
+从2月25日起，一米五的规定将完全消失，在酒店、餐饮和文化部门需要办理通行证，对关门时间的限制，以及作为一般规则的口罩的终止，因为至少在3月15日之前，只在公共交通工具和飞机上强制使用口罩。
+
+这也意味着夜生活、节庆和重大活动的回归。月底唯一保留的限制将适用于有500名以上客人的室内活动，无论他们是否接种疫苗，都需要进行阴性测试，因此足球比赛和户外活动将开放进入。
+
+**新闻来源**：[20minutos.es][Países Bajos se despide de la pandemia: elimina el pasaporte covid, el uso de mascarillas, la distancia y el teletrabajo](https://www.20minutos.es/noticia/4957527/0/paises-bajos-se-despide-de-la-pandemia-elimina-el-pasaporte-covid-el-uso-de-mascarillas-y-la-distancia-social/)
+
+* * *
+
+***审核：Aries的星
+校对：阿伯塔
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-2.jpeg)
 
  
 

@@ -2,69 +2,68 @@
 ---
 
 
-## 新西兰财经G乐部2022年2月17日:财经新闻整理
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2021537/)
+## 2022/02/17 大卫作战室直播精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2022069/)
 
-采集整理：蚂蚁的城堡
+[![](https://express.adobe.com/page/zIZmxhw7b9AdA/images/893d587a-a540-4016-b188-186fb8212f99.jpg?asset_id=eaa143be-a4df-4ba6-9360-efaf1f837bde&amp;img_etag=%22df2a0a775c5e4075d30ce232c2ed41c2%22&amp;size=1024)](https://express.adobe.com/page/zIZmxhw7b9AdA/images/893d587a-a540-4016-b188-186fb8212f99.jpg?asset_id=eaa143be-a4df-4ba6-9360-efaf1f837bde&amp;img_etag=%22df2a0a775c5e4075d30ce232c2ed41c2%22&amp;size=1024)
+- [**GTV视频链接**](https://gtv.org/video/id=620e3fefb706176dd78b914f)
+- [**GETTR视频链接**](https://gettr.com/streaming/pv3cpf8d71)
+- [**YouTube视频链接**](https://www.youtube.com/watch?v=XVrfCrllt50)
 
-**提纲：**
 
-1、组团忽悠：为包销股票积极唱多，券商“买入”研报引合规质疑
+**板块1–解读文贵先生2022-2-16大直播**
 
-2、爱迪尔：上市七年巨亏23亿，11亿金银珠宝离奇消失
+1. 《大卫作战室》打收益用于农场建设、线下活动开销、农场义工。战友们打赏是对《大卫作战室》的肯定和新任。
 
-3、丰县：国企利润依赖政府补助，董事长被“围猎”落马
+2. 文贵先生宣布三件大事：短期前往英国日本不可能；喜联储马上推出新的Hpay政策、贷款、抵押动能、重大投资利好公告；习刚做做脾和肾两个手术，暂缓对台作战计划。
 
-4、杭可科技实控人突遭立案，配偶一连8个月炒自家股票，知名基金经理重仓
+3. 英喜Gettr账号（英国伦敦喜庄园Himalaya London Club UK）在文贵大直播实时截取重点内容并发布，请战友关注。
 
-5、乌克兰东部叛乱分子指责政府军用迫击炮轰击其领地
+4. 文贵先生签出破产申明让不坚定战友提前“离场”，文贵先生战略性“躺平”，众多坚定战友依旧坚挺，更显珍贵。
 
-6、拜登寻求逾7,700亿美元2023年国防预算，料创纪录
+5. 美联储加息政策。唯独大宗商品振荡往上走，其余基本震荡下跌。国际金融市场关注热点-美联储释放何种消息、俄罗斯乌克兰形势变化、中共政局状态等。
 
-**正文**
+**板块2–俄罗斯乌克兰局势**
 
-**1、组团忽悠：为包销股票积极唱多券商“买入”研报引合规质疑**
-![img](https://media.gettr.com/group36/origin/2022/02/17/04/e6b32fe9-0cab-e04d-b90c-fbc84403941d/4a186016bf79aa948708c2a0e4df4ae8_500x0.png)
-近日，中信证券发布一篇关于“史上最贵新股”禾迈股份的研报。研报称禾迈股份股价能到1000元。研报称，禾迈股份深耕组件级电力电子领域，是全球领先的微型逆变器厂商，产品兼具成本、适用性、性能和可靠性优势，性价比竞争力突出，并持续拓展销售网络和客户群，业务高速增长。研报预计该公司2021~2023年每股收益（EPS）分别为4.93元、12.47元和22.50元，给予目标价1000元（对应2022年80倍PE），首次覆盖，给予“买入”评级。
+1. 文贵先生爆料：普京权衡利弊宣布撤兵，对习近平攻打台湾“放鸽子”，对台湾是重大利好。罗斯柴尔德家族利用战争对国家进行放贷，赚得盆满钵满。
 
-财经G评：承销商历来都是敲锣打鼓组团忽悠的一部分！
+2. 明面上发生炮击事件，暗地里各国开展“口水战”，有意引导市场情绪。
 
-参考链接：[https://finance.sina.com.cn/roll/2022-02-17/doc-ikyamrna1162716.shtml](https://finance.sina.com.cn/roll/2022-02-17/doc-ikyamrna1162716.shtml)
+3. 数字货币市场（比特币）在敏感国际局势下，下跌并不是“逢低买入”的时机。
 
-**2、     爱迪尔：上市七年巨亏23亿，11亿金银珠宝离奇消失**
-![img](https://media.gettr.com/group46/origin/2022/02/17/04/a8868839-4870-d388-f67b-763fd3e67c6f/7d4ffd74a89e3e6040391cf7c303c6bc_500x0.png)
-2022年1月29日，爱迪尔发布业绩预告称，2021年，公司的归母净利润预计亏损6亿-7.85亿。理由是公司业绩大幅下滑，相应计提应收账款坏账损失，以及收购来的千年珠宝和蜀茂钻石，因受疫情影响，拟对其剩余商誉全额计提减值。财务造假轻车熟路：2020年1月21日，公司同样公告预亏8.5亿-9.5亿。谁曾想三个月后，2021年4月28日（年报公告两天前），爱迪尔又发布了一条业绩修正公告，修正后的数据则变为了预亏15.71亿，几乎是之前预告最低亏损额的double！
+4. 黄金储备2021第三、第四季度状况：印度、俄罗斯、巴西、乌兹别克斯坦等国增持黄金储备，其中俄罗斯担心因乌克兰问题被国际制裁增持黄金稳定国内经济（高通胀压力巨大），并高价卖石油给中共国，持续提供天然气给欧洲。普京需要国内经济稳定维持政治稳定，并不需要一场战争。
 
-参考链接：[https://finance.sina.com.cn/stock/s/2022-02-16/doc-ikyakumy6295415.shtml](https://finance.sina.com.cn/stock/s/2022-02-16/doc-ikyakumy6295415.shtml)
+**板块3–喜交所**
 
-**3、丰县：国企利润依赖政府补助董事长被“围猎”落马**
-![img](https://media.gettr.com/group13/origin/2022/02/17/05/726eaa29-58fc-00d8-44e1-df758153665f/a7e27e3e303cb217ade83a006153f162_500x0.png)
-刘恒莲，丰县地方金融监督管理局原党组书记、局长，其另一身份，是丰县城市投资发展集团有限公司（以下简称“丰县城投”）原董事长。近日，刘恒莲所在的江苏徐州丰县，和他曾掌舵的丰县城投，在社交媒体、金融市场引发关注。丰县城投和丰县另一国企丰县经济开发区投资发展有限责任公司（以下简称“丰县经开”）在债券市场较为活跃，资产规模都达到了数百亿级别，但盈利能力并不乐观。丰县城投的盈利中，政府补助甚至占到了78%。手里掌握着大量资金和工程项目，2021年，丰县城投原董事长刘恒莲落马。
+1. 喜联出相当于印刷法币（HDO）的央行，HDO有20%黄金锚定。黄金在现国际实时政治情况下，今年将有增长空间。
 
-参考链接：[http://finance.sina.com.cn/money/bank/bank\_hydt/2022-02-16/doc-ikyamrna1120155.shtml](http://finance.sina.com.cn/money/bank/bank_hydt/2022-02-16/doc-ikyamrna1120155.shtml)
+2. 喜联储贷款、抵押功能开通，为资金避险提供“好去处”且HDO资金池将快速“蓄水”。功能开通时机刚好抓住世界经济处于脆弱时。
 
-**4、杭可科技实控人突遭立案，配偶一连8个月炒自家股票，知名基金经理重仓**
-![img](https://media.gettr.com/group6/origin/2022/02/17/05/64fe3861-6f72-320f-2765-d3e361511077/a28af7e71b4817b0eabc77643922fb77_500x0.png)
-实控人配偶短线炒自家的股票，遭立案了。2月16日晚间，杭可科技公告，实际控制人、董事长曹骥因配偶违规买卖公司股票导致其涉嫌短线交易，证监会决定对其立案。杭可科技最新收盘价80.15元，总市值323亿元。截至2021年三季度末，股东户数8169户。
+3. 中共国财政部召开会议有关与各地政府保持金融稳定，凸显地方财政吃紧。
 
-参考链接：[https://www.stcn.com/xw/sd/202202/t20220217\_4159805.html](https://www.stcn.com/xw/sd/202202/t20220217_4159805.html)
+**板块4–财经、中共病毒**
 
-**5、乌克兰东部叛乱分子指责政府军用迫击炮轰击其领地**
-![img](https://media.gettr.com/group15/origin/2022/02/17/06/b404adaf-33cf-c267-71ef-a38fe5531658/2fb33347364562230772beeba8ab9637_500x0.png)
-路透莫斯科2月17日-俄罗斯新闻社(RIA)称，俄罗斯支持的乌克兰东部叛乱分子周四指责乌政府军用迫击炮攻击他们的领地，违反了旨在结束冲突的协议。俄罗斯在乌克兰边境附近集结了10多万兵力，同时要求北约承诺不接受乌克兰成为成员国。西方国家威胁称，如果俄罗斯攻击乌克兰，将对俄实施新的制裁；俄罗斯则否认计划对乌克兰进行任何攻击。
+1.新西兰反疫苗强制人士受到加拿大卡车司机启发，封锁议会。加拿大大卡车司机游行受到2019年香港运动启发。
 
-参考链接：[https://cn.reuters.com/article/ukraine-rebels-mortar-attacks-0217-idCNKBS2KM0D1?il=0](https://cn.reuters.com/article/ukraine-rebels-mortar-attacks-0217-idCNKBS2KM0D1?il=0)
+2.以色列作为全球疫苗接种率最高的国家之一，正在付出代价。二萬辆卡车和家用车参加全球自由车队游行活动。
 
-**6、拜登寻求逾7,700亿美元2023年国防预算料创纪录**
-![img](https://media.gettr.com/group41/origin/2022/02/17/06/037581ab-2eb2-6b4a-3341-d24cc339f002/f23e34f7b06f31edfd3c793a3f4d4b7f_500x0.jpg)
-路透2月17日-三名知情人士透露，由于五角大楼寻求军事现代化，美国总统拜登预计将向国会提出下一财年超过7,700亿美元的国防预算，超过了前总统特朗普提出的创纪录预算要求。上述消息人士称，美国国防部长奥斯汀和白宫行政管理和预算办公室(OMB)之间正在进行的从10月1日开始的2023财年预算谈判，围绕逾7,700亿美元国防预算要求展开。消息人士补充称，政府内部正在进行谈判，在未来几个月提出预算申请之前，最终金额可能会发生变化。其中两位消息人士说，国防部将获得约7,730亿美元的资金，其他需求将在此基础上进行，可能会使总额超过8,000亿美元。
+**大卫作战室每周一**、**周四**、**周六直播：英国时间12点；美东早7点；盘古20点.**
 
-参考链接：[https://cn.reuters.com/article/us-2023-defence-budget-0217-idCNKBS2KM03T?il=0](https://cn.reuters.com/article/us-2023-defence-budget-0217-idCNKBS2KM03T?il=0)
+- [欢迎关注GTV-大卫作战室](https://gtv.org/user/5e86008377d0e42087e2a56d#home)
+- [欢迎关注YouTube-大卫作战室](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
+- [欢迎关注YouTube-大卫作战室 备用直播号](https://www.youtube.com/channel/UCSjAwTM1autpHTLVihdJHHg)
+- [欢迎关注GETTR-大卫作战室](https://gettr.com/user/davidswarroom)
 
-审核校对：蚂蚁的城堡（一审）、文勇（二审）
+[![](https://express.adobe.com/page/zIZmxhw7b9AdA/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)](https://express.adobe.com/page/zIZmxhw7b9AdA/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)
+*听写：call me uncle | 校对：乐禧禧 | Page：我是球大哥*
 
-上传排版：文勇
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
 
+
+*编辑：【英国伦敦喜庄园编辑部】*
+[![](https://express.adobe.com/page/zIZmxhw7b9AdA/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://express.adobe.com/page/zIZmxhw7b9AdA/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,28 +2,43 @@
 ---
 
 
-## 美国议员提法案禁中共高官子女赴美学习
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2020097/)
+## BioNTech计划在非洲建造模块化疫苗工厂
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2020357/)
 
-撰稿：东京樱花团/asket
+整理报道：攀登者
+编辑：Mttfly
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/美国议员提法案禁中共高官子女赴美学习.png)
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/BioNTech.jpg)图源：*Andreas Arnold/dpa via AP*
+据美联社柏林报道，德国疫苗制造商BioNTech周三公布了在非洲建立疫苗制造设施的计划。该制造商曾与辉瑞一起开发了首例获得广泛批准的新冠病毒疫苗。
 
-美国联邦共和党众议员哈茨勒Vicky Hartzler周三（2月16日）提法案，禁止中共高官及其家属进入美国大学学习。法案锁定对象还包括习近平和政治局常委等中共最高层成员及其家属。
+在德国马尔堡举行的仪式上，该公司展示的模块化设计包括装有制造公司基于mRNA疫苗所需设备的海运集装箱，省去了将剂量放入瓶子的最后一步，这个过程被称为填充和完成。
 
-众议员维姬·哈茨勒（Vicky Hartzler）办公室发布新闻说，哈茨勒提出了《保护高等教育免受中共影响法》（Protecting Higher Education from the Chinese Communist Party Act），禁止中共官员及其家庭成员获得学生或研究签证。法案锁定所有中国共产党全国代表大会成员及其家属。法案特别解释说，这里的家属指的是中共官员的配偶、子女、父母、兄弟姐妹或孙辈。
+BioNTech因拒绝暂停其疫苗专利并让竞争对手制造疫苗而受到一些运动团体的批评，作为更广泛地提供疫苗的一部分，特别是在穷国。该公司辩称，mRNA疫苗的生产过程很困难，它更喜欢与当地伙伴合作，以确保全球疫苗的一致质量。
 
-“在中共实施种族灭绝和其它暴行的同时，他们继续将其子女送到美国接受世界级教育。这必须被制止”，哈茨勒说，“《保护高等教育免受中共影响法》结束了这种行径。”
+BioNTech表示，第一个统包设施将于今年下半年运往塞内加尔或卢旺达。它的目标是在12个月内开始每年生产多达5000万剂疫苗，等待当地监管机构的批准。
 
-哈茨勒周三在推特上也宣布了这一法案，并说：“当习近平和中国共产党实施种族灭绝时，他的女儿在哈佛大学接受了世界级的教育。” “美国不应该帮助那些积极致力于破坏我们国家的人”，哈茨勒说，“我的新立法禁止他们进入美国大学。”
+BioNTech表示，它最初将配备人员并运营这些设施，但后来将专业知识转让给当地合作伙伴，以实现独立运营。
 
-这项立法还将允许美国国务院拒绝向那些已经对美国实施间谍活动或知识产权盗窃的个人发放签证。
+该公司表示，该系统由12个容器组成，将来可以轻松扩展。在疟疾、癌症或结核病等其他疾病的新药物出现时，可以对其进行改装，以制造相应药物。
 
-信息来源： [**美议员提法案 禁中共高官送子女赴美学习**](https://www.epochtimes.com/gb/22/2/16/n13582372.htm)
+世界卫生组织负责人Tedros Adhanom Ghebreyesus秘书长欢迎BioNTech增加非洲大陆疫苗生产的计划。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+去年，世卫组织采取了不寻常的步骤，从根本上复制了美国现代公司制作的基于mRNA的新冠病毒疫苗。
+
+尽管努力通过国际捐助机制向非洲提供数百万剂新冠病毒疫苗，但非洲大陆只有约11%的人口接种了疫苗，而全球平均水平约为50%。在新冠疫苗副作用如此明显的情况下，这未必是个好消息。
+
+参考新闻：[BioNTech计划在非洲建造模块化疫苗工厂](https://www.newsmax.com/amp/finance/streettalk/virus-outbreak-biontech-africa/2022/02/16/id/1057074/)
+
+*发布**：**Mttfly*
+
+**更****多资讯****，****请关注****：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
