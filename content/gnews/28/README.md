@@ -2,44 +2,64 @@
 ---
 
 
-## 文贵先生盖特精要2022/02/17
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2022520/)
+## 魁北克省记者“自爆”收到纽伦堡审判的照片
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2022554/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1676.png)[盖特直播链接](https://gettr.com/post/pv3wdr2e0a)
+2022-02-17
 
-七哥昨天正式宣布了个人破产，不仅没有任何心理上的不开心，甚至感觉更轻松了。喜币这两天的场外交易额和KYC数量都有了新的突破。
+编译及评论：16626
+![](https://assets.gnews.org/wp-content/uploads/2022/02/5KBOUQI9HJ2TH2BY09.png)图片来源：截屏于[https://static-alc-proxy-cover.akamaized.net/721515/688×250/0/0.jpg](https://static-alc-proxy-cover.akamaized.net/721515/688x250/0/0.jpg)
+#### 他给我发了一张纽伦堡审判的照片，（并）警告轮到我了。
 
-香港不仅疫情告急，之前最好的医院系统崩溃了，最优秀的警察成了黑警，原本全世界投资最安全的地方，现在成了最危险的地方，原来一个各民族种族汇聚的地方，现在却被共产党一家霸占了，如果还让共产党存在，天诛地灭！
+加拿大魁北克省的蒙特利尔日报（伊曼纽尔 拉特拉维斯，Emmanuelle Latraverse，2022 年 2 月 16 日）发表一篇题为《给我的一封蓄意挑衅的信》的文章报道，一位署名为安东尼奥斯·萨拉利利斯（Antonios Sarailis）的人，发给加拿大魁北克省的蒙特利尔日报记者，伊曼纽尔 拉特拉维斯，Emmanuelle Latraverse，一张纽伦堡审判处决的照片，并警告下一个就轮到这名记者了。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/6MM@@1DC7YCPV@GQAL_KI.png)图片来源：截屏于[https://www.journaldemontreal.com/2022/02/16/lettre-a-mes-trolls](https://www.journaldemontreal.com/2022/02/16/lettre-a-mes-trolls)       ，这位加拿大魁北克省的蒙特利尔日报记者，伊曼纽尔 拉特拉维斯，Emmanuelle Latraverse，的肖像照片。
+#### 一张纽伦堡审判的照片
 
-哪个官员再去援藏、去新疆，哪个家就会遭到报应，老天都在看着呢，不是不报，只是时候未到。共产党假蒙骗黑，害人太深，这一个组织所造的孽，要全中国人来买单。
+加拿大魁北克省的蒙特利尔日报记者，伊曼纽尔 拉特拉维斯，Emmanuelle Latraverse，的文章开篇的三行文字是：
 
-关于HPAY，在日本的一些战友很聪明，一声不吭闷头干事，推广得非常成功，找了很多有关食品链的店家加入了喜支付系统；还有很多时装和家具的公司，甚至某些采矿业也都接受了喜支付系统，喜支付能帮助这些商家省下大量的运营成本（65%）。
+致：安东尼奥斯·萨拉利利斯（Antonios Sarailis），您给我发了一张纽伦堡审判的照片，（并）警告轮到我了）。
 
-我们就是要用喜币和喜支付去拯救那些被奴役，被隔在一堵墙又一堵墙里面的同胞们，甚至他们自己已经被迫放弃抵抗。Hpay会大量解放生产力，把束缚人们的一堵堵墙全部打碎，财富是建立人性和人权的基础，财富自由才可以达到人格独立，人格独立后才有了人性人权。一般人用钱只会买些粮食 衣服和基本的生活用品，但真正钱的用途应该远远超越这个层次，应该学会用钱生钱，用钱获得更大的财富，钱可以让人去旅行，去学习，读书远行，增长对这个世界的见识和体验，丰富人生，遇见美好。走出你的家门（走出武夷山、大别山、昆仑山），走出你的舒适圈，不要只知道吃喝拉撒睡，跳出那些封堵你的高墙壁垒，永不为奴，这才是真正的人生财富。
+致：所有那些称我为纳粹，妓女，…，该死的荡妇的人。
 
-但是银行都被共产党控制，没有人的私有财产是安全的，就像现在加拿大政府也耍流氓，把人家参与抗议的卡车司机账户都关了，一点点辛苦劳动所得居然变成了政府威胁民众的工具，还有各种苛捐杂税，简直就是敲诈勒索，天下岂有此理。
+致：所有那些侮辱我的同事的人，….。
 
-悲剧的是中共政府是全世界政府花老百姓钱的总和，中国老百姓还无知，还真以为自己是猪狗，七哥就不信这个邪…
+#### 这就是我谋生的方式
 
-七哥宣布个人破产后倍感轻松。战友们需要越来越富有，也都要尝尝富有的滋味。
+#### 我的老板付钱让我花上好几个小时…
 
-*听写：阿甘*
+#### 我是一名政治分析家
 
-*校对：小雨*
+加拿大魁北克省的蒙特利尔日报记者，伊曼纽尔 拉特拉维斯，Emmanuelle Latraverse，的文章结尾的几行文字是：
 
-* * *
+对不起，这就是我谋生的方式。这对你（读者）来说可能听起来很疯狂（像是我头脑有问题），但我的老板付钱让我花上好几个小时，聆听新闻发布会，阅读复杂的报告文章，做比较研究，区分真假，思考再思考。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+在生活中，有些人是生物学家，护理员，牙科卫生员，教师，卡车司机或收银员。我是一名记者，确切地说是一名政治分析家。而且，就像他们一样，我尽我所能。
+
+这位加拿大魁北克省的蒙特利尔日报记者，伊曼纽尔 拉特拉维斯，Emmanuelle Latraverse，曾经发表下面的文章：
+
+#### 卫生措施的反对者是“少数人”
+
+加拿大魁北克省的蒙特利尔日报（伊曼纽尔 拉特拉维斯，Emmanuelle Latraverse， 蒙特利尔日报，2022 年 1 月 4 日，[https://www.journaldemontreal.com/2022/01/04/la-dictature-de-la-minorite](https://www.journaldemontreal.com/2022/01/04/la-dictature-de-la-minorite) ）发表一篇题为《“少数人”的独裁统治》的文章报道，自大流行开始以来，卫生措施的反对者是“少数人”（仅占11%），正是因为他们（的“少数人”的“独裁统治”），让89%的（大多数）人必须（接受）实施宵禁。
+
+#### 工会对疫苗接种的沉默（不表态支持）是放弃他们（应有）的责任
+
+加拿大魁北克省的蒙特利尔日报（伊曼纽尔 拉特拉维斯，Emmanuelle Latraverse， 蒙特利尔日报，2021 年 12 月 21 日，[https://www.journaldemontreal.com/2021/12/21/a-quand-la-vaccination-obligatoire](https://www.journaldemontreal.com/2021/12/21/a-quand-la-vaccination-obligatoire)  ）发表一篇题为《强制接种疫苗：我们还在等什么？》的文章指出，政府要求我们，作为公民，应该以知情和负责任的方式对待Omicron病毒。文章还指责工会对疫苗接种的沉默（不表态支持）是放弃他们（应有）的责任。
+
+#### 反对政府施加暴力于人民，纽伦堡审判的时刻快到了
+
+我们谴责并反对暴力示威，更反对政府施加暴力于人民。那些“老板付钱让我…”，颠倒黑白，替邪恶势力站台的媒体同样逃脱不了即将到来的纽伦堡审判。
+
+参考资料：
+
+1. [Legault rejette la Loi sur les mesures d’urgence](https://www.tvanouvelles.ca/2022/02/14/legault-rejette-la-loi-sur-les-mesures-durgence)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+编辑：LILY
+发布：肥鯮
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

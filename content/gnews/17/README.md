@@ -2,28 +2,40 @@
 ---
 
 
-## 岸田首相与普京电话会谈，表达对入侵乌克兰的担忧
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2022680/)
+## 有声|警察和抗议者同样渴望人权,自由
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2022686/)
 
-撰稿：东京樱花团/向海
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-32.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fimg.republicworld.com%2Frepublic-prod%2Fstories%2Fpromolarge%2Fxhdpi%2Fldoq2nw69ow3nsje_1645091947.jpeg&amp;imgrefurl=https%3A%2F%2Fwww.republicworld.com%2Fworld-news%2Frussia-ukraine-crisis%2Fjapans-pm-fum)
-日本首相岸田文雄2月17日在与俄罗斯总统普京通电话时表达了对乌克兰局势的担忧。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+特鲁多宣布:国家紧急令之后。包括安大略省,魁北克省在内的省马上宣布:取消疫苗护照,逐步放开政策。但是这帮政客说:与自由卡车无关而是基于科学。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/687-0-1.jpg)
+死要面子的元耻政客不承认取消疫苗护照是因为卡车司机的和平抗争让他们害怕了。
 
-据 NHK 报道，岸田首相在当天晚上 9 点 30 分左右与普京总统通电话时表示，“我正在密切关注事态发展。”
+暴君特鲁多想用国家紧急令吓退卡车司机彻底失败。
 
-针对岸田首相在电话谈判中不能单方面试图以武力改变现状，并敦促通过外交努力解决问题，普京总统就乌克兰局势发表了背景和立场。
+在反对疫苗暴政。争取人权,自由的问题上连恐怖分子都不配合特鲁多政府。和平抗议是合法的。特鲁多找不到镇压的理由。警察也是人也渴望人权。自由。以他们与抗议者在国歌中互相拥抱这是信仰的力量。特鲁多将作为暴君载人史册这是他的遗产。
 
-在会后的记者会上，岸田首相表示，“如果我们允许（俄罗斯）以武力改变这一现象，这不仅会给欧洲，也会给亚洲和整个国际社会带来错误的信息。”他将继续和各国首脑进行外交努力。
+文贵先生早在香港反送中运动中就提倡香港抗我者使用卡车阻挡警察的阵压。这这倡议证明是非常有效的明智选择。
 
-当被问及在入侵乌克兰期间是否有任何关于制裁俄罗斯的辩论时，岸田首相只是说“我交换了意见”，但没有具体提及。
+文字版原文：[警察和抗议者同样渴望人权,自由](https://gnews.org/zh-hans/2021534/)
 
-另一方面，日经称如果俄罗斯入侵乌克兰，日本政府内部担心中国可能会加强在台湾和印度-太平洋地区的威胁行动。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-[信息来源](https://news.yahoo.co.jp/articles/8ef3ce2665fb10500e760420c854524759fa485c)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

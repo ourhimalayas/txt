@@ -2,143 +2,43 @@
 ---
 
 
-## 加拿大自由车队是非暴力抗议的“胜利”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2022514/)
+## 文贵先生盖特精要2022/02/17
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2022520/)
 
-[https://gtv.org/video/id=620e73682403672096ab73d5](https://gtv.org/video/id=620e73682403672096ab73d5)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1676.png)[盖特直播链接](https://gettr.com/post/pv3wdr2e0a)
 
-Stuart:
-Bringing Stephen Moore to join us now, economist Stephen Moore
-现在让斯蒂芬-摩尔加入我们，经济学家斯蒂芬-摩尔
+七哥昨天正式宣布了个人破产，不仅没有任何心理上的不开心，甚至感觉更轻松了。喜币这两天的场外交易额和KYC数量都有了新的突破。
 
-If there were an American truck convoy, would you support it?
-如果有美国卡车车队，你会支持吗？
+香港不仅疫情告急，之前最好的医院系统崩溃了，最优秀的警察成了黑警，原本全世界投资最安全的地方，现在成了最危险的地方，原来一个各民族种族汇聚的地方，现在却被共产党一家霸占了，如果还让共产党存在，天诛地灭！
 
-And I ask, because these convoys have got nothing,
-我问，因为这些车队一无所有，
+哪个官员再去援藏、去新疆，哪个家就会遭到报应，老天都在看着呢，不是不报，只是时候未到。共产党假蒙骗黑，害人太深，这一个组织所造的孽，要全中国人来买单。
 
-I mean this is about getting rid of the mandate for the jab.
-我的意思是这是关于摆脱疫苗强制令
+关于HPAY，在日本的一些战友很聪明，一声不吭闷头干事，推广得非常成功，找了很多有关食品链的店家加入了喜支付系统；还有很多时装和家具的公司，甚至某些采矿业也都接受了喜支付系统，喜支付能帮助这些商家省下大量的运营成本（65%）。
 
-And if we get one in America that could really complicate the supply chain again,
-如果我们在美国有卡车车队，真的会使供应链再次复杂化
+我们就是要用喜币和喜支付去拯救那些被奴役，被隔在一堵墙又一堵墙里面的同胞们，甚至他们自己已经被迫放弃抵抗。Hpay会大量解放生产力，把束缚人们的一堵堵墙全部打碎，财富是建立人性和人权的基础，财富自由才可以达到人格独立，人格独立后才有了人性人权。一般人用钱只会买些粮食 衣服和基本的生活用品，但真正钱的用途应该远远超越这个层次，应该学会用钱生钱，用钱获得更大的财富，钱可以让人去旅行，去学习，读书远行，增长对这个世界的见识和体验，丰富人生，遇见美好。走出你的家门（走出武夷山、大别山、昆仑山），走出你的舒适圈，不要只知道吃喝拉撒睡，跳出那些封堵你的高墙壁垒，永不为奴，这才是真正的人生财富。
 
-could lead to some inflation, so are you in favor of an America truck convoy?
-可能会导致一些通货膨胀，所以你赞成美国卡车车队吗？
+但是银行都被共产党控制，没有人的私有财产是安全的，就像现在加拿大政府也耍流氓，把人家参与抗议的卡车司机账户都关了，一点点辛苦劳动所得居然变成了政府威胁民众的工具，还有各种苛捐杂税，简直就是敲诈勒索，天下岂有此理。
 
-Stephen：
+悲剧的是中共政府是全世界政府花老百姓钱的总和，中国老百姓还无知，还真以为自己是猪狗，七哥就不信这个邪…
 
-Well, good morning Stuart, couple of points,
-早上好，斯图尔特，几个意义
+七哥宣布个人破产后倍感轻松。战友们需要越来越富有，也都要尝尝富有的滋味。
 
-number one, the Canadian protesters those truckers have won, they won,
-第一，那些卡车司机赢得的加拿大抗议者，他们赢了
+*听写：阿甘*
 
-they have made the point in an empathetic way.
-他们以让人同情的方式提出了这一点
+*校对：小雨*
 
-People see you know these pictures, it’s been misrepresented by the way, by the media.
-你知道，人们看到这些照片，它被媒体歪曲了
+* * *
 
-It has been almost exclusively peaceful, no question about it.
-它几乎完全是和平的，毫无疑问
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-These are people who have made an incredible point, not just to the Canadian government, to people around the world,
-这些人提出了令人难以置信的观点，不仅对加拿大政府，对世界各地的人们
 
-and you are right, you are starting to see this kind of protest now in some of European countries and New Zealand and others,
-你是对的，你现在开始在一些欧洲国家和新西兰和其他国家看到这种抗议，
+编辑：【英国伦敦喜庄园编辑部】
 
-so it has been a victory for non-violent protest,
-所以这是非暴力抗议的胜利，
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-and it’s probably time for…
-可能是时候……
 
-by the way I don’t think the protesters have the right to stop commerce and block bridges and things of that nature
-顺便说一句，我不认为抗议者有权停止商业并封锁桥梁和类似性质的东西
-
-so I think that the police acted correctly in cleaning the bridges,
-所以我认为警察清理桥梁的行为是正确的，
-
-so that commerce could commence
-这样商业才能持续
-
-and whether this should happen in the United States, you know, Stuart,
-以及这是否应该发生在美国，你知道，斯图尔特
-
-I actually think that what’s happening now in the US is a lot of these mandates and a lot of these mask requirements all over the country,
-实际上，我认为现在在美国发生的事情是很多这样的规定和全国各地的很多口罩要求
-
-even the democratic governors are getting rid of them now,
-即使是民主党的州长现在也正在摆脱它们，
-
-because the virus is in such rapid retreat,
-因为病毒正在迅速消退
-
-so hopefully I won’t need protest, because all of these mandates are going to go away in the next few weeks.
-所以希望我不需要抗议，因为所有这些强制令都将在接下来的几周内消失
-
-Stuart:
-
-Let me ask you about producer prices, we get the number tomorrow.
-让我问你关于生产者价格的问题，我们明天得到这个数字
-
-We are expecting a 9% annual inflation rate at the producer level.
-我们预计生产者层面的年通胀率为 9%
-
-If we get that 9%, does that mean higher consumer prices down the road?
-如果我们得到那 9%，这是否意味着未来的消费者价格会更高？
-
-Stephen:
-
-Well, by the way, one other quick thing about Canada, have you seen the latest Justin Trudeau approval ratings?
-好吧，顺便说一下，关于加拿大的另一件事，你看过贾斯汀·特鲁多最新的支持率吗？
-
-He’s as low as Joe Biden is in the United States, so again evidence these protests have really made a statement.
-他和乔·拜登在美国一样低，所以再次证明这些抗议活动确实起了作用
-
-Yeah, I think we’re going to see a high producer price index number
-是的，我认为我们将看到一个高生产者价格指数
-
-and of course that’s going to spread down to higher consumer prices,
-当然，这会蔓延到更高的消费者价格
-
-and there’s now word, as you’ve been reporting that the Fed may have some kind emergency rate increase,
-现在有消息，正如你一直在报道美联储可能会紧急加息
-
-I’m total in agreement with that,
-我完全同意这样做
-
-I only think they should have done that nine months ago,
-我只认为他们应该在九个月前这样做
-
-they are way behind the curve and fighting this inflation with that validations of it, we will see more validation behind the curve tomorrow.
-他们远远落后于曲线，并通过对它的验证来对抗这种通货膨胀，明天我们将在曲线后面看到更多的验证
-
-Stuart
-Lots of speculation about what the Fed will do when it will do it. Stephen Moore, thanks a lot for being with us. We will see you tomorrow
-很多人猜测美联储何时会采取行动。斯蒂芬-摩尔，非常感谢您与我们在一起。我们明天见
-
-**原视频链接:**[** **https://www.youtube.com/watch?v=AQ4jx17mcGI](https://www.youtube.com/watch?v=AQ4jx17mcGI)
-
-Date:02/15/2022
-原视频标题: Canada Freedom Convoy a ‘victory’ for non-violent protests
-加拿大自由车队是非暴力抗议的“胜利”
-原视频日期：2022/02/14
-**原视频链接: **https://www.youtube.com/watch?v=AQ4jx17mcGI
-任务编号：3760
-视频时间段 : 0:00-02:42
-
-英听校：洛杉矶盘古农场 – Raul
-翻译：洛杉矶盘古农场 – Raul
-翻译终校：洛杉矶盘古农场 – Mike Li
-审片：洛杉矶盘古农场 – 天涯行
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
