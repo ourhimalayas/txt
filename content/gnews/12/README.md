@@ -2,20 +2,26 @@
 ---
 
 
-## 有声|韩国單日确诊病例創歷史新高 首次突破9万例
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2025485/)
+## 阿联酋将为数字资产服务商发放联邦许可证
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2025510/)
 
-配音：香草山巡管部– 文凯琳
-![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9D%A1%E5%B9%85.png)
-2月16日，韩国中央检疫对策本部宣布，截至16日零时，韩国本土共新增了9万0443例确诊个案，较前一天增加了3万多例，首次突破9万例，全国累计超过155万人次确诊。
+作者：银河系农场 – 骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月17日，据相关媒体消息显示，阿联酋计划在2022年第一季度末为该国数字资产服务商发放联邦加密货币许可证。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/6-29.jpg)
+报道提及，这是阿联酋第一次以数字货币为重点在全国范围内实行的许可立法。目前，阿联酋证券和商品管理局正处于该立法程序出台的最后阶段。据悉，此次许可立法参考了巴黎的金融指导，以及英、美和新加坡等国家的数字货币政策。
 
-而患者的感染症状，在短时间内重症患者的比例呈上升趋势，连续三天在300人左右。 单日死亡人数增加39人，累计死亡7202人，病死率为0.46%。全国重症病床使用率为 26.9%。而全国接受在家治疗的患者人数共266,040人。
+报道也指出，阿联酋的数字货币许可证将由当地首席监管机构和中央银行共同监管。同时，数字资产服务商也可根据该法案制定本地的许可证指南。除此之外，阿联酋政府还准备建立和监管数字货币的采矿行业。
 
-文字版原文：[韩国單日确诊病例創歷史新高 首次突破9万例](https://gnews.org/zh-hans/2018364/)
+报道表示，国家数字货币立法将有助于阿联酋成为领先的数字货币友好司法管辖区。
 
-音频处理/发稿：Daxia
+参考链接：[UAE reportedly plans to issue federal crypto license for VASPs](https://cointelegraph.com/news/uae-reportedly-plans-to-issue-federal-crypto-license-for-vasps)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+
+总编: Irene木木
+编辑: 静言
+校正/发稿：Fei797
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -23,7 +29,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,26 +2,45 @@
 ---
 
 
-## 有声|日本麒麟退出中共软饮料市场
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2025571/)
+## 2/18/2022国际财经快讯：雷诺在扭亏为盈后加速偿还国家援助；挪威航空重组后扭亏为盈
+` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/2025641/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-33.png)
-2月16日，日本麒麟控股宣布退出与中共华润集团共同开发的软饮料业务。麒麟公司将以约1150亿日元的价格将其全部股份转让给一家中共投资基金。麒麟公司于2月14日刚刚宣布退出缅甸的啤酒业务，并将通过审查其海外业务促进对增长领域的投资。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-81.png)[图片来源](https://www.reuters.com/)
+**1.雷诺在扭亏为盈后加速偿还国家援助**
 
-文字版原文：[日本麒麟退出中共软饮料市场](https://gnews.org/zh-hans/2022377/)
+[这家法国汽车制造商周五表示，雷诺(RENA.PA)计划提前偿还其在冠状病毒大流行中获得的国家援助，此前该公司在2021年扭亏为盈，并在逆转时超出预期连续两年亏损。该集团已经偿还了40亿欧元（45.5亿美元）贷款中的10亿，以帮助其应对大流行的影响，并计划在2024年合同期限之前偿还其余部分。今年至少偿还20亿，最迟在2023年底前全额偿还。这家汽车制造商公布的集团净利润为8.88亿欧元（合10亿美元），超出了接受Refinitiv调查的分析师的预期，他们认为该数字为8.187亿欧元。](https://www.reuters.com/business/autos-transportation/renault-swings-back-profit-after-two-years-losses-2022-02-18/)
 
-音频处理/发稿：Daxia
+**2.爱马仕的产量上限抑制了增长**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+[爱马仕的销售增长在去年最后一个季度有所放缓，低于市场预期并导致其股价下跌多达7%，原因是自我施加的生产上限使该集团无法满足对其珍贵产品的需求。花旗在一份报告中表示：“爱马仕是最后公布的大型奢侈品股之一，这与LVMH、开云集团和历峰集团最近的业绩不太相符。”它补充说，投资者也可能对缺乏特别股息感到失望，这是一些人的预期。周五格林威治标准时间0920，爱马仕股价下跌5%，此前跌幅高达7%，为2016年9月以来最糟糕的一天，也是八个月以来的最低价。](https://www.reuters.com/business/retail-consumer/production-caps-limit-hermes-sales-growth-q4-2022-02-18/)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+**3.挪威航空重组后扭亏为盈**
+
+[挪威航空(NAS.OL)周五报告了2021年全年利润，扭转了上一年遭受的亏损，并表示预订趋势表明，由于COVID封锁限制解除，欧洲未来的旅行将更加繁忙。这家廉价航空公司去年的净利润从2020年的亏损230亿挪威克朗转为盈利18.8亿挪威克朗（2.114亿美元）。尽管Omicron疫情在2021年末影响了业务，但第四季度的收入从一年前的6.7亿克朗增长了近四倍至25.5亿克朗。挪威航空首席执行官Geir Karlsen在一份声明中表示：“我们期待在繁忙的春夏季节迎来更多乘客。”](https://www.reuters.com/business/aerospace-defense/norwegian-air-swings-full-year-profit-after-restructuring-2022-02-18/)
+
+**4.NatWest的收益飙升**
+
+[在该国经济复苏的背景下，英国银行NatWest(NWG.L)扭亏为盈，但表示价格上涨将使其更难削减管理费用，促使其降低成本削减目标。NatWest周五公布的2021年税前利润为40亿英镑（54.5亿美元），而2020年为亏损3.51亿英镑，不包括其被砍掉的爱尔兰业务。与欧洲同行一样，自COVID-19大流行初期以来，英国银行受益于消费者支出反弹、贷款违约率低于预期以及房地产市场活跃。改善的情况意味着NatWest可以释放13亿英镑的储备金来应对不良贷款。它还宣布了每股7.5便士的股息和7.5亿英镑的股票回购。](https://www.reuters.com/business/finance/uk-recovery-lifts-natwest-bumper-profit-2022-02-18/)
+
+**5.下一任美国航空安全主管将面临波音改革挑战**
+
+[在两起致命的737MAX坠机事故之后，美国联邦航空管理局(FAA)的下一任负责人将面临监督波音公司和国会授权的一系列改革的挑战。周三晚些时候，当美国联邦航空局宣布现年64岁的行政长官史蒂夫·迪克森(Steve Dickson)将于3月31日辞职时，这项工作开始了，大约是他五年任期的一半。国会和行业官员提到的潜在替代者包括前飞行员C. B. “Sully” Sullenberger和Lee Moak。现任美国国际民航组织(ICAO)理事会代表萨伦伯格(Sullenberger)于2009年成名，当时他在击中一群鹅后，将一架空客A320安全降落在纽约哈德逊河上——被称为“世界上的奇迹”。](https://www.oann.com/next-u-s-aviation-safety-chief-will-face-boeing-reform-challenges/)
+
+**6.股票期货跳涨黄金下滑**
+
+[在美国国务卿同意与俄罗斯外交部长会晤后，美国和欧洲股票期货周五反弹，亚洲股市的抛售压力有所缓解，这增加了解决乌克兰僵局的希望。消息传出后，标准普尔500期货ESc1上涨0.7%，纳斯达克期货NQc1上涨0.8%，而在早盘交易中，泛欧斯托克50期货上涨0.45%，富时期货FFIc1上涨0.4%。积极情绪遍及资产类别，日元和瑞士法郎等避险货币在亚洲交易中小幅回落，隔夜美元汇率攀升至两周高位，黄金下跌0.4%。美国国务院表示，美国国务卿布林肯已接受下周晚些时候与俄罗斯外长拉夫罗夫会面的邀请，前提是俄罗斯不入侵乌克兰。](https://www.oann.com/stocks-drop-as-investors-cut-risk-on-ukraine-tension/)
+
+**7.澳大利亚州为亚马逊承包商设定最低工资**
+
+[澳大利亚新南威尔士州下令亚马逊公司等自由送货司机的雇主支付最低费率，工会称赞这一决定使其成为世界上第一个强制零售商遵守此类法律的司法管辖区。该措施将于3月1日起分三年分阶段实施，要求在澳大利亚人口最多的州雇用拥有自己小型车辆的司机的公司每小时至少支付37.80澳元（27.20美元）。运输工人工会(TWU)表示，这使得亚马逊在澳大利亚的业务总部所在的州成为这家零售巨头必须依法向承包商支付工资的第一个地方。工会的全国秘书迈克尔凯恩说：“零工巨兽已引起注意：当工人们召集这些危险的底层喂食者并一起争取公平的一天工资时，就会发生这种情况。”](https://www.oann.com/australian-state-sets-minimum-pay-for-amazon-contractors-in-landmark-step/)
+
+**8.印度创纪录地购买美国豆油**
+
+[三位经销商告诉路透社，由于来自遭受旱灾的南美供应有限，印度贸易商已签订合同从美国进口创纪录的100,000吨豆油，而此时竞争对手棕榈油的价格正创下历史新高。来自美国的购买量增加预计将支撑美国豆油价格，今年已上涨近20%，接近十年来的最高水平，加剧了对食品通胀的担忧。他们说，世界上最大的食用油进口国传统上从阿根廷和巴西购买豆油，但这两个主要出口国的豆油产量下降迫使新德里转向美国。“印度买家已经购买了美国豆油船。价格很有吸引力，而南美的供应不足，”一家全球贸易公司的印度负责人表示，由于该公司的政策，他要求匿名。](https://www.oann.com/exclusive-india-makes-record-u-s-soyoil-purchases-as-drought-parches-south-america/)
+
+By【秘密翻译组-金融组】
+作者：小海星
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
