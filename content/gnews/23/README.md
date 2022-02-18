@@ -2,26 +2,22 @@
 ---
 
 
-## 德国政府表示，将分阶段解除防疫限制
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2022928/)
+## 美南达科他州众议院通过伊维菌素法案
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2022929/)
 
-作者：纽约香草山 – Naughty（文行）
+作者：纽约香草山 – 侠肝义胆
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-2月16日，德国总理萧兹在与地方领导人会谈后表示，鉴于感染率持续下降，德国将分三个阶段逐步解除防疫限制。
+周一，美国南达科他州众议院，以40-28票通过了HB 1267法案，将伊维菌素作为治疗中共病毒的药物。该法案规定，医生可以按照医疗标准 ，向患者开具伊维菌素。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8-25.jpg)
+多项研究表明，伊维菌素能有效治疗冠状病毒，减少中共病毒患者的疾病和死亡。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/9-16.jpg)
+该法案的提案人之一、共和党州议员塔菲·霍华德表示，该方案旨在为那些因担心职业处分、而不愿意为中共病毒病人开具伊维菌素的医生提供支持。
 
-第一阶段，无需检查疫苗护照，非必要性商家向所有人开放。但民众仍需佩戴防疫口罩。
-
-第二阶段，自3月4日起，顾客无需检查疫苗接种证明，仅需提供检测阴性结果，即可进入餐厅和饭店就餐。
-
-而针对社会、经济、文化等的防疫限制，将在3月20日前被取消。
-
-此外，瑞士和奥地利也表示加入撤销防疫限制的行列。
+据悉，该法案已进入南达科他州参议院进行审理。
 
 参考链接：
 
-- [Omicron高峰期已過 德國將分階段解除防疫限制](https://udn.com/news/story/121707/6104153?from=udn-catelistnews_ch2)
+- [South Dakota state House passes bill allowing doctors to prescribe ivermectin](https://www.lifesitenews.com/news/south-dakota-state-house-passes-bill-allowing-doctors-to-prescribe-ivermectin/)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
