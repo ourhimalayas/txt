@@ -2,8 +2,8 @@
 ---
 
 
-## 香港中共病毒形势失控
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2026808/)
+## 研究显示：TikTok可以绕过苹果和谷歌的隐私保护获取用户数据
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2026982/)
 
 作者：纽约香草山农场 – 四季
 
@@ -13,13 +13,15 @@
 
 
 
-据[布赖特巴特新闻网](https://www.breitbart.com/asia/2022/02/16/hong-kong-coronavirus-situation-out-of-control-under-chinese-rule/)2月16日报道，香港当地新闻媒体Coconuts Hong Kong周二称，香港目前正面临着最严重的中共病毒爆发，同时也受到政府当局中亲中共势力的日益统治。
+据[布莱特巴特新闻网](https://www.breitbart.com/tech/2022/02/16/study-chinas-tiktok-can-bypass-apple-and-google-privacy-protections-access-user-data/)2月16日报道，最近的两项研究显示，中共拥有的社交媒体TikTok可以绕过苹果和谷歌应用商店的安全保护措施，获得对用户数据的全面访问权限。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GettyImages-1238519467-640x480-1.jpg)Peter Parks/AFP Getty Images
+![](https://assets.gnews.org/wp-content/uploads/2022/02/China-computers-640x480-1.jpg)Dmitry Nogaev/Getty Images
 
-数以千计的感染者在家中等待被送入医院或其他隔离设施. 香港卫生当局2月14日检测到创纪录的中共冠状病毒新病例，有2071名新的感染者被确认，这是连续第四天出现四位数的病例。
+这些研究是由 “白帽子”网络安全专家分别于2020年11月和2021年1月完成的。
 
-香港政府周二表示，它计划通过将”几座”新的公共租赁房屋改建为隔离设施，来容纳该市数量激增的新冠状病毒患者。
+研究摘要表明，TikTok能够绕过苹果和谷歌应用商店的代码审计，并能够在用户不知情的情况下更改应用程序的行为、访问设备跟踪功能，使中共国公司和第三方能够访问完整的用户数据。
+
+网络安全公司Conquest Cyber表示，这远远超过了Facebook和Twitter等美国制造的应用程序对用户数据的访问权限。这些动态属性允许TikTok在应用程序可以看到的范围内全权访问您的设备。TikTok浏览器不仅可以访问从网络到设备的转换，而且还可以查询设备本身的内容。
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/2月.jpg)
 

@@ -2,30 +2,46 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年2月18日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2027141/)
+## 第204期 玫瑰看新闻
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2027353/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO-2.jpg)
+【回魂时刻】疫苗受害者专题新闻
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-17.png)
-文章仅代表作者本人观点，与Gnews无关
+1.Juliet Valdez：56 岁的菲律宾教师在第二次接种“疫苗”后12 周死亡
 
-视频参看：
-[2022.02.18早 《NFSC新闻》](https://gtv.org/video/id=620f9ee1b706176dd78c862a)
-[2022.02.18早 G|TV《新闻访谈》](https://gtv.org/video/id=620fa720b706176dd78c940b)
+2.菲律宾：26 岁的Gabad-Dizon 女士接种了一次辉瑞疫苗六个月后突然死亡
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+3.英国40 岁专业音乐家Matthew Dibble 接种疫苗后死亡
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-2.png)
+4.德国15 岁少女Cheyenne Braun 接种疫苗三周后死亡
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+5.BBC主持人Lisa Shaw接种疫苗后未满一月死亡
+
+
+
+
+
+
+
+**推出问题，敲出真相，爆料在路上！**
+
+**请关注和订阅我们的以下账号：**
+
+**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+
+**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+
+**玫瑰看新闻YOUTUBE账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**ROSE NEWS**
+
+**【玫瑰看新闻】推特账号**：
+
+**ROSE NEWS (@ROSENEWS4)A**
 
  
 

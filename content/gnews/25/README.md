@@ -2,32 +2,22 @@
 ---
 
 
-## 七哥谈三个最惨最危险的国家
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2027010/)
+## 安省自由车队捐款者的信息被非法泄露
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2027109/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+加拿大温哥华扬帆农场    平民正道
 
-2022-02-09直播摘录11：06：25
+据加拿大媒体【真北方】2月17日报道，安省一家面包店主因向“自由车队”捐款，而在社交媒体上和其营业场所中受到不明人员滋扰。
 
-最惨的，最危险的， 我认为三个国家。 俄罗斯， 就东欧国家排华会超出你想象。 还有个再一次会席卷印尼东南亚， 然后就是共产党给了无数个处女让人家睡觉的 非洲。 非洲是太危险了， 太危险了。
-非洲、 东南亚、 东欧、 俄罗斯。 七哥在这个问题上一点信心都没有 。我们努力吧。 谢谢。
+据悉，一名男子日前进入该商店并威胁正在工作的女员工，称向抗议车队捐赠1000元是支持“叛徒”。此后店主还收到了内容为“白人至上种族主义者”电子邮件的侮辱和谩骂。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+报道称，已为“自由车队”募集到了数百万美元的筹款网页平台，近日被黑客非法入侵并导致大量捐款者个人信息被泄露。随后，有大量匿名的推特账户立即开始对这些支持者进行攻击。而传统媒体和自由党知名人士则在网上分享这些非法获取的信息。
 
-**关注我们**
+评论指出：当权者为维护其统治地位而不择手段地打压民意、制造分裂，挑起争端之举，已不再是独裁中共的专利。特鲁多假借[紧急状态法]剥夺和侵害加拿大人自由的罪行必将遭到强烈反抗和彻底追责。
 
-Discord 账号
+* * *
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+编辑： 平民正道    发布：平民正道
 
  
 

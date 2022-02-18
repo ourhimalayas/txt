@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/18/2022 11:49 PM (UTC)`
+
+2/18/2022 Miles Guo: The Americans told the CCP that they would not completely decouple with it only if the US is allowed to investigate the origins of the virus. The CCP dares not to release the virus again. Han Zheng is not in a good shape now, and he is scared as soon as Xi Jinping is mentioned. We hope the CCP will not end too soon. The New Federal State of China needs more time to get ready to influence the new democratically elected government of China.<br/><br/>2/18/2022 文贵直播：美国告诉中共，不想脱钩就得让美国搞病毒溯源；中共不敢再放毒了；韩正状态不佳，一提习就害怕；不希望中共太快倒台，新中联邦需要更多时间去准备从而能够影响新的民选政府<br/>
+![img](https://media.gettr.com/group15/getter/2022/02/18/23/f66a6dd9-330c-7f9d-4b49-d690c4d625a4/out.jpg)
+
+---
+
+`@miles 2/18/2022 11:45 PM (UTC)`
+
+2/18/2022 Miles Guo: The COVID vaccine-induced immune deficiency is the root cause of the high incidence of various diseases and deaths in places such as Hong Kong, Singapore, and Israel. The COVID vaccine disaster is yet to come, and what will be the situation when it begins? Please make sure to hold out until this May, my fellow fighters!<br/><br/>2/18/2022 文贵直播：疫苗导致的免疫力低下是香港、新加坡和以色列等地出现各种病症频发和死亡的根源；疫苗灾难尚未到来，而灾难开始的时候会是什么情况？请战友们务必坚持到5月！<br/>
+![img](https://media.gettr.com/group7/getter/2022/02/18/23/ed04a909-7dff-5eb5-44bb-67e5987a31ff/out.jpg)
+
+---
+
 `@miles 2/18/2022 10:04 PM (UTC)`
 
 2/18/2022 Miles Guo: Singapore worships both the UK and the US and follows the CCP as well, but its vaccine mandate will soon be stopped. The CCP has taken complete control of Singapore and transferred most of its money hidden in the US to Singapore. The business of financial note in Singapore is ranked NO.1 in the world. Singapore is no longer suitable for a long-term stay, and the Singaporean Chinese will be the victims of its internal struggles.<br/><br/>2/18/2022 文贵直播：新加坡既崇拜英美又跟着中共，但其疫苗强制令很快会停；中共已彻底控制新加坡并将大多数藏在美国的钱转过去了；新加坡票据业务排全球第一；新加坡不宜久留，华人将是其内部斗争的牺牲品<br/>
@@ -140,20 +154,6 @@
 
 2月16号：尊敬的战友们好，这是瑞秋和罗伊在直播中提到的安眠药……就是不会上瘾，不会头疼．非常非常健康的，不会让你失去记忆的安眠药，希望大家妥善使用．遵从医嘱！
 ![img](https://media.gettr.com/group10/getter/2022/02/17/02/1197958b-bcb6-e0ed-37bc-85af3dd567a9/5d9693856682ab0ca335940ed07ff24c.jpg)
-
----
-
-`@miles 2/17/2022 1:39 AM (UTC)`
-
-2/16/2022 Miles Guo: The Winter Olympics has turned into a “Hibernation Games” and will end with the downfall of the CCP. Truckers, women, and senior people have all come out to protest in the streets, creating a glorious moment for humanity. Big Pharmas like Pfizer along with Facebook and Twitter will surely go bankrupt, and Emmanuel Macron is bound to be sent to the gallows.<br/><br/>2/16/2022 文贵直播：冬奥会已成“冬眠会”且一定会以中共的灭亡为结束；卡车司机、妇孺老人齐上街，创造了人类辉煌；辉瑞等医药公司和Facebook、Twitter一定会破产，马克龙一定会走上绞刑架<br/>
-![img](https://media.gettr.com/group46/getter/2022/02/17/01/6eaec051-ee26-c81f-81f6-62dbfd8d18d9/out.jpg)
-
----
-
-`@miles 2/17/2022 1:19 AM (UTC)`
-
-2/16/2022  STATEMENT OF MILES GUO REGARDING BANKRUPTCY FILING<br/><br/>2022年2月16日 郭文贵关于个人破产申请的声明
-![img](https://media.gettr.com/group31/getter/2022/02/17/01/7a683c3a-1f35-4486-a24e-6dff201c7515/out.jpg)
 
 ---
 
