@@ -2,43 +2,77 @@
 ---
 
 
-## 多伦多乘客被评为全国最讨厌的Uber乘客
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2022256/)
+## 灭共者之郭氏情报站（26）2022/02/16 文贵大直播
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/2022373/)
 
-作者：Jack Landau
-翻译：KK
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-188.png)
-如果你曾经因为在多伦多乘坐Uber，但对司机的服务不满意而给他不完美的评价。要知道你也可能被多伦多的司机们评价。
+设计者：纽约香草山设计部 — 喜马拉雅大喵儿，天马星空J
 
-Uber乘客每次使用后也要被从一到五星给与评级，事实证明，多伦多的乘客是全加拿大最难以忍受的。
 
-Uber加拿大公司发布了一份乘客评价最好和最差的五个城市的名单，多伦多就像另外一个纽约，粗鲁人的名声再次抬头，因为多伦多的排名中接近垫底。
 
-多伦多的表现很差，只有一个城市的排在多伦多之后——渥太华的排名最低，而蒙特利尔、伦敦和汉密尔顿的Uber乘客排名都在多伦多之上。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-不过，你会觉得很惊讶吗？
 
-排名前五位的最佳乘客都是一些较小的城市，萨斯卡通（Saskatoon, SK）现在可以夸耀自己是全加拿大拥有最好的Uber乘客的城市，其次是红鹿（Red Deer, AB）、阿伯茨福德（Abbotsford, BC）、布兰特福德（Brantford, ON）和莱斯布里奇（Lethbridge, AB）。
 
-不过说实话，其中一些是基本的礼貌，你真的不需要从一个公司的声明中学习。
 
-乘客被讨厌的事情包括：比如当司机到达时，你真的在路边等待；乘车时不要在陌生人的车里留下一个烂摊子；尊重司机；以及不要摔车门。
 
-来源：https://www.blogto.com/tech/2022/02/toronto-uber-passengers-ranked-worst-canada/
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-**关注我们**
 
-Discord 账号
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+**灭共者-郭氏情报站**
+**2022年2月16日 文贵大直播**
 
-Gettr 账号
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8a5396ceef30aa32.png)
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+1、七哥重大宣布：
+1）短期离开美国不可能！
+2）喜联储马上推出贷款和抵押，会有重大利好公告！
+3）隆重宣布，习近平刚刚做了2个手术，脾和肾，习太阳光芒暗淡，对台湾行动暂缓，对台湾大利好。
+
+2、很快喜币喜联储将推出新的HPAY政策，马上推出H贷款和H抵押，然后喜联储可能会有重大利好的新公告。七哥个人破产，但是你们越来越有钱，巨大的，很快的时间，不会超过一个月。
+
+3、未来战友用HDO投GTV，HCN下跌是非常正常的。场外交易，场外抵押是不可阻挡。不管你现在多少钱卖HCN，一定会后悔。记住GTV永远是王，拥有5%的喜联储-1000亿的HCN的5%。
+
+4、喜币是有数量限制的，越老越值钱。美国合法的流通Hpay，比在美国还安全的财富港湾就是喜币。Gettr-Pay，躺平币，都是完全独立的。喜联储很快可以交易各种数字货币，包括比特币。记住喜币是数字币，不是虚拟币，虚拟币无和数字币价值衡量的。
+
+5、重要消息！拜登总统明确表态，美国不撤离中共国的前提，必须病毒溯源。拜登绝对是政治高手，“老奸巨猾”，玩死中共。全世界的疫苗问题，都会推责中共。
+
+6、为什么普京宣布突然撤兵？普京如果打乌克兰，习一定会打台湾。英国，法国，巴西等国强硬反应，普京知道如果开打，面临巨大国际压力；不打就把习近平玩了。此时此刻的习近平玩真的，打台湾。
+
+7、文贵最早向世界警示疫苗灾难，做空医药公司，听懂的人会赚多少钱？辉瑞，Mordena，Facebook，一定会破产。人类一半的人打了疫苗，深陷生死不明的处境，一定不会放过共产党和邪恶势力。
+
+8、中共的
+1）内部经济危机；2）对外影响力；3）病毒疫苗灾难；4）内部政治矛盾；5）对世界蓝金黄伤害的危机，回天乏术，共产党一定完了。
+
+**上一期：**
+
+**[灭共者之郭氏情报站（25）2022/02/13 文贵大直播 – GNEWS](https://gnews.org/zh-hans/2006086/)**
+
+
+
+**编辑/发稿：小鹿**
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-124.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
 
  
 

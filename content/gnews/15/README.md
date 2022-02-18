@@ -2,40 +2,27 @@
 ---
 
 
-## 伊隆马斯克将加拿大暴君贾斯汀特鲁多比作希特勒
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2022394/)
+## 有声|北约秘书长批中共与俄罗斯领导人操弄小国未来
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2022442/)
 
-**编译: 真北007**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/09550686-76AE-46A8-9634-7855C39EA8F5.jpeg)图片来源：https://www.thegatewaypundit.com
-来自GATEWAY PUNDIT二月十七日的新闻报道：
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9D%A1%E5%B9%85.png)
+北大西洋公约组织（NATO）16日将举行国防部长会议，15日秘书长史托腾博格在回答记者提问时表示，中共及俄罗斯不认同西方的民主价值观，不喜欢遵守国际规则秩序，并想要剥夺一个主权民主国家选择自己未来的权力。
 
-在周一宣布紧急法案后，特鲁多政府正在追踪迫害自由抗议者及其支持者，并冻结他们的银行账户。
+對乌克兰危机一事，史托腾博格提到中共和俄罗斯在过去几年关系來往越来越密切，并在印度洋及不同海域进行联合军事演习的行為，他认为中俄领导人想要由大国来决定小国可以做什么。然而，相较于中共与俄罗斯，西方国家的人民则生活在法治秩序的世界中，这是中俄领导人与西方价值观的最大差异。
 
-加拿大人因为向反对专制政府的抗议者捐款仅 100 美元而失去了政府工作。
+文字版原文：[北约秘书长批中共与俄罗斯领导人操弄小国未来](https://gnews.org/zh-hans/2018362/)
+音频处理/发稿：Daxia
 
-国营媒体吹嘘使用黑客数据来曝光、羞辱和惩罚向支持加拿大自由卡车司机的 GiveSendGo 活动捐款的加拿大人。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-与此同时，贾斯汀·特鲁多拒绝与抗议者会面或交谈，抗议已经持续了三周。
-
-周四，埃隆 马斯克在推特上发布了一张希特勒的照片，上面标有”停止将他与贾斯汀特鲁多进行比较”。
-
-这具有讽刺意味，特鲁多指责大规模抗议运动是支持纳粹的，因为在全国数十场集会中的仅有一次，一名神秘活动人士手持纳粹旗帜出现。
-
-**原文链接：**
-
-[Elon Musk Compares Canadian Tyrant Justin Trudeau to Hitler](https://www.thegatewaypundit.com/2022/02/elon-musk-compares-justin-justin-trudeau-hitler/)
-
-**编辑：LILY**
-
-**发布：歪桑**
-
-20220217
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3-4.jpg)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

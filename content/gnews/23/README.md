@@ -2,26 +2,40 @@
 ---
 
 
-## 伊隆 · 马斯克将特鲁多与希特勒相提并论而引发愤怒
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2022272/)
+## 日本麒麟退出中共软饮料市场
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2022377/)
 
-#### 编译：Cran
+作者：银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-33.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/440C6CA7-B3D6-4D5B-A2C5-223EB74850C8.jpeg)（图片来自路透社）
+2月16日，日本麒麟控股宣布退出与中共华润集团共同开发的软饮料业务。麒麟公司将以约1150亿日元的价格将其全部股份转让给一家中共投资基金。麒麟公司于2月14日刚刚宣布退出缅甸的啤酒业务，并将通过审查其海外业务促进对增长领域的投资。
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/16451360011.png)Image Source：美国之音
-据Rebel News2月17日报道，世界首富，伊隆 · 马斯克（Elon Mask）前不久曾在多条推文中表示过支持卡车司机领导的自由车队抗议活动。
+目前该转让的具体日期尚未决定。麒麟预计在该销售中获得约390亿日元的收益。但麒麟表示会继续与中共华润集团在知识产权的使用和许可方面进行合作。
 
-因为特斯拉创始人马斯克将加拿大总理贾斯汀 · 特鲁多（Justin Trudeau) 与阿道夫·希特勒 (Adolf Hilter) 相提并论，使他重新回到了聚光灯下。
+据悉该日中合资企业名为华润麒麟饮料，麒麟持有其40%的股份，主要产品是矿泉水，并代理销售日本麒麟饮料旗下产品下午茶和FIRE咖啡。该公司历史长达11年。
 
-马斯克在回应 Coindesk 网站的一篇文章时发布了一条推文。在引用的一张图片标题为 “我有预算” 中， 将特鲁多和希特勒进行了讽刺性的比较。 希特勒： “不要把我和贾斯汀 · 特鲁多相提并论”。据 Rebel News 报道，马斯克在推特上发布了 “加拿大卡车司机为统治者”，以表示对卡车司机的支持。有7000多万粉丝分享了这条推文。
 
-马斯克的言论并没有受到自由党支持者的欢迎，他们指责他把希特勒与特鲁多相提并论，淡化了大屠杀的恐怖。然而那些指责马斯克轻描淡写希特勒暴行的人，在为特鲁多指责卡车司机抗议而援引纳粹而辩论时，却很快就为自己找到了借口。特鲁多曾谴责和平抗议者是白人至上主义者，还用了一系列其他词语将他们等同于纳粹。加拿大媒体和左翼政治人物也持有同样的观点。
 
-周三，特鲁多在回应反对他立场的犹太保守党议员梅丽莎 · 兰特曼（Melissa Lantsman）时说: “保守党成员可以和挥舞纳粹党徽的人站在一起，他们可以和挥舞南方联盟旗帜的人站在一起”。他还称，他的党与人民站在一起，他要让他们找回自己的工作和生活。这些非法抗议必须停止。
+参考链接：
 
-伊隆 · 马斯克目前居住在美国，他的母亲是加拿大人，父亲是南非人，他十几岁时就住在加拿大，后来进入安大略省金斯顿的皇后大学学习。后来他搬到美国，在宾夕法尼亚大学学习。
+[https://www.sankei.com/article/20220216-AB5VU6EZAJPPLJA5MI5RHL3FIM/](https://www.sankei.com/article/20220216-AB5VU6EZAJPPLJA5MI5RHL3FIM/)
 
-[Source](https://www.rebelnews.com/elon_musk_draws_ire_for_comparing_trudeau_to_hitler)
+编辑/校对/发稿：有莫举名
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-196.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-33.png)
+
 
  
 
