@@ -2,25 +2,47 @@
 ---
 
 
-## 渥太华警方将驱离和逮捕自由车队抗议者
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2026030/)
+## 七哥说中共是黑社会组织的帮凶
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2026150/)
 
-采编：UCool优酷               编译撰稿：自由法兰西
+文编：Hima
+听写：叮叮
+视频：七哥
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Article-Photo-35-.jpg)图片来源：thepostmillennial
+2022-02-09直播摘录08:08:42
 
+用黑社会组织来代替，我看上你就可以绑架你，但最恐怖的是，帮凶是谁？是中国共产党！
+他说：那我就纳闷了，为什么不来北京绑呢？
+外国人的想法很天真，我说啊，如果来北京绑，绑完就枪毙了，而且绑完马上找着了。
+又有人问，那为什么农村绑了就几十年找不着呢？
+我说：中国共产党想干的事，没有干不成的，但不想干的事，没有一件干成的。
+就这么简单，但外国人搞不明白。
+所以说，在中国这个造假，假雪花、假雪道、假新闻，被绑架的八个孩子的故事。
+还有一个就是，为什么中国有那么多的暴力犯罪、性犯罪，加上彭帅被退休了。
+彭帅那天到现场的时候，我们战友看到，前后跟了七台车。
+然后呢？最后还是让法国人，法国记者爆料，彭帅没事，彭帅退休了。
+全世界只有我郭文贵一个人说过，他一定会被退休，他一定会被消失，你觉得谁能像爆料革命，蒙那么多次都蒙对的？
+用什么话形容共产党，咱们中国人现在的生存现状都不为过，每天就是吃了睡睡了吃。
+早上起床可能不刷牙，但一定吃，吃完就扣着牙，挺着肚子送孩子，自己上班。
+中午再吃，也可能带盒饭，可能吃餐厅，可能喝，反正就是吃。
+下午有机会睡觉，没机会睡人家，然后继续干活，晚上呢，吃一顿也好，吃两顿也好，吃完睡觉。
+永远都是这样。
+然后，有病的话，看不起，治不起，一病致贫，拖垮一家人，拖死自己，然后还葬不起，埋不起，只能拉几八倒。
 
-据加拿大媒体[后千禧年]2月16日报道，渥太华警方当天发布公告，要求自由车队反疫苗护照运动的抗议者们立即离开市中心国会山前的集结现场，否则将被强行逮捕。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-报道指出，该公告是在渥太华前警察局长辞职一天后发布的，并声称：根据联邦《紧急状态法》，任何人在渥太华参加示威活动都属违法。警方将扣押抗议者车辆和吊销驾照，违法者还将面临罚款和牢狱之灾。尽管如此，聚集在渥太华的和平抗议民众仍誓言抗争到底，直到重获自由的权力为止。
+**关注我们**
 
-评论指出，加拿大反疫苗护照的自由车队抗议运动自其开展以来，如春风野火般燃遍全球。不仅得到了大多数民众的参与和支持，还迅速引起了美、澳、法、荷等国同行的响应。其声势之浩大，影响之广泛以至于特鲁多在惊恐无措之余，不得不强施[紧急状态法]，而再次成为加拿大的耻辱。
+Discord 账号
 
-校对编辑：硫酸羟氯喹64
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-发稿：文明(添草灭共)
+Gettr 账号
 
-[新闻来源](https://thepostmillennial.com/ottawa-police-to-freedom-protestors-leave-the-area-now-or-face-arrest?utm_campaign=64483)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

@@ -2,47 +2,22 @@
 ---
 
 
-## 七哥说中共是黑社会组织的帮凶
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2026150/)
+## 欧盟另一疯狂举动：五千万疫苗过期，即将扔掉
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2026334/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+#### 翻译               意大利达芬奇农场          小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-18-alle-17.42.56.png)图片来源：il paragone.it
+欧盟购入的五千五百万支疫苗即将过期， 在2022年2月底将被扔掉。这是一个巨大的浪费。
 
-2022-02-09直播摘录08:08:42
+考虑到欧盟今年年初赠给非洲三千多万支疫苗，将近一半将被扔掉。乐施会(Oxfam)和紧急医疗救护(Emergency)目前正在揭露这一现象，他们呼吁布鲁塞尔对非洲大陆表现出更大的慷慨。
 
-用黑社会组织来代替，我看上你就可以绑架你，但最恐怖的是，帮凶是谁？是中国共产党！
-他说：那我就纳闷了，为什么不来北京绑呢？
-外国人的想法很天真，我说啊，如果来北京绑，绑完就枪毙了，而且绑完马上找着了。
-又有人问，那为什么农村绑了就几十年找不着呢？
-我说：中国共产党想干的事，没有干不成的，但不想干的事，没有一件干成的。
-就这么简单，但外国人搞不明白。
-所以说，在中国这个造假，假雪花、假雪道、假新闻，被绑架的八个孩子的故事。
-还有一个就是，为什么中国有那么多的暴力犯罪、性犯罪，加上彭帅被退休了。
-彭帅那天到现场的时候，我们战友看到，前后跟了七台车。
-然后呢？最后还是让法国人，法国记者爆料，彭帅没事，彭帅退休了。
-全世界只有我郭文贵一个人说过，他一定会被退休，他一定会被消失，你觉得谁能像爆料革命，蒙那么多次都蒙对的？
-用什么话形容共产党，咱们中国人现在的生存现状都不为过，每天就是吃了睡睡了吃。
-早上起床可能不刷牙，但一定吃，吃完就扣着牙，挺着肚子送孩子，自己上班。
-中午再吃，也可能带盒饭，可能吃餐厅，可能喝，反正就是吃。
-下午有机会睡觉，没机会睡人家，然后继续干活，晚上呢，吃一顿也好，吃两顿也好，吃完睡觉。
-永远都是这样。
-然后，有病的话，看不起，治不起，一病致贫，拖垮一家人，拖死自己，然后还葬不起，埋不起，只能拉几八倒。
+在这两个非政府组织的要求中，还有一项关于暂停疫苗专利以允许本地生产的协议。从这个意义上说，意大利政府也要求在这方面采取明确的立场。正如一直所解释的那样，欧盟是世界最大的疫苗出口国。到目前为止， 只有8%的疫苗是发往非洲的。非洲有11%的人口接受了前两剂疫苗， 而根据一致估计，自疫情爆发以来， 非洲大陆至少一年有250,000人死于该病毒， 差不多一天七千人。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+辉瑞在疫苗生产方面的德国合作伙伴BioNTech也仅向非洲国家出售了1%的出口产品。乐施会(Oxfam)意大利全球健康高级顾问萨拉•阿尔比亚尼( Sara Albiani )表示：“尽管说与非洲有特殊关系，但欧盟将欧洲生产的剂量出售给能够支付高昂价格的富裕国家， 这使得只有制药公司的利润优先。” 萨拉•阿尔比亚尼和紧急医疗救护(Emergency)总裁罗塞拉•米奇奥还宣称：“ 欧盟继续将制药公司的利益置于拯救非洲生命的目标之前。世界卫生组织推动的Covax倡议旨在到2021年为贫困国家20% 的人口接种疫苗，尽管得到了欧盟的支持，但迄今为止证明是失败的。”
 
-**关注我们**
+原文链接：[https://www.ilparagone.it/attualita/50-milioni-di-vaccini-scaduti-stanno-per-finire-nel-cestino-lennesima-follia-dellue/](https://www.ilparagone.it/attualita/50-milioni-di-vaccini-scaduti-stanno-per-finire-nel-cestino-lennesima-follia-dellue/)
 
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+编辑、上传：Xiao  baige
 
  
 
