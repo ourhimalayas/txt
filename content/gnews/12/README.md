@@ -2,28 +2,27 @@
 ---
 
 
-## 有声|习近平神隐数日 欲发动对台作战计划
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2025559/)
+## 樱花FM┃中共不顾运动员“喷井”式感染新冠病毒，强行举行冬奥开幕式
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2025584/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-4.png)
-郭文贵先生于2月14日和15日连续发布盖特视频爆料称，习近平神隐数日，正在准备对台湾的一场战争，处心积虑地酝酿对台湾的整个作战计划，对台湾极为危险。预计习近平将在16日左右现身，他呼吁台湾同胞务必小心，习近平正准备对台湾发动战争。
+音频：东京樱花团/战友520
 
-此外，俄罗斯与乌克兰的军事风险、国际经济、金融的动荡及疫苗灾难，都是世界瞩目的焦点，而一切的灾难都来自于中国共产党。然而，中国共产党的恶行，最后将由中国人买单。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/中共不顾运动员喷井式感染新冠病毒，强行举行冬奥开幕式-1.png)
 
-文字版原文：[习近平神隐数日 欲发动对台作战计划](https://gnews.org/zh-hans/2020347/)
+据FNN国际取材部报道：在今晚举行开幕式的中共奥运会当日，已有300多人对中共病毒（新冠病毒Covid-19）病毒检测呈阳性。
 
-音频处理/发稿：Daxia
+据奥运会组委会称，昨日在抵达中共时和后续的测试中，发现对中共病毒呈阳性反应有21人，其中包括9名运动员成员。自1月23日以来，中共病毒感染者总数达到308人。到目前为止，共有111名运动员被感染，而且有蔓延趋势。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+文字版原文：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+| [中共不顾运动员“喷井”式感染新冠病毒，强行举行冬奥开幕式](https://gnews.org/zh-hans/1954527/) |
+| --- |
+
+
+*编辑：东京樱花团/asket   
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

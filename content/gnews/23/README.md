@@ -2,31 +2,25 @@
 ---
 
 
-## 印度税务部门对当地华为办公室展开搜查
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2025443/)
+## 秘翻在线：彻底失败的中共外交政治，将死之人习近平何去何从？
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2025459/)
 
-作者：纽约香草山农场 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月15日，据相关媒体报道，印度税务部门正在对当地多处中共华为公司办公场所展开搜查。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/5-34.jpg)
-消息人士透露，华为在新德里和邻近的主要商业中心古鲁格，以及第三大城市班加罗尔的办公室均被当地税务部门以严查逃税漏税、做假帐或利用空壳公司洗钱等理由进行了突击搜查。其中，当地税务官员查看了华为公司的部分财务文件、账簿和公司记录，还有其在印度的业务和海外交易的资料。另外，印度税务官还带走了该公司的一些相关文件。
-此前一天，印度政府还以对民众隐私和国家安全构成威胁为由，封禁了54款与中共国有关联的手机应用程序，当中多款软件被证实属于腾讯、阿里巴巴和网易等中共国大型科技公司。同时，印度还要求谷歌、苹果等公司在印度境内的手机软件商店中下架这些应用程序。
+**撰稿：ping**
 
-参考链接：[Indian tax authorities search premises of China’s Huawei](https://www.reuters.com/world/india/indian-tax-authorities-search-premises-chinas-huawei-local-media-2022-02-16/)
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-18-225338.jpg)
+中共媒体报道，国家主席习近平2月16日下午同法国总统马克龙通电话。就在法国刚刚访问俄罗斯后的时间点上，中共第一时间问候法国总统马克龙。习近平到底在担心什么呢？
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+中共一尊习近平，为了实现自己愚蠢的政治理想，一直计划攻打台湾。为达此目的不惜抛出千亿美元联合俄罗斯。俄罗斯近日从乌克兰撤出部分驻兵，并与欧洲和美国利用外交手段，大搞政治经济。美国总统拜登的政治战略眼光，加之俄罗斯总统普京的政治手腕，最终把中共玩弄于股掌之间。可惜习近平还穿着皇帝的新装，做着称霸世界的皇帝梦。
 
-总编: Irene木木
-编辑: Lakeman文仁
-校正/发稿：Fei797
+习近平出巨资赞助俄罗斯攻占乌克兰，同时中共打着算盘计划在此时间点上攻打台湾。不幸的是习近平在这样的历史时期，同时遇到拜登和普京两位政治高手，他们都利用了中共的愚蠢，实现各自利益的最大化。习近平想利用美国无暇顾及两个战场的弱点来攻占台湾的计划，看来可能又要化为乌有了。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国时间2月16日，郭文贵先生爆料，习近平冬奥会后消失八天，是因为进行了一次肝和肾的大手术。当习本人苏醒过来后，则对身边人说，攻占台湾计划暂缓。或许这就正是应了“人之将死，其言也善“吧。但不论习近平本人是不是将死之人，这个决定对台湾同胞来说都是一个好消息！
+
+虽然中共媒体一厢情愿鼓吹这次中法元首通话，为今中法，中欧关系的走向确定了继续“合作”的大方向。但是实际上，欧洲与中共脱钩已成定局。中共在美国与欧洲的“友好”时代已然成为了历史，新中国联邦则走上世界的历史舞台！
+
+**[新闻来源](http://www.xinhuanet.com/politics/leaders/xijinping/index.htm)**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
