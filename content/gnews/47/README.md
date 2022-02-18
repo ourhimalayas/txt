@@ -2,22 +2,25 @@
 ---
 
 
-## 2023年G7峰会或在日本群马举行
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2023823/)
+## 渥太华警察抓捕和平抗议组织者
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2024103/)
 
-撰稿：东京樱花团：百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-33.jpg)[图片来源](https://www.arabnews.com/node/1916191/world)
-2月18日《产经新闻》报道，外务大臣林芳正18日在外务省会见了群马县县长山本一太。山本要求将该县选为明年在日本举行的七国集团首脑会议的举办地。林芳正表示，”将与相关部门和机构协商，作好一切可能的准备，确保其成功。
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-77.jpg)
+图片来源： http://newstar.superlife.ca/
 
-政府将在今年6月德国举行七国集团峰会时决定主办城市。 1月，外交部在部内设立了 “2023年七国集团峰会筹备办公室”。收集候选地点的住宿、交通、安全和其它方面的信息。除群马县之外，广岛，名古屋和福冈等城市也已宣布有意主办该峰会。
+零对冲网2月17日报道，渥太华的为自由护航的抗议形势变得愈加严峻，今天关键组织者克里斯·巴伯被逮捕。
 
-信息源：
+巴伯也是三个为自由护航组织者被起诉对象之一，该起诉案由21岁公共服务生李则希(音译）提起的由安省高级法院所受理。
 
-[林外相に群馬・山本知事がＧ７サミット開催を要望](https://news.yahoo.co.jp/articles/b928862d39dab33d660a537482e24c5c1bcf9ced#:~:text=%E3%83%88%E3%)
+同时，加拿大公民权利协会(CCLA)宣布将起诉联邦政府动用紧急法来对付抗议者。CCLA执行长诺阿·曼得森说：“紧急法不可能也必须不能用于正常事件，这严重地损害了加拿大人的自由与权利宪章。” 他说特鲁多报告中的“暴力，种族主义，同性恋歧视事件，并没有上升到需要动用紧急法的程度。抗议是民主社会人们分享他们所有的政治诉求，无论是环保活动，学生上街，土著居民保卫他们的土地，工人罢工，黑命贵以及所有反对政府的强制措施。”
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+加拿大副总理克利斯蒂亚·弗利伦周四说金融机构已经主动冻结了与医疗自由抗议有关的账号，目前还不知道具体多少抗议者的银行账户被冻结。
+
+##### 新闻来源： [Convoy Chaos: Organizer Arrested, Dogs Threatened, Accounts Frozen And Govt. Sued](https://www.zerohedge.com/geopolitical/canada-freezes-convoy-bank-and-crypto-accounts-threaten-dogs-msm-journos-dox-donors)
+
+#  
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,27 +2,26 @@
 ---
 
 
-## 《历史上的今天》2022.02.18
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2024947/)
+## 奥运会不该在北京举行，川普谈中共入侵台湾
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2024989/)
 
-作者：superT3d(文扬)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/D4DE721E-482A-4BFA-85E8-1DF3959DAD4B.jpeg)
-1. 1930年2月18日，美国亚利桑那州罗艾尔天文台，发现太阳系第九颗行星冥王星。
-2. 1932年2月18日，日本主使东三省独立运动，宣称将成立“伪满洲国”。
-3. 1933年2月18日，德国克鲁伯公司成功制造第一个汽车用柴油发动机。
-4. 1965年2月18日，西非甘比亚宣布独立。
-5. 1972年2月18日，美国加州最高法院废除死刑。
-6. 1986年2月18日，亚洲开发银行投票表决同意中共入会。
-7. 1998年2约18日，22国集团成立。
-8. 2000年2月18日，两名北韩飞弹权威向美国投诚，透露北韩已研发出射程达6000公里的长程飞弹。
-9. 2005年2月18日，中共国允许符合条件的国际开发机构在中国国内发行人民币债券。
-10. 2020年2月18日，郭文贵先生直播惊醒同胞2月29日是武汉疫情的分水岭，中共动用他们在世界的蓝金黄力量，把病毒战引入国际。
-11. 2021年2月18日，郭文贵先生直播，南普陀计划得到验证，江习大战进入最后时刻。
+翻译：文暉
+校对：精靈藍
+剪辑|字幕：小强
+编辑：守望黎明
 
+彭帅事件的发生和中共恶形恶状的洗地掩盖行为，被西方媒体持续报道，把中共的丑陋不堪展现在了世界的面前。而北京冬奥会上各种丑闻的频频曝光，让本来砸下大钱、想往自己的脸上涂脂抹粉的冬奥会，变成了中共丢人现眼的噩梦，也让习近平成了全球的笑话。
 
-* * *
+视频来源：[Olympics shouldn’t have been held in Beijing in the first place Rep.Gallagher\_1](https://www.foxbusiness.com/shows/mornings-with-maria)
 
-*发布：Theodosia*
+*发布：Mttfly*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

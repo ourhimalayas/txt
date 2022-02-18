@@ -2,22 +2,30 @@
 ---
 
 
-## 美驻日大使发表声明称 俄乌问题日美步调一致
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2025161/)
+## 有声|郭先生解读中共卖国本质与习近平神隐真相
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2025354/)
 
-撰稿：东京樱花团｜麗子
-![](https://lh5.googleusercontent.com/p2y47SLaetIphoWAGEaLFFWiHOI43QF7-_bBaaUgKe3IC7X044uGkHSmV5qG22Yl6R2y9TsfzW1RP09zwZiy8-fnSvLCNSmDhU9wB_yiWpfKw9s96YCHHYnzzJBOzO2vAGoYqgFz)[*图片来源*](https://www.nippon.com/ja/news/reu20220204KBN2K90MZ/)
-上个月抵达日本的美国驻日本大使伊曼纽尔就乌克兰局势发表声明，强调日美将步调一致。
+配音：香草山巡管部– 文凯琳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月15日，郭文贵先生在一则盖特视频中向战友们解读了中共卖国贼的本质，以及习近平称病神隐，实则暗中密谋攻打台湾的计划。
 
-伊曼纽尔大使在18日发表的声明中表示，日本和美国在俄罗斯问题上保持一致。并提到，岸田首相在17日举行的日俄电话会谈中，向普京提出通过外交努力缓解局势，重视以规则为基础的国际秩序，展现出岸田首相卓越的领导能力。
+郭先生表示，共产党一向中西勾兑、内外勾结，他们才是真正的卖国贼。此外，为了保护几个家族的利益以及平息高层内部的政治斗争，中共对内蒙蔽百姓，对外通过“蓝金黄”危害各国政府和相关机构。然而，中共的所作所为最终都将由中国人买单。
 
-驻日大使强调，美国和日本在解决俄罗斯问题上是团结一致的，并表示，欢迎日本与志同道合的伙伴一致发声。
+文字版原文：[郭先生解读中共卖国本质与习近平神隐真相](https://gnews.org/zh-hans/2012014/)
 
-信息来源：[**対ロシア「日米の足並み揃っている」駐日大使が強調**](https://news.yahoo.co.jp/articles/e1e769b6166daf47621e19347ec48d0cf5cc7f8b)
+音频处理/发稿：Daxia
 
-*编辑：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

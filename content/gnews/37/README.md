@@ -2,26 +2,29 @@
 ---
 
 
-## 樱花FM┃美国众议院通过法案，加强对中共国半导体竞争力
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2024446/)
+## 自今年年初起，意大利新冠疫苗注射量下跌75%以上，达到历史最低水平。
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2024675/)
 
-音频：东京樱花团/战友520
-![](https://lh5.googleusercontent.com/_oTJGDmdmJLB-GTVrAQoD2mCXKae9Y9MbXJ8swjHSq-SReHYLCIxn_iNrs4WDTwxsGjAAndoDOV0SrsORxk72dcV2KYlfYVZ7cj4Z83z88iVgzFFBEnJlYGA72sWop0H5yNnDXBA)
-2月5日每日新闻消息，美国众议院4日以赞成多数投票通过了 “美国竞争法案”。该法案将帮助美国提高其工业竞争力和半导体的生产。目的是对抗由中共国主导的工业发展措施加强美国的技术竞争力。参议院已经通过了一项具有相同效果的法案，今后，参众两院将讨论对该法案的修正。
+#### 翻译                   意大利达芬奇农场                    小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-17-alle-23.06.04.png)图片来源：eventiavversinews.it
+意大利新冠疫苗注射中心空荡荡， 无人再信。
 
-这次通过的法案将为美国的半导体生产和研发提供520亿美元的补贴，并提供450亿美元用于加强供应链和支持关键产品的生产。其中还包括谴责中共国的反竞争贸易做法和侵犯人权行为的条款，以及加强对中共国压迫维吾尔少数民族的制裁。
+意大利疫苗注射宣传失败了。据《24小时太阳报》的最新数据，有57.000.000意大利人是可接种疫苗的，（ 今天只有从0岁到4岁的孩子尚不可接种疫苗， 其数量是2.216.510，而2021年意大利总人口为59.236.213。有48.800.000人接种了两剂疫苗（有8.200.000 人没有接种），36.400.000人接种了第三针。现在大概有12.400.000人很可能是“后悔打疫苗”了， 他们在打了前两针疫苗之后，不会打第三针。
 
-该法案旨在对抗中共国政府的高科技产业政策 “中国制造2025″，因为中共在其中投入了大量的产业补贴。而美国政府向个别公司提供补贴以加强工业竞争力的做法并不常见，现在，美国国会和工业界，越来越多的人认为政府的资助对与中共国竞争至关重要。
+新冠疫苗接种前景暗淡。显然无人再相信政府——政府违宪并滥用紧急法令，人们不再被吓倒。
 
-2021年6月，参议院通过了《美国创新和竞争法》，为半导体行业拨款520亿美元，为先端技术的研究拨款了1900亿美元。但由于参议院和众议院的法案在一些细节上有所不同，因此需要将这些法案合并，并由两院重新通过。
+年初（1月3日）共注射了628.410针，1月11日达到了高峰，达到725.424针。
 
-支持半导体和开发新技术已被纳入拜登总统在2021年3月提出的2万亿美元环境基础设施投资计划内。拜登在2月4日的声明中重申了该计划在21世纪与中共国和其它国家竞争的重要性，并敦促众议院和参议院尽快通过修订后的法案。
+这些天新冠疫苗注射量达到历史最低点。全意大利2月15日的注射量是180.020针，其中第一针的数量只有11.735（ 绝对负面记录），第二针和第三针的数量分别是48.312，119.973.
 
-文字版原文：[美国众议院通过法案，加强对中共国半导体竞争力](https://gnews.org/zh-hans/1958700/)
+儿童疫苗注射量由从1月11日的49.157针下降到2月15日的19.017针，下降了60%。
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+意大利25.5%的5-11岁的儿童注射了两针辉瑞疫苗，10.8%的儿童预定了第二针。
+
+原文链接：[https://www.eventiavversinews.it/hub-deserti-minimo-storico-delle-vaccinazioni-nessuno-si-](https://www.eventiavversinews.it/hub-deserti-minimo-storico-delle-vaccinazioni-nessuno-si-fida-piu-da-inizio-anno-inoculazioni-crollate-oltre-il-75/)[fida-piu-da-inizio-anno-inoculazioni-crollate-oltre-il-75/](https://www.eventiavversinews.it/hub-deserti-minimo-storico-delle-vaccinazioni-nessuno-si-fida-piu-da-inizio-anno-inoculazioni-crollate-oltre-il-75/)
+
+编辑、上传： Xiao  baige
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

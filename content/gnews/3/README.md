@@ -2,22 +2,28 @@
 ---
 
 
-## 乐桃航空将减资至1亿日元，以改善因中共病毒造成的财务困难
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2025400/)
+## 有声|日本疫情持续延烧 日本政府仍宣布3月将放宽边境管制
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2025460/)
 
-撰稿：东京樱花团｜百花李香
+配音：香草山巡管部– 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9D%A1%E5%B9%85.png)
+日本政府将调整边境防疫措施，基于经济考量将在3月起逐步放宽边境管制，包括有条件开放观光客以外的外国人新申请入境等边境防疫措施松绑等。具体规划将召开记者会进行说明。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/乐桃航空将减资至1亿日元，以改善因中共病毒造成的财务困难.png)[*图片来源*](https://news.yahoo.co.jp/articles/b47ebbc15c08bc716b2e4ec70bdf123c115bfa78/images/000)
+目前日本政府正实施严格的边境管制，原则上禁止止外国人新申请入境，自国外入境后也必须在家中隔离7天。国民从国外入境后，也必须进行7天的居家隔离。日本政府即将放宽的边境管制措施，每日可入境的人数上限，从每天3500人提高到5000人。入境隔离期，则从原先的七天缩短为3天。此外，入境者若已接种三针疫苗，且来自奥米炕变种病毒并未广为传播的地区，入境则无须隔离。
 
-低成本航空公司（LCC）乐桃航空18日宣布，它将把资本从目前的75亿日元减少到1亿日元。因中共病毒爆发导致乘客数量下降，该公司一直面临着困难的经营状况，减少成本将有助于改善其财务困难。
+文字版原文：[日本疫情持续延烧 日本政府仍宣布3月将放宽边境管制](https://gnews.org/zh-hans/2018365/)
 
-根据税务法，该公司将被视为中小型企业，将减少其税收支出。减资将于3月30日进行，公司还准备将资本储备金从74亿日元减少至零，以消除累计损失。乐桃截至2021年3月的净亏损额为295亿日元，这是该公司成立以来最大的亏损，2020年的净亏损为94亿日元，截至2022年3月的年度预测尚未公布。
+音频处理/发稿：Daxia
 
-信息源：[**LCCピーチが1億円に減資　コロナ禍直撃で財務改善目指す**](https://news.yahoo.co.jp/articles/b47ebbc15c08bc716b2e4ec70bdf123c115bfa78#:~:text=LCC%E3%83%94%E3%83%BC)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-*编辑：东京樱花团 / 東洋武士*
-*发布：东京樱花团 /*老黑
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

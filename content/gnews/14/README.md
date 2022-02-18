@@ -2,27 +2,27 @@
 ---
 
 
-## 中共举办的冬奥会变成了灾难
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2025157/)
+## 樱花FM┃共产党培养的商人到贫民都会做假说谎
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2025352/)
 
-翻译：俏如来
-校对：Lish
-剪辑|字幕：蛮吉
-编辑：Mttfly
+音频：东京樱花团/战友520
 
-据最新统计，冬奥运闭环区域内部报告了接近400人的冠状病毒感染病例。受感染的运动员正在分享来自隔离营的恐怖故事，而中共官方媒体正在尽其所能，转移责任和分散注意力。受感染的运动员和工作人员在不停抱怨比赛的安排、糟糕的食物、肮脏的房间、糟糕的互联网以及没有训练设备。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/共产党培养的商人到贫民都会做假说谎.png)
 
-视频链接：[GRAVITAS UKRAINE DIRECT: INFECTED ATHLETES IN CHINA’S QUARANTINE CAMPS LASH OUT](https://www.bitchute.com/video/UQeQjoimepxG/)
+近日，一名市场商贩被拍到正在通过水管插入正在售卖的公鸡的食道进行灌水。该视频仅是长期以来中共治下食品安全和食品造假的冰山一角。
 
-*发布：Mttfly*
+在中共国买到什么假货，什么样的垃圾食品都已经见怪不怪了。因为他们自己不吃自己做的产品，不买自己生产的产品，所有的“高科技”都是为造假害人服务的。但他们从不感觉耻辱与犯罪，反而觉得自己聪明，会赚钱。但是他们没想到自己做的食品与领域的东西你可以不买，不吃、不用，但你总得活着，总得用你自己不能做的东西和领域，那你一样会被另一个生产制作的假所害。所以大家认为害人不害己，其实每个人都活在恶性循环中。每个人都是受害者。每个人为造假所得的蝇头小利感到幸福无比，试问有哪个国家的百姓会生活在这样的互相残害的“幸福”里呢？ 所以共产党不灭，百姓不醒就没什么安全幸福可言。灭共从说真话不造假，自己生产贩卖的东西自己放心食用开始。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+文字版原文：
 
+
+| [共产党培养的商人到贫民都会做假说谎](https://gnews.org/zh-hans/1956027/) |
+| --- |
+
+
+*编辑：东京樱花团/asket
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
