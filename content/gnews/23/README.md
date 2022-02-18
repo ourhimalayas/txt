@@ -2,36 +2,31 @@
 ---
 
 
-## 有声|中共国暴力强拆至人重伤，女孩发视频哭求帮助
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2022477/)
+## 微信和全球速卖通被列入美国恶名市场名单
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2022614/)
 
-配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Unknown-16.jpg)微信和全球速卖通被列入美国恶名市场名单 网络图片
+据美国之音2月18日报道，美国贸易代表办公室2月17日公布了2021年恶名市场假冒和盗版行为的审查结果。中共国的全球速卖通和微信被列入恶名市场名单。
+
+所谓“恶名市场”指的是那些参与盗版和商标侵权行为或者为相关活动提供实质性便利的线上和线下交易平台。2021年恶名市场名单有42个线上平台和35个线下市场，包括拼多多、淘宝、以及其它九个设在中共国境内的实体市场，还有首次被列入的阿里巴巴旗下的全球速卖通和微信。
+
+以假乱真、以次充好，搅乱正常的市场秩序，恶意降低或者抬高价格等行为，都是中共国最擅长的手段。中共以假治国，没有科技，没有知识产权，只能用偷来的版权赢得短时间的暴利。中共体制的邪恶和假骗偷，使得中共国成为全世界的造假基地，这是以勤劳智慧而著称的中国人民最大的耻辱。只有推翻中共，中国人民才能够创建自己的品牌，洗刷掉中共带给中国人民的耻辱。
+
+新闻参考链接：[https://www.voachinese.com/a/ustr-releases-2021-review-of-notorious-markets-for-counterfeiting-and-piracy-20220217/6446272.html](https://www.voachinese.com/a/ustr-releases-2021-review-of-notorious-markets-for-counterfeiting-and-piracy-20220217/6446272.html)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-3.jpg)
-
-
-
-近期的网络因为铁链女共产党无法无天明目张胆的造假、上下集体互相伪证，几个公众号一直高度关注，有良知的公众号是这乱世的一道清流。
-
-昨公众号又爆出江苏女孩求救视频，该女孩是江苏省徐州市，丰县欢口镇，视频中的女孩手拿身份证，抹着眼泪在网络公开实名制举报，丰县欢口镇拆迁办组织虹口雇佣社会上无业游民，强制执行暴力强拆，对虹口村村民实行断桥断路阻止出行，用辣椒水、暴力、威胁等各种方法强迫村民签字同意拆迁，强制拆迁中把她爸爸打至重伤。
-
-举报女孩称2021/12/17，刘宁、汪雪峰带领雇佣的社会无业人员，开着挖掘机进村，对村民进行断桥断路，断电，迫使村民签字同意书，进入她爸爸家先毁安装的的监控再断电以后，非法破门而入，强迫签字不成，就把老人家带到拆迁办办公室，关进门群殴，逼着签字，造成老人右侧三根肋骨骨折，前侧颚骨骨折，右侧眼眶和鼻子骨骨折，折合额骨粉碎性骨折，几家当地医院不敢接手，报警后几天一直无人处理，更别说把打人者绳之以法，女孩哭诉，母亲日夜哭泣，又要照顾刚出生的小侄女，弟弟医院陪护危在旦夕的父亲，她求天天不应求地地无门，身单力薄，走投无路，只好用录视频上网络这样不是办法的办法请求转发，获取帮忙，以求得到媒体关注。
-
-文字版原文：[中共国暴力强拆至人重伤，女孩发视频哭求帮助](https://gnews.org/zh-hans/2019552/)
-
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

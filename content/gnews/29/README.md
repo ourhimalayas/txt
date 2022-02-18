@@ -2,46 +2,143 @@
 ---
 
 
-## 美通过《2022年美国竞争法》，防止中共企业垄断
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2022413/)
+## 加拿大自由车队是非暴力抗议的“胜利”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2022514/)
 
-作者：台湾宝岛农场\_阿尔道夫
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-33.png)
+[https://gtv.org/video/id=620e73682403672096ab73d5](https://gtv.org/video/id=620e73682403672096ab73d5)
 
+Stuart:
+Bringing Stephen Moore to join us now, economist Stephen Moore
+现在让斯蒂芬-摩尔加入我们，经济学家斯蒂芬-摩尔
 
-![](https://gdb.voanews.com/09dd0000-0a00-0242-f776-08d9e826901a_w1023_r1_s.png)（图片来自美国之音）
+If there were an American truck convoy, would you support it?
+如果有美国卡车车队，你会支持吗？
 
-近年来，中共积极游说国际电信联盟（ITU）、国际电工委员会（IEC）等机构，让中共的企业获得竞争优势。面对此冲击，美在北京冬奥开幕当天通过《2022年美国竞争法》，旨在帮助美半导体制造业，抵消中共扭曲市场的贸易行为，包括加强反倾销规则等。
+And I ask, because these convoys have got nothing,
+我问，因为这些车队一无所有，
 
-美国也和日本连手建立6G无人化技术的国际标准，防止中共企业垄断，并强化尖端技术保护，防范中俄经济间谍战。
+I mean this is about getting rid of the mandate for the jab.
+我的意思是这是关于摆脱疫苗强制令
 
-欧盟主管竞争事务的执委维斯塔哲（Margrethe Vestager）表示，中共近期重新定义网络的基本标准，让中共对国有网络的使用者有更大的控制权，因此，欧盟委员会提出对行业标准系统实施改革，藉以避免欧洲数码产业等被被中共主导。
+And if we get one in America that could really complicate the supply chain again,
+如果我们在美国有卡车车队，真的会使供应链再次复杂化
 
-近日，北京大学在一份报告中罕见承认，美中科技脱钩后，中共无论在技术层面还是产业层面都明显落后，中共的芯片制造、人工智能及信息科技产业更将面临严重的发展瓶颈。该报告在墙内被火速删除。
+could lead to some inflation, so are you in favor of an America truck convoy?
+可能会导致一些通货膨胀，所以你赞成美国卡车车队吗？
 
+Stephen：
 
+Well, good morning Stuart, couple of points,
+早上好，斯图尔特，几个意义
 
-参考链接：
+number one, the Canadian protesters those truckers have won, they won,
+第一，那些卡车司机赢得的加拿大抗议者，他们赢了
 
-[https://www.epochtimes.com/b5/22/2/15/n13577942.htm%E3%80%8B](https://www.epochtimes.com/b5/22/2/15/n13577942.htm%E3%80%8B)
+they have made the point in an empathetic way.
+他们以让人同情的方式提出了这一点
 
-编辑/校对/发稿：有莫举名
+People see you know these pictures, it’s been misrepresented by the way, by the media.
+你知道，人们看到这些照片，它被媒体歪曲了
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-38.jpg)
+It has been almost exclusively peaceful, no question about it.
+它几乎完全是和平的，毫无疑问
 
-**更多资讯，更多关注**
+These are people who have made an incredible point, not just to the Canadian government, to people around the world,
+这些人提出了令人难以置信的观点，不仅对加拿大政府，对世界各地的人们
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+and you are right, you are starting to see this kind of protest now in some of European countries and New Zealand and others,
+你是对的，你现在开始在一些欧洲国家和新西兰和其他国家看到这种抗议，
 
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+so it has been a victory for non-violent protest,
+所以这是非暴力抗议的胜利，
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+and it’s probably time for…
+可能是时候……
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+by the way I don’t think the protesters have the right to stop commerce and block bridges and things of that nature
+顺便说一句，我不认为抗议者有权停止商业并封锁桥梁和类似性质的东西
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-33.png)
+so I think that the police acted correctly in cleaning the bridges,
+所以我认为警察清理桥梁的行为是正确的，
 
+so that commerce could commence
+这样商业才能持续
+
+and whether this should happen in the United States, you know, Stuart,
+以及这是否应该发生在美国，你知道，斯图尔特
+
+I actually think that what’s happening now in the US is a lot of these mandates and a lot of these mask requirements all over the country,
+实际上，我认为现在在美国发生的事情是很多这样的规定和全国各地的很多口罩要求
+
+even the democratic governors are getting rid of them now,
+即使是民主党的州长现在也正在摆脱它们，
+
+because the virus is in such rapid retreat,
+因为病毒正在迅速消退
+
+so hopefully I won’t need protest, because all of these mandates are going to go away in the next few weeks.
+所以希望我不需要抗议，因为所有这些强制令都将在接下来的几周内消失
+
+Stuart:
+
+Let me ask you about producer prices, we get the number tomorrow.
+让我问你关于生产者价格的问题，我们明天得到这个数字
+
+We are expecting a 9% annual inflation rate at the producer level.
+我们预计生产者层面的年通胀率为 9%
+
+If we get that 9%, does that mean higher consumer prices down the road?
+如果我们得到那 9%，这是否意味着未来的消费者价格会更高？
+
+Stephen:
+
+Well, by the way, one other quick thing about Canada, have you seen the latest Justin Trudeau approval ratings?
+好吧，顺便说一下，关于加拿大的另一件事，你看过贾斯汀·特鲁多最新的支持率吗？
+
+He’s as low as Joe Biden is in the United States, so again evidence these protests have really made a statement.
+他和乔·拜登在美国一样低，所以再次证明这些抗议活动确实起了作用
+
+Yeah, I think we’re going to see a high producer price index number
+是的，我认为我们将看到一个高生产者价格指数
+
+and of course that’s going to spread down to higher consumer prices,
+当然，这会蔓延到更高的消费者价格
+
+and there’s now word, as you’ve been reporting that the Fed may have some kind emergency rate increase,
+现在有消息，正如你一直在报道美联储可能会紧急加息
+
+I’m total in agreement with that,
+我完全同意这样做
+
+I only think they should have done that nine months ago,
+我只认为他们应该在九个月前这样做
+
+they are way behind the curve and fighting this inflation with that validations of it, we will see more validation behind the curve tomorrow.
+他们远远落后于曲线，并通过对它的验证来对抗这种通货膨胀，明天我们将在曲线后面看到更多的验证
+
+Stuart
+Lots of speculation about what the Fed will do when it will do it. Stephen Moore, thanks a lot for being with us. We will see you tomorrow
+很多人猜测美联储何时会采取行动。斯蒂芬-摩尔，非常感谢您与我们在一起。我们明天见
+
+**原视频链接:**[** **https://www.youtube.com/watch?v=AQ4jx17mcGI](https://www.youtube.com/watch?v=AQ4jx17mcGI)
+
+Date:02/15/2022
+原视频标题: Canada Freedom Convoy a ‘victory’ for non-violent protests
+加拿大自由车队是非暴力抗议的“胜利”
+原视频日期：2022/02/14
+**原视频链接: **https://www.youtube.com/watch?v=AQ4jx17mcGI
+任务编号：3760
+视频时间段 : 0:00-02:42
+
+英听校：洛杉矶盘古农场 – Raul
+翻译：洛杉矶盘古农场 – Raul
+翻译终校：洛杉矶盘古农场 – Mike Li
+审片：洛杉矶盘古农场 – 天涯行
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

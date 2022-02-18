@@ -2,143 +2,43 @@
 ---
 
 
-## 加拿大自由车队是非暴力抗议的“胜利”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2022514/)
+## 郭文贵先生2022年2月17日盖特视频（9分47秒）全文字版
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2022681/)
 
-[https://gtv.org/video/id=620e73682403672096ab73d5](https://gtv.org/video/id=620e73682403672096ab73d5)
+听写整理编辑：东京樱花团/Peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-68.png)
+兄弟姐妹们，兄弟姐妹们，啥年代现在是？七哥，昨天个人破产，这个喜币场外交易，说KYC都突破了，上市以来的，所有的数据，这是弄啥嘞呀？你以为这是弄啥嘞，兄弟姐妹们？
 
-Stuart:
-Bringing Stephen Moore to join us now, economist Stephen Moore
-现在让斯蒂芬-摩尔加入我们，经济学家斯蒂芬-摩尔
+兄弟姐妹们，2月17号，尊敬的战友们好！哎呀，这世界变化太快了，大家注意到了吗？国内的经济、银行、世界的经济，乱了，乱了，乱了，共产党，这老杂毛还贼心不死呢，他不知道他的末日已经来了，你看着吧，兄弟姐妹们。
 
-If there were an American truck convoy, would you support it?
-如果有美国卡车车队，你会支持吗？
+香港的病毒这么高，香港成啥了？最好的医院系统，崩溃了，全世界上最优秀的警察成了黑警了，全世界外国投资最安全的地方，现在成最不安全投资的地方，全世界五大洲四大洋，各种种族最多的地方，现在成了共产党一家霸占了，流氓的共产党啊！天不灭共，天理不容！
 
-And I ask, because these convoys have got nothing,
-我问，因为这些车队一无所有，
+啊“锁链女”在国内引起这么大震撼，啊，援藏的干部的孩子，援藏啊，谁援藏没好报应，谁帮助共产党弄西藏的，弄新疆的，你家人等着报应吧，老天看着呢，你不相信神灵，那就试试。
 
-I mean this is about getting rid of the mandate for the jab.
-我的意思是这是关于摆脱疫苗强制令
+唉，哎呀，我这又喘不过气了，我还有六组呢，我才做了七组呢，啥都不说了今天，明天直播，啊，我又喘过来气了，哼，那我再做一组得了，我再做一组去吧，啊，我再做一组，兄弟姐妹们。
 
-And if we get one in America that could really complicate the supply chain again,
-如果我们在美国有卡车车队，真的会使供应链再次复杂化
+所以说，兄弟姐妹们，兄弟姐妹们，这共产党的假、蒙、骗、黑，害人太深了，造的孽，全世界的经济，全中国人民的孩子都在为老共买单，你说咋弄啊？
 
-could lead to some inflation, so are you in favor of an America truck convoy?
-可能会导致一些通货膨胀，所以你赞成美国卡车车队吗？
+然后大家看到喜币，很多战友，真聪明！特别日本的战友，一声不吱，找了很多食品链儿，食品链儿，然后，接受喜支付，日本人悄悄的干活，这几天火了。啊还有在这个巴西的矿，俄罗斯金矿，还有人现在去尝试西班牙的那个火腿，食品链是最好的，因为呢，那个能大量省下钱。现在好几家家具，还有共生时装的，都悄悄地接受了，省65%成本呐，想啥呢？这是天大的买卖，兄弟姐妹们，抓住这个机会是你前所未有的。啊在俄罗斯搞矿的，两笔交易就三亿多美金啊，啊三亿多美金。
 
-Stephen：
+咱们前天有战友在这个喜支付上，在Hpay上，完成了巨大的交易，这都保密，咱这儿跟我说：“七哥，解决了我十几年的问题啊”，啊太好了，我们就是要拯救那些被奴役，被隔在一个墙又一个墙墙里边的那些人，啊已经默默地接受了自己是N道墙那里边的奴隶，都不想挣扎了，这才是真正的恐惧，Hpay将解放你的生产力，告诉你，这些墙不属于你的，财富自由，才能达到你人格独立，人格独立，人格自由才有人性，才有人权，否则都是扯淡的事情，是吧？
 
-Well, good morning Stuart, couple of points,
-早上好，斯图尔特，几个意义
+你的钱只能在你的家里边，像东北买啥？买点粮食，买点菜，是吧？过年时候啊弄点过年货，平常买点衣服，你那你就是一生就是奴才。钱不是干这用的，钱是让你应该，钱让你赚更多钱，钱给你走出家门儿，去旅行，去见识，啊读更多的书，走更多的路，见识更多美好，啊不是在福建天天在那儿养点养点鸡，养点鸭，就死在山里边了，你不是山奴，你也不是鸡奴，是吧？你应该走出你福建的武夷山，你应该走出你所谓的大别山，走出你的昆仑山，啊见识这个世界，否则你生跟死有什么两样，跟埋在土里有什么两样，这就是财富。
 
-number one, the Canadian protesters those truckers have won, they won,
-第一，那些卡车司机赢得的加拿大抗议者，他们赢了
+但是你的银行共产党控制，想给你关就关了，而且你越存越少，不就完了吗？像加拿大卡车司机，（银行）不要脸，本来卡车司机银行给人家停了，天下岂有此理啊？辛辛苦苦拿命挣的钱，结果成了你的威胁工具，怎么可以？！而是要人家六十，七十五的税，敲诈勒索，太可怕了。
 
-they have made the point in an empathetic way.
-他们以让人同情的方式提出了这一点
+但是悲剧的是中国共产党是全世界政府花老百姓钱的总和，是中国共产党，可悲不？可悲嘛，兄弟姐妹们？唉中国人不知道这是最可怕的，本身本来是个人，人把你变成猪和狗了，你还真以为自己是猪和狗。七哥就不服这一套，俺就不服，咋的吧？
 
-People see you know these pictures, it’s been misrepresented by the way, by the media.
-你知道，人们看到这些照片，它被媒体歪曲了
+七哥个人破产以后老轻松了，我现在我觉得真的，经历过啊一切以后，这个啥都没有了，咋这么轻松啊？啊太轻松了，没有一点心理……，你说我干啥花钱？是不是没有任何花钱的问题？吃点饭，穿点衣裳，现在连英国，日本也不去了，就在美国。美国这地方啥都便宜，世界上最贵工资的地方，食品物价最便宜的地方，你说咋花钱？有钱不知道咋花，但战友们，你们需要钱，你们没经历过富有吧？你们要尝尝富有的滋味儿，才能有我这种破产的感觉呀。啥都不说啦，明儿直播。
 
-It has been almost exclusively peaceful, no question about it.
-它几乎完全是和平的，毫无疑问
+稿件仅作参考，最终以郭文贵先生盖特视频内容为准。
 
-These are people who have made an incredible point, not just to the Canadian government, to people around the world,
-这些人提出了令人难以置信的观点，不仅对加拿大政府，对世界各地的人们
+[郭文贵先生2022年2月17日盖特视频](https://gettr.com/post/pv3wdr2e0a)
 
-and you are right, you are starting to see this kind of protest now in some of European countries and New Zealand and others,
-你是对的，你现在开始在一些欧洲国家和新西兰和其他国家看到这种抗议，
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
 
-so it has been a victory for non-violent protest,
-所以这是非暴力抗议的胜利，
-
-and it’s probably time for…
-可能是时候……
-
-by the way I don’t think the protesters have the right to stop commerce and block bridges and things of that nature
-顺便说一句，我不认为抗议者有权停止商业并封锁桥梁和类似性质的东西
-
-so I think that the police acted correctly in cleaning the bridges,
-所以我认为警察清理桥梁的行为是正确的，
-
-so that commerce could commence
-这样商业才能持续
-
-and whether this should happen in the United States, you know, Stuart,
-以及这是否应该发生在美国，你知道，斯图尔特
-
-I actually think that what’s happening now in the US is a lot of these mandates and a lot of these mask requirements all over the country,
-实际上，我认为现在在美国发生的事情是很多这样的规定和全国各地的很多口罩要求
-
-even the democratic governors are getting rid of them now,
-即使是民主党的州长现在也正在摆脱它们，
-
-because the virus is in such rapid retreat,
-因为病毒正在迅速消退
-
-so hopefully I won’t need protest, because all of these mandates are going to go away in the next few weeks.
-所以希望我不需要抗议，因为所有这些强制令都将在接下来的几周内消失
-
-Stuart:
-
-Let me ask you about producer prices, we get the number tomorrow.
-让我问你关于生产者价格的问题，我们明天得到这个数字
-
-We are expecting a 9% annual inflation rate at the producer level.
-我们预计生产者层面的年通胀率为 9%
-
-If we get that 9%, does that mean higher consumer prices down the road?
-如果我们得到那 9%，这是否意味着未来的消费者价格会更高？
-
-Stephen:
-
-Well, by the way, one other quick thing about Canada, have you seen the latest Justin Trudeau approval ratings?
-好吧，顺便说一下，关于加拿大的另一件事，你看过贾斯汀·特鲁多最新的支持率吗？
-
-He’s as low as Joe Biden is in the United States, so again evidence these protests have really made a statement.
-他和乔·拜登在美国一样低，所以再次证明这些抗议活动确实起了作用
-
-Yeah, I think we’re going to see a high producer price index number
-是的，我认为我们将看到一个高生产者价格指数
-
-and of course that’s going to spread down to higher consumer prices,
-当然，这会蔓延到更高的消费者价格
-
-and there’s now word, as you’ve been reporting that the Fed may have some kind emergency rate increase,
-现在有消息，正如你一直在报道美联储可能会紧急加息
-
-I’m total in agreement with that,
-我完全同意这样做
-
-I only think they should have done that nine months ago,
-我只认为他们应该在九个月前这样做
-
-they are way behind the curve and fighting this inflation with that validations of it, we will see more validation behind the curve tomorrow.
-他们远远落后于曲线，并通过对它的验证来对抗这种通货膨胀，明天我们将在曲线后面看到更多的验证
-
-Stuart
-Lots of speculation about what the Fed will do when it will do it. Stephen Moore, thanks a lot for being with us. We will see you tomorrow
-很多人猜测美联储何时会采取行动。斯蒂芬-摩尔，非常感谢您与我们在一起。我们明天见
-
-**原视频链接:**[** **https://www.youtube.com/watch?v=AQ4jx17mcGI](https://www.youtube.com/watch?v=AQ4jx17mcGI)
-
-Date:02/15/2022
-原视频标题: Canada Freedom Convoy a ‘victory’ for non-violent protests
-加拿大自由车队是非暴力抗议的“胜利”
-原视频日期：2022/02/14
-**原视频链接: **https://www.youtube.com/watch?v=AQ4jx17mcGI
-任务编号：3760
-视频时间段 : 0:00-02:42
-
-英听校：洛杉矶盘古农场 – Raul
-翻译：洛杉矶盘古农场 – Raul
-翻译终校：洛杉矶盘古农场 – Mike Li
-审片：洛杉矶盘古农场 – 天涯行
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

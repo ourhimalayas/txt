@@ -2,32 +2,35 @@
 ---
 
 
-## 4700名美军悉数抵达波兰，英国、波兰、乌克兰发联合声明
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2022568/)
+## 有声|班农先生呼吁追责中共并改变治世模式
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2022711/)
 
-#### 撰稿：彩虹       
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月15日，据盖特消息显示，班农先生近日在接受采访时指出，郭文贵先生此前反复强调，当民意跌至谷底时，中共病毒疫苗强制令就会发生改变。如今，全球政客的民意调查都显示出灾难性的结果，于是，那些推行强制疫苗和疫苗护照的政客们纷纷转变了风向。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/4-38.jpg)
+班农先生也提到，正如郭先生示警的那样，中共病毒不仅是来自武汉病毒研究所的生化武器，其更是中共及其他黑暗势力借此以疫苗进行杀戮的工具。为此，美国必须小心谨慎地公布与之相关的证据和事实，从而对中共与所有涉及人员进行追责，进而揭露邪恶势力的这一布局。
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/16451455791.png)图片来源：Notesfrompoland
-《国会山报》2月17日报道，周四，英国外交大臣利兹·特拉斯（Liz Truss）及波兰和乌克兰的外交部长发表联合声明，三国将制定一项《三边合作备忘录》（trilateral memorandum of co-operation），以支持乌克兰和打击俄罗斯的侵略。
+班农先生还指出，目前，所有的证据都掌握在正义力量的手中，所有的谎言和虚假陈述都将不攻自破。最终，全球追责的目标都将指向中共，而这些证据将为推翻中共提供基本的事实和依据。更重要的是，在追责的过程中，政府治理世界的方式也将随之改变。
 
-联合声明说：“这将表明我们致力于进一步加强三国之间在支持乌克兰的最优先问题上的战略合作和接触。我们将共同努力推进我们的合作，这包括但不限于协调对‘国际克里米亚平台’（ International Crimea Platform）的支持，增加我们在网络安全、能源安全方面的合作，以及促进战略沟通以打击虚假信息。”
+文字版原文：[班农先生呼吁追责中共并改变治世模式](https://gnews.org/zh-hans/2020829/)
 
-三人表示，英国和波兰声援乌克兰，帮助这个前苏联国家捍卫其独立和主权，并将向乌克兰提供支持。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-联合声明还对俄罗斯进行了含蓄的斥责，但没有具体指名该国。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-三人说：“我们重申，每个欧洲国家都可以自由选择或改变其安全安排，包括联盟条约，任何国家都不能将欧洲的任何地区视为其影响范围。”
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-报道说，周四，拜登总统表示，俄罗斯可能“在未来几天内”入侵乌克兰。
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-而根据《国会山报》同一天的报道，五角大楼官员告诉《纽约时报》，4700名美军已经全部抵达了波兰以东，以加强北约东翼的防御。4700名美军包括来自第82空降步兵旅战斗队的3000名士兵和第82空降师的1700名士兵。
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-**新闻来源**
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-[Ukraine, Poland and UK agree on accord to combat Russian aggression](https://thehill.com/policy/international/594802-ukraine-poland-and-uk-agree-to-accord-to-combat-russian-aggression)
-
-[Last US troops arrive in Poland](https://thehill.com/policy/defense/594743-last-us-troops-arrive-in-poland)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
