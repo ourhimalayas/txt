@@ -2,26 +2,47 @@
 ---
 
 
-## 伊隆 · 马斯克将特鲁多与希特勒相提并论而引发愤怒
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2022272/)
+## 昆特兰理工女大学生前男友认罪误杀侮辱尸体
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2022284/)
 
-#### 编译：Cran
+作者：Janet Brown & Amy Judd
+翻译：KK
+![](https://assets.gnews.org/wp-content/uploads/2022/02/5_102FU35.jpg)
+BC省一名年仅19岁的女大学生遇害后被人放入汽车内放火焚尸，案发5年后她的前男友承认了一项过失杀人罪和一项侮辱尸体罪。年轻的女孩刚刚做完肾移植手术，对未来生活充满憧憬，不料阴差阳错死于男友走火的枪下。
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/16451360011.png)Image Source：美国之音
-据Rebel News2月17日报道，世界首富，伊隆 · 马斯克（Elon Mask）前不久曾在多条推文中表示过支持卡车司机领导的自由车队抗议活动。
+据报道，此案发生在2017年8月，正在昆特兰理工大学（Kwantlen Polytechnic University）就读的女大学生Bhavkiran “Kiran” Dhesi与男友Harjot Singh Deo在一起时意外死亡。
 
-因为特斯拉创始人马斯克将加拿大总理贾斯汀 · 特鲁多（Justin Trudeau) 与阿道夫·希特勒 (Adolf Hilter) 相提并论，使他重新回到了聚光灯下。
+事发后Harjot Singh Deo没有报警，反而是在家人帮助下将死者尸体放入一辆汽车内并放火伪造死亡现场。
 
-马斯克在回应 Coindesk 网站的一篇文章时发布了一条推文。在引用的一张图片标题为 “我有预算” 中， 将特鲁多和希特勒进行了讽刺性的比较。 希特勒： “不要把我和贾斯汀 · 特鲁多相提并论”。据 Rebel News 报道，马斯克在推特上发布了 “加拿大卡车司机为统治者”，以表示对卡车司机的支持。有7000多万粉丝分享了这条推文。
+Harjot Singh Deo的辩护律师说，事发时Harjot Singh Deo手持一支上膛的、被禁止和受限的手枪，手枪走火导致Dhesi意外死亡。
 
-马斯克的言论并没有受到自由党支持者的欢迎，他们指责他把希特勒与特鲁多相提并论，淡化了大屠杀的恐怖。然而那些指责马斯克轻描淡写希特勒暴行的人，在为特鲁多指责卡车司机抗议而援引纳粹而辩论时，却很快就为自己找到了借口。特鲁多曾谴责和平抗议者是白人至上主义者，还用了一系列其他词语将他们等同于纳粹。加拿大媒体和左翼政治人物也持有同样的观点。
+事发后Harjot Singh Deo试图隐藏死者的尸体。
 
-周三，特鲁多在回应反对他立场的犹太保守党议员梅丽莎 · 兰特曼（Melissa Lantsman）时说: “保守党成员可以和挥舞纳粹党徽的人站在一起，他们可以和挥舞南方联盟旗帜的人站在一起”。他还称，他的党与人民站在一起，他要让他们找回自己的工作和生活。这些非法抗议必须停止。
+Deo的四名家庭成员——包括他的母亲、兄弟和姐妹——在谋杀案发生后也被指控犯有从犯罪。
 
-伊隆 · 马斯克目前居住在美国，他的母亲是加拿大人，父亲是南非人，他十几岁时就住在加拿大，后来进入安大略省金斯顿的皇后大学学习。后来他搬到美国，在宾夕法尼亚大学学习。
+Deo的兄弟、25岁的Gurvinder Singh Deo和22岁的Talwinder Singh Khun Khun也被指控干扰尸体。Khun Khun被描述为一个大家庭的成员。
 
-[Source](https://www.rebelnews.com/elon_musk_draws_ire_for_comparing_trudeau_to_hitler)
+此案审判将于5月30日开始，预计将进行三到六周。
+
+据报道，Dhesi的尸体于2017年8月在素里24 Avenue和187 Street附近的一辆烧毁的SUV 中被发现。
+
+她是昆特兰理工大学的一名学生，死前几个月刚刚接受了肾移植手术。
+
+来源：https://globalnews.ca/news/8621452/ex-boyfriend-manslaughter-kiran-dhesi/
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

@@ -15,101 +15,101 @@
 
 ---
 
-### [加拿大自由车队是非暴力抗议的“胜利”](/content/gnews/1/README.md)
+### [加拿大生活美谈 2022-02-10第四十二期](/content/gnews/1/README.md)
+ ` canadalifetalk`
+
+### [加拿大自由车队是非暴力抗议的“胜利”](/content/gnews/2/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [岸田与普京就乌克兰局势举行电话会谈](/content/gnews/2/README.md)
+### [岸田与普京就乌克兰局势举行电话会谈](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [DC大中华时事：港共医管局规定须出示疫苗通行证，否则被解雇](/content/gnews/3/README.md)
+### [DC大中华时事：港共医管局规定须出示疫苗通行证，否则被解雇](/content/gnews/4/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [新闻述评：从即将闭幕的冬奥会看中共行将结束的政权](/content/gnews/4/README.md)
+### [新闻述评：从即将闭幕的冬奥会看中共行将结束的政权](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共病毒疫情下的日元处于50年来的新低点](/content/gnews/5/README.md)
+### [中共病毒疫情下的日元处于50年来的新低点](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|中共国暴力强拆至人重伤，女孩发视频哭求帮助](/content/gnews/6/README.md)
+### [有声|中共国暴力强拆至人重伤，女孩发视频哭求帮助](/content/gnews/7/README.md)
  ` MOSREC`
 
-### [谈谈喜交所接受比特币交易对于我的意义](/content/gnews/7/README.md)
+### [谈谈喜交所接受比特币交易对于我的意义](/content/gnews/8/README.md)
  ` 澳喜农场`
 
-### [战争经济 | 打与不打的乌克兰迷幻局势，人类有史以来最高等的游戏](/content/gnews/8/README.md)
+### [战争经济 | 打与不打的乌克兰迷幻局势，人类有史以来最高等的游戏](/content/gnews/9/README.md)
  ` YALUN 亚伦`
 
-### [有声|小议喜币和智慧](/content/gnews/9/README.md)
+### [有声|小议喜币和智慧](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [有声|北约秘书长批中共与俄罗斯领导人操弄小国未来](/content/gnews/10/README.md)
+### [有声|北约秘书长批中共与俄罗斯领导人操弄小国未来](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [美通过《2022年美国竞争法》，防止中共企业垄断](/content/gnews/11/README.md)
+### [美通过《2022年美国竞争法》，防止中共企业垄断](/content/gnews/12/README.md)
  ` GTV News Talk`
 
-### [有声|渣打被罚230万 墙内信用卡申请项目暂停](/content/gnews/12/README.md)
+### [有声|渣打被罚230万 墙内信用卡申请项目暂停](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [聚焦：乌克兰和台海危机远未结束](/content/gnews/13/README.md)
+### [聚焦：乌克兰和台海危机远未结束](/content/gnews/14/README.md)
  ` 丁过`
 
-### [伊隆马斯克将加拿大暴君贾斯汀特鲁多比作希特勒](/content/gnews/14/README.md)
+### [伊隆马斯克将加拿大暴君贾斯汀特鲁多比作希特勒](/content/gnews/15/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [大直播后记：财富的存在方式成为最大的统治工具](/content/gnews/15/README.md)
+### [大直播后记：财富的存在方式成为最大的统治工具](/content/gnews/16/README.md)
  ` 雅典娜GNotes`
 
-### [有声|文贵先生直播“三件大事”的速评](/content/gnews/16/README.md)
+### [有声|文贵先生直播“三件大事”的速评](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [以色列总理宣布终止疫苗“绿色通行证”](/content/gnews/17/README.md)
+### [以色列总理宣布终止疫苗“绿色通行证”](/content/gnews/18/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [日本麒麟退出中共软饮料市场](/content/gnews/18/README.md)
+### [日本麒麟退出中共软饮料市场](/content/gnews/19/README.md)
  ` GTV News Talk`
 
-### [灭共者之郭氏情报站（26）2022/02/16 文贵大直播](/content/gnews/19/README.md)
+### [灭共者之郭氏情报站（26）2022/02/16 文贵大直播](/content/gnews/20/README.md)
  ` MOS Designer香草山设计部`
 
-### [为开战俄罗斯可能栽赃乌克兰使用化学武器](/content/gnews/20/README.md)
+### [为开战俄罗斯可能栽赃乌克兰使用化学武器](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [昆特兰理工女大学生前男友认罪误杀侮辱尸体](/content/gnews/21/README.md)
+### [昆特兰理工女大学生前男友认罪误杀侮辱尸体](/content/gnews/22/README.md)
  ` MG FARM`
 
-### [伊隆 · 马斯克将特鲁多与希特勒相提并论而引发愤怒](/content/gnews/22/README.md)
+### [伊隆 · 马斯克将特鲁多与希特勒相提并论而引发愤怒](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [多伦多乘客被评为全国最讨厌的Uber乘客](/content/gnews/23/README.md)
+### [多伦多乘客被评为全国最讨厌的Uber乘客](/content/gnews/24/README.md)
  ` MG FARM`
 
-### [七哥金句：战友的事都是天大的事](/content/gnews/24/README.md)
+### [七哥金句：战友的事都是天大的事](/content/gnews/25/README.md)
  ` 雅典娜GNotes`
 
-### [七哥金句：不能学共产党](/content/gnews/25/README.md)
+### [七哥金句：不能学共产党](/content/gnews/26/README.md)
  ` 雅典娜GNotes`
 
-### [美国称俄罗斯正准备为入侵乌克兰找借口](/content/gnews/26/README.md)
+### [美国称俄罗斯正准备为入侵乌克兰找借口](/content/gnews/27/README.md)
  ` 蓝莲花农场`
 
-### [CDC主任表示将公布新的感染控制措施](/content/gnews/27/README.md)
+### [CDC主任表示将公布新的感染控制措施](/content/gnews/28/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [华盛顿智库：沉默的大多数正在威胁中共的独裁统治](/content/gnews/28/README.md)
+### [华盛顿智库：沉默的大多数正在威胁中共的独裁统治](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [自由卡车车队的组织者使用加密（数字）货币筹资](/content/gnews/29/README.md)
+### [自由卡车车队的组织者使用加密（数字）货币筹资](/content/gnews/30/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [2022/02/16 文贵先生直播精要](/content/gnews/30/README.md)
+### [2022/02/16 文贵先生直播精要](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2022/02/17 大卫作战室直播精要](/content/gnews/31/README.md)
+### [2022/02/17 大卫作战室直播精要](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [多伦多一公司500员工改为每周工作四天](/content/gnews/32/README.md)
- ` MG FARM`
 
 ### [新西兰财经G乐部2022年2月17日:财经新闻整理](/content/gnews/33/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
