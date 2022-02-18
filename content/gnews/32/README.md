@@ -2,39 +2,25 @@
 ---
 
 
-## 有声|无苗灭共者是爆料革命赠予未来的最大财富
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2025563/)
+## 加拿大通货膨胀率失控飙升
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2025642/)
 
-配音：香草山农场 – 信念7
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-郭文贵先生在2月13日的大直播中提出，“无苗灭共者”的意义极其深远，其中，“无苗”一词更是同“灭共”紧密地联系在一起。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide2-6.jpeg)
-郭先生解释道，爆料革命是最先提出“反对接种中共病毒疫苗”的组织，这挽救了无数战友及其家人们的生命，也成就了世界上最稀有的“无苗”一族。此外，郭先生的许多政商界友人也因此躲过了疫苗灾难，从而对爆料革命抱有无限的感激，成为灭共路上坚定的支持者。
+采编：文莱 翻译编辑：文所未闻
 
-另一方面，与中共的生化超限战截然不同的是，爆料革命勇于揭露中共病毒疫苗的真相，这也让新中国联邦赢得了无数的国际盟友。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/website-groceries2-800x420-1-edited-1.jpg)图片来源：tnc
 
-郭先生还补充道，分子生物学将成为未来最具前景的研发领域之一。彼时，未被中共病毒及其疫苗所破坏过的精子和卵细胞将是世界上最珍贵的财富。
 
-最后，郭先生指出，无苗灭共者可以被视为爆料革命赋予人类未来的最大财富。因此，战友们应该充分理解“无苗灭共者”所具有的意义，并时常因此而怀有感激，这也将使战友们生活得更加快乐。
+据加拿大媒体《真北方》2月16日报道，加拿大的年度通货膨胀率已经超过了5%，为1991年以来最高。
 
-文字版原文：[无苗灭共者是爆料革命赠予未来的最大财富](https://gnews.org/zh-hans/2020991/)
+据加拿大统计局当天数据显示，所有类别的商品价格都持续上涨，其中住房价格上涨6.2%，并直接导致其他所有相关商品价格的上扬。同时，食品成本也继续增长，与去年同期比上涨了6.5%；1月份的汽油价格比去年同期高出31%。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+报道称，加拿大国民在通货膨胀中不堪重负，约43%的人称其正为个人财务和偿还债务而挣扎。对此，保守党领导人贝尔根认为总理特鲁多应该对失控的高通胀率负责，同时谴责自由党政府在本次经济危机中没有实施任何有效解决方案。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+校对编辑：硫酸羟氯喹64
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+发稿：文明(添草灭共)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+原文链接： [https://tnc.news/2022/02/16/breaking-canadas-inflation-rate-rises-to-5-1/](https://tnc.news/2022/02/16/breaking-canadas-inflation-rate-rises-to-5-1/)
 
  
 

@@ -2,24 +2,33 @@
 ---
 
 
-## 秘翻在线：彻底失败的中共外交政治，将死之人习近平何去何从？
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2025459/)
+## 有声|HBO VICE 采访郭文贵先生背后的真相 – 揭露HBO VICE精心编织的谎言 Part-4
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2025600/)
 
-**撰稿：ping**
+配音：香草山农场 – 信念7
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+在HBO VICE播放的郭文贵先生采访视频中，记者ISOBEL YEUNG借用华尔街日报的虚假报道，将文贵先生定义为双面间谍。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1641.png)图片来源：Gettre
+而在未经剪辑的采访视频中我们看到，当记者试图就“双面间谍”问题征求文贵先生的意见时，文贵先生已经从中共的邪恶本质、行为特征、采取的各种措施，以及西方媒体与中共的勾结等方面给出了有力的反驳。接下来我们还原事实真相的第四部分：反击HBO-VICE利用华尔街日报的双面间谍报道来诋毁郭先生。
 
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-18-225338.jpg)
-中共媒体报道，国家主席习近平2月16日下午同法国总统马克龙通电话。就在法国刚刚访问俄罗斯后的时间点上，中共第一时间问候法国总统马克龙。习近平到底在担心什么呢？
+文字版原文：[HBO VICE 采访郭文贵先生背后的真相 – 揭露HBO VICE精心编织的谎言 Part-4](https://gnews.org/zh-hans/2020190/)
 
-中共一尊习近平，为了实现自己愚蠢的政治理想，一直计划攻打台湾。为达此目的不惜抛出千亿美元联合俄罗斯。俄罗斯近日从乌克兰撤出部分驻兵，并与欧洲和美国利用外交手段，大搞政治经济。美国总统拜登的政治战略眼光，加之俄罗斯总统普京的政治手腕，最终把中共玩弄于股掌之间。可惜习近平还穿着皇帝的新装，做着称霸世界的皇帝梦。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-习近平出巨资赞助俄罗斯攻占乌克兰，同时中共打着算盘计划在此时间点上攻打台湾。不幸的是习近平在这样的历史时期，同时遇到拜登和普京两位政治高手，他们都利用了中共的愚蠢，实现各自利益的最大化。习近平想利用美国无暇顾及两个战场的弱点来攻占台湾的计划，看来可能又要化为乌有了。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-美国时间2月16日，郭文贵先生爆料，习近平冬奥会后消失八天，是因为进行了一次肝和肾的大手术。当习本人苏醒过来后，则对身边人说，攻占台湾计划暂缓。或许这就正是应了“人之将死，其言也善“吧。但不论习近平本人是不是将死之人，这个决定对台湾同胞来说都是一个好消息！
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-虽然中共媒体一厢情愿鼓吹这次中法元首通话，为今中法，中欧关系的走向确定了继续“合作”的大方向。但是实际上，欧洲与中共脱钩已成定局。中共在美国与欧洲的“友好”时代已然成为了历史，新中国联邦则走上世界的历史舞台！
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-**[新闻来源](http://www.xinhuanet.com/politics/leaders/xijinping/index.htm)**
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
