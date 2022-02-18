@@ -2,38 +2,39 @@
 ---
 
 
-## 疫苗灾难显现 加拿大萨省免费提供艾滋病毒自检工具包
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2022631/)
+## 有声|警察和抗议者同样渴望人权,自由
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2022686/)
 
-翻译：冰糖葫芦喵
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+特鲁多宣布:国家紧急令之后。包括安大略省,魁北克省在内的省马上宣布:取消疫苗护照,逐步放开政策。但是这帮政客说:与自由卡车无关而是基于科学。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/687-0-1.jpg)
+死要面子的元耻政客不承认取消疫苗护照是因为卡车司机的和平抗争让他们害怕了。
 
-编辑与校对：冰糖葫芦喵、灭共文明
+暴君特鲁多想用国家紧急令吓退卡车司机彻底失败。
 
-加拿大国际广播电台（CBC）2月16日报道，**加拿大萨斯喀彻温省将免费提供艾滋病毒自检工具包，居民现在能够在家中自行检测人体免疫缺陷病毒(艾滋病毒)。**
+在反对疫苗暴政。争取人权,自由的问题上连恐怖分子都不配合特鲁多政府。和平抗议是合法的。特鲁多找不到镇压的理由。警察也是人也渴望人权。自由。以他们与抗议者在国歌中互相拥抱这是信仰的力量。特鲁多将作为暴君载人史册这是他的遗产。
 
-据报道，全省23个地点向公众免费提供艾滋病毒自检包。该省表示，检测试剂盒也可以在网上购买，并直接从商家送到居民的家中。
+文贵先生早在香港反送中运动中就提倡香港抗我者使用卡车阻挡警察的阵压。这这倡议证明是非常有效的明智选择。
 
-根据该省周三发布的一份新闻稿，自检在一分钟内就能提供初步结果，只需要从一个人的**指尖取一点血就可以完成，其抗体测试的准确率为99.5%。**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/萨省HIV测试2-1.jpg)艾滋病自我检测工具（图片来源：路透社）
-在新闻发布会上，**该省表示:“当艾滋病病毒得到早期诊断和治疗时，人们可以活得更长、更健康。迅速知道自己是否感染了艾滋病病毒，也能让你采取预防措施，**防止病毒传播给他人。”
+文字版原文：[警察和抗议者同样渴望人权,自由](https://gnews.org/zh-hans/2021534/)
 
-卫生部长保罗·梅里曼(Paul Merriman)在新闻稿中说:“我们已经看到了快速和容易获得家庭检测选项的明显好处。”
-![](https://assets.gnews.org/wp-content/uploads/2022/02/萨省HIV测试1.jpg)艾滋病自检测试工具包（图片来源：加拿大广播电台）
-该省表示，在自检试点项目的头几周内，覆盖率很高，向公众提供了70多套自检试剂盒。分发工作从1月份开始。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-**南萨斯喀彻温省艾滋病项目（APSS）的教育和信息专家雷迪（Vidya Reddy）表示，在过去，自检的费用相当昂贵，而APSS并不是总能获得自检。**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/萨省HIV测试3-1.jpg)加拿大安省药房药剂师介绍提供免费HIV测试包（图片来源：加拿大媒体）
-雷迪还说：“知道你是阳性还是阴性的唯一方法就是去做检测。**因为艾滋病毒没有任何明显的症状。对每个人来说，接受检测是很重要的，**尤其是那些处于任何高风险接触中的人。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**评论：**
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-**加拿大**政府开始推广全民接种疫苗已经将近一年的时间，截至目前，全国**已有80%的人完全接种了中共病毒疫苗，是接种率世界上最高国家之一。**
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-爆料革命揭示的疫苗真相表明，今年5月份疫苗灾难将大规模爆发。届时，**接种过疫苗的人，自身的免疫力将会逐步完全丧失，疫苗接种者将会得各种奇怪的病，很多人会因为一个很不起眼的病而丧失生命。其症状类似于艾滋病。唯有那些没有注射疫苗的人，才是拯救人类的希望。**
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-**新闻链接：**
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-[Free HIV self-test kits now available to the public across Saskatchewan | CBC News](https://www.cbc.ca/news/canada/saskatchewan/free-hiv-self-test-kits-now-available-to-the-public-across-saskatchewan-1.6354026)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

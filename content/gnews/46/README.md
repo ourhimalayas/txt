@@ -2,39 +2,32 @@
 ---
 
 
-## 大卡车运动源于郭先生当年在香港运动的策划！
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2020451/)
+## 班农先生呼吁追责中共并改变治世模式
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2020829/)
 
-作者：香草山信息部 6zero4
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-31.png)
-郭先生在2月13日的大直播中提及，当下在加拿大、澳大利亚、法国等国的大卡车运动，就是源于郭先生当年在香港“反送中”运动中策划的大卡车封路运动。大卡车运动的本质是把当下和未来的经济活动完整而完美地与政治运动结合在一起，成为夺回话语权、走向新民主的可靠方式，是和平抗议应对暴政非常有效的秘密武器。其意义之非凡，价值之深远难以想象！
+作者：纽约磐石农场 – 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月15日，据盖特消息显示，班农先生近日在接受采访时指出，郭文贵先生此前反复强调，当民意跌至谷底时，中共病毒疫苗强制令就会发生改变。如今，全球政客的民意调查都显示出灾难性的结果，于是，那些推行强制疫苗和疫苗护照的政客们纷纷转变了风向。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/4-38.jpg)
+班农先生也提到，正如郭先生示警的那样，中共病毒不仅是来自武汉病毒研究所的生化武器，其更是中共及其他黑暗势力借此以疫苗进行杀戮的工具。为此，美国必须小心谨慎地公布与之相关的证据和事实，从而对中共与所有涉及人员进行追责，进而揭露邪恶势力的这一布局。
 
-所有加拿大、澳大利亚、法国等国的民间反疫苗暴政运动组织者没有不跟郭先生联系的，他们问郭先生：“我们怎么能停止疫苗？”郭先生让他们观摩当年香港唯一赢了的抗议方式—大卡车封路运动。回想当年香港年轻人经久不息的反抗中共暴政活动，如Be Water等能想到的抗议方式五花八门、应有尽有，但除大卡车运动外香港所有的抗议全输。
+班农先生还指出，目前，所有的证据都掌握在正义力量的手中，所有的谎言和虚假陈述都将不攻自破。最终，全球追责的目标都将指向中共，而这些证据将为推翻中共提供基本的事实和依据。更重要的是，在追责的过程中，政府治理世界的方式也将随之改变。
 
-大卡车封路运动其精髓在于把握了一个社会运作最基本也最核心的常识判断：把握经济命脉！即以点击面，用大卡车罢工并堵路切断经济运行最基本的流通环节，从而让整个关系到国计民生的经济陷于瘫痪和停摆。因为其它抗议方式只会让当局感到烦和累，而现代人类97.8%的物流都需要在陆地上进行，而大卡车就是这种点到点物流不可替代的交通工具，因此大卡车运动让当局感受到了无法承受的剧痛与无奈，只有这样当局才会反思自己的暴政，才有可能坐下来跟民众谈判。
+参考链接：[GTV UK Mr. Bannon’s Weekly Interview 0209-Q5 #bannonweeklyinterview](https://gettr.com/post/puksq95c41)
 
-郭先生告诫大卡车运动的核心是千万不要有任何暴力举动，不要让当局抓住把柄，否则当局就有了开枪等暴力镇压的机会。同时，郭先生还及时制止了将盖特Logo临时改成“大卡车加拿大”这个单纯而善良的举动，否则就成了被杨贝贝背后的共产党利用的第二个川普的1.6国会山事件。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-正如郭先生早已发出的预言：发生在香港的事情，一定会发生在全世界各个角落！尤其是郭先生在香港运动中策划的大卡车运动，是当下民众和平反抗独裁暴政行之有效的最佳方式，全世界各国反抗暴政的大卡车运动将此起彼伏，如星星之火呈燎原之势！
-
-2022年2月17日
-
-图片和新闻源于：[https://gtv.org/video/id=62090115a456fe1dea300f5a](https://gtv.org/video/id=62090115a456fe1dea300f5a)
-
-编辑/审核/发稿：Bronx Bombers
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-36.jpg)
+总编: Irene木木
+编辑： 静言
+校正/发稿：Fei797
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

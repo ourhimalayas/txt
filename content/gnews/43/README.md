@@ -2,32 +2,29 @@
 ---
 
 
-## 班农先生呼吁追责中共并改变治世模式
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2020829/)
+## 加拿大司法部长称将进行投票的紧急法应遵守权利和自由宪章
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2021144/)
 
-作者：纽约磐石农场 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月15日，据盖特消息显示，班农先生近日在接受采访时指出，郭文贵先生此前反复强调，当民意跌至谷底时，中共病毒疫苗强制令就会发生改变。如今，全球政客的民意调查都显示出灾难性的结果，于是，那些推行强制疫苗和疫苗护照的政客们纷纷转变了风向。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/4-38.jpg)
-班农先生也提到，正如郭先生示警的那样，中共病毒不仅是来自武汉病毒研究所的生化武器，其更是中共及其他黑暗势力借此以疫苗进行杀戮的工具。为此，美国必须小心谨慎地公布与之相关的证据和事实，从而对中共与所有涉及人员进行追责，进而揭露邪恶势力的这一布局。
+#### 编译：Cran
 
-班农先生还指出，目前，所有的证据都掌握在正义力量的手中，所有的谎言和虚假陈述都将不攻自破。最终，全球追责的目标都将指向中共，而这些证据将为推翻中共提供基本的事实和依据。更重要的是，在追责的过程中，政府治理世界的方式也将随之改变。
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/02/16451132611.png)[Image Source](https://candicebergen.ca/)
+加拿大，据2月16日CTV报道，临时保守党领袖坎迪斯·伯根(Candice Bergen) 表示，该党不会支持联邦政府提出有关实施紧急状态法的议案。她说，“当总理特鲁多（Trudeau）没有按照规定的步骤做而是直接跳到最终的紧急状态法”。在当地的执法机构正在试图解决封锁的问题时，为什么他要采取这种激烈的行动？
 
-参考链接：[GTV UK Mr. Bannon’s Weekly Interview 0209-Q5 #bannonweeklyinterview](https://gettr.com/post/puksq95c41)
+保守党议员玛丽莲·格拉杜（Marilyn Gladu）称此举是“权力争夺”。 她说，全国性的紧急状况没有发生，加拿大的安全没有受到威胁，但边境的和平抗议活动却被镇压。特鲁多总理没有利用现有的权力行事。他的所作所为是要夺取更多更据影响力的权力。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+公共安全部长马尔科·门迪奇诺（Marco Mendicino ）于周三晚间在下议院提交了实施紧急状况法的动议。随后政府众议院领导人马克.荷兰（Mark Holland）在推特表示，他希望进行一场激烈的”辩论，然后进行议员投票。
 
-总编: Irene木木
-编辑： 静言
-校正/发稿：Fei797
+作为议会根据《紧急状态法》行使权力的监督要求的一部分，政府必须在七个会议日内向众议院和参议院提交一项动议，概述联邦官员认为需要这些权力的原因，并详细说明将采取的具体措施，然后取得两个议会机构确认。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+如果该动议获得通过，紧急权力将继续有效，鉴于民进党已发出支持自由党的信号，预计该动议将可能继续有效。然而，它能否通过上议院还有待观察。
+
+周二深夜，特鲁多政府发布了更详细的规定，概述了通过该法案实施的权力。其中包括保护疫苗诊所、禁止儿童进入抗议和封锁场所、保护战争纪念馆，以及指导基本服务。
+
+司法部长戴维·拉梅蒂 （David Lametti）说，这些规定将于周四提交下议院。下议院和参议院都将进行辩论和投票，议会可以修改或撤销我们做出的任何命令。这是该法案中一个重要的民主制衡。他说 “至关重要的是，我们根据《紧急状态法》采取的所有行动都将遵守《权利和自由宪章》。这一要求已纳入立法本身”。
+
+[Source](https://www.ctvnews.ca/politics/conservatives-not-backing-emergencies-act-mps-to-debate-motion-thursday-1.5783799)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
