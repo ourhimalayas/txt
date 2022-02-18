@@ -2,20 +2,20 @@
 ---
 
 
-## 咖啡将会大涨
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2027098/)
+## 爱尔兰疫苗受害者提起刑事诉讼
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2027130/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+加拿大温哥华扬帆农场    平民正道
 
-*发布：陶子*
+据加拿大【反叛新闻】2月16日报道，因遭受“新冠病毒”疫苗伤害，爱尔兰的[布拉尼]女士于日前对相关机构和人员提起刑事诉讼。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+报道称，该指控的被告包括：疫苗接种人员、接种中心负责人、国家免疫咨询委员会负责人、健康与安全局负责人以及卫生部长唐纳利等。
+
+据悉，[布拉尼]女士在去年5月接种疫苗后不久，就出现视力受损、面瘫、剧烈头痛等病症，经多次住院治疗至今仍未好转。由于失去了基本行动能力，该女士被迫长期居家不能外出，身心健康因此备受摧残。
+
+* * *
+
+编辑： 平民正道    发布：平民正道
 
  
 

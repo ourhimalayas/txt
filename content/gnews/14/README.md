@@ -2,66 +2,18 @@
 ---
 
 
-## 俄罗斯刚刚炸毁乌克兰东部一条重要天然气管道
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2027179/)
+## 【粤语配音】2022年2月18日：不要让无知把自己给毁了，五月份前坚持不要外出
+` MOS香港部` [轉載自GNews](https://gnews.org/zh-hans/2027188/)
 
-**参议员马可.卢比奥**： [#俄罗斯](https://twitter.com/hashtag/%E4%BF%84%E7%BD%97%E6%96%AF?src=hashtag_click) [#Russia](https://twitter.com/hashtag/Russia?src=hashtag_click) 刚刚炸毁了#乌克兰 [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hashtag_click) 东部的一条重要天然气管道，现在将错误地归咎于乌克兰军队。 他们的宣传机构在其发生几分钟后就开始传播它。 【转俄罗斯新闻网推文图片称：强力爆炸击中了乌克兰东部的另一个城市】
+紐約香草山-香港部
 
+人类出现了一大半的人打了疫苗，现在世界上竟然那么快承认说，疫苗打得不能再打了，打了有问题，这是多吓人呢，这真的是所谓的奇门遁甲里面，叫做仙脚印儿，仙人脚是干什么的？就是能知道仙人走向哪里，现在咱们新中国联邦基本上有奇门遁甲里的仙人脚的境界了，是吧，全人类这么多的牛人都完蛋了，结果咱们是这样。
 
+我再重申一遍兄弟姐妹们，你们不要在五月份以前，有尝试任何愚蠢的把孩子送到学校去，不要尝试任何的原因，找借口出去混去、吃去、喝去，五月份以前，听七哥的，你就坚持到五月份，到五月份你自己来做决断。
 
-> [#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw) just blew up an important gas pipeline in Eastern [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) & will now falsely blame it on Ukrainian forces. And their propaganda outlets started spreading it just minutes after it happened. [pic.twitter.com/9bWrSvcQ0y](https://t.co/9bWrSvcQ0y)
-> — Marco Rubio (@marcorubio) [February 18, 2022](https://twitter.com/marcorubio/status/1494788172626202629?ref_src=twsrc%5Etfw)
+第三个在任何国家所谓放开的情况下，你的口罩，你的防疫措施一点都不能少，还有一个，任何情况下和未来的三五年内，疫苗灾难开始的时候，我们就是一个，少出门、少上马路上、少到公共场所，这是一定要遵守的安全的生活方式，听七哥的，你不要币在喜联储，人到了天堂，我们让共产党睡进了大卫为他准备的棺材别里面，别把自己装进去，你别把战友你傻乎乎的自己…币在人家手里面还没发花出去，人把他装到棺材里面去了，这个疫苗的灾害，它是不长眼的，你没打疫苗，结果打了疫苗的车祸把你给撞了，飞机掉下来把，你给摔了，你们怨不怨呢？是不是？老老实实的吧，老老实实的、认认真真的，不要让无知把自己毁了，如果你走了那一步，躲过了这一关、二关、三关，到最后一关你被干掉了，那你真的是活该，我们都给了你仙人脚的这种境界，给你保护的环境，还保护不了你，那你只能是被小鬼带走了，还有兄弟姐妹们，不灭共，一切都扯淡，灭了共，我们说什么都是有道理的。
 
-
-
-**美国国务院**： 国务卿布林肯[@SecBlinken](https://twitter.com/SecBlinken)：我们必须解决俄罗斯现在对 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click) 所做的事情……俄罗斯说它正在撤军。 我们却没有看到这种情况实地发生。
-
-【附布林肯的讲话视频】
-
-
-
-> .[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw): We must address what Russia is doing right now to Ukraine…Russia says it’s drawing down forces. We do not see that happening on the ground. [pic.twitter.com/Gq0h1pI9xo](https://t.co/Gq0h1pI9xo)
-> — Department of State (@StateDept) [February 18, 2022](https://twitter.com/StateDept/status/1494703253786824707?ref_src=twsrc%5Etfw)
-
-
-
-**参议员马可.卢比奥**： 我们知道 [#普京](https://twitter.com/hashtag/%E6%99%AE%E4%BA%AC?src=hashtag_click) [#Putin](https://twitter.com/hashtag/Putin?src=hashtag_click) 在入侵 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click) [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hashtag_click) 之前会采取的每一步现在都已经发生了。 接下来的几天里，世界将发生很大变化。
-
-
-
-> Every single step we knew [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw) would take before invading [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) has now happened. 
-> 
-> The world is going to change a lot over the next few days.
-> — Marco Rubio (@marcorubio) [February 18, 2022](https://twitter.com/marcorubio/status/1494783604148383749?ref_src=twsrc%5Etfw)
-
-
-
-**参议员罗杰·马歇尔**: 当一些人迎合 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 和 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 时，球星埃内斯·坎特[@EnesFreedom](https://twitter.com/EnesFreedom) 发声了。 作为一名新的美国公民，他继续为自由而发声。 【附视频，马歇尔议员与埃内斯·坎特对谈，谈论为自由发声，谴责中共践踏人权】
-
-
-
-> While some pander to China & the CCP, [@EnesFreedom](https://twitter.com/EnesFreedom?ref_src=twsrc%5Etfw) speaks up. As a new American citizen, he continues to speak up on behalf of freedom. [pic.twitter.com/H1S03xryIO](https://t.co/H1S03xryIO)
-> — Dr. Roger Marshall (@RogerMarshallMD) [February 18, 2022](https://twitter.com/RogerMarshallMD/status/1494729488172789761?ref_src=twsrc%5Etfw)
-
-
-
-**参议员泰德·克鲁兹**： 随着在 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的奥运会的继续进行，每个美国人都应该说真话，大声谴责 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的种族灭绝。 【附视频，展示中共犯下的种族灭绝罪行，克鲁兹议员呼吁人们大声说出真相】
-
-
-
-> As the Olympics in China continue, every American should speak the truth and call out China’s genocide. [pic.twitter.com/uv5OOOftGH](https://t.co/uv5OOOftGH)
-> — Senator Ted Cruz (@SenTedCruz) [February 18, 2022](https://twitter.com/SenTedCruz/status/1494733694707322880?ref_src=twsrc%5Etfw)
-
-
-
-**美国国会中国委员会**： 令人失望的是，NBC体育没有报道 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的大规模人权侵犯，也没有报道奥委会新闻媒体为 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 政府提供了一个无批评的宣传平台的共谋。他们可以祝贺运动员和为全球观众提供关于冬奥会主办国的内容。 【转华盛顿邮报，NBC 几乎对中国在奥运报道中的侵犯人权行为保持沉默】
-
-
-
-> It is disappointing that [@NBCsports](https://twitter.com/NBCSports?ref_src=twsrc%5Etfw) has not covered massive human rights abuses in China or the [@iocmedia](https://twitter.com/iocmedia?ref_src=twsrc%5Etfw)'s complicity in giving the Chinese gov't a criticism-free platform for propaganda. They can celebrate athletes & give global viewers context about the [#Olympic](https://twitter.com/hashtag/Olympic?src=hash&amp;ref_src=twsrc%5Etfw) host country. [https://t.co/Ag1Zf6re2g](https://t.co/Ag1Zf6re2g)
-> — China Commission (@CECCgov) [February 18, 2022](https://twitter.com/CECCgov/status/1494669967282823171?ref_src=twsrc%5Etfw)
-
-
+还有一个把那些欺民贼还有那些杂音的主流媒体报道啊，说老实话当成娱乐。
 
  
 

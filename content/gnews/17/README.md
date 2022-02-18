@@ -2,20 +2,30 @@
 ---
 
 
-## 爱尔兰疫苗受害者提起刑事诉讼
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2027130/)
+## NFSC新闻、G|TV新闻访谈简报|2022年2月18日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2027141/)
 
-加拿大温哥华扬帆农场    平民正道
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO-2.jpg)
 
-据加拿大【反叛新闻】2月16日报道，因遭受“新冠病毒”疫苗伤害，爱尔兰的[布拉尼]女士于日前对相关机构和人员提起刑事诉讼。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-17.png)
+文章仅代表作者本人观点，与Gnews无关
 
-报道称，该指控的被告包括：疫苗接种人员、接种中心负责人、国家免疫咨询委员会负责人、健康与安全局负责人以及卫生部长唐纳利等。
+视频参看：
+[2022.02.18早 《NFSC新闻》](https://gtv.org/video/id=620f9ee1b706176dd78c862a)
+[2022.02.18早 G|TV《新闻访谈》](https://gtv.org/video/id=620fa720b706176dd78c940b)
 
-据悉，[布拉尼]女士在去年5月接种疫苗后不久，就出现视力受损、面瘫、剧烈头痛等病症，经多次住院治疗至今仍未好转。由于失去了基本行动能力，该女士被迫长期居家不能外出，身心健康因此备受摧残。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-2.png)
 
-编辑： 平民正道    发布：平民正道
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

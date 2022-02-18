@@ -2,32 +2,32 @@
 ---
 
 
-## 2022/02/15 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2026958/)
+## 七哥谈三个最惨最危险的国家
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2027010/)
 
-1. 2月15日，广东深圳的街道，中共以疫情防控为由进行的封控措施在常态化的持续着。
-2. 2月15日。中共通报湖南郴州出现2例香港返郴人员新冠肺炎确诊病例，整个城市经济瞬间陷入停摆，餐饮店老板忧心忡忡。
-3. 中共各地房地产房市呈现崩盘迹象，平均房价相比最高点均出现对折处理的情况。
-4. 未来中国大陆将会大量出现视频中这种无人居住的废弃楼盘的场景。
-5. 2月13日，云南，一岁女婴被拐30年后回乡认亲祭拜死去父亲。中共国大陆存在大量普通人家妇女儿童被拐案件被中共政府放纵无视。
-6. 河南市民吐槽申诉交通违章罚错退款被耗时一年走审批程序，花费¥300，退款¥200。
-7. 2月14日深圳，父亲通过远程摄像头记下赣州老家的儿子凌晨五点独自一人离家上学画面，小男孩打着手电，陪伴他的只有两条忠实的狗。 #留守儿童
-8. 2月14日，江苏昆山。大润发员工更换商品标签时，直接穿鞋进冷柜踩冷冻食品被曝光。
-9. 擅长丧事喜办的中共政府将2021年河南大水灾时救人的“京广路隧道呐喊哥”，项城人侯文超评为第八届周口市见义勇为道德模范。但是却严密掩盖郑州大水灾的实际死亡人数。
-10. 2月11日，山东沛县卡车司机接受记者采访时吐槽，现在行业艰难，大家都是勉力维持。
-11. 2月3日，浙江温州。一民警执勤时突然昏厥倒地被摄像头记录下来，中共宣传机构宣传为劳累所致。
+文编：Hima
+听写：叮叮
+视频：七哥
 
+2022-02-09直播摘录11：06：25
 
-* * *
+最惨的，最危险的， 我认为三个国家。 俄罗斯， 就东欧国家排华会超出你想象。 还有个再一次会席卷印尼东南亚， 然后就是共产党给了无数个处女让人家睡觉的 非洲。 非洲是太危险了， 太危险了。
+非洲、 东南亚、 东欧、 俄罗斯。 七哥在这个问题上一点信心都没有 。我们努力吧。 谢谢。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
+**关注我们**
 
-编辑：【英国伦敦喜庄园编辑部】
+Discord 账号
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

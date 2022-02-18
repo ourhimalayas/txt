@@ -2,27 +2,48 @@
 ---
 
 
-## 喜币场外交易额和喜联储KYC量再创新高
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2026650/)
+## 香港中共病毒形势失控
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2026808/)
 
-采编/编译撰稿：硫酸羟氯喹64            校对编辑：硫酸羟氯喹64
+作者：纽约香草山农场 – 四季
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/20220218_142903.jpg)图片来源：gettr
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
 
-据2月17日盖特最新消息，随着中共国乃至世界经济和金融秩序的失控崩乱，在文贵先生个人宣布破产当天，喜币的场外交易额和喜联储的KYC申请量均到达上市后的最高值。
 
-目前，在饱受疫情恶化和中共黑警的双重蹂躏下，香港不仅已可悲沦为全世界外来投资最不安全的地方，而且原有的种族文化和谐已被中共流氓政权破坏殆尽。因此更加凸显灭共是正义的必须。
 
-此外，锁链女作为中共当年残酷劫掠西藏参与者的女儿，其如今的悲惨遭遇，无不淋漓体现出天意循环的现世报应。而不相信神灵，不辨善恶的共产党员将必遭此劫。
 
-同时，喜支付的发展突飞猛进，包括在日本食品供销链中的推广，在巴西和俄罗斯巨额金矿交易中的应用，还有在欧洲的家具和服装行业，都因为喜支付的安全快捷和零费用而被各行各业迅速认可并广泛接受。
+据[布赖特巴特新闻网](https://www.breitbart.com/asia/2022/02/16/hong-kong-coronavirus-situation-out-of-control-under-chinese-rule/)2月16日报道，香港当地新闻媒体Coconuts Hong Kong周二称，香港目前正面临着最严重的中共病毒爆发，同时也受到政府当局中亲中共势力的日益统治。
 
-文贵先生最后表示，在经历过艰难生死和非凡财富之后，其个人破产更加让他轻松和快乐，并将加速让战友们拥有更多自由财富的进程。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GettyImages-1238519467-640x480-1.jpg)Peter Parks/AFP Getty Images
 
-发稿：文明(添草灭共)
+数以千计的感染者在家中等待被送入医院或其他隔离设施. 香港卫生当局2月14日检测到创纪录的中共冠状病毒新病例，有2071名新的感染者被确认，这是连续第四天出现四位数的病例。
 
-消息来源：[https://gettr.com/post/pv3wdr2e0a](https://gettr.com/post/pv3wdr2e0a)
+香港政府周二表示，它计划通过将”几座”新的公共租赁房屋改建为隔离设施，来容纳该市数量激增的新冠状病毒患者。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2月.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 

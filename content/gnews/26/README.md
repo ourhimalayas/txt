@@ -2,37 +2,50 @@
 ---
 
 
-## DC每日热点0218
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2026921/)
+## 研究显示：TikTok可以绕过苹果和谷歌的隐私保护获取用户数据
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2026982/)
 
-编辑：楚门门
-![](https://assets.gnews.org/wp-content/uploads/2022/02/11C14468-ACFD-4ECF-93A4-9427D74B7971-scaled.jpeg)
-道琼斯指数 34273.64 ▼0.11%
-纳斯达克指数 13702.47 ▼0.10%
-WTI纽约原油CFD 88.216▼1.98%
-布伦特原油CFD 91.272 ▼1.77%
-标普50指数 2,903.59▼54.90%
-美元兑人民币 1USD=6.337 RMB
-美元兑港币 1USD=7.799 HKD
-国际黄金 1897.40美元/盎司
-全球CCP病毒感染人数420,872,278例
+作者：纽约香草山农场 – 四季
 
-1、香港以疫情为由宣布特首选举延后两个月举行
-2、为避免领导人遭恶搞和数据采集，中共国欲加强深度合成技术监管
-3、中共国政治介入冬奥会 冬奥组委会发言人首次谈台湾和新疆议题，并强调“一中”政策
-4、美国安全问题专家呼吁对更多中共国大学进行制裁，以限制他们协助中共发展网络黑客袭击
-5、报告：世行旗下国际金融公司在新疆资助涉嫌强迫劳动的公司
-6、拜登收到普京回函，白宫仍然相信俄罗斯近期将入侵乌克兰
-7、美司法部启动新倡议，打击利用供应链中断谋取不法利润的行为
-8、香港新冠病毒确诊者批当局安排混乱 质疑防疫政策浪费资源
-9、美国公布恶名市场名单，微信和阿里速卖通上榜
-10、防堵中共窃取半导体等核心技术，台湾行政院推动修法
-11、慕尼黑安全年会召开 德外长批俄罗斯的要求源自“冷战时代”
-12、俄罗斯宣布将于本周六举行包括弹道导弹测试在内的“战略威慑”军事演习
-13、美俄防长通话 美驻欧安组织大使：俄部队集结规模达到16.9万至19万人
-14、习近平倡加强域外法权立法以开展国际斗争
-15、东盟缅甸问题特使呼吁军政府为其会见反对派代表开绿灯
-16、澳大利亚内政部长宣布将把哈马斯列入恐怖组织名单
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
+
+据[布莱特巴特新闻网](https://www.breitbart.com/tech/2022/02/16/study-chinas-tiktok-can-bypass-apple-and-google-privacy-protections-access-user-data/)2月16日报道，最近的两项研究显示，中共拥有的社交媒体TikTok可以绕过苹果和谷歌应用商店的安全保护措施，获得对用户数据的全面访问权限。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/China-computers-640x480-1.jpg)Dmitry Nogaev/Getty Images
+
+这些研究是由 “白帽子”网络安全专家分别于2020年11月和2021年1月完成的。
+
+研究摘要表明，TikTok能够绕过苹果和谷歌应用商店的代码审计，并能够在用户不知情的情况下更改应用程序的行为、访问设备跟踪功能，使中共国公司和第三方能够访问完整的用户数据。
+
+网络安全公司Conquest Cyber表示，这远远超过了Facebook和Twitter等美国制造的应用程序对用户数据的访问权限。这些动态属性允许TikTok在应用程序可以看到的范围内全权访问您的设备。TikTok浏览器不仅可以访问从网络到设备的转换，而且还可以查询设备本身的内容。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2月.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 

@@ -2,12 +2,46 @@
 ---
 
 
-## 2月18日文贵大直播摘要（图片1-4）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2027218/)
+## 第204期 玫瑰看新闻
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2027353/)
 
-设计：五月花农场 科存
-![](https://assets.gnews.org/wp-content/uploads/2022/02/C45CA077-5E1B-44FA-9CD4-0DFA983B4F43.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/94DFF92B-A3A1-4E67-B326-CB8E3C507D7F.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/AF25633A-D5BF-4911-8592-A77816A6F140.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/B6B663A0-0A78-4A44-BC88-4FE35E2EAB44.png)
-发布：水涨船高
+【回魂时刻】疫苗受害者专题新闻
+
+1.Juliet Valdez：56 岁的菲律宾教师在第二次接种“疫苗”后12 周死亡
+
+2.菲律宾：26 岁的Gabad-Dizon 女士接种了一次辉瑞疫苗六个月后突然死亡
+
+3.英国40 岁专业音乐家Matthew Dibble 接种疫苗后死亡
+
+4.德国15 岁少女Cheyenne Braun 接种疫苗三周后死亡
+
+5.BBC主持人Lisa Shaw接种疫苗后未满一月死亡
+
+
+
+
+
+
+
+**推出问题，敲出真相，爆料在路上！**
+
+**请关注和订阅我们的以下账号：**
+
+**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+
+**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+
+**玫瑰看新闻YOUTUBE账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**ROSE NEWS**
+
+**【玫瑰看新闻】推特账号**：
+
+**ROSE NEWS (@ROSENEWS4)A**
 
  
 

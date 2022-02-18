@@ -2,30 +2,24 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年2月18日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2027141/)
+## 喜币场外交易额和喜联储KYC量再创新高
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2027153/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO-2.jpg)
+加拿大温哥华扬帆农场    平民正道
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-17.png)
-文章仅代表作者本人观点，与Gnews无关
+据2月17日盖特最新消息，随着中共国乃至世界经济和金融秩序的失控崩乱，在文贵先生个人宣布破产当天，喜币的场外交易额和喜联储的KYC申请量均到达上市后的最高值。
 
-视频参看：
-[2022.02.18早 《NFSC新闻》](https://gtv.org/video/id=620f9ee1b706176dd78c862a)
-[2022.02.18早 G|TV《新闻访谈》](https://gtv.org/video/id=620fa720b706176dd78c940b)
+目前，在饱受疫情恶化和中共黑警的双重蹂躏下，香港不仅已可悲沦为全世界外来投资最不安全的地方，而且原有的种族文化和谐已被中共流氓政权破坏殆尽。因此更加凸显灭共是正义的必须。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+此外，锁链女作为中共当年残酷劫掠西藏参与者的女儿，其如今的悲惨遭遇，无不淋漓体现出天意循环的现世报应。而不相信神灵，不辨善恶的共产党员将必遭此劫。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-2.png)
+同时，喜支付的发展突飞猛进，包括在日本食品供销链中的推广，在巴西和俄罗斯巨额金矿交易中的应用，还有在欧洲的家具和服装行业，都因为喜支付的安全快捷和零费用而被各行各业迅速认可并广泛接受。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+文贵先生最后表示，在经历过艰难生死和非凡财富之后，其个人破产更加让他轻松和快乐，并将加速让战友们拥有更多自由财富的进程。
+
+* * *
+
+编辑： 平民正道    发布：平民正道
 
  
 
