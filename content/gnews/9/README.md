@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：两条路：死亡和赢
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2033616/)
+## 七哥金句：爆料革命靠什么成长
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2033678/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句1.001-2.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句5.001-1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句7.001-scaled.jpg)
 整理：雅典娜农场
 发布：枫叶红了
 
