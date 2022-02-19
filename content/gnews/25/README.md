@@ -2,8 +2,8 @@
 ---
 
 
-## 20220202文贵大直播：HPay不仅绝对安全，而且将无处不在
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2030317/)
+## 20220202文贵大直播：HPay的上线战友们要做的三件事
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2030422/)
 
 作者：东京樱花团视频小组
 

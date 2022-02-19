@@ -2,8 +2,8 @@
 ---
 
 
-## 20220202文贵大直播：Hpay是人类无条件支付的本能！
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2030387/)
+## 20220218文贵大直播：躺平币前几波最便宜的一定是属于战友的
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2030480/)
 
 作者：东京樱花团视频小组
 

@@ -2,31 +2,41 @@
 ---
 
 
-## 英澳两国领导人指责中共侵犯人权之罪
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2030272/)
+## 秘翻在线：台湾谴责中共国利用冬奥会推动“政治宣传”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2030357/)
 
-作者：银河系农场 – 骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据外媒报道，英国与澳大利亚两国领导人日前进行了视频通话，中共国对新疆的种族大屠杀表示深刻关切，同时呼吁保护香港的自由人权和高度自治，维护台湾海峡两岸的和平与稳定，南中国海海事权利和自由，强烈反对军事威胁和恐吓，并警告俄罗斯不要入侵乌克兰。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/YKJ7CMNQV5K5ZJSRRYQJZIWTCI.jpg)
-据悉此前四国集团美日印澳会议承诺深化合作，以对抗中共在印太地区日益扩张的经济和军事实力。在国际上，美国已将中共对新疆的大屠杀定义为种族灭绝罪，中共对香港实行的国安法，严重侵犯香港的民主自由，同时中共频繁入侵台湾航空区对台湾造成的战争压力也深受国际社会谴责。台湾对英澳表示感谢，并愿继续与英澳等民主国家深度合作。
+**编译：JIHO**
 
-参考链接：
+**校对：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-19-181318.jpg)
+根据路透社台北报道，台湾政府本周五（2月18日）指责中共国利用北京冬奥会宣示对该岛的主权主张，称中共国传播政治宣传，为奥运会的和平精神“蒙上了阴影” 。
 
-- [UK pledges $34 mln to enhance security in Indo-Pacific](https://www.reuters.com/world/uk-sign-25-mln-stg-security-deal-with-australia-2022-02-16/)
+中共无耻地将自治的台湾视为自己的领土，在其坚持下它以“中华台北”的身份参加奥运会和大多数其他国际体育赛事。
+
+北京奥运会发言人严家荣周四表示，“只有一个中国”，指的是中共国长期以来的立场，即台湾属于中共国。
+
+台湾外交部表示，该官员“公然利用奥运场馆进行不正当的政治宣传”，违反了《奥运宪章》关于不将奥运会政治化的规定。
+
+台湾外交部表示，台湾就是台湾，只有民选政府才能在世界上代表其人民，它以自己的身份参加奥运会，而不是作为另一个国家的一部分。
+
+报道称，中共国官员的言论“给奥运五环所体现的和平精神蒙上了一层阴影”。
+
+国际奥委会（IOC）主席托马斯·巴赫周五早些时候表示，他们在新闻发布会后立即与北京组织者就这些言论进行了交谈。
+
+巴赫说，组织者和国际奥委会“都重申了他们的明确承诺，即按照奥林匹克宪章的要求保持政治中立”。
+
+中共国组织者通过电子邮件声明回应称，“北京2022符合主办城市合同和奥林匹克宪章的规定，反对将体育运动政治化”。
+
+关于台湾四名运动员参加冬奥会引起的争端是由于中共国已加大力度限制台湾的国际参与，以迫使其接受中共国的统治。
+
+在代表队表示已收到国际奥委会的“几份通知”参加开幕式和闭幕式后，台湾参加了奥运会的开幕式。
+
+尽管上个月，台湾最初曾说由于航班延误和COVID-19规则，它不能够参加。
+
+**[新闻来源](https://www.reuters.com/lifestyle/sports/taiwan-rebukes-china-using-games-push-political-propaganda-2022-02-18/?taid=62108190d2db8100016db2a1&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)**
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-编辑/校对/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

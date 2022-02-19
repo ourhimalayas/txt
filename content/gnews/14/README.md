@@ -2,8 +2,8 @@
 ---
 
 
-## 20220202文贵大直播：HPay的上线战友们要做的三件事
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2030422/)
+## 20220218文贵大直播：要懂得感恩财富的来源 要乐意分享财富
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2030507/)
 
 作者：东京樱花团视频小组
 

@@ -2,18 +2,62 @@
 ---
 
 
-## 秘翻在线：北京奥运再爆日本选手摔倒
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2030167/)
+## 怒
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2030261/)
 
-撰稿：待命（文暁）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/画像1-26.png)（图片源自本文链接）
-日本雅虎网站2月19日消息：北京冬奥开幕第十六天的１９日，女子速滑赛上，日本选手，平昌奥运会冠军高木菜那（29岁，日本电产三洋）被淘汰。
+作者：纽约香草山教育部-蓝之灵（hortênsia)
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+序:（引用) 您好，这个链接我看了，但是我没有任何兴趣，我深爱着我的祖国，深爱着我们中国共产党，是我的祖国将我培养长大，虽然我现在没有办法做什么事情报答我的祖国、我们的党，但我会永远忠诚于我的祖国，永远忠诚于中国共产党。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_9272.jpg)
+这个操蛋社会
+真相被掩盖
+如同热带雨林之谜踪
+看见起始脚印
+再也不见踪影
+洗脑又洗脑
+输灌又输灌
+聪明人
+变成笨蛋
+智慧远离悲凉人生
 
-最后一圈，还没有得到任何积分的高木，后场开始发力。在最后一个弯道上，处于领先位置的瞬间摔倒，几乎就是在四天前的女子团体追逐赛中发声的事故的相同位置，噩梦再次降临。
+不
+这些哪里够
+仅仅迫害
+哪里能够满足他们贪婪成性
+于是
+在这个国度里
+普遍流行
+斯德哥尔摩综合症
 
-本次北京冬奥会的选手摔倒事故太多了吧？
+偷窃了你们的财富
+偷窃了你们的人生
+偷窃了你们的智慧
+偷窃了你们的爱情
 
-信息源：[悪夢、再び…女子マススタート1回戦で「女王」高木菜那がまさかの敗退　「魔」の最終コーナーで転倒（スポニチアネックス） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/60caa9f9abbe470150b65ad65799fda7098985a4)
+魔鬼们狂欢盛宴
+酒杯里血浆翻滚
+人们哀嚎悲鸣
+是他们天籁之音
+
+可是
+沉睡的人们
+依然爱着魔鬼
+奉献着
+肉体和爱情
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-4.jpg)
+**审稿/校对/发稿：**qiutian（邱甜）
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+
 
  
 

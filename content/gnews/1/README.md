@@ -2,42 +2,94 @@
 ---
 
 
-## 以色列总理宣布结束疫苗“绿色通行证”
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2030550/)
+## 喜支付生下来就是改变世界的
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2030616/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2021-04-10T195535Z_1666550298_RC27TM9HDTHU_RTRMADP_3_HEALTH-CORONAVIRUS-ISRAEL-STUDY.jpg)图片来源：Amir Cohen/Reuters
-微软msn网站2月17日报道，以色列总理纳夫塔利·贝内特(Naftali Bennett)宣布，随着感染浪潮的减弱，进入各种场所需要出示中共病毒疫苗接种证明的要求将很快结束。
+[https://gtv.org/video/id=6210c1b22403672096ac5311](https://gtv.org/video/id=6210c1b22403672096ac5311)
 
-以色列是推广全国性疫苗接种的早期开拓者，也是首批要求提供疫苗接种证明的国家之一，接种证明被称为绿色通行证，用以进入一系列场所。贝内特周四说，随着中共病毒肺炎严重病例和确诊感染病例的数量明显下降，现在是取消疫苗证明要求的“好时机”。
+HPay now like a fetus in the
+mother’s womb has not come out yet
+喜支付 现在它是什么 真的还在娘胎里没出来呢
 
-在过去一年的大部分时间里，绿色通行证一直是以色列生活中的一个固定项目，是进入酒吧、餐馆、酒店、健身房和礼拜等场所的一个要求。虽然该国没有出现影响了许多其他国家的大规模反疫苗抗议活动，但偶尔也有示威活动和沮丧情绪扩大的迹象。
+The commercial launch of this
+point-to-point payment feature
+有了喜支付商业化推出的这个 点到点(支付功能)
 
-周一，数千名以色列人组成反对中共病毒限制的“自由车队”，从全国各地涌入耶路撒冷，这映照了加拿大和世界各地类似的交通堵塞抗议活动。示威者在向以色列政府所在地进发时，按响汽车喇叭，挥舞着加拿大和以色列的国旗。
+is just the first step
+只是第一步
 
-自去年6月上任以来，贝内特一直承诺将把以色列的经济健康放在应对大流行病的首位，并坚称他不会用严厉的限制来扼杀商业。本月早些时候，他的政府已经开始通过限制必须使用绿色通行证的地点来缩减绿色通行证的要求。
+You only heard the sound of screaming
+but not yet born
+你只听到了叫声 还没有生下来呢
 
-在首次检测到变异毒株奥密克戎的几天后，贝内特下令关闭几乎所有的旅行，说国家需要为即将到来的疫情浪潮做准备。“我们是第一个采取行动并在疫情浪潮来临的时候关闭了空中通道的国家。现在我们正在逐步放开这些限制。”总理在一份声明中说。
+When HPay reaches more people
+around the world
+(当)喜支付 在全世界接触人多
 
-**简评**：
+and financial institutions involved
+有金融机构接触的时候
 
-郭文贵先生说过，以色列是个聪明的国家。可惜在中共病毒疫苗问题上，以色列却成为了推广全国性疫苗接种的早期开拓者，甚至还实行了强制性的疫苗通行证政策。加拿大的大卡车反疫苗限制令的勇敢抗议活动在世界上引起的蝴蝶效应，也让以色列民众觉醒。以色列总理宣布结束疫苗“绿色通行证”是大势所趋。
+It’s like a fetus showing its head
+then HPAY start to be born
+(胎儿才算是)露头了 这个喜支付(就)开始往下生了
 
-这场由中共释放的病毒，演绎成残忍的疫苗危机，在不断爆出的疫苗无效、疫苗有毒的证据面前，政府实施疫苗强制令和疫苗通行证政策，不仅是对人类自由和民主的扼杀，更是在利用伪科学建立类共产主义极权统治的开始。希望全世界有更多的民众觉醒，站出来同新中国联邦集结的正义力量一起揭发毒疫苗的危害，追踪病毒源头，向中国共产党和在此次疫情中强制推行疫苗接种政策的类共产主义极权政府追责。
+Then there are national sovereign
+institutions, just one!
+然后有国家主权机构 只要一个
 
-新闻链接：[https://www.msn.com/en-us/news/world/israel-pm-announces-end-of-vaccine-e2-80-98green-pass-e2-80-99/ar-AAU0bug](https://www.msn.com/en-us/news/world/israel-pm-announces-end-of-vaccine-e2-80-98green-pass-e2-80-99/ar-AAU0bug)
+even a small country like Malta
+哪怕是马耳他
+
+Nigeria ,North Korea
+哪怕是尼日利亚 北朝鲜
+
+says I accept HCoin to my country
+to be uesed and invest in it
+说我接受喜币到我这使用 然后呢我投资了
+
+Brothers and sisters！
+this child is born
+兄弟姐妹们 孩子露头生出来了
+
+At that time, you can cheer
+那个时候你们可以狂呼了
+Because it was born with the mission
+to change the world
+因为它生下来 就是(来)改变这个世界的
+
+You must remember to cooperate well
+with the farms to do everything well
+你们一定要记住 配合好农场做好一切事情
+
+You can tell everyone
+你告诉所有的人
+
+that if any merchant accepts Hpay
+如果他们任何商家 接受喜支付的
+
+if they can’t get the money paid with
+HPay,Miles Guo takes full responsibility
+他们拿不到(用喜支付交易的)钱 七哥负全部责任
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+Date:2022/02/19
+原视频标题: Hpay was born to change the world
+喜支付生下来就是改变世界的
+原视频日期：2022/01/27
+原视频链接
+任务编号：LP005
+视频时间段 : 0:00-02：05
+英听校：洛杉矶盘古农场 – 庚子
+翻译：洛杉矶盘古农场 – 庚子
+翻译终校：洛杉矶盘古农场 – 银龙
+字幕+视频制作：洛杉矶盘古农场-庚子
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
