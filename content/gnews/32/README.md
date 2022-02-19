@@ -2,33 +2,49 @@
 ---
 
 
-## 有声|中共国民要求彻查锁链女事件
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2033297/)
+## 媒体报道俄罗斯即将入侵乌克兰后，莫斯科宣布从边境撤军
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2033633/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-2月15日，北京大学校友及学生一百多人，联名向中共党中央及国务院发表公开信，要求彻查徐州锁链女案。该公开信提出4项主张，要求确认受虐女子的真实身份、调查20余年来忽视此受虐事件涉嫌渎职违法的相关官员、全面清查中共各地的人口拐卖案件并解救受害人、修订中共《刑法》，严惩拐卖妇女及儿童的行为。
+**评论：***郭文贵先生透露：“‘到五月份世界将巨变，经济巨变’，我们是见证历史的无苗族。”*
 
-除北京大学外，清华大学、中国人民大学、浙江大学、四川大学等学校，也对此事件展开联署。 此外，湖南岳阳的民众手举标语，要求彻查事件真相；民间艺术家们也纷纷以诗歌、音乐、绘画等艺术形式，宣扬“断链”行动，引发社会的关注。
+据ZubuBrother转载SummitNews.com Paul Joseph Watson的文章，2022年2月16日发布：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/99aqp47-80ct9-e1645304364233.jpg)图片来源：Zubu Brother
+在拜登政府的宣传下，《太阳报》等主要新闻媒体报道称，入侵将在明天进行，并计划进行“大规模导弹突击”，同时有20万军队随时准备就绪。
 
-锁链女事件自1月28日被网友揭露后，中共官方说法，从初始的否认，到改为将受害人塑造成精神病患者，最后不得不承认有人口拐卖的事实，并拘捕相关涉案人。而后又被揭发，官方提供的身份涉嫌故意造假。
+伊戈尔-科纳申科夫少将宣布，所有俄罗斯军队将开始从边境地区撤军。
 
-2月17日，江苏省委省政府通报成立“丰县生育八孩女子”事件调查组，似乎摆出一幅彻查此事的姿态。但在中共统治下，中共官员欺上瞒下已成常态。此次锁链女事件激起了民众积压已久的愤怒，这种民怨，或将成为击倒中共的燎原怒火。
+科纳申科夫说：“随着部队完成其军事演习，他们将一如既往地完成多式联运，返回其永久基地。南部和西部军区的各师已经完成了他们的任务，并且已经开始装载铁路和汽车运输，今天将开始迁回他们的军事驻地。”
 
-文字版原文：[中共国民要求彻查锁链女事件](https://gnews.org/zh-hans/2023025/)
+俄罗斯还发布了视频片段，显示装甲车被装上铁路车厢，正在返回家园的路上。
 
-音频处理：Fei797
-发稿：Fei797
+克里姆林宫官员将撤军作为对美国和北约的宣传胜利的证明。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+外交部发言人玛丽亚-扎哈罗娃说：“2022年2月15日将作为西方战争宣传失败的日子载入史册。”她写道，并补充说“西方不费一枪一弹就被羞辱和摧毁。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+白宫的国家安全顾问杰克-沙利文周日曾气喘吁吁地告诉CNN，情报显示“重大军事行动”可能“现在随时开始”。
+
+乌克兰总统沃洛基米尔-泽伦斯基也宣布，2月16日，即拜登政府声称俄罗斯计划入侵的那一天，将是一个全国“团结”日。
+
+泽伦斯基说：“在这一天，我们将悬挂我们的国旗，戴上蓝黄丝带，向整个世界展示我们的团结。”
+
+这些评论随后被美国媒体报道，并且没有一丝怀疑，促使股市抛售，黄金和原油被抢购。
+
+泽伦斯基随后被迫退步，声称他的评论是“带着讽刺意味”说法。
+
+文章来源：[https://zububrothers.com/2022/02/15/russia-withdraws-troops-from-ukraine-border-after-media-said-invasion-was-imminent/](https://zububrothers.com/2022/02/15/russia-withdraws-troops-from-ukraine-border-after-media-said-invasion-was-imminent/)
+
+翻译：洛杉矶盘古农场 – Mike Li
+校对：洛杉矶盘古农场 – 轰炸机
+评论：洛杉矶盘古农场 – 轰炸机
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – 子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

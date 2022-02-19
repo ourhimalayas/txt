@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：所有的新中国联邦人，承受了使命
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2033683/)
+## 七哥金句：什么叫信仰和宗教
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2033718/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句8.001--scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句10.001-scaled.jpg)
 整理：雅典娜农场
 发布：枫叶红了
 
