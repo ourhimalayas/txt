@@ -2,45 +2,30 @@
 ---
 
 
-## 大直播—反抗疫苗暴政的利器：大卡车运动！
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2031433/)
+## 视频|阿联酋将为数字资产服务商发放联邦许可证
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2031621/)
 
-作者：纽约香草山信息部—6zero4
+制作：香草山视频部
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月17日，据相关媒体消息显示，阿联酋计划在2022年第一季度末为该国数字资产服务商发放联邦加密货币许可证。
 
+报道提及，这是阿联酋第一次以数字货币为重点在全国范围内实行的许可立法。目前，阿联酋证券和商品管理局正处于该立法程序出台的最后阶段。据悉，此次许可立法参考了巴黎的金融指导，以及英、美和新加坡等国家的数字货币政策。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-49.png)
-郭先生在2月13日的大直播中提及，当下在加拿大、澳大利亚、法国的大卡车运动，就是源于郭先生当年在香港“反送中”运动中策划的大卡车封路运动，其本质是将当下和未来的经济活动与政治运动完整而完美地结合在一起，从而有效地夺回话语权，是和平抗议应对暴政的秘密武器，意义非凡，价值很深！
-![](https://assets.gnews.org/wp-content/uploads/2022/02/mz26.2-1.jpg)
-大卡车运动的精髓在于把握了社会运作最基本也是最核心的常识：把握经济命脉！即以点击面，用大卡车堵路切断经济运行最基本的流通环节，让国民经济陷于瘫痪和停摆，让暴政当局切身感受到剧痛和无奈。只有这样当局才会反思自己的暴政，才有可能坐下来跟民众谈判。
+报道也指出，阿联酋的数字货币许可证将由当地首席监管机构和中央银行共同监管。同时，数字资产服务商也可根据该法案制定本地的许可证指南。除此之外，阿联酋政府还准备建立和监管数字货币的采矿行业。
 
-大卡车运动千万注意不要有任何暴力举动，不让当局有任何抓住把柄暴力镇压的机会，更不要成为被中共利用的工具。面对全世界普遍的疫苗暴政，各国民众反抗的大卡车运动正此起彼伏，如星星之火呈燎原之势！
+报道表示，国家数字货币立法将有助于阿联酋成为领先的数字货币友好司法管辖区。
 
-参考来源：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-[https://gtv.org/video/id=62090115a456fe1dea300f5a&gt;](https://gtv.org/video/id=62090115a456fe1dea300f5a%3E)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-46.jpg)
-
-
-
-编辑/校对/发稿：兰兰
+发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-50.png)
-
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

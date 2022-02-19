@@ -2,37 +2,30 @@
 ---
 
 
-## 德州起诉脸书非法使用面部识别
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2029529/)
+## 中共借“冰墩墩”羞辱新疆人却称那里是人类滑雪起源地
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2030476/)
 
-作者：纽约香草山农场 007
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月14日，据当地媒体消息显示，美国德克萨斯州总检察长已经提起了对脸书的诉讼，指控其利用面部识别技术秘密地收集和使用数百万德克萨斯民众的生物特征数据并非法谋利。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-19-上午2.49.05.png)
-起诉书称，在未经用户同意的情况下，脸书从照片和视频中数十亿次地捕获用户的生物特征数据，并且将这些信息披露给他人。此外，脸书也未能在合理的时间内销毁相关数据。
+作者：东京樱花团｜捆绑CCP一千年
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1780.png)[*图片来源*](https://www.eurosport.com/alpine-skiing/beijing-2022/2022/winter-olympics-2022-high-winds-delay-start-of-mixed-team-parallel-finals-with-gates-cut-to-improve-_sto8805287/story.shtml)
+**冬奥会即将闭幕，中共欲借“冰墩墩”羞辱新疆人的同时想利用新疆天然雪景打造“冰雪经济”。大外宣疯狂宣传新疆阿拉泰是“人类滑雪起源地”，却不允许冬奥会在新疆举办，因为中共在那里犯下了“反人类罪”。**
 
-起诉书指出，脸书明知这一行为违反了德克萨斯州的隐私保护法律，但其仍旧以牺牲个人安全和福祉为代价，利用用户的个人隐私信息发展其社交媒体帝国，并以此获得历史性暴利——这是大型科技公司欺骗性商业行为的又一实例，而它必须被停止。
+据中共国新华社19日一则有关新疆的消息中有将“冬奥吉祥物”冰墩墩羞辱新疆人之嫌。该消息称，新疆人买不到“梦中情墩”？咱可以自制、剪纸墩、糖画墩、面人墩等各类新疆分墩上线。
 
-资料显示，脸书的面部识别项目自2010年起一直执行到2021年11月。此前，脸书曾在2020年以6.5亿美元的赔偿，和解了伊利诺伊州就该项目提出的诉讼。而此次德克萨斯州的起诉则将寻求对脸书数千亿美元的民事处罚。
+中共早在2022年2月14日发布了《[北京冬奥组委发布“冰墩墩”使用规范](http://www.news.cn/mrdx/2022-02/14/c_1310469959.htm)》，其中规定商业用途的任何人对“冰墩墩”形象或者名称的使用，都应当遵守《中华人民共和国著作权法》《中华人民共和国商标法》《中华人民共和国专利法》等相关法律法规的规定。至于非商业使用，机关法人、基层群众性自治组织法人、事业单位等非营利法人或者组织可以申请非商业使用北京冬奥会吉祥物“冰墩墩”。申请人按要求填报材料，进行申请。如此一来，组织新疆民众自制“冰墩墩”是不是在自己违反自己的法呢？还是另有企图？
 
-参考链接：
-1）[Pax­ton Sues Face­book for Using Unau­tho­rized Bio­met­ric Data](https://www.texasattorneygeneral.gov/news/releases/paxton-sues-facebook-using-unauthorized-biometric-data)
-2）[Texas sues Meta over Facebook’s past facial recognition practices](https://appleinsider.com/articles/22/02/14/texas-sues-meta-over-facebooks-past-facial-recognition-practices)
+- ***延展阅读：***[***混合团体平行决赛因大风推迟，冬季奥运会赛事改期为周日***](https://www.eurosport.com/alpine-skiing/beijing-2022/2022/winter-olympics-2022-high-winds-delay-start-of-mixed-team-parallel-finals-with-gates-cut-to-improve-_sto8805287/story.shtml)
+- ***延展阅读：***[***联合国秘书长“决心”让人权高官访问新疆***](https://www.voanews.com/a/un-chief-determined-human-rights-chief-visit-xinjiang-/6447739.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-总编：Irene木木
-编辑：Irene木木
-审核：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
+该消息认为新疆的阿勒泰是“人类滑雪起源地”，而中共国冬奥会除北京赛区外第二大赛区是河北崇礼，但人们质询，那里既然是中共承认的“滑雪起源地”，为什么不将冬奥会第二或第三赛区设在新疆？对于如此好的天然滑雪资源弃而不用，却选择无雪的北京。从此可见，中共最害怕的就是运动员去新疆。但中共大外宣“[正在利用奥运会进一步宣扬滑雪起源于一万年前的中国](https://www.wsj.com/articles/china-olympics-skiing-11644938615)。”尽管听起来有点荒谬，但更荒谬的说辞是为什么不让运动员去新疆——人类滑雪起源地。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+对此，环球时报大外宣更是疯狂地认为，是西方媒体不希望新疆乘奥运浪潮成为迪士尼般的度假胜地，是西方媒体不想让[新疆以北京2022冬奥为契机，大力发展旅游、体育、文化等冰雪经济](https://www.globaltimes.cn/page/202202/1251981.shtml)。
+
+2022年2月19日
+
+*校对：东京樱花团/東洋武士*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

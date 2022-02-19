@@ -2,22 +2,39 @@
 ---
 
 
-## “9066号行政令”颁布80周年 拜登哈里斯寄言
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2030451/)
+## 中共抹杀科学巨匠束星北的独立人格思想
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2030651/)
 
-撰稿：东京樱花团｜麗子
-![](https://assets.gnews.org/wp-content/uploads/2022/02/pasted-image-0-8.png)[*图片来源*](https://blog.goo.ne.jp/chiku39/e/90a1fff8050104c42123adb3fde19b89)
-18日，史密森尼美国历史博物馆等组织举行了一个在线活动，以纪念第9066号行政命令颁布80周年，该命令导致了二战期间对美国境内日裔的监禁。副总统哈里斯称该政策“可耻，是对美国核心价值观的背叛”。
+作者：纽约香草山农场 马克文, 朱丽叶
 
-第四代日裔美国人、总统副助理埃里卡-莫里茨格代表拜登总统传达，一个伟大的国家决不能对其惨痛事件视而不见，监禁的历史是种族主义悲剧的一个明显例子，我们必须继续与仇恨作斗争。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-珍珠港偷袭直接导致当时罗斯福总统签署了9066号行政令，合法将约12万居住在美国太平洋沿岸的日裔美国人集中囚禁。如今，中共用生化病毒偷袭世界，“3F”美国，真相大白之日，美国又岂能置若罔闻！战友们一定要努力传播真相，让西方人真正区分中共不代表中国，中共不等于中国人。祈祷永远不会有下一个“9066行政令”。
 
-信息来源：[**副大統領「米の価値観裏切った」日系人収容80年**](https://news.yahoo.co.jp/articles/42b9c3c119c76b771231836f2cb55fd4269670a0)
 
-*校对：东京樱花团/東洋武士*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+束星北，1907年10月1日出生在江苏扬州。美国麻省理工学院毕业的束星北是世界顶级的量子力学和相对论研究物理学家，他曾被爱因斯坦赏识，担任其助手。此外，他还是诺贝尔物理奖获得者李政道，以及世界最杰出的女性实验物理学家之一吴健雄等著名科学家的恩师。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-19-at-9.08.45-PM.png)![](https://gnews.org/b78691d8-d1ea-4618-b661-49bcc675f124)
+据海外相关历史记载，相较于学术成就，束星北一直坚持着自由、独立的思想和人格。束星北曾批评中共国学校教育称，学生不是政治家，大学更不是党校，因此政治家不应出身于校园之中。也正是因此，他不认同当时苏联的科学技术，觉得政治禁锢了那里的科学家。相反的，束星北认为资本主义国家中的人民言论更加自由，而自由是科学发展的保障。
+
+由于他坚决反对“人治”、力主“法治”的观念，在1954年至1974年的多次政治运动中，束星北被打成了所谓的“反革命集团头目”，为此遭受了严酷的管制劳动和强行劳改等迫害。
+
+1983年，束星北逝世。而中共政府对这位科学巨匠的身后评价则只定位在简单的教育背景和科学成果上，至于他独立思想和人格留给人类文明的资产却完全被抹杀。
+
+参考链接：[维基百科: 束星北](https://zh.wikipedia.org/wiki/%25E6%259D%259F%25E6%2598%259F%25E5%258C%2597)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-3.png)
+
+审核：Jack Li文阳
+编辑：静言
+总编：Irene木木
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

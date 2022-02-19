@@ -2,33 +2,20 @@
 ---
 
 
-## 《紧急状态法》不能阻止加拿大卡车司机
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2029528/)
+## 中共利用党媒斥责星巴克，实为国企开通黄金道
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2030456/)
 
-作者：纽约磐石农场-在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月17日，据郭文贵先生在盖特平台上转发的一则视频显示，那些反对中共病毒疫苗强制接种政策的加拿大卡车司机强调，他们将坚持到底，直到重获自由。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-19-上午2.48.59.png)
-据悉，《紧急状态法》从未在加拿大现行法律框架内使用过，其原因在于，它赋予了联邦政府广泛的权力，包括为地方警察提供联邦执法的资源。此外，该法案还让加拿大银行无需授权就可以冻结任何参与此次道路封锁以及该活动资助者的银行账户，同时，银行还可以暂停参加抗议的卡车司机的保险。更甚者，众筹网站被该法案禁止继续为这些卡车司机募集捐款，至于经筹集的数百万美元则全部被冻结。
+撰稿：东京樱花团｜风翼
+![](https://assets.gnews.org/wp-content/uploads/2022/02/pasted-image-0-1-4.png)图片来源于网络
+据北京商报报道，关于2月13日下午5点左右，有四名民警来重庆磁器口门店就餐，被安排在户外就餐，后因有其他客户希望在户外客区就餐，门店伙计与民警在协调座位时，因言语不妥引发沟通误会。星巴克在14日做出正面回应，表示对于沟通引起的误会表示致歉，在事件过程中并不存在网传的“投诉民警”的情况。
 
-目前，渥太华地区的卡车司机人数还在增加。而这些卡车司机表示，《紧急状态法》不能阻止他们，暂停他们的保险也没有任何作用，唯一能说服他们离开的，就是他们重新获得权利和自由。
+重庆星巴克事件迅速的传播比想象中来得快速，各个媒体都做出了反应，其中也包含了“重庆星巴克赶走门口吃盒饭的民警还恶意投诉”、“重庆星巴克被曝赶走在门口吃饭的民警”等内容，而作为“媒体大哥”的央报也提及了相关内容。
 
-参考链接：[https://www.gettr.com/post/puzpgw4922](https://www.gettr.com/post/puzpgw4922)
+在带有明显浓重情绪色彩的新闻如火如荼上演、当地警方没有做出任何反应的时候，2月14日，中国邮政发表“正式进军咖啡领域”，并在厦门的全国第一家邮局咖啡店开始试运营。这样的巧合与雷同的方式，如此的急功近利，不得不让人觉得很有强国（墙国）特色。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
-
-总编：Irene木木
-编辑：Lakeman文仁
-审核：飞虹
-校正/发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/東洋武士*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

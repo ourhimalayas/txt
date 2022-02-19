@@ -2,19 +2,30 @@
 ---
 
 
-## 邪恶共产党把全人类的手机都监听了 灭共才是硬道理
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2031467/)
+## 视频|美司法部及FBI宣布组建数字货币执法团队
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2031624/)
 
-微信就是网络技术核武器。马化腾背后是胡锦涛，他的老板是毛道临和胡海青，并且二部和三部是微信最大的技术支持。
+制作：香草山视频部
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月17日，美国司法部DOJ宣布，已经任命了一位检察官领导新组建的国家加密货币执法团队。同时，联邦调查局FBI正在启动一个区块链分析和虚拟资产部门。
 
-抖音，微信，百度，知乎，香港凤凰等，只要是中共国的软件/APP，用了手机基本就被监视、监听了。
+此前，司法部副部长丽莎·摩纳哥在一次网络安全会议上指出，检察官崔恩英将领导司法部这一加密货币执法团队。崔恩英曾主导起诉俄罗斯黑客窃取8000多万摩根大通客户信息的案件。
 
-北京西山凤凰岭几十万人盯着美国人的手机，一点秘密都没有。邪恶共产党把全人类的手机都监听了，担心隐私泄露完全没有意义，灭共才是硬道理。
+而FBI “虚拟资产”部门的成立是在司法部有史以来最大的金融扣押行动后进行的。本月早些时候，它指控一对纽约夫妇涉嫌洗钱，涉及的比特币现在价值超过45亿美元，在2016年数字货币交易所Bitfinex的黑客攻击中被盗。
 
-视频来源: 20220218—郭先生大直播
-视频制作: 文星光，梦田
-文案:文星光
+去年美国最大的燃料管道网络和世界上最大的牛肉供应商遭到一系列疯狂的网络攻击，勒索软件作案团伙经常要求以比特币支付其赎金。因此，拜登政府执政下的美国监管机构一直在加强对加密货币行业的审查。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+
+发稿：呼吸的雾霾（文小呼吸）
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
