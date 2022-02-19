@@ -2,8 +2,8 @@
 ---
 
 
-## 20220202文贵大直播：Hpay是人类无条件支付的本能！
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2030387/)
+## 20220202文贵大直播：HPay的上线战友们要做的三件事
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2030422/)
 
 作者：东京樱花团视频小组
 

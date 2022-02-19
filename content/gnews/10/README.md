@@ -2,8 +2,8 @@
 ---
 
 
-## 20220202文贵大直播：HPay不仅绝对安全，而且将无处不在
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2030317/)
+## 2022020文贵大直播：比特币和以太坊没做到的事 喜币做到了
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2030356/)
 
 作者：东京樱花团视频小组
 

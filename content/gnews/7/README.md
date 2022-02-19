@@ -2,8 +2,8 @@
 ---
 
 
-## 20220202文贵大直播：大力推广HPay将为您带来无限权益
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2030355/)
+## 20220202文贵大直播：Hpay是人类无条件支付的本能！
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2030387/)
 
 作者：东京樱花团视频小组
 

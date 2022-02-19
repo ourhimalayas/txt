@@ -2,31 +2,21 @@
 ---
 
 
-## 英澳两国领导人指责中共侵犯人权之罪
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2030272/)
+## 谷爱凌成为奥运会中国代表，美国前驻联合国大使批判其欺骗行为
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2030292/)
 
-作者：银河系农场 – 骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据外媒报道，英国与澳大利亚两国领导人日前进行了视频通话，中共国对新疆的种族大屠杀表示深刻关切，同时呼吁保护香港的自由人权和高度自治，维护台湾海峡两岸的和平与稳定，南中国海海事权利和自由，强烈反对军事威胁和恐吓，并警告俄罗斯不要入侵乌克兰。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/YKJ7CMNQV5K5ZJSRRYQJZIWTCI.jpg)
-据悉此前四国集团美日印澳会议承诺深化合作，以对抗中共在印太地区日益扩张的经济和军事实力。在国际上，美国已将中共对新疆的大屠杀定义为种族灭绝罪，中共对香港实行的国安法，严重侵犯香港的民主自由，同时中共频繁入侵台湾航空区对台湾造成的战争压力也深受国际社会谴责。台湾对英澳表示感谢，并愿继续与英澳等民主国家深度合作。
+编译：天天
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1773.png)news.yahoo.co.jp
+曾任南卡罗来纳州州长和驻联合国大使的共和党政治家Nikki Haley最近谴责了18岁的谷爱凌，她在北京奥运会上为中共国赢得了一枚金牌。 她说，在国籍问题上，运动员 “必须选边站”。 谷爱凌是一名美国人，在旧金山出生和长大，但决定为她母亲的祖国中共国参赛。 在美中冲突的背景下，她的行为在美国的一些地方受到了批判。 Haley向政治新闻网站Real Clear Politics断言道：”国籍到底是中共国还是美国，她只能选择其中之一。”她告诉Real Clear Politics，因为美国和中共国是两个完全不同的国家，因此她是中共国人就不能是美国人。 Haley继续说：”所有运动员在代表国家时都需要明确他们是支持自由还是支持侵犯人权的行为。 没有骑墙的可能”。 美国政府在外交上抵制的国家 出生于美国的谷爱凌在2019年表明她将代表中国参加北京冬奥会。 美国政府后来宣布对北京奥运会进行外交抵制，理由是中共国对新疆维吾尔自治区的穆斯林实施了 “种族灭绝和反人类罪”。 谷爱凌计划在奥运会后进入美国斯坦福大学学习，并没有透露他是否已经放弃了美国国籍。而中共国并不承认双重国籍。 2019年，谷爱凌在Instagram的一篇文章中说：“我为我的身世感到骄傲，同样为在美国长大感到骄傲。”“能够在2022年北京冬奥会上激励我母亲出生国的数百万年轻人，并推广我所热爱的运动，这是我一生中唯一一次机会。” 谷爱凌的决定在中国受到称颂，她陆续收到了中国企业的巨额赞助合同。 谷爱凌首次参加奥运会，在女子自由式滑雪大跳台中赢得金牌，在坡面滑雪中赢得银牌。 预计她还将参加半坡比赛。 Haley是共和党对中共国最强烈的批评者之一，她提到了被关押维吾尔人的照片，并说：”我无法停止想象人们被蒙住眼睛，跪在地上，对接下来发生的任何事茫然不知的画面。即便如此仍支持中共国，支持这种做法对我来而言完全无法理喻。”
 
-参考链接：
+来源：【news.yahoo.co.jp】 [米元国連大使が、五輪の中国代表になったアイリーン・グー（谷愛凌）の欺瞞を批判](https://news.yahoo.co.jp/articles/f20c40f7dfae51ed718d645e5e8842fb3de7ebd7)
 
-- [UK pledges $34 mln to enhance security in Indo-Pacific](https://www.reuters.com/world/uk-sign-25-mln-stg-security-deal-with-australia-2022-02-16/)
+* * *
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
-
-编辑/校对/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+审核：BryanW 
+校对：宫米叶
+发布：花羽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-5.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

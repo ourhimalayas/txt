@@ -2,8 +2,8 @@
 ---
 
 
-## 2022020文贵大直播：比特币和以太坊没做到的事 喜币做到了
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2030356/)
+## 20220202文贵大直播：春晚的本质（一）
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2030404/)
 
 作者：东京樱花团视频小组
 
