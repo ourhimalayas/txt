@@ -2,8 +2,8 @@
 ---
 
 
-## 新中国联邦正道主义代表全世界正义人士
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2028168/)
+## 东北官场胡咧咧
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2028184/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

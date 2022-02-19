@@ -2,8 +2,8 @@
 ---
 
 
-## 20220218郭文贵大直播：新加坡以色列香港疫情是疫苗后遗症，一定忍到五月份
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2028266/)
+## 20220218郭文贵大直播：微信、抖音等中共软件是如何充当间谍软件的
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2028302/)
 
 作者：东京樱花团视频小组
 
@@ -13,12 +13,12 @@
 
 
 
-*编辑：东京樱花团小视频组*
+校对：东京樱花团视频小组
 
-*发布：东京樱花团小视频组*
+编辑发布：东京樱花团视频小组
 
 * * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-6.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-7.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

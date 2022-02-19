@@ -2,20 +2,49 @@
 ---
 
 
-## 所有中国软件都不安全
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2028352/)
+## 以色列将取消疫苗接种证明
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2028403/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+作者：纽约香草山农场教育部 – Naughty(文行)
 
-*发布：陶子*
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-6.jpg)
+
+
+
+2月17日，以色列总理班奈特宣布，很快就会取消出入多种场合，所必须的疫苗接种证明。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/FireShot-Capture-813-Israel-PM-announces-end-of-vaccine-‘green-pass-Coronavirus-pandemi_-www.aljazeera.com_.png)
+
+据报道，以色列领先全球多国推动全国接种计划，也是首批强制要求疫苗接种证明的国家之一。
+
+在过去一年内大部分时间，以色列人们进入酒吧、餐厅、健身房、敬拜场等地都必须出示疫苗接种证明。
+
+随着多个国家相继取消疫苗护照限制令，班奈特表示，以色列已经到了取消该规定的时候。
+
+参考来源：[https://www.aljazeera.com/news/2022/2/17/israel-pm-announces-end-of-vaccine-green-pass](https://www.aljazeera.com/news/2022/2/17/israel-pm-announces-end-of-vaccine-green-pass)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3.jpg)
+
+编辑：童谣
+校对/发稿：Daxia
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-6.jpg)
+
+
 
  
 
