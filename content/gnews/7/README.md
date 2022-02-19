@@ -2,8 +2,8 @@
 ---
 
 
-## 20220204文贵大直播:中共负责安保的某狙击手小组的领队在盘古酒店暴毙而亡
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2029910/)
+## 20220204文贵大直播:冬奥会拿钱请人都不来，共产党彻底毁掉了中华民族！
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2029979/)
 
 作者：东京樱花团视频小组
 

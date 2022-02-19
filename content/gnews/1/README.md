@@ -2,8 +2,8 @@
 ---
 
 
-## 20220204文贵大直播:就这么牛 HPay在全世界都可以使用的
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2029952/)
+## 20220204文贵大直播：喜联储、喜币是游戏的制定者
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2030054/)
 
 作者：东京樱花团视频小组
 

@@ -2,8 +2,8 @@
 ---
 
 
-## 20220204文贵大直播:中国军方与美国的合作，超过当年萨达姆军队和美方合作人数
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2029884/)
+## 20220204文贵大直播:就这么牛 HPay在全世界都可以使用的
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2029952/)
 
 作者：东京樱花团视频小组
 
