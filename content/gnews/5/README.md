@@ -2,28 +2,33 @@
 ---
 
 
-## 有声|网球名将德约称 坚决反对强制接种疫苗
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2027885/)
+## 樱花FM┃NASA宣布国际空间站将在2030年退役
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2028004/)
 
-配音：香草山巡管部– 文凯琳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月15日，据相关媒体报道，网球名将诺瓦克·德约科维奇在接受采访时表示，如果任何赛方以接种中共病毒疫苗作为硬性参赛条件，他宁可放弃获得大满贯的机会。
+音频：东京樱花团/战友520
 
-资料显示，德约在职业网球比赛中已经取得了9个冠军，而今年澳大利亚网球公开赛的冠军将带给他新的大满贯赛事冠军纪录。然而，今年1月，拒绝接种中共病毒疫苗的德约科维奇被澳州政府两次取消入境签证，并在法庭挑战失败后被驱逐出境。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/NASA宣布国际空间站将在2030年退役-1.png)
 
-文字版原文：[网球名将德约称 坚决反对强制接种疫苗](https://gnews.org/zh-hans/2024056/)
+据CNN日本在线消息，美国国家航空航天局（NASA）已宣布计划继续运营国际空间站（ISS）直到2030年底，之后它将降落在太平洋。
 
-音频处理/发稿：Daxia
+根据NASA的说法，一个私人经营的空间站将取代国际空间站，成为合作和科学研究的场所。NASA表示，私营部门在美国宇航局的合作下，有能力在低地球轨道上开发和运营，无论是技术上还是经济上。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+他们计划在2031年1月将国际空间站（ISS）降落在南太平洋一个名为“尼莫点”（正式名称为海洋难抵极）无法到达的极点处。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+尼莫点位于新西兰东部约4,800公里处，南极大陆以北约3,200公里处。自1971年以来，美国、俄罗斯、日本和欧洲国家迄今已投下了大约263个宇宙垃圾。
+
+国际空间站于 2000 年发射升空，已搭载了来自19 个国家的200多名宇航员绕地球运行。
+
+文字版原文：
+
+
+| [NASA宣布国际空间站将在2030年退役](https://gnews.org/zh-hans/1953831/) |
+| --- |
+
+
+*编辑：东京樱花团/asket   
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

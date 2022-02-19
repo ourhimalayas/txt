@@ -15,92 +15,92 @@
 
 ---
 
-### [樱花FM┃联合国与中共串通 冬奥会结束前不发布新疆人权报告](/content/gnews/1/README.md)
+### [中国人在苏联面前永远是输家](/content/gnews/1/README.md)
+ ` 雅典娜GNotes`
+
+### [普京已经看透欧洲](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
+
+### [樱花FM┃第一批被列入GTV、Gnews、GETTR永久公布名单的成员或已确定](/content/gnews/3/README.md)
  ` 樱花FM`
 
-### [2/18/2022 文贵直播：美国告诉中共，不想脱钩就得让美国搞病毒溯源；中共不敢再放毒了](/content/gnews/2/README.md)
- ` 秘密翻译组-北美组`
+### [大直播后记：科学主义成了杀人的元凶](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
 
-### [有声|美国明州“双子城”放弃中共病毒疫苗强制令](/content/gnews/3/README.md)
- ` MOSREC`
-
-### [2/18/2022 文贵直播：疫苗导致的免疫力低下是香港、新加坡和以色列等地出现各种病症频发和死亡的根源](/content/gnews/4/README.md)
- ` 秘密翻译组-北美组`
-
-### [有声|网球名将德约称 坚决反对强制接种疫苗](/content/gnews/5/README.md)
- ` MOSREC`
-
-### [樱花FM┃运动员教练员不惧中共警告通过媒体谴责中共人权问题](/content/gnews/6/README.md)
+### [樱花FM┃NASA宣布国际空间站将在2030年退役](/content/gnews/5/README.md)
  ` 樱花FM`
 
-### [有声|拜登政府将提创纪录国防预算](/content/gnews/7/README.md)
- ` MOSREC`
+### [樱花FM┃新疆西藏同胞在纽约抗议北京冬奥会](/content/gnews/6/README.md)
+ ` 樱花FM`
 
-### [中共在乌克兰收买并购偷盗复制人家的技术](/content/gnews/8/README.md)
- ` 雅典娜GNotes`
+### [樱花FM┃参加北京冬奥会的21国领导人大部分来自独裁国家](/content/gnews/7/README.md)
+ ` 樱花FM`
 
-### [有声|换汤不换药的孔子学院奖学金](/content/gnews/9/README.md)
- ` MOSREC`
+### [2月18日文贵大直播摘要（图片17-20](/content/gnews/8/README.md)
+ ` 波士顿五月花农场`
 
-### [没有乌克兰就不叫俄罗斯](/content/gnews/10/README.md)
- ` 雅典娜GNotes`
+### [樱花FM┃联合国与中共串通 冬奥会结束前不发布新疆人权报告](/content/gnews/9/README.md)
+ ` 樱花FM`
 
-### [2/18/2022 文贵直播：新加坡既崇拜英美又跟着中共，但其疫苗强制令很快会停；中共已彻底控制新加坡并将大多数藏在美国的钱转过去了](/content/gnews/11/README.md)
+### [2/18/2022 文贵直播：美国告诉中共，不想脱钩就得让美国搞病毒溯源；中共不敢再放毒了](/content/gnews/10/README.md)
  ` 秘密翻译组-北美组`
 
-### [俄乌文化和利益的问题](/content/gnews/12/README.md)
+### [普京玩一箭三雕之计](/content/gnews/11/README.md)
  ` 雅典娜GNotes`
 
-### [每日快报：必须阻止中共国违反国际贸易规范和规则的行为](/content/gnews/13/README.md)
+### [有声|美国明州“双子城”放弃中共病毒疫苗强制令](/content/gnews/12/README.md)
+ ` MOSREC`
+
+### [2/18/2022 文贵直播：疫苗导致的免疫力低下是香港、新加坡和以色列等地出现各种病症频发和死亡的根源](/content/gnews/13/README.md)
+ ` 秘密翻译组-北美组`
+
+### [有声|网球名将德约称 坚决反对强制接种疫苗](/content/gnews/14/README.md)
+ ` MOSREC`
+
+### [樱花FM┃运动员教练员不惧中共警告通过媒体谴责中共人权问题](/content/gnews/15/README.md)
+ ` 樱花FM`
+
+### [有声|拜登政府将提创纪录国防预算](/content/gnews/16/README.md)
+ ` MOSREC`
+
+### [中共在乌克兰收买并购偷盗复制人家的技术](/content/gnews/17/README.md)
+ ` 雅典娜GNotes`
+
+### [有声|换汤不换药的孔子学院奖学金](/content/gnews/18/README.md)
+ ` MOSREC`
+
+### [没有乌克兰就不叫俄罗斯](/content/gnews/19/README.md)
+ ` 雅典娜GNotes`
+
+### [每日快报：必须阻止中共国违反国际贸易规范和规则的行为](/content/gnews/20/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [有声|研究表明中共病毒疫苗百害而无一利](/content/gnews/14/README.md)
+### [有声|研究表明中共病毒疫苗百害而无一利](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [有声|美媒指福奇滥用国家权力为中共独裁效力](/content/gnews/15/README.md)
- ` MOSREC`
-
-### [英国保守党主席呼吁西方合作对抗中共威胁](/content/gnews/16/README.md)
+### [英国保守党主席呼吁西方合作对抗中共威胁](/content/gnews/22/README.md)
  ` 首尔天池农场`
 
-### [苏格兰报告接种中共病毒病疫苗更易致病致死](/content/gnews/17/README.md)
+### [苏格兰报告接种中共病毒病疫苗更易致病致死](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本疑现Omicron亚型变异株BA.2社区传播](/content/gnews/18/README.md)
+### [日本疑现Omicron亚型变异株BA.2社区传播](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|郭先生爆料即将发生的三件大事](/content/gnews/19/README.md)
- ` MOSREC`
-
-### [澳洲ABC董事总经理表示，太平洋公共广播机构忧虑中共政府的压力](/content/gnews/20/README.md)
+### [澳洲ABC董事总经理表示，太平洋公共广播机构忧虑中共政府的压力](/content/gnews/25/README.md)
  ` 澳喜特战旅Gnews`
 
-### [俄罗斯人有卫生](/content/gnews/21/README.md)
- ` 雅典娜GNotes`
-
-### [东北都没有俄罗斯的猪圈好 (1)](/content/gnews/22/README.md)
- ` 雅典娜GNotes`
-
-### [科学啊科学，多少罪恶因你而行！](/content/gnews/23/README.md)
+### [科学啊科学，多少罪恶因你而行！](/content/gnews/26/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [DC大中华时事：中共评论“美称俄未来数日内进攻乌克兰”](/content/gnews/24/README.md)
+### [DC大中华时事：中共评论“美称俄未来数日内进攻乌克兰”](/content/gnews/27/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [文贵大直播后记：《为什么战友们要有钱》](/content/gnews/25/README.md)
- ` 雅典娜GNotes`
-
-### [【秘翻在线】俄罗斯将进行大规模核演习](/content/gnews/26/README.md)
+### [【秘翻在线】俄罗斯将进行大规模核演习](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [记得说声谢谢，中共又骗了你](/content/gnews/27/README.md)
- ` 澳喜特战旅Gnews`
-
-### [追求自由：加州卡车司机将组队前往DC](/content/gnews/28/README.md)
+### [追求自由：加州卡车司机将组队前往DC](/content/gnews/29/README.md)
  ` 日本东京方舟农场`
-
-### [新加坡和它的疫苗政策](/content/gnews/29/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [【秘翻在线】中共病毒疫情严重，香港将推迟特首选举并实行全民强制检测](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`

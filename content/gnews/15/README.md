@@ -2,28 +2,29 @@
 ---
 
 
-## 有声|美媒指福奇滥用国家权力为中共独裁效力
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2027758/)
+## 樱花FM┃运动员教练员不惧中共警告通过媒体谴责中共人权问题
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2027828/)
 
-配音：香草山巡管部– 文凯琳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月15日，据美国媒体报道，在全球对中共病毒溯源的过程中，福奇及美国其他领域的非民选官僚设置重重阻碍，用以掩盖中共实为病毒起源的事实。
+音频：东京樱花团/战友520
 
-该媒体指出，每当相关调查接近中共武汉病毒研究所实验室时，福奇和联邦卫生机构的某些官僚就会拐弯抹角地以政治手段，强制封口那些支持病毒实验室起源的科学家们。同时，大量被披露的电子邮件显示，福奇和美国国立卫生研究院的柯林斯一直在压制那些对中共不利的言论。非但如此，他们坚持对中共政府的谎言以及其拒绝国际调查的行为保持沉默，甚至还为中共开脱。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/运动员教练员不惧中共警告通过媒体谴责中共人权问题.png)
 
-文字版原文：[美媒指福奇滥用国家权力为中共独裁效力](https://gnews.org/zh-hans/2020792/)
+2月4日时事通信社报道：法新社消息，英国的自由滑雪运动员格斯-肯沃西和美国的花样滑冰教练亚当-理邦对存在人权问题的中共国举办奥运会给予批判。
 
-音频处理/发稿：Daxia
+上个月，中共当局警告运动员不可以批评中共政府，但在2014年索契冬奥会上为美国赢得银牌的肯沃西对BBC说：我不认为一个人权状况糟糕的国家应该被允许举办奥运会。大家都知道，奥运会对中共国非常重要，因为他们在获得奖牌方面总是排名靠前。这一切都取决于钱，我不认为中共国是一个合适的东道国。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+在2018年平昌冬奥会上获得花样滑冰团体铜牌的理邦教练在北京告诉CNN：我的希望是，当冬奥会在北京举行时，中共国政府能因为人权问题受到更多关注，而被迫采取行动。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+文字版原文：
+
+
+| [运动员教练员不惧中共警告通过媒体谴责中共人权问题](https://gnews.org/zh-hans/1954196/) |
+| --- |
+
+
+*编辑：东京樱花团/asket
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

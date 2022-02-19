@@ -17,6 +17,21 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@s7gril 2/16/2022 5:51 PM (UTC)`
+
+Live, Love, & Laugh ❤️
+![img](https://media.gettr.com/group17/gvision/2022/02/16/17/129bc908-c13a-64be-547b-56bc9216a00f/out.jpg)
+
+---
+
+`@miles 2/19/2022 2:25 AM (UTC)`
+
+2月18号我的乖乖咧……https://tw.news.yahoo.com/%E9%83%AD%E6%96%87%E8%B2%B4%E7%88%86%E4%B8%AD%E5%85%B1%E5%B0%8D%E5%8F%B0%E8%A1%8C%E5%8B%95%E6%9A%AB%E7%B7%A9-%E9%99%A4%E4%BA%86%E6%99%AE%E4%B8%81%E6%94%BE%E9%B3%A5%E7%BF%92%E8%BF%91%E5%B9%B3-%E9%82%84%E6%9C%89-%E9%97%9C%E9%8D%B5%E9%87%8D%E8%A6%81%E5%8E%9F%E5%9B%A0-042730343.html
+
+---
+
 `@miles 2/19/2022 1:10 AM (UTC)`
 
 2月18号：尊敬的战友们好……这个太棒了，太能满足我们的食欲了https://h-pay.typeform.com/to/goydIKHv
@@ -139,20 +154,6 @@
 
 2/16/2022 Miles Guo: What is the suit I am wearing today? My personal bankruptcy is just a legal process, but I still own unlimited wisdom. My personal bankruptcy is no match for the fact that the CCP is going to be finished soon and the New Federal State of China that has turned the fellow fighters into those “rich capitalists” who didn’t get the COVID jabs and have Himalaya Coins.<br/><br/>2/16/2022 文贵直播：文贵今天穿的什么衣服？文贵只是法律上的破产，但仍拥有无限的智慧；相较于即将完蛋的中共和把战友们变成无苗有币族和”富豪阶级”的新中国联邦，文贵的破产不叫事儿！<br/>
 ![img](https://media.gettr.com/group23/getter/2022/02/17/07/ac3d6c53-0981-b3b8-2625-11c86243fd18/out.jpg)
-
----
-
-`@miles 2/17/2022 7:15 AM (UTC)`
-
-2/16/2022 Miles Guo: I am the first person in humanity who is personally broke but has made countless people extremely rich. The father of the chained woman was a CCP cadre sent to “aid Tibet”, but his daughter’s suffering is the retribution for her father's sins. My personal bankruptcy is the result of a natural karmic cycle. The reason why the fellow fighters are following me is not because of my money.<br/><br/>2/16/2022 文贵直播：文贵是世界上第一个自己破产却让无数人成为富豪的人；锁链女的父亲是援藏干部，结果让女儿遭报应；文贵的破产也是因果轮回的结果，战友们跟着文贵不是为了文贵的钱<br/>
-![img](https://media.gettr.com/group6/getter/2022/02/17/07/9b916a20-99ec-8174-90ce-d8e4dfc0f442/out.jpg)
-
----
-
-`@miles 2/17/2022 4:08 AM (UTC)`
-
-2/16/2022 Miles Guo: I think it's my destiny to file for bankruptcy. The CCP has made me wait five years for the red light, while only in the United States could I choose the yellow light – bankruptcy. Taiwan is my role model. She chose the yellow light in the face of powerful forces, but she still has freedom and dignity.<br/><br/>2/16/2022 文贵直播：文贵认为命中必然会有这次破产；中共让文贵等了5年的红灯，而只有在美国才有黄灯可选 - 破产；台湾是文贵的样板，她在强大的势力面前选择了黄灯，但有自由与尊严
-![img](https://media.gettr.com/group46/getter/2022/02/17/04/8375a314-f866-cd70-9103-c9846353eea1/out.jpg)
 
 ---
 

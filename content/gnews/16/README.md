@@ -2,24 +2,30 @@
 ---
 
 
-## 英国保守党主席呼吁西方合作对抗中共威胁
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2027749/)
+## 有声|拜登政府将提创纪录国防预算
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2027826/)
 
-翻译/撰稿：zzballack
-上传：追着曙光跑
+配音：香草山巡管部– 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-8.png)
+据路透社2月17日消息，美国总统拜登预计将要求国会，为2023年提供超过7700亿美元的国防预算。而这一数字也将创下了美国国防预算的新纪录。
 
-据《华盛顿自由灯塔》（Washington Free Beacon）2月17日报道，英国保守党主席奥利佛·道登 (Oliver Dowden)本周一（2月14日）在美国智库传统基金会(Heritage Foundation)发表演讲时警告说，要对抗中共，必须建立一个团结的西方联盟。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-19-at-10.13.03.jpeg)图片来源：原新闻视频截图
-道登说：“面对来自中共日益增长的威胁，全球的保守派必须找到信心，大力捍卫自由社会的价值观。”他的论点植根于前总统罗纳德·里根 (Ronald Reagan)在20世纪80年代与前英首相撒切尔夫人（Margaret Thatcher）合作时取得的成功，帮助实现了冷战的结束。
+据悉，国防部长劳埃德·奥斯汀、和白宫管理和预算办公室 (OMB) 正在进行预算谈判，国防部2023财政年度的预算，可能超过8000亿美元。此项预算包括，五角大楼工资、坦克、F35隐形喷气机等费用的支出。
 
-道登警告说：“西方的敌人在他们与自由的永恒之战中找到了新的信心。因此，保守派自己也必须找到信心，并积极捍卫自由社会的价值观。当最坏的情况似乎已经过去时，民主国家有一种放松的趋势。西方认为北京在部分融入自由市场后，会自动走向更大的社会和个人政治自由，但这种想法如今已被证明是令人惊叹的天真。”
+除继续投资武器装备研发，应对与中俄之间可能的冲突与战争外，核现代化计划也被列入政府资助项目。据悉，该预算的首要任务包括造船、发展太空能力、导弹预警以及弹道导弹潜艇、轰炸机和陆基导弹的核“三位一体”现代化。
 
-为了解决中共构成的威胁，道登指出了他的同事们已经赢得的战斗。“英国政府已对中共镇压香港民主和侵犯新疆人权采取了强硬立场。中共电信巨头华为被禁止参与英国的5G网络建设。”
+文字版原文：[拜登政府将提创纪录国防预算](https://gnews.org/zh-hans/2023042/)
 
-全球灭共潮流不可阻挡，加上有实力日益强大的新中国联邦的帮助，中共被灭只是早晚和方式的问题。希望有更多人参与到瓦解中共体制这一更甚于苏联解体的伟大行动中来，以尽可能小的代价消灭中共赤匪！
+音频处理/发稿：Daxia
 
-信息来源：[British Conservative Calls for US Collaboration To Stomp Out China Threat](https://freebeacon.com/national-security/british-conservative-calls-for-us-collaboration-to-stomp-out-china-threat/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
