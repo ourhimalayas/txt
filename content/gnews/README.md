@@ -15,80 +15,80 @@
 
 ---
 
-### [20220204文贵大直播：北京冬奥开幕式是中共新噩梦的开始](/content/gnews/1/README.md)
+### [20220202文贵大直播：中共国一个明星的丑闻价值10亿 新疆大屠杀 杨改兰之死真相不值钱](/content/gnews/1/README.md)
  ` Tokyo Sakura Video Group`
 
-### [共和党人承诺将不遗余力溯源中共病毒](/content/gnews/2/README.md)
+### [20220202文贵大直播:GCLUB卡和H-pay联系起来的意义没人能懂](/content/gnews/2/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [中共石正丽发表宣传文章以掩盖危害人类罪](/content/gnews/3/README.md)
  ` GTV News Talk`
 
-### [秘翻在线：北京奥运再爆日本选手摔倒](/content/gnews/3/README.md)
+### [20220204文贵大直播：北京冬奥开幕式是中共新噩梦的开始](/content/gnews/4/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [共和党人承诺将不遗余力溯源中共病毒](/content/gnews/5/README.md)
+ ` GTV News Talk`
+
+### [秘翻在线：北京奥运再爆日本选手摔倒](/content/gnews/6/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声｜疑暗讽冬奥赛场肮脏 加拿大队集体“扫奖台”](/content/gnews/4/README.md)
+### [有声｜疑暗讽冬奥赛场肮脏 加拿大队集体“扫奖台”](/content/gnews/7/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [加拿大公民自由协会宣布对特鲁多紧急法案提起诉讼](/content/gnews/5/README.md)
+### [加拿大公民自由协会宣布对特鲁多紧急法案提起诉讼](/content/gnews/8/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [20220204-15 文贵大直播：HPAY最核心的价值](/content/gnews/6/README.md)
+### [20220204-15 文贵大直播：HPAY最核心的价值](/content/gnews/9/README.md)
  ` Tokyo Sakura Video Group`
 
-### [20220204文贵大直播：Hpay在国内而且只要有空气、量子、宇宙的地方都可以用](/content/gnews/7/README.md)
+### [20220204文贵大直播：Hpay在国内而且只要有空气、量子、宇宙的地方都可以用](/content/gnews/10/README.md)
  ` Tokyo Sakura Video Group`
 
-### [中日财经爆┃亚马逊将提高美国国内年度会员费](/content/gnews/8/README.md)
+### [中日财经爆┃亚马逊将提高美国国内年度会员费](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [在注射疫苗后318名运动员心脏骤停,178人死亡,问题非常严重!](/content/gnews/9/README.md)
+### [在注射疫苗后318名运动员心脏骤停,178人死亡,问题非常严重!](/content/gnews/12/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [20220204文贵大直播：PayPal FaceBook股价跌和我们HPay、Gettr没关系](/content/gnews/10/README.md)
+### [20220204文贵大直播：PayPal FaceBook股价跌和我们HPay、Gettr没关系](/content/gnews/13/README.md)
  ` Tokyo Sakura Video Group`
 
-### [20220204文贵大直播：当喜贷款、喜抵押出现时，Hpay秒杀PayPal](/content/gnews/11/README.md)
+### [20220204文贵大直播：当喜贷款、喜抵押出现时，Hpay秒杀PayPal](/content/gnews/14/README.md)
  ` Tokyo Sakura Video Group`
 
-### [樱花FM | 中日财经爆:加拿大支持欧盟WTO诉讼案 中共暂停进口立陶宛牛肉](/content/gnews/12/README.md)
+### [樱花FM | 中日财经爆:加拿大支持欧盟WTO诉讼案 中共暂停进口立陶宛牛肉](/content/gnews/15/README.md)
  ` 樱花FM`
 
-### [20220204文贵大直播：喜联储、喜币是游戏的制定者](/content/gnews/13/README.md)
+### [20220204文贵大直播：喜联储、喜币是游戏的制定者](/content/gnews/16/README.md)
  ` Tokyo Sakura Video Group`
 
-### [中日财经爆┃北京首批供地 民企不玩了 中共自己玩](/content/gnews/14/README.md)
+### [中日财经爆┃北京首批供地 民企不玩了 中共自己玩](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [渥太华警方采取行动逮捕自由车队抗议者](/content/gnews/15/README.md)
+### [渥太华警方采取行动逮捕自由车队抗议者](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [樱花FM | “连花清瘟胶囊”欲夺新冠疫苗份额](/content/gnews/16/README.md)
+### [樱花FM | “连花清瘟胶囊”欲夺新冠疫苗份额](/content/gnews/19/README.md)
  ` 樱花FM`
 
-### [法院冻结恒大集团包括存款和房产在内的上亿美元资产](/content/gnews/17/README.md)
+### [法院冻结恒大集团包括存款和房产在内的上亿美元资产](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [俄乌危机之际 开箱看看荷兰向乌送了啥](/content/gnews/18/README.md)
+### [俄乌危机之际 开箱看看荷兰向乌送了啥](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [20220204文贵大直播:美国将在经济危机后有新的腾飞](/content/gnews/19/README.md)
+### [20220204文贵大直播:美国将在经济危机后有新的腾飞](/content/gnews/22/README.md)
  ` Tokyo Sakura Video Group`
 
-### [樱花FM | 内地政府和企业的医疗团队抢先抵港](/content/gnews/20/README.md)
+### [樱花FM | 内地政府和企业的医疗团队抢先抵港](/content/gnews/23/README.md)
  ` 樱花FM`
 
-### [白宫称布林肯接受俄外长2月23日举行会谈的邀请](/content/gnews/21/README.md)
+### [白宫称布林肯接受俄外长2月23日举行会谈的邀请](/content/gnews/24/README.md)
  ` topnews`
 
-### [普京监督导弹发射演习，乌克兰叛军发动全面军事动员](/content/gnews/22/README.md)
+### [普京监督导弹发射演习，乌克兰叛军发动全面军事动员](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
-
-### [20220204文贵大直播:冬奥会拿钱请人都不来，共产党彻底毁掉了中华民族！](/content/gnews/23/README.md)
- ` Tokyo Sakura Video Group`
-
-### [樱花FM | 俄罗斯驻日大使接受独家采访说乌克兰加入北约是个威胁](/content/gnews/24/README.md)
- ` 樱花FM`
-
-### [20220204文贵大直播:就这么牛 HPay在全世界都可以使用的](/content/gnews/25/README.md)
- ` Tokyo Sakura Video Group`
 
 ### [有声｜美国波士顿取消了出示疫苗接种证明要求](/content/gnews/26/README.md)
  ` 秘密翻译组-即时新闻播报组`

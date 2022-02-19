@@ -2,8 +2,8 @@
 ---
 
 
-## 20220204文贵大直播：北京冬奥开幕式是中共新噩梦的开始
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2030189/)
+## 20220202文贵大直播：中共国一个明星的丑闻价值10亿 新疆大屠杀 杨改兰之死真相不值钱
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2030241/)
 
 作者：东京樱花团视频小组
 
