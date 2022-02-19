@@ -2,22 +2,21 @@
 ---
 
 
-## 奥林匹克精神的本质
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2029623/)
+## 雅典娜时报-第209期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2029852/)
 
-作者：香草山健身部-新世界的一员
+#### 《雅典娜时报》汇聚全球新闻时事
 
+#### 编辑：精灵蓝
+排版：小蚂蚁614
+![圖片](https://media.discordapp.net/attachments/825592691433668612/944475073140645979/0219.png?width=812&amp;height=1209)![圖片](https://media.discordapp.net/attachments/825592691433668612/944475073597820948/0219_2.png?width=812&amp;height=1209)
+*发布：陶子*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-39.png)
-郭先生在2022年2月13日和16日的直播中着重谈到了奥林匹克精神：体现个人价值、弘扬世界和平、增进友谊、快乐生活。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/mz26.2.jpg)
-体育精神是一种捍卫个人独立、追求人的身心协调和全面发展的健康精神，是人与自然和谐共存的一种方式。虽不是一生的奋斗目标和信仰，但绝对是执着追求的自由崇高的体育精神—奥林匹克精神。
-
-美国宾夕法尼亚州大主教在1908年主持讲道时说过的一句话：“参与比获胜更重要”。 国际奥委会在《奥林匹克宪章》“奥林匹克主义原则”条款中有这样一段话：“每一个人都应享有从事体育运动的可能性，而不受任何形式的歧视，并体现相互理解、友谊、团结和公平竞争的奥林匹克精神”，也称现代奥林匹克精神。 奥林匹克文化：民主、自由、竞争、拼搏、开拓、进取、重视个体、尊重科学等要素构成的一个有核心有灵魂的社会盛会，为各国文明与文化集萃、是全球文化多样性与差异性互补共存，集东西方文明交融与互动的一个平台，超越国家、超越文化、超越等级、超越地域的百姓的巨型狂欢节。
-
-而中共的这次冬奥会把体育政治化、国家化、个人化，假体育、假比赛、假雪，假媒体，假冠军，完全违背了奥林匹克运动的魅力和价值，玷污了崇高的奥林匹克精神。
-
-
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

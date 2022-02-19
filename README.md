@@ -15,122 +15,122 @@
 
 ---
 
-### [樱花FM | 助中共恶果已现！脸书股价暴跌20%、用户量下跌！](/content/gnews/1/README.md)
+### [20220204文贵大直播:就这么牛 HPay在全世界都可以使用的](/content/gnews/1/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [20220204-06文贵大直播: 普京大怒 抱怨中方连基本的保证都不能提供](/content/gnews/2/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [绿色护照继续制造灾难，六十多岁老人威胁要自焚](/content/gnews/3/README.md)
+ ` xiaobaige`
+
+### [20220204文贵大直播:负责主席台安全的狙击手领队在盘古大观旁突然倒地,普京团队染上病毒都是天意。北京5000公里外的军队因此事马上进入战备状态](/content/gnews/4/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [樱花FM | 中共谴责安倍前首相与蔡英文总统举行电话会谈](/content/gnews/5/README.md)
  ` 樱花FM`
 
-### [大直播后记：七个摆在共产党面前的问题](/content/gnews/2/README.md)
+### [大直播后记——中共在俄罗斯面前永远是输家](/content/gnews/6/README.md)
  ` 雅典娜GNotes`
 
-### [樱花FM | 中共国重量级科学家叛逃中共来到美国](/content/gnews/3/README.md)
+### [20220204文贵大直播:中共负责安保的某狙击手小组的领队在盘古酒店暴毙而亡](/content/gnews/7/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [樱花FM | 美联储将毫不犹豫地通过加息缩表来遏制通货膨胀（二）](/content/gnews/8/README.md)
  ` 樱花FM`
 
-### [台湾陆委会推国家安全法修正草案应对中共经济间谍活动](/content/gnews/4/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [20220204文贵大直播:中国军方与美国的合作，超过当年萨达姆军队和美方合作人数](/content/gnews/9/README.md)
+ ` Tokyo Sakura Video Group`
 
-### [樱花FM┃三菱商事和三井物产携手在澳洲开发新项目](/content/gnews/5/README.md)
- ` 樱花FM`
-
-### [巴西彼得罗波利斯洪水造成136人死亡 213人失踪](/content/gnews/6/README.md)
+### [在顿涅茨克市中心发生强烈爆炸](/content/gnews/10/README.md)
  ` topnews`
 
-### [英专家呼吁对英国年轻男性死亡率的上升进行调查](/content/gnews/7/README.md)
+### [樱花FM | 培养移植胰腺细胞成功治疗小白鼠的糖尿病](/content/gnews/11/README.md)
+ ` 樱花FM`
+
+### [20220204文贵大直播：人民币向海外转移将无间段、无阻隔](/content/gnews/12/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [雅典娜时报-第209期](/content/gnews/13/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [樱花FM | 中日财经爆:日本进口23%依赖中国 比美国和德国更危险](/content/gnews/14/README.md)
+ ` 樱花FM`
+
+### [樱花FM | 助中共恶果已现！脸书股价暴跌20%、用户量下跌！](/content/gnews/15/README.md)
+ ` 樱花FM`
+
+### [大直播后记：七个摆在共产党面前的问题](/content/gnews/16/README.md)
+ ` 雅典娜GNotes`
+
+### [20220204文贵大直播：喜支付将有多种币可支付](/content/gnews/17/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [樱花FM | 中共国重量级科学家叛逃中共来到美国](/content/gnews/18/README.md)
+ ` 樱花FM`
+
+### [台湾陆委会推国家安全法修正草案应对中共经济间谍活动](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [樱花FM┃郭德纲及德云社为啥没能上春晚？](/content/gnews/8/README.md)
+### [樱花FM┃三菱商事和三井物产携手在澳洲开发新项目](/content/gnews/20/README.md)
  ` 樱花FM`
 
-### [拜登将提创纪录国防预算应对中俄局势](/content/gnews/9/README.md)
- ` 【🌹玫瑰新闻】`
+### [巴西彼得罗波利斯洪水造成136人死亡 213人失踪](/content/gnews/21/README.md)
+ ` topnews`
 
-### [2022/02/18 文贵先生直播重点大纲](/content/gnews/10/README.md)
+### [英专家呼吁对英国年轻男性死亡率的上升进行调查](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [20220206文贵大直播：全世界只有共产党放开让外国人玩弄中国老百姓还受法律保护！](/content/gnews/11/README.md)
- ` Tokyo Sakura Video Group`
-
-### [樱花FM┃专家称禁足市民有助“动态清零”](/content/gnews/12/README.md)
+### [樱花FM┃郭德纲及德云社为啥没能上春晚？](/content/gnews/23/README.md)
  ` 樱花FM`
 
-### [奥林匹克精神的本质](/content/gnews/13/README.md)
+### [拜登将提创纪录国防预算应对中俄局势](/content/gnews/24/README.md)
+ ` 【🌹玫瑰新闻】`
+
+### [樱花FM┃专家称禁足市民有助“动态清零”](/content/gnews/25/README.md)
+ ` 樱花FM`
+
+### [奥林匹克精神的本质](/content/gnews/26/README.md)
  ` GTV News Talk`
 
-### [20220206文贵大直播：西方支持中共 要付出代价](/content/gnews/14/README.md)
- ` Tokyo Sakura Video Group`
-
-### [欧盟囤积并销毁数千万剂中共病毒（covid）疫苗](/content/gnews/15/README.md)
+### [欧盟囤积并销毁数千万剂中共病毒（covid）疫苗](/content/gnews/27/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [河北衡水中学生被老师体罚猥亵而自杀，遭校方否认和媒体封杀](/content/gnews/16/README.md)
+### [河北衡水中学生被老师体罚猥亵而自杀，遭校方否认和媒体封杀](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [“人民车队”数千卡车将于周三出发前往华盛顿](/content/gnews/17/README.md)
+### [“人民车队”数千卡车将于周三出发前往华盛顿](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [“坦克人版”冰墩墩致敬六四 GXP微博被禁言](/content/gnews/18/README.md)
+### [“坦克人版”冰墩墩致敬六四 GXP微博被禁言](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本动漫哲学之宗教信仰](/content/gnews/19/README.md)
+### [日本动漫哲学之宗教信仰](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [20220206文贵大直播：不允许以新中国联邦的名义参加任何国家的抗议和政治活动](/content/gnews/20/README.md)
- ` Tokyo Sakura Video Group`
-
-### [人类新纪元－正道主义](/content/gnews/21/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [樱花FM┃港铁刻薄清洁工奖励变监控](/content/gnews/22/README.md)
- ` 樱花FM`
-
-### [文革受害者之世界宗教经文翻译大师陈寅恪](/content/gnews/23/README.md)
+### [文革受害者之世界宗教经文翻译大师陈寅恪](/content/gnews/32/README.md)
  ` NFSC News`
 
-### [德州起诉脸书非法使用面部识别](/content/gnews/24/README.md)
+### [德州起诉脸书非法使用面部识别](/content/gnews/33/README.md)
  ` NFSC News`
 
-### [《紧急状态法》不能阻止加拿大卡车司机](/content/gnews/25/README.md)
+### [《紧急状态法》不能阻止加拿大卡车司机](/content/gnews/34/README.md)
  ` NFSC News`
 
-### [20220206文贵大直播：新中国联邦今后的四大目标](/content/gnews/26/README.md)
- ` Tokyo Sakura Video Group`
-
-### [新中国联邦创立人郭文贵先生遭中共迫害在美国法院申请破产保护](/content/gnews/27/README.md)
+### [新中国联邦创立人郭文贵先生遭中共迫害在美国法院申请破产保护](/content/gnews/35/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [樱花FM┃中日财经爆:日本2022-2024年将新建多家晶圆厂](/content/gnews/28/README.md)
- ` 樱花FM`
-
-### [加拿大自由车队主要组织者克里斯·巴伯被捕](/content/gnews/29/README.md)
+### [加拿大自由车队主要组织者克里斯·巴伯被捕](/content/gnews/36/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [尽管特鲁多动用紧急权力，加拿大卡车司机仍坚守阵地](/content/gnews/30/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [美将军警告中共可能利用乌克兰危机在南中国海采取行动](/content/gnews/31/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [当西方世界从中共病毒中复苏，香港却正处于风暴中心](/content/gnews/32/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [美国务卿布林肯称未看到俄罗斯军队从乌克兰边境附近撤退的迹象](/content/gnews/33/README.md)
+### [美国务卿布林肯称未看到俄罗斯军队从乌克兰边境附近撤退的迹象](/content/gnews/37/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [调查显示，伊维菌素和羟氯喹的使用体现了医疗决策的政治性](/content/gnews/34/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [新加坡持续放宽入境防疫措施](/content/gnews/35/README.md)
- ` GTV News Talk`
-
-### [郭文贵直播摘要和音频 2022.02.18](/content/gnews/36/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [荷兰将向乌克兰提供狙击步枪，头盔和其它自卫军事装备](/content/gnews/37/README.md)
+### [荷兰将向乌克兰提供狙击步枪，头盔和其它自卫军事装备](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆|正荣地产濒临爆雷边缘 2亿美元债即将违约](/content/gnews/38/README.md)
+### [中日财经爆|正荣地产濒临爆雷边缘 2亿美元债即将违约](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [02/19每日播报｜社媒消息:罗伯特马龙博士 Disclose.tv](/content/gnews/39/README.md)
- ` 秘密翻译组-即时新闻播报组`
 
 ### [拜登称他“确信 ”普京已做出入侵乌克兰的决定](/content/gnews/40/README.md)
  ` 秘密翻譯組G-Translators`

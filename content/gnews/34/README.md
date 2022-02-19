@@ -2,31 +2,33 @@
 ---
 
 
-## 调查显示，伊维菌素和羟氯喹的使用体现了医疗决策的政治性
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2029404/)
+## 《紧急状态法》不能阻止加拿大卡车司机
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2029528/)
 
-#### 撰稿：彩虹       
+作者：纽约磐石农场-在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月17日，据郭文贵先生在盖特平台上转发的一则视频显示，那些反对中共病毒疫苗强制接种政策的加拿大卡车司机强调，他们将坚持到底，直到重获自由。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-19-上午2.48.59.png)
+据悉，《紧急状态法》从未在加拿大现行法律框架内使用过，其原因在于，它赋予了联邦政府广泛的权力，包括为地方警察提供联邦执法的资源。此外，该法案还让加拿大银行无需授权就可以冻结任何参与此次道路封锁以及该活动资助者的银行账户，同时，银行还可以暂停参加抗议的卡车司机的保险。更甚者，众筹网站被该法案禁止继续为这些卡车司机募集捐款，至于经筹集的数百万美元则全部被冻结。
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/16452560451.png)图片来源：华盛顿邮报
-《国会山报》2月18日报道，根据周五发布的一项研究，在2020年底共和党选民比例较大的县，两种未经官方证实治疗中共病毒（COVID-19）的方法使用量较高，这表明在医疗决策方面存在明显的政治差异。
+目前，渥太华地区的卡车司机人数还在增加。而这些卡车司机表示，《紧急状态法》不能阻止他们，暂停他们的保险也没有任何作用，唯一能说服他们离开的，就是他们重新获得权利和自由。
 
-根据周五发表在《美国医学会内科学》（JAMA Internal Medicine）杂志上的研究，2020年6月至12月，羟氯喹（Hydroxychloroquine）处方量大约是前一年的两倍，共和党人最多的县的处方量比最少的县高150%。
+参考链接：[https://www.gettr.com/post/puzpgw4922](https://www.gettr.com/post/puzpgw4922)
 
-报道指，在美国的中共病毒疫情早期，前总统川普称其为治疗中共病毒的神奇药物，其盟友们也一直在大力宣传它是治疗该病毒药物。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-于是，2020年3月底，FDA（食品和药物管理局）为该药物颁发了紧急使用授权，但在不到三个月后又将其撤销。在FDA撤销授权后，在共和党选民占比最大的县，处方量高出两倍多。
+总编：Irene木木
+编辑：Lakeman文仁
+审核：飞虹
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-至于伊维菌素（Ivermectin），报道说，在反对中共病毒疫苗的组织和右翼政客中受到追捧。2020年12月，在共和党人最多的县，伊维菌素的处方量比最少的县高出950%以上。
-
-研究指出，这个峰值与几个关键事件一致。如在2020年11月中旬，一份现已撤回的手稿称该药物对中共病毒非常有效，以及12月初美国参议院举行了一次广泛宣传的听证会，其中包括一名医生的证词，该医生将伊维菌素作为中共病毒的治疗手段。
-
-对于伊维菌素和羟氯喹的这一现象，哈佛大学公共卫生学院卫生政策和管理助理教授、该研究的主要作者迈克尔·巴内特（Michael Barnett）在一份声明中说：“据我们所知，这是关于像感染治疗或预防这样的基本临床决策存在政治分歧的第一个证据。我们都愿意认为医疗保健系统基本上是无党派的，但COVID-19（中共病毒）大流行可能已经开始使这一假设受到质疑。”
-
-**新闻来源**
-
-[Study shows political affiliation drove use of ivermectin, hydroxychloroquine](https://thehill.com/policy/healthcare/594953-study-shows-political-affiliation-drove-use-of-ivermectin?rl=1)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,44 +2,45 @@
 ---
 
 
-## 新加坡持续放宽入境防疫措施
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2029401/)
+## 新中国联邦创立人郭文贵先生遭中共迫害在美国法院申请破产保护
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2029517/)
 
-作者：纽约香草山农场教育部—Naughty(文行)
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/02/guo.jpg)
+**2**月**16**日路透社报道** **了，新中国联邦创立人郭文贵先生申请破产的相关消息，称法院文件显示，郭文贵先生在美国布里奇波特的一家破产法院申请个人破产保护。在破产申请中列出的资产在**5**万零**1**至**10**万美元之间，负债在**1**亿至**5**亿美元之间。**
 
+**在索赔的债权人名单中，太盟亚洲机会基金**(Pacific Alliance Asia Opportunity)**被列为索赔额最大的一个，约为**2.54**亿美元。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-37.png)
+**该基金起诉郭文贵未偿还贷款**8,800**万美元，声称是在**2008**年至**2011**年期间所借。
 
+**
+**郭文贵先生指出，这笔贷款实际上属于盘古酒店，他只是担保人，**PAG**方面也证明这笔贷款已经还清。但后面通过捏造假证据，指控文贵先生还欠他们**3000**万美元。美国法院根本就不应立案，因为此案不属于其管辖权范围。
 
-新加坡将放宽入境旅客检疫规定。由低风险国家及地区入境的旅客，抵境后无需接受PCR核酸检测，只需到检测中心进行快筛。新加坡还将持续扩大适用接种者免隔离的国家。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/25-1.png)
-新加坡将所有国家及地区依风险程度分成4类，对风险程度最低的第一类国家及地区单边开放，来自台湾、中共国、香港及澳门的旅客入境后不需隔离，只要在机场接受PCR检测，结果呈阴性即可自由活动。来自其他类别国家的旅客则依风险程度适用不同检疫规定，风险较高者必须在指定设施隔离。
-
-卫生部表示，2月21日晚上11时59分起，新措施开始实施。 另据报道，新加坡卫生部长王乙康今天表示，新加坡正历奥密克戎疫情，每天新增病例仍在攀升。这波疫情预计在未来几周达到高峰，之后病例可能急遽下降，到时就能放宽防疫措施，让人们过上更正常的生活。
-
-参考来源：
-
-[Singapore to impose quarantine-free travel for vaxxed tourists from select countries](https://newsinfo.inquirer.net/1555706/singapore-to-impose-quarantine-free-travel-for-tourists-from-select-countries)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-41.jpg)
-
-编辑/校对/发稿：兰兰
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+此案刻意在**VOA4.19**断播前一天开庭，美国法官在中共蓝金黄作用下刻意剥夺了文贵先生请陪审团、提供证据和申辩等应有权力。此外，**PAG**出示的所有证据均来自于中共大外宣多维网站，更加荒诞的是判决书竟然由**PAG**方面律师撰写。**Ladymay**船并非文贵先生名下财产，才值**2700**万，法官却判他赔**1.34**亿元，五天内不交钱就扔监狱。文贵先生申请破产，因个人及整个家族遭受邪恶中共的各种迫害。文贵先生申请破产事件粉碎了中美黑暗势力对他实行法律超限战的险恶企图。
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-38.png)
 
+
+
+**推出问题，敲出真相，爆料在路上！**
+
+**请关注和订阅我们的以下账号：**
+
+**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+
+**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+
+**玫瑰看新闻YOUTUBE账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**ROSE NEWS**
+
+**【玫瑰看新闻】推特账号**：
+
+**ROSE NEWS (@ROSENEWS4)A**
 
  
 
