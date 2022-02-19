@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：邪教的六个特征
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2033370/)
+## 七哥金句：珍惜今天拥有的，看清事实
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2033460/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句1－邪教的六个特征-.001-1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句6-4.jpg)
 整理：雅典娜农场
 发布：枫叶红了
 

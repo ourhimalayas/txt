@@ -2,12 +2,14 @@
 ---
 
 
-## 七哥金句：共党对新疆布局
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2033374/)
+## 2月18日文贵大直播摘要（图片21-24）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2033468/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句2.001-1.jpeg)
-整理：雅典娜农场
-发布：枫叶红了
+设计：五月花农场 科存
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2605D3BF-E967-42B8-80D4-6FE9FB0F0325.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/AB1E9349-B5AD-4B4B-8781-CBC9D4885CD3.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/ADB814D7-E4A4-413B-99C6-47F105D7BEA6.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/CED74723-5E36-4D39-BB4C-3D504696D150.png)
+2月18日文贵大直播摘要（图片21-24）
+
+发布：水涨船高
 
  
 
