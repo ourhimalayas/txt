@@ -2,33 +2,23 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年2月18日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2028177/)
+## 20220218郭文贵大直播：新加坡是中共藏钱地，李家政局动荡将引起排华，不宜久留
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2028320/)
 
-作者：香草山翻译部
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO-2.jpg)
+作者：东京樱花团视频小组
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-1-3.png)
-校对：Stay文苑
 
-编辑：Stay文苑
 
-发稿：Stay文苑
 
-新闻：[https://gtv.org/broadcast/watch/621048fcb706176dd78d0003](https://gtv.org/broadcast/watch/621048fcb706176dd78d0003)
-访谈：[https://gtv.org/broadcast/watch/621050a1b706176dd78d0b1d](https://gtv.org/broadcast/watch/621050a1b706176dd78d0b1d)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-2.png)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+校对：东京樱花团视频小组
 
+编辑发布：东京樱花团视频小组
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

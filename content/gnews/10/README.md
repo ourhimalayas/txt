@@ -2,48 +2,45 @@
 ---
 
 
-## 习近平21年5月南阳之行 动用警力护宗祠风水
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2028406/)
+## 阿里、腾讯电商网站被美国列“恶名市场”名
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2028490/)
 
-撰稿: 纽约香草山 – 文不破
-![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-10.png)
-2021年5月14日上午，中共喉舌新华社报道，中共习近平在河南省南阳市召开推进南水北调后续工程座谈会，同时也对发展中医药做了指示。但据现任南阳市委组织部知情人士爆料，这不过是中共一贯的“障眼法”而已，习一神南阳之行的真实目的既不是所谓的中医药发展，也不关心生态环境的保护，而是关切南水北调工程与习家宗祠的风水关联。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1753.png)新闻来源：http://lw.xinhuanet.com/
-习家宗祠与祖墓位于河南省南阳市邓州市十林镇习营村。习仲勋其祖父与父亲更是直接葬于习营村“卧龙岗”南麓、锦鸡岭东面，其祖坟由此得名“锦鸡坟”。知情人士透露，扒淤河环绕习家宗祠，形成一左一右两个“龙潭”拱卫习家营村，犹如龙之双目，卧龙岗对面而立，成为习家营村的天然屏障，在堪舆学上堪称风水宝地。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-习因担心南水北调工程破坏习家宗祠的水脉，所以特意来视察并作出相关保护指示。南阳市政府根据习的指示，专门成立相关工作组，抽调警力对习家宗祠附近进行保护，并部署监控系统24小时进行防护，防止有人恶意破坏风水。
+**整理/编辑：文泓**
 
-参考文献：
-
-[习近平总书记在河南南阳考察调研](http://lw.xinhuanet.com/2021-05/19/c_139952700.htm)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/6-28.png)图片来源：Rising Candle
 
 
+近日美国公布2021“恶名市场”黑名单，包括42个在线市场和35个实体市场，其中有多个中共国电商网站，它们被指从事或协助进行大量的假冒商标或侵犯版权的行为。
 
+美国贸易代表办公室发布的报告和清单具有点名和羞辱那些据称没有采取措施阻止盗版或假货的公司和国家，但它们并未制定官方（制裁）政策。
 
+当地时间2月18日，据德国之声报道，美国贸易代表办公室周四（2月17日）公布2021年贩卖仿冒与盗版的“恶名市场”黑名单，中国多个电商平台上榜，其中腾讯和阿里巴巴运营的电子商务网站也被列入该名单中。
 
-> [控制中国人民，中共布置的风水](https://gnews.org/zh-hans/1935205/)
+该办公室声明指出：“这份清单包括首次确定全球速卖通（阿里巴巴集团旗下电商业务）和微信电子商务生态系统，这两个都是中国重要的网络市场，据悉他们有助长大量商标假冒行为。”
 
+中国搜寻引擎巨头百度运营的云存储服务百度网盘（Baidu Wangpan）以及敦煌网（DHGate）、拼多多和淘宝网也再次出现在该名单上。“这些平台以制造、分销和销售假货闻名，”美国贸易代表办公室称。
 
+同时该报告指出，中共国所有的虾皮平台上假冒商品数量都相当惊人。
 
+阿里巴巴表示，它将继续与政府机构合作，解决其平台上的知识产权保护问题。
 
+美国服装和鞋类协会（AAFA）和好莱坞行业组织（The Motion Picture Association）等对美国贸易代表办公室的最新报告表示欢迎。
 
-> [共产党的魔性和三大风水工程](https://gnews.org/zh-hans/1930631/)
+早前，美国贸易代表办公室在周三（16日）发布的另一份报告中说，美国需要推行新战略并更新其国内贸易工具，以应对中国由“国家主导的非市场导向的政策和做法”。
 
+新闻链接：[阿里、腾讯电商网站被美国列“恶名市场”名单](https://www.dw.com/zh/%E9%98%BF%E9%87%8C%E9%A8%B0%E8%A8%8A%E9%9B%BB%E5%95%86%E7%B6%B2%E7%AB%99%E8%A2%AB%E7%BE%8E%E5%9C%8B%E5%88%97%E6%83%A1%E5%90%8D%E5%B8%82%E5%A0%B4%E5%90%8D%E5%96%AE/a-60821750)
 
+*发布：tianzhihuan*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-5.png)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-编辑/总编：童谣
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-10.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,37 +2,26 @@
 ---
 
 
-## 俄罗斯关闭3个针对窃取信用卡信息的暗网网站
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2028483/)
+## 可怕！纽约发现感染奥密克戎的鹿群
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2028584/)
 
-翻译/编辑：小红帽
+撰稿：东京樱花团/道来
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/5-29.png)图片来源： news.yahoo.com
+![](https://assets.gnews.org/wp-content/uploads/2022/02/可怕！纽约发现感染奥密克戎的鹿群.png)
 
+由美国农业部支持的一项研究在纽约市史泰登岛区发现了感染中共病毒（COVID-19）新型变异毒株奥密克戎的鹿群。
 
-根据CoinGeek 2月18日报道，俄罗斯当局打击了另一批暗网网站，这次针对窃取信用卡信息的在线市场。在最新的活动中，有三个市场被关闭，总共产生了2.63亿美元的数字货币收益。
+该项研究为证明奥密克戎变种病毒可在动物中传播提供了有效的证据。同以前的新冠变异病毒一样，奥密克戎病毒是能够从人类传播蔓延到动物界。该项研究也为证明病毒在抵抗疫苗作用的同时会进行变异扩散到动物提供帮助。因为当病毒完成变异的时候就会进行疫苗抵抗，想法设法逃脱当前疫苗的保护。
 
-根据英国区块链分析公司埃利普（Elliptic）的一份报告，俄罗斯内政部关闭了三个市场——Trump’s Dumps、UAS Store 和 Ferum Shop，以及在线被盗卡论坛Sky-Fraud。
+这项研究同时也发现一些鹿的体内有多种COVID-19病毒抗体。这表明这些鹿曾经被感染过新冠病毒，而且被不同的新变异毒株重复的感染。
 
-埃利普公司透露，Ferum Shop是主要目标。在被查封之前，它是世界上最大的被盗信用卡市场。
+目前为止，已经有研究发现COVID-19病毒可在 狗， 猫，老虎，狮子， 雪豹，水獭，大猩猩， 貂等动物中传播。这些研究结果都表明持续密切关注COVID-19在动物界传播的重要性。因为COVID-19变异毒株从人类蔓延到动物，再从动物蔓延到人类的这种反传播过程也是极有可能的。
 
-这些市场迎合了网络地下犯罪最古老的恶习之一——刷卡。这就是黑客通过在线零售商、银行和其他途径从数亿受害者那里窃取支付卡详细信息的地方。然后他们在暗网市场上出售这些信息，客户用它们购买昂贵的物品或礼品卡，然后以现金出售。
+信息来源：[New York Deer Infected With Omicron, Study Finds](https://www.nytimes.com/2022/02/07/health/omicron-deer-staten-island-covid.html)
 
-埃利普公司指出，虽然刷卡本身是有利可图的，但它也被广泛用于清洗从各种形式的网络犯罪中获得的数字资产。
-
-自俄罗斯联邦安全局 (FSB) 捣毁世界上最具破坏性的勒索软件团伙之一的REvil以来，此次打击行动仅用了数周。
-
-新闻链接：[Russia shuts down 3 dark web sites with reported $263M in digital currency proceeds](https://coingeek.com/russia-shuts-down-3-dark-web-sites-with-reported-263m-in-digital-currency-proceeds/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布： 东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

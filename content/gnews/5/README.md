@@ -2,23 +2,24 @@
 ---
 
 
-## 三方合作以H PAY销售榴莲单日成交近一万美元
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2028463/)
+## 特鲁多将34个加密货币钱包列入黑名单
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2028558/)
 
-撰稿: 纽约香草山医疗部 – 云豹
+撰稿: 加拿大温哥华扬帆农场 – Spirit
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-11.png)
-当地时间2月17日，台湾农场与马来西亚榴莲商家，及鸡血王喜币大作战节目三方合作，共同推出H PAY买榴莲送喜币的项目。当天成交了三十笔订单，以每笔订单价296 HDO计算，成交金额近一万美元。显示以H PAY支付来进行商业交易的模式将有无限的空间及发展潜力。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1755.png)
-此次销售活动由台湾农场的合作商家提供十个喜币抽奖，在鸡血王喜币大作战2月16日的节目中引入商品贩卖广告。该榴莲商家提供买「四盒榴莲即送一个喜币」 的商品套餐作为促销手段，引起消费者的热烈响应。销售成功后赠送给买家的一个喜币则由台湾农场负责交付。
+据外媒 2月16日报道，特鲁多向联邦警察部队发出命令，要求加拿大所有受FINTRAC 监管的公司停止与34个加密货币钱包进行交易，这些钱包据称与渥太华的自由车队有关。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1758.png)图片来源：https://www.thecountersignal.com
+特鲁多政府官员列出了29个比特币地址，2个以太坊，以及另外三个加密货币钱包。经确认，至少有一个钱包价值超过100万美元的比特币，通过加密货币支持自由车队的卡车司机。
 
-这种由农场提供销售计划、藉由GTV节目平台做宣传、HPAY合作商家负责出货的联合商业行为，创造出了一种新的G系列营销一体化模式。如果加以推广及改进，未来将商机无限。
+特鲁多政府对支持合法和平抗议的赞助资金疯狂阻截，遭到各界抨击。
 
-新闻连接：
-[https://gtv.org/video/id=620dbacb432ae869226e147e](https://gtv.org/video/id=620dbacb432ae869226e147e)[https://gettr.com/post/pv31mvbfde](https://gettr.com/post/pv31mvbfde)
+新闻:
+
+[EXCLUSIVE: RCMP orders blacklist of 34 crypto wallets under Trudeau’s authoritarian prerogative](https://www.thecountersignal.com/news/rcmp-ban-34-crypto-wallets-from-working-in-canada)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-5.png)
 
-编辑: 宁文静
+编辑: Jack Li文阳
 
 总编: 童谣
 

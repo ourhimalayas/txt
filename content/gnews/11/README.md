@@ -2,32 +2,24 @@
 ---
 
 
-## 以色列将取消疫苗接种证明
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2028403/)
+## 全球最大比特币交易所币安遭SEC调查
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2028489/)
 
-作者：纽约香草山农场教育部 – Naughty(文行)
+作者：日本东京方舟农场-Miyali7768(文玉）
 
+据华尔街见闻2月16日报道，SEC调查加密货币巨头币安美国分部的交易关联公司，怀疑其与两家交易附属公司之间有不正当关系，这两家交易公司Sigma Chain AG和Merit Peak Ltd担任着币安美国交易所的做市商，且截至去年底，二者均由币安创始人兼首席执行官赵长鹏控股。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-34.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-6.jpg)
+根据SEC的要求，币安美国交易所需要提供有关这两家交易公司的具体信息和币安美国交易所如何向客户披露其与交易公司的联系。对此，币安表示不予置评，并回应称币安一直坚持最高的合规水平。币安此前一直是美国监管机构调查的对象。SEC在2021就怀疑币安可能存在内幕交易和市场操纵并就币安其他事项进行过两次调查。此外，美国司法部和国税局也于2021年对币安投资者利用交易所进行洗钱和税务欺诈的可能性进行了调查。
 
+ 文贵先生在2月16日和此前的直播中多次揭露币安首席执行官赵长鹏出卖客户信息给中共，涉及洗钱内幕交易和操控市场等违法行为，并明确指出赵长鹏必将会受到美国法律严惩。
 
-
-2月17日，以色列总理班奈特宣布，很快就会取消出入多种场合，所必须的疫苗接种证明。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/FireShot-Capture-813-Israel-PM-announces-end-of-vaccine-‘green-pass-Coronavirus-pandemi_-www.aljazeera.com_.png)
-
-据报道，以色列领先全球多国推动全国接种计划，也是首批强制要求疫苗接种证明的国家之一。
-
-在过去一年内大部分时间，以色列人们进入酒吧、餐厅、健身房、敬拜场等地都必须出示疫苗接种证明。
-
-随着多个国家相继取消疫苗护照限制令，班奈特表示，以色列已经到了取消该规定的时候。
-
-参考来源：[https://www.aljazeera.com/news/2022/2/17/israel-pm-announces-end-of-vaccine-green-pass](https://www.aljazeera.com/news/2022/2/17/israel-pm-announces-end-of-vaccine-green-pass)
+参考来源：[https://wallstreetcn.com/articles/3652036](https://wallstreetcn.com/articles/3652036)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3.jpg)
 
-编辑：童谣
+编辑：Irene木木
 校对/发稿：Daxia
 
 **更多资讯，更多关注**

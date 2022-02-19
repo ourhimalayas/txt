@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/19/2022 5:13 AM (UTC)`
+
+2/18/2022 Miles Guo: The Way of Righteousness will become a new way to manage humanity.<br/>The New Federal State of China will ensure the independence of judiciary, media, and science. Freedom of speech requires that people must take legal responsibility for what they say and be subject to supervision. The less civilized the region, the more fake vaccines there are and the fewer people have died.<br/><br/>2/18/2022 文贵直播: 正道主义将成为管理人类的新方式；新中国联邦将确保司法，媒体和科学的独立；言论自由必须要承担法律责任和接受监督；越落后的地区，假疫苗越多，死人越少，越发达的地方则反之<br/>
+![img](https://media.gettr.com/group50/getter/2022/02/19/05/65d356cb-0c65-caae-e6a7-189e819d9418/out.jpg)
+
+---
+
 `@miles 2/19/2022 3:10 AM (UTC)`
 
 2/18/2022 Miles Guo: The CCP wants to release the new virus, but it won’t be able to do so, and Xi Jinping may cause the CCP to suddenly collapse. The Peng Shuai incident is a heavy blow to the CCP. The chained woman incident has made Xi’s wife, Peng Liyuan, very unhappy, and Xi’s mom and family have had the biggest backlash. The chained woman incident has become a common problem of humanity.<br/><br/>2/18/2022 文贵直播：中共想放新毒却放不了，习近平正让中共猝死；彭帅事件对中共打击巨大；锁链女事件让彭丽媛相当不悦悦，反响最大的是习母和家人；锁链女事件已成为全人类共同的问题<br/>
@@ -147,13 +154,6 @@ Live, Love, & Laugh ❤️
 
 2月17号：尊敬的战友们好这比数字货币交易．将是改变数字货币与现实生活生产力．公平交易一个里程碑的事件！也是喜币走向另外一个新时代的开始！意义重大塞纳是汽车运动业的像神一般的存在超级超级英雄……他是巴西的象征，也是人类走向现代汽车运动的最有影响力的人物之一。［已故车神塞纳的车被喜币买走了……］
 ![img](https://media.gettr.com/group27/getter/2022/02/17/09/690c04c0-81c4-defb-0c73-ff8fc67a45a2/07b4f16453974a85c19dc5520d23b6c7.jpg)
-
----
-
-`@miles 2/17/2022 9:13 AM (UTC)`
-
-2月17号：尊敬的战友们好……视频做得特别特别好，但是核心的原因没敢说出来！
-![img](https://media.gettr.com/group4/getter/2022/02/17/09/7e2e70ce-b596-80c5-e5cc-bc6d376f2466/out.jpg)
 
 ---
 

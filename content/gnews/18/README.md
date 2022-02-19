@@ -2,45 +2,34 @@
 ---
 
 
-## 迫于劳动力压力全球供应链恢复缓慢
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2028298/)
+## 中共病毒及疫苗灾难是对人类的一次大清算
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2028450/)
 
-据《彭博社》作者：Bremdan Murray，2022年2月17日发布：
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1751.png)图片来源：Toru Hanai/Bloomberg
-导致欧洲和美国通胀率飙升至数十年高位的供应紧缩继续缓解，但Omicron留下了持久的印记。
+撰稿：银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-11.png)
+2月16日大直播中郭先生指出，此次中共病毒以及疫苗灾难是对人类的一次大清算。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1754.png)图片来源：Gettre
+过去七十年来，人类拥有一段长时间的和平，科技高速发展，财富和人口暴涨。与此同时，共产党的邪恶也达到了顶峰，并且利用财富统治人类。中共国通过中央银行控制老百姓，最近加拿大的土豆也效仿此法，随意停用老百姓的银行卡。人类自诞生以来都未曾有过如此的威胁。任何依靠独裁权力，伤害破坏人类同胞和大自然的行为，均会受到严厉的惩罚。而信仰缺失毫无辨别是非黑白能力的人，将因此付出高昂的代价。
 
-彭博经济研究院最新供应紧缩状况如下：
-• 对于美国而言，短缺在去年夏天达到顶峰，并在七个月内呈小幅下降趋势。在劳动力市场，压力仍然很高。
-• 欧元区的情况继续缓和，但压力仍然很大，而且恢复缓慢。欧元区通胀达到近二十年来的最高水平。
-• 英国的改善停滞不前，短缺依然存在。与美国和欧元区一样，主要是劳动力市场的状况。最新的就业数据显示，工资快速上涨而职位空缺达到创纪录水平。
+财富的集中，信仰的缺失，世界走到了黑暗的尽头。而爆料革命是暗夜烛火，每个战友都用光和热来温暖身边的人。只要把中共病毒和疫苗的真相告诉别人，不用在乎对方是否相信。行善不需要问结果，若问其果乃是大过。要求别人对自己的所谓帮助有所回应的是贪嗔痴慢疑，是大恶。能够听到爆料革命的真相，并完全接受的人，靠的是自我的修行和结果，旁人的劝慰只是抛砖引玉。
 
-与此同时，瑞银本周的一份报告对供应压力下降趋势更加乐观。瑞银经济学家本周写道，与2021年前三个季度相比，瓶颈压力已减少了四分之一，较10月峰值下降了37%。
+新闻来源: [2022年2月16日 文贵大直播](https://gtv.org/video/id=620cf40c432ae869226d8db5)
 
-在瑞银模式中，集装箱可用性仍然很低，运输成本仍然很高。但航空货运费率趋于平稳，商品支出转向服务业，工厂订单放缓。瑞银表示，压力“开始在某些地方迅速消散，尽管有 Omicron”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-5.png)
 
-但是其他信号还没有闪烁绿色，而且可能没有顺利恢复正常的路径。根据国际货币基金组织周四的一份报告，供应中断在去年影响了欧元区经济增长，并可能持续到2023年。
+编辑：静言
 
-在美国，Flexport最新的疫情后指标显示，今年第一季度，消费者对商品而非服务的偏好将继续接近2020年夏季的水平。
+总编：童谣
 
-亚洲货物的运输时间仍徘徊在历史高位附近。
+校正/发稿：浪迹天涯
 
-一家总部位于旧金山的货运代理的海运及时性指标显示：货物从亚洲转运的时间仍然接近创纪录的水平。
-• 东行跨太平洋航线的货运平均需要112天，几乎与三周前报告的最长113天持平；
-• 从亚洲向西运输货物需要花费110天——略低于1月中旬创下的111天的记录。
-
-* * *
-
-文章来源：[https://www.bloomberg.com/news/newsletters/2022-02-17/supply-chain-latest-bloomberg-economics-index-shows-some-relief](https://www.bloomberg.com/news/newsletters/2022-02-17/supply-chain-latest-bloomberg-economics-index-shows-some-relief)
-
-翻译：洛杉矶盘古农场 – Spring
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-11.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
