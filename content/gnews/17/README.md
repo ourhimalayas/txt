@@ -2,33 +2,21 @@
 ---
 
 
-## 樱花FM┃NASA宣布国际空间站将在2030年退役
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2028004/)
+## 中国人在苏联面前永远是输家
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2028038/)
 
-音频：东京樱花团/战友520
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/NASA宣布国际空间站将在2030年退役-1.png)
+*发布：陶子*
 
-据CNN日本在线消息，美国国家航空航天局（NASA）已宣布计划继续运营国际空间站（ISS）直到2030年底，之后它将降落在太平洋。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-根据NASA的说法，一个私人经营的空间站将取代国际空间站，成为合作和科学研究的场所。NASA表示，私营部门在美国宇航局的合作下，有能力在低地球轨道上开发和运营，无论是技术上还是经济上。
-
-他们计划在2031年1月将国际空间站（ISS）降落在南太平洋一个名为“尼莫点”（正式名称为海洋难抵极）无法到达的极点处。
-
-尼莫点位于新西兰东部约4,800公里处，南极大陆以北约3,200公里处。自1971年以来，美国、俄罗斯、日本和欧洲国家迄今已投下了大约263个宇宙垃圾。
-
-国际空间站于 2000 年发射升空，已搭载了来自19 个国家的200多名宇航员绕地球运行。
-
-文字版原文：
-
-
-| [NASA宣布国际空间站将在2030年退役](https://gnews.org/zh-hans/1953831/) |
-| --- |
-
-
-*编辑：东京樱花团/asket   
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

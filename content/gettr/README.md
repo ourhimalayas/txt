@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/19/2022 3:10 AM (UTC)`
+
+2/18/2022 Miles Guo: The CCP wants to release the new virus, but it won’t be able to do so, and Xi Jinping may cause the CCP to suddenly collapse. The Peng Shuai incident is a heavy blow to the CCP. The chained woman incident has made Xi’s wife, Peng Liyuan, very unhappy, and Xi’s mom and family have had the biggest backlash. The chained woman incident has become a common problem of humanity.<br/><br/>2/18/2022 文贵直播：中共想放新毒却放不了，习近平正让中共猝死；彭帅事件对中共打击巨大；锁链女事件让彭丽媛相当不悦悦，反响最大的是习母和家人；锁链女事件已成为全人类共同的问题<br/>
+![img](https://media.gettr.com/group19/getter/2022/02/19/03/f73d0a8e-cfcc-01b6-0349-22b9c60884ac/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@s7gril 2/16/2022 5:51 PM (UTC)`
@@ -147,13 +154,6 @@ Live, Love, & Laugh ❤️
 
 2月17号：尊敬的战友们好……视频做得特别特别好，但是核心的原因没敢说出来！
 ![img](https://media.gettr.com/group4/getter/2022/02/17/09/7e2e70ce-b596-80c5-e5cc-bc6d376f2466/out.jpg)
-
----
-
-`@miles 2/17/2022 7:20 AM (UTC)`
-
-2/16/2022 Miles Guo: What is the suit I am wearing today? My personal bankruptcy is just a legal process, but I still own unlimited wisdom. My personal bankruptcy is no match for the fact that the CCP is going to be finished soon and the New Federal State of China that has turned the fellow fighters into those “rich capitalists” who didn’t get the COVID jabs and have Himalaya Coins.<br/><br/>2/16/2022 文贵直播：文贵今天穿的什么衣服？文贵只是法律上的破产，但仍拥有无限的智慧；相较于即将完蛋的中共和把战友们变成无苗有币族和”富豪阶级”的新中国联邦，文贵的破产不叫事儿！<br/>
-![img](https://media.gettr.com/group23/getter/2022/02/17/07/ac3d6c53-0981-b3b8-2625-11c86243fd18/out.jpg)
 
 ---
 

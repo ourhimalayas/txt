@@ -2,31 +2,36 @@
 ---
 
 
-## 樱花FM┃德俄两国互禁其外宣平台
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2028097/)
+## 有声|抖音避开苹果和谷歌隐私保护，获取用户数据
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2028123/)
 
-音频：东京樱花团/战友520
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+布赖特巴特网2月16日报道，据最近两项研究显示，抖音APP可以绕过苹果和谷歌应用商店的安全保护程序，和应用商店的代码审计，在用户不知情的情况下，改变应用程序的行为，访问设备追踪功能，使抖音和第三方公司能够获得全部用户数据。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/7-25.jpg)
+据悉，这远远超过了脸书和推特等美国应用程序对用户数据的访问。网络安全工程师指出，这些动态属性，允许抖音在应用程序可以看到的范围内全权访问设备，抖音浏览器不仅拥有从网络到设备的转换权限，还可以查询设备本身。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/德俄两国互禁其外宣平台-1.png)
+尽管抖音声称其为标准的应用程序，但研究人员和专家称，该应用程序的代码使其更难监控，埋下了安全隐患。
 
-3日，德国之声（DW）在俄罗斯境内被禁播，驻俄记者站被关闭。据塔斯社报道，该禁令是对德国当局2日以没有相关的广播许可证为由停播俄罗斯卫星通讯社（RT）的德语频道的回应。RT批评德国当局施加 “政治压力”，而德国外交部谴责RT破坏两国关系。
+文字版原文：[抖音避开苹果和谷歌隐私保护，获取用户数据](https://gnews.org/zh-hans/2022930/)
 
-据塔斯社报道，俄罗斯外交部将宣布废除颁发给DW驻俄记者站的记者证，启动DW作为 “外国代理人”的调查，并考虑禁止参与RT禁播的德国官员入境俄罗斯。 DW的主编反对俄罗斯的过激行为，表示将加大对俄的报道。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-RT被欧美各国批评为 “传播虚假信息”，去年9月俄罗斯卫星通讯社的德语频道（RT DE）在YouTube上的账户被删除，理由是传播关于新冠状病毒的虚假信息。 RT DE于2021年12月利用在塞尔维亚获得的广播许可证在德国进行广播，遭到德国的反对。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-DW自1962年起开始俄语广播，2001年还拥有了一个俄语新闻网站。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-文字版原文：
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-| [德俄两国互禁其外宣平台](https://gnews.org/zh-hans/1953688/) |
-| --- |
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-*编辑：东京樱花团/asket   
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,21 +2,35 @@
 ---
 
 
-## 普京玩一箭三雕之计
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2027925/)
+## 樱花FM┃新疆西藏同胞在纽约抗议北京冬奥会
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2027975/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+音频：东京樱花团/战友520
 
-*发布：陶子*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/新疆西藏同胞在纽约抗议北京冬奥会.jpg)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+日本电视台新闻 2月4日报道：在北京冬季奥运会开幕式前，来自中国西藏自治区和新疆维吾尔自治区的民众在美国纽约举行了反对北京冬奥运会的抗议示威活动。
 
+抗议人士高呼“没有人权就没有奥运”，“不再有沾满鲜血的奥运会”。
+
+2月3日，来自西藏和维吾尔自治区的约100人聚集在纽约市中心的时代广场，抗议北京冬奥会。
+
+一位维吾尔族男子说：”中共政府对维吾尔人进行了种族灭绝，犯下了反人类罪。中共国无权举办奥运会。奥运会是一个团结的和平的盛会”。
+
+据悉，在纽约2月5日将在播放北京冬奥会的电视台前，再次举行抗议活动。
+
+都站出来吧，勇敢的爱好和平的人们！大家一起抵制北京冬奥会。中共这个残暴的毫无人性的独裁政权，没有任何理由再存在于这个世界，让中共的冬奥会开成他们的治丧会吧。Take down the CCP！
+
+文字版原文：
+
+
+| [新疆西藏同胞在纽约抗议北京冬奥会](https://gnews.org/zh-hans/1954179/) |
+| --- |
+
+
+*编辑：东京樱花团/asket   
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
