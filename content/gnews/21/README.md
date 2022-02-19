@@ -2,21 +2,29 @@
 ---
 
 
-## 中共在世界的政权眼里，是奴役14亿中国人民的工具代表人
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2028047/)
+## 樱花FM┃日本三大航运巨头最终利润总额超2万亿日元
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2028069/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+音频：东京樱花团/战友520
 
-*发布：陶子*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/日本三大航运巨头最终利润总额超2万亿日元-1.png)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+雅虎新闻2月3日在线消息，据日本商工研究所的调查显示，日本邮船公司、三井物产有限公司和川崎汽船有限公司三家航运巨头相继上调了其财务业绩，截至2022年3月的年度最终利润总额可能超过2万亿日元，比上一年度的最终利润总额3379亿日元增长了6倍。在全球运输需求的大背景下，三家公司经营的集装箱运输业提高了收益。
 
+这三家公司是由股权法关联公司 OCEAN NETWORK EXPRESS PTE. LTD(海洋网联船务) 的投资回报推动了其公司的业绩。集装箱船短期运价维持在高于预期的水平，强劲的货运需求也在不断的吸收燃料价格的急剧上涨。
+
+上调后截至2022年3月的综合预测如下：日本邮船公司预计净销售额为2.2万亿日元（同比增长36.8%），最终利润为9,300亿日元。商船三井公司预计净销售额为1.26万亿日元（同比增长27.1%），最终利润为6300亿日元。川崎汽船预计净销售额为7300亿日元（同比增长16.6%），最终利润5200亿日元。三家公司合计最终利润超2万亿日元。
+
+文字版原文：
+
+
+| [日本三大航运巨头最终利润总额超2万亿日元](https://gnews.org/zh-hans/1953742/) |
+| --- |
+
+
+*编辑：东京樱花团/asket   
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
