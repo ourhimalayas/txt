@@ -2,32 +2,28 @@
 ---
 
 
-## 樱花FM|您储备好粮食和物资了吗？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2032062/)
+## 有声|印度税务部门对当地华为办公室展开搜查
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2032305/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-11-1.png)
-2月13日据CNN报道：
+配音：香草山健身部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月15日，据相关媒体报道，印度税务部门正在对当地多处中共华为公司办公场所展开搜查。
 
-塞尔维亚总统武契奇2月13日宣布，他已下令进行大量粮食储备，以应对乌克兰日益紧张的局势，人们担心俄罗斯军队会在那里进行军事入侵。
+消息人士透露，华为在新德里和邻近的主要商业中心古鲁格，以及第三大城市班加罗尔的办公室均被当地税务部门以严查逃税漏税、做假帐或利用空壳公司洗钱等理由进行了突击搜查。其中，当地税务官员查看了华为公司的部分财务文件、账簿和公司记录，还有其在印度的业务和海外交易的资料。另外，印度税务官还带走了该公司的一些相关文件。
 
-据当地N1电视台报道，这是总统在11日由政府的电视台直播的一场辩论中说的。
+文字版原文：[印度税务部门对当地华为办公室展开搜查](https://gnews.org/zh-hans/2025443/)
 
-当局订购的粮食储备包括3千万公斤盐，豌豆和其他豆类各1百万公斤，3千万公斤小麦粉和奶粉。
+音频处理/发稿：Daxia
 
-总统指出，在整个世界都预测俄罗斯和乌克兰之间有很大的可能会发生什么的时候，我们不可能假装什么都不会发生。他还说，我们还没有确保燃料油的供应。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-战争一旦发生世界各地都会发生物资紧缺，该准备的就要及时准备了。大家都准备好了吗？
-
-文字版原文：[您储备好粮食和物资了吗？](https://gnews.org/zh-hans/1998400/)
-
-编辑：东京樱花团/asket
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
-
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

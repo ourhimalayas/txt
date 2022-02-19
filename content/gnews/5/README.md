@@ -2,86 +2,62 @@
 ---
 
 
-## 不屈
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2032100/)
+## 有声|【诗歌】招安
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2032345/)
 
-作者： 纽约香草山农场教育部 – 蓝之灵(Hortensia)
+配音：香草山佛教部 – 李傻
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_2143.jpg)
 
-你的暴政
 
-重于我体重
 
-枪托打歪腿和筋
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-19-150206.png)
 
-雪地冰凉
 
-渗透血与肉
+二猪愣充天蓬帅
 
-我胸中怒火
+狸鼠獠牙窥虎位
 
-已然熊熊
+心魔恶胆暗谋划
 
-燃烧这腐败
+唯我独尊苍生劫
 
-燃烧这腐烂
+口称同胞大一统
 
-给世界从新
+一手持香一手枪
 
-清与明
+奈何上了手术台
 
-我歪曲膝盖
+上天怜悯惜台湾
 
-绝不会歪曲心中之灵
+猪脑若还存人性
 
-追求爱与公平
+学苏解体散恶制
 
-对抗这暴政
+蓝旗仁义瀚海怀
 
-灭了我肉体
+民安国安既家安！
 
-灭不了我魂灵
 
-暴政，暴政
 
-是你死亡坟墓之门
+文字版原文：[【诗歌】招安](https://gnews.org/zh-hans/2025089/)
 
-遥看着
-
-审判台上
-
-绳索勾魂
-
-你肮脏躯体
-
-会挂在上面
-
-并且
-
-刻画耻辱二字
-
-烙印你灵魂
-
-暴政，暴政
-
-是你死亡坟墓之门
-
-刻画耻辱二字
-
-烙印你灵魂
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
-
-审核/编辑/发稿：谐趣园
-
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
