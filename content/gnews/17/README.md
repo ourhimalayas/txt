@@ -2,8 +2,8 @@
 ---
 
 
-## 中共对台行动将暂缓
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2028802/)
+## 台湾证明了法律、民主、人权的价值
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2028873/)
 
 台灣寶島農場
 

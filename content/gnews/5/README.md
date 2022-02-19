@@ -2,8 +2,8 @@
 ---
 
 
-## 政府不应箝制言论自由，也不应滥权阻止抗议
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2028887/)
+## 个人权利和自由是如此重要
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2029034/)
 
 台灣寶島農場
 
