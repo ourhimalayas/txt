@@ -2,32 +2,64 @@
 ---
 
 
-## 大直播后记：放下恐惧，把财富和智慧用在当下
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2031752/)
+## 出来混，迟早要还的！
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2031891/)
 
-整理：Popeye、铁血丹心
-编辑：Sadhu
+作者：加拿大温哥华扬帆农场 動物農莊裡的小螞蟻[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/JV4_5ME01ZG_5LC@60.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
+尽管本人对任何一个被中共病毒和疫苗祸害的人都充满同情，但不得不承认，万物皆空，因果不空，世间因果轮回，因果报应，非人力改变。不是不报，时辰未到！出来混，迟早要还的，这应当就是佛说的“现世报、来世报、他世报”吧！
 
+拜登总统的COVID-19顾问委员会主席，外科医生Vivek Murthy博士、妻子Alice、5岁的儿子和4岁的女儿，在2月18日宣布COVID-19阳性！ Murthy目前感到肌肉酸痛、发冷和喉咙痛，妻子Alice头痛和疲劳，儿子流鼻涕和低烧。以笔者诊断，Murthy博士全家人正在进入COVID-19早期轻症状态。
 
-图片来源：墨尔本雅典娜农场设计组
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-19_22-08-13.png)
 
+在这之前，Murthy夫妻及其中一个孩子已经完全接种COVID-19病毒“疫苗”，甚至打了加强针！
 
-我告诉你，人变成了魔，但是你是“人魔”，人在前魔在后。在《易经》里，人魔是被改变的人学坏了。“魔”的前面没有“人”，这些人天生就是魔。 记住很多坏人，很多你不喜欢的人，他们是人魔，不是天生的魔，他们还有人性。人们认为七哥被极度不公地对待…，为什么川普（前）总统要遣返Miles Guo？为什么黑石集团等一堆人要找一个Miles Guo？ 最后所有的Miles Guo的事情成为美国有史以来单日判决最夸张的，不让有陪审团的案件？为什么那么多不好的“偶然”都发生在Miles Guo身上？而且他还是个灭共的英雄！ 就像我们新加入的律师团队看到我这些被迫害的历史，他们简直无法理解Miles怎么撑过来的， 太难了，不可思议啊！昨天我们的一位女律师战友给我打电话，（说）七哥我要做你的终身的不收钱的律师…，她哭得一塌糊涂，她说我无法忍受啊，太黑了！我说我要用我受到的黑暗和迫害唤醒人。中国人懂得的所有的基督教、天主教的故事不都是这样吗？ 佛祖把自己变成了最最痛苦的人；耶稣都上十字架了才唤醒人类！但是我们兄弟姐妹们，你们要记住，你们在处理问题的时候要放下恐惧，放掉自我！如果我在恐惧，我在邪恶面前我只考虑我自己，这一切都不会发生的。有一天你们会意识到，我们新中国联邦做的事情远远会超过你想象的伟大和影响力，绝对是一种人类的新文明，绝对是人类的新力量！
+如果故事仅仅到此结束，写这样的报导就不太合适了！
 
-一个战友说，中国人送给别人东西？什么时候有这么大方过？中国人请人吃顿饭都是有目的，啥时候无私地给过别人啊？我说，兄弟你觉得七哥少了（什么）吗？七哥个人破产了，我一天只吃一顿饭，你总得让我吃啊！  比如昨天我最想吃的是法棍加三片火腿，才6美金，就这么简单。你觉得有什么东西你放不下？什么东西能带到你棺材里呢？毛泽东都拥有一个国家了，周恩来当时是2号人物…，他们又有啥呀？兄弟姐妹们，把你的财富把你的智慧用在你活着的当下，用在你喜欢的人和事儿上，这才是你的财富，没花出去的钱没用出去的好感情都是垃圾，都没有用的。
+Murthy主张社交媒体对有关COVID-19大流行的言论进行审查！甚至亲自发布了一本《健康误导信息社区工具包》！
 
-资料来源：[2022年2月19日 文贵大直播](https://gettr.com/streaming/ptgw8b5f32)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/A-Note-From-Surgeon-General.jpg)Addressing Health Misinformation
 
-发布：星谕
+今年1月，Murthy曾表示，“我们必须根除错误信息。” Murthy认为，Joe Rogan在他的播客The Joe Rogan Experience中散布有关COVID-19大流行的错误（误导）信息。1月26日，他在参加MSNBC的Morning Joe节目中表示，为人们提供正确的信息，以做出正确的决定至关重要，社交媒体在向人们提供正确信息方面可以而且确实发挥了重要作用。但现在社交媒体在限制错误信息的传播方面做得很不够，社交媒体平台没有采取正确的措施，减少错误信息的传播。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Vivek-Murthy-283.jpg)
+
+笔者认为，所谓国家参与根除“错误信息”，很容易被当权者滥用。中共国只有习太阳一道光芒，一个声音！
+
+去年11月9日，随着美国开始对5至11岁的儿童接种COVID-19病毒疫苗，Vivek Murthy博士发布了一个解决健康错误信息的社区工具包《[A Community Toolkit for Addressing Health Misinformation](https://www.hhs.gov/sites/default/files/health-misinformation-toolkit-english.pdf)》，以帮助美国人应对健康错误信息的严重威胁，尤其是警告人们根除健康错误信息的紧迫威胁，并呼吁采取全社会的方法来解决这个问题。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/A-Community-Toolkit-for-Addressing-Health-Misinformation.jpg)
+
+Murthy博士提供的工具包包括：帮助人们评估健康相关内容的准确性和错误的健康信息清单；关于个人如何与亲人谈论错误的健康信息方面的启示；常见的错误信息和虚假信息概述；个人遇到误导信息时应有的正确反应。
+
+Murthy称，该工具包在阻止社交媒体传播错误的健康信息，帮助美国人获得正确的健康资源，帮助限制和减少误导性的错误信息对公共卫生的威胁中扮演着关键角色。 随着美国卫生部门批准向5至11岁的儿童注射COVID-19病毒“疫苗”，家庭获得基于科学的准确信息比以往任何时候都更加重要。目前，健康错误信息在网上和社区中快速传播。在这场COVID-19病毒大流行期间及以后，“他们”都有能力帮助阻止健康错误信息的传播。
+
+Murthy认为，他发布的这就是这个工具包，就是为美国个人、医疗保健专业人员和管理人员、教师、学校管理人员、图书馆员和宗教领袖提供具体指导，帮助他们了解、识别和阻止健康错误信息在其社区中传播。
+
+在COVID-19大流行期间，以恶意目的故意传播错误和虚假的健康信息威胁到美国人对COVID-19的正确反应，会继续阻止美国人接种疫苗、延长COVID-19病毒大流行，危及全社会的生命。
+
+无论如何，Murthy这样的一位COVID-19病毒“疫苗”狂热者、“错误”健康信息的审查者和“科学”、“正确”健康信息引导者，全家接种“疫苗”，被中共释放的生化武器病毒撂倒，都不是个人希望看到的。
+
+但不论Murthy出于善意还是恶意，如此推崇疫苗，以所谓的健康误导信息工具包，引导舆论，对所有因听信所谓官方正确信息而被中共病毒祸害的人来说，又是公平的。
+
+参考数据：
+
+[Biden’s Fully Vaxxed and Boosted Surgeon General Vivek Murthy – and His Entire Family – Test Positive For Covid](https://www.thegatewaypundit.com/2022/02/bidens-fully-vaxxed-boosted-surgeon-general-vivek-murthy-entire-family-test-positive-covid/)
+
+[As Vaccinations are Approved for Children Across the Country, U.S. Surgeon General Releases New Community Toolkit for Addressing Health Misinformation](https://www.hhs.gov/about/news/2021/11/09/as-vaccinations-approved-for-children-across-country-us-surgeon-general-releases-new-community-toolkit-for-addressing-health-misinformation.html)
+
+[A Community Toolkit for Addressing Health Misinformation](https://www.hhs.gov/sites/default/files/health-misinformation-toolkit-english.pdf)
+
+[Vivek Murthy](https://en.wikipedia.org/wiki/Vivek_Murthy)
+
+[Government has no business rooting out and flagging ‘misinformation’](https://nypost.com/2022/01/30/government-has-no-business-rooting-out-misinformation/)
+
+[Spotify to Remove Neil Young’s Music Over Joe Rogan Spat, Surgeon General Weighs In](https://www.newsweek.com/spotify-remove-neil-youngs-music-over-joe-rogan-spat-surgeon-general-weighs-1673369)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

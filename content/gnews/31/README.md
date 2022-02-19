@@ -2,26 +2,38 @@
 ---
 
 
-## 樱花FM|中日财经爆:美国电费翻三倍 物价创纪录 入店行窃增加
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2031465/)
+## 俄乌关系紧张之际，美国向德国部署F35战机
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2031595/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-1-3.jpg)
-在创纪录的价格继续上涨的美国，一些地区的电费几乎翻了三倍。纽约市的家庭电费，单位电价增加了大约是上个月的三倍。电力公司将其归因于天然气价格上涨。
+作者：银河系农场 – 骄子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+2月16日美国空军预备役司令部AFRC在一份声明中宣布，美国向德国部署了战斗机。此次部署得到了德国政府的充分合作。美国认为此举加强了对北约盟国战争防御的支持。
 
-此外，纽约警察局发现，由于物价上涨，入店行窃比两年前增加了 15%。某连锁超市中，肉类、冰淇淋、洗洁精等物价上涨幅度较大的物品盗窃事件屡见不鲜。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8-27.jpg)
 
-美国 1 月份消费者价格指数增加了7.5%，为 40 年来的最高涨幅。
+本次抵达德国斯潘达乐母空军基地的，包含美军若干架F35战斗机，以及现役和后备役战斗机联队飞行员、维护人员和辅助人员；此外，还有8架F15E战斗机和六架加油机。
 
-文字版原文：
+本月早些时候，因俄罗斯即将入侵乌克兰的威胁，美国五角大楼宣布，它将向东欧盟国——德国、波兰、罗马尼亚派遣3000名士兵。本月中旬，俄罗斯并未从乌克兰边境撤军，战争局势愈发紧张。2月17日，在俄罗斯与乌克兰紧张的双边关系高峰期，俄罗斯驱逐了美国驻莫斯科副大使巴特·戈尔曼。之后，美国对俄罗斯可能入侵乌克兰发出了越来越详细的警告。
 
-[中日财经爆┃美国电费翻三倍 物价创纪录 入店行窃增加](https://gnews.org/zh-hans/1994288/)
+参考链接：
 
-编辑：东京樱花团/asket
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+- [US Deploys Airmen, F-35 Fighter Jets to Germany Amid ‘Russian Invasion’ Fears](https://www.ntd.com/us-deploys-airmen-f-35-fighter-jets-to-germany-amid-russian-invasion-fears_741317.html)
+- [Russia Expels Deputy Chief of U.S. Mission in Moscow – Reports](https://www.themoscowtimes.com/2022/02/17/russia-expels-deputy-chief-of-us-mission-in-moscow-reports-a76434)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
+
+总编：童谣
+编辑：Delilah小胖
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
