@@ -2,43 +2,25 @@
 ---
 
 
-## 港共政府国安处拘捕艺人阮民安
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2032862/)
+## 中共通过向美国高校捐款影响美国的高等教育
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2032864/)
 
-作者：纽约香草山农场 – 文鹰
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月15日，据相关媒体报道，港共政府国安处当天以所谓的“涉嫌煽动和洗钱罪”拘捕了歌手阮民安。
+撰稿/翻译：zzballack
+上传：追着曙光跑
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide3-8.jpeg)
+据《华盛顿观察家报》（Washington Examiner）2月17日报道，上周，参议员马尔科·鲁比奥 (Marco Rubio)致函22所大学校长，呼吁他们终止与正在协助北京军事技术计划的中国大学的合作关系。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-20-at-01.11.17.jpeg)图片来源：网络
+自1986年以来，美国联邦法律要求中学后教育机构（postsecondary institutions）应向教育部披露其接收的外国捐款数额。自那时起，各大学已披露的外国礼物和合同超过360亿美元，在2014年至2020年期间披露的捐款超过了160亿美元。
 
-资料显示，阮民安曾是香港前男子乐队组合的成员。在2019年香港爆发的反送中运动期间，他曾积极参与相关活动并多次在活动中演唱应援歌曲。当时，阮民安数次公开批评香港警方暴力镇压抗议民众，还在社交媒体上谴责港共政府沦为中共帮凶。
+但在审查了教育部网站的三个不同披露数据库后发现其存在重大问题，因此无法确定高校所收到的捐款数额是否准确。这三个数据库记录了不同时段的捐款数额，分别是上世纪80年代开始、2014至2020年以及2020年以后。在高校没有完全披露受捐数额的情况下，联邦调查员、国会和公众对像中共国这样的外国捐款会在多大程度上影响和利用我们校园的认识有限。
 
-自中共病毒疫情在香港蔓延后，阮民安再度公开抵制港共政府采取的暴力防疫措施。同时，他还在网络上向香港民众反复示警中共病毒疫苗的危害。
+尽管教育部的数据库有其局限性，但在分析数据后还是得出了几个令人担忧的趋势。在2014到2020年，高校报告来自中共国的捐款有12亿美元，其中超过1.2亿美元捐款的受赠人名称显示为“匿名”，超过4亿美元的捐款根本没有列出受赠人姓名。换句话说，在此期间，高校没有披露资金来源的中共国捐款接近6亿美元。
 
-据悉，香港国安处抓捕阮民安的理由是，其在去年11月的线上演唱会上演唱了“光复香港时代革命”的抗争歌曲。为此，国安处声称，阮民安此举意在煽动香港民众改变政府制度，而此举有违《中共国安法》。
+其次，美国各高等教育机构的捐款中，超过2100万美元来自华为，这很可能只是冰山一角。一份调查警告称，外国政府对美国学校的捐款实际上是一个黑洞，很难厘清。
 
-分析人士则对此指出，在中共政府的控制下，香港公民的言论自由已经被极力压制，加之港共政府大规模抓捕抗议人士的做法，香港的自由空间或将不复存在。
+为了防止中共利用金融手段来利用高等教育的弱点，美国国会正在努力提高这些外国捐款的透明度。参议院通过的《美国创新与竞争法》（United States Innovation and Competition Act）和众议院通过的《美国竞争法》（America COMPETES Act）将把捐款的披露门槛从25万美元降低到5万美元，并要求提供更多关于资金来源的信息，同时授权教育部对未能遵守法律的机构进行处罚。人们也应该对谁在资助他们的大学了解更多。
 
-参考链接：
-1. [港媒：“乱港”艺人阮民安被控煽动罪 保释被拒还押候审](https://news.sina.com.cn/c/2022-02-18/doc-ikyakumy6598806.shtml)
-2. [香港歌手阮民安被捕 曾参加反送中运动](https://www.ntdtv.com/gb/2022/02/16/a103349199.html)
-3. [阮民安被捕│國安處：唱「光時」歌曲　杯葛打針　捐款用作賭注](https://www.hk01.com/突發/736155/阮民安被捕-國安處-唱-光時-歌曲-杯葛打針-捐款用作賭注)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
-
-总编：Irene木木
-编辑：Ivy001
-审核：Irene木木
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+信息来源：[How is China influencing American higher education?](https://www.washingtonexaminer.com/restoring-america/patriotism-unity/how-is-china-influencing-american-higher-education)
 
  
 

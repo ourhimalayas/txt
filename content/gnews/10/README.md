@@ -2,22 +2,26 @@
 ---
 
 
-## 有声|香港中共病毒形势失控
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2032879/)
+## 有声|以色列将取消疫苗接种证明
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2032902/)
 
 配音：香草山巡管部– 文凯琳
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-6.jpg)
 
 
 
-据[布赖特巴特新闻网](https://www.breitbart.com/asia/2022/02/16/hong-kong-coronavirus-situation-out-of-control-under-chinese-rule/)2月16日报道，香港当地新闻媒体Coconuts Hong Kong周二称，香港目前正面临着最严重的中共病毒爆发，同时也受到政府当局中亲中共势力的日益统治。
+2月17日，以色列总理班奈特宣布，很快就会取消出入多种场合，所必须的疫苗接种证明。
 
-数以千计的感染者在家中等待被送入医院或其他隔离设施. 香港卫生当局2月14日检测到创纪录的中共冠状病毒新病例，有2071名新的感染者被确认，这是连续第四天出现四位数的病例。
+据报道，以色列领先全球多国推动全国接种计划，也是首批强制要求疫苗接种证明的国家之一。
 
-文字版原文：[香港中共病毒形势失控](https://gnews.org/zh-hans/2026808/)
+在过去一年内大部分时间，以色列人们进入酒吧、餐厅、健身房、敬拜场等地都必须出示疫苗接种证明。
+
+随着多个国家相继取消疫苗护照限制令，班奈特表示，以色列已经到了取消该规定的时候。
+
+文字版原文：[以色列将取消疫苗接种证明](https://gnews.org/zh-hans/2028403/)
 
 音频处理/发稿：Daxia
 
