@@ -2,35 +2,24 @@
 ---
 
 
-## 有声｜拜登称 普京已经决定入侵乌克兰
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2029016/)
+## 俄罗斯19日举行弹道导弹演习，普京亲自观察
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2029123/)
 
-By:**秘翻新闻**
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-82.png)图片来自本文网站
+2月19日CNN要闻在线消息：俄罗斯国防部18日发表声明，它将于2月19日进行弹道导弹和巡航导弹的发射演习。这次演习将在总统普京的领导下进行，他也将观察这次演习。
 
-**2022-02-19**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8-23.png)图片来源 （Serhii Hudak/Ukrinform/Future Publishing via Getty Images）
-据合众国际社2 月 18 日报道，总统乔拜登周五表示，俄罗斯总统弗拉基米尔普京已做出入侵乌克兰的决定。
+国防部解释这次演习是具有战略威慑力量的演习，航天部队、战略导弹部队、北方舰队和黑海舰队都将参加。此次演习是事先计划好的，目的是测试相关部队和设备的准备情况。
 
-拜登在白宫就俄罗斯和乌克兰之间的紧张局势发表简短讲话时称，截至目前，我确信普京已经做出了决定。我们有理由相信这一点。当被问及他的评估依据是什么时，拜登称，情报报告表明即将发生暴力事件。
+俄罗斯总统府发言人佩斯科夫在谈到普京的视察时说，如果没有国家元首在场，就不可能有这样的演习。他还提到了便携式导弹的发射器，但拒绝透露细节，说这不是可以公开的东西。
 
-另外据《福克斯新闻》2月18日报道称，乌克兰总统沃洛季米尔·泽伦斯基决定离开基辅，参加本周末的慕尼黑安全会议。
+消息源：
 
-消息人士证实，泽伦斯基将于周六与美国副总统卡马拉·哈里斯会面，如果俄罗斯真的成功入侵基辅，他将成为一个关键打击目标。
+[ロシア、弾道ミサイル演習を１９日実施へ　プーチン氏視察](https://news.yahoo.co.jp/articles/c4798a257a9ba605e7802847547f44ef4fb4b475#:~:text=%E3%83%AD%E3%82%B7%E3%82%A2%E3%80%81%E5%BC%BE%E9%81%93%E3%83%9F%E3%82%B5%E3%82%A4%E3%83%AB%E6%BC%94%E7%BF%92%E3%82%92%EF%BC%91%EF%BC%99%E6%97%A5%E5%AE%9F%E6%96%BD%E3%81%B8%E3%80%80%E3%83%97%E3%83%BC%E3%83%81%E3%83%B3%E6%B0%8F%E8%A6%96%E5%AF%9F)
 
-据报道，一位美国高级国防官员表示，在未来几天内，俄罗斯军队极有可能对乌克兰进行重大入侵，而基辅是其首都。这位官员还表示，俄罗斯军队已经离开了他们的军营，大约40-50%的普京军队已经进入攻击位置。
-
-报道称， 普京现在有120-125个营级战术小组在乌克兰边境集结。所有特种部队都已被动员起来，保证火箭部队和弹道导弹部队的射程覆盖乌克兰的首都基辅。
-
-新闻来源 [**https://www.foxnews.com/politics/nato-allies-concerned-by-zelenskyy-move-to-leave-ukraine-threat-of-russian-almost-certain
-https://www.upi.com/Top\_News/World-News/2022/02/18/Ukraine-separatists-Biden-Harris/6961645197758/**](https://www.foxnews.com/politics/nato-allies-concerned-by-zelenskyy-move-to-leave-ukraine-threat-of-russian-almost-certain
-https://www.upi.com/Top_News/World-News/2022/02/18/Ukraine-separatists-Biden-Harris/6961645197758/)
-
-秘翻新闻 Grace 、文洋 联合报道
-
-发布 : 恩典
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMAGE-2021-12-13-113746.jpg)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

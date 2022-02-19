@@ -2,10 +2,10 @@
 ---
 
 
-## 凯里·欧文对于自己不打疫苗没有任何负罪感
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2029074/)
+## 白宫谈俄乌危机：如果俄选择进攻，中共将付出代价
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2029195/)
 
-02/14/2022 NBA球星凯里·欧文对于自己不打疫苗没有任何负罪感。
+02/15/2022 白宫发言人珍·莎琪谈俄乌危机：如果俄选择进攻，中共将付出代价。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
