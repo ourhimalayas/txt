@@ -2,31 +2,43 @@
 ---
 
 
-## 樱花FM┃中日财经爆：日本高度依赖中国进口，运输停滞风险大
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2028106/)
+## 有声|七哥破产
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2028154/)
 
-音频：东京樱花团/战友520
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/中日财经爆：日本高度依赖中国进口，运输停滞风险大.png)
-
-2022年2月4日NHK报道称，根据日本内务府的调查发现，从海外进口的商品中，手机、个人电脑等1000多种商品中占中共国进口额的50%以上。内阁府表示，与其他发达国家相比，对中共国的依赖程度更高，并指出“如出现运输停滞等状况时将带来很大的风险”。
-
-内阁府调查了日本、美国和德国三个国家进口的商品，以截至2019年的占某国进口额50%以上的商品作为对象。
-
-从调查结果来看，日本进口商品的2627个品种中，进口占比在50%以上的中共国商品达到1133件。从中国进口占比较高的商品来看，笔记本电脑和平板电脑占比99%，手机占比86%，电脑配件占比62%。 从美国和德国的进口商品来看，占比超过50%的商品数量美国为590件，德国为250件，远远低于日本。
-
-内阁府指出，“如果在作为进口目的地的中共国如出现供应冲击或运输停滞，日本相比美欧等国家难以找到替代商品，因此存在着很大风险。”
-
-文字版原文：
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
 
 
-| [中日财经爆┃日本高度依赖中国进口，运输停滞风险大](https://gnews.org/zh-hans/1953522/) |
-| --- |
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot_20220218-194701_Video-Player-1001x720-1.jpg)
 
 
-*编辑：东京樱花团/asket   
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码-1.jpg)
+将身饲虎自从容，一笑风云两袖空。
+地陷神州横赤焰，天开盘古跃真龙。
+密谋宵小阴衔恨，鏖战将军夜引弓。
+颠倒乾坤归正道，妖霾扫荡挽长虹。
+
+
+
+文字版原文：[七哥破产](https://gnews.org/zh-hans/2024726/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

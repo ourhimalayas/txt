@@ -2,8 +2,8 @@
 ---
 
 
-## 普京已经看透欧洲
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2028034/)
+## 世界的政治是利益第一
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2028059/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

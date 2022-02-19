@@ -2,8 +2,8 @@
 ---
 
 
-## 普京玩一箭三雕之计
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2027925/)
+## 中国人在苏联面前永远是输家
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2028038/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

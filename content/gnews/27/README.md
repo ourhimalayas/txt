@@ -2,10 +2,10 @@
 ---
 
 
-## 日本疑现Omicron亚型变异株BA.2社区传播
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2027745/)
+## 苏格兰报告接种中共病毒病疫苗更易致病致死
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2027747/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2._19-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/20220219-scaled.jpg)
 *编辑：东京樱花团/简报小组
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
