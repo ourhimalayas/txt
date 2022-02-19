@@ -2,31 +2,38 @@
 ---
 
 
-## 樱花FM┃德俄两国互禁其外宣平台
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2028097/)
+## 有声|美南达科他州众议院通过伊维菌素法案
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2028144/)
 
-音频：东京樱花团/战友520
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+周一，美国南达科他州众议院，以40-28票通过了HB 1267法案，将伊维菌素作为治疗中共病毒的药物。该法案规定，医生可以按照医疗标准 ，向患者开具伊维菌素。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8-25.jpg)
+多项研究表明，伊维菌素能有效治疗冠状病毒，减少中共病毒患者的疾病和死亡。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/德俄两国互禁其外宣平台-1.png)
+该法案的提案人之一、共和党州议员塔菲·霍华德表示，该方案旨在为那些因担心职业处分、而不愿意为中共病毒病人开具伊维菌素的医生提供支持。
 
-3日，德国之声（DW）在俄罗斯境内被禁播，驻俄记者站被关闭。据塔斯社报道，该禁令是对德国当局2日以没有相关的广播许可证为由停播俄罗斯卫星通讯社（RT）的德语频道的回应。RT批评德国当局施加 “政治压力”，而德国外交部谴责RT破坏两国关系。
+据悉，该法案已进入南达科他州参议院进行审理。
 
-据塔斯社报道，俄罗斯外交部将宣布废除颁发给DW驻俄记者站的记者证，启动DW作为 “外国代理人”的调查，并考虑禁止参与RT禁播的德国官员入境俄罗斯。 DW的主编反对俄罗斯的过激行为，表示将加大对俄的报道。
+文字版原文：[美南达科他州众议院通过伊维菌素法案](https://gnews.org/zh-hans/2022929/)
 
-RT被欧美各国批评为 “传播虚假信息”，去年9月俄罗斯卫星通讯社的德语频道（RT DE）在YouTube上的账户被删除，理由是传播关于新冠状病毒的虚假信息。 RT DE于2021年12月利用在塞尔维亚获得的广播许可证在德国进行广播，遭到德国的反对。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-DW自1962年起开始俄语广播，2001年还拥有了一个俄语新闻网站。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-文字版原文：
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-| [德俄两国互禁其外宣平台](https://gnews.org/zh-hans/1953688/) |
-| --- |
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-*编辑：东京樱花团/asket   
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码-1.jpg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

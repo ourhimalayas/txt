@@ -2,24 +2,33 @@
 ---
 
 
-## 普京已决定入侵乌克兰，拜登紧急与各国外长磋商
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2028118/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年2月18日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2028177/)
 
-撰稿：东京樱花团/百花李香
+作者：香草山翻译部
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/普京已决定入侵乌克兰，拜登紧急与各国外长磋商.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO-2.jpg)
 
-2月19日《时事通信》在线报道，美国总统拜登18日在白宫举行的新闻发布会上表示，他相信俄罗斯总统普京已经决定入侵乌克兰。拜登强调，外交努力将继续下去，并表示除非发生入侵，否则美国和俄罗斯外长将于2月24日在欧洲举行会谈。
 
-当被问及普京是否已经下决心入侵时，拜登说：“我确信他现在已经决定了我有充分的理由相信这一点”。但他没有详细说明原因。拜登强调，俄罗斯仍然可以选择外交手段，并呼吁继续对话以缓解紧张局势。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-1-3.png)
+校对：Stay文苑
 
-拜登还批评亲俄武装力量最近几天试图进行挑衅，违反了明斯克协议。他指责俄罗斯试图通过谎称乌克兰方面正在发动攻击来为入侵制造借口。拜登指出，俄罗斯军队正在计划几天内入侵，并将目标放在乌克兰首都基辅。美国及其盟友和友好国家支持乌克兰人民，将追究俄罗斯对其行为的责任。他警告，如果俄罗斯发动军事入侵，他准备实施严厉制裁。
+编辑：Stay文苑
 
-信息源：[プーチン氏は「侵攻決断」　ウクライナ危機、外相会談へ　米大統領](text=%E3%83%88%E3%83%94%E3%83%83%)
+发稿：Stay文苑
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+新闻：[https://gtv.org/broadcast/watch/621048fcb706176dd78d0003](https://gtv.org/broadcast/watch/621048fcb706176dd78d0003)
+访谈：[https://gtv.org/broadcast/watch/621050a1b706176dd78d0b1d](https://gtv.org/broadcast/watch/621050a1b706176dd78d0b1d)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-2.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

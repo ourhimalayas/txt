@@ -2,31 +2,21 @@
 ---
 
 
-## 樱花FM┃中日财经爆：日本高度依赖中国进口，运输停滞风险大
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2028106/)
+## 新中国联邦正道主义代表全世界正义人士
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2028168/)
 
-音频：东京樱花团/战友520
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/中日财经爆：日本高度依赖中国进口，运输停滞风险大.png)
+*发布：陶子*
 
-2022年2月4日NHK报道称，根据日本内务府的调查发现，从海外进口的商品中，手机、个人电脑等1000多种商品中占中共国进口额的50%以上。内阁府表示，与其他发达国家相比，对中共国的依赖程度更高，并指出“如出现运输停滞等状况时将带来很大的风险”。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-内阁府调查了日本、美国和德国三个国家进口的商品，以截至2019年的占某国进口额50%以上的商品作为对象。
-
-从调查结果来看，日本进口商品的2627个品种中，进口占比在50%以上的中共国商品达到1133件。从中国进口占比较高的商品来看，笔记本电脑和平板电脑占比99%，手机占比86%，电脑配件占比62%。 从美国和德国的进口商品来看，占比超过50%的商品数量美国为590件，德国为250件，远远低于日本。
-
-内阁府指出，“如果在作为进口目的地的中共国如出现供应冲击或运输停滞，日本相比美欧等国家难以找到替代商品，因此存在着很大风险。”
-
-文字版原文：
-
-
-| [中日财经爆┃日本高度依赖中国进口，运输停滞风险大](https://gnews.org/zh-hans/1953522/) |
-| --- |
-
-
-*编辑：东京樱花团/asket   
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
