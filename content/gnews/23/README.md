@@ -2,33 +2,29 @@
 ---
 
 
-## 有声|中共国民要求彻查锁链女事件
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2033297/)
+## 币安因执照问题在以色列暂停服务
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2033573/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-2月15日，北京大学校友及学生一百多人，联名向中共党中央及国务院发表公开信，要求彻查徐州锁链女案。该公开信提出4项主张，要求确认受虐女子的真实身份、调查20余年来忽视此受虐事件涉嫌渎职违法的相关官员、全面清查中共各地的人口拐卖案件并解救受害人、修订中共《刑法》，严惩拐卖妇女及儿童的行为。
+撰稿：西枫westca
 
-除北京大学外，清华大学、中国人民大学、浙江大学、四川大学等学校，也对此事件展开联署。 此外，湖南岳阳的民众手举标语，要求彻查事件真相；民间艺术家们也纷纷以诗歌、音乐、绘画等艺术形式，宣扬“断链”行动，引发社会的关注。
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-10.jpg)图片来源：网络照片
+2月19日Bitcoin News 报导，在以色列的金融监管机构对币安加密货币交易所的活动及运营许可证行询问后，币安停止了在以色列的服务。 越来越多的监管机构在审查币安在其管辖范围内无证经营的情况。
 
-锁链女事件自1月28日被网友揭露后，中共官方说法，从初始的否认，到改为将受害人塑造成精神病患者，最后不得不承认有人口拐卖的事实，并拘捕相关涉案人。而后又被揭发，官方提供的身份涉嫌故意造假。
+以色列资本市场、保险和储蓄管理局已就币安加密货币交易所在该国的活动与其接触。据Globes Public报道，该局负责向以色列的加密货币企业发放许可证，已要求币安澄清其向以色列人提供的服务以及其运营的许可证。
 
-2月17日，江苏省委省政府通报成立“丰县生育八孩女子”事件调查组，似乎摆出一幅彻查此事的姿态。但在中共统治下，中共官员欺上瞒下已成常态。此次锁链女事件激起了民众积压已久的愤怒，这种民怨，或将成为击倒中共的燎原怒火。
+在以色列提供加密货币服务的公司需要获得许可证。而币安尚未向当局提交批准在该国的运营申请。
 
-文字版原文：[中共国民要求彻查锁链女事件](https://gnews.org/zh-hans/2023025/)
+据Global Public报道，大约有20万以色列人正在使用币安货币交易所提供希伯来语的服务。监管机构说“直到我们审查完许可证问题，币安目前已经停止了对以色列人的营销，也停止了以以色列为重点的所有活动”。
 
-音频处理：Fei797
-发稿：Fei797
+币安因无证经营而在许多司法管辖区面临审查，包括美国、英国、加拿大、德国、意大利、印度、马来西亚、新加坡、土耳其和立陶宛。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+此外，应执法部门的要求，币安加密货币交易所在1月份限制了281个尼日利亚账户。本周，据说美国证券交易委员会(SEC)正在调查币安的美国分部。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+该加密货币交易所在去年8月表示，现在其首要任务是合规，它正在做出 “重大改变”以成为一个受监管的金融机构。
+
+**新闻来源：**[Crypto Exchange Binance Halts Activities in Israel After Regulator Raises Licensing Issue – Exchanges Bitcoin News](https://news.bitcoin.com/crypto-exchange-binance-halts-activities-israel-after-regulator-raises-licensing-issue/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

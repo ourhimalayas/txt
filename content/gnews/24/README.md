@@ -2,30 +2,45 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年2月19日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2033291/)
+## 泽连斯基称乌克兰不会回应俄罗斯的挑衅
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2033386/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO-2.jpg)
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-18.png)
-文章仅代表作者本人观点，与Gnews无关
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/JEZQ6F3NEBO3LLFGQGNMMYEHLE.jpg)
 
-视频参看：
-[2022.02.19早 《NFSC新闻》](https://gtv.org/video/id=6210f09db706176dd78d51d1)
-[2022.02.19早 G|TV《新闻访谈》](https://gtv.org/video/id=6210f7d9b706176dd78d57f8)
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+资料来源：路透社
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-2.png)
+乌克兰总统周六表示，有关乌克兰一直在炮击由莫斯科支持的分离主义分子控制的地区和俄罗斯境内的报道是“纯属谎言”，并补充说他的国家不会对挑衅作出回应。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+俄罗斯总统泽连斯基在一年一度的慕尼黑安全会议上向西方高级安全官员发表讲话时，有报道称俄罗斯领土内至乌克兰东部以及乌克兰的分离地区发生了爆炸。
+
+“昨天在临时被占领土上展示的情况，一些炮弹据称从我们这边飞来，一些一直飞到罗斯托夫，这些都是纯粹的谎言，”他说。 “他们正在炸毁他们身边的东西。”
+
+他敦促西方国家不要等到俄罗斯可能入侵才对俄罗斯实施制裁。
+
+俄罗斯在乌克兰东部边境集结了大约 15 万军队，俄罗斯表示，为了自身的长期安全，它需要承诺基辅永远不会加入北约军事联盟。
+
+但西方国家的领导人认为，俄罗斯正在准备可能入侵乌克兰，他们表示，如果俄罗斯发动袭击，将面临严重后果，并警告莫斯科不要试图重新划定欧洲边界。
+
+“不应以武力改变国界，”美国副总统卡马拉哈里斯说。
+
+她说：“我们准备了迅速、严厉和团结的经济措施。” “我们将针对俄罗斯的金融机构和关键行业。”对俄罗斯进行制裁。
+
+乌克兰和北约成员国都拒绝排除基辅有一天会加入联盟，尽管很少有人预料到这一点。
+
+但是，谈到被占领东部一所幼儿园的爆炸事件，泽连斯基敦促代表们不要让这些言论掩盖普通民众的困境。
+
+“那些孩子没有前往北约。他们正在前往他们的教室，”他说。
+
+会议上的许多代表呼吁俄罗斯总统弗拉基米尔·普京（Vladimir Putin）保持冷静，他周六主持了一场涉及发射弹道导弹的核准备演习。
+
+英国首相鲍里斯·约翰逊将俄罗斯对乌克兰的意图与中国对台湾的意图相提并论，认为西方领导人有责任保持坚定。 “如果乌克兰被入侵，震惊将在世界各地回响。这些回声将在东亚听到，在台湾也将听到，”
+
+🔗[泽连斯基称乌克兰不会回应俄罗斯的挑衅](https://www.reuters.com/world/europe/nato-chief-invites-russias-lavrov-engage-dialogue-2022-02-19/)
+
+责任编辑/发布： Shuizhuyu
 
  
 
