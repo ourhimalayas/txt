@@ -2,31 +2,20 @@
 ---
 
 
-## 祝贺:加拿大蓝莲花农场完美延生
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2028251/)
+## G7外长齐聚德国 紧急磋商俄乌局势
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2028367/)
 
-作者：纽约香草山教育部 – Anna Fu
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/春天.jpg)
-欢呼多伦多蓝莲花完美诞生！
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-35.jpg)[图片来源](https://www.libyaobserver.ly/sites/default/files/g7.jpg)
+2月19日《共同通信》报道，七国集团（G7）外长将于19日下午在德国慕尼黑举行紧急外长会议，讨论乌克兰的局势。同一天，俄罗斯计划举行一次大规模军事演习，核导弹部队将参与其中。七国集团呼吁俄罗斯采取措施缓解紧张局势，并确认在为日益紧张的局势寻找外交解决方面进行合作。
 
-独特的喜玛拉雅天空盛洁的蓝莲花。
+2月18日，美国副总统哈里斯在慕尼黑会见了北大西洋公约组织（NATO）秘书长斯托尔滕贝格。她强调，俄罗斯有义务表明它对外交是认真的，如果入侵乌克兰，将实施严厉的经济制裁。
 
-不畏寒冷的雪山上的蓝莲花神圣绽放。
+信息源：[G7外相会合、緊張緩和へ協調　きょう、独で緊急開催](https://news.yahoo.co.jp/articles/231d02d02cbe37fd13be2bcd42b27cab1c91eb93#:~:text=G7%E5%A4%96%E7%9B%B8%E4%)
 
-联盟农场手牵手，战友们背靠背灭共路上携手同行。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-4.jpg)
-**审核/校对/发稿：春草**
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
