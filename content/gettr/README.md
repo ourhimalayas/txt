@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/19/2022 11:22 PM (UTC)`
+
+2/19/2022 Miles Guo’s GETTR: The CCP is about to fall, and the indifferent and ignorant people have become the devils. The CCP begged the US to postpone the actions against itself by relying upon despicable means such as the BGY scheme. The CCP made the evil law that the woman who was abducted cannot get a divorce, but there are still people whitewashing the CCP. So, where is justice?<br/><br/>2/19/2022 文贵盖特：中共大厦将倾，冷漠、无知的人们已成魔鬼；中共跪求美国推迟对共行动并寄希望于蓝金黄等黑手段；中共制订恶法不许被绑架的妇女离婚，竟然还有人为中共洗地，天理何在？<br/>
+![img](https://media.gettr.com/group31/getter/2022/02/19/23/cbb1cbf8-3b42-5f8c-3778-cdde3adcac60/out.jpg)
+
+---
+
+`@miles 2/19/2022 11:11 PM (UTC)`
+
+2/19/2022 Miles Guo’s GETTR: Japanese and European media are demanding to investigate Communist China for the origins of the CCP virus. Those who reported the truth about the chained woman were abused by the CCP police, while incidents like the chained woman are common in the region, with countless trafficked women being turned into sex slaves or killed. The CCP has committed enormous and indescribable evil deeds. Let's see how I will take down the CCP!<br/><br/>2/19/2022 文贵盖特：日本和欧洲的媒体要求找中共病毒溯源；报道锁链女真相的人被警察虐待，而类似锁链女的事件在当地很普遍，无数女性被贩卖后沦为性奴甚至丧生；中共之恶罄竹难书，看文贵怎么灭你们！<br/>
+![img](https://media.gettr.com/group47/getter/2022/02/19/23/f6ba5862-66b1-8d14-c249-75da953999d7/out.jpg)
+
+---
+
 `@miles 2/19/2022 11:05 PM (UTC)`
 
 2/18/2022 Miles Guo: The European and U.S. governments have acquiesced to letting the Omicron variant infect the population en masse, and they are now lifting all kinds of restrictions because they can't hold up both economically and politically. The massive deaths caused by the COVID vaccine disaster will not start until May, so be sure to continue to take precautionary measures against the virus.<br/><br/>2/18/2022 文贵直播: 欧美政府已经默认让奥米炕病毒集体感染民众，现在解除各种限制是因为经济和政治撑不住了；疫苗灾难造成的大规模死亡在5月份才会开始，请务必继续做好防疫措施<br/>
@@ -140,20 +154,6 @@ Live, Love, & Laugh ❤️
 
 2/16/2022 Miles Guo: The CCP’s impact in the world, economy, and its internal political stability are waning, and no one dares to befriend the CCP. Hong Kong, the holy city, has debunked the lies of the CCP that the Chinese people do not deserve democracy and freedom. The technological output of Taiwan is equal to the sum of that of the bottom 150 countries. The CCP might as well consider letting the whole world vote on the independence of Taiwan.<br/><br/>2/16/2022 文贵直播：中共在全球影响力、经济、内部政治回天乏术，无人敢跟中共做朋友；圣城香港揭穿了中共说中国人不配有民主自由的谎言；台湾的科技产出超过全球150个国家的总和，中共不妨接受让全世界为台湾是否独立投票<br/>
 ![img](https://media.gettr.com/group21/getter/2022/02/18/04/21cdb99b-2847-f024-4e8e-e0c76aa7cae2/out.jpg)
-
----
-
-`@miles 2/18/2022 12:57 AM (UTC)`
-
-2/16/2022 Miles Guo: The fundamental reason why the CCP could turn more than one billion Chinese into obedient people is the establishment of a mental firewall. The lack of good education and faith, and the media's brainwashing have made people around us ticking time bombs. Those who are persecuted by the CCP for reporting on the chained woman will be given Himalaya Coins.<br/><br/>2/16/2022 文贵直播：中共让十几亿中国人变成顺民的根本原因是建立了精神防火墙；缺乏良好教育、无信仰和媒体洗脑让身边的人成为定时炸弹；因报道锁链女而被中共迫害的人将得到喜币<br/>
-![img](https://media.gettr.com/group3/getter/2022/02/18/00/7c79aabe-b3cd-d4f8-ab9c-576c3e3b50d5/out.jpg)
-
----
-
-`@miles 2/17/2022 9:57 PM (UTC)`
-
-2/17/2022 Miles Guo’s GETTR: The Himalaya Pay will free productivity so that the people can achieve financial independence and enjoy human rights. The governments have turned the people’s hard-earned money into a tool to threaten them. The amount of money spent by the CCP is equal to the sum of money spent by all governments across the globe. I feel so relieved after filing for personal bankruptcy.<br/><br/>2/17/2022 文贵盖特：H-Pay将解放生产力，让人们拥有财务自由和人权；政府竟把人民的血汗钱变成威胁他们的工具，中共的开销是全世界政府花老百姓的钱的总和；文贵破产后感觉老轻松了
-![img](https://media.gettr.com/group6/getter/2022/02/17/21/5f2fd3f5-17fd-20d3-b4b2-000a561863a3/out.jpg)
 
 ---
 
