@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：有达沃斯存在人类就没有安全
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2033525/)
+## 七哥金句：喜币就像黑暗中的一盏灯
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2033574/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句1.001-1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句5.001.jpeg)
 整理：雅典娜农场
 发布：枫叶红了
 

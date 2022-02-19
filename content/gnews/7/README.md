@@ -2,12 +2,12 @@
 ---
 
 
-## 2月18日文贵大直播摘要（图片25-27）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2033488/)
+## 七哥金句：达沃斯就是奴隶俱乐部
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2033540/)
 
-设计：五月花农场 科存
-![](https://assets.gnews.org/wp-content/uploads/2022/02/BD4A1EAC-6604-40B6-BEE7-C640E50344CE.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/2CA35D63-1FBD-4BAA-9204-36F1B16BF804.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/886C4BE4-14FC-402E-8B4F-495A3807B7C8.png)
-发布：水涨船高
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句2.001-2.jpeg)
+整理：雅典娜农场
+发布：枫叶红了
 
  
 
