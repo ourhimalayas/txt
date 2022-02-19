@@ -2,22 +2,22 @@
 ---
 
 
-## 以色列将废除中共病毒疫苗护照系统
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2031593/)
+## 北京冬奥会加剧韩国反华情绪
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2031614/)
 
-作者：银河系农场 – 骄子
+作者：纽约香草山金融部 – AT
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-2月17日周四，以色列总理总理宣布，中共病毒感染病例每天持续下降，中共病毒疫苗接种证明的护照系统将会暂停使用。
+日前，韩国保守倾向公民团体，在位于首尔的中共国驻韩国大使馆前举行示威活动，并损毁中共国国旗，以抗议北京冬奥短道速滑项目出现的“偏颇判罚”。 韩东大学教授称，北京冬奥引发的“争议”或会点燃韩国民众的反华情绪。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/10-13.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/12-25.png)
 
-据悉该护照系统称为绿色通行证，限制未完成接种至少三针疫苗的人们，进行大型集会和进入室内场所。在过去一年的大部分时间里，绿色通行证是以色列日常生活的必备品。
+韩国媒体报导，一项国民好感度调查显示，好感度满分10分情况下，中共国只获2.6分，略高于2.42分的朝鲜。其中对中共国“完全没有好感”并打0分的人占30.5%。
 
-在2020年，以色列与辉瑞达成协议，用医疗数据换取稳定的中共病毒疫苗供应后，迅速为大部分成年人口接种了疫苗。当前约48%人口已经接种了三针疫苗，全国72%的人口已经接种了至少一针。
+郭文贵先生在多次大直播中提到，2022年最重要的事情之一，就是防止世界的排华事件。每一个在海外的华人都要保护好自己，传播真相，告诉身边的人，中国人不等于中共，将中共对中国人的伤害降到最低。
 
 参考链接：
 
-- [Israel to scrap COVID passport system as omicron wanes](https://ktar.com/story/4893787/israel-to-scrap-covid-passport-system-as-omicron-wanes/amp/)
+- [韩国民众过度反华情绪　学者：极其危险](https://www.orientaldaily.com.my/news/international/2022/02/18/468625)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)

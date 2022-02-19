@@ -2,24 +2,37 @@
 ---
 
 
-## 荷兰将向乌克兰提供狙击步枪，头盔和其它自卫军事装备
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2029166/)
+## 德州起诉脸书非法使用面部识别
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2029529/)
 
-撰稿：东京樱花团/东京樱花团
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片3-13.png)图片来自本文网站
-2月19日时事通信在线消息，荷兰18日表示，将向乌克兰提供狙击步枪、头盔和其它自卫的军事装备。
+作者：纽约香草山农场 007
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月14日，据当地媒体消息显示，美国德克萨斯州总检察长已经提起了对脸书的诉讼，指控其利用面部识别技术秘密地收集和使用数百万德克萨斯民众的生物特征数据并非法谋利。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-19-上午2.49.05.png)
+起诉书称，在未经用户同意的情况下，脸书从照片和视频中数十亿次地捕获用户的生物特征数据，并且将这些信息披露给他人。此外，脸书也未能在合理的时间内销毁相关数据。
 
-荷兰外交部长沃普克-胡克斯特拉表示，内阁已经批准提供军事装备，因为乌克兰需要保护自己免受俄罗斯的武装袭击。在提供的物资中，只有100支狙击步枪和3万发子弹是致命武器。除此之外，还有30台金属探测器、2台探雷机器人、2台战场监视雷达和5台反炮兵雷达以及发送3000顶头盔和2000件防弹背心。
+起诉书指出，脸书明知这一行为违反了德克萨斯州的隐私保护法律，但其仍旧以牺牲个人安全和福祉为代价，利用用户的个人隐私信息发展其社交媒体帝国，并以此获得历史性暴利——这是大型科技公司欺骗性商业行为的又一实例，而它必须被停止。
 
-上个月，德国宣布了向乌克兰提供5000顶头盔而不是武器。乌克兰首都基辅市市长维塔利·克里琴科讽刺道：“这种时候简直就是个笑话”。
+资料显示，脸书的面部识别项目自2010年起一直执行到2021年11月。此前，脸书曾在2020年以6.5亿美元的赔偿，和解了伊利诺伊州就该项目提出的诉讼。而此次德克萨斯州的起诉则将寻求对脸书数千亿美元的民事处罚。
 
-信息源：
+参考链接：
+1）[Pax­ton Sues Face­book for Using Unau­tho­rized Bio­met­ric Data](https://www.texasattorneygeneral.gov/news/releases/paxton-sues-facebook-using-unauthorized-biometric-data)
+2）[Texas sues Meta over Facebook’s past facial recognition practices](https://appleinsider.com/articles/22/02/14/texas-sues-meta-over-facebooks-past-facial-recognition-practices)
 
-[オランダ、ウクライナに狙撃銃供与](https://news.yahoo.co.jp/articles/196181074f4c3e06a292878eb117916594599b40#:~:text=%E3%83%88%E3%83%94%E3%83%83%E3%82%AF%E3%82%B9%E4%B8%80%E8%)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+总编：Irene木木
+编辑：Irene木木
+审核：Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,46 +2,20 @@
 ---
 
 
-## 有声|㚑魂使命
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2032451/)
+## 有声|谷爱凌争议言论开始发酵
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2032529/)
 
 配音：香草山佛教部 – 李傻
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-我们是蓝色灵魂
-带着沉睡心灵
-只等那呼唤声音
-醒来，醒来
-敲响灭共钟声
-如
-漫山遍野雪花
-如
-春天里的新芽
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E6%98%A5%E5%A4%A9.jpg)
-我们是蓝色灵魂
-使命成就人生
-等到了那呼唤声音
-醒来，醒来
-追随他坚定身影
-看
-一颗颗射向魔鬼子弹
-看
-魔鬼们抱头鼠窜
+在2月16日的大直播中，郭文贵先生透露了一份独家情报：中共为了平息谷爱凌的国籍问题和外界对中共一系列违规操作的争议，其以气候为由，取消了谷爱凌的两场最重要赛事。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide4-9.jpeg)
+郭先生解释到，谷爱凌早先在获得自由式女子大跳台项目金牌后表示，她在美国就是美国人，在中国就是中国人。但这一言论完全违背了中共面向全世界颁布的“只承认一个国籍”的法律，也是对整个世界的欺骗和愚弄。目前，谷爱凌事件在全球引起了强烈的反弹，一些政府表示，要对其进行彻底的调查。
 
-斗转星移
-移山倒海
-雪花汇成大海
-淹没魔鬼猖獗
-新芽长成树冠
-庇护新世纪秩序
+另一方面，多国运动员在冬奥会房间内发现了中共安装的隐藏摄像头，同时，中共勾兑、收买裁判的行为也有了确凿的证据。
 
-我们是蓝色灵魂
-为使命聚集你于中心
-点燃七芒星火种
-唤醒那沉睡心灵
+郭先生指出，中共违背奥运精神、突破道德底线、违反法律的行为已经引发了多国运动员、政府及关注人士的愤怒。
 
-
-
-文字版原文：[㚑魂使命](https://gnews.org/zh-hans/2024893/)
+文字版原文：[谷爱凌争议言论开始发酵](https://gnews.org/zh-hans/2026085/)
 
 音频处理：Tom Li
 发稿：Tom Li
@@ -58,7 +32,7 @@
 
 [**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)0
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
