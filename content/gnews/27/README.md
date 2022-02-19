@@ -2,31 +2,68 @@
 ---
 
 
-## 如今的年味只剩低级趣味
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2027067/)
+## Casino 集团强力入住虚拟世界元宇宙沙盒 (SAND)
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2027068/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/apzgj-874k8.jpg)
-我所理解的年味，不只是味觉，还有听觉、视觉和嗅觉。可如今，年味只剩低级趣味。
+译评：香草山商业部 — 文锤
 
-记忆中的年味是奶奶过年当天手工包的葱肉大饺；是父亲清炒的大白菜，这种用人粪浇肥的有机大白菜，经过霜冻，不用过多调料，清炒之后格外清甜；是母亲炖的香菇土鸡，黄澄澄的鸡汤，紧致的鸡肉回味无穷。可如今，很多家庭已经选择购买速冻水饺，如果不看包装，有时候都很难分辨饺子包的是什么馅料；大白菜则是大棚种植的，体型巨大、食之无味；而终身不出笼子的鸡，炖出来的味道还不如撒把超市买来的鸡精，因为，那些记忆中的土鸡已非常稀缺，除少数农户留下自用，大多被本地乡镇干部高价收去，作为土特产贡品送上了领导的饭桌，普通百姓想出高价都难买到。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-记忆中的年味是家人们围坐在一起的欢声笑语，对酒当歌，把酒言欢。大家一起追忆先人，回忆儿时趣事，展望来年。如今，除了掌厨的，老的，少的，年轻的都各自摆弄电子产品，等着上菜，鲜有交流。各自承受着高额房贷、育儿压力、养老困境等的无形压力，多数人选择无脑劝酒和斗酒，趁着过年一醉方休，选择暂时忘记。茶余饭后，没有人关心新冠毒疫苗的后遗症，没有人谈起彭帅被张高丽性侵，没有人谈起香港反送中和新疆大屠杀；若是提起这些，大家的口气惊人的一致，自己过好行了，也管不到，别瞎操心。聊的最多要数身边的八卦，谁家买了新车，谁家孩子考进了哪个好单位、谁在哪里有几套房……
 
-记忆中的年味是家人们一起贴对联糊窗花，一起洗菜切菜、准备碗筷，围坐在炭炉边烤火；或是，一家人大包小包一起去给亲戚拜年。如今，匆匆吃完年夜饭，大家争分夺秒的开始打麻将，打扑克，有时候还为赌资争得面红耳赤；不赌博的就拿着手机抢红包、发红包、打游戏、朋友圈拜年；在体制内上班的，就挨个给单位上的领导打电话拜年，生怕落后他人。
 
-记忆中的年味是烟花鞭炮燃烧后的硫磺味。不管楼房还是平房，吃年夜饭之前都得来挂鞭炮。夜色降临，孩子们迫不及待的跑出家门燃放烟花。可如今，不少城市出台地方法规禁止燃放烟花炮竹，说是要环保和避免火灾。其实，几十年前的中国，大部分地方都还是木砖结构的房屋，城镇楼房也是一个过道居住着好几户人家，非常拥挤，也没有看到过有多少因为烟花炮竹引起的火灾。相比，在刚刚过去的北京冬奥会开幕会上，为了展示大国门脸，组委会的官员们却罔顾自己制定的规则，准备了一个巨大的烟花表演为奥运会助兴；这些巨大冲天炮难道不会造成烟尘污染和火灾隐患？同样是普天同庆的节日，为什么北京的百姓不能燃放烟花庆祝？典型的“只许州官放火，不许百姓点灯”。
 
-如今，对于老百姓来说，年味只剩低级趣味。而习近平们却带走了属于中国老百姓的年味。
 
-**文章观点仅代表作者个人，与Gnews平台无关**
+在家乐福之后，轮到法国大型超市零售集团宣布它进入虚拟世界了。这个法国集团来到沙盒 (SAND) 虚拟世界以分发可在现实世界中使用的促销和优惠券。
 
-作者：洛杉矶盘古农场 — 文如
-编审：洛杉矶盘古农场 — 心照
-发布：洛杉矶盘古农场 — 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/groupe-casino-metaverse-the-sandbox-sand.jpg)[图片来源](https://cryptoast.fr/groupe-casino-metaverse-the-sandbox-sand/)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**可以在Leader Price超市赢取优惠券的游戏**
+
+日前，法国零售巨头家乐福宣布[购买了沙盒世界（SAND）的虚拟地块](https://cryptoast-fr.translate.goog/carrefour-parcelle-terrain-metaverse-the-sandbox-sand/?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN)。如今，Casino 集团正在通过其房地产子公司大张旗鼓地进入元宇宙。
+
+如果家乐福没有具体说明它打算在元宇宙中做什么，那么Casino集团已经公布了它的部分雄心壮志。
+
+没有虚拟商店，而是一个采用了已在沙盒上找到的代码的游戏。它最初将保留给Casino 集团折扣品牌 Club Leader Price 的会员，他们将获得“黄金门票”。
+
+“我们于 2021 年底开始购买地块，但我们正在开展几个旨在提供客户体验的项目。我们采用工业方法。我们的目标是用这些新的虚拟资产创造价值，就像我们使用我们的真实资产一样。”Casino Immobilier 首席执行官 Nicolas Joly 在接受 Les Échos 采访时补充道。
+
+**Monoprix 和 Franprix 可以效仿 Leader Price 的例子**
+
+Casino集团开发的游戏目的很简单。在属于该组的元宇宙The SandBox的情节中，参与者将不得不从Club Leader Price的在线商店中搜索食物，以获得在现实世界中使用的代金券或折扣。
+
+该公司还在研究以不可替代代币（NFT）的形式实施奖励。
+
+为 Club Leader Price 会员准备的这款游戏将作为 Casino 集团的体验。如果它被证明是成功的，它应该将其他大型零售商，如 Monoprix 或 Franprix，带入元宇宙。
+
+**译者评**：鉴于喜马拉雅币即将被越来越多的人们所接受，Hpay凭借其瞬间交易功能和无手续费的巨大优势，可以甩其他加密货币几条街。在可预见的未来，虚拟世界一定是喜马拉雅币大显身手的领域。
+
+**原文链接：**
+
+**[Le groupe Casino débarque en force dans le metaverse The Sandbox (SAND) (cryptoast.fr)](https://cryptoast.fr/groupe-casino-metaverse-the-sandbox-sand/)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2月.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 

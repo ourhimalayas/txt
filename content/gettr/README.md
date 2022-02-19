@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/18/2022 11:55 PM (UTC)`
+
+2022年2月18日 文贵大直播：乌克兰俄罗斯危机各执一词；Omicron病毒解禁众说纷纭
+![img](https://media.gettr.com/group49/origin/2022/02/18/23/a8633b19-5331-f40a-6736-8fbccbe28010/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 2/18/2022 11:49 PM (UTC)`
 
 2/18/2022 Miles Guo: The Americans told the CCP that they would not completely decouple with it only if the US is allowed to investigate the origins of the virus. The CCP dares not to release the virus again. Han Zheng is not in a good shape now, and he is scared as soon as Xi Jinping is mentioned. We hope the CCP will not end too soon. The New Federal State of China needs more time to get ready to influence the new democratically elected government of China.<br/><br/>2/18/2022 文贵直播：美国告诉中共，不想脱钩就得让美国搞病毒溯源；中共不敢再放毒了；韩正状态不佳，一提习就害怕；不希望中共太快倒台，新中联邦需要更多时间去准备从而能够影响新的民选政府<br/>
@@ -147,13 +154,6 @@
 
 2/16/2022 Miles Guo: Various countries have begun to admit that the COVID vaccines contain graphene oxide, and the world will be completely changed. All humankind will not let go of the CCP regarding the issues of the COVID virus and its vaccines. The CCP employs the same despicable tactics to deal with both the Winter Olympics and me by always giving themselves the green light and giving their opponents only the red light.<br/><br/>2/16/2022 文贵直播：各国已开始承认疫苗含氧化石墨烯，全球将大变；全人类不会在病毒和疫苗问题上放过中共；中共用同样的卑鄙手段对付文贵和冬奥会 - 给自己开绿灯，给对方只开红灯<br/>
 ![img](https://media.gettr.com/group33/getter/2022/02/17/02/2a6bde2a-0e4b-2b3b-3397-7fe8e72d7c58/out.jpg)
-
----
-
-`@miles 2/17/2022 2:01 AM (UTC)`
-
-2月16号：尊敬的战友们好，这是瑞秋和罗伊在直播中提到的安眠药……就是不会上瘾，不会头疼．非常非常健康的，不会让你失去记忆的安眠药，希望大家妥善使用．遵从医嘱！
-![img](https://media.gettr.com/group10/getter/2022/02/17/02/1197958b-bcb6-e0ed-37bc-85af3dd567a9/5d9693856682ab0ca335940ed07ff24c.jpg)
 
 ---
 

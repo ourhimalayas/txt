@@ -2,48 +2,32 @@
 ---
 
 
-## 香港中共病毒形势失控
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2026808/)
+## 2022/02/15 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2026958/)
 
-作者：纽约香草山农场 – 四季
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
-
-据[布赖特巴特新闻网](https://www.breitbart.com/asia/2022/02/16/hong-kong-coronavirus-situation-out-of-control-under-chinese-rule/)2月16日报道，香港当地新闻媒体Coconuts Hong Kong周二称，香港目前正面临着最严重的中共病毒爆发，同时也受到政府当局中亲中共势力的日益统治。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GettyImages-1238519467-640x480-1.jpg)Peter Parks/AFP Getty Images
-
-数以千计的感染者在家中等待被送入医院或其他隔离设施. 香港卫生当局2月14日检测到创纪录的中共冠状病毒新病例，有2071名新的感染者被确认，这是连续第四天出现四位数的病例。
-
-香港政府周二表示，它计划通过将”几座”新的公共租赁房屋改建为隔离设施，来容纳该市数量激增的新冠状病毒患者。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2月.jpg)
-
-编辑/校对/发稿：小鹿
+1. 2月15日，广东深圳的街道，中共以疫情防控为由进行的封控措施在常态化的持续着。
+2. 2月15日。中共通报湖南郴州出现2例香港返郴人员新冠肺炎确诊病例，整个城市经济瞬间陷入停摆，餐饮店老板忧心忡忡。
+3. 中共各地房地产房市呈现崩盘迹象，平均房价相比最高点均出现对折处理的情况。
+4. 未来中国大陆将会大量出现视频中这种无人居住的废弃楼盘的场景。
+5. 2月13日，云南，一岁女婴被拐30年后回乡认亲祭拜死去父亲。中共国大陆存在大量普通人家妇女儿童被拐案件被中共政府放纵无视。
+6. 河南市民吐槽申诉交通违章罚错退款被耗时一年走审批程序，花费¥300，退款¥200。
+7. 2月14日深圳，父亲通过远程摄像头记下赣州老家的儿子凌晨五点独自一人离家上学画面，小男孩打着手电，陪伴他的只有两条忠实的狗。 #留守儿童
+8. 2月14日，江苏昆山。大润发员工更换商品标签时，直接穿鞋进冷柜踩冷冻食品被曝光。
+9. 擅长丧事喜办的中共政府将2021年河南大水灾时救人的“京广路隧道呐喊哥”，项城人侯文超评为第八届周口市见义勇为道德模范。但是却严密掩盖郑州大水灾的实际死亡人数。
+10. 2月11日，山东沛县卡车司机接受记者采访时吐槽，现在行业艰难，大家都是勉力维持。
+11. 2月3日，浙江温州。一民警执勤时突然昏厥倒地被摄像头记录下来，中共宣传机构宣传为劳累所致。
 
 
+* * *
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
