@@ -2,26 +2,45 @@
 ---
 
 
-## 应对中共攻台！美核动力航母与日本开展第三次联合训练
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2029179/)
+## 新加坡持续放宽入境防疫措施
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2029401/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片4-8.png)[图片来源](https://news.usni.org/2022/01/24/usni-news-fleet-and-marine-tracker-jan-24-2022#jp-carousel-91483)
-日本海上自卫队2月18日发布消息称，16、17日与美国海军核动力航母“亚伯拉罕·林肯”号、巡洋舰及驱逐舰共三艘舰艇在冲绳东方海域实施了联合训练，目的是应对台湾有可能发生突发事态。
+作者：纽约香草山农场教育部—Naughty(文行)
 
-日本海上自卫队派出护卫舰“稻妻”号和训练舰“旗风”号参加，以提高战术技能和与美军的协同作战能力。
 
-林肯号近期一直在冲绳周边巡航，自1月中旬日本海上自卫队公布联合训练计划以来，此次已是第三次参加训练。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-37.png)
 
-美日短时间内多次举行联合训练，意在强烈展现出对中共牵制的姿态。
 
-信息来源：
+新加坡将放宽入境旅客检疫规定。由低风险国家及地区入境的旅客，抵境后无需接受PCR核酸检测，只需到检测中心进行快筛。新加坡还将持续扩大适用接种者免隔离的国家。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/25-1.png)
+新加坡将所有国家及地区依风险程度分成4类，对风险程度最低的第一类国家及地区单边开放，来自台湾、中共国、香港及澳门的旅客入境后不需隔离，只要在机场接受PCR检测，结果呈阴性即可自由活动。来自其他类别国家的旅客则依风险程度适用不同检疫规定，风险较高者必须在指定设施隔离。
 
-[海自与美核动力航母开展第三次联合训练](https://china.kyodonews.net/news/2022/02/9aa6161aec75.html)
+卫生部表示，2月21日晚上11时59分起，新措施开始实施。 另据报道，新加坡卫生部长王乙康今天表示，新加坡正历奥密克戎疫情，每天新增病例仍在攀升。这波疫情预计在未来几周达到高峰，之后病例可能急遽下降，到时就能放宽防疫措施，让人们过上更正常的生活。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+参考来源：
+
+[Singapore to impose quarantine-free travel for vaxxed tourists from select countries](https://newsinfo.inquirer.net/1555706/singapore-to-impose-quarantine-free-travel-for-tourists-from-select-countries)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-41.jpg)
+
+编辑/校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-38.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,36 +2,55 @@
 ---
 
 
-## 特鲁多将34个加密货币钱包列入黑名单
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2028558/)
+## 02/19每日播报｜社媒消息:罗伯特马龙博士 Disclose.tv
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2028937/)
 
-撰稿: 加拿大温哥华扬帆农场 – Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-11.png)
-据外媒 2月16日报道，特鲁多向联邦警察部队发出命令，要求加拿大所有受FINTRAC 监管的公司停止与34个加密货币钱包进行交易，这些钱包据称与渥太华的自由车队有关。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1758.png)图片来源：https://www.thecountersignal.com
-特鲁多政府官员列出了29个比特币地址，2个以太坊，以及另外三个加密货币钱包。经确认，至少有一个钱包价值超过100万美元的比特币，通过加密货币支持自由车队的卡车司机。
+**[BY:秘翻新闻](秘翻新闻)**
 
-特鲁多政府对支持合法和平抗议的赞助资金疯狂阻截，遭到各界抨击。
+**[*2*022-02-19](https://gtv.org/broadcast/watch/62108890b706176dd78d3423)**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/s1-2.jpg)
+**[一、香草山医疗部2月18日在盖特发文：](https://gettr.com/post/pv2snnbffc)**
 
-新闻:
+**新冠病毒后遗症和新冠疫苗综合症有哪些相似之处？**
 
-[EXCLUSIVE: RCMP orders blacklist of 34 crypto wallets under Trudeau’s authoritarian prerogative](https://www.thecountersignal.com/news/rcmp-ban-34-crypto-wallets-from-working-in-canada)
+第一个是高炎症，这个炎症状态一般有低烧、盗汗和头痛等；第二个是都有可能会产生脑雾，一般认为有两个原因，一个是弥散性的小血管炎症，另一个是小血栓导致供血不足；另外还有外周神经炎、手震颤、发麻和口歪嘴斜等，这是刺突蛋白产生的非特异性抗体，专门针对髓鞘蛋白，人的神经信号是要走高速通道的，不然做动作会太慢，髓鞘受损会导致外面乱七八糟的信息混进高速通道。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-5.png)
+**秘翻新闻 巴拉克 编辑报道**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/s2.png)
+**二、[Truckers4Freedom 2月19日在盖特发文：](https://gettr.com/post/pvfko7d164)**
 
-编辑: Jack Li文阳
+渥太华警方向妇女、和平抗议者喷洒辣椒喷雾，这让人非常震惊！他们不应继续这样做，这行为会极大地损害其形象和声誉。 班农先生回复说： 卡斯特罗·特鲁多和方慧兰的残暴执政方式正在影响渥太华警方。他们现在正用辣椒喷雾对付和平的女性抗议者。 我们与加拿大的爱国者们站在一起，坚守防线！
 
-总编: 童谣
+**秘翻新闻 巴拉克 编译报道**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/s3.png)
+**三、[罗伯特马龙博士2月19日在盖特发文：](https://gettr.com/post/pvemiy5d56)**
 
-校正/发稿：浪迹天涯
+我的一位同事曾在川普政府担任公共卫生医生，他向加拿大卡车司机讲述新冠疫苗的风险，结果加拿大政府对他发出了逮捕令。他此刻正试图逃离加拿大。这就是我们在美国即将所要面对的情景。自由言论和反对强制令的抗议活动将被国土安全部诽谤为国内恐怖主义。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-11.png)
+**秘翻新闻 巴拉克 编译报道**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/s4-1.jpg)
+**四、[罗伯特马龙博士2月19日在盖特发文：](https://gettr.com/post/pveq275b33)**
+
+每天揭露世界经济论坛的所谓宏伟远景。 【盖文转《America Out Loud》报道，随着许多政府被迫取消新冠限制令，我们一直在寻找全球主义者下一次对个人自由和包括美国在内的主权宪政共和国的攻击方向。我们发现了他们的下一步行动。对人类自由的下一次重大攻击涉及世界卫生组织（WHO）对国家医疗系统的合法接管。这个初步计划已获得许多国家的支持，这一隐秘攻击如果不被迅速认清并进行抗争，将在2024年开始全面实施。2022年1月24日，世卫组织总干事谭德赛在世卫组织执行委员会上发言时，详细阐述了他的全球卫生计划，包括他庞大计划的最后一个优先事项：“第五个优先事项是紧急加强世卫组织，使其成为全球卫生领域的领导和指导机构，并处于全球卫生架构的中心。我们是一体的世界，我们有一个共同的健康，我们是一个世卫组织。”谭德赛试图成为世界上的超级福奇，而且像福奇一样，他将代表全球主义者这样做。】
+
+**秘翻新闻 巴拉克 编译报道**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/s5.png)
+**五、[Disclose.tv 2月19日在盖特发文：](https://gettr.com/post/pvc5yed70a)**
+
+当网友在推特上问及全球最大之一的加密货币交易所Kraken是否会冻结与抗议有关的账户时，Kraken的联合创始人和首席执行官赫塞·鲍威尔 (Jesse Powell)回复说，是的，它百分百会或者将会发生，我们将被迫遵守规定。如果你担心这个，就不要把你的资金放在任何中央或者受到监管的托管方那里。我们不能保护你。请取出你的代币或者现金，只进行p2p交易。
+
+**秘翻新闻 巴拉克 编译报道**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/s6.jpg)
+**六、[喜马拉雅国际工作站2月18日在盖特发文：](https://gettr.com/post/pvc1isc3e5)**
+
+** **美国参议员约翰·肯尼迪 (John Kennedy)在接受福克斯采访时说：“中共国、俄罗斯、伊朗组成了邪恶轴心。中共正在用俄罗斯和乌克兰试探美国的反应，从而评估他们在台湾、东海和南海能走多远。”
+
+**秘翻新闻 巴拉克 编辑报道**
+
+发布：陸柒陸捌
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMAGE-2021-12-13-113746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

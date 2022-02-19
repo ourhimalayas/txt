@@ -2,20 +2,20 @@
 ---
 
 
-## 美司法部及FBI宣布组建数字货币执法团队
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2028479/)
+## 特鲁多将34个加密货币钱包列入黑名单
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2028558/)
 
-撰稿: 纽约香草山 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-8.png)
-2月17日，美国司法部DOJ宣布，已经任命了一位检察官领导新组建的国家加密货币执法团队。同时，联邦调查局FBI正在启动一个区块链分析和虚拟资产部门。
+撰稿: 加拿大温哥华扬帆农场 – Spirit
+![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-11.png)
+据外媒 2月16日报道，特鲁多向联邦警察部队发出命令，要求加拿大所有受FINTRAC 监管的公司停止与34个加密货币钱包进行交易，这些钱包据称与渥太华的自由车队有关。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1758.png)图片来源：https://www.thecountersignal.com
+特鲁多政府官员列出了29个比特币地址，2个以太坊，以及另外三个加密货币钱包。经确认，至少有一个钱包价值超过100万美元的比特币，通过加密货币支持自由车队的卡车司机。
 
-此前，司法部副部长丽莎·摩纳哥在一次网络安全会议上指出，检察官崔恩英将领导司法部这一加密货币执法团队。崔恩英曾主导起诉俄罗斯黑客窃取8000多万摩根大通客户信息的案件。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1756.png)
-而FBI “虚拟资产”部门的成立是在司法部有史以来最大的金融扣押行动后进行的。本月早些时候，它指控一对纽约夫妇涉嫌洗钱，涉及的比特币现在价值超过45亿美元，在2016年数字货币交易所Bitfinex的黑客攻击中被盗。
+特鲁多政府对支持合法和平抗议的赞助资金疯狂阻截，遭到各界抨击。
 
-去年美国最大的燃料管道网络和世界上最大的牛肉供应商遭到一系列疯狂的网络攻击，勒索软件作案团伙经常要求以比特币支付其赎金。因此，拜登政府执政下的美国监管机构一直在加强对加密货币行业的审查。
+新闻:
 
-新闻链接: [FBI to form digital currency unit, Justice Dept taps new crypto czar](https://www.reuters.com/technology/fbi-form-new-digital-currency-unit-justice-dept-taps-new-crypto-czar-2022-02-17/)
+[EXCLUSIVE: RCMP orders blacklist of 34 crypto wallets under Trudeau’s authoritarian prerogative](https://www.thecountersignal.com/news/rcmp-ban-34-crypto-wallets-from-working-in-canada)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-5.png)
 

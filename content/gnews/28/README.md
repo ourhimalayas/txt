@@ -2,13 +2,23 @@
 ---
 
 
-## 安大略省省长道格·福特对强制令说“不”
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2029329/)
+## 20220206文贵大直播：七哥当时烧不烧重要文件结果相差无几
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2029431/)
 
-02/16/2022 “我们已经受够了”。当加拿大仍然处于授权之争的中心时，安大略省省长道格·福特对严格的疫苗强制令和口罩规则以及诸多限制做出了回绝。
+作者：东京樱花团视频小组
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
+
+
+
+
+
+校对：东京樱花团视频小组
+
+编辑发布：东京樱花团视频小组
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-4.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
