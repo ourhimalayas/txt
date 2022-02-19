@@ -2,28 +2,30 @@
 ---
 
 
-## 有声|轻装前进 灭共百无禁忌
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2032216/)
+## 樱花FM|中共国的核酸检测能力令人质疑
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2032364/)
 
-配音：香草山健身部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月15日，郭文贵先生正式签署了破产文件，宣布个人破产。
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-16.png)
+日文雅虎网站２月３日头版报道：将于4日开始的北京冬奥会日本代表团总部的开幕前新闻发布会，3日在北京新闻中心举行。
 
-在第二日的直播中，郭先生表示，个人破产不过是人生路口的黄灯，而成为真正的“无产阶级”给他带来的只有全身心的轻松和愉悦。另一方面，执念让人痛苦，放下即是获得，郭先生借此机会养精蓄锐并放下执念后，才能继续轻装上阵。
+前一天的２日，日本奥委会曾宣布，一名滑雪运动员1日在参赛地机场的中共病毒（新冠病毒Covid-19）检查中呈阳性反应，但仅时隔一天的今天，团队负责人伊藤秀仁又宣布，该滑雪运动员于今天又进行了两次测试，两次结果均呈阴性，隔离已经解除，已回到运动员村。
 
-文字版原文：[轻装前进 灭共百无禁忌](https://gnews.org/zh-hans/2026014/)
+也就是说，在检测结果呈阳性后，这名选手被转移到隔离酒店。随后的两次检测，相隔24小时，就都是阴性了，并且他已回到了运动员村。
 
-音频处理/发稿：Daxia
+按照日本中共病毒担当者的说法，将按照密切接触者的相关规定，对该选手做出安排，只要他遵守规则，就能参加训练并参加比赛。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+团队负责人伊东先生说：听说他已经安全返回运动员村，我松了一口气，很高兴他可以参加比赛了。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+日本队负责人说“松了一口气”，是出于希望自己的选手不失参赛资格的放心。而这件事，明摆着说明了中共国对病毒检测的准确度令人质疑。日本飞到北京，三个小时足够了。出发机场检测呈阴性，飞机降落北京后检测就呈阳性，次日，同是北京，又检测两次都呈阴性。这个过程谁听了能放心？另外，笔者很想知道，这一天两次的检测，是否被用了中共特色的肛检？
+
+文字版原文：[中共国的核酸检测能力令人质疑](https://gnews.org/zh-hans/1950052/)
+
+编辑：东京樱花团/asket
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

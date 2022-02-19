@@ -2,29 +2,28 @@
 ---
 
 
-## 俄乌关系紧张之际，美国向德国部署F35战机
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2031595/)
+## 北京冬奥会加剧韩国反华情绪
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2031614/)
 
-作者：银河系农场 – 骄子
+作者：纽约香草山金融部 – AT
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-2月16日美国空军预备役司令部AFRC在一份声明中宣布，美国向德国部署了战斗机。此次部署得到了德国政府的充分合作。美国认为此举加强了对北约盟国战争防御的支持。
+日前，韩国保守倾向公民团体，在位于首尔的中共国驻韩国大使馆前举行示威活动，并损毁中共国国旗，以抗议北京冬奥短道速滑项目出现的“偏颇判罚”。 韩东大学教授称，北京冬奥引发的“争议”或会点燃韩国民众的反华情绪。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8-27.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/12-25.png)
 
-本次抵达德国斯潘达乐母空军基地的，包含美军若干架F35战斗机，以及现役和后备役战斗机联队飞行员、维护人员和辅助人员；此外，还有8架F15E战斗机和六架加油机。
+韩国媒体报导，一项国民好感度调查显示，好感度满分10分情况下，中共国只获2.6分，略高于2.42分的朝鲜。其中对中共国“完全没有好感”并打0分的人占30.5%。
 
-本月早些时候，因俄罗斯即将入侵乌克兰的威胁，美国五角大楼宣布，它将向东欧盟国——德国、波兰、罗马尼亚派遣3000名士兵。本月中旬，俄罗斯并未从乌克兰边境撤军，战争局势愈发紧张。2月17日，在俄罗斯与乌克兰紧张的双边关系高峰期，俄罗斯驱逐了美国驻莫斯科副大使巴特·戈尔曼。之后，美国对俄罗斯可能入侵乌克兰发出了越来越详细的警告。
+郭文贵先生在多次大直播中提到，2022年最重要的事情之一，就是防止世界的排华事件。每一个在海外的华人都要保护好自己，传播真相，告诉身边的人，中国人不等于中共，将中共对中国人的伤害降到最低。
 
 参考链接：
 
-- [US Deploys Airmen, F-35 Fighter Jets to Germany Amid ‘Russian Invasion’ Fears](https://www.ntd.com/us-deploys-airmen-f-35-fighter-jets-to-germany-amid-russian-invasion-fears_741317.html)
-- [Russia Expels Deputy Chief of U.S. Mission in Moscow – Reports](https://www.themoscowtimes.com/2022/02/17/russia-expels-deputy-chief-of-us-mission-in-moscow-reports-a76434)
+- [韩国民众过度反华情绪　学者：极其危险](https://www.orientaldaily.com.my/news/international/2022/02/18/468625)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
 
 总编：童谣
-编辑：Delilah小胖
+编辑：童谣
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

@@ -2,33 +2,39 @@
 ---
 
 
-## 2022/02/17 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2030580/)
+## 中共抹杀科学巨匠束星北的独立人格思想
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2030651/)
 
-1. 2月16日，江苏苏州。中共连续三天通报苏州新增新冠病毒确诊病例，引发苏州市民恐慌。进出苏州城市道路也在全面封锁中。
-2. 2月14日，江西抚州。孩子每次离家外出打工，都不敢回头。老母亲的送别让人泪目。
-3. 2月13日，福建莆田。中国的大部分年轻人们一年到头只有春节才有条件回家团聚短短几天，然后又在家中长辈泪目送别中离开故乡。
-4. 2月16日，河南。母亲准备在孩子熟睡时悄悄离开去外地打工。两个孩子得知泪流满面，不要买好吃的，退还妈妈零用钱。
-5. 2月16日，两位孩子的妈妈独自带两个小孩，因为各种压力，开车的时候忍不住哭了起来…
-6. 2月16日，广东广州。男子从诊室出来后伫立许久，手拿诊断书一动也不动。
-7. 2月15日，上海。子女为能顺利继承房产，将病重老人用担架推至房产过户大厅。
-8. 2月16日，安徽亳（bó）州。女子和丈夫结婚十多年年年还账，今年还完账后妻子边数钱边感叹：心里得劲的很。
-9. 勤劳的中国年青人在工厂工作往往承受着巨大的压力，每个人都是在极度被剥削人权的忍耐下过活，崩溃往往在一瞬间。
-10. 2月14日，被工人曝光的浙江东方基因生物制品股份有限公司在江西吉安的800人“豪华”员工宿舍。
-11. 2月16日，江苏淮安。中共政府的运动式捕狗。中共对公民任何的财产和人命都似乎拥有无限的最终解释权。
+作者：纽约香草山农场 马克文, 朱丽叶
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
-* * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+束星北，1907年10月1日出生在江苏扬州。美国麻省理工学院毕业的束星北是世界顶级的量子力学和相对论研究物理学家，他曾被爱因斯坦赏识，担任其助手。此外，他还是诺贝尔物理奖获得者李政道，以及世界最杰出的女性实验物理学家之一吴健雄等著名科学家的恩师。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-19-at-9.08.45-PM.png)![](https://gnews.org/b78691d8-d1ea-4618-b661-49bcc675f124)
+据海外相关历史记载，相较于学术成就，束星北一直坚持着自由、独立的思想和人格。束星北曾批评中共国学校教育称，学生不是政治家，大学更不是党校，因此政治家不应出身于校园之中。也正是因此，他不认同当时苏联的科学技术，觉得政治禁锢了那里的科学家。相反的，束星北认为资本主义国家中的人民言论更加自由，而自由是科学发展的保障。
 
+由于他坚决反对“人治”、力主“法治”的观念，在1954年至1974年的多次政治运动中，束星北被打成了所谓的“反革命集团头目”，为此遭受了严酷的管制劳动和强行劳改等迫害。
 
-编辑：【英国伦敦喜庄园编辑部】
+1983年，束星北逝世。而中共政府对这位科学巨匠的身后评价则只定位在简单的教育背景和科学成果上，至于他独立思想和人格留给人类文明的资产却完全被抹杀。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+参考链接：[维基百科: 束星北](https://zh.wikipedia.org/wiki/%25E6%259D%259F%25E6%2598%259F%25E5%258C%2597)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-3.png)
+
+审核：Jack Li文阳
+编辑：静言
+总编：Irene木木
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
