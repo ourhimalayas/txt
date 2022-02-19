@@ -2,38 +2,28 @@
 ---
 
 
-## 有声|谷爱凌争议言论开始发酵
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2032529/)
+## 有声|日本民间反抗对儿童的中共病毒疫苗接种
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2032809/)
 
-配音：香草山佛教部 – 李傻
+配音：香草山巡管部– 文凯琳
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在2月16日的大直播中，郭文贵先生透露了一份独家情报：中共为了平息谷爱凌的国籍问题和外界对中共一系列违规操作的争议，其以气候为由，取消了谷爱凌的两场最重要赛事。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide4-9.jpeg)
-郭先生解释到，谷爱凌早先在获得自由式女子大跳台项目金牌后表示，她在美国就是美国人，在中国就是中国人。但这一言论完全违背了中共面向全世界颁布的“只承认一个国籍”的法律，也是对整个世界的欺骗和愚弄。目前，谷爱凌事件在全球引起了强烈的反弹，一些政府表示，要对其进行彻底的调查。
+当地时间2月16日，据日本媒体消息显示，日本兵库县宝冢市宫泽诊所的院长宫泽大辅，以及《疫苗后遗症》主创人员之一、京都大学的宫泽孝幸副教授近日联合了超过一万名医生，要求日本政府撤销对该国所有5到11岁的儿童发放的中共病毒疫苗接种券，改为由接种者自行申请的模式。
 
-另一方面，多国运动员在冬奥会房间内发现了中共安装的隐藏摄像头，同时，中共勾兑、收买裁判的行为也有了确凿的证据。
+据了解，日本政府即将于3月份在当地5到11岁的儿童群体中推广中共病毒疫苗，但这引起了日本民间对儿童接种疫苗的担忧和反抗。当天，在日本媒体对静冈县儿童家长的采访中，绝大多数父母都表示出对疫苗副作用的质疑。有家长提及，由于接种儿童的年龄较低，但凡出现接种副作用的情况，他们无法准确地向父母和医生表达出自己的症状，而这会严重威胁到孩子的安全。
 
-郭先生指出，中共违背奥运精神、突破道德底线、违反法律的行为已经引发了多国运动员、政府及关注人士的愤怒。
+文字版原文：[日本民间反抗对儿童的中共病毒疫苗接种](https://gnews.org/zh-hans/2025578/)
 
-文字版原文：[谷爱凌争议言论开始发酵](https://gnews.org/zh-hans/2026085/)
+音频处理/发稿：Daxia
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

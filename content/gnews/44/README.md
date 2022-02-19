@@ -2,37 +2,22 @@
 ---
 
 
-## 以色列将废除中共病毒疫苗护照系统
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2031593/)
+## 美国延长中共病毒紧急状态
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2031670/)
 
-作者：银河系农场 – 骄子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-2月17日周四，以色列总理总理宣布，中共病毒感染病例每天持续下降，中共病毒疫苗接种证明的护照系统将会暂停使用。
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1798.png)[图片来源](https://news.yahoo.co.jp/articles/470866026e1cf3e1c8e68add9b297364503af272)
+2月19日时事通信华盛顿消息，美国总统拜登18日宣布，为应对中共病毒（新冠病毒covid-19）感染蔓延，国家紧急状态3月之后还将继续延长。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/10-13.jpg)
+拜登强调，迄今已有90多万人死于中共病毒，大流行继续对国家的公共卫生构成重大风险。
 
-据悉该护照系统称为绿色通行证，限制未完成接种至少三针疫苗的人们，进行大型集会和进入室内场所。在过去一年的大部分时间里，绿色通行证是以色列日常生活的必备品。
+1月中旬，随着奥密克戎疫情过了高峰期，美国的新感染人数开始下降。然而，死亡人数并没有明显下降，根据疾控和预防中心（CDC）的数据，在截至2月17日的一周内，平均每天有1,998人死亡。拜登政府已于去年2月宣布延长了国家紧急状态。
 
-在2020年，以色列与辉瑞达成协议，用医疗数据换取稳定的中共病毒疫苗供应后，迅速为大部分成年人口接种了疫苗。当前约48%人口已经接种了三针疫苗，全国72%的人口已经接种了至少一针。
+信息源：[米、コロナ非常事態を延長　「引き続き重大なリスク」](text=%E7%B1%B3%E3%80%81%E3%82%B3%E3%83%AD%E3%83%8A%E9%9D%9E%E5%B8%B8%E4%BA%8B%E6%85%8B%E3%82%92%E5%BB%B6%E9%95%B7%E3%80%80%E3%80%8C%)
 
-参考链接：
-
-- [Israel to scrap COVID passport system as omicron wanes](https://ktar.com/story/4893787/israel-to-scrap-covid-passport-system-as-omicron-wanes/amp/)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
-
-总编：童谣
-编辑：童谣
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

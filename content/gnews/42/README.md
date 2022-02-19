@@ -2,38 +2,26 @@
 ---
 
 
-## 俄乌关系紧张之际，美国向德国部署F35战机
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2031595/)
+## 中日财经爆┃俄乌危机影响已波及谷物市场 食品价格上涨引人忧
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2031766/)
 
-作者：银河系农场 – 骄子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-2月16日美国空军预备役司令部AFRC在一份声明中宣布，美国向德国部署了战斗机。此次部署得到了德国政府的充分合作。美国认为此举加强了对北约盟国战争防御的支持。
+撰稿人：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1802.png)[图片来源](https://www.nikkei.com/article/DGXZQOUB022380S2A200C2000000/)
+乌克兰的紧张局势正在蔓延到谷物市场。俄罗斯和乌克兰是小麦和玉米等谷物的主要出口国，而军事冲突无疑会扰乱这两国供应。虽然日本不从这两个国家采购，但市场很有可能出现上涨，这可能导致小麦进口和其他商品价格滞后上升。食品价格的进一步上涨也不可避免。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8-27.jpg)
+小麦国际基准，美国芝加哥期货交易所的小麦期货价格目前处于每蒲式尔（约27公斤）7美元的高位，比去年高出约20%。价格在高位区间波动。除了气候因素外，乌克兰的局势也是价格上涨因素之一。
 
-本次抵达德国斯潘达乐母空军基地的，包含美军若干架F35战斗机，以及现役和后备役战斗机联队飞行员、维护人员和辅助人员；此外，还有8架F15E战斗机和六架加油机。
+俄罗斯和乌克兰是小麦、大麦和玉米的主要出口国，俄罗斯是小麦的第一大出口国，约占20%，乌克兰是第四大玉米出口国，约占16%。主要客户是中东和非洲等水资源稀缺的地区，粮食只能依靠进口。一直是俄乌作为供应商的需求国，因为军事冲突而不得不转而从其他国家采购。这可能导致价格上涨，日本也不会不受影响。
 
-本月早些时候，因俄罗斯即将入侵乌克兰的威胁，美国五角大楼宣布，它将向东欧盟国——德国、波兰、罗马尼亚派遣3000名士兵。本月中旬，俄罗斯并未从乌克兰边境撤军，战争局势愈发紧张。2月17日，在俄罗斯与乌克兰紧张的双边关系高峰期，俄罗斯驱逐了美国驻莫斯科副大使巴特·戈尔曼。之后，美国对俄罗斯可能入侵乌克兰发出了越来越详细的警告。
+日本国内90%的小麦需求依赖进口，主要来自北美和澳大利亚。进口小麦由政府采购并出售给面粉加工公司。政府出售价格每年审核两次，分别在4月和10月。而去年10月，与4月相比，价格上涨了19%，这反映了过去六个月国际价格的上涨。而这影响也会波及到面包和方便面等加工食品的价格。今年4月的整体价格调整反映了自去年9月以来的平均购买价格。乌克兰的局势已经给价格带来了上升的压力，未来影响尚不可预知。
 
-参考链接：
+SMBC日兴证券公司的一位高级经济学家表示，即使没有数量短缺，地缘政治风险也会反弹影响市场。如果食品价格进一步上涨，将对民众生活产生巨大影响。可以说将引起食品安全供应问题。
 
-- [US Deploys Airmen, F-35 Fighter Jets to Germany Amid ‘Russian Invasion’ Fears](https://www.ntd.com/us-deploys-airmen-f-35-fighter-jets-to-germany-amid-russian-invasion-fears_741317.html)
-- [Russia Expels Deputy Chief of U.S. Mission in Moscow – Reports](https://www.themoscowtimes.com/2022/02/17/russia-expels-deputy-chief-of-us-mission-in-moscow-reports-a76434)
+信息源：[ウクライナ危機、穀物相場　高騰の兆し　日本国内](https://news.yahoo.co.jp/articles/b050191c1cadb2ef76c4faad2ad9f5c21be3aa38)
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
-
-总编：童谣
-编辑：Delilah小胖
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
