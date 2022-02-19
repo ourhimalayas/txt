@@ -2,39 +2,38 @@
 ---
 
 
-## 共和党人承诺将不遗余力溯源中共病毒
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2030172/)
+## 秘翻在线：台湾谴责中共国利用冬奥会推动“政治宣传”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2030357/)
 
-作者：银河系农场—骄子
+**编译：JIHO**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
+**校对：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-19-181318.jpg)
+根据路透社台北报道，台湾政府本周五（2月18日）指责中共国利用北京冬奥会宣示对该岛的主权主张，称中共国传播政治宣传，为奥运会的和平精神“蒙上了阴影” 。
 
+中共无耻地将自治的台湾视为自己的领土，在其坚持下它以“中华台北”的身份参加奥运会和大多数其他国际体育赛事。
 
-日前，美国共和党人表示，如果能够在1月份重新夺回国会，他们将对全球中共病毒的起因展开全面调查。
+北京奥运会发言人严家荣周四表示，“只有一个中国”，指的是中共国长期以来的立场，即台湾属于中共国。
 
-此前共和党人一直呼吁调查此事，以了解更多关于中共武汉病毒研究所正在从事的研究。华盛顿的能源和商业研究众议员表示将会不遗余力调查此事。目前科学家已经取得有力证据证明中共病毒起源于武汉病毒实验室，但中共政府不合作处处阻碍调查，并且否认实验室泄漏的说法。
+台湾外交部表示，该官员“公然利用奥运场馆进行不正当的政治宣传”，违反了《奥运宪章》关于不将奥运会政治化的规定。
 
-美国共和党人认为可以从一家中共背景的纽约生态联盟公司查起，该公司得到了美国NIH、国防部、国际开发署、国家科学基金会、农业部以及诸多机构的大量注资，利用美国纳税人的钱在武汉病毒研究所进行了危险的中共病毒功能增强研究。此项协议是经NIH福奇的批准下进行的，但福奇否认了这一点。福奇坚称中共病毒源于自然，极力帮助中共掩盖罪证，已经对美国国家安全和外交造成了重大影响。
+台湾外交部表示，台湾就是台湾，只有民选政府才能在世界上代表其人民，它以自己的身份参加奥运会，而不是作为另一个国家的一部分。
 
-众议院共和党人也曾向美援署施压，要求澄清曾向生态联盟公司提供的470万美元是否用于功能增强研究，目前美援署认为绝无此事。
+报道称，中共国官员的言论“给奥运五环所体现的和平精神蒙上了一层阴影”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-300.jpeg)图片来源：FOXNEWS
+国际奥委会（IOC）主席托马斯·巴赫周五早些时候表示，他们在新闻发布会后立即与北京组织者就这些言论进行了交谈。
 
-参考链接：[https://www.foxnews.com/politics/republicans-pledge-uncover-covid-origins.amp](https://www.foxnews.com/politics/republicans-pledge-uncover-covid-origins.amp)
+巴赫说，组织者和国际奥委会“都重申了他们的明确承诺，即按照奥林匹克宪章的要求保持政治中立”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-301.jpeg)
+中共国组织者通过电子邮件声明回应称，“北京2022符合主办城市合同和奥林匹克宪章的规定，反对将体育运动政治化”。
 
-编辑/校对/发稿：文敬
+关于台湾四名运动员参加冬奥会引起的争端是由于中共国已加大力度限制台湾的国际参与，以迫使其接受中共国的统治。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+在代表队表示已收到国际奥委会的“几份通知”参加开幕式和闭幕式后，台湾参加了奥运会的开幕式。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/12/新-9.png)
+尽管上个月，台湾最初曾说由于航班延误和COVID-19规则，它不能够参加。
 
+**[新闻来源](https://www.reuters.com/lifestyle/sports/taiwan-rebukes-china-using-games-push-political-propaganda-2022-02-18/?taid=62108190d2db8100016db2a1&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)**
 
 
 

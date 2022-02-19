@@ -2,8 +2,8 @@
 ---
 
 
-## 20220204文贵大直播：Hpay在国内而且只要有空气、量子、宇宙的地方都可以用
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2030124/)
+## 20220202文贵大直播：HPay不仅绝对安全，而且将无处不在
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2030317/)
 
 作者：东京樱花团视频小组
 

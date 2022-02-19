@@ -2,8 +2,8 @@
 ---
 
 
-## 20220202文贵大直播：中共国一个明星的丑闻价值10亿 新疆大屠杀 杨改兰之死真相不值钱
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2030241/)
+## 20220202文贵大直播：春晚的本质（二）
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2030407/)
 
 作者：东京樱花团视频小组
 

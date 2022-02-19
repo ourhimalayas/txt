@@ -2,8 +2,8 @@
 ---
 
 
-## 20220204文贵大直播：PayPal FaceBook股价跌和我们HPay、Gettr没关系
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2030089/)
+## 20220202文贵大直播：甜蜜蜜运动使中共冬奥会变成冬眠会
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2030278/)
 
 作者：东京樱花团视频小组
 

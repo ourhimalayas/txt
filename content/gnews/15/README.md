@@ -2,37 +2,31 @@
 ---
 
 
-## 樱花FM | 中日财经爆:加拿大支持欧盟WTO诉讼案 中共暂停进口立陶宛牛肉
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2030063/)
+## 英澳两国领导人指责中共侵犯人权之罪
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2030272/)
 
-音频：东京樱花团/战友520
+作者：银河系农场 – 骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据外媒报道，英国与澳大利亚两国领导人日前进行了视频通话，中共国对新疆的种族大屠杀表示深刻关切，同时呼吁保护香港的自由人权和高度自治，维护台湾海峡两岸的和平与稳定，南中国海海事权利和自由，强烈反对军事威胁和恐吓，并警告俄罗斯不要入侵乌克兰。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/YKJ7CMNQV5K5ZJSRRYQJZIWTCI.jpg)
+据悉此前四国集团美日印澳会议承诺深化合作，以对抗中共在印太地区日益扩张的经济和军事实力。在国际上，美国已将中共对新疆的大屠杀定义为种族灭绝罪，中共对香港实行的国安法，严重侵犯香港的民主自由，同时中共频繁入侵台湾航空区对台湾造成的战争压力也深受国际社会谴责。台湾对英澳表示感谢，并愿继续与英澳等民主国家深度合作。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/加拿大支持欧盟WTO诉讼案-中共暂停进口立陶宛牛肉.png)
+参考链接：
 
-加拿大周四 (2月10日) 发布声明，表示将寻求加入英国、美国和澳大利亚的行列，支持欧盟就北京对立陶宛实施贸易限制所提出的诉讼案。加拿大全球事务部在声明中表示：“加拿大对中国最近针对立陶宛和欧盟具有立陶宛成分的商品和服务采取的贸易行动感到担忧，这可能会破坏基于规则的国际贸易体系及其机构。”
-
-欧盟于1月向总部设在日内瓦的世界贸易组织发起诉讼案，指责中国对立陶宛的歧视性贸易做法，称其威胁到欧盟单一市场的完整性。加拿大表示，该国反对“经济胁迫”，并与世贸组织中“志同道合的伙伴一起支持基于规则的国际贸易”。
-
-除了加拿大外，美国网络媒体Politico周四也报导称，日本跟台湾也要求加入欧盟在世贸提出的诉讼案。一名熟知详情的资深欧盟官员向该媒体证实，这三个政府都向欧盟表明会支持该诉讼案。
-
-在加拿大等三国宣布加入欧盟的诉讼案之同日，中国海关总署在其网页上更新了《符合评估审查要求的国家或地区输华肉类产品名单》，内容包含自2月9日后（含2月9日）启运的立陶宛牛肉进口申报。
-
-路透社报导指出，如果肉类产品出口国国内爆发牲畜疾病，中国海关通常就会停止从该国进口肉类制品。但立陶宛最近没有向世界动物卫生组织（OIE）报告任何动物疾病。不过，立陶宛9日淡化了中国暂停进口该国牛肉所带来的影响，称其出口商已经与其他市场达成协议。
-
-立陶宛总理希莫尼特（Ingrida Simonyte）向媒体表示：“这一决定没有任何实际问题，因为立陶宛出口商最近几个月根本没有向中国出口。他们已转向其他市场。”
-
-而“德国之声”就立陶宛牛肉禁止进口中共国，立刻发推调侃：可以考虑转而卖给台湾，搭着朗姆酒吃？
-
-文字版原文：
+- [UK pledges $34 mln to enhance security in Indo-Pacific](https://www.reuters.com/world/uk-sign-25-mln-stg-security-deal-with-australia-2022-02-16/)
 
 
-| [中日财经爆┃加拿大支持欧盟WTO诉讼案 中共暂停进口立陶宛牛肉](https://gnews.org/zh-hans/1989752/) |
-| --- |
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
+编辑/校对/发稿：海阔天空1
 
-*编辑：东京樱花团/asket   
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
