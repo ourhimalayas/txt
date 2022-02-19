@@ -2,29 +2,30 @@
 ---
 
 
-## 锁链女灾难引发国际哗然的灭共海啸
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2033064/)
+## NFSC新闻、G|TV新闻访谈简报|2022年2月19日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2033291/)
 
-加拿大温哥华扬帆农场 硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO-2.jpg)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/a-10-edited.jpg)图片来源：gettr
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-18.png)
+文章仅代表作者本人观点，与Gnews无关
 
+视频参看：
+[2022.02.19早 《NFSC新闻》](https://gtv.org/video/id=6210f09db706176dd78d51d1)
+[2022.02.19早 G|TV《新闻访谈》](https://gtv.org/video/id=6210f7d9b706176dd78d57f8)
 
-据2月19日盖特报道，文贵先生在当天发布的视频中表示：随着锁链女惨案进一步在国际上被广泛报道传播，作为全人类公敌的中共犯罪集团，其邪恶本质再次被曝露于世人面前，而必须被正义彻底铲除。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-报道指出：大多数已被完全洗脑的冷漠国人，对即将崩塌的中共政权麻木不仁，踟蹰观望，愚昧地立于危墙之下而不自知。彻底丧失了对上天，大自然和人性的敬畏之心。而中共对神灵和真理的亵渎已与魔鬼无异。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-2.png)
 
-更有甚者，中共徐州法院和检察院竟然立法规定，所有被绑架和拐卖至该地区的妇女在被强迫结婚后，任何理由都不得申请离婚。同时，为掩盖每年都有数十位被抛尸河野的被绑架妇女之犯罪事实，当局非但不去调查案情，反而监禁和虐待报道真相的良知记者。新中国联邦将惩恶扬善，并对该记者给予喜币的支持和奖励。
-
-对外，为拖延美国政府新的制裁打击，中共当局不惜屈膝求饶，并无耻跪舔要求美方向北京派驻亲共大使，企图再次使用卑劣的蓝金黄手段苟延残喘。
-
-目前，已有日本和欧洲媒体声称，必须对本次疫情进行病毒的溯源调查，否则整个世界都将成为中共暴政的奴隶，人类将为此付出灭顶之灾的代价。而中共在本次冬奥会上种种欺诈拙劣的恶行就是对以上结论最淋漓的验证。
-
-* * *
-
-新闻来源：https://gettr.com/post/pviwuoa122
-
-编辑撰稿，发稿：硫酸羟氯喹64
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
