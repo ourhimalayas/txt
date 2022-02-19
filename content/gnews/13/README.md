@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：最高境界&#8211;情缘
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2033702/)
+## 七哥金句：直面自己的好坏
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2033741/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句9.001-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句-1--scaled.jpg)
 整理：雅典娜农场
 发布：枫叶红了
 

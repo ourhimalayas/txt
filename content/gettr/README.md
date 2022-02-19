@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/19/2022 11:05 PM (UTC)`
+
+2/18/2022 Miles Guo: The European and U.S. governments have acquiesced to letting the Omicron variant infect the population en masse, and they are now lifting all kinds of restrictions because they can't hold up both economically and politically. The massive deaths caused by the COVID vaccine disaster will not start until May, so be sure to continue to take precautionary measures against the virus.<br/><br/>2/18/2022 文贵直播: 欧美政府已经默认让奥米炕病毒集体感染民众，现在解除各种限制是因为经济和政治撑不住了；疫苗灾难造成的大规模死亡在5月份才会开始，请务必继续做好防疫措施<br/>
+![img](https://media.gettr.com/group40/getter/2022/02/19/23/f10bfc11-8cba-7439-5db9-8720d40b38d7/out.jpg)
+
+---
+
+`@miles 2/19/2022 10:59 PM (UTC)`
+
+2/18/2022 Miles Guo: The media has played a huge role in the COVID vaccine disaster, and people across the world hate Mark Zuckerberg, Bill Gates, the local CDCs, the governments, and Anthony Fauci. The Whistleblowers’ Movement was the first to say that the COVID vaccine disaster would kill over a billion people, and that the COVID vaccine passport and mandate would definitely be rescinded by May of this year<br/><br/>2/18/2022 文贵直播：媒体在疫苗灾难中起到了巨大作用，全世界最恨的是扎克伯格、比尔·盖茨、当地CDC、政府和福奇；爆料革命最早说出疫苗灾难将导致十几亿人死亡、疫苗护照和强制令必将在今年5月前取消<br/>
+![img](https://media.gettr.com/group20/getter/2022/02/19/22/f403331d-007d-3c0a-37d7-133b68caa568/out.jpg)
+
+---
+
+`@miles 2/19/2022 10:56 PM (UTC)`
+
+2/18/2022 Miles Guo: Whether to invade Taiwan or not, the world has determined that Xi had wanted to invade Taiwan, whereas Putin managed to divert attention on the Ukraine issue. Russia asked if the CCP would be kicked out of the SWIFT system after invading Taiwan, and the Americans nodded. The CCP has no place in the world political arena, while the Lao Baixing have to pay for it.<br/><br/>2/18/2022 文贵直播:  不管打不打台湾，全世界都认定习曾要打台湾，而普京在乌克兰问题上转移了注意力；俄罗斯问中共打台湾后会不会被踢出SWIFT系统，美国人点了头；中共在世界政坛毫无地位，而老百姓却要为它买单<br/>
+![img](https://media.gettr.com/group16/getter/2022/02/19/22/5600f0bc-767c-a40a-becb-877c958a4c30/out.jpg)
+
+---
+
 `@miles 2/19/2022 6:31 PM (UTC)`
 
 2月19号：新中国联邦的爆二代的气质，长相．正义的形象无可比拟！ <br/><br/>拜托，大家一定要看今天的真人真事太棒了。<br/><br/>https://gtv.org/broadcast/watch/62110d41b706176dd78d61f2
@@ -133,27 +154,6 @@ Live, Love, & Laugh ❤️
 
 2/17/2022 Miles Guo’s GETTR: The Himalaya Pay will free productivity so that the people can achieve financial independence and enjoy human rights. The governments have turned the people’s hard-earned money into a tool to threaten them. The amount of money spent by the CCP is equal to the sum of money spent by all governments across the globe. I feel so relieved after filing for personal bankruptcy.<br/><br/>2/17/2022 文贵盖特：H-Pay将解放生产力，让人们拥有财务自由和人权；政府竟把人民的血汗钱变成威胁他们的工具，中共的开销是全世界政府花老百姓的钱的总和；文贵破产后感觉老轻松了
 ![img](https://media.gettr.com/group6/getter/2022/02/17/21/5f2fd3f5-17fd-20d3-b4b2-000a561863a3/out.jpg)
-
----
-
-`@miles 2/17/2022 9:37 PM (UTC)`
-
-2/17/2022 Miles Guo’s GETTR: The CCP virus rampages in the CCP-occupied Hong Kong, with the medical system collapsing and the Hong Kong police turning into Hong Kong Popo. Accomplices of the CCP atrocities in Xinjiang and Tibet will get their retribution. The fellow fighters have successfully promoted the Himalaya Pay in Japan, Brazil, Spain, and Russia, with the food chain business benefiting the most.<br/><br/>2/17/2022 文贵盖特：中共独占的香港病毒肆虐、医疗系统崩溃、警察成黑警；中共在新疆和西藏暴行的帮凶将遭到天谴；战友们在日本、巴西、西班牙和俄罗斯成功推广了喜支付，食品链获益匪浅<br/>
-![img](https://media.gettr.com/group5/getter/2022/02/17/21/258897ab-b9f8-420f-c13b-bd3612694fde/out.jpg)
-
----
-
-`@miles 2/17/2022 9:20 PM (UTC)`
-
-2/16/2022 Miles Guo: The Himalaya Exchange has become the fourth largest digital currency exchange. The Himalaya Coin is free from looting by third parties and is without borders, with only a limited number of Himalaya coins being issued each year. The Himalaya Exchange is the safest place to keep money in humanity. The bright future brought by the Himalaya Coin is yet to come.<br/><br/>2/16/2022 文贵直播：喜联储已跻身全球第四大数字货币交易所；喜币不受第三方掠夺、无国界限制且每年发行数量有限；喜联储是人类最安全的存钱之地；喜币开启的人类美好未来尚未开始<br/>
-![img](https://media.gettr.com/group37/getter/2022/02/17/21/01b528e5-1ac7-8341-453c-2ead82eab943/out.jpg)
-
----
-
-`@miles 2/17/2022 9:15 PM (UTC)`
-
-2/16/2022 Miles Guo: What is the real reason why Eileen Gu's two games were canceled a few days ago? The scandals of the CCP in the Winter Olympics have been frequently exposed, and the incident of Eileen Gu has crippled the CCP. As long as the Chinese people can distinguish the truth from the falsehood, the CCP, which is a paper tiger, can be destroyed in a few seconds.<br/><br/>2/16/2022 文贵直播：谷爱凌前几天的两场比赛被取消的真正原因是什么？中共冬奥会的丑闻频频曝光，谷爱凌的事件把中共打了个半死；只要中国人能辨真假善恶，中共这纸老虎分分钟玩完<br/>
-![img](https://media.gettr.com/group49/getter/2022/02/17/21/9af559db-dcbb-c5c6-6011-dcdcc0f98d67/out.jpg)
 
 ---
 

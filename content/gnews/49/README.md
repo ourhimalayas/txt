@@ -2,34 +2,34 @@
 ---
 
 
-## 中共数字人民币在冬奥会借机推广
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2031615/)
+## 樱花FM|美国誓言向印太地区投入更多资源抗衡中共国
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2031796/)
 
-作者：台灣寶島農場 – 尋文客
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-媒体2月15日报道，中共数字人民币推出以来，其交易总额仅约130亿美元，截至2021年6月30日，Visa 12个月交易总额 12.5万亿美元，对比之下，前者相形见绌。
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-6-4.png)
+美国星期五(2月11日) 发布《美国印太战略》的战略审议文件，誓言向印太地区投入更多资源抗衡中共国，中共试图在该地区建立势力范围并成为世界影响力最大国家。文件中说，美国将聚焦从南亚到太平洋诸岛的印太地区所有角落，以加强美国的地位和承诺。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/11-26.png)
+上周中俄两国发表最为详细和最为强势的联合声明，声称双方的战略合作“没有止境”。两国共同表示反对美国，并要按照他们自身对人权与民主的解读而打造国际新秩序。
 
-一位金融咨询公司董事在采访时评价，中共数字人民币“只是另一种法定货币，应该被私人货币、或至少是非建立在奴隶劳工和极权主义基础上的主权货币超越”。
+美国在这份文件中誓言要将联盟关系现代化，加强新兴的合作伙伴关系，并对地区性的组织进行投资。文件特别强调了“一个强大的印度”作为合作伙伴在一个积极的地区愿景中所发挥的重要作用。
 
-中共数字货币引发的争议，恰印证了郭文贵先生在直播中强调的，中共数字人民币的本质，是绝对中心化、掠夺财富的行政工具。
+在高度敏感的台湾问题上，这份文件说，华盛顿将与地区内外的伙伴合作，维护台湾海峡的和平与稳定。
 
-参考链接：
+这项行动计划还誓言扩大美国海岸警卫队在南亚、东南亚与太平洋的存在与合作。华盛顿认为，中共国威胁着这些海域的捕鱼和自由贸易线路。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
+“我们认识到我们改变中共的能力是有限的，因此试图塑造围绕中共的战略环境，”美国行政当局的一位高级官员对记者们说。他还说，这份文件并不包含拜登行政当局更广泛的中共国战略。
 
-总编：童谣
-编辑：静言
-校正/发稿：海阔天空1
+文字版原文：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[美国誓言向印太地区投入更多资源抗衡中共国](https://gnews.org/zh-hans/1993176/)
+
+编辑：东京樱花团/asket
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

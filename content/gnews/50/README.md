@@ -2,35 +2,26 @@
 ---
 
 
-## 苏格兰不再公布死亡病例中的接种状况
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2031594/)
+## 中日财经爆┃俄乌危机影响已波及谷物市场 食品价格上涨引人忧
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2031766/)
 
-作者：纽约香草山 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-2月16日，苏格兰公共卫生监督机构PHS在其最新的中共病毒统计报告中宣布，将不再细分死亡与住院病例的疫苗接种状况，数据将合并发布。
+撰稿人：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1802.png)[图片来源](https://www.nikkei.com/article/DGXZQOUB022380S2A200C2000000/)
+乌克兰的紧张局势正在蔓延到谷物市场。俄罗斯和乌克兰是小麦和玉米等谷物的主要出口国，而军事冲突无疑会扰乱这两国供应。虽然日本不从这两个国家采购，但市场很有可能出现上涨，这可能导致小麦进口和其他商品价格滞后上升。食品价格的进一步上涨也不可避免。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/9-19.jpg)
+小麦国际基准，美国芝加哥期货交易所的小麦期货价格目前处于每蒲式尔（约27公斤）7美元的高位，比去年高出约20%。价格在高位区间波动。除了气候因素外，乌克兰的局势也是价格上涨因素之一。
 
-分析人士指出，越来越多的数据证明中共病毒疫苗对奥密克戎并不起作用。自1月份多个国家卫生部门借口PCR核酸检测试剂盒供应不足，取消了确诊数据的公布之后，住院与死亡病例的疫苗接种状况也被取消，只能证明其中绝大多数病例是完全接种甚至加强接种的事实，使政府卫生部门忧心并试图掩盖。
+俄罗斯和乌克兰是小麦、大麦和玉米的主要出口国，俄罗斯是小麦的第一大出口国，约占20%，乌克兰是第四大玉米出口国，约占16%。主要客户是中东和非洲等水资源稀缺的地区，粮食只能依靠进口。一直是俄乌作为供应商的需求国，因为军事冲突而不得不转而从其他国家采购。这可能导致价格上涨，日本也不会不受影响。
 
-参考链接：
+日本国内90%的小麦需求依赖进口，主要来自北美和澳大利亚。进口小麦由政府采购并出售给面粉加工公司。政府出售价格每年审核两次，分别在4月和10月。而去年10月，与4月相比，价格上涨了19%，这反映了过去六个月国际价格的上涨。而这影响也会波及到面包和方便面等加工食品的价格。今年4月的整体价格调整反映了自去年9月以来的平均购买价格。乌克兰的局势已经给价格带来了上升的压力，未来影响尚不可预知。
 
-- [Anti-vaxxer concerns force removal of deaths by vaccine status data from Public Health Scotland reports](https://www.scotsman.com/health/coronavirus/anti-vaxxer-concerns-force-removal-of-deaths-by-vaccine-status-data-3571856)
+SMBC日兴证券公司的一位高级经济学家表示，即使没有数量短缺，地缘政治风险也会反弹影响市场。如果食品价格进一步上涨，将对民众生活产生巨大影响。可以说将引起食品安全供应问题。
 
+信息源：[ウクライナ危機、穀物相場　高騰の兆し　日本国内](https://news.yahoo.co.jp/articles/b050191c1cadb2ef76c4faad2ad9f5c21be3aa38)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
-
-总编：童谣
-编辑：Jack Li文阳
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,37 +2,19 @@
 ---
 
 
-## 以色列将废除中共病毒疫苗护照系统
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2031593/)
+## 拜登：确信俄罗斯会入侵乌克兰
+` GTV新聞訪談` [轉載自GNews](https://gnews.org/zh-hans/2031753/)
 
-作者：银河系农场 – 骄子
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-2月17日周四，以色列总理总理宣布，中共病毒感染病例每天持续下降，中共病毒疫苗接种证明的护照系统将会暂停使用。
+[撰稿日期]：2022.02.19
+[署名]：台湾宝岛农场\_阿尔道夫
+[新闻连接]：《https://www.epochtimes.com/b5/22/2/18/n13588112.htm》
+[正文]：
+据外媒报导，美国总统拜登在白宫就俄乌危机发表谈话时表示，俄罗斯军队可能“在未来一週内”採取行动。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/10-13.jpg)
+有记者随后追问说：“请说清楚一点，你确信普京总统要入侵乌克兰，这是你刚才说的吗？”拜登回答：“是。”
 
-据悉该护照系统称为绿色通行证，限制未完成接种至少三针疫苗的人们，进行大型集会和进入室内场所。在过去一年的大部分时间里，绿色通行证是以色列日常生活的必备品。
+在这些紧张的时刻，拜登继续呼吁，俄罗斯应避免一场“灾难性的、无谓的战争，现在回到谈判桌上还不算太晚”。
 
-在2020年，以色列与辉瑞达成协议，用医疗数据换取稳定的中共病毒疫苗供应后，迅速为大部分成年人口接种了疫苗。当前约48%人口已经接种了三针疫苗，全国72%的人口已经接种了至少一针。
-
-参考链接：
-
-- [Israel to scrap COVID passport system as omicron wanes](https://ktar.com/story/4893787/israel-to-scrap-covid-passport-system-as-omicron-wanes/amp/)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
-
-总编：童谣
-编辑：童谣
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
