@@ -2,8 +2,8 @@
 ---
 
 
-## 20220201文贵大直播：共产党年年办一场充斥着各种假恶丑的春晚
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2030612/)
+## 德国数以万计的反疫苗抗议变得更加激進
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2030780/)
 
 作者：东京樱花团视频小组
 
