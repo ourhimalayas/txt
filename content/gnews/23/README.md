@@ -2,8 +2,8 @@
 ---
 
 
-## 20220204文贵大直播：喜支付将有多种币可支付
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2029807/)
+## 20220204文贵大直播:冬奥会拿钱请人都不来，共产党彻底毁掉了中华民族！
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2029979/)
 
 作者：东京樱花团视频小组
 

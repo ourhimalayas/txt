@@ -2,8 +2,8 @@
 ---
 
 
-## 20220204-06文贵大直播: 普京大怒 抱怨中方连基本的保证都不能提供
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2029941/)
+## 20220204文贵大直播：PayPal FaceBook股价跌和我们HPay、Gettr没关系
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2030089/)
 
 作者：东京樱花团视频小组
 

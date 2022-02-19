@@ -2,8 +2,8 @@
 ---
 
 
-## 20220204文贵大直播:冬奥会拿钱请人都不来，共产党彻底毁掉了中华民族！
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2029979/)
+## 20220204文贵大直播：Hpay在国内而且只要有空气、量子、宇宙的地方都可以用
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2030124/)
 
 作者：东京樱花团视频小组
 
