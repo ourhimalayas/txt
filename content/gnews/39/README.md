@@ -2,36 +2,31 @@
 ---
 
 
-## 谷爱凌争议言论开始发酵
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2026085/)
+## 西班牙巴塞罗那喜悦农场Himalaya Pay推广追踪
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2026613/)
 
-作者：纽约香草山农场 – AT，银河系农场 – 骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在2月16日的大直播中，郭文贵先生透露了一份独家情报：中共为了平息谷爱凌的国籍问题和外界对中共一系列违规操作的争议，其以气候为由，取消了谷爱凌的两场最重要赛事。
+**作者：七叶之芒**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide4-9.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip西班牙巴塞罗那喜悦农场Himalaya-Pay推广追踪.png)
 
-郭先生解释到，谷爱凌早先在获得自由式女子大跳台项目金牌后表示，她在美国就是美国人，在中国就是中国人。但这一言论完全违背了中共面向全世界颁布的“只承认一个国籍”的法律，也是对整个世界的欺骗和愚弄。目前，谷爱凌事件在全球引起了强烈的反弹，一些政府表示，要对其进行彻底的调查。
+2021年2月14日，西班牙巴塞罗那喜悦农场Himalaya Pay推广工作正式起锚。西站战友在站长文戈七雄的带领下，“首航”当天就有7家商业实体加入Himalaya Pay支付系统。
 
-另一方面，多国运动员在冬奥会房间内发现了中共安装的隐藏摄像头，同时，中共勾兑、收买裁判的行为也有了确凿的证据。
+在西站Himalaya Pay推广团队战友们的不断努力下，截止至2月19日，共有17家商业实体已成功加入到Himalaya Pay支付系统中。
 
-郭先生指出，中共违背奥运精神、突破道德底线、违反法律的行为已经引发了多国运动员、政府及关注人士的愤怒。
+17家商业实体涉及到西班牙、德国、巴拿马、韩国等国家。囊括的行业包含了宠物粮食及零食、帆船租赁、酒店旅游、印刷、百货商超、大型餐馆、大型精品卖场、连锁加盟超市、内衣批发、食品、药品、化妆品等行业。其中，商家“Happy M.Q”是提供欧洲主要的宠物粮食及零食的供应商，该供应商的客户几乎遍及全球；大型精品卖场“At Home”,大型餐馆“M\_WOK”均属当地本行业的龙头企业；韩国企业“生长国际株式会社LOEPEL”的下属公司“生长国际”的韩国护肤品和化妆品产品在亚洲地区受到女性朋友的广泛青睐；“Playa Bluff Lounge&Restaurant”度假酒店坐落在巴拿马西北部城市博卡斯德尔托罗，位于加勒比海博卡斯德尔托罗群岛克隆岛，岛上风景迷人，是旅游度假的好去处；“Mi jovl”印刷厂，是西班牙首家加入Himalaya Pay支付系统的实体经济商家，位于西班牙瓦伦西亚的拉尔科拉市，印刷厂主对喜支付的系统产生了浓厚的兴趣，期待着Himalaya Pay 在全球的使用……
 
-参考链接：[https://www.gettr.com/post/pv68n2aea7](https://www.gettr.com/post/pv68n2aea7)
+西班牙巴塞罗那喜悦农场Himalaya Pay推广团队的“无敌战舰”已经启航，作为西站今年最重要的线下工作已经全面启动。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+静待西站团队的捷报再传。
 
-总编：Irene木木
-编辑：飞虹
-校正/发稿：谐趣园
+* * *
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+***审核：Bryan
+校对：信心满满
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-5.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

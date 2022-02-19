@@ -2,66 +2,34 @@
 ---
 
 
-## 俄罗斯刚刚炸毁乌克兰东部一条重要天然气管道
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2027179/)
+## 冻结资产：《紧急状态法》面临法庭诉讼
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2027414/)
 
-**参议员马可.卢比奥**： [#俄罗斯](https://twitter.com/hashtag/%E4%BF%84%E7%BD%97%E6%96%AF?src=hashtag_click) [#Russia](https://twitter.com/hashtag/Russia?src=hashtag_click) 刚刚炸毁了#乌克兰 [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hashtag_click) 东部的一条重要天然气管道，现在将错误地归咎于乌克兰军队。 他们的宣传机构在其发生几分钟后就开始传播它。 【转俄罗斯新闻网推文图片称：强力爆炸击中了乌克兰东部的另一个城市】
+#### 编译：Cran
 
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/02/16452259921.png)Image source: reuters.com
+加拿大：据2月18日BNN报道，业界人士称联邦政府的《紧急状态法》可能会让银行和其他金融机构陷入尴尬境地。它们将被迫对支持自由车队而涉嫌提供资金但尚未被正式起诉的账户持有者采取行动。加拿大银行已开始冻结一小部分相关账户。
 
+多伦多大学金融学教授，安德烈亚斯 · 帕克，(Andreas Park)，周三在接受采访时表示: “他们这样做不仅会引起人们的惊觉，还会使他们脑袋爆炸”。他认为加拿大人有参与经济的基本权利，但这些新规定阻断了最终由私营企业负责执法的正当程序。帕克补充道：“我们正在抓捕那些没有被指控犯罪的人，并以破产来威胁他们。我觉得这是暴民统治”。
 
-> [#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw) just blew up an important gas pipeline in Eastern [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) & will now falsely blame it on Ukrainian forces. And their propaganda outlets started spreading it just minutes after it happened. [pic.twitter.com/9bWrSvcQ0y](https://t.co/9bWrSvcQ0y)
-> — Marco Rubio (@marcorubio) [February 18, 2022](https://twitter.com/marcorubio/status/1494788172626202629?ref_src=twsrc%5Etfw)
+一名要求匿名的加拿大政府官员表示，紧急命令不适用于渥太华时间周二晚上9点之前发生的行动。因为从那时起，紧急状态规则才被公布在政府文件中。给卡车司机的大部分捐款都是在那之前捐赠的。大部分筹款，包括数千笔小额捐款以及一些较大的捐款，比如硅谷亿万富翁汤姆·西贝尔（Tom Siebel）捐赠的9万美元。
 
+西部大学银行学教授，斯蒂芬 · 威廉姆森（Stephen Williamson）对紧急情况法中概述的授权私营企业的规定将持续多久，表示担忧。“政府要求你相信，这是一个可怕的紧急情况，所以他们需要采取这种非常措施”。他说，问题是，你如何权衡额外法律强制执行的必要性，和可能造成的潜在错误或滥用。
 
+对谨慎的加拿大金融机构来说，他们如何对不触犯法律的客户来实施命令提出了疑问。这位隐名的政府官员说，这些命令确实要求银行查找参与支持封锁的客户姓名。但由于缺乏更明确的指导，这些公司一直不愿采取这一步骤。
 
-**美国国务院**： 国务卿布林肯[@SecBlinken](https://twitter.com/SecBlinken)：我们必须解决俄罗斯现在对 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click) 所做的事情……俄罗斯说它正在撤军。 我们却没有看到这种情况实地发生。
+据一位知情人士透露，银行正在调查或冻结加拿大皇家骑警提供的个人账户，但他们不愿对名单之外的任何人采取行动。在周四的新闻发布会上，财政部长克里斯蒂娅·弗里兰（Christia Freeland）证实一些账户已经被冻结。
 
-【附布林肯的讲话视频】
+紧急命令要求加拿大金融系统的几乎所有参与者—银行、投资公司、信用合作社、贷款公司、证券交易商、，筹款平台、支付和清算服务—确定它们是否拥有或参加非法抗议或向示威者提供物资的个人财产。条例规定，如果他们在客户名单中发现这样的人，他们必须冻结账户，并向加拿大皇家骑警或加拿大情报局报告。任何可疑交易也必须向该国反洗钱机构Fintrac报告。
 
+政府官员还强调，使用加密货币进行的任何可疑交易，尤其是超过1万美元的交易，也需要按照紧急情况法的要求，由交易平台或其他支付提供商报告。威廉姆森说，虽然加密货币市场内的交易通常是匿名进行的，但鉴于几乎所有零售交易都是使用加拿大元等法定货币进行的，任何加密货币转换为现金时，匿名性都会被剥。“任何进行抗议活动的人都必须用加元进行购买，”他说。“资金必须回到金融系统，然后这笔交易将被标记为可疑那么你就回到了原点”。
 
+加拿大银行家协会（CBA）发言人，马修·拉布雷什（Mathieu Labrèche）告诉BNN，加拿大的银行遵守所有法律法规，以帮助保护该国金融体系的完整性。他在一封电子邮件中说：“联邦紧急情况法案涵盖的所有金融服务提供商，包括银行，都需要认真执行政府在相应的紧急经济措施令中规定的必要措施，预计这些措施不会影响绝大多数客户”。
 
-> .[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw): We must address what Russia is doing right now to Ukraine…Russia says it’s drawing down forces. We do not see that happening on the ground. [pic.twitter.com/Gq0h1pI9xo](https://t.co/Gq0h1pI9xo)
-> — Department of State (@StateDept) [February 18, 2022](https://twitter.com/StateDept/status/1494703253786824707?ref_src=twsrc%5Etfw)
+加拿大公民自由协会执行主任诺亚·门德尔松·阿维夫（Noa Mendelsohn Aviv）表示，有关金融体系的紧急命令非常广泛，可能包括在命令生效后向抗议者提供几乎任何帮助的人。比如那些想给抗议者带咖啡人是否间接参与了？阿维夫在接受采访时说。“到目前为止，我对限制令的理解是，我还没有看到任何东西。它的范围非常广泛”。该组织向政府就紧急法提起了诉讼。
 
-
-
-**参议员马可.卢比奥**： 我们知道 [#普京](https://twitter.com/hashtag/%E6%99%AE%E4%BA%AC?src=hashtag_click) [#Putin](https://twitter.com/hashtag/Putin?src=hashtag_click) 在入侵 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click) [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hashtag_click) 之前会采取的每一步现在都已经发生了。 接下来的几天里，世界将发生很大变化。
-
-
-
-> Every single step we knew [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw) would take before invading [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) has now happened. 
-> 
-> The world is going to change a lot over the next few days.
-> — Marco Rubio (@marcorubio) [February 18, 2022](https://twitter.com/marcorubio/status/1494783604148383749?ref_src=twsrc%5Etfw)
-
-
-
-**参议员罗杰·马歇尔**: 当一些人迎合 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 和 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 时，球星埃内斯·坎特[@EnesFreedom](https://twitter.com/EnesFreedom) 发声了。 作为一名新的美国公民，他继续为自由而发声。 【附视频，马歇尔议员与埃内斯·坎特对谈，谈论为自由发声，谴责中共践踏人权】
-
-
-
-> While some pander to China & the CCP, [@EnesFreedom](https://twitter.com/EnesFreedom?ref_src=twsrc%5Etfw) speaks up. As a new American citizen, he continues to speak up on behalf of freedom. [pic.twitter.com/H1S03xryIO](https://t.co/H1S03xryIO)
-> — Dr. Roger Marshall (@RogerMarshallMD) [February 18, 2022](https://twitter.com/RogerMarshallMD/status/1494729488172789761?ref_src=twsrc%5Etfw)
-
-
-
-**参议员泰德·克鲁兹**： 随着在 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的奥运会的继续进行，每个美国人都应该说真话，大声谴责 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的种族灭绝。 【附视频，展示中共犯下的种族灭绝罪行，克鲁兹议员呼吁人们大声说出真相】
-
-
-
-> As the Olympics in China continue, every American should speak the truth and call out China’s genocide. [pic.twitter.com/uv5OOOftGH](https://t.co/uv5OOOftGH)
-> — Senator Ted Cruz (@SenTedCruz) [February 18, 2022](https://twitter.com/SenTedCruz/status/1494733694707322880?ref_src=twsrc%5Etfw)
-
-
-
-**美国国会中国委员会**： 令人失望的是，NBC体育没有报道 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的大规模人权侵犯，也没有报道奥委会新闻媒体为 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 政府提供了一个无批评的宣传平台的共谋。他们可以祝贺运动员和为全球观众提供关于冬奥会主办国的内容。 【转华盛顿邮报，NBC 几乎对中国在奥运报道中的侵犯人权行为保持沉默】
-
-
-
-> It is disappointing that [@NBCsports](https://twitter.com/NBCSports?ref_src=twsrc%5Etfw) has not covered massive human rights abuses in China or the [@iocmedia](https://twitter.com/iocmedia?ref_src=twsrc%5Etfw)'s complicity in giving the Chinese gov't a criticism-free platform for propaganda. They can celebrate athletes & give global viewers context about the [#Olympic](https://twitter.com/hashtag/Olympic?src=hash&amp;ref_src=twsrc%5Etfw) host country. [https://t.co/Ag1Zf6re2g](https://t.co/Ag1Zf6re2g)
-> — China Commission (@CECCgov) [February 18, 2022](https://twitter.com/CECCgov/status/1494669967282823171?ref_src=twsrc%5Etfw)
-
-
+Source: [1](https://www.bnnbloomberg.ca/banks-in-awkward-position-to-enforce-emergencies-act-experts-1.1724514) [2](https://www.bnnbloomberg.ca/emergency-law-faces-court-fight-as-banks-freeze-assets-1.1724898)
 
  
 

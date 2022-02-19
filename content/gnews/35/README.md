@@ -2,45 +2,68 @@
 ---
 
 
-## 从中共病毒到奥米克戎都是化学病
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2026668/)
+## Casino 集团强力入住虚拟世界元宇宙沙盒 (SAND)
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2027068/)
 
-**整理：清水冷香、HomeL
-编辑：Candy**
+译评：香草山商业部 — 文锤
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/02/直播.png)图片来源：墨尔本雅典娜设计组
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
 
-七哥：研究病毒的科学家告诉我，测试的准确率不会超过50%。会有效果，但不会超过50%。那我干嘛要去被50%给骗了呢？
 
-英喜农场老马分享：在刚刚得病（被感染）的时候，（检测的结果）准，两道杠；中间绝对不准。为什么这么讲呢？ 我到急诊去的时候，测试是阴性，几次都是阴性，到医院就是阳性，就是测试的问题。得了新冠后遗症就是动脉血栓，我这腿差一点没有了。我血压都到75，低压都57了，我的反应你知道。我录下来就是要给别人看，看一看新冠造成的后果。
 
-网名为神奇四侠、法图麦提问：新加坡政府对疫苗灾难刻意回避，是不是可以推断疫苗灾难已经来了？请问七哥，新加坡的疫苗政策进行到了什么阶段？ 何时有望解除？
 
-七哥：关于送葬，大卫兄弟（去中国驻英）大使馆已经给他们送过葬了，执行派辛苦！咱们全球农场做得非常好，感谢大卫，感谢英喜农场的所有兄弟姐妹们！让共产党享受享受吧，那就是他们的未来啊。
+在家乐福之后，轮到法国大型超市零售集团宣布它进入虚拟世界了。这个法国集团来到沙盒 (SAND) 虚拟世界以分发可在现实世界中使用的促销和优惠券。
 
-关于神奇四侠、法图麦，你们问的问题就是，今天为啥我们要谈疫苗？战友们千万千万记住：无知背后有很多因素。无知就是什么？无知就侥幸，侥幸就狡辩。坏人、无知的人，他一定是这样。无知、无能、狡辩、不诚实，还一定是懦弱。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/groupe-casino-metaverse-the-sandbox-sand.jpg)[图片来源](https://cryptoast.fr/groupe-casino-metaverse-the-sandbox-sand/)
 
-老马那一个月：我看到那个腿被拉开，缝多少针呐，那血流得一块儿一块儿的，你知道我没办法到现场。你想想他和卓玛是怎么度过了这一关的啊！老马这染上以后，差点把腿锯了。
+**可以在Leader Price超市赢取优惠券的游戏**
 
-告诉你基本的认知：现在的香港和新加坡，包括以色列，所有的这些根本原因是它打疫苗导致的，跟任何病毒没什么大关系。正常人都懂的，你都打了平均两针到三针疫苗了，新加坡都是四针了，你怎么还得病呢？ 多简单的道理嘛！就是疫苗导致你的身体免疫力低下，不用说冠状病毒来，双修一次你都嗝屁了。
+日前，法国零售巨头家乐福宣布[购买了沙盒世界（SAND）的虚拟地块](https://cryptoast-fr.translate.goog/carrefour-parcelle-terrain-metaverse-the-sandbox-sand/?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN)。如今，Casino 集团正在通过其房地产子公司大张旗鼓地进入元宇宙。
 
-你知道人一天是40亿细胞死亡，咱一个身体是40万亿细胞，40亿细胞换成新的，每天要换新的，不管你吃啥，你都是换新的，你吃点好的细胞就比较好，所以咱得吃点好的嘛，是吧，心情愉悦。换了当中纠偏的机制，如果你没有纠偏机制的话，它可能换成死了的细胞就换成癌症，就是换成坏细胞了。
+如果家乐福没有具体说明它打算在元宇宙中做什么，那么Casino集团已经公布了它的部分雄心壮志。
 
-纠偏机制就叫防疫功能、免疫功能。那你这个疫苗打进去了，40万亿打到身体里边，在你身体里运转，它还不死，关键它还不死啊！这40万亿呢，有人打了120万亿细胞！你觉得你们家里边本来就住三人，突然来了20个人，而且他还不吃不喝，他还不死不睡，你还能活吗？
+没有虚拟商店，而是一个采用了已在沙盒上找到的代码的游戏。它最初将保留给Casino 集团折扣品牌 Club Leader Price 的会员，他们将获得“黄金门票”。
 
-身体的免疫功能、纠偏功能没了，双修全身出汗，真的是要人命的双修。多少人能忍住双修啊？这不是开玩笑的。
+“我们于 2021 年底开始购买地块，但我们正在开展几个旨在提供客户体验的项目。我们采用工业方法。我们的目标是用这些新的虚拟资产创造价值，就像我们使用我们的真实资产一样。”Casino Immobilier 首席执行官 Nicolas Joly 在接受 Les Échos 采访时补充道。
 
-**参考来源：2.00.2.18文贵大直播**
+**Monoprix 和 Franprix 可以效仿 Leader Price 的例子**
 
-***发布：Candy***
+Casino集团开发的游戏目的很简单。在属于该组的元宇宙The SandBox的情节中，参与者将不得不从Club Leader Price的在线商店中搜索食物，以获得在现实世界中使用的代金券或折扣。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+该公司还在研究以不可替代代币（NFT）的形式实施奖励。
+
+为 Club Leader Price 会员准备的这款游戏将作为 Casino 集团的体验。如果它被证明是成功的，它应该将其他大型零售商，如 Monoprix 或 Franprix，带入元宇宙。
+
+**译者评**：鉴于喜马拉雅币即将被越来越多的人们所接受，Hpay凭借其瞬间交易功能和无手续费的巨大优势，可以甩其他加密货币几条街。在可预见的未来，虚拟世界一定是喜马拉雅币大显身手的领域。
+
+**原文链接：**
+
+**[Le groupe Casino débarque en force dans le metaverse The Sandbox (SAND) (cryptoast.fr)](https://cryptoast.fr/groupe-casino-metaverse-the-sandbox-sand/)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2月.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 

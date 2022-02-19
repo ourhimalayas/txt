@@ -2,50 +2,24 @@
 ---
 
 
-## 研究显示：TikTok可以绕过苹果和谷歌的隐私保护获取用户数据
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2026982/)
+## 喜币场外交易额和喜联储KYC量再创新高
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2027153/)
 
-作者：纽约香草山农场 – 四季
+加拿大温哥华扬帆农场    平民正道
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+据2月17日盖特最新消息，随着中共国乃至世界经济和金融秩序的失控崩乱，在文贵先生个人宣布破产当天，喜币的场外交易额和喜联储的KYC申请量均到达上市后的最高值。
 
+目前，在饱受疫情恶化和中共黑警的双重蹂躏下，香港不仅已可悲沦为全世界外来投资最不安全的地方，而且原有的种族文化和谐已被中共流氓政权破坏殆尽。因此更加凸显灭共是正义的必须。
 
+此外，锁链女作为中共当年残酷劫掠西藏参与者的女儿，其如今的悲惨遭遇，无不淋漓体现出天意循环的现世报应。而不相信神灵，不辨善恶的共产党员将必遭此劫。
 
+同时，喜支付的发展突飞猛进，包括在日本食品供销链中的推广，在巴西和俄罗斯巨额金矿交易中的应用，还有在欧洲的家具和服装行业，都因为喜支付的安全快捷和零费用而被各行各业迅速认可并广泛接受。
 
+文贵先生最后表示，在经历过艰难生死和非凡财富之后，其个人破产更加让他轻松和快乐，并将加速让战友们拥有更多自由财富的进程。
 
-据[布莱特巴特新闻网](https://www.breitbart.com/tech/2022/02/16/study-chinas-tiktok-can-bypass-apple-and-google-privacy-protections-access-user-data/)2月16日报道，最近的两项研究显示，中共拥有的社交媒体TikTok可以绕过苹果和谷歌应用商店的安全保护措施，获得对用户数据的全面访问权限。
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/China-computers-640x480-1.jpg)Dmitry Nogaev/Getty Images
-
-这些研究是由 “白帽子”网络安全专家分别于2020年11月和2021年1月完成的。
-
-研究摘要表明，TikTok能够绕过苹果和谷歌应用商店的代码审计，并能够在用户不知情的情况下更改应用程序的行为、访问设备跟踪功能，使中共国公司和第三方能够访问完整的用户数据。
-
-网络安全公司Conquest Cyber表示，这远远超过了Facebook和Twitter等美国制造的应用程序对用户数据的访问权限。这些动态属性允许TikTok在应用程序可以看到的范围内全权访问您的设备。TikTok浏览器不仅可以访问从网络到设备的转换，而且还可以查询设备本身的内容。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2月.jpg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+编辑： 平民正道    发布：平民正道
 
  
 
