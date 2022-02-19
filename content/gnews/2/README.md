@@ -2,8 +2,8 @@
 ---
 
 
-## 20220201文贵大直播：共产党年年办一场充斥着各种假恶丑的春晚
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2030612/)
+## 20220131文贵大直播：爆料革命战友为了救人卖了两亿只假疫苗
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2030716/)
 
 作者：东京樱花团视频小组
 

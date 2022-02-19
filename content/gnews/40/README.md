@@ -2,28 +2,24 @@
 ---
 
 
-## 德州起诉脸书非法使用面部识别
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2029529/)
+## 《紧急状态法》不能阻止加拿大卡车司机
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2029528/)
 
-作者：纽约香草山农场 007
+作者：纽约磐石农场-在远方
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月14日，据当地媒体消息显示，美国德克萨斯州总检察长已经提起了对脸书的诉讼，指控其利用面部识别技术秘密地收集和使用数百万德克萨斯民众的生物特征数据并非法谋利。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-19-上午2.49.05.png)
-起诉书称，在未经用户同意的情况下，脸书从照片和视频中数十亿次地捕获用户的生物特征数据，并且将这些信息披露给他人。此外，脸书也未能在合理的时间内销毁相关数据。
+2月17日，据郭文贵先生在盖特平台上转发的一则视频显示，那些反对中共病毒疫苗强制接种政策的加拿大卡车司机强调，他们将坚持到底，直到重获自由。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-19-上午2.48.59.png)
+据悉，《紧急状态法》从未在加拿大现行法律框架内使用过，其原因在于，它赋予了联邦政府广泛的权力，包括为地方警察提供联邦执法的资源。此外，该法案还让加拿大银行无需授权就可以冻结任何参与此次道路封锁以及该活动资助者的银行账户，同时，银行还可以暂停参加抗议的卡车司机的保险。更甚者，众筹网站被该法案禁止继续为这些卡车司机募集捐款，至于经筹集的数百万美元则全部被冻结。
 
-起诉书指出，脸书明知这一行为违反了德克萨斯州的隐私保护法律，但其仍旧以牺牲个人安全和福祉为代价，利用用户的个人隐私信息发展其社交媒体帝国，并以此获得历史性暴利——这是大型科技公司欺骗性商业行为的又一实例，而它必须被停止。
+目前，渥太华地区的卡车司机人数还在增加。而这些卡车司机表示，《紧急状态法》不能阻止他们，暂停他们的保险也没有任何作用，唯一能说服他们离开的，就是他们重新获得权利和自由。
 
-资料显示，脸书的面部识别项目自2010年起一直执行到2021年11月。此前，脸书曾在2020年以6.5亿美元的赔偿，和解了伊利诺伊州就该项目提出的诉讼。而此次德克萨斯州的起诉则将寻求对脸书数千亿美元的民事处罚。
-
-参考链接：
-1）[Pax­ton Sues Face­book for Using Unau­tho­rized Bio­met­ric Data](https://www.texasattorneygeneral.gov/news/releases/paxton-sues-facebook-using-unauthorized-biometric-data)
-2）[Texas sues Meta over Facebook’s past facial recognition practices](https://appleinsider.com/articles/22/02/14/texas-sues-meta-over-facebooks-past-facial-recognition-practices)
+参考链接：[https://www.gettr.com/post/puzpgw4922](https://www.gettr.com/post/puzpgw4922)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
 总编：Irene木木
-编辑：Irene木木
-审核：Irene木木
+编辑：Lakeman文仁
+审核：飞虹
 校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**

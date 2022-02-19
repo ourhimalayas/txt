@@ -2,94 +2,29 @@
 ---
 
 
-## 喜支付生下来就是改变世界的
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2030616/)
+## 大直播后记：七哥谈乌克兰与俄罗斯
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2030756/)
 
-[https://gtv.org/video/id=6210c1b22403672096ac5311](https://gtv.org/video/id=6210c1b22403672096ac5311)
+整理：Miles Sun、Ghope
+编辑：Sadhu
 
-HPay now like a fetus in the
-mother’s womb has not come out yet
-喜支付 现在它是什么 真的还在娘胎里没出来呢
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/JV4_5ME01ZG_5LC@60.png)图片来源：墨尔本雅典娜农场设计组
 
-The commercial launch of this
-point-to-point payment feature
-有了喜支付商业化推出的这个 点到点(支付功能)
 
-is just the first step
-只是第一步
+七哥：我大概是在11、12岁之后，破处之前，我都有虱子， 破处的那一年后就没虱子了，以后走上江湖，就到处洗澡了。现在的中国人到处都是虱子，好不好？ 现在的中国人到处都是虱子，好不好？ 人家怎么不说你是脏臭呢？ 我跟你讲，俄罗斯人在乌克兰身上，你看到乌克兰的美女，你看看中国人到乌克兰嫖美女去，是个人都去嫖美女去，乌克兰跟日本一样，就是最希望不要被中国男人给嫖。后来整个明斯克协议就是所谓的，就是你要属于欧洲是吗？ 它本来属于苏联的，你不要把接受加入欧洲，让欧洲把武器布在你的领土上，我就不打你。就像微蓝和小seven离婚了，是吧？ 微蓝说，你只要别再娶新媳妇，咱俩就不打。 然后小seven说，小福利，你只要别有男朋友咱俩就不掐是吧？ 现在是乌克兰明斯克协议，现在乌克兰说我要有女朋友了，我要结婚啊， 跟欧洲结婚。 普京说那我就揍你了。 普京揍他是对的，在法理上，因为明斯克协议说好的你不能嫁人，我也不收拾你。你嫁人了，我就可以揍你，这里边有2个问题文化和利益的问题。 乌克兰当年是所有的前苏联导弹，大飞机，大运输机，大型坦克重点的将近是核心的军事技术，全在乌克兰。你没去过基辅，没有去乌克兰，你谈乌克兰，说你们真的觉得你就是个傻 子一样，你到了这个地方，你会发现这个地方，人是太漂亮了。他们太会生活了，他为啥在 二战的时候造出这么多大飞机大炮出来？这苏联这老 毛 子跟中国中国人不是一个级别的就。但是就是生活上意志上身体上技能上精神上文化上，就人那乌克兰吃完饭人家穿得咔咔咔，那跳舞啪啪那跳，这晃的就是让你觉得浑身就根本就不行了。这是吃牛油的问题吗？ 就是人家那咔咔咔咔就那跳一直跳两三个小时，小孩给你跳，她就这么跳，弄得你就热血膨胀，啥事抓耳挠腮就是，真的是那会儿就想双修。你知道吗？  然后精神错乱，只看裤腰带以下，你就没啥看的了，眼睛都慌了，这还了得了是吧？ 就你冷静不了。就是你每天晚上都能兴奋这个两三个小时。 哇塞，人家这人长得好，你穿那个衣裳，人家那女孩拖着人家的内裤，人家都是那自己拿针缝的，那棉的带边儿的，对不起啊，这暴露了我这没少看了，就是发现人家那儿像咱们中国人，内裤都是那个什么肉皮色的，化纤的，就是人家那女孩的内裤都是那带边边的啊，都好看的不得了，人家很在乎穿，人家指甲修的，脚指甲修的。
 
-You only heard the sound of screaming
-but not yet born
-你只听到了叫声 还没有生下来呢
+咱们中国人恨不得一年都不剪一次，脚指甲都带钩了，是吧？ 都是泥里边那脚指甲呢，都可以种花了啊，你就跟人家不是一个段落。
 
-When HPay reaches more people
-around the world
-(当)喜支付 在全世界接触人多
+资料来源：[2022年2月16日 文贵大直播](https://gettr.com/streaming/ptgw8b5f32)
 
-and financial institutions involved
-有金融机构接触的时候
+*发布：tianzhihuan*
 
-It’s like a fetus showing its head
-then HPAY start to be born
-(胎儿才算是)露头了 这个喜支付(就)开始往下生了
-
-Then there are national sovereign
-institutions, just one!
-然后有国家主权机构 只要一个
-
-even a small country like Malta
-哪怕是马耳他
-
-Nigeria ,North Korea
-哪怕是尼日利亚 北朝鲜
-
-says I accept HCoin to my country
-to be uesed and invest in it
-说我接受喜币到我这使用 然后呢我投资了
-
-Brothers and sisters！
-this child is born
-兄弟姐妹们 孩子露头生出来了
-
-At that time, you can cheer
-那个时候你们可以狂呼了
-Because it was born with the mission
-to change the world
-因为它生下来 就是(来)改变这个世界的
-
-You must remember to cooperate well
-with the farms to do everything well
-你们一定要记住 配合好农场做好一切事情
-
-You can tell everyone
-你告诉所有的人
-
-that if any merchant accepts Hpay
-如果他们任何商家 接受喜支付的
-
-if they can’t get the money paid with
-HPay,Miles Guo takes full responsibility
-他们拿不到(用喜支付交易的)钱 七哥负全部责任
-
-* * *
-
-Date:2022/02/19
-原视频标题: Hpay was born to change the world
-喜支付生下来就是改变世界的
-原视频日期：2022/01/27
-原视频链接
-任务编号：LP005
-视频时间段 : 0:00-02：05
-英听校：洛杉矶盘古农场 – 庚子
-翻译：洛杉矶盘古农场 – 庚子
-翻译终校：洛杉矶盘古农场 – 银龙
-字幕+视频制作：洛杉矶盘古农场-庚子
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
