@@ -2,8 +2,8 @@
 ---
 
 
-## 20220206文贵大直播：不允许以新中国联邦的名义参加任何国家的抗议和政治活动
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2029573/)
+## 20220206文贵大直播：全世界只有共产党放开让外国人玩弄中国老百姓还受法律保护！
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2029647/)
 
 作者：东京樱花团视频小组
 
@@ -18,7 +18,7 @@
 编辑发布：东京樱花团视频小组
 
 * * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-4.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
