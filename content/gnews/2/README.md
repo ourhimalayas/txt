@@ -2,86 +2,22 @@
 ---
 
 
-## 不屈
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2032100/)
+## 樱花FM|日美韩三国外长在夏威夷会晤，讨论威慑朝鲜问题
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2032141/)
 
-作者： 纽约香草山农场教育部 – 蓝之灵(Hortensia)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_2143.jpg)
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-12-1.png)
+2月13日共同通信社消息：日本时间13日上午，日本外相林芳正在夏威夷檀香山会见了美国国务卿詹姆斯·布林肯和韩国外长郑义溶。确认了三国之间在阻止朝鲜今年发射一系列弹道导弹的措施方面进行合作的重要性。三位外长在联合新闻发布会上宣布，林先生在解决朝鲜绑架日本国民的问题上寻求理解和合作，并得到了支持。
 
-你的暴政
+在新闻发布会上，布林肯先生宣称：”我们讨论了深化日本、美国和韩国三国之间合作的措施，以遏制朝鲜。”郑义溶谴责朝鲜发射弹道导弹“令人遗憾”，并强调对话和外交才是可选之路。
 
-重于我体重
+文字版原文：[日美韩三国外长在夏威夷会晤，讨论威慑朝鲜问题](https://gnews.org/zh-hans/1998318/)
 
-枪托打歪腿和筋
+编辑：东京樱花团/asket
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
-雪地冰凉
 
-渗透血与肉
-
-我胸中怒火
-
-已然熊熊
-
-燃烧这腐败
-
-燃烧这腐烂
-
-给世界从新
-
-清与明
-
-我歪曲膝盖
-
-绝不会歪曲心中之灵
-
-追求爱与公平
-
-对抗这暴政
-
-灭了我肉体
-
-灭不了我魂灵
-
-暴政，暴政
-
-是你死亡坟墓之门
-
-遥看着
-
-审判台上
-
-绳索勾魂
-
-你肮脏躯体
-
-会挂在上面
-
-并且
-
-刻画耻辱二字
-
-烙印你灵魂
-
-暴政，暴政
-
-是你死亡坟墓之门
-
-刻画耻辱二字
-
-烙印你灵魂
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
-
-审核/编辑/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

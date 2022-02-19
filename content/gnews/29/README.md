@@ -2,28 +2,26 @@
 ---
 
 
-## 视频|以色列将废除中共病毒疫苗护照系统
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2031626/)
+## 中日财经爆┃俄乌危机影响已波及谷物市场 食品价格上涨引人忧
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2031766/)
 
-制作：香草山视频部
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月17日周四，以色列总理总理宣布，中共病毒感染病例每天持续下降，中共病毒疫苗接种证明的护照系统将会暂停使用。
+撰稿人：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1802.png)[图片来源](https://www.nikkei.com/article/DGXZQOUB022380S2A200C2000000/)
+乌克兰的紧张局势正在蔓延到谷物市场。俄罗斯和乌克兰是小麦和玉米等谷物的主要出口国，而军事冲突无疑会扰乱这两国供应。虽然日本不从这两个国家采购，但市场很有可能出现上涨，这可能导致小麦进口和其他商品价格滞后上升。食品价格的进一步上涨也不可避免。
 
-据悉该护照系统称为绿色通行证，限制未完成接种至少三针疫苗的人们，进行大型集会和进入室内场所。在过去一年的大部分时间里，绿色通行证是以色列日常生活的必备品。
+小麦国际基准，美国芝加哥期货交易所的小麦期货价格目前处于每蒲式尔（约27公斤）7美元的高位，比去年高出约20%。价格在高位区间波动。除了气候因素外，乌克兰的局势也是价格上涨因素之一。
 
-在2020年，以色列与辉瑞达成协议，用医疗数据换取稳定的中共病毒疫苗供应后，迅速为大部分成年人口接种了疫苗。当前约48%人口已经接种了三针疫苗，全国72%的人口已经接种了至少一针。
+俄罗斯和乌克兰是小麦、大麦和玉米的主要出口国，俄罗斯是小麦的第一大出口国，约占20%，乌克兰是第四大玉米出口国，约占16%。主要客户是中东和非洲等水资源稀缺的地区，粮食只能依靠进口。一直是俄乌作为供应商的需求国，因为军事冲突而不得不转而从其他国家采购。这可能导致价格上涨，日本也不会不受影响。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+日本国内90%的小麦需求依赖进口，主要来自北美和澳大利亚。进口小麦由政府采购并出售给面粉加工公司。政府出售价格每年审核两次，分别在4月和10月。而去年10月，与4月相比，价格上涨了19%，这反映了过去六个月国际价格的上涨。而这影响也会波及到面包和方便面等加工食品的价格。今年4月的整体价格调整反映了自去年9月以来的平均购买价格。乌克兰的局势已经给价格带来了上升的压力，未来影响尚不可预知。
 
-校正/发稿：呼吸的雾霾（文小呼吸）
+SMBC日兴证券公司的一位高级经济学家表示，即使没有数量短缺，地缘政治风险也会反弹影响市场。如果食品价格进一步上涨，将对民众生活产生巨大影响。可以说将引起食品安全供应问题。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+信息源：[ウクライナ危機、穀物相場　高騰の兆し　日本国内](https://news.yahoo.co.jp/articles/b050191c1cadb2ef76c4faad2ad9f5c21be3aa38)
+
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
