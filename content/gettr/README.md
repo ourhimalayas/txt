@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/19/2022 6:31 PM (UTC)`
+
+2月19号：新中国联邦的爆二代的气质，长相．正义的形象无可比拟！ <br/><br/>拜托，大家一定要看今天的真人真事太棒了。<br/><br/>https://gtv.org/broadcast/watch/62110d41b706176dd78d61f2
+![img](https://media.gettr.com/group9/getter/2022/02/19/18/926773cd-ea4c-a1c7-1367-2f1a709a3095/out.jpg)
+
+---
+
 `@miles 2/19/2022 2:23 PM (UTC)`
 
 2月19号：尊敬的战友们好！锁链女灾难的事件！正在国内国际上<br/>正在发酵中，中共国犯罪集团的本质……越来越清楚地被世界认知……共产党己成为全人类的公敌！必须彻底的被消灭！
@@ -147,13 +154,6 @@ Live, Love, & Laugh ❤️
 
 2/16/2022 Miles Guo: What is the real reason why Eileen Gu's two games were canceled a few days ago? The scandals of the CCP in the Winter Olympics have been frequently exposed, and the incident of Eileen Gu has crippled the CCP. As long as the Chinese people can distinguish the truth from the falsehood, the CCP, which is a paper tiger, can be destroyed in a few seconds.<br/><br/>2/16/2022 文贵直播：谷爱凌前几天的两场比赛被取消的真正原因是什么？中共冬奥会的丑闻频频曝光，谷爱凌的事件把中共打了个半死；只要中国人能辨真假善恶，中共这纸老虎分分钟玩完<br/>
 ![img](https://media.gettr.com/group49/getter/2022/02/17/21/9af559db-dcbb-c5c6-6011-dcdcc0f98d67/out.jpg)
-
----
-
-`@miles 2/17/2022 9:11 PM (UTC)`
-
-2/16/2022 Miles Guo: My bankruptcy is of great significance, while no one in the world can go bankrupt like I did. The CCP’s running dogs, Changpeng Zhao and Weijian Shan, are certainly going to end up miserable. Although I don't own a single Himalaya Coin, I managed to make so many fellow fighters rich by using my wisdom. What a magnificent and powerful act it is!<br/><br/>2/16/2022 文贵直播：文贵破产意义重大，而世界上却没人能像文贵一样破产；中共走狗赵长鹏和单伟建下场一定很惨；文贵没有一个喜币，却用智慧让这么多战友有钱，这是多么伟大的举动<br/>
-![img](https://media.gettr.com/group20/getter/2022/02/17/21/3fb30844-bfbb-fedb-37d1-6a3ada3d8431/out.jpg)
 
 ---
 

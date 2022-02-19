@@ -2,30 +2,34 @@
 ---
 
 
-## 五角大楼：拟增加稀土和锂的库存以减少对中共国的依赖
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2032872/)
+## 有声|香港中共病毒形势失控
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2032879/)
 
-**撰稿：日本东京方舟农场 子辰**
+配音：香草山巡管部– 文凯琳
 
-大纪元2月19日援引路透社报道，据两位知情人士透露，五角大楼计划增加对稀土矿物以及钴和锂的库存，以减少对中共国的依赖。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/五角大楼-2.png)（图片来自大纪元）
-稀土是17种金属矿物的统称，经过加工后，可用于制造电动汽车、武器装备和电子产品中的磁铁。自二战以来，美国军事科学家开发了最广泛使用的稀土磁铁类型，稀土常被用于制造永久强力磁铁，以及新一代武器研究，例如洛克希德·马丁公司的F-35喷气机和雷神公司的精确制导弹药等。据了解在过去30年里，中共国已逐步控制了整个稀土产业。
 
-锂通常是用于制造电动车电池的关键元素，它对达成五角大楼非战术车辆零排放的目标至关重要。
 
-据消息人士表示，新的库存协议指南预计最快将于下周公布，此前国务院、能源部和国防部在2月初签署了一项备忘录，其中涵盖了指定增加库存的材料，以及电网中使用的大型电池。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-该备忘录还指示各机构，必须相互协调，掌握过渡到使用更多清净能源所需的非燃料矿物。
 
-据悉，虽然锂资源在美国比较丰富，但目前只有坐落在内华达州银峰的雅宝（Albemarle Corporation）矿山正在开采，且美国对这种矿物的加工能力非常有限，在稀土的生产过程还会产生大量污染，这也是它在美国越来越不受欢迎的部分原因。
 
-参考链接：
-[https://www.epochtimes.com/b5/22/2/19/n13588884.htm](https://www.epochtimes.com/b5/22/2/19/n13588884.htm)
+据[布赖特巴特新闻网](https://www.breitbart.com/asia/2022/02/16/hong-kong-coronavirus-situation-out-of-control-under-chinese-rule/)2月16日报道，香港当地新闻媒体Coconuts Hong Kong周二称，香港目前正面临着最严重的中共病毒爆发，同时也受到政府当局中亲中共势力的日益统治。
 
-素材采编：子辰
-编辑：老孙
-发布：爱放飞
+数以千计的感染者在家中等待被送入医院或其他隔离设施. 香港卫生当局2月14日检测到创纪录的中共冠状病毒新病例，有2071名新的感染者被确认，这是连续第四天出现四位数的病例。
 
+文字版原文：[香港中共病毒形势失控](https://gnews.org/zh-hans/2026808/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
