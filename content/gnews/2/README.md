@@ -2,39 +2,86 @@
 ---
 
 
-## DC每日热点0219
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2031996/)
+## 不屈
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2032100/)
 
-编辑：楚门门
-![](https://assets.gnews.org/wp-content/uploads/2022/02/54B3E96C-FD37-4E14-9934-C83DC7CCEB83-scaled.jpeg)
-道琼斯指数 34079.18 ▼0.68%
-纳斯达克指数 13548.07 ▼1.23%
-WTI纽约原油CFD 90.575▲0.59%
-布伦特原油CFD 93.664 ▲0.13%
-标普50指数 2,802.58▼55.64%
-美元兑人民币 1USD=6.325 RMB
-美元兑港币 1USD=7.799 HKD
-国际黄金 1899.20美元/盎司
-全球CCP病毒感染人数422,676,421例
+作者： 纽约香草山农场教育部 – 蓝之灵(Hortensia)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_2143.jpg)
 
-1、香港疫情仍在失控 19日感染病例再创新高，感染人数至少7000例
-2、拜登相信普京已决定入侵乌克兰
-3、台湾抨击中共国利用冬奥会进行“政治宣传”
-4、中共国制定五年太空商业和科学计划
-5、奥委会主席巴赫重申政治中立 中共国官媒要其为冬奥打分
-6、爱沙尼亚情报机构发表报告公开批评北京进行胁迫外交
-7、美国防部长奥斯汀与俄罗斯防长通话 呼吁减缓乌克兰危机
-8、爱彼迎(Airbnb)不顾人权组织批评继续在西藏和新疆开展业务
-9、加拿大警方开始逮捕反对新冠疫苗强制令的抗议者
-10、香港特首选举因疫情严峻押后5月8日举行 林郑月娥未回应是否争连
-11、台湾解除福岛食品进口禁令后，日本提议重启日台经济伙伴委员会
-12、中共国最大天然气供应商土库曼斯坦开始父子权力接班
-13、美将向波兰提供王牌主战坦克抗衡俄罗斯威胁
-14、瑞典国会外交政策辩论台湾获跨党派支持
-15、美国白宫：如果俄罗斯进攻乌克兰 北溪2号管道将不会投入运营
-16、日外相赶赴德国慕尼黑出席七国集团外长会议
-17、俄罗斯和中共国要求G20财长公报淡化地缘政治危机威胁经济的主张
+你的暴政
 
+重于我体重
+
+枪托打歪腿和筋
+
+雪地冰凉
+
+渗透血与肉
+
+我胸中怒火
+
+已然熊熊
+
+燃烧这腐败
+
+燃烧这腐烂
+
+给世界从新
+
+清与明
+
+我歪曲膝盖
+
+绝不会歪曲心中之灵
+
+追求爱与公平
+
+对抗这暴政
+
+灭了我肉体
+
+灭不了我魂灵
+
+暴政，暴政
+
+是你死亡坟墓之门
+
+遥看着
+
+审判台上
+
+绳索勾魂
+
+你肮脏躯体
+
+会挂在上面
+
+并且
+
+刻画耻辱二字
+
+烙印你灵魂
+
+暴政，暴政
+
+是你死亡坟墓之门
+
+刻画耻辱二字
+
+烙印你灵魂
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+
+审核/编辑/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

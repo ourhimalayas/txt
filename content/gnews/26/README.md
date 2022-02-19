@@ -2,30 +2,19 @@
 ---
 
 
-## 视频|美司法部及FBI宣布组建数字货币执法团队
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2031624/)
+## 拜登：确信俄罗斯会入侵乌克兰
+` GTV新聞訪談` [轉載自GNews](https://gnews.org/zh-hans/2031753/)
 
-制作：香草山视频部
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月17日，美国司法部DOJ宣布，已经任命了一位检察官领导新组建的国家加密货币执法团队。同时，联邦调查局FBI正在启动一个区块链分析和虚拟资产部门。
+[撰稿日期]：2022.02.19
+[署名]：台湾宝岛农场\_阿尔道夫
+[新闻连接]：《https://www.epochtimes.com/b5/22/2/18/n13588112.htm》
+[正文]：
+据外媒报导，美国总统拜登在白宫就俄乌危机发表谈话时表示，俄罗斯军队可能“在未来一週内”採取行动。
 
-此前，司法部副部长丽莎·摩纳哥在一次网络安全会议上指出，检察官崔恩英将领导司法部这一加密货币执法团队。崔恩英曾主导起诉俄罗斯黑客窃取8000多万摩根大通客户信息的案件。
+有记者随后追问说：“请说清楚一点，你确信普京总统要入侵乌克兰，这是你刚才说的吗？”拜登回答：“是。”
 
-而FBI “虚拟资产”部门的成立是在司法部有史以来最大的金融扣押行动后进行的。本月早些时候，它指控一对纽约夫妇涉嫌洗钱，涉及的比特币现在价值超过45亿美元，在2016年数字货币交易所Bitfinex的黑客攻击中被盗。
+在这些紧张的时刻，拜登继续呼吁，俄罗斯应避免一场“灾难性的、无谓的战争，现在回到谈判桌上还不算太晚”。
 
-去年美国最大的燃料管道网络和世界上最大的牛肉供应商遭到一系列疯狂的网络攻击，勒索软件作案团伙经常要求以比特币支付其赎金。因此，拜登政府执政下的美国监管机构一直在加强对加密货币行业的审查。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
-
-发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,28 +2,34 @@
 ---
 
 
-## 视频|以色列将废除中共病毒疫苗护照系统
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2031626/)
+## 樱花FM|美国誓言向印太地区投入更多资源抗衡中共国
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2031796/)
 
-制作：香草山视频部
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月17日周四，以色列总理总理宣布，中共病毒感染病例每天持续下降，中共病毒疫苗接种证明的护照系统将会暂停使用。
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-6-4.png)
+美国星期五(2月11日) 发布《美国印太战略》的战略审议文件，誓言向印太地区投入更多资源抗衡中共国，中共试图在该地区建立势力范围并成为世界影响力最大国家。文件中说，美国将聚焦从南亚到太平洋诸岛的印太地区所有角落，以加强美国的地位和承诺。
 
-据悉该护照系统称为绿色通行证，限制未完成接种至少三针疫苗的人们，进行大型集会和进入室内场所。在过去一年的大部分时间里，绿色通行证是以色列日常生活的必备品。
+上周中俄两国发表最为详细和最为强势的联合声明，声称双方的战略合作“没有止境”。两国共同表示反对美国，并要按照他们自身对人权与民主的解读而打造国际新秩序。
 
-在2020年，以色列与辉瑞达成协议，用医疗数据换取稳定的中共病毒疫苗供应后，迅速为大部分成年人口接种了疫苗。当前约48%人口已经接种了三针疫苗，全国72%的人口已经接种了至少一针。
+美国在这份文件中誓言要将联盟关系现代化，加强新兴的合作伙伴关系，并对地区性的组织进行投资。文件特别强调了“一个强大的印度”作为合作伙伴在一个积极的地区愿景中所发挥的重要作用。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+在高度敏感的台湾问题上，这份文件说，华盛顿将与地区内外的伙伴合作，维护台湾海峡的和平与稳定。
 
-校正/发稿：呼吸的雾霾（文小呼吸）
+这项行动计划还誓言扩大美国海岸警卫队在南亚、东南亚与太平洋的存在与合作。华盛顿认为，中共国威胁着这些海域的捕鱼和自由贸易线路。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+“我们认识到我们改变中共的能力是有限的，因此试图塑造围绕中共的战略环境，”美国行政当局的一位高级官员对记者们说。他还说，这份文件并不包含拜登行政当局更广泛的中共国战略。
+
+文字版原文：
+
+[美国誓言向印太地区投入更多资源抗衡中共国](https://gnews.org/zh-hans/1993176/)
+
+编辑：东京樱花团/asket
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

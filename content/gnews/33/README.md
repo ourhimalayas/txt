@@ -2,28 +2,29 @@
 ---
 
 
-## 以色列将废除中共病毒疫苗护照系统
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2031593/)
+## 俄乌关系紧张之际，美国向德国部署F35战机
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2031595/)
 
 作者：银河系农场 – 骄子
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-2月17日周四，以色列总理总理宣布，中共病毒感染病例每天持续下降，中共病毒疫苗接种证明的护照系统将会暂停使用。
+2月16日美国空军预备役司令部AFRC在一份声明中宣布，美国向德国部署了战斗机。此次部署得到了德国政府的充分合作。美国认为此举加强了对北约盟国战争防御的支持。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/10-13.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8-27.jpg)
 
-据悉该护照系统称为绿色通行证，限制未完成接种至少三针疫苗的人们，进行大型集会和进入室内场所。在过去一年的大部分时间里，绿色通行证是以色列日常生活的必备品。
+本次抵达德国斯潘达乐母空军基地的，包含美军若干架F35战斗机，以及现役和后备役战斗机联队飞行员、维护人员和辅助人员；此外，还有8架F15E战斗机和六架加油机。
 
-在2020年，以色列与辉瑞达成协议，用医疗数据换取稳定的中共病毒疫苗供应后，迅速为大部分成年人口接种了疫苗。当前约48%人口已经接种了三针疫苗，全国72%的人口已经接种了至少一针。
+本月早些时候，因俄罗斯即将入侵乌克兰的威胁，美国五角大楼宣布，它将向东欧盟国——德国、波兰、罗马尼亚派遣3000名士兵。本月中旬，俄罗斯并未从乌克兰边境撤军，战争局势愈发紧张。2月17日，在俄罗斯与乌克兰紧张的双边关系高峰期，俄罗斯驱逐了美国驻莫斯科副大使巴特·戈尔曼。之后，美国对俄罗斯可能入侵乌克兰发出了越来越详细的警告。
 
 参考链接：
 
-- [Israel to scrap COVID passport system as omicron wanes](https://ktar.com/story/4893787/israel-to-scrap-covid-passport-system-as-omicron-wanes/amp/)
+- [US Deploys Airmen, F-35 Fighter Jets to Germany Amid ‘Russian Invasion’ Fears](https://www.ntd.com/us-deploys-airmen-f-35-fighter-jets-to-germany-amid-russian-invasion-fears_741317.html)
+- [Russia Expels Deputy Chief of U.S. Mission in Moscow – Reports](https://www.themoscowtimes.com/2022/02/17/russia-expels-deputy-chief-of-us-mission-in-moscow-reports-a76434)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
 
 总编：童谣
-编辑：童谣
+编辑：Delilah小胖
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

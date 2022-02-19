@@ -2,41 +2,44 @@
 ---
 
 
-## 背弃《巴黎气候协定》，中共国增加使用煤炭能源
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2031035/)
+## 2/19/2022国际财经快讯：白宫称SWIFT银行业务限制不太可能出现在俄罗斯方案中；美联储倾向反对大幅加息
+` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/2031391/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-85.png)[图片来源](https://dzm0ugdauank9.cloudfront.net)
+**1.****白宫称SWIFT银行业务限制不太可能出现在最初的俄罗斯方案中**
 
-翻译：攀登者
-编辑：文泓
+[华盛顿（路透社）–一位白宫官员周五表示，如果俄罗斯入侵乌克兰，禁止俄罗斯进入SWIFT金融系统的举措不太可能被纳入对俄罗斯的初步制裁方案，他指出，盟国正在就最后一套措施达成一致。副国家安全顾问Daleep Singh在白宫新闻发布会上发言时还认为，如果美国对俄罗斯实施其也曾威胁过的严厉的出口管制，俄罗斯将无法取代从包括中国在内的其他国家的技术进口。”我们正在向最终方案靠拢，”他说。他补充说：”所有选项都在桌面上，但你可能不会在最初的推广方案中看到SWIFT，”他说。他的评论证实了路透社2月11日的报道。](https://www.oann.com/swift-banking-curbs-unlikely-to-be-in-initial-russia-package-white-house-says/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/3-54.png)图片来源：HubPages|
+**2.****美国和德国就核能在绿色转型中的作用发生冲突**
 
+[柏林（路透社）–在富国竞相减排以限制全球变暖的影响之际，德国和美国周五就核电是否应该成为能源组合的一部分发生了冲突。美国气候特使约翰-克里在慕尼黑安全会议上说，快速减排需要在一定程度上依靠核能，并补充说，如果没有碳捕获技术，依靠天然气作为权宜之计的燃料，等于忽视了气候危机的根源。经济部议会国务秘书、生态学家绿党成员Franziska Brantner为德国在逐步淘汰核电和煤炭、扩大可再生能源的同时依靠天然气作为桥梁燃料的计划辩护。美国总统拜登的政府一直在向德国施压，要求其放弃北溪2号管道项目，该项目将增加德国对俄罗斯天然气的依赖。](https://www.oann.com/u-s-germany-clash-over-role-of-nuclear-energy-in-green-transition/)
 
-据中共官媒新华社[报道](http://www.xinhuanet.com/english/20220215/2971ca648ff04357a15d0ddf83707464/c.html)，在总理李克强主持的中国国务院会议上，中国重申了其增加使用煤炭能源的立场，以“保护生产和日常生活中的用电量”。
+**3.****软银支持的DoValue与联合信贷银行就合同进行谈判**
 
-中国是世界上最大的污染国[，](https://www.bbc.co.uk/news/world-asia-57018837)2019年[排放](https://www.bbc.co.uk/news/world-asia-57018837)了约27%的世界温室气体，第二大排放国美国仅排放了世界11%的污染——不到中国总排放量的50%。
+[路透米兰2月18日 – 意大利最大的不良贷款公司doValue（DOVA.MI）首席执行官表示，该公司正在讨论可能延长其与联合信贷银行（CRDI.MI）的合同，但同时对意大利银行未来将送来的问题债务进行了审慎的估计。总部位于维罗纳的doValue公司由日本软银集团（9984.T）拥有28.3%的股份，成立于2015年，当时联合信贷银行与Fortress Investment Group（后来被软银收购的美国基金）达成交易，分拆了其债务服务部门。联合信贷和doValue当时签署了一项债务管理协议，为doValue提供了稳定的收入来源。该公司后来努力扩大其业务，进入西班牙和希腊的不良贷款（NPL）市场。](https://www.reuters.com/markets/europe/softbank-backed-dovalue-talks-with-unicredit-over-contract-2022-02-18/)
 
-尽管中国最初于2016年签署了联合国《[巴黎气候协定](https://www.breitbart.com/politics/2017/06/02/liberal-states-cities-ask-u-n-to-let-them-join-paris-agreement-raising-legal-questions/)》，该协议旨在将全球气温上升控制在2°C以下，并在2021年与美国的联合声明中重申了减少排放的承诺，**但在疫情期间，中国增加了煤炭产量****，在2021****年达到使用**[**40多亿**](https://www.theguardian.com/environment/2022/jan/17/chinas-coal-production-hit-record-levels-in-2021)**吨煤炭的十年新高**。
+**4.****英特尔的新芯片计划可能扭转竞争对手AMD的命运**
 
-煤炭使用的增加表明，中国已不可能履行其到2030年达到排放峰值并在2060年实现碳中和的国际承诺。
+[2月18日（路透社）–分析师表示，英特尔公司最近专注于制造芯片以满足不断增长的需求，这将使其在服务器和PC市场的最大竞争对手Advanced Micro Devices Inc（AMD.O）有机会在该领域建立更大的立足点。英特尔计划在未来四年对芯片技术进行大规模投资，该公司周四表示，预计从2023年到2026年，其容纳个人电脑的部门收入将以低至中位数增长，而其数据中心和人工智能业务将以高十位数增长。该公司的股价下跌约6%，而AMD的股价在周五下滑了1%。本周早些时候，当英特尔完成其500亿美元的赛灵思交易时，AMD的市值短暂突破了英特尔的市值。目前，AMD比英特尔约1820亿美元的市值少了约10亿美元，都远远低于Nvidia (NVDA.O)的5850亿美元。](https://www.reuters.com/technology/intels-new-chip-plans-could-turn-rival-amds-fortunes-analysts-2022-02-18/)
 
-这个共产主义国家的能源掉头是在中国经济因国际燃料短缺而受抑制后出现的（例如，抵制澳洲煤炭），冠状病毒大流行导致这个国家14亿人多次停电。
+**5.****美联储官员倾向于反对大幅加息以拉开加息序幕**
 
-此后，中共独裁政权[下令](https://www.france24.com/en/live-news/20220216-china-govt-to-help-run-coal-power-plants-at-full-capacity)重新开放国内煤矿，并取消减排生产配额，这意味着中国的煤电厂将满负荷运营。
+[2月18日（路透社）–美联储官员周五压制了市场对积极应对美国40年之久的通货膨胀的最初期望，表示稳步加息应该足以做到这一点。纽约联邦储备银行行长、中央银行政策制定小组的第二号官员约翰-威廉姆斯（John Williams）在一次演讲后告诉记者：“我没有看到任何令人信服的论点，在一开始就采取大的步骤。我认为我们可以稳步提高利率并重新评估。”美联储理事莱尔-布雷纳德（Lael Brainard）–总统乔-拜登提名的美联储副主席人选–表示，官员们可能会在即将于3月举行的会议上启动 “一系列加息”，随后 “在未来的会议上 “减少美联储的资产负债表规模。](https://www.reuters.com/business/fed-officials-lean-against-large-increase-kick-off-rate-hikes-2022-02-18/)
 
-**当西方人口被迫**[**勒紧裤腰带**](https://www.breitbart.com/national-security/2010/12/05/obama-ban-of-offshore-oil-drilling-undermining-our-country/)**并应对绿色能源政策的昂贵**[**影响时**](https://www.dailymail.co.uk/debate/article-10366275/ROSS-CLARK-DOES-green-tax-energy-bill-actually-pay-for.html)**，中共国主席习近平告诉他的政府，任何减少中国排放的努力都不应干涉中国的经济增长**——这表明中国在不久的将来不会做出任何有意义的改变来遏制其排放。
+**6.****ISS支持苹果公司关于强迫劳动的股东提案**
 
-新闻链接：[China Goes All in on Coal: Ramps Power Output to Full Capacity (breitbart.com)](https://www.breitbart.com/asia/2022/02/16/china-goes-all-in-on-coal-ramps-power-output-to-full-capacity/)
+[纽约，2月18日（路透社）–代理咨询公司Institutional Shareholder Services（ISS）敦促苹果公司（AAPL.O）的投资者投票支持一项决议，要求提高这家iPhone制造商在保护其供应链上的工人免遭强迫劳动方面的透明度。苹果公司将于3月4日举行年度股东大会。苹果公司和独立第三方在2020年对该公司的全球供应商进行了审计，没有发现强迫劳动的证据，其最新提交的代理文件说。苹果公司还发布了有关其供应链工人保护情况的报告。但独立人权调查员报告说，一些苹果供应商参与了中国政府在新疆地区的强迫劳动计划，”使这些政策和程序的有效性受到质疑”，ISS在周二发布的一份报告中向投资者表示。](https://www.reuters.com/technology/iss-supports-apple-shareholder-proposal-forced-labor-2022-02-18/)
 
-*发布：tianzhihuan*
+**7.****日本1月消费价格上涨，但速度放缓**
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[东京，2月18日（路透社）–日本1月份的核心消费价格连续第五个月上涨，但速度比上个月慢，这提高了该国央行在加息方面落后于其他经济体的可能性。由于能源价格飙升，消费者通胀率预计将在未来几个月内回升，而去年的移动电话费削减也将退出计算，不再成为价格的阻力。政府数据周五显示，1月份核心消费者价格指数（CPI）（不包括波动较大的新鲜食品价格，但包括燃料成本）较上年同期增长0.2%。这比路透社调查中预测的0.3%的增幅和前两个月的0.5%的增幅要弱。NLI研究所的执行研究员Taro Saito说：“由于食品和能源价格上涨，消费者通胀将从下个月开始回升。”](https://www.reuters.com/markets/asia/japans-jan-consumer-inflation-rises-slower-pace-2022-02-17/)
+
+**8.****梅西百货假日季销售额在百货公司中跃升幅度最大**
+
+[2月18日（路透社）–华尔街预计，梅西百货(Macy’s Inc., M.N)周二公布季度业绩时，将成为美国百货公司中假日销售跳升幅度最大的公司，这得益于其对在线业务的投资和保持货架库存的能力。分析师们说，该公司在购物旺季能够保持供应稳定，因为它利用多个港口从海外供应商那里提前接收服装和配饰的交货。这与他们对竞争对手Nordstrom Inc (JWN.N)的预期形成鲜明对比，因为占其销售额三分之一的Rack非价格部门的挣扎，使华尔街对其近期前景持谨慎态度。”诺德斯特龙是最初的数字战略商店，但梅西百货已经赶上了，而且确实做得更多。梅西百货已经接受了一种更加以数据为导向的、有纪律的方法来管理业务的各个方面，”零售分析师简-哈利说。](https://www.reuters.com/business/retail-consumer/macys-set-win-us-holiday-season-with-best-sales-among-department-stores-2022-02-18/)
+
+By 【秘密翻译组-金融组】
+作者：千年等一回
 
  
 
