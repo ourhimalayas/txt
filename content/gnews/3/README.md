@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：喜币就像黑暗中的一盏灯
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2033574/)
+## 七哥金句：坚持该坚持的
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2033604/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句5.001.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句2-1-5.jpg)
 整理：雅典娜农场
 发布：枫叶红了
 

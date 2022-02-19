@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：达沃斯就是奴隶俱乐部
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2033540/)
+## 七哥金句：新中国联邦的信仰
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2033579/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句2.001-2.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句6.001.jpeg)
 整理：雅典娜农场
 发布：枫叶红了
 

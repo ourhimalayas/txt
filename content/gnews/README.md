@@ -15,38 +15,38 @@
 
 ---
 
-### [七哥金句：你为啥不把今天活好](/content/gnews/1/README.md)
+### [七哥金句：两条路：死亡和赢](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [七哥金句：新中国联邦的信仰](/content/gnews/2/README.md)
+### [七哥金句：不能控制自己的人](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [七哥金句：喜币就像黑暗中的一盏灯](/content/gnews/3/README.md)
+### [七哥金句：坚持该坚持的](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [币安因执照问题在以色列暂停服务](/content/gnews/4/README.md)
+### [七哥金句：共党绝对的控制](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥金句：正真的勇士和要包容战友](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥金句：你为啥不把今天活好](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥金句：新中国联邦的信仰](/content/gnews/7/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥金句：喜币就像黑暗中的一盏灯](/content/gnews/8/README.md)
+ ` 雅典娜GNotes`
+
+### [币安因执照问题在以色列暂停服务](/content/gnews/9/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [七哥金句：达沃斯为什么能活着](/content/gnews/5/README.md)
+### [七哥金句：达沃斯为什么能活着](/content/gnews/10/README.md)
  ` 雅典娜GNotes`
 
-### [七哥金句：达沃斯论坛就是它犯罪的证据](/content/gnews/6/README.md)
+### [七哥金句：达沃斯论坛就是它犯罪的证据](/content/gnews/11/README.md)
  ` 雅典娜GNotes`
-
-### [七哥金句：达沃斯就是奴隶俱乐部](/content/gnews/7/README.md)
- ` 雅典娜GNotes`
-
-### [七哥金句：有达沃斯存在人类就没有安全](/content/gnews/8/README.md)
- ` 雅典娜GNotes`
-
-### [2月19日勿忘香港（图片1-5）](/content/gnews/9/README.md)
- ` 波士顿五月花农场`
-
-### [七哥金句：要爱家人](/content/gnews/10/README.md)
- ` 雅典娜GNotes`
-
-### [纳粹死灰复燃？媒体惊爆新西兰总理曾行纳粹礼](/content/gnews/11/README.md)
- ` 喜马拉雅农场新西兰站`
 
 ### [泽连斯基称乌克兰不会回应俄罗斯的挑衅](/content/gnews/12/README.md)
  ` Shuizhuyu`

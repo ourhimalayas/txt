@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：达沃斯为什么能活着
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2033567/)
+## 七哥金句：正真的勇士和要包容战友
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2033590/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句4.001-2.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句1-13.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句3-1-4.jpg)
 整理：雅典娜农场
 发布：枫叶红了
 

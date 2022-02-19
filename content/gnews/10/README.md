@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：要爱家人
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2033508/)
+## 七哥金句：达沃斯为什么能活着
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2033567/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句2-1-4-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句4.001-2.jpeg)
 整理：雅典娜农场
 发布：枫叶红了
 
