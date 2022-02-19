@@ -2,35 +2,32 @@
 ---
 
 
-## 一起中共间谍涉嫌走私军事装备背后的阴谋
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2030852/)
+## 背弃《巴黎气候协定》，中共国增加使用煤炭能源
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2031035/)
 
-#### **【雅典娜观察】和您一起洞察世界**
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-翻译/编辑：文泓
+翻译：攀登者
+编辑：文泓
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/3-53.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/3-54.png)图片来源：HubPages|
 
 
-本周，澳大利亚议会被中共国有影响力指控案件所困扰。周五，昆士兰地方法院审理了64岁的华裔黄金海岸会计师Kim李博伟和63岁的俄罗斯裔布里斯班企业家亚历山大·谢尔被指控违反了澳大利亚《国防贸易管制法》。
+据中共官媒新华社[报道](http://www.xinhuanet.com/english/20220215/2971ca648ff04357a15d0ddf83707464/c.html)，在总理李克强主持的中国国务院会议上，中国重申了其增加使用煤炭能源的立场，以“保护生产和日常生活中的用电量”。
 
-多方消息来源称，指控源于澳大利亚安全情报组织（ASIO）对一个在澳运作的中共间谍网络的更广泛调查。**早在****2016****年****8****月，澳大利亚官员拦截了一架由澳洲赌场组织的、从黄金海岸飞往新西兰的不寻常的私人飞机航班，就发现了这个网络的成员。**
+中国是世界上最大的污染国[，](https://www.bbc.co.uk/news/world-asia-57018837)2019年[排放](https://www.bbc.co.uk/news/world-asia-57018837)了约27%的世界温室气体，第二大排放国美国仅排放了世界11%的污染——不到中国总排放量的50%。
 
-李先生是该航班上的六名乘客之一。其他乘客包括习近平主席的表弟齐明、墨尔本有组织犯罪头目和赌场旅行团经营者号称唐人街先生周九明，以及另一个被怀疑与中国情报部门有关的人物。
+尽管中国最初于2016年签署了联合国《[巴黎气候协定](https://www.breitbart.com/politics/2017/06/02/liberal-states-cities-ask-u-n-to-let-them-join-paris-agreement-raising-legal-questions/)》，该协议旨在将全球气温上升控制在2°C以下，并在2021年与美国的联合声明中重申了减少排放的承诺，**但在疫情期间，中国增加了煤炭产量****，在2021****年达到使用**[**40多亿**](https://www.theguardian.com/environment/2022/jan/17/chinas-coal-production-hit-record-levels-in-2021)**吨煤炭的十年新高**。
 
-由于齐明与习家的关系，以及他与墨尔本的中国犯罪人物和中共特工的关系，而且齐明曾为中兴通讯工作，该公司与中国军工综合体的关系有案可查，ASIO对齐特别关注。
+煤炭使用的增加表明，中国已不可能履行其到2030年达到排放峰值并在2060年实现碳中和的国际承诺。
 
-布里斯班地方法院周五听取了李博伟和谢尔被指控与另一名中国公民和前墨尔本商人布莱恩·陈合作，**陈现在躲在海外，是国际刑警组织红色通报的对象。**
+这个共产主义国家的能源掉头是在中国经济因国际燃料短缺而受抑制后出现的（例如，抵制澳洲煤炭），冠状病毒大流行导致这个国家14亿人多次停电。
 
-ASIO消息人士称，**布莱恩·陈是第一个在澳大利亚被揭发的中共情报嫌疑人员，在****2019****年底也被多家澳洲媒体列入调查的一部分，并公布了陈先生曾试图渗透到澳大利亚议会的指控。**这些报道详细介绍了ASIO的一名线人声称，陈先生曾试图通过扶植维多利亚州自由党成员赵波成为议员，从而在联邦议会安插一名间谍。
+此后，中共独裁政权[下令](https://www.france24.com/en/live-news/20220216-china-govt-to-help-run-coal-power-plants-at-full-capacity)重新开放国内煤矿，并取消减排生产配额，这意味着中国的煤电厂将满负荷运营。
 
-2019年，陈成为ASIO强烈关注的对象。在此之前，他住在墨尔本，经营着几家企业。他还被列为几家香港和中国大陆公司的董事和股东，与中国军事采购业有很深的关系。
+**当西方人口被迫**[**勒紧裤腰带**](https://www.breitbart.com/national-security/2010/12/05/obama-ban-of-offshore-oil-drilling-undermining-our-country/)**并应对绿色能源政策的昂贵**[**影响时**](https://www.dailymail.co.uk/debate/article-10366275/ROSS-CLARK-DOES-green-tax-energy-bill-actually-pay-for.html)**，中共国主席习近平告诉他的政府，任何减少中国排放的努力都不应干涉中国的经济增长**——这表明中国在不久的将来不会做出任何有意义的改变来遏制其排放。
 
-然而，赵波于2019年3月意外死亡，此前他告诉ASIO官员，陈先生曾向他提供100万澳元，供他竞选联邦议会席位。ASIO官员于2019年3月在墨尔本机场询问了陈先生，但他随后被允许离开澳大利亚。
-
-作为对这些披露的回应，ASIO局长迈克·伯吉斯发表了一份公开声明，称其目前正在“认真对待”有关涉嫌干预阴谋的指控。
-
-新闻链接：[Alexander Cher, Brian Chen accused of smuggling military equipment by AFP (smh.com.au)](https://www.smh.com.au/national/afp-uncovers-suspected-chinese-spy-s-alleged-plot-to-smuggle-military-equipment-20220218-p59xld.html)
+新闻链接：[China Goes All in on Coal: Ramps Power Output to Full Capacity (breitbart.com)](https://www.breitbart.com/asia/2022/02/16/china-goes-all-in-on-coal-ramps-power-output-to-full-capacity/)
 
 *发布：tianzhihuan*
 

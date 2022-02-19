@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/19/2022 2:23 PM (UTC)`
+
+2月19号：尊敬的战友们好！锁链女灾难的事件！正在国内国际上<br/>正在发酵中，中共国犯罪集团的本质……越来越清楚地被世界认知……共产党己成为全人类的公敌！必须彻底的被消灭！
+![img](https://media.gettr.com/group32/getter/2022/02/19/14/8c6e1317-dcf2-a77f-02b7-f034b6c8d266/out.jpg)
+
+---
+
 `@miles 2/19/2022 10:26 AM (UTC)`
 
 2/18/2022 Miles Guo: Putin has led Xi Jinping to the path of his demise! Putin’s plan of “one stone three birds” - Let Xi take the chance to invade Taiwan and kick the CCP out of the game over the Ukraine issue, while Russia can take control of Europe by using Nord Stream 2 when the EU is in chaos.<br/><br/>2/18/2022 文贵直播: 习近平已被普京引上了死亡之路！普京一箭三雕之计 - 令习跃跃欲试攻打台湾，在乌克兰问题上将中共踢出局，同时俄罗斯可趁欧盟混乱之际利用北溪2号收回欧洲！<br/>
@@ -147,13 +154,6 @@ Live, Love, & Laugh ❤️
 
 2/16/2022 Miles Guo: My bankruptcy is of great significance, while no one in the world can go bankrupt like I did. The CCP’s running dogs, Changpeng Zhao and Weijian Shan, are certainly going to end up miserable. Although I don't own a single Himalaya Coin, I managed to make so many fellow fighters rich by using my wisdom. What a magnificent and powerful act it is!<br/><br/>2/16/2022 文贵直播：文贵破产意义重大，而世界上却没人能像文贵一样破产；中共走狗赵长鹏和单伟建下场一定很惨；文贵没有一个喜币，却用智慧让这么多战友有钱，这是多么伟大的举动<br/>
 ![img](https://media.gettr.com/group20/getter/2022/02/17/21/3fb30844-bfbb-fedb-37d1-6a3ada3d8431/out.jpg)
-
----
-
-`@miles 2/17/2022 3:26 PM (UTC)`
-
-2月17号：尊敬的战友们好．盖特的短视频，新版上线了……非常非常的棒。大家一定要多使用——共产党的内部的经济危机．和．爱之福 H PAY．全球运转形成了鲜明的对比。我们正在拯救全人类的被共产党病毒奴役下的世界经济和被世界独裁政府绑架的个人财富，一切都已经开始！
-![img](https://media.gettr.com/group32/getter/2022/02/17/15/ec87b8b4-3021-7d42-4a22-c494233dd8e0/out.jpg)
 
 ---
 

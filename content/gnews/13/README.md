@@ -2,30 +2,23 @@
 ---
 
 
-## 视频|美司法部及FBI宣布组建数字货币执法团队
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2031624/)
+## 欧盟指控中共利用国内法院破坏知识产权法
+` GTV新聞訪談` [轉載自GNews](https://gnews.org/zh-hans/2031718/)
 
-制作：香草山视频部
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月17日，美国司法部DOJ宣布，已经任命了一位检察官领导新组建的国家加密货币执法团队。同时，联邦调查局FBI正在启动一个区块链分析和虚拟资产部门。
+[撰稿日期]：2022.02.19
 
-此前，司法部副部长丽莎·摩纳哥在一次网络安全会议上指出，检察官崔恩英将领导司法部这一加密货币执法团队。崔恩英曾主导起诉俄罗斯黑客窃取8000多万摩根大通客户信息的案件。
+[署名]：台湾宝岛农场\_阿尔道夫
 
-而FBI “虚拟资产”部门的成立是在司法部有史以来最大的金融扣押行动后进行的。本月早些时候，它指控一对纽约夫妇涉嫌洗钱，涉及的比特币现在价值超过45亿美元，在2016年数字货币交易所Bitfinex的黑客攻击中被盗。
+[新闻连接]：《https://www.epochtimes.com/b5/22/2/18/n13587601.htm》
 
-去年美国最大的燃料管道网络和世界上最大的牛肉供应商遭到一系列疯狂的网络攻击，勒索软件作案团伙经常要求以比特币支付其赎金。因此，拜登政府执政下的美国监管机构一直在加强对加密货币行业的审查。
+[正文]：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+据外媒报导，中共利用国内「禁诉令」（anti-suit injunctions）此一不公义的法令禁令，一方面企图阻止、恫吓国际企业不得向外国法院控诉中共在未经许可的情况下，非法擅用或盗窃他们的技术、专利等侵权恶行；一方面却允许华为、小米等中共电信巨头获得低价技术许可，图利自己。欧盟认为中共此举明显违反WTO的《与贸易有关的知识产权协议》（TRIPS），因此近日已向世界贸易组织（WTO）提出诉讼。
 
-发稿：呼吸的雾霾（文小呼吸）
+中共「禁诉令」主要是指若企业专利持有人在中共以外的法庭对其损害提出诉讼时，将会面临巨额罚款或刑事指控的威胁。而根据欧盟的说法，目前受到中共「禁诉令」威胁的企业，包括夏普、爱立信和诺基亚等。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+而中共此极权手段的确发挥了“足够的威慑效果”，让被非法侵权的企业体深怕可能因「不遵守规定」而被中共监禁或遭受巨额罚款制裁，而不敢贸然采取行动。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
