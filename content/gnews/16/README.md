@@ -2,8 +2,8 @@
 ---
 
 
-## 美国出手，溯源
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2027420/)
+## 华裔卡，共产党早有准备，美国对中国籍的立法
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2027473/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

@@ -2,46 +2,12 @@
 ---
 
 
-## 第204期 玫瑰看新闻
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2027353/)
+## 2月18日文贵大直播摘要（13-16）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2027435/)
 
-【回魂时刻】疫苗受害者专题新闻
-
-1.Juliet Valdez：56 岁的菲律宾教师在第二次接种“疫苗”后12 周死亡
-
-2.菲律宾：26 岁的Gabad-Dizon 女士接种了一次辉瑞疫苗六个月后突然死亡
-
-3.英国40 岁专业音乐家Matthew Dibble 接种疫苗后死亡
-
-4.德国15 岁少女Cheyenne Braun 接种疫苗三周后死亡
-
-5.BBC主持人Lisa Shaw接种疫苗后未满一月死亡
-
-
-
-
-
-
-
-**推出问题，敲出真相，爆料在路上！**
-
-**请关注和订阅我们的以下账号：**
-
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
-
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
-
-**玫瑰看新闻YOUTUBE账号**：
-
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**ROSE NEWS**
-
-**【玫瑰看新闻】推特账号**：
-
-**ROSE NEWS (@ROSENEWS4)A**
+设计：五月花农场 科存
+![](https://assets.gnews.org/wp-content/uploads/2022/02/6AF99425-A965-4BED-92CD-E8D148461E20.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/7E9097A5-FEE3-4CAD-8673-4F7579972A4B.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/C3E8992C-BB8F-43A1-B5CC-5909EE3D5AE5.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/1DC90C00-6723-4554-A941-3400D7F16566.png)
+发布：水涨船高
 
  
 

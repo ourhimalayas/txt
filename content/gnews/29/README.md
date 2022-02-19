@@ -2,68 +2,48 @@
 ---
 
 
-## Casino 集团强力入住虚拟世界元宇宙沙盒 (SAND)
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2027068/)
+## 中俄两国之文明的差距
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2027134/)
 
-译评：香草山商业部 — 文锤
+**整理：雨桐、HomeL
+编辑：Candy**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/02/直播.png)图片来源：墨尔本雅典娜设计组
 
 
-在家乐福之后，轮到法国大型超市零售集团宣布它进入虚拟世界了。这个法国集团来到沙盒 (SAND) 虚拟世界以分发可在现实世界中使用的促销和优惠券。
+**七哥回答战友提出的问题：为什么不同的国家会表现出这样大的分歧？**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/groupe-casino-metaverse-the-sandbox-sand.jpg)[图片来源](https://cryptoast.fr/groupe-casino-metaverse-the-sandbox-sand/)
+我们中国人真的特别可怜，甚至就包括我。直播完，你们一会儿就会忘掉。
 
-**可以在Leader Price超市赢取优惠券的游戏**
+我很小的时候就跑到俄罗斯去做贸易，去做所谓的俄罗斯贸易。我看到的都是在俄罗斯最惨的时候，而中国人很得意。我都是去到俄罗斯用牛仔裤换汽车，你看到海参崴中国人的那个愚蠢狂妄，就是动物！
 
-日前，法国零售巨头家乐福宣布[购买了沙盒世界（SAND）的虚拟地块](https://cryptoast-fr.translate.goog/carrefour-parcelle-terrain-metaverse-the-sandbox-sand/?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN)。如今，Casino 集团正在通过其房地产子公司大张旗鼓地进入元宇宙。
+后面俄罗斯强大了，出了一个普京，人家都是有别墅、有果园、人家屋里有暖炉，人家穿的那个东西，有吃有喝。不管是什么泰（托尔斯泰），这泰总之是大诗歌家（大诗人），共产党都是抄人家的。你去圣彼得堡转一下，你就会感觉到：中国人五千年的文明跟人家俄罗斯比，真的是半毛钱都不值。我去看人家老太太，人家出门都要抹个口红、带个小包包；你看咱们老太太出门，都要带个自己做的小篮子，土篮子，就在东北。
 
-如果家乐福没有具体说明它打算在元宇宙中做什么，那么Casino集团已经公布了它的部分雄心壮志。
+你没有看过中国东北的农村，现在真的就是连俄罗斯的猪圈都不如。就是在此时此刻，来个五毛钱就跟陌生人睡在一个床上，床上都是虱子，现在还是这样。
 
-没有虚拟商店，而是一个采用了已在沙盒上找到的代码的游戏。它最初将保留给Casino 集团折扣品牌 Club Leader Price 的会员，他们将获得“黄金门票”。
+到俄罗斯，俄罗斯没有那么多虱子。人家问：你这个中国小孩身上有虱子吗？那你坐到那个屋子去，旁边那个屋子，那个时候我还没觉得不好意思。大家就在火车的中间过道撒尿，都是冰尿，然后我们就在那里咔嚓咔嚓捏死虱子。现在的中国就这样。
 
-“我们于 2021 年底开始购买地块，但我们正在开展几个旨在提供客户体验的项目。我们采用工业方法。我们的目标是用这些新的虚拟资产创造价值，就像我们使用我们的真实资产一样。”Casino Immobilier 首席执行官 Nicolas Joly 在接受 Les Échos 采访时补充道。
+第二天我问他：为什么你叫我睡那边去？
+他说：你们有虱子。
+我说：你们那么穷，你们怎么没有虱子？
+他说：我们有卫生。
 
-**Monoprix 和 Franprix 可以效仿 Leader Price 的例子**
+人家当时有卫生、有面包，人家的澡堂子里有热水。哇噻，我就脱了，以后光着屁股就出来了。我们的脚丫子，这都是冬天的泥。你把身上的黑泥巴，我第一次刮身上的黑泥巴，就是在俄罗斯。拿人家西餐的勺子能够当挫用、能够当刀子用，真的是那样。
 
-Casino集团开发的游戏目的很简单。在属于该组的元宇宙The SandBox的情节中，参与者将不得不从Club Leader Price的在线商店中搜索食物，以获得在现实世界中使用的代金券或折扣。
+到俄罗斯、日本，剃光头，因为虱子太多。“破处”的那一年就没有虱子，已经走上江湖。你看乌克兰的美女，乌克兰跟日本一样，最不希望被中国男人嫖。
 
-该公司还在研究以不可替代代币（NFT）的形式实施奖励。
+后来整个《明斯克协议》，你要属于欧洲是吗？你不要接受加入欧洲，我就不打你。就像是战友离婚：不要娶新的媳妇，我们就不打了；只要你不娶新的媳妇，我们就不打架。
 
-为 Club Leader Price 会员准备的这款游戏将作为 Casino 集团的体验。如果它被证明是成功的，它应该将其他大型零售商，如 Monoprix 或 Franprix，带入元宇宙。
+**参考来源：2022.2.18文贵大直播**
 
-**译者评**：鉴于喜马拉雅币即将被越来越多的人们所接受，Hpay凭借其瞬间交易功能和无手续费的巨大优势，可以甩其他加密货币几条街。在可预见的未来，虚拟世界一定是喜马拉雅币大显身手的领域。
+***发布：Candy***
 
-**原文链接：**
-
-**[Le groupe Casino débarque en force dans le metaverse The Sandbox (SAND) (cryptoast.fr)](https://cryptoast.fr/groupe-casino-metaverse-the-sandbox-sand/)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2月.jpg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
