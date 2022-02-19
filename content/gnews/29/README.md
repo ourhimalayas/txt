@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：凡事不要走极端
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2033672/)
+## 七哥金句：爆料革命靠什么成长
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2033678/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句6.001-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句7.001-scaled.jpg)
 整理：雅典娜农场
 发布：枫叶红了
 

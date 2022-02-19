@@ -2,38 +2,36 @@
 ---
 
 
-## 欧盟就电信专利问题对中共国向世贸组织提起诉讼
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2033740/)
+## 新的仿生眼让盲人重见光明
+` 科海拾星` [轉載自GNews](https://gnews.org/zh-hans/2033763/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/15764461.jpg)图片来源:www.nippon.com
-布鲁塞尔(路透社)–欧盟周五在世界贸易组织对中共国发起法律挑战，认为中共国法院阻止欧洲公司保护其电信技术专利。代表欧盟27个成员国提出质疑的欧盟委员会表示，欧盟公司被阻止诉诸外国法院来保护其标准必要专利(SEPs)。
+撰稿:纽约香草山健身部—Ivy001
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+技术的进步，一直在重新定义眼科。
 
-(欧盟)委员会还咨询了美国和日本，这两个国家的标准必要专利持有者也面临着类似的挑战，它们希望制定全球技术标准，而不是把这个留给中共。手机制造商需要为其产品获得标准必要专利许可证，以符合某些国际标准。
+新的仿生眼是一种电子修复装置，通过手术植入人眼，以便让视网膜受到严重损害的人将环境中的光影，转变为大脑可以处理的脉冲。该仿生眼包括一个外部摄像头和发射器以及一个内部微芯片。摄像头安装在一副眼镜上，它在发射高频无线电波之前帮助形成环境的视觉刺激。新的仿生眼技术旨在帮助盲人看到东西。
 
-欧盟委员会表示，自2020年8月以来，中共国法院一直在发布“禁诉令(anti-suit injunctions)”，禁止欧盟公司诉诸外国法院，并威胁要处以巨额罚款作为威慑。这位欧盟高管表示，在一个案例中，罚款为每天13万欧元(合14万7758美元)，这种做法破坏了公司与中共国智能手机制造商就许可费用进行的谈判。
+这种小型无线设备的运作方式是能够绕过有问题的视网膜细胞，并 “触发 “那些仍然能够工作的细胞。
 
-中共国表示，它对欧盟的挑战表示遗憾，并始终维护多边贸易体系。欧盟委员会没有具体说明涉及的公司。中共国最大的智能手机制造商是Oppo、Vivo、小米和荣耀，以前归华为所有。欧洲标准必要专利持有者包括诺基亚和爱立信。委员会表示，它曾多次向中共国提出这个问题，但没有得到解决。
+在2021年对绵羊进行成功测试后，现在已经申请开始在人类患者身上进行测试。负责这项研究的悉尼大学生物医学工程学院的生物医学工程师Samuel Eggenberger说，“当我们在绵羊身上进行测试时，设备周围的生物组织没有出现排异的反应，我们预计它可以保持多年。”
 
-欧盟认为，中共国违反了世贸组织关于与贸易有关的知识产权(TRIPS)的协议。世贸组织的挑战始于各方之间为期60天的正式磋商，之后欧盟可以要求世贸组织专家组作出裁决。这个过程，包括可能的上诉，可能需要数年时间。
+面对高科技智能可植入设备在医疗保健和生物医学领域大量涌现，一部分学者表示担忧。他们认为，这些设备不像现成的产品或服务，使用者可以实际拥有或控制。相反，则依赖于软件升级、特殊的方法和部件，以及商业驱动力和营利性企业的成功或失败。 “自主权、尊严和责任”是高科技智能可植入设备无法回避的伦理问题。
 
-**简评：**
+[https://www.news-journal.com/bionic-eye-technology-aims-to-help-blind-people-see/article\_c35037c7-c50d-5d51-9676-f0dcea65464f.html https://www.bbc.com/news/technology-60416058](//www.bbc.com/news/technology-60416058)
 
-就通讯领域标准必要专利SEP(Standard Essential Patent)的侵权行为，中共国的华为公司在2014年就经历了被起诉。中共国的华为、小米、Oppo对被称为“无限套娃”游戏规则：“禁诉令”(Anti-Suit Injunction)，“反禁诉令”(Anti-Anti-Suit Injunction)，“反反禁诉令”(Anti-Anti-Anti-Suit Injunction)先后被世界各国的通讯行业就标准必要专利起诉, 但未曾真正解决过。
+编辑/校对:文真
 
-而源自路透社的此报道，在短短几小时内就被欧洲、日本、印度等媒体纷纷转载，这是欧盟在过去3周内对中共国提起的第2起世贸组织诉讼，使其迅速成为新焦点。我们相信欧盟提出的专利问题只是一个借口，真正的意图是想通过坚定的、长期的行动来威慑中共国，解决谁将在全球建立通讯行业技术标准，以及通讯行业技术制定标准带不带中共国玩的问题。
+发稿：菩提树
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2%E6%9C%88-2.jpg)
+**更多资讯，更多关注**
 
-新闻链接：[https://www.nippon.com/en/news/reu20220218KBN2KN10W/eu-launches-wto-dispute-against-china-over-telecom-patents.html](https://www.nippon.com/en/news/reu20220218KBN2KN10W/eu-launches-wto-dispute-against-china-over-telecom-patents.html)
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-* * *
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
