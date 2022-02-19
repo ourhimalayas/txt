@@ -2,22 +2,31 @@
 ---
 
 
-## 中日财经爆┃亚马逊将提高美国国内年度会员费
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2030106/)
+## 英澳两国领导人指责中共侵犯人权之罪
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2030272/)
 
-撰稿：东京樱花团｜百花李香
-![](https://lh5.googleusercontent.com/nwaEEbuGcf7d_OaMx5bZqLxwvX7G6GABExNo7XhL5Cf3dyRRbH9fdcke3nKwEoyWotOgYyNz8sTg35JzB_VP8rcRyG2nyMb-uXw9HXe2jQuRBQHpn1LTYk_Hw3zMkkbcvJGv_Uc9)图片来自本文网站
-据2月19日《ABEMA TIMES》要闻在线消息：亚马逊从18日开始将美国国内的年度会员费从119美元提高到139美元（约16000日元）。涨价的原因是公司一直在增加会员的福利，以及加薪和运输成本的上升。
+作者：银河系农场 – 骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据外媒报道，英国与澳大利亚两国领导人日前进行了视频通话，中共国对新疆的种族大屠杀表示深刻关切，同时呼吁保护香港的自由人权和高度自治，维护台湾海峡两岸的和平与稳定，南中国海海事权利和自由，强烈反对军事威胁和恐吓，并警告俄罗斯不要入侵乌克兰。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/YKJ7CMNQV5K5ZJSRRYQJZIWTCI.jpg)
+据悉此前四国集团美日印澳会议承诺深化合作，以对抗中共在印太地区日益扩张的经济和军事实力。在国际上，美国已将中共对新疆的大屠杀定义为种族灭绝罪，中共对香港实行的国安法，严重侵犯香港的民主自由，同时中共频繁入侵台湾航空区对台湾造成的战争压力也深受国际社会谴责。台湾对英澳表示感谢，并愿继续与英澳等民主国家深度合作。
 
-2月7日，亚马逊因劳动力市场的竞争，将其员工的最高基本工资提高到了每年35万美元，在仓库工作的员工的平均时薪也提高到了约2,000日元。
+参考链接：
 
-2005年，亚马逊重要的年度会员费为79美元，17年内已经上涨了75%。
+- [UK pledges $34 mln to enhance security in Indo-Pacific](https://www.reuters.com/world/uk-sign-25-mln-stg-security-deal-with-australia-2022-02-16/)
 
-信息来源：[**米アマゾン、プライム年会費を値上げ 輸送費や賃金上昇に伴い**](https://news.yahoo.co.jp/articles/5f3db667af719f81cb81a1d678030a1ce582d934#:~:text=%E3%83%88%E3%83%94%E3%83%83%E3%82%AF%E3%82%B9%E4%B8%80%E8%A6%A7-,%E7%B1%B3%E3%82%A2%E3%83%9E%E3%82%BE%E3%83%B3%E3%80%81%E3%83%9)
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+
+编辑/校对/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

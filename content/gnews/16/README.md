@@ -2,8 +2,8 @@
 ---
 
 
-## 20220202文贵大直播：全世界人民珍惜生命 远离中共
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2030279/)
+## 20220202文贵大直播：春晚的本质（二）
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2030407/)
 
 作者：东京樱花团视频小组
 

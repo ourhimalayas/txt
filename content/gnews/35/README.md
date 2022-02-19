@@ -2,37 +2,28 @@
 ---
 
 
-## 文革受害者之世界宗教经文翻译大师陈寅恪
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2029530/)
+## 河北衡水中学生被老师体罚猥亵而自杀，遭校方否认和媒体封杀
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2029617/)
 
-作者：纽约香草山农场-马克文、朱丽叶
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-陈寅恪于1890年7月3日出生在湖南长沙，他多年留学于日本、欧洲和美国等国家，精通二十二种语言，对佛教、基督教，以及伊斯兰教等宗教经文的勘误、翻译有卓越贡献。当时，英国剑桥大学和牛津大学曾多次邀请陈寅恪参与汉学教授与协助翻译古典经文等工作。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-19-上午2.49.12.png)
-1925年，陈寅恪在回国后被清华大学聘为教授。随即，他在该校开辟了多门学科，用以传承中西方宗教经典。资料显示，为了传承中华民族文化，他曾多次拒绝移居海外的邀请，即使是后来国民党退守台湾之前劝他一同赴台的请求，也最终被他婉拒。
+撰稿：东京樱花团/风翼
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片3-5.jpg)
+[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fp8.itc.cn%2Fq_70%2Fimages03%2F20220217%2F6b7f9b744b7e443a82f064d2f34e81ae.jpeg&amp;imgrefurl=http%3A%2F%2Fwww.sohu.com%2Fa%2F523437542_100116740&amp;tbnid=x3NRcKEAlpigmM&amp;vet=12ahUKEwiYtcmnoYv2AhVPEKYKHZW3CQAQMy)
 
-然而，中共国文化大革命期间，陈寅恪这个所谓的国民党时期的著名“旧文人”遭到了极其残酷的迫害。彼时，陈寅恪双目失明且年事已高，但红卫兵却对他夫妻二人拳打脚踢，并把批斗的大字报贴满了他居所的周围。
+近期，河北衡水桃城中学被多名学生爆出涉及违法甚至犯罪行为，引发广泛关注。
 
-陈寅恪一生秉承独立精神和自由思想，其做学问不盲从于政治、不盲从于时代、不盲从于权威、不盲从于习惯。可惜的是，1969年10月，这位中华民族的一代大儒最终在惊吓﹑惶惑和战栗中死去。一个月后，其妻唐筼亦撒手人寰，追随丈夫而去。
+据大象新闻YouTube 平台报道：一中学生长文控诉衡水桃城中学存在多项违规违法行为，表示因此也患上忧郁症处于休学状态。该学生指出学校违规组织开始一周一月一大测制度，公开成绩并将每月考试考前的学生照片粘贴在每层教学楼里。学校老师收贿、食堂食品安全和价格不合理等情况。更危险的是老师对学生的体罚和精神上是伤害已达到令人发指的地步。发这篇长文的学生说对学生扇巴掌、打手心、拳打脚踢、搜身、控制学生一月一次洗澡等和因成绩没达到预期效果后对其进行猪狗不如、废物等谩骂的精神伤害。还表示曾看见学生因此长期失眠和喝洗衣液，割腕的自杀行为。
 
-参考链接：
-1）[陈寅恪（维基百科）](https://zh.wikipedia.org/wiki/%E9%99%88%E5%AF%85%E6%81%AAA)
-2）[陈寅恪之死](https://botanwang.com/articles/201407/%E9%99%88%E5%AF%85%E6%81%AA%E4%B9%8B%E6%AD%BB.html)
+而更没有想到的是这学生的长文一发出，引发了更多的知情者和受害者的爆料。被老师已不正当理由打到流血骨折、猥亵女生、补课乱收费、无故开除和甚至被爆料因不堪忍受跳楼自杀的消息被封杀的情况。越来越多的爆料，让人不得不让人产生警惕。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+而奇怪的是，当这些越来越多的爆料出现，甚至达到随便翻找就一大堆的文字表述的情况下，视频和图像却很难在抖音等视频平台找到。为何会出现这种情况呢？据相关人士透露，学校花高价将热搜平台收买，将这则消息压了下来。而学校对此事也发布了相关公告，指责相关消息属于无中生有。
 
-总编：Irene木木
-编辑：飞虹
-审核：飞虹
-校正/发稿：呼吸的雾霾（文小呼吸）
+最后发布一下衡水桃城中学官方网站介绍，该校成立九年的全日至寄宿式民办中学，该校注册资本为1299万元，对外投资了3家企业。其中中汇天润河北客运有限公司被列入经营异常名单。我相信这则消息如果也被消失的话，那真正彰显了“红朝大国”的自信。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

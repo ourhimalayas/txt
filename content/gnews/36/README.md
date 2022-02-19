@@ -2,37 +2,25 @@
 ---
 
 
-## 德州起诉脸书非法使用面部识别
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2029529/)
+## “坦克人版”冰墩墩致敬六四 GXP微博被禁言
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2029588/)
 
-作者：纽约香草山农场 007
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月14日，据当地媒体消息显示，美国德克萨斯州总检察长已经提起了对脸书的诉讼，指控其利用面部识别技术秘密地收集和使用数百万德克萨斯民众的生物特征数据并非法谋利。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-19-上午2.49.05.png)
-起诉书称，在未经用户同意的情况下，脸书从照片和视频中数十亿次地捕获用户的生物特征数据，并且将这些信息披露给他人。此外，脸书也未能在合理的时间内销毁相关数据。
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-83.png)图片来源于本文链接
+广州灼热悸动国际贸易有限公司（GXP）于2 月12 日在微博发文，分享“六四坦克人”版冰墩墩插画，触及中共舆论禁区，如今GXP 微博号已遭禁言。
 
-起诉书指出，脸书明知这一行为违反了德克萨斯州的隐私保护法律，但其仍旧以牺牲个人安全和福祉为代价，利用用户的个人隐私信息发展其社交媒体帝国，并以此获得历史性暴利——这是大型科技公司欺骗性商业行为的又一实例，而它必须被停止。
+广州灼热悸动国际贸易有限公司是日本GXP 合同会社在中共国设立的分公司，以销售GXP 品牌产品，专供中共国市场，为中共国用户提供GXP品牌旗下的情趣用品以及润滑油等产品。
 
-资料显示，脸书的面部识别项目自2010年起一直执行到2021年11月。此前，脸书曾在2020年以6.5亿美元的赔偿，和解了伊利诺伊州就该项目提出的诉讼。而此次德克萨斯州的起诉则将寻求对脸书数千亿美元的民事处罚。
+而“冰墩墩”是北京冬奥熊猫吉祥物，在中共国拥有超高人气，一推出即爆抢购潮，黄牛价更是飙涨到逾3000多 元人民币，而GXP 12 日发文，分享一张“坦克版”冰墩墩插画， 3 台冰墩墩坦克前站着一只手提袋子的冰墩墩，制图者无疑是在致敬六四天安门事件代表性画面“坦克人”，配图写下“这个冰墩墩画的好可爱。”
 
-参考链接：
-1）[Pax­ton Sues Face­book for Using Unau­tho­rized Bio­met­ric Data](https://www.texasattorneygeneral.gov/news/releases/paxton-sues-facebook-using-unauthorized-biometric-data)
-2）[Texas sues Meta over Facebook’s past facial recognition practices](https://appleinsider.com/articles/22/02/14/texas-sues-meta-over-facebooks-past-facial-recognition-practices)
+中共国六四天安门事件，是中国近代最惨烈的民主运动，也是中共当局试图隐瞒掩盖的一段历史，六四相关词目在中共国网路上成了敏感字词，有人讽刺6 月4 日对中国而言是“不存在的一天”，每年的6月4日在中共国也因而有了隐讳的代名词如：“5 月35 日”、“ 8 的评分”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+而此次致敬 “六四坦克人”冰墩墩的GXP 微博帐号还在，但仍被禁言当中。
 
-总编：Irene木木
-编辑：Irene木木
-审核：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
+消息来源:
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[Kuso冰墩墩致敬「六四坦克人」？ 日本情趣公司踩雷遭禁言](https://newtalk.tw/news/view/2022-02-16/710958)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

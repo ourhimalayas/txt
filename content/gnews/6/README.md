@@ -2,8 +2,8 @@
 ---
 
 
-## 20220202文贵大直播：春晚的本质（一）
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2030404/)
+## 20220218文贵大直播：新中国联邦不是为爹亲娘亲不如党亲的人建立的
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2030481/)
 
 作者：东京樱花团视频小组
 

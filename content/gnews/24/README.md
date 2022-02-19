@@ -2,8 +2,8 @@
 ---
 
 
-## 20220202文贵大直播:GCLUB卡和H-pay联系起来的意义没人能懂
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2030240/)
+## 20220202文贵大直播：H-PAY给用户的是最干净直接的信和用没有任何中间商
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2030319/)
 
 作者：东京樱花团视频小组
 

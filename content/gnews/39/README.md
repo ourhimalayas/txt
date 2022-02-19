@@ -2,28 +2,37 @@
 ---
 
 
-## 中日财经爆|正荣地产濒临爆雷边缘 2亿美元债即将违约
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2029130/)
+## 德州起诉脸书非法使用面部识别
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2029529/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-8.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fimg1.jiemian.com%2F101%2Foriginal%2F20220211%2F164457311196693600_a640x364.jpg&amp;imgrefurl=https%3A%2F%2Fm.jiemian.com%2Farticle%2F7094506.html&amp;tbnid=6LloEpExeXxp5M&amp;vet=12ahUKEwiW3NjIj4v2AhWTdHAKHVPFDLgQMygCegUIARC6AQ..i&amp;docid=kO2ZK6UDK0yGiM&amp;w=640&amp;h=364&amp;q=%E6%AD%A3%E8%8D%A3%E5%9C%B0%E4%BA%A7&amp;ved=2ahUKEwiW3NjIj4v2AhWTdHAKHVPFDLgQMygCegUIARC6AQ)
-2月18日晚间，中共国内正荣地产公告称，在市场状况不利背景下，可用于清偿债务的内部资金日益有限。预计现有的内部资源可能不足以解决于2022年3月即将到期的债务（包括于2022年3月5日全部赎回证券）。
+作者：纽约香草山农场 007
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月14日，据当地媒体消息显示，美国德克萨斯州总检察长已经提起了对脸书的诉讼，指控其利用面部识别技术秘密地收集和使用数百万德克萨斯民众的生物特征数据并非法谋利。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-19-上午2.49.05.png)
+起诉书称，在未经用户同意的情况下，脸书从照片和视频中数十亿次地捕获用户的生物特征数据，并且将这些信息披露给他人。此外，脸书也未能在合理的时间内销毁相关数据。
 
-因此，公司正在征求证券实益拥有人的同意，就证券提出若干建议豁免及修订，主要目的是改善公司的整体财务状况寻求展期，并寻求债务展期。而如果同意征求未能成功实行，公司可能无法全部赎回证券，且可能考虑进行替代的债务重组行动。
+起诉书指出，脸书明知这一行为违反了德克萨斯州的隐私保护法律，但其仍旧以牺牲个人安全和福祉为代价，利用用户的个人隐私信息发展其社交媒体帝国，并以此获得历史性暴利——这是大型科技公司欺骗性商业行为的又一实例，而它必须被停止。
 
-根据企业1月4日披露的信息，正荣地产将于2022年3月5日全部赎回所有发行在外的证券。截至当天，该笔待偿还债务即总金额为2亿美元的永续债。
+资料显示，脸书的面部识别项目自2010年起一直执行到2021年11月。此前，脸书曾在2020年以6.5亿美元的赔偿，和解了伊利诺伊州就该项目提出的诉讼。而此次德克萨斯州的起诉则将寻求对脸书数千亿美元的民事处罚。
 
-2月11日午间，市场就有传闻称，实控人欧宗荣或躺平，正荣将无法如期偿还该只永续债。后者在二级市场中价格便突然开启暴跌模式。连带着，正荣系两家港股上市平台正荣地产与正荣服务股价双双闪崩。于当日收盘，正荣地产与正荣服务分别报1.23港元和1.73港元，大跌66.39%和57.7%，市值瞬间蒸发逾百亿。且此后一周内，正荣系股价持续下跌。
+参考链接：
+1）[Pax­ton Sues Face­book for Using Unau­tho­rized Bio­met­ric Data](https://www.texasattorneygeneral.gov/news/releases/paxton-sues-facebook-using-unauthorized-biometric-data)
+2）[Texas sues Meta over Facebook’s past facial recognition practices](https://appleinsider.com/articles/22/02/14/texas-sues-meta-over-facebooks-past-facial-recognition-practices)
 
-直到今日，正荣终于正面回应了上述传闻。迷局解开，尽管“躺平”传闻消散，但毫无疑问，正荣也到了爆雷边缘。根据“同意征求备忘录中所述的同意征求”，届满时间为2022年3月11日下午五时。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-消息来源:
+总编：Irene木木
+编辑：Irene木木
+审核：Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-[闪崩风波后，正荣地产对2亿美元债寻求展期](https://news.sina.com.cn/c/2022-02-19/doc-ikyamrna1593839.shtml)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
