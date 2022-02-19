@@ -15,86 +15,86 @@
 
 ---
 
-### [有声|中共国民要求彻查锁链女事件](/content/gnews/1/README.md)
- ` MOSREC`
-
-### [NFSC新闻、G|TV新闻访谈简报|2022年2月19日早](/content/gnews/2/README.md)
- ` 纽约香草山MOS01`
-
-### [俄罗斯举行核演习](/content/gnews/3/README.md)
- ` Shuizhuyu`
-
-### [大直播后记：别错过躺平币](/content/gnews/4/README.md)
+### [七哥金句：美国侵略过中国吗？](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [延安性事（短篇纪实文学）（八）](/content/gnews/5/README.md)
+### [七哥金句：共党对新疆布局](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥金句：邪教的六个特征](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [有声|魔鬼的圈套——评杨贝贝和她的所谓采访（六）](/content/gnews/4/README.md)
+ ` MOSREC`
+
+### [2022年2月18日 《文贵大直播》全文字版](/content/gnews/5/README.md)
+ ` 温哥华扬帆农场七哥直播全文听写组`
+
+### [有声|中共国民要求彻查锁链女事件](/content/gnews/6/README.md)
+ ` MOSREC`
+
+### [NFSC新闻、G|TV新闻访谈简报|2022年2月19日早](/content/gnews/7/README.md)
+ ` 纽约香草山MOS01`
+
+### [俄罗斯举行核演习](/content/gnews/8/README.md)
+ ` Shuizhuyu`
+
+### [大直播后记：别错过躺平币](/content/gnews/9/README.md)
+ ` 雅典娜GNotes`
+
+### [延安性事（短篇纪实文学）（八）](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [砍柴放羊说](/content/gnews/6/README.md)
+### [砍柴放羊说](/content/gnews/11/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [出离愤怒：没人愿意提及北京冬奥会](/content/gnews/7/README.md)
+### [出离愤怒：没人愿意提及北京冬奥会](/content/gnews/12/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中国共产党是天下最迷信的党](/content/gnews/8/README.md)
+### [中国共产党是天下最迷信的党](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [聚焦：地方政府断炊，中共托底楼市](/content/gnews/9/README.md)
+### [聚焦：地方政府断炊，中共托底楼市](/content/gnews/14/README.md)
  ` 丁过`
 
-### [战友实例分享私人信托设立（四）实例讲解-马云家族信托](/content/gnews/10/README.md)
+### [战友实例分享私人信托设立（四）实例讲解-马云家族信托](/content/gnews/15/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [锁链女灾难引发国际哗然的灭共海啸](/content/gnews/11/README.md)
+### [锁链女灾难引发国际哗然的灭共海啸](/content/gnews/16/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [人类传奇：郭先生的个人破产成就了无数亿万富豪！](/content/gnews/12/README.md)
+### [人类传奇：郭先生的个人破产成就了无数亿万富豪！](/content/gnews/17/README.md)
  ` 纽约香草山MOS03`
 
-### [联准会5月1日起禁止官员购买股债及加密货币](/content/gnews/13/README.md)
+### [联准会5月1日起禁止官员购买股债及加密货币](/content/gnews/18/README.md)
  ` 日本东京方舟农场`
 
-### [美日经济周报（2月14日～2月18日）](/content/gnews/14/README.md)
+### [美日经济周报（2月14日～2月18日）](/content/gnews/19/README.md)
  ` 经济小组`
 
-### [2/18银河快讯：日俄首脑就乌克兰问题举行电话会谈；日本1月贸易进口额创历史新高](/content/gnews/15/README.md)
+### [2/18银河快讯：日俄首脑就乌克兰问题举行电话会谈；日本1月贸易进口额创历史新高](/content/gnews/20/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [警惕美国银行中介针对中国人的违法行为](/content/gnews/16/README.md)
+### [警惕美国银行中介针对中国人的违法行为](/content/gnews/21/README.md)
  ` 日本东京方舟农场`
 
-### [红生活与原气](/content/gnews/17/README.md)
+### [红生活与原气](/content/gnews/22/README.md)
  ` 纽约香草山MOS03`
 
-### [有声|美司法部及FBI宣布组建数字货币执法团队](/content/gnews/18/README.md)
+### [有声|美司法部及FBI宣布组建数字货币执法团队](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [江苏警方拘捕迫害前去探访锁链女的义士](/content/gnews/19/README.md)
+### [江苏警方拘捕迫害前去探访锁链女的义士](/content/gnews/24/README.md)
  ` 日本东京方舟农场`
 
-### [有声|中共病毒及疫苗灾难是对人类的一次大清算](/content/gnews/20/README.md)
- ` MOSREC`
-
-### [2/18/2022 文贵直播：欧美政府已经默认让奥米炕病毒集体感染民众，现在解除各种限制是因为经济和政治撑不住了](/content/gnews/21/README.md)
- ` 秘密翻译组-北美组`
-
-### [有声|以色列将取消疫苗接种证明](/content/gnews/22/README.md)
- ` MOSREC`
-
-### [战友实例分享私人信托设立（四）投资组合公司架构—SPC（需要金融牌照）](/content/gnews/23/README.md)
- ` 喜马拉雅德国纽伦堡正义农场`
-
-### [中共通过向美国高校捐款影响美国的高等教育](/content/gnews/24/README.md)
+### [中共通过向美国高校捐款影响美国的高等教育](/content/gnews/25/README.md)
  ` 首尔天池农场`
 
-### [港共政府国安处拘捕艺人阮民安](/content/gnews/25/README.md)
+### [港共政府国安处拘捕艺人阮民安](/content/gnews/26/README.md)
  ` NFSC News`
 
-### [2022年2月19日，全球中共病毒疫情情况汇总](/content/gnews/26/README.md)
+### [2022年2月19日，全球中共病毒疫情情况汇总](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [林郑月娥：香港“方舱医院”明日开建](/content/gnews/27/README.md)
- ` 首尔天池农场`
 
 ### [台湾加强立法防止中共窃取芯片技术](/content/gnews/28/README.md)
  ` NFSC News`
