@@ -2,8 +2,8 @@
 ---
 
 
-## 七哥个人破产的意义
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2027503/)
+## 个人破产，我们告人的不会停止
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2027534/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
