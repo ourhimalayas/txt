@@ -2,28 +2,21 @@
 ---
 
 
-## 有声|日本民间反抗对儿童的中共病毒疫苗接种
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2032809/)
+## 林郑月娥：香港“方舱医院”明日开建
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2032833/)
 
-配音：香草山巡管部– 文凯琳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月16日，据日本媒体消息显示，日本兵库县宝冢市宫泽诊所的院长宫泽大辅，以及《疫苗后遗症》主创人员之一、京都大学的宫泽孝幸副教授近日联合了超过一万名医生，要求日本政府撤销对该国所有5到11岁的儿童发放的中共病毒疫苗接种券，改为由接种者自行申请的模式。
+撰稿—八木
+校对/上传—无明逆流
 
-据了解，日本政府即将于3月份在当地5到11岁的儿童群体中推广中共病毒疫苗，但这引起了日本民间对儿童接种疫苗的担忧和反抗。当天，在日本媒体对静冈县儿童家长的采访中，绝大多数父母都表示出对疫苗副作用的质疑。有家长提及，由于接种儿童的年龄较低，但凡出现接种副作用的情况，他们无法准确地向父母和医生表达出自己的症状，而这会严重威胁到孩子的安全。
+2月18日，港共特区行政长官林郑月娥举行新闻发布会，她在接受中共广播总台记者采访时说道，“中央政府全力支持香港抗击疫情，内地支援香港抗疫流行病学专家组给香港带来了宝贵的抗疫经验。19日起，香港将在内地团队的协助下开始建设一个临时隔离设施“方舱医院”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/W01.jpeg)图：自由时报
+对于急剧增加的病毒感染人数，林郑月娥称香港现阶段不会“封城”。她表示特区政府正在制定香港全民核酸检测方案，并会采取更加严厉的疫情防疫措施，特区政府也会在中共的协助下建立隔离措施。
+林郑月娥表示，“在中央的助力下，香港很快会有隔离设施‘方舱医院’，这将令我们在很短的时间，提升各方面的能力。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/W16.jpeg)图：方舱医院
+**中共将借香港病毒疫情管控香港**
 
-文字版原文：[日本民间反抗对儿童的中共病毒疫苗接种](https://gnews.org/zh-hans/2025578/)
+港共政府里应外合，加上中共借病毒疫情进一步的控制香港，香港正在急速成为中共治理下的大陆城市。方舱医院和中共的疫情管制模式出现香港，就是香港人又一次灾难的开始，这是极度危险的信号。中共所谓的成功防疫模式，就是蒙住中国人的眼睛，捂住中国人的耳朵；堵住中国人的嘴。香港人民正在走入和中国人一样的灾难之路。
 
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

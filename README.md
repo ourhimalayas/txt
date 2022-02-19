@@ -15,128 +15,128 @@
 
 ---
 
-### [联准会5月1日起禁止官员购买股债及加密货币](/content/gnews/1/README.md)
+### [锁链女灾难引发国际哗然的灭共海啸](/content/gnews/1/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [联准会5月1日起禁止官员购买股债及加密货币](/content/gnews/2/README.md)
  ` 日本东京方舟农场`
 
-### [美日经济周报（2月14日～2月18日）](/content/gnews/2/README.md)
+### [美日经济周报（2月14日～2月18日）](/content/gnews/3/README.md)
  ` 经济小组`
 
-### [2/18银河快讯：日俄首脑就乌克兰问题举行电话会谈；日本1月贸易进口额创历史新高](/content/gnews/3/README.md)
+### [2/18银河快讯：日俄首脑就乌克兰问题举行电话会谈；日本1月贸易进口额创历史新高](/content/gnews/4/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [警惕美国银行中介针对中国人的违法行为](/content/gnews/4/README.md)
+### [警惕美国银行中介针对中国人的违法行为](/content/gnews/5/README.md)
  ` 日本东京方舟农场`
 
-### [红生活与原气](/content/gnews/5/README.md)
+### [红生活与原气](/content/gnews/6/README.md)
  ` 纽约香草山MOS03`
 
-### [有声|美司法部及FBI宣布组建数字货币执法团队](/content/gnews/6/README.md)
+### [有声|美司法部及FBI宣布组建数字货币执法团队](/content/gnews/7/README.md)
  ` MOSREC`
 
-### [江苏警方拘捕迫害前去探访锁链女的义士](/content/gnews/7/README.md)
+### [江苏警方拘捕迫害前去探访锁链女的义士](/content/gnews/8/README.md)
  ` 日本东京方舟农场`
 
-### [有声|中共病毒及疫苗灾难是对人类的一次大清算](/content/gnews/8/README.md)
+### [有声|中共病毒及疫苗灾难是对人类的一次大清算](/content/gnews/9/README.md)
  ` MOSREC`
 
-### [2/18/2022 文贵直播：欧美政府已经默认让奥米炕病毒集体感染民众，现在解除各种限制是因为经济和政治撑不住了](/content/gnews/9/README.md)
+### [2/18/2022 文贵直播：欧美政府已经默认让奥米炕病毒集体感染民众，现在解除各种限制是因为经济和政治撑不住了](/content/gnews/10/README.md)
  ` 秘密翻译组-北美组`
 
-### [有声|以色列将取消疫苗接种证明](/content/gnews/10/README.md)
+### [有声|以色列将取消疫苗接种证明](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [2/18/2022 文贵直播：媒体在疫苗灾难中起到了巨大作用，全世界最恨的是扎克伯格、比尔·盖茨、当地CDC、政府和福奇](/content/gnews/11/README.md)
+### [2/18/2022 文贵直播：媒体在疫苗灾难中起到了巨大作用，全世界最恨的是扎克伯格、比尔·盖茨、当地CDC、政府和福奇](/content/gnews/12/README.md)
  ` 秘密翻译组-北美组`
 
-### [有声|香港中共病毒形势失控](/content/gnews/12/README.md)
+### [有声|香港中共病毒形势失控](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [五角大楼：拟增加稀土和锂的库存以减少对中共国的依赖](/content/gnews/13/README.md)
+### [五角大楼：拟增加稀土和锂的库存以减少对中共国的依赖](/content/gnews/14/README.md)
  ` 日本东京方舟农场`
 
-### [战友实例分享私人信托设立（四）投资组合公司架构—SPC（需要金融牌照）](/content/gnews/14/README.md)
+### [战友实例分享私人信托设立（四）投资组合公司架构—SPC（需要金融牌照）](/content/gnews/15/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [中共通过向美国高校捐款影响美国的高等教育](/content/gnews/15/README.md)
+### [中共通过向美国高校捐款影响美国的高等教育](/content/gnews/16/README.md)
  ` 首尔天池农场`
 
-### [有声|美中不断交前提是中共必须配合病毒溯源调查](/content/gnews/16/README.md)
+### [有声|美中不断交前提是中共必须配合病毒溯源调查](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [港共政府国安处拘捕艺人阮民安](/content/gnews/17/README.md)
+### [港共政府国安处拘捕艺人阮民安](/content/gnews/18/README.md)
  ` NFSC News`
 
-### [2022年2月19日，全球中共病毒疫情情况汇总](/content/gnews/18/README.md)
+### [2022年2月19日，全球中共病毒疫情情况汇总](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [林郑月娥：香港“方舱医院”明日开建](/content/gnews/19/README.md)
+### [林郑月娥：香港“方舱医院”明日开建](/content/gnews/20/README.md)
  ` 首尔天池农场`
 
-### [有声|日本民间反抗对儿童的中共病毒疫苗接种](/content/gnews/20/README.md)
+### [有声|日本民间反抗对儿童的中共病毒疫苗接种](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [2/18/2022 文贵直播：不管打不打台湾，全世界都认定习曾要打台湾，而普京在乌克兰问题上转移了注意力；俄罗斯问中共打台湾后会不会被踢出SWIFT系统，美国人点了头](/content/gnews/21/README.md)
+### [2/18/2022 文贵直播：不管打不打台湾，全世界都认定习曾要打台湾，而普京在乌克兰问题上转移了注意力；俄罗斯问中共打台湾后会不会被踢出SWIFT系统，美国人点了头](/content/gnews/22/README.md)
  ` 秘密翻译组-北美组`
 
-### [台湾加强立法防止中共窃取芯片技术](/content/gnews/22/README.md)
+### [台湾加强立法防止中共窃取芯片技术](/content/gnews/23/README.md)
  ` NFSC News`
 
-### [有声| 郭先生盖特：中共作恶及风险提示](/content/gnews/23/README.md)
+### [有声| 郭先生盖特：中共作恶及风险提示](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [拜登确信普京决定入侵乌克兰](/content/gnews/24/README.md)
+### [拜登确信普京决定入侵乌克兰](/content/gnews/25/README.md)
  ` 首尔天池农场`
 
-### [二针疫苗后不舒服, 死在家中，家人投诉](/content/gnews/25/README.md)
+### [二针疫苗后不舒服, 死在家中，家人投诉](/content/gnews/26/README.md)
  ` xiaobaige`
 
-### [郭先生揭露习近平的痛苦之源](/content/gnews/26/README.md)
+### [郭先生揭露习近平的痛苦之源](/content/gnews/27/README.md)
  ` NFSC News`
 
-### [有声|德州起诉脸书非法使用面部识别](/content/gnews/27/README.md)
+### [有声|德州起诉脸书非法使用面部识别](/content/gnews/28/README.md)
  ` MOSREC`
 
-### [冬奥会金牌得主直言不讳，称自己不再去中共国](/content/gnews/28/README.md)
+### [冬奥会金牌得主直言不讳，称自己不再去中共国](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [做不好快递的中国邮政正式卖咖啡？](/content/gnews/29/README.md)
+### [做不好快递的中国邮政正式卖咖啡？](/content/gnews/30/README.md)
  ` 首尔天池农场`
 
-### [银河快讯: 岸田将与乌克兰总统举行首次会晤；日本400多万人感染新冠病毒](/content/gnews/30/README.md)
+### [银河快讯: 岸田将与乌克兰总统举行首次会晤；日本400多万人感染新冠病毒](/content/gnews/31/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [战友实例分享私人信托设立（四）之信托和基金的结合](/content/gnews/31/README.md)
+### [战友实例分享私人信托设立（四）之信托和基金的结合](/content/gnews/32/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [02/19/22 香港快讯 林郑：正制订全民检测方案、没有考虑全港封城](/content/gnews/32/README.md)
+### [02/19/22 香港快讯 林郑：正制订全民检测方案、没有考虑全港封城](/content/gnews/33/README.md)
  ` 英喜-粵語組`
 
-### [樱花FM|美国试图阻止中共在非洲建立大西洋基地](/content/gnews/33/README.md)
+### [樱花FM|美国试图阻止中共在非洲建立大西洋基地](/content/gnews/34/README.md)
  ` 樱花FM`
 
-### [樱花FM|丹麦撤销新冠病毒的强制规则 法国取消室外口罩禁令](/content/gnews/34/README.md)
+### [樱花FM|丹麦撤销新冠病毒的强制规则 法国取消室外口罩禁令](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [腾讯、阿里电商网站上榜美国最新“恶名市场”黑名单](/content/gnews/35/README.md)
+### [腾讯、阿里电商网站上榜美国最新“恶名市场”黑名单](/content/gnews/36/README.md)
  ` 日本东京方舟农场`
 
-### [樱花FM|日本通过中共人权决议 维族和西藏问题受关注](/content/gnews/36/README.md)
+### [樱花FM|日本通过中共人权决议 维族和西藏问题受关注](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【秘翻北美时评】班农先生最新卡车司机采访](/content/gnews/37/README.md)
+### [【秘翻北美时评】班农先生最新卡车司机采访](/content/gnews/38/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [樱花FM|日美韩三国外长在夏威夷会晤，讨论威慑朝鲜问题](/content/gnews/38/README.md)
+### [樱花FM|日美韩三国外长在夏威夷会晤，讨论威慑朝鲜问题](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2022/02/19 英喜时事速递](/content/gnews/39/README.md)
+### [2022/02/19 英喜时事速递](/content/gnews/40/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [为配合特鲁多对卡车司机的镇压紧急状态法的议会辩论被无故取消](/content/gnews/40/README.md)
+### [为配合特鲁多对卡车司机的镇压紧急状态法的议会辩论被无故取消](/content/gnews/41/README.md)
  ` 蓝莲花农场`
-
-### [DC每日热点0219](/content/gnews/41/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 
 ### [樱花FM|美日印澳承诺深化合作确保印太不受中共胁迫](/content/gnews/42/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

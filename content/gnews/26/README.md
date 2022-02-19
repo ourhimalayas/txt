@@ -2,41 +2,18 @@
 ---
 
 
-## 郭先生揭露习近平的痛苦之源
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2032656/)
+## 二针疫苗后不舒服, 死在家中，家人投诉
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2032689/)
 
-作者：日本方舟农场-Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月18日，郭文贵先生在大直播中揭露，中共北京冬奥会期间，墙内的三名女性成为引发习近平不得不做手术的痛苦之源。
+#### 翻译              意大利达芬奇农场                 小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-19-alle-13.40.12-1.png)图片来源：eventiavversinews.it
+西西里当地的拉古萨检察院下令对一名64岁的名叫卡拉多•布利希(Corrado Puglisi)的警察进行尸检。这位警察2月17日上午在家中被发现死亡。事实上家属已提交投诉， 以确定死因。他们怀疑死亡可能与前几天接种的第二剂新冠疫苗有关。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1-10.jpeg)
+据初步调查，该男子在接种第二剂疫苗后感到不适。 家人怀疑跟疫苗有关。他们通过律师在当地检察院投诉。地方法官下令对这名前警察停留在医院里的尸体进行尸检。
 
-首先，彭帅事件仍然让很多参加中共冬奥会的各国运动员质疑，他们还在探究彭帅的发声是否真实，以及中共对此的处理是否合理合法。
+原文链接： [https://www.eventiavversinews.it/sicilia-trovato-morto-in-casa-ieri-mattina-stava-gia-male-da-qualche-giorno-subito-dopo-la-seconda-dose-la-famiglia-denuncia-in-procura/](https://www.eventiavversinews.it/sicilia-trovato-morto-in-casa-ieri-mattina-stava-gia-male-da-qualche-giorno-subito-dopo-la-seconda-dose-la-famiglia-denuncia-in-procura/)
 
-再者，徐州“铁链女”事件爆发的时间以及其所造成的国际影响让习近平很难堪。郭先生提到，班农先生和纳瓦罗先生都为“铁链女”的遭遇而流泪，甚至连习近平的母亲与彭丽媛都感到气愤。
-
-最后，谷爱凌事件目前在全球进一步引发了国际社会对中共国的不满和质疑。
-
-2月18日，郭文贵先生在大直播中揭露，中共北京冬奥会期间，墙内的三名女性成为引发习近平不得不做手术的痛苦之源。
-
-首先，彭帅事件仍然让很多参加中共冬奥会的各国运动员质疑，他们还在探究彭帅的发声是否真实，以及中共对此的处理是否合理合法。
-
-再者，徐州“铁链女”事件爆发的时间以及其所造成的国际影响让习近平很难堪。郭先生提到，班农先生和纳瓦罗先生都为“铁链女”的遭遇而流泪，甚至连习近平的母亲与彭丽媛都感到气愤。
-
-最后，谷爱凌事件目前在全球进一步引发了国际社会对中共国的不满和质疑。
-
-郭先生指出，习近平根本没有任何策略可以应对上述三个事件的集中爆发，这也给习近平增添了巨大的压力，所以其才出现了脾脏和肾脏同时病变的罕见状况。
-
-参考链接： [2022年2月18日 文贵大直播：乌克兰俄罗斯危机各执一词；Omicron病毒解禁众说纷纭](https://gettr.com/post/pvffqc88e7)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
-
-总编：Irene木木
-编辑：Irene木木
-审核：Irene木木
-校正/发稿：谐趣园
-
-
+编辑、上传：  Xiao   baige
 
  
 
