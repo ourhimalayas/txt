@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：什么叫信仰和宗教
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2033718/)
+## 七哥金句：Hpay买天买地，中间买飞机，谁不服？
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2033726/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句10.001-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句1.001-3.jpeg)
 整理：雅典娜农场
 发布：枫叶红了
 

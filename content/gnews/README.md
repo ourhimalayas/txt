@@ -21,62 +21,62 @@
 ### [Stew Peters Show：美国FDA里负责批准疫苗的人说无论如何疫苗都会得到批准，有多少人受到影响或永久残疾或被杀害都不重要，它仍会得到批准](/content/gnews/2/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [卡车司机们是否担心政府冻结他们的银行账户以及吊销他们的执照？](/content/gnews/3/README.md)
+### [瑞银收到5亿美元的诉讼案](/content/gnews/3/README.md)
+ ` 喜马拉雅德国纽伦堡正义农场`
+
+### [卡车司机们是否担心政府冻结他们的银行账户以及吊销他们的执照？](/content/gnews/4/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [新的仿生眼让盲人重见光明](/content/gnews/4/README.md)
+### [新的仿生眼让盲人重见光明](/content/gnews/5/README.md)
  ` 科海拾星`
 
-### [2022/02/18 文贵先生直播精要](/content/gnews/5/README.md)
+### [2022/02/18 文贵先生直播精要](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [七哥金句：直面自己的好坏](/content/gnews/6/README.md)
+### [七哥金句：直面自己的好坏](/content/gnews/7/README.md)
  ` 雅典娜GNotes`
 
-### [欧盟就电信专利问题对中共国向世贸组织提起诉讼](/content/gnews/7/README.md)
+### [欧盟就电信专利问题对中共国向世贸组织提起诉讼](/content/gnews/8/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [七哥金句：Hpay上线，要做的事](/content/gnews/8/README.md)
+### [七哥金句：Hpay上线，要做的事](/content/gnews/9/README.md)
  ` 雅典娜GNotes`
 
-### [罗马三分之一旅馆关门，2025年才可恢复正常](/content/gnews/9/README.md)
+### [罗马三分之一旅馆关门，2025年才可恢复正常](/content/gnews/10/README.md)
  ` xiaobaige`
 
-### [七哥金句：Hpay买天买地，中间买飞机，谁不服？](/content/gnews/10/README.md)
+### [七哥金句：Hpay买天买地，中间买飞机，谁不服？](/content/gnews/11/README.md)
  ` 雅典娜GNotes`
 
-### [七哥金句：什么叫信仰和宗教](/content/gnews/11/README.md)
+### [七哥金句：什么叫信仰和宗教](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
 
-### [七哥金句：最高境界&#8211;情缘](/content/gnews/12/README.md)
+### [七哥金句：最高境界&#8211;情缘](/content/gnews/13/README.md)
  ` 雅典娜GNotes`
 
-### [2月19日勿忘香港（图片6-10）](/content/gnews/13/README.md)
+### [2月19日勿忘香港（图片6-10）](/content/gnews/14/README.md)
  ` 波士顿五月花农场`
 
-### [中共是如何影响（渗透）美国高等教育的？](/content/gnews/14/README.md)
+### [中共是如何影响（渗透）美国高等教育的？](/content/gnews/15/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [七哥金句：所有的新中国联邦人，承受了使命](/content/gnews/15/README.md)
+### [七哥金句：所有的新中国联邦人，承受了使命](/content/gnews/16/README.md)
  ` 雅典娜GNotes`
 
-### [七哥金句：爆料革命靠什么成长](/content/gnews/16/README.md)
+### [七哥金句：爆料革命靠什么成长](/content/gnews/17/README.md)
  ` 雅典娜GNotes`
 
-### [中共是如何影响（渗透）美国高等教育的？](/content/gnews/17/README.md)
+### [中共是如何影响（渗透）美国高等教育的？](/content/gnews/18/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [七哥金句：凡事不要走极端](/content/gnews/18/README.md)
+### [七哥金句：凡事不要走极端](/content/gnews/19/README.md)
  ` 雅典娜GNotes`
 
-### [郭文贵先生让你拥有HCOIN 保住财产，HCOIN 是数字黄金货币。](/content/gnews/19/README.md)
+### [郭文贵先生让你拥有HCOIN 保住财产，HCOIN 是数字黄金货币。](/content/gnews/20/README.md)
  ` mayflowertranslate`
 
-### [文贵先生盖特精要2022/02/19](/content/gnews/20/README.md)
+### [文贵先生盖特精要2022/02/19](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [七哥金句：我不是神，也代表不了神](/content/gnews/21/README.md)
- ` 雅典娜GNotes`
 
 ### [媒体报道俄罗斯即将入侵乌克兰后，莫斯科宣布从边境撤军](/content/gnews/22/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
