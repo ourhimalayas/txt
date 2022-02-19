@@ -2,10 +2,12 @@
 ---
 
 
-## 让更多人了解疫苗的副作用
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2028931/)
+## 白宫谈俄乌危机：如果俄选择进攻，中共将付出代价
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2029195/)
 
-台灣寶島農場
+02/15/2022 白宫发言人珍·莎琪谈俄乌危机：如果俄选择进攻，中共将付出代价。
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

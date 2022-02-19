@@ -2,43 +2,35 @@
 ---
 
 
-## 石正丽在美国微生物科研机构具有拥有影响力
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2028543/)
+## 有声｜拜登称 普京已经决定入侵乌克兰
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2029016/)
 
-#### **【雅典娜观察】和您一起洞察世界**
+By:**秘翻新闻**
 
-**翻译/编辑：MSGZ**
+**2022-02-19**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8-23.png)图片来源 （Serhii Hudak/Ukrinform/Future Publishing via Getty Images）
+据合众国际社2 月 18 日报道，总统乔拜登周五表示，俄罗斯总统弗拉基米尔普京已做出入侵乌克兰的决定。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/7-28.jpg)图片来源：washingtonpost
+拜登在白宫就俄罗斯和乌克兰之间的紧张局势发表简短讲话时称，截至目前，我确信普京已经做出了决定。我们有理由相信这一点。当被问及他的评估依据是什么时，拜登称，情报报告表明即将发生暴力事件。
 
+另外据《福克斯新闻》2月18日报道称，乌克兰总统沃洛季米尔·泽伦斯基决定离开基辅，参加本周末的慕尼黑安全会议。
 
-《国家脉搏》报道称，石正丽博士是臭名昭著的武汉病毒研究所的冠状病毒研究员，却被选为美国微生物学会的领导职务，该学会从美国纳税人那里获得数百万美元。据透露，该学院还建议联邦政府在高级生物安全实验室中 “消除国际合作的障碍”。
+消息人士证实，泽伦斯基将于周六与美国副总统卡马拉·哈里斯会面，如果俄罗斯真的成功入侵基辅，他将成为一个关键打击目标。
 
-石正丽也被称为武汉病毒研究所的 “蝙蝠女”，她经营着这个有争议的中国实验室的新兴传染病中心，并从安东尼·福奇的国家卫生研究院机构（NIH）获得拨款，以操纵蝙蝠冠状病毒，使其对人类更加致命。对许多人来说，这就是COVID-19的开始。
+据报道，一位美国高级国防官员表示，在未来几天内，俄罗斯军队极有可能对乌克兰进行重大入侵，而基辅是其首都。这位官员还表示，俄罗斯军队已经离开了他们的军营，大约40-50%的普京军队已经进入攻击位置。
 
-《国家脉搏》揭示，尽管史石正丽是“生态健康联盟”主席彼得·达扎克（Peter Daszak）的 “长期合作者”，并成为掩盖COVID-19起源的工具，但石正丽在美国科学机构中的领导地位是以美国纳税人为代价。
+报道称， 普京现在有120-125个营级战术小组在乌克兰边境集结。所有特种部队都已被动员起来，保证火箭部队和弹道导弹部队的射程覆盖乌克兰的首都基辅。
 
-**石正丽在2019****年1****月当选为美国微生物学会（American Academy of Microbiology****，简称AAM****）和美国微生物学会（American Society of Microbiology’s ****，简称ASM****）的 “****荣誉领导团体”****的研究员。**
+新闻来源 [**https://www.foxnews.com/politics/nato-allies-concerned-by-zelenskyy-move-to-leave-ukraine-threat-of-russian-almost-certain
+https://www.upi.com/Top\_News/World-News/2022/02/18/Ukraine-separatists-Biden-Harris/6961645197758/**](https://www.foxnews.com/politics/nato-allies-concerned-by-zelenskyy-move-to-leave-ukraine-threat-of-russian-almost-certain
+https://www.upi.com/Top_News/World-News/2022/02/18/Ukraine-separatists-Biden-Harris/6961645197758/)
 
-石正丽在ASM网站上仍然保留着一个传记页面，这表明该研究员资格仍然是活跃的。尽管《国家脉搏》多次要求发表评论，但两个微生物学会均没有回应关于石正丽的现状或围绕其研究资金细节的询问。
+秘翻新闻 Grace 、文洋 联合报道
 
-**石正丽在美国医学会中的顾问角色使她对该机构的方向具有影响力，该机构在2020****年获得了超过530****万美元的联邦资金。**
+发布 : 恩典
 
-ASM有一个宣传计划，它部署其成员就公共卫生问题和研究法规游说国会，包括与生物安全4级（BSL-4）设施有关的政策。武汉病毒研究所拥有一个BSL-4实验室。
-
-彼得·达扎克（Peter Daszak）是石正丽的长期朋友和合作者。在《国家脉搏》对其前所未有的利益冲突进行独家报道后，其被“COVID-19起源调查小组”除名。
-
-新闻来源链接：[https://thenationalpulse.com/2022/02/18/shi-zhengli-on-asm-leadership-board/](https://thenationalpulse.com/2022/02/18/shi-zhengli-on-asm-leadership-board/)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMAGE-2021-12-13-113746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

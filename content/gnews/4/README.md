@@ -2,8 +2,8 @@
 ---
 
 
-## 20220206文贵大直播：女性的待遇在中共统治下未曾改变
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2029041/)
+## 20220206文贵大直播：七哥和战友们会让共产党的冬奥会开成不会闭幕的冬奥会
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2029290/)
 
 作者：东京樱花团视频小组
 
@@ -18,7 +18,7 @@
 编辑发布：东京樱花团视频小组
 
 * * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-5.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-7.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

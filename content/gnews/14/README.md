@@ -2,8 +2,8 @@
 ---
 
 
-## 政府不应箝制言论自由，也不应滥权阻止抗议
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2028887/)
+## 普京让全世界都知道习近平曾经有想打台湾的想法
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2029181/)
 
 台灣寶島農場
 
