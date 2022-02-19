@@ -2,64 +2,53 @@
 ---
 
 
-## 俄罗斯刚刚炸毁乌克兰东部一条重要天然气管道
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2027179/)
+## 为了平复民意,中共不得不成立徐州“铁链女”专案调查组
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2027405/)
 
-**参议员马可.卢比奥**： [#俄罗斯](https://twitter.com/hashtag/%E4%BF%84%E7%BD%97%E6%96%AF?src=hashtag_click) [#Russia](https://twitter.com/hashtag/Russia?src=hashtag_click) 刚刚炸毁了#乌克兰 [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hashtag_click) 东部的一条重要天然气管道，现在将错误地归咎于乌克兰军队。 他们的宣传机构在其发生几分钟后就开始传播它。 【转俄罗斯新闻网推文图片称：强力爆炸击中了乌克兰东部的另一个城市】
+![](https://assets.gnews.org/wp-content/uploads/2022/02/a9d4b2da6857d5cd3fc80e42041f8594-2-600x338-1.jpg)“铁链女”–徐州八孩母亲。（微博视频截图）
 
+摘要翻译：
 
+来源于《印度时报》网站2022年02月17日的报道，
 
-> [#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw) just blew up an important gas pipeline in Eastern [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) & will now falsely blame it on Ukrainian forces. And their propaganda outlets started spreading it just minutes after it happened. [pic.twitter.com/9bWrSvcQ0y](https://t.co/9bWrSvcQ0y)
-> — Marco Rubio (@marcorubio) [February 18, 2022](https://twitter.com/marcorubio/status/1494788172626202629?ref_src=twsrc%5Etfw)
+中共国家电视台周四表示，中国江苏省政府将“彻底”调查围绕一名女子脖子被铁链锁住的视频的事实，此举旨在平息公众对当局忽视的愤怒。
 
+该事件于1月下旬在社交媒体上发布一段视频后曝光，该视频显示这名妇女在寒冷的环境中被锁。其它视频显示，她的丈夫列出了他所说的他们共同拥有的八个孩子的名字。这些视频在社交媒体上疯传，促使她所在的江苏省的市县当局展开调查。但当局最初说她患有精神病，并否认了贩卖人口的说法后，人们的愤怒爆发了。
 
+虽然他们后来表示，已经拘留了包括她丈夫在内的三人，而且确实涉及人口贩卖，但公众的愤慨只增不减，批评者批评这些调查的处理方式很拙劣。这还引发了关于中共国处理人口买卖案件的争论，特别是在江苏徐州市周边的农村地区，在那里，这个问题多年来一直被记录为普遍现象。
 
-**美国国务院**： 国务卿布林肯[@SecBlinken](https://twitter.com/SecBlinken)：我们必须解决俄罗斯现在对 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click) 所做的事情……俄罗斯说它正在撤军。 我们却没有看到这种情况实地发生。
+江苏省政府决定成立专案组全面调查此案，“彻底查清事实，依法严惩相关违法犯罪行为，严肃追究责任人的责任”，中央电视台周四报道。尽管政府试图向公众保证，同时在线审查员也试图删除一些对话，但最近几周社交媒体对该案件的愤怒仍在增加。
 
-【附布林肯的讲话视频】
+一些社交媒体用户表示，此案件的处理，让中共国在冬奥会期间试图鼓励的欢乐气氛黯然失色，并将国家媒体和政府对该妇女案件的缺乏关注，与对滑雪冠军谷爱凌等国家运动员的吹捧进行了对比。
 
+“与其关心挂在某个女孩脖子上的金牌，我们更应该关心挂在那个女人脖子上的金属锁链。这是因为，虽然我们大多数人和我们的女儿可能永远无法取得前者的成功，但我们极有可能意外地成为后者，”华图网王坤在中共国相当于推特的微博上写道。
 
+一些自称是北京大学和浙江大学(中共国一些顶尖教育机构)校友的人，在网上发起请愿活动，敦促中央政府审查地方当局对事件的处理情况，不过这些内容在周三已被审查员删除。一些中共国调查记者还发表了有关此事件的报道，挖掘了质疑地方当局结论的文件。
 
-> .[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw): We must address what Russia is doing right now to Ukraine…Russia says it’s drawing down forces. We do not see that happening on the ground. [pic.twitter.com/Gq0h1pI9xo](https://t.co/Gq0h1pI9xo)
-> — Department of State (@StateDept) [February 18, 2022](https://twitter.com/StateDept/status/1494703253786824707?ref_src=twsrc%5Etfw)
+许多评论敦促江苏省政府不要局限于该女子的案件，要彻底调查中共国有据可查的、长期存在的，妇女被人贩子拐卖给徐州市周围村庄男人做新娘的问题。
 
+**简评：**
+在中共国488家媒体、2.7万人原创参与炒作“运动员千人计划”的谷爱凌，阅读量敌不过原创帖“徐州丰县铁链女”，用中共国老百姓自己的话来说：与自身和家人的生命安全相比，爱国是次要的，网红更是次要的。冬奥会不就是个运动会嘛！铁链女案件，折射出的是中共政府一贯漠视老百姓的死活，以及中共治下人性的泯灭！此事件也反映出，中共的“维护妇女儿童的合法权益”，不过是喊口号作秀，给自己脸上贴金罢了！
 
+现在江苏省政府抗不过舆论压力，成立了徐州丰县铁链女专案组，无论是为了试图缓和舆论压力，还是为该事件“一锤定音”，都不能掩盖中共对中共国人民的恶。
+在中共国内舆论被社会主义铁拳无情打击的时候，铁链女事件也通过英、法、德、西、日、韩、泰、阿、印等不同语言、通过国际媒体在全世界传播。自由国家的人民开始发声，可见言论自由是多么的重要！同时全世界民众都在看中共如何收场徐州铁链女事件。
 
-**参议员马可.卢比奥**： 我们知道 [#普京](https://twitter.com/hashtag/%E6%99%AE%E4%BA%AC?src=hashtag_click) [#Putin](https://twitter.com/hashtag/Putin?src=hashtag_click) 在入侵 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click) [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hashtag_click) 之前会采取的每一步现在都已经发生了。 接下来的几天里，世界将发生很大变化。
+新闻链接：[As anger grows over chained woman, Chinese province to investigate](https://timesofindia.indiatimes.com/world/china/as-anger-grows-over-chained-woman-chinese-province-to-investigate/articleshow/89636449.cms?utm_source=contentofinterest&amp;utm_medium=text&amp;utm_campaign=cppst&amp;from=mdr)
 
+*翻译/简评：Brianchow*
 
+*校对：Julia Win*
 
-> Every single step we knew [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw) would take before invading [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) has now happened. 
-> 
-> The world is going to change a lot over the next few days.
-> — Marco Rubio (@marcorubio) [February 18, 2022](https://twitter.com/marcorubio/status/1494783604148383749?ref_src=twsrc%5Etfw)
+* * *
 
-
-
-**参议员罗杰·马歇尔**: 当一些人迎合 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 和 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 时，球星埃内斯·坎特[@EnesFreedom](https://twitter.com/EnesFreedom) 发声了。 作为一名新的美国公民，他继续为自由而发声。 【附视频，马歇尔议员与埃内斯·坎特对谈，谈论为自由发声，谴责中共践踏人权】
-
-
-
-> While some pander to China & the CCP, [@EnesFreedom](https://twitter.com/EnesFreedom?ref_src=twsrc%5Etfw) speaks up. As a new American citizen, he continues to speak up on behalf of freedom. [pic.twitter.com/H1S03xryIO](https://t.co/H1S03xryIO)
-> — Dr. Roger Marshall (@RogerMarshallMD) [February 18, 2022](https://twitter.com/RogerMarshallMD/status/1494729488172789761?ref_src=twsrc%5Etfw)
-
-
-
-**参议员泰德·克鲁兹**： 随着在 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的奥运会的继续进行，每个美国人都应该说真话，大声谴责 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的种族灭绝。 【附视频，展示中共犯下的种族灭绝罪行，克鲁兹议员呼吁人们大声说出真相】
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-> As the Olympics in China continue, every American should speak the truth and call out China’s genocide. [pic.twitter.com/uv5OOOftGH](https://t.co/uv5OOOftGH)
-> — Senator Ted Cruz (@SenTedCruz) [February 18, 2022](https://twitter.com/SenTedCruz/status/1494733694707322880?ref_src=twsrc%5Etfw)
-
-
-
-**美国国会中国委员会**： 令人失望的是，NBC体育没有报道 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的大规模人权侵犯，也没有报道奥委会新闻媒体为 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 政府提供了一个无批评的宣传平台的共谋。他们可以祝贺运动员和为全球观众提供关于冬奥会主办国的内容。 【转华盛顿邮报，NBC 几乎对中国在奥运报道中的侵犯人权行为保持沉默】
-
-
-
-> It is disappointing that [@NBCsports](https://twitter.com/NBCSports?ref_src=twsrc%5Etfw) has not covered massive human rights abuses in China or the [@iocmedia](https://twitter.com/iocmedia?ref_src=twsrc%5Etfw)'s complicity in giving the Chinese gov't a criticism-free platform for propaganda. They can celebrate athletes & give global viewers context about the [#Olympic](https://twitter.com/hashtag/Olympic?src=hash&amp;ref_src=twsrc%5Etfw) host country. [https://t.co/Ag1Zf6re2g](https://t.co/Ag1Zf6re2g)
-> — China Commission (@CECCgov) [February 18, 2022](https://twitter.com/CECCgov/status/1494669967282823171?ref_src=twsrc%5Etfw)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
 
