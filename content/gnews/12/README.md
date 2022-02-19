@@ -2,64 +2,26 @@
 ---
 
 
-## 有声|㚑魂使命
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2032451/)
+## 樱花FM|美国试图阻止中共在非洲建立大西洋基地
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2032522/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-我们是蓝色灵魂
-带着沉睡心灵
-只等那呼唤声音
-醒来，醒来
-敲响灭共钟声
-如
-漫山遍野雪花
-如
-春天里的新芽
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E6%98%A5%E5%A4%A9.jpg)
-我们是蓝色灵魂
-使命成就人生
-等到了那呼唤声音
-醒来，醒来
-追随他坚定身影
-看
-一颗颗射向魔鬼子弹
-看
-魔鬼们抱头鼠窜
+音频：东京樱花团/战友520
+![](https://lh4.googleusercontent.com/r_WSIkZYkmdEwv8sh3AevnnsUmp9adqgOsDKrYqkP9aBWBmDGXXOwDgYs4bsbBlWBwY9Td0MM12Vv8XmRtbbTzO1yw0KGraN0GR00JZ6KX07kSk-KQ2rsq-0UO8_-UBxWUsG_ujf)
+据华尔街日报2月12日报道说，美国试图阻挠中共国在非洲建立大西洋基地的计划。据政府官员称，一个由美国高级外交和军事人员组成的代表团计划在下周访问这个中非小国，预计将讨论美国的反海盗援助以及其他一些旨在说服赤道几内亚总统奥比昂恩圭马姆巴索戈(Teodoro Obiang Nguema Mbasogo)拒绝北京方面提议的条件。
 
-斗转星移
-移山倒海
-雪花汇成大海
-淹没魔鬼猖獗
-新芽长成树冠
-庇护新世纪秩序
+该代表团将由国务院非洲事务高官Molly Phee和军方非洲司令部的Kenneth Ekman少将率领。
 
-我们是蓝色灵魂
-为使命聚集你于中心
-点燃七芒星火种
-唤醒那沉睡心灵
+该报道说，这次访问之际，美国对中共国的全球扩张主义及其在美国认为是自家地盘的水域追求永久性军事存在的担心正不断上升。
 
+赤道几内亚是撒哈拉以南非洲的发展中国家，其经济以种植业为主，主要的出口产品是可可，其次为咖啡。该国长期以来被列入世界最不发达国家名单，但是1996年在赤道几内亚领海内发现了大量石油资源，此后该国经济快速增长，1997年至2001年的年平均经济增长率达41.7%。至2004年，赤道几内亚已经成为撒哈拉以南非洲的第三大石油生产国，石油产量达每天36万桶。
 
+此外，赤道几内亚临近非洲产油大国尼日利亚和安哥拉，特别是安哥拉占中共国进口石油量的20%左右的。中共在此建立军事基地不仅能能满足自己日益膨胀石油需求，甚至还将通过控制大西洋航道等方式，这将严重威胁世界石油供应和周边国家安全。希望西方各国积极发挥自己对非洲各国的影响力，通过外交手段打破中共企图建立大西洋军事基地的千秋大梦。非洲各国也要擦亮双眼，抵挡住中共的“糖衣炮弹”诱惑，不要将国家陷入“蓝金黄”的泥潭。
 
-文字版原文：[㚑魂使命](https://gnews.org/zh-hans/2024893/)
+文字版原文：[美国试图阻止中共在非洲建立大西洋基地](https://gnews.org/zh-hans/1994785/)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)0
-
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

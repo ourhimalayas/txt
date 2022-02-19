@@ -2,26 +2,35 @@
 ---
 
 
-## 神户市为招募乌克兰IT人员希望尽快结束紧张局面
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2031487/)
+## 苏格兰不再公布死亡病例中的接种状况
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2031594/)
 
-撰稿：东京樱花团/文小白
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1795.png)
-据日本NHK2月19日消息，随着乌克兰局势的紧张程度上升，关注乌克兰快速增长的IT行业，并希望招募优秀人才的神户市呼吁尽快结束这种紧张局面。
+作者：纽约香草山 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+2月16日，苏格兰公共卫生监督机构PHS在其最新的中共病毒统计报告中宣布，将不再细分死亡与住院病例的疫苗接种状况，数据将合并发布。
 
-神户市关注拥有快速增长的IT产业并被称为 “东欧硅谷 “的乌克兰，并一直在努力争取优秀的人力资源，包括与日本大使馆和其他组织联合举办在线研讨会等，将当地企业与乌克兰联系起来。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/9-19.jpg)
 
-神户学院大学的冈部义彦教授是乌克兰政治和经济方面的专家，他说：“乌克兰有大量的IT工程师，是一个‘不知名的IT强国’。特别是在泽伦斯基先生于2019年成为总统后，他任命了一位20多岁的IT企业家为副总理，明确表示国家的政策是发展IT产业。”
+分析人士指出，越来越多的数据证明中共病毒疫苗对奥密克戎并不起作用。自1月份多个国家卫生部门借口PCR核酸检测试剂盒供应不足，取消了确诊数据的公布之后，住院与死亡病例的疫苗接种状况也被取消，只能证明其中绝大多数病例是完全接种甚至加强接种的事实，使政府卫生部门忧心并试图掩盖。
 
-截至上个月，已有57家日本公司在乌克兰设立了业务，一些软件公司也在乌克兰设立了开发基地。
+参考链接：
 
-根据日本贸易振兴机构（JETRO）介绍，自前苏联时期以来，乌克兰在核能和航空航天领域的研究一直很活跃，该国大量的技术大学是该国培养大量IT人才的原因之一，而且劳动成本比美国或西欧低得多。
+- [Anti-vaxxer concerns force removal of deaths by vaccine status data from Public Health Scotland reports](https://www.scotsman.com/health/coronavirus/anti-vaxxer-concerns-force-removal-of-deaths-by-vaccine-status-data-3571856)
 
-信息来源：[ウクライナのIT人材確保目指す神戸市「一刻も早い事態収束を」 | NHKニュース](https://www3.nhk.or.jp/news/html/20220219/k10013492881000.html)
 
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
+
+总编：童谣
+编辑：Jack Li文阳
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

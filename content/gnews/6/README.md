@@ -2,64 +2,25 @@
 ---
 
 
-## 对抗暴政
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2032528/)
+## 挪威安全评估报告：中共意图破坏西方民主政治
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2032591/)
 
-（加拿大骑警踩人有感）
+**撰稿：日本东京方舟农场  海星**
 
+近期，挪威政府公布的1份安全评估报告披露，中共意图破坏西方民主政治，是挪威最大的威胁。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-298.jpg)（图片来源：欧新社）
+据《自由时报》报导，挪威政府于2月11日公布的2022年公共威胁和风险评估报告披露，中共意图使用情报工具实施干涉电脑网络、获取军事技术、收购战略等行动以达到破坏挪威民主政治的目的，是该国当前最大的威胁。此外，报告中收录了一篇名为“习近平的中共国”的章节，与俄罗斯、恐怖主义的章节并列。
 
+该报告指出，若中共情报机构成功左右挪威民主政治，可能会严重影响民众的自由行动、工商业竞争力、国家危机处理能力等。
 
-作者：纽约香草山教育部-蓝之灵（hortênsia)
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot_1-9.png)
-母亲
-你流着血
-我流着泪
-共同对抗
-这暴政横行
-母亲
-看
-一个人跌倒了
-马蹄踏上他的身
-皇家骑警
-为什么践踏人民
-为什么悲惨呼声
-他们无动于衷
-母亲
-你再看
-到处是
-血和泪的眼睛
-混合着声音异常悲愤
-何去何从
-何去何从
-我的未来
-是不是
-真的只是梦
-母亲
-告诉我实情
-这个世界魔鬼横行
-正义的声音微弱
-你为我撑起的温馨
-短暂如流星
-母亲
-你流着血
-我流着泪
-和他们一起
-共同对抗
-这暴政横行
-让自由声音
-雷声轰鸣
-结束暴政
-结束魔鬼横行
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1-2.png)**审稿/校对/发稿：**qiutian（邱甜）
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+该报告由挪威国家情报局（NIS）、警察安全局（PST）以及国家安全局（NSM）共同发布。挪威国防部長埃诺克森（Odd Roger Enoksen）表示，中共协同俄罗斯正试图改变国际安全架构，企图在不产生直接武裝冲突的情况下打击西方民主国家的团结，对挪威国家安全构成最大威胁。
 
+参考链接：
+[https://news.ltn.com.tw/news/world/paper/1500978](https://news.ltn.com.tw/news/world/paper/1500978)
 
-
+素材采编：海星
+编辑：老孙
+发布：爱放飞
 
  
 
