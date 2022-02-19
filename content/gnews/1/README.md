@@ -2,8 +2,8 @@
 ---
 
 
-## 台湾证明了法律、民主、人权的价值
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2028873/)
+## 控诉医院剥夺医师使用安全有效药物的权利
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2028947/)
 
 台灣寶島農場
 

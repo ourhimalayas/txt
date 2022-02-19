@@ -2,8 +2,8 @@
 ---
 
 
-## 喜联储即将可交易比特币
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2028847/)
+## 让更多人了解疫苗的副作用
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2028931/)
 
 台灣寶島農場
 
