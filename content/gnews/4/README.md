@@ -2,10 +2,10 @@
 ---
 
 
-## 喜联储将推出新的H Pay政策
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2028790/)
+## 线外交易可解决KYC无法通过者之困境
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2028831/)
 
-台灣報導農場
+台灣寶島農場
 
  
 
