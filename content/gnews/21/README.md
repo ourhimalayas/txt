@@ -2,26 +2,45 @@
 ---
 
 
-## 美抗议将开始，加拿大卡车司机要求什么？
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2028456/)
+## 美国汉堡价格超过了生活成本
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2028478/)
 
-翻译：Julia Gao
-校对：枳实
-剪辑|字幕：小强
-编辑：守望黎明
+作者：银河系农场-骄子
 
-加拿大卡车司机的抗议活动持续进行，卡车“自由车队”活动也开始在世界各地延烧。与此同时，加拿大政府正紧锣密鼓地筹划着对“自由车队”发起反击。他们一方面与主流媒体联手制造对卡车司机不利的舆论，企图引导民意与抗议活动产生对立；另一方面调集大批警察力量，准备对“自由车队”采取行动。然而，抗议强制疫苗、反对政府借疫情限制人民的自由，已经逐渐成为人们的共识。加拿大政府一旦采取过激行动，只会是火上浇油。
 
-视频来源：[Freedom Convoy: What Canadian truckers demand as US protest set to start this weekend](https://www.foxnews.com/world/freedom-convoy-truckers-demand-protest-us-super-bowl-los-angeles)
 
-*发布：Mttfly*
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-768x103-6.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-6.jpg)
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
+随着麦当劳的标志性巨无霸汉堡风靡全美，美国经济学人在1986年发布了巨无霸汉堡指数，该指数纳入了购买力平价的概念。巨无霸的价格包含着多种经济因素，包括劳动力、交通、食品和整体通胀成本，当然，这也成为了解当前通胀率和美元购买力的重要参考指数。多个国家都将汉堡视为衡量不同货币购买力的一些要素。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/107016405-1645041786514-GettyImages-1128021770_1.jpg)
+
+目前，巨无霸汉堡价格上涨速度超过了其他几项经济指标，汉堡在美国均价为6.05美元，较过去十年增加了40% ，生活成本变得愈加昂贵。从2020年12月到2021年12月，通胀率高达7% ，仅去年巨无霸价格就上涨了7%。与巨无霸汉堡同时上涨快速的指数包括租金与二手车，而房价飙升指数更高，达到了107%。虽然美联储计划提高利率来压制近40年未见的通胀率，但曙光甚远。
+
+参考来源：[https://www.cnbc.com/select/big-mac-index-what-you-need-to-know/](https://www.cnbc.com/select/big-mac-index-what-you-need-to-know/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3.jpg)
+
+编辑：Irene木木
+校对/发稿：Daxia
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-6.jpg)
+
+
 
  
 

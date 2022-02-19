@@ -2,21 +2,36 @@
 ---
 
 
-## 秘翻在线：关于疫苗，有多少人们还在这样“错以为”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2028515/)
+## 特鲁多将34个加密货币钱包列入黑名单
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2028558/)
 
-撰稿：待命（文暁）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/画像1-25.png)（图片源自本文链接）
-2月19日的日本电视新闻消息：18日，全国有211人被证实死于中共病毒(新冠病毒)，其中有以为80多岁的感染者。18日晚，我们采访了这位死者的，住在埼玉市的女儿（５０多岁）。
+撰稿: 加拿大温哥华扬帆农场 – Spirit
+![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-11.png)
+据外媒 2月16日报道，特鲁多向联邦警察部队发出命令，要求加拿大所有受FINTRAC 监管的公司停止与34个加密货币钱包进行交易，这些钱包据称与渥太华的自由车队有关。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1758.png)图片来源：https://www.thecountersignal.com
+特鲁多政府官员列出了29个比特币地址，2个以太坊，以及另外三个加密货币钱包。经确认，至少有一个钱包价值超过100万美元的比特币，通过加密货币支持自由车队的卡车司机。
 
-她说：这令我非常吃惊，因为我没有想到会这么糟糕，进展这么快。她虽然真的是个年长的母亲，但她非常可爱，非常热情和友好。
+特鲁多政府对支持合法和平抗议的赞助资金疯狂阻截，遭到各界抨击。
 
-这名妇女的母亲患有糖尿病等其它疾病，一直住在一家护理院。本月早些时候，她中共病毒检测呈阳性，当时该妇女要求她的母亲入院治疗。９日确诊阳性，终于四天后的13日被送入医院。然而，她在15日因肺炎等原因去世。其间，护士是通过视频远程照顾她的母亲。她去世后，护士尽力为她梳理凌乱的头发，说：已经尽力了。
+新闻:
 
-这位失去母亲的妇女说：说实话，我一直以为这样的事只是别人的故事，直到我的亲人成为一名病人。我以为如果我们接种了三针疫苗，即便是被感染了，也就只会有轻微的症状而已。我不希望大家以如此痛苦的方式失去宝贵的家人，这不是好事。所以，我希望这种情况能尽快得到解决。
+[EXCLUSIVE: RCMP orders blacklist of 34 crypto wallets under Trudeau’s authoritarian prerogative](https://www.thecountersignal.com/news/rcmp-ban-34-crypto-wallets-from-working-in-canada)
 
-信息源：[ワクチン3回目接種も母親が死去 娘の訴え「ひとごとだと思っていた」 (msn.com)](https://www.msn.com/ja-jp/news/national/%E3%83%AF%E3%82%AF%E3%83%81%E3%83%B33%E5%9B%9E%E7%9B%AE%E6%8E%A5%E7%A8%AE%E3%82%82%E6%AF%8D%E8%A6%AA%E3%81%8C%E6%AD%BB%E5%8E%BB-%E5%A8%98%E3%81%AE%E8%A8%B4%E3%81%88-%E3%81%B2%E3%81%A8%E3%81%94%E3%81%A8%E3%81%A0%E3%81%A8%E6%80%9D%E3%81%A3%E3%81%A6%E3%81%84%E3%81%9F/ar-AAU2YOJ?ocid=msedgntp)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-5.png)
 
+编辑: Jack Li文阳
+
+总编: 童谣
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-11.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

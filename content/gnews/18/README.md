@@ -2,24 +2,20 @@
 ---
 
 
-## 美国汉堡价格超过了生活成本
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2028478/)
+## 全球最大比特币交易所币安遭SEC调查
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2028489/)
 
-作者：银河系农场-骄子
+作者：日本东京方舟农场-Miyali7768(文玉）
 
+据华尔街见闻2月16日报道，SEC调查加密货币巨头币安美国分部的交易关联公司，怀疑其与两家交易附属公司之间有不正当关系，这两家交易公司Sigma Chain AG和Merit Peak Ltd担任着币安美国交易所的做市商，且截至去年底，二者均由币安创始人兼首席执行官赵长鹏控股。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-34.jpg)
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-768x103-6.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-6.jpg)
+根据SEC的要求，币安美国交易所需要提供有关这两家交易公司的具体信息和币安美国交易所如何向客户披露其与交易公司的联系。对此，币安表示不予置评，并回应称币安一直坚持最高的合规水平。币安此前一直是美国监管机构调查的对象。SEC在2021就怀疑币安可能存在内幕交易和市场操纵并就币安其他事项进行过两次调查。此外，美国司法部和国税局也于2021年对币安投资者利用交易所进行洗钱和税务欺诈的可能性进行了调查。
 
+ 文贵先生在2月16日和此前的直播中多次揭露币安首席执行官赵长鹏出卖客户信息给中共，涉及洗钱内幕交易和操控市场等违法行为，并明确指出赵长鹏必将会受到美国法律严惩。
 
-
-随着麦当劳的标志性巨无霸汉堡风靡全美，美国经济学人在1986年发布了巨无霸汉堡指数，该指数纳入了购买力平价的概念。巨无霸的价格包含着多种经济因素，包括劳动力、交通、食品和整体通胀成本，当然，这也成为了解当前通胀率和美元购买力的重要参考指数。多个国家都将汉堡视为衡量不同货币购买力的一些要素。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/107016405-1645041786514-GettyImages-1128021770_1.jpg)
-
-目前，巨无霸汉堡价格上涨速度超过了其他几项经济指标，汉堡在美国均价为6.05美元，较过去十年增加了40% ，生活成本变得愈加昂贵。从2020年12月到2021年12月，通胀率高达7% ，仅去年巨无霸价格就上涨了7%。与巨无霸汉堡同时上涨快速的指数包括租金与二手车，而房价飙升指数更高，达到了107%。虽然美联储计划提高利率来压制近40年未见的通胀率，但曙光甚远。
-
-参考来源：[https://www.cnbc.com/select/big-mac-index-what-you-need-to-know/](https://www.cnbc.com/select/big-mac-index-what-you-need-to-know/)
+参考来源：[https://wallstreetcn.com/articles/3652036](https://wallstreetcn.com/articles/3652036)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3.jpg)
 

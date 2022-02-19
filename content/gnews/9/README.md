@@ -2,30 +2,39 @@
 ---
 
 
-## 加拿大军队因支持卡车司机抗议而被调查
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2028553/)
+## 澳洲警方：对堪培拉抗议，使用了远程声学装置
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2028573/)
 
-翻译：冰糖葫芦喵
+#### 澳洲新闻时事动态，尽在雅典娜【澳洲热点】
 
-编辑与校对：冰糖葫芦喵、灭共文明
+整理/编辑：小鱼儿
 
-《布莱巴特新闻网》2月18日报道，**加拿大军方有九名成员被“确认”参与了卡车司机和平抗议活动或在社交媒体上表达支持，这些服役人员正在接受调查。**
-
-据报道，这些接受调查的人包括在社交媒体上发布的视频中身穿制服的士兵，**他们表示支持由卡车司机领导的抗议活动，并公开反对加拿大政界人士。**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/加拿大军人2.jpg)反对疫苗的军事调查官（图片来源：Youtube截图）
-加拿大国防发言人Dan Le Bouthillier告诉媒体，这些军人将会被追究责任，后果可能会被被开除军籍。一些接受调查的军人已经在离开加拿大部队的过程中，因为他们拒绝了强制接种疫苗的要求。
-
-此前有报道称，2021年5月，**一名呼吁其他服役人员不要协助分发疫苗的加拿大部队成员，被指控犯有与叛变有关的罪行，这是加拿大军方首次使用这种指控。**
-
-《华盛顿邮报》报道说，加拿大军方精英反恐部队的两名现役成员因涉嫌参与渥太华市中心的抗议活动而正在接受调查。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/加拿大军人1.jpg)卡车司机和支持在渥太华国会山和平抗议（图片来源：NurPhoto via Getty images)
-最后文章指出，**加拿大部队的退休和服役人员是拉响警报的人。另一名预备役军人因涉嫌向抗议的卡车司机捐款而正在接受调查。**
-
-**新闻链接：**
-
-[Report: Canadian Troops Investigated for Supporting Trucker Protests (breitbart.com)](https://www.breitbart.com/politics/2022/02/18/report-canadian-troops-investigated-for-supporting-trucker-protests/)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/8-19.png)图片来源：USSA News
 
 
+当地时间2月18日，据反抗（Rebelnews）新闻报道，澳洲首都领地警察局承认，他们在国会大厦外的堪培拉车队自由集会期间，确实使用了远程声学装置（ LRAD）。在当天的活动中参与者说，一天中的大部分时间，信号接收不佳或没有接收。
+
+然而这一确认，是一国党参议员马尔科姆·罗伯茨和自由党参议员亚历克斯·安蒂克，2月14日在参议院提出这个问题之后才得到的。
+
+澳洲联邦警察局长里斯·克肖回答：“我们将不得不考虑某种类型的公共利益,要求豁免（使用LRAD）。”参议员罗伯茨反问：“在不深入研究的情况下，是否使用LRAD，确实符合公众利益吗？”
+
+随后参议员安蒂克，举起了带有LRAD 装置的照片。然而克肖面对证据，他仍然选择推迟回答。
+
+LRAD 的使用让许多公众观察者感到震惊，因为 LRAD 在技术上是一种声波人群控制武器。该设备会导致各种伤害，包括：永久性听力损伤、头晕、迷失方向和脑损伤。
+
+对于警方是否被授权使用 LRAD ，将涉及重大的公共利益。澳洲联邦、昆士兰、南澳、西澳和维州警察都已确认，他们购买了其设备。北领地和新州警察部队没有发表评论。
+
+参考新闻：[Police confirm use of controversial LRAD device at Canberra protest](https://www.rebelnews.com/police_confirm_use_of_controversial_lrad_device_at_canberra_protest)
+
+发布：tianzhihuan
+
+**
+**更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

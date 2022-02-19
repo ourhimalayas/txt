@@ -2,27 +2,23 @@
 ---
 
 
-## 俄罗斯关闭3个针对窃取信用卡信息的暗网网站
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2028483/)
+## 美国成立新部门以打击加密货币犯罪
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2028504/)
 
 翻译/编辑：小红帽
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/5-29.png)图片来源： news.yahoo.com
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/7-25.png)图片来源：www.newsbtc.com
 
 
-根据CoinGeek 2月18日报道，俄罗斯当局打击了另一批暗网网站，这次针对窃取信用卡信息的在线市场。在最新的活动中，有三个市场被关闭，总共产生了2.63亿美元的数字货币收益。
+根据RT新闻2月18日报道，美国司法部（DOJ）周四宣布成立联邦调查局的“虚拟资产开发部门”。副司法部长丽莎·摩纳哥（Lisa Monaco）还任命检察官崔恩英（Eun Young Choi）为国家加密货币执法小组（NCET）的第一任主任。她表示，新部门将致力于分析虚拟交易和扣押参与犯罪的货币。
 
-根据英国区块链分析公司埃利普（Elliptic）的一份报告，俄罗斯内政部关闭了三个市场——Trump’s Dumps、UAS Store 和 Ferum Shop，以及在线被盗卡论坛Sky-Fraud。
+联邦调查局的新部门将与司法部的国家加密货币执法小组一起工作。国家加密货币执法小组由摩纳哥在去年对美国基础设施遭受一系列破坏性的勒索软件攻击后成立，大约由十名检察官组成。一次对石油管道网络的攻击背后的嫌疑人要求用比特币支付约440万美元。该公司支付了这笔钱，后来司法部称金额已被部分收回。
 
-埃利普公司透露，Ferum Shop是主要目标。在被查封之前，它是世界上最大的被盗信用卡市场。
+新任命的国家加密货币执法小组主任崔恩英被司法部描述为“经验丰富的检察官”，在纽约调查，起诉网络和洗钱犯罪方面拥有丰富的经验，并领导政府处理“丝绸之路”创始人罗斯·乌布利希（Ross Ulbricht）的案件。
 
-这些市场迎合了网络地下犯罪最古老的恶习之一——刷卡。这就是黑客通过在线零售商、银行和其他途径从数亿受害者那里窃取支付卡详细信息的地方。然后他们在暗网市场上出售这些信息，客户用它们购买昂贵的物品或礼品卡，然后以现金出售。
+联邦调查局的新部门和国家加密货币执法小组都有广泛的职权范围，可以调查任何与加密货币有关的犯罪。摩纳哥在慕尼黑告诉她的听众，检察官和调查人员将使用“所有可用的工具”在网络攻击发生之前破坏它们。司法部表示将“与国内和国际执法合作伙伴、监管机构和私营企业协调打击犯罪分子使用数字资产。”
 
-埃利普公司指出，虽然刷卡本身是有利可图的，但它也被广泛用于清洗从各种形式的网络犯罪中获得的数字资产。
-
-自俄罗斯联邦安全局 (FSB) 捣毁世界上最具破坏性的勒索软件团伙之一的REvil以来，此次打击行动仅用了数周。
-
-新闻链接：[Russia shuts down 3 dark web sites with reported $263M in digital currency proceeds](https://coingeek.com/russia-shuts-down-3-dark-web-sites-with-reported-263m-in-digital-currency-proceeds/)
+新闻链接：[US launches crackdown on illicit crypto](https://www.rt.com/news/549881-fbi-cryptocurrency-crimes-unit/)
 
 发布：tianzhihuan
 
