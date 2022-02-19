@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：看清事实，珍惜今天拥有的
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2033402/)
+## 七哥金句：要爱家人
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2033508/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句4.001-1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句2-1-4-scaled.jpg)
 整理：雅典娜农场
 发布：枫叶红了
 

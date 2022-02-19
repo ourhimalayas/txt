@@ -15,62 +15,62 @@
 
 ---
 
-### [七哥金句：听从小人，必死无疑](/content/gnews/1/README.md)
+### [七哥金句：达沃斯论坛就是它犯罪的证据](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [2月18日文贵大直播摘要（图片21-24）](/content/gnews/2/README.md)
+### [七哥金句：达沃斯就是奴隶俱乐部](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥金句：有达沃斯存在人类就没有安全](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [2月19日勿忘香港（图片1-5）](/content/gnews/4/README.md)
  ` 波士顿五月花农场`
 
-### [七哥金句：珍惜今天拥有的，看清事实](/content/gnews/3/README.md)
+### [七哥金句：要爱家人](/content/gnews/5/README.md)
  ` 雅典娜GNotes`
 
-### [七哥金句：是否会亲自编制教育大纲？](/content/gnews/4/README.md)
+### [七哥金句：我生来就是灭共的，从没觉得有过对手](/content/gnews/6/README.md)
  ` 雅典娜GNotes`
 
-### [七哥金句：看清事实，珍惜今天拥有的](/content/gnews/5/README.md)
+### [2月18日文贵大直播摘要（图片25-27）](/content/gnews/7/README.md)
+ ` 波士顿五月花农场`
+
+### [七哥金句：听从小人，必死无疑](/content/gnews/8/README.md)
  ` 雅典娜GNotes`
 
-### [七哥金句：美国侵略过中国吗？](/content/gnews/6/README.md)
+### [2月18日文贵大直播摘要（图片21-24）](/content/gnews/9/README.md)
+ ` 波士顿五月花农场`
+
+### [七哥金句：珍惜今天拥有的，看清事实](/content/gnews/10/README.md)
  ` 雅典娜GNotes`
 
-### [泽连斯基称乌克兰不会回应俄罗斯的挑衅](/content/gnews/7/README.md)
+### [纳粹死灰复燃？媒体惊爆新西兰总理曾行纳粹礼](/content/gnews/11/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [泽连斯基称乌克兰不会回应俄罗斯的挑衅](/content/gnews/12/README.md)
  ` Shuizhuyu`
 
-### [七哥金句：共党对新疆布局](/content/gnews/8/README.md)
- ` 雅典娜GNotes`
-
-### [七哥金句：邪教的六个特征](/content/gnews/9/README.md)
- ` 雅典娜GNotes`
-
-### [有声|魔鬼的圈套——评杨贝贝和她的所谓采访（六）](/content/gnews/10/README.md)
+### [有声|魔鬼的圈套——评杨贝贝和她的所谓采访（六）](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [2022年2月18日 《文贵大直播》全文字版](/content/gnews/11/README.md)
+### [2022年2月18日 《文贵大直播》全文字版](/content/gnews/14/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [有声|中共国民要求彻查锁链女事件](/content/gnews/12/README.md)
+### [有声|中共国民要求彻查锁链女事件](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [NFSC新闻、G|TV新闻访谈简报|2022年2月19日早](/content/gnews/13/README.md)
+### [NFSC新闻、G|TV新闻访谈简报|2022年2月19日早](/content/gnews/16/README.md)
  ` 纽约香草山MOS01`
 
-### [俄罗斯举行核演习](/content/gnews/14/README.md)
+### [俄罗斯举行核演习](/content/gnews/17/README.md)
  ` Shuizhuyu`
 
-### [大直播后记：别错过躺平币](/content/gnews/15/README.md)
+### [大直播后记：别错过躺平币](/content/gnews/18/README.md)
  ` 雅典娜GNotes`
 
-### [延安性事（短篇纪实文学）（八）](/content/gnews/16/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [砍柴放羊说](/content/gnews/17/README.md)
- ` 喜马拉雅德国纽伦堡正义农场`
-
-### [出离愤怒：没人愿意提及北京冬奥会](/content/gnews/18/README.md)
+### [出离愤怒：没人愿意提及北京冬奥会](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [中国共产党是天下最迷信的党](/content/gnews/19/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [聚焦：地方政府断炊，中共托底楼市](/content/gnews/20/README.md)
  ` 丁过`

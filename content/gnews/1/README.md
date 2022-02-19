@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：听从小人，必死无疑
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2033484/)
+## 七哥金句：达沃斯论坛就是它犯罪的证据
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2033560/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句1.001.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句3.001-3.jpeg)
 整理：雅典娜农场
 发布：枫叶红了
 

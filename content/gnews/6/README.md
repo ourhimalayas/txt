@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：美国侵略过中国吗？
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2033387/)
+## 七哥金句：我生来就是灭共的，从没觉得有过对手
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2033501/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句3.001-2.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句1-1-3-scaled.jpg)
 整理：雅典娜农场
 发布：枫叶红了
 
