@@ -2,26 +2,37 @@
 ---
 
 
-## 樱花FM|中日财经爆:美国电费翻三倍 物价创纪录 入店行窃增加
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2031465/)
+## 以色列将废除中共病毒疫苗护照系统
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2031593/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-1-3.jpg)
-在创纪录的价格继续上涨的美国，一些地区的电费几乎翻了三倍。纽约市的家庭电费，单位电价增加了大约是上个月的三倍。电力公司将其归因于天然气价格上涨。
+作者：银河系农场 – 骄子
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+2月17日周四，以色列总理总理宣布，中共病毒感染病例每天持续下降，中共病毒疫苗接种证明的护照系统将会暂停使用。
 
-此外，纽约警察局发现，由于物价上涨，入店行窃比两年前增加了 15%。某连锁超市中，肉类、冰淇淋、洗洁精等物价上涨幅度较大的物品盗窃事件屡见不鲜。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/10-13.jpg)
 
-美国 1 月份消费者价格指数增加了7.5%，为 40 年来的最高涨幅。
+据悉该护照系统称为绿色通行证，限制未完成接种至少三针疫苗的人们，进行大型集会和进入室内场所。在过去一年的大部分时间里，绿色通行证是以色列日常生活的必备品。
 
-文字版原文：
+在2020年，以色列与辉瑞达成协议，用医疗数据换取稳定的中共病毒疫苗供应后，迅速为大部分成年人口接种了疫苗。当前约48%人口已经接种了三针疫苗，全国72%的人口已经接种了至少一针。
 
-[中日财经爆┃美国电费翻三倍 物价创纪录 入店行窃增加](https://gnews.org/zh-hans/1994288/)
+参考链接：
 
-编辑：东京樱花团/asket
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+- [Israel to scrap COVID passport system as omicron wanes](https://ktar.com/story/4893787/israel-to-scrap-covid-passport-system-as-omicron-wanes/amp/)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
+
+总编：童谣
+编辑：童谣
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

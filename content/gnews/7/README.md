@@ -2,30 +2,28 @@
 ---
 
 
-## 有声|美司法部及FBI宣布组建数字货币执法团队
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2032939/)
+## 联准会5月1日起禁止官员购买股债及加密货币
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2032976/)
 
-配音：香草山巡管部– 文凯琳
-![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-8.png)
-2月17日，美国司法部DOJ宣布，已经任命了一位检察官领导新组建的国家加密货币执法团队。同时，联邦调查局FBI正在启动一个区块链分析和虚拟资产部门。
+**撰稿：日本东京方舟农场  海星**
 
-此前，司法部副部长丽莎·摩纳哥在一次网络安全会议上指出，检察官崔恩英将领导司法部这一加密货币执法团队。崔恩英曾主导起诉俄罗斯黑客窃取8000多万摩根大通客户信息的案件。
+2月18日，联准会正式批准新规则，将于5月1日起禁止官员购买股债及加密货币。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-300.jpg)（图片来源：法新社）
+据《自由时报》报导，联准会于2月18日发布公告表示，5月1日起该机构官员将无法再进行一系列资产交易，包括股票、债券以及加密货币。此禁令将涵盖联邦公开市场委员会（FOMC）成员、地区分行总裁、常态出席理事会会议的债券经理以及相关职员，包括他们的配偶和未成年子女也在限制范围内。
 
-而FBI “虚拟资产”部门的成立是在司法部有史以来最大的金融扣押行动后进行的。本月早些时候，它指控一对纽约夫妇涉嫌洗钱，涉及的比特币现在价值超过45亿美元，在2016年数字货币交易所Bitfinex的黑客攻击中被盗。
+根据公告，持有上述违禁资产的美联储官员将有12个月的事件来进行处置抛售，新来官员则给予6个月的时间进行处置。
 
-文字版原文：[美司法部及FBI宣布组建数字货币执法团队](https://gnews.org/zh-hans/2028479/)
+该公告指出，此禁令旨在防止出现任何利益冲突，以增加民众对委员会公平正当的信心。
 
-音频处理/发稿：Daxia
+据悉，联准会去年被爆出官员利用职务之便炒股的丑闻，经审查后，达拉斯联邦储备银行总裁卡普兰（Robert Steven Kaplan）和波士顿联邦储备银行总裁罗森格伦（Eric Rosengren）均辞去职务。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+参考链接：
+1.[https://ec.ltn.com.tw/article/breakingnews/3834611](https://ec.ltn.com.tw/article/breakingnews/3834611)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+素材采编：海星
+编辑：老孙
+发布：爱放飞
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
