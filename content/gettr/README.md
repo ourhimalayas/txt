@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/19/2022 5:30 AM (UTC)`
+
+2/18/2022 Miles Guo: For Xi Jinping, who was fooled by Putin regarding the Ukraine issue and had surgeries performed on both spleen and kidney, half of his life is gone as he is faced with the CCP virus outbreak in Hong Kong, the incidents of Eileen Gu, the chained woman, and Peng Shuai, and the CCP’s Bureau of Statistics’ laundering and stealing money.<br/><br/>2/18/2022 文贵直播：面临着香港疫情大爆发、谷爱凌、锁链女和彭帅等事件以及统计局借冬奥会洗钱、骗钱，在乌克兰问题上被普京耍了一把并做了肾、脾两个手术的习太阳半条命没了<br/>
+![img](https://media.gettr.com/group18/getter/2022/02/19/05/d0435726-3425-665f-e457-03ba75681739/out.jpg)
+
+---
+
 `@miles 2/19/2022 5:13 AM (UTC)`
 
 2/18/2022 Miles Guo: The Way of Righteousness will become a new way to manage humanity.<br/>The New Federal State of China will ensure the independence of judiciary, media, and science. Freedom of speech requires that people must take legal responsibility for what they say and be subject to supervision. The less civilized the region, the more fake vaccines there are and the fewer people have died.<br/><br/>2/18/2022 文贵直播: 正道主义将成为管理人类的新方式；新中国联邦将确保司法，媒体和科学的独立；言论自由必须要承担法律责任和接受监督；越落后的地区，假疫苗越多，死人越少，越发达的地方则反之<br/>
@@ -147,13 +154,6 @@ Live, Love, & Laugh ❤️
 
 2月17号：感谢战友，李文星先生，做的这个特别视频！
 ![img](https://media.gettr.com/group13/getter/2022/02/17/14/ca79b16d-a0b5-35f0-c76b-17f5a6510d6f/out.jpg)
-
----
-
-`@miles 2/17/2022 9:20 AM (UTC)`
-
-2月17号：尊敬的战友们好这比数字货币交易．将是改变数字货币与现实生活生产力．公平交易一个里程碑的事件！也是喜币走向另外一个新时代的开始！意义重大塞纳是汽车运动业的像神一般的存在超级超级英雄……他是巴西的象征，也是人类走向现代汽车运动的最有影响力的人物之一。［已故车神塞纳的车被喜币买走了……］
-![img](https://media.gettr.com/group27/getter/2022/02/17/09/690c04c0-81c4-defb-0c73-ff8fc67a45a2/07b4f16453974a85c19dc5520d23b6c7.jpg)
 
 ---
 

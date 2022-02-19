@@ -2,32 +2,30 @@
 ---
 
 
-## 美国成立新部门以打击加密货币犯罪
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2028504/)
+## 加拿大军队因支持卡车司机抗议而被调查
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2028553/)
 
-翻译/编辑：小红帽
+翻译：冰糖葫芦喵
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/7-25.png)图片来源：www.newsbtc.com
+编辑与校对：冰糖葫芦喵、灭共文明
+
+《布莱巴特新闻网》2月18日报道，**加拿大军方有九名成员被“确认”参与了卡车司机和平抗议活动或在社交媒体上表达支持，这些服役人员正在接受调查。**
+
+据报道，这些接受调查的人包括在社交媒体上发布的视频中身穿制服的士兵，**他们表示支持由卡车司机领导的抗议活动，并公开反对加拿大政界人士。**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/加拿大军人2.jpg)反对疫苗的军事调查官（图片来源：Youtube截图）
+加拿大国防发言人Dan Le Bouthillier告诉媒体，这些军人将会被追究责任，后果可能会被被开除军籍。一些接受调查的军人已经在离开加拿大部队的过程中，因为他们拒绝了强制接种疫苗的要求。
+
+此前有报道称，2021年5月，**一名呼吁其他服役人员不要协助分发疫苗的加拿大部队成员，被指控犯有与叛变有关的罪行，这是加拿大军方首次使用这种指控。**
+
+《华盛顿邮报》报道说，加拿大军方精英反恐部队的两名现役成员因涉嫌参与渥太华市中心的抗议活动而正在接受调查。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/加拿大军人1.jpg)卡车司机和支持在渥太华国会山和平抗议（图片来源：NurPhoto via Getty images)
+最后文章指出，**加拿大部队的退休和服役人员是拉响警报的人。另一名预备役军人因涉嫌向抗议的卡车司机捐款而正在接受调查。**
+
+**新闻链接：**
+
+[Report: Canadian Troops Investigated for Supporting Trucker Protests (breitbart.com)](https://www.breitbart.com/politics/2022/02/18/report-canadian-troops-investigated-for-supporting-trucker-protests/)
 
 
-根据RT新闻2月18日报道，美国司法部（DOJ）周四宣布成立联邦调查局的“虚拟资产开发部门”。副司法部长丽莎·摩纳哥（Lisa Monaco）还任命检察官崔恩英（Eun Young Choi）为国家加密货币执法小组（NCET）的第一任主任。她表示，新部门将致力于分析虚拟交易和扣押参与犯罪的货币。
-
-联邦调查局的新部门将与司法部的国家加密货币执法小组一起工作。国家加密货币执法小组由摩纳哥在去年对美国基础设施遭受一系列破坏性的勒索软件攻击后成立，大约由十名检察官组成。一次对石油管道网络的攻击背后的嫌疑人要求用比特币支付约440万美元。该公司支付了这笔钱，后来司法部称金额已被部分收回。
-
-新任命的国家加密货币执法小组主任崔恩英被司法部描述为“经验丰富的检察官”，在纽约调查，起诉网络和洗钱犯罪方面拥有丰富的经验，并领导政府处理“丝绸之路”创始人罗斯·乌布利希（Ross Ulbricht）的案件。
-
-联邦调查局的新部门和国家加密货币执法小组都有广泛的职权范围，可以调查任何与加密货币有关的犯罪。摩纳哥在慕尼黑告诉她的听众，检察官和调查人员将使用“所有可用的工具”在网络攻击发生之前破坏它们。司法部表示将“与国内和国际执法合作伙伴、监管机构和私营企业协调打击犯罪分子使用数字资产。”
-
-新闻链接：[US launches crackdown on illicit crypto](https://www.rt.com/news/549881-fbi-cryptocurrency-crimes-unit/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

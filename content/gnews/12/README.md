@@ -2,36 +2,42 @@
 ---
 
 
-## 俄罗斯关闭3个针对窃取信用卡信息的暗网网站
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2028483/)
+## 中共病毒暴露了美国应对生物威胁的软肋
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2028508/)
 
-翻译/编辑：小红帽
+翻译：Steven Hu
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-295.jpg)
+图片来源：谷歌图片
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/5-29.png)图片来源： news.yahoo.com
+合作国际社引用乔格.西蒙斯（Jorge Siemons)报道了周四在华盛顿举行的关于提高美国生物安全准备的听证会，会上有专家告​​诉参议员，中共病毒的大流行暴露了政府并没有做好充分准备来应对可能的生物战争威胁。
 
+“生物防御过度分散在各级政府和私营部门之间并缺乏合作，”政府专职办公室负责国土安全和司法团队的克里斯托弗·柯里（Christopher Currie）告诉国土安全和政府事务委员会成员。“很不幸的是，中共病毒表明这些差距是真实存在的，政府于 2018 年公布的国家生物防御战略本可以帮助美国为应对诸如中共病毒（COVID-19 ）等病毒做好准备，但尚未全面实施就发生了大流行。“
 
-根据CoinGeek 2月18日报道，俄罗斯当局打击了另一批暗网网站，这次针对窃取信用卡信息的在线市场。在最新的活动中，有三个市场被关闭，总共产生了2.63亿美元的数字货币收益。
+“过去 20 年来，新生传染病的发生频率越来越高，”德克萨斯农工大学 Global One Health 副院长兼国家生物安全科学咨询委员会主席杰拉尔德.帕克（Gerald Parker）在听证会前表示。
 
-根据英国区块链分析公司埃利普（Elliptic）的一份报告，俄罗斯内政部关闭了三个市场——Trump’s Dumps、UAS Store 和 Ferum Shop，以及在线被盗卡论坛Sky-Fraud。
+帕克说：“我们躲过了几次险情——但却没躲过中共病毒（COVID-19）。”
 
-埃利普公司透露，Ferum Shop是主要目标。在被查封之前，它是世界上最大的被盗信用卡市场。
+与传统的战争武器类似，细菌和病毒等传染性生物制剂同样可用于杀死人类、动物和植物。 例如，在 2001 年 9 月 11 日的恐怖袭击之后，带有炭疽病的信件杀死了5 名美国人，并感染了另外 17 人。
 
-这些市场迎合了网络地下犯罪最古老的恶习之一——刷卡。这就是黑客通过在线零售商、银行和其他途径从数亿受害者那里窃取支付卡详细信息的地方。然后他们在暗网市场上出售这些信息，客户用它们购买昂贵的物品或礼品卡，然后以现金出售。
+“我们已经看到生物威胁发生的是多么自然，例如导致大流行的中共病毒，会如何严重伤害准备不足的社区，”密歇根州民主党主席加里.彼特斯（Gary Peters ）说。
 
-埃利普公司指出，虽然刷卡本身是有利可图的，但它也被广泛用于清洗从各种形式的网络犯罪中获得的数字资产。
+俄亥俄州共和党议员罗伯·波特曼 (Rob Portman) 询问柯里，为什么美国直到 2020 年 1 月才感染 COVID-19。
 
-自俄罗斯联邦安全局 (FSB) 捣毁世界上最具破坏性的勒索软件团伙之一的REvil以来，此次打击行动仅用了数周。
+”涉及的多个机构都试图进行自己的监视，”库里回应道。  “部分问题是分散和缺乏整合。”
 
-新闻链接：[Russia shuts down 3 dark web sites with reported $263M in digital currency proceeds](https://coingeek.com/russia-shuts-down-3-dark-web-sites-with-reported-263m-in-digital-currency-proceeds/)
+柯里说，他的办公室创建了新的监控系统，以在地方一级和私营部门监控 中共病毒。
 
-发布：tianzhihuan
+他说：“我们需要看看我们在那里创造了什么，而不仅仅是在 COVID 结束时抛弃它。”  “我们需要用它来开发新的监控系统。”
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+两党生物防御委员会执行主任阿莎乔治说，政府必须更新技术，以便更快地监测和阻缓生物武器。
+
+乔治表示，国土安全部现有的提供生物安全风险评估的生物观察计划需要更换，他的委员会在10月份发布了一份报告，发现这个每年8000万美元的计划的准确性有问题，而且报告时间延迟。
+
+”没有理由让这种有缺陷的计划一直保持原状，”乔治说。  “我们应该关闭那个程序，用更适合的技术取而代之。”
+
+官员们同时提到，除了大流行之外，俄罗斯和朝鲜拥有活跃的生物武器可能会构成下一个威胁。
+
+原文链接：[https://www.upi.com/Top\_News/US/2022/02/17/biological-threats-preparation-United-States-Senate-hearing/6301645127587/](https://www.upi.com/Top_News/US/2022/02/17/biological-threats-preparation-United-States-Senate-hearing/6301645127587/)
 
  
 
