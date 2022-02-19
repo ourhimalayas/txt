@@ -2,27 +2,45 @@
 ---
 
 
-## 有声｜防中共窃密 台湾修法重罚经济间谍罪
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2029244/)
+## 新加坡持续放宽入境防疫措施
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2029401/)
 
-**By:秘翻新闻**
+作者：纽约香草山农场教育部—Naughty(文行)
 
-**2022-02-19**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/4444556678890.jpg)图片源自:新唐人
-据《新唐人》2月18日报道，为了防止高科技产业重要关键技术外流，台湾行政院通过了《国家安全法》修正草案，新增经济间谍罪，违法者最高可判处12年徒刑、并罚款1亿台币。此外还新增了《国家核心关键技术营业秘密域外使用罪》，涉及国家核心关键技术的个人或法人，如果打算去中共国，必须经过审查许可。违者最高处10年有期徒刑、罚款5千万元。
 
-高科技产业是台湾重要经济命脉，台湾目前是用《营业秘密法》管制一般公司的营业机密，还停留在民间契约的刑事责任阶段。民主国家依法办事，修法的目的就是修补漏洞，有必要于法制层面建立更严密完善的国家安全防线。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-37.png)
 
-台湾行政院官员表示，近年来中共对台湾产业的渗透越来越严重，中共大量吸收台湾高科技人才、窃取国家核心关键技术，并刻意规避台湾法律规范，同时未经许可在台从事业务活动，或者假借他人名义违法来台投资。对台湾资讯安全、经济利益、产业竞争力与国家安全等，造成相当危害。
 
-有学者认为，台湾必须对抗中共渗透，阻挡重要商业技术甚至于军事机密被偷偷移转到中共国。中共的经济间谍目前正被全世界围堵，台湾修法围堵经济间谍，可以增进国际对台湾的信任。
+新加坡将放宽入境旅客检疫规定。由低风险国家及地区入境的旅客，抵境后无需接受PCR核酸检测，只需到检测中心进行快筛。新加坡还将持续扩大适用接种者免隔离的国家。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/25-1.png)
+新加坡将所有国家及地区依风险程度分成4类，对风险程度最低的第一类国家及地区单边开放，来自台湾、中共国、香港及澳门的旅客入境后不需隔离，只要在机场接受PCR检测，结果呈阴性即可自由活动。来自其他类别国家的旅客则依风险程度适用不同检疫规定，风险较高者必须在指定设施隔离。
 
-（ 秘翻新闻 巴拉克 编辑报道 ）
+卫生部表示，2月21日晚上11时59分起，新措施开始实施。 另据报道，新加坡卫生部长王乙康今天表示，新加坡正历奥密克戎疫情，每天新增病例仍在攀升。这波疫情预计在未来几周达到高峰，之后病例可能急遽下降，到时就能放宽防疫措施，让人们过上更正常的生活。
 
-发布:星星
+参考来源：
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMAGE-2021-12-13-113746.jpg)
+[Singapore to impose quarantine-free travel for vaxxed tourists from select countries](https://newsinfo.inquirer.net/1555706/singapore-to-impose-quarantine-free-travel-for-tourists-from-select-countries)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-41.jpg)
+
+编辑/校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-38.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

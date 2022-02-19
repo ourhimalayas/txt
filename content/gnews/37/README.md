@@ -2,36 +2,39 @@
 ---
 
 
-## 特鲁多将34个加密货币钱包列入黑名单
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2028558/)
+## 拜登称他“确信 ”普京已做出入侵乌克兰的决定
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2028581/)
 
-撰稿: 加拿大温哥华扬帆农场 – Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-11.png)
-据外媒 2月16日报道，特鲁多向联邦警察部队发出命令，要求加拿大所有受FINTRAC 监管的公司停止与34个加密货币钱包进行交易，这些钱包据称与渥太华的自由车队有关。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1758.png)图片来源：https://www.thecountersignal.com
-特鲁多政府官员列出了29个比特币地址，2个以太坊，以及另外三个加密货币钱包。经确认，至少有一个钱包价值超过100万美元的比特币，通过加密货币支持自由车队的卡车司机。
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3-58.jpg)
+图片来源：网络截图
 
-特鲁多政府对支持合法和平抗议的赞助资金疯狂阻截，遭到各界抨击。
+据合众国际社2月18日报道，美国总统乔·拜登周五表示，他相信俄罗斯总统普京已经做出了入侵乌克兰的决定，并引用了情报报告中的信息。
 
-新闻:
+当被问及他的这一评估是基于什么时，拜登说，情报报告显示即将发生暴力。但拜登表示，为了避免两国之间的战争，外交手段并没有被取消。
 
-[EXCLUSIVE: RCMP orders blacklist of 34 crypto wallets under Trudeau’s authoritarian prerogative](https://www.thecountersignal.com/news/rcmp-ban-34-crypto-wallets-from-working-in-canada)
+他谴责了他所描述的俄罗斯推出的 “虚假信息”，以及关于俄罗斯在乌克兰顿巴斯地区违反停火协议、试图挑起战争的报道。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-5.png)
+拜登说：“例如，昨天对乌克兰一家幼儿园的炮击，俄罗斯谎称是由乌克兰进行的。”我们还继续看到越来越多的虚假信息被推送给俄罗斯公众，包括俄罗斯支持的分裂分子，声称乌克兰正计划在顿巴斯地区发动大规模进攻。
 
-编辑: Jack Li文阳
+他说没有任何证据[证明]这些断言，相信乌克兰人会选择在其边境上排列着远远超过15万军队的这个时刻，使长达一年的冲突升级，这违背了基本的逻辑。拜登说，俄罗斯正在利用虚假信息作为挑起暴力的借口。
 
-总编: 童谣
+“所有这些都符合俄罗斯人以前使用过的游戏规则，”他说。拜登的最新情况是，居住在乌克兰的亲俄分离主义分子周五表示，随着战斗的加剧，他们已经开始疏散平民。
 
-校正/发稿：浪迹天涯
+乌克兰外交部长德米特罗·库莱巴（Dmytro Kuleba）否认了这一指控。美国国家安全顾问杰克·沙利文（Jake Sullivan）和北约领导人表示，情报显示俄罗斯一直在努力策划一个 “假旗 ”行动，作为入侵的借口。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-11.png)
+拜登周五将与其他西方领导人就危机举行会谈，美国副总统卡玛拉·哈里斯前往德国参加一个安全会议，在慕尼黑安全会议上，乌克兰是讨论的主要议题。
+
+哈里斯在与北约秘书长延斯-斯托尔滕贝格举行双边会谈后说，美作为北约的一个成员将始终致力于领土完整和主权的原则。在仍然对外交持开放态度的情况下，也承诺如果俄罗斯采取侵略性行动，美将确保在讨论的经济制裁方面有严重的后果。
+
+斯托尔滕贝格说，他对作为北约支持乌克兰任务的一部分而被派往欧洲的美国军队印象深刻。拜登已经向波兰、罗马尼亚和其他国家派遣了几千人。他说在事关欧洲安全的这个关键时刻，真正显示了北美和美国对我们共同安全的承诺。
+
+“这对处理俄罗斯的侵略行动很重要，但也是为了应对一个更具竞争力的世界，以及中共国崛起的安全后果。我们必须在北美和欧洲站在一起。”
+
+美国国务卿安东尼·布林肯（Antony Blinken）也出席了会议，他在周四将美国的争议立场带到了联合国。
+
+新闻来源：[Biden says he’s ‘convinced’ Putin has made decision to invade Ukraine](https://www.upi.com/Top_News/World-News/2022/02/18/Ukraine-separatists-Biden-Harris/6961645197758/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

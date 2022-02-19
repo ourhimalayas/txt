@@ -2,36 +2,43 @@
 ---
 
 
-## 美司法部及FBI宣布组建数字货币执法团队
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2028479/)
+## 中共病毒暴露了美国应对生物威胁的软肋
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2028508/)
 
-撰稿: 纽约香草山 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-8.png)
-2月17日，美国司法部DOJ宣布，已经任命了一位检察官领导新组建的国家加密货币执法团队。同时，联邦调查局FBI正在启动一个区块链分析和虚拟资产部门。
+翻译：Steven Hu
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-295.jpg)
+图片来源：谷歌图片
 
-此前，司法部副部长丽莎·摩纳哥在一次网络安全会议上指出，检察官崔恩英将领导司法部这一加密货币执法团队。崔恩英曾主导起诉俄罗斯黑客窃取8000多万摩根大通客户信息的案件。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1756.png)
-而FBI “虚拟资产”部门的成立是在司法部有史以来最大的金融扣押行动后进行的。本月早些时候，它指控一对纽约夫妇涉嫌洗钱，涉及的比特币现在价值超过45亿美元，在2016年数字货币交易所Bitfinex的黑客攻击中被盗。
+合作国际社引用乔格.西蒙斯（Jorge Siemons)报道了周四在华盛顿举行的关于提高美国生物安全准备的听证会，会上有专家告​​诉参议员，中共病毒的大流行暴露了政府并没有做好充分准备来应对可能的生物战争威胁。
 
-去年美国最大的燃料管道网络和世界上最大的牛肉供应商遭到一系列疯狂的网络攻击，勒索软件作案团伙经常要求以比特币支付其赎金。因此，拜登政府执政下的美国监管机构一直在加强对加密货币行业的审查。
+“生物防御过度分散在各级政府和私营部门之间并缺乏合作，”政府专职办公室负责国土安全和司法团队的克里斯托弗·柯里（Christopher Currie）告诉国土安全和政府事务委员会成员。“很不幸的是，中共病毒表明这些差距是真实存在的，政府于 2018 年公布的国家生物防御战略本可以帮助美国为应对诸如中共病毒（COVID-19 ）等病毒做好准备，但尚未全面实施就发生了大流行。“
 
-新闻链接: [FBI to form digital currency unit, Justice Dept taps new crypto czar](https://www.reuters.com/technology/fbi-form-new-digital-currency-unit-justice-dept-taps-new-crypto-czar-2022-02-17/)
+“过去 20 年来，新生传染病的发生频率越来越高，”德克萨斯农工大学 Global One Health 副院长兼国家生物安全科学咨询委员会主席杰拉尔德.帕克（Gerald Parker）在听证会前表示。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-5.png)
+帕克说：“我们躲过了几次险情——但却没躲过中共病毒（COVID-19）。”
 
-编辑: Jack Li文阳
+与传统的战争武器类似，细菌和病毒等传染性生物制剂同样可用于杀死人类、动物和植物。 例如，在 2001 年 9 月 11 日的恐怖袭击之后，带有炭疽病的信件杀死了5 名美国人，并感染了另外 17 人。
 
-总编: 童谣
+“我们已经看到生物威胁发生的是多么自然，例如导致大流行的中共病毒，会如何严重伤害准备不足的社区，”密歇根州民主党主席加里.彼特斯（Gary Peters ）说。
 
-校正/发稿：浪迹天涯
+俄亥俄州共和党议员罗伯·波特曼 (Rob Portman) 询问柯里，为什么美国直到 2020 年 1 月才感染 COVID-19。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-11.png)
+”涉及的多个机构都试图进行自己的监视，”库里回应道。  “部分问题是分散和缺乏整合。”
+
+柯里说，他的办公室创建了新的监控系统，以在地方一级和私营部门监控 中共病毒。
+
+他说：“我们需要看看我们在那里创造了什么，而不仅仅是在 COVID 结束时抛弃它。”  “我们需要用它来开发新的监控系统。”
+
+两党生物防御委员会执行主任阿莎乔治说，政府必须更新技术，以便更快地监测和阻缓生物武器。
+
+乔治表示，国土安全部现有的提供生物安全风险评估的生物观察计划需要更换，他的委员会在10月份发布了一份报告，发现这个每年8000万美元的计划的准确性有问题，而且报告时间延迟。
+
+”没有理由让这种有缺陷的计划一直保持原状，”乔治说。  “我们应该关闭那个程序，用更适合的技术取而代之。”
+
+官员们同时提到，除了大流行之外，俄罗斯和朝鲜拥有活跃的生物武器可能会构成下一个威胁。
+
+原文链接：[https://www.upi.com/Top\_News/US/2022/02/17/biological-threats-preparation-United-States-Senate-hearing/6301645127587/](https://www.upi.com/Top_News/US/2022/02/17/biological-threats-preparation-United-States-Senate-hearing/6301645127587/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,13 +2,23 @@
 ---
 
 
-## 白宫谈俄乌危机：如果俄选择进攻，中共将付出代价
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2029195/)
+## 20220206文贵大直播:参加冬奥会的国家元首DNA、运动员的DNA，都被共产党掌握
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2029378/)
 
-02/15/2022 白宫发言人珍·莎琪谈俄乌危机：如果俄选择进攻，中共将付出代价。
+作者：东京樱花团视频小组
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
+
+
+
+
+
+校对：东京樱花团视频小组
+
+编辑发布：东京樱花团视频小组
+
+* * *
+![喜马拉雅东京樱花团](https://assets.gnews.org/wp-content/uploads/2022/02/yht-8.jpg)喜马拉雅东京樱花团
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

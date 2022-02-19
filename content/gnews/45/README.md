@@ -2,13 +2,13 @@
 ---
 
 
-## 苏格兰报告接种中共病毒病疫苗更易致病致死
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2027747/)
+## 中共外交部谎言：北京冬奥会收视率最高
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2027978/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/20220219-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+02/14/2022 中共外交部发言人汪文斌公然撒谎，宣称北京冬奥会已成为至今收视率最高的一届冬奥会。
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

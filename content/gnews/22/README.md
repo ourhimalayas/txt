@@ -2,8 +2,8 @@
 ---
 
 
-## 20220206文贵大直播：为什么共产党这么买俄罗斯的账
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2029258/)
+## 20220206文贵大直播：中俄《人民币作为第二法币的流通》合同取消，以及没能签署的原因
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2029403/)
 
 作者：东京樱花团视频小组
 
@@ -18,7 +18,7 @@
 编辑发布：东京樱花团视频小组
 
 * * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-7.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-4.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
