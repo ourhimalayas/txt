@@ -15,115 +15,115 @@
 
 ---
 
-### [秘翻新闻｜中共规定中小学聘用公检法人员 强制进行政治洗脑](/content/gnews/1/README.md)
- ` 秘密翻译组-即时新闻播报组`
+### [北京冬奥委会是场巨大政治秀](/content/gnews/1/README.md)
+ ` GTV新聞訪談`
 
-### [习近平面临的问题层出不穷 近期同时做了脾和肾的手术](/content/gnews/2/README.md)
+### [新加坡不再适合久留 李家江山的争夺 华人恐成牺牲品](/content/gnews/2/README.md)
  ` 焦點20分`
 
-### [俄乌局势再添变数，顿巴斯停火协议地区民用设施遭炮袭](/content/gnews/3/README.md)
- ` G-NEWS TAIWAN`
+### [国际奥委会再遭诉讼 北京奥运如何闭幕](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [马里兰州夫妇承认向外国政府出售核潜艇机密](/content/gnews/4/README.md)
+### [邪恶共产党把全人类的手机都监听了 灭共才是硬道理](/content/gnews/4/README.md)
+ ` 焦點20分`
+
+### [樱花FM|中日财经爆:美国电费翻三倍 物价创纪录 入店行窃增加](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [郭文贵先生发布海外排华警告](/content/gnews/6/README.md)
+ ` 焦點20分`
+
+### [大直播—反抗疫苗暴政的利器：大卡车运动！](/content/gnews/7/README.md)
+ ` 纽约香草山MOS03`
+
+### [共产党已被世界看成了一个巨大的威胁](/content/gnews/8/README.md)
+ ` 焦點20分`
+
+### [习近平面临的问题层出不穷 近期同时做了脾和肾的手术](/content/gnews/9/README.md)
+ ` 焦點20分`
+
+### [樱花FM|日本非政府组织支援出现人道主义危机的阿富汗](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [新加坡不再适合久留 李家江山的争夺 华人恐成牺牲品](/content/gnews/11/README.md)
+ ` 焦點20分`
+
+### [澳大利亚警方承认对堪培拉抗议民众使用了LRAD装置](/content/gnews/12/README.md)
+ ` GTV新聞訪談`
+
+### [邪恶共产党把全人类的手机都监听了 灭共才是硬道理](/content/gnews/13/README.md)
+ ` 焦點20分`
+
+### [郭文贵先生发布海外排华警告](/content/gnews/14/README.md)
+ ` 焦點20分`
+
+### [美副总统警告俄罗斯，如果入侵乌克兰将受到前所未有的制裁](/content/gnews/15/README.md)
  ` 波士顿五月花农场金融部`
 
-### [一起中共间谍涉嫌走私军事装备背后的阴谋](/content/gnews/5/README.md)
+### [美通过《2022年美国竞争法》，防止中共企业垄断](/content/gnews/16/README.md)
+ ` GTV新聞訪談`
+
+### [中日财经爆┃乌克兰危机和全球通货膨胀联手推高黄金价格](/content/gnews/17/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共再次香港放毒，感染创两年新高](/content/gnews/18/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [新的卫星图像显示，俄罗斯在乌克兰边境增派直升机](/content/gnews/19/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [背弃《巴黎气候协定》，中共国增加使用煤炭能源](/content/gnews/20/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [秘翻新闻｜中共规定中小学聘用公检法人员 强制进行政治洗脑](/content/gnews/21/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [一起中共间谍涉嫌走私军事装备背后的阴谋](/content/gnews/22/README.md)
  ` 走进澳洲`
 
-### [中共将在每一所学校安插属于它的法治副校长](/content/gnews/6/README.md)
- ` G-NEWS TAIWAN`
-
-### [美日经济周报（2月14日～2月18日）](/content/gnews/7/README.md)
+### [美日经济周报（2月14日～2月18日）](/content/gnews/23/README.md)
  ` 纽约香草山MOS02`
 
-### [大直播后记——韩正状态很不好](/content/gnews/8/README.md)
- ` 雅典娜GNotes`
-
-### [《历史的今天》2022.02.19](/content/gnews/9/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [为什么我们不调查运动员猝死的激增？](/content/gnews/10/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [破产申请是遵循法律依据](/content/gnews/11/README.md)
- ` 雅典娜GNotes`
-
-### [德国数以万计的反疫苗抗议变得更加激進](/content/gnews/12/README.md)
- ` Tokyo Sakura Video Group`
-
-### [大直播后记：七哥谈乌克兰与俄罗斯](/content/gnews/13/README.md)
- ` 雅典娜GNotes`
-
-### [郭先生发布“解救八孩女”悬赏次日,中共政府宣布重启该案调查](/content/gnews/14/README.md)
- ` GTV News Talk`
-
-### [个人体面](/content/gnews/15/README.md)
- ` 骄子`
-
-### [20220131文贵大直播：爆料革命战友为了救人卖了两亿只假疫苗](/content/gnews/16/README.md)
- ` Tokyo Sakura Video Group`
-
-### [乌克兰已正式将加密货币合法化](/content/gnews/17/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [美欧政府已经放任集体感染 预计十几亿人将因疫苗死亡](/content/gnews/18/README.md)
+### [美欧政府已经放任集体感染 预计十几亿人将因疫苗死亡](/content/gnews/24/README.md)
  ` 焦點20分`
 
-### [20220201文贵大直播：中国绝对分高、中、低三等人，也说明了人心开启的不易](/content/gnews/19/README.md)
- ` Tokyo Sakura Video Group`
-
-### [渥太华的一名卡车司机问他是否会离开自由车队。请听他充满勇气、决心和韧性的回答。人们觉得他们要捍卫的东西比要失去的东西更多](/content/gnews/20/README.md)
- ` Tokyo Sakura Video Group`
-
-### [20220131文贵大直播：盖特VISION将要上线绝对是划时代的](/content/gnews/21/README.md)
- ` Tokyo Sakura Video Group`
-
-### [20220201文贵大直播：新中国联邦人永远不要忘记灭共初心](/content/gnews/22/README.md)
- ` Tokyo Sakura Video Group`
-
-### [20220131文贵大直播： HPAY上线后 打通了十二经与六脉俄罗斯 乌克兰流通最大第二是日本](/content/gnews/23/README.md)
- ` Tokyo Sakura Video Group`
-
-### [旗袍下的虱子](/content/gnews/24/README.md)
- ` 骄子`
-
-### [2022/02/17 墙内世界](/content/gnews/25/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [大直播后记：在中共国，真话是它的毒药](/content/gnews/26/README.md)
+### [大直播后记——韩正状态很不好](/content/gnews/25/README.md)
  ` 雅典娜GNotes`
 
-### [以色列总理宣布结束疫苗“绿色通行证”](/content/gnews/27/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [20220218文贵大直播：新中国联邦不是为爹亲娘亲不如党亲的人建立的](/content/gnews/28/README.md)
- ` Tokyo Sakura Video Group`
-
-### [中共借“冰墩墩”羞辱新疆人却称那里是人类滑雪起源地](/content/gnews/29/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [高能警惕！中共变异株疫苗来了，保证药到命除](/content/gnews/30/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共利用党媒斥责星巴克，实为国企开通黄金道](/content/gnews/31/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [“9066号行政令”颁布80周年 拜登哈里斯寄言](/content/gnews/32/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [DC大中华时事：天津疫情防控期间这些行为追究刑事责任](/content/gnews/33/README.md)
+### [《历史的今天》2022.02.19](/content/gnews/26/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [律师：犯下危害人类罪的疫情策划者将面临被起诉](/content/gnews/34/README.md)
+### [为什么我们不调查运动员猝死的激增？](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [秘翻在线：台湾谴责中共国利用冬奥会推动“政治宣传”](/content/gnews/35/README.md)
- ` 秘密翻譯組G-Translators`
+### [德国数以万计的反疫苗抗议变得更加激進](/content/gnews/28/README.md)
+ ` Tokyo Sakura Video Group`
 
-### [秘翻在线：渥太华市政当局威胁要夺走自由车队卡车司机的宠物](/content/gnews/36/README.md)
- ` 秘密翻譯組G-Translators`
+### [郭先生发布“解救八孩女”悬赏次日,中共政府宣布重启该案调查](/content/gnews/29/README.md)
+ ` GTV News Talk`
 
-### [秘翻在线：北京奥运再爆日本选手摔倒](/content/gnews/37/README.md)
+### [2022/02/17 墙内世界](/content/gnews/30/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [以色列总理宣布结束疫苗“绿色通行证”](/content/gnews/31/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [20220218文贵大直播：新中国联邦不是为爹亲娘亲不如党亲的人建立的](/content/gnews/32/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [中共借“冰墩墩”羞辱新疆人却称那里是人类滑雪起源地](/content/gnews/33/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共利用党媒斥责星巴克，实为国企开通黄金道](/content/gnews/34/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [“9066号行政令”颁布80周年 拜登哈里斯寄言](/content/gnews/35/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [DC大中华时事：天津疫情防控期间这些行为追究刑事责任](/content/gnews/36/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [秘翻在线：台湾谴责中共国利用冬奥会推动“政治宣传”](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
 
 ### [日本动漫哲学之宗教信仰](/content/gnews/38/README.md)

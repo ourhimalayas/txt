@@ -2,8 +2,8 @@
 ---
 
 
-## 20220218文贵大直播：新中国联邦不是为爹亲娘亲不如党亲的人建立的
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2030481/)
+## 德国数以万计的反疫苗抗议变得更加激進
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2030780/)
 
 作者：东京樱花团视频小组
 
