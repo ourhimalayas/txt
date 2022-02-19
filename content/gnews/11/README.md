@@ -2,8 +2,8 @@
 ---
 
 
-## 普京玩一箭三雕之计
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2027925/)
+## 中共在世界的政权眼里，是奴役14亿中国人民的工具代表人
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2028047/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

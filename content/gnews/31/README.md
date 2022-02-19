@@ -2,22 +2,36 @@
 ---
 
 
-## 中日财经爆┃玩坏WTO 中共又想加入CPTPP
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2027460/)
+## 追求自由：加州卡车司机将组队前往DC
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2027573/)
 
-撰稿：东京樱花团｜喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1735.png)[*图片来源*](https://www.google.com.hk/imgres?imgurl=https://www.opportimes.com/wp-content/uploads/2020/09/CPTPP-Export-Development-Canada-1200x720.png&amp;imgrefurl=https://www.opportimes.com/cptpp-what-are-japans-commitments/&amp;tbnid=e0BcVMCzyMcuYM&amp;vet=12ahUKEwiVmbLrvon2AhUIhpQKHQjJCokQMygaegUIARDhAQ..i&amp;docid=paPnEVRhboN5UM&amp;w=1200&amp;h=720&amp;q=CPTPP&amp;hl=zh-CN&amp;ved=2ahUKEwiVmbLrvon2AhUIhpQKHQjJCokQMygaegUIARDhAQ)
-2月17日，在中共商务部召开的例行新闻发布会上，商务部新闻发言人高峰表示，关于加入《全面与进步跨太平洋伙伴关系协定》（CPTPP），中方愿通过改革，努力全面达到CPTPP规则标准，并在市场准入领域作出超过中方现有缔约实践的高水平开放承诺，向各成员提供具有巨大商业利益的市场准入机会。目前，中方正按照CPTPP有关加入程序，与各成员进行接触磋商。
+**撰稿：日本东京方舟农场 子辰**
 
-CPTPP也称为TPP11或TPP-11，是由“跨太平洋伙伴关系协定”（TPP）发展而来，是澳大利亚、文莱、加拿大、智利、日本、马来西亚、墨西哥、新西兰、秘鲁、新加坡和越南11 个签署国的经济体，合计占全球国内生产总值的 13.4% ，约为13.5万亿美元，使得CPTPP成为与美国-墨西哥-加拿大协定、欧洲单一贸易协定、美国-墨西哥-加拿大协定等全球GDP最大的自由贸易区之一和区域全面经济伙伴关系。
+据《大纪元》2月18日报道，加州卡车司机为了抗议紧急权力（强制戴口罩和接种疫苗），为了追求公民自由，正在为前往华盛顿特区做准备，他们计划将于2月23日从巴斯托（Barstow）出发，沿40号州际公路向东行驶。
 
-去年9月16日，中共商务部部长王文涛向《全面与进步跨太平洋伙伴关系协定》（CPTPP）保存方新西兰贸易与出口增长部长奥康纳提交了正式申请加入CPTPP的书面信函。去年9月17日是中共加入世贸组织（WTO）二十年的纪念日。回望中共入世后的表现，让人十分不齿，中共以市场作为诱饵，迟迟不履行入世时许下的承诺，导致WTO几乎到了名存实亡的境地。如若中共加入，CPTPP必然难逃被玩坏的命运。
+据美国公民自由基金会（American Foundation for Civil Liberties）主席克里斯‧马斯顿（Chris Marston）说，此次行动是一个名为“人民车队”（The People’s Convoy）的全国性团体发起并组织的，他们计划将前往美国首都，同时要求取消《紧急权力法》、结束强制规定。该基金会是一个倡导公民自由的非营利组织，正在协调卡车司机的抗议活动。
 
-信息来源：[**商务部：中方愿通过改革努力全面达到CPTPP规则标准**](https://j.eastday.com/p/1645086648043683)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片-1-3-5.jpeg)（图片来自大纪元）
 
-*校对：东京樱花团/東洋武士*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+据悉，“人民车队”的组织者莫琳‧斯蒂尔（Maureen Steele）2月16日在班农“作战室”（War Room）中说，车队的预期路线将发布在其组织网站上。
+
+班农“作战室”是一个流媒体政治谈话节目和播客，由川普前顾问史蒂夫‧班农（Steve Bannon）主持。
+
+作为班农节目的常客，前川普经济顾问彼得‧纳瓦罗（Peter Navarro）在“作战室”称赞加拿大的卡车司机们领导了对政府暴政的反抗。称赞他们就像波士顿倾茶事件（美国革命导火线），称他们是全球运动的源头，我们必须感谢那些加拿大卡车司机。
+
+病毒学家、免疫学家和mRNA疫苗发明者罗伯特‧马龙（Robert Malone）博士也一直批评联邦政府对大流行病的处理，他在班农作战室节目中提到，华盛顿DC可能很快会看到一种新的“醒悟与觉醒”。马龙还说，当卡车司机到达国会山时，他们很可能会唤醒我们众多的众议员和参议员，他认为这些人现在有点睡着了。
+
+此外，现身班农作战室支持车队的还有来自美国自由飞行队的成员约书亚‧约德（Joshua Yoder），这个最近成立的团体由美国航空、铁路和卡车专业人士组成，他们主张“自由旅行的权利”。约德说，有很多普通人聚集在一起并团结起来，这是人们在发声，表达他们的不满，我认为政府会很好地听取我们的意见。
+
+参与此次行动的卡车司机们在“人民车队”网站发布视频说，这不仅仅关乎我们卡车司机，它关乎所有美国人。
+
+参考链接：
+[https://www.epochtimes.com/b5/22/2/18/n13585790.htm](https://www.epochtimes.com/b5/22/2/18/n13585790.htm)
+
+素材采编：子辰
+编辑：青城道姑
+发布：文曦
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
