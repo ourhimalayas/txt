@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/19/2022 1:10 AM (UTC)`
+
+2月18号：尊敬的战友们好……这个太棒了，太能满足我们的食欲了https://h-pay.typeform.com/to/goydIKHv
+
+---
+
 `@miles 2/18/2022 11:55 PM (UTC)`
 
 2022年2月18日 文贵大直播：乌克兰俄罗斯危机各执一词；Omicron病毒解禁众说纷纭
@@ -147,13 +153,6 @@
 
 2/16/2022 Miles Guo: I think it's my destiny to file for bankruptcy. The CCP has made me wait five years for the red light, while only in the United States could I choose the yellow light – bankruptcy. Taiwan is my role model. She chose the yellow light in the face of powerful forces, but she still has freedom and dignity.<br/><br/>2/16/2022 文贵直播：文贵认为命中必然会有这次破产；中共让文贵等了5年的红灯，而只有在美国才有黄灯可选 - 破产；台湾是文贵的样板，她在强大的势力面前选择了黄灯，但有自由与尊严
 ![img](https://media.gettr.com/group46/getter/2022/02/17/04/8375a314-f866-cd70-9103-c9846353eea1/out.jpg)
-
----
-
-`@miles 2/17/2022 2:35 AM (UTC)`
-
-2/16/2022 Miles Guo: Various countries have begun to admit that the COVID vaccines contain graphene oxide, and the world will be completely changed. All humankind will not let go of the CCP regarding the issues of the COVID virus and its vaccines. The CCP employs the same despicable tactics to deal with both the Winter Olympics and me by always giving themselves the green light and giving their opponents only the red light.<br/><br/>2/16/2022 文贵直播：各国已开始承认疫苗含氧化石墨烯，全球将大变；全人类不会在病毒和疫苗问题上放过中共；中共用同样的卑鄙手段对付文贵和冬奥会 - 给自己开绿灯，给对方只开红灯<br/>
-![img](https://media.gettr.com/group33/getter/2022/02/17/02/2a6bde2a-0e4b-2b3b-3397-7fe8e72d7c58/out.jpg)
 
 ---
 
