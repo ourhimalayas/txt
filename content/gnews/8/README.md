@@ -2,19 +2,34 @@
 ---
 
 
-## 2022年2月19日，全球中共病毒疫情情况汇总
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2032847/)
+## 有声|香港中共病毒形势失控
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2032879/)
 
-制作：DT新闻组
+配音：香草山巡管部– 文凯琳
 
-**中共的杀戮还在继续……**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/FCAD51EC-5AD8-4691-8331-FB1DAF367E3B.jpg)
 
-发稿：信心的选择
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-5.jpeg)
 
+
+据[布赖特巴特新闻网](https://www.breitbart.com/asia/2022/02/16/hong-kong-coronavirus-situation-out-of-control-under-chinese-rule/)2月16日报道，香港当地新闻媒体Coconuts Hong Kong周二称，香港目前正面临着最严重的中共病毒爆发，同时也受到政府当局中亲中共势力的日益统治。
+
+数以千计的感染者在家中等待被送入医院或其他隔离设施. 香港卫生当局2月14日检测到创纪录的中共冠状病毒新病例，有2071名新的感染者被确认，这是连续第四天出现四位数的病例。
+
+文字版原文：[香港中共病毒形势失控](https://gnews.org/zh-hans/2026808/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

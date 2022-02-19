@@ -2,19 +2,18 @@
 ---
 
 
-## 做不好快递的中国邮政正式卖咖啡？
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2032598/)
+## 二针疫苗后不舒服, 死在家中，家人投诉
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2032689/)
 
-撰稿：水滴石穿
-上传：追着曙光跑
+#### 翻译              意大利达芬奇农场                 小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-19-alle-13.40.12-1.png)图片来源：eventiavversinews.it
+西西里当地的拉古萨检察院下令对一名64岁的名叫卡拉多•布利希(Corrado Puglisi)的警察进行尸检。这位警察2月17日上午在家中被发现死亡。事实上家属已提交投诉， 以确定死因。他们怀疑死亡可能与前几天接种的第二剂新冠疫苗有关。
 
-据中共国新浪新闻2月14日的报道，中共国的第一家邮局咖啡店在厦门正式营业，这是属于中国邮政的直营门店。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-20-at-00.41.20-1.jpeg)图片来源，原新闻
-从门店来看，熟悉的复古绿布景和标志性的邮筒，带着中共国邮政色彩。从产品来看，美式、拿铁、卡布奇诺都有，最便宜一杯22元。其中，咖啡、茶饮价位在20-40元之间，门店能提供到店自取和送货到家两种服务。通过大众点评，我们可以看到最便宜的是经典美式，一杯22元，而最贵的一杯要38元。
+据初步调查，该男子在接种第二剂疫苗后感到不适。 家人怀疑跟疫苗有关。他们通过律师在当地检察院投诉。地方法官下令对这名前警察停留在医院里的尸体进行尸检。
 
-作为一家老国企，在快递行业中竞争力越来越弱，传统业务拼不过其他同行，企业内卷严重，职工叫苦连天，机制僵化，管理层根本是在压榨企业内的员工。在此背景下卖咖啡，要么就是博眼球，要么就是骗当局的资金。有个外行习包子在，下面是多种手段掏空中共国，卖咖啡的中国邮政也不乏在内。中共体制之恶，最终走上人人互害之路。
+原文链接： [https://www.eventiavversinews.it/sicilia-trovato-morto-in-casa-ieri-mattina-stava-gia-male-da-qualche-giorno-subito-dopo-la-seconda-dose-la-famiglia-denuncia-in-procura/](https://www.eventiavversinews.it/sicilia-trovato-morto-in-casa-ieri-mattina-stava-gia-male-da-qualche-giorno-subito-dopo-la-seconda-dose-la-famiglia-denuncia-in-procura/)
 
-信息来源：[中国邮政正式卖咖啡，一杯22元](https://finance.sina.com.cn/tech/2022-02-19/doc-imcwipih4260064.shtml)
+编辑、上传：  Xiao   baige
 
  
 
