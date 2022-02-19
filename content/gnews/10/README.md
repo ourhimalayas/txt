@@ -2,37 +2,34 @@
 ---
 
 
-## 战友实例分享私人信托设立（四）投资组合公司架构—SPC（需要金融牌照）
-` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2032865/)
+## 有声|香港中共病毒形势失控
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2032879/)
 
-供稿：中华联邦公民
-编辑发稿：am夏天
-喜马拉雅纽伦堡正义农场
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1809.png)
-独立投资组合公司（Segregated Portfolio Companies，以下简称SPC），SPC是指一个独立的法人，可创建一个或多个独立投资组合。每个投资组合的资产和负债与其他投资组合的资产和负债，以及SPC的一般资产和负债也是各自独立的。某一个投资组合的有关资产，只供该投资组合的股东和债权人连用，且不得用于偿还其他投资组合的负债。
-简单的来说，SPC就是根据开曼群岛公司法在开曼设立的一个SPC形式的豁免公司。可以针对不同的投资人发行不同的投资组合，各投资组合之间的资产及责任相互分离。
-
-**SPC特点及优势**
-
-1. 灵活的投资组合：SPC是一种非常灵活的组织形式，一个SPC内可以设立一个或者多个独立投资组合（Segregated Portfolio，简称SP），且没有数量限制。对于SPC内部各SP所投资的产品、产业、国家、市场亦没有限制。
+配音：香草山巡管部– 文凯琳
 
 
-2. 独立的资产及责任：各SP独立的资产及责任是SPC最显著的特点，也是大多数投资人选择SPC的重要原因之一。
 
-3. SPC与各SP人格不分离：虽然SPC内部对资产与责任进行了区分，且在SPC内部各个SP相互独立，但根据公司法SPC仍然是一个完整的主体，SPC与各SP在公司人格上并不是分离的。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-4. 高效且高性价比：在一个SPC内部设立多个不同类别的SP，可以使得设立一个SPC而实现多个不同资产的投资和管理。从成本、销量的角度而言，SPC亦有非常大的优势。
 
-**
-SPC常见用途**
-在开曼群岛注册SPC，能为各种商业领域的不同法律架构，创造各种机会。SPC通常用于投资基金或共同基金架构。从SPC得益的例子，包括多级对冲基金和伞型基金，透过SPC能够为架构中资产和负债间的交叉责任问题提供保障。其他例子包括多部位债务发行工具、房地产开发、证券化交易及衍生工具交易等。
 
-**SPC申请依据及要求**
-开曼群岛独立投资组合公司的法律依据是按照《开曼群岛公司法（2016年修订版）》第十四部分的规定，该法允许任何豁免公司注册为SPC，可代理注册。
-设立SPC的程序与设立豁免公司的程序相同。根据《开曼群岛公司法（2016修订版）》第215条规定，一家SPC名称，应包含“SPC”或“Segregated Portfolio Company”的字样。而公司法第216（3）条规定，每个投资组合的名称，应包括 “Segregated Portfolio”、“SP”或“S.P”的字样。
-进行SPC设立，必须提交公司组织章程大纲及细则给公司注册处。通常在相关文件提交给公司注册处后5-7个工作日内，可收到注册证书和章程归档盖印本。
-SPC需要金融牌照，无限制要求，SPC基金相于一个母基金，其下可设立无数个子基金，费用极高，以万计。每一个SPC无法律实体，只是投资组合，而前面所提到的基金必须是实体。对于普通战友ELP就已足够。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/德农二维码-30.png)
+据[布赖特巴特新闻网](https://www.breitbart.com/asia/2022/02/16/hong-kong-coronavirus-situation-out-of-control-under-chinese-rule/)2月16日报道，香港当地新闻媒体Coconuts Hong Kong周二称，香港目前正面临着最严重的中共病毒爆发，同时也受到政府当局中亲中共势力的日益统治。
+
+数以千计的感染者在家中等待被送入医院或其他隔离设施. 香港卫生当局2月14日检测到创纪录的中共冠状病毒新病例，有2071名新的感染者被确认，这是连续第四天出现四位数的病例。
+
+文字版原文：[香港中共病毒形势失控](https://gnews.org/zh-hans/2026808/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

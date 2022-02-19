@@ -2,20 +2,43 @@
 ---
 
 
-## 林郑月娥：香港“方舱医院”明日开建
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2032833/)
+## 港共政府国安处拘捕艺人阮民安
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2032862/)
 
-撰稿—八木
-校对/上传—无明逆流
+作者：纽约香草山农场 – 文鹰
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月15日，据相关媒体报道，港共政府国安处当天以所谓的“涉嫌煽动和洗钱罪”拘捕了歌手阮民安。
 
-2月18日，港共特区行政长官林郑月娥举行新闻发布会，她在接受中共广播总台记者采访时说道，“中央政府全力支持香港抗击疫情，内地支援香港抗疫流行病学专家组给香港带来了宝贵的抗疫经验。19日起，香港将在内地团队的协助下开始建设一个临时隔离设施“方舱医院”。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/W01.jpeg)图：自由时报
-对于急剧增加的病毒感染人数，林郑月娥称香港现阶段不会“封城”。她表示特区政府正在制定香港全民核酸检测方案，并会采取更加严厉的疫情防疫措施，特区政府也会在中共的协助下建立隔离措施。
-林郑月娥表示，“在中央的助力下，香港很快会有隔离设施‘方舱医院’，这将令我们在很短的时间，提升各方面的能力。”
-![](https://assets.gnews.org/wp-content/uploads/2022/02/W16.jpeg)图：方舱医院
-**中共将借香港病毒疫情管控香港**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide3-8.jpeg)
 
-港共政府里应外合，加上中共借病毒疫情进一步的控制香港，香港正在急速成为中共治理下的大陆城市。方舱医院和中共的疫情管制模式出现香港，就是香港人又一次灾难的开始，这是极度危险的信号。中共所谓的成功防疫模式，就是蒙住中国人的眼睛，捂住中国人的耳朵；堵住中国人的嘴。香港人民正在走入和中国人一样的灾难之路。
+资料显示，阮民安曾是香港前男子乐队组合的成员。在2019年香港爆发的反送中运动期间，他曾积极参与相关活动并多次在活动中演唱应援歌曲。当时，阮民安数次公开批评香港警方暴力镇压抗议民众，还在社交媒体上谴责港共政府沦为中共帮凶。
+
+自中共病毒疫情在香港蔓延后，阮民安再度公开抵制港共政府采取的暴力防疫措施。同时，他还在网络上向香港民众反复示警中共病毒疫苗的危害。
+
+据悉，香港国安处抓捕阮民安的理由是，其在去年11月的线上演唱会上演唱了“光复香港时代革命”的抗争歌曲。为此，国安处声称，阮民安此举意在煽动香港民众改变政府制度，而此举有违《中共国安法》。
+
+分析人士则对此指出，在中共政府的控制下，香港公民的言论自由已经被极力压制，加之港共政府大规模抓捕抗议人士的做法，香港的自由空间或将不复存在。
+
+参考链接：
+1. [港媒：“乱港”艺人阮民安被控煽动罪 保释被拒还押候审](https://news.sina.com.cn/c/2022-02-18/doc-ikyakumy6598806.shtml)
+2. [香港歌手阮民安被捕 曾参加反送中运动](https://www.ntdtv.com/gb/2022/02/16/a103349199.html)
+3. [阮民安被捕│國安處：唱「光時」歌曲　杯葛打針　捐款用作賭注](https://www.hk01.com/突發/736155/阮民安被捕-國安處-唱-光時-歌曲-杯葛打針-捐款用作賭注)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+
+总编：Irene木木
+编辑：Ivy001
+审核：Irene木木
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 
  
 
