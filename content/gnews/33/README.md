@@ -2,19 +2,39 @@
 ---
 
 
-## 做不好快递的中国邮政正式卖咖啡？
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2032598/)
+## 有声|德州起诉脸书非法使用面部识别
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2032641/)
 
-撰稿：水滴石穿
-上传：追着曙光跑
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月14日，据当地媒体消息显示，美国德克萨斯州总检察长已经提起了对脸书的诉讼，指控其利用面部识别技术秘密地收集和使用数百万德克萨斯民众的生物特征数据并非法谋利。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E6%88%AA%E5%B1%8F2022-02-19-%E4%B8%8A%E5%8D%882.49.05.png)
+起诉书称，在未经用户同意的情况下，脸书从照片和视频中数十亿次地捕获用户的生物特征数据，并且将这些信息披露给他人。此外，脸书也未能在合理的时间内销毁相关数据。
 
-据中共国新浪新闻2月14日的报道，中共国的第一家邮局咖啡店在厦门正式营业，这是属于中国邮政的直营门店。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-20-at-00.41.20-1.jpeg)图片来源，原新闻
-从门店来看，熟悉的复古绿布景和标志性的邮筒，带着中共国邮政色彩。从产品来看，美式、拿铁、卡布奇诺都有，最便宜一杯22元。其中，咖啡、茶饮价位在20-40元之间，门店能提供到店自取和送货到家两种服务。通过大众点评，我们可以看到最便宜的是经典美式，一杯22元，而最贵的一杯要38元。
+起诉书指出，脸书明知这一行为违反了德克萨斯州的隐私保护法律，但其仍旧以牺牲个人安全和福祉为代价，利用用户的个人隐私信息发展其社交媒体帝国，并以此获得历史性暴利——这是大型科技公司欺骗性商业行为的又一实例，而它必须被停止。
 
-作为一家老国企，在快递行业中竞争力越来越弱，传统业务拼不过其他同行，企业内卷严重，职工叫苦连天，机制僵化，管理层根本是在压榨企业内的员工。在此背景下卖咖啡，要么就是博眼球，要么就是骗当局的资金。有个外行习包子在，下面是多种手段掏空中共国，卖咖啡的中国邮政也不乏在内。中共体制之恶，最终走上人人互害之路。
+资料显示，脸书的面部识别项目自2010年起一直执行到2021年11月。此前，脸书曾在2020年以6.5亿美元的赔偿，和解了伊利诺伊州就该项目提出的诉讼。而此次德克萨斯州的起诉则将寻求对脸书数千亿美元的民事处罚。
 
-信息来源：[中国邮政正式卖咖啡，一杯22元](https://finance.sina.com.cn/tech/2022-02-19/doc-imcwipih4260064.shtml)
+
+
+文字版原文：[德州起诉脸书非法使用面部识别](https://gnews.org/zh-hans/2029529/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

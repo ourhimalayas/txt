@@ -2,31 +2,30 @@
 ---
 
 
-## 大直播后记：别错过躺平币
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2033273/)
+## NFSC新闻、G|TV新闻访谈简报|2022年2月19日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2033291/)
 
-整理：Ghope、枫叶红了
-编辑：小熊
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO-2.jpg)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/JV4_5ME01ZG_5LC@60.png)
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-18.png)
+文章仅代表作者本人观点，与Gnews无关
 
+视频参看：
+[2022.02.19早 《NFSC新闻》](https://gtv.org/video/id=6210f09db706176dd78d51d1)
+[2022.02.19早 G|TV《新闻访谈》](https://gtv.org/video/id=6210f7d9b706176dd78d57f8)
 
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-图片来源：墨尔本雅典娜农场设计组
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-2.png)
 
-
-还问七哥我为啥被Ko了？  你说我说啥呢？ 兄弟啊，你太弱了！兄弟姐妹们，所以说刚才小福利这个问的特别好，HPAY、法币和喜币，还有这个数字货币，基本上就是这几个价值观你得闹明白，你闹明白了，你都不用想，你都该知道怎么样、怎么必须使用HPAY、必须有H币，是吧？ 这还用说吗？ 接下来还有躺平币。肯定前几波最便宜，给最多的一定是穷战友先上去。现在投资机构我们已经给他说了，必须也以战友为主啊，千万别错过这机会，所有的义工、法治基金捐款者、Gclub会员、GTV投资者，还有用喜币的，一定是优先的，法治基金捐款者第一优先。 躺平币第一波基本上就是跟锚币差不多，送，但是你得有一定的成本，基本上就送。 但一切以战友为主，你们不要错过这个机会，特别是做义工的战友。你看每次这个大直播里边，咱英喜、美东啊，这个整个的盘古农场啊，是吧，还有这个文耀这纽伦堡这所有做的这个视频，这每个义工，每1秒钟都不能被忘掉 。包括特别是这个帮助国内战友转人民币出来转成美元的战友们。记住啊，在躺平币的给予上，一定是跟法治基金排在同一列 ，给法治基金的捐款者的优惠政策，第一要考虑到帮助战友转款的，然后就是推广Hpay的，最后才轮到你Gclub和这个GTV投资者，这是必须的。所以说，兄弟姐妹们，把握住机会! 人生的一个错误，认识错误的一个人，毁掉你的一生，可能染上艾滋病，也染上性病，也可能骗走你的钱，骗走你的一生，也可能被锁链24年。认对一个人，你可能真的就加入新中国联邦，无苗有币。无苗有多重要！今天一大早我在说，你们知道不打疫苗有多重要！你看我手机，很多人死亡，这家死，那家死，你受不了的。都是打疫苗死亡。你看看香港，那都是打疫苗的，97.6%是打过2到3针疫苗的。你想，打疫苗有多恐怖！ 然后你有币，然后你再了解喜支付，然后还有喜抵押、喜贷款，是吧？ 这是多大的事！兄弟姐妹。 但是，我再告诉你，一定要记住一条啊， 七哥说的，不论拿到福利币的还是你拿到投资机会的，如果你是攻击战友，如果你帮助共产党，绝对有本事把你的币给你收回来。这一点是一定能做到啊。千万不要以为你有钱，你就攻击战友，你欺骗战友。
-
-资料来源：[2022年2月18日 文贵大直播](https://www.gettr.com/streaming/pvffqc88e7)
-
-*发布：星谕*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

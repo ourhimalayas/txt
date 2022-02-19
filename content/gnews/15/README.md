@@ -2,30 +2,28 @@
 ---
 
 
-## 有声|美司法部及FBI宣布组建数字货币执法团队
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2032939/)
+## 警惕美国银行中介针对中国人的违法行为
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2032962/)
 
-配音：香草山巡管部– 文凯琳
-![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-8.png)
-2月17日，美国司法部DOJ宣布，已经任命了一位检察官领导新组建的国家加密货币执法团队。同时，联邦调查局FBI正在启动一个区块链分析和虚拟资产部门。
+**撰稿：日本东京方舟农场 Miyali7768(文玉）**
 
-此前，司法部副部长丽莎·摩纳哥在一次网络安全会议上指出，检察官崔恩英将领导司法部这一加密货币执法团队。崔恩英曾主导起诉俄罗斯黑客窃取8000多万摩根大通客户信息的案件。
+2月16日，法制基金发布的一份申明披露，一伙自称是美国银行的中介与银行内部腐败雇员勾结，以提供在美开设合法银行账户的方式，针对华人实施违法行为。已有数位华人受害。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-299.jpg)（图片源自网络）
+申明表示，根据美国司法部的法庭文件，一伙横跨美国和中国的个人组成的犯罪集团，自称是美国银行的中介，能提供在美国银行开设合法银行账户的服务，但该服务违反了美国法律。
 
-而FBI “虚拟资产”部门的成立是在司法部有史以来最大的金融扣押行动后进行的。本月早些时候，它指控一对纽约夫妇涉嫌洗钱，涉及的比特币现在价值超过45亿美元，在2016年数字货币交易所Bitfinex的黑客攻击中被盗。
+申明披露，这个针对华人的犯罪团体与位于加州的美国银行银行内部腐败雇员之间达成合作。更令人费解的是，美国司法部、美国国务院、美国国土安全部已经启动法庭程序，扣押了被这个犯罪团伙锁定的受害者资金。
 
-文字版原文：[美司法部及FBI宣布组建数字货币执法团队](https://gnews.org/zh-hans/2028479/)
+申明还说，为确保美国政府和美国银行将扣押的资金合理地返还给受害者，法制基金目前正在与律师团队协商。
 
-音频处理/发稿：Daxia
+此外，申明还提醒受害华人不要和任何提供在美国银行开始账户服务的代理人员或机构交往，法制基金将随时通报事态进展。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+参考链接：
+[https://www.rolfoundation.org/files/BOA-Corruption-Ring-Targeting-Chinese-Nationals\_2.16.22-zh.pdf](https://www.rolfoundation.org/files/BOA-Corruption-Ring-Targeting-Chinese-Nationals_2.16.22-zh.pdf)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+素材采编：Miyali7768(文玉）
+编辑：青城道姑
+发布：爱放飞
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
