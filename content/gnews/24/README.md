@@ -2,27 +2,36 @@
 ---
 
 
-## 美抗议将开始，加拿大卡车司机要求什么？
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2028456/)
+## 特鲁多将34个加密货币钱包列入黑名单
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2028558/)
 
-翻译：Julia Gao
-校对：枳实
-剪辑|字幕：小强
-编辑：守望黎明
+撰稿: 加拿大温哥华扬帆农场 – Spirit
+![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-11.png)
+据外媒 2月16日报道，特鲁多向联邦警察部队发出命令，要求加拿大所有受FINTRAC 监管的公司停止与34个加密货币钱包进行交易，这些钱包据称与渥太华的自由车队有关。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1758.png)图片来源：https://www.thecountersignal.com
+特鲁多政府官员列出了29个比特币地址，2个以太坊，以及另外三个加密货币钱包。经确认，至少有一个钱包价值超过100万美元的比特币，通过加密货币支持自由车队的卡车司机。
 
-加拿大卡车司机的抗议活动持续进行，卡车“自由车队”活动也开始在世界各地延烧。与此同时，加拿大政府正紧锣密鼓地筹划着对“自由车队”发起反击。他们一方面与主流媒体联手制造对卡车司机不利的舆论，企图引导民意与抗议活动产生对立；另一方面调集大批警察力量，准备对“自由车队”采取行动。然而，抗议强制疫苗、反对政府借疫情限制人民的自由，已经逐渐成为人们的共识。加拿大政府一旦采取过激行动，只会是火上浇油。
+特鲁多政府对支持合法和平抗议的赞助资金疯狂阻截，遭到各界抨击。
 
-视频来源：[Freedom Convoy: What Canadian truckers demand as US protest set to start this weekend](https://www.foxnews.com/world/freedom-convoy-truckers-demand-protest-us-super-bowl-los-angeles)
+新闻:
 
-*发布：Mttfly*
+[EXCLUSIVE: RCMP orders blacklist of 34 crypto wallets under Trudeau’s authoritarian prerogative](https://www.thecountersignal.com/news/rcmp-ban-34-crypto-wallets-from-working-in-canada)
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-5.png)
 
+编辑: Jack Li文阳
+
+总编: 童谣
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-11.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,35 +2,29 @@
 ---
 
 
-## 三方合作以H PAY销售榴莲单日成交近一万美元
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2028463/)
+## 扛着重武器的渥太华警察抓捕了至少70名和平抗议者
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2028567/)
 
-撰稿: 纽约香草山医疗部 – 云豹
-![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-11.png)
-当地时间2月17日，台湾农场与马来西亚榴莲商家，及鸡血王喜币大作战节目三方合作，共同推出H PAY买榴莲送喜币的项目。当天成交了三十笔订单，以每笔订单价296 HDO计算，成交金额近一万美元。显示以H PAY支付来进行商业交易的模式将有无限的空间及发展潜力。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1755.png)
-此次销售活动由台湾农场的合作商家提供十个喜币抽奖，在鸡血王喜币大作战2月16日的节目中引入商品贩卖广告。该榴莲商家提供买「四盒榴莲即送一个喜币」 的商品套餐作为促销手段，引起消费者的热烈响应。销售成功后赠送给买家的一个喜币则由台湾农场负责交付。
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-82.jpg)
+图片来源： www.secretchina.com
 
-这种由农场提供销售计划、藉由GTV节目平台做宣传、HPAY合作商家负责出货的联合商业行为，创造出了一种新的G系列营销一体化模式。如果加以推广及改进，未来将商机无限。
+零对冲网2月18日报道，在周五下午的媒体会议上，渥太华临时警察局长史蒂夫·拜尔告我记者，渥太华警察至少已经抓捕了70名抗议者，包括高知名度的组织者塔马拉·李奇，克里斯·鲍勃和帕特·金等，并拖走了21辆卡车。
 
-新闻连接：
-[https://gtv.org/video/id=620dbacb432ae869226e147e](https://gtv.org/video/id=620dbacb432ae869226e147e)[https://gettr.com/post/pv31mvbfde](https://gettr.com/post/pv31mvbfde)
+拜尔说”技巧性”进入抗议者中间，并说警察们已经控制了地面情况。他说：“我们将一天24小时地操作直到居民和社区重新恢复原状。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-5.png)
+来自安省和魁北克的警察以及皇家骑警，均已加入渥太华警力以终止抗议。一些警察带着军事装备性武器以终止持续三周的抗议示威。
 
-编辑: 宁文静
+人们看到从渥太华传来的信息和视频，都被这一幕由加拿大总理特鲁多选择的让这些看起来是军事人员来对付手无寸铁的平民，仅仅因为要求被新冠疫情后政府从老百姓手中夺去自由权利。
 
-总编: 童谣
+特鲁多正在制造政治危机，政府还企图掩盖真相不让世界知道渥太华发生了什么，警察威胁媒体录像，不要对着抓捕卡车司机拍照，不能要面临被捕。特鲁多动用紧急法权力已经禁止旅游，阻止抗议，实行广泛的抓捕，阻断捐款，冻结卡车司机和他们的支持者的银行账户，人们非常生气，甚至担心可能的银行冻结。
 
-校正/发稿：浪迹天涯
+##### 新闻来源： [Heavily-Armed Ottawa Police Arrest At Least 70 ‘Freedom Convoy’ Protesters, Will Run “24 Hours A Day” To Clear City](https://www.zerohedge.com/political/final-showdown-canada-police-set-end-freedom-convoy-siege-capital)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-11.png)
+#  
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,20 +2,20 @@
 ---
 
 
-## 东北官场胡咧咧
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2028410/)
+## 秘翻在线：关于疫苗，有多少人们还在这样“错以为”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2028515/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+撰稿：待命（文暁）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/画像1-25.png)（图片源自本文链接）
+2月19日的日本电视新闻消息：18日，全国有211人被证实死于中共病毒(新冠病毒)，其中有以为80多岁的感染者。18日晚，我们采访了这位死者的，住在埼玉市的女儿（５０多岁）。
 
-*发布：陶子*
+她说：这令我非常吃惊，因为我没有想到会这么糟糕，进展这么快。她虽然真的是个年长的母亲，但她非常可爱，非常热情和友好。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+这名妇女的母亲患有糖尿病等其它疾病，一直住在一家护理院。本月早些时候，她中共病毒检测呈阳性，当时该妇女要求她的母亲入院治疗。９日确诊阳性，终于四天后的13日被送入医院。然而，她在15日因肺炎等原因去世。其间，护士是通过视频远程照顾她的母亲。她去世后，护士尽力为她梳理凌乱的头发，说：已经尽力了。
+
+这位失去母亲的妇女说：说实话，我一直以为这样的事只是别人的故事，直到我的亲人成为一名病人。我以为如果我们接种了三针疫苗，即便是被感染了，也就只会有轻微的症状而已。我不希望大家以如此痛苦的方式失去宝贵的家人，这不是好事。所以，我希望这种情况能尽快得到解决。
+
+信息源：[ワクチン3回目接種も母親が死去 娘の訴え「ひとごとだと思っていた」 (msn.com)](https://www.msn.com/ja-jp/news/national/%E3%83%AF%E3%82%AF%E3%83%81%E3%83%B33%E5%9B%9E%E7%9B%AE%E6%8E%A5%E7%A8%AE%E3%82%82%E6%AF%8D%E8%A6%AA%E3%81%8C%E6%AD%BB%E5%8E%BB-%E5%A8%98%E3%81%AE%E8%A8%B4%E3%81%88-%E3%81%B2%E3%81%A8%E3%81%94%E3%81%A8%E3%81%A0%E3%81%A8%E6%80%9D%E3%81%A3%E3%81%A6%E3%81%84%E3%81%9F/ar-AAU2YOJ?ocid=msedgntp)
 
  
 

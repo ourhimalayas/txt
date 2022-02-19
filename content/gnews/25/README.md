@@ -2,34 +2,31 @@
 ---
 
 
-## 中共病毒及疫苗灾难是对人类的一次大清算
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2028450/)
+## 加拿大军队因支持卡车司机抗议而被调查
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2028553/)
 
-撰稿：银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-11.png)
-2月16日大直播中郭先生指出，此次中共病毒以及疫苗灾难是对人类的一次大清算。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1754.png)图片来源：Gettre
-过去七十年来，人类拥有一段长时间的和平，科技高速发展，财富和人口暴涨。与此同时，共产党的邪恶也达到了顶峰，并且利用财富统治人类。中共国通过中央银行控制老百姓，最近加拿大的土豆也效仿此法，随意停用老百姓的银行卡。人类自诞生以来都未曾有过如此的威胁。任何依靠独裁权力，伤害破坏人类同胞和大自然的行为，均会受到严厉的惩罚。而信仰缺失毫无辨别是非黑白能力的人，将因此付出高昂的代价。
+翻译：冰糖葫芦喵
 
-财富的集中，信仰的缺失，世界走到了黑暗的尽头。而爆料革命是暗夜烛火，每个战友都用光和热来温暖身边的人。只要把中共病毒和疫苗的真相告诉别人，不用在乎对方是否相信。行善不需要问结果，若问其果乃是大过。要求别人对自己的所谓帮助有所回应的是贪嗔痴慢疑，是大恶。能够听到爆料革命的真相，并完全接受的人，靠的是自我的修行和结果，旁人的劝慰只是抛砖引玉。
+编辑与校对：冰糖葫芦喵、灭共文明
 
-新闻来源: [2022年2月16日 文贵大直播](https://gtv.org/video/id=620cf40c432ae869226d8db5)
+《布莱巴特新闻网》2月18日报道，**加拿大军方有九名成员被“确认”参与了卡车司机和平抗议活动或在社交媒体上表达支持，这些服役人员正在接受调查。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-5.png)
+据报道，这些接受调查的人包括在社交媒体上发布的视频中身穿制服的士兵，**他们表示支持由卡车司机领导的抗议活动，并公开反对加拿大政界人士。**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/加拿大军人2.jpg)反对疫苗的军事调查官（图片来源：Youtube截图）
+加拿大国防发言人Dan Le Bouthillier告诉媒体，这些军人将会被追究责任，后果可能会被被开除军籍。一些接受调查的军人已经在离开加拿大部队的过程中，因为他们拒绝了强制接种疫苗的要求。
 
-编辑：静言
+此前有报道称，2021年5月，**一名呼吁其他服役人员不要协助分发疫苗的加拿大部队成员，被指控犯有与叛变有关的罪行，这是加拿大军方首次使用这种指控。**
 
-总编：童谣
+《华盛顿邮报》报道说，加拿大军方精英反恐部队的两名现役成员因涉嫌参与渥太华市中心的抗议活动而正在接受调查。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/加拿大军人1.jpg)卡车司机和支持在渥太华国会山和平抗议（图片来源：NurPhoto via Getty images)
+最后文章指出，**加拿大部队的退休和服役人员是拉响警报的人。另一名预备役军人因涉嫌向抗议的卡车司机捐款而正在接受调查。**
 
-校正/发稿：浪迹天涯
+**新闻链接：**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-11.png)
+[Report: Canadian Troops Investigated for Supporting Trucker Protests (breitbart.com)](https://www.breitbart.com/politics/2022/02/18/report-canadian-troops-investigated-for-supporting-trucker-protests/)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
