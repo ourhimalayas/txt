@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/19/2022 10:26 AM (UTC)`
+
+2/18/2022 Miles Guo: Putin has led Xi Jinping to the path of his demise! Putin’s plan of “one stone three birds” - Let Xi take the chance to invade Taiwan and kick the CCP out of the game over the Ukraine issue, while Russia can take control of Europe by using Nord Stream 2 when the EU is in chaos.<br/><br/>2/18/2022 文贵直播: 习近平已被普京引上了死亡之路！普京一箭三雕之计 - 令习跃跃欲试攻打台湾，在乌克兰问题上将中共踢出局，同时俄罗斯可趁欧盟混乱之际利用北溪2号收回欧洲！<br/>
+![img](https://media.gettr.com/group40/getter/2022/02/19/10/4be826af-eaa5-3b8e-4f7e-a68708171cc6/out.jpg)
+
+---
+
 `@miles 2/19/2022 5:30 AM (UTC)`
 
 2/18/2022 Miles Guo: For Xi Jinping, who was fooled by Putin regarding the Ukraine issue and had surgeries performed on both spleen and kidney, half of his life is gone as he is faced with the CCP virus outbreak in Hong Kong, the incidents of Eileen Gu, the chained woman, and Peng Shuai, and the CCP’s Bureau of Statistics’ laundering and stealing money.<br/><br/>2/18/2022 文贵直播：面临着香港疫情大爆发、谷爱凌、锁链女和彭帅等事件以及统计局借冬奥会洗钱、骗钱，在乌克兰问题上被普京耍了一把并做了肾、脾两个手术的习太阳半条命没了<br/>
@@ -147,13 +154,6 @@ Live, Love, & Laugh ❤️
 
 2月17号：尊敬的战友们好．盖特的短视频，新版上线了……非常非常的棒。大家一定要多使用——共产党的内部的经济危机．和．爱之福 H PAY．全球运转形成了鲜明的对比。我们正在拯救全人类的被共产党病毒奴役下的世界经济和被世界独裁政府绑架的个人财富，一切都已经开始！
 ![img](https://media.gettr.com/group32/getter/2022/02/17/15/ec87b8b4-3021-7d42-4a22-c494233dd8e0/out.jpg)
-
----
-
-`@miles 2/17/2022 2:44 PM (UTC)`
-
-2月17号：感谢战友，李文星先生，做的这个特别视频！
-![img](https://media.gettr.com/group13/getter/2022/02/17/14/ca79b16d-a0b5-35f0-c76b-17f5a6510d6f/out.jpg)
 
 ---
 
