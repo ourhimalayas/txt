@@ -2,29 +2,33 @@
 ---
 
 
-## 扛着重武器的渥太华警察抓捕了至少70名和平抗议者
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2028567/)
+## 《紧急状态法》不能阻止加拿大卡车司机
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2029528/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-82.jpg)
-图片来源： www.secretchina.com
+作者：纽约磐石农场-在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月17日，据郭文贵先生在盖特平台上转发的一则视频显示，那些反对中共病毒疫苗强制接种政策的加拿大卡车司机强调，他们将坚持到底，直到重获自由。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-19-上午2.48.59.png)
+据悉，《紧急状态法》从未在加拿大现行法律框架内使用过，其原因在于，它赋予了联邦政府广泛的权力，包括为地方警察提供联邦执法的资源。此外，该法案还让加拿大银行无需授权就可以冻结任何参与此次道路封锁以及该活动资助者的银行账户，同时，银行还可以暂停参加抗议的卡车司机的保险。更甚者，众筹网站被该法案禁止继续为这些卡车司机募集捐款，至于经筹集的数百万美元则全部被冻结。
 
-零对冲网2月18日报道，在周五下午的媒体会议上，渥太华临时警察局长史蒂夫·拜尔告我记者，渥太华警察至少已经抓捕了70名抗议者，包括高知名度的组织者塔马拉·李奇，克里斯·鲍勃和帕特·金等，并拖走了21辆卡车。
+目前，渥太华地区的卡车司机人数还在增加。而这些卡车司机表示，《紧急状态法》不能阻止他们，暂停他们的保险也没有任何作用，唯一能说服他们离开的，就是他们重新获得权利和自由。
 
-拜尔说”技巧性”进入抗议者中间，并说警察们已经控制了地面情况。他说：“我们将一天24小时地操作直到居民和社区重新恢复原状。”
+参考链接：[https://www.gettr.com/post/puzpgw4922](https://www.gettr.com/post/puzpgw4922)
 
-来自安省和魁北克的警察以及皇家骑警，均已加入渥太华警力以终止抗议。一些警察带着军事装备性武器以终止持续三周的抗议示威。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-人们看到从渥太华传来的信息和视频，都被这一幕由加拿大总理特鲁多选择的让这些看起来是军事人员来对付手无寸铁的平民，仅仅因为要求被新冠疫情后政府从老百姓手中夺去自由权利。
+总编：Irene木木
+编辑：Lakeman文仁
+审核：飞虹
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-特鲁多正在制造政治危机，政府还企图掩盖真相不让世界知道渥太华发生了什么，警察威胁媒体录像，不要对着抓捕卡车司机拍照，不能要面临被捕。特鲁多动用紧急法权力已经禁止旅游，阻止抗议，实行广泛的抓捕，阻断捐款，冻结卡车司机和他们的支持者的银行账户，人们非常生气，甚至担心可能的银行冻结。
-
-##### 新闻来源： [Heavily-Armed Ottawa Police Arrest At Least 70 ‘Freedom Convoy’ Protesters, Will Run “24 Hours A Day” To Clear City](https://www.zerohedge.com/political/final-showdown-canada-police-set-end-freedom-convoy-siege-capital)
-
-#  
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,36 +2,24 @@
 ---
 
 
-## 特鲁多将34个加密货币钱包列入黑名单
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2028558/)
+## 荷兰将向乌克兰提供狙击步枪，头盔和其它自卫军事装备
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2029166/)
 
-撰稿: 加拿大温哥华扬帆农场 – Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-11.png)
-据外媒 2月16日报道，特鲁多向联邦警察部队发出命令，要求加拿大所有受FINTRAC 监管的公司停止与34个加密货币钱包进行交易，这些钱包据称与渥太华的自由车队有关。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1758.png)图片来源：https://www.thecountersignal.com
-特鲁多政府官员列出了29个比特币地址，2个以太坊，以及另外三个加密货币钱包。经确认，至少有一个钱包价值超过100万美元的比特币，通过加密货币支持自由车队的卡车司机。
+撰稿：东京樱花团/东京樱花团
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片3-13.png)图片来自本文网站
+2月19日时事通信在线消息，荷兰18日表示，将向乌克兰提供狙击步枪、头盔和其它自卫的军事装备。
 
-特鲁多政府对支持合法和平抗议的赞助资金疯狂阻截，遭到各界抨击。
+荷兰外交部长沃普克-胡克斯特拉表示，内阁已经批准提供军事装备，因为乌克兰需要保护自己免受俄罗斯的武装袭击。在提供的物资中，只有100支狙击步枪和3万发子弹是致命武器。除此之外，还有30台金属探测器、2台探雷机器人、2台战场监视雷达和5台反炮兵雷达以及发送3000顶头盔和2000件防弹背心。
 
-新闻:
+上个月，德国宣布了向乌克兰提供5000顶头盔而不是武器。乌克兰首都基辅市市长维塔利·克里琴科讽刺道：“这种时候简直就是个笑话”。
 
-[EXCLUSIVE: RCMP orders blacklist of 34 crypto wallets under Trudeau’s authoritarian prerogative](https://www.thecountersignal.com/news/rcmp-ban-34-crypto-wallets-from-working-in-canada)
+信息源：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-5.png)
+[オランダ、ウクライナに狙撃銃供与](https://news.yahoo.co.jp/articles/196181074f4c3e06a292878eb117916594599b40#:~:text=%E3%83%88%E3%83%94%E3%83%83%E3%82%AF%E3%82%B9%E4%B8%80%E8%)
 
-编辑: Jack Li文阳
-
-总编: 童谣
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-11.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

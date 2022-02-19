@@ -2,39 +2,37 @@
 ---
 
 
-## 拜登称他“确信 ”普京已做出入侵乌克兰的决定
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2028581/)
+## 德州起诉脸书非法使用面部识别
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2029529/)
 
-编译：花岗岩
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3-58.jpg)
-图片来源：网络截图
+作者：纽约香草山农场 007
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月14日，据当地媒体消息显示，美国德克萨斯州总检察长已经提起了对脸书的诉讼，指控其利用面部识别技术秘密地收集和使用数百万德克萨斯民众的生物特征数据并非法谋利。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-19-上午2.49.05.png)
+起诉书称，在未经用户同意的情况下，脸书从照片和视频中数十亿次地捕获用户的生物特征数据，并且将这些信息披露给他人。此外，脸书也未能在合理的时间内销毁相关数据。
 
-据合众国际社2月18日报道，美国总统乔·拜登周五表示，他相信俄罗斯总统普京已经做出了入侵乌克兰的决定，并引用了情报报告中的信息。
+起诉书指出，脸书明知这一行为违反了德克萨斯州的隐私保护法律，但其仍旧以牺牲个人安全和福祉为代价，利用用户的个人隐私信息发展其社交媒体帝国，并以此获得历史性暴利——这是大型科技公司欺骗性商业行为的又一实例，而它必须被停止。
 
-当被问及他的这一评估是基于什么时，拜登说，情报报告显示即将发生暴力。但拜登表示，为了避免两国之间的战争，外交手段并没有被取消。
+资料显示，脸书的面部识别项目自2010年起一直执行到2021年11月。此前，脸书曾在2020年以6.5亿美元的赔偿，和解了伊利诺伊州就该项目提出的诉讼。而此次德克萨斯州的起诉则将寻求对脸书数千亿美元的民事处罚。
 
-他谴责了他所描述的俄罗斯推出的 “虚假信息”，以及关于俄罗斯在乌克兰顿巴斯地区违反停火协议、试图挑起战争的报道。
+参考链接：
+1）[Pax­ton Sues Face­book for Using Unau­tho­rized Bio­met­ric Data](https://www.texasattorneygeneral.gov/news/releases/paxton-sues-facebook-using-unauthorized-biometric-data)
+2）[Texas sues Meta over Facebook’s past facial recognition practices](https://appleinsider.com/articles/22/02/14/texas-sues-meta-over-facebooks-past-facial-recognition-practices)
 
-拜登说：“例如，昨天对乌克兰一家幼儿园的炮击，俄罗斯谎称是由乌克兰进行的。”我们还继续看到越来越多的虚假信息被推送给俄罗斯公众，包括俄罗斯支持的分裂分子，声称乌克兰正计划在顿巴斯地区发动大规模进攻。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-他说没有任何证据[证明]这些断言，相信乌克兰人会选择在其边境上排列着远远超过15万军队的这个时刻，使长达一年的冲突升级，这违背了基本的逻辑。拜登说，俄罗斯正在利用虚假信息作为挑起暴力的借口。
+总编：Irene木木
+编辑：Irene木木
+审核：Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-“所有这些都符合俄罗斯人以前使用过的游戏规则，”他说。拜登的最新情况是，居住在乌克兰的亲俄分离主义分子周五表示，随着战斗的加剧，他们已经开始疏散平民。
-
-乌克兰外交部长德米特罗·库莱巴（Dmytro Kuleba）否认了这一指控。美国国家安全顾问杰克·沙利文（Jake Sullivan）和北约领导人表示，情报显示俄罗斯一直在努力策划一个 “假旗 ”行动，作为入侵的借口。
-
-拜登周五将与其他西方领导人就危机举行会谈，美国副总统卡玛拉·哈里斯前往德国参加一个安全会议，在慕尼黑安全会议上，乌克兰是讨论的主要议题。
-
-哈里斯在与北约秘书长延斯-斯托尔滕贝格举行双边会谈后说，美作为北约的一个成员将始终致力于领土完整和主权的原则。在仍然对外交持开放态度的情况下，也承诺如果俄罗斯采取侵略性行动，美将确保在讨论的经济制裁方面有严重的后果。
-
-斯托尔滕贝格说，他对作为北约支持乌克兰任务的一部分而被派往欧洲的美国军队印象深刻。拜登已经向波兰、罗马尼亚和其他国家派遣了几千人。他说在事关欧洲安全的这个关键时刻，真正显示了北美和美国对我们共同安全的承诺。
-
-“这对处理俄罗斯的侵略行动很重要，但也是为了应对一个更具竞争力的世界，以及中共国崛起的安全后果。我们必须在北美和欧洲站在一起。”
-
-美国国务卿安东尼·布林肯（Antony Blinken）也出席了会议，他在周四将美国的争议立场带到了联合国。
-
-新闻来源：[Biden says he’s ‘convinced’ Putin has made decision to invade Ukraine](https://www.upi.com/Top_News/World-News/2022/02/18/Ukraine-separatists-Biden-Harris/6961645197758/)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
