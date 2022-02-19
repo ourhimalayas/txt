@@ -15,110 +15,110 @@
 
 ---
 
-### [七哥金句：两条路：死亡和赢](/content/gnews/1/README.md)
+### [七哥金句：爆料革命靠什么成长](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [七哥金句：不能控制自己的人](/content/gnews/2/README.md)
- ` 雅典娜GNotes`
-
-### [七哥金句：坚持该坚持的](/content/gnews/3/README.md)
- ` 雅典娜GNotes`
-
-### [七哥金句：共党绝对的控制](/content/gnews/4/README.md)
- ` 雅典娜GNotes`
-
-### [七哥金句：正真的勇士和要包容战友](/content/gnews/5/README.md)
- ` 雅典娜GNotes`
-
-### [七哥金句：你为啥不把今天活好](/content/gnews/6/README.md)
- ` 雅典娜GNotes`
-
-### [七哥金句：新中国联邦的信仰](/content/gnews/7/README.md)
- ` 雅典娜GNotes`
-
-### [七哥金句：喜币就像黑暗中的一盏灯](/content/gnews/8/README.md)
- ` 雅典娜GNotes`
-
-### [币安因执照问题在以色列暂停服务](/content/gnews/9/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [七哥金句：达沃斯为什么能活着](/content/gnews/10/README.md)
- ` 雅典娜GNotes`
-
-### [七哥金句：达沃斯论坛就是它犯罪的证据](/content/gnews/11/README.md)
- ` 雅典娜GNotes`
-
-### [泽连斯基称乌克兰不会回应俄罗斯的挑衅](/content/gnews/12/README.md)
- ` Shuizhuyu`
-
-### [中共以严厉的网络审查扼杀言论是当代人类的耻辱](/content/gnews/13/README.md)
+### [中共是如何影响（渗透）美国高等教育的？](/content/gnews/2/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [有声|魔鬼的圈套——评杨贝贝和她的所谓采访（六）](/content/gnews/14/README.md)
- ` MOSREC`
-
-### [2022年2月18日 《文贵大直播》全文字版](/content/gnews/15/README.md)
- ` 温哥华扬帆农场七哥直播全文听写组`
-
-### [有声|中共国民要求彻查锁链女事件](/content/gnews/16/README.md)
- ` MOSREC`
-
-### [NFSC新闻、G|TV新闻访谈简报|2022年2月19日早](/content/gnews/17/README.md)
- ` 纽约香草山MOS01`
-
-### [俄罗斯举行核演习](/content/gnews/18/README.md)
- ` Shuizhuyu`
-
-### [大直播后记：别错过躺平币](/content/gnews/19/README.md)
+### [七哥金句：凡事不要走极端](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [出离愤怒：没人愿意提及北京冬奥会](/content/gnews/20/README.md)
+### [七哥金句：我不是神，也代表不了神](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥金句：人心难改](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [媒体报道俄罗斯即将入侵乌克兰后，莫斯科宣布从边境撤军](/content/gnews/6/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [七哥金句：撤离美驻京大使馆，也是全球人民的胜利！](/content/gnews/7/README.md)
+ ` 雅典娜GNotes`
+
+### [媒体报道俄罗斯即将入侵乌克兰后，莫斯科宣布从边境撤军](/content/gnews/8/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [七哥金句：两条路：死亡和赢](/content/gnews/9/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥金句：不能控制自己的人](/content/gnews/10/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥金句：坚持该坚持的](/content/gnews/11/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥金句：共党绝对的控制](/content/gnews/12/README.md)
+ ` 雅典娜GNotes`
+
+### [币安因执照问题在以色列暂停服务](/content/gnews/13/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [聚焦：地方政府断炊，中共托底楼市](/content/gnews/21/README.md)
+### [泽连斯基称乌克兰不会回应俄罗斯的挑衅](/content/gnews/14/README.md)
+ ` Shuizhuyu`
+
+### [有声|魔鬼的圈套——评杨贝贝和她的所谓采访（六）](/content/gnews/15/README.md)
+ ` MOSREC`
+
+### [2022年2月18日 《文贵大直播》全文字版](/content/gnews/16/README.md)
+ ` 温哥华扬帆农场七哥直播全文听写组`
+
+### [有声|中共国民要求彻查锁链女事件](/content/gnews/17/README.md)
+ ` MOSREC`
+
+### [NFSC新闻、G|TV新闻访谈简报|2022年2月19日早](/content/gnews/18/README.md)
+ ` 纽约香草山MOS01`
+
+### [俄罗斯举行核演习](/content/gnews/19/README.md)
+ ` Shuizhuyu`
+
+### [大直播后记：别错过躺平币](/content/gnews/20/README.md)
+ ` 雅典娜GNotes`
+
+### [出离愤怒：没人愿意提及北京冬奥会](/content/gnews/21/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [聚焦：地方政府断炊，中共托底楼市](/content/gnews/22/README.md)
  ` 丁过`
 
-### [锁链女灾难引发国际哗然的灭共海啸](/content/gnews/22/README.md)
+### [锁链女灾难引发国际哗然的灭共海啸](/content/gnews/23/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [人类传奇：郭先生的个人破产成就了无数亿万富豪！](/content/gnews/23/README.md)
+### [人类传奇：郭先生的个人破产成就了无数亿万富豪！](/content/gnews/24/README.md)
  ` 纽约香草山MOS03`
 
-### [美日经济周报（2月14日～2月18日）](/content/gnews/24/README.md)
+### [美日经济周报（2月14日～2月18日）](/content/gnews/25/README.md)
  ` 经济小组`
 
-### [2/18银河快讯：日俄首脑就乌克兰问题举行电话会谈；日本1月贸易进口额创历史新高](/content/gnews/25/README.md)
+### [2/18银河快讯：日俄首脑就乌克兰问题举行电话会谈；日本1月贸易进口额创历史新高](/content/gnews/26/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [有声|美司法部及FBI宣布组建数字货币执法团队](/content/gnews/26/README.md)
+### [有声|美司法部及FBI宣布组建数字货币执法团队](/content/gnews/27/README.md)
  ` MOSREC`
 
-### [中共通过向美国高校捐款影响美国的高等教育](/content/gnews/27/README.md)
+### [中共通过向美国高校捐款影响美国的高等教育](/content/gnews/28/README.md)
  ` 首尔天池农场`
 
-### [港共政府国安处拘捕艺人阮民安](/content/gnews/28/README.md)
+### [港共政府国安处拘捕艺人阮民安](/content/gnews/29/README.md)
  ` NFSC News`
 
-### [2022年2月19日，全球中共病毒疫情情况汇总](/content/gnews/29/README.md)
+### [2022年2月19日，全球中共病毒疫情情况汇总](/content/gnews/30/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [台湾加强立法防止中共窃取芯片技术](/content/gnews/30/README.md)
+### [台湾加强立法防止中共窃取芯片技术](/content/gnews/31/README.md)
  ` NFSC News`
 
-### [有声| 郭先生盖特：中共作恶及风险提示](/content/gnews/31/README.md)
+### [有声| 郭先生盖特：中共作恶及风险提示](/content/gnews/32/README.md)
  ` MOSREC`
 
-### [拜登确信普京决定入侵乌克兰](/content/gnews/32/README.md)
+### [拜登确信普京决定入侵乌克兰](/content/gnews/33/README.md)
  ` 首尔天池农场`
 
-### [二针疫苗后不舒服, 死在家中，家人投诉](/content/gnews/33/README.md)
+### [二针疫苗后不舒服, 死在家中，家人投诉](/content/gnews/34/README.md)
  ` xiaobaige`
 
-### [有声|德州起诉脸书非法使用面部识别](/content/gnews/34/README.md)
+### [有声|德州起诉脸书非法使用面部识别](/content/gnews/35/README.md)
  ` MOSREC`
-
-### [冬奥会金牌得主直言不讳，称自己不再去中共国](/content/gnews/35/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [樱花FM|美国试图阻止中共在非洲建立大西洋基地](/content/gnews/36/README.md)
  ` 樱花FM`

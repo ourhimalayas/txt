@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：正真的勇士和要包容战友
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2033590/)
+## 七哥金句：人心难改
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2033644/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句1-13.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句3-1-4.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句3.001-4.jpeg)
 整理：雅典娜农场
 发布：枫叶红了
 
