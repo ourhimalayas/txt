@@ -2,8 +2,8 @@
 ---
 
 
-## 20220218 郭文贵大直播 ：共产党不允许别人使用去中心货币 试图让世界的人使用中心化数字人民币
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2034249/)
+## 20220218 郭文贵大直播 ：货币能流通是军事与权力的结果
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2034279/)
 
 作者：东京樱花团小视频组
 

@@ -2,46 +2,40 @@
 ---
 
 
-## 【宋词新作】满庭芳：七哥“富可敌国”到“一贫如洗”——灭共事业进入质的飞跃
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2034750/)
+## 欧盟就中共专利侵权在世贸组织发起诉讼
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2034841/)
 
-作者：蝴蝶泉
+作者：MOS 柳是多水土透
+![This image has an empty alt attribute; its file name is gtv-best-10.png](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-10.png)
+2月18日，欧盟委员会代表27个成员国在世贸组织发起诉讼，指控中共利用大陆司法系统，妨碍欧洲的电信企业保护知识产权。欧盟委员会在诉前还与日本和美国进行了磋商，因为他们的企业也面临类似问题。这些企业的代表有瑞典的爱立信、芬兰的诺基亚和日本的夏普。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1844.png)
+欧盟委员会称，中共法院判决华为、小米等中共电信巨头可以以许可费原价的一半获得国外公司关键技术的专利，并利用“禁诉令”的法律机制，阻止国际公司在外国法院起诉中共公司，这些公司一旦起诉，就将面临每天13万欧元的罚款或刑事指控威胁。他们认为，这是中共政府利用法律手段在试图攫取全球权力，并使这些企业无法有效保护自己的发明专利。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/52a7ddee8240db60e3fd192ec86af725_500x0-2.jpg)
+欧盟委员会认为，中共的行为与世贸组织保护贸易相关知识产权的协议完全不符。
 
-前言：2022年2月15日，七哥在盖特短视频直播签署破产申请。接着2022年2月16日和2月18日文贵大直播中，文贵先生解释了个人破产的相关事宜。遂作词如下：
+中共有60天时间作出回应，之后布鲁塞尔可以要求争端解决小组对此事做出裁决。
 
+参考链接：[EU launches WTO dispute against China over telecom patents](https://www.reuters.com/business/eu-challenges-china-wto-over-telecom-patent-protection-2022-02-18/)
+ [https://www.ft.com/content/d08f7480-5d19-497b-ac8b-bb68d780eae4](https://www.ft.com/content/d08f7480-5d19-497b-ac8b-bb68d780eae4)
 
+![This image has an empty alt attribute; its file name is 8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
 
-**盘古裕达，现金产业，抢劫一空国内钱。**
+总编：飞虹
+编辑：飞虹
+校对/发稿：小野貓（文凱琳）
 
-**七哥海外，打响富播战。**
+**更多资讯，更多关注**
 
-**鲜衣怒马撩眼，大料多，轰动亿万。**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**76官司，缠诉五年，如愿逼破产。**
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-**无产。**
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-**共匪诉，美梦落空，麻烦重揽。**
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-**被起诉挨打，一个不闲。**
-
-**一人才一国财，无一币，造富千万。**
-
-**有化无，无所不有，灭共更强悍！**
-
-
-
-**词释意：**
-
-众所周知，盘古七星酒店和裕达国贸酒店，都是七哥建造的，还有其他产业，以及数百亿现金，所有国内的财产都被中共抢夺走了。而七哥从2017年初开始，在美国开始富豪级直播。不仅晒飞机游艇豪宅，还时装秀和吃播秀，生活过得富有滋润；不仅爆的大料精彩纷呈，丰富多彩，而且轰动全球，唤醒成千上万海外华人、国内同胞，以及国外有正义的人士。中共爪牙到海外蓝金黄各路人马，其中捏造76个官司，企图用缠诉来摧毁郭先生的精神、精力、声誉和财富，没想到适得其反，文贵先生的灭共斗志和战绩越来越旺，声誉影响力越来越大，唯一让共匪如愿的是，他自己宣布个人破产了。
-
-文贵先生成为了真正的无产阶级。那些共匪缠诉的76个官司，按照美国破产法相关条款，宣布停止，只不过共匪的爪牙们要另请破产律师，到法庭上共同终止案件，真是美梦落空，麻烦重来啊！而文贵先生起诉共匪爪牙们的官司一个都不会停止，所以今后海外的共匪只有被追诉被追打的份儿，没有主动进攻的机会了。哈哈！文贵先生凭一人的才智，可以造就新中国联邦一国之财力，尽管他没有一个喜币，但却创造了成千上万的富翁。中共逼迫他从富可敌国，变为一贫如洗，但文贵先生有用枯枝就可点石成金的能力，有化无为万有的能力。所以，文贵先生无产后，反而凝聚有更加强大的灭共力量，更加纯粹把灭共推向质的飞跃，那就是最后的更加惨烈的歼灭战！
-
-**审核校对：Barry Jack
-上传排版：V在途中**
-
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is gtv-best-11.png](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-11.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
