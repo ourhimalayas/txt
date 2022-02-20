@@ -2,18 +2,18 @@
 ---
 
 
-## 樱花FM|紧张局势加剧，岸田将与乌克兰总统举行首次会谈
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2035625/)
+## 樱花FM|中日财经爆:日本政府将针对产业链中人权问题专项立法
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2035759/)
 
 音频：东京樱花团/战友520
-![](https://lh4.googleusercontent.com/Bd4gKDYEa6JV82vW07TCkfZCzRJ6GSTZn4fbmFvVnBIg-kox7Ej7_WgMPt4NQvnKuowjslOX0Md7JQL1_Kyn4-vvHSVGYUejVA0pCt9qdGeU7SETSQcAvaJCqOMZ522IBVKtwzfE)
-2月15日FNN主要在线消息，岸田首相定于今日与乌克兰总统泽连斯基就乌克兰日益紧张的局势进行电话交谈。
+![](https://lh4.googleusercontent.com/7YFwvjhUebknh5F4unbzOPxssjK6-GLxjfDX_o61igPYs6uzAxNjN_afjXKuXIy6xdTs9LWUz5OxBqn3gDgG3Cb7EnHgaMiTqjmN1e3OGMBZSjz4es7d6TzHYmm1kUe7PqiI9HUI)
+政府15日宣布，将尽快制定指导方针，防止日本企业合作方等存在侵犯人权的行为。
 
-这是岸田首相与乌克兰总统泽连斯基的首次会晤，预计他们将对日益紧张的俄罗斯军事入侵交换意见。
+经济产业大臣萩生田光一在同日内阁会议结束后的记者会上宣布，将在本月成立指导方针研究小组。该方针将涵盖整个行业，明确如何验证在产品制造和分销过程等供应链中是否存在强迫劳动或童工，并将积极讨论未来立法的可能性。
 
-另据日本政府称，截至14日，仍有约130名日本人留在乌克兰，今天的电话会谈中就保护日本国民和合作缓和紧张局势交换意见。
+美国和欧洲政府正在采取严格措施来应对侵犯人权的风险，如果日本政府行动迟缓，日本公司很有可能被排除在贸易伙伴之外。萩生田光一氏表示，日本政府及企业应向世界明确表态，将按照国际标准采取对应措施。同时表示，日本政府将考虑在国际合作的基础上积极讨论专项立法。
 
-文字版原文：[紧张局势加剧，岸田将与乌克兰总统举行首次会谈 – GNEWS](https://gnews.org/zh-hans/2006772/)
+文字版原文：[中日财经爆┃日本政府将针对产业链中人权问题专项立法 – GNEWS](https://gnews.org/zh-hans/2006664/)
 
 *编辑：东京樱花团/asket
 发布：东京樱花团/平安卿卿*

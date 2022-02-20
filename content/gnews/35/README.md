@@ -2,39 +2,27 @@
 ---
 
 
-## 加拿大警方驱散自由车队，逮捕至少100名抗议者
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2035328/)
+## 澳洲自由车队示威者要求结束疫苗强制令并解散政府
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2035356/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+翻译/编辑：小红帽
 
-翻译/编辑：文泓
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/7-29.png)图片来源：acropreneur.com & 雅典娜设计组
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/8-26.png)图片来源：www.rebelnews.com
 
 
-当地时间2月19日，据《卫报》报道，上周一，特鲁多成为第一位援引《紧急状态法》的加拿大总理，授予他的政府广泛的权力，可以禁止在某些地点举行集会、拖走车辆、暂停驾驶执照和冻结银行账户。
+根据RT新闻2月19日报道， 周六，在澳大利亚首都堪培拉，”前往堪培拉的车队 “运动组织了几次反对新冠疫苗强制令的游行。成群结队的抗议者在市中心的几个方向移动，并在议会大厦附近聚集。
 
-[渥太华市临时警察局长警告说“行动迫在眉睫”，周四晚上，两名著名的抗议活动组织者领袖被捕，克里斯·巴伯和塔玛拉·利奇将面临恶作剧和劝诱他人实施恶作剧的指控。](https://www.theguardian.com/world/2022/feb/17/ottawa-protests-anti-terror-agency-warned-violent-extremists)
+从RT新闻的视频录像显示，集会上出现了“不要为工作打针”、“不要碰我们的孩子”和“我的身体，我的选择”的标语。其他横幅上写着“自2020年以来，我已经失去了说再见的机会”和“团结起来，我们永远不会被打败”。
 
-[其他知名人士也于周五被捕：帕特·金在脸书直播期间被捕，另一位杰出人物 BJ Dichter告诉支持者，“是时候可以离开了”。](https://www.theguardian.com/world/2022/feb/17/ottawa-protests-anti-terror-agency-warned-violent-extremists)
+裹着旗子的示威者在街头游行时高呼“将他们全部解雇”（他们指的是澳大利亚政府），同时呼吁“拯救儿童”和“拯救澳大利亚”。
 
-[当卡车汽笛声响起时，数百名警察一早上进入国会山附近的一个抗议营地，其中一些警察携带步枪，另一些人带着防暴盾牌和防毒面具。](https://www.theguardian.com/world/2022/feb/17/ottawa-protests-anti-terror-agency-warned-violent-extremists)
+警车伴随着整个抗议活动。抗议活动看起来很和平。
 
-[自抗议活动开始以来，警察人数首次远远超过示威者，以至于警察控制了抗议营地的部分区域，大量的警力的存在让执法者无所顾忌，他们砸碎车辆窗户并拖出司机。](https://www.theguardian.com/world/2022/feb/17/ottawa-protests-anti-terror-agency-warned-violent-extremists)
+一名参加运动的男子告诉记者，他认为政府严格的新冠（Covid-19）限制是“违反我们的宪法”和法治的行为。他指责当局“完全控制”了人民。
 
-随着更多皇家骑警和至少三辆装甲车抵达现场，还有一架警用无人机在头顶盘旋。警用扩音器发出警告：“你必须离开！你会被逮捕的！”
+另一位拿着扩音器的抗议者告诉欢呼的人群，车队将在该市停留，“为了表明我们不会袖手旁观”，以回应政府的政策。他还呼吁 “结束（新冠）疫苗的强制接种令”。
 
-警方指挥官周四明确表示，他们正准备结束卡车司机的围困，并撤走自1月下旬以来封锁该市的300多辆卡车、露营车和其他车辆。
-
-随着警线的推进，一些抗议者手挽手拒绝移动；有些人唱着加拿大国歌，并呼吁非暴力。现场一位女士喊道：“你们才是邪恶的。”
-
-随着时间的推移，越来越多的卡车逐渐离开了封锁线，大型拖车也抵达营地附近，警察逮捕了司机并控制了车辆。
-
-随即渥太华警方已开始逮捕抗议者并拖走车辆，并驱散在加拿大首都抗议疫苗强制的“自由车队”。
-
-[到周五晚上，由于警方行使了特鲁多政府援引的紧急权力，](https://www.theguardian.com/world/2022/feb/14/canada-protests-justin-trudeau-use-rare-emergency-powers)现场至少有100名抗议者被捕，至少有21辆汽车被拖走，其中包括封锁该市一条主要街道的所有车辆。
-
-周五下午，局长史蒂夫·贝尔说：“警察将继续推进控制街道，我们将日夜工作，直到完成。” 新闻链接：[Canadian police arrest at least 100 protesters in bid to break up Ottawa truck blockade | Canada | The Guardian](https://www.theguardian.com/world/2022/feb/18/trucker-convoy-protest-canada-ottawa-police-arrests-latest-news)
+新闻链接：[Australian ‘Freedom Convoy’ marches to parliament building](https://www.rt.com/news/549956-convoy-canberra-protest-vaccination/)
 
 *发布：tianzhihuan*
 

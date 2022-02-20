@@ -2,55 +2,22 @@
 ---
 
 
-## 澳洲朝野抨击中共以雷射光照射澳军机的举动
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2035750/)
+## 樱花FM|今日暴增1500多例！香港第五波病毒恶化
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2035845/)
 
-作者：香草山医疗部 — 云豹
+音频：东京樱花团/战友520
+![](https://lh4.googleusercontent.com/l8UodCGcXksrqABvCQ3E93CFQuLMlUK6pKBaOu2L_NX3CKvs9oXLBZI1I2bYwGyMPOolU2_YiUQvP-pzv1_ViF0H3IDYXueXChSqTy8Gj4NHJmHB5XIJxyx8NnvWpJtzwvUuQ2Gl)
+香港第5波疫情恶化，香港星岛网援引消息称，香港今日（15日）新增1510例新冠肺炎确诊病例，暂时有5400例初步确诊。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-3.jpg)
+此前，香港卫生防护中心14日公布，香港报告新增2071例新冠肺炎确诊病例，其中19例属非本地感染病例，32例带L  452R变种病毒，1975例怀疑Omicron，其中百余例未有结果；同日发现4500例新冠肺炎初步阳性病例，另外卫生防疫中心化验所仍有1000多例病例未分析。
 
+纵观香港两年来的疫情，一直非常严重，疫苗的接种率将近80%，与大陆的通关几乎是关闭状态，导致香港经济下滑、物价飞涨，在这样一个被香港政府管理的“相当不错”的地区仍然成为疫情高发地，不得不让人三思，病毒到底是哪里来的？为什么有那么多的变种？疫苗到底安不安全？有没有效？香港政府还在把没有封城当作功劳炫耀，他们真正在为普通大众服务吗。有共产党在的地方就有无穷的灾难，跟着共产党，走进火葬场。
 
+文字版原文：[今日暴增1500多例！香港第五波病毒恶化 – GNEWS](https://gnews.org/zh-hans/2007836/)
 
-
-
-
-
-
-
-当地时间2月20日，澳州总理莫里森及最大在野党工党领袖艾班尼斯个自发表声明，强烈谴责中共军舰以激光束照射澳洲军机的挑衅举动。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/f56bde5e10faa84a.jpg)
-
-此次事件发生于17日，中共军舰于澳洲专属经济海域内，在没有受到任何挑衅的情况下，使用激光束照射一架即将降落的澳洲P-8A海神巡逻机，威胁到该机及人员的安全。
-
-莫里森表示澳洲绝不接受中共这种恐吓举动。并要求中共对此次的挑衅行为提出解释。澳洲国防部长杜登表示，澳洲必须以强硬姿态来回应中共的胁迫、霸凌和恐吓。艾班尼斯则表示，中共的行为越来越具侵略性。澳洲政府必需对中共发出最强烈的谴责，而且不论任何人来领导澳洲，都需要面对来自于中共的挑战。
-
-参考连接：[https://www.cna.com.tw/news/aopl/202202200046.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/aopl/202202200046.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-
-2022年2月20日
-
-（本文为作者观点，不代表G NEWS立场）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-7.jpg)
-
-*编辑 /校对*：*Yuki*jiang
-
-*发稿：Yuki*jiang
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

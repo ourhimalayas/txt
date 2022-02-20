@@ -2,31 +2,55 @@
 ---
 
 
-## 樱花FM|日本首相与乌克兰总统电话会谈 日方将提供高额贷款援助
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2035599/)
+## 澳洲朝野抨击中共以雷射光照射澳军机的举动
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2035750/)
 
-音频：东京樱花团/战友520
+作者：香草山医疗部 — 云豹
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/日本首相与乌克兰总统电话会谈-日方将提供高额贷款援助.png)
-
-2月15日晚，岸田文雄首相就目前俄乌紧张局势，与乌克兰总统泽连斯基通话，并表示准备提供至少1亿美元的贷款援助。
-
-同日，岸田首相与欧盟委员会主席和乌克兰总统分别举行了电话会谈。日本首相透露，两位领导人同意将通过外交努力来缓解紧张局势。同时，首相表明如果俄罗斯入侵乌克兰，日方将与包括七国集团在内的国际社会合作，采取适当措施，包括制裁。
-
-岸田首相还明确向两位领导人重申，支持乌克兰的主权和领土完整。
-
-虽然“贷款援助”总觉有点隔靴搔痒，但也算是个态度吧。毕竟中共病毒已让日本财政捉襟见肘了。
-
-文字版原文：
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-3.jpg)
 
 
-| [日本首相与乌克兰总统电话会谈 日方将提供高额贷款援助 – GNEWS](https://gnews.org/zh-hans/2008710/) |
-| --- |
 
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码-1.jpg)
+
+
+
+
+
+当地时间2月20日，澳州总理莫里森及最大在野党工党领袖艾班尼斯个自发表声明，强烈谴责中共军舰以激光束照射澳洲军机的挑衅举动。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/f56bde5e10faa84a.jpg)
+
+此次事件发生于17日，中共军舰于澳洲专属经济海域内，在没有受到任何挑衅的情况下，使用激光束照射一架即将降落的澳洲P-8A海神巡逻机，威胁到该机及人员的安全。
+
+莫里森表示澳洲绝不接受中共这种恐吓举动。并要求中共对此次的挑衅行为提出解释。澳洲国防部长杜登表示，澳洲必须以强硬姿态来回应中共的胁迫、霸凌和恐吓。艾班尼斯则表示，中共的行为越来越具侵略性。澳洲政府必需对中共发出最强烈的谴责，而且不论任何人来领导澳洲，都需要面对来自于中共的挑战。
+
+参考连接：[https://www.cna.com.tw/news/aopl/202202200046.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/aopl/202202200046.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+
+2022年2月20日
+
+（本文为作者观点，不代表G NEWS立场）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-7.jpg)
+
+*编辑 /校对*：*Yuki*jiang
+
+*发稿：Yuki*jiang
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,29 +2,61 @@
 ---
 
 
-## 英国预计将于下周取消所有剩余的 COVID疫情限制
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2035725/)
+## 新西兰Covid-19住院患者几乎都是完全疫苗接种者
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2035834/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2022/02/203.jpg)图片来自网络
-英国政府与当地时间周六证实：从下周开始，法律层面将不会要求CCP病毒感染患者进行自我隔离——这被认为是“与 COVID共存”计划的一部分，该计划也可能会缩减对冠状病毒的检测流程。
+编译：wenwu
 
-英国首相鲍里斯·约翰逊表示，结束防疫限制的目的是为了使英国民众能够“在不限制自由的情况下保护自己”。但政府的部分科学顾问则认为这是一个冒险的举动——可能会导致感染人数激增，并削弱该国对未来更致命病毒的防御能力。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1859.png)dailyexpose.uk
 
-约翰逊的保守党政府在 1 月份取消了大多数病毒限制，例如，疫苗护照在一些场所的使用，并在除英格兰医院之外的大多数环境中结束了戴口罩的规定。苏格兰、威尔士和北爱尔兰也已经逐渐放宽政策，尽管速度相对较慢。
+新西兰卫生部于周三（16日）发布了一份新闻报告，其中包含了按疫苗接种情况划分的 Covid-19 住院人数的信息。他们在报告中(如下图1)确认，在北部地区目前的住院人数中，未接种疫苗的人口占2人，而完全接种疫苗的人口占23人。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1860.png)
+因此，我们回顾了新西兰卫生部以前发布的新闻报道，以描绘出目前据称席卷全国的Covid-19大流行病的情况。
 
-虽然目前英国政府提出了将强制法规转变为建议，将政府干预转变为个人防护的大治方针，但其依然表示会在必要的情况下“保留疫情监测系统和应急措施”。
+以下是我们分析的报告，可以追溯到在第25次的1月22日：
 
-英国首相约翰逊预计将于周一在议会宣布上述计划的具体细节。他表示：“新冠病毒不会突然消失，我们需要学会与这种病毒共存，并在不限制我们自由的情况下继续保护自己。”。
+- [*https://www.health.govt.nz/news-media/news-items/record-day-boosters-and-paediatric-doses-25-community-cases-10-hospital*](https://www.health.govt.nz/news-media/news-items/record-day-boosters-and-paediatric-doses-25-community-cases-10-hospital)
+- [*https://www.health.govt.nz/news-media/news-items/more-100000-first-doses-5-11s-90-auckland-maori-fully-vaccinated-23-community-cases-6-hospital*](https://www.health.govt.nz/news-media/news-items/more-100000-first-doses-5-11s-90-auckland-maori-fully-vaccinated-23-community-cases-6-hospital)
+- [*https://www.health.govt.nz/news-media/news-items/more-30000-boosters-given-yesterday-103-community-cases-11-hospital*](https://www.health.govt.nz/news-media/news-items/more-30000-boosters-given-yesterday-103-community-cases-11-hospital)
+- [*https://www.health.govt.nz/news-media/news-items/more-13000-boosters-given-yesterday-91-community-cases-10-hospital*](https://www.health.govt.nz/news-media/news-items/more-13000-boosters-given-yesterday-91-community-cases-10-hospital)
+- [*https://www.health.govt.nz/news-media/news-items/more-22000-boosters-given-yesterday-126-community-cases-8-hospital*](https://www.health.govt.nz/news-media/news-items/more-22000-boosters-given-yesterday-126-community-cases-8-hospital)
+- [*https://www.health.govt.nz/news-media/news-items/more-38000-boosters-given-yesterday-142-community-cases-6-hospital*](https://www.health.govt.nz/news-media/news-items/more-38000-boosters-given-yesterday-142-community-cases-6-hospital)
+- [*https://www.health.govt.nz/news-media/news-items/more-36000-boosters-given-yesterday-147-community-cases-13-hospital*](https://www.health.govt.nz/news-media/news-items/more-36000-boosters-given-yesterday-147-community-cases-13-hospital)
+- [*https://www.health.govt.nz/news-media/news-items/record-day-boosters-more-66000-doses-given-yesterday-243-community-cases-10-hospital-1-icu*](https://www.health.govt.nz/news-media/news-items/record-day-boosters-more-66000-doses-given-yesterday-243-community-cases-10-hospital-1-icu)
+- [*https://www.health.govt.nz/news-media/news-items/more-48000-booster-doses-given-yesterday-208-community-cases-12-hospital-1-icu*](https://www.health.govt.nz/news-media/news-items/more-48000-booster-doses-given-yesterday-208-community-cases-12-hospital-1-icu)
+- [*https://www.health.govt.nz/news-media/news-items/almost-25000-booster-doses-waitangi-day-188-community-cases-14-hospital-1-icu*](https://www.health.govt.nz/news-media/news-items/almost-25000-booster-doses-waitangi-day-188-community-cases-14-hospital-1-icu)
+- [*https://www.health.govt.nz/news-media/news-items/more-200000-paediatric-doses-and-over-16-million-boosters-now-given-202-community-cases-14-hospital*](https://www.health.govt.nz/news-media/news-items/more-200000-paediatric-doses-and-over-16-million-boosters-now-given-202-community-cases-14-hospital)
+- [*https://www.health.govt.nz/news-media/news-items/big-boost-week-kicks-all-dhbs-reach-90-fully-vaccinated-pacific-peoples-204-community-cases-16*](https://www.health.govt.nz/news-media/news-items/big-boost-week-kicks-all-dhbs-reach-90-fully-vaccinated-pacific-peoples-204-community-cases-16)
+- [*https://www.health.govt.nz/news-media/news-items/more-56000-boosters-given-yesterday-306-community-cases-12-hospital*](https://www.health.govt.nz/news-media/news-items/more-56000-boosters-given-yesterday-306-community-cases-12-hospital)
+- [*https://www.health.govt.nz/news-media/news-items/more-50000-boosters-given-yesterday-446-community-cases-23-hospital*](https://www.health.govt.nz/news-media/news-items/more-50000-boosters-given-yesterday-446-community-cases-23-hospital)
+- [*https://www.health.govt.nz/news-media/news-items/more-57000-boosters-given-yesterday-454-community-cases-27-hospital*](https://www.health.govt.nz/news-media/news-items/more-57000-boosters-given-yesterday-454-community-cases-27-hospital)
+- [*https://www.health.govt.nz/news-media/news-items/more-49000-boosters-given-yesterday-810-community-cases-32-hospital*](https://www.health.govt.nz/news-media/news-items/more-49000-boosters-given-yesterday-810-community-cases-32-hospital)
+- [*https://www.health.govt.nz/news-media/news-items/more-20000-boosters-given-yesterday-981-community-cases-39-hospital*](https://www.health.govt.nz/news-media/news-items/more-20000-boosters-given-yesterday-981-community-cases-39-hospital)
+- [*https://www.health.govt.nz/news-media/news-items/more-47000-boosters-given-yesterday-744-community-cases-40-hospital*](https://www.health.govt.nz/news-media/news-items/more-47000-boosters-given-yesterday-744-community-cases-40-hospital)
+- [*https://www.health.govt.nz/news-media/news-items/more-two-million-boosters-given-1160-community-cases-56-hospital*](https://www.health.govt.nz/news-media/news-items/more-two-million-boosters-given-1160-community-cases-56-hospital)
+- 下图2显示了处在第25次的1月22日至在第16次的2月22日的区间段，新西兰每天按疫苗接种情况分类（\*注：红色是完全接种疫苗，绿色是未接种疫苗）的 Covid-19 住院总人数：
 
-从目前的情况来看，英国的住院人数和死亡人数都处于下降趋势——尽管英国仍然是仅次于俄罗斯的CCP病毒死亡人数第二高的欧洲国家，截至当下已有 160,000 例在案死亡人数。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1861.png)
+正如你所看到的，每天的完全接种疫苗的人都占了 Covid-19 住院人数的绝大部分；而截至在第16次的2月22日，完全接种疫苗的人的情况似乎在逐渐恶化，而未接种疫苗的人则有所改善。
 
-在CCP病毒疫苗的接种方面，英国85% 的 12 岁及以上的人接种了两剂CCP病毒疫苗，而近三分之二的人接种了第三剂加强针。
+在第25次的1月22日，仅有6人因 Covid-19 住院，其中完全接种疫苗的人占5次住院，未接种疫苗的人占1次住院；但在第16次的2月22日，有25人因Covid-19而住院，其中完全接种疫苗的人占23次住院，而未接种疫苗的人仅占2次住院。 下图3显示了在第25次的1月22日至在第16次的2月22日的区间段，新西兰按疫苗接种情况划分的 Covid-19 住院人数比例：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1862.png)
+在这19天中，有6天 Covid-19 住院的全都是完全疫苗接种者（大约有 79% 的新西兰人口被认为是完全接种疫苗者）。
 
-新闻参考链接：[UK to scrap all remaining COVID restrictions next week](https://apnews.com/article/boris-johnson-coronavirus-pandemic-health-business-pandemics-2a717a276b483431f30622f7fa7602cb)
+最近两天的数据显示，2月15日完全接种疫苗的人占住院人数的 90%，2月16日的住院人数占比 92%。
 
-*发稿：mgjxs*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
+新西兰卫生部拒绝公布按疫苗接种情况划分的 Covid-19 死亡人数，但我们认为，从他们悄悄公布的 Covid-19 住院人数的非常有限的数据中可以清楚地看到，新西兰正处于完全接种疫苗的大流行中，而且看起来 Covid-19 疫苗接种在预防住院方面的好处为零；实际上，从给出的数字来看（如下图4），接种疫苗似乎使情况变得更糟。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1863.png)
+（文章仅代表作者观点与GNEWS无关）
+
+素材来源：[dailyexpose.uk] [New Zealand’s Pandemic of the Fully Vaccinated | Up to 100% of](https://dailyexpose.uk/2022/02/18/new-zealands-pandemic-of-the-fully-vaccinated/) [Covid-19 Hospitalisations are among the Fully Vaccinated according to official data](https://dailyexpose.uk/2022/02/18/new-zealands-pandemic-of-the-fully-vaccinated/)
+
+* * *
+
+审核：文乐
+校对：花羽
+发布：花羽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-5.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
