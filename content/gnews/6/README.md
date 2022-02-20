@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：没打疫苗你就是赢家
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2038219/)
+## 七哥金句：同胞们醒来吧
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2038291/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句8-1-2-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句14-scaled.jpg)
 整理：雅典娜农场
 发布：枫叶红了
 

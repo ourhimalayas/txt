@@ -2,12 +2,12 @@
 ---
 
 
-## 七哥金句：银行都是高利贷公司
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2038248/)
+## 勿忘香港 病毒（图片1-4）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2038303/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句10--scaled.jpg)
-整理：雅典娜农场
-发布：枫叶红了
+设计：五月花农场 企鹅
+![](https://assets.gnews.org/wp-content/uploads/2022/02/BE45D1DC-7E4C-4DCC-84DE-9FF6C1FA36DD.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/00BE106B-122A-4544-A36A-F3A275CDBF50.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/8C59E19A-31C7-41CE-B774-9912F12C266E.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/9C19E92B-4EC2-4E39-B94B-ECD2803FB575.jpeg)
+发布：水涨船高
 
  
 

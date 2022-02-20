@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：展望新中国联邦的未来
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2038235/)
+## 七哥金句：中共想改变美国的法律基石
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2038302/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句9-1-2-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句1.001-5.jpeg)
 整理：雅典娜农场
 发布：枫叶红了
 
