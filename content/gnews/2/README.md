@@ -2,8 +2,8 @@
 ---
 
 
-## 辉瑞公司撤回了批准用于 5 岁以下儿童疫苗的申请
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2035112/)
+## 加拿大卡车司机抗议运动对全球疫苗政策的意义
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2035202/)
 
 台灣寶島農場
 

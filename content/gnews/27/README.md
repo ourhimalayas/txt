@@ -2,81 +2,239 @@
 ---
 
 
-## 币圈新闻动态：喜币（HCN）价格目前在44.700 HDO
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2034576/)
+## 每日快报：习近平的“末日”会让中国和世界陷入战争吗
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2034599/)
 
-*喜马拉雅华盛顿DC 编辑：aQ*
+*作者：GSeries*
 
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/07/ScreenShot-2021-07-31-at-16.20.22@2x.png)
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/每日快报.png)
 
+# ***今日摘要***
 
-
-## 每日一问
-
-
-
-
-
-比特币在202x-21xx年代会成为怎样的存在?
+1. **[习近平的“末日”会让中国和世界陷入战争吗？](https://www.zerohedge.com/geopolitical/will-xi-jinpings-end-days-plunge-china-world-war)**
+2. **[“每个人都有发生血栓的风险！” – 疾病预防控制中心和辉瑞公司就血栓问题发出紧急警告](https://www.thegatewaypundit.com/2022/02/everyone-risk-blood-clots-cdc-pfizer-issue-urgent-warnings-blood-clots-even-healthiest-athletes/)**
+3. **[市民将投诉电话塞满渥太华警方-警方以刑事指控威胁来电者](https://www.thegatewaypundit.com/2022/02/outraged-citizens-flood-ottawa-police-phone-lines-complaint-calls-horrific-treatment-protesters-opd-responds-threatening-callers-criminal-charges/)**
+4. **[“我们叫你离开”–全副武装的警察袭击加拿大卡车司机](https://www.breitbart.com/europe/2022/02/19/pics-we-told-you-leave-heavily-armed-police-descend-canadian-truckers/)**
+5. **[众议员莫提议对中共国征收高额关税以支付中共病毒造成的损失](https://gnews.org/zh-hans/2034144/)**
 
 
+# 重要事件
+
+- **[02.19. ZeroHedge：习近平的“末日”会让中国和世界陷入战争吗？Will Xi Jinping’s “End Of Days” Plunge China & The World Into War?](https://www.zerohedge.com/geopolitical/will-xi-jinpings-end-days-plunge-china-world-war)**
 
 
+习近平，这位看起来威风凛凛的中共领导人，创造了他的反对派。在2012年底成为统治者后，他从其他人手中夺取了权力，然后在清洗中监禁了数万名反对者，他将其称为 “反腐 “运动。不幸的是，习近平的问题可能成为我们的问题。激烈的反美主义表明，习近平正在为打击美国寻找理由。
 
-## 喜马拉雅交易所要闻
+当卡车司机占领了加拿大首都渥太华，并关闭了通往美国的边境入境点时，有人称这是一场 “全国性的叛乱”。整个民主世界都发生了大规模的示威活动。人们已经受够了两年来的任务和其他疾病控制措施。
+
+在这个世界上人口最多的州却不是这样，它保持着世界上最严格的COVID-19控制。在中共国没有已知的民众抗议抗击冠状病毒的努力。然而，中国并不稳定，习近平正面临着他的 “末日”，正如反对派人士最近发表的一篇文章（见下文）所言。
+
+叛乱不是在整个社会，而是在共产党的高层。正如国际战略研究协会主席格雷戈里-科普利(Gregory Copley)告诉盖世太保，习近平这位看起来威风凛凛的中国领导人有 “一大批国内敌人”。习近平创造了这种反对意见。在2012年底成为中国的统治者后，他从其他人手中夺取了权力，然后在他称之为 “反腐 “运动的大清洗中监禁了数万名反对者。
+
+习近平还利用这一疾病发挥了巨大的作用。正如同为《国防与外交战略政策》主编的科普利所指出的，”习近平的’清零’政策，实际上，与其说是为了阻止COVID的传播，不如说是为了压制他的内部敌人，包括公众和党内的敌人。”
+
+“巨大的阵容 “现在开始反击了。习近平在处理国家经济停滞的问题上最容易受到影响。首先，针对COVID的严厉行动–大规模的测试、细致的接触追踪、严格的封锁–当然破坏了消费，而北京将其吹捧为经济的核心。
+
+北京正在恐慌，上个月新增信贷总额近一万亿美元，创下了新的增长记录。中国的技术官僚也变得鬼鬼祟祟，开始实施广受关注的Global Source Partners的Andrew Collier所说的 “影子刺激”–由地方政府及其实体提供的刺激措施，以便让中央政府避免报告支出。现在，”巨大的阵列 “开始反击。习近平在处理国家经济停滞的问题上最容易受到影响。首先，针对COVID的严厉行动–大规模的测试、细致的接触追踪、严格的锁定–当然破坏了消费，而北京将其吹捧为经济的核心。
+
+北京正在恐慌，上个月新增信贷总额近一万亿美元，创下了新的增长记录。中国的技术官僚也变得偷偷摸摸，开始实施广受关注的Global Source Partners的Andrew Collier所说的 “影子刺激”–由地方政府及其实体提供的刺激措施，以便让中央政府避免报告支出。中国需要一个充满活力的经济来偿还巨额债务，这些债务主要是由于中国政府过度刺激经济而产生的，特别是在2008年开始。如果把所谓的 “隐性债务 “计算在内，中国的债务总额达到了国内生产总值的350%左右。
+
+毫不奇怪，中国公司现在正在违约。债务危机是如此严重，它可以使中国的经济–以及国家的金融和政治体系随之崩溃。三十年来，中国领导人基本上不受批评，因为所有有影响的决定都是由共产党的高层人物分享。然而，习近平在掌权时也结束了问责，换句话说，没有人可以指责他。随着近年来中国的情况不尽如人意，经常被称为 “万能主席 “的习近平正在受到关注。
+
+- **[02.19. Gateway Pundit：”每个人都有发生血栓的风险！” – 疾病预防控制中心和辉瑞公司就血栓问题发出紧急警告，即使是 “最健康的运动员” “Everyone is at Risk for Blood Clots!” – CDC and Pfizer Issue Urgent Warnings on Blood Clots Even in “The Healthiest Athletes”](https://www.thegatewaypundit.com/2022/02/everyone-risk-blood-clots-cdc-pfizer-issue-urgent-warnings-blood-clots-even-healthiest-athletes/)**
 
 
+疾病预防控制中心和辉瑞公司最近都发布了关于 “血栓 “的公开警告。
 
+去年2月10日，CDC发出警告，将青壮年和健康运动员出现血凝块的观点正常化。当然，在COVID疫苗之前，从来没有人听说过这种频繁的现象。去年，一项由明尼苏达州罗切斯特梅奥诊所的研究人员进行的、发表在《美国医学会杂志》（JAMA）上的惊人的新研究认为，强生公司的Covid疫苗会增加大脑中出现一种罕见的、致命的血液凝结状况的风险。
 
-
-- 喜交所网站行情显示，喜币（HCN）价格目前在44.700 HDO，24H最高价格为44.961 HDO，24H最低价格为44.253 HDO，24H成交量约为49,090.103 HCN。
-
-
-
-
-
-
-## 新闻动态
-
-
-
-
-
-1. 2月19日消息，官方消息，全球支付技术公司Flutterwave宣布以30亿美元估值完成2.5亿美元D轮融资，B Capital Group领投。此前消息，Stellar发展基金会（SDF）宣布，全球支付技术公司Flutterwave已经在Stellar网络上开通了两条新的欧洲和非洲汇款通道。通过与TEMPO合作，Flutterwave正在利用Stellar网络和StellarUSDC简化非洲的汇款。
-2. SmartLiquidity报道，NEAR生态DeFi项目Ref Finance与多链DEX Spin达成战略合作，旨在普及NEAR Protocol的链上交易。通过此次合作，双方将确保NEAR区块链用户能够享受深度流动性等。
-3. 2月20日消息，Bitcoin Archive发推称，由投资巨头软银支持的Avenue Securities（大道证券有限责任公司）正在推出比特币交易。
-4. F1Technical报道，赛车赛事Miami Grand Prix发起组织South Florida Motorsports(SFM)宣布，与Crypto.com达成一项为期九年的新协议，比赛将被正式称为Formula1 Crypto.com Miami Grand Prix。
-5. 彭博社报道，加密平台Nexo已经针对美国客户修改了服务条款，他们将无法从新存款中赚取利息，但能够继续从现有的数字资产余额中获利，此外新客户也将无法访问Nexo提供的高利率加密存款产品。
-6. BeinCrypto报道，欧盟内政事务专员Ylva Johansson表示，存在欺诈预防监管的情况下，欧盟对数字资产持开放态度。需要以适当的方式对其进行监管，以防止犯罪分子和恐怖分子利用数字货币提供的匿名性。
-7. 2月20日消息，World of Cryptoids Genesis Cryp Egg Public Sale公开售蛋前的白名单比赛，截止日期为2022年2月21日8：00（UTC），获胜者可以获得8折购买首3颗蛋。公开售蛋日为2022年2月22日12：00（UTC）。
-8. 2月19日消息，基于Aurora的去中心化借贷市场Aurigami宣布上线主网测试网，目前支持USDC、USDT、DAI、ETH、WBTC和NEAR等资产。
-9. 2月19日消息，Coinbase向漏洞披露者支付25万美元赏金，该漏洞可使近乎0成本的账户获利上百万美元。
-10. TheBlock报道，风投机构Tiger Global自2021年初以来，总共参加了至少35笔加密项目融资交易。据悉，该机构在2021年前三个季度的每个季度完成了约5笔加密交易，第四季度完成了10笔交易，今年至今进行了另外10项投资。此外有消息人士向TheBlock表示，Tiger现在拥有大约50亿美元的加密投资。
-11. 2月20日消息，针对新迁移合约疑似出现bug一事，OpenSea官方发布推特回应称：“我们正在积极调查与OpenSea智能合同有关的传闻。这看起来像是来自OpenSea网站外部的网络钓鱼攻击。不要点击opensea.io之外的任何链接。”
-12. TheBlock报道，风投机构Tiger Global自2021年初以来，总共参加了至少35笔加密项目融资交易。具体而言，该机构在2021年前三个季度的每个季度完成了约5笔加密交易，第四季度完成了10笔交易，今年至今进行了另外10项投资。此外有消息人士向TheBlock表示，Tiger现在拥有大约50亿美元的加密投资。
-13. 2月20日消息，比特币分析师Bitcoin Archive发推称，阿联酋将在第一季度结束前开始向比特币和加密货币企业发放许可证。
-14. TheBlock报道，美国国会议员Warren Davidson提出了《保留你的硬币法案》。公告解释说，拟议的立法是”旨在维护美国人在用加密资产进行交易时的隐私权”，具体来说，这项立法将禁止任何联邦机构颁布一项规则，损害一个人作为自我托管人的能力。然后一个人将能够用他们的加密货币资产进行点对点的交易，而不需要利用第三方中介机构，这将从根本上切断对金融机构或货币服务企业促进交易的任何需要。
-15. Bitcoin.com报道，俄罗斯下议院俄罗斯国家杜马通过了一项法律，允许执法部门没收政府官员非法获得的资金，包括加密货币。如果资产超过官员的收入，国家可能会试图通过法庭没收资产。议会金融市场委员会主席阿纳托利•阿克萨科夫（Anatoly Aksakov）早些时候在谈到加密货币资产时解释说：“由于出现了一种新工具，因此必须对其进行申报并表明其收入。”俄罗斯法律“关于银行和银行活动”和“关于打击腐败”分别进行了修订。报告指出，新规定应在法律正式公布后10天生效。
-16. Bitcoin.com报道，Binance已加入俄罗斯银行协会(ABR)，与俄罗斯金融机构和政府分享其监管经验，在向当地媒体宣布这一举措时，其代表指出，Binance是第一个在银行业组织内工作的加密平台。ABR最近成立了数字金融资产和数字货币专家中心，负责研究监管加密资产流通的全球实践。据RBC Crypto报道，该机构还将作为加密货币领域专家与俄罗斯联邦当局和立法者之间对话的平台。Binance俄罗斯和独联体国家政府关系总监Olga Goncharova已被任命为专家中心的负责人。
-17. Bitcoin.com报道，来自怀俄明州的美国共和党参议员Cynthia Lummis认为，美联储应该考虑在其资产负债表上持有比特币。Lummis在Orrin G. Hatch基金会的加密网络研讨会小组上发表讲话，“一旦有了法定和监管框架，这将很有意义——比特币是完全去中心化的，随着时间的推移，它会变得更加普遍，”在她的小组发言中，Lummis重申她相信比特币是一种价值储存、稀缺且可预测的方式。“比特币是数字黄金——它是硬通货——只会生产2100万枚”。参议员Cynthia Lummis长期以来一直是比特币和数字货币的粉丝，她最近在美国国会讨论提高债务上限时感谢上帝赐予比特币。
-18. Bitcoin.com报道，俄罗斯下议院俄罗斯国家杜马通过了一项法律，允许执法部门没收政府官员非法获得的资金，包括加密货币。如果资产超过官员的收入，国家可能会试图通过法庭没收资产。议会金融市场委员会主席阿纳托利•阿克萨科夫（Anatoly Aksakov）早些时候在谈到加密货币资产时解释说：“由于出现了一种新工具，因此必须对其进行申报并表明其收入。”俄罗斯法律“关于银行和银行活动”和“关于打击腐败”分别进行了修订。报告指出，新规定应在法律正式公布后10天生效。
-19. 新浪财经报道，处置非法集资部际联席会议办公室（以下简称处非办）2月18日发布风险提示称，近期一些不法分子蹭热点，以“元宇宙投资项目”“元宇宙链游”等名目吸收资金，涉嫌非法集资、诈骗等违法犯罪活动。处非办的通报显示，目前打着“元宇宙”幌子圈钱的主要有四种形式。一是编造虚假元宇宙投资项目。二是打着元宇宙区块链游戏旗号诈骗。三是恶意炒作元宇宙房地产圈钱。四是变相从事元宇宙虚拟币非法谋利。上述活动打着元宇宙旗号，具有较大诱惑力、较强欺骗性，参与者易遭受财产损失，请社会公众增强风险防范意识和识别能力，谨防上当受骗。
-20. Coindesk报道，意大利已经发布针对加密公司的新反洗钱(AML)规则。该规则于1月获得批准，概述了虚拟资产服务提供商(VASP)的注册和报告要求，符合欧盟第五项反洗钱指令和金融行动特别工作组(FATF)针对加密公司的指导方针。
-21. 财联社报道，七国集团外交部长当地时间19日在慕尼黑安全会议上就乌克兰危机举行了紧急会谈，会议由德国外交部长贝尔伯克主持。贝尔伯克在会后发表声明说，目前乌克兰边境地区的局势非常紧张，因此七国集团外长决定利用慕尼黑安全会议的机会进行紧急会谈，乌克兰外长库列巴也受邀参加了会谈。贝尔伯克表示，七国集团已就相关应对措施达成一致，“我们有责任避免迫在眉睫的灾难。”尽管目前事态严重，但还没有到无法挽回的时候，她呼吁俄方回到谈判桌。贝尔伯克还强调，自2014年以来，七国集团和国际组织已向乌克兰提供了超过480亿美元的援助，今后也将继续加强对乌克兰的援助和经济合作，以确保乌克兰经济和金融的稳定。
-22. U.today报道，撰写了Puell倍数和比特币的市场价值与实现价值(MVRV)比率指标的David Puell先生在Twitter上分享了他将加入ARK Invest担任加密和链上研究员，ARK Invest是由Cathie Wood领导的顶级投资公司。Puell还将他的推特账号从@kenoshaking更改为@dpuellARK。David Puell是Puell Multiple和BTCMVRV两个指标的作者。
-23. 彭博社报道，以太坊创始人Vitalik在近期在接受彭博社采访时表示，数字资产领域实际上可能会受益于当前的代币价格下跌。深入研究加密货币，尤其是构建新事物的人，很多都欢迎熊市，因为价格长期大幅上涨时，往往会招致很多非常短期的投机型关注。而冬天是很多应用消失的时候，可以验证哪些项目实际上是长期可持续的。不过，Buterin还表示他对自去年以来市场的变化感到“惊讶”，他不确定加密货币是否已经进入另一个冬天，或者该行业只是反映了更广泛市场的波动。Vitalik说：“确实感觉加密市场从一个由非常小众的参与者群体控制的小众群体转变为越来越像主流金融市场的一部分”。
-24. 彭博社报道，以太坊创始人Vitalik Buterin表示，数字资产领域实际上可能会受益于当前的价格下跌，并被称为另一个加密货币冬天。深入研究加密货币，尤其是构建事物的人，他们中的很多人都欢迎熊市，因为当价格长期如此大幅上涨时，往往会招致很多非常短期的投机性的关注。冬天是很多应用程序消失的时候，可以看到哪些项目实际上是长期可持续的。
-25. U.Today报道，Ripple首席执行官Brad Garlinghouse认为，在2012年包含Ripple收到的建议的法律备忘录公开后，每个人都可以阅读真相。第一份备忘录写于2012年2月，第二份备忘录于2012年10月发布。Ripple的总法律顾问Stuart Alderoty对这些文件做出了最后决定，此前他曾表示2012年的两份文件表明XRP加密货币不被视为未注册的证券。
+据市场观察报道，牛津大学去年年初的一项研究也显示，接种疫苗后出现血凝块的人数与接种辉瑞和摩德纳疫苗的人差不多，都是阿斯利康的人。在疾病预防控制中心提出警告后，辉瑞公司已于2月14日发布了关于 “深静脉血栓 “或静脉血栓的公开警告。”深静脉血栓（#DVT），即深静脉中的血凝块，可以进入肺部，导致肺栓塞（#PE）。肺栓塞的症状包括呼吸困难和胸痛。如果出现症状，请联系你的医生–现在不是等待的时候，”辉瑞公司在推特上说。
 
 
 
+- **[02.19. Gateway Pundit：愤怒的市民将投诉电话塞满渥太华警方的电话线，抱怨抗议者受到的可怕待遇–警方以刑事指控威胁来电者 Outraged Citizens Flood Ottawa Police Phone Lines With Complaint Calls About Horrific Treatment of Protesters – OPD Responds by Threatening Callers with Criminal Charges](https://www.thegatewaypundit.com/2022/02/outraged-citizens-flood-ottawa-police-phone-lines-complaint-calls-horrific-treatment-protesters-opd-responds-threatening-callers-criminal-charges/)**
 
 
-*编辑：aQ
-发布：文顾*
+针对执法人员在渥太华街头强行清场时对抗议者的野蛮对待，愤怒的市民周六涌入渥太华警察局（OPD）的电话线，表达他们对警方可怕行为的厌恶–在某些情况下，可能会举报一些虐待行为。
+
+在这波电话浪潮之后，渥太华警察局决定，最好的回应就是用刑事指控来威胁打电话的人–因为，嘿，这对其他事情都很有效，而且，最终，他们是暴君，所以这很有意义。但是不要担心。OPD提供了一个链接，让公民提交他们的投诉，因为即使在一个左派的锡伯族 “民主”，你仍然可以在网上提出投诉。
+
+同时，在他们威胁人们打电话的时候，警察正在加强殴打。这是自由主义民主的另一个伟大例子。
+
+
+
+- **[02.19. Breitbart：”我们叫你离开”–全副武装的警察袭击加拿大卡车司机 ‘We Told You to Leave’ – Heavily Armed Police Descend on Canadian Truckers](https://www.breitbart.com/europe/2022/02/19/pics-we-told-you-leave-heavily-armed-police-descend-canadian-truckers/)**
+
+
+周六，在加拿大被围困的首都，警察在逮捕了100多人并拖走车辆后，积极地击退了抗议者，控制了一些卡车，并向议会推进。在越来越大的压力下，几十辆卡车离开了，这使当局对结束为期三周的反对该国COVID-19限制的抗议活动寄予了希望。
+
+周六，在加拿大历史上最大的警察执法行动之一的第二个整天，身着战术装备的警察迅速占领了阵地，警察来自全国各地。一夜之间，当局将卡车从他们控制的渥太华市中心的区域拖走。当局向国会山前推进，自上个月底以来，国会山一直被卡车和抗议者占据。
+
+渥太华警方在一条推文中对抗议者说。”我们告诉过你们要离开。我们给了你们时间离开。我们慢条斯理，但你们却对警察和马匹进行攻击和挑衅。基于你们的行为，为了我们的安全，我们采取了包括头盔和警棍的应对措施。”警方说，一名抗议者发射了一个毒气罐，在他们前进时被逮捕。警方说，”抗议者继续向警察发射毒气”。
+
+当局说，到星期五晚上，至少有100人被逮捕，其中大多数人被指控犯有恶作剧罪，近二十多辆车被拖走，包括所有堵在该市一条主要街道上的车辆。渥太华临时警察局长史蒂夫-贝尔说，一名警官受了轻伤，但没有抗议者受伤。被捕者包括四名抗议活动的领导人。其中一人获得保释，其他人仍被关押。
+
+
+
+- **[02.20. GNEWS：众议员莫提议对中共国征收高额关税以支付中共病毒造成的损失](https://gnews.org/zh-hans/2034144/)**
+
+
+众议员莫·布鲁克斯(Mo Brooks)提出一项计划，要求美国对中共国征收高额关税，以迫使中共(CCP)向美国支付在世界范围内释放中共流行病毒造成的损失。被称为《中共病毒赔偿法案》的布鲁克斯计划，将对所有进口到美国市场的中共国制造产品立即征收10%的关税。这些关税将每年自动增加10%，直到总统能够证明已经收集了数万亿的资金来支付所有由中共病毒大流行对美国造成的损失。
+
+布鲁克斯在一份声明中说：“我已被相关的证据说服，是中共在其武汉生物武器实验室创造了中共病毒。更糟糕的是，中共国随后关于中共病毒的传染性和致命性的谎言，使美国和美国人付出更多的悲惨生命损失和经济损失。”
+
+通过对中共国征收关税的资金将用于支付美国人的收入损失、医疗费用、死亡损失和美国企业的财务损失，以及其他事项。收取的关税资金也将完全偿还各州和地方的财政损失。该计划详细说明，美国国务卿将鼓励其他国家采取类似的政策，迫使中共国偿还他们与中共病毒大流行有关的损失。
+
+# 每日文贵说
+![](https://assets.gnews.org/wp-content/uploads/2021/04/61-5-1536x864.jpg)
+# 更多要闻链接
+
+1. [英国：若西方不支持乌克兰 台湾将受威胁](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20220219-%E8%8B%B1%E5%9B%BD-%E8%8B%A5%E8%A5%BF%E6%96%B9%E4%B8%8D%E6%94%AF%E6%8C%81%E4%B9%8C%E5%85%8B%E5%85%B0-%E5%8F%B0%E6%B9%BE%E5%B0%86%E5%8F%97%E5%88%B0%E5%A8%81%E8%83%81)
+2. [欧盟:俄破坏欧洲安全架构 中俄联盟欲以“强者法则”代替法治](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20220219-%E6%AC%A7%E7%9B%9F-%E4%BF%84%E7%A0%B4%E5%9D%8F%E6%AC%A7%E6%B4%B2%E5%AE%89%E5%85%A8%E6%9E%B6%E6%9E%84-%E4%B8%AD%E4%BF%84%E8%81%94%E7%9B%9F%E6%AC%B2%E4%BB%A5-%E5%BC%BA%E8%80%85%E6%B3%95%E5%88%99-%E4%BB%A3%E6%9B%BF%E6%B3%95%E6%B2%BB)
+3. [澳国防部严厉谴责中国军舰用激光照射澳军飞机行为](https://www.voachinese.com/a/australia-says-china-warship-fired-laser-at-its-patrol-plane-20220219/6450290.html)
+4. [丰县铁链女事件：两声援者重获自由 省调查组难平众怒](https://www.dw.com/zh/%E4%B8%B0%E5%8E%BF%E9%93%81%E9%93%BE%E5%A5%B3%E4%BA%8B%E4%BB%B6%E4%B8%A4%E5%A3%B0%E6%8F%B4%E8%80%85%E9%87%8D%E8%8E%B7%E8%87%AA%E7%94%B1-%E7%9C%81%E8%B0%83%E6%9F%A5%E7%BB%84%E9%9A%BE%E5%B9%B3%E4%BC%97%E6%80%92/a-60840676)
+5. [光环下的厄运：一些参加奥运的维族运动员命运追踪](https://www.voachinese.com/a/what-happens-to-uyghurs-after-competing-in-the-olympics-20220219/6450401.html)
+6. [上海区域商票全面逾期 融创真的扛不住了](https://gnews.org/zh-hans/2033859/)
+
+
+# 每日推特文摘
+
+
+
+渥太华警察当众抓捕和平抗议者，结果把他们送到20分钟路程以外的地方释放了，因为他们知道自己逮捕和平抗议者是违法行为，怕被诉讼。 公开抓捕是威胁，发现有更多加拿大人赶往渥太华他们就知道这招不起作用。
+
+
+
+
+
+> 渥太华警察当众抓捕和平抗议者，结果把他们送到20分钟路程以外的地方释放了，因为他们知道自己逮捕和平抗议者是违法行为，怕被诉讼。
+> 
+> 公开抓捕是威胁，发现有更多加拿大人赶往渥太华他们就知道这招不起作用。 [pic.twitter.com/l6sRTGOkc1](https://t.co/l6sRTGOkc1)
+> — Sanjie（三姐） (@Rebecca68467509) [February 19, 2022](https://twitter.com/Rebecca68467509/status/1494926018972459009?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+这是人们在 #东京 参加的抗议活动，以支持 “不给儿童接种疫苗”。
+This was a #protest in #Tokyo that people participated in to stand for “ #novaccinesforchildren ”
+
+
+
+
+
+> This was a [#protest](https://twitter.com/hashtag/protest?src=hash&amp;ref_src=twsrc%5Etfw) in [#Tokyo](https://twitter.com/hashtag/Tokyo?src=hash&amp;ref_src=twsrc%5Etfw) that people participated in to stand for “ [#novaccinesforchildren](https://twitter.com/hashtag/novaccinesforchildren?src=hash&amp;ref_src=twsrc%5Etfw) ” [pic.twitter.com/3lOzpGBLxx](https://t.co/3lOzpGBLxx)
+> — Diana Yu (@DianaYu99790322) [February 20, 2022](https://twitter.com/DianaYu99790322/status/1495235869024075779?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+[#铁链女](https://twitter.com/hashtag/%E9%93%81%E9%93%BE%E5%A5%B3?src=hashtag_click) 事件源于制度之恶，却被人性之恶所掩盖。没人问为何农村男人娶不到老婆 ？为何农村 要留下男婴，溺死女婴？ 
+[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 有什么权力实施“一孩”政策？为什么没人告诉你联合国 1968年就提出生育权是一项基本人权，生几个孩子，什么时候生由父母决定？
+
+ [#喜马拉雅华盛顿DC农场](https://twitter.com/hashtag/%E5%96%9C%E9%A9%AC%E6%8B%89%E9%9B%85%E5%8D%8E%E7%9B%9B%E9%A1%BFDC%E5%86%9C%E5%9C%BA?src=hashtag_click)
+
+
+
+
+
+> [https://t.co/FdBF8VCuRu](https://t.co/FdBF8VCuRu)[#铁链女](https://twitter.com/hashtag/%E9%93%81%E9%93%BE%E5%A5%B3?src=hash&amp;ref_src=twsrc%5Etfw) 事件源于制度之恶，却被人性之恶所掩盖。没人问为何农村男人娶不到老婆 ？为何农村 要留下男婴，溺死女婴？ [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hash&amp;ref_src=twsrc%5Etfw) 有什么权力实施“一孩”政策？为什么没人告诉你联合国 1968年就提出生育权是一项基本人权，生几个孩子，什么时候生由父母决定？[#喜马拉雅华盛顿DC农场](https://twitter.com/hashtag/%E5%96%9C%E9%A9%AC%E6%8B%89%E9%9B%85%E5%8D%8E%E7%9B%9B%E9%A1%BFDC%E5%86%9C%E5%9C%BA?src=hash&amp;ref_src=twsrc%5Etfw)
+> — 喜马拉雅华盛顿DC2 (@Dc235284371Dc2) [February 20, 2022](https://twitter.com/Dc235284371Dc2/status/1495229811505123331?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+美国前驻联合国大使尼基-海利说，在谈到奥林匹克运动员选择代表某些国家时说：
+“没有中间地带”，”你是站在自由的立场，还是站在侵犯人权的立场”。👇👇👇
+
+Nikki Haley slams Olympic skier Eileen Gu for not picking ‘a side’
+
+
+
+
+
+> 美国前驻联合国大使尼基-海利说，在谈到奥林匹克运动员选择代表某些国家时说：
+> "没有中间地带"，"你是站在自由的立场，还是站在侵犯人权的立场"。👇👇👇
+> 
+> Nikki Haley slams Olympic skier Eileen Gu for not picking 'a side' [https://t.co/KeyImYS4Ov](https://t.co/KeyImYS4Ov) via [@nypost](https://twitter.com/nypost?ref_src=twsrc%5Etfw)
+> — 安平 Emma(新生号） (@PingRyan2016) [February 20, 2022](https://twitter.com/PingRyan2016/status/1495242296308248577?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+美国必须准备对中俄的战争
+
+
+
+
+
+> 美国必须准备对中俄的战争 [pic.twitter.com/uBp4WaSHjf](https://t.co/uBp4WaSHjf)
+> — 🦅卡斯特梅的雨季🗽 (@ak47dealer) [February 20, 2022](https://twitter.com/ak47dealer/status/1495241968699723779?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+参议员玛莎.布莱克本： 感谢得克萨斯司法部长 [@TXAG](https://twitter.com/TXAG?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1495241891335524355%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fhimalayawashingtondc.org%2Fwp-admin%2Fpost.php%3Fpost%3D10332action%3Dedit) 肯·帕克斯顿 为调查 字节跳动（TikTok）侵犯儿童隐私权和潜在的人口贩运同谋所做的工作。 我们必须追究大科技公司的责任。 这就是我和参议员布卢门撒尔[@SenBlumenthal](https://twitter.com/SenBlumenthal?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1495241891335524355%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fhimalayawashingtondc.org%2Fwp-admin%2Fpost.php%3Fpost%3D10332action%3Dedit) 推出《儿童在线安全法》的原因。
+
+
+
+
+
+> 参议员玛莎.布莱克本：
+> 感谢得克萨斯司法部长 [@TXAG](https://twitter.com/TXAG?ref_src=twsrc%5Etfw) 肯·帕克斯顿 为调查 字节跳动（TikTok）侵犯儿童隐私权和潜在的人口贩运同谋所做的工作。
+> 
+> 我们必须追究大科技公司的责任。 这就是我和参议员布卢门撒尔[@SenBlumenthal](https://twitter.com/SenBlumenthal?ref_src=twsrc%5Etfw) 推出《儿童在线安全法》的原因。 [https://t.co/f60E9J8i94](https://t.co/f60E9J8i94)
+> — 美国政要直译推 (@zhiyitw33) [February 20, 2022](https://twitter.com/zhiyitw33/status/1495241891335524355?ref_src=twsrc%5Etfw)
+
+
+
+
 
 
  
+
+ 
+
+
+
+ 
+
+ 
+
+
+
+ 
+
+ 
+
+
+
+ 
+
+ 
+
+
+
+
+
+
+*编辑：GSeries
+审核发布：文顾*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

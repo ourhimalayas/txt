@@ -2,40 +2,23 @@
 ---
 
 
-## 欧盟就中共专利侵权在世贸组织发起诉讼
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2034841/)
+## 奥地利将放宽强制疫苗政策
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2034898/)
 
-作者：MOS 柳是多水土透
-![This image has an empty alt attribute; its file name is gtv-best-10.png](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-10.png)
-2月18日，欧盟委员会代表27个成员国在世贸组织发起诉讼，指控中共利用大陆司法系统，妨碍欧洲的电信企业保护知识产权。欧盟委员会在诉前还与日本和美国进行了磋商，因为他们的企业也面临类似问题。这些企业的代表有瑞典的爱立信、芬兰的诺基亚和日本的夏普。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1844.png)
-欧盟委员会称，中共法院判决华为、小米等中共电信巨头可以以许可费原价的一半获得国外公司关键技术的专利，并利用“禁诉令”的法律机制，阻止国际公司在外国法院起诉中共公司，这些公司一旦起诉，就将面临每天13万欧元的罚款或刑事指控威胁。他们认为，这是中共政府利用法律手段在试图攫取全球权力，并使这些企业无法有效保护自己的发明专利。
+#### 翻译/撰稿：黃金精神
 
-欧盟委员会认为，中共的行为与世贸组织保护贸易相关知识产权的协议完全不符。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-3-1.png)图片来源：联合新闻网
+2月17日据布莱巴特新闻网（Breitbart News）报道，奥地利联合政府宣布，该国现行的绝大多数封锁措施，包括专门针对全国未接种疫苗者几乎所有的“新冠种族隔离”限制将从3月5日起取消。这一宣布标志着该国在处理未接种疫苗者的方法上有了重大转折。
 
-中共有60天时间作出回应，之后布鲁塞尔可以要求争端解决小组对此事做出裁决。
+尽管当局此前曾承诺，未接种新冠疫苗将永远受到严格的限制，当时的国家总理亚历山大·沙伦伯格（Alexander Schallenberg）告诉奥地利人，未接种疫苗者在接种中共病毒疫苗之前将不能参与社会（活动）。然而，据《克朗报》（Kronen Zeitung）报道，政府宣布了放宽新冠措施的路线图，最快在本周六，全国未接种疫苗者将再次被允许进入酒吧和餐馆。
 
-参考链接：[EU launches WTO dispute against China over telecom patents](https://www.reuters.com/business/eu-challenges-china-wto-over-telecom-patent-protection-2022-02-18/)
- [https://www.ft.com/content/d08f7480-5d19-497b-ac8b-bb68d780eae4](https://www.ft.com/content/d08f7480-5d19-497b-ac8b-bb68d780eae4)
+更重要的是，奥地利未接种疫苗者甚至不必长期忍受这种不便措施，该国将在3月5日完全取消疫苗通行证的使用。在奥地利生活中几乎完全取消疫苗通行证的同时，奥地利的其他绝大部分新冠封锁规则也将废除，例如对全国酒店业的宵禁。然而，一些规则仍将继续存在，包括在公交和超市中强制使用高级FFP2口罩。国内的医院和疗养院也将继续使用新冠证书，而据报道，从国外进入奥地利也将要求提供疫苗接种、康复或新冠阴性测试的证明。
 
-![This image has an empty alt attribute; its file name is 8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+虽然该国当局强调，强制疫苗政策不是解决新冠问题所需的“短期措施，而是一个中期视角”，但担任该国现任总理的卡尔·内哈默（Karl Nehammer）强调，将成立一个专家委员会，持续分析奥地利境内强制接种的合宪性和必要性。
 
-总编：飞虹
-编辑：飞虹
-校对/发稿：小野貓（文凱琳）
+**新闻来源：**[**Massive U-Turn: Austria to Repeal Almost All ‘Corona Apartheid’ Rules Targeting Unvaxxed**](https://www.breitbart.com/europe/2022/02/17/massive-u-turn-austria-to-repeal-almost-all-corona-apartheid-rules-targeting-unvaxxed/)
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is gtv-best-11.png](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-11.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

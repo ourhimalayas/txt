@@ -2,8 +2,8 @@
 ---
 
 
-## 中共的蓝金黄渗透手段
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2035039/)
+## 辉瑞公司撤回了批准用于 5 岁以下儿童疫苗的申请
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2035112/)
 
 台灣寶島農場
 
