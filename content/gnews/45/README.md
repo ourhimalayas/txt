@@ -2,37 +2,51 @@
 ---
 
 
-## 美国议员提案禁止中共高官子女赴美学习
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2033129/)
+## 聚焦：地方政府断炊，中共托底楼市
+` 丁过` [轉載自GNews](https://gnews.org/zh-hans/2033133/)
 
-作者：银河系农场—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月16日，据多方消息显示，美国共和党议员维姬-哈茨勒近日提出了一项名为《保护高等教育免受共产党侵害法》的法案。当中，该法案将禁止那些在中共全国人民代表大会中任职的个人及其家属获得美国学生签证或研究签证。据悉，该法案还将覆盖至习近平和中共政治局常委成员，以及他们的配偶、子女、父母、兄弟姐妹和孙辈在内的家属。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-19-下午10.41.34.png)
-哈茨勒表示，中共犯下了严重的种族灭绝罪和其他暴行，然而，共产党高官的子女们仍然能够享受世界一流的教育，这种现状必须被停止，而这也是保护高等教育免受中共侵害法存在的目的。
+#### 加拿大温哥华扬帆农场 丁过
+![](https://assets.gnews.org/wp-content/uploads/2022/02/973DE511-D25F-4424-862C-15C8F7CBC72B_1_201_a-1.jpeg)Australia Real Estate
+前国务院发展研究中心宏观部副主任、现东吴证券首席经济学家任泽平早前提供的数据显示，中国的人均公务员比例全球最高，平均税负是美国的五倍多。
 
-哈茨勒强调，联邦政府应该尽可能地打击那些破坏美国进步的势力。 为此，她提出了大量的针对中共的立法，包括《打击迫害中国基督徒法》、《停止维吾尔族压迫性绝育法》和《保护美国免受间谍法》等——这些提案和立法旨在要求美国政府对中共的各项暴行施以制裁。
+这还不包括中共滥印货币产生的铸币税，和全球最严重的行政腐败无形中增加的隐形税收，因此除了服务业人工，中国人的负担均高于美国。
 
-参考链接：
-1）[Hartzler Introduces Legislation to Ban Communist China Officials and Families from Attending American Universities](https://hartzler.house.gov/media-center/press-releases/hartzler-introduces-legislation-ban-communist-china-officials-and)
-2）[https://twitter.com/rephartzler/status/1493976653864873984?s=21](https://twitter.com/rephartzler/status/1493976653864873984?s=21)
-3）[美议员提法案 禁中共高官送子女赴美学习](https://www.epochtimes.com/gb/22/2/16/n13582372.htm/amp)
-4）[Proposed U.S. Legislation Would Ban CCP Officials and Families from Attending American Universities](https://www.chinatrademonitor.com/proposed-u-s-legislation-would-ban-ccp-officials-and-families-from-attending-american-universities/amp/)
+即使美国民众的综合负担大大低于中国人，但美国普通民众的实际收入和生活水平在去除通胀因素后还是不断下降，同时美国民众和政府的负债率屡创新高。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+全球范围内的产能过剩导致的恶性竞争、货币超发、贫富分化、政府治理失败等是造成当今世界各国陷入困境的主要原因，这些因素在中共统治下的恶劣环境中只会成倍放大和恶化。
 
-总编：Irene木木
-编辑：Ivy001
-审核：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
+因此可以判断，中国民众已经民不聊生，中共的中央及地方财政已经陷入极端困境，中共的统治根基已经出现动摇。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+房地产业和基建一直是中共各级财政的支柱。据保银资本管理公司首席经济学家张智威提供的数据，2021年土地出让占中共国地方政府收入的43%左右。
+
+也就是说，如果房地产崩盘，地方政府将直接失去近一半的收入，这还不包括服务于房地产的钢铁、建材等产业链的税收和就业。
+
+由于中共的倒行逆施，老百姓的收入和消费能力接近枯竭，同时对经济前景的预期越来越悲观，房地产市场出现了严重的下滑趋势。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1EACAF29-16C1-4E1B-8992-39F74CD90838_4_5005_c-1.jpeg)News Wave
+［中国指数研究院］数据显示：今年1月全国主要300城住宅用地出让金总额872亿元，环比下滑88.39%，与去年同比降71.73%；重点监测城市今年春节成交比2021年春节下跌51%；广大的三线城市较2021年、2019年春节新房成交面积分别下降62.7%和85.6%。
+
+这样的趋势继续下去，中共就会断炊，政权就会瘫痪并崩溃，因此中共又无耻的开启了新一轮楼市托底。
+
+由于中国人口大幅下降并迅速步入老龄化，商业实体店被网络购物逐渐取代，疫情加快促使线上办公成为主流，总体上中国的住宅、办公和商业地产都出现了严重的过剩。
+
+但邪恶的本性决定中共不会收回伸向房地产实际上是伸向老百姓的魔爪。
+
+路透社18日报道：中国楼市政策出现实质性松绑，山东、安徽、江西、重庆等地已经将购房者首付比例从之前的30～40%降至20%。
+
+高盛最新报告预计，中共将推出需求侧宽松政策，例如放宽购房限制、降低商业抵押贷款的首付比例、放宽转售限制、下调房贷利率等。
+
+受利好消息影响，中港股市地产板块周五全线拉升，沪深300地产指数盘中一度升4.2%领涨A股，恒生中国内地地产指数至多涨3.7%。
+
+不难看出，中共不仅托底楼市，还会拉抬股市，人为制造一轮繁荣景象，诱骗更多的人入市，吸干老百姓最后的一点点骨髓。
+
+参考：
+
+[焦点:“两成首付”重现江湖 中国地方楼市托底政策有望陆续出台 | 路透](https://cn.reuters.com/article/china-housing-policy-0218-fri-idCNKBS2KN0PQ)
+
+[https://www.sohu.com/a/521384912\_393779](https://www.sohu.com/a/521384912_393779)
+
+编辑/发文：Kent
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
