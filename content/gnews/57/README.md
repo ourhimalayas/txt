@@ -2,28 +2,26 @@
 ---
 
 
-## 以色列将废除中共病毒疫苗护照系统
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2031593/)
+## 苏格兰不再公布死亡病例中的接种状况
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2031594/)
 
-作者：银河系农场 – 骄子
+作者：纽约香草山 – 宁文静
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-2月17日周四，以色列总理总理宣布，中共病毒感染病例每天持续下降，中共病毒疫苗接种证明的护照系统将会暂停使用。
+2月16日，苏格兰公共卫生监督机构PHS在其最新的中共病毒统计报告中宣布，将不再细分死亡与住院病例的疫苗接种状况，数据将合并发布。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/10-13.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/9-19.jpg)
 
-据悉该护照系统称为绿色通行证，限制未完成接种至少三针疫苗的人们，进行大型集会和进入室内场所。在过去一年的大部分时间里，绿色通行证是以色列日常生活的必备品。
-
-在2020年，以色列与辉瑞达成协议，用医疗数据换取稳定的中共病毒疫苗供应后，迅速为大部分成年人口接种了疫苗。当前约48%人口已经接种了三针疫苗，全国72%的人口已经接种了至少一针。
+分析人士指出，越来越多的数据证明中共病毒疫苗对奥密克戎并不起作用。自1月份多个国家卫生部门借口PCR核酸检测试剂盒供应不足，取消了确诊数据的公布之后，住院与死亡病例的疫苗接种状况也被取消，只能证明其中绝大多数病例是完全接种甚至加强接种的事实，使政府卫生部门忧心并试图掩盖。
 
 参考链接：
 
-- [Israel to scrap COVID passport system as omicron wanes](https://ktar.com/story/4893787/israel-to-scrap-covid-passport-system-as-omicron-wanes/amp/)
+- [Anti-vaxxer concerns force removal of deaths by vaccine status data from Public Health Scotland reports](https://www.scotsman.com/health/coronavirus/anti-vaxxer-concerns-force-removal-of-deaths-by-vaccine-status-data-3571856)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
 
 总编：童谣
-编辑：童谣
+编辑：Jack Li文阳
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

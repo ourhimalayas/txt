@@ -2,37 +2,22 @@
 ---
 
 
-## 有声|俄乌关系紧张之际，美国向德国部署F35战机
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2034185/)
+## 【秘翻在线】纽约州不会强制要求医护人员打加强针
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2034203/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月16日美国空军预备役司令部AFRC在一份声明中宣布，美国向德国部署了战斗机。此次部署得到了德国政府的充分合作。美国认为此举加强了对北约盟国战争防御的支持。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8-27.jpg)
-本次抵达德国斯潘达乐母空军基地的，包含美军若干架F35战斗机，以及现役和后备役战斗机联队飞行员、维护人员和辅助人员；此外，还有8架F15E战斗机和六架加油机。
+**撰稿：Grace**
 
-本月早些时候，因俄罗斯即将入侵乌克兰的威胁，美国五角大楼宣布，它将向东欧盟国——德国、波兰、罗马尼亚派遣3000名士兵。本月中旬，俄罗斯并未从乌克兰边境撤军，战争局势愈发紧张。2月17日，在俄罗斯与乌克兰紧张的双边关系高峰期，俄罗斯驱逐了美国驻莫斯科副大使巴特·戈尔曼。之后，美国对俄罗斯可能入侵乌克兰发出了越来越详细的警告。
+**校对：Grace**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-19-at-9.01.30-PM.jpeg)图片来源： 雅虎新闻
+据Townhall 2 月19日报道，纽约州卫生官员宣布，该州对医护人员接受中共病毒COVID-19疫苗加强针的规定将不会被强制执行，理由是如果医护人员因拒绝接受加强针而被迫离职，可能会出现人手短缺。
 
+据报道，上个月，纽约州长凯西·霍楚尔（Kathy Hochul）曾经要求该州的医护人员必须在2月21日之前注射中共病毒COVID-19疫苗的加强针。
 
+纽约州卫生局长玛丽·巴塞特(Mary Bassett)在周五的一份声明中说，如果强制执行这一要求，该州将承受 “大量的人员配置问题”，但她指出，官员们将在三个月内重新评估提高打加强针的措施。
 
-文字版原文：[俄乌关系紧张之际，美国向德国部署F35战机](https://gnews.org/zh-hans/2031595/)
+报道称，在该州的医疗保健人员中，95%的临终关怀工作人员和84%的医院工作人员接受了强化接种。但其他地区，如疗养院工作人员为51%，成人护理机构为63%，其强化接种率要低得多。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**新闻来源：** [New York State Will Not Require Healthcare Workers to Get Boosted Due to Potential Staffing Shortages](https://townhall.com/tipsheet/landonmion/2022/02/19/new-york-state-will-not-require-healthcare-workers-to-get-boosted-due-to-potential-staffing-shortages-n2603525)
 
  
 
