@@ -2,32 +2,26 @@
 ---
 
 
-## 疫情延烧致港首“选举”被迫延期
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2037125/)
+## 声称乌克兰局势恶化 俄罗斯和白俄罗斯将继续军演
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2037156/)
 
-作者：纽约磐石农场—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据台媒消息，因中共病毒疫情蔓延，当地时间2月18日晚间，香港行政长官林郑月娥宣布批准引用紧急条例，将行政长官“选举”推迟至5月8日举行。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-20-上午9.22.46.png)
-据悉，香港18日新增3629例，初步阳性案例7600例，这已是连续第三天，两项数字合计超过一万例。
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-307.jpg)
+[图片来源](https://www.jiji.com/jc/article?k=2022021900459&amp;g=int&amp;utm_source=yahoo&amp;utm_medium=referral&amp;utm_campaign=link_back_edit_vb#:~:text=%E5%A4%A7-,%E4%B8%80%E7%B7%9A%E8%B6%8A%E3%81%88%E3%82%8C%E3%81%B0%E3%80%8C%E5%85%A8%E9%9D%A2%E6%88%A6)
 
-林郑表示，目前香港疫情是两年来最严重的时期，形势相当危急，港共政府要集中力量应对。延期选举也是中共国家主席习近平授意的，看来港共必须将控制疫情作为当前压倒一切的政治任务来做。
+白俄罗斯国防部20日宣布，自2月10日以来该国与俄罗斯军队进行的联合军事演习将继续进行。
 
-参考链接：[林鄭月娥宣布香港特首選舉延至5月8日舉行](https://cn.rti.org.tw/news/view/id/2124933)
+该决定是普京和白俄罗斯总统亚历山大-卢卡申科为应对顿巴斯地区不断恶化的局势而做出的。在乌克兰东部政府军和亲俄派武装势力之间的冲突仍在继续。演习原定持续到20日。在俄乌危机不断升级的情况下，继续军演恐会招致美欧进一步责难。预计，有3万名俄罗斯军队入驻白俄罗斯。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+白俄罗斯国防部长赫雷宁表示，由于边境附近的军事活动极度活跃，顿巴斯地区局势持续恶化，白俄罗斯和俄罗斯总统决定随时检查部队反应力以应对乌克兰政府军。目的是遏制恶意势力在边境地区的军事活动，并作出适当的反应。
 
-总编：Zion文恩
-编辑：静言
-校正/发稿：呼吸的雾霾（文小呼吸）
+[信息源](https://news.yahoo.co.jp/articles/dad0e636e9b3985d0be2ab98ddb1ceb354e4ad9f#:~:text=%E3%83%88%E3%83%94%E3%83%83%E3%82%AF%E3%82%B9%E4%B8%80%E8%A6%A7-,%E3%83%AD%E3%82%B7%E3%82%A2%E3%81%A8%E3%83%99%E3%83%)：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+编辑：东京樱花团/麗子
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,23 +2,23 @@
 ---
 
 
-## 声称乌克兰局势恶化 俄罗斯和白俄罗斯将继续军演
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2037156/)
+## 日本外相林芳正在国际会议上表明将在台湾问题上与中共国竞争
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2037283/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-307.jpg)
-[图片来源](https://www.jiji.com/jc/article?k=2022021900459&amp;g=int&amp;utm_source=yahoo&amp;utm_medium=referral&amp;utm_campaign=link_back_edit_vb#:~:text=%E5%A4%A7-,%E4%B8%80%E7%B7%9A%E8%B6%8A%E3%81%88%E3%82%8C%E3%81%B0%E3%80%8C%E5%85%A8%E9%9D%A2%E6%88%A6)
+撰稿：东京樱花团｜百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-1-11.png)
+[*图片来源*](https://www.sankei.com/article/20220220-QXURZOFDY5J7TIJDY42XWUVFDA/photo/J4ZHXGW7Y5K7DHJDW2ZTKRYCHY/#:~:text=%E3%82%82%E3%81%A3%E3%81%A8-,%E6%9E%97%E5%A4%96%E7%9B%B8%E3%80%8C%E5%8F%B0%E6%B9%BE%E5%95%8F%E9%A1%8C%E3%81%A7%)
 
-白俄罗斯国防部20日宣布，自2月10日以来该国与俄罗斯军队进行的联合军事演习将继续进行。
+2月20日据《产经新闻》在线报道：2月19日下午，日本外相林芳正参加了在德国慕尼黑举行的安全会议小组讨论会。林外相表示，在台湾问题、AI（人工智能）、量子技术和生物技术等高科技领域，我们必须以民主和人权等价值观为基础与美国和其它国家竞争。
 
-该决定是普京和白俄罗斯总统亚历山大-卢卡申科为应对顿巴斯地区不断恶化的局势而做出的。在乌克兰东部政府军和亲俄派武装势力之间的冲突仍在继续。演习原定持续到20日。在俄乌危机不断升级的情况下，继续军演恐会招致美欧进一步责难。预计，有3万名俄罗斯军队入驻白俄罗斯。
+印度外长苏杰生和澳大利亚外长佩恩也参加了用英语进行的小组讨论。林芳正外相解释了日本-美国-澳大利亚和印度（四国）框架，并表示，友好国家之间分享价值观是应对气候变化、促进基础设施发展和高端技术合作的关键。
 
-白俄罗斯国防部长赫雷宁表示，由于边境附近的军事活动极度活跃，顿巴斯地区局势持续恶化，白俄罗斯和俄罗斯总统决定随时检查部队反应力以应对乌克兰政府军。目的是遏制恶意势力在边境地区的军事活动，并作出适当的反应。
+同时，在谈到台湾问题时他强调，台湾是日本非常重要的伙伴和朋友。台湾海峡的和平与稳定不仅对日本、而且对国际社会的稳定与安全也很重要；对乌克兰问题严重关切；在朝鲜问题上他表示，虽然现在不能就朝鲜问题举行六方会谈，但在朝鲜问题上必须与中共国进行合作。
 
-[信息源](https://news.yahoo.co.jp/articles/dad0e636e9b3985d0be2ab98ddb1ceb354e4ad9f#:~:text=%E3%83%88%E3%83%94%E3%83%83%E3%82%AF%E3%82%B9%E4%B8%80%E8%A6%A7-,%E3%83%AD%E3%82%B7%E3%82%A2%E3%81%A8%E3%83%99%E3%83%)：
+信息源：[**林外相「台湾問題で中国と競い合う」 国際会議で説明**](https://www.sankei.com/article/20220220-QXURZOFDY5J7TIJDY42XWUVFDA/photo/J4ZHXGW7Y5K7DHJDW2ZTKRYCHY/#:~:text=%E3%82%82%E3%81%A3%E3%81%A8-,%E6%9E%97%E5%A4%96%E7%9B%B8%E3%80%8C%E5%8F%B0%E6%B9%BE%E5%95%8F%E9%A1%8C%E3%81%A7%)
 
-编辑：东京樱花团/麗子
-发布：东京樱花团/yuxingcao01
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / yuxingcao01*
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
 

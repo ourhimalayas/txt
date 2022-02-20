@@ -2,42 +2,33 @@
 ---
 
 
-## 莫里森总理谴责中共国海军发射激光是“恐吓行为”
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2034507/)
+## 2022/02/18 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2035358/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+1. 2月17日，江苏苏州阳山花苑小区核酸检测采集拥挤现场实拍。
+2. 2月15日，河南南阳陆营镇。学校要求学生家长开学前统一提交学生核酸检测阴性报告，导致医院采集现场拥挤。中共政府的形式主义防疫方法。
+3. 2月17日，上海市东方医院南院所有科室因为疫情原因而停诊。
+4. 2月16日。香港受疫情影响，生活物资供应链中断，导致香港境内物价奇高。
+5. 2月15日，湖北大冶市，一市民在公园突发倒地抽搐，无人敢上前救助。
+6. 2月15日，湖南株洲一名出租车司机被路人发现猝死在其出租车内。
+7. 2月16日，河南新乡原阳县中心医院晚上放舞曲“灯光秀“，被网友吐槽像ktv。
+8. 2月17日，河南洛阳 ，环卫老大爷一早上班，浑身结满了冰霜。
+9. 2月16日，货车司机送货途中为防止睡着，拼命抽打自己，同车妻子心疼拍下视频。
+10. 2月16日，安徽六安。夫妻春节后返程上班不舍与孩子分别，丈夫一边开车一边流泪。
+11. 年轻妈妈丢下婴儿欲轻生，幸被送外卖小哥路过救下。
+12. 中共国堪忧的房地产质量，工人也开始质疑建筑项目的质量并拍下现场视频，希望从专家那里得到解释。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/5-31.png)图片来源：CNA & 雅典娜设计组
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-整理/编辑：文泓
+编辑：【英国伦敦喜庄园编辑部】
 
-当地时间2月20日，澳大利亚总理斯科特·莫里森表示，他非常关注上周中共国海军的“恐吓行为”，当时一艘中国军舰在澳大利亚专属经济区海域，向一架澳大利亚巡逻侦察机发射激光。
-
-“我非常关注PLA对一架澳大利亚侦察机使用激光的行为。我认为这是一种不可接受和无端的恐吓行为，没有别的解释。”
-
-他说，澳洲政府将从外交和国防渠道提出这一事件进行交涉。
-
-在当天的新闻发布会上，莫里森谈到了政府的国家安全保障，说激光事件证明了他提出的增加国防开支的必要性。
-
-“我们的政府已经证明了我们在国家安全方面做的保障工作，我们没有像工党那样削减资金，澳大利亚是永远不会走绥靖之路的。”
-
-谈到俄罗斯入侵乌克兰事宜，斯科特·莫里森表示，澳大利亚将对俄罗斯实施制裁，称俄“在乌克兰的挑衅行为是不可接受的，没有理由的，无缘无故的”。
-
-他说，澳大利亚正在与所有自由国家、伙伴和盟友合作，采取行动支持乌克兰，但这不包括军队。
-
-“我们将与我们的盟友和伙伴一起贯彻制裁，世界将一起行动，并寻求抵制，（入侵乌克兰）将是一种可怕的暴力行为……这是不可接受的，无端的、无缘无故的。”
-
-新闻链接：[Russia-Ukraine conflict updates live: Scott Morrison says Australia will ‘follow through’ with sanctions (afr.com)](https://www.afr.com/politics/federal/us-says-russian-forces-poised-to-strike-ukraine-20220220-p59xz4)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

@@ -2,37 +2,37 @@
 ---
 
 
-## 新春伊始中共房地产烂账危机迫近
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2037123/)
+## DC每日热点0220
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2037144/)
 
-作者：日本方舟农场 Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月18日中共媒体消息，华夏幸福、阳光城等墙内房地产企业面临的债务爆雷进一步恶化。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-20-上午9.22.31.png)
-由于没有给出正式的五年兑付计划方案，中融信托拒绝接受华夏幸福的债务重组方案，并准备提起诉讼。此外，早先已违约2700多万美元债务的阳光城，在18日公开宣布其可支配资金已枯竭，大规模交叉违约风险提升。同日，恒大物业在恒生中国企业指数中大跌超70%，被恒生中国企业指数踢出名单。正荣地产在18日晚间宣布，可能无法偿还3月到期债务。
+编辑：楚门门
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3E2CC5D6-31A9-488C-AC33-358CC3DB3D02-scaled.jpeg)
+道琼斯指数 34079.18 ▼0.68%
+纳斯达克指数 13548.07 ▼1.23%
+WTI纽约原油CFD 90.575▲0.59%
+布伦特原油CFD 93.664 ▲0.13%
+标普50指数 2,802.58▼55.64%
+美元兑人民币 1USD=6.325 RMB
+美元兑港币 1USD=7.799 HKD
+国际黄金 1899.20美元/盎司
+全球CCP病毒感染人数424,236,785例
 
-标普信评发布的研究报告指出，中共的116家样本房企，今年仅国内债务就多达2300亿人民币，而债务高峰期集中在3月和7月。壬寅新春伊始，中共国内房地产企业的债务危机，已箭在弦上。
+1、拜登周日就乌克兰问题与国家安全委员会会面
+2、中共被指未能履行承诺 购买更多的缅因州龙虾
+3、副总统哈里斯：俄罗斯入侵将迅速对其施加严厉经济制裁
+4、乌克兰总统泽连斯基在慕尼黑安全会议上呼吁国际社会为乌克兰提供新的安全保证
+5、欧盟：俄罗斯入侵将对其金融市场和高科技产品进行制裁
+6、美国泰国军队准备进行“金色眼镜蛇”联合演习
+7、乌克兰局势紧张激增之际，普京宣布俄罗斯核导弹部队从周六（2月19日）开始进行演习
+8、澳国防部严厉谴责中共国军舰用激光照射澳军飞机行为
+9、中共国连续第六年为德国最大贸易伙伴
+10、乌克兰局势紧张：德法呼吁公民尽快离开
+11、G7外长发表联合声明 呼吁俄罗斯采取外交途径降低紧张局势
+12、英国：若西方不支持乌克兰 台湾将受到威胁
+13、北京冬奥最大赢家“安踏” 采用新疆棉受人权组织关注
+14、英军情五处总监：中俄间谍试图接近首相身边人
+15、欧盟:俄破坏欧洲安全架构 中俄联盟欲以“强者法则”代替法治
 
-参考链接：
-1）[五年变八年！中融信托指责华夏幸福出尔反尔！](https://finance.sina.com.cn/stock/relnews/cn/2022-02-18/doc-ikyakumy6607020.shtml)
-2）[阳光城：可自由动用资金枯竭 或现大规模交叉违约](https://finance.sina.com.cn/roll/2022-02-19/doc-ikyakumy6827011.shtml)
-3）[正荣地产：或无法偿还3月到期债务](https://www.sohu.com/a/523790041_114988)
-4）[2300亿国内债券！房企今年将迎两轮偿债高峰期](https://m.yicai.com/news/101317503.html)
-5）[恒大物业被剔出恒生中国企业指数，3月7日起生效](https://finance.sina.com.cn/stock/s/2022-02-19/doc-ikyakumy6724744.shtml)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
-
-总编：Zion文恩
-编辑：静言
-校正/发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
