@@ -2,29 +2,31 @@
 ---
 
 
-## 卫生部长回应辉瑞和莫德纳疫苗在印度不可用
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2038414/)
+## 有声|美国议员提案禁止中共高官子女赴美学习
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2038468/)
 
-#### 编译：Cran
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+2月16日，据多方消息显示，美国共和党议员维姬-哈茨勒近日提出了一项名为《保护高等教育免受共产党侵害法》的法案。当中，该法案将禁止那些在中共全国人民代表大会中任职的个人及其家属获得美国学生签证或研究签证。据悉，该法案还将覆盖至习近平和中共政治局常委成员，以及他们的配偶、子女、父母、兄弟姐妹和孙辈在内的家属。
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/16453950631.png)Image Source: WION
-新德里，据2月18日印度WION报道，在新德里出版的 “保护国家” 一书中，印度卫生部长曼苏克·曼达维亚（Mansukh Mandaviya）首次披露了为社么印度政府没有采购辉瑞（Pfizer）和莫德纳（Moderna）生产的疫苗。而是主要使用印度制造的疫苗。
+哈茨勒表示，中共犯下了严重的种族灭绝罪和其他暴行，然而，共产党高官的子女们仍然能够享受世界一流的教育，这种现状必须被停止，而这也是保护高等教育免受中共侵害法存在的目的。
 
-当印度在2021年11月报告有超过十万个心冠病例时，印度政府正在与莫德纳和辉瑞进行就疫苗安全问题进行谈判。 谈判以失败告终，但印度政府从未披露过谈判失败的原因。谈判以失败结束后印度继续实施自己的计划。
+哈茨勒强调，联邦政府应该尽可能地打击那些破坏美国进步的势力。 为此，她提出了大量的针对中共的立法，包括《打击迫害中国基督徒法》、《停止维吾尔族压迫性绝育法》和《保护美国免受间谍法》等——这些提案和立法旨在要求美国政府对中共的各项暴行施以制裁。
 
-印美就疫苗问题最早开始谈判是在2020年9月，当印度正在经历第一波新冠爆发时。在谈判中，两个疫苗公司提出了秘密条款，作为交换为印度提供疫苗。
+文字版原文：[美国议员提案禁止中共高官子女赴美学习](https://gnews.org/zh-hans/2033129/)
 
-当WION总编辑苏迪尔·乔杜里（Sudhir Chaudhary）询问谈判失败原因时，卫生部长曼达维亚说，莫德纳和辉瑞向印度政府提出了一个条件，即只有在签署赔偿条款的情况下，印度政府才能购买他们的疫苗。
+音频处理：Fei797
+发稿：Fei797
 
-**赔偿条款中明确，任何人在接种疫苗后产生任何副作用或死亡，该公司都不会被追究责任，也不会根据印度法律受到起诉。**这给印度带来了问题。卫生部长说，印度政府接受他们的要求似乎并不明智。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
 
-谈判失败的另一个原因是，印度政府拒绝外国公司在印度生产疫苗，但莫德纳和辉瑞不同意。印度早已成为世界药品生产大国，一些国家品牌的药品实际来自印度。
-
-在印度获得了印度药品监管局的批准的疫苗包括俄罗斯的斯图尼克 (Sputnik) 和强生(Johnson & Johnson) 公司的疫苗，而在政府运营的疫苗项目中广泛使用的是印度制造的Covaxin和Covishield。
-
-[Source](https://www.wionews.com/india-news/why-pfizer-and-modern-vaccines-were-not-available-in-india-health-minister-responds-454466)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
