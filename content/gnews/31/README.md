@@ -2,31 +2,38 @@
 ---
 
 
-## 中共知乎虚假信息泛滥危害不亚于中共病毒本身
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2037569/)
+## 有声|还为谷 歌某凌欢呼吗
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2037636/)
 
-编译：波士顿五月花—-小南瓜
+配音：香草山巡管部– 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-55.png)
+***推荐语：作者用巧妙的文字游戏避开严厉的审查，桩桩件件直指中共丑陋的流氓行为及炮制灾难的罪恶勾当！***
 
-中共知名宣传媒体平台知乎虚假报道美国福克斯著名媒体人塔克采访凯恩
+前清有
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/D0D85C1C-0EB1-4F6D-9529-3DFA35BC07C3.jpeg)
+把公主嫁给蒙古诸部的传统
 
-中共著名宣传媒体平台知乎在报道谷爱凌时引用美国著名媒体人塔克采访另一名著名媒体人凯恩关于“在美国出生的谷爱凌代表中国参加北京奥运会所透露的信息”，但是知乎在引用时错误的不尊重原始谈话内容完全进行篡改误导欺骗读者。原始采访中塔克和凯恩没有“谈论为什么这么多运动员倾向于中国，并在后面提到了是因为美国在制度上的腐败不健全才导致这么多运动员愿意前往中国这个更友好的大市场”，知乎说“而在讲这段的时候也没有针对某个运动员而说”。但是恰恰相反，塔克和凯恩就是针对谷爱凌的行为而做的这个节目。知乎欺骗读者定论“其实，这段完整的视频本可以更好的解释为什么谷爱凌愿意回到祖国的怀抱”，真实视频内容是从谷爱凌看资本主义的固有弊端—缺德，美国大公司的固有弱点—唯利是图，大公司使用中国强制劳工（监狱犯人，新疆集中营少数民族）制造运动产品，谷爱凌为这些产品代言，谷爱凌没有良心， 背信弃义， 忘恩负义， 唯利是图， 抛弃培养她的国家，她定后悔她所做的事。彭帅的例子说明中共国的黑暗和谷爱凌对华人潜在的危险。
+那是为了安抚蒙古
 
-美国大公司董事长们代代相传的唯利是图的弱点， 资本主义的无道德贪婪的特点，这一切都不是美国制度。资本主义不等于美国体制。 美国法律禁止使用强制奴役劳工产品， 美国社会也不容忍奴役劳工产品。
+稳定朝堂
 
-原始素材链接：1）[https://youtu.be/ZjeiQ4ZcY8Y](https://youtu.be/ZjeiQ4ZcY8Y)
+公主生出的小可汗
 
-2）[https://zhuanlan.zhihu.com/p/465083735](https://zhuanlan.zhihu.com/p/465083735)
+就是清帝的外甥
 
-*发布：思澈*
+文字版原文：[还为谷 歌某凌欢呼吗](https://gnews.org/zh-hans/2032414/)
 
+音频处理/发稿：Daxia
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

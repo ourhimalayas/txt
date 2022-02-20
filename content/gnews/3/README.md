@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：共产主义是邪恶的独裁者
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2038031/)
+## 七哥金句：绑架女性，国人都应该感到羞耻
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2038093/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句3-1-5-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句3.001-5.jpeg)
 整理：雅典娜农场
 发布：枫叶红了
 

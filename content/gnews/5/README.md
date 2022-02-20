@@ -2,12 +2,12 @@
 ---
 
 
-## 2月20日文贵大直播摘要（图片1722）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2037988/)
+## 七哥金句：解决性问题，中日的差别
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2038064/)
 
-设计：五月花农场 科存
-![](https://assets.gnews.org/wp-content/uploads/2022/02/C7B60E41-6DD9-4DF5-A489-1D35B3943707.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/2D49A80C-88F4-4854-BC41-C0A2CCD7294D.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/25264606-14CB-483C-AEEF-3F6FA19CA67E.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/9F23CD0A-3198-4836-B6CB-5367A88954EF.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/394A056E-06B9-4BD3-99C5-822FB8527B4D.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/899A9F89-625E-4A40-9680-AB77CE4BEAD0.png)
-发布：水涨船高
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句2.001-4.jpeg)
+整理：雅典娜农场
+发布：枫叶红了
 
  
 
