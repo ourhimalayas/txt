@@ -2,10 +2,10 @@
 ---
 
 
-## 普京在闪现中共冬奥会后严格保持社交距离
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2033942/)
+## 郭先生宣布三条重大事项
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2034023/)
 
-作者: 日本方舟农场 – Andy5
+作者: 纽约磐石农场 — 在远方
 
 
 
@@ -13,24 +13,17 @@
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/good-44.png)
 
 
-当地时间2月14日俄罗斯总统普京，分别会见了俄罗斯的国防部长和外交部长。尽管这两位都是俄罗斯本国的高官，普京依旧跟他们保持了长达数米的社交距离。
+在2月16日的大直播中，郭先生宣布了三条重大事项：一是他短期内不可能离开美国；二是喜联储马上推出贷款和抵押政策，会有重大利好公告；三是习近平刚刚做了脾和肾的2个手术，对台湾行动暂缓。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-19-1-1.png)图片来源网络
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-19-2.jpeg)
 
-这并非是普京首次保持如此明显的社交距离。就在本月7日和15日，普京分别会见了法国总统马克龙，以及德国总理朔尔茨，会晤中都保持了6米以上的社交距离。但相反的是，早在今年1月跟伊朗总统的会晤中，普京在同一张桌子上安排了两名翻译，并没有出现照片中如此夸张的现象。甚至在去年11月底跟越南国家主席的会晤中，双方也仅是保持2米左右的距离。 分析人士指出，出席中共冬奥会成为普京这一转变的分水岭，在冬奥会的开幕式上，他也是一个人坐在看台上而没有去主席台。这就从侧面印证了郭文贵先生，在2月4日大直播中爆料的，普京团队抵达北京后多人出现感染的情况。
+郭先生说，第一个是他的个人法律团队和安全团队，在跟日本和英国、特别是与美方的团队沟通之后，明确告知郭先生在一两年的时间内，甚至灭共之前，不可能离开美国。 第二是喜币和喜联储马上将推出，新的HPay政策，即H贷款和H抵押。在一个月之内，喜联储可能会有重大利好投资的，让世界震惊的新公告公布。郭先生幽默的说，虽然他个人破产了，但是千万个战友们却富了起来。 第三，郭先生隆重的宣布，习近平刚刚在对台作战室，同进行了脾脏和肾脏两个手术，“习太阳”的光芒已经非常暗淡。有内部战友告诉郭先生，习的手术可能会让中共，在剩余两三年的残命中加速灭亡。包括准备进攻台湾的事情，有可能会被迫放弃。习在手术苏醒后明确的说，对台湾的行动要暂缓。郭先生说，这是习近平在鬼门关前走过一遭之后，内心不再像原来那么疯狂所致，这对台湾是一个大好消息，上天会保佑台湾平安。
+
+
 
 参考来源：
 
-1. [https://world.huanqiu.com/article/46pIqRMQrFx](https://world.huanqiu.com/article/46pIqRMQrFx)
-
-
-2. [https://finance.sina.com.cn/jjxw/2022-02-16/doc-ikyakumy6267185.shtml](https://finance.sina.com.cn/jjxw/2022-02-16/doc-ikyakumy6267185.shtml)
-
-3.[https://cn.baochinhphu.vn/%E8%B6%8A%E5%8D%97%E5%9B%BD%E5%AE%B6%E4%B8%BB%E5%B8%AD%E9%98%AE%E6%98%A5%E7%A6%8F%E4%B8%8E%E4%BF%84%E7%BD%97%E6%96%AF%E6%80%BB%E7%BB%9F%E6%99%AE%E4%BA%AC%E4%B8%BE%E8%A1%8C%E4%BC%9A%E8%B0%88-11636160.htm](https://cn.baochinhphu.vn/%E8%B6%8A%E5%8D%97%E5%9B%BD%E5%AE%B6%E4%B8%BB%E5%B8%AD%E9%98%AE%E6%98%A5%E7%A6%8F%E4%B8%8E%E4%BF%84%E7%BD%97%E6%96%AF%E6%80%BB%E7%BB%9F%E6%99%AE%E4%BA%AC%E4%B8%BE%E8%A1%8C%E4%BC%9A%E8%B0%88-11636160.htm)
-
-4.[https://chinese.aljazeera.net/news/2022/1/20/%E8%8E%AB%E6%96%AF%E7%A7%91%E5%B3%B0%E4%BC%9A%E6%99%AE%E4%BA%AC%E4%BC%9A%E8%A7%81%E8%8E%B1%E5%B8%8C%E5%B9%B6%E5%BC%BA%E8%B0%83%E6%94%AF%E6%8C%81%E5%85%B1%E5%90%8C%E5%85%B3%E7%B3%BB](https://chinese.aljazeera.net/news/2022/1/20/%E8%8E%AB%E6%96%AF%E7%A7%91%E5%B3%B0%E4%BC%9A%E6%99%AE%E4%BA%AC%E4%BC%9A%E8%A7%81%E8%8E%B1%E5%B8%8C%E5%B9%B6%E5%BC%BA%E8%B0%83%E6%94%AF%E6%8C%81%E5%85%B1%E5%90%8C%E5%85%B3%E7%B3%BB)
-
-5. [秘翻在线：普京总统在北京冬奥会上打盹究竟为那般？](https://gnews.org/zh-hans/1958905/)
+[https://www.gettr.com/post/puyopt1b1f](https://www.gettr.com/post/puyopt1b1f)
 
 
 

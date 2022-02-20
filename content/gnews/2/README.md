@@ -2,17 +2,54 @@
 ---
 
 
-## 【粤语配音】2022年2月18日：香港现在的疫情就是疫苗的反应
-` MOS香港部` [轉載自GNews](https://gnews.org/zh-hans/2033941/)
+## 普京在闪现中共冬奥会后严格保持社交距离
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2033942/)
 
-紐約香草山-香港部
+作者: 日本方舟农场 – Andy5
 
-我告诉你基本的认识，现在的香港和新加坡包括以色列，所有这些根本原因是它打疫苗导致的，跟任何病毒没什么大关系，正常人都懂的，你都打了平均两针到三针疫苗了，新加坡都四针了，你怎么还得病呢？多简单的道理嘛，就是疫苗死亡和疫苗导致你身体的免疫力低下，不用说冠状病毒来，双修一次你都嗝屁了。
 
-你知道人一天是40亿细胞死亡，咱一个人身体是40万亿细胞，40万亿换成新的，换的当中的纠偏的机制，纠偏的机制就叫免疫功能，那你疫苗打进去了，40万亿给你打到身体里面，在你身体里运转，关键它还不死啊这40万亿哪，有人打了120万亿细胞(mRNA分子)，你觉得你们家里边本来就住仨人，突然来了20个人，而且它还是不吃不喝 还不死不睡，你还能活吗？因为你身体里面的免疫功能、纠偏功能没了，你再双休，双休是全身出汗，全身的细胞都在工作，真的是要人命的双休，这不是开玩笑的。
 
-所以告诉你，新加坡、以色列、香港，是打疫苗导致的免疫功能低下，各种病症齐发，那么疫苗灾难有没有开始？没开始，疫苗灾难开始是什么情况？不是政府全面工作给你检测出的病 ，这是个免疫功能低下染出来的，我告诉你疫苗灾难到周期的时候，我问过科学家，他说我可以告诉你怎么死？会发现什么？吐血、流鼻血，眼睛出血、耳朵出血，女性月经一直流血不止，孩子突然倒地，就是这种爆发性的，那么前期..在我去年就告诉大家，一开始就会发现打了疫苗的人，反而病毒再来再来再来，就是它破坏你免疫力 ，一旦有病毒、风吹草动你就染上了，然后有点感冒导致你发烧，你也认为是病毒 这就叫误诊，但真正的就是破坏掉你全身体以后，就是房倒屋塌，瞬间就像海啸来一样，所以我今天我特别认真我求求战友们，一定忍住到5月份。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-44.png)
+
+
+当地时间2月14日俄罗斯总统普京，分别会见了俄罗斯的国防部长和外交部长。尽管这两位都是俄罗斯本国的高官，普京依旧跟他们保持了长达数米的社交距离。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-19-1-1.png)图片来源网络
+
+这并非是普京首次保持如此明显的社交距离。就在本月7日和15日，普京分别会见了法国总统马克龙，以及德国总理朔尔茨，会晤中都保持了6米以上的社交距离。但相反的是，早在今年1月跟伊朗总统的会晤中，普京在同一张桌子上安排了两名翻译，并没有出现照片中如此夸张的现象。甚至在去年11月底跟越南国家主席的会晤中，双方也仅是保持2米左右的距离。 分析人士指出，出席中共冬奥会成为普京这一转变的分水岭，在冬奥会的开幕式上，他也是一个人坐在看台上而没有去主席台。这就从侧面印证了郭文贵先生，在2月4日大直播中爆料的，普京团队抵达北京后多人出现感染的情况。
+
+参考来源：
+
+1. [https://world.huanqiu.com/article/46pIqRMQrFx](https://world.huanqiu.com/article/46pIqRMQrFx)
+
+
+2. [https://finance.sina.com.cn/jjxw/2022-02-16/doc-ikyakumy6267185.shtml](https://finance.sina.com.cn/jjxw/2022-02-16/doc-ikyakumy6267185.shtml)
+
+3.[https://cn.baochinhphu.vn/%E8%B6%8A%E5%8D%97%E5%9B%BD%E5%AE%B6%E4%B8%BB%E5%B8%AD%E9%98%AE%E6%98%A5%E7%A6%8F%E4%B8%8E%E4%BF%84%E7%BD%97%E6%96%AF%E6%80%BB%E7%BB%9F%E6%99%AE%E4%BA%AC%E4%B8%BE%E8%A1%8C%E4%BC%9A%E8%B0%88-11636160.htm](https://cn.baochinhphu.vn/%E8%B6%8A%E5%8D%97%E5%9B%BD%E5%AE%B6%E4%B8%BB%E5%B8%AD%E9%98%AE%E6%98%A5%E7%A6%8F%E4%B8%8E%E4%BF%84%E7%BD%97%E6%96%AF%E6%80%BB%E7%BB%9F%E6%99%AE%E4%BA%AC%E4%B8%BE%E8%A1%8C%E4%BC%9A%E8%B0%88-11636160.htm)
+
+4.[https://chinese.aljazeera.net/news/2022/1/20/%E8%8E%AB%E6%96%AF%E7%A7%91%E5%B3%B0%E4%BC%9A%E6%99%AE%E4%BA%AC%E4%BC%9A%E8%A7%81%E8%8E%B1%E5%B8%8C%E5%B9%B6%E5%BC%BA%E8%B0%83%E6%94%AF%E6%8C%81%E5%85%B1%E5%90%8C%E5%85%B3%E7%B3%BB](https://chinese.aljazeera.net/news/2022/1/20/%E8%8E%AB%E6%96%AF%E7%A7%91%E5%B3%B0%E4%BC%9A%E6%99%AE%E4%BA%AC%E4%BC%9A%E8%A7%81%E8%8E%B1%E5%B8%8C%E5%B9%B6%E5%BC%BA%E8%B0%83%E6%94%AF%E6%8C%81%E5%85%B1%E5%90%8C%E5%85%B3%E7%B3%BB)
+
+5. [秘翻在线：普京总统在北京冬奥会上打盹究竟为那般？](https://gnews.org/zh-hans/1958905/)
+
+
+
+![This image has an empty alt attribute; its file name is Feb-44.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-44.jpg)
+
+编辑/校对/发稿：Petite abeille
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is good-45.png](https://assets.gnews.org/wp-content/uploads/2022/02/good-45.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

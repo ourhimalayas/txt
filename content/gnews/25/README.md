@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：Hpay上线，要做的事
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2033735/)
+## 七哥金句：直面自己的好坏
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2033741/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七格金句2.001.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句-1--scaled.jpg)
 整理：雅典娜农场
 发布：枫叶红了
 
