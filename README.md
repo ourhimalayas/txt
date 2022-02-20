@@ -15,83 +15,83 @@
 
 ---
 
-### [樱花FM|中日财经爆:全球面临战争危机 喜币必将改变世界](/content/gnews/1/README.md)
- ` 樱花FM`
-
-### [俄乌危机与世界新秩序](/content/gnews/2/README.md)
- ` MilesGuoLivePPT`
-
-### [【全字幕+视频】郭文贵2021年11月29日盖特 全世界的经济即将崩溃之时，随之而来的是社会动乱……](/content/gnews/3/README.md)
- ` 郭文贵全文字幕&#38;视频`
-
-### [【全字幕+视频】2021年11月6日郭文贵盖特](/content/gnews/4/README.md)
- ` 郭文贵全文字幕&#38;视频`
-
-### [樱花FM┃中日财经爆:日银负利率政策事与愿违 银行存款有增无减](/content/gnews/5/README.md)
- ` 樱花FM`
-
-### [日本东京樱花团 中文新闻播报第九期](/content/gnews/6/README.md)
- ` Tokyo Sakura Video Group`
-
-### [【全字幕+视频】郭文贵-2022年1月2日-盖特直播万分感谢在国内战友发来的各种关于昨天元旦节大直播的信息](/content/gnews/7/README.md)
- ` 郭文贵全文字幕&#38;视频`
-
-### [樱花FM|哥伦比亚表明支持北约抵制俄罗斯入侵乌克兰](/content/gnews/8/README.md)
- ` 樱花FM`
-
-### [樱花FM|意大利外长访问乌克兰和俄罗斯](/content/gnews/9/README.md)
- ` 樱花FM`
-
-### [樱花FM┃香港病例连日创新高 港共政府防疫政策失败](/content/gnews/10/README.md)
- ` 樱花FM`
-
-### [加拿大卡车司机的警醒——没有人是安全](/content/gnews/11/README.md)
+### [2022年2月20日，全球中共病毒疫情情况汇总](/content/gnews/1/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [樱花FM┃公屋改隔离营 大学宿舍也被纳入](/content/gnews/12/README.md)
+### [樱花FM┃制造医院拒收乱象 逼家长带孩童注射疫苗](/content/gnews/2/README.md)
  ` 樱花FM`
 
-### [视频|大陆中小学设“法治副校长” 宣传“习近平思想”](/content/gnews/13/README.md)
+### [樱花FM┃中共将为司法体系去殖民化](/content/gnews/3/README.md)
+ ` 樱花FM`
+
+### [华夏专栏：中国民主化进程的必然实现（二）](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中日财经爆┃巴菲特投资支付公司巨亏，Hpay才是王者](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [樱花FM┃G7财长发表联合声明将共同对俄实施制裁](/content/gnews/6/README.md)
+ ` 樱花FM`
+
+### [有声|文革受害者之世界宗教经文翻译大师陈寅恪](/content/gnews/7/README.md)
  ` MOSREC`
 
-### [视频|英国保守党主席呼吁西方合作对抗中共威胁](/content/gnews/14/README.md)
+### [樱花FM┃乌克兰危机升温：俄军再增兵 或引发制裁](/content/gnews/8/README.md)
+ ` 樱花FM`
+
+### [【全字幕+视频】郭文贵2022年1月10日-盖特直播](/content/gnews/9/README.md)
+ ` 郭文贵全文字幕&#38;视频`
+
+### [樱花FM┃五角大楼称俄罗斯在乌克兰边境有增兵](/content/gnews/10/README.md)
+ ` 樱花FM`
+
+### [有声|习近平21年5月南阳之行 动用警力护宗祠风水](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [视频|欧盟就中共专利侵权在世贸组织发起诉讼](/content/gnews/15/README.md)
+### [樱花FM┃中共开动宣传机器 操弄俄乌局势舆论](/content/gnews/12/README.md)
+ ` 樱花FM`
+
+### [樱花FM|英考虑放宽BNO签证　或纳入年轻港人](/content/gnews/13/README.md)
+ ` 樱花FM`
+
+### [樱花FM|中日财经爆:新城控股销售额暴降 地方小银行的噩梦](/content/gnews/14/README.md)
+ ` 樱花FM`
+
+### [樱花FM|德国总理宣布向乌克兰提供财政援助](/content/gnews/15/README.md)
+ ` 樱花FM`
+
+### [樱花FM|郭文贵先生2022年2月14日盖特视频（9分27秒）全文字版](/content/gnews/16/README.md)
+ ` 樱花FM`
+
+### [俄乌危机与世界新秩序](/content/gnews/17/README.md)
+ ` MilesGuoLivePPT`
+
+### [视频|揭露HBO VICE精心编织的谎言 Part-7](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [视频|英喜农场开展为中共送葬行动](/content/gnews/16/README.md)
+### [樱花FM┃香港病例连日创新高 港共政府防疫政策失败](/content/gnews/19/README.md)
+ ` 樱花FM`
+
+### [加拿大卡车司机的警醒——没有人是安全](/content/gnews/20/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [视频|胡适两个儿子的命运天地之别](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [视频|科学自由主义导致科技强国代价巨大](/content/gnews/17/README.md)
+### [视频|澳大利亚警方承认对堪培拉抗议民众使用了LRAD装置](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [视频|中共抹杀科学巨匠束星北的独立人格思想](/content/gnews/18/README.md)
- ` MOSREC`
-
-### [视频|美国议员提案禁止中共高官子女赴美学习](/content/gnews/19/README.md)
- ` MOSREC`
-
-### [视频|美国将微信和阿里巴巴加入盗版市场名单](/content/gnews/20/README.md)
- ` MOSREC`
-
-### [视频|冬奥会双金选手关注中共国人权问题](/content/gnews/21/README.md)
- ` MOSREC`
-
-### [视频|港共政府国安处拘捕艺人阮民安](/content/gnews/22/README.md)
- ` MOSREC`
-
-### [视频|郭先生揭露习近平的痛苦之源](/content/gnews/23/README.md)
+### [视频|大陆中小学设“法治副校长” 宣传“习近平思想”](/content/gnews/23/README.md)
  ` MOSREC`
 
 ### [《历史的今天》2022.02.20](/content/gnews/24/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [Peterson Pierre医生呼吁治疗冠状病毒不要进医院](/content/gnews/25/README.md)
- ` 波士顿五月花农场`
-
-### [CDC紧急警告：每个人都有血栓的风险！即使是最健康的运动员](/content/gnews/26/README.md)
+### [CDC紧急警告：每个人都有血栓的风险！即使是最健康的运动员](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`
+
+### [疫苗质量：化学家向保罗-埃利希研究所提问](/content/gnews/26/README.md)
+ ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
 ### [秘翻在线：日媒报道说中共国老百姓的肉体冻出了奥运蓝](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
@@ -114,23 +114,23 @@
 ### [人权组织：要求爱彼迎撤下新疆西藏房源](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`
 
-### [该来的总会来](/content/gnews/34/README.md)
- ` 骄子`
-
-### [新西兰Covid-19住院患者几乎都是完全疫苗接种者](/content/gnews/35/README.md)
+### [新西兰Covid-19住院患者几乎都是完全疫苗接种者](/content/gnews/34/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [澳洲朝野抨击中共以雷射光照射澳军机的举动](/content/gnews/36/README.md)
- ` 纽约香草山MOS02`
-
-### [樱花FM|乌克兰强调：加入北约目标不变](/content/gnews/37/README.md)
+### [樱花FM|乌克兰强调：加入北约目标不变](/content/gnews/35/README.md)
  ` 樱花FM`
 
-### [大科技与红色科技： 数码时代的民主渐逝](/content/gnews/38/README.md)
+### [大科技与红色科技： 数码时代的民主渐逝](/content/gnews/36/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [渥太华警方暴力镇压和平抗议者，并威胁市民不要拨打投诉电话](/content/gnews/39/README.md)
- ` 秘密翻譯組G-Translators`
+### [躺平币将首先惠顾爆料革命战友](/content/gnews/37/README.md)
+ ` NFSC News`
+
+### [中共冬奥会闭幕式比开幕式更冷清](/content/gnews/38/README.md)
+ ` NFSC News`
+
+### [疫苗灾难未至，战友仍需从长计议](/content/gnews/39/README.md)
+ ` NFSC News`
 
 ### [2022/02/18 墙内世界](/content/gnews/40/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`

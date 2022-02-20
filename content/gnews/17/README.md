@@ -2,23 +2,16 @@
 ---
 
 
-## 视频|科学自由主义导致科技强国代价巨大
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2036446/)
+## 俄乌危机与世界新秩序
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2036730/)
 
-制作：香草山视频部
+文贵大直播20220220
 
-在2月18日的大直播中，郭先生诠释了，对科学主义的过分崇拜导致一些科技强国充当了中共病毒疫苗的急先锋，超高的接种率将会使这些国家的人民深陷疫苗灾难。
+撰稿：Lakeman文仁（77国际功成）dingding（香草山）BEN（雅典娜）
 
-郭先生说，在以色列、英国等近代拥有工业文明和先进科技的国家，这一次疫苗的施打比率令人发指。尤其是以色列，几乎达到全员接种，甚至较高比率的人群打了加强针、第四针。主要原因是，在罗马时代之后，欧洲以基督教为主的文明领导着人类逐渐从皇权过渡到民权，工业文明开启。在过去的两三百年里，以英女王、日本天皇等为代表的皇权逐渐没落，曾经辉煌的宗教影响力也渐渐衰退。科学在资本主义的运作下成了人类唯一的支撑。
-
-郭先生指出，犹太人虽然是神教的创始者，但也是科学主义的先驱。不过这一次，他们被福奇、辉瑞公司等科学自由主义利用，必将付出惨重代价。达沃斯党、共产主义、沼泽地充分利用医学领域的权威，以疫苗祸害世界，人类已经面临生存危机。正道主义则倡导司法独立、媒体独立、科学独立的精神，为人类提供了一个新的管理模式。
-
-发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+美工：凌点夜话（香草山）健身建心（英喜）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1-7.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide2-9.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide3-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide4-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide5-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide6-5.png)
+*发布：Theodosia*
 
  
 

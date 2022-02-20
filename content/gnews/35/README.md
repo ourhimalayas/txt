@@ -2,61 +2,26 @@
 ---
 
 
-## 新西兰Covid-19住院患者几乎都是完全疫苗接种者
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2035834/)
+## 樱花FM|乌克兰强调：加入北约目标不变
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2035628/)
 
-编译：wenwu
+音频：东京樱花团/战友520
+![](https://lh6.googleusercontent.com/5in8SjPq-BTBT0eIPwwCccF3MytjI2N88IVX2nvzY4JFHpAWhiI04YtHBTjepXwMkHkP2icMHdjjrYw6YtIO_h71Y0f7clqyThCbQs0GEzx_guxlRFQiyn-8NuyjWntDYx7LTyKa)
+在媒体报道乌克兰驻英大使称“为避免战争可考虑放弃加入北约”之后，基辅出面澄清表示，寻求加入北约是写入宪法的目标，乌克兰没有放弃的打算。与此同时，德国总理肖尔茨抵达基辅开展斡旋之旅，但对于乌方提出要反坦克导弹的要求，柏林会同意吗？乌克兰政府方面重新确认了该国寻求加入北约以及欧盟的意愿。周一，总统泽连斯基的一名发言人表示，上述目标对于该国来说具有绝对的优先地位。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1859.png)dailyexpose.uk
+此番声明是对乌克兰驻英国大使普赖斯泰科有关表态所作的回应。据英国广播公司BBC报道，这位大使之前曾经在接受采访时说，“如果形势所迫，乌克兰可以考虑放弃加入北约”，从而避免与俄罗斯发生战争。不过这位外交官很快就出面澄清，称相关报道是一场误会。乌克兰不会对加入北约的计划进行重新考量。“‘灵活性’不等于放弃加入北约，加入北约这一路线不仅已经写入我们的宪法，而且还得到了政府机构和社会各界的全面支持，”乌克兰总统府发言人尼基弗洛夫（Sergii Nykyforow）对路透社表示强调。普大使随后接受BBC采访，表示乌克兰为了避免战争，愿意做出让步，但这与北约并无关联。他强调，自己并不是说乌克兰要推迟加入北约的计划，而是说因为“我们现在还不在这个大家庭中，所以必须寻找一些其他东西，比如与英国、美国的双边协议”。
 
-新西兰卫生部于周三（16日）发布了一份新闻报告，其中包含了按疫苗接种情况划分的 Covid-19 住院人数的信息。他们在报告中(如下图1)确认，在北部地区目前的住院人数中，未接种疫苗的人口占2人，而完全接种疫苗的人口占23人。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1860.png)
-因此，我们回顾了新西兰卫生部以前发布的新闻报道，以描绘出目前据称席卷全国的Covid-19大流行病的情况。
+俄总统普京坚决反对北约东扩，要求西方做出安全承诺，其中包括不会允许乌克兰加入这个跨大西洋军事联盟，北约则拒绝这一要求。目前俄已经在俄乌边界部署了超过10万军力的部队和重型武器。针对乌克兰方面的澄清，克里姆林宫周一回应表示，俄方并未将之前有关乌驻英大使言论的报道视为该国在加入北约方面的立场转变信号。不过如果基辅方面真的放弃这一意图的话，的确会对消除俄罗斯的安全顾虑做出一些贡献。英国国防部副大臣希佩周一表示，不管乌在寻求加入北约的问题上作何决定，英国都会提供支持，因为这是他们的国家主权所在。”
 
-以下是我们分析的报告，可以追溯到在第25次的1月22日：
+德国政府正在对乌方提出的输送武器进行评估。据报道，此前基辅方面敦促柏林，需尽快为该国提供12000枚反坦克导弹，以供乌方在俄军发起地面进攻时用于自我防卫。德国政府原则上拒绝向乌克兰出口“杀伤性”武器，但是会考虑提供一些防御性的装备，比如夜视仪等。另外根据德国政府消息，肖尔茨还会宣布为乌提供更多的经援以帮助该国在俄试图搅乱该国内政的情况下稳住局面。
 
-- [*https://www.health.govt.nz/news-media/news-items/record-day-boosters-and-paediatric-doses-25-community-cases-10-hospital*](https://www.health.govt.nz/news-media/news-items/record-day-boosters-and-paediatric-doses-25-community-cases-10-hospital)
-- [*https://www.health.govt.nz/news-media/news-items/more-100000-first-doses-5-11s-90-auckland-maori-fully-vaccinated-23-community-cases-6-hospital*](https://www.health.govt.nz/news-media/news-items/more-100000-first-doses-5-11s-90-auckland-maori-fully-vaccinated-23-community-cases-6-hospital)
-- [*https://www.health.govt.nz/news-media/news-items/more-30000-boosters-given-yesterday-103-community-cases-11-hospital*](https://www.health.govt.nz/news-media/news-items/more-30000-boosters-given-yesterday-103-community-cases-11-hospital)
-- [*https://www.health.govt.nz/news-media/news-items/more-13000-boosters-given-yesterday-91-community-cases-10-hospital*](https://www.health.govt.nz/news-media/news-items/more-13000-boosters-given-yesterday-91-community-cases-10-hospital)
-- [*https://www.health.govt.nz/news-media/news-items/more-22000-boosters-given-yesterday-126-community-cases-8-hospital*](https://www.health.govt.nz/news-media/news-items/more-22000-boosters-given-yesterday-126-community-cases-8-hospital)
-- [*https://www.health.govt.nz/news-media/news-items/more-38000-boosters-given-yesterday-142-community-cases-6-hospital*](https://www.health.govt.nz/news-media/news-items/more-38000-boosters-given-yesterday-142-community-cases-6-hospital)
-- [*https://www.health.govt.nz/news-media/news-items/more-36000-boosters-given-yesterday-147-community-cases-13-hospital*](https://www.health.govt.nz/news-media/news-items/more-36000-boosters-given-yesterday-147-community-cases-13-hospital)
-- [*https://www.health.govt.nz/news-media/news-items/record-day-boosters-more-66000-doses-given-yesterday-243-community-cases-10-hospital-1-icu*](https://www.health.govt.nz/news-media/news-items/record-day-boosters-more-66000-doses-given-yesterday-243-community-cases-10-hospital-1-icu)
-- [*https://www.health.govt.nz/news-media/news-items/more-48000-booster-doses-given-yesterday-208-community-cases-12-hospital-1-icu*](https://www.health.govt.nz/news-media/news-items/more-48000-booster-doses-given-yesterday-208-community-cases-12-hospital-1-icu)
-- [*https://www.health.govt.nz/news-media/news-items/almost-25000-booster-doses-waitangi-day-188-community-cases-14-hospital-1-icu*](https://www.health.govt.nz/news-media/news-items/almost-25000-booster-doses-waitangi-day-188-community-cases-14-hospital-1-icu)
-- [*https://www.health.govt.nz/news-media/news-items/more-200000-paediatric-doses-and-over-16-million-boosters-now-given-202-community-cases-14-hospital*](https://www.health.govt.nz/news-media/news-items/more-200000-paediatric-doses-and-over-16-million-boosters-now-given-202-community-cases-14-hospital)
-- [*https://www.health.govt.nz/news-media/news-items/big-boost-week-kicks-all-dhbs-reach-90-fully-vaccinated-pacific-peoples-204-community-cases-16*](https://www.health.govt.nz/news-media/news-items/big-boost-week-kicks-all-dhbs-reach-90-fully-vaccinated-pacific-peoples-204-community-cases-16)
-- [*https://www.health.govt.nz/news-media/news-items/more-56000-boosters-given-yesterday-306-community-cases-12-hospital*](https://www.health.govt.nz/news-media/news-items/more-56000-boosters-given-yesterday-306-community-cases-12-hospital)
-- [*https://www.health.govt.nz/news-media/news-items/more-50000-boosters-given-yesterday-446-community-cases-23-hospital*](https://www.health.govt.nz/news-media/news-items/more-50000-boosters-given-yesterday-446-community-cases-23-hospital)
-- [*https://www.health.govt.nz/news-media/news-items/more-57000-boosters-given-yesterday-454-community-cases-27-hospital*](https://www.health.govt.nz/news-media/news-items/more-57000-boosters-given-yesterday-454-community-cases-27-hospital)
-- [*https://www.health.govt.nz/news-media/news-items/more-49000-boosters-given-yesterday-810-community-cases-32-hospital*](https://www.health.govt.nz/news-media/news-items/more-49000-boosters-given-yesterday-810-community-cases-32-hospital)
-- [*https://www.health.govt.nz/news-media/news-items/more-20000-boosters-given-yesterday-981-community-cases-39-hospital*](https://www.health.govt.nz/news-media/news-items/more-20000-boosters-given-yesterday-981-community-cases-39-hospital)
-- [*https://www.health.govt.nz/news-media/news-items/more-47000-boosters-given-yesterday-744-community-cases-40-hospital*](https://www.health.govt.nz/news-media/news-items/more-47000-boosters-given-yesterday-744-community-cases-40-hospital)
-- [*https://www.health.govt.nz/news-media/news-items/more-two-million-boosters-given-1160-community-cases-56-hospital*](https://www.health.govt.nz/news-media/news-items/more-two-million-boosters-given-1160-community-cases-56-hospital)
-- 下图2显示了处在第25次的1月22日至在第16次的2月22日的区间段，新西兰每天按疫苗接种情况分类（\*注：红色是完全接种疫苗，绿色是未接种疫苗）的 Covid-19 住院总人数：
+据法新社报道，从2014年俄吞并克里米亚半岛之后，德国为乌提供了超过18亿欧元的援助，是最大的资助国。此外，德国防军派出的70名士兵也已经抵达立陶宛的考纳斯军用机场，他们将会对驻扎在这个波罗的海国家的北约部队提供增援。据悉，德国一共计划派遣360名士兵。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1861.png)
-正如你所看到的，每天的完全接种疫苗的人都占了 Covid-19 住院人数的绝大部分；而截至在第16次的2月22日，完全接种疫苗的人的情况似乎在逐渐恶化，而未接种疫苗的人则有所改善。
+文字版原文：[乌克兰强调：加入北约目标不变 – GNEWS](https://gnews.org/zh-hans/2006903/)
 
-在第25次的1月22日，仅有6人因 Covid-19 住院，其中完全接种疫苗的人占5次住院，未接种疫苗的人占1次住院；但在第16次的2月22日，有25人因Covid-19而住院，其中完全接种疫苗的人占23次住院，而未接种疫苗的人仅占2次住院。 下图3显示了在第25次的1月22日至在第16次的2月22日的区间段，新西兰按疫苗接种情况划分的 Covid-19 住院人数比例：
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1862.png)
-在这19天中，有6天 Covid-19 住院的全都是完全疫苗接种者（大约有 79% 的新西兰人口被认为是完全接种疫苗者）。
-
-最近两天的数据显示，2月15日完全接种疫苗的人占住院人数的 90%，2月16日的住院人数占比 92%。
-
-新西兰卫生部拒绝公布按疫苗接种情况划分的 Covid-19 死亡人数，但我们认为，从他们悄悄公布的 Covid-19 住院人数的非常有限的数据中可以清楚地看到，新西兰正处于完全接种疫苗的大流行中，而且看起来 Covid-19 疫苗接种在预防住院方面的好处为零；实际上，从给出的数字来看（如下图4），接种疫苗似乎使情况变得更糟。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1863.png)
-（文章仅代表作者观点与GNEWS无关）
-
-素材来源：[dailyexpose.uk] [New Zealand’s Pandemic of the Fully Vaccinated | Up to 100% of](https://dailyexpose.uk/2022/02/18/new-zealands-pandemic-of-the-fully-vaccinated/) [Covid-19 Hospitalisations are among the Fully Vaccinated according to official data](https://dailyexpose.uk/2022/02/18/new-zealands-pandemic-of-the-fully-vaccinated/)
-
-* * *
-
-审核：文乐
-校对：花羽
-发布：花羽
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-5.jpeg)
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
