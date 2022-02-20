@@ -2,50 +2,30 @@
 ---
 
 
-## 魁北克省自由卡车司机收到罚单同时，数名示威者递给他现金
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2034324/)
+## 伊说│曲终人散的政治足球
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2034459/)
 
-2022-02-19
+撰稿：东京樱花团/华夏伊人
 
-编译及评论：16626
-![](https://assets.gnews.org/wp-content/uploads/2022/02/VFO37URVV9O55EEZD7S.png)图片来源：截屏于[EN IMAGES | Un camionneur reçoit de l’argent pour payer sa contravention](https://www.tvanouvelles.ca/2022/02/19/a-voir--un-camionneur-recoit-de-largent-pour-payer-sa-contravention)（发表于 2022 年 2 月 19 日下午 4:51）
-自由卡车司机收到警察的罚单同时数名示威者（马上）递给他现金
+![](https://assets.gnews.org/wp-content/uploads/2022/02/曲终人散的政治足球.png)[图片来源](https://www.rfa.org/mandarin/yataibaodao/kejiaowen/wy-02022022150504.html)
 
-TVA Nouvelles 发表于 2022 年 2 月 19 日下午 4:51。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/4AG@8H1311O5B8GM.png)图片来源：截屏于[EN IMAGES | Un camionneur reçoit de l’argent pour payer sa contravention](https://www.tvanouvelles.ca/2022/02/19/a-voir--un-camionneur-recoit-de-largent-pour-payer-sa-contravention)（发表于 2022 年 2 月 19 日下午 4:51）图中显示，在魁北克市，一名卡车司机收到（警察的）一张过度使用汽车喇叭的罚单
-在魁北克市，正当一名卡车司机在收到（警察的）一张过度使用汽车喇叭的罚单后，到数名示威者（马上）递给他现金。
+广州足球俱乐部于2月16日在内部下发了《足球俱乐部球员定编及薪资标准》，规定俱乐部一线队球员年薪税前人民币6万至60万元，不仅与当年俱乐部“盛世时代”动辄千万级薪资水平存天壤之别，甚至与中超普通本土球员最高300万元的税前顶薪标准相去甚远。这样一个结果预示着，中超“金元时代”的彻底完结。宣布与艾克森等5名高薪引进的归化球员解约的同时， 这也正预示着国足的归化政策宣告失败，而广州队之前的“为国养士”模式也已经正式成为了过去。
 
-**拿到罚单后仅仅几秒钟内**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/G19GM75SCHQ@@WB.png)图片来源：截屏于[EN IMAGES | Un camionneur reçoit de l’argent pour payer sa contravention](https://www.tvanouvelles.ca/2022/02/19/a-voir--un-camionneur-recoit-de-largent-pour-payer-sa-contravention)（发表于 2022 年 2 月 19 日下午 4:51）图中显示，在（这名卡车司机）拿到他的罚单后仅仅几秒钟内，好几个人（马上），（从视频中可以看到，至少八个支持示威的人），走到他的卡车前，递给他一些现金以帮助支付（罚单的）罚款金额
-在（这名卡车司机）拿到他的罚单后仅仅几秒钟内，好几个人（马上），（从视频中可以看到，至少八个支持示威的人），走到他的卡车前，递给他一些现金以帮助支付（罚单的）罚款金额。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/V9B8806G046V1QY.png)图片来源：截屏于[EN IMAGES | Un camionneur reçoit de l’argent pour payer sa contravention](https://www.tvanouvelles.ca/2022/02/19/a-voir--un-camionneur-recoit-de-largent-pour-payer-sa-contravention)（发表于 2022 年 2 月 19 日下午 4:51）图中显示，在（这名卡车司机）拿到他的罚单后仅仅几秒钟内，好几个人（马上），（从视频中可以看到，至少八个支持示威的人），走到他的卡车前，递给他一些现金以帮助支付（罚单的）罚款金额
-魁北克市警方已警告卡车司机，他们（只）有权“适度”鸣笛（按喇叭）。
+2010年3月1日，恒大集团以1亿元买断广州足球俱乐部全部股权，更名为广州恒大足球俱乐部。2014年，阿里巴巴集团增资扩股更名为广州恒大淘宝队。2015年，广州恒大淘宝队挂牌新三板，成为亚洲第一个上市的足球俱乐部。2020年底悄然退市，2021年3月正式摘牌，并在同年1月更名为广州足球俱乐部。
 
-#### 国民议会附近的示威者非常多
+曾何几时，广州队即广州恒大的前身，那是中超“金元足球”的代名词。2018年，拿出1.1亿人民币的天价买断巴西球星保利尼奥，甚至有的球员转会签字费都过千万。在短短的几年时间里，利用高薪吸引国内外众多球星和教练团队，迅速建立起一支两夺亚冠、8次登顶中超的球队。靠砸钱确实给中国职业联赛带来了关注，那时候他们的外援都是千万欧元级别，甚至都在欧洲一线豪门挖人，薪资体系更是冠绝亚洲。为了冲进世界杯，甚至不惜花费超过10亿的大手笔，完成5名巴西籍球员的归化。
 
-周六（ 2022 年 2 月 19 日），（魁北克市）国民议会附近的示威者非常多。
+现代化足球发展永远诠释着球场即市场的道理，而在中共体制下，一切为政治服务。当然，足球也不可能独善其身，纷纷扮演起这场盛宴的小丑。不知从何时起，“财大气粗”的地产商们，纷纷把玩足球变成了标配。
 
-#### 国民议会前的数千人（示威者）
+如今，广州足球俱乐部突然断崖式的降薪，让所有人大跌眼镜，降幅之大，与之前的豪气形成了鲜明对比，从一个极端走向另一个极端。广州市2021年人均可支配收入为74400元，一个职业足球运动员的薪资不及社会一般职业，已经严重悖离职业足球环境。它是首家降薪的球队，一定不是最后一家。一边降薪，一边与归化解约，说明投资方玩不下去了，推动投资方的背后力量也要退场了。
 
-另外，加拿大魁北克省的蒙特利尔日报（多米尼克·莱利弗 和 杰里米·伯尼尔DOMINIQUE LELIÈVRE et JÉRÉMY BERNIER 2022 年 2 月 19 日星期六 10:23，[https://www.journaldequebec.com/2022/02/19/images-convoi-de-la-liberte–les-manifestants-de-retour-a-quebec](https://www.journaldequebec.com/2022/02/19/images-convoi-de-la-liberte--les-manifestants-de-retour-a-quebec) ）发表一篇题为《“自由车队”：国民议会前的数千人，抗议者返回魁北克市》的文章报道，（2022 年 2 月 19 日）星期六，魁北克省议会山地区再次出现更大规模的示威，这是在两周内的第二次反对卫生措施的示威。
+当盛宴落幕的时候，当曲终人散的时候，当曾经的海市蜃楼破灭的时候，剩下的只有负债累累的俱乐部，以及那些从小即失去受教育机会过惯高薪奢侈生活的运动员。他们曾经是这场盛宴的受益者，而今，却变成了最大的受害者，谁之过？耳边响起《桃花扇》的一段精彩唱词：眼看他起高楼，眼看他宴宾客，眼看他楼塌了。
 
-日前，Gnews发表一篇题为《魁北克省记者“自爆”收到纽伦堡审判的照片，[https://gnews.org/zh-hans/2022554/](https://gnews.org/zh-hans/2022554/) 》的文章报道，一位署名为，安东尼奥斯·萨拉利利斯（Antonios Sarailis）的人，发给加拿大魁北克省的蒙特利尔日报记者，伊曼纽尔 拉特拉维斯，Emmanuelle Latraverse，一张纽伦堡审判处决的照片，并警告下一个就轮到这名记者了。
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
 
-## 纽伦堡审判的时刻快到了
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
 
-我们谴责并反对暴力示威，更反对政府施加暴力于人民。那些，颠倒黑白，替邪恶势力站台的媒体，以及执法机关的警察，同样逃脱不了即将到来的纽伦堡审判。
-
-**参考资料**：
-
-1. [EN IMAGES | Un camionneur reçoit de l’argent pour payer sa contravention](https://www.tvanouvelles.ca/2022/02/19/a-voir--un-camionneur-recoit-de-largent-pour-payer-sa-contravention)
-
-
-编辑：LILY
-发布：肥鯮
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

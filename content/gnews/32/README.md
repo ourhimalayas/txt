@@ -2,34 +2,40 @@
 ---
 
 
-## 重磅炸弹， Spotify和Moderna的所有者为同一伙人
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2033923/)
+## 有声|台湾加强立法防止中共窃取芯片技术
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2034199/)
 
-**编译：武松**
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月17日，据相关媒体消息显示，台湾政府当天通过了一项法案修正草案，当中增订了有关核心关键技术经济间谍罪的部分，用以防止中共对台湾芯片技术的窃取。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide2-8.jpeg)
+资料显示，台湾近年来制造了世界上大多数最先进的半导体芯片，而台积电则拥有世界最先进的科技芯片技术。但长期以来，中共政府一直对该领域虎视眈眈，还曾多次通过经济间谍活动、挖角人才等方法试图复制这些技术。
 
-杰出的科学家和mRNA技术的共同发明者罗伯特·马龙博士，在本周接受福克斯新闻主持人塔克·卡尔森的采访时投下了新的重磅炸弹，据其透露，Spotify 平台的最高所有者也是疫苗制造商 Moderna 的最高所有者。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/460CA3B0-E539-4463-A8CD-6C1740F29047.jpeg)图片来源：https://www.naturalnews.com
-据了解，Moderna的最大股东是 Baillie Gifford and Company，该公司拥有该公司近4600万股股票，价值超过116亿美元。同时Baillie Gifford and Company也是Spotify的最大股东，持有该公司超过2200万股股票，价值超过220亿美元。
+台湾相关机构指出，目前，台积电的两纳米芯片制造技术对台湾的安全至关重要，因此，除了现有的商业机密保护法外，政府还将提供额外的法律保护。而台湾内阁则对此表示，根据最新通过的法律草案，向中共泄漏核心技术的人员将被判处经济间谍罪，其最高将被处以12年的监禁惩罚。同时，台湾政府将建立一个指定的经济间谍法庭，用以加快审判速度。
 
-Baillie Gifford and Company是一家成立于苏格兰的全球资产管理基金，总部位于纽约和伦敦，它管理着近五万亿美元的投资组合。据该公司网站得到信息，Baillie Gifford 由其47位合伙人全资拥有，同时他们宣称致力于保持独立，通过每一代合作伙伴，始终专注于为客户创造卓越的长期投资成果，这一直是该公司自身发展的基石。但是这47为合伙人究竟是何许人也，暂时未找到相关内容。
+据悉，这项新的法律草案还将阻止中共通过在第三国设立公司等途径非法挖角台湾人才，此外，草案也将加强对中共在台湾非法投资的惩罚。
 
-罗伯特·马龙最后表示，金钱和权力是围绕他、罗根和疫苗所有“争议”的根源，不是“科学”。
 
-**评：持续2年多的中共病毒和疫苗风波席卷全球，无数的普通民众收到巨大伤害，甚至死亡。这些草根就是全球黑暗势力的实验对象和玩物，终究原因就是金钱和权力在作怪，是人类大重启的一部分。可喜的是在新中国联邦及郭文贵先生的全力呼吁下，全世界正在快速醒来，认识到病毒和疫苗的真相，全球各地爆发的抗议及游行活动，最终必将黑暗势力斩草除根，人类将迎来更美好的未来。**
 
-**原文链接：**
+文字版原文：[台湾加强立法防止中共窃取芯片技术](https://gnews.org/zh-hans/2032786/)
 
-[Dr. Robert Malone drops bomb, reveals top owner of Spotify is also top owner of COVID vaccine maker Moderna](https://www.naturalnews.com/2022-02-15-dr-robert-malone-reveals-top-owner-spotify-also-top-owner-of-moderna.html)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-编辑：LILY
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**发布：歪桑**
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-20220219
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3343513D-87C5-433D-88D8-2DE98D14FF13.jpeg)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
