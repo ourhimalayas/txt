@@ -2,48 +2,49 @@
 ---
 
 
-## 加拿大警方驱散自由车队，逮捕至少100名抗议者
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2035328/)
+## COVID-19死亡人数在澳洲达到创纪录水平
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2035363/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-19.png)图片来自网络
+**目前，澳大利亚的 COVID-19 死亡人数处于创纪录水平，每天的死亡人数是第一波袭击该国时死亡人数的三倍，当时没有任何 COVID-19 疫苗可供公众使用。但新南威尔士州政府的数据证明，在破纪录的死亡人数中，每5人中就有4人是完全接种了疫苗。**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片3-15.png)按日期划分，在澳大利亚的中共病毒死亡人数
+新南威尔士州政府每周发布一份 COVID-19 监测报告，最新报告于22年2月8日公布，其中包含 2022 年 11 月 26 日至 1 月 22 日期间按疫苗接种状态分类的病例、住院和死亡数据，参见以下报表。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片4-10.png)
+下图显示了根据最新报告，在 11 月 26 日至 22 日 1 月 22 日期间，澳大利亚新南威尔士州按疫苗接种状态划分的 COVID-19 病例总数：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片5-7.png)
+在此期间，澳大利亚新南威尔士州共记录了540,330例病例，其中接种疫苗的人数达到了惊的467,558人，而未接种疫苗的人数为 72,772 人。
 
-翻译/编辑：文泓
+这意味着在11月26日至22年日1月22日期间，病例中接种人群占 87% ，每10个 COVID-19病例有9个接种了疫苗。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/7-29.png)图片来源：acropreneur.com & 雅典娜设计组
+下图显示了根据最新报告，在11月21日至22年 日1月22日期间，澳大利亚新南威尔士州按疫苗接种状态划分的COVID-19住院总数：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片6-4.png)
+在此期间，澳大利亚新南威尔士州共有6,475人因COVID-19住院，其中接种疫苗的人数达到惊人的5,653人，而未接种疫苗的人数仅占822人。
+
+这意味着在 11 月 26 日至 22 日 1 月 22 日期间，每10例COVID-19住院患者中有9例接种了疫苗，占住院患者的87% 。
+
+下图显示了根据最新报告，在11月21日26日至22日1月22日期间，澳大利亚新南威尔士州按疫苗接种状态划分的 COVID-19 死亡总数：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片7-3.png)
+在这两个月里，共有421人不幸丧生，不幸的是，接种疫苗的人数占死亡人数的 323 人，而未接种疫苗的人数仅占98人。
+
+这意味着在11月26日至22日1月22日期间，所有 Covid-19 死亡人数中每10人有8人接种疫苗，即死亡人数中77%已接种疫苗。
+
+这些数字显然并不代表一种有效的疫苗，并且清楚地表明澳大利亚正处于“接种者大流行”之中。问题是，澳大利亚各地政府忽视了这些数据，反而选择对未接种疫苗的人口实施严厉的限制。
+
+如果他们改变策略，封锁完全接种疫苗的人，让未接种疫苗的人自由活动，那么肆虐澳大利亚的大流行病可能会在明天结束。
+
+原文链接：
 
 
-当地时间2月19日，据《卫报》报道，上周一，特鲁多成为第一位援引《紧急状态法》的加拿大总理，授予他的政府广泛的权力，可以禁止在某些地点举行集会、拖走车辆、暂停驾驶执照和冻结银行账户。
 
-[渥太华市临时警察局长警告说“行动迫在眉睫”，周四晚上，两名著名的抗议活动组织者领袖被捕，克里斯·巴伯和塔玛拉·利奇将面临恶作剧和劝诱他人实施恶作剧的指控。](https://www.theguardian.com/world/2022/feb/17/ottawa-protests-anti-terror-agency-warned-violent-extremists)
+> [Covid-19 Deaths are at record levels in Australia and 4 in every 5 of them are among the Fully Vaccinated](https://dailyexpose.uk/2022/02/15/australia-4-in-5-covid-deaths-fully-vaccinated/)
 
-[其他知名人士也于周五被捕：帕特·金在脸书直播期间被捕，另一位杰出人物 BJ Dichter告诉支持者，“是时候可以离开了”。](https://www.theguardian.com/world/2022/feb/17/ottawa-protests-anti-terror-agency-warned-violent-extremists)
 
-[当卡车汽笛声响起时，数百名警察一早上进入国会山附近的一个抗议营地，其中一些警察携带步枪，另一些人带着防暴盾牌和防毒面具。](https://www.theguardian.com/world/2022/feb/17/ottawa-protests-anti-terror-agency-warned-violent-extremists)
 
-[自抗议活动开始以来，警察人数首次远远超过示威者，以至于警察控制了抗议营地的部分区域，大量的警力的存在让执法者无所顾忌，他们砸碎车辆窗户并拖出司机。](https://www.theguardian.com/world/2022/feb/17/ottawa-protests-anti-terror-agency-warned-violent-extremists)
 
-随着更多皇家骑警和至少三辆装甲车抵达现场，还有一架警用无人机在头顶盘旋。警用扩音器发出警告：“你必须离开！你会被逮捕的！”
 
-警方指挥官周四明确表示，他们正准备结束卡车司机的围困，并撤走自1月下旬以来封锁该市的300多辆卡车、露营车和其他车辆。
 
-随着警线的推进，一些抗议者手挽手拒绝移动；有些人唱着加拿大国歌，并呼吁非暴力。现场一位女士喊道：“你们才是邪恶的。”
 
-随着时间的推移，越来越多的卡车逐渐离开了封锁线，大型拖车也抵达营地附近，警察逮捕了司机并控制了车辆。
-
-随即渥太华警方已开始逮捕抗议者并拖走车辆，并驱散在加拿大首都抗议疫苗强制的“自由车队”。
-
-[到周五晚上，由于警方行使了特鲁多政府援引的紧急权力，](https://www.theguardian.com/world/2022/feb/14/canada-protests-justin-trudeau-use-rare-emergency-powers)现场至少有100名抗议者被捕，至少有21辆汽车被拖走，其中包括封锁该市一条主要街道的所有车辆。
-
-周五下午，局长史蒂夫·贝尔说：“警察将继续推进控制街道，我们将日夜工作，直到完成。” 新闻链接：[Canadian police arrest at least 100 protesters in bid to break up Ottawa truck blockade | Canada | The Guardian](https://www.theguardian.com/world/2022/feb/18/trucker-convoy-protest-canada-ottawa-police-arrests-latest-news)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+翻译：飞利普 | 校对：烟波浩淼 | 编辑&发布：闪电训练
 
  
 

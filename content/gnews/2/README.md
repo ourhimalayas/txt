@@ -2,17 +2,23 @@
 ---
 
 
-## 20220218文贵大直播：全世界大人物都在乎活着、钱、女人，所以新中国联邦人一定要有钱
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2035572/)
+## 郭文贵盖特音频2022.02.19
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2035676/)
 
-作者:东京樱花团小视频组
+音频提供者：左媛
+![](https://assets.gnews.org/wp-content/uploads/2022/02/out-17.jpg)
+### 视频链接：
 
-校对：东京樱花团视频小组
+[https://www.gettr.com/post/pviwuoa122](https://www.gettr.com/post/pviwuoa122)
 
-编辑发布：东京樱花团视频小组
+### 音频链接：
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-1.jpg)
+
+
+
+
+编辑方便：闪电训练
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

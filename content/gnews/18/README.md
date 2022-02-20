@@ -2,25 +2,40 @@
 ---
 
 
-## 澳州国防部谴责中共军舰用激光照射澳巡逻机
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2035357/)
+## 房地产暴雷再发酵 阳光城继续违约
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2035422/)
 
-#### 翻译/撰稿：zzballack
+撰稿: 日本方舟农场 Andy5
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-5.png)
+2月17日，墙内地产商阳光城再发公告，公司无法偿还2726万美元的境外债务，出现了事实上的债务爆雷。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1848.png)
+就在去年的11月，中共还在墙内动用各路写手，以“阳光城完成债务展期，为房地产企业做了表率”为标题，大肆渲染阳光城的企业领导，用诚意博得投资人的信任，成功使所有到期美元债务获得展期，缓和了债务爆雷的状况，并称，与花样年、当代置业等不能如愿延期债务、陷入实质危机的企业相比，“阳光城的自救很成功”。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-2-12.jpg)图片来源：美联社
-据ABC新闻（ABC News）2月19日报道，澳大利亚国防部周六（2月19日）发表声明，谴责中共海军战舰在2月17日向澳洲一架海上巡逻机发射激光，将该机机组人员的生命置于危险之中。
+然而，对这笔接近3000万美元、已经获得了30天豁免的债务，阳光城也没有在最后截止2月15日之前进行偿还，最终仍然构成了实质性违约。
 
-澳洲国防部在声明中说：“澳洲的一架P-8A波塞冬海上巡逻机（P-8A Poseidon plane）2月17日在澳洲北部航线上空飞行时，发现一艘中共海军战舰对该机发射激光。这是一起严重危害安全的事件，我们强烈谴责这种不专业和不安全的军事行为。这种行为可能危及澳洲国防人员的生命和安全。”据报道，用激光照射飞机非常危险，因为这可能会导致飞行员受伤，或令他们短时间失明，因此造成安全隐患，特别是在飞机起飞或降落时。
+观察人士称，本次阳光城的爆雷，正式拉开了2022年中共房地产企业继续爆雷的序幕。
 
-事发当时，发射激光的那艘战舰在护卫另外一艘中共国船只穿越托雷斯海峡（the Torres Strait）。目前，这两艘船只都在澳大利亚东部的珊瑚海（the Coral Sea）行驶。
+新闻链接:
 
-类似事件并不罕见。美军曾在2020年前谴责中共海军在太平洋地区朝一架美军波塞冬巡逻机发射激光。2019年，澳洲一架海军直升飞机的飞行员表示，该直升机在南中国海遭到激光照射，最后出于谨慎不得不迫降。2018年，中共在非洲吉布提（Djibouti）的军事基地使用高功率激光照射美军战机，导致两位美国飞行员受伤，美国政府曾就此对中共当局发出正式投诉。
+1. [阳光城2726万美元债违约，境内债提前兑付压力或加大](https://cj.sina.com.cn/articles/view/5243756079/1388d5e2f020019iw0)
 
-最近几年南海的局势非常紧张，因为中共声称对南海拥有几乎所有的主权，并军事化南海的岛屿，威胁邻国，而美国及其盟友则坚持在南海国际水域进行航海和航空自由行。
+2.[阳光城债务延期成功“闯关”](https://m.21jingji.com/article/20211119/b6ffe1bb9df9afc12b8a94c1169a71f0.html)
 
-新闻来源：[Australia says China warship fired laser at its patrol plane](https://abcnews.go.com/International/wireStory/australia-china-warship-fired-laser-patrol-plane-82997764)
+3. [美元债展期，阳光城做了个表率](https://m.news.leju.com/news-6867404569358679180.html)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-1-514x720-1.png)
+
+编辑/总编:飞虹
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-5.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,25 +2,37 @@
 ---
 
 
-## 锁链女是谁？
-` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2035308/)
+## 澳洲自由车队示威者要求结束疫苗强制令并解散政府
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2035356/)
 
-供稿：文华ma161
-编辑发稿：am夏天
-喜马拉雅纽伦堡正义农场
+翻译/编辑：小红帽
 
-有人早就把李莹与“锁链女奴”的照片放在一起比较，人们凭常识、凭眼力就能看出来，两者的惊人相似之处。“锁链女”的叔叔李大成基本确认她就是自己失踪多年的侄女李莹！他写了一封公开申请书寄交公安部门，请求做DNA鉴定，但未得到回应。
-![](https://cdn.discordapp.com/attachments/931614462102892655/944681373397057556/mmexport7497013694266ef28de068cde2156101_1645069798594.jpeg)
-锁链女没有疯。她说过的话：
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/8-26.png)图片来源：www.rebelnews.com
 
-“这个世界不要俺了。”
 
-“这一屋子全是强奸犯！”
+根据RT新闻2月19日报道， 周六，在澳大利亚首都堪培拉，”前往堪培拉的车队 “运动组织了几次反对新冠疫苗强制令的游行。成群结队的抗议者在市中心的几个方向移动，并在议会大厦附近聚集。
 
-“放俺走吧！”
+从RT新闻的视频录像显示，集会上出现了“不要为工作打针”、“不要碰我们的孩子”和“我的身体，我的选择”的标语。其他横幅上写着“自2020年以来，我已经失去了说再见的机会”和“团结起来，我们永远不会被打败”。
 
-每一句话，逻辑都是清晰的。包含着血泪的控诉，包含着无助的乞求，也包含着哭天无泪的无力感，这种无力感，是多少普通人都曾经感受过体验过的！
-![](https://cdn.discordapp.com/attachments/931614462102892655/944681460609216582/mmexport1ede357936c6d97b2a3ca6920671d610_1645069807596.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/德农二维码-30.png)
+裹着旗子的示威者在街头游行时高呼“将他们全部解雇”（他们指的是澳大利亚政府），同时呼吁“拯救儿童”和“拯救澳大利亚”。
+
+警车伴随着整个抗议活动。抗议活动看起来很和平。
+
+一名参加运动的男子告诉记者，他认为政府严格的新冠（Covid-19）限制是“违反我们的宪法”和法治的行为。他指责当局“完全控制”了人民。
+
+另一位拿着扩音器的抗议者告诉欢呼的人群，车队将在该市停留，“为了表明我们不会袖手旁观”，以回应政府的政策。他还呼吁 “结束（新冠）疫苗的强制接种令”。
+
+新闻链接：[Australian ‘Freedom Convoy’ marches to parliament building](https://www.rt.com/news/549956-convoy-canberra-protest-vaccination/)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
