@@ -2,44 +2,39 @@
 ---
 
 
-## 欧美对乌克兰危机的真实态度
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2038098/)
+## 有声|房地产暴雷再发酵 阳光城继续违约
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2038220/)
 
-**整理：北酒仙翁、枫叶红了
-编辑：Candy**
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月17日，墙内地产商阳光城再发公告，公司无法偿还2726万美元的境外债务，出现了事实上的债务爆雷。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1848.png)
+就在去年的11月，中共还在墙内动用各路写手，以“阳光城完成债务展期，为房地产企业做了表率”为标题，大肆渲染阳光城的企业领导，用诚意博得投资人的信任，成功使所有到期美元债务获得展期，缓和了债务爆雷的状况，并称，与花样年、当代置业等不能如愿延期债务、陷入实质危机的企业相比，“阳光城的自救很成功”。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1837.png)
+然而，对这笔接近3000万美元、已经获得了30天豁免的债务，阳光城也没有在最后截止2月15日之前进行偿还，最终仍然构成了实质性违约。
+
+观察人士称，本次阳光城的爆雷，正式拉开了2022年中共房地产企业继续爆雷的序幕。
 
 
-你真觉得西方，欧洲和美国要想对付他们？
 
-我告诉你，乌克兰总统说这话说得很好：你不能让他的导弹落在我脑袋上，你再说惩罚他呀，你应该现在就惩罚呀。旁边的人一笑置之。在德国的会上有个精神，我们做好那一刻到来的准备。
+文字版原文：[房地产暴雷再发酵 阳光城继续违约](https://gnews.org/zh-hans/2035422/)
 
-这跟当年罗斯福对待二战是一模一样的：一开始不掺和，你们打吧，欧洲打吧，你们打的是解决二战是欧洲的战争，跟我美国啥关系？我才不掺和，当年的胡佛也是这个态度。你跟我啥关系啊，你们打去呗。最后发现，日本人跑到珍珠岛来了，哎，希特勒，法国拿了，英国炸了，这都来了。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-英国的丘吉尔给当时罗斯福打电话：你能不能给我赶快送几架飞机呀？
-罗斯福说：飞机？啥，你说啥？哎呀，电话听不见了。电话给挂了。
-丘吉尔哭着在洗手间又打电话过去问，最后：求求你，能不能？咱们站一块儿，咱俩一家人，你给我点飞机。
-我们研究了，飞机怎么给你啊？因为法律的问题，我们把飞机给你们，放到加拿大边境上，你得拿驴拖到加拿大弄走。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-明天都开战了，我要拿驴去加拿大拖飞机；而且呢，这中间停三、四次才能回来。然后电话又不管用， 唉什么，听不见话，电话声音不好， 啪，挂了。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-跟七哥当年对付很多女孩追我一样：哎呀文贵，我爱你。爱什么，电话声音不好，信号断了，都是七哥的招，是吧。对付女孩的招，每天都这招，一听电话就心情不好。 这你说不一样吗？
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-最后是没办法了，这都打咱家来了，这不开战行吗？ 开战了，一模一样。今天这乌克兰，你看美国，你打呀，你打呀，你不敢打，我就赌你那0.01不敢打。你打了我再打，那是另外一回事儿，说我和你的事，你俩打。
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-普京现在玩的是什么？我绝对打，但是我能吓得你半死，然后他又给习（近平）留下作战时间，刚刚冬奥会闭幕。大戏，现在咱直播的时候就在开始，世界上都会跌破眼镜，在这件事上。
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-**参考来源：2022.2.20文贵大直播**
-
-***发布：Candy***
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

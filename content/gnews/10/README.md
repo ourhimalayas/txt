@@ -2,11 +2,11 @@
 ---
 
 
-## 七哥金句：中国人的思想和思维
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2038059/)
+## 七哥金句：世界各国的严肃媒体
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2038130/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句1.001-4.jpeg)
-整理：雅典娜农场
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句7.001-1.jpeg)
+整理i：雅典娜农场
 发布：枫叶红了
 
  

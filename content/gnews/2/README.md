@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：七哥自省关于当年对被绑架女性无作为
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2038114/)
+## 七哥金句：沼泽地是世界游戏的定义者
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2038258/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句5-1-3-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句6-1-1-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句11--scaled.jpg)
 整理：雅典娜农场
 发布：枫叶红了
 
