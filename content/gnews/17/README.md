@@ -2,37 +2,48 @@
 ---
 
 
-## 俄罗斯普京一箭三雕戏耍中共
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2037431/)
+## 美国联邦调查局将成立数字货币部门，司法部任命新的加密货币主管
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2037476/)
 
-作者：银河系农场—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月18日大直播中，郭文贵先生分析目前的世界形势时，解密乌俄紧张局势幕后的政治利益，以及和灭共的关系。
+**评论：**数字货币趋势势不可挡，Hcoin to the moon。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide6-11.jpeg)
+据《路透社》作者：Chris Prentice，2022年2月17日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1901-e1645373932539.png)图片来源：路透社
+华盛顿，2月17日（路透社）——美国司法部已经聘请了一位经验丰富的计算机犯罪检察官来领导新的国家加密货币执法团队，并在周四宣布，联邦调查局正在启动一个区块链分析和虚拟资产扣押的部门。
 
-乌克兰对于俄罗斯，正如香港台湾对于中共，是其国家最具有象征意义和值得骄傲的地区。俄罗斯的军事、技术、精神、文化情结，以及民族素质最高的族群全部聚焦在乌克兰。彼时乌克兰脱离俄罗斯拥抱欧洲，即签署明斯克协定及基辅协议后，曾让俄罗斯人一夜无眠，痛哭流涕。眼下中共又在乌克兰大肆行骗，威胁利诱收买，不仅买大炮飞机各种武器，并购，偷盗，以致复制其先进技术。
+联邦调查局“虚拟资产利用”部门的建立发生在本月司法部有史以来最大的金融扣押行动之后。它指控一对纽约的已婚夫妇涉嫌对价值超过45亿美元的比特币进行洗钱，这些比特币在2016年数字货币交易所Bitfinex的黑客攻击中被盗。
 
-普京假意和中共习近平联合，一个打乌克兰，一个打台湾。此后习近平在香港颁布国安法，遭受国际社会的强烈谴责。国际社会看到习近平对香港民主法治的极度破坏，深信习近平将对台湾也效仿无疑。其实俄罗斯由于地缘政治的关系，更易接受欧洲。目前英法德等国都无法撑起欧洲大陆，这对普京来说是最好的机会，拿下乌克兰，将俄罗斯整体归回到欧洲。同时因为乌克兰也遭受了中共的侵蚀，拿回乌克兰的目的是为了消灭中共，且由于明斯克协议的程序正义性，在中共对台湾入侵完全违反各项国际条例，无视国际规则的反面衬托之下，普京此举则显得完全出于正义。拿下乌克兰，回到欧洲，灭共，可谓一箭三雕。
+在去年美国燃料管道网络和牛肉供应商遭到一系列高调的网络攻击后，总统乔-拜登领导的美国监管机构一直在加强对加密货币行业的审查,勒索软件集团经常要求以比特币支付其费用。
 
-郭先生曾多次指出，习近平的国际视野及政治智慧，与普京不可同日而语。普京表面和中共同声同气，但最终可能成为最先对中共捅刀的那个人。
+在其中一些案件中，联邦调查局已经能够追踪并收回部分赎金。
 
-参考链接：[2022年2月18日 文贵大直播：乌克兰俄罗斯危机各执一词；Omicron病毒解禁众说纷纭](https://gtv.org/video/id=621031e0b706176dd78cdd0e)
+加密货币依赖于区块链技术，这是一个在计算机网络中共享的数据库，其中的记录一旦添加就很难改变。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+在德国慕尼黑网络安全会议上的一次演讲中，司法部副部长丽莎-摩纳哥宣布，曾领导起诉一名俄罗斯黑客——帮助窃取8000多万摩根大通公司客户信息——的检察官崔恩英将领导该部门的加密货币执法团队。
 
-总编：Zion文恩
-编辑：静言
-校正/发稿：谐趣园
+根据她的LinkedIn个人资料，最近担任摩纳哥高级律师的Choi曾在纽约担任过近十年的网络犯罪协调员和美国助理检察官。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+“我们正在向那些利用加密货币来助长他们的计划的犯罪分子发出明确的警告。” 摩纳哥说。
 
+“我们还呼吁所有与加密货币打交道的公司——我们需要你们根除加密货币的滥用。对那些不这样做的人，我们将在我们能做到的地方追究你们的责任。”
+
+摩纳哥还宣布建立一个新的国际虚拟货币倡议，并表示该部门将积极地粉碎网络威胁。
+
+她说：“今后，检察官、特工和分析人员将在网络调查的每个阶段评估是否对网络威胁采取破坏性行动，即使他们可能会向网络犯罪分子泄露信息并危及指控和逮捕的可能性。”
+
+文章来源: [https://www.reuters.com/technology/fbi-form-new-digital-currency-unit-justice-dept-taps-new-crypto-czar-2022-02-17/](https://www.reuters.com/technology/fbi-form-new-digital-currency-unit-justice-dept-taps-new-crypto-czar-2022-02-17/)
+
+翻译：洛杉矶盘古农场 – Mike Li
+校对：洛杉矶盘古农场 – 轰炸机
+评论：洛杉矶盘古农场 – 轰炸机
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – 子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -2,49 +2,36 @@
 ---
 
 
-## 美国联邦调查局将成立数字货币部门，司法部任命新的加密货币主管
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2037476/)
+## 有声|动用警力护宗祠风水——习近平21年5月南阳之行的真实目的
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2037538/)
 
-**评论：**数字货币趋势势不可挡，Hcoin to the moon。
-
-据《路透社》作者：Chris Prentice，2022年2月17日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1901-e1645373932539.png)图片来源：路透社
-华盛顿，2月17日（路透社）——美国司法部已经聘请了一位经验丰富的计算机犯罪检察官来领导新的国家加密货币执法团队，并在周四宣布，联邦调查局正在启动一个区块链分析和虚拟资产扣押的部门。
-
-联邦调查局“虚拟资产利用”部门的建立发生在本月司法部有史以来最大的金融扣押行动之后。它指控一对纽约的已婚夫妇涉嫌对价值超过45亿美元的比特币进行洗钱，这些比特币在2016年数字货币交易所Bitfinex的黑客攻击中被盗。
-
-在去年美国燃料管道网络和牛肉供应商遭到一系列高调的网络攻击后，总统乔-拜登领导的美国监管机构一直在加强对加密货币行业的审查,勒索软件集团经常要求以比特币支付其费用。
-
-在其中一些案件中，联邦调查局已经能够追踪并收回部分赎金。
-
-加密货币依赖于区块链技术，这是一个在计算机网络中共享的数据库，其中的记录一旦添加就很难改变。
-
-在德国慕尼黑网络安全会议上的一次演讲中，司法部副部长丽莎-摩纳哥宣布，曾领导起诉一名俄罗斯黑客——帮助窃取8000多万摩根大通公司客户信息——的检察官崔恩英将领导该部门的加密货币执法团队。
-
-根据她的LinkedIn个人资料，最近担任摩纳哥高级律师的Choi曾在纽约担任过近十年的网络犯罪协调员和美国助理检察官。
-
-“我们正在向那些利用加密货币来助长他们的计划的犯罪分子发出明确的警告。” 摩纳哥说。
-
-“我们还呼吁所有与加密货币打交道的公司——我们需要你们根除加密货币的滥用。对那些不这样做的人，我们将在我们能做到的地方追究你们的责任。”
-
-摩纳哥还宣布建立一个新的国际虚拟货币倡议，并表示该部门将积极地粉碎网络威胁。
-
-她说：“今后，检察官、特工和分析人员将在网络调查的每个阶段评估是否对网络威胁采取破坏性行动，即使他们可能会向网络犯罪分子泄露信息并危及指控和逮捕的可能性。”
-
-文章来源: [https://www.reuters.com/technology/fbi-form-new-digital-currency-unit-justice-dept-taps-new-crypto-czar-2022-02-17/](https://www.reuters.com/technology/fbi-form-new-digital-currency-unit-justice-dept-taps-new-crypto-czar-2022-02-17/)
-
-翻译：洛杉矶盘古农场 – Mike Li
-校对：洛杉矶盘古农场 – 轰炸机
-评论：洛杉矶盘古农场 – 轰炸机
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – 子萍
+配音：香草山巡管部– 文凯琳
 
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-6.jpg)
 
+
+
+2021年5月14日上午，中共总书记习近平在河南省南阳市召开推进南水北调后续工程座谈会并发表了讲话，同时也对传承创新发展中医药做了指示。这是中共喉舌新华社官方报道习近平的出行目的与安排。
+
+但据笔者现任南阳市委组织部某科的亲友爆料，这不过是中共一贯的“障眼法”而已，习一神南阳之行的真实目的既不care所谓的中医药发展，也不关心生态环境的保护，而是关切南水北调工程与习家宗祠的风水关联
+
+习家宗祠与祖墓位于河南省南阳市邓州市十林镇习营村。习仲勋其祖父与父亲更是直接葬于习营村“卧龙岗”南麓、锦鸡岭东面，其祖坟由此得名“锦鸡坟”。该主官披露，扒淤河环绕习家宗祠，形成一左一右两个“龙潭”拱卫习家营村，犹如龙之双目，卧龙岗对面而立，成为习家营村的天然屏障，在堪舆学上堪称风水宝地。
+
+文字版原文：[动用警力护宗祠风水——习近平21年5月南阳之行的真实目的](https://gnews.org/zh-hans/2028440/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,27 +2,31 @@
 ---
 
 
-## 接种了两针中共病毒疫苗的横山玲奈中招了！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2037260/)
+## 最高法院拒绝介入加州学校疫苗授权要求
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2037278/)
 
-撰稿：东京樱花团｜闻雨
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-19.png)
-[*图片来源*](https://i0.hdslb.com/bfs/archive/e373c023e686c89577e764bfed99c01edbae0bfc.jpg)
+编译：wenwu
+![](https://assets.gnews.org/wp-content/uploads/2022/02/sad-kid-mask-2.jpg)戴着口罩的女学生。 
+**(iStock)**
+美国最高法院已经决定暂时不受理加州圣地亚哥（San Diego, California）学校的疫苗强制令的纠纷。
 
-据Daily新闻2月20日报道：日本女子流行歌曲偶像组合“早安少女组’22”的成员横山玲奈感染了中共病毒（新冠），她已经接种了两针中共病毒疫苗。
+加州学区的一名不愿透露姓名的女学生，在法庭文件中被称为无名氏（Jane Doe），曾以宗教自由为由，要求大法官对新冠病毒（中共病毒，COVID-19）疫苗授权进行豁免（emergency relief）。
 
-1月27日横山接受了PCR测试，被诊断为阳性。经过10天的家庭疗养后，恢复了工作。2月19日晚，横山玲奈（20岁）在MBS电台播出的“Young Town Saturday”中谈到了她被感染后的经历。
+但高等法院在周五的一份未签署的命令中拒绝了立即发布禁令的请求，认为时机不成熟，因为学区已经表示至少在5个月后（8月份）才执行该强制令。
 
-横山说：“在这十天中有七天我都非常虚弱，甚至连摸手机的力气都没有。我发烧、肚子痛，还恶心。我只能躺着，没有力气起来，我只能看着天花板。”尽管她被诊断为轻症，然而她的症状并不轻，甚至可以说很严重。
+这项疫苗授权于2021年9月对学校的教师、工作人员和16岁及以上的学生实施。它本应在2022年1月下旬生效，但官员们暂缓了疫苗授权的执行。
 
-这么年轻的女孩，才20岁就打了两针中共病毒疫苗。中共病毒疫苗会破坏人体的自然免疫系统，她的感染是不是疫苗所造成的呢？这些都有待专家们的解密，我们期待着真相早日被揭晓。
+最高法院命令说，那些反对这项疫苗授权的人可以“在情况允许的情况下”（今年8月后）回来申请新的禁止令（豁免）。
 
-信息来源：[**感染のモー娘。横山玲奈　発熱、腹痛、吐き気で苦しむ「１週間ケータイもいじれなかった」**](https://www.daily.co.jp/gossip/2022/02/20/0015079017.shtml)
+**新闻来源：**[foxnews.com] [Supreme Court refuses to get involved in CA school vaccine mandate requirement](https://www.foxnews.com/politics/supreme-court-refuses-ca-school-vaccine-mandate-requirement) | 发布时间：2022年02月19日
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / yuxingcao01*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+* * *
 
+*审核：文乐
+校对：花羽
+发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-5.jpeg)
 
  
 

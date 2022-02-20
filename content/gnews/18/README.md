@@ -2,69 +2,58 @@
 ---
 
 
-## 经济学家如何看待近期物价飞涨
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2037424/)
+## 尸检证明 接种疫苗后心脏骤停和死亡的前没有征兆
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2037469/)
 
-**翻译：【日本东京方舟农场】文龙杰克**
+作者：加拿大温哥华扬帆农场 動物農莊裡的小螞蟻[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
 
-虽然今年物价数月持续上涨，其中1月份的物价涨幅是40 年以来的最大的，但整体经济通货膨胀还没出现涨到头的迹象。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-311.jpg)（图片来源： finance.yahoo.com）
-据彭博社数据显示：2022 年初的消费者物价指数（CPI）年上涨值已达7.5%超过了预期的7.3%，是1982年以来最大的涨幅，在与历史数据逐月对比后发现，CPI出人意料的每月连续上涨 0.6%，而经济学家还在寻求减缓通胀的方法。主要物价上涨数值在减去波动的食品价格和能源价格后，还是超出了预期，1 月份物价同比去年上涨了6.0%。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-就在去年11 月，被美联储描述为“暂时性”的本轮通胀是经济持续复苏的特征。在这份报告中得到了验证——但许多经济专家看来，1月份持续上涨的物价加速推动了一个市场普遍论点：美联储必须立刻从量化宽松的货币政策转为收紧银根来减缓物价高涨势头。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-80.png)（图片来源： finance.yahoo.com）
-美国东部时间上午 8:30 ，CPI数据报告发布之后，市场反应迅速，股指期货立马下跌，国债收益率随既飙升。基准 10 年期美债收益率达到 2019 年 8 月以来的最高水平，突破了备受关注的 2%大关，债市投资者押注预计今年美联储可能加息率更高。
+本文摘自2月14日，James R. Gill、Randy Tashjian、Emily Duncanson等三位病理学家（其中两位是法医）发表在病理学和检验医学档案（Archives of Pathology and Laboratory Medicine）的研究文章《[Autopsy Histopathologic Cardiac Findings in Two Adolescents Following the Second COVID-19 Vaccine Dose](https://meridian.allenpress.com/aplm/article/doi/10.5858/arpa.2021-0435-SA/477788/Autopsy-Histopathologic-Cardiac-Findings-in-Two)》。
 
-以下是部分经济专家们对最新通胀数据的观点。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/c5bbe3ac-a8ec-4716-a6fa-c30fc6579a79.jpeg)
 
-‘普遍增长强劲’
+在对两名接种Pfizer-BioNTech COVID-19病毒疫苗几天后死亡的十几岁男孩的尸检（Autopsies）组织病理学研究证明，是疫苗导致了他们的死亡。接种疫苗后的COVID-19死亡，可能实际相当大的部分是由于疫苗造成的，而不是COVID-19本身。同时，三位病理学家发现，可能有一种方法可以区分SARS-COV-2病毒感染引起的心肌炎（myocarditis）/心包炎（pericarditis）和疫苗引起的心脏损伤。
 
-彭博社CPI 报告详细信息显示，消费者会发现几乎没有不涨价的行业。其中食品和能源及住房的价格上涨是占据1月份新闻头条的最大因素
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Covid-vaccine-teens-literally-heartbroken-feature-800x417-1.jpg)
 
-周四上午美国银行经济专家亚历山大·林（Alexander Lin）和梅根·斯威伯（Meghan Swiber）在一份报告中写道：消费品和服务业普遍增长强劲，但只有新能源汽车行业表现平平，整个消费品行业普遍压力反应在受供应链限制，且没有任何改善的迹象，
+三位病理学家对两位死者进一步进行的COVID-19病毒病理学筛查结果为阴性，死者体内没有COVID-19相关药物或毒物，说明两位死者不存在COVID-19阳性或既往COVID-19感染史，这两名男孩死于疫苗。
 
-“在服务业方面，房屋租金保持高位，OER【业主约当租金】每年同月对比上涨0.42%，主要住所租金”加速上涨至 0.54%，这是自 1992 年 10 月以来最强劲单月涨幅，”他们补充道，“由于劳动力紧缺和高人工等因素，未来几个月租金还会有持续推高的迹象。”
+在对两位死者的心脏组织病理学检查后发现，两颗心脏均未显示出典型心肌炎，与有收缩带（contraction bands）和高嗜酸性肌细胞（hypereosinophilic myocytes）区域或有炎症的中毒性心肌病的心脏损伤不同，两个男孩的心肌损伤，外观类似于儿茶酚胺介导引起（catecholamine-mediated）的应激性（毒性）心肌病（cardiomyopathy）。
 
-同时其他经济专家指出，趋于价格平稳的新能源汽车行业是 CPI 数据中的一个大亮点
+这种心脏受损伤模式与发生在具有极端物理、化学或情绪压力身上的暂时性心肌损伤患者，与临床诊断为Takotsubo、中毒性或“压力”心肌病患者的心肌损伤表现类似，属于为应激性心肌病（Stress cardiomyopathy）。
 
-Pantheon Macroeconomics 的首席经济学家 Ian Shepherdson 在周四早上的邮件中写道：“实际上彭博社这份报告中的好消息，就是新能源车价格在连续八个月每月涨幅超过 1% 之后就没有变化了。” “这是一个重大的突破。在芯片持续增加供应的背景下，新车库存得到增加，供求平衡，价格稳定。”
+应激性心肌病是一种在没有冠状动脉疾病（coronary artery disease）或痉挛（spasm）的高儿茶酚胺状态下，儿茶酚胺导致的心脏缺血过程。这种病症也被称为“神经源性心肌损伤”（neurogenic myocardial injury）或“心脏破裂综合征”（broken heart syndrome）。
 
-同时他补充道：“新能源汽车行业占主要CPI数值 的 10%，如果汽车价格持续下降将真正会减缓从 12 月的 5.5% 到 1 月的 6.0%的整体通胀涨幅，涨幅峰值可能在 3 月份，会接近 6.5%，然后会迅速下降。
+与直接由COVID-19病毒感染引起的感染过程不同，病理学家发现，这两个死者存在不同的心脏损伤机制。
 
-美联储“将不得不用更粗的消防水喉来灭火”
+病理学家们发现，在显微镜下，可以把由SARS-COV-2病毒感染引起的心脏损伤，和因为接种COVID-19病毒疫苗导致的应激性心肌病区分开来。
 
-但此之前，许多经济学家都在呼吁美联储介入解决通胀。央行发出信号将在 3 月份停止增加其组合投资资产，然后将提高利率、增加借贷成本来抑制消费从而降低物价。
+这种疫苗后反应可能代表了免疫系统的过度旺盛免疫反应，心肌损伤是由SARS-COV-2病毒和SARS-COV2病毒感染并发症发生细胞因子风暴引起的多系统炎症综合征（multisystem inflammatory syndrome，简称MIS-C）。
 
-FWDBONDS 首席经济专家克里斯·鲁基 (Chris Rupkey)在周四的报告中写道：“随着通胀之火越烧越旺，美联储“将不得不用更大更粗的消防水喉来灭火”
+如果需要更多地了解如何具体发生的机理，需要对心脏组织进行活检，或者对COVID-19病毒患者进行尸检。
 
-他补充说。“通货膨胀还在。不单是消费品上涨，所以也不影响等待疫情结束，允许大量工人重返工作岗位来缓解供应瓶颈，”
+然而，由于没有人对COVID-19病毒患者进行心脏活检，也很少对死于COVID-19病毒的患者进行尸检，目前组织病理学界对心肌炎发生的机理知之甚少，导致除了评估症状之外，目前根本没有筛查心脏损伤的实用方法。
 
-“消费需求太强劲从而导致通胀失控，美联储唯一能做的就是抑制消费者支出。”
+这两个男孩在心脏骤停和死亡之前没有任何心肌炎症状（发烧、胸痛、心悸或呼吸困难）征兆，仅只有其中一个男孩曾反映过头痛和胃部不适，而另一个也没有。
 
-而当美联储官员在老生常谈：如何怎样加息经济发展也不会减缓等话题，“市场马上就明白这个信号就是：金融老中医准备开据减缓经济和降低消费需求的处方， 来治疗通胀疾病了。”
+时至今日，全世界已经接种10,349,631,022剂COVID-19病毒疫苗！
 
-其他权威人士也表达了类似的观点。
+感谢三位病理学家的尸检结论，带给人们深深的思考！
 
-美国银行的林和斯威伯说，“这份报告对美联储来说再次敲响了警钟。眼下的通货膨胀还继续在各行业肆虐，” “我们很乐意在3 月的FOMC会议开始时，持续强烈呼吁美联储在今年七次会议中完成加息。
+人们接种COVID-19病毒疫苗后，直到他们成为COVID-19重症患者或在运动中突然心脏骤停和死亡前，没有征兆！
 
-加息25个基点？
+未来全世界会发生什么？
 
-在周四上午的 CPI 彭博社报告发布后，美联储在3 月会议上如果选择加息 50 个基点, 市场参与者可能会押注50个基点的一半（50%）。如果押中，这将标志着自 2000 年以来美联储首次加息超过 25 个基点。
+參考資料：
 
-独立顾问联盟首席投资官克里斯扎卡雷利周四在一封电子邮件中写道：美联储的主要目标，就是保证最大就业和价格稳定，所以他们现在需要采取行动。估计行动方式包括——提高利率和缩减资产负债表——但这可能还不能驯服眼下我们正经历的通胀类型，这就是为什么他们现在处于非常艰难的境地，因为市场风险远高于目前美联储对市场的拯救行动”。
+[COVID-19 Dashboard by the Center for Systems Science and Engineering (CSSE) at Johns Hopkins University (JHU)](https://www.arcgis.com/apps/dashboards/bda7594740fd40299423467b48e9ecf6)
 
-不过，虽然许多经济专家认同在目前大通胀背景下,美联储值得采取更加鹰派强硬手段，但有小部分经济专家暗示，美联储采取立刻大幅加息仍然不太可能。
+[Autopsy Histopathologic Cardiac Findings in Two Adolescents Following the Second COVID-19 Vaccine Dose](https://meridian.allenpress.com/aplm/article/doi/10.5858/arpa.2021-0435-SA/477788/Autopsy-Histopathologic-Cardiac-Findings-in-Two)
 
-MKM Partners 首席经济学家迈克尔·达达（Michael Darda）周四告诉雅虎财经直播：我认为，根据去年这些数据和经济表现，你当然可以提出加息50 个 [基点] 的理由。”但美联储也可能有不实施的理由，因为如果他们做了，在美联储后续的每次会议上，每次讨论都必须建立在市场预期加息50基点的基础上，估计他们不想迈出这一步来冒险，免得在未来遇到麻烦后又不得不反转。
+[Autopsies Show: Vaccinating Teens for COVID Is Literally ‘Heartbreaking’](https://childrenshealthdefense.org/defender/autopsies-vaccinating-teens-covid-heartbreaking/)
 
-他还补充道：“预计今年他们可能会逐步实施，美联储还有七次会议，如果他们认为有必要可以在随后的每次会议讨论加息 25 个基点，” “当然他们也可以加快随后的加息步伐。”
-
-原文链接：
-[https://finance.yahoo.com/news/what-economists-are-saying-as-inflation-soars-by-the-most-in-40-years-173830951.html](https://finance.yahoo.com/news/what-economists-are-saying-as-inflation-soars-by-the-most-in-40-years-173830951.html)
-
-素材采编：妙喜小油锅
-校对：妙喜小油锅
-发布：爱放飞
+編輯：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上傳：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 
