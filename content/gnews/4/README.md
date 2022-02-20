@@ -2,55 +2,22 @@
 ---
 
 
-## 澳洲朝野抨击中共以雷射光照射澳军机的举动
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2035750/)
+## 樱花FM|日本国内现有4种以上Omicron变异株流行
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2035762/)
 
-作者：香草山医疗部 — 云豹
+音频：东京樱花团/战友520
+![](https://lh5.googleusercontent.com/sUWdWknR2dTgAqt_bPnY-o4U8VHWzbIDfVQvdNX0Eo0HaxYvc2Dyb6Ddn7Eb83oBz80Ei10x-l8OtkfJ_sjl2mUh4k42MYNNSllGw3W1tp9XlQwD5Q9RJCpR6zdfWO0cqP0hLgQw)
+到15日，日本国立传染病研究所的分析显示，目前在日本流行的中共病毒（新冠病毒Covid-19）“Omicron株”的变异株至少有四种，每一种都可能通过不同的途径流入日本。其中三个已经在全国蔓延，似乎这导致了感染人数的迅速增加。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-3.jpg)
+传染病研究所分析了截至1月17日在日本登记的2650例病例的所有遗传信息（基因组）。结果发现，从去年12月中旬开始，目前流行的Omicron毒株“BA.1”毒株至少有4种，而且每一种似乎都是通过不同的途径从海外进入的。
 
+12月下旬开始在关西地区广泛检测到一种，与欧洲接近，但目前没有扩大。传染病研究所指出，“认为是早期发现和针对聚集性（感染人群）的措施得到控制所致”。在其余三种类型中，一种目前是主流，它与美国最常见的一种接近或相似。另一株在九州确认后传播到关东等地区，与美国、英国检测到的菌株接近或相同。最后一个菌株是在关东和东北地区的传播，这与在欧洲和亚洲经常发现的感染相近。
 
+文字版原文：[日本国内现有4种以上Omicron变异株流行 – GNEWS](https://gnews.org/zh-hans/2007876/)
 
-
-
-
-
-
-
-当地时间2月20日，澳州总理莫里森及最大在野党工党领袖艾班尼斯个自发表声明，强烈谴责中共军舰以激光束照射澳洲军机的挑衅举动。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/f56bde5e10faa84a.jpg)
-
-此次事件发生于17日，中共军舰于澳洲专属经济海域内，在没有受到任何挑衅的情况下，使用激光束照射一架即将降落的澳洲P-8A海神巡逻机，威胁到该机及人员的安全。
-
-莫里森表示澳洲绝不接受中共这种恐吓举动。并要求中共对此次的挑衅行为提出解释。澳洲国防部长杜登表示，澳洲必须以强硬姿态来回应中共的胁迫、霸凌和恐吓。艾班尼斯则表示，中共的行为越来越具侵略性。澳洲政府必需对中共发出最强烈的谴责，而且不论任何人来领导澳洲，都需要面对来自于中共的挑战。
-
-参考连接：[https://www.cna.com.tw/news/aopl/202202200046.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/aopl/202202200046.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-
-2022年2月20日
-
-（本文为作者观点，不代表G NEWS立场）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-7.jpg)
-
-*编辑 /校对*：*Yuki*jiang
-
-*发稿：Yuki*jiang
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

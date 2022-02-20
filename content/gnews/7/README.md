@@ -2,16 +2,18 @@
 ---
 
 
-## 樱花FM|乌克兰局势严峻 普通民众加入御敌行列
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2035724/)
+## 樱花FM|中日财经爆:日本政府将针对产业链中人权问题专项立法
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2035759/)
 
 音频：东京樱花团/战友520
-![](https://lh3.googleusercontent.com/KEbimnjplazDDadFUpvrKH7YJkJRofhb94QA_-5r-25RBRVPRYindcnIyHq5FDELA2FPAMxlS8E7DclrwrvT14jmZnh18XfwyzdAQPlG-ecrWQZQKlR4-ACBA-rhEpt-gYBBkspo)
-随着俄罗斯军队在边境附近集结，紧张局势加剧，乌克兰政府敦促国民保持冷静，同时呼吁更多民众加入由民间志愿者组成的国土防御部队。与前线的正规军不同，这支部队的主要任务是保卫当地社区。现场申请入伍的一位乌克兰律师称，我们参观了每周末举行的军训现场。 并当场庄严宣誓：我真诚地向乌克兰人民郑重承诺，将捍卫乌克兰，维护祖国主权。我也将严守军事机密。我发誓，将为了祖国人民的利益履行我的军事职责。我发誓，永远不会背叛乌克兰人民。在距离首都基辅40分钟车程的一个山林里，一位刚刚加入国土防御部队的律师，宣读了他的庄严誓言。
+![](https://lh4.googleusercontent.com/7YFwvjhUebknh5F4unbzOPxssjK6-GLxjfDX_o61igPYs6uzAxNjN_afjXKuXIy6xdTs9LWUz5OxBqn3gDgG3Cb7EnHgaMiTqjmN1e3OGMBZSjz4es7d6TzHYmm1kUe7PqiI9HUI)
+政府15日宣布，将尽快制定指导方针，防止日本企业合作方等存在侵犯人权的行为。
 
-这则报道让笔者不由自主地想起了台湾同胞，自助者天助，面对入侵，唯有奋起反抗，方能得天助。
+经济产业大臣萩生田光一在同日内阁会议结束后的记者会上宣布，将在本月成立指导方针研究小组。该方针将涵盖整个行业，明确如何验证在产品制造和分销过程等供应链中是否存在强迫劳动或童工，并将积极讨论未来立法的可能性。
 
-文字版原文：[乌克兰局势严峻 普通民众加入御敌行列 – GNEWS](https://gnews.org/zh-hans/2006773/)
+美国和欧洲政府正在采取严格措施来应对侵犯人权的风险，如果日本政府行动迟缓，日本公司很有可能被排除在贸易伙伴之外。萩生田光一氏表示，日本政府及企业应向世界明确表态，将按照国际标准采取对应措施。同时表示，日本政府将考虑在国际合作的基础上积极讨论专项立法。
+
+文字版原文：[中日财经爆┃日本政府将针对产业链中人权问题专项立法 – GNEWS](https://gnews.org/zh-hans/2006664/)
 
 *编辑：东京樱花团/asket
 发布：东京樱花团/平安卿卿*
