@@ -2,34 +2,30 @@
 ---
 
 
-## 重磅炸弹， Spotify和Moderna的所有者为同一伙人
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2033923/)
+## 有声|共和党人承诺将不遗余力溯源中共病毒
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2034079/)
 
-**编译：武松**
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%96%B0-9.png)
+日前，美国共和党人表示，如果能够在1月份重新夺回国会，他们将对全球中共病毒的起因展开全面调查。
 
-杰出的科学家和mRNA技术的共同发明者罗伯特·马龙博士，在本周接受福克斯新闻主持人塔克·卡尔森的采访时投下了新的重磅炸弹，据其透露，Spotify 平台的最高所有者也是疫苗制造商 Moderna 的最高所有者。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/460CA3B0-E539-4463-A8CD-6C1740F29047.jpeg)图片来源：https://www.naturalnews.com
-据了解，Moderna的最大股东是 Baillie Gifford and Company，该公司拥有该公司近4600万股股票，价值超过116亿美元。同时Baillie Gifford and Company也是Spotify的最大股东，持有该公司超过2200万股股票，价值超过220亿美元。
+此前共和党人一直呼吁调查此事，以了解更多关于中共武汉病毒研究所正在从事的研究。华盛顿的能源和商业研究众议员表示将会不遗余力调查此事。目前科学家已经取得有力证据证明中共病毒起源于武汉病毒实验室，但中共政府不合作处处阻碍调查，并且否认实验室泄漏的说法。
 
-Baillie Gifford and Company是一家成立于苏格兰的全球资产管理基金，总部位于纽约和伦敦，它管理着近五万亿美元的投资组合。据该公司网站得到信息，Baillie Gifford 由其47位合伙人全资拥有，同时他们宣称致力于保持独立，通过每一代合作伙伴，始终专注于为客户创造卓越的长期投资成果，这一直是该公司自身发展的基石。但是这47为合伙人究竟是何许人也，暂时未找到相关内容。
+美国共和党人认为可以从一家中共背景的纽约生态联盟公司查起，该公司得到了美国NIH、国防部、国际开发署、国家科学基金会、农业部以及诸多机构的大量注资，利用美国纳税人的钱在武汉病毒研究所进行了危险的中共病毒功能增强研究。此项协议是经NIH福奇的批准下进行的，但福奇否认了这一点。福奇坚称中共病毒源于自然，极力帮助中共掩盖罪证，已经对美国国家安全和外交造成了重大影响。
 
-罗伯特·马龙最后表示，金钱和权力是围绕他、罗根和疫苗所有“争议”的根源，不是“科学”。
+文字版原文：[共和党人承诺将不遗余力溯源中共病毒](https://gnews.org/zh-hans/2030172/)
 
-**评：持续2年多的中共病毒和疫苗风波席卷全球，无数的普通民众收到巨大伤害，甚至死亡。这些草根就是全球黑暗势力的实验对象和玩物，终究原因就是金钱和权力在作怪，是人类大重启的一部分。可喜的是在新中国联邦及郭文贵先生的全力呼吁下，全世界正在快速醒来，认识到病毒和疫苗的真相，全球各地爆发的抗议及游行活动，最终必将黑暗势力斩草除根，人类将迎来更美好的未来。**
+音频处理/发稿：Daxia
 
-**原文链接：**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-[Dr. Robert Malone drops bomb, reveals top owner of Spotify is also top owner of COVID vaccine maker Moderna](https://www.naturalnews.com/2022-02-15-dr-robert-malone-reveals-top-owner-spotify-also-top-owner-of-moderna.html)
-
-编辑：LILY
-
-**发布：歪桑**
-
-20220219
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3343513D-87C5-433D-88D8-2DE98D14FF13.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,37 +2,24 @@
 ---
 
 
-## 新的仿生眼让盲人重见光明
-` 科海拾星` [轉載自GNews](https://gnews.org/zh-hans/2033763/)
+## 中日财经爆┃日本欢迎台湾加入CPTPP　并盼重启“台日经济伙伴委员会”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2033858/)
 
-撰稿:纽约香草山健身部—Ivy001
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-技术的进步，一直在重新定义眼科。
+撰稿：东京樱花团/知了知了
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-92.png)[图片来源](https://www.morethanshipping.com/what-is-cptpp-and-how-will-it-shape-the-future-of-the-global-economy/)
+台湾经济部指出，台日经济贸易会议昨（18）日举办闭幕式，除了日方对台湾申请加入CPTPP表达欢迎外，会议中，日方也表达了希望重新启动已经中断8年的“台日经济伙伴委员会”（EPC）。台方对此表达肯定，也呼吁尽速重启EPC。
 
-新的仿生眼是一种电子修复装置，通过手术植入人眼，以便让视网膜受到严重损害的人将环境中的光影，转变为大脑可以处理的脉冲。该仿生眼包括一个外部摄像头和发射器以及一个内部微芯片。摄像头安装在一副眼镜上，它在发射高频无线电波之前帮助形成环境的视觉刺激。新的仿生眼技术旨在帮助盲人看到东西。
+经济部说，在确保国人健康的前提下，台湾持续解决困难的贸易问题，从美猪议题到日本食品，也向世界展现，台湾遵守国际规范、稳健走向国际的决心与能力。
 
-这种小型无线设备的运作方式是能够绕过有问题的视网膜细胞，并 “触发 “那些仍然能够工作的细胞。
+不仅台湾人以公投表达肯定，同时，在国际上得到正面的回响。在台美TIFA复谈之后，日方希望重启中断8年的台日EPC，也是同样的例子。将来，台日双方可以继续在产业、贸易和投资发展，以及CPTPP等议题上共同努力，深化台日友好的合作关系。
 
-在2021年对绵羊进行成功测试后，现在已经申请开始在人类患者身上进行测试。负责这项研究的悉尼大学生物医学工程学院的生物医学工程师Samuel Eggenberger说，“当我们在绵羊身上进行测试时，设备周围的生物组织没有出现排异的反应，我们预计它可以保持多年。”
+信息来源：
 
-面对高科技智能可植入设备在医疗保健和生物医学领域大量涌现，一部分学者表示担忧。他们认为，这些设备不像现成的产品或服务，使用者可以实际拥有或控制。相反，则依赖于软件升级、特殊的方法和部件，以及商业驱动力和营利性企业的成功或失败。 “自主权、尊严和责任”是高科技智能可植入设备无法回避的伦理问题。
+[日本歡迎台灣加入CPTPP　並盼重啟中斷8年的「台日經濟夥伴委員會」](https://finance.ettoday.net/news/2192499)
 
-[https://www.news-journal.com/bionic-eye-technology-aims-to-help-blind-people-see/article\_c35037c7-c50d-5d51-9676-f0dcea65464f.html https://www.bbc.com/news/technology-60416058](//www.bbc.com/news/technology-60416058)
-
-编辑/校对:文真
-
-发稿：菩提树
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2%E6%9C%88-2.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,38 +2,23 @@
 ---
 
 
-## 有声|俄乌关系紧张之际，美国向德国部署F35战机
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2034185/)
+## 20220218 郭文贵大直播 ：共产党不允许别人使用去中心货币 试图让世界的人使用中心化数字人民币
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2034249/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月16日美国空军预备役司令部AFRC在一份声明中宣布，美国向德国部署了战斗机。此次部署得到了德国政府的充分合作。美国认为此举加强了对北约盟国战争防御的支持。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8-27.jpg)
-本次抵达德国斯潘达乐母空军基地的，包含美军若干架F35战斗机，以及现役和后备役战斗机联队飞行员、维护人员和辅助人员；此外，还有8架F15E战斗机和六架加油机。
-
-本月早些时候，因俄罗斯即将入侵乌克兰的威胁，美国五角大楼宣布，它将向东欧盟国——德国、波兰、罗马尼亚派遣3000名士兵。本月中旬，俄罗斯并未从乌克兰边境撤军，战争局势愈发紧张。2月17日，在俄罗斯与乌克兰紧张的双边关系高峰期，俄罗斯驱逐了美国驻莫斯科副大使巴特·戈尔曼。之后，美国对俄罗斯可能入侵乌克兰发出了越来越详细的警告。
+作者：东京樱花团小视频组
 
 
 
-文字版原文：[俄乌关系紧张之际，美国向德国部署F35战机](https://gnews.org/zh-hans/2031595/)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+校对：东京樱花团小视频组
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+编辑发布：东京樱花团小视频组
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,34 +2,26 @@
 ---
 
 
-## 勇敢时刻：活动人士扯下北京公司拥有的塔斯马尼亚矿场的中共国国旗——澳大利亚资源不应被种族灭绝独裁者接管
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2033930/)
+## 有声|新加坡持续放宽入境防疫措施
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2034087/)
 
-翻译：波士顿五月花  小南瓜
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-37.png)
+新加坡将所有国家及地区依风险程度分成4类，对风险程度最低的第一类国家及地区单边开放，来自台湾、中共国、香港及澳门的旅客入境后不需隔离，只要在机场接受PCR检测，结果呈阴性即可自由活动
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Picture2-8.jpg)http://dailymail.co.uk
-Gutsy moment activist rips down Chinese flag at Tasmanian mine owned by Beijing company – as he says ‘genocidal dictatorships’ shouldn’t be allowed to take over Australian resources
+文字版原文：[新加坡持续放宽入境防疫措施](https://gnews.org/zh-hans/2029401/)
 
-上周四，澳大利亚一位勇敢的人权活动人士杜鲁‧帕夫罗扯下了一面飘扬于洛斯贝里的塔斯马尼亚矿业公司的中共国国旗，以抗议中共国的种族灭绝和独裁。
+音频处理/发稿：Daxia
 
-这家被北京控股67.8%的澳洲矿业公司股份计划清理285公顷的雨林和绿色植被地带，为修建140公顷的矿渣填埋坝让路。墨尔本矿业公司因其与中共及其采矿项目的关联而受到批评。该项目会破坏生态环境，同时，与中共有所关联。因此，激怒了人权活动人士。中共被指责系统性关押和迫害维吾尔族人(大约有200万维吾尔族人被关押在1400个集中营)。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-一位旁观者拍摄到了这一幕：杜鲁‧帕夫罗先生靠近旗杆， 降下了旗子并卷在手里，边跑边笑。
-
-因未能提供足够的资源保护生态环境和澳洲独特的生物群落，矿业公司一直备受指责。
-
-西藏人权活动者和新南威尔士参议员候选人金泽姆‧杜翁德认为：塔斯马尼亚的矿业开采会威胁野生动物的生存。他对澳大利亚报表示：“看到中共国政府到这里采矿，塔斯马尼亚的野生动物被破坏，绝对令人心碎。我到这里是要警告塔斯马尼亚人，我们需要把中共国的矿产公司赶出塔金地区(位于塔斯马尼亚西部)。 这是中共国对我们森林资源的渗透。 中共已经渗透了我们的政治、大学、甚至体育，我把此项目称为中共入侵澳洲的森林。”
-
-而澳洲矿业公司则无视批评，将其视为”排外心态”作祟。
-
-新闻来源: [Gutsy moment activist rips down Chinese flag at Tasmanian mine owned by Beijing company – as he says ‘genocidal dictatorships’ shouldn’t be allowed to take over Australian resources](https://www.dailymail.co.uk/news/article-10504523/MMG-Rosebery-flag-taken-Tasmania-site-Chinese-Communist-Party-links.html)
-
-* * *
-
-*素材来源：小南瓜*
-
-*编辑**& 发布：jamie(文胤)*
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
