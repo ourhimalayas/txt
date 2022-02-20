@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金：国际政治和个人的关系&#8211;扯淡的
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2038041/)
+## 七哥金句：解决性问题，中日的差别
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2038064/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句4-1-2-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句2.001-4.jpeg)
 整理：雅典娜农场
 发布：枫叶红了
 

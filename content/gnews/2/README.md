@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：灭共难，但是必须灭
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2038105/)
+## 七哥金句：七哥自省关于当年对被绑架女性无作为
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2038114/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句4.001-4.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句5-1-3-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句6-1-1-scaled.jpg)
 整理：雅典娜农场
 发布：枫叶红了
 

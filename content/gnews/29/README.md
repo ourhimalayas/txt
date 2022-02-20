@@ -2,19 +2,28 @@
 ---
 
 
-## 美国阿拉斯加 🇺🇸车队正在集结&#8230;&#8230;到处都在发生 🔥使纸牌屋崩溃
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2037666/)
+## 有声|英喜农场开展为中共送葬行动
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2037671/)
 
-**这方加拿大卡车司机为自由而战，那方美国卡车司机也集结起来啦！**在全球最北的地方，在全球最冷的季节，在全球最黑暗的时刻 ……加拿大卡车司机從西部出發，向東横跨加拿大10天多的成程，集聚首都渥太华，为自由而战！感恩上帝！北美两大兄弟之国，在自由和民主即將被剥夺殆盡的时候，美國阿拉斯加司機也來了！老百姓以生命的代价，为自由而战！中国人，也有这样一拨人，那就是新中国联邦人！為自由而戰！Take down CCP!
+配音：香草山巡管部– 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-10.png)
+当地时间2月18日，英国伦敦喜庄园战鹰影视频道发布信息，报道了新中国联邦英喜农场在2022年中国农历新年期间，开展的为中共送葬行动。
 
-作者：东京樱花团视频小组
+英喜农场的战友首先驾驶战车，并装载为“习近平”定制的棺材和遗像，在伦敦市区进行车游。随后，将中共四位匪首——习近平，王岐山，江泽民，孟建柱的遗像放置在马克思雕像前，取意送他们去见共产主义的先祖马克思。
 
-校对：东京樱花团视频小组
+文字版原文：[英喜农场开展为中共送葬行动](https://gnews.org/zh-hans/2034401/)
 
-编辑发布：东京樱花团视频小组
+音频处理/发稿：Daxia
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
