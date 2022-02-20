@@ -2,24 +2,23 @@
 ---
 
 
-## 北美最大葬仪服务公司SCI去年获利表现优异
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2034222/)
+## 香港最新疫情：20日初步确诊达7400例，再有15名病人离世！
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2034229/)
 
-撰稿：Sam Cho
+据香港01新闻报道，较昨日（19日）中共病毒疫情新增6063例确诊个案，20日中共病毒感染者初步确诊达7400例，再有15名病人因中共病毒离世。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/021902.jpg)图片来源：Karolina Grabowska摄/Pexels
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-304.jpg)资料来源 ：卫生防护中心
 
-北美最大葬仪服务公司Service Corporation International (SCI)去年（2021）第四季度向投资者交出亮眼的获利成绩，股东将在三月底收到每股25毛股息回报，高出前次的9%。
+简评：新冠病毒是中共是为祸港准备的，港共政府自然会无视疫苗的灾难的发生，任期确诊病例不断攀升，而不去正视真正有效的预防与治疗的方法。新冠疫情与疫苗灾难下，港人想要躲过大劫难唯有自救，自救的方式请加入新中国联邦！
 
-根据公司的报告，受惠于增多的殡葬需求，SCI去年获利表现，打败市场预期，甚至优于大盘走势。SCI从原来的一间家庭葬仪服务社，经过多年经营，透过并购，成为北美最大的葬仪服务公司，拥有数百座火葬场。展望未来，SCI表示仍将持续整并业务，开拓市场，以提升获利。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1821.png)图为SCI持股回报曲线
-两年前当七哥透过直播向世人示警新冠病毒危害，并进一步颇析中国共产党，如何布局，靠着疫情爆发延烧，做起死人生意，发瘟疫财。其中，特别点名中共国国家副主席王岐山的家族，已经掌控了全中国的火葬场生意，让人难以置信的惊人爆料。
+新闻来源：[香港01](https://www.hk01.com/%E7%A4%BE%E6%9C%83%E6%96%B0%E8%81%9E/737938/%E6%9C%80%E6%96%B0%E7%96%AB%E6%83%85-%E5%88%9D%E6%AD%A5%E7%A2%BA%E8%A8%BA%E9%81%947400%E5%AE%97-%E6%B0%A3%E6%BA%AB%E6%9C%80%E4%BD%8E8%E5%BA%A6%E5%AF%92%E5%86%B7%E6%9C%89%E9%9B%A8)
 
-中共国里相关资讯获取有限，旁人无从查证，但两年后，由美国公司公开的财务报表讯息里，我们明确看到到了火葬场生意在过去这段时间里，确实取得丰硕的获利。跟着七哥走，成为有币无苗族，保命保财；跟着共产党，就只能走进火葬场。
+撰稿/发布：一叶知秋
 
-新闻来源：[Service Corporation (SCI) Rewards Investors With Dividend Hike](https://au.news.yahoo.com/corporation-sci-rewards-investors-dividend-123912204.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 
