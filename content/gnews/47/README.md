@@ -2,34 +2,32 @@
 ---
 
 
-## 2022/02/18 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2035358/)
+## 躺平币将首先惠顾爆料革命战友
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2035379/)
 
-1. 2月17日，江苏苏州阳山花苑小区核酸检测采集拥挤现场实拍。
-2. 2月15日，河南南阳陆营镇。学校要求学生家长开学前统一提交学生核酸检测阴性报告，导致医院采集现场拥挤。中共政府的形式主义防疫方法。
-3. 2月17日，上海市东方医院南院所有科室因为疫情原因而停诊。
-4. 2月16日。香港受疫情影响，生活物资供应链中断，导致香港境内物价奇高。
-5. 2月15日，湖北大冶市，一市民在公园突发倒地抽搐，无人敢上前救助。
-6. 2月15日，湖南株洲一名出租车司机被路人发现猝死在其出租车内。
-7. 2月16日，河南新乡原阳县中心医院晚上放舞曲“灯光秀“，被网友吐槽像ktv。
-8. 2月17日，河南洛阳 ，环卫老大爷一早上班，浑身结满了冰霜。
-9. 2月16日，货车司机送货途中为防止睡着，拼命抽打自己，同车妻子心疼拍下视频。
-10. 2月16日，安徽六安。夫妻春节后返程上班不舍与孩子分别，丈夫一边开车一边流泪。
-11. 年轻妈妈丢下婴儿欲轻生，幸被送外卖小哥路过救下。
-12. 中共国堪忧的房地产质量，工人也开始质疑建筑项目的质量并拍下现场视频，希望从专家那里得到解释。
+作者：纽约磐石农场 在远方
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+在2月18日的大直播中，郭文贵先生透露，即将在今年六月上市的躺平币，将首先保障爆料革命战友。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-20-at-9.49.20-PM.png)
+躺平币将分为几轮发行，在政策上将首先保证向爆料革命战友倾斜，价格一定最便宜。郭先生告诉投资机构，所有的义工、法治基金捐款者、GClubs会员、GTV投资者和拥有喜币的战友，必须优先保障其利益，其中以法治基金捐款者为第一考量。
 
+郭先生介绍，躺平币第一轮基本是送给义工战友的，尤其是帮助国内战友转款的义工。在躺平币的给予上，要跟法制基金捐款的战友持平，其次就是推广HPay的战友，GClubs会员和GTV投资者。
 
-* * *
+参考资料：[20220218文贵大直播：躺平币前几波最便宜的一定是属于战友的](https://gnews.org/zh-hans/2030480/)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-3.png)
 
+编辑：静言
+总编：Zion文恩
+校正/发稿：我不在这里
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

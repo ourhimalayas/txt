@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：毁灭共党最有利的武器之一
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2038372/)
+## 七哥金句：新中国联邦爆料革命的魅力
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2038396/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句7-1-1-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七格金句4.001.jpeg)
 整理：雅典娜农场
 发布：枫叶红了
 
