@@ -2,24 +2,32 @@
 ---
 
 
-## 中日财经爆┃巴菲特投资支付公司巨亏，Hpay才是王者
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2036924/)
+## 疫情延烧致港首“选举”被迫延期
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2037125/)
 
-撰稿：东京樱花团｜知了知了
-![](https://lh3.googleusercontent.com/LToN5hbFbHpcIhjvIGAZqynOeY3qFJ64F-PWawMEjj9RF7gyNIVi-AlMnP4yQVuu9PdnU2dMwsWeh95U_j1fIV0YM__n7hBiNcObMklYqeHq5ujNBSPxtGy5McCj3D9UXfggTm59)[*图片来源*](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%B8%8A%E6%B5%B7%E5%9B%BD%E8%B5%84%E5%A4%A7%E4%B8%BE%E8%BF%9B%E5%86%9B%E5%85%83%E5%AE%87%E5%AE%99%EF%BC%8C%E9%9A%BE%E9%81%93%E7%94%A8Hpay%E8%BF%9B%E8%A1%8C%E6%94%AF%E4%BB%98%EF%BC%9F.png)
-巴菲特投资的印度最大支付公司、被称为“印度版支付宝”的Paytm母公司One 97 Communications的股价为833.85美元，刷新上市以来最低，较IPO发行价暴跌逾61%。除Paytm之外，巴菲特还投资了巴西支付公司StoneCo，巴西领先的金融技术解决方案提供商，周五收10.71美元，也较每股24美元的IPO发行价跌去55%，创上市以来最低。
+作者：纽约磐石农场—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据台媒消息，因中共病毒疫情蔓延，当地时间2月18日晚间，香港行政长官林郑月娥宣布批准引用紧急条例，将行政长官“选举”推迟至5月8日举行。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-20-上午9.22.46.png)
+据悉，香港18日新增3629例，初步阳性案例7600例，这已是连续第三天，两项数字合计超过一万例。
 
-而全球最大的支付公司Paypal也面临同样的境况，股价收于103.65美元，较年内最高点暴跌62.15%。
+林郑表示，目前香港疫情是两年来最严重的时期，形势相当危急，港共政府要集中力量应对。延期选举也是中共国家主席习近平授意的，看来港共必须将控制疫情作为当前压倒一切的政治任务来做。
 
-传统数字支付公司的股票暴跌，重要原因是交易具有诸多限制，交易费用高昂，不适应区块链时代的交易发展。主要体现在中心化支付、手续费高、交易受监管、支付有条件、收款有限制、收款有冻结期、有汇损、账户解封手续费高等。
+参考链接：[林鄭月娥宣布香港特首選舉延至5月8日舉行](https://cn.rti.org.tw/news/view/id/2124933)
 
-而喜联储的Hpay解决了中心化数字支付存在的所有问题，无手续费、无条件交易支付、无税收、及时到账、不限额度、私密性高等。真正做到了，我的钱我做主，你的货你说了算，交易费用降为零，这会最大限度释放各种生产力，激发个体创新精神。Hpay具有取代传统数字支付的一切优势，可预见股神巴菲特的数字支付系统投资最终将竹篮打水一场空。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-信息来源：[**股神巴菲特首次押注印度赔5成  另一笔同类投资也很惨**](https://finance.ettoday.net/news/2192846)
+总编：Zion文恩
+编辑：静言
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

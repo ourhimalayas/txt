@@ -2,34 +2,16 @@
 ---
 
 
-## 中共军舰用激光照射澳洲巡逻机 此军事行为或危及生命
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2036255/)
+## 中共体制是政治病毒、人权病毒
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2036561/)
 
-**作者:  **青衣
-![](https://assets.gnews.org/wp-content/uploads/2022/02/5-39.jpg)
-图为 P-8A资料图（图片来自网络）
+文贵大直播20220220
 
-澳大利亚的一架海上巡逻机日前在飞行时遭到激光照射攻击。据探测，该激光来自一艘中共的海军军舰。
+撰稿：青山（英喜）
 
-据《大纪元》2月19日报道，澳大利亚一架P-8A“波塞冬”（Poseidon）海上巡逻机在本国北部海域飞行时，遭到来自一艘中共军舰的明晃晃的激光照射攻击。澳大利亚国防部在一份声明中表示，“用激光照射飞机是严重的安全事件，该行为有可能危及生命” 。强烈谴责这种“不专业及不安全的军事行为”。
-
-澳洲国防部进一步指出，事件发生时，该艘中共军舰正与另一艘中共军舰一起经过阿拉弗拉海（Arafura Sea）向东航行。
-
-此前，澳洲军机也曾遭到过来自中共国的激光袭击。澳大利亚广播公司（ABC）的一份报告显示，2019年，澳洲飞行员在南海上空进行军事演习时，曾遭遇中共海上民兵发射的一系列激光攻击，致使飞行员被迫在军舰上降落，并接受体检。
-
-除了澳洲之外，美国军机也同样多次遭到过中共国的激光攻击。2020年2月17日，一艘中共海军驱逐舰向正在国际水域上空飞行的美国海军P-8A“波塞冬”海上巡逻机进行激光照射。美国太平洋舰队当时也同样表示，这种行为“不专业、不安全”。
-
-据了解，当时那架美军P-8A巡逻机上的传感器检测到中共驱逐舰使用的是肉眼看不见的激光，而武器级激光有可能对服役军人造成严重伤害，并可能损坏各种船舶和飞机系统。
-
-此外，在2018年5月，美国五角大楼官员还曾披露，中共驻非洲吉布提军事人员使用高功率激光束瞄准美国飞行员，导致两名美国飞行员受轻伤。
-
-中共屡次用激光作为武器对外国军机做出一系列的危险行为，恐怕已不仅仅只是“不专业、不安全”这么简单了，这完全是充满挑衅、极其危险的攻击性军事行为。然而，如此令人发指的恐怖主义行为一而再、再而三的发生，美欧国家竟然无法有效制止，中共反而变本加厉，这让人感到不可思议。
-
-新闻链接：
-
-[https://www.epochtimes.com/gb/22/2/19/n13589593.htm](https://www.epochtimes.com/gb/22/2/19/n13589593.htm)
-
-* * *
+美工：Sotres（香草山）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片1-30.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片2-32.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片3-28.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片4-29.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片5-28.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片6-29.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片7-19.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片8-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片9-2.png)
+*发布：Theodosia*
 
  
 

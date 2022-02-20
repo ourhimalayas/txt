@@ -2,33 +2,38 @@
 ---
 
 
-## 樱花FM┃五角大楼称俄罗斯在乌克兰边境有增兵
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2036801/)
+## 有声|北京冬奥会加剧韩国反华情绪
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2037083/)
 
-音频：东京樱花团/战友520
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+日前，韩国保守倾向公民团体，在位于首尔的中共国驻韩国大使馆前举行示威活动，并损毁中共国国旗，以抗议北京冬奥短道速滑项目出现的“偏颇判罚”。 韩东大学教授称，北京冬奥引发的“争议”或会点燃韩国民众的反华情绪。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/12-25.png)
+韩国媒体报导，一项国民好感度调查显示，好感度满分10分情况下，中共国只获2.6分，略高于2.42分的朝鲜。其中对中共国“完全没有好感”并打0分的人占30.5%。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/五角大楼称俄罗斯在乌克兰边境有增兵.png)
-
-2月15日时事通信在线消息，美国国防部发言人约翰·柯比14日表示，俄罗斯上周末在乌克兰边境附近增加了兵力。
-
-柯比告诉CNN，俄罗斯总统普京上周末继续在乌克兰的边境和白俄罗斯增兵，部队人数 “远远超过10万人”。他指出，他们正在动员全方位的装甲车、步兵、特种作战、网络攻击和防空能力。
-
-美国警告说，俄罗斯可能很快就会入侵乌克兰。西方国家已表示准备对该国实施大规模经济制裁作为反制措施，紧张局势正在加剧。
-
-俄罗斯国防部长绍伊古当天在会见普京时宣布，他将结束在该国和白俄罗斯正在进行的一些大规模军事演习。其它演习还将继续进行。
-
-俄罗斯外交部长拉夫罗夫也告诉普京，他可以与西方国家就安全问题达成协议，暗示可以做出让步。
-
-文字版原文：
+郭文贵先生在多次大直播中提到，2022年最重要的事情之一，就是防止世界的排华事件。每一个在海外的华人都要保护好自己，传播真相，告诉身边的人，中国人不等于中共，将中共对中国人的伤害降到最低。
 
 
-| [五角大楼称俄罗斯在乌克兰边境有增兵 – GNEWS](https://gnews.org/zh-hans/2007887/) |
-| --- |
 
+文字版原文：[北京冬奥会加剧韩国反华情绪](https://gnews.org/zh-hans/2031614/)
 
-*编辑：东京樱花团/asket   
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码-1.jpg)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

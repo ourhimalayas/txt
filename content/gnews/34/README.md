@@ -2,61 +2,29 @@
 ---
 
 
-## 新西兰Covid-19住院患者几乎都是完全疫苗接种者
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2035834/)
+## 秘翻在线：日媒报道说中共国老百姓的肉体冻出了奥运蓝
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2036339/)
 
-编译：wenwu
+撰稿：待命（文暁）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/画像1-28.png)（图片源自本文链接）
+2月20日Q电视新闻消息：臭名昭著的北京严重污染的空气被奥运会期间的蓝天掩盖了。为了实现这一 “奥运蓝”，中共国政府进行了精心的准备，并采取了防止空气污染的措施。 然而，在一些地区，人们被下令不许烧木材，因为这会污染空气，一些市民不得不忍受寒冷。我们采访了这一实况。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1859.png)dailyexpose.uk
+之前很担心能否会有蔚蓝天空，但最后整个奥运期间，除了下雪的那几天，天空都是蓝色的。
 
-新西兰卫生部于周三（16日）发布了一份新闻报告，其中包含了按疫苗接种情况划分的 Covid-19 住院人数的信息。他们在报告中(如下图1)确认，在北部地区目前的住院人数中，未接种疫苗的人口占2人，而完全接种疫苗的人口占23人。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1860.png)
-因此，我们回顾了新西兰卫生部以前发布的新闻报道，以描绘出目前据称席卷全国的Covid-19大流行病的情况。
+蔚蓝的天空是奥运会很好的点缀，吸引了来自世界各地的关注。但同时，为实现 “奥运蓝 “而采取的一些措施被批评为 “太过分了”。
 
-以下是我们分析的报告，可以追溯到在第25次的1月22日：
+自去年11月以来，在毗邻北京的河北省山海关地区，当地政府陆续将居民的 “炉灶”封起来。 当我们访问该地区时，发现许多居民家里的”炉灶”被用混凝土或类似橡胶的材料封住，使其无法使用。特别是在中共国的东北乡下，这些”炉灶 “也被用作采暖，所以许多居民不得不忍受寒冷。
 
-- [*https://www.health.govt.nz/news-media/news-items/record-day-boosters-and-paediatric-doses-25-community-cases-10-hospital*](https://www.health.govt.nz/news-media/news-items/record-day-boosters-and-paediatric-doses-25-community-cases-10-hospital)
-- [*https://www.health.govt.nz/news-media/news-items/more-100000-first-doses-5-11s-90-auckland-maori-fully-vaccinated-23-community-cases-6-hospital*](https://www.health.govt.nz/news-media/news-items/more-100000-first-doses-5-11s-90-auckland-maori-fully-vaccinated-23-community-cases-6-hospital)
-- [*https://www.health.govt.nz/news-media/news-items/more-30000-boosters-given-yesterday-103-community-cases-11-hospital*](https://www.health.govt.nz/news-media/news-items/more-30000-boosters-given-yesterday-103-community-cases-11-hospital)
-- [*https://www.health.govt.nz/news-media/news-items/more-13000-boosters-given-yesterday-91-community-cases-10-hospital*](https://www.health.govt.nz/news-media/news-items/more-13000-boosters-given-yesterday-91-community-cases-10-hospital)
-- [*https://www.health.govt.nz/news-media/news-items/more-22000-boosters-given-yesterday-126-community-cases-8-hospital*](https://www.health.govt.nz/news-media/news-items/more-22000-boosters-given-yesterday-126-community-cases-8-hospital)
-- [*https://www.health.govt.nz/news-media/news-items/more-38000-boosters-given-yesterday-142-community-cases-6-hospital*](https://www.health.govt.nz/news-media/news-items/more-38000-boosters-given-yesterday-142-community-cases-6-hospital)
-- [*https://www.health.govt.nz/news-media/news-items/more-36000-boosters-given-yesterday-147-community-cases-13-hospital*](https://www.health.govt.nz/news-media/news-items/more-36000-boosters-given-yesterday-147-community-cases-13-hospital)
-- [*https://www.health.govt.nz/news-media/news-items/record-day-boosters-more-66000-doses-given-yesterday-243-community-cases-10-hospital-1-icu*](https://www.health.govt.nz/news-media/news-items/record-day-boosters-more-66000-doses-given-yesterday-243-community-cases-10-hospital-1-icu)
-- [*https://www.health.govt.nz/news-media/news-items/more-48000-booster-doses-given-yesterday-208-community-cases-12-hospital-1-icu*](https://www.health.govt.nz/news-media/news-items/more-48000-booster-doses-given-yesterday-208-community-cases-12-hospital-1-icu)
-- [*https://www.health.govt.nz/news-media/news-items/almost-25000-booster-doses-waitangi-day-188-community-cases-14-hospital-1-icu*](https://www.health.govt.nz/news-media/news-items/almost-25000-booster-doses-waitangi-day-188-community-cases-14-hospital-1-icu)
-- [*https://www.health.govt.nz/news-media/news-items/more-200000-paediatric-doses-and-over-16-million-boosters-now-given-202-community-cases-14-hospital*](https://www.health.govt.nz/news-media/news-items/more-200000-paediatric-doses-and-over-16-million-boosters-now-given-202-community-cases-14-hospital)
-- [*https://www.health.govt.nz/news-media/news-items/big-boost-week-kicks-all-dhbs-reach-90-fully-vaccinated-pacific-peoples-204-community-cases-16*](https://www.health.govt.nz/news-media/news-items/big-boost-week-kicks-all-dhbs-reach-90-fully-vaccinated-pacific-peoples-204-community-cases-16)
-- [*https://www.health.govt.nz/news-media/news-items/more-56000-boosters-given-yesterday-306-community-cases-12-hospital*](https://www.health.govt.nz/news-media/news-items/more-56000-boosters-given-yesterday-306-community-cases-12-hospital)
-- [*https://www.health.govt.nz/news-media/news-items/more-50000-boosters-given-yesterday-446-community-cases-23-hospital*](https://www.health.govt.nz/news-media/news-items/more-50000-boosters-given-yesterday-446-community-cases-23-hospital)
-- [*https://www.health.govt.nz/news-media/news-items/more-57000-boosters-given-yesterday-454-community-cases-27-hospital*](https://www.health.govt.nz/news-media/news-items/more-57000-boosters-given-yesterday-454-community-cases-27-hospital)
-- [*https://www.health.govt.nz/news-media/news-items/more-49000-boosters-given-yesterday-810-community-cases-32-hospital*](https://www.health.govt.nz/news-media/news-items/more-49000-boosters-given-yesterday-810-community-cases-32-hospital)
-- [*https://www.health.govt.nz/news-media/news-items/more-20000-boosters-given-yesterday-981-community-cases-39-hospital*](https://www.health.govt.nz/news-media/news-items/more-20000-boosters-given-yesterday-981-community-cases-39-hospital)
-- [*https://www.health.govt.nz/news-media/news-items/more-47000-boosters-given-yesterday-744-community-cases-40-hospital*](https://www.health.govt.nz/news-media/news-items/more-47000-boosters-given-yesterday-744-community-cases-40-hospital)
-- [*https://www.health.govt.nz/news-media/news-items/more-two-million-boosters-given-1160-community-cases-56-hospital*](https://www.health.govt.nz/news-media/news-items/more-two-million-boosters-given-1160-community-cases-56-hospital)
-- 下图2显示了处在第25次的1月22日至在第16次的2月22日的区间段，新西兰每天按疫苗接种情况分类（\*注：红色是完全接种疫苗，绿色是未接种疫苗）的 Covid-19 住院总人数：
+一位80多岁的老人同意了接受我们的采访。寒冷的天气里，即使在他家室内也不到10摄氏度，他的孙子裹着被子在学习。老人一脸无奈地说：如果我们不服从政府的命令，会招来大麻烦，我们没办法。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1861.png)
-正如你所看到的，每天的完全接种疫苗的人都占了 Covid-19 住院人数的绝大部分；而截至在第16次的2月22日，完全接种疫苗的人的情况似乎在逐渐恶化，而未接种疫苗的人则有所改善。
+至于他们为什么要封住”炉灶”？据中共国媒体报道，该地区已被指定为 “国家空气质量监测点”，禁止百姓烧木材，是当地政府为改善当地的环境数据，而采取的措施。倒是给他们发放了电暖器作为取暖设备，但接受采访的居民一致抱怨根本起不到取暖的作用。
 
-在第25次的1月22日，仅有6人因 Covid-19 住院，其中完全接种疫苗的人占5次住院，未接种疫苗的人占1次住院；但在第16次的2月22日，有25人因Covid-19而住院，其中完全接种疫苗的人占23次住院，而未接种疫苗的人仅占2次住院。 下图3显示了在第25次的1月22日至在第16次的2月22日的区间段，新西兰按疫苗接种情况划分的 Covid-19 住院人数比例：
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1862.png)
-在这19天中，有6天 Covid-19 住院的全都是完全疫苗接种者（大约有 79% 的新西兰人口被认为是完全接种疫苗者）。
+其它几个省也采取了类似的封 “炉灶”措施。可我们却看到了中共国媒体不同寻常的指出：环境保护很重要，但我们不能只追求不冒烟而让群众挨冻。
 
-最近两天的数据显示，2月15日完全接种疫苗的人占住院人数的 90%，2月16日的住院人数占比 92%。
+为了所谓的业绩，不惜牺牲人民群众，这在中共国已经司空见惯，甚至老百姓都已失去了反抗的本能。中共捂着盖着的家丑，还是被日本媒体给爆出来了，其状况该有多严重了，不言而喻！
 
-新西兰卫生部拒绝公布按疫苗接种情况划分的 Covid-19 死亡人数，但我们认为，从他们悄悄公布的 Covid-19 住院人数的非常有限的数据中可以清楚地看到，新西兰正处于完全接种疫苗的大流行中，而且看起来 Covid-19 疫苗接种在预防住院方面的好处为零；实际上，从给出的数字来看（如下图4），接种疫苗似乎使情况变得更糟。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1863.png)
-（文章仅代表作者观点与GNEWS无关）
+信息源：[北京五輪で続いた青空やりすぎ？大気汚染対策の裏側を取材（日テレNEWS） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/5e47656b69007c1d4bd3cfa917db70ad91f0dfd3?page=1)
 
-素材来源：[dailyexpose.uk] [New Zealand’s Pandemic of the Fully Vaccinated | Up to 100% of](https://dailyexpose.uk/2022/02/18/new-zealands-pandemic-of-the-fully-vaccinated/) [Covid-19 Hospitalisations are among the Fully Vaccinated according to official data](https://dailyexpose.uk/2022/02/18/new-zealands-pandemic-of-the-fully-vaccinated/)
-
-* * *
-
-审核：文乐
-校对：花羽
-发布：花羽
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-5.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
