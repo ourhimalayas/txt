@@ -2,55 +2,34 @@
 ---
 
 
-## 一周中共病毒疫情和疫苗信息汇总
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2030632/)
+## 加拿大人民的血汗钱成了政府恐吓他们的工具
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2029955/)
 
-作者：纽约香草山农场 Zion文恩, DC农场 火来
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2022年2月9日至2月15日，除中共国外，全球新增中共病毒确诊患者一千四百万余例，同比上周下降了20%，且已经连续两周呈现下降趋势。此外，本周新增病毒死亡病例超过71万例，同比上周下降了5.87%——这也是进入2022年第一季度以来，全球每周新增病毒死亡率首次出现下降情况。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-19-at-9.04.31-PM.png)**图表一：*2022年2月9日至2月15日：全球新增中共病毒确诊患者***![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-19-at-9.03.19-PM.png)**图表二：*2022年2月9日至2月15日：新增病毒死亡病例***
-截止2月14日，除中共国外，全球累计接种了75.1亿剂中共病毒疫苗，同比2月9日的接种数据增长了1.9%。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-19-at-9.03.46-PM.png)**图表三：*全球累计接种的中共病毒疫苗***
-另一方面，本周，世界多个国家和地区出现了中共病毒疫苗强制政策的骤然松动状况。自2月15日起，越南解除了对包括所有国际客运航班在内的航空业实行的限制措施。而在欧洲方面，丹麦于2月1日宣布，该国将结束几乎所有的疫情限制政策；同时，挪威将取消自冬季开始就一直使用的许多感染控制措施，当地民众不再被强制要求居家工作；2月10日，瑞士政府表示，该国将取消大部分的防疫限制，包括当地民众在出入公共场所时需要出示疫苗接种证明的要求。
+编译： Jenny Ball
 
-至于加拿大方面，艾伯塔省政府宣布，当地从2月9日起取消中共病毒疫苗接种证明政策；萨斯喀彻温省的疫苗护照也于2月14日结束；自3月1日起，安大略省将不再推行疫苗护照计划；而魁北克省则预计在3月中旬之前取消所有的公共卫生限制措施。
-
-在美国，明尼苏达州的明尼阿波利斯和圣保罗市已于2月10日起，放弃在当地执行强制民众接种中共病毒疫苗的紧急行政命令；2月15日，华盛顿特区市长穆里尔-鲍泽也宣布了该市疫苗强制接种政策的结束。
-
-此外，韩国在本周内报告了该国本月中最高的中共病毒死亡人数。而香港的疫情爆发则导致当地新增感染病例连日突破数千人，香港的医疗系统正在面临全面崩溃的困境。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-19-at-9.12.48-PM.png)
-2月8日，艾滋病病毒的共同发现者、法国病毒学家吕克-蒙塔尼耶去世，享年89岁。蒙塔尼耶生前多次发声，呼吁全球调查病毒真相并坚决反对强制疫苗政策，他还曾前往民众对中共病毒疫苗的抗议现场声援支持。
-
-另外，美国多个州正在考虑制定不同程度的立法，授权医生向患者配发羟氯喹和伊维菌素等药物治疗中共病毒。据悉，立法者的此项行动意在反对联邦政府污蔑廉价的潜在中共病毒疗法。
-
-参考链接：
-
-1. [Weekly confirmed COVID-19 cases](https://ourworldindata.org/grapher/weekly-covid-cases?tab=chart&amp;time=2022-01-04..latest&amp;country=USA~IND~JPN~ISR~BRA~KOR~South+America~Africa~Asia+excl.+China~World+excl.+China)
-2. [Weekly confirmed COVID-19 deaths](https://ourworldindata.org/grapher/weekly-covid-deaths?tab=chart&amp;time=2022-01-04..latest&amp;country=USA~ZAF~RUS~ISR~IND~GBR~World+excl.+China)
-3. [COVID-19 vaccine doses administered](https://ourworldindata.org/grapher/cumulative-covid-vaccinations?time=2022-01-04..latest&amp;country=IND~RUS~USA~JPN~ISR~Asia~Africa~World+excl.+China~Europe)
-4. [COVID-19 takes serious toll on heart health—a full year after recovery](https://www.science.org/content/article/covid-19-takes-serious-toll-heart-health-full-year-after-recovery)
-5. [Korean COVID deaths rise, hope rests on high booster rate](https://apnews.com/article/coronavirus-pandemic-health-south-korea-18b8dc349cb751f21b19cde7067481d8)
-6. [States push to ease access to ivermectin, other COVID treatments that establishment blocked](https://americasvoice.news/justthenews/lawmakers-tackle-hurdles-covid-patients-get-treatments-opposed-medical/)
-7. [Nobelpreisträger Luc Montagnier verstorben Löst die Impfung VAIDS aus?](https://reitschuster.de/post/nobelpreistraeger-luc-montagnier-verstorben/%0A%3C)
-8. [Luc Montagnier, Nobel-Winning Co-Discoverer of H.I.V., Dies at 89](https://www.nytimes.com/2022/02/10/science/luc-montagnier-dead.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1764.png)文贵先生盖特视频截图
 
 
+随着特鲁多政权向公民宣战，加拿大银行挤兑正在进行中。
 
+达沃斯组织的信徒，加拿大副总理克里斯蒂亚·弗里兰（Chrystia Freeland）的暴虐行为，惊醒加拿大人民，人们现在正迅速从加拿大最大的银行撤出资金。两天前，弗里兰宣布将扩大加拿大的金融恐怖主义法，以没收属于支持和平车队卡车司机抗议的个人的所有资金——银行账户、加密货币、众筹中心等。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-3.png)
+就这样，克里斯蒂亚**·**弗里兰打破了银行零售客户与银行本身之间的社会契约。一下子，自由之地的整个国家都明白，他们的钱在加拿大的任何一家银行都不安全，因为政府现在可以在没有正当程序、证据或任何法治的情况下，没收你所有的私人资金。
 
-审核：Zion文恩
-编辑：飞虹
-总编：Irene木木
-校正/发稿：我不在这里
+为了应对威胁，加拿大政府不仅没收了私人银行账户，还下令加密交易所没收现在由政府自己命名的 **34 **个加密钱包的资金。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**评论：我的丈夫总是说，银行家都是骗子。但是直到现在我们才意识到，骗子是说轻了，事实上银行现在是杀手，而且是用我们自己的辛苦赚来的钱来杀害我们！**
+
+**这更加印证为什么任何政府为中心的加密货币都是更加便利的杀害我们的工具，只有喜币的设置，让任何独裁政府无能为力。人们已经从加拿大暴政中醒来，喜币超过任何中心化的数字货币，还远吗？**
+
+**用文贵先生刚刚的盖特视频的话： “Hpay就是要拯救那些被奴役的人，Hpay将解放你的生产力，这些钱是属于你的财富，财务自由才能达到人格独立，人格自由，才有人性，才有人权，否则都没用。 ”**
+
+* * *
+
+*审核：文乐
+校对：花羽
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-5.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

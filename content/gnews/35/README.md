@@ -2,28 +2,30 @@
 ---
 
 
-## 币安因执照问题在以色列暂停服务
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2033573/)
+## NFSC新闻、G|TV新闻访谈简报|2022年2月19日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2033291/)
 
-撰稿：西枫westca
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO-2.jpg)
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-10.jpg)图片来源：网络照片
-2月19日Bitcoin News 报导，在以色列的金融监管机构对币安加密货币交易所的活动及运营许可证行询问后，币安停止了在以色列的服务。 越来越多的监管机构在审查币安在其管辖范围内无证经营的情况。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-18.png)
+文章仅代表作者本人观点，与Gnews无关
 
-以色列资本市场、保险和储蓄管理局已就币安加密货币交易所在该国的活动与其接触。据Globes Public报道，该局负责向以色列的加密货币企业发放许可证，已要求币安澄清其向以色列人提供的服务以及其运营的许可证。
+视频参看：
+[2022.02.19早 《NFSC新闻》](https://gtv.org/video/id=6210f09db706176dd78d51d1)
+[2022.02.19早 G|TV《新闻访谈》](https://gtv.org/video/id=6210f7d9b706176dd78d57f8)
 
-在以色列提供加密货币服务的公司需要获得许可证。而币安尚未向当局提交批准在该国的运营申请。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-据Global Public报道，大约有20万以色列人正在使用币安货币交易所提供希伯来语的服务。监管机构说“直到我们审查完许可证问题，币安目前已经停止了对以色列人的营销，也停止了以以色列为重点的所有活动”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-2.png)
 
-币安因无证经营而在许多司法管辖区面临审查，包括美国、英国、加拿大、德国、意大利、印度、马来西亚、新加坡、土耳其和立陶宛。
-
-此外，应执法部门的要求，币安加密货币交易所在1月份限制了281个尼日利亚账户。本周，据说美国证券交易委员会(SEC)正在调查币安的美国分部。
-
-该加密货币交易所在去年8月表示，现在其首要任务是合规，它正在做出 “重大改变”以成为一个受监管的金融机构。
-
-**新闻来源：**[Crypto Exchange Binance Halts Activities in Israel After Regulator Raises Licensing Issue – Exchanges Bitcoin News](https://news.bitcoin.com/crypto-exchange-binance-halts-activities-israel-after-regulator-raises-licensing-issue/)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

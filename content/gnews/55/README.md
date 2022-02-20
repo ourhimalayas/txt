@@ -2,25 +2,26 @@
 ---
 
 
-## 中共数字人民币在冬奥会借机推广
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2031615/)
+## 苏格兰不再公布死亡病例中的接种状况
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2031594/)
 
-作者：台灣寶島農場 – 尋文客
+作者：纽约香草山 – 宁文静
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-媒体2月15日报道，中共数字人民币推出以来，其交易总额仅约130亿美元，截至2021年6月30日，Visa 12个月交易总额 12.5万亿美元，对比之下，前者相形见绌。
+2月16日，苏格兰公共卫生监督机构PHS在其最新的中共病毒统计报告中宣布，将不再细分死亡与住院病例的疫苗接种状况，数据将合并发布。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/11-26.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/9-19.jpg)
 
-一位金融咨询公司董事在采访时评价，中共数字人民币“只是另一种法定货币，应该被私人货币、或至少是非建立在奴隶劳工和极权主义基础上的主权货币超越”。
-
-中共数字货币引发的争议，恰印证了郭文贵先生在直播中强调的，中共数字人民币的本质，是绝对中心化、掠夺财富的行政工具。
+分析人士指出，越来越多的数据证明中共病毒疫苗对奥密克戎并不起作用。自1月份多个国家卫生部门借口PCR核酸检测试剂盒供应不足，取消了确诊数据的公布之后，住院与死亡病例的疫苗接种状况也被取消，只能证明其中绝大多数病例是完全接种甚至加强接种的事实，使政府卫生部门忧心并试图掩盖。
 
 参考链接：
+
+- [Anti-vaxxer concerns force removal of deaths by vaccine status data from Public Health Scotland reports](https://www.scotsman.com/health/coronavirus/anti-vaxxer-concerns-force-removal-of-deaths-by-vaccine-status-data-3571856)
+
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
 
 总编：童谣
-编辑：静言
+编辑：Jack Li文阳
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

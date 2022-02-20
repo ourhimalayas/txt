@@ -108,86 +108,86 @@
 ### [七哥金句：爆料革命靠什么成长](/content/gnews/31/README.md)
  ` 雅典娜GNotes`
 
-### [七哥金句：凡事不要走极端](/content/gnews/32/README.md)
- ` 雅典娜GNotes`
-
-### [郭文贵先生让你拥有HCOIN 保住财产，HCOIN 是数字黄金货币。](/content/gnews/33/README.md)
+### [郭文贵先生让你拥有HCOIN 保住财产，HCOIN 是数字黄金货币。](/content/gnews/32/README.md)
  ` mayflowertranslate`
 
-### [文贵先生盖特精要2022/02/19](/content/gnews/34/README.md)
+### [文贵先生盖特精要2022/02/19](/content/gnews/33/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [币安因执照问题在以色列暂停服务](/content/gnews/35/README.md)
+### [币安因执照问题在以色列暂停服务](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [NFSC新闻、G|TV新闻访谈简报|2022年2月19日早](/content/gnews/36/README.md)
+### [NFSC新闻、G|TV新闻访谈简报|2022年2月19日早](/content/gnews/35/README.md)
  ` 纽约香草山MOS01`
 
-### [出离愤怒：没人愿意提及北京冬奥会](/content/gnews/37/README.md)
+### [出离愤怒：没人愿意提及北京冬奥会](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [聚焦：地方政府断炊，中共托底楼市](/content/gnews/38/README.md)
+### [聚焦：地方政府断炊，中共托底楼市](/content/gnews/37/README.md)
  ` 丁过`
 
-### [人类传奇：郭先生的个人破产成就了无数亿万富豪！](/content/gnews/39/README.md)
+### [人类传奇：郭先生的个人破产成就了无数亿万富豪！](/content/gnews/38/README.md)
  ` 纽约香草山MOS03`
 
-### [中共通过向美国高校捐款影响美国的高等教育](/content/gnews/40/README.md)
+### [中共通过向美国高校捐款影响美国的高等教育](/content/gnews/39/README.md)
  ` 首尔天池农场`
 
-### [港共政府国安处拘捕艺人阮民安](/content/gnews/41/README.md)
+### [港共政府国安处拘捕艺人阮民安](/content/gnews/40/README.md)
  ` NFSC News`
 
-### [2022年2月19日，全球中共病毒疫情情况汇总](/content/gnews/42/README.md)
+### [2022年2月19日，全球中共病毒疫情情况汇总](/content/gnews/41/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [台湾加强立法防止中共窃取芯片技术](/content/gnews/43/README.md)
+### [台湾加强立法防止中共窃取芯片技术](/content/gnews/42/README.md)
  ` NFSC News`
 
-### [拜登确信普京决定入侵乌克兰](/content/gnews/44/README.md)
+### [拜登确信普京决定入侵乌克兰](/content/gnews/43/README.md)
  ` 首尔天池农场`
 
-### [樱花FM|美国试图阻止中共在非洲建立大西洋基地](/content/gnews/45/README.md)
+### [樱花FM|美国试图阻止中共在非洲建立大西洋基地](/content/gnews/44/README.md)
  ` 樱花FM`
 
-### [樱花FM|丹麦撤销新冠病毒的强制规则 法国取消室外口罩禁令](/content/gnews/46/README.md)
+### [樱花FM|丹麦撤销新冠病毒的强制规则 法国取消室外口罩禁令](/content/gnews/45/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [腾讯、阿里电商网站上榜美国最新“恶名市场”黑名单](/content/gnews/47/README.md)
+### [腾讯、阿里电商网站上榜美国最新“恶名市场”黑名单](/content/gnews/46/README.md)
  ` 日本东京方舟农场`
 
-### [樱花FM|日本通过中共人权决议 维族和西藏问题受关注](/content/gnews/48/README.md)
+### [樱花FM|日本通过中共人权决议 维族和西藏问题受关注](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花FM|日美韩三国外长在夏威夷会晤，讨论威慑朝鲜问题](/content/gnews/49/README.md)
+### [樱花FM|日美韩三国外长在夏威夷会晤，讨论威慑朝鲜问题](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花FM|美日印澳承诺深化合作确保印太不受中共胁迫](/content/gnews/50/README.md)
+### [樱花FM|美日印澳承诺深化合作确保印太不受中共胁迫](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花FM|美国誓言向印太地区投入更多资源抗衡中共国](/content/gnews/51/README.md)
+### [樱花FM|美国誓言向印太地区投入更多资源抗衡中共国](/content/gnews/50/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆┃俄乌危机影响已波及谷物市场 食品价格上涨引人忧](/content/gnews/52/README.md)
+### [中日财经爆┃俄乌危机影响已波及谷物市场 食品价格上涨引人忧](/content/gnews/51/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [拜登：确信俄罗斯会入侵乌克兰](/content/gnews/53/README.md)
+### [拜登：确信俄罗斯会入侵乌克兰](/content/gnews/52/README.md)
  ` GTV新聞訪談`
 
-### [美国延长中共病毒紧急状态](/content/gnews/54/README.md)
+### [美国延长中共病毒紧急状态](/content/gnews/53/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共数字人民币在冬奥会借机推广](/content/gnews/55/README.md)
+### [中共数字人民币在冬奥会借机推广](/content/gnews/54/README.md)
  ` NFSC News`
 
-### [苏格兰不再公布死亡病例中的接种状况](/content/gnews/56/README.md)
+### [苏格兰不再公布死亡病例中的接种状况](/content/gnews/55/README.md)
  ` NFSC News`
 
-### [以色列将废除中共病毒疫苗护照系统](/content/gnews/57/README.md)
+### [以色列将废除中共病毒疫苗护照系统](/content/gnews/56/README.md)
  ` NFSC News`
 
-### [一周中共病毒疫情和疫苗信息汇总](/content/gnews/58/README.md)
+### [一周中共病毒疫情和疫苗信息汇总](/content/gnews/57/README.md)
  ` NFSC News`
+
+### [加拿大人民的血汗钱成了政府恐吓他们的工具](/content/gnews/58/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
 ### [追求自由：加州卡车司机将组队前往DC](/content/gnews/59/README.md)
  ` 日本东京方舟农场`
