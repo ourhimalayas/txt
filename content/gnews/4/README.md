@@ -2,24 +2,55 @@
 ---
 
 
-## 樱花FM|中日财经爆:渣打香港成为首家境外直接参与CIPS外资银行
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2035630/)
+## 澳洲朝野抨击中共以雷射光照射澳军机的举动
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2035750/)
 
-音频：东京樱花团/战友520
-![](https://lh3.googleusercontent.com/IYg7vi069XiTkLzwxh8f9KQdlOtII7QVUkBtbJc1uXbCodDnkSoIEcEJLZxlmygfdUJFoz-WcKXNBDqiaCKnteKX0da3WrEAYcDfK5XSKdO-HBQthVH27E3IxHgEEMgPruPmC__u)
-渣打集团旗下渣打香港2月14日宣布，公司取得跨境银行间支付清算有限责任公司（CIPS）直接参与者资格，为首家位于中共国境外能直接参与的外资银行。
+作者：香草山医疗部 — 云豹
 
-CIPS是指人民币跨境支付系统，该系统连接中共国及离岸人民币中心和市场，覆盖全球所有主要时区。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-3.jpg)
 
-渣打目前在全球39个市场提供人民币服务，并自2014年起获香港金融管理局指定为香港离岸人民币市场的一级流动性提供行。
 
-渣打香港自2015年起成为CIPS间接参与者，渣打集团旗下的中共国子公司渣打银行（中国）则在同一年成为首批外资银行在中国境内的CIPS直接参与者。2021年．渣打中国的CIPS业务量在外资行中位列第一，参与者拓展在外资行中也位列第一。
 
-文字版原文：[中日财经爆┃渣打香港成为首家境外直接参与CIPS外资银行 – GNEWS](https://gnews.org/zh-hans/2007070/)
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+
+
+
+
+
+当地时间2月20日，澳州总理莫里森及最大在野党工党领袖艾班尼斯个自发表声明，强烈谴责中共军舰以激光束照射澳洲军机的挑衅举动。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/f56bde5e10faa84a.jpg)
+
+此次事件发生于17日，中共军舰于澳洲专属经济海域内，在没有受到任何挑衅的情况下，使用激光束照射一架即将降落的澳洲P-8A海神巡逻机，威胁到该机及人员的安全。
+
+莫里森表示澳洲绝不接受中共这种恐吓举动。并要求中共对此次的挑衅行为提出解释。澳洲国防部长杜登表示，澳洲必须以强硬姿态来回应中共的胁迫、霸凌和恐吓。艾班尼斯则表示，中共的行为越来越具侵略性。澳洲政府必需对中共发出最强烈的谴责，而且不论任何人来领导澳洲，都需要面对来自于中共的挑战。
+
+参考连接：[https://www.cna.com.tw/news/aopl/202202200046.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/aopl/202202200046.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+
+2022年2月20日
+
+（本文为作者观点，不代表G NEWS立场）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-7.jpg)
+
+*编辑 /校对*：*Yuki*jiang
+
+*发稿：Yuki*jiang
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

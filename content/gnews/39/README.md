@@ -2,42 +2,22 @@
 ---
 
 
-## 莫里森总理谴责中共国海军发射激光是“恐吓行为”
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2034507/)
+## 奥地利将放宽强制疫苗政策
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2034898/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+#### 翻译/撰稿：黃金精神
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/5-31.png)图片来源：CNA & 雅典娜设计组
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-3-1.png)图片来源：联合新闻网
+2月17日据布莱巴特新闻网（Breitbart News）报道，奥地利联合政府宣布，该国现行的绝大多数封锁措施，包括专门针对全国未接种疫苗者几乎所有的“新冠种族隔离”限制将从3月5日起取消。这一宣布标志着该国在处理未接种疫苗者的方法上有了重大转折。
 
+尽管当局此前曾承诺，未接种新冠疫苗将永远受到严格的限制，当时的国家总理亚历山大·沙伦伯格（Alexander Schallenberg）告诉奥地利人，未接种疫苗者在接种中共病毒疫苗之前将不能参与社会（活动）。然而，据《克朗报》（Kronen Zeitung）报道，政府宣布了放宽新冠措施的路线图，最快在本周六，全国未接种疫苗者将再次被允许进入酒吧和餐馆。
 
-整理/编辑：文泓
+更重要的是，奥地利未接种疫苗者甚至不必长期忍受这种不便措施，该国将在3月5日完全取消疫苗通行证的使用。在奥地利生活中几乎完全取消疫苗通行证的同时，奥地利的其他绝大部分新冠封锁规则也将废除，例如对全国酒店业的宵禁。然而，一些规则仍将继续存在，包括在公交和超市中强制使用高级FFP2口罩。国内的医院和疗养院也将继续使用新冠证书，而据报道，从国外进入奥地利也将要求提供疫苗接种、康复或新冠阴性测试的证明。
 
-当地时间2月20日，澳大利亚总理斯科特·莫里森表示，他非常关注上周中共国海军的“恐吓行为”，当时一艘中国军舰在澳大利亚专属经济区海域，向一架澳大利亚巡逻侦察机发射激光。
+虽然该国当局强调，强制疫苗政策不是解决新冠问题所需的“短期措施，而是一个中期视角”，但担任该国现任总理的卡尔·内哈默（Karl Nehammer）强调，将成立一个专家委员会，持续分析奥地利境内强制接种的合宪性和必要性。
 
-“我非常关注PLA对一架澳大利亚侦察机使用激光的行为。我认为这是一种不可接受和无端的恐吓行为，没有别的解释。”
-
-他说，澳洲政府将从外交和国防渠道提出这一事件进行交涉。
-
-在当天的新闻发布会上，莫里森谈到了政府的国家安全保障，说激光事件证明了他提出的增加国防开支的必要性。
-
-“我们的政府已经证明了我们在国家安全方面做的保障工作，我们没有像工党那样削减资金，澳大利亚是永远不会走绥靖之路的。”
-
-谈到俄罗斯入侵乌克兰事宜，斯科特·莫里森表示，澳大利亚将对俄罗斯实施制裁，称俄“在乌克兰的挑衅行为是不可接受的，没有理由的，无缘无故的”。
-
-他说，澳大利亚正在与所有自由国家、伙伴和盟友合作，采取行动支持乌克兰，但这不包括军队。
-
-“我们将与我们的盟友和伙伴一起贯彻制裁，世界将一起行动，并寻求抵制，（入侵乌克兰）将是一种可怕的暴力行为……这是不可接受的，无端的、无缘无故的。”
-
-新闻链接：[Russia-Ukraine conflict updates live: Scott Morrison says Australia will ‘follow through’ with sanctions (afr.com)](https://www.afr.com/politics/federal/us-says-russian-forces-poised-to-strike-ukraine-20220220-p59xz4)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**新闻来源：**[**Massive U-Turn: Austria to Repeal Almost All ‘Corona Apartheid’ Rules Targeting Unvaxxed**](https://www.breitbart.com/europe/2022/02/17/massive-u-turn-austria-to-repeal-almost-all-corona-apartheid-rules-targeting-unvaxxed/)
 
  
 

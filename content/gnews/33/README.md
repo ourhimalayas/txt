@@ -2,25 +2,36 @@
 ---
 
 
-## 祸港“温情牌”！中共援港第二批防疫队抵港
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2035306/)
+## 澳洲自由车队示威者要求结束疫苗强制令并解散政府
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2035356/)
 
-据香港01报道，中共派出的第二批114人内地援港抗疫医疗防疫工作队，于2月19日抵港。该批医护人员包括4名重症医学专家，负责来港就中共病毒重症进行交流讨论，而核酸採样队则由4名管理人员和106名广东医务人员组成。
+翻译/编辑：小红帽
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/JLNagQJDMBdFuUzJoDeKh6WUzwIkBGnBUGGKAVBhig_副本.jpg)图片来源：香港01
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/8-26.png)图片来源：www.rebelnews.com
 
-中共喉舌金羊网称，这批医护人员分别来自广东省人民医院、中山大学附属第一医院、暨南大学附属第一医院、广东省中医院和南方医科大学第三附属医院，其中不少人曾在中共病毒疫情爆发初期驰援武汉。
 
-简评：害你的人正在“温情”的救你，中共经常上演这样的鬼把戏！中共强吃香港杀人无数，如今借疫情派出救援队援助香港大搞“温情牌”。当“救援”也成了政治作秀洗脑的一部分，中共要得只想让你听话，别的一切都是假的。
+根据RT新闻2月19日报道， 周六，在澳大利亚首都堪培拉，”前往堪培拉的车队 “运动组织了几次反对新冠疫苗强制令的游行。成群结队的抗议者在市中心的几个方向移动，并在议会大厦附近聚集。
 
-新闻来源：[香港01](https://www.hk01.com/%E5%8D%B3%E6%99%82%E4%B8%AD%E5%9C%8B/737992/%E7%96%AB%E6%83%85-%E7%AC%AC%E4%BA%8C%E6%89%B9114%E4%BA%BA%E6%8F%B4%E6%B8%AF%E9%98%B2%E7%96%AB%E9%9A%8A%E5%A4%A7%E6%9C%89%E4%BE%86%E9%A0%AD-%E5%A4%9A%E4%BA%BA%E6%9B%BE%E5%8F%83%E8%88%87%E6%AD%A6%E6%BC%A2%E6%8A%97%E7%96%AB)
+从RT新闻的视频录像显示，集会上出现了“不要为工作打针”、“不要碰我们的孩子”和“我的身体，我的选择”的标语。其他横幅上写着“自2020年以来，我已经失去了说再见的机会”和“团结起来，我们永远不会被打败”。
 
-撰稿/发布：一叶知秋
+裹着旗子的示威者在街头游行时高呼“将他们全部解雇”（他们指的是澳大利亚政府），同时呼吁“拯救儿童”和“拯救澳大利亚”。
+
+警车伴随着整个抗议活动。抗议活动看起来很和平。
+
+一名参加运动的男子告诉记者，他认为政府严格的新冠（Covid-19）限制是“违反我们的宪法”和法治的行为。他指责当局“完全控制”了人民。
+
+另一位拿着扩音器的抗议者告诉欢呼的人群，车队将在该市停留，“为了表明我们不会袖手旁观”，以回应政府的政策。他还呼吁 “结束（新冠）疫苗的强制接种令”。
+
+新闻链接：[Australian ‘Freedom Convoy’ marches to parliament building](https://www.rt.com/news/549956-convoy-canberra-protest-vaccination/)
+
+*发布：tianzhihuan*
 
 **更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
