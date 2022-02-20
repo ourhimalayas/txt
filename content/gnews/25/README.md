@@ -2,47 +2,40 @@
 ---
 
 
-## 文·贵天成——文贵先生谈“H-pay、喜支付”（十）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2034779/)
+## 欧盟就中共专利侵权在世贸组织发起诉讼
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2034841/)
 
-**整理：BENJ1
-编辑：小红帽**
+作者：MOS 柳是多水土透
+![This image has an empty alt attribute; its file name is gtv-best-10.png](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-10.png)
+2月18日，欧盟委员会代表27个成员国在世贸组织发起诉讼，指控中共利用大陆司法系统，妨碍欧洲的电信企业保护知识产权。欧盟委员会在诉前还与日本和美国进行了磋商，因为他们的企业也面临类似问题。这些企业的代表有瑞典的爱立信、芬兰的诺基亚和日本的夏普。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1844.png)
+欧盟委员会称，中共法院判决华为、小米等中共电信巨头可以以许可费原价的一半获得国外公司关键技术的专利，并利用“禁诉令”的法律机制，阻止国际公司在外国法院起诉中共公司，这些公司一旦起诉，就将面临每天13万欧元的罚款或刑事指控威胁。他们认为，这是中共政府利用法律手段在试图攫取全球权力，并使这些企业无法有效保护自己的发明专利。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/dfdf.png)
+欧盟委员会认为，中共的行为与世贸组织保护贸易相关知识产权的协议完全不符。
 
+中共有60天时间作出回应，之后布鲁塞尔可以要求争端解决小组对此事做出裁决。
 
+参考链接：[EU launches WTO dispute against China over telecom patents](https://www.reuters.com/business/eu-challenges-china-wto-over-telecom-patent-protection-2022-02-18/)
+ [https://www.ft.com/content/d08f7480-5d19-497b-ac8b-bb68d780eae4](https://www.ft.com/content/d08f7480-5d19-497b-ac8b-bb68d780eae4)
 
-图片来源：雅典娜农场设计组（614）
+![This image has an empty alt attribute; its file name is 8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
 
+总编：飞虹
+编辑：飞虹
+校对/发稿：小野貓（文凱琳）
 
-**郭文贵先生2022年2月4日直播**
+**更多资讯，更多关注**
 
-兄弟姐妹们，现在那个意大利的搞服装的一个服装厂说:我全部要接受H-Pay。他在意大利交75%的税，是吧？他说:你给我的钱全用H-Pay付。我所有的税，我只缴我10%的税。为什么？他拿H-Pay再来跟我们做其它交易，他去买币去，对吧？这就是聪明的办法啊。这是很夸张的兄弟姐妹们。这是很大的钱呐，我就不具体说了。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-所以说文斌，特别是你那块，你老想成农场，你也把你农场成立了。你得先告诉你有多少人，你有多少机会能推广H-Pay。你现在像Jessica、你像青藤、你像宝宝、文斌，你们什么事都不重要，去推广这个H-Pay去。
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-未来在H-Pay上会有无限个基金诞生。你们宝宝可能搞一个什么基金。我这个基金我告诉你我风险多大，我赔钱多大。我可能是广东的某个什么项目，什么什么项目，我就多长时间开放，你投就投，你不投拉倒。“啪”一下子钱就来了。
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-**往期回顾：
-**[**文·****贵天成——****文贵先生谈“H-pay****、喜支付”****（一）**](https://gnews.org/zh-hans/1952017/)**
-**[**文·****贵天成——****文贵先生谈“H-pay****、喜支付”****（二）**](https://gnews.org/zh-hans/1952041/)**
-**[**文·****贵天成——****文贵先生谈“H-pay****、喜支付”****（三）**](https://gnews.org/zh-hans/1952017/)**
-**[**文·****贵天成——****文贵先生谈“H-pay****、喜支付”****（四）**](https://gnews.org/zh-hans/1952041/)**
-**[**文·****贵天成——****文贵先生谈“H-pay****、喜支付”****（五）**](https://gnews.org/zh-hans/1952041/)**
-**[**文·****贵天成——****文贵先生谈“H-pay****、喜支付”****（六）**](https://gnews.org/zh-hans/1957510/)**
-**[**文·****贵天成——****文贵先生谈“H-pay****、喜支付”****（七）**](https://gnews.org/zh-hans/1973187/)**
-**[**文·****贵天成——****文贵先生谈“H-pay****、喜支付”****（八）**](https://gnews.org/zh-hans/1973225/)**
-**[**文·****贵天成——****文贵先生谈“H-pay****、喜支付”****（九）**](https://gnews.org/zh-hans/1973242/)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-发布：星谕
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is gtv-best-11.png](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-11.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

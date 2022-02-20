@@ -2,8 +2,8 @@
 ---
 
 
-## 疫苗灾难对新加坡的高度危害警讯
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2035061/)
+## 加拿大卡车司机抗议运动对全球疫苗政策的意义
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2035202/)
 
 台灣寶島農場
 
