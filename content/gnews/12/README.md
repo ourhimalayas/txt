@@ -2,28 +2,53 @@
 ---
 
 
-## 有声|欧盟就中共专利侵权在世贸组织发起诉讼
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2037717/)
+## 疾控中心和辉瑞发出紧急警告——人人均有血栓风险
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2037853/)
 
-配音：香草山巡管部– 文凯琳
-![This image has an empty alt attribute; its file name is gtv-best-10.png](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-10.png)
-2月18日，欧盟委员会代表27个成员国在世贸组织发起诉讼，指控中共利用大陆司法系统，妨碍欧洲的电信企业保护知识产权。欧盟委员会在诉前还与日本和美国进行了磋商，因为他们的企业也面临类似问题。这些企业的代表有瑞典的爱立信、芬兰的诺基亚和日本的夏普。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/021904.jpg)每个人都有血栓的风险！即使是最健康的运动员也会有血栓，所以每个人都必须知道警告信号和如何减少风险。@thegatewaypundit.com
 
-欧盟委员会称，中共法院判决华为、小米等中共电信巨头可以以许可费原价的一半获得国外公司关键技术的专利，并利用“禁诉令”的法律机制，阻止国际公司在外国法院起诉中共公司，这些公司一旦起诉，就将面临每天13万欧元的罚款或刑事指控威胁。他们认为，这是中共政府利用法律手段在试图攫取全球权力，并使这些企业无法有效保护自己的发明专利。
+疾病预防控制中心和辉瑞公司最近都发布了关于“血栓”的公共警告。
 
-文字版原文：[欧盟就中共专利侵权在世贸组织发起诉讼](https://gnews.org/zh-hans/2034841/)
+去年2月10日，疾病预防控制中心发出警告，将青壮年和健康运动员出现血栓的观点正常化。
 
-音频处理/发稿：Daxia
+当然，在新冠疫苗之前，从来没有人听说过血栓频发的现象。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+“(你知道吗)任何人都可能有血栓？无论你是运动员还是球迷，不要让血栓毁了本周末的比赛。[了解如何保护你的健康：https://bit.ly/2lOpGEB](https://www.cdc.gov/ncbddd/dvt/facts.html)，” 疾病预防控制中心发表在推特上。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+疾病预防控制中心在其网站上没有提到新冠疫苗是可以增加血栓风险的因素之一。
+
+去年，由明尼苏达州罗切斯特梅奥诊所的研究人员进行的一项令人震惊的新研究，发表在《美国医学会杂志》（JAMA）上，该研究认为强生公司的新冠疫苗会增加大脑中出现一种罕见的、致命的血栓风险。
+
+据《市场观察》报道，牛津大学去年年初的一项研究也显示，接种辉瑞和莫德纳疫苗与接种阿斯利康疫苗后出现血栓的人数差不多。
+
+在疾病预防控制中心提出警告后，辉瑞公司已于2月14日发布了关于“深静脉栓塞”或静脉血栓的公开警告。
+
+“深静脉栓塞（DVT），即深静脉中的血栓，可以进入肺部，导致肺栓塞（#PE）。肺栓塞的症状包括呼吸困难和胸痛。如果出现症状，不要等待，请立即联系你的医生”，[辉瑞公司在推特](https://twitter.com/pfizer/status/1493238623633870850)上表示。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1907.png)
+**简评：**
+在全球已经过半数人口接种至少一针新冠疫苗的时候，疾病控制中心和疫苗厂商这时候开始预警血栓风险，无异于亡羊补牢。爆料革命新中国联邦领导的正义力量，已经向世界预警及传播疫苗是毒的真相，疫苗是造成血栓及其引发的各种“梗”的罪魁祸首。
+
+无论疫情及疫苗背后无数的丑陋、肮脏、官僚与腐败，我们最希望看到的是，哪怕盲目相信政府及所谓科学主义的人得到预警后，能够停止继续施打疫苗，提早预防血栓风险，避免付出无法挽回的生命代价。
+
+新闻链接：[“Everyone is at Risk for Blood Clots!” – CDC and Pfizer Issue Urgent Warnings on Blood Clots Even in “The Healthiest Athletes”](https://www.thegatewaypundit.com/2022/02/everyone-risk-blood-clots-cdc-pfizer-issue-urgent-warnings-blood-clots-even-healthiest-athletes/)
+
+*翻译: Ying2064*
+
+*校对: 感恩*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

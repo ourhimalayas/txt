@@ -2,14 +2,26 @@
 ---
 
 
-## 有声|一周中共病毒疫情和疫苗信息汇总
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2037593/)
+## 有声|还为谷 歌某凌欢呼吗
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2037636/)
 
 配音：香草山巡管部– 文凯琳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2022年2月9日至2月15日，除中共国外，全球新增中共病毒确诊患者一千四百万余例，同比上周下降了20%，且已经连续两周呈现下降趋势。此外，本周新增病毒死亡病例超过71万例，同比上周下降了5.87%——这也是进入2022年第一季度以来，全球每周新增病毒死亡率首次出现下降情况。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-55.png)
+***推荐语：作者用巧妙的文字游戏避开严厉的审查，桩桩件件直指中共丑陋的流氓行为及炮制灾难的罪恶勾当！***
 
-文字版原文：[一周中共病毒疫情和疫苗信息汇总](https://gnews.org/zh-hans/2030632/)
+前清有
+
+把公主嫁给蒙古诸部的传统
+
+那是为了安抚蒙古
+
+稳定朝堂
+
+公主生出的小可汗
+
+就是清帝的外甥
+
+文字版原文：[还为谷 歌某凌欢呼吗](https://gnews.org/zh-hans/2032414/)
 
 音频处理/发稿：Daxia
 

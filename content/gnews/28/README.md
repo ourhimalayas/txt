@@ -2,54 +2,81 @@
 ---
 
 
-## 乌克兰实现比特币合法化
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2037559/)
+## 2022年2月20日文贵先生直播摘要及音频—银河系农场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2037599/)
 
-**评论：***郭文贵先生直播中说过，乌克兰会用上喜币，比特币合法化是一个标志性事件，世界正在走向数字币的天下。*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/f037a29b945619ea8de95510d15dc5f2.jpg)
+盖特连接：[2022年2月20日 文贵大直播：中俄欲改国际秩序；乌克兰成较量战场；锁链女事件政治化；国共斗争间谍下场](https://gettr.com/streaming/pvqckb4291)
 
-据《零对冲》转载比特币杂志文章，作者：Namcios，2022年2月17日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1902.png)图片来源：零对冲
-比特币此时此刻在乌克兰是合法的，因为其议会在审议中批准了一项法案，以满足总统的建议。但是，该国并没有将比特币视为法定货币。
+G-TV连接：[2022年2月20日 文贵大直播：中俄欲改国际秩序；乌克兰成较量战场；锁链女事件政治化；国共斗争间谍下场](https://gtv.org/video/id=62123b3508ba8a07b19fce62)
 
-“新法律是我国商业发展的一个额外机会。外国和乌克兰的加密货币公司将能合法经营，乌克兰人将能方便和安全地进入全球虚拟资产市场。” 乌克兰数字转型部长Mykhaylo Fedorov在一份声明中说。
+1、习近平和普京在冬奥会期间两人单独利用翻译机器绝密会谈了2小时；
 
-根据一份官方声明，议会于周四以超过270票通过了新的《乌克兰虚拟资产法》。该法案详细规定了交易所等比特币服务提供商应遵守的要求，并确定了违反法律规定的罚款，此外还决定由该国的国家证券委员会监管加密货币市场。
+2、普京和习绝密会谈内容之一，不打台湾不打乌克兰，咱俩都得完蛋；
 
-声明说，乌克兰证券委员会将负责向比特币和加密货币服务提供商发放许可证，并对市场进行监督和财务监测。
+3、乌克兰的战争三天前已经开始；
 
-乌克兰曾在9月提出过一个类似的加密货币法案，但总统沃洛季米尔-泽伦斯基（Volodymyr Zelensky）在接下来的一个月里否决了该法案，认为该国没有能力专门为比特币和加密货币创建一个新的监管机构。
+4、台湾马上有动静；
 
-泽伦斯基总统随后将该法案退回给乌克兰议会，并建议让现有的监管机构来监督这个新兴的行业。现在，议会已经采纳了他的建议并通过了修订后的法案。
+5、普京和习近平身体都不好，两人互相支持讨论有危机如何解决；
 
-对加密货币立法有利于企业家创业，并吸引资本。
+6、普京和习近平绝密会谈内容：暗杀，网络超限战，经济搞乱，西方领导人小视频，难民，连战儿子当台湾经济特区领导人，斩首蔡英文和陈水扁；
 
-白石管理公司和Parea基金会国际基金的创始人Serhiy Tron告诉比特币杂志：“《虚拟资产法》在很大程度上是一部框架法，需要进一步的实质性完善，例如，对税法的修改。”
+7、普京跟巴西总统说，不要和西方掺合在一起，你也管不了；
 
-“尽管如此，该文件成为全球社会的一个重要信号，因为乌克兰国家银行正式表示，加密货币是’货币代用品，没有实际价值’。”
+8、打乌克兰打台湾是假，主要是用乌克兰台湾干掉美国和欧洲；
 
-Tron表示，乌克兰数字转型部计划使该国成为全球比特币和加密货币市场的领导者，而新的法律为其提供了便利。
+9、香港问题让西方国家道德沦丧；
 
-“通过创建一个高科技、创新的加密货币市场，按照明确的规则行事，该国期望来自世界各地的加密货币投资者迅速到来。” 他补充说。
+10、通过最近出现的锁链女、彭帅、谷爱凌事件，更加证明了中国人的自私冷漠；
 
-乌克兰的比特币法案使点对点货币走出了“灰色”地带，建立了明确的立法，其中包括如何在法律上对待这种资产，以及在涉及投资者保护和保证时机构应该如何行事。
+11、新中国联邦第一大事是灭共，第二就是把教育搞好，G-EDU下周四有一次大直播关于教育；
 
-Tron说，现在比特币交易所将能够在明确的规则下工作，公民的资产将得到更好的保护，以防止服务提供者，包括托管人的欺诈或滥用。
+12、G-EDU老师一堂课是100美金起，工资4000-6000美金，无论学科。有躺平币奖励，可以选择喜币或者HDO支付；
 
-Tron告诉比特币杂志： “通过《虚拟资产法》向全球社会清楚地表明，加密货币在乌克兰是合法的。在乌克兰合法发展业务的机会将吸引全球各地的加密货币投资者来到我国。”
+13、G-EDU直属文贵先生管理，不再属于磐石农场，也不属于联盟管理；
 
-文章来源: [https://www.zerohedge.com/markets/ukraine-legalizes-bitcoin](https://www.zerohedge.com/markets/ukraine-legalizes-bitcoin)
+14、新中国联邦未来的教育，老师的好坏由学生说了算，孩子的好坏由第三方评估；
 
-翻译：洛杉矶盘古农场 – Mike Li
-校对：洛杉矶盘古农场 – 轰炸机
-评论：洛杉矶盘古农场 – 轰炸机
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – 子萍
+15、新中国联邦的GEDU现在开展的是线上课程，很快在日本、欧洲、美国、加拿大建立线下学校，根据学生的数量建立和开展；
 
+16、新中国联邦教育基金启动费1000万美元，已经到位，未来会达到100亿；
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+17、冬奥会结束后，金融界的瓦比比事件将接连发生，从演艺界开始；
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+18、金无怠死前写给美国的信说，一生最后悔的是加入中共，给共产党做间谍；
+
+19、中共特务就是利益、无知、洗脑、把柄的结果
+
+20、一旦开战，大连和辽宁会是重灾区；
+
+21、加拿大土豆会变成土豆泥；
+
+**注：大直播音频正在制作和上传中，敬请关注——**
+
+**（大直播音频位置）**
+
+编辑整理：文俊；
+
+发布：黎明之前；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

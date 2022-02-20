@@ -2,12 +2,12 @@
 ---
 
 
-## 2月20日文贵大直播摘要（图片6-10）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2037879/)
+## 七哥金句：无知之后付出的代价
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2037978/)
 
-设计：五月花农场 科存
-![](https://assets.gnews.org/wp-content/uploads/2022/02/184D3D9C-C7A5-4A69-833D-F4746C9FE4A7.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/D9316E72-3E44-407A-8644-4D7E9889FB61.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/39159D71-51B8-4F23-AEB2-119C820BAB9B.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/AC119528-CA14-4B07-91B5-93DEA5CE454E.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/B7589B4B-DE92-44DB-80A3-DC317C26BC01.png)
-发布：水涨船高
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句-3.png)
+整理：雅典娜农场
+发布：枫叶红了
 
  
 

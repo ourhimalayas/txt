@@ -2,19 +2,28 @@
 ---
 
 
-## 美国阿拉斯加 🇺🇸车队正在集结&#8230;&#8230;到处都在发生 🔥使纸牌屋崩溃
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2037666/)
+## 有声|欧盟就中共专利侵权在世贸组织发起诉讼
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2037717/)
 
-**这方加拿大卡车司机为自由而战，那方美国卡车司机也集结起来啦！**在全球最北的地方，在全球最冷的季节，在全球最黑暗的时刻 ……加拿大卡车司机從西部出發，向東横跨加拿大10天多的成程，集聚首都渥太华，为自由而战！感恩上帝！北美两大兄弟之国，在自由和民主即將被剥夺殆盡的时候，美國阿拉斯加司機也來了！老百姓以生命的代价，为自由而战！中国人，也有这样一拨人，那就是新中国联邦人！為自由而戰！Take down CCP!
+配音：香草山巡管部– 文凯琳
+![This image has an empty alt attribute; its file name is gtv-best-10.png](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-10.png)
+2月18日，欧盟委员会代表27个成员国在世贸组织发起诉讼，指控中共利用大陆司法系统，妨碍欧洲的电信企业保护知识产权。欧盟委员会在诉前还与日本和美国进行了磋商，因为他们的企业也面临类似问题。这些企业的代表有瑞典的爱立信、芬兰的诺基亚和日本的夏普。
 
-作者：东京樱花团视频小组
+欧盟委员会称，中共法院判决华为、小米等中共电信巨头可以以许可费原价的一半获得国外公司关键技术的专利，并利用“禁诉令”的法律机制，阻止国际公司在外国法院起诉中共公司，这些公司一旦起诉，就将面临每天13万欧元的罚款或刑事指控威胁。他们认为，这是中共政府利用法律手段在试图攫取全球权力，并使这些企业无法有效保护自己的发明专利。
 
-校对：东京樱花团视频小组
+文字版原文：[欧盟就中共专利侵权在世贸组织发起诉讼](https://gnews.org/zh-hans/2034841/)
 
-编辑发布：东京樱花团视频小组
+音频处理/发稿：Daxia
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
