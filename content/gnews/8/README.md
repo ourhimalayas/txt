@@ -2,36 +2,54 @@
 ---
 
 
-## 两名青少年在接种辉瑞疫苗后几天内死亡
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2033908/)
+## 普京在闪现中共冬奥会后严格保持社交距离
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2033942/)
 
-**编译：武松**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/185154D7-EC9F-439B-A7A4-B15CF01C26B8.jpeg)图片来源：https://www.naturalnews.com
-
-
-耶鲁大学和密歇根大学的研究人员发表了一篇关于两名男孩在第二次注射辉瑞公司的中共病毒疫苗后几天内死亡的论文，该论文发表在医学杂志《病理学与检验医学档案》上。该论文指出，两个男孩在没有被尝试复苏的情况下宣布死亡，同时揭示了研究人员在显微镜检查显示出类似于儿茶酚胺引起的损伤的特征，所以这些男孩并非得了致命心肌炎，而是类似于所谓的中毒性心肌炎，在这些接种疫苗后心脏中看到的心肌损伤与典型的心肌炎不同，其外观最类似于儿茶酚胺介导的应激（毒性）心肌病，细胞因子风暴具有已知的儿茶酚胺反馈回路，可能有助于指导筛查和治疗。
-
-这两个死亡虽然令人悲伤，但仅占注射后死亡总数的一小部分。事实证明，绝大多数由中共病毒引起的死亡甚至从未被报道过。现在全球已有数百万人死于这些疫苗，它们没有阻止传播，甚至不是疫苗，他们更多的是欺诈。”经过参考不同国家政府自己的疫苗死亡和受伤人数和数字，同时哈佛的研究得出的结论是只有十分之一的死亡被报告。年轻人比老年人更容易受到影响，看起来杀戮的目的是在人类繁殖之前将人类从地球上移除。
-
-**评：**
-
-**中共毒疫苗正在以极其危险的方式影响者人类生活的方方面面，全球黑暗势力对今天的行动已经规划很多年了，在杀死上亿人的同时榨取普通人全部的积蓄，获取极其肮脏的财富。另外黑暗势力控制的大媒体、社交平台一再鼓吹疫苗绝对有用，不接种疫苗就是对其他人不负责的可耻言论，可以说人类已经到达了生死存亡的阶段。正是在这个时候，新中国联邦站了出来，积极传播真相，揭露世界黑暗势力及中共的阴谋、野心，同时广泛传播病毒预防措施及疫苗解药，以此希望能够拯救更多的人类。我们一直坚信，在新中国联邦的引导下，一定可以摧毁邪恶势力，人类也必将迎来更美好的明天。**
-
-**原文链接：**
-
-[Two teenagers drop dead days after getting “vaccinated” with Pfizer – media silent](https://www.naturalnews.com/2022-02-19-two-teenagers-drop-dead-pfizer-vaccine.html#)
-
-**编辑：LILY**
-
-**发布：歪桑**
-
-20220219
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3343513D-87C5-433D-88D8-2DE98D14FF13.jpeg)
+作者: 日本方舟农场 – Andy5
 
 
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-44.png)
+
+
+当地时间2月14日俄罗斯总统普京，分别会见了俄罗斯的国防部长和外交部长。尽管这两位都是俄罗斯本国的高官，普京依旧跟他们保持了长达数米的社交距离。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-19-1-1.png)图片来源网络
+
+这并非是普京首次保持如此明显的社交距离。就在本月7日和15日，普京分别会见了法国总统马克龙，以及德国总理朔尔茨，会晤中都保持了6米以上的社交距离。但相反的是，早在今年1月跟伊朗总统的会晤中，普京在同一张桌子上安排了两名翻译，并没有出现照片中如此夸张的现象。甚至在去年11月底跟越南国家主席的会晤中，双方也仅是保持2米左右的距离。 分析人士指出，出席中共冬奥会成为普京这一转变的分水岭，在冬奥会的开幕式上，他也是一个人坐在看台上而没有去主席台。这就从侧面印证了郭文贵先生，在2月4日大直播中爆料的，普京团队抵达北京后多人出现感染的情况。
+
+参考来源：
+
+1. [https://world.huanqiu.com/article/46pIqRMQrFx](https://world.huanqiu.com/article/46pIqRMQrFx)
+
+
+2. [https://finance.sina.com.cn/jjxw/2022-02-16/doc-ikyakumy6267185.shtml](https://finance.sina.com.cn/jjxw/2022-02-16/doc-ikyakumy6267185.shtml)
+
+3.[https://cn.baochinhphu.vn/%E8%B6%8A%E5%8D%97%E5%9B%BD%E5%AE%B6%E4%B8%BB%E5%B8%AD%E9%98%AE%E6%98%A5%E7%A6%8F%E4%B8%8E%E4%BF%84%E7%BD%97%E6%96%AF%E6%80%BB%E7%BB%9F%E6%99%AE%E4%BA%AC%E4%B8%BE%E8%A1%8C%E4%BC%9A%E8%B0%88-11636160.htm](https://cn.baochinhphu.vn/%E8%B6%8A%E5%8D%97%E5%9B%BD%E5%AE%B6%E4%B8%BB%E5%B8%AD%E9%98%AE%E6%98%A5%E7%A6%8F%E4%B8%8E%E4%BF%84%E7%BD%97%E6%96%AF%E6%80%BB%E7%BB%9F%E6%99%AE%E4%BA%AC%E4%B8%BE%E8%A1%8C%E4%BC%9A%E8%B0%88-11636160.htm)
+
+4.[https://chinese.aljazeera.net/news/2022/1/20/%E8%8E%AB%E6%96%AF%E7%A7%91%E5%B3%B0%E4%BC%9A%E6%99%AE%E4%BA%AC%E4%BC%9A%E8%A7%81%E8%8E%B1%E5%B8%8C%E5%B9%B6%E5%BC%BA%E8%B0%83%E6%94%AF%E6%8C%81%E5%85%B1%E5%90%8C%E5%85%B3%E7%B3%BB](https://chinese.aljazeera.net/news/2022/1/20/%E8%8E%AB%E6%96%AF%E7%A7%91%E5%B3%B0%E4%BC%9A%E6%99%AE%E4%BA%AC%E4%BC%9A%E8%A7%81%E8%8E%B1%E5%B8%8C%E5%B9%B6%E5%BC%BA%E8%B0%83%E6%94%AF%E6%8C%81%E5%85%B1%E5%90%8C%E5%85%B3%E7%B3%BB)
+
+5. [秘翻在线：普京总统在北京冬奥会上打盹究竟为那般？](https://gnews.org/zh-hans/1958905/)
+
+
+
+![This image has an empty alt attribute; its file name is Feb-44.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-44.jpg)
+
+编辑/校对/发稿：Petite abeille
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is good-45.png](https://assets.gnews.org/wp-content/uploads/2022/02/good-45.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

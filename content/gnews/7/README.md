@@ -2,37 +2,47 @@
 ---
 
 
-## 中小学设置法治副校长推广习思想，军管的前奏？
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2033909/)
+## 郭先生宣布三条重大事项
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2034023/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
-
-整理/编辑：文泓
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/1-200.png)图片来源：ynyun.jcy.gov.cn & 雅典娜设计组
+作者: 纽约磐石农场 — 在远方
 
 
-中共国教育部将在五月起强制在各中小学设置由公安或司法人员担任“法治副校长”，借口推动习思想、保护学生和预防犯罪等。
 
-2月17日中共国教育部宣布，自5月1日起实施《中小学法治副校长聘任与管理办法》，未来每所中小学至少要设置一名“法治副校长”，负有六大职责，包括推动习近平法治思想学习宣传、开展法治教育，协助开展保护学生权益、预防未成年人犯罪、参与安全管理、实施或者指导实施教育惩戒、指导依法治理等职责。
 
-这项办法去年底颁布，共二十条，明确规定“法治副校长”是**指由法院、检察院、公安机关、司法行政部门推荐或委派，经教育行政部门或学校聘任，在学校兼任副校长职务，协助开展有关工作的人员**。
-中共国在中小学安插所谓“法治副校长”，层级仅次于校长，“对校园思想管理，竟然相当于校长的层级在做的事，管理全校所有单位包括老师、学生、职工、职员，管理思想拉高到接近校长层级。”
-设置法治副校长还有一个借口是保护学生。内地学校出现校园霸凌已不鲜见，墙内媒体呼吁了几十年没有得到解决，设置一位“法治副校长”就能一劳永逸？就像徐州丰县拐卖妇女案，每年无名女尸几十具，中共国公检法联合作恶，逝去的冤魂一样是得不到昭雪。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-44.png)
 
-今天看来，习近平祭出此招，纯粹是“新瓶装旧酒”，师从毛贼东文革时期的军管措施——全国人民学习解放军，让军队进驻企业和各大院校，掌控局势。现在让代表习思想的所谓法治副校长进入校园，应该是基层军管的前奏，未来大规模推广也未可知。
 
-新闻链接：[中国规定中小学聘用公检法人员 强制进行思想政治洗脑](https://www.rfa.org/mandarin/yataibaodao/zhengzhi/hx1-02182022082750.html)
+在2月16日的大直播中，郭先生宣布了三条重大事项：一是他短期内不可能离开美国；二是喜联储马上推出贷款和抵押政策，会有重大利好公告；三是习近平刚刚做了脾和肾的2个手术，对台湾行动暂缓。
 
-*发布：tianzhihuan*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-19-2.jpeg)
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+郭先生说，第一个是他的个人法律团队和安全团队，在跟日本和英国、特别是与美方的团队沟通之后，明确告知郭先生在一两年的时间内，甚至灭共之前，不可能离开美国。 第二是喜币和喜联储马上将推出，新的HPay政策，即H贷款和H抵押。在一个月之内，喜联储可能会有重大利好投资的，让世界震惊的新公告公布。郭先生幽默的说，虽然他个人破产了，但是千万个战友们却富了起来。 第三，郭先生隆重的宣布，习近平刚刚在对台作战室，同进行了脾脏和肾脏两个手术，“习太阳”的光芒已经非常暗淡。有内部战友告诉郭先生，习的手术可能会让中共，在剩余两三年的残命中加速灭亡。包括准备进攻台湾的事情，有可能会被迫放弃。习在手术苏醒后明确的说，对台湾的行动要暂缓。郭先生说，这是习近平在鬼门关前走过一遭之后，内心不再像原来那么疯狂所致，这对台湾是一个大好消息，上天会保佑台湾平安。
 
+
+
+参考来源：
+
+[https://www.gettr.com/post/puyopt1b1f](https://www.gettr.com/post/puyopt1b1f)
+
+
+
+![This image has an empty alt attribute; its file name is Feb-44.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-44.jpg)
+
+编辑/校对/发稿：Petite abeille
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is good-45.png](https://assets.gnews.org/wp-content/uploads/2022/02/good-45.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,58 +2,68 @@
 ---
 
 
-## Stew Peters Show：美国FDA里负责批准疫苗的人说无论如何疫苗都会得到批准，有多少人受到影响或永久残疾或被杀害都不重要，它仍会得到批准
-` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/2033797/)
+## 副总统哈里斯表示,如果俄罗斯入侵乌克兰,美国与盟国将使之付出巨大经济代价
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2033867/)
 
-#### 加拿大温哥华扬帆农场 视频组
+**美国副总统哈里斯**： 让我明确一点，我可以绝对肯定地说，如果俄罗斯进一步入侵 [#乌克兰](https://twitter.com/hashtag/乌克兰?src=hashtag_click)，美国将与我们的盟国和伙伴们一道，将使俄付出巨大的、前所未有的经济代价。
 
-素材：文倩
-翻译：Spirit
-字幕：路仁
 
-2022年2月16日的Stew Peters Show：
 
-《Project Veritas》节目再次出击，这次他们打到了美国食品和药物管理局的靶心。
+> Let me be clear, I can say with absolute certainty if Russia further invades Ukraine the United States, together with our Allies and partners, will impose significant, and unprecedented economic costs.
+> — Vice President Kamala Harris (@VP) [February 19, 2022](https://twitter.com/VP/status/1495000963886682113?ref_src=twsrc%5Etfw)
 
-克里斯托弗-科尔是美国食品和药物管理局对策倡议的执行主任，他知道该机构内部发生的事情，他向《Project Veritas》的卧底记者透露，也许透露这个词并不恰当，因为你知道这将会发生，他只是证实了这一点，但科尔透露，拜登政府的计划是让每个人每年都接种新冠疫苗直到永远。他们隐瞒了这一点以避免在短期内受到被拆穿并遭到回击，他还透露了另一件事，那就是儿童绝对不需要这个疫苗、永远不需要这个疫苗，这是一个定论，这一切都在这段视频录像上，展现在全世界面前，让大家都看到。
 
-克里斯托弗-科尔：拜登想给尽可能多的人接种疫苗，所以你们必须每年打一针，我们还没有正式宣布，因为他们不想激怒大家。
 
-克里斯托弗-科尔：药品公司、食品公司、疫苗公司，他们每年向我们支付数亿美元，以雇用和保留审查员来改进他们的产品，如果他们能让每个人每年接种疫苗，这就是他们公司的经常性资金回报。
+**美国务卿布林肯**： 美国与 [#乌克兰](https://twitter.com/hashtag/乌克兰?src=hashtag_click) 站在一起，反对俄罗斯在乌克兰边境的敌对言论和无端军事集结。 如果俄罗斯选择事态升级或进一步入侵乌克兰，我们将与我们的 [#G7](https://twitter.com/hashtag/G7?src=hashtag_click) 合作伙伴一起随时准备让俄罗斯承担严重后果并付出巨大代价。
 
-卧底记者：你怎么知道它已经得到批准了呢？
 
-克里斯托弗-科尔：嗯他们不会…就我所听到的一切来看，他们不会不批准它。
 
-克里斯托弗-科尔，他是美国食品和药物管理局的一名执行官员，有20多年的经验，他称自己直接参与了各种新冠疫苗的审批过程。
+> The U.S. stands with Ukraine against Russia’s hostile rhetoric and unprovoked military build-up along Ukraine’s borders. Along with our [#G7](https://twitter.com/hashtag/G7?src=hash&amp;ref_src=twsrc%5Etfw) partners we stand ready to impose massive consequences and severe costs on Russia, should it choose to escalate or further invade Ukraine. [pic.twitter.com/09qtl8iGQe](https://t.co/09qtl8iGQe)
+> — Secretary Antony Blinken (@SecBlinken) [February 19, 2022](https://twitter.com/SecBlinken/status/1495050150540107783?ref_src=twsrc%5Etfw)
 
-克里斯托弗-科尔：我认为将要发生的将是一个渐进的事情，学校会强制要求。
 
-卧底记者：为什么他们需要第三针？
 
-克里斯托弗-科尔：就像你或我“需要第三针”一样，说这三针会加强你的系统，然后会有一年一次的，最终会像流感疫苗一样每年一次。
+**众议院共和党**：
+“我们国家最需要的是道德清晰。是时候确认 #共产主义中国 是什么东西，它想要什么，以及它对自己的人民 – 和我们的人民都做了什么。” – 更多请阅读中国问题特别工作组组长麦考尔议员的文章 ⬇️
+【附文：(前美驻联合国大使) 妮基·海莉，迈克尓·麦考尔：观看北京奥运会时你看不到的东西
 
-卧底记者：对幼儿来说呢？
+历史将铭记2022年北京冬奥会是一场悲剧和耻辱。虽然中国共产党迫切希望人们在奥运会期间以积极的眼光看待其政权，但美国人应该将目光转向中共对国际运动员的间谍活动，其愤世嫉俗地利用奥运会推进自己的政治议程，其长久的人权侵犯史，以及对中国人民的残酷压迫。这就是北京2022的真实故事。】
 
-克里斯托弗-科尔：对每个人都是如此。
 
-卧底记者：哦，那么幼儿也是如此，每年？
 
-克里斯托弗-科尔：也许吧，我并不完全同意他们的程序。
+> “[W]hat our country needs more than anything else is moral clarity. It’s time to acknowledge what Communist China is, what it wants, and what it’s already doing to its own people — and ours.” – Read more from [@China\_TaskForce](https://twitter.com/China_TaskForce?ref_src=twsrc%5Etfw) leader [@RepMcCaul](https://twitter.com/RepMcCaul?ref_src=twsrc%5Etfw) ⬇️[https://t.co/ILbxsAFkg1](https://t.co/ILbxsAFkg1)
+> — House Republicans (@HouseGOP) [February 19, 2022](https://twitter.com/HouseGOP/status/1495015811618000901?ref_src=twsrc%5Etfw)
 
-卧底记者：你是什么意思，你不同意这个程序？
 
-克里斯托弗-科尔：我的意思是他们没有经过所有的测试不是吗？我同意给孩子打针是很重要的事情，但无法做到像通常那样给父母们提供保证。
 
-你可以在Project Veritas网站上查看未经剪辑的完整片段，有一个很好的标题前几天在推特上流传，这是2020年2月Vice.com的一个截图，标题都是关于阴谋论者的，他们警告说，疾病（新冠）的传播将导致疫苗强制接种和无限的监控，我们已经看到了，现在我们有了这两样东西，而且是来自食品和药物管理局本身，我们现在知道该计划是要让强制接种和新冠监控以及新冠本身永远持续下去。
+**前副国务卿基思·克拉奇**： 奥运会运动员正在使用“burner”手机，因为无法相信 [#中共](https://twitter.com/hashtag/中共?src=hashtag_click) 不监视他们。基于信任原则学说的清洁网络模式，是促进和平与自由的最有效方式。在国家利益[@TheNatlInterest](https://twitter.com/TheNatlInterest) 中阅读我与[@JonPelson](https://twitter.com/JonPelson) 的专栏文章。
 
-但我们有简-鲁比博士来帮助我们度过难关，她现在加入我们的周三版《询问简博士》，它证实了我们一直以来的说法，最令人毛骨悚然的是这些幼儿，他们直白的说不能告诉父母，不能向父母保证疫苗不会伤害他们的孩子，我是一个父亲，如果你靠近我的孩子，简医生，用这个针头，或者装着疫苗的注射器，它已经杀死了更多的人，创下了前所未有的记录，从未有过这种一针就能杀人的针剂。
+【附国家利益网上登载的克拉奇的文章：对 [#中共国](https://twitter.com/hashtag/中共国?src=hashtag_click) 极权主义的回答是值得信赖的技术 新模式有望迎来一个工业时代，[#中共国](https://twitter.com/hashtag/中共国?src=hashtag_click) 的技术霸权被打破，全球自由国家的公民可以进行自由交流，而不必担心独裁国家对其说话内容进行监控。】
 
-美国食品和药物管理局直截了当地说，那个负责批准这些疫苗的人说没有任何办法让它不得到批准，这里面有什么并不重要，有多少人受到影响或永久残疾，或失去婴儿或被杀害也不重要，疫苗仍会得到批准，要让人们每年打一针，记住我的话，这其中的监控部分，疫苗护照的二维码将被附在你的新智能冰箱上，除非你已经注射了一年的疫苗，否则冰箱门都打不开，这绝对是疯狂的。
 
-我很感谢克里斯托弗-科尔的傲慢，因为他刚刚肯定了我们在过去一年中所说的一切，他还证实了我在两个联邦法院提交的宣誓证词，解释了这些强制是完全非法的，因为它们是基于错误的数据类型或根本没有数据，而他现在才完全说出来，我关心的是为什么国会不停止这个食品和药物管理局呢？ 撤消一切关闭它，重新建立一个公民监督局来继续工作，他们被制药公司收买并支付，一半以上的收入来自制药业，谁认为这是好事？我还是很感激这个傲慢的人站出来承认他们本质上在做什么，而现在是拆解这些机构了的时候了。
 
-编辑/发文：Kent
+> Olympic athletes are using “burner” phones because the CCP can't be trusted not to spy on them. The Clean Network model, based on the Trust Principle doctrine is the most effective way to advance peace and freedom. Read my op-ed with [@JonPelson](https://twitter.com/JonPelson?ref_src=twsrc%5Etfw) in [@TheNatlInterest](https://twitter.com/TheNatlInterest?ref_src=twsrc%5Etfw).
+> — Keith J. Krach (@KeithJKrach) [February 19, 2022](https://twitter.com/KeithJKrach/status/1495054315991420929?ref_src=twsrc%5Etfw)
+
+
+
+**众议员帕特·法伦**： 我会这样说，一直说到我脸色发青——[#习近平](https://twitter.com/hashtag/习近平?src=hashtag_click) 正在注视着我们在东欧的一举一动。
+
+
+
+> I'll say it until I'm blue in the face – Xi Jinping is watching our every move in Eastern Europe.
+> — Rep. Pat Fallon (@RepPatFallon) [February 19, 2022](https://twitter.com/RepPatFallon/status/1495048275610591237?ref_src=twsrc%5Etfw)
+
+
+
+**比尔·格茨**： 和平通过实力来实现。苏莱曼尼解决方案应该是美国威慑的基础。让像普京和习近平这样的独裁者知道，他们的豪华轿车会因其侵略性也会变成这样。 【转推：大意：传统媒体会疑惑不解，为什么暴君普京在2014和2022年会入侵乌克兰，但在2017至2020年之间却不动】
+
+
+
+> Peace through Strength works. The Suleimani Solution should be the basis for US deterrence. Let dictators like Putin and Xi know that their limos will look like this for aggression [https://t.co/fQf1xMDngC](https://t.co/fQf1xMDngC) [pic.twitter.com/cK0aFYj1Yc](https://t.co/cK0aFYj1Yc)
+> — Bill Gertz (@BillGertz) [February 19, 2022](https://twitter.com/BillGertz/status/1494851055066050565?ref_src=twsrc%5Etfw)
+
+
 
  
 

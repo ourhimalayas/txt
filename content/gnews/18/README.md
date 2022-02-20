@@ -2,31 +2,28 @@
 ---
 
 
-## 有声|三方合作以H PAY销售榴莲单日成交近一万美元
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2033841/)
+## 中日财经爆┃可自由动用资金枯竭，阳光城要爆了！
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2033878/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-当地时间2月17日，台湾农场与马来西亚榴莲商家，及鸡血王喜币大作战节目三方合作，共同推出H PAY买榴莲送喜币的项目。当天成交了三十笔订单，以每笔订单价296 HDO计算，成交金额近一万美元。显示以H PAY支付来进行商业交易的模式将有无限的空间及发展潜力。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片4-9.png)[图片来源](http://beijingchentai.com/chentaidongtai/gongsidongtai/23.html)
+2月18日晚间，阳光城就深交所关注的问题进行了回复，称“可自由动用货币资金基本枯竭”。
 
-此次销售活动由台湾农场的合作商家提供十个喜币抽奖，在鸡血王喜币大作战2月16日的节目中引入商品贩卖广告。该榴莲商家提供买「四盒榴莲即送一个喜币」 的商品套餐作为促销手段，引起消费者的热烈响应。销售成功后赠送给买家的一个喜币则由台湾农场负责交付。
+除夕前夕，2000亿量级规模房企阳光城曾披露一份预亏公告，其中称2021年全年预亏45亿元—58亿元，同比下滑185%-210%。次日，阳光城就收到了深圳证券交易所的关注函，要求阳光城解释集中大额计提存货跌价准备的主要原因，以及是否存在流动性风险、经营是否具有重大不确定性等问题。
 
-这种由农场提供销售计划、藉由GTV节目平台做宣传、HPAY合作商家负责出货的联合商业行为，创造出了一种新的G系列营销一体化模式。如果加以推广及改进，未来将商机无限。
+阳光城称，2021年1—9月通过经营活动产生的现金流量净额为207.89亿元，较上年同期下降4.70%，因为银行贷款集中度管理等因素，出现一定降幅。同期融资活动产生的现金流量净额为-319.07亿元，主要系偿还大额有息债务，与借款相关的现金流入减少所致。
 
-文字版原文：[三方合作以H PAY销售榴莲单日成交近一万美元](https://gnews.org/zh-hans/2028463/)
+截至2021年12月末，阳光城在手货币资金较年初大幅下降，除预售资金受限及融资受限因素外，因整体环境持续严峻，金融机构及项目合作方股东对项目公司资金回拨集团非常谨慎，在实操过程中，对项目资金监管加强，所以动用项目资金极为困难，致使实操中可灵活动用资金占账面资金比例不足1%，回笼至集团层面难度极大，公司可自由动用货币资金基本枯竭。
 
-音频处理：Fei797
-发稿：Fei797
+看来阳光城真的彻底暴雷了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+信息来源：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[阳光城：可自由动用资金枯竭，或现大规模交叉违约](https://www.163.com/dy/article/H0J6EBM20519DDQ2.html)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
