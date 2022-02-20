@@ -2,30 +2,12 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年2月20日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2037827/)
+## 2月20日文贵大直播摘要（图片1-5）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2037832/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO-2.jpg)
-
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-19.png)
-文章仅代表作者本人观点，与Gnews无关
-
-视频参看：
-[2022.02.20早 《NFSC新闻》](https://gtv.org/video/id=6212421808ba8a07b19fe6fc)
-[2022.02.20早 G|TV《新闻访谈》](https://gtv.org/video/id=62124c4e08ba8a07b19ffdac)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-2.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+设计：设计部 科存
+![](https://assets.gnews.org/wp-content/uploads/2022/02/45C76FDA-7203-470D-8C1E-13CBF430D2AF.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/D5B3FDC9-B849-42F9-B241-DC5AE4007E13.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/9A3F7653-DEE6-4D05-B524-6C3238866077.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/1CF9162F-E41F-4118-BC91-CC2D0D2142D5.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/6757DDB2-6AEC-4645-98D2-35359CE5E627.png)
+发布：水涨船高
 
  
 

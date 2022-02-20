@@ -2,17 +2,27 @@
 ---
 
 
-## 底特律和温莎之间的大使桥占美国和加拿大之间所有贸易的25%桥上挤满了支持自由车队的卡车，使交通停滞不前
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2037738/)
+## 香草山翻译部周刊|2022年2月20日第36期
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2037771/)
 
-作者：东京樱花团视频小组
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO-2.jpg)
 
-校对：东京樱花团视频小组
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/02/220CN-1.png)
+文章仅代表作者本人观点，与Gnews无关
 
-编辑发布：东京樱花团视频小组
+总编： GBWater
+编辑： Lakers
+发稿： Lakers
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-2.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

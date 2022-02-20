@@ -2,58 +2,42 @@
 ---
 
 
-## 尸检证明 接种疫苗后心脏骤停和死亡的前没有征兆
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2037469/)
+## 丰县——中国共产党“以黑、警、骗治国”的样板区
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2037481/)
 
-作者：加拿大温哥华扬帆农场 動物農莊裡的小螞蟻[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
+**撰稿：日本东京方舟农场 青城道姑**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+丰县，一个位于江苏省西北角的小县城，2022虎年伊始，成为世界各类媒体瞩目的焦点，频频登上各类社交媒体的热搜。估计这里的领导有点“受宠若惊”，距离上一次这个小小的县城成为焦点的时刻，已经过去了两千多年。这里曾经诞生了中共开国主席毛泽东最喜欢的“封建皇帝里边最厉害的”汉高祖刘邦，然而这位汉高祖皇帝的诞生地至今依然蛮荒，两千多年的文明历程对这里的毫无改变。
 
-本文摘自2月14日，James R. Gill、Randy Tashjian、Emily Duncanson等三位病理学家（其中两位是法医）发表在病理学和检验医学档案（Archives of Pathology and Laboratory Medicine）的研究文章《[Autopsy Histopathologic Cardiac Findings in Two Adolescents Following the Second COVID-19 Vaccine Dose](https://meridian.allenpress.com/aplm/article/doi/10.5858/arpa.2021-0435-SA/477788/Autopsy-Histopathologic-Cardiac-Findings-in-Two)》。
+这一切，源自中国共产党。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-313.jpg)（图片来自gettr）
+新中国联邦创始人郭文贵先生曾经在直播中，对中共的治国手段做过精准形象的总结：“以黑治国、以警治国、以骗治国”。这一次的丰县的“锁链女”事件，中共的一系列操作手法形象的为郭文贵先生的总结做了示范样板。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/c5bbe3ac-a8ec-4716-a6fa-c30fc6579a79.jpeg)
+以黑治国
 
-在对两名接种Pfizer-BioNTech COVID-19病毒疫苗几天后死亡的十几岁男孩的尸检（Autopsies）组织病理学研究证明，是疫苗导致了他们的死亡。接种疫苗后的COVID-19死亡，可能实际相当大的部分是由于疫苗造成的，而不是COVID-19本身。同时，三位病理学家发现，可能有一种方法可以区分SARS-COV-2病毒感染引起的心肌炎（myocarditis）/心包炎（pericarditis）和疫苗引起的心脏损伤。
+“锁链女”事件之前，可能大部分人对于丰县的印象只是贫困县，汉高祖刘邦故地等的印象，现在大家才知道，原来丰县早不是刘姓的天下，这里“渠家”、“董家”才是大族，地方的医疗、财政、行政、政法等等居然都是这些家族的天下。在这里，如果姓渠或者姓董，有钱有势的可以走上前台从商从政捞钱，保“一方平安”，没钱没势的大概率可以得到别家玩剩下的可怜女人与你为奴，生儿育女。黑色家族化的社会体系，以这样的秩序维护着地方统治，只要不反抗中共，这一方水土就是家族的天下。这张黑色的大幕就在丰县这样的地方盖着，也在中国盖着，这黑色的长满虱子的被子，将中国大地盖着，然后中共叫嚣着向世界宣布，看哪，看我们的人民都在做着中国梦呢，他们多幸福啊……
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Covid-vaccine-teens-literally-heartbroken-feature-800x417-1.jpg)
+以警治国
 
-三位病理学家对两位死者进一步进行的COVID-19病毒病理学筛查结果为阴性，死者体内没有COVID-19相关药物或毒物，说明两位死者不存在COVID-19阳性或既往COVID-19感染史，这两名男孩死于疫苗。
+以警治国，这一手段从良心调查记者到P2P投资受害者再到政府官员，从北京到香港再到今天的丰县，一个又一个情景再现：这一帮老百姓血肉供养的“警察”举起手里的武器，他们立起隔离铁墙，他们在派出所孜孜不倦的审问的时候……还需要问吗，什么是以警治国？丰县的警察将去往那里的民间人士投入看守所，警察告诉你，“锁链女”就是小花梅，没有拐卖，没有强奸，没有…没有…,把提出问题的人都抓走，没有任何问题，这里没有罪恶，世界一片美好，你敢不相信吗？
 
-在对两位死者的心脏组织病理学检查后发现，两颗心脏均未显示出典型心肌炎，与有收缩带（contraction bands）和高嗜酸性肌细胞（hypereosinophilic myocytes）区域或有炎症的中毒性心肌病的心脏损伤不同，两个男孩的心肌损伤，外观类似于儿茶酚胺介导引起（catecholamine-mediated）的应激性（毒性）心肌病（cardiomyopathy）。
+以骗治国
 
-这种心脏受损伤模式与发生在具有极端物理、化学或情绪压力身上的暂时性心肌损伤患者，与临床诊断为Takotsubo、中毒性或“压力”心肌病患者的心肌损伤表现类似，属于为应激性心肌病（Stress cardiomyopathy）。
+有人提出证据：“锁链女”是李莹，那个中共党员，援藏干部走失的孩子。
 
-应激性心肌病是一种在没有冠状动脉疾病（coronary artery disease）或痉挛（spasm）的高儿茶酚胺状态下，儿茶酚胺导致的心脏缺血过程。这种病症也被称为“神经源性心肌损伤”（neurogenic myocardial injury）或“心脏破裂综合征”（broken heart syndrome）。
+警方不承认：他们宁愿去云南提取已过世三年的“小花梅”母亲的DNA鉴定，也不愿意将四川活生生的寻女多年李莹的生母找来，当面认亲。
 
-与直接由COVID-19病毒感染引起的感染过程不同，病理学家发现，这两个死者存在不同的心脏损伤机制。
+为何？
 
-病理学家们发现，在显微镜下，可以把由SARS-COV-2病毒感染引起的心脏损伤，和因为接种COVID-19病毒疫苗导致的应激性心肌病区分开来。
+当亲人相见，就骗不下去了。骗局揭开的时候，就会发现之前所有的说辞都是谎言，丰县上上下下所有的官员都是帮凶，这里就是拐卖人口的炼狱场。再来，原来为国“戍边”，为党效力，子女仍为此下场，不利于内部稳定，原来罪犯不会因为你是中共党员，就不会对你的子女下手。
 
-这种疫苗后反应可能代表了免疫系统的过度旺盛免疫反应，心肌损伤是由SARS-COV-2病毒和SARS-COV2病毒感染并发症发生细胞因子风暴引起的多系统炎症综合征（multisystem inflammatory syndrome，简称MIS-C）。
+“爹亲娘亲不如党亲”？丰县“锁链女”给出了响亮的回答。
 
-如果需要更多地了解如何具体发生的机理，需要对心脏组织进行活检，或者对COVID-19病毒患者进行尸检。
+如果你还想问，什么是“以黑治国”？什么是“以警治国”？什么是“以骗治国”？欢迎您到丰县去。
 
-然而，由于没有人对COVID-19病毒患者进行心脏活检，也很少对死于COVID-19病毒的患者进行尸检，目前组织病理学界对心肌炎发生的机理知之甚少，导致除了评估症状之外，目前根本没有筛查心脏损伤的实用方法。
-
-这两个男孩在心脏骤停和死亡之前没有任何心肌炎症状（发烧、胸痛、心悸或呼吸困难）征兆，仅只有其中一个男孩曾反映过头痛和胃部不适，而另一个也没有。
-
-时至今日，全世界已经接种10,349,631,022剂COVID-19病毒疫苗！
-
-感谢三位病理学家的尸检结论，带给人们深深的思考！
-
-人们接种COVID-19病毒疫苗后，直到他们成为COVID-19重症患者或在运动中突然心脏骤停和死亡前，没有征兆！
-
-未来全世界会发生什么？
-
-參考資料：
-
-[COVID-19 Dashboard by the Center for Systems Science and Engineering (CSSE) at Johns Hopkins University (JHU)](https://www.arcgis.com/apps/dashboards/bda7594740fd40299423467b48e9ecf6)
-
-[Autopsy Histopathologic Cardiac Findings in Two Adolescents Following the Second COVID-19 Vaccine Dose](https://meridian.allenpress.com/aplm/article/doi/10.5858/arpa.2021-0435-SA/477788/Autopsy-Histopathologic-Cardiac-Findings-in-Two)
-
-[Autopsies Show: Vaccinating Teens for COVID Is Literally ‘Heartbreaking’](https://childrenshealthdefense.org/defender/autopsies-vaccinating-teens-covid-heartbreaking/)
-
-編輯：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上傳：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+素材采编：青城道姑
+编辑：老孙
+发布：爱放飞
 
  
 
