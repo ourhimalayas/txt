@@ -2,59 +2,30 @@
 ---
 
 
-## 尸检证明 接种疫苗后心脏骤停和死亡的前没有征兆
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2037469/)
+## 有声|郭先生揭露习近平的痛苦之源
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2037572/)
 
-作者：加拿大温哥华扬帆农场 動物農莊裡的小螞蟻[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
+配音：香草山巡管部– 文凯琳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月18日，郭文贵先生在大直播中揭露，中共北京冬奥会期间，墙内的三名女性成为引发习近平不得不做手术的痛苦之源。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+首先，彭帅事件仍然让很多参加中共冬奥会的各国运动员质疑，他们还在探究彭帅的发声是否真实，以及中共对此的处理是否合理合法。
 
-本文摘自2月14日，James R. Gill、Randy Tashjian、Emily Duncanson等三位病理学家（其中两位是法医）发表在病理学和检验医学档案（Archives of Pathology and Laboratory Medicine）的研究文章《[Autopsy Histopathologic Cardiac Findings in Two Adolescents Following the Second COVID-19 Vaccine Dose](https://meridian.allenpress.com/aplm/article/doi/10.5858/arpa.2021-0435-SA/477788/Autopsy-Histopathologic-Cardiac-Findings-in-Two)》。
+再者，徐州“铁链女”事件爆发的时间以及其所造成的国际影响让习近平很难堪。郭先生提到，班农先生和纳瓦罗先生都为“铁链女”的遭遇而流泪，甚至连习近平的母亲与彭丽媛都感到气愤。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/c5bbe3ac-a8ec-4716-a6fa-c30fc6579a79.jpeg)
+文字版原文：[郭先生揭露习近平的痛苦之源](https://gnews.org/zh-hans/2032656/)
 
-在对两名接种Pfizer-BioNTech COVID-19病毒疫苗几天后死亡的十几岁男孩的尸检（Autopsies）组织病理学研究证明，是疫苗导致了他们的死亡。接种疫苗后的COVID-19死亡，可能实际相当大的部分是由于疫苗造成的，而不是COVID-19本身。同时，三位病理学家发现，可能有一种方法可以区分SARS-COV-2病毒感染引起的心肌炎（myocarditis）/心包炎（pericarditis）和疫苗引起的心脏损伤。
+音频处理/发稿：Daxia
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Covid-vaccine-teens-literally-heartbroken-feature-800x417-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-三位病理学家对两位死者进一步进行的COVID-19病毒病理学筛查结果为阴性，死者体内没有COVID-19相关药物或毒物，说明两位死者不存在COVID-19阳性或既往COVID-19感染史，这两名男孩死于疫苗。
-
-在对两位死者的心脏组织病理学检查后发现，两颗心脏均未显示出典型心肌炎，与有收缩带（contraction bands）和高嗜酸性肌细胞（hypereosinophilic myocytes）区域或有炎症的中毒性心肌病的心脏损伤不同，两个男孩的心肌损伤，外观类似于儿茶酚胺介导引起（catecholamine-mediated）的应激性（毒性）心肌病（cardiomyopathy）。
-
-这种心脏受损伤模式与发生在具有极端物理、化学或情绪压力身上的暂时性心肌损伤患者，与临床诊断为Takotsubo、中毒性或“压力”心肌病患者的心肌损伤表现类似，属于为应激性心肌病（Stress cardiomyopathy）。
-
-应激性心肌病是一种在没有冠状动脉疾病（coronary artery disease）或痉挛（spasm）的高儿茶酚胺状态下，儿茶酚胺导致的心脏缺血过程。这种病症也被称为“神经源性心肌损伤”（neurogenic myocardial injury）或“心脏破裂综合征”（broken heart syndrome）。
-
-与直接由COVID-19病毒感染引起的感染过程不同，病理学家发现，这两个死者存在不同的心脏损伤机制。
-
-病理学家们发现，在显微镜下，可以把由SARS-COV-2病毒感染引起的心脏损伤，和因为接种COVID-19病毒疫苗导致的应激性心肌病区分开来。
-
-这种疫苗后反应可能代表了免疫系统的过度旺盛免疫反应，心肌损伤是由SARS-COV-2病毒和SARS-COV2病毒感染并发症发生细胞因子风暴引起的多系统炎症综合征（multisystem inflammatory syndrome，简称MIS-C）。
-
-如果需要更多地了解如何具体发生的机理，需要对心脏组织进行活检，或者对COVID-19病毒患者进行尸检。
-
-然而，由于没有人对COVID-19病毒患者进行心脏活检，也很少对死于COVID-19病毒的患者进行尸检，目前组织病理学界对心肌炎发生的机理知之甚少，导致除了评估症状之外，目前根本没有筛查心脏损伤的实用方法。
-
-这两个男孩在心脏骤停和死亡之前没有任何心肌炎症状（发烧、胸痛、心悸或呼吸困难）征兆，仅只有其中一个男孩曾反映过头痛和胃部不适，而另一个也没有。
-
-时至今日，全世界已经接种10,349,631,022剂COVID-19病毒疫苗！
-
-感谢三位病理学家的尸检结论，带给人们深深的思考！
-
-人们接种COVID-19病毒疫苗后，直到他们成为COVID-19重症患者或在运动中突然心脏骤停和死亡前，没有征兆！
-
-未来全世界会发生什么？
-
-參考資料：
-
-[COVID-19 Dashboard by the Center for Systems Science and Engineering (CSSE) at Johns Hopkins University (JHU)](https://www.arcgis.com/apps/dashboards/bda7594740fd40299423467b48e9ecf6)
-
-[Autopsy Histopathologic Cardiac Findings in Two Adolescents Following the Second COVID-19 Vaccine Dose](https://meridian.allenpress.com/aplm/article/doi/10.5858/arpa.2021-0435-SA/477788/Autopsy-Histopathologic-Cardiac-Findings-in-Two)
-
-[Autopsies Show: Vaccinating Teens for COVID Is Literally ‘Heartbreaking’](https://childrenshealthdefense.org/defender/autopsies-vaccinating-teens-covid-heartbreaking/)
-
-編輯：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上傳：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

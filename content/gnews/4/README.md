@@ -2,34 +2,55 @@
 ---
 
 
-## 台外长表示不想战争但绝不向中共低头
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2037443/)
+## 乌克兰实现比特币合法化
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2037559/)
 
-作者：纽约香草山 医疗部 云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月17日，英国一家电视台对台湾外交部长吴钊燮做了专访，并以“台湾忧心俄罗斯侵略行为促成中共大胆攻台”为标题，进行了报导。吴外长接受采访时表示，台湾不想战争，但绝不会因为畏战而向中共低头。
+**评论：***郭文贵先生直播中说过，乌克兰会用上喜币，比特币合法化是一个标志性事件，世界正在走向数字币的天下。*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-8.jpeg)
+据《零对冲》转载比特币杂志文章，作者：Namcios，2022年2月17日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1902.png)图片来源：零对冲
+比特币此时此刻在乌克兰是合法的，因为其议会在审议中批准了一项法案，以满足总统的建议。但是，该国并没有将比特币视为法定货币。
 
-采访记者认为，中共正密切关注乌克兰情势与俄罗斯的策略，尤其是美国对乌克兰危机的反应，并询问吴外长台湾的预测和态度。对此，吴外长表示，冬奥结束之后，中共何时会发动攻击，谁也不知道。 近一年，中共军机持续侵扰台湾防空识别区，明显有攻打台湾的意图。所有民主国家都会坚决捍卫自己的生活方式，台湾也会做好随时因应中共攻击的准备。
+“新法律是我国商业发展的一个额外机会。外国和乌克兰的加密货币公司将能合法经营，乌克兰人将能方便和安全地进入全球虚拟资产市场。” 乌克兰数字转型部长Mykhaylo Fedorov在一份声明中说。
 
-采访中，吴外长也表示感谢英国和许多友台国家，以实际行动支援、维持台海的自由航行权，展现出民主国家团结的力量。台湾很难单独面对中共威权的压制，需要世界各地民主国家团结起来，力量才会更强大。
+根据一份官方声明，议会于周四以超过270票通过了新的《乌克兰虚拟资产法》。该法案详细规定了交易所等比特币服务提供商应遵守的要求，并确定了违反法律规定的罚款，此外还决定由该国的国家证券委员会监管加密货币市场。
 
-参考链接：[吳釗燮：台灣不想要戰爭 也絕不會向中國低頭](https://www.cna.com.tw/news/aipl/202202180326.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+声明说，乌克兰证券委员会将负责向比特币和加密货币服务提供商发放许可证，并对市场进行监督和财务监测。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+乌克兰曾在9月提出过一个类似的加密货币法案，但总统沃洛季米尔-泽伦斯基（Volodymyr Zelensky）在接下来的一个月里否决了该法案，认为该国没有能力专门为比特币和加密货币创建一个新的监管机构。
 
-总编：Zion文恩
-编辑：飞虹
-校正/发稿：谐趣园
+泽伦斯基总统随后将该法案退回给乌克兰议会，并建议让现有的监管机构来监督这个新兴的行业。现在，议会已经采纳了他的建议并通过了修订后的法案。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+对加密货币立法有利于企业家创业，并吸引资本。
+
+白石管理公司和Parea基金会国际基金的创始人Serhiy Tron告诉比特币杂志：“《虚拟资产法》在很大程度上是一部框架法，需要进一步的实质性完善，例如，对税法的修改。”
+
+“尽管如此，该文件成为全球社会的一个重要信号，因为乌克兰国家银行正式表示，加密货币是’货币代用品，没有实际价值’。”
+
+Tron表示，乌克兰数字转型部计划使该国成为全球比特币和加密货币市场的领导者，而新的法律为其提供了便利。
+
+“通过创建一个高科技、创新的加密货币市场，按照明确的规则行事，该国期望来自世界各地的加密货币投资者迅速到来。” 他补充说。
+
+乌克兰的比特币法案使点对点货币走出了“灰色”地带，建立了明确的立法，其中包括如何在法律上对待这种资产，以及在涉及投资者保护和保证时机构应该如何行事。
+
+Tron说，现在比特币交易所将能够在明确的规则下工作，公民的资产将得到更好的保护，以防止服务提供者，包括托管人的欺诈或滥用。
+
+Tron告诉比特币杂志： “通过《虚拟资产法》向全球社会清楚地表明，加密货币在乌克兰是合法的。在乌克兰合法发展业务的机会将吸引全球各地的加密货币投资者来到我国。”
+
+文章来源: [https://www.zerohedge.com/markets/ukraine-legalizes-bitcoin](https://www.zerohedge.com/markets/ukraine-legalizes-bitcoin)
+
+翻译：洛杉矶盘古农场 – Mike Li
+校对：洛杉矶盘古农场 – 轰炸机
+评论：洛杉矶盘古农场 – 轰炸机
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – 子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,38 +2,34 @@
 ---
 
 
-## 日本的出口增长低于预期，贸易逆差飙升
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2037365/)
+## 台外长表示不想战争但绝不向中共低头
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2037443/)
 
-**翻译：【日本东京方舟农场】Skyfrog**
+作者：纽约香草山 医疗部 云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月17日，英国一家电视台对台湾外交部长吴钊燮做了专访，并以“台湾忧心俄罗斯侵略行为促成中共大胆攻台”为标题，进行了报导。吴外长接受采访时表示，台湾不想战争，但绝不会因为畏战而向中共低头。
 
-日本1月份出口增速低于预期，原因是制造商面临海外汽车需求放缓的压力，以及全球供应限制的困境。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-309.jpg)（图片来源：cnbc.com）
-这个全球第三大经济体出现了8年来最大的单月贸易逆差，原因是燃料和原材料成本的持续上涨导致进口激增，进口价值超过了出口。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-8.jpeg)
 
-不断扩大的贸易逆差突显出，这个依赖出口的经济体面临着大宗商品和原材料成本不断飙升的风险，制造商依赖在国内生产的产品用于出口。
+采访记者认为，中共正密切关注乌克兰情势与俄罗斯的策略，尤其是美国对乌克兰危机的反应，并询问吴外长台湾的预测和态度。对此，吴外长表示，冬奥结束之后，中共何时会发动攻击，谁也不知道。 近一年，中共军机持续侵扰台湾防空识别区，明显有攻打台湾的意图。所有民主国家都会坚决捍卫自己的生活方式，台湾也会做好随时因应中共攻击的准备。
 
-财政部周四公布的数据显示，1月份出口同比增长9.6%，低于路透社调查的市场预期中值16.5%，而此前一个月的增长率为17.5%。
+采访中，吴外长也表示感谢英国和许多友台国家，以实际行动支援、维持台海的自由航行权，展现出民主国家团结的力量。台湾很难单独面对中共威权的压制，需要世界各地民主国家团结起来，力量才会更强大。
 
-按地区划分，日本对其最大贸易伙伴中国的出口，在截至1月份的12个月里下降了5.4%，这是19个月以来首次出现萎缩，原因是对中国的通用机械出口减弱。
+参考链接：[吳釗燮：台灣不想要戰爭 也絕不會向中國低頭](https://www.cna.com.tw/news/aipl/202202180326.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-日本对美出口1月份增长11.5%，原因是机械出口的增长超过了汽车出口的下降。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-截至1月份的一年中，日本进口激增39.6%，增幅中值为37.1%，贸易逆差为2.1911万亿日圆(合189.9亿美元)，逆差中值为1.607万亿日圆。
+总编：Zion文恩
+编辑：飞虹
+校正/发稿：谐趣园
 
-另一项政府数据显示，12月份核心机械订单较前一个月增长3.6%，好于预期的下降1.8%，核心机械订单是衡量未来6至9个月资本支出的先行指标。
-
-制造厂商预计核心订单在前一季度增长6.5%后，1 – 3月将下降1.1%。
-
-日本政府周二公布的数据显示，2021年最后一个季度，日本经济增长略低于预期，因为冠状病毒病例的下降帮助促进了消费增长，尽管欧米克戎病例创纪录的激增和原材料价格上涨给增长前景蒙上了阴影。
-
-原文链接：
-[https://www.cnbc.com/2022/02/17/japans-exports-grow-less-than-expected-trade-deficit-soars.html](https://www.cnbc.com/2022/02/17/japans-exports-grow-less-than-expected-trade-deficit-soars.html)
-
-素材採編：妙喜小油鍋
-校对：妙喜小油鍋
-发布：爱放飞
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

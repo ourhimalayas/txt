@@ -2,25 +2,43 @@
 ---
 
 
-## 声称乌克兰局势恶化 俄罗斯和白俄罗斯将继续军演
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2037156/)
+## 有声|美参议院通过支持乌克兰决议 警告俄罗斯
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2037284/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-307.jpg)
-[图片来源](https://www.jiji.com/jc/article?k=2022021900459&amp;g=int&amp;utm_source=yahoo&amp;utm_medium=referral&amp;utm_campaign=link_back_edit_vb#:~:text=%E5%A4%A7-,%E4%B8%80%E7%B7%9A%E8%B6%8A%E3%81%88%E3%82%8C%E3%81%B0%E3%80%8C%E5%85%A8%E9%9D%A2%E6%88%A6)
+配音：香草山农场 – 信念7
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
 
-白俄罗斯国防部20日宣布，自2月10日以来该国与俄罗斯军队进行的联合军事演习将继续进行。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/download-9.jpg)
 
-该决定是普京和白俄罗斯总统亚历山大-卢卡申科为应对顿巴斯地区不断恶化的局势而做出的。在乌克兰东部政府军和亲俄派武装势力之间的冲突仍在继续。演习原定持续到20日。在俄乌危机不断升级的情况下，继续军演恐会招致美欧进一步责难。预计，有3万名俄罗斯军队入驻白俄罗斯。
 
-白俄罗斯国防部长赫雷宁表示，由于边境附近的军事活动极度活跃，顿巴斯地区局势持续恶化，白俄罗斯和俄罗斯总统决定随时检查部队反应力以应对乌克兰政府军。目的是遏制恶意势力在边境地区的军事活动，并作出适当的反应。
+外媒02月17日报道，美国参议院星期四晚间，举行了罕见的两党投票，对乌克兰独立表示支持，并对俄罗斯的军事侵略企图发出警告。 与此同时，西方对俄罗斯可能入侵乌克兰出现新担忧，这种担忧可能升级为一场欧洲战争。
 
-[信息源](https://news.yahoo.co.jp/articles/dad0e636e9b3985d0be2ab98ddb1ceb354e4ad9f#:~:text=%E3%83%88%E3%83%94%E3%83%83%E3%82%AF%E3%82%B9%E4%B8%80%E8%A6%A7-,%E3%83%AD%E3%82%B7%E3%82%A2%E3%81%A8%E3%83%99%E3%83%)：
+在参议院投票表决之前，美国总统拜登表示，美国有情报表明，俄罗斯可能在几天内对乌克兰发动袭击。 在俄罗斯军队仍在乌克兰边境集结之际，美国官方认为俄罗斯总统普京可能实施侵略乌克兰的计划。
 
-编辑：东京樱花团/麗子
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+美参议院的决议一致表决通过，表明美国立法机构将支持乌克兰和谴责俄罗斯的侵略记录在案。 本周，美参议员们都在高度关注俄乌日益紧张的局势，许多参议员希望更进一步，对俄罗斯和普金实施毁灭性的制裁，这将对俄罗斯经济造成重要打击。
 
+有关人士对此评论，俄罗斯侵略乌克兰必将遭到美国及西方国家的严厉制裁，美参议院通过紧急决议，就是严重警告俄罗斯不要轻举妄动跨越红线。
+
+
+
+文字版原文：[美参议院通过支持乌克兰决议 警告俄罗斯](https://gnews.org/zh-hans/2030265/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

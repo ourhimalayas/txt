@@ -2,24 +2,36 @@
 ---
 
 
-## 日本外相林芳正在国际会议上表明将在台湾问题上与中共国竞争
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2037283/)
+## 中共掩盖锁链女真相打压爆料者
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2037399/)
 
-撰稿：东京樱花团｜百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-1-11.png)
-[*图片来源*](https://www.sankei.com/article/20220220-QXURZOFDY5J7TIJDY42XWUVFDA/photo/J4ZHXGW7Y5K7DHJDW2ZTKRYCHY/#:~:text=%E3%82%82%E3%81%A3%E3%81%A8-,%E6%9E%97%E5%A4%96%E7%9B%B8%E3%80%8C%E5%8F%B0%E6%B9%BE%E5%95%8F%E9%A1%8C%E3%81%A7%)
+作者：纽约香草山农场-恩永存
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生在最近两次大直播，及2月19日盖特视频中，持续揭露中共专制统治下，很多女性被拐卖欺压的悲惨遭遇。
 
-2月20日据《产经新闻》在线报道：2月19日下午，日本外相林芳正参加了在德国慕尼黑举行的安全会议小组讨论会。林外相表示，在台湾问题、AI（人工智能）、量子技术和生物技术等高科技领域，我们必须以民主和人权等价值观为基础与美国和其它国家竞争。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide5-11.jpeg)
 
-印度外长苏杰生和澳大利亚外长佩恩也参加了用英语进行的小组讨论。林芳正外相解释了日本-美国-澳大利亚和印度（四国）框架，并表示，友好国家之间分享价值观是应对气候变化、促进基础设施发展和高端技术合作的关键。
+据郭先生透露，他老家有个村，有百十个被买来的女人。周边几省有上百万被拐卖来的女子，全国每年估计干万女人被倒卖。有的是母亲和孩子一起被拐卖。穷人买女人为生孩子，贪官买女人就逼其做性奴。有的女性被关在黑屋里，有的则锁链不离身，有的被打成残废，有的丧命而尸首无存。中共自改革开放以来，拐卖妇女儿童的罪恶买卖一直存在，许多地方官员暗中默许。
 
-同时，在谈到台湾问题时他强调，台湾是日本非常重要的伙伴和朋友。台湾海峡的和平与稳定不仅对日本、而且对国际社会的稳定与安全也很重要；对乌克兰问题严重关切；在朝鲜问题上他表示，虽然现在不能就朝鲜问题举行六方会谈，但在朝鲜问题上必须与中共国进行合作。
+郭先生悲愤谴责中共掩盖八孩锁链女真相，反而速查打击爆料真相者。中共向来对坏人保护，几十年都不追查结果。新中国联邦揭真相，讲真话，传正道，故中共把我们当大敌，污蔑爆料革命者。全球的奸商政客们与中共勾兑，狼狈为奸，要名利，贪美色，讲假话，互称朋友。
 
-信息源：[**林外相「台湾問題で中国と競い合う」 国際会議で説明**](https://www.sankei.com/article/20220220-QXURZOFDY5J7TIJDY42XWUVFDA/photo/J4ZHXGW7Y5K7DHJDW2ZTKRYCHY/#:~:text=%E3%82%82%E3%81%A3%E3%81%A8-,%E6%9E%97%E5%A4%96%E7%9B%B8%E3%80%8C%E5%8F%B0%E6%B9%BE%E5%95%8F%E9%A1%8C%E3%81%A7%)
+中国人的家庭伦理关系，被中共无神论洗脑教育祸害，许多人妻离子散，人与人之间互不信任，处处设防，没有信仰，不分善恶，贪得无厌，缺乏真爱，失去自由。中国人唯一的出路，就是加入新中国联邦，回归正道主义，找回真正的自我，回归正常的人生模式。
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / yuxingcao01*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+参考链接：[https://gettr.com/post/pviwuoa122](https://gettr.com/post/pviwuoa122)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+
+总编：Zion文恩
+编辑：静言
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
  
