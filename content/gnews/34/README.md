@@ -2,23 +2,15 @@
 ---
 
 
-## 《历史的今天》2022.02.20
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2036408/)
+## 中共体制是政治病毒、人权病毒
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2036561/)
 
-作者：信正
-![](https://assets.gnews.org/wp-content/uploads/2022/02/0220-2-scaled.jpg)
-一，1831年：波兰革命者在格罗乔夫战役中击败了俄国人。
-二，1872年：纽约市的大都会艺术博物馆向公众开放，它后来成为世界上最重要的博物馆之一。
-三，1911年 ：中国东三省发生鼠疫。
-四，1918年：苏联红军占领乌克兰首都基辅。
-五，1936年：东北抗日联军成立。
-六，1962年： 约翰格伦乘坐水星-大力神号宇宙飞船升空，环绕地球3圈，成为首个进入地球轨道的美国宇航员。
-七，1988年：纳戈尔诺-卡拉巴赫自治州投票决定脱离阿塞拜疆，加入亚美尼亚，引发了第一次纳戈尔诺-卡拉巴赫战争。
-八，2011年：受突尼西亚茉莉花革命的影响，部分中国异见者发起中国茉莉花革命， 反中国共产党抗议示威运动。
-九，2020年：文贵先生和班农先生在作战室和喜马拉雅大使馆共同直播。郭先生在班农战斗室第21期谈武汉疫情。
+文贵大直播20220220
 
-* * *
+撰稿：青山（英喜）
 
+美工：Sotres（香草山）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片1-30.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片2-32.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片3-28.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片4-29.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片5-28.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片6-29.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片7-19.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片8-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片9-2.png)
 *发布：Theodosia*
 
  

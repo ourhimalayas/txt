@@ -2,32 +2,25 @@
 ---
 
 
-## 疫情延烧致港首“选举”被迫延期
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2037125/)
+## 【G时新闻】为有需要的人提供法律援助
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2037203/)
 
-作者：纽约磐石农场—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据台媒消息，因中共病毒疫情蔓延，当地时间2月18日晚间，香港行政长官林郑月娥宣布批准引用紧急条例，将行政长官“选举”推迟至5月8日举行。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-20-上午9.22.46.png)
-据悉，香港18日新增3629例，初步阳性案例7600例，这已是连续第三天，两项数字合计超过一万例。
+加拿大温哥华扬帆农场   播报：悠然   视频制作: Gracelshan
 
-林郑表示，目前香港疫情是两年来最严重的时期，形势相当危急，港共政府要集中力量应对。延期选举也是中共国家主席习近平授意的，看来港共必须将控制疫情作为当前压倒一切的政治任务来做。
+2022年2月17日，渥太华的一位刑事律师大卫-安伯（David Anber）在镜头前对公众说：“我只想说一件事，因为在过去的几天里，我接到了很多相关的电话，社区里有很多人捐钱支持卡车司机，我不相信任何人可以说他们这样做是恶意的，我认为卡车司机所处的位置非常重要，而且不仅仅是对他们来说，对所有加拿大人来说都是如此。”
 
-参考链接：[林鄭月娥宣布香港特首選舉延至5月8日舉行](https://cn.rti.org.tw/news/view/id/2124933)
+因此为抗议活动捐款的人不应该为此感到羞耻，现在如果有任何人与我所列举的严重扰乱流动、人员或货物的事情有任何联系。即严重干扰贸易、基础设施或暴力，如果你的任何捐款与此相关
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+当然政府有权力采取行动，或让金融机构采取行动，但我想说的是，对于那些已经捐赠并担心的人，直到或除非你真的遇到账户被冻结的实际问题，或当局与你联系。
 
-总编：Zion文恩
-编辑：静言
-校正/发稿：呼吸的雾霾（文小呼吸）
+我见过很多人都快哭了，想知道他们的房子会不会被抢走，他们能不能养活自己的孩子，我想让每个人都知道，至少现在在假设的基础上，小额的捐款是不会有问题的，如果银行或当局为此联系你，你可以联系我，或在银行冻结你资产的情况下进行民事诉讼，我们会尽可能确保你的利益得到照顾。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+大卫-安伯的律师事务所网址：[https://www.davidanber.com/](https://www.davidanber.com/)
+
+听写/翻译：LuLu1312
+字幕：圣骑士
+编辑/上传：圣骑士
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

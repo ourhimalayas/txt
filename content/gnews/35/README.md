@@ -2,44 +2,34 @@
 ---
 
 
-## CDC紧急警告：每个人都有血栓的风险！即使是最健康的运动员
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2036355/)
+## 加拿大卡车司机的警醒——没有人是安全
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2036535/)
 
-编译： Jenny Ball
+编译：wenwu
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/99459a8a83ff23011f981e633d392a11.jpg)图片：AFP
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-2-4.jpg)图片来源：cyclonis.com
 
-**CDC **和辉瑞公司最近都发布了关于**“**血栓**”**的公开警告。
+一位加密货币专家对加拿大政府如何冻结自由车队抗议者的加密货币钱包敲响了警钟，并在美国的抗议者也不会幸免。
 
-去年 2 月 10 日，疾病预防控制中心（CDC）发出警告，竟然想使年轻人和健康运动员出现血栓的想法正常化。
+为了对加拿大自由车队抗议活动的参与者进行反击，加拿大总理贾斯汀·特鲁多（Justin Trudeau）周一（14日）援引了《紧急状态法》，赋予政府通过拖走车辆和冻结个人银行账户等更直接措施来清除抗议活动的能力。
 
-然而，在 COVID 疫苗出现之前，没有人听说过这种频繁出现的现象。
+加拿大副总理弗里兰（Chrystia Freeland）在周四的新闻发布会上说，加密货币钱包已经被冻结。
 
-“ [你知道] 任何人都可以形成血栓吗？ 无论您是运动员还是球迷，都不要让血块毁了本周末的比赛。 了解如何保护您的健康：https://bit.ly/2lOpGEB，”CDC 在推特上写道。
+弗里兰说：“加拿大皇家骑警已经将（抗议者的）个人和实体的名字以及加密货币钱包与（银行）金融机构分享，（他们的）账户已经被冻结…更多账户将被冻结。”
 
-但 CDC 没有在他们的网站上提到 COVID-19 疫苗是可能增加这种风险的因素之一。
+卡托研究所货币和金融替代方案中心（Cato Institute’s Center for Monetary and Financial Alternatives）的经理尼古拉斯·安东尼（Nicholas Anthony）告诉 FOX Business，美国政府也会引用加拿大政府的镇压策略。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-18-at-10.02.17-PM.jpg)图片来自原文
+安东尼表示，扣押个人资金是“专制政权的专利”，是对反对政府政策的公民的一种惩罚形式，并且这专制政权的野火会从加拿大烧到美国。
 
-去年，由明尼苏达州罗切斯特市梅奥诊所的研究人员进行并发表在《美国医学会杂志》(JAMA) 上的一项令人震惊的新研究得出结论，强生公司的 Covid 疫苗会增加患大脑中罕见且致命的凝血状况。
+安东尼的评论是在美国卡车司机正在计划他们自己的“自由车队”，以抗议美国政府的COVID-19 限制和授权的方式。
 
-据市场观察报道，牛津大学去年初的一项研究还显示，接种辉瑞和莫德纳疫苗的人，在接种疫苗后出现血栓的人数与阿斯利康的人数大致相同。
+安东尼说，在加拿大政府对抗议者的个人银行账户和加密货币钱包所采取冻结的手段上，“没有人是安全的”。也就是说，如果金融交易存在第三方充当中间人的话，那么这说明自己私人财产是存在被扣押的风险。
 
-在 CDC 发出警告后，辉瑞公司于 2 月 14 日发布了关于“深静脉血栓形成”或静脉血栓的公开警告。
+安东尼认为，个人“规避”政府可能扣押其加密货币钱包的最佳方式是避免第三方平台，将其加密货币托管在“自我托管的钱包”（译者注：比方Hpay或者冷钱包）中。
 
-“深静脉血栓形成 (DVT) 是深静脉中的血凝块，可进入肺部，导致肺栓塞 (PE)。PE的症状包括呼吸困难和胸痛。如果出现症状，请联系您的医生——现在不是等待的时间，”辉瑞在推特上写道。
+他指出，俄亥俄州众议员沃伦·戴维森(Warren Davidson)本周在美国众议院提出了一项名为“保留你的硬币法案”（Keep Your Coins Act）的法案，该法案将禁止任何联邦政府机构制定关于”损害个人作为自我托管人的能力”的法规。 对于那些认为美国政府应该有权随时扣押银行账户或加密货币钱包的人，安东尼说，他们应该看看专制国家在过去是如何使用这种权力的；在中共国，中共政府用冻结银行账户来关闭支持民主的抗议活动。
 
-评论：邪恶的是，这些信息**CDC**和辉瑞在强制人们当**mRNA**刺突蛋白试验老鼠之前就知道，证据就是：
-
-- 他们不敢发布辉瑞报告，**CDC**在批准辉瑞在全世界人身上试验时不需要**75**年，现在却需要**75**年，**55**年发布？他们知道他们犯下的人类屠杀罪，只是等到**55**年后他们已经去见他们的马克思了，企图逃避惩罚！
-- 正如文贵先生一再告诫大家，疫苗真正的危害远没有开始，那将会在今年的五月份。**CDC**和辉瑞知道这个时间点，所以，现在又企图摇身一变，成为灾难发生前的警报人。他们为何不警告血栓是怎么形成的？为什么一下子就让人人有血栓的危机了？因为他们给**50-80-90%**的人都注射了刺突蛋白，那就是形成血栓的罪魁祸首！他们还人们一针接一阵注射，每针**mRNA(CDC**和辉瑞叫疫苗**)**意味着**40**万亿个刺突蛋白进入体内！
-
-
-**CDC**，辉瑞想小聪明，结果不打自招，用中共最爱用的话：搬起石头砸自己的脚！
-
-**mRNA**杀害的无数个无辜的生命，他们在天之灵能放过你们这些罪犯吗？
-
-**参考资料：**[thegatewaypundit][“Everyone is at Risk for Blood Clots!” – CDC and Pfizer Issue Urgent Warnings on Blood Clots Even in “The Healthiest Athletes”](https://www.thegatewaypundit.com/2022/02/everyone-risk-blood-clots-cdc-pfizer-issue-urgent-warnings-blood-clots-even-healthiest-athletes/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=daily)
+**新闻来源：**[foxbusiness.com] [Cryptocurrency expert says US should watch what Canadian government is doing to protesters: ‘No one is safe’](https://www.foxbusiness.com/financials/cryptocurrency-expert-says-us-should-watch-what-canadian-government-is-doing-to-protesters-no-one-is-safe) | 发布时间：2022年02月19日
 
 * * *
 
