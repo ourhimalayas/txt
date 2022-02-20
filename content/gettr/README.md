@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@pangushixun 2/20/2022 5:58 PM (UTC)`
+
+<br/>2022年2月13日。 南非一家中国人开设的商店遭遇多名歹徒持枪抢劫，中国店主在持枪自卫时，被歹徒枪杀！ 海外排华就在身边，同胞们要时刻注意安全！学会自保！必要时离开高危国家！<br/><br/><br/>#盘古时讯 
+![img](https://media.gettr.com/group43/getter/2022/02/20/17/81ca850c-eacb-1de5-0ceb-5589b589c222/out.jpg)
+
+---
+
 `@miles 2/20/2022 12:59 PM (UTC)`
 
 2022年2月20日 文贵大直播：中俄欲改国际秩序；乌克兰成较量战场；锁链女事件政治化；国共斗争间谍下场
@@ -147,13 +156,6 @@ Live, Love, & Laugh ❤️
 
 2/18/2022 Miles Guo: The COVID vaccine-induced immune deficiency is the root cause of the high incidence of various diseases and deaths in places such as Hong Kong, Singapore, and Israel. The COVID vaccine disaster is yet to come, and what will be the situation when it begins? Please make sure to hold out until this May, my fellow fighters!<br/><br/>2/18/2022 文贵直播：疫苗导致的免疫力低下是香港、新加坡和以色列等地出现各种病症频发和死亡的根源；疫苗灾难尚未到来，而灾难开始的时候会是什么情况？请战友们务必坚持到5月！<br/>
 ![img](https://media.gettr.com/group7/getter/2022/02/18/23/ed04a909-7dff-5eb5-44bb-67e5987a31ff/out.jpg)
-
----
-
-`@miles 2/18/2022 10:04 PM (UTC)`
-
-2/18/2022 Miles Guo: Singapore worships both the UK and the US and follows the CCP as well, but its vaccine mandate will soon be stopped. The CCP has taken complete control of Singapore and transferred most of its money hidden in the US to Singapore. The business of financial note in Singapore is ranked NO.1 in the world. Singapore is no longer suitable for a long-term stay, and the Singaporean Chinese will be the victims of its internal struggles.<br/><br/>2/18/2022 文贵直播：新加坡既崇拜英美又跟着中共，但其疫苗强制令很快会停；中共已彻底控制新加坡并将大多数藏在美国的钱转过去了；新加坡票据业务排全球第一；新加坡不宜久留，华人将是其内部斗争的牺牲品<br/>
-![img](https://media.gettr.com/group9/getter/2022/02/18/22/ba2a532f-1130-fce5-5934-0a157a7d1aa3/out.jpg)
 
 ---
 
