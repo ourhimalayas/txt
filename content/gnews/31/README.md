@@ -2,40 +2,55 @@
 ---
 
 
-## 房地产暴雷再发酵 阳光城继续违约
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2035422/)
+## 澳洲朝野抨击中共以雷射光照射澳军机的举动
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2035750/)
 
-撰稿: 日本方舟农场 Andy5
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-5.png)
-2月17日，墙内地产商阳光城再发公告，公司无法偿还2726万美元的境外债务，出现了事实上的债务爆雷。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1848.png)
-就在去年的11月，中共还在墙内动用各路写手，以“阳光城完成债务展期，为房地产企业做了表率”为标题，大肆渲染阳光城的企业领导，用诚意博得投资人的信任，成功使所有到期美元债务获得展期，缓和了债务爆雷的状况，并称，与花样年、当代置业等不能如愿延期债务、陷入实质危机的企业相比，“阳光城的自救很成功”。
+作者：香草山医疗部 — 云豹
 
-然而，对这笔接近3000万美元、已经获得了30天豁免的债务，阳光城也没有在最后截止2月15日之前进行偿还，最终仍然构成了实质性违约。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-3.jpg)
 
-观察人士称，本次阳光城的爆雷，正式拉开了2022年中共房地产企业继续爆雷的序幕。
 
-新闻链接:
 
-1. [阳光城2726万美元债违约，境内债提前兑付压力或加大](https://cj.sina.com.cn/articles/view/5243756079/1388d5e2f020019iw0)
 
-2.[阳光城债务延期成功“闯关”](https://m.21jingji.com/article/20211119/b6ffe1bb9df9afc12b8a94c1169a71f0.html)
 
-3. [美元债展期，阳光城做了个表率](https://m.news.leju.com/news-6867404569358679180.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-1-514x720-1.png)
 
-编辑/总编:飞虹
 
-校正/发稿：浪迹天涯
+
+当地时间2月20日，澳州总理莫里森及最大在野党工党领袖艾班尼斯个自发表声明，强烈谴责中共军舰以激光束照射澳洲军机的挑衅举动。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/f56bde5e10faa84a.jpg)
+
+此次事件发生于17日，中共军舰于澳洲专属经济海域内，在没有受到任何挑衅的情况下，使用激光束照射一架即将降落的澳洲P-8A海神巡逻机，威胁到该机及人员的安全。
+
+莫里森表示澳洲绝不接受中共这种恐吓举动。并要求中共对此次的挑衅行为提出解释。澳洲国防部长杜登表示，澳洲必须以强硬姿态来回应中共的胁迫、霸凌和恐吓。艾班尼斯则表示，中共的行为越来越具侵略性。澳洲政府必需对中共发出最强烈的谴责，而且不论任何人来领导澳洲，都需要面对来自于中共的挑战。
+
+参考连接：[https://www.cna.com.tw/news/aopl/202202200046.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/aopl/202202200046.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+
+2022年2月20日
+
+（本文为作者观点，不代表G NEWS立场）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-7.jpg)
+
+*编辑 /校对*：*Yuki*jiang
+
+*发稿：Yuki*jiang
 
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-5.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,36 +2,28 @@
 ---
 
 
-## 澳洲自由车队示威者要求结束疫苗强制令并解散政府
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2035356/)
+## 澳国防部严厉谴责中共军舰用激光照射澳军飞机行为
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2035396/)
 
-翻译/编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-20-0852521.jpg)图片来源 www.voachinese.com
+据美国之音2月19日报道，澳大利亚国防部谴责中共国一艘海军军舰向澳大利亚的一架P-8A反潜侦察机发射激光。澳军方表示，这是一起严重的安全事件。激光如果照射到飞机上，可能会造成飞行员暂时性失明，从而引起安全风险，尤其是在飞机起飞和着陆的时候。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/8-26.png)图片来源：www.rebelnews.com
+中共国声称对南中国海几乎全部海域拥有主权，持续多年在南中国海的一些礁石附近填海造岛、修建军事基地。随着中共国在这一地区的军事活动加剧，美国等西方盟国也出动海空力量加强巡航，从而导致该地区局势紧张。
+
+中共篡政以来，先是画了个圈，把台湾画进了中共国版图。后来，中共又画了一个圈，把南中国海划进了中共国版图，即使国际法庭已经判决中共国对南中国海没有主权。中共藐视国际秩序，圈画到哪里，哪里的海域或疆土就归中共国所有，就会采取一系列挑衅行为。随着中共野心的扩大，中共的威胁也在增大。
+
+新闻参考链接：[https://www.voachinese.com/a/australia-says-china-warship-fired-laser-at-its-patrol-plane-20220219/6450290.html](https://www.voachinese.com/a/australia-says-china-warship-fired-laser-at-its-patrol-plane-20220219/6450290.html)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-根据RT新闻2月19日报道， 周六，在澳大利亚首都堪培拉，”前往堪培拉的车队 “运动组织了几次反对新冠疫苗强制令的游行。成群结队的抗议者在市中心的几个方向移动，并在议会大厦附近聚集。
+编辑：【英国伦敦喜庄园编辑部】
 
-从RT新闻的视频录像显示，集会上出现了“不要为工作打针”、“不要碰我们的孩子”和“我的身体，我的选择”的标语。其他横幅上写着“自2020年以来，我已经失去了说再见的机会”和“团结起来，我们永远不会被打败”。
-
-裹着旗子的示威者在街头游行时高呼“将他们全部解雇”（他们指的是澳大利亚政府），同时呼吁“拯救儿童”和“拯救澳大利亚”。
-
-警车伴随着整个抗议活动。抗议活动看起来很和平。
-
-一名参加运动的男子告诉记者，他认为政府严格的新冠（Covid-19）限制是“违反我们的宪法”和法治的行为。他指责当局“完全控制”了人民。
-
-另一位拿着扩音器的抗议者告诉欢呼的人群，车队将在该市停留，“为了表明我们不会袖手旁观”，以回应政府的政策。他还呼吁 “结束（新冠）疫苗的强制接种令”。
-
-新闻链接：[Australian ‘Freedom Convoy’ marches to parliament building](https://www.rt.com/news/549956-convoy-canberra-protest-vaccination/)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

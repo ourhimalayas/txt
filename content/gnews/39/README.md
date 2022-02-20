@@ -2,32 +2,25 @@
 ---
 
 
-## 拉脱维亚教练：北京冬奥委会是场巨大政治秀
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2035120/)
+## 澳州国防部谴责中共军舰用激光照射澳巡逻机
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2035357/)
 
-撰稿：台湾宝岛农场dobi
-![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-11.png)
-外媒2月19日消息，拉脱维亚两届冬奥委会铜牌得主，目前担任该国国家队教练的马丁斯·鲁本尼斯在受访时表示，本届冬奥会简直是一场“巨大的政治秀”，充分展现了他对本届冬奥主办者中共政权的蔑视与不满。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1846.png)图片来自：https://img.theepochtimes.com/
-鲁本尼斯告诉媒体：他和选手在抵达中国时，感觉像被当作瘟疫一样对待，但只要有媒体或在公开场所，中共就会无所不用其极地制造假象，展示一场场“你看，这里的一切多么美好”的虚假政治秀。另外鲁本尼斯还透露，很多运动员、教练也都谈论过这个问题。
+#### 翻译/撰稿：zzballack
 
-据悉，鲁本尼斯一直是中国人权运动的积极倡导者，在得知有着严重的人权记录的中共再次获得奥运会主办权后，他感到很震惊，并一直在呼吁抵制。而这次来到中共国，他是作为教练来帮助自己的运动队的。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-2-12.jpg)图片来源：美联社
+据ABC新闻（ABC News）2月19日报道，澳大利亚国防部周六（2月19日）发表声明，谴责中共海军战舰在2月17日向澳洲一架海上巡逻机发射激光，将该机机组人员的生命置于危险之中。
 
-新闻连接：[拉脫維亞教練：北京冬奧會是場巨大政治秀](https://www.epochtimes.com/b5/22/2/19/n13588250.htm)
+澳洲国防部在声明中说：“澳洲的一架P-8A波塞冬海上巡逻机（P-8A Poseidon plane）2月17日在澳洲北部航线上空飞行时，发现一艘中共海军战舰对该机发射激光。这是一起严重危害安全的事件，我们强烈谴责这种不专业和不安全的军事行为。这种行为可能危及澳洲国防人员的生命和安全。”据报道，用激光照射飞机非常危险，因为这可能会导致飞行员受伤，或令他们短时间失明，因此造成安全隐患，特别是在飞机起飞或降落时。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-1-514x720-1.png)
+事发当时，发射激光的那艘战舰在护卫另外一艘中共国船只穿越托雷斯海峡（the Torres Strait）。目前，这两艘船只都在澳大利亚东部的珊瑚海（the Coral Sea）行驶。
 
-编辑/总编: 飞虹
+类似事件并不罕见。美军曾在2020年前谴责中共海军在太平洋地区朝一架美军波塞冬巡逻机发射激光。2019年，澳洲一架海军直升飞机的飞行员表示，该直升机在南中国海遭到激光照射，最后出于谨慎不得不迫降。2018年，中共在非洲吉布提（Djibouti）的军事基地使用高功率激光照射美军战机，导致两位美国飞行员受伤，美国政府曾就此对中共当局发出正式投诉。
 
-校正/发稿：浪迹天涯
+最近几年南海的局势非常紧张，因为中共声称对南海拥有几乎所有的主权，并军事化南海的岛屿，威胁邻国，而美国及其盟友则坚持在南海国际水域进行航海和航空自由行。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-11.png)
+新闻来源：[Australia says China warship fired laser at its patrol plane](https://abcnews.go.com/International/wireStory/australia-china-warship-fired-laser-patrol-plane-82997764)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
