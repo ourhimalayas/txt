@@ -2,31 +2,24 @@
 ---
 
 
-## 有声|三方合作以H PAY销售榴莲单日成交近一万美元
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2033841/)
+## 中日财经爆┃日本欢迎台湾加入CPTPP　并盼重启“台日经济伙伴委员会”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2033858/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-当地时间2月17日，台湾农场与马来西亚榴莲商家，及鸡血王喜币大作战节目三方合作，共同推出H PAY买榴莲送喜币的项目。当天成交了三十笔订单，以每笔订单价296 HDO计算，成交金额近一万美元。显示以H PAY支付来进行商业交易的模式将有无限的空间及发展潜力。
+撰稿：东京樱花团/知了知了
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-92.png)[图片来源](https://www.morethanshipping.com/what-is-cptpp-and-how-will-it-shape-the-future-of-the-global-economy/)
+台湾经济部指出，台日经济贸易会议昨（18）日举办闭幕式，除了日方对台湾申请加入CPTPP表达欢迎外，会议中，日方也表达了希望重新启动已经中断8年的“台日经济伙伴委员会”（EPC）。台方对此表达肯定，也呼吁尽速重启EPC。
 
-此次销售活动由台湾农场的合作商家提供十个喜币抽奖，在鸡血王喜币大作战2月16日的节目中引入商品贩卖广告。该榴莲商家提供买「四盒榴莲即送一个喜币」 的商品套餐作为促销手段，引起消费者的热烈响应。销售成功后赠送给买家的一个喜币则由台湾农场负责交付。
+经济部说，在确保国人健康的前提下，台湾持续解决困难的贸易问题，从美猪议题到日本食品，也向世界展现，台湾遵守国际规范、稳健走向国际的决心与能力。
 
-这种由农场提供销售计划、藉由GTV节目平台做宣传、HPAY合作商家负责出货的联合商业行为，创造出了一种新的G系列营销一体化模式。如果加以推广及改进，未来将商机无限。
+不仅台湾人以公投表达肯定，同时，在国际上得到正面的回响。在台美TIFA复谈之后，日方希望重启中断8年的台日EPC，也是同样的例子。将来，台日双方可以继续在产业、贸易和投资发展，以及CPTPP等议题上共同努力，深化台日友好的合作关系。
 
-文字版原文：[三方合作以H PAY销售榴莲单日成交近一万美元](https://gnews.org/zh-hans/2028463/)
+信息来源：
 
-音频处理：Fei797
-发稿：Fei797
+[日本歡迎台灣加入CPTPP　並盼重啟中斷8年的「台日經濟夥伴委員會」](https://finance.ettoday.net/news/2192499)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
