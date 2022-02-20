@@ -2,28 +2,28 @@
 ---
 
 
-## 美国将微信和阿里巴巴加入盗版市场名单
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2033128/)
+## 美国议员提案禁止中共高官子女赴美学习
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2033129/)
 
 作者：银河系农场—骄子
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月17日，据当地媒体消息显示，美国政府近日将中共的微信和阿里巴巴全球速卖通两款应用软件加入至伪造和盗版市场名单中。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-19-下午10.41.25.png)
-对此，美国贸易代表在当天的一份报告中指出，中共腾讯旗下的微信和阿里巴巴公司的全球速卖通是目前流通量极大的两个在线应用，但它们为大量的伪造商标提供了便利，且这些涉案公司一直都在逃避美国政府的监控和审查。
+2月16日，据多方消息显示，美国共和党议员维姬-哈茨勒近日提出了一项名为《保护高等教育免受共产党侵害法》的法案。当中，该法案将禁止那些在中共全国人民代表大会中任职的个人及其家属获得美国学生签证或研究签证。据悉，该法案还将覆盖至习近平和中共政治局常委成员，以及他们的配偶、子女、父母、兄弟姐妹和孙辈在内的家属。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-19-下午10.41.34.png)
+哈茨勒表示，中共犯下了严重的种族灭绝罪和其他暴行，然而，共产党高官的子女们仍然能够享受世界一流的教育，这种现状必须被停止，而这也是保护高等教育免受中共侵害法存在的目的。
 
-目前，该名单上的中共公司还有淘宝、百度网盘、拼多多、DHgate，以及中共国境内其他制造和销售假冒商品的九个实体。此外，该报告还将中共国列为美国缉获假冒商品的最大来源国和使用强迫劳动生产产品数量最多的国家。
-
-报道提及，拜登政府当下正在考虑建立审查程序来限制美国公司的对外投资项目，而商务部也为此提供了一份禁止美国公司与之交易的中共公司名单。同时，商务部还在重新评估抖音和微信对美国的安全威胁。
+哈茨勒强调，联邦政府应该尽可能地打击那些破坏美国进步的势力。 为此，她提出了大量的针对中共的立法，包括《打击迫害中国基督徒法》、《停止维吾尔族压迫性绝育法》和《保护美国免受间谍法》等——这些提案和立法旨在要求美国政府对中共的各项暴行施以制裁。
 
 参考链接：
-1）[https://finance.yahoo.com/news/u-adds-wechat-aliexpress-notorious-011847482.html](https://finance.yahoo.com/news/u-adds-wechat-aliexpress-notorious-011847482.html)
-2）[The U.S. adds WeChat and AliExpress to a list of notorious piracy markets.](https://www.nytimes.com/2022/02/17/business/us-trade-counterfeit-china.html)
+1）[Hartzler Introduces Legislation to Ban Communist China Officials and Families from Attending American Universities](https://hartzler.house.gov/media-center/press-releases/hartzler-introduces-legislation-ban-communist-china-officials-and)
+2）[https://twitter.com/rephartzler/status/1493976653864873984?s=21](https://twitter.com/rephartzler/status/1493976653864873984?s=21)
+3）[美议员提法案 禁中共高官送子女赴美学习](https://www.epochtimes.com/gb/22/2/16/n13582372.htm/amp)
+4）[Proposed U.S. Legislation Would Ban CCP Officials and Families from Attending American Universities](https://www.chinatrademonitor.com/proposed-u-s-legislation-would-ban-ccp-officials-and-families-from-attending-american-universities/amp/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
 总编：Irene木木
 编辑：Ivy001
-审核：童谣
+审核：Irene木木
 校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**

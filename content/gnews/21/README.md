@@ -2,42 +2,52 @@
 ---
 
 
-## 莫里森总理谴责中共国海军发射激光是“恐吓行为”
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2034507/)
+## 以色列总理宣布结束疫苗绿色通道的做法
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2034530/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+*评论：世界逐渐开始停止疫苗护照，人民胜利。*
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/5-31.png)图片来源：CNA & 雅典娜设计组
+据《news.abs-cbn.com》，2022年2月18日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1835.png)2021年8月14日，在意大利罗马，示威者反对绿色通行证计划（疫苗护照）。该证书显示某人是否至少接受了第一剂疫苗，测试结果为阴性或最近从COVID-19中恢复过来。示威者佩戴着第二次世界大战的徽章，上面描绘着大卫之星和一个德语单词 “Jude” （犹太人）。健康通行证已成为获得一系列服务和休闲活动的强制性证书。图片来源：雷莫-卡西利/路透社
+耶路撒冷——以色列总理纳夫塔利-贝内特(Naftali Bennett)周四宣布，随着感染浪潮的减弱，进入各种场所需要出示冠状病毒疫苗接种证明的要求将很快结束。
 
+以色列是疫苗全国推广的早期开拓者，也是首批要求提供疫苗接种证明的国家。它被称为绿色通行证，出示以便进入各种设施。
 
-整理/编辑：文泓
+贝内特认为，随着严重病例和确诊感染病例的数量明显下降，现在是取消疫苗证明要求的“好时机”。
 
-当地时间2月20日，澳大利亚总理斯科特·莫里森表示，他非常关注上周中共国海军的“恐吓行为”，当时一艘中国军舰在澳大利亚专属经济区海域，向一架澳大利亚巡逻侦察机发射激光。
+在过去一年的大部分时间里，绿色通行证一直是以色列生活中的一个固定项目，是进入酒吧、餐馆、酒店、健身房和宗教场所等地的一个要求。
 
-“我非常关注PLA对一架澳大利亚侦察机使用激光的行为。我认为这是一种不可接受和无端的恐吓行为，没有别的解释。”
+虽然该国没有出现类似其他国家的大规模反疫苗抗议活动，但偶尔也有示威活动和挫折感扩大的迹象。
 
-他说，澳洲政府将从外交和国防渠道提出这一事件进行交涉。
+周一，数千名以色列人从全国各地涌入耶路撒冷，组成反对冠状病毒限制的“自由车队”，这响应了加拿大和世界各地类似的交通堵塞抗议活动。
 
-在当天的新闻发布会上，莫里森谈到了政府的国家安全保障，说激光事件证明了他提出的增加国防开支的必要性。
+示威者响起汽车喇叭，挥舞着加拿大和以色列的国旗，向以色列政府所在地进发。
 
-“我们的政府已经证明了我们在国家安全方面做的保障工作，我们没有像工党那样削减资金，澳大利亚是永远不会走绥靖之路的。”
+自去年6月上任以来，贝内特发誓要把以色列的经济健康放在应对大流行病的首位，并坚称他不会用严厉的限制来扼杀商业。
 
-谈到俄罗斯入侵乌克兰事宜，斯科特·莫里森表示，澳大利亚将对俄罗斯实施制裁，称俄“在乌克兰的挑衅行为是不可接受的，没有理由的，无缘无故的”。
+本月早些时候，他的政府已经开始收回绿色通行证的要求，限制了必须使用绿色通行证的地点数目。
 
-他说，澳大利亚正在与所有自由国家、伙伴和盟友合作，采取行动支持乌克兰，但这不包括军队。
+在首次检测到Omicron变体的几天后，贝内特下令隔断几乎所有的旅行，声称国家需要为即将到来的浪潮做准备。
 
-“我们将与我们的盟友和伙伴一起贯彻制裁，世界将一起行动，并寻求抵制，（入侵乌克兰）将是一种可怕的暴力行为……这是不可接受的，无端的、无缘无故的。”
+总理在一份声明中说：“我们首先采取行动，在浪潮来临的时候开启穹顶。现在，我们正在逐步放开限制。”
 
-新闻链接：[Russia-Ukraine conflict updates live: Scott Morrison says Australia will ‘follow through’ with sanctions (afr.com)](https://www.afr.com/politics/federal/us-says-russian-forces-poised-to-strike-ukraine-20220220-p59xz4)
+上个月，在某些天，以色列出现了超过8万个新的COVID病例。
 
-*发布：tianzhihuan*
+现在，感染率已经急剧下降，本周每天的数字下降到3万以下。
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+* * *
+
+原文连接：[https://news.abs-cbn.com/overseas/02/18/22/israel-pm-announces-end-of-vaccine-green-pass](https://news.abs-cbn.com/overseas/02/18/22/israel-pm-announces-end-of-vaccine-green-pass)
+
+翻译：洛杉矶盘古农场 – TrueSky
+校对：洛杉矶盘古农场 – 轰炸机
+评论：洛杉矶盘古农场 – 轰炸机
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
