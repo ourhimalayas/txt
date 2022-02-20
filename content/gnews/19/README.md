@@ -2,17 +2,34 @@
 ---
 
 
-## 第44期-未来家族信托的建立方式 PPT展示-G-TV
-` 加拿大温哥华扬帆农场蓝枫法律` [轉載自GNews](https://gnews.org/zh-hans/2035243/)
+## 无苗灭共者：举而措诸天下之民
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2035338/)
 
-#### **加拿大温哥华扬帆农场蓝枫法律**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-206.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/2-77.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/3-56.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/4-42.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/5-33.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/6-33.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/7-28.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/8-24.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/9-24.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/10-29.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/11-27.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/12-26.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/13-13.png)
-直播视频：
+**作者：文护念**
+[![](https://express.adobe.com/page/taX4etYMe2NJz/images/07b14f70-c495-4623-a2f1-5f2857aeeec3.jpg?asset_id=79d16ea1-0fac-4214-9569-572f3d62a2e3&amp;img_etag=%22fef065289af5c6de25be2c6c6752f458%22&amp;size=1024)](https://express.adobe.com/page/taX4etYMe2NJz/images/07b14f70-c495-4623-a2f1-5f2857aeeec3.jpg?asset_id=79d16ea1-0fac-4214-9569-572f3d62a2e3&amp;img_etag=%22fef065289af5c6de25be2c6c6752f458%22&amp;size=1024)来源：pixaba
+黑格尔曾说过：“世界上真正的悲剧不是正确与错误的冲突，而是两种正确之间的冲突。”中共病毒（冠状病毒）肆虐全球已两年有多，感染病例高达4.2亿，死亡人数更是不断骤增，人类在这场世纪大瘟疫中显得束手无策。有些人坚信所谓的科学，认为打疫苗可以有效地防御新冠病毒的侵害，并对此深信不疑，这是由于每个人的教育程度和思维习惯有天壤之别，指导人的行为由其主观的思想和客观的文化背景，我们很难去说“疫苗族”是正确或者错误；而“无苗族”也不能因为自己知道了真相就去证明自己有多伟大，反而我们要耐心地和他们讲述新冠病毒疫苗的真相，以及疫苗的副作用。
 
-[第44期-未来家族信托的建立方式](https://gtv.org/video/id=621185cdb706176dd78d7e8d)
+俗话说“破山中贼易，破心中贼难”，没有常识的人最可怕的，可怕得就像一头食人不吐骨的饕餮猛兽，即便有药能医龙虎病，亦无方可治众生痴。智慧是人生最大的福报，当下“无苗灭共者”无疑是得到了上天的眷顾，得到了人世间最大的智慧，我们得到福报的同时亦应该用我们力所能及的方式去回报这个世界。然而，这条修行之路注定是孤独的，亦是艰难的，但一切修行的起步也是一切的成功和圆满。各位战友在传播真相的时候，多半是面对亲朋的不解，甚是辱骂，我们唯有念念皆空，随时丢；物来则应，过去不留。
 
-编辑/发文：蓝枫法律栏目
+新中国联邦的“无苗灭共者”可谓是经纶天下，济世救人，无时无刻都心系世人的安危。人生伟大的价值如果用孔夫子的一句话来形容就是“知崇礼卑”，知崇，即智慧要高瞻远瞩，要有最高的目标，新中国联邦的目标就是推翻世界上最大的独裁暴政，把共产主义的毒瘤物理清零，为天地立心，为生民立命，为往圣继绝学，为万世开太平。礼者，履也，履就是要走路，要从最平凡的地方开始。郭先生领导的爆料革命就是平民的觉醒，最普通的草根都可以参与一场不流血的革命，可谓是前无古人，相信后也很难有来者。卑，就是卑下，目标要高远，但是开始的时候要脚踏实地，从最平凡起步。爆料革命的战友们深知自己没有“只手遮天”的能力，唯有各操一艺，各司其职，每天做义工孜孜不倦地传播关于中共病毒的真相、香港危机的真相、疫苗危机的真相。假以时日，相信日拱一卒无有尽，功不唐捐终入海。
 
+盘古初开，古今中外真正称得上“事业”的却没有几个人，笔者依稀记得还是个幼童的时候，总会听到长辈们说出去创一番事业，衣锦还乡云云。无论你是做老板赚大钱，还是做老师教育下一代，这些都是职业，而事业是永恒的，是对国家以及人类的进程有巨大贡献的。人生有两种事业，一种就是你活着的时候人家就知道你的名字，一旦驾鹤西游，人死灯灭，人们终究会淡忘。另外一种就是类似释迦牟尼、耶稣，永远活在人的心中，他们对人类有着巨大的贡献。
+[![](https://express.adobe.com/page/taX4etYMe2NJz/images/e8d72223-9059-49f2-a469-78669e27d568.jpg?asset_id=4b5729c2-08ea-4893-a5f7-2b4ef66857fb&amp;img_etag=%2296278ffd75afcdd54e3689a189874a06%22&amp;size=1024)](https://express.adobe.com/page/taX4etYMe2NJz/images/e8d72223-9059-49f2-a469-78669e27d568.jpg?asset_id=4b5729c2-08ea-4893-a5f7-2b4ef66857fb&amp;img_etag=%2296278ffd75afcdd54e3689a189874a06%22&amp;size=1024)
+真正伟大的事业是付出，而不是一味地索取，往往都需要牺牲现实的荣华与富贵，才可以做到。纵观人类历史的长河，能够与新中国联邦和爆料革命媲美的屈指可数，“无苗灭共者”举而措诸天下之民，谓之事业，历史将会证明。
+
+新中国联邦和爆料革命的顺势而生，就是参赞天地之化育，参赞就是弥补的意思，弥补天地化育的不足。人类举世黑暗，我们就点一盏智慧的灯，囊萤“地球村”的薄光；全球被共产主义的阴魂笼罩，我们就一扫共产主义的阴霾；各国流氓政客为一己私欲强制人们打疫苗，我们就不断揭露强打疫苗的危害。
+
+尚未接触爆料革命时，笔者乃迷途的小镇青年，目不识丁，游手好闲，一事无成；家无担石，以穷日月，落魄潦倒，依人醉醒。历经五载风云，我已脱胎换骨，无悔来人间一趟。如今进入而立之年，理想三旬，冀望继续与众战友携手灭共创一番事业，早日共聚盘古，届时可以直抒胸臆，畅谈人生，一醉方休。
+
+*编辑：【英国伦敦喜庄园编辑部】*
+
+*校对：文明明 | 审核：仙女儿-文善 | Page: Daoiii*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+[![](https://express.adobe.com/page/taX4etYMe2NJz/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://express.adobe.com/page/taX4etYMe2NJz/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

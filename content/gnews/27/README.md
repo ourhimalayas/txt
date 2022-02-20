@@ -2,8 +2,8 @@
 ---
 
 
-## 中共的蓝金黄渗透手段
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2035039/)
+## 谷爱凌被问到国籍问题时的反应
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2035136/)
 
 台灣寶島農場
 
