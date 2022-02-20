@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：银行都是高利贷公司
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2038248/)
+## 七哥金句：岂能被一只苍蝇撂倒
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2038325/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句10--scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句2.001-5.jpeg)
 整理：雅典娜农场
 发布：枫叶红了
 

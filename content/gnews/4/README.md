@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：中共想改变美国的法律基石
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2038302/)
+## 七哥金句：谷爱凌事件体现了什么
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2038392/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句1.001-5.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七格金句3.001.jpeg)
 整理：雅典娜农场
 发布：枫叶红了
 
