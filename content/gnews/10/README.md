@@ -2,23 +2,37 @@
 ---
 
 
-## 俄乌之战已经开始 欧美、普习都无路可退
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2037394/)
+## 中共掩盖锁链女真相打压爆料者
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2037399/)
 
-撰稿：大浪小水花
+作者：纽约香草山农场-恩永存
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生在最近两次大直播，及2月19日盖特视频中，持续揭露中共专制统治下，很多女性被拐卖欺压的悲惨遭遇。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-20-at-9.45.42-PM.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide5-11.jpeg)
 
+据郭先生透露，他老家有个村，有百十个被买来的女人。周边几省有上百万被拐卖来的女子，全国每年估计干万女人被倒卖。有的是母亲和孩子一起被拐卖。穷人买女人为生孩子，贪官买女人就逼其做性奴。有的女性被关在黑屋里，有的则锁链不离身，有的被打成残废，有的丧命而尸首无存。中共自改革开放以来，拐卖妇女儿童的罪恶买卖一直存在，许多地方官员暗中默许。
 
-郭文贵先生在2022年2月20日大直播中爆料，普京和习曾经进行过一次长达两个半小时通过翻译器沟通的绝密谈话。两人深入的讨论了俄乌危机、台湾危机的应对方案，以及如何在危机中自保的对策。普习都很清楚这次危机处理的成败直接决定了二人独裁统治是否会被内部推翻。普习二人决定建立生死政治军事联盟，企图发动战争来巩固他们的统治。
+郭先生悲愤谴责中共掩盖八孩锁链女真相，反而速查打击爆料真相者。中共向来对坏人保护，几十年都不追查结果。新中国联邦揭真相，讲真话，传正道，故中共把我们当大敌，污蔑爆料革命者。全球的奸商政客们与中共勾兑，狼狈为奸，要名利，贪美色，讲假话，互称朋友。
 
-郭先生指出，普京目前的处境跟习非常相似，普京也急需一场战争来解决内部的政治和经济压力。俄乌危机、台湾危机的发生实质上是普京和习近平个人的政治安全的需要。
+中国人的家庭伦理关系，被中共无神论洗脑教育祸害，许多人妻离子散，人与人之间互不信任，处处设防，没有信仰，不分善恶，贪得无厌，缺乏真爱，失去自由。中国人唯一的出路，就是加入新中国联邦，回归正道主义，找回真正的自我，回归正常的人生模式。
 
-郭先生提到，现在俄乌局势的决策权不在普京手里，而是在普习、美国和欧洲手里，几方势力都在利用乌克兰角力，美欧在利用乌克兰整个国家的安全来消磨普习的意志。普习现在的处境进退维谷，不打，普习一定被内部推翻；打，普习一定会被全世界消灭。
+参考链接：[https://gettr.com/post/pviwuoa122](https://gettr.com/post/pviwuoa122)
 
-关于俄乌之战，郭先生指出，战争实际上已经从三天前俄乌开炮就开始了，台湾也会很快有动静。普习这次绝密的单独对话，决定了他们个人和全世界的命运。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-参考链接：[2022年2月20日文贵大直播](https://gtv.org/broadcast/watch/62123b3508ba8a07b19fce63)
+总编：Zion文恩
+编辑：静言
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 
  
 

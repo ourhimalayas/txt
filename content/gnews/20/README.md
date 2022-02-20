@@ -2,31 +2,43 @@
 ---
 
 
-## 最高法院拒绝介入加州学校疫苗授权要求
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2037278/)
+## 有声|美参议院通过支持乌克兰决议 警告俄罗斯
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2037284/)
 
-编译：wenwu
-![](https://assets.gnews.org/wp-content/uploads/2022/02/sad-kid-mask-2.jpg)戴着口罩的女学生。 
-**(iStock)**
-美国最高法院已经决定暂时不受理加州圣地亚哥（San Diego, California）学校的疫苗强制令的纠纷。
+配音：香草山农场 – 信念7
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
 
-加州学区的一名不愿透露姓名的女学生，在法庭文件中被称为无名氏（Jane Doe），曾以宗教自由为由，要求大法官对新冠病毒（中共病毒，COVID-19）疫苗授权进行豁免（emergency relief）。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/download-9.jpg)
 
-但高等法院在周五的一份未签署的命令中拒绝了立即发布禁令的请求，认为时机不成熟，因为学区已经表示至少在5个月后（8月份）才执行该强制令。
 
-这项疫苗授权于2021年9月对学校的教师、工作人员和16岁及以上的学生实施。它本应在2022年1月下旬生效，但官员们暂缓了疫苗授权的执行。
+外媒02月17日报道，美国参议院星期四晚间，举行了罕见的两党投票，对乌克兰独立表示支持，并对俄罗斯的军事侵略企图发出警告。 与此同时，西方对俄罗斯可能入侵乌克兰出现新担忧，这种担忧可能升级为一场欧洲战争。
 
-最高法院命令说，那些反对这项疫苗授权的人可以“在情况允许的情况下”（今年8月后）回来申请新的禁止令（豁免）。
+在参议院投票表决之前，美国总统拜登表示，美国有情报表明，俄罗斯可能在几天内对乌克兰发动袭击。 在俄罗斯军队仍在乌克兰边境集结之际，美国官方认为俄罗斯总统普京可能实施侵略乌克兰的计划。
 
-**新闻来源：**[foxnews.com] [Supreme Court refuses to get involved in CA school vaccine mandate requirement](https://www.foxnews.com/politics/supreme-court-refuses-ca-school-vaccine-mandate-requirement) | 发布时间：2022年02月19日
+美参议院的决议一致表决通过，表明美国立法机构将支持乌克兰和谴责俄罗斯的侵略记录在案。 本周，美参议员们都在高度关注俄乌日益紧张的局势，许多参议员希望更进一步，对俄罗斯和普金实施毁灭性的制裁，这将对俄罗斯经济造成重要打击。
 
-* * *
+有关人士对此评论，俄罗斯侵略乌克兰必将遭到美国及西方国家的严厉制裁，美参议院通过紧急决议，就是严重警告俄罗斯不要轻举妄动跨越红线。
 
-*审核：文乐
-校对：花羽
-发稿：信心的选择*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-5.jpeg)
+
+文字版原文：[美参议院通过支持乌克兰决议 警告俄罗斯](https://gnews.org/zh-hans/2030265/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

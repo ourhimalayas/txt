@@ -2,20 +2,37 @@
 ---
 
 
-## 文贵大直播 2/20 俄乌战争已经打响 背后根本无关国家民族
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2037149/)
+## 有声|以色列将废除中共病毒疫苗护照系统
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2037187/)
 
-撰稿：回响 【秘翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2022/02/snapshot-6.jpg)图片来源 GTV
-俄乌战争危机愈演愈烈，举世瞩目，然而谁知道习近平和普京曾有2小时密谈？谁知道战争已在三天前打响？
+配音：香草山农场 – 信念7
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+2月17日周四，以色列总理总理宣布，中共病毒感染病例每天持续下降，中共病毒疫苗接种证明的护照系统将会暂停使用。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/10-13.jpg)
+据悉该护照系统称为绿色通行证，限制未完成接种至少三针疫苗的人们，进行大型集会和进入室内场所。在过去一年的大部分时间里，绿色通行证是以色列日常生活的必备品。
 
-2月20日文贵大直播，身在美国的爆料革命发起人郭文贵先生惊爆：在北京的习普密谈竟然使用翻译器！并且断言台湾近日很快就会有动静。
+在2020年，以色列与辉瑞达成协议，用医疗数据换取稳定的中共病毒疫苗供应后，迅速为大部分成年人口接种了疫苗。当前约48%人口已经接种了三针疫苗，全国72%的人口已经接种了至少一针。
 
-郭先生是揭示乌克兰和台湾战事奥秘的第一人。他多次分析中俄、俄乌、台湾之间甚至和美欧政治间复杂的角力博弈关系。此次，他谈笑风生地告诉公众：战争的背后其实根本是当权者的个人安危，和国家利益、民族利益没有丝毫关系。
 
-乌克兰更是不幸，成为强人政治的玩物，无异于俄罗斯的“铁链女”。
 
-【来源链接】https://gtv.org/broadcast/watch/62123b3508ba8a07b19fce63
+文字版原文：[以色列将废除中共病毒疫苗护照系统](https://gnews.org/zh-hans/2031593/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)0
 
  
 

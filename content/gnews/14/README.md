@@ -2,34 +2,24 @@
 ---
 
 
-## 锁链女事件引爆中共国失踪人口真相致高层内斗
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2037363/)
+## 买到喜币的兴奋与感恩
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2037383/)
 
-作者：纽约磐石农场—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在2月18日的大直播中，郭文贵先生透露，中共国徐州“锁链女”事件持续发酵，引爆一系列人口失踪案件，真相惨烈以致中共高层剧烈内斗。
+撰稿：东京樱花团/神的带领
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3-57.png)
+前天通过农场终于把仅有的人民币变成了喜币。看到秒到的喜币把我幸福的手舞足蹈。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide4-11.jpeg)
+打开Hpay不再是0，可以转给亲朋好友，而且秒到，没有手续费。我的天呀，我和好友玩了一下午，你转给我，我转给你。我们都玩嗨了。
 
-“锁链女”事件的内幕，已引发江泽民、胡锦涛和习近平三派之间互相推诿的内斗，俨然变成了政治事件。郭先生得到情报，在发生锁链女事件的江苏徐州地区，每年都会发现40到60具无名女尸。过去30年中，该地区发现的无名女尸已达近万具，都是15到17岁的未成年女性，但是中共的媒体却无一报道此类消息。
+因为我们是有币族，这就是我们的希望，有钱了可以专念的灭共，可以不上班避免中共病毒感染，有时间照顾家人。真的开心到起飞。
 
-早在2017年的直播中，郭先生就警告，在中共国的宁夏、西藏边远地区，以及黄河边上，就有专门打捞尸体的职业存在，被打捞的尸体都是年轻人的。而这种惨无人道的事情在中共国极为常见，却没有人在意，真是悲哀至极。
+但同时我非常非常的感谢我们农场，感谢我们的义工，我们的义工从天没亮忙到后半夜两三点，直到对上帐，直到确认到账，真的是很辛苦。可以说每个喜币都承载了您的汗水，辛苦，时间及与家人的快乐时光。所以我们手中的喜币好重，重就是特别的珍重，我爱我手中的喜币更爱这些义工战友。
 
-参考链接：[20220218文贵大直播：锁链女引发党内各派的内斗](https://gnews.org/zh-hans/2030506/)
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-总编：Zion文恩
-编辑：静言
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

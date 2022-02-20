@@ -2,34 +2,34 @@
 ---
 
 
-## 美国证券交易委员会正在调查华尔街的大宗股票交易
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2037339/)
+## 锁链女事件引爆中共国失踪人口真相致高层内斗
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2037363/)
 
-**翻译：【日本东京方舟农场】Skyfrog**
+作者：纽约磐石农场—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在2月18日的大直播中，郭文贵先生透露，中共国徐州“锁链女”事件持续发酵，引爆一系列人口失踪案件，真相惨烈以致中共高层剧烈内斗。
 
-路透华盛顿2月15日电-  -据知情人士透露，美国证券交易委员会(SEC)正在调查金融业高管是否违反了相关规定，在大规模抛售股票(即”大宗交易”)之前向对冲基金透露消息。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-308.jpg)（图片来源：reuters.com）
-《华尔街日报》周一率先报道了这项调查。该报称，美国证券交易委员会正在调查摩根士丹利和高盛以及美国司法部。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide4-11.jpeg)
 
-上述四家当事人均拒绝置评。
+“锁链女”事件的内幕，已引发江泽民、胡锦涛和习近平三派之间互相推诿的内斗，俨然变成了政治事件。郭先生得到情报，在发生锁链女事件的江苏徐州地区，每年都会发现40到60具无名女尸。过去30年中，该地区发现的无名女尸已达近万具，都是15到17岁的未成年女性，但是中共的媒体却无一报道此类消息。
 
-经纪自营商经常买卖大宗股票，要么代表客户，要么作为对冲策略的一部分，这些对冲策略的规模大到足以影响公司的股价。
+早在2017年的直播中，郭先生就警告，在中共国的宁夏、西藏边远地区，以及黄河边上，就有专门打捞尸体的职业存在，被打捞的尸体都是年轻人的。而这种惨无人道的事情在中共国极为常见，却没有人在意，真是悲哀至极。
 
-大宗交易往往会增加市场波动时间，因为机构投资者会重新平衡他们的投资组合。
+参考链接：[20220218文贵大直播：锁链女引发党内各派的内斗](https://gnews.org/zh-hans/2030506/)
 
-提前获得有关此类股票销售的信息可能有非常高的价值。该消息人士说，不恰当地分享资料和非公开信息可能会违反美国法律。如果企业未能建立防止信息滥用的程序，它们也可能面临审查。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-据《华尔街日报》报道，美国证券交易委员会已向几家对冲基金和银行发出传票，要求提供交易记录和投资者与银行家沟通的信息。该报道还表示，监管机构至少从2019年起就开始调查与大宗交易相关的违规行为。
+总编：Zion文恩
+编辑：静言
+校正/发稿：谐趣园
 
-报告称，调查人员正在调查，银行家们是否在交易公开披露前不恰当地提醒了优待的客户，以及这些信息是否有利于这些基金，其中一些基金充当了华尔街公司的“流动性提供者”。
-
-原文链接：
-[https://www.reuters.com/business/us-sec-is-probing-wall-street-trades-large-blocks-shares-2022-02-15/](https://www.reuters.com/business/us-sec-is-probing-wall-street-trades-large-blocks-shares-2022-02-15/)
-
-素材採編：妙喜小油鍋
-校对：妙喜小油鍋
-发布：爱放飞
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
