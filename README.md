@@ -15,83 +15,83 @@
 
 ---
 
-### [2022結束中共的群魔乱舞](/content/gnews/1/README.md)
+### [虎年灭共年画欣赏](/content/gnews/1/README.md)
  ` 新西兰农场【光影传镜】`
 
-### [樱花FM|香港今日新增至少1510例中共病毒确诊病例](/content/gnews/2/README.md)
+### [推到中共犹如多米诺骨牌](/content/gnews/2/README.md)
+ ` 新西兰农场【光影传镜】`
+
+### [2022結束中共的群魔乱舞](/content/gnews/3/README.md)
+ ` 新西兰农场【光影传镜】`
+
+### [文•贵天成——文贵先生谈“躺平币”（八）](/content/gnews/4/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [樱花FM|香港今日新增至少1510例中共病毒确诊病例](/content/gnews/5/README.md)
  ` 樱花FM`
 
-### [樱花FM|中日财经爆：印度再禁54款中共国手机APP](/content/gnews/3/README.md)
+### [樱花FM|中日财经爆：印度再禁54款中共国手机APP](/content/gnews/6/README.md)
  ` 樱花FM`
 
-### [小土豆如何变成傻地瓜](/content/gnews/4/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [樱花FM|国际人权组织：IOC无法确保奥运制服不涉强迫劳动](/content/gnews/5/README.md)
- ` 樱花FM`
-
-### [樱花FM|北京冬奥耗巨资造出的是与自然雪成分不同的雪](/content/gnews/6/README.md)
- ` 樱花FM`
-
-### [樱花FM|中共病毒致世界581.3万人死亡](/content/gnews/7/README.md)
- ` 樱花FM`
-
-### [樱花FM|中日财经爆：中共特区深圳，二手房交易量15年新低](/content/gnews/8/README.md)
- ` 樱花FM`
-
-### [樱花FM|今日暴增1500多例！香港第五波病毒恶化](/content/gnews/9/README.md)
- ` 樱花FM`
-
-### [樱花FM|因拒绝接种疫苗 德约科维奇可能不参加法网和温网](/content/gnews/10/README.md)
- ` 樱花FM`
-
-### [新西兰Covid-19住院患者几乎都是完全疫苗接种者](/content/gnews/11/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [鲍里斯·约翰逊：若侵乌克兰，英美将阻止俄罗斯公司以英镑和美元进行交易](/content/gnews/12/README.md)
- ` 波士顿五月花农场金融部`
-
-### [视频|台湾加强立法防止中共窃取芯片技术](/content/gnews/13/README.md)
+### [视频|美中不断交的前提是中共必须配合病毒溯源调查](/content/gnews/7/README.md)
  ` MOSREC`
 
-### [澳警察对和平抗议COVID暴政的人们使用声波武器？](/content/gnews/14/README.md)
+### [小土豆如何变成傻地瓜](/content/gnews/8/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [樱花FM|国际人权组织：IOC无法确保奥运制服不涉强迫劳动](/content/gnews/9/README.md)
+ ` 樱花FM`
+
+### [樱花FM|北京冬奥耗巨资造出的是与自然雪成分不同的雪](/content/gnews/10/README.md)
+ ` 樱花FM`
+
+### [樱花FM|中共病毒致世界581.3万人死亡](/content/gnews/11/README.md)
+ ` 樱花FM`
+
+### [樱花FM|中日财经爆：中共特区深圳，二手房交易量15年新低](/content/gnews/12/README.md)
+ ` 樱花FM`
+
+### [樱花FM|今日暴增1500多例！香港第五波病毒恶化](/content/gnews/13/README.md)
+ ` 樱花FM`
+
+### [樱花FM|因拒绝接种疫苗 德约科维奇可能不参加法网和温网](/content/gnews/14/README.md)
+ ` 樱花FM`
+
+### [新西兰Covid-19住院患者几乎都是完全疫苗接种者](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [樱花FM|致习近平主席的一封信](/content/gnews/15/README.md)
+### [鲍里斯·约翰逊：若侵乌克兰，英美将阻止俄罗斯公司以英镑和美元进行交易](/content/gnews/16/README.md)
+ ` 波士顿五月花农场金融部`
+
+### [视频|台湾加强立法防止中共窃取芯片技术](/content/gnews/17/README.md)
+ ` MOSREC`
+
+### [澳警察对和平抗议COVID暴政的人们使用声波武器？](/content/gnews/18/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [樱花FM|致习近平主席的一封信](/content/gnews/19/README.md)
  ` 樱花FM`
 
-### [樱花FM|日本国内现有4种以上Omicron变异株流行](/content/gnews/16/README.md)
+### [樱花FM|日本国内现有4种以上Omicron变异株流行](/content/gnews/20/README.md)
  ` 樱花FM`
 
-### [樱花FM|天文学家：中共国长征运载火箭3月撞击月球](/content/gnews/17/README.md)
+### [樱花FM|天文学家：中共国长征运载火箭3月撞击月球](/content/gnews/21/README.md)
  ` 樱花FM`
 
-### [樱花FM|中日财经爆:AMD敲定500亿美元收购赛灵思 创芯片业纪录](/content/gnews/18/README.md)
+### [樱花FM|中日财经爆:AMD敲定500亿美元收购赛灵思 创芯片业纪录](/content/gnews/22/README.md)
  ` 樱花FM`
 
-### [樱花FM|中日财经爆:日本政府将针对产业链中人权问题专项立法](/content/gnews/19/README.md)
- ` 樱花FM`
-
-### [樱花FM|所有的匪都是中共养出来的！](/content/gnews/20/README.md)
- ` 樱花FM`
-
-### [澳洲朝野抨击中共以雷射光照射澳军机的举动](/content/gnews/21/README.md)
+### [澳洲朝野抨击中共以雷射光照射澳军机的举动](/content/gnews/23/README.md)
  ` 纽约香草山MOS02`
 
-### [加拿大骑警铁蹄踩踏两名自由车队抗议者](/content/gnews/22/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [郭文贵盖特音频2022.02.19](/content/gnews/23/README.md)
+### [郭文贵盖特音频2022.02.19](/content/gnews/24/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [樱花FM|乌克兰强调：加入北约目标不变](/content/gnews/24/README.md)
+### [樱花FM|乌克兰强调：加入北约目标不变](/content/gnews/25/README.md)
  ` 樱花FM`
 
-### [说说货币那些事儿 — 与三票先生商榷未来数字货币](/content/gnews/25/README.md)
+### [说说货币那些事儿 — 与三票先生商榷未来数字货币](/content/gnews/26/README.md)
  ` 纽约香草山MOS03`
-
-### [20220218文贵大直播：全世界大人物都在乎活着、钱、女人，所以新中国联邦人一定要有钱](/content/gnews/26/README.md)
- ` Tokyo Sakura Video Group`
 
 ### [大科技与红色科技： 数码时代的民主渐逝](/content/gnews/27/README.md)
  ` 喜马拉雅农场新西兰站`

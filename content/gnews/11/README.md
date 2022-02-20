@@ -2,61 +2,26 @@
 ---
 
 
-## 新西兰Covid-19住院患者几乎都是完全疫苗接种者
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2035834/)
+## 樱花FM|中共病毒致世界581.3万人死亡
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2035847/)
 
-编译：wenwu
+音频：东京樱花团/战友520
+![](https://lh6.googleusercontent.com/v2bqjgy7W-DdZfyFLJw4TZ39w-tq-Z1kwvl5RPHbCTDDH3tdoAD06XPooNIwyb4Ju29GAZJdq6of0Fj83lKyLN421cVTORmDxTEKFc2l2RGki96duCx3U8ftIkv1H0aGZbyioVsn)
+据法新社报道，根据各国当局公布的，日本时间14日晚8时止的统计数据，全球因中共病毒（新冠病毒Covid-19）死亡的人数已增至581万3329人。迄今为止，全球已确诊4亿983万4861人感染。虽然大多数人已经康复，但有些人症状持续数周甚至数月，也有至今仍然存在各种后遗症的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1859.png)dailyexpose.uk
+仅13日，全球宣布新增死亡病例5632人，新增感染病例142万7030人。过去一周新增感染人数最多的地区是欧洲，其中确认感染人数为956万5188人（占世界总数的59%）。第二大数字是亚洲的234万1330人(占14%)。过去一周死亡人数最多的地区是欧洲，那里有2万6227人（占世界总数的35%）死亡。紧随其后的是美国和加拿大，有1万7785人（占23%）。
 
-新西兰卫生部于周三（16日）发布了一份新闻报告，其中包含了按疫苗接种情况划分的 Covid-19 住院人数的信息。他们在报告中(如下图1)确认，在北部地区目前的住院人数中，未接种疫苗的人口占2人，而完全接种疫苗的人口占23人。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1860.png)
-因此，我们回顾了新西兰卫生部以前发布的新闻报道，以描绘出目前据称席卷全国的Covid-19大流行病的情况。
+过去一周每10万人口中死亡人数最高的国家（不包括人口少于50万的国家）分别是波斯尼亚和黑塞哥维那（951人）、保加利亚（908人）、格鲁吉亚（862人）等，克罗地亚（818人）人），北马其顿（811人）。过去一周每10万人中新增感染人数最多的国家是丹麦（5009人）、荷兰（4738人）、拉脱维亚（3633人）、格鲁吉亚（3496人）和爱沙尼亚（2990人）。
 
-以下是我们分析的报告，可以追溯到在第25次的1月22日：
+最近几天，一周新增感染人数创历史新高的国家/地区分别是智利、日本、约旦、韩国、俄罗斯、白俄罗斯、斯洛伐克、越南、冰岛、拉脱维亚、新西兰和香港。在死亡人数最多的美国，迄今为止已有91万9697人死亡，7774万175人被感染。巴西是死亡人数第二高的国家，死亡人数为63万8362人，感染人数为2747万9963人。此后，印度（59万0011人死亡，4266万5534人感染）和俄罗斯（34万931人死亡，1431万3965人感染）。每10万人中累计死亡人数最高的国家是秘鲁（632人）、保加利亚（494人）、波斯尼亚和黑塞哥维那（457人）、匈牙利（438人）和北马其顿（420人）。
 
-- [*https://www.health.govt.nz/news-media/news-items/record-day-boosters-and-paediatric-doses-25-community-cases-10-hospital*](https://www.health.govt.nz/news-media/news-items/record-day-boosters-and-paediatric-doses-25-community-cases-10-hospital)
-- [*https://www.health.govt.nz/news-media/news-items/more-100000-first-doses-5-11s-90-auckland-maori-fully-vaccinated-23-community-cases-6-hospital*](https://www.health.govt.nz/news-media/news-items/more-100000-first-doses-5-11s-90-auckland-maori-fully-vaccinated-23-community-cases-6-hospital)
-- [*https://www.health.govt.nz/news-media/news-items/more-30000-boosters-given-yesterday-103-community-cases-11-hospital*](https://www.health.govt.nz/news-media/news-items/more-30000-boosters-given-yesterday-103-community-cases-11-hospital)
-- [*https://www.health.govt.nz/news-media/news-items/more-13000-boosters-given-yesterday-91-community-cases-10-hospital*](https://www.health.govt.nz/news-media/news-items/more-13000-boosters-given-yesterday-91-community-cases-10-hospital)
-- [*https://www.health.govt.nz/news-media/news-items/more-22000-boosters-given-yesterday-126-community-cases-8-hospital*](https://www.health.govt.nz/news-media/news-items/more-22000-boosters-given-yesterday-126-community-cases-8-hospital)
-- [*https://www.health.govt.nz/news-media/news-items/more-38000-boosters-given-yesterday-142-community-cases-6-hospital*](https://www.health.govt.nz/news-media/news-items/more-38000-boosters-given-yesterday-142-community-cases-6-hospital)
-- [*https://www.health.govt.nz/news-media/news-items/more-36000-boosters-given-yesterday-147-community-cases-13-hospital*](https://www.health.govt.nz/news-media/news-items/more-36000-boosters-given-yesterday-147-community-cases-13-hospital)
-- [*https://www.health.govt.nz/news-media/news-items/record-day-boosters-more-66000-doses-given-yesterday-243-community-cases-10-hospital-1-icu*](https://www.health.govt.nz/news-media/news-items/record-day-boosters-more-66000-doses-given-yesterday-243-community-cases-10-hospital-1-icu)
-- [*https://www.health.govt.nz/news-media/news-items/more-48000-booster-doses-given-yesterday-208-community-cases-12-hospital-1-icu*](https://www.health.govt.nz/news-media/news-items/more-48000-booster-doses-given-yesterday-208-community-cases-12-hospital-1-icu)
-- [*https://www.health.govt.nz/news-media/news-items/almost-25000-booster-doses-waitangi-day-188-community-cases-14-hospital-1-icu*](https://www.health.govt.nz/news-media/news-items/almost-25000-booster-doses-waitangi-day-188-community-cases-14-hospital-1-icu)
-- [*https://www.health.govt.nz/news-media/news-items/more-200000-paediatric-doses-and-over-16-million-boosters-now-given-202-community-cases-14-hospital*](https://www.health.govt.nz/news-media/news-items/more-200000-paediatric-doses-and-over-16-million-boosters-now-given-202-community-cases-14-hospital)
-- [*https://www.health.govt.nz/news-media/news-items/big-boost-week-kicks-all-dhbs-reach-90-fully-vaccinated-pacific-peoples-204-community-cases-16*](https://www.health.govt.nz/news-media/news-items/big-boost-week-kicks-all-dhbs-reach-90-fully-vaccinated-pacific-peoples-204-community-cases-16)
-- [*https://www.health.govt.nz/news-media/news-items/more-56000-boosters-given-yesterday-306-community-cases-12-hospital*](https://www.health.govt.nz/news-media/news-items/more-56000-boosters-given-yesterday-306-community-cases-12-hospital)
-- [*https://www.health.govt.nz/news-media/news-items/more-50000-boosters-given-yesterday-446-community-cases-23-hospital*](https://www.health.govt.nz/news-media/news-items/more-50000-boosters-given-yesterday-446-community-cases-23-hospital)
-- [*https://www.health.govt.nz/news-media/news-items/more-57000-boosters-given-yesterday-454-community-cases-27-hospital*](https://www.health.govt.nz/news-media/news-items/more-57000-boosters-given-yesterday-454-community-cases-27-hospital)
-- [*https://www.health.govt.nz/news-media/news-items/more-49000-boosters-given-yesterday-810-community-cases-32-hospital*](https://www.health.govt.nz/news-media/news-items/more-49000-boosters-given-yesterday-810-community-cases-32-hospital)
-- [*https://www.health.govt.nz/news-media/news-items/more-20000-boosters-given-yesterday-981-community-cases-39-hospital*](https://www.health.govt.nz/news-media/news-items/more-20000-boosters-given-yesterday-981-community-cases-39-hospital)
-- [*https://www.health.govt.nz/news-media/news-items/more-47000-boosters-given-yesterday-744-community-cases-40-hospital*](https://www.health.govt.nz/news-media/news-items/more-47000-boosters-given-yesterday-744-community-cases-40-hospital)
-- [*https://www.health.govt.nz/news-media/news-items/more-two-million-boosters-given-1160-community-cases-56-hospital*](https://www.health.govt.nz/news-media/news-items/more-two-million-boosters-given-1160-community-cases-56-hospital)
-- 下图2显示了处在第25次的1月22日至在第16次的2月22日的区间段，新西兰每天按疫苗接种情况分类（\*注：红色是完全接种疫苗，绿色是未接种疫苗）的 Covid-19 住院总人数：
+该统计数据基于各国卫生当局每日公布的总数，不包括因其他统计机构进行审查而显著增加的死亡人数。世界卫生组织(WHO)估计，包括中共病毒感染的直接或间接死亡数在内，死亡总数可能比官方统计数据高出两到三倍。尽管许多国家的检测系统得到了加强，但许多轻度和无症状的人没有接受检测，仍未被算作感染者。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1861.png)
-正如你所看到的，每天的完全接种疫苗的人都占了 Covid-19 住院人数的绝大部分；而截至在第16次的2月22日，完全接种疫苗的人的情况似乎在逐渐恶化，而未接种疫苗的人则有所改善。
+文字版原文：[中共病毒致世界581.3万人死亡 – GNEWS](https://gnews.org/zh-hans/2007584/)
 
-在第25次的1月22日，仅有6人因 Covid-19 住院，其中完全接种疫苗的人占5次住院，未接种疫苗的人占1次住院；但在第16次的2月22日，有25人因Covid-19而住院，其中完全接种疫苗的人占23次住院，而未接种疫苗的人仅占2次住院。 下图3显示了在第25次的1月22日至在第16次的2月22日的区间段，新西兰按疫苗接种情况划分的 Covid-19 住院人数比例：
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1862.png)
-在这19天中，有6天 Covid-19 住院的全都是完全疫苗接种者（大约有 79% 的新西兰人口被认为是完全接种疫苗者）。
-
-最近两天的数据显示，2月15日完全接种疫苗的人占住院人数的 90%，2月16日的住院人数占比 92%。
-
-新西兰卫生部拒绝公布按疫苗接种情况划分的 Covid-19 死亡人数，但我们认为，从他们悄悄公布的 Covid-19 住院人数的非常有限的数据中可以清楚地看到，新西兰正处于完全接种疫苗的大流行中，而且看起来 Covid-19 疫苗接种在预防住院方面的好处为零；实际上，从给出的数字来看（如下图4），接种疫苗似乎使情况变得更糟。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1863.png)
-（文章仅代表作者观点与GNEWS无关）
-
-素材来源：[dailyexpose.uk] [New Zealand’s Pandemic of the Fully Vaccinated | Up to 100% of](https://dailyexpose.uk/2022/02/18/new-zealands-pandemic-of-the-fully-vaccinated/) [Covid-19 Hospitalisations are among the Fully Vaccinated according to official data](https://dailyexpose.uk/2022/02/18/new-zealands-pandemic-of-the-fully-vaccinated/)
-
-* * *
-
-审核：文乐
-校对：花羽
-发布：花羽
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-5.jpeg)
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,55 +2,28 @@
 ---
 
 
-## 澳洲朝野抨击中共以雷射光照射澳军机的举动
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2035750/)
+## 樱花FM|天文学家：中共国长征运载火箭3月撞击月球
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2035761/)
 
-作者：香草山医疗部 — 云豹
+音频：东京樱花团/战友520
+![](https://lh4.googleusercontent.com/r8grD3LmT51quIhlQQjz3MxQwTXyNsl0qzdD4L2nCbw57JzwjvgPQSk-RYrRvHk3sl5BGzpRtNLl28qexJbbpWAyOAZE2IeM1b2LZhTzwUtnr96VzO2R3zemeto08YQqkg-TPXX0)
+法新社2月14日报导，天文学专家表示，预料中共国打造的火箭将在3月初击中月球。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-3.jpg)
+专家说，确实有1枚火箭(2014-065B)将在3月4日击中月球表面，但不是先前所宣布的来自马斯克(Elon Musk)的公司，而是来自2014年中共国嫦娥5号T1任务发射的长征三号丙运载火箭推进器。
 
+这项令人震惊的消息是由天文学家葛瑞(Bill Gray)所宣布，他是最早发现到这项未来影响的学者，并在上周末坦承错误。葛瑞上个月26日表示，美国太空探索科技公司1枚火箭完成任务后遭弃置太空，在漂流7年后将于3月撞上月球。
 
+另一位天文物理学家麦道威(Jonathan McDowell)在推特发文说，这项错误只是强调出对深太空(deep space)物体缺乏适当追踪的问题。
 
+鼓吹加强对太空垃圾监管的麦道威指出，这个物体的亮度与预期差不多，在预测的时间出现、并在合理的轨道上移动。「事后看来，我应该要注意到有关它的轨道的一些奇怪事情」。
 
+美国航空总署(NASA)1月下旬曾表示，拜月球轨道探测器(Lunar Reconnaissance Orbiter)所赐，他们将试图观察由这个物体爆炸所形成的坑口，并称这是一个「令人兴奋的研究机会」。
 
+文字版原文：[天文学家：中共国长征运载火箭3月撞击月球 – GNEWS](https://gnews.org/zh-hans/2006590/)
 
-
-
-
-当地时间2月20日，澳州总理莫里森及最大在野党工党领袖艾班尼斯个自发表声明，强烈谴责中共军舰以激光束照射澳洲军机的挑衅举动。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/f56bde5e10faa84a.jpg)
-
-此次事件发生于17日，中共军舰于澳洲专属经济海域内，在没有受到任何挑衅的情况下，使用激光束照射一架即将降落的澳洲P-8A海神巡逻机，威胁到该机及人员的安全。
-
-莫里森表示澳洲绝不接受中共这种恐吓举动。并要求中共对此次的挑衅行为提出解释。澳洲国防部长杜登表示，澳洲必须以强硬姿态来回应中共的胁迫、霸凌和恐吓。艾班尼斯则表示，中共的行为越来越具侵略性。澳洲政府必需对中共发出最强烈的谴责，而且不论任何人来领导澳洲，都需要面对来自于中共的挑战。
-
-参考连接：[https://www.cna.com.tw/news/aopl/202202200046.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/aopl/202202200046.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-
-2022年2月20日
-
-（本文为作者观点，不代表G NEWS立场）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-7.jpg)
-
-*编辑 /校对*：*Yuki*jiang
-
-*发稿：Yuki*jiang
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

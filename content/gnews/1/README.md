@@ -2,10 +2,10 @@
 ---
 
 
-## 2022結束中共的群魔乱舞
-` 新西兰农场【光影传镜】` [轉載自GNews](https://gnews.org/zh-hans/2035924/)
+## 虎年灭共年画欣赏
+` 新西兰农场【光影传镜】` [轉載自GNews](https://gnews.org/zh-hans/2035969/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/110.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/111-4.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_9928.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_9930-1.jpg)
 图文设计：新西兰农场设计组
 上 传：F
 

@@ -2,18 +2,18 @@
 ---
 
 
-## 樱花FM|国际人权组织：IOC无法确保奥运制服不涉强迫劳动
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2035849/)
+## 樱花FM|香港今日新增至少1510例中共病毒确诊病例
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2035922/)
 
 音频：东京樱花团/战友520
-![](https://lh3.googleusercontent.com/kYnPBZ2lSMukzrCXiOg-msEOs7aVJGj2g-UXLSInNbVjJwwDwTtUCgJMdlmRqQMggGPhYc_QUQicqbD8brfYUja9gkKToq-oXjtmBtDQoNFjjrlEY7DKfzxVjKe8zplsVGHnYBE_)
-据国际非政府组织“人权观察”（Human Rights Watch, HRW）网站报导，总部位于美国纽约的人权组织和“结束维吾尔地区强迫劳动联盟”（Coalition to End Forced Labor in the Uyghur Region, EUFL）周一（14日），就国际奥委会对2022年北京冬奥会产品的尽职调查（due diligence）的可信度提出质疑。
+![](https://lh4.googleusercontent.com/-c5reaavx2BPWJEelfLkjEfBT5iTe801Br1KNU4HFNHlFzE4g63N3zehktxgI3FcfvFPbZDK_NHcmFDu4qi_K5FxSZyDd_8m3BVWMeT_AoAclXYKr11pIfbWdbQWJBOZmgl5djAl)
+香港第5波疫情恶化，香港星岛网援引消息称，香港今日（15日）新增1510例中共病毒（新冠病毒Covid-19）确诊病例，暂时有5400例初步确诊。
 
-国际奥委会于2022年1月19日发布了一份声明，描述了它在北京2022年奥运会前对供应商进行的尽职调查。但该调查存在重大漏洞，EUFL联盟负责人之一贝内特·弗里曼（Bennett Freeman）表示，“至关重要的是，国际奥委会1月份的声明甚至没有提到维吾尔人的强迫劳动，而这一主要风险本应是这项工作的重点。”
+此前，香港卫生防护中心14日公布，香港报告新增2071例中共病毒确诊病例，其中19例属非本地感染病例，32例带L 452R变种病毒，1975例怀疑Omicron，其中百余例未有结果；同日发现4500例中共病毒初步阳性病例，另外卫生防疫中心化验所仍有1000多例病例未分析。
 
-“人权观察”和EUFL联盟于1月31日写信给国际奥委会，要求提供更多信息，但尚未收到答复。
+纵观香港两年来的疫情，一直非常严重，疫苗的接种率将近80%，与大陆的通关几乎是关闭状态，导致香港经济下滑、物价飞涨，在这样一个被香港政府管理的“相当不错”的地区仍然成为疫情高发地，不得不让人三思，病毒到底是哪里来的？为什么有那么多的变种？疫苗到底安不安全？有没有效？香港政府还在把没有封城当作功劳炫耀，他们真正在为普通大众服务吗。有共产党在的地方就有无穷的灾难，跟着共产党，走进火葬场。
 
-文字版原文：[国际人权组织：IOC无法确保奥运制服不涉强迫劳动 – GNEWS](https://gnews.org/zh-hans/2007382/)
+文字版原文：[香港今日新增至少1510例中共病毒确诊病例 – GNEWS](https://gnews.org/zh-hans/2007067/)
 
 *编辑：东京樱花团/asket
 发布：东京樱花团/平安卿卿*
