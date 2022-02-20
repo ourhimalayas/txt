@@ -2,17 +2,17 @@
 ---
 
 
-## 澳国防部严厉谴责中共军舰用激光照射澳军飞机行为
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2035396/)
+## 欧盟：俄罗斯若入侵乌克兰，将对其进行制裁
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2035397/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-20-0852521.jpg)图片来源 www.voachinese.com
-据美国之音2月19日报道，澳大利亚国防部谴责中共国一艘海军军舰向澳大利亚的一架P-8A反潜侦察机发射激光。澳军方表示，这是一起严重的安全事件。激光如果照射到飞机上，可能会造成飞行员暂时性失明，从而引起安全风险，尤其是在飞机起飞和着陆的时候。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-20-0852522.jpg)图片来源：美国之音
+据美国之音2月20日报道，欧盟负责人表示，俄罗斯一旦入侵乌克兰，将对俄罗斯的金融市场和高科技产品出口施加制裁。
 
-中共国声称对南中国海几乎全部海域拥有主权，持续多年在南中国海的一些礁石附近填海造岛、修建军事基地。随着中共国在这一地区的军事活动加剧，美国等西方盟国也出动海空力量加强巡航，从而导致该地区局势紧张。
+欧盟执委会已经与美国、英国和加拿大制定了可能实施金融制裁整套方案。英国表示，如果俄罗斯入侵乌克兰，将会制裁俄罗斯个人和战略重要公司，不允许他们在伦敦资本市场融资。美国对俄罗斯的制裁可能包括“环球银行金融电信协会”（SWIFT）系统。
 
-中共篡政以来，先是画了个圈，把台湾画进了中共国版图。后来，中共又画了一个圈，把南中国海划进了中共国版图，即使国际法庭已经判决中共国对南中国海没有主权。中共藐视国际秩序，圈画到哪里，哪里的海域或疆土就归中共国所有，就会采取一系列挑衅行为。随着中共野心的扩大，中共的威胁也在增大。
+普京一旦对乌克兰采取军事行动，无疑会招致西方国家的经济制裁，以及可能的军事打击。习近平一直想要入侵台湾，欧盟的表态对中共也是一个震慑。动手就制裁，制裁必灭亡。
 
-新闻参考链接：[https://www.voachinese.com/a/australia-says-china-warship-fired-laser-at-its-patrol-plane-20220219/6450290.html](https://www.voachinese.com/a/australia-says-china-warship-fired-laser-at-its-patrol-plane-20220219/6450290.html)
+新闻参考链接：[https://www.voachinese.com/a/russia-be-cut-off-from-markets-20220219/6450625.html](https://www.voachinese.com/a/russia-be-cut-off-from-markets-20220219/6450625.html)
 
 * * *
 

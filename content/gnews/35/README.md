@@ -2,36 +2,24 @@
 ---
 
 
-## 澳洲自由车队示威者要求结束疫苗强制令并解散政府
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2035356/)
+## 澳州国防部谴责中共军舰用激光照射澳巡逻机
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2035357/)
 
-翻译/编辑：小红帽
+#### 翻译/撰稿：zzballack
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/8-26.png)图片来源：www.rebelnews.com
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-2-12.jpg)图片来源：美联社
+据ABC新闻（ABC News）2月19日报道，澳大利亚国防部周六（2月19日）发表声明，谴责中共海军战舰在2月17日向澳洲一架海上巡逻机发射激光，将该机机组人员的生命置于危险之中。
 
+澳洲国防部在声明中说：“澳洲的一架P-8A波塞冬海上巡逻机（P-8A Poseidon plane）2月17日在澳洲北部航线上空飞行时，发现一艘中共海军战舰对该机发射激光。这是一起严重危害安全的事件，我们强烈谴责这种不专业和不安全的军事行为。这种行为可能危及澳洲国防人员的生命和安全。”据报道，用激光照射飞机非常危险，因为这可能会导致飞行员受伤，或令他们短时间失明，因此造成安全隐患，特别是在飞机起飞或降落时。
 
-根据RT新闻2月19日报道， 周六，在澳大利亚首都堪培拉，”前往堪培拉的车队 “运动组织了几次反对新冠疫苗强制令的游行。成群结队的抗议者在市中心的几个方向移动，并在议会大厦附近聚集。
+事发当时，发射激光的那艘战舰在护卫另外一艘中共国船只穿越托雷斯海峡（the Torres Strait）。目前，这两艘船只都在澳大利亚东部的珊瑚海（the Coral Sea）行驶。
 
-从RT新闻的视频录像显示，集会上出现了“不要为工作打针”、“不要碰我们的孩子”和“我的身体，我的选择”的标语。其他横幅上写着“自2020年以来，我已经失去了说再见的机会”和“团结起来，我们永远不会被打败”。
+类似事件并不罕见。美军曾在2020年前谴责中共海军在太平洋地区朝一架美军波塞冬巡逻机发射激光。2019年，澳洲一架海军直升飞机的飞行员表示，该直升机在南中国海遭到激光照射，最后出于谨慎不得不迫降。2018年，中共在非洲吉布提（Djibouti）的军事基地使用高功率激光照射美军战机，导致两位美国飞行员受伤，美国政府曾就此对中共当局发出正式投诉。
 
-裹着旗子的示威者在街头游行时高呼“将他们全部解雇”（他们指的是澳大利亚政府），同时呼吁“拯救儿童”和“拯救澳大利亚”。
+最近几年南海的局势非常紧张，因为中共声称对南海拥有几乎所有的主权，并军事化南海的岛屿，威胁邻国，而美国及其盟友则坚持在南海国际水域进行航海和航空自由行。
 
-警车伴随着整个抗议活动。抗议活动看起来很和平。
-
-一名参加运动的男子告诉记者，他认为政府严格的新冠（Covid-19）限制是“违反我们的宪法”和法治的行为。他指责当局“完全控制”了人民。
-
-另一位拿着扩音器的抗议者告诉欢呼的人群，车队将在该市停留，“为了表明我们不会袖手旁观”，以回应政府的政策。他还呼吁 “结束（新冠）疫苗的强制接种令”。
-
-新闻链接：[Australian ‘Freedom Convoy’ marches to parliament building](https://www.rt.com/news/549956-convoy-canberra-protest-vaccination/)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻来源：[Australia says China warship fired laser at its patrol plane](https://abcnews.go.com/International/wireStory/australia-china-warship-fired-laser-patrol-plane-82997764)
 
  
 

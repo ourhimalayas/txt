@@ -2,25 +2,28 @@
 ---
 
 
-## 中共数字人民币在冬奥会借机推广
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2031615/)
+## 以色列将废除中共病毒疫苗护照系统
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2031593/)
 
-作者：台灣寶島農場 – 尋文客
+作者：银河系农场 – 骄子
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-媒体2月15日报道，中共数字人民币推出以来，其交易总额仅约130亿美元，截至2021年6月30日，Visa 12个月交易总额 12.5万亿美元，对比之下，前者相形见绌。
+2月17日周四，以色列总理总理宣布，中共病毒感染病例每天持续下降，中共病毒疫苗接种证明的护照系统将会暂停使用。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/11-26.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/10-13.jpg)
 
-一位金融咨询公司董事在采访时评价，中共数字人民币“只是另一种法定货币，应该被私人货币、或至少是非建立在奴隶劳工和极权主义基础上的主权货币超越”。
+据悉该护照系统称为绿色通行证，限制未完成接种至少三针疫苗的人们，进行大型集会和进入室内场所。在过去一年的大部分时间里，绿色通行证是以色列日常生活的必备品。
 
-中共数字货币引发的争议，恰印证了郭文贵先生在直播中强调的，中共数字人民币的本质，是绝对中心化、掠夺财富的行政工具。
+在2020年，以色列与辉瑞达成协议，用医疗数据换取稳定的中共病毒疫苗供应后，迅速为大部分成年人口接种了疫苗。当前约48%人口已经接种了三针疫苗，全国72%的人口已经接种了至少一针。
 
 参考链接：
+
+- [Israel to scrap COVID passport system as omicron wanes](https://ktar.com/story/4893787/israel-to-scrap-covid-passport-system-as-omicron-wanes/amp/)
+
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
 
 总编：童谣
-编辑：静言
+编辑：童谣
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
