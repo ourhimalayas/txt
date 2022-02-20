@@ -2,24 +2,32 @@
 ---
 
 
-## 美国针对俄罗斯入侵乌克兰的最初制裁将不包括从SWIFT除名
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2034362/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年2月19日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2034380/)
 
-#### 撰稿：彩虹       
+作者：香草山翻译部
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/16453262971.png)图片来源：自由欧洲之声
-据《新闻极限》2月18日报道，周五，白宫国家安全副顾问达列普·辛格（Daleep Singh）告诉记者，如果俄罗斯入侵乌克兰，在最初的制裁措施中，将很可能不包括把俄罗斯从SWIFT（Society for Worldwide Interbank Financial Telecommunication）银行系统中除名。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO-2.jpg)
 
-这个由200多个国家组成的金融转账组织，目前有超过11000家金融机构在使用。辛格说：“所有可用的（制裁）选项很明确，但是很可能不会在最初的方案中看到SWIFT。”
 
-辛格表示，“我们还有其他可以采取的严厉（制裁）措施，我们的盟友和伙伴已经准备好与我们步调一致地采取这些措施，而且不会产生同样的溢出效应（Spillover Effects）。但我们始终会监测这些选项，随着时间的推移，我们会调整我们的判断。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-15.png)
+校对：Stay文苑
 
-辛格还表示，如果俄罗斯在乌克兰发动全面入侵，美国即将完成第一轮的制裁。
+编辑：Stay文苑
 
-**新闻来源**
+发稿：Stay文苑
 
-[WH: Booting Russia From SWIFT Banking System Unlikely in Initial Sanctions](https://www.newsmax.com/politics/banking-economy-russia-ukraine/2022/02/18/id/1057530/)
+新闻：[https://gtv.org/broadcast/watch/6211996bb706176dd78d8bbb](https://gtv.org/broadcast/watch/6211996bb706176dd78d8bbb)
+访谈：[https://gtv.org/broadcast/watch/6211a174b706176dd78d90fb](https://gtv.org/broadcast/watch/6211a174b706176dd78d90fb)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-2.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

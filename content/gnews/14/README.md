@@ -2,23 +2,17 @@
 ---
 
 
-## 20220218 郭文贵大直播 ：共产党不允许别人使用去中心货币 试图让世界的人使用中心化数字人民币
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2034249/)
+## 20220218:习手术后，追查冬奥会花费，统计局20多人被抓
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2034268/)
 
-作者：东京樱花团小视频组
-
-
-
-
-
-
+作者:东京樱花团小视频组
 
 校对：东京樱花团小视频组
 
 编辑发布：东京樱花团小视频组
 
 * * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-3.jpg)
+![喜马拉雅东京樱花团](https://assets.gnews.org/wp-content/uploads/2022/02/yht-8.jpg)喜马拉雅东京樱花团
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,37 +2,50 @@
 ---
 
 
-## 中共治下盛产恶法，为绑架、贩卖、强奸妇女保驾护航
-` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/2034299/)
+## 魁北克省自由卡车司机收到罚单同时，数名示威者递给他现金
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2034324/)
 
-新西兰伊甸农场Gnews组 财经G乐部-亚伦
+2022-02-19
 
-2月19日，郭文贵先生于Gettr视频中透露，中共治下的恶法层出不穷，还有法律规定绑架来的女人不能离婚、不能被拯救，中共已然成为文明世界中最肮脏的角落。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/阿萨大大1.jpg)图片来源B站
+编译及评论：16626
+![](https://assets.gnews.org/wp-content/uploads/2022/02/VFO37URVV9O55EEZD7S.png)图片来源：截屏于[EN IMAGES | Un camionneur reçoit de l’argent pour payer sa contravention](https://www.tvanouvelles.ca/2022/02/19/a-voir--un-camionneur-recoit-de-largent-pour-payer-sa-contravention)（发表于 2022 年 2 月 19 日下午 4:51）
+自由卡车司机收到警察的罚单同时数名示威者（马上）递给他现金
+
+TVA Nouvelles 发表于 2022 年 2 月 19 日下午 4:51。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/4AG@8H1311O5B8GM.png)图片来源：截屏于[EN IMAGES | Un camionneur reçoit de l’argent pour payer sa contravention](https://www.tvanouvelles.ca/2022/02/19/a-voir--un-camionneur-recoit-de-largent-pour-payer-sa-contravention)（发表于 2022 年 2 月 19 日下午 4:51）图中显示，在魁北克市，一名卡车司机收到（警察的）一张过度使用汽车喇叭的罚单
+在魁北克市，正当一名卡车司机在收到（警察的）一张过度使用汽车喇叭的罚单后，到数名示威者（马上）递给他现金。
+
+**拿到罚单后仅仅几秒钟内**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/G19GM75SCHQ@@WB.png)图片来源：截屏于[EN IMAGES | Un camionneur reçoit de l’argent pour payer sa contravention](https://www.tvanouvelles.ca/2022/02/19/a-voir--un-camionneur-recoit-de-largent-pour-payer-sa-contravention)（发表于 2022 年 2 月 19 日下午 4:51）图中显示，在（这名卡车司机）拿到他的罚单后仅仅几秒钟内，好几个人（马上），（从视频中可以看到，至少八个支持示威的人），走到他的卡车前，递给他一些现金以帮助支付（罚单的）罚款金额
+在（这名卡车司机）拿到他的罚单后仅仅几秒钟内，好几个人（马上），（从视频中可以看到，至少八个支持示威的人），走到他的卡车前，递给他一些现金以帮助支付（罚单的）罚款金额。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/V9B8806G046V1QY.png)图片来源：截屏于[EN IMAGES | Un camionneur reçoit de l’argent pour payer sa contravention](https://www.tvanouvelles.ca/2022/02/19/a-voir--un-camionneur-recoit-de-largent-pour-payer-sa-contravention)（发表于 2022 年 2 月 19 日下午 4:51）图中显示，在（这名卡车司机）拿到他的罚单后仅仅几秒钟内，好几个人（马上），（从视频中可以看到，至少八个支持示威的人），走到他的卡车前，递给他一些现金以帮助支付（罚单的）罚款金额
+魁北克市警方已警告卡车司机，他们（只）有权“适度”鸣笛（按喇叭）。
+
+#### 国民议会附近的示威者非常多
+
+周六（ 2022 年 2 月 19 日），（魁北克市）国民议会附近的示威者非常多。
+
+#### 国民议会前的数千人（示威者）
+
+另外，加拿大魁北克省的蒙特利尔日报（多米尼克·莱利弗 和 杰里米·伯尼尔DOMINIQUE LELIÈVRE et JÉRÉMY BERNIER 2022 年 2 月 19 日星期六 10:23，[https://www.journaldequebec.com/2022/02/19/images-convoi-de-la-liberte–les-manifestants-de-retour-a-quebec](https://www.journaldequebec.com/2022/02/19/images-convoi-de-la-liberte--les-manifestants-de-retour-a-quebec) ）发表一篇题为《“自由车队”：国民议会前的数千人，抗议者返回魁北克市》的文章报道，（2022 年 2 月 19 日）星期六，魁北克省议会山地区再次出现更大规模的示威，这是在两周内的第二次反对卫生措施的示威。
+
+日前，Gnews发表一篇题为《魁北克省记者“自爆”收到纽伦堡审判的照片，[https://gnews.org/zh-hans/2022554/](https://gnews.org/zh-hans/2022554/) 》的文章报道，一位署名为，安东尼奥斯·萨拉利利斯（Antonios Sarailis）的人，发给加拿大魁北克省的蒙特利尔日报记者，伊曼纽尔 拉特拉维斯，Emmanuelle Latraverse，一张纽伦堡审判处决的照片，并警告下一个就轮到这名记者了。
+
+## 纽伦堡审判的时刻快到了
+
+我们谴责并反对暴力示威，更反对政府施加暴力于人民。那些，颠倒黑白，替邪恶势力站台的媒体，以及执法机关的警察，同样逃脱不了即将到来的纽伦堡审判。
+
+**参考资料**：
+
+1. [EN IMAGES | Un camionneur reçoit de l’argent pour payer sa contravention](https://www.tvanouvelles.ca/2022/02/19/a-voir--un-camionneur-recoit-de-largent-pour-payer-sa-contravention)
 
 
-八孩“铁链女”事件本身已经足够毛骨悚然，更令人震惊的是臭名昭著的徐州丰县竟然有法律明文规定，即绑架来、买来的妇女不能离婚，这是写在当地的法院文书里的。这就是邪恶的中共，这就是比爹亲娘亲的中国共产党，法律为绑架者保驾护航，法院为非法贩卖人口、非法拘禁者提供坚强后盾。匪夷所思的是，网上还有不少无耻之徒、或者无脑之辈为中共洗地、唱赞歌。
+编辑：LILY
+发布：肥鯮
 
-可悲，“铁链女”事件的事实真相在转换几个版本后仍旧难产。现在得知，其中一位去现场查证报道的记者已经与爆料革命取得了联系，讲述自己因为调查此事被当地警察暴打，以至于在医院里呆了一天，拖着伤病之躯回家后站不起来。这位最早要报道“锁链女”的无名英雄还透露，事实上那里被绑架的妇女还有很多，甚至每年几十具无名的女尸漂流在那里。那里的人都习以为常，而且购买妇女的不仅仅是农民，还有当地有钱人，一买买好几名妇女就像狗一样当性奴养着……
-
-冲着她非凡的勇气，郭先生代表新中国联邦当即决定，为这位记者和家人到海外报销三年的生活费用，现在向基金申请给2万Hcoin（喜币）的补助，以及向基金协调解决治病等费用。
-
-据悉，“锁链女”事件让中共最高领导人习近平的夫人彭丽媛同志很不高兴，这里的不高兴之中源于内心的良知，而且她深知她老家贩卖妇女的情况也很普遍。对此事件反应最大的是习的母亲和家人，他们对此事件全网发酵的敏感时机非常恼火，认为是有人特意让习来负责背锅。
-
-“锁链女”事件在世界上的影响更大，现在欧洲人、非洲人、日本人提到这件事都摇头叹息，班农先生和纳瓦罗先生都为此掉泪。况且，“锁链女”只是数量庞大的被绑架、被贩卖、被虐待、沦为性工具的群体中的一员，更多的妇女仍然活在锁链之中、在棍棒之下、在变态的强奸下，或者已经漂尸在江河里化为不曾存在的尘沙。
-
-
-
-**相关Gnews：**
-
-贩卖妇女 | 中共治下的又一哀鸣，我们为自己而战
-
-
-
-> [贩卖妇女 | 中共治下的又一哀鸣，我们为自己而战](https://gnews.org/zh-hans/1972275/)
-
-
-
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
