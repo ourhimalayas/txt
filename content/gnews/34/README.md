@@ -2,32 +2,26 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年2月19日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2034380/)
+## 秘翻在线：专业选手称是否服用兴奋剂专业教练不可能不知道
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2034597/)
 
-作者：香草山翻译部
+撰稿：待命（文暁）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/画像1-27.png)
+（图片源自本文链接）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO-2.jpg)
+2月20日东体育消息前花样滑冰运动员村主章枝（41岁）20日出现在由喜剧二人组 “爆笑问题 “主持的”周日的日本 “节目现场，提到了北京奥运会花样滑冰女选手卡米拉-瓦里耶娃（15=ROC）引起的一系列骚乱。
 
+卡米拉-瓦里耶娃的教练埃特里-图特贝里斯，因涉嫌参与瓦利耶娃的兴奋剂丑闻她的表现后对卡米拉-瓦里耶娃的训斥而恶评如潮。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-15.png)
-校对：Stay文苑
+村主章枝在谈到埃特里教练时说：我们的训练不打人、不踢人、不喊人，但我们反复练习，那些跟不上的人会自己退学。在日本，球员从小就受到教练二人同体式的培养。但在俄罗斯，运动员是由教练挑选的，所以我们在多运动员的要求上，是不同严格。
 
-编辑：Stay文苑
+关于兴奋剂指控，村主章枝说：我不知道教练是否告诉她喝药，但我认为一个专业教练会知道。 我认为专业教练完全可以掌握，在怎样的训练量下，你会感到疲劳，通过怎样的休息下你会恢复。所以，突然有一天，无论你做什么，你都不觉得累，而且你恢复得很快。作为教练，不可能不知道。
 
-发稿：Stay文苑
+戴夫-斯佩克特说：我认为我们正在阻止选手们成长，这几乎就像虐待。当被问及提高年龄限制的呼声时，他回答说：拥有大量年轻选手的国家会提出抗议，国家的便利性会发挥作用。所以，年龄限制应该在通过医学和科学鉴定后确定，而不是由其中这些人确定。
 
-新闻：[https://gtv.org/broadcast/watch/6211996bb706176dd78d8bbb](https://gtv.org/broadcast/watch/6211996bb706176dd78d8bbb)
-访谈：[https://gtv.org/broadcast/watch/6211a174b706176dd78d90fb](https://gtv.org/broadcast/watch/6211a174b706176dd78d90fb)
+生活在日本的笔者知道，村主章枝是日本家喻户晓的花样滑冰运动员。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-2.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+信息源：[村主章枝氏　ワリエワのドーピング騒動に「プロのコーチならわかる」（東スポWeb） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/765f18fd3ee3c7698035f60ca55926301a48d3fe)
 
  
 

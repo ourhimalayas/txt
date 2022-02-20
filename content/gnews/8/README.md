@@ -2,22 +2,37 @@
 ---
 
 
-## 国际奥委会为何不惜为中共顶雷?
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2035186/)
+## 澳洲自由车队示威者要求结束疫苗强制令并解散政府
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2035356/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/国际奥委会为何不惜为中共顶雷.png)（图片源自本文链接）
-2月19日朝日新闻消息：索契奥运会银牌得主、公开的同性恋自由式滑雪运动员格斯·肯沃西（GBR）已经要求国际奥林匹克委员会（IOC）就人权问题采取行动。据路透社报道，他在19日的男子半决赛中获得第八名后，敦促做出在中共国举办该赛事之决定的国际奥委会予以改进。
+翻译/编辑：小红帽
 
-格斯·肯沃西对媒体说：我认为中共国可以举办一届伟大的运动会，而且它已经开幕了。但其存在人权和同性恋问题的事实，国际奥委会在决定在哪里举办奥运会的时候，这点就应该考虑进去。因为全世界都在关注，所以应该做出积极的改变。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/8-26.png)图片来源：www.rebelnews.com
 
-令笔者不解的是，本次北京冬奥会还没结束，国家奥委会就已经多次被投诉。有什么样的好处能使国际奥委会不惜为中共顶雷？
 
-信息来源：[同性愛公表の英国選手、IOCに注文　「中国の人権問題考慮すべき」](http://topics.smt.docomo.ne.jp/article/asahi/sports/ASQ2M6WC8Q2MUHBI03N)
+根据RT新闻2月19日报道， 周六，在澳大利亚首都堪培拉，”前往堪培拉的车队 “运动组织了几次反对新冠疫苗强制令的游行。成群结队的抗议者在市中心的几个方向移动，并在议会大厦附近聚集。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+从RT新闻的视频录像显示，集会上出现了“不要为工作打针”、“不要碰我们的孩子”和“我的身体，我的选择”的标语。其他横幅上写着“自2020年以来，我已经失去了说再见的机会”和“团结起来，我们永远不会被打败”。
+
+裹着旗子的示威者在街头游行时高呼“将他们全部解雇”（他们指的是澳大利亚政府），同时呼吁“拯救儿童”和“拯救澳大利亚”。
+
+警车伴随着整个抗议活动。抗议活动看起来很和平。
+
+一名参加运动的男子告诉记者，他认为政府严格的新冠（Covid-19）限制是“违反我们的宪法”和法治的行为。他指责当局“完全控制”了人民。
+
+另一位拿着扩音器的抗议者告诉欢呼的人群，车队将在该市停留，“为了表明我们不会袖手旁观”，以回应政府的政策。他还呼吁 “结束（新冠）疫苗的强制接种令”。
+
+新闻链接：[Australian ‘Freedom Convoy’ marches to parliament building](https://www.rt.com/news/549956-convoy-canberra-protest-vaccination/)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

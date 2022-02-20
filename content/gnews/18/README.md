@@ -2,38 +2,16 @@
 ---
 
 
-## 铁链上的妈妈
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2034975/)
+## 第44期-未来家族信托的建立方式 PPT展示-G-TV
+` 加拿大温哥华扬帆农场蓝枫法律` [轉載自GNews](https://gnews.org/zh-hans/2035243/)
 
-作者—韩国首尔天池农场战友
-校对/上传—无明逆流
+#### **加拿大温哥华扬帆农场蓝枫法律**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-206.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/2-77.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/3-56.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/4-42.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/5-33.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/6-33.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/7-28.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/8-24.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/9-24.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/10-29.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/11-27.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/12-26.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/13-13.png)
+直播视频：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/W-1.jpeg)图片来源：网络
+[第44期-未来家族信托的建立方式](https://gtv.org/video/id=621185cdb706176dd78d7e8d)
 
-妈妈我想对您说，
-是谁糟蹋了年华，
-妈妈我想对您哭，
-是谁打落了门牙。
-
-噢妈妈，
-铁链上的妈妈，
-您的脖子上铁链重吗？
-噢妈妈，
-铁链上的妈妈，
-您的身上留着这多伤疤！
-您的…
-噢，妈妈，
-铁链上的妈妈
-您的名字是谁亲人在哪！
-噢，妈妈，
-铁链上的妈妈
-您的屈辱为何没有人牵挂！
-
-妈妈呀，
-我们已壮大，
-您受的苦难我们会为您讨一个说法，
-噢妈妈，相信我，
-灭共就是最好的报答。
+编辑/发文：蓝枫法律栏目
 
  
 

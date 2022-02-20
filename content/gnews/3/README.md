@@ -2,24 +2,29 @@
 ---
 
 
-## 乌克兰总统批评西方，要求回答关于加入北约成员国的问题
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2035292/)
+## 澳国防部严厉谴责中共军舰用激光照射澳军飞机行为
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2035396/)
 
-撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-20-0852521.jpg)图片来源 www.voachinese.com
+据美国之音2月19日报道，澳大利亚国防部谴责中共国一艘海军军舰向澳大利亚的一架P-8A反潜侦察机发射激光。澳军方表示，这是一起严重的安全事件。激光如果照射到飞机上，可能会造成飞行员暂时性失明，从而引起安全风险，尤其是在飞机起飞和着陆的时候。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/乌克兰总统批评西方，要求回答关于加入北约成员国的问题.png)图片来自本文网站
+中共国声称对南中国海几乎全部海域拥有主权，持续多年在南中国海的一些礁石附近填海造岛、修建军事基地。随着中共国在这一地区的军事活动加剧，美国等西方盟国也出动海空力量加强巡航，从而导致该地区局势紧张。
 
-2月20日时事通信在线消息：乌克兰总统泽连斯基19日在德国慕尼黑举行的安全会议上发言，强调了俄罗斯带来的军事威胁。同时，他批评西方保护乌克兰的决心不明确。呼吁就是否应允许乌克兰加入欧盟（EU）和北大西洋公约组织（NATO）做出答复。
+中共篡政以来，先是画了个圈，把台湾画进了中共国版图。后来，中共又画了一个圈，把南中国海划进了中共国版图，即使国际法庭已经判决中共国对南中国海没有主权。中共藐视国际秩序，圈画到哪里，哪里的海域或疆土就归中共国所有，就会采取一系列挑衅行为。随着中共野心的扩大，中共的威胁也在增大。
 
-泽连斯基强调，乌克兰一直是保护欧洲免受俄罗斯影响的“盾牌”。在谈到德国宣布拒绝向乌克兰提供武器，送5000顶头盔时，他说：”我们感谢任何支持，支持是欧洲国家应该为欧洲安全做出的贡献。
+新闻参考链接：[https://www.voachinese.com/a/australia-says-china-warship-fired-laser-at-its-patrol-plane-20220219/6450290.html](https://www.voachinese.com/a/australia-says-china-warship-fired-laser-at-its-patrol-plane-20220219/6450290.html)
 
-信息源：
+* * *
 
-[ウクライナ大統領、欧米も批判　NATO加盟の回答要求](https://news.yahoo.co.jp/articles/9f53e2824bcdfad0d1eb40c9c7e7bb17ad8aedc6#:~:text=%E3%83%88%E3%83%94%E3%83%83%E3%82%AF%E3%82%B9%E4%B8%80%E8%A6%A7-,%E3%82%A6%E3%82%AF%E3%83%A9%E3%82%A4%E3%83%8A%E5%A4)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
