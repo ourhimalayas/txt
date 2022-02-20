@@ -2,28 +2,61 @@
 ---
 
 
-## 樱花FM|天文学家：中共国长征运载火箭3月撞击月球
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2035761/)
+## 新西兰Covid-19住院患者几乎都是完全疫苗接种者
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2035834/)
 
-音频：东京樱花团/战友520
-![](https://lh4.googleusercontent.com/r8grD3LmT51quIhlQQjz3MxQwTXyNsl0qzdD4L2nCbw57JzwjvgPQSk-RYrRvHk3sl5BGzpRtNLl28qexJbbpWAyOAZE2IeM1b2LZhTzwUtnr96VzO2R3zemeto08YQqkg-TPXX0)
-法新社2月14日报导，天文学专家表示，预料中共国打造的火箭将在3月初击中月球。
+编译：wenwu
 
-专家说，确实有1枚火箭(2014-065B)将在3月4日击中月球表面，但不是先前所宣布的来自马斯克(Elon Musk)的公司，而是来自2014年中共国嫦娥5号T1任务发射的长征三号丙运载火箭推进器。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1859.png)dailyexpose.uk
 
-这项令人震惊的消息是由天文学家葛瑞(Bill Gray)所宣布，他是最早发现到这项未来影响的学者，并在上周末坦承错误。葛瑞上个月26日表示，美国太空探索科技公司1枚火箭完成任务后遭弃置太空，在漂流7年后将于3月撞上月球。
+新西兰卫生部于周三（16日）发布了一份新闻报告，其中包含了按疫苗接种情况划分的 Covid-19 住院人数的信息。他们在报告中(如下图1)确认，在北部地区目前的住院人数中，未接种疫苗的人口占2人，而完全接种疫苗的人口占23人。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1860.png)
+因此，我们回顾了新西兰卫生部以前发布的新闻报道，以描绘出目前据称席卷全国的Covid-19大流行病的情况。
 
-另一位天文物理学家麦道威(Jonathan McDowell)在推特发文说，这项错误只是强调出对深太空(deep space)物体缺乏适当追踪的问题。
+以下是我们分析的报告，可以追溯到在第25次的1月22日：
 
-鼓吹加强对太空垃圾监管的麦道威指出，这个物体的亮度与预期差不多，在预测的时间出现、并在合理的轨道上移动。「事后看来，我应该要注意到有关它的轨道的一些奇怪事情」。
+- [*https://www.health.govt.nz/news-media/news-items/record-day-boosters-and-paediatric-doses-25-community-cases-10-hospital*](https://www.health.govt.nz/news-media/news-items/record-day-boosters-and-paediatric-doses-25-community-cases-10-hospital)
+- [*https://www.health.govt.nz/news-media/news-items/more-100000-first-doses-5-11s-90-auckland-maori-fully-vaccinated-23-community-cases-6-hospital*](https://www.health.govt.nz/news-media/news-items/more-100000-first-doses-5-11s-90-auckland-maori-fully-vaccinated-23-community-cases-6-hospital)
+- [*https://www.health.govt.nz/news-media/news-items/more-30000-boosters-given-yesterday-103-community-cases-11-hospital*](https://www.health.govt.nz/news-media/news-items/more-30000-boosters-given-yesterday-103-community-cases-11-hospital)
+- [*https://www.health.govt.nz/news-media/news-items/more-13000-boosters-given-yesterday-91-community-cases-10-hospital*](https://www.health.govt.nz/news-media/news-items/more-13000-boosters-given-yesterday-91-community-cases-10-hospital)
+- [*https://www.health.govt.nz/news-media/news-items/more-22000-boosters-given-yesterday-126-community-cases-8-hospital*](https://www.health.govt.nz/news-media/news-items/more-22000-boosters-given-yesterday-126-community-cases-8-hospital)
+- [*https://www.health.govt.nz/news-media/news-items/more-38000-boosters-given-yesterday-142-community-cases-6-hospital*](https://www.health.govt.nz/news-media/news-items/more-38000-boosters-given-yesterday-142-community-cases-6-hospital)
+- [*https://www.health.govt.nz/news-media/news-items/more-36000-boosters-given-yesterday-147-community-cases-13-hospital*](https://www.health.govt.nz/news-media/news-items/more-36000-boosters-given-yesterday-147-community-cases-13-hospital)
+- [*https://www.health.govt.nz/news-media/news-items/record-day-boosters-more-66000-doses-given-yesterday-243-community-cases-10-hospital-1-icu*](https://www.health.govt.nz/news-media/news-items/record-day-boosters-more-66000-doses-given-yesterday-243-community-cases-10-hospital-1-icu)
+- [*https://www.health.govt.nz/news-media/news-items/more-48000-booster-doses-given-yesterday-208-community-cases-12-hospital-1-icu*](https://www.health.govt.nz/news-media/news-items/more-48000-booster-doses-given-yesterday-208-community-cases-12-hospital-1-icu)
+- [*https://www.health.govt.nz/news-media/news-items/almost-25000-booster-doses-waitangi-day-188-community-cases-14-hospital-1-icu*](https://www.health.govt.nz/news-media/news-items/almost-25000-booster-doses-waitangi-day-188-community-cases-14-hospital-1-icu)
+- [*https://www.health.govt.nz/news-media/news-items/more-200000-paediatric-doses-and-over-16-million-boosters-now-given-202-community-cases-14-hospital*](https://www.health.govt.nz/news-media/news-items/more-200000-paediatric-doses-and-over-16-million-boosters-now-given-202-community-cases-14-hospital)
+- [*https://www.health.govt.nz/news-media/news-items/big-boost-week-kicks-all-dhbs-reach-90-fully-vaccinated-pacific-peoples-204-community-cases-16*](https://www.health.govt.nz/news-media/news-items/big-boost-week-kicks-all-dhbs-reach-90-fully-vaccinated-pacific-peoples-204-community-cases-16)
+- [*https://www.health.govt.nz/news-media/news-items/more-56000-boosters-given-yesterday-306-community-cases-12-hospital*](https://www.health.govt.nz/news-media/news-items/more-56000-boosters-given-yesterday-306-community-cases-12-hospital)
+- [*https://www.health.govt.nz/news-media/news-items/more-50000-boosters-given-yesterday-446-community-cases-23-hospital*](https://www.health.govt.nz/news-media/news-items/more-50000-boosters-given-yesterday-446-community-cases-23-hospital)
+- [*https://www.health.govt.nz/news-media/news-items/more-57000-boosters-given-yesterday-454-community-cases-27-hospital*](https://www.health.govt.nz/news-media/news-items/more-57000-boosters-given-yesterday-454-community-cases-27-hospital)
+- [*https://www.health.govt.nz/news-media/news-items/more-49000-boosters-given-yesterday-810-community-cases-32-hospital*](https://www.health.govt.nz/news-media/news-items/more-49000-boosters-given-yesterday-810-community-cases-32-hospital)
+- [*https://www.health.govt.nz/news-media/news-items/more-20000-boosters-given-yesterday-981-community-cases-39-hospital*](https://www.health.govt.nz/news-media/news-items/more-20000-boosters-given-yesterday-981-community-cases-39-hospital)
+- [*https://www.health.govt.nz/news-media/news-items/more-47000-boosters-given-yesterday-744-community-cases-40-hospital*](https://www.health.govt.nz/news-media/news-items/more-47000-boosters-given-yesterday-744-community-cases-40-hospital)
+- [*https://www.health.govt.nz/news-media/news-items/more-two-million-boosters-given-1160-community-cases-56-hospital*](https://www.health.govt.nz/news-media/news-items/more-two-million-boosters-given-1160-community-cases-56-hospital)
+- 下图2显示了处在第25次的1月22日至在第16次的2月22日的区间段，新西兰每天按疫苗接种情况分类（\*注：红色是完全接种疫苗，绿色是未接种疫苗）的 Covid-19 住院总人数：
 
-美国航空总署(NASA)1月下旬曾表示，拜月球轨道探测器(Lunar Reconnaissance Orbiter)所赐，他们将试图观察由这个物体爆炸所形成的坑口，并称这是一个「令人兴奋的研究机会」。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1861.png)
+正如你所看到的，每天的完全接种疫苗的人都占了 Covid-19 住院人数的绝大部分；而截至在第16次的2月22日，完全接种疫苗的人的情况似乎在逐渐恶化，而未接种疫苗的人则有所改善。
 
-文字版原文：[天文学家：中共国长征运载火箭3月撞击月球 – GNEWS](https://gnews.org/zh-hans/2006590/)
+在第25次的1月22日，仅有6人因 Covid-19 住院，其中完全接种疫苗的人占5次住院，未接种疫苗的人占1次住院；但在第16次的2月22日，有25人因Covid-19而住院，其中完全接种疫苗的人占23次住院，而未接种疫苗的人仅占2次住院。 下图3显示了在第25次的1月22日至在第16次的2月22日的区间段，新西兰按疫苗接种情况划分的 Covid-19 住院人数比例：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1862.png)
+在这19天中，有6天 Covid-19 住院的全都是完全疫苗接种者（大约有 79% 的新西兰人口被认为是完全接种疫苗者）。
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+最近两天的数据显示，2月15日完全接种疫苗的人占住院人数的 90%，2月16日的住院人数占比 92%。
+
+新西兰卫生部拒绝公布按疫苗接种情况划分的 Covid-19 死亡人数，但我们认为，从他们悄悄公布的 Covid-19 住院人数的非常有限的数据中可以清楚地看到，新西兰正处于完全接种疫苗的大流行中，而且看起来 Covid-19 疫苗接种在预防住院方面的好处为零；实际上，从给出的数字来看（如下图4），接种疫苗似乎使情况变得更糟。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1863.png)
+（文章仅代表作者观点与GNEWS无关）
+
+素材来源：[dailyexpose.uk] [New Zealand’s Pandemic of the Fully Vaccinated | Up to 100% of](https://dailyexpose.uk/2022/02/18/new-zealands-pandemic-of-the-fully-vaccinated/) [Covid-19 Hospitalisations are among the Fully Vaccinated according to official data](https://dailyexpose.uk/2022/02/18/new-zealands-pandemic-of-the-fully-vaccinated/)
+
+* * *
+
+审核：文乐
+校对：花羽
+发布：花羽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-5.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

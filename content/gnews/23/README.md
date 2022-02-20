@@ -2,55 +2,26 @@
 ---
 
 
-## 澳洲朝野抨击中共以雷射光照射澳军机的举动
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2035750/)
+## 樱花FM|致习近平主席的一封信
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2035763/)
 
-作者：香草山医疗部 — 云豹
+音频：东京樱花团/战友520
+![](https://lh5.googleusercontent.com/ZxXxUJ9wfu9iJZjJIXXFRDjNuN960lL5k-tGb3zZHWyNflN2BNNJUbPvE9VVC7CQum4A3s_qgsU0-Pxwz1H-cCwuHQwvD-Pi4wBev-u-cyfYXz5X5gjjJmJz7cfyD1avm4h1JDVY)
+2月14日，郭文贵先生在Gettr视频中透露，你已经8天未出镜，正在某个养老院里以身体微恙、需要疗养为名处心积虑地酝酿着对台湾的整个作战计划，随时发动对台湾的侵略战争。同时，你的战略伙伴俄罗斯，也正有条不紊地进行作战准备，大批军队进入白俄罗斯，这使得乌克兰面对被包围的形势。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-3.jpg)
+现在，你最关心的是俄罗斯普京是不是真的打，并且我相信你一定会等俄罗斯普京来先开第一枪！虽然你们狼狈为奸，但是相互之间还是缺乏彼此的信任！
 
+在这里，我想真诚地告诉你：俄罗斯与乌克兰的大规模战争绝不会打起来，你就死了这条心吧，我真心为你的战略误判而着急啊！普京绝对没想真心去打乌克兰，因为对于普京会得不偿失！现在俄乌之间上演的大戏这么逼真，就是怕你习主席不上套呢？
 
+我个人认为美国和欧洲以及乌克兰已经与俄罗斯总统普京私下勾兑好了，他们共同设下天仙局就等你自己往里钻了！甚至，俄罗斯与美国欧洲乌克兰怕你不上套，双方相互还会真的开上几枪！我想问你：当普京开了枪后，你打不打台湾呢？如果普京开了枪，你不打台湾，疫苗灾难也会导致你彻底完蛋！如果普京开枪后，你立即攻打台湾，美、英、欧、日、印、澳、加拿大等多国联军必会迅速将你消灭！ 世界正处于巨变之中，我再想问一下你这叫什么战争？连日子都有人说了，16日。开战之前满世界嚷嚷，有这么打仗的吗？难道又回到封建时代打仗前先下个战书发个檄文昭告天下？
 
+收手吧，习近平主席！放下屠刀立地成佛！现在，只有你在国际监督下彻底解体，并进行真正一人一票选举的政治改革，才是你唯一正确的道路！！
 
+文字版原文：[致习近平主席的一封信 – GNEWS](https://gnews.org/zh-hans/2007864/)
 
-
-
-
-
-当地时间2月20日，澳州总理莫里森及最大在野党工党领袖艾班尼斯个自发表声明，强烈谴责中共军舰以激光束照射澳洲军机的挑衅举动。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/f56bde5e10faa84a.jpg)
-
-此次事件发生于17日，中共军舰于澳洲专属经济海域内，在没有受到任何挑衅的情况下，使用激光束照射一架即将降落的澳洲P-8A海神巡逻机，威胁到该机及人员的安全。
-
-莫里森表示澳洲绝不接受中共这种恐吓举动。并要求中共对此次的挑衅行为提出解释。澳洲国防部长杜登表示，澳洲必须以强硬姿态来回应中共的胁迫、霸凌和恐吓。艾班尼斯则表示，中共的行为越来越具侵略性。澳洲政府必需对中共发出最强烈的谴责，而且不论任何人来领导澳洲，都需要面对来自于中共的挑战。
-
-参考连接：[https://www.cna.com.tw/news/aopl/202202200046.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/aopl/202202200046.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-
-2022年2月20日
-
-（本文为作者观点，不代表G NEWS立场）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-7.jpg)
-
-*编辑 /校对*：*Yuki*jiang
-
-*发稿：Yuki*jiang
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
