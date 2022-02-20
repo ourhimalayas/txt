@@ -2,30 +2,22 @@
 ---
 
 
-## 樱花灭共诗——弱女锁（新韵）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2036413/)
+## 视频|英国保守党主席呼吁西方合作对抗中共威胁
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2036449/)
 
-撰稿：东京樱花团/曲非烟
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1882.png)
-沛公千古后，
+制作：香草山视频部
 
-丰县不安居。
+2月17日，美国媒体报道，英国保守党主席奥利佛·道登于2月14日在美国智库传统基金会发表演讲时，引用了英国前首相撒切尔夫人的话说，要对抗中共，必须建立一个团结的西方联盟。
 
-祸累兵家地，
+道登指出，面对来自中共日益增长的威胁，全世界的保守人士必须增强信心，大力捍卫自由社会的价值观。西方曾认为中共在部分融入自由市场后，会自动走向更大的社会和个人政治自由，但这种想法如今已被证明是太天真了。
 
-业穷黄泛区。
+发稿：呼吸的雾霾（文小呼吸）
 
-匪徒横社镇，
+**更多资讯，更多关注**
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
-弱女锁村墟。
-
-不使民俗改，
-
-何时有庆馀。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1883.png)
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
