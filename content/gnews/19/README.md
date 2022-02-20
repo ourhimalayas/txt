@@ -2,29 +2,36 @@
 ---
 
 
-## 加拿大特鲁多政府金融镇压自由车队抗议者
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2037496/)
+## 有声|动用警力护宗祠风水——习近平21年5月南阳之行的真实目的
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2037538/)
 
-**撰稿：日本东京方舟农场  海星**
+配音：香草山巡管部– 文凯琳
 
-2月17日，加拿大特鲁多政府声称自由车队抗议者阻碍道路通行，要求金融机构冻结抗议者的资产。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-314.jpg)（图片来源：布赖特巴特新闻网）
-据《布赖特巴特新闻网》报导，加拿大特鲁多政府于2月17日声称，反对强制疫苗接种令的抗议者非法占领禁区道路，阻碍通行，随后竟援引《紧急状态法》强行扣押抗议者的车辆，同时冻结他们的银行账户。据悉，财政部已经冻结了部分抗议者的账户。
 
-报导指出，特鲁多下达的紧急命令是对抗议者金融镇压的第一步。该命令要求加拿大金融系统的所有参与者，包括银行、投资公司、信用社、贷款公司、证券交易商、筹款平台以及支付和清算服务等金融机构，冻结自由车队抗议者以及向其提供物资的相关人员的全部财产。
 
-该命令受到保守党派的强烈反对，保守党领袖甘蒂丝·伯根（Candice Bergen）指责特鲁多说，在过去的三周里，总理并没有采取任何有效的行动来缓和反疫苗抗议活动，却在没有极端主义活动证据的情况下，下达紧急命令。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-768x103-6.jpg)
 
-此前，由于特鲁多政府规定卡车司机从1月中旬开始必须接种疫苗，司机们为争取自由，组成自由车队来到首都渥太华以抗议政府的强制疫苗接种令。
 
-参考链接：
-1.[https://www.breitbart.com/politics/2022/02/17/canada-police-to-distribute-names-of-trucker-protesters-to-financial-institutions/](https://www.breitbart.com/politics/2022/02/17/canada-police-to-distribute-names-of-trucker-protesters-to-financial-institutions/)
-2.[https://gnews.org/zh-hans/1930395/](https://gnews.org/zh-hans/1930395/)
 
-素材采编：海星
-编辑：青城道姑
-发布：爱放飞
+2021年5月14日上午，中共总书记习近平在河南省南阳市召开推进南水北调后续工程座谈会并发表了讲话，同时也对传承创新发展中医药做了指示。这是中共喉舌新华社官方报道习近平的出行目的与安排。
 
+但据笔者现任南阳市委组织部某科的亲友爆料，这不过是中共一贯的“障眼法”而已，习一神南阳之行的真实目的既不care所谓的中医药发展，也不关心生态环境的保护，而是关切南水北调工程与习家宗祠的风水关联
+
+习家宗祠与祖墓位于河南省南阳市邓州市十林镇习营村。习仲勋其祖父与父亲更是直接葬于习营村“卧龙岗”南麓、锦鸡岭东面，其祖坟由此得名“锦鸡坟”。该主官披露，扒淤河环绕习家宗祠，形成一左一右两个“龙潭”拱卫习家营村，犹如龙之双目，卧龙岗对面而立，成为习家营村的天然屏障，在堪舆学上堪称风水宝地。
+
+文字版原文：[动用警力护宗祠风水——习近平21年5月南阳之行的真实目的](https://gnews.org/zh-hans/2028440/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

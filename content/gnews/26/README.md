@@ -2,35 +2,58 @@
 ---
 
 
-## 网友将中共炮制的红剧《白毛女》改编成“铁链女”
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2037460/)
+## 尸检证明 接种疫苗后心脏骤停和死亡的前没有征兆
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2037469/)
 
-**撰稿：日本东京方舟农场 子辰**
+作者：加拿大温哥华扬帆农场 動物農莊裡的小螞蟻[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
 
-据大纪元2月20日报道，自徐州铁链女事件爆出后，引发了众多自媒体网友的关注，事件持续发酵中。有网友把中共炮制的所谓红剧《白毛女》改编成了“铁链女”。但是大部分网友们认为现实版的“铁链女”比白毛女惨多了。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-312.jpg)（图片来自大纪元）
-被网友大量转发的这个视频中显示，有一位男生徐徐唱道：“人家的闺女有花戴，我家的男人没钱买，用了八尺大铁链，把我的脖子栓起来，不知我从哪里来，当年有人把我卖，左邻右舍无人管。上上下下全无赖。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-冬天寒冷很难耐，我住的窝棚寒风来，八个孩子如儿狼崽，没有一个把我爱，遇到几个好心人，到我的村子送关怀，村里不让他们进，还把他们抓起来，网友的关心最实在，姐姐妹妹还有很多，我盼正义会到来”
+本文摘自2月14日，James R. Gill、Randy Tashjian、Emily Duncanson等三位病理学家（其中两位是法医）发表在病理学和检验医学档案（Archives of Pathology and Laboratory Medicine）的研究文章《[Autopsy Histopathologic Cardiac Findings in Two Adolescents Following the Second COVID-19 Vaccine Dose](https://meridian.allenpress.com/aplm/article/doi/10.5858/arpa.2021-0435-SA/477788/Autopsy-Histopathologic-Cardiac-Findings-in-Two)》。
 
-视频发出后，随即再次牵动了广大网友的心，网友们纷纷表示现实版的“铁链女”比“白毛女”惨多了。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/c5bbe3ac-a8ec-4716-a6fa-c30fc6579a79.jpeg)
 
-网友们认为，白毛女有名有姓，她却连自己的姓名都不可以有！白毛女有逃跑的自由，有躲避恐惧的自由。尽管她活在那万恶的旧社会。可是八孩女有什么？
+在对两名接种Pfizer-BioNTech COVID-19病毒疫苗几天后死亡的十几岁男孩的尸检（Autopsies）组织病理学研究证明，是疫苗导致了他们的死亡。接种疫苗后的COVID-19死亡，可能实际相当大的部分是由于疫苗造成的，而不是COVID-19本身。同时，三位病理学家发现，可能有一种方法可以区分SARS-COV-2病毒感染引起的心肌炎（myocarditis）/心包炎（pericarditis）和疫苗引起的心脏损伤。
 
-还有网友愤慨地表示，铁链女的遭遇比虚构的白毛女更悲惨，究竟是谁把人变成了鬼？现实会让人看明白，从精神锁链挣脱出来的人会看得更明白。白毛女的收获是免除了父家债务，然后合法嫁入富贵人家，从而可以实现起码的财务自由。可是铁链女是小学生，突然被拖入披着人皮的动物世界，被披着人皮的畜生蹂躏、监禁，在没有任何人性的畜生栏里生活了几十年，简直惨不忍睹，就是拿北韩的“炮决”来惩罚这些作恶者都太便宜他们了！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Covid-vaccine-teens-literally-heartbroken-feature-800x417-1.jpg)
 
-众所周知，由中共编造的红剧原本是借“白毛女”这个艺术形象，表现旧社会把人逼成鬼，在中共宣传的所谓新社会中又把鬼变成人这样一个洗脑红剧，旨在借此煽动农民对地主的阶级仇恨，鼓动农民参加中共的革命。
+三位病理学家对两位死者进一步进行的COVID-19病毒病理学筛查结果为阴性，死者体内没有COVID-19相关药物或毒物，说明两位死者不存在COVID-19阳性或既往COVID-19感染史，这两名男孩死于疫苗。
 
-铁链女事件曝光于中共国新年前夕，当时丰县农民董某民“养育”八孩的故事，被当地官方作为正能量宣传，董家因此收获民间捐赠，而董某民则成为小有名气的网红。这期间八孩母亲却没出现，直到一位博主拍到八孩母亲被铁链锁住的视频后，才引爆了整个网络。
+在对两位死者的心脏组织病理学检查后发现，两颗心脏均未显示出典型心肌炎，与有收缩带（contraction bands）和高嗜酸性肌细胞（hypereosinophilic myocytes）区域或有炎症的中毒性心肌病的心脏损伤不同，两个男孩的心肌损伤，外观类似于儿茶酚胺介导引起（catecholamine-mediated）的应激性（毒性）心肌病（cardiomyopathy）。
 
-之后，徐州当局连续发布4个通告，仍未能说明情况。江苏省委省政府17日宣布决定成立调查组，对八孩母亲事件进行调查，对责任人员追责。但大陆网络却遭到进一步删帖封号。网友批评认为，当局成立调查组只是为了掩盖罪恶和真相，并指铁链女事件是中共体制做恶的利益链条，只有改变体制才能解救成千上万的锁链女。
+这种心脏受损伤模式与发生在具有极端物理、化学或情绪压力身上的暂时性心肌损伤患者，与临床诊断为Takotsubo、中毒性或“压力”心肌病患者的心肌损伤表现类似，属于为应激性心肌病（Stress cardiomyopathy）。
 
-参考链接：
-[https://www.epochtimes.com/b5/22/2/20/n13590654.htm](https://www.epochtimes.com/b5/22/2/20/n13590654.htm)
+应激性心肌病是一种在没有冠状动脉疾病（coronary artery disease）或痉挛（spasm）的高儿茶酚胺状态下，儿茶酚胺导致的心脏缺血过程。这种病症也被称为“神经源性心肌损伤”（neurogenic myocardial injury）或“心脏破裂综合征”（broken heart syndrome）。
 
-素材采编：子辰
-编辑：青城道姑
-发布：爱放飞
+与直接由COVID-19病毒感染引起的感染过程不同，病理学家发现，这两个死者存在不同的心脏损伤机制。
+
+病理学家们发现，在显微镜下，可以把由SARS-COV-2病毒感染引起的心脏损伤，和因为接种COVID-19病毒疫苗导致的应激性心肌病区分开来。
+
+这种疫苗后反应可能代表了免疫系统的过度旺盛免疫反应，心肌损伤是由SARS-COV-2病毒和SARS-COV2病毒感染并发症发生细胞因子风暴引起的多系统炎症综合征（multisystem inflammatory syndrome，简称MIS-C）。
+
+如果需要更多地了解如何具体发生的机理，需要对心脏组织进行活检，或者对COVID-19病毒患者进行尸检。
+
+然而，由于没有人对COVID-19病毒患者进行心脏活检，也很少对死于COVID-19病毒的患者进行尸检，目前组织病理学界对心肌炎发生的机理知之甚少，导致除了评估症状之外，目前根本没有筛查心脏损伤的实用方法。
+
+这两个男孩在心脏骤停和死亡之前没有任何心肌炎症状（发烧、胸痛、心悸或呼吸困难）征兆，仅只有其中一个男孩曾反映过头痛和胃部不适，而另一个也没有。
+
+时至今日，全世界已经接种10,349,631,022剂COVID-19病毒疫苗！
+
+感谢三位病理学家的尸检结论，带给人们深深的思考！
+
+人们接种COVID-19病毒疫苗后，直到他们成为COVID-19重症患者或在运动中突然心脏骤停和死亡前，没有征兆！
+
+未来全世界会发生什么？
+
+參考資料：
+
+[COVID-19 Dashboard by the Center for Systems Science and Engineering (CSSE) at Johns Hopkins University (JHU)](https://www.arcgis.com/apps/dashboards/bda7594740fd40299423467b48e9ecf6)
+
+[Autopsy Histopathologic Cardiac Findings in Two Adolescents Following the Second COVID-19 Vaccine Dose](https://meridian.allenpress.com/aplm/article/doi/10.5858/arpa.2021-0435-SA/477788/Autopsy-Histopathologic-Cardiac-Findings-in-Two)
+
+[Autopsies Show: Vaccinating Teens for COVID Is Literally ‘Heartbreaking’](https://childrenshealthdefense.org/defender/autopsies-vaccinating-teens-covid-heartbreaking/)
+
+編輯：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上傳：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 
