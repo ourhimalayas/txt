@@ -15,107 +15,107 @@
 
 ---
 
-### [泰国政府关于地名的一案一改证明了民众的力量之强大](/content/gnews/1/README.md)
+### [邪恶的中共政权才是万恶之源（二）](/content/gnews/1/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [习近平命令加强针对外国制裁的“法律手段”来进行国际斗争](/content/gnews/2/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [每日快报：习近平的“末日”会让中国和世界陷入战争吗](/content/gnews/3/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [感染暴增，床位告警！日本9府县病床使用率已超7成](/content/gnews/4/README.md)
+### [日本研发出最高品质LED紫外线消毒产品](/content/gnews/2/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线：专业选手称是否服用兴奋剂专业教练不可能不知道](/content/gnews/5/README.md)
- ` 秘密翻譯組G-Translators`
+### [欧盟就中共专利侵权在世贸组织发起诉讼](/content/gnews/3/README.md)
+ ` NFSC News`
 
-### [币圈新闻动态：喜币（HCN）价格目前在44.700 HDO](/content/gnews/6/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [我们从反洗脑开始灭共！](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [以色列总理宣布结束疫苗绿色通道的做法](/content/gnews/7/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [2022年2月19日郭先生盖特 — 视频1「9分34秒」](/content/gnews/5/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [试看锁链女悲惨遭遇，暴露共产党邪教本质](/content/gnews/8/README.md)
+### [乌克兰总统批评欧美，要求回答关于北约成员问题](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [文·贵天成——文贵先生谈“H-pay、喜支付”（十）](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [莫里森总理谴责中共国海军发射激光是“恐吓行为”](/content/gnews/9/README.md)
- ` 走进澳洲`
+### [奥斯卡颁奖典礼要求嘉宾提供疫苗证明，对颁奖嘉宾或演员不做要求](/content/gnews/8/README.md)
+ ` 首尔天池农场`
 
-### [大直播后记：理解HPAY与HDO的价值](/content/gnews/10/README.md)
+### [大直播后记：中共统计局造假](/content/gnews/9/README.md)
  ` 雅典娜GNotes`
 
-### [《每日新闻》民调：岸田内阁支持率降至上任以来最低](/content/gnews/11/README.md)
+### [【宋词新作】满庭芳：七哥“富可敌国”到“一贫如洗”——灭共事业进入质的飞跃](/content/gnews/10/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [俄乌局势升温 乌克兰首位士兵阵亡](/content/gnews/11/README.md)
+ ` 日本东京方舟农场`
+
+### [阿普斯坦记者：部分赛项可谓暴力，应提高参赛年龄限制](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [伊说│曲终人散的政治足球](/content/gnews/12/README.md)
+### [泰国政府关于地名的一案一改证明了民众的力量之强大](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [FDA推迟辉瑞公司为5岁以下儿童注射的中共病毒疫苗的审查](/content/gnews/13/README.md)
+### [习近平命令加强针对外国制裁的“法律手段”来进行国际斗争](/content/gnews/14/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [每日快报：习近平的“末日”会让中国和世界陷入战争吗](/content/gnews/15/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [感染暴增，床位告警！日本9府县病床使用率已超7成](/content/gnews/16/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [秘翻在线：专业选手称是否服用兴奋剂专业教练不可能不知道](/content/gnews/17/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [强国奇闻(6)](/content/gnews/14/README.md)
- ` 纽约香草山MOS03`
+### [币圈新闻动态：喜币（HCN）价格目前在44.700 HDO](/content/gnews/18/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [【秘翻在线】白宫：俄罗斯可能“随时”开始攻击乌克兰](/content/gnews/15/README.md)
+### [以色列总理宣布结束疫苗绿色通道的做法](/content/gnews/19/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [试看锁链女悲惨遭遇，暴露共产党邪教本质](/content/gnews/20/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [莫里森总理谴责中共国海军发射激光是“恐吓行为”](/content/gnews/21/README.md)
+ ` 走进澳洲`
+
+### [《每日新闻》民调：岸田内阁支持率降至上任以来最低](/content/gnews/22/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [FDA推迟辉瑞公司为5岁以下儿童注射的中共病毒疫苗的审查](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [新中国联邦新闻、GTV新闻访谈简报|2022年2月19日晚](/content/gnews/16/README.md)
+### [英喜农场开展为中共送葬行动](/content/gnews/24/README.md)
+ ` NFSC News`
+
+### [新中国联邦新闻、GTV新闻访谈简报|2022年2月19日晚](/content/gnews/25/README.md)
  ` 纽约香草山MOS01`
 
-### [美国针对俄罗斯入侵乌克兰的最初制裁将不包括从SWIFT除名](/content/gnews/17/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [灭共者之郭氏情报站（27）2022/02/18 文贵大直播](/content/gnews/18/README.md)
- ` MOS Designer香草山设计部`
-
-### [威尔士政府放弃使用新冠疫苗通行证政策](/content/gnews/19/README.md)
+### [威尔士政府放弃使用新冠疫苗通行证政策](/content/gnews/26/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [魁北克省自由卡车司机收到罚单同时，数名示威者递给他现金](/content/gnews/20/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [中共治下盛产恶法，为绑架、贩卖、强奸妇女保驾护航](/content/gnews/21/README.md)
+### [中共治下盛产恶法，为绑架、贩卖、强奸妇女保驾护航](/content/gnews/27/README.md)
  ` YALUN 亚伦`
 
-### [20220218 郭文贵大直播 ：货币能流通是军事与权力的结果](/content/gnews/22/README.md)
+### [20220218 郭文贵大直播 ：货币能流通是军事与权力的结果](/content/gnews/28/README.md)
  ` Tokyo Sakura Video Group`
 
-### [莫里森指责中国军舰在向皇家空军飞机发射激光后采取了“不计后果和不负责任的”行动](/content/gnews/23/README.md)
- ` 澳喜农场`
-
-### [20220218:习手术后，追查冬奥会花费，统计局20多人被抓](/content/gnews/24/README.md)
+### [20220218:习手术后，追查冬奥会花费，统计局20多人被抓](/content/gnews/29/README.md)
  ` Tokyo Sakura Video Group`
 
-### [20220218 郭文贵大直播 ：共产党不允许别人使用去中心货币 试图让世界的人使用中心化数字人民币](/content/gnews/25/README.md)
+### [20220218 郭文贵大直播 ：共产党不允许别人使用去中心货币 试图让世界的人使用中心化数字人民币](/content/gnews/30/README.md)
  ` Tokyo Sakura Video Group`
 
-### [2/18/2022 文贵直播: 科学曾在历史上推动了人类的发展，结束了宗教和皇权统治，然而为什么科学主义却成了疫苗灾难的帮凶？](/content/gnews/26/README.md)
+### [2/18/2022 文贵直播: 科学曾在历史上推动了人类的发展，结束了宗教和皇权统治，然而为什么科学主义却成了疫苗灾难的帮凶？](/content/gnews/31/README.md)
  ` 秘密翻译组-北美组`
 
-### [香港最新疫情：20日初步确诊达7400例，再有15名病人离世！](/content/gnews/27/README.md)
- ` 蓝莲花农场`
+### [科学自由主义导致科技强国代价巨大](/content/gnews/32/README.md)
+ ` NFSC News`
 
-### [20220218 郭文贵大直播 ：解除疫苗政策的根本原因](/content/gnews/28/README.md)
- ` Tokyo Sakura Video Group`
-
-### [北美最大葬仪服务公司SCI去年获利表现优异](/content/gnews/29/README.md)
- ` 澳喜特战旅Gnews`
-
-### [王牌战斗机领导技术努力对抗新兴的中国威胁](/content/gnews/30/README.md)
- ` 澳喜农场`
-
-### [【秘翻在线】纽约州不会强制要求医护人员打加强针](/content/gnews/31/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [有声|台湾加强立法防止中共窃取芯片技术](/content/gnews/32/README.md)
+### [有声|台湾加强立法防止中共窃取芯片技术](/content/gnews/33/README.md)
  ` MOSREC`
 
-### [有声|俄乌关系紧张之际，美国向德国部署F35战机](/content/gnews/33/README.md)
- ` MOSREC`
-
-### [郭文贵先生2022年2月19日盖特视频（9分34秒）全文字版](/content/gnews/34/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [澳洲警方：对堪培拉抗议，使用了远程声学装置](/content/gnews/34/README.md)
+ ` 走进澳洲`
 
 ### [俄乌之事，普京的策略](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
@@ -150,47 +150,47 @@
 ### [美国将微信和阿里巴巴加入盗版市场名单](/content/gnews/45/README.md)
  ` NFSC News`
 
-### [冬奥会双金选手关注中共国人权问题](/content/gnews/46/README.md)
- ` NFSC News`
-
-### [樱花FM|美国试图阻止中共在非洲建立大西洋基地](/content/gnews/47/README.md)
+### [樱花FM|美国试图阻止中共在非洲建立大西洋基地](/content/gnews/46/README.md)
  ` 樱花FM`
 
-### [腾讯、阿里电商网站上榜美国最新“恶名市场”黑名单](/content/gnews/48/README.md)
+### [腾讯、阿里电商网站上榜美国最新“恶名市场”黑名单](/content/gnews/47/README.md)
  ` 日本东京方舟农场`
 
-### [樱花FM|日本通过中共人权决议 维族和西藏问题受关注](/content/gnews/49/README.md)
+### [樱花FM|日本通过中共人权决议 维族和西藏问题受关注](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花FM|日美韩三国外长在夏威夷会晤，讨论威慑朝鲜问题](/content/gnews/50/README.md)
+### [樱花FM|日美韩三国外长在夏威夷会晤，讨论威慑朝鲜问题](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花FM|美日印澳承诺深化合作确保印太不受中共胁迫](/content/gnews/51/README.md)
+### [樱花FM|美日印澳承诺深化合作确保印太不受中共胁迫](/content/gnews/50/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花FM|美国誓言向印太地区投入更多资源抗衡中共国](/content/gnews/52/README.md)
+### [樱花FM|美国誓言向印太地区投入更多资源抗衡中共国](/content/gnews/51/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆┃俄乌危机影响已波及谷物市场 食品价格上涨引人忧](/content/gnews/53/README.md)
+### [中日财经爆┃俄乌危机影响已波及谷物市场 食品价格上涨引人忧](/content/gnews/52/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [拜登：确信俄罗斯会入侵乌克兰](/content/gnews/54/README.md)
+### [拜登：确信俄罗斯会入侵乌克兰](/content/gnews/53/README.md)
  ` GTV新聞訪談`
 
-### [中共数字人民币在冬奥会借机推广](/content/gnews/55/README.md)
+### [中共数字人民币在冬奥会借机推广](/content/gnews/54/README.md)
  ` NFSC News`
 
-### [苏格兰不再公布死亡病例中的接种状况](/content/gnews/56/README.md)
+### [苏格兰不再公布死亡病例中的接种状况](/content/gnews/55/README.md)
  ` NFSC News`
 
-### [以色列将废除中共病毒疫苗护照系统](/content/gnews/57/README.md)
+### [以色列将废除中共病毒疫苗护照系统](/content/gnews/56/README.md)
  ` NFSC News`
 
-### [加拿大之殇 &#8211; 自由被独裁的铁骑践踏](/content/gnews/58/README.md)
+### [加拿大之殇 &#8211; 自由被独裁的铁骑践踏](/content/gnews/57/README.md)
  ` Jenny`
 
-### [追求自由：加州卡车司机将组队前往DC](/content/gnews/59/README.md)
+### [追求自由：加州卡车司机将组队前往DC](/content/gnews/58/README.md)
  ` 日本东京方舟农场`
+
+### [世界经济经历重大动荡 供应链危机持续](/content/gnews/59/README.md)
+ ` 首尔天池农场`
 
 ### [流氓媒体Vice不失时机地对班农和郭文贵先生进行负面报道](/content/gnews/60/README.md)
  ` 秘密翻譯組G-Translators`

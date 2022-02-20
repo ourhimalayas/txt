@@ -2,40 +2,36 @@
 ---
 
 
-## 有声|台湾加强立法防止中共窃取芯片技术
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2034199/)
+## 科学自由主义导致科技强国代价巨大
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2034217/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月17日，据相关媒体消息显示，台湾政府当天通过了一项法案修正草案，当中增订了有关核心关键技术经济间谍罪的部分，用以防止中共对台湾芯片技术的窃取。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide2-8.jpeg)
-资料显示，台湾近年来制造了世界上大多数最先进的半导体芯片，而台积电则拥有世界最先进的科技芯片技术。但长期以来，中共政府一直对该领域虎视眈眈，还曾多次通过经济间谍活动、挖角人才等方法试图复制这些技术。
+作者：纽约香草山–宁文静
+![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-10.png)
+在2月18日的大直播中，郭先生诠释了，对科学主义的过分崇拜导致一些科技强国充当了中共病毒疫苗的急先锋，超高的接种率将会使这些国家的人民深陷疫苗灾难。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1840.png)
+郭先生说，在以色列、英国等近代拥有工业文明和先进科技的国家，这一次疫苗的施打比率令人发指。尤其是以色列，几乎达到全员接种，甚至较高比率的人群打了加强针、第四针。主要原因是，在罗马时代之后，欧洲以基督教为主的文明领导着人类逐渐从皇权过渡到民权，工业文明开启。在过去的两三百年里，以英女王、日本天皇等为代表的皇权逐渐没落，曾经辉煌的宗教影响力也渐渐衰退。科学在资本主义的运作下成了人类唯一的支撑。
 
-台湾相关机构指出，目前，台积电的两纳米芯片制造技术对台湾的安全至关重要，因此，除了现有的商业机密保护法外，政府还将提供额外的法律保护。而台湾内阁则对此表示，根据最新通过的法律草案，向中共泄漏核心技术的人员将被判处经济间谍罪，其最高将被处以12年的监禁惩罚。同时，台湾政府将建立一个指定的经济间谍法庭，用以加快审判速度。
+郭先生指出，犹太人虽然是神教的创始者，但也是科学主义的先驱。不过这一次，他们被福奇、辉瑞公司等科学自由主义利用，必将付出惨重代价。达沃斯党、共产主义、沼泽地充分利用医学领域的权威，以疫苗祸害世界，人类已经面临生存危机。正道主义则倡导司法独立、媒体独立、科学独立的精神，为人类提供了一个新的管理模式。
 
-据悉，这项新的法律草案还将阻止中共通过在第三国设立公司等途径非法挖角台湾人才，此外，草案也将加强对中共在台湾非法投资的惩罚。
+参考链接：[科学自由主义导致科技强国代价巨大](https://gettr.com/post/pvffqc88e7)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
 
+总编/编辑：飞虹
+校对/发稿：小野貓（文凱琳）
 
-文字版原文：[台湾加强立法防止中共窃取芯片技术](https://gnews.org/zh-hans/2032786/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
 **更多资讯，更多关注**
 
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-9.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

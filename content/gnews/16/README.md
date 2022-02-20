@@ -2,33 +2,28 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年2月19日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2034380/)
+## 感染暴增，床位告警！日本9府县病床使用率已超7成
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2034598/)
 
-作者：香草山翻译部
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/02/感染暴增，床位告警！日本9府县病床使用率已超7成.png)
+[图片来源](https://www.japantimes.co.jp/news/2022/02/19/national/covid-cases-feb-19/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO-2.jpg)
+日本共同社2月19日消息，日本大阪和福冈等9个府县面向中共病毒（新冠病毒Covid-19）感染患者的病床使用率已达到70%以上，临近使用极限。虽然全国的新增感染人数被认为已过高峰，但目前住院患者人数仍呈上升趋势，因此，床位使用的高峰尚未到来。
 
+日本政府对策小组会的专家去年11月根据疫情“第五波”得出结论，认为新冠病床使用率的极限是80%左右。目前，全国感染人数又创新高为839,643人，其中居家疗养者居家疗养者已达到577,765人，占69%。对于居家疗养者病情突然恶化的情况，必须纳入考虑范围，这是因为有必要确保空病床来接收儿童、孕产妇等特定患者以及病情恶化的居家疗养者等，而且办理住院出院手续也需要时间。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-15.png)
-校对：Stay文苑
+内阁官房的统计显示，本月17日的病床使用率最高的是福冈的84%，其次是大阪的83%。神奈川、山梨、爱知、滋贺、京都、兵库、奈良7府县在70%～不满80%。此外还有在60%以上的地区，各地状况难以预测。
 
-编辑：Stay文苑
+如果病床持续紧张，接收必须新住院的新冠患者的病床有可能不足。如果增加病床，就会削减普通病床，因此将影响到非新冠患者。
 
-发稿：Stay文苑
+信息来源：
 
-新闻：[https://gtv.org/broadcast/watch/6211996bb706176dd78d8bbb](https://gtv.org/broadcast/watch/6211996bb706176dd78d8bbb)
-访谈：[https://gtv.org/broadcast/watch/6211a174b706176dd78d90fb](https://gtv.org/broadcast/watch/6211a174b706176dd78d90fb)
+[日本9府县病床使用率超7成临近极限](https://china.kyodonews.net/news/2022/02/f262a60d804c-97-.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-2.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

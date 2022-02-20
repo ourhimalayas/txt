@@ -2,8 +2,8 @@
 ---
 
 
-## 20220218 郭文贵大直播 ：解除疫苗政策的根本原因
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2034224/)
+## 20220218 郭文贵大直播 ：货币能流通是军事与权力的结果
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2034279/)
 
 作者：东京樱花团小视频组
 

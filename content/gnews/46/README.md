@@ -2,38 +2,26 @@
 ---
 
 
-## 冬奥会双金选手关注中共国人权问题
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2033127/)
+## 樱花FM|美国试图阻止中共在非洲建立大西洋基地
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2032522/)
 
-作者：纽约香草山农场-金融部 AT/Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月18日，据相关媒体报道，近日，一些参加完中共北京冬奥会相关赛事的国外选手在回国后坦诚了他们对于中共政府以及此次冬奥会的负面看法。选手们强调，他们在中共国内必须极为小心地注意自己发言的时间与地点，因此很多有关中共人权的评论只能在离境后发出。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-19-下午10.41.16.png)
-报道显示，拿下两面金牌的德国选手盖森柏格在返国后表示，她对冬奥会由侵犯人权的中共政府主办而感到不解。盖森柏格解释道，她早先就为是否参赛而百般犹豫，等到落地北京后发现，本次冬奥会与过去几届的气氛完全不同：中共将所有参赛者与外界完全隔离，他们在入境后只能看到处处高墙，根本无法接触到当地民众或是观察周遭环境。
+音频：东京樱花团/战友520
+![](https://lh4.googleusercontent.com/r_WSIkZYkmdEwv8sh3AevnnsUmp9adqgOsDKrYqkP9aBWBmDGXXOwDgYs4bsbBlWBwY9Td0MM12Vv8XmRtbbTzO1yw0KGraN0GR00JZ6KX07kSk-KQ2rsq-0UO8_-UBxWUsG_ujf)
+据华尔街日报2月12日报道说，美国试图阻挠中共国在非洲建立大西洋基地的计划。据政府官员称，一个由美国高级外交和军事人员组成的代表团计划在下周访问这个中非小国，预计将讨论美国的反海盗援助以及其他一些旨在说服赤道几内亚总统奥比昂恩圭马姆巴索戈(Teodoro Obiang Nguema Mbasogo)拒绝北京方面提议的条件。
 
-与盖森柏格持相同态度的瑞典竞速滑冰选手范德普尔也在归国后发表了类似言论。这位25岁的双金牌得主在接受采访时批评国际奥林匹克委员会称，选择中共国这个严重侵犯人员的国家举办冬奥会是极其不负责任的行为。
+该代表团将由国务院非洲事务高官Molly Phee和军方非洲司令部的Kenneth Ekman少将率领。
 
-对此，郭文贵先生曾在大直播中指出，每一位参加此次冬奥会的外国选手都相当于爆料革命派往前线的情报员，他们会把自己在冬奥会期间亲身经历的中共假、恶、丑传播到全世界，让更多的人认识到中共的真面目。
+该报道说，这次访问之际，美国对中共国的全球扩张主义及其在美国认为是自家地盘的水域追求永久性军事存在的担心正不断上升。
 
-参考链接：
-1）[關注人權 德國冬奧雙金選手：再也不去中國\[影\]](https://www.cna.com.tw/news/aopl/202202180014.aspx)
-2）[【北京冬奥会】德国双金选手“关注人权”：再也不去中国](https://www.orientaldaily.com.my/news/sports/2022/02/18/468614)
-3）[瑞典選手回國終於敢說真話：中國政府侵犯人權　不該舉辦冬奧](https://www.upmedia.mg/news_info.php?Type=3&amp;SerialNo=137626)
+赤道几内亚是撒哈拉以南非洲的发展中国家，其经济以种植业为主，主要的出口产品是可可，其次为咖啡。该国长期以来被列入世界最不发达国家名单，但是1996年在赤道几内亚领海内发现了大量石油资源，此后该国经济快速增长，1997年至2001年的年平均经济增长率达41.7%。至2004年，赤道几内亚已经成为撒哈拉以南非洲的第三大石油生产国，石油产量达每天36万桶。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+此外，赤道几内亚临近非洲产油大国尼日利亚和安哥拉，特别是安哥拉占中共国进口石油量的20%左右的。中共在此建立军事基地不仅能能满足自己日益膨胀石油需求，甚至还将通过控制大西洋航道等方式，这将严重威胁世界石油供应和周边国家安全。希望西方各国积极发挥自己对非洲各国的影响力，通过外交手段打破中共企图建立大西洋军事基地的千秋大梦。非洲各国也要擦亮双眼，抵挡住中共的“糖衣炮弹”诱惑，不要将国家陷入“蓝金黄”的泥潭。
 
-总编：Irene木木
-编辑：Irene木木
-审核：Jack Li文阳/Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
+文字版原文：[美国试图阻止中共在非洲建立大西洋基地](https://gnews.org/zh-hans/1994785/)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
