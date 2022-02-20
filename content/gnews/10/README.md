@@ -2,8 +2,8 @@
 ---
 
 
-## 20220218 郭文贵大直播 ：解除疫苗政策的根本原因
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2034224/)
+## 20220218 郭文贵大直播 ：共产党不允许别人使用去中心货币 试图让世界的人使用中心化数字人民币
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2034249/)
 
 作者：东京樱花团小视频组
 

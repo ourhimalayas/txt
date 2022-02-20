@@ -2,35 +2,50 @@
 ---
 
 
-## 莫里森指责中国军舰在向皇家空军飞机发射激光后采取了“不计后果和不负责任的”行动
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2034269/)
+## 魁北克省自由卡车司机收到罚单同时，数名示威者递给他现金
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2034324/)
 
-撰稿：小湫
+2022-02-19
 
-澳大利亚总理斯科特·莫里森说，一艘中国军舰向一架澳大利亚海上飞机发射激光是一种“恐吓行为”，将澳大利亚国防部的生命置于危险之中。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1822.png)皇家空军P-8A海神号飞机当时的事故流程图 （图片来自网络）
-国防部表示，这起事件发生在周四凌晨12:35，当时一架皇家空军P-8A海神(RAAF P-8A Poseidon)巡逻机在澳大利亚北部飞行时，探测到一束军用级激光照射飞机。事故发生时，飞机上有多达10名人员。  这艘中国军舰当时正与另一艘中国人民解放军海军舰艇一起向东穿过阿拉法特海。
+编译及评论：16626
+![](https://assets.gnews.org/wp-content/uploads/2022/02/VFO37URVV9O55EEZD7S.png)图片来源：截屏于[EN IMAGES | Un camionneur reçoit de l’argent pour payer sa contravention](https://www.tvanouvelles.ca/2022/02/19/a-voir--un-camionneur-recoit-de-largent-pour-payer-sa-contravention)（发表于 2022 年 2 月 19 日下午 4:51）
+自由卡车司机收到警察的罚单同时数名示威者（马上）递给他现金
 
-莫里森表示，激光可能会使飞机瘫痪，使全体机组人员处于危险之中。我只能认为这是一种挑衅、没有正当理由的恐吓行为。澳大利亚永远不会接受这样的恐吓行为。这是一种鲁莽和不负责任的行为，不应该发生。我们正通过外交和国防渠道直接与中国政府交涉。
+TVA Nouvelles 发表于 2022 年 2 月 19 日下午 4:51。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/4AG@8H1311O5B8GM.png)图片来源：截屏于[EN IMAGES | Un camionneur reçoit de l’argent pour payer sa contravention](https://www.tvanouvelles.ca/2022/02/19/a-voir--un-camionneur-recoit-de-largent-pour-payer-sa-contravention)（发表于 2022 年 2 月 19 日下午 4:51）图中显示，在魁北克市，一名卡车司机收到（警察的）一张过度使用汽车喇叭的罚单
+在魁北克市，正当一名卡车司机在收到（警察的）一张过度使用汽车喇叭的罚单后，到数名示威者（马上）递给他现金。
 
-国防部长彼得·达顿（Peter Dutton）告诉天空新闻，这一事件是中国军方侵略性霸凌的一个例子。它可能导致机组人员失明，显然也可能导致设备损坏。
+**拿到罚单后仅仅几秒钟内**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/G19GM75SCHQ@@WB.png)图片来源：截屏于[EN IMAGES | Un camionneur reçoit de l’argent pour payer sa contravention](https://www.tvanouvelles.ca/2022/02/19/a-voir--un-camionneur-recoit-de-largent-pour-payer-sa-contravention)（发表于 2022 年 2 月 19 日下午 4:51）图中显示，在（这名卡车司机）拿到他的罚单后仅仅几秒钟内，好几个人（马上），（从视频中可以看到，至少八个支持示威的人），走到他的卡车前，递给他一些现金以帮助支付（罚单的）罚款金额
+在（这名卡车司机）拿到他的罚单后仅仅几秒钟内，好几个人（马上），（从视频中可以看到，至少八个支持示威的人），走到他的卡车前，递给他一些现金以帮助支付（罚单的）罚款金额。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/V9B8806G046V1QY.png)图片来源：截屏于[EN IMAGES | Un camionneur reçoit de l’argent pour payer sa contravention](https://www.tvanouvelles.ca/2022/02/19/a-voir--un-camionneur-recoit-de-largent-pour-payer-sa-contravention)（发表于 2022 年 2 月 19 日下午 4:51）图中显示，在（这名卡车司机）拿到他的罚单后仅仅几秒钟内，好几个人（马上），（从视频中可以看到，至少八个支持示威的人），走到他的卡车前，递给他一些现金以帮助支付（罚单的）罚款金额
+魁北克市警方已警告卡车司机，他们（只）有权“适度”鸣笛（按喇叭）。
 
-反对党领袖艾博年（ Albanese）说，联邦政府应该就这一事件发表最强烈的声明，这是一种令人发指的侵略行为，应该受到谴责，我对此表示谴责。
+#### 国民议会附近的示威者非常多
 
-此后，两艘中国船只均经过托雷斯海峡，进入珊瑚海。
+周六（ 2022 年 2 月 19 日），（魁北克市）国民议会附近的示威者非常多。
 
-国防部在一份声明中表示，强烈谴责这种不专业和不安全的军事行为，这些行动可能危及国防军的安全与生命，这样的行为不符合职业军人的行为，这样的行为有可能危及生命。
+#### 国民议会前的数千人（示威者）
 
-军方高级官员私下里称解放军的行为“骇人听闻”。
+另外，加拿大魁北克省的蒙特利尔日报（多米尼克·莱利弗 和 杰里米·伯尼尔DOMINIQUE LELIÈVRE et JÉRÉMY BERNIER 2022 年 2 月 19 日星期六 10:23，[https://www.journaldequebec.com/2022/02/19/images-convoi-de-la-liberte–les-manifestants-de-retour-a-quebec](https://www.journaldequebec.com/2022/02/19/images-convoi-de-la-liberte--les-manifestants-de-retour-a-quebec) ）发表一篇题为《“自由车队”：国民议会前的数千人，抗议者返回魁北克市》的文章报道，（2022 年 2 月 19 日）星期六，魁北克省议会山地区再次出现更大规模的示威，这是在两周内的第二次反对卫生措施的示威。
 
-国防总部联合作战司令部发布了该事件的事故流程，其中显示了船只进入阿拉法特海和通过托雷斯海峡进入珊瑚海的通道。
+日前，Gnews发表一篇题为《魁北克省记者“自爆”收到纽伦堡审判的照片，[https://gnews.org/zh-hans/2022554/](https://gnews.org/zh-hans/2022554/) 》的文章报道，一位署名为，安东尼奥斯·萨拉利利斯（Antonios Sarailis）的人，发给加拿大魁北克省的蒙特利尔日报记者，伊曼纽尔 拉特拉维斯，Emmanuelle Latraverse，一张纽伦堡审判处决的照片，并警告下一个就轮到这名记者了。
 
-事故流程显示，这两艘中国船只在5天内被ADF观察了6次，包括印度尼西亚爪哇岛南部、帝汶和阿拉法特海，最后通过托雷斯海峡。这已经不是第一次激光被用来对付澳洲国防军的飞机了。
+## 纽伦堡审判的时刻快到了
 
-2019年，美国广播公司透露，手持激光器正越来越多地用于打击澳洲国防军的设备，军方内部人士将其归咎于中共国小型海上民兵船。最近的一起事件发生在澳大利亚专属经济区。
+我们谴责并反对暴力示威，更反对政府施加暴力于人民。那些，颠倒黑白，替邪恶势力站台的媒体，以及执法机关的警察，同样逃脱不了即将到来的纽伦堡审判。
 
-参考信息：[Prime Minister Scott Morrison accuses Chinese warship of ‘reckless and irresponsible’ act after laser was shone at RAAF aircraft](https://www.abc.net.au/news/2022-02-19/defence-accuses-chinese-warship-of-dangerous-act-laser-shone/100845702)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
+**参考资料**：
+
+1. [EN IMAGES | Un camionneur reçoit de l’argent pour payer sa contravention](https://www.tvanouvelles.ca/2022/02/19/a-voir--un-camionneur-recoit-de-largent-pour-payer-sa-contravention)
+
+
+编辑：LILY
+发布：肥鯮
+
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

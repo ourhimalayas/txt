@@ -2,50 +2,49 @@
 ---
 
 
-## 魁北克省自由卡车司机收到罚单同时，数名示威者递给他现金
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2034324/)
+## 【秘翻在线】白宫：俄罗斯可能“随时”开始攻击乌克兰
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2034384/)
 
-2022-02-19
+**撰稿：Grace**
 
-编译及评论：16626
-![](https://assets.gnews.org/wp-content/uploads/2022/02/VFO37URVV9O55EEZD7S.png)图片来源：截屏于[EN IMAGES | Un camionneur reçoit de l’argent pour payer sa contravention](https://www.tvanouvelles.ca/2022/02/19/a-voir--un-camionneur-recoit-de-largent-pour-payer-sa-contravention)（发表于 2022 年 2 月 19 日下午 4:51）
-自由卡车司机收到警察的罚单同时数名示威者（马上）递给他现金
+**校对：Grace**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-11-at-10.25.30-PM-2.jpeg)图片来源：Forbes
+##### **加拿大向乌克兰军队提供武器** （1小时前）
 
-TVA Nouvelles 发表于 2022 年 2 月 19 日下午 4:51。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/4AG@8H1311O5B8GM.png)图片来源：截屏于[EN IMAGES | Un camionneur reçoit de l’argent pour payer sa contravention](https://www.tvanouvelles.ca/2022/02/19/a-voir--un-camionneur-recoit-de-largent-pour-payer-sa-contravention)（发表于 2022 年 2 月 19 日下午 4:51）图中显示，在魁北克市，一名卡车司机收到（警察的）一张过度使用汽车喇叭的罚单
-在魁北克市，正当一名卡车司机在收到（警察的）一张过度使用汽车喇叭的罚单后，到数名示威者（马上）递给他现金。
+据《福克斯新闻》2月19日报道，加拿大政府已经向乌克兰武装部队提供了武器和其他军事援助。
 
-**拿到罚单后仅仅几秒钟内**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/G19GM75SCHQ@@WB.png)图片来源：截屏于[EN IMAGES | Un camionneur reçoit de l’argent pour payer sa contravention](https://www.tvanouvelles.ca/2022/02/19/a-voir--un-camionneur-recoit-de-largent-pour-payer-sa-contravention)（发表于 2022 年 2 月 19 日下午 4:51）图中显示，在（这名卡车司机）拿到他的罚单后仅仅几秒钟内，好几个人（马上），（从视频中可以看到，至少八个支持示威的人），走到他的卡车前，递给他一些现金以帮助支付（罚单的）罚款金额
-在（这名卡车司机）拿到他的罚单后仅仅几秒钟内，好几个人（马上），（从视频中可以看到，至少八个支持示威的人），走到他的卡车前，递给他一些现金以帮助支付（罚单的）罚款金额。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/V9B8806G046V1QY.png)图片来源：截屏于[EN IMAGES | Un camionneur reçoit de l’argent pour payer sa contravention](https://www.tvanouvelles.ca/2022/02/19/a-voir--un-camionneur-recoit-de-largent-pour-payer-sa-contravention)（发表于 2022 年 2 月 19 日下午 4:51）图中显示，在（这名卡车司机）拿到他的罚单后仅仅几秒钟内，好几个人（马上），（从视频中可以看到，至少八个支持示威的人），走到他的卡车前，递给他一些现金以帮助支付（罚单的）罚款金额
-魁北克市警方已警告卡车司机，他们（只）有权“适度”鸣笛（按喇叭）。
+报道称，乌克兰武装部队于周六晚间在利沃夫的达尼洛·哈列茨基国际机场（Danylo Halytskyi International Airport in Lviv）收到了这些军事援助。
 
-#### 国民议会附近的示威者非常多
+据报道，乌克兰收到了以狙击步枪、自动步枪、带光学瞄准装置的机枪、手枪、夜视和监视装置以及军事装备形式的军事援助。而这批军事援助是由加拿大皇家空军的一架C-17军事运输机运送的。
 
-周六（ 2022 年 2 月 19 日），（魁北克市）国民议会附近的示威者非常多。
+报道指出，这是加拿大政府交付的第二架军事援助飞机，第一架是在2月4日交付的。
 
-#### 国民议会前的数千人（示威者）
+**乌克兰总统呼吁普京与他会面 **（1小时前）
 
-另外，加拿大魁北克省的蒙特利尔日报（多米尼克·莱利弗 和 杰里米·伯尼尔DOMINIQUE LELIÈVRE et JÉRÉMY BERNIER 2022 年 2 月 19 日星期六 10:23，[https://www.journaldequebec.com/2022/02/19/images-convoi-de-la-liberte–les-manifestants-de-retour-a-quebec](https://www.journaldequebec.com/2022/02/19/images-convoi-de-la-liberte--les-manifestants-de-retour-a-quebec) ）发表一篇题为《“自由车队”：国民议会前的数千人，抗议者返回魁北克市》的文章报道，（2022 年 2 月 19 日）星期六，魁北克省议会山地区再次出现更大规模的示威，这是在两周内的第二次反对卫生措施的示威。
+据《福克斯新闻》的报道，乌克兰总统沃洛基米尔·泽伦斯基 （Volodymyr Zelenskyy）呼吁俄罗斯总统弗拉基米尔·普京与他会面，为当前的危机寻找外交解决方案。
 
-日前，Gnews发表一篇题为《魁北克省记者“自爆”收到纽伦堡审判的照片，[https://gnews.org/zh-hans/2022554/](https://gnews.org/zh-hans/2022554/) 》的文章报道，一位署名为，安东尼奥斯·萨拉利利斯（Antonios Sarailis）的人，发给加拿大魁北克省的蒙特利尔日报记者，伊曼纽尔 拉特拉维斯，Emmanuelle Latraverse，一张纽伦堡审判处决的照片，并警告下一个就轮到这名记者了。
+据报道，泽伦斯基在周六的慕尼黑安全会议上向普京发出了邀请。他还表示，普京可以为这次的会面挑选一个地点。
 
-## 纽伦堡审判的时刻快到了
+泽伦斯基说：“为了和平解决，乌克兰将继续只走外交途径。”
 
-我们谴责并反对暴力示威，更反对政府施加暴力于人民。那些，颠倒黑白，替邪恶势力站台的媒体，以及执法机关的警察，同样逃脱不了即将到来的纽伦堡审判。
+但是，报道称，俄罗斯的克里姆林宫没有对泽伦斯基的请求作出回应。
 
-**参考资料**：
+**乌克兰总统会见了安全和国防部队领导人 **（2 小时前）
 
-1. [EN IMAGES | Un camionneur reçoit de l’argent pour payer sa contravention](https://www.tvanouvelles.ca/2022/02/19/a-voir--un-camionneur-recoit-de-largent-pour-payer-sa-contravention)
+《福克斯新闻》报道说，乌克兰总统沃洛基米尔·泽伦斯基周六从慕尼黑安全会议返回后，在博雷斯皮尔国际机场会见了安全和国防部队的领导人。
 
+泽伦斯基听取了关于乌克兰东部最近事件的简报，并收到了关于 “俄罗斯和白俄罗斯在乌克兰边境的领土，以及在克里米亚、顿涅茨克和卢甘斯克地区的临时被占领土 ”的信息。
 
-编辑：LILY
-发布：肥鯮
+报道称，“与会者讨论了进一步发展的可能情况以及乌克兰在每种情况下的必要步骤。”
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+##### **拜登将召开国家安全委员会会议，讨论乌克兰问题** （3 小时前）
+
+据《福克斯新闻》报道，宫新闻秘书仁普·萨基（Jen Psaki）表示，拜登将于周日召开国家安全委员会会议，讨论乌克兰的持续局势。
+
+报道称，拜登的国家安全团队重申，俄罗斯可能 “在任何时候 ”开始对乌克兰进行攻击。
+
+**新闻来源：** [Russia-Ukraine: White House: Russia could begin attack on Ukraine ‘at any time’](https://www.foxnews.com/live-news/russia-ukraine-cyberattacks)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
