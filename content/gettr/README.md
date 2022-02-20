@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/20/2022 10:40 PM (UTC)`
+
+2/20/2022 Miles Guo: The war between Russia and Ukraine started three days ago. For Russia, Ukraine is like the chained woman kidnapped by the CCP, and Europe is like the “sugar daddy” of the chained woman. Xi and Putin have to team up to survive, and invading Taiwan and Ukraine is just to serve their political interests and ambitions.<br/><br/>2/20/2022 文贵直播：俄乌之战三天前就开始了；乌克兰对于俄罗斯就相当于中共的“锁链女”，欧洲相当于“锁链女”的干爹；习普二人得抱团取暖，打台湾和乌克兰是为了他俩的政治利益和野心<br/>
+![img](https://media.gettr.com/group10/getter/2022/02/20/22/da94e318-f0b9-f5e6-1082-7bc06141883e/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@pangushixun 2/20/2022 5:58 PM (UTC)`
@@ -149,13 +156,6 @@ Live, Love, & Laugh ❤️
 
 2/18/2022 Miles Guo: The Americans told the CCP that they would not completely decouple with it only if the US is allowed to investigate the origins of the virus. The CCP dares not to release the virus again. Han Zheng is not in a good shape now, and he is scared as soon as Xi Jinping is mentioned. We hope the CCP will not end too soon. The New Federal State of China needs more time to get ready to influence the new democratically elected government of China.<br/><br/>2/18/2022 文贵直播：美国告诉中共，不想脱钩就得让美国搞病毒溯源；中共不敢再放毒了；韩正状态不佳，一提习就害怕；不希望中共太快倒台，新中联邦需要更多时间去准备从而能够影响新的民选政府<br/>
 ![img](https://media.gettr.com/group15/getter/2022/02/18/23/f66a6dd9-330c-7f9d-4b49-d690c4d625a4/out.jpg)
-
----
-
-`@miles 2/18/2022 11:45 PM (UTC)`
-
-2/18/2022 Miles Guo: The COVID vaccine-induced immune deficiency is the root cause of the high incidence of various diseases and deaths in places such as Hong Kong, Singapore, and Israel. The COVID vaccine disaster is yet to come, and what will be the situation when it begins? Please make sure to hold out until this May, my fellow fighters!<br/><br/>2/18/2022 文贵直播：疫苗导致的免疫力低下是香港、新加坡和以色列等地出现各种病症频发和死亡的根源；疫苗灾难尚未到来，而灾难开始的时候会是什么情况？请战友们务必坚持到5月！<br/>
-![img](https://media.gettr.com/group7/getter/2022/02/18/23/ed04a909-7dff-5eb5-44bb-67e5987a31ff/out.jpg)
 
 ---
 
