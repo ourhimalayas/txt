@@ -2,69 +2,34 @@
 ---
 
 
-## 副总统哈里斯表示,如果俄罗斯入侵乌克兰,美国与盟国将使之付出巨大经济代价
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2033867/)
+## 中日财经爆┃河南地产团灭开始 多家房企放长假
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2033868/)
 
-**美国副总统哈里斯**： 让我明确一点，我可以绝对肯定地说，如果俄罗斯进一步入侵 [#乌克兰](https://twitter.com/hashtag/乌克兰?src=hashtag_click)，美国将与我们的盟国和伙伴们一道，将使俄付出巨大的、前所未有的经济代价。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片3-14.png)[图片来源](https://www.sohu.com/a/522228223_99988005)
+近日，河南房企普遍传出降薪、裁员等消息，其中包括部分头部企业在内，引发市场关注。
 
+作为地方头部企业之一的建业集团2月11日针对网传“裁员60%、仅保留400多人”的“消息”作出回应，称该网传内容不符合事实。而此前，另一家企业却遇到了更大的“麻烦”。
 
+1月初，一封有关河南宏光实业集团（以下简称“宏光集团”）员工《致张辉总的一封信》在网上传播开来，主要内容为员工内部集资救企，却遭降薪、裁员一事。
 
-> Let me be clear, I can say with absolute certainty if Russia further invades Ukraine the United States, together with our Allies and partners, will impose significant, and unprecedented economic costs.
-> — Vice President Kamala Harris (@VP) [February 19, 2022](https://twitter.com/VP/status/1495000963886682113?ref_src=twsrc%5Etfw)
+在这封网传的信中，员工较直白的写道，在集资救企之后却遭到了宏光集团的“暗算”。大致表示为，员工在集资凑齐购房款项，帮助企业渡过困境后，企业却先后降薪和裁员。有记者辗转联系到了一位接近宏光集团的人士，对方表示，“的确有听闻降薪和裁员一事，但比例并未有40%之多。”
 
+不只是宏光集团被传出此类消息，河南房企陆续都出现过“放假”甚至是裁员。
 
+据不完全统计，河南房企碧源控股发布休假通知，从2022年元旦开始，集团及子公司将全体放假4个月；新合鑫集团发布通知，假期自2022年1月8日分批起放（休），复工时间另行通知；瀚宇集团放假时间暂定为2022年1月10日至4月10日，具体复工时间公司将根据实际进展情况进行调整。
 
-**美国务卿布林肯**： 美国与 [#乌克兰](https://twitter.com/hashtag/乌克兰?src=hashtag_click) 站在一起，反对俄罗斯在乌克兰边境的敌对言论和无端军事集结。 如果俄罗斯选择事态升级或进一步入侵乌克兰，我们将与我们的 [#G7](https://twitter.com/hashtag/G7?src=hashtag_click) 合作伙伴一起随时准备让俄罗斯承担严重后果并付出巨大代价。
+河南房企接连出现的“放长假”行为，在业内人士看来无异于变相裁员。
 
+当前，中共房地产开始全面崩溃，在去年洪灾和疫情的多重打击之下，河南或许将率先开启中西部地区地产的团灭模式。
 
+信息来源：
 
-> The U.S. stands with Ukraine against Russia’s hostile rhetoric and unprovoked military build-up along Ukraine’s borders. Along with our [#G7](https://twitter.com/hashtag/G7?src=hash&amp;ref_src=twsrc%5Etfw) partners we stand ready to impose massive consequences and severe costs on Russia, should it choose to escalate or further invade Ukraine. [pic.twitter.com/09qtl8iGQe](https://t.co/09qtl8iGQe)
-> — Secretary Antony Blinken (@SecBlinken) [February 19, 2022](https://twitter.com/SecBlinken/status/1495050150540107783?ref_src=twsrc%5Etfw)
+[宏光集团被指“员工集资救企却遭降薪裁员”，市场寒冬河南多房企“放长假”\_腾讯新闻](https://new.qq.com/omn/20220216/20220216A0B8Q000.html)
 
-
-
-**众议院共和党**：
-“我们国家最需要的是道德清晰。是时候确认 #共产主义中国 是什么东西，它想要什么，以及它对自己的人民 – 和我们的人民都做了什么。” – 更多请阅读中国问题特别工作组组长麦考尔议员的文章 ⬇️
-【附文：(前美驻联合国大使) 妮基·海莉，迈克尓·麦考尔：观看北京奥运会时你看不到的东西
-
-历史将铭记2022年北京冬奥会是一场悲剧和耻辱。虽然中国共产党迫切希望人们在奥运会期间以积极的眼光看待其政权，但美国人应该将目光转向中共对国际运动员的间谍活动，其愤世嫉俗地利用奥运会推进自己的政治议程，其长久的人权侵犯史，以及对中国人民的残酷压迫。这就是北京2022的真实故事。】
-
-
-
-> “[W]hat our country needs more than anything else is moral clarity. It’s time to acknowledge what Communist China is, what it wants, and what it’s already doing to its own people — and ours.” – Read more from [@China\_TaskForce](https://twitter.com/China_TaskForce?ref_src=twsrc%5Etfw) leader [@RepMcCaul](https://twitter.com/RepMcCaul?ref_src=twsrc%5Etfw) ⬇️[https://t.co/ILbxsAFkg1](https://t.co/ILbxsAFkg1)
-> — House Republicans (@HouseGOP) [February 19, 2022](https://twitter.com/HouseGOP/status/1495015811618000901?ref_src=twsrc%5Etfw)
-
-
-
-**前副国务卿基思·克拉奇**： 奥运会运动员正在使用“burner”手机，因为无法相信 [#中共](https://twitter.com/hashtag/中共?src=hashtag_click) 不监视他们。基于信任原则学说的清洁网络模式，是促进和平与自由的最有效方式。在国家利益[@TheNatlInterest](https://twitter.com/TheNatlInterest) 中阅读我与[@JonPelson](https://twitter.com/JonPelson) 的专栏文章。
-
-【附国家利益网上登载的克拉奇的文章：对 [#中共国](https://twitter.com/hashtag/中共国?src=hashtag_click) 极权主义的回答是值得信赖的技术 新模式有望迎来一个工业时代，[#中共国](https://twitter.com/hashtag/中共国?src=hashtag_click) 的技术霸权被打破，全球自由国家的公民可以进行自由交流，而不必担心独裁国家对其说话内容进行监控。】
-
-
-
-> Olympic athletes are using “burner” phones because the CCP can't be trusted not to spy on them. The Clean Network model, based on the Trust Principle doctrine is the most effective way to advance peace and freedom. Read my op-ed with [@JonPelson](https://twitter.com/JonPelson?ref_src=twsrc%5Etfw) in [@TheNatlInterest](https://twitter.com/TheNatlInterest?ref_src=twsrc%5Etfw).
-> — Keith J. Krach (@KeithJKrach) [February 19, 2022](https://twitter.com/KeithJKrach/status/1495054315991420929?ref_src=twsrc%5Etfw)
-
-
-
-**众议员帕特·法伦**： 我会这样说，一直说到我脸色发青——[#习近平](https://twitter.com/hashtag/习近平?src=hashtag_click) 正在注视着我们在东欧的一举一动。
-
-
-
-> I'll say it until I'm blue in the face – Xi Jinping is watching our every move in Eastern Europe.
-> — Rep. Pat Fallon (@RepPatFallon) [February 19, 2022](https://twitter.com/RepPatFallon/status/1495048275610591237?ref_src=twsrc%5Etfw)
-
-
-
-**比尔·格茨**： 和平通过实力来实现。苏莱曼尼解决方案应该是美国威慑的基础。让像普京和习近平这样的独裁者知道，他们的豪华轿车会因其侵略性也会变成这样。 【转推：大意：传统媒体会疑惑不解，为什么暴君普京在2014和2022年会入侵乌克兰，但在2017至2020年之间却不动】
-
-
-
-> Peace through Strength works. The Suleimani Solution should be the basis for US deterrence. Let dictators like Putin and Xi know that their limos will look like this for aggression [https://t.co/fQf1xMDngC](https://t.co/fQf1xMDngC) [pic.twitter.com/cK0aFYj1Yc](https://t.co/cK0aFYj1Yc)
-> — Bill Gertz (@BillGertz) [February 19, 2022](https://twitter.com/BillGertz/status/1494851055066050565?ref_src=twsrc%5Etfw)
-
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

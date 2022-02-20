@@ -2,38 +2,33 @@
 ---
 
 
-## 有声|大直播—反抗疫苗暴政的利器：大卡车运动！
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2034173/)
+## 王牌战斗机领导技术努力对抗新兴的中国威胁
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2034218/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭先生在2月13日的大直播中提及，当下在加拿大、澳大利亚、法国的大卡车运动，就是源于郭先生当年在香港“反送中”运动中策划的大卡车封路运动，其本质是将当下和未来的经济活动与政治运动完整而完美地结合在一起，从而有效地夺回话语权，是和平抗议应对暴政的秘密武器，意义非凡，价值很深！
-![](https://assets.gnews.org/wp-content/uploads/2022/02/mz26.2-1.jpg)
-大卡车运动的精髓在于把握了社会运作最基本也是最核心的常识：把握经济命脉！即以点击面，用大卡车堵路切断经济运行最基本的流通环节，让国民经济陷于瘫痪和停摆，让暴政当局切身感受到剧痛和无奈。只有这样当局才会反思自己的暴政，才有可能坐下来跟民众谈判。
+撰稿：小湫
 
-大卡车运动千万注意不要有任何暴力举动，不让当局有任何抓住把柄暴力镇压的机会，更不要成为被中共利用的工具。面对全世界普遍的疫苗暴政，各国民众反抗的大卡车运动正此起彼伏，如星星之火呈燎原之势！
+一群经验丰富的战斗高手和科技创新者开发了一项新技术，他们相信这将有助于赢得与中共国人工智能的对决。
 
+Red 6首席执行官兼创始人丹尼尔•罗宾逊（Daniel Robinson）表示:“对于中国在网络和人工智能领域的投入，我们也必须采取行动，因为在某些领域，我相信他们远远领先于我们。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1820.png)Red 6 公司CEO丹尼尔•罗宾逊 (图片来自网络）
+罗宾逊和他的团队开发了一种革命性的技术，使战斗机飞行员能够乘坐真正的飞机，并对虚拟敌人进行作战训练。 曾是F-22战斗机飞行员的罗宾逊告诉福克斯新闻“我创办这家公司的全部原因就是飞行员必须飞行，但我们无法在模拟器中做到这一点。这项技术的美妙之处在于它可以重置、重置、再重置。”
 
+罗宾逊告诉福克斯新闻，传统的飞行时间可以让飞行员看问题面板三次。但是使用这种技术，你可以得到8、9、10次机会。
 
-文字版原文：[大直播—反抗疫苗暴政的利器：大卡车运动！](https://gnews.org/zh-hans/2031433/)
+美国空军去年给了Red 6一份7000万美元的合同， 该公司希望在18个月内将该技术应用到战斗机上。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+该合同是在大约同一时间授予的，批评人士认为，国防部在技术领域缺乏灵活性和问责制。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+今年9月，美国空军和太空部队(Air Force and Space Force)前首席软件官尼古拉斯·查兰(Nicolas Chailan)在宣布辞职时，在领英(LinkedIn)上发表了一封措辞严厉的信。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+尼古拉斯·查兰写道:“如果美国无法与中国蓬勃发展、勤奋工作的人口相比，那么我们就必须变得更聪明、更高效，并通过敏捷、快速原型制作和创新来向前倾斜，从而赢得胜利。” “我们必须走在前面，发挥领导作用。 我们承担不起落后的后果。”
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+罗宾逊告诉福克斯新闻，国防部内部的初创公司和官僚机构之间有很多摩擦。  罗宾逊说:“创新正在小型、敏捷的初创公司中发生，比如Red 6，它们的发展速度非常快。”
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+“然后是这些具有破坏性的公司，它们的技术开发速度如此之快，试图与国防部这个庞然大物相融合，而国防部不知道如何将这些技术完全插入一个很大程度上是官僚主义的系统中， 这就导致了冲突和困难，再将创新技术非常快地应用到战士身上。”
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+参考信息：[Fighter ace leads tech effort to battle emerging China threat](https://www.foxnews.com/us/fighter-ace-leads-tech-effort-to-battle-emerging-china-threat)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

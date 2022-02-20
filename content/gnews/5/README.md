@@ -2,50 +2,33 @@
 ---
 
 
-## 魁北克省自由卡车司机收到罚单同时，数名示威者递给他现金
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2034324/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年2月19日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2034380/)
 
-2022-02-19
+作者：香草山翻译部
 
-编译及评论：16626
-![](https://assets.gnews.org/wp-content/uploads/2022/02/VFO37URVV9O55EEZD7S.png)图片来源：截屏于[EN IMAGES | Un camionneur reçoit de l’argent pour payer sa contravention](https://www.tvanouvelles.ca/2022/02/19/a-voir--un-camionneur-recoit-de-largent-pour-payer-sa-contravention)（发表于 2022 年 2 月 19 日下午 4:51）
-自由卡车司机收到警察的罚单同时数名示威者（马上）递给他现金
-
-TVA Nouvelles 发表于 2022 年 2 月 19 日下午 4:51。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/4AG@8H1311O5B8GM.png)图片来源：截屏于[EN IMAGES | Un camionneur reçoit de l’argent pour payer sa contravention](https://www.tvanouvelles.ca/2022/02/19/a-voir--un-camionneur-recoit-de-largent-pour-payer-sa-contravention)（发表于 2022 年 2 月 19 日下午 4:51）图中显示，在魁北克市，一名卡车司机收到（警察的）一张过度使用汽车喇叭的罚单
-在魁北克市，正当一名卡车司机在收到（警察的）一张过度使用汽车喇叭的罚单后，到数名示威者（马上）递给他现金。
-
-**拿到罚单后仅仅几秒钟内**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/G19GM75SCHQ@@WB.png)图片来源：截屏于[EN IMAGES | Un camionneur reçoit de l’argent pour payer sa contravention](https://www.tvanouvelles.ca/2022/02/19/a-voir--un-camionneur-recoit-de-largent-pour-payer-sa-contravention)（发表于 2022 年 2 月 19 日下午 4:51）图中显示，在（这名卡车司机）拿到他的罚单后仅仅几秒钟内，好几个人（马上），（从视频中可以看到，至少八个支持示威的人），走到他的卡车前，递给他一些现金以帮助支付（罚单的）罚款金额
-在（这名卡车司机）拿到他的罚单后仅仅几秒钟内，好几个人（马上），（从视频中可以看到，至少八个支持示威的人），走到他的卡车前，递给他一些现金以帮助支付（罚单的）罚款金额。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/V9B8806G046V1QY.png)图片来源：截屏于[EN IMAGES | Un camionneur reçoit de l’argent pour payer sa contravention](https://www.tvanouvelles.ca/2022/02/19/a-voir--un-camionneur-recoit-de-largent-pour-payer-sa-contravention)（发表于 2022 年 2 月 19 日下午 4:51）图中显示，在（这名卡车司机）拿到他的罚单后仅仅几秒钟内，好几个人（马上），（从视频中可以看到，至少八个支持示威的人），走到他的卡车前，递给他一些现金以帮助支付（罚单的）罚款金额
-魁北克市警方已警告卡车司机，他们（只）有权“适度”鸣笛（按喇叭）。
-
-#### 国民议会附近的示威者非常多
-
-周六（ 2022 年 2 月 19 日），（魁北克市）国民议会附近的示威者非常多。
-
-#### 国民议会前的数千人（示威者）
-
-另外，加拿大魁北克省的蒙特利尔日报（多米尼克·莱利弗 和 杰里米·伯尼尔DOMINIQUE LELIÈVRE et JÉRÉMY BERNIER 2022 年 2 月 19 日星期六 10:23，[https://www.journaldequebec.com/2022/02/19/images-convoi-de-la-liberte–les-manifestants-de-retour-a-quebec](https://www.journaldequebec.com/2022/02/19/images-convoi-de-la-liberte--les-manifestants-de-retour-a-quebec) ）发表一篇题为《“自由车队”：国民议会前的数千人，抗议者返回魁北克市》的文章报道，（2022 年 2 月 19 日）星期六，魁北克省议会山地区再次出现更大规模的示威，这是在两周内的第二次反对卫生措施的示威。
-
-日前，Gnews发表一篇题为《魁北克省记者“自爆”收到纽伦堡审判的照片，[https://gnews.org/zh-hans/2022554/](https://gnews.org/zh-hans/2022554/) 》的文章报道，一位署名为，安东尼奥斯·萨拉利利斯（Antonios Sarailis）的人，发给加拿大魁北克省的蒙特利尔日报记者，伊曼纽尔 拉特拉维斯，Emmanuelle Latraverse，一张纽伦堡审判处决的照片，并警告下一个就轮到这名记者了。
-
-## 纽伦堡审判的时刻快到了
-
-我们谴责并反对暴力示威，更反对政府施加暴力于人民。那些，颠倒黑白，替邪恶势力站台的媒体，以及执法机关的警察，同样逃脱不了即将到来的纽伦堡审判。
-
-**参考资料**：
-
-1. [EN IMAGES | Un camionneur reçoit de l’argent pour payer sa contravention](https://www.tvanouvelles.ca/2022/02/19/a-voir--un-camionneur-recoit-de-largent-pour-payer-sa-contravention)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO-2.jpg)
 
 
-编辑：LILY
-发布：肥鯮
+![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-15.png)
+校对：Stay文苑
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+新闻：[https://gtv.org/broadcast/watch/6211996bb706176dd78d8bbb](https://gtv.org/broadcast/watch/6211996bb706176dd78d8bbb)
+访谈：[https://gtv.org/broadcast/watch/6211a174b706176dd78d90fb](https://gtv.org/broadcast/watch/6211a174b706176dd78d90fb)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-2.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
