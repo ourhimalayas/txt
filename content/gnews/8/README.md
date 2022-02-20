@@ -2,43 +2,37 @@
 ---
 
 
-## 有声|美参议院通过支持乌克兰决议 警告俄罗斯
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2037284/)
+## 中共掩盖锁链女真相打压爆料者
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2037399/)
 
-配音：香草山农场 – 信念7
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+作者：纽约香草山农场-恩永存
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生在最近两次大直播，及2月19日盖特视频中，持续揭露中共专制统治下，很多女性被拐卖欺压的悲惨遭遇。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/download-9.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide5-11.jpeg)
 
+据郭先生透露，他老家有个村，有百十个被买来的女人。周边几省有上百万被拐卖来的女子，全国每年估计干万女人被倒卖。有的是母亲和孩子一起被拐卖。穷人买女人为生孩子，贪官买女人就逼其做性奴。有的女性被关在黑屋里，有的则锁链不离身，有的被打成残废，有的丧命而尸首无存。中共自改革开放以来，拐卖妇女儿童的罪恶买卖一直存在，许多地方官员暗中默许。
 
-外媒02月17日报道，美国参议院星期四晚间，举行了罕见的两党投票，对乌克兰独立表示支持，并对俄罗斯的军事侵略企图发出警告。 与此同时，西方对俄罗斯可能入侵乌克兰出现新担忧，这种担忧可能升级为一场欧洲战争。
+郭先生悲愤谴责中共掩盖八孩锁链女真相，反而速查打击爆料真相者。中共向来对坏人保护，几十年都不追查结果。新中国联邦揭真相，讲真话，传正道，故中共把我们当大敌，污蔑爆料革命者。全球的奸商政客们与中共勾兑，狼狈为奸，要名利，贪美色，讲假话，互称朋友。
 
-在参议院投票表决之前，美国总统拜登表示，美国有情报表明，俄罗斯可能在几天内对乌克兰发动袭击。 在俄罗斯军队仍在乌克兰边境集结之际，美国官方认为俄罗斯总统普京可能实施侵略乌克兰的计划。
+中国人的家庭伦理关系，被中共无神论洗脑教育祸害，许多人妻离子散，人与人之间互不信任，处处设防，没有信仰，不分善恶，贪得无厌，缺乏真爱，失去自由。中国人唯一的出路，就是加入新中国联邦，回归正道主义，找回真正的自我，回归正常的人生模式。
 
-美参议院的决议一致表决通过，表明美国立法机构将支持乌克兰和谴责俄罗斯的侵略记录在案。 本周，美参议员们都在高度关注俄乌日益紧张的局势，许多参议员希望更进一步，对俄罗斯和普金实施毁灭性的制裁，这将对俄罗斯经济造成重要打击。
+参考链接：[https://gettr.com/post/pviwuoa122](https://gettr.com/post/pviwuoa122)
 
-有关人士对此评论，俄罗斯侵略乌克兰必将遭到美国及西方国家的严厉制裁，美参议院通过紧急决议，就是严重警告俄罗斯不要轻举妄动跨越红线。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
+总编：Zion文恩
+编辑：静言
+校正/发稿：谐趣园
 
-
-文字版原文：[美参议院通过支持乌克兰决议 警告俄罗斯](https://gnews.org/zh-hans/2030265/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

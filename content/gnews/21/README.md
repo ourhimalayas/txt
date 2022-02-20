@@ -2,35 +2,27 @@
 ---
 
 
-## 有声|普京在闪现中共冬奥会后严格保持社交距离
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2037127/)
+## 接种了两针中共病毒疫苗的横山玲奈中招了！
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2037260/)
 
-配音：香草山农场 – 信念7
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-当地时间2月14日俄罗斯总统普京，分别会见了俄罗斯的国防部长和外交部长。尽管这两位都是俄罗斯本国的高官，普京依旧跟他们保持了长达数米的社交距离。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-19-1-1.png)图片来源网络
-这并非是普京首次保持如此明显的社交距离。就在本月7日和15日，普京分别会见了法国总统马克龙，以及德国总理朔尔茨，会晤中都保持了6米以上的社交距离。但相反的是，早在今年1月跟伊朗总统的会晤中，普京在同一张桌子上安排了两名翻译，并没有出现照片中如此夸张的现象。甚至在去年11月底跟越南国家主席的会晤中，双方也仅是保持2米左右的距离。 分析人士指出，出席中共冬奥会成为普京这一转变的分水岭，在冬奥会的开幕式上，他也是一个人坐在看台上而没有去主席台。这就从侧面印证了郭文贵先生，在2月4日大直播中爆料的，普京团队抵达北京后多人出现感染的情况。
+撰稿：东京樱花团｜闻雨
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-19.png)
+[*图片来源*](https://i0.hdslb.com/bfs/archive/e373c023e686c89577e764bfed99c01edbae0bfc.jpg)
 
+据Daily新闻2月20日报道：日本女子流行歌曲偶像组合“早安少女组’22”的成员横山玲奈感染了中共病毒（新冠），她已经接种了两针中共病毒疫苗。
 
+1月27日横山接受了PCR测试，被诊断为阳性。经过10天的家庭疗养后，恢复了工作。2月19日晚，横山玲奈（20岁）在MBS电台播出的“Young Town Saturday”中谈到了她被感染后的经历。
 
-文字版原文：[普京在闪现中共冬奥会后严格保持社交距离](https://gnews.org/zh-hans/2033942/)
+横山说：“在这十天中有七天我都非常虚弱，甚至连摸手机的力气都没有。我发烧、肚子痛，还恶心。我只能躺着，没有力气起来，我只能看着天花板。”尽管她被诊断为轻症，然而她的症状并不轻，甚至可以说很严重。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+这么年轻的女孩，才20岁就打了两针中共病毒疫苗。中共病毒疫苗会破坏人体的自然免疫系统，她的感染是不是疫苗所造成的呢？这些都有待专家们的解密，我们期待着真相早日被揭晓。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+信息来源：[**感染のモー娘。横山玲奈　発熱、腹痛、吐き気で苦しむ「１週間ケータイもいじれなかった」**](https://www.daily.co.jp/gossip/2022/02/20/0015079017.shtml)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / yuxingcao01*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

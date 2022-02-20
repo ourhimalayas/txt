@@ -2,20 +2,37 @@
 ---
 
 
-## 《 西站出品》 &#8212; &#8220;西班牙无敌战舰&#8221;战绩（第二集）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2037114/)
+## 有声|以色列将废除中共病毒疫苗护照系统
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2037187/)
 
-制作：蚂蚁兄弟
+配音：香草山农场 – 信念7
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+2月17日周四，以色列总理总理宣布，中共病毒感染病例每天持续下降，中共病毒疫苗接种证明的护照系统将会暂停使用。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/10-13.jpg)
+据悉该护照系统称为绿色通行证，限制未完成接种至少三针疫苗的人们，进行大型集会和进入室内场所。在过去一年的大部分时间里，绿色通行证是以色列日常生活的必备品。
 
-截止到2月17日，“西班牙无敌战舰”启航四天的时间里，17家商家入驻，从商品百货到度假休闲，从保健品到美容美甲，横跨欧美亚洲，接受Himalaya Pay！
+在2020年，以色列与辉瑞达成协议，用医疗数据换取稳定的中共病毒疫苗供应后，迅速为大部分成年人口接种了疫苗。当前约48%人口已经接种了三针疫苗，全国72%的人口已经接种了至少一针。
 
-西班牙巴塞罗那喜悦农场 热情欢迎更多的商家入驻！！！
 
-欢迎观看第一集：[《 西站出品》 — “西班牙无敌战舰”首航战绩](https://gnews.org/zh-hans/2020739/)
 
-发稿：信心的选择
+文字版原文：[以色列将废除中共病毒疫苗护照系统](https://gnews.org/zh-hans/2031593/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-5.jpeg)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)0
 
  
 

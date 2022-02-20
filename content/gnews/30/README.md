@@ -2,30 +2,35 @@
 ---
 
 
-## 韩国总统候选人尹锡烈先生，发表《取消疫苗通行证》公约
-` 타이거` [轉載自GNews](https://gnews.org/zh-hans/2036835/)
+## 有声|普京在闪现中共冬奥会后严格保持社交距离
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2037127/)
 
-**撰稿：日本方舟农场 东北虎**
+配音：香草山农场 – 信念7
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+当地时间2月14日俄罗斯总统普京，分别会见了俄罗斯的国防部长和外交部长。尽管这两位都是俄罗斯本国的高官，普京依旧跟他们保持了长达数米的社交距离。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-19-1-1.png)图片来源网络
+这并非是普京首次保持如此明显的社交距离。就在本月7日和15日，普京分别会见了法国总统马克龙，以及德国总理朔尔茨，会晤中都保持了6米以上的社交距离。但相反的是，早在今年1月跟伊朗总统的会晤中，普京在同一张桌子上安排了两名翻译，并没有出现照片中如此夸张的现象。甚至在去年11月底跟越南国家主席的会晤中，双方也仅是保持2米左右的距离。 分析人士指出，出席中共冬奥会成为普京这一转变的分水岭，在冬奥会的开幕式上，他也是一个人坐在看台上而没有去主席台。这就从侧面印证了郭文贵先生，在2月4日大直播中爆料的，普京团队抵达北京后多人出现感染的情况。
 
-2月15日，第20届总统候选人尹锡悦先生在首尔清溪广场结束首次出征仪式游说后，宣布了为20多天后举行的大韩民国第20届总统选举（3月9日）的10大政策公约。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Korea-윤석열-001-2.jpg)（图片来自于网络）
-特别是在10大公约中提出的”取消非科学的疫苗通行证”作为第三个主要政策公约，其重要性和实现可能性相比其他公约相当高。另外，他也是唯一提出撤回疫苗通行公约的总统候选人，因此更加受到民众的关注。
 
-尹锡悦先生在 正式开始总统选举运动的第一天就来到设在首尔清溪广场的新冠肺炎疫苗接种死亡者焚香所进行追悼。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Korea-윤석열-002.jpg)（图片来自于网络）
-尹锡悦先生在16日下午在首尔龙山区大韩医师协会就”新冠肺炎应对问题和改善方案”举行了座谈会上，表示”应该转换成科学防疫，而不是政治防疫”，直击现政府的”加强疫苗流通”政策，对文在寅政府的新型冠状病毒应对和防疫失败进行了高强度的批评。
 
-与此相反，李在明候选人曾表示”如果对年轻一代未接种置之不理 就会成为宿主”，强调应该提高年轻人较低的新型冠状病毒疫苗接种率；安哲秀候选人也强调要加强疫苗通行及设置普通人路线确认应用程序，对文在寅政府的疫苗推行政策表示赞同。
+文字版原文：[普京在闪现中共冬奥会后严格保持社交距离](https://gnews.org/zh-hans/2033942/)
 
-参考链接：
-1.[https://www.news1.kr/articles/?4585817](https://www.news1.kr/articles/?4585817)
-2.[https://view.asiae.co.kr/article/2022020415353155314](https://view.asiae.co.kr/article/2022020415353155314)
-3.[http://www.fntoday.co.kr/news/articleView.html?idxno=269772](http://www.fntoday.co.kr/news/articleView.html?idxno=269772)
-4.[https://www.newdaily.co.kr/site/data/html/2021/12/16/2021121600165.html](https://www.newdaily.co.kr/site/data/html/2021/12/16/2021121600165.html)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-素材采编：东北虎
-编辑：东北虎
-发布：东北虎
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

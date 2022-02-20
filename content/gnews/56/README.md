@@ -2,26 +2,36 @@
 ---
 
 
-## 樱花FM|美国试图阻止中共在非洲建立大西洋基地
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2032522/)
+## 大陆中小学设“法治副校长” 宣传“习近平思想”
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2031793/)
 
-音频：东京樱花团/战友520
-![](https://lh4.googleusercontent.com/r_WSIkZYkmdEwv8sh3AevnnsUmp9adqgOsDKrYqkP9aBWBmDGXXOwDgYs4bsbBlWBwY9Td0MM12Vv8XmRtbbTzO1yw0KGraN0GR00JZ6KX07kSk-KQ2rsq-0UO8_-UBxWUsG_ujf)
-据华尔街日报2月12日报道说，美国试图阻挠中共国在非洲建立大西洋基地的计划。据政府官员称，一个由美国高级外交和军事人员组成的代表团计划在下周访问这个中非小国，预计将讨论美国的反海盗援助以及其他一些旨在说服赤道几内亚总统奥比昂恩圭马姆巴索戈(Teodoro Obiang Nguema Mbasogo)拒绝北京方面提议的条件。
+作者：台湾宝岛农场 – dobi
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+据墙内媒体2月18日报导，中共教育部在17日举行的新闻发布会上，介绍了新出炉的《中小学法治副校长聘任与管理办法》。该办法将于今年5月1日起实施，其中规定，每所中小学校至少要配备1名法治副校长，法治副校长的职责主要包括：推动习近平法治思想学习宣传、开展法治教育，以及预防青少年犯罪等。
 
-该代表团将由国务院非洲事务高官Molly Phee和军方非洲司令部的Kenneth Ekman少将率领。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8-29.jpg)
 
-该报道说，这次访问之际，美国对中共国的全球扩张主义及其在美国认为是自家地盘的水域追求永久性军事存在的担心正不断上升。
+有评论人士称，在中小学设立法治副校长宣传习思想，不仅荒诞，而且无耻，是更隐晦、更隐形、更全面，同时也更具摧毁性的对中小学学生进行人权思维的教育迫害行动，凸显了中共只有党治，没有法治的政治扭曲立场，也将中国岌岌可危的人权思潮更加矮化，不仅是教育的灾难，也是国家的灾难。
 
-赤道几内亚是撒哈拉以南非洲的发展中国家，其经济以种植业为主，主要的出口产品是可可，其次为咖啡。该国长期以来被列入世界最不发达国家名单，但是1996年在赤道几内亚领海内发现了大量石油资源，此后该国经济快速增长，1997年至2001年的年平均经济增长率达41.7%。至2004年，赤道几内亚已经成为撒哈拉以南非洲的第三大石油生产国，石油产量达每天36万桶。
+参考链接：
 
-此外，赤道几内亚临近非洲产油大国尼日利亚和安哥拉，特别是安哥拉占中共国进口石油量的20%左右的。中共在此建立军事基地不仅能能满足自己日益膨胀石油需求，甚至还将通过控制大西洋航道等方式，这将严重威胁世界石油供应和周边国家安全。希望西方各国积极发挥自己对非洲各国的影响力，通过外交手段打破中共企图建立大西洋军事基地的千秋大梦。非洲各国也要擦亮双眼，抵挡住中共的“糖衣炮弹”诱惑，不要将国家陷入“蓝金黄”的泥潭。
+- [大陸中小學設「法治副校長」 遭批奴化教育](https://www.epochtimes.com/b5/22/2/18/n13587647.htm)
+- [每所中小学至少配备1名法治副校长 聘任与管理办法5月1日起实施](https://baijiahao.baidu.com/s?id=1725084370734313844&amp;wfr=spider&amp;for=pc)
 
-文字版原文：[美国试图阻止中共在非洲建立大西洋基地](https://gnews.org/zh-hans/1994785/)
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
+
+总编：飞虹
+编辑：飞虹
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
