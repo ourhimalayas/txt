@@ -2,34 +2,34 @@
 ---
 
 
-## 重磅炸弹， Spotify和Moderna的所有者为同一伙人
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2033923/)
+## 勇敢时刻：活动人士扯下北京公司拥有的塔斯马尼亚矿场的中共国国旗——澳大利亚资源不应被种族灭绝独裁者接管
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2033930/)
 
-**编译：武松**
+翻译：波士顿五月花  小南瓜
 
-杰出的科学家和mRNA技术的共同发明者罗伯特·马龙博士，在本周接受福克斯新闻主持人塔克·卡尔森的采访时投下了新的重磅炸弹，据其透露，Spotify 平台的最高所有者也是疫苗制造商 Moderna 的最高所有者。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/460CA3B0-E539-4463-A8CD-6C1740F29047.jpeg)图片来源：https://www.naturalnews.com
-据了解，Moderna的最大股东是 Baillie Gifford and Company，该公司拥有该公司近4600万股股票，价值超过116亿美元。同时Baillie Gifford and Company也是Spotify的最大股东，持有该公司超过2200万股股票，价值超过220亿美元。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Picture2-8.jpg)http://dailymail.co.uk
+Gutsy moment activist rips down Chinese flag at Tasmanian mine owned by Beijing company – as he says ‘genocidal dictatorships’ shouldn’t be allowed to take over Australian resources
 
-Baillie Gifford and Company是一家成立于苏格兰的全球资产管理基金，总部位于纽约和伦敦，它管理着近五万亿美元的投资组合。据该公司网站得到信息，Baillie Gifford 由其47位合伙人全资拥有，同时他们宣称致力于保持独立，通过每一代合作伙伴，始终专注于为客户创造卓越的长期投资成果，这一直是该公司自身发展的基石。但是这47为合伙人究竟是何许人也，暂时未找到相关内容。
+上周四，澳大利亚一位勇敢的人权活动人士杜鲁‧帕夫罗扯下了一面飘扬于洛斯贝里的塔斯马尼亚矿业公司的中共国国旗，以抗议中共国的种族灭绝和独裁。
 
-罗伯特·马龙最后表示，金钱和权力是围绕他、罗根和疫苗所有“争议”的根源，不是“科学”。
+这家被北京控股67.8%的澳洲矿业公司股份计划清理285公顷的雨林和绿色植被地带，为修建140公顷的矿渣填埋坝让路。墨尔本矿业公司因其与中共及其采矿项目的关联而受到批评。该项目会破坏生态环境，同时，与中共有所关联。因此，激怒了人权活动人士。中共被指责系统性关押和迫害维吾尔族人(大约有200万维吾尔族人被关押在1400个集中营)。
 
-**评：持续2年多的中共病毒和疫苗风波席卷全球，无数的普通民众收到巨大伤害，甚至死亡。这些草根就是全球黑暗势力的实验对象和玩物，终究原因就是金钱和权力在作怪，是人类大重启的一部分。可喜的是在新中国联邦及郭文贵先生的全力呼吁下，全世界正在快速醒来，认识到病毒和疫苗的真相，全球各地爆发的抗议及游行活动，最终必将黑暗势力斩草除根，人类将迎来更美好的未来。**
+一位旁观者拍摄到了这一幕：杜鲁‧帕夫罗先生靠近旗杆， 降下了旗子并卷在手里，边跑边笑。
 
-**原文链接：**
+因未能提供足够的资源保护生态环境和澳洲独特的生物群落，矿业公司一直备受指责。
 
-[Dr. Robert Malone drops bomb, reveals top owner of Spotify is also top owner of COVID vaccine maker Moderna](https://www.naturalnews.com/2022-02-15-dr-robert-malone-reveals-top-owner-spotify-also-top-owner-of-moderna.html)
+西藏人权活动者和新南威尔士参议员候选人金泽姆‧杜翁德认为：塔斯马尼亚的矿业开采会威胁野生动物的生存。他对澳大利亚报表示：“看到中共国政府到这里采矿，塔斯马尼亚的野生动物被破坏，绝对令人心碎。我到这里是要警告塔斯马尼亚人，我们需要把中共国的矿产公司赶出塔金地区(位于塔斯马尼亚西部)。 这是中共国对我们森林资源的渗透。 中共已经渗透了我们的政治、大学、甚至体育，我把此项目称为中共入侵澳洲的森林。”
 
-编辑：LILY
+而澳洲矿业公司则无视批评，将其视为”排外心态”作祟。
 
-**发布：歪桑**
+新闻来源: [Gutsy moment activist rips down Chinese flag at Tasmanian mine owned by Beijing company – as he says ‘genocidal dictatorships’ shouldn’t be allowed to take over Australian resources](https://www.dailymail.co.uk/news/article-10504523/MMG-Rosebery-flag-taken-Tasmania-site-Chinese-Communist-Party-links.html)
 
-20220219
+* * *
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3343513D-87C5-433D-88D8-2DE98D14FF13.jpeg)
+*素材来源：小南瓜*
+
+*编辑**& 发布：jamie(文胤)*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
