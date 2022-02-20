@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/20/2022 12:59 PM (UTC)`
+
+2022年2月20日 文贵大直播：中俄欲改国际秩序；乌克兰成较量战场；锁链女事件政治化；国共斗争间谍下场
+![img](https://media.gettr.com/group40/origin/2022/02/20/12/e0135d13-2a51-8977-65bf-d6f03ae10b86/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 2/20/2022 2:02 AM (UTC)`
 
 2/18/2022 Miles Guo: Science has advanced human history and put an end to religion and imperial rule, yet why has scientism become an accomplice to the COVID vaccine disaster? Who has exploited scientism to fool people into trusting them so that they can push the COVID vaccines?<br/><br/>2/18/2022 文贵直播: 科学曾在历史上推动了人类的发展，结束了宗教和皇权统治，然而为什么科学主义却成了疫苗灾难的帮凶？是谁利用了科学主义去骗取人们的信任来推行疫苗？<br/>
@@ -147,13 +154,6 @@ Live, Love, & Laugh ❤️
 
 2/18/2022 Miles Guo: Singapore worships both the UK and the US and follows the CCP as well, but its vaccine mandate will soon be stopped. The CCP has taken complete control of Singapore and transferred most of its money hidden in the US to Singapore. The business of financial note in Singapore is ranked NO.1 in the world. Singapore is no longer suitable for a long-term stay, and the Singaporean Chinese will be the victims of its internal struggles.<br/><br/>2/18/2022 文贵直播：新加坡既崇拜英美又跟着中共，但其疫苗强制令很快会停；中共已彻底控制新加坡并将大多数藏在美国的钱转过去了；新加坡票据业务排全球第一；新加坡不宜久留，华人将是其内部斗争的牺牲品<br/>
 ![img](https://media.gettr.com/group9/getter/2022/02/18/22/ba2a532f-1130-fce5-5934-0a157a7d1aa3/out.jpg)
-
----
-
-`@miles 2/18/2022 5:34 PM (UTC)`
-
-⚠️Cronologia degli stati federali della nuova Cina sul virus PCC e sul vaccino covid<br/><br/>Gli stati federali della nuova Cina si sono sempre impegnati per la verità e per salvare vite umane, esponendo la natura malvagia del PCC e il fatto che hanno creato il virus PCC che ha ucciso milioni di persone in tutto il mondo. Inoltre, gli SFNC hanno diffuso nel mondo la terapia COVID e i relativi farmaci, così come le informazioni e i dati reali sul vaccino COVID. Tutti i fatti dimostrano che ciò che il PCC ha fatto non ha nulla a che fare con il popolo cinese, il PCC non può rappresentare il popolo cinese, che è anche la vittima.<br/><br/>⚠️关于新中国联邦爆料 #中共病毒 和 #中共病毒疫苗 灾难预警时间线（意大利语版）<br/><br/>新中国联邦致力于揭露中共邪恶本质，揭露他们制造中共病毒在全世界造成数百万人死亡的事实以及COVID疫苗的真实目的，揭示真相，拯救生命。中共的所作所为与中国人民无关，中共不代表中国人民，中国人民也是受害者。
-![img](https://media.gettr.com/group46/origin/2022/02/18/17/0bc16b5a-6e3a-53cd-c7c7-bcff342386a4/out.jpg)
 
 ---
 

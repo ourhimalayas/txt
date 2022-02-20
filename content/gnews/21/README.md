@@ -2,12 +2,23 @@
 ---
 
 
-## 辱华亲共杨贝贝
-` 新西兰农场【光影传镜】` [轉載自GNews](https://gnews.org/zh-hans/2035988/)
+## 视频|英国保守党主席呼吁西方合作对抗中共威胁
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2036249/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3-63.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/22f0c9ecf1501ade.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/534B6657-2348-4A00-802C-16446AAC058F.jpg)
-图文设计：新西兰农场设计组
-上 传：F
+制作：香草山视频部
+
+2月17日，美国媒体报道，英国保守党主席奥利佛·道登于2月14日在美国智库传统基金会发表演讲时，引用了英国前首相撒切尔夫人的话说，要对抗中共，必须建立一个团结的西方联盟。
+
+道登指出，面对来自中共日益增长的威胁，全世界的保守人士必须增强信心，大力捍卫自由社会的价值观。西方曾认为中共在部分融入自由市场后，会自动走向更大的社会和个人政治自由，但这种想法如今已被证明是太天真了。
+
+发稿：小野貓（文凱琳）
+
+**更多资讯，更多关注**
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+
+
 
  
 

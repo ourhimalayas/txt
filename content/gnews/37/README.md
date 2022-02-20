@@ -2,28 +2,33 @@
 ---
 
 
-## 澳国防部严厉谴责中共军舰用激光照射澳军飞机行为
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2035396/)
+## 渥太华警方暴力镇压和平抗议者，并威胁市民不要拨打投诉电话
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2035512/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-20-0852521.jpg)图片来源 www.voachinese.com
-据美国之音2月19日报道，澳大利亚国防部谴责中共国一艘海军军舰向澳大利亚的一架P-8A反潜侦察机发射激光。澳军方表示，这是一起严重的安全事件。激光如果照射到飞机上，可能会造成飞行员暂时性失明，从而引起安全风险，尤其是在飞机起飞和着陆的时候。
+#### 翻译/撰稿：zzballack
 
-中共国声称对南中国海几乎全部海域拥有主权，持续多年在南中国海的一些礁石附近填海造岛、修建军事基地。随着中共国在这一地区的军事活动加剧，美国等西方盟国也出动海空力量加强巡航，从而导致该地区局势紧张。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-94.png)图片来源：加拿大广播公司
+据《网关专家》（Gateway Pundit）2月19日报道，周六（2月19日）晚上，渥太华警方开始向渥太华市中心的数百名争取自由的和平抗议者发射橡胶弹和催泪瓦斯。
 
-中共篡政以来，先是画了个圈，把台湾画进了中共国版图。后来，中共又画了一个圈，把南中国海划进了中共国版图，即使国际法庭已经判决中共国对南中国海没有主权。中共藐视国际秩序，圈画到哪里，哪里的海域或疆土就归中共国所有，就会采取一系列挑衅行为。随着中共野心的扩大，中共的威胁也在增大。
-
-新闻参考链接：[https://www.voachinese.com/a/australia-says-china-warship-fired-laser-at-its-patrol-plane-20220219/6450290.html](https://www.voachinese.com/a/australia-says-china-warship-fired-laser-at-its-patrol-plane-20220219/6450290.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+在警察的野蛮攻击之后，抗议者向他们高喊“你们真可耻”！愤怒的公民打爆了渥太华警局的电话专线，投诉和谴责执法人员的野蛮行径。渥太华警方却威胁这些公民不要再打电话谈论警察对和平抗议者的暴行，否则对其提起刑事诉讼。
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+> We know the events in [#Ottawa](https://twitter.com/hashtag/Ottawa?src=hash&amp;ref_src=twsrc%5Etfw) are upsetting. Still, we’re asking people to stop calling critical emergency and operational phone lines to express displeasure about the police action to remove an unlawful assembly downtown.
+> — Ottawa Police (@OttawaPolice) [February 19, 2022](https://twitter.com/OttawaPolice/status/1495168988183252999?ref_src=twsrc%5Etfw)
+
+
+
+渥太华警方2月20日发推说：“我们知道在渥太华发生的事件令人不安。但是，我们仍然要求人们停止拨打重要的紧急电话和业务电话，以发泄对警察驱散市中心非法集会的不满。不必要地拨打911或我们的非紧急号码（613-236-1222）是一种犯罪。我们会对电话进行追踪，并对任何故意干扰电话线的人提出指控。”
+
+与此同时，警方对和平抗议者的镇压变本加厉，这是赤裸裸的暴政！
+
+新闻来源：
+
+[BREAKING VIDEO: Ottawa Police Shoot Rubber Bullets and Tear Gas on Peaceful Freedom Protesters](https://www.thegatewaypundit.com/2022/02/breaking-video-ottawa-police-shoot-rubber-bullets-tear-gas-peaceful-freedom-protesters/)
+
+[Outraged Citizens Flood Ottawa Police Phone Lines With Complaint Calls About Horrific Treatment of Protesters – OPD Responds by Threatening Callers with Criminal Charges](https://www.thegatewaypundit.com/2022/02/outraged-citizens-flood-ottawa-police-phone-lines-complaint-calls-horrific-treatment-protesters-opd-responds-threatening-callers-criminal-charges/)
 
  
 
