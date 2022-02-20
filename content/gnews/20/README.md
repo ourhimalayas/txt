@@ -2,49 +2,34 @@
 ---
 
 
-## 加拿大警方驱散自由车队，逮捕至少100名抗议者
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2035328/)
+## 浅谈预测、解密、加密
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2035351/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+**作者:JuvenGuo**
+[![](https://express.adobe.com/page/KAyzVBUw4zkkx/images/43830379-1841-4462-9466-f4de3c20ddd0.jpg?asset_id=dd2099db-1346-4b61-829a-95ff2b024fdc&amp;img_etag=%22566cc1dc1fdf3b4d1604b90e27621aae%22&amp;size=1024)](https://express.adobe.com/page/KAyzVBUw4zkkx/images/43830379-1841-4462-9466-f4de3c20ddd0.jpg?asset_id=dd2099db-1346-4b61-829a-95ff2b024fdc&amp;img_etag=%22566cc1dc1fdf3b4d1604b90e27621aae%22&amp;size=1024)
+传说古代有道行的高人都能“前算一千年，后算八百年”。比如袁天罡、李淳风、刘伯温等，也有流传至今的推背图、烧饼歌等作品。
 
-翻译/编辑：文泓
+真有人能“前算一千，后算八百”吗？现实生活中，确实有人看事情看的比较准，也有的人被别人看准了让人家算计。其实我们大部分人可以说都是被算计的对象，尤其是在没有爆料革命新中国联邦之前。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/7-29.png)图片来源：acropreneur.com & 雅典娜设计组
+预测能力人人都有，固定程序的计算机都能计算出很多未发生之事，比如星球运行轨道，事故发生概率等。预测不特指未来的事，已经发生的、秘密的、不为人知的也是可以预测的。比如计算机破解密码，就是预测已经发生的、但是不为人知的秘密。预测就是根据已有的知识、公开的信息，或者已知的信息推测或者计算未知的东西。
 
+预测其实就是解密，解密就是爆出不为人知的东西。普通人合法的个人隐私，你就是知道也不能到处乱说，因为这是侵犯隐私权。但是，对于CCP这种邪恶组织，他们反人类、反社会的秘密，无论大小都应该被揭露出来。曝光邪恶是正义之举。
 
-当地时间2月19日，据《卫报》报道，上周一，特鲁多成为第一位援引《紧急状态法》的加拿大总理，授予他的政府广泛的权力，可以禁止在某些地点举行集会、拖走车辆、暂停驾驶执照和冻结银行账户。
+谈到预测解密，就得谈加密。世界上最大的秘密，就是没有秘密。无论多先进的加密技术，精确到每个人的细微动作，繁琐的想法，都是可以百分之百重现并详细演示。三岁小孩遇到人就会抓紧手里的那块糖，成人一看就明白他们的心思。加密不管用，就只能走明码规则，新中国联邦追求的正道主义就是明码规则。
 
-[渥太华市临时警察局长警告说“行动迫在眉睫”，周四晚上，两名著名的抗议活动组织者领袖被捕，克里斯·巴伯和塔玛拉·利奇将面临恶作剧和劝诱他人实施恶作剧的指控。](https://www.theguardian.com/world/2022/feb/17/ottawa-protests-anti-terror-agency-warned-violent-extremists)
+正像世界宇宙可以任人探索，从来不掖着藏着。大到星系，小到DNA，都是螺旋结构。螺旋结构就是计算未来，还原过去的一个基本结构。
 
-[其他知名人士也于周五被捕：帕特·金在脸书直播期间被捕，另一位杰出人物 BJ Dichter告诉支持者，“是时候可以离开了”。](https://www.theguardian.com/world/2022/feb/17/ottawa-protests-anti-terror-agency-warned-violent-extremists)
+人类是有主人的，世界是有规则的，千万别作恶，CCP是完蛋了，CCP所作的恶都会被挖出来，灭共，走正道主义是每个人的自我救赎。
+[![](https://express.adobe.com/page/KAyzVBUw4zkkx/images/d2b0a6d2-3cc5-4292-a2f4-ca8abf43dce5.jpg?asset_id=a56acb34-735d-4178-a2ab-faecff5037c0&amp;img_etag=%2296278ffd75afcdd54e3689a189874a06%22&amp;size=1024)](https://express.adobe.com/page/KAyzVBUw4zkkx/images/d2b0a6d2-3cc5-4292-a2f4-ca8abf43dce5.jpg?asset_id=a56acb34-735d-4178-a2ab-faecff5037c0&amp;img_etag=%2296278ffd75afcdd54e3689a189874a06%22&amp;size=1024)
+*编辑：【英国伦敦喜庄园编辑部】*
 
-[当卡车汽笛声响起时，数百名警察一早上进入国会山附近的一个抗议营地，其中一些警察携带步枪，另一些人带着防暴盾牌和防毒面具。](https://www.theguardian.com/world/2022/feb/17/ottawa-protests-anti-terror-agency-warned-violent-extremists)
+*校对：文明明 | 审核：仙女儿-文善 | Page: Daoiii*
 
-[自抗议活动开始以来，警察人数首次远远超过示威者，以至于警察控制了抗议营地的部分区域，大量的警力的存在让执法者无所顾忌，他们砸碎车辆窗户并拖出司机。](https://www.theguardian.com/world/2022/feb/17/ottawa-protests-anti-terror-agency-warned-violent-extremists)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-随着更多皇家骑警和至少三辆装甲车抵达现场，还有一架警用无人机在头顶盘旋。警用扩音器发出警告：“你必须离开！你会被逮捕的！”
-
-警方指挥官周四明确表示，他们正准备结束卡车司机的围困，并撤走自1月下旬以来封锁该市的300多辆卡车、露营车和其他车辆。
-
-随着警线的推进，一些抗议者手挽手拒绝移动；有些人唱着加拿大国歌，并呼吁非暴力。现场一位女士喊道：“你们才是邪恶的。”
-
-随着时间的推移，越来越多的卡车逐渐离开了封锁线，大型拖车也抵达营地附近，警察逮捕了司机并控制了车辆。
-
-随即渥太华警方已开始逮捕抗议者并拖走车辆，并驱散在加拿大首都抗议疫苗强制的“自由车队”。
-
-[到周五晚上，由于警方行使了特鲁多政府援引的紧急权力，](https://www.theguardian.com/world/2022/feb/14/canada-protests-justin-trudeau-use-rare-emergency-powers)现场至少有100名抗议者被捕，至少有21辆汽车被拖走，其中包括封锁该市一条主要街道的所有车辆。
-
-周五下午，局长史蒂夫·贝尔说：“警察将继续推进控制街道，我们将日夜工作，直到完成。” 新闻链接：[Canadian police arrest at least 100 protesters in bid to break up Ottawa truck blockade | Canada | The Guardian](https://www.theguardian.com/world/2022/feb/18/trucker-convoy-protest-canada-ottawa-police-arrests-latest-news)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+[![](https://express.adobe.com/page/KAyzVBUw4zkkx/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://express.adobe.com/page/KAyzVBUw4zkkx/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

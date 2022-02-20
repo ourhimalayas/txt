@@ -2,8 +2,8 @@
 ---
 
 
-## 疫苗灾难对新加坡的高度危害警讯
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2035061/)
+## 谷爱凌被问到国籍问题时的反应
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2035136/)
 
 台灣寶島農場
 

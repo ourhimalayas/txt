@@ -2,34 +2,31 @@
 ---
 
 
-## 渥太华警方暴力镇压和平抗议者，并威胁市民不要拨打投诉电话
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2035512/)
+## 樱花FM|圣火不“圣洁”，随意遭拘捕 20岁维人点圣火不知去向
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2035552/)
 
-#### 翻译/撰稿：zzballack
+音频：东京樱花团/战友520
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-94.png)图片来源：加拿大广播公司
-据《网关专家》（Gateway Pundit）2月19日报道，周六（2月19日）晚上，渥太华警方开始向渥太华市中心的数百名争取自由的和平抗议者发射橡胶弹和催泪瓦斯。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/圣火不圣洁，随意遭拘捕-20岁维人点圣火不知去向.png)
 
-在警察的野蛮攻击之后，抗议者向他们高喊“你们真可耻”！愤怒的公民打爆了渥太华警局的电话专线，投诉和谴责执法人员的野蛮行径。渥太华警方却威胁这些公民不要再打电话谈论警察对和平抗议者的暴行，否则对其提起刑事诉讼。
+看中国2022年2月15日讯，北京本届冬奥会官方刻意安排新疆维吾尔运动员迪妮格尔．衣拉木江担任点燃圣火引起国际关注。有外媒披露，曾于2008年北京夏季奥运同样担任火炬手的另一名维吾尔运动员阿迪力·阿不都热衣木（Adil Abdurehim），因被指控“观看反革命视频”而被判14年刑期，且正在服刑中。 与此同时，今年冬奥期间，也有23名维吾尔青年因言论得罪中共政府遭到拘捕和罚款。
+
+2008奥运火炬手加入共产党 随意遭捕
+
+美国自由亚洲电台（RFA）英文网站消息，根据中共国门户网站搜狐公布的一份2008年乌鲁木齐地区奥运火炬手名单，乌鲁木齐市沙依巴克区文化体育局的阿迪力（Adil Abdurehim）是一名中共党员，掌握汉语、俄语、英语等语言，曾在乌洽会等重大活动中担任俄语翻译主持人，也曾参与中国各项运动赛事，并于2006年获乌鲁木齐爱国拥军先进个人称号，获乌鲁木齐市“打黄、打非”先进个人称号。尽管如此，阿迪力也仍遭中共警方逮捕。
+
+兔子还不吃窝边草，虎毒还不食子，中共既吃窝边草，又食子，中共就是个五毒俱全，毫无人性，不懂感恩，专嗜霸权的恶魔。他不会因你为你是谁，地位有多高而对你高抬贵手，只要是他需要的时候无论你功劳多大，贡献有多高，该利用你时照样利用你，该抓捕时照样抓捕，哪怕是莫须有的罪名，只是早晚罢了，结果都一样。可惜的是无论中共多么劣迹斑斑，仍然有许多人对中共抱有善良的幻想。寄希望讨好，巴结中共，从而让自己免于灾难，这绝对是无知与可怜。跟着共产党，走进火葬场，这是用无数人的鲜血证明了的事实。
+
+文字版原文：
 
 
-
-> We know the events in [#Ottawa](https://twitter.com/hashtag/Ottawa?src=hash&amp;ref_src=twsrc%5Etfw) are upsetting. Still, we’re asking people to stop calling critical emergency and operational phone lines to express displeasure about the police action to remove an unlawful assembly downtown.
-> — Ottawa Police (@OttawaPolice) [February 19, 2022](https://twitter.com/OttawaPolice/status/1495168988183252999?ref_src=twsrc%5Etfw)
-
+| [圣火不“圣洁”，随意遭拘捕 20岁维人点圣火不知去向 – GNEWS](https://gnews.org/zh-hans/2008774/) |
+| --- |
 
 
-渥太华警方2月20日发推说：“我们知道在渥太华发生的事件令人不安。但是，我们仍然要求人们停止拨打重要的紧急电话和业务电话，以发泄对警察驱散市中心非法集会的不满。不必要地拨打911或我们的非紧急号码（613-236-1222）是一种犯罪。我们会对电话进行追踪，并对任何故意干扰电话线的人提出指控。”
-
-与此同时，警方对和平抗议者的镇压变本加厉，这是赤裸裸的暴政！
-
-新闻来源：
-
-[BREAKING VIDEO: Ottawa Police Shoot Rubber Bullets and Tear Gas on Peaceful Freedom Protesters](https://www.thegatewaypundit.com/2022/02/breaking-video-ottawa-police-shoot-rubber-bullets-tear-gas-peaceful-freedom-protesters/)
-
-[Outraged Citizens Flood Ottawa Police Phone Lines With Complaint Calls About Horrific Treatment of Protesters – OPD Responds by Threatening Callers with Criminal Charges](https://www.thegatewaypundit.com/2022/02/outraged-citizens-flood-ottawa-police-phone-lines-complaint-calls-horrific-treatment-protesters-opd-responds-threatening-callers-criminal-charges/)
-
+*编辑：东京樱花团/asket
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
