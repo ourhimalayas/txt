@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/20/2022 2:02 AM (UTC)`
+
+2/18/2022 Miles Guo: Science has advanced human history and put an end to religion and imperial rule, yet why has scientism become an accomplice to the COVID vaccine disaster? Who has exploited scientism to fool people into trusting them so that they can push the COVID vaccines?<br/><br/>2/18/2022 文贵直播: 科学曾在历史上推动了人类的发展，结束了宗教和皇权统治，然而为什么科学主义却成了疫苗灾难的帮凶？是谁利用了科学主义去骗取人们的信任来推行疫苗？<br/>
+![img](https://media.gettr.com/group25/getter/2022/02/20/02/2860ad27-af10-23ff-d7f7-055944877a29/out.jpg)
+
+---
+
 `@miles 2/19/2022 11:22 PM (UTC)`
 
 2/19/2022 Miles Guo’s GETTR: The CCP is about to fall, and the indifferent and ignorant people have become the devils. The CCP begged the US to postpone the actions against itself by relying upon despicable means such as the BGY scheme. The CCP made the evil law that the woman who was abducted cannot get a divorce, but there are still people whitewashing the CCP. So, where is justice?<br/><br/>2/19/2022 文贵盖特：中共大厦将倾，冷漠、无知的人们已成魔鬼；中共跪求美国推迟对共行动并寄希望于蓝金黄等黑手段；中共制订恶法不许被绑架的妇女离婚，竟然还有人为中共洗地，天理何在？<br/>
@@ -147,13 +154,6 @@ Live, Love, & Laugh ❤️
 
 ⚠️Cronologia degli stati federali della nuova Cina sul virus PCC e sul vaccino covid<br/><br/>Gli stati federali della nuova Cina si sono sempre impegnati per la verità e per salvare vite umane, esponendo la natura malvagia del PCC e il fatto che hanno creato il virus PCC che ha ucciso milioni di persone in tutto il mondo. Inoltre, gli SFNC hanno diffuso nel mondo la terapia COVID e i relativi farmaci, così come le informazioni e i dati reali sul vaccino COVID. Tutti i fatti dimostrano che ciò che il PCC ha fatto non ha nulla a che fare con il popolo cinese, il PCC non può rappresentare il popolo cinese, che è anche la vittima.<br/><br/>⚠️关于新中国联邦爆料 #中共病毒 和 #中共病毒疫苗 灾难预警时间线（意大利语版）<br/><br/>新中国联邦致力于揭露中共邪恶本质，揭露他们制造中共病毒在全世界造成数百万人死亡的事实以及COVID疫苗的真实目的，揭示真相，拯救生命。中共的所作所为与中国人民无关，中共不代表中国人民，中国人民也是受害者。
 ![img](https://media.gettr.com/group46/origin/2022/02/18/17/0bc16b5a-6e3a-53cd-c7c7-bcff342386a4/out.jpg)
-
----
-
-`@miles 2/18/2022 4:53 AM (UTC)`
-
-2/16/2022 Miles Guo: The CCP’s impact in the world, economy, and its internal political stability are waning, and no one dares to befriend the CCP. Hong Kong, the holy city, has debunked the lies of the CCP that the Chinese people do not deserve democracy and freedom. The technological output of Taiwan is equal to the sum of that of the bottom 150 countries. The CCP might as well consider letting the whole world vote on the independence of Taiwan.<br/><br/>2/16/2022 文贵直播：中共在全球影响力、经济、内部政治回天乏术，无人敢跟中共做朋友；圣城香港揭穿了中共说中国人不配有民主自由的谎言；台湾的科技产出超过全球150个国家的总和，中共不妨接受让全世界为台湾是否独立投票<br/>
-![img](https://media.gettr.com/group21/getter/2022/02/18/04/21cdb99b-2847-f024-4e8e-e0c76aa7cae2/out.jpg)
 
 ---
 
