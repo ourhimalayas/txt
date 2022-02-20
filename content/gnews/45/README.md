@@ -2,26 +2,32 @@
 ---
 
 
-## 樱花FM|美国试图阻止中共在非洲建立大西洋基地
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2032522/)
+## 台湾加强立法防止中共窃取芯片技术
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2032786/)
 
-音频：东京樱花团/战友520
-![](https://lh4.googleusercontent.com/r_WSIkZYkmdEwv8sh3AevnnsUmp9adqgOsDKrYqkP9aBWBmDGXXOwDgYs4bsbBlWBwY9Td0MM12Vv8XmRtbbTzO1yw0KGraN0GR00JZ6KX07kSk-KQ2rsq-0UO8_-UBxWUsG_ujf)
-据华尔街日报2月12日报道说，美国试图阻挠中共国在非洲建立大西洋基地的计划。据政府官员称，一个由美国高级外交和军事人员组成的代表团计划在下周访问这个中非小国，预计将讨论美国的反海盗援助以及其他一些旨在说服赤道几内亚总统奥比昂恩圭马姆巴索戈(Teodoro Obiang Nguema Mbasogo)拒绝北京方面提议的条件。
+作者：银河系农场—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月17日，据相关媒体消息显示，台湾政府当天通过了一项法案修正草案，当中增订了有关核心关键技术经济间谍罪的部分，用以防止中共对台湾芯片技术的窃取。
 
-该代表团将由国务院非洲事务高官Molly Phee和军方非洲司令部的Kenneth Ekman少将率领。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide2-8.jpeg)
 
-该报道说，这次访问之际，美国对中共国的全球扩张主义及其在美国认为是自家地盘的水域追求永久性军事存在的担心正不断上升。
+资料显示，台湾近年来制造了世界上大多数最先进的半导体芯片，而台积电则拥有世界最先进的科技芯片技术。但长期以来，中共政府一直对该领域虎视眈眈，还曾多次通过经济间谍活动、挖角人才等方法试图复制这些技术。
 
-赤道几内亚是撒哈拉以南非洲的发展中国家，其经济以种植业为主，主要的出口产品是可可，其次为咖啡。该国长期以来被列入世界最不发达国家名单，但是1996年在赤道几内亚领海内发现了大量石油资源，此后该国经济快速增长，1997年至2001年的年平均经济增长率达41.7%。至2004年，赤道几内亚已经成为撒哈拉以南非洲的第三大石油生产国，石油产量达每天36万桶。
+台湾相关机构指出，目前，台积电的两纳米芯片制造技术对台湾的安全至关重要，因此，除了现有的商业机密保护法外，政府还将提供额外的法律保护。而台湾内阁则对此表示，根据最新通过的法律草案，向中共泄漏核心技术的人员将被判处经济间谍罪，其最高将被处以12年的监禁惩罚。同时，台湾政府将建立一个指定的经济间谍法庭，用以加快审判速度。
 
-此外，赤道几内亚临近非洲产油大国尼日利亚和安哥拉，特别是安哥拉占中共国进口石油量的20%左右的。中共在此建立军事基地不仅能能满足自己日益膨胀石油需求，甚至还将通过控制大西洋航道等方式，这将严重威胁世界石油供应和周边国家安全。希望西方各国积极发挥自己对非洲各国的影响力，通过外交手段打破中共企图建立大西洋军事基地的千秋大梦。非洲各国也要擦亮双眼，抵挡住中共的“糖衣炮弹”诱惑，不要将国家陷入“蓝金黄”的泥潭。
+据悉，这项新的法律草案还将阻止中共通过在第三国设立公司等途径非法挖角台湾人才，此外，草案也将加强对中共在台湾非法投资的惩罚。
 
-文字版原文：[美国试图阻止中共在非洲建立大西洋基地](https://gnews.org/zh-hans/1994785/)
+参考链接：
+1. [台湾增订经济间谍罪 防大陆窃取芯片核心技术](http://www.kzaobao.com/guping/20220218/110614.html)
+2. [Taiwan, with eye on China, to boost protection for its semiconductor secrets](https://wtvbam.com/2022/02/17/taiwan-with-eye-on-china-to-boost-protection-for-its-semiconductor-secrets/)
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+
+总编：Irene木木
+编辑：Irene木木
+审核：Jack Li文阳
+校正/发稿：谐趣园
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

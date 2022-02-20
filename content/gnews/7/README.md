@@ -2,39 +2,23 @@
 ---
 
 
-## 有声|台湾加强立法防止中共窃取芯片技术
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2034199/)
+## 香港最新疫情：20日初步确诊达7400例，再有15名病人离世！
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2034229/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月17日，据相关媒体消息显示，台湾政府当天通过了一项法案修正草案，当中增订了有关核心关键技术经济间谍罪的部分，用以防止中共对台湾芯片技术的窃取。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide2-8.jpeg)
-资料显示，台湾近年来制造了世界上大多数最先进的半导体芯片，而台积电则拥有世界最先进的科技芯片技术。但长期以来，中共政府一直对该领域虎视眈眈，还曾多次通过经济间谍活动、挖角人才等方法试图复制这些技术。
+据香港01新闻报道，较昨日（19日）中共病毒疫情新增6063例确诊个案，20日中共病毒感染者初步确诊达7400例，再有15名病人因中共病毒离世。
 
-台湾相关机构指出，目前，台积电的两纳米芯片制造技术对台湾的安全至关重要，因此，除了现有的商业机密保护法外，政府还将提供额外的法律保护。而台湾内阁则对此表示，根据最新通过的法律草案，向中共泄漏核心技术的人员将被判处经济间谍罪，其最高将被处以12年的监禁惩罚。同时，台湾政府将建立一个指定的经济间谍法庭，用以加快审判速度。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-304.jpg)资料来源 ：卫生防护中心
 
-据悉，这项新的法律草案还将阻止中共通过在第三国设立公司等途径非法挖角台湾人才，此外，草案也将加强对中共在台湾非法投资的惩罚。
+简评：新冠病毒是中共是为祸港准备的，港共政府自然会无视疫苗的灾难的发生，任期确诊病例不断攀升，而不去正视真正有效的预防与治疗的方法。新冠疫情与疫苗灾难下，港人想要躲过大劫难唯有自救，自救的方式请加入新中国联邦！
 
+新闻来源：[香港01](https://www.hk01.com/%E7%A4%BE%E6%9C%83%E6%96%B0%E8%81%9E/737938/%E6%9C%80%E6%96%B0%E7%96%AB%E6%83%85-%E5%88%9D%E6%AD%A5%E7%A2%BA%E8%A8%BA%E9%81%947400%E5%AE%97-%E6%B0%A3%E6%BA%AB%E6%9C%80%E4%BD%8E8%E5%BA%A6%E5%AF%92%E5%86%B7%E6%9C%89%E9%9B%A8)
 
+撰稿/发布：一叶知秋
 
-文字版原文：[台湾加强立法防止中共窃取芯片技术](https://gnews.org/zh-hans/2032786/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 
