@@ -2,29 +2,28 @@
 ---
 
 
-## 台湾新党负责人抵京参加冬奥闭幕式
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2037493/)
+## 有声|郭先生发布“解救八孩女”悬赏次日,中共政府宣布重启该案调查
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2037560/)
 
-编译：wenwu
+配音：香草山巡管部– 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-40.png)
+2022年2月17日中午，中共江苏省委省政府突发通告称：决定立即成立“丰县八孩女子”事件的行动调查组，并向公众承诺会彻底查明事实真相。而就在该公告发出的前一晚，郭文贵先生在大直播节目中发布了一则有关“解救八孩女的”悬赏。此次，中共政府紧急发布的这一通告也许就与郭先生的这则悬赏相关。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-3-4.jpg)图片来源：CNA
+据了解，目前已有很多墙内同胞都自发到达该事件的发生地——中共徐州市，并在当地冒着生命危险为“解救八孩女”一事勇敢发声。郭先生知悉此事后就面向公众再次发出了一则悬赏。郭先生称，在未来，这些敢于为“八孩女”事件发声、发推的正义人士，都将会获得一千乃至一万个不等的喜币奖励。而在该悬赏发出后的不到十二小时里，中共政府就突然成立了一个江苏省级的行动调查组，并声称会彻底查明事实真相，严惩该案件的违法犯罪行为，对有关责任人员进行严肃追责，还会将最终的调查结果及时公布于众。
 
-据中新社报道，台湾新党主席吴成典周四（2月17日）抵达北京，参加周日（20日）的冬奥会闭幕式。
+文字版原文：[郭先生发布“解救八孩女”悬赏次日,中共政府宣布重启该案调查](https://gnews.org/zh-hans/2030755/)
 
-台湾上个月[宣布](https://www.taiwannews.com.tw/en/news/4423428)，它不会派官员参加北京冬奥会的开幕式或闭幕式。这并没有阻止台湾某些亲北京的领导人主动前来参加。
+音频处理/发稿：Daxia
 
-例如，前国民党主席洪秀柱出席了本月初（4）的开幕式。她当时表示，奥林匹克精神是关于“团结、和平与友谊”的；她表示，她希望北京这项冬奥会活动的光彩能够消除中共国和台湾之间的分歧。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-**新闻来源：**[taiwannews.com] [Taiwan’s New Party head touches down in Beijing for closing ceremony](https://www.taiwannews.com.tw/en/news/4447935) | 发布时间：2022年02月18日
-
-* * *
-
-*审核：文乐
-校对：花羽
-发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-5.jpeg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

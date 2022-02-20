@@ -2,25 +2,31 @@
 ---
 
 
-## 声称乌克兰局势恶化 俄罗斯和白俄罗斯将继续军演
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2037156/)
+## 最高法院拒绝介入加州学校疫苗授权要求
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2037278/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-307.jpg)
-[图片来源](https://www.jiji.com/jc/article?k=2022021900459&amp;g=int&amp;utm_source=yahoo&amp;utm_medium=referral&amp;utm_campaign=link_back_edit_vb#:~:text=%E5%A4%A7-,%E4%B8%80%E7%B7%9A%E8%B6%8A%E3%81%88%E3%82%8C%E3%81%B0%E3%80%8C%E5%85%A8%E9%9D%A2%E6%88%A6)
+编译：wenwu
+![](https://assets.gnews.org/wp-content/uploads/2022/02/sad-kid-mask-2.jpg)戴着口罩的女学生。 
+**(iStock)**
+美国最高法院已经决定暂时不受理加州圣地亚哥（San Diego, California）学校的疫苗强制令的纠纷。
 
-白俄罗斯国防部20日宣布，自2月10日以来该国与俄罗斯军队进行的联合军事演习将继续进行。
+加州学区的一名不愿透露姓名的女学生，在法庭文件中被称为无名氏（Jane Doe），曾以宗教自由为由，要求大法官对新冠病毒（中共病毒，COVID-19）疫苗授权进行豁免（emergency relief）。
 
-该决定是普京和白俄罗斯总统亚历山大-卢卡申科为应对顿巴斯地区不断恶化的局势而做出的。在乌克兰东部政府军和亲俄派武装势力之间的冲突仍在继续。演习原定持续到20日。在俄乌危机不断升级的情况下，继续军演恐会招致美欧进一步责难。预计，有3万名俄罗斯军队入驻白俄罗斯。
+但高等法院在周五的一份未签署的命令中拒绝了立即发布禁令的请求，认为时机不成熟，因为学区已经表示至少在5个月后（8月份）才执行该强制令。
 
-白俄罗斯国防部长赫雷宁表示，由于边境附近的军事活动极度活跃，顿巴斯地区局势持续恶化，白俄罗斯和俄罗斯总统决定随时检查部队反应力以应对乌克兰政府军。目的是遏制恶意势力在边境地区的军事活动，并作出适当的反应。
+这项疫苗授权于2021年9月对学校的教师、工作人员和16岁及以上的学生实施。它本应在2022年1月下旬生效，但官员们暂缓了疫苗授权的执行。
 
-[信息源](https://news.yahoo.co.jp/articles/dad0e636e9b3985d0be2ab98ddb1ceb354e4ad9f#:~:text=%E3%83%88%E3%83%94%E3%83%83%E3%82%AF%E3%82%B9%E4%B8%80%E8%A6%A7-,%E3%83%AD%E3%82%B7%E3%82%A2%E3%81%A8%E3%83%99%E3%83%)：
+最高法院命令说，那些反对这项疫苗授权的人可以“在情况允许的情况下”（今年8月后）回来申请新的禁止令（豁免）。
 
-编辑：东京樱花团/麗子
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+**新闻来源：**[foxnews.com] [Supreme Court refuses to get involved in CA school vaccine mandate requirement](https://www.foxnews.com/politics/supreme-court-refuses-ca-school-vaccine-mandate-requirement) | 发布时间：2022年02月19日
 
+* * *
+
+*审核：文乐
+校对：花羽
+发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-5.jpeg)
 
  
 
