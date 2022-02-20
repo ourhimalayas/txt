@@ -2,34 +2,37 @@
 ---
 
 
-## 浅谈预测、解密、加密
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2035351/)
+## 澳洲自由车队示威者要求结束疫苗强制令并解散政府
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2035356/)
 
-**作者:JuvenGuo**
-[![](https://express.adobe.com/page/KAyzVBUw4zkkx/images/43830379-1841-4462-9466-f4de3c20ddd0.jpg?asset_id=dd2099db-1346-4b61-829a-95ff2b024fdc&amp;img_etag=%22566cc1dc1fdf3b4d1604b90e27621aae%22&amp;size=1024)](https://express.adobe.com/page/KAyzVBUw4zkkx/images/43830379-1841-4462-9466-f4de3c20ddd0.jpg?asset_id=dd2099db-1346-4b61-829a-95ff2b024fdc&amp;img_etag=%22566cc1dc1fdf3b4d1604b90e27621aae%22&amp;size=1024)
-传说古代有道行的高人都能“前算一千年，后算八百年”。比如袁天罡、李淳风、刘伯温等，也有流传至今的推背图、烧饼歌等作品。
+翻译/编辑：小红帽
 
-真有人能“前算一千，后算八百”吗？现实生活中，确实有人看事情看的比较准，也有的人被别人看准了让人家算计。其实我们大部分人可以说都是被算计的对象，尤其是在没有爆料革命新中国联邦之前。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/8-26.png)图片来源：www.rebelnews.com
 
-预测能力人人都有，固定程序的计算机都能计算出很多未发生之事，比如星球运行轨道，事故发生概率等。预测不特指未来的事，已经发生的、秘密的、不为人知的也是可以预测的。比如计算机破解密码，就是预测已经发生的、但是不为人知的秘密。预测就是根据已有的知识、公开的信息，或者已知的信息推测或者计算未知的东西。
 
-预测其实就是解密，解密就是爆出不为人知的东西。普通人合法的个人隐私，你就是知道也不能到处乱说，因为这是侵犯隐私权。但是，对于CCP这种邪恶组织，他们反人类、反社会的秘密，无论大小都应该被揭露出来。曝光邪恶是正义之举。
+根据RT新闻2月19日报道， 周六，在澳大利亚首都堪培拉，”前往堪培拉的车队 “运动组织了几次反对新冠疫苗强制令的游行。成群结队的抗议者在市中心的几个方向移动，并在议会大厦附近聚集。
 
-谈到预测解密，就得谈加密。世界上最大的秘密，就是没有秘密。无论多先进的加密技术，精确到每个人的细微动作，繁琐的想法，都是可以百分之百重现并详细演示。三岁小孩遇到人就会抓紧手里的那块糖，成人一看就明白他们的心思。加密不管用，就只能走明码规则，新中国联邦追求的正道主义就是明码规则。
+从RT新闻的视频录像显示，集会上出现了“不要为工作打针”、“不要碰我们的孩子”和“我的身体，我的选择”的标语。其他横幅上写着“自2020年以来，我已经失去了说再见的机会”和“团结起来，我们永远不会被打败”。
 
-正像世界宇宙可以任人探索，从来不掖着藏着。大到星系，小到DNA，都是螺旋结构。螺旋结构就是计算未来，还原过去的一个基本结构。
+裹着旗子的示威者在街头游行时高呼“将他们全部解雇”（他们指的是澳大利亚政府），同时呼吁“拯救儿童”和“拯救澳大利亚”。
 
-人类是有主人的，世界是有规则的，千万别作恶，CCP是完蛋了，CCP所作的恶都会被挖出来，灭共，走正道主义是每个人的自我救赎。
-[![](https://express.adobe.com/page/KAyzVBUw4zkkx/images/d2b0a6d2-3cc5-4292-a2f4-ca8abf43dce5.jpg?asset_id=a56acb34-735d-4178-a2ab-faecff5037c0&amp;img_etag=%2296278ffd75afcdd54e3689a189874a06%22&amp;size=1024)](https://express.adobe.com/page/KAyzVBUw4zkkx/images/d2b0a6d2-3cc5-4292-a2f4-ca8abf43dce5.jpg?asset_id=a56acb34-735d-4178-a2ab-faecff5037c0&amp;img_etag=%2296278ffd75afcdd54e3689a189874a06%22&amp;size=1024)
-*编辑：【英国伦敦喜庄园编辑部】*
+警车伴随着整个抗议活动。抗议活动看起来很和平。
 
-*校对：文明明 | 审核：仙女儿-文善 | Page: Daoiii*
+一名参加运动的男子告诉记者，他认为政府严格的新冠（Covid-19）限制是“违反我们的宪法”和法治的行为。他指责当局“完全控制”了人民。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+另一位拿着扩音器的抗议者告诉欢呼的人群，车队将在该市停留，“为了表明我们不会袖手旁观”，以回应政府的政策。他还呼吁 “结束（新冠）疫苗的强制接种令”。
 
-[![](https://express.adobe.com/page/KAyzVBUw4zkkx/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://express.adobe.com/page/KAyzVBUw4zkkx/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+新闻链接：[Australian ‘Freedom Convoy’ marches to parliament building](https://www.rt.com/news/549956-convoy-canberra-protest-vaccination/)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

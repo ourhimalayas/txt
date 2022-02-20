@@ -2,8 +2,8 @@
 ---
 
 
-## 中共的蓝金黄渗透手段
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2035039/)
+## 疫苗灾难对新加坡的高度危害警讯
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2035061/)
 
 台灣寶島農場
 

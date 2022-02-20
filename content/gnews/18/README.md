@@ -2,17 +2,29 @@
 ---
 
 
-## 第44期-未来家族信托的建立方式 PPT展示-G-TV
-` 加拿大温哥华扬帆农场蓝枫法律` [轉載自GNews](https://gnews.org/zh-hans/2035243/)
+## 美国贸易代表署公布恶名市场名单
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2035285/)
 
-#### **加拿大温哥华扬帆农场蓝枫法律**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-206.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/2-77.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/3-56.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/4-42.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/5-33.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/6-33.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/7-28.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/8-24.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/9-24.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/10-29.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/11-27.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/12-26.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/13-13.png)
-直播视频：
+撰稿：子喜太一
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2011.jpg)图片来自网络
+美国贸易代表署（USTR）2月17日公布2021年贩卖侵权产品的恶名市场名单，中共国上榜最多。淘宝、虾皮、拼多多、微信电商、跨境电商速卖通皆榜上有名。
 
-[第44期-未来家族信托的建立方式](https://gtv.org/video/id=621185cdb706176dd78d7e8d)
+USTR表示微信为中国最大的仿冒商品平台之一，去年活跃用户超过12亿，仿冒商品猖獗流通。福建莆田安福批发市场、上海亚太新阳服饰礼品市场、深圳华强北电子产品商业带、广州越秀站西路一带批发市场、北京日坛商务楼、北京秀水街、辽宁五爱市场、浙江义乌国际商贸客运中心等8座实体市场也进入黑名单。
 
-编辑/发文：蓝枫法律栏目
+美国贸易代表署从2006年开始设立恶名市场名单并公布，以提高公众关注度，从而保护美国工商界和美国工人等合法利益。
 
+中共国号称自己有五千年文化，四大发明，全世界最优越的政治制度，可这么多优势导致的结果是中共国49年建国以来没有一项自主发明，所谓的现代高科技全部是从西方发达国家买来的货或是偷来的。就连服装鞋帽这些小商品，也没有自己的设计和有影响力的品牌，全部靠仿制和抄袭，没有人愿意花心思去创新研发。中共国的商品就像它的政权一样都是靠骗争取来的，整个国家从上至下都是假骗偷，没有人真正搞科研，就算真有人想走这条路，也被这个体制清洗掉了。
+
+中共国在世界眼里就是一个拥有14亿奴隶可以大加利用的一个工具。USTR公布的这些中共国卖假货平台，被世界所唾弃，可恰恰是墙内民众赖以为生的基础，悲哀啊！这就是中国人在全世界走哪都不被欢迎的本质原因，这就是全世界对中国人的真实看法，中国人如果还在那洋洋自得自己多么伟大，多么优秀，那就意味着灾难即将来临！
+
+CCP向世界放出病毒，一旦真相被世界达成共识，再加上中国人历来不怎么好的印象，海外华人受到排挤甚至残害将无法避免！印尼排华奸杀几十万中国人就是前车之鉴。
+
+14亿老百姓需要迅速觉醒，不能成为CCP的替罪羊，不要成为CCP的帮凶，灭掉CCP是14亿老百姓重获新生的唯一途径！
+
+新闻参考链接：[联合新闻网](https://udn.com/news/story/7333/6106897?from=udn-catebreaknews_ch2)
+
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

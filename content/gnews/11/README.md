@@ -2,49 +2,34 @@
 ---
 
 
-## 加拿大警方驱散自由车队，逮捕至少100名抗议者
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2035328/)
+## 无苗灭共者：举而措诸天下之民
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2035338/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+**作者：文护念**
+[![](https://express.adobe.com/page/taX4etYMe2NJz/images/07b14f70-c495-4623-a2f1-5f2857aeeec3.jpg?asset_id=79d16ea1-0fac-4214-9569-572f3d62a2e3&amp;img_etag=%22fef065289af5c6de25be2c6c6752f458%22&amp;size=1024)](https://express.adobe.com/page/taX4etYMe2NJz/images/07b14f70-c495-4623-a2f1-5f2857aeeec3.jpg?asset_id=79d16ea1-0fac-4214-9569-572f3d62a2e3&amp;img_etag=%22fef065289af5c6de25be2c6c6752f458%22&amp;size=1024)来源：pixaba
+黑格尔曾说过：“世界上真正的悲剧不是正确与错误的冲突，而是两种正确之间的冲突。”中共病毒（冠状病毒）肆虐全球已两年有多，感染病例高达4.2亿，死亡人数更是不断骤增，人类在这场世纪大瘟疫中显得束手无策。有些人坚信所谓的科学，认为打疫苗可以有效地防御新冠病毒的侵害，并对此深信不疑，这是由于每个人的教育程度和思维习惯有天壤之别，指导人的行为由其主观的思想和客观的文化背景，我们很难去说“疫苗族”是正确或者错误；而“无苗族”也不能因为自己知道了真相就去证明自己有多伟大，反而我们要耐心地和他们讲述新冠病毒疫苗的真相，以及疫苗的副作用。
 
-翻译/编辑：文泓
+俗话说“破山中贼易，破心中贼难”，没有常识的人最可怕的，可怕得就像一头食人不吐骨的饕餮猛兽，即便有药能医龙虎病，亦无方可治众生痴。智慧是人生最大的福报，当下“无苗灭共者”无疑是得到了上天的眷顾，得到了人世间最大的智慧，我们得到福报的同时亦应该用我们力所能及的方式去回报这个世界。然而，这条修行之路注定是孤独的，亦是艰难的，但一切修行的起步也是一切的成功和圆满。各位战友在传播真相的时候，多半是面对亲朋的不解，甚是辱骂，我们唯有念念皆空，随时丢；物来则应，过去不留。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/7-29.png)图片来源：acropreneur.com & 雅典娜设计组
+新中国联邦的“无苗灭共者”可谓是经纶天下，济世救人，无时无刻都心系世人的安危。人生伟大的价值如果用孔夫子的一句话来形容就是“知崇礼卑”，知崇，即智慧要高瞻远瞩，要有最高的目标，新中国联邦的目标就是推翻世界上最大的独裁暴政，把共产主义的毒瘤物理清零，为天地立心，为生民立命，为往圣继绝学，为万世开太平。礼者，履也，履就是要走路，要从最平凡的地方开始。郭先生领导的爆料革命就是平民的觉醒，最普通的草根都可以参与一场不流血的革命，可谓是前无古人，相信后也很难有来者。卑，就是卑下，目标要高远，但是开始的时候要脚踏实地，从最平凡起步。爆料革命的战友们深知自己没有“只手遮天”的能力，唯有各操一艺，各司其职，每天做义工孜孜不倦地传播关于中共病毒的真相、香港危机的真相、疫苗危机的真相。假以时日，相信日拱一卒无有尽，功不唐捐终入海。
 
+盘古初开，古今中外真正称得上“事业”的却没有几个人，笔者依稀记得还是个幼童的时候，总会听到长辈们说出去创一番事业，衣锦还乡云云。无论你是做老板赚大钱，还是做老师教育下一代，这些都是职业，而事业是永恒的，是对国家以及人类的进程有巨大贡献的。人生有两种事业，一种就是你活着的时候人家就知道你的名字，一旦驾鹤西游，人死灯灭，人们终究会淡忘。另外一种就是类似释迦牟尼、耶稣，永远活在人的心中，他们对人类有着巨大的贡献。
+[![](https://express.adobe.com/page/taX4etYMe2NJz/images/e8d72223-9059-49f2-a469-78669e27d568.jpg?asset_id=4b5729c2-08ea-4893-a5f7-2b4ef66857fb&amp;img_etag=%2296278ffd75afcdd54e3689a189874a06%22&amp;size=1024)](https://express.adobe.com/page/taX4etYMe2NJz/images/e8d72223-9059-49f2-a469-78669e27d568.jpg?asset_id=4b5729c2-08ea-4893-a5f7-2b4ef66857fb&amp;img_etag=%2296278ffd75afcdd54e3689a189874a06%22&amp;size=1024)
+真正伟大的事业是付出，而不是一味地索取，往往都需要牺牲现实的荣华与富贵，才可以做到。纵观人类历史的长河，能够与新中国联邦和爆料革命媲美的屈指可数，“无苗灭共者”举而措诸天下之民，谓之事业，历史将会证明。
 
-当地时间2月19日，据《卫报》报道，上周一，特鲁多成为第一位援引《紧急状态法》的加拿大总理，授予他的政府广泛的权力，可以禁止在某些地点举行集会、拖走车辆、暂停驾驶执照和冻结银行账户。
+新中国联邦和爆料革命的顺势而生，就是参赞天地之化育，参赞就是弥补的意思，弥补天地化育的不足。人类举世黑暗，我们就点一盏智慧的灯，囊萤“地球村”的薄光；全球被共产主义的阴魂笼罩，我们就一扫共产主义的阴霾；各国流氓政客为一己私欲强制人们打疫苗，我们就不断揭露强打疫苗的危害。
 
-[渥太华市临时警察局长警告说“行动迫在眉睫”，周四晚上，两名著名的抗议活动组织者领袖被捕，克里斯·巴伯和塔玛拉·利奇将面临恶作剧和劝诱他人实施恶作剧的指控。](https://www.theguardian.com/world/2022/feb/17/ottawa-protests-anti-terror-agency-warned-violent-extremists)
+尚未接触爆料革命时，笔者乃迷途的小镇青年，目不识丁，游手好闲，一事无成；家无担石，以穷日月，落魄潦倒，依人醉醒。历经五载风云，我已脱胎换骨，无悔来人间一趟。如今进入而立之年，理想三旬，冀望继续与众战友携手灭共创一番事业，早日共聚盘古，届时可以直抒胸臆，畅谈人生，一醉方休。
 
-[其他知名人士也于周五被捕：帕特·金在脸书直播期间被捕，另一位杰出人物 BJ Dichter告诉支持者，“是时候可以离开了”。](https://www.theguardian.com/world/2022/feb/17/ottawa-protests-anti-terror-agency-warned-violent-extremists)
+*编辑：【英国伦敦喜庄园编辑部】*
 
-[当卡车汽笛声响起时，数百名警察一早上进入国会山附近的一个抗议营地，其中一些警察携带步枪，另一些人带着防暴盾牌和防毒面具。](https://www.theguardian.com/world/2022/feb/17/ottawa-protests-anti-terror-agency-warned-violent-extremists)
+*校对：文明明 | 审核：仙女儿-文善 | Page: Daoiii*
 
-[自抗议活动开始以来，警察人数首次远远超过示威者，以至于警察控制了抗议营地的部分区域，大量的警力的存在让执法者无所顾忌，他们砸碎车辆窗户并拖出司机。](https://www.theguardian.com/world/2022/feb/17/ottawa-protests-anti-terror-agency-warned-violent-extremists)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-随着更多皇家骑警和至少三辆装甲车抵达现场，还有一架警用无人机在头顶盘旋。警用扩音器发出警告：“你必须离开！你会被逮捕的！”
-
-警方指挥官周四明确表示，他们正准备结束卡车司机的围困，并撤走自1月下旬以来封锁该市的300多辆卡车、露营车和其他车辆。
-
-随着警线的推进，一些抗议者手挽手拒绝移动；有些人唱着加拿大国歌，并呼吁非暴力。现场一位女士喊道：“你们才是邪恶的。”
-
-随着时间的推移，越来越多的卡车逐渐离开了封锁线，大型拖车也抵达营地附近，警察逮捕了司机并控制了车辆。
-
-随即渥太华警方已开始逮捕抗议者并拖走车辆，并驱散在加拿大首都抗议疫苗强制的“自由车队”。
-
-[到周五晚上，由于警方行使了特鲁多政府援引的紧急权力，](https://www.theguardian.com/world/2022/feb/14/canada-protests-justin-trudeau-use-rare-emergency-powers)现场至少有100名抗议者被捕，至少有21辆汽车被拖走，其中包括封锁该市一条主要街道的所有车辆。
-
-周五下午，局长史蒂夫·贝尔说：“警察将继续推进控制街道，我们将日夜工作，直到完成。” 新闻链接：[Canadian police arrest at least 100 protesters in bid to break up Ottawa truck blockade | Canada | The Guardian](https://www.theguardian.com/world/2022/feb/18/trucker-convoy-protest-canada-ottawa-police-arrests-latest-news)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+[![](https://express.adobe.com/page/taX4etYMe2NJz/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://express.adobe.com/page/taX4etYMe2NJz/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
