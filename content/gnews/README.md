@@ -15,128 +15,128 @@
 
 ---
 
-### [七哥金句：共产党才是阶级和种族主义](/content/gnews/1/README.md)
+### [七哥金：国际政治和个人的关系&#8211;扯淡的](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [2月20日文贵大直播摘要（图片1722）](/content/gnews/2/README.md)
+### [中共流氓的锁链](/content/gnews/2/README.md)
+ ` 喜马拉雅德国纽伦堡正义农场`
+
+### [七哥金句：共产主义是邪恶的独裁者](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥金句：共产党才是阶级和种族主义](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [2月20日文贵大直播摘要（图片1722）](/content/gnews/5/README.md)
  ` 波士顿五月花农场`
 
-### [七哥金句：无知之后付出的代价](/content/gnews/3/README.md)
+### [七哥金句：无知之后付出的代价](/content/gnews/6/README.md)
  ` 雅典娜GNotes`
 
-### [尽管泽连斯基提出请求，美国仍为等待俄罗斯制裁的决定辩护](/content/gnews/4/README.md)
+### [2022年2月20日大直播速记精萃](/content/gnews/7/README.md)
+ ` 雅典娜GNotes`
+
+### [尽管泽连斯基提出请求，美国仍为等待俄罗斯制裁的决定辩护](/content/gnews/8/README.md)
  ` Shuizhuyu`
 
-### [香港和乌克兰事件的区别](/content/gnews/5/README.md)
+### [南非顶级富翁被告,中共勾兑真相被爆](/content/gnews/9/README.md)
+ ` 纽约香草山MOS02`
+
+### [香港和乌克兰事件的区别](/content/gnews/10/README.md)
  ` 雅典娜GNotes`
 
-### [媒体报道俄罗斯即将入侵乌克兰后，莫斯科宣布从边境撤军](/content/gnews/6/README.md)
+### [媒体报道俄罗斯即将入侵乌克兰后，莫斯科宣布从边境撤军](/content/gnews/11/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2月20日文贵大直播摘要（图片11-16）](/content/gnews/7/README.md)
+### [2月20日文贵大直播摘要（图片11-16）](/content/gnews/12/README.md)
  ` 波士顿五月花农场`
 
-### [2月20日文贵大直播摘要（图片6-10）](/content/gnews/8/README.md)
+### [2月20日文贵大直播摘要（图片6-10）](/content/gnews/13/README.md)
  ` 波士顿五月花农场`
 
-### [普京对中国人权看法的改变](/content/gnews/9/README.md)
+### [普京对中国人权看法的改变](/content/gnews/14/README.md)
  ` 雅典娜GNotes`
 
-### [文贵爆料 2.20：无情的社会、冷漠的你](/content/gnews/10/README.md)
+### [文贵爆料 2.20：无情的社会、冷漠的你](/content/gnews/15/README.md)
  ` 秘密翻译组-原创组`
 
-### [中共是如何影响（渗透）美国高等教育的？](/content/gnews/11/README.md)
+### [中共是如何影响（渗透）美国高等教育的？](/content/gnews/16/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [疾控中心和辉瑞发出紧急警告——人人均有血栓风险](/content/gnews/12/README.md)
+### [疾控中心和辉瑞发出紧急警告——人人均有血栓风险](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2月20日文贵大直播摘要（图片1-5）](/content/gnews/13/README.md)
- ` 波士顿五月花农场`
-
-### [NFSC新闻、G|TV新闻访谈简报|2022年2月20日早](/content/gnews/14/README.md)
+### [NFSC新闻、G|TV新闻访谈简报|2022年2月20日早](/content/gnews/18/README.md)
  ` 纽约香草山MOS01`
 
-### [香草山翻译部周刊|2022年2月20日第36期](/content/gnews/15/README.md)
+### [香草山翻译部周刊|2022年2月20日第36期](/content/gnews/19/README.md)
  ` 纽约香草山MOS01`
 
-### [底特律和温莎之间的大使桥占美国和加拿大之间所有贸易的25%桥上挤满了支持自由车队的卡车，使交通停滞不前](/content/gnews/16/README.md)
+### [底特律和温莎之间的大使桥占美国和加拿大之间所有贸易的25%桥上挤满了支持自由车队的卡车，使交通停滞不前](/content/gnews/20/README.md)
  ` Tokyo Sakura Video Group`
 
-### [有声|欧盟就中共专利侵权在世贸组织发起诉讼](/content/gnews/17/README.md)
+### [有声|欧盟就中共专利侵权在世贸组织发起诉讼](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [Omicron 2 比原始变体更危险，更能躲避疫苗](/content/gnews/18/README.md)
+### [Omicron 2 比原始变体更危险，更能躲避疫苗](/content/gnews/22/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [乌克兰叛军所在城市的石油管道发生爆炸](/content/gnews/19/README.md)
+### [乌克兰叛军所在城市的石油管道发生爆炸](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共在毒疫苗副作用爆发后依然死心不改强打毒针](/content/gnews/20/README.md)
+### [中共在毒疫苗副作用爆发后依然死心不改强打毒针](/content/gnews/24/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [有声|英喜农场开展为中共送葬行动](/content/gnews/21/README.md)
+### [有声|英喜农场开展为中共送葬行动](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [美国阿拉斯加 🇺🇸车队正在集结&#8230;&#8230;到处都在发生 🔥使纸牌屋崩溃](/content/gnews/22/README.md)
+### [美国阿拉斯加 🇺🇸车队正在集结&#8230;&#8230;到处都在发生 🔥使纸牌屋崩溃](/content/gnews/26/README.md)
  ` Tokyo Sakura Video Group`
 
-### [有声|科学自由主义导致科技强国代价巨大](/content/gnews/23/README.md)
+### [有声|科学自由主义导致科技强国代价巨大](/content/gnews/27/README.md)
  ` MOSREC`
 
-### [有声|还为谷 歌某凌欢呼吗](/content/gnews/24/README.md)
+### [有声|还为谷 歌某凌欢呼吗](/content/gnews/28/README.md)
  ` MOSREC`
 
-### [中共颠倒黑白把孤家寡人的冬奥会说成是故意简约风格](/content/gnews/25/README.md)
+### [中共颠倒黑白把孤家寡人的冬奥会说成是故意简约风格](/content/gnews/29/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [有声|卫生标兵](/content/gnews/26/README.md)
- ` MOSREC`
-
-### [2022年02月20日文贵先生直播大雨围城速记](/content/gnews/27/README.md)
+### [2022年02月20日文贵先生直播大雨围城速记](/content/gnews/30/README.md)
  ` G-时新闻`
 
-### [2022年2月20日文贵先生直播摘要及音频—银河系农场](/content/gnews/28/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [中共知乎虚假信息泛滥危害不亚于中共病毒本身](/content/gnews/29/README.md)
+### [中共知乎虚假信息泛滥危害不亚于中共病毒本身](/content/gnews/31/README.md)
  ` mayflowertranslate`
 
-### [乌克兰实现比特币合法化](/content/gnews/30/README.md)
+### [乌克兰实现比特币合法化](/content/gnews/32/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [英国首相称俄罗斯可能爆发战争](/content/gnews/31/README.md)
+### [英国首相称俄罗斯可能爆发战争](/content/gnews/33/README.md)
  ` 纽约香草山MOS02`
 
-### [台湾新党负责人抵京参加冬奥闭幕式](/content/gnews/32/README.md)
+### [台湾新党负责人抵京参加冬奥闭幕式](/content/gnews/34/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美国联邦调查局将成立数字货币部门，司法部任命新的加密货币主管](/content/gnews/33/README.md)
+### [美国联邦调查局将成立数字货币部门，司法部任命新的加密货币主管](/content/gnews/35/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2/20银河快讯：G7外长会议要求俄罗斯缓和紧张局势；奥密克戎使得经济迅速下滑](/content/gnews/34/README.md)
+### [2/20银河快讯：G7外长会议要求俄罗斯缓和紧张局势；奥密克戎使得经济迅速下滑](/content/gnews/36/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [台外长表示不想战争但绝不向中共低头](/content/gnews/35/README.md)
+### [台外长表示不想战争但绝不向中共低头](/content/gnews/37/README.md)
  ` NFSC News`
 
-### [中共政府新冠清零政策下香港的各种乱象](/content/gnews/36/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [2/20/2022国内经济财经周报：多地下调首套房首付比例；多家地产公司面临违约风险](/content/gnews/37/README.md)
+### [2/20/2022国内经济财经周报：多地下调首套房首付比例；多家地产公司面临违约风险](/content/gnews/38/README.md)
  ` 秘密翻译组金融团队`
 
-### [日本外相林芳正在国际会议上表明将在台湾问题上与中共国竞争](/content/gnews/38/README.md)
+### [日本外相林芳正在国际会议上表明将在台湾问题上与中共国竞争](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国及世界疫情简报（02-20-2022）](/content/gnews/39/README.md)
+### [美国及世界疫情简报（02-20-2022）](/content/gnews/40/README.md)
  ` 波士顿五月花农场`
 
-### [文贵大直播 2/20 俄乌战争已经打响 背后根本无关国家民族](/content/gnews/40/README.md)
+### [文贵大直播 2/20 俄乌战争已经打响 背后根本无关国家民族](/content/gnews/41/README.md)
  ` 秘密翻译组-原创组`
-
-### [个人破产是灭共过程中的必修课](/content/gnews/41/README.md)
- ` 纽约香草山MOS02`
 
 ### [渥太华抓捕了100名“为自由护航”组织者](/content/gnews/42/README.md)
  ` 秘密翻譯組G-Translators`

@@ -2,39 +2,12 @@
 ---
 
 
-## 香港和乌克兰事件的区别
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2037948/)
+## 2月20日文贵大直播摘要（图片1722）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2037988/)
 
-**整理：文晋、Lucy Liu
-编辑：Candy**
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/普京-1.png)图片来源：墨尔本雅典娜设计组
-
-
-（关于）香港事情的发生是我最早说的，我说：你们西方世界一定要相信，香港发生的一切会发生在你们家。就像病毒一样，病毒是没有国界的：它在武汉传染，它就会去世界各地方，而且你只会更痛苦，不会比它更好。可悲的是，世界谁信呢？
-
-加拿大的几百万华人在加拿大苟且偷生，替香港人说过话吗？最多的是加拿大站出来的小粉红骂香港人。我们作为大陆人，真的感到羞耻！你一个小屁孩知道啥？你骂香港人骂那么惨，你算个毛啊，你骂香港人！这个病毒、脑毒有多深刻？！结果全世界发生了。
-
-但乌克兰的事情和香港的事情本质是不一样的：
-
-香港这个问题是西方道德上的彻底沦丧，大英帝国彻底没落了。 如果说你当年看到1997年英国旗那种没落、黯然神伤和查尔斯离开的那一幕，那还没完；还有一招呢，就是香港这次，英国彻底完蛋了，这个国家真的完蛋了。美国的道德问题因为香港在世界上彻底破产。
-
-乌克兰的问题说白了是：这是谁的欧洲和谁的世界？这是俄罗斯和中国合作，是世界上一半的联合军事力量。你在开啥玩笑，那可不是老鼠。就像动物世界，最起码它是二哥、三哥，就是（以）豹子和鬣狗的身份对抗狮子。那不是开玩笑的，谁死谁手还真不见得。中共就是鬣狗，一起上；豹子就是普京；美国和欧洲就是狮子，这就是一个动物世界最好的比喻。那可不是老鼠的问题。
-
-现在是比谁真有实力，谁有决心。狮子和豹子打架的时候，只要狮子想弄死它，有这个决心的时候，豹子跑不了。狮子要想弄死鬣狗，鬣狗也绝对跑不了。唯一狮子不团结、懒的时候，它一定被干掉。
-
-很不幸，普大帝和习太阳刚在北京谈了，觉得美国没有这个种，欧洲也没这个能力，所以他们才来了。不幸的事情就发生了，战争（开始了）啊，现在谁都回不去了。谁要说这个台湾和乌克兰的事会烟消云散，那就是太无知了，不可能的。
-
-**参考来源：2022.2.20文贵大直播**
-
-***发布：Candy***
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+设计：五月花农场 科存
+![](https://assets.gnews.org/wp-content/uploads/2022/02/C7B60E41-6DD9-4DF5-A489-1D35B3943707.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/2D49A80C-88F4-4854-BC41-C0A2CCD7294D.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/25264606-14CB-483C-AEEF-3F6FA19CA67E.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/9F23CD0A-3198-4836-B6CB-5367A88954EF.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/394A056E-06B9-4BD3-99C5-822FB8527B4D.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/899A9F89-625E-4A40-9680-AB77CE4BEAD0.png)
+发布：水涨船高
 
  
 
