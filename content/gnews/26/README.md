@@ -2,37 +2,20 @@
 ---
 
 
-## 有声|中共数字人民币在冬奥会借机推广
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2037021/)
+## 《 西站出品》 &#8212; &#8220;西班牙无敌战舰&#8221;战绩（第二集）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2037114/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-媒体2月15日报道，中共数字人民币推出以来，其交易总额仅约130亿美元，截至2021年6月30日，Visa 12个月交易总额 12.5万亿美元，对比之下，前者相形见绌。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/11-26.png)
-一位金融咨询公司董事在采访时评价，中共数字人民币“只是另一种法定货币，应该被私人货币、或至少是非建立在奴隶劳工和极权主义基础上的主权货币超越”。
+制作：蚂蚁兄弟
 
-中共数字货币引发的争议，恰印证了郭文贵先生在直播中强调的，中共数字人民币的本质，是绝对中心化、掠夺财富的行政工具。
+截止到2月17日，“西班牙无敌战舰”启航四天的时间里，17家商家入驻，从商品百货到度假休闲，从保健品到美容美甲，横跨欧美亚洲，接受Himalaya Pay！
 
+西班牙巴塞罗那喜悦农场 热情欢迎更多的商家入驻！！！
 
+欢迎观看第一集：[《 西站出品》 — “西班牙无敌战舰”首航战绩](https://gnews.org/zh-hans/2020739/)
 
-文字版原文：[中共数字人民币在冬奥会借机推广](https://gnews.org/zh-hans/2031615/)
+发稿：信心的选择
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-5.jpeg)
 
  
 

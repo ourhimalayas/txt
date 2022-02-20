@@ -2,32 +2,34 @@
 ---
 
 
-## 最高法院拒绝介入加州学校疫苗授权要求
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2037278/)
+## 锁链女事件引爆中共国失踪人口真相致高层内斗
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2037363/)
 
-编译：wenwu
-![](https://assets.gnews.org/wp-content/uploads/2022/02/sad-kid-mask-2.jpg)戴着口罩的女学生。 
-**(iStock)**
-美国最高法院已经决定暂时不受理加州圣地亚哥（San Diego, California）学校的疫苗强制令的纠纷。
+作者：纽约磐石农场—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在2月18日的大直播中，郭文贵先生透露，中共国徐州“锁链女”事件持续发酵，引爆一系列人口失踪案件，真相惨烈以致中共高层剧烈内斗。
 
-加州学区的一名不愿透露姓名的女学生，在法庭文件中被称为无名氏（Jane Doe），曾以宗教自由为由，要求大法官对新冠病毒（中共病毒，COVID-19）疫苗授权进行豁免（emergency relief）。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide4-11.jpeg)
 
-但高等法院在周五的一份未签署的命令中拒绝了立即发布禁令的请求，认为时机不成熟，因为学区已经表示至少在5个月后（8月份）才执行该强制令。
+“锁链女”事件的内幕，已引发江泽民、胡锦涛和习近平三派之间互相推诿的内斗，俨然变成了政治事件。郭先生得到情报，在发生锁链女事件的江苏徐州地区，每年都会发现40到60具无名女尸。过去30年中，该地区发现的无名女尸已达近万具，都是15到17岁的未成年女性，但是中共的媒体却无一报道此类消息。
 
-这项疫苗授权于2021年9月对学校的教师、工作人员和16岁及以上的学生实施。它本应在2022年1月下旬生效，但官员们暂缓了疫苗授权的执行。
+早在2017年的直播中，郭先生就警告，在中共国的宁夏、西藏边远地区，以及黄河边上，就有专门打捞尸体的职业存在，被打捞的尸体都是年轻人的。而这种惨无人道的事情在中共国极为常见，却没有人在意，真是悲哀至极。
 
-最高法院命令说，那些反对这项疫苗授权的人可以“在情况允许的情况下”（今年8月后）回来申请新的禁止令（豁免）。
+参考链接：[20220218文贵大直播：锁链女引发党内各派的内斗](https://gnews.org/zh-hans/2030506/)
 
-**新闻来源：**[foxnews.com] [Supreme Court refuses to get involved in CA school vaccine mandate requirement](https://www.foxnews.com/politics/supreme-court-refuses-ca-school-vaccine-mandate-requirement) | 发布时间：2022年02月19日
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-* * *
+总编：Zion文恩
+编辑：静言
+校正/发稿：谐趣园
 
-*审核：文乐
-校对：花羽
-发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-5.jpeg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

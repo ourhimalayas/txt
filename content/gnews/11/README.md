@@ -2,37 +2,27 @@
 ---
 
 
-## 有声|以色列将废除中共病毒疫苗护照系统
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2037187/)
+## 接种了两针中共病毒疫苗的横山玲奈中招了！
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2037260/)
 
-配音：香草山农场 – 信念7
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-2月17日周四，以色列总理总理宣布，中共病毒感染病例每天持续下降，中共病毒疫苗接种证明的护照系统将会暂停使用。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/10-13.jpg)
-据悉该护照系统称为绿色通行证，限制未完成接种至少三针疫苗的人们，进行大型集会和进入室内场所。在过去一年的大部分时间里，绿色通行证是以色列日常生活的必备品。
+撰稿：东京樱花团｜闻雨
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-19.png)
+[*图片来源*](https://i0.hdslb.com/bfs/archive/e373c023e686c89577e764bfed99c01edbae0bfc.jpg)
 
-在2020年，以色列与辉瑞达成协议，用医疗数据换取稳定的中共病毒疫苗供应后，迅速为大部分成年人口接种了疫苗。当前约48%人口已经接种了三针疫苗，全国72%的人口已经接种了至少一针。
+据Daily新闻2月20日报道：日本女子流行歌曲偶像组合“早安少女组’22”的成员横山玲奈感染了中共病毒（新冠），她已经接种了两针中共病毒疫苗。
 
+1月27日横山接受了PCR测试，被诊断为阳性。经过10天的家庭疗养后，恢复了工作。2月19日晚，横山玲奈（20岁）在MBS电台播出的“Young Town Saturday”中谈到了她被感染后的经历。
 
+横山说：“在这十天中有七天我都非常虚弱，甚至连摸手机的力气都没有。我发烧、肚子痛，还恶心。我只能躺着，没有力气起来，我只能看着天花板。”尽管她被诊断为轻症，然而她的症状并不轻，甚至可以说很严重。
 
-文字版原文：[以色列将废除中共病毒疫苗护照系统](https://gnews.org/zh-hans/2031593/)
+这么年轻的女孩，才20岁就打了两针中共病毒疫苗。中共病毒疫苗会破坏人体的自然免疫系统，她的感染是不是疫苗所造成的呢？这些都有待专家们的解密，我们期待着真相早日被揭晓。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+信息来源：[**感染のモー娘。横山玲奈　発熱、腹痛、吐き気で苦しむ「１週間ケータイもいじれなかった」**](https://www.daily.co.jp/gossip/2022/02/20/0015079017.shtml)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / yuxingcao01*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)0
 
  
 
