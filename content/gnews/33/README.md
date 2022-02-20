@@ -2,34 +2,29 @@
 ---
 
 
-## NBA球星坎特透漏被提名诺贝尔和平奖
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2035367/)
+## 澳国防部严厉谴责中共军舰用激光照射澳军飞机行为
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2035396/)
 
-撰稿：首尔天池农场—追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-5.png)
-2月17日，NBA球星欧尼斯·坎特·自由在推特上发布消息表示，能获得诺贝尔和平奖提名，他感到既荣幸又受宠若惊。他说，有时候表明立场比领到下一份薪资更重要。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1847.png)
-据美国媒体报道，日前被NBA球队放弃的坎特，得到30位诺贝尔奖得主联署力挺，他也因此被提名诺贝尔和平奖。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-20-0852521.jpg)图片来源 www.voachinese.com
+据美国之音2月19日报道，澳大利亚国防部谴责中共国一艘海军军舰向澳大利亚的一架P-8A反潜侦察机发射激光。澳军方表示，这是一起严重的安全事件。激光如果照射到飞机上，可能会造成飞行员暂时性失明，从而引起安全风险，尤其是在飞机起飞和着陆的时候。
 
-坎特是波士顿凯尔特人队的前中锋，他是直言批评中共政府为犯下反人类罪的残暴组织，为中国人权发声的少数国际顶级运动员之一。
+中共国声称对南中国海几乎全部海域拥有主权，持续多年在南中国海的一些礁石附近填海造岛、修建军事基地。随着中共国在这一地区的军事活动加剧，美国等西方盟国也出动海空力量加强巡航，从而导致该地区局势紧张。
 
-2021年11月23日，坎特在接受福克斯新闻采访时，曾敦促国际奥委会放弃2022年北京举行冬奥会。他说，即使大部分职业体育界都对中共侵犯人权、对中共领导层的指控保持沉默，也总得有人站出来与中共对抗。
+中共篡政以来，先是画了个圈，把台湾画进了中共国版图。后来，中共又画了一个圈，把南中国海划进了中共国版图，即使国际法庭已经判决中共国对南中国海没有主权。中共藐视国际秩序，圈画到哪里，哪里的海域或疆土就归中共国所有，就会采取一系列挑衅行为。随着中共野心的扩大，中共的威胁也在增大。
 
-新闻链接：[https://twitter.com/enesfreedom/status/1493986402077401090?s=21](https://twitter.com/enesfreedom/status/1493986402077401090?s=21)
+新闻参考链接：[https://www.voachinese.com/a/australia-says-china-warship-fired-laser-at-its-patrol-plane-20220219/6450290.html](https://www.voachinese.com/a/australia-says-china-warship-fired-laser-at-its-patrol-plane-20220219/6450290.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-1-514x720-1.png)
+* * *
 
-编辑/总编:飞虹
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-校正/发稿：浪迹天涯
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-5.png)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

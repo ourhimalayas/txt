@@ -2,10 +2,10 @@
 ---
 
 
-## 辱华亲共杨贝贝
-` 新西兰农场【光影传镜】` [轉載自GNews](https://gnews.org/zh-hans/2035988/)
+## 感恩这束光 照亮人生路
+` 新西兰农场【光影传镜】` [轉載自GNews](https://gnews.org/zh-hans/2036003/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3-63.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/22f0c9ecf1501ade.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/534B6657-2348-4A00-802C-16446AAC058F.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1c7280336bba54fc-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/7fa32e96403ae71b.png.jpeg)
 图文设计：新西兰农场设计组
 上 传：F
 
