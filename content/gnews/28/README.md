@@ -2,52 +2,28 @@
 ---
 
 
-## 疾控中心和辉瑞发出紧急警告——人人均有血栓风险
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2037853/)
+## 南非顶级富翁被告,中共勾兑真相被爆
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2037964/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/021904.jpg)每个人都有血栓的风险！即使是最健康的运动员也会有血栓，所以每个人都必须知道警告信号和如何减少风险。@thegatewaypundit.com
+作者：香草山健身部-正道新闻
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+2022年2月19日，据消息人士表示，亿万富翁媒体大亨和 Naspers 集团主席 Koos Bekker 因涉嫌向“南非广播公司”和“非洲新闻网7”支付至少 2.71 亿兰特的回扣，以购买政治影响力和影响政府政策，因涉嫌违法现被提告。
 
-疾病预防控制中心和辉瑞公司最近都发布了关于“血栓”的公共警告。
+这两笔回扣可能与南非前任总统祖玛贪腐案件有关。而涉事嫌疑人Naspers 集团主席Koos Bekker又与中国资本关系甚密。
 
-去年2月10日，疾病预防控制中心发出警告，将青壮年和健康运动员出现血栓的观点正常化。
+说来他的财富帝国版图建立则要从2001年收购腾讯46.5% 的股份开始算起。近几年，虽然Naspers将腾讯的股份已经减少到 29%左右，但随着腾讯股价大涨，所持有的股份价值已经超过千亿美金。借助新兴市场的高速发展，Naspers又先后投资了VK（俄罗斯最大的社交网站），Media24（非洲最大的出版公司）Takealot.com（南非最大的在线零售商）和专注于南非的风险投资基金 Naspers Foundry，等等。现在不仅是Naspers在南非证券交易所基准指数权重高达20%，只要它的股价稍微发生波动，就能直接影响南非的股票指数。而且，他的子公司Prosus 也成为欧洲最大的几个消费互联网公司之一。
 
-当然，在新冠疫苗之前，从来没有人听说过血栓频发的现象。
+南非总统拉玛福萨上台之后对于南非贪腐问题的整肃，引起了前任总统祖玛支持者的强烈反对，并制造了2021年8月开始的全国范围内的暴力行为。若现任总统持续调查并公开相关证据，届时南非政商界与CCP的勾兑，出卖南非人利益的真相便会公布于天下。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8C295C68-42B6-462F-8C84-771D63282F3A.jpeg)
+**更多资讯，更多关注**
 
-“(你知道吗)任何人都可能有血栓？无论你是运动员还是球迷，不要让血栓毁了本周末的比赛。[了解如何保护你的健康：https://bit.ly/2lOpGEB](https://www.cdc.gov/ncbddd/dvt/facts.html)，” 疾病预防控制中心发表在推特上。
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-疾病预防控制中心在其网站上没有提到新冠疫苗是可以增加血栓风险的因素之一。
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-去年，由明尼苏达州罗切斯特梅奥诊所的研究人员进行的一项令人震惊的新研究，发表在《美国医学会杂志》（JAMA）上，该研究认为强生公司的新冠疫苗会增加大脑中出现一种罕见的、致命的血栓风险。
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-据《市场观察》报道，牛津大学去年年初的一项研究也显示，接种辉瑞和莫德纳疫苗与接种阿斯利康疫苗后出现血栓的人数差不多。
-
-在疾病预防控制中心提出警告后，辉瑞公司已于2月14日发布了关于“深静脉栓塞”或静脉血栓的公开警告。
-
-“深静脉栓塞（DVT），即深静脉中的血栓，可以进入肺部，导致肺栓塞（#PE）。肺栓塞的症状包括呼吸困难和胸痛。如果出现症状，不要等待，请立即联系你的医生”，[辉瑞公司在推特](https://twitter.com/pfizer/status/1493238623633870850)上表示。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1907.png)
-**简评：**
-在全球已经过半数人口接种至少一针新冠疫苗的时候，疾病控制中心和疫苗厂商这时候开始预警血栓风险，无异于亡羊补牢。爆料革命新中国联邦领导的正义力量，已经向世界预警及传播疫苗是毒的真相，疫苗是造成血栓及其引发的各种“梗”的罪魁祸首。
-
-无论疫情及疫苗背后无数的丑陋、肮脏、官僚与腐败，我们最希望看到的是，哪怕盲目相信政府及所谓科学主义的人得到预警后，能够停止继续施打疫苗，提早预防血栓风险，避免付出无法挽回的生命代价。
-
-新闻链接：[“Everyone is at Risk for Blood Clots!” – CDC and Pfizer Issue Urgent Warnings on Blood Clots Even in “The Healthiest Athletes”](https://www.thegatewaypundit.com/2022/02/everyone-risk-blood-clots-cdc-pfizer-issue-urgent-warnings-blood-clots-even-healthiest-athletes/)
-
-*翻译: Ying2064*
-
-*校对: 感恩*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
