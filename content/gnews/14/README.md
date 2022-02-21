@@ -2,25 +2,37 @@
 ---
 
 
-## 英国女王感染中共病毒
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2042728/)
+## 有声|疫情延烧致港首“选举”被迫延期
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2042918/)
 
-采编：文莱     翻译编辑：文所未闻
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+据台媒消息，因中共病毒疫情蔓延，当地时间2月18日晚间，香港行政长官林郑月娥宣布批准引用紧急条例，将行政长官“选举”推迟至5月8日举行。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E6%88%AA%E5%B1%8F2022-02-20-%E4%B8%8A%E5%8D%889.22.46.png)
+据悉，香港18日新增3629例，初步阳性案例7600例，这已是连续第三天，两项数字合计超过一万例。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot_20220221-101627_Photos.jpg)图片来源：路透社
+林郑表示，目前香港疫情是两年来最严重的时期，形势相当危急，港共政府要集中力量应对。延期选举也是中共国家主席习近平授意的，看来港共必须将控制疫情作为当前压倒一切的政治任务来做。
 
 
-据加拿大媒体《CTV新闻》2月20日报道，来自英国白金汉宫消息称，现年95岁的英女王当天的“新冠病毒”检测结果呈阳性，并出现了轻微的类似感冒症状。
 
-据悉，女王此前已完全接种了该病毒疫苗和加强剂。此外，本月初查尔斯王子及其夫人也感染了“新冠病毒”。同时，女王下榻的温莎城堡中也有工作人员被感染。
+文字版原文：[疫情延烧致港首“选举”被迫延期](https://gnews.org/zh-hans/2037125/)
 
-在英国逐步取消各项防疫政策的同时，接种疫苗后所带来的健康危机正悄然而至。人类面临前所未有的灭顶之灾还远未结束。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-校对编辑：硫酸羟氯喹64
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-发稿：文明(添草灭共)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-原文链接：https://www.ctvnews.ca/world/queen-plans-to-keep-working-after-testing-positive-for-covid-19-1.5788838
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

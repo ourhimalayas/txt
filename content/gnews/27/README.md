@@ -2,24 +2,24 @@
 ---
 
 
-## 美国前国务卿蓬佩奥将访问台湾
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2042521/)
+## 奥地利强制防疫政策将出现大逆转
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2042581/)
 
-撰稿：东京樱花团｜百花李香
+采编/编译撰稿： 薇文                   校对编辑：硫酸羟氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/美国前国务卿蓬佩奥将访问台湾.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/GettyImages-1238527725-e1645026425755-640x480-1.jpg)图片来源：GEORG HOCHMUTH/APA/AFP via Getty Images
 
-外务省2月21日宣布，曾在川普前政府担任国务卿的蓬佩奥先生将于3月2日至5日访问台湾，会见总统蔡英文和副总统赖清德。
 
-外务省对蓬佩奥访台表示欢迎，称他是“长期坚定的朋友”，对台美关系发展做出了贡献，包括多次向台湾出售武器和在安保问题上强化美国政府对台湾的的支持。蓬佩奥还计划在访问期间发表讲话。
+据美国[布莱巴特新闻]2月17日报道，奥地利的 “新冠病毒”种族隔离政策，将发生惊天大逆转。该国政府当天宣布将取消绝大部分疫情封锁措施，包括限制未接种疫苗者人身自由的疫苗护照规定。
 
-蓬佩奥于2018年4月至2021年1月担任美国国务卿，2020年11月，特朗普政府结束时他表明，台湾不是中国的一部分，美国政府在过去35年中一直坚持这一政策。
+报道称，以上决定是当局根据[疫情专家委员会]对现行政策的违宪性和非必要性作出分析之后作出的。并因此规定：从2月19日起，未接种者和病毒感染康复者，在病毒测试阴性后可以进入酒吧、餐馆等公共消费和娱乐场所。而从3月5日起，将完全取消疫苗通行证。同时，疫情期间绝大部分的封锁命令，包括对酒店业的宵禁也将被废除。
 
-信息来源：[**ポンペオ前米国務長官が台湾を訪問へ　対中強硬派、中国の反発は必至**](https://www.asahi.com/articles/ASQ2P5W46Q2PUHBI01H.html?iref=sptop_BreakingNews_list#:~:text=%E3%83%9D%E3%83%B3%E3%83%9A%E3%82%AA%E5%89%8D%E7%B1%B3%E5%9B%BD%E5%8B%99%E9%95%B7%E5%AE%98%E3%81%8C%E5%8)
+以上报道再次验证了爆料革命在此之前就准确无误地判断指出：世界各国，特别是欧美国家政府将迫于经济崩溃，政治危机和病毒减弱等原因，必将在今年五月份之前取消强制接种，疫苗护照和大多数疫情限制。
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+发稿：文明(添草灭共)
+
+新闻来源：[Massive U-Turn: Austria to Repeal Almost All ‘Corona Apartheid’ Rules Targeting Unvaxxed](https://www.breitbart.com/europe/2022/02/17/massive-u-turn-austria-to-repeal-almost-all-corona-apartheid-rules-targeting-unvaxxed/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
