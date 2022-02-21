@@ -15,82 +15,82 @@
 
 ---
 
-### [台湾指责中共国利用奥运会推动“政治宣传”](/content/gnews/1/README.md)
+### [美国卡车司机受到加拿大兄弟们的启发，向华盛顿特区进发](/content/gnews/1/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [伊丽莎白女王中共病毒检测呈阳性](/content/gnews/2/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [美国航空运输业志愿团体反对中共病毒疫苗强制接种政策](/content/gnews/3/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [台湾指责中共国利用奥运会推动“政治宣传”](/content/gnews/4/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [从健康小伙到十级伤残，新西兰人正被疫苗伤害唤醒](/content/gnews/2/README.md)
+### [从健康小伙到十级伤残，新西兰人正被疫苗伤害唤醒](/content/gnews/5/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [2/20/2022 文贵直播：习普联手上演痞子政治，最终目的是通过夺取乌克兰和台湾，干掉美国和欧洲](/content/gnews/3/README.md)
+### [2/20/2022 文贵直播：习普联手上演痞子政治，最终目的是通过夺取乌克兰和台湾，干掉美国和欧洲](/content/gnews/6/README.md)
  ` 秘密翻译组-北美组`
 
-### [美联储实施严格的职员交易限制](/content/gnews/4/README.md)
+### [美联储实施严格的职员交易限制](/content/gnews/7/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [延安性事（短篇纪实文学）（九）](/content/gnews/5/README.md)
+### [延安性事（短篇纪实文学）（九）](/content/gnews/8/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2/20/2022 文贵直播：乌克兰局势已无法挽回；普京从北京回去后变得沉默寡言，普京这几年性情大变、看了很多战争片](/content/gnews/6/README.md)
+### [2/20/2022 文贵直播：乌克兰局势已无法挽回；普京从北京回去后变得沉默寡言，普京这几年性情大变、看了很多战争片](/content/gnews/9/README.md)
  ` 秘密翻译组-北美组`
 
-### [中共统计局数据造假 借冬奥会洗钱骗钱](/content/gnews/7/README.md)
+### [中共统计局数据造假 借冬奥会洗钱骗钱](/content/gnews/10/README.md)
  ` NFSC News`
 
-### [NFSC新闻、G|TV新闻访谈简报|2022年2月21日早](/content/gnews/8/README.md)
+### [NFSC新闻、G|TV新闻访谈简报|2022年2月21日早](/content/gnews/11/README.md)
  ` 纽约香草山MOS01`
 
-### [有声|澳洲国防部称澳巡逻机遭中共国海军舰艇激光照射](/content/gnews/9/README.md)
+### [有声|澳洲国防部称澳巡逻机遭中共国海军舰艇激光照射](/content/gnews/12/README.md)
  ` MOSREC`
 
-### [有声|佐治亚州考虑给予数字货币矿工免税](/content/gnews/10/README.md)
+### [有声|佐治亚州考虑给予数字货币矿工免税](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [2/20/2022 文贵直播：俄罗斯和中共为什么要成为伙伴关系？中俄联手将是世界的灾难](/content/gnews/11/README.md)
+### [2/20/2022 文贵直播：俄罗斯和中共为什么要成为伙伴关系？中俄联手将是世界的灾难](/content/gnews/14/README.md)
  ` 秘密翻译组-北美组`
 
-### [2月20日文贵大直播摘要（图片28-33）](/content/gnews/12/README.md)
+### [2月20日文贵大直播摘要（图片28-33）](/content/gnews/15/README.md)
  ` 波士顿五月花农场`
 
-### [有声|数字货币将使人类摆脱被绑架和奴役](/content/gnews/13/README.md)
+### [有声|数字货币将使人类摆脱被绑架和奴役](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [有声|俄罗斯普京一箭三雕戏耍中共](/content/gnews/14/README.md)
+### [有声|俄罗斯普京一箭三雕戏耍中共](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [加利福尼亚州在美国首次实施针对COVID-19的“地方病”政策](/content/gnews/15/README.md)
+### [加利福尼亚州在美国首次实施针对COVID-19的“地方病”政策](/content/gnews/18/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2022年2月21日，全球中共病毒疫情情况汇总](/content/gnews/16/README.md)
+### [2022年2月21日，全球中共病毒疫情情况汇总](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|澳大利亚警方承认对堪培拉抗议民众使用了LRAD装置](/content/gnews/17/README.md)
+### [有声|澳大利亚警方承认对堪培拉抗议民众使用了LRAD装置](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [2/20/2022 文贵直播：普习密谋如何应对打乌克兰和台湾后的美国制裁 &#8211; 网络超限战、太空战、核威慑、继续放毒、难民策略、爆西方领导人的猛料、斩首行动](/content/gnews/18/README.md)
+### [2/20/2022 文贵直播：普习密谋如何应对打乌克兰和台湾后的美国制裁 &#8211; 网络超限战、太空战、核威慑、继续放毒、难民策略、爆西方领导人的猛料、斩首行动](/content/gnews/21/README.md)
  ` 秘密翻译组-北美组`
 
-### [有声|大陆中小学设“法治副校长” 宣传“习近平思想”](/content/gnews/19/README.md)
+### [有声|大陆中小学设“法治副校长” 宣传“习近平思想”](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [有声|COVID-19疫苗後炎症綜合症](/content/gnews/20/README.md)
+### [有声|COVID-19疫苗後炎症綜合症](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [有声|接下来的N份该怎么编](/content/gnews/21/README.md)
+### [有声|接下来的N份该怎么编](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [2月20日文贵大直播摘要（图片23-27）](/content/gnews/22/README.md)
+### [2月20日文贵大直播摘要（图片23-27）](/content/gnews/25/README.md)
  ` 波士顿五月花农场`
 
-### [视频｜欧洲药管局登记的疫苗副作用报告超150万份](/content/gnews/23/README.md)
- ` MOSvideo`
-
-### [有声|躺平币将首先惠顾爆料革命战友](/content/gnews/24/README.md)
- ` MOSREC`
-
-### [视频|台外长表示不想战争但绝不向中共低头](/content/gnews/25/README.md)
- ` MOSREC`
-
-### [视频|躺平币将首先惠顾爆料革命战友](/content/gnews/26/README.md)
+### [视频|台外长表示不想战争但绝不向中共低头](/content/gnews/26/README.md)
  ` MOSREC`
 
 ### [联盟工作汇报文字版2022.2.20](/content/gnews/27/README.md)

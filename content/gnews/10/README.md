@@ -2,20 +2,30 @@
 ---
 
 
-## 有声|佐治亚州考虑给予数字货币矿工免税
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2043427/)
+## 中共统计局数据造假 借冬奥会洗钱骗钱
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2043454/)
 
-配音：香草山巡管部– 文凯琳
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-美国媒体2月18日报道，近日，佐治亚州众议院的五名成员提出了一项法案，旨在免除当地数字货币矿工的销售和使用税。
+作者：纽约香草山农场 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在2月18日大直播中，郭文贵先生爆料，中共统计局的经济数据和疫苗感染率向来都是造假。
 
-据悉，该法案旨在吸引加密货币公司在该州落户开店，建议修改州税法，免除那些用于销售和商业开采的加密货币公司的电力费用。对于希望在美国扩大加密货币业务的公司来说，电力成本仍然是一个主要因素。德州由于对电网和可再生能源的管制放松，接受了很多在其他州受到相关法律限制被迫迁移的公司。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide4-12.jpeg)
 
-文字版原文：[佐治亚州考虑给予数字货币矿工免税](https://gnews.org/zh-hans/2037873/)
+中共统计局内部信息透露，统计局一直利用假数据欺骗习近平。各项统计数据，几乎全部最后减去一个零，有时候甚至两个零，再向中央上报。以支援非洲的资金为例，实际对外资金是9.6亿，但是只向中央上报960万，其余差额资金全部被个人贪污。
 
-音频处理/发稿：Daxia
+中共冬奥会各项巨额资金也是造假。据悉，仅开幕式就花费了七十二亿美元，张家口安保费用高达二百多亿美元，总花费近六百亿美元。此外，还涉及所谓的对外援助两千多亿。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+中共统计局以冬奥会境外赞助的名义，往国外疯狂洗钱，各地方政府也极尽所能骗中央的钱。
+
+参考链接：
+1. https://gettr.com/post/pvhlnaf05c
+2. [https://gettr.com/streaming/pvffqc88e7](https://gettr.com/streaming/pvffqc88e7)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+
+总编：文真
+编辑：Jack Li文阳   
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -23,7 +33,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
