@@ -2,42 +2,28 @@
 ---
 
 
-## 中共国结婚人口急剧下降，释放生育危机信号
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2039292/)
+## 梁思成为守护古建筑被中共迫害致死
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2039402/)
 
-作者：台湾宝岛农场—寻文客
+作者：纽约香草山农场教育部 – 马克文，朱丽叶
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+梁思成是中国近代建筑之父，1901年4月20日出生，1923年毕业于清华学校高等科。1924年赴美国费城宾夕法尼亚大学建筑系学习，1927年获得学士和硕士学位。随后，在哈佛大学学习建筑史。梁思成回国后，被清华大学聘为教授，创立了中国现代教育史上第一个建筑学系，成就了中国建筑学从无到有的历史巨变。中共夺权后，却因梁先生曾赴美留学，以及在国民党时期的经历，尤其在保护文化古城建筑方面，与中共官方发生剧烈冲突，最后将其迫害致死。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1930.png)
+从1932年到1937年的6年间，梁思成携夫人——清华大学建筑系教授林徽因——踏遍河北、陕西、山西等地，走过中国15个省，190多个县，测绘考察了2738处古建筑，完成测绘图稿1898张，留下了一套研究中国建筑的珍贵资料，为此后中国建筑的研究与发展做出了重要贡献。
 
+在中日战争期间，梁思成绘制了中国重点保护文物地图，将它们提供给美国援华飞行员，以便他们在轰炸敌后时，注意避开这些重要文物古迹地点。
 
+中共占领大陆后，大肆拆除北京古建筑。梁思成对此提出严正抗议。他想尽一切办法守护中国古建筑，多次向中共阐明北京古城在世界文化遗产中的核心地位：北京是世界上唯一保护完整的千年古城，拥有规模巨大的历史文化建筑群，在世界文化名城中的地位，远超罗马，巴黎，因为它不是废弃的遗址，而是活着的，继续供今人使用的活宝库。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+可惜这些建议不但没有被中共重视，反而成了中共将其治罪的依据。文化大革命期间，他被作为“复古”的典型遭到批判、抄家，所收藏的全部图书资料被没收。梁思成被打成“反革命分子、反动学术权威”，后期又以“国民党潜伏特务”的罪名被关押起来。1972年1月9日，被中共折磨至死。
 
+参考链接：[维基百科，自由的百科全书](https://zh.wikipedia.org/zh-cn/%E6%A2%81%E6%80%9D%E6%88%90)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-2月18日，国外媒体援引中共的相关数据，揭示了中共国近年来结婚人数明显下降的趋势。
-
-数据表明，2021年前三季度中共国婚姻登记数量较2019年同期下降17.5%。其中江苏省结婚人数连续五年下降，浙江省杭州市2021年结婚人数还不到2011年的80%。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-9.jpg)
-与此同时，中共国46.5%的结婚者年龄在30岁以上。结婚人口的下降、结婚者年龄偏大等现象将进一步降低中国的人口出生率。据悉，2021年中共国出生率已降至中共国家统计局1949年记录以来最低水平。
-
-据社交媒体的信息，民众普遍认为，近年来中共政权采取各种政策明争暗夺，导致民众收入难以提高，生活成本却不断上涨，引发了年轻人“结婚难”这一现象。
-
-参考链接：
-[Marriages Plummet in China, Signaling Worsening Birth Crisis](https://www.breitbart.com/asia/2022/02/18/marriages-plummet-in-china-signaling-worsening-birth-crisis/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-3.png)
-
+编辑：静言
 总编：飞虹
-编辑：Zion文恩
-校正/发稿：为真不破20
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-8.png)
+校正/发稿：小野貓（文凱琳）
 
  
 

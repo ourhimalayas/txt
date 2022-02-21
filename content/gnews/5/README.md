@@ -2,52 +2,36 @@
 ---
 
 
-## 普京入住的华尔道夫3日下午确定六名随扈感染死亡三例
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2039821/)
+## 悉尼铁路、电车和巴士工会罢工，客运和铁路服务停运
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2039872/)
 
-G-TV视频链接：[https://gtv.org/video/id=621254791408ee3a03a24b63](https://gtv.org/video/id=621254791408ee3a03a24b63)
+整理/编辑：小红帽
 
-**郭文贵先生：**我先跟你们（说说）咱今天的大事。今天是1:10分的时候，在国内的时间啊，大家知道普京住哪个酒店吗？谁知道？记住啊，听着啊兄弟姐妹们，谁知道普京住哪个酒店啊？
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/16-9.png)图片来源：en.wikipedia.org
 
-他住华尔道夫酒店。查查华尔道夫在哪？一会儿叫墨镜发出来。昨天下午1点钟，他六个人染上了病毒，普京的团队六个人，是俩保镖、四个陪同的官员。然后在六个小时前，也就是在四个小时前，大概确定是十个。也就是刚刚的咱们直播的一个小时前，七哥在那得瑟在那唱歌的时候，他已经确定是六个，很不幸的事情在华尔道夫里面已经死了仨人了，死了仨人了。全部是抽，暴抽而死啊。
 
-但我不确定这仨人到底是普京的人还是华尔道夫的什么人，是吧？很恐惧，很恐惧！这个病很有可能，这个病毒这回像打那个拐弯的子弹一样直接拐回北京城“冬眠会”现场去了。
+根据大纪元2月21日报道， 周一（21日）早上，由于铁路、电车和巴士工会与澳洲新州政府的谈判未果，悉尼所有火车服务全线停运。
 
-兄弟姐妹们，我们不希望任何人死亡，但是如果说坏人死了，实在我们也，我们不想鼓掌，但是我们实在也不值得悲伤，是吧？坏人该死。
+周一凌晨，新州交通运输司（NSW Transport）发文表示，“由于罢工行动，悉尼火车公司（Sydney Trains ）和新州火车城际铁路公司（NSW TrainLink）的服务今天无法运行。”
 
-你知道华尔道夫酒店很有意思的，也跟咱有关系，华尔道夫有关系啊。华尔道夫在纽约，就是吴小晖买的那个叫华尔道夫酒店。然后到了北京就叫北京最土的土豪酒店，垃圾的酒店，连那家具都是借七哥的，到现在都不还，而且里边还有一个什么剧场。
+悉尼火车公司首席执行官马特朗兰（Matt Longland）表示，“由于铁路、电车和巴士工会(RTBU)的进一步罢工行动，目前整个大悉尼地区的客运和铁路服务都暂停了。”
 
-然后在伦敦就叫什么Dorchester酒店，然后在好莱坞还有个华尔道夫，就七哥上次今年（注：口误，可能指2021年）夏天见神秘人物的酒店。哎呦我的天呐，我一听华尔道夫酒店那么多人染上，又死人，挺吓人呐！（注：笑）热闹了，热闹了啊。还有，一会儿我还有更大的料儿给大家爆啊，今天可是了不得了。
+“政府与工会的谈判中在进行了一个周末的密集谈判后，于午夜时分破裂。悉尼火车和新州城际铁路火车将无法安全提供运营服务”。新州交通运输司表示。
 
-盘古死人，华尔道夫普京的团队十六个人染上病毒，死仨人，这冬眠会这是刚刚开始啊，这接下来的十八天咋弄咧？咋弄咧？是吧？
+铁路、电车和巴士工会表示，火车停运并不是因为工人的问题，他们正在进行为期两周的保护性的罢工行动，不会影响到通勤者。
 
-字幕来源：[2022年2月4日《文贵大直播》全文字版](https://gnews.org/zh-hans/1961700/)
+铁路、电车和巴士工会在一份声明指责政府试图“通过阻止工人的合法罢工行动来让他们沉默”。
 
-编辑整理：Jacques；
+新闻链接：[悉尼火车因罢工行动全线停运 通勤陷入混乱](https://www.epochtimes.com/gb/22/2/20/n13592436.htm)
 
-字幕文件制作：知津；
+发布：tianzhihuan
 
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

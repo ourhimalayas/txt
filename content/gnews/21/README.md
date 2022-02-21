@@ -2,20 +2,27 @@
 ---
 
 
-## 台湾对日本食品进口是解禁？还是适时解禁？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2039658/)
+## 有声| 新中国联邦新闻、GTV新闻访谈简报|2022年2月16日晚
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2039663/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1938.png)（图片源自本文链接）
-2月21日共同社台北消息：台湾卫生福利部（MOH）21日发布公告，解除自2011年东京电力公司福岛第一核电站发生核事故后对日本食品的进口禁令。该禁令于当日生效。
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-2-1.png)
 
-笔者直觉，解禁是好事，但这个时候宣布解禁，是否还有更深意义？
 
-信息来源：[台湾、日本産食品を解禁（共同通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/e14ac546b288a4ca90156822d927f3ba684a39e0)
+文字版原文：[新中国联邦新闻、GTV新闻访谈简报|2022年2月16日晚](https://gnews.org/zh-hans/2017977/)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

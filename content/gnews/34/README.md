@@ -2,35 +2,22 @@
 ---
 
 
-## 喜马拉雅币一周分析与总结（2月4日-2月20日）
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2039449/)
+## 拜登总统和普京总统合意会晤 如果军事入侵则取消
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2039457/)
 
-作者：香草山金融部 – ILOVE战神
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-过去一周喜马拉雅币价格在45美元附近波动，平均日交易量约9万枚喜币。喜币上市以来总交易量约2870万枚 ，占今年总发行量的仅约2.87%。目前喜币交易在全球尚未完全开放，市场交易量较低，价格仍被严重低估。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1931.png)
-本周据郭文贵先生在大直播中透露，一个月内喜支付将推出新政策，包括喜贷款和喜抵押。喜交所也将发布重大的投资利好公告。喜交所还会很快会推出比特币和其它数字货币交易。即将推出的躺平币将独立于喜币运营，有自己独立的支付系统GettrPay（盖特支付），还会有自己独立的贷款系统。除此之外，躺平币可以在喜交所进行交易，喜币也可以在盖特平台上交易。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1932.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1935.png)
-郭先生还在直播和盖特中透露，已故的三度夺取F1世界冠军的巴西赛车手埃尔顿·塞纳曾经驾驶的迈凯伦福特 MP4/8A赛车最近通过喜币完成了交易，这笔数字货币交易将是深远影响数字货币与现实生活生产力进行公平交易的一个里程碑事件。另外喜联储还在与多家线上线下商城商谈合作，未来将会有多个G-Mall出现，而且还会有很多地方接受喜币买房。喜币将在流通领域开创数字货币的传奇，使人类经济活动回归到物物交换的本源，实现高效率、去中介化、零成本，而且没有地域限制的货币全球流通。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1933.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1934.png)
-参考链接：
-1、[https://himalaya.exchange/himalaya-pay](https://himalaya.exchange/himalaya-pay)
-2、[用喜币支付购买巴西车神塞纳战车是里程碑事件](https://gnews.org/zh-hans/2020727/)
+撰稿：东京樱花团/向海
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片4-3.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fichef.bbci.co.uk%2Fnews%2F640%2Fcpsprodpb%2FC52C%2Fproduction%2F_118667405_biden-putin_comp_reuters_hi067475365_hi066800424-2.jpg&amp;imgrefurl=https%3A%2F%2Fwww.bbc.com%2Fzhongwen%2Fsimp%2Fworld-57468885&amp;tbnid=qMDko1Ud33XHCM&amp;vet=12ahUKEwionYmz74_2AhW95XMBHZbtBowQMygCegUIARCZAQ..i&amp;docid=tlSOhIRi7sBTcM&amp;w=640&amp;h=360&amp;q=%E6%99%AE%E4%BA%AC%20%E6%8B%9C%E7%99%BB&amp;ved=2ahUKEwionYmz74_2AhW95XMBHZbtBowQMygCegUIARCZAQ)
+20日，美国总统拜登和俄罗斯总统普京原则上同意就乌克兰局势举行会晤。经法国总统马克龙磋商双方表示接受 。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+美俄外长将于24日进行讨论和协调。 如果俄罗斯入侵乌克兰，这一预定将被取消。
 
-编辑/总编：飞虹
-校正/发稿：小野貓（文凱琳）
+信息来源
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[バイデン氏とプーチン氏、会談に原則合意　軍事侵攻なら取りやめ](https://news.yahoo.co.jp/articles/243cc322e1cf47068d17e2bc2945c1405ce5d686)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-8.png)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

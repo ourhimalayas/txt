@@ -2,41 +2,26 @@
 ---
 
 
-## 香港疫情持续 林郑称将建“方舱医院”
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2039294/)
+## 乌克兰总统泽连斯基要求制裁俄罗斯
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2039428/)
 
-作者：首尔天池农场 – 无明逆流
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-318.jpg)
+图片来源：sputniknews.cn
 
+美国合众社2月20日报道，周六乌克兰总统弗拉基米尔·泽连斯基在拜登周五说他确信俄罗斯总统普京将会侵略乌克兰后，再次要求同盟国采取制裁措施。
 
+泽连斯基在慕尼黑安全会议上的发言，再次要求同盟国制裁俄罗斯，他同一天会见了法国总统马克龙，德国内阁大臣奥拉夫·舒尔茨以及美国副总统卡马拉·哈里斯，谈到了俄罗斯对于该国的危险。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+而美国官员已经警告如果俄罗斯入侵乌克兰的话，美国的反应不是制裁问题，因为这样做会失去“威摄作用”。
 
+泽连斯基在会议中说：” 当炮弹引起我们国家一片火海的时候，或者我们已经没有了边境，我们将没有了经济，或者我们的国家部分被占领后，制裁已经失去了意义。到那时再制裁有什么用？当你现在问我们你们能做什么，我们可以给你们罗列一系列事情”。他批评西方国家处理乌克兰危机的做法，尤其是宣布即将到来的入侵。乌克兰领导人说这样做损害国家经济，并且让乌克兰人民恐惧。
 
+泽连斯基说：“ 我们需要你们（同盟国）的特殊步骤和支持。”
 
-2月18日，港共特区行政长官林郑月娥举行新闻发布会，声称自19日起，香港将在内地团队的协助下开始建设一个临时隔离设施——“方舱医院”，并称，中共政府全力支持香港抗击疫情，内地专家组也给香港带来了宝贵的抗疫经验。
+##### 新闻来源： [Zelensky again calls for sanctions on Russia](https://www.upi.com/Top_News/World-News/2022/02/19/germany-ukraine-president-zelensky-again-urges-sanctions-russia/6891645320560/)
 
-自1月下旬以来，香港疫情持续加重，2月17日，单日确诊达到了6116例。但香港没有有效地对病人进行分流，造成医院负担大大增加，很多病人甚至因为医院空间有限，被安排在室外等候。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide10-8.jpg)
-对此，香港仍然跟随中共的“清零”政策，如今又要效仿大陆建立“方舱医院”。
-
-观察人士称，中共借病毒疫情进一步控制香港，正使香港急速成为中共治理下的大陆城市。方舱医院和中共疫情管制模式出现在香港，恐怕会使香港的人道灾难再一次上演。
-
-参考链接：
-[醫院被塞爆萬人等入院　林鄭：港版「方艙醫院」今開建](https://www.ettoday.net/amp/amp_news.php7?news_id=2192332)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-3.png)
-
-编辑/总编：飞虹
-校正/发稿：为真不破20
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-8.png)
+#  
 
  
 

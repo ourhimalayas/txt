@@ -2,32 +2,42 @@
 ---
 
 
-## 美白宫称 拜登同意就乌克兰问题与普京展开会谈
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2039809/)
+## 135个要参加冬奥会的变成33个最后变成俩CGTN被团灭
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2039869/)
 
-翻译：灭共文明
+G-TV视频链接：[https://gtv.org/video/id=6212553f1408ee3a03a24c04](https://gtv.org/video/id=6212553f1408ee3a03a24c04)
 
-编辑与校对：灭共文明
+**郭文贵先生：**这次整个到现场的就两个人是牛人到奥运会的。最最世界上有权力的就是普京，最有钱的就是阿布扎比王子，阿布扎比王子住在四季酒店，普京住在了华尔道夫酒店，就这俩，一个有权一个有钱，其他的你都可以忽略。什么阿根廷啊，狗屁，去了六个人；什么卡塔尔，你都可以放一边去，一切忽略，33个国家全忽略。
 
-《路透社》2月21日报道，周日，**美国白宫在一份声明中表示，美国总统拜登(Joe Biden)和俄罗斯总统普京(Vladimir Putin)，已再“原则上”同意就乌克兰问题举行峰会。但白宫还表示，如果俄罗斯选择战争，美国也准备好了迅速而严重的后果。**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/拜登普京1-1-e1645419614485.jpg)拜登与普京在日内瓦会谈（图片来源：路透社）
-周一，法国总统马克龙办公室在一份声明中表示，他向两国领导人建议，就“欧洲的安全和战略稳定”举行峰会。此次峰会是在马克龙、拜登、普京和英国首相鲍里斯·约翰逊进行电话交谈后宣布的。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/马克龙.jpg)法国总统马克龙（图片来源：网络）
-据报道，**马克龙办公室和白宫表示，峰会的实质内容将由美国国务卿布林肯和俄罗斯外长拉夫罗夫，在2月24日举行的会谈中确定。**
+当时是说好的，是97个国家一定是一级元首来，135个国家要参加这会，到了33个，33结果成了俩，俩一个是有钱的阿布扎比王子，一个是普京，普京现在给撂倒了，是吧？已经死人了。然后CGTN已经灭了不敢播了，它没版权谁有版权啊？是不是啊？你家下的蛋没有蛋权谁有蛋权啊？你家当然有蛋权了啊，你不敢播了，让爆料革命给你灭了嘛。
 
-此前一周，俄罗斯在乌克兰边境集结军事力量，导致紧张局势加剧。俄罗斯军队自去年年底以来一直在邻国周边集结，西方国家称这是入侵的前奏。
+字幕来源：[2022年2月4日《文贵大直播》全文字版](https://gnews.org/zh-hans/1961700/)
 
-**周日，美国国务卿布林肯表示，演习的延长让他更加担心俄罗斯正处于入侵的边缘。**
+编辑整理：Jacques；
 
-总部位于**美国的卫星图像公司Maxar**报告说，俄罗斯军队在距离乌克兰边境仅15公里(9英里)的森林、农场和工业区部署了多个新部队。**卫星图像显示，俄罗斯在乌克兰附近的农场和森林中部署了新的装甲和军队。**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/乌克兰入侵2.jpg)俄罗斯军在乌克兰边境集结（图片来源：网络）
-在战场上，战鼓在过去几天里越敲越响。这场战斗以及俄罗斯持续的军事演习，让欧洲感到不安。
+字幕文件制作：知津；
 
-报道称，**捷克总理佩特·菲亚拉(Petr Fiala)在接受电视采访时表示，欧洲大陆正处于灾难的边缘。他说:“可以毫不夸张地说，欧洲离战争只有一步之遥。”**
+视频制作及上传：Cindy；
 
-**新闻链接：**
+G-News发布：小满；
 
-[Biden agrees in principle to Ukraine summit with Putin | Reuters](https://www.reuters.com/world/europe/ukraine-temporarily-closes-checkpoint-donbass-due-shelling-2022-02-20/)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

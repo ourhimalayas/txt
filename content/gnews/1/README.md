@@ -2,36 +2,44 @@
 ---
 
 
-## 悉尼铁路、电车和巴士工会罢工，客运和铁路服务停运
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2039872/)
+## 随扈或病或亡使普京暴骂,习近平彻底蒙叉,党内击掌相庆
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2039908/)
 
-整理/编辑：小红帽
+G-TV视频链接：[https://gtv.org/video/id=621256ee1408ee3a03a24d5a](https://gtv.org/video/id=621256ee1408ee3a03a24d5a)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/16-9.png)图片来源：en.wikipedia.org
+**郭文贵先生：**最大一个人物普京，十几个人染上病了，而且听说普京暴怒。普京在现场暴怒，说：“你们这么大一个国家让我们来，我们来之前就说过，你让我的人起码的保障都没有，酒店提前一周所谓清理，你这么多人让我身边的人全染上病，而且死人了。” 死人不一定是普京旁边的人，但肯定是所谓的华尔道夫酒店。
 
+咱们的一个战友给我说了句，他说：“七哥，我从楼上都能听到普京在楼下骂人。” 你想想咱战友在哪？在那楼上的战友你想是干啥的？是吧？他说：“暴骂！” 咱战友还得听得懂俄语啊，你得听得懂啊。南极宝宝说话我能听懂很正常，是不是啊？但是我说话普京听懂不正常啊，咱那战友听得懂俄语，你想想啥感觉啊？是吧？事儿太大了！
 
-根据大纪元2月21日报道， 周一（21日）早上，由于铁路、电车和巴士工会与澳洲新州政府的谈判未果，悉尼所有火车服务全线停运。
+习听说这个也蒙叉了，普京——你想想这是唯一的…….这个人是什么情况？党内多少人高兴啊，传遍大江南北。所以说这个“冬眠会”彻彻底底这回习近平丢人丢大了，一百几十个国家变成七十几个国家，九十几个国家，现在33个国家，结果就来俩重要人物，现在一个团队已经是团灭了，我都不知道接下去这18天会发生啥事？而且这个结果是我们希望的，也是共产党内部9500万党员99%的人都需要的。
 
-周一凌晨，新州交通运输司（NSW Transport）发文表示，“由于罢工行动，悉尼火车公司（Sydney Trains ）和新州火车城际铁路公司（NSW TrainLink）的服务今天无法运行。”
+字幕来源：[2022年2月4日《文贵大直播》全文字版](https://gnews.org/zh-hans/1961700/)
 
-悉尼火车公司首席执行官马特朗兰（Matt Longland）表示，“由于铁路、电车和巴士工会(RTBU)的进一步罢工行动，目前整个大悉尼地区的客运和铁路服务都暂停了。”
+编辑整理：Jacques；
 
-“政府与工会的谈判中在进行了一个周末的密集谈判后，于午夜时分破裂。悉尼火车和新州城际铁路火车将无法安全提供运营服务”。新州交通运输司表示。
+字幕文件制作：小满；
 
-铁路、电车和巴士工会表示，火车停运并不是因为工人的问题，他们正在进行为期两周的保护性的罢工行动，不会影响到通勤者。
+视频制作及上传：Cindy；
 
-铁路、电车和巴士工会在一份声明指责政府试图“通过阻止工人的合法罢工行动来让他们沉默”。
+G-News发布：小满；
 
-新闻链接：[悉尼火车因罢工行动全线停运 通勤陷入混乱](https://www.epochtimes.com/gb/22/2/20/n13592436.htm)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-发布：tianzhihuan
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

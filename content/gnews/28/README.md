@@ -2,26 +2,26 @@
 ---
 
 
-## 澳严厉谴责中共军舰激光照射澳军机恶行
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2039509/)
+## 中日财经爆|中共国违背承诺 未购买更多缅因州龙虾
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2039603/)
 
 撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片7.jpg)[图片来源](https://newsfounded.com/taiwan/%E6%BE%B3%E5%A4%A7%E5%88%A9%E4%BA%9A%E5%86%9B%E6%9C%BA%E9%81%AD%E4%B8%AD%E5%9B%BD%E5%86%9B%E8%88%B0%E6%BF%80%E5%85%89%E6%94%BB%E5%87%BB%EF%BC%8C%E6%BE%B3%E5%A4%A7%E5%88%A9%E4%BA%9A%E6%80%BB%E7%90%86/)
-澳大利亚国防部周六（2月19日）表示，一艘中共国海军军舰向澳大利亚的一架侦察机发射激光，置机上人员的生命于危险之中。
 
-澳大利亚国防部在周六发布的一份声明中说，这个事件发生在周四，当时位于澳大利亚北部空域的一架澳大利亚P-8A反潜侦察机发现受到激光照射。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/中共国违背承诺-未购买更多缅因州龙虾.png)[图片来源](https://kknews.cc/zh-cn/world/6ae4p3q.html)
 
-随着中共国在西太平洋等地区的军事活动持续增加，美国及其盟国联手采取行动予以遏制。因此，在澳大利亚附近空域发生这样的事件也并非意外。
+美国缅因州国会领导人说，中共国未能根据前总统川普政府时期美中为缓解双方贸易战而达成的贸易协议的规定，购买更多的缅因州龙虾。
 
-澳大利亚国防部表示，激光照射来自中国人民解放军海军的一艘军舰。当时这艘军舰正在与另外一艘中国军舰通过托雷斯海峡。这两艘舰只目前位于澳大利亚东部的珊瑚海。澳大利亚国防部说，“中国军舰用激光照射澳大利亚飞机是一起严重的安全事件”，“这类动作有可能危及人员的生命。我们强烈谴责不专业、不安全的军事动作”。
+2018年，缅因州的龙虾业受到中共国报复性关税的重创。即使在中共国承诺要增加购买2000亿美元的美国商品后，缅因州龙虾的出口仍未大幅度增加。
+
+根据“第一阶段贸易协议”，中共国承诺要在2017年基础上增加购买美国商品。但是根据缅因州的无党派参议员安格斯·金(Angus King)、民主党众议员平格里（Chellie Pingree ）和戈登（Jared Golden）写给美国贸易代表的一封信，中共国“购买缅因州的龙虾几乎没有超出2017年的水平”。他们敦促美国贸易代表戴琪“要求中共国对其购买承诺负责”。
 
 消息来源:
 
-[澳国防部严厉谴责中国军舰用激光照射澳军飞机行为](https://www.voachinese.com/a/australia-says-china-warship-fired-laser-at-its-patrol-plane-20220219/6450290.html)
+[中国被指未能履行承诺 购买更多的缅因州龙虾](https://www.voachinese.com/a/china-accused-of-failing-to-buy-more-maine-lobster-20220219/6450968.html)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

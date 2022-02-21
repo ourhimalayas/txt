@@ -2,42 +2,52 @@
 ---
 
 
-## 两名青少年打辉瑞疫苗数天后身亡，媒体集体沉默
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2039776/)
+## 普京入住的华尔道夫3日下午确定六名随扈感染死亡三例
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2039821/)
 
-翻译/编辑：小红帽
+G-TV视频链接：[https://gtv.org/video/id=621254791408ee3a03a24b63](https://gtv.org/video/id=621254791408ee3a03a24b63)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/15-7.png)图片来源：www.openaccessgovernment.org
+**郭文贵先生：**我先跟你们（说说）咱今天的大事。今天是1:10分的时候，在国内的时间啊，大家知道普京住哪个酒店吗？谁知道？记住啊，听着啊兄弟姐妹们，谁知道普京住哪个酒店啊？
 
+他住华尔道夫酒店。查查华尔道夫在哪？一会儿叫墨镜发出来。昨天下午1点钟，他六个人染上了病毒，普京的团队六个人，是俩保镖、四个陪同的官员。然后在六个小时前，也就是在四个小时前，大概确定是十个。也就是刚刚的咱们直播的一个小时前，七哥在那得瑟在那唱歌的时候，他已经确定是六个，很不幸的事情在华尔道夫里面已经死了仨人了，死了仨人了。全部是抽，暴抽而死啊。
 
-根据自然新闻2月19日报道，来自耶鲁大学和密歇根大学的研究人员发表了一篇关于两名男孩在第二次注射辉瑞公司的冠状病毒（Covid-19）“疫苗”后被发现死在床上的论文。
+但我不确定这仨人到底是普京的人还是华尔道夫的什么人，是吧？很恐惧，很恐惧！这个病很有可能，这个病毒这回像打那个拐弯的子弹一样直接拐回北京城“冬眠会”现场去了。
 
-心脏病专家彼得·麦卡洛（Peter McCullough）博士在一篇推特文章中强调了这项研究和相关的死亡事件，并透露这些不幸的孩子在被发现时已经没有“抢救的机会”。
+兄弟姐妹们，我们不希望任何人死亡，但是如果说坏人死了，实在我们也，我们不想鼓掌，但是我们实在也不值得悲伤，是吧？坏人该死。
 
-麦卡洛写道：“尸检的结果很清楚。1月24日，我在美国参议院作证时说过，‘一个案例已经太多了！’。父母和孩子们应该知道会发生更多的死亡案例”。
+你知道华尔道夫酒店很有意思的，也跟咱有关系，华尔道夫有关系啊。华尔道夫在纽约，就是吴小晖买的那个叫华尔道夫酒店。然后到了北京就叫北京最土的土豪酒店，垃圾的酒店，连那家具都是借七哥的，到现在都不还，而且里边还有一个什么剧场。
 
-这两个男孩都是青少年，他们的姓名，年龄和死亡的地点没有被透露。这篇论文发表在医学杂志《病理学和实验室医学档案》上。
+然后在伦敦就叫什么Dorchester酒店，然后在好莱坞还有个华尔道夫，就七哥上次今年（注：口误，可能指2021年）夏天见神秘人物的酒店。哎呦我的天呐，我一听华尔道夫酒店那么多人染上，又死人，挺吓人呐！（注：笑）热闹了，热闹了啊。还有，一会儿我还有更大的料儿给大家爆啊，今天可是了不得了。
 
-研究人员表示，这两个男孩的致命心肌炎诊断并不“典型”，而是类似于所谓的中毒性心肌病。
+盘古死人，华尔道夫普京的团队十六个人染上病毒，死仨人，这冬眠会这是刚刚开始啊，这接下来的十八天咋弄咧？咋弄咧？是吧？
 
-科学家们在他们的论文中写道，显微镜检查发现了类似于儿茶酚胺引起的损伤的特征，这不是典型的心肌炎病理。
+字幕来源：[2022年2月4日《文贵大直播》全文字版](https://gnews.org/zh-hans/1961700/)
 
-这两起死亡事件，尽管令人难过，但只代表了注射新冠疫苗后死亡总人数的极小部分。事实证明，绝大多数由新冠疫苗引起的死亡甚至从未被报告。
+编辑整理：Jacques；
 
-“现在全球已有数百万人死于这些’疫苗’，”Newspunch网站上有人写道。“新冠疫苗不能防止感染，也不能阻止传播。它们甚至不是疫苗。它们更像是欺诈。”
+字幕文件制作：知津；
 
-“阅读不同国家政府自己的疫苗死亡和伤害人数数据，然后把它们加起来。然后回忆一下哈佛大学的研究，结论是每10例死亡中只有1例被报告。”
+视频制作及上传：Cindy；
 
-新闻链接：[Two teenagers drop dead days after getting “vaccinated” with Pfizer – media silent](https://www.naturalnews.com/2022-02-19-two-teenagers-drop-dead-pfizer-vaccine.html)
+G-News发布：小满；
 
-发布：tianzhihuan
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
