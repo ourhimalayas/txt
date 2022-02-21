@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/21/2022 1:47 AM (UTC)`
+
+Who's Miles Guo Episode 3 《Mile‘s Determination to Take Down the CCP》<br/>A billionaire, he has given everything he had. Along the way, his hair turns gray, more wrinkles are on his face, but he is still fighting! This time we should win! People should win! Take down the CCP!<br/><br/>谁是郭文贵 第三集 《灭共决心》<br/>一个富豪，拿出了自己的一切，一路走来，头发白了，皱纹多了，他还在战斗，这一次我们该赢了，CCP，你完了！<br/>
+![img](https://media.gettr.com/group40/origin/2022/02/21/01/460a8fd0-47d5-56f5-9bbb-1ae1ce4d46d0/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 2/20/2022 11:15 PM (UTC)`
 
 2/20/2022 Miles Guo: The two and a half hour meeting between Xi and Putin with no secretary present has decided the fate of humanity. Taking Crimea without firing a single shot emboldened both Putin and Xi, who are increasingly looking down on the West and arrogantly believe that now is the best time to dominate the world.<br/><br/>2/20/2022 文贵直播：习普二人两个半小时无秘书在场的单独会谈决定了人类的命运；不费一枪一炮拿下克里米亚壮了普习二人的胆，他们越发瞧不起西方，并狂妄地认为现在是称霸世界的最佳时机<br/>
@@ -149,13 +156,6 @@ Live, Love, & Laugh ❤️
 `@miles 2/19/2022 1:10 AM (UTC)`
 
 2月18号：尊敬的战友们好……这个太棒了，太能满足我们的食欲了https://h-pay.typeform.com/to/goydIKHv
-
----
-
-`@miles 2/18/2022 11:55 PM (UTC)`
-
-2022年2月18日 文贵大直播：乌克兰俄罗斯危机各执一词；Omicron病毒解禁众说纷纭
-![img](https://media.gettr.com/group49/origin/2022/02/18/23/a8633b19-5331-f40a-6736-8fbccbe28010/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
