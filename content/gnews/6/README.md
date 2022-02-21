@@ -2,27 +2,36 @@
 ---
 
 
-## 因对台军售 中共对美国军工企业实施反制
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2042118/)
+## 樱花数据分析┃科学论文的严重误导，以打击伊维菌素
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2042225/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Unknown-19.jpg)因对台军售 中共对美国军工企业实施反制 网络图片
-据路透社2月21日报道，中共政府因美国2月初批准向台湾出售价值或达1亿美元的设备和服务，外交部新闻发言人汪文斌周一宣布，对长期参与向台湾出售武器的美国军工企业—雷神和洛克希德马丁的侵权行为实施反制。此前在2019年和2020年中共亦曾宣布对这两家公司进行制裁。
+撰稿：东京樱花团/TV
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1969.png)
+最新发表的一篇美国医学会杂志论文，得出结论说使用伊维菌素并不能防止病情加重。被大量引用作为依据，说伊维菌素无效。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1970.png)
+制图：chuansang
 
-相较于美国对中企的制裁，中共所谓的反制裁从未说明制裁细节或实施方式。一方面中共拿什么制裁美方的军工企业？另一方面，对于美方持续不断的制裁，对内颜面不能丢，必须撑着擀面杖继续忽悠百姓，给民众打一波鸡血找找自信。
+仔细读了文章的试验结果， 伊维菌素组中，241人中有52人轻症转为中度症状 ，而对照组中，249人中有43人。所以作者得出结论，“不能防止病情加重”(p=0.25)。
 
-新闻参考链接： [https://cn.reuters.com/article/china-mofa-us-raytheon-sanction-0221-idCNKBS2KQ0RG?il=0](https://cn.reuters.com/article/china-mofa-us-raytheon-sanction-0221-idCNKBS2KQ0RG?il=0)
+但是如果继续读下去，使用呼吸机的重症患者方面，伊维菌素组对比对照组，为1.7%：4.0%。即伊维菌素“减少了约60%的使用呼吸机的重症患者”(p=0.17)。
 
-* * *
+死亡率方面，为1.2%：4.0%，即伊维菌素“减少了约70%的死亡率”(p=0.09)。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+减少60%呼吸机使用率，70%死亡率，伊维菌素的表现非常出色。
 
+除此之外，如果懂得统计学的人会知道，更小的p值代表了更高的可信度，而在这篇文章中，p=0.25（可信度偏低）的“不能防止病情加重”被写进了结论，p=0.09（可信度高）的“防止死亡”却被忽视了。这是极不客观的。
 
-编辑：【英国伦敦喜庄园编辑部】
+综合这两个方面，可以看出这篇文章有意的无视了可以拯救70%生命的结果，只注重不利伊维菌素的结论，具有严重误导性。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+堂堂一篇科学论文竟沦落为和进行偏向报道的主流媒体一样。
 
+（注：本文为《樱花数据分析》第十四期）
+
+[数据来源](%20The%20I-TECH%20Randomized%20Clinical%20Trial)：
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
 
 
  

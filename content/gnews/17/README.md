@@ -2,8 +2,8 @@
 ---
 
 
-## 20220220郭文贵大直播 ：新中国联邦灭共第一 教育第二 老师会得到丰厚的薪资保障
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2042035/)
+## 20220220郭文贵大直播 ：习近平很清楚在共产党内部自己会被消灭掉
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2042099/)
 
 作者：东京樱花团小视频组
 

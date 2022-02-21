@@ -2,28 +2,32 @@
 ---
 
 
-## 以色列将允许未接种疫苗的外国游客入境
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2042191/)
+## 俄罗斯财政部将考虑中央银行关于加密货币的提案
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2042276/)
 
-**撰稿：日本东京方舟农场  幽蘭自得**
+**撰稿: 日本东京方舟农场  JIHO**
 
-2月20日，以色列政府宣布，随着最新一波COVID-19（中共病毒）的消退，从下个月开始允许未接种疫苗的外国游客进入该国。这是以色列政府继停止使用疫苗护照后的又一大举措。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-323.jpg)图为以色列总理纳夫塔利·贝内特（图片来自TSAFRIR ABAYOV/POOL/AFP via Getty Images）
-据《大纪元》报道，以色列总理纳夫塔利·贝内特20日表示：“我们看到发病率数据持续下降，所以是时候逐步开放我们在世界上第一个关闭的地方了。”
+根据路透社莫斯科2月21日的消息，俄罗斯财政部周一表示，只要不与自己的做法相矛盾，它将考虑采用该国中央银行关于加密货币的建议，为管理数字资产的立法铺平道路。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-222.png)（图片来自网络）
+由于数字货币对金融稳定构成威胁，俄罗斯银行已提议禁止加密货币交易和采矿。但财政部更喜欢监管加密货币的立法，允许它们作为一种投资工具，而不是作为一种支付手段。
 
-另据《以色列时报》（The Times of Israel）报导，根据将于3月1日生效的新规，所有年龄段的外国游客，包括接种了疫苗和未接种疫苗的游客，只要在登机前提交一份聚合酶连锁反应（PCR）检测阴性结果证明，并在着陆后再做一次PCR检测，就可以进入以色列。
+财政部周一表示，其立法草案旨在为数字货币创建一个合法市场。
 
-回国的以色列人将不必在登机前进行检测，只需在落地后进行一次PCR测试。
+一项提议是针对涉及购买或出售加密货币的交易需要客户的身份证明，此举可能会削弱加密货币的主要卖点之一，即匿名性。
 
-即使是未接种疫苗的以色列人，在返回以色列时也不必进行隔离，只要他们在着陆后检测结果呈阴性。
+其他提议包括外国加密货币交易所必须在俄罗斯获得许可证，以及引入金融知识测试，以确定允许个人投资的金额大小。
 
-本月初，以色列政府的疫情工作组已决定，开始逐步停止使用疫苗护照。除了“公众密集聚会的高风险场所外”，餐馆、酒吧、健身房和酒店等大部分公共场所，都将放弃使用疫苗护照。此外，未接种疫苗者也可在不做病毒测试的情况下直接登机旅行。
+财政部表示，成功通过测试的公民每年将被允许投资高达 600,000 卢布，约合7853 美元的数字货币。没有通过经融测试的投资限额为每年 50,000 卢布，约合654美元。
+
+（1 美元 = 76.4044 卢布）
+
+中央银行还反对加密货币挖矿，即强大的计算机与连接到全球网络的其他计算机竞争以解决复杂的数学难题。该银行已就采矿的低效能源消耗和对环境的影响发出警告，而财政部则更愿意在税收基础上允许采矿。
+
+俄罗斯央行没有立即回应置评请求。
 
 参考链接：
-1.[https://www.epochtimes.com/b5/22/2/20/n13592001.htm](https://www.epochtimes.com/b5/22/2/20/n13592001.htm)
-2.[https://gnews.org/zh-hans/1976339/](https://gnews.org/zh-hans/1976339/)
+[https://www.reuters.com/markets/europe/russian-finance-ministry-consider-cbank-proposals-cryptocurrencies-2022-02-21/?taid=6213594300131e0001dc9dc6&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/markets/europe/russian-finance-ministry-consider-cbank-proposals-cryptocurrencies-2022-02-21/?taid=6213594300131e0001dc9dc6&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-素材采编：幽蘭自得
 编辑：老孙
 发布：爱放飞
 

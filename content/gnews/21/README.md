@@ -2,8 +2,8 @@
 ---
 
 
-## 20220220郭文贵大直播 ：投资GTV的基金昨天已拿出了1000万美金作为教育启动资金
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2042001/)
+## 20220220郭文贵大直播 ：中国人的冷漠会导致彭帅，锁链女事件不会成为阿比比事件
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2042066/)
 
 作者：东京樱花团小视频组
 
