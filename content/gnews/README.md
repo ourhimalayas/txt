@@ -15,89 +15,89 @@
 
 ---
 
-### [中美关系从传奇的中国皇后号处女航沦落到如今外交撤离](/content/gnews/1/README.md)
+### [美国的基础:油和面包,律师和会计师,核心企业和卡车指数](/content/gnews/1/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [英女王感染新冠 有轻微症状](/content/gnews/2/README.md)
+### [张艺谋手机划屏式所谓高科技冬奥会开幕式实属廉颇老矣](/content/gnews/2/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [冬奥会主打歌塞北的雪被搅黄了习近平开幕式变成猪肝脸](/content/gnews/3/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [中美关系从传奇的中国皇后号处女航沦落到如今外交撤离](/content/gnews/4/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [英女王感染新冠 有轻微症状](/content/gnews/5/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [泰德·克鲁斯：如果他们不遵守疫苗规定，联合航空公司将解雇他们的员工](/content/gnews/3/README.md)
+### [泰德·克鲁斯：如果他们不遵守疫苗规定，联合航空公司将解雇他们的员工](/content/gnews/6/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [徐州被绑架拐卖的八孩母亲事件无时无刻不在中共国上演](/content/gnews/4/README.md)
+### [徐州被绑架拐卖的八孩母亲事件无时无刻不在中共国上演](/content/gnews/7/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [其他意见 （五）](/content/gnews/5/README.md)
+### [其他意见 （五）](/content/gnews/8/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [习近平量中华上万亿美元之物力结一群叫花子要饭之欢心](/content/gnews/6/README.md)
+### [躺平币浅谈](/content/gnews/9/README.md)
+ ` 首尔天池农场`
+
+### [习近平量中华上万亿美元之物力结一群叫花子要饭之欢心](/content/gnews/10/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [六四党卫军坦克与渥太华皇家铁骑](/content/gnews/7/README.md)
+### [六四党卫军坦克与渥太华皇家铁骑](/content/gnews/11/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [报道显示，随着该地区准备应对冲突，乌克兰东部的炮击已经恢复](/content/gnews/8/README.md)
+### [报道显示，随着该地区准备应对冲突，乌克兰东部的炮击已经恢复](/content/gnews/12/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [穆巴拉克中国人不尊敬中国人一句话刺痛二十出头的七哥](/content/gnews/9/README.md)
+### [穆巴拉克中国人不尊敬中国人一句话刺痛二十出头的七哥](/content/gnews/13/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [对大清国仰慕有加的美国带来北京大学+协和医院+………](/content/gnews/10/README.md)
+### [对大清国仰慕有加的美国带来北京大学+协和医院+………](/content/gnews/14/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [感染过COVID-19的人出现心理健康问题的风险更高](/content/gnews/11/README.md)
+### [感染过COVID-19的人出现心理健康问题的风险更高](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [在顿涅茨克市中心发生强烈爆炸](/content/gnews/12/README.md)
+### [在顿涅茨克市中心发生强烈爆炸](/content/gnews/16/README.md)
  ` GTV News Talk`
 
-### [恭亲王奕訢聘请美国公使代表清国与美国签订浦安臣条约](/content/gnews/13/README.md)
+### [恭亲王奕訢聘请美国公使代表清国与美国签订浦安臣条约](/content/gnews/17/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [国际奥委会主席托马斯·巴赫斥责北京一名中中共国冬奥会官员的政治言论](/content/gnews/14/README.md)
+### [国际奥委会主席托马斯·巴赫斥责北京一名中中共国冬奥会官员的政治言论](/content/gnews/18/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [当地市场飙升1500%，阿联酋向数字货币公司发放许可证](/content/gnews/15/README.md)
+### [当地市场飙升1500%，阿联酋向数字货币公司发放许可证](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [视频|美参议员呼吁停止紧急状态宣言和疫苗强制令](/content/gnews/16/README.md)
+### [视频|美参议员呼吁停止紧急状态宣言和疫苗强制令](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [共产党的封锁统治让中国人彻底脱离了世界文明](/content/gnews/17/README.md)
+### [共产党的封锁统治让中国人彻底脱离了世界文明](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [视频|福奇及一些科学家在病毒来源问题上的腐败](/content/gnews/18/README.md)
+### [视频|福奇及一些科学家在病毒来源问题上的腐败](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [带去人参白银的美国首航中国仰慕有加带回大清朝的火药](/content/gnews/19/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [7•24专题——如中共武力侵台，为何大连一带将被美日摧毁](/content/gnews/20/README.md)
+### [7•24专题——如中共武力侵台，为何大连一带将被美日摧毁](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [视频|耶顿博士抨击政府和技术官僚愚弄大众的行为](/content/gnews/21/README.md)
+### [视频|耶顿博士抨击政府和技术官僚愚弄大众的行为](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [蒲安臣条约前为摆脱英国代理美国首航清国的中国皇后号](/content/gnews/22/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [视频|日媒揭露中共病毒疫苗接种后严重副作用案例](/content/gnews/23/README.md)
+### [视频|日媒揭露中共病毒疫苗接种后严重副作用案例](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [民意调查：大多数美国人支持加拿大自由抗议者](/content/gnews/24/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [美驻莫斯科大使馆警告称，俄罗斯首都可能发生袭击事件](/content/gnews/25/README.md)
+### [美驻莫斯科大使馆警告称，俄罗斯首都可能发生袭击事件](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [一人破产成就无数亿万富豪](/content/gnews/26/README.md)
- ` GTV News Talk`
+### [从单伟建的履历看社会制度与人性的关系(三)](/content/gnews/27/README.md)
+ ` 纽约香草山MOS02`
 
-### [特鲁多政权极具专制性和破坏性](/content/gnews/27/README.md)
+### [特鲁多政权极具专制性和破坏性](/content/gnews/28/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [赖慧如打完疫苗后拍戏，突然昏倒吓坏现场所有人！](/content/gnews/28/README.md)
- ` 蓝莲花农场`
 
 ### [俄乌战争实际已开始前线激战](/content/gnews/29/README.md)
  ` 全球G系列咨服群`
@@ -117,20 +117,20 @@
 ### [有声| 研究显示：TikTok可以绕过苹果和谷歌的隐私保护获取用户数据](/content/gnews/34/README.md)
  ` MOSREC`
 
-### [有声| JP摩根成为第一家加入元宇宙Decentraland (MANA) 的银行](/content/gnews/35/README.md)
- ` MOSREC`
-
-### [中日财经爆|中共国违背承诺 未购买更多缅因州龙虾](/content/gnews/36/README.md)
+### [中日财经爆|中共国违背承诺 未购买更多缅因州龙虾](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆|如果俄入侵乌克兰 美国将立即经济制裁俄罗斯](/content/gnews/37/README.md)
+### [中日财经爆|如果俄入侵乌克兰 美国将立即经济制裁俄罗斯](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [拜登总统和普京总统合意会晤 如果军事入侵则取消](/content/gnews/38/README.md)
+### [拜登总统和普京总统合意会晤 如果军事入侵则取消](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [谈古论今 | 重重压力危机下精神严重被扭曲的中国人](/content/gnews/39/README.md)
+### [谈古论今 | 重重压力危机下精神严重被扭曲的中国人](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
+
+### [卢比奥议员谈论反对中共的政策](/content/gnews/39/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [乌干达正考虑发行本国央行数字货币](/content/gnews/40/README.md)
  ` 墨尔本雅典娜农场`

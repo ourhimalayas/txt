@@ -2,39 +2,20 @@
 ---
 
 
-## 民意调查：大多数美国人支持加拿大自由抗议者
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2039995/)
+## 视频|耶顿博士抨击政府和技术官僚愚弄大众的行为
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2040035/)
 
-编译： Jenny Ball
+制作：香草山视频部
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1942.png)thepostmillennial.com
+越来越多有良知的正义人士已经向我们人类发出警告：病毒并不可怕，完全可以通过正确治疗方法治愈。真正可怕的是极权政府对待疫情的极端防疫措施，通过谎言，疫苗护照和封锁实现对自己本国民众的独裁统治。他们已经完全罔顾作为一个民主国家的民选政府应尽神圣义务，而代之以谎言欺骗愚弄选民。在以下这个视频中，迈克-耶顿博士是这些勇敢的医生的典范，他非常支持加拿大人勇敢的抗争行为，独裁政府不会施舍自由，民众不要被动等待。正如先贤们所讲：“历史是不能容纳谎言的”。
 
-拉斯穆森报告（Rasmussen Reports）发布的一项新民意调查发现，大多数美国人支持加拿大的自由车队抗议者，并认为在边境以南进行类似的支持自由的运动将是“一个好主意”。 调查的受访者被问及：是否支持或反对加拿大卡车司机抗议特鲁多政府的 COVID-19 限制。拉斯穆森报告发现，59% 的受访者支持自由车队，其中 42% 的人“强烈支持”它的存在。
+发稿：谐趣园
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1944.png)
+**更多资讯，更多关注**
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1946.png)thepostmillennial.com
-
-另一方面，33% 的美国选民反对卡车司机抗议，其中 21% 的人“强烈反对”示威。
-
-参议员兰德**·**保罗（**Rand Paul**）等人建议，美国卡车司机应该像加拿大那样举行抗议活动，因为据报道，可能会有一个前往华盛顿的车队。 “你会支持还是反对卡车司机在美国抗议 COVID-19 限制？” 民意调查的参与者被问及。
-
-拉斯穆森报告在推特上说，在独立人士中，意见强烈支持车队和特鲁多结束 COVID-19 限制。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1948.png)thepostmillennial.com
-
-根据拉斯穆森的说法，全国电话和在线调查，于 2 月 13 日至 14 日对 1,000 名可能的选民进行了调查。误差幅度为正负三个百分点，置信度为 95%。
-
-评论：如果主流媒体不在掩盖疫苗危害的真相，如果主流媒体报道加拿大卡车司机和平抗议的真相，民调支持的人数将如怒潮！
-
-素材链接：【thepostmillennial.com】[Majority of Americans support Canadian freedom protesters: poll](https://thepostmillennial.com/majority-of-americans-support-canadian-freedom-protesters-poll)
-
-* * *
-
-审核：文乐
-校对：花羽
-发布：花羽
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-5.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
