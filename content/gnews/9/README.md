@@ -2,73 +2,25 @@
 ---
 
 
-## 醒来，醒来
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2042071/)
+## 北京冬奥会是一次彻底失败的奥林匹克运动会
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2042097/)
 
-作者：香草山教育部 — 蓝之灵（Hortensia)
+撰稿：小湫
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-109-1280x172-1.jpg)
+周日，民主党战略师凯文·沃林（Kevin Walling ）代表国际社会说，2022年北京冬奥会是一个彻底的失败的冬季奥运会，他指出，历史上最低的收视率证明了人们对北京举办的冬奥会普遍持反对态度。就国际社会而言，特别是国际奥委会而言，在中国举办奥运会是一个彻底的失败。沃林对福克斯新闻主持人迈克·伊曼纽尔(Mike Emanuel)说。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/AP22033112787368-22.jpeg)（图片来自网络）
+中国政府因侵犯新疆维吾尔族人权而面临巨大的批评，拜登政府去年12月宣布，由于中国持续的种族灭绝、反人类罪行和其他侵犯人权行为，美国对北京奥运会进行外交抵制。其他几个持同样态度的民主国家也加入了美国的行列，没有派出政治代表团，以示对冬奥会的外交抵制。
 
+国际奥委会坚持说，它在政治问题上是中立的，奥运会是“关于运动员的，也是为了运动员”，但是沃林说，他们对该国存在的种族灭绝活动睁一只眼闭一只眼的决定是国际社会的耻辱。这件事发生在中国针对维吾尔族人的种族灭绝活动期间，这是一种耻辱。我认为这就是为什么美国观众的数量与之前的比赛相比大幅下降的原因之一。
 
+美国全国广播公司(NBC)转播开幕式的观众人数出现了历史性的新低，只有1600万观众收看了开幕式，比上届奥运会下降了43%。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/战友心声2.jpeg)
+共和党战略家Quill Robinson表示，中国将开办奥运会视为一个提升其国际形象的机会，但也正如凯文·沃林指出的那样，它最终是一个彻底的失败。这是收视率纪录最低点，尽管他们所有的努力，所有奥运会周围的情况，真正显示的是中国现在犯下种族灭绝的罪行，我不认为奥运会可以扭转其形象。
 
-传播真相
+参考信息
 
-对抗强权
-
-为了后代 醒来，醒来
-
-每一次传播
-
-是射向他们子弹
-
-把深层政府阴暗
-
-放在阳光下暴晒
-
-醒来醒来
-
-不再沉睡和冬眠
-
-动动手指
-
-仔细聆听
-
-告诉右舍左邻
-
-人们被蒙蔽欺骗
-
-把真相传播到
-
-世界各个角落
-
-让更多人们
-
-醒来，醒来
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-7.jpg)
-
-*编辑 /校对*：*Yuki*jiang
-
-*发稿：Yuki*jiang
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[1Beijing Olympics a ‘complete failure’ for the international community: Democratic strategist](https://www.foxnews.com/media/beijing-olympics-complete-failure-democrat-stategist-kevin-walling)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

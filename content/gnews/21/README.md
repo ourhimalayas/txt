@@ -2,8 +2,8 @@
 ---
 
 
-## 20220220郭文贵大直播 ：普习早就是生死联盟的关系
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2041983/)
+## 20220220郭文贵大直播 ：投资GTV的基金昨天已拿出了1000万美金作为教育启动资金
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2042001/)
 
 作者：东京樱花团小视频组
 

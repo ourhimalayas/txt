@@ -2,35 +2,53 @@
 ---
 
 
-## 灭共小诗
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2042028/)
+## 冬奥.梦一场
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2042039/)
 
-撰稿：东京樱花团/ Milescool
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1966.png)
-冬奧為錢來哈腰！
+撰稿：东京樱花团/塞伦盖蒂
 
-盪胸作秀甚無聊！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/樱花灭共诗.png)
 
-百姓貧苦困嗟嘆！
+冬奥是冬熬，
 
-貪婪政府扣國門！
+百姓苦难消。
 
-各國運動員投訴！
+君王不惜力，
 
-殘杯冷羹嚐不得！
+数邦乞今朝。
 
-國民毒苗奄一息！
+争吮华夏血，
 
-皇帝臉暗亦失色！
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1967.png)
+千里乐迢迢。
+
+小国献党话，
+
+沙俄实处要。
+
+塞北千山雪，
+
+一一为人造。
+
+燕地失慷慨，
+
+悲歌面难笑。
+
+万人强付宴，
+
+亿民失业潮。
+
+兴亡迷冲喜，
+
+恶尽始来报。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/冬奥.梦一场.png)
 消息来源：
 
-盖特：[https://gettr.com/post/pt20s30d5b](https://gettr.com/post/pt20s30d5b)
+盖特：[https://gettr.com/post/ptgxaf122b](https://gettr.com/post/ptgxaf122b)
 
 *图片：东京樱花团/夏目&山竹
 编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -3,29 +3,29 @@
 
 
 ## 灭共小诗
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2041994/)
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2042028/)
 
 撰稿：东京樱花团/ Milescool
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1964.png)
-普京親身來北京！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1966.png)
+冬奧為錢來哈腰！
 
-不知他須否取精！
+盪胸作秀甚無聊！
 
-冬奧乃習皇神秀！
+百姓貧苦困嗟嘆！
 
-痛飲狂歌潛悲辛！
+貪婪政府扣國門！
 
-庶民饑渴皆不顧！
+各國運動員投訴！
 
-皇帝顏面亮滿襟！
+殘杯冷羹嚐不得！
 
-新中國聯邦眾安！
+國民毒苗奄一息！
 
-靜候滅共報佳音！
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1965.png)
+皇帝臉暗亦失色！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1967.png)
 消息来源：
 
-盖特：[https://gettr.com/post/pse51pb0ce](https://gettr.com/post/pse51pb0ce)
+盖特：[https://gettr.com/post/pt20s30d5b](https://gettr.com/post/pt20s30d5b)
 
 *图片：东京樱花团/夏目&山竹
 编辑：东京樱花团/知了知了
