@@ -2,31 +2,30 @@
 ---
 
 
-## 有声|特鲁多将34个加密货币钱包列入黑名单
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2039297/)
+## 中日财经爆|中共国靠生产病毒检测试剂大发横财
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2039489/)
 
-配音：香草山巡管部 – 格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-据外媒 2月16日报道，特鲁多向联邦警察部队发出命令，要求加拿大所有受FINTRAC 监管的公司停止与34个加密货币钱包进行交易，这些钱包据称与渥太华的自由车队有关。
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1937.png)[图片来源](https://www.rfa.org/mandarin/yataibaodao/huanjing/cl-07212021144923.html)
+中共病毒omicron变种全球大爆发，引发全世界对中共国抗原快筛试剂盒的巨大需求，官方核可的制造商赢得大订单，靠病毒检测大发横财。
 
-特鲁多政府官员列出了29个比特币地址，2个以太坊，以及另外三个加密货币钱包。经确认，至少有一个钱包价值超过100万美元的比特币，通过加密货币支持自由车队的卡车司机。
+九安医疗（Andon Health）业绩连7年亏损，累计超过7亿元人民币，直到这家中共国医疗器材商转为外销出口家庭快筛试剂盒，才扭转衰运，去年大赚12亿元，弥补过去7年亏损还有剩。
 
-特鲁多政府对支持合法和平抗议的赞助资金疯狂阻截，遭到各界抨击。
+不只九安医疗，其他中共国检测试剂制造商也拿到大量政府订单，大赚更多，因为“清零”防疫战略的重点就是“一人确诊、强制全市筛检”，这背后涉及中共高官白手套和家属敛财黑幕。
 
-文字版原文：[特鲁多将34个加密货币钱包列入黑名单](https://gnews.org/zh-hans/2028558/)
+网上近日盛传哈佛学者黄万盛一段谈话录音，其中提到中共国某一集团仅靠核酸检测（PCR）一项就“赚了6700亿人民币”，由此可见，官方动辄下令全市PCR核酸检测，多半是为了方便中共权贵敛财，防疫只是借口。
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+2021年，中共国向全球出口约110亿美元（3065亿元台币）的抗原检测试剂盒，一半以上销往欧盟，其中德国买最多，花费37亿美元进口中共国制快筛盒，英国占总数的四分之一以上，而美国也进口逾4.2亿美元的中共国制家用试剂盒。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+欧盟核可约150家抗原试剂盒制造商当中，有一半以上是中共国公司，全球仅有13家抗原试剂盒制造商取得获得美国FDA的EUA，其中，中共国公司也占了约四分之一。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+未来家用试剂盒销售将再次得到提振，原因是美国总统拜登上个月表示，学校检测量将提高一倍，达到每个月约1000万次，这样一来，学校就可以保持开放，政府将为此投入约1300亿美元，来资助扩大使用家用快筛盒。
+
+消息来源：[北京嚴苛「清零」防疫戰略誰得利？中國試劑盒製造商大發「疫情財」](https://www.cmmedia.com.tw/home/articles/32366?utm_source=YH)
+
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

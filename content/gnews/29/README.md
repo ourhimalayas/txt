@@ -2,34 +2,25 @@
 ---
 
 
-## 美计划增加稀土库存 减少对中共的依赖
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2039286/)
+## 喜马拉雅币一周分析与总结（2月4日-2月20日）
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2039449/)
 
-作者：纽约香草山—柳是多水土透
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-海外媒体2月19日消息，美国五角大楼国防部计划增加为美国政府管理的稀土矿、钴和锂的库存，以减少对中共国的长期依赖。知情人士称，新的库存协议指南预计最早将于下周公布。
-
-据悉，稀土是一类重要的工业生产材料，广泛用于电子科技、军工、材料工业等领域。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-8.jpg)
-中共国稀土储量相对充足。中共政权则盲目追求经济效益，忽视本土工业科技的发展，在过去的30年，依靠其掌控的廉价劳动力，大量开采并出口初级稀土矿石，获取外汇储备。而美国由于环境污染等原因，在稀土的初级开采和加工方面一直没有大量投入，长期从中共进口。
-
-近两年，美国逐渐认清中共的邪恶面目，采取了一系列措施对中共进行制裁，并逐渐在科技、经济、外交等方面与中共脱钩，中共则试图以稀土供应作为要挟，强迫美国接受他们提出的种种不合理要求。在这种情况下，美国许多锂矿和稀土初级矿商曾希望美国国防部购买更多的国内产品。
-
-不过，媒体称，暂时不清楚五角大楼准备增加的储存材料来源是哪里。
-
+作者：香草山金融部 – ILOVE战神
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+过去一周喜马拉雅币价格在45美元附近波动，平均日交易量约9万枚喜币。喜币上市以来总交易量约2870万枚 ，占今年总发行量的仅约2.87%。目前喜币交易在全球尚未完全开放，市场交易量较低，价格仍被严重低估。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1931.png)
+本周据郭文贵先生在大直播中透露，一个月内喜支付将推出新政策，包括喜贷款和喜抵押。喜交所也将发布重大的投资利好公告。喜交所还会很快会推出比特币和其它数字货币交易。即将推出的躺平币将独立于喜币运营，有自己独立的支付系统GettrPay（盖特支付），还会有自己独立的贷款系统。除此之外，躺平币可以在喜交所进行交易，喜币也可以在盖特平台上交易。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1932.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1935.png)
+郭先生还在直播和盖特中透露，已故的三度夺取F1世界冠军的巴西赛车手埃尔顿·塞纳曾经驾驶的迈凯伦福特 MP4/8A赛车最近通过喜币完成了交易，这笔数字货币交易将是深远影响数字货币与现实生活生产力进行公平交易的一个里程碑事件。另外喜联储还在与多家线上线下商城商谈合作，未来将会有多个G-Mall出现，而且还会有很多地方接受喜币买房。喜币将在流通领域开创数字货币的传奇，使人类经济活动回归到物物交换的本源，实现高效率、去中介化、零成本，而且没有地域限制的货币全球流通。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1933.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1934.png)
 参考链接：
-[EXCLUSIVE Pentagon to boost rare earths and lithium stockpiles -sources](https://www.reuters.com/world/us/exclusive-pentagon-boost-rare-earths-lithium-stockpiles-sources-2022-02-18/)
+1、[https://himalaya.exchange/himalaya-pay](https://himalaya.exchange/himalaya-pay)
+2、[用喜币支付购买巴西车神塞纳战车是里程碑事件](https://gnews.org/zh-hans/2020727/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-3.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
 编辑/总编：飞虹
-校正/发稿：为真不破20
+校正/发稿：小野貓（文凱琳）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -39,8 +30,6 @@
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-8.png)
-
-
 
  
 

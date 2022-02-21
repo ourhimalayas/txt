@@ -2,29 +2,28 @@
 ---
 
 
-## 有声|美国汉堡价格超过了生活成本
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2039296/)
+## 乌克兰总统在主要国会议上提出新安全保障要求
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2039476/)
 
-配音：香草山巡管部 – 格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-随着麦当劳的标志性巨无霸汉堡风靡全美，美国经济学人在1986年发布了巨无霸汉堡指数，该指数纳入了购买力平价的概念。巨无霸的价格包含着多种经济因素，包括劳动力、交通、食品和整体通胀成本，当然，这也成为了解当前通胀率和美元购买力的重要参考指数。多个国家都将汉堡视为衡量不同货币购买力的一些要素。
+撰稿：东京樱花团/向海
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片5-1.jpg)[图片来源](https://www3.nhk.or.jp/news/html/20220220/K10013493331_2202200718_2202200721_01_02.jpg)
+据路透社报道，乌克兰总统泽连斯基19日在慕尼黑安理会发表讲话，称乌克兰应召开大国会议以获得新的安全承诺。
 
-目前，巨无霸汉堡价格上涨速度超过了其他几项经济指标，汉堡在美国均价为6.05美元，较过去十年增加了40% ，生活成本变得愈加昂贵。从2020年12月到2021年12月，通胀率高达7% ，仅去年巨无霸价格就上涨了7%。与巨无霸汉堡同时上涨快速的指数包括租金与二手车，而房价飙升指数更高，达到了107%。虽然美联储计划提高利率来压制近40年未见的通胀率，但曙光甚远。
+乌克兰还敦促北约成员国（ＮＡＴＯ）明确对其加入为成员国的请求表明立场。
 
-文字版原文：[美国汉堡价格超过了生活成本](https://gnews.org/zh-hans/2028478/)
+他指出，世界几十年前商定的规则已不能发挥作用。不适用于当前新的威胁，也不能有效制约。
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+世界安全结构“几近崩溃”，请求与包括俄罗斯在内的联合国安理会常任理事国德国和土耳其举行会议，为乌克兰提供新的安全保障。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+他还认为，如果西方国家确信俄罗斯即将发动袭击，就应该行动而不是制裁警告。在攻击开始后再行动是没有意义的。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+泽连斯基进一步强调，各国应就乌克兰是否能加入欧盟（EU）或北约明确立场。如果有成员不希望乌克兰加入，或者如果所有成员都不希望乌克兰加入，他们应该坦诚表明。
+
+[信息来源](https://news.yahoo.co.jp/articles/fa44ce1f063f90736c179a285d2a92321546ce5a)
+
+*校对：东京樱花团/百花李香
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
