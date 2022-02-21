@@ -2,43 +2,37 @@
 ---
 
 
-## 躺平激怒中共
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2039045/)
+## 瑞典运动员谴责奥委会授权中共国举办冬奥会
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2039055/)
 
-素材整理：波士顿五月花Vicky
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-21-at-10.15.56-AM.png)图片来源：互联网
-最早提到“躺平”这个词可以追溯到去年4月，中国的在线论坛百度铁算盘上的一个帖子。
+作者：纽约香草山教育部 Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-45.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/4589.jpg) Photograph: Matsuo K/AFLO/REX/Shutterstock 
+来自瑞典的冬奥会金牌得主25岁的速滑运动员尼尔斯·范德波尔在北京活动回国后向媒体表示，国际奥委会决定在人权情况糟糕的中国举办冬奥会是非常不负责任的。
 
-在这篇已被删除的帖子中，作者描述了他如何在没有稳定工作的情况下，靠每月不到200元人民币（31.62美元）的收入过上好日子。
+人权团体呼吁各国政府和赞助商广泛抵制本次冬奥会。包括美国、英国和澳大利亚在内的几个国家都对这项赛事进行了外交抵制，同时人们一直非常关注参赛运动员的抗议情况。
 
-他写道：“我的日常工作就是在家里躺着，在外面躺着，像猫或狗一样懒洋洋地躺着。”宇宙中唯一的客观真理就是“躺平”。
+奥运会上的抗议行为通常违反国际奥委会制定的规则，将会面临惩罚。人权倡导者警告运动员在北京参加奥运会期间不要采取任何行动，包括发表声明，但建议他们回国后可以大声说出来。
 
-由于对经济不平等和在工作中辛勤劳作，但回报甚微的就业环境越来越失望，许多中国年轻人正在选择完全跳出老鼠的行列。
+随着冬奥赛事结束，越来越多的运动员回国，越来越多的冬奥会真相被他们传播出来，中共以假治国，无视人权，反人类的真面目必被曝光于天下。
 
-这种现象去年在网上一出现，立即引起了年轻人的共鸣，他们认同这种生活方式，没有什么欲望，包括减少工作，放弃房子和汽车，避免购物，拒绝结婚和做父母。
+新闻链接：[https://amp.theguardian.com/sport/2022/feb/18/chinas-human-rights-record-made-winter-olympics-irresponsible-says-swedish-athlete](https://amp.theguardian.com/sport/2022/feb/18/chinas-human-rights-record-made-winter-olympics-irresponsible-says-swedish-athlete)
 
-学者们说，“躺平”体现了一种顺从的心态，即无论他人如何反应，都不为压力所动。
+编辑/校对/发稿：小小安
 
-尽管这是一种没有明确政治动机的生活方式选择，但它似乎已经触动了中共当局的神经，促使北京采取行动，他们已经加强了网络监控，以阻止有关主张退出日常工作运动的评论。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-40.jpg)
 
-国家媒体更是发起了反击，谴责 “平躺 “是 “意识形态毒药”，并警告说不要 “先躺下再发财”。
+**更多资讯，更多关注**
 
-根据《纽约时报》获得的一份文件，中国互联网监管机构于去年5月下令社交媒体网站 “严格限制 “提及 “躺平”，并要求电子商务平台停止销售带有该口号的商品。
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-“躺平”主要反映了面对日益严重的不平等现象时普遍存在的无力感。
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-年轻人的就业市场竞争越来越激烈，长时间工作已经成为常态，典型的例子是 “996 “工作周–从早上9点到晚上9点，每周6天。
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-因此，出现了一个常见的说法，并在工人中引起了共鸣。”如果你不能站起来，也不愿意跪下，那就干脆平躺着，这种学说是对不平等、低工资和辛勤工作得不到回报的一种反击。
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-在 “共同富裕 “的旗帜下，中共正在实施严厉的措施，加强网络监控，阻止关于 “躺平 “的讨论，控制掩盖社会不满情绪的蔓延。
-
-参考链接：[《TAIPEI TIMES》 ‘Lying flat’ riles Beijing: MAC](https://news.ltn.com.tw/news/focus/breakingnews/3835895)
-
-* * *
-
-*编辑&发布：Vicky*
-
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-44.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

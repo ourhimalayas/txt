@@ -2,8 +2,8 @@
 ---
 
 
-## 普京和习近平有惊天的秘密（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2039012/)
+## 乌克兰就跟当年罗斯福对待二战是一模一样
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2039049/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

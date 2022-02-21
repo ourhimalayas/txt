@@ -2,37 +2,12 @@
 ---
 
 
-## 有声|台外长表示不想战争但绝不向中共低头
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2038985/)
+## 俄州医生的执照因其对中共病毒进行早期治疗而被吊销
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2039016/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月17日，英国一家电视台对台湾外交部长吴钊燮做了专访，并以“台湾忧心俄罗斯侵略行为促成中共大胆攻台”为标题，进行了报导。吴外长接受采访时表示，台湾不想战争，但绝不会因为畏战而向中共低头。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-8.jpeg)
-采访记者认为，中共正密切关注乌克兰情势与俄罗斯的策略，尤其是美国对乌克兰危机的反应，并询问吴外长台湾的预测和态度。对此，吴外长表示，冬奥结束之后，中共何时会发动攻击，谁也不知道。 近一年，中共军机持续侵扰台湾防空识别区，明显有攻打台湾的意图。所有民主国家都会坚决捍卫自己的生活方式，台湾也会做好随时因应中共攻击的准备。
+02/15/2022 俄勒冈州的史蒂夫·拉图利佩医生：他对中共病毒患者采用了早期疗法,并取得了 100% 的成功。医疗委员会滥用权力，吊销了他的医生执照，以惩罚他告诉世界新冠病毒很容易治疗。医疗委员会知道所谓的疫苗即将来到。州医疗委员会联合会最近表示，他们将追查所有散布所谓错误信息的医生。他支持卡车司机，这些卡车司机正做着医生不能或不愿意做的事情，来夺回他们自己的国家了。
 
-采访中，吴外长也表示感谢英国和许多友台国家，以实际行动支援、维持台海的自由航行权，展现出民主国家团结的力量。台湾很难单独面对中共威权的压制，需要世界各地民主国家团结起来，力量才会更强大。
-
-
-
-文字版原文：[台外长表示不想战争但绝不向中共低头](https://gnews.org/zh-hans/2037443/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

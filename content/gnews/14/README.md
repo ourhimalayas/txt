@@ -2,8 +2,8 @@
 ---
 
 
-## 中俄合作的利益巨大
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2038835/)
+## 不幸的是战争就这么发生了
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2038927/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
