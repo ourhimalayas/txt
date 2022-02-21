@@ -2,42 +2,27 @@
 ---
 
 
-## 徐州被绑架拐卖的八孩母亲事件无时无刻不在中共国上演
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2040256/)
+## 特首选举押后！中共要求香港在两月内控疫
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2040337/)
 
-G-TV视频链接：[https://gtv.org/video/id=621259531408ee3a03a24f77](https://gtv.org/video/id=621259531408ee3a03a24f77)
+2月21日，据香港01新闻报道称，香港特首选举延期至5月举行，全国侨联副主席卢文端撰文指，选举押后反映中共要求香港要在两个月之内控制疫情，并且在7月1日前完成整个选举及中共任命程序，不应拖延。
 
-**郭文贵先生：**然后呢很多人说那个在江苏出现那个女的，被绑在那生了8个孩子那女的。兄弟姐妹们，2017年我爆料的时候都说过，在我老家台前县我小时候都跟人家去过，打着我名声去买媳妇去。我可以告诉你就那个绑着链子，绑着……就在我们老家，我现在我家，我村里边，你可以就是放开眼睛不用走出去，你站我家屋顶上你看一看，你能数出十个八个出来。就现在被绑着的，你看你看就JessicaG和宝宝到我们老家，就很有可能就给绑了，绑着撂那去了，就跟狗一样，一喂十几年、二十年。
+他指中共非常不希望见到，香港回归25周年纪念日庆典乃至中共党魁来港视察，会受疫情影响。
 
-他们那些人在我老家生的孩子，就被绑架以后卖给别人生的孩子，现在都有人在我们盘古打工的。你以为这事稀奇吗？可悲的中国人、可恨的中国人、可怜的中国人。没有比今天中国人再可怕的了。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/hiTVHrq_3C3gPOExY3G5wpnUHrGfegQo592QOefdkDk_副本.jpg)图片来源：香港01
 
-字幕来源：[2022年2月4日《文贵大直播》全文字版](https://gnews.org/zh-hans/1961700/)
+自19年香港反送中以来，接近快三年的光景，港人在林正月娥的港共政府下受尽了磨难，为了自由香港做出了巨大的牺牲。如今在中共病毒疫情与疫苗的双重灾难下，中共不顾港人的死活，为了自己的面子工程要强行控制疫情，来保障香港特首与中共党魁的安全。
 
-编辑整理：Jacques；
+对于控制疫情，简单粗暴的手段一直是中共邪恶的做法，希望港人不要被中共迷惑。疫苗大灾难还没有到来，中共只有谎言与屠杀，而唯一能带来中共病毒真相与疫苗解药的地方只有新中国联邦。希望更多的港人加入喜马拉雅联盟农场，一起携手度过这次大灾难！
 
-字幕文件制作：小满；
+新闻来源：[香港01](https://www.hk01.com/%E6%94%BF%E6%83%85/738247/%E7%89%B9%E9%A6%96%E9%81%B8%E8%88%89%E6%8A%BC%E5%BE%8C-%E7%9B%A7%E6%96%87%E7%AB%AF-%E4%B8%AD%E5%A4%AE%E8%A6%81%E6%B1%82%E5%9C%A8%E5%85%A9%E6%9C%88%E5%85%A7%E6%8E%A7%E7%96%AB-%E5%85%8D%E5%BD%B1%E9%9F%BF%E9%A0%98%E5%B0%8E%E4%BA%BA%E4%BE%86%E6%B8%AF)
 
-视频制作及上传：Cindy；
+撰稿/发布：一叶知秋
 
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

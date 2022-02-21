@@ -2,32 +2,44 @@
 ---
 
 
-## 不注射疫苗，就没有民主？意大利50岁以上没有疫苗通行证的政客被禁止进入议会
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2040235/)
+## 中美关系从传奇的中国皇后号处女航沦落到如今外交撤离
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2040288/)
 
-撰稿：玄鸟
-校对：Streamline
-上传：无明逆流
+G-TV视频链接：[https://gtv.org/video/id=6212598e1408ee3a03a24fa8](https://gtv.org/video/id=6212598e1408ee3a03a24fa8)
 
-据布莱特巴特新闻网（www.breitbart.com）19日报道，意大利50岁以上的立法者，需要有冠状病毒健康通行证，才能进入该国议会。一些人将这与生活在前法西斯政权下的规定相比较。
+**郭文贵先生：**所以人家美国叫外交撤离，人家说到这儿，就那个美国朋友说：“Miles，我们谈过美国历史，美国人什么时候不尊重中国人了？你们现在像‘玻璃心’一样，动不动就说美国人伤害你们了，动不动就是美帝国主义了。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/G81.jpg)图片来源：原新闻
+他说：“我们美国人怎么着你了？”这人家说的是实话。美国人从头到尾对中国人都是尊敬的，人家没想跟你作对，你非往上撞，是不是？非要撞人身上：“你看看，你侮辱我了吧？”是不是？人家走走道，你就给人家绊一跟头人家趴在地上——（你）说：“你看看，你趴我身上干什么？”——你就这种流氓。
 
-五星运动（M5S）前成员、参议员马里奥·贾鲁索（Mario Giarrusso），现年 56 岁，他谈到未接种疫苗的政客被禁止进入议会时，称其为“共和国历史上最黑暗的一页。” 这一页让人联想到法西斯政权的反对者被驱逐出议会的情况。“然而，仅在下午，在马克西姆斯角斗场（the Circus Maximus），我发现成千上万的市民在反抗，我不感到孤单， 这给了我很大的勇气”，他补充说，并称赞了本周早些时候在罗马举行的反对健康通行证抗议的活动。意大利日报（Il Giornale）报道。
+就是美国外交撤离真是逼到一点办法没有，然后你搞出一个这样的精神阳痿的冬奥会。但凡有点良知的中国人，你要看不到这个本质，我们真的白活了。想想、学学中国历史，你们都不知道中国大清朝建交这段精美的、完美的、传奇的《中国皇后号》《蒲安臣合约》。你去想想别人还知道吗？
 
-参议员埃马努埃勒.德西(Emanuele Dessì)，也是前M5S的成员，在意大利参议院所在的马达玛宫（the Madama Palace）外举行了抗议活动，并表示他已就此事向参议院诉讼办公室提交了上诉。
+字幕来源：[2022年2月4日《文贵大直播》全文字版](https://gnews.org/zh-hans/1961700/)
 
-“参议院不是我的工作地点,参议员是选举产生的职位，而不是工作。 在这里，不仅我的自由正在收缩，而且要求我在这些议院代表他们的数十万选民的自由也在收缩，”,德西说。并补充道，“现在这里正在实施政治紧急管控，而不是健康紧急保障。”
+编辑整理：Jacques；
 
-禁止当选议员进入议会是更广泛法案的一部分，法案规定所有50岁以上的意大利人必须接种武汉病毒疫苗，该法案于本周早些时候生效。
+字幕文件制作：小满；
 
-法案规定，只有那些已经从冠状病毒中康复过来的人，或者那些被认为已经完全接种疫苗的人，才被允许进入某些工作场所。
+视频制作及上传：Cindy；
 
-作为意大利执政联盟的一部分，马泰奥·萨尔维尼 (Matteo Salvini) 的民粹主义联盟 (Lega) 党最初反对这些限制，认为它使用的是意识形态而非科学标准。 然而，他们现在支持政府，称他们 “满意 “于在谈判期间阻止了一项禁止没有疫苗接种或康复证明的人进入公共建筑、银行、邮局、非必需品商店、理发师和美发店的提案。
+G-News发布：小满；
 
-上月底，据估计，针对50岁以上人群的强制性疫苗政策可能影响多达180万意大利人，他们在未接种疫苗或没有康复证明的情况下上班，将面临600欧元（499英镑/668美元）至1500欧元（1248英镑/1671美元）的罚款。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-信息来源：[No Jab, No Democracy? Politicians Over 50 Banned from Entering Italy’s Parliament Without Covid Pass](https://www.breitbart.com/europe/2022/02/19/no-jab-no-democracy-politicians-over-50-banned-from-entering-italys-parliament-without-covid-pass/)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

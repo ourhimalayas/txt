@@ -2,45 +2,114 @@
 ---
 
 
-## 国际奥委会主席托马斯·巴赫斥责北京一名中中共国冬奥会官员的政治言论
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2040133/)
+## 报道显示，随着该地区准备应对冲突，乌克兰东部的炮击已经恢复
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2040201/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/beijingwinterolympicsratings1-640x480-1.jpg)资料图
-来自《纽约时报》The New York Times 2022年02月18日的报道，国际奥委会主席托马斯·巴赫在周五的新闻发布会上对一名中共国奥运官员发出进行了罕见的、出乎意料的斥责批评。在他发表上述言论之前，北京冬奥会女发言人严家蓉在前一天的新闻发布会上发表了似乎违反了奥林匹克政治中立原则的言论，之后他发表了自己评论。
+[https://gtv.org/video/id=621308911408ee3a03a2d217](https://gtv.org/video/id=621308911408ee3a03a2d217)
 
-巴赫说：“在这次新闻发布会之后，我们立即与北京奥组委取得了联系。，” 巴赫说（他使用了北京奥组委的缩写），“北京奥组委和国际奥委会这两个组织都重申了保持政治中立的明确承诺，这是奥林匹克宪章的要求。”
+John Roberts (Fox News host)
+约翰·罗伯茨 (福克斯新闻主持人)
 
-周四，当被问及台湾的运动员是否会在出席周日的闭幕式上出席时，严家蓉回答说：“我想说的是，世界上只有一个中共国。”。台湾是一个自治的民主岛国，实行自我管理，但被中共北京政府视为中共国领土的一部分。曾是中共国驻联合国代表的严家蓉说：“台湾是中共国不可分割的一部分。”。台湾在冬奥会期间以中华台北的名义参赛。
+Here’s our Trey Yingst live in Kiev
+这是我们的特雷·英斯特在基辅的现场直播
 
-在奥委会发言人被问及制衣服的材料是否是在自中共国新疆地区使用强迫劳工动力生产的问题后，严家蓉也插话发言发表了看法。她说：“我认为这些问题都是基于谎言，一些当局已经用大量确凿的证据对这种虚假信息提出了质疑。”
+Trey, what are the last 24 hours look like there?
+特雷，过去 24 小时在那里是什么情况？
 
-严家蓉的言论似乎违反了奥林匹克宪章第50条规则，该规则条禁止在奥运会上进行任何形式的“示威或政治、宗教或种族宣传”。
+Trey Yingst (Fox News foreign correspondent)
+特雷·英斯特（福克斯新闻驻外记者）
 
-虽然巴赫没有直接谴责严家蓉的言论，但即使是温和的批评，也相当于他对中共国发表的一些最强烈的言论。巴赫在奥运会前不遗余力地将其定位为政治中立的活动，而且必须保持政治中立，尽管这长期以来一直是国际奥委会的理想而非现实。
+John, Good afternoon, the momentum in this crisis
+约翰，下午好，这场危机的势头
 
-开幕式当晚，当巴赫被问及他是否对维吾尔族（新疆主要是穆斯林少数民族）–维吾尔族有什么想说的时，他拒绝发表评论。中共国对维吾尔人的镇压被美国政府称为种族灭绝。他说：“如果我们站在政治立场上，卷入紧张局势、争端和政治力量的对抗之中，那么我们就会把奥运会置于危险之中。”
+has clearly shifted over the past 24 hours
+在过去 24 小时内已经明显发生了变化
 
-简评：
-中共的官员都是非常敬业的演员，他们非常善于把握住机会为领导表演。关于台湾的运动员是否会在周日的闭幕式上出席的问题，如果中共举办冬奥会遵守奥林匹克宪章的规则，那么台湾的运动员就应该出席周日的闭幕式。但严家蓉此刻嗅到了“是时候表演真正的技术”的机会，立马跳出来将中共老生常谈的官方措辞拿出来。正常人会觉得莫民名奇妙，但领导很高兴，而普通民众再一次被洗脑。作为一位女士，希望严家蓉有一天也可以在记者会面前，义正言辞的为徐州锁链女呼喊正义，为网球明星彭帅遭受的迫害喊冤。
-哪怕是国际奥委会对中共不疼不痒的批评也会引得媒体的一片惊诧，说明国际奥运会与中共的勾兑太深，国际社会早有共识。从这一事件中我们还可以看出，北京举办的此次失败的冬奥会以及冬奥会期间出现的一系列丑闻造成的恶劣的国际影响，已经促使国际奥委会官员要与中共划清界限了。可以想见，中共被国际组织孤立的局面将越来越严峻。
-尽然选择对中共实施种族灭绝的犯罪行为视而不见，对中共亵渎奥林匹克宪章的行为敢怒不敢言。正所谓‘拿人家手软，吃人家嘴短’，而国际奥运会拿了中共的钱，一定会断送自己未来的命运。
+Today in eastern Ukraine there were more than 40 ceasefire violations reported
+今天在乌克兰东部有40多起违反停火的事件报告
 
-新闻链接:[https://www.nytimes.com/2022/02/17/sports/olympics/ioc-thomas-bach-chinese-official.html](https://www.nytimes.com/2022/02/17/sports/olympics/ioc-thomas-bach-chinese-official.html)
+I spoke with a top military officer today who said
+我今天与一位高级军官交谈，他说
 
-翻译/简评: kkoto(芬兰大灰狼)
+his troops from the Ukrainian side are now responding
+他的来自乌克兰方面的部队现在正在做出回应
 
-PR: Harvey（叶知秋）
+Also reports at this hour indicate the showing continues
+此刻的报告还显示行动仍在继续
+
+The images you see here are from a kindergarten in Ukraine
+你在这里看到的图片来自乌克兰的一所学前幼儿园
+
+It was hit today with an artillery shell fired by Russian backed separatists
+今天它被俄罗斯支持的分离主义分子发射的炮弹击中
+
+The event was confirmed by Ukraine’s foreign minister
+乌克兰外长证实了这一事件
+
+who said heavy weapons were used in this particular village
+他说他们对这个特定的村庄使用了重型武器
+
+showings were also reported in a number of other locations
+其他一些地方也有报告说出现了这种情况
+
+Analysts fear this escalation could act as a pretext for Russia
+分析人士担心这种升级可能成为俄罗斯的借口
+
+to launch a larger invasion into Ukraine
+对乌克兰发动更大规模的入侵
+
+Satellite images released yesterday show
+昨天发布的卫星图像显示
+
+additional Russian troops arriving at the Ukrainian border
+更多俄罗斯军队抵达乌克兰边境
+
+They also detail a new bridge that’s been constructed just miles from Ukraine
+他们还详细介绍了一座距离乌克兰仅数英里的新桥
+
+The US says at least 7000 new Russian soldiers have arrived in recent days
+美国称最近几天至少有7000名新的俄罗斯士兵抵达那里
+
+US Secretary of State Anthony Blinken did speak today
+美国国务卿安东尼·布林肯今天确实发表了讲话
+
+before the UN Security Council basically urging Russia to step back from the brink of war
+在联合国安理会基本上敦促俄罗斯退出战争边缘之前
+
+It’s a dire situation other analysts see Russia moving more field hospitals
+其他分析人士认为俄罗斯正在转移更多的野战医院和对边境的血液供应
+
+and blood supplies to the border
+这是一个可怕的情况
+
+indicating they’re preparing for battle. John
+表明他们正在准备战斗，约翰
+
+John robbers
+约翰·罗伯茨
+
+Trey Yingst in Ukraine, Trey, Thank you
+特雷·英斯特在乌克兰，特雷，谢谢你
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+Date:02/19/2022
+原视频标题:Reports indicate shelling has resumed in Eastern Ukraine as the region braces for conflict
+报道显示，随着该地区准备应对冲突，乌克兰东部的炮击已经恢复
+原视频日期：2022/02/19
+原视频链接[**https://twitter.com/treyyingst/status/1494382395923087364?s=24**](https://twitter.com/treyyingst/status/1494382395923087364?s=24)
+任务编号：KE410（3788）
+视频时间段 : 0:00-1:25
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-庚子
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

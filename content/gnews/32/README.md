@@ -2,27 +2,26 @@
 ---
 
 
-## 有声| NFSC新闻、G|TV新闻访谈简报|2022年2月18日早
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2039674/)
+## 特鲁多政权极具专制性和破坏性
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2039942/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-1-4.png)
+采编/编译撰稿：薇文 校对编辑：硫酸羟氯喹64
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/vw0218trudeau-1-edited.jpg)图片来源：financialpost.
 
 
-文字版原文：[NFSC新闻、G|TV新闻访谈简报|2022年2月18日早](https://gnews.org/zh-hans/2027141/)
+据加拿大【金融邮报】2月18日报道，[世界经济论坛]主席施瓦布近日对媒体公开表示，在特鲁多自由党内阁成员中，大部分都是出自该组织的所谓“全球青年领袖”。
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+报道称，[世界经济论坛]计划在彻底毁坏全球经济后进行大重启，并通过其企业领导人担任各国政府要职，形成全球极权统治模式。特鲁多前幕僚长、达沃斯党人布茨就是最好的例证。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+目前，特鲁多当局利用已严重破坏了本国经济的疫情，作为其管控加拿大的契机。而该独裁机制必将引发社会动荡，最终引燃了如同自由车队运动这样的民众反抗。面对崩溃的局面，特鲁多却将其失败归咎为国外势力的渗透和资助。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+对此，文贵先生表示，作为达沃斯论坛等黑暗势力的鹰犬，特鲁多必定会对反政府的自由车队进行武力镇压，这也是为何[新中国联邦]不能直接参与这次抗议运动中的根本原因。同时，作为服务于黑暗势力的奴仆，特鲁多最终会被其主子出卖和抛弃，沦为其邪恶罪行的替罪羊而遭正义的严惩。
+
+发稿：文明(添草灭共)
+
+新闻链接：[Terence Corcoran: In Canada, follow the money + the ideas](https://financialpost.com/opinion/terence-corcoran-in-canada-follow-the-money-the-ideas)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,69 +2,42 @@
 ---
 
 
-## 泰德·克鲁斯：如果他们不遵守疫苗规定，联合航空公司将解雇他们的员工
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2040257/)
+## 张艺谋手机划屏式所谓高科技冬奥会开幕式实属廉颇老矣
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2040339/)
 
-[https://gtv.org/video/id=621309421408ee3a03a2d254](https://gtv.org/video/id=621309421408ee3a03a2d254)
+G-TV视频链接：[https://gtv.org/video/id=62125a081408ee3a03a25011](https://gtv.org/video/id=62125a081408ee3a03a25011)
 
-Ted Cruz (Texas Senator)
-泰德·克鲁斯（德克萨斯州参议员）
+**郭文贵先生：**它这“三个主题”，你发现这“三个主题”了吗？到最后“一起向未来”。这个词真的很吓人，这词。谁跟他一起？关键是这“一起”包不包括杨改兰女士这样的家人？包不包含被绑架了八年、还是十年，生了十来个孩子的人呢？
 
-We’re seeing airline flights canceled all over the country
-我们看到全国各地的航空公司航班被取消
+你看他又是盘古，真不要脸！你知道所谓张艺谋搞的这个在大屏上，就是滑着雪走在这个电子屏，他真敢忽悠中国人！就这也叫高科技？你只有那老掉牙的老同志们他觉得这是高科技，多简单，在手机上划的就这么个划屏，张艺谋真是老了我觉得，他玩这个糊弄全世界！他真的是给中国农村人看的，给黑龙江、吉林、沈阳、广西的农民看的。你在外国人那叫高科技？就象奥委会那个巴赫这种傻货他就看着这叫高科技？哎哟我真的受不了！中国人那种自我感觉良好的这种，真的是。
 
-And yet, under these illegal vaccine mandates
-然而，在这些非法疫苗授权下
+字幕来源：[2022年2月4日《文贵大直播》全文字版](https://gnews.org/zh-hans/1961700/)
 
-airline pilots and flight attendants and mechanics
-航空公司飞行员和空乘人员和机械师
+编辑整理：Jacques；
 
-and ticket agents are being fired from their jobs
-和票务代理被解雇了
+字幕文件制作：小满；
 
-Mr. President, typically when I fly back and forth to Houston
-总统先生，通常在我往返休斯敦的时候
+视频制作及上传：Cindy；
 
-I fly either United Airlines or Southwest
-我乘坐联合航空公司或西南航空公司
+G-News发布：小满；
 
-United, the company has an arbitrary policy
-联合航空公司，公司有一个任意政策
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-where they are firing or putting on involuntary unpaid leave any employees who refuse to get the vaccine
-就是将拒绝接种疫苗的任何员工解雇或休非自愿无薪假
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-United is differed from other airlines in that regard
-美联航在这方面不同于其他航空公司
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-They’ve done so because they want to curry favor with the Biden White House
-他们这样做是因为他们想讨好拜登政府
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-because United and CEO believes making Democrats
-因为美联航和首席执行官相信让民主党人
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-1600 Pennsylvania Avenue happy is somehow the best interest
-在宾夕法尼亚大道1600号的人高兴是在某种程度上的最佳利益
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-* * *
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-Date:02/19/2022
-原视频标题:Ted Cruz: United Airline will fire their employees if they don’t comply the vaccine mandates
-泰德·克鲁斯：如果他们不遵守疫苗规定，联合航空公司将解雇他们的员工
-原视频日期：2022/02/19
-原视频链接[**https://twitter.com/sentedcruz/status/1494472580715008002?s=24**](https://twitter.com/sentedcruz/status/1494472580715008002?s=24)
-任务编号：3789
-视频时间段 : 0:00-0:59
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场- brucce庚子
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
