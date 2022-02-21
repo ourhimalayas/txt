@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/21/2022 11:14 PM (UTC)`
+
+参加渥太华抗议，保罗·亚历山大博士被威胁噤声：他们毫无科学可言，而现在是为了权力和控制，为了掩盖他们做的错事。战斗室，2022年2月19日。<br/><br/>Dr. Paul Alexander on crackdown on Ottawa protesters: This now is about power and control, and this is about cover up of wrong things they've done. War Room, Feb. 19th, 2022.<br/>
+![img](https://media.gettr.com/group5/getter/2022/02/21/23/745ecd33-d104-43fe-a62c-6c70dd59b5b3/out.jpg)
+
+---
+
 `@miles 2/21/2022 11:08 PM (UTC)`
 
 锡克教库尔撒裔加拿大人从多伦多赶到渥太华支持卡车司机运动。他们非常爱国，希望能带回以前的加拿大，让后代生活在一个保护他们的自由和权利的社会。他们呼吁所有加拿大人都来渥太华支持卡车司机。<br/><br/>Canadian Sikh Khalsans arrive in Ottawa all the way from Toronto and voice out their support for the Freedom Convoy. They are patriotic and they want to bring back the nation for the children to live in a society that protects their freedom and rights. They call for every Canadian to come to Ottawa and support the truckers.<br/>
@@ -151,13 +158,6 @@ Who's Miles Guo Episode 3 《Mile‘s Determination to Take Down the CCP》<br/>
 
 2/19/2022 Miles Guo’s GETTR: The CCP is about to fall, and the indifferent and ignorant people have become the devils. The CCP begged the US to postpone the actions against itself by relying upon despicable means such as the BGY scheme. The CCP made the evil law that the woman who was abducted cannot get a divorce, but there are still people whitewashing the CCP. So, where is justice?<br/><br/>2/19/2022 文贵盖特：中共大厦将倾，冷漠、无知的人们已成魔鬼；中共跪求美国推迟对共行动并寄希望于蓝金黄等黑手段；中共制订恶法不许被绑架的妇女离婚，竟然还有人为中共洗地，天理何在？<br/>
 ![img](https://media.gettr.com/group31/getter/2022/02/19/23/cbb1cbf8-3b42-5f8c-3778-cdde3adcac60/out.jpg)
-
----
-
-`@miles 2/19/2022 11:11 PM (UTC)`
-
-2/19/2022 Miles Guo’s GETTR: Japanese and European media are demanding to investigate Communist China for the origins of the CCP virus. Those who reported the truth about the chained woman were abused by the CCP police, while incidents like the chained woman are common in the region, with countless trafficked women being turned into sex slaves or killed. The CCP has committed enormous and indescribable evil deeds. Let's see how I will take down the CCP!<br/><br/>2/19/2022 文贵盖特：日本和欧洲的媒体要求找中共病毒溯源；报道锁链女真相的人被警察虐待，而类似锁链女的事件在当地很普遍，无数女性被贩卖后沦为性奴甚至丧生；中共之恶罄竹难书，看文贵怎么灭你们！<br/>
-![img](https://media.gettr.com/group47/getter/2022/02/19/23/f6ba5862-66b1-8d14-c249-75da953999d7/out.jpg)
 
 ---
 
