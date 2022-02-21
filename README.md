@@ -15,124 +15,124 @@
 
 ---
 
-### [布林肯在联合国安理会上敦促俄罗斯不要走“战争之路”](/content/gnews/1/README.md)
+### [2/20/2022 文贵直播：普京不仅要打乌克兰，而且要拿下整个欧洲](/content/gnews/1/README.md)
+ ` 秘密翻译组-北美组`
+
+### [一定要有信仰](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
+
+### [文•贵天成——郭文贵先生谈“双龙计划”](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [新中国联邦要建立我们自己的教育系统](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [共产党开启中国互害模式](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [战友因为有人诋毁七哥和人打架](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [2/20/2022 文贵直播：习普二人两个半小时无秘书在场的单独会谈决定了人类的命运；不费一枪一炮拿下克里米亚壮了普习二人的胆，他们越发瞧不起西方，并狂妄地认为现在是称霸世界的最佳时机](/content/gnews/7/README.md)
+ ` 秘密翻译组-北美组`
+
+### [大师给张高丽和中共最高层之一算命](/content/gnews/8/README.md)
+ ` 雅典娜GNotes`
+
+### [【秘翻在线】共和党州议员将为自由车队的司机提出立法](/content/gnews/9/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [布林肯在联合国安理会上敦促俄罗斯不要走“战争之路”](/content/gnews/10/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [【粤语配音】2022年2月20日：习普的绝密交谈决定世界的命运](/content/gnews/2/README.md)
+### [【粤语配音】2022年2月20日：习普的绝密交谈决定世界的命运](/content/gnews/11/README.md)
  ` MOS香港部`
 
-### [乌干达正考虑发行本国央行数字货币](/content/gnews/3/README.md)
+### [乌干达正考虑发行本国央行数字货币](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [新西兰反强制疫苗抗议进入第14天](/content/gnews/4/README.md)
+### [新西兰反强制疫苗抗议进入第14天](/content/gnews/13/README.md)
  ` 澳喜特战旅Gnews`
 
-### [瑞典运动员谴责奥委会授权中共国举办冬奥会](/content/gnews/5/README.md)
+### [瑞典运动员谴责奥委会授权中共国举办冬奥会](/content/gnews/14/README.md)
  ` GTV News Talk`
 
-### [乌克兰就跟当年罗斯福对待二战是一模一样](/content/gnews/6/README.md)
+### [乌克兰就跟当年罗斯福对待二战是一模一样](/content/gnews/15/README.md)
  ` 雅典娜GNotes`
 
-### [躺平激怒中共](/content/gnews/7/README.md)
+### [躺平激怒中共](/content/gnews/16/README.md)
  ` 波士顿五月花农场金融部`
 
-### [纽约抗议者：我们支持医疗自由和医疗选择、支持美国](/content/gnews/8/README.md)
+### [纽约抗议者：我们支持医疗自由和医疗选择、支持美国](/content/gnews/17/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [以警治国的布鲁塞尔完全压制自由车队进入欧盟首都](/content/gnews/9/README.md)
+### [以警治国的布鲁塞尔完全压制自由车队进入欧盟首都](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [俄州医生的执照因其对中共病毒进行早期治疗而被吊销](/content/gnews/10/README.md)
+### [俄州医生的执照因其对中共病毒进行早期治疗而被吊销](/content/gnews/19/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [普京和习近平有惊天的秘密（二）](/content/gnews/11/README.md)
+### [普京和习近平有惊天的秘密（二）](/content/gnews/20/README.md)
  ` 雅典娜GNotes`
 
-### [【秘翻在线】最糟糕的冬奥会结束了](/content/gnews/12/README.md)
+### [【秘翻在线】最糟糕的冬奥会结束了](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [普京和习近平有惊天的秘密（一）](/content/gnews/13/README.md)
+### [普京和习近平有惊天的秘密（一）](/content/gnews/22/README.md)
  ` 雅典娜GNotes`
 
-### [普京整个性情已经大变](/content/gnews/14/README.md)
+### [普京整个性情已经大变](/content/gnews/23/README.md)
  ` 雅典娜GNotes`
 
-### [有声|台外长表示不想战争但绝不向中共低头](/content/gnews/15/README.md)
+### [有声|台外长表示不想战争但绝不向中共低头](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [有声|日媒揭露中共病毒疫苗接种后严重副作用案例](/content/gnews/16/README.md)
+### [有声|日媒揭露中共病毒疫苗接种后严重副作用案例](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [不幸的是战争就这么发生了](/content/gnews/17/README.md)
- ` 雅典娜GNotes`
-
-### [有声|疫苗灾难未至，战友仍需从长计议](/content/gnews/18/README.md)
- ` MOSREC`
-
-### [“喜币的第二春”-金融界的三颗氢弹](/content/gnews/19/README.md)
- ` 纽约香草山MOS02`
-
-### [大直播后记：俄乌危机背后的习、普政治交易](/content/gnews/20/README.md)
- ` 雅典娜GNotes`
-
-### [中共自爆房地产，已然倒计时读秒](/content/gnews/21/README.md)
- ` 澳喜特战旅Gnews`
-
-### [中俄合作的利益巨大](/content/gnews/22/README.md)
- ` 雅典娜GNotes`
-
-### [文雍漫谈：苦女](/content/gnews/23/README.md)
- ` 文雍`
-
-### [比尔盖茨称人们从感染奥米抗病毒获得的免疫超过了新冠疫苗](/content/gnews/24/README.md)
+### [比尔盖茨称人们从感染奥米抗病毒获得的免疫超过了新冠疫苗](/content/gnews/26/README.md)
  ` 喜国公民`
 
-### [经济崩溃政治危机导致疫苗护照悬停](/content/gnews/25/README.md)
+### [经济崩溃政治危机导致疫苗护照悬停](/content/gnews/27/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [全球疫情更新（疫苗欺诈与金融危机）](/content/gnews/26/README.md)
+### [全球疫情更新（疫苗欺诈与金融危机）](/content/gnews/28/README.md)
  ` 墨尔本雅典娜农场`
 
-### [郭文贵先生谈普京习近平双战争阴谋](/content/gnews/27/README.md)
- ` 纽约香草山MOS02`
-
-### [日本北约强化合作 共同应对乌克兰和台海局势](/content/gnews/28/README.md)
+### [日本北约强化合作 共同应对乌克兰和台海局势](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [卫生部长回应辉瑞和莫德纳疫苗在印度不可用](/content/gnews/29/README.md)
+### [卫生部长回应辉瑞和莫德纳疫苗在印度不可用](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国与乌克兰以及其他伙伴和盟国一道呼吁俄罗斯停止侵略](/content/gnews/30/README.md)
+### [美国与乌克兰以及其他伙伴和盟国一道呼吁俄罗斯停止侵略](/content/gnews/31/README.md)
  ` 美国政要直译推`
 
-### [澳总理谴责中共国军舰向澳巡逻机发射激光照射](/content/gnews/31/README.md)
+### [澳总理谴责中共国军舰向澳巡逻机发射激光照射](/content/gnews/32/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [北京“闭环”冬奥会结束](/content/gnews/32/README.md)
+### [北京“闭环”冬奥会结束](/content/gnews/33/README.md)
  ` Shuizhuyu`
 
-### [秘翻在线: 科兴药业开发新冠口服药](/content/gnews/33/README.md)
+### [秘翻在线: 科兴药业开发新冠口服药](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国“人民车队”准备周三出发接棒加拿大自由车队](/content/gnews/34/README.md)
+### [美国“人民车队”准备周三出发接棒加拿大自由车队](/content/gnews/35/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [南非顶级富翁被告,中共勾兑真相被爆](/content/gnews/35/README.md)
+### [南非顶级富翁被告,中共勾兑真相被爆](/content/gnews/36/README.md)
  ` 纽约香草山MOS02`
 
-### [文贵爆料 2.20：无情的社会、冷漠的你](/content/gnews/36/README.md)
+### [文贵爆料 2.20：无情的社会、冷漠的你](/content/gnews/37/README.md)
  ` 秘密翻译组-原创组`
 
-### [NFSC新闻、G|TV新闻访谈简报|2022年2月20日早](/content/gnews/37/README.md)
+### [NFSC新闻、G|TV新闻访谈简报|2022年2月20日早](/content/gnews/38/README.md)
  ` 纽约香草山MOS01`
 
-### [香草山翻译部周刊|2022年2月20日第36期](/content/gnews/38/README.md)
+### [香草山翻译部周刊|2022年2月20日第36期](/content/gnews/39/README.md)
  ` 纽约香草山MOS01`
 
-### [乌克兰实现比特币合法化](/content/gnews/39/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [美国联邦调查局将成立数字货币部门，司法部任命新的加密货币主管](/content/gnews/40/README.md)
+### [乌克兰实现比特币合法化](/content/gnews/40/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [2/20/2022国内经济财经周报：多地下调首套房首付比例；多家地产公司面临违约风险](/content/gnews/41/README.md)

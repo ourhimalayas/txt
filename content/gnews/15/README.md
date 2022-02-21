@@ -2,37 +2,20 @@
 ---
 
 
-## 有声|台外长表示不想战争但绝不向中共低头
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2038985/)
+## 乌克兰就跟当年罗斯福对待二战是一模一样
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2039049/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月17日，英国一家电视台对台湾外交部长吴钊燮做了专访，并以“台湾忧心俄罗斯侵略行为促成中共大胆攻台”为标题，进行了报导。吴外长接受采访时表示，台湾不想战争，但绝不会因为畏战而向中共低头。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-8.jpeg)
-采访记者认为，中共正密切关注乌克兰情势与俄罗斯的策略，尤其是美国对乌克兰危机的反应，并询问吴外长台湾的预测和态度。对此，吴外长表示，冬奥结束之后，中共何时会发动攻击，谁也不知道。 近一年，中共军机持续侵扰台湾防空识别区，明显有攻打台湾的意图。所有民主国家都会坚决捍卫自己的生活方式，台湾也会做好随时因应中共攻击的准备。
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-采访中，吴外长也表示感谢英国和许多友台国家，以实际行动支援、维持台海的自由航行权，展现出民主国家团结的力量。台湾很难单独面对中共威权的压制，需要世界各地民主国家团结起来，力量才会更强大。
+*发布：陶子*
 
-
-
-文字版原文：[台外长表示不想战争但绝不向中共低头](https://gnews.org/zh-hans/2037443/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,42 +2,37 @@
 ---
 
 
-## 【秘翻在线】最糟糕的冬奥会结束了
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2039002/)
+## 乌干达正考虑发行本国央行数字货币
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2039083/)
 
-撰稿：Grace
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/乌干达正考虑发行本国央行数字货币.jpg)图片来源：雅典娜设计组
+##### 翻译|编辑：Mttfly
 
-校对：Grace
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-20-at-8.43.20-PM.jpeg)图片来源：tmz
-据英国的《每日邮报》2月20日报道，习近平在 “鸟巢” 体育场内的天鹅绒垫子上观看了最糟糕的冬奥会闭幕式，这届冬奥会因兴奋剂丑闻、黯淡的食物、贫瘠的场地和人权等问题而被蒙上了一层阴影。
+乌干达正在考虑发行中央银行数字货币（CBDC），此举引起了政策制定者对一个成功的贸易生态系统所需的大量投资的关注。此外，移动支付服务和网络银行等数字支付系统所需的技术支撑也是至关重要、被密切关注的。
 
-据报道，这是被封锁的奥运会，中共病毒Covid-19给了中共领导人充分的借口来赚取数十亿美元，并禁止任何西方人与武汉或新疆的人民交谈，在中共国内有无数的穆斯林被谋杀、折磨或被监禁。
+目前虽然对乌干达政府将发行的数字货币的实际成本仍不清楚，但从数字货币的特性来看，我们可以对其窥探一二。软件的开发水平、对区块链技术平台高耗能的改进程度、专业团队的组建水平，都是影响成本大小的关键因素。此数字货币的具体发行时间尚待确认。
 
-报道指出，参加这次冬奥会的运动员、教练员和媒体都被中共派的人跟踪，他们所到之处都被拍照，并被通过数字方式检查进出。
+#### **乌干达银行绩效评估分析师乔治·威尔逊·桑科（George Wilson Sonko****）**
 
-一名记者因试图离开他的酒店，并询问中共病毒Covid-19对那些非常 “普通” 的中共国男人和女人带来了什么影响时受到了来自中共的逮捕威胁。
+借助牙买加、尼日利亚、加纳和肯尼亚等国的中央银行开发数字货币的案例，我们正在研究中央银行数字货币的具体方案。在乌干达，数字货币的流通与使用并没有相应配套法规，但我们正在探索修改金融法律的可行路径，以促进数字货币的流通。
 
-报道还说，阴险的中共警车带着大量的摄像机和屏幕，在酒店里清点游客的进出。
+占主导地位的青年群体是引入数字货币的有利条件，因为他们对于新科技是比较有经验的。数字货币在很大程度上依赖于区块链技术，这给其生态系统带来了很大的投资负担，如数据科学家的人力资源。数字货币在乌干达的推广将更关注高价值金融交易的进行。与传统的实时结算系统和移动支付平台相比，区块链平台的处理成本可能更低。
 
-据报道，协调各国议会联盟中共国问题小组(Inter-Parliamentary Alliance on China)的人权活动家卢克·德普尔福德(Luke de Pulford)说，这次冬奥会对中共国来说是一个 “灾难性的失败”。
+#### **乌干达经济学家弗雷德·穆胡穆扎（Fred Muhumuza****）**
 
-他在《电讯报》上写道：“北京2022年冬奥会有多糟糕，怎么说都不过分。”
+以数字钱包技术为支撑的移动支付服务的推出，为未来的数字货币铺平了道路，这意味着来自当地居民的抵制数字货币的阻力更小。数字货币在发展中经济体中，带来的最大风险在于，市场参与者无审查的高频交易和数字货币没有实体货币所带来的挑战。
 
-报道称，中共已经最大限度地利用了Covid-19，现在奥运圣火已经熄灭，2026年将移师意大利，中共将再次锁上大门。
+参考链接：[Uganda looks to Kenya, Jamaica for its digital currency](https://www.theeastafrican.co.ke/tea/business/uganda-looks-to-jamaica-kenya-for-its-digital-currency-3722876)
 
-报道还指出，中共在紧张的准备过程中曾警告说，批评当局的外国运动员可能会面临后果。
+*发布：Mttfly*
 
-人权组织抨击了将奥运会授予北京的决定，本周末一名带着两枚金牌飞回国的运动员也对其进行了批评。
-
-度滑冰运动员尼尔斯·范德波尔 (Nils van der Poel）飞回了瑞典，他说：“我认为把它（冬奥会）交给一个像中国政权那样公然侵犯人权的国家，是极其不负责任的。我真的认为这很可怕。”
-
-另外，一位俄罗斯运动员瓦列里娅·瓦斯涅佐娃 （Valeria Vasnetsova）也吹响了哨子。她说，对中共病毒Covid-19检测呈阳性的外国运动员被挨饿，所以他们即使康复也没法参加比赛。
-
-她还拍下了她在奥运村得到的 “恶心” 的食物。
-
-据报道，挪威连续两届冬奥会在奖牌榜上名列前茅，获得16枚金牌。德国以12枚金牌位列第二。
-
-**新闻来源： ****[Worst Winter Olympic ends: Xi Jinping watches closing ceremony on velvet cushion as curtain comes down on games tarnished by doping scandal, barren venues, grim-looking food and human rights concerns](https://www.dailymail.co.uk/news/article-10532703/Xi-Jinping-watches-Winter-Olympics-closing-ceremony-velvet-cushion-human-rights-concerns.html)**
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
