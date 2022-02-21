@@ -2,8 +2,8 @@
 ---
 
 
-## 普京和习近平早已经是政治联盟（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2038814/)
+## 普京和习近平早已经是政治联盟（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2038830/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
@@ -16,8 +16,6 @@
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
-
 
  
 
