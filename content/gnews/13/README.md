@@ -2,13 +2,14 @@
 ---
 
 
-## 布林肯在联合国安理会上敦促俄罗斯不要走“战争之路”
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2039099/)
+## 2022年2月21日《樱花快报》：英女王确诊中共病毒 英国取消隔离规定
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2039384/)
 
-02/17/2022 布林肯在联合国安理会上敦促俄罗斯不要走“战争之路”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/20220221快报-scaled.jpg)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
-
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

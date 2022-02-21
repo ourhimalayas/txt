@@ -2,42 +2,27 @@
 ---
 
 
-## 【秘翻在线】最糟糕的冬奥会结束了
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2039002/)
+## 以色列宣布放宽防疫管制， 无苗旅客下月可以入境了！
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2039241/)
 
-撰稿：Grace
+中央社耶路撒冷20日综合外电报导，以色列当局宣布，由于最新一波疫情趋缓，自3月起将准允没有接种疫苗的旅客入境。
 
-校对：Grace
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-20-at-8.43.20-PM.jpeg)图片来源：tmz
-据英国的《每日邮报》2月20日报道，习近平在 “鸟巢” 体育场内的天鹅绒垫子上观看了最糟糕的冬奥会闭幕式，这届冬奥会因兴奋剂丑闻、黯淡的食物、贫瘠的场地和人权等问题而被蒙上了一层阴影。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/tOldpXocqhFT1imiUlsKxd6oLxlgiNIGdvXHGnb1xxo_副本.jpg)图片来源：yahoo
 
-据报道，这是被封锁的奥运会，中共病毒Covid-19给了中共领导人充分的借口来赚取数十亿美元，并禁止任何西方人与武汉或新疆的人民交谈，在中共国内有无数的穆斯林被谋杀、折磨或被监禁。
+美联社报导，以色列总理班奈特（Naftali Bennett）表示，外国旅客，包括已接种及未接种疫苗者，务必在起飞前及降落后接受PCR检测。这项规定自3月1日起生效。
 
-报道指出，参加这次冬奥会的运动员、教练员和媒体都被中共派的人跟踪，他们所到之处都被拍照，并被通过数字方式检查进出。
+班奈特说：我们得知发病率的数据续降，因此逐渐开放的时候到了。
 
-一名记者因试图离开他的酒店，并询问中共病毒Covid-19对那些非常 “普通” 的中共国男人和女人带来了什么影响时受到了来自中共的逮捕威胁。
+简评：以色列作为全球接种疫苗比例比较高的国家，如今放宽防疫管制准许无苗者入境是一个阶段性的好消息，变向证明了疫苗接种对防疫的无效，但还没有正视接种疫苗的危害。希望以色列政府早日停止疫苗，再继续打下去后果不堪设想！
 
-报道还说，阴险的中共警车带着大量的摄像机和屏幕，在酒店里清点游客的进出。
+新闻来源：[yahoo](https://tw.news.yahoo.com/%E4%BB%A5%E8%89%B2%E5%88%97%E6%94%BE%E5%AF%AC%E9%98%B2%E7%96%AB%E7%AE%A1%E5%88%B6-%E6%B2%92%E6%89%93%E7%96%AB%E8%8B%97%E6%97%85%E5%AE%A2%E4%B8%8B%E6%9C%88%E8%B5%B7%E5%8F%AF%E5%85%A5%E5%A2%83-181353350.html)
 
-据报道，协调各国议会联盟中共国问题小组(Inter-Parliamentary Alliance on China)的人权活动家卢克·德普尔福德(Luke de Pulford)说，这次冬奥会对中共国来说是一个 “灾难性的失败”。
+撰稿/发布：一叶知秋
 
-他在《电讯报》上写道：“北京2022年冬奥会有多糟糕，怎么说都不过分。”
-
-报道称，中共已经最大限度地利用了Covid-19，现在奥运圣火已经熄灭，2026年将移师意大利，中共将再次锁上大门。
-
-报道还指出，中共在紧张的准备过程中曾警告说，批评当局的外国运动员可能会面临后果。
-
-人权组织抨击了将奥运会授予北京的决定，本周末一名带着两枚金牌飞回国的运动员也对其进行了批评。
-
-度滑冰运动员尼尔斯·范德波尔 (Nils van der Poel）飞回了瑞典，他说：“我认为把它（冬奥会）交给一个像中国政权那样公然侵犯人权的国家，是极其不负责任的。我真的认为这很可怕。”
-
-另外，一位俄罗斯运动员瓦列里娅·瓦斯涅佐娃 （Valeria Vasnetsova）也吹响了哨子。她说，对中共病毒Covid-19检测呈阳性的外国运动员被挨饿，所以他们即使康复也没法参加比赛。
-
-她还拍下了她在奥运村得到的 “恶心” 的食物。
-
-据报道，挪威连续两届冬奥会在奖牌榜上名列前茅，获得16枚金牌。德国以12枚金牌位列第二。
-
-**新闻来源： ****[Worst Winter Olympic ends: Xi Jinping watches closing ceremony on velvet cushion as curtain comes down on games tarnished by doping scandal, barren venues, grim-looking food and human rights concerns](https://www.dailymail.co.uk/news/article-10532703/Xi-Jinping-watches-Winter-Olympics-closing-ceremony-velvet-cushion-human-rights-concerns.html)**
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

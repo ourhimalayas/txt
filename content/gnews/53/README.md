@@ -2,28 +2,32 @@
 ---
 
 
-## 中日财经爆┃可自由动用资金枯竭，阳光城要爆了！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2033878/)
+## 躺平币将首先惠顾爆料革命战友
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2035379/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片4-9.png)[图片来源](http://beijingchentai.com/chentaidongtai/gongsidongtai/23.html)
-2月18日晚间，阳光城就深交所关注的问题进行了回复，称“可自由动用货币资金基本枯竭”。
+作者：纽约磐石农场 在远方
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+在2月18日的大直播中，郭文贵先生透露，即将在今年六月上市的躺平币，将首先保障爆料革命战友。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-20-at-9.49.20-PM.png)
+躺平币将分为几轮发行，在政策上将首先保证向爆料革命战友倾斜，价格一定最便宜。郭先生告诉投资机构，所有的义工、法治基金捐款者、GClubs会员、GTV投资者和拥有喜币的战友，必须优先保障其利益，其中以法治基金捐款者为第一考量。
 
-除夕前夕，2000亿量级规模房企阳光城曾披露一份预亏公告，其中称2021年全年预亏45亿元—58亿元，同比下滑185%-210%。次日，阳光城就收到了深圳证券交易所的关注函，要求阳光城解释集中大额计提存货跌价准备的主要原因，以及是否存在流动性风险、经营是否具有重大不确定性等问题。
+郭先生介绍，躺平币第一轮基本是送给义工战友的，尤其是帮助国内战友转款的义工。在躺平币的给予上，要跟法制基金捐款的战友持平，其次就是推广HPay的战友，GClubs会员和GTV投资者。
 
-阳光城称，2021年1—9月通过经营活动产生的现金流量净额为207.89亿元，较上年同期下降4.70%，因为银行贷款集中度管理等因素，出现一定降幅。同期融资活动产生的现金流量净额为-319.07亿元，主要系偿还大额有息债务，与借款相关的现金流入减少所致。
+参考资料：[20220218文贵大直播：躺平币前几波最便宜的一定是属于战友的](https://gnews.org/zh-hans/2030480/)
 
-截至2021年12月末，阳光城在手货币资金较年初大幅下降，除预售资金受限及融资受限因素外，因整体环境持续严峻，金融机构及项目合作方股东对项目公司资金回拨集团非常谨慎，在实操过程中，对项目资金监管加强，所以动用项目资金极为困难，致使实操中可灵活动用资金占账面资金比例不足1%，回笼至集团层面难度极大，公司可自由动用货币资金基本枯竭。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-3.png)
 
-看来阳光城真的彻底暴雷了。
+编辑：静言
+总编：Zion文恩
+校正/发稿：我不在这里
 
-信息来源：
-
-[阳光城：可自由动用资金枯竭，或现大规模交叉违约](https://www.163.com/dy/article/H0J6EBM20519DDQ2.html)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

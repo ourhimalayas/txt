@@ -2,45 +2,37 @@
 ---
 
 
-## 美国“人民车队”准备周三出发接棒加拿大自由车队
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2038072/)
+## 瑞典运动员谴责奥委会授权中共国举办冬奥会
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2039055/)
 
-翻译：**Lulumi**
+作者：纽约香草山教育部 Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-45.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/4589.jpg) Photograph: Matsuo K/AFLO/REX/Shutterstock 
+来自瑞典的冬奥会金牌得主25岁的速滑运动员尼尔斯·范德波尔在北京活动回国后向媒体表示，国际奥委会决定在人权情况糟糕的中国举办冬奥会是非常不负责任的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unknown-3-13.png)
+人权团体呼吁各国政府和赞助商广泛抵制本次冬奥会。包括美国、英国和澳大利亚在内的几个国家都对这项赛事进行了外交抵制，同时人们一直非常关注参赛运动员的抗议情况。
 
-受加拿大卡车司机“自由车队”的启发，“人民车队”预计将有大约1000辆卡车开始东行，沿途将有更多的卡车加入。
+奥运会上的抗议行为通常违反国际奥委会制定的规则，将会面临惩罚。人权倡导者警告运动员在北京参加奥运会期间不要采取任何行动，包括发表声明，但建议他们回国后可以大声说出来。
 
-该运动的全国组织者莫琳·斯蒂尔（Maureen Steele）告诉Newsmax，“我们将从加利福尼亚的巴斯托出发，”她解释说，由于对行动安全的“首要”关注，确切地点将在接近活动开始时宣布。
+随着冬奥赛事结束，越来越多的运动员回国，越来越多的冬奥会真相被他们传播出来，中共以假治国，无视人权，反人类的真面目必被曝光于天下。
 
-“加拿大的车队是相当有组织的，”斯蒂尔说。“我们的车队有一个月的通知，所以我们担心的是破坏性的团体进来。我们试图只是为反抗议做准备，并为此采取安全防范措施。”
+新闻链接：[https://amp.theguardian.com/sport/2022/feb/18/chinas-human-rights-record-made-winter-olympics-irresponsible-says-swedish-athlete](https://amp.theguardian.com/sport/2022/feb/18/chinas-human-rights-record-made-winter-olympics-irresponsible-says-swedish-athlete)
 
-卡车司机可以在组织者的网站上登记他们的车牌，“这样我们就能清楚地知道谁在车队中，并确保这将是一次安全的旅程，”她解释说。
+编辑/校对/发稿：小小安
 
-根据该网站，该组织呼吁“立即解除关于COVID-19大流行病的国家紧急状态的声明，让我们珍视的宪法占据最高地位”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-40.jpg)
 
-该网站有自己的捐款链接，而不是使用GoFundMe或其他众筹服务。斯蒂尔澄清说，为车队提供的捐款将由一家私人银行保管，以防止它们被政府反对派冻结。
+**更多资讯，更多关注**
 
-“所以我们的资金应该不会被冻结或劫持，所有的钱都由这个第三方公司保管，所以我们可以保证它绝对能到达卡车司机手中，而且是干净的，”她说。”这就是为什么花了这么长时间。我们为这一行动建立了这样一个基础设施。我们花了一些时间才出来。”
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-斯蒂尔说，为了谨慎起见，车队计划停靠的城镇将在他们抵达前24小时左右公布，但她确实确认他们将在亚利桑那州和德克萨斯州停靠。
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-斯蒂尔说：“有几辆卡车将在车队前面，”只是与车队前面的城镇的执法部门联系，如果我们当晚要在那里集结，以确保他们为大规模车队进入城镇做好准备。
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-她还指出，来自各行各业的人都在加入这个车队，从母亲到LGBTQ团体。
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-“这是所有人，”斯蒂尔说。“整个国家，每一个行业，每一个国籍，每一个你能想象的社区层面都在为自由而努力。我们理应如此。”
-
-**参考资料：**[justthenews][Following Canadian truckers’ ‘Freedom Convoy,’ U.S. ‘People’s Convoy’ ready to roll on Wednesday](https://justthenews.com/nation/following-canadian-truckers-freedom-convoy-us-peoples-convoy-begin-wednesday)
-
-* * *
-
-*审核：文乐
-校对：信心满满
-发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-5.jpeg)
-
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-44.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
