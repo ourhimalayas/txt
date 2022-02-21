@@ -2,24 +2,30 @@
 ---
 
 
-## 奥地利强制防疫政策将出现大逆转
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2042581/)
+## 英国女王伊丽莎白中共病毒测试呈阳性
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2042800/)
 
-采编/编译撰稿： 薇文                   校对编辑：硫酸羟氯喹64
+作者：银河系农场 — 骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间 2月20日，英国白金汉宫称，伊丽莎白女王的中共病毒测试呈阳性。伊丽莎白女王95岁高龄，目前的症状是轻微的感冒迹象。据悉，女王已接种三针中共病毒疫苗。 白金汉宫称，女王会继续接受医疗护理，遵循适当的专业指导，且本周内她将继续留在温莎城堡，处理一些轻度的工作。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-21-上午10.19.43.png)
+据悉，这已经是英王室成员再度感染。此前，英国王储查尔斯公爵及夫人相继被检测出中共病毒阳性，而且两人均已接种三针中共病毒疫苗。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/GettyImages-1238527725-e1645026425755-640x480-1.jpg)图片来源：GEORG HOCHMUTH/APA/AFP via Getty Images
+参考链接：[Queen Elizabeth II Tests Positive for COVID-19](https://www.hollywoodreporter.com/news/politics-news/queen-covid-positive-test-1235096807/amp/)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-据美国[布莱巴特新闻]2月17日报道，奥地利的 “新冠病毒”种族隔离政策，将发生惊天大逆转。该国政府当天宣布将取消绝大部分疫情封锁措施，包括限制未接种疫苗者人身自由的疫苗护照规定。
+总编：Jack Li文阳
+编辑：文真
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-报道称，以上决定是当局根据[疫情专家委员会]对现行政策的违宪性和非必要性作出分析之后作出的。并因此规定：从2月19日起，未接种者和病毒感染康复者，在病毒测试阴性后可以进入酒吧、餐馆等公共消费和娱乐场所。而从3月5日起，将完全取消疫苗通行证。同时，疫情期间绝大部分的封锁命令，包括对酒店业的宵禁也将被废除。
-
-以上报道再次验证了爆料革命在此之前就准确无误地判断指出：世界各国，特别是欧美国家政府将迫于经济崩溃，政治危机和病毒减弱等原因，必将在今年五月份之前取消强制接种，疫苗护照和大多数疫情限制。
-
-发稿：文明(添草灭共)
-
-新闻来源：[Massive U-Turn: Austria to Repeal Almost All ‘Corona Apartheid’ Rules Targeting Unvaxxed](https://www.breitbart.com/europe/2022/02/17/massive-u-turn-austria-to-repeal-almost-all-corona-apartheid-rules-targeting-unvaxxed/)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

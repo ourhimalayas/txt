@@ -2,10 +2,10 @@
 ---
 
 
-## 塔米·布鲁斯：特鲁多政府所做的一切都是为了控制
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2043583/)
+## 印媒WION：没人知道中共国有多少妇女被拐卖了
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2043662/)
 
-02/19/2022 塔米·布鲁斯：特鲁多政府所做的一切就是为了控制，这或许是其他西方政府乐意做的事情的预演
+02/18/2022 印度媒体WION报道：没人知道中共国有多少妇女被拐卖了
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

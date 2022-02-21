@@ -2,42 +2,38 @@
 ---
 
 
-## 咖啡的价格失控了
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2042990/)
+## 中共统计局数据造假 借冬奥会洗钱骗钱
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2043454/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+作者：纽约香草山农场 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在2月18日大直播中，郭文贵先生爆料，中共统计局的经济数据和疫苗感染率向来都是造假。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/nathan-dumlao-gOn7dKcCWKg-unsplash-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide4-12.jpeg)
 
+中共统计局内部信息透露，统计局一直利用假数据欺骗习近平。各项统计数据，几乎全部最后减去一个零，有时候甚至两个零，再向中央上报。以支援非洲的资金为例，实际对外资金是9.6亿，但是只向中央上报960万，其余差额资金全部被个人贪污。
 
-资料来源：德国焦点杂志
+中共冬奥会各项巨额资金也是造假。据悉，仅开幕式就花费了七十二亿美元，张家口安保费用高达二百多亿美元，总花费近六百亿美元。此外，还涉及所谓的对外援助两千多亿。
 
-就在年底前不久，世界贸易中的咖啡价格暴涨。 12 月初，一磅咖啡的交易价格为 2.50 美元。这相当于价格比上一年上涨了 100%。
+中共统计局以冬奥会境外赞助的名义，往国外疯狂洗钱，各地方政府也极尽所能骗中央的钱。
 
-咖啡的价格正在上涨。
+参考链接：
+1. https://gettr.com/post/pvhlnaf05c
+2. [https://gettr.com/streaming/pvffqc88e7](https://gettr.com/streaming/pvffqc88e7)
 
-由于天气和供应瓶颈导致的收成不佳，使咖啡豆成为奢侈品。仅在巴西和哥伦比亚，去年就有数十万公顷土地受到霜浪的影响。除此之外，天气极其干燥，进一步加剧了这种情况。巴西仍然是德国生咖啡进口的主要原产国。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-由于贸易专家预计物流行业的情况要到年中才会缓解，所以贸易交易所存在积极情绪。重要的货物仍然滞留在世界各地的许多港口，并且要付出相当大的努力才能到达贸易商手中。在许多情况下，计划增加昂贵的货机和航线，这推高了价格。
+总编：文真
+编辑：Jack Li文阳   
+校正/发稿：谐趣园
 
-根据国际咖啡组织（ICO）的数据，2021 年 11 月，每磅咖啡的平均收费约为 1.95 美元。 2020 年 11 月的到期价格为 1.09 美元，而 2017 年 11 月的到期价格为 1.07 美元。目前咖啡的价格是 2.32 美元。
-
-餐馆和咖啡馆已经涨价了
-
-价格高涨对咖啡馆和餐馆有特别的影响。去年，运营商已经提高了卡布奇诺、拿铁玛奇朵和咖啡奶油的价格。最迟到 2022 年 2 月，价格可能会再次飙升。
-
-目前，消费者需要为一杯卡布奇诺（小杯）支付 3.60 至 4.10 欧元。预计价格将稳定在 3.90 欧元以上，甚至可能升至 4.50 欧元。
-
-超市里的咖啡价格是否也在上涨？
-
-超市的咖啡价格有可能继续上涨。然而，行业专家已经强调，贸易商已经与烘焙商和咖啡供应商商定了固定的交易价格。 “复活节前不会有进一步的价格回合，”一位 Tchibo 内部人士说。 2021年底，人气咖啡烘焙机提高了阿拉比卡咖啡豆的价格。折扣店和超市也纷纷效仿。平均而言，一些咖啡品牌的价格每磅贵 1 欧元左右。
-
-上一次出现如此强劲的价格上涨是在 2011 年。当时，咖啡的零售价甚至攀升至每磅 3.50 美元以上。歉收和持续干旱也是价格上涨的重要因素。毕竟，涨价只是在超市里受到了一定程度的影响。咖啡的价格逐渐下跌。
-
-[咖啡的价格失控了](https://www.focus.de/finanzen/news/preise-steigen-kaffeepreis-laeuft-aus-dem-ruder-wie-sie-noch-an-guenstige-packungen-kommen_id_35171595.html)
-
-责任编辑/发布： Shuizhuyu
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,45 +2,36 @@
 ---
 
 
-## 澳大利亚谴责中共国的“恐吓”行为
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2043785/)
+## 爆料革命承诺救助 “铁链女” 爆料人
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2043937/)
 
-**编译：七龙珠**、
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip澳大利亚谴责中共国的恐吓行为.png)图片来源：dw.com
-一艘在大洋彼岸以北航行的中共国船只向一架澳大利亚侦察机发射了激光。总理斯科特-莫里森说：“这是一种危险、鲁莽和不负责任的行为。”
+作者：纽约香草山农场 – 文鹰
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月19日，郭文贵先生在盖特直播中讲述，最早报道徐州 “铁链女” 事件的其中一个爆料人家属，向郭先生提供确实证据，受到郭先生认可并得到救助承诺。
 
-澳大利亚总理斯科特-莫里森周日指责中共国政府实施了“恐吓行为”，因为澳大利亚政府指称一艘中共国船只将激光对准了一架澳大利亚军用飞机。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide5-12.jpeg)
 
-据国防部称，这艘中共国船在澳大利亚北部海岸航行时，向一架侦察机照射激光，这一事件“有可能危及生命”。
+郭先生依据爆料人家属提供的图片和视频，了解到爆料人揭露真相后，被中共警方抓捕，残酷拷打致伤的事实。郭先生决定用两万个喜币作为受迫害补偿，并承诺救助爆料人。
 
-“我们有中共国船只在海上活动，这并不奇怪”。莫里森周日说：“我对在澳大利亚侦察机上使用激光的行为非常关注”。
+另据家属告知，“铁链女”事件发生地徐州丰县，当地人都知道这名女子受害情况。而且，每年都有几十具年轻女孩尸体被发现，贩卖来的女性被富裕家庭购买来当性奴使用。
 
-总理补充说：这是一个“无理和无端的恐吓行为”。
+中共惧怕“铁链女”真相被揭穿，除了在徐州加建物理隔离墙，还加强了网络防火墙，并且在当地加派200名警察驻守，企图阻止外界了解事件的真相。爆料革命唯真不破，鼓励勇敢揭露中共邪恶的爆料行为。
 
-据他的部下说，这艘船与另一艘中共国船一起向东航行，穿过澳大利亚北部的阿拉弗拉海。
+参考链接：[https://gettr.com/post/pviwuoa122](https://gettr.com/post/pviwuoa122)
 
-中共国政府没有对这些指控作出回应。2019年，其武装部队已经被指控在南中国海用激光瞄准澳大利亚军机。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-澳大利亚国防军（ADF）周六证实，周四一艘中共国船只在P-8A海神飞机飞越澳大利亚“北部通道”时对其进行了照射，“可能会危及生命”。
+总编：Jack Li文阳
+编辑：文真
+校正/发稿：谐趣园
 
-莫里森告诉记者：“澳大利亚将永远不会接受这种恐吓行为。”
-
-“这是一个危险的行为”。莫里森补充说：“我认为这是一种鲁莽和不负责任的行为，它不应该发生。”他表示，澳大利亚政府正在通过外交和国防渠道提出这个问题。
-
-总理说：“这种恐吓行为不仅仅是一个我想他们试图向澳大利亚传递的信息，一个我们将予以回应的信息，而且是我们地区任何国家都可能发生的那种威胁和恐吓的信号，这就是为什么我们必须团结起来 。”
-
-**新闻来源**：[dw.com][Australia ordena salir a últimos funcionarios de su embajada en Ucrania](https://www.dw.com/es/australia-ordena-salir-a-%C3%BAltimos-funcionarios-de-su-embajada-en-ucrania/a-60759633)
-
-* * *
-
-***审核：Aries的星
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-6.jpeg)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

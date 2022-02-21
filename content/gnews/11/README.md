@@ -2,16 +2,12 @@
 ---
 
 
-## 郭先生揭秘习近平 普京密会 可能讨论的内容
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2043678/)
+## 2月21日勿忘香港（图片1-4）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2043738/)
 
-普京本人身体也非常不好，所以习、普二人特别害怕病毒和疫苗。
-
-习普会谈讨论了什么？个人金钱和政治利益上的勾兑，搞乱世界经济，网络骇客，太空战，核武威胁，放毒，难民威胁，西方领导人丑闻威胁，暗杀，如何短时间内拿下乌克兰和台湾，可能的斩首乌克兰领导人，可能的安排国民党接班人做所谓的“台湾特区第一任特首”，斩首主张台独的政客。
-
-视频来源: 20220220—郭先生大直播
-视频制作: 文星光，梦田
-文案:文星光
+设计：五月花农场 企鹅
+![](https://assets.gnews.org/wp-content/uploads/2022/02/E6ED610F-C4C2-48C3-A20A-7575510D0F6F.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/5B9B70F0-2C1C-486B-BFF1-AEF65C42C99E.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/0D341511-A020-4B06-BBCF-5BBDAEACB235.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/33E64DB7-B63F-4A08-A5FF-3A11C824B5C4.jpeg)
+发布：水涨船高
 
  
 

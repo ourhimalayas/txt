@@ -2,35 +2,18 @@
 ---
 
 
-## 今日盖特大V推荐 — 拉希姆·卡萨姆 (Raheem Kassam)
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2043665/)
+## G-EDU将开展线上线下教育 欢迎全球老师学生加入
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2043734/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/99aqp47-80ct9-2.jpg)
-**盖特链接：**[https://gettr.com/user/RaheemKassam](https://gettr.com/user/RaheemKassam)
+中国人现在很多思想已经人畜不分了，没有教育和信仰，我们的民族是没有希望的。
 
-**拉希姆·卡萨姆自述：**
+新中国联邦、爆料革命，灭共 第一，教育 绝对是第二重要的。
 
-《国家脉搏》主编
-《战斗室》联合创始人
-《国家脉搏》播客主持人
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1ak1.jpg)
-**图片来源：网络**
+#G- EDU 将由郭文贵先生亲自负责。欢迎全世界最好的老师加入，我们将提供丰厚的报酬，同时支持多种支付方式，如 HDO、HCN、美元等，并且老师和学生都将收到躺平币作为激励。之后G系列各公司上市也将预留股份拨给G-EDU。很快线下学校将在加拿大、英国、美国、日本、澳大利亚等地成立。新中国联邦教育基金启动费1000万美元已经到位，未来将达到100亿，由新中国联盟联盟委员会和战友们监管。
 
-**拉希姆·卡萨姆简介：**
-
-拉希姆·卡萨姆 (生于1986年8月1日）是英国保守派政治活动家，新闻媒体布赖特巴特(Breitbart News London) 的前主编，前英国独立党领导人奈杰尔·法拉奇(Nigel Farage)的前首席顾问。
-
-2019年10月，卡萨姆开始与班农(Steve Bannon) 共同主持《战斗室》(War Room)。
-
-卡萨姆也是 《国家脉搏》(The National Pulse)的主编。
-
-编撰：洛杉矶盘古农场 — 郭友(文苏)
-校审：洛杉矶盘古农场 — 心照
-发布：洛杉矶盘古农场 —彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+视频来源: 20220220—郭先生大直播
+视频制作: 文星光，梦田
+文案:文星光
 
  
 
