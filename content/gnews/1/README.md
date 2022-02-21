@@ -2,47 +2,38 @@
 ---
 
 
-## 班农专访3：CNN冬奥期间回避报导中共人权问题
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2041778/)
+## Blind Trust in Scientism Ensues Hefty Price for Advanced Nations (Video)
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2041798/)
 
-**简评：**
+**Translated by**：**MOS Translation Team – **Bright
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-5.png)
+On February 18’s Grand Live Broadcast, Miles Guo stated that blind trust in Scientism has led some of the most advanced countries to act as the vanguard of the CCP Virus vaccine, that is, the so-called COVID vaccine. The super high inoculation rate for these countries such as Israel and the UK will cause devastating damages, a result of the unraveling vaccine disaster.
 
-北京冬奥会从开幕到闭幕整个期间，“中共新闻网”CNN都全程报导，但是回避了维吾尔人权问题，以及对记者和运动员的审查。这是西方的耻辱。新中国联邦的郭文贵先生自来到美国之后就一直在提醒西方，CNN与中共官媒深度勾结。
+Being an economy with the most industrialized civilization and technology, Israel or Britain’s vaccination rate is outrageous. Especially in Israel, almost the entire country has been vaccinated, while a significant portion of its population has even taken the 4th shots. Miles explained that the main reason could be traced back to – after the Roman era, the Christian-based European civilization led mankind to a gradual transition from imperial power dominated societies to civil power dominated societies, hence the industrial civilization flourished. For the past 2 or 3 hundred years, the imperial power represented by the Queen of England and the Emperor of Japan have gradually declined.  Hence the once-glorious religious influence has also gradually declined. Science, on the other hand, became more prominent to serve as the support for humanity under the booming of capitalism.
 
-说到北京种族灭绝运动会、中共对新疆维吾尔人的迫害、北京天安门事件、法轮功、藏传佛教等，中共自成立到窜政这100年间，几乎每年都有近100万人被杀害，迄今为止已经有1亿左右人被杀害。计划生育政策导致4亿婴儿被强迫堕胎，其中80%是女婴，这导致中共国出现人口危机，而且男女比例严重失衡。这是中共国最关键的种族灭绝：近5亿人被杀害，而他们本该活着。除此之外，还有香港、家庭基督教会、天主教徒等。这些都是不应该被遗忘的种族灭绝。
+Miles pointed out that although the Jewish people are considered having deep roots of religious influence, they are also the pioneers of scientism. Unfortunately, this time around, their proud and firm belief in “science” is exploited by the science-imposters such as Fauci and Big Pharma Pfizer, and the people of Israel will sure pay a heavy price.
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/BN03.jpg)
+Humanity is facing an existential crisis as the communists, the Party of Davos, and the Dark Forces of the world have unleashed a full-on assault, by abusing their authorities and power in the medical field and the governments, by imposing the insidious CCP Virus vaccine onto people in the name of “Science”.
 
-[**GETTR视频链接**](https://gettr.com/post/pvog6f7765)
+Miles said, at this juncture, only Righteousness-ism, or, the Way of Righteousness, can lead the world to ride out the darkest hours of human history, and to serve as the new guiding model for humanity, because the Way of Righteousness advocates the independence of judicial system, the independence of media, and the independence of science.
 
-[**GTV视频链接**](https://gtv.org/video/id=6211d4062403672096acac84)
+Source: https://gettr.com/post/pvffqc88e7
 
-**视频字幕：**
+Proofread / Edited by: ** Snorlax S.**
 
-**主持人TCC**： CNN的系列文章只关注奥运会的冷清场面，但明显回避了维吾尔人的人权问题，以及对记者和运动员的审查。从2月4号到24号，整个种族灭绝和大外宣的运动会CNN都会报导，不出所料，其内容是由新华社一家中共官方宣传机构提供的，人们在质疑CNN收了多少钱。史蒂夫，你认为CNN是否真的在尽力，不辜负其新绰号“中国新闻网”？
+Posted by: linli
 
-**班农先生**：我绝对这么认为，我认为这是个耻辱，我想马龙博士会把这个问题解决掉。当约翰·马龙更多地参与到管理中时，约翰·马龙会清理这个问题。我认为这简直是个老鼠窝，非常令人尴尬，它们与中共官方媒体合作。郭先生自从来到美国一直在告诉我们这一点，没有人听他的，沒有一个精英像他那样对CNN与中国官媒的勾结不断敲打。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-1-514x720-1.png)
 
-TCC博士，我想说回你说的关于种族灭绝运动会、关于种族灭绝和维吾尔人。当我们谈到天安门广场、维吾尔人种族灭绝、法轮功、藏传佛教以及其他要素时，我们必须记住，我认为这么说是我们所有人义不容辞的责任。这是对中国老百姓和中国人民的种族灭绝，正如郭先生不断强调的，不仅仅在100年内，9200万或者0.9至1亿中国公民被中国共产党杀害、饿死、打死和处决，几乎每年有近100万人被谋杀。4亿生命被堕胎，其中大部分都是强迫堕胎，4亿中国婴儿，其中80%是女婴，导致中国人口结构的巨大失衡，迥异于世界上任何地方，这才是最关键的种族灭绝。
+**For more information, please follow us at:**
 
-维吾尔人很重要，我们应该记住他们，还有香港、家庭基督教和天主教徒徒，显然压迫的规模积极庞大，还有法轮功。但是我们绝不能忘记最核心的种族灭绝，也绝不能让世界忘记，那就是对老百姓和中国人民的种族灭绝，近5亿人要么被谋杀、要么被流产。这些中国大陆的冤魂，近5亿中国大陆的冤魂，如今本该活着已有后代的中国人，但是在子宮內就被处决，或者直接处决，这是我们所说的种族灭绝，我们永远不应该忘记。
+**[New York MOS Himalaya ｜GTV](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)**
 
-*字幕：雨中漫步* *| 听写：云岭 | 翻译：Dlrow* *| 校对：BoxingLady，Roberts* *|简评/文字整理/编辑：胖丁 | Page：我是球大哥*
+**[New York MOS Himalaya ｜MOS TALK](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
 
-* * *
+**[New York MOS Himalaya | GETTR](https://www.gettr.com/user/himalaya_mos)**
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
-
+**[New York MOS Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
 
  
 
