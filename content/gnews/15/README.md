@@ -2,26 +2,33 @@
 ---
 
 
-## 日本北约强化合作 共同应对乌克兰和台海局势
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2038483/)
+## 美国情报显示 俄军指挥官接到了入侵乌克兰的命令
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2038552/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-98.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https://www.nato.int/nato_static_fl2014/assets/pictures/images_mfu/2020/7/stock/200721-japan-nato-flag.jpg&amp;imgrefurl=https://www.nato.int/cps/en/natohq/topics_50336.htm&amp;tbnid=w9kQqvw7ijmkcM&amp;vet=12ahUKEwir0syViY72AhUJA6YKHSH_DIYQMygAegUIARCLAQ..i&amp;docid=7A3F1TiAEj8CZM&amp;w=676&amp;h=384&amp;q=Japan%20NATO&amp;ved=2ahUKEwir0syViY72AhUJA6YKHSH_DIYQMygAegUIARCLAQ)
-日本外相林芳正2月19日在德国慕尼黑与北约（NATO）秘书长斯托尔滕贝格会谈，双方就乌克兰局势和推进“自由开放的印度太平洋”合作交换了意见。
+翻译：灭共文明
 
-双方一致表示严重关切关注俄乌紧张局势，支持乌克兰主权与领土的完整，一致认为“绝不允许凭借实力单方面改变现状”，双方将为缓和紧张密切合作。
+编辑与校对：灭共文明、冰糖葫芦喵
 
-林芳正呼吁为推进“自由开放的印度太平洋”构想而合作。斯托尔滕贝格回应称，日本是重要的伙伴，将继续促进在各种领域合作。
+《哥伦比亚广播公司》2月20日报道，**周日，美国一名官员对哥伦比亚广播公司新闻频道(CBS News)表示，美国掌握的情报显示，俄罗斯指挥官已接到入侵乌克兰的命令，俄罗斯地面指挥官正在制定具体计划，计划如何在各自的战场区域进行行动。**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/普京命令入侵乌克兰2.jpg)俄罗斯军队建设（图片来源：网络）
+数周以来，拜登一直警告俄罗斯即将入侵乌克兰。周五，拜登对记者表示，他“确信”普京已经做出了入侵乌克兰的决定，并表示美国相信俄罗斯军队打算在“未来几天”发动进攻。
 
-林芳正还出席了正在慕尼黑举行的安全会议，在关于印度太平洋的小组讨论中，围绕与台湾的关系，林芳正表示“（台湾）是重要的伙伴和朋友，我们共享基本价值观，正在经济和人员交流方面深化合作”。他还强调了台海和平与稳定的重要性。
+周日，美国国务卿布林肯在《面向全国》(Face the Nation)节目上接受玛格丽特·布伦南（ Margaret Brennan）的采访时说，美国仍然相信俄罗斯正在推进入侵计划，尽管莫斯科否认俄罗斯正准备发动进攻。
 
-信息来源：
+布林肯说:“我们所看到的一切都告诉我们，我们认为普京总统做出的入侵决定正在推进。”他还告诉主持人，**俄罗斯和亲俄乌克兰分裂势力最近制造了挑衅事件，原定于周日结束的俄罗斯和白俄罗斯的联合军演也将无限期延长。**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/布林肯接受采访.jpg)图片来源：网络。
+报道称，俄罗斯在乌克兰的三方部署了大约15万名士兵、战机和装备，加剧了与邻国的紧张关系。
 
-[日外相与北约秘书长会谈将为缓和乌局势而合作](https://china.kyodonews.net/news/2022/02/ddd461a6d444--.html)
+由于预料到袭击，美国和其他盟友，最近是**德国和奥地利，敦促本国公民离开这个国家。周日，美国驻莫斯科大使馆发布了一份安全警报，国务院的警告敦促在俄罗斯的美国公民采取几项行动，包括避开人群，制定不依赖联邦政府援助的疏散和撤离计划。**
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+乌克兰驻美国大使奥克萨娜·马卡洛娃(Oksana Markarova)说，乌克兰官员正在利用“一切可能”迫使俄罗斯选择外交途径，而不是攻击。
+
+**乌克兰总统弗拉基米尔·泽伦斯基**(Volodymyr Zelensky)也呼吁普京与他会面，共同努力解决这场危机，但他也批评了**周六在慕尼黑参加安全会议的西方领导人，称他们不应该等到袭击发生后才对俄罗斯实施制裁。**
+
+**新闻链接：**
+
+[U.S. has intel that Russian commanders have orders to proceed with Ukraine invasion – CBS News](https://www.cbsnews.com/news/russia-ukraine-invasion-us-intelligence-orders/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

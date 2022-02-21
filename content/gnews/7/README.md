@@ -2,8 +2,8 @@
 ---
 
 
-## 普京身边的人讲了普京从北京回来之后的感受
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2038639/)
+## 当年的克里米亚纵容了普京和习近平
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2038666/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
