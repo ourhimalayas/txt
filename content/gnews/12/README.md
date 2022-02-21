@@ -2,114 +2,32 @@
 ---
 
 
-## 报道显示，随着该地区准备应对冲突，乌克兰东部的炮击已经恢复
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2040201/)
+## 不注射疫苗，就没有民主？意大利50岁以上没有疫苗通行证的政客被禁止进入议会
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2040235/)
 
-[https://gtv.org/video/id=621308911408ee3a03a2d217](https://gtv.org/video/id=621308911408ee3a03a2d217)
+撰稿：玄鸟
+校对：Streamline
+上传：无明逆流
 
-John Roberts (Fox News host)
-约翰·罗伯茨 (福克斯新闻主持人)
+据布莱特巴特新闻网（www.breitbart.com）19日报道，意大利50岁以上的立法者，需要有冠状病毒健康通行证，才能进入该国议会。一些人将这与生活在前法西斯政权下的规定相比较。
 
-Here’s our Trey Yingst live in Kiev
-这是我们的特雷·英斯特在基辅的现场直播
+![](https://assets.gnews.org/wp-content/uploads/2022/02/G81.jpg)图片来源：原新闻
 
-Trey, what are the last 24 hours look like there?
-特雷，过去 24 小时在那里是什么情况？
+五星运动（M5S）前成员、参议员马里奥·贾鲁索（Mario Giarrusso），现年 56 岁，他谈到未接种疫苗的政客被禁止进入议会时，称其为“共和国历史上最黑暗的一页。” 这一页让人联想到法西斯政权的反对者被驱逐出议会的情况。“然而，仅在下午，在马克西姆斯角斗场（the Circus Maximus），我发现成千上万的市民在反抗，我不感到孤单， 这给了我很大的勇气”，他补充说，并称赞了本周早些时候在罗马举行的反对健康通行证抗议的活动。意大利日报（Il Giornale）报道。
 
-Trey Yingst (Fox News foreign correspondent)
-特雷·英斯特（福克斯新闻驻外记者）
+参议员埃马努埃勒.德西(Emanuele Dessì)，也是前M5S的成员，在意大利参议院所在的马达玛宫（the Madama Palace）外举行了抗议活动，并表示他已就此事向参议院诉讼办公室提交了上诉。
 
-John, Good afternoon, the momentum in this crisis
-约翰，下午好，这场危机的势头
+“参议院不是我的工作地点,参议员是选举产生的职位，而不是工作。 在这里，不仅我的自由正在收缩，而且要求我在这些议院代表他们的数十万选民的自由也在收缩，”,德西说。并补充道，“现在这里正在实施政治紧急管控，而不是健康紧急保障。”
 
-has clearly shifted over the past 24 hours
-在过去 24 小时内已经明显发生了变化
+禁止当选议员进入议会是更广泛法案的一部分，法案规定所有50岁以上的意大利人必须接种武汉病毒疫苗，该法案于本周早些时候生效。
 
-Today in eastern Ukraine there were more than 40 ceasefire violations reported
-今天在乌克兰东部有40多起违反停火的事件报告
+法案规定，只有那些已经从冠状病毒中康复过来的人，或者那些被认为已经完全接种疫苗的人，才被允许进入某些工作场所。
 
-I spoke with a top military officer today who said
-我今天与一位高级军官交谈，他说
+作为意大利执政联盟的一部分，马泰奥·萨尔维尼 (Matteo Salvini) 的民粹主义联盟 (Lega) 党最初反对这些限制，认为它使用的是意识形态而非科学标准。 然而，他们现在支持政府，称他们 “满意 “于在谈判期间阻止了一项禁止没有疫苗接种或康复证明的人进入公共建筑、银行、邮局、非必需品商店、理发师和美发店的提案。
 
-his troops from the Ukrainian side are now responding
-他的来自乌克兰方面的部队现在正在做出回应
+上月底，据估计，针对50岁以上人群的强制性疫苗政策可能影响多达180万意大利人，他们在未接种疫苗或没有康复证明的情况下上班，将面临600欧元（499英镑/668美元）至1500欧元（1248英镑/1671美元）的罚款。
 
-Also reports at this hour indicate the showing continues
-此刻的报告还显示行动仍在继续
-
-The images you see here are from a kindergarten in Ukraine
-你在这里看到的图片来自乌克兰的一所学前幼儿园
-
-It was hit today with an artillery shell fired by Russian backed separatists
-今天它被俄罗斯支持的分离主义分子发射的炮弹击中
-
-The event was confirmed by Ukraine’s foreign minister
-乌克兰外长证实了这一事件
-
-who said heavy weapons were used in this particular village
-他说他们对这个特定的村庄使用了重型武器
-
-showings were also reported in a number of other locations
-其他一些地方也有报告说出现了这种情况
-
-Analysts fear this escalation could act as a pretext for Russia
-分析人士担心这种升级可能成为俄罗斯的借口
-
-to launch a larger invasion into Ukraine
-对乌克兰发动更大规模的入侵
-
-Satellite images released yesterday show
-昨天发布的卫星图像显示
-
-additional Russian troops arriving at the Ukrainian border
-更多俄罗斯军队抵达乌克兰边境
-
-They also detail a new bridge that’s been constructed just miles from Ukraine
-他们还详细介绍了一座距离乌克兰仅数英里的新桥
-
-The US says at least 7000 new Russian soldiers have arrived in recent days
-美国称最近几天至少有7000名新的俄罗斯士兵抵达那里
-
-US Secretary of State Anthony Blinken did speak today
-美国国务卿安东尼·布林肯今天确实发表了讲话
-
-before the UN Security Council basically urging Russia to step back from the brink of war
-在联合国安理会基本上敦促俄罗斯退出战争边缘之前
-
-It’s a dire situation other analysts see Russia moving more field hospitals
-其他分析人士认为俄罗斯正在转移更多的野战医院和对边境的血液供应
-
-and blood supplies to the border
-这是一个可怕的情况
-
-indicating they’re preparing for battle. John
-表明他们正在准备战斗，约翰
-
-John robbers
-约翰·罗伯茨
-
-Trey Yingst in Ukraine, Trey, Thank you
-特雷·英斯特在乌克兰，特雷，谢谢你
-
-* * *
-
-Date:02/19/2022
-原视频标题:Reports indicate shelling has resumed in Eastern Ukraine as the region braces for conflict
-报道显示，随着该地区准备应对冲突，乌克兰东部的炮击已经恢复
-原视频日期：2022/02/19
-原视频链接[**https://twitter.com/treyyingst/status/1494382395923087364?s=24**](https://twitter.com/treyyingst/status/1494382395923087364?s=24)
-任务编号：KE410（3788）
-视频时间段 : 0:00-1:25
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-庚子
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+信息来源：[No Jab, No Democracy? Politicians Over 50 Banned from Entering Italy’s Parliament Without Covid Pass](https://www.breitbart.com/europe/2022/02/19/no-jab-no-democracy-politicians-over-50-banned-from-entering-italys-parliament-without-covid-pass/)
 
  
 

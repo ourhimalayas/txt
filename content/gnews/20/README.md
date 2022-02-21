@@ -2,20 +2,37 @@
 ---
 
 
-## 视频|美参议员呼吁停止紧急状态宣言和疫苗强制令
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2040102/)
+## 在顿涅茨克市中心发生强烈爆炸
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2040136/)
 
-制作：香草山视频部
+作者：新西兰伊甸农场 米拉娅
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-44.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1039407418_001280853_1440x900_80_0_1_0930db49ef4d824f76ff91cee32af244.png)图片：© DNR\_Online 
 
-面对即将生效的疫苗强制令，马歇尔参议员在福克斯新闻的评论节目中认为，白宫漠视强制疫苗令的负面效应，出发点是因为权力政治。他指出，目前95%的美国人现在对冠状病毒具有了某种程度的免疫力，新的病例率也约为几周前的10%。他称，现在是我们从拜登和福奇手中夺回我们对日常生活掌控的时候了。因此，他将在参议院继续推动终止拜登的冠状病毒紧急状态令和福奇的疫苗强制令。
+2022年2月19日，据【俄卫星社通讯社】报道，顿涅茨克人民共和国政府大楼几十米远处发生爆炸。 据消息称，这发生在距离顿涅茨克人民共和国政府大楼几十米远的地方。在爆炸现场可以看到大火，附近的建筑物没有损坏。 目前还没有人员伤亡的消息。
 
-发稿：谐趣园
+顿涅茨克人民共和国人民民兵武装部在官方Telegram频道上发布的消息中说：“莫斯科时间19点左右，在政府大楼附近的一个停车场一辆汽车被炸毁。整个城市都听到了爆炸声。”
+
+此前，顿涅茨克人民共和国和卢甘斯克人民共和国宣布开始把平民大规模撤往俄罗斯。卢甘斯克人民共和国和顿涅茨克人民共和国代表2月17日早表示，各自阵地均遭到乌克兰武装部队的大规模火力袭击。 乌克兰军方则表示，2月17日，顿巴斯地区违反停火事件骤增。
+
+目前，俄乌边境局势紧张引发了西方世界对战争的担忧，乌克兰相关军事行动也都成为了当下极其敏感和引发关注的话题。而与此同时，乌克兰声称他们打算通过政治和外交途径解决问题。
+
+援引链接：[https://sputniknews.cn/20220219/1039406807.html](https://sputniknews.cn/20220219/1039406807.html)
+
+编辑/校对/发稿：小小安
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-43.jpg)
 
 **更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-44.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

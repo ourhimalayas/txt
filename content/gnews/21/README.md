@@ -2,191 +2,45 @@
 ---
 
 
-## 共产党的封锁统治让中国人彻底脱离了世界文明
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2040096/)
+## 国际奥委会主席托马斯·巴赫斥责北京一名中中共国冬奥会官员的政治言论
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2040133/)
 
-[https://gtv.org/video/id=6213070c1408ee3a03a2d19d](https://gtv.org/video/id=6213070c1408ee3a03a2d19d)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/beijingwinterolympicsratings1-640x480-1.jpg)资料图
+来自《纽约时报》The New York Times 2022年02月18日的报道，国际奥委会主席托马斯·巴赫在周五的新闻发布会上对一名中共国奥运官员发出进行了罕见的、出乎意料的斥责批评。在他发表上述言论之前，北京冬奥会女发言人严家蓉在前一天的新闻发布会上发表了似乎违反了奥林匹克政治中立原则的言论，之后他发表了自己评论。
 
-But I know very well that it will definitely
-cancel the vaccine passport
-但是我非常清楚 它一定会取消(疫苗)护照
+巴赫说：“在这次新闻发布会之后，我们立即与北京奥组委取得了联系。，” 巴赫说（他使用了北京奥组委的缩写），“北京奥组委和国际奥委会这两个组织都重申了保持政治中立的明确承诺，这是奥林匹克宪章的要求。”
 
-It will definitely be stopped
-它一定会(被)停止的
+周四，当被问及台湾的运动员是否会在出席周日的闭幕式上出席时，严家蓉回答说：“我想说的是，世界上只有一个中共国。”。台湾是一个自治的民主岛国，实行自我管理，但被中共北京政府视为中共国领土的一部分。曾是中共国驻联合国代表的严家蓉说：“台湾是中共国不可分割的一部分。”。台湾在冬奥会期间以中华台北的名义参赛。
 
-Why ？
-因为什么
+在奥委会发言人被问及制衣服的材料是否是在自中共国新疆地区使用强迫劳工动力生产的问题后，严家蓉也插话发言发表了看法。她说：“我认为这些问题都是基于谎言，一些当局已经用大量确凿的证据对这种虚假信息提出了质疑。”
 
-We saw that people in the West
-have big truck drivers
-咱就看到了 西方人家有大卡车司机
+严家蓉的言论似乎违反了奥林匹克宪章第50条规则，该规则条禁止在奥运会上进行任何形式的“示威或政治、宗教或种族宣传”。
 
-These days, I look at these big truck
-drivers and I’m so envious
-我这几天 我看人家的大卡车司机 我羡慕人家
+虽然巴赫没有直接谴责严家蓉的言论，但即使是温和的批评，也相当于他对中共国发表的一些最强烈的言论。巴赫在奥运会前不遗余力地将其定位为政治中立的活动，而且必须保持政治中立，尽管这长期以来一直是国际奥委会的理想而非现实。
 
-I have said so much about this , so make
-my wife feel bored
-我说的都把你七嫂子快说烦了
+开幕式当晚，当巴赫被问及他是否对维吾尔族（新疆主要是穆斯林少数民族）–维吾尔族有什么想说的时，他拒绝发表评论。中共国对维吾尔人的镇压被美国政府称为种族灭绝。他说：“如果我们站在政治立场上，卷入紧张局势、争端和政治力量的对抗之中，那么我们就会把奥运会置于危险之中。”
 
-I said, why are the big truck drivers of
-other countries so quality
-我说 为什么人家国家的大卡车司机 都这么有素质
+简评：
+中共的官员都是非常敬业的演员，他们非常善于把握住机会为领导表演。关于台湾的运动员是否会在周日的闭幕式上出席的问题，如果中共举办冬奥会遵守奥林匹克宪章的规则，那么台湾的运动员就应该出席周日的闭幕式。但严家蓉此刻嗅到了“是时候表演真正的技术”的机会，立马跳出来将中共老生常谈的官方措辞拿出来。正常人会觉得莫民名奇妙，但领导很高兴，而普通民众再一次被洗脑。作为一位女士，希望严家蓉有一天也可以在记者会面前，义正言辞的为徐州锁链女呼喊正义，为网球明星彭帅遭受的迫害喊冤。
+哪怕是国际奥委会对中共不疼不痒的批评也会引得媒体的一片惊诧，说明国际奥运会与中共的勾兑太深，国际社会早有共识。从这一事件中我们还可以看出，北京举办的此次失败的冬奥会以及冬奥会期间出现的一系列丑闻造成的恶劣的国际影响，已经促使国际奥委会官员要与中共划清界限了。可以想见，中共被国际组织孤立的局面将越来越严峻。
+尽然选择对中共实施种族灭绝的犯罪行为视而不见，对中共亵渎奥林匹克宪章的行为敢怒不敢言。正所谓‘拿人家手软，吃人家嘴短’，而国际奥运会拿了中共的钱，一定会断送自己未来的命运。
 
-What they say, what they do
-人家说出那话 人家那行为
+新闻链接:[https://www.nytimes.com/2022/02/17/sports/olympics/ioc-thomas-bach-chinese-official.html](https://www.nytimes.com/2022/02/17/sports/olympics/ioc-thomas-bach-chinese-official.html)
 
-And the mutual love between the people
-perseverance, persistence
-还有老百姓之间那个互爱 那种坚持 执着
+翻译/简评: kkoto(芬兰大灰狼)
 
-Then you look back at the CCP
-and our Chinese people
-你看中国共产党 还有咱中国人
-
-Can it last three days or a week?
-能撑三天 能撑一星期吗
-
-Even though all your family’s money
-has been cheated by Ezubao
-e租宝把你家钱都骗光了
-
-the rights protests have not exceeded
-a hundred times
-e租宝(维权)抗议不超过百次
-
-In the end, some ran away, some
-scattered and some were caught
-最后 跑的跑 散的散 抓的抓
-
-The personality of our nation is really
-the sick man of East Asia
-就咱这个民族的个性 真的是东亚病夫
-
-in spirit and in action
-精神上 行动上的东亚病夫
-
-But our whistleblower movement
-got the intelligence first
-但是咱爆料革命 咱最早获得情报
-
-There are more warriors gathered
-Together
-有更多的勇士聚在了一起
-
-And we make so many things
-而且我们做出那么多的事情
-
-And then it could be said that we were
-the first force in the world
-然后 可以说 我们是世界上第一股力量
-
-to make the West truly aware of
-the evil nature of the CCP
-让西方真正的认识到(共产党的邪恶本质)
-
-In the media, there’s Gettr, GNews, GTV
-从媒体上有盖特 有G新闻 G电视
-
-In terms of action
-we have countless political friends
-从行动中我们有无数个政治战友
-
-We have WarRoom, veteran legislators
-and congressmen, current legislators
-我们有《战斗室》老议员 老国会议员 现(任)议员
-
-former presidents and current
-presidents are calling for
-前总统 现总统都在呼吁
-
-Even the President of Brazil, our
-friend，is determined not to vaccinate
-连巴西总统作为我们的朋友 坚决不打疫苗
-
-Strongly support us
-live and die with us
-坚决挺我们 跟我们生死在一起
-
-We have changed the fate of humanity
-我们改变了人类
-
-But it is helpless, you can not change
-但是你很无奈 你改变不了
-
-such a big gap in civilization between
-the Chinese and the West
-中国人和西方之间这么大的差距文明
-
-Western countries are still waking up
-earlier than China
-西方觉醒的还是比中国早
-
-Western people’s action is still
-earlier than China
-西方人家的行动力还是比中国早
-
-And after a series of mistakes
-而且西方在一系列的错误之后
-
-the West’s ability to correct mistakes
-still earlier than China
-纠偏能力还比中国早
-
-This is what our Chinese people
-should always remember
-这就是中国人永远要记住
-
-The West is such a civilized society of
-the rule of law
-西方文明的 法治的社会
-
-it is inevitable that mistakes
-are made
-它一定会犯错
-
-All human civilizations are
-tombstone civilizations
-人类的文明都是墓碑文明
-
-All awakened just after the cataclysm
-of human death
-都是在人类死亡 大灾难之后才觉醒的
-
-All human technology is
-tombstone technology
-人类的所有的科技 都是墓碑科技
-
-After the tombstone there is
-civilization and technology
-墓碑之后 有文明有科技
-
-But we Chinese are the ones who have
-more tombstones after the tombstones
-我们中国人是墓碑之后更多的墓碑
-
-Technology civilization does not exist
-at all,it is all stolen from others
-科技文明根本就不存在 全是偷的
+PR: Harvey（叶知秋）
 
 * * *
 
-Date:2022/02/20
-原视频标题: The blockade rule of the CCP has completely separated the Chinese from the world civilization
-共产党的封锁统治让中国人彻底脱离了世界文明
-原视频日期：2022/02/18
-任务编号：LP006
-视频时间段 : 0:00-02:20
-英听校：洛杉矶盘古农场 – 庚子
-翻译：洛杉矶盘古农场 – 庚子
-翻译终校：洛杉矶盘古农场 – 银龙
-字幕+视频制作：洛杉矶盘古农场-庚子
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

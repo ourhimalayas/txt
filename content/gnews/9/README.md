@@ -2,23 +2,69 @@
 ---
 
 
-## 躺平币浅谈
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2040234/)
+## 泰德·克鲁斯：如果他们不遵守疫苗规定，联合航空公司将解雇他们的员工
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2040257/)
 
-撰稿—祁明
-校对/上传—无明逆流
+[https://gtv.org/video/id=621309421408ee3a03a2d254](https://gtv.org/video/id=621309421408ee3a03a2d254)
 
-躺平币发行的两个前提条件：有利的政治时机和美国金融监管政策出台。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Wh6.jpeg)
-美国政府近日出台了《数字货币监管法案》这里面定有文贵先生的建议，因为之前的大直播中七哥谈到对美国数字货币监管相关人员讲：“数字货币你不能管得太死，管太死会成为你的噩梦，但又不能不管。”所以目前的政策中允许私人企业注册并运营数字货币，既去中心化但政府又可以介入调查是否有犯罪行为发生。
+Ted Cruz (Texas Senator)
+泰德·克鲁斯（德克萨斯州参议员）
 
-拜登政府又宣布出台不允许官员交易股票的法案，有些评论家及金融从业者谈到：这可能是五月份疫苗灾难开始，引发经济危机，让官员及时套现之后的股价指数或一泻千里。到那时政治时机也已经成熟了，文贵先生讲，两个条件都满足了，新中国联邦建国日6月4日或推出躺平币。
+We’re seeing airline flights canceled all over the country
+我们看到全国各地的航空公司航班被取消
 
-躺平币是公链，获取不经过人工审核但是提现需要通过KYC，可能你盖特加V了根据关注者数量自然而然就到账了，也可能通过大直播获得。所有的东西都是有标准的，躺平币如何确定躺平是新中国联邦未来的雏形，根据获得币的数量就是未来系统中的定位。
+And yet, under these illegal vaccine mandates
+然而，在这些非法疫苗授权下
 
-那怎么兑现呢？
-躺平币第一天就能买面包买油，也能买G-Fashion ,G-club。文贵先生讲：“躺平币的厉害现在还不能告诉你们，不然你们一个星期都睡不着了。”
-只要躺平币出来，共产党的棺材板就该钉上钉子了。
+airline pilots and flight attendants and mechanics
+航空公司飞行员和空乘人员和机械师
+
+and ticket agents are being fired from their jobs
+和票务代理被解雇了
+
+Mr. President, typically when I fly back and forth to Houston
+总统先生，通常在我往返休斯敦的时候
+
+I fly either United Airlines or Southwest
+我乘坐联合航空公司或西南航空公司
+
+United, the company has an arbitrary policy
+联合航空公司，公司有一个任意政策
+
+where they are firing or putting on involuntary unpaid leave any employees who refuse to get the vaccine
+就是将拒绝接种疫苗的任何员工解雇或休非自愿无薪假
+
+United is differed from other airlines in that regard
+美联航在这方面不同于其他航空公司
+
+They’ve done so because they want to curry favor with the Biden White House
+他们这样做是因为他们想讨好拜登政府
+
+because United and CEO believes making Democrats
+因为美联航和首席执行官相信让民主党人
+
+1600 Pennsylvania Avenue happy is somehow the best interest
+在宾夕法尼亚大道1600号的人高兴是在某种程度上的最佳利益
+
+* * *
+
+Date:02/19/2022
+原视频标题:Ted Cruz: United Airline will fire their employees if they don’t comply the vaccine mandates
+泰德·克鲁斯：如果他们不遵守疫苗规定，联合航空公司将解雇他们的员工
+原视频日期：2022/02/19
+原视频链接[**https://twitter.com/sentedcruz/status/1494472580715008002?s=24**](https://twitter.com/sentedcruz/status/1494472580715008002?s=24)
+任务编号：3789
+视频时间段 : 0:00-0:59
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场- brucce庚子
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

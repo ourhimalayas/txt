@@ -2,49 +2,43 @@
 ---
 
 
-## 英女王感染新冠 有轻微症状
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2040259/)
+## 张艺谋手机划屏式所谓高科技冬奥会开幕式实属廉颇老矣
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2040339/)
 
-编译： Jenny Ball
+G-TV视频链接：[https://gtv.org/video/id=62125a081408ee3a03a25011](https://gtv.org/video/id=62125a081408ee3a03a25011)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1952.png)www.dailymail.co.uk
+**郭文贵先生：**它这“三个主题”，你发现这“三个主题”了吗？到最后“一起向未来”。这个词真的很吓人，这词。谁跟他一起？关键是这“一起”包不包括杨改兰女士这样的家人？包不包含被绑架了八年、还是十年，生了十来个孩子的人呢？
 
-白金汉宫证实，就在查尔斯和卡米拉都感染病毒几天后，女王的新冠病毒检测呈阳性。
+你看他又是盘古，真不要脸！你知道所谓张艺谋搞的这个在大屏上，就是滑着雪走在这个电子屏，他真敢忽悠中国人！就这也叫高科技？你只有那老掉牙的老同志们他觉得这是高科技，多简单，在手机上划的就这么个划屏，张艺谋真是老了我觉得，他玩这个糊弄全世界！他真的是给中国农村人看的，给黑龙江、吉林、沈阳、广西的农民看的。你在外国人那叫高科技？就象奥委会那个巴赫这种傻货他就看着这叫高科技？哎哟我真的受不了！中国人那种自我感觉良好的这种，真的是。
 
-据了解，这位现年 95 岁的君主正在经历“类似轻度感冒的症状”，但预计未来一周将继续在温莎执行轻度任务。
+字幕来源：[2022年2月4日《文贵大直播》全文字版](https://gnews.org/zh-hans/1961700/)
 
-她将继续接受医疗护理，并将遵循所有适当的指导方针。
+编辑整理：Jacques；
 
-就在两周后，女王在 2 月 6 日迎来了她历史性的白金禧年，庆祝她在位 70 周年。
+字幕文件制作：小满；
 
-接触病毒后 2 到 14 天可能会出现新冠病毒症状，但据了解，温莎城堡团队也确诊了一些病例。
+视频制作及上传：Cindy；
 
-白金汉宫今天在一份声明中说：“白金汉宫证实，女王今天的新冠病毒检测呈阳性。”
+G-News发布：小满；
 
-“女王陛下正在出现类似感冒的轻微症状，但预计未来一周将在温莎继续执行轻度任务。”
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-“她将继续接受医疗护理，并将遵守所有适当的指导方针。”
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-英国首相鲍里斯·约翰逊今天在推特上向女王致以良好的祝愿，他说：“我相信我代表所有人，祝愿女王陛下迅速从新冠病毒中康复，并迅速恢复健康。”
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-据了解，女王已经接种了三次疫苗，但自 10 月中旬以来，在取消了一系列活动并在医院过夜接受初步测试后，她一直受到健康问题的影响。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-据信，她于 2 月 8 日与查尔斯共度了一段时间，当时查尔斯在她温莎城堡的家中主持了一项授职仪式，几天后他的检测呈阳性。
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-克拉伦斯宫周一证实，康沃尔公爵夫人的新冠病毒检测也呈阳性，并补充说公爵夫人正在自我隔离。
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-白金汉宫一再拒绝透露女王本人是否感染了这种病毒，尽管目前尚不清楚她何时提供了阳性检测结果。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-王室有自己的王室医生，女王的医生将随时照顾和监督国家元首，预计将由医学家庭负责人兼女王医师休·托马斯（ Huw Thomas ）爵士教授负责。
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-素材链接：【www.dailymail.co.uk】[The Queen catches COVID amid Windsor Castle outbreak: Monarch, 95, tests positive today after developing mild ‘cold-like’ symptoms but still sends message to Team GB medal winners as she continues light duties](https://www.dailymail.co.uk/news/article-10532601/Queen-95-tested-positive-Covid-mild-cold-like-symptoms.html)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
-* * *
-
-审核：文乐
-校对：花羽
-发布：花羽
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-6.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
