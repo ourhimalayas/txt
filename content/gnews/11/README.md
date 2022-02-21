@@ -2,8 +2,8 @@
 ---
 
 
-## 当年的克里米亚纵容了普京和习近平
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2038666/)
+## 普京这次诉求的不是仅仅是乌克兰，而是要彻底拿下欧洲
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2038677/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

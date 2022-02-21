@@ -2,8 +2,8 @@
 ---
 
 
-## 俄取乌克兰是习普独裁政治利益的需要
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2038741/)
+## 普京和习近平的勾兑
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2038765/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

@@ -2,31 +2,29 @@
 ---
 
 
-## 有声|澳洲朝野抨击中共以雷射光照射澳军机的举动
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2038419/)
+## 卫生部长回应辉瑞和莫德纳疫苗在印度不可用
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2038414/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-当地时间2月20日，澳州总理莫里森及最大在野党工党领袖艾班尼斯个自发表声明，强烈谴责中共军舰以激光束照射澳洲军机的挑衅举动。
+#### 编译：Cran
 
-此次事件发生于17日，中共军舰于澳洲专属经济海域内，在没有受到任何挑衅的情况下，使用激光束照射一架即将降落的澳洲P-8A海神巡逻机，威胁到该机及人员的安全。
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/02/16453950631.png)Image Source: WION
+新德里，据2月18日印度WION报道，在新德里出版的 “保护国家” 一书中，印度卫生部长曼苏克·曼达维亚（Mansukh Mandaviya）首次披露了为社么印度政府没有采购辉瑞（Pfizer）和莫德纳（Moderna）生产的疫苗。而是主要使用印度制造的疫苗。
 
-莫里森表示澳洲绝不接受中共这种恐吓举动。并要求中共对此次的挑衅行为提出解释。澳洲国防部长杜登表示，澳洲必须以强硬姿态来回应中共的胁迫、霸凌和恐吓。艾班尼斯则表示，中共的行为越来越具侵略性。澳洲政府必需对中共发出最强烈的谴责，而且不论任何人来领导澳洲，都需要面对来自于中共的挑战。
+当印度在2021年11月报告有超过十万个心冠病例时，印度政府正在与莫德纳和辉瑞进行就疫苗安全问题进行谈判。 谈判以失败告终，但印度政府从未披露过谈判失败的原因。谈判以失败结束后印度继续实施自己的计划。
 
-文字版原文：[澳洲朝野抨击中共以雷射光照射澳军机的举动](https://gnews.org/zh-hans/2035750/)
+印美就疫苗问题最早开始谈判是在2020年9月，当印度正在经历第一波新冠爆发时。在谈判中，两个疫苗公司提出了秘密条款，作为交换为印度提供疫苗。
 
-音频处理：Fei797
-发稿：Fei797
+当WION总编辑苏迪尔·乔杜里（Sudhir Chaudhary）询问谈判失败原因时，卫生部长曼达维亚说，莫德纳和辉瑞向印度政府提出了一个条件，即只有在签署赔偿条款的情况下，印度政府才能购买他们的疫苗。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+**赔偿条款中明确，任何人在接种疫苗后产生任何副作用或死亡，该公司都不会被追究责任，也不会根据印度法律受到起诉。**这给印度带来了问题。卫生部长说，印度政府接受他们的要求似乎并不明智。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+谈判失败的另一个原因是，印度政府拒绝外国公司在印度生产疫苗，但莫德纳和辉瑞不同意。印度早已成为世界药品生产大国，一些国家品牌的药品实际来自印度。
+
+在印度获得了印度药品监管局的批准的疫苗包括俄罗斯的斯图尼克 (Sputnik) 和强生(Johnson & Johnson) 公司的疫苗，而在政府运营的疫苗项目中广泛使用的是印度制造的Covaxin和Covishield。
+
+[Source](https://www.wionews.com/india-news/why-pfizer-and-modern-vaccines-were-not-available-in-india-health-minister-responds-454466)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
