@@ -2,37 +2,42 @@
 ---
 
 
-## 有声|台外长表示不想战争但绝不向中共低头
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2038985/)
+## 【秘翻在线】最糟糕的冬奥会结束了
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2039002/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月17日，英国一家电视台对台湾外交部长吴钊燮做了专访，并以“台湾忧心俄罗斯侵略行为促成中共大胆攻台”为标题，进行了报导。吴外长接受采访时表示，台湾不想战争，但绝不会因为畏战而向中共低头。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-8.jpeg)
-采访记者认为，中共正密切关注乌克兰情势与俄罗斯的策略，尤其是美国对乌克兰危机的反应，并询问吴外长台湾的预测和态度。对此，吴外长表示，冬奥结束之后，中共何时会发动攻击，谁也不知道。 近一年，中共军机持续侵扰台湾防空识别区，明显有攻打台湾的意图。所有民主国家都会坚决捍卫自己的生活方式，台湾也会做好随时因应中共攻击的准备。
+撰稿：Grace
 
-采访中，吴外长也表示感谢英国和许多友台国家，以实际行动支援、维持台海的自由航行权，展现出民主国家团结的力量。台湾很难单独面对中共威权的压制，需要世界各地民主国家团结起来，力量才会更强大。
+校对：Grace
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-20-at-8.43.20-PM.jpeg)图片来源：tmz
+据英国的《每日邮报》2月20日报道，习近平在 “鸟巢” 体育场内的天鹅绒垫子上观看了最糟糕的冬奥会闭幕式，这届冬奥会因兴奋剂丑闻、黯淡的食物、贫瘠的场地和人权等问题而被蒙上了一层阴影。
 
+据报道，这是被封锁的奥运会，中共病毒Covid-19给了中共领导人充分的借口来赚取数十亿美元，并禁止任何西方人与武汉或新疆的人民交谈，在中共国内有无数的穆斯林被谋杀、折磨或被监禁。
 
+报道指出，参加这次冬奥会的运动员、教练员和媒体都被中共派的人跟踪，他们所到之处都被拍照，并被通过数字方式检查进出。
 
-文字版原文：[台外长表示不想战争但绝不向中共低头](https://gnews.org/zh-hans/2037443/)
+一名记者因试图离开他的酒店，并询问中共病毒Covid-19对那些非常 “普通” 的中共国男人和女人带来了什么影响时受到了来自中共的逮捕威胁。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+报道还说，阴险的中共警车带着大量的摄像机和屏幕，在酒店里清点游客的进出。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+据报道，协调各国议会联盟中共国问题小组(Inter-Parliamentary Alliance on China)的人权活动家卢克·德普尔福德(Luke de Pulford)说，这次冬奥会对中共国来说是一个 “灾难性的失败”。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+他在《电讯报》上写道：“北京2022年冬奥会有多糟糕，怎么说都不过分。”
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+报道称，中共已经最大限度地利用了Covid-19，现在奥运圣火已经熄灭，2026年将移师意大利，中共将再次锁上大门。
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+报道还指出，中共在紧张的准备过程中曾警告说，批评当局的外国运动员可能会面临后果。
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+人权组织抨击了将奥运会授予北京的决定，本周末一名带着两枚金牌飞回国的运动员也对其进行了批评。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+度滑冰运动员尼尔斯·范德波尔 (Nils van der Poel）飞回了瑞典，他说：“我认为把它（冬奥会）交给一个像中国政权那样公然侵犯人权的国家，是极其不负责任的。我真的认为这很可怕。”
+
+另外，一位俄罗斯运动员瓦列里娅·瓦斯涅佐娃 （Valeria Vasnetsova）也吹响了哨子。她说，对中共病毒Covid-19检测呈阳性的外国运动员被挨饿，所以他们即使康复也没法参加比赛。
+
+她还拍下了她在奥运村得到的 “恶心” 的食物。
+
+据报道，挪威连续两届冬奥会在奖牌榜上名列前茅，获得16枚金牌。德国以12枚金牌位列第二。
+
+**新闻来源： ****[Worst Winter Olympic ends: Xi Jinping watches closing ceremony on velvet cushion as curtain comes down on games tarnished by doping scandal, barren venues, grim-looking food and human rights concerns](https://www.dailymail.co.uk/news/article-10532703/Xi-Jinping-watches-Winter-Olympics-closing-ceremony-velvet-cushion-human-rights-concerns.html)**
 
  
 
