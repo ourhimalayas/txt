@@ -2,20 +2,38 @@
 ---
 
 
-## 零基础挖矿赚喜币之一
-` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2042935/)
+## 有声|中共掩盖锁链女真相打压爆料者
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2043042/)
 
-作者：G币西莲
-编辑发稿：am夏天
-德国纽伦堡正义农场
+配音：香草山农场 – 信念7
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+郭文贵先生在最近两次大直播，及2月19日盖特视频中，持续揭露中共专制统治下，很多女性被拐卖欺压的悲惨遭遇。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide5-11.jpeg)
+据郭先生透露，他老家有个村，有百十个被买来的女人。周边几省有上百万被拐卖来的女子，全国每年估计干万女人被倒卖。有的是母亲和孩子一起被拐卖。穷人买女人为生孩子，贪官买女人就逼其做性奴。有的女性被关在黑屋里，有的则锁链不离身，有的被打成残废，有的丧命而尸首无存。中共自改革开放以来，拐卖妇女儿童的罪恶买卖一直存在，许多地方官员暗中默许。
 
-喜币是加密数字货币，全球流通。百分之二十黄金锚定，每年发行10亿个，发行100年。2021年11月1日在喜玛拉雅交易所0.1美元上市，目前价格50美元左右盘整，涨了500倍。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1994.png)
-喜币全称喜玛拉雅币，早期参与者都按贡献配额得到0.1美元的福利币，这是三千年一遇的机会，可谓挖到钻石矿，盆满钵满！
-对照比特币四万多美元的价格，喜币目前50美元是地板价。
-喜币基于最新一代区块链技术，非比特币，以太币可比拟。白皮书可移步himalaya.exchange喜玛拉雅交易所下载研读。
-本系列重在操作赚币。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1993.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/德农二维码-30.png)
+郭先生悲愤谴责中共掩盖八孩锁链女真相，反而速查打击爆料真相者。中共向来对坏人保护，几十年都不追查结果。新中国联邦揭真相，讲真话，传正道，故中共把我们当大敌，污蔑爆料革命者。全球的奸商政客们与中共勾兑，狼狈为奸，要名利，贪美色，讲假话，互称朋友。
+
+中国人的家庭伦理关系，被中共无神论洗脑教育祸害，许多人妻离子散，人与人之间互不信任，处处设防，没有信仰，不分善恶，贪得无厌，缺乏真爱，失去自由。中国人唯一的出路，就是加入新中国联邦，回归正道主义，找回真正的自我，回归正常的人生模式。
+
+文字版原文：[中共掩盖锁链女真相打压爆料者](https://gnews.org/zh-hans/2037399/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

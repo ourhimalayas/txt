@@ -2,22 +2,26 @@
 ---
 
 
-## 英国女王伊丽莎白中共病毒测试呈阳性
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2042800/)
+## 中共统计局数据造假 借冬奥会洗钱骗钱
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2042877/)
 
-作者：银河系农场 — 骄子
+作者：纽约香草山农场 文真
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间 2月20日，英国白金汉宫称，伊丽莎白女王的中共病毒测试呈阳性。伊丽莎白女王95岁高龄，目前的症状是轻微的感冒迹象。据悉，女王已接种三针中共病毒疫苗。 白金汉宫称，女王会继续接受医疗护理，遵循适当的专业指导，且本周内她将继续留在温莎城堡，处理一些轻度的工作。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-21-上午10.19.43.png)
-据悉，这已经是英王室成员再度感染。此前，英国王储查尔斯公爵及夫人相继被检测出中共病毒阳性，而且两人均已接种三针中共病毒疫苗。
+在2月18日大直播中，郭文贵先生爆料，中共统计局的经济数据和疫苗感染率向来都是造假。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/4-46.jpg)
+中共统计局内部信息透露，统计局一直利用假数据欺骗习近平。各项统计数据，几乎全部最后减去一个零，有时候甚至两个零，再向中央上报。以支援非洲的资金为例，实际对外资金是9.6亿，但是只向中央上报960万，其余差额资金全部被个人贪污。
 
-参考链接：[Queen Elizabeth II Tests Positive for COVID-19](https://www.hollywoodreporter.com/news/politics-news/queen-covid-positive-test-1235096807/amp/)
+中共冬奥会各项巨额资金也是造假。据悉，仅开幕式就花费了七十二亿美元，张家口安保费用高达二百多亿美元，总花费近六百亿美元。此外，还涉及所谓的对外援助两千多亿。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+中共统计局以冬奥会境外赞助的名义，往国外疯狂洗钱，各地方政府也极尽所能骗中央的钱。
 
-总编：Jack Li文阳
-编辑：文真
-校正/发稿：呼吸的雾霾（文小呼吸）
+参考链接：[2/18/2022 文贵直播：面临着香港疫情大爆发、谷爱凌、锁链女和彭帅等事件以及统计局借冬奥会洗钱、骗钱，在乌克兰问题上被普京耍了一把并做了肾、脾两个手术的习太阳半条命没了](https://gettr.com/post/pvhlnaf05c)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+
+总编: 文真
+编辑: Jack Li文阳   
+校正/发稿：Fei797
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
