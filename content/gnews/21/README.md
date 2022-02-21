@@ -2,115 +2,49 @@
 ---
 
 
-## 报道显示，随着该地区准备应对冲突，乌克兰东部的炮击已经恢复
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2040201/)
+## 英女王感染新冠 有轻微症状
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2040259/)
 
-[https://gtv.org/video/id=621308911408ee3a03a2d217](https://gtv.org/video/id=621308911408ee3a03a2d217)
+编译： Jenny Ball
 
-John Roberts (Fox News host)
-约翰·罗伯茨 (福克斯新闻主持人)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1952.png)www.dailymail.co.uk
 
-Here’s our Trey Yingst live in Kiev
-这是我们的特雷·英斯特在基辅的现场直播
+白金汉宫证实，就在查尔斯和卡米拉都感染病毒几天后，女王的新冠病毒检测呈阳性。
 
-Trey, what are the last 24 hours look like there?
-特雷，过去 24 小时在那里是什么情况？
+据了解，这位现年 95 岁的君主正在经历“类似轻度感冒的症状”，但预计未来一周将继续在温莎执行轻度任务。
 
-Trey Yingst (Fox News foreign correspondent)
-特雷·英斯特（福克斯新闻驻外记者）
+她将继续接受医疗护理，并将遵循所有适当的指导方针。
 
-John, Good afternoon, the momentum in this crisis
-约翰，下午好，这场危机的势头
+就在两周后，女王在 2 月 6 日迎来了她历史性的白金禧年，庆祝她在位 70 周年。
 
-has clearly shifted over the past 24 hours
-在过去 24 小时内已经明显发生了变化
+接触病毒后 2 到 14 天可能会出现新冠病毒症状，但据了解，温莎城堡团队也确诊了一些病例。
 
-Today in eastern Ukraine there were more than 40 ceasefire violations reported
-今天在乌克兰东部有40多起违反停火的事件报告
+白金汉宫今天在一份声明中说：“白金汉宫证实，女王今天的新冠病毒检测呈阳性。”
 
-I spoke with a top military officer today who said
-我今天与一位高级军官交谈，他说
+“女王陛下正在出现类似感冒的轻微症状，但预计未来一周将在温莎继续执行轻度任务。”
 
-his troops from the Ukrainian side are now responding
-他的来自乌克兰方面的部队现在正在做出回应
+“她将继续接受医疗护理，并将遵守所有适当的指导方针。”
 
-Also reports at this hour indicate the showing continues
-此刻的报告还显示行动仍在继续
+英国首相鲍里斯·约翰逊今天在推特上向女王致以良好的祝愿，他说：“我相信我代表所有人，祝愿女王陛下迅速从新冠病毒中康复，并迅速恢复健康。”
 
-The images you see here are from a kindergarten in Ukraine
-你在这里看到的图片来自乌克兰的一所学前幼儿园
+据了解，女王已经接种了三次疫苗，但自 10 月中旬以来，在取消了一系列活动并在医院过夜接受初步测试后，她一直受到健康问题的影响。
 
-It was hit today with an artillery shell fired by Russian backed separatists
-今天它被俄罗斯支持的分离主义分子发射的炮弹击中
+据信，她于 2 月 8 日与查尔斯共度了一段时间，当时查尔斯在她温莎城堡的家中主持了一项授职仪式，几天后他的检测呈阳性。
 
-The event was confirmed by Ukraine’s foreign minister
-乌克兰外长证实了这一事件
+克拉伦斯宫周一证实，康沃尔公爵夫人的新冠病毒检测也呈阳性，并补充说公爵夫人正在自我隔离。
 
-who said heavy weapons were used in this particular village
-他说他们对这个特定的村庄使用了重型武器
+白金汉宫一再拒绝透露女王本人是否感染了这种病毒，尽管目前尚不清楚她何时提供了阳性检测结果。
 
-showings were also reported in a number of other locations
-其他一些地方也有报告说出现了这种情况
+王室有自己的王室医生，女王的医生将随时照顾和监督国家元首，预计将由医学家庭负责人兼女王医师休·托马斯（ Huw Thomas ）爵士教授负责。
 
-Analysts fear this escalation could act as a pretext for Russia
-分析人士担心这种升级可能成为俄罗斯的借口
-
-to launch a larger invasion into Ukraine
-对乌克兰发动更大规模的入侵
-
-Satellite images released yesterday show
-昨天发布的卫星图像显示
-
-additional Russian troops arriving at the Ukrainian border
-更多俄罗斯军队抵达乌克兰边境
-
-They also detail a new bridge that’s been constructed just miles from Ukraine
-他们还详细介绍了一座距离乌克兰仅数英里的新桥
-
-The US says at least 7000 new Russian soldiers have arrived in recent days
-美国称最近几天至少有7000名新的俄罗斯士兵抵达那里
-
-US Secretary of State Anthony Blinken did speak today
-美国国务卿安东尼·布林肯今天确实发表了讲话
-
-before the UN Security Council basically urging Russia to step back from the brink of war
-在联合国安理会基本上敦促俄罗斯退出战争边缘之前
-
-It’s a dire situation other analysts see Russia moving more field hospitals
-其他分析人士认为俄罗斯正在转移更多的野战医院和对边境的血液供应
-
-and blood supplies to the border
-这是一个可怕的情况
-
-indicating they’re preparing for battle. John
-表明他们正在准备战斗，约翰
-
-John robbers
-约翰·罗伯茨
-
-Trey Yingst in Ukraine, Trey, Thank you
-特雷·英斯特在乌克兰，特雷，谢谢你
+素材链接：【www.dailymail.co.uk】[The Queen catches COVID amid Windsor Castle outbreak: Monarch, 95, tests positive today after developing mild ‘cold-like’ symptoms but still sends message to Team GB medal winners as she continues light duties](https://www.dailymail.co.uk/news/article-10532601/Queen-95-tested-positive-Covid-mild-cold-like-symptoms.html)
 
 * * *
 
-Date:02/19/2022
-原视频标题:Reports indicate shelling has resumed in Eastern Ukraine as the region braces for conflict
-报道显示，随着该地区准备应对冲突，乌克兰东部的炮击已经恢复
-原视频日期：2022/02/19
-原视频链接[**https://twitter.com/treyyingst/status/1494382395923087364?s=24**](https://twitter.com/treyyingst/status/1494382395923087364?s=24)
-任务编号：KE410（3788）
-视频时间段 : 0:00-1:25
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-庚子
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+审核：文乐
+校对：花羽
+发布：花羽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-6.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,43 +2,25 @@
 ---
 
 
-## 张艺谋手机划屏式所谓高科技冬奥会开幕式实属廉颇老矣
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2040339/)
+## 中共百年杀戮之（4）第一次国共内战（续）
+` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2040423/)
 
-G-TV视频链接：[https://gtv.org/video/id=62125a081408ee3a03a25011](https://gtv.org/video/id=62125a081408ee3a03a25011)
+作者：顽童
+编辑发稿：am夏天
+德国纽伦堡正义农场
 
-**郭文贵先生：**它这“三个主题”，你发现这“三个主题”了吗？到最后“一起向未来”。这个词真的很吓人，这词。谁跟他一起？关键是这“一起”包不包括杨改兰女士这样的家人？包不包含被绑架了八年、还是十年，生了十来个孩子的人呢？
 
-你看他又是盘古，真不要脸！你知道所谓张艺谋搞的这个在大屏上，就是滑着雪走在这个电子屏，他真敢忽悠中国人！就这也叫高科技？你只有那老掉牙的老同志们他觉得这是高科技，多简单，在手机上划的就这么个划屏，张艺谋真是老了我觉得，他玩这个糊弄全世界！他真的是给中国农村人看的，给黑龙江、吉林、沈阳、广西的农民看的。你在外国人那叫高科技？就象奥委会那个巴赫这种傻货他就看着这叫高科技？哎哟我真的受不了！中国人那种自我感觉良好的这种，真的是。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-21-at-08.00.47.png)
+中共在第五次反围剿失败以后，到1934年9月，中央苏区仅存瑞金、会昌、雩都、兴国、宁都、石城、宁化、长汀等县的狭小地区，此时周恩来在南昌行营的情报系统透露，国民政府军将要对中共发动最后总攻击，中共的主要领导人于是决定，放弃中央苏区。以中国工农红军北上抗日为幌子，开始了中共宣称的“二万五千里长征”的逃亡之路。1934年10月至1936年10月期间 ，中国共产党领导控制的地方割据武装，中国工农红军红一方面军、红二方面军、红四方面军和红二十五军从中央苏区和南方苏区开始向西向北战略转移，最后汇合于甘肃的会宁县。
 
-字幕来源：[2022年2月4日《文贵大直播》全文字版](https://gnews.org/zh-hans/1961700/)
 
-编辑整理：Jacques；
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-21-at-08.00.16.png)
+中华民国国民政府称中共的长征为流窜，而国军的行动则称为追剿、剿匪。领导国军追击红军的薛岳将军，在《剿匪纪实》中这样评价“长征”：共匪故腾其阶级斗争邪说，洪波四溅，逋毒十省，所过焚杀，川原以丹，至是狰狞面目，暴露无余，政治立场，全告消失，民众益视之若蛇蝎。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-21-at-07.58.38.png)
+中共红十军团委员会主席方志敏，是中共红军罪恶的一个缩影，他开创了绑架商贾乡绅，绑架勒索钱财筹集军费的先例，为了筹措军费，他不顾亲奶奶的哀求用锄头砸死自己的亲叔叔方雨田，在得到赎金的情况下，依然用大刀砍头的方式，杀死被其绑架的外国传教士师达能、史文明夫妇。1935年1月29日方志敏被国民政府抓获，同年8月6日，方志敏于南昌下沙窝被枪决。
 
-字幕文件制作：小满；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+2003年，两名英国研究人员花了384天重走长征路线，估计长征实际距离不到25000里的一半，约6,000公里左右。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/德农二维码-30.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

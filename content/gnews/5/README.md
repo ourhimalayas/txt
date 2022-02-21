@@ -2,50 +2,60 @@
 ---
 
 
-## Paypal大跌与H-Pay无关，Facebook大跌与Gettr无关
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2040413/)
+## 新西兰财经G乐部2022年2月21日:财经新闻整理
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2040487/)
 
-G-TV视频链接：[https://gtv.org/video/id=62125aca1408ee3a03a250ab](https://gtv.org/video/id=62125aca1408ee3a03a250ab)
+采集整理：蚂蚁的城堡
 
-**郭文贵先生：**另外一个PayPal这个跌，跟咱H-Pay毛关系没有，咱别自我感觉良好。这个真的不能像路大脑袋似的，只要带绿帽子都是他亲爹，只要是塞林都是找爹博找来的。就像那个蛇妖闫一样，只要是有病毒，都是我蛇妖闫干的。
+**提纲：**
 
-头两天有一个医生说：“Miles，你把我坑苦了”。我说“我咋把你坑苦了？”“你当时让我相信你那个蛇妖闫，Doctor Yan. 我到处吹乎Doctor Yan，结果现在每个人都问我what’s going on? what’s going on？每个人都问我，发生什么事了？”人家现在是全世界的专家出来，一出来专家你发现了吗？Joe Rogan那个视频你们看了吗？我为什么采访马龙先生？我为什么采访还有那什么博士？因为他俩有过《科学》杂志、《自然》杂志，还有mRNA的部分发明和科学证据结果，而且他说的事情我都验证过，部分都是对的。
+1、2022年海外中共国股票基金再度遭受重创，出现大面积亏损
 
-然后你看到加拿大那个主持人说啥话了吗？我采访了110个专家，他们告诉我，而且这些专家过去干了啥，现在干了啥，做了什么研究。然后你再看英国、日本都说，我干过啥，现在Doctor Yan被我们爆料革命给推上去了，她干过啥呢？煮过两个到十个鸡蛋、杀过老鼠，就这是她的经历，是吧？
+2、多地商贷首付比例最低降至两成
 
-你说人家说：“Miles，你说你让我多丢人呐！她到底，这个病毒她干了啥呢？她先生给她炒了十个鸡蛋，没把她毒死，然后来了美国。然后来了美国，就只有Miles Guo是个骗子。然后把Miles Guo要干掉，她到底是杀手呢，还到底是医生呢，还是专家呢？”一模一样的道理，一模一样的道理。
+3、长沙银行系统漏洞被利用，3人开设4万异常账户赚16万
 
-就是说你不能逮着什么事都认，都是你干的。路大脑袋，这是我干的。只要是全世界出了讨论会，都是我蛇妖闫的功劳、都是我路大脑袋的功劳、找爹博的功劳。还有癌症丽，最近癌症丽真的是病毒，这现在可能是嗝屁了快，两次染上毒了癌症丽。这真的是天报应她，祝愿她长命百岁，长命百岁，希望她能活好。
+4、“人造钻石大王”董事长被采取强制措施，已被终身市场禁入，公司面临退市风险
 
-所以兄弟姐妹们，你看这个H-Pay，Paypal跟我们半点关系没有，大家别往上靠，咱别吹牛，咱自己很强大了，干嘛非要整得自己那么假呼呼的呢？人家一跌都是你的功劳，是吧！Facebook跌跟GETTR也半点关系没有。
+5、以太坊创始人称加拿大使用银行压制抗议者是“危险的”
 
-字幕来源：[2022年2月4日《文贵大直播》全文字版](https://gnews.org/zh-hans/1961700/)
+**正文**
 
-编辑整理：Jacques；
+**1、2022年海外中共国股票基金再度遭受重创，出现大面积亏损**
+![img](https://media.gettr.com/group11/origin/2022/02/21/00/02bf5b5b-c508-2ee3-16ca-cbc32d009746/f509c8c018320c7cd1a7f423af324647_500x0.png)
+2022年海外中共国股票基金再度遭受重创，现大面积亏损。值得注意的是，被当做“聪明资金”的外资机构投资中共国也出现“抱团”。数据显示，截至2021年底，海外前10大中共国股票基金中有8只前10大重仓股包含招商银行，5只包含中国平安、美的集团及腾讯控股。
 
-字幕文件制作：小满；
+参考链接：[http://www.stcn.com/xw/sd/202202/t20220220\_4166969.html](http://www.stcn.com/xw/sd/202202/t20220220_4166969.html)
 
-视频制作及上传：Cindy；
+**2、多地商贷首付比例最低降至两成**
+![img](https://media.gettr.com/group50/origin/2022/02/21/00/ff013f60-3a63-79fd-96e0-3919f60dd297/254b1077e46c24b728f6058a861d9c52_500x0.png)
+近期，山东省菏泽市房贷政策出现实质性松动，首套房首付比例降至20%，引起了市场关注。除了菏泽，今年以来，重庆、江西赣州的不少银行已经将首套房首付比例降至20%。据《证券日报》记者不完全统计，2022年至今，全国超40城发布了各种力度的房地产宽松政策。
 
-G-News发布：小满；
+参考链接：[https://finance.sina.com.cn/chanjing/cyxw/2022-02-21/doc-imcwipih4442507.shtml](https://finance.sina.com.cn/chanjing/cyxw/2022-02-21/doc-imcwipih4442507.shtml)
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+**3、长沙银行系统漏洞被利用3人开设4万异常账户赚16万**
+![img](https://media.gettr.com/group25/origin/2022/02/21/00/676aa1b6-2fe8-6b3e-5dd1-3a917940b007/6e05f2a9a2cdb05d07872ac9ea4eb2dd_500x0.png)
+中共国裁判文书网日前披露的《司某、尚某等破坏计算机信息系统罪、妨害信用卡管理罪刑事二审刑事裁定书》（（2021）湘01刑终754号）显示，3名被告利用长沙银行系统的漏洞，短时间内开设异常账户4万多个，非法获利16万余元，三人均获刑。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+财经G评：中共银行系统安全性这么业余吗？银行系统如果没有内部人士配合，银行的安全系统很难被找到漏洞。中共银行系统最大的问题是监守自盗！
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+参考链接：[https://finance.sina.com.cn/money/bank/bank\_hydt/2022-02-21/doc-imcwiwss2030899.shtml](https://finance.sina.com.cn/money/bank/bank_hydt/2022-02-21/doc-imcwiwss2030899.shtml)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+**4、“人造钻石大王”董事长被采取强制措施，已被终身市场禁入，公司面临退市风险**
+![img](https://media.gettr.com/group44/origin/2022/02/21/01/c41e8dad-8ff7-0e17-c019-580a14315784/4dfa98e7e1e95a5ee9b8666507c5a6a7_500x0.png)
+2月20日晚公告称，公司于2月18日收到通知，公司法定代表人、董事长郭留希因涉嫌违规不披露重要信息罪被公安机关依法采取强制措施，相关事项尚待公安机关进一步调查。此前，郭留希曾因财务造假被监管部门重罚。2021年8月13日，证监会向\*ST金刚下发的《行政处罚及市场禁入事先告知书》显示，\*ST金刚在2015年至2020年这6年间进行长期的系统性造假。郭留希在涉案违法行为中起主要作用，涉案时间长，涉及金额特别巨大，违法情节特别严重，证监会拟对其采取终身市场禁入措施，并罚款1500万元。
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+参考链接：[https://finance.sina.com.cn/stock/s/2022-02-21/doc-imcwiwss2028418.shtml](https://finance.sina.com.cn/stock/s/2022-02-21/doc-imcwiwss2028418.shtml)
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+**5、以太坊创始人称加拿大使用银行压制抗议者是“危险的”**
+![img](https://media.gettr.com/group21/origin/2022/02/21/01/5a6659ee-be62-2816-fb79-1b0e866c2d8c/feed40405899751b0e33d2e90851cda7_500x0.png)
+以太坊创始人VitalikButerin表示，加拿大政府努力阻止资金流向加拿大抗议卡车司机，这说明了为什么存在加密货币。周五在ETHDenver会议上接受采访时，在加拿大长大的Buterin并没有宽恕上周在渥太华大声疾呼反对COVID-19限制的“自由车队”。“如果政府不愿意遵守法律……[and]给人们一个自卫的机会……他们只是想与银行交谈并在没有正当程序的情况下基本上切断人们的金融生计，那是去中心化技术使事情变得更加困难的例子，”Buterin说。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+参考链接：[https://www.coindesk.com/policy/2022/02/19/vitalik-buterin-calls-canadas-use-of-banks-to-stifle-protestors-dangerous/](https://www.coindesk.com/policy/2022/02/19/vitalik-buterin-calls-canadas-use-of-banks-to-stifle-protestors-dangerous/)
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+审核校对：蚂蚁的城堡（一审）、文勇（二审）
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+上传排版：文勇
 
  
 

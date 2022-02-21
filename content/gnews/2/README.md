@@ -2,46 +2,42 @@
 ---
 
 
-## 当不能面对自己好坏时你将一生在梦境中而无法体会成败
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2040447/)
+## DC大中华时事：全球供应链危机或延续到明年
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2040543/)
 
-G-TV视频链接：[https://gtv.org/video/id=62125b011408ee3a03a250dc](https://gtv.org/video/id=62125b011408ee3a03a250dc)
+*编辑：西北风 / 作图：*信正
 
-**郭文贵先生：**大家真的别、这个世界上最疯狂的就是不自信。我觉得有一个人说了一句很关键的话，就是当年赫鲁晓夫说俄罗斯苏联这个国家“我们千年的历史出了一个有史以来最自卑的第一人，他叫斯大林。”
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/ScreenShot-2021-08-01-at-17.25.09@2x.png)
 
-“哇塞”！这句话当时对我一个刚刚学习的人啊，我感触颇深：为什么说斯大林这么大的权力？我一个十几岁的Miles郭，那时候小郭文贵大鼻涕拉碴的，是不是？刚从玉米地出来裤子还没提上呢，突然说最伟大的在天安门上还挂着一个那个什么恩格斯、马克思、列宁、斯大林，然后在毛泽东的旁边放，他怎么是最自卑的人呢？是吧！
+#   墙国妄语每日驳
 
-后来发现越是自卑的人表现越要强大，就像路大脑袋、蛇妖闫，就像找爹博，啥事都自己干的，自己强大得不得了，然后每天表现肌肉“你看我的肌肉”，是不是？然后“咔”在里边一拽一胸罩出来了，是吧！一拽是吧！这就是自卑嘛！后来我知道自卑表现的就是暴虐、虚伪。我们爆料革命的唯真不破里边儿真的是、你看今天南极宝宝半睡半醒之间，Jessica是半睡半醒之间，文斌和青藤几乎在睡眠状态参加了直播。
+### **0**2.19.2022
 
-你记住今天七哥给你们说这段话，任何一个人你记住：当你不能面对你自己的好和坏的时候，你一生付出的代价都是在梦境中，你无法体会到你成功的喜悦，你当然也不会找到你自己失败的原因。我们看到身边所有人只要失败了都是人家的原因，我们生活中任何人，青藤的夫人、青藤的孩子，是吧，南极宝宝本人、南极宝宝家里人，Jessica、文斌的孩子永远是“爸爸你的错！都是你的错！”我们人类上永远不把手指头指向别人指向自己的时候“这是我的错”，你成功。更重要的是人家干好事儿“这是我干的”，所有人都这个毛病，所有人的毛病，永远别这样。
+[境外媒体：北京冬奥精彩成功展大国风采\_参考消息网 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/china/20220220/2469876.shtml)
 
-字幕来源：[2022年2月4日《文贵大直播》全文字版](https://gnews.org/zh-hans/1961700/)
+***简评：***在美国生活多年我从未听美国媒体，美国普通民众整天讲自己是什么大国，也从未看到像中共国整天全世界喊大国风采，强国风范。可在美国我们从日常生活中每个人礼貌待人，如要寻求帮助人人都坦诚相助，开车遵守交通规则，点点滴滴让人觉得这是个大国，这是个强国。这几天江苏徐州丰县锁了24年的锁链女事件让国人和全世界真真实实体验了一把大国风采。从当地政府试图封锁消息到如此冷漠的囯人都会被震撼了一把而全网全国关注與论哗然，中共老套路又开始成立所谓的专案组名为办案实为管控與论粉饰太平。从这件事我们应该明白中国人有人权吗？天赋人权这是普世价值，这是现代文明基础，就如同建房必有地基一样，但在中共国有所谓中共特色的低人权，中共说你有人权你就有人权，中共说你没人权你就没人权，如同锁链女，锁了24年不但无人过问，当然地政府自始至终从上到下帮着隐瞒真相，国人和世界开始关注此事，中共又是开始对锁链女讲述人权了，在中共眼里人权就如同一张擦屁股纸，人权只是粉饰太平的道具，维护专制独裁的工具。中国人从来不曾有过真正的人权。看着中共这帮面对锁链女事件，中共内部互相推卸责任，欺上瞒下，各怀鬼胎，不由得让人联想起如今的中共像极了朱明王朝灭亡前社会情形，还有崇祯皇帝吊死在煤山歪脖子树那历史的一刻。
 
-编辑整理：Jacques；
+### 02.19.2022
 
-字幕文件制作：小满；
+[智媒文章：全球供应链危机或延续到明年\_参考消息网 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/finance/20220216/2469391.shtml)
 
-视频制作及上传：Cindy；
+***简评：***以资本和市场为主导的全球产业链供应链依赖的是稳定的国际贸易环境，其缺陷也就是如果某一供应环节出现问题，全球都受影响。中共经过几十年开放国内市场，依靠对中国劳动力的残酷压榨而换来了全球供应链产业链最低端的原材料生产加工世界加工厂的地位。中共施放生化冠状病毒其目的之一就是破坏全球供应链产业链，瘫痪世界经济，从而恶化发达国家尢其是美国内部社会矛盾，从而使得中共没有后顾之忧的去吞并香港和台湾，这种偷袭肯定中共不会得逞，有新中囯联邦传递真相，各囯早己对中共的邪恶目和邪恶的本质一清二楚。
 
-G-News发布：小满；
+### 02.19.2022
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+[外媒：纽交所拟进入加密货币市场\_参考消息网 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/finance/20220218/2469735.shtml)
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+***简评：***数字加密货币正快步走入大众市场，从2009年比特币问世至今，数字加密货币总市值己超过3万亿美元规模，在各国政府都在制定法律法规合法化数字加密货币当下，数字加密货币将迎来一个井喷发展阶段，喜币亳无疑问站在了风口上，好风凭借力，送我上青云，喜币将一飞冲天。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+#   港台资讯
+![](https://media.discordapp.net/attachments/858887785507323904/944805424853549097/DC2.20.2022-2.jpg?width=1040&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/944805430364893184/DC2.20.2022-3.jpg?width=1040&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/944805437746872330/DC2.20.2022-1.jpg?width=1040&amp;height=586)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+*编辑：西北风*
+*作图：信正
+发布：文顾*
 
  
 
