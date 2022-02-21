@@ -2,18 +2,32 @@
 ---
 
 
-## G-EDU将开展线上线下教育 欢迎全球老师学生加入
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2043734/)
+## 利用 “大科技 ”反对言论自由和走向极权主义
+` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2043884/)
 
-中国人现在很多思想已经人畜不分了，没有教育和信仰，我们的民族是没有希望的。
+**前脸书情报分析员Kara Frederick女士将美国政府的审查制度与中国的社会信用体系进行了比较。**
 
-新中国联邦、爆料革命，灭共 第一，教育 绝对是第二重要的。
+作者：VS
 
-#G- EDU 将由郭文贵先生亲自负责。欢迎全世界最好的老师加入，我们将提供丰厚的报酬，同时支持多种支付方式，如 HDO、HCN、美元等，并且老师和学生都将收到躺平币作为激励。之后G系列各公司上市也将预留股份拨给G-EDU。很快线下学校将在加拿大、英国、美国、日本、澳大利亚等地成立。新中国联邦教育基金启动费1000万美元已经到位，未来将达到100亿，由新中国联盟联盟委员会和战友们监管。
+翻译：Luckycky/校对: 蔚蓝的天
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image1-3.jpeg)图片：网络截图
+**在大科技公司的帮助下，美国政府正在严厉打压言论自由和公民的宪法权利。**前脸书情报分析员、传统基金会研究员Kara Frederick警告说，这正使其更接近中国的社会信用体系。
 
-视频来源: 20220220—郭先生大直播
-视频制作: 文星光，梦田
-文案:文星光
+“**这是政府和大型科技公司之间的这种合作。**在我看来，他们控制言论自由的事实令人不安，并指向即将到来的极权主义，”Joseph Mercola博士网站上的一篇文章引用了Frederick女士的话。
+
+**作为政府如何走向极权主义的一个例子，**她引用了对十几个人的污蔑–包括Joseph Mercola博士。她说，这些批评者会被错误地称为 “错误信息 ”的传播者。拜登曾要求大科技公司压制这些人的在社交媒体上的存在。
+
+
+> *“审查制度正变得越来越无所不在。大型科技公司是政府心甘情愿的走狗。”Frederick女士强调说：“在他们的帮助下，可以对美国人民实施真正严格的控制。”*
+
+
+“坦率地说，这些做法反映了中国在社会信用体系方面的做法（……）。”她强调说：“我认为美国人提高警惕并认识到今天正在发生的事情是极其重要的。”
+
+原文链接：[https://corona-transition.org/mithilfe-von-big-tech-gegen-die-meinungsfreiheit-und-richtung-totalitarismus](https://corona-transition.org/mithilfe-von-big-tech-gegen-die-meinungsfreiheit-und-richtung-totalitarismus)
+
+发布：Luckycky
+![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
+
 
  
 
