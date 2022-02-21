@@ -2,8 +2,8 @@
 ---
 
 
-## 20220220郭文贵大直播 ：普习早就是生死联盟的关系
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2041983/)
+## 20220220郭文贵大直播 ：习近平很清楚在共产党内部自己会被消灭掉
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2042099/)
 
 作者：东京樱花团小视频组
 
