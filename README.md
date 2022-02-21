@@ -90,38 +90,38 @@
 ### [今日盖特大V推荐 — 拉希姆·卡萨姆 (Raheem Kassam)](/content/gnews/25/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [印媒WION：没人知道中共国有多少妇女被拐卖了](/content/gnews/26/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中俄邪恶联盟的风险和影响](/content/gnews/27/README.md)
+### [中俄邪恶联盟的风险和影响](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [欧洲药品管理局登记的疫苗副作用报告超过150万份](/content/gnews/28/README.md)
+### [欧洲药品管理局登记的疫苗副作用报告超过150万份](/content/gnews/27/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [美国卡车司机受到加拿大兄弟们的启发，向华盛顿特区进发](/content/gnews/29/README.md)
+### [美国卡车司机受到加拿大兄弟们的启发，向华盛顿特区进发](/content/gnews/28/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美国航空运输业志愿团体反对中共病毒疫苗强制接种政策](/content/gnews/30/README.md)
+### [美国航空运输业志愿团体反对中共病毒疫苗强制接种政策](/content/gnews/29/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [台湾指责中共国利用奥运会推动“政治宣传”](/content/gnews/31/README.md)
+### [台湾指责中共国利用奥运会推动“政治宣传”](/content/gnews/30/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2/20/2022 文贵直播：习普联手上演痞子政治，最终目的是通过夺取乌克兰和台湾，干掉美国和欧洲](/content/gnews/32/README.md)
+### [2/20/2022 文贵直播：习普联手上演痞子政治，最终目的是通过夺取乌克兰和台湾，干掉美国和欧洲](/content/gnews/31/README.md)
  ` 秘密翻译组-北美组`
 
-### [美联储实施严格的职员交易限制](/content/gnews/33/README.md)
+### [美联储实施严格的职员交易限制](/content/gnews/32/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共统计局数据造假 借冬奥会洗钱骗钱](/content/gnews/34/README.md)
+### [中共统计局数据造假 借冬奥会洗钱骗钱](/content/gnews/33/README.md)
  ` NFSC News`
 
-### [NFSC新闻、G|TV新闻访谈简报|2022年2月21日早](/content/gnews/35/README.md)
+### [NFSC新闻、G|TV新闻访谈简报|2022年2月21日早](/content/gnews/34/README.md)
  ` 纽约香草山MOS01`
 
-### [加利福尼亚州在美国首次实施针对COVID-19的“地方病”政策](/content/gnews/36/README.md)
+### [加利福尼亚州在美国首次实施针对COVID-19的“地方病”政策](/content/gnews/35/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [有声|锁链女事件引爆中共国失踪人口真相致高层内斗](/content/gnews/36/README.md)
+ ` MOSREC`
 
 ### [联盟工作汇报文字版2022.2.20](/content/gnews/37/README.md)
  ` 纽约香草山MOS02`
