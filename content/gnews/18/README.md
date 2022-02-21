@@ -2,22 +2,37 @@
 ---
 
 
-## 负责护送皇帝家人的日本内务府警察确诊感染中共病毒
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2039689/)
+## 悉尼铁路、电车和巴士工会罢工，客运和铁路服务停运
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2039872/)
 
-撰稿：东京樱花团/待命（文晓）
+整理/编辑：小红帽
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/负责护送皇帝家人的日本内务府警察确诊感染中共病毒.png)（图片源自本文链接）
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/16-9.png)图片来源：en.wikipedia.org
 
-2月21日产经新闻消息：21日，日本皇家内务府警察本部宣布，负责护送皇帝及其家人的一名50多岁的男性科长感染了中共病毒(新冠病毒Covid-19)。自1月中旬那次护送工作以后，该负责人一直没有与该皇族家庭有任何接触。
 
-18日晚，他开始感到耳内不适，19日，去一家医疗机构接受了抗原检测，结果显示他被感染了。据报道，他周围的其他员工尚无任何症状。
+根据大纪元2月21日报道， 周一（21日）早上，由于铁路、电车和巴士工会与澳洲新州政府的谈判未果，悉尼所有火车服务全线停运。
 
-信息来源：[天皇ご一家の護衛感染　１月中旬以降接触なし（産経新聞） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/17ef239cb00472d85023235536ccbf2326c9c327)
+周一凌晨，新州交通运输司（NSW Transport）发文表示，“由于罢工行动，悉尼火车公司（Sydney Trains ）和新州火车城际铁路公司（NSW TrainLink）的服务今天无法运行。”
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+悉尼火车公司首席执行官马特朗兰（Matt Longland）表示，“由于铁路、电车和巴士工会(RTBU)的进一步罢工行动，目前整个大悉尼地区的客运和铁路服务都暂停了。”
+
+“政府与工会的谈判中在进行了一个周末的密集谈判后，于午夜时分破裂。悉尼火车和新州城际铁路火车将无法安全提供运营服务”。新州交通运输司表示。
+
+铁路、电车和巴士工会表示，火车停运并不是因为工人的问题，他们正在进行为期两周的保护性的罢工行动，不会影响到通勤者。
+
+铁路、电车和巴士工会在一份声明指责政府试图“通过阻止工人的合法罢工行动来让他们沉默”。
+
+新闻链接：[悉尼火车因罢工行动全线停运 通勤陷入混乱](https://www.epochtimes.com/gb/22/2/20/n13592436.htm)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,32 +2,12 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年2月20日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2039287/)
+## 以警治国的布鲁塞尔完全压制自由车队进入欧盟首都
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2039018/)
 
-作者：香草山翻译部
+02/15/2022 本·哈恩威尔：“以警治国的布鲁塞尔完全压制自由车队进入欧盟首都”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-20-at-4.14.11-PM.png)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-16.png)
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-新闻：[https://gtv.org/broadcast/watch/6212eb1908ba8a07b1a09b96](https://gtv.org/broadcast/watch/6212eb1908ba8a07b1a09b96)
-访谈：[https://gtv.org/broadcast/watch/6212f3be08ba8a07b1a0a176](https://gtv.org/broadcast/watch/6212f3be08ba8a07b1a0a176)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-3.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

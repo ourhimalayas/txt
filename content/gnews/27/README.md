@@ -2,28 +2,27 @@
 ---
 
 
-## 澳大利亚政府到底是放开入境？还是促进疫苗接种？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2039630/)
+## 有声| 新中国联邦新闻、GTV新闻访谈简报|2022年2月17日晚
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2039669/)
 
-撰稿：东京樱花团/待命（文晓）
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-14.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/澳大利亚政府到底是放开入境？还是促进疫苗接种？-1.png)（图片源自本文链接）
 
-2月21日时事通信社悉尼消息：澳大利亚政府21日开始放开为控制中共病毒(新冠病毒Covid-19)扩散而禁止了两年的外国游客入境，但条件是入境者必须完成两针疫苗接种。
+文字版原文：[新中国联邦新闻、GTV新闻访谈简报|2022年2月17日晚](https://gnews.org/zh-hans/2022903/)
 
-澳大利亚在中共病毒灾难发生后采取了严格的隔离措施，现在恢复游客入境是全球开始放宽限制之趋势已到来的象征。
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-澳大利亚做出恢复游客入境的决定，是基于中共病毒感染状况已经过了高峰期，16岁及以上人群的两剂疫苗接种率已达到94%以上，第三剂也正在接种进行中。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-笔者所感，澳大利亚政府这一决定，表面看是放开游客入境，但两针疫苗的之前提条件，会否增加疫苗接种率？这将把澳大利亚以及希望去澳大利亚旅游的人们引向何方？
-
-信息来源：[豪、外国人旅行者の入国全面再開　条件付きで2年ぶり　新型コロナ（時事通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/16f7794fd6cf2aea6733f94c1e2cd6cb3f02f74c)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
