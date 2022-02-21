@@ -2,23 +2,10 @@
 ---
 
 
-## 奥地利强制防疫政策将出现大逆转
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2042581/)
+## 2/20/2022 文贵直播：习普二人单独谈了什么？习普发动战争的根本目的是为其个人安全和政治利益服务
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2042673/)
 
-采编/编译撰稿： 薇文                   校对编辑：硫酸羟氯喹64
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/GettyImages-1238527725-e1645026425755-640x480-1.jpg)图片来源：GEORG HOCHMUTH/APA/AFP via Getty Images
-
-
-据美国[布莱巴特新闻]2月17日报道，奥地利的 “新冠病毒”种族隔离政策，将发生惊天大逆转。该国政府当天宣布将取消绝大部分疫情封锁措施，包括限制未接种疫苗者人身自由的疫苗护照规定。
-
-报道称，以上决定是当局根据[疫情专家委员会]对现行政策的违宪性和非必要性作出分析之后作出的。并因此规定：从2月19日起，未接种者和病毒感染康复者，在病毒测试阴性后可以进入酒吧、餐馆等公共消费和娱乐场所。而从3月5日起，将完全取消疫苗通行证。同时，疫情期间绝大部分的封锁命令，包括对酒店业的宵禁也将被废除。
-
-以上报道再次验证了爆料革命在此之前就准确无误地判断指出：世界各国，特别是欧美国家政府将迫于经济崩溃，政治危机和病毒减弱等原因，必将在今年五月份之前取消强制接种，疫苗护照和大多数疫情限制。
-
-发稿：文明(添草灭共)
-
-新闻来源：[Massive U-Turn: Austria to Repeal Almost All ‘Corona Apartheid’ Rules Targeting Unvaxxed](https://www.breitbart.com/europe/2022/02/17/massive-u-turn-austria-to-repeal-almost-all-corona-apartheid-rules-targeting-unvaxxed/)
+秘密翻译组-北美组
 
  
 
