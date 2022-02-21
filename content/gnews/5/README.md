@@ -2,8 +2,8 @@
 ---
 
 
-## 共产党开启中国互害模式
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2039164/)
+## 一定要有信仰
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2039181/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
