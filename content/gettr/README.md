@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/21/2022 2:56 PM (UTC)`
+
+2月21日：尊敬的战友们好中共国的化肥．农产品．以及粮食都在大涨价，这是为什么呢？所谓的最成功的北京冬奥会开完以后……中国人的生活有什么改变呢？世界形势巨变，为什么中国人又成了牺牲品呢？
+![img](https://media.gettr.com/group46/getter/2022/02/21/14/9dbf241f-c2a8-fe5a-6289-b997be110062/out.jpg)
+
+---
+
 `@miles 2/21/2022 10:23 AM (UTC)`
 
 2/20/2022 Miles Guo: Xi and Putin have joined forces to play their “hooligan politics”. Their ultimate goal is to destroy the US and Europe by taking over Ukraine and Taiwan. There is a shocking secret between Xi and Putin, who are intending to start a war and betting that the US will not dare to engage in it. The US needs to have a consistent long-term policy toward the CCP and Russia.<br/><br/>2/20/2022 文贵直播：习普联手上演痞子政治，最终目的是通过夺取乌克兰和台湾，干掉美国和欧洲；习普之间有惊天秘密，意图发动战争并赌美国不敢打；对中共国和俄罗斯，美国需要有长期一致的政策<br/>
@@ -149,13 +156,6 @@ Who's Miles Guo Episode 3 《Mile‘s Determination to Take Down the CCP》<br/>
 
 2月19号：新中国联邦的爆二代的气质，长相．正义的形象无可比拟！ <br/><br/>拜托，大家一定要看今天的真人真事太棒了。<br/><br/>https://gtv.org/broadcast/watch/62110d41b706176dd78d61f2
 ![img](https://media.gettr.com/group9/getter/2022/02/19/18/926773cd-ea4c-a1c7-1367-2f1a709a3095/out.jpg)
-
----
-
-`@miles 2/19/2022 2:23 PM (UTC)`
-
-2月19号：尊敬的战友们好！锁链女灾难的事件！正在国内国际上<br/>正在发酵中，中共国犯罪集团的本质……越来越清楚地被世界认知……共产党己成为全人类的公敌！必须彻底的被消灭！
-![img](https://media.gettr.com/group32/getter/2022/02/19/14/8c6e1317-dcf2-a77f-02b7-f034b6c8d266/out.jpg)
 
 ---
 
