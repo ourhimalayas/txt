@@ -2,20 +2,39 @@
 ---
 
 
-## 英国女王感染中共病毒
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2044224/)
+## 有声|乌克兰将数字货币合法化
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2044245/)
 
-加拿大温哥华扬帆农场    平民正道
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据多家媒体报道，2月17日，乌克兰议会以272票的压倒性优势通过了新的乌克兰虚拟资产法。根据该法，乌克兰证券委员会将作为虚拟资产和任何未来虚拟资产市场的主要监管机构，负责向比特币和加密货币服务提供商发放许可证，并对市场进行监督和财务监控。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-44.jpg)
+除了为将加密资产纳入乌克兰的金融和监管体系奠定法律基础外，该法案还确认了公民持有和使用加密货币的权利，并定义了所有加密货币市场参与者的权利和义务。
 
-据加拿大媒体《CTV新闻》2月20日报道，来自英国白金汉宫消息称，现年95岁的英女王当天的“新冠病毒”检测结果呈阳性，并出现了轻微的类似感冒症状。
+乌克兰数字化转型部长米哈伊尔·费德罗夫称，新法案将允许乌克兰启动一个合法的虚拟资产市场。
 
-据悉，女王此前已完全接种了该病毒疫苗和加强剂。此外，本月初查尔斯王子及其夫人也感染了“新冠病毒”。同时，女王下榻的温莎城堡中也有工作人员被感染。
+据悉，在过去的几个月里，乌克兰通过加密货币为志愿者筹集了大量资金，尽管传统支付方式仍是主流，但加密货币被证明是一个强大的、越来越受欢迎的替代方案。
 
-在英国逐步取消各项防疫政策的同时，接种疫苗后所带来的健康危机正悄然而至。人类面临前所未有的灭顶之灾还远未结束。
 
-* * *
 
-编辑： 平民正道    发布：平民正道
+文字版原文：[乌克兰将数字货币合法化](https://gnews.org/zh-hans/2037874/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
