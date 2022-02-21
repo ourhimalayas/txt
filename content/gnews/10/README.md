@@ -2,10 +2,10 @@
 ---
 
 
-## 美国卡车司机受到加拿大兄弟们的启发，向华盛顿特区进发
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2043571/)
+## 印媒WION：没人知道中共国有多少妇女被拐卖了
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2043662/)
 
-02/16/2022 莫林·斯蒂尔：美国卡车司机受到了加拿大兄弟们的启发，主车队正从加州出发向华盛顿特区进发。
+02/18/2022 印度媒体WION报道：没人知道中共国有多少妇女被拐卖了
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
