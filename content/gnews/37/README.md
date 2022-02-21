@@ -2,22 +2,26 @@
 ---
 
 
-## 拜登总统和普京总统合意会晤 如果军事入侵则取消
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2039457/)
+## 视频|日媒揭露中共病毒疫苗接种后严重副作用案例
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2039997/)
 
-撰稿：东京樱花团/向海
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片4-3.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fichef.bbci.co.uk%2Fnews%2F640%2Fcpsprodpb%2FC52C%2Fproduction%2F_118667405_biden-putin_comp_reuters_hi067475365_hi066800424-2.jpg&amp;imgrefurl=https%3A%2F%2Fwww.bbc.com%2Fzhongwen%2Fsimp%2Fworld-57468885&amp;tbnid=qMDko1Ud33XHCM&amp;vet=12ahUKEwionYmz74_2AhW95XMBHZbtBowQMygCegUIARCZAQ..i&amp;docid=tlSOhIRi7sBTcM&amp;w=640&amp;h=360&amp;q=%E6%99%AE%E4%BA%AC%20%E6%8B%9C%E7%99%BB&amp;ved=2ahUKEwionYmz74_2AhW95XMBHZbtBowQMygCegUIARCZAQ)
-20日，美国总统拜登和俄罗斯总统普京原则上同意就乌克兰局势举行会晤。经法国总统马克龙磋商双方表示接受 。
+制作：香草山视频部
 
-美俄外长将于24日进行讨论和协调。 如果俄罗斯入侵乌克兰，这一预定将被取消。
+当地时间2月18日，日媒分享了两个接种中共病毒疫苗后，出现严重副作用的案例。这两个案例，均为十几岁的青年人。
 
-信息来源
+其中一位是一名十几岁的少女，在接种两针莫德纳疫苗后，立即出现心脏剧痛，并且心脏停跳长达7分钟，后经全力抢救才得以生还。而另一位接种了两剂疫苗的10岁男孩并没有这么幸运，在完全接种了第二针疫苗的三个月后，依旧感染了中共病毒，在持续发烧后出现播种性血管内凝固症候群，最终在2月9日死亡。虽然他的死因是由于疫苗所导致的血栓和内出血，但是却被厚生省归类为死于病毒。根据厚生劳动省的规定，无论真实死因是什么，只要检测呈阳性都会被归为“感染后死亡”，
 
-[バイデン氏とプーチン氏、会談に原則合意　軍事侵攻なら取りやめ](https://news.yahoo.co.jp/articles/243cc322e1cf47068d17e2bc2945c1405ce5d686)
+该视频一经发布，就引来网友们的热评。许多网友感谢节目组曝光真相，并认为主持人大石先生保持了真正记者所该具备的精神和伦理（留言中的松尾行高）。还有网友留言道，自己朋友的母亲也在接种后第二天死亡了，而上门确认死亡的警察也透露“的确接种后突然死亡的人在增多”。更有评论谴责、质疑父母为子女接种毒疫苗的行为。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+据日本厚生省统计，目前日本全民接种超过2亿剂，辉瑞疫苗疑似副作用有1万7千多例，莫德纳有4100多例，当前日本政府正准备给65岁以上老人接种第三剂加强针，并即将开始对12岁以下人群开展接种，主持人呼吁民众，一定要高度注意接种疫苗所造成的危险。
+
+发稿：谐趣园
+
+**更多资讯，更多关注**
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

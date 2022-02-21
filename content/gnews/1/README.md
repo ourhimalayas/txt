@@ -2,39 +2,50 @@
 ---
 
 
-## 美英国防高官视察南澳造船厂，为核潜艇建造提供建议
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2040646/)
+## 美国和世界经济大崩盘的五月份前我们准备好拉钻石的车
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2040779/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+G-TV视频链接：[https://gtv.org/video/id=62125b7a1408ee3a03a25144](https://gtv.org/video/id=62125b7a1408ee3a03a25144)
 
-整理/编辑：文泓
+**郭文贵先生：**而且我告诉大家，美国经济今天这个程度你知道对我们什么有利吗？今天它要崩塌了对咱没有任何好处，或者这个好处没那么大，因为咱还没准备好，就咱家里边儿的布袋还有拉钻石的车、拉钱的车都没有发动呢，还没到位呢，是不是？从山上呼啦呼啦掉那么多钻石怎么拉回来？叫别人给弄走了。最起码今年三月份它们再跌。所以七哥早告诉你们，五月份以后的美国、世界经济才会大崩盘。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/34.png)图片来源：Australia Naval Infrastructure & 雅典娜设计组
+在五月份以前我们是一定要准备好“拉钻石的车“，是吧！家里边儿的地窖，是吧！我们都准备好，决定拉Jessica家粉钻1万车，文斌加红钻1万车，南极宝宝家粉钻加黑钻1万车，青藤家各1万车，是吧！搁在这儿，咱都准备好啦，说到做到是吧，这才行。记住七哥说的五月份，这是为什么GETTR VISION没有上2月1号我很恼火！约翰这个团队，很恼火！这都是我们的战略。
 
+然后接下来就躺平币要上，然后记住，大家注意到了吗这几天？H-Pay刚上线好多功能都已经升级了，你只是没注意到而已，但是高手都知道。H-Pay最起码有三到五个高管已经到我们H-Pay工作了，Stripe最起码两个最牛的高管之一，一个已经到我们这儿来工作了，哈哈！用他们的话说：我们来帮助你，我们来帮助你把过去的所有我们的失败，不要在你这儿重演，把我们想要的成功，在那里不能实现的在H-Pay来实现！欸，我说：好！来吧。
 
-澳大利亚去年放弃了与法国签署的900亿澳元攻击型潜艇项目，转而与美国、英国联合签署了AUKUS[安全协议](https://www.epochtimes.com/gb/tag/%E5%AE%89%E5%85%A8%E5%8D%8F%E8%AE%AE.html)。作为该协议的一部分，莫里森总理承诺要在阿德莱德建造核动力潜艇。去年9月澳洲成立了一个为期18个月的工作组，以确定获取核动力潜艇舰队的最佳途径。
+昨天我在车上，然后他说这些人我们要……有个人事部的人跟我说，“我们要跟他软硬兼施让他意识到我们的怎么怎么着“。我说：“你这是完全胡说八道，什么叫软硬兼施？告诉他们，你一生中唯一选择就是到H-Pay来，你爱来不来，不来拉倒。我不给你软硬兼施，你不来拉倒，你不来你走。对吧？我是你最佳的选择，没这个自信能行吗？”我就说“你就这么告诉他说我说的。”
 
-当地时间2月21日，据大纪元澳洲[阿德莱德](https://www.epochtimes.com/gb/tag/%E9%98%BF%E5%BE%B7%E8%8E%B1%E5%BE%B7.html)报道，来自美国和英国的高级国防官员正聚集在南澳首府阿德莱德视察海军奥斯本造船厂，为在这里建造至少八艘[核动力潜艇](https://www.epochtimes.com/gb/tag/%E6%A0%B8%E5%8A%A8%E5%8A%9B%E6%BD%9C%E8%89%87.html)提供建设性意见。
+我告诉你，这看美国经济的时候，今天这个预热，兄弟姐妹们，我再给你们提个醒，如果你傻到现在还持有这些人的股票，你绝对是等死呢，就像有许家印的股票一样，你就等死呢。现在你绝对要还有机会在“山崩”之前还有离开的机会，你还在里面待着那真的就是完蛋了。
 
-据《广告人报》报导，此次美英国防高管访问正值澳洲总理莫里森与英国首相约翰逊就[澳英美](https://www.epochtimes.com/gb/tag/%E6%BE%B3%E8%8B%B1%E7%BE%8E.html)[安全协议](https://www.epochtimes.com/gb/tag/%E5%AE%89%E5%85%A8%E5%8D%8F%E8%AE%AE.html)（AUKUS）进行视频讨论之际，双方重申了将在[阿德莱德](https://www.epochtimes.com/gb/tag/%E9%98%BF%E5%BE%B7%E8%8E%B1%E5%BE%B7.html)建造潜艇的承诺。
+一定记住，今天的美国经济告诉你，做好最坏的经济准备，你得有吃饭的钱，买油的 买面包的钱。第二，如果你有那个投资，二话别说快点跑，否则砸在里面了。第三，H-Pay、H-Coin这个大喜事，唯天下独好的时候，你不要错过机会好吧？
 
-上周四，莫里森和约翰逊举行了一次虚拟峰会，双方同意在AUKUS协议下加强印太地区的海军活动并加强网络安全合作。两位领导人还讨论了南澳在合作伙伴关系中的关键作用。
+字幕来源：[2022年2月4日《文贵大直播》全文字版](https://gnews.org/zh-hans/1961700/)
 
-莫里森的办公室在一份声明中说：“欢迎英国和美国官员在澳洲就运营核动力潜艇所需的核管理等诸多方面的能力提供专家级建议。”
+编辑整理：Jacques；
 
-国防部[核动力潜艇](https://www.epochtimes.com/gb/tag/%E6%A0%B8%E5%8A%A8%E5%8A%9B%E6%BD%9C%E8%89%87.html)特遣部队负责人、海军中将米德透露，英美两国的高级代表团已开始视察阿德莱德的造船厂，并与国有造船公司ASC和澳洲海军基础设施公司（ANI）进行重要讨论。
+字幕文件制作：小满；
 
-与此同时，来自澳洲和美国的官员们正汇聚在伦敦，讨论加强网络安全和人工智能领域的合作，这些高科技领域合作正在阿德莱德的“十四号”科技园区（Lot Fourteen）蓬勃发展，该园区是澳洲航天局和网络安全中心以及人工智能中心的所在地。
+视频制作及上传：Cindy；
 
-新闻链接：[美英国防高官视察南澳造船厂](https://www.epochtimes.com/gb/22/2/20/n13592387.htm)
-*发布：tianzhihuan*
+G-News发布：小满；
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

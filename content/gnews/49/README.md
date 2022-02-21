@@ -2,25 +2,37 @@
 ---
 
 
-## 日本外相林芳正在国际会议上表明将在台湾问题上与中共国竞争
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2037283/)
+## 乌克兰将数字货币合法化
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2037874/)
 
-撰稿：东京樱花团｜百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-1-11.png)
-[*图片来源*](https://www.sankei.com/article/20220220-QXURZOFDY5J7TIJDY42XWUVFDA/photo/J4ZHXGW7Y5K7DHJDW2ZTKRYCHY/#:~:text=%E3%82%82%E3%81%A3%E3%81%A8-,%E6%9E%97%E5%A4%96%E7%9B%B8%E3%80%8C%E5%8F%B0%E6%B9%BE%E5%95%8F%E9%A1%8C%E3%81%A7%)
+作者：日本东京方舟农场—Miyali7768(文玉）
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+据多家媒体报道，2月17日，乌克兰议会以272票的压倒性优势通过了新的乌克兰虚拟资产法。根据该法，乌克兰证券委员会将作为虚拟资产和任何未来虚拟资产市场的主要监管机构，负责向比特币和加密货币服务提供商发放许可证，并对市场进行监督和财务监控。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-44.jpg)
+除了为将加密资产纳入乌克兰的金融和监管体系奠定法律基础外，该法案还确认了公民持有和使用加密货币的权利，并定义了所有加密货币市场参与者的权利和义务。
 
-2月20日据《产经新闻》在线报道：2月19日下午，日本外相林芳正参加了在德国慕尼黑举行的安全会议小组讨论会。林外相表示，在台湾问题、AI（人工智能）、量子技术和生物技术等高科技领域，我们必须以民主和人权等价值观为基础与美国和其它国家竞争。
+乌克兰数字化转型部长米哈伊尔·费德罗夫称，新法案将允许乌克兰启动一个合法的虚拟资产市场。
 
-印度外长苏杰生和澳大利亚外长佩恩也参加了用英语进行的小组讨论。林芳正外相解释了日本-美国-澳大利亚和印度（四国）框架，并表示，友好国家之间分享价值观是应对气候变化、促进基础设施发展和高端技术合作的关键。
+据悉，在过去的几个月里，乌克兰通过加密货币为志愿者筹集了大量资金，尽管传统支付方式仍是主流，但加密货币被证明是一个强大的、越来越受欢迎的替代方案。
 
-同时，在谈到台湾问题时他强调，台湾是日本非常重要的伙伴和朋友。台湾海峡的和平与稳定不仅对日本、而且对国际社会的稳定与安全也很重要；对乌克兰问题严重关切；在朝鲜问题上他表示，虽然现在不能就朝鲜问题举行六方会谈，但在朝鲜问题上必须与中共国进行合作。
+参考链接：
+1. [乌克兰将数字货币合法化](https://m.fx168.hk/active/article/5667992.html)
+2. [乌克兰将数字货币合法化](https://simu.jd.com/info/d4cx0s8iso.html)
 
-信息源：[**林外相「台湾問題で中国と競い合う」 国際会議で説明**](https://www.sankei.com/article/20220220-QXURZOFDY5J7TIJDY42XWUVFDA/photo/J4ZHXGW7Y5K7DHJDW2ZTKRYCHY/#:~:text=%E3%82%82%E3%81%A3%E3%81%A8-,%E6%9E%97%E5%A4%96%E7%9B%B8%E3%80%8C%E5%8F%B0%E6%B9%BE%E5%95%8F%E9%A1%8C%E3%81%A7%)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / yuxingcao01*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/樱花-3.jpg)
+总编：飞虹
+编辑：飞虹
+校对/发稿：Hetangyuese
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 
