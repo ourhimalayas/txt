@@ -2,47 +2,46 @@
 ---
 
 
-## 有声| Casino 集团强力入住虚拟世界元宇宙沙盒 (SAND)
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2039673/)
+## 俄乌战争实际已开始前线激战
+` 全球G系列咨服群` [轉載自GNews](https://gnews.org/zh-hans/2039842/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-在家乐福之后，轮到法国大型超市零售集团宣布它进入虚拟世界了。这个法国集团来到沙盒 (SAND) 虚拟世界以分发可在现实世界中使用的促销和优惠券。
+G-SUPPORT：背靠背
 
-**可以在Leader Price超市赢取优惠券的游戏**
+2022年12月21日，郭文贵先生大直播指出俄乌战争实际三天前已开始。
 
-日前，法国零售巨头家乐福宣布[购买了沙盒世界（SAND）的虚拟地块](https://cryptoast-fr.translate.goog/carrefour-parcelle-terrain-metaverse-the-sandbox-sand/?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN)。如今，Casino 集团正在通过其房地产子公司大张旗鼓地进入元宇宙。
+乌克兰军和民间亲俄武装激战（可能实际是俄罗斯军人），顿巴斯民众疏散撤离，俄罗斯200多辆装甲车驶过贝尔沙科沃。距离乌克兰边境约10公里。
 
-如果家乐福没有具体说明它打算在元宇宙中做什么，那么Casino集团已经公布了它的部分雄心壮志。
 
-没有虚拟商店，而是一个采用了已在沙盒上找到的代码的游戏。它最初将保留给Casino 集团折扣品牌 Club Leader Price 的会员，他们将获得“黄金门票”。
 
-“我们于 2021 年底开始购买地块，但我们正在开展几个旨在提供客户体验的项目。我们采用工业方法。我们的目标是用这些新的虚拟资产创造价值，就像我们使用我们的真实资产一样。”Casino Immobilier 首席执行官 Nicolas Joly 在接受 Les Échos 采访时补充道。
+俄乌前线战斗激烈，视频来源网络
 
-**Monoprix 和 Franprix 可以效仿 Leader Price 的例子**
 
-Casino集团开发的游戏目的很简单。在属于该组的元宇宙The SandBox的情节中，参与者将不得不从Club Leader Price的在线商店中搜索食物，以获得在现实世界中使用的代金券或折扣。
 
-该公司还在研究以不可替代代币（NFT）的形式实施奖励。
 
-为 Club Leader Price 会员准备的这款游戏将作为 Casino 集团的体验。如果它被证明是成功的，它应该将其他大型零售商，如 Monoprix 或 Franprix，带入元宇宙。
 
-**译者评**：鉴于喜马拉雅币即将被越来越多的人们所接受，Hpay凭借其瞬间交易功能和无手续费的巨大优势，可以甩其他加密货币几条街。在可预见的未来，虚拟世界一定是喜马拉雅币大显身手的领域。
+坦克翻车，视频来源网络
 
-文字版原文：[Casino 集团强力入住虚拟世界元宇宙沙盒 (SAND)](https://gnews.org/zh-hans/2027068/)
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+2月18日，乌克兰东部分离地区一个市镇周四发生炮击事件，一个幼儿园被炸出一个洞。【1】乌克兰军队与卢甘斯克的亲俄分离武装分子互相指责。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+克里姆林宫则说，”乌克兰部队的极端聚集”是造成“极其危险局面”的原因。
+
+美国总统拜登称，莫斯科正在为攻击乌克兰寻找一个借口。
+俄罗斯驻乌克兰基辅大使馆楼顶冒烟。 乌克兰卢甘斯克一家幼儿园被俄罗斯炮弹击中。视频来源网络
+
+2月16日，俄罗斯下议院周二2月16日投票，呼吁总统弗拉基米尔-普京承认乌克兰亲俄分离主义领土的独立，欧美警告。【2】
+
+参考链接：
+
+【1】[乌克兰东部发生炮击 幼儿园受损](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20220218-%E4%B9%8C%E5%85%8B%E5%85%B0%E4%B8%9C%E9%83%A8%E5%8F%91%E7%94%9F%E7%82%AE%E5%87%BB-%E5%B9%BC%E5%84%BF%E5%9B%AD%E5%8F%97%E6%8D%9F)
+
+【2】[俄议会吁普京承认乌东分离地区独立 欧美警告](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20220216-%E4%BF%84%E8%AE%AE%E4%BC%9A%E5%90%81%E6%99%AE%E4%BA%AC%E6%89%BF%E8%AE%A4%E4%B9%8C%E4%B8%9C%E5%88%86%E7%A6%BB%E5%9C%B0%E5%8C%BA%E7%8B%AC%E7%AB%8B-%E6%AC%A7%E7%BE%8E%E8%AD%A6%E5%91%8A)
+
+* * *
+
+素材整理&编辑&发布：背靠背
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

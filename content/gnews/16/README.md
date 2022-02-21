@@ -2,45 +2,22 @@
 ---
 
 
-## 轰轰烈烈漫山遍野,你用自己那无瑕的身躯净化~不是吹的
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2039932/)
+## 美驻莫斯科大使馆警告称，俄罗斯首都可能发生袭击事件
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2039989/)
 
-G-TV视频链接：[https://gtv.org/video/id=621257271408ee3a03a24d84](https://gtv.org/video/id=621257271408ee3a03a24d84)
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1941.png)[图片来源](https://www.sankei.com/article/20220220-ARN5PY26ABKSXAPNPV3LTZADQM/#:~:text=%E5%9B%BD%E9%9A%9B%E6%83%85%E5%8B%A2%E5%88%86%E6%9E%90-,%E3%82%A6%E3%82%AF%E3%83%A9)
+美国驻莫斯科大使馆20日在其网站上警告，莫斯科和俄罗斯第二大城市圣彼得堡的购物中心、铁路和地铁可能会遭到袭击。它敦促人们避开城市，远离乌克兰边境，计划撤离。
 
-**郭文贵先生：**刚才Jessica唱得非常好，但有一句什么没唱好，这句话很关键，记住啊——“轰轰烈烈满山遍野～下一句，你用自己那无瑕的身躯～看见没有，这个青藤在现场看，七哥练多少遍他是见证人，这不是忽悠的，你一个字儿呼吸不上来就不够了，看——你用自己那无瑕的身躯～净化被谎言～‘净化’是最难的，净化被谎言笼罩的世界，刚才你唱走调了，“净化被谎言”调儿没了，唱不上来了，这不行了，你看是吧？”
+据称俄罗斯正准备入侵乌克兰边境，而这种担忧是基于媒体上的信息，并没有详细说明。
 
-看着啊——“我爱你灭共的雪～轰轰烈烈满山遍野～你用自己那无瑕的身躯～净化被谎言笼罩的世界～你把真相传递给了人间～唤醒了那无尽的哀野～沉睡的心田～看见没有？你一个气呼不上来，就把你给弄没了，这真不是开玩笑的，妹妹，这个青藤亲自在现场他陪着，知道一个词儿呼不上去就完。
+据塔斯社报道，俄罗斯外交部新闻司司长扎哈罗娃在（SNS）上发帖称，想知道这些信息是否已经传达给了俄方，她对其可信度表示怀疑。
 
-现在国内很多高手都感动得不行了：“七哥，听一遍哭一遍。” 这不是吹的，一句词儿哼完了，你就跟不上去了。它这个看上去很简单，这非常非常难，就像《一帘幽梦》似的，看着很简单《一帘幽梦》，但咱一唱咱的词儿，如果你有一个气跟不上，肯定断，就这么简单，这可不是吹牛呢。
+信息源：[「露首都で攻撃」警告　モスクワの米大使館](https://www.sankei.com/article/20220221-Y2AK7QORJBPNVJDAH3BKVDU56A/#:~:text=%E6%97%A5%E6%9C%AC%E3%81%AB%E6%8A%97%E8%AD%B0-,%E3%80%8C%E9%9C%B2%E9%A6%96%E9%83%B)
 
-字幕来源：[2022年2月4日《文贵大直播》全文字版](https://gnews.org/zh-hans/1961700/)
-
-编辑整理：Jacques；
-
-字幕文件制作：小满；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

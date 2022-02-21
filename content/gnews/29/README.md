@@ -2,14 +2,20 @@
 ---
 
 
-## 有声| NFSC新闻、G|TV新闻访谈简报|2022年2月17日早
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2039667/)
+## 有声| 研究显示：TikTok可以绕过苹果和谷歌的隐私保护获取用户数据
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2039672/)
 
 配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-16.png)
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+据[布莱特巴特新闻网](https://www.breitbart.com/tech/2022/02/16/study-chinas-tiktok-can-bypass-apple-and-google-privacy-protections-access-user-data/)2月16日报道，最近的两项研究显示，中共拥有的社交媒体TikTok可以绕过苹果和谷歌应用商店的安全保护措施，获得对用户数据的全面访问权限。
 
+这些研究是由 “白帽子”网络安全专家分别于2020年11月和2021年1月完成的。
 
-文字版原文：[NFSC新闻、G|TV新闻访谈简报|2022年2月17日早](https://gnews.org/zh-hans/2021247/)
+研究摘要表明，TikTok能够绕过苹果和谷歌应用商店的代码审计，并能够在用户不知情的情况下更改应用程序的行为、访问设备跟踪功能，使中共国公司和第三方能够访问完整的用户数据。
+
+网络安全公司Conquest Cyber表示，这远远超过了Facebook和Twitter等美国制造的应用程序对用户数据的访问权限。这些动态属性允许TikTok在应用程序可以看到的范围内全权访问您的设备。TikTok浏览器不仅可以访问从网络到设备的转换，而且还可以查询设备本身的内容。
+
+文字版原文：[研究显示：TikTok可以绕过苹果和谷歌的隐私保护获取用户数据](https://gnews.org/zh-hans/2026982/)
 
 音频处理：呼吸的雾霾（文小呼吸）
 发稿：呼吸的雾霾（文小呼吸）

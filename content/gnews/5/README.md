@@ -2,50 +2,32 @@
 ---
 
 
-## 蒲安臣条约前为摆脱英国代理美国首航清国的中国皇后号
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2040033/)
+## 当地市场飙升1500%，阿联酋向数字货币公司发放许可证
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2040103/)
 
-G-TV视频链接：[https://gtv.org/video/id=621257e51408ee3a03a24e42](https://gtv.org/video/id=621257e51408ee3a03a24e42)
+翻译/编辑：小红帽
 
-**郭文贵先生：**1783年、1784年大清朝，跟美国签署第一个外交条约叫《蒲安臣条约》，啥叫《蒲安臣条约》知道吗？
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/25-2.png)图片来源：www.pymnts.com
 
-《蒲安臣条约》中文名就叫蒲安臣，这是美国人派到中国第一个公使，大清朝当时很牛叉的。
 
-在这之前1781年、1780年美国派出了中国的，派到中国的使节从波斯顿出发到中国去，去了个船号叫“中国皇后号”。美国做的“中国皇后号”，是因为当时波斯顿自由广场发生的美国“倒茶事件”，就叫“茶党”，也就是美国想脱离大英国要脱离自由。
+根据COINGEEK 2月20日报道，在成为中东区块链中心的竞争中，阿拉伯联合酋长国（UAE）正在为虚拟资产服务提供商（VASP）制定法规。根据政府内部的消息来源，虚拟资产服务提供商的许可制度将在第一季度末准备就绪，区块奖励矿工也将被发布自己的一套规则。
 
-这就是美国自由民主最牛叉的时代，他把茶倒的谁的茶？没几个人回答，我问过所有中国牛叉的历史学家，你知道那些历史学家都是王八犊子，你知道吗？Jessica你记住七哥的话，南极宝宝，见到中国历史学家，你说：七哥说你们都是王八犊子。你告诉他七哥考过的历史学家，没有几个懂历史学的，都是一帮骗子，你知道吗？
+阿联酋是中东地区最大的数字货币市场之一，其中迪拜和阿布扎比是寻求在该地区发展的虚拟资产服务提供商最有吸引力的城市之一。据Chainalysis称，阿联酋是继土耳其和黎巴嫩之后的第三大数字货币市场。该区块链分析公司指出，在过去的一年里，这个市场已经飙升1500%以上。
 
-我一听教授我真的我腚都疼，我脚趾头发麻，我没见过真正的教授有水平的，有文化的，就是糊弄人的。
+一位消息人士告诉彭博社，阿联酋政府正在寻求通过引入友好的监管来保持市场的增长。证券和商品管理局（SCA）正处于法案草案的最后阶段，该法案将修订现有立法，并允许虚拟资产服务提供商在阿联酋获得许可。这位因政府政策而要求匿名的官员透露，这项法案将在第一季度末准备就绪。
 
-当时美国这个自由斗争，就是对美国的女皇的，他倒的茶叶是咱中国的茶叶。倒了中国的茶叶以后，他发现这茶叶都是英国来的，美国人说，跟英女皇达成默契，说这都要你当二手，你都是代理人。英国人到哪都代理，今天的中介，房产中介，所有中介王，就来自英国人。英国这个国家就是搞中介的，就是拉皮条的，就这么简单。所有拉皮条都是包括妈咪，所有的中介都是英国发明的。那么美国人说：那么老子也得去。这就是1781年派出中国去的船，到中国去。
+2021年底，阿联酋政府对虚拟资产进行了一次风险评估，来自私营部门的16个参与者和14个公共机构参与了这项工作。评估发现，该行业有很多好处，但也有缺点，如洗钱风险增加。该官员透露，随后得出的结论是，最好的方法是适当地监管，而不是彻底地禁止。
 
-字幕来源：[2022年2月4日《文贵大直播》全文字版](https://gnews.org/zh-hans/1961700/)
+新闻链接：[UAE to license digital currency firms as local market skyrockets by 1,500%](https://coingeek.com/uae-to-license-digital-currency-firms-as-local-market-skyrockets-by-1500/)
 
-编辑整理：Jacques；
+发布：tianzhihuan
 
-字幕文件制作：小满；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

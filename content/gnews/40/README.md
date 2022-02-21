@@ -2,10 +2,10 @@
 ---
 
 
-## 以警治国的布鲁塞尔完全压制自由车队进入欧盟首都
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2039018/)
+## 纽约抗议者：我们支持医疗自由和医疗选择、支持美国
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2039020/)
 
-02/15/2022 本·哈恩威尔：“以警治国的布鲁塞尔完全压制自由车队进入欧盟首都”。
+02/16/2022 纽约抗议者称，我们不是反疫苗者，我们支持医疗自由和医疗选择，我们支持美国。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

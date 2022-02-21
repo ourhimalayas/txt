@@ -2,36 +2,23 @@
 ---
 
 
-## 悉尼铁路、电车和巴士工会罢工，客运和铁路服务停运
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2039872/)
+## 视频|疫情延烧致港首“选举”被迫延期
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2039972/)
 
-整理/编辑：小红帽
+制作：香草山视频部
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/16-9.png)图片来源：en.wikipedia.org
+据台媒消息，因中共病毒疫情蔓延，当地时间2月18日晚间，香港行政长官林郑月娥宣布批准引用紧急条例，将行政长官“选举”推迟至5月8日举行。
 
+据悉，香港18日新增3629例，初步阳性案例7600例，这已是连续第三天，两项数字合计超过一万例。
 
-根据大纪元2月21日报道， 周一（21日）早上，由于铁路、电车和巴士工会与澳洲新州政府的谈判未果，悉尼所有火车服务全线停运。
+林郑表示，目前香港疫情是两年来最严重的时期，形势相当危急，港共政府要集中力量应对。延期选举也是中共国家主席习近平授意的，看来港共必须将控制疫情作为当前压倒一切的政治任务来做。
 
-周一凌晨，新州交通运输司（NSW Transport）发文表示，“由于罢工行动，悉尼火车公司（Sydney Trains ）和新州火车城际铁路公司（NSW TrainLink）的服务今天无法运行。”
+发稿：谐趣园
 
-悉尼火车公司首席执行官马特朗兰（Matt Longland）表示，“由于铁路、电车和巴士工会(RTBU)的进一步罢工行动，目前整个大悉尼地区的客运和铁路服务都暂停了。”
-
-“政府与工会的谈判中在进行了一个周末的密集谈判后，于午夜时分破裂。悉尼火车和新州城际铁路火车将无法安全提供运营服务”。新州交通运输司表示。
-
-铁路、电车和巴士工会表示，火车停运并不是因为工人的问题，他们正在进行为期两周的保护性的罢工行动，不会影响到通勤者。
-
-铁路、电车和巴士工会在一份声明指责政府试图“通过阻止工人的合法罢工行动来让他们沉默”。
-
-新闻链接：[悉尼火车因罢工行动全线停运 通勤陷入混乱](https://www.epochtimes.com/gb/22/2/20/n13592436.htm)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多资讯，更多关注**
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

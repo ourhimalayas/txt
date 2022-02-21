@@ -2,51 +2,42 @@
 ---
 
 
-## 7•24专题——如中共武力侵台，为何大连一带将被美日摧毁
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2040036/)
+## 恭亲王奕訢聘请美国公使代表清国与美国签订浦安臣条约
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2040135/)
 
-**整理：雅典娜情报组（MSGZ）**
-**编辑：MSGZ**
+G-TV视频链接：[https://gtv.org/video/id=621258591408ee3a03a24ea2](https://gtv.org/video/id=621258591408ee3a03a24ea2)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/18-1.jpg)图片来源：NK news&雅典娜设计组
+**郭文贵先生：**这个公使就大清朝说这美国人对咱还不错是吧，那就再跟它通商，咱就多点跟西方人、白人那些鬼佬们联络联络吧。派个大使吧，找不着英文，唉，当时皇帝的弟弟（恭亲王奕訢），叫什么奕？叫什么奕？最腐败的那个货叫什么奕？恭什么奕（恭亲王奕訢）？他跟美国人有勾当在北京城，说：那就把美国这个公使，叫他辞职跟咱干不就完了吗？你看大清朝这个脑子多活泛那时候，这哥们就辞去美国公使，代表大清朝了，代表中国人了，到处游说，成了Lobby公关，这就是美国的公关文化。
 
+而且非常认真这哥儿们，而且很快就学了中文，还讲流利的北京话和广东话，旁边有两个来自于江浙的女秘书，就来了。结果就跟美国签了第一个外交条约叫《蒲安臣条约》，那个时候就建了所谓的美国驻中国大使馆。
 
-**2022****年 2****月20 ****的大直播中，郭文贵先生回应战友关切的大连、葫芦岛一带的安全前景，郭先生提到大连的棒棰岛以及对日本和台湾的导弹发射基地一带将面临巨大的危险。**
+字幕来源：[2022年2月4日《文贵大直播》全文字版](https://gnews.org/zh-hans/1961700/)
 
-一旦中共武力侵台，由于中共的导弹基地对日本、关岛、冲绳、韩国的巨大战略核威胁，其中大连的重要军事基地将面临被摧毁。据谷歌地图显示，登沙河军事基地与葫芦岛相聚只有10几公里，与大连中心区域也只有几十公里。（看下图）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/19-3.png)图片来源：谷歌地图
-下图是郭文贵先生提到棒棰岛的地理位置。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/20-4.png)图片来源：谷歌地图
-据多年前有关报道揭示，中国最后一个拥有老式液体燃料 DF-3A 中程核弹道导弹的第二炮兵（火箭军）旅（810旅）似乎已升级为更新的 DF-21 公路机动、双能力中程弹道导弹。
+编辑整理：Jacques；
 
-谷歌地球上发布的一张2014年5月4日的卫星图片显示，黄海边大连东北部的登沙河（Dengshahe）大队的发射单元场地发生了重大变化。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/21-2.png)图片来源：FAS
-这次升级显然标志着登沙河发射大队从DF-3A到DF-21的长期和缓慢转换的最新阶段。810旅的基地似乎位于辽宁省大连市东北方向约60公里（36英里）处（见下图）。该基地隶属于51基地，是第二炮兵部队组织的六个基地总部之一，第二炮兵部队是操作中国陆基核导弹和常规导弹的军事部门。
+字幕文件制作：小满；
 
-在大连东北部的这个发射装置场地，已经建造了四个升级的发射台，可能是作为从DF-3A到DF-21导弹转换的一部分。
+视频制作及上传：Cindy；
 
-高分辨率卫星图像的质量相对较差，因此很难确定这些发射装置。但在大约14米（46英尺）的高度上，它们似乎与核动力DF-21（CSS-5 Mod 1/Mod 2）相匹配，它有一个10-11米（33-36英尺）的导弹罐，放在由机动司机部拉动的拖车上。这些发射装置似乎不是DF-21C，即常规版本，其中导弹筒和驾驶员部分安装在同一个框架上，导弹筒的尖端向前延伸到驾驶室上方
+G-News发布：小满；
 
-公路机动发射装置有一个很大的指纹，因为发射器需要大量不同的支持车辆和人员来操作。这包括指挥和控制车辆、起重机和其他维修车辆、卡车和公交车。登沙河发射单元的图像显示了紧靠发射台场地北面的部分大型后援驻扎地（见下图）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/22-8.png)图片来源：FAS
-DF-21 的射程小于 DF-3A 的射程（2,150 公里对 3,000 公里），但 DF-21 系统比 DF-3A 更强大。与液体燃料、可运输的 DF-3A 不同，DF-21 是一种固体燃料导弹，搭载在公路机动运输车竖立发射器 (TEL) 上。因此，DF-21 TEL 可以更自由地在景观中移动，并且可以比 DF-3A 系统更快地设置和发射导弹。DF-21 也更准确，这反映在更小的弹头上——200-300 公斤，而 DF-3A 弹头为 3,300 公斤。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-从大连以北的发射台，DF-21 将能够瞄准日本本土和冲绳的所有美军基地。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/23-2.png)图片来源：BBC
-从 DF-3A 到 DF-21 的转换也反映在 810 旅基地的重大重建中。自 2006 年以来，这包括用可能用于 DF-21 公路机动发射器的车库替换两个高棚车库之一。第二个高棚车库进行了重大改造，支持车辆技术区已升级（见下图）。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/24-1.png)图片来源：FAS
-自 2006 年以来，大连登沙河的 810 旅基地进行了升级，配备了可能的 DF-21 发射器车库和一个改进的高棚车库，用于维护发射器和导弹。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-因此基于网路上的一些相关信息，特别是郭文贵先生所掌握的军事情报，大连一带肯定是高风险区域。不光是大连，一切和中共重要军事基地想干的区域都将面临被摧毁的巨大危险。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-*发布：tianzhihuan*
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

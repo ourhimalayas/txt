@@ -2,39 +2,192 @@
 ---
 
 
-## 民意调查：大多数美国人支持加拿大自由抗议者
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2039995/)
+## 共产党的封锁统治让中国人彻底脱离了世界文明
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2040096/)
 
-编译： Jenny Ball
+[https://gtv.org/video/id=6213070c1408ee3a03a2d19d](https://gtv.org/video/id=6213070c1408ee3a03a2d19d)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1942.png)thepostmillennial.com
+But I know very well that it will definitely
+cancel the vaccine passport
+但是我非常清楚 它一定会取消(疫苗)护照
 
-拉斯穆森报告（Rasmussen Reports）发布的一项新民意调查发现，大多数美国人支持加拿大的自由车队抗议者，并认为在边境以南进行类似的支持自由的运动将是“一个好主意”。 调查的受访者被问及：是否支持或反对加拿大卡车司机抗议特鲁多政府的 COVID-19 限制。拉斯穆森报告发现，59% 的受访者支持自由车队，其中 42% 的人“强烈支持”它的存在。
+It will definitely be stopped
+它一定会(被)停止的
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1944.png)
+Why ？
+因为什么
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1946.png)thepostmillennial.com
+We saw that people in the West
+have big truck drivers
+咱就看到了 西方人家有大卡车司机
 
-另一方面，33% 的美国选民反对卡车司机抗议，其中 21% 的人“强烈反对”示威。
+These days, I look at these big truck
+drivers and I’m so envious
+我这几天 我看人家的大卡车司机 我羡慕人家
 
-参议员兰德**·**保罗（**Rand Paul**）等人建议，美国卡车司机应该像加拿大那样举行抗议活动，因为据报道，可能会有一个前往华盛顿的车队。 “你会支持还是反对卡车司机在美国抗议 COVID-19 限制？” 民意调查的参与者被问及。
+I have said so much about this , so make
+my wife feel bored
+我说的都把你七嫂子快说烦了
 
-拉斯穆森报告在推特上说，在独立人士中，意见强烈支持车队和特鲁多结束 COVID-19 限制。
+I said, why are the big truck drivers of
+other countries so quality
+我说 为什么人家国家的大卡车司机 都这么有素质
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1948.png)thepostmillennial.com
+What they say, what they do
+人家说出那话 人家那行为
 
-根据拉斯穆森的说法，全国电话和在线调查，于 2 月 13 日至 14 日对 1,000 名可能的选民进行了调查。误差幅度为正负三个百分点，置信度为 95%。
+And the mutual love between the people
+perseverance, persistence
+还有老百姓之间那个互爱 那种坚持 执着
 
-评论：如果主流媒体不在掩盖疫苗危害的真相，如果主流媒体报道加拿大卡车司机和平抗议的真相，民调支持的人数将如怒潮！
+Then you look back at the CCP
+and our Chinese people
+你看中国共产党 还有咱中国人
 
-素材链接：【thepostmillennial.com】[Majority of Americans support Canadian freedom protesters: poll](https://thepostmillennial.com/majority-of-americans-support-canadian-freedom-protesters-poll)
+Can it last three days or a week?
+能撑三天 能撑一星期吗
+
+Even though all your family’s money
+has been cheated by Ezubao
+e租宝把你家钱都骗光了
+
+the rights protests have not exceeded
+a hundred times
+e租宝(维权)抗议不超过百次
+
+In the end, some ran away, some
+scattered and some were caught
+最后 跑的跑 散的散 抓的抓
+
+The personality of our nation is really
+the sick man of East Asia
+就咱这个民族的个性 真的是东亚病夫
+
+in spirit and in action
+精神上 行动上的东亚病夫
+
+But our whistleblower movement
+got the intelligence first
+但是咱爆料革命 咱最早获得情报
+
+There are more warriors gathered
+Together
+有更多的勇士聚在了一起
+
+And we make so many things
+而且我们做出那么多的事情
+
+And then it could be said that we were
+the first force in the world
+然后 可以说 我们是世界上第一股力量
+
+to make the West truly aware of
+the evil nature of the CCP
+让西方真正的认识到(共产党的邪恶本质)
+
+In the media, there’s Gettr, GNews, GTV
+从媒体上有盖特 有G新闻 G电视
+
+In terms of action
+we have countless political friends
+从行动中我们有无数个政治战友
+
+We have WarRoom, veteran legislators
+and congressmen, current legislators
+我们有《战斗室》老议员 老国会议员 现(任)议员
+
+former presidents and current
+presidents are calling for
+前总统 现总统都在呼吁
+
+Even the President of Brazil, our
+friend，is determined not to vaccinate
+连巴西总统作为我们的朋友 坚决不打疫苗
+
+Strongly support us
+live and die with us
+坚决挺我们 跟我们生死在一起
+
+We have changed the fate of humanity
+我们改变了人类
+
+But it is helpless, you can not change
+但是你很无奈 你改变不了
+
+such a big gap in civilization between
+the Chinese and the West
+中国人和西方之间这么大的差距文明
+
+Western countries are still waking up
+earlier than China
+西方觉醒的还是比中国早
+
+Western people’s action is still
+earlier than China
+西方人家的行动力还是比中国早
+
+And after a series of mistakes
+而且西方在一系列的错误之后
+
+the West’s ability to correct mistakes
+still earlier than China
+纠偏能力还比中国早
+
+This is what our Chinese people
+should always remember
+这就是中国人永远要记住
+
+The West is such a civilized society of
+the rule of law
+西方文明的 法治的社会
+
+it is inevitable that mistakes
+are made
+它一定会犯错
+
+All human civilizations are
+tombstone civilizations
+人类的文明都是墓碑文明
+
+All awakened just after the cataclysm
+of human death
+都是在人类死亡 大灾难之后才觉醒的
+
+All human technology is
+tombstone technology
+人类的所有的科技 都是墓碑科技
+
+After the tombstone there is
+civilization and technology
+墓碑之后 有文明有科技
+
+But we Chinese are the ones who have
+more tombstones after the tombstones
+我们中国人是墓碑之后更多的墓碑
+
+Technology civilization does not exist
+at all,it is all stolen from others
+科技文明根本就不存在 全是偷的
 
 * * *
 
-审核：文乐
-校对：花羽
-发布：花羽
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-5.jpeg)
+Date:2022/02/20
+原视频标题: The blockade rule of the CCP has completely separated the Chinese from the world civilization
+共产党的封锁统治让中国人彻底脱离了世界文明
+原视频日期：2022/02/18
+任务编号：LP006
+视频时间段 : 0:00-02:20
+英听校：洛杉矶盘古农场 – 庚子
+翻译：洛杉矶盘古农场 – 庚子
+翻译终校：洛杉矶盘古农场 – 银龙
+字幕+视频制作：洛杉矶盘古农场-庚子
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

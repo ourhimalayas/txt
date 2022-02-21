@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/21/2022 6:14 AM (UTC)`
+
+2/20/2022 Miles Guo: Vladimir Putin and Xi Jinping secretly discussed the strategies to cope with the US sanctions following the invasion of Ukraine and Taiwan - unrestricted cyberwarfare, space warfare, posing nuclear threats, releasing viruses, sending out refugees, exposing shocking scandals of the Western leaders, and decapitation strikes. It’s said Sean Lien has already been appointed as the CCP’s first Chief Executive of Taiwan.<br/><br/>2/20/2022 文贵直播：普习密谋如何应对打乌克兰和台湾后的美国制裁 - 网络超限战、太空战、核威慑、继续放毒、难民策略、爆西方领导人的猛料、斩首行动；据说连胜文已是内定的台湾第一届特首<br/>
+![img](https://media.gettr.com/group20/getter/2022/02/21/06/926447f4-2f8f-7b01-0521-d665e73c379f/out.jpg)
+
+---
+
 `@miles 2/21/2022 6:07 AM (UTC)`
 
 2/20/2022 Miles Guo: What did Putin and Xi talk about during their secret meeting? All dictators are afraid of death, and both Xi and Putin are in poor health. How did they collude with each other in terms of money and internal politics?<br/><br/>2/20/2022 文贵直播：普习二人密会到底谈了啥？所有的独裁者都怕死，而普习二人身体也都不好，他俩在钱和内部政治上是咋勾兑的？<br/>
@@ -149,13 +156,6 @@ Who's Miles Guo Episode 3 《Mile‘s Determination to Take Down the CCP》<br/>
 
 2/18/2022 Miles Guo: The Way of Righteousness will become a new way to manage humanity.<br/>The New Federal State of China will ensure the independence of judiciary, media, and science. Freedom of speech requires that people must take legal responsibility for what they say and be subject to supervision. The less civilized the region, the more fake vaccines there are and the fewer people have died.<br/><br/>2/18/2022 文贵直播: 正道主义将成为管理人类的新方式；新中国联邦将确保司法，媒体和科学的独立；言论自由必须要承担法律责任和接受监督；越落后的地区，假疫苗越多，死人越少，越发达的地方则反之<br/>
 ![img](https://media.gettr.com/group50/getter/2022/02/19/05/65d356cb-0c65-caae-e6a7-189e819d9418/out.jpg)
-
----
-
-`@miles 2/19/2022 3:10 AM (UTC)`
-
-2/18/2022 Miles Guo: The CCP wants to release the new virus, but it won’t be able to do so, and Xi Jinping may cause the CCP to suddenly collapse. The Peng Shuai incident is a heavy blow to the CCP. The chained woman incident has made Xi’s wife, Peng Liyuan, very unhappy, and Xi’s mom and family have had the biggest backlash. The chained woman incident has become a common problem of humanity.<br/><br/>2/18/2022 文贵直播：中共想放新毒却放不了，习近平正让中共猝死；彭帅事件对中共打击巨大；锁链女事件让彭丽媛相当不悦悦，反响最大的是习母和家人；锁链女事件已成为全人类共同的问题<br/>
-![img](https://media.gettr.com/group19/getter/2022/02/19/03/f73d0a8e-cfcc-01b6-0349-22b9c60884ac/out.jpg)
 
 ---
 
