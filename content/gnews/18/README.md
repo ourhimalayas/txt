@@ -2,13 +2,37 @@
 ---
 
 
-## 美国和盟国坚决捍卫北约的每一寸领土
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2040584/)
+## 七哥大直播 期期有话说
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2040659/)
 
-02/18/2022 拜登称美国认为普京已决定在未来一周，甚至几天内入侵乌克兰，美国和盟国已经准备好捍卫北约的每一寸领土。
+撰稿：东京樱花团/保和
+![](https://assets.gnews.org/wp-content/uploads/2022/02/灭共诗.png)
+今晚直播话题大，内容丰富战友来。
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+中俄想改老规矩，世界人民不同意。
 
+如果爆发战争起，整个经济有联系。
+
+灭共时间不会长，台湾安全在心上。
+
+锁链女子事很大，中共高层来开骂。
+
+近期中共蓝金黄，法案肇推在路上。
+
+不灭中共邪恶体，搞的地球无活力。
+
+今晚直播精彩有，一定来看灭共走。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥大直播-期期有话说.png)
+
+消息来源：
+
+盖特：[https://gettr.com/post/pvp68hcf8c](https://gettr.com/post/pvp68hcf8c)
+
+*图片：夏目&山竹
+校对：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

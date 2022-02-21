@@ -2,25 +2,43 @@
 ---
 
 
-## 点线面101系统推广Hpay支付
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2040774/)
+## CCP病毒及其疫苗是世界上最大的庞氏骗局
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2040917/)
 
-撰稿：东京樱花团/知即是心
+撰稿：文叙
+![](https://assets.gnews.org/wp-content/uploads/2022/02/215-1.png)图片来自网络截图
+CCP病毒 Covid-19它类似于一种大流感，其康复率为99.9%。但是政府、Fauci博士、CDC、主流媒体和民主党政客的对其反应和处理手段（或方法），则显示了这是一个巨大的、世界级的、长达2年的庞氏骗局。让我来告诉大家为什么？
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/点线面101系统推广Hpay支付1.png)
+首先，让我来告诉大家一个真实的医疗故事，可以解释这一切：
 
-喜币已经可以购买任何东西，你信吗？
+我的一个密友认为他的心脏病发作了。他在医院住了22个小时并接受了一系列的测试，医生们没有发现任何问题。感谢上帝——没有心脏病发作。他得到了一份干净的健康证明。大约两个星期后，账单来了。在医院住了22个小时。因为没有发现任何问题，所以，实际上没有进行任何形式的治疗，但他的账单显示是115,000美元。
 
-只是现在还须一个巧妙转换……
-![](https://assets.gnews.org/wp-content/uploads/2022/02/点线面101系统推广Hpay支付2.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/点线面101系统推广Hpay支付3.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/点线面101系统推广Hpay支付4.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/点线面101系统推广Hpay支付5.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/点线面101系统推广Hpay支付6.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/点线面101系统推广Hpay支付7.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/点线面101系统推广Hpay支付8.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/点线面101系统推广Hpay支付9.png)
-信息来源：
+他很震惊！这笔账单可能会让他真的心脏病发作。这简直是疯了。医疗保健系统简直就是一个骗局！现在，在医院住院22小时的费用为11.5万美元。但是媒体中的骗子们不敢谈论这个故事！这也解释了过去两年Covid-19大流行的一切。这就是为什么他们对Covid-19的反应如此歇斯底里、惊慌失措、夸大其词？这一切都是为了钱！
 
-盖特：[https://gettr.com/post/pvc018b365](https://gettr.com/post/pvc018b365)
+以下是对世界上最大的 “快速致富 “庞氏骗局的一个简单解释：
 
-*图片：东京樱花团/夏目&山竹
-编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+首先，拜登、Fauci博士、CDC、FDA、民主党政客和媒体把人们吓得半死。其实，这种流感的症状大多是轻度到中度，康复率为99.9%。但新闻的头版上所报道的死亡事件越多，他们卖出的报纸就越多，电视新闻的收视率就越高。这样的信息使很多的美国人受到惊吓和恐慌，让他们相信服用疫苗。而越是歇斯底里、恐慌和害怕，就有越多的美国人赶到医院的急诊室。这是一个大的恶性循环，使每一个在顶部的人都富得流油。
+
+想想那张在医院住了22个小时的115,000美元的账单！这是对一个没有生病的人而言。如果你真的得了流感呢？一旦到了急诊室，他们会出于谨慎（和对诉讼的恐惧）让你住院一天，或两天，或三天，然后你会带着25万美元的账单回家。那如果你真的得了重病呢？那就得去重症监护室了。无论你是活着，还是死了，都会有人得到500万美元的账单。
+
+将这些账单乘以数百万歇斯底里、吓得要死的美国人，他们一有感冒、咳嗽、发烧或打喷嚏的迹象就赶到医院急诊室。他们中的大多数人都很穷，而且参加了奥巴马医保，或者医疗补助。而这一切都由OPM支付——其他人的钱。政府支付，支付，再支付一些——用你们纳税人的钱。
+
+这些参与其中的人都能快速致富：医院、医生、大药厂、呼吸机制造商、口罩制造商、Covid抗原测试制造商、疫苗制造商、在大药厂广告中预订数十亿美元的媒体，也许最重要的是像福奇这样在政府医疗部门工作的人或政治家。
+
+想想看，歇斯底里、恐慌和恐惧的表情，加上疫苗的强制要求，让每个拥有上市公司医院、保健品、药品和疫苗公司股票的民主党政治家赚了多少钱？！
+
+这里甚至还没有计算那些因Covid疫苗本身而经历心脏病发作、中风、血栓和晚期癌症的美国人。请看VAERS名单，这是另一个数十亿美元的收入来源。
+
+而这个骗局是通过政府联合媒体的阴谋！他们诽谤和禁止唯一廉价、高效、神奇的药物和维生素来实现治疗的目的，这些药物和维生素只需花几分钱就能发挥作用，如伊维菌素、HCQ、锌、维生素C和D3。但是政府通过权力却不允许人们使用！
+
+所以说，新冠Covid-19就是一种合法的偷窃！是和世界的政府联合起来表演和操控的一个巨大的庞士骗局！
+
+新闻参考链接：
+
+[https://www.thegatewaypundit.com/2022/02/wayne-root-read-worlds-biggest-get-rich-quick-ponzi-scheme/?utm\_source=Twitter&utm\_medium=PostSideSharingButtons&utm\_campaign=websitesharingbuttons](https://www.thegatewaypundit.com/2022/02/wayne-root-read-worlds-biggest-get-rich-quick-ponzi-scheme/?utm_source=Twitter&amp;utm_medium=PostSideSharingButtons&amp;utm_campaign=websitesharingbuttons)
+
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

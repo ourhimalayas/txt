@@ -2,24 +2,24 @@
 ---
 
 
-## G7视频峰会将于24日举行 聚焦乌克兰局势
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2040718/)
+## 灭共小诗
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2040916/)
 
-撰稿：东京樱花团/麗子
+撰稿：东京樱花团/ Milescool
+![](https://assets.gnews.org/wp-content/uploads/2022/02/灭共诗.png)
+流氓无赖土匪窝，
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/G7视频峰会将于24日举行-聚焦乌克兰局势.png)[图片来源](https://m.jiemian.com/article/6198812.html)
+满口仁义缺道德。
 
-21日，内阁官房长官松野在记者会上宣布，G7首脑视频会议将于24日举行，岸田首相将出席。
+男盗女娼中共国，
 
-24日的G7峰会视频会议将由主席国德国主持，岸田首相将出席。
+猪毛周江习特勒。
 
-松野官房长官表示，会议将讨论包括乌克兰局势在内的外交政策。并强调，日本将与七国集团紧密合作，引领国际社会。同时阐明，日方将积极参与讨论，献计献策。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/灭共小诗3.png)
 
-乌克兰局势日益紧张，截至19日，仍有约120名日本人留在该地区。松野官方长官表明，将继续呼吁撤离，并正在做各种准备，包括已经在邻国安排了包机，以便政府能够对任何情况作出及时反应。
+消息来源：
 
-信息源：
-
-[G7首脳テレビ会議24日開催へ](https://news.yahoo.co.jp/articles/4de4f5f1736fd462ff6fb803483c59c48664f8c5)
+盖特链接：[https://gettr.com/post/puvqs1691f](https://gettr.com/post/puvqs1691f)
 
 *编辑：东京樱花团/知了知了
 发布：东京樱花团/老黑*

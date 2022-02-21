@@ -2,39 +2,26 @@
 ---
 
 
-## 東方之珠（新歌詞）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2040638/)
+## G7视频峰会将于24日举行 聚焦乌克兰局势
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2040718/)
 
-撰稿：东京樱花团/ Milescool
+撰稿：东京樱花团/麗子
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/灭共诗.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/G7视频峰会将于24日举行-聚焦乌克兰局势.png)[图片来源](https://m.jiemian.com/article/6198812.html)
 
-回望過去東方之珠！
+21日，内阁官房长官松野在记者会上宣布，G7首脑视频会议将于24日举行，岸田首相将出席。
 
-共黨一到灰飛煙滅！
+24日的G7峰会视频会议将由主席国德国主持，岸田首相将出席。
 
-香港蘊秀惡雪霜臨！
+松野官房长官表示，会议将讨论包括乌克兰局势在内的外交政策。并强调，日本将与七国集团紧密合作，引领国际社会。同时阐明，日方将积极参与讨论，献计献策。
 
-無賴魔鬼強殺姦侵！
+乌克兰局势日益紧张，截至19日，仍有约120名日本人留在该地区。松野官方长官表明，将继续呼吁撤离，并正在做各种准备，包括已经在邻国安排了包机，以便政府能够对任何情况作出及时反应。
 
-每一滴淚珠哭沉音！
+信息源：
 
-片片言誰憐訴愁心！
+[G7首脳テレビ会議24日開催へ](https://news.yahoo.co.jp/articles/4de4f5f1736fd462ff6fb803483c59c48664f8c5)
 
-毒針猖狂瘋針狂針！
-
-老幼全民困心困身！
-
-粗口對魔共老母吟！
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/東方之珠（新歌詞）.png)
-
-消息来源：
-
-盖特：[https://gettr.com/post/pvacddef8e](https://gettr.com/post/pvacddef8e)
-
-*图片：夏目&山竹
-校对：东京樱花团/知了知了
+*编辑：东京樱花团/知了知了
 发布：东京樱花团/老黑*
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  

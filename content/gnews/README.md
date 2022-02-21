@@ -15,92 +15,92 @@
 
 ---
 
-### [灭共小诗](/content/gnews/1/README.md)
+### [有声｜加拿大警方暴力驱离在渥太华 和平抗议的卡车司机和示威者](/content/gnews/1/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [灭共小诗](/content/gnews/2/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [雅典娜时报-第211期](/content/gnews/2/README.md)
+### [餐厅对接Hpay 你开店我收钱](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有声｜内蒙古呼和浩特疫情多点散发 蔓延至包头市](/content/gnews/4/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [CCP病毒及其疫苗是世界上最大的庞氏骗局](/content/gnews/5/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [灭共小诗](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有声｜美情报显示 俄指挥官已经接到入侵乌克兰的命令](/content/gnews/7/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [灭共小诗](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [雅典娜时报-第211期](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声｜徐州八孩母案管控升级 网络维稳正在进行中](/content/gnews/3/README.md)
+### [有声｜徐州八孩母案管控升级 网络维稳正在进行中](/content/gnews/10/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [美国和世界经济大崩盘的五月份前我们准备好拉钻石的车](/content/gnews/4/README.md)
+### [美国和世界经济大崩盘的五月份前我们准备好拉钻石的车](/content/gnews/11/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [点线面101系统推广Hpay支付](/content/gnews/5/README.md)
+### [点线面101系统推广Hpay支付](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [G7视频峰会将于24日举行 聚焦乌克兰局势](/content/gnews/6/README.md)
+### [G7视频峰会将于24日举行 聚焦乌克兰局势](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声｜俄乌关系恶化 美驻俄使馆敦促美国公民制定撤离计划](/content/gnews/7/README.md)
+### [02/21每日播报｜社媒消息:杰森米勒 班农先生](/content/gnews/14/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [其他意见 （六）](/content/gnews/8/README.md)
+### [有声｜俄乌关系恶化 美驻俄使馆敦促美国公民制定撤离计划](/content/gnews/15/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [其他意见 （六）](/content/gnews/16/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [有声｜冬奥会再起风波 美华裔选手被禁参加闭幕式](/content/gnews/9/README.md)
+### [有声｜冬奥会再起风波 美华裔选手被禁参加闭幕式](/content/gnews/17/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [七哥大直播 期期有话说](/content/gnews/10/README.md)
+### [七哥大直播 期期有话说](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [从徐州铁链女到华为孟晚舟](/content/gnews/11/README.md)
+### [从徐州铁链女到华为孟晚舟](/content/gnews/19/README.md)
  ` 澳喜特战旅Gnews`
 
-### [美英国防高官视察南澳造船厂，为核潜艇建造提供建议](/content/gnews/12/README.md)
+### [美英国防高官视察南澳造船厂，为核潜艇建造提供建议](/content/gnews/20/README.md)
  ` 走进澳洲`
 
-### [東方之珠（新歌詞）](/content/gnews/13/README.md)
+### [東方之珠（新歌詞）](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [从单伟建的履历看社会制度与人性的关系(三)](/content/gnews/14/README.md)
+### [从单伟建的履历看社会制度与人性的关系(三)](/content/gnews/22/README.md)
  ` 纽约香草山MOS03`
 
-### [中国｜娱乐圈管控突然加码 郭文贵爆中共拟冬奥后整肃演艺界](/content/gnews/15/README.md)
- ` 關注組`
-
-### [七国集团领导人电话会议将于24日举行](/content/gnews/16/README.md)
+### [七国集团领导人电话会议将于24日举行](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [纳瓦罗博士批FDA刚卸任的代理局长为中共和大药企效力](/content/gnews/17/README.md)
+### [纳瓦罗博士批FDA刚卸任的代理局长为中共和大药企效力](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美国和盟国坚决捍卫北约的每一寸领土](/content/gnews/18/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [德国为什么不敢对俄罗斯强硬?](/content/gnews/19/README.md)
- ` 澳喜特战旅Gnews`
-
-### [DC大中华时事：全球供应链危机或延续到明年](/content/gnews/20/README.md)
+### [DC大中华时事：全球供应链危机或延续到明年](/content/gnews/25/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [视频|数字货币将使人类摆脱被绑架和奴役](/content/gnews/21/README.md)
- ` MOSREC`
-
-### [无中心化、无条件、无物理化的HPay VS Paypal&amp;Stripe](/content/gnews/22/README.md)
+### [无中心化、无条件、无物理化的HPay VS Paypal&amp;Stripe](/content/gnews/26/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [英国政府废除因染疫在家隔离的规定](/content/gnews/23/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [新西兰财经G乐部2022年2月21日:财经新闻整理](/content/gnews/24/README.md)
+### [新西兰财经G乐部2022年2月21日:财经新闻整理](/content/gnews/27/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [秘翻新闻｜香港疫情失控 急建方舱医院](/content/gnews/25/README.md)
+### [秘翻新闻｜香港疫情失控 急建方舱医院](/content/gnews/28/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [港闻｜配合港府“催针” 医学会宣布收紧疫苗豁免门槛 违者或涉专业失德](/content/gnews/26/README.md)
+### [港闻｜配合港府“催针” 医学会宣布收紧疫苗豁免门槛 违者或涉专业失德](/content/gnews/29/README.md)
  ` 關注組`
-
-### [渥太华警察骑马冲入抗议人群](/content/gnews/27/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [渥太华警察殴打一名抗议者，用膝盖将他顶倒在地](/content/gnews/28/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [泽连科医生呼吁大家不要接种死亡毒针疫苗](/content/gnews/29/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [2022年2月20日 《文贵大直播》全文字版](/content/gnews/30/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
