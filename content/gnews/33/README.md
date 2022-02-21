@@ -2,33 +2,37 @@
 ---
 
 
-## 当地市场飙升1500%，阿联酋向数字货币公司发放许可证
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2040103/)
+## 在顿涅茨克市中心发生强烈爆炸
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2040136/)
 
-翻译/编辑：小红帽
+作者：新西兰伊甸农场 米拉娅
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-44.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1039407418_001280853_1440x900_80_0_1_0930db49ef4d824f76ff91cee32af244.png)图片：© DNR\_Online 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/25-2.png)图片来源：www.pymnts.com
+2022年2月19日，据【俄卫星社通讯社】报道，顿涅茨克人民共和国政府大楼几十米远处发生爆炸。 据消息称，这发生在距离顿涅茨克人民共和国政府大楼几十米远的地方。在爆炸现场可以看到大火，附近的建筑物没有损坏。 目前还没有人员伤亡的消息。
 
+顿涅茨克人民共和国人民民兵武装部在官方Telegram频道上发布的消息中说：“莫斯科时间19点左右，在政府大楼附近的一个停车场一辆汽车被炸毁。整个城市都听到了爆炸声。”
 
-根据COINGEEK 2月20日报道，在成为中东区块链中心的竞争中，阿拉伯联合酋长国（UAE）正在为虚拟资产服务提供商（VASP）制定法规。根据政府内部的消息来源，虚拟资产服务提供商的许可制度将在第一季度末准备就绪，区块奖励矿工也将被发布自己的一套规则。
+此前，顿涅茨克人民共和国和卢甘斯克人民共和国宣布开始把平民大规模撤往俄罗斯。卢甘斯克人民共和国和顿涅茨克人民共和国代表2月17日早表示，各自阵地均遭到乌克兰武装部队的大规模火力袭击。 乌克兰军方则表示，2月17日，顿巴斯地区违反停火事件骤增。
 
-阿联酋是中东地区最大的数字货币市场之一，其中迪拜和阿布扎比是寻求在该地区发展的虚拟资产服务提供商最有吸引力的城市之一。据Chainalysis称，阿联酋是继土耳其和黎巴嫩之后的第三大数字货币市场。该区块链分析公司指出，在过去的一年里，这个市场已经飙升1500%以上。
+目前，俄乌边境局势紧张引发了西方世界对战争的担忧，乌克兰相关军事行动也都成为了当下极其敏感和引发关注的话题。而与此同时，乌克兰声称他们打算通过政治和外交途径解决问题。
 
-一位消息人士告诉彭博社，阿联酋政府正在寻求通过引入友好的监管来保持市场的增长。证券和商品管理局（SCA）正处于法案草案的最后阶段，该法案将修订现有立法，并允许虚拟资产服务提供商在阿联酋获得许可。这位因政府政策而要求匿名的官员透露，这项法案将在第一季度末准备就绪。
+援引链接：[https://sputniknews.cn/20220219/1039406807.html](https://sputniknews.cn/20220219/1039406807.html)
 
-2021年底，阿联酋政府对虚拟资产进行了一次风险评估，来自私营部门的16个参与者和14个公共机构参与了这项工作。评估发现，该行业有很多好处，但也有缺点，如洗钱风险增加。该官员透露，随后得出的结论是，最好的方法是适当地监管，而不是彻底地禁止。
+编辑/校对/发稿：小小安
 
-新闻链接：[UAE to license digital currency firms as local market skyrockets by 1,500%](https://coingeek.com/uae-to-license-digital-currency-firms-as-local-market-skyrockets-by-1500/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-43.jpg)
 
-发布：tianzhihuan
+**更多资讯，更多关注**
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-44.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

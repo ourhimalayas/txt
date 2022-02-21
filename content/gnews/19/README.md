@@ -2,47 +2,32 @@
 ---
 
 
-## 当不能面对自己好坏时你将一生在梦境中而无法体会成败
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2040447/)
+## 德国为什么不敢对俄罗斯强硬?
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2040567/)
 
-G-TV视频链接：[https://gtv.org/video/id=62125b011408ee3a03a250dc](https://gtv.org/video/id=62125b011408ee3a03a250dc)
+撰稿: kai奋斗
+![](https://assets.gnews.org/wp-content/uploads/2022/02/213.jpg)图片来源: IMAGO IMAGES/ITAR-TASS
+一年一度的慕尼黑安全会议本周日闭幕，由于乌克兰危机影响，30多年来，俄罗斯首次没有正式代表团出席安全会议。慕尼黑安全会议主席沃尔夫冈·伊辛称，俄罗斯政府官员缺席会议是一个错误。德国总理奥拉夫·舒尔茨在会议发言强调战争威胁欧洲，风险根本无法避免，同时警告任何进一步侵犯乌克兰领土完整的行为都会给俄罗斯带来高昂的政治、经济和地缘战略代价，但是他这次强有力的演讲看上去并不会缓解目前的乌克兰危机。
 
-**郭文贵先生：**大家真的别、这个世界上最疯狂的就是不自信。我觉得有一个人说了一句很关键的话，就是当年赫鲁晓夫说俄罗斯苏联这个国家“我们千年的历史出了一个有史以来最自卑的第一人，他叫斯大林。”
+乌克兰危机爆发以后，德国政府的态度一直饱受各界批评，总理舒尔茨迟迟没有表示出强硬态度，直到一月底感觉形势危及之后，他才宣布访问美国，随后并和普京会谈。乌克兰政府早早就要求德国提供防御性武器，但是德国国防部直接明确拒绝，最后实在说不过去，才勉强提供5000顶头盔。期间德国海军司令在一次访谈中表示普京并不是真的要入侵乌克兰，只是要求得到北约的承诺和尊重，引起舆论强烈批评，最后被迫辞职，但是这肯定代表了部分军方的态度，就是不愿意和俄罗斯开战。德国政府的表现让盟友们相当失望，与欧盟领袖的地位完全不能匹配。
 
-“哇塞”！这句话当时对我一个刚刚学习的人啊，我感触颇深：为什么说斯大林这么大的权力？我一个十几岁的Miles郭，那时候小郭文贵大鼻涕拉碴的，是不是？刚从玉米地出来裤子还没提上呢，突然说最伟大的在天安门上还挂着一个那个什么恩格斯、马克思、列宁、斯大林，然后在毛泽东的旁边放，他怎么是最自卑的人呢？是吧！
+纵观历史，地缘政治在德俄关系中发挥着重要作用，而且到现在也是。对于欧洲人，尤其是法国人和英国人来说，俄罗斯意味着“东方”，德国在某些历史时期也属于东方。正因如此，中欧德国向东面对法国，向西靠近俄罗斯，是东西方之间的桥梁和通道。地理位置的独特性意味着德国无论如何都必须与俄罗斯保持联系。
 
-后来发现越是自卑的人表现越要强大，就像路大脑袋、蛇妖闫，就像找爹博，啥事都自己干的，自己强大得不得了，然后每天表现肌肉“你看我的肌肉”，是不是？然后“咔”在里边一拽一胸罩出来了，是吧！一拽是吧！这就是自卑嘛！后来我知道自卑表现的就是暴虐、虚伪。我们爆料革命的唯真不破里边儿真的是、你看今天南极宝宝半睡半醒之间，Jessica是半睡半醒之间，文斌和青藤几乎在睡眠状态参加了直播。
+苏联解体后，德国是第一个承认俄罗斯联邦成立的西方国家，它也被认为是第一个与俄罗斯进行磋商的国家。德国利用俄罗斯政治和经济改革提供的机会，加强了两国之间的合作。科尔政府提倡以俄罗斯融入欧洲为主题的政策。施罗德执政时期和普京建立了很好的个人关系，两国也结成战略伙伴关系，启动了北溪一号输气管道建设。默克尔上台后则大不相同，德国外交政策的基本原则优先保持跨大西洋关系，使得德俄关系出现降温。在 2005 年之后，这种双边关系经历了一个政治冰河时代，德国只能谨慎处理德俄之间的意见分歧。一个重要原因是德国对俄罗斯能源的依赖，这种依赖可以推动伙伴关系向前发展，但也可以限制德国在欧洲事务中的自由决策权。从政治角度看，德国和俄罗斯也是彼此不可或缺的伙伴。在欧盟框架内，德国对俄罗斯政策的话语权最大。
 
-你记住今天七哥给你们说这段话，任何一个人你记住：当你不能面对你自己的好和坏的时候，你一生付出的代价都是在梦境中，你无法体会到你成功的喜悦，你当然也不会找到你自己失败的原因。我们看到身边所有人只要失败了都是人家的原因，我们生活中任何人，青藤的夫人、青藤的孩子，是吧，南极宝宝本人、南极宝宝家里人，Jessica、文斌的孩子永远是“爸爸你的错！都是你的错！”我们人类上永远不把手指头指向别人指向自己的时候“这是我的错”，你成功。更重要的是人家干好事儿“这是我干的”，所有人都这个毛病，所有人的毛病，永远别这样。
+2014年俄罗斯入侵克里米亚，俄罗斯和整个西方的关系迅速恶化，西方各国纷纷制裁俄罗斯，但是德国依然和俄罗斯保持着紧密联系，并于2018开始建设北溪2号输气管道，不难看出德国对于本国能源供应的担心，特别是2011年日本福岛发生毁灭性的核电站事故后，德国政府宣布2022年全面退出核能发电，使得俄罗斯的油气资源对德国更加重要。
 
-字幕来源：[2022年2月4日《文贵大直播》全文字版](https://gnews.org/zh-hans/1961700/)
+德国在此次乌克兰危机中的表现，其实体现了德国政客更多是从短期的利益考虑，结合文贵先生的分析，可以看出，德国政府并不完全了解此次普京攻打乌克兰的意图，特别是背后中国和俄罗斯之间的交易，而普京正是看到了德国的软肋，所以才敢大胆进攻乌克兰。
 
-编辑整理：Jacques；
+参考消息
 
-字幕文件制作：小满；
+1. [Wir sind nicht naiv“: Kanzler Scholz taucht in Putins Welt ein – Politik – Tagesspiegel](https://www.tagesspiegel.de/politik/wir-sind-nicht-naiv-kanzler-scholz-taucht-in-putins-welt-ein/28085504.html)
+2. [Wolfgang Ischinger: Chef der Sicherheitskonferenz kritisiert Fernbleiben Russlands | ZEIT ONLINE](https://www.zeit.de/politik/ausland/2022-02/sicherheitskonferenz-muenchen-wolfgang-ischinger-ukraine-krise-russland)
+3. [Unter dem Kalten Frieden. Die deutsch-russische Beziehung zwischen Energiesicherheit und Menschenrechten – GRIN](https://www.grin.com/document/283434)
 
-视频制作及上传：Cindy；
 
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

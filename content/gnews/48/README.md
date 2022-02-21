@@ -2,33 +2,22 @@
 ---
 
 
-## 澳洲国防部称澳巡逻机遭中共国海军舰艇激光照射
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2037875/)
+## 秘翻在线: 科兴药业开发新冠口服药
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2038113/)
 
-作者：新西兰伊甸农场 – 玫瑰
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-2月19日，澳大利亚国防部发表声明指出，澳大利亚国防军一架海上巡逻机2月17日在该国以北飞行时，遭到中共海军舰艇的激光照射。这种行为可能危及生命。澳大利亚对中共国这种不专业和不安全的军事操作表示强烈谴责。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-45.jpg)
-据澳大利亚广播公司的一份报告，2019年，中共国海军舰船就曾经对飞越南中国海上空的澳大利亚飞行员发起过一系列激光袭击。
+撰稿：西枫westca
 
-评论人士称，中共在长时间对台湾进行骚扰、恐吓之后，目前一方面秘密部署攻台方略，一方面又用这种卑劣手段恐吓、挑衅澳大利亚的海军力量，大概是试图威胁澳大利亚乃至所有西方挺台的国家，不要轻易干预中共所谓“武力统一台湾”的恶行。
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-2-2.jpg) 图片来源：网络照片
+据新浪2月20日报道，科兴生物制药股份有限公司与深圳安泰维生物医药有限公司签署《SHEN26项目合作协议》，双方将合作开发抗新冠病毒小分子口服药。
 
-参考链接：[澳洲国防部称澳巡逻机遭中共国海军舰艇激光照射](https://www.dw.com/zh/%E6%BE%B3%E5%9B%BD%E9%98%B2%E9%83%A8%E6%BE%B3%E5%B7%A1%E9%80%BB%E6%9C%BA%E9%81%AD%E5%88%B0%E4%B8%AD%E5%9B%BD%E6%B5%B7%E5%86%9B%E8%88%B0%E8%89%87%E6%BF%80%E5%85%89%E7%85%A7%E5%B0%84/a-60840513)
+于2021年8月才成立的安泰维维生物医药有限公司将其取得的或持有的SHEN26知识产权独占许可、产品后续研发权利和商业化权益转让给深圳科兴。SHEN26是是一款新型冠状病毒聚合酶(RdRp)抑制剂，可以通过抑制病毒核酸合成达到抗病毒效果，目前已完成实验室开发，正在进行临床前药学和工艺开发，并提交了相关专利申请。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
+中共国内目前已有多家药业公司研发和临床试验新冠病毒的口服药。与此同时，国家药监局已按照药品特别审批程序，进行应急审评审批，附条件批准了辉瑞公司新冠病毒治疗药物Paxlovid的进口注册。这些医药巨头，不满足在新冠疫苗的销售上已赚得盆满钵盈，还要在口服药上继续掠夺大众。
 
-总编：飞虹
-编辑：飞虹
-校对/发稿：Hetangyuese
+**新闻来源：**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+[国产新冠口服药布局再加码：科兴制药宣布开发聚合酶抑制剂|中国科学院|新冠肺炎\_新浪科技\_新浪网 (sina.com.cn)](https://finance.sina.com.cn/tech/2022-02-20/doc-imcwipih4425915.shtml)
 
  
 

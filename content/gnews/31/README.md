@@ -2,37 +2,49 @@
 ---
 
 
-## 在顿涅茨克市中心发生强烈爆炸
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2040136/)
+## 英女王感染新冠 有轻微症状
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2040259/)
 
-作者：新西兰伊甸农场 米拉娅
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-44.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1039407418_001280853_1440x900_80_0_1_0930db49ef4d824f76ff91cee32af244.png)图片：© DNR\_Online 
+编译： Jenny Ball
 
-2022年2月19日，据【俄卫星社通讯社】报道，顿涅茨克人民共和国政府大楼几十米远处发生爆炸。 据消息称，这发生在距离顿涅茨克人民共和国政府大楼几十米远的地方。在爆炸现场可以看到大火，附近的建筑物没有损坏。 目前还没有人员伤亡的消息。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1952.png)www.dailymail.co.uk
 
-顿涅茨克人民共和国人民民兵武装部在官方Telegram频道上发布的消息中说：“莫斯科时间19点左右，在政府大楼附近的一个停车场一辆汽车被炸毁。整个城市都听到了爆炸声。”
+白金汉宫证实，就在查尔斯和卡米拉都感染病毒几天后，女王的新冠病毒检测呈阳性。
 
-此前，顿涅茨克人民共和国和卢甘斯克人民共和国宣布开始把平民大规模撤往俄罗斯。卢甘斯克人民共和国和顿涅茨克人民共和国代表2月17日早表示，各自阵地均遭到乌克兰武装部队的大规模火力袭击。 乌克兰军方则表示，2月17日，顿巴斯地区违反停火事件骤增。
+据了解，这位现年 95 岁的君主正在经历“类似轻度感冒的症状”，但预计未来一周将继续在温莎执行轻度任务。
 
-目前，俄乌边境局势紧张引发了西方世界对战争的担忧，乌克兰相关军事行动也都成为了当下极其敏感和引发关注的话题。而与此同时，乌克兰声称他们打算通过政治和外交途径解决问题。
+她将继续接受医疗护理，并将遵循所有适当的指导方针。
 
-援引链接：[https://sputniknews.cn/20220219/1039406807.html](https://sputniknews.cn/20220219/1039406807.html)
+就在两周后，女王在 2 月 6 日迎来了她历史性的白金禧年，庆祝她在位 70 周年。
 
-编辑/校对/发稿：小小安
+接触病毒后 2 到 14 天可能会出现新冠病毒症状，但据了解，温莎城堡团队也确诊了一些病例。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-43.jpg)
+白金汉宫今天在一份声明中说：“白金汉宫证实，女王今天的新冠病毒检测呈阳性。”
 
-**更多资讯，更多关注**
+“女王陛下正在出现类似感冒的轻微症状，但预计未来一周将在温莎继续执行轻度任务。”
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+“她将继续接受医疗护理，并将遵守所有适当的指导方针。”
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+英国首相鲍里斯·约翰逊今天在推特上向女王致以良好的祝愿，他说：“我相信我代表所有人，祝愿女王陛下迅速从新冠病毒中康复，并迅速恢复健康。”
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+据了解，女王已经接种了三次疫苗，但自 10 月中旬以来，在取消了一系列活动并在医院过夜接受初步测试后，她一直受到健康问题的影响。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-44.png)
+据信，她于 2 月 8 日与查尔斯共度了一段时间，当时查尔斯在她温莎城堡的家中主持了一项授职仪式，几天后他的检测呈阳性。
+
+克拉伦斯宫周一证实，康沃尔公爵夫人的新冠病毒检测也呈阳性，并补充说公爵夫人正在自我隔离。
+
+白金汉宫一再拒绝透露女王本人是否感染了这种病毒，尽管目前尚不清楚她何时提供了阳性检测结果。
+
+王室有自己的王室医生，女王的医生将随时照顾和监督国家元首，预计将由医学家庭负责人兼女王医师休·托马斯（ Huw Thomas ）爵士教授负责。
+
+素材链接：【www.dailymail.co.uk】[The Queen catches COVID amid Windsor Castle outbreak: Monarch, 95, tests positive today after developing mild ‘cold-like’ symptoms but still sends message to Team GB medal winners as she continues light duties](https://www.dailymail.co.uk/news/article-10532601/Queen-95-tested-positive-Covid-mild-cold-like-symptoms.html)
+
+* * *
+
+审核：文乐
+校对：花羽
+发布：花羽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-6.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
