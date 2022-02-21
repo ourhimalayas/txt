@@ -2,26 +2,31 @@
 ---
 
 
-## 中日财经爆|中共国违背承诺 未购买更多缅因州龙虾
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2039603/)
+## 秘翻新闻｜香港疫情失控 急建方舱医院
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2040445/)
 
-撰稿：东京樱花团/peterwong
+**By:[秘翻新闻](https://gtv.org/broadcast/watch/621329ca08ba8a07b1a0beea)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/中共国违背承诺-未购买更多缅因州龙虾.png)[图片来源](https://kknews.cc/zh-cn/world/6ae4p3q.html)
+**[2022-02-21](https://gtv.org/broadcast/watch/621329ca08ba8a07b1a0beea)**
 
-美国缅因州国会领导人说，中共国未能根据前总统川普政府时期美中为缓解双方贸易战而达成的贸易协议的规定，购买更多的缅因州龙虾。
+**今日主题：**
 
-2018年，缅因州的龙虾业受到中共国报复性关税的重创。即使在中共国承诺要增加购买2000亿美元的美国商品后，缅因州龙虾的出口仍未大幅度增加。
+**1. 冬奥会再起风波 美华裔选手被禁参加闭幕式**
 
-根据“第一阶段贸易协议”，中共国承诺要在2017年基础上增加购买美国商品。但是根据缅因州的无党派参议员安格斯·金(Angus King)、民主党众议员平格里（Chellie Pingree ）和戈登（Jared Golden）写给美国贸易代表的一封信，中共国“购买缅因州的龙虾几乎没有超出2017年的水平”。他们敦促美国贸易代表戴琪“要求中共国对其购买承诺负责”。
+**2. 德国冬奥会两金得主表示 再也不去中共国**
 
-消息来源:
+**3. 美情报显示  俄指挥官已经接到入侵乌克兰的命令**
 
-[中国被指未能履行承诺 购买更多的缅因州龙虾](https://www.voachinese.com/a/china-accused-of-failing-to-buy-more-maine-lobster-20220219/6450968.html)
+**4. 加拿大警方暴力驱离在渥太华 和平抗议的卡车司机和示威者**
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+**5. 拜登准备随时就乌克兰问题与普京展开会谈**
+
+[🔗GTV鏈接：https://gtv.org/broadcast/watch/621329ca08ba8a07b1a0beea](http://🔗GTV鏈接：https://gtv.org/broadcast/watch/621329ca08ba8a07b1a0beea)
+
+发布:星星
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMAGE-2022-02-19-171240.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

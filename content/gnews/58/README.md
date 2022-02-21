@@ -2,32 +2,13 @@
 ---
 
 
-## 躺平币将首先惠顾爆料革命战友
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2035379/)
+## 俄州医生的执照因其对中共病毒进行早期治疗而被吊销
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2039016/)
 
-作者：纽约磐石农场 在远方
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-在2月18日的大直播中，郭文贵先生透露，即将在今年六月上市的躺平币，将首先保障爆料革命战友。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-20-at-9.49.20-PM.png)
-躺平币将分为几轮发行，在政策上将首先保证向爆料革命战友倾斜，价格一定最便宜。郭先生告诉投资机构，所有的义工、法治基金捐款者、GClubs会员、GTV投资者和拥有喜币的战友，必须优先保障其利益，其中以法治基金捐款者为第一考量。
+02/15/2022 俄勒冈州的史蒂夫·拉图利佩医生：他对中共病毒患者采用了早期疗法,并取得了 100% 的成功。医疗委员会滥用权力，吊销了他的医生执照，以惩罚他告诉世界新冠病毒很容易治疗。医疗委员会知道所谓的疫苗即将来到。州医疗委员会联合会最近表示，他们将追查所有散布所谓错误信息的医生。他支持卡车司机，这些卡车司机正做着医生不能或不愿意做的事情，来夺回他们自己的国家了。
 
-郭先生介绍，躺平币第一轮基本是送给义工战友的，尤其是帮助国内战友转款的义工。在躺平币的给予上，要跟法制基金捐款的战友持平，其次就是推广HPay的战友，GClubs会员和GTV投资者。
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-参考资料：[20220218文贵大直播：躺平币前几波最便宜的一定是属于战友的](https://gnews.org/zh-hans/2030480/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-3.png)
-
-编辑：静言
-总编：Zion文恩
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
