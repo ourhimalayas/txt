@@ -2,40 +2,32 @@
 ---
 
 
-## 北京5000公里开外的部队已处于战争状态下的紧急备战
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2039991/)
+## 当地市场飙升1500%，阿联酋向数字货币公司发放许可证
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2040103/)
 
-G-TV视频链接：[https://gtv.org/video/id=621257b91408ee3a03a24e1b](https://gtv.org/video/id=621257b91408ee3a03a24e1b)
+翻译/编辑：小红帽
 
-**郭文贵先生：**你看今天是什么样的结果？所以说刚才一个军队的哥儿们给我发信息，他说：我们军队刚刚得到说，全部战备，紧急战备。你说战备，记着，文斌知道，战备，就是我准备着有紧急事儿。紧急战备就是那一触即发了，就是把军令授到了你三级下边，遇到情况就开枪，就是战争状态了。刚刚我出去的时候给我发，他说：我们刚刚接到通知，紧急战备。这是在离北京5000公里以外的地方，我说5000公里以外的地方，大家明白。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/25-2.png)图片来源：www.pymnts.com
 
-字幕来源：[2022年2月4日《文贵大直播》全文字版](https://gnews.org/zh-hans/1961700/)
 
-编辑整理：Jacques；
+根据COINGEEK 2月20日报道，在成为中东区块链中心的竞争中，阿拉伯联合酋长国（UAE）正在为虚拟资产服务提供商（VASP）制定法规。根据政府内部的消息来源，虚拟资产服务提供商的许可制度将在第一季度末准备就绪，区块奖励矿工也将被发布自己的一套规则。
 
-字幕文件制作：小满；
+阿联酋是中东地区最大的数字货币市场之一，其中迪拜和阿布扎比是寻求在该地区发展的虚拟资产服务提供商最有吸引力的城市之一。据Chainalysis称，阿联酋是继土耳其和黎巴嫩之后的第三大数字货币市场。该区块链分析公司指出，在过去的一年里，这个市场已经飙升1500%以上。
 
-视频制作及上传：Cindy；
+一位消息人士告诉彭博社，阿联酋政府正在寻求通过引入友好的监管来保持市场的增长。证券和商品管理局（SCA）正处于法案草案的最后阶段，该法案将修订现有立法，并允许虚拟资产服务提供商在阿联酋获得许可。这位因政府政策而要求匿名的官员透露，这项法案将在第一季度末准备就绪。
 
-G-News发布：小满；
+2021年底，阿联酋政府对虚拟资产进行了一次风险评估，来自私营部门的16个参与者和14个公共机构参与了这项工作。评估发现，该行业有很多好处，但也有缺点，如洗钱风险增加。该官员透露，随后得出的结论是，最好的方法是适当地监管，而不是彻底地禁止。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+新闻链接：[UAE to license digital currency firms as local market skyrockets by 1,500%](https://coingeek.com/uae-to-license-digital-currency-firms-as-local-market-skyrockets-by-1500/)
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+发布：tianzhihuan
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

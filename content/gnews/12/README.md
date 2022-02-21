@@ -2,51 +2,37 @@
 ---
 
 
-## 蒲安臣条约前为摆脱英国代理美国首航清国的中国皇后号
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2040033/)
+## 在顿涅茨克市中心发生强烈爆炸
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2040136/)
 
-G-TV视频链接：[https://gtv.org/video/id=621257e51408ee3a03a24e42](https://gtv.org/video/id=621257e51408ee3a03a24e42)
+作者：新西兰伊甸农场 米拉娅
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-44.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1039407418_001280853_1440x900_80_0_1_0930db49ef4d824f76ff91cee32af244.png)图片：© DNR\_Online 
 
-**郭文贵先生：**1783年、1784年大清朝，跟美国签署第一个外交条约叫《蒲安臣条约》，啥叫《蒲安臣条约》知道吗？
+2022年2月19日，据【俄卫星社通讯社】报道，顿涅茨克人民共和国政府大楼几十米远处发生爆炸。 据消息称，这发生在距离顿涅茨克人民共和国政府大楼几十米远的地方。在爆炸现场可以看到大火，附近的建筑物没有损坏。 目前还没有人员伤亡的消息。
 
-《蒲安臣条约》中文名就叫蒲安臣，这是美国人派到中国第一个公使，大清朝当时很牛叉的。
+顿涅茨克人民共和国人民民兵武装部在官方Telegram频道上发布的消息中说：“莫斯科时间19点左右，在政府大楼附近的一个停车场一辆汽车被炸毁。整个城市都听到了爆炸声。”
 
-在这之前1781年、1780年美国派出了中国的，派到中国的使节从波斯顿出发到中国去，去了个船号叫“中国皇后号”。美国做的“中国皇后号”，是因为当时波斯顿自由广场发生的美国“倒茶事件”，就叫“茶党”，也就是美国想脱离大英国要脱离自由。
+此前，顿涅茨克人民共和国和卢甘斯克人民共和国宣布开始把平民大规模撤往俄罗斯。卢甘斯克人民共和国和顿涅茨克人民共和国代表2月17日早表示，各自阵地均遭到乌克兰武装部队的大规模火力袭击。 乌克兰军方则表示，2月17日，顿巴斯地区违反停火事件骤增。
 
-这就是美国自由民主最牛叉的时代，他把茶倒的谁的茶？没几个人回答，我问过所有中国牛叉的历史学家，你知道那些历史学家都是王八犊子，你知道吗？Jessica你记住七哥的话，南极宝宝，见到中国历史学家，你说：七哥说你们都是王八犊子。你告诉他七哥考过的历史学家，没有几个懂历史学的，都是一帮骗子，你知道吗？
+目前，俄乌边境局势紧张引发了西方世界对战争的担忧，乌克兰相关军事行动也都成为了当下极其敏感和引发关注的话题。而与此同时，乌克兰声称他们打算通过政治和外交途径解决问题。
 
-我一听教授我真的我腚都疼，我脚趾头发麻，我没见过真正的教授有水平的，有文化的，就是糊弄人的。
+援引链接：[https://sputniknews.cn/20220219/1039406807.html](https://sputniknews.cn/20220219/1039406807.html)
 
-当时美国这个自由斗争，就是对美国的女皇的，他倒的茶叶是咱中国的茶叶。倒了中国的茶叶以后，他发现这茶叶都是英国来的，美国人说，跟英女皇达成默契，说这都要你当二手，你都是代理人。英国人到哪都代理，今天的中介，房产中介，所有中介王，就来自英国人。英国这个国家就是搞中介的，就是拉皮条的，就这么简单。所有拉皮条都是包括妈咪，所有的中介都是英国发明的。那么美国人说：那么老子也得去。这就是1781年派出中国去的船，到中国去。
+编辑/校对/发稿：小小安
 
-字幕来源：[2022年2月4日《文贵大直播》全文字版](https://gnews.org/zh-hans/1961700/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-43.jpg)
 
-编辑整理：Jacques；
+**更多资讯，更多关注**
 
-字幕文件制作：小满；
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-视频制作及上传：Cindy；
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-G-News发布：小满；
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-44.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

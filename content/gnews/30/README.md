@@ -2,53 +2,43 @@
 ---
 
 
-## 有声| JP摩根成为第一家加入元宇宙Decentraland (MANA) 的银行
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2039671/)
+## 两名青少年打辉瑞疫苗数天后身亡，媒体集体沉默
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2039776/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-华尔街的大型投资银行摩根大通公布了其关于元宇宙的研究报告。同时，我们了解到它在 Decentraland (MANA) 虚拟世界中有一块展示区域。下面让我们盘点一下它对这个行业的看法。
+翻译/编辑：小红帽
 
-**摩根大通在虚拟世界开设了沙龙**
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/15-7.png)图片来源：www.openaccessgovernment.org
 
-在[有关元宇宙的研究报告](https://translate.google.com/website?sl=auto&amp;tl=zh-cn&amp;hl=zh-CN&amp;u=https://www.jpmorgan.com/content/dam/jpm/treasury-services/documents/opportunities-in-the-metaverse.pdf)发布之际，摩根大通在[Decentraland (MANA)](https://cryptoast-fr.translate.goog/fiche-decentraland/?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN)的元宇宙中推出了其新客厅。更确切地说，是其区块链部门 Onyx，使其成为该行业第一家拥有“立足点”的大型银行。
 
-这表明该集团渴望抓住 Web 3.0 的新机遇，其报告首先提出了这一愿景：
+根据自然新闻2月19日报道，来自耶鲁大学和密歇根大学的研究人员发表了一篇关于两名男孩在第二次注射辉瑞公司的冠状病毒（Covid-19）“疫苗”后被发现死在床上的论文。
 
-“我们在这里并不是说我们今天所知道的元宇宙将接管所有人类互动，而是要探索它为消费者和品牌带来的、许多令人兴奋的机会。”
+心脏病专家彼得·麦卡洛（Peter McCullough）博士在一篇推特文章中强调了这项研究和相关的死亡事件，并透露这些不幸的孩子在被发现时已经没有“抢救的机会”。
 
-事实上，根据摩根大通的预测， 2027年该行业的广告支出将达到184.1 亿美元。该银行还观察到，四个主要区块链元节虚拟地块的价格在去年的 6 个月内翻了一番，从 6 月的平均 6000 美元到 12 月的 12000 美元，四个主要区块链元节分别为：Decentraland、The Sandbox、Somnium Space 和 Cryptovoxels。
+麦卡洛写道：“尸检的结果很清楚。1月24日，我在美国参议院作证时说过，‘一个案例已经太多了！’。父母和孩子们应该知道会发生更多的死亡案例”。
 
-因此，这是一个它认为很有前景的市场，它看到现实世界的服务在这些数字世界中重复出现：
+这两个男孩都是青少年，他们的姓名，年龄和死亡的地点没有被透露。这篇论文发表在医学杂志《病理学和实验室医学档案》上。
 
-“随着时间的推移，虚拟房地产市场可能会开始看到类似于现实世界的服务，包括信贷、抵押和租赁。”
+研究人员表示，这两个男孩的致命心肌炎诊断并不“典型”，而是类似于所谓的中毒性心肌病。
 
-这家华尔街巨头还看到了那里的企业发展，特别是围绕不可替代代币 (NFT) 形式的数字消耗品，这些代币对化身的个性化具有吸引力。
+科学家们在他们的论文中写道，显微镜检查发现了类似于儿茶酚胺引起的损伤的特征，这不是典型的心肌炎病理。
 
-**区块链中的一家有进取心的银****行**
+这两起死亡事件，尽管令人难过，但只代表了注射新冠疫苗后死亡总人数的极小部分。事实证明，绝大多数由新冠疫苗引起的死亡甚至从未被报告。
 
-摩根大通并不是第一次尝试区块链，这超出了元宇宙的范围。最重要的事实是[随着 JPM Coin 的发行而创建了 Onyx 部门](https://cryptoast-fr.translate.goog/jpmorgan-nouvelle-unite-blockchain-jpm-coin/?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN)。JPM Coin 是一种与美元挂钩的稳定币，用于加速企业的跨境支付。自去年以来，该集团还应客户的要求[提供某些加密货币的投资服务。](https://cryptoast-fr.translate.goog/jpmorgan-feu-vert-clients-acheter-cryptomonnaies/?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN)
+“现在全球已有数百万人死于这些’疫苗’，”Newspunch网站上有人写道。“新冠疫苗不能防止感染，也不能阻止传播。它们甚至不是疫苗。它们更像是欺诈。”
 
-当然，如果这样的消息对我们的生态系统是积极的，我们必须知道如何保持批判性思维。它仍然高于所有商业和经济利益（即使这并没有错）。此外，银行集团相对于加密资产的立场往往缺乏一致性，[Uniswap 的创始人不会说相反的话](https://cryptoast-fr.translate.goog/jpmorgan-feu-vert-clients-acheter-cryptomonnaies/?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN)。
+“阅读不同国家政府自己的疫苗死亡和伤害人数数据，然后把它们加起来。然后回忆一下哈佛大学的研究，结论是每10例死亡中只有1例被报告。”
 
-尽管如此，虽然在到达Ready Player One风格的虚拟世界之前还有很长的路要走，但大公司仍然已经很好地、真正了解了这个新兴行业正在出现的机会，并反过来将他们的棋子放在了这些宇宙中。
+新闻链接：[Two teenagers drop dead days after getting “vaccinated” with Pfizer – media silent](https://www.naturalnews.com/2022-02-19-two-teenagers-drop-dead-pfizer-vaccine.html)
 
-译者评：我们所处的世界，正处在一个历史变革的节点。大重启、大觉醒、病毒危机、疫苗灾难、金融数字化、生物科技革命、人工智能崛起，金融和互联网科技将融合衍生出下一代生产力和生产关系的模式，资源配置也将达到另一个高效模式。随之而来的、从旧势力到新势力的权利变迁不可阻挡，战友们要抓住历史机遇，让新中国联邦和正道主义成为主导世界秩序的重要力量。
+发布：tianzhihuan
 
-文字版原文：[JP摩根成为第一家加入元宇宙Decentraland (MANA) 的银行](https://gnews.org/zh-hans/2022921/)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,45 +2,42 @@
 ---
 
 
-## 国际奥委会主席托马斯·巴赫斥责北京一名中中共国冬奥会官员的政治言论
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2040133/)
+## 徐州被绑架拐卖的八孩母亲事件无时无刻不在中共国上演
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2040256/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/beijingwinterolympicsratings1-640x480-1.jpg)资料图
-来自《纽约时报》The New York Times 2022年02月18日的报道，国际奥委会主席托马斯·巴赫在周五的新闻发布会上对一名中共国奥运官员发出进行了罕见的、出乎意料的斥责批评。在他发表上述言论之前，北京冬奥会女发言人严家蓉在前一天的新闻发布会上发表了似乎违反了奥林匹克政治中立原则的言论，之后他发表了自己评论。
+G-TV视频链接：[https://gtv.org/video/id=621259531408ee3a03a24f77](https://gtv.org/video/id=621259531408ee3a03a24f77)
 
-巴赫说：“在这次新闻发布会之后，我们立即与北京奥组委取得了联系。，” 巴赫说（他使用了北京奥组委的缩写），“北京奥组委和国际奥委会这两个组织都重申了保持政治中立的明确承诺，这是奥林匹克宪章的要求。”
+**郭文贵先生：**然后呢很多人说那个在江苏出现那个女的，被绑在那生了8个孩子那女的。兄弟姐妹们，2017年我爆料的时候都说过，在我老家台前县我小时候都跟人家去过，打着我名声去买媳妇去。我可以告诉你就那个绑着链子，绑着……就在我们老家，我现在我家，我村里边，你可以就是放开眼睛不用走出去，你站我家屋顶上你看一看，你能数出十个八个出来。就现在被绑着的，你看你看就JessicaG和宝宝到我们老家，就很有可能就给绑了，绑着撂那去了，就跟狗一样，一喂十几年、二十年。
 
-周四，当被问及台湾的运动员是否会在出席周日的闭幕式上出席时，严家蓉回答说：“我想说的是，世界上只有一个中共国。”。台湾是一个自治的民主岛国，实行自我管理，但被中共北京政府视为中共国领土的一部分。曾是中共国驻联合国代表的严家蓉说：“台湾是中共国不可分割的一部分。”。台湾在冬奥会期间以中华台北的名义参赛。
+他们那些人在我老家生的孩子，就被绑架以后卖给别人生的孩子，现在都有人在我们盘古打工的。你以为这事稀奇吗？可悲的中国人、可恨的中国人、可怜的中国人。没有比今天中国人再可怕的了。
 
-在奥委会发言人被问及制衣服的材料是否是在自中共国新疆地区使用强迫劳工动力生产的问题后，严家蓉也插话发言发表了看法。她说：“我认为这些问题都是基于谎言，一些当局已经用大量确凿的证据对这种虚假信息提出了质疑。”
+字幕来源：[2022年2月4日《文贵大直播》全文字版](https://gnews.org/zh-hans/1961700/)
 
-严家蓉的言论似乎违反了奥林匹克宪章第50条规则，该规则条禁止在奥运会上进行任何形式的“示威或政治、宗教或种族宣传”。
+编辑整理：Jacques；
 
-虽然巴赫没有直接谴责严家蓉的言论，但即使是温和的批评，也相当于他对中共国发表的一些最强烈的言论。巴赫在奥运会前不遗余力地将其定位为政治中立的活动，而且必须保持政治中立，尽管这长期以来一直是国际奥委会的理想而非现实。
+字幕文件制作：小满；
 
-开幕式当晚，当巴赫被问及他是否对维吾尔族（新疆主要是穆斯林少数民族）–维吾尔族有什么想说的时，他拒绝发表评论。中共国对维吾尔人的镇压被美国政府称为种族灭绝。他说：“如果我们站在政治立场上，卷入紧张局势、争端和政治力量的对抗之中，那么我们就会把奥运会置于危险之中。”
+视频制作及上传：Cindy；
 
-简评：
-中共的官员都是非常敬业的演员，他们非常善于把握住机会为领导表演。关于台湾的运动员是否会在周日的闭幕式上出席的问题，如果中共举办冬奥会遵守奥林匹克宪章的规则，那么台湾的运动员就应该出席周日的闭幕式。但严家蓉此刻嗅到了“是时候表演真正的技术”的机会，立马跳出来将中共老生常谈的官方措辞拿出来。正常人会觉得莫民名奇妙，但领导很高兴，而普通民众再一次被洗脑。作为一位女士，希望严家蓉有一天也可以在记者会面前，义正言辞的为徐州锁链女呼喊正义，为网球明星彭帅遭受的迫害喊冤。
-哪怕是国际奥委会对中共不疼不痒的批评也会引得媒体的一片惊诧，说明国际奥运会与中共的勾兑太深，国际社会早有共识。从这一事件中我们还可以看出，北京举办的此次失败的冬奥会以及冬奥会期间出现的一系列丑闻造成的恶劣的国际影响，已经促使国际奥委会官员要与中共划清界限了。可以想见，中共被国际组织孤立的局面将越来越严峻。
-尽然选择对中共实施种族灭绝的犯罪行为视而不见，对中共亵渎奥林匹克宪章的行为敢怒不敢言。正所谓‘拿人家手软，吃人家嘴短’，而国际奥运会拿了中共的钱，一定会断送自己未来的命运。
+G-News发布：小满；
 
-新闻链接:[https://www.nytimes.com/2022/02/17/sports/olympics/ioc-thomas-bach-chinese-official.html](https://www.nytimes.com/2022/02/17/sports/olympics/ioc-thomas-bach-chinese-official.html)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-翻译/简评: kkoto(芬兰大灰狼)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-PR: Harvey（叶知秋）
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-* * *
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-编辑：【英国伦敦喜庄园编辑部】
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

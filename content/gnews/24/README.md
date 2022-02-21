@@ -2,43 +2,39 @@
 ---
 
 
-## 两名青少年打辉瑞疫苗数天后身亡，媒体集体沉默
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2039776/)
+## 民意调查：大多数美国人支持加拿大自由抗议者
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2039995/)
 
-翻译/编辑：小红帽
+编译： Jenny Ball
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/15-7.png)图片来源：www.openaccessgovernment.org
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1942.png)thepostmillennial.com
 
+拉斯穆森报告（Rasmussen Reports）发布的一项新民意调查发现，大多数美国人支持加拿大的自由车队抗议者，并认为在边境以南进行类似的支持自由的运动将是“一个好主意”。 调查的受访者被问及：是否支持或反对加拿大卡车司机抗议特鲁多政府的 COVID-19 限制。拉斯穆森报告发现，59% 的受访者支持自由车队，其中 42% 的人“强烈支持”它的存在。
 
-根据自然新闻2月19日报道，来自耶鲁大学和密歇根大学的研究人员发表了一篇关于两名男孩在第二次注射辉瑞公司的冠状病毒（Covid-19）“疫苗”后被发现死在床上的论文。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1944.png)
 
-心脏病专家彼得·麦卡洛（Peter McCullough）博士在一篇推特文章中强调了这项研究和相关的死亡事件，并透露这些不幸的孩子在被发现时已经没有“抢救的机会”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1946.png)thepostmillennial.com
 
-麦卡洛写道：“尸检的结果很清楚。1月24日，我在美国参议院作证时说过，‘一个案例已经太多了！’。父母和孩子们应该知道会发生更多的死亡案例”。
+另一方面，33% 的美国选民反对卡车司机抗议，其中 21% 的人“强烈反对”示威。
 
-这两个男孩都是青少年，他们的姓名，年龄和死亡的地点没有被透露。这篇论文发表在医学杂志《病理学和实验室医学档案》上。
+参议员兰德**·**保罗（**Rand Paul**）等人建议，美国卡车司机应该像加拿大那样举行抗议活动，因为据报道，可能会有一个前往华盛顿的车队。 “你会支持还是反对卡车司机在美国抗议 COVID-19 限制？” 民意调查的参与者被问及。
 
-研究人员表示，这两个男孩的致命心肌炎诊断并不“典型”，而是类似于所谓的中毒性心肌病。
+拉斯穆森报告在推特上说，在独立人士中，意见强烈支持车队和特鲁多结束 COVID-19 限制。
 
-科学家们在他们的论文中写道，显微镜检查发现了类似于儿茶酚胺引起的损伤的特征，这不是典型的心肌炎病理。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1948.png)thepostmillennial.com
 
-这两起死亡事件，尽管令人难过，但只代表了注射新冠疫苗后死亡总人数的极小部分。事实证明，绝大多数由新冠疫苗引起的死亡甚至从未被报告。
+根据拉斯穆森的说法，全国电话和在线调查，于 2 月 13 日至 14 日对 1,000 名可能的选民进行了调查。误差幅度为正负三个百分点，置信度为 95%。
 
-“现在全球已有数百万人死于这些’疫苗’，”Newspunch网站上有人写道。“新冠疫苗不能防止感染，也不能阻止传播。它们甚至不是疫苗。它们更像是欺诈。”
+评论：如果主流媒体不在掩盖疫苗危害的真相，如果主流媒体报道加拿大卡车司机和平抗议的真相，民调支持的人数将如怒潮！
 
-“阅读不同国家政府自己的疫苗死亡和伤害人数数据，然后把它们加起来。然后回忆一下哈佛大学的研究，结论是每10例死亡中只有1例被报告。”
+素材链接：【thepostmillennial.com】[Majority of Americans support Canadian freedom protesters: poll](https://thepostmillennial.com/majority-of-americans-support-canadian-freedom-protesters-poll)
 
-新闻链接：[Two teenagers drop dead days after getting “vaccinated” with Pfizer – media silent](https://www.naturalnews.com/2022-02-19-two-teenagers-drop-dead-pfizer-vaccine.html)
+* * *
 
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+审核：文乐
+校对：花羽
+发布：花羽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-5.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

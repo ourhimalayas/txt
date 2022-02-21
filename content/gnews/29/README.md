@@ -2,33 +2,46 @@
 ---
 
 
-## 有声| 研究显示：TikTok可以绕过苹果和谷歌的隐私保护获取用户数据
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2039672/)
+## 俄乌战争实际已开始前线激战
+` 全球G系列咨服群` [轉載自GNews](https://gnews.org/zh-hans/2039842/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-据[布莱特巴特新闻网](https://www.breitbart.com/tech/2022/02/16/study-chinas-tiktok-can-bypass-apple-and-google-privacy-protections-access-user-data/)2月16日报道，最近的两项研究显示，中共拥有的社交媒体TikTok可以绕过苹果和谷歌应用商店的安全保护措施，获得对用户数据的全面访问权限。
+G-SUPPORT：背靠背
 
-这些研究是由 “白帽子”网络安全专家分别于2020年11月和2021年1月完成的。
+2022年12月21日，郭文贵先生大直播指出俄乌战争实际三天前已开始。
 
-研究摘要表明，TikTok能够绕过苹果和谷歌应用商店的代码审计，并能够在用户不知情的情况下更改应用程序的行为、访问设备跟踪功能，使中共国公司和第三方能够访问完整的用户数据。
+乌克兰军和民间亲俄武装激战（可能实际是俄罗斯军人），顿巴斯民众疏散撤离，俄罗斯200多辆装甲车驶过贝尔沙科沃。距离乌克兰边境约10公里。
 
-网络安全公司Conquest Cyber表示，这远远超过了Facebook和Twitter等美国制造的应用程序对用户数据的访问权限。这些动态属性允许TikTok在应用程序可以看到的范围内全权访问您的设备。TikTok浏览器不仅可以访问从网络到设备的转换，而且还可以查询设备本身的内容。
 
-文字版原文：[研究显示：TikTok可以绕过苹果和谷歌的隐私保护获取用户数据](https://gnews.org/zh-hans/2026982/)
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+俄乌前线战斗激烈，视频来源网络
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+
+
+坦克翻车，视频来源网络
+
+
+
+2月18日，乌克兰东部分离地区一个市镇周四发生炮击事件，一个幼儿园被炸出一个洞。【1】乌克兰军队与卢甘斯克的亲俄分离武装分子互相指责。
+
+克里姆林宫则说，”乌克兰部队的极端聚集”是造成“极其危险局面”的原因。
+
+美国总统拜登称，莫斯科正在为攻击乌克兰寻找一个借口。
+俄罗斯驻乌克兰基辅大使馆楼顶冒烟。 乌克兰卢甘斯克一家幼儿园被俄罗斯炮弹击中。视频来源网络
+
+2月16日，俄罗斯下议院周二2月16日投票，呼吁总统弗拉基米尔-普京承认乌克兰亲俄分离主义领土的独立，欧美警告。【2】
+
+参考链接：
+
+【1】[乌克兰东部发生炮击 幼儿园受损](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20220218-%E4%B9%8C%E5%85%8B%E5%85%B0%E4%B8%9C%E9%83%A8%E5%8F%91%E7%94%9F%E7%82%AE%E5%87%BB-%E5%B9%BC%E5%84%BF%E5%9B%AD%E5%8F%97%E6%8D%9F)
+
+【2】[俄议会吁普京承认乌东分离地区独立 欧美警告](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20220216-%E4%BF%84%E8%AE%AE%E4%BC%9A%E5%90%81%E6%99%AE%E4%BA%AC%E6%89%BF%E8%AE%A4%E4%B9%8C%E4%B8%9C%E5%88%86%E7%A6%BB%E5%9C%B0%E5%8C%BA%E7%8B%AC%E7%AB%8B-%E6%AC%A7%E7%BE%8E%E8%AD%A6%E5%91%8A)
+
+* * *
+
+素材整理&编辑&发布：背靠背
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

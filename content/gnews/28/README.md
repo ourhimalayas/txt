@@ -2,47 +2,24 @@
 ---
 
 
-## 有声| Casino 集团强力入住虚拟世界元宇宙沙盒 (SAND)
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2039673/)
+## 赖慧如打完疫苗后拍戏，突然昏倒吓坏现场所有人！
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2039889/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-在家乐福之后，轮到法国大型超市零售集团宣布它进入虚拟世界了。这个法国集团来到沙盒 (SAND) 虚拟世界以分发可在现实世界中使用的促销和优惠券。
+据yahoo新闻2月20日报道，民视八点档《黄金岁月》剧情拍摄中，赖慧如打完中共病毒疫苗后就去拍戏，拍戏过程中突然昏倒，吓坏现场所有人！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/456.png)江俊翰救苗真（左），赖慧如打完疫苗就去拍戏，突然昏倒吓坏现场所有人。（图／民视）
+而在拍摄的前两天，江俊翰跟赖慧如刚好都预约疫苗注射，拍摄过程还要随时注意身体变化，没想到等移机器的同时，赖慧如突然晕倒，吓坏所有工作人员，好在大家紧急应变，有些人拿保暖衣物，有些人拿塑胶袋让她可以顺利换气，赖慧如表示自己有气喘，但那天拍摄忘记带出门，加上自己有惧高症，所以可能一时吓到，才会气喘发作。
 
-**可以在Leader Price超市赢取优惠券的游戏**
+爆料革命最早呼吁不要打中共病毒疫苗，打完疫苗不久突然昏倒的现象已经传播过了无数次，提醒人们不要打疫苗，谨防疫苗副作用以及传播解药救人。相信的人自然重视，不相信的人，希望你们早日醒来，认清真相！身体是自己的，生命只有一次，愿赖慧如女士早日康复！
 
-日前，法国零售巨头家乐福宣布[购买了沙盒世界（SAND）的虚拟地块](https://cryptoast-fr.translate.goog/carrefour-parcelle-terrain-metaverse-the-sandbox-sand/?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN)。如今，Casino 集团正在通过其房地产子公司大张旗鼓地进入元宇宙。
+新闻来源：[yahoo](https://tw.news.yahoo.com/%E8%B3%B4%E6%85%A7%E5%A6%82%E6%89%93%E5%AE%8C%E7%96%AB%E8%8B%97%E5%B0%B1%E5%8E%BB%E6%8B%8D%E6%88%B2%E2%8B%AF%E7%AA%81%E7%84%B6%E6%98%8F%E5%80%92-%E5%9A%87%E5%A3%9E%E7%8F%BE%E5%A0%B4%E6%89%80%E6%9C%89%E4%BA%BA-101447468.html)
 
-如果家乐福没有具体说明它打算在元宇宙中做什么，那么Casino集团已经公布了它的部分雄心壮志。
+撰稿/发布：一叶知秋
 
-没有虚拟商店，而是一个采用了已在沙盒上找到的代码的游戏。它最初将保留给Casino 集团折扣品牌 Club Leader Price 的会员，他们将获得“黄金门票”。
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
-“我们于 2021 年底开始购买地块，但我们正在开展几个旨在提供客户体验的项目。我们采用工业方法。我们的目标是用这些新的虚拟资产创造价值，就像我们使用我们的真实资产一样。”Casino Immobilier 首席执行官 Nicolas Joly 在接受 Les Échos 采访时补充道。
-
-**Monoprix 和 Franprix 可以效仿 Leader Price 的例子**
-
-Casino集团开发的游戏目的很简单。在属于该组的元宇宙The SandBox的情节中，参与者将不得不从Club Leader Price的在线商店中搜索食物，以获得在现实世界中使用的代金券或折扣。
-
-该公司还在研究以不可替代代币（NFT）的形式实施奖励。
-
-为 Club Leader Price 会员准备的这款游戏将作为 Casino 集团的体验。如果它被证明是成功的，它应该将其他大型零售商，如 Monoprix 或 Franprix，带入元宇宙。
-
-**译者评**：鉴于喜马拉雅币即将被越来越多的人们所接受，Hpay凭借其瞬间交易功能和无手续费的巨大优势，可以甩其他加密货币几条街。在可预见的未来，虚拟世界一定是喜马拉雅币大显身手的领域。
-
-文字版原文：[Casino 集团强力入住虚拟世界元宇宙沙盒 (SAND)](https://gnews.org/zh-hans/2027068/)
-
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

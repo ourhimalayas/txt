@@ -2,46 +2,42 @@
 ---
 
 
-## 感染过COVID-19的人出现心理健康问题的风险更高
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2040137/)
+## 英女王感染新冠 有轻微症状
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2040259/)
 
 编译： Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1950.png)theepochtimes.com
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1952.png)www.dailymail.co.uk
 
-2021 年 1 月 11 日，医护人员在加利福尼亚州苹果谷的普罗维登斯圣玛丽医疗中心照顾一名 COVID-19 患者。（Ariana Drehsler/AFP/Getty Images）
+白金汉宫证实，就在查尔斯和卡米拉都感染病毒几天后，女王的新冠病毒检测呈阳性。
 
-根据一项新发表的研究，感染过 COVID-19 的人更容易出现心理健康问题。
+据了解，这位现年 95 岁的君主正在经历“类似轻度感冒的症状”，但预计未来一周将继续在温莎执行轻度任务。
 
-研究人员发现，幸免死亡的 COVID-19 患者接受心理健康诊断或处方的风险高出 60%，其问题包括：睡眠障碍、抑郁和神经认知能力下降。
+她将继续接受医疗护理，并将遵循所有适当的指导方针。
 
-例如，与对照组相比，患有 COVID-19 的人服用阿片类药物的可能性要高出 36%。患有 COVID-19 的人患睡眠障碍的可能性也高出 24%。
+就在两周后，女王在 2 月 6 日迎来了她历史性的白金禧年，庆祝她在位 70 周年。
 
-“即使在 SARS-CoV-2 感染急性期不需要住院的人中，风险也很明显，”美国退伍军人事务部盛特临床流行病学中心圣路易斯医疗保健系统主任齐亚德·阿里（ Ziyad Al-Aly ）博士和其中一名研究人员在 Twitter 上写道。
+接触病毒后 2 到 14 天可能会出现新冠病毒症状，但据了解，温莎城堡团队也确诊了一些病例。
 
-研究人员通过分析来自美国退伍军人事务部医疗保健数据库的数据得出了这一发现。
+白金汉宫今天在一份声明中说：“白金汉宫证实，女王今天的新冠病毒检测呈阳性。”
 
-他们安排了三个队列：
+“女王陛下正在出现类似感冒的轻微症状，但预计未来一周将在温莎继续执行轻度任务。”
 
-第一组感染组，是在 2020 年 3 月 1 日至 2021 年 1 月 15 日期间从该机构的卫生系统寻求护理的患者，这些患者的 COVID-19 检测呈阳性，并且，在检测呈阳性后至少存活了 30 天。患者被随访至 2021 年 11 月 30 日。
+“她将继续接受医疗护理，并将遵守所有适当的指导方针。”
 
-另一组对照组，由使用相同系统，但未检测出 COVID-19 阳性的患者组成。
+英国首相鲍里斯·约翰逊今天在推特上向女王致以良好的祝愿，他说：“我相信我代表所有人，祝愿女王陛下迅速从新冠病毒中康复，并迅速恢复健康。”
 
-第三组历史对照队列。他们在大流行之前寻求系统的照顾。
+据了解，女王已经接种了三次疫苗，但自 10 月中旬以来，在取消了一系列活动并在医院过夜接受初步测试后，她一直受到健康问题的影响。
 
-感染组与对照组和历史对照组的比较得出了相似的数字。
+据信，她于 2 月 8 日与查尔斯共度了一段时间，当时查尔斯在她温莎城堡的家中主持了一项授职仪式，几天后他的检测呈阳性。
 
-最有可能出现心理健康问题的 COVID-19 患者，是在疾病初期或急性期住院的患者。但研究人员发现，即使是未入院的 COVID-19 患者，也更有可能出现心理健康问题。
+克拉伦斯宫周一证实，康沃尔公爵夫人的新冠病毒检测也呈阳性，并补充说公爵夫人正在自我隔离。
 
-“我们的研究结果表明，**COVID-19 **患者患精神疾病的风险增加。证据还表明，患有精神疾病的人感染过 SARS-CoV-2 ，并产生严重后果的风险增加。这可能表明，假定存在双向联系，即精神健康障碍可能使某人易患 COVID-19，而 COVID-19 本身可能导致不良的心理健康表现。研究人员写道，需要更好地了解精神健康障碍作为 COVID-19 的风险和后遗症的相互作用。
+白金汉宫一再拒绝透露女王本人是否感染了这种病毒，尽管目前尚不清楚她何时提供了阳性检测结果。
 
-观察性研究的结果发表在英国医学杂志上。
+王室有自己的王室医生，女王的医生将随时照顾和监督国家元首，预计将由医学家庭负责人兼女王医师休·托马斯（ Huw Thomas ）爵士教授负责。
 
-该研究的局限性包括：队列的人口构成主要是老年白人男性，这可能会限制对公众的应用。
-
-该研究由美国退伍军人事务部和美国肾脏病学会资助。
-
-素材链接：【theepochtimes.com】 [People Who Contract COVID-19 at Higher Risk of Mental Health Problems: Study](https://www.theepochtimes.com/people-who-contract-covid-19-at-higher-risk-of-mental-health-problems-study_4288924.html?utm_source=CCPVirusNewsletter&amp;utm_medium=email&amp;utm_campaign=2022-02-20)
+素材链接：【www.dailymail.co.uk】[The Queen catches COVID amid Windsor Castle outbreak: Monarch, 95, tests positive today after developing mild ‘cold-like’ symptoms but still sends message to Team GB medal winners as she continues light duties](https://www.dailymail.co.uk/news/article-10532601/Queen-95-tested-positive-Covid-mild-cold-like-symptoms.html)
 
 * * *
 
