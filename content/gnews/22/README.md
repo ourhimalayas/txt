@@ -2,27 +2,12 @@
 ---
 
 
-## 视频|台外长表示不想战争但绝不向中共低头
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2043153/)
+## 2月20日文贵大直播摘要（图片23-27）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2043277/)
 
-制作：香草山视频部
-
-2月17日，英国一家电视台对台湾外交部长吴钊燮做了专访，并以“台湾忧心俄罗斯侵略行为促成中共大胆攻台”为标题，进行了报导。吴外长接受采访时表示，台湾不想战争，但绝不会因为畏战而向中共低头。
-
-采访记者认为，中共正密切关注乌克兰情势与俄罗斯的策略，尤其是美国对乌克兰危机的反应，并询问吴外长台湾的预测和态度。对此，吴外长表示，冬奥结束之后，中共何时会发动攻击，谁也不知道。 近一年，中共军机持续侵扰台湾防空识别区，明显有攻打台湾的意图。所有民主国家都会坚决捍卫自己的生活方式，台湾也会做好随时因应中共攻击的准备。
-
-采访中，吴外长也表示感谢英国和许多友台国家，以实际行动支援、维持台海的自由航行权，展现出民主国家团结的力量。台湾很难单独面对中共威权的压制，需要世界各地民主国家团结起来，力量才会更强大。
-
-发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+设计：五月花农场 科存
+![](https://assets.gnews.org/wp-content/uploads/2022/02/7EFB7BEF-DC1C-47A6-89D9-4D701806E54D.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/885161FA-522F-408A-A2A9-6503358AA9CE.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/DBA6E829-C520-423F-87E8-2BD1C17259DB.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/F640EFEE-4CE4-4EBB-AABA-3C5F032CDC00.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/40D1B2A9-2EC8-4D93-B720-00E044BBAFE7.jpeg)
+发布：水涨船高
 
  
 

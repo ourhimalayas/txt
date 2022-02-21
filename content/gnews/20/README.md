@@ -2,26 +2,36 @@
 ---
 
 
-## 视频｜欧洲药管局登记的疫苗副作用报告超150万份
-` MOSvideo` [轉載自GNews](https://gnews.org/zh-hans/2043191/)
+## 有声|COVID-19疫苗後炎症綜合症
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2043342/)
 
-制作：香草山视频部
+配音：香草山巡管部– 文凯琳
 
-2月19日外媒报道，截至2022年2月11日，欧洲药品管理局EMA列出了超过150万个疑似中共病毒疫苗副作用的案例。数据分析显示，平均每个人报告了3.7个副作用，近三分之一的报告为严重案例。
 
-在2000年至2020年的21年期间，所有其他疫苗合并的每10万剂接种导致了不到7份的副作用报告，而中共病毒疫苗在短短13.5个月，已经导致了每10万剂接种高达24倍的副作用报告。其中，严重案例更是167倍于所有其他疫苗21年间的报告。
 
-尽管如此，2021年奥地利制药工业协会的报告及2006年的另一研究结果表明，仍有94%的药品副作用案例未被报告。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/logo-5-768x103-30.jpg)
 
-发稿：小野貓（文凱琳）
+
+
+**主持**：文紫  瑪麗亞  **記錄**：爆料粉
+
+**長闊高深醫生**：新冠病毒這種病在不斷演變中，醫療人員也在不斷改善我們對此疾病的認知。過去沒有經歷過的，需要在實踐中慢慢積累經驗。大概在去年8-9月時，我發現COVID-19後遺症和疫苗的後遺症很相似。我主要是看神經方面的疾病，在這神經症狀上，感染病毒後及疫苗注射後的後遺症，這兩種病症的表現非常相似。
+
+**文翡博士：**今天我想首先通俗講解一下免疫系統；然後向大家介紹，免疫系統的哪些部分會受到疫苗影響而出錯，進而引發炎症綜合症；最後我來談談病毒感染和疫苗後遺症為何如此相似。
+
+文字版原文：[COVID-19疫苗後炎症綜合症](https://gnews.org/zh-hant/2035421/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
 **更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
-
-
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

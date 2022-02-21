@@ -2,18 +2,10 @@
 ---
 
 
-## 2022年2月21日，全球中共病毒疫情情况汇总
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2043375/)
+## 2/20/2022 文贵直播：俄罗斯和中共为什么要成为伙伴关系？中俄联手将是世界的灾难
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2043399/)
 
-制作：DT新闻组
-
-**中共的杀戮还在继续……**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/FA6489C5-4ADE-48E6-965F-1E237C85A8DC.jpg)
-
-发稿：信心的选择
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-6.jpeg)
+秘密翻译组-北美组
 
  
 
