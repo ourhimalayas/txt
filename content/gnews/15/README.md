@@ -2,8 +2,8 @@
 ---
 
 
-## 习与普无秘书交谈决定他俩的命运
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2038688/)
+## 普京和习近平早已经是政治联盟（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2038830/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

@@ -2,17 +2,21 @@
 ---
 
 
-## 香草山翻译部周刊|2022年2月20日第36期
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2037771/)
+## NFSC新闻、G|TV新闻访谈简报|2022年2月20日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2037827/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO-2.jpg)
 
 作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/02/220CN-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-19.png)
 文章仅代表作者本人观点，与Gnews无关
 
-总编： GBWater
+视频参看：
+[2022.02.20早 《NFSC新闻》](https://gtv.org/video/id=6212421808ba8a07b19fe6fc)
+[2022.02.20早 G|TV《新闻访谈》](https://gtv.org/video/id=62124c4e08ba8a07b19ffdac)
+
 编辑： Lakers
+校对： Lakers
 发稿： Lakers
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-2.png)

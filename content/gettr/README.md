@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/21/2022 2:04 AM (UTC)`
+
+2/20/2022 Miles Guo: What did Xi Jinping and Putin talk about in their private meeting? The fundamental purpose for Xi and Putin to wage wars is to serve their personal safety and political interests. The West is using Ukraine to grind down Xi and Putin's will. Whether or not they are going to invade Taiwan and Ukraine, both of them will perish.<br/><br/>2/20/2022 文贵直播：习普二人单独谈了什么？习普发动战争的根本目的是为其个人安全和政治利益服务；西方正在借乌克兰消磨习普的意志，不论他们是否打台湾或和克兰，他们都将覆灭<br/>
+![img](https://media.gettr.com/group13/getter/2022/02/21/02/9b6f71cc-8bb1-a25e-81d7-dde10193f6f8/out.jpg)
+
+---
+
 `@miles 2/21/2022 1:47 AM (UTC)`
 
 Who's Miles Guo Episode 3 《Mile‘s Determination to Take Down the CCP》<br/>A billionaire, he has given everything he had. Along the way, his hair turns gray, more wrinkles are on his face, but he is still fighting! This time we should win! People should win! Take down the CCP!<br/><br/>谁是郭文贵 第三集 《灭共决心》<br/>一个富豪，拿出了自己的一切，一路走来，头发白了，皱纹多了，他还在战斗，这一次我们该赢了，CCP，你完了！<br/>
@@ -150,12 +157,6 @@ Live, Love, & Laugh ❤️
 `@miles 2/19/2022 2:25 AM (UTC)`
 
 2月18号我的乖乖咧……https://tw.news.yahoo.com/%E9%83%AD%E6%96%87%E8%B2%B4%E7%88%86%E4%B8%AD%E5%85%B1%E5%B0%8D%E5%8F%B0%E8%A1%8C%E5%8B%95%E6%9A%AB%E7%B7%A9-%E9%99%A4%E4%BA%86%E6%99%AE%E4%B8%81%E6%94%BE%E9%B3%A5%E7%BF%92%E8%BF%91%E5%B9%B3-%E9%82%84%E6%9C%89-%E9%97%9C%E9%8D%B5%E9%87%8D%E8%A6%81%E5%8E%9F%E5%9B%A0-042730343.html
-
----
-
-`@miles 2/19/2022 1:10 AM (UTC)`
-
-2月18号：尊敬的战友们好……这个太棒了，太能满足我们的食欲了https://h-pay.typeform.com/to/goydIKHv
 
 ---
 

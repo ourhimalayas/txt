@@ -2,32 +2,39 @@
 ---
 
 
-## 大直播后记：战友们请珍惜每一个付出的人
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2038806/)
+## 有声|日媒揭露中共病毒疫苗接种后严重副作用案例
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2038932/)
 
-整理：文晋、Lucy Liu
-编辑：文泓
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月18日，日媒分享了两个接种中共病毒疫苗后，出现严重副作用的案例。这两个案例，均为十几岁的青年人。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E6%88%AA%E5%B1%8F2022-02-20-%E4%B8%8A%E5%8D%889.22.51.png)
+其中一位是一名十几岁的少女，在接种两针莫德纳疫苗后，立即出现心脏剧痛，并且心脏停跳长达7分钟，后经全力抢救才得以生还。而另一位接种了两剂疫苗的10岁男孩并没有这么幸运，在完全接种了第二针疫苗的三个月后，依旧感染了中共病毒，在持续发烧后出现播种性血管内凝固症候群，最终在2月9日死亡。虽然他的死因是由于疫苗所导致的血栓和内出血，但是却被厚生省归类为死于病毒。根据厚生劳动省的规定，无论真实死因是什么，只要检测呈阳性都会被归为“感染后死亡”，
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/13-14.png)图片来源：墨尔本雅典娜农场设计组（614）
+该视频一经发布，就引来网友们的热评。许多网友感谢节目组曝光真相，并认为主持人大石先生保持了真正记者所该具备的精神和伦理（留言中的松尾行高）。还有网友留言道，自己朋友的母亲也在接种后第二天死亡了，而上门确认死亡的警察也透露“的确接种后突然死亡的人在增多”。更有评论谴责、质疑父母为子女接种毒疫苗的行为。
+
+据日本厚生省统计，目前日本全民接种超过2亿剂，辉瑞疫苗疑似副作用有1万7千多例，莫德纳有4100多例，当前日本政府正准备给65岁以上老人接种第三剂加强针，并即将开始对12岁以下人群开展接种，主持人呼吁民众，一定要高度注意接种疫苗所造成的危险。
 
 
-分享一下我的看法，今天特别感谢刚才文蝶、七七功成、扬帆农场等几个农场做的PPT。昨天Rica参加我们的真人真事节目，讲到她从学校出来后参加爆料革命时，第一项工作就是在News Talk做PPT。
 
-所以，战友们真的要记住，我们容易忘记痛苦，而最容易活在幻想里，这本身就是人最大的灾难。你容易忘掉痛苦，你就不可能成长，也不可能有勇气。你再天天活在幻想中，基本上就是自杀行为。最后我们再不懂得感恩，不懂得珍惜，那咱们这就基本上不是人了，是吧？
+文字版原文：[日媒揭露中共病毒疫苗接种后严重副作用案例](https://gnews.org/zh-hans/2037126/)
 
-我们新中国联邦人真的要懂得感恩，你看战友们做这个PPT有多少个不眠夜，多少人的心血，多少人的交稿。如果你上来只为看七哥这张脸，那么让你看够为止，看吐为止，是吧？你来看直播，看的是战友们，不是说看谁脱衣裳了。真的战友们要学习，要学会改变。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-真心的请求大家懂得感谢这些背后做PPT的所有战友们，他们有太多感人的故事。我们不要憧憬在幻想之中，结果却忘掉了当下的感恩和当下的美好。我希望大家一定要记住，如果你没有时间听这个战友的话，你就不要听爆料革命的任何直播。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[2022年2月20日 文贵大直播](https://gettr.com/streaming/pvqckb4291)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-发布：tianzhihuan
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
