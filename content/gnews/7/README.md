@@ -2,39 +2,29 @@
 ---
 
 
-## Blind Trust in Scientism Ensues Hefty Price for Advanced Nations (Video)
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2041798/)
+## 最近黄金波动是什么主要原因？
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2042086/)
 
-**Translated by**：**MOS Translation Team – **Bright
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-5.png)
-On February 18’s Grand Live Broadcast, Miles Guo stated that blind trust in Scientism has led some of the most advanced countries to act as the vanguard of the CCP Virus vaccine, that is, the so-called COVID vaccine. The super high inoculation rate for these countries such as Israel and the UK will cause devastating damages, a result of the unraveling vaccine disaster.
+撰稿： 信心满满
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-16-221053.png)
+随着对美联储近期声明的初步反应降温，黄金在 2 月的前几天已经收复了一些失地，回到了 1,800 美元/盎司左右的水平。对以往紧缩周期的分析表明，紧缩政策往往不如最初预期的那么激进
 
-Being an economy with the most industrialized civilization and technology, Israel or Britain’s vaccination rate is outrageous. Especially in Israel, almost the entire country has been vaccinated, while a significant portion of its population has even taken the 4th shots. Miles explained that the main reason could be traced back to – after the Roman era, the Christian-based European civilization led mankind to a gradual transition from imperial power dominated societies to civil power dominated societies, hence the industrial civilization flourished. For the past 2 or 3 hundred years, the imperial power represented by the Queen of England and the Emperor of Japan have gradually declined.  Hence the once-glorious religious influence has also gradually declined. Science, on the other hand, became more prominent to serve as the support for humanity under the booming of capitalism.
+黄金也受益于一些支持因素。购买实物支持的黄金 ETF 的增加是市场情绪的显着转变。在全球范围内，1 月份黄金 ETF 流入 46 公吨（27 亿美元），是自 2021 年 5 月以来的最高月度增持量，这些资金特别集中在美国上市基金中。由于北约成员国和俄罗斯之间在乌克兰问题上的紧张局势加剧，地缘政治风险增加，导致不确定性居高不下当地缘政张局势升级时，黄金往往会受到追捧.
 
-Miles pointed out that although the Jewish people are considered having deep roots of religious influence, they are also the pioneers of scientism. Unfortunately, this time around, their proud and firm belief in “science” is exploited by the science-imposters such as Fauci and Big Pharma Pfizer, and the people of Israel will sure pay a heavy price.
+名义收益率上升、美元走强以及美联储声明比预期强硬是黄金的上升主要阻力展望未来，利率和通胀率仍将是黄金的关键.持续的高通胀与新冠病毒、地缘政治等相关的市场波动.
 
-Humanity is facing an existential crisis as the communists, the Party of Davos, and the Dark Forces of the world have unleashed a full-on assault, by abusing their authorities and power in the medical field and the governments, by imposing the insidious CCP Virus vaccine onto people in the name of “Science”.
+个人认为新冠病毒是主要因素引起世界性通货膨胀，譬如供应链短缺， 大宗商品价格大幅上涨。 这些因素都是最终导致黄金波动上涨因为投资者不愿意让他们手中货币大幅贬值。他们只想投资黄金，石油大宗商品才能达到避险和盈利。
 
-Miles said, at this juncture, only Righteousness-ism, or, the Way of Righteousness, can lead the world to ride out the darkest hours of human history, and to serve as the new guiding model for humanity, because the Way of Righteousness advocates the independence of judicial system, the independence of media, and the independence of science.
+邪恶共产党释放中共病毒给世界带来了大量人感染和死亡。各国都因病毒而关闭国界来禁止海外游客来本国旅游，每个国家对所在城市进行封锁。每个国家经济都受到严重损失。中共推行疫苗经济撕裂每个社会和谐，疫苗副作用使得有些人因注射疫苗出现心机炎，心包炎和血栓， 免疫系统被破坏。疫苗注射使得一些人失去了生命。这些都是影响每个国家经济增长。
 
-Source: https://gettr.com/post/pvffqc88e7
+文贵先生预警了世界经济危机即将来到，疫苗灾难在五月份发生。 只有新中国联邦人无苗族，拥有喜币才能在危机和灾难中避免损失。世界人民更多觉醒加入新中国联邦一起灭共，我们的后代再不会被共产党奴役。
 
-Proofread / Edited by: ** Snorlax S.**
+资料来源：
 
-Posted by: linli
+[https://www.gold.org/goldhub/research/gold-outlook-2022](https://www.gold.org/goldhub/research/gold-outlook-2022)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-1-514x720-1.png)
-
-**For more information, please follow us at:**
-
-**[New York MOS Himalaya ｜GTV](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)**
-
-**[New York MOS Himalaya ｜MOS TALK](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
-
-**[New York MOS Himalaya | GETTR](https://www.gettr.com/user/himalaya_mos)**
-
-**[New York MOS Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
-
+文贵先生直播
+![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

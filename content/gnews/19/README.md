@@ -2,38 +2,35 @@
 ---
 
 
-## 中国监管机构强调预防和化解债券违约风险
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2041623/)
+## 灭共小诗
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2041994/)
 
-信息来源： 路透社
+撰稿：东京樱花团/ Milescool
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1964.png)
+普京親身來北京！
 
-翻译/整理： 意大利罗马达芬奇农场 Shuizhuyu
+不知他須否取精！
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/IWETD6MQGNP7JOHZ3DQO2LS7MM.jpg)
+冬奧乃習皇神秀！
 
+痛飲狂歌潛悲辛！
 
-图片来源：路透社
+庶民饑渴皆不顧！
 
-周六在其网站上发布的会议纪要称，中国证券监管机构将更加重视防范和化解债券违约风险，并将深化债券发行改革，加强监管。
+皇帝顏面亮滿襟！
 
-证监会周五召开的2022年债券监管工作会议纪要称，中国证监会要求更加突出公开透明，深化债券发行登记制度改革。
+新中國聯邦眾安！
 
-该摘要没有详细说明委员会计划采取的具体步骤。
+靜候滅共報佳音！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1965.png)
+消息来源：
 
-总结说，证监会将完善监管机制，更好地服务实体经济发展和国家战略实施。
+盖特：[https://gettr.com/post/pse51pb0ce](https://gettr.com/post/pse51pb0ce)
 
-中国证监会表示，当前中国内外部环境复杂严峻，但中国经济平稳运行和长期发展趋势没有改变。
-
-惠誉评级在 1 月下旬表示，预计 2022 年中国的企业债券违约率将上升，这是由私营房地产开发商推高的。
-
-中国开发商受到全面监管打击的压力，这些打击限制了私营部门经济中最自由的部分。
-
-简评： 中国的经济是如此的不堪， 外媒也在报道。 这里看到最后一句话是亮点， 这就意味着私营企业最自由的部分已经被限制。
-
-🔗[中国监管机构强调预防和化解债券违约风险](https://www.reuters.com/world/china/china-regulator-emphasise-preventing-resolving-bond-default-risks-2022-02-19/)
-
-编辑发布： Shuizhuyu
-
+*图片：东京樱花团/夏目&山竹
+编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

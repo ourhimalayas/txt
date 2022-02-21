@@ -2,35 +2,29 @@
 ---
 
 
-## 拜登悄悄將COVID的聯邦緊急狀態延期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2041740/)
+## 俄罗斯和中国达成新的1亿吨煤炭交易
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2042064/)
 
-編譯： Jenny Ball
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1963.png)圖片來源：thegatewaypundit.com
-拜登悄悄地致信腐敗的議長佩洛西和美國參眾兩院，稱他正在將與 COVID 相關的國家緊急狀態延長至當前的 3 月 1 日終止日期，這之前沒有設定結束日期。
+撰写：小湫
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-23-2.png)图片来自网络
+俄罗斯和中国达成一项新协议，俄罗斯将在未来几年向中国供应1亿吨煤炭。俄罗斯能源部部长谢尔盖·莫查尔尼科夫(Sergey Mochalnikov)周五宣布了这项协议。俄罗斯与印度于2021年11月签署了一项利润丰厚的协议，向印度供应4000万吨煤炭。俄罗斯与中国的协议正在制定中，交易额为1亿吨。
 
-喬·拜登通知眾議院議長南希·佩洛西，他打算將聯邦國家緊急狀態聲明延長至 3 月終止日期後繼續有效。 [這里見聯邦國家緊急狀態定義STATUTE HERE]
+俄罗斯政府旗下的塔斯社(TASS)报道了这笔交易，并补充说，自2010年以来，俄罗斯在亚太地区煤炭市场的份额增加了8%，目前控制着约12%的市场份额。
 
-根據法令，國家緊急狀態在首次宣布一年後到期。這意味著 COVID 國家緊急狀態聲明原定於 3 月 1 日結束。但是，如果行政辦公室在到期前的 90 天窗口內通知立法部門，則法規允許延期。
+谢尔盖·莫查尔尼科夫说，2030年之前，我们有很好的市场预期，俄罗斯将在这个不断增长的市场中占有一席之地。
 
-這是拜登的通知：
+俄罗斯在与乌克兰接壤的西南边境集结了近15万军队，并在周末举行了军事演习。俄罗斯继续声称无意入侵邻国乌克兰，但拜登总统星期五表示，他相信俄罗斯总统普京已经决定入侵乌克兰。
 
-《國家緊急狀態法》（50 USC 1622（d））第 202（d）條規定。自動終止國家緊急狀態，除非總統在宣布國家緊急狀態的周年日期前 90 天內，在聯邦公報上公布並傳送向國會發出通知，說明緊急狀態將在周年日之後繼續有效。根據這項規定，我已將隨附的通知發送給《聯邦公報》以供發布，聲明自 2020 年 3 月 1 日起，在 2020 年 3 月 13 日第 9994 號公告中宣布的關於 2019 年冠狀病毒病 (COVID-19) 大流行的國家緊急狀態，將在 2022 年 3 月 1 日之後繼續有效。
+美国威胁称，如果俄罗斯继续入侵乌克兰，美国将对俄罗斯实施制裁，制裁对象包括俄罗斯国家和个人，包括俄罗斯总统普京本人。
 
-仍然需要繼續這種國家緊急狀態。COVID-19 大流行繼續對國家的公共健康和安全造成重大風險。這個國家有超過 900,000 人死於這種疾病，必須以聯邦政府的全部能力和能力繼續對抗和應對 COVID-19。
+前国防部长罗伯特.威尔基（Robert L. Wilkie）告诉福克斯新闻(Fox News)，美国制裁俄罗斯在乌克兰的军事行动中，中国政府将成为俄罗斯的后援，提供经济帮助。实际上有关对俄罗斯的经济制裁的许多讨论是不可能实现的，因为中国是俄罗斯的银行。如果西方制裁，习近平将通过购买俄罗斯石油的方式，支持普京。俄罗斯已经是中国第二大石油出口国，购买俄罗斯能源似乎是中国向莫斯科提供经济援助的最佳办法。
 
-因此，我決定有必要繼續在關於 COVID-19 大流行的第 9994 號公告中宣布的國家緊急狀態。
+威尔基的论点集中在北京增加从俄罗斯购买石油上。威尔基解释说：“如果我们采取切断俄罗斯SWIFT体系的行动，让俄罗斯无法获得西方资本，中国将会填补这个空缺。即使德国人在北溪2号项目上做出改变，中国也会填补这个空缺——他们对能源的需求至少和欧洲一样多。”
 
-**點評：人為的危機仍在繼續。**
+参考信息：
 
-素材鏈接：[thegatewaypundit.com] [Biden Quietly Extends the Federal National Emergency Declaration Related to COVID Beyond Termination Date of March 1st – Provides No End Date](https://www.thegatewaypundit.com/2022/02/biden-quietly-extends-federal-national-emergency-declaration-related-covid-beyond-termination-date-march-1st-provides-no-end-date/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailyam&amp;utm_content=daily)
-
-* * *
-
-*審核：文樂
-校對：花羽
-發稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-6.jpeg)
+[Russia, China agree new coal deal for 100 million ton supply: state media](https://www.foxnews.com/world/russia-china-new-coal-deal-state-media)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
