@@ -2,23 +2,24 @@
 ---
 
 
-## 餐厅对接Hpay 你开店我收钱
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2040958/)
+## 美国前国务卿蓬佩奥3月2日访台，中共如何抉择？
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2041086/)
 
-撰稿：东京樱花团/知即是心 于虎年立春
-![](https://assets.gnews.org/wp-content/uploads/2022/02/点线面101系统推广Hpay支付1.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/餐厅对接Hpay-你开店我收钱1.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/餐厅对接Hpay-你开店我收钱2.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/餐厅对接Hpay-你开店我收钱3.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/餐厅对接Hpay-你开店我收钱4.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/餐厅对接Hpay-你开店我收钱5.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/餐厅对接Hpay-你开店我收钱6.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/餐厅对接Hpay-你开店我收钱7.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/餐厅对接Hpay-你开店我收钱8.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/餐厅对接Hpay-你开店我收钱9.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/餐厅对接Hpay-你开店我收钱10.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/餐厅对接Hpay-你开店我收钱11.png)
+撰稿：东京樱花团｜知了知了
+![](https://assets.gnews.org/wp-content/uploads/2022/02/pasted-image-0-10.png)（图片来源于本文链接）
+台湾外交部21日证实，美国前国务卿蓬佩奥订于3月2日至5日访问台湾，期间将会见总统蔡英文。
 
-消息来源：
+蓬佩奥卸任后一直在为参选美国总统做准备，在美国政治人物中也是积极表态支持台湾的重量级人物。台湾外交部表示，蓬佩奥是台湾长期坚定的友人，任内对推动台美关系贡献卓著，包括促成川普政府多次对台军售、解密美国对台湾的“六项保证”相关文件、进一步强化对台湾的安全承诺、宣布撤销不合时宜的台美交往限制等。
 
-盖特：[https://gettr.com/post/ptcjnh23cf](https://gettr.com/post/ptcjnh23cf)
+台外交部称赞，蓬佩奥在卸任后仍经常公开为台湾发声，力挺台湾的自由与民主，外交部至为珍惜并由衷感谢蓬佩奥前国务卿对台湾的鼎力支持及长远友谊。并表示，蓬佩奥来访充分展现美国两党一致对台湾“坚若磐石”的支持，以及台美全方位伙伴关系的紧密友好。
 
-[https://gettr.com/post/ptc1nh0e3f](https://gettr.com/post/ptc1nh0e3f)
+蓬佩奥不仅是上任国务卿，也是下届美国总统参选人之一，对当前美国政治有较大影响力，他也是数十年来最具政治影响力的访台人物。乌克兰出现危机美国以防御姿态示人，主要以喊制打。台海危机尚未表面化，蓬佩奥此时访台不仅表达的是美国对台湾的支持，也鼓励了美盟国对台进行支持。对习太阳而言，是收手还是铤而走险？收手，不是被内部斗争搞死，就是被外部绞索和病毒追责慢慢勒死。他能收手吗？
 
-*图片：东京樱花团/夏目&山竹
-编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+信息来源：[**快讯／外交部：美国前国务卿蓬佩奥3月2日访台  晋见蔡英文**](https://www.ettoday.net/news/20220221/2193323.htm)
+
+*校对：东京樱花团/東洋武士*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

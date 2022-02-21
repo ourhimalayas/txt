@@ -2,39 +2,31 @@
 ---
 
 
-## 東方之珠（新歌詞）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2040638/)
+## 灭共小诗
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2040884/)
 
 撰稿：东京樱花团/ Milescool
-
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/灭共诗.png)
+在中我是中國人
 
-回望過去東方之珠！
+在美我是美國人
 
-共黨一到灰飛煙滅！
+中西廣告溢出水
 
-香港蘊秀惡雪霜臨！
+須是花樣年華醉
 
-無賴魔鬼強殺姦侵！
+收兩家茶禮不對
 
-每一滴淚珠哭沉音！
-
-片片言誰憐訴愁心！
-
-毒針猖狂瘋針狂針！
-
-老幼全民困心困身！
-
-粗口對魔共老母吟！
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/東方之珠（新歌詞）.png)
+母親平路亦踏碎
 
 消息来源：
 
-盖特：[https://gettr.com/post/pvacddef8e](https://gettr.com/post/pvacddef8e)
+盖特链接：[https://gettr.com/post/puonm3cde9](https://gettr.com/post/puonm3cde9)
 
-*图片：夏目&山竹
-校对：东京樱花团/知了知了
+![](https://assets.gnews.org/wp-content/uploads/2022/02/灭共小诗2.png)
+
+*图片：东京樱花团/夏目&山竹
+编辑：东京樱花团/知了知了
 发布：东京樱花团/老黑*
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  

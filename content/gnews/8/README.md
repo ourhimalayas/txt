@@ -2,31 +2,42 @@
 ---
 
 
-## 灭共小诗
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2040884/)
+## 现代样板戏
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2041048/)
 
-撰稿：东京樱花团/ Milescool
+撰稿：东京樱花团/待命（文晓）
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/灭共诗.png)
-在中我是中國人
+奶奶～ 您听！我！说！
 
-在美我是美國人
+孙女我护照～～两本握！
 
-中西廣告溢出水
+吃完美国～孝中国！
 
-須是花樣年華醉
+中共说 可以给我特别政策～
 
-收兩家茶禮不對
+可对我要求也特别多～
 
-母親平路亦踏碎
+吹完～炸鸡～
+
+要把彭帅说
+
+其中的奥妙～嗷嗷～～
+
+未来的我！
+
+罪责难脱！
+
+这里的官员都一样
+
+都有一～～颗！歹～毒的心～～～
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/现代样板戏.png)
 
 消息来源：
 
-盖特链接：[https://gettr.com/post/puonm3cde9](https://gettr.com/post/puonm3cde9)
+盖特：[https://gettr.com/post/pukt5tab67](https://gettr.com/post/pukt5tab67)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/灭共小诗2.png)
-
-*图片：东京樱花团/夏目&山竹
-编辑：东京樱花团/知了知了
+*校对：东京樱花团/知了知了
 发布：东京樱花团/老黑*
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
