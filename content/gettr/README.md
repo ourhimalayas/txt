@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/21/2022 10:49 PM (UTC)`
+
+2/20/2022 Miles Guo: Peng Liyuan (Xi Jinping’s wife) is in a bad shape. After the Winter Olympics, the CCP’s music industry and celebrity community will be changed drastically. The CCP does not allow the real estate to go bankrupt, nor is it allowed to report on the investigations into the singers and celebrities. The CCP’s financial sector will collapse, and the CCP’s Bouazizi incident in the financial sector will start from the music industry.<br/><br/>2/20/2022 文贵直播：彭丽媛状态非常不好；冬奥会后中共音乐界和演艺界将发生巨变；中共不准房地产破产、不许报道歌星和明星被查；中共金融会崩塌，金融布瓦吉吉事件会从音乐界开始<br/>
+![img](https://media.gettr.com/group35/getter/2022/02/21/22/5b92156d-0864-11e3-7032-21240ca5f438/out.jpg)
+
+---
+
 `@miles 2/21/2022 10:36 PM (UTC)`
 
 2/21/2022 Miles Guo’s GETTR: CCP officials are well-aware that CCP is doomed; The presidents of the US and Russia are going to have a talk. Will Putin abandon Xi and embrace the US and Europe?<br/><br/>2/21/2022 文贵盖特：中共体制内官员也知中共大势已去；俄美总统要会面，普京是否会弃习投美欧？
@@ -151,13 +158,6 @@ Who's Miles Guo Episode 3 《Mile‘s Determination to Take Down the CCP》<br/>
 
 2/18/2022 Miles Guo: The European and U.S. governments have acquiesced to letting the Omicron variant infect the population en masse, and they are now lifting all kinds of restrictions because they can't hold up both economically and politically. The massive deaths caused by the COVID vaccine disaster will not start until May, so be sure to continue to take precautionary measures against the virus.<br/><br/>2/18/2022 文贵直播: 欧美政府已经默认让奥米炕病毒集体感染民众，现在解除各种限制是因为经济和政治撑不住了；疫苗灾难造成的大规模死亡在5月份才会开始，请务必继续做好防疫措施<br/>
 ![img](https://media.gettr.com/group40/getter/2022/02/19/23/f10bfc11-8cba-7439-5db9-8720d40b38d7/out.jpg)
-
----
-
-`@miles 2/19/2022 10:59 PM (UTC)`
-
-2/18/2022 Miles Guo: The media has played a huge role in the COVID vaccine disaster, and people across the world hate Mark Zuckerberg, Bill Gates, the local CDCs, the governments, and Anthony Fauci. The Whistleblowers’ Movement was the first to say that the COVID vaccine disaster would kill over a billion people, and that the COVID vaccine passport and mandate would definitely be rescinded by May of this year<br/><br/>2/18/2022 文贵直播：媒体在疫苗灾难中起到了巨大作用，全世界最恨的是扎克伯格、比尔·盖茨、当地CDC、政府和福奇；爆料革命最早说出疫苗灾难将导致十几亿人死亡、疫苗护照和强制令必将在今年5月前取消<br/>
-![img](https://media.gettr.com/group20/getter/2022/02/19/22/f403331d-007d-3c0a-37d7-133b68caa568/out.jpg)
 
 ---
 
