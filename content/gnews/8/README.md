@@ -2,29 +2,22 @@
 ---
 
 
-## 有声|中共冬奥会闭幕式比开幕式更冷清
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2043154/)
+## 有声|澳大利亚警方承认对堪培拉抗议民众使用了LRAD装置
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2043371/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-在即将于2月20日举行的中共冬奥会闭幕式之前，中共罕见地没有进行大肆报道，预计闭幕式比开幕式将更加冷清。
+配音：香草山巡管部– 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2021/12/%E6%9D%A1%E5%B9%85.png)
+2月18日澳洲媒体报导，澳大利亚首都地区警方承认，在堪培拉议会大厦外的自由车队集会期间，他们使用了长距离声学装置LRAD。
 
-据新中国联邦战友总结中共开幕式的数据，可见一斑。
+LRAD装置有两种模式。一种为传递信息的扩音装置，另一种则是控制人群的“声波武器”。LRAD装置在人群中的使用存在极大的争议性，如纽约市警察局曾向联邦法庭建议，停止对处于警戒状态的抗议者使用LRAD装置。
 
-首先，中共于1月28日公布的出席名单中，仅25国在列，其中8国无运动员参赛，13国仅派出10名以下运动员，这两者占25国中的84%。
+LRAD装置在堪培拉的使用让很多公众观察家感到震惊，因为LRAD装置本质是一种对人群实施控制的声波武器。在非扩音设置下使用LRAD装置极其危险，已知会造成永久性听力损伤、脑损伤等结果。
 
-其次，根据网上公开讯息，截至发稿时，25国中已经有19国领导人，在2月8日之前就已回自己国家。而时至今日，中共也没有公布参加冬奥会闭幕式的外国嘉宾名单。同时中共也未报道，是否会如同2008年闭幕式之前一样，举办国宴款待出席闭幕式宾客。
+文字版原文：[澳大利亚警方承认对堪培拉抗议民众使用了LRAD装置](https://gnews.org/zh-hans/2031792/)
 
-最后，对比开幕式前10天，中共就大肆宣扬其彩排多宏大以及演员的辛苦，而今离闭幕式仅剩不到一天了，根本见不到中共关于闭幕式彩排的任何描述。仅张艺谋在闭幕式前一天表示，闭幕式将依旧一切从简。
+音频处理/发稿：Daxia
 
-这一切如同郭文贵先生在中共冬奥会之后反复强调的那样，中共冬奥会将开成冬眠会，而这场冬眠会也实质上不会有闭幕式。因为整场下来几乎没有外国来宾，中共自嗨过后，结尾亦会一片死寂。
-
-文字版原文：[中共冬奥会闭幕式比开幕式更冷清](https://gnews.org/zh-hans/2035378/)
-
-音频处理：Fei797
-发稿：Fei797
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -32,7 +25,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

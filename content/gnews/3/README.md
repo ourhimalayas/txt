@@ -2,23 +2,12 @@
 ---
 
 
-## 视频｜揭露HBO VICE精心编织的谎言
-` MOSvideo` [轉載自GNews](https://gnews.org/zh-hans/2043226/)
+## 2月20日文贵大直播摘要（图片28-33）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2043394/)
 
-制作：香草山视频部
-
-HBO VICE的剪辑视频以“阴谋论”开头，把SEC听信中共特务谎言、恶意调查GTV的行为，作为污蔑GTV、攻击郭文贵先生的借口。但在中共制造的一系列障碍之下，投资者的利益不仅没有受到一分损害，反而在SEC调查的一年当中，GTV从20亿的规模猛增到了600亿。这种事情是前所未有的。
-
-接下来让我们还原事实真相的第8部分：反击HBO VICE利用少数混进来的中共特务GTV投资后故意要求退款以诋毁GTV的报道。
-
-发稿：小野貓（文凱琳）
-
-**更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
-
-
+设计：五月花农场 科存
+![](https://assets.gnews.org/wp-content/uploads/2022/02/21360CEA-0A98-47A8-AF01-0700D6BBC006.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/5DA390B8-C155-4F0F-BD72-53BD2C2018CF.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/5332C5E7-AA9F-4CC3-93ED-B1229FF383CD.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/C174BCF5-115B-4575-B792-55577D3D8B35.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/09DD785A-9BAB-4A93-B69F-E7E3107DFC9C.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/631E5306-81B6-4950-B1EC-2C7F562DA9F8.jpeg)
+发布：水涨船高
 
  
 

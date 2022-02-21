@@ -2,28 +2,36 @@
 ---
 
 
-## 视频｜中共国结婚人口急剧下降，释放生育危机信号
-` MOSvideo` [轉載自GNews](https://gnews.org/zh-hans/2043137/)
+## 有声|COVID-19疫苗後炎症綜合症
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2043342/)
 
-制作：香草山视频部
+配音：香草山巡管部– 文凯琳
 
-2月18日，国外媒体援引中共的相关数据，揭示了中共国近年来结婚人数明显下降的趋势。
 
-数据表明，2021年前三季度中共国婚姻登记数量较2019年同期下降17.5%。其中江苏省结婚人数连续五年下降，浙江省杭州市2021年结婚人数还不到2011年的80%。
 
-与此同时，中共国46.5%的结婚者年龄在30岁以上。结婚人口的下降、结婚者年龄偏大等现象将进一步降低中国的人口出生率。据悉，2021年中共国出生率已降至中共国家统计局1949年记录以来最低水平。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/logo-5-768x103-30.jpg)
 
-据社交媒体的信息，民众普遍认为，近年来中共政权采取各种政策明争暗夺，导致民众收入难以提高，生活成本却不断上涨，引发了年轻人“结婚难”这一现象。
 
-发稿：小野貓（文凱琳）
+
+**主持**：文紫  瑪麗亞  **記錄**：爆料粉
+
+**長闊高深醫生**：新冠病毒這種病在不斷演變中，醫療人員也在不斷改善我們對此疾病的認知。過去沒有經歷過的，需要在實踐中慢慢積累經驗。大概在去年8-9月時，我發現COVID-19後遺症和疫苗的後遺症很相似。我主要是看神經方面的疾病，在這神經症狀上，感染病毒後及疫苗注射後的後遺症，這兩種病症的表現非常相似。
+
+**文翡博士：**今天我想首先通俗講解一下免疫系統；然後向大家介紹，免疫系統的哪些部分會受到疫苗影響而出錯，進而引發炎症綜合症；最後我來談談病毒感染和疫苗後遺症為何如此相似。
+
+文字版原文：[COVID-19疫苗後炎症綜合症](https://gnews.org/zh-hant/2035421/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
 **更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
-
-
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
