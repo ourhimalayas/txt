@@ -2,42 +2,24 @@
 ---
 
 
-## 美国最易导致突发事件的经济指标:信用卡烂账和银行烂账
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2040384/)
+## 港闻｜配合港府“催针” 医学会宣布收紧疫苗豁免门槛 违者或涉专业失德
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2040430/)
 
-G-TV视频链接：[https://gtv.org/video/id=62125a871408ee3a03a25078](https://gtv.org/video/id=62125a871408ee3a03a25078)
+**撰文/ 港台前线｜发布日期/ 21/02/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/配合港府「谷針」-醫學會收緊疫苗豁免門檻-違者或涉專業失德.jpg)
+**更多资讯请关注官方盖特｜please follow our Gettr （[https://gettr.com/post/pl6w8he0b9](https://gettr.com/post/pl6w8he0b9))**
 
-**郭文贵先生：**那么，现在你看到美国经济，兄弟姐妹们，还没到最坏的时候。美国最坏的时候是两个事情，是最可怕的，它们完全没来，你们千万要有心理准备做好，这叫什么？这叫做个性表达，或者说叫完全是突发事件，还不叫整体的经济崩溃。第一个是什么？是美国信用卡烂帐指标，就还不起钱了。美国全是借贷开支，信用卡烂账指标还没那么坏，就这些人还可以还钱。就是美国政府印的这十几万亿，现在还在管用，这个没有那么坏。所以，这些都是突出表达了，就是像Facebook肯定、PayPal。
+为了逼使更多市民接种新冠疫苗，香港特区政府频出“辣招”，包括本周四（24日）即将实施的疫苗通行证，要求所有人进入商场、超市及食肆前必须使用安心出行 app 以及出示疫苗接种卡，除非获医生签发的“医学豁免证明书”（即豁免接种新冠疫苗的证明书）
 
-另外一个大家看到的指标是，还没有那么坏：银行烂账，银行烂帐没出来。
+香港医学会今（21日）宣布，经多个专科学院讨论，将更新指引收紧医学豁免证明书的签发门槛，该指引目前已向各院医生发出，列明只有在极少数的情况下才可发出豁免，如有未受控制的慢性疾病、疫苗敏感，及曾多次小产的孕妇等等，同时，豁免有效期亦将缩短至 3 个月。
 
-字幕来源：[2022年2月4日《文贵大直播》全文字版](https://gnews.org/zh-hans/1961700/)
+不仅如此，原本属于豁免接种行列的长期病患以及孕妇，在最新的指引中，均被踢出豁免范围，甚至患有癌症、免疫系统疾病的病人，豁免门槛都被收紧至“只要开始用药就适合接种疫苗。”
 
-编辑整理：Jacques；
+医学会强调，医务人员必须严格按照更新指引作业，若医务委员会接获任何针对医生签发豁免太宽松的投诉，经查证后，涉事医生可能会被判“专业失德”。
 
-字幕文件制作：小满；
+对此，病人政策连线主席林志釉表示，已收到不少长期病患及长者的询问，形容他们忧郁“打（疫苗）会死，不打会饿死”，若该部分病人因某些原因取不到豁免书，未来将被禁止进入商场或街市购物，这无疑会对他们的基本生活造成毁灭性影响。
 
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+来源｜[衛生署醫學豁免指引](https://www.covidvaccine.gov.hk/pdf/Guidance_Notes.pdf)
 
  
 
