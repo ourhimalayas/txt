@@ -2,35 +2,20 @@
 ---
 
 
-## 今日盖特大V推荐 — 拉希姆·卡萨姆 (Raheem Kassam)
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2043665/)
+## 习近平和普京之间必是有惊天的秘密 乌克兰和台湾是习 普用来要挟世界的筹码
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2043710/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/99aqp47-80ct9-2.jpg)
-**盖特链接：**[https://gettr.com/user/RaheemKassam](https://gettr.com/user/RaheemKassam)
+普金自新冠肆虐起，就性情大变。普习密会后，更是忽然少言寡语。不仅如此，普金这两年还喜欢看战争电影。可以说是很危险的，因为电影很可能会严重影响领导人的情绪和决策。
 
-**拉希姆·卡萨姆自述：**
+今天的俄罗斯富豪家族多半在英国，其次就是南法，包括普京。现在俄罗斯约50%是由普京家族控制。如果欧洲对俄制裁，对普京将有很大的冲击。
 
-《国家脉搏》主编
-《战斗室》联合创始人
-《国家脉搏》播客主持人
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1ak1.jpg)
-**图片来源：网络**
+习近平和普京之间必是有惊天的秘密！乌克兰和台湾是牺牲品，是习、普用来攻击美国和欧洲的筹码。
 
-**拉希姆·卡萨姆简介：**
+普京对乌克兰下手，给习留下作战时间，世界大戏正在上演！
 
-拉希姆·卡萨姆 (生于1986年8月1日）是英国保守派政治活动家，新闻媒体布赖特巴特(Breitbart News London) 的前主编，前英国独立党领导人奈杰尔·法拉奇(Nigel Farage)的前首席顾问。
-
-2019年10月，卡萨姆开始与班农(Steve Bannon) 共同主持《战斗室》(War Room)。
-
-卡萨姆也是 《国家脉搏》(The National Pulse)的主编。
-
-编撰：洛杉矶盘古农场 — 郭友(文苏)
-校审：洛杉矶盘古农场 — 心照
-发布：洛杉矶盘古农场 —彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+视频来源: 20220220—郭先生大直播
+视频制作: 文星光，梦田
+文案:文星光
 
  
 

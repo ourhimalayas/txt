@@ -2,10 +2,10 @@
 ---
 
 
-## 印媒报道锁链女事件，揭露中共国人口拐卖问题
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2043632/)
+## 一位加拿大警官呼吁警察同事不要参与镇压游行
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2043679/)
 
-02/18/2022 印度媒体WION报道锁链女事件，揭露中共国人口拐卖问题
+02/19/2022 一位曾经参与和平游行的加拿大警官呼吁警察同事听从内心良知不要参与镇压游行
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

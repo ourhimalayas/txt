@@ -2,36 +2,23 @@
 ---
 
 
-## 爆料革命承诺救助 “铁链女” 爆料人
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2043937/)
+## 特鲁多政权极具专制性和破坏性
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2043992/)
 
-作者：纽约香草山农场 – 文鹰
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月19日，郭文贵先生在盖特直播中讲述，最早报道徐州 “铁链女” 事件的其中一个爆料人家属，向郭先生提供确实证据，受到郭先生认可并得到救助承诺。
+加拿大温哥华扬帆农场    平民正道
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide5-12.jpeg)
+据加拿大[金融邮报]2月18日报道，[世界经济论坛]主席施瓦布近日对媒体公开表示，在特鲁多自由党内阁成员中，大部分都是出自该组织的所谓“全球青年领袖”。
 
-郭先生依据爆料人家属提供的图片和视频，了解到爆料人揭露真相后，被中共警方抓捕，残酷拷打致伤的事实。郭先生决定用两万个喜币作为受迫害补偿，并承诺救助爆料人。
+报道称，[世界经济论坛]计划在彻底毁坏全球经济后进行大重启，并通过其企业领导人担任各国政府要职，形成全球极权统治模式。特鲁多前幕僚长、达沃斯党人布茨就是最好的例证。
 
-另据家属告知，“铁链女”事件发生地徐州丰县，当地人都知道这名女子受害情况。而且，每年都有几十具年轻女孩尸体被发现，贩卖来的女性被富裕家庭购买来当性奴使用。
+目前，特鲁多当局利用已严重破坏了本国经济的疫情，作为其管控加拿大的契机。而该独裁机制必将引发社会动荡，最终引燃了如同自由车队运动这样的民众反抗。面对崩溃的局面，特鲁多却将其失败归咎为国外势力的渗透和资助。
 
-中共惧怕“铁链女”真相被揭穿，除了在徐州加建物理隔离墙，还加强了网络防火墙，并且在当地加派200名警察驻守，企图阻止外界了解事件的真相。爆料革命唯真不破，鼓励勇敢揭露中共邪恶的爆料行为。
+对此，文贵先生表示，作为达沃斯论坛等黑暗势力的鹰犬，特鲁多必定会对反政府的自由车队进行武力镇压，这也是为何[新中国联邦]不能直接参与这次抗议运动中的根本原因。同时，作为服务于黑暗势力的奴仆，特鲁多最终会被其主子出卖和抛弃，沦为其邪恶罪行的替罪羊而遭正义的严惩。
 
-参考链接：[https://gettr.com/post/pviwuoa122](https://gettr.com/post/pviwuoa122)
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+编辑： 平民正道    发布：平民正道
 
-总编：Jack Li文阳
-编辑：文真
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
