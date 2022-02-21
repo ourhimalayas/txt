@@ -2,29 +2,36 @@
 ---
 
 
-## 俄若入侵乌克兰 英国将对其采取最严厉的经济制裁
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2042494/)
+## 为中共卖命一生 金无怠落得悲惨下场
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2042801/)
 
-**撰稿：日本东京方舟农场  幽蘭自得**
+作者：纽约香草山农场教育部-马克文、朱丽叶
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+金无怠，1922年8月17日出生，广东南海人，毕业于燕京大学。曾担任美国中央情报局对外广播情报处翻译人员、档案管理人员、分析专家、中央情报局亚洲部门负责人。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-21-上午10.19.51.png)
+根据反间谍专家、有八年特工经验的陶德.霍夫曼所著的《内部间谍–金无怠和中国对中情局的渗透》一书内容：金无怠在燕京大学就被发展加入中共，1948任职于美国驻上海领事馆，开始了他间谍生涯。1950年5月，美国上海领事馆移居香港。1951年6月，爆发朝鲜战争，据金无怠后来交代，韩战期间，一直为中共秘密传递情报。1965年归化为美国公民，1970年金为中央情报局兼分析员的职位，可以接触更高的机密。
 
-2月20日，英国首相约翰逊表示，如果俄罗斯入侵乌克兰，英国将对俄罗斯采取最严厉的经济制裁，制裁目标不仅针对普京及其同僚，还包括俄罗斯最具有战略重要性的公司和组织。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-225.png)图为英国首相约翰逊和德国总理朔尔茨在慕尼黑安全会议上合影（图片来自路透社）
-据《美国之音》报道，约翰逊20日在接受BBC采访时表示，英国将停止俄罗斯公司在英国市场上融资，甚至与美国一起阻止俄罗斯以英镑和美元进行贸易交易。
+由于中共国家安全部、北美情报司司长俞强声向美国投诚，才把在美国潜伏37年中共间谍金无怠供出来。
 
-此前，英国议会15日已通过决议，如果俄罗斯入侵乌克兰，英国将扩大对俄罗斯企业和个人的制裁。
-
-另外，约翰逊19日在慕尼黑安全会议上还强调，如果西方国家没有履行承诺支持乌克兰的独立，这将对全球带来损害的后果，包括对台湾。
-
-然而，新中国联邦创始人郭文贵先生在其20日的大直播中一语道破欧美等西方国家对乌克兰的所谓的支持。郭先生还指出，当导弹落在乌克兰的头顶上，欧美国家再制裁俄罗斯，那就已经晚了，这个制裁也就没有任何意义。因此这些政府的支持并没有实际意义，最后乌克兰就沦为欧美与俄罗斯之间的较量战场，成为牺牲品。
+金无怠被捕后，意识到下半辈子不是死就是终生监禁。他曾托其妻周谨予去见北京中共政府，寄希望中美两国通过谈判，像美苏那样，双方交换间谍，让他回到中国。可是当时的中共驻美大使回答记者说，“ 金无怠是美国反华势力编造的，中共政府爱好和平，从来没有向美国派过间谍。不认识这位金先生”。数月后，金无怠死在狱中，现场发现，金头上套着塑料袋，窒息而亡。
 
 参考链接：
-1.[https://www.voachinese.com/a/britain-would-impose-toughest-sanctions-against-russia-if-invading-ukraine-20220220/6451271.html](https://www.voachinese.com/a/britain-would-impose-toughest-sanctions-against-russia-if-invading-ukraine-20220220/6451271.html)
-2.[https://gtv.org/video/id=62123b3508ba8a07b19fce62](https://gtv.org/video/id=62123b3508ba8a07b19fce62)
+1）[金无怠（维基百科）](https://zh.wikipedia.org/wiki/%E9%87%91%E6%97%A0%E6%80%A0)
+2）[潜伏在美国情报机构37年：中国最著名的国际间谍金无怠](http://www.2048000.com/smallView.asp?ID=240)
 
-素材采编：幽蘭自得
-编辑：老孙
-发布：爱放飞
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
+总编：文真
+编辑：文真
+校正/发稿：呼吸的雾霾（文小呼吸）
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

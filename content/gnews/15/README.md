@@ -2,39 +2,27 @@
 ---
 
 
-## 有声|香港疫情持续 林郑称将建“方舱医院”
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2044206/)
+## 徐州铁链女——国父国母冷漠与无视
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2044260/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月18日，港共特区行政长官林郑月娥举行新闻发布会，声称自19日起，香港将在内地团队的协助下开始建设一个临时隔离设施——“方舱医院”，并称，中共政府全力支持香港抗击疫情，内地专家组也给香港带来了宝贵的抗疫经验。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/a6qkr-yj0fb.jpg)
+徐州铁链女事件从曝光到现在经历二十多天，徐州当地政府发布四次通告想以强硬的官腔掩盖铁链女事件真相，图谋逃脱当地政府在铁链女事件上的责任。事件发展过程中徐州政府卑劣造假手段破绽百出，在网友大众一次又一次地把它们的谎言戳破后，使公众对徐州政府的作为更加愤怒。
 
-自1月下旬以来，香港疫情持续加重，2月17日，单日确诊达到了6116例。但香港没有有效地对病人进行分流，造成医院负担大大增加，很多病人甚至因为医院空间有限，被安排在室外等候。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide10-8.jpg)
-对此，香港仍然跟随中共的“清零”政策，如今又要效仿大陆建立“方舱医院”。
+在这种应立即采取有效手段拯救受害者的人间惨剧上，徐州当地政府发布通告力挺犯罪嫌疑人董志民，直接支持拐卖妇女行为是合法行为。如果铁链女事件只是董志民的个人行为多数人的感觉是愤怒，而徐州政府不但至今没有任何要承担责任和想改善当地拐卖妇女问题的迹象，却实际上支持、参与拐卖妇女的行为除了令人愤怒之外，更是令人心寒、恐惧。
 
-观察人士称，中共借病毒疫情进一步控制香港，正使香港急速成为中共治理下的大陆城市。方舱医院和中共疫情管制模式出现在香港，恐怕会使香港的人道灾难再一次上演。
+不仅地方政府如此，在铁链女事件曝光后，身为一国之父、一国之母的习近平、彭丽媛夫妇在铁链女事件过去二十多天里没有任何实际性行动。国父国母不但在铁链女事件上没有为国民树立慈爱的父母形象，而且在国民心中形成了国父国母冷漠无视的父母形象。不禁让人疑问，习近平、彭丽媛夫妻也是这样冷漠地对待自己的女儿和女性家属的吗？其实答案已经明确：铁链女不是牠们的人民，铁链女在牠们眼里连人都不是。
 
+如果你不想看到铁链女事件这样的人间惨剧再发生，请你发出你不满的声音，每天花几分钟的时间，不怕重复地为这些被拐卖的中国妇女献出一点点身为人类同类的爱心。
 
+***文章观点仅代表作者个人，与Gnews 平台无关***
 
-文字版原文：[香港疫情持续 林郑称将建“方舱医院”](https://gnews.org/zh-hans/2039294/)
+作者：洛杉矶盘古农场 — Bc.S
+编审：洛杉矶盘古农场 — 心照
+发布：洛杉矶盘古农场 — 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉磯盤古農場歡迎您加入:(或點擊上方圖片）
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

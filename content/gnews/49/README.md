@@ -2,32 +2,29 @@
 ---
 
 
-## 新中国联邦将确保司法媒体科学受监督的独立运行
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2042445/)
+## 俄若入侵乌克兰 英国将对其采取最严厉的经济制裁
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2042494/)
 
-作者：纽约磐石农场 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在2月18日的大直播中，郭文贵先生表示，新中国联邦将确保司法、媒体和科学的独立，正道主义将成为管理人类信仰的新方式。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-325.jpg)
-郭先生说，世界各个国家真疫苗的接种数量，与造成人员死亡的数量成正比。比尔-盖茨控制了世界90% 的软件使用，因此也控制了人类的话语权。美国正是由于媒体被政府控制，民众盲目相信政府主义和盲目崇拜科学主义，才导致了今天的疫苗大灾难。人类在付出巨大代价之后，必将会找到一种新的管理世界的方式。
+**撰稿：日本东京方舟农场  幽蘭自得**
 
-郭先生表示，未来人们必须在承担法律责任和受监督的情况下，保证言论自由。这将是新中国联邦正道主义最关键的一环。因此，新中国联邦的司法、科学和媒体，都要在受监督的情况下独立运作，这样才能保证信仰自由。
+2月20日，英国首相约翰逊表示，如果俄罗斯入侵乌克兰，英国将对俄罗斯采取最严厉的经济制裁，制裁目标不仅针对普京及其同僚，还包括俄罗斯最具有战略重要性的公司和组织。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-225.png)图为英国首相约翰逊和德国总理朔尔茨在慕尼黑安全会议上合影（图片来自路透社）
+据《美国之音》报道，约翰逊20日在接受BBC采访时表示，英国将停止俄罗斯公司在英国市场上融资，甚至与美国一起阻止俄罗斯以英镑和美元进行贸易交易。
 
-参考链接：[2/18/2022 文贵直播: 正道主义将成为管理人类的新方式；新中国联邦将确保司法，媒体和科学的独立；言论自由必须要承担法律责任和接受监督；越落后的地区，假疫苗越多，死人越少，越发达的地方则反之](https://www.gettr.com/post/pvgx1j3e06)
+此前，英国议会15日已通过决议，如果俄罗斯入侵乌克兰，英国将扩大对俄罗斯企业和个人的制裁。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+另外，约翰逊19日在慕尼黑安全会议上还强调，如果西方国家没有履行承诺支持乌克兰的独立，这将对全球带来损害的后果，包括对台湾。
 
-总编: 文真
-编辑: Jack Li文阳    
-校正/发稿：Fei797
+然而，新中国联邦创始人郭文贵先生在其20日的大直播中一语道破欧美等西方国家对乌克兰的所谓的支持。郭先生还指出，当导弹落在乌克兰的头顶上，欧美国家再制裁俄罗斯，那就已经晚了，这个制裁也就没有任何意义。因此这些政府的支持并没有实际意义，最后乌克兰就沦为欧美与俄罗斯之间的较量战场，成为牺牲品。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+参考链接：
+1.[https://www.voachinese.com/a/britain-would-impose-toughest-sanctions-against-russia-if-invading-ukraine-20220220/6451271.html](https://www.voachinese.com/a/britain-would-impose-toughest-sanctions-against-russia-if-invading-ukraine-20220220/6451271.html)
+2.[https://gtv.org/video/id=62123b3508ba8a07b19fce62](https://gtv.org/video/id=62123b3508ba8a07b19fce62)
+
+素材采编：幽蘭自得
+编辑：老孙
+发布：爱放飞
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

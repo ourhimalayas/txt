@@ -2,39 +2,44 @@
 ---
 
 
-## 有声|NBA球星坎特透漏被提名诺贝尔和平奖
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2044142/)
+## 加拿大警察威胁自由车队抗议者
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2044179/)
 
-配音：香草山农场 – 信念7
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-2月17日，NBA球星欧尼斯·坎特·自由在推特上发布消息表示，能获得诺贝尔和平奖提名，他感到既荣幸又受宠若惊。他说，有时候表明立场比领到下一份薪资更重要。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1847.png)
-据美国媒体报道，日前被NBA球队放弃的坎特，得到30位诺贝尔奖得主联署力挺，他也因此被提名诺贝尔和平奖。
+#### **【雅典娜快讯】，紧贴实事脉搏**
 
-坎特是波士顿凯尔特人队的前中锋，他是直言批评中共政府为犯下反人类罪的残暴组织，为中国人权发声的少数国际顶级运动员之一。
+整理/编辑：Little Lamp
 
-2021年11月23日，坎特在接受福克斯新闻采访时，曾敦促国际奥委会放弃2022年北京举行冬奥会。他说，即使大部分职业体育界都对中共侵犯人权、对中共领导层的指控保持沉默，也总得有人站出来与中共对抗。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-69.png)图片来源：雅典娜设计组
 
 
 
-文字版原文：[NBA球星坎特透漏被提名诺贝尔和平奖](https://gnews.org/zh-hans/2035367/)
+```
+渥太华警方指责反授权抗议者拒绝服从命令并对警察和马匹进行“攻击和侵略”，从而给自己带来暴力。该声明是在令人震惊的视频片段显示警察殴打抗议者并在马背上撂倒他们之后发表的。
+```
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+```
+不到一天前，官员们开始在渥太华市中心大规模逮捕抗议者，清除由卡车司机领导的自由车队示威活动，该示威活动已使加拿大首都的交通陷入停顿三周。镇压行动的画面显示，警察打破车窗逮捕车内的乘客，殴打拒绝服从的人，并向示威人群发起冲锋。至少有两人在马背冲锋中被踩踏，其中包括一名带助行器的老妇人。
+```
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+渥太华警方首先声称没有抗议者被踩踏，而是说他们是摔倒了。该部门随后表示，他们的一匹马被扔了一辆自行车，尽管视频片段与这一说法相矛盾。
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+攻击的画面和警察殴打抗议者的镜头在网上引发了愤怒，严厉的镇压也受到华尔街日报、纽约时报和金融时报的编辑委员会以及加拿大民选官员的谴责。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+清除示威者的行动是在加拿大总理贾斯汀·特鲁多周一援引紧急权力后开始的。特鲁多史无前例地援引《紧急情况法》，允许政府暂停参加抗议者的卡车运输执照，冻结参加者及其支持者的银行账户和加密货币钱包，并暂停在某些地区自由集会的权利。
+
+文章来源：[Police threaten Freedom Convoy protesters](https://www.rt.com/news/549988-ottawa-police-horses-protesters/)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场D](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)iscord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
