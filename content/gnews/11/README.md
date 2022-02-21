@@ -2,28 +2,25 @@
 ---
 
 
-## 前国务卿蓬佩奥即将访问台湾
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2041025/)
+## 大直播后记：中共向世界输出黑暗
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2041058/)
 
-#### 撰稿：JIHO  
+整理：文晋、Lucy Liu
+编辑：Sadhu
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-20-上午9.49.15-7.png)
+从病毒到病毒真相，疫苗到强制打疫苗，新型病毒到全球，96%都是打疫苗的感染，不让你吃伊维菌素，不让你吃青蒿素，全球所有严肃媒体被共产党的邪恶组织、达沃斯控制。然后让你待在家里不让你出去，他们出去随便吃，随便喝，随便约炮。大家都看到无数个所谓的精英领导人都这么干。我们都是有老婆，有孩子有爹妈，我们都是女人生的，天下没有比我们尊重女性的，尊重老人孩子的。那你说一个社会，女人不能受保护，孩子不能受保护，老人残疾人都要提前打疫苗给你打死。那剩下是谁呢？漂亮的变成锁链女；老弱病残要打疫苗打死你；然后当了足球明星就变成郝海东，羽球冠军变成叶钊颖或网球明星变成彭帅。如果你稍微有点反它就变成了雷洋。你说这个世界上还有比中国还黑暗的，还有比中国输送的毒再多的吗？
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/02/https___d1e00ek4ebabms.cloudfront.net_production_c4bdec91-1fc2-4c02-b3ec-3975abcddce7.jpg)图片来源：金融时报 (Financial Times)
-根据路透社台北2 月 21 日消息，台湾政府周一表示美国前国务卿迈克·蓬佩奥（Mike Pompeo）将于下周访问台湾并会见台湾总统蔡英文，在任期间蓬佩奥也因批评中共政权而激怒了中共。
+当年习近平在墨西哥说，“我一不输出革命二不输出贫穷。”你知道这话现在听起来好不好玩？你觉得这个冬奥会现在说起来搞不搞笑？就像咱国内的战友啊，转了200多万美元，买完喜币，现在赚了几十万美元了。还说，“七哥，我从来没有现在这么痛快过。我真的觉得我的孩子未来可能是因为我这个钱能活下去。我过去那么多年，就没摸过钱，没感受过钱的快乐。”财富的自由和财富的体验感是一个人人生价值最重要的，中国当官的只贪钱，你见他花过钱吗？有几个花钱的。中国的明星都是大量地搞钱，你见几个享受财富的？中国的农民就根本连钱的味儿都摸不着是吧？整个中国有人知道钱的感觉吗？你知道钱是干啥的吗？你知道钱是体现你生命价值的吗？你知道钱是你劳动的结果吗？你知道钱都让你买来快乐让你表达感情的吗？你知道钱能让你没虱子、让你穿上棉袄吗？你都忘了，钱就是炫耀的工具，钱就是让你安抚的工具，叫精神安慰剂。
 
-从 2018 年到去年 1 月政府结束，蓬佩奥在当时的前总统特朗普手下任职。
+资料来源：[2022年2月20日 文贵大直播](https://gettr.com/streaming/ptgw8b5f32)
 
-台湾外交部表示，蓬佩奥夫妇将于3月3日至5日访问台湾，并会见外交部长吴钊燮，并在智库发表演讲。
+发布：tianzhihuan
 
-外交部在一份声明中说：“前国务卿蓬佩奥是台湾的长期坚定朋友，在任期间为促进台美关系做出了突出贡献。他的访问显示了美国的两党对台湾 “坚如磐石”的支持和密切的台美友谊。”
-
-尽管台美缺乏正式的外交关系，特朗普政府还是给予了台湾强有力的支持，包括高调的军售和美国高级官员访问台北。
-
-蓬佩奥对共产党的攻击尤其激怒了北京。过去两年，中共加大了对台湾的军事和外交压力，试图迫使台湾接受其主权。
-
-台湾政府表示，台湾希望和平，但如果受到攻击，将会采取自卫，只有岛内人民有权决定他们的未来。
-
-新闻来源：[Mike Pompeo, who riled China while in office, to visit Taiwan](https://www.reuters.com/world/asia-pacific/mike-pompeo-who-riled-china-while-office-visit-taiwan-2022-02-21/?taid=621347ba56a8c40001917d00&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

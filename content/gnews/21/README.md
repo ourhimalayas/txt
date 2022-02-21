@@ -2,28 +2,18 @@
 ---
 
 
-## 灭共小诗
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2040884/)
+## 餐厅对接Hpay 你开店我收钱
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2040958/)
 
-撰稿：东京樱花团/ Milescool
-![](https://assets.gnews.org/wp-content/uploads/2022/02/灭共诗.png)
-在中我是中國人
-
-在美我是美國人
-
-中西廣告溢出水
-
-須是花樣年華醉
-
-收兩家茶禮不對
-
-母親平路亦踏碎
+撰稿：东京樱花团/知即是心 于虎年立春
+![](https://assets.gnews.org/wp-content/uploads/2022/02/点线面101系统推广Hpay支付1.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/餐厅对接Hpay-你开店我收钱1.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/餐厅对接Hpay-你开店我收钱2.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/餐厅对接Hpay-你开店我收钱3.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/餐厅对接Hpay-你开店我收钱4.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/餐厅对接Hpay-你开店我收钱5.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/餐厅对接Hpay-你开店我收钱6.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/餐厅对接Hpay-你开店我收钱7.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/餐厅对接Hpay-你开店我收钱8.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/餐厅对接Hpay-你开店我收钱9.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/餐厅对接Hpay-你开店我收钱10.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/餐厅对接Hpay-你开店我收钱11.png)
 
 消息来源：
 
-盖特链接：[https://gettr.com/post/puonm3cde9](https://gettr.com/post/puonm3cde9)
+盖特：[https://gettr.com/post/ptcjnh23cf](https://gettr.com/post/ptcjnh23cf)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/灭共小诗2.png)
+[https://gettr.com/post/ptc1nh0e3f](https://gettr.com/post/ptc1nh0e3f)
 
 *图片：东京樱花团/夏目&山竹
 编辑：东京樱花团/知了知了

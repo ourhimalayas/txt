@@ -2,22 +2,31 @@
 ---
 
 
-## 雅典娜时报-第211期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2040862/)
+## 有声｜内蒙古呼和浩特疫情多点散发 蔓延至包头市
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2040919/)
 
-#### 《雅典娜时报》汇聚全球新闻时事
+**By:秘翻新闻**
 
-#### 编辑：精灵蓝
-排版：小蚂蚁614
-![圖片](https://media.discordapp.net/attachments/825592691433668612/945173369404424292/155.png?width=812&amp;height=1209)![圖片](https://media.discordapp.net/attachments/825592691433668612/945173370054524958/155_1.png?width=812&amp;height=1209)
-*发布：陶子*
+**2022-02-21**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/7CE4321A-240E-4823-BDB6-57369DD27B91.jpeg)图片源自:新唐人
+据[《新唐人》](https://www.ntdtv.com/gb/2022/02/20/a103352954.html)北京时间2月21日报道，内蒙古呼和浩特市爆发的疫情，已经蔓延到包头市。民众在零下十度冒雪排队做核酸检测，并且对当地的物资和人力缺乏表示担忧。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+视频显示，呼和浩特市内蒙古国际会展中心架起了核酸检测采样点，多辆大巴连夜到各小区拉人隔离。居民冒着严寒排队做检测核酸。
 
+呼和浩特市武川县宾馆业者表示，当地的酒店都被征用，做为隔离点了。武川县一名宾馆从业者表示，现在武川的13家酒店都不能开放，因为这些酒店被用来隔离。
+
+据报道，此轮疫情感染的是德尔塔变种病毒，根据官方通报，8号在呼和浩特市新城区有2场婚宴，加剧了疫情扩散。病毒至少在当地隐匿了8到10天，包括武川县、土左旗和林格尔县，及市区都出现病例，呈现了“多点爆发”。
+
+包头市在17号开始出现确诊病例。有人实地拍摄，在包头市区开始全民集中做核酸检测。
+
+有网友表示，呼和浩特市为三线城市，医疗卫生条件有限，目前基层医务人员匮乏，如果疫情继续扩散，还会加剧物资短缺。
+
+（ 秘翻新闻 二丫编辑报道 ）
+
+发布:星星
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMAGE-2022-02-19-171240.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
