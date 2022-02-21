@@ -2,41 +2,29 @@
 ---
 
 
-## 美国病理学家：新冠病毒疫苗会对器官造成灾难性损害
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2041134/)
+## 有声｜拜登准备随时就乌克兰问题与普京展开会谈
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2041170/)
 
-翻译/编辑：小红帽
+By:**秘翻新闻**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/2-81.png)图片来源： AP NEWS
+**2022-02-21**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/10-22.29.43.png)图片来源 路透社
+《路透社》2月21日报道，美国东部时间周日晚间，白宫在一份声明中表示，美国总统拜登和俄罗斯总统普京在原则上同意就乌克兰问题举行峰会。白宫还表示，如果俄罗斯选择战争，美国也准备好了迅速而严重的后果。
 
+此前一周，俄罗斯在乌克兰边境集结军事力量，导致紧张局势加剧。俄罗斯军队自去年年底以来一直在邻国周边集结，西方国家称这是入侵的前奏。
 
-根据自然新闻2月20日报道，病理学家瑞恩-科尔（Ryan Cole）博士在2021年7月的医疗行业峰会（White Coat Summit）上曾分享新冠病毒 (COVID-19) 疫苗的危害。在德克萨斯州组织的美国前线医生会议上，他透露新冠病毒疫苗会对人体器官造成灾难性损害。
+法国总统马克龙办公室在周一的一份声明中表示，他向两国领导人建议，就“欧洲的安全和战略稳定”举行峰会。此次峰会是在马克龙、拜登、普京和英国首相鲍里斯·约翰逊进行电话交谈后宣布的。
 
-科尔详细阐述了用作新冠病毒疫苗主要成分的SARS-CoV-2刺突蛋白的情况。
+报道称，马克龙办公室和白宫表示，峰会的实质内容将由美国国务卿布林肯和俄罗斯外长拉夫罗夫，在2月24日举行的会谈中确定。
 
-“我们让一个基因序列进入人体，该序列进入我们的三角肌，在那里我们被告知它有一个小的锚定蛋白。一旦它被翻译并形成一个小蛋白质，它就会在你的细胞表面并停留在那里。然而，**这种刺突蛋白不仅仅停留在三角肌中。它在你的血液中循环并到达身体的多个器官”。”**
+新闻来源 [**https://www.reuters.com/world/europe/ukraine-temporarily-closes-checkpoint-donbass-due-shelling-2022-02-20/**](https://www.reuters.com/world/europe/ukraine-temporarily-closes-checkpoint-donbass-due-shelling-2022-02-20/)
 
-科尔引用了对实验动物进行的研究，这些研究都涉及将SARS-CoV-2刺突蛋白注射到动物的体内。**被注射的动物与新冠病毒患者的呼吸系统、心血管系统和神经系统中存在相同的疾病。**
+秘翻新闻 冰糖葫芦喵编译 报道
 
-科尔还分享了三个器官被刺突蛋白损坏的例子。受刺突蛋白影响的肺细胞由于过度炎症而变成紫色和蓝色——这是由刺突蛋白与肺中的ACE-2受体结合引起的。**“那是炎症反应，你的免疫系统攻击你自己的身体”。**
+发布 : 恩典
 
-“**除了肺部，刺突蛋白还可以穿过血脑屏障，破坏大脑中的血管并使其发炎。**你从新冠病毒患者那里听说过脑雾吧？你也在接种新冠病毒疫苗后的病人中听说过脑雾。”
-
-此外，**科尔指出刺突蛋白如何对心脏产生负面影响——这导致注射该疫苗的年轻美国人的心脏炎症增加。 **“心包是围绕心脏的囊。一旦心脏受损，心脏不会自行愈合。心脏细胞一旦受损，就会永远受损。心脏细胞受损后，不会用另一个心脏细胞代替，而是用一个疤痕来代替。”
-
-“我们想给儿童注射新冠病毒疫苗，但是我们看到社会上心肌炎的发病率增加了大约200倍吗？我们要给孩子注射毒素并毁掉他们的心脏吗？我们需要立即停止这种疯狂的行为”。科尔强调。
-
-新闻链接：[Dr. Ryan Cole: Covid vaccines cause CATASTROPHIC damage to organs](https://www.naturalnews.com/2022-02-20-covid-vaccines-cause-catastrophic-damage-to-organs.html)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMAGE-2021-12-13-113746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

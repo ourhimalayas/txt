@@ -3,25 +3,26 @@
 
 
 ## 灭共小诗
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2040916/)
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2041007/)
 
-撰稿：东京樱花团/ Milescool
+撰稿：东京樱花团/ guoqianglun（過墙論）
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/灭共诗.png)
-流氓无赖土匪窝，
+病毒本是贼自放，
 
-满口仁义缺道德。
+红魔造假妄赖帳。
 
-男盗女娼中共国，
+爆料革命揭真相，
 
-猪毛周江习特勒。
+中共已经显死样！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/灭共小诗3.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/灭共小诗.png)
 
 消息来源：
 
-盖特链接：[https://gettr.com/post/puvqs1691f](https://gettr.com/post/puvqs1691f)
+盖特：[https://gettr.com/post/puolj23139](https://gettr.com/post/puolj23139)
 
-*编辑：东京樱花团/知了知了
+*图片：东京樱花团/夏目&山竹
+校对：东京樱花团/知了知了
 发布：东京樱花团/老黑*
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
