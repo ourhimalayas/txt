@@ -2,20 +2,33 @@
 ---
 
 
-## 文贵大直播 2/20 俄乌战争已经打响 背后根本无关国家民族
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2037149/)
+## 澳洲国防部称澳巡逻机遭中共国海军舰艇激光照射
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2037875/)
 
-撰稿：回响 【秘翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2022/02/snapshot-6.jpg)图片来源 GTV
-俄乌战争危机愈演愈烈，举世瞩目，然而谁知道习近平和普京曾有2小时密谈？谁知道战争已在三天前打响？
+作者：新西兰伊甸农场 – 玫瑰
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+2月19日，澳大利亚国防部发表声明指出，澳大利亚国防军一架海上巡逻机2月17日在该国以北飞行时，遭到中共海军舰艇的激光照射。这种行为可能危及生命。澳大利亚对中共国这种不专业和不安全的军事操作表示强烈谴责。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-45.jpg)
+据澳大利亚广播公司的一份报告，2019年，中共国海军舰船就曾经对飞越南中国海上空的澳大利亚飞行员发起过一系列激光袭击。
 
-2月20日文贵大直播，身在美国的爆料革命发起人郭文贵先生惊爆：在北京的习普密谈竟然使用翻译器！并且断言台湾近日很快就会有动静。
+评论人士称，中共在长时间对台湾进行骚扰、恐吓之后，目前一方面秘密部署攻台方略，一方面又用这种卑劣手段恐吓、挑衅澳大利亚的海军力量，大概是试图威胁澳大利亚乃至所有西方挺台的国家，不要轻易干预中共所谓“武力统一台湾”的恶行。
 
-郭先生是揭示乌克兰和台湾战事奥秘的第一人。他多次分析中俄、俄乌、台湾之间甚至和美欧政治间复杂的角力博弈关系。此次，他谈笑风生地告诉公众：战争的背后其实根本是当权者的个人安危，和国家利益、民族利益没有丝毫关系。
+参考链接：[澳洲国防部称澳巡逻机遭中共国海军舰艇激光照射](https://www.dw.com/zh/%E6%BE%B3%E5%9B%BD%E9%98%B2%E9%83%A8%E6%BE%B3%E5%B7%A1%E9%80%BB%E6%9C%BA%E9%81%AD%E5%88%B0%E4%B8%AD%E5%9B%BD%E6%B5%B7%E5%86%9B%E8%88%B0%E8%89%87%E6%BF%80%E5%85%89%E7%85%A7%E5%B0%84/a-60840513)
 
-乌克兰更是不幸，成为强人政治的玩物，无异于俄罗斯的“铁链女”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
-【来源链接】https://gtv.org/broadcast/watch/62123b3508ba8a07b19fce63
+总编：飞虹
+编辑：飞虹
+校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

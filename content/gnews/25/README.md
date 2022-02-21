@@ -2,21 +2,42 @@
 ---
 
 
-## 餐厅对接Hpay 你开店我收钱
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2040958/)
+## 现代样板戏
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2041048/)
 
-撰稿：东京樱花团/知即是心 于虎年立春
-![](https://assets.gnews.org/wp-content/uploads/2022/02/点线面101系统推广Hpay支付1.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/餐厅对接Hpay-你开店我收钱1.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/餐厅对接Hpay-你开店我收钱2.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/餐厅对接Hpay-你开店我收钱3.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/餐厅对接Hpay-你开店我收钱4.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/餐厅对接Hpay-你开店我收钱5.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/餐厅对接Hpay-你开店我收钱6.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/餐厅对接Hpay-你开店我收钱7.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/餐厅对接Hpay-你开店我收钱8.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/餐厅对接Hpay-你开店我收钱9.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/餐厅对接Hpay-你开店我收钱10.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/餐厅对接Hpay-你开店我收钱11.png)
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/灭共诗.png)
+奶奶～ 您听！我！说！
+
+孙女我护照～～两本握！
+
+吃完美国～孝中国！
+
+中共说 可以给我特别政策～
+
+可对我要求也特别多～
+
+吹完～炸鸡～
+
+要把彭帅说
+
+其中的奥妙～嗷嗷～～
+
+未来的我！
+
+罪责难脱！
+
+这里的官员都一样
+
+都有一～～颗！歹～毒的心～～～
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/现代样板戏.png)
 
 消息来源：
 
-盖特：[https://gettr.com/post/ptcjnh23cf](https://gettr.com/post/ptcjnh23cf)
+盖特：[https://gettr.com/post/pukt5tab67](https://gettr.com/post/pukt5tab67)
 
-[https://gettr.com/post/ptc1nh0e3f](https://gettr.com/post/ptc1nh0e3f)
-
-*图片：东京樱花团/夏目&山竹
-编辑：东京樱花团/知了知了
+*校对：东京樱花团/知了知了
 发布：东京樱花团/老黑*
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  

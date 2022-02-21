@@ -2,32 +2,28 @@
 ---
 
 
-## 躺平币将首先惠顾爆料革命战友
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2035379/)
+## 渥太华抓捕了100名“为自由护航”组织者
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2036214/)
 
-作者：纽约磐石农场 在远方
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-在2月18日的大直播中，郭文贵先生透露，即将在今年六月上市的躺平币，将首先保障爆料革命战友。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-20-at-9.49.20-PM.png)
-躺平币将分为几轮发行，在政策上将首先保证向爆料革命战友倾斜，价格一定最便宜。郭先生告诉投资机构，所有的义工、法治基金捐款者、GClubs会员、GTV投资者和拥有喜币的战友，必须优先保障其利益，其中以法治基金捐款者为第一考量。
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-306.jpg)
+图片来源： www.iask.ca
+零对冲网2月19日报道，渥太华警察抓捕了100名“为自由护航”抗议组织者，包括塔玛拉·里奇，帕特·金和克里斯·巴勃，他们于周五被捕，周六首次面对法官，他们被一系列最轻指控传唤，包括指导恶作剧，指导服从法庭和堵住警察。
 
-郭先生介绍，躺平币第一轮基本是送给义工战友的，尤其是帮助国内战友转款的义工。在躺平币的给予上，要跟法制基金捐款的战友持平，其次就是推广HPay的战友，GClubs会员和GTV投资者。
+警察周五采用一系列进攻性技术冲散抗议者，渥太华警察否认他们用催泪瓦斯，相反，他们说是抗议者用汽油对付他们。
 
-参考资料：[20220218文贵大直播：躺平币前几波最便宜的一定是属于战友的](https://gnews.org/zh-hans/2030480/)
+法官让巴勃支付10万债券以保释，他目前没有在公众面前露面，而金和里奇和其他人周六出现在法院，对巴勃的保释金最高，因为指控他堵住警察，在所有指控中这个属于最重的指控。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-3.png)
+根据周四安省法院规定，金，里奇和其他组织者的银行账号暂时被冻结，包括比特币和其他虚拟币。
 
-编辑：静言
-总编：Zion文恩
-校正/发稿：我不在这里
+直到周六早些时候，已有21辆车子被拖走，在周五的警察行动中，被录下一位老妇人警察的马踩踏。曾有传言说老妇人已死亡，目前还不明确。在另一段录像中显示警察用枪柄击打抗议者的脸。同时，今天联邦议员开始辩论是否可以应用紧急法对付抗议者。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+##### 新闻来源： [Ottawa Arrests Top 100 As “Freedom Convoy” Organizers Face Judge For First Time](https://www.zerohedge.com/markets/ottawa-arrests-top-100-freedom-convoy-organizers-face-judge-first-time)
+
+#  
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
