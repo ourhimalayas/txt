@@ -2,29 +2,22 @@
 ---
 
 
-## 有声｜徐州八孩母案管控升级 网络维稳正在进行中
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2040807/)
+## 雅典娜时报-第211期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2040862/)
 
-**By:秘翻新闻**
+#### 《雅典娜时报》汇聚全球新闻时事
 
-**2022-02-21**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/22224444444.jpg)
-据[《新唐人》](https://www.ntdtv.com/gb/2022/02/20/a103352934.html)2月21日消息，中共江苏省官方组建的调查组接手徐州“铁链女”案后，网络言论管控立即升级，热心关注此案的网友纷纷受到施压和威胁，徐州丰县董集村已被严密封锁。
+#### 编辑：精灵蓝
+排版：小蚂蚁614
+![圖片](https://media.discordapp.net/attachments/825592691433668612/945173369404424292/155.png?width=812&amp;height=1209)![圖片](https://media.discordapp.net/attachments/825592691433668612/945173370054524958/155_1.png?width=812&amp;height=1209)
+*发布：陶子*
 
-据报道，中共国徐州“铁链女事件”从1月底在网络上曝光以来持续发酵，不仅在国内引发网民的广泛关注，也已引起国际社会的关注，被欧美多国的主流媒体报导。
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-在海内外探究“铁链女”真实身份与对徐州、丰县官方谴责的声浪日益高涨之际，虽然江苏省官方宣布成立专案调查组，然而，外界发现网络管控明显升级，江苏省的专案组接手此案后，首先是封杀与案件相关的资讯向社会传递的渠道，打压并试图止息任何对此案发出的质疑与对公权力的诘问。
-
-不仅，在网络社交平台的热搜榜上被撤下，而且，全国各地开始对发布与此案有关的“敏感信息”的网民封帖抓人。
-
-中共的一贯为了维稳的高压噤声手段再次起到了作用，但是防民之口甚于防川。让人民永远沉默下去是不可能的。
-
-（ 秘翻新闻 二丫编辑报道 ）
-
-发布:星星
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMAGE-2022-02-19-171240.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
