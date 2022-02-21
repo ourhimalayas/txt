@@ -2,8 +2,8 @@
 ---
 
 
-## 乌克兰是美欧与中俄较量的一张牌
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2038684/)
+## 俄取乌克兰是习普独裁政治利益的需要
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2038741/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
