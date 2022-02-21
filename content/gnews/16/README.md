@@ -2,29 +2,27 @@
 ---
 
 
-## 有声|美国汉堡价格超过了生活成本
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2039296/)
+## 乌克兰总统泽连斯基要求制裁俄罗斯
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2039428/)
 
-配音：香草山巡管部 – 格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-随着麦当劳的标志性巨无霸汉堡风靡全美，美国经济学人在1986年发布了巨无霸汉堡指数，该指数纳入了购买力平价的概念。巨无霸的价格包含着多种经济因素，包括劳动力、交通、食品和整体通胀成本，当然，这也成为了解当前通胀率和美元购买力的重要参考指数。多个国家都将汉堡视为衡量不同货币购买力的一些要素。
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-318.jpg)
+图片来源：sputniknews.cn
 
-目前，巨无霸汉堡价格上涨速度超过了其他几项经济指标，汉堡在美国均价为6.05美元，较过去十年增加了40% ，生活成本变得愈加昂贵。从2020年12月到2021年12月，通胀率高达7% ，仅去年巨无霸价格就上涨了7%。与巨无霸汉堡同时上涨快速的指数包括租金与二手车，而房价飙升指数更高，达到了107%。虽然美联储计划提高利率来压制近40年未见的通胀率，但曙光甚远。
+美国合众社2月20日报道，周六乌克兰总统弗拉基米尔·泽连斯基在拜登周五说他确信俄罗斯总统普京将会侵略乌克兰后，再次要求同盟国采取制裁措施。
 
-文字版原文：[美国汉堡价格超过了生活成本](https://gnews.org/zh-hans/2028478/)
+泽连斯基在慕尼黑安全会议上的发言，再次要求同盟国制裁俄罗斯，他同一天会见了法国总统马克龙，德国内阁大臣奥拉夫·舒尔茨以及美国副总统卡马拉·哈里斯，谈到了俄罗斯对于该国的危险。
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+而美国官员已经警告如果俄罗斯入侵乌克兰的话，美国的反应不是制裁问题，因为这样做会失去“威摄作用”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+泽连斯基在会议中说：” 当炮弹引起我们国家一片火海的时候，或者我们已经没有了边境，我们将没有了经济，或者我们的国家部分被占领后，制裁已经失去了意义。到那时再制裁有什么用？当你现在问我们你们能做什么，我们可以给你们罗列一系列事情”。他批评西方国家处理乌克兰危机的做法，尤其是宣布即将到来的入侵。乌克兰领导人说这样做损害国家经济，并且让乌克兰人民恐惧。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+泽连斯基说：“ 我们需要你们（同盟国）的特殊步骤和支持。”
+
+##### 新闻来源： [Zelensky again calls for sanctions on Russia](https://www.upi.com/Top_News/World-News/2022/02/19/germany-ukraine-president-zelensky-again-urges-sanctions-russia/6891645320560/)
+
+#  
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

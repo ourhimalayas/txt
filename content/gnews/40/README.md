@@ -2,28 +2,37 @@
 ---
 
 
-## 经济崩溃政治危机导致疫苗护照悬停
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2038689/)
+## 瑞典运动员谴责奥委会授权中共国举办冬奥会
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2039055/)
 
-加拿大温哥华扬帆农场：硫酸羟氯喹64
+作者：纽约香草山教育部 Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-45.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/4589.jpg) Photograph: Matsuo K/AFLO/REX/Shutterstock 
+来自瑞典的冬奥会金牌得主25岁的速滑运动员尼尔斯·范德波尔在北京活动回国后向媒体表示，国际奥委会决定在人权情况糟糕的中国举办冬奥会是非常不负责任的。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/a-15.png)图片来源：盖特
+人权团体呼吁各国政府和赞助商广泛抵制本次冬奥会。包括美国、英国和澳大利亚在内的几个国家都对这项赛事进行了外交抵制，同时人们一直非常关注参赛运动员的抗议情况。
 
+奥运会上的抗议行为通常违反国际奥委会制定的规则，将会面临惩罚。人权倡导者警告运动员在北京参加奥运会期间不要采取任何行动，包括发表声明，但建议他们回国后可以大声说出来。
 
-据2月18日文贵大直播报道，尽管欧美各国政府近期都被迫开始逐渐取消各项人身限制政策，但由于真正大规模的疫苗灾难尚未到来，新中国联邦人必须更加因此谨慎克制，切勿掉以轻心。
+随着冬奥赛事结束，越来越多的运动员回国，越来越多的冬奥会真相被他们传播出来，中共以假治国，无视人权，反人类的真面目必被曝光于天下。
 
-据悉，虽然随着疫情在多数西方国家的趋缓，各国目前表面上取消了包括强制接种，疫苗护照和配戴口罩等大部分防疫措施，并重新开放了学校和公共消费和娱乐场所。但实际上，经济崩溃，政治危机以及病毒感染性减弱才是背后的根本原因。
+新闻链接：[https://amp.theguardian.com/sport/2022/feb/18/chinas-human-rights-record-made-winter-olympics-irresponsible-says-swedish-athlete](https://amp.theguardian.com/sport/2022/feb/18/chinas-human-rights-record-made-winter-olympics-irresponsible-says-swedish-athlete)
 
-报道指出，爆料革命根据所掌握的准确情报，早就判断并告知世界，不仅疫苗护照和强制接种将在今年春季前后被各国停止，更重要的是，大规模的疫苗灾难将于2022年5月份开始真正显现并在全球爆发。
+编辑/校对/发稿：小小安
 
-对此，文贵先生告诫所有新中国联邦人，必须继续保持冷静和耐心，做好个人卫生防范，务必坚持到今年5月份之后，以避免成为排华危机和疫苗灾难的无辜牺牲品。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-40.jpg)
 
-* * *
+**更多资讯，更多关注**
 
-编辑撰稿，发稿：硫酸羟氯喹64
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-消息来源：[https://gettr.com/post/pvmifj8a40](https://gettr.com/post/pvmifj8a40)
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-44.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

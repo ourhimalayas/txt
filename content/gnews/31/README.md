@@ -2,8 +2,8 @@
 ---
 
 
-## 新中国联邦要建立我们自己的教育系统
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2039169/)
+## 为什么要脱，人性大解放
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2039253/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

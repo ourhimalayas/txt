@@ -2,37 +2,31 @@
 ---
 
 
-## 瑞典运动员谴责奥委会授权中共国举办冬奥会
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2039055/)
+## 【秘翻北美时评】美国CDC和辉瑞几乎同时发出血栓风险紧急警告
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2039206/)
 
-作者：纽约香草山教育部 Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-45.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/4589.jpg) Photograph: Matsuo K/AFLO/REX/Shutterstock 
-来自瑞典的冬奥会金牌得主25岁的速滑运动员尼尔斯·范德波尔在北京活动回国后向媒体表示，国际奥委会决定在人权情况糟糕的中国举办冬奥会是非常不负责任的。
+[BY:秘翻北美时评](秘翻北美时评)
 
-人权团体呼吁各国政府和赞助商广泛抵制本次冬奥会。包括美国、英国和澳大利亚在内的几个国家都对这项赛事进行了外交抵制，同时人们一直非常关注参赛运动员的抗议情况。
+***[2022-02-20](https://gtv.org/video/id=6212e83208ba8a07b1a099b2)***
 
-奥运会上的抗议行为通常违反国际奥委会制定的规则，将会面临惩罚。人权倡导者警告运动员在北京参加奥运会期间不要采取任何行动，包括发表声明，但建议他们回国后可以大声说出来。
+**今日主题**
 
-随着冬奥赛事结束，越来越多的运动员回国，越来越多的冬奥会真相被他们传播出来，中共以假治国，无视人权，反人类的真面目必被曝光于天下。
+**1.继丹麦、德国、奥地利和法国之后，斯洛文尼亚放开防疫政策**
 
-新闻链接：[https://amp.theguardian.com/sport/2022/feb/18/chinas-human-rights-record-made-winter-olympics-irresponsible-says-swedish-athlete](https://amp.theguardian.com/sport/2022/feb/18/chinas-human-rights-record-made-winter-olympics-irresponsible-says-swedish-athlete)
+**2.美国CDC和辉瑞几乎同时发出血栓风险紧急警告 **
 
-编辑/校对/发稿：小小安
+**3.脸书丑闻 受CDC指使宣传中共病毒虚假信息**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-40.jpg)
+**4.美驻联合国前任大使喊话谷爱凌 美国或中国你只能选一国**
 
-**更多资讯，更多关注**
+** 5.上海浦东人明抢小孩 警方不予立案**
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+🔗**GTV鏈接：**[https://gtv.org/video/id=6212e83208ba8a07b1a099b2](https://gtv.org/video/id=6212e83208ba8a07b1a099b2)
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+发布：陸柒陸捌
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-44.png)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMAGE-2022-02-19-171240.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
