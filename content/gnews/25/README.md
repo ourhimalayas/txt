@@ -2,22 +2,49 @@
 ---
 
 
-## 拜登总统和普京总统合意会晤 如果军事入侵则取消
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2039457/)
+## 研究证实低频辐射与中共病毒感染之间的联系
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2039490/)
 
-撰稿：东京樱花团/向海
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片4-3.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fichef.bbci.co.uk%2Fnews%2F640%2Fcpsprodpb%2FC52C%2Fproduction%2F_118667405_biden-putin_comp_reuters_hi067475365_hi066800424-2.jpg&amp;imgrefurl=https%3A%2F%2Fwww.bbc.com%2Fzhongwen%2Fsimp%2Fworld-57468885&amp;tbnid=qMDko1Ud33XHCM&amp;vet=12ahUKEwionYmz74_2AhW95XMBHZbtBowQMygCegUIARCZAQ..i&amp;docid=tlSOhIRi7sBTcM&amp;w=640&amp;h=360&amp;q=%E6%99%AE%E4%BA%AC%20%E6%8B%9C%E7%99%BB&amp;ved=2ahUKEwionYmz74_2AhW95XMBHZbtBowQMygCegUIARCZAQ)
-20日，美国总统拜登和俄罗斯总统普京原则上同意就乌克兰局势举行会晤。经法国总统马克龙磋商双方表示接受 。
+作者：香草山信息部 – 6zero4
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-59.png)
+最近，由鲁比克(Beverly Rubik)和布朗(Robert R. Brown)两位作者发表在《临床与转化医学研究杂志》上的一项最新研究论文强调了中共病毒(CCP Virus)感染症状与5G无线辐射之间的联系。
 
-美俄外长将于24日进行讨论和协调。 如果俄罗斯入侵乌克兰，这一预定将被取消。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-319.jpg)
 
-信息来源
+基于流行病学三因素：病原体，宿主和环境，该研究主要集中在加剧中共病毒感染的环境影响，尤其是来自无线通信系统的射频辐射，包括移动电话本身及其发射塔的射频、本地网络系统、Wi-Fi， 以及各种设备的低频无线通信辐射（WCR）如微波和毫米波，都在不同程度地制造体内毒性和细胞损伤。中共病毒疫情是在中共国武汉全市范围内实施5G无线通信后不久出现的，并迅速蔓延到全球，这初步证实了中共病毒感染与5G网络的统计相关性。
 
-[バイデン氏とプーチン氏、会談に原則合意　軍事侵攻なら取りやめ](https://news.yahoo.co.jp/articles/243cc322e1cf47068d17e2bc2945c1405ce5d686)
+鲁比克和布朗查阅了同行评议的有关WCR有害生物效应的科学文献，并透过生物物理学和病理生理学的交叉边界，确定了5G等WCR作为一种有毒的环境辅助因素导致中共病毒和福奇流感疫情的几种机制，因此提出了以下证据:
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+1） 引起红细胞的形态学改变，包括棘状红细胞，以及可导致血栓的红细胞叠连；
+2） 损害微循环，降低红细胞和血红蛋白水平，加重缺氧；
+3） 放大免疫系统功能障碍，包括免疫抑制、自身免疫紊乱和过度炎症反应；
+4） 增加细胞氧化应激和自由基的产生，导致血管损伤和脏器损伤；
+5） 增加细胞内对病毒进入、复制和释放至关重要的Ca2+(钙离子)，并促进感染途径；
+6） 加重心律失常和心脏疾病。
+
+尤其在导致中共病毒重疾方面，与暴露在5G环境下造成的不利影响密切相关，包括血液内的变化，氧化应激，免疫系统破坏与激活，细胞内钙离子的增加和心脏炎症。实验数据表明，WCR环境催生了中共病毒临床变化的机制，中共病毒感染和WCR环境在病理生物学上存在大量重叠，血栓与炎症之间也有重叠机制，氧化应激与红细胞形态变化、血栓、炎症和器官损伤有关。
+
+低频WCR已被发现会不同层次影响机体各个组织，从分子到细胞、生理、行为和心理层次，并系统性损害健康而导致癌症风险增加、内分泌紊乱、自由基生成增加、DNA损伤、生殖系统变异、学习和记忆缺陷以及神经失常等。
+
+国际非电离辐射防护委员会(ICNIRP)的一些科学文献也报道了由日常生活中越来越普遍的低频WCR引起的非热生物效应，即功率密度导致的细胞组织发热。虽然地球本身也在不停发射低频的自然射频，但因其频率太低，以至于我们的身体不会对它作出任何负面反应。
+
+文章仅代表作者本人观点，与Gnews无关
+
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-50.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,26 +2,34 @@
 ---
 
 
-## 乌克兰总统泽连斯基要求制裁俄罗斯
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2039428/)
+## 喜马拉雅币一周分析与总结（2月4日-2月20日）
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2039449/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-318.jpg)
-图片来源：sputniknews.cn
+作者：香草山金融部 – ILOVE战神
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+过去一周喜马拉雅币价格在45美元附近波动，平均日交易量约9万枚喜币。喜币上市以来总交易量约2870万枚 ，占今年总发行量的仅约2.87%。目前喜币交易在全球尚未完全开放，市场交易量较低，价格仍被严重低估。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1931.png)
+本周据郭文贵先生在大直播中透露，一个月内喜支付将推出新政策，包括喜贷款和喜抵押。喜交所也将发布重大的投资利好公告。喜交所还会很快会推出比特币和其它数字货币交易。即将推出的躺平币将独立于喜币运营，有自己独立的支付系统GettrPay（盖特支付），还会有自己独立的贷款系统。除此之外，躺平币可以在喜交所进行交易，喜币也可以在盖特平台上交易。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1932.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1935.png)
+郭先生还在直播和盖特中透露，已故的三度夺取F1世界冠军的巴西赛车手埃尔顿·塞纳曾经驾驶的迈凯伦福特 MP4/8A赛车最近通过喜币完成了交易，这笔数字货币交易将是深远影响数字货币与现实生活生产力进行公平交易的一个里程碑事件。另外喜联储还在与多家线上线下商城商谈合作，未来将会有多个G-Mall出现，而且还会有很多地方接受喜币买房。喜币将在流通领域开创数字货币的传奇，使人类经济活动回归到物物交换的本源，实现高效率、去中介化、零成本，而且没有地域限制的货币全球流通。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1933.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1934.png)
+参考链接：
+1、[https://himalaya.exchange/himalaya-pay](https://himalaya.exchange/himalaya-pay)
+2、[用喜币支付购买巴西车神塞纳战车是里程碑事件](https://gnews.org/zh-hans/2020727/)
 
-美国合众社2月20日报道，周六乌克兰总统弗拉基米尔·泽连斯基在拜登周五说他确信俄罗斯总统普京将会侵略乌克兰后，再次要求同盟国采取制裁措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-泽连斯基在慕尼黑安全会议上的发言，再次要求同盟国制裁俄罗斯，他同一天会见了法国总统马克龙，德国内阁大臣奥拉夫·舒尔茨以及美国副总统卡马拉·哈里斯，谈到了俄罗斯对于该国的危险。
+编辑/总编：飞虹
+校正/发稿：小野貓（文凱琳）
 
-而美国官员已经警告如果俄罗斯入侵乌克兰的话，美国的反应不是制裁问题，因为这样做会失去“威摄作用”。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-泽连斯基在会议中说：” 当炮弹引起我们国家一片火海的时候，或者我们已经没有了边境，我们将没有了经济，或者我们的国家部分被占领后，制裁已经失去了意义。到那时再制裁有什么用？当你现在问我们你们能做什么，我们可以给你们罗列一系列事情”。他批评西方国家处理乌克兰危机的做法，尤其是宣布即将到来的入侵。乌克兰领导人说这样做损害国家经济，并且让乌克兰人民恐惧。
-
-泽连斯基说：“ 我们需要你们（同盟国）的特殊步骤和支持。”
-
-##### 新闻来源： [Zelensky again calls for sanctions on Russia](https://www.upi.com/Top_News/World-News/2022/02/19/germany-ukraine-president-zelensky-again-urges-sanctions-russia/6891645320560/)
-
-#  
+![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-8.png)
 
  
 

@@ -2,26 +2,21 @@
 ---
 
 
-## 中日财经爆|中共国违背承诺 未购买更多缅因州龙虾
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2039603/)
+## 教育做好就有信仰
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2039634/)
 
-撰稿：东京樱花团/peterwong
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/中共国违背承诺-未购买更多缅因州龙虾.png)[图片来源](https://kknews.cc/zh-cn/world/6ae4p3q.html)
+*发布：陶子*
 
-美国缅因州国会领导人说，中共国未能根据前总统川普政府时期美中为缓解双方贸易战而达成的贸易协议的规定，购买更多的缅因州龙虾。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-2018年，缅因州的龙虾业受到中共国报复性关税的重创。即使在中共国承诺要增加购买2000亿美元的美国商品后，缅因州龙虾的出口仍未大幅度增加。
-
-根据“第一阶段贸易协议”，中共国承诺要在2017年基础上增加购买美国商品。但是根据缅因州的无党派参议员安格斯·金(Angus King)、民主党众议员平格里（Chellie Pingree ）和戈登（Jared Golden）写给美国贸易代表的一封信，中共国“购买缅因州的龙虾几乎没有超出2017年的水平”。他们敦促美国贸易代表戴琪“要求中共国对其购买承诺负责”。
-
-消息来源:
-
-[中国被指未能履行承诺 购买更多的缅因州龙虾](https://www.voachinese.com/a/china-accused-of-failing-to-buy-more-maine-lobster-20220219/6450968.html)
-
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
