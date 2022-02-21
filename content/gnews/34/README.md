@@ -2,32 +2,37 @@
 ---
 
 
-## 新中国联邦将确保司法媒体科学受监督的独立运行
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2042445/)
+## 冬奥会落幕 外国金牌运动员回到自由世界后谴责北京
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2042530/)
 
-作者：纽约磐石农场 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在2月18日的大直播中，郭文贵先生表示，新中国联邦将确保司法、媒体和科学的独立，正道主义将成为管理人类信仰的新方式。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-325.jpg)
-郭先生说，世界各个国家真疫苗的接种数量，与造成人员死亡的数量成正比。比尔-盖茨控制了世界90% 的软件使用，因此也控制了人类的话语权。美国正是由于媒体被政府控制，民众盲目相信政府主义和盲目崇拜科学主义，才导致了今天的疫苗大灾难。人类在付出巨大代价之后，必将会找到一种新的管理世界的方式。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Unknown-20.jpg)冬奥会落幕 外国金牌运动员回到自由世界后谴责北京 网络图片
+据美国之音2月21日报道，在封控严密的闭环下进行了16天的北京冬季奥运会20日降下帷幕，一些已经安全离境的外国运动员回到自由世界后，立即对北京主办本届冬奥会提出谴责。
 
-郭先生表示，未来人们必须在承担法律责任和受监督的情况下，保证言论自由。这将是新中国联邦正道主义最关键的一环。因此，新中国联邦的司法、科学和媒体，都要在受监督的情况下独立运作，这样才能保证信仰自由。
+在北京冬奥会获金的德国雪橇滑手娜塔莉·盖森伯格 (Natalie Geisenberger) 回国后对德国媒体说，她永远不会再去中共国。她说，“我去那里并不是因为我真的想去中共国，而是因为国际奥委会决定让北京主办奥运会。”
 
-参考链接：[2/18/2022 文贵直播: 正道主义将成为管理人类的新方式；新中国联邦将确保司法，媒体和科学的独立；言论自由必须要承担法律责任和接受监督；越落后的地区，假疫苗越多，死人越少，越发达的地方则反之](https://www.gettr.com/post/pvgx1j3e06)
+在前往北京前，盖森伯格就严厉批评国际奥委会将冬奥会主办权交给“人权记录恶劣”的中共国。到了北京后，她决定在人权问题上保持沉默。她2月8日在北京冬奥会期间说，“你必须小心自己在什么时候在哪里说什么话。我想许多人都是这么想的。在此地，我想你最好不要说太多。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+在北京冬奥会男子速滑比赛中夺得两枚金牌的瑞典选手尼尔斯∙范德普尔（Nils van der Poel）在前往北京时也表示不方便对中共国人权状况发表看法。他当时说，“我不认为让我去批评一个我即将进入的体系是特别的明智之举，如果我想活得长一点、而且有所建树的话。”
 
-总编: 文真
-编辑: Jack Li文阳    
-校正/发稿：Fei797
+完成比赛回国后，范德普尔说，国际奥委会将奥运会交给中共国这样“公然侵犯人权”的国家主办“极端不负责任”。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+中共利用各种高压手段在冬奥会期间严密监控各国运动员的一举一动，极力掩盖当局的恶劣人权问题，但中共越是极力掩盖就越激发自由世界的声讨和控诉，中共通过冬奥会让世界彻底看清了自己邪恶的嘴脸，丢尽了所有中国人的脸面，一句“永远不会再去中共国”就是自由世界对中共和中国愚昧民众惩罚的开始。
+
+新闻参考链接： [https://www.voachinese.com/a/gold-medalists-speak-out-against-beijing-olympics-20220221/6451905.html](https://www.voachinese.com/a/gold-medalists-speak-out-against-beijing-olympics-20220221/6451905.html)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

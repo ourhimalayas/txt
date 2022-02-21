@@ -2,33 +2,37 @@
 ---
 
 
-## 视频|中共冬奥会闭幕式比开幕式更冷清
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2042823/)
+## 有声|疫情延烧致港首“选举”被迫延期
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2042918/)
 
-制作：香草山视频部
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+据台媒消息，因中共病毒疫情蔓延，当地时间2月18日晚间，香港行政长官林郑月娥宣布批准引用紧急条例，将行政长官“选举”推迟至5月8日举行。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E6%88%AA%E5%B1%8F2022-02-20-%E4%B8%8A%E5%8D%889.22.46.png)
+据悉，香港18日新增3629例，初步阳性案例7600例，这已是连续第三天，两项数字合计超过一万例。
 
-在即将于2月20日举行的中共冬奥会闭幕式之前，中共罕见地没有进行大肆报道，预计闭幕式比开幕式将更加冷清。
+林郑表示，目前香港疫情是两年来最严重的时期，形势相当危急，港共政府要集中力量应对。延期选举也是中共国家主席习近平授意的，看来港共必须将控制疫情作为当前压倒一切的政治任务来做。
 
-据新中国联邦战友总结中共开幕式的数据，可见一斑。
 
-首先，中共于1月28日公布的出席名单中，仅25国在列，其中8国无运动员参赛，13国仅派出10名以下运动员，这两者占25国中的84%。
 
-其次，根据网上公开讯息，截至发稿时，25国中已经有19国领导人，在2月8日之前就已回自己国家。而时至今日，中共也没有公布参加冬奥会闭幕式的外国嘉宾名单。同时中共也未报道，是否会如同2008年闭幕式之前一样，举办国宴款待出席闭幕式宾客。
+文字版原文：[疫情延烧致港首“选举”被迫延期](https://gnews.org/zh-hans/2037125/)
 
-最后，对比开幕式前10天，中共就大肆宣扬其彩排多宏大以及演员的辛苦，而今离闭幕式仅剩不到一天了，根本见不到中共关于闭幕式彩排的任何描述。仅张艺谋在闭幕式前一天表示，闭幕式将依旧一切从简。
-
-这一切如同郭文贵先生在中共冬奥会之后反复强调的那样，中共冬奥会将开成冬眠会，而这场冬眠会也实质上不会有闭幕式。因为整场下来几乎没有外国来宾，中共自嗨过后，结尾亦会一片死寂。
-
-发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
-
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

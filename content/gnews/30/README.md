@@ -2,37 +2,42 @@
 ---
 
 
-## 冬奥会落幕 外国金牌运动员回到自由世界后谴责北京
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2042530/)
+## 谷爱凌事件对华人的负面影响深远
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2042586/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Unknown-20.jpg)冬奥会落幕 外国金牌运动员回到自由世界后谴责北京 网络图片
-据美国之音2月21日报道，在封控严密的闭环下进行了16天的北京冬季奥运会20日降下帷幕，一些已经安全离境的外国运动员回到自由世界后，立即对北京主办本届冬奥会提出谴责。
+作者：纽约香草山农场 – 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在2月18日大直播中，郭文贵先生透露，谷爱凌身份造假事件对海外华人造成严重的负面影响，引发了西方国家对华人的不信任。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-90.jpg)
+郭先生揭露，中共在十八大以前曾计划推出“华裔卡”，目的是企图将所有海外华人绑架到中共的战车之上。习近平掌权后，彻底停止了该计划，不允许海外华人拥有双重国籍。目前，中共大肆宣传“华裔卡”，是在集一国之力，掩盖谷爱凌的身份造假。
 
-在北京冬奥会获金的德国雪橇滑手娜塔莉·盖森伯格 (Natalie Geisenberger) 回国后对德国媒体说，她永远不会再去中共国。她说，“我去那里并不是因为我真的想去中共国，而是因为国际奥委会决定让北京主办奥运会。”
+据郭先生透露，美国议员已经着手推动立法，要求：
 
-在前往北京前，盖森伯格就严厉批评国际奥委会将冬奥会主办权交给“人权记录恶劣”的中共国。到了北京后，她决定在人权问题上保持沉默。她2月8日在北京冬奥会期间说，“你必须小心自己在什么时候在哪里说什么话。我想许多人都是这么想的。在此地，我想你最好不要说太多。”
+第一，美国华人必须对国籍做出选择，即美国籍或中共国籍，二选一。
 
-在北京冬奥会男子速滑比赛中夺得两枚金牌的瑞典选手尼尔斯∙范德普尔（Nils van der Poel）在前往北京时也表示不方便对中共国人权状况发表看法。他当时说，“我不认为让我去批评一个我即将进入的体系是特别的明智之举，如果我想活得长一点、而且有所建树的话。”
+第二，对于曾在中共任职的人士，退休后如果到美国或者其他西方国家，必须如实公报退休收入。
 
-完成比赛回国后，范德普尔说，国际奥委会将奥运会交给中共国这样“公然侵犯人权”的国家主办“极端不负责任”。
+第三，美国华人公布其家庭成员是否是中共党员。
 
-中共利用各种高压手段在冬奥会期间严密监控各国运动员的一举一动，极力掩盖当局的恶劣人权问题，但中共越是极力掩盖就越激发自由世界的声讨和控诉，中共通过冬奥会让世界彻底看清了自己邪恶的嘴脸，丢尽了所有中国人的脸面，一句“永远不会再去中共国”就是自由世界对中共和中国愚昧民众惩罚的开始。
+第四，美国税务局将针对美国人在中共国收入，推出特别申报计划。
 
-新闻参考链接： [https://www.voachinese.com/a/gold-medalists-speak-out-against-beijing-olympics-20220221/6451905.html](https://www.voachinese.com/a/gold-medalists-speak-out-against-beijing-olympics-20220221/6451905.html)
+郭先生认为，谷爱凌事件极大破坏了海外华人的生存环境，甚至可能引发海外排华。欧洲各国、英国、日本也有计划跟进美国的司法举措，推出针对华人的立法。
 
-* * *
+参考链接：[**2022年2月18日 文贵大直播：乌克兰俄罗斯危机各执一词；Omicron病毒解禁众说纷纭**](https://gettr.com/streaming/pvffqc88e7)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
+总编: 文真
+编辑: Jack Li文阳
+校正/发稿：Fei797
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

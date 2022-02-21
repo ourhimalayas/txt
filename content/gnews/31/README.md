@@ -2,28 +2,23 @@
 ---
 
 
-## 俄若入侵乌克兰 英国将对其采取最严厉的经济制裁
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2042494/)
+## 奥地利强制防疫政策将出现大逆转
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2042581/)
 
-**撰稿：日本东京方舟农场  幽蘭自得**
+采编/编译撰稿： 薇文                   校对编辑：硫酸羟氯喹64
 
-2月20日，英国首相约翰逊表示，如果俄罗斯入侵乌克兰，英国将对俄罗斯采取最严厉的经济制裁，制裁目标不仅针对普京及其同僚，还包括俄罗斯最具有战略重要性的公司和组织。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-225.png)图为英国首相约翰逊和德国总理朔尔茨在慕尼黑安全会议上合影（图片来自路透社）
-据《美国之音》报道，约翰逊20日在接受BBC采访时表示，英国将停止俄罗斯公司在英国市场上融资，甚至与美国一起阻止俄罗斯以英镑和美元进行贸易交易。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/GettyImages-1238527725-e1645026425755-640x480-1.jpg)图片来源：GEORG HOCHMUTH/APA/AFP via Getty Images
 
-此前，英国议会15日已通过决议，如果俄罗斯入侵乌克兰，英国将扩大对俄罗斯企业和个人的制裁。
 
-另外，约翰逊19日在慕尼黑安全会议上还强调，如果西方国家没有履行承诺支持乌克兰的独立，这将对全球带来损害的后果，包括对台湾。
+据美国[布莱巴特新闻]2月17日报道，奥地利的 “新冠病毒”种族隔离政策，将发生惊天大逆转。该国政府当天宣布将取消绝大部分疫情封锁措施，包括限制未接种疫苗者人身自由的疫苗护照规定。
 
-然而，新中国联邦创始人郭文贵先生在其20日的大直播中一语道破欧美等西方国家对乌克兰的所谓的支持。郭先生还指出，当导弹落在乌克兰的头顶上，欧美国家再制裁俄罗斯，那就已经晚了，这个制裁也就没有任何意义。因此这些政府的支持并没有实际意义，最后乌克兰就沦为欧美与俄罗斯之间的较量战场，成为牺牲品。
+报道称，以上决定是当局根据[疫情专家委员会]对现行政策的违宪性和非必要性作出分析之后作出的。并因此规定：从2月19日起，未接种者和病毒感染康复者，在病毒测试阴性后可以进入酒吧、餐馆等公共消费和娱乐场所。而从3月5日起，将完全取消疫苗通行证。同时，疫情期间绝大部分的封锁命令，包括对酒店业的宵禁也将被废除。
 
-参考链接：
-1.[https://www.voachinese.com/a/britain-would-impose-toughest-sanctions-against-russia-if-invading-ukraine-20220220/6451271.html](https://www.voachinese.com/a/britain-would-impose-toughest-sanctions-against-russia-if-invading-ukraine-20220220/6451271.html)
-2.[https://gtv.org/video/id=62123b3508ba8a07b19fce62](https://gtv.org/video/id=62123b3508ba8a07b19fce62)
+以上报道再次验证了爆料革命在此之前就准确无误地判断指出：世界各国，特别是欧美国家政府将迫于经济崩溃，政治危机和病毒减弱等原因，必将在今年五月份之前取消强制接种，疫苗护照和大多数疫情限制。
 
-素材采编：幽蘭自得
-编辑：老孙
-发布：爱放飞
+发稿：文明(添草灭共)
+
+新闻来源：[Massive U-Turn: Austria to Repeal Almost All ‘Corona Apartheid’ Rules Targeting Unvaxxed](https://www.breitbart.com/europe/2022/02/17/massive-u-turn-austria-to-repeal-almost-all-corona-apartheid-rules-targeting-unvaxxed/)
 
  
 
