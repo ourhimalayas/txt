@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/21/2022 6:07 AM (UTC)`
+
+2/20/2022 Miles Guo: What did Putin and Xi talk about during their secret meeting? All dictators are afraid of death, and both Xi and Putin are in poor health. How did they collude with each other in terms of money and internal politics?<br/><br/>2/20/2022 文贵直播：普习二人密会到底谈了啥？所有的独裁者都怕死，而普习二人身体也都不好，他俩在钱和内部政治上是咋勾兑的？<br/>
+![img](https://media.gettr.com/group42/getter/2022/02/21/06/d7162a81-b7de-cb02-84b0-385f8c2682b0/out.jpg)
+
+---
+
 `@miles 2/21/2022 3:39 AM (UTC)`
 
 2/20/2022 Miles Guo: Upon taking office, Xi formed a political and military alliance with Putin. After that, the CCP signed huge contracts to purchase goods from Russia, with the trade volume between the two countries skyrocketing, and they have formed an all-weather strategic brotherhood partnership in the military. Putin agrees that Asia belongs to Xi.<br/><br/>2/20/2022 文贵直播：习一上任就跟普京结成了政治军事同盟，此后中共便跟俄罗斯签下巨额订单，两国贸易额飙升，并在军事上形成了全天候战略伙伴关系：普大帝已认可亚洲就是习的<br/>
@@ -149,15 +156,6 @@ Who's Miles Guo Episode 3 《Mile‘s Determination to Take Down the CCP》<br/>
 
 2/18/2022 Miles Guo: The CCP wants to release the new virus, but it won’t be able to do so, and Xi Jinping may cause the CCP to suddenly collapse. The Peng Shuai incident is a heavy blow to the CCP. The chained woman incident has made Xi’s wife, Peng Liyuan, very unhappy, and Xi’s mom and family have had the biggest backlash. The chained woman incident has become a common problem of humanity.<br/><br/>2/18/2022 文贵直播：中共想放新毒却放不了，习近平正让中共猝死；彭帅事件对中共打击巨大；锁链女事件让彭丽媛相当不悦悦，反响最大的是习母和家人；锁链女事件已成为全人类共同的问题<br/>
 ![img](https://media.gettr.com/group19/getter/2022/02/19/03/f73d0a8e-cfcc-01b6-0349-22b9c60884ac/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@s7gril 2/16/2022 5:51 PM (UTC)`
-
-Live, Love, & Laugh ❤️
-![img](https://media.gettr.com/group17/gvision/2022/02/16/17/129bc908-c13a-64be-547b-56bc9216a00f/out.jpg)
 
 ---
 
