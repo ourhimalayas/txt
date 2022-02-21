@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@sean6 2/20/2022 4:36 PM (UTC)`
+
+战友做的爆料革命大事件乐高定格动画<br/>实在太生动了😂<br/>我最喜欢里面Hpay赚钱战友开超跑那段<br/>😂🤣🤩<br/>这两分多钟定格得摆几千个动作拍几千张照片吧👍👍👍👍👍
+![img](https://media.gettr.com/group49/getter/2022/02/20/16/ca79c250-bc04-1eb5-dde6-05fd4dec68ab/out.jpg)
+
+---
+
 `@miles 2/21/2022 2:56 PM (UTC)`
 
 2月21日：尊敬的战友们好中共国的化肥．农产品．以及粮食都在大涨价，这是为什么呢？所谓的最成功的北京冬奥会开完以后……中国人的生活有什么改变呢？世界形势巨变，为什么中国人又成了牺牲品呢？
@@ -149,13 +158,6 @@ Who's Miles Guo Episode 3 《Mile‘s Determination to Take Down the CCP》<br/>
 
 2/18/2022 Miles Guo: Whether to invade Taiwan or not, the world has determined that Xi had wanted to invade Taiwan, whereas Putin managed to divert attention on the Ukraine issue. Russia asked if the CCP would be kicked out of the SWIFT system after invading Taiwan, and the Americans nodded. The CCP has no place in the world political arena, while the Lao Baixing have to pay for it.<br/><br/>2/18/2022 文贵直播:  不管打不打台湾，全世界都认定习曾要打台湾，而普京在乌克兰问题上转移了注意力；俄罗斯问中共打台湾后会不会被踢出SWIFT系统，美国人点了头；中共在世界政坛毫无地位，而老百姓却要为它买单<br/>
 ![img](https://media.gettr.com/group16/getter/2022/02/19/22/5600f0bc-767c-a40a-becb-877c958a4c30/out.jpg)
-
----
-
-`@miles 2/19/2022 6:31 PM (UTC)`
-
-2月19号：新中国联邦的爆二代的气质，长相．正义的形象无可比拟！ <br/><br/>拜托，大家一定要看今天的真人真事太棒了。<br/><br/>https://gtv.org/broadcast/watch/62110d41b706176dd78d61f2
-![img](https://media.gettr.com/group9/getter/2022/02/19/18/926773cd-ea4c-a1c7-1367-2f1a709a3095/out.jpg)
 
 ---
 
