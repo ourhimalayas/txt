@@ -15,140 +15,140 @@
 
 ---
 
-### [2/21/2022 文贵盖特：中共体制内官员也知中共大势已去；俄美总统要会面，普京是否会弃习投美欧？](/content/gnews/1/README.md)
- ` 秘密翻译组-北美组`
-
-### [2月21日勿忘香港（图片1-4）](/content/gnews/2/README.md)
+### [2月21日勿忘香港（图片5-9）](/content/gnews/1/README.md)
  ` 波士顿五月花农场`
 
-### [G-EDU将开展线上线下教育 欢迎全球老师学生加入](/content/gnews/3/README.md)
- ` 焦點20分`
-
-### [习近平和普京之间必是有惊天的秘密 乌克兰和台湾是习 普用来要挟世界的筹码](/content/gnews/4/README.md)
- ` 焦點20分`
-
-### [科尔博士：不管政府如何表述，伊维菌素被证明对COVID有效](/content/gnews/5/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [北京在病毒检查和新的全球格局中闭幕冬眠会](/content/gnews/6/README.md)
+### [澳大利亚谴责中共国的“恐吓”行为](/content/gnews/2/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [一位加拿大警官呼吁警察同事不要参与镇压游行](/content/gnews/7/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [郭先生揭秘习近平 普京密会 可能讨论的内容](/content/gnews/8/README.md)
- ` 焦點20分`
-
-### [今日盖特大V推荐 — 拉希姆·卡萨姆 (Raheem Kassam)](/content/gnews/9/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [印媒WION：没人知道中共国有多少妇女被拐卖了](/content/gnews/10/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [克米迪亚之役助长了普金和习近平的政治野心 普金意图通过乌克兰之争控制欧洲](/content/gnews/11/README.md)
- ` 焦點20分`
-
-### [印媒报道锁链女事件，揭露中共国人口拐卖问题](/content/gnews/12/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中俄邪恶联盟的风险和影响](/content/gnews/13/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [蓬佩奥：乌克兰，台湾以及伊朗问题会同时爆发](/content/gnews/14/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [2022年慕尼黑安全会议上中共表示支持俄罗斯](/content/gnews/15/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [塔米·布鲁斯：特鲁多政府所做的一切都是为了控制](/content/gnews/16/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [美国卡车司机受到加拿大兄弟们的启发，向华盛顿特区进发](/content/gnews/17/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [伊丽莎白女王中共病毒检测呈阳性](/content/gnews/18/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [美国航空运输业志愿团体反对中共病毒疫苗强制接种政策](/content/gnews/19/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [台湾指责中共国利用奥运会推动“政治宣传”](/content/gnews/20/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [从健康小伙到十级伤残，新西兰人正被疫苗伤害唤醒](/content/gnews/21/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [2/20/2022 文贵直播：习普联手上演痞子政治，最终目的是通过夺取乌克兰和台湾，干掉美国和欧洲](/content/gnews/22/README.md)
+### [2/21/2022 文贵盖特：中共体制内官员也知中共大势已去；俄美总统要会面，普京是否会弃习投美欧？](/content/gnews/3/README.md)
  ` 秘密翻译组-北美组`
 
-### [美联储实施严格的职员交易限制](/content/gnews/23/README.md)
+### [利益 把柄 无知 色情 就是中共对内 对外的蓝金黄手段](/content/gnews/4/README.md)
+ ` 焦點20分`
+
+### [2月21日勿忘香港（图片1-4）](/content/gnews/5/README.md)
+ ` 波士顿五月花农场`
+
+### [G-EDU将开展线上线下教育 欢迎全球老师学生加入](/content/gnews/6/README.md)
+ ` 焦點20分`
+
+### [习近平和普京之间必是有惊天的秘密 乌克兰和台湾是习 普用来要挟世界的筹码](/content/gnews/7/README.md)
+ ` 焦點20分`
+
+### [科尔博士：不管政府如何表述，伊维菌素被证明对COVID有效](/content/gnews/8/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [延安性事（短篇纪实文学）（九）](/content/gnews/24/README.md)
+### [北京在病毒检查和新的全球格局中闭幕冬眠会](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2/20/2022 文贵直播：乌克兰局势已无法挽回；普京从北京回去后变得沉默寡言，普京这几年性情大变、看了很多战争片](/content/gnews/25/README.md)
+### [一位加拿大警官呼吁警察同事不要参与镇压游行](/content/gnews/10/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [郭先生揭秘习近平 普京密会 可能讨论的内容](/content/gnews/11/README.md)
+ ` 焦點20分`
+
+### [今日盖特大V推荐 — 拉希姆·卡萨姆 (Raheem Kassam)](/content/gnews/12/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [印媒WION：没人知道中共国有多少妇女被拐卖了](/content/gnews/13/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [克米迪亚之役助长了普金和习近平的政治野心 普金意图通过乌克兰之争控制欧洲](/content/gnews/14/README.md)
+ ` 焦點20分`
+
+### [印媒报道锁链女事件，揭露中共国人口拐卖问题](/content/gnews/15/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中俄邪恶联盟的风险和影响](/content/gnews/16/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [蓬佩奥：乌克兰，台湾以及伊朗问题会同时爆发](/content/gnews/17/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [欧洲药品管理局登记的疫苗副作用报告超过150万份](/content/gnews/18/README.md)
+ ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
+
+### [2022年慕尼黑安全会议上中共表示支持俄罗斯](/content/gnews/19/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [塔米·布鲁斯：特鲁多政府所做的一切都是为了控制](/content/gnews/20/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [美国卡车司机受到加拿大兄弟们的启发，向华盛顿特区进发](/content/gnews/21/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [美国航空运输业志愿团体反对中共病毒疫苗强制接种政策](/content/gnews/22/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [台湾指责中共国利用奥运会推动“政治宣传”](/content/gnews/23/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [2/20/2022 文贵直播：习普联手上演痞子政治，最终目的是通过夺取乌克兰和台湾，干掉美国和欧洲](/content/gnews/24/README.md)
  ` 秘密翻译组-北美组`
 
-### [中共统计局数据造假 借冬奥会洗钱骗钱](/content/gnews/26/README.md)
+### [美联储实施严格的职员交易限制](/content/gnews/25/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [2/20/2022 文贵直播：乌克兰局势已无法挽回；普京从北京回去后变得沉默寡言，普京这几年性情大变、看了很多战争片](/content/gnews/26/README.md)
+ ` 秘密翻译组-北美组`
+
+### [中共统计局数据造假 借冬奥会洗钱骗钱](/content/gnews/27/README.md)
  ` NFSC News`
 
-### [NFSC新闻、G|TV新闻访谈简报|2022年2月21日早](/content/gnews/27/README.md)
+### [NFSC新闻、G|TV新闻访谈简报|2022年2月21日早](/content/gnews/28/README.md)
  ` 纽约香草山MOS01`
 
-### [加利福尼亚州在美国首次实施针对COVID-19的“地方病”政策](/content/gnews/28/README.md)
+### [加利福尼亚州在美国首次实施针对COVID-19的“地方病”政策](/content/gnews/29/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [联盟工作汇报文字版2022.2.20](/content/gnews/29/README.md)
+### [联盟工作汇报文字版2022.2.20](/content/gnews/30/README.md)
  ` 纽约香草山MOS02`
 
-### [咖啡的价格失控了](/content/gnews/30/README.md)
+### [咖啡的价格失控了](/content/gnews/31/README.md)
  ` Shuizhuyu`
 
-### [艾伯塔省对特鲁多政府实施《紧急状态法》提出法庭挑战](/content/gnews/31/README.md)
+### [艾伯塔省对特鲁多政府实施《紧急状态法》提出法庭挑战](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共统计局数据造假 借冬奥会洗钱骗钱](/content/gnews/32/README.md)
+### [中共统计局数据造假 借冬奥会洗钱骗钱](/content/gnews/33/README.md)
  ` NFSC News`
 
-### [为中共卖命一生 金无怠落得悲惨下场](/content/gnews/33/README.md)
+### [为中共卖命一生 金无怠落得悲惨下场](/content/gnews/34/README.md)
  ` NFSC News`
 
-### [英国女王伊丽莎白中共病毒测试呈阳性](/content/gnews/34/README.md)
+### [英国女王伊丽莎白中共病毒测试呈阳性](/content/gnews/35/README.md)
  ` NFSC News`
 
-### [日媒定义中共冬奥会](/content/gnews/35/README.md)
+### [日媒定义中共冬奥会](/content/gnews/36/README.md)
  ` NFSC News`
 
-### [谷爱凌事件对华人的负面影响深远](/content/gnews/36/README.md)
+### [谷爱凌事件对华人的负面影响深远](/content/gnews/37/README.md)
  ` NFSC News`
 
-### [奥地利强制防疫政策将出现大逆转](/content/gnews/37/README.md)
+### [奥地利强制防疫政策将出现大逆转](/content/gnews/38/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [冬奥会落幕 外国金牌运动员回到自由世界后谴责北京](/content/gnews/38/README.md)
+### [冬奥会落幕 外国金牌运动员回到自由世界后谴责北京](/content/gnews/39/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [俄若入侵乌克兰 英国将对其采取最严厉的经济制裁](/content/gnews/39/README.md)
+### [俄若入侵乌克兰 英国将对其采取最严厉的经济制裁](/content/gnews/40/README.md)
  ` 日本东京方舟农场`
 
-### [班农先生谈奥地利废除中共病毒种族隔离措施](/content/gnews/40/README.md)
+### [班农先生谈奥地利废除中共病毒种族隔离措施](/content/gnews/41/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [新中国联邦将确保司法媒体科学受监督的独立运行](/content/gnews/41/README.md)
+### [新中国联邦将确保司法媒体科学受监督的独立运行](/content/gnews/42/README.md)
  ` NFSC News`
 
-### [美国将中共国电子商务网站列入假冒伪劣产品的“恶名市场”名单](/content/gnews/42/README.md)
+### [美国将中共国电子商务网站列入假冒伪劣产品的“恶名市场”名单](/content/gnews/43/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美国及世界疫情简报（02-21-2022）](/content/gnews/43/README.md)
+### [美国及世界疫情简报（02-21-2022）](/content/gnews/44/README.md)
  ` 波士顿五月花农场`
 
-### [2/21/2022国际财经快讯：俄股市因乌克兰局势紧张暴跌；乌克兰警告说，银行和国家机构受到网络攻击](/content/gnews/44/README.md)
+### [2/21/2022国际财经快讯：俄股市因乌克兰局势紧张暴跌；乌克兰警告说，银行和国家机构受到网络攻击](/content/gnews/45/README.md)
  ` 秘密翻译组金融团队`
-
-### [特鲁多暴力镇压卡车司机，冻结其账户，安乐死其宠物](/content/gnews/45/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [尸检显示：青少年接种COVID疫苗实际上死于“心碎综合症”（2/3）](/content/gnews/46/README.md)
  ` 西班牙巴塞罗那喜悦农场`

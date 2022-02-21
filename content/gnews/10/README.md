@@ -2,10 +2,10 @@
 ---
 
 
-## 印媒WION：没人知道中共国有多少妇女被拐卖了
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2043662/)
+## 一位加拿大警官呼吁警察同事不要参与镇压游行
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2043679/)
 
-02/18/2022 印度媒体WION报道：没人知道中共国有多少妇女被拐卖了
+02/19/2022 一位曾经参与和平游行的加拿大警官呼吁警察同事听从内心良知不要参与镇压游行
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

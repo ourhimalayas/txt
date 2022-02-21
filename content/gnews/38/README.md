@@ -2,36 +2,23 @@
 ---
 
 
-## 冬奥会落幕 外国金牌运动员回到自由世界后谴责北京
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2042530/)
+## 奥地利强制防疫政策将出现大逆转
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2042581/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Unknown-20.jpg)冬奥会落幕 外国金牌运动员回到自由世界后谴责北京 网络图片
-据美国之音2月21日报道，在封控严密的闭环下进行了16天的北京冬季奥运会20日降下帷幕，一些已经安全离境的外国运动员回到自由世界后，立即对北京主办本届冬奥会提出谴责。
+采编/编译撰稿： 薇文                   校对编辑：硫酸羟氯喹64
 
-在北京冬奥会获金的德国雪橇滑手娜塔莉·盖森伯格 (Natalie Geisenberger) 回国后对德国媒体说，她永远不会再去中共国。她说，“我去那里并不是因为我真的想去中共国，而是因为国际奥委会决定让北京主办奥运会。”
-
-在前往北京前，盖森伯格就严厉批评国际奥委会将冬奥会主办权交给“人权记录恶劣”的中共国。到了北京后，她决定在人权问题上保持沉默。她2月8日在北京冬奥会期间说，“你必须小心自己在什么时候在哪里说什么话。我想许多人都是这么想的。在此地，我想你最好不要说太多。”
-
-在北京冬奥会男子速滑比赛中夺得两枚金牌的瑞典选手尼尔斯∙范德普尔（Nils van der Poel）在前往北京时也表示不方便对中共国人权状况发表看法。他当时说，“我不认为让我去批评一个我即将进入的体系是特别的明智之举，如果我想活得长一点、而且有所建树的话。”
-
-完成比赛回国后，范德普尔说，国际奥委会将奥运会交给中共国这样“公然侵犯人权”的国家主办“极端不负责任”。
-
-中共利用各种高压手段在冬奥会期间严密监控各国运动员的一举一动，极力掩盖当局的恶劣人权问题，但中共越是极力掩盖就越激发自由世界的声讨和控诉，中共通过冬奥会让世界彻底看清了自己邪恶的嘴脸，丢尽了所有中国人的脸面，一句“永远不会再去中共国”就是自由世界对中共和中国愚昧民众惩罚的开始。
-
-新闻参考链接： [https://www.voachinese.com/a/gold-medalists-speak-out-against-beijing-olympics-20220221/6451905.html](https://www.voachinese.com/a/gold-medalists-speak-out-against-beijing-olympics-20220221/6451905.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/GettyImages-1238527725-e1645026425755-640x480-1.jpg)图片来源：GEORG HOCHMUTH/APA/AFP via Getty Images
 
 
-编辑：【英国伦敦喜庄园编辑部】
+据美国[布莱巴特新闻]2月17日报道，奥地利的 “新冠病毒”种族隔离政策，将发生惊天大逆转。该国政府当天宣布将取消绝大部分疫情封锁措施，包括限制未接种疫苗者人身自由的疫苗护照规定。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+报道称，以上决定是当局根据[疫情专家委员会]对现行政策的违宪性和非必要性作出分析之后作出的。并因此规定：从2月19日起，未接种者和病毒感染康复者，在病毒测试阴性后可以进入酒吧、餐馆等公共消费和娱乐场所。而从3月5日起，将完全取消疫苗通行证。同时，疫情期间绝大部分的封锁命令，包括对酒店业的宵禁也将被废除。
 
+以上报道再次验证了爆料革命在此之前就准确无误地判断指出：世界各国，特别是欧美国家政府将迫于经济崩溃，政治危机和病毒减弱等原因，必将在今年五月份之前取消强制接种，疫苗护照和大多数疫情限制。
 
+发稿：文明(添草灭共)
+
+新闻来源：[Massive U-Turn: Austria to Repeal Almost All ‘Corona Apartheid’ Rules Targeting Unvaxxed](https://www.breitbart.com/europe/2022/02/17/massive-u-turn-austria-to-repeal-almost-all-corona-apartheid-rules-targeting-unvaxxed/)
 
  
 

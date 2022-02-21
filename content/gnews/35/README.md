@@ -2,25 +2,21 @@
 ---
 
 
-## 日媒定义中共冬奥会
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2042799/)
+## 英国女王伊丽莎白中共病毒测试呈阳性
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2042800/)
 
-作者：日本方舟农场 Andy5
+作者：银河系农场 — 骄子
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月18日，日媒对中共冬奥会做出了三个定义。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-21-上午10.19.35.png)
-第一，本届冬奥会完全被政治操弄，彻底沦为由习近平和普京主导的、国际奥委会主席巴赫推波助澜的政治秀。如果国际奥委会不做出改变，那么所有体育竞技活动的未来都是悲哀和暗淡的。
+当地时间 2月20日，英国白金汉宫称，伊丽莎白女王的中共病毒测试呈阳性。伊丽莎白女王95岁高龄，目前的症状是轻微的感冒迹象。据悉，女王已接种三针中共病毒疫苗。 白金汉宫称，女王会继续接受医疗护理，遵循适当的专业指导，且本周内她将继续留在温莎城堡，处理一些轻度的工作。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-21-上午10.19.43.png)
+据悉，这已经是英王室成员再度感染。此前，英国王储查尔斯公爵及夫人相继被检测出中共病毒阳性，而且两人均已接种三针中共病毒疫苗。
 
-第二，本届冬奥会选在了一个降雪量极少的地方举办，运动场所以及周边地区大兴土木，本届冬奥会实质上，在通过建造场馆等牟取暴利。中共冬奥会是各大利益集团，共同策划的一场表演。
-
-最后，本次冬奥会是中共妄图打破全世界对其包围圈的政治舞台。嘉宾特别指出，尽管整个中共国有56个民族，但中共还是在国旗传递和火炬传递，这两个最重要活动的最后一棒上，都选择了维吾尔人，这是用奥运会为自己肮脏丑陋的人权问题，进行洗地的丑陋方式。
-
-参考链接：[https://www.gettr.com/post/pvohfd1d13](https://www.gettr.com/post/pvohfd1d13)
+参考链接：[Queen Elizabeth II Tests Positive for COVID-19](https://www.hollywoodreporter.com/news/politics-news/queen-covid-positive-test-1235096807/amp/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-总编：文真
-编辑：谐趣园
+总编：Jack Li文阳
+编辑：文真
 校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**

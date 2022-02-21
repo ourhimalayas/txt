@@ -2,10 +2,10 @@
 ---
 
 
-## 2022年慕尼黑安全会议上中共表示支持俄罗斯
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2043592/)
+## 印媒报道锁链女事件，揭露中共国人口拐卖问题
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2043632/)
 
-02/19/2022 中共国外交部长王毅在慕尼黑安全会议的第二天发表演讲，他认为世界的正在分裂的局势是由美国引起的。西方各国领导人指责普京和习试图取代现有的国际规则。
+02/18/2022 印度媒体WION报道锁链女事件，揭露中共国人口拐卖问题
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
