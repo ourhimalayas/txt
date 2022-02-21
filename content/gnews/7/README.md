@@ -2,51 +2,38 @@
 ---
 
 
-## 大直播后记：关于辽宁大灾难和疫苗强制
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2041715/)
+## Blind Trust in Scientism Ensues Hefty Price for Advanced Nations (Video)
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2041798/)
 
-整理：美哥、枫叶红了
-编辑：文泓
+**Translated by**：**MOS Translation Team – **Bright
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-5.png)
+On February 18’s Grand Live Broadcast, Miles Guo stated that blind trust in Scientism has led some of the most advanced countries to act as the vanguard of the CCP Virus vaccine, that is, the so-called COVID vaccine. The super high inoculation rate for these countries such as Israel and the UK will cause devastating damages, a result of the unraveling vaccine disaster.
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/9-26.png)图片来源：雅典娜设计组
+Being an economy with the most industrialized civilization and technology, Israel or Britain’s vaccination rate is outrageous. Especially in Israel, almost the entire country has been vaccinated, while a significant portion of its population has even taken the 4th shots. Miles explained that the main reason could be traced back to – after the Roman era, the Christian-based European civilization led mankind to a gradual transition from imperial power dominated societies to civil power dominated societies, hence the industrial civilization flourished. For the past 2 or 3 hundred years, the imperial power represented by the Queen of England and the Emperor of Japan have gradually declined.  Hence the once-glorious religious influence has also gradually declined. Science, on the other hand, became more prominent to serve as the support for humanity under the booming of capitalism.
 
+Miles pointed out that although the Jewish people are considered having deep roots of religious influence, they are also the pioneers of scientism. Unfortunately, this time around, their proud and firm belief in “science” is exploited by the science-imposters such as Fauci and Big Pharma Pfizer, and the people of Israel will sure pay a heavy price.
 
-嘉宾提问：
+Humanity is facing an existential crisis as the communists, the Party of Davos, and the Dark Forces of the world have unleashed a full-on assault, by abusing their authorities and power in the medical field and the governments, by imposing the insidious CCP Virus vaccine onto people in the name of “Science”.
 
-我的问题是关于辽宁，您曾说过辽宁会有很大的灾难，那现在葫芦岛就是导弹基地，那葫芦岛真的是因为疫情严重，还是因为要发生战争？
+Miles said, at this juncture, only Righteousness-ism, or, the Way of Righteousness, can lead the world to ride out the darkest hours of human history, and to serve as the new guiding model for humanity, because the Way of Righteousness advocates the independence of judicial system, the independence of media, and the independence of science.
 
-郭先生回复：
+Source: https://gettr.com/post/pvffqc88e7
 
-文苹几年来传播爆料革命非常重要，非常感谢你的付出，希望国内战友注意安全，不要逞匹夫之勇，不要去冒险，保护好自己。
+Proofread / Edited by: ** Snorlax S.**
 
-关于辽宁大灾难的问题，大家只知道我说过葫芦岛，大连真正（危险的地方）是棒棰岛，那里的迎宾馆就是金正恩和习见面的地方。你们去了解那个周围，包括大连整个南部好几个军事基地，其中几个就是导弹基地，核战略导弹就是针对日本的，这是很危险的。
+Posted by: linli
 
-那么这次习要攻打台湾，辽宁大连是扮演着关键的作用，（辽宁相对）东海的战略位置非常重要、非常关键。所以说，一旦（台海）开战，大连这次一定会是重灾区。辽宁，特别是那几个军事基地，这是很可怕的。（未来辽宁的）战友们一定要注意安全，现在帮不了什么，只能是一旦发生战事，以后战友们的救济、补给、救人上，我们能做更多的事情，其他方面我们做不了更多。这个需要大家多保重。所以说必须要赶快灭共，不灭共大家谁都可能成为炮灰。太感谢文苹了。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-1-514x720-1.png)
 
-嘉宾提问：
+**For more information, please follow us at:**
 
-整个世界是否因人类大面积死亡后，疫苗强制才会停止？
+**[New York MOS Himalaya ｜GTV](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)**
 
-郭先生回复：
+**[New York MOS Himalaya ｜MOS TALK](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
 
-人类有记载的历史从来没像现在这样，全球一下子进入了黑暗时期。就这个疫苗基本的逻辑常识（很清楚），你根本不应该打，打了又不治病，你打它干什么？也不知道，然后就拼命的打。（各国）推销疫苗的、生产疫苗的、被打疫苗的……这真的是人类遭受了什么样的诅咒，才能这个样子？太可怕了，我们能做的已经全力以赴来做，而且不能放弃，要一直做，能救一个是一个。但是要记住，（停止疫苗强制）这不是我们能做得到的。
+**[New York MOS Himalaya | GETTR](https://www.gettr.com/user/himalaya_mos)**
 
-这太可怕了，七哥每天呼吁全世界各国，你们就别打疫苗，别打疫苗，但是有些人，他就打了，你咋办？有些人真的心存侥幸，我一个很好的90多岁美国的朋友，昨天给我发信息说，Miles，我刚刚从华盛顿回来，我们见个面。我说，我这两天太忙，昨天我在纽约，今天我还得离开纽约，过两天再回。
-
-他说，我刚打了第四针。都90多岁了，我说你不要再打了，会要命的。Miles你给我说过的，我不是打了三针后，什么事也没有，就要打第四针。他就没有说，为啥93岁打了三针后，他还染上两次冠状病毒，他就没想过这个问题。让我没一点办法。
-
-就像日本（战友）救的那家，死了两口人。那位就临死前还跟战友吵架，说你不要上郭文贵的当，疫苗绝对管用。（管用）那你为什么染上？他说我染上会增加我的抗病能力，我就会好起来，嘎嘣就死了。你怎么办呢？一点辙没有。就像锁链女的事情，有人居然能说，24年时间为什么她不逃出来？他能说出这样的话来。我就没法让他试试，把他给绑那个地方去，看他怎么跑出来。
-
-所以说这是人性，什么叫执着？执着就是无知。当人类进入误区被诅咒，我们也没有办法，只能尽力吧。
-
-资料来源：[2022年2月20日 文贵大直播](https://gettr.com/streaming/pvqckb4291)
-
-发布：tianzhihuan
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**[New York MOS Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
 
  
 
