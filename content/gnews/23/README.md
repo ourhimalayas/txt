@@ -2,38 +2,36 @@
 ---
 
 
-## 普京将承认乌克兰叛乱地区
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2043928/)
+## 爆料革命承诺救助 “铁链女” 爆料人
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2043937/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+作者：纽约香草山农场 – 文鹰
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月19日，郭文贵先生在盖特直播中讲述，最早报道徐州 “铁链女” 事件的其中一个爆料人家属，向郭先生提供确实证据，受到郭先生认可并得到救助承诺。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0057.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide5-12.jpeg)
 
+郭先生依据爆料人家属提供的图片和视频，了解到爆料人揭露真相后，被中共警方抓捕，残酷拷打致伤的事实。郭先生决定用两万个喜币作为受迫害补偿，并承诺救助爆料人。
 
-资料来源：路透社
+另据家属告知，“铁链女”事件发生地徐州丰县，当地人都知道这名女子受害情况。而且，每年都有几十具年轻女孩尸体被发现，贩卖来的女性被富裕家庭购买来当性奴使用。
 
-克里姆林宫表示，俄罗斯总统弗拉基米尔·普京将很快签署一项法令，承认乌克兰东部的两个分离地区为独立实体，在西方担心可能爆发战争的危机中加大赌注。
+中共惧怕“铁链女”真相被揭穿，除了在徐州加建物理隔离墙，还加强了网络防火墙，并且在当地加派200名警察驻守，企图阻止外界了解事件的真相。爆料革命唯真不破，鼓励勇敢揭露中共邪恶的爆料行为。
 
-克里姆林宫表示，普京在与德国和法国领导人的电话中宣布了他的决定，他们对此表示失望。
+参考链接：[https://gettr.com/post/pviwuoa122](https://gettr.com/post/pviwuoa122)
 
-莫斯科的举动可能会破坏与美国总统乔拜登举行峰会以防止俄罗斯入侵乌克兰的最后一刻竞标，而在普京就此问题发表讲话时，卢布扩大了跌幅，当日下跌 3.3% 至 79.83 美元。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-普京后来开始了一个长长的电视讲话，预计他将在讲话中宣布这一消息，他将深入研究早在奥斯曼帝国的历史，以及最近北约东扩的紧张局势——这是当前危机中莫斯科的一个关键刺激因素。
+总编：Jack Li文阳
+编辑：文真
+校正/发稿：谐趣园
 
-他将乌克兰描述为俄罗斯过去不可分割的一部分，没有自己的真正建国传统。他说，该国东部覆盖了古老的俄罗斯土地。“如果乌克兰加入北约，这将对俄罗斯的安全构成直接威胁。”
-
-普京多年来一直致力于恢复俄罗斯对苏联解体后出现的国家的影响力，乌克兰在他的野心中占有重要地位。
-
-俄罗斯否认有任何袭击邻国的计划，但它威胁要采取未指明的“军事技术”行动，除非它得到全面的安全保证，包括乌克兰永远不会加入北约的承诺。
-
-承认叛军控制的地区可能为莫斯科向两个分离主义地区 – 顿涅茨克和卢甘斯克 – 公开派遣军队铺平道路，并辩称它作为盟友进行干预以保护他们免受乌克兰的侵害。
-
-俄罗斯议会议员和前顿涅茨克政治领导人亚历山大·博罗代表示，分离主义者将寻求俄罗斯帮助他们夺取这两个地区仍受乌克兰军队控制的部分地区的控制权。
-
-🔗 [普京将承认乌克兰叛乱地区](https://www.reuters.com/markets/europe/kremlin-says-no-concrete-plans-summit-with-biden-over-ukraine-2022-02-21/)
-
-责任编辑/发布： Shuizhuyu
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

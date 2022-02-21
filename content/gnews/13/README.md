@@ -2,35 +2,38 @@
 ---
 
 
-## 有声|美计划增加稀土库存 减少对中共的依赖
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2044052/)
+## 有声| 胡适两个儿子的命运天地之别
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2044117/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-海外媒体2月19日消息，美国五角大楼国防部计划增加为美国政府管理的稀土矿、钴和锂的库存，以减少对中共国的长期依赖。知情人士称，新的库存协议指南预计最早将于下周公布。
+配音：香草山农场 – 信念7
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+胡适先生1891年12月17日出生于江苏川沙，曾担任国立北京大学校长、中央研究院院长、中华民国驻美大使等职。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/10-15.jpg)
+胡祖望是胡适的长子,1919年出生。早年就读于西南联大，后入美国康乃尔大学主修机械工程。毕业后服务于美国斯都德贝克汽车厂，后担任中国航空公司的工程师、台湾驻美国机构“经济参事”等职。 1980年,胡祖望在台湾退休。
 
-据悉，稀土是一类重要的工业生产材料，广泛用于电子科技、军工、材料工业等领域。
+胡思杜是胡适次子,1921年12月17日出生。毕业于美国教会学校，回国后，在北京大学图书馆工作。1948年12月14日，胡思杜拒绝与父亲一起飞往台湾，留在了中国大陆。
 
-中共国稀土储量相对充足。中共政权则盲目追求经济效益，忽视本土工业科技的发展，在过去的30年，依靠其掌控的廉价劳动力，大量开采并出口初级稀土矿石，获取外汇储备。而美国由于环境污染等原因，在稀土的初级开采和加工方面一直没有大量投入，长期从中共进口。
+1950年9月22日，中共发起“胡适思想批判运动”。胡思杜为了向共党表忠心，极力撇清与父亲胡适的关系，把父母留给他的财产全部上交。同时, 胡思杜为表示对共产党的忠心，申请加入中国共产党，并发报登文，宣布断绝与胡适的父子关系。1957年在中共反右运动中，被定为右派分子，9月21日被迫自缢身亡，死时才36岁。共产党对其定性为“畏罪上吊自杀”，在郊外空地将其草草埋葬。
 
-近两年，美国逐渐认清中共的邪恶面目，采取了一系列措施对中共进行制裁，并逐渐在科技、经济、外交等方面与中共脱钩，中共则试图以稀土供应作为要挟，强迫美国接受他们提出的种种不合理要求。在这种情况下，美国许多锂矿和稀土初级矿商曾希望美国国防部购买更多的国内产品。
+文字版原文：[胡适两个儿子的命运天地之别](https://gnews.org/zh-hans/2031791/)
 
-不过，媒体称，暂时不清楚五角大楼准备增加的储存材料来源是哪里。
-
-文字版原文：[美计划增加稀土库存 减少对中共的依赖](https://gnews.org/zh-hans/2039286/)
-
-音频处理：Fei797
-发稿：Fei797
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
-
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

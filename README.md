@@ -15,92 +15,92 @@
 
 ---
 
-### [加拿大警察威胁自由车队抗议者](/content/gnews/1/README.md)
+### [阿尔伯塔省将向法院提出对特鲁多不合理使用《紧急状态法》的质疑](/content/gnews/1/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [加拿大警察威胁自由车队抗议者](/content/gnews/2/README.md)
  ` 墨尔本雅典娜农场`
 
-### [大直播后记：共产党的蓝金黄](/content/gnews/2/README.md)
+### [有声|英国保守党主席呼吁西方合作对抗中共威胁](/content/gnews/3/README.md)
+ ` MOSREC`
+
+### [大直播后记：共产党的蓝金黄](/content/gnews/4/README.md)
  ` 雅典娜GNotes`
 
-### [俄罗斯已拟好将被处决的乌克兰人黑名单](/content/gnews/3/README.md)
+### [俄罗斯已拟好将被处决的乌克兰人黑名单](/content/gnews/5/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [大直播后记：中共对外渗透的力量](/content/gnews/4/README.md)
+### [大直播后记：中共对外渗透的力量](/content/gnews/6/README.md)
  ` 雅典娜GNotes`
 
-### [有声|拉脱维亚教练：北京冬奥委会是场巨大政治秀](/content/gnews/5/README.md)
+### [有声|拉脱维亚教练：北京冬奥委会是场巨大政治秀](/content/gnews/7/README.md)
  ` MOSREC`
 
-### [有声|NBA球星坎特透漏被提名诺贝尔和平奖](/content/gnews/6/README.md)
+### [有声|NBA球星坎特透漏被提名诺贝尔和平奖](/content/gnews/8/README.md)
  ` MOSREC`
 
-### [奥地利强制防疫政策将出现大逆转](/content/gnews/7/README.md)
+### [奥地利强制防疫政策将出现大逆转](/content/gnews/9/README.md)
  ` 扬帆枫叶快讯`
 
-### [英国卫生机构利用疫苗毒害儿童](/content/gnews/8/README.md)
+### [英国卫生机构利用疫苗毒害儿童](/content/gnews/10/README.md)
  ` 扬帆枫叶快讯`
 
-### [渥太华警察如同黑社会，对正常出门买咖啡的普通民众十分粗暴](/content/gnews/9/README.md)
+### [渥太华警察如同黑社会，对正常出门买咖啡的普通民众十分粗暴](/content/gnews/11/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [【粤语配音】2022年2月21日：中共国的荒唐终将被世界抛弃](/content/gnews/10/README.md)
+### [【粤语配音】2022年2月21日：中共国的荒唐终将被世界抛弃](/content/gnews/12/README.md)
  ` MOS香港部`
 
-### [有声| 胡适两个儿子的命运天地之别](/content/gnews/11/README.md)
+### [有声| 胡适两个儿子的命运天地之别](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [【秘翻在线】新冠疫苗对人体器官造成了灾难性损害](/content/gnews/12/README.md)
+### [【秘翻在线】新冠疫苗对人体器官造成了灾难性损害](/content/gnews/14/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声|美计划增加稀土库存 减少对中共的依赖](/content/gnews/13/README.md)
+### [有声|美计划增加稀土库存 减少对中共的依赖](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [Stew Peters Show: Janette Orr的父母死于新冠和疫苗，医院违背了遗嘱，在没有经过任何同意的情况下擅自做出医疗决定](/content/gnews/14/README.md)
+### [Stew Peters Show: Janette Orr的父母死于新冠和疫苗，医院违背了遗嘱，在没有经过任何同意的情况下擅自做出医疗决定](/content/gnews/16/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [加拿大议员因指出世界经济论坛对特鲁多政府的腐败影响而受到审查](/content/gnews/15/README.md)
+### [加拿大议员因指出世界经济论坛对特鲁多政府的腐败影响而受到审查](/content/gnews/17/README.md)
  ` 温哥华扬帆农场`
 
-### [六四党卫军坦克与渥太华皇家铁骑](/content/gnews/16/README.md)
+### [六四党卫军坦克与渥太华皇家铁骑](/content/gnews/18/README.md)
  ` 扬帆枫叶快讯`
 
-### [特鲁多政权极具专制性和破坏性](/content/gnews/17/README.md)
+### [特鲁多政权极具专制性和破坏性](/content/gnews/19/README.md)
  ` 扬帆枫叶快讯`
 
-### [文贵盖特精要2022/02/ 21](/content/gnews/18/README.md)
+### [文贵盖特精要2022/02/ 21](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [新中国联邦的教育蓝图](/content/gnews/19/README.md)
+### [新中国联邦的教育蓝图](/content/gnews/21/README.md)
  ` NFSC News`
 
-### [中共洗脑教育是国人悲惨命运的根源](/content/gnews/20/README.md)
+### [中共洗脑教育是国人悲惨命运的根源](/content/gnews/22/README.md)
  ` NFSC News`
 
-### [爆料革命承诺救助 “铁链女” 爆料人](/content/gnews/21/README.md)
+### [爆料革命承诺救助 “铁链女” 爆料人](/content/gnews/23/README.md)
  ` NFSC News`
 
-### [五月花简报（02/21/2022）](/content/gnews/22/README.md)
+### [五月花简报（02/21/2022）](/content/gnews/24/README.md)
  ` mayflowertranslate`
 
-### [普京将承认乌克兰叛乱地区](/content/gnews/23/README.md)
+### [普京将承认乌克兰叛乱地区](/content/gnews/25/README.md)
  ` Shuizhuyu`
 
-### [利用 “大科技 ”反对言论自由和走向极权主义](/content/gnews/24/README.md)
+### [利用 “大科技 ”反对言论自由和走向极权主义](/content/gnews/26/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [经济战：卡车司机从柴油，数字货币到通往自由的道路](/content/gnews/25/README.md)
+### [经济战：卡车司机从柴油，数字货币到通往自由的道路](/content/gnews/27/README.md)
  ` 全球G系列咨服群`
 
-### [2月21日勿忘香港（图片5-9）](/content/gnews/26/README.md)
+### [2月21日勿忘香港（图片5-9）](/content/gnews/28/README.md)
  ` 波士顿五月花农场`
 
-### [2022/02/20文贵先生直播精要](/content/gnews/27/README.md)
+### [2022/02/20文贵先生直播精要](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [澳大利亚谴责中共国的“恐吓”行为](/content/gnews/28/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [利益 把柄 无知 色情 就是中共对内 对外的蓝金黄手段](/content/gnews/29/README.md)
- ` 焦點20分`
 
 ### [2022年2月20日农场联盟工作汇报-G系列相关信息文字版](/content/gnews/30/README.md)
  ` 全球G系列咨服群`

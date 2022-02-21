@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/21/2022 10:36 PM (UTC)`
+
+2/21/2022 Miles Guo’s GETTR: CCP officials are well-aware that CCP is doomed; The presidents of the US and Russia are going to have a talk. Will Putin abandon Xi and embrace the US and Europe?<br/><br/>2/21/2022 文贵盖特：中共体制内官员也知中共大势已去；俄美总统要会面，普京是否会弃习投美欧？
+![img](https://media.gettr.com/group18/getter/2022/02/21/22/0f552cb7-1d7a-6ff2-58c7-919ac68e0099/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@sean6 2/20/2022 4:36 PM (UTC)`
@@ -151,13 +158,6 @@ Who's Miles Guo Episode 3 《Mile‘s Determination to Take Down the CCP》<br/>
 
 2/18/2022 Miles Guo: The media has played a huge role in the COVID vaccine disaster, and people across the world hate Mark Zuckerberg, Bill Gates, the local CDCs, the governments, and Anthony Fauci. The Whistleblowers’ Movement was the first to say that the COVID vaccine disaster would kill over a billion people, and that the COVID vaccine passport and mandate would definitely be rescinded by May of this year<br/><br/>2/18/2022 文贵直播：媒体在疫苗灾难中起到了巨大作用，全世界最恨的是扎克伯格、比尔·盖茨、当地CDC、政府和福奇；爆料革命最早说出疫苗灾难将导致十几亿人死亡、疫苗护照和强制令必将在今年5月前取消<br/>
 ![img](https://media.gettr.com/group20/getter/2022/02/19/22/f403331d-007d-3c0a-37d7-133b68caa568/out.jpg)
-
----
-
-`@miles 2/19/2022 10:56 PM (UTC)`
-
-2/18/2022 Miles Guo: Whether to invade Taiwan or not, the world has determined that Xi had wanted to invade Taiwan, whereas Putin managed to divert attention on the Ukraine issue. Russia asked if the CCP would be kicked out of the SWIFT system after invading Taiwan, and the Americans nodded. The CCP has no place in the world political arena, while the Lao Baixing have to pay for it.<br/><br/>2/18/2022 文贵直播:  不管打不打台湾，全世界都认定习曾要打台湾，而普京在乌克兰问题上转移了注意力；俄罗斯问中共打台湾后会不会被踢出SWIFT系统，美国人点了头；中共在世界政坛毫无地位，而老百姓却要为它买单<br/>
-![img](https://media.gettr.com/group16/getter/2022/02/19/22/5600f0bc-767c-a40a-becb-877c958a4c30/out.jpg)
 
 ---
 
