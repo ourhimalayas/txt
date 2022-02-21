@@ -2,37 +2,39 @@
 ---
 
 
-## 加拿大议员因指出世界经济论坛对特鲁多政府的腐败影响而受到审查
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2044011/)
+## 有声|NBA球星坎特透漏被提名诺贝尔和平奖
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2044142/)
 
-加拿大温哥华扬帆农场 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/02/04_FORUM.original.jpg)图片来源：ACMI
-根据《INFOWARS》2月19日报道，周六加拿大国会议员卡力在议会提出世界经济论坛（WEF）对总理贾斯汀-特鲁多内阁的影响后被封杀。
+配音：香草山农场 – 信念7
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+2月17日，NBA球星欧尼斯·坎特·自由在推特上发布消息表示，能获得诺贝尔和平奖提名，他感到既荣幸又受宠若惊。他说，有时候表明立场比领到下一份薪资更重要。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1847.png)
+据美国媒体报道，日前被NBA球队放弃的坎特，得到30位诺贝尔奖得主联署力挺，他也因此被提名诺贝尔和平奖。
 
-保守党议员卡力(Colin Carrie)指出，世界经济论坛创始人克劳斯-施瓦布(Klaus Schwab)曾经吹嘘他的全球青年领袖团体已经 “渗透 “到了特鲁多的政府，然后他被下议院议长突然打断。
+坎特是波士顿凯尔特人队的前中锋，他是直言批评中共政府为犯下反人类罪的残暴组织，为中国人权发声的少数国际顶级运动员之一。
 
-卡力问：”我的选民问关于外界对我们民主的干预问题，克劳斯-施瓦布是世界经济论坛的负责人，他吹嘘他的子服务机构如何’渗透到世界各地的政府’，他说他的组织已经渗透到加拿大一半以上的内阁。为了透明起见，能否说出哪些内阁部长与世界经济论坛的议程一致？我担心的是……” 卡力还没说完，议长突然打断了他，称他讲话的 “话筒声音真的，真的很糟糕”。
-
-当时，新民主党议员查理-安格斯指责卡力散布 “虚假信息”，因为他只是询问了特鲁多和世界经济论坛之间这种令人不安的关系。
-
-事实是，卡力的言论是100%准确的。
-
-世界经济论坛创始人克劳斯-施瓦布在视频中吹嘘他的组织 “渗透 “了特鲁多总理的政府。
-
-特鲁多本人在担任总理期间与世界经济论坛创始人多次会面，施瓦布甚至曾经吹嘘说，特鲁多对世界经济论坛的忠诚度高于加拿大。
-
-此外，特鲁多内阁的几位成员也公开与世界经济论坛有联系，如财政部长克里斯蒂亚-弗里兰，她是该全球主义机构董事会的理事。
-
-议会的自由派没有公开讨论与特鲁多与世界经济论坛的关系有关的明显的利益冲突，而是采用了他们典型的审查和误导的独裁方法。
-
-请记住，世界经济论坛是一个声称 “你将什么都不拥有，你将会很快乐 “的组织，这是其大重置”第四次工业革命 “倡议的一部分。
-
-原文链接：
-[https://www.infowars.com/posts/video-canadian-mp-accused-of-spreading-disinformation-for-pointing-out-wefs-corrupt-influence-over-trudeaus-govt/](https://www.infowars.com/posts/video-canadian-mp-accused-of-spreading-disinformation-for-pointing-out-wefs-corrupt-influence-over-trudeaus-govt/)
-
-编辑，发稿 Spirit
+2021年11月23日，坎特在接受福克斯新闻采访时，曾敦促国际奥委会放弃2022年北京举行冬奥会。他说，即使大部分职业体育界都对中共侵犯人权、对中共领导层的指控保持沉默，也总得有人站出来与中共对抗。
 
 
+
+文字版原文：[NBA球星坎特透漏被提名诺贝尔和平奖](https://gnews.org/zh-hans/2035367/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

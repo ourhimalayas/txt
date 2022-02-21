@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/21/2022 11:08 PM (UTC)`
+
+锡克教库尔撒裔加拿大人从多伦多赶到渥太华支持卡车司机运动。他们非常爱国，希望能带回以前的加拿大，让后代生活在一个保护他们的自由和权利的社会。他们呼吁所有加拿大人都来渥太华支持卡车司机。<br/><br/>Canadian Sikh Khalsans arrive in Ottawa all the way from Toronto and voice out their support for the Freedom Convoy. They are patriotic and they want to bring back the nation for the children to live in a society that protects their freedom and rights. They call for every Canadian to come to Ottawa and support the truckers.<br/>
+![img](https://media.gettr.com/group24/getter/2022/02/21/23/6e23395c-87bd-b9f1-2710-466a7101da25/out.jpg)
+
+---
+
 `@miles 2/21/2022 10:49 PM (UTC)`
 
 2/20/2022 Miles Guo: Peng Liyuan (Xi Jinping’s wife) is in a bad shape. After the Winter Olympics, the CCP’s music industry and celebrity community will be changed drastically. The CCP does not allow the real estate to go bankrupt, nor is it allowed to report on the investigations into the singers and celebrities. The CCP’s financial sector will collapse, and the CCP’s Bouazizi incident in the financial sector will start from the music industry.<br/><br/>2/20/2022 文贵直播：彭丽媛状态非常不好；冬奥会后中共音乐界和演艺界将发生巨变；中共不准房地产破产、不许报道歌星和明星被查；中共金融会崩塌，金融布瓦吉吉事件会从音乐界开始<br/>
@@ -151,13 +158,6 @@ Who's Miles Guo Episode 3 《Mile‘s Determination to Take Down the CCP》<br/>
 
 2/19/2022 Miles Guo’s GETTR: Japanese and European media are demanding to investigate Communist China for the origins of the CCP virus. Those who reported the truth about the chained woman were abused by the CCP police, while incidents like the chained woman are common in the region, with countless trafficked women being turned into sex slaves or killed. The CCP has committed enormous and indescribable evil deeds. Let's see how I will take down the CCP!<br/><br/>2/19/2022 文贵盖特：日本和欧洲的媒体要求找中共病毒溯源；报道锁链女真相的人被警察虐待，而类似锁链女的事件在当地很普遍，无数女性被贩卖后沦为性奴甚至丧生；中共之恶罄竹难书，看文贵怎么灭你们！<br/>
 ![img](https://media.gettr.com/group47/getter/2022/02/19/23/f6ba5862-66b1-8d14-c249-75da953999d7/out.jpg)
-
----
-
-`@miles 2/19/2022 11:05 PM (UTC)`
-
-2/18/2022 Miles Guo: The European and U.S. governments have acquiesced to letting the Omicron variant infect the population en masse, and they are now lifting all kinds of restrictions because they can't hold up both economically and politically. The massive deaths caused by the COVID vaccine disaster will not start until May, so be sure to continue to take precautionary measures against the virus.<br/><br/>2/18/2022 文贵直播: 欧美政府已经默认让奥米炕病毒集体感染民众，现在解除各种限制是因为经济和政治撑不住了；疫苗灾难造成的大规模死亡在5月份才会开始，请务必继续做好防疫措施<br/>
-![img](https://media.gettr.com/group40/getter/2022/02/19/23/f10bfc11-8cba-7439-5db9-8720d40b38d7/out.jpg)
 
 ---
 

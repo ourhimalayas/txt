@@ -2,40 +2,26 @@
 ---
 
 
-## 有声|中共国结婚人口急剧下降，释放生育危机信号
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2044190/)
+## 瑞士信贷违反国际规则 长期为非法资金开绿灯
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2044287/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月18日，国外媒体援引中共的相关数据，揭示了中共国近年来结婚人数明显下降的趋势。
+撰稿：东京樱花团｜麗子
+![](https://assets.gnews.org/wp-content/uploads/2022/02/pasted-image-0-11.png)[*图片来源*](https://www.nikkei.com/article/DGXZQOGR029G00S1A600C2000000/)
+根据基于大量举报人的调查信息显示，几十年来，有数十亿美元非法资金流入瑞士银行业巨头瑞士信贷。
 
-数据表明，2021年前三季度中共国婚姻登记数量较2019年同期下降17.5%。其中江苏省结婚人数连续五年下降，浙江省杭州市2021年结婚人数还不到2011年的80%。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-9.jpg)
-与此同时，中共国46.5%的结婚者年龄在30岁以上。结婚人口的下降、结婚者年龄偏大等现象将进一步降低中国的人口出生率。据悉，2021年中共国出生率已降至中共国家统计局1949年记录以来最低水平。
+这项调查是由“组织犯罪及腐败报告项目（OCCRP）”小组进行的，参与单位由来自世界各地的48家新闻机构，包括法国《世界报》和英国《卫报》等知名媒体组成。
 
-据社交媒体的信息，民众普遍认为，近年来中共政权采取各种政策明争暗夺，导致民众收入难以提高，生活成本却不断上涨，引发了年轻人“结婚难”这一现象。
+据《世界报》报道，瑞士信贷违反了国际银行规则，几十年来一直存放与犯罪和腐败有关的非法资金。
 
+据OCCRP称，举报人透露的数据包括18,000多个账户信息，其中最大的账户存款额超过80亿美元。账户持有人包括一名参与酷刑的也门情报官员、阿塞拜疆领导人的儿子、塞尔维亚贩毒集团负责人和一名涉嫌贪污石油资金的委内瑞拉内阁部长。
 
+再对照郭文贵先生关于UBS诉讼历尽波折，才终于得以在英国成功立案，一切足以证明黑暗势力背后操纵之深之广。
 
-文字版原文：[中共国结婚人口急剧下降，释放生育危机信号](https://gnews.org/zh-hans/2039292/)
+信息来源：[**クレディ・スイスに多額の不正預金 調査報道**](https://news.yahoo.co.jp/articles/75a7b7d6b93111c4e21f500279e52a07a34e211b)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+*校对：东京樱花团/東洋武士*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
