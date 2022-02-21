@@ -2,26 +2,22 @@
 ---
 
 
-## 中共各种软件暗藏网络技术 “核武器”
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2042697/)
+## 英国女王伊丽莎白中共病毒测试呈阳性
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2042800/)
 
-作者：纽约香草山农场 – 文真
+作者：银河系农场 — 骄子
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在2月18日大直播中，郭文贵先生强调中共各种软件暗藏网络技术“核武器”，应避免使用中共国的手机和各种软件。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3-67.jpg)
-郭先生揭露，马化腾和腾讯是中共国安部一手扶植的企业。马化腾背后真正的老板是胡海清和毛道临，即胡锦涛的女儿、女婿。微信是中共的情报软件。中共二部和三部是微信最大的经济和技术支持。微信可以通过监听敏感词，自动控制手机的麦克风和摄像头开关，偷录音频和视频，定期上传到中共控制的云数据库。
+当地时间 2月20日，英国白金汉宫称，伊丽莎白女王的中共病毒测试呈阳性。伊丽莎白女王95岁高龄，目前的症状是轻微的感冒迹象。据悉，女王已接种三针中共病毒疫苗。 白金汉宫称，女王会继续接受医疗护理，遵循适当的专业指导，且本周内她将继续留在温莎城堡，处理一些轻度的工作。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-21-上午10.19.43.png)
+据悉，这已经是英王室成员再度感染。此前，英国王储查尔斯公爵及夫人相继被检测出中共病毒阳性，而且两人均已接种三针中共病毒疫苗。
 
-只要安置或使用中共国的软件、手机应用、和网站，比如微信、抖音、百度、知乎、香港凤凰等，手机基本就会被中共监视监听。手机的地理位置等信息会自然报告中共。北京西山凤凰岭有几十万人监听着美国人的手机，毫无秘密可言。 邪恶的共产党把全人类的手机都监听了，担心隐私泄露完全没有意义，灭共才是硬道理。
+参考链接：[Queen Elizabeth II Tests Positive for COVID-19](https://www.hollywoodreporter.com/news/politics-news/queen-covid-positive-test-1235096807/amp/)
 
-参考链接：
-1) . [2022/02/18 文贵先生直播精要](https://gnews.org/zh-hans/2033753/)
-2) . [**2022年2月18日 文贵大直播：乌克兰俄罗斯危机各执一词；Omicron病毒解禁众说纷纭**](https://gettr.com/streaming/pvffqc88e7)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
-
-总编: 文真
-编辑: Jack Li文阳   
-校正/发稿：Fei797
+总编：Jack Li文阳
+编辑：文真
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

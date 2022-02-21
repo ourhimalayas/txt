@@ -2,12 +2,10 @@
 ---
 
 
-## 2月20日文贵大直播摘要（图片23-27）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2043277/)
+## 2/20/2022 文贵直播：普习密谋如何应对打乌克兰和台湾后的美国制裁 &#8211; 网络超限战、太空战、核威慑、继续放毒、难民策略、爆西方领导人的猛料、斩首行动
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2043360/)
 
-设计：五月花农场 科存
-![](https://assets.gnews.org/wp-content/uploads/2022/02/7EFB7BEF-DC1C-47A6-89D9-4D701806E54D.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/885161FA-522F-408A-A2A9-6503358AA9CE.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/DBA6E829-C520-423F-87E8-2BD1C17259DB.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/F640EFEE-4CE4-4EBB-AABA-3C5F032CDC00.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/40D1B2A9-2EC8-4D93-B720-00E044BBAFE7.jpeg)
-发布：水涨船高
+秘密翻译组-北美组
 
  
 
