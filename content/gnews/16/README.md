@@ -2,12 +2,18 @@
 ---
 
 
-## 2月21日勿忘香港（图片1-4）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2043738/)
+## 利益 把柄 无知 色情 就是中共对内 对外的蓝金黄手段
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2043765/)
 
-设计：五月花农场 企鹅
-![](https://assets.gnews.org/wp-content/uploads/2022/02/E6ED610F-C4C2-48C3-A20A-7575510D0F6F.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/5B9B70F0-2C1C-486B-BFF1-AEF65C42C99E.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/0D341511-A020-4B06-BBCF-5BBDAEACB235.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/33E64DB7-B63F-4A08-A5FF-3A11C824B5C4.jpeg)
-发布：水涨船高
+原安全部副部长秋景，是共青团出身，胡锦涛、令计划安排的接班人，管理海外特务，后来被所谓不在体制内公开的双规。秋景曾在党校讲话：当年对国民党的渗透，不仅把国民党赶出了大陆，同时共产党还有继续渗透台湾政坛的能力。
+
+安全部许勇耀点出核心，共产党所谓隐蔽情报战线的关键点就是— —利益。
+
+利益、把柄、无知、色情，就是中共对内、对外的蓝金黄手段！
+
+视频来源: 20220220—郭先生大直播
+视频制作: 文星光，梦田
+文案:文星光
 
  
 

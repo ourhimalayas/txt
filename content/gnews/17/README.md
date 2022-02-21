@@ -2,18 +2,12 @@
 ---
 
 
-## G-EDU将开展线上线下教育 欢迎全球老师学生加入
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2043734/)
+## 2月21日勿忘香港（图片1-4）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2043738/)
 
-中国人现在很多思想已经人畜不分了，没有教育和信仰，我们的民族是没有希望的。
-
-新中国联邦、爆料革命，灭共 第一，教育 绝对是第二重要的。
-
-#G- EDU 将由郭文贵先生亲自负责。欢迎全世界最好的老师加入，我们将提供丰厚的报酬，同时支持多种支付方式，如 HDO、HCN、美元等，并且老师和学生都将收到躺平币作为激励。之后G系列各公司上市也将预留股份拨给G-EDU。很快线下学校将在加拿大、英国、美国、日本、澳大利亚等地成立。新中国联邦教育基金启动费1000万美元已经到位，未来将达到100亿，由新中国联盟联盟委员会和战友们监管。
-
-视频来源: 20220220—郭先生大直播
-视频制作: 文星光，梦田
-文案:文星光
+设计：五月花农场 企鹅
+![](https://assets.gnews.org/wp-content/uploads/2022/02/E6ED610F-C4C2-48C3-A20A-7575510D0F6F.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/5B9B70F0-2C1C-486B-BFF1-AEF65C42C99E.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/0D341511-A020-4B06-BBCF-5BBDAEACB235.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/33E64DB7-B63F-4A08-A5FF-3A11C824B5C4.jpeg)
+发布：水涨船高
 
  
 
