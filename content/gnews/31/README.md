@@ -2,35 +2,28 @@
 ---
 
 
-## 喜马拉雅币一周分析与总结（2月4日-2月20日）
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2039449/)
+## 乌克兰总统在主要国会议上提出新安全保障要求
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2039476/)
 
-作者：香草山金融部 – ILOVE战神
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-过去一周喜马拉雅币价格在45美元附近波动，平均日交易量约9万枚喜币。喜币上市以来总交易量约2870万枚 ，占今年总发行量的仅约2.87%。目前喜币交易在全球尚未完全开放，市场交易量较低，价格仍被严重低估。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1931.png)
-本周据郭文贵先生在大直播中透露，一个月内喜支付将推出新政策，包括喜贷款和喜抵押。喜交所也将发布重大的投资利好公告。喜交所还会很快会推出比特币和其它数字货币交易。即将推出的躺平币将独立于喜币运营，有自己独立的支付系统GettrPay（盖特支付），还会有自己独立的贷款系统。除此之外，躺平币可以在喜交所进行交易，喜币也可以在盖特平台上交易。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1932.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1935.png)
-郭先生还在直播和盖特中透露，已故的三度夺取F1世界冠军的巴西赛车手埃尔顿·塞纳曾经驾驶的迈凯伦福特 MP4/8A赛车最近通过喜币完成了交易，这笔数字货币交易将是深远影响数字货币与现实生活生产力进行公平交易的一个里程碑事件。另外喜联储还在与多家线上线下商城商谈合作，未来将会有多个G-Mall出现，而且还会有很多地方接受喜币买房。喜币将在流通领域开创数字货币的传奇，使人类经济活动回归到物物交换的本源，实现高效率、去中介化、零成本，而且没有地域限制的货币全球流通。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1933.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1934.png)
-参考链接：
-1、[https://himalaya.exchange/himalaya-pay](https://himalaya.exchange/himalaya-pay)
-2、[用喜币支付购买巴西车神塞纳战车是里程碑事件](https://gnews.org/zh-hans/2020727/)
+撰稿：东京樱花团/向海
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片5-1.jpg)[图片来源](https://www3.nhk.or.jp/news/html/20220220/K10013493331_2202200718_2202200721_01_02.jpg)
+据路透社报道，乌克兰总统泽连斯基19日在慕尼黑安理会发表讲话，称乌克兰应召开大国会议以获得新的安全承诺。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+乌克兰还敦促北约成员国（ＮＡＴＯ）明确对其加入为成员国的请求表明立场。
 
-编辑/总编：飞虹
-校正/发稿：小野貓（文凱琳）
+他指出，世界几十年前商定的规则已不能发挥作用。不适用于当前新的威胁，也不能有效制约。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+世界安全结构“几近崩溃”，请求与包括俄罗斯在内的联合国安理会常任理事国德国和土耳其举行会议，为乌克兰提供新的安全保障。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-8.png)
+他还认为，如果西方国家确信俄罗斯即将发动袭击，就应该行动而不是制裁警告。在攻击开始后再行动是没有意义的。
 
+泽连斯基进一步强调，各国应就乌克兰是否能加入欧盟（EU）或北约明确立场。如果有成员不希望乌克兰加入，或者如果所有成员都不希望乌克兰加入，他们应该坦诚表明。
+
+[信息来源](https://news.yahoo.co.jp/articles/fa44ce1f063f90736c179a285d2a92321546ce5a)
+
+*校对：东京樱花团/百花李香
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
