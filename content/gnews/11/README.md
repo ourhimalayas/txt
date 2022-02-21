@@ -2,27 +2,37 @@
 ---
 
 
-## 前美国国务卿蓬佩奥下月访问台湾
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2041411/)
+## 拜登悄悄将COVID的联邦紧急状态延期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2041548/)
 
-撰稿：追逐曙光跑
+编译： Jenny Ball
 
-据台湾外交部官网2月21日的消息，美国前国务卿蓬佩奥（Mike Pompeo）夫妇订于3月2日至5日访问台湾，期间将会见蔡英文总统。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-21-at-20.49.59.jpeg)图片来源：网络
-同时，接受副总统赖清德款宴、拜会立法院长游锡堃、外交部长吴釗燮，并接受吴部长款宴。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1963.png)图片来源：thegatewaypundit.com
 
-此外，蓬佩奥前国务卿并应远景基金会邀请於3月4日出席演讲活动，也将与台湾政、商、学等各界人士交流互动，强化台美间的紧密友好关係。
+拜登悄悄地致信腐败的议长佩洛西和美国参众两院，称他正在将与 COVID 相关的国家紧急状态延长至当前的 3 月 1 日终止日期，这之前没有设定结束日期。
 
-台湾外交部称，蓬佩奥在任内促成特朗普政府多次对台军售、解密美国对台湾的“六项保证”相关文件、宣布撤销台美交往限制等。
+乔·拜登通知众议院议长南希·佩洛西，他打算将联邦国家紧急状态声明延长至 3 月终止日期后继续有效。 [这里见联邦国家紧急状态定义***[STATUTE HERE](https://www.law.cornell.edu/uscode/text/50/1622)***]
 
-台湾外交部并称，蓬佩奥来访充分展现美国两党一致对台湾坚若磐石的支持，以及台美全方位伙伴关系的紧密友好。
+根据法令，国家紧急状态在首次宣布一年后到期。这意味着 COVID 国家紧急状态声明原定于 3 月 1 日结束。但是，如果行政办公室在到期前的 90 天窗口内通知立法部门，则法规允许延期。
 
-现年58岁的蓬佩奥曾任美国陆军军官、联邦众议员和中情局局长等职，他在2018年4月至2021年1月担任特朗普政府的国务卿。特朗普下台后，蓬佩奥在哈德逊研究所担任高级研究员。
+这是拜登的通知：
 
-在任期间的最后一天2021年1月19日，宣布中共政府在新疆对维吾尔族及其他穆斯林少数民族犯下种族清洗与反人类罪。
+《国家紧急状态法》（50 USC 1622（d））第 202（d）条规定。自动终止国家紧急状态，除非总统在宣布国家紧急状态的周年日期前 90 天内，在联邦公报上公布并传送向国会发出通知，说明紧急状态将在周年日之后继续有效。根据这项规定，我已将随附的通知发送给《联邦公报》以供发布，声明自 2020 年 3 月 1 日起，在 2020 年 3 月 13 日第 9994 号公告中宣布的关于 2019 年冠状病毒病 (COVID-19) 大流行的国家紧急状态，将在 2022 年 3 月 1 日之后继续有效。
 
-信息来源：[外交部誠摯歡迎美國前國務卿龐培歐伉儷訪問台灣](https://www.mofa.gov.tw/News_Content.aspx?n=95&amp;sms=73&amp;s=97387)
+仍然需要继续这种国家紧急状态。COVID-19 大流行继续对国家的公共健康和安全造成重大风险。这个国家有超过 900,000 人死于这种疾病，必须以联邦政府的全部能力和能力继续对抗和应对 COVID-19。
 
+因此，我决定有必要继续在关于 COVID-19 大流行的第 9994 号公告中宣布的国家紧急状态。
+
+**点评：人为的危机仍在继续。**
+
+素材链接：[thegatewaypundit.com] [Biden Quietly Extends the Federal National Emergency Declaration Related to COVID Beyond Termination Date of March 1st – Provides No End Date](https://www.thegatewaypundit.com/2022/02/biden-quietly-extends-federal-national-emergency-declaration-related-covid-beyond-termination-date-march-1st-provides-no-end-date/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailyam&amp;utm_content=daily)
+
+* * *
+
+*审核：文乐
+校对：花羽
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-6.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
