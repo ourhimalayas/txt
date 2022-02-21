@@ -2,10 +2,10 @@
 ---
 
 
-## 美国卡车司机受到加拿大兄弟们的启发，向华盛顿特区进发
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2043571/)
+## 一位加拿大警官呼吁警察同事不要参与镇压游行
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2043679/)
 
-02/16/2022 莫林·斯蒂尔：美国卡车司机受到了加拿大兄弟们的启发，主车队正从加州出发向华盛顿特区进发。
+02/19/2022 一位曾经参与和平游行的加拿大警官呼吁警察同事听从内心良知不要参与镇压游行
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
