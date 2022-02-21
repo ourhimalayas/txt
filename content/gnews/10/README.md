@@ -2,34 +2,27 @@
 ---
 
 
-## 今日盖特大V推荐 — 埃内斯·坎特·自由（Enes Kanter Freedom）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2038683/)
+## 经济崩溃政治危机导致疫苗护照悬停
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2038689/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/99aqp47-80ct9-1.jpg)
-**盖特链接：**[https://gettr.com/user/EnesKanter](https://gettr.com/user/EnesKanter)
+加拿大温哥华扬帆农场：硫酸羟氯喹64
 
-埃内斯·坎特·自由自述：
-[http://Instagram.com/enesfreedom/ &
-http://facebook.com/EnesKanterFreedom](http://Instagram.com/enesfreedom/%20&amp;
-http://facebook.com/EnesKanterFreedom)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/xfu.jpg)
-**图片来源：网络**
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/a-15.png)图片来源：盖特
 
-**埃内斯·坎特·自由简介：**
 
-NBA职业篮球运动员埃内斯·坎特·自由（生于1992 年5月20日）是瑞士出生的土耳其裔美国职业篮球运动员。他在2011～2022年间为五支国家篮球协会（NBA）球队效力，最后一次效力于NBA的波士顿凯尔特人队。他曾代表土耳其国家队参加国际比赛。
+据2月18日文贵大直播报道，尽管欧美各国政府近期都被迫开始逐渐取消各项人身限制政策，但由于真正大规模的疫苗灾难尚未到来，新中国联邦人必须更加因此谨慎克制，切勿掉以轻心。
 
-埃内斯以对中国和土耳其政府直言不讳的批评而闻名，由于他批评中共在新疆，西藏和香港的许多严重侵犯和践踏人权的行为，NBA最近解雇了埃内斯。
+据悉，虽然随着疫情在多数西方国家的趋缓，各国目前表面上取消了包括强制接种，疫苗护照和配戴口罩等大部分防疫措施，并重新开放了学校和公共消费和娱乐场所。但实际上，经济崩溃，政治危机以及病毒感染性减弱才是背后的根本原因。
 
-埃内斯·坎特·自由获得2022年诺贝尔和平奖提名。
+报道指出，爆料革命根据所掌握的准确情报，早就判断并告知世界，不仅疫苗护照和强制接种将在今年春季前后被各国停止，更重要的是，大规模的疫苗灾难将于2022年5月份开始真正显现并在全球爆发。
 
-编撰：洛杉矶盘古农场 —郭友(文苏)
-校审：洛杉矶盘古农场 — 心照
-发布：洛杉矶盘古农场 —彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+对此，文贵先生告诫所有新中国联邦人，必须继续保持冷静和耐心，做好个人卫生防范，务必坚持到今年5月份之后，以避免成为排华危机和疫苗灾难的无辜牺牲品。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+* * *
+
+编辑撰稿，发稿：硫酸羟氯喹64
+
+消息来源：[https://gettr.com/post/pvmifj8a40](https://gettr.com/post/pvmifj8a40)
 
  
 

@@ -15,59 +15,59 @@
 
 ---
 
-### [普京和习近平早已经是政治联盟（一）](/content/gnews/1/README.md)
+### [中俄合作的利益巨大](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [大直播后记：战友们请珍惜每一个付出的人](/content/gnews/2/README.md)
+### [普京和习近平早已经是政治联盟（二）](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [普京和习近平的勾兑](/content/gnews/3/README.md)
+### [普京和习近平早已经是政治联盟（一）](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [独裁者最怕死](/content/gnews/4/README.md)
+### [大直播后记：战友们请珍惜每一个付出的人](/content/gnews/4/README.md)
  ` 雅典娜GNotes`
 
-### [俄取乌克兰是习普独裁政治利益的需要](/content/gnews/5/README.md)
+### [文雍漫谈：苦女](/content/gnews/5/README.md)
+ ` 文雍`
+
+### [普京和习近平的勾兑](/content/gnews/6/README.md)
  ` 雅典娜GNotes`
 
-### [比尔盖茨称人们从感染奥米抗病毒获得的免疫超过了新冠疫苗](/content/gnews/6/README.md)
+### [独裁者最怕死](/content/gnews/7/README.md)
+ ` 雅典娜GNotes`
+
+### [俄取乌克兰是习普独裁政治利益的需要](/content/gnews/8/README.md)
+ ` 雅典娜GNotes`
+
+### [比尔盖茨称人们从感染奥米抗病毒获得的免疫超过了新冠疫苗](/content/gnews/9/README.md)
  ` 喜国公民`
 
-### [经济崩溃政治危机导致疫苗护照悬停](/content/gnews/7/README.md)
+### [经济崩溃政治危机导致疫苗护照悬停](/content/gnews/10/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [习与普无秘书交谈决定他俩的命运](/content/gnews/8/README.md)
+### [习与普无秘书交谈决定他俩的命运](/content/gnews/11/README.md)
  ` 雅典娜GNotes`
 
-### [乌克兰是美欧与中俄较量的一张牌](/content/gnews/9/README.md)
+### [乌克兰是美欧与中俄较量的一张牌](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
 
-### [今日盖特大V推荐 — 埃内斯·坎特·自由（Enes Kanter Freedom）](/content/gnews/10/README.md)
+### [今日盖特大V推荐 — 埃内斯·坎特·自由（Enes Kanter Freedom）](/content/gnews/13/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [普京这次诉求的不是仅仅是乌克兰，而是要彻底拿下欧洲](/content/gnews/11/README.md)
+### [普京这次诉求的不是仅仅是乌克兰，而是要彻底拿下欧洲](/content/gnews/14/README.md)
  ` 雅典娜GNotes`
 
-### [2/20/2022 文贵直播：习普二人两个半小时无秘书在场的单独会谈决定了人类的命运；不费一枪一炮拿下克里米亚壮了普习二人的胆，他们越发瞧不起西方，并狂妄地认为现在是称霸世界的最佳时机](/content/gnews/12/README.md)
+### [2/20/2022 文贵直播：习普二人两个半小时无秘书在场的单独会谈决定了人类的命运；不费一枪一炮拿下克里米亚壮了普习二人的胆，他们越发瞧不起西方，并狂妄地认为现在是称霸世界的最佳时机](/content/gnews/15/README.md)
  ` 秘密翻译组-北美组`
 
-### [当年的克里米亚纵容了普京和习近平](/content/gnews/13/README.md)
+### [当年的克里米亚纵容了普京和习近平](/content/gnews/16/README.md)
  ` 雅典娜GNotes`
 
-### [要感恩战友每次大直播做的PPT](/content/gnews/14/README.md)
- ` 雅典娜GNotes`
-
-### [全球疫情更新（疫苗欺诈与金融危机）](/content/gnews/15/README.md)
+### [全球疫情更新（疫苗欺诈与金融危机）](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2/20/2022 文贵直播：俄乌之战三天前就开始了；乌克兰对于俄罗斯就相当于中共的“锁链女”，欧洲相当于“锁链女”的干爹](/content/gnews/16/README.md)
+### [2/20/2022 文贵直播：俄乌之战三天前就开始了；乌克兰对于俄罗斯就相当于中共的“锁链女”，欧洲相当于“锁链女”的干爹](/content/gnews/18/README.md)
  ` 秘密翻译组-北美组`
-
-### [普京身边的人讲了普京从北京回来之后的感受](/content/gnews/17/README.md)
- ` 雅典娜GNotes`
-
-### [真以为绑架不会发生在自己家身上](/content/gnews/18/README.md)
- ` 雅典娜GNotes`
 
 ### [【粤语配音】2022年2月20日：习近平的末日就要到了](/content/gnews/19/README.md)
  ` MOS香港部`
