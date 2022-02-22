@@ -2,34 +2,26 @@
 ---
 
 
-## 有声|为中共卖命一生 金无怠落得悲惨下场
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2049690/)
+## 希腊三月开始给未接种者准备了新款疫苗
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2049764/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-金无怠，1922年8月17日出生，广东南海人，毕业于燕京大学。曾担任美国中央情报局对外广播情报处翻译人员、档案管理人员、分析专家、中央情报局亚洲部门负责人。
+编写：太阳花
 
-根据反间谍专家、有八年特工经验的陶德.霍夫曼所著的《内部间谍–金无怠和中国对中情局的渗透》一书内容：金无怠在燕京大学就被发展加入中共，1948任职于美国驻上海领事馆，开始了他间谍生涯。1950年5月，美国上海领事馆移居香港。1951年6月，爆发朝鲜战争，据金无怠后来交代，韩战期间，一直为中共秘密传递情报。1965年归化为美国公民，1970年金为中央情报局兼分析员的职位，可以接触更高的机密。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unknown-37.png)图片来源：网络
 
-由于中共国家安全部、北美情报司司长俞强声向美国投诚，才把在美国潜伏37年中共间谍金无怠供出来。
+据称，Novavax是一种蛋白质疫苗，从1980年开始被广泛制作用于流感等疫苗，工作原理与辉瑞、摩德纳和阿斯利康不同，它是使用新冠病毒已失活的蛋白质碎片来激发人体的免疫反应。并且称，此种疫苗仅针对从未接种过Covid-9疫苗的18岁以上人群，一共注射两剂。
 
-金无怠被捕后，意识到下半辈子不是死就是终生监禁。他曾托其妻周谨予去见北京中共政府，寄希望中美两国通过谈判，像美苏那样，双方交换间谍，让他回到中国。可是当时的中共驻美大使回答记者说，“ 金无怠是美国反华势力编造的，中共政府爱好和平，从来没有向美国派过间谍。不认识这位金先生”。数月后，金无怠死在狱中，现场发现，金头上套着塑料袋，窒息而亡。
+虽然换着花样说，这不就是中共国生产的灭活疫苗吗？希腊官方数据已有80.3%的成年人口完成了接种，90%“符合资格“的人已经完成了加强针，但感染还在继续，杀戮还在继续。希望希腊剩余为数不多的未接种者能继续坚持，坚决不打毒疫苗。
 
-文字版原文：[为中共卖命一生 金无怠落得悲惨下场](https://gnews.org/zh-hans/2042801/)
+参考链接：[china.greekreporter.com](https://china.greekreporter.com/2022/02/22/%e5%a2%9e19623%ef%bc%81%e5%b8%8c%e8%85%8a%e6%8e%a5%e7%a7%8d%e5%b7%b2%e7%aa%81%e7%a0%b42%e5%8d%83%e4%b8%87%e5%89%82%e5%a4%a7%e5%85%b3%ef%bc%8c%e8%af%ba%e7%93%a6%e7%93%a6%e5%85%8b%e6%96%af%e7%96%ab/)
 
-音频处理：Fei797
-发稿：Fei797
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+*审核：阿伯塔
+校对：信心满满
+发稿：信心的选择*
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-7.jpeg)
 
  
 
