@@ -2,19 +2,39 @@
 ---
 
 
-## 北京冬奥会的收视率历史最低
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2048911/)
+## 加国省长杰森肯尼挑战特鲁多紧急法案
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2049068/)
 
-撰稿/翻译：zzballack
-上传：追着曙光跑
+作者：日本东京方舟农场—Miyali7768(文玉)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月19日消息，针对联邦自由党实施”紧急情况法”以结束卡车司机对渥太华市中心的封锁，阿尔伯塔省省长杰森·肯尼在接受Postmedia独家采访时表示，联邦政府使用加拿大最强大的法律，在目前情况下是不合理的过度扩张，违反正当程序和”侵犯”省级管辖权。并表示对此深感厌恶，将在下周初，向渥太华联邦法院提出法律挑战，以结束总理特鲁多的任意和高压行动。
 
-据《新闻极限》（Newsmax）2月22日援引《华尔街日报》报道说，NBC环球自从数十年前开始转播奥运会以来，北京冬奥会的观看人数是最少的，黄金时段的平均观众人数只有1140万人，比2018年的平昌冬奥会下降了42%。相较之下，NBC的超级碗直播吸引了1.12亿名观众。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-23-at-00.34.43.jpeg)图片来源：网络
-为了弥补观众少的问题，在为期两周多的时间里，NBC环球为广告商提供了额外的广告播放时间，这些广告通过NBC环球的电视、有线网络和流媒体平台播出。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide10-3.jpeg)
 
-NBC体育集团总裁皮特·贝瓦茨夸 (Pete Bevacqua)将人们对比赛缺乏兴趣归因于中共国“异常严厉的”防疫协议、看台上几乎没有观众以及一些奥运选手戴着防护口罩等等。鉴于大流行病源自中共国，今年的广告商选择低调行事，回避文化或社会问题。
+另外，联邦司法部长大卫·拉梅蒂此前在CTV上暗示，联邦调查局正在考虑冻结任何用信用卡向车队捐赠者账户。
 
-信息来源：[Beijing Olympics Draw Lowest Ratings Ever](https://www.newsmax.com/streettalk/beijing-olympics-nbc-covid/2022/02/22/id/1057855/)
+肯尼认为，如果特鲁多派冻结其政治对手的财政得逞而逍遥法外，允许联邦政府利用《紧急情况法》来履行普通警察职能骚扰对手，超越并篡夺加拿大各省执法的属地管辖权，这将为未来树立一个危险的先例。
+
+肯尼代理律师将要求法官暂停使用该紧急法案。
+
+参考链接：
+1.[https://gettr.com/comment/cow1g04ffb](https://gettr.com/comment/cow1g04ffb)
+2. [https://edmontonsun.com/opinion/columnists/gunter-alberta-premier-jason-kenney%E3%80%82](https://edmontonsun.com/opinion/columnists/gunter-alberta-premier-jason-kenney%E3%80%82)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+
+总编：Zion文恩
+编辑：静言
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 
  
 

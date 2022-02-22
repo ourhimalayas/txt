@@ -2,25 +2,34 @@
 ---
 
 
-## 新西兰毛利人新冠疫苗接种率停滞不前
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2048614/)
+## 日媒解析中共冬奥会所暴露的人权问题
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2048797/)
 
-**编译：verifunny**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-22-225503.jpg)
-一位毛利人健康分析师说，随着 Covid-19 疫苗接种团队在新西兰遇到“最后一道抵抗墙”，毛利人的第一针和第二针疫苗接种情况已经停滞不前。
+作者：日本方舟农场 – Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月18日，日媒从三个方面解析了中共冬奥会所暴露出来的人权现状。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/4-47.jpg)
+首先，瑞典冠军回国后直言中共国不应该有资格承办奥运会，德国双金牌选手回国后表示未来再也不会去中共国，都已经表明，参加冬奥会的运动员们在当地受到了极大的压力。而人权观察组织无法保证为人权发声的运动员的安全，也表明北京是极其凶险之地。
 
-独立研究员兼分析师拉维里·陶努伊博士说，毛利人和社区卫生服务提供者已将新西兰全国疫苗接种和毛利人疫苗接种之间的差距从五个月前的 25% 缩小到 12 岁及以上人群的 9%。
+其次，中共手握国家安全法这一部万能的恶法，所有在中共国为新疆、西藏、香港、台湾发声的人，都会被中共定义为试图分裂国家的罪名，而运动员们是没有能力承担触碰国家安全法的风险的。
 
-自 11 月 1 日以来，已有超过 114,000 名 12 岁及以上的毛利人接种了疫苗，但由于许多地区卫生局地区报告的第一次和第二次疫苗接种人数减少，疫苗的推广速度现在明显放缓。
+此外，国际奥委会也对这样的高压政策默不作声，不但撤销了在东京2020年奥运会上允许运动员为人权发声的所有行为，甚至将在本届冬奥会上为人权发声的行为列为禁忌事项。嘉宾特别指出，本届冬奥会不仅暴露出中共国让人担忧的人权现状，也突显出国际奥委会就是其自身规则的最大破坏者。
 
-陶努伊博士说：“这些数字……表明疫苗接种工作在最后 10% 到 20% 的毛利人中遇到了顽固的抵抗，” 他还说“随着 Omicron 的扩散，最大的风险在于毛利人的高人口、高度贫困和偏远地区。家庭隔离对毛利人来说是一个主要风险。”
+参考链接：[20220218日媒報導CCP冬奧會人權](https://www.gettr.com/post/pvxgvh5446)
 
-在旺格努伊区卫生局地区，毛利人的疫苗接种率在两周内几乎没有变化，87.2% 符合条件的毛利人第一次接种疫苗，83.3% 的人接种了两次疫苗。这与两周前相比有 0.2% 和 0.3% 的差异。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-该地区的毛利人需要进行 400 多个首次疫苗接种，才能达到政府 90% 的目标，大约 1000 个疫苗接种将达到两针疫苗接种的里程碑。
+总编: Zion文恩
+编辑: 宁文静   
+校正/发稿：Fei797
 
-**新闻来源：** [https://www.newstalkzb.co.nz/news/national/covid-19-omicron-outbreak-final-wall-of-resistance-maori-vaccination-rollout-stalls/](https://www.newstalkzb.co.nz/news/national/covid-19-omicron-outbreak-final-wall-of-resistance-maori-vaccination-rollout-stalls/)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

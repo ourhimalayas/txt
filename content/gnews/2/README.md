@@ -2,27 +2,56 @@
 ---
 
 
-## 视频|俄乌之战已开始 欧美普习无路可退
-` MOSvideo` [轉載自GNews](https://gnews.org/zh-hans/2048915/)
+## 《苦女》The Suffering Women
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2049073/)
 
-制作：香草山视频部
+秘密翻译组-北美组
 
-在2月20日大直播中，郭文贵先生爆料，普京和习近平曾经进行过一次长达两个半小时、仅通过翻译器沟通的绝密谈话。
+苦女                     
+The Suffering Women
 
-据悉，普习绝密谈话包括俄乌危机、台湾危机的应对方案，以及如何在危机中自保的对策。他们很清楚这次危机处理的成败，直接决定了二人独裁统治是否会被内部推翻。因此，二人决定建立生死政治军事联盟，企图发动战争来巩固他们的统治。
+可叹
+Alas
+少女无辜遭祸端
+The innocent little girl became a victim of human trafficking
+音信杳杳如纸鸢
+ No one has heard from her ever since
+二十 四载拘囚 骨肉离散
+Twenty-four years of captivity, separated from her loving family
+叫破苍穹 谁见薄命红颜 
+Has anyone seen this poor girl? She has nowhere to turn for help
 
-郭先生透露，普京目前的处境跟习非常相似，他也急需一场战争来解决内部的政治和经济压力。俄乌危机、台湾危机的发生，实质上是普京和习近平个人的政治安全的需要。
+剪舌拔齿和血咽
+They cut her tongue and pulled out her teeth
+链锁玉颈双蛾残
+Chained her delicate neck and destroyed her beautiful complexion
+修罗场内不见天
+In a hopeless plight and a world of darkness 
+炼狱泯人寰
+Her tragedy in that living hell is incomparable in this world
 
-现在俄乌局势的决策权不在普京手里，几方势力都在利用乌克兰角力。美欧在利用乌克兰整个国家的安全来消磨普习的意志。普习现在的处境进退维谷，不打，普习一定被内部推翻；打，普习一定会被全世界消灭。
+此生无日望生还
+There is no hope for her to return to her joyful life
+逃离恨海待何年
+When will she be able to escape from the sea of misery? 
+万念俱灰 肝肠痛断
+With all hopes dashed to pieces, she is overwhelmed by grief
+  
+痴语问苍天 一叹泪涟涟
+She asks the heaven why she has to suffer, heaven fell silent, only tears linger
+可叹盛世谎弥天
+What a horrendous tragedy, the so-called “prosperous China” is full of lies
+ 生如蝼蚁命难全
+Human life means nothing in the eyes of the Chinese Communist Party
+举国沉酣浑不觉
+But the whole country is still asleep, without realizing what’s really happening
+遭逢胜过《窦娥冤》
+The injustice she has been suffering is even worse than the story of Snow in Midsummer
 
-关于俄乌之战，郭先生指出，战争实际上已经从三天前，俄乌开炮就开始了。台湾也很快有动静。普习这次绝密的单独对话，决定了他们个人和全世界的命运。
-
-发稿：谐趣园
-
-**更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+灵魂割礼实可哀
+The mass mutilation of the souls is truly tragic
+他日谁上断头台
+Retribution for the wicked will surely come on Judgment Day
 
  
 
