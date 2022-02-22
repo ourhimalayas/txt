@@ -2,51 +2,29 @@
 ---
 
 
-## 研究证实 伊维菌素治疗奥米克戎胜过其他9种药物
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/2047063/)
+## 突发：英国女王感染中共病毒恐将祸及中英关系
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2047583/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Picture1-21.png)
+作者：东京樱花团｜捆绑CCP一千年
+![](https://lh5.googleusercontent.com/gxfu2JLQKHJdZ2Im6uO6w9prIkRCLhGoEnx-e0O3LLvA8GjJ_snh1Yq_jKlA5YlygNuviTQ6QO9K2N9jslW3YBxestUMl0OqCl7HW9057RPiemZTO79TgctC-cemQbexvdy3esN9)[*图片来源*](https://cdn.hk01.com/di/media/images/dw/20220221/572390263159263232580234.jpeg/lCpt7IdzNbJ4lbEeOWunwzoC851gXb4iLa4F1y2uBdc?v=w1920)
+**英国女王伊丽莎白二世中共病毒检测呈阳性，习近平给女王发慰问电。这一事件是英国政府刚刚做出取消针对大流行各种限制措施后的突发事件。这一事件无疑将影响各国应对中共病毒疫苗政策放缓的努力。**
 
-图片来自原文
+据中共国新华社北京22日16时消息称，“国家主席习近平致电英国女王伊丽莎白二世，就女王感染新冠病毒致以慰问并祝其早日康复。”习近平对此担心会引发“中英关系”危机，便黄鼠狼给鸡拜年，不安好心地在慰问电中提及“愿同英方一道努力，以今年两国建立大使级外交关系50周年为契机，推动双边关系取得新进展。”
 
-在对奥米克戎(Omicron)变体与几种治疗药物的计算分析中，数据显示伊维菌素的效果最好。
-
-研究人员用计算分析法评估了10种针对奥米克戎变体的药物性能，发现伊维菌素的性能优于所有这些药物，包括辉瑞公司的新药nirmatrelvir（Paxlovid），该药已花费纳税人52.9亿美元，每个疗程花费529美元。
-
-伊维菌素通过抑制复制来降低病毒载量，预防性使用时可减少86%的感染，加速康复，防止器官损伤，降低住院和死亡的风险，一个疗程的费用在48美元至95美元之间，取决于你所在的地区。
-
-根据心脏病专家彼得-麦卡洛博士（Dr. Peter McCullough）的说法，早期治疗可以降低得中共病毒（COVID）的风险，这包括身体和精神健康状况。
-
-世界卫生组织称非洲是 “世界上受影响最小的地区之一”。
-
-有几个因素可能影响非洲的感染率。来自日本的一项研究表明，在医生被允许合法地给病人开伊维菌素的短短12天后，病例急剧下降。
-
-东京医学会主席注意到非洲的低感染率和死亡人数，在那里，许多人使用伊维菌素进行预防，并将其作为治疗盘尾丝虫病（一种寄生虫病，也称为河盲症）的核心策略。
-
-99%以上的河盲症感染者生活在31个非洲国家。
-
-除了伊维菌素在非洲的使用外，其他药物也很常见，如长期用于治疗和预防疟疾的羟氯喹和氯喹，这些药物也是非洲的地方病。
-
-在美国，弗拉基米尔-泽连科博士(Dr. Vladimir Zelenko)已经发表了使用羟氯喹和锌治疗中共病毒（COVID-19）的成功结果。
-
-最后，青蒿，也被称为甜蒿，是一种用于治疗疟疾的综合疗法的草药。它在中国传统医学中用于治疗发烧已有2000多年。
-
-今天，青蒿素，一种青蒿的代谢物，是目前治疗疟疾的选择。自2003年SARS爆发以来，该植物也被研究用于治疗冠状病毒，并取得了良好效果。
-
-备注：
-
-- 疫苗：是指新冠疫苗
-- 中共病毒：是指新冠病毒Covid-19
-- Covid疫苗本身就是随时爆发的病毒
-- 我们不反疫苗，只针对假疫苗
-- 我们不反科学，只针对反人类
+- ***延展阅读：***[***肯辛顿宫表示，女王出现“轻微的症状”，威尔士亲王8日见到他母亲后也检测呈阳性***](https://www.bbc.com/news/uk-60453566)
 
 
-新闻来源链接：[https://childrenshealthdefense.org/defender/ivermectin-beats-meds-treating-omicron/](https://childrenshealthdefense.org/defender/ivermectin-beats-meds-treating-omicron/)
+女王感染中共病毒一事，[白金汉宫证实](https://www.bloomberg.com/news/articles/2022-02-20/queen-tests-positive-h-k-mulls-stricter-measures-virus-update%0a%0a)，英国 95 岁的君主伊丽莎白二世女王的Covid-19检测呈阳性。另外，[美联社](https://www.nbcnews.com/news/world/britain-lift-covid-restrictions-queen-tests-positive-elizabeth-corona-rcna17039%0a%0a)称：英国首相鲍里斯·约翰逊取消了所有对中共病毒的限制措施后，英国女王检测呈阳性。
 
-本文作者：Rebecca (一切心皆不可得！)
-上传排版：Hong
+该消息援引首相约翰逊的话说，“白金汉宫周日宣布女王中共（新冠）病毒检测呈阳性是‘提醒人们这种病毒还没有消失’。所以那些等待这场战争彻底结束再取消剩余规定的人将在很长一段时间内限制英国人民的自由。”
 
+白金汉宫表示，“女王出现了类似感冒的轻微症状，但预计未来一周将在温莎继续轻松工作。”
+
+2022年2月22日
+
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

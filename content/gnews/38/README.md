@@ -2,44 +2,40 @@
 ---
 
 
-## 直播历史:冬奥会变冬眠会普京随扈16人染病盘古狙击手死
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2046574/)
+## 俄罗斯财政部推出数字货币法案，无视央行的反对意见
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2046620/)
 
-G-TV视频链接：[https://gtv.org/video/id=621264611408ee3a03a25822](https://gtv.org/video/id=621264611408ee3a03a25822)
+#### 翻译/编辑：小红帽
 
-**郭文贵先生：**所以今天七哥在这直说，今天大好的日子，大好的日子，共产党的冬奥会开没开成“冬眠会”你们自己评价去。普京这16个人染上病毒结果如何、你看看啥样儿吧。盘古后面死人，就地狙击手狙击队长死掉意味着什么？整个奥运会开幕式屏蔽掉盘古，又在盘古直播，这有多不要脸？所谓33国元首在全世界加在一起的钱、加在一起的力量连美国一个州都不如，我告诉你，美国，美英法，是吧？
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/7def7a23-8979-40e2-a349-f0299951ccc5.jpg)图片来源： cointelegraph.com
 
-这过去都没去，如何……你这从过去大英帝国和美利坚共和国和中国的整个的外交史，对中国人的尊重和文明的来往，再看今天的冬奥会，中国人到了世界上人类上最差的程度，中国人再不救自己（就）没人救咱。
 
-现在共产党怕新中国联邦，怕七哥，怕盘古，我们新中国联邦我们所有战友们在H-Pay全球流行、金融新未来、制定新金融标准情况下，更应该看到我们的未来，是吧？这个今天的直播非常有意义！虽然一夜没睡觉，很兴奋，随时紧急大直播啊，好不好？我就今天我就说到这儿，我先下线。
+根据Cointelegraph 2月22日报道，**俄罗斯财政部在与俄罗斯中央银行（CBR）漫长的对决中提高了赌注，正式提出一项法案，建议对数字资产进行监管，而不是禁止数字资产。**
 
-字幕来源：[2022年2月4日《文贵大直播》全文字版](https://gnews.org/zh-hans/1961700/)
+周一，俄罗斯财政部向政府提交了一份“关于数字货币”的联邦法律草案。这一阶段的立法程序先于法案提交议会审议。
 
-编辑整理：Jacques；
+该机构将“数字货币合法市场的形成，以及确定其流通规则和参与者范围”作为这一举措的理由。该法案的作者强调，该法案并不寻求赋予数字货币以法定货币地位，而是将加密货币定义为一种投资工具。
 
-字幕文件制作：小满；
+该法案为促进数字资产流通的平台提出了许可制度，并规定了此类运营商应遵守的审慎、风险管理、数据隐私和报告要求。**合法购买和销售加密货币只能通过银行账户进行，并建议加密货币平台和银行都引入了解你的客户程序（KYC）。**
 
-视频制作及上传：Cindy；
+该立法还要求数字资产运营商告知零售客户与加密货币交易相关的风险。个人必须通过一项测试，评估他们对加密投资行为和风险意识的了解。通过测试的人将受到每年60万卢布（约合7900美元）的投资限额；未通过测试的人每年最多只能投资5万卢布（650美元）。企业和合格投资者将不受年度限额的限制。
 
-G-News发布：小满；
+此外，**该法案引入了加密采矿的正式定义，并指定了加密市场参与者可以向税务机关报告其活动的机制。**
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+财政部的法案是在俄罗斯银行将自己的数字资产框架提交给财政部审查的几天后发布的。俄罗斯中央银行的立场保持不变：发行数字资产并促进其流通被视为非法，而银行和其他金融机构不应该允许持有或交易加密货币。最新草案中还包含的一项新条款–提议取缔加密货币广告。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+财政部和中央银行预计，未能在周五之前调和他们的立场，反而产生了两项相互矛盾的立法。财政部的新闻稿讽刺地提到，中央银行的提议“将在法案制定的后期考虑，只要它们不与财政部的做法相抵触。”
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+新闻链接：[Russia’s Finance Ministry introduces digital currency bill, brushes off central bank’s objections](https://cointelegraph.com/news/russia-s-finance-ministry-introduces-digital-currency-bill-brushes-off-central-bank-s-objections)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+发布:Frank2021
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
