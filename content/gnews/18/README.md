@@ -2,48 +2,44 @@
 ---
 
 
-## 孩子像你是彻底失败，长江后浪推前浪，哪一浪都不一样
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2046443/)
+## 贩卖人口罪中西方刑事处罚差异很大
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2046474/)
 
-G-TV视频链接：[https://gtv.org/video/id=621263a11408ee3a03a25798](https://gtv.org/video/id=621263a11408ee3a03a25798)
+#### **【雅典娜观察】和您一起洞察世界**
 
-**郭文贵先生：**我觉得像文斌我觉得你有孩子，我就跟你视频两次我就知道，你是个典型的就是一千年前的中国人的脑袋、中国人的爹，说你一百年都对不住你，你是一千年。就是你宠孩子你把孩子宠得很坏很坏，你管孩子你会管得完全不着路，我都不知道你媳妇咋跟你来一起管孩子的？就你一看我就知道了，你孩子那一视频，就是一千年前中国爹的形式，所以你问这个问题非常好，我看到他能这样管孩子。
+整理/编辑：文泓
 
-Jessica，我看她宠孩子，上次我们去直播，我们的小Ryan出来，多可爱个小伙子，Ryan是吧？但是我一看我就担心了，这Jessica接下来就开始什么？就要把妈妈的所谓的想法强加给孩子，我给你说那就完了。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/12-28.png)图片来源：openDemocracy & 雅典娜设计组
 
-如果你孩子像你的时候，你就彻底失败了。就是哪怕你的优点他像你，你也失败了，孩子不像你，孩子比你强或者比你弱，只要不像你，就是成功。中国人说“长江后浪推前浪，一浪把后浪推到沙滩上”，我说不是的，长江后浪推前浪，一浪和一浪绝不一样，这才叫浪，哪一浪都不一样，没有重复的浪。“长江后浪推前浪，一浪和一浪都不一样”，这叫浪。
 
-中国人是“一浪一定要把前浪拍在沙滩上”，这不是中国的邪恶的心理吗？对立的心理，永远是对立的，不是你死就是我活。你看到真正的大海的浪真的是拍在沙滩上吗？是一浪和一浪都不一样，这就是我觉着它就是浪，你为什么要把对方拍在沙滩上？你为什么一浪更比一浪强？放狗屁的！
+自中共篡政以来贩卖人口犯罪从未停止过，现在社交媒体上广为引述的一个说法是，在中共国买一个大活人受到的刑事处罚，比买一只珍稀野生动物还要轻。那么同样的罪名，在中西方法律规定有何不同？
 
-从来你孩子的浪你不会到大海，你不会到山上去，你永远在沙滩上待着，这不是扯吗？
+中共国刑法有关“拐卖妇女、儿童罪”的规定是：拐卖妇女、儿童的，处五年以上十年以下有期徒刑，并处罚金。有特别严重情节的可以判处十年以上有期徒刑或者无期徒刑，甚至死刑。
 
-字幕来源：[2022年2月4日《文贵大直播》全文字版](https://gnews.org/zh-hans/1961700/)
+对于买家一方，中共国刑法中原本称对于“没有虐待行为”的买家“可以不追究刑事责任”，2015年8月29日中国人大通过的刑法修正案(九)将该条款修改为“收买被拐卖的妇女、儿童，对被买儿童没有虐待行为，不阻碍对其进行解救的，可以从轻处罚；按照被买妇女的意愿，不阻碍其返回原居住地的，可以从轻或者减轻处罚。”
 
-编辑整理：Jacques；
+刑法第二百四十一条单列第一款规定，“收买被拐卖的妇女、儿童的，处三年以下有期徒刑、拘役或者管制”。就是说，**收买被拐者最高只会判刑****3****年。**
 
-字幕文件制作：小满；
+在西方发达国家，德国的贩卖人口案件多涉及偷渡、黑工或强迫卖淫，贩卖人口刑罚规定如下：
 
-视频制作及上传：Cindy；
+主要涉及有组织的偷运人员（包括未成年人）非法入境，强迫从事卖淫或其它非法劳动，多由犯罪团伙跨境协同进行。**因此法律也针对对这一链条的各个环节，只要参与相关活动，不论是买是卖，都要承担同等刑责。**
 
-G-News发布：小满；
+德国刑法第232条对“贩卖人口”的基本定义是“利用他人的个人或经济困难、以及与境外居留有关的无助境况，招募、运送、提供住宿或收留他人”，并以下列后续行为之一为目的：通过强迫其卖淫、工作、乞讨或从事刑事犯罪活动对受害者进行剥削；对受害者实施奴役或类似手段剥夺人身自由；非法摘取受害者器官。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+符合上述罪状的被告可被处以6个月到5年徒刑。在此基础上，**被告如果对受害人使用暴力、以威胁或欺骗使其就范、通过绑架或假借他人名义诱拐，量刑可提高至****10****年徒刑**。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+相对西方国家的一视同仁，中共国**对买方和卖方的最高刑罚明显不匹配，对买方的打击力度要弱得多，**而且地方部门在执法中往往都是从轻、甚至不予处罚。中共政府在立法层面上肆意的放纵，变相鼓励人口买卖。中共恶法为罪恶背书，中共独裁治下的司法制度根本不保护普通人，锁链女事件绝不会是最后一起。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+参考链接：[贩卖人口在德国面临什么处罚](https://www.dw.com/zh/%E8%B4%A9%E5%8D%96%E4%BA%BA%E5%8F%A3%E5%9C%A8%E5%BE%B7%E5%9B%BD%E9%9D%A2%E4%B8%B4%E4%BB%80%E4%B9%88%E5%A4%84%E7%BD%9A/a-60859462)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+*发布：tianzhihuan*
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

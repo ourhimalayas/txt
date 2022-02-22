@@ -2,40 +2,32 @@
 ---
 
 
-## 俄罗斯财政部推出数字货币法案，无视央行的反对意见
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2046620/)
+## 视频|郭先生揭密习普二人密谈内容
+` MOSvideo` [轉載自GNews](https://gnews.org/zh-hans/2046673/)
 
-#### 翻译/编辑：小红帽
+制作：香草山视频部
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/7def7a23-8979-40e2-a349-f0299951ccc5.jpg)图片来源： cointelegraph.com
+![](https://assets.gnews.org/wp-content/uploads/2022/02/logo-s2.png)
 
 
-根据Cointelegraph 2月22日报道，**俄罗斯财政部在与俄罗斯中央银行（CBR）漫长的对决中提高了赌注，正式提出一项法案，建议对数字资产进行监管，而不是禁止数字资产。**
 
-周一，俄罗斯财政部向政府提交了一份“关于数字货币”的联邦法律草案。这一阶段的立法程序先于法案提交议会审议。
+在2月18日的大直播中，郭文贵先生揭密了习近平与普京的密谈内容，指出他们发动战争的根本目的，是为其个人安全和政治利益服务。
 
-该机构将“数字货币合法市场的形成，以及确定其流通规则和参与者范围”作为这一举措的理由。该法案的作者强调，该法案并不寻求赋予数字货币以法定货币地位，而是将加密货币定义为一种投资工具。
+郭先生透露，习近平将中国人一万多亿美元的血汗钱交给普京，换来他们两个多小时的单独密谈。无非就是习近平在怂恿普京，二人同时发动侵略战争，其代价是美国的制裁，把中俄踢出SWIFT系统。但是二人的政治地位会得到空前的巩固，一切政治对手也都会被消灭。如果不发动战争，那么中俄内部的政治斗争，则会让二人丧命。因为一切对外战争，都是内部政治灾难的延续，对中共和俄罗斯来说尤其如此。这两场战争看似政治野心，实则是习近平和普京个人安全和政治安危所需。
 
-该法案为促进数字资产流通的平台提出了许可制度，并规定了此类运营商应遵守的审慎、风险管理、数据隐私和报告要求。**合法购买和销售加密货币只能通过银行账户进行，并建议加密货币平台和银行都引入了解你的客户程序（KYC）。**
+郭先生进一步解密说，乌克兰其实是世界政治中的一枚棋子，美国和欧洲正在利用乌克兰人民的生命和安全，来消磨习普二人的意志。他们无论是否发动侵略战争，都无法避免灭亡的命运。
 
-该立法还要求数字资产运营商告知零售客户与加密货币交易相关的风险。个人必须通过一项测试，评估他们对加密投资行为和风险意识的了解。通过测试的人将受到每年60万卢布（约合7900美元）的投资限额；未通过测试的人每年最多只能投资5万卢布（650美元）。企业和合格投资者将不受年度限额的限制。
+发稿：Yuki jiang
 
-此外，**该法案引入了加密采矿的正式定义，并指定了加密市场参与者可以向税务机关报告其活动的机制。**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpeg)
 
-财政部的法案是在俄罗斯银行将自己的数字资产框架提交给财政部审查的几天后发布的。俄罗斯中央银行的立场保持不变：发行数字资产并促进其流通被视为非法，而银行和其他金融机构不应该允许持有或交易加密货币。最新草案中还包含的一项新条款–提议取缔加密货币广告。
+**更多资讯，更多关注**
 
-财政部和中央银行预计，未能在周五之前调和他们的立场，反而产生了两项相互矛盾的立法。财政部的新闻稿讽刺地提到，中央银行的提议“将在法案制定的后期考虑，只要它们不与财政部的做法相抵触。”
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
 
-新闻链接：[Russia’s Finance Ministry introduces digital currency bill, brushes off central bank’s objections](https://cointelegraph.com/news/russia-s-finance-ministry-introduces-digital-currency-bill-brushes-off-central-bank-s-objections)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
 
-发布:Frank2021
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

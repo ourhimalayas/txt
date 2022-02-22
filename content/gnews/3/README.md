@@ -2,24 +2,33 @@
 ---
 
 
-## 中日财经爆|日经指数2月22日收于26,449点 连续4个交易日下跌
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2046598/)
+## 视频|习普政治联盟的历史由来
+` MOSvideo` [轉載自GNews](https://gnews.org/zh-hans/2046659/)
 
-撰稿：东京樱花团/peterwong
+制作：香草山视频部
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/日经指数2月22日收于26449点-连续4个交易日下跌.png)[图片来源](https://www.google.com/search?q=%E6%97%A5%E7%BB%8F%E6%8C%87%E6%95%B0&amp;rlz=1C1YKST_enUS900US901&amp;oq=%E6%97%A5%E7%BB%8F%E6%8C%87%E6%95%B0&amp;aqs=chrome..69i57j0i12i512l4j46i12i512j0i12i512l4.1901j0j15&amp;sourceid=chrome&amp;ie=UTF-8)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/logo-s2.png)
 
-22日东京股市因乌克兰局势收紧，几乎全部贬值。日经平均指数（225只成分股）较前一交易日最大下跌逾650点，最终下跌461.26点，收盘报26,449.61点，连续4个交易日下跌。
 
-东京证交所股价指数（TOPIX）显示整个东京证券交易所第一部的价格走势，下跌29.60点，收盘报 1881.08点。
 
-消息来源:
+在2月20的大直播中，郭文贵先生解读了普京和习近平政治联盟的历史由来。
 
-[日経平均終値、４６１円安の２万６４４９円](https://www.yomiuri.co.jp/economy/20220222-OYT1T50171/)
+据郭先生介绍，中共和俄罗斯的结盟已经有很多年。2012年，习近平执政后访问俄罗斯，参观了俄罗斯的国防部战略指挥中心。从那时起，习与普京就成了“生死兄弟”，结成了政治联盟。双方对外宣布，将把贸易额度从200万美元提升到2000亿美元，之后又签署了4600亿美元的现金购买石油大单。共军与俄军开展了5次全面演习，俄罗斯对日本北方四岛提出领土要求，普京则默认习近平“统治”亚洲，任由中共对台湾肆意妄为。
 
-*校对：东京樱花团 / 文小白*
-*发布：东京樱花团 / 老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+中共与俄罗斯结盟后，普京一反常态，改口为中共恶劣的人权犯罪辩护，称领导14亿中国人无需人权。中共与俄罗斯宣布军事上成为“全天候兄弟战略伙伴关系”，俄罗斯卖给中共飞机发动机技术，而结盟后的军事演习，则是中共建党百年以来的总和。
+
+发稿：Yuki jiang
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpeg)
+
+**更多资讯，更多关注**
+
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

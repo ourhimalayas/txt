@@ -2,53 +2,27 @@
 ---
 
 
-## 美国前国务卿蓬佩奥排定三月初将访问台湾
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2046144/)
+## 有声｜英国将为 74 岁以上的老人注射第4剂疫苗
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2046365/)
 
-作者：纽约香草山医疗部-云豹，香草山教育部 Naughty(文行)
+By:**秘翻新闻**
 
+**2022-02-22**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/9-27.png)图片来源 Andy Rain/EPA-EFE
+据合众国际社2 月 21 日报道， 英国疫苗接种和免疫联合委员会，简称JCVI，于周一在一份声明中建议，为最脆弱的人在春季开始接种疫苗加强针，范围包括 74 岁以上的人、养老院居民和 12 岁及以上免疫功能低下的人。这将是为英国老年人提供的第四剂中共病毒疫苗，同时也是为免疫系统严重受损的人提供的第五剂疫苗。
 
+JCVI 在声明中补充称，疫苗免疫力会随着时间的推移而下降，该委员会的疫苗接种主席 魏·沈·利姆(Wei Shen Lim )教授在声明中称，为了对人群中最脆弱的个体保持高水平的保护，建议在今年晚些时候接种额外的疫苗剂量。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+该公告发布的同一天，英国首相鲍里斯·约翰逊（Boris Johnson ）取消了对中共病毒的限制措施。
 
+新闻来源[**https://www.upi.com/Top\_News/World-News/2022/02/21/fourth-covid-19-vaccine-shot-over-75-vulnerable/9031645469430/**](https://www.upi.com/Top_News/World-News/2022/02/21/fourth-covid-19-vaccine-shot-over-75-vulnerable/9031645469430/)
 
+秘翻新闻 文洋 编译报道
 
-2月21日，多家媒体报道，美国前国务卿蓬佩奥将于3月3～5日访问台湾，分别与台湾总统蔡英文和外长吴钊燮会面交谈，在智库发表演讲，还将与台积电及中钢等公司的负责人进行不公开会谈。
+发布 : 恩典
 
-过去两年，中共国加大了对台湾的军事和外交压力，试图迫使台湾接受其统治。台湾政府则坚持表示只有台湾人民有权决定台湾的未来，并称如果受到攻击，会奋起自卫。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-12.jpg)
-蓬佩奥在国务卿任内，积极支持台湾参与国际社会活动，并抨击中共军事威胁台湾。在卸任前还特别宣布取消行政部门与台湾接触的限制，确认美台关系，不需要、也不应该因为官僚体制的自我设限而受到束缚，此政策宣示在实质上大幅提升了台美往来的层级。
-
-郭文贵先生20日爆料称，习近平与普京进行了绝密会谈，组成生死军事联盟，准备通过发动战争来保持个人的政治安全。而一贯对中共强硬的蓬佩奥此时出访台湾则意味深远。
-
-参考链接：
-1. [《獨家》龐皮歐下週來訪 3/3晉見蔡總統表達對台灣支持](https://news.ltn.com.tw/news/politics/breakingnews/3835941)
-2. [U.S. former top diplomat Pompeo, sanctioned by China, to visit Taiwan](https://www.reuters.com/world/asia-pacific/mike-pompeo-who-riled-china-while-office-visit-taiwan-2022-02-21/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-
-总编：DM
-编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

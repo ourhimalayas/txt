@@ -2,49 +2,24 @@
 ---
 
 
-## 探望锁链女的民众被中共警察逮捕
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2046143/)
+## 外国记者代表组织批评中共在奥运期间制造的糟糕待遇
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2046358/)
 
-作者：台湾宝岛农场 – 寻文客
+#### 撰稿：彩虹
 
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-2-13.jpg)图片来源：InsiderSport
+《国会山报》2月21日根据《卫报》（The Guardian）报道，中国外国记者俱乐部（FCCC）是一个代表外国记者的组织，该组织发布了一份声明称，它对（中共）安全官员在奥运会期间对待经认可的外国媒体的方式感到“沮丧”，称中共政府与媒体互动的方式“违背了奥林匹克精神”。
 
+声明指：“（中共）政府的干预在奥运会期间经常发生。”作为（中共）政府支持的网上骚扰和宣传战役的一部分，一些外国记者成为了在线骚扰的目标和受害者。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+声明举例说：“在一次奥运会滑雪比赛之后，一名外国记者被一名北京奥运会官员阻止在奥运会混合区采访一名香港运动员，而这块区域应该是受国际奥林匹克规则管辖的。最明显的是，荷兰国家广播公司的一名记者在一次电视直播中被便衣保安人员拖出镜头，尽管他几分钟前还站在警察指示的位置上。”
 
+中国外国记者俱乐部在声明中强调，“中国外国记者俱乐部敦促中共当局遵守他们自己对外国媒体在中国的认可规则：即允许记者在没有国家干预的威胁下预订和进行自己的采访，并在公共区域自由报道。不幸的是，在全球对中国的关注比以往任何时候都多的时候，这两条规则都没有得到执行。”
 
+**新闻来源**
 
-2月19日，中共国“铁链女”事件继续在国内外发酵，有外媒体报道，两名想要探望被非法拘禁24年“铁链女”的女性，2月13日在江苏徐州被中共警察逮捕。中共警察声称这两名女性涉嫌“寻衅滋事”，而“寻衅滋事罪”是中共治下用来对付持不同意见者的“口袋罪”。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-12.jpg)
-报道描述了“铁链女”悲惨的生活状况，强调了“公众要求调查非法拘留和人口贩运呼声走高”的情况下，中共官员从否认锁链女是受害者到逮捕锁链女丈夫及两名同伙的态度转变，并列举了中国顶尖大学校友联名致公开信，要求彻底调查锁链女事件，却被中共审查封杀的现实。
-
-尽管有分析者认为舆论的关注有助于中共国类似事件的彻底解决，但郭文贵先生认为，由于中共70年的邪恶统治，这个事件不会像普通人希望的那样得到解决。只有彻底消灭中共，这些罪恶才能从中华大地上消失。
-
-参考链接：
-[China: Police Arrest People for Trying to Find Woman ‘Chained in Hut’](https://www.breitbart.com/asia/2022/02/19/china-police-arrest-people-for-trying-to-find-woman-chained-in-hut/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-
-总编：DM
-编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+[Journalists group calls China’s handling of games ‘contrary to the Olympic spirit’](https://thehill.com/homenews/media/595186-journalists-group-calls-chinas-handling-of-games-contrary-to-the-olympic)
 
  
 

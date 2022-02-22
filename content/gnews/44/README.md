@@ -2,22 +2,51 @@
 ---
 
 
-## 财经｜俄乌战火一触即发 股市大泻 卢布汇价急跌 金价重回1900美元大关
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2045413/)
+## 日媒聚焦彭帅选手以及谷爱凌双重国籍事件
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2045498/)
 
-**撰文/ 港台前线｜发布日期/ 22/02/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/俄烏戰火一觸即發-股市大瀉-盧布匯價急跌-金價重回1900美元大關.jpg)
-**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
+作者：日本方舟农场 – Andy5
 
-今日（22日）较早时，俄罗斯总统普京签署法令，宣布乌克兰东部两大亲俄势力范围，顿涅茨克及卢甘斯克，正式成为独立国家，并同时派遣军队到顿巴斯地区“维和”。美、英、欧盟等国家认为俄罗斯的做法严重违反国际法，推翻了《明斯克协议》中两国停火安排，此举可以被视为俄罗斯正式对乌发动的侵略行为。
 
-消息触发金融市场巨大动荡，美股假期休市，但三大指数期货市场仍出现恐慌性大跌，道指期货急泻超过460点，标指及纳指跌幅同样超过1%，另外，德国和法国股市下挫超过2%，亚太区股市亦受严重影响，恒指今早开盘大跌800点。
 
-俄罗斯方面的情况更加糟糕，MOEX指数21日收市大跌10.5%，是自克里米亚战争以来最大单日跌幅，卢布兑美元汇价一泻千里，24小时内跌幅超过4%。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-不过，俄乌紧张局势的恶化同时带动金价显著回升，黄金现货价格重上1900美元的关键水平，最新报1,907.93美元每盎司，升至近8个月最高点。
 
-来源｜[Yahoo股市](https://tw.stock.yahoo.com)
+
+当地时间2月18日，日媒进一步分析了彭帅的遭遇，以及她在冬奥会上出镜的意义。
+
+国际奥委会主席巴赫抵达北京后，与彭帅进行了午餐会，但是中共并没有释放出任何会面的具体内容，甚至没有像上次视频会见时那样，放出一张照片，这引起了嘉宾们的疑问。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide6-5.jpg)
+其中，在彭帅接受法国媒体采访时，明明记者和彭帅都能说流利的英文，但国际奥委会和中共偏偏要安插一名翻译作为监视。尽管记者的所有问题都经过了中共的事先审核，但这次采访最关键的是，彭帅承认一开始揭发张高丽性侵的爆料文章，是她本人所写并由她本人发布到社交平台上的这个事实。
+
+嘉宾还特别指出，在2月8日谷爱凌夺冠的那场比赛上，中共特意安排巴赫和彭帅观战，就是为了显示出巴赫在为谷爱凌站台，并且以彭帅来吸引火力，降低国际上对谷爱凌双国籍事件的注意力。
+
+参考链接：
+1. [20220218日媒聚焦「彭帥選手」談及「谷愛凌」](https://www.gettr.com/post/pvow6656fa)
+2. [彭帅现身北京首钢滑雪大跳台](https://www.zaobao.com.sg/realtime/china/story20220208-1240664)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+
+总编/编辑：DM
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

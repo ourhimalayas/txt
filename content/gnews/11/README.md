@@ -2,26 +2,44 @@
 ---
 
 
-## 中共国聚焦非洲
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2046512/)
+## 让孩子孝敬你时，父母先学会尊重你的孩子和爱孩子所爱
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2046554/)
 
-翻译/整理: 萧亦
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Immagine-3.jpg)图片来自timeforafrica.it
-十三年达到了 230 亿美元。几乎是美国、日本、德国和法国机构提供的总和的两倍多。这是中共国投资银行(中国进出口银行和国家开发银行)在 2007 年至 2020 年期间向撒哈拉以南非洲国家提供贷款：建设公路、铁路、医院、政府大楼。巨额资金显示了非洲大陆对北京的重要性。长期有计划的经济渗透。一个日益成为现实的“中共国非洲”，这让欧洲感到担忧。
+G-TV视频链接：[https://gtv.org/video/id=6212640f1408ee3a03a257e7](https://gtv.org/video/id=6212640f1408ee3a03a257e7)
 
-随着人口的快速增长、闪电般的城市化和丰富的资源，许多观察家认为这将是非洲世纪。如果是这样，中共国将扮演更多主角的角色，他们清楚地知道，巩固自己在世界上的地位的道路也从这里经过。
+**郭文贵先生：**如果人生有“如果”的话，我给父母提下建议：如果你让你孩子孝敬你、孝敬你的时候，你要先学会去尊重你的孩子；还有一个就是爱你的孩子，爱你孩子所爱，不要强调你（对）孩子的爱。
 
-在 20 年的时间里，中共国已发展成为非洲大陆最大的贸易伙伴、最大的基础设施贷款人和外国直接投资的主要来源。中非贸易数据也提醒我们这一点，刚刚创下历史新高：2021年为2540亿美元，同比增长35%。南非、尼日利亚、安哥拉、埃及和刚果民主共和国是北京的五个最大贸易伙伴。
+我孩子，像我女儿的男朋友，我们俩非常非常的好，我最爱聊天儿就跟他，是吧？我女儿爱他我就要爱他，是不是？我儿子的女朋友跟我聊天喝酒，是我儿子的女朋友啊，我儿子爱她我就跟她好啊，我就跟她喝酒啊，就这么。我儿子交了俩女朋友都是跟我关系很好，他俩分手了现在跟我还都联系，对不对？就这么简单。
 
-钻石、铜、锂、钴、铝土矿、石油：这些是中共国从非洲想得到的重要资源。已经有48个非洲国家成为了习近平九年前发起的丝绸之路的一部分。在非洲的扩张最具有重要的战略意义是从这里可以进入红海、苏伊士运河和欧洲，以及波斯湾和印度洋的水域。
+你儿子的爱、你女儿的爱就是你的爱呀，你不要带着观点进去，是你的爱你带着观点，又肥又胖又瘦的，你乱评价啥？是吧？这是胡扯的，是吧？所以这个东西一旦懂了，文斌当父母就开心了，否则当父母就一生痛苦。小时候替他打工，大了替他操心，最后是他在嫁人娶人还跟他操心，最后不就混死了吗？是吧？
 
-关于中共国与非洲在安全事务上的合作。中共国政府否认了美国情报部门关于北京正在赤道几内亚建设军事基地的消息（这将是继2017年在吉布提开设的第二个军事基地）。同时中共国已宣布参与反恐活动和联合演习。2015 年已经向非洲联盟承诺 1 亿美元，用于资助非洲待命部队，即非洲大陆的维和部队。
+字幕来源：[2022年2月4日《文贵大直播》全文字版](https://gnews.org/zh-hans/1961700/)
 
-不仅是大型基础设施均由中共国公司建造，还有对矿山的直接或间接控制（尤其是刚果的钴和几内亚的铝土矿）。中共国的渗透也可以从一些分析人士所说的“建筑外交”中看出。中共国近年来无偿或无偿贷款建设。从2012年在亚的斯亚贝巴建成的非洲联盟总部，到上周竣工的埃塞俄比亚新商业银行总部，再到下个月竣工的津巴布韦新议会，另外还包括24 个总统或总理官邸、26 个议会。
+编辑整理：Jacques；
 
-原文链接: [https://www.repubblica.it/economia/affari-e-finanza/2022/02/21/news/soldi\_vaccini\_strade\_pechino\_punta\_sulla\_chinafrica-338157635/?ref=drla-f-2](https://www.repubblica.it/economia/affari-e-finanza/2022/02/21/news/soldi_vaccini_strade_pechino_punta_sulla_chinafrica-338157635/?ref=drla-f-2)
+字幕文件制作：小满；
 
-责任编辑/发布:意大利达芬奇农场   萧亦
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
