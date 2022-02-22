@@ -2,26 +2,36 @@
 ---
 
 
-## 向中国城管看齐？渥太华市长提议出售从抗议者手中缴获的卡车
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2046695/)
+## 欺骗性的新闻报道和丑闻缠身的CNN创下最差收视率
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/2046783/)
 
-#### 翻译/撰稿：zzballack
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Picture2-5.png)
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-103.png)图片来源：加拿大广播公司
-据《布雷特巴特新闻网》（Breitbart News）2月21日报道，渥太华市长吉姆·沃森 (Jim Watson)上周六（2月20日）在接受加拿大广播公司（CBC）采访时，提议出售那些警方在暴力镇压和瓦解自由车队和平抗议行动中扣押的卡车和其它车辆。沃森认为，根据特鲁多政府动用的《紧急状态法》（Emergency Act），此举是渥太华的合法权利。
+图片来自网络
 
-沃森告诉CBC说：“我们实际上有能力没收这些车辆并出售它们。我也希望看到它们被卖掉，而不是物归原主。”上周末，渥太华的执法部门在暴力镇压抗议活动中拖走了76辆车，逮捕了191人，并对他们提出了391项指控，包括恶作剧和阻挠警察。
+据报道，曾被称为 “最值得信赖的新闻台 “的CNN上周的收视率骤降至七年来的历史新低。
 
-在特鲁多动用《紧急状态法》之前，警方很难找到愿意在渥太华拖走半挂车（semi-truck）和其他车辆的拖车运营商。但《紧急状态法》实施后，政府可以强迫拖车运营商进行工作，如果他们拒绝，就可能面临罚款或监禁。
+在过去一年中，CNN不断的欺骗性新闻报道和一连串高调的丑闻中，这个左翼新闻网络平台失去了90%的观众。
 
-特鲁多2月21日声称，尽管渥太华的车队被清除，但他的政府仍然需要紧急权力。“很明显，地方和省级当局需要更多的工具来恢复秩序和确保人民的安全。渥太华的事情似乎解决得很好，但紧急状态并没有结束。”特鲁多此前承诺说，他动用的紧急权力将有“时间限制和地理目标，而且是合理、恰当的。”
+从2月7日至13日，它 “平均只有44.4万名观众”，是2015年11月福克斯新闻以来的最低收视率。即使在CNN的黄金时段播出，它的平均收视率也只有49.1万。
 
-加拿大已沦为一个独裁国家，独裁者一旦攫取了更多权力后肯定不会轻易放手。过去这两年的大流行就是最好的证明，各国政府纷纷以紧急状态为借口对百姓实施监控，人们的自由权利被逐步掠夺和侵蚀。除非不懈抗争，否则只能像温水煮青蛙那样，逐步沦为全球主义精英的奴隶。
+2月14日星期一，CNN网络开始运行一个付费广告。内容来自中国共产党的国营媒体组织–中国西部传媒。CNN的广告名为 “无与伦比的冬奥盛会”，强调了奥运赛事和中国共产党使环境 “更绿色 “所做的努力。
 
-新闻来源：
+同时，CNN完全忽视了冬奥会中大量人造滑雪道造成环境污染的事实。
 
-[Ottawa Mayor Wants to Sell Trucks Confiscated from Freedom Convoy Protesters](https://www.breitbart.com/politics/2022/02/21/ottawa-mayor-proposes-selling-trucks-confiscated-during-freedom-convoy-protests/)
+CNN也完全没有报道运动员在中共国检疫的违规行为–他们被强行 “拉去隔离 “的事实。
+
+12月，华纳媒体首席执行官杰森-基拉尔(Jason Kilar)发布了一份全公司范围的备忘录，警告戈尔斯特、扎克和库莫违反公司政策，包括CNN的新标准和行为守则。
+
+CNN暂停了其黄金时段明星克里斯-库莫（Chris Cuomo）的工作，因为这位主播被发现秘密帮助他陷入困境的弟弟、前纽约州长安德鲁-库莫辩护性骚扰指控，导致他辞职。炒掉他的决定是在CNN的律师收到一位女性代表的来信后做出的，她声称科莫在2011年邀请她到他的办公室吃午饭后对她进行了性侵犯，当时他们都在ABC新闻工作。
+
+本月早些时候，CNN老板杰夫-扎克（Jeff Zucker）在承认他没有披露与CNN执行副总裁兼首席营销官艾莉森-戈尔斯特（Allison Gollust）的自愿关系后辞职。戈尔斯特也于周四辞职。
+
+新闻来源链接： 
+[https://thecovidworld.com/canadian-government-resorts-to-financial-terrorism-against-peaceful-protesters-showing-why-we-can-never-trust-banks-or-fiat/](https://thecovidworld.com/canadian-government-resorts-to-financial-terrorism-against-peaceful-protesters-showing-why-we-can-never-trust-banks-or-fiat/)
+
+本文作者：Rebecca (一切心皆不可得！)
+上传排版：Hong
 
  
 

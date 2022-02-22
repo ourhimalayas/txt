@@ -2,76 +2,41 @@
 ---
 
 
-## 安东尼·布林肯同王毅进行了交谈,强调需要维护乌克兰的主权和领土完整
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2045807/)
+## 北京冬奥人工造雪将对生态造成长期严重影响
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2045863/)
 
-国务卿安东尼·布林肯： 我同 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 国务委员兼外交部长王毅进行了交谈。我强调需要维护乌克兰的主权和领土完整。
+**整理：围剿维尼熊
+编辑：Candy**
 
+**【雅典娜快讯】，紧贴时代脉搏**
 
-
-> I spoke with People's Republic of China State Councilor and Foreign Minister Wang Yi. I underscored the need to preserve Ukraine’s sovereignty and territorial integrity.
-> — Secretary Antony Blinken (@SecBlinken) [February 22, 2022](https://twitter.com/SecBlinken/status/1495961543359356932?ref_src=twsrc%5Etfw)
-
-
-
-美前国务卿迈克·蓬佩奥：
-
-弗拉基米尔·普京是侵略者。
-
-乌克兰人是受害者。
-
-我们永远不应该回避这一点。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-02-下午10.11.59-16.png)
 
 
+根据大纪元2月21日讯：2022北京冬奥虽已结束，但专家警告，中共当局在张家口和延庆大规模人工造雪，可能对生态造成长期影响，自然环境可能需要数百年才能恢复。
 
-> Vladimir Putin is the aggressor. 
-> The Ukrainians are the victims.
-> We should never shy away from that.
-> — Mike Pompeo (@mikepompeo) [February 22, 2022](https://twitter.com/mikepompeo/status/1495913605635715078?ref_src=twsrc%5Etfw)
+虽然北京不是第一个使用人造雪的冬奥主办方，但它是第一个几乎完全依赖人造雪的城市。中共当局提出的保护和恢复工作，可能无法防止土地、动植物受到伤害。
 
+据纽约非营利性新闻组织——气候新闻内幕（Inside Climate News）报导，法国斯特拉斯堡大学水文学教授卡门‧德容（Carmen de Jong）表示，像滑雪道这类大型建设，对环境有非常强烈的影响，后果可能是不可逆的。
 
+德容曾在一个播客节目上指出，由于北京冬奥赛区气候非常干旱，每年降雨量不足400毫米，因此水必须从很远的地方抽取，用管道输送到山上，势必对灌溉、民生用水产生影响。
 
-参议员卢比奥： 我希望拜登不要被普京耍了 别等到他们见面的时候，俄罗斯已经吞并乌克兰东部，然后任何会谈都是关于不要进一步占领这个国家的。
+尽管北京官员和中共官媒多次否认，但有消息传出，人造雪用水使当地的水供应紧张。
 
+德容表示，人造雪的影响不仅止于水供应，人工造雪加上扫雪机的使用，会使土壤渗流能力下降，提高土壤温度，增加地表水径流，导致水土流失。
 
+美国科罗拉多大学博尔德分校地理学副教授诺亚·莫洛奇（Noah Molotch）表示，水、能量和养分的变化，将影响植物在整个景观中的分布。雪对土壤造成的改变，也可能影响植物的生长期。
 
-> I hope Biden doesn’t get played by [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw)
-> 
-> By the time they meet [#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw) will have annexed eastern [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) & any meeting would be about not taking more of the country
-> — Marco Rubio (@marcorubio) [February 21, 2022](https://twitter.com/marcorubio/status/1495780486794383365?ref_src=twsrc%5Etfw)
+参考链接：[https://www.epochtimes.com/gb/22/2/21/n13592993.htm](https://www.epochtimes.com/gb/22/2/21/n13592993.htm)
 
+**发布：Candy**
 
-
-众议员麦克·沃尔兹： 50年前的今天，尼克松前往北京，试图离间共产主义中国和苏联。 此后，中国共产党利用美中关系在技术和经济上实现了跨越式发展，以寻求成为世界上占主导地位的超级大国。 （转推说：习在北约问题上支持普京。美国或将组建全球联盟，帮助各国部署先进武器，这预示着一场新冷战。）
-
-
-
-> 50 years ago today Nixon traveled to Beijing to drive a wedge between communist China & Soviet Union. 
-> 
-> The CCP has since used the US-China ties to leapfrog ahead technologically and economically in its quest to be the world’s dominant superpower. [https://t.co/tZ2EZucRjN](https://t.co/tZ2EZucRjN)
-> — Rep. Mike Waltz (@michaelgwaltz) [February 21, 2022](https://twitter.com/michaelgwaltz/status/1495765756247785476?ref_src=twsrc%5Etfw)
-
-
-
-参议员玛莎·布莱克本： 国际奥委会允许一个种族灭绝的 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 政权主办奥运会，并允许一名使用兴奋剂的俄罗斯运动员参加比赛。 而美国队参加北京奥运会使得这种胡作非为合法化。
-
-
-
-> The International Olympic Committee allowed a genocidal regime to host the Olympics and a Russian athlete that was doping to compete. 
-> 
-> Team USA’s presence at the Beijing Olympics legitimized this nonsense. [https://t.co/tlgZdKVVXp](https://t.co/tlgZdKVVXp)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [February 21, 2022](https://twitter.com/MarshaBlackburn/status/1495879336217485317?ref_src=twsrc%5Etfw)
-
-
-
-参议员玛莎·布莱克本： [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 正在逃脱反人类罪的惩罚，而拜登政府对此视而不见。
-
-
-
-> The Chinese Communist Party is getting away with crimes against humanity, and the Biden administration is turning a blind eye.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [February 21, 2022](https://twitter.com/MarshaBlackburn/status/1495838373981966341?ref_src=twsrc%5Etfw)
-
-
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

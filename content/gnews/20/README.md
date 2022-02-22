@@ -2,30 +2,21 @@
 ---
 
 
-## 中日财经爆┃中共对雷神和洛克希德马丁报复性制裁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2045987/)
+## 港闻｜疫苗通行证周四起实施 食卫局不排除日后进一步收紧规定
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2046587/)
 
-撰稿：东京樱花团｜peterwong
-![](https://lh3.googleusercontent.com/TtlryaIAEyZoJQXkPbLFN1TYUCTKq6otzbOM2M7ZTJ6JuzpZVn-rUqPPV4ICoxD55-WhB4fZoEm-RvlGCaMr_gsxBocv0M_0XFAGZD5WAdwusmShHFw4B_YzURwXB9E2zJD0Pe7D)[*图片来源*](https://tw.appledaily.com/resizer/LRFIlsh2Zv2bwoqUu4d4JpSqyP8=/1280x904/filters:quality%28100%29/cloudfront-ap-northeast-1.images.arcpublishing.com/appledaily/E5IOUWCR35B6FKDGBQMZUBG5FU.jpg)
-中国外交部新闻发言人汪文斌周一（2月21日）称，中共国决定对长期参与向台湾出售武器的美国军工企业——雷神和洛克希德马丁，实施报复性制裁。
+**撰文/ 港台前線｜發佈日期****/ 22/02/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/疫苗通行證週四起實施-食衛局不排除日後進一步收緊規定.jpg)
+**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
 
-此前在2019年和2020年中共国亦曾宣布对这两家公司进行制裁。不过，是次是中共国首次根据“反外国制裁法”做出相关决定。中国去年年中出台了“反外国制裁法”。该法共16条，明确了三类反制措施，包括注销签证、扣押冻结中国境内财产等。
+港府宣布“疫苗通行证”自本周四起实施，范围涵盖食肆、街市、超市及商场等公共场所，要求所有12岁以上市民进入公共场所前须主动出示疫苗接种卡，同时亦需随身携带疫苗接种卡，以配合执法人员抽查。
 
-美国国防部2月7日表示，美国已经批准向台湾出售价值或达1亿美元的设备和服务，以“维持、维护和改进”台湾爱国者导弹防御系统, 主要承包商将是雷神和洛克希德马丁。台湾国防部表示，该案可望在3月份正式生效。
+食物及衞生局副秘书长(衞生)蔡杰铭今晨在商台节目中表示，要取得“疫苗通行证”并非难事，仅需接种至少一针疫苗即可，蔡杰铭强调，现时进入商场买外卖、途经商场归家仍属豁免范围，但为了避免有市民“钻空子”，不排除日后进一步收紧相光规定。
 
-国防安全合作局说：“这项军售计划通过支持受援方继续努力使其武装部队现代化并保持可靠的防御能力，符合美国的国家、经济和安全利益。”
+值得关注的是，医管局在配合宣布“疫苗通行证”的记者会上，被问到，“近期不幸离世的死者中，有多少人打过疫苗？”时，医管局行政经理刘家献一时语塞，显得不知所措，迟疑一阵后，竟然以“人都死了，再研究是否打过针已经没有意义”作答，最后，他再次重申，呼吁未接种者尽快接种新冠疫苗。
 
-台湾外交部在一份声明中称，面对中共国持续的军事扩张和挑衅行为，台湾将以坚实国防维护国家安全，并持续深化台美紧密安全伙伴关系。
+来源｜[疫情記者會](https://www.youtube.com/watch?v=InsYcqFl1Zg)
 
-消息来源：
-
-1、[**中国决定对美国雷神和洛克希德马丁实施反制 因参与对台出售武器–外交部**](https://cn.reuters.com/article/china-mofa-us-raytheon-sanction-0221-idCNKBS2KQ0RG?il=0)
-
-2、[**美国批准对台湾一亿美元军售**](https://gnews.org/zh-hans/1974148/)
-
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
