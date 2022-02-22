@@ -2,43 +2,34 @@
 ---
 
 
-## 中企研发脑控武器令美紧盯中共军事研究
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2048583/)
+## 中共打脸“奥运不谈政治”谎言 遭国际谴责
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2048728/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image005-12.jpg)人脑控制示意图。（图片来源：pixabay）
-据大纪元报道，美国政府于2021年底制裁了34家中共实体，主要原因涉及生物技术武器，包括“脑控”武器。
+作者：台湾宝岛农场 – dobi
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月18日，国外媒体报导，在2月17日举行的北京冬奥新闻发布会上，中共北京冬奥发言人严家蓉一面高喊“奥运只谈运动，不谈政治”，一面大谈台湾主权问题，宣称“世界只有一个中国”“台湾是中国不可分割的一部分”等言论，同时称饱受外界质疑的新疆问题很大程度建立在谎言之上。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3-73.jpg)
+这些言论不仅引发了国际热议和谴责，也让国际奥委会主席托马斯‧巴赫罕见发言，批评了中共的这一犯规行为，一反先前拒绝接受国际社会因中共恶劣人权记录建议抵制北京冬奥委的态度。
 
-美国商务部工业和安全局指出，被制裁的中共实体中的中共军事医学科学院及其11个研究机构，参与并支持了包括“脑控”武器在内的生物技术研究，中共军方打算利用这些技术来获得战争优势。
+台湾外交部严厉谴责中方发表的贬损台湾主权的不实言论，并表达了严正抗议，美国一些媒体也提出警告，认为严家蓉的言论似乎违反了《奥林匹克宪章》第50条，该条款禁止在奥运会上进行任何形式的“示威或政治、宗教或种族宣传”。
 
-2021年，五角大楼发表了一份关于中共军队的最新报告，该报告明确指出，中共一直在探索“智能战争的下一代作战概念，例如智能集群的消耗战、跨域快速移动战、基于人工智能的太空对抗和认知控制行动”。
+参考链接：
+1) .[奧運會不談政治？新聞會上中共自打臉](https://www.epochtimes.com/b5/22/2/18/n13587758.htm)
+2) . [Olympic Committee Rebukes China Over Political Comments, in Rare Move](https://www.wsj.com/articles/olympic-committee-rebukes-china-over-political-comments-in-rare-move-11645191203)
 
-《华盛顿时报》获得的一份中共军事报告表明，北京正在寻求制造能够制服敌军并减少所需武力的武器。这种武器会错乱或迷惑敌军，使中共军队容易得手。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-该报告提到：“战争已经开始从追求摧毁身体转向让对手瘫痪，并进行控制。”“重点是攻击敌人的抵抗意志，而不是物理消灭。”
+总编: Zion文恩
+编辑: 飞虹    
+校正/发稿：Fei797
 
-
-
-**推出问题，敲出真相，爆料在路上！**
-
-**请关注和订阅我们的以下账号：**
-
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
-
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
-
-**玫瑰看新闻YOUTUBE账号**：
-
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**ROSE NEWS**
-
-**【玫瑰看新闻】推特账号**：
-
-**ROSE NEWS (@ROSENEWS4)A**
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
