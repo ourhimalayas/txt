@@ -2,29 +2,32 @@
 ---
 
 
-## 视频|法国外长表示已做好准备维护台海稳定
-` MOSvideo` [轉載自GNews](https://gnews.org/zh-hans/2048262/)
+## 专家称俄乌开战 中共不会在军事上予以支持
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2048276/)
 
-制作：香草山视频部
+整理：围剿维尼熊
+编辑：Mohegayer K. Simon
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-02-下午10.11.59-17.png)
+根据路透社报道，专家们表示，如果俄罗斯入侵乌克兰，中共将在外交上，或许还有经济上支持俄罗斯，但绝不会提供军事支持。
 
-当地时间2月20日，法国外交部长勒德里安在接受书面采访时表示，已经做好准备，在必要时采取行动，维护台湾海峡稳定。
+美国总统拜登上周五表示，俄罗斯总统普京已经决定在几天内入侵乌克兰，俄罗斯否认这一说法。中共外交部一再谴责美国“散布虚假信息”并制造紧张气氛，敦促其尊重并解决俄罗斯在安全保障方面的要求。
 
-当被问到最近中共在台海升高军事威胁的看法时，勒德里安回答，谴责任何企图改变台海现状的尝试。为了防止发生冲突，法国已经做好采取行动的准备。他补充说，法国在太平洋的法属新喀里多尼亚岛有驻军基地，维护台湾海峡的稳定，对于外围地区的安全至关重要。
+为了显示团结，普京出席了2月4日北京冬奥会开幕式，与主席习近平共同宣布深化战略伙伴关系。中共国媒体宣称，两国将肩并肩“维护世界正义”。
 
-对于澳洲、英国、美国为了对抗中共，成立“澳英美三方安全伙伴”一事，勒德里安表示，对于印太区域的看法，法国与美国、澳洲就此议题保持一致。据悉，法国政府曾经在2021年2月与美日两国在日本境内建立离岛防卫联合演训区；同年5月份，法国派遣核动力潜舰至南海地区，以实际行动展现了法国捍卫自由航行权及保障印太区域安全，维护台海区域稳定的决心。
+如果俄罗斯入侵乌克兰，将考验中共经常声明的“不干涉外交政策原则”。熟悉北京方面思路的专家说，中共肯定不想在军事上介入。在国际社会如此两极分化的情况下，美国和西方有可能将俄罗斯及中共国同时孤立或制裁。
 
-消息人士认为，目前世界聚焦在俄罗斯入侵乌克兰，而法国外长在这一时间节点上，对台海局势表示深切关注，颇有些意味深长。
+北京也不希望因为俄罗斯入侵乌克兰而承担经济后果，特别是习近平准备展开史无前例的第三个任期的这一年，把稳定放在首位。
 
-发稿：Daxia
+资料来源：https://cn.reuters.com
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+*发布：tianzhihuan*
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

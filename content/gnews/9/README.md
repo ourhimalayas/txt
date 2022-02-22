@@ -2,29 +2,33 @@
 ---
 
 
-## 视频|美国前国务卿蓬佩奥排定三月初将访问台湾
-` MOSvideo` [轉載自GNews](https://gnews.org/zh-hans/2048253/)
+## 闭关锁国两年 澳大利亚重开边境
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2048254/)
 
-制作：香草山视频部
+整理：Eileen（围剿维尼熊）
+编辑：Mohegayer K. Simon
 
-2月21日，多家媒体报道，美国前国务卿蓬佩奥将于3月3～5日访问台湾，分别与台湾总统蔡英文和外长吴钊燮会面交谈，在智库发表演讲，还将与台积电及中钢等公司的负责人进行不公开会谈。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/dfef.png)编辑：Mohegayer K. Simon
 
-过去两年，中共国加大了对台湾的军事和外交压力，试图迫使台湾接受其统治。台湾政府则坚持表示只有台湾人民有权决定台湾的未来，并称如果受到攻击，会奋起自卫。
 
-蓬佩奥在国务卿任内，积极支持台湾参与国际社会活动，并抨击中共军事威胁台湾。在卸任前还特别宣布取消行政部门与台湾接触的限制，确认美台关系，不需要、也不应该因为官僚体制的自我设限而受到束缚，此政策宣示在实质上大幅提升了台美往来的层级。
+据德国之声中文网报道，新冠疫情爆发两年以来，澳大利亚一直是世界上防疫措施最为严格的国家之一。2020年3月，为了控制感染病例激增，澳大利亚颁布禁令，宣布对除本国居民外的所有人关闭边境，本国公民在未获免疫力前也不得出境。
 
-郭文贵先生20日爆料称，习近平与普京进行了绝密会谈，组成生死军事联盟，准备通过发动战争来保持个人的政治安全。而一贯对中共强硬的彭培奥此时出访台湾则意味深远。
+本周一，该国宣布向已接种疫苗的国际游客重新开放边境。在悉尼和墨尔本两个国际机场，又出现了亲朋好友久别重逢的欢呼场面。一架来自洛杉矶的澳航航班于当地时间凌晨6：20抵达悉尼机场，随后来自东京、温哥华和新加坡的航班也陆续到达。
 
-发稿：Daxia
+澳大利亚航空公司首席执行官乔伊斯（Alan Joyce）表示，澳航预计本周就会有超过14000名乘客飞往澳大利亚。对于受到疫情重创的澳大利亚旅游业来说，复苏将会是一个漫长的过程。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+澳大利亚旅游部长丹·特汉（Dan Tehan）身着写着“欢迎回来”字样的T恤来到墨尔本机场。疫情前中国人是澳大利亚最大的游客群体，但由于中共继续执行严格的“清零”政策，吸引中国游客前来澳大利亚仍将困难重重。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+资料来源：[https://www.dw.com](https://www.dw.com)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
