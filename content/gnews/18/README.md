@@ -2,45 +2,57 @@
 ---
 
 
-## 前职业足球运动员接种中共病毒疫苗加强剂5天后死亡
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/2046666/)
+## 【TopNews】新西兰病例数爆炸式增加时期即将发现“低技能”工人的真正价值
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/2046945/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Picture1-16.png)
+随着疫情持续扩散、病例数爆炸式增加，新西兰将有大量的所谓“低技能”劳动者感染或被迫隔离。
 
-图片来自原文
+NZ Herald商业编辑、专栏作家Damien Venuto发文称《新西兰即将发现“低技能”工人的真正价值》。
+![图片](https://mmbiz.qpic.cn/mmbiz_jpg/KtRNQQrEUGmNU7KYdrWHw12Uw4yz5vwtyJqoxb3RqXFqkhmfricic3F6icwISKzVsg7p8hIHKdqr7zndp2UeOxiaGQ/640?wx_fmt=jpeg&amp;wxfrom=5&amp;wx_lazy=1&amp;wx_co=1)
 
-前马来西亚足球运动员塞尔贝格斯·辛格（Serbegeth Singh），昵称谢比·辛格（Shebby Singh），于1月12日星期三在外出骑车时因心脏病发作而突然死亡。
-
-近年来一直担任足球评论员的谢比，在五天前（1月7日）刚接种了中共病毒（COVID-19）疫苗加强剂。
-
-谢比的儿子索努尔吉特·辛格（Sonuljit Singh）告诉《今日自由马来西亚》，他的父亲在1月7日打了加强剂，五天后就离开了我们，大家都知道。我们不知道他打了什么牌子的加强剂，因为MySejahtera应用程序[马来西亚的中共病毒（COVID）二维码应用程序]还没有更新。
-
-但医生告诉我们，他的死因99%与心脏病有关，因为他的验尸报告显示，他的三条冠状动脉有堵塞现象。他的所有重要器官都处于完美的工作状态，也没有任何过敏反应的迹象。
-
-谢比的突然去世甚至引起了马来西亚国王和王后的回应，国王和王后非常感谢他对国家的服务和牺牲。他的去世是马来西亚足球的一大损失。
-
-谢比在他的足球生涯中担任后卫，并代表马来西亚国家队出场61次，在1989年东南亚运动会上赢得一枚金牌。
-
-退役后，他继续从事这项运动，在亚洲担任教练和体育广播员。他还担任过马来西亚超级联赛俱乐部马六甲TMFC的技术顾问，后来又成为英国足球俱乐部布莱克本流浪者队的全球顾问。
-
-谢比在马来西亚广受欢迎，作为一名专家和广播员，他以对足球运动的热情和激情而闻名，每当他提出直言不讳的观点时，成千上万的观众都会紧盯着屏幕。
-
-他于周五火化，留下了他的妻子哈班斯·考尔和两个孩子，纳塔莎·考尔(Natassha Kaur)和索努尔吉特-辛格(Sonuljit Singh)。
-
-备注：
-
-- 疫苗：是指新冠疫苗
-- 中共病毒：是指新冠病毒Covid-19
-- Covid疫苗本身就是随时爆发的病毒
-- 我们不反疫苗，只针对假疫苗
-- 我们不反科学，只针对反人类
+（图片：网页截图）
 
 
-新闻来源链接：[https://thecovidworld.com/serbegeth-singh-former-pro-football-player-dies-5-days-after-receiving-covid-19-booster-shot/](https://thecovidworld.com/serbegeth-singh-former-pro-football-player-dies-5-days-after-receiving-covid-19-booster-shot/)
 
-本文作者：Rebecca (一切心皆不可得！)
+随着这种高传播性毒株在新西兰肆虐，这些工人将被迫在家隔离，更糟糕的是，他们的工作无法在家完成。
 
-上传排版：Hong
+“我们已经得到警告，在疫情爆发的高峰期，可能会有多达35万名新西兰人同时在家隔离。”
+
+文章称，上周的数学模型显示，在疫情持续三到四个月的情况下，预计总共会感染150万人，包括386,400例病例、11,500例住院和460例死亡。
+
+很多行业已经做好准备，譬如奥克兰机场就计划损失四分之一的劳动力，超市公司Foodstuffs预计这一数字将接近30%。葡萄酒行业警告，今年的收成面临巨大挑战。
+
+Venuto写道：
+
+“我们很快就会看到被政客们贬低为‘低技能’的工人们的真正经济价值。”
+
+随着疫情大面积爆发，各行业员工缺勤将对新西兰经济造成严重影响。
+
+新西兰Footprint Connect和Umbrella Wellbeing两家公司本月发布的一份白皮书指出，数据表明，2020年新西兰经济因工人缺勤损失了18.5亿纽币，平均每个工人缺勤4.2天/年。随着Omicron笼罩新西兰全国，可以预计未来几个月新西兰工人生产力的损失将是巨大的。
+
+随着大量的一线工人在未来几周将被感染、因密接在家隔离或需要照顾染病的家人，我们面对的将是空货架、无人配送的包裹以及烂在树枝上的水果。![图片](https://mmbiz.qpic.cn/mmbiz_jpg/KtRNQQrEUGmNU7KYdrWHw12Uw4yz5vwtgwuWnm26VSYboLmMmTibKibqAw01Nk1BTLHU4oJrbuDUtd1OtobhLzXQ/640?wx_fmt=jpeg&amp;wxfrom=5&amp;wx_lazy=1&amp;wx_co=1)
+
+Photo: RNZ / Claire Eastham-Farrelly
+
+很显然，称呼这些工作人员为“低技能”是不合适的。有政界人士和专家呼吁将他们称为“低工资”工人，因为事实就是如此。
+
+在去年的预算前演讲中，总理阿德恩称新西兰移民法即将调整，将使政府“将吸引高技能而不是低技能移民”。
+
+“对于一个用词如此谨慎的政府来说，贬低数十万新西兰人的日常工作是多么轻而易举。”Venuto说。
+
+低薪工作是不一定令人愉快的工作，存在感不强。只有当它突然消失，外界才会注意到。就像空气和水。“这正是未来几个月将会看到的。”
+
+我们即将进行一项实验，看看当这些没有人喜欢做的工作突然消失了，会发生什么。
+
+[援引链接：](https://www.nzherald.co.nz/business/damien-venuto-new-zealand-about-to-find-out-the-real-value-of-low-skilled-workers/WZZ5E55HCKQE6TFL6TOIE2QPR4/)
+
+撰稿/米拉雅
+
+审阅/邱杰斯
+
+上传/天赐良闻
+
+
 
  
 

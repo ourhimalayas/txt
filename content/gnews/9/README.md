@@ -2,36 +2,28 @@
 ---
 
 
-## 欺骗性的新闻报道和丑闻缠身的CNN创下最差收视率
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/2046783/)
+## 男子第三针后突感不适，最后死于心脏骤停
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2047003/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Picture2-5.png)
+#### 翻译                  意大利达芬奇农场                 小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-22-alle-09.24.07.png)图片来源：eventiavversinews.it
+意大利巴里一名55岁男子在急诊室死亡后， 检察官已开始对其死亡展开过失杀人罪调查。
 
-图片来自网络
+2月15日这位男子因为心脏跳动加快由118救护车送到医院的急救中心。自打了第三针以后，他感到腿部有问题。15年前，他曾接受过肝移植，所以他担心疫苗会给他的身体健康带来问题。
 
-据报道，曾被称为 “最值得信赖的新闻台 “的CNN上周的收视率骤降至七年来的历史新低。
+他的家人指控时说：“ 疼痛使他起不了床。我们叫了救护车，做了心电图以后，他被送到了急救中心。他是10点被送到的， 下午四点才给他验血。那时， 他想去卫生间，但没人陪他去。”
 
-在过去一年中，CNN不断的欺骗性新闻报道和一连串高调的丑闻中，这个左翼新闻网络平台失去了90%的观众。
+这位55岁男子随后给妻子打电话，妻子接到丈夫的电话后马上赶到医院，但是这时丈夫却不接电话。
 
-从2月7日至13日，它 “平均只有44.4万名观众”，是2015年11月福克斯新闻以来的最低收视率。即使在CNN的黄金时段播出，它的平均收视率也只有49.1万。
+“这位男子的儿子也来到急救中心， 一位患者告诉他医生正在抢救其父亲”，这一事实后被一护士所证实。据了解，他是一个人去的卫生间，由于某种还待核实的原因，导致心脏骤停，随后死亡。
 
-2月14日星期一，CNN网络开始运行一个付费广告。内容来自中国共产党的国营媒体组织–中国西部传媒。CNN的广告名为 “无与伦比的冬奥盛会”，强调了奥运赛事和中国共产党使环境 “更绿色 “所做的努力。
+出于愤怒，这位55岁的儿子一拳打在门上， 导致医务人员打电话叫来宪兵。受害者的家人决定提出申诉，并要求进行尸检。
 
-同时，CNN完全忽视了冬奥会中大量人造滑雪道造成环境污染的事实。
+值班检察官卡埃塔诺•迪•巴利(Gaetano Di Bari) 将在2月21日将此案授权给法医布林迪西•利亚娜•尹纳莫拉多(Brindisi Liliana Innamorato)。
 
-CNN也完全没有报道运动员在中共国检疫的违规行为–他们被强行 “拉去隔离 “的事实。
+原文链接：[https://www.eventiavversinews.it/bari-ha-un-malore-dopo-la-terza-dose-e-viene-lasciato-sei-ore-in-attesa-in-ambulanza-muore-per-arresto-cardiaco-nel-bagno-del-policlinico/](https://www.eventiavversinews.it/bari-ha-un-malore-dopo-la-terza-dose-e-viene-lasciato-sei-ore-in-attesa-in-ambulanza-muore-per-arresto-cardiaco-nel-bagno-del-policlinico/)
 
-12月，华纳媒体首席执行官杰森-基拉尔(Jason Kilar)发布了一份全公司范围的备忘录，警告戈尔斯特、扎克和库莫违反公司政策，包括CNN的新标准和行为守则。
-
-CNN暂停了其黄金时段明星克里斯-库莫（Chris Cuomo）的工作，因为这位主播被发现秘密帮助他陷入困境的弟弟、前纽约州长安德鲁-库莫辩护性骚扰指控，导致他辞职。炒掉他的决定是在CNN的律师收到一位女性代表的来信后做出的，她声称科莫在2011年邀请她到他的办公室吃午饭后对她进行了性侵犯，当时他们都在ABC新闻工作。
-
-本月早些时候，CNN老板杰夫-扎克（Jeff Zucker）在承认他没有披露与CNN执行副总裁兼首席营销官艾莉森-戈尔斯特（Allison Gollust）的自愿关系后辞职。戈尔斯特也于周四辞职。
-
-新闻来源链接： 
-[https://thecovidworld.com/canadian-government-resorts-to-financial-terrorism-against-peaceful-protesters-showing-why-we-can-never-trust-banks-or-fiat/](https://thecovidworld.com/canadian-government-resorts-to-financial-terrorism-against-peaceful-protesters-showing-why-we-can-never-trust-banks-or-fiat/)
-
-本文作者：Rebecca (一切心皆不可得！)
-上传排版：Hong
+编辑、上传： Xiao  baige
 
  
 

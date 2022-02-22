@@ -2,36 +2,22 @@
 ---
 
 
-## 万事达卡将帮助中央银行采用数字货币
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2045265/)
+## 财经｜俄乌战火一触即发 股市大泻 卢布汇价急跌 金价重回1900美元大关
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2045413/)
 
-翻译/编辑：小红帽
+**撰文/ 港台前线｜发布日期/ 22/02/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/俄烏戰火一觸即發-股市大瀉-盧布匯價急跌-金價重回1900美元大關.jpg)
+**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/8-30.png)图片来源：CNN
+今日（22日）较早时，俄罗斯总统普京签署法令，宣布乌克兰东部两大亲俄势力范围，顿涅茨克及卢甘斯克，正式成为独立国家，并同时派遣军队到顿巴斯地区“维和”。美、英、欧盟等国家认为俄罗斯的做法严重违反国际法，推翻了《明斯克协议》中两国停火安排，此举可以被视为俄罗斯正式对乌发动的侵略行为。
 
+消息触发金融市场巨大动荡，美股假期休市，但三大指数期货市场仍出现恐慌性大跌，道指期货急泻超过460点，标指及纳指跌幅同样超过1%，另外，德国和法国股市下挫超过2%，亚太区股市亦受严重影响，恒指今早开盘大跌800点。
 
-根据PUNCH 2月22日报道，万事达卡(Mastercard)宣布，公司以支付为中心的咨询服务现在将包括致力于开放银行、开放数据、加密货币和数字货币、环境以及社会和治理的实践。
+俄罗斯方面的情况更加糟糕，MOEX指数21日收市大跌10.5%，是自克里米亚战争以来最大单日跌幅，卢布兑美元汇价一泻千里，24小时内跌幅超过4%。
 
-该公司表示，扩展的重点之一将涉及帮助中央银行使用其测试平台探索中央银行数字货币的设计和部署。
+不过，俄乌紧张局势的恶化同时带动金价显著回升，黄金现货价格重上1900美元的关键水平，最新报1,907.93美元每盎司，升至近8个月最高点。
 
-根据一份声明，万事达卡与银行和商家的咨询工作涵盖了一系列数字货币功能。从早期教育、风险评估和银行范围内的加密和NFT战略开发到加密卡和加密忠诚度计划的设计。
-
-声明说：“万事达卡已与提供最佳加密货币解决方案的数字原生公司建立了合作伙伴关系，并通过进入市场规划和商业化战略帮助金融科技公司扩展到新市场”。
-
-据该公司称，随着商业世界面临创新的涌入，它还必须应对不断变化的消费者偏好、快速的数字化转型和地缘政治的转变。
-
-据该公司介绍，其数据和服务包括2000多名数据科学家、工程师和顾问，为全球70个国家的客户提供服务。
-
-新闻链接：[Mastercard to help central banks adopt digital currencies](https://punchng.com/mastercard-to-help-central-banks-adopt-digital-currencies/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+来源｜[Yahoo股市](https://tw.stock.yahoo.com)
 
  
 

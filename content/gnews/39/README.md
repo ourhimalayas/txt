@@ -2,52 +2,24 @@
 ---
 
 
-## 美国前国务卿蓬佩奥排定三月初将访问台湾
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2046144/)
+## 外国记者代表组织批评中共在奥运期间制造的糟糕待遇
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2046358/)
 
-作者：纽约香草山医疗部-云豹，香草山教育部 Naughty(文行)
+#### 撰稿：彩虹
 
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-2-13.jpg)图片来源：InsiderSport
+《国会山报》2月21日根据《卫报》（The Guardian）报道，中国外国记者俱乐部（FCCC）是一个代表外国记者的组织，该组织发布了一份声明称，它对（中共）安全官员在奥运会期间对待经认可的外国媒体的方式感到“沮丧”，称中共政府与媒体互动的方式“违背了奥林匹克精神”。
 
+声明指：“（中共）政府的干预在奥运会期间经常发生。”作为（中共）政府支持的网上骚扰和宣传战役的一部分，一些外国记者成为了在线骚扰的目标和受害者。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+声明举例说：“在一次奥运会滑雪比赛之后，一名外国记者被一名北京奥运会官员阻止在奥运会混合区采访一名香港运动员，而这块区域应该是受国际奥林匹克规则管辖的。最明显的是，荷兰国家广播公司的一名记者在一次电视直播中被便衣保安人员拖出镜头，尽管他几分钟前还站在警察指示的位置上。”
 
+中国外国记者俱乐部在声明中强调，“中国外国记者俱乐部敦促中共当局遵守他们自己对外国媒体在中国的认可规则：即允许记者在没有国家干预的威胁下预订和进行自己的采访，并在公共区域自由报道。不幸的是，在全球对中国的关注比以往任何时候都多的时候，这两条规则都没有得到执行。”
 
+**新闻来源**
 
-2月21日，多家媒体报道，美国前国务卿蓬佩奥将于3月3～5日访问台湾，分别与台湾总统蔡英文和外长吴钊燮会面交谈，在智库发表演讲，还将与台积电及中钢等公司的负责人进行不公开会谈。
-
-过去两年，中共国加大了对台湾的军事和外交压力，试图迫使台湾接受其统治。台湾政府则坚持表示只有台湾人民有权决定台湾的未来，并称如果受到攻击，会奋起自卫。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-12.jpg)
-蓬佩奥在国务卿任内，积极支持台湾参与国际社会活动，并抨击中共军事威胁台湾。在卸任前还特别宣布取消行政部门与台湾接触的限制，确认美台关系，不需要、也不应该因为官僚体制的自我设限而受到束缚，此政策宣示在实质上大幅提升了台美往来的层级。
-
-郭文贵先生20日爆料称，习近平与普京进行了绝密会谈，组成生死军事联盟，准备通过发动战争来保持个人的政治安全。而一贯对中共强硬的蓬佩奥此时出访台湾则意味深远。
-
-参考链接：
-1. [《獨家》龐皮歐下週來訪 3/3晉見蔡總統表達對台灣支持](https://news.ltn.com.tw/news/politics/breakingnews/3835941)
-2. [U.S. former top diplomat Pompeo, sanctioned by China, to visit Taiwan](https://www.reuters.com/world/asia-pacific/mike-pompeo-who-riled-china-while-office-visit-taiwan-2022-02-21/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-
-总编：DM
-编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+[Journalists group calls China’s handling of games ‘contrary to the Olympic spirit’](https://thehill.com/homenews/media/595186-journalists-group-calls-chinas-handling-of-games-contrary-to-the-olympic)
 
  
 
