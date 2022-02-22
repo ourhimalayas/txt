@@ -2,31 +2,41 @@
 ---
 
 
-## 有声|欧洲药管局登记的疫苗副作用报告超150万份
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2044383/)
+## 英国女王新冠检测呈阳性，症状类似轻微感冒
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2044517/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-2月19日外媒报道，截至2022年2月11日，欧洲药品管理局EMA列出了超过150万个疑似中共病毒疫苗副作用的案例。数据分析显示，平均每个人报告了3.7个副作用，近三分之一的报告为严重案例。
+***评论：我们衷心祝愿女王早日康复。在女王确诊前，其长子和儿媳相继感染新冠（其中查尔斯王储是第二次感染新冠病毒），再次验证了无论是疫苗还是加强针，都不能预防新冠病毒。并且随着全球各地出现的疫苗次生灾难，我们更应警惕疫苗的安全性。***
 
-在2000年至2020年的21年期间，所有其他疫苗合并的每10万剂接种导致了不到7份的副作用报告，而中共病毒疫苗在短短13.5个月，已经导致了每10万剂接种高达24倍的副作用报告。其中，严重案例更是167倍于所有其他疫苗21年间的报告。
+**据《华盛顿邮报》作者：Karla Adam和William Booth，2022年2月20日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/zxc.jpg)**图片来源：皇室推特账号**
+白金汉宫周日在一份声明中宣布，在长时间与公众隔离后，英国女王伊丽莎白二世的冠状病毒检测呈阳性，并出现了“类似轻微感冒的症状”。
 
-尽管如此，2021年奥地利制药工业协会的报告及2006年的另一研究结果表明，仍有94%的药品副作用案例未被报告。
+王宫表示，这位95岁的女王预计未来一周将在温莎城堡继续履行“较轻松的公务”，并且继续“接受医疗护理，并遵守所有适当的防疫指导方针”。
 
-文字版原文：[欧洲药管局登记的疫苗副作用报告超150万份](https://gnews.org/zh-hans/2039254/)
+她的儿子兼皇储查尔斯王子的病毒检测呈阳性，并在10天前与女王一起在温莎被隔离。查尔斯的妻子卡米拉此后也检测呈阳性。
 
-音频处理：Fei797
-发稿：Fei797
+尽管王室在推特上发布一条女王祝贺英国女子和男子冰壶队获得奥运奖牌的消息，但并没有在周日发布任何有关她健康状况的进一步信息。英国王室通常不对涉及女王的医疗事宜发表评论——这种习俗可以追溯到英国国王和王后担心向对手展示脆弱的时代。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+2021年1月，王室确实透露伊丽莎白女王已接种了第一剂冠状病毒疫苗。许多皇室观察者认为她已经接种了全部3针疫苗。克拉伦斯王府（查尔斯王子的住所）对卫生事务更加透明化，根据该办公室的说法，查尔斯和卡米拉各自接种了两针疫苗和一剂加强针。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+根据英格兰目前的规定，女王应该至少隔离五天。但英国政府计划本周取消疫情限制措施。
+
+皇宫宣布后的几分钟内，支持女王的消息蜂拥而至。
+
+与大流行早期相比，恐慌程度有所降低。
+
+**文章来源**：[https://www.washingtonpost.com/world/2022/02/20/queen-elizabeth-covid-positive/](https://www.washingtonpost.com/world/2022/02/20/queen-elizabeth-covid-positive/)
+
+翻译：洛杉矶盘古农场 – maru
+校对：洛杉矶盘古农场 – Mike Li
+评论：洛杉矶盘古农场 – maru
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
