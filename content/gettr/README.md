@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/22/2022 5:54 AM (UTC)`
+
+2/20/2022 Miles Guo: The top priority of the New Federal State of China is to take down the CCP, and the second priority is to develop our education sector. The G-EDU is under my direct control, and competent teachers are welcomed to join. Whether the teachers are good or bad is up to the students, and the students' performance should be certified by an independent third party. There will be a grand live broadcast about G-EDU next week.<br/><br/>2/20/2022 文贵直播：新中国联邦的头等大事是灭共，第二件大事是搞教育；G-EDU归文贵管，欢迎有本事的老师加入；老师好坏学生说了算，学生成绩由第三方认证；下周有G-EDU大直播。
+![img](https://media.gettr.com/group29/getter/2022/02/22/05/0d7c00c3-fc18-4d5f-c3d0-2c96644cf2ca/out.jpg)
+
+---
+
+`@miles 2/22/2022 5:50 AM (UTC)`
+
+2/20/2022 Miles Guo: Once the war starts, the city of Dalian and Liaoning province will suffer the most losses due to their strategic importance. Fellow fighters, please take care of yourselves! We must take down the CCP ASAP. Otherwise, anyone can become the cannon fodder.<br/><br/>2/20/2022 文贵直播：一旦开战，大连和辽宁因其关键的战略位置而将成为重灾区，请战友们多保重，我们要尽快灭共，不然谁都可能成炮灰！<br/>
+![img](https://media.gettr.com/group23/getter/2022/02/22/05/55df3c14-c16b-5f47-858c-d44bf1226e74/out.jpg)
+
+---
+
 `@miles 2/22/2022 2:28 AM (UTC)`
 
 2/21/2022 Miles Guo’s GETTR: The CCP is really over! There are hundreds of thousands of kidnapped women in Feng county, fertilizer prices have skyrocketed in northeast China, and the Winter Olympics, which cost the Chinese Lao Baixing tens of trillions of RMB, has changed nothing but worsened pollution. The CCP, however, is blaming the Americans for all these.<br/><br/>2/21/2022 文贵盖特：中共真没救了！在丰县有几十万被绑架的女性，东北化肥价格暴涨，中共花老百姓十几万亿人民币办冬奥会，除了污染环境啥都没改变，但中共却把一切都怪罪给美国人<br/>
@@ -142,22 +156,6 @@ Who's Miles Guo Episode 3 《Mile‘s Determination to Take Down the CCP》<br/>
 
 2/20/2022 Miles Guo: The war between Russia and Ukraine started three days ago. For Russia, Ukraine is like the chained woman kidnapped by the CCP, and Europe is like the “sugar daddy” of the chained woman. Xi and Putin have to team up to survive, and invading Taiwan and Ukraine is just to serve their political interests and ambitions.<br/><br/>2/20/2022 文贵直播：俄乌之战三天前就开始了；乌克兰对于俄罗斯就相当于中共的“锁链女”，欧洲相当于“锁链女”的干爹；习普二人得抱团取暖，打台湾和乌克兰是为了他俩的政治利益和野心<br/>
 ![img](https://media.gettr.com/group10/getter/2022/02/20/22/da94e318-f0b9-f5e6-1082-7bc06141883e/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@pangushixun 2/20/2022 5:58 PM (UTC)`
-
-<br/>2022年2月13日。 南非一家中国人开设的商店遭遇多名歹徒持枪抢劫，中国店主在持枪自卫时，被歹徒枪杀！ 海外排华就在身边，同胞们要时刻注意安全！学会自保！必要时离开高危国家！<br/><br/><br/>#盘古时讯 
-![img](https://media.gettr.com/group43/getter/2022/02/20/17/81ca850c-eacb-1de5-0ceb-5589b589c222/out.jpg)
-
----
-
-`@miles 2/20/2022 12:59 PM (UTC)`
-
-2022年2月20日 文贵大直播：中俄欲改国际秩序；乌克兰成较量战场；锁链女事件政治化；国共斗争间谍下场
-![img](https://media.gettr.com/group40/origin/2022/02/20/12/e0135d13-2a51-8977-65bf-d6f03ae10b86/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

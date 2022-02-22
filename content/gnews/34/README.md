@@ -2,36 +2,19 @@
 ---
 
 
-## 万事达卡将帮助中央银行采用数字货币
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2045265/)
+## 澳大利亚计划在南极洲投资8亿美元，以反击中共的影响力
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2045377/)
 
-翻译/编辑：小红帽
+撰稿/翻译：zzballack
+上传：追着曙光跑
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/8-30.png)图片来源：CNN
+据英国《每日邮报》（Daily Mail）2月21日报道，为对抗中共在南极洲的强势和咄咄逼人行为，澳大利亚总理斯科特∙莫里森（Scott Morrison）预定于2月22日宣布，澳州联邦政府将在未来10年内耗资8.04亿美元，强化和升级澳大利亚在南极洲的科研活动，包括在技术装备上花费1亿美元，以打通该国前往南极的内陆通道；另有6000万美元用于采购无人机、直升机和其他自主交通工具，探索人迹罕至的地区。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-22-at-12.46.30.jpeg)图片来源：原新闻
+澳州智库洛伊国际政策研究所（Lowy Institute）最近发表了一份报告，指责北京正在试图推动“扩大解释《南极条约体系》（Antarctic Treaty System）的规定”。《南极条约》由包括澳大利亚和中国在内的54个国家于1961年6月签署，《南极条约》以及相关的协定，被称为《南极条约体系》。其目的是约束各国在南极洲大陆上的活动。条约将南极洲作为科学保护区，承认科学调查自由，但禁止在南极洲进行军事或采矿活动，同时限制捕鱼。
 
+人们担心中共想利用南极洲为自己谋利。洛伊研究所指出，北京在南极渔业资源开采以及冰上活动的表现越来越强势：“中共通过探测渔业以及旅游资源，在《南极条约体系》内表现越来越强势，并有可能在南极洲寻求获取西方的技术，未来北京有可能率领一些国家寻求只有中共有能力开发的矿产资源。”
 
-根据PUNCH 2月22日报道，万事达卡(Mastercard)宣布，公司以支付为中心的咨询服务现在将包括致力于开放银行、开放数据、加密货币和数字货币、环境以及社会和治理的实践。
-
-该公司表示，扩展的重点之一将涉及帮助中央银行使用其测试平台探索中央银行数字货币的设计和部署。
-
-根据一份声明，万事达卡与银行和商家的咨询工作涵盖了一系列数字货币功能。从早期教育、风险评估和银行范围内的加密和NFT战略开发到加密卡和加密忠诚度计划的设计。
-
-声明说：“万事达卡已与提供最佳加密货币解决方案的数字原生公司建立了合作伙伴关系，并通过进入市场规划和商业化战略帮助金融科技公司扩展到新市场”。
-
-据该公司称，随着商业世界面临创新的涌入，它还必须应对不断变化的消费者偏好、快速的数字化转型和地缘政治的转变。
-
-据该公司介绍，其数据和服务包括2000多名数据科学家、工程师和顾问，为全球70个国家的客户提供服务。
-
-新闻链接：[Mastercard to help central banks adopt digital currencies](https://punchng.com/mastercard-to-help-central-banks-adopt-digital-currencies/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+信息来源：[Australia makes a BIG move against China – in Antarctica: PM forks out $800MILLION to counter the Communist power’s growing influence on the icy continent](https://www.dailymail.co.uk/news/article-10534143/The-battle-Antarctica-Australian-PM-Scott-Morrison-spends-800million-counter-China.html)
 
  
 

@@ -2,48 +2,23 @@
 ---
 
 
-## 把冬奥会变冬眠会的郭文贵三个字绝对让习近平闻风丧胆
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2045572/)
+## 江苏徐州丰县铁链女事件
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2045661/)
 
-G-TV视频链接：[https://gtv.org/video/id=62125cd21408ee3a03a2525c](https://gtv.org/video/id=62125cd21408ee3a03a2525c)
+撰稿—无名小卒
+校对/上传—无明逆流
 
-**郭文贵先生：**太惨了！这真是世界最荒诞的。你再想想，兄弟，1935年、1980年，苏联、希特勒这两个运动会，你现在比今天的冬奥会。你再想想2008年七哥在那块儿，天下唯我独尊的独享火炬就在我前面，全人类的镜头都在我楼里边那时候。你再想想今天爆料革命新中国联邦，兄弟你看里边有多少个不可解释的神秘的事件的联系。
+一个多月了，江苏省徐州市丰县某某村八孩铁链女事件持续发酵，甚至世界不同语种的多家媒体都有了报道。然而，就算这样，当地政府的官方通告几易其稿也没还原事件真相，以至于几个笔者耳熟能详的中共走狗大外宣“司马南”、“方舟子（方肘子）”等人都出来说了几句人话，尽管动机不一定单纯。因着事件的发展笔者发现被中共国内有良心的正义人士挖出来的内幕是那么的触目惊心、颠覆三观，尽管本人近十年来已经看到太多中共的邪恶真相，尤其是跟随了郭文贵先生的爆料革命之后了解的就更多更全面了，但是，丰县铁链女事件依然震惊得本人目瞪口呆、心跳加速、暗自神伤、悲伤不已…
 
-我昨天跟一个香港的哥们，也是到北京参加冬奥会的：“郭先生啊，在北京简直就是个死人的地方啦。”给我讲半天，他说“跟2008年是太不一样了啊。哎呀！”我说：“那你跑那干嘛去？” “我老爸让我来呀，我真是想走哇。”他说跟2008年完全不一样。他说：“我尝试问别人你知道Miles Guo吗？”每个人说：“哎！不要说！不要说！但是我问好多人都很恐惧啊！”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Wh47.jpeg)图片来源：网络
 
-是真的是他的感受。这个香港的哥们很天真，跑了就问Miles Guo去了，那不问就把人家吓跑了吗。你在北京说鬼来了没人跑，绝对你还敢说郭文贵来了，所有的人都吓趴下，我跟你说，绝对就这么牛叉，绝对核武器级的。你现在你到冬奥会喊一嗓子，有人麦克风喊：“郭文贵同志入场”。我百分之百所有的，哇，全都得趴下。你导弹扔下来了！习近平立刻趴地上：哇噻，投降！别打我！别打我！我百分之百保证，就这么牛！
+这就是邪恶的中共吹嘘的世界上最先进的社会体制“社会主义社会”下妇女儿童居然被大量拐卖，被拐卖后的遭遇如此恶劣凄惨，而最让人无法接受的是占绝大多数的民众的反应是那么的冷漠无情，那么的无知，真的让人无言以对…
 
-你喊、你真的喊导弹来，习近平都不会怎么的。你喊郭文贵来了，百分之百，“吧唧”趴在地上，他是生理反应，你每个人都是一样，是吧。你再看看2008奥运会，你再看看现在的冬奥会，你再看当年希特勒当时“叭”手一出来，是吧——一个所谓最成功的奥运会！还有当年的苏联……哇塞，你知道这真的是……
+![](https://assets.gnews.org/wp-content/uploads/2022/02/W8.jpeg)图片来源：网络
 
-兄弟姐妹们，天意!你说啥时候不死人，你就在这个时候，你在盘古旁边死人； 你啥都不死人，你在华尔道夫死人；你啥时候不染，谁也不染，就把普京的团队干上十几个。你如果那是真的普京在现场的话，那就真成了荒诞了！所以说现在等着他们的这个乌克兰行动，台湾行动，一旦行动起来，就是一个真实写照了。他们成了全世界的孤家寡人，孤独啊！孤家寡人，太可怕了！
+好在这事还在发酵，笔者真心希望能以铁链女事件为爆发点，唤醒国内老百姓的理性、良知，不再跟着共产党跑，不再爹亲娘亲不如党亲，而是跟着郭先生的爆料革命新中国联邦的步伐推翻邪恶的中国共产党，还朗朗乾坤于天下吧！！!
 
-字幕来源：[2022年2月4日《文贵大直播》全文字版](https://gnews.org/zh-hans/1961700/)
-
-编辑整理：Jacques；
-
-字幕文件制作：小满；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**Take Down The CCP**
 
  
 
