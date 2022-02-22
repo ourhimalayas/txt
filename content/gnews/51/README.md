@@ -2,27 +2,23 @@
 ---
 
 
-## 昨天的香港，今天的加拿大
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2045459/)
+## 郭先生揭密习普二人密谈内容
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2045456/)
 
 作者：纽约磐石农场—在远方
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-盖特2月21日消息，郭文贵先生早在2020年，对全世界所发出的警告，现在正在变成悲惨的现实。而昨天的香港，就是今天的加拿大。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-49.jpg)
-2020年11月7日，郭先生在视频中说，香港有无数年轻人被共产党强奸、轮奸、自杀和被消失，但全世界却在保持沉默。同时，他一再强调，这一切将会在美国发生。
+在2月18日的大直播中，郭文贵先生揭密了习近平与普京的密谈内容，指出他们发动战争的根本目的，是为其个人安全和政治利益服务。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-48.jpg)
+郭先生透露，习近平将中国人一万多亿美元的血汗钱交给普京，换来他们两个多小时的单独密谈。无非就是习近平在怂恿普京，二人同时发动侵略战争，其代价是美国的制裁，把中俄踢出SWIFT系统。但是二人的政治地位会得到空前的巩固，一切政治对手也都会被消灭。如果不发动战争，那么中俄内部的政治斗争，则会让二人丧命。因为一切对外战争，都是内部政治灾难的延续，对中共和俄罗斯来说尤其如此。这两场战争看似政治野心，实则是习近平和普京个人安全和政治安危所需。
 
-同年5月23日的视频中，郭先生表示，如果全世界不放弃短视利益，并被几个利益集团绑架，而不能下决心消灭中国共产党的话，人类将面临着生存的灾难。全世界都会变成香港，不论是美国还是欧洲。而这一切，正在今天的加拿大发生。
+郭先生进一步解密说，乌克兰其实是世界政治中的一枚棋子，美国和欧洲正在利用乌克兰人民的生命和安全，来消磨习普二人的意志。他们无论是否发动侵略战争，都无法避免灭亡的命运。
 
-参考链接：
-1. [昨天的香港，今天的加拿大](https://gettr.com/post/pvs4h4f362（视频1时长1’26’’)
-2. [昨天的香港，今天的加拿大](https://gettr.com/post/pvis6r9050)
-3. [昨天的香港，今天的加拿大](https://gettr.com/post/pvlxc7eff7（视频2时长1’40’’)
-4. [昨天的香港，今天的加拿大](https://gettr.com/post/pvq1ca9c6b)
+参考链接：[郭先生揭密习普二人密谈内容](https://www.gettr.com/post/pvugmsd8d4)
 
 ![This image has an empty alt attribute; its file name is calendar.png](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
 总编：DM
-编辑：DM
+编辑：飞虹
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**

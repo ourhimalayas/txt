@@ -2,36 +2,21 @@
 ---
 
 
-## 有声|日媒聚焦彭帅选手以及谷爱凌双重国籍事件
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2049133/)
+## 渥太华市长要出售抗议期间没收的车辆以支付城市成本
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2049144/)
 
-配音：香草山巡管部– 文凯琳
+**编译：verifunny**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-23-001931.jpg)
+据CBC新闻报道，渥太华市长2月20日表示，警方在镇压占领市中心期间扣押的任何车辆都应出售，以支付该市产生的费用。
+
+市长吉姆·沃森告诉 CBC 新闻，渥太华拥有这项权力是因为联邦政府上周援引了《紧急情况法》。 沃森说，自周五官员们开始加紧努力清除抗议活动以来，执法人员表现出的专业水平令他感到高兴。但他也表示，他担心示威者一直在“嘲弄警察，完全不负责任，似乎不想离开”。 周六，全国多支部队的警察从抗议者手中夺回了威灵顿街，清理了国家战争纪念馆周围的人群，将他们赶出议会区，然后沿着奥康纳街走。
+
+截至周六下午，又有 47 人被捕，总数达到 170 人。数十辆汽车也被拖走。 周六晚上，数百名抗议者聚集在银行街和斯帕克斯街的拐角处，一排警察站稳了脚跟。 他们最终向南移动，靠近皇后街。到晚上 10 点，人群明显减少，该地区安装了围栏。 在市中心以东，可以看到抗议者拆除了他们在城市棒球场旁边的考文垂路停车场设立的部分补给营。 到了晚上，大部分营地都消失了，尽管一些抗议者告诉 CBC，他们计划在其他地方重新集结。
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+**新闻来源：** [https://www.cbc.ca/news/canada/ottawa/ottawa-protests-sell-vehicles-watson-1.6358555](https://www.cbc.ca/news/canada/ottawa/ottawa-protests-sell-vehicles-watson-1.6358555)
 
-
-
-当地时间2月18日，日媒进一步分析了彭帅的遭遇，以及她在冬奥会上出镜的意义。
-
-国际奥委会主席巴赫抵达北京后，与彭帅进行了午餐会，但是中共并没有释放出任何会面的具体内容，甚至没有像上次视频会见时那样，放出一张照片，这引起了嘉宾们的疑问。
-
-其中，在彭帅接受法国媒体采访时，明明记者和彭帅都能说流利的英文，但国际奥委会和中共偏偏要安插一名翻译作为监视。尽管记者的所有问题都经过了中共的事先审核，但这次采访最关键的是，彭帅承认一开始揭发张高丽性侵的爆料文章，是她本人所写并由她本人发布到社交平台上的这个事实。
-
-文字版原文：[日媒聚焦彭帅选手以及谷爱凌双重国籍事件](https://gnews.org/zh-hans/2045498/)
-
-音频处理/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

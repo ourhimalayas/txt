@@ -2,76 +2,35 @@
 ---
 
 
-## 英国突然取消COVID限制措施 隐瞒疫苗灾难是重点
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2049138/)
+## 【TopNews】德国外长：德国冻结北溪2号项目
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/2049166/)
 
-作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
+![1034958021_0-39-2601-1502_1280x0_80_0_0_eb7d18a183a7d79d6e70b741a300e9fd.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/B4034470-52C6-48A0-8418-CF9404B7AC3D.jpeg)
+© AFP 2022 / JANEK SKARZYNSKI
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+俄罗斯卫星通讯社巴黎2月22日电 德国外长贝尔伯克表示，德国政府冻结了北溪2号项目，俄罗斯感受到自己行为的后果。
 
-2月21日，英国首相Boris Johnson宣布，从2月24日起结束英格兰的所有Covid限制措施，包括：终止向低收入人群支付的500英镑自我隔离补助金；不再强制要求与Covid检测呈阳性有过密切接触史的人自我隔离或进行日常检测；结束密切接触者追踪；员工将不再需要告诉雇主他们是否应该自我隔离。同时，Boris Johnson还宣布，从4月1日，停止大规模免费检测，免费检测将只针对那些最容易感染中共病毒的人群。
+贝尔伯克在欧盟外长非正式会议即将在巴黎召开之际说：“我们最近几周与国际伙伴一起准备了一揽子协议，这包括个人制裁、金融制裁、经济制裁。除此之外，德国政府刚刚还冻结了北溪2号项目。我们一直都说，[北溪2](https://sputniknews.cn/20220220/1039445540.html)号也是措施的一部分。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-23_00-23-59.png)
+贝尔伯克补充说：“俄罗斯违背了所承诺的一切，违背了要回到谈判桌前的承诺。如今他们需要感受到后果，这包括对北溪2号的措施。”
 
-一句话，英国将正式开始与新冠病毒共存。
+德国总理朔尔茨表示，已经委托该国经济部采取措施，暂停对“北溪-2”项目的认证工作，以此回应莫斯科承认乌克兰东部两个分离主义地区的决定，同时警告可能采取额外制裁。
 
-截止到2月22日，英国共有1879万人感染中共病毒，占该国总人口的27.6%。其中，接近一半是在过去3个月内感染的。
+朔尔茨解释说，经济部相关部门将根据“过去几天发生的变化”，对供应安全进行新的评估，并表示，“在这个阶段，除了第一次制裁之外，现在重要的是防止进一步升级，从而防止另一场灾难，我们所有的外交努力都是为了这一点。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/9C1699FC-B3DA-4F83-9D49-98BDE18CEA9F.jpeg)
+“北溪2号”管道项目已经完成，但在从俄罗斯开始向德国供应天然气之前，其正在等待德国当局的监管批准。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/United-Kingdom-cases.jpg)
+朔尔茨说：“由于当前的发展，我们应重新评估这一情况，同时也针对于‘北溪-2’。并且，已经要求德国经济部撤回联邦电网管理局附有能源安全分析的现有报告，这是必要的行政步骤，为了使天然气管道的认证不在当下进行。没有认证，‘北溪-2’就无法运行。”
 
-尽管与前两个星期相比，新增感染率有比较明显的下降趋势，但目前仍非常高。在过去的一周内，共有309,260人感染，平均每天新增38,409人。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/United-Kingdom-new-cases.jpg)
-因此，英国政府在此时宣布这样的决定是令人费解的！
+据悉，“北溪2号”管道项目价值110亿美元，这是一个铺设在波罗的海海底的管道网络，用于将俄罗斯天然气输送到德国，据预计，通过该管道项目将输送550亿立方米天然气。目前，的运营商是Nord Stream 2 AG公司，俄气是其唯一股东。
 
-目前，英国12岁以上人群中，一针、两针、三针或加强针中共病毒“疫苗”接种率分别为，91.4%（52,573,589人）、85%（48,885,893人）、66.1%（38,022,801人）。
+[援引链接：](https://sputniknews.cn/20220222/1039509171.html)
 
-尽管暂时没有找到整个英国的每周疫苗监测报告，但我们可以以苏格兰的每周疫苗监测报告来作定性分析。
+撰稿/米拉雅
 
-在2月16日，苏格兰公共卫生部门发布的苏格兰公共卫生COVID-19 和冬季统计报告（[Public Health Scotland COVID-19 & Winter Statistical Report：As at 14 February 2022](https://publichealthscotland.scot/media/11763/22-02-16-covid19-winter_publication_report.pdf)）中，详细记录了2022年1月15日到2022年2月11日期间，根据COVID-19疫苗接种状态划分的每周100,000人新增COVID-19人数。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Table-13-PCR-confirmed-COVID-19-age-standardised-case-rate-per-100000-individuals-by-vaccine-status-scaled.jpg)COVID-19 & Winter Statistical Report
-在这个表中，可以清晰的看到，无论什么时候，接种疫苗的人群，感染率都明显比不接种疫苗的人高！
+审阅/邱杰斯
 
-而如果我们查看更早一些的数据，比如，去年10月27发布的[Public Health Scotland COVID-19 & Winter Statistical Report：As at 25 October 2021](https://publichealthscotland.scot/media/9908/21-10-27-covid19-publication_report.pdf)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Table-23-Number-of-COVID-19-positive-cases-individuals-by-week-and-vaccination-status-25-September-2021-to-22-scaled.jpg)COVID-19 Statistical Report
-
-在那时，根据官方定义的疫苗接种状态，接种疫苗的人感染率明显比未接种疫苗的人低得多！
-
-同时，请注意，在报告的倒数第三页，苏格兰公共卫生部门对COVID-19病毒疫苗接种状态的定义更是和人们通常的理解完全不一致。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/Vaccination-status.jpg)
-
-COVID-19疫苗接种状态的定义：
-
-未接种疫苗：指从未接种过COVID-19病毒疫苗或者在PCR检测COVID-19呈阳性时，距离接种第1针COVID-19疫苗的日期不超过21天。
-
-接种过1针疫苗：指PCR检测COVID-19呈阳性时，接种过1针疫苗，且距离接种1针疫苗的时间大于21天。如果接种了2针，则距离接种第2针的日期不超过14天。
-
-接种过2针疫苗：指PCR检测COVID-19呈阳性时，接种过2针疫苗，且接种第2针疫苗的时间超过14天。
-
-接种过3针或加强针疫苗：指PCR检测COVID-19时呈阳性，接种过3针，且接种第3针的日期超过14天。
-
-很明显，这样的疫苗接种状态定义与正常人的认知差别很大。任何人的常识都是在打完针的下一秒开始，就认为自己已经打了COVID-19疫苗！
-
-这样的定义有什么意义呢？大量打完第1针疫苗的人，如果PCR检测COVID-19呈阳性，会因为接种第一针不超过21天而被计算在未打疫苗群体内。同样，大量打完第2针疫苗的人，如果PCR检测COVID-19呈阳性，会被计算在打了1针疫苗群体内。大量打完第3针疫苗的人，如果PCR检测COVID-19呈阳性，会被计算在打了2针疫苗群体内。
-
-总之，会让统计报告看起来，让感染COVID-19病毒的人中，未打疫苗的比实际数据要多很多！而打了疫苗的感染者少得多！
-
-因此，全世界很多国家匆忙放开对COVID-19的限制措施，除了政治、经济考量，疫苗灾难即将爆发，隐瞒疫苗灾难或许是关键！
-
-参考数据：
-
-[Covid: Self-isolation law could be scrapped in England this month](https://www.bbc.com/news/uk-60319947)
-
-[What are the self-isolation rules in England and the rest of the UK?](https://www.bbc.com/news/explainers-54239922)
-
-[Main figures – From our time series explorer](https://www.ons.gov.uk/)
-
-[Public Health Scotland COVID-19 & Winter Statistical Report：As at 25 October 2021](https://publichealthscotland.scot/media/9908/21-10-27-covid19-publication_report.pdf)
-
-[Public Health Scotland COVID-19 & Winter Statistical Report：As at 14 February 2022](https://publichealthscotland.scot/media/11763/22-02-16-covid19-winter_publication_report.pdf)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+上传/天赐良闻
 
  
 

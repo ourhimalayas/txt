@@ -2,57 +2,36 @@
 ---
 
 
-## 《苦女》The Suffering Women
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2049073/)
+## 有声|日媒聚焦彭帅选手以及谷爱凌双重国籍事件
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2049133/)
 
-秘密翻译组-北美组
+配音：香草山巡管部– 文凯琳
 
-苦女                     
-The Suffering Women
 
-可叹
-Alas
-少女无辜遭祸端
-The innocent little girl became a victim of human trafficking
-音信杳杳如纸鸢
- No one has heard from her ever since
-二十 四载拘囚 骨肉离散
-Twenty-four years of captivity, separated from her loving family
-叫破苍穹 谁见薄命红颜 
-Has anyone seen this poor girl? She has nowhere to turn for help
 
-剪舌拔齿和血咽
-They cut her tongue and pulled out her teeth
-链锁玉颈双蛾残
-Chained her delicate neck and destroyed her beautiful complexion
-修罗场内不见天
-In a hopeless plight and a world of darkness 
-炼狱泯人寰
-Her tragedy in that living hell is incomparable in this world
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-此生无日望生还
-There is no hope for her to return to her joyful life
-逃离恨海待何年
-When will she be able to escape from the sea of misery? 
-万念俱灰 肝肠痛断
-With all hopes dashed to pieces, she is overwhelmed by grief
-  
-痴语问苍天 一叹泪涟涟
-She asks the heaven why she has to suffer, heaven fell silent, only tears linger
-可叹盛世谎弥天
-What a horrendous tragedy, the so-called “prosperous China” is full of lies
- 生如蝼蚁命难全
-Human life means nothing in the eyes of the Chinese Communist Party
-举国沉酣浑不觉
-But the whole country is still asleep, without realizing what’s really happening
-遭逢胜过《窦娥冤》
-The injustice she has been suffering is even worse than the story of Snow in Midsummer
 
-灵魂割礼实可哀
-The mass mutilation of the souls is truly tragic
-他日谁上断头台
-Retribution for the wicked will surely come on Judgment Day
 
+当地时间2月18日，日媒进一步分析了彭帅的遭遇，以及她在冬奥会上出镜的意义。
+
+国际奥委会主席巴赫抵达北京后，与彭帅进行了午餐会，但是中共并没有释放出任何会面的具体内容，甚至没有像上次视频会见时那样，放出一张照片，这引起了嘉宾们的疑问。
+
+其中，在彭帅接受法国媒体采访时，明明记者和彭帅都能说流利的英文，但国际奥委会和中共偏偏要安插一名翻译作为监视。尽管记者的所有问题都经过了中共的事先审核，但这次采访最关键的是，彭帅承认一开始揭发张高丽性侵的爆料文章，是她本人所写并由她本人发布到社交平台上的这个事实。
+
+文字版原文：[日媒聚焦彭帅选手以及谷爱凌双重国籍事件](https://gnews.org/zh-hans/2045498/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
