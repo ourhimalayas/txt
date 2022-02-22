@@ -16,6 +16,10 @@
 ---
 ## 頁面 26/40 [**<**](/content/README-25.md) [1](/content/README.md) ... [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) **26** [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) ... [40](/content/README-40.md) [**>**](/content/README-27.md) [查看全部](/content/README-all.md)
 
+[文字版：2017年4月28日郭先生接受BBC采訪的視頻](/content/2019/05/20190510-8107152999267349007.md)
+
+[文字版：May 7, 2019共产党被推倒，释放所有监狱里的犯人．土地拥有权归人民所有．西藏，新疆，台湾．香港实施百分之百的自治！你们觉得可能吗？](/content/2019/05/20190508-7522402504104525602.md)
+
 [文字版：2019年5月4日：小夏与文贵谈四一九VOA断播背后的真相](/content/2019/05/20190507-3556468867911732041.md)
 
 [文字版：2019年5月3號，文貴與大家分享一些過去沒有講過的事情](/content/2019/05/20190505-8215359128431540656.md)
@@ -61,10 +65,6 @@
 [翻译整理：2019年3月21日班农先生在意大利罗马《信息算法》主题演讲](/content/2019/04/20190404-1301610143804687789.md)
 
 [文字版：2019年4月2日郭文贵先生报平安 ](/content/2019/04/20190403-7393706925448798261.md)
-
-[文字版：2019年3月29日郭文贵先生浴火重生](/content/2019/03/20190330-2880102853633751402.md)
-
-[文字版：2019年3月5日 为什么在两会上说，金正恩拯救了中国](/content/2019/03/20190306-7214667164782949477.md)
 
 
 ## 頁面 26/40 [**<**](/content/README-25.md) [1](/content/README.md) ... [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) **26** [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) ... [40](/content/README-40.md) [**>**](/content/README-27.md) [查看全部](/content/README-all.md)

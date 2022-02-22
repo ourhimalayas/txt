@@ -16,6 +16,10 @@
 ---
 ## 頁面 25/40 [**<**](/content/README-24.md) [1](/content/README.md) ... [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) **25** [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) ... [40](/content/README-40.md) [**>**](/content/README-26.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年6月13日傍晚与细丝和庄烈宏直播](/content/2019/06/20190615-8556712015252001819.md)
+
+[文字版：郭先生緊急喊話香港616必須上街！](/content/2019/06/20190615-3492189013164617550.md)
+
 [文字版：2019年6月13日谈香港反遣返游行](/content/2019/06/20190613-2395571549035614161.md)
 
 [文字版：2019年6月12日文贵与细丝直播 如何布局最后部分谈8964监狱风云分享精彩人生经历  ](/content/2019/06/20190613-2844499569524374811.md)
@@ -61,10 +65,6 @@
 [文字版：2019年5月6日文贵直播谈谈，为什么川普总统要突然间的停掉，中美贸易协定共产党必须还回属于14亿中国人民的一切财富一切权力！](/content/2019/05/20190510-4083283175191346612.md)
 
 [文字版：2019年5月8日，文貴聊聊，為什麼中方要求美方不能公開中美的貿易協議內容！為什麼文貴的夢語，郭九條](/content/2019/05/20190510-3983721227880771175.md)
-
-[文字版：2017年4月28日郭先生接受BBC采訪的視頻](/content/2019/05/20190510-8107152999267349007.md)
-
-[文字版：May 7, 2019共产党被推倒，释放所有监狱里的犯人．土地拥有权归人民所有．西藏，新疆，台湾．香港实施百分之百的自治！你们觉得可能吗？](/content/2019/05/20190508-7522402504104525602.md)
 
 
 ## 頁面 25/40 [**<**](/content/README-24.md) [1](/content/README.md) ... [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) **25** [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) ... [40](/content/README-40.md) [**>**](/content/README-26.md) [查看全部](/content/README-all.md)
