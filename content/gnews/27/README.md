@@ -2,28 +2,49 @@
 ---
 
 
-## 有声|中共洗脑教育是国人悲惨命运的根源
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2049039/)
+## 美国与盟国称若俄罗斯发动入侵将联手发出制裁
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2049045/)
 
-配音：香草山巡管部– 文凯琳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在2月20日的大直播中，郭文贵先生谈及“锁链女”事件时指出，中共多年的洗脑教育，使中共国人变得自私，冷漠、懦弱。这正是从中共统治以来，国人悲惨命运的根源。灭共后，这种境况也将持续很长一段时间。因此，在中共国这片土地上，目前不可能出现“阿比比”事件。
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image006.png)
+路透社**2**月**18**日报道称** **，** **美国与欧洲官员表示，美国及其盟国已经制定了详细的计划，倘若俄罗斯军队实际入侵乌克兰，他们将发出协同的严厉制裁。但是，对于发生其他类型的侵犯行动该如何应对，他们远未达成一致。**
 
-大直播回顾了中共国道德沦丧的几个标志性事件，包括，2006年南京彭宇案，2011年佛山小悦悦事件，以及刚发生的徐州锁链女事件。每个事件都产生了巨大的社会效应，揭开了中共国太平盛世的虚假面纱。但几乎每次都雷声大雨点小，很快被人遗忘不提。
+**他们表示，普遍同意在**“**入侵**”**发生后的**48**小时内发出制裁，并准备就绪，但关于确切触发点将继续进行讨论。**
 
-文字版原文：[中共洗脑教育是国人悲惨命运的根源](https://gnews.org/zh-hans/2043961/)
+**德国极力主张让计划保持**“**战略性模糊**”**，好让普京一直猜不透。
 
-音频处理/发稿：Daxia
+匈牙利、意大利和奥地利都认为，只有在俄罗斯发动军事攻击的情况下，才会实施制裁。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+**瑞典建议，如果普京一直不发动攻击，并且略微减少兵力，但一直压在乌克兰边境上，这会对乌克兰经济施加巨大压力，且俄罗斯偶尔发动网络攻击，应该讨论一下针对这样的情况采取什么行动。**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+**几名官员表示，欧盟其他国家不愿深入研究这种情况，因为这可能会加剧欧盟内部的分歧，打破统一阵线。
+
+欧美的软弱，是促使中共和俄罗斯野心不断膨胀的主要原因。
+
+
+
+
+
+**推出问题，敲出真相，爆料在路上！**
+
+**请关注和订阅我们的以下账号：**
+
+**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+
+**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+
+**玫瑰看新闻YOUTUBE账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**ROSE NEWS**
+
+**【玫瑰看新闻】推特账号**：
+
+**ROSE NEWS (@ROSENEWS4)A**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,22 +2,56 @@
 ---
 
 
-## 中共要求国内银行深度调查马云和蚂蚁集团
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2049072/)
+## 《苦女》The Suffering Women
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2049073/)
 
-**编译：verifunny**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-22-235826.jpg)
-据《零对冲》报道，中共又在寻找更多涉及蚂蚁集团及其创始人马云的腐败和非法行为以及其他“污垢”的罪证。大约一个月前，马云和蚂蚁集团卷入了中共国近期最大的腐败丑闻之一：涉及一名前中共高官在杭州，这也是蚂蚁集团的发源地。
+秘密翻译组-北美组
 
-现在，中共已下令该国的银行和其他公司搜索他们的记录，以寻找任何涉及蚂蚁金服的潜在腐败交易“证据”。自 2020 年秋季突然取消计划中的首次公开募股以来，中共一直在寻求惩罚该公司，然后才采取措施限制该公司的增长潜力。
+苦女                     
+The Suffering Women
 
-从那时起，CEO马云就变成了一个幽灵，会在很长一段时间内消失在公众视野中。有消息称，中共国国家审计署正在牵头进行被称为“迄今为止对与蚂蚁集团交易最彻底和最广泛的调查”，这表明中共正在寻求迅速建立另一起针对该公司的案件。
+可叹
+Alas
+少女无辜遭祸端
+The innocent little girl became a victim of human trafficking
+音信杳杳如纸鸢
+ No one has heard from her ever since
+二十 四载拘囚 骨肉离散
+Twenty-four years of captivity, separated from her loving family
+叫破苍穹 谁见薄命红颜 
+Has anyone seen this poor girl? She has nowhere to turn for help
 
-在中共扼杀蚂蚁金服史上规模最大的首次公开募股一年多之后，其打压行动丝毫没有松懈，这场打压已演变成对中共国科技圈各个角落的攻击。随着习近平推动更多的“共同繁荣”，中共相关部门已开出数十亿美元的反垄断罚款，以结束少数重量级人物的统治。
+剪舌拔齿和血咽
+They cut her tongue and pulled out her teeth
+链锁玉颈双蛾残
+Chained her delicate neck and destroyed her beautiful complexion
+修罗场内不见天
+In a hopeless plight and a world of darkness 
+炼狱泯人寰
+Her tragedy in that living hell is incomparable in this world
 
-自从打压以来，中资银行一直在缩减与蚂蚁集团的合作，而且由于政府坚持要求蚂蚁集团成立一家银行控股公司，以便“像银行一样”对其进行监管，新的限制措施导致蚂蚁集团在货币市场类产品中持有的资产数量减少了三分之一。
+此生无日望生还
+There is no hope for her to return to her joyful life
+逃离恨海待何年
+When will she be able to escape from the sea of misery? 
+万念俱灰 肝肠痛断
+With all hopes dashed to pieces, she is overwhelmed by grief
+  
+痴语问苍天 一叹泪涟涟
+She asks the heaven why she has to suffer, heaven fell silent, only tears linger
+可叹盛世谎弥天
+What a horrendous tragedy, the so-called “prosperous China” is full of lies
+ 生如蝼蚁命难全
+Human life means nothing in the eyes of the Chinese Communist Party
+举国沉酣浑不觉
+But the whole country is still asleep, without realizing what’s really happening
+遭逢胜过《窦娥冤》
+The injustice she has been suffering is even worse than the story of Snow in Midsummer
 
-**新闻来源：**[https://www.zerohedge.com/geopolitical/ccp-asks-chinas-banks-turn-over-more-dirt-jack-ma-ant-group](https://www.zerohedge.com/geopolitical/ccp-asks-chinas-banks-turn-over-more-dirt-jack-ma-ant-group)
+灵魂割礼实可哀
+The mass mutilation of the souls is truly tragic
+他日谁上断头台
+Retribution for the wicked will surely come on Judgment Day
 
  
 

@@ -2,39 +2,22 @@
 ---
 
 
-## 加国省长杰森肯尼挑战特鲁多紧急法案
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2049068/)
+## 中共要求国内银行深度调查马云和蚂蚁集团
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2049072/)
 
-作者：日本东京方舟农场—Miyali7768(文玉)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月19日消息，针对联邦自由党实施”紧急情况法”以结束卡车司机对渥太华市中心的封锁，阿尔伯塔省省长杰森·肯尼在接受Postmedia独家采访时表示，联邦政府使用加拿大最强大的法律，在目前情况下是不合理的过度扩张，违反正当程序和”侵犯”省级管辖权。并表示对此深感厌恶，将在下周初，向渥太华联邦法院提出法律挑战，以结束总理特鲁多的任意和高压行动。
+**编译：verifunny**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-22-235826.jpg)
+据《零对冲》报道，中共又在寻找更多涉及蚂蚁集团及其创始人马云的腐败和非法行为以及其他“污垢”的罪证。大约一个月前，马云和蚂蚁集团卷入了中共国近期最大的腐败丑闻之一：涉及一名前中共高官在杭州，这也是蚂蚁集团的发源地。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide10-3.jpeg)
+现在，中共已下令该国的银行和其他公司搜索他们的记录，以寻找任何涉及蚂蚁金服的潜在腐败交易“证据”。自 2020 年秋季突然取消计划中的首次公开募股以来，中共一直在寻求惩罚该公司，然后才采取措施限制该公司的增长潜力。
 
-另外，联邦司法部长大卫·拉梅蒂此前在CTV上暗示，联邦调查局正在考虑冻结任何用信用卡向车队捐赠者账户。
+从那时起，CEO马云就变成了一个幽灵，会在很长一段时间内消失在公众视野中。有消息称，中共国国家审计署正在牵头进行被称为“迄今为止对与蚂蚁集团交易最彻底和最广泛的调查”，这表明中共正在寻求迅速建立另一起针对该公司的案件。
 
-肯尼认为，如果特鲁多派冻结其政治对手的财政得逞而逍遥法外，允许联邦政府利用《紧急情况法》来履行普通警察职能骚扰对手，超越并篡夺加拿大各省执法的属地管辖权，这将为未来树立一个危险的先例。
+在中共扼杀蚂蚁金服史上规模最大的首次公开募股一年多之后，其打压行动丝毫没有松懈，这场打压已演变成对中共国科技圈各个角落的攻击。随着习近平推动更多的“共同繁荣”，中共相关部门已开出数十亿美元的反垄断罚款，以结束少数重量级人物的统治。
 
-肯尼代理律师将要求法官暂停使用该紧急法案。
+自从打压以来，中资银行一直在缩减与蚂蚁集团的合作，而且由于政府坚持要求蚂蚁集团成立一家银行控股公司，以便“像银行一样”对其进行监管，新的限制措施导致蚂蚁集团在货币市场类产品中持有的资产数量减少了三分之一。
 
-参考链接：
-1.[https://gettr.com/comment/cow1g04ffb](https://gettr.com/comment/cow1g04ffb)
-2. [https://edmontonsun.com/opinion/columnists/gunter-alberta-premier-jason-kenney%E3%80%82](https://edmontonsun.com/opinion/columnists/gunter-alberta-premier-jason-kenney%E3%80%82)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
-
-总编：Zion文恩
-编辑：静言
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+**新闻来源：**[https://www.zerohedge.com/geopolitical/ccp-asks-chinas-banks-turn-over-more-dirt-jack-ma-ant-group](https://www.zerohedge.com/geopolitical/ccp-asks-chinas-banks-turn-over-more-dirt-jack-ma-ant-group)
 
  
 

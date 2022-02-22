@@ -2,56 +2,42 @@
 ---
 
 
-## 《苦女》The Suffering Women
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2049073/)
+## 澳洲总理要求中共国全面调查其军舰激光照射澳军机事件
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2049080/)
 
-秘密翻译组-北美组
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image008.png)一种**P-8A Poseidon**型飞机
+路透社于**2**月**21**日报道** **，日前一艘中共军舰用激光照射一架澳洲巡逻机，澳洲总理莫里森周一表示，当时中共军舰非常接近澳洲领土，澳洲要求中共进行**”**全面调查**”**。**
 
-苦女                     
-The Suffering Women
+**莫里森周一在广播中说，澳洲政府还没有收到中共对上周四这起事件的解释，澳洲认为该事件是**”**危险和鲁莽的行为**”**。**
 
-可叹
-Alas
-少女无辜遭祸端
-The innocent little girl became a victim of human trafficking
-音信杳杳如纸鸢
- No one has heard from her ever since
-二十 四载拘囚 骨肉离散
-Twenty-four years of captivity, separated from her loving family
-叫破苍穹 谁见薄命红颜 
-Has anyone seen this poor girl? She has nowhere to turn for help
+**澳洲国防部在周六表示，一艘中共军舰在澳洲专属经济区内用激光照射了一架在澳洲北部航道飞行的澳洲军机，这可能危及人员生命。
 
-剪舌拔齿和血咽
-They cut her tongue and pulled out her teeth
-链锁玉颈双蛾残
-Chained her delicate neck and destroyed her beautiful complexion
-修罗场内不见天
-In a hopeless plight and a world of darkness 
-炼狱泯人寰
-Her tragedy in that living hell is incomparable in this world
+莫里森在当地电台表示，澳洲已透过外交及国防管道，要求对此事件进行全面调查。
 
-此生无日望生还
-There is no hope for her to return to her joyful life
-逃离恨海待何年
-When will she be able to escape from the sea of misery? 
-万念俱灰 肝肠痛断
-With all hopes dashed to pieces, she is overwhelmed by grief
-  
-痴语问苍天 一叹泪涟涟
-She asks the heaven why she has to suffer, heaven fell silent, only tears linger
-可叹盛世谎弥天
-What a horrendous tragedy, the so-called “prosperous China” is full of lies
- 生如蝼蚁命难全
-Human life means nothing in the eyes of the Chinese Communist Party
-举国沉酣浑不觉
-But the whole country is still asleep, without realizing what’s really happening
-遭逢胜过《窦娥冤》
-The injustice she has been suffering is even worse than the story of Snow in Midsummer
+中共享激光照射来攻击国外飞机已经是惯用的流氓手段。
 
-灵魂割礼实可哀
-The mass mutilation of the souls is truly tragic
-他日谁上断头台
-Retribution for the wicked will surely come on Judgment Day
+
+
+**推出问题，敲出真相，爆料在路上！**
+
+**请关注和订阅我们的以下账号：**
+
+**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+
+**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+
+**玫瑰看新闻YOUTUBE账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**ROSE NEWS**
+
+**【玫瑰看新闻】推特账号**：
+
+**ROSE NEWS (@ROSENEWS4)A**
 
  
 
