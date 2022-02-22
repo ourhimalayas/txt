@@ -2,39 +2,30 @@
 ---
 
 
-## 有声|乌克兰将数字货币合法化
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2044245/)
+## 马耳他新冠疫苗超高接种率以后，达到了新冠病毒破纪录感染率
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2044274/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据多家媒体报道，2月17日，乌克兰议会以272票的压倒性优势通过了新的乌克兰虚拟资产法。根据该法，乌克兰证券委员会将作为虚拟资产和任何未来虚拟资产市场的主要监管机构，负责向比特币和加密货币服务提供商发放许可证，并对市场进行监督和财务监控。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-44.jpg)
-除了为将加密资产纳入乌克兰的金融和监管体系奠定法律基础外，该法案还确认了公民持有和使用加密货币的权利，并定义了所有加密货币市场参与者的权利和义务。
+#### 翻译                     意大利达芬奇农场                     小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-21-alle-20.28.11-2.png)图片来源：eventiavversinews.it
+你们还记得他们说全民接种疫苗就能使生活回到原先的正常状态吗？
 
-乌克兰数字化转型部长米哈伊尔·费德罗夫称，新法案将允许乌克兰启动一个合法的虚拟资产市场。
+马耳他就是个例子，但是马耳他完全没回到原来的样子。该国1月13日已实行新的“新冠病毒”条例，正像 《马耳他时代报》报道的那样，马耳他公民在进酒吧、餐厅、电影院和其他场所时要出示他们的证件（疫苗护照）。疫苗护照要显示他们接种了最后一剂疫苗。
 
-据悉，在过去的几个月里，乌克兰通过加密货币为志愿者筹集了大量资金，尽管传统支付方式仍是主流，但加密货币被证明是一个强大的、越来越受欢迎的替代方案。
+马耳他公民是注射新冠疫苗的典范，即使是世界上新冠疫苗接种率最高的国家之一，他们也达到了新冠疫苗的最高死亡率 ，达到85%以上，Healthdata.org网站宣称，94%的人接种了至少一剂疫苗。
+
+在他们实行严格的新冠病毒条例时，据反映许多餐馆正在关门，其中14%是永久性关门。
+
+去年马耳他在新冠疫苗接种方面堪称典范，他们遵循了所有的规则，相信了所有的谎言。 现在国家处于新冠病毒死亡率最糟糕的时刻，实际上各种梗回来了， 但是生活却没有恢复正常。
+
+这些都不会令人感到诧异，对新冠病毒的跪拜是对死亡的崇拜。憎恨人类，憎恨生活，会引起死亡和毁灭， 马耳他是一个极好的例子。
 
 
 
-文字版原文：[乌克兰将数字货币合法化](https://gnews.org/zh-hans/2037874/)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+原文链接：[https://www.eventiavversinews.it/l-iper-vaccinata-malta-raggiunge-un-tasso-di-mortalita-record-per-covid-19/](https://www.eventiavversinews.it/l-iper-vaccinata-malta-raggiunge-un-tasso-di-mortalita-record-per-covid-19/)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+编辑、上传 ：    Xiao    baige
 
  
 
