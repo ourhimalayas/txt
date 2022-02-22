@@ -2,66 +2,35 @@
 ---
 
 
-## 监督警察的“警察”，安大略省特别调查组（SIU）介入，调查铁蹄践踏妇女事件
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2044460/)
+## 英国将废除所有的中共病毒限制措施
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2044465/)
 
-**编译及评论：16626**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/18C0CBF5-85A2-4202-BB7A-C7FF261FA6F0.png)图片来源：https://media.gettr.com/group12/getter/2022/02/19/01/a169f5e8-45d0-01c5-88b9-c148b8e1e674/ac2adeb1b271141019a123995d092f74\_500x0.jpg
-**安大略省特别调查组（SIU 或UES）**
+翻译：灭共文明
 
-专门负责在必要时对警方进行调查的安大略省特别调查组（SIU 或UES）表示，已对周五和周六（平息）渥太华抗议活动（的警察行为）展开调查。
+编辑与校对：灭共文明、冰糖葫芦喵
 
-安大略省特别调查组（SIU 或UES，相当于魁北克独立调查局（BEI））的调查人员对一段视频很重视，该视频显示一名妇女在（警察）镇压抗议者期间被一匹警马撞倒。
+《路透社》伦敦2月21日报道，**周一，英国首相鲍里斯.约翰逊宣布，英国将结束所有中共病毒疫情限制措施，包括对中共病毒患者的强制自我隔离和免费检测。**
 
+约翰逊表示，**将于2月24日取消对中共病毒检测呈阳性的患者进行自我隔离的法律要求，将于4月1日结束大规模检测。**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/约翰逊1-scaled-e1645486290680.jpg)2月21日，英国首相约翰逊宣布结束所有COVID限制（图片来源：Getty Images)
+报道称，**约翰逊向国会议员公布了他的“与中共病毒共存”计划，**并称将取消对检测呈阳性的人进行隔离的法律规定。
 
+约翰逊说：**“限制对我们的经济、社会、心理健康和孩子们的生活机会造成了沉重的打击，我们不需要再为此付出代价。”“**因此，让我们学会与这种病毒共存，**继续保护自己和他人，而不限制我们的自由。”**
 
-**增援渥太华的多伦多警察**
+约翰逊说，对病毒的一些监测措施将继续保留和维护，以便对新的变异做出快速反应，这些应对反应也可以迅速扩大规模。
 
-据安大略省特别调查组（SIU 或UES） 称，周五下午 5 点 14 分，被马和它的骑手撞倒的妇女“严重受伤”,该事故涉及一名增援渥太华的多伦多警察。
+但**他指出**，由于欧米克隆变种的严重性较低，导致中共病毒病例大大减少，所以要把预防病毒放在首位，**是时候缩减大规模检测了。**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/约翰逊2-scaled.jpg)2月21日，英国首席医官、首相约翰逊和首席科学顾问在新闻发布会上（图片来源：Getty Images)
+约翰逊说，**中共病毒检测将继续提供给高风险群体和社会护理人员，并将与零售商合作，允许任何想要检测的人能够及时购买到测试盒。**
 
-该妇女的家人，在网络上提到该妇女锁骨受伤。
+苏格兰和威尔士的领导人对约翰逊削减病毒检测计划表示反对，认为这种做法为时过早。
 
-**增援渥太华的温哥华警察**
+英国政府报告，**目前为止，英国死于中共病毒患者超过16万，是世界上死亡人数第七高的国家。**
 
-此外，安大略省特别调查组（SIU 或UES）还将调查使用一种非致命的防暴武器（造成的伤害），周六晚上增援渥太华的温哥华警察曾使用这种非致命的防暴武器。
+**新闻链接：**
 
-**（监督）警察的警察**
+[UK’s Johnson scraps COVID restrictions in England | Reuters](https://www.reuters.com/world/uk/uks-johnson-set-scrap-covid-restrictions-2022-02-20/)
 
-安大略省特别调查组（SIU 或UES），又称为“（监督）警察的警察” 还声明，截至周日早上，还没有记录到与使用这些武器有关的伤害。
-
-安大略省特别调查组（SIU 或UES）欢迎在（警察平息）渥太华抗议活动中的受害人或知情者提出投诉或举报。
-
-另外，据PM （[https://thepostmillennial.com/woman-trampled-freedom-protest-indigenous-elder](https://thepostmillennial.com/woman-trampled-freedom-protest-indigenous-elder) ） 报道，惨遭铁蹄践踏的妇女是原住民。
-
-**鐵蹄踐踏**
-
-另外，Gettr有这样的评论（[https://gettr.com/post/pvltbq8a54](https://gettr.com/post/pvltbq8a54) ）：
-
-***人民何罪之有？為什麼一次次被暴政碾壓******❓***
-
-***從天安門廣場的坦克，到香港被自殺被失蹤的年輕人，到今天加拿大鐵蹄踐踏之下的傷亡者******❓***
-
-***我們有生之年還要經歷多少心碎時刻******⁉***
-
-日前，Gnews发表一篇题为《魁北克省自由卡车司机收到罚单同时，数名示威者递给他现金，[https://gnews.org/zh-hans/2034324/](https://gnews.org/zh-hans/2034324/) 》的文章报道，自由卡车司机收到警察的罚单同时数名示威者马上递给他现金。Gnews还发表一篇题为《魁北克省记者“自爆”收到纽伦堡审判的照片，[https://gnews.org/zh-hans/2022554/](https://gnews.org/zh-hans/2022554/) 》的文章报道，一位署名为，安东尼奥斯·萨拉利利斯（Antonios Sarailis）的人，发给加拿大魁北克省的蒙特利尔日报记者，伊曼纽尔 拉特拉维斯，Emmanuelle Latraverse，一张纽伦堡审判处决的照片，并警告下一个就轮到这名记者了。引用此篇文章的一段话来结束此篇报道：
-
-***纽伦堡审判的时刻快到了***
-
-***我们谴责并反对暴力示威，更反对政府施加暴力于人民。那些，颠倒黑白，替邪恶势力站台的媒体，以及执法机关的警察，同样逃脱不了即将到来的纽伦堡审判。***
-
-**参考资料**：
-
-[Une enquête ouverte sur le démantèlement de la manifestation à Ottawa](https://www.tvanouvelles.ca/2022/02/20/une-enquete-ouverte-sur-le-demantelement-de-la-manifestation-a-ottawa-1)
-
-**编辑：LILY**
-
-**发布：歪桑**
-
-20220221
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/E613D0A7-BA37-452F-93C3-79D9D54F1765.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

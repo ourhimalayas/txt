@@ -2,31 +2,41 @@
 ---
 
 
-## 有声|一人破产成就无数亿万富豪
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2044513/)
+## 英国女王新冠检测呈阳性，症状类似轻微感冒
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2044517/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-郭先生在2月16日的大直播中谈到，自己最开心的就是让贫困但有智慧的家庭都能过上好日子，并享受购买喜币带来的财富，彻底改变个人和家庭的命运。自己一个人的破产成就了无数亿万富豪，并有无数人愿倾囊相助，这在人类史上是从未出现过的事情！
+***评论：我们衷心祝愿女王早日康复。在女王确诊前，其长子和儿媳相继感染新冠（其中查尔斯王储是第二次感染新冠病毒），再次验证了无论是疫苗还是加强针，都不能预防新冠病毒。并且随着全球各地出现的疫苗次生灾难，我们更应警惕疫苗的安全性。***
 
-人类即将进入喜币时代，重塑“承诺就兑现，兑现就不能改变”的货币本质！就在郭先生宣布个人破产的同时，喜币价格不但不跌反而在涨，喜交所已成世界第四大交易所并将交易比特币等其它数字货币，加上H-Pay的推广和普及，H贷款、H抵押和数字银行的即将问世，以及不受第三方监管和掠夺的HDO与HCN的全球流通，且G系列产品的价值也时刻在涨，已让战友坐享几百亿美元财富的分配,迄今战友从喜币贴现已近7亿美元。
+**据《华盛顿邮报》作者：Karla Adam和William Booth，2022年2月20日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/zxc.jpg)**图片来源：皇室推特账号**
+白金汉宫周日在一份声明中宣布，在长时间与公众隔离后，英国女王伊丽莎白二世的冠状病毒检测呈阳性，并出现了“类似轻微感冒的症状”。
 
-在疫苗灾难越来越深重、经济基本面越来越糟糕的世界面前，郭先生的个人破产让自己成为了真正的“无产阶级”，却让爆料革命战友成了这个星球上绝无仅有的“无苗有币族”,让很多破产和面临破产的人转身成为了富豪，让无数绝望的人有了希望，只因他们有一个共同的信仰：新中国联邦！
+王宫表示，这位95岁的女王预计未来一周将在温莎城堡继续履行“较轻松的公务”，并且继续“接受医疗护理，并遵守所有适当的防疫指导方针”。
 
-文字版原文：[一人破产成就无数亿万富豪](https://gnews.org/zh-hans/2039982/)
+她的儿子兼皇储查尔斯王子的病毒检测呈阳性，并在10天前与女王一起在温莎被隔离。查尔斯的妻子卡米拉此后也检测呈阳性。
 
-音频处理：Fei797
-发稿：Fei797
+尽管王室在推特上发布一条女王祝贺英国女子和男子冰壶队获得奥运奖牌的消息，但并没有在周日发布任何有关她健康状况的进一步信息。英国王室通常不对涉及女王的医疗事宜发表评论——这种习俗可以追溯到英国国王和王后担心向对手展示脆弱的时代。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+2021年1月，王室确实透露伊丽莎白女王已接种了第一剂冠状病毒疫苗。许多皇室观察者认为她已经接种了全部3针疫苗。克拉伦斯王府（查尔斯王子的住所）对卫生事务更加透明化，根据该办公室的说法，查尔斯和卡米拉各自接种了两针疫苗和一剂加强针。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+根据英格兰目前的规定，女王应该至少隔离五天。但英国政府计划本周取消疫情限制措施。
+
+皇宫宣布后的几分钟内，支持女王的消息蜂拥而至。
+
+与大流行早期相比，恐慌程度有所降低。
+
+**文章来源**：[https://www.washingtonpost.com/world/2022/02/20/queen-elizabeth-covid-positive/](https://www.washingtonpost.com/world/2022/02/20/queen-elizabeth-covid-positive/)
+
+翻译：洛杉矶盘古农场 – maru
+校对：洛杉矶盘古农场 – Mike Li
+评论：洛杉矶盘古农场 – maru
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

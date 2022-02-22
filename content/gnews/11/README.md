@@ -2,25 +2,31 @@
 ---
 
 
-## 链锁残躯又锁魂
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2044378/)
+## 有声|欧洲药管局登记的疫苗副作用报告超150万份
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2044383/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/a5hul-twrk7.jpg)**图片来源：网络**
-链锁残躯又锁魂，断舌难言凄惨状。
-国之父母心冷漠，百姓禁言助恶生。
-官官相护人伦丧，华夏男儿无足地。
-折腰独扫门前雪，自喜无灾临己身。
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+2月19日外媒报道，截至2022年2月11日，欧洲药品管理局EMA列出了超过150万个疑似中共病毒疫苗副作用的案例。数据分析显示，平均每个人报告了3.7个副作用，近三分之一的报告为严重案例。
 
-如果你不想看到铁链女事件这样的人间惨剧发生在你身上，请你发出你正义的声音，每天花几分钟的时间，不怕重复地为这些被拐卖的中国妇女献出一点身为同类的爱心。
+在2000年至2020年的21年期间，所有其他疫苗合并的每10万剂接种导致了不到7份的副作用报告，而中共病毒疫苗在短短13.5个月，已经导致了每10万剂接种高达24倍的副作用报告。其中，严重案例更是167倍于所有其他疫苗21年间的报告。
 
-作者：洛杉矶盘古农场 — Bc.S
-编审：洛杉矶盘古农场 — 心照
-发布：洛杉矶盘古农场 —彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+尽管如此，2021年奥地利制药工业协会的报告及2006年的另一研究结果表明，仍有94%的药品副作用案例未被报告。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+文字版原文：[欧洲药管局登记的疫苗副作用报告超150万份](https://gnews.org/zh-hans/2039254/)
 
+音频处理：Fei797
+发稿：Fei797
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/22/2022 1:09 AM (UTC)`
+
+⚠️⚠️Zeitleiste des Neuen Bundesstaates China Über das CCP-Virus und den COVID-Impfstoff<br/><br/>Der Neue Bundesstaat China (NBC) hat sich immer für die Wahrheit eingesetzt und Leben gerettet, indem er die böse Natur der CCP und die Tatsache aufgedeckt hat, dass die CCP das Virus geschaffen hat, das Millionen von Menschen auf der ganzen Welt getötet hat. Außerdem hat der NBC die COVID-Therapeutika in der Welt verbreitet. Alle Fakten beweisen, dass das, was die CCP getan hat, nichts mit dem chinesischen Volk zu tun hat. Die CCP kann nicht das chinesische Volk vertreten, da auch sie die Opfer sind.<br/><br/>⚠️⚠️关于新中国联邦爆料中共病毒和中共病毒疫苗灾难预警时间线（德语版）<br/><br/>新中国联邦一直致力于揭露中共邪恶本质，揭露他们制造中共病毒在全世界造成数百万人死亡的事实以及COVID疫苗的真实目的，揭示真相，拯救生命。中共的所作所为与中国人民无关，中共不代表中国人民，中国人民也是受害者。
+![img](https://media.gettr.com/group14/origin/2022/02/22/01/f47e8f8a-f548-5e1f-0530-cd27290af6f4/out.jpg)
+
+---
+
 `@miles 2/21/2022 11:14 PM (UTC)`
 
 参加渥太华抗议，保罗·亚历山大博士被威胁噤声：他们毫无科学可言，而现在是为了权力和控制，为了掩盖他们做的错事。战斗室，2022年2月19日。<br/><br/>Dr. Paul Alexander on crackdown on Ottawa protesters: This now is about power and control, and this is about cover up of wrong things they've done. War Room, Feb. 19th, 2022.<br/>
@@ -151,13 +158,6 @@ Who's Miles Guo Episode 3 《Mile‘s Determination to Take Down the CCP》<br/>
 
 2/18/2022 Miles Guo: Science has advanced human history and put an end to religion and imperial rule, yet why has scientism become an accomplice to the COVID vaccine disaster? Who has exploited scientism to fool people into trusting them so that they can push the COVID vaccines?<br/><br/>2/18/2022 文贵直播: 科学曾在历史上推动了人类的发展，结束了宗教和皇权统治，然而为什么科学主义却成了疫苗灾难的帮凶？是谁利用了科学主义去骗取人们的信任来推行疫苗？<br/>
 ![img](https://media.gettr.com/group25/getter/2022/02/20/02/2860ad27-af10-23ff-d7f7-055944877a29/out.jpg)
-
----
-
-`@miles 2/19/2022 11:22 PM (UTC)`
-
-2/19/2022 Miles Guo’s GETTR: The CCP is about to fall, and the indifferent and ignorant people have become the devils. The CCP begged the US to postpone the actions against itself by relying upon despicable means such as the BGY scheme. The CCP made the evil law that the woman who was abducted cannot get a divorce, but there are still people whitewashing the CCP. So, where is justice?<br/><br/>2/19/2022 文贵盖特：中共大厦将倾，冷漠、无知的人们已成魔鬼；中共跪求美国推迟对共行动并寄希望于蓝金黄等黑手段；中共制订恶法不许被绑架的妇女离婚，竟然还有人为中共洗地，天理何在？<br/>
-![img](https://media.gettr.com/group31/getter/2022/02/19/23/cbb1cbf8-3b42-5f8c-3778-cdde3adcac60/out.jpg)
 
 ---
 
