@@ -2,76 +2,23 @@
 ---
 
 
-## 安东尼·布林肯同王毅进行了交谈,强调需要维护乌克兰的主权和领土完整
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2045807/)
+## 被中共摧毁了的基督信仰
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2045823/)
 
-国务卿安东尼·布林肯： 我同 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 国务委员兼外交部长王毅进行了交谈。我强调需要维护乌克兰的主权和领土完整。
+撰稿：Abigail
+上传：追着曙光跑
 
+这段时间人们谈论得最多的是徐州铁链女，一个在12岁就被拐卖、被强奸、被拔掉满口牙齿、被铁链拘禁、被逼疯、生育了8个孩子的母亲。她说：“这个世界不要俺了“，闻者落泪。面对这样黑暗的事件，我熟识的几个基督徒却表现出了麻木，不置可否的态度。这让我很痛心，也促使我写下这篇文章，正是中共摧毁了中国基督徒的信仰，让本应该是追求公义，仁爱的基督信仰变得面目全非。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-22-at-14.50.43.jpeg)图片来源：网络
+是中共的谎言，长期洗脑，媒体控制，让民众看不到真相，也使得很多基督徒仍然相信政府通告。铁链女事件曝光后，激起了众多有良知人们的愤慨，人们纷纷转发，追踪事件。与此相反，我却发现朋友圈的基督徒大多表现出麻木迟钝的状态。信息滞后，事件发酵很久才有个别人问：“铁链女是怎么回事？”也有人说“政府已经派了调查小组，会解决的”。
 
+是中共对国民的人身控制，不准自由迁徙，驱逐外国宣教士的圈养方式，使国内基督徒信息封闭，头脑机械，牧师教什么，他们就信什么，没有独立思考的能力，不知道自己分析找答案辩真伪。牧师教导要专心读经祷告，建立天上的国。他们就真的不问世事，不关心政治。
 
-> I spoke with People's Republic of China State Councilor and Foreign Minister Wang Yi. I underscored the need to preserve Ukraine’s sovereignty and territorial integrity.
-> — Secretary Antony Blinken (@SecBlinken) [February 22, 2022](https://twitter.com/SecBlinken/status/1495961543359356932?ref_src=twsrc%5Etfw)
+是中共对宗教组织的渗透，让基督徒顺服了“蛇”的引诱。三自教会牧者享受政府工资，住房福利，他们就按着政府的要求教导信徒，培养红色基督徒，为中共治下的“幸福生活”唱赞歌。他们看不到六亿月入不到一千人的生活。不知从什么时候开始，不管是三自还是家庭教会，都只强调神的爱，不讲神的公义。他们两耳不闻窗外事，一心只求神赐福。他们虚情假意地用祷告来代替行公义，忘了蒙恩的前提是悔改按神的吩咐行。就如某牧师说的，这是自欺欺人的鸡汤教。
 
+是中共迫害教会，关闭聚会点，抓捕反抗的牧师信徒。使得很多牧者因害怕而变得唯唯诺诺，失去了血气，为了自保转而洗脑信徒龟缩做顺民。他们说不要跟政府做对；不要上街发福音单张；要为政府悔改祷告。事实是没有外力作用，恶人极少悔改，不然上帝为什么要灭绝迦南人，不等他们悔改呢？
 
-
-美前国务卿迈克·蓬佩奥：
-
-弗拉基米尔·普京是侵略者。
-
-乌克兰人是受害者。
-
-我们永远不应该回避这一点。
-
-
-
-> Vladimir Putin is the aggressor. 
-> The Ukrainians are the victims.
-> We should never shy away from that.
-> — Mike Pompeo (@mikepompeo) [February 22, 2022](https://twitter.com/mikepompeo/status/1495913605635715078?ref_src=twsrc%5Etfw)
-
-
-
-参议员卢比奥： 我希望拜登不要被普京耍了 别等到他们见面的时候，俄罗斯已经吞并乌克兰东部，然后任何会谈都是关于不要进一步占领这个国家的。
-
-
-
-> I hope Biden doesn’t get played by [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw)
-> 
-> By the time they meet [#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw) will have annexed eastern [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) & any meeting would be about not taking more of the country
-> — Marco Rubio (@marcorubio) [February 21, 2022](https://twitter.com/marcorubio/status/1495780486794383365?ref_src=twsrc%5Etfw)
-
-
-
-众议员麦克·沃尔兹： 50年前的今天，尼克松前往北京，试图离间共产主义中国和苏联。 此后，中国共产党利用美中关系在技术和经济上实现了跨越式发展，以寻求成为世界上占主导地位的超级大国。 （转推说：习在北约问题上支持普京。美国或将组建全球联盟，帮助各国部署先进武器，这预示着一场新冷战。）
-
-
-
-> 50 years ago today Nixon traveled to Beijing to drive a wedge between communist China & Soviet Union. 
-> 
-> The CCP has since used the US-China ties to leapfrog ahead technologically and economically in its quest to be the world’s dominant superpower. [https://t.co/tZ2EZucRjN](https://t.co/tZ2EZucRjN)
-> — Rep. Mike Waltz (@michaelgwaltz) [February 21, 2022](https://twitter.com/michaelgwaltz/status/1495765756247785476?ref_src=twsrc%5Etfw)
-
-
-
-参议员玛莎·布莱克本： 国际奥委会允许一个种族灭绝的 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 政权主办奥运会，并允许一名使用兴奋剂的俄罗斯运动员参加比赛。 而美国队参加北京奥运会使得这种胡作非为合法化。
-
-
-
-> The International Olympic Committee allowed a genocidal regime to host the Olympics and a Russian athlete that was doping to compete. 
-> 
-> Team USA’s presence at the Beijing Olympics legitimized this nonsense. [https://t.co/tlgZdKVVXp](https://t.co/tlgZdKVVXp)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [February 21, 2022](https://twitter.com/MarshaBlackburn/status/1495879336217485317?ref_src=twsrc%5Etfw)
-
-
-
-参议员玛莎·布莱克本： [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 正在逃脱反人类罪的惩罚，而拜登政府对此视而不见。
-
-
-
-> The Chinese Communist Party is getting away with crimes against humanity, and the Biden administration is turning a blind eye.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [February 21, 2022](https://twitter.com/MarshaBlackburn/status/1495838373981966341?ref_src=twsrc%5Etfw)
-
-
+最后，在中共各种手段的摧残下，整个中国大陆教会基督徒呈现出的就是不思考、不寻求公义、不作为的“平庸之恶”。改革现今教会的机会，就是郭文贵先生引领的爆料革命胜利的那天，当国门打开，大陆基督徒才能看到不一样的世界，才能如梦初醒，真正彰显出公义、圣洁、爱的模样。
 
  
 
