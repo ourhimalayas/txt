@@ -2,12 +2,18 @@
 ---
 
 
-## 七哥金句：川普，林肯都曾破产
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2045010/)
+## 20220220文贵大直播：习近平打台湾辽宁大连是重灾区
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2045106/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句3-1-6-scaled.jpg)
-整理：雅典娜农场
-发布：枫叶红了
+作者:东京樱花团小视频组
+
+校对：东京樱花团小视频组
+
+编辑发布：东京樱花团小视频组
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht.jpg)
+
 
  
 

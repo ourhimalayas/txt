@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：佛祖菩萨说的一句话
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2044949/)
+## 七哥金句：有大钱时，钱是体现爱和感情的方式
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2045039/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/记录者：馨馨--scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句4-1-3-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句17--scaled.jpg)
 整理：雅典娜农场
 发布：枫叶红了
 

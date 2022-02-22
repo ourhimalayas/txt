@@ -2,20 +2,42 @@
 ---
 
 
-## COVID-19 最新情报｜屡次被揭疫苗真相 苏格兰宣布停止公示与COVID-19疫苗有关的统计数据
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2044854/)
+## 美国优化能源公司首发便携式“无人机灭霸”
+` 科海拾星` [轉載自GNews](https://gnews.org/zh-hans/2044927/)
 
-**撰文｜疫情关注组 / 发布时间｜22/02/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屢次被揭疫苗真相-蘇格蘭宣布停止公示與COVID-19疫苗有關的統計數據.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：**[**https://gettr.com/post/pl6k0218bf**](https://gettr.com/post/pl6k0218bf)**)**
+【署名】纽约香草山健身部—阿什莉
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+美国加利福尼亚州洛杉矶，当地时间2022年2月14 日，一家先进电子化战争解决方案提供商，宣布推出一款率先上市的固态、移动和紧凑型多发射高功率微波 (HPM) 系统。
 
-苏格兰公共卫生部宣布将不再发布与接种 Covid-19 疫苗相关的死亡及住院信息，官方给出的理由是，避免这些数据被反疫苗人士“滥用”。当局认为，应将注意力集中于发布更复杂的数据，以促进疫苗有效性的理念推广。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/微波武器.jpg)
 
-一名苏格兰公共卫生部的官员坦言，做出这一决定的根本原因，是许多有心人，尤其是反疫苗人士，透过简单的数据分析，对疫苗的有效性作出推断性结论，令部分民众受到影响，开始抵制 Covid-19 疫苗，因此，他们不得不停止公布该国死亡人数的疫苗接种情况。
+该公司的系列产品利用固态、软件定义的高功率微波 (HPM) 技术，为一系列用户案例提供无与伦比的电子化武器作战效果。 破坏和摧毁无人机系统 (UAS) 中的关键电子元件。 通过精确和区域火力消灭单个无人机或整群无人机。
+新推出产品可实现一系列任务能力，并通过多种挂载选项最大限度地提高便携性，可直接进入威胁环境，从而完成多层防御系统。
+无人机战争始于 1973 年的赎罪日战争，当时以色列成功地使用有针对性的无人机引诱埃及发射防空导弹并耗尽其防空系统。
+无人机打击是由一架或多架无人作战飞行器或武器化商用无人机进行的空袭。目前，众所周知，美国、以色列、中国共产党、伊朗、意大利、印度、巴基斯坦、俄罗斯、土耳其和波兰可生产制造可操作的 UCAV（无人作战飞行器）。
+美国军用无人机因斩首塔利班领导人和伊朗革命卫队指挥官苏莱曼尼而闻名于世。
+近年来，中国共产党军方的无人机被用来在干预其他国家的地区政治冲突中，进行发动攻击使用。
+据新中国联邦爆料革命，郭文贵先生在此前直播中爆料称，中共军方在阿富汗、哈萨克斯坦等国政局混乱期间，曾在阿富汗、哈萨克斯坦等地进行无人机袭击，并策划无人机袭击拉美国家和台湾。
+在阿富汗，中共特种部队潜入阿富汗，部署进攻型无人机部队，为塔利班武装人员提供空中火力支援，这也是阿富汗政府士兵最终向塔利班投降的主要原因之一。
+美国便携式“无人机灭霸”的首次亮相，必将加强美国在未来区域战争中的空中防御能力，尤其可以更有效有力的消灭中共军方部署的大批无人机群。
 
-**有评论认为，既然 Covid-19 疫苗对外宣称可防止染疫后重症及死亡的发生，并且这一理念，获得多国医学研究论文背书，称疫苗有效率高逾九成。那么****在这种情况下，根本毋需担忧数据被“滥用”，反而应该更大力的公布数据，以佐证疫苗有效性，因为“真的假不了”，除非反疫苗人士的推论正中靶心，毕竟****“假的也真不了”。**
+[https://www.epirusinc.com/news-item/epirus-unveils-portable-hpm-leonidas-pod-expanding-advanced-electronic-warfare-product-portfolio https://gnews.org/1473085/](https://www.epirusinc.com/news-item/epirus-unveils-portable-hpm-leonidas-pod-expanding-advanced-electronic-warfare-product-portfolio%20https://gnews.org/1473085/%20https://gnews.org/659534/)
 
-來源｜[NewsPunch](https://newspunch.com/scotland-stops-publishing-covid-vaccine-death-statistics-blames-anti-vaxxers-for-raising-alarm/)
+[https://gnews.org/659534/](https://www.epirusinc.com/news-item/epirus-unveils-portable-hpm-leonidas-pod-expanding-advanced-electronic-warfare-product-portfolio%20https://gnews.org/1473085/%20https://gnews.org/659534/)
+
+【编辑】文真
+
+校对/发稿：菩提树
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-10.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
