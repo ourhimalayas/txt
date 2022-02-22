@@ -2,19 +2,51 @@
 ---
 
 
-## 澳大利亚计划在南极洲投资8亿美元，以反击中共的影响力
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2045377/)
+## 文革受害者之北大教授俞大絪
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2045497/)
 
-撰稿/翻译：zzballack
-上传：追着曙光跑
+作者：纽约香草山农场 – 马克文，朱丽叶
 
-据英国《每日邮报》（Daily Mail）2月21日报道，为对抗中共在南极洲的强势和咄咄逼人行为，澳大利亚总理斯科特∙莫里森（Scott Morrison）预定于2月22日宣布，澳州联邦政府将在未来10年内耗资8.04亿美元，强化和升级澳大利亚在南极洲的科研活动，包括在技术装备上花费1亿美元，以打通该国前往南极的内陆通道；另有6000万美元用于采购无人机、直升机和其他自主交通工具，探索人迹罕至的地区。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-22-at-12.46.30.jpeg)图片来源：原新闻
-澳州智库洛伊国际政策研究所（Lowy Institute）最近发表了一份报告，指责北京正在试图推动“扩大解释《南极条约体系》（Antarctic Treaty System）的规定”。《南极条约》由包括澳大利亚和中国在内的54个国家于1961年6月签署，《南极条约》以及相关的协定，被称为《南极条约体系》。其目的是约束各国在南极洲大陆上的活动。条约将南极洲作为科学保护区，承认科学调查自由，但禁止在南极洲进行军事或采矿活动，同时限制捕鱼。
 
-人们担心中共想利用南极洲为自己谋利。洛伊研究所指出，北京在南极渔业资源开采以及冰上活动的表现越来越强势：“中共通过探测渔业以及旅游资源，在《南极条约体系》内表现越来越强势，并有可能在南极洲寻求获取西方的技术，未来北京有可能率领一些国家寻求只有中共有能力开发的矿产资源。”
 
-信息来源：[Australia makes a BIG move against China – in Antarctica: PM forks out $800MILLION to counter the Communist power’s growing influence on the icy continent](https://www.dailymail.co.uk/news/article-10534143/The-battle-Antarctica-Australian-PM-Scott-Morrison-spends-800million-counter-China.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+俞大絪，北京大学教授，中国英语语言学家，对英国语言文学有着很高的素养，是中国最好、最流行的一套英语教材的作者之一，也培养了大批的青年教师。
+
+俞教授于1905年出生在浙江山阴的名门世家，是曾国藩的曾外孙女。而她的丈夫曾昭抡也是民国的知名学者，其在获得美国麻省理工学院化学博士学位后，回国任教授一职。20世纪40年代末，蒋介石在离开大陆前曾劝说夫妇二人同去台湾，但最终被他们遗憾拒绝。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture-40.jpg)
+文革初期，俞大絪和曾昭抡被无辜定罪，随即遭到了红卫兵的抄家批斗。在批斗中，曾俞二人被迫下跪，甚至被红卫兵剥除上衣，用皮带死命抽打。1966年8月25日，独自在家的俞大絪悲愤难抑，遂服毒自尽。一年后，曾昭抡也不堪折辱，逝世在武汉。
+
+资料显示，中共国内十年文化大革命期间，全国工、农、兵及社会各阶层均被动乱波及，尤其是中共针对高级知识分子的严酷批斗与暴力行为，导致中国大批科学家与教授、教师等宝贵人才死亡，造成了中华民族一代，甚至几代的人才断代，其所造成的损失极为惨痛，难以挽回。
+
+参考链接：
+[维基百科 – 俞大絪](https://zh.wikipedia.org/wiki/%E4%BF%9E%E5%A4%A7%E7%B5%AAhttps://botanwang.com/articles/202108/%E4%BF%9E%E5%A4%A7%E7%B5%AA%E4%B9%8B%E6%AD%BB.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+
+总编：Irene木木
+编辑：静言
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

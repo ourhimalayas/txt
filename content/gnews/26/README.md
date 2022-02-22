@@ -2,35 +2,25 @@
 ---
 
 
-## 受中共制裁的美国前最高外交官蓬佩奥访问台湾
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2045620/)
+## 美疾控中心和辉瑞发布血栓紧急警告
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2045680/)
 
-翻译&评论：金生水
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-85.png)图片来自网络
-《雅虎新闻》近日报道，台湾政府周一表示，美国前国务卿迈克·蓬佩奥在去年特朗普总统任期结束时卸任时受到中共制裁，将于下周访问台湾并会见蔡英文总统。
+加拿大温哥华杨枫叶快讯帆农场
 
-台湾外交部表示，蓬佩奥夫妇将于3月2日至5日访问台湾，并会见外长吴钊燮，并在智库发表演讲。
+采编： 风云小哥                    编译撰稿：自由法兰西
+![](https://www.thegatewaypundit.com/wp-content/uploads/Screen-Shot-2022-02-18-at-10.21.26-PM.jpg)图片来源：[https://www.thegatewaypundit.com](https://www.thegatewaypundit.com/2022/02/everyone-risk-blood-clots-cdc-pfizer-issue-urgent-warnings-blood-clots-even-healthiest-athletes/)
+据美国媒体【网关专家】2月19日报道，【美国疾控中心】近日就【辉瑞】产“新冠病毒”疫苗导致血栓的情况发出紧急警告称：所有已接种者包括最健康的运动员都有发生“深度静脉血栓”，“肺栓塞”以及“脑血栓”等严重疾病的风险。
 
-外交部在一份声明中说：“前国务卿蓬佩奥是台湾的长期坚定朋友，在任期间为促进台美关系做出了突出贡献。”他的访问显示了美国对台湾的两党“坚如磐石”的支持和密切的台美关系。友谊，它补充说。
+据悉，早在去年2月【美国疾控中心】就声称：无论是运动员还是球迷，任何已接种者都会出现血栓症状。并试图以此将青壮年和健康运动员出现血栓的现象常态化。
 
-尽管缺乏正式的外交关系，包括高调的军售和美国高级官员对台北的访问，但唐纳德特朗普政府仍给予台湾强有力的支持。
+对此，《美国医学会杂志》指出，所有mRNA疫苗都会加大患脑血栓的风险。而【牛津大学】的最新研究也显示，在接种辉瑞、莫纳德和阿斯利康疫苗后，罹（离li）患各类血栓疾病的机率将成倍增长。
 
-随着乔·拜登总统于 2021 年 1 月上任，中共对“撒谎和欺骗”蓬佩奥和其他 27 名特朗普时代的高级官员实施制裁。
+校对编辑：硫酸羟氯喹64
 
-在北京，中国外交部发言人汪文斌指出，蓬佩奥因“反华行为”而受到中共制裁。他对记者说，台湾企图争取美国支持其独立，只会“被烧死”。
+发稿：青青
 
-过去两年，中国加大了对台湾的军事和外交压力，试图迫使台湾接受其主权。
+新闻来源： [https://www.thegatewaypundit.com/2022/02/everyone-risk-blood-clots-cdc-pfizer-issue-urgent-warnings-blood-clots-even-healthiest-athletes/](https://www.thegatewaypundit.com/2022/02/everyone-risk-blood-clots-cdc-pfizer-issue-urgent-warnings-blood-clots-even-healthiest-athletes/)
 
-台湾政府表示要和平，但如果受到攻击，会自卫，只有岛内人民有权决定他们的未来。
-
-另外，王还宣布就美国对台军售问题对美国洛克希德马丁公司和雷神科技公司实施制裁，这至少是该公司第三次宣布对这些公司进行处罚。
-
-蓬佩奥是近代历史上少有的有建树的国务卿，蓬佩奥是美国政府官员中最先提出的，中共不能代表中国人民。以及在在离开国务院和白宫前，把共产党列入到种族大屠杀、反人类罪的伟大壮举。中共可能以后越怕什么就越来什么，弄下去了川普，不是还有年富力强的蓬佩奥吗，搞不好你是当年硬生生的制裁了未来的美国总统，日子还长，走着瞧。
-
-参考链接：
-
-[https://au.news.yahoo.com/mike-pompeo-riled-china-while-043501908.html](https://au.news.yahoo.com/mike-pompeo-riled-china-while-043501908.html)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

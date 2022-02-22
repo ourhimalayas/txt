@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/22/2022 6:03 AM (UTC)`
+
+2/20/2022 Miles Guo: Because the Chinese are too selfish and indifferent, the Bouazizi incident will never occur in Communist China, which is also the result of the Chinese people's lack of faith and morality.<br/><br/>2/20/2022 文贵直播：因为中国人太过的自私和冷漠，在中共国永远不会出现布瓦吉吉事件，这也是中国人缺失信仰和人性道德的结果。<br/>
+![img](https://media.gettr.com/group50/getter/2022/02/22/06/99078f9d-4f41-0867-5175-0f7626cef795/out.jpg)
+
+---
+
+`@miles 2/22/2022 6:01 AM (UTC)`
+
+
+![img](https://media.gettr.com/group48/getter/2022/02/22/06/0c599c78-6a37-346d-b1e1-8d1930049a30/out.jpg)
+
+---
+
+`@miles 2/22/2022 5:59 AM (UTC)`
+
+2/20/2022 Miles Guo: Does anyone in Communist China truly understand the joy of wealth? Money can bring you spiritual satisfaction, and Xi has spiritually satisfied the lonely “Putin the Great” and offered to divide the world with him to fight together against the US  - the CCP would drop the virus to destroy the world’s economy, while Russia would control Europe through oil and natural gas.<br/><br/>2/20/2022 文贵直播：中共国有谁知道钱的感觉吗？钱是精神安慰剂，习给了孤独的普大帝精神安慰剂、并愿意跟他平分天下以共同对付美国 - 中共放毒打垮世界经济，俄罗斯用油气控制欧洲<br/>
+![img](https://media.gettr.com/group36/getter/2022/02/22/05/54427ac4-66e8-696e-2de6-25860e80f903/out.jpg)
+
+---
+
 `@miles 2/22/2022 5:54 AM (UTC)`
 
 2/20/2022 Miles Guo: The top priority of the New Federal State of China is to take down the CCP, and the second priority is to develop our education sector. The G-EDU is under my direct control, and competent teachers are welcomed to join. Whether the teachers are good or bad is up to the students, and the students' performance should be certified by an independent third party. There will be a grand live broadcast about G-EDU next week.<br/><br/>2/20/2022 文贵直播：新中国联邦的头等大事是灭共，第二件大事是搞教育；G-EDU归文贵管，欢迎有本事的老师加入；老师好坏学生说了算，学生成绩由第三方认证；下周有G-EDU大直播。
@@ -135,27 +156,6 @@
 
 2/20/2022 Miles Guo: What did Xi Jinping and Putin talk about in their private meeting? The fundamental purpose for Xi and Putin to wage wars is to serve their personal safety and political interests. The West is using Ukraine to grind down Xi and Putin's will. Whether or not they are going to invade Taiwan and Ukraine, both of them will perish.<br/><br/>2/20/2022 文贵直播：习普二人单独谈了什么？习普发动战争的根本目的是为其个人安全和政治利益服务；西方正在借乌克兰消磨习普的意志，不论他们是否打台湾或和克兰，他们都将覆灭<br/>
 ![img](https://media.gettr.com/group13/getter/2022/02/21/02/9b6f71cc-8bb1-a25e-81d7-dde10193f6f8/out.jpg)
-
----
-
-`@miles 2/21/2022 1:47 AM (UTC)`
-
-Who's Miles Guo Episode 3 《Mile‘s Determination to Take Down the CCP》<br/>A billionaire, he has given everything he had. Along the way, his hair turns gray, more wrinkles are on his face, but he is still fighting! This time we should win! People should win! Take down the CCP!<br/><br/>谁是郭文贵 第三集 《灭共决心》<br/>一个富豪，拿出了自己的一切，一路走来，头发白了，皱纹多了，他还在战斗，这一次我们该赢了，CCP，你完了！<br/>
-![img](https://media.gettr.com/group40/origin/2022/02/21/01/460a8fd0-47d5-56f5-9bbb-1ae1ce4d46d0/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 2/20/2022 11:15 PM (UTC)`
-
-2/20/2022 Miles Guo: The two and a half hour meeting between Xi and Putin with no secretary present has decided the fate of humanity. Taking Crimea without firing a single shot emboldened both Putin and Xi, who are increasingly looking down on the West and arrogantly believe that now is the best time to dominate the world.<br/><br/>2/20/2022 文贵直播：习普二人两个半小时无秘书在场的单独会谈决定了人类的命运；不费一枪一炮拿下克里米亚壮了普习二人的胆，他们越发瞧不起西方，并狂妄地认为现在是称霸世界的最佳时机<br/>
-![img](https://media.gettr.com/group49/getter/2022/02/20/23/0619821a-83bb-a445-88c1-95bd3122c437/out.jpg)
-
----
-
-`@miles 2/20/2022 10:40 PM (UTC)`
-
-2/20/2022 Miles Guo: The war between Russia and Ukraine started three days ago. For Russia, Ukraine is like the chained woman kidnapped by the CCP, and Europe is like the “sugar daddy” of the chained woman. Xi and Putin have to team up to survive, and invading Taiwan and Ukraine is just to serve their political interests and ambitions.<br/><br/>2/20/2022 文贵直播：俄乌之战三天前就开始了；乌克兰对于俄罗斯就相当于中共的“锁链女”，欧洲相当于“锁链女”的干爹；习普二人得抱团取暖，打台湾和乌克兰是为了他俩的政治利益和野心<br/>
-![img](https://media.gettr.com/group10/getter/2022/02/20/22/da94e318-f0b9-f5e6-1082-7bc06141883e/out.jpg)
 
 ---
 

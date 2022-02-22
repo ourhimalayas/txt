@@ -2,39 +2,36 @@
 ---
 
 
-## 法国外长表示已做好准备维护台海稳定
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2045129/)
+## 中共使用机器人和虚假帐号影响冬奥会讨论
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2045293/)
 
-作者：纽约香草山 医疗部 云豹
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-5.png)
-当地时间2月20日，法国外交部长勒德里安在接受书面采访时表示，已经做好准备，在必要时采取行动，维护台湾海峡稳定。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2019.png)
-当被问到最近中共在台海升高军事威胁的看法时，勒德里安回答，谴责任何企图改变台海现状的尝试。为了防止发生冲突，法国已经做好采取行动的准备。他补充说，法国在太平洋的法属新喀里多尼亚岛有驻军基地，维护台湾海峡的稳定，对于外围地区的安全至关重要。
+作者：台灣寶島農場 — 尋文客
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国媒体2月18日报导，中共使用机器人、虚假帐号等工具选择性编辑宣传故事，以影响有关冬奥会的讨论。
 
-对于澳洲、英国、美国为了对抗中共，成立“澳英美三方安全伙伴”一事，勒德里安表示，对于印太区域的看法，法国与美国、澳洲就此议题保持一致。据悉，法国政府曾经在2021年2月与美日两国在日本境内建立离岛防卫联合演训区；同年5月份，法国派遣核动力潜舰至南海地区，以实际行动展现了法国捍卫自由航行权及保障印太区域安全，维护台海区域稳定的决心。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-8.jpeg)
 
-消息人士认为，目前世界聚焦在俄罗斯入侵乌克兰，而法国外长在这一时间节点上，对台海局势表示深切关注，颇有些意味深长。
+据报道，该媒体与非营利调查新闻编辑室ProPublica发现，推特上存在一个中共虚假帐号网络。该网络有超过3000个帐号，通过分享带有相同评论的中共外宣推文，以协调行动，影响有关冬奥会的讨论。这些帐号普遍创建不久，没有关注者，推文仅以转发中共外宣推文为主。
 
-參考鏈接：[法國外長：為維護台海穩定 有採取行動準備](https://www.cna.com.tw/news/aipl/202202200206.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+目前推特已经通过电子邮件声明，确认数百个账户已被封禁，同时表示，将进一步调查这些帐户与国家支持的信息运营之间的联系。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+中共冬奥会的虚假不仅限于虚假帐号操纵舆论。根据郭文贵先生在大直播中的爆料，中共冬奥会场的雪为人造假雪，裁判被中共买通非公正判罚，中共参赛运动员国籍造假。中共冬奥会的呈现只有虚假和丑陋。
 
-编辑：香草山 宁文静 
-总编：DM
-校对/发稿：小野貓（文凱琳）
+参考链接：[中国如何讲好冬奥故事：机器人、虚假帐户与“水军”](https://cn.nytimes.com/technology/20220218/china-olympics-propaganda/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+
+总编：文真
+编辑：谐趣园
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-5.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

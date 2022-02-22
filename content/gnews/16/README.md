@@ -2,47 +2,26 @@
 ---
 
 
-## 冬奥会外场的安检警察和国保听到郭文贵的名字莫名紧张
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2045683/)
+## 中日财经爆┃瑞信“强烈否认”泄露客户数据
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2045805/)
 
-G-TV视频链接：[https://gtv.org/video/id=62125daa1408ee3a03a25307](https://gtv.org/video/id=62125daa1408ee3a03a25307)
+整理编辑：东京樱花团｜peterwong
+![](https://lh6.googleusercontent.com/9v92l2FAhLleRYKL3az4WkQtJt3tMru0bYRBLyCYtvGbJsehOkrfGJ_Qti1y289xmlJxcEXFuI3v9FLB6D62N9BHVpf15wUPUHgZizynGCtRsioPpJlSIYnqRwzZ2497rXWT8yx4)[*图片来源*](https://www.swissinfo.ch/resource/image/47364016/landscape_ratio16x9/1920/1080/3fb2a7c17b3ab8182c763c600f966c85/520C28F226C80E6D914FB894E195DF7B/credit-suisse_highres.jpg)
+路透社2月21日报道，此前数十家媒体公布了类似巴拿马文件（Panama papers）式的协调调查结果，调查涉及瑞士信贷过去几十年数千个账户的数据泄露。瑞信“强烈否认”有关该行存在不当行为的指控。
 
-**郭文贵先生：**另外“冰冰和我来双修”被国保抓走的时候，一提七哥的名字国宝的脸色都变了。
+有一个人将这些账户的信息泄露给了德国南德日报（Suddeutsche Zeitung），瑞信在1940至2010年代的数几十年间持有这些账户。这家德国日报与“有组织犯罪和腐败报告项目”以及包括纽约时报、英国卫报和法国世界报在内的其他46家新闻机构分享了这些信息。
 
-说到这儿的时候我要跟你讲一个昨天发生的事情，就是在冬奥会开幕外场的时候，所谓安检的这个路上，有一个人开了个车牌儿叫177777(的车)，177777。
+在这些指控中，有指控称瑞信的客户包括侵犯人权者和受到制裁的商人。泄露的数据涉及18,000多个账户，总共持有1,000多亿美元资金。
 
-警察给拦下来了说：“你这个牌儿哪儿来的呀？上面还有什么警备什么的，你是干啥的？”开车的是个女性说：“这是我爸给我弄的。”“你爸是谁？”“我爸郭文贵呀”那警察一下的一愣：“你爸是谁？郭文贵？”吓一大跳，还有冒充的？“哎呀，我说错了。”她说：“这个车牌儿过去是郭文贵的，然后我爸给弄来给我了。”
+瑞士信贷集团是一家注册在瑞士苏黎世的股份有限公司，同时它也是一家控股公司。它拥有瑞士信贷银行及其他金融服务业务中的权益。瑞士信贷集团拥有两大事业部门：[私人银行](https://zh.wikipedia.org/wiki/%E7%A7%81%E4%BA%BA%E9%93%B6%E8%A1%8C%E6%9C%8D%E5%8A%A1)及[财富管理](https://zh.wikipedia.org/wiki/%E8%B4%A2%E5%AF%8C%E7%AE%A1%E7%90%86)事业部和[投资银行](https://zh.wikipedia.org/wiki/%E6%8A%95%E8%B5%84%E9%93%B6%E8%A1%8C)事业部。公开资料显示，2020年第3季，瑞信管理的资产规模多达14,783亿瑞士法郎。
 
-然后警察说：“你说话小心点儿，你再瞎说我告诉你把你抓起来，你说什么郭文贵呀！这不被人抓起来？”因为他爸是警察是吧？哈哈哈哈，他爸是警察，说他爸是郭文贵这事儿就大了，你说现在吓得啥程度啊？你们有这么恐怖郭文贵吗？他爹是郭文贵把你吓得半死啊。刚才“冰冰和我来双修”说，一提七哥的名字国保的脸色都变了啊。
+2008年瑞士信贷集团和方正证券股份有限公司共同出资设立瑞信证券（中国）有限公司，其中瑞信持股比例为51%。
 
-字幕来源：[2022年2月4日《文贵大直播》全文字版](https://gnews.org/zh-hans/1961700/)
+消息来源：[**瑞士信贷在客户数据遭泄露后否认有不当行为**](https://cn.reuters.com/article/credit-suisse-customer-data-leak-0221-idCNKBS2KQ0SC?il=0)
 
-编辑整理：Jacques；
-
-字幕文件制作：小满；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

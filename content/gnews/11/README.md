@@ -2,21 +2,28 @@
 ---
 
 
-## 02/09文贵大直播：文贵告UBS官司正式立案（粤语配音）
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2045725/)
+## 中共国锁链女灾难连印度都忍无可忍
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2045819/)
 
-2020 年 2 月 9 日文贵大直播:
+加拿大温哥华杨帆农场 枫叶快讯
 
-1.文贵先生告UBS官司正式立案
-2.UBS 的历史黑账最起码有 100 万亿美元以上，过去人类 500 年的财富
-3.UBS 收买全世界有名的律师
-4.疫苗和冠状病毒一定和藏黑钱的人有勾结
-5.文贵将会离开美国去伦敦和日本
-6.我们和 PAG 打官司，要的是单伟健和共产党勾兑的数据
-7.去年 11 月份曾经派官方代表团来找欧洲某前领导人和文贵先生说理，要求和 UBS 和解，不能再起诉 UBS
-8.Dawn State 基金的第一大股东是福建国资委 9.中共向美国求情要求沈阳大使过来花了 5 千亿
+采编：风云小哥           翻译编辑：   文莱
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
+![](https://static.toiimg.com/thumb/msid-89636489,imgsize-123396,width-400,resizemode-4/89636489.jpg)图片来源：https://timesofindia.indiatimes.com/
+
+
+据【印度时报】2月17日报道，中共江苏省政府电视台日前声称，将彻查锁链女视频的来龙去脉，意图缓解公众对当局践踏民生的愤怒。
+
+报道称，锁链女的视频在中共国内迅速传播，其悲惨的经历让所有良知者愤慨。特别是在当局删除媒体上任何关于该消息的报道以及企图掩盖普遍存在的人口贩卖事实之后，进一步引发了国际社会的声讨。
+
+有评论在对比了金牌获得者谷爱凌与锁链女的情况后指出：与其追捧挂在某个造假女孩脖子上的金牌，不如用良知关注那些在中共国，被拐卖妇女脖子上的金属链所造成的痛苦。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：青青
+
+原文链接：[jiangsu: As anger grows over chained woman, Chinese province to investigate – Times of India (indiatimes.com)](https://timesofindia.indiatimes.com/world/china/as-anger-grows-over-chained-woman-chinese-province-to-investigate/articleshow/89636449.cms?utm_source=contentofinterest&amp;utm_medium=text&amp;utm_campaign=cppst&amp;from=mdr)
 
  
 
