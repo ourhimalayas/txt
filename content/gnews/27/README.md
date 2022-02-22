@@ -2,41 +2,42 @@
 ---
 
 
-## 俄乌紧张局势加剧油价上涨
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2047167/)
+## 安理会召开紧急会议，周二美国开启对俄罗斯新制裁
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2047374/)
 
-整理：围剿维尼熊
-编辑：文泓
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/15-8.png)图片来源：Anadolu Agency & 雅典娜设计组
+翻译/编辑：文泓
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/16-10.png)图片来源：德国之声
 
 
-路透社2月21日报道，因俄罗斯和西方国家在乌克兰问题上的持续对峙，加剧了国际市场对供应链危机的担忧，当日国际油价已接近每桶100美元。
+当地时间2月21日（周一）联合国安理会晚上在纽约举行了罕见的紧急会议，以商讨解决俄罗斯在乌克兰不断升级的军事部署问题。
 
-当日，布兰特原油期货跳涨2.74美元，或2.91%，至每桶96.28美元；美国西德克萨斯中质油(WTI)上涨2.79美元，或3.06%，报每桶93.86美元。
+周一，这场酝酿已久的冲突进入了一个新阶段，当俄罗斯总统普京宣布俄将承认乌克兰东部两个分离地区为“独立共和国”，莫斯科将向这两个新“独立”的领土部署“维和部队”。
 
-新闻机构援引军方的话说，俄罗斯军队周一击毙了从乌克兰西南边境闯入的五名破坏分子，乌克兰称这一指控是假新闻。
+美国驻联合国大使格林菲尔德表示，普京的声明不仅对乌克兰构成直接威胁，而且对联合国其他所有主权成员国构成直接威胁。
 
-法国总统马克龙表示，美国总统拜登和俄罗斯总统普京原则上同意就乌克兰问题举行峰会，但克里姆林宫表示还没有具体计划。
+格林菲尔德表示，美国将于周二公布对俄罗斯的新制裁，并敦促成员国对莫斯科施压，俄罗斯将承担严重后果。
 
-**克里姆林宫宣布普京将签署一项法令，承认乌克兰东部的两个分离地区独立。欧盟则警告说，如果这些地区被承认为独立，它将考虑进行制裁。**
+周一晚上[股票期货大幅下跌，而](https://www.cnbc.com/2022/02/21/stock-market-futures-open-to-close-news.html)国际[油价上涨](https://www.cnbc.com/2022/02/22/oil-prices-jump-as-tensions-between-russia-and-ukraine-escalate.html)，因为交易员继续关注日益加剧的紧张局势，尚不清楚美国即将对俄罗斯实施的制裁可能对金融市场或油价产生何种影响。
 
-阿拉伯产油国的部长们周日在沙特阿拉伯开会时表示，欧佩克组织坚持目前的协议，拒绝了增加产量以缓解价格压力的呼吁。
+周一，总统乔拜登签署了一项行政命令，禁止美国人在所谓的顿涅茨克人民共和国或乌克兰卢甘斯克人民共和国地区进行新的投资、贸易和融资。
 
-澳洲联邦银行分析师在一份报告中称，如果像美英最近几天警告的那样，俄罗斯入侵（乌克兰），布兰特原油期货也可能会飙升到100美元/桶以上。
+这一行动是对普京宣布俄罗斯将承认乌克兰的两个分离地区为独立国家的回应。但白宫官员拒绝具体说明下一轮制裁将在周二进行的具体内容。
 
-截至发稿，普京已经签署承认乌克兰东部两个分离地区独立，并已向该地区部署军队，随即英国宣布第一轮制裁，欧盟即将开启全面制裁。
+国务卿布林肯再次呼吁美国人立即离开乌克兰，并补充说安全局势仍然无法预测，可能会在没有任何通知的情况下恶化。
 
-参考链接：[油价上涨 因俄罗斯与西方的对峙加剧供应担忧](https://cn.reuters.com/article/global-oil-0221-mon-idCNKBS2KQ22Z?il=0)
+参考链接：[Ukraine Russia Crisis: New sanctions coming Tuesday (cnbc.com)](https://www.cnbc.com/2022/02/22/ukraine-russia-crisis-new-sanctions-coming-tuesday.html)
 
-*发布：tianzhihuan*
+***發布：***tianzhihuan
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多資訊，請關注：**
+[澳大利亞墨爾本雅典娜農場Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亞墨爾本雅典娜農場Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亞墨爾本雅典娜農場YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亞墨爾本雅典娜農場Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亞墨爾本雅典娜農場GTV直播壹台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

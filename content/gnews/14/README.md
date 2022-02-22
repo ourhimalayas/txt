@@ -2,29 +2,48 @@
 ---
 
 
-## 突发：英国女王感染中共病毒恐将祸及中英关系
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2047583/)
+## 因对台军售,中共国再度制裁美国军工企业
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2047755/)
 
-作者：东京樱花团｜捆绑CCP一千年
-![](https://lh5.googleusercontent.com/gxfu2JLQKHJdZ2Im6uO6w9prIkRCLhGoEnx-e0O3LLvA8GjJ_snh1Yq_jKlA5YlygNuviTQ6QO9K2N9jslW3YBxestUMl0OqCl7HW9057RPiemZTO79TgctC-cemQbexvdy3esN9)[*图片来源*](https://cdn.hk01.com/di/media/images/dw/20220221/572390263159263232580234.jpeg/lCpt7IdzNbJ4lbEeOWunwzoC851gXb4iLa4F1y2uBdc?v=w1920)
-**英国女王伊丽莎白二世中共病毒检测呈阳性，习近平给女王发慰问电。这一事件是英国政府刚刚做出取消针对大流行各种限制措施后的突发事件。这一事件无疑将影响各国应对中共病毒疫苗政策放缓的努力。**
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-据中共国新华社北京22日16时消息称，“国家主席习近平致电英国女王伊丽莎白二世，就女王感染新冠病毒致以慰问并祝其早日康复。”习近平对此担心会引发“中英关系”危机，便黄鼠狼给鸡拜年，不安好心地在慰问电中提及“愿同英方一道努力，以今年两国建立大使级外交关系50周年为契机，推动双边关系取得新进展。”
+整理：围剿维尼熊
+编辑：文泓
 
-- ***延展阅读：***[***肯辛顿宫表示，女王出现“轻微的症状”，威尔士亲王8日见到他母亲后也检测呈阳性***](https://www.bbc.com/news/uk-60453566)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/frdfgd.jpg)
 
 
-女王感染中共病毒一事，[白金汉宫证实](https://www.bloomberg.com/news/articles/2022-02-20/queen-tests-positive-h-k-mulls-stricter-measures-virus-update%0a%0a)，英国 95 岁的君主伊丽莎白二世女王的Covid-19检测呈阳性。另外，[美联社](https://www.nbcnews.com/news/world/britain-lift-covid-restrictions-queen-tests-positive-elizabeth-corona-rcna17039%0a%0a)称：英国首相鲍里斯·约翰逊取消了所有对中共病毒的限制措施后，英国女王检测呈阳性。
 
-该消息援引首相约翰逊的话说，“白金汉宫周日宣布女王中共（新冠）病毒检测呈阳性是‘提醒人们这种病毒还没有消失’。所以那些等待这场战争彻底结束再取消剩余规定的人将在很长一段时间内限制英国人民的自由。”
+图片来源：update.ph & 雅典娜设计组
 
-白金汉宫表示，“女王出现了类似感冒的轻微症状，但预计未来一周将在温莎继续轻松工作。”
 
-2022年2月22日
+2月22日，据德国之声报道，中共政府于周一宣布，对参与对台军售的美国洛克希德马丁公司和雷神技术公司实施制裁。
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+中共外交部发言人汪文斌在回答记者有关2月7日美方宣布了总值1亿美元的对台军售计划的提问时，他称，美国向中国台湾地区出售武器，严重违反“一个中国原则”和“中美三个联合公报”特别是“八一七”公报规定，严重损害中国主权和安全利益，严重损害中美关系和台海和平稳定。
+
+北京去年出台《反外国制裁法》，现在是首次基于此法制裁洛克希德马丁和雷神这两家公司。
+
+另据路透社报道，2019年和2020年，**中共至少两次宣布过制裁雷神和洛克希德马丁这两家美国军工企业，但从未说明制裁细节或实施方式，**
+
+**因为美国不向中国出售武器。**
+
+根据1979年签署的《台湾关系法》，美国有向台湾提供自卫手段的义务，而对台军售曾一再引发中共政府愤怒。中共称，台湾是其与华盛顿关系中最重要、最敏感问题。目前，美中双边关系也因为贸易、人权等问题而日益紧张。
+
+另据调查，洛克希德·马丁与中国公司在卫星航拍、飞机制造、能源电子等业务有所合作，雷神在航空领域也提供许多相关专业软件，这些都是国内紧缺的技术。看来所谓制裁，只是中共外交战狼给墙内吃瓜群众的一场拙劣的表演。
+
+参考链接：
+1、[对台军售 中共国再度制裁美国军工企业](https://www.dw.com/zh/%E5%AF%B9%E5%8F%B0%E5%86%9B%E5%94%AE-%E4%B8%AD%E5%9B%BD%E5%86%8D%E5%BA%A6%E5%88%B6%E8%A3%81%E7%BE%8E%E5%9B%BD%E5%86%9B%E5%B7%A5%E4%BC%81%E4%B8%9A/a-60857461)
+2、[为什么要制裁洛克希德·马丁？](https://m.yunnan.cn/system/2020/10/27/031074040.shtml)
+
+*发布：*星谕
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathen
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
