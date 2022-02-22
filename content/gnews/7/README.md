@@ -2,8 +2,8 @@
 ---
 
 
-## 共产党企图奴役全世界
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2047825/)
+## 2022北京冬奥是中共压迫人权的另一篇
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2047872/)
 
 台灣寶島農場
 

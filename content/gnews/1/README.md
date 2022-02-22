@@ -2,8 +2,8 @@
 ---
 
 
-## GEDU教育欢迎报名
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2047965/)
+## 习和普京的政治联盟
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2048016/)
 
 台灣寶島農場
 

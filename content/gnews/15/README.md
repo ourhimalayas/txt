@@ -2,8 +2,8 @@
 ---
 
 
-## 普京到底在打什么主意
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2047728/)
+## 新中国联邦GEDU的高度
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2047767/)
 
 台灣寶島農場
 

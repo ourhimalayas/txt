@@ -2,32 +2,49 @@
 ---
 
 
-## 中共启动全国10个大规模数据中心
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2047837/)
+## 自由抗议期间被骑警踩踏的妇女为土族长者
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2047873/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2056.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww-file.huawei.com%2F-%2Fmedia%2Fcorp2020%2Fpublications%2Fcommunicate%2F86%2Fcn%2F12-425.jpg&amp;imgrefurl=https%3A%2F%2Fwww.huawei.com%2Fcn%2Ftechnology-insights%2Fpublications%2Fhuawei-tech%2F86%2Fintelligent-ip-networks-build-green-data-centers&amp;tbnid=VujefeeEZBkKCM&amp;vet=12ahUKEwjz-sGqqZP2AhWSpukKHS4gCy0QMygOegUIARCbAQ..i&amp;docid=nSZ03_pgi0aZ3M&amp;w=800&amp;h=425&amp;q=%E6%95%B0%E6%8D%AE%E4%B8%AD%E5%BF%83&amp;ved=2ahUKEwjz-sGqqZP2AhWSpukKHS4gCy0QMygOegUIARCbAQ)
-2月22日央广网报道，中共发改委、中央网信办、工信部、国家能源局联合印发通知，同意在京津冀、长三角、粤港澳大湾区、成渝、内蒙古、贵州、甘肃、宁夏等8地启动建设国家算力枢纽节点，并规划了10个国家数据中心集群。“东数西算”国家工程正式启动。
+编译： Jenny Ball
 
-参与此次建设的企业，均是被美国制裁和中共军方合作者，华为、中兴通讯、腾讯、海兰信、首都在线、优刻得、先进数通等科技巨头或上市公司参与。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2058.png)thepostmillennial.com
 
-中共早在十年前已在各地布局大数据中心，2016年9月在建宣化数据中心，属于京津冀枢纽。
+据报道，周五晚上警察骑马横冲直闯自由车队抗议者队伍时践踏受伤的老妇人，被确认为是坎迪斯“糖果”塞罗（ Candice “Candy” Sero）。 据报道，她是一名纯血统的莫霍克女性，住在安大略省黑斯廷斯县的廷迪纳加·莫霍克(Tyendinaga Mohawk )领地。
 
-2018年5月腾讯云在贵州枢纽投产的贵安七星数据中心，存放30万台服务器。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2064.png)
 
-2018年6月腾讯云在重庆部署了两个云计算数据中心，可容纳10万台服务器。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2062.png)thepostmillennial.com
 
-2020年6月开园的乌兰察布数据中心，属于内蒙古枢纽。
+据一位自称是塞罗侄女的妇女说，她在周六的 Facebook 帖子中说，在周末有虚假报道，称受伤的妇女已因事件去世后，她的姑姑“还活着”。
 
-2020年11月阿里云西部云计算中心及数据服务基地落户成都，成为成渝枢纽中心。
+视频显示，骑警冲过支持自由的人群中的一个狭窄开口，在途中撞倒了一些人。
 
-此次劳民伤财的“东数西算”被中共称为继西电东送，南水北调后又一大规模工程，中共通过构建数据中心、云计算、大数据一体化的新型算力网络体系，可以使中共更坚固的监控奴役国人，使国人的一切信息都在中共的数据里随时更好的掌控。
+被撞倒的人之一是塞罗，在视频和照片中可以看到，她带着行走辅助装置，躺在马蹄下。
 
-信息来源：[“东数西算”工程正式启动 全国数据中心这样布局](https://ms.mbd.baidu.com/r/BJBQBQmVry?f=cp&amp;rs=2980802946&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=f8628133cb15b3e0&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
+根据她的侄女的说法，塞罗在这个事件中锁骨骨折。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+“现在离马远点，”塞罗的侄女开玩笑说。
+
+（点评：不是离无辜的马远点，而是离骑马镇压热爱自由，政权自己正当权利的加拿大盖世太保骑警远点！）
+
+视频显示塞罗坐在轮椅上，拍摄视频的女人说“生来就要活着”。身后有人喊道：“站住！”
+
+YouTube 上的一段视频显示，在踩踏事件发生前几天，塞罗在渥太华驾驶着她的车，现在她的车已由众多抗议参与者签上名子。
+
+周五事件发生后不久，福克斯新闻撰稿人萨拉·卡特当时在推特上写道，塞罗可能已经在医院去世。相互矛盾的报道称，这名妇女只是受了伤。
+
+卡特后来在第二天早上为她的推文道歉，称她收到的报告“来自当地的消息来源，即有人可能在踩踏期间在医院死亡，这是错误的。” 卡拉特说：“有人因心脏病被送往医院——不是因为踩踏。”
+
+“我想再次澄清这一点，并为任何混乱道歉，”卡特在推特上写道。
+
+素材链接：【thepostmillennial.com】 [Woman trampled by Trudeau’s forces during freedom protest identified as Indigenous elder](https://thepostmillennial.com/woman-trampled-freedom-protest-indigenous-elder)
+
+* * *
+
+审核：文乐
+校对：小东
+发布：花羽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-6.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
