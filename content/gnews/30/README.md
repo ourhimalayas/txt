@@ -2,25 +2,25 @@
 ---
 
 
-## 有声｜林郑月娥不祥之兆？港媒揭深圳密会气氛凝重
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2045645/)
+## 美疾控中心和辉瑞发布血栓紧急警告
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2045680/)
 
-**By:秘翻新闻**
+加拿大温哥华杨枫叶快讯帆农场
 
-**2022-02-22**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/圖片2.png)图片源自:新唐人
-据[新唐人](https://www.ntdtv.com/gb/2022/02/21/a103353461.html)2月21日报道，近日香港疫情大爆发，习近平直接对港下令，疑似对特首林郑月娥不满。据《香港01》披露，从至少两个消息渠道得知，就在上周二习近平抗疫令下达前夕，香港特首林郑月娥被召赴深圳，与中共官员见面。知情人士指，这次会议气氛凝重、严肃。
+采编： 风云小哥                    编译撰稿：自由法兰西
+![](https://www.thegatewaypundit.com/wp-content/uploads/Screen-Shot-2022-02-18-at-10.21.26-PM.jpg)图片来源：[https://www.thegatewaypundit.com](https://www.thegatewaypundit.com/2022/02/everyone-risk-blood-clots-cdc-pfizer-issue-urgent-warnings-blood-clots-even-healthiest-athletes/)
+据美国媒体【网关专家】2月19日报道，【美国疾控中心】近日就【辉瑞】产“新冠病毒”疫苗导致血栓的情况发出紧急警告称：所有已接种者包括最健康的运动员都有发生“深度静脉血栓”，“肺栓塞”以及“脑血栓”等严重疾病的风险。
 
-香港特首选举原定于2022年3月27日举行，但随着事态不断变化，选举日期一再推迟，提名日期也随之改动。特首选举又延迟至5月8日，而提名期亦顺延至4月3日开始，当月16日结束。
+据悉，早在去年2月【美国疾控中心】就声称：无论是运动员还是球迷，任何已接种者都会出现血栓症状。并试图以此将青壮年和健康运动员出现血栓的现象常态化。
 
-港府不但选举日期推迟，特首提名时间也一再缩短，令中共实施《港区国安法》后的首次特首选举，再添迷团。据《香港01》报导，这次香港疫情大爆发，令北京当局对林郑颇为失望。无论林郑被召赴深圳实情如何，其连任无望几乎已成政界共识。
+对此，《美国医学会杂志》指出，所有mRNA疫苗都会加大患脑血栓的风险。而【牛津大学】的最新研究也显示，在接种辉瑞、莫纳德和阿斯利康疫苗后，罹（离li）患各类血栓疾病的机率将成倍增长。
 
-（ 秘翻新闻 二丫 编译报道 ）
+校对编辑：硫酸羟氯喹64
 
-发布:星星
+发稿：青青
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321.jpg)
+新闻来源： [https://www.thegatewaypundit.com/2022/02/everyone-risk-blood-clots-cdc-pfizer-issue-urgent-warnings-blood-clots-even-healthiest-athletes/](https://www.thegatewaypundit.com/2022/02/everyone-risk-blood-clots-cdc-pfizer-issue-urgent-warnings-blood-clots-even-healthiest-athletes/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,46 +2,41 @@
 ---
 
 
-## 所有律师与七哥PK后均承认无第三方无中介的付款合法
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2045791/)
+## 北京冬奥人工造雪将对生态造成长期严重影响
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2045863/)
 
-G-TV视频链接：[https://gtv.org/video/id=62125ed81408ee3a03a253fa](https://gtv.org/video/id=62125ed81408ee3a03a253fa)
+**整理：围剿维尼熊
+编辑：Candy**
 
-**郭文贵先生：**我转了10,000美元10,000HDO，那我现在我要转给谁？我转给我女朋友JessicaＧ，JessicaＧ在美国我“咔”一转，“JessicaＧ，今天晚上约20分钟聊聊天，给你转2000刀”，“咔”就过去了，谁能管得着你呀。JessicaＧ拿着2000刀，“跟他聊20分钟我赚2000刀，我给我另外一个男朋友B我要联系一下”，“咱俩聊上1小时我给你200刀，也赚1800刀，“叭”过去了，你告诉我谁能查出来？谁能管得着你呢？在哪不合法？你告诉我。
+**【雅典娜快讯】，紧贴时代脉搏**
 
-这个问题七哥跟律师PK了10,000遍了，所有律师都被我消灭掉了，最后说这是对的、合法的。任何国家法律，我有钱，我给了对方，你告诉我，我哪犯法了？我咋犯法了？我非要找一个中介，PayPal、第三家银行？我不需要啊，这对方要我的钱，我就给他了，它叫HDO，说这个钱怎么安全？我随时可以提现，我就到喜联储提现就完了，我能兑现而且它是美元，而且我俩的事我关你第三方什么屁事？
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-02-下午10.11.59-16.png)
 
-我跟JessicaＧ是男女朋友关系，我还得告诉她老公吗？，“JessicaＧ，我跟你JessicaＧ聊了20分钟，给了她2000刀，你同不同意啊？”她老公一刀把我给砍了，我干嘛要让他知道呢？我能给她2000刀我用得着你知道吗？，JessicaＧ跟他男朋友B连系去，她还告诉她老公：“我跟我男朋友B再聊上200块钱的”是不是？那不找欠揍去了吗？她不说没人知道。
 
-就这么简单的道理你还要问吗？这个世界上永远很可悲的，人类上万年了，就99%的人是被人家给奴隶的，只是用文明的方式奴隶，还是粗鲁的方式奴隶，还是中共的方式奴隶而已。
+根据大纪元2月21日讯：2022北京冬奥虽已结束，但专家警告，中共当局在张家口和延庆大规模人工造雪，可能对生态造成长期影响，自然环境可能需要数百年才能恢复。
 
-字幕来源：[2022年2月4日《文贵大直播》全文字版](https://gnews.org/zh-hans/1961700/)
+虽然北京不是第一个使用人造雪的冬奥主办方，但它是第一个几乎完全依赖人造雪的城市。中共当局提出的保护和恢复工作，可能无法防止土地、动植物受到伤害。
 
-编辑整理：Jacques；
+据纽约非营利性新闻组织——气候新闻内幕（Inside Climate News）报导，法国斯特拉斯堡大学水文学教授卡门‧德容（Carmen de Jong）表示，像滑雪道这类大型建设，对环境有非常强烈的影响，后果可能是不可逆的。
 
-字幕文件制作：小满；
+德容曾在一个播客节目上指出，由于北京冬奥赛区气候非常干旱，每年降雨量不足400毫米，因此水必须从很远的地方抽取，用管道输送到山上，势必对灌溉、民生用水产生影响。
 
-视频制作及上传：Cindy；
+尽管北京官员和中共官媒多次否认，但有消息传出，人造雪用水使当地的水供应紧张。
 
-G-News发布：小满；
+德容表示，人造雪的影响不仅止于水供应，人工造雪加上扫雪机的使用，会使土壤渗流能力下降，提高土壤温度，增加地表水径流，导致水土流失。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+美国科罗拉多大学博尔德分校地理学副教授诺亚·莫洛奇（Noah Molotch）表示，水、能量和养分的变化，将影响植物在整个景观中的分布。雪对土壤造成的改变，也可能影响植物的生长期。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+参考链接：[https://www.epochtimes.com/gb/22/2/21/n13592993.htm](https://www.epochtimes.com/gb/22/2/21/n13592993.htm)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+**发布：Candy**
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,24 +2,44 @@
 ---
 
 
-## 人类应该意识到媒体和科学主义者潜在危害
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2045893/)
+## 作为首个金融义工平台H-Pay未来大额取款会收极少费用
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2046070/)
 
-西方的所有工业革命之后，就是西方人脑子里对科学的崇拜已经超过了宗教了。
+G-TV视频链接：[https://gtv.org/video/id=621260dc1408ee3a03a25584](https://gtv.org/video/id=621260dc1408ee3a03a25584)
 
-**【郭先生直播摘要】**** 2022.2.18 ****人类应该意识到媒体和科学主义者和政府主义者潜在危****害**
+**郭文贵先生：**这次H-Pay他们做得非常好，就是不能收手续费，但是未来贷款你是要你肯定……贷款你得付利息，要不谁给你钱呐是不是？
 
-**郭先生：**
+另外一个就是说存款给利息，这两点交换它是要赚钱的。那么H-Pay未来大额的是肯定要收钱的，就是你的小额不收，照顾老百姓。但是未来你说：“我取一百万、一千万、一个亿”，是肯定要收钱的，收的也不会那么多，很少的钱，一点基本的成本。就基本上咱是人类上第一个完全做金融义工的这么一个平台。
 
-西方的所有工业革命之后，就是西方人脑子里对科学的崇拜，已经超过了宗教了。这就是人类[历史]上三大段，从过去的神领导人类宗教战争，到后来的皇权，就是皇帝，皇权战争，到了工业革命就把皇权、神权给打没了。宗教基本上百分之八九十就给废掉了，那么西方它是一个很坚定的百分之八九十相信科学主义的。
+那么比如说你开餐厅，现在文斌开个餐厅，你卖点饭，一天用个三万五万美元、一万两万美元，然后卖来卖去，这个不能收你钱。我说：“咱么这个喜联储最重要的就是让这些穷人们他不要担心那么多成本。”
 
-科学主义在资本主义的运行下已经成了人唯一的支撑，所以现在你发现所有打疫苗的国家，你像犹太，犹太是科学主义的创始者，犹太是过去神教主义的创始者。它不是皇权的创始者，本身犹太人在全世界受到的伤害，都是被独裁伤害的，被皇权伤害的，所以犹太人作为科学主义的创始者，它彻底被科学主义利用者和利用科学主义的魔鬼利用了一把然后西方的整个科学主义就相信了科学。它没想到就像福奇像科学这些大佬们，包括辉瑞这些所有的医药公司，莫德纳都已经被他们利用了，包括这些科学杂志被利用了，就是达沃斯党、共产主义和沼泽地充分的利用科学家、科学主义和医药领域让大家信任让他们打了疫苗。
+字幕来源：[2022年2月4日《文贵大直播》全文字版](https://gnews.org/zh-hans/1961700/)
 
-那么越无知的地方它没有科学，更不存在科学主义，甚至沼泽地都懒得让你去死去。很多国家是自己人玩自己，人家沼泽地就没想着让你打疫苗让你死。你在巴基斯坦，你在非洲这些国家基本上就都是利用你的政府骗你点钱，绝大多数是假疫苗，这某种程度也挺荒唐的，越落后的地区，假疫苗越多，死人越少。越文明的地区，真疫苗越多，死人越多。
+编辑整理：Jacques；
 
-政府主义科学主义让我相信了Facebook，结果现在全人类为啥恨比尔盖茨？比尔盖茨他们控制着媒体，比尔盖茨控制了全人类百分之九十的微软软件、媒体和科学家。科学主义者和政府主义者彻底的扭在一起，那人类就要受到伤害。那就是科学主义面临人类上如何生存？人类应该有更多的主义，人类不仅仅仅能依靠一个科学主义能生存，就像我们现在说的正道主义。科学也要独立，司法要独立，媒体必须独立，受监督。必须承担法律责任的[前提]下保护你言论自由，而且绝对要受监督，这就是新中国联邦的正道主义最关键的一关。
+字幕文件制作：小满；
 
-视频剪辑：GC |听写：雨山溪桥客 | 翻译：叶子 | 校对：Polaris |视频制作+字幕：小腾腾说 | 编辑：昆汀 | 发布：断播
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
