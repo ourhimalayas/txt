@@ -2,46 +2,33 @@
 ---
 
 
-## 真想买喜币的美国战友完全可以合法买,懂HPay的就会用
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2046393/)
+## 南加州民众在好莱坞星光大道打出标语声援“铁链女”
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2046507/)
 
-G-TV视频链接：[https://gtv.org/video/id=621262f51408ee3a03a25717](https://gtv.org/video/id=621262f51408ee3a03a25717)
+**撰稿：日本东京方舟农场 子辰**
 
-**郭文贵先生：**美国人现在是全世界数字货币80%的拥有者，如果按照这个说的话，美国几乎是80%到99%都是不合法的。这是美国最守法的国家。但你别忘了美国的财富从第一天到今天，积累的过程当中，按照美国今天的法律来讲，绝大多人的财富全都可以给他分掉，都不合法。这也是美国人这个国家守法，他知道法律的重要，同时他们也知道怎么会用法。他80%的全球的数字货币都在美国人手里边，我不相信他们都是合法通过KYC的。而且你像那个赵长鹏那个垃圾，他就没有KYC，那不都给美国人买走了么，是吧！
+近期，南加州民众在熙熙攘攘热闹非凡的好莱坞星光大道上，举行了声援江苏“铁链女”的集会，集会人员打出标语声讨中共国对于妇女的贩卖，扣押等罪行，并呼吁国际社会关注中共国妇女的悲剧。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-331.jpg)（图片来自大纪元）
+集会现场，大家打着“释放铁链女”、“寻求真相打倒黑恶势力”等标语，进行了声援活动。
 
-真的想买的战友的美国人，我觉得你是完全可以合法买的，有很多。我再重申一遍，全世界没有一个国家有数字货币的法律，所有的所谓的监管的法律完全都是胡扯的。你告诉我美国谁是数字货币的监管者，它没有机构啊。SEC说这是证券它不能管。金融管理会它也管不了。没有一样管得，没有这个部门，这是一个角度。大家受的这个影响是不应该的。
+据悉，此次声援活动是南加民众自发组织的，他们希望通过这次活动能够引起更多人的关注并得到国际社会的支持，让更多的人了解中共治下国内老百姓尤其是妇女的悲惨遭遇。
 
-第二个，你合法地被美国政府说：你可以买那个H币什么的。就说法律全允许的，像现在买BitCoin一样在美国这样的买，BitCoin是代理商让你买的，同样H币也会在美国也会发生。快则三个月，慢则不会超过六个月，但是这个时间是真的不确定的，因为这个美国政府谁也说不了。我认为就合法的像买比特币一样，买以太坊币一样，可以在美国买，美加。
+活动中，民众纷纷表示，太悲惨了，简直不敢想象是发生在当代的事件。
 
-那么H-Pay在全世界都是可以使用的，跟它没有任何关系。如果你懂得用H-Pay的时候，这个KYC的问题跟你就没有关系了。我就说到这儿，你们懂的。谢谢！
+而且政府居然会掩盖这个事，所以它们很可能是同伙，这个更加激起了我们强大的愤怒。政府和犯罪同在一起，这个我们绝对不可能接受。活动现场还有人举着“真相不出、我们不散”的标语。
 
-字幕来源：[2022年2月4日《文贵大直播》全文字版](https://gnews.org/zh-hans/1961700/)
+铁链女”爆出之际恰逢北京冬奥会筹备阶段，视频曝出后，一下子成为了民间关注的焦点，热度甚至超过冬奥会。徐州官方为平息此事，不断修改说辞，前后共抛出四次案情通告，但个个通告都被民间戳穿漏洞百出并掩盖真相。最终江苏17日宣布决定成立调查组调查事件真相，然而“铁链女”至今却下落不明。18日，湖南卫视记者前往「铁链女」所在的村子遇阻，发现该村已经被全面封锁。
 
-编辑整理：Jacques；
+此外，有加州律师表示，中共所谓的妇女儿童保护法，不仅仅是形同虚设，更像是整个政府经营的一个产业链，认为就是政府的各级官员，都在走私妇女儿童的产业链里在分一杯羹。
 
-字幕文件制作：小满；
+铁链女事件发展至今，不仅没有平息且不断发酵，海外民众纷纷发起连署要求彻查此事。洛杉矶的民运人士也发起了声援铁链女的活动。
 
-视频制作及上传：Cindy；
+参考链接：
+[https://www.epochtimes.com/b5/22/2/20/n13592125.htm](https://www.epochtimes.com/b5/22/2/20/n13592125.htm)
 
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+素材采编：子辰
+编辑：老孙
+发布：爱放飞
 
  
 

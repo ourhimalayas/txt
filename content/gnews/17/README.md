@@ -2,24 +2,42 @@
 ---
 
 
-## 外国记者代表组织批评中共在奥运期间制造的糟糕待遇
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2046358/)
+## 望子成龙和极不自信极度自卑的父母的都是为你好糟透了
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2046457/)
 
-#### 撰稿：彩虹
+G-TV视频链接：[https://gtv.org/video/id=621263d81408ee3a03a257c0](https://gtv.org/video/id=621263d81408ee3a03a257c0)
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-2-13.jpg)图片来源：InsiderSport
-《国会山报》2月21日根据《卫报》（The Guardian）报道，中国外国记者俱乐部（FCCC）是一个代表外国记者的组织，该组织发布了一份声明称，它对（中共）安全官员在奥运会期间对待经认可的外国媒体的方式感到“沮丧”，称中共政府与媒体互动的方式“违背了奥林匹克精神”。
+**郭文贵先生：**人就是人，对孩子那种望子成龙，特别中国人父母在孩子面前永远在孩子面前表现自己多牛叉：“你看你爹啊！” 文斌： “你看你爹今天直播不错吧？你看你爹直播够帅吧？你看你爹今天干啥了吧？我这有俩农场了是吧？我这有两亩地了！”
 
-声明指：“（中共）政府的干预在奥运会期间经常发生。”作为（中共）政府支持的网上骚扰和宣传战役的一部分，一些外国记者成为了在线骚扰的目标和受害者。
+你发现就中国人爹妈都不自信，极度自卑，然后在孩子这儿炫，你炫耀啥？然后给孩子叫孩子知道“你看你爸对你多好，你妈对你好。” 然后挂嘴边 “都是为了你好”。我觉得世界上没有几个词儿比这更糟的了，“都是为了你好”，然后“你爸你妈都是正确的”，是吧？然后你爸你妈做的事情…….然后告诉你“你该怎么做”，我认为这简直是糟透了。我儿子女儿身上有的优点我身上都没有，我觉得在他们身上，我每天能学到很多很多东西。
 
-声明举例说：“在一次奥运会滑雪比赛之后，一名外国记者被一名北京奥运会官员阻止在奥运会混合区采访一名香港运动员，而这块区域应该是受国际奥林匹克规则管辖的。最明显的是，荷兰国家广播公司的一名记者在一次电视直播中被便衣保安人员拖出镜头，尽管他几分钟前还站在警察指示的位置上。”
+字幕来源：[2022年2月4日《文贵大直播》全文字版](https://gnews.org/zh-hans/1961700/)
 
-中国外国记者俱乐部在声明中强调，“中国外国记者俱乐部敦促中共当局遵守他们自己对外国媒体在中国的认可规则：即允许记者在没有国家干预的威胁下预订和进行自己的采访，并在公共区域自由报道。不幸的是，在全球对中国的关注比以往任何时候都多的时候，这两条规则都没有得到执行。”
+编辑整理：Jacques；
 
-**新闻来源**
+字幕文件制作：小满；
 
-[Journalists group calls China’s handling of games ‘contrary to the Olympic spirit’](https://thehill.com/homenews/media/595186-journalists-group-calls-chinas-handling-of-games-contrary-to-the-olympic)
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

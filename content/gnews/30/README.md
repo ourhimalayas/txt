@@ -2,51 +2,34 @@
 ---
 
 
-## 台湾近日急症突增 三日猝死超百人
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2045985/)
+## 有声｜普京下令“维和”部队进入乌克兰分离地区
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2046233/)
 
-作者：纽约香草山教育部—Noemi
+By:**秘翻新闻**
 
+**2022-02-22**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8-31.png)图片来源 Aleksey Nikolsky/EPA-EFE
+据合众国际社2 月 21 日报道，俄罗斯总统弗拉基米尔-普京周一承认乌克兰东部两个分离主义地区为独立共和国，并对此发布法令，同时命令 “维和 “部队进入这些地区。
 
+该法令于周一晚间发布，并立即生效。根据其中的条款，普京承认了自称的顿涅茨克和卢甘斯克人民共和国，并下令俄罗斯武装部队执行维和职能。在签署法令前，普京向俄罗斯人民发表讲话称，乌克兰顿巴斯地区的局势再次危急，宣称现代乌克兰完全是由俄罗斯创造的”，而且乌克兰不仅仅是俄罗斯的邻国。它是我们自己的历史、文化、精神空间不可分割的一部分。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+据《华盛顿邮报》报道，文件显示，这些协议已获得批准，并为期 10 年，这足以让俄罗斯在顿涅茨克和卢甘斯克建立军事基地，并在其与乌克兰的边界上联合巡逻。
 
+这些举措进一步加剧了危机中的紧张局势，美国和欧洲领导人一再警告称，这次事件是俄罗斯为入侵乌克兰前所作的掩护。
 
+拜登对此发布了一项行政命令，禁止美国人在乌克兰所谓的顿涅茨克和卢甘斯克地区进行新的投资、贸易和融资。
 
-当地媒体2月21日报道，据全台各县市消防局的资料显示，台湾近两日急病救护事件竟累积达到了628起、猝死则高达101人，至于死因需要进一步了解相关信息。
+此前欧洲领导人曾敦促普京不要承认这些分离地区，称会违反已维持7年的明斯克和平协议。
 
-报道称，自19日至21日午间，台湾各地的急症救护案件累积超过600起，猝死及到院无呼吸心跳患者高达101人，40-60岁年龄段的猝死患者则占到了整体死亡人数的将近一半，而其中年纪最小的一位男性死者仅有35岁。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide5-5.jpg)
-目前，台湾地区完整接种毒疫苗人数已经超过了总人数的3/4，第三剂接种人数也已超过1/3。
+新闻来源
+[**https://www.upi.com/Top\_News/World-News/2022/02/21/ukraine-invasion-joe-biden-vladimir-putin/2681645444138/**](https://www.upi.com/Top_News/World-News/2022/02/21/ukraine-invasion-joe-biden-vladimir-putin/2681645444138/)
 
-此前，郭文贵先生爆料，中共毒疫苗灾难将导致全球猝死人数在冬春季开始激增，“随地倒”现象将在疫苗接种率较高的地区频繁出现。同时，与普通高龄猝死患者所不同的是，毒疫苗引发的猝死人群将主要集中在中青年群体。
+秘翻新闻 文洋 编译报道
 
-参考链接：
-[寒流奪命！全台百人猝死 600多人不適送醫](https://www.chinatimes.com/realtimenews/20220221002378-260405?ctrack=pc_main_life_p04&amp;chdtv)
+发布 : 恩典
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-
-总编/编辑：DM
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

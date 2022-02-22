@@ -2,28 +2,53 @@
 ---
 
 
-## 中日财经爆┃中共国“存取款5万元KYC”新规暂缓执行
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2045971/)
+## 美国前国务卿蓬佩奥排定三月初将访问台湾
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2046144/)
 
-撰稿：东京樱花团｜peterwong
-![](https://lh3.googleusercontent.com/yRBCqxr_yYl4N1vmsHqh6ayucehTLF0LIAy0cgYw1wo99Yoycr1j0344eCCmpvtt4q3EvhDUL9adlx1Nx-h1Xbl9kS1Njq3bcbv_5ltmQAx8f17GjCnYjkRW-ot-lflvg0DuI43e)[*图片来源*](https://cdn.hk01.com/di/media/images/dw/20211021/527879185985703936514976.jpeg/qQfsy3HkY-zc0CsxeE0yDGmoCQW_kdPEtc53xrXOd8Y?v=w1280r16_9)
-中共国央行周一（2月21日 ）晚间发布公告称，原定2022年3月1日起施行的《金融机构客户尽职调查和客户身份资料及交易记录保存管理办法》（下称《办法》）因技术原因暂缓施行。相关业务按原规定办理。
+作者：纽约香草山医疗部-云豹，香草山教育部 Naughty(文行)
 
-央行公告并附“答记者问”并解释称，一些中小金融机构提出，《办法》针对不同金融产品和业务模式提出了具体规范和要求，金融机构需要修订完善内部管理制度、信息系统、业务流程，并进行人员培训。为此，经研究，决定暂缓实施《办法》。
 
-今年1月下旬，央行发布前述新规，《办法》原定于2022年3月1日起施行。《办法》第十条规定，商业银行、农村合作银行、农村信用合作社、村镇银行等金融机构为自然人客户办理人民币单笔5万元以上或者外币等值1万美元以上现金存取业务的，应当识别并核实客户身份，了解并登记资金的来源或者用途。
 
-这条规定就是正规金融机构为人熟知的KYC（Know your customer）政策。央行有关司局负责人曾对媒体表示，实施《办法》的主要目的是预防和遏制洗钱等违法犯罪活动，保护人民群众资金安全和利益。该负责人还透露，从统计上看，目前我国超过5万元人民币的现金存取业务笔数仅占全部现金存取业务的2%左右，上述办法关于个人现金存取规定总体上看对客户办理现金业务影响较小。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-消息来源：
 
-1、[**中国央行称暂缓执行金融机构客户尽职调查新规 因部分机构需修订内部管理制度等**](https://cn.reuters.com/article/pboc-due-diligence-rules-0221-mon-idCNKBS2KR02J?il=0)
 
-2、[**影响太大!中国暂停“存取现金5万以上须登记”的新规**](https://www.allhot.net/finance/180256)
+2月21日，多家媒体报道，美国前国务卿蓬佩奥将于3月3～5日访问台湾，分别与台湾总统蔡英文和外长吴钊燮会面交谈，在智库发表演讲，还将与台积电及中钢等公司的负责人进行不公开会谈。
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+过去两年，中共国加大了对台湾的军事和外交压力，试图迫使台湾接受其统治。台湾政府则坚持表示只有台湾人民有权决定台湾的未来，并称如果受到攻击，会奋起自卫。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-12.jpg)
+蓬佩奥在国务卿任内，积极支持台湾参与国际社会活动，并抨击中共军事威胁台湾。在卸任前还特别宣布取消行政部门与台湾接触的限制，确认美台关系，不需要、也不应该因为官僚体制的自我设限而受到束缚，此政策宣示在实质上大幅提升了台美往来的层级。
+
+郭文贵先生20日爆料称，习近平与普京进行了绝密会谈，组成生死军事联盟，准备通过发动战争来保持个人的政治安全。而一贯对中共强硬的蓬佩奥此时出访台湾则意味深远。
+
+参考链接：
+1. [《獨家》龐皮歐下週來訪 3/3晉見蔡總統表達對台灣支持](https://news.ltn.com.tw/news/politics/breakingnews/3835941)
+2. [U.S. former top diplomat Pompeo, sanctioned by China, to visit Taiwan](https://www.reuters.com/world/asia-pacific/mike-pompeo-who-riled-china-while-office-visit-taiwan-2022-02-21/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+
+总编：DM
+编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,42 +2,28 @@
 ---
 
 
-## 北京冬奥人工造雪将对生态造成长期严重影响
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2045863/)
+## 中日财经爆┃中共国“存取款5万元KYC”新规暂缓执行
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2045971/)
 
-**整理：围剿维尼熊
-编辑：Candy**
+撰稿：东京樱花团｜peterwong
+![](https://lh3.googleusercontent.com/yRBCqxr_yYl4N1vmsHqh6ayucehTLF0LIAy0cgYw1wo99Yoycr1j0344eCCmpvtt4q3EvhDUL9adlx1Nx-h1Xbl9kS1Njq3bcbv_5ltmQAx8f17GjCnYjkRW-ot-lflvg0DuI43e)[*图片来源*](https://cdn.hk01.com/di/media/images/dw/20211021/527879185985703936514976.jpeg/qQfsy3HkY-zc0CsxeE0yDGmoCQW_kdPEtc53xrXOd8Y?v=w1280r16_9)
+中共国央行周一（2月21日 ）晚间发布公告称，原定2022年3月1日起施行的《金融机构客户尽职调查和客户身份资料及交易记录保存管理办法》（下称《办法》）因技术原因暂缓施行。相关业务按原规定办理。
 
-**【雅典娜快讯】，紧贴时代脉搏**
+央行公告并附“答记者问”并解释称，一些中小金融机构提出，《办法》针对不同金融产品和业务模式提出了具体规范和要求，金融机构需要修订完善内部管理制度、信息系统、业务流程，并进行人员培训。为此，经研究，决定暂缓实施《办法》。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-02-下午10.11.59-16.png)
+今年1月下旬，央行发布前述新规，《办法》原定于2022年3月1日起施行。《办法》第十条规定，商业银行、农村合作银行、农村信用合作社、村镇银行等金融机构为自然人客户办理人民币单笔5万元以上或者外币等值1万美元以上现金存取业务的，应当识别并核实客户身份，了解并登记资金的来源或者用途。
 
+这条规定就是正规金融机构为人熟知的KYC（Know your customer）政策。央行有关司局负责人曾对媒体表示，实施《办法》的主要目的是预防和遏制洗钱等违法犯罪活动，保护人民群众资金安全和利益。该负责人还透露，从统计上看，目前我国超过5万元人民币的现金存取业务笔数仅占全部现金存取业务的2%左右，上述办法关于个人现金存取规定总体上看对客户办理现金业务影响较小。
 
-根据大纪元2月21日讯：2022北京冬奥虽已结束，但专家警告，中共当局在张家口和延庆大规模人工造雪，可能对生态造成长期影响，自然环境可能需要数百年才能恢复。
+消息来源：
 
-虽然北京不是第一个使用人造雪的冬奥主办方，但它是第一个几乎完全依赖人造雪的城市。中共当局提出的保护和恢复工作，可能无法防止土地、动植物受到伤害。
+1、[**中国央行称暂缓执行金融机构客户尽职调查新规 因部分机构需修订内部管理制度等**](https://cn.reuters.com/article/pboc-due-diligence-rules-0221-mon-idCNKBS2KR02J?il=0)
 
-据纽约非营利性新闻组织——气候新闻内幕（Inside Climate News）报导，法国斯特拉斯堡大学水文学教授卡门‧德容（Carmen de Jong）表示，像滑雪道这类大型建设，对环境有非常强烈的影响，后果可能是不可逆的。
+2、[**影响太大!中国暂停“存取现金5万以上须登记”的新规**](https://www.allhot.net/finance/180256)
 
-德容曾在一个播客节目上指出，由于北京冬奥赛区气候非常干旱，每年降雨量不足400毫米，因此水必须从很远的地方抽取，用管道输送到山上，势必对灌溉、民生用水产生影响。
-
-尽管北京官员和中共官媒多次否认，但有消息传出，人造雪用水使当地的水供应紧张。
-
-德容表示，人造雪的影响不仅止于水供应，人工造雪加上扫雪机的使用，会使土壤渗流能力下降，提高土壤温度，增加地表水径流，导致水土流失。
-
-美国科罗拉多大学博尔德分校地理学副教授诺亚·莫洛奇（Noah Molotch）表示，水、能量和养分的变化，将影响植物在整个景观中的分布。雪对土壤造成的改变，也可能影响植物的生长期。
-
-参考链接：[https://www.epochtimes.com/gb/22/2/21/n13592993.htm](https://www.epochtimes.com/gb/22/2/21/n13592993.htm)
-
-**发布：Candy**
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

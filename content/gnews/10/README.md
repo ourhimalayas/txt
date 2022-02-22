@@ -2,48 +2,41 @@
 ---
 
 
-## 管孩子功歸七嫂,但七哥有不討論大人事和不撒謊兩原則
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2046411/)
+## 俄乌紧张局势影响多国高层领导人出行
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2046514/)
 
-G-TV視頻鏈接：[https://gtv.org/video/id=621263301408ee3a03a25741](https://gtv.org/video/id=621263301408ee3a03a25741)
+整理：围剿维尼熊
+编辑：Mttfly
 
-**郭文貴先生：**這說起兒女，真的是我這一點真的感恩你七嫂。我覺得我是一個很寵孩子的人，如果按照我寵孩子，這倆孩子肯定不是今天這樣。你七嫂那是屬於很認真的、很嚴肅的。她家教就很嚴，她爸她媽都屬那種非常強悍型的，而且是非常非常嚴格家規的人。所以她從小的規矩，她就是這麼長大的，你七嫂子很強勢，你看我這樣的人都被她整得服服貼貼的，你想想她有多強勢吧，你想想她有多強勢，是吧？她對倆孩子就很強勢，就管得很嚴，這主要歸功你七嫂。
+**【雅典娜快讯】，紧贴时代脉搏**
 
-但是我有兩樣原則這絕對是從小到大的，就是你看比如說我們家家規：孩子不要討論大人的事兒。我就覺得這個世界上沒有任何人你可以討論你父母，你個小屁孩兒討論父母的事兒，你不要介入到父母；而且中國人所有孩子都要（介入）父母的私人感情，父母的什麼恩恩怨怨全介入。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/乌克兰地图.jpg)图源：CBS
 
-我最小的發小，最好的發小跟我爹我娘是非常不和的，非常不和的，但是它半點兒不影響我和他好。你說我那個照片跟前面的那個小伙子他爸爸就是我們當地的隊長，現在都在世呢，他就是跟我父親非常不和，但是它不影響我半點兒跟他好。你孩子不要介入到父母的糾紛當中去，也（別介入）父母的感情，這是我們的原則。
 
-另外一個就是我們家的孩子絕對不能撒謊。只要撒謊那是絕對不可以，所以他從來不撒謊。另外一個就是大家能看到我們作為山東人，我們這個家教裡邊孝敬。那孩子孝敬就別提了，就我兒子、我女兒的孝敬你們不可相信的，就是這種家庭文化，而且特別。就我們家庭的孩子從小跟我事業、生意完全沒有關係，而且是純粹的，純粹的。
+据路透社2月21日报道，白俄罗斯国防部宣布，俄罗斯将延长在白俄罗斯原定于周日结束的军事演习。美国国务卿布林肯表示此举使他更加担心俄罗斯即将入侵乌克兰。
 
-你去想想，他們從小金融上、生意上都做得很成功，財務上的獨立，對家庭上按著山東這種孔子家教的原則，對父母的孝敬，然後在社會上不撒謊、絕對不欺負軟的，那就我和你七嫂子不允許他半點兒欺負人，絕對善良。所以說我覺得這一點兒上真的是，我覺得這是個中國文化和現代文化現代化以後的成功的家庭，我認為是這樣子的。
+白俄罗斯国防部表示，做出这一决定的原因是俄罗斯与白俄罗斯边境附近的军事活动以及乌克兰东部顿巴斯地区的局势。
 
-字幕來源：[2022年2月4日《文貴大直播》全文字版](https://gnews.org/zh-hans/1961700/)
+乌克兰日益紧张的局势打乱了多国高层领导人的日程安排。
 
-編輯整理：Jacques；
+白宫周日表示，拜登总统取消了前往特拉华州的行程，继续留在华盛顿。布林肯说，只要莫斯科不入侵，他与俄罗斯外交部长拉夫罗夫仍将按计划在本周会晤。
 
-字幕文件製作：小滿；
+加拿大外交部长Melanie Joly周日表示，她因为局势而推迟了对法国的访问，将立即返回加拿大。
 
-視頻製作及上傳：Cindy；
+法国总统马克龙的一名顾问说，法国和俄罗斯已经同意在周一举行欧洲安全与合作组织(OSCE)会议，乌克兰和俄罗斯的代表将参加会议。目前担任欧安组织主席国的波兰早些时候说，应乌克兰的要求，正在召开理事会特别会议，以防止武装冲突。
 
-G-News發佈：小滿；
+白俄罗斯国防部长Viktor Khrenin称，延长演习的重点是“确保对我们共同边界附近的恶意者的军事准备作出适当的反应和降级”。
 
-**廣而告之：尊敬的戰友，你的每一篇文字、每一段視頻、每一段社交媒體發文都是壓垮駱駝的一根稻草，歡迎加入我們****——**[**日本銀河系農場****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，歡迎訂閱我們的油管頻道：**[**郭文貴先生直播精選**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；歡迎關注蓋特獨家文貴先生大直播精選發佈賬號：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+参考链接：[俄罗斯和白俄罗斯延长军事演习 拜登取消出行坐镇华府](https://cn.reuters.com/article/russia-belarus-drills-extended-0220-sun-idCNKBS2KQ00U)
 
-聲明：文中內容根據郭文貴先生直播視頻整理，如果文字內容與視頻內容衝突則以原視頻為準，標題僅為概括，標題與視頻內容衝突之處僅代表作者個人觀點。
+*发布：Mttfly*
 
-歡迎喜聯盟進駐以及各農場兄弟姐妹們坐客串門，請通過以下方式關注及訂閱我們——
-
-Discord：[日本銀河系農場Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本銀河系農場](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民熱線](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[銀河系檔案放映館](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文貴先生直播精選](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、[喜馬拉雅日本銀河系農場 G-News](https://gnews.org/zh-hant/author/jgalaxy2021/)、[日本銀河系農場-阿爾法星球](https://gnews.org/zh-hant/author/galaxyalphaplanet/) 、[銀河勇氣之星](https://gnews.org/zh-hant/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hant/author/newfoc/) ；
-
-蓋特：[日本銀河系農場@himalayajgalaxy蓋特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本銀河系農場](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,77 +2,44 @@
 ---
 
 
-## 安东尼·布林肯同王毅进行了交谈,强调需要维护乌克兰的主权和领土完整
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2045807/)
+## 请关注独自承受中共病毒伤害的疫苗后遗症人群
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2045923/)
 
-国务卿安东尼·布林肯： 我同 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 国务委员兼外交部长王毅进行了交谈。我强调需要维护乌克兰的主权和领土完整。
+撰稿：东京樱花团/盖特第一批注册
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/请关注独自承受中共病毒伤害的疫苗后遗症人群.jpg)[图片来源](https://news.yahoo.co.jp/byline/kutsunasatoshi/20210725-00249673)
 
+日本第一批疫苗接种首先是医护人员在2021年2月中旬开始的，然后是4月份的老人和5月份轻病患者。 截至2022年1月13日，79%的人口已经接种了两剂疫苗。
 
-> I spoke with People's Republic of China State Councilor and Foreign Minister Wang Yi. I underscored the need to preserve Ukraine’s sovereignty and territorial integrity.
-> — Secretary Antony Blinken (@SecBlinken) [February 22, 2022](https://twitter.com/SecBlinken/status/1495961543359356932?ref_src=twsrc%5Etfw)
+其中许多人都出现了有不良反应，如发烧、头痛和疲劳，这些反应不会超过几天。 但有些人在第一次或第二次接种疫苗后出现了异常后遗症症状，历经几个月后仍在遭受折磨。
 
+目前还没有关于这些疫苗后遗症发生频率和发生人群的精确数据。然而，许多人在Twitter和其他社交网站上讲述自己的这些症状。
 
+“我在接种疫苗的当天和第二天没有任何症状，但在第三天，我开始出现反酸和下腹不适的症状，医生告诉我我有血尿，并给我一些抗生素。但我服用后胸痛不止，被紧急送医治疗。 这是我第一次在服用抗生素后有如此糟糕的经历。”
 
-美前国务卿迈克·蓬佩奥：
+“接种疫苗一个月后，健康状况迅速恶化。我开始出现呼吸困难。无法正常呼吸，我喘着粗气，仿佛刚跑了50米。我的心悸得厉害，不敢喝咖啡或绿茶，只能喝白水。”
 
-弗拉基米尔·普京是侵略者。
+“我的月经一直不规律，通常出血量很少，但在第一次和第二次接种后几个小时，我的月经就毫无征兆地来了。我经历了最严重的痛经，被紧急送医。但至今当我活动量稍大时，我还会胸口疼痛，呼吸困难，感觉疲惫。”
 
-乌克兰人是受害者。
+“接种后第四天，我开始感到腿部肌肉不适。 我开始摇摇晃晃，混身肌肉酸痛无力。这种不愉快感觉在接种疫苗两个多月后仍然存在。”
 
-我们永远不应该回避这一点。
+“8月中旬第一次接种后，第二天我开始疲惫、发烧，并有强烈的头痛，持续了几天。4、5天后，症状有所缓解，但10天后，我的腿部突然出现了奇怪的麻木感。 两只脚都是如此，左脚更强烈。”
 
+“很奇怪，我的症状每天都在变化。有时我感觉很麻木，有时我感觉很疲劳，有时会头痛但没有麻木感。 这些痛苦每天漂移在身体里的各个地方。”
 
+除了上述情况有些人患上了“脑雾”，即持续的头脑发懵的感觉。认知功能和视力也会受到影响，无法阅读或思考，不能与人良好沟通。
 
-> Vladimir Putin is the aggressor. 
-> The Ukrainians are the victims.
-> We should never shy away from that.
-> — Mike Pompeo (@mikepompeo) [February 22, 2022](https://twitter.com/mikepompeo/status/1495913605635715078?ref_src=twsrc%5Etfw)
+这些疫苗后遗症给患者带来了身体的伤痛，精神上的折磨，经济上的负担。他们的遭遇没有得到政府、医疗领域、媒体的重视，甚至是有意隐瞒。民众在不知情中成为牺牲品。
 
+希望全民觉醒的一天快点到来。
 
+信息源：
 
-参议员卢比奥： 我希望拜登不要被普京耍了 别等到他们见面的时候，俄罗斯已经吞并乌克兰东部，然后任何会谈都是关于不要进一步占领这个国家的。
+[息切れ、強い倦怠感、ブレインフォグ「ワクチン後遺症」に苦しむ人たち](https://www.news-postseven.com/archives/20220123_1721176.html/7)
 
-
-
-> I hope Biden doesn’t get played by [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw)
-> 
-> By the time they meet [#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw) will have annexed eastern [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) & any meeting would be about not taking more of the country
-> — Marco Rubio (@marcorubio) [February 21, 2022](https://twitter.com/marcorubio/status/1495780486794383365?ref_src=twsrc%5Etfw)
-
-
-
-众议员麦克·沃尔兹： 50年前的今天，尼克松前往北京，试图离间共产主义中国和苏联。 此后，中国共产党利用美中关系在技术和经济上实现了跨越式发展，以寻求成为世界上占主导地位的超级大国。 （转推说：习在北约问题上支持普京。美国或将组建全球联盟，帮助各国部署先进武器，这预示着一场新冷战。）
-
-
-
-> 50 years ago today Nixon traveled to Beijing to drive a wedge between communist China & Soviet Union. 
-> 
-> The CCP has since used the US-China ties to leapfrog ahead technologically and economically in its quest to be the world’s dominant superpower. [https://t.co/tZ2EZucRjN](https://t.co/tZ2EZucRjN)
-> — Rep. Mike Waltz (@michaelgwaltz) [February 21, 2022](https://twitter.com/michaelgwaltz/status/1495765756247785476?ref_src=twsrc%5Etfw)
-
-
-
-参议员玛莎·布莱克本： 国际奥委会允许一个种族灭绝的 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 政权主办奥运会，并允许一名使用兴奋剂的俄罗斯运动员参加比赛。 而美国队参加北京奥运会使得这种胡作非为合法化。
-
-
-
-> The International Olympic Committee allowed a genocidal regime to host the Olympics and a Russian athlete that was doping to compete. 
-> 
-> Team USA’s presence at the Beijing Olympics legitimized this nonsense. [https://t.co/tlgZdKVVXp](https://t.co/tlgZdKVVXp)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [February 21, 2022](https://twitter.com/MarshaBlackburn/status/1495879336217485317?ref_src=twsrc%5Etfw)
-
-
-
-参议员玛莎·布莱克本： [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 正在逃脱反人类罪的惩罚，而拜登政府对此视而不见。
-
-
-
-> The Chinese Communist Party is getting away with crimes against humanity, and the Biden administration is turning a blind eye.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [February 21, 2022](https://twitter.com/MarshaBlackburn/status/1495838373981966341?ref_src=twsrc%5Etfw)
-
-
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
