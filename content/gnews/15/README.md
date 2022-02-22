@@ -2,25 +2,32 @@
 ---
 
 
-## 樱花灭共诗——徐州丰县铁链女
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2048288/)
+## 有声|NFSC新闻、G|TV新闻访谈简报|2022年2月21日早
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2048469/)
 
-撰稿：东京樱花团/故乡明月
-![](https://assets.gnews.org/wp-content/uploads/2022/02/樱花灭共诗.png)
-一锁芳华三十春，
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-20-556x720-1.png)
 
-可怜丰县闭囚人。
 
-居秦吾亦徐州女，
+文字版原文：[NFSC新闻、G|TV新闻访谈简报|2022年2月21日早](https://gnews.org/zh-hans/2043453/)
 
-镣铐无形裹在身。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/樱花灭共诗——徐州丰县铁链女.png)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-*图片：东京樱花团/闪闪
-校对：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

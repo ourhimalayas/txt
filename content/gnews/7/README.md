@@ -2,37 +2,34 @@
 ---
 
 
-## 2022年2月22日澳洲股市简报
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2048455/)
+## 达沃斯党利用科学主义危害人类
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2048547/)
 
-**撰稿：云彩**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1-19.jpg)图片来自the Australian
-ASX 200 指数下跌1%，7161点收盘。全球市场对俄罗斯宣布向乌克兰东部两个分离地区派遣“维和”部队做出反应。
+作者：纽约磐石农场 – 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在2月18日的大直播中，郭文贵先生为战友们揭密了，科学主义成为本次疫苗大灾难帮凶的主要原因。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-334.jpg)
+郭先生说，人类的三大阶段，是从宗教战争到皇权战争，然后工业革命取而代之。 工业革命的开始，意味着人类开始崇拜科学。
 
-**Cochlear股价上涨 9% 至 207.37 澳元**
+现在只有习近平还梦想着做皇帝，但是萨达姆、卡扎菲和阿明等独裁者的下场，都清楚的表明，开历史的倒车只能是死路一条。任何人如果尝试着用神权和皇权来领导人类，并试图把国家家族化，都是极其荒唐的，但是习近平却相信了他应该当皇帝的鬼话。
 
-听力医疗器械公司Cochlear宣布其半年股息增加 35% 至每股 1.55 澳元。
+当前西方社会神权和皇权影响力微弱，人们纷纷相信科学，这是资本主义社会唯一的支撑。犹太人作为科学主义的创始者，在这次疫苗大灾难面前，却被科学主义魔鬼化者彻底利用，例如福奇等一批所谓的科学家，辉瑞、莫德纳等大型制药公司，还有各种科学杂志。广大民众完全被达沃斯党、共产主义和沼泽地所欺骗，从而注射了中共病毒疫苗。
 
-**Costa Group 股价上涨 8.7% 至3.26澳元**
+参考链接：[2/18/2022 文贵直播: 科学曾在历史上推动了人类的发展，结束了宗教和皇权统治，然而为什么科学主义却成了疫苗灾难的帮凶？是谁利用了科学主义去骗取人们的信任来推行疫苗？](https://www.gettr.com/post/pvmwaic877)
 
-水果和蔬菜种植公司Costa Group的利润增长 16.2% 。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-**能源公司表现强劲**
+总编: Zion文恩
+编辑: 谐趣园
+校正/发稿：Fei797
 
-由于对俄罗斯石油和天然气供应的担忧，Woodside, Beach Energy 和Santos 股价上涨3-4% 。
-
-**Coles Group 股价上涨 3.2%至17.27澳元**
-
-连锁超市Coles Group公布半年收入增长 1%,息税前利润下降 4.4%，利润下降 2%。
-
-** Liontown Resources 股价下跌 10.8% 至1.32澳元**
-
-锂矿商Liontown Resources尽管利润增长了 28%，股息增加了 8.8%。
-
-
-
-编辑：云彩
-![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

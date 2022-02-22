@@ -2,75 +2,22 @@
 ---
 
 
-## 史蒂夫·班农: 全国每个主要法院都拒绝了强制疫苗授权，现在欧洲正在效仿
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1941476/)
+## 美政府承认新中国联邦是中国人民的选择
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1948068/)
 
-[https://gtv.org/video/id=61f80046d90bdd2085a32a15](https://gtv.org/video/id=61f80046d90bdd2085a32a15)
+采编：Quitman       编辑撰稿：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2022/02/06-image.png)
+据GTV和盖特近日新闻报道，班农先生在接受[新中国联邦]采访时指出：美国政府授权立即撤出驻北京大使馆所有外交人员的举动，是爆料革命迈出的巨大且具有里程碑意义的一步。这充分说明[新中国联邦]是中国人民的最佳选择。
 
-**Steve Bannon
-史蒂夫·班农**
+对于郭文贵先生代表[新中国联邦]致拜登总统和布林肯国务卿的感谢信，班农指出，该外交信函的正式递交意义重大，充分表明[新中国联邦]已被美国政府所认可。并表示美国政府的该决定不仅是与中共彻底断绝外交关系的开始，也是重启“新冠病毒”溯源，调查武汉病毒研究的开始。
 
-the vaccine things have been rejected by every court
-每个法院都拒绝了疫苗的事情
+此外，班农还鼓励所有[新中国联邦]人，应该继续在GNews和GTV上不断揭露中共举办冬奥会的邪恶目的。并让全世界人民都知道，中共是一个跨国犯罪组织，是不能代表中国人民的非法政权。
 
-every major court in the country, rejected out
-全国各大法院，都被拒之门外
+校对编辑：硫酸羟氯喹64
 
-Now you’re a butcher, now we says six is always 60 to 90 days was
-现在你是个屠夫，现在我们说是60到90天
+发稿： 苦尽甜来 (文来）
 
-guess what? they’re not going to do on next Tuesday on February 1st in Austria
-你猜怎么着？ 他们不会在2月1日的下周二在奥地利进行
-
-The mandatory vaccines is kind of getting wobbly
-强制性疫苗规定有点摇摇欲坠
-
-now people now that unvaccinated can come out of the house
-现在，未接种疫苗的人可以走出家门
-
-We’re about to see if they still gotta pay the penalty
-我们要看看他们是否还要支付罚款
-
-In England’s off, in Denmark’s off, it’s gonna be off others
-在英格兰取消了，在丹麦取消了，其他地方取消了
-
-Sweden just announced yesterday, Guess what?
-瑞典昨天刚刚宣布，你猜怎样？
-
-The research and the data and the science shows
-研究、数据和科学表明
-
-that children, you know 5-12 kids don’t have to get the vaccine
-你知道5-12岁的孩子们不必接种疫苗
-
-because the dangers of it outweigh the benefits
-因为它的危害大于好处
-
-the dangers of it outweigh the benefits
-它的危害大于好处
-
-suck on that Tony Fauci
-想想吧托尼·福奇
-
-* * *
-
-Date:01/30/2022
-原视频标题: Steve Bannon: Vaccine mandates have been rejected by every major court in the country and now Europe is following suit
-史蒂夫·班农: 全国每个主要法院都拒绝了强制疫苗授权，现在欧洲正在效仿
-原视频日期：2022/01/30
-原视频链接: **[https://gettr.com/post/pr9zf63f2a](https://gettr.com/post/pr9zf63f2a)**
-任务编号：KE377（3637）
-视频时间段 : 0:00-0:45
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+新闻连接：[https://gettr.com/post/pr1kny4943](https://gettr.com/post/pr1kny4943)
 
  
 
