@@ -2,36 +2,22 @@
 ---
 
 
-## 加拿大警察掩盖姓名、徽章号，暴力对待和平抗议者
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2045052/)
+## 特鲁多政府被世界经济论坛操控
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2045075/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+加拿大温哥华杨帆农场 枫叶快讯
 
-整理/编辑：小鱼儿
+采编/编辑撰稿： 文明(添草灭共)            校对编辑：硫酸羟氯喹64
+![](https://cdn.discordapp.com/attachments/759954055299858513/945517010056531998/unknown.png)Image Credit:FABRICE COFFRINI/AFP via Getty Images
+据美国媒体【信息战】2月19日报道，加拿大保守党议员科林当天表示，由于【世界经济论坛】创始人施瓦布已公开承认该国政府内阁的大部分成员已被该组织渗透，因此特鲁多应该公布这些成员名单。 报道称，科林议员的言论完全有视频可查证。总理特鲁多本人曾与【世界经济论坛】头目施瓦布多次会面，并被后者赞扬其对该组织的忠诚度高于对加拿大联邦政府。此外，自由党内阁多名成员都与该组织有公开的联系。例如，财政部长弗里兰就担任【世界经济论坛】董事会的管理成员。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/3-60.png)图片来源：CNA
+有评论认为，自由党政府禁止公开讨论特鲁多与【世界经济论坛】之间存在明显利益冲突关系之举，是典型的中共式“独裁”。
 
+校对编辑：硫酸羟氯喹64
 
-当地时间 2 月 21 日，据[自然新闻](https://www.naturalnews.com/)（Natural news）报道，加拿大在贾斯汀·特鲁多（Justin Trudeau）领导下迅速沦为专制政权。加拿大警方，除了使用马来击退和践踏示威者，还采取了隐藏身份的策略：掩盖他们的姓名和徽章号码。
+发稿：青青
 
-上周，特鲁多侮辱了卡车司机，声称他们与“纳粹党摇摆人”站在一起并反对加拿大，这导致反对党保守党的犹太成员、议员梅丽莎·兰茨曼要求他道歉。
-
-特鲁多回应兰茨曼：“保守党成员可以与挥舞纳粹标志的人站在一起。”特鲁多拒绝道歉，并再次重申镇压抗议的措施是必要的。（援引每日邮报 ）
-
-特鲁多对“自由车队”卡车司机的反应，与他2020 年 5 月对持续的“黑人的命也是命”暴力事件的反应截然相反。（注：当时特鲁多及政府人员集体向此事件下跪道歉）
-
-面对暴政，新墨西哥州的共和党新生立法者、众议员伊薇特·赫雷尔表示，“我正在引入立法，暂时向受到本国政府迫害的无辜加拿大抗议者提供庇护。”
-
-参考新闻：[Tyranny spreads in Canada as police now cover names, badge numbers on uniforms to evade identification as they brutally assault peaceful protesters](https://www.naturalnews.com/2022-02-21-canadian-police-covering-names-badge-numbers-trucker-crackdown.html)
-
-发布：tianzhihuan
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+原文链接： [https://www.infowars.com/posts/video-canadian-mp-accused-of-spreading-disinformation-for-pointing-out-wefs-corrupt-influence-over-trudeaus-govt/](https://www.infowars.com/posts/video-canadian-mp-accused-of-spreading-disinformation-for-pointing-out-wefs-corrupt-influence-over-trudeaus-govt/)
 
  
 

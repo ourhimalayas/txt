@@ -2,90 +2,58 @@
 ---
 
 
-## 欧元稳定币正在DeFi生态系统中占据一席之地
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2045283/)
+## 喜支付的每一步都在给世界制定游戏规则，而且符合法律
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2045482/)
 
-翻译：香草山商业部 — 文锤
+G-TV视频链接：[https://gtv.org/video/id=62125bf01408ee3a03a251a6](https://gtv.org/video/id=62125bf01408ee3a03a251a6)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+**郭文贵先生：**如果这个政府不支持我们，我们要选出另外一个政府呢？所以咱们战友的思维就是共产党的思维，以为在中国共产党让干啥就干啥，你没有余地，我们不是的。
 
+我再告诉大家，喜联储、喜币是游戏的制定者。美国和中国，美中之间无论是战争游戏，还是地缘战略和地缘政治还是能源战略、经济，就是标准的制定权，就这么简单。
 
+如果战友你还这么思考问题的时候，从一到一百，那你永远待在一百里边。我们是直接从天山上往下看，就是张高丽的“宇宙无限大，地球是一粒沙“，直接砸下来，你是小人物，我们是元，你是那个宇。我们喜币、喜联储所有制定的东西现在都是符合全世界各国法律的，否则你上不了，是吧？
 
+你现在是“先有鸡还是先有蛋”呢？我们现在你有钱了，你想想各国，是不是？咱跟美国有合伙人，人美国要求跟我们投资，投资的、投H-Pay的也是投PayPal的，也是投Swift，说：“郭先生，我们投进去，我们要不能少于9%的股份，我们要一直保留9%的股份，这是我们投资的权利。美国的国会游说交给我们了，美国的政策落实交给我们了。” 是吧？——找我。我说：“我可以给你介绍介绍。” 是吧？我没这个权力嘛。“介绍介绍喜联储给你认识。” 是吧？
 
+我说：“可以合作啊，你这个落实这个执行这不是我们想要的，我们想要一样东西。你只要进来投资你要把你和美联储的和所有的跟我们连在一起，你如何让金融机构先接受我们，然后你再去说去投。”他们说：“这都是小事。”我说：”你别别别，咱把小事写到合同里。”
 
-随着美元继续贬值，欧元支持的稳定币在加密货币和去中心化金融 (DeFi) 生态系统中的地位越来越重要。就像Tether（USDT）美元稳定币的小兄弟，我们今天聊聊Statis 的欧元稳定币 EURS 。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/stablecoins-euros-place-ecosysteme.jpg)图片来源于网络
-**欧元稳定币在DeFi生态系统中的作用仍然很小**
+所以这位战友问的问题都是……我要老回答这样的战友的问题我得累死，那喜币就不会诞生了要你这个思路，是吧？要像你按照这个路大脑袋、蛇妖闫、九指妖，喜币永远不可能诞生，是吧？G-Fashion就是王雁平在河北包了几纸箱子衣裳，是吧？永远也不会继续下去，这是不可能。
 
-稳定币在加密货币世界中是众所周知的。这些[稳定的代币，](https://cryptoast-fr.translate.goog/stable-coin-crypto/?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN)其中大部分跟随[美元的价格](https://cryptoast-fr.translate.goog/fiche-tether-usdt/?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN)，提供了对市场波动的保护。
+我们是游戏的执行者之一，而且我们已经诞生了，我们的每一步都在给世界制定游戏规则，而且我们今天你看“点到点支付“是符合法律的，是吧？无非是谁承担风险。
 
-仅该行业中最大的三个（USDT、USDC 和 DAI）就代表了 450 亿美元的市值。这一令人印象深刻的数字，在最近几个月仍在不断增加。但这些美元稳定币并不是市场上唯一的。
+PayPal是什么？我把钱Hold着，第三方你货到了什么什么，它当了银行了，它当银行了，又当裁判又当足球还当守门员，我转三圈回来再决定这个球进不进，是吧？不就这么个道理嘛。
 
-几个月来，以欧元为后盾的稳定币不断出现：Stasis Euro (EURS) 和 sEUR的总市值为 7600 万欧元。与他们的大兄弟美元稳定币相比，这个数字要低得多，但每天都在增长。
+我们不是的，我们这个游戏非常简单，点到点。刚才青藤给他妈汇了款，他给他妈汇款的同时，他也给他女朋友汇款，是吧？但你汇完了再想要回来，你跟你妈说：“妈我后悔了，我把钱再要回来。”你妈说：“对不起了儿子，我不给你汇过去。”你汇了你女朋友，你女朋友也说：“我不给你。”——你要不回来了，你别想要回来，没人给你做这个东西，快有快的风险，你得承担，而且不可查。
 
-**两种代币垄断市场**
+当然不可查，比如说你到PayPal我可以查去什么什么，对不起，你这个不可以，不让你查的，为了安全，你要了隐私你就要付出代价。最重要的是选择你用H-Pay还是用PayPal？你可以选择，有牛肉有鸡肉，你爱吃哪口吃哪口，对不对？所以说这个问题非常的简单，它的诞生到今天已经是没有任何人可以比较，而且是符合法律的，接下来就是它往下所有的运行都会建立新的游戏规则，谢谢！
 
-让我们从介绍开始。两个最大的欧元稳定币是 EURS 和 sEUR。他们的价格稳定系统完全不同。sEUR 是[Synthetix](https://translate.google.com/website?sl=auto&amp;tl=zh-cn&amp;hl=zh-CN&amp;u=https://synthetix.io/)平台的欧元稳定币。它的市值在柜台上显示为 3500 万欧元。其操作类似于 Synthetix 平台上的所有资产；它是一种所谓的合成资产，其价格由协议的超额抵押担保，并且由于[Chainlink](https://cryptoast-fr.translate.goog/fiche-chainlink/?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN)的预言机，其价格跟随欧元的价格。
+字幕来源：[2022年2月4日《文贵大直播》全文字版](https://gnews.org/zh-hans/1961700/)
 
-另一个代币 EURS的资本化为 4100 万欧元，其中包括自 1 月 1 日以来的额外 2000 万欧元。其操作类似于USDT或USDC；市场上发行的每一欧元都由银行中的真实欧元担保。在这种情况下，是[Stasis](https://translate.google.com/website?sl=auto&amp;tl=zh-cn&amp;hl=zh-CN&amp;u=https://stasis.net/)公司的。因此，这为任何 EURS 持有人提供了用公司的代币收回真实欧元的可能性。并且在任何时候。
+编辑整理：Jacques；
 
-“每个代币都以 1:1 的比例与公司储备账户中持有的欧元挂钩。STASIS 的大部分储备都由持牌经纪人持有，这比使用商业银行更安全，因为这些账户是隔离的，”其首席执行官 Gregory Klumov 说。
+字幕文件制作：小满；
 
-那么持有欧元稳定币有什么意义呢？已经，就像美元稳定币一样，将您的交易收入转换为 sEUR 或 EURS 实际上不会[产生税收。](https://cryptoast-fr.translate.goog/fiscalite-crypto-2019/?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN)这使您可以确保您的收入，而无需在资产负债表中添加一行。
+视频制作及上传：Cindy；
 
-**额外的多元化**
+G-News发布：小满；
 
-欧元稳定币也是多元化的机会。如果说自健康危机开始以来美国的货币政策似乎对其货币产生了重大影响，那么欧元似乎更具弹性。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-因此，许多欧洲人使用这些稳定的代币，以免它们的收益在几个月内减少（自 3 月危机开始以来，美元已经贬值了 10% 以上）。该资产也更容易进入越来越多地进入加密市场的公司和机构的资产负债表。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-Stasis 的 CEO 证实了多元化的趋势：
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-“我们的大多数客户都在欧盟地区，并且在他们的资产负债表上更喜欢这种货币。但是，我们拥有多元化的投资者基础，其中包括机构。由于美元支持的稳定币在市场上占据主导地位，因此欧洲人/亚洲人经常被迫做出不受欢迎的货币选择，而链上对冲的选择很少。我们寻求挑战美元在全球金融市场的主导地位。”
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-**DeFi 协议越来越多地接受欧元稳定币**
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-面对后者的热潮，接受这种新稳定币的去中心化金融协议正在增加。
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-旗舰 DeFi 交易所  [Curve](https://cryptoast-fr.translate.goog/curve-finance-depasse-uniswap-valeur-totale-verouillee/?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN)今年早些时候在其网站上显着增加了 EUR/sEUR 池，流动性提供者拥有 40% 的 CRV 和 SNX 权益。仅该池就汇集了 7000 万美元，或几乎所有的流通供应。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-欧元稳定币的出现也是向 DeFi 输出外汇的机会。这尤其是 Synthetix 提供的 sEUR 或 Jarvis 以及 jEUR。
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-“欧洲中央银行鼓励私营公司启动稳定币项目计划。我们参加了欧洲央行在去年底发起的调查。随着加密货币市场的持续增长和它的高度普及（德意志银行预测到 2030 年数字资产将超过法定货币），它很有可能在不久的将来成为领先的基于现金的解决方案之一。” 格雷戈里·克鲁莫夫强调。
-
-确实，稳定币是进入加密货币世界的一个越来越重要的门户。因此，欧元在那里找到一席之地是正常和受欢迎的。但这一进展目前受到[以太坊区块链成本的阻碍。](https://cryptoast-fr.translate.goog/frais-transaction-ethereum-finissent-plus-grimper/?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN)
-
-“在 2021 年，最大的实验将是结算迁移到更便宜的区块链以离开以太坊。目前有几种区块链解决方案在竞争这项服务——例如 Algorand、Solana、Polkadot 和其他一些以太坊第二层扩展解决方案来解决这个问题。今年该领域的另一个趋势是稳定币空间从美元到其他货币的差异化。欧元显然是第二个候选者，但其他新兴市场货币也将尝试增加其市场份额”，Gregory Klumov 分析道。
-
-[因此，在MNBC（中央银行数字货币）](https://cryptoast-fr.translate.goog/euro-numerique-banque-centrale-banques-commerciales/?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN)到来之前，稳定币有着光明的未来。即使这些的到来可能也不会摧毁我们亲爱的稳定币。
-
-**原文链接：**
-
-**[Les stablecoins euros se font une place dans l’écosystème DeFi (cryptoast.fr)](https://cryptoast.fr/stablecoins-euros-place-ecosysteme-defi/)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-124.jpg)
-
-校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
-
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

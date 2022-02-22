@@ -2,19 +2,44 @@
 ---
 
 
-## 澳大利亚计划在南极洲投资8亿美元，以反击中共的影响力
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2045377/)
+## 普京女儿本来要给爸爸面子赴冬奥但最后一分钟取消行程
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2045539/)
 
-撰稿/翻译：zzballack
-上传：追着曙光跑
+G-TV视频链接：[https://gtv.org/video/id=62125c721408ee3a03a2520a](https://gtv.org/video/id=62125c721408ee3a03a2520a)
 
-据英国《每日邮报》（Daily Mail）2月21日报道，为对抗中共在南极洲的强势和咄咄逼人行为，澳大利亚总理斯科特∙莫里森（Scott Morrison）预定于2月22日宣布，澳州联邦政府将在未来10年内耗资8.04亿美元，强化和升级澳大利亚在南极洲的科研活动，包括在技术装备上花费1亿美元，以打通该国前往南极的内陆通道；另有6000万美元用于采购无人机、直升机和其他自主交通工具，探索人迹罕至的地区。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-22-at-12.46.30.jpeg)图片来源：原新闻
-澳州智库洛伊国际政策研究所（Lowy Institute）最近发表了一份报告，指责北京正在试图推动“扩大解释《南极条约体系》（Antarctic Treaty System）的规定”。《南极条约》由包括澳大利亚和中国在内的54个国家于1961年6月签署，《南极条约》以及相关的协定，被称为《南极条约体系》。其目的是约束各国在南极洲大陆上的活动。条约将南极洲作为科学保护区，承认科学调查自由，但禁止在南极洲进行军事或采矿活动，同时限制捕鱼。
+**郭文贵先生：**然后刚才我在看他那一幕的时候，我就想到，普京今天，普京的镜头呢？你们看到几个普京镜头啊？墨镜找到了吗？有普京的镜头吗？
 
-人们担心中共想利用南极洲为自己谋利。洛伊研究所指出，北京在南极渔业资源开采以及冰上活动的表现越来越强势：“中共通过探测渔业以及旅游资源，在《南极条约体系》内表现越来越强势，并有可能在南极洲寻求获取西方的技术，未来北京有可能率领一些国家寻求只有中共有能力开发的矿产资源。”
+普京本来女儿要去的，最后一分钟，人家女儿不去了。本来给爸爸面子，说这个这个乌克兰的事情，什么军事台湾的事情，我一会儿再告诉你们吧。还不到时候呢，到时候再告诉你们，吓死你们。最后不去了。我告诉你，绝对冬奥开幕式，从共产党的“冬眠会”是共产党的一场噩梦的新的开始，记住我现在几点几分说的话。
 
-信息来源：[Australia makes a BIG move against China – in Antarctica: PM forks out $800MILLION to counter the Communist power’s growing influence on the icy continent](https://www.dailymail.co.uk/news/article-10534143/The-battle-Antarctica-Australian-PM-Scott-Morrison-spends-800million-counter-China.html)
+他刚结束吧，我告诉你们，绝对是习近平和共产党的一场新的噩梦的开始。上边战友说了，只奥委会主席的外国镜头，没有任何的。
+
+字幕来源：[2022年2月4日《文贵大直播》全文字版](https://gnews.org/zh-hans/1961700/)
+
+编辑整理：Jacques；
+
+字幕文件制作：小满；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

@@ -2,24 +2,25 @@
 ---
 
 
-## 一位向加拿大自由车队捐款的单身母亲的银行账户被冻结
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2045182/)
+## 有声｜海底捞2015年来首次年度亏损 预亏至少38亿
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2045302/)
 
-撰稿/翻译：zzballack
-上传：追着曙光跑
+**By:秘翻新闻**
 
-据英国《每日邮报》（Daily Mail）2月21日报道，加拿大国会议员马克·施特拉尔 (Mark Strahl)2月20日发推说，一位名叫布瑞安（Briane）的单身母亲在向自由车队捐款50美元后，银行账户被冻结。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-22-at-12.36.29.jpeg)图片来源：原新闻
-布瑞安从事最低薪资工作，除了向自由车队捐款50美元，她没有参加其它任何方式的抗议活动。对此，加拿大应急准备部部长比尔·布莱尔 (Bill Blair) 向加拿大CTV新闻表示，《紧急状态法》（Emergency Act）并不针对小额捐款。
+**2022-02-22**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/圖片.jpg)图片源自:网路
+据[大纪元](https://www.epochtimes.com/gb/22/2/21/n13593726.htm)2月21日报道，2月21日，大陆火锅连锁企业海底捞国际控股有限公司发布公告显示，截至2021年12月31日，集团预期年度净亏损约38亿元至45亿元人民币。这是海底捞自2015年披露财务数据以来首次年度亏损。
 
-随着布里安的故事继续在社交媒体上广泛传播，人们对《紧急状态法》中允许冻结参加抗议人群的账户的权力存在诸多疑问。特鲁多动用该法后，已有206个银行账户被冻结。
+公告把亏损的原因归咎于2021年300余家门店关停或业绩下滑等因素，因此导致处置长期资产的一次性损失、减值损失等合计约33亿元至39亿元；其次，在全球持续变化和反复的疫情影响下，2020年、2021年门店数量快速扩张以及公司内部管理问题等，对海底捞餐厅经营状况带来冲击，并且海外门店2021年出现亏损加剧的情况。
 
-加拿大卡车司机德雷克·布鲁沃（Derek Brouwer）因为参加抗议活动，他的个人和企业银行账户自上周五开始被冻结，卡车也被扣押。他正试图与银行合作纠正这一情况。但在该法案生效期间，那些拒绝离开渥太华抗议活动的人的财务账户将继续被冻结。
+在海底捞关闭的300余家餐厅中，目前大部分已经拆除搬走或彻底关闭，小部分暂时休整、将在两年内择机重开。
 
-信息来源：[Outrage as Canadian single mom on minimum wage has bank account frozen for donating $50 to Freedom Convoy: Trudeau is blasted for draconian law that ‘would never have been imposed on BLM’](https://www.dailymail.co.uk/news/article-10535361/Canadian-MP-says-single-mom-bank-account-frozen-donating-50-Freedom-Convoy.html)
+（ 秘翻新闻 二丫 编译报道 ）
 
+发布:星星
 
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

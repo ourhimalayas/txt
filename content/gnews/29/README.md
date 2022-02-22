@@ -2,18 +2,22 @@
 ---
 
 
-## 樱花头条｜Sucharit Bhakdi博士：我们正在研究一种没有任何好处的疫苗
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2045163/)
+## 雅典娜时报-第212期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2045301/)
 
-撰稿：东京樱花团/樱花传媒
+#### 《雅典娜时报》汇聚全球新闻时事
 
-信息来源：
+#### 编辑：精灵蓝
+排版：小蚂蚁614
+![圖片](https://media.discordapp.net/attachments/825592691433668612/945495565435830323/155_2.png?width=812&amp;height=1209)![圖片](https://media.discordapp.net/attachments/825592691433668612/945495565884608562/155_3.png?width=812&amp;height=1209)
+*发布：陶子*
 
-[https://gettr.com/post/pw1l9a4fbb](https://gettr.com/post/pw1l9a4fbb)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-*编辑：东京樱花团/唯真不破小蜜蜂
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
