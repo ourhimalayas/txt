@@ -2,28 +2,28 @@
 ---
 
 
-## 视频|俄乌之战已开始 欧美普习无路可退
-` MOSvideo` [轉載自GNews](https://gnews.org/zh-hans/2048915/)
+## 有声|英国女王伊丽莎白中共病毒测试呈阳性
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2048986/)
 
-制作：香草山视频部
+配音：香草山巡管部– 文凯琳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间 2月20日，英国白金汉宫称，伊丽莎白女王的中共病毒测试呈阳性。伊丽莎白女王95岁高龄，目前的症状是轻微的感冒迹象。据悉，女王已接种三针中共病毒疫苗。 白金汉宫称，女王会继续接受医疗护理，遵循适当的专业指导，且本周内她将继续留在温莎城堡，处理一些轻度的工作。
 
-在2月20日大直播中，郭文贵先生爆料，普京和习近平曾经进行过一次长达两个半小时、仅通过翻译器沟通的绝密谈话。
+据悉，这已经是英王室成员再度感染。此前，英国王储查尔斯公爵及夫人相继被检测出中共病毒阳性，而且两人均已接种三针中共病毒疫苗。
 
-据悉，普习绝密谈话包括俄乌危机、台湾危机的应对方案，以及如何在危机中自保的对策。他们很清楚这次危机处理的成败，直接决定了二人独裁统治是否会被内部推翻。因此，二人决定建立生死政治军事联盟，企图发动战争来巩固他们的统治。
+文字版原文：[英国女王伊丽莎白中共病毒测试呈阳性](https://gnews.org/zh-hans/2042800/)
 
-郭先生透露，普京目前的处境跟习非常相似，他也急需一场战争来解决内部的政治和经济压力。俄乌危机、台湾危机的发生，实质上是普京和习近平个人的政治安全的需要。
+音频处理/发稿：Daxia
 
-现在俄乌局势的决策权不在普京手里，几方势力都在利用乌克兰角力。美欧在利用乌克兰整个国家的安全来消磨普习的意志。普习现在的处境进退维谷，不打，普习一定被内部推翻；打，普习一定会被全世界消灭。
-
-关于俄乌之战，郭先生指出，战争实际上已经从三天前，俄乌开炮就开始了。台湾也很快有动静。普习这次绝密的单独对话，决定了他们个人和全世界的命运。
-
-发稿：谐趣园
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
 **更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

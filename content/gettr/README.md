@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/22/2022 4:29 PM (UTC)`
+
+2月22号：尊敬的战友们好，这个普通的一个微信对话证明了中国比地狱还悲惨的过去七十年！😭😭😭😭😭😭😭😭😭😭😭😭😭😭😭😭😭
+![img](https://media.gettr.com/group19/getter/2022/02/22/16/2be3f9d7-aed3-343a-1f95-5a82529ff97f/3a2389fbd1f5275296b219952d1f762c.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@baoliaobaike 2/22/2022 12:06 PM (UTC)`
@@ -153,13 +160,6 @@ New Release ✨                                              Shop Now at www.gfa
 
 2/20/2022 Miles Guo: Vladimir Putin and Xi Jinping secretly discussed the strategies to cope with the US sanctions following the invasion of Ukraine and Taiwan - unrestricted cyberwarfare, space warfare, posing nuclear threats, releasing viruses, sending out refugees, exposing shocking scandals of the Western leaders, and decapitation strikes. It’s said Sean Lien has already been appointed as the CCP’s first Chief Executive of Taiwan.<br/><br/>2/20/2022 文贵直播：普习密谋如何应对打乌克兰和台湾后的美国制裁 - 网络超限战、太空战、核威慑、继续放毒、难民策略、爆西方领导人的猛料、斩首行动；据说连胜文已是内定的台湾第一届特首<br/>
 ![img](https://media.gettr.com/group20/getter/2022/02/21/06/926447f4-2f8f-7b01-0521-d665e73c379f/out.jpg)
-
----
-
-`@miles 2/21/2022 6:07 AM (UTC)`
-
-2/20/2022 Miles Guo: What did Putin and Xi talk about during their secret meeting? All dictators are afraid of death, and both Xi and Putin are in poor health. How did they collude with each other in terms of money and internal politics?<br/><br/>2/20/2022 文贵直播：普习二人密会到底谈了啥？所有的独裁者都怕死，而普习二人身体也都不好，他俩在钱和内部政治上是咋勾兑的？<br/>
-![img](https://media.gettr.com/group42/getter/2022/02/21/06/d7162a81-b7de-cb02-84b0-385f8c2682b0/out.jpg)
 
 ---
 
