@@ -2,11 +2,11 @@
 ---
 
 
-## 七哥金句：坚定信心，做好人
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2049879/)
+## 七哥金句：放下恐惧
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2049944/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句11-1-1-scaled.jpg)
-整理:雅典娜农场
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句16--scaled.jpg)
+整理：雅典娜农场
 发布：枫叶红了
 
  

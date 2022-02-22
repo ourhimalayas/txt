@@ -2,33 +2,39 @@
 ---
 
 
-## 闭关锁国两年 澳大利亚重开边境
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2048254/)
+## 加国省长杰森肯尼挑战特鲁多紧急法案
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2049068/)
 
-整理：Eileen（围剿维尼熊）
-编辑：Mohegayer K. Simon
+作者：日本东京方舟农场—Miyali7768(文玉)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月19日消息，针对联邦自由党实施”紧急情况法”以结束卡车司机对渥太华市中心的封锁，阿尔伯塔省省长杰森·肯尼在接受Postmedia独家采访时表示，联邦政府使用加拿大最强大的法律，在目前情况下是不合理的过度扩张，违反正当程序和”侵犯”省级管辖权。并表示对此深感厌恶，将在下周初，向渥太华联邦法院提出法律挑战，以结束总理特鲁多的任意和高压行动。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/dfef.png)编辑：Mohegayer K. Simon
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide10-3.jpeg)
 
+另外，联邦司法部长大卫·拉梅蒂此前在CTV上暗示，联邦调查局正在考虑冻结任何用信用卡向车队捐赠者账户。
 
-据德国之声中文网报道，新冠疫情爆发两年以来，澳大利亚一直是世界上防疫措施最为严格的国家之一。2020年3月，为了控制感染病例激增，澳大利亚颁布禁令，宣布对除本国居民外的所有人关闭边境，本国公民在未获免疫力前也不得出境。
+肯尼认为，如果特鲁多派冻结其政治对手的财政得逞而逍遥法外，允许联邦政府利用《紧急情况法》来履行普通警察职能骚扰对手，超越并篡夺加拿大各省执法的属地管辖权，这将为未来树立一个危险的先例。
 
-本周一，该国宣布向已接种疫苗的国际游客重新开放边境。在悉尼和墨尔本两个国际机场，又出现了亲朋好友久别重逢的欢呼场面。一架来自洛杉矶的澳航航班于当地时间凌晨6：20抵达悉尼机场，随后来自东京、温哥华和新加坡的航班也陆续到达。
+肯尼代理律师将要求法官暂停使用该紧急法案。
 
-澳大利亚航空公司首席执行官乔伊斯（Alan Joyce）表示，澳航预计本周就会有超过14000名乘客飞往澳大利亚。对于受到疫情重创的澳大利亚旅游业来说，复苏将会是一个漫长的过程。
+参考链接：
+1.[https://gettr.com/comment/cow1g04ffb](https://gettr.com/comment/cow1g04ffb)
+2. [https://edmontonsun.com/opinion/columnists/gunter-alberta-premier-jason-kenney%E3%80%82](https://edmontonsun.com/opinion/columnists/gunter-alberta-premier-jason-kenney%E3%80%82)
 
-澳大利亚旅游部长丹·特汉（Dan Tehan）身着写着“欢迎回来”字样的T恤来到墨尔本机场。疫情前中国人是澳大利亚最大的游客群体，但由于中共继续执行严格的“清零”政策，吸引中国游客前来澳大利亚仍将困难重重。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-资料来源：[https://www.dw.com](https://www.dw.com)
+总编：Zion文恩
+编辑：静言
+校正/发稿：谐趣园
 
-*发布：tianzhihuan*
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

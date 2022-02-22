@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：要把握住机会
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2049927/)
+## 七哥金句：我们容易忘记痛苦
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2050021/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句14--scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句1-1.png)
 整理：雅典娜农场
 发布：枫叶红了
 

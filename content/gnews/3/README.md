@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：放下恐惧
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2049944/)
+## 七哥金句：各扫门前雪有道理吗？
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2050047/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句16--scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句3-1.png)
 整理：雅典娜农场
 发布：枫叶红了
 
