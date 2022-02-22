@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：共产党的帮凶&#8211;国际组织
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2044635/)
+## 七哥金句：无论如何新中国联邦都是受益者
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2044662/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句1.006.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句2.13.222-2.jpg)
 整理：雅典娜农场
 发布：枫叶红了
 

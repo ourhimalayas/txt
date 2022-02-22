@@ -15,86 +15,86 @@
 
 ---
 
-### [2/22/2022日本快讯：由于乌克兰局势，黄金期货创下每克7,040日元的新高；在江东区，90%的家长对儿童接种疫苗感到担忧](/content/gnews/1/README.md)
+### [七哥金句：不要把你的善变成你的执着](/content/gnews/1/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥金句：行善不问结果](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
+
+### [有声|谷爱凌事件对华人的负面影响深远](/content/gnews/3/README.md)
+ ` MOSREC`
+
+### [七哥金句：从冬奥会你能看到的](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [2/22/2022日本快讯：由于乌克兰局势，黄金期货创下每克7,040日元的新高；在江东区，90%的家长对儿童接种疫苗感到担忧](/content/gnews/5/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [大直播后记：关于目前的时事以及新中国联邦的实力](/content/gnews/2/README.md)
+### [七哥金句：无论如何新中国联邦都是受益者](/content/gnews/6/README.md)
  ` 雅典娜GNotes`
 
-### [七哥金句：还是好人多](/content/gnews/3/README.md)
+### [大直播后记：关于目前的时事以及新中国联邦的实力](/content/gnews/7/README.md)
  ` 雅典娜GNotes`
 
-### [有声|研究证实低频辐射与中共病毒感染之间的联系](/content/gnews/4/README.md)
+### [七哥金句：还是好人多](/content/gnews/8/README.md)
+ ` 雅典娜GNotes`
+
+### [有声|研究证实低频辐射与中共病毒感染之间的联系](/content/gnews/9/README.md)
  ` MOSREC`
 
-### [大直播后记：为何中国永远不会出现阿比比事件？](/content/gnews/5/README.md)
+### [大直播后记：为何中国永远不会出现阿比比事件？](/content/gnews/10/README.md)
  ` 雅典娜GNotes`
 
-### [七哥金句：共产党的帮凶&#8211;国际组织](/content/gnews/6/README.md)
+### [七哥金句：共产党的帮凶&#8211;国际组织](/content/gnews/11/README.md)
  ` 雅典娜GNotes`
 
-### [台外交部长：为避免国内危机中共可能随时引发台海冲突](/content/gnews/7/README.md)
+### [台外交部长：为避免国内危机中共可能随时引发台海冲突](/content/gnews/12/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [七哥金句：最大的骗局&#8211;银行](/content/gnews/8/README.md)
+### [七哥金句：最大的骗局&#8211;银行](/content/gnews/13/README.md)
  ` 雅典娜GNotes`
 
-### [2018年8月6日晚上：文贵致王健夫人及兄王伟先生的提示！法国这个与王健一起最后晚餐的女人！](/content/gnews/9/README.md)
+### [2018年8月6日晚上：文贵致王健夫人及兄王伟先生的提示！法国这个与王健一起最后晚餐的女人！](/content/gnews/14/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [2/20/2022 文贵直播：大师还预测中共某最高层官员将遭遇大量突发事件、命不久矣，而后彭帅事件爆发；习下令让彭帅在冬奥会后消失](/content/gnews/10/README.md)
+### [2/20/2022 文贵直播：大师还预测中共某最高层官员将遭遇大量突发事件、命不久矣，而后彭帅事件爆发；习下令让彭帅在冬奥会后消失](/content/gnews/15/README.md)
  ` 秘密翻译组-北美组`
 
-### [中共又搞扯淡药！援港“金花清感颗粒”贵”连花清瘟”约两倍！](/content/gnews/11/README.md)
+### [中共又搞扯淡药！援港“金花清感颗粒”贵”连花清瘟”约两倍！](/content/gnews/16/README.md)
  ` 蓝莲花农场`
 
-### [七哥金句：人心一旦没有信仰控制，比魔还魔](/content/gnews/12/README.md)
+### [七哥金句：人心一旦没有信仰控制，比魔还魔](/content/gnews/17/README.md)
  ` 雅典娜GNotes`
 
-### [中共使用机器人和虚假帐号影响冬奥会讨论](/content/gnews/13/README.md)
+### [中共使用机器人和虚假帐号影响冬奥会讨论](/content/gnews/18/README.md)
  ` GTV新聞訪談`
 
-### [七哥金句：大卡车发起人](/content/gnews/14/README.md)
- ` 雅典娜GNotes`
-
-### [七哥金句：大卡车运动的本质](/content/gnews/15/README.md)
- ` 雅典娜GNotes`
-
-### [奥运会不谈政治？中共自打脸](/content/gnews/16/README.md)
- ` GTV新聞訪談`
-
-### [英首相：若西方未能支持乌克兰 将危及台湾](/content/gnews/17/README.md)
- ` GTV新聞訪談`
-
-### [FCCC声明：北京冬奥外媒记者遭身体攻击和网暴](/content/gnews/18/README.md)
+### [FCCC声明：北京冬奥外媒记者遭身体攻击和网暴](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|从单伟建的履历看社会制度与人性的关系(三)](/content/gnews/19/README.md)
+### [有声|从单伟建的履历看社会制度与人性的关系(三)](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [英国女王新冠检测呈阳性，症状类似轻微感冒](/content/gnews/20/README.md)
+### [英国女王新冠检测呈阳性，症状类似轻微感冒](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [有声|一人破产成就无数亿万富豪](/content/gnews/21/README.md)
+### [有声|一人破产成就无数亿万富豪](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [北京冬奥会对日本企业的影响](/content/gnews/22/README.md)
+### [北京冬奥会对日本企业的影响](/content/gnews/23/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [有声|说说货币那些事儿5-通货膨胀、通货紧缩与信用扩张](/content/gnews/23/README.md)
+### [有声|说说货币那些事儿5-通货膨胀、通货紧缩与信用扩张](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [加拿大已经沦陷](/content/gnews/24/README.md)
+### [加拿大已经沦陷](/content/gnews/25/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [中共在毒疫苗副作用爆发后强推毒疫苗通行证更显邪恶](/content/gnews/25/README.md)
+### [中共在毒疫苗副作用爆发后强推毒疫苗通行证更显邪恶](/content/gnews/26/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [监督警察的“警察”，安大略省特别调查组（SIU）介入，调查铁蹄践踏妇女事件](/content/gnews/26/README.md)
+### [监督警察的“警察”，安大略省特别调查组（SIU）介入，调查铁蹄践踏妇女事件](/content/gnews/27/README.md)
  ` 温哥华圆成农场🇨🇦`
-
-### [有声|欧洲药管局登记的疫苗副作用报告超150万份](/content/gnews/27/README.md)
- ` MOSREC`
 
 ### [中日财经爆┃乌克兰紧张局势导致黄金价格飞涨](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
