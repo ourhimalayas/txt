@@ -2,19 +2,22 @@
 ---
 
 
-## 2022年2月22日，全球中共病毒疫情情况汇总
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2049501/)
+## 老师不拜金谋生，学生上学再不看钱的脸色
+` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2049548/)
 
-制作：DT新闻组
+作者：关山月
+编辑发稿：am夏天
+德国纽伦堡正义农场
 
-**中共的杀戮还在继续……**
+联邦教育展宏图，先取共匪百年毒
+至此求学不拜金，贤才能匠竞相出​
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-22-at-19.39.48.png)
+普金侵乌娶新人，习猪台海欲丧魂
+世纪两贼​出横祸，爆料革命赢无穷​
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/5F0DDFDB-4145-4350-A4E8-28423B0D347E.jpg)
-
-发稿：信心的选择
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-7.jpeg)
-
+俄爹东欧一声吼，习猪入海世人愁
+不知共匪谁送丧，漂洋过海葬水沟
+![](https://assets.gnews.org/wp-content/uploads/2022/02/德农二维码-30.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

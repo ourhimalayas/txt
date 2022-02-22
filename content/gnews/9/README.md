@@ -2,12 +2,18 @@
 ---
 
 
-## 2月22日勿忘香港（图片1-4）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2049500/)
+## 2022年2月22日，全球中共病毒疫情情况汇总
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2049501/)
 
-设计 五月花农场 企鹅
-![](https://assets.gnews.org/wp-content/uploads/2022/02/9CF5FC72-8CCF-49E1-A8CA-77DC7A4C029E.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/AA9050B0-2572-445D-8855-FA0D33FD3F25.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/E59B1EAB-1ABC-402A-A477-88466419666C.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/8D4BAEE1-D646-4419-9532-AA94B8FEBA95.jpeg)
-发布：水涨船高
+制作：DT新闻组
+
+**中共的杀戮还在继续……**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/5F0DDFDB-4145-4350-A4E8-28423B0D347E.jpg)
+
+发稿：信心的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-7.jpeg)
 
  
 

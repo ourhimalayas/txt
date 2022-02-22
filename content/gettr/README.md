@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/22/2022 8:49 PM (UTC)`
+
+2月22日：共产党，这一群流氓开始自我毁灭……［徐州“铁链女”（八孩母）的悲惨遭遇引起全网关注。江苏成立调查组后开始删帖抓人。但网民表示：“堵不住的悠悠众口，压不下的词条热搜。”截至22日，八孩女的微博话题阅读量已高达48.8亿次。］冬奥会能结束吗？永远结束不了，直到共产党彻底被消灭为止……
+![img](https://media.gettr.com/group7/getter/2022/02/22/20/b5066022-1745-a249-a069-256d0dfc7d5c/out.jpg)
+
+---
+
 `@miles 2/22/2022 4:29 PM (UTC)`
 
 2月22号：尊敬的战友们好，这个普通的一个微信对话证明了中国比地狱还悲惨的过去七十年！😭😭😭😭😭😭😭😭😭😭😭😭😭😭😭😭😭
@@ -153,13 +160,6 @@ New Release ✨                                              Shop Now at www.gfa
 
 2/20/2022 Miles Guo: Why do Russia and the CCP want to form a partnership? The alliance between the CCP and Russia will bring disasters to the world. Russia and the CCP may change the trajectory of human history once again!<br/><br/>2/20/2022 文贵直播：俄罗斯和中共为什么要成为伙伴关系？中俄联手将是世界的灾难！俄罗斯和中共可能会再次改变人类历史走向！<br/>
 ![img](https://media.gettr.com/group47/getter/2022/02/21/06/5dc65723-24c0-5781-78c2-08a8297385fa/out.jpg)
-
----
-
-`@miles 2/21/2022 6:14 AM (UTC)`
-
-2/20/2022 Miles Guo: Vladimir Putin and Xi Jinping secretly discussed the strategies to cope with the US sanctions following the invasion of Ukraine and Taiwan - unrestricted cyberwarfare, space warfare, posing nuclear threats, releasing viruses, sending out refugees, exposing shocking scandals of the Western leaders, and decapitation strikes. It’s said Sean Lien has already been appointed as the CCP’s first Chief Executive of Taiwan.<br/><br/>2/20/2022 文贵直播：普习密谋如何应对打乌克兰和台湾后的美国制裁 - 网络超限战、太空战、核威慑、继续放毒、难民策略、爆西方领导人的猛料、斩首行动；据说连胜文已是内定的台湾第一届特首<br/>
-![img](https://media.gettr.com/group20/getter/2022/02/21/06/926447f4-2f8f-7b01-0521-d665e73c379f/out.jpg)
 
 ---
 
