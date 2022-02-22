@@ -2,49 +2,27 @@
 ---
 
 
-## 有声|醒来，醒来
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2044667/)
+## 习近平盼发动战争挣脱被绞灭的宿命
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2044846/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+加拿大温哥华扬帆农场 硫酸羟氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/战友心声2-768x431-1.jpeg)传播真相
-对抗强权
-为了后代 醒来，醒来
-每一次传播
-是射向他们子弹
-把深层政府阴暗
-放在阳光下暴晒
-醒来醒来
-不再沉睡和冬眠
-动动手指
-仔细聆听
-告诉右舍左邻
-人们被蒙蔽欺骗
-把真相传播到
-世界各个角落
-让更多人们
-醒来，醒来
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/a-13-edited.jpg)图片来源：盖特
 
 
-文字版原文：[醒来，醒来](https://gnews.org/zh-hans/2042071/)
+据2月20日GTV文贵大直播消息，俄罗斯总统普京在出席北京冬奥会开幕式期间，与习近平面对面秘密会晤近2个多小时，商谈有关双方此前已约定好同时占领乌克兰和攻打台湾的战争计划。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+消息指出，普京和习近平都意识到各自在本国所面临的个人和政治危机，并认为唯有通过发动战争才能解决困境。对此，文贵先生表示，如果开战，美国必将采取最严厉的制裁，包括停止中俄两国的SWIFT和所有外汇交易。因此，中俄不得不抱团取暖，以此稳定双方在国内的独裁政权。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+相反，如果中俄不发动战争，那么欧美将利用乌克兰东扩以遏制俄罗斯，台湾也会因此谋求独立。其结果将是中俄内部会出现动乱，而普京和习近平本人也都将被政敌残酷清算。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+尽管中俄欲联手上演痞子政治，通过夺取乌克兰和台湾来对抗欧美，但普京和习近平目前在同时面临国内政敌伺机谋反和欧美联盟合力围剿的形势下，如鱼鲠在喉，骑虎难下。并成为[新中国联邦]提前彻底铲灭中共暴政的天赐良机。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+* * *
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+采编： Quitman 编辑撰稿，发稿：硫酸羟氯喹64
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+原文链接：[https://gettr.com/post/pvugmsd8d4](https://gettr.com/post/pvugmsd8d4)
 
  
 

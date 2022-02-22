@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：无论如何新中国联邦都是受益者
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2044662/)
+## 七哥金句：没有好的教育，社会是很可怕的
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2044830/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句2.13.222-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/记录者：Lucy.001.jpeg)
 整理：雅典娜农场
 发布：枫叶红了
 

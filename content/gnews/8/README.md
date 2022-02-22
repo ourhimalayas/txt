@@ -2,34 +2,42 @@
 ---
 
 
-## 俄罗斯承认乌克兰两个分离主义地区独立并下令维和
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2044756/)
+## 美国优化能源公司首发便携式“无人机灭霸”
+` 科海拾星` [轉載自GNews](https://gnews.org/zh-hans/2044927/)
 
-翻译：冰糖葫芦喵
+【署名】纽约香草山健身部—阿什莉
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+美国加利福尼亚州洛杉矶，当地时间2022年2月14 日，一家先进电子化战争解决方案提供商，宣布推出一款率先上市的固态、移动和紧凑型多发射高功率微波 (HPM) 系统。
 
-编辑与校对：冰糖葫芦喵、灭共文明
+![](https://assets.gnews.org/wp-content/uploads/2022/02/微波武器.jpg)
 
-**《华盛顿观察家报》2月21日报道，周一，克里姆林宫宣布，俄罗斯承认乌克兰东部两个由分离主义分子控制的地区独立，称为卢甘斯克人民共和国和顿涅茨克人民共和国。**
+该公司的系列产品利用固态、软件定义的高功率微波 (HPM) 技术，为一系列用户案例提供无与伦比的电子化武器作战效果。 破坏和摧毁无人机系统 (UAS) 中的关键电子元件。 通过精确和区域火力消灭单个无人机或整群无人机。
+新推出产品可实现一系列任务能力，并通过多种挂载选项最大限度地提高便携性，可直接进入威胁环境，从而完成多层防御系统。
+无人机战争始于 1973 年的赎罪日战争，当时以色列成功地使用有针对性的无人机引诱埃及发射防空导弹并耗尽其防空系统。
+无人机打击是由一架或多架无人作战飞行器或武器化商用无人机进行的空袭。目前，众所周知，美国、以色列、中国共产党、伊朗、意大利、印度、巴基斯坦、俄罗斯、土耳其和波兰可生产制造可操作的 UCAV（无人作战飞行器）。
+美国军用无人机因斩首塔利班领导人和伊朗革命卫队指挥官苏莱曼尼而闻名于世。
+近年来，中国共产党军方的无人机被用来在干预其他国家的地区政治冲突中，进行发动攻击使用。
+据新中国联邦爆料革命，郭文贵先生在此前直播中爆料称，中共军方在阿富汗、哈萨克斯坦等国政局混乱期间，曾在阿富汗、哈萨克斯坦等地进行无人机袭击，并策划无人机袭击拉美国家和台湾。
+在阿富汗，中共特种部队潜入阿富汗，部署进攻型无人机部队，为塔利班武装人员提供空中火力支援，这也是阿富汗政府士兵最终向塔利班投降的主要原因之一。
+美国便携式“无人机灭霸”的首次亮相，必将加强美国在未来区域战争中的空中防御能力，尤其可以更有效有力的消灭中共军方部署的大批无人机群。
 
-**随后，俄罗斯总统普京下令，俄罗斯军队在乌克兰东部两个分离地区进行所谓的“维和行动”。**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/普京1-e1645495493842.jpg)普京在克林姆林宫（图片来源：网络）
-周一下午，西方领导人迅速谴责了普京的承认，有几位领导人誓言要实施更多制裁。
+[https://www.epirusinc.com/news-item/epirus-unveils-portable-hpm-leonidas-pod-expanding-advanced-electronic-warfare-product-portfolio https://gnews.org/1473085/](https://www.epirusinc.com/news-item/epirus-unveils-portable-hpm-leonidas-pod-expanding-advanced-electronic-warfare-product-portfolio%20https://gnews.org/1473085/%20https://gnews.org/659534/)
 
-周一早些时候，克里姆林宫的消息传出后，整个世界都在等待普京是否下达入侵乌克兰的命令，尽管总统乔-拜登说他认为俄罗斯领导人已经做出了军事入侵的选择。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/普京2.jpg)图片来源：网络。
-**美国国务卿安东尼-布林肯说：”这一决议的颁布将进一步破坏乌克兰的主权和领土完整，构成对国际法的严重违反，**使人们进一步质疑俄罗斯表示的继续参与外交以**实现和平解决这一危机的承诺，并需要美国与我们的盟国和伙伴充分协调，作出迅速和坚定的反应。**
+[https://gnews.org/659534/](https://www.epirusinc.com/news-item/epirus-unveils-portable-hpm-leonidas-pod-expanding-advanced-electronic-warfare-product-portfolio%20https://gnews.org/1473085/%20https://gnews.org/659534/)
 
-周一下午，白宫新闻秘书珍·普萨基说，**拜登总统将发布行政命令，禁止美国在这两个分离地区的任何投资。**
+【编辑】文真
 
-她还说，**这份行政命令还将授权对任何决心在乌克兰这些地区活动的人实施制裁。**国务院和财政部很快会公布更多细节。**美国还将很快宣布针对俄罗斯**今天公然违反国际承诺**的进一步措施。**
+校对/发稿：菩提树
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-10.png)
+**更多资讯，更多关注**
 
-**新闻链接：**
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[Putin orders ‘peacekeeping operation’ in two breakaway eastern Ukrainian regions | Washington Examiner](https://www.washingtonexaminer.com/news/putin-orders-peacekeeping-operation-in-two-breakaway-eastern-ukrainian-regions)
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[Russia to recognize two separatist-held regions in eastern Ukraine | Washington Examiner](https://www.washingtonexaminer.com/news/russia-to-recognize-two-separatist-held-regions-in-eastern-ukraine)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

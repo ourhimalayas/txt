@@ -2,13 +2,13 @@
 ---
 
 
-## 七哥金句：还是好人多
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2044650/)
+## 日本邮政暂停到乌克兰的空邮和特快专递
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2044791/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句1.007.jpeg)
-整理：雅典娜农场
-发布：枫叶红了
-
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2._22-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

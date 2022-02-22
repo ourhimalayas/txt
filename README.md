@@ -15,173 +15,173 @@
 
 ---
 
-### [COVID-19 最新情报｜屡次被揭疫苗真相 苏格兰宣布停止公示与COVID-19疫苗有关的统计数据](/content/gnews/1/README.md)
- ` 關注組`
+### [2018-8-6文贵致王健夫人及兄王伟先生的提示！法国这个与王健一起最后晚餐的女人！](/content/gnews/1/README.md)
+ ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [七哥金句：走向人生目标需要的过程](/content/gnews/2/README.md)
+### [七哥金句：破产也不尽是坏事](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [七哥金句：没有好的教育，社会是很可怕的](/content/gnews/3/README.md)
- ` 雅典娜GNotes`
-
-### [大直播后记：湖南女战友为七哥决斗](/content/gnews/4/README.md)
- ` 雅典娜GNotes`
-
-### [日本邮政暂停到乌克兰的空邮和特快专递](/content/gnews/5/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [特鲁多欲对反抗疫苗暴政的平民“赶尽杀绝”](/content/gnews/6/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [七哥金句：信自己该信的，做自己该做的](/content/gnews/7/README.md)
- ` 雅典娜GNotes`
-
-### [俄罗斯承认乌克兰两个分离主义地区独立并下令维和](/content/gnews/8/README.md)
- ` 蓝莲花农场`
-
-### [七哥金句：不要把你的善变成你的执着](/content/gnews/9/README.md)
- ` 雅典娜GNotes`
-
-### [七哥金句：行善不问结果](/content/gnews/10/README.md)
- ` 雅典娜GNotes`
-
-### [有声|谷爱凌事件对华人的负面影响深远](/content/gnews/11/README.md)
- ` MOSREC`
-
-### [七哥金句：从冬奥会你能看到的](/content/gnews/12/README.md)
- ` 雅典娜GNotes`
-
-### [有声|醒来，醒来](/content/gnews/13/README.md)
- ` MOSREC`
-
-### [2/22/2022日本快讯：由于乌克兰局势，黄金期货创下每克7,040日元的新高；在江东区，90%的家长对儿童接种疫苗感到担忧](/content/gnews/14/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [七哥金句：无论如何新中国联邦都是受益者](/content/gnews/15/README.md)
- ` 雅典娜GNotes`
-
-### [大直播后记：关于目前的时事以及新中国联邦的实力](/content/gnews/16/README.md)
- ` 雅典娜GNotes`
-
-### [七哥金句：还是好人多](/content/gnews/17/README.md)
- ` 雅典娜GNotes`
-
-### [有声|研究证实低频辐射与中共病毒感染之间的联系](/content/gnews/18/README.md)
- ` MOSREC`
-
-### [大直播后记：为何中国永远不会出现阿比比事件？](/content/gnews/19/README.md)
- ` 雅典娜GNotes`
-
-### [台外交部长：为避免国内危机中共可能随时引发台海冲突](/content/gnews/20/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [2/20/2022 文贵直播：大师还预测中共某最高层官员将遭遇大量突发事件、命不久矣，而后彭帅事件爆发；习下令让彭帅在冬奥会后消失](/content/gnews/21/README.md)
+### [2/21/2022 文贵盖特：在丰县有几十万被绑架的女性，东北化肥价格暴涨，中共花老百姓十几万亿人民币办冬奥会，除了污染环境啥都没改变，但中共却把一切都怪罪给美国人](/content/gnews/3/README.md)
  ` 秘密翻译组-北美组`
 
-### [中共又搞扯淡药！援港“金花清感颗粒”贵”连花清瘟”约两倍！](/content/gnews/22/README.md)
+### [七哥金句：共产党没那么强大](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥金句：佛祖菩萨说的一句话](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥金句：我用什么保命，保财，报仇？](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [港闻｜走资还是缺钱？亲共艺人容祖儿频繁亏本减持物业引外界猜测](/content/gnews/7/README.md)
+ ` 關注組`
+
+### [美国优化能源公司首发便携式“无人机灭霸”](/content/gnews/8/README.md)
+ ` 科海拾星`
+
+### [灭共者之郭氏情报站（28）2022/02/20 文贵大直播](/content/gnews/9/README.md)
+ ` MOS Designer香草山设计部`
+
+### [以色列医生斥责特鲁多信口雌黄](/content/gnews/10/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [七哥金句：GTV是王](/content/gnews/11/README.md)
+ ` 雅典娜GNotes`
+
+### [COVID-19 最新情报｜屡次被揭疫苗真相 苏格兰宣布停止公示与COVID-19疫苗有关的统计数据](/content/gnews/12/README.md)
+ ` 關注組`
+
+### [习近平盼发动战争挣脱被绞灭的宿命](/content/gnews/13/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [七哥金句：走向人生目标需要的过程](/content/gnews/14/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥金句：没有好的教育，社会是很可怕的](/content/gnews/15/README.md)
+ ` 雅典娜GNotes`
+
+### [大直播后记：湖南女战友为七哥决斗](/content/gnews/16/README.md)
+ ` 雅典娜GNotes`
+
+### [日本邮政暂停到乌克兰的空邮和特快专递](/content/gnews/17/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [特鲁多欲对反抗疫苗暴政的平民“赶尽杀绝”](/content/gnews/18/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [七哥金句：信自己该信的，做自己该做的](/content/gnews/19/README.md)
+ ` 雅典娜GNotes`
+
+### [俄罗斯承认乌克兰两个分离主义地区独立并下令维和](/content/gnews/20/README.md)
  ` 蓝莲花农场`
 
-### [FCCC声明：北京冬奥外媒记者遭身体攻击和网暴](/content/gnews/23/README.md)
+### [七哥金句：不要把你的善变成你的执着](/content/gnews/21/README.md)
+ ` 雅典娜GNotes`
+
+### [有声|谷爱凌事件对华人的负面影响深远](/content/gnews/22/README.md)
+ ` MOSREC`
+
+### [有声|醒来，醒来](/content/gnews/23/README.md)
+ ` MOSREC`
+
+### [大直播后记：关于目前的时事以及新中国联邦的实力](/content/gnews/24/README.md)
+ ` 雅典娜GNotes`
+
+### [有声|研究证实低频辐射与中共病毒感染之间的联系](/content/gnews/25/README.md)
+ ` MOSREC`
+
+### [台外交部长：为避免国内危机中共可能随时引发台海冲突](/content/gnews/26/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|从单伟建的履历看社会制度与人性的关系(三)](/content/gnews/24/README.md)
+### [2/20/2022 文贵直播：大师还预测中共某最高层官员将遭遇大量突发事件、命不久矣，而后彭帅事件爆发；习下令让彭帅在冬奥会后消失](/content/gnews/27/README.md)
+ ` 秘密翻译组-北美组`
+
+### [FCCC声明：北京冬奥外媒记者遭身体攻击和网暴](/content/gnews/28/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [有声|从单伟建的履历看社会制度与人性的关系(三)](/content/gnews/29/README.md)
  ` MOSREC`
 
-### [英国女王新冠检测呈阳性，症状类似轻微感冒](/content/gnews/25/README.md)
+### [英国女王新冠检测呈阳性，症状类似轻微感冒](/content/gnews/30/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [北京冬奥会对日本企业的影响](/content/gnews/26/README.md)
+### [北京冬奥会对日本企业的影响](/content/gnews/31/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [有声|说说货币那些事儿5-通货膨胀、通货紧缩与信用扩张](/content/gnews/27/README.md)
- ` MOSREC`
-
-### [加拿大已经沦陷](/content/gnews/28/README.md)
+### [加拿大已经沦陷](/content/gnews/32/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [中共在毒疫苗副作用爆发后强推毒疫苗通行证更显邪恶](/content/gnews/29/README.md)
+### [中共在毒疫苗副作用爆发后强推毒疫苗通行证更显邪恶](/content/gnews/33/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [监督警察的“警察”，安大略省特别调查组（SIU）介入，调查铁蹄践踏妇女事件](/content/gnews/30/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [中日财经爆┃乌克兰紧张局势导致黄金价格飞涨](/content/gnews/31/README.md)
+### [中日财经爆┃乌克兰紧张局势导致黄金价格飞涨](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [法国外长称：为维护台海稳定 已完成对中共采取行动的准备](/content/gnews/32/README.md)
+### [法国外长称：为维护台海稳定 已完成对中共采取行动的准备](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆┃中共国第一火锅店疯狂扩展 市值跌去3700亿港元](/content/gnews/33/README.md)
+### [中日财经爆┃中共国第一火锅店疯狂扩展 市值跌去3700亿港元](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [马克龙与俄乌领袖通话 东欧多国要求制裁莫斯科](/content/gnews/34/README.md)
+### [马克龙与俄乌领袖通话 东欧多国要求制裁莫斯科](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [每日快报：加拿大将根据紧急情况法永久冻结资产](/content/gnews/35/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [墨西哥当局突袭抓捕过境非法移民](/content/gnews/36/README.md)
+### [瑞士信贷违反国际规则 长期为非法资金开绿灯](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [瑞士信贷违反国际规则 长期为非法资金开绿灯](/content/gnews/37/README.md)
+### [不干人事才能交差 民不满“锁链女”调查组：没干一件人事](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [不干人事才能交差 民不满“锁链女”调查组：没干一件人事](/content/gnews/38/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [马耳他新冠疫苗超高接种率以后，达到了新冠病毒破纪录感染率](/content/gnews/40/README.md)
+ ` xiaobaige`
 
-### [教育是走向文明的阶梯，新中国联邦重金打造Gedu（G教育）](/content/gnews/39/README.md)
+### [教育是走向文明的阶梯，新中国联邦重金打造Gedu（G教育）](/content/gnews/41/README.md)
  ` YALUN 亚伦`
 
-### [俄罗斯已拟好将被处决的乌克兰人黑名单](/content/gnews/40/README.md)
+### [俄罗斯已拟好将被处决的乌克兰人黑名单](/content/gnews/42/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [新中国联邦的教育蓝图](/content/gnews/41/README.md)
+### [新中国联邦的教育蓝图](/content/gnews/43/README.md)
  ` NFSC News`
 
-### [中共洗脑教育是国人悲惨命运的根源](/content/gnews/42/README.md)
+### [中共洗脑教育是国人悲惨命运的根源](/content/gnews/44/README.md)
  ` NFSC News`
 
-### [爆料革命承诺救助 “铁链女” 爆料人](/content/gnews/43/README.md)
+### [爆料革命承诺救助 “铁链女” 爆料人](/content/gnews/45/README.md)
  ` NFSC News`
 
-### [经济战：卡车司机从柴油，数字货币到通往自由的道路](/content/gnews/44/README.md)
+### [经济战：卡车司机从柴油，数字货币到通往自由的道路](/content/gnews/46/README.md)
  ` 全球G系列咨服群`
 
-### [美国卡车司机受到加拿大兄弟们的启发，向华盛顿特区进发](/content/gnews/45/README.md)
+### [美国卡车司机受到加拿大兄弟们的启发，向华盛顿特区进发](/content/gnews/47/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美国航空运输业志愿团体反对中共病毒疫苗强制接种政策](/content/gnews/46/README.md)
+### [美国航空运输业志愿团体反对中共病毒疫苗强制接种政策](/content/gnews/48/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共统计局数据造假 借冬奥会洗钱骗钱](/content/gnews/47/README.md)
+### [中共统计局数据造假 借冬奥会洗钱骗钱](/content/gnews/49/README.md)
  ` NFSC News`
 
-### [NFSC新闻、G|TV新闻访谈简报|2022年2月21日早](/content/gnews/48/README.md)
+### [NFSC新闻、G|TV新闻访谈简报|2022年2月21日早](/content/gnews/50/README.md)
  ` 纽约香草山MOS01`
 
-### [为中共卖命一生 金无怠落得悲惨下场](/content/gnews/49/README.md)
+### [为中共卖命一生 金无怠落得悲惨下场](/content/gnews/51/README.md)
  ` NFSC News`
 
-### [谷爱凌事件对华人的负面影响深远](/content/gnews/50/README.md)
+### [谷爱凌事件对华人的负面影响深远](/content/gnews/52/README.md)
  ` NFSC News`
 
-### [俄若入侵乌克兰 英国将对其采取最严厉的经济制裁](/content/gnews/51/README.md)
+### [俄若入侵乌克兰 英国将对其采取最严厉的经济制裁](/content/gnews/53/README.md)
  ` 日本东京方舟农场`
 
-### [班农先生谈奥地利废除中共病毒种族隔离措施](/content/gnews/52/README.md)
+### [班农先生谈奥地利废除中共病毒种族隔离措施](/content/gnews/54/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [新中国联邦将确保司法媒体科学受监督的独立运行](/content/gnews/53/README.md)
+### [新中国联邦将确保司法媒体科学受监督的独立运行](/content/gnews/55/README.md)
  ` NFSC News`
 
-### [美国将中共国电子商务网站列入假冒伪劣产品的“恶名市场”名单](/content/gnews/54/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [美国及世界疫情简报（02-21-2022）](/content/gnews/55/README.md)
+### [美国及世界疫情简报（02-21-2022）](/content/gnews/56/README.md)
  ` 波士顿五月花农场`
-
-### [尸检显示：青少年接种COVID疫苗实际上死于“心碎综合症”（2/3）](/content/gnews/56/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [中国梦中的“波坦金村” 北京冬奥会如期圆满成功](/content/gnews/57/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

@@ -2,30 +2,12 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年2月21日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2043453/)
+## 美国航空运输业志愿团体反对中共病毒疫苗强制接种政策
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2043531/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-20-at-4.14.11-PM.png)
+02/16/2022 乔希·约德：美国航空运输业志愿团体提供给美国人民一个平台和方式让他们能坚持反击到底, 让他们的声音能被听到。美国运输业志愿团体在与航空公司的中共病毒疫苗强制接种政策的斗争中取得了很大的成功。他们支持到华盛顿特区的美国人大声疾呼，表达他们对疫苗接种规定的不满。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-20.png)
-文章仅代表作者本人观点，与Gnews无关
-
-视频参看：
-[2022.02.21早 《NFSC新闻》](https://gtv.org/video/id=6213938108ba8a07b1a0ec76)
-[2022.02.21早 G|TV《新闻访谈》](https://gtv.org/video/id=62139b3608ba8a07b1a0efc6)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-3.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

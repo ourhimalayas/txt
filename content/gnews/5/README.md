@@ -2,13 +2,13 @@
 ---
 
 
-## 日本邮政暂停到乌克兰的空邮和特快专递
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2044791/)
+## 七哥金句：佛祖菩萨说的一句话
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2044949/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2._22-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/记录者：馨馨--scaled.jpg)
+整理：雅典娜农场
+发布：枫叶红了
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

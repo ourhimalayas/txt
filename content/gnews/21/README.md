@@ -2,10 +2,12 @@
 ---
 
 
-## 2/20/2022 文贵直播：大师还预测中共某最高层官员将遭遇大量突发事件、命不久矣，而后彭帅事件爆发；习下令让彭帅在冬奥会后消失
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2044611/)
+## 七哥金句：不要把你的善变成你的执着
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2044751/)
 
-秘密翻译组-北美组
+![](https://assets.gnews.org/wp-content/uploads/2022/02/记录者：GHope-2-scaled.jpg)
+整理：雅典娜农场
+发布：枫叶红了
 
  
 
