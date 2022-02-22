@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：我们容易忘记痛苦
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2050021/)
+## 七哥金句：生命中有一样东西，让你获得痛快
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2050031/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句1-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句2-1.png)
 整理：雅典娜农场
 发布：枫叶红了
 

@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：谷爱凌事件的影响
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2049975/)
+## 七哥金句：人类正义和邪恶的较量
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2050001/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/金句记录：HomeL.001.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句-S1.jpg)
 整理：雅典娜农场
 发布：枫叶红了
 

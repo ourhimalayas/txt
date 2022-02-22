@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/22/2022 11:44 PM (UTC)`
+
+2月22号：这美女美乐美滋滋的人生……棒极了👏👏👏👏👏来来来……来来来来！
+![img](https://media.gettr.com/group42/getter/2022/02/22/23/8b56ec2b-0dae-4506-337d-8107b4ad120a/out.jpg)
+
+---
+
 `@miles 2/22/2022 10:09 PM (UTC)`
 
 2月20号这一刻即将到来……［川普刚刚进行了预测，在俄罗斯和乌克兰发生“灾难”后，中共“绝对”会谋求台湾<br/>川普形容中共的习近平、俄罗斯的普京是“孪生姐妹”。<br/>https://www.foxnews.com/politics/trump-china-taiwan-russia-ukraine］
@@ -152,13 +159,6 @@ New Release ✨                                              Shop Now at www.gfa
 
 2/20/2022 Miles Guo: Xi and Putin have joined forces to play their “hooligan politics”. Their ultimate goal is to destroy the US and Europe by taking over Ukraine and Taiwan. There is a shocking secret between Xi and Putin, who are intending to start a war and betting that the US will not dare to engage in it. The US needs to have a consistent long-term policy toward the CCP and Russia.<br/><br/>2/20/2022 文贵直播：习普联手上演痞子政治，最终目的是通过夺取乌克兰和台湾，干掉美国和欧洲；习普之间有惊天秘密，意图发动战争并赌美国不敢打；对中共国和俄罗斯，美国需要有长期一致的政策<br/>
 ![img](https://media.gettr.com/group29/getter/2022/02/21/10/94862fac-92f2-cf79-49bc-90d9a7b34e9d/out.jpg)
-
----
-
-`@miles 2/21/2022 10:19 AM (UTC)`
-
-2/20/2022 Miles Guo: The situation in Ukraine is irreversible. Putin became reticent after returning from Beijing, his personality has changed a lot, and he watched a lot of war movies in the past two years. The British Prime Minister threatens Putin with sanctions against the Russians in Britain, and a large number of Russian tycoons are in the UK and Southern France.<br/><br/>2/20/2022 文贵直播：乌克兰局势已无法挽回；普京从北京回去后变得沉默寡言，普京这几年性情大变、看了很多战争片；英首相以制裁在英俄罗斯人威胁普京，俄国有大量富豪在英国和南法
-![img](https://media.gettr.com/group48/getter/2022/02/21/10/520022f3-c0bb-a1e8-3ddc-9d420dade5ca/out.jpg)
 
 ---
 
