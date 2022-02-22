@@ -2,42 +2,44 @@
 ---
 
 
-## 安理会召开紧急会议，周二美国开启对俄罗斯新制裁
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2047374/)
+## 主要的封锁倡导者承认他弄错了
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2047773/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+**翻译： Jenny Ball**
 
-翻译/编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip主要的封锁倡导者承认他弄错了.png)图片来源：infowars.com
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/16-10.png)图片来源：德国之声
+马克·伍尔豪斯（Mark Woolhouse） 教授是“赛捷”（SAGE英国跨国企业软件公司) 的建模小组 SPI-M 的成员，该小组为英国政府提供有关封锁措施的建议。
 
+SAGE 因持续预测连边都不沾的世界末日 COVID 情景而臭名昭著，例如去年的警告，即 Omicron 在没有更严格的限制的情况下，每天可能在英国造成 6,000 人死亡。
 
-当地时间2月21日（周一）联合国安理会晚上在纽约举行了罕见的紧急会议，以商讨解决俄罗斯在乌克兰不断升级的军事部署问题。
+在一本名为《世界疯狂的一年》的新书中，伍尔豪斯对 SAGE 参与推动造成巨大破坏但只是延缓病毒传播的封锁措施表示遗憾。
 
-周一，这场酝酿已久的冲突进入了一个新阶段，当俄罗斯总统普京宣布俄将承认乌克兰东部两个分离地区为“独立共和国”，莫斯科将向这两个新“独立”的领土部署“维和部队”。
+“我们从 [2020 年 2 月] 开始就知道，更不用说 3 月了，封锁并不能解决问题。它只会拖延病毒，”伍尔豪斯说，并补充说，政府中似乎没有人认识到这一战略的失败。
 
-美国驻联合国大使格林菲尔德表示，普京的声明不仅对乌克兰构成直接威胁，而且对联合国其他所有主权成员国构成直接威胁。
+伍尔豪斯说：“全球对这一流行病的早期反应严重不足，”他补充说，世卫组织赞扬中共国采取严厉的**“ ****COVID**清零**”**方法，为世界各地发生类似灾难奠定了基调。
 
-格林菲尔德表示，美国将于周二公布对俄罗斯的新制裁，并敦促成员国对莫斯科施压，俄罗斯将承担严重后果。
+伍尔豪斯被问到为什么政府开始实施如此残酷的限制，似乎不考虑其后果。
 
-周一晚上[股票期货大幅下跌，而](https://www.cnbc.com/2022/02/21/stock-market-futures-open-to-close-news.html)国际[油价上涨](https://www.cnbc.com/2022/02/22/oil-prices-jump-as-tensions-between-russia-and-ukraine-escalate.html)，因为交易员继续关注日益加剧的紧张局势，尚不清楚美国即将对俄罗斯实施的制裁可能对金融市场或油价产生何种影响。
+伍尔豪斯说：“在任何阶段，甚至到了第二年，都没有对封锁造成的危害进行任何形式的分析。” “他们甚至都没考虑过要分析吗？我没有看到任何证据表明他们做这方面任何分析，这极为令人不安。”
 
-周一，总统乔拜登签署了一项行政命令，禁止美国人在所谓的顿涅茨克人民共和国或乌克兰卢甘斯克人民共和国地区进行新的投资、贸易和融资。
+早在 2020 年 4 月，SAGE 就收到信息确认封锁将“比病毒本身多耗费三倍的时间”，但几乎没有考虑到“**70 **岁以上的人的死亡风险至少是** 15 **岁以下的人的** 10,000 **倍**”**这一事实。
 
-这一行动是对普京宣布俄罗斯将承认乌克兰的两个分离地区为独立国家的回应。但白宫官员拒绝具体说明下一轮制裁将在周二进行的具体内容。
+政府随后向公众撒谎，声称该病毒“不歧视”，对所有人同样危险，这显然是不真实的。
 
-国务卿布林肯再次呼吁美国人立即离开乌克兰，并补充说安全局势仍然无法预测，可能会在没有任何通知的情况下恶化。
+“我听到 [官方] 的论点被讽刺为：每个人都会死，但至少在保护上是公平的，”伍尔豪斯说，并补充说，“**BBC **更是通过定期报道低风险人群个体的罕见悲剧，来渲染这种谎言，就好像这些极个别的悲剧是常规现象。”
 
-参考链接：[Ukraine Russia Crisis: New sanctions coming Tuesday (cnbc.com)](https://www.cnbc.com/2022/02/22/ukraine-russia-crisis-new-sanctions-coming-tuesday.html)
+然而，那些正确警告封锁会造成破坏的人，却被立即妖魔化、抹黑、取消和取消平台。那么，如果封锁倡导者一切都错了，他们会面临任何惩罚吗？
 
-***發布：***tianzhihuan
+**新闻来源**：[infowars.com][Prominent Lockdown Advocate Admits He Got it Wrong](https://www.infowars.com/posts/prominent-lockdown-advocate-admits-he-got-it-wrong/)
 
-**更多資訊，請關注：**
-[澳大利亞墨爾本雅典娜農場Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亞墨爾本雅典娜農場Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亞墨爾本雅典娜農場YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亞墨爾本雅典娜農場Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亞墨爾本雅典娜農場GTV直播壹台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+* * *
+
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-6.jpeg)
 
  
 
