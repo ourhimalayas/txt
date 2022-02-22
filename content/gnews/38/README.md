@@ -2,24 +2,36 @@
 ---
 
 
-## 港闻｜走资还是缺钱？亲共艺人容祖儿频繁亏本减持物业引外界猜测
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2044928/)
+## 加拿大警察掩盖姓名、徽章号，暴力对待和平抗议者
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2045052/)
 
-**撰文/ 港台前线｜发布日期/ 22/02/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/走資還是缺錢？親共藝人容祖兒頻繁虧本賣樓放租引外界猜測.jpg)
-**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-疫情下，百物腾贵，经济萧条，大部分人都面临生计挑战，但近年靠拥护中共而获得大陆市场青睐的乐坛天后容祖儿就逆势富贵，赚得朋满砵满，频频在社交媒体上晒出限量奢侈品，引起不少业界人士艳羡。不仅如此，一向钟情投资物业的容祖儿，连同妈妈不断增持本港物业，综合媒体报导，母女俩人至少手持约12个物业。
+整理/编辑：小鱼儿
 
-不过，本周伊始，香港01突然连爆两单容祖儿亏本减持物业的新闻，引发外界猜测，究竟容祖儿是看淡香港行情，准备走资北上还是突然缺钱。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/3-60.png)图片来源：CNA
 
-报导引述市场消息指，容祖儿及其母以公司名义持有的铜锣湾曦峦的低层A单位，实用面积465平方呎，最近以1,025万元售出，呎价约22,043元，帐面蚀约110万元，贬值近一成。 该单位2012年以近1,135万元购入，持货九年，之前主要用来收租。
 
-另外，容祖儿位于跑马地松柏新邨的一个四房大单位，亦被揭露近日减价16%，即每月9.5万元租出。松柏新邨位于司徒拔道43号，是香港东半山知名老牌豪宅之一，容祖儿于2009年以3,579万元买入，实用面积2,363平方呎，去年12月连车位放租时，每月租金叫价11.3万元。
+当地时间 2 月 21 日，据[自然新闻](https://www.naturalnews.com/)（Natural news）报道，加拿大在贾斯汀·特鲁多（Justin Trudeau）领导下迅速沦为专制政权。加拿大警方，除了使用马来击退和践踏示威者，还采取了隐藏身份的策略：掩盖他们的姓名和徽章号码。
 
-容祖儿返港度过农历新年后，上周就北上开工赚钱，目前正接受隔离，她在社交平台上载短片，抱怨隔离闷到发慌，只能打乒乓球自娱，但心情似乎不错。
+上周，特鲁多侮辱了卡车司机，声称他们与“纳粹党摇摆人”站在一起并反对加拿大，这导致反对党保守党的犹太成员、议员梅丽莎·兰茨曼要求他道歉。
 
-來源｜[香港01](https://www.hk01.com/%E5%9C%B0%E7%94%A2%E6%A8%93%E5%B8%82/738435/%E5%AE%B9%E7%A5%96%E5%85%92%E7%96%AB%E5%B8%82%E8%B3%A3%E6%A8%93-%E6%B2%BD%E6%9B%A6%E5%B7%92%E4%B8%80%E6%88%BF%E6%88%B6%E6%85%98%E8%9D%95110%E8%90%AC)
+特鲁多回应兰茨曼：“保守党成员可以与挥舞纳粹标志的人站在一起。”特鲁多拒绝道歉，并再次重申镇压抗议的措施是必要的。（援引每日邮报 ）
+
+特鲁多对“自由车队”卡车司机的反应，与他2020 年 5 月对持续的“黑人的命也是命”暴力事件的反应截然相反。（注：当时特鲁多及政府人员集体向此事件下跪道歉）
+
+面对暴政，新墨西哥州的共和党新生立法者、众议员伊薇特·赫雷尔表示，“我正在引入立法，暂时向受到本国政府迫害的无辜加拿大抗议者提供庇护。”
+
+参考新闻：[Tyranny spreads in Canada as police now cover names, badge numbers on uniforms to evade identification as they brutally assault peaceful protesters](https://www.naturalnews.com/2022-02-21-canadian-police-covering-names-badge-numbers-trucker-crackdown.html)
+
+发布：tianzhihuan
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

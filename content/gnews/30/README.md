@@ -2,33 +2,24 @@
 ---
 
 
-## 有声|日媒定义中共冬奥会
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2045114/)
+## 普京批准乌克兰亲俄地区独立并派兵驻扎
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2045152/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-当地时间2月18日，日媒对中共冬奥会做出了三个定义。
+撰稿：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2018.png)[图片来源](https://www3.nhk.or.jp/news/html/20211218/k10013392021000.html)
+22日，俄罗斯总统普京批准由乌克兰东部亲俄组织命名的顿涅茨克人民共和国和卢甘斯克人民共和国独立，并指示俄国防部派遣军队维护这些地区的和平。继乌克兰南部的克里米亚半岛之后，俄罗斯再次派军驻扎将增加对乌克兰政府和西方的压力。
 
-第一，本届冬奥会完全被政治操弄，彻底沦为由习近平和普京主导的、国际奥委会主席巴赫推波助澜的政治秀。如果国际奥委会不做出改变，那么所有体育竞技活动的未来都是悲哀和暗淡的。
+21日，这两个地区负责人要求普京承认其独立，同时考虑签订友好合作条约，以便提供军事援助。
 
-第二，本届冬奥会选在了一个降雪量极少的地方举办，运动场所以及周边地区大兴土木，本届冬奥会实质上，在通过建造场馆等牟取暴利。中共冬奥会是各大利益集团，共同策划的一场表演。
+普京同日召集国家安全委员会讨论批准亲俄地区的独立问题。随后，在向全国发表的电视讲话中表示，乌克兰政府未履行停火协议，对亲俄地区居民的袭击仍在继续，遂将批准亲俄地区独立。
 
-最后，本次冬奥会是中共妄图打破全世界对其包围圈的政治舞台。嘉宾特别指出，尽管整个中共国有56个民族，但中共还是在国旗传递和火炬传递，这两个最重要活动的最后一棒上，都选择了维吾尔人，这是用奥运会为自己肮脏丑陋的人权问题，进行洗地的丑陋方式。
+18日，亲俄派开始乘公共汽车将居民疏散到俄罗斯，称乌克兰军队的全面进攻迫在眉睫。
 
-文字版原文：[日媒定义中共冬奥会](https://gnews.org/zh-hans/2042799/)
+信息来源:[ウクライナ東部にロシア軍派遣へ　プーチン氏指示、「平和維持」名目](https://news.yahoo.co.jp/articles/6e32ae5a88f6ac82da3aa2a85921df88b1abe2f0)
 
-音频处理：Fei797
-发稿：Fei797
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

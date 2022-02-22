@@ -2,30 +2,45 @@
 ---
 
 
-## 英首相约翰逊宣布全面废除新冠病毒限制
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2045384/)
+## 让战友1.5亿币的战友投五百万买喜币千万及亿级先别进
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2045463/)
 
-撰稿：东京樱花团/文小白
+G-TV视频链接：[https://gtv.org/video/id=62125baa1408ee3a03a2516b](https://gtv.org/video/id=62125baa1408ee3a03a2516b)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/英首相约翰逊宣布全面废除新冠病毒限制.png)[图片来源](https://www.bbc.com/news/uk-politics-59707541)
+**郭文贵先生：**进来这个战友就是让给咱们战友一亿个币的那个战友，就他买的。他给我发个信息问：“七哥，我能不能进？”我说：“你愿进你就进，反正你不会赔。”我说完话落不到三分钟，五百万美元就砸进去了。另外一个战友给我发：“七哥，我要进几千万美元。”我说：“你千万别进啊，你可千万别进，几千万一下把价格弄太高不行。”
 
-根据每日新闻记者横山三加子22日来自伦敦的报道，当地时间21日，英国首相约翰逊宣布从24日起全面废除阳性患者的自主隔离等行为限制，对象为包括伦敦在内的，占人口总数80%的英格兰。约翰逊首相说，英国将“像对待流感等其他传染病一样对待新冠”，加速实现与新冠共存。
+我今天我现在直播，我喊一嗓子，我说：“兄弟，哪几个兄弟你进。”我可以告诉你们，马上4亿美元进来，马上，就在那搁着，马上“咔”就4亿到5亿美元进来，这马上就超过一百去，不止一百了，如果5亿美元进来的话可能就是一两百了，但是我不让他们进。
 
-在欧美等主要国家，英国是第一个全面废除限制的国家。约翰逊首相当天在英国下议院解释疫苗接种进展时称，“新冠不会突然消失，因此在很长一段时间内限制英国人民的自由，政府认为既不正确也没有必要。”
+这就是咱那个战友小试一把，就是他拿出一亿五千个币分给了战友，就是他这位先生，我们要感谢他，他现在在看直播。
 
-在英国，法律规定新冠检测呈阳性的人要在家自主隔离5天，24日起此法律将被废除。对感染接触者的追踪，对密切接触者的检测也将停止。
+字幕来源：[2022年2月4日《文贵大直播》全文字版](https://gnews.org/zh-hans/1961700/)
 
-从4月1日起，将停止向公众发放免费的新型冠状病毒检测试剂盒，转向重点关注老年人等重病高危人群。此外，在活动现场等地也不用出示新冠疫苗接种证明。
+编辑整理：Jacques；
 
-英国政府全面废除限制的原因，除了疫苗接种的普及和Omicron毒株的恶化率不高之外，经济活动的停滞也是原因之一。英国政府称，81% 的人已经在英格兰完成了第三次疫苗接种。21日英国新增感染人数约为3.8万人，感染后死亡仅15人。
+字幕文件制作：小满；
 
-信息来源：
+视频制作及上传：Cindy；
 
-[**英イングランド、コロナの規制を全て撤廃　ジョンソン首相が発表**](https://news.yahoo.co.jp/articles/482739e54e7e5edcdd40c5e20b530892d0a097e0)
+G-News发布：小满；
 
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

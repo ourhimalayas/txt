@@ -2,10 +2,22 @@
 ---
 
 
-## 2/21/2022 文贵盖特：在丰县有几十万被绑架的女性，东北化肥价格暴涨，中共花老百姓十几万亿人民币办冬奥会，除了污染环境啥都没改变，但中共却把一切都怪罪给美国人
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2044984/)
+## 特鲁多政府被世界经济论坛操控
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2045075/)
 
-秘密翻译组-北美组
+加拿大温哥华杨帆农场 枫叶快讯
+
+采编/编辑撰稿： 文明(添草灭共)            校对编辑：硫酸羟氯喹64
+![](https://cdn.discordapp.com/attachments/759954055299858513/945517010056531998/unknown.png)Image Credit:FABRICE COFFRINI/AFP via Getty Images
+据美国媒体【信息战】2月19日报道，加拿大保守党议员科林当天表示，由于【世界经济论坛】创始人施瓦布已公开承认该国政府内阁的大部分成员已被该组织渗透，因此特鲁多应该公布这些成员名单。 报道称，科林议员的言论完全有视频可查证。总理特鲁多本人曾与【世界经济论坛】头目施瓦布多次会面，并被后者赞扬其对该组织的忠诚度高于对加拿大联邦政府。此外，自由党内阁多名成员都与该组织有公开的联系。例如，财政部长弗里兰就担任【世界经济论坛】董事会的管理成员。
+
+有评论认为，自由党政府禁止公开讨论特鲁多与【世界经济论坛】之间存在明显利益冲突关系之举，是典型的中共式“独裁”。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：青青
+
+原文链接： [https://www.infowars.com/posts/video-canadian-mp-accused-of-spreading-disinformation-for-pointing-out-wefs-corrupt-influence-over-trudeaus-govt/](https://www.infowars.com/posts/video-canadian-mp-accused-of-spreading-disinformation-for-pointing-out-wefs-corrupt-influence-over-trudeaus-govt/)
 
  
 
