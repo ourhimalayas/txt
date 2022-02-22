@@ -2,31 +2,26 @@
 ---
 
 
-## 有声|一人破产成就无数亿万富豪
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2044513/)
+## 中共又搞扯淡药！援港“金花清感颗粒”贵”连花清瘟”约两倍！
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2044607/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-郭先生在2月16日的大直播中谈到，自己最开心的就是让贫困但有智慧的家庭都能过上好日子，并享受购买喜币带来的财富，彻底改变个人和家庭的命运。自己一个人的破产成就了无数亿万富豪，并有无数人愿倾囊相助，这在人类史上是从未出现过的事情！
+据香港01新闻2月22日报道，由于香港疫情严峻，中共派遣内地公司调配15万盒所谓的抗疫物资「金花清感颗粒」，为首批援港抗疫物资。金花清感颗粒较昂贵，一盒售价可高达116元，较「莲花清瘟」贵逾两倍多，而其医学文献亦相对较少。
 
-人类即将进入喜币时代，重塑“承诺就兑现，兑现就不能改变”的货币本质！就在郭先生宣布个人破产的同时，喜币价格不但不跌反而在涨，喜交所已成世界第四大交易所并将交易比特币等其它数字货币，加上H-Pay的推广和普及，H贷款、H抵押和数字银行的即将问世，以及不受第三方监管和掠夺的HDO与HCN的全球流通，且G系列产品的价值也时刻在涨，已让战友坐享几百亿美元财富的分配,迄今战友从喜币贴现已近7亿美元。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/0JiFlIrksyR_h8f8nPYOp9_Uq7CQQypSw1OS58NTkuc_副本.jpg)图片来源：香港01
 
-在疫苗灾难越来越深重、经济基本面越来越糟糕的世界面前，郭先生的个人破产让自己成为了真正的“无产阶级”，却让爆料革命战友成了这个星球上绝无仅有的“无苗有币族”,让很多破产和面临破产的人转身成为了富豪，让无数绝望的人有了希望，只因他们有一个共同的信仰：新中国联邦！
+中共抗疫招牌钟南山，曾经力推的莲花清瘟，让广大人民白花了许多冤枉钱而几乎没有啥效果，如今钟南山已被网友怒骂为“钟饱私囊，兽比南山”！既然莲花清瘟的抗议谎言已经破产，中共把首批援港的抗疫物资竟然换成了金花清感颗粒，而且是医学文献亦相对较少的，这样的药你敢吃吗？
 
-文字版原文：[一人破产成就无数亿万富豪](https://gnews.org/zh-hans/2039982/)
+从莲花清瘟到金花清感颗粒，几乎同样的套路，除了价格贵了两倍，具体的功效谁用谁知道了，估计又是谁说封谁嘴了！抗疫治疗药物请关注新中国联邦推荐，中共力推的都是扯淡！
 
-音频处理：Fei797
-发稿：Fei797
+新闻来源：[香港01](https://www.hk01.com/%E7%A4%BE%E6%9C%83%E6%96%B0%E8%81%9E/738614/%E9%A6%96%E6%AC%BE%E6%8F%B4%E6%B8%AF%E4%B8%AD%E8%97%A5-%E9%87%91%E8%8A%B1%E6%B8%85%E6%84%9F%E9%A1%86%E7%B2%92-%E8%B2%B4%E9%80%A3%E8%8A%B1%E6%B8%85%E7%98%9F%E7%B4%84%E5%85%A9%E5%80%8D-%E4%B8%AD%E9%86%AB%E7%A8%B1%E5%8F%AF%E5%8C%96%E7%97%B0)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+撰稿/发布：一叶知秋
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

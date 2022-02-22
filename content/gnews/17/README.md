@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：人心一旦没有信仰控制，比魔还魔
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2044600/)
+## 七哥金句：还是好人多
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2044650/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句1.004.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句1.007.jpeg)
 整理：雅典娜农场
 发布：枫叶红了
 

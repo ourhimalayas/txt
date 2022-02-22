@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：行善不问结果
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2044739/)
+## 七哥金句：走向人生目标需要的过程
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2044843/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/记录者：GHope--scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/记录者：Lucy.002-scaled.jpg)
 整理：雅典娜农场
 发布：枫叶红了
 

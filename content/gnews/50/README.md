@@ -2,29 +2,42 @@
 ---
 
 
-## 俄若入侵乌克兰 英国将对其采取最严厉的经济制裁
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2042494/)
+## 谷爱凌事件对华人的负面影响深远
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2042586/)
 
-**撰稿：日本东京方舟农场  幽蘭自得**
+作者：纽约香草山农场 – 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在2月18日大直播中，郭文贵先生透露，谷爱凌身份造假事件对海外华人造成严重的负面影响，引发了西方国家对华人的不信任。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-90.jpg)
+郭先生揭露，中共在十八大以前曾计划推出“华裔卡”，目的是企图将所有海外华人绑架到中共的战车之上。习近平掌权后，彻底停止了该计划，不允许海外华人拥有双重国籍。目前，中共大肆宣传“华裔卡”，是在集一国之力，掩盖谷爱凌的身份造假。
 
-2月20日，英国首相约翰逊表示，如果俄罗斯入侵乌克兰，英国将对俄罗斯采取最严厉的经济制裁，制裁目标不仅针对普京及其同僚，还包括俄罗斯最具有战略重要性的公司和组织。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-225.png)图为英国首相约翰逊和德国总理朔尔茨在慕尼黑安全会议上合影（图片来自路透社）
-据《美国之音》报道，约翰逊20日在接受BBC采访时表示，英国将停止俄罗斯公司在英国市场上融资，甚至与美国一起阻止俄罗斯以英镑和美元进行贸易交易。
+据郭先生透露，美国议员已经着手推动立法，要求：
 
-此前，英国议会15日已通过决议，如果俄罗斯入侵乌克兰，英国将扩大对俄罗斯企业和个人的制裁。
+第一，美国华人必须对国籍做出选择，即美国籍或中共国籍，二选一。
 
-另外，约翰逊19日在慕尼黑安全会议上还强调，如果西方国家没有履行承诺支持乌克兰的独立，这将对全球带来损害的后果，包括对台湾。
+第二，对于曾在中共任职的人士，退休后如果到美国或者其他西方国家，必须如实公报退休收入。
 
-然而，新中国联邦创始人郭文贵先生在其20日的大直播中一语道破欧美等西方国家对乌克兰的所谓的支持。郭先生还指出，当导弹落在乌克兰的头顶上，欧美国家再制裁俄罗斯，那就已经晚了，这个制裁也就没有任何意义。因此这些政府的支持并没有实际意义，最后乌克兰就沦为欧美与俄罗斯之间的较量战场，成为牺牲品。
+第三，美国华人公布其家庭成员是否是中共党员。
 
-参考链接：
-1.[https://www.voachinese.com/a/britain-would-impose-toughest-sanctions-against-russia-if-invading-ukraine-20220220/6451271.html](https://www.voachinese.com/a/britain-would-impose-toughest-sanctions-against-russia-if-invading-ukraine-20220220/6451271.html)
-2.[https://gtv.org/video/id=62123b3508ba8a07b19fce62](https://gtv.org/video/id=62123b3508ba8a07b19fce62)
+第四，美国税务局将针对美国人在中共国收入，推出特别申报计划。
 
-素材采编：幽蘭自得
-编辑：老孙
-发布：爱放飞
+郭先生认为，谷爱凌事件极大破坏了海外华人的生存环境，甚至可能引发海外排华。欧洲各国、英国、日本也有计划跟进美国的司法举措，推出针对华人的立法。
 
+参考链接：[**2022年2月18日 文贵大直播：乌克兰俄罗斯危机各执一词；Omicron病毒解禁众说纷纭**](https://gettr.com/streaming/pvffqc88e7)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+
+总编: 文真
+编辑: Jack Li文阳
+校正/发稿：Fei797
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
