@@ -2,48 +2,24 @@
 ---
 
 
-## HPay最低交易0.01基于电脑计算数据最底线的金融底线
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2046231/)
+## 外国记者代表组织批评中共在奥运期间制造的糟糕待遇
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2046358/)
 
-G-TV视频链接：[https://gtv.org/video/id=621261df1408ee3a03a25646](https://gtv.org/video/id=621261df1408ee3a03a25646)
+#### 撰稿：彩虹
 
-**青藤**：七哥，我想问一个问题啊，我是比较对数……就是学理工类嘛，我发现咱们H-Pay的当时定的所谓的最低的交易是0.01，我知道刚才我……因为我昨天刚去过银行开一个银行汇票或者去做一个在线的wire transfer，基本的手续费都是15美金或者35美金，看你是什么样的账户，如果是非常大额的你已经成了它的VIP账户的时候，你是不需要交这个钱的，那如果我以最低的普通用户15美金来算的话，那我0.01的交易数量再除以15美金的话，那就是说我基本上是1500美金。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-2-13.jpg)图片来源：InsiderSport
+《国会山报》2月21日根据《卫报》（The Guardian）报道，中国外国记者俱乐部（FCCC）是一个代表外国记者的组织，该组织发布了一份声明称，它对（中共）安全官员在奥运会期间对待经认可的外国媒体的方式感到“沮丧”，称中共政府与媒体互动的方式“违背了奥林匹克精神”。
 
-我就不知道当时这个0.01是怎么定出来的，是不是……如果说我的交易成本，因为我还是要配我后台的工作人员，我还要维护我的系统，这是我一个最基础的成本。如果我理解我的0.01是我的最低的成本的话，那是不是就是说我的……如果按现在市场上的15美金的交易收费的话，那我应该说我们的喜币基本上应该是在 1500美金，这是我的一个很……不知道想得对不对啊。
+声明指：“（中共）政府的干预在奥运会期间经常发生。”作为（中共）政府支持的网上骚扰和宣传战役的一部分，一些外国记者成为了在线骚扰的目标和受害者。
 
-**郭文贵先生**：这样理解是不对的，这样理解是不对的，因为银行收你的成本的时候呢，它是一个按最低的每笔我收你15美金，就是我的成本我要挣你的钱，我不管你汇多少钱，反正我得收你15，而且你像PayPal就更夸张了，PayPal这就不要脸到极点了，是吧？还有Stripe。
+声明举例说：“在一次奥运会滑雪比赛之后，一名外国记者被一名北京奥运会官员阻止在奥运会混合区采访一名香港运动员，而这块区域应该是受国际奥林匹克规则管辖的。最明显的是，荷兰国家广播公司的一名记者在一次电视直播中被便衣保安人员拖出镜头，尽管他几分钟前还站在警察指示的位置上。”
 
-那么这个喜支付实际上这个0.01就是让你最低的花，它不能再低了，它只能是这么少了，它得有个交易的数据，就是数据的最底线就在这儿了，因为要不然它电脑它没法算了，所以0.0001没法算，就是数据最底线的金融底线就给了你了
+中国外国记者俱乐部在声明中强调，“中国外国记者俱乐部敦促中共当局遵守他们自己对外国媒体在中国的认可规则：即允许记者在没有国家干预的威胁下预订和进行自己的采访，并在公共区域自由报道。不幸的是，在全球对中国的关注比以往任何时候都多的时候，这两条规则都没有得到执行。”
 
-比如说JessicaG是一个坏蛋，她付1000万美元在这块儿付，0.001在这儿付着玩，她得付100亿次，是吧？她在那付着玩，那你没办法，但你要在银行付100亿次光手续费把你付死了，对吧？那把你付惨了。
+**新闻来源**
 
-字幕来源：[2022年2月4日《文贵大直播》全文字版](https://gnews.org/zh-hans/1961700/)
-
-编辑整理：Jacques；
-
-字幕文件制作：小满；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[Journalists group calls China’s handling of games ‘contrary to the Olympic spirit’](https://thehill.com/homenews/media/595186-journalists-group-calls-chinas-handling-of-games-contrary-to-the-olympic)
 
  
 

@@ -2,27 +2,52 @@
 ---
 
 
-## 台湾｜ 新党主席吴成典向汪洋表决心：分三阶段实现国家统一
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2046053/)
+## 美国前国务卿蓬佩奥排定三月初将访问台湾
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2046144/)
 
-**撰文/ 港台前线｜发布日期/ 22/02/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/新黨主席吳成典向汪洋表決心：分三階段實現國家統一.jpg)
-**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)
-**
+作者：纽约香草山医疗部-云豹，香草山教育部 Naughty(文行)
 
-中共官媒新华社报导指，全国政协主席汪洋昨日（21日）在北京以视像会议方式会见台湾新党主席吴成典一行，并欢迎他们出席北京冬奥会闭幕式。
 
-汪洋表示，台湾同胞以不同方式积极参与冬奥会，是两岸一家亲、共圆中国梦的生动体现，在中华民族走向伟大复兴的进程中台湾同胞不能缺席也不会缺席。他强调，台湾新党长期旗帜鲜明，始终支持统一、反对“台独”，为推动两岸关系和平发展、推进祖国和平统一进程鼓与呼、起而行，大陆同胞看在眼里、记在心里。
 
-对此，吴成典亦回应称，两岸同胞同文同种、血浓于水，两岸统一的历史大势无法阻挡，新党愿作先锋，在推进国家统一的征程上，共同点燃属于两岸人民的希望圣火。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-另外，台媒《联合报》报道引述吴成典发言时指出，两岸统一预期将经过三个阶段：第一先重回九二共识、一个中国，重启两岸事务性协商；第二阶段是结束两岸军事敌对状态，建立军事安全互信机制；最后阶段则彻底实现国家统一。
 
-早前，郭文贵在直播中透露，中共党魁习近平与俄罗斯总统普京经闭门会议后达成共识，决定共同上演“痞子政治”，夺取乌克兰和台湾，今日早些时候，俄罗斯总统普京承认乌克兰东部两大亲俄势力范围成为独立国家，并同时派遣军队入驻，被视为正式对乌发动的侵略行为。
 
-这令人不得不担忧，中俄两大极权势力野心的下一步，是否轮到台湾！
+2月21日，多家媒体报道，美国前国务卿蓬佩奥将于3月3～5日访问台湾，分别与台湾总统蔡英文和外长吴钊燮会面交谈，在智库发表演讲，还将与台积电及中钢等公司的负责人进行不公开会谈。
 
-来源｜[新華社](http://politics.people.com.cn/n1/2022/0222/c1024-32356622.html)、[郭文貴蓋特](https://gettr.com/post/pvwb8qfd01)、[聯合報](https://udn.com/news/story/7331/6115240?from=udn-catebreaknews_ch2)
+过去两年，中共国加大了对台湾的军事和外交压力，试图迫使台湾接受其统治。台湾政府则坚持表示只有台湾人民有权决定台湾的未来，并称如果受到攻击，会奋起自卫。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-12.jpg)
+蓬佩奥在国务卿任内，积极支持台湾参与国际社会活动，并抨击中共军事威胁台湾。在卸任前还特别宣布取消行政部门与台湾接触的限制，确认美台关系，不需要、也不应该因为官僚体制的自我设限而受到束缚，此政策宣示在实质上大幅提升了台美往来的层级。
+
+郭文贵先生20日爆料称，习近平与普京进行了绝密会谈，组成生死军事联盟，准备通过发动战争来保持个人的政治安全。而一贯对中共强硬的蓬佩奥此时出访台湾则意味深远。
+
+参考链接：
+1. [《獨家》龐皮歐下週來訪 3/3晉見蔡總統表達對台灣支持](https://news.ltn.com.tw/news/politics/breakingnews/3835941)
+2. [U.S. former top diplomat Pompeo, sanctioned by China, to visit Taiwan](https://www.reuters.com/world/asia-pacific/mike-pompeo-who-riled-china-while-office-visit-taiwan-2022-02-21/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+
+总编：DM
+编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

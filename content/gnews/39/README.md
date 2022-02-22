@@ -2,22 +2,25 @@
 ---
 
 
-## 拜登宣布对乌克兰东部独立地区实施制裁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2045514/)
+## 美疾控中心和辉瑞发布血栓紧急警告
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2045680/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-21.png)图片来自网站
-21日，美国总统拜登在白宫宣布，对普京批准独立的乌克兰东部亲俄派控制地区实施制裁。
+加拿大温哥华杨枫叶快讯帆农场
 
-普京与乌克兰总统泽连斯基进行了电话交谈，强烈谴责了普京的决定，坚决支持乌克兰捍卫主权和领土完整。拜登还与法国总统马克龙和德国总理肖尔茨进行了电话会谈，讨论了接下来的措施，确认了相互间的合作。
+采编： 风云小哥                    编译撰稿：自由法兰西
+![](https://www.thegatewaypundit.com/wp-content/uploads/Screen-Shot-2022-02-18-at-10.21.26-PM.jpg)图片来源：[https://www.thegatewaypundit.com](https://www.thegatewaypundit.com/2022/02/everyone-risk-blood-clots-cdc-pfizer-issue-urgent-warnings-blood-clots-even-healthiest-athletes/)
+据美国媒体【网关专家】2月19日报道，【美国疾控中心】近日就【辉瑞】产“新冠病毒”疫苗导致血栓的情况发出紧急警告称：所有已接种者包括最健康的运动员都有发生“深度静脉血栓”，“肺栓塞”以及“脑血栓”等严重疾病的风险。
 
-据白宫称，拜登签署了一项总统令，禁止美国人在亲俄派控制的东部省份顿涅茨克和卢甘斯克进行新的投资、贸易和金融交易。美国官员21日告诉记者，更多追加制裁措施将在22日宣布。
+据悉，早在去年2月【美国疾控中心】就声称：无论是运动员还是球迷，任何已接种者都会出现血栓症状。并试图以此将青壮年和健康运动员出现血栓的现象常态化。
 
-[信息源](https://www.jiji.com/jc/article?k=2022022200171&amp;g=int#:~:text=%E5%A4%A7-,%E6%9D%B1%E9%83%A8%E7%8B%AC%E7%AB%8B%E6%89%BF%E8%AA%8D%E3%81%A7%E5%88%B6%E8%A3%81%E7%99%BA%E5%8B%95%E3%80%80%E3%83%97%E)
+对此，《美国医学会杂志》指出，所有mRNA疫苗都会加大患脑血栓的风险。而【牛津大学】的最新研究也显示，在接种辉瑞、莫纳德和阿斯利康疫苗后，罹（离li）患各类血栓疾病的机率将成倍增长。
 
-*校对：东京樱花团/麗子
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+校对编辑：硫酸羟氯喹64
+
+发稿：青青
+
+新闻来源： [https://www.thegatewaypundit.com/2022/02/everyone-risk-blood-clots-cdc-pfizer-issue-urgent-warnings-blood-clots-even-healthiest-athletes/](https://www.thegatewaypundit.com/2022/02/everyone-risk-blood-clots-cdc-pfizer-issue-urgent-warnings-blood-clots-even-healthiest-athletes/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

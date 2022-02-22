@@ -2,53 +2,43 @@
 ---
 
 
-## 美国前国务卿蓬佩奥排定三月初将访问台湾
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2046144/)
+## 司法部长预计将削减司法部打击中国间谍活动的部分内容
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2046273/)
 
-作者：纽约香草山医疗部-云豹，香草山教育部 Naughty(文行)
+撰稿：小湫
 
+消息人士告诉福克斯新闻，司法部将很快对其“中国计划”做出改变，在活动人士的压力下，可能会撤回该计划中打击中国在美间谍活动的部分努力。
 
+该项目于2018年启动，旨在保护美国的国家安全，防止中国窥探美国知识产权和学术界——这是国会目前试图解决的一个问题。
+![pastedGraphic.png](https://assets.gnews.org/wp-content/uploads/2022/02/BDBC58A7-9BB9-4601-A999-96500EC7DFAB.png)
+司法部长梅里克·加兰德于2022年1月5日在华盛顿特区的司法部发表讲话
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+司法部网站上对该计划的描述称:“除了确定和起诉那些从事商业秘密盗窃、黑客攻击和经济间谍活动的人之外，该计划还专注于通过外国直接投资和损害供应链保护我们的关键基础设施免受外部威胁。”
 
+福克斯新闻获悉，司法部对该项目的审查目前已接近完成，并将对该项目进行一些修改。 这些变化将是什么还不清楚。
 
+司法部长梅里克·加兰德(Merrick Garland)和拜登政府面临着来自活动人士和一些大学教职人员的压力。 他们说，这损害了美国在研究方面的竞争力，并不成比例地以种族为目标。
 
-2月21日，多家媒体报道，美国前国务卿蓬佩奥将于3月3～5日访问台湾，分别与台湾总统蔡英文和外长吴钊燮会面交谈，在智库发表演讲，还将与台积电及中钢等公司的负责人进行不公开会谈。
+上个月，抗议者站在美国司法部门外，称这一举措不公平地针对中国教授。 近200名耶鲁大学教授最近给加兰德写了一封信，要求他结束这项计划。
 
-过去两年，中共国加大了对台湾的军事和外交压力，试图迫使台湾接受其统治。台湾政府则坚持表示只有台湾人民有权决定台湾的未来，并称如果受到攻击，会奋起自卫。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-12.jpg)
-蓬佩奥在国务卿任内，积极支持台湾参与国际社会活动，并抨击中共军事威胁台湾。在卸任前还特别宣布取消行政部门与台湾接触的限制，确认美台关系，不需要、也不应该因为官僚体制的自我设限而受到束缚，此政策宣示在实质上大幅提升了台美往来的层级。
+“我们只是希望他们能结束对华裔美国科学家的起诉，允许他们回去做他们的研究，而不是担心他们的未来，”美国华人联合会主席海佩·舒说。
 
-郭文贵先生20日爆料称，习近平与普京进行了绝密会谈，组成生死军事联盟，准备通过发动战争来保持个人的政治安全。而一贯对中共强硬的蓬佩奥此时出访台湾则意味深远。
+左翼智库今年早些时候主张完全终止这项倡议。 说该项目正在损害美国，部分原因是它让中国和华裔美国科学家害怕在美国工作。左翼智库同时说，“需要明确的是，中国对美国已经构成了间谍威胁，司法部和联邦调查局必须严肃对待，司法部已经根据中国倡议发起了诉讼  ，并不是针对中国的间谍活动或盗窃知识产权，而是与中国政府无关的华裔科学家轻微的行政违法行。
 
-参考链接：
-1. [《獨家》龐皮歐下週來訪 3/3晉見蔡總統表達對台灣支持](https://news.ltn.com.tw/news/politics/breakingnews/3835941)
-2. [U.S. former top diplomat Pompeo, sanctioned by China, to visit Taiwan](https://www.reuters.com/world/asia-pacific/mike-pompeo-who-riled-china-while-office-visit-taiwan-2022-02-21/)
+今年，在美国司法部撤销了一起针对麻省理工学院(MIT)一名教授与中国有关的案件后，该项目受到了越来越多的审查。 据《政客》报道，司法部认为自己无法在法庭上证明自己的观点。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+但中国仍然对美国的国家安全和经济安全构成重大威胁，包括通过间谍活动和对美国大学施加影响的策略。 其中包括孔子学院，它是中国共产党在美国的宣传武器  。
 
-总编：DM
-编辑：飞虹
-校对/发稿：为真不破20
+根据美国国家学者协会(National Institute of Scholars)的数据，目前美国有21所孔子学院，包括斯坦福大学(Stanford)、西弗吉尼亚大学(West Virginia University)、犹他大学(University of Utah)等。
 
-**更多资讯，更多关注**
+国会目前正试图通过打击中国的立法，尽管众议院民主党人和参议院民主党人在应该包括哪些内容的问题上存在重大分歧。 美国国会领导人表示，他们希望在未来几个月达成某种妥协，将中国竞争法案提交给总统。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+参考信息：
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[https://www.foxnews.com/politics/justice-department-biden-garland-china-initiative-academia](https://www.foxnews.com/politics/justice-department-biden-garland-china-initiative-academia)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+*编辑：cindy*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,42 +2,33 @@
 ---
 
 
-## 北京猛烈抨击了俄罗斯可能入侵乌克兰的预测
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2046337/)
+## 有声｜驻中共国记者俱乐部对奥运报道环境表示失望
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2046416/)
 
-翻译：lovemiles
-编辑：Mttfly
+By:**秘翻新闻**
 
-**【雅典娜快讯】，紧贴时事脉搏**
+**2022-02-22**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/10-30.png)图片来源 周日，中国奥运代表团抵达北京2022年冬奥会国家体育场举行的奥运闭幕式 Paul Hanna/UPI
+据合众国际社2 月 21 日报导，总部设在中共国的外国记者俱乐部21日表示，他们因冬奥会主办方没有向外国记者提供预期的报道环境而感到失望。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/习近平、普京.jpg)图源：联合日报
+外国记者俱乐部，以下简称FCCC，周一在一份声明中表示，对冬奥会期间中共国的独立报道条件仍旧低于国际标准感到失望。例如，一名中共奥运会官员阻止外国记者采访香港运动员。
 
+根据FCCC的声明，国际奥委会后来称该事件为独立案件。然而，在北京奥运会期间，政府干预的情况经常发生，这使外国媒体在中共国的经营环境充满挑战。
 
-中共国外交部发言人表示，在东西方对峙日益加剧之际，华盛顿应该帮助缓和俄乌边境的紧张局势，并放弃对莫斯科采取具有持续性威胁的惩罚措施。
+促进新闻自由和与驻华记者交流的新闻俱乐部也在声明中表示，记者在奥运场馆外报道时经常受到一些官员的尾随和粗暴对待。
 
-汪文斌周五在新闻发布会上发表讲话，对美国关于俄罗斯武装部队可能很快开始在东欧国家边境发动进攻的预测发表看法。
+FCCC 在其声明中指出：最明显的是，荷兰国家广播公司 NOS 的一名记者在电视直播中被中共便衣保安人员带离摄像机，尽管他一直站在警察指示他去的地方。NOS后来发推文称，这样的遭遇越来越成为中共国记者的日常。
 
-据他介绍，“美国情报界的可信度已经在伊拉克和乌克兰等多个场合受到考验。”“我想再次强调，在寻求乌克兰问题的政治解决过程中，任何人都不应竖起战争烟幕，以此为杠杆。或用制裁来威胁他人，更不应煽动国家之间的对抗。”
+根据FCCC的声明，几名记者因撰写与奥运会有关的报道而在网上受到骚扰，其中包括中共国官媒账户和中共国外交官的骚扰。
 
-他的讲话是在最近几个月俄乌两国共同边界的严峻形势下发表的，西方领导人一再表示担心莫斯科在入侵乌克兰之前，将军队撤到边境地区。
+新闻来源 [**https://www.upi.com/Top\_News/World-News/2022/02/21/beijing-olympics-foreign-correspondents-club-dismayed-treatment-journalists/2671645463918/**](https://www.upi.com/Top_News/World-News/2022/02/21/beijing-olympics-foreign-correspondents-club-dismayed-treatment-journalists/2671645463918/)
 
-今年一月，美国总统乔·拜登威胁他的对手俄罗斯总统弗拉基米尔·普京，如果普京允许俄军入侵乌克兰，他将对其实施前所未有的严重制裁。*“*他从未见过像我所要实施的制裁”，拜登当时警告说。
+秘翻新闻 文洋 编译报道
 
-然而，克里姆林宫一再否认它有任何攻击计划，并辩称其军队在其领土上的移动是内部事务。在一连串的指责中，俄罗斯开始寻求北京公开支持，以此从西方获得安全保证，以排除北约扩大的可能性。
+发布 : 恩典
 
-习近平和普京本月早些时候发表联合声明，呼吁以美国为首的军事集团不要进一步扩张，放弃*“*冷战”思维。
-
-参考链接：[China blasts ‘smokescreen of war’](https://www.rt.com/russia/549882-china-blasts-smokescreen-war/)
-
-*发布：Mttfly*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
