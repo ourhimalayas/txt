@@ -2,20 +2,18 @@
 ---
 
 
-## 西媒头条 — 第178期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2049469/)
+## 2022年2月22日，全球中共病毒疫情情况汇总
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2049501/)
 
-**制作：蚂蚁兄弟**
+制作：DT新闻组
 
-**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息**
+**中共的杀戮还在继续……**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/xm220222.001.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/5F0DDFDB-4145-4350-A4E8-28423B0D347E.jpg)
 
-***发稿：信心满满***
+发稿：信心的选择
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-7.jpeg)
-
-
 
  
 

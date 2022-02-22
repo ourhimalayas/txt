@@ -2,34 +2,33 @@
 ---
 
 
-## 有声|为中共卖命一生 金无怠落得悲惨下场
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2049690/)
+## 台湾和香港对七哥的意义之大
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2049757/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-金无怠，1922年8月17日出生，广东南海人，毕业于燕京大学。曾担任美国中央情报局对外广播情报处翻译人员、档案管理人员、分析专家、中央情报局亚洲部门负责人。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-根据反间谍专家、有八年特工经验的陶德.霍夫曼所著的《内部间谍–金无怠和中国对中情局的渗透》一书内容：金无怠在燕京大学就被发展加入中共，1948任职于美国驻上海领事馆，开始了他间谍生涯。1950年5月，美国上海领事馆移居香港。1951年6月，爆发朝鲜战争，据金无怠后来交代，韩战期间，一直为中共秘密传递情报。1965年归化为美国公民，1970年金为中央情报局兼分析员的职位，可以接触更高的机密。
+2022-02-16直播摘录10:18:53
 
-由于中共国家安全部、北美情报司司长俞强声向美国投诚，才把在美国潜伏37年中共间谍金无怠供出来。
+我相信生活中是拖着战刀、骑着摩托车、穿着皮袄那种皮夹克的那种绝对“侠女型”的。我相信你这种性格绝对是够酷的，敢唱、敢嗨、敢喝酒那种，一看看的得出来，就是非常就是台湾那种真性情。我当年在纽约的时候在我身边全都是台湾人，每天晚上都出去喝酒去、开着车，都是一些在台湾、在美国的搞设计的学生们，现在都成了大家了，也都当爹当妈了。我跟台湾人的感情真是太深远了，从清丰看守所出来以后，我身边的艺术家和我影响我人生的建筑、艺术、佛教、宗教、文化、哲学、中国历史都是台湾人影响我；然后在经济上、国际上、形象上、官方上都是香港人帮我，个人的生活品味什么都是香港人帮我。
 
-金无怠被捕后，意识到下半辈子不是死就是终生监禁。他曾托其妻周谨予去见北京中共政府，寄希望中美两国通过谈判，像美苏那样，双方交换间谍，让他回到中国。可是当时的中共驻美大使回答记者说，“ 金无怠是美国反华势力编造的，中共政府爱好和平，从来没有向美国派过间谍。不认识这位金先生”。数月后，金无怠死在狱中，现场发现，金头上套着塑料袋，窒息而亡。
+所以我跟港、台之感情是没有人能懂的，我是最幸运儿在这方面儿。这是你想想，清丰看守所死刑镣、脚铐子都带过，跟死刑犯在一起关了二十几个月，你说个人破产又算个鸟毛啊，是不是？而且我经历过台湾、香港以后，我更知道什么叫自由，我更知道什么叫健康的财富。而且从一个人的真的是精神面貌上能看出一个人他到底值不值得你尊重？而不是你有多大权利、多大的钱；再一个完全崇拜金钱和权力的这种权力的崇拜、物质的崇拜，还有那种所谓的名声、明星崇拜、充数的大陆，看到台湾人和香港人我就觉得真是…就不是一个星球的人，就不是一个级别的。我认为真的台湾的、香港的狗都比大陆的富豪马云都幸福，真的是这样子的，你不服你心里边儿你试试。大陆人极度的自卑带来的极度的傲慢和狂妄，那种瞪着眼胡说八道的感觉，你感到真让人可怜。所以我看到台湾人、香港人我就觉得就是天上的最幸运的幸运儿。
 
-文字版原文：[为中共卖命一生 金无怠落得悲惨下场](https://gnews.org/zh-hans/2042801/)
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-音频处理：Fei797
-发稿：Fei797
+**关注我们**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+Discord 账号
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
