@@ -2,30 +2,35 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年2月22日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2049140/)
+## 【TopNews】德国外长：德国冻结北溪2号项目
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/2049166/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-20-at-4.14.11-PM-1.png)
+![1034958021_0-39-2601-1502_1280x0_80_0_0_eb7d18a183a7d79d6e70b741a300e9fd.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/B4034470-52C6-48A0-8418-CF9404B7AC3D.jpeg)
+© AFP 2022 / JANEK SKARZYNSKI
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-21.png)
-文章仅代表作者本人观点，与Gnews无关
+俄罗斯卫星通讯社巴黎2月22日电 德国外长贝尔伯克表示，德国政府冻结了北溪2号项目，俄罗斯感受到自己行为的后果。
 
-视频参看：
-[2022.02.22早 《NFSC新闻》](https://gtv.org/video/id=6214e52808ba8a07b1a16f59)
-[2022.02.22早 G|TV《新闻访谈》](https://gtv.org/video/id=6214ee4408ba8a07b1a1765d)
+贝尔伯克在欧盟外长非正式会议即将在巴黎召开之际说：“我们最近几周与国际伙伴一起准备了一揽子协议，这包括个人制裁、金融制裁、经济制裁。除此之外，德国政府刚刚还冻结了北溪2号项目。我们一直都说，[北溪2](https://sputniknews.cn/20220220/1039445540.html)号也是措施的一部分。”
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+贝尔伯克补充说：“俄罗斯违背了所承诺的一切，违背了要回到谈判桌前的承诺。如今他们需要感受到后果，这包括对北溪2号的措施。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-3.png)
+德国总理朔尔茨表示，已经委托该国经济部采取措施，暂停对“北溪-2”项目的认证工作，以此回应莫斯科承认乌克兰东部两个分离主义地区的决定，同时警告可能采取额外制裁。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+朔尔茨解释说，经济部相关部门将根据“过去几天发生的变化”，对供应安全进行新的评估，并表示，“在这个阶段，除了第一次制裁之外，现在重要的是防止进一步升级，从而防止另一场灾难，我们所有的外交努力都是为了这一点。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/9C1699FC-B3DA-4F83-9D49-98BDE18CEA9F.jpeg)
+“北溪2号”管道项目已经完成，但在从俄罗斯开始向德国供应天然气之前，其正在等待德国当局的监管批准。
+
+朔尔茨说：“由于当前的发展，我们应重新评估这一情况，同时也针对于‘北溪-2’。并且，已经要求德国经济部撤回联邦电网管理局附有能源安全分析的现有报告，这是必要的行政步骤，为了使天然气管道的认证不在当下进行。没有认证，‘北溪-2’就无法运行。”
+
+据悉，“北溪2号”管道项目价值110亿美元，这是一个铺设在波罗的海海底的管道网络，用于将俄罗斯天然气输送到德国，据预计，通过该管道项目将输送550亿立方米天然气。目前，的运营商是Nord Stream 2 AG公司，俄气是其唯一股东。
+
+[援引链接：](https://sputniknews.cn/20220222/1039509171.html)
+
+撰稿/米拉雅
+
+审阅/邱杰斯
+
+上传/天赐良闻
 
  
 

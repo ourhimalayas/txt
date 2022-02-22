@@ -2,39 +2,42 @@
 ---
 
 
-## 加国省长杰森肯尼挑战特鲁多紧急法案
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2049068/)
+## 澳洲总理要求中共国全面调查其军舰激光照射澳军机事件
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2049080/)
 
-作者：日本东京方舟农场—Miyali7768(文玉)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月19日消息，针对联邦自由党实施”紧急情况法”以结束卡车司机对渥太华市中心的封锁，阿尔伯塔省省长杰森·肯尼在接受Postmedia独家采访时表示，联邦政府使用加拿大最强大的法律，在目前情况下是不合理的过度扩张，违反正当程序和”侵犯”省级管辖权。并表示对此深感厌恶，将在下周初，向渥太华联邦法院提出法律挑战，以结束总理特鲁多的任意和高压行动。
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image008.png)一种**P-8A Poseidon**型飞机
+路透社于**2**月**21**日报道** **，日前一艘中共军舰用激光照射一架澳洲巡逻机，澳洲总理莫里森周一表示，当时中共军舰非常接近澳洲领土，澳洲要求中共进行**”**全面调查**”**。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide10-3.jpeg)
+**莫里森周一在广播中说，澳洲政府还没有收到中共对上周四这起事件的解释，澳洲认为该事件是**”**危险和鲁莽的行为**”**。**
 
-另外，联邦司法部长大卫·拉梅蒂此前在CTV上暗示，联邦调查局正在考虑冻结任何用信用卡向车队捐赠者账户。
+**澳洲国防部在周六表示，一艘中共军舰在澳洲专属经济区内用激光照射了一架在澳洲北部航道飞行的澳洲军机，这可能危及人员生命。
 
-肯尼认为，如果特鲁多派冻结其政治对手的财政得逞而逍遥法外，允许联邦政府利用《紧急情况法》来履行普通警察职能骚扰对手，超越并篡夺加拿大各省执法的属地管辖权，这将为未来树立一个危险的先例。
+莫里森在当地电台表示，澳洲已透过外交及国防管道，要求对此事件进行全面调查。
 
-肯尼代理律师将要求法官暂停使用该紧急法案。
+中共享激光照射来攻击国外飞机已经是惯用的流氓手段。
 
-参考链接：
-1.[https://gettr.com/comment/cow1g04ffb](https://gettr.com/comment/cow1g04ffb)
-2. [https://edmontonsun.com/opinion/columnists/gunter-alberta-premier-jason-kenney%E3%80%82](https://edmontonsun.com/opinion/columnists/gunter-alberta-premier-jason-kenney%E3%80%82)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-总编：Zion文恩
-编辑：静言
-校正/发稿：谐趣园
+**推出问题，敲出真相，爆料在路上！**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**请关注和订阅我们的以下账号：**
 
+**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+
+**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+
+**玫瑰看新闻YOUTUBE账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**ROSE NEWS**
+
+**【玫瑰看新闻】推特账号**：
+
+**ROSE NEWS (@ROSENEWS4)A**
 
  
 
