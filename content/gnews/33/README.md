@@ -2,22 +2,22 @@
 ---
 
 
-## 拜登宣布对乌克兰东部独立地区实施制裁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2045514/)
+## 中日财经爆┃字节跳动2000万卖掉海豚股票App
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2045774/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-21.png)图片来自网站
-21日，美国总统拜登在白宫宣布，对普京批准独立的乌克兰东部亲俄派控制地区实施制裁。
+整理编辑：东京樱花团｜peterwong
+![](https://lh5.googleusercontent.com/aQeQNQDt6w3Y7DPjbXc1LO8GUC3OouRmHHQEWs520WcNwRbIY0_WluOx_BssbpttTNCBATjmF0XVMq5iDwSf8DHIx5HF4dE_HjanZjTczblpm87GNxGBjyJuCOMkDpgk7dh3Lts6)[*图片来源*](https://p6.itc.cn/q_70/images03/20220222/3b5b22181c0448bcb2636951f3b79c2a.jpeg)
+中共国华林证券周一（2月21日）公告称，日前与北京字跳网络技术有限公司签署了协议，拟受让海豚股票App运营主体北京文星在线科技有限公司100%股权，并申请将其备案为信息技术专业子公司；交易价格为2,000万元人民币。
 
-普京与乌克兰总统泽连斯基进行了电话交谈，强烈谴责了普京的决定，坚决支持乌克兰捍卫主权和领土完整。拜登还与法国总统马克龙和德国总理肖尔茨进行了电话会谈，讨论了接下来的措施，确认了相互间的合作。
+文星在线为字节跳动（ByteDance）旗下江苏今日头条全资子公司，字节跳动在出售其证券板块过程中，曾非公开向各接洽方披露了截至2021年9月海豚股票App的平台用户数约为1246万。据第三方评估机构的调研数据显示，截至2021年8月海豚股票App的月活量为31.92万。
 
-据白宫称，拜登签署了一项总统令，禁止美国人在亲俄派控制的东部省份顿涅茨克和卢甘斯克进行新的投资、贸易和金融交易。美国官员21日告诉记者，更多追加制裁措施将在22日宣布。
+蚂蚁集团IPO前年11月突遭监管叫停后，中共国对金融科技的监管愈发严格。字节跳动去年9月曾表示，将收缩金融服务部门，并计划出售证券业务。字节跳动在香港运营着松鼠证券，在内地运营着海豚股票；公司还运营着自己的第三方移动支付–抖音支付。
 
-[信息源](https://www.jiji.com/jc/article?k=2022022200171&amp;g=int#:~:text=%E5%A4%A7-,%E6%9D%B1%E9%83%A8%E7%8B%AC%E7%AB%8B%E6%89%BF%E8%AA%8D%E3%81%A7%E5%88%B6%E8%A3%81%E7%99%BA%E5%8B%95%E3%80%80%E3%83%97%E)
+消息来源：[**字节跳动剥离证券业务 华林证券2,000万元接盘海豚股票App运营主体全部股份**](https://cn.reuters.com/article/bytedance-securities-business-0221-idCNKBS2KQ0YB?il=0)
 
-*校对：东京樱花团/麗子
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

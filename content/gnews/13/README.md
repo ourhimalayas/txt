@@ -2,30 +2,43 @@
 ---
 
 
-## 中日财经爆┃中共对雷神和洛克希德马丁报复性制裁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2045987/)
+## 单伟建钻西方冷金融空子用中共关系和背景中西两头通吃
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2046142/)
 
-撰稿：东京樱花团｜peterwong
-![](https://lh3.googleusercontent.com/TtlryaIAEyZoJQXkPbLFN1TYUCTKq6otzbOM2M7ZTJ6JuzpZVn-rUqPPV4ICoxD55-WhB4fZoEm-RvlGCaMr_gsxBocv0M_0XFAGZD5WAdwusmShHFw4B_YzURwXB9E2zJD0Pe7D)[*图片来源*](https://tw.appledaily.com/resizer/LRFIlsh2Zv2bwoqUu4d4JpSqyP8=/1280x904/filters:quality%28100%29/cloudfront-ap-northeast-1.images.arcpublishing.com/appledaily/E5IOUWCR35B6FKDGBQMZUBG5FU.jpg)
-中国外交部新闻发言人汪文斌周一（2月21日）称，中共国决定对长期参与向台湾出售武器的美国军工企业——雷神和洛克希德马丁，实施报复性制裁。
+G-TV视频链接：[https://gtv.org/video/id=621261611408ee3a03a255e5](https://gtv.org/video/id=621261611408ee3a03a255e5)
 
-此前在2019年和2020年中共国亦曾宣布对这两家公司进行制裁。不过，是次是中共国首次根据“反外国制裁法”做出相关决定。中国去年年中出台了“反外国制裁法”。该法共16条，明确了三类反制措施，包括注销签证、扣押冻结中国境内财产等。
+**郭文贵先生：**你知道那个单伟建太平联盟那个家伙，单伟建从中国出来混到美国，全家拿美国护照，儿子在美国吃他老爹，这些所谓的情报关系，单伟建这个事这两天没人说了，你们傻呀，单伟建这个人在西方怎么混出来的？他钻了西方一个最大的空子，叫做冷金融。就是美国人完全不知道中国市场开放的金融价值的情况下，他开始搞基金，TBG，PAG什么这G那G的，结果就整这样，然后在美国结交了一批律师事务所，一批所谓有钱的、有权的人，中国人被他代表了，拥有共产党的关系和背景，拥有王岐山、康典，然后他儿子在美国长大……英文……老婆全在美国，被他代表了，中国就让他代表了。
 
-美国国防部2月7日表示，美国已经批准向台湾出售价值或达1亿美元的设备和服务，以“维持、维护和改进”台湾爱国者导弹防御系统, 主要承包商将是雷神和洛克希德马丁。台湾国防部表示，该案可望在3月份正式生效。
+所以你知道单伟建在美国金融圈一提他，就跟那神秘的昆仑老神似的，因为中国人并不知道怎么搞基金，也不知道怎么搞投资，也不知道怎么跟海外投资，全被这过去的这几个所谓的基金大佬代理了。
 
-国防安全合作局说：“这项军售计划通过支持受援方继续努力使其武装部队现代化并保持可靠的防御能力，符合美国的国家、经济和安全利益。”
+字幕来源：[2022年2月4日《文贵大直播》全文字版](https://gnews.org/zh-hans/1961700/)
 
-台湾外交部在一份声明中称，面对中共国持续的军事扩张和挑衅行为，台湾将以坚实国防维护国家安全，并持续深化台美紧密安全伙伴关系。
+编辑整理：Jacques；
 
-消息来源：
+字幕文件制作：小满；
 
-1、[**中国决定对美国雷神和洛克希德马丁实施反制 因参与对台出售武器–外交部**](https://cn.reuters.com/article/china-mofa-us-raytheon-sanction-0221-idCNKBS2KQ0RG?il=0)
+视频制作及上传：Cindy；
 
-2、[**美国批准对台湾一亿美元军售**](https://gnews.org/zh-hans/1974148/)
+G-News发布：小满；
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

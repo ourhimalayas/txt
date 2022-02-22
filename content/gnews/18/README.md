@@ -2,44 +2,27 @@
 ---
 
 
-## 目前授权开通道未来半年到一年实现任何币种的无缝兑换
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2045898/)
+## 台湾｜ 新党主席吴成典向汪洋表决心：分三阶段实现国家统一
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2046053/)
 
-G-TV视频链接：[https://gtv.org/video/id=62125fbc1408ee3a03a254a8](https://gtv.org/video/id=62125fbc1408ee3a03a254a8)
+**撰文/ 港台前线｜发布日期/ 22/02/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/新黨主席吳成典向汪洋表決心：分三階段實現國家統一.jpg)
+**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)
+**
 
-**郭文贵先生：**这就是我可以告诉大家，从昨天我们人民币最起码小12个亿到13个亿都已经交易完了。而且这钱都秒到，都是秒到，所有使用过的战友们都是惊讶万分：“太快了，七哥！”就刚才宝宝说的：“咱还能聊天，钱到了，转过来转过去。”
+中共官媒新华社报导指，全国政协主席汪洋昨日（21日）在北京以视像会议方式会见台湾新党主席吴成典一行，并欢迎他们出席北京冬奥会闭幕式。
 
-有战友说：“七哥，（能）往外传，能不能转进来？”“能转啊！”我说：“你试试。”我们给了授权的战友们那个圈里边”叭叭”地从黑龙江直接“咣叽”四川、福建、辽宁，转来转去。我说：“你放心，共产党找着你我负责任，它找不着你！”你除非把这都关了。
+汪洋表示，台湾同胞以不同方式积极参与冬奥会，是两岸一家亲、共圆中国梦的生动体现，在中华民族走向伟大复兴的进程中台湾同胞不能缺席也不会缺席。他强调，台湾新党长期旗帜鲜明，始终支持统一、反对“台独”，为推动两岸关系和平发展、推进祖国和平统一进程鼓与呼、起而行，大陆同胞看在眼里、记在心里。
 
-但是现在唯一一个咱们战友就没有全面给你打开，就是我们得农场授权，得相信的人。因为一个授权这是给人打开了一个特殊通道，这个特殊通道是必须要有的，因为现在还不是普及性。但是不会超过半年到一年的，绝对不会超过，就咱公开挂在那，所有人国内的人付人民币，你就直接付人民币就行，公开的，任何币，你们会看到喜支付会有很多币可以支付，我就跟你说到这为止，惊讶万分让你们。谢谢！
+对此，吴成典亦回应称，两岸同胞同文同种、血浓于水，两岸统一的历史大势无法阻挡，新党愿作先锋，在推进国家统一的征程上，共同点燃属于两岸人民的希望圣火。
 
-字幕来源：[2022年2月4日《文贵大直播》全文字版](https://gnews.org/zh-hans/1961700/)
+另外，台媒《联合报》报道引述吴成典发言时指出，两岸统一预期将经过三个阶段：第一先重回九二共识、一个中国，重启两岸事务性协商；第二阶段是结束两岸军事敌对状态，建立军事安全互信机制；最后阶段则彻底实现国家统一。
 
-编辑整理：Jacques；
+早前，郭文贵在直播中透露，中共党魁习近平与俄罗斯总统普京经闭门会议后达成共识，决定共同上演“痞子政治”，夺取乌克兰和台湾，今日早些时候，俄罗斯总统普京承认乌克兰东部两大亲俄势力范围成为独立国家，并同时派遣军队入驻，被视为正式对乌发动的侵略行为。
 
-字幕文件制作：小满；
+这令人不得不担忧，中俄两大极权势力野心的下一步，是否轮到台湾！
 
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+来源｜[新華社](http://politics.people.com.cn/n1/2022/0222/c1024-32356622.html)、[郭文貴蓋特](https://gettr.com/post/pvwb8qfd01)、[聯合報](https://udn.com/news/story/7331/6115240?from=udn-catebreaknews_ch2)
 
  
 

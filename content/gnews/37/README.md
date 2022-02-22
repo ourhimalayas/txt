@@ -2,36 +2,52 @@
 ---
 
 
-## 中共使用机器人和虚假帐号影响冬奥会讨论
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2045293/)
+## 日媒聚焦彭帅选手以及谷爱凌双重国籍事件
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2045498/)
 
-作者：台灣寶島農場 — 尋文客
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美国媒体2月18日报导，中共使用机器人、虚假帐号等工具选择性编辑宣传故事，以影响有关冬奥会的讨论。
+作者：日本方舟农场 – Andy5
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-8.jpeg)
 
-据报道，该媒体与非营利调查新闻编辑室ProPublica发现，推特上存在一个中共虚假帐号网络。该网络有超过3000个帐号，通过分享带有相同评论的中共外宣推文，以协调行动，影响有关冬奥会的讨论。这些帐号普遍创建不久，没有关注者，推文仅以转发中共外宣推文为主。
 
-目前推特已经通过电子邮件声明，确认数百个账户已被封禁，同时表示，将进一步调查这些帐户与国家支持的信息运营之间的联系。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-中共冬奥会的虚假不仅限于虚假帐号操纵舆论。根据郭文贵先生在大直播中的爆料，中共冬奥会场的雪为人造假雪，裁判被中共买通非公正判罚，中共参赛运动员国籍造假。中共冬奥会的呈现只有虚假和丑陋。
 
-参考链接：[中国如何讲好冬奥故事：机器人、虚假帐户与“水军”](https://cn.nytimes.com/technology/20220218/china-olympics-propaganda/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+当地时间2月18日，日媒进一步分析了彭帅的遭遇，以及她在冬奥会上出镜的意义。
 
-总编：文真
-编辑：谐趣园
-校正/发稿：谐趣园
+国际奥委会主席巴赫抵达北京后，与彭帅进行了午餐会，但是中共并没有释放出任何会面的具体内容，甚至没有像上次视频会见时那样，放出一张照片，这引起了嘉宾们的疑问。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide6-5.jpg)
+其中，在彭帅接受法国媒体采访时，明明记者和彭帅都能说流利的英文，但国际奥委会和中共偏偏要安插一名翻译作为监视。尽管记者的所有问题都经过了中共的事先审核，但这次采访最关键的是，彭帅承认一开始揭发张高丽性侵的爆料文章，是她本人所写并由她本人发布到社交平台上的这个事实。
+
+嘉宾还特别指出，在2月8日谷爱凌夺冠的那场比赛上，中共特意安排巴赫和彭帅观战，就是为了显示出巴赫在为谷爱凌站台，并且以彭帅来吸引火力，降低国际上对谷爱凌双国籍事件的注意力。
+
+参考链接：
+1. [20220218日媒聚焦「彭帥選手」談及「谷愛凌」](https://www.gettr.com/post/pvow6656fa)
+2. [彭帅现身北京首钢滑雪大跳台](https://www.zaobao.com.sg/realtime/china/story20220208-1240664)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+
+总编/编辑：DM
+校对/发稿：为真不破20
 
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

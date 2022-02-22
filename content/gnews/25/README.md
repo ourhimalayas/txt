@@ -2,29 +2,30 @@
 ---
 
 
-## 中共国锁链女灾难连印度都忍无可忍
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2045819/)
+## 有声｜海外华人连署致洛杉矶中领馆关注锁链女事件
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2045906/)
 
-加拿大温哥华杨帆农场 枫叶快讯
+By:**秘翻新闻**
 
-采编：风云小哥           翻译编辑：   文莱
+**2022-02-22**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/6-38.png)图片来源 大纪元
+据大纪元2月22日消息，近日，在声援徐州锁链女活动当日，几十名海外华人连署签名并致信中共驻洛杉矶总领事张平，要求中共政府解决国内大量拐卖妇女儿童的犯罪现象。但当日中领馆未对外开放营运，亦无员工出面回应。
 
+在声援活动前夕，该活动的负责人界立建疑遭到中共威胁，但他仍负伤出席了本次民运活动。据称，他曾在上周五再次遭遇陌生车辆追撞，这是他本月第2次受到不明人士的攻击。巧合的是，这两次意外都发生在举办抗议中共活动的前夕。此次肇事逃逸者离去前还曾还曾嚣张地对他说道：卖国贼，拜拜。
 
-![](https://static.toiimg.com/thumb/msid-89636489,imgsize-123396,width-400,resizemode-4/89636489.jpg)图片来源：https://timesofindia.indiatimes.com/
+一位参与活动的中共前任海军少校称，并不惊讶锁链女的惨剧会发生在中共国。因为在中共领导的腐朽、专制体制下，还有更多、更悲惨的事件。他说，尽管全球都有拐卖人口案件发生，但像中共国如此之大规模，从政府单位到民间上下都涉入，集体犯罪的情况可能是前所未见。
 
+另有民主人士认为，在一个说错话马上就有警察找上门的国度，在一个充斥监控、大数据盘查的国度，人们却还要担心孩童走失，还要苦苦寻亲；原因很简单，一切根源都是政府。并表示，这些悲剧都是共产党造成的，是中共制度造成的。只有推翻这个邪恶政权，才能保护我们的女儿、我们的妻子，免于遭受像铁链女一样的非人待遇。
 
-据【印度时报】2月17日报道，中共江苏省政府电视台日前声称，将彻查锁链女视频的来龙去脉，意图缓解公众对当局践踏民生的愤怒。
+新闻来源
+[**https://www.epochtimes.com/gb/22/2/21/n13595142.htm**](https://www.epochtimes.com/gb/22/2/21/n13595142.htm)
 
-报道称，锁链女的视频在中共国内迅速传播，其悲惨的经历让所有良知者愤慨。特别是在当局删除媒体上任何关于该消息的报道以及企图掩盖普遍存在的人口贩卖事实之后，进一步引发了国际社会的声讨。
+秘翻新闻 Nomei 编译报道
 
-有评论在对比了金牌获得者谷爱凌与锁链女的情况后指出：与其追捧挂在某个造假女孩脖子上的金牌，不如用良知关注那些在中共国，被拐卖妇女脖子上的金属链所造成的痛苦。
+发布 : 恩典
 
-校对编辑：硫酸羟氯喹64
-
-发稿：青青
-
-原文链接：[jiangsu: As anger grows over chained woman, Chinese province to investigate – Times of India (indiatimes.com)](https://timesofindia.indiatimes.com/world/china/as-anger-grows-over-chained-woman-chinese-province-to-investigate/articleshow/89636449.cms?utm_source=contentofinterest&amp;utm_medium=text&amp;utm_campaign=cppst&amp;from=mdr)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

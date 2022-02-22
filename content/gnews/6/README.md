@@ -2,45 +2,47 @@
 ---
 
 
-## 作为首个金融义工平台H-Pay未来大额取款会收极少费用
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2046070/)
+## 2022年2月21日新闻集
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2046220/)
 
-G-TV视频链接：[https://gtv.org/video/id=621260dc1408ee3a03a25584](https://gtv.org/video/id=621260dc1408ee3a03a25584)
+撰稿人：文远Bruce
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1-20.jpg)
+**1.****普金习近平**** ****策划于密室，点火于基层。**
 
-**郭文贵先生：**这次H-Pay他们做得非常好，就是不能收手续费，但是未来贷款你是要你肯定……贷款你得付利息，要不谁给你钱呐是不是？
+**七哥****2022.2.20****：“普京和习，有两个半小时的单独会谈，没有翻译。他说有一个他俩人的翻译器。这是我听说过的第一次，两国元首商谈世界大事，翻译都不让参加，可见是在谈啥事****…****领导人看电影，很吓人。金正日，金正恩，金日成，看最多的是美国好莱坞的电影。电影严重影响领导人的情绪。普京这两年看的都是战争片。现在闭眼想想，如果到隔壁屋看两集二战片你啥感受****?****”**
 
-另外一个就是说存款给利息，这两点交换它是要赚钱的。那么H-Pay未来大额的是肯定要收钱的，就是你的小额不收，照顾老百姓。但是未来你说：“我取一百万、一千万、一个亿”，是肯定要收钱的，收的也不会那么多，很少的钱，一点基本的成本。就基本上咱是人类上第一个完全做金融义工的这么一个平台。
+**图片：美认为俄已经部署其常规武力的75%对付乌克兰**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide2-3.jpg)
+**2.徐州丰县铁索寒**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide3-4.jpg)
+**3.** 4.**60****甲子轮回**
 
-那么比如说你开餐厅，现在文斌开个餐厅，你卖点饭，一天用个三万五万美元、一万两万美元，然后卖来卖去，这个不能收你钱。我说：“咱么这个喜联储最重要的就是让这些穷人们他不要担心那么多成本。”
+**1962****壬寅年：道琼斯指数从****3****月****16****日****727****点开始下跌，后涨至****4****月****23****日****700****点。随后开始暴跌****25%****至****524****点****(1962****年****6****月****25****日****)**
 
-字幕来源：[2022年2月4日《文贵大直播》全文字版](https://gnews.org/zh-hans/1961700/)
+**2022****壬寅年：****3****月****16****日美国联邦公开市场委员会宣布利率决议**
 
-编辑整理：Jacques；
+**目前道琼斯指数走势已经和道指****1962****年的走势基本重合！！**
 
-字幕文件制作：小满；
+**1962 ****美苏古巴导弹危机**
 
-视频制作及上传：Cindy；
+**     ****中印战争**
 
-G-News发布：小满；
+**2022 ****美俄乌克兰危机**
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+**     台海战争**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide4-2.jpg)
+**（图片来源：金钱爆）**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide5-3.jpg)
+**（图片来源：金钱爆）**
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+**5. jp摩根预测美联储会连续9次加息**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide6-4.jpg)
+**6.** **冬奥金牌榜**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-10.jpg)
+**7. 据报苹果将在今年推出三款使用m2芯片的mac**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-10.jpg)
+编辑：云彩
+![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

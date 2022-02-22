@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@gfashion 2/18/2022 3:57 PM (UTC)`
+
+New Release ✨                                              Shop Now at www.gfashion.com
+![img](https://media.gettr.com/group24/getter/2022/02/18/15/cd5391d2-4bb2-e839-9a2b-d73ab95c68bd/2d2e98576847fd49bce9f896884fc338.jpg)
+
+---
+
 `@miles 2/22/2022 6:03 AM (UTC)`
 
 2/20/2022 Miles Guo: Because the Chinese are too selfish and indifferent, the Bouazizi incident will never occur in Communist China, which is also the result of the Chinese people's lack of faith and morality.<br/><br/>2/20/2022 文贵直播：因为中国人太过的自私和冷漠，在中共国永远不会出现布瓦吉吉事件，这也是中国人缺失信仰和人性道德的结果。<br/>
@@ -149,13 +158,6 @@
 
 2/20/2022 Miles Guo: Upon taking office, Xi formed a political and military alliance with Putin. After that, the CCP signed huge contracts to purchase goods from Russia, with the trade volume between the two countries skyrocketing, and they have formed an all-weather strategic brotherhood partnership in the military. Putin agrees that Asia belongs to Xi.<br/><br/>2/20/2022 文贵直播：习一上任就跟普京结成了政治军事同盟，此后中共便跟俄罗斯签下巨额订单，两国贸易额飙升，并在军事上形成了全天候战略伙伴关系：普大帝已认可亚洲就是习的<br/>
 ![img](https://media.gettr.com/group43/getter/2022/02/21/03/3b9e4a0a-d64a-f9ee-31a0-eccca3050c65/out.jpg)
-
----
-
-`@miles 2/21/2022 2:04 AM (UTC)`
-
-2/20/2022 Miles Guo: What did Xi Jinping and Putin talk about in their private meeting? The fundamental purpose for Xi and Putin to wage wars is to serve their personal safety and political interests. The West is using Ukraine to grind down Xi and Putin's will. Whether or not they are going to invade Taiwan and Ukraine, both of them will perish.<br/><br/>2/20/2022 文贵直播：习普二人单独谈了什么？习普发动战争的根本目的是为其个人安全和政治利益服务；西方正在借乌克兰消磨习普的意志，不论他们是否打台湾或和克兰，他们都将覆灭<br/>
-![img](https://media.gettr.com/group13/getter/2022/02/21/02/9b6f71cc-8bb1-a25e-81d7-dde10193f6f8/out.jpg)
 
 ---
 
