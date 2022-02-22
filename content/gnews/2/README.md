@@ -2,31 +2,12 @@
 ---
 
 
-## 伟大的革命
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2049439/)
+## 2月22日勿忘香港（图片1-4）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2049500/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
-
-2022-02-16直播摘录09：01：53
-
-还有七哥个人破产只会让七哥更强大，让爆料革命更干净更纯洁，更成为史诗般的伟大的人类的革命！
-
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+设计 五月花农场 企鹅
+![](https://assets.gnews.org/wp-content/uploads/2022/02/9CF5FC72-8CCF-49E1-A8CA-77DC7A4C029E.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/AA9050B0-2572-445D-8855-FA0D33FD3F25.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/E59B1EAB-1ABC-402A-A477-88466419666C.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/8D4BAEE1-D646-4419-9532-AA94B8FEBA95.jpeg)
+发布：水涨船高
 
  
 

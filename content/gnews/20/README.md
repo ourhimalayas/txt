@@ -2,31 +2,31 @@
 ---
 
 
-## 加拿大总理候选人皮埃尔：真正的紧急状态时是特鲁多政府的滥用权力
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2049271/)
+## 疫苗使人类大改变
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2049356/)
 
-加拿大温哥华扬帆农场 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_3762.png)图片来源：Twitter
-加拿大总理候选人，皮埃尔2月21日在Twitter发视频抨击特鲁多政府滥用《紧急状态法》镇压卡车司机和平抗议，下面是讲话全部内容：
+文编：Hima
+听写：叮叮
+视频：七哥
 
-仅仅片刻，议会成员将投票决定是否适用以前从未使用过的紧急状态法，赋予政府前所未有的权力来打击你的言论自由，甚至冻结你的银行账户, 如果你向一个他们任意认为违反其目标的政治事业捐款。
+2022-02-16直播摘录08：31：45
 
-我反对这个法案。
+看到了共产党在冬奥会上，轮到你表演的时候，把你拉去测试，你阳了，你复阳了，你别演了。轮到谷爱凌的时候，雪来了；没谷爱凌，雪不行了，打不着雪了，把对方运动员给推倒，是吧？没饭吃。派去女孩给你，把你精子给你抽干，就这种卑鄙的伎俩！就对七哥一样，轮到七哥，红灯；轮到对方是绿灯，是吧？对方还可以逆行，所以说它一模一样的规则。那么疫苗事情和病毒的事情是一模一样，现在人民不准说话，打了药、打了针，你活球该，你打的，你死，你活该死。你觉得这能进行下去吗？我跟你们说过丹麦、挪威咱们的姐妹们儿，政府官员，我跟她们讲，我觉得丹麦、挪威人是最最最Stubborn的，最直的、不会拐弯儿的，但是她被七哥说服。我说你们最简单的道理，你们怎么能相信共产党病毒来源没搞明白，你就能整出疫苗来？还整那么快？那你整出疫苗，为什么你们这些人打了疫苗，你让人家本人负责任？你政府还强推？为什么就不能告诉对方疫苗当中这里边含什么？现在各国开始承认，乙烷墨烯，这里边有。七哥最早在全世界公开，我愿承担法律责任说的。兄弟姐妹们，人类不是大重启，人类是彻底大改变。所以说到这的时候，兄弟姐妹们，今天我们很多话题。
 
-这个法案到底是用来干什么的呢？总理说，这是为了停止封锁。然而，在他宣布这项法案之前，加拿大各地的边境口岸的封锁已经结束。他又说，这是因为卡车司机停在国会山前的街道上。那么，正如你所看到的，这里不再有卡车停放。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-事实上，渥太华市中心从来没有像现在这样安静过。那么，在事情如此平静的情况下，平静到我可以站在这条街道的中间，赋予政府这些特殊权力的真正目的是什么？
+**关注我们**
 
-当然，议程与贾斯汀·特鲁多从大流行开始时的议程相同，那就是利用危机和恐惧为自己争取更多的权力。 无论是特鲁多还是任何其他政治家，都没有资格向和平的公民部署权力。我将反对这项法案，作为（未来）总理，我将确保这种滥用权力的行为不再发生。
+Discord 账号
 
-取代这个法案，我们真正应该做的是取消其他限制，摆脱疫苗强制，让我们的企业和工人重新回到他们的生活中。加拿大人觉得他们已经失去了对自己生活的控制。现在是我们把控制权还给民众的时候了，让我们一起努力，使加拿大成为世界上最自由的国家。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-同时，请在我的请愿书上签字[https://docs.google.com/forms/d/e/1FAIpQLSffPlC4v3QpMMPfMCOHeglxCjLOBYQHdsbSBmjClpq9dnccDg/viewform](https://docs.google.com/forms/d/e/1FAIpQLSffPlC4v3QpMMPfMCOHeglxCjLOBYQHdsbSBmjClpq9dnccDg/viewform)以扭转《紧急状态的法案》，并重新获得自由。
+Gettr 账号
 
-原文链接：
-[https://twitter.com/pierrepoilievre/status/1495934087567228930?s=11](https://twitter.com/pierrepoilievre/status/1495934087567228930?s=11)
-
-编辑，发稿 Spirit
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
