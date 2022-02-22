@@ -2,33 +2,24 @@
 ---
 
 
-## 视频|郭先生揭密习普二人密谈内容
-` MOSvideo` [轉載自GNews](https://gnews.org/zh-hans/2046673/)
+## 中日财经爆|日本1月份超市销售额增长4.0% 连续5个月超过上年
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2046764/)
 
-制作：香草山视频部
+撰稿：东京樱花团/peterwong
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/logo-s2.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/日本1月份超市销售额增长4.0-连续5个月超过上年.png)[图片来源](https://gnews.org/wp-admin/post-new.php#imgrc=ki8xDXncZ1a8qM&amp;imgdii=ChgtM-LRbqGqWM)
 
+日本连锁店协会22日公布，1月份全国超市销售额同比增长4.0%至11,091亿日元，连续5个月超过上年。
 
+在中共病毒（新冠病毒Covid-19）疫情的长期影响下，居家吃饭的趋势已经形成，食品销售继续表现良好，服装和住房相关产品也表现稳定。
 
-在2月18日的大直播中，郭文贵先生揭密了习近平与普京的密谈内容，指出他们发动战争的根本目的，是为其个人安全和政治利益服务。
+消息来源:
 
-郭先生透露，习近平将中国人一万多亿美元的血汗钱交给普京，换来他们两个多小时的单独密谈。无非就是习近平在怂恿普京，二人同时发动侵略战争，其代价是美国的制裁，把中俄踢出SWIFT系统。但是二人的政治地位会得到空前的巩固，一切政治对手也都会被消灭。如果不发动战争，那么中俄内部的政治斗争，则会让二人丧命。因为一切对外战争，都是内部政治灾难的延续，对中共和俄罗斯来说尤其如此。这两场战争看似政治野心，实则是习近平和普京个人安全和政治安危所需。
+[全国スーパー１月売上高４・０％増、５か月連続で前年同月を上回る…食料品が引き続き好調](https://www.yomiuri.co.jp/economy/20220222-OYT1T50164/)
 
-郭先生进一步解密说，乌克兰其实是世界政治中的一枚棋子，美国和欧洲正在利用乌克兰人民的生命和安全，来消磨习普二人的意志。他们无论是否发动侵略战争，都无法避免灭亡的命运。
-
-发稿：Yuki jiang
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpeg)
-
-**更多资讯，更多关注**
-
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

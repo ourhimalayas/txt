@@ -2,45 +2,38 @@
 ---
 
 
-## 前职业足球运动员接种中共病毒疫苗加强剂5天后死亡
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/2046666/)
+## 西喜时事新闻简报-美国时事篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2046763/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Picture1-16.png)
+**翻译：土饭团**
 
-图片来自原文
+[1.中共国如何做到可能已经用美元赢得了与美国的冷战](https://www.foxnews.com/media/china-cold-war-us-economic-warfare)
 
-前马来西亚足球运动员塞尔贝格斯·辛格（Serbegeth Singh），昵称谢比·辛格（Shebby Singh），于1月12日星期三在外出骑车时因心脏病发作而突然死亡。
+福克斯新闻2月21日电，佛罗里达州共和党众议员Michael Waltz在采访中概述了他认为中共国在与美国的冷战中所采取的长期经济战战略。中共国故意让美国在重要商品上依赖他们，这不仅是美国的就业问题，也是国家安全问题。我们不能依赖我们最大的对手来维持我们社会的运转，而美国公司绝对是同谋。
 
-近年来一直担任足球评论员的谢比，在五天前（1月7日）刚接种了中共病毒（COVID-19）疫苗加强剂。
+2.[民主党战略家:北京奥运会是国际社会的“彻底失败”](https://www.foxnews.com/media/beijing-olympics-complete-failure-democrat-stategist-kevin-walling)
 
-谢比的儿子索努尔吉特·辛格（Sonuljit Singh）告诉《今日自由马来西亚》，他的父亲在1月7日打了加强剂，五天后就离开了我们，大家都知道。我们不知道他打了什么牌子的加强剂，因为MySejahtera应用程序[马来西亚的中共病毒（COVID）二维码应用程序]还没有更新。
+福克斯新闻2月20日电，民主党战略家Kevin Walling周日表示，代表国际社会的2022年北京冬奥会是一次“彻底的失败”，历史最低的收视率证明了对北京主办冬奥会的普遍反对。国际奥委会坚称其在政治问题上是中立的，奥运会是“关于运动员和为运动员服务的”，但他们对“活跃在中共国的种族灭绝”视而不见的决定是国际社会的耻辱。
 
-但医生告诉我们，他的死因99%与心脏病有关，因为他的验尸报告显示，他的三条冠状动脉有堵塞现象。他的所有重要器官都处于完美的工作状态，也没有任何过敏反应的迹象。
+3.[受中共国制裁的美国前最高外交官Pompeo将访问台湾](https://www.reuters.com/world/asia-pacific/mike-pompeo-who-riled-china-while-office-visit-taiwan-2022-02-21/)
 
-谢比的突然去世甚至引起了马来西亚国王和王后的回应，国王和王后非常感谢他对国家的服务和牺牲。他的去世是马来西亚足球的一大损失。
+路透社2月21日电，台湾政府周一表示，前美国国务卿Pompeo在去年Trump总统任期结束卸任时受到中共国制裁，他将于下周访问台湾，并与蔡英文总统会面。台湾外交部表示，Pompeo和他的妻子将于3月2日至5日访问这个被中共国声称拥有主权的岛屿，还将会见外交部长吴钊燮，并在一个智库发表演讲。
 
-谢比在他的足球生涯中担任后卫，并代表马来西亚国家队出场61次，在1989年东南亚运动会上赢得一枚金牌。
+4[.分析：如果俄罗斯对乌克兰采取行动，中共国将在外交上支持俄罗斯](https://www.reuters.com/world/europe/china-would-back-russia-diplomatically-if-it-moved-ukraine-2022-02-19/)
 
-退役后，他继续从事这项运动，在亚洲担任教练和体育广播员。他还担任过马来西亚超级联赛俱乐部马六甲TMFC的技术顾问，后来又成为英国足球俱乐部布莱克本流浪者队的全球顾问。
+路透社2月19日电，专家表示，如果俄罗斯入侵乌克兰，加剧恶化北京与西方本已紧张的关系，中共国将在外交或经济上支持俄罗斯，但将停止提供军事支持。中共国会扩大与俄罗斯的经济合作，这将削弱西方承诺的制裁的影响。在国际社会如此两极分化的情况下，美国和西方可能会联合起来孤立或制裁中共国与俄罗斯。
 
-谢比在马来西亚广受欢迎，作为一名专家和广播员，他以对足球运动的热情和激情而闻名，每当他提出直言不讳的观点时，成千上万的观众都会紧盯着屏幕。
+5.[Nancy Pelosi:美国国会对中共国人权的承诺是两党共同的](https://www.aninews.in/news/world/us/us-congress-commitment-to-human-rights-in-china-is-bipartisan-nancy-pelosi20220222105222/)
 
-他于周五火化，留下了他的妻子哈班斯·考尔和两个孩子，纳塔莎·考尔(Natassha Kaur)和索努尔吉特-辛格(Sonuljit Singh)。
+ANI 2月22日电，美国众议院议长Nancy Pelosi周一重申了美国国会两党对中共国人权问题的承诺。“从最近对维吾尔族的种族灭绝，到对西藏文化、宗教和语言的侵略，到对香港基本自由的镇压，到整个中共国对记者、活动人士和持不同政见者的监禁，以及对台湾的恐吓等等，”她在美国国会及行政当局中国委员会的证词中说。
 
-备注：
+* * *
 
-- 疫苗：是指新冠疫苗
-- 中共病毒：是指新冠病毒Covid-19
-- Covid疫苗本身就是随时爆发的病毒
-- 我们不反疫苗，只针对假疫苗
-- 我们不反科学，只针对反人类
+*审核：阿伯塔
+校对：小东
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-6.jpeg)
 
-
-新闻来源链接：[https://thecovidworld.com/serbegeth-singh-former-pro-football-player-dies-5-days-after-receiving-covid-19-booster-shot/](https://thecovidworld.com/serbegeth-singh-former-pro-football-player-dies-5-days-after-receiving-covid-19-booster-shot/)
-
-本文作者：Rebecca (一切心皆不可得！)
-
-上传排版：Hong
 
  
 

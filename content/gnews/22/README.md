@@ -2,24 +2,40 @@
 ---
 
 
-## 武汉蝙蝠女渗透美国微生物学研究院
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2046568/)
+## 俄罗斯财政部推出数字货币法案，无视央行的反对意见
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2046620/)
 
-#### 采编/翻译：意翎
+#### 翻译/编辑：小红帽
 
-#### 责编：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/02/120254757_10160228494915200_353558479035758840_n-2.jpg)图片来源：Facebook of American Society for Microbiology 
-记者娜塔莉·温特斯（Natalie Winters）于《国家脉动》撰文揭露：臭名昭著的武汉实验室蝙蝠女石正丽（Zhengli Shi）当选为美国微生物研究学研究院（AAM）的领导，该机构从美国纳税人那里获取数百万元的资助，并建议联邦政府在高级别生物安全实验室“消除国际合作的障碍”。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/7def7a23-8979-40e2-a349-f0299951ccc5.jpg)图片来源： cointelegraph.com
 
-石正丽经营着备受争议的中共病毒武汉实验室的新兴病毒传染病中心，她最早研究将蝙蝠携带的致命病毒用于感染人类，并获得了安东尼·福奇（Anthony Fauci）国家卫生研究所（NIH）的资助。对公众来说，中共新冠病毒就是从武汉这里开始的。然而，现在，她以生态健康联盟主席彼得·达扎克（Peter Daszak）“长期合作者”的身份，掩盖Covid-19的起源，并且她在美国科学机构中的领导地位却是由美国纳税人来承担的。在《国家脉动》独家报道了达扎克与蝙蝠女的利益链接后，达扎克被从新冠肺炎溯源小组中除名。
 
-2019年1月石正丽获取AAM“荣誉领导小组”的研究员职位，这个美国微生物协会（ASM）的顾问角色让她对该机构的方向产生了影响，该机构在2020年获得了超过530万美元的联邦资金。ASM有个倡导计划，它部署其成员就公共卫生问题和研究条例以及包括与生物安全四级（BSL-4）设施有关的政策向国会进行游说，而蝙蝠女所在的武汉病毒学研究所就设有BSL-4实验室。至今，石正丽仍然保留在ASM网站页面上，尽管美国《国家脉动》多次提出评论，但ASM和AAM都没有回应关于石正丽目前状况或与她的研究有关细节的询问。
+根据Cointelegraph 2月22日报道，**俄罗斯财政部在与俄罗斯中央银行（CBR）漫长的对决中提高了赌注，正式提出一项法案，建议对数字资产进行监管，而不是禁止数字资产。**
 
-2009年，罗纳德·阿特拉斯（Ronald Atlas）教授代表ASM在国会作证，透露该组织一直在为联邦政府提供高安全系数实验室方面的建议。他说：“过去两年，ASM会晤了联邦任务的生物安全和生物遏制监督行政工作组，旨在加强美国生物安保并恢复秩序，ASM向这些小组提出了一些建议，”阿特拉斯还代表ASM建议NIF改变对高风险设施的国际合作的监管，他辩解：“这些不是武器实验室，而是为了保护公众健康而进行调查的研究实验室……NIF要求外国机构必须拥有与美国相当的设施与标准，应该改变我们与外国机构的合作关系，以消除国际合作的障碍。”
+周一，俄罗斯财政部向政府提交了一份“关于数字货币”的联邦法律草案。这一阶段的立法程序先于法案提交议会审议。
 
-**原文链接：**
+该机构将“数字货币合法市场的形成，以及确定其流通规则和参与者范围”作为这一举措的理由。该法案的作者强调，该法案并不寻求赋予数字货币以法定货币地位，而是将加密货币定义为一种投资工具。
 
-[EXC: Wuhan’s ‘Batwoman’ Advises a U.S. Taxpayer-Funded Group Which Lobbies Congress for Lower Standards for Foreign BioLabs.](https://thenationalpulse.com/2022/02/18/shi-zhengli-on-asm-leadership-board/)
+该法案为促进数字资产流通的平台提出了许可制度，并规定了此类运营商应遵守的审慎、风险管理、数据隐私和报告要求。**合法购买和销售加密货币只能通过银行账户进行，并建议加密货币平台和银行都引入了解你的客户程序（KYC）。**
+
+该立法还要求数字资产运营商告知零售客户与加密货币交易相关的风险。个人必须通过一项测试，评估他们对加密投资行为和风险意识的了解。通过测试的人将受到每年60万卢布（约合7900美元）的投资限额；未通过测试的人每年最多只能投资5万卢布（650美元）。企业和合格投资者将不受年度限额的限制。
+
+此外，**该法案引入了加密采矿的正式定义，并指定了加密市场参与者可以向税务机关报告其活动的机制。**
+
+财政部的法案是在俄罗斯银行将自己的数字资产框架提交给财政部审查的几天后发布的。俄罗斯中央银行的立场保持不变：发行数字资产并促进其流通被视为非法，而银行和其他金融机构不应该允许持有或交易加密货币。最新草案中还包含的一项新条款–提议取缔加密货币广告。
+
+财政部和中央银行预计，未能在周五之前调和他们的立场，反而产生了两项相互矛盾的立法。财政部的新闻稿讽刺地提到，中央银行的提议“将在法案制定的后期考虑，只要它们不与财政部的做法相抵触。”
+
+新闻链接：[Russia’s Finance Ministry introduces digital currency bill, brushes off central bank’s objections](https://cointelegraph.com/news/russia-s-finance-ministry-introduces-digital-currency-bill-brushes-off-central-bank-s-objections)
+
+发布:Frank2021
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

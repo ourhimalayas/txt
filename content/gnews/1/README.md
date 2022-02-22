@@ -2,36 +2,42 @@
 ---
 
 
-## 欺骗性的新闻报道和丑闻缠身的CNN创下最差收视率
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/2046783/)
+## 担忧中共国与俄罗斯，澳洲制定投资南极探索计划
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2046903/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Picture2-5.png)
+#### 【雅典娜观察】和您一起洞察世界
 
-图片来自网络
+翻译/编辑：文泓
 
-据报道，曾被称为 “最值得信赖的新闻台 “的CNN上周的收视率骤降至七年来的历史新低。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/14-11.png)图片来源：Windobi & 雅典娜设计组
 
-在过去一年中，CNN不断的欺骗性新闻报道和一连串高调的丑闻中，这个左翼新闻网络平台失去了90%的观众。
 
-从2月7日至13日，它 “平均只有44.4万名观众”，是2015年11月福克斯新闻以来的最低收视率。即使在CNN的黄金时段播出，它的平均收视率也只有49.1万。
+去年11月，澳洲政府取消了在南极洲修建一条2.7公里长的混凝土跑道的计划，这引发了澳大利亚在南极洲的竞争会输给其他国家的讨论。
 
-2月14日星期一，CNN网络开始运行一个付费广告。内容来自中国共产党的国营媒体组织–中国西部传媒。CNN的广告名为 “无与伦比的冬奥盛会”，强调了奥运赛事和中国共产党使环境 “更绿色 “所做的努力。
+参议员埃里克·阿贝茨说：“在中国和俄罗斯迅速扩大在南极冰原足迹之际，澳洲绝对不能放松自己的立足点，以确保国际社会不会怀疑我们对南极洲的承诺。”
 
-同时，CNN完全忽视了冬奥会中大量人造滑雪道造成环境污染的事实。
+目前，澳洲科学家将根据一项耗资8.04亿澳元的联邦计划扩大对南极洲的探索，该计划将使用无人机机队和自动驾驶汽车来加强科研，因为中共国和俄罗斯在南极洲的频繁活动不断引发人们担忧。
 
-CNN也完全没有报道运动员在中共国检疫的违规行为–他们被强行 “拉去隔离 “的事实。
+莫里森总理在一份声明中说：“我们投资于无人机机队、直升机和其他车辆，将使我们能够探索以前没有任何国家能够到达的东南极洲内陆地区。”
 
-12月，华纳媒体首席执行官杰森-基拉尔(Jason Kilar)发布了一份全公司范围的备忘录，警告戈尔斯特、扎克和库莫违反公司政策，包括CNN的新标准和行为守则。
+“政府将继续为我们的世界级科学家和探险者提供必要的资金和资源，因为他们在南极大陆[和南大洋](https://www.theage.com.au/link/follow-20170101-p5806l)的研究对澳大利亚的未来至关重要；我们在南极洲的持续投资将直接支持国内的工作，澳洲企业、承包商、医疗供应商和供应商将从当地采购中获益。”
 
-CNN暂停了其黄金时段明星克里斯-库莫（Chris Cuomo）的工作，因为这位主播被发现秘密帮助他陷入困境的弟弟、前纽约州长安德鲁-库莫辩护性骚扰指控，导致他辞职。炒掉他的决定是在CNN的律师收到一位女性代表的来信后做出的，她声称科莫在2011年邀请她到他的办公室吃午饭后对她进行了性侵犯，当时他们都在ABC新闻工作。
+此外，政府已经为12月下水的新破冰船Nuyina投入了19亿澳元，并接受了2018年对南极作业审查的所有建议，进而成立了澳南极科学委员会来协调研究。
 
-本月早些时候，CNN老板杰夫-扎克（Jeff Zucker）在承认他没有披露与CNN执行副总裁兼首席营销官艾莉森-戈尔斯特（Allison Gollust）的自愿关系后辞职。戈尔斯特也于周四辞职。
+新的支出包括1.366亿澳元用于支持环境保护、移动基站和其他绘制非洲大陆地图的措施，以及1.09亿澳元用于空中作业。
 
-新闻来源链接： 
-[https://thecovidworld.com/canadian-government-resorts-to-financial-terrorism-against-peaceful-protesters-showing-why-we-can-never-trust-banks-or-fiat/](https://thecovidworld.com/canadian-government-resorts-to-financial-terrorism-against-peaceful-protesters-showing-why-we-can-never-trust-banks-or-fiat/)
+环境部长苏珊·莱伊在一份声明中说：“我们需要确保南极仍然是一个从事科学和环保的地方，一个没有冲突、不受剥削的地方。”
 
-本文作者：Rebecca (一切心皆不可得！)
-上传排版：Hong
+参考链接：[Drone fleets and autonomous vehicles added to Antarctica research program (theage.com.au)](https://www.theage.com.au/politics/federal/drone-fleets-and-autonomous-vehicles-added-to-antarctica-research-program-20220221-p59yf9.html?utm_medium=Social&amp;utm_source=Twitter#Echobox=1645443594-1)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

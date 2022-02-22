@@ -2,40 +2,26 @@
 ---
 
 
-## 俄罗斯财政部推出数字货币法案，无视央行的反对意见
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2046620/)
+## 向中国城管看齐？渥太华市长提议出售从抗议者手中缴获的卡车
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2046695/)
 
-#### 翻译/编辑：小红帽
+#### 翻译/撰稿：zzballack
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/7def7a23-8979-40e2-a349-f0299951ccc5.jpg)图片来源： cointelegraph.com
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-103.png)图片来源：加拿大广播公司
+据《布雷特巴特新闻网》（Breitbart News）2月21日报道，渥太华市长吉姆·沃森 (Jim Watson)上周六（2月20日）在接受加拿大广播公司（CBC）采访时，提议出售那些警方在暴力镇压和瓦解自由车队和平抗议行动中扣押的卡车和其它车辆。沃森认为，根据特鲁多政府动用的《紧急状态法》（Emergency Act），此举是渥太华的合法权利。
 
+沃森告诉CBC说：“我们实际上有能力没收这些车辆并出售它们。我也希望看到它们被卖掉，而不是物归原主。”上周末，渥太华的执法部门在暴力镇压抗议活动中拖走了76辆车，逮捕了191人，并对他们提出了391项指控，包括恶作剧和阻挠警察。
 
-根据Cointelegraph 2月22日报道，**俄罗斯财政部在与俄罗斯中央银行（CBR）漫长的对决中提高了赌注，正式提出一项法案，建议对数字资产进行监管，而不是禁止数字资产。**
+在特鲁多动用《紧急状态法》之前，警方很难找到愿意在渥太华拖走半挂车（semi-truck）和其他车辆的拖车运营商。但《紧急状态法》实施后，政府可以强迫拖车运营商进行工作，如果他们拒绝，就可能面临罚款或监禁。
 
-周一，俄罗斯财政部向政府提交了一份“关于数字货币”的联邦法律草案。这一阶段的立法程序先于法案提交议会审议。
+特鲁多2月21日声称，尽管渥太华的车队被清除，但他的政府仍然需要紧急权力。“很明显，地方和省级当局需要更多的工具来恢复秩序和确保人民的安全。渥太华的事情似乎解决得很好，但紧急状态并没有结束。”特鲁多此前承诺说，他动用的紧急权力将有“时间限制和地理目标，而且是合理、恰当的。”
 
-该机构将“数字货币合法市场的形成，以及确定其流通规则和参与者范围”作为这一举措的理由。该法案的作者强调，该法案并不寻求赋予数字货币以法定货币地位，而是将加密货币定义为一种投资工具。
+加拿大已沦为一个独裁国家，独裁者一旦攫取了更多权力后肯定不会轻易放手。过去这两年的大流行就是最好的证明，各国政府纷纷以紧急状态为借口对百姓实施监控，人们的自由权利被逐步掠夺和侵蚀。除非不懈抗争，否则只能像温水煮青蛙那样，逐步沦为全球主义精英的奴隶。
 
-该法案为促进数字资产流通的平台提出了许可制度，并规定了此类运营商应遵守的审慎、风险管理、数据隐私和报告要求。**合法购买和销售加密货币只能通过银行账户进行，并建议加密货币平台和银行都引入了解你的客户程序（KYC）。**
+新闻来源：
 
-该立法还要求数字资产运营商告知零售客户与加密货币交易相关的风险。个人必须通过一项测试，评估他们对加密投资行为和风险意识的了解。通过测试的人将受到每年60万卢布（约合7900美元）的投资限额；未通过测试的人每年最多只能投资5万卢布（650美元）。企业和合格投资者将不受年度限额的限制。
-
-此外，**该法案引入了加密采矿的正式定义，并指定了加密市场参与者可以向税务机关报告其活动的机制。**
-
-财政部的法案是在俄罗斯银行将自己的数字资产框架提交给财政部审查的几天后发布的。俄罗斯中央银行的立场保持不变：发行数字资产并促进其流通被视为非法，而银行和其他金融机构不应该允许持有或交易加密货币。最新草案中还包含的一项新条款–提议取缔加密货币广告。
-
-财政部和中央银行预计，未能在周五之前调和他们的立场，反而产生了两项相互矛盾的立法。财政部的新闻稿讽刺地提到，中央银行的提议“将在法案制定的后期考虑，只要它们不与财政部的做法相抵触。”
-
-新闻链接：[Russia’s Finance Ministry introduces digital currency bill, brushes off central bank’s objections](https://cointelegraph.com/news/russia-s-finance-ministry-introduces-digital-currency-bill-brushes-off-central-bank-s-objections)
-
-发布:Frank2021
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[Ottawa Mayor Wants to Sell Trucks Confiscated from Freedom Convoy Protesters](https://www.breitbart.com/politics/2022/02/21/ottawa-mayor-proposes-selling-trucks-confiscated-during-freedom-convoy-protests/)
 
  
 

@@ -2,44 +2,32 @@
 ---
 
 
-## 直播历史:冬奥会变冬眠会普京随扈16人染病盘古狙击手死
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2046574/)
+## 视频|中共国音乐界将发生金融阿比比事件
+` MOSvideo` [轉載自GNews](https://gnews.org/zh-hans/2046633/)
 
-G-TV视频链接：[https://gtv.org/video/id=621264611408ee3a03a25822](https://gtv.org/video/id=621264611408ee3a03a25822)
+制作：香草山视频部
 
-**郭文贵先生：**所以今天七哥在这直说，今天大好的日子，大好的日子，共产党的冬奥会开没开成“冬眠会”你们自己评价去。普京这16个人染上病毒结果如何、你看看啥样儿吧。盘古后面死人，就地狙击手狙击队长死掉意味着什么？整个奥运会开幕式屏蔽掉盘古，又在盘古直播，这有多不要脸？所谓33国元首在全世界加在一起的钱、加在一起的力量连美国一个州都不如，我告诉你，美国，美英法，是吧？
+![](https://assets.gnews.org/wp-content/uploads/2022/02/logo-s2.png)
 
-这过去都没去，如何……你这从过去大英帝国和美利坚共和国和中国的整个的外交史，对中国人的尊重和文明的来往，再看今天的冬奥会，中国人到了世界上人类上最差的程度，中国人再不救自己（就）没人救咱。
 
-现在共产党怕新中国联邦，怕七哥，怕盘古，我们新中国联邦我们所有战友们在H-Pay全球流行、金融新未来、制定新金融标准情况下，更应该看到我们的未来，是吧？这个今天的直播非常有意义！虽然一夜没睡觉，很兴奋，随时紧急大直播啊，好不好？我就今天我就说到这儿，我先下线。
 
-字幕来源：[2022年2月4日《文贵大直播》全文字版](https://gnews.org/zh-hans/1961700/)
+2月20日，郭文贵先生在大直播节目中爆料，中共国内的音乐界、娱乐界即将发生颠覆性的大事，而中共国的金融、房地产将会开启新一轮的恶化和崩塌。
 
-编辑整理：Jacques；
+郭先生表示，中共实际第二号政治人物彭丽媛的精神状况非常不好，原因是演艺界、音乐界在冬奥会后将会发生颠覆性质的剧变。此前，为了营造出“国泰民安”的冬奥氛围，中共是严禁本国的房地产业在此期间出现破产现象，而被中共一贯用于洗黑钱的娱乐界、歌星、明星们，他们背后链接的一系列经济丑闻也不容许在这一时期被媒体曝光。而目前，中共的经济崩塌已到了纸包不住火的程度。
 
-字幕文件制作：小满；
+同时，郭先生向世界预警，中共国将会迎来一场金融阿比比事件，届时，中共的房地产业会开启一个新的恶之轮回。而这次的金融阿比比事件，将从中共的音乐界开始。
 
-视频制作及上传：Cindy；
+发稿：Yuki jiang
 
-G-News发布：小满；
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpeg)
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+**更多资讯，更多关注**
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 
