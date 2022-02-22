@@ -2,8 +2,8 @@
 ---
 
 
-## 20220220文贵大直播：新中国联邦反洗脑首先以教育入手
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2046988/)
+## 20220220文贵大直播：普京和习之间一定有惊天的秘密 步调始终一致
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2047002/)
 
 作者：东京樱花团视频小组
 

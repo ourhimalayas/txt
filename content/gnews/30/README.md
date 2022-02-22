@@ -2,33 +2,56 @@
 ---
 
 
-## 视频|郭先生揭密习普二人密谈内容
-` MOSvideo` [轉載自GNews](https://gnews.org/zh-hans/2046673/)
+## 呼喊
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2046836/)
 
-制作：香草山视频部
+作者：纽约香草山教育部-蓝之灵（hortênsia)
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+醒来，醒来
+我们声嘶力竭呼喊
+为何你
+沉默如石
+冷漠如铁
+听不到我们呼喊劝说
+病毒不是终极
+疫苗才是目的
+醒来、醒来
+认清他魔鬼面目
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/logo-s2.png)
+乌云笼罩天地
+欲阻止阳光透出
+当天空有一丝缝隙
+伸出双手
+迎接日出
+努力，努力
+把缝隙裂成峡谷
+吞没黑暗沼泽
+光明普照大地
+魔鬼们送入地狱
+我们要欢呼胜利
+醒来，醒来
+莫做魔鬼陪葬悲泣
 
+醒来，醒来
+听到我们呼喊
+青蒿素是救赎
+一切还来得及
+莫做魔鬼陪葬悲泣
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_9272.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1-2.png)
 
-
-在2月18日的大直播中，郭文贵先生揭密了习近平与普京的密谈内容，指出他们发动战争的根本目的，是为其个人安全和政治利益服务。
-
-郭先生透露，习近平将中国人一万多亿美元的血汗钱交给普京，换来他们两个多小时的单独密谈。无非就是习近平在怂恿普京，二人同时发动侵略战争，其代价是美国的制裁，把中俄踢出SWIFT系统。但是二人的政治地位会得到空前的巩固，一切政治对手也都会被消灭。如果不发动战争，那么中俄内部的政治斗争，则会让二人丧命。因为一切对外战争，都是内部政治灾难的延续，对中共和俄罗斯来说尤其如此。这两场战争看似政治野心，实则是习近平和普京个人安全和政治安危所需。
-
-郭先生进一步解密说，乌克兰其实是世界政治中的一枚棋子，美国和欧洲正在利用乌克兰人民的生命和安全，来消磨习普二人的意志。他们无论是否发动侵略战争，都无法避免灭亡的命运。
-
-发稿：Yuki jiang
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpeg)
+**审稿/校对/发稿：**qiutian（邱甜）
 
 **更多资讯，更多关注**
 
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

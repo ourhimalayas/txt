@@ -2,47 +2,58 @@
 ---
 
 
-## 人民车队向华盛顿挺进 国会大厦将再竖围栏
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2046911/)
+## 【TopNews】新西兰病例数爆炸式增加时期即将发现“低技能”工人的真正价值
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/2046945/)
 
-翻译：Lulumi
+随着疫情持续扩散、病例数爆炸式增加，新西兰将有大量的所谓“低技能”劳动者感染或被迫隔离。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2037.png)由于2021年1月6日国会大厦骚乱后的安全问题，围栏在去年的大部分时间里都一直被保留。
+NZ Herald商业编辑、专栏作家Damien Venuto发文称《新西兰即将发现“低技能”工人的真正价值》。
+![图片](https://mmbiz.qpic.cn/mmbiz_jpg/KtRNQQrEUGmNU7KYdrWHw12Uw4yz5vwtyJqoxb3RqXFqkhmfricic3F6icwISKzVsg7p8hIHKdqr7zndp2UeOxiaGQ/640?wx_fmt=jpeg&amp;wxfrom=5&amp;wx_lazy=1&amp;wx_co=1)
 
-美国警察表示“知道”抗议口罩和疫苗强制令的卡车司机组成的“自由车队”正前往华盛顿特区。
+（图片：网页截图）
 
-在2021年的大部分时间里包围国会大厦的围栏将在下周重新安装，因为国会准备在3月1日接待乔·拜登总统发表其首次国情咨文。
 
-美国国会大厦警察正在为抗议口罩和疫苗规定的卡车司机做准备，因为“自由车队”在加拿大示威数周并造成重大封锁后，将前往华盛顿特区。
 
-抗议者能够封锁温莎和底特律之间的大使桥边境口岸，因为他们对中共病毒COVID-19有关戴口罩和强制接种疫苗的规定表示厌恶。
+随着这种高传播性毒株在新西兰肆虐，这些工人将被迫在家隔离，更糟糕的是，他们的工作无法在家完成。
 
-现在，加利福尼亚人正计划加入一个被称为“人民车队”的美国抗议活动，并在本周前往华盛顿特区。
+“我们已经得到警告，在疫情爆发的高峰期，可能会有多达35万名新西兰人同时在家隔离。”
 
-这场新的示威活动计划于周三从加利福尼亚州的巴斯托出发，在40号州际公路上进行。这一抗议活动的全国组织者莫琳·斯蒂尔说，她不会透露具体的地点，因为担心会受到报复。
+文章称，上周的数学模型显示，在疫情持续三到四个月的情况下，预计总共会感染150万人，包括386,400例病例、11,500例住院和460例死亡。
 
-斯蒂尔告诉Newsmax，预计大约有1000辆卡车开始游行，她预计随着车队向东行驶，会有更多的卡车加入进来。
+很多行业已经做好准备，譬如奥克兰机场就计划损失四分之一的劳动力，超市公司Foodstuffs预计这一数字将接近30%。葡萄酒行业警告，今年的收成面临巨大挑战。
 
-斯蒂尔承认：“加拿大的车队在事情发生时非常有组织。我们的车队，他们有一个月的通知，所以我们担心的是破坏性团体的加入。我们试图只是为反抗议做准备，并为此采取安全防范措施。
+Venuto写道：
 
-“这是关于我们的权利，以及后代的自由，”车队组织者在Facebook上写道。“这不是关于政党，而更多的是关于一个忘记了自己的位置，不顾我们的开国元勋的指示的政府。”
+“我们很快就会看到被政客们贬低为‘低技能’的工人们的真正经济价值。”
 
-据福克斯新闻周日报道，安全官员正在重新竖起国会大厦周围的围栏，准备在拜登发表今年最重要的演讲时，阻止这些抗议活动冲击国家的国会大厦。
+随着疫情大面积爆发，各行业员工缺勤将对新西兰经济造成严重影响。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2039.png)一个被称为“人民车队“的新卡车司机抗议活动将于周三从加州巴斯托出发，前往华盛顿特区。
+新西兰Footprint Connect和Umbrella Wellbeing两家公司本月发布的一份白皮书指出，数据表明，2020年新西兰经济因工人缺勤损失了18.5亿纽币，平均每个工人缺勤4.2天/年。随着Omicron笼罩新西兰全国，可以预计未来几个月新西兰工人生产力的损失将是巨大的。
 
-在演讲之前，美国一直在放松口罩要求和疫苗接种强制令，而且随着2022年中期选举的到来，民调显示美国人越来越不关心中共病毒威胁，而更担心经济、通货膨胀和税收问题以及教育问题。
+随着大量的一线工人在未来几周将被感染、因密接在家隔离或需要照顾染病的家人，我们面对的将是空货架、无人配送的包裹以及烂在树枝上的水果。![图片](https://mmbiz.qpic.cn/mmbiz_jpg/KtRNQQrEUGmNU7KYdrWHw12Uw4yz5vwtgwuWnm26VSYboLmMmTibKibqAw01Nk1BTLHU4oJrbuDUtd1OtobhLzXQ/640?wx_fmt=jpeg&amp;wxfrom=5&amp;wx_lazy=1&amp;wx_co=1)
 
-至少有四个蓝州已经结束了对学校的口罩规定，白宫谴责了疾病控制和预防中心（CDC）关于室内口罩的指导方针。
+Photo: RNZ / Claire Eastham-Farrelly
 
-素材链接：[dailymail.co.uk][Capitol perimeter fence erected after January 6 riot will be REINSTALLED ahead of Biden’s State of the Union address on March 1 as the truckers’ Freedom Convoy heads for Washington](https://www.dailymail.co.uk/news/article-10533055/Capitol-fence-reinstalled-ahead-Bidens-State-Union-trucker-convoy-heads-DC.html)
+很显然，称呼这些工作人员为“低技能”是不合适的。有政界人士和专家呼吁将他们称为“低工资”工人，因为事实就是如此。
 
-* * *
+在去年的预算前演讲中，总理阿德恩称新西兰移民法即将调整，将使政府“将吸引高技能而不是低技能移民”。
 
-*审核：文乐
-校对：小东
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-6.jpeg)
+“对于一个用词如此谨慎的政府来说，贬低数十万新西兰人的日常工作是多么轻而易举。”Venuto说。
+
+低薪工作是不一定令人愉快的工作，存在感不强。只有当它突然消失，外界才会注意到。就像空气和水。“这正是未来几个月将会看到的。”
+
+我们即将进行一项实验，看看当这些没有人喜欢做的工作突然消失了，会发生什么。
+
+[援引链接：](https://www.nzherald.co.nz/business/damien-venuto-new-zealand-about-to-find-out-the-real-value-of-low-skilled-workers/WZZ5E55HCKQE6TFL6TOIE2QPR4/)
+
+撰稿/米拉雅
+
+审阅/邱杰斯
+
+上传/天赐良闻
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
