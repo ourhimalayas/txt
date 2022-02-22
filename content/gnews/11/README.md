@@ -2,31 +2,28 @@
 ---
 
 
-## 运动创始人破产却让战友们成为富豪
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2049405/)
+## 日本驻中共国大使馆官员21日被暂时拘留
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2049454/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+翻译：zicoround
 
-2022-02-16直播摘录08：56：45
+![](https://assets.gnews.org/wp-content/uploads/2022/02/20220222-00000067-asahi-000-4-view.jpg)东京（朝日新闻）
 
-我请问大家一个问题，你觉得世界上谁想当郭文贵能当得了吗？说我想跟郭文贵一样地破产，在个人破产的时候，他拥有无限的人愿意捐给他无数倍的钱，和他能让别人当上亿万、百亿、十亿富豪。现在是多少？43块8毛9分7，还涨了，刚才我看了43，我以为跌到30块钱了呢，还涨呢，是吧？还涨呢。430亿，战友的，你觉得神和菩萨做到了吗？这是事实吧？哪有一个运动创始人他个人破产了，战友们却都有钱了，只有我一人吧人类上？而且任何一样只涨不降，意义何其重大？是吧？这就是说呀，大家要明白，这个Bunny要唱一首一会儿啊。(唱)为何我要灭共～是谁带来苦痛～多少愤恨在心中～唯有战友能懂～Bunny，我唱得咋样啊？兄弟，小老弟呀。
+日本外务省22日宣布：发生一起日本驻中共国大使馆官员被中共国当局临时拘留的事件。当日，森健良事务副官在外务省约见中共国驻日临时代理大使杨宇提出抗议，强烈要求道歉并防止再次发生此类事件。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+据外务省宣称，大使馆官员21日下午于北京市内被拘留。森健良向杨宇提出了抗议：此事明显违反了确定外交官地位的《维也纳公约》。
 
-**关注我们**
+据外务省消息人士称，大使馆官员正在开展“正当的业务”，但业务内容“无可奉告”。对于森健良的抗议，杨宇表示已“向本国报告”。
 
-Discord 账号
+**参考资料：**[news.yahoo.co.jp][在中国日本大使館員、中国当局に一時拘束される　外務省が抗議](https://news.yahoo.co.jp/articles/be4b24a95b71878209f6ea2d9f109a574a2a402e)
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+* * *
 
-Gettr 账号
+*审核：BryanW*
+*校对：宫米叶*
+*发稿：信心的选择*
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-7.jpeg)
 
  
 
