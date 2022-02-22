@@ -2,28 +2,25 @@
 ---
 
 
-## 男子第三针后突感不适，最后死于心脏骤停
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2047003/)
+## 「最美博士」许蓝方打完3剂BNT疫苗，副作用又冷又热！
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2047034/)
 
-#### 翻译                  意大利达芬奇农场                 小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-22-alle-09.24.07.png)图片来源：eventiavversinews.it
-意大利巴里一名55岁男子在急诊室死亡后， 检察官已开始对其死亡展开过失杀人罪调查。
+台湾“最美博士”许蓝方22日晒出疫苗接种卡，透露自己已完整施打3剂BNT疫苗。
 
-2月15日这位男子因为心脏跳动加快由118救护车送到医院的急救中心。自打了第三针以后，他感到腿部有问题。15年前，他曾接受过肝移植，所以他担心疫苗会给他的身体健康带来问题。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3539171-PH_副本.jpg)图片来源：许蓝方脸书
 
-他的家人指控时说：“ 疼痛使他起不了床。我们叫了救护车，做了心电图以后，他被送到了急救中心。他是10点被送到的， 下午四点才给他验血。那时， 他想去卫生间，但没人陪他去。”
+“最美博士”许蓝方拥有亮丽外型以及窈窕身材，因靠著谈论性学知识走红，经常现身各大节目。不时在社群平台分享生活日常、工作的她，今日晒出疫苗接种卡，透露自己已完整施打3剂BNT疫苗，并坦言副作用出现「又热又冷」，让她甚至想在寒流天开冷气睡觉。
 
-这位55岁男子随后给妻子打电话，妻子接到丈夫的电话后马上赶到医院，但是这时丈夫却不接电话。
+简评：无知的代价有时可以挽回，有时是无可挽回的。就像这次的疫苗灾难，不管你以前的人生有多么的光彩，一步错满盘皆输。当无知成为一种炫耀，灾难一定在时刻的等待着你，都3针了赶快醒吧，赶快吃新中国联邦的解药吧，救命要紧，祝愿你平安！
 
-“这位男子的儿子也来到急救中心， 一位患者告诉他医生正在抢救其父亲”，这一事实后被一护士所证实。据了解，他是一个人去的卫生间，由于某种还待核实的原因，导致心脏骤停，随后死亡。
+新闻来源：[三立新闻网](https://www.setn.com/News.aspx?NewsID=1075154&amp;From=Search&amp;Key=%E8%A8%B1%E8%97%8D%E6%96%B9)
 
-出于愤怒，这位55岁的儿子一拳打在门上， 导致医务人员打电话叫来宪兵。受害者的家人决定提出申诉，并要求进行尸检。
+撰稿/发布：一叶知秋
 
-值班检察官卡埃塔诺•迪•巴利(Gaetano Di Bari) 将在2月21日将此案授权给法医布林迪西•利亚娜•尹纳莫拉多(Brindisi Liliana Innamorato)。
-
-原文链接：[https://www.eventiavversinews.it/bari-ha-un-malore-dopo-la-terza-dose-e-viene-lasciato-sei-ore-in-attesa-in-ambulanza-muore-per-arresto-cardiaco-nel-bagno-del-policlinico/](https://www.eventiavversinews.it/bari-ha-un-malore-dopo-la-terza-dose-e-viene-lasciato-sei-ore-in-attesa-in-ambulanza-muore-per-arresto-cardiaco-nel-bagno-del-policlinico/)
-
-编辑、上传： Xiao  baige
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

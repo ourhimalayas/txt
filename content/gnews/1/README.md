@@ -2,41 +2,42 @@
 ---
 
 
-## 西方警告 乌克兰附近军事集结在增加
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/2047297/)
+## 安理会召开紧急会议，周二美国开启对俄罗斯新制裁
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2047374/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Picture1-22.png)
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-图片来自网络
+翻译/编辑：文泓
 
-2月16日，周三，西方国家警告说，俄罗斯在乌克兰边境部署越来越多的军事设施，以占领 “关键地形”，这与莫斯科坚持的撤退自相矛盾。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/16-10.png)图片来源：德国之声
 
-英国国防情报局局长在罕见的公开评论中说，已经发现了更多的装甲车、直升机和一家野战医院。
 
-美国总统拜登(Joe Biden)政府的一名高级官员说，最近几天，又有多达7000名部队转移到边境，包括一些在周三抵达的部队，但没有提供证据。
+当地时间2月21日（周一）联合国安理会晚上在纽约举行了罕见的紧急会议，以商讨解决俄罗斯在乌克兰不断升级的军事部署问题。
 
-爱沙尼亚外国情报局局长米克·马兰说，爱沙尼亚情报部门知道大约有10个战斗小组的部队正在向乌克兰边境移动，它估计大约有17万名士兵已经部署在那里。
+周一，这场酝酿已久的冲突进入了一个新阶段，当俄罗斯总统普京宣布俄将承认乌克兰东部两个分离地区为“独立共和国”，莫斯科将向这两个新“独立”的领土部署“维和部队”。
 
-俄罗斯想阻止乌克兰加入北约军事联盟, 世界大国正在参与几十年来东西方关系中最深刻的危机之一，争夺冷战后的影响力和能源供应。
+美国驻联合国大使格林菲尔德表示，普京的声明不仅对乌克兰构成直接威胁，而且对联合国其他所有主权成员国构成直接威胁。
 
-西方国家已经建议采取军备控制和建立信任的步骤来化解对峙，这促使他们敦促其公民离开乌克兰，因为攻击随时可能发生。
+格林菲尔德表示，美国将于周二公布对俄罗斯的新制裁，并敦促成员国对莫斯科施压，俄罗斯将承担严重后果。
 
-俄罗斯国防部表示，其部队在靠近乌克兰的南部和西部军区进行演习后正在撤退，莫斯科驻爱尔兰大使坚持认为，俄罗斯西部的部队将在三到四周内恢复到正常位置。
+周一晚上[股票期货大幅下跌，而](https://www.cnbc.com/2022/02/21/stock-market-futures-open-to-close-news.html)国际[油价上涨](https://www.cnbc.com/2022/02/22/oil-prices-jump-as-tensions-between-russia-and-ukraine-escalate.html)，因为交易员继续关注日益加剧的紧张局势，尚不清楚美国即将对俄罗斯实施的制裁可能对金融市场或油价产生何种影响。
 
-它公布了视频，称视频显示坦克、步兵战车和自行火炮部队离开了克里米亚半岛，莫斯科在2014年从乌克兰手中夺取了该半岛。
+周一，总统乔拜登签署了一项行政命令，禁止美国人在所谓的顿涅茨克人民共和国或乌克兰卢甘斯克人民共和国地区进行新的投资、贸易和融资。
 
-但北约军事指挥官正在制定新的作战部队计划，外交官们说这些部队可能会部署在保加利亚、罗马尼亚、匈牙利和斯洛伐克。
+这一行动是对普京宣布俄罗斯将承认乌克兰的两个分离地区为独立国家的回应。但白宫官员拒绝具体说明下一轮制裁将在周二进行的具体内容。
 
-这种部队–旨在为额外的士兵争取时间，以便在需要时到达前线–已经在波兰和波罗的海国家存在。
+国务卿布林肯再次呼吁美国人立即离开乌克兰，并补充说安全局势仍然无法预测，可能会在没有任何通知的情况下恶化。
 
-作为北约部署的一部分，英国将把其在爱沙尼亚的部队规模扩大一倍，并向这个与俄罗斯接壤的波罗的海小共和国派遣坦克和装甲战车。
+参考链接：[Ukraine Russia Crisis: New sanctions coming Tuesday (cnbc.com)](https://www.cnbc.com/2022/02/22/ukraine-russia-crisis-new-sanctions-coming-tuesday.html)
 
-乌克兰还增加了其与俄罗斯盟友白俄罗斯边境的边防人员数量，据估计，约有9000名俄罗斯军队参与了该边境的军事演习。
+***發布：***tianzhihuan
 
-新闻来源链接：[https://www.reuters.com/world/europe/russian-pullout-meets-uk-scepticism-ukraine-defence-website-still-hacked-2022-02-16/](https://www.reuters.com/world/europe/russian-pullout-meets-uk-scepticism-ukraine-defence-website-still-hacked-2022-02-16/)
-
-本文作者：Rebecca (一切心皆不可得！)
-上传排版：Hong
+**更多資訊，請關注：**
+[澳大利亞墨爾本雅典娜農場Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亞墨爾本雅典娜農場Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亞墨爾本雅典娜農場YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亞墨爾本雅典娜農場Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亞墨爾本雅典娜農場GTV直播壹台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

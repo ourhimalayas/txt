@@ -2,24 +2,41 @@
 ---
 
 
-## 俄官方支持乌克兰分裂 世界局势骤然紧张
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2046856/)
+## 首位美国女性军官上诉成功，获疫苗宗教豁免
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2046887/)
 
-撰稿：东京樱花团/龟龟
-![](https://assets.gnews.org/wp-content/uploads/2022/02/02229.png)
-2月21日，俄罗斯总统普京签署行政命令，承认乌克兰境内莫斯科支持的分裂份子控制的两个地区独立。此举加剧了俄乌紧张局势，西方国家担心这可能导致二战以来欧洲最大的冲突之一。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-早些时候普京召集安全委员会开会呼吁承认顿涅茨克人民共和国和卢甘斯克人民共和国的主权。他还在电视讲话中还指责美国和北约试图将乌克兰变成一个军事哨所来威胁俄罗斯。乌克兰方面表示俄罗斯支持的分裂份子发动的炮击已经达到近三年来的最高水平。分裂份子则声称乌克兰武装部队对平民区使用了重型武器。
+整理/编辑：小鱼儿
 
-对于普京这一行动白宫方面表示拜登已经下令实施新的制裁，内容包括禁止在普京承认的两个分裂地区进行新的投资，贸易和融资等。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/13-16.png)图片来源：Yahoo Finance
 
-另有报道称美方已经在和乌克兰政府讨论一旦俄罗斯入侵乌克兰，就让乌克兰总统泽连斯基离开首都基辅。
 
-莫斯科方面已经在乌克兰边境集结了多大19万军队，美国等警告称入侵将在几天内发生。但普京在当天会议中表示莫斯科的首要任务是确保与北约达成安全保障协议以维持和平。
+当地时间 2 月 21 日，，据[自然新闻](https://www.naturalnews.com/)（Natural news）报道，佐治亚州的美国地方法官，蒂尔曼·E·塞尔夫三世（Tillman E. Self III）裁定，美国一名女性军官获疫苗宗教豁免；空军部违反了，该军官的第一修正案的权利。法官为女性军官开了绿灯，以保护她的免疫系统免受新冠疫苗破坏。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+去年，该军官申请一项基于宗教的疫苗豁免，结果却立即被（空军）内部审查程序拒绝，她随后提出上诉。
+
+该军官在诉讼中称，由于她的基督教信仰，禁止谋杀未出生的婴儿，她不能接种冠状疫苗。疫苗含有来自流产的胎儿组织的成分，这是一种“严重的邪恶”
+
+法官塞尔夫写道，“当空军至少有 3,300 名未接种疫苗的服役人员仍在执勤时，（空军）认为原告基于宗教拒绝接种疫苗，将‘严重阻碍’军事职能，这似乎是不合逻辑的，更不用说争论了。”
+
+他进一步写道：“法院很容易发现，空军保护宗教权利的程序，既虚幻又不真诚。”
+
+根据内部军事数据，到目前为止，空军已经拒绝了 3,665 个基于宗教的请求，并且仍在考虑其他 3,2888 个请求。
+
+空军发言人安·斯特凡内克称，“空军部将遵守法院的命令，直到问题得到法律解决。”
+
+参考新闻：[VICTORY: Female Air Force officer becomes first to win injunction against covid jab mandate](https://www.naturalnews.com/2022-02-21-military-officer-wins-injuction-covid-jab-mandate.html)
+
+发布：tianzhihuan
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
