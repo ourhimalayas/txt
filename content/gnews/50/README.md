@@ -2,23 +2,27 @@
 ---
 
 
-## 习普政治联盟的历史由来
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2045455/)
+## 昨天的香港，今天的加拿大
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2045459/)
 
 作者：纽约磐石农场—在远方
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-在2月20的大直播中，郭文贵先生解读了普京和习近平政治联盟的历史由来。
+盖特2月21日消息，郭文贵先生早在2020年，对全世界所发出的警告，现在正在变成悲惨的现实。而昨天的香港，就是今天的加拿大。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-49.jpg)
+2020年11月7日，郭先生在视频中说，香港有无数年轻人被共产党强奸、轮奸、自杀和被消失，但全世界却在保持沉默。同时，他一再强调，这一切将会在美国发生。
 
-据郭先生介绍，中共和俄罗斯的结盟已经有很多年。2012年，习近平执政后访问俄罗斯，参观了俄罗斯的国防部战略指挥中心。从那时起，习与普京就成了“生死兄弟”，结成了政治联盟。双方对外宣布，将把贸易额度从200万美元提升到2000亿美元，之后又签署了4600亿美元的现金购买石油大单。共军与俄军开展了5次全面演习，俄罗斯对日本北方四岛提出领土要求，普京则默认习近平“统治”亚洲，任由中共对台湾肆意妄为。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-47.jpg)
-中共与俄罗斯结盟后，普京一反常态，改口为中共恶劣的人权犯罪辩护，称领导14亿中国人无需人权。中共与俄罗斯宣布军事上成为“全天候兄弟战略伙伴关系”，俄罗斯卖给中共飞机发动机技术，而结盟后的军事演习，则是中共建党百年以来的总和。
+同年5月23日的视频中，郭先生表示，如果全世界不放弃短视利益，并被几个利益集团绑架，而不能下决心消灭中国共产党的话，人类将面临着生存的灾难。全世界都会变成香港，不论是美国还是欧洲。而这一切，正在今天的加拿大发生。
 
-参考链接：[习普政治联盟的历史由来](https://www.gettr.com/post/pvusqu64a8)
+参考链接：
+1. [昨天的香港，今天的加拿大](https://gettr.com/post/pvs4h4f362（视频1时长1’26’’)
+2. [昨天的香港，今天的加拿大](https://gettr.com/post/pvis6r9050)
+3. [昨天的香港，今天的加拿大](https://gettr.com/post/pvlxc7eff7（视频2时长1’40’’)
+4. [昨天的香港，今天的加拿大](https://gettr.com/post/pvq1ca9c6b)
 
 ![This image has an empty alt attribute; its file name is calendar.png](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
 总编：DM
-编辑：飞虹
+编辑：DM
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**

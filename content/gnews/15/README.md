@@ -2,33 +2,23 @@
 ---
 
 
-## 有声|中共统计局数据造假 借冬奥会洗钱骗钱
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2048979/)
+## 【TopNews】俄罗斯总统普京发表全国谈话称乌克兰为“不可分割的一部分”
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/2049050/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-在2月18日大直播中，郭文贵先生爆料，中共统计局的经济数据和疫苗感染率向来都是造假。
+根据综合报导，俄罗斯总统普京在2月21日晚间向俄罗斯全国发表电视讲话，并且签署法令称“我认为有必要做出一个早就应该做出的决定，立即承认顿涅茨克（DPR）和卢甘斯克（LPR）人民共和国”。
 
-中共统计局内部信息透露，统计局一直利用假数据欺骗习近平。各项统计数据，几乎全部最后减去一个零，有时候甚至两个零，再向中央上报。以支援非洲的资金为例，实际对外资金是9.6亿，但是只向中央上报960万，其余差额资金全部被个人贪污。
+普京在谈话开始时阐述了对乌克兰历史的看法，称“让我再次强调，乌克兰对我们来说不仅仅是一个邻国，而是我们自己的历史、文化和精神世界不可分割的一部分。”
 
-中共冬奥会各项巨额资金也是造假。据悉，仅开幕式就花费了七十二亿美元，张家口安保费用高达二百多亿美元，总花费近六百亿美元。此外，还涉及所谓的对外援助两千多亿。
+援引链接：
 
-中共统计局以冬奥会境外赞助的名义，往国外疯狂洗钱，各地方政府也极尽所能骗中央的钱。
+[https://udn.com/news/story/122663/6114677](https://udn.com/news/story/122663/6114677)
 
-文字版原文：[中共统计局数据造假 借冬奥会洗钱骗钱](https://gnews.org/zh-hans/2042877/)
+**撰稿****/****米拉雅**
 
-音频处理：Fei797
-发稿：Fei797
+**审阅****/****邱杰斯**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+**上传****/****天赐良闻**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

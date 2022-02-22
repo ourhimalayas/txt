@@ -2,34 +2,20 @@
 ---
 
 
-## 日媒解析中共冬奥会所暴露的人权问题
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2048797/)
+## 北京冬奥会的收视率历史最低
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2048911/)
 
-作者：日本方舟农场 – Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月18日，日媒从三个方面解析了中共冬奥会所暴露出来的人权现状。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/4-47.jpg)
-首先，瑞典冠军回国后直言中共国不应该有资格承办奥运会，德国双金牌选手回国后表示未来再也不会去中共国，都已经表明，参加冬奥会的运动员们在当地受到了极大的压力。而人权观察组织无法保证为人权发声的运动员的安全，也表明北京是极其凶险之地。
+撰稿/翻译：zzballack
+上传：追着曙光跑
 
-其次，中共手握国家安全法这一部万能的恶法，所有在中共国为新疆、西藏、香港、台湾发声的人，都会被中共定义为试图分裂国家的罪名，而运动员们是没有能力承担触碰国家安全法的风险的。
+据《新闻极限》（Newsmax）2月22日援引《华尔街日报》报道说，NBC环球自从数十年前开始转播奥运会以来，北京冬奥会的观看人数是最少的，黄金时段的平均观众人数只有1140万人，比2018年的平昌冬奥会下降了42%。相较之下，NBC的超级碗直播吸引了1.12亿名观众。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-23-at-00.34.43.jpeg)图片来源：网络
+为了弥补观众少的问题，在为期两周多的时间里，NBC环球为广告商提供了额外的广告播放时间，这些广告通过NBC环球的电视、有线网络和流媒体平台播出。
 
-此外，国际奥委会也对这样的高压政策默不作声，不但撤销了在东京2020年奥运会上允许运动员为人权发声的所有行为，甚至将在本届冬奥会上为人权发声的行为列为禁忌事项。嘉宾特别指出，本届冬奥会不仅暴露出中共国让人担忧的人权现状，也突显出国际奥委会就是其自身规则的最大破坏者。
+NBC体育集团总裁皮特·贝瓦茨夸 (Pete Bevacqua)将人们对比赛缺乏兴趣归因于中共国“异常严厉的”防疫协议、看台上几乎没有观众以及一些奥运选手戴着防护口罩等等。鉴于大流行病源自中共国，今年的广告商选择低调行事，回避文化或社会问题。
 
-参考链接：[20220218日媒報導CCP冬奧會人權](https://www.gettr.com/post/pvxgvh5446)
+信息来源：[Beijing Olympics Draw Lowest Ratings Ever](https://www.newsmax.com/streettalk/beijing-olympics-nbc-covid/2022/02/22/id/1057855/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
-
-总编: Zion文恩
-编辑: 宁文静   
-校正/发稿：Fei797
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

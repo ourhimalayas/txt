@@ -2,42 +2,30 @@
 ---
 
 
-## 澳洲总理要求中共国全面调查其军舰激光照射澳军机事件
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2049080/)
+## NFSC新闻、G|TV新闻访谈简报|2022年2月22日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2049140/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image008.png)一种**P-8A Poseidon**型飞机
-路透社于**2**月**21**日报道** **，日前一艘中共军舰用激光照射一架澳洲巡逻机，澳洲总理莫里森周一表示，当时中共军舰非常接近澳洲领土，澳洲要求中共进行**”**全面调查**”**。**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-20-at-4.14.11-PM-1.png)
 
-**莫里森周一在广播中说，澳洲政府还没有收到中共对上周四这起事件的解释，澳洲认为该事件是**”**危险和鲁莽的行为**”**。**
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-21.png)
+文章仅代表作者本人观点，与Gnews无关
 
-**澳洲国防部在周六表示，一艘中共军舰在澳洲专属经济区内用激光照射了一架在澳洲北部航道飞行的澳洲军机，这可能危及人员生命。
+视频参看：
+[2022.02.22早 《NFSC新闻》](https://gtv.org/video/id=6214e52808ba8a07b1a16f59)
+[2022.02.22早 G|TV《新闻访谈》](https://gtv.org/video/id=6214ee4408ba8a07b1a1765d)
 
-莫里森在当地电台表示，澳洲已透过外交及国防管道，要求对此事件进行全面调查。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-中共享激光照射来攻击国外飞机已经是惯用的流氓手段。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-3.png)
 
-
-
-**推出问题，敲出真相，爆料在路上！**
-
-**请关注和订阅我们的以下账号：**
-
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
-
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
-
-**玫瑰看新闻YOUTUBE账号**：
-
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**ROSE NEWS**
-
-**【玫瑰看新闻】推特账号**：
-
-**ROSE NEWS (@ROSENEWS4)A**
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

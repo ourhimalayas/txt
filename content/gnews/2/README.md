@@ -2,57 +2,30 @@
 ---
 
 
-## 《苦女》The Suffering Women
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2049073/)
+## 有声|探望锁链女的民众被中共警察逮捕
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2049139/)
 
-秘密翻译组-北美组
+配音：香草山巡管部– 文凯琳
 
-苦女                     
-The Suffering Women
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-可叹
-Alas
-少女无辜遭祸端
-The innocent little girl became a victim of human trafficking
-音信杳杳如纸鸢
- No one has heard from her ever since
-二十 四载拘囚 骨肉离散
-Twenty-four years of captivity, separated from her loving family
-叫破苍穹 谁见薄命红颜 
-Has anyone seen this poor girl? She has nowhere to turn for help
+2月19日，中共国“铁链女”事件继续在国内外发酵，有外媒体报道，两名想要探望被非法拘禁24年“铁链女”的女性，2月13日在江苏徐州被中共警察逮捕。中共警察声称这两名女性涉嫌“寻衅滋事”，而“寻衅滋事罪”是中共治下用来对付持不同意见者的“口袋罪”。
 
-剪舌拔齿和血咽
-They cut her tongue and pulled out her teeth
-链锁玉颈双蛾残
-Chained her delicate neck and destroyed her beautiful complexion
-修罗场内不见天
-In a hopeless plight and a world of darkness 
-炼狱泯人寰
-Her tragedy in that living hell is incomparable in this world
+报道描述了“铁链女”悲惨的生活状况，强调了“公众要求调查非法拘留和人口贩运呼声走高”的情况下，中共官员从否认锁链女是受害者到逮捕锁链女丈夫及两名同伙的态度转变，并列举了中国顶尖大学校友联名致公开信，要求彻底调查锁链女事件，却被中共审查封杀的现实。
 
-此生无日望生还
-There is no hope for her to return to her joyful life
-逃离恨海待何年
-When will she be able to escape from the sea of misery? 
-万念俱灰 肝肠痛断
-With all hopes dashed to pieces, she is overwhelmed by grief
-  
-痴语问苍天 一叹泪涟涟
-She asks the heaven why she has to suffer, heaven fell silent, only tears linger
-可叹盛世谎弥天
-What a horrendous tragedy, the so-called “prosperous China” is full of lies
- 生如蝼蚁命难全
-Human life means nothing in the eyes of the Chinese Communist Party
-举国沉酣浑不觉
-But the whole country is still asleep, without realizing what’s really happening
-遭逢胜过《窦娥冤》
-The injustice she has been suffering is even worse than the story of Snow in Midsummer
+文字版原文：[探望锁链女的民众被中共警察逮捕](https://gnews.org/zh-hans/2046143/)
 
-灵魂割礼实可哀
-The mass mutilation of the souls is truly tragic
-他日谁上断头台
-Retribution for the wicked will surely come on Judgment Day
+音频处理/发稿：Daxia
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
