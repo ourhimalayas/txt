@@ -2,49 +2,36 @@
 ---
 
 
-## 有声|醒来，醒来
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2044667/)
+## 加拿大警察掩盖姓名、徽章号，暴力对待和平抗议者
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2045052/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/战友心声2-768x431-1.jpeg)传播真相
-对抗强权
-为了后代 醒来，醒来
-每一次传播
-是射向他们子弹
-把深层政府阴暗
-放在阳光下暴晒
-醒来醒来
-不再沉睡和冬眠
-动动手指
-仔细聆听
-告诉右舍左邻
-人们被蒙蔽欺骗
-把真相传播到
-世界各个角落
-让更多人们
-醒来，醒来
+整理/编辑：小鱼儿
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/3-60.png)图片来源：CNA
 
 
-文字版原文：[醒来，醒来](https://gnews.org/zh-hans/2042071/)
+当地时间 2 月 21 日，据[自然新闻](https://www.naturalnews.com/)（Natural news）报道，加拿大在贾斯汀·特鲁多（Justin Trudeau）领导下迅速沦为专制政权。加拿大警方，除了使用马来击退和践踏示威者，还采取了隐藏身份的策略：掩盖他们的姓名和徽章号码。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+上周，特鲁多侮辱了卡车司机，声称他们与“纳粹党摇摆人”站在一起并反对加拿大，这导致反对党保守党的犹太成员、议员梅丽莎·兰茨曼要求他道歉。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+特鲁多回应兰茨曼：“保守党成员可以与挥舞纳粹标志的人站在一起。”特鲁多拒绝道歉，并再次重申镇压抗议的措施是必要的。（援引每日邮报 ）
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+特鲁多对“自由车队”卡车司机的反应，与他2020 年 5 月对持续的“黑人的命也是命”暴力事件的反应截然相反。（注：当时特鲁多及政府人员集体向此事件下跪道歉）
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+面对暴政，新墨西哥州的共和党新生立法者、众议员伊薇特·赫雷尔表示，“我正在引入立法，暂时向受到本国政府迫害的无辜加拿大抗议者提供庇护。”
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+参考新闻：[Tyranny spreads in Canada as police now cover names, badge numbers on uniforms to evade identification as they brutally assault peaceful protesters](https://www.naturalnews.com/2022-02-21-canadian-police-covering-names-badge-numbers-trucker-crackdown.html)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+发布：tianzhihuan
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

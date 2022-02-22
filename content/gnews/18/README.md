@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：共产党没那么强大
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2044961/)
+## 七哥金句：无知背后有很多因素
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2045124/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/记录者：馨馨-2-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句7-1-2-scaled.jpg)
 整理：雅典娜农场
 发布：枫叶红了
 

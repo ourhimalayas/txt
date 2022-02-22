@@ -2,40 +2,42 @@
 ---
 
 
-## 英国女王新冠检测呈阳性，症状类似轻微感冒
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2044517/)
+## 美国优化能源公司首发便携式“无人机灭霸”
+` 科海拾星` [轉載自GNews](https://gnews.org/zh-hans/2044927/)
 
-***评论：我们衷心祝愿女王早日康复。在女王确诊前，其长子和儿媳相继感染新冠（其中查尔斯王储是第二次感染新冠病毒），再次验证了无论是疫苗还是加强针，都不能预防新冠病毒。并且随着全球各地出现的疫苗次生灾难，我们更应警惕疫苗的安全性。***
+【署名】纽约香草山健身部—阿什莉
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+美国加利福尼亚州洛杉矶，当地时间2022年2月14 日，一家先进电子化战争解决方案提供商，宣布推出一款率先上市的固态、移动和紧凑型多发射高功率微波 (HPM) 系统。
 
-**据《华盛顿邮报》作者：Karla Adam和William Booth，2022年2月20日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/zxc.jpg)**图片来源：皇室推特账号**
-白金汉宫周日在一份声明中宣布，在长时间与公众隔离后，英国女王伊丽莎白二世的冠状病毒检测呈阳性，并出现了“类似轻微感冒的症状”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/微波武器.jpg)
 
-王宫表示，这位95岁的女王预计未来一周将在温莎城堡继续履行“较轻松的公务”，并且继续“接受医疗护理，并遵守所有适当的防疫指导方针”。
+该公司的系列产品利用固态、软件定义的高功率微波 (HPM) 技术，为一系列用户案例提供无与伦比的电子化武器作战效果。 破坏和摧毁无人机系统 (UAS) 中的关键电子元件。 通过精确和区域火力消灭单个无人机或整群无人机。
+新推出产品可实现一系列任务能力，并通过多种挂载选项最大限度地提高便携性，可直接进入威胁环境，从而完成多层防御系统。
+无人机战争始于 1973 年的赎罪日战争，当时以色列成功地使用有针对性的无人机引诱埃及发射防空导弹并耗尽其防空系统。
+无人机打击是由一架或多架无人作战飞行器或武器化商用无人机进行的空袭。目前，众所周知，美国、以色列、中国共产党、伊朗、意大利、印度、巴基斯坦、俄罗斯、土耳其和波兰可生产制造可操作的 UCAV（无人作战飞行器）。
+美国军用无人机因斩首塔利班领导人和伊朗革命卫队指挥官苏莱曼尼而闻名于世。
+近年来，中国共产党军方的无人机被用来在干预其他国家的地区政治冲突中，进行发动攻击使用。
+据新中国联邦爆料革命，郭文贵先生在此前直播中爆料称，中共军方在阿富汗、哈萨克斯坦等国政局混乱期间，曾在阿富汗、哈萨克斯坦等地进行无人机袭击，并策划无人机袭击拉美国家和台湾。
+在阿富汗，中共特种部队潜入阿富汗，部署进攻型无人机部队，为塔利班武装人员提供空中火力支援，这也是阿富汗政府士兵最终向塔利班投降的主要原因之一。
+美国便携式“无人机灭霸”的首次亮相，必将加强美国在未来区域战争中的空中防御能力，尤其可以更有效有力的消灭中共军方部署的大批无人机群。
 
-她的儿子兼皇储查尔斯王子的病毒检测呈阳性，并在10天前与女王一起在温莎被隔离。查尔斯的妻子卡米拉此后也检测呈阳性。
+[https://www.epirusinc.com/news-item/epirus-unveils-portable-hpm-leonidas-pod-expanding-advanced-electronic-warfare-product-portfolio https://gnews.org/1473085/](https://www.epirusinc.com/news-item/epirus-unveils-portable-hpm-leonidas-pod-expanding-advanced-electronic-warfare-product-portfolio%20https://gnews.org/1473085/%20https://gnews.org/659534/)
 
-尽管王室在推特上发布一条女王祝贺英国女子和男子冰壶队获得奥运奖牌的消息，但并没有在周日发布任何有关她健康状况的进一步信息。英国王室通常不对涉及女王的医疗事宜发表评论——这种习俗可以追溯到英国国王和王后担心向对手展示脆弱的时代。
+[https://gnews.org/659534/](https://www.epirusinc.com/news-item/epirus-unveils-portable-hpm-leonidas-pod-expanding-advanced-electronic-warfare-product-portfolio%20https://gnews.org/1473085/%20https://gnews.org/659534/)
 
-2021年1月，王室确实透露伊丽莎白女王已接种了第一剂冠状病毒疫苗。许多皇室观察者认为她已经接种了全部3针疫苗。克拉伦斯王府（查尔斯王子的住所）对卫生事务更加透明化，根据该办公室的说法，查尔斯和卡米拉各自接种了两针疫苗和一剂加强针。
+【编辑】文真
 
-根据英格兰目前的规定，女王应该至少隔离五天。但英国政府计划本周取消疫情限制措施。
+校对/发稿：菩提树
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-10.png)
+**更多资讯，更多关注**
 
-皇宫宣布后的几分钟内，支持女王的消息蜂拥而至。
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-与大流行早期相比，恐慌程度有所降低。
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-**文章来源**：[https://www.washingtonpost.com/world/2022/02/20/queen-elizabeth-covid-positive/](https://www.washingtonpost.com/world/2022/02/20/queen-elizabeth-covid-positive/)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-翻译：洛杉矶盘古农场 – maru
-校对：洛杉矶盘古农场 – Mike Li
-评论：洛杉矶盘古农场 – maru
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -2,49 +2,21 @@
 ---
 
 
-## 郭先生直播厅-七哥谈人生
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/2045061/)
+## 一位向加拿大自由车队捐款的单身母亲的银行账户被冻结
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2045182/)
 
-设计者：纽约香草山设计部 — 忧伤的兔子，六道，零五壹六，FLj
+撰稿/翻译：zzballack
+上传：追着曙光跑
 
+据英国《每日邮报》（Daily Mail）2月21日报道，加拿大国会议员马克·施特拉尔 (Mark Strahl)2月20日发推说，一位名叫布瑞安（Briane）的单身母亲在向自由车队捐款50美元后，银行账户被冻结。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-22-at-12.36.29.jpeg)图片来源：原新闻
+布瑞安从事最低薪资工作，除了向自由车队捐款50美元，她没有参加其它任何方式的抗议活动。对此，加拿大应急准备部部长比尔·布莱尔 (Bill Blair) 向加拿大CTV新闻表示，《紧急状态法》（Emergency Act）并不针对小额捐款。
 
+随着布里安的故事继续在社交媒体上广泛传播，人们对《紧急状态法》中允许冻结参加抗议人群的账户的权力存在诸多疑问。特鲁多动用该法后，已有206个银行账户被冻结。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+加拿大卡车司机德雷克·布鲁沃（Derek Brouwer）因为参加抗议活动，他的个人和企业银行账户自上周五开始被冻结，卡车也被扣押。他正试图与银行合作纠正这一情况。但在该法案生效期间，那些拒绝离开渥太华抗议活动的人的财务账户将继续被冻结。
 
-
-
-
-
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-2_.jpg)Don’t give up hope on good people; always believe that there are more good people than bad. Always remember that there are reasons why bad people become so – due to environment and social experiences. But good people need to have a good environment, which consists of faith, conscience and courage.
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-2_.jpg)不要放弃对好人的希望，永远要相信好人多过坏人，永远要记住坏人是有原因的，是环境、社会经历造成的，但是好人更需要一个更好的环境，那就是信仰，良知和勇气。![](https://assets.gnews.org/wp-content/uploads/2022/02/3-0219-4-e.jpg)The saddest thing about humans is that – they are ungrateful; never feel content while having insatiable desires; don’t believe in reincarnation and karma; have no faith. They are no different from animals. The mission of the NFSC is to allow the Chinese people to have freedom of faith, to be protected and bound by an independent legal system.
-![](https://assets.gnews.org/wp-content/uploads/2022/02/4-0219-4-c.jpg)人类最可悲的就是不知道感恩、满足，欲壑难填；不相信轮回报应，没有信仰的人跟畜生没有两样。新中国联邦就是让中国人有信仰自由，受独立法律制度的保护和约束。![](https://assets.gnews.org/wp-content/uploads/2022/02/5-image0.jpg)“The most toxic poison in the hearts of Chinese people is the poison instilled by the CCP – selfishness, ignorance, no faith, and not knowing how to distinguish true from false and good from evil. This is why we produce the Grand Live broadcasts on Gettr/GTV, this is why our fellow fighters of the NFSC donate their time, while I put my heart and soul into it, despite risking my life and losing money, all in the hope of waking up more and more Chinese people.”![](https://assets.gnews.org/wp-content/uploads/2022/02/6-image1.jpg)中国人心里最大的毒就是共产党的毒，就是自私无知，没有信仰，不知道辨别真假善恶。这就是新中国联邦战友付出时间，我流血流汗、丢钱拿命来做的《大直播》，希望每时每刻能唤醒更多的中国人。![](https://assets.gnews.org/wp-content/uploads/2022/02/7-mz28.jpg)My lifelong experience: if you are truly a man, do not bring stress and pain back home. A strong person speaks only with results, not tears. If you want to keep your family safe and free from fear, only one way – Take Down the CCP.
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8-mz28.1.jpg)我一生的经验：如果你是男人，就不应该把压力和痛苦带回家中，强者只用结果说话而不是眼泪。让家人安全、没有恐惧只有一条路——消灭共产党。
-
-
-**编辑/发稿：小鹿**
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/01/2-124.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
+信息来源：[Outrage as Canadian single mom on minimum wage has bank account frozen for donating $50 to Freedom Convoy: Trudeau is blasted for draconian law that ‘would never have been imposed on BLM’](https://www.dailymail.co.uk/news/article-10535361/Canadian-MP-says-single-mom-bank-account-frozen-donating-50-Freedom-Convoy.html)
 
 
 
