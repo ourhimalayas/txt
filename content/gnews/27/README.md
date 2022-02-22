@@ -2,48 +2,39 @@
 ---
 
 
-## 美国与盟国称若俄罗斯发动入侵将联手发出制裁
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2049045/)
+## 加国省长杰森肯尼挑战特鲁多紧急法案
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2049068/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image006.png)
-路透社**2**月**18**日报道称** **，** **美国与欧洲官员表示，美国及其盟国已经制定了详细的计划，倘若俄罗斯军队实际入侵乌克兰，他们将发出协同的严厉制裁。但是，对于发生其他类型的侵犯行动该如何应对，他们远未达成一致。**
+作者：日本东京方舟农场—Miyali7768(文玉)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月19日消息，针对联邦自由党实施”紧急情况法”以结束卡车司机对渥太华市中心的封锁，阿尔伯塔省省长杰森·肯尼在接受Postmedia独家采访时表示，联邦政府使用加拿大最强大的法律，在目前情况下是不合理的过度扩张，违反正当程序和”侵犯”省级管辖权。并表示对此深感厌恶，将在下周初，向渥太华联邦法院提出法律挑战，以结束总理特鲁多的任意和高压行动。
 
-**他们表示，普遍同意在**“**入侵**”**发生后的**48**小时内发出制裁，并准备就绪，但关于确切触发点将继续进行讨论。**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide10-3.jpeg)
 
-**德国极力主张让计划保持**“**战略性模糊**”**，好让普京一直猜不透。
+另外，联邦司法部长大卫·拉梅蒂此前在CTV上暗示，联邦调查局正在考虑冻结任何用信用卡向车队捐赠者账户。
 
-匈牙利、意大利和奥地利都认为，只有在俄罗斯发动军事攻击的情况下，才会实施制裁。**
+肯尼认为，如果特鲁多派冻结其政治对手的财政得逞而逍遥法外，允许联邦政府利用《紧急情况法》来履行普通警察职能骚扰对手，超越并篡夺加拿大各省执法的属地管辖权，这将为未来树立一个危险的先例。
 
-**瑞典建议，如果普京一直不发动攻击，并且略微减少兵力，但一直压在乌克兰边境上，这会对乌克兰经济施加巨大压力，且俄罗斯偶尔发动网络攻击，应该讨论一下针对这样的情况采取什么行动。**
+肯尼代理律师将要求法官暂停使用该紧急法案。
 
-**几名官员表示，欧盟其他国家不愿深入研究这种情况，因为这可能会加剧欧盟内部的分歧，打破统一阵线。
+参考链接：
+1.[https://gettr.com/comment/cow1g04ffb](https://gettr.com/comment/cow1g04ffb)
+2. [https://edmontonsun.com/opinion/columnists/gunter-alberta-premier-jason-kenney%E3%80%82](https://edmontonsun.com/opinion/columnists/gunter-alberta-premier-jason-kenney%E3%80%82)
 
-欧美的软弱，是促使中共和俄罗斯野心不断膨胀的主要原因。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
+总编：Zion文恩
+编辑：静言
+校正/发稿：谐趣园
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-
-
-**推出问题，敲出真相，爆料在路上！**
-
-**请关注和订阅我们的以下账号：**
-
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
-
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
-
-**玫瑰看新闻YOUTUBE账号**：
-
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**ROSE NEWS**
-
-**【玫瑰看新闻】推特账号**：
-
-**ROSE NEWS (@ROSENEWS4)A**
 
  
 
