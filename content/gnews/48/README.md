@@ -2,76 +2,22 @@
 ---
 
 
-## 安东尼·布林肯同王毅进行了交谈,强调需要维护乌克兰的主权和领土完整
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2045807/)
+## 铁链的尽头
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2045795/)
 
-国务卿安东尼·布林肯： 我同 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 国务委员兼外交部长王毅进行了交谈。我强调需要维护乌克兰的主权和领土完整。
+撰稿—韩国首尔天池农场战友
+校对/上传—无明逆流
 
+**生者铁链里，死者河中毙。
+此间如阴间，观者泪横泣！**
 
+如果一个男人强奸了一个女人，这个男人该被处以刑罚，这个逻辑基本无人反对。但是如果一个男人强奸了一个女人，还致使女人生下孩子，在中共国就有人跳出来说处罚了这个男人，那孩子怎么办？孩子的存在恰恰证明了情节严重，应当对这个男人施加更重的刑罚，孩子越多，对这个男人的刑罚就该越重，至于孩子应该另寻监护人或者由政府抚养。这么简单清晰的逻辑，在中共国都是一盆浆糊一塌糊涂。人贩子完全违背他人意愿，通过绑架、欺骗、胁迫、强奸、轮奸等手段严重侵害被拐卖人的生命安全。收买行为也严重违背被拐人意愿，收买人严重践踏被拐人的人格与尊严，造成被拐人身心的严重损害，彻底毁掉了被拐人的一生，甚至毒害、杀害被拐人，为文明社会所不能容忍。因而，从世界很多文明国家对人口拐卖罪的惩罚很重，往往将其与故意杀人罪同等视之。而中共国一条普通老百姓的人命不如一条狗值钱，拐卖一名妇女没有贩卖三只鹦鹉处罚重！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/W47.jpeg)图片来源：网络
+文贵先生直播中说丰县大量妇女莫名其妙地淹死在河沟里，在墙内百度上一搜一大片信息，不禁让人后脊背发凉，对铁链女和铁链女们的命运，感到深深地担忧和恐惧。网上有网友爆料，这些被拐的女性，都是被喂了疯药才变疯的，百度上一搜让人变疯的药，五千万条信息，买卖便利，再次刷新了人们认知的下限。一条正常人类无法想象的犯罪链，清晰地呈现在世人面前，拐卖人口——强奸生子——强行喂药——使人致疯——投河致死…………这一个月来网友们爆料的信息，一次次刺穿心脏般地疼痛，连去探望铁链女的两位女勇士也被抓了生死未卜，铁链女的村庄也被围住隔离起来了。有人在网上说这是政府不作为，它们怎么可能不作为呢？它们要是不作为的话，铁链女就不会存在了，存在也早就被救出来了，热心网友也不会被抓了！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Wh0.jpeg)图片来源：网络
+这个魑魅魍魉横行的世界，让人时而恍惚自己真的还在人间吗？这是个什么世道啊？地狱也莫过于此吧？中共粉饰的太平盛世下，掩盖了多少肮脏龌龊的勾当，丰县政府和某些人渣展现出的手段，是得到中共的真传了，政府负责删帖，人渣负责杀人灭口，中共国没爆出来的丰县还有多少呢？还有多少个铁链女，蜷缩在中华大地的某个角落里，形容枯槁度日如年！
 
-> I spoke with People's Republic of China State Councilor and Foreign Minister Wang Yi. I underscored the need to preserve Ukraine’s sovereignty and territorial integrity.
-> — Secretary Antony Blinken (@SecBlinken) [February 22, 2022](https://twitter.com/SecBlinken/status/1495961543359356932?ref_src=twsrc%5Etfw)
-
-
-
-美前国务卿迈克·蓬佩奥：
-
-弗拉基米尔·普京是侵略者。
-
-乌克兰人是受害者。
-
-我们永远不应该回避这一点。
-
-
-
-> Vladimir Putin is the aggressor. 
-> The Ukrainians are the victims.
-> We should never shy away from that.
-> — Mike Pompeo (@mikepompeo) [February 22, 2022](https://twitter.com/mikepompeo/status/1495913605635715078?ref_src=twsrc%5Etfw)
-
-
-
-参议员卢比奥： 我希望拜登不要被普京耍了 别等到他们见面的时候，俄罗斯已经吞并乌克兰东部，然后任何会谈都是关于不要进一步占领这个国家的。
-
-
-
-> I hope Biden doesn’t get played by [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw)
-> 
-> By the time they meet [#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw) will have annexed eastern [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) & any meeting would be about not taking more of the country
-> — Marco Rubio (@marcorubio) [February 21, 2022](https://twitter.com/marcorubio/status/1495780486794383365?ref_src=twsrc%5Etfw)
-
-
-
-众议员麦克·沃尔兹： 50年前的今天，尼克松前往北京，试图离间共产主义中国和苏联。 此后，中国共产党利用美中关系在技术和经济上实现了跨越式发展，以寻求成为世界上占主导地位的超级大国。 （转推说：习在北约问题上支持普京。美国或将组建全球联盟，帮助各国部署先进武器，这预示着一场新冷战。）
-
-
-
-> 50 years ago today Nixon traveled to Beijing to drive a wedge between communist China & Soviet Union. 
-> 
-> The CCP has since used the US-China ties to leapfrog ahead technologically and economically in its quest to be the world’s dominant superpower. [https://t.co/tZ2EZucRjN](https://t.co/tZ2EZucRjN)
-> — Rep. Mike Waltz (@michaelgwaltz) [February 21, 2022](https://twitter.com/michaelgwaltz/status/1495765756247785476?ref_src=twsrc%5Etfw)
-
-
-
-参议员玛莎·布莱克本： 国际奥委会允许一个种族灭绝的 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 政权主办奥运会，并允许一名使用兴奋剂的俄罗斯运动员参加比赛。 而美国队参加北京奥运会使得这种胡作非为合法化。
-
-
-
-> The International Olympic Committee allowed a genocidal regime to host the Olympics and a Russian athlete that was doping to compete. 
-> 
-> Team USA’s presence at the Beijing Olympics legitimized this nonsense. [https://t.co/tlgZdKVVXp](https://t.co/tlgZdKVVXp)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [February 21, 2022](https://twitter.com/MarshaBlackburn/status/1495879336217485317?ref_src=twsrc%5Etfw)
-
-
-
-参议员玛莎·布莱克本： [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 正在逃脱反人类罪的惩罚，而拜登政府对此视而不见。
-
-
-
-> The Chinese Communist Party is getting away with crimes against humanity, and the Biden administration is turning a blind eye.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [February 21, 2022](https://twitter.com/MarshaBlackburn/status/1495838373981966341?ref_src=twsrc%5Etfw)
-
-
+此时墙内良知尚存之人的情绪，已经不能用愤怒形容了，是愤恨，是咬牙切齿的愤恨！是想拔剑斩红妖的愤恨！而那些不能称之为人的两足兽们，线上线下依旧铺天盖地，就在我们身边，就是我们的家人；还在岁月静好，还在歌功颂德，还在劝我们不要关注社会的阴暗面，保持正能量……对于这些只谈正能量，无视她人疾苦的物种，人们只需回敬它一个大大的，呸！！
 
  
 

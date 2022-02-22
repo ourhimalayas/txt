@@ -2,45 +2,32 @@
 ---
 
 
-## 主要的封锁倡导者承认他弄错了
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2047773/)
+## 中共启动全国10个大规模数据中心
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2047837/)
 
-**翻译： Jenny Ball**
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2056.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww-file.huawei.com%2F-%2Fmedia%2Fcorp2020%2Fpublications%2Fcommunicate%2F86%2Fcn%2F12-425.jpg&amp;imgrefurl=https%3A%2F%2Fwww.huawei.com%2Fcn%2Ftechnology-insights%2Fpublications%2Fhuawei-tech%2F86%2Fintelligent-ip-networks-build-green-data-centers&amp;tbnid=VujefeeEZBkKCM&amp;vet=12ahUKEwjz-sGqqZP2AhWSpukKHS4gCy0QMygOegUIARCbAQ..i&amp;docid=nSZ03_pgi0aZ3M&amp;w=800&amp;h=425&amp;q=%E6%95%B0%E6%8D%AE%E4%B8%AD%E5%BF%83&amp;ved=2ahUKEwjz-sGqqZP2AhWSpukKHS4gCy0QMygOegUIARCbAQ)
+2月22日央广网报道，中共发改委、中央网信办、工信部、国家能源局联合印发通知，同意在京津冀、长三角、粤港澳大湾区、成渝、内蒙古、贵州、甘肃、宁夏等8地启动建设国家算力枢纽节点，并规划了10个国家数据中心集群。“东数西算”国家工程正式启动。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip主要的封锁倡导者承认他弄错了.png)图片来源：infowars.com
+参与此次建设的企业，均是被美国制裁和中共军方合作者，华为、中兴通讯、腾讯、海兰信、首都在线、优刻得、先进数通等科技巨头或上市公司参与。
 
-马克·伍尔豪斯（Mark Woolhouse） 教授是“赛捷”（SAGE英国跨国企业软件公司) 的建模小组 SPI-M 的成员，该小组为英国政府提供有关封锁措施的建议。
+中共早在十年前已在各地布局大数据中心，2016年9月在建宣化数据中心，属于京津冀枢纽。
 
-SAGE 因持续预测连边都不沾的世界末日 COVID 情景而臭名昭著，例如去年的警告，即 Omicron 在没有更严格的限制的情况下，每天可能在英国造成 6,000 人死亡。
+2018年5月腾讯云在贵州枢纽投产的贵安七星数据中心，存放30万台服务器。
 
-在一本名为《世界疯狂的一年》的新书中，伍尔豪斯对 SAGE 参与推动造成巨大破坏但只是延缓病毒传播的封锁措施表示遗憾。
+2018年6月腾讯云在重庆部署了两个云计算数据中心，可容纳10万台服务器。
 
-“我们从 [2020 年 2 月] 开始就知道，更不用说 3 月了，封锁并不能解决问题。它只会拖延病毒，”伍尔豪斯说，并补充说，政府中似乎没有人认识到这一战略的失败。
+2020年6月开园的乌兰察布数据中心，属于内蒙古枢纽。
 
-伍尔豪斯说：“全球对这一流行病的早期反应严重不足，”他补充说，世卫组织赞扬中共国采取严厉的**“ ****COVID**清零**”**方法，为世界各地发生类似灾难奠定了基调。
+2020年11月阿里云西部云计算中心及数据服务基地落户成都，成为成渝枢纽中心。
 
-伍尔豪斯被问到为什么政府开始实施如此残酷的限制，似乎不考虑其后果。
+此次劳民伤财的“东数西算”被中共称为继西电东送，南水北调后又一大规模工程，中共通过构建数据中心、云计算、大数据一体化的新型算力网络体系，可以使中共更坚固的监控奴役国人，使国人的一切信息都在中共的数据里随时更好的掌控。
 
-伍尔豪斯说：“在任何阶段，甚至到了第二年，都没有对封锁造成的危害进行任何形式的分析。” “他们甚至都没考虑过要分析吗？我没有看到任何证据表明他们做这方面任何分析，这极为令人不安。”
+信息来源：[“东数西算”工程正式启动 全国数据中心这样布局](https://ms.mbd.baidu.com/r/BJBQBQmVry?f=cp&amp;rs=2980802946&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=f8628133cb15b3e0&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
 
-早在 2020 年 4 月，SAGE 就收到信息确认封锁将“比病毒本身多耗费三倍的时间”，但几乎没有考虑到“**70 **岁以上的人的死亡风险至少是** 15 **岁以下的人的** 10,000 **倍**”**这一事实。
-
-政府随后向公众撒谎，声称该病毒“不歧视”，对所有人同样危险，这显然是不真实的。
-
-“我听到 [官方] 的论点被讽刺为：每个人都会死，但至少在保护上是公平的，”伍尔豪斯说，并补充说，“**BBC **更是通过定期报道低风险人群个体的罕见悲剧，来渲染这种谎言，就好像这些极个别的悲剧是常规现象。”
-
-然而，那些正确警告封锁会造成破坏的人，却被立即妖魔化、抹黑、取消和取消平台。那么，如果封锁倡导者一切都错了，他们会面临任何惩罚吗？
-
-**新闻来源**：[infowars.com][Prominent Lockdown Advocate Admits He Got it Wrong](https://www.infowars.com/posts/prominent-lockdown-advocate-admits-he-got-it-wrong/)
-
-* * *
-
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-6.jpeg)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

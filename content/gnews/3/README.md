@@ -2,8 +2,8 @@
 ---
 
 
-## GEDU教育欢迎报名
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2047965/)
+## 冬奥后 金融界的崩塌将从音乐界开始
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2048084/)
 
 台灣寶島農場
 

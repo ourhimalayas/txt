@@ -2,8 +2,8 @@
 ---
 
 
-## 习和普京的政治联盟
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2048016/)
+## 中国永远不会出现瓦比比事件
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2048159/)
 
 台灣寶島農場
 

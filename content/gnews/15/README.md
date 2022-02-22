@@ -2,8 +2,8 @@
 ---
 
 
-## 新中国联邦GEDU的高度
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2047767/)
+## 共产党企图奴役全世界
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2047825/)
 
 台灣寶島農場
 
