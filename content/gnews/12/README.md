@@ -2,25 +2,31 @@
 ---
 
 
-## 中共国暂时拘留日本驻华大使馆官员 外相表示“坚决不能接受”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2049491/)
+## 二战是我们最好的一面镜子
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2049603/)
 
-**翻译:zicoround**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip中共国暂时拘留日本驻华大使馆官员-外相表示坚决不能接受2.png)外交部（Sankei Digital Co. , Ltd. ）
-日本外务省22日宣布：中共国当局21日在北京暂时拘留了日本驻华大使馆官员。林芳正外相22日晚在外务省对记者团表示：已通过外交渠道向中方明确提出严重抗议，谴责这种行为“不能忽视，也坚决不能接受”。
-22日晚间，森健良事务副官在外务省约见中共国驻日（东京）临时代理大使杨宇，表示（此事件）“明显违反了关于外交关系《维也纳公约》的条款，“强烈要求道歉并防止再次发生此类事件”。杨宇表示已“向本国报告”。日本驻中共国大使垂秀夫也向中共国外交部候补外交官吴江浩提出了同样的抗议。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-**新闻来源**：[news.goo.ne.jp][中国、日本大使館員を一時拘束　外相「断じて受け入れず」](https://news.goo.ne.jp/article/kyodo_nor/politics/kyodo_nor-2022022201001516.html)
+2022-02-16直播摘录09:49:47
 
-* * *
+我到欧洲、到德国去看了希特勒当年那个二战之后，为啥我老提二战，我感触太深啦！人类这么近的历史就为啥不学习呢？你学那个大清朝有个屁用啊！二战是我们最好的一面镜子，二战里边大家要学到的，就是老百姓的无知都相信希特勒呀，不就是今天刚才追寻自由、我的腹肌问的问题吗。然后要打台湾，是吧，你疯啦你能打台湾？Bunny的父母他有常识：共产党它一定会最后发动一场战争，来让共产党继续活下去。你爸妈不简单！更重要的事情是：钱、财富，一旦在战时或大灾难、大病毒来，如果你们没有吃饭的钱，你真得饿死你。还一个重要的要有几个朋友、要有几个人，光有钱在大难、大战来的时候你没有人是没有用的，交一个朋友，啊。新中国联邦都给你安排了：有战友、有币、还有情报、还有让你开智明眼。
 
-***审核:BryanW**
-**校对：宫米叶***
-***发布：信心满满***
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-7.jpeg)
+**关注我们**
 
+Discord 账号
 
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
