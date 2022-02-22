@@ -2,33 +2,37 @@
 ---
 
 
-## 有声｜驻中共国记者俱乐部对奥运报道环境表示失望
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2046416/)
+## 万事达卡将帮助中央银行采用数字货币
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2045265/)
 
-By:**秘翻新闻**
+翻译/编辑：小红帽
 
-**2022-02-22**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/10-30.png)图片来源 周日，中国奥运代表团抵达北京2022年冬奥会国家体育场举行的奥运闭幕式 Paul Hanna/UPI
-据合众国际社2 月 21 日报导，总部设在中共国的外国记者俱乐部21日表示，他们因冬奥会主办方没有向外国记者提供预期的报道环境而感到失望。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/8-30.png)图片来源：CNN
 
-外国记者俱乐部，以下简称FCCC，周一在一份声明中表示，对冬奥会期间中共国的独立报道条件仍旧低于国际标准感到失望。例如，一名中共奥运会官员阻止外国记者采访香港运动员。
 
-根据FCCC的声明，国际奥委会后来称该事件为独立案件。然而，在北京奥运会期间，政府干预的情况经常发生，这使外国媒体在中共国的经营环境充满挑战。
+根据PUNCH 2月22日报道，万事达卡(Mastercard)宣布，公司以支付为中心的咨询服务现在将包括致力于开放银行、开放数据、加密货币和数字货币、环境以及社会和治理的实践。
 
-促进新闻自由和与驻华记者交流的新闻俱乐部也在声明中表示，记者在奥运场馆外报道时经常受到一些官员的尾随和粗暴对待。
+该公司表示，扩展的重点之一将涉及帮助中央银行使用其测试平台探索中央银行数字货币的设计和部署。
 
-FCCC 在其声明中指出：最明显的是，荷兰国家广播公司 NOS 的一名记者在电视直播中被中共便衣保安人员带离摄像机，尽管他一直站在警察指示他去的地方。NOS后来发推文称，这样的遭遇越来越成为中共国记者的日常。
+根据一份声明，万事达卡与银行和商家的咨询工作涵盖了一系列数字货币功能。从早期教育、风险评估和银行范围内的加密和NFT战略开发到加密卡和加密忠诚度计划的设计。
 
-根据FCCC的声明，几名记者因撰写与奥运会有关的报道而在网上受到骚扰，其中包括中共国官媒账户和中共国外交官的骚扰。
+声明说：“万事达卡已与提供最佳加密货币解决方案的数字原生公司建立了合作伙伴关系，并通过进入市场规划和商业化战略帮助金融科技公司扩展到新市场”。
 
-新闻来源 [**https://www.upi.com/Top\_News/World-News/2022/02/21/beijing-olympics-foreign-correspondents-club-dismayed-treatment-journalists/2671645463918/**](https://www.upi.com/Top_News/World-News/2022/02/21/beijing-olympics-foreign-correspondents-club-dismayed-treatment-journalists/2671645463918/)
+据该公司称，随着商业世界面临创新的涌入，它还必须应对不断变化的消费者偏好、快速的数字化转型和地缘政治的转变。
 
-秘翻新闻 文洋 编译报道
+据该公司介绍，其数据和服务包括2000多名数据科学家、工程师和顾问，为全球70个国家的客户提供服务。
 
-发布 : 恩典
+新闻链接：[Mastercard to help central banks adopt digital currencies](https://punchng.com/mastercard-to-help-central-banks-adopt-digital-currencies/)
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321.jpg)
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

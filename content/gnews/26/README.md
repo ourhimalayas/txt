@@ -2,40 +2,22 @@
 ---
 
 
-## 早熟进玉米地&amp;私奔的七哥坚信无权干涉儿女的私人生活
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2046421/)
+## 财经｜俄乌战火一触即发 股市大泻 卢布汇价急跌 金价重回1900美元大关
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2045413/)
 
-G-TV视频链接：[https://gtv.org/video/id=621263661408ee3a03a2576b](https://gtv.org/video/id=621263661408ee3a03a2576b)
+**撰文/ 港台前线｜发布日期/ 22/02/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/俄烏戰火一觸即發-股市大瀉-盧布匯價急跌-金價重回1900美元大關.jpg)
+**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
 
-**郭文贵先生：**包括我们对孩子，很简单，我和你嫂子两个我们俩就私奔结婚的，对孩子私人生活我们没有权力管，也不能去管，孩子爱谁不爱谁那是他的事儿，我觉得父母管这纯粹多余的事情。而且我从小这么早的成熟，我都进玉米地了，我更没有资格管孩子去，是不是？我也不能给孩子讨论这个事情。孩子是自由的，而且我对生理上、生理学、社会关系学、婚姻学，七哥认真学过的，这是为什么我们私奔结婚啊？这是为什么七哥从来我不服这套东西呀？就是因为我尊重自然规律。
+今日（22日）较早时，俄罗斯总统普京签署法令，宣布乌克兰东部两大亲俄势力范围，顿涅茨克及卢甘斯克，正式成为独立国家，并同时派遣军队到顿巴斯地区“维和”。美、英、欧盟等国家认为俄罗斯的做法严重违反国际法，推翻了《明斯克协议》中两国停火安排，此举可以被视为俄罗斯正式对乌发动的侵略行为。
 
-字幕来源：[2022年2月4日《文贵大直播》全文字版](https://gnews.org/zh-hans/1961700/)
+消息触发金融市场巨大动荡，美股假期休市，但三大指数期货市场仍出现恐慌性大跌，道指期货急泻超过460点，标指及纳指跌幅同样超过1%，另外，德国和法国股市下挫超过2%，亚太区股市亦受严重影响，恒指今早开盘大跌800点。
 
-编辑整理：Jacques；
+俄罗斯方面的情况更加糟糕，MOEX指数21日收市大跌10.5%，是自克里米亚战争以来最大单日跌幅，卢布兑美元汇价一泻千里，24小时内跌幅超过4%。
 
-字幕文件制作：小满；
+不过，俄乌紧张局势的恶化同时带动金价显著回升，黄金现货价格重上1900美元的关键水平，最新报1,907.93美元每盎司，升至近8个月最高点。
 
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+来源｜[Yahoo股市](https://tw.stock.yahoo.com)
 
  
 

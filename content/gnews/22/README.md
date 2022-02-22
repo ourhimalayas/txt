@@ -2,48 +2,76 @@
 ---
 
 
-## 孩子像你是彻底失败，长江后浪推前浪，哪一浪都不一样
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2046443/)
+## 安东尼·布林肯同王毅进行了交谈,强调需要维护乌克兰的主权和领土完整
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2045807/)
 
-G-TV视频链接：[https://gtv.org/video/id=621263a11408ee3a03a25798](https://gtv.org/video/id=621263a11408ee3a03a25798)
+国务卿安东尼·布林肯： 我同 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 国务委员兼外交部长王毅进行了交谈。我强调需要维护乌克兰的主权和领土完整。
 
-**郭文贵先生：**我觉得像文斌我觉得你有孩子，我就跟你视频两次我就知道，你是个典型的就是一千年前的中国人的脑袋、中国人的爹，说你一百年都对不住你，你是一千年。就是你宠孩子你把孩子宠得很坏很坏，你管孩子你会管得完全不着路，我都不知道你媳妇咋跟你来一起管孩子的？就你一看我就知道了，你孩子那一视频，就是一千年前中国爹的形式，所以你问这个问题非常好，我看到他能这样管孩子。
 
-Jessica，我看她宠孩子，上次我们去直播，我们的小Ryan出来，多可爱个小伙子，Ryan是吧？但是我一看我就担心了，这Jessica接下来就开始什么？就要把妈妈的所谓的想法强加给孩子，我给你说那就完了。
 
-如果你孩子像你的时候，你就彻底失败了。就是哪怕你的优点他像你，你也失败了，孩子不像你，孩子比你强或者比你弱，只要不像你，就是成功。中国人说“长江后浪推前浪，一浪把后浪推到沙滩上”，我说不是的，长江后浪推前浪，一浪和一浪绝不一样，这才叫浪，哪一浪都不一样，没有重复的浪。“长江后浪推前浪，一浪和一浪都不一样”，这叫浪。
+> I spoke with People's Republic of China State Councilor and Foreign Minister Wang Yi. I underscored the need to preserve Ukraine’s sovereignty and territorial integrity.
+> — Secretary Antony Blinken (@SecBlinken) [February 22, 2022](https://twitter.com/SecBlinken/status/1495961543359356932?ref_src=twsrc%5Etfw)
 
-中国人是“一浪一定要把前浪拍在沙滩上”，这不是中国的邪恶的心理吗？对立的心理，永远是对立的，不是你死就是我活。你看到真正的大海的浪真的是拍在沙滩上吗？是一浪和一浪都不一样，这就是我觉着它就是浪，你为什么要把对方拍在沙滩上？你为什么一浪更比一浪强？放狗屁的！
 
-从来你孩子的浪你不会到大海，你不会到山上去，你永远在沙滩上待着，这不是扯吗？
 
-字幕来源：[2022年2月4日《文贵大直播》全文字版](https://gnews.org/zh-hans/1961700/)
+美前国务卿迈克·蓬佩奥：
 
-编辑整理：Jacques；
+弗拉基米尔·普京是侵略者。
 
-字幕文件制作：小满；
+乌克兰人是受害者。
 
-视频制作及上传：Cindy；
+我们永远不应该回避这一点。
 
-G-News发布：小满；
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+> Vladimir Putin is the aggressor. 
+> The Ukrainians are the victims.
+> We should never shy away from that.
+> — Mike Pompeo (@mikepompeo) [February 22, 2022](https://twitter.com/mikepompeo/status/1495913605635715078?ref_src=twsrc%5Etfw)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+参议员卢比奥： 我希望拜登不要被普京耍了 别等到他们见面的时候，俄罗斯已经吞并乌克兰东部，然后任何会谈都是关于不要进一步占领这个国家的。
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+> I hope Biden doesn’t get played by [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw)
+> 
+> By the time they meet [#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw) will have annexed eastern [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) & any meeting would be about not taking more of the country
+> — Marco Rubio (@marcorubio) [February 21, 2022](https://twitter.com/marcorubio/status/1495780486794383365?ref_src=twsrc%5Etfw)
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
+
+众议员麦克·沃尔兹： 50年前的今天，尼克松前往北京，试图离间共产主义中国和苏联。 此后，中国共产党利用美中关系在技术和经济上实现了跨越式发展，以寻求成为世界上占主导地位的超级大国。 （转推说：习在北约问题上支持普京。美国或将组建全球联盟，帮助各国部署先进武器，这预示着一场新冷战。）
+
+
+
+> 50 years ago today Nixon traveled to Beijing to drive a wedge between communist China & Soviet Union. 
+> 
+> The CCP has since used the US-China ties to leapfrog ahead technologically and economically in its quest to be the world’s dominant superpower. [https://t.co/tZ2EZucRjN](https://t.co/tZ2EZucRjN)
+> — Rep. Mike Waltz (@michaelgwaltz) [February 21, 2022](https://twitter.com/michaelgwaltz/status/1495765756247785476?ref_src=twsrc%5Etfw)
+
+
+
+参议员玛莎·布莱克本： 国际奥委会允许一个种族灭绝的 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 政权主办奥运会，并允许一名使用兴奋剂的俄罗斯运动员参加比赛。 而美国队参加北京奥运会使得这种胡作非为合法化。
+
+
+
+> The International Olympic Committee allowed a genocidal regime to host the Olympics and a Russian athlete that was doping to compete. 
+> 
+> Team USA’s presence at the Beijing Olympics legitimized this nonsense. [https://t.co/tlgZdKVVXp](https://t.co/tlgZdKVVXp)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [February 21, 2022](https://twitter.com/MarshaBlackburn/status/1495879336217485317?ref_src=twsrc%5Etfw)
+
+
+
+参议员玛莎·布莱克本： [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 正在逃脱反人类罪的惩罚，而拜登政府对此视而不见。
+
+
+
+> The Chinese Communist Party is getting away with crimes against humanity, and the Biden administration is turning a blind eye.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [February 21, 2022](https://twitter.com/MarshaBlackburn/status/1495838373981966341?ref_src=twsrc%5Etfw)
+
+
 
  
 

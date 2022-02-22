@@ -2,44 +2,24 @@
 ---
 
 
-## 直播历史:冬奥会变冬眠会普京随扈16人染病盘古狙击手死
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2046574/)
+## 武汉蝙蝠女渗透美国微生物学研究院
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2046568/)
 
-G-TV视频链接：[https://gtv.org/video/id=621264611408ee3a03a25822](https://gtv.org/video/id=621264611408ee3a03a25822)
+#### 采编/翻译：意翎
 
-**郭文贵先生：**所以今天七哥在这直说，今天大好的日子，大好的日子，共产党的冬奥会开没开成“冬眠会”你们自己评价去。普京这16个人染上病毒结果如何、你看看啥样儿吧。盘古后面死人，就地狙击手狙击队长死掉意味着什么？整个奥运会开幕式屏蔽掉盘古，又在盘古直播，这有多不要脸？所谓33国元首在全世界加在一起的钱、加在一起的力量连美国一个州都不如，我告诉你，美国，美英法，是吧？
+#### 责编：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/120254757_10160228494915200_353558479035758840_n-2.jpg)图片来源：Facebook of American Society for Microbiology 
+记者娜塔莉·温特斯（Natalie Winters）于《国家脉动》撰文揭露：臭名昭著的武汉实验室蝙蝠女石正丽（Zhengli Shi）当选为美国微生物研究学研究院（AAM）的领导，该机构从美国纳税人那里获取数百万元的资助，并建议联邦政府在高级别生物安全实验室“消除国际合作的障碍”。
 
-这过去都没去，如何……你这从过去大英帝国和美利坚共和国和中国的整个的外交史，对中国人的尊重和文明的来往，再看今天的冬奥会，中国人到了世界上人类上最差的程度，中国人再不救自己（就）没人救咱。
+石正丽经营着备受争议的中共病毒武汉实验室的新兴病毒传染病中心，她最早研究将蝙蝠携带的致命病毒用于感染人类，并获得了安东尼·福奇（Anthony Fauci）国家卫生研究所（NIH）的资助。对公众来说，中共新冠病毒就是从武汉这里开始的。然而，现在，她以生态健康联盟主席彼得·达扎克（Peter Daszak）“长期合作者”的身份，掩盖Covid-19的起源，并且她在美国科学机构中的领导地位却是由美国纳税人来承担的。在《国家脉动》独家报道了达扎克与蝙蝠女的利益链接后，达扎克被从新冠肺炎溯源小组中除名。
 
-现在共产党怕新中国联邦，怕七哥，怕盘古，我们新中国联邦我们所有战友们在H-Pay全球流行、金融新未来、制定新金融标准情况下，更应该看到我们的未来，是吧？这个今天的直播非常有意义！虽然一夜没睡觉，很兴奋，随时紧急大直播啊，好不好？我就今天我就说到这儿，我先下线。
+2019年1月石正丽获取AAM“荣誉领导小组”的研究员职位，这个美国微生物协会（ASM）的顾问角色让她对该机构的方向产生了影响，该机构在2020年获得了超过530万美元的联邦资金。ASM有个倡导计划，它部署其成员就公共卫生问题和研究条例以及包括与生物安全四级（BSL-4）设施有关的政策向国会进行游说，而蝙蝠女所在的武汉病毒学研究所就设有BSL-4实验室。至今，石正丽仍然保留在ASM网站页面上，尽管美国《国家脉动》多次提出评论，但ASM和AAM都没有回应关于石正丽目前状况或与她的研究有关细节的询问。
 
-字幕来源：[2022年2月4日《文贵大直播》全文字版](https://gnews.org/zh-hans/1961700/)
+2009年，罗纳德·阿特拉斯（Ronald Atlas）教授代表ASM在国会作证，透露该组织一直在为联邦政府提供高安全系数实验室方面的建议。他说：“过去两年，ASM会晤了联邦任务的生物安全和生物遏制监督行政工作组，旨在加强美国生物安保并恢复秩序，ASM向这些小组提出了一些建议，”阿特拉斯还代表ASM建议NIF改变对高风险设施的国际合作的监管，他辩解：“这些不是武器实验室，而是为了保护公众健康而进行调查的研究实验室……NIF要求外国机构必须拥有与美国相当的设施与标准，应该改变我们与外国机构的合作关系，以消除国际合作的障碍。”
 
-编辑整理：Jacques；
+**原文链接：**
 
-字幕文件制作：小满；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[EXC: Wuhan’s ‘Batwoman’ Advises a U.S. Taxpayer-Funded Group Which Lobbies Congress for Lower Standards for Foreign BioLabs.](https://thenationalpulse.com/2022/02/18/shi-zhengli-on-asm-leadership-board/)
 
  
 
