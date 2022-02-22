@@ -2,46 +2,41 @@
 ---
 
 
-## HPay将彻底甩开单伟建们达到支付钱进钱出无成本投资
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2046203/)
+## 北京猛烈抨击了俄罗斯可能入侵乌克兰的预测
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2046337/)
 
-G-TV视频链接：[https://gtv.org/video/id=621261a31408ee3a03a25617](https://gtv.org/video/id=621261a31408ee3a03a25617)
+翻译：lovemiles
+编辑：Mttfly
 
-**郭文贵先生：**你知道H-Pay会发生什么事情吗，兄弟姐妹们？没有任何人代表你。未来在H-Pay上会有无限个基金来出生，你们宝宝可能搞一个什么基金，我这个基金我告诉你我风险多大我赔钱多大，我可能是广东的某个什么项目，什么什么项目，我就多长时间开放，你投就投你不投拉倒，“啪”一下子钱就来了。
+**【雅典娜快讯】，紧贴时事脉搏**
 
-就未来这个H-Pay就进出钱和信息分享，刚才宝宝特别注意的话，还有青藤你们要记住呀还有Jessica，我汇钱还有信息沟通，这给谁留的？就是给有钱和需要钱的人沟通的。你们自己也沟通，我不需要任何什么基金经理。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/习近平、普京.jpg)图源：联合日报
 
-我今天，宝宝你看我穿得你看露成这样，是吧？不是郝海东拽出那个宋祖英的那个胸罩，我这真家伙，是吧？愿不愿投老娘一笔钱，是不是？投吧，文斌一看，哟，哇噻！这可以呀，我可以投啊，青藤也投我也投啊，那就投啊，咱就口头协议，我们就可以做，不需要任何人。
 
-我可以告诉大家，就所有的H-Pay就把“支”和“付”和“钱进钱出”无成本地进行投资，我告诉你它的大了去了，你不需要一个十几亿人被代表的单伟建等鸟人，你不需要Bruno Wu娶个白人老婆骗个绿卡，回去找个”钥匙澜”再当老婆代言人，都不需要了。你知道这个意义太大了兄弟姐妹们，你甭说小餐厅了，谁都不需要，只要你会用。
+中共国外交部发言人表示，在东西方对峙日益加剧之际，华盛顿应该帮助缓和俄乌边境的紧张局势，并放弃对莫斯科采取具有持续性威胁的惩罚措施。
 
-字幕来源：[2022年2月4日《文贵大直播》全文字版](https://gnews.org/zh-hans/1961700/)
+汪文斌周五在新闻发布会上发表讲话，对美国关于俄罗斯武装部队可能很快开始在东欧国家边境发动进攻的预测发表看法。
 
-编辑整理：Jacques；
+据他介绍，“美国情报界的可信度已经在伊拉克和乌克兰等多个场合受到考验。”“我想再次强调，在寻求乌克兰问题的政治解决过程中，任何人都不应竖起战争烟幕，以此为杠杆。或用制裁来威胁他人，更不应煽动国家之间的对抗。”
 
-字幕文件制作：小满；
+他的讲话是在最近几个月俄乌两国共同边界的严峻形势下发表的，西方领导人一再表示担心莫斯科在入侵乌克兰之前，将军队撤到边境地区。
 
-视频制作及上传：Cindy；
+今年一月，美国总统乔·拜登威胁他的对手俄罗斯总统弗拉基米尔·普京，如果普京允许俄军入侵乌克兰，他将对其实施前所未有的严重制裁。*“*他从未见过像我所要实施的制裁”，拜登当时警告说。
 
-G-News发布：小满；
+然而，克里姆林宫一再否认它有任何攻击计划，并辩称其军队在其领土上的移动是内部事务。在一连串的指责中，俄罗斯开始寻求北京公开支持，以此从西方获得安全保证，以排除北约扩大的可能性。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+习近平和普京本月早些时候发表联合声明，呼吁以美国为首的军事集团不要进一步扩张，放弃*“*冷战”思维。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+参考链接：[China blasts ‘smokescreen of war’](https://www.rt.com/russia/549882-china-blasts-smokescreen-war/)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+*发布：Mttfly*
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,33 +2,44 @@
 ---
 
 
-## 视频|新中国联邦的教育蓝图
-` MOSvideo` [轉載自GNews](https://gnews.org/zh-hans/2046165/)
+## HPay前期准备人民币中转、运行&amp;成本费、法币技术费用
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2046277/)
 
-制作：香草山视频部
+G-TV视频链接：[https://gtv.org/video/id=621262121408ee3a03a2566b](https://gtv.org/video/id=621262121408ee3a03a2566b)
 
-2月20日，郭文贵先生在大直播中，谈到教育的重要性，在于能去除人们思想里的中共余毒，并针对新中国联邦的教育谈到以下规划。
+**郭文贵先生：**那么但是这就是咱们这个整个H-Pay它太牛了，就这个投资者，他首先要通过他得自己要拿几亿美元前期做好准备，最低得上亿美元赔进去，他肯定要赔进去的，大概赔两年到三年，我估计就两到三年是赔钱赔在哪儿了呢，国内人民币的中转的那个技术上，它那个费用它是让你不拿钱的，那个钱是它赔最多的钱。
 
-第一，成立教育基金。郭先生认为，新中国联邦的教育应当完全免费，教师工资应当全球之最，每节课最低100美金。据郭先生透露，如今已有一千万美元的基金，并决定请参与G系列投资的合作基金捐款，让教育基金能达到一百亿美元，以保证教育经费充裕。
+第二个就是运行和成本。
 
-第二，组建教师团队。要求教师水平在哈佛之上，要吸引世界顶尖教师来到新中国联邦的学校任教，使教师团队做到世界翘楚。
+第三个不仅在中共国，除了北朝鲜之外合法使用货币的很多国家都遇到过这样的问题，就是无障碍的支付呢就有一些特别的技术安排会有一些成本。
 
-第三，建立全新师生考评制度。教师的好评和差评由学生决定；学生的成绩则由第三方公正评定。师生考评制度必须要打破陈规，建立公平的考评制度。
+字幕来源：[2022年2月4日《文贵大直播》全文字版](https://gnews.org/zh-hans/1961700/)
 
-第四，安排教学计划。学制的设立，教材的拟定，学时的安排，试卷的设计等都要科学化，做到真实有效，培养真善美的优秀人才。
+编辑整理：Jacques；
 
-第五、选择教学场所。教学场所可分为线上教学和线下教学。网络教学面向全球招生。实体则根据各国学生所需而定。
+字幕文件制作：小满；
 
-第六，制定教学目标。郭先生要求新中国联邦的学校，当为人类培养各领域的顶尖人才，为世界千年和平做贡献，这是郭先生从 “六四”以来的心愿之一。
+视频制作及上传：Cindy；
 
-最后，愿每一个新中国联邦人都支持教育，愿全球爱好和平的人都一同来参与，让人们因着好的教育，可以有信仰，有知识，有智慧，有能力，有爱心，幸福地生活。
+G-News发布：小满；
 
-发稿：林礼
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-**更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

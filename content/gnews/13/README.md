@@ -2,43 +2,43 @@
 ---
 
 
-## 单伟建钻西方冷金融空子用中共关系和背景中西两头通吃
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2046142/)
+## 司法部长预计将削减司法部打击中国间谍活动的部分内容
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2046273/)
 
-G-TV视频链接：[https://gtv.org/video/id=621261611408ee3a03a255e5](https://gtv.org/video/id=621261611408ee3a03a255e5)
+撰稿：小湫
 
-**郭文贵先生：**你知道那个单伟建太平联盟那个家伙，单伟建从中国出来混到美国，全家拿美国护照，儿子在美国吃他老爹，这些所谓的情报关系，单伟建这个事这两天没人说了，你们傻呀，单伟建这个人在西方怎么混出来的？他钻了西方一个最大的空子，叫做冷金融。就是美国人完全不知道中国市场开放的金融价值的情况下，他开始搞基金，TBG，PAG什么这G那G的，结果就整这样，然后在美国结交了一批律师事务所，一批所谓有钱的、有权的人，中国人被他代表了，拥有共产党的关系和背景，拥有王岐山、康典，然后他儿子在美国长大……英文……老婆全在美国，被他代表了，中国就让他代表了。
+消息人士告诉福克斯新闻，司法部将很快对其“中国计划”做出改变，在活动人士的压力下，可能会撤回该计划中打击中国在美间谍活动的部分努力。
 
-所以你知道单伟建在美国金融圈一提他，就跟那神秘的昆仑老神似的，因为中国人并不知道怎么搞基金，也不知道怎么搞投资，也不知道怎么跟海外投资，全被这过去的这几个所谓的基金大佬代理了。
+该项目于2018年启动，旨在保护美国的国家安全，防止中国窥探美国知识产权和学术界——这是国会目前试图解决的一个问题。
+![pastedGraphic.png](https://assets.gnews.org/wp-content/uploads/2022/02/BDBC58A7-9BB9-4601-A999-96500EC7DFAB.png)
+司法部长梅里克·加兰德于2022年1月5日在华盛顿特区的司法部发表讲话
 
-字幕来源：[2022年2月4日《文贵大直播》全文字版](https://gnews.org/zh-hans/1961700/)
+司法部网站上对该计划的描述称:“除了确定和起诉那些从事商业秘密盗窃、黑客攻击和经济间谍活动的人之外，该计划还专注于通过外国直接投资和损害供应链保护我们的关键基础设施免受外部威胁。”
 
-编辑整理：Jacques；
+福克斯新闻获悉，司法部对该项目的审查目前已接近完成，并将对该项目进行一些修改。 这些变化将是什么还不清楚。
 
-字幕文件制作：小满；
+司法部长梅里克·加兰德(Merrick Garland)和拜登政府面临着来自活动人士和一些大学教职人员的压力。 他们说，这损害了美国在研究方面的竞争力，并不成比例地以种族为目标。
 
-视频制作及上传：Cindy；
+上个月，抗议者站在美国司法部门外，称这一举措不公平地针对中国教授。 近200名耶鲁大学教授最近给加兰德写了一封信，要求他结束这项计划。
 
-G-News发布：小满；
+“我们只是希望他们能结束对华裔美国科学家的起诉，允许他们回去做他们的研究，而不是担心他们的未来，”美国华人联合会主席海佩·舒说。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+左翼智库今年早些时候主张完全终止这项倡议。 说该项目正在损害美国，部分原因是它让中国和华裔美国科学家害怕在美国工作。左翼智库同时说，“需要明确的是，中国对美国已经构成了间谍威胁，司法部和联邦调查局必须严肃对待，司法部已经根据中国倡议发起了诉讼  ，并不是针对中国的间谍活动或盗窃知识产权，而是与中国政府无关的华裔科学家轻微的行政违法行。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+今年，在美国司法部撤销了一起针对麻省理工学院(MIT)一名教授与中国有关的案件后，该项目受到了越来越多的审查。 据《政客》报道，司法部认为自己无法在法庭上证明自己的观点。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+但中国仍然对美国的国家安全和经济安全构成重大威胁，包括通过间谍活动和对美国大学施加影响的策略。 其中包括孔子学院，它是中国共产党在美国的宣传武器  。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+根据美国国家学者协会(National Institute of Scholars)的数据，目前美国有21所孔子学院，包括斯坦福大学(Stanford)、西弗吉尼亚大学(West Virginia University)、犹他大学(University of Utah)等。
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+国会目前正试图通过打击中国的立法，尽管众议院民主党人和参议院民主党人在应该包括哪些内容的问题上存在重大分歧。 美国国会领导人表示，他们希望在未来几个月达成某种妥协，将中国竞争法案提交给总统。
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+参考信息：
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+[https://www.foxnews.com/politics/justice-department-biden-garland-china-initiative-academia](https://www.foxnews.com/politics/justice-department-biden-garland-china-initiative-academia)
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*编辑：cindy*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

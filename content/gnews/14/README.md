@@ -2,30 +2,34 @@
 ---
 
 
-## 探望锁链女的民众被中共警察逮捕
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2046135/)
+## 有声｜普京下令“维和”部队进入乌克兰分离地区
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2046233/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2026.png)
-**布赖特巴特网2月19日报导，两名妇女上周末在江苏徐州被中共警察逮捕，因为她们试图探望被非法拘禁、强奸长达24年的“锁链女”。**
+By:**秘翻新闻**
 
-**据称中共警察于****13****日以“寻衅滋事罪”逮捕了这两名妇女。“寻衅滋事罪”是中共治下用来对付持不同意见者的“口袋罪”。 **
+**2022-02-22**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8-31.png)图片来源 Aleksey Nikolsky/EPA-EFE
+据合众国际社2 月 21 日报道，俄罗斯总统弗拉基米尔-普京周一承认乌克兰东部两个分离主义地区为独立共和国，并对此发布法令，同时命令 “维和 “部队进入这些地区。
 
-**报导强调了中共官员态度的转变，从否认锁链女是受害者到逮捕锁链女丈夫及两名同伙，原因是“公众要求调查非法拘留和人口贩运的呼声走高”。并例举了中国顶尖大学校友联名致公开信，要求彻底调查锁链女事件，却被中共审查封杀的案例。**
+该法令于周一晚间发布，并立即生效。根据其中的条款，普京承认了自称的顿涅茨克和卢甘斯克人民共和国，并下令俄罗斯武装部队执行维和职能。在签署法令前，普京向俄罗斯人民发表讲话称，乌克兰顿巴斯地区的局势再次危急，宣称现代乌克兰完全是由俄罗斯创造的”，而且乌克兰不仅仅是俄罗斯的邻国。它是我们自己的历史、文化、精神空间不可分割的一部分。
 
-**锁链女事件中，中国人民的良知人性于中共的邪恶残暴产生冲突。中共不等于中国人，锁链女事件的原罪在中共而不是中国人。**
+据《华盛顿邮报》报道，文件显示，这些协议已获得批准，并为期 10 年，这足以让俄罗斯在顿涅茨克和卢甘斯克建立军事基地，并在其与乌克兰的边界上联合巡逻。
 
-**【新闻链接】**[https://www.breitbart.com/asia/2022/02/19/china-police-arrest-people-for-trying-to-find-woman-chained-in-hut/](https://www.breitbart.com/asia/2022/02/19/china-police-arrest-people-for-trying-to-find-woman-chained-in-hut/)
+这些举措进一步加剧了危机中的紧张局势，美国和欧洲领导人一再警告称，这次事件是俄罗斯为入侵乌克兰前所作的掩护。
+
+拜登对此发布了一项行政命令，禁止美国人在乌克兰所谓的顿涅茨克和卢甘斯克地区进行新的投资、贸易和融资。
+
+此前欧洲领导人曾敦促普京不要承认这些分离地区，称会违反已维持7年的明斯克和平协议。
+
+新闻来源
+[**https://www.upi.com/Top\_News/World-News/2022/02/21/ukraine-invasion-joe-biden-vladimir-putin/2681645444138/**](https://www.upi.com/Top_News/World-News/2022/02/21/ukraine-invasion-joe-biden-vladimir-putin/2681645444138/)
+
+秘翻新闻 文洋 编译报道
+
+发布 : 恩典
 
 * * *
-
-***更多资讯***
-[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
-[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
-[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,26 +2,42 @@
 ---
 
 
-## 中日财经爆┃瑞信“强烈否认”泄露客户数据
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2045805/)
+## 北京冬奥人工造雪将对生态造成长期严重影响
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2045863/)
 
-整理编辑：东京樱花团｜peterwong
-![](https://lh6.googleusercontent.com/9v92l2FAhLleRYKL3az4WkQtJt3tMru0bYRBLyCYtvGbJsehOkrfGJ_Qti1y289xmlJxcEXFuI3v9FLB6D62N9BHVpf15wUPUHgZizynGCtRsioPpJlSIYnqRwzZ2497rXWT8yx4)[*图片来源*](https://www.swissinfo.ch/resource/image/47364016/landscape_ratio16x9/1920/1080/3fb2a7c17b3ab8182c763c600f966c85/520C28F226C80E6D914FB894E195DF7B/credit-suisse_highres.jpg)
-路透社2月21日报道，此前数十家媒体公布了类似巴拿马文件（Panama papers）式的协调调查结果，调查涉及瑞士信贷过去几十年数千个账户的数据泄露。瑞信“强烈否认”有关该行存在不当行为的指控。
+**整理：围剿维尼熊
+编辑：Candy**
 
-有一个人将这些账户的信息泄露给了德国南德日报（Suddeutsche Zeitung），瑞信在1940至2010年代的数几十年间持有这些账户。这家德国日报与“有组织犯罪和腐败报告项目”以及包括纽约时报、英国卫报和法国世界报在内的其他46家新闻机构分享了这些信息。
+**【雅典娜快讯】，紧贴时代脉搏**
 
-在这些指控中，有指控称瑞信的客户包括侵犯人权者和受到制裁的商人。泄露的数据涉及18,000多个账户，总共持有1,000多亿美元资金。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-02-下午10.11.59-16.png)
 
-瑞士信贷集团是一家注册在瑞士苏黎世的股份有限公司，同时它也是一家控股公司。它拥有瑞士信贷银行及其他金融服务业务中的权益。瑞士信贷集团拥有两大事业部门：[私人银行](https://zh.wikipedia.org/wiki/%E7%A7%81%E4%BA%BA%E9%93%B6%E8%A1%8C%E6%9C%8D%E5%8A%A1)及[财富管理](https://zh.wikipedia.org/wiki/%E8%B4%A2%E5%AF%8C%E7%AE%A1%E7%90%86)事业部和[投资银行](https://zh.wikipedia.org/wiki/%E6%8A%95%E8%B5%84%E9%93%B6%E8%A1%8C)事业部。公开资料显示，2020年第3季，瑞信管理的资产规模多达14,783亿瑞士法郎。
 
-2008年瑞士信贷集团和方正证券股份有限公司共同出资设立瑞信证券（中国）有限公司，其中瑞信持股比例为51%。
+根据大纪元2月21日讯：2022北京冬奥虽已结束，但专家警告，中共当局在张家口和延庆大规模人工造雪，可能对生态造成长期影响，自然环境可能需要数百年才能恢复。
 
-消息来源：[**瑞士信贷在客户数据遭泄露后否认有不当行为**](https://cn.reuters.com/article/credit-suisse-customer-data-leak-0221-idCNKBS2KQ0SC?il=0)
+虽然北京不是第一个使用人造雪的冬奥主办方，但它是第一个几乎完全依赖人造雪的城市。中共当局提出的保护和恢复工作，可能无法防止土地、动植物受到伤害。
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+据纽约非营利性新闻组织——气候新闻内幕（Inside Climate News）报导，法国斯特拉斯堡大学水文学教授卡门‧德容（Carmen de Jong）表示，像滑雪道这类大型建设，对环境有非常强烈的影响，后果可能是不可逆的。
+
+德容曾在一个播客节目上指出，由于北京冬奥赛区气候非常干旱，每年降雨量不足400毫米，因此水必须从很远的地方抽取，用管道输送到山上，势必对灌溉、民生用水产生影响。
+
+尽管北京官员和中共官媒多次否认，但有消息传出，人造雪用水使当地的水供应紧张。
+
+德容表示，人造雪的影响不仅止于水供应，人工造雪加上扫雪机的使用，会使土壤渗流能力下降，提高土壤温度，增加地表水径流，导致水土流失。
+
+美国科罗拉多大学博尔德分校地理学副教授诺亚·莫洛奇（Noah Molotch）表示，水、能量和养分的变化，将影响植物在整个景观中的分布。雪对土壤造成的改变，也可能影响植物的生长期。
+
+参考链接：[https://www.epochtimes.com/gb/22/2/21/n13592993.htm](https://www.epochtimes.com/gb/22/2/21/n13592993.htm)
+
+**发布：Candy**
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
