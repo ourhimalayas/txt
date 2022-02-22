@@ -19,6 +19,15 @@
 
 **:arrows_clockwise: miles 已轉發**
 
+`@baoliaobaike 2/22/2022 12:06 PM (UTC)`
+
+🆙【爆料百科-13579计划】❤️‍🔥<br/><br/>迟浩田亲自设计规划，习近平签字的第一绝密㊙️文件！<br/>确保美国人可以大面积死亡💀，让美国政府彻底灭亡。<br/>从而保证中国共产党统治世界。<br/>#爆料百科 #爆料革命  #CCP #香草山 #香草山农场 #3F #13579计划 
+![img](https://media.gettr.com/group20/getter/2022/02/22/12/5c6501f2-c313-3404-b4c8-a8cd00bb7dc8/out.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
 `@gfashion 2/18/2022 3:57 PM (UTC)`
 
 New Release ✨                                              Shop Now at www.gfashion.com
@@ -151,13 +160,6 @@ New Release ✨                                              Shop Now at www.gfa
 
 2/20/2022 Miles Guo: What did Putin and Xi talk about during their secret meeting? All dictators are afraid of death, and both Xi and Putin are in poor health. How did they collude with each other in terms of money and internal politics?<br/><br/>2/20/2022 文贵直播：普习二人密会到底谈了啥？所有的独裁者都怕死，而普习二人身体也都不好，他俩在钱和内部政治上是咋勾兑的？<br/>
 ![img](https://media.gettr.com/group42/getter/2022/02/21/06/d7162a81-b7de-cb02-84b0-385f8c2682b0/out.jpg)
-
----
-
-`@miles 2/21/2022 3:39 AM (UTC)`
-
-2/20/2022 Miles Guo: Upon taking office, Xi formed a political and military alliance with Putin. After that, the CCP signed huge contracts to purchase goods from Russia, with the trade volume between the two countries skyrocketing, and they have formed an all-weather strategic brotherhood partnership in the military. Putin agrees that Asia belongs to Xi.<br/><br/>2/20/2022 文贵直播：习一上任就跟普京结成了政治军事同盟，此后中共便跟俄罗斯签下巨额订单，两国贸易额飙升，并在军事上形成了全天候战略伙伴关系：普大帝已认可亚洲就是习的<br/>
-![img](https://media.gettr.com/group43/getter/2022/02/21/03/3b9e4a0a-d64a-f9ee-31a0-eccca3050c65/out.jpg)
 
 ---
 
