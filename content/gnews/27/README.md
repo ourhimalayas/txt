@@ -2,39 +2,20 @@
 ---
 
 
-## 有声|中共国结婚人口急剧下降，释放生育危机信号
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2044190/)
+## 英国女王感染中共病毒
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2044224/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月18日，国外媒体援引中共的相关数据，揭示了中共国近年来结婚人数明显下降的趋势。
+加拿大温哥华扬帆农场    平民正道
 
-数据表明，2021年前三季度中共国婚姻登记数量较2019年同期下降17.5%。其中江苏省结婚人数连续五年下降，浙江省杭州市2021年结婚人数还不到2011年的80%。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-9.jpg)
-与此同时，中共国46.5%的结婚者年龄在30岁以上。结婚人口的下降、结婚者年龄偏大等现象将进一步降低中国的人口出生率。据悉，2021年中共国出生率已降至中共国家统计局1949年记录以来最低水平。
+据加拿大媒体《CTV新闻》2月20日报道，来自英国白金汉宫消息称，现年95岁的英女王当天的“新冠病毒”检测结果呈阳性，并出现了轻微的类似感冒症状。
 
-据社交媒体的信息，民众普遍认为，近年来中共政权采取各种政策明争暗夺，导致民众收入难以提高，生活成本却不断上涨，引发了年轻人“结婚难”这一现象。
+据悉，女王此前已完全接种了该病毒疫苗和加强剂。此外，本月初查尔斯王子及其夫人也感染了“新冠病毒”。同时，女王下榻的温莎城堡中也有工作人员被感染。
 
+在英国逐步取消各项防疫政策的同时，接种疫苗后所带来的健康危机正悄然而至。人类面临前所未有的灭顶之灾还远未结束。
 
+* * *
 
-文字版原文：[中共国结婚人口急剧下降，释放生育危机信号](https://gnews.org/zh-hans/2039292/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+编辑： 平民正道    发布：平民正道
 
  
 

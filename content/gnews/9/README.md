@@ -2,24 +2,66 @@
 ---
 
 
-## 中日财经爆┃乌克兰紧张局势导致黄金价格飞涨
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2044340/)
+## 监督警察的“警察”，安大略省特别调查组（SIU）介入，调查铁蹄践踏妇女事件
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2044460/)
 
-撰稿：东京樱花团｜文小白
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2009.png)图片来自本文链接
-据NHK2月21日午间新闻报道，由于乌克兰局势趋紧，导致被视为相对安全资产的黄金价格高涨。黄金期货价格21日一度触及每克7040日元水平，创下交易时段新高。
+**编译及评论：16626**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/18C0CBF5-85A2-4202-BB7A-C7FF261FA6F0.png)图片来源：https://media.gettr.com/group12/getter/2022/02/19/01/a169f5e8-45d0-01c5-88b9-c148b8e1e674/ac2adeb1b271141019a123995d092f74\_500x0.jpg
+**安大略省特别调查组（SIU 或UES）**
 
-21日，在大阪交易所的黄金期货交易中，交易开始后买单随即不断增加，作为交易中心今年12月价格每克一度达到了7040日元。这个价格超过了前年8月份的7032日元，是一年半以来的首次突破。
+专门负责在必要时对警方进行调查的安大略省特别调查组（SIU 或UES）表示，已对周五和周六（平息）渥太华抗议活动（的警察行为）展开调查。
 
-黄金被认为是一种相对安全的资产，在股票和国债价格随着欧美货币紧缩走势而下跌的同时，投资者的需求不断增加，进入到今年以后，黄金价格呈上升趋势。
+安大略省特别调查组（SIU 或UES，相当于魁北克独立调查局（BEI））的调查人员对一段视频很重视，该视频显示一名妇女在（警察）镇压抗议者期间被一匹警马撞倒。
 
-此外，随着对俄罗斯军事入侵乌克兰局势的担忧加剧，在紧急状况下易于购买的黄金价格进一步上涨。市场关系者表示，“因为乌克兰局势的紧张和对通胀的担忧加剧导致原油和谷物价格上涨，虽然购买黄金是因为资产的价值不太可能下降，但黄金价格的走势可能会继续受到乌克兰局势的影响。”
 
-信息来源：[**「金」が最高値に 1グラム＝7040円台 ウクライナ情勢緊迫化で**](https://www3.nhk.or.jp/news/html/20220221/k10013494561000.html)
 
-*校对：东京樱花团/東洋武士*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**增援渥太华的多伦多警察**
+
+据安大略省特别调查组（SIU 或UES） 称，周五下午 5 点 14 分，被马和它的骑手撞倒的妇女“严重受伤”,该事故涉及一名增援渥太华的多伦多警察。
+
+该妇女的家人，在网络上提到该妇女锁骨受伤。
+
+**增援渥太华的温哥华警察**
+
+此外，安大略省特别调查组（SIU 或UES）还将调查使用一种非致命的防暴武器（造成的伤害），周六晚上增援渥太华的温哥华警察曾使用这种非致命的防暴武器。
+
+**（监督）警察的警察**
+
+安大略省特别调查组（SIU 或UES），又称为“（监督）警察的警察” 还声明，截至周日早上，还没有记录到与使用这些武器有关的伤害。
+
+安大略省特别调查组（SIU 或UES）欢迎在（警察平息）渥太华抗议活动中的受害人或知情者提出投诉或举报。
+
+另外，据PM （[https://thepostmillennial.com/woman-trampled-freedom-protest-indigenous-elder](https://thepostmillennial.com/woman-trampled-freedom-protest-indigenous-elder) ） 报道，惨遭铁蹄践踏的妇女是原住民。
+
+**鐵蹄踐踏**
+
+另外，Gettr有这样的评论（[https://gettr.com/post/pvltbq8a54](https://gettr.com/post/pvltbq8a54) ）：
+
+***人民何罪之有？為什麼一次次被暴政碾壓******❓***
+
+***從天安門廣場的坦克，到香港被自殺被失蹤的年輕人，到今天加拿大鐵蹄踐踏之下的傷亡者******❓***
+
+***我們有生之年還要經歷多少心碎時刻******⁉***
+
+日前，Gnews发表一篇题为《魁北克省自由卡车司机收到罚单同时，数名示威者递给他现金，[https://gnews.org/zh-hans/2034324/](https://gnews.org/zh-hans/2034324/) 》的文章报道，自由卡车司机收到警察的罚单同时数名示威者马上递给他现金。Gnews还发表一篇题为《魁北克省记者“自爆”收到纽伦堡审判的照片，[https://gnews.org/zh-hans/2022554/](https://gnews.org/zh-hans/2022554/) 》的文章报道，一位署名为，安东尼奥斯·萨拉利利斯（Antonios Sarailis）的人，发给加拿大魁北克省的蒙特利尔日报记者，伊曼纽尔 拉特拉维斯，Emmanuelle Latraverse，一张纽伦堡审判处决的照片，并警告下一个就轮到这名记者了。引用此篇文章的一段话来结束此篇报道：
+
+***纽伦堡审判的时刻快到了***
+
+***我们谴责并反对暴力示威，更反对政府施加暴力于人民。那些，颠倒黑白，替邪恶势力站台的媒体，以及执法机关的警察，同样逃脱不了即将到来的纽伦堡审判。***
+
+**参考资料**：
+
+[Une enquête ouverte sur le démantèlement de la manifestation à Ottawa](https://www.tvanouvelles.ca/2022/02/20/une-enquete-ouverte-sur-le-demantelement-de-la-manifestation-a-ottawa-1)
+
+**编辑：LILY**
+
+**发布：歪桑**
+
+20220221
+
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/E613D0A7-BA37-452F-93C3-79D9D54F1765.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
