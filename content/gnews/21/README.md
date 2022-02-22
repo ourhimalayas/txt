@@ -2,26 +2,25 @@
 ---
 
 
-## 瑞士信贷违反国际规则 长期为非法资金开绿灯
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2044287/)
+## 链锁残躯又锁魂
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2044378/)
 
-撰稿：东京樱花团｜麗子
-![](https://assets.gnews.org/wp-content/uploads/2022/02/pasted-image-0-11.png)[*图片来源*](https://www.nikkei.com/article/DGXZQOGR029G00S1A600C2000000/)
-根据基于大量举报人的调查信息显示，几十年来，有数十亿美元非法资金流入瑞士银行业巨头瑞士信贷。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/a5hul-twrk7.jpg)**图片来源：网络**
+链锁残躯又锁魂，断舌难言凄惨状。
+国之父母心冷漠，百姓禁言助恶生。
+官官相护人伦丧，华夏男儿无足地。
+折腰独扫门前雪，自喜无灾临己身。
 
-这项调查是由“组织犯罪及腐败报告项目（OCCRP）”小组进行的，参与单位由来自世界各地的48家新闻机构，包括法国《世界报》和英国《卫报》等知名媒体组成。
+如果你不想看到铁链女事件这样的人间惨剧发生在你身上，请你发出你正义的声音，每天花几分钟的时间，不怕重复地为这些被拐卖的中国妇女献出一点身为同类的爱心。
 
-据《世界报》报道，瑞士信贷违反了国际银行规则，几十年来一直存放与犯罪和腐败有关的非法资金。
+作者：洛杉矶盘古农场 — Bc.S
+编审：洛杉矶盘古农场 — 心照
+发布：洛杉矶盘古农场 —彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-据OCCRP称，举报人透露的数据包括18,000多个账户信息，其中最大的账户存款额超过80亿美元。账户持有人包括一名参与酷刑的也门情报官员、阿塞拜疆领导人的儿子、塞尔维亚贩毒集团负责人和一名涉嫌贪污石油资金的委内瑞拉内阁部长。
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-再对照郭文贵先生关于UBS诉讼历尽波折，才终于得以在英国成功立案，一切足以证明黑暗势力背后操纵之深之广。
-
-信息来源：[**クレディ・スイスに多額の不正預金 調査報道**](https://news.yahoo.co.jp/articles/75a7b7d6b93111c4e21f500279e52a07a34e211b)
-
-*校对：东京樱花团/東洋武士*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
