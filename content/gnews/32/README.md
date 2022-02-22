@@ -2,37 +2,36 @@
 ---
 
 
-## 万事达卡将帮助中央银行采用数字货币
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2045265/)
+## 中共使用机器人和虚假帐号影响冬奥会讨论
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2045293/)
 
-翻译/编辑：小红帽
+作者：台灣寶島農場 — 尋文客
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国媒体2月18日报导，中共使用机器人、虚假帐号等工具选择性编辑宣传故事，以影响有关冬奥会的讨论。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/8-30.png)图片来源：CNN
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-8.jpeg)
 
+据报道，该媒体与非营利调查新闻编辑室ProPublica发现，推特上存在一个中共虚假帐号网络。该网络有超过3000个帐号，通过分享带有相同评论的中共外宣推文，以协调行动，影响有关冬奥会的讨论。这些帐号普遍创建不久，没有关注者，推文仅以转发中共外宣推文为主。
 
-根据PUNCH 2月22日报道，万事达卡(Mastercard)宣布，公司以支付为中心的咨询服务现在将包括致力于开放银行、开放数据、加密货币和数字货币、环境以及社会和治理的实践。
+目前推特已经通过电子邮件声明，确认数百个账户已被封禁，同时表示，将进一步调查这些帐户与国家支持的信息运营之间的联系。
 
-该公司表示，扩展的重点之一将涉及帮助中央银行使用其测试平台探索中央银行数字货币的设计和部署。
+中共冬奥会的虚假不仅限于虚假帐号操纵舆论。根据郭文贵先生在大直播中的爆料，中共冬奥会场的雪为人造假雪，裁判被中共买通非公正判罚，中共参赛运动员国籍造假。中共冬奥会的呈现只有虚假和丑陋。
 
-根据一份声明，万事达卡与银行和商家的咨询工作涵盖了一系列数字货币功能。从早期教育、风险评估和银行范围内的加密和NFT战略开发到加密卡和加密忠诚度计划的设计。
+参考链接：[中国如何讲好冬奥故事：机器人、虚假帐户与“水军”](https://cn.nytimes.com/technology/20220218/china-olympics-propaganda/)
 
-声明说：“万事达卡已与提供最佳加密货币解决方案的数字原生公司建立了合作伙伴关系，并通过进入市场规划和商业化战略帮助金融科技公司扩展到新市场”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-据该公司称，随着商业世界面临创新的涌入，它还必须应对不断变化的消费者偏好、快速的数字化转型和地缘政治的转变。
+总编：文真
+编辑：谐趣园
+校正/发稿：谐趣园
 
-据该公司介绍，其数据和服务包括2000多名数据科学家、工程师和顾问，为全球70个国家的客户提供服务。
-
-新闻链接：[Mastercard to help central banks adopt digital currencies](https://punchng.com/mastercard-to-help-central-banks-adopt-digital-currencies/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

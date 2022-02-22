@@ -2,49 +2,45 @@
 ---
 
 
-## 新州师生月底起无需每周自测两次
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2045653/)
+## 宁夏女警察对被喝茶战友高接远送千叮咛万嘱咐保住喜币
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2045714/)
 
-翻译&评论：金生水
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3-61.png)图片来自网络
-澳媒《ABC News》近日报道，本周之后，新南威尔士州的学生和教职员工将不再需要每周进行两次快速抗原检测 (RAT)。
+G-TV视频链接：[https://gtv.org/video/id=62125e241408ee3a03a2536d](https://gtv.org/video/id=62125e241408ee3a03a2536d)
 
-从 2 月 28 日星期一开始，学生和教职员工只有在出现症状时才需要进行快速检测。
+**郭文贵先生：**同样的是我们有战友被在宁夏叫去喝茶去，警察出来说，女警察啊，女警察啊，非常漂亮的警察据战友说。
 
-新南威尔士州政府表示，仍将为每位学生和教职员工提供 8 个 RAT 套件，供其根据需要使用。
+出来以后说：“哥们儿，你已经有1万个币了，我们都羡慕你不得了。这我们也不要你的币，你把你那1万个币给保住，你别傻乎乎的哪天的时候我们找你要币的时候你没有了。”出门儿说我们车送你回去，出门儿我们车送你回去。
 
-自第一学期开始以来，学生和教职员工被要求每周两个早上在家中进行中共病毒测试，然后再去上学。
+你看这个币值钱到什么程度啊？就是高接远送送你回去，你把你的币保护好，等着我有天需要币的时候找你。
 
-州长多米尼克·佩罗特表示，RAT 在让孩子们重返课堂方面发挥了重要作用。
+字幕来源：[2022年2月4日《文贵大直播》全文字版](https://gnews.org/zh-hans/1961700/)
 
-佩罗特先生说：“在对学生的教育、社交生活和福祉造成了两年的干扰后，我们让学生重返课堂至关重要，而 RAT 在确保他们安全返回方面发挥了重要作用。”
+编辑整理：Jacques；
 
-“因此，在为期 4 周的监测测试计划之后，我们将为全州的每位学生和教职员工提供另外 8 种 RAT，供他们在认为必要时自行决定使用。
+字幕文件制作：小满；
 
-“这些包是供家庭和工作人员自行决定使用的，以使他们自己安心，例如，当学生因喉咙痛或咳嗽而感到不适时，或者如果家庭成员生病时。”
+视频制作及上传：Cindy；
 
-教育部长莎拉·米切尔表示，超过 90% 的家长一直在使用提供的 RAT。
+G-News发布：小满；
 
-米切尔女士说：“重要的是，我们要帮助学生、教职员工和家庭在我们回到更正常的学校生活时保持信心。”
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-“我们知道我们的措施是有效的；学校的传播率极低，尽管社区传播水平很高，但自今年学生返回以来，学校没有停课。”
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-新州卫生厅的数据显示在学年开始的头两周内有2万多学童测出阳性，学生中的病例数迅速增加，第二周的病例数几乎比第一周多一半。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-从 2 月 25 日星期五开始，大多数室内环境将不再强制要求佩戴口罩。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-新南威尔士州今天早上报告说，在昨天下午 4 点之前的 24 小时内，有 21 例中共病毒死亡。
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-医院有 1280 人感染该病毒，其中 77 人在重症监护室。
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-报告期内新增确诊病例 5582 例。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-这样的话去学校上学的孩子也不用测试了，而且在室内上课也不要求戴口罩，感染的风险比原先再次上升了一个量级。各位有孩子的家长请务必坚持住千万别送孩子去学校！
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-参考链接：
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
-[https://www.abc.net.au/news/2022-02-20/nsw-eases-rapid-antigen-tests-for-school-students-staff/100845968](https://www.abc.net.au/news/2022-02-20/nsw-eases-rapid-antigen-tests-for-school-students-staff/100845968)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

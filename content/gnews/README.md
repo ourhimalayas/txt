@@ -15,110 +15,110 @@
 
 ---
 
-### [不建议有抱负者去没有大起伏、大希望和大灾难的新西兰](/content/gnews/1/README.md)
+### [不准有明星只有群众参加的冬奥会开幕式染病数百死数十](/content/gnews/1/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [新州师生月底起无需每周自测两次](/content/gnews/2/README.md)
+### [宁夏女警察对被喝茶战友高接远送千叮咛万嘱咐保住喜币](/content/gnews/2/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [沮丧和谴责：西方开始对俄罗斯执行制裁](/content/gnews/3/README.md)
  ` 澳喜农场`
 
-### [有声｜林郑月娥不祥之兆？港媒揭深圳密会气氛凝重](/content/gnews/3/README.md)
- ` 秘密翻译组-即时新闻播报组`
+### [普京承认乌克兰两地区独立，并派驻军队支持](/content/gnews/4/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [希腊的中共病毒病例显著下降](/content/gnews/4/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [危机之下美国的财富转移和科技更新必将淘汰大批落伍者](/content/gnews/5/README.md)
+### [冬奥会外场的安检警察和国保听到郭文贵的名字莫名紧张](/content/gnews/5/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [2/20/2022 文贵直播：中共国有谁知道钱的感觉吗？钱是精神安慰剂，习给了孤独的普大帝精神安慰剂、并愿意跟他平分天下以共同对付美国](/content/gnews/6/README.md)
- ` 秘密翻译组-北美组`
-
-### [受中共制裁的美国前最高外交官蓬佩奥访问台湾](/content/gnews/7/README.md)
- ` 澳喜农场`
-
-### [每日快报：普京在乌克兰东部的举动加剧了紧张局势](/content/gnews/8/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [新材料生物科技太空科技和自由法治独霸的美国将会重生](/content/gnews/9/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [香港准备了两万间酒店房间用于隔离](/content/gnews/10/README.md)
- ` 澳喜农场`
-
-### [2/20/2022 文贵直播：新中国联邦的头等大事是灭共，第二件大事是搞教育；G-EDU归文贵管，欢迎有本事的老师加入](/content/gnews/11/README.md)
- ` 秘密翻译组-北美组`
-
-### [把冬奥会变冬眠会的郭文贵三个字绝对让习近平闻风丧胆](/content/gnews/12/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [币圈新闻动态：喜币（HCN）价格目前在44.170 HDO](/content/gnews/13/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [加拿大和新西兰政府的堕落让世界觉醒](/content/gnews/14/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [普京女儿本来要给爸爸面子赴冬奥但最后一分钟取消行程](/content/gnews/15/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [2/20/2022 文贵直播：一旦开战，大连和辽宁因其关键的战略位置而将成为重灾区，请战友们多保重，我们要尽快灭共，不然谁都可能成炮灰](/content/gnews/16/README.md)
- ` 秘密翻译组-北美组`
-
-### [拜登宣布对乌克兰东部独立地区实施制裁](/content/gnews/17/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [约10家航空公司暂停了前往乌克兰航班](/content/gnews/18/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [习近平相由心生,冬奥会现场33位国宾心仪七哥而非习神](/content/gnews/19/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [文革受害者之北大教授俞大絪](/content/gnews/20/README.md)
- ` NFSC News`
-
-### [中共冬奥组委回答南都记者：437个阳性病例绝大多数无需药物治疗](/content/gnews/21/README.md)
- ` 首尔天池农场`
-
-### [喜支付的每一步都在给世界制定游戏规则，而且符合法律](/content/gnews/22/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [让战友1.5亿币的战友投五百万买喜币千万及亿级先别进](/content/gnews/23/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [加拿大父母对幼儿接种持怀疑态度](/content/gnews/24/README.md)
+### [美疾控中心和辉瑞发布血栓紧急警告](/content/gnews/6/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [财经｜俄乌战火一触即发 股市大泻 卢布汇价急跌 金价重回1900美元大关](/content/gnews/25/README.md)
- ` 關注組`
+### [【TopNews】俄总统普京签署命令承认顿涅茨普京签署命令承认顿涅茨克和卢甘斯克独立](/content/gnews/7/README.md)
+ ` topnews`
 
-### [英首相约翰逊宣布全面废除新冠病毒限制](/content/gnews/26/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [不建议有抱负者去没有大起伏、大希望和大灾难的新西兰](/content/gnews/8/README.md)
+ ` 喜马拉雅日本银河系农场`
 
-### [澳大利亚计划在南极洲投资8亿美元，以反击中共的影响力](/content/gnews/27/README.md)
+### [江苏徐州丰县铁链女事件](/content/gnews/9/README.md)
  ` 首尔天池农场`
 
-### [有声｜海底捞2015年来首次年度亏损 预亏至少38亿](/content/gnews/28/README.md)
+### [新州师生月底起无需每周自测两次](/content/gnews/10/README.md)
+ ` 澳喜农场`
+
+### [有声｜林郑月娥不祥之兆？港媒揭深圳密会气氛凝重](/content/gnews/11/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [雅典娜时报-第212期](/content/gnews/29/README.md)
- ` 墨尔本雅典娜农场`
+### [希腊的中共病毒病例显著下降](/content/gnews/12/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
 
-### [中共使用机器人和虚假帐号影响冬奥会讨论](/content/gnews/30/README.md)
+### [危机之下美国的财富转移和科技更新必将淘汰大批落伍者](/content/gnews/13/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [2/20/2022 文贵直播：中共国有谁知道钱的感觉吗？钱是精神安慰剂，习给了孤独的普大帝精神安慰剂、并愿意跟他平分天下以共同对付美国](/content/gnews/14/README.md)
+ ` 秘密翻译组-北美组`
+
+### [受中共制裁的美国前最高外交官蓬佩奥访问台湾](/content/gnews/15/README.md)
+ ` 澳喜农场`
+
+### [每日快报：普京在乌克兰东部的举动加剧了紧张局势](/content/gnews/16/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [新材料生物科技太空科技和自由法治独霸的美国将会重生](/content/gnews/17/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [香港准备了两万间酒店房间用于隔离](/content/gnews/18/README.md)
+ ` 澳喜农场`
+
+### [2/20/2022 文贵直播：新中国联邦的头等大事是灭共，第二件大事是搞教育；G-EDU归文贵管，欢迎有本事的老师加入](/content/gnews/19/README.md)
+ ` 秘密翻译组-北美组`
+
+### [把冬奥会变冬眠会的郭文贵三个字绝对让习近平闻风丧胆](/content/gnews/20/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [币圈新闻动态：喜币（HCN）价格目前在44.170 HDO](/content/gnews/21/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [加拿大和新西兰政府的堕落让世界觉醒](/content/gnews/22/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [2/20/2022 文贵直播：一旦开战，大连和辽宁因其关键的战略位置而将成为重灾区，请战友们多保重，我们要尽快灭共，不然谁都可能成炮灰](/content/gnews/23/README.md)
+ ` 秘密翻译组-北美组`
+
+### [拜登宣布对乌克兰东部独立地区实施制裁](/content/gnews/24/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [约10家航空公司暂停了前往乌克兰航班](/content/gnews/25/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [文革受害者之北大教授俞大絪](/content/gnews/26/README.md)
  ` NFSC News`
 
-### [欧元稳定币正在DeFi生态系统中占据一席之地](/content/gnews/31/README.md)
+### [加拿大父母对幼儿接种持怀疑态度](/content/gnews/27/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [财经｜俄乌战火一触即发 股市大泻 卢布汇价急跌 金价重回1900美元大关](/content/gnews/28/README.md)
+ ` 關注組`
+
+### [澳大利亚计划在南极洲投资8亿美元，以反击中共的影响力](/content/gnews/29/README.md)
+ ` 首尔天池农场`
+
+### [有声｜海底捞2015年来首次年度亏损 预亏至少38亿](/content/gnews/30/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [雅典娜时报-第212期](/content/gnews/31/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [中共使用机器人和虚假帐号影响冬奥会讨论](/content/gnews/32/README.md)
+ ` NFSC News`
+
+### [欧元稳定币正在DeFi生态系统中占据一席之地](/content/gnews/33/README.md)
  ` 纽约香草山MOS03`
 
-### [万事达卡将帮助中央银行采用数字货币](/content/gnews/32/README.md)
+### [万事达卡将帮助中央银行采用数字货币](/content/gnews/34/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2月21日 历史上的今天](/content/gnews/33/README.md)
+### [2月21日 历史上的今天](/content/gnews/35/README.md)
  ` NFSC News`
-
-### [有声｜因向自由车队捐赠 50 美元 银行账户遭冻结](/content/gnews/34/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [普京批准乌克兰亲俄地区独立并派兵驻扎](/content/gnews/35/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [法国外长表示已做好准备维护台海稳定](/content/gnews/36/README.md)
  ` NFSC News`
