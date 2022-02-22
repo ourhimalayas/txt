@@ -2,77 +2,58 @@
 ---
 
 
-## 安东尼·布林肯同王毅进行了交谈,强调需要维护乌克兰的主权和领土完整
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2045807/)
+## 大胡子医生称赞加拿大卡车司机是新时代登陆诺曼底的勇士
+` 喜马拉雅纽约磐石农场` [轉載自GNews](https://gnews.org/zh-hans/2046127/)
 
-国务卿安东尼·布林肯： 我同 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 国务委员兼外交部长王毅进行了交谈。我强调需要维护乌克兰的主权和领土完整。
+翻译/撰稿：Jenny
+视频剪辑/字幕：外星人
+泽夫-泽连科博士是COVID-19鸡尾酒疗法的创新者，在2020年疫情之初，他使用**羟氯喹、锌和阿奇霉素三种药物作为治疗新冠病毒疗方案，俗称新冠鸡尾酒疗法**，这个“泽伦科方案”治愈的高风险Covid-19患者的生存率在第一轮疫情时达到了99%。
 
-
-
-> I spoke with People's Republic of China State Councilor and Foreign Minister Wang Yi. I underscored the need to preserve Ukraine’s sovereignty and territorial integrity.
-> — Secretary Antony Blinken (@SecBlinken) [February 22, 2022](https://twitter.com/SecBlinken/status/1495961543359356932?ref_src=twsrc%5Etfw)
-
-
-
-美前国务卿迈克·蓬佩奥：
-
-弗拉基米尔·普京是侵略者。
-
-乌克兰人是受害者。
-
-我们永远不应该回避这一点。
+- 他被提名为总统自由勋章的候选人
+- 他被提名为诺贝尔奖的候选人
+- 他与世界知名医生一起在顶级同行评审期刊上发表文章
+- 他为白宫人员、多国政府、医院、医生、公众人物提供咨询服务
+- 他是拥有超过20年的董事会认证的家庭医生
 
 
+2021年，当全球刚刚开始推广疫苗时，泽连科医生又不遗余力地四处演讲抨击全球主义者，揭露疫苗计划是”全球种族灭绝事件”。甚至在犹太拉比的听证会上怒斥COVID-19疫苗是屠杀人类的“死刑针剂”。
 
-> Vladimir Putin is the aggressor. 
-> The Ukrainians are the victims.
-> We should never shy away from that.
-> — Mike Pompeo (@mikepompeo) [February 22, 2022](https://twitter.com/mikepompeo/status/1495913605635715078?ref_src=twsrc%5Etfw)
+**[文贵先生也在盖特](https://www.gettr.com/post/p7jqqc2145)评价大胡子医生将成为拯救人类的传奇人物之一。**
 
+**文贵先生，大胡子医生，加拿大卡车司机都是拯救人类的英雄。**
 
+让我们听听这位英雄对加拿大卡车司机的赞赏：
 
-参议员卢比奥： 我希望拜登不要被普京耍了 别等到他们见面的时候，俄罗斯已经吞并乌克兰东部，然后任何会谈都是关于不要进一步占领这个国家的。
+***你们犹如新时代登陆诺曼底海滩的无畏战士***
 
+***你们所领导的道路是如此鼓舞人心***
 
+***你们将勇于牺牲的概念带入数十亿人的意识中***
 
-> I hope Biden doesn’t get played by [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw)
-> 
-> By the time they meet [#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw) will have annexed eastern [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) & any meeting would be about not taking more of the country
-> — Marco Rubio (@marcorubio) [February 21, 2022](https://twitter.com/marcorubio/status/1495780486794383365?ref_src=twsrc%5Etfw)
+***让我们一起奋起反抗，做行动派***
 
+***因为，这是一场魔鬼挑战上帝的战争***
 
+***但神的意识在人性中 ***
 
-众议员麦克·沃尔兹： 50年前的今天，尼克松前往北京，试图离间共产主义中国和苏联。 此后，中国共产党利用美中关系在技术和经济上实现了跨越式发展，以寻求成为世界上占主导地位的超级大国。 （转推说：习在北约问题上支持普京。美国或将组建全球联盟，帮助各国部署先进武器，这预示着一场新冷战。）
+***敌人在其权力范围内利用心理战的恐惧和隔离以及封锁***
 
+***来诱发我称之为群体精神病的东西***
 
+***又通过给数十亿人注射有毒的疫苗“死亡针”大发横财***
 
-> 50 years ago today Nixon traveled to Beijing to drive a wedge between communist China & Soviet Union. 
-> 
-> The CCP has since used the US-China ties to leapfrog ahead technologically and economically in its quest to be the world’s dominant superpower. [https://t.co/tZ2EZucRjN](https://t.co/tZ2EZucRjN)
-> — Rep. Mike Waltz (@michaelgwaltz) [February 21, 2022](https://twitter.com/michaelgwaltz/status/1495765756247785476?ref_src=twsrc%5Etfw)
+***解决这个问题的办法就是“公民抗命***”
 
+***对暴政说不！特别是来自贾斯汀·特鲁多政府的暴虐命令说不！***
 
+***你们吹响了战斗的号角，呼招我们加入这场圣战***
 
-参议员玛莎·布莱克本： 国际奥委会允许一个种族灭绝的 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 政权主办奥运会，并允许一名使用兴奋剂的俄罗斯运动员参加比赛。 而美国队参加北京奥运会使得这种胡作非为合法化。
+***愿全能的上帝祝福你们***
 
+***愿神看顾保守你们得平安***
 
-
-> The International Olympic Committee allowed a genocidal regime to host the Olympics and a Russian athlete that was doping to compete. 
-> 
-> Team USA’s presence at the Beijing Olympics legitimized this nonsense. [https://t.co/tlgZdKVVXp](https://t.co/tlgZdKVVXp)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [February 21, 2022](https://twitter.com/MarshaBlackburn/status/1495879336217485317?ref_src=twsrc%5Etfw)
-
-
-
-参议员玛莎·布莱克本： [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 正在逃脱反人类罪的惩罚，而拜登政府对此视而不见。
-
-
-
-> The Chinese Communist Party is getting away with crimes against humanity, and the Biden administration is turning a blind eye.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [February 21, 2022](https://twitter.com/MarshaBlackburn/status/1495838373981966341?ref_src=twsrc%5Etfw)
-
-
-
+[视频来源：](https://rumble.com/vvg5vo-message-to-freedom-convoy-truckers-from-dr.-zev-zelenko.html)Bright Light News on Rumble
+欢迎加入磐石农场![](https://assets.gnews.org/wp-content/uploads/2022/01/磐石discord.jpg)磐石农场Discord![](https://assets.gnews.org/wp-content/uploads/2022/01/b3df4b36-df11-4361-a8f5-6c7e5f9da569.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
