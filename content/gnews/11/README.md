@@ -2,12 +2,10 @@
 ---
 
 
-## 七哥金句：GTV是王
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2044870/)
+## 2/21/2022 文贵盖特：在丰县有几十万被绑架的女性，东北化肥价格暴涨，中共花老百姓十几万亿人民币办冬奥会，除了污染环境啥都没改变，但中共却把一切都怪罪给美国人
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2044984/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/记录者：Popeye--scaled.jpg)
-整理: 雅典娜农场
-发布：枫叶红了
+秘密翻译组-北美组
 
  
 

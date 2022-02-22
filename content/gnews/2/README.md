@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：破产也不尽是坏事
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2044985/)
+## 七哥金句：请坚持到5月份
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2045071/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/金句记录者：流氓兔.001.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句5-1-5-scaled.jpg)
 整理：雅典娜农场
 发布：枫叶红了
 

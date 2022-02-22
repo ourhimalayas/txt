@@ -2,34 +2,20 @@
 ---
 
 
-## 俄罗斯承认乌克兰两个分离主义地区独立并下令维和
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2044756/)
+## COVID-19 最新情报｜屡次被揭疫苗真相 苏格兰宣布停止公示与COVID-19疫苗有关的统计数据
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2044854/)
 
-翻译：冰糖葫芦喵
+**撰文｜疫情关注组 / 发布时间｜22/02/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屢次被揭疫苗真相-蘇格蘭宣布停止公示與COVID-19疫苗有關的統計數據.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：**[**https://gettr.com/post/pl6k0218bf**](https://gettr.com/post/pl6k0218bf)**)**
 
-编辑与校对：冰糖葫芦喵、灭共文明
+苏格兰公共卫生部宣布将不再发布与接种 Covid-19 疫苗相关的死亡及住院信息，官方给出的理由是，避免这些数据被反疫苗人士“滥用”。当局认为，应将注意力集中于发布更复杂的数据，以促进疫苗有效性的理念推广。
 
-**《华盛顿观察家报》2月21日报道，周一，克里姆林宫宣布，俄罗斯承认乌克兰东部两个由分离主义分子控制的地区独立，称为卢甘斯克人民共和国和顿涅茨克人民共和国。**
+一名苏格兰公共卫生部的官员坦言，做出这一决定的根本原因，是许多有心人，尤其是反疫苗人士，透过简单的数据分析，对疫苗的有效性作出推断性结论，令部分民众受到影响，开始抵制 Covid-19 疫苗，因此，他们不得不停止公布该国死亡人数的疫苗接种情况。
 
-**随后，俄罗斯总统普京下令，俄罗斯军队在乌克兰东部两个分离地区进行所谓的“维和行动”。**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/普京1-e1645495493842.jpg)普京在克林姆林宫（图片来源：网络）
-周一下午，西方领导人迅速谴责了普京的承认，有几位领导人誓言要实施更多制裁。
+**有评论认为，既然 Covid-19 疫苗对外宣称可防止染疫后重症及死亡的发生，并且这一理念，获得多国医学研究论文背书，称疫苗有效率高逾九成。那么****在这种情况下，根本毋需担忧数据被“滥用”，反而应该更大力的公布数据，以佐证疫苗有效性，因为“真的假不了”，除非反疫苗人士的推论正中靶心，毕竟****“假的也真不了”。**
 
-周一早些时候，克里姆林宫的消息传出后，整个世界都在等待普京是否下达入侵乌克兰的命令，尽管总统乔-拜登说他认为俄罗斯领导人已经做出了军事入侵的选择。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/普京2.jpg)图片来源：网络。
-**美国国务卿安东尼-布林肯说：”这一决议的颁布将进一步破坏乌克兰的主权和领土完整，构成对国际法的严重违反，**使人们进一步质疑俄罗斯表示的继续参与外交以**实现和平解决这一危机的承诺，并需要美国与我们的盟国和伙伴充分协调，作出迅速和坚定的反应。**
-
-周一下午，白宫新闻秘书珍·普萨基说，**拜登总统将发布行政命令，禁止美国在这两个分离地区的任何投资。**
-
-她还说，**这份行政命令还将授权对任何决心在乌克兰这些地区活动的人实施制裁。**国务院和财政部很快会公布更多细节。**美国还将很快宣布针对俄罗斯**今天公然违反国际承诺**的进一步措施。**
-
-**新闻链接：**
-
-[Putin orders ‘peacekeeping operation’ in two breakaway eastern Ukrainian regions | Washington Examiner](https://www.washingtonexaminer.com/news/putin-orders-peacekeeping-operation-in-two-breakaway-eastern-ukrainian-regions)
-
-[Russia to recognize two separatist-held regions in eastern Ukraine | Washington Examiner](https://www.washingtonexaminer.com/news/russia-to-recognize-two-separatist-held-regions-in-eastern-ukraine)
-
-
+來源｜[NewsPunch](https://newspunch.com/scotland-stops-publishing-covid-vaccine-death-statistics-blames-anti-vaxxers-for-raising-alarm/)
 
  
 

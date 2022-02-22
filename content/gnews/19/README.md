@@ -2,11 +2,11 @@
 ---
 
 
-## 七哥金句：信自己该信的，做自己该做的
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2044769/)
+## 七哥金句：GTV是王
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2044870/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/记录者：GHope-3-scaled.jpg)
-整理：雅典娜农场
+![](https://assets.gnews.org/wp-content/uploads/2022/02/记录者：Popeye--scaled.jpg)
+整理: 雅典娜农场
 发布：枫叶红了
 
  
