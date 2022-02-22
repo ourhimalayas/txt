@@ -2,39 +2,34 @@
 ---
 
 
-## 加国省长杰森肯尼挑战特鲁多紧急法案
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2049068/)
+## 房地产泡沫又要来了？
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2049120/)
 
-作者：日本东京方舟农场—Miyali7768(文玉)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月19日消息，针对联邦自由党实施”紧急情况法”以结束卡车司机对渥太华市中心的封锁，阿尔伯塔省省长杰森·肯尼在接受Postmedia独家采访时表示，联邦政府使用加拿大最强大的法律，在目前情况下是不合理的过度扩张，违反正当程序和”侵犯”省级管辖权。并表示对此深感厌恶，将在下周初，向渥太华联邦法院提出法律挑战，以结束总理特鲁多的任意和高压行动。
+**编译：verifunny**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-23-001008.jpg)
+根据**《彼得·希夫的经济观点》**的内容，关于我们是否走向住房危机 2.0 ，这还有待观察。 但有两件事是肯定的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide10-3.jpeg)
+目前是一个巨大的房地产泡沫。今天房地产市场的泡沫比 2008 年之前更大。近两年来，央行人为地将利率维持在低位。最重要的是，它通过购买抵押贷款支持证券在抵押贷款市场上大放异彩。有了这些账外贷款，银行就可以放更多的钱。结果就是房价飞涨。
 
-另外，联邦司法部长大卫·拉梅蒂此前在CTV上暗示，联邦调查局正在考虑冻结任何用信用卡向车队捐赠者账户。
+同样，量化宽松创造了对美国国债的人为需求，从而保持低利率并促进更多的联邦政府借贷和支出，它还人为地保持抵押贷款利率低并为房地产市场注入活力。
 
-肯尼认为，如果特鲁多派冻结其政治对手的财政得逞而逍遥法外，允许联邦政府利用《紧急情况法》来履行普通警察职能骚扰对手，超越并篡夺加拿大各省执法的属地管辖权，这将为未来树立一个危险的先例。
+正如经济学家亚历克斯波洛克今年早些时候在米塞斯通讯社发表的一篇文章中所说，美联储“继续成为抵押贷款市场中定价的边际买家或大出价者，一方面扩大其抵押贷款投资组合，另一方面印钞票。另一个。”
 
-肯尼代理律师将要求法官暂停使用该紧急法案。
+2006 年，美联储拥有零抵押贷款。今天，央行在其资产负债表上持有约 2.6 万亿美元的抵押贷款支持证券。根据波洛克的说法，美国所有未偿还的住宅抵押贷款中约有 24% 存在于中央银行。这使得美联储成为迄今为止世界上最大的储蓄和贷款机构。
 
-参考链接：
-1.[https://gettr.com/comment/cow1g04ffb](https://gettr.com/comment/cow1g04ffb)
-2. [https://edmontonsun.com/opinion/columnists/gunter-alberta-premier-jason-kenney%E3%80%82](https://edmontonsun.com/opinion/columnists/gunter-alberta-premier-jason-kenney%E3%80%82)
+根据美联储的数据，2021 年第四季度房屋的平均销售价格为 477,900 美元。相比之下，2020 年第四季度为 403,900 美元，2019 年第四季度为 384,600 美元。换句话说，平均售价在短短两年内上涨了 93,300 美元。这是迄今为止 24 个月内有记录以来的最大增幅。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+简而言之，美国人在很长一段时间内从未见过像现在这样飙升的房价。每次他们接近我们今天在过去看到的数字时——在 1970 年代、1980 年代末和 2000 年代中期——很快就会出现大规模的房地产或股市崩盘（或两者兼而有之）。似乎没有例外，除了一些罕见的情况，即房价在崩盘后立即迅速上涨。
 
-总编：Zion文恩
-编辑：静言
-校正/发稿：谐趣园
+从 2002 年到 2007 年形成的泡沫以大约 47% 的价格上涨达到顶峰，然后从 2007 年到 2009 年第一季度暴跌 20%。如果我们看到自 2012 年左右开始形成的泡沫出现类似的模式，那么我们可以看到房价在两年内下降 30% 到 40%。无论最终数字是什么，证据都很清楚：根据过去 6 年报告的数据，美国似乎正处于一场史诗般的房地产崩盘的边缘。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+这并不是说它会引发另一场 2008 年式的危机。这次次贷市场的动态有所不同。但崩溃的房地产市场将波及整个经济，很难确切地说它会如何发展。 无论如何，这对美联储来说是一个大问题。我们一直在说美联储不能像它所说的那样来对抗通胀，这是另一个原因。如果它继续加息，如果它停止购买抵押贷款支持证券，然后开始向市场出售，抵押贷款利率将会飙升。负担不起的房屋将变得更加难以负担。
 
+戳破泡沫可能不需要太多的针刺。即使是美联储正在谈论的加息 1% 或 2% 也能起到作用。 这也是彼得·希夫说美联储的“时间用完了”的另一个原因。
+
+**文稿来源：** [https://schiffgold.com/key-gold-news/its-another-housing-bubble-and-the-fed-is-holding-the-pin/](https://schiffgold.com/key-gold-news/its-another-housing-bubble-and-the-fed-is-holding-the-pin/)
+
+**作者履历： **[https://zh.wikipedia.org/wiki/%E5%BD%BC%E5%BE%97%C2%B7%E5%B8%8C%E5%A4%AB](https://zh.wikipedia.org/wiki/%E5%BD%BC%E5%BE%97%C2%B7%E5%B8%8C%E5%A4%AB)
 
  
 

@@ -2,30 +2,33 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年2月22日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2049140/)
+## 人类上最伟大的金融系统
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2049272/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-20-at-4.14.11-PM-1.png)
+文编：Hima
+听写：叮叮
+视频：七哥
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-21.png)
-文章仅代表作者本人观点，与Gnews无关
+2022-02-16直播摘录10：23：03
 
-视频参看：
-[2022.02.22早 《NFSC新闻》](https://gtv.org/video/id=6214e52808ba8a07b1a16f59)
-[2022.02.22早 G|TV《新闻访谈》](https://gtv.org/video/id=6214ee4408ba8a07b1a1765d)
+躺平币千万不要错过，我的腹肌、还有追寻自由，你们在台湾，Alice、Tiger你们在加拿大，我再告诉战友们，H币和HDollar是人类上最伟大的金融系统，一定会超过比特币。 而且它在人类上最大的价值是什么？ 就是那天我告诉大家，你们再重申一遍，人与人之间从过去的你给我一个馒头，我给你干一小时活儿，或干两小时。咱俩之间从来不需要第三方。过去这就叫什么？这是一个贸易的本身，就叫易货贸易、等价交换、你愿意，我都叫等价，它是个本能。后来由于你家有十个馒头，我只能是给你干两小时，你多了8个馒头，咋办？或者有馒头的人说，那我现在给你干活我不想吃馒头，我想吃肉，那家肉出不去怎么办？这时候开始就有了Bank，就是西班牙语的bank，就是板凳的意思。有中间人说我把你馒头先放我这儿，等着Bunny要的时候，我就把这半个我就起作用给你。在你不吃之间我可以租出去，先借出去。那么有要吃肉的人，我这儿有肉可以给你分配过来，它起到了分配和中间、缓冲和中间商叫Bank，就是坐着板凳的人，就是做中介方。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+后来政府怎么干的？出现了个政府，发现这事儿好啊！这权利归我吧，就是妈咪。人类最早就有妓女，谁跟谁性交的时候，就是给我口吃的，我给你口吃的，或给我件衣服、或给我一个水果。后来又出了中介方就叫妈咪。这个妈咪说你俩Alice、Tiger你俩搞一回得给我点儿费用，10块钱、20块钱在你俩之前先交，之后不能交，先交钱。共产党还有各国政府就是那个妈咪，还有银行就是妈咪。任何有常识的记住，人类最大的物质活动，走到最高的文明绝不需要政府，不需要这个妈咪的。而且特别是现在存到银行里的钱，花钱你比挣钱还难。那Hpay喜联储给了你最高的一个境界的，完全在法律合法范围内，而且大家不伤害任何人。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-3.png)
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

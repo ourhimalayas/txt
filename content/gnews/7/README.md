@@ -2,16 +2,12 @@
 ---
 
 
-## 五月花简报（02/22/2022）
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2049843/)
+## 七哥金句：要把握住机会
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2049927/)
 
-编辑：波士顿五月花—-冲天一怒
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/D97B2904-C5E1-467F-9430-AD7657BFAEA8.jpeg)
-
-*发布：思澈*
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句14--scaled.jpg)
+整理：雅典娜农场
+发布：枫叶红了
 
  
 
