@@ -2,26 +2,77 @@
 ---
 
 
-## 中日财经爆┃瑞信“强烈否认”泄露客户数据
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2045805/)
+## 安东尼·布林肯同王毅进行了交谈,强调需要维护乌克兰的主权和领土完整
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2045807/)
 
-整理编辑：东京樱花团｜peterwong
-![](https://lh6.googleusercontent.com/9v92l2FAhLleRYKL3az4WkQtJt3tMru0bYRBLyCYtvGbJsehOkrfGJ_Qti1y289xmlJxcEXFuI3v9FLB6D62N9BHVpf15wUPUHgZizynGCtRsioPpJlSIYnqRwzZ2497rXWT8yx4)[*图片来源*](https://www.swissinfo.ch/resource/image/47364016/landscape_ratio16x9/1920/1080/3fb2a7c17b3ab8182c763c600f966c85/520C28F226C80E6D914FB894E195DF7B/credit-suisse_highres.jpg)
-路透社2月21日报道，此前数十家媒体公布了类似巴拿马文件（Panama papers）式的协调调查结果，调查涉及瑞士信贷过去几十年数千个账户的数据泄露。瑞信“强烈否认”有关该行存在不当行为的指控。
+国务卿安东尼·布林肯： 我同 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 国务委员兼外交部长王毅进行了交谈。我强调需要维护乌克兰的主权和领土完整。
 
-有一个人将这些账户的信息泄露给了德国南德日报（Suddeutsche Zeitung），瑞信在1940至2010年代的数几十年间持有这些账户。这家德国日报与“有组织犯罪和腐败报告项目”以及包括纽约时报、英国卫报和法国世界报在内的其他46家新闻机构分享了这些信息。
 
-在这些指控中，有指控称瑞信的客户包括侵犯人权者和受到制裁的商人。泄露的数据涉及18,000多个账户，总共持有1,000多亿美元资金。
 
-瑞士信贷集团是一家注册在瑞士苏黎世的股份有限公司，同时它也是一家控股公司。它拥有瑞士信贷银行及其他金融服务业务中的权益。瑞士信贷集团拥有两大事业部门：[私人银行](https://zh.wikipedia.org/wiki/%E7%A7%81%E4%BA%BA%E9%93%B6%E8%A1%8C%E6%9C%8D%E5%8A%A1)及[财富管理](https://zh.wikipedia.org/wiki/%E8%B4%A2%E5%AF%8C%E7%AE%A1%E7%90%86)事业部和[投资银行](https://zh.wikipedia.org/wiki/%E6%8A%95%E8%B5%84%E9%93%B6%E8%A1%8C)事业部。公开资料显示，2020年第3季，瑞信管理的资产规模多达14,783亿瑞士法郎。
+> I spoke with People's Republic of China State Councilor and Foreign Minister Wang Yi. I underscored the need to preserve Ukraine’s sovereignty and territorial integrity.
+> — Secretary Antony Blinken (@SecBlinken) [February 22, 2022](https://twitter.com/SecBlinken/status/1495961543359356932?ref_src=twsrc%5Etfw)
 
-2008年瑞士信贷集团和方正证券股份有限公司共同出资设立瑞信证券（中国）有限公司，其中瑞信持股比例为51%。
 
-消息来源：[**瑞士信贷在客户数据遭泄露后否认有不当行为**](https://cn.reuters.com/article/credit-suisse-customer-data-leak-0221-idCNKBS2KQ0SC?il=0)
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+美前国务卿迈克·蓬佩奥：
+
+弗拉基米尔·普京是侵略者。
+
+乌克兰人是受害者。
+
+我们永远不应该回避这一点。
+
+
+
+> Vladimir Putin is the aggressor. 
+> The Ukrainians are the victims.
+> We should never shy away from that.
+> — Mike Pompeo (@mikepompeo) [February 22, 2022](https://twitter.com/mikepompeo/status/1495913605635715078?ref_src=twsrc%5Etfw)
+
+
+
+参议员卢比奥： 我希望拜登不要被普京耍了 别等到他们见面的时候，俄罗斯已经吞并乌克兰东部，然后任何会谈都是关于不要进一步占领这个国家的。
+
+
+
+> I hope Biden doesn’t get played by [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw)
+> 
+> By the time they meet [#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw) will have annexed eastern [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) & any meeting would be about not taking more of the country
+> — Marco Rubio (@marcorubio) [February 21, 2022](https://twitter.com/marcorubio/status/1495780486794383365?ref_src=twsrc%5Etfw)
+
+
+
+众议员麦克·沃尔兹： 50年前的今天，尼克松前往北京，试图离间共产主义中国和苏联。 此后，中国共产党利用美中关系在技术和经济上实现了跨越式发展，以寻求成为世界上占主导地位的超级大国。 （转推说：习在北约问题上支持普京。美国或将组建全球联盟，帮助各国部署先进武器，这预示着一场新冷战。）
+
+
+
+> 50 years ago today Nixon traveled to Beijing to drive a wedge between communist China & Soviet Union. 
+> 
+> The CCP has since used the US-China ties to leapfrog ahead technologically and economically in its quest to be the world’s dominant superpower. [https://t.co/tZ2EZucRjN](https://t.co/tZ2EZucRjN)
+> — Rep. Mike Waltz (@michaelgwaltz) [February 21, 2022](https://twitter.com/michaelgwaltz/status/1495765756247785476?ref_src=twsrc%5Etfw)
+
+
+
+参议员玛莎·布莱克本： 国际奥委会允许一个种族灭绝的 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 政权主办奥运会，并允许一名使用兴奋剂的俄罗斯运动员参加比赛。 而美国队参加北京奥运会使得这种胡作非为合法化。
+
+
+
+> The International Olympic Committee allowed a genocidal regime to host the Olympics and a Russian athlete that was doping to compete. 
+> 
+> Team USA’s presence at the Beijing Olympics legitimized this nonsense. [https://t.co/tlgZdKVVXp](https://t.co/tlgZdKVVXp)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [February 21, 2022](https://twitter.com/MarshaBlackburn/status/1495879336217485317?ref_src=twsrc%5Etfw)
+
+
+
+参议员玛莎·布莱克本： [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 正在逃脱反人类罪的惩罚，而拜登政府对此视而不见。
+
+
+
+> The Chinese Communist Party is getting away with crimes against humanity, and the Biden administration is turning a blind eye.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [February 21, 2022](https://twitter.com/MarshaBlackburn/status/1495838373981966341?ref_src=twsrc%5Etfw)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

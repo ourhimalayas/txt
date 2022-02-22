@@ -2,51 +2,30 @@
 ---
 
 
-## 台湾近日急症突增 三日猝死超百人
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2045985/)
+## 中日财经爆┃中共对雷神和洛克希德马丁报复性制裁
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2045987/)
 
-作者：纽约香草山教育部—Noemi
+撰稿：东京樱花团｜peterwong
+![](https://lh3.googleusercontent.com/TtlryaIAEyZoJQXkPbLFN1TYUCTKq6otzbOM2M7ZTJ6JuzpZVn-rUqPPV4ICoxD55-WhB4fZoEm-RvlGCaMr_gsxBocv0M_0XFAGZD5WAdwusmShHFw4B_YzURwXB9E2zJD0Pe7D)[*图片来源*](https://tw.appledaily.com/resizer/LRFIlsh2Zv2bwoqUu4d4JpSqyP8=/1280x904/filters:quality%28100%29/cloudfront-ap-northeast-1.images.arcpublishing.com/appledaily/E5IOUWCR35B6FKDGBQMZUBG5FU.jpg)
+中国外交部新闻发言人汪文斌周一（2月21日）称，中共国决定对长期参与向台湾出售武器的美国军工企业——雷神和洛克希德马丁，实施报复性制裁。
 
+此前在2019年和2020年中共国亦曾宣布对这两家公司进行制裁。不过，是次是中共国首次根据“反外国制裁法”做出相关决定。中国去年年中出台了“反外国制裁法”。该法共16条，明确了三类反制措施，包括注销签证、扣押冻结中国境内财产等。
 
+美国国防部2月7日表示，美国已经批准向台湾出售价值或达1亿美元的设备和服务，以“维持、维护和改进”台湾爱国者导弹防御系统, 主要承包商将是雷神和洛克希德马丁。台湾国防部表示，该案可望在3月份正式生效。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+国防安全合作局说：“这项军售计划通过支持受援方继续努力使其武装部队现代化并保持可靠的防御能力，符合美国的国家、经济和安全利益。”
 
+台湾外交部在一份声明中称，面对中共国持续的军事扩张和挑衅行为，台湾将以坚实国防维护国家安全，并持续深化台美紧密安全伙伴关系。
 
+消息来源：
 
-当地媒体2月21日报道，据全台各县市消防局的资料显示，台湾近两日急病救护事件竟累积达到了628起、猝死则高达101人，至于死因需要进一步了解相关信息。
+1、[**中国决定对美国雷神和洛克希德马丁实施反制 因参与对台出售武器–外交部**](https://cn.reuters.com/article/china-mofa-us-raytheon-sanction-0221-idCNKBS2KQ0RG?il=0)
 
-报道称，自19日至21日午间，台湾各地的急症救护案件累积超过600起，猝死及到院无呼吸心跳患者高达101人，40-60岁年龄段的猝死患者则占到了整体死亡人数的将近一半，而其中年纪最小的一位男性死者仅有35岁。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide5-5.jpg)
-目前，台湾地区完整接种毒疫苗人数已经超过了总人数的3/4，第三剂接种人数也已超过1/3。
+2、[**美国批准对台湾一亿美元军售**](https://gnews.org/zh-hans/1974148/)
 
-此前，郭文贵先生爆料，中共毒疫苗灾难将导致全球猝死人数在冬春季开始激增，“随地倒”现象将在疫苗接种率较高的地区频繁出现。同时，与普通高龄猝死患者所不同的是，毒疫苗引发的猝死人群将主要集中在中青年群体。
-
-参考链接：
-[寒流奪命！全台百人猝死 600多人不適送醫](https://www.chinatimes.com/realtimenews/20220221002378-260405?ctrack=pc_main_life_p04&amp;chdtv)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-
-总编/编辑：DM
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

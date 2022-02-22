@@ -2,27 +2,49 @@
 ---
 
 
-## 台湾｜ 新党主席吴成典向汪洋表决心：分三阶段实现国家统一
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2046053/)
+## 探望锁链女的民众被中共警察逮捕
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2046143/)
 
-**撰文/ 港台前线｜发布日期/ 22/02/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/新黨主席吳成典向汪洋表決心：分三階段實現國家統一.jpg)
-**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)
-**
+作者：台湾宝岛农场 – 寻文客
 
-中共官媒新华社报导指，全国政协主席汪洋昨日（21日）在北京以视像会议方式会见台湾新党主席吴成典一行，并欢迎他们出席北京冬奥会闭幕式。
 
-汪洋表示，台湾同胞以不同方式积极参与冬奥会，是两岸一家亲、共圆中国梦的生动体现，在中华民族走向伟大复兴的进程中台湾同胞不能缺席也不会缺席。他强调，台湾新党长期旗帜鲜明，始终支持统一、反对“台独”，为推动两岸关系和平发展、推进祖国和平统一进程鼓与呼、起而行，大陆同胞看在眼里、记在心里。
 
-对此，吴成典亦回应称，两岸同胞同文同种、血浓于水，两岸统一的历史大势无法阻挡，新党愿作先锋，在推进国家统一的征程上，共同点燃属于两岸人民的希望圣火。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-另外，台媒《联合报》报道引述吴成典发言时指出，两岸统一预期将经过三个阶段：第一先重回九二共识、一个中国，重启两岸事务性协商；第二阶段是结束两岸军事敌对状态，建立军事安全互信机制；最后阶段则彻底实现国家统一。
 
-早前，郭文贵在直播中透露，中共党魁习近平与俄罗斯总统普京经闭门会议后达成共识，决定共同上演“痞子政治”，夺取乌克兰和台湾，今日早些时候，俄罗斯总统普京承认乌克兰东部两大亲俄势力范围成为独立国家，并同时派遣军队入驻，被视为正式对乌发动的侵略行为。
 
-这令人不得不担忧，中俄两大极权势力野心的下一步，是否轮到台湾！
+2月19日，中共国“铁链女”事件继续在国内外发酵，有外媒体报道，两名想要探望被非法拘禁24年“铁链女”的女性，2月13日在江苏徐州被中共警察逮捕。中共警察声称这两名女性涉嫌“寻衅滋事”，而“寻衅滋事罪”是中共治下用来对付持不同意见者的“口袋罪”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-12.jpg)
+报道描述了“铁链女”悲惨的生活状况，强调了“公众要求调查非法拘留和人口贩运呼声走高”的情况下，中共官员从否认锁链女是受害者到逮捕锁链女丈夫及两名同伙的态度转变，并列举了中国顶尖大学校友联名致公开信，要求彻底调查锁链女事件，却被中共审查封杀的现实。
 
-来源｜[新華社](http://politics.people.com.cn/n1/2022/0222/c1024-32356622.html)、[郭文貴蓋特](https://gettr.com/post/pvwb8qfd01)、[聯合報](https://udn.com/news/story/7331/6115240?from=udn-catebreaknews_ch2)
+尽管有分析者认为舆论的关注有助于中共国类似事件的彻底解决，但郭文贵先生认为，由于中共70年的邪恶统治，这个事件不会像普通人希望的那样得到解决。只有彻底消灭中共，这些罪恶才能从中华大地上消失。
+
+参考链接：
+[China: Police Arrest People for Trying to Find Woman ‘Chained in Hut’](https://www.breitbart.com/asia/2022/02/19/china-police-arrest-people-for-trying-to-find-woman-chained-in-hut/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+
+总编：DM
+编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

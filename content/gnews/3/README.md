@@ -2,42 +2,36 @@
 ---
 
 
-## 望子成龙和极不自信极度自卑的父母的都是为你好糟透了
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2046457/)
+## 民调显示，大多数美国选民支持军事保卫台湾
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2046468/)
 
-G-TV视频链接：[https://gtv.org/video/id=621263d81408ee3a03a257c0](https://gtv.org/video/id=621263d81408ee3a03a257c0)
+#### 撰稿：彩虹
 
-**郭文贵先生：**人就是人，对孩子那种望子成龙，特别中国人父母在孩子面前永远在孩子面前表现自己多牛叉：“你看你爹啊！” 文斌： “你看你爹今天直播不错吧？你看你爹直播够帅吧？你看你爹今天干啥了吧？我这有俩农场了是吧？我这有两亩地了！”
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-2-2.jpg)图片来源：华盛顿时报
+2月21日，《新闻极限》报道，“国家行动大会”（Convention of States Action）联合民调机构特拉法加集团（Trafalgar Group）针对乌克兰和台湾做了一项民意调查。民调结果显示，选民对美国派遣地面部队保卫乌克兰边境的支持度不高，但对军事保卫台湾的支持度却很高。
 
-你发现就中国人爹妈都不自信，极度自卑，然后在孩子这儿炫，你炫耀啥？然后给孩子叫孩子知道“你看你爸对你多好，你妈对你好。” 然后挂嘴边 “都是为了你好”。我觉得世界上没有几个词儿比这更糟的了，“都是为了你好”，然后“你爸你妈都是正确的”，是吧？然后你爸你妈做的事情…….然后告诉你“你该怎么做”，我认为这简直是糟透了。我儿子女儿身上有的优点我身上都没有，我觉得在他们身上，我每天能学到很多很多东西。
+根据这个1月份的民调，仅有15.3%人投票可能认为在俄罗斯入侵乌克兰的情况下应该派遣美国军队。相比之下，大多数58.1%人投票可能认为，如果台湾被中共国入侵，拜登政府应该使用美国的军事资产来保卫台湾。
 
-字幕来源：[2022年2月4日《文贵大直播》全文字版](https://gnews.org/zh-hans/1961700/)
+“国家行动大会”主席马克·梅克尔（Mark Meckler）在一份声明中写道：“我们的领导人经常忘记，美国人民在理解海外威胁的性质方面有很大的智慧，所有党派的选民都坚定地支持美国对自由和民主的台湾进行军事防御，面对来自中共国日益增长的危险，尽管这伴随着巨大的风险，可能使我们的国家付出高昂的代价。相反，虽然选民们显然同情乌克兰，并支持通过外交和其他手段协助他们，但如果与俄罗斯发生冲突，却不支持美国的军事干预。拜登政府应该注意到这一点。”
 
-编辑整理：Jacques；
+根据民调结果，大多数接受调查的可能选民认为，如果俄罗斯入侵乌克兰，美国应该有限度地介入（84.8%）。
 
-字幕文件制作：小满；
+- 只有31.1%的人认为美国应该提供物资和军事武器。
+- 只有30.5%的人认为美国应该只在外交领域施压。
+- 只有23.2%的人认为美国应该提供美国的军事顾问。
 
-视频制作及上传：Cindy；
 
-G-News发布：小满；
+根据民调，在台湾主权问题上，美国选民的支持在民主党、共和党和独立人士中都是一面倒。在台湾被中国入侵时，
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+- 60.8%的共和党选民支持使用美国军事资产来保卫台湾。
+- 57.4%的独立选民支持使用美国军事资产来保卫台湾。
+- 56.2%的民主党选民支持使用美国军事资产来保卫台湾。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+**新闻来源**
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[**Poll: Majority Opposes US Defending Ukraine, But OK With Taiwan**](https://www.newsmax.com/newsfront/trafalgar-group-taiwan-border-defense/2022/02/21/id/1057819/)
 
  
 

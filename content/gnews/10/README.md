@@ -2,46 +2,48 @@
 ---
 
 
-## 真想买喜币的美国战友完全可以合法买,懂HPay的就会用
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2046393/)
+## 管孩子功歸七嫂,但七哥有不討論大人事和不撒謊兩原則
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2046411/)
 
-G-TV视频链接：[https://gtv.org/video/id=621262f51408ee3a03a25717](https://gtv.org/video/id=621262f51408ee3a03a25717)
+G-TV視頻鏈接：[https://gtv.org/video/id=621263301408ee3a03a25741](https://gtv.org/video/id=621263301408ee3a03a25741)
 
-**郭文贵先生：**美国人现在是全世界数字货币80%的拥有者，如果按照这个说的话，美国几乎是80%到99%都是不合法的。这是美国最守法的国家。但你别忘了美国的财富从第一天到今天，积累的过程当中，按照美国今天的法律来讲，绝大多人的财富全都可以给他分掉，都不合法。这也是美国人这个国家守法，他知道法律的重要，同时他们也知道怎么会用法。他80%的全球的数字货币都在美国人手里边，我不相信他们都是合法通过KYC的。而且你像那个赵长鹏那个垃圾，他就没有KYC，那不都给美国人买走了么，是吧！
+**郭文貴先生：**這說起兒女，真的是我這一點真的感恩你七嫂。我覺得我是一個很寵孩子的人，如果按照我寵孩子，這倆孩子肯定不是今天這樣。你七嫂那是屬於很認真的、很嚴肅的。她家教就很嚴，她爸她媽都屬那種非常強悍型的，而且是非常非常嚴格家規的人。所以她從小的規矩，她就是這麼長大的，你七嫂子很強勢，你看我這樣的人都被她整得服服貼貼的，你想想她有多強勢吧，你想想她有多強勢，是吧？她對倆孩子就很強勢，就管得很嚴，這主要歸功你七嫂。
 
-真的想买的战友的美国人，我觉得你是完全可以合法买的，有很多。我再重申一遍，全世界没有一个国家有数字货币的法律，所有的所谓的监管的法律完全都是胡扯的。你告诉我美国谁是数字货币的监管者，它没有机构啊。SEC说这是证券它不能管。金融管理会它也管不了。没有一样管得，没有这个部门，这是一个角度。大家受的这个影响是不应该的。
+但是我有兩樣原則這絕對是從小到大的，就是你看比如說我們家家規：孩子不要討論大人的事兒。我就覺得這個世界上沒有任何人你可以討論你父母，你個小屁孩兒討論父母的事兒，你不要介入到父母；而且中國人所有孩子都要（介入）父母的私人感情，父母的什麼恩恩怨怨全介入。
 
-第二个，你合法地被美国政府说：你可以买那个H币什么的。就说法律全允许的，像现在买BitCoin一样在美国这样的买，BitCoin是代理商让你买的，同样H币也会在美国也会发生。快则三个月，慢则不会超过六个月，但是这个时间是真的不确定的，因为这个美国政府谁也说不了。我认为就合法的像买比特币一样，买以太坊币一样，可以在美国买，美加。
+我最小的發小，最好的發小跟我爹我娘是非常不和的，非常不和的，但是它半點兒不影響我和他好。你說我那個照片跟前面的那個小伙子他爸爸就是我們當地的隊長，現在都在世呢，他就是跟我父親非常不和，但是它不影響我半點兒跟他好。你孩子不要介入到父母的糾紛當中去，也（別介入）父母的感情，這是我們的原則。
 
-那么H-Pay在全世界都是可以使用的，跟它没有任何关系。如果你懂得用H-Pay的时候，这个KYC的问题跟你就没有关系了。我就说到这儿，你们懂的。谢谢！
+另外一個就是我們家的孩子絕對不能撒謊。只要撒謊那是絕對不可以，所以他從來不撒謊。另外一個就是大家能看到我們作為山東人，我們這個家教裡邊孝敬。那孩子孝敬就別提了，就我兒子、我女兒的孝敬你們不可相信的，就是這種家庭文化，而且特別。就我們家庭的孩子從小跟我事業、生意完全沒有關係，而且是純粹的，純粹的。
 
-字幕来源：[2022年2月4日《文贵大直播》全文字版](https://gnews.org/zh-hans/1961700/)
+你去想想，他們從小金融上、生意上都做得很成功，財務上的獨立，對家庭上按著山東這種孔子家教的原則，對父母的孝敬，然後在社會上不撒謊、絕對不欺負軟的，那就我和你七嫂子不允許他半點兒欺負人，絕對善良。所以說我覺得這一點兒上真的是，我覺得這是個中國文化和現代文化現代化以後的成功的家庭，我認為是這樣子的。
 
-编辑整理：Jacques；
+字幕來源：[2022年2月4日《文貴大直播》全文字版](https://gnews.org/zh-hans/1961700/)
 
-字幕文件制作：小满；
+編輯整理：Jacques；
 
-视频制作及上传：Cindy；
+字幕文件製作：小滿；
 
-G-News发布：小满；
+視頻製作及上傳：Cindy；
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+G-News發佈：小滿；
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+**廣而告之：尊敬的戰友，你的每一篇文字、每一段視頻、每一段社交媒體發文都是壓垮駱駝的一根稻草，歡迎加入我們****——**[**日本銀河系農場****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，歡迎訂閱我們的油管頻道：**[**郭文貴先生直播精選**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；歡迎關注蓋特獨家文貴先生大直播精選發佈賬號：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+聲明：文中內容根據郭文貴先生直播視頻整理，如果文字內容與視頻內容衝突則以原視頻為準，標題僅為概括，標題與視頻內容衝突之處僅代表作者個人觀點。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+歡迎喜聯盟進駐以及各農場兄弟姐妹們坐客串門，請通過以下方式關注及訂閱我們——
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+Discord：[日本銀河系農場Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+YouTube：[日本銀河系農場](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民熱線](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[銀河系檔案放映館](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文貴先生直播精選](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、[喜馬拉雅日本銀河系農場 G-News](https://gnews.org/zh-hant/author/jgalaxy2021/)、[日本銀河系農場-阿爾法星球](https://gnews.org/zh-hant/author/galaxyalphaplanet/) 、[銀河勇氣之星](https://gnews.org/zh-hant/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hant/author/newfoc/) ；
+
+蓋特：[日本銀河系農場@himalayajgalaxy蓋特](https://www.gettr.com/user/himalayajgalaxy)；
 
 推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+G-TV：[日本銀河系農場](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

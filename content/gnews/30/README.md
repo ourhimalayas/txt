@@ -2,28 +2,51 @@
 ---
 
 
-## 中日财经爆┃中共国“存取款5万元KYC”新规暂缓执行
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2045971/)
+## 台湾近日急症突增 三日猝死超百人
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2045985/)
 
-撰稿：东京樱花团｜peterwong
-![](https://lh3.googleusercontent.com/yRBCqxr_yYl4N1vmsHqh6ayucehTLF0LIAy0cgYw1wo99Yoycr1j0344eCCmpvtt4q3EvhDUL9adlx1Nx-h1Xbl9kS1Njq3bcbv_5ltmQAx8f17GjCnYjkRW-ot-lflvg0DuI43e)[*图片来源*](https://cdn.hk01.com/di/media/images/dw/20211021/527879185985703936514976.jpeg/qQfsy3HkY-zc0CsxeE0yDGmoCQW_kdPEtc53xrXOd8Y?v=w1280r16_9)
-中共国央行周一（2月21日 ）晚间发布公告称，原定2022年3月1日起施行的《金融机构客户尽职调查和客户身份资料及交易记录保存管理办法》（下称《办法》）因技术原因暂缓施行。相关业务按原规定办理。
+作者：纽约香草山教育部—Noemi
 
-央行公告并附“答记者问”并解释称，一些中小金融机构提出，《办法》针对不同金融产品和业务模式提出了具体规范和要求，金融机构需要修订完善内部管理制度、信息系统、业务流程，并进行人员培训。为此，经研究，决定暂缓实施《办法》。
 
-今年1月下旬，央行发布前述新规，《办法》原定于2022年3月1日起施行。《办法》第十条规定，商业银行、农村合作银行、农村信用合作社、村镇银行等金融机构为自然人客户办理人民币单笔5万元以上或者外币等值1万美元以上现金存取业务的，应当识别并核实客户身份，了解并登记资金的来源或者用途。
 
-这条规定就是正规金融机构为人熟知的KYC（Know your customer）政策。央行有关司局负责人曾对媒体表示，实施《办法》的主要目的是预防和遏制洗钱等违法犯罪活动，保护人民群众资金安全和利益。该负责人还透露，从统计上看，目前我国超过5万元人民币的现金存取业务笔数仅占全部现金存取业务的2%左右，上述办法关于个人现金存取规定总体上看对客户办理现金业务影响较小。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-消息来源：
 
-1、[**中国央行称暂缓执行金融机构客户尽职调查新规 因部分机构需修订内部管理制度等**](https://cn.reuters.com/article/pboc-due-diligence-rules-0221-mon-idCNKBS2KR02J?il=0)
 
-2、[**影响太大!中国暂停“存取现金5万以上须登记”的新规**](https://www.allhot.net/finance/180256)
+当地媒体2月21日报道，据全台各县市消防局的资料显示，台湾近两日急病救护事件竟累积达到了628起、猝死则高达101人，至于死因需要进一步了解相关信息。
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+报道称，自19日至21日午间，台湾各地的急症救护案件累积超过600起，猝死及到院无呼吸心跳患者高达101人，40-60岁年龄段的猝死患者则占到了整体死亡人数的将近一半，而其中年纪最小的一位男性死者仅有35岁。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide5-5.jpg)
+目前，台湾地区完整接种毒疫苗人数已经超过了总人数的3/4，第三剂接种人数也已超过1/3。
+
+此前，郭文贵先生爆料，中共毒疫苗灾难将导致全球猝死人数在冬春季开始激增，“随地倒”现象将在疫苗接种率较高的地区频繁出现。同时，与普通高龄猝死患者所不同的是，毒疫苗引发的猝死人群将主要集中在中青年群体。
+
+参考链接：
+[寒流奪命！全台百人猝死 600多人不適送醫](https://www.chinatimes.com/realtimenews/20220221002378-260405?ctrack=pc_main_life_p04&amp;chdtv)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+
+总编/编辑：DM
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

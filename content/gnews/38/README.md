@@ -2,20 +2,29 @@
 ---
 
 
-## 岸田首相表态 强烈谴责普京承认乌东部地区为“独立国家”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2045793/)
+## 【秘翻北美时评】美国前国务卿蓬佩奥将访问台湾
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2045800/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2023.png)图片来自本文网站
-22日，岸田首相在官邸接受记者采访时表示，强烈谴责普京签署承认乌克兰东部亲俄派控制区为独立国家的做法。俄罗斯的行为侵犯了乌克兰主权和领土完整，是不可接受的。
+[BY:秘翻北美时评](秘翻北美时评)
 
-岸田首相强调，将密切关注事态发展，并与七国集团等国际社会合作，共同协调包括制裁在内的各项措施。
+[2022-02-21](https://gtv.org/broadcast/watch/6214360a08ba8a07b1a11a4d)
 
-信息源：[【速報】岸田首相「ロシア政府を強く非難する」　ウクライナ東部の独立承認](https://news.yahoo.co.jp/articles/30c1f1357d26ecedfaadba877626ace7fae5b10a#:~:text=%E3%80%90%E9%80%9F%E5%A0%B1%E3%80%91%E5%B2%B8%E7%94%B0%E9%A6%96%E7%9B%B8%E3%80%8C%E3%83%AD%E3%82%B7%E3%82%A2%E6%94%B)
 
-*编辑：东京樱花团/麗子
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+
+**今日主题：**
+
+**1.奥地利强制防疫政策将出现大逆转 **
+
+**2.美国前国务卿蓬佩奥将访问台湾 **
+
+**3.普京“今天将做出决定”是否承认分离主义共和国**
+
+🔗**GTV鏈接：**[https://gtv.org/broadcast/watch/6214360a08ba8a07b1a11a4d](https://gtv.org/broadcast/watch/6214360a08ba8a07b1a11a4d)
+
+发布：陸柒陸捌
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

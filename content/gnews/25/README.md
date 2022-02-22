@@ -2,49 +2,33 @@
 ---
 
 
-## 探望锁链女的民众被中共警察逮捕
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2046143/)
+## 视频|新中国联邦的教育蓝图
+` MOSvideo` [轉載自GNews](https://gnews.org/zh-hans/2046165/)
 
-作者：台湾宝岛农场 – 寻文客
+制作：香草山视频部
 
+2月20日，郭文贵先生在大直播中，谈到教育的重要性，在于能去除人们思想里的中共余毒，并针对新中国联邦的教育谈到以下规划。
 
+第一，成立教育基金。郭先生认为，新中国联邦的教育应当完全免费，教师工资应当全球之最，每节课最低100美金。据郭先生透露，如今已有一千万美元的基金，并决定请参与G系列投资的合作基金捐款，让教育基金能达到一百亿美元，以保证教育经费充裕。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+第二，组建教师团队。要求教师水平在哈佛之上，要吸引世界顶尖教师来到新中国联邦的学校任教，使教师团队做到世界翘楚。
 
+第三，建立全新师生考评制度。教师的好评和差评由学生决定；学生的成绩则由第三方公正评定。师生考评制度必须要打破陈规，建立公平的考评制度。
 
+第四，安排教学计划。学制的设立，教材的拟定，学时的安排，试卷的设计等都要科学化，做到真实有效，培养真善美的优秀人才。
 
-2月19日，中共国“铁链女”事件继续在国内外发酵，有外媒体报道，两名想要探望被非法拘禁24年“铁链女”的女性，2月13日在江苏徐州被中共警察逮捕。中共警察声称这两名女性涉嫌“寻衅滋事”，而“寻衅滋事罪”是中共治下用来对付持不同意见者的“口袋罪”。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-12.jpg)
-报道描述了“铁链女”悲惨的生活状况，强调了“公众要求调查非法拘留和人口贩运呼声走高”的情况下，中共官员从否认锁链女是受害者到逮捕锁链女丈夫及两名同伙的态度转变，并列举了中国顶尖大学校友联名致公开信，要求彻底调查锁链女事件，却被中共审查封杀的现实。
+第五、选择教学场所。教学场所可分为线上教学和线下教学。网络教学面向全球招生。实体则根据各国学生所需而定。
 
-尽管有分析者认为舆论的关注有助于中共国类似事件的彻底解决，但郭文贵先生认为，由于中共70年的邪恶统治，这个事件不会像普通人希望的那样得到解决。只有彻底消灭中共，这些罪恶才能从中华大地上消失。
+第六，制定教学目标。郭先生要求新中国联邦的学校，当为人类培养各领域的顶尖人才，为世界千年和平做贡献，这是郭先生从 “六四”以来的心愿之一。
 
-参考链接：
-[China: Police Arrest People for Trying to Find Woman ‘Chained in Hut’](https://www.breitbart.com/asia/2022/02/19/china-police-arrest-people-for-trying-to-find-woman-chained-in-hut/)
+最后，愿每一个新中国联邦人都支持教育，愿全球爱好和平的人都一同来参与，让人们因着好的教育，可以有信仰，有知识，有智慧，有能力，有爱心，幸福地生活。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-
-总编：DM
-编辑：飞虹
-校对/发稿：为真不破20
+发稿：林礼
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 
