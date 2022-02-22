@@ -2,20 +2,31 @@
 ---
 
 
-## 渥太华市长要出售抗议期间没收的车辆以支付城市成本
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2049144/)
+## 战争的游戏
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2049270/)
 
-**编译：verifunny**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-23-001931.jpg)
-据CBC新闻报道，渥太华市长2月20日表示，警方在镇压占领市中心期间扣押的任何车辆都应出售，以支付该市产生的费用。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-市长吉姆·沃森告诉 CBC 新闻，渥太华拥有这项权力是因为联邦政府上周援引了《紧急情况法》。 沃森说，自周五官员们开始加紧努力清除抗议活动以来，执法人员表现出的专业水平令他感到高兴。但他也表示，他担心示威者一直在“嘲弄警察，完全不负责任，似乎不想离开”。 周六，全国多支部队的警察从抗议者手中夺回了威灵顿街，清理了国家战争纪念馆周围的人群，将他们赶出议会区，然后沿着奥康纳街走。
+2022-02-16直播摘录08：22：59
 
-截至周六下午，又有 47 人被捕，总数达到 170 人。数十辆汽车也被拖走。 周六晚上，数百名抗议者聚集在银行街和斯帕克斯街的拐角处，一排警察站稳了脚跟。 他们最终向南移动，靠近皇后街。到晚上 10 点，人群明显减少，该地区安装了围栏。 在市中心以东，可以看到抗议者拆除了他们在城市棒球场旁边的考文垂路停车场设立的部分补给营。 到了晚上，大部分营地都消失了，尽管一些抗议者告诉 CBC，他们计划在其他地方重新集结。
+要打台湾的部队里有很多我们战友，他说这回绝对是玩真的，这就是说习太阳在准备着只要普京哨一吹，他那边就冲过去了，这个二货是绝对干得出来的。那么现在对台湾是好事，普京往回撤了，希望普京骗他，骗得越狠越好，台湾不受这一场战争的这种摧残。但是同时你也看到这个世界的金融，兄弟姐妹们，你看看世界的金融到了什么情况？石油、石油期货、黄金、大众产品，就这种玩儿，从50美金、60美金到90美金，甚至上百美金，石油的，还有石油期货的这种变化能让多少人破产呐？但掌握这个起伏的人几乎就是沼泽地几个人，还有普京本人。普京说我不打，在之前喊打，石油涨上去了，你买，是吧？谁是普京的女朋友你就买，是吧？我这两天不开战，那肯定降，是吧？那就赚大钱了。买也赚，卖也赚，这个游戏是多大知道吗？这就是人类有史以来最高等的游戏，这就叫战争的游戏，叫战争经济。
 
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
+**关注我们**
 
-**新闻来源：** [https://www.cbc.ca/news/canada/ottawa/ottawa-protests-sell-vehicles-watson-1.6358555](https://www.cbc.ca/news/canada/ottawa/ottawa-protests-sell-vehicles-watson-1.6358555)
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

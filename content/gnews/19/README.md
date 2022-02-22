@@ -2,38 +2,25 @@
 ---
 
 
-## 港府效仿中共“清零”政策，预实施人人强制检测
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2049134/)
+## 秘翻在线：中共暂缓执行个人存取款超过5万元登记业务
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2049203/)
 
-作者：纽约香草山农场 – Naughty（文行）
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据外媒综合报道，2月19日香港行政长官林郑月娥宣布，港府正在“非常认真地计划”对其750 万居民实施强制性中共病毒检测。
+**撰稿：Ping**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide12-3.jpeg)
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-23-004750.jpg)
+中共媒体在1月26日曾报道，银行网站披露《金融机构客户尽职调查和客户身份资料及交易记录保存管理办法》其中提到“金融机构为自然人客户办理人民币单笔5万元以上或者外币等值1万美元以上现金存取业务的，应当识别并核实客户身份，了解并登记资金的来源或者用途”。
 
-虽然港府认为此举是为了应对本地疫情的快速传播，但却同时宣布了即将举行的特首选举，将从 3 月 27 日推迟到 5 月8 日。借口是为了使政府有时间集中精力应对不断上升的疫情传播。
+2月21日晚间，中国人民银行、银保监会、证监会发布公告称，原定2022年3月1日起施行的《办法》因技术原因暂缓施行。相关业务按原规定办理。
 
-外媒评论港府的这一决定，是根据中共隔离旅客、全面检测和实施全面封锁等“动态清零”政策而做出的。
+此《办法》的“暂缓执行”，并非标志着中共控制平民资产的想法“夭折”，而最大的可能是，中共国老百姓存取5万元人民币的人实在太少，完全没有必要实行此《办法》的必要吧，甚至让本来就不打算消费躺平的老百姓更不会有花钱的欲望了。而那些与共产党有裙带关系的人，一定会有各种变通方法，根本不会受到这些政策的限制。
 
-令人费解的是，在世界范围内中共病毒疫情已经普遍下滑的情况下，香港反而出现了中共病毒感染和确诊人数激增的现象。香港上周报告的医院病房容量达到了 90%，每日新增确诊病例首次超过 2000 例，上周四报告了 6116 例新增确诊病例。
+中共国老百姓月收入1000元人民币以下的人口数量超过6亿，他们连温饱都无法解决，还有可能存取5万人民币吗？恐怕一生都没见过5万元现金。中等收入家庭，房贷车贷已然已经占去了家庭收入的一半，再加上抚养孩子。还能一次性存款5万吗？那些家里存放巨额现金的贪官污吏们，用五万元的现金存取款业务来转移财产简直是杯水车薪。5万元对于有洗钱嫌疑的人群根本没有任何意义。他们用这种方式洗钱就是脑残，与他们贪污的能力不符。
 
-有分析人士指出，港府不但效仿中共的极端 “清零”政策，更借口疫情对选举做文章。实际上是利用疫情和人人强制检测的政策，把全香港变成一个人人被审查、人人被监控的大监狱。
+总之，只要你生活在中共国，你的财富永远不可能属于你，你只是暂时替共产党保管财富而已。当爹亲娘亲不如党亲的共产党要你钱的时候，根本无需这样出台什么《办法》直接杀人越货则更加迅速有效。
 
-参考链接：[Hong Kong planning mandatory COVID testing for every resident](https://news.yahoo.com/hong-kong-planning-mandatory-covid-044355525.html)
+**[新闻来源](https://news.sina.com.cn/c/2022-02-21/doc-imcwiwss2166500.shtml)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
-
-总编：Zion文恩
-编辑：Delilah小胖
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

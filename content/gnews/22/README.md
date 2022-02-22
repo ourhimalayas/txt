@@ -2,28 +2,35 @@
 ---
 
 
-## 有声|2月21日 历史上的今天
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2049109/)
+## 乌克兰最新消息：普京-拜登峰会“没有具体计划”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2049193/)
 
-配音：香草山巡管部– 文凯琳
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-5.png)
-历史上的2月21日，发生的事情太多，但有两件事情不得不说，因为它影响到人类社会的发展进程。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/CP150599587-700x4202-1.jpg)图片来源：德国之声
+法国总统府爱丽舍宫在周一凌晨发表的一份声明中说，拜登和普京在周日分别与马克龙通了电话，他们“原则上都已接受举行这样一次峰会”。它补充说：“这次峰会只有在俄罗斯不入侵乌克兰的情况下才能举行。”
 
-第一，1848年2月21日：马克思主义创始人马克思和恩格斯在伦敦发表《共产党宣言》。恩格斯在其序言里自己解释，贯穿《宣言》的基本思想是，每一历史时代的经济生产以及必然由此产生的社会结构，是该时代政治和精神的历史基础；因此从原始土地公有制解体以来，全部历史都是阶级斗争的历史，即社会发展各个阶段上被剥削阶级和剥削阶级之间、被统治阶级和统治阶级之间斗争的历史。
+白宫新闻秘书珍·普萨基(Jen Psaki)在一份声明中说，华盛顿确认“它正致力于进行外交努力，直到入侵发生那一刻为止。拜登总统原则上接受了与普京总统的会晤……如果入侵还没有发生的话”。
 
-文字版原文：[2月21日 历史上的今天](https://gnews.org/zh-hans/2045263/)
+美国国务卿安东尼·布林肯(Antony Blinken)和俄罗斯外交部长谢尔盖·拉夫罗夫(Sergey Lavrov)也定于周四举行会晤。爱丽舍宫表示，拟议中的美俄峰会的内容将由布林肯和拉夫罗夫策划完成。
 
-音频处理/发稿：Daxia
+周一早些时候，白宫表示，拜登将参加2月24日举行的七国集团领导人虚拟会议，讨论有关俄罗斯和乌克兰的局势。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+简评：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+面对俄罗斯对乌克兰咄咄逼人的态度，美国对俄罗斯还是想通过外交手段解决。俄罗斯收了中共一万亿美金的军费，必须要拿出实际行动展示给中共。因此欧美的调停可能短期不会有任何结果。俄罗斯如今事实入侵乌克兰的行为，可能会迫使美国放弃外交途径转而直接进行经济制裁。而俄罗斯与乌克兰的危机的本质是中国共产党，中国共产党为了能顺利的拿下台湾，出钱让俄罗斯在欧洲制造事端，使得欧美不能同时二者兼顾。但俄罗斯毕竟是欧洲的俄罗斯，欧美还是有很多可以跟俄罗斯最终通过谈判解决包括乌克兰的所有问题。一旦形成这种结果，那中共在国际上就将被孤立，中共的倒台也指日可待。
+
+新闻链接:[https://www.dw.com/en/ukraine-latest-moscow-says-no-concrete-plans-for-putin-biden-summit/a-60847723](https://www.dw.com/en/ukraine-latest-moscow-says-no-concrete-plans-for-putin-biden-summit/a-60847723)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

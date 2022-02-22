@@ -2,56 +2,54 @@
 ---
 
 
-## 《苦女》The Suffering Women
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2049073/)
+## 美国及世界疫情简报（02-22-2022）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2049160/)
 
-秘密翻译组-北美组
+整理：波士顿五月花 老枪6
+![](https://assets.gnews.org/wp-content/uploads/2022/01/01-1.jpg)
+今天是2022年2月22号，星期二。
 
-苦女                     
-The Suffering Women
+**1．美国疫情**
 
-可叹
-Alas
-少女无辜遭祸端
-The innocent little girl became a victim of human trafficking
-音信杳杳如纸鸢
- No one has heard from her ever since
-二十 四载拘囚 骨肉离散
-Twenty-four years of captivity, separated from her loving family
-叫破苍穹 谁见薄命红颜 
-Has anyone seen this poor girl? She has nowhere to turn for help
+(注：因目前各州不是每天报疫情数据，所以数据会出现大起大落现象)
 
-剪舌拔齿和血咽
-They cut her tongue and pulled out her teeth
-链锁玉颈双蛾残
-Chained her delicate neck and destroyed her beautiful complexion
-修罗场内不见天
-In a hopeless plight and a world of darkness 
-炼狱泯人寰
-Her tragedy in that living hell is incomparable in this world
+美国新增新冠患者22,053人，总确诊78,479,134人。新增死亡384人，总死亡 935,335人。
 
-此生无日望生还
-There is no hope for her to return to her joyful life
-逃离恨海待何年
-When will she be able to escape from the sea of misery? 
-万念俱灰 肝肠痛断
-With all hopes dashed to pieces, she is overwhelmed by grief
-  
-痴语问苍天 一叹泪涟涟
-She asks the heaven why she has to suffer, heaven fell silent, only tears linger
-可叹盛世谎弥天
-What a horrendous tragedy, the so-called “prosperous China” is full of lies
- 生如蝼蚁命难全
-Human life means nothing in the eyes of the Chinese Communist Party
-举国沉酣浑不觉
-But the whole country is still asleep, without realizing what’s really happening
-遭逢胜过《窦娥冤》
-The injustice she has been suffering is even worse than the story of Snow in Midsummer
+纽约州新增新冠确诊2,137人，新增死亡27人。
 
-灵魂割礼实可哀
-The mass mutilation of the souls is truly tragic
-他日谁上断头台
-Retribution for the wicked will surely come on Judgment Day
+马里兰州新增新冠患者1,089人，新增死亡8人。
+
+加州新增病例2,630人，新增死亡56人；得克萨斯州新增病例1,660人，新增死亡70人；亚利桑那州新增病例4,782人，新增死亡109人。
+
+**2．世界疫情**
+
+1） 亚洲疫情
+
+印度新增新冠患者16,051人；日本新增71,494人；印尼新增48,484人；菲律宾新增1,455人；孟加拉新增1,987人；土耳其新增70,355人；台湾新增70人；韩国新增95,347人；中国新增484人。
+
+2）非洲疫情
+
+南非新增新冠患者1,456人；埃塞俄比亚新增61人；摩洛哥新增298人。
+
+3）拉美疫情
+
+巴西新增新冠患者40,813人；哥伦比亚新增3,381人；阿根廷新增4,450人；智利新增32,130人；墨西哥新增5,714人。
+
+4）欧洲疫情
+
+俄罗斯新增新冠患者168,399人；德国新增61,918人；法国新增59,014人；英国新增25,536人；意大利新增42,202人。
+
+5）全球新冠总感染人数为425,911,613人，总死亡人数为5,890,329人。
+
+**3．新闻简报**
+
+1、日本东京：随着 COVID-19 大流行的蔓延，新兴的 Omicron 子变体 BA.2 可能成为比其前身更大的威胁。BA.1 是科学家所说的 Omicron 变体。 根据日本研究人员进行的一项预印本研究，与 BA.1 相比，这种 Omicron 的新分支会使仓鼠病情加重，并造成更多的肺损伤和体重减轻。
+
+* * *
+
+*封面：霹雳鼠年*
+
+*编辑 /发布：郭郊玉米地*
 
  
 

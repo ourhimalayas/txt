@@ -2,23 +2,36 @@
 ---
 
 
-## 【TopNews】俄罗斯总统普京发表全国谈话称乌克兰为“不可分割的一部分”
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/2049050/)
+## 有声|日媒聚焦彭帅选手以及谷爱凌双重国籍事件
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2049133/)
 
-根据综合报导，俄罗斯总统普京在2月21日晚间向俄罗斯全国发表电视讲话，并且签署法令称“我认为有必要做出一个早就应该做出的决定，立即承认顿涅茨克（DPR）和卢甘斯克（LPR）人民共和国”。
+配音：香草山巡管部– 文凯琳
 
-普京在谈话开始时阐述了对乌克兰历史的看法，称“让我再次强调，乌克兰对我们来说不仅仅是一个邻国，而是我们自己的历史、文化和精神世界不可分割的一部分。”
 
-援引链接：
 
-[https://udn.com/news/story/122663/6114677](https://udn.com/news/story/122663/6114677)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-**撰稿****/****米拉雅**
 
-**审阅****/****邱杰斯**
 
-**上传****/****天赐良闻**
+当地时间2月18日，日媒进一步分析了彭帅的遭遇，以及她在冬奥会上出镜的意义。
 
+国际奥委会主席巴赫抵达北京后，与彭帅进行了午餐会，但是中共并没有释放出任何会面的具体内容，甚至没有像上次视频会见时那样，放出一张照片，这引起了嘉宾们的疑问。
+
+其中，在彭帅接受法国媒体采访时，明明记者和彭帅都能说流利的英文，但国际奥委会和中共偏偏要安插一名翻译作为监视。尽管记者的所有问题都经过了中共的事先审核，但这次采访最关键的是，彭帅承认一开始揭发张高丽性侵的爆料文章，是她本人所写并由她本人发布到社交平台上的这个事实。
+
+文字版原文：[日媒聚焦彭帅选手以及谷爱凌双重国籍事件](https://gnews.org/zh-hans/2045498/)
+
+音频处理/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
