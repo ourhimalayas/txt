@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/22/2022 10:09 PM (UTC)`
+
+2月20号这一刻即将到来……［川普刚刚进行了预测，在俄罗斯和乌克兰发生“灾难”后，中共“绝对”会谋求台湾<br/>川普形容中共的习近平、俄罗斯的普京是“孪生姐妹”。<br/>https://www.foxnews.com/politics/trump-china-taiwan-russia-ukraine］
+
+---
+
 `@miles 2/22/2022 8:49 PM (UTC)`
 
 2月22日：共产党，这一群流氓开始自我毁灭……［徐州“铁链女”（八孩母）的悲惨遭遇引起全网关注。江苏成立调查组后开始删帖抓人。但网民表示：“堵不住的悠悠众口，压不下的词条热搜。”截至22日，八孩女的微博话题阅读量已高达48.8亿次。］冬奥会能结束吗？永远结束不了，直到共产党彻底被消灭为止……
@@ -153,13 +159,6 @@ New Release ✨                                              Shop Now at www.gfa
 
 2/20/2022 Miles Guo: The situation in Ukraine is irreversible. Putin became reticent after returning from Beijing, his personality has changed a lot, and he watched a lot of war movies in the past two years. The British Prime Minister threatens Putin with sanctions against the Russians in Britain, and a large number of Russian tycoons are in the UK and Southern France.<br/><br/>2/20/2022 文贵直播：乌克兰局势已无法挽回；普京从北京回去后变得沉默寡言，普京这几年性情大变、看了很多战争片；英首相以制裁在英俄罗斯人威胁普京，俄国有大量富豪在英国和南法
 ![img](https://media.gettr.com/group48/getter/2022/02/21/10/520022f3-c0bb-a1e8-3ddc-9d420dade5ca/out.jpg)
-
----
-
-`@miles 2/21/2022 6:25 AM (UTC)`
-
-2/20/2022 Miles Guo: Why do Russia and the CCP want to form a partnership? The alliance between the CCP and Russia will bring disasters to the world. Russia and the CCP may change the trajectory of human history once again!<br/><br/>2/20/2022 文贵直播：俄罗斯和中共为什么要成为伙伴关系？中俄联手将是世界的灾难！俄罗斯和中共可能会再次改变人类历史走向！<br/>
-![img](https://media.gettr.com/group47/getter/2022/02/21/06/5dc65723-24c0-5781-78c2-08a8297385fa/out.jpg)
 
 ---
 

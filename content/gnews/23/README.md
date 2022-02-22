@@ -2,18 +2,31 @@
 ---
 
 
-## 利益 把柄 无知 色情 就是中共对内 对外的蓝金黄手段
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2049413/)
+## 二战是我们最好的一面镜子
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2049603/)
 
-原安全部副部长秋景，是共青团出身，胡锦涛、令计划安排的接班人，管理海外特务，后来被所谓不在体制内公开的双规。秋景曾在党校讲话：当年对国民党的渗透，不仅把国民党赶出了大陆，同时共产党还有继续渗透台湾政坛的能力。
+文编：Hima
+听写：叮叮
+视频：七哥
 
-安全部许勇耀点出核心，共产党所谓隐蔽情报战线的关键点就是 — — 利益。
+2022-02-16直播摘录09:49:47
 
-利益、把柄、无知、色情，就是中共对内、对外的蓝金黄手段！
+我到欧洲、到德国去看了希特勒当年那个二战之后，为啥我老提二战，我感触太深啦！人类这么近的历史就为啥不学习呢？你学那个大清朝有个屁用啊！二战是我们最好的一面镜子，二战里边大家要学到的，就是老百姓的无知都相信希特勒呀，不就是今天刚才追寻自由、我的腹肌问的问题吗。然后要打台湾，是吧，你疯啦你能打台湾？Bunny的父母他有常识：共产党它一定会最后发动一场战争，来让共产党继续活下去。你爸妈不简单！更重要的事情是：钱、财富，一旦在战时或大灾难、大病毒来，如果你们没有吃饭的钱，你真得饿死你。还一个重要的要有几个朋友、要有几个人，光有钱在大难、大战来的时候你没有人是没有用的，交一个朋友，啊。新中国联邦都给你安排了：有战友、有币、还有情报、还有让你开智明眼。
 
-视频来源: 20220220—郭先生大直播
-视频制作: 文星光，梦田
-文案:文星光
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
