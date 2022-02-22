@@ -2,22 +2,43 @@
 ---
 
 
-## 美国最高法院拒绝针对圣地亚哥联合学校 COVID 疫苗接种任务的紧急命令
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2048482/)
+## 有声|瑞典运动员谴责奥委会授权中共国举办冬奥会
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2048648/)
 
-**编译：verifunny**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-22-223444.jpg)
-2月20日美国最高法院拒绝下达紧急命令，阻止圣地亚哥联合学区执行其 COVID-19 疫苗强制接种要求，理由是该学区决定推迟实施该政策。
+配音：香草山农场 – 信念7
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
 
-法院于 2 月 18 日发表的一份声明称：“由于受访者推迟了受到质疑的政策实施，并且由于他们尚未确定任何政策将采取的形式，因此目前没有必要采取紧急救济措施。”
 
-如果情况发生变化，最高法院保留了重新考虑受理此案的机会。 该问题源于一名斯克里普斯牧场高中学生提起的联邦诉讼，该学生希望法院阻止该地区执行其疫苗强制接种，因为它不允许学生获得宗教豁免。
 
-9 月，学校董事会批准了 16 岁及以上教职工和学生的疫苗强制接种。从 1 月 24 日开始，完全接种疫苗的学生才能亲自上学或参加课外活动。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/4589-1536x922-1.jpg)
 
-学生律师保罗·乔纳（Paul Jonna）在 2 月 11 日的一封信中要求高等法院受理此案，尽管他说这是一份地区声明，称其“可能会逐步推进疫苗强制要求”， 但在信中强调说：“学区只承诺疫苗需求将被推迟，至多是一小会儿。”
 
-**新闻来源**： https://www.lajollalight.com/news/story/2022-02-20/u-s-supreme-court-declines-emergency-order-against-san-diego-unified-school-vaccination-mandate
+来自瑞典的冬奥会金牌得主25岁的速滑运动员尼尔斯·范德波尔在北京活动回国后向媒体表示，国际奥委会决定在人权情况糟糕的中国举办冬奥会是非常不负责任的。
+
+人权团体呼吁各国政府和赞助商广泛抵制本次冬奥会。包括美国、英国和澳大利亚在内的几个国家都对这项赛事进行了外交抵制，同时人们一直非常关注参赛运动员的抗议情况。
+
+奥运会上的抗议行为通常违反国际奥委会制定的规则，将会面临惩罚。人权倡导者警告运动员在北京参加奥运会期间不要采取任何行动，包括发表声明，但建议他们回国后可以大声说出来。
+
+随着冬奥赛事结束，越来越多的运动员回国，越来越多的冬奥会真相被他们传播出来，中共以假治国，无视人权，反人类的真面目必被曝光于天下。
+
+文字版原文：[瑞典运动员谴责奥委会授权中共国举办冬奥会](https://gnews.org/zh-hans/2039055/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

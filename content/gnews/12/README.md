@@ -2,44 +2,34 @@
 ---
 
 
-## 有声|瑞典运动员谴责奥委会授权中共国举办冬奥会
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2048648/)
+## 日媒解析中共冬奥会所暴露的人权问题
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2048797/)
 
-配音：香草山农场 – 信念7
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+作者：日本方舟农场 – Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月18日，日媒从三个方面解析了中共冬奥会所暴露出来的人权现状。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/4-47.jpg)
+首先，瑞典冠军回国后直言中共国不应该有资格承办奥运会，德国双金牌选手回国后表示未来再也不会去中共国，都已经表明，参加冬奥会的运动员们在当地受到了极大的压力。而人权观察组织无法保证为人权发声的运动员的安全，也表明北京是极其凶险之地。
 
+其次，中共手握国家安全法这一部万能的恶法，所有在中共国为新疆、西藏、香港、台湾发声的人，都会被中共定义为试图分裂国家的罪名，而运动员们是没有能力承担触碰国家安全法的风险的。
 
+此外，国际奥委会也对这样的高压政策默不作声，不但撤销了在东京2020年奥运会上允许运动员为人权发声的所有行为，甚至将在本届冬奥会上为人权发声的行为列为禁忌事项。嘉宾特别指出，本届冬奥会不仅暴露出中共国让人担忧的人权现状，也突显出国际奥委会就是其自身规则的最大破坏者。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/4589-1536x922-1.jpg)
+参考链接：[20220218日媒報導CCP冬奧會人權](https://www.gettr.com/post/pvxgvh5446)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-来自瑞典的冬奥会金牌得主25岁的速滑运动员尼尔斯·范德波尔在北京活动回国后向媒体表示，国际奥委会决定在人权情况糟糕的中国举办冬奥会是非常不负责任的。
+总编: Zion文恩
+编辑: 宁文静   
+校正/发稿：Fei797
 
-人权团体呼吁各国政府和赞助商广泛抵制本次冬奥会。包括美国、英国和澳大利亚在内的几个国家都对这项赛事进行了外交抵制，同时人们一直非常关注参赛运动员的抗议情况。
-
-奥运会上的抗议行为通常违反国际奥委会制定的规则，将会面临惩罚。人权倡导者警告运动员在北京参加奥运会期间不要采取任何行动，包括发表声明，但建议他们回国后可以大声说出来。
-
-随着冬奥赛事结束，越来越多的运动员回国，越来越多的冬奥会真相被他们传播出来，中共以假治国，无视人权，反人类的真面目必被曝光于天下。
-
-文字版原文：[瑞典运动员谴责奥委会授权中共国举办冬奥会](https://gnews.org/zh-hans/2039055/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

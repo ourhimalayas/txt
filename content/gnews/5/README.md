@@ -2,34 +2,25 @@
 ---
 
 
-## 中共打脸“奥运不谈政治”谎言 遭国际谴责
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2048728/)
+## 人类的希望——新中国联邦
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2048886/)
 
-作者：台湾宝岛农场 – dobi
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月18日，国外媒体报导，在2月17日举行的北京冬奥新闻发布会上，中共北京冬奥发言人严家蓉一面高喊“奥运只谈运动，不谈政治”，一面大谈台湾主权问题，宣称“世界只有一个中国”“台湾是中国不可分割的一部分”等言论，同时称饱受外界质疑的新疆问题很大程度建立在谎言之上。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3-73.jpg)
-这些言论不仅引发了国际热议和谴责，也让国际奥委会主席托马斯‧巴赫罕见发言，批评了中共的这一犯规行为，一反先前拒绝接受国际社会因中共恶劣人权记录建议抵制北京冬奥委的态度。
+**撰稿：日本东京方舟农场 知心姐姐**
 
-台湾外交部严厉谴责中方发表的贬损台湾主权的不实言论，并表达了严正抗议，美国一些媒体也提出警告，认为严家蓉的言论似乎违反了《奥林匹克宪章》第50条，该条款禁止在奥运会上进行任何形式的“示威或政治、宗教或种族宣传”。
+为什么全球主义者觉得消灭了很多人类以后它们就不会被发现不会被审判呢？它们是过于自信吗？觉得手中有舆论工具、有病毒、有国家机器最后可以付诸武力镇压，然后它们就可以统治全球？现在除少数国家以外，我想大多数国家都已经进入了独裁化，而不仅仅是共产主义国家！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-338.jpg)
+进入武力镇压阶段也就是决定哪方获胜的阶段，平民主义和极权主义进入巅峰对决！彻底拉开了整个世界的秩序重置的大幕！显然这一次人类社会要延续下去，必然要经历涅槃重生的过程——焦虑、混沌、愤怒、痛苦、折磨、死亡、惊醒、最后重新拾回信仰！
 
-参考链接：
-1) .[奧運會不談政治？新聞會上中共自打臉](https://www.epochtimes.com/b5/22/2/18/n13587758.htm)
-2) . [Olympic Committee Rebukes China Over Political Comments, in Rare Move](https://www.wsj.com/articles/olympic-committee-rebukes-china-over-political-comments-in-rare-move-11645191203)
+文贵先生对这场人类的劫难和未来人类的走向判断得准确无误！文贵先生的远见卓识、高屋建瓴和对人类未来发展完美的顶层设计必将救人类于水火，彻底捣毁全球主义共产主义老巢，引领人类进入一个崭新的文明阶段！他就像一盏明灯，引领着人类走向喜马拉雅的顶峰！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+我们还要特别注意一下文贵先生的战略战术（这是基于对人性的深刻洞悉和对资本属性本质的把握之上）：在全球平民觉醒、奋起反抗的同时，撬动资本的杠杆，唤醒和瓦解全球主义和共产主义的内部阵营！
 
-总编: Zion文恩
-编辑: 飞虹    
-校正/发稿：Fei797
+有文贵先生这样的大智慧新中国联邦一定会站在世界的前沿！从而成为未来人类发展进程中新一级力量的重要组成部分！
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+素材采编：知心姐姐
+编辑：老孙
+发布：爱放飞
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

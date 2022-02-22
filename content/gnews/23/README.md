@@ -2,39 +2,20 @@
 ---
 
 
-## 有声|爆料革命承诺救助 “铁链女” 爆料人
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2048524/)
+## 英国计划在数周内为老年人进行第四针新冠疫苗接种
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2048706/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-2月19日，郭文贵先生在盖特直播中讲述，最早报道徐州 “铁链女” 事件的其中一个爆料人家属，向郭先生提供确实证据，受到郭先生认可并得到救助承诺。
+**编译：verifunny**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-22-230409.jpg)图片来源：Forbes
+据《星期日泰晤士报》报道，英国政府将在几周内为其老年人和弱势公民推出第四针新冠疫苗接种。
 
-郭先生依据爆料人家属提供的图片和视频，了解到爆料人揭露真相后，被中共警方抓捕，残酷拷打致伤的事实。郭先生决定用两万个喜币作为受迫害补偿，并承诺救助爆料人。
+此举正值英国准备放宽所有与中共病毒（Covid-19）相关的限制，包括在检测呈阳性后自我隔离的法律要求。
 
-另据家属告知，“铁链女”事件发生地徐州丰县，当地人都知道这名女子受害情况。而且，每年都有几十具年轻女孩尸体被发现，贩卖来的女性被富裕家庭购买来当性奴使用。
+该报称，“与中共病毒一起生活”计划将包括为 75 岁以上的人和有免疫缺陷的人提供另一次加强注射，因为许多人在六个月前接受了第三针疫苗接种。
 
-中共惧怕“铁链女”真相被揭穿，除了在徐州加建物理隔离墙，还加强了网络防火墙，并且在当地加派200名警察驻守，企图阻止外界了解事件的真相。爆料革命唯真不破，鼓励勇敢揭露中共邪恶的爆料行为。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/7d77198d8f5bd75d60046ad826677bbb95bf784acc948fc074aa04351a59d5bf.jpg)
+英国政府称未来的疫苗接种运动将像每年一次的流感疫苗接种一样，针对那些弱势群体——除非出现更危险的变种。
 
-
-文字版原文：[爆料革命承诺救助 “铁链女” 爆料人](https://gnews.org/zh-hans/2043937/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**新闻来源：**[https://www.politico.eu/article/uk-plans-4th-vaccination-for-elderly-vulnerable-within-weeks/](https://www.politico.eu/article/uk-plans-4th-vaccination-for-elderly-vulnerable-within-weeks/)
 
  
 

@@ -2,76 +2,33 @@
 ---
 
 
-## 安东尼·布林肯同王毅进行了交谈,强调需要维护乌克兰的主权和领土完整
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2045807/)
+## 习普政治联盟的历史由来
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2045455/)
 
-国务卿安东尼·布林肯： 我同 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 国务委员兼外交部长王毅进行了交谈。我强调需要维护乌克兰的主权和领土完整。
+作者：纽约磐石农场—在远方
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+在2月20的大直播中，郭文贵先生解读了普京和习近平政治联盟的历史由来。
 
+据郭先生介绍，中共和俄罗斯的结盟已经有很多年。2012年，习近平执政后访问俄罗斯，参观了俄罗斯的国防部战略指挥中心。从那时起，习与普京就成了“生死兄弟”，结成了政治联盟。双方对外宣布，将把贸易额度从200万美元提升到2000亿美元，之后又签署了4600亿美元的现金购买石油大单。共军与俄军开展了5次全面演习，俄罗斯对日本北方四岛提出领土要求，普京则默认习近平“统治”亚洲，任由中共对台湾肆意妄为。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-47.jpg)
+中共与俄罗斯结盟后，普京一反常态，改口为中共恶劣的人权犯罪辩护，称领导14亿中国人无需人权。中共与俄罗斯宣布军事上成为“全天候兄弟战略伙伴关系”，俄罗斯卖给中共飞机发动机技术，而结盟后的军事演习，则是中共建党百年以来的总和。
 
+参考链接：[习普政治联盟的历史由来](https://www.gettr.com/post/pvusqu64a8)
 
-> I spoke with People's Republic of China State Councilor and Foreign Minister Wang Yi. I underscored the need to preserve Ukraine’s sovereignty and territorial integrity.
-> — Secretary Antony Blinken (@SecBlinken) [February 22, 2022](https://twitter.com/SecBlinken/status/1495961543359356932?ref_src=twsrc%5Etfw)
+![This image has an empty alt attribute; its file name is calendar.png](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
+总编：DM
+编辑：飞虹
+校对/发稿：Hetangyuese
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-美前国务卿迈克·蓬佩奥：
-
-弗拉基米尔·普京是侵略者。
-
-乌克兰人是受害者。
-
-我们永远不应该回避这一点。
-
-
-
-> Vladimir Putin is the aggressor. 
-> The Ukrainians are the victims.
-> We should never shy away from that.
-> — Mike Pompeo (@mikepompeo) [February 22, 2022](https://twitter.com/mikepompeo/status/1495913605635715078?ref_src=twsrc%5Etfw)
-
-
-
-参议员卢比奥： 我希望拜登不要被普京耍了 别等到他们见面的时候，俄罗斯已经吞并乌克兰东部，然后任何会谈都是关于不要进一步占领这个国家的。
-
-
-
-> I hope Biden doesn’t get played by [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw)
-> 
-> By the time they meet [#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw) will have annexed eastern [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) & any meeting would be about not taking more of the country
-> — Marco Rubio (@marcorubio) [February 21, 2022](https://twitter.com/marcorubio/status/1495780486794383365?ref_src=twsrc%5Etfw)
-
-
-
-众议员麦克·沃尔兹： 50年前的今天，尼克松前往北京，试图离间共产主义中国和苏联。 此后，中国共产党利用美中关系在技术和经济上实现了跨越式发展，以寻求成为世界上占主导地位的超级大国。 （转推说：习在北约问题上支持普京。美国或将组建全球联盟，帮助各国部署先进武器，这预示着一场新冷战。）
-
-
-
-> 50 years ago today Nixon traveled to Beijing to drive a wedge between communist China & Soviet Union. 
-> 
-> The CCP has since used the US-China ties to leapfrog ahead technologically and economically in its quest to be the world’s dominant superpower. [https://t.co/tZ2EZucRjN](https://t.co/tZ2EZucRjN)
-> — Rep. Mike Waltz (@michaelgwaltz) [February 21, 2022](https://twitter.com/michaelgwaltz/status/1495765756247785476?ref_src=twsrc%5Etfw)
-
-
-
-参议员玛莎·布莱克本： 国际奥委会允许一个种族灭绝的 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 政权主办奥运会，并允许一名使用兴奋剂的俄罗斯运动员参加比赛。 而美国队参加北京奥运会使得这种胡作非为合法化。
-
-
-
-> The International Olympic Committee allowed a genocidal regime to host the Olympics and a Russian athlete that was doping to compete. 
-> 
-> Team USA’s presence at the Beijing Olympics legitimized this nonsense. [https://t.co/tlgZdKVVXp](https://t.co/tlgZdKVVXp)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [February 21, 2022](https://twitter.com/MarshaBlackburn/status/1495879336217485317?ref_src=twsrc%5Etfw)
-
-
-
-参议员玛莎·布莱克本： [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 正在逃脱反人类罪的惩罚，而拜登政府对此视而不见。
-
-
-
-> The Chinese Communist Party is getting away with crimes against humanity, and the Biden administration is turning a blind eye.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [February 21, 2022](https://twitter.com/MarshaBlackburn/status/1495838373981966341?ref_src=twsrc%5Etfw)
-
-
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

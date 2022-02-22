@@ -2,34 +2,60 @@
 ---
 
 
-## 达沃斯党利用科学主义危害人类
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2048547/)
+## 有声|危墙之下只有共鸣无共赢
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2048724/)
 
-作者：纽约磐石农场 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在2月18日的大直播中，郭文贵先生为战友们揭密了，科学主义成为本次疫苗大灾难帮凶的主要原因。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-334.jpg)
-郭先生说，人类的三大阶段，是从宗教战争到皇权战争，然后工业革命取而代之。 工业革命的开始，意味着人类开始崇拜科学。
+配音：香草山农场 – 信念7
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
 
-现在只有习近平还梦想着做皇帝，但是萨达姆、卡扎菲和阿明等独裁者的下场，都清楚的表明，开历史的倒车只能是死路一条。任何人如果尝试着用神权和皇权来领导人类，并试图把国家家族化，都是极其荒唐的，但是习近平却相信了他应该当皇帝的鬼话。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-file-2-768x432-1.jpg)
 
-当前西方社会神权和皇权影响力微弱，人们纷纷相信科学，这是资本主义社会唯一的支撑。犹太人作为科学主义的创始者，在这次疫苗大灾难面前，却被科学主义魔鬼化者彻底利用，例如福奇等一批所谓的科学家，辉瑞、莫德纳等大型制药公司，还有各种科学杂志。广大民众完全被达沃斯党、共产主义和沼泽地所欺骗，从而注射了中共病毒疫苗。
 
-参考链接：[2/18/2022 文贵直播: 科学曾在历史上推动了人类的发展，结束了宗教和皇权统治，然而为什么科学主义却成了疫苗灾难的帮凶？是谁利用了科学主义去骗取人们的信任来推行疫苗？](https://www.gettr.com/post/pvmwaic877)
+朋友圈又看到良知作者的号被灭， 他的笔锋早已失去了初识时的犀利如剑， 折腾复折腾， 躺平再躺平， 可是那些疯狗还是一直重点打压， 他的悲伤我的悲悯交接在同一个点， 却无法有交叉的沟通， 暗示再暗示，比喻再比喻， 无奈于有共鸣而无法实现共赢。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+层层审查的中共国隔屏犹隔三重天， 我的激情、我的喜悦无法悉数传达。
 
-总编: Zion文恩
-编辑: 谐趣园
-校正/发稿：Fei797
+我在新中国联邦的平台自由发挥、自由发稿， 快乐的时时见证着中共狂奔于末路的丑样， 感染着袍泽之情暖。
 
+他失意在中共的层层加码，有口不能开， 有文无处发， 承受着一波又一波的灭号劫， 心灰意冷忆屈原。
+
+看不见希望的人是绝望的， 他流浪在自己的祖国无处安放。
+
+我多想告诉他， 来吧，老师，这里有你自由发挥才能的天地， 来吧，朋友，新中国联邦张开双臂迎接天下所有的好人。
+
+不要惧怕、不要犹豫。 你听，奋战的马蹄在咆哮， 残害世界的红魔已颤抖。
+
+丑陋的邪恶发出慌乱的哀嚎， 那是他们最后的挣扎， 你看撕毁血旗的七芒星， 闪耀着自由的光芒， 还有给你带来财富的喜系列， 让你感受笔敞心扉的愉悦和奔放。 可惜被踢弯的膝盖站不稳， 扬不起善勇的心不敢参与政治， 因为他不知道一场惊天动地的爆料运动在全世界所向披靡， 他更不了解斧头帮的五星之外，还有七七四十九颗星生生不息。
+
+可以让他的报国之志越洋翱翔。
+
+善良的人们呀， 你可以不做正义的英雄， 但请不要灰心、不要绝望， 请仰起你渐渐迷失的眼神， 看远处的天染上的芳香红韵， 那是晨曦出来， 跃跃欲出的太阳带来的第一缕光明。
+
+你可看到了迎着黄沙一身铠甲的勇士 承着阳光带来的春光、火焰、希望 大地得到了净化，灵魂得到了升华， 相聚在嘹亮的集结号， 人们欢快的编织安定的云彩， 那脱去褴褛的小孩， 活泼、秀丽，眼里亮着梦想的异彩 朗朗如流水的声音荡漾在蓝色的海洋里 那消失了疲惫的男人脸上， 仰起了从来不曾有过的尊严， 眼里多了担当、责任、宽容， 那没有了恐惧的女人活出的自信， 洋溢着温暖的笑容， 那扫尽愁云的老人，欢愉在翠绿的草坪上， 百兽入林，万物互联。
+
+请相信我，天真的快亮了， 人类回归健康、和平、欢乐、 就在创建自由民主、弘扬公平公正的新中国联邦！
+
+
+
+文字版原文：[危墙之下只有共鸣无共赢](https://gnews.org/zh-hans/2042224/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

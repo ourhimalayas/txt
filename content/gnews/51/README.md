@@ -2,22 +2,34 @@
 ---
 
 
-## 拜登宣布对乌克兰东部独立地区实施制裁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2045514/)
+## 中共国音乐界将发生金融阿比比事件
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2045453/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-21.png)图片来自网站
-21日，美国总统拜登在白宫宣布，对普京批准独立的乌克兰东部亲俄派控制地区实施制裁。
+作者：纽约香草山教育部-Noemi
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+2月20日，郭文贵先生在大直播节目中爆料，中共国内的音乐界、娱乐界即将发生颠覆性的大事，而中共国的金融、房地产将会开启新一轮的恶化和崩塌。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-46.jpg)
+郭先生表示，中共实际第二号政治人物彭丽媛的精神状况非常不好，原因是演艺界、音乐界在冬奥会后将会发生颠覆性质的剧变。此前，为了营造出“国泰民安”的冬奥氛围，中共是严禁本国的房地产业在此期间出现破产现象，而被中共一贯用于洗黑钱的娱乐界、歌星、明星们，他们背后链接的一系列经济丑闻也不容许在这一时期被媒体曝光。而目前，中共的经济崩塌已到了纸包不住火的程度。
 
-普京与乌克兰总统泽连斯基进行了电话交谈，强烈谴责了普京的决定，坚决支持乌克兰捍卫主权和领土完整。拜登还与法国总统马克龙和德国总理肖尔茨进行了电话会谈，讨论了接下来的措施，确认了相互间的合作。
+同时，郭先生向世界预警，中共国将会迎来一场金融阿比比事件，届时，中共的房地产业会开启一个新的恶之轮回。而这次的金融阿比比事件，将从中共的音乐界开始。
 
-据白宫称，拜登签署了一项总统令，禁止美国人在亲俄派控制的东部省份顿涅茨克和卢甘斯克进行新的投资、贸易和金融交易。美国官员21日告诉记者，更多追加制裁措施将在22日宣布。
+参考链接：[中共国音乐界将发生金融阿比比事件](https://gtv.org/video/id=62123b3508ba8a07b19fce62)
 
-[信息源](https://www.jiji.com/jc/article?k=2022022200171&amp;g=int#:~:text=%E5%A4%A7-,%E6%9D%B1%E9%83%A8%E7%8B%AC%E7%AB%8B%E6%89%BF%E8%AA%8D%E3%81%A7%E5%88%B6%E8%A3%81%E7%99%BA%E5%8B%95%E3%80%80%E3%83%97%E)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
-*校对：东京樱花团/麗子
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+总编：DM
+编辑：DM
+校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
