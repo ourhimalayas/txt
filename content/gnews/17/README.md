@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：把你的财富和智慧用在当下
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2049962/)
+## 七哥金句：人类正义和邪恶的较量
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2050001/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句17-1-1-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句-S1.jpg)
 整理：雅典娜农场
 发布：枫叶红了
 

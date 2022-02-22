@@ -15,122 +15,122 @@
 
 ---
 
-### [七哥金句：看透生命的秘密](/content/gnews/1/README.md)
- ` 雅典娜GNotes`
-
-### [中共国锁链女灾难连印度都忍无可忍](/content/gnews/2/README.md)
- ` 扬帆枫叶快讯`
-
-### [七哥金句：沟通是一种表态](/content/gnews/3/README.md)
- ` 雅典娜GNotes`
-
-### [美疾控中心和辉瑞发布血栓紧急警告](/content/gnews/4/README.md)
- ` 扬帆枫叶快讯`
-
-### [美国将乌克兰大使馆人员调往波兰](/content/gnews/5/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [加拿大父母对幼儿接种持怀疑态度](/content/gnews/6/README.md)
- ` 扬帆枫叶快讯`
-
-### [七哥金句：各扫门前雪有道理吗？](/content/gnews/7/README.md)
- ` 雅典娜GNotes`
-
-### [特鲁多政府被世界经济论坛操控](/content/gnews/8/README.md)
- ` 扬帆枫叶快讯`
-
-### [七哥金句：生命中有一样东西，让你获得痛快](/content/gnews/9/README.md)
- ` 雅典娜GNotes`
-
-### [以色列医生斥责特鲁多信口雌黄](/content/gnews/10/README.md)
- ` 扬帆枫叶快讯`
-
-### [七哥金句：我们容易忘记痛苦](/content/gnews/11/README.md)
- ` 雅典娜GNotes`
-
-### [放宽限制，东南亚诸国第四季度实现GDP增长](/content/gnews/12/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [将会有重大消息公布](/content/gnews/13/README.md)
- ` MG FARM`
-
-### [七哥金句：人类正义和邪恶的较量](/content/gnews/14/README.md)
- ` 雅典娜GNotes`
-
-### [秘翻在线: 中共反对美国将台湾纳入印太战略](/content/gnews/15/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [七哥金句：谷爱凌事件的影响](/content/gnews/16/README.md)
- ` 雅典娜GNotes`
-
-### [七哥金句：把你的财富和智慧用在当下](/content/gnews/17/README.md)
- ` 雅典娜GNotes`
-
-### [中国人的善忘是灾难根源](/content/gnews/18/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [中共国在美俄间走钢丝? 传微妙应对乌克兰问题](/content/gnews/19/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [德国暂停俄天然气管道验收 抗议其分裂乌克兰行为](/content/gnews/20/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [乌克兰总统表示 他正在考虑与俄罗斯断交](/content/gnews/21/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [文贵视角：普习大密谋，世界要大变](/content/gnews/22/README.md)
- ` 秘密翻译组-原创组`
-
-### [乌克兰当前局势下台湾人是否担心北京武力攻台？](/content/gnews/23/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [前辉瑞副总裁讲解疫苗如何危害女性生育](/content/gnews/24/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [疫苗灾难何时休 日本将着手生产冻干粉疫苗](/content/gnews/25/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [其他意见 （七）](/content/gnews/26/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [一起银行泄密事件，瑞信为世界“恶棍”打理资产](/content/gnews/27/README.md)
+### [全球疫情更新（两则澳洲新闻，嗅出恐怖气息 ）](/content/gnews/1/README.md)
  ` 墨尔本雅典娜农场`
 
-### [五月花简报（02/22/2022）](/content/gnews/28/README.md)
- ` mayflowertranslate`
+### [习近平盼发动战争化解被剿灭的危机](/content/gnews/2/README.md)
+ ` 扬帆枫叶快讯`
 
-### [瑞士信贷银行洗黑钱的证据被曝光](/content/gnews/29/README.md)
- ` 秘密翻譯組G-Translators`
+### [七哥金句：看透生命的秘密](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
 
-### [中共国的教育和信仰背景下，真话是他的毒药](/content/gnews/30/README.md)
- ` MG FARM`
+### [中共国锁链女灾难连印度都忍无可忍](/content/gnews/4/README.md)
+ ` 扬帆枫叶快讯`
 
-### [希腊三月开始给未接种者准备了新款疫苗](/content/gnews/31/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [七哥金句：沟通是一种表态](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
 
-### [战术战略的重要性](/content/gnews/32/README.md)
- ` MG FARM`
+### [美疾控中心和辉瑞发布血栓紧急警告](/content/gnews/6/README.md)
+ ` 扬帆枫叶快讯`
 
-### [新中国联邦积极筹建国家教育体系](/content/gnews/33/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [中共国暂时拘留日本驻华大使馆官员 外相表示“坚决不能接受”](/content/gnews/34/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [DC大中华时事：香港的长者必须接受第三针疫苗接种](/content/gnews/35/README.md)
+### [美国将乌克兰大使馆人员调往波兰](/content/gnews/7/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [新西兰财经G乐部2022年2月22日:财经新闻整理](/content/gnews/36/README.md)
+### [加拿大父母对幼儿接种持怀疑态度](/content/gnews/8/README.md)
+ ` 扬帆枫叶快讯`
+
+### [七哥金句：各扫门前雪有道理吗？](/content/gnews/9/README.md)
+ ` 雅典娜GNotes`
+
+### [特鲁多政府被世界经济论坛操控](/content/gnews/10/README.md)
+ ` 扬帆枫叶快讯`
+
+### [加密货币法案在巴西进入参议院投票阶段](/content/gnews/11/README.md)
+ ` 纽约香草山MOS02`
+
+### [七哥金句：生命中有一样东西，让你获得痛快](/content/gnews/12/README.md)
+ ` 雅典娜GNotes`
+
+### [以色列医生斥责特鲁多信口雌黄](/content/gnews/13/README.md)
+ ` 扬帆枫叶快讯`
+
+### [七哥金句：我们容易忘记痛苦](/content/gnews/14/README.md)
+ ` 雅典娜GNotes`
+
+### [放宽限制，东南亚诸国第四季度实现GDP增长](/content/gnews/15/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [将会有重大消息公布](/content/gnews/16/README.md)
+ ` MG FARM`
+
+### [七哥金句：人类正义和邪恶的较量](/content/gnews/17/README.md)
+ ` 雅典娜GNotes`
+
+### [秘翻在线: 中共反对美国将台湾纳入印太战略](/content/gnews/18/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [七哥金句：谷爱凌事件的影响](/content/gnews/19/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥金句：把你的财富和智慧用在当下](/content/gnews/20/README.md)
+ ` 雅典娜GNotes`
+
+### [中国人的善忘是灾难根源](/content/gnews/21/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [中共国在美俄间走钢丝? 传微妙应对乌克兰问题](/content/gnews/22/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [德国暂停俄天然气管道验收 抗议其分裂乌克兰行为](/content/gnews/23/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [乌克兰总统表示 他正在考虑与俄罗斯断交](/content/gnews/24/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [文贵视角：普习大密谋，世界要大变](/content/gnews/25/README.md)
+ ` 秘密翻译组-原创组`
+
+### [乌克兰当前局势下台湾人是否担心北京武力攻台？](/content/gnews/26/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [前辉瑞副总裁讲解疫苗如何危害女性生育](/content/gnews/27/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [疫苗灾难何时休 日本将着手生产冻干粉疫苗](/content/gnews/28/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [一起银行泄密事件，瑞信为世界“恶棍”打理资产](/content/gnews/29/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [五月花简报（02/22/2022）](/content/gnews/30/README.md)
+ ` mayflowertranslate`
+
+### [瑞士信贷银行洗黑钱的证据被曝光](/content/gnews/31/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中共国的教育和信仰背景下，真话是他的毒药](/content/gnews/32/README.md)
+ ` MG FARM`
+
+### [希腊三月开始给未接种者准备了新款疫苗](/content/gnews/33/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [战术战略的重要性](/content/gnews/34/README.md)
+ ` MG FARM`
+
+### [新中国联邦积极筹建国家教育体系](/content/gnews/35/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [中共国暂时拘留日本驻华大使馆官员 外相表示“坚决不能接受”](/content/gnews/36/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [新西兰财经G乐部2022年2月22日:财经新闻整理](/content/gnews/37/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [NFSC新闻、G|TV新闻访谈简报|2022年2月22日早](/content/gnews/37/README.md)
+### [NFSC新闻、G|TV新闻访谈简报|2022年2月22日早](/content/gnews/38/README.md)
  ` 纽约香草山MOS01`
 
-### [港府效仿中共“清零”政策，预实施人人强制检测](/content/gnews/38/README.md)
+### [港府效仿中共“清零”政策，预实施人人强制检测](/content/gnews/39/README.md)
  ` NFSC News`
-
-### [房地产泡沫又要来了？](/content/gnews/39/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
 
 ### [香港大学研究表明 男性确诊中共病毒可致睪丸受损](/content/gnews/40/README.md)
  ` NFSC News`

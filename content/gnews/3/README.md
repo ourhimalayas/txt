@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：沟通是一种表态
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2050070/)
+## 七哥金句：看透生命的秘密
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2050088/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句4-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句S3.jpg)
 整理：雅典娜农场
 发布：枫叶红了
 
