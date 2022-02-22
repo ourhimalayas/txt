@@ -2,13 +2,17 @@
 ---
 
 
-## 七哥金句：中共太高看自己
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2045108/)
+## 20220220文贵大直播：中共统治就六字三词 蔓延全球
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2045135/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句6-1-3-scaled.jpg)
-整理：雅典娜农场
-发布：枫叶红了
+作者:东京樱花团小视频组
 
+校对：东京樱花团小视频组
+
+编辑发布：东京樱花团小视频组
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

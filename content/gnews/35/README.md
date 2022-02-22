@@ -2,20 +2,28 @@
 ---
 
 
-## COVID-19 最新情报｜屡次被揭疫苗真相 苏格兰宣布停止公示与COVID-19疫苗有关的统计数据
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2044854/)
+## 以色列医生斥责特鲁多信口雌黄
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2044871/)
 
-**撰文｜疫情关注组 / 发布时间｜22/02/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屢次被揭疫苗真相-蘇格蘭宣布停止公示與COVID-19疫苗有關的統計數據.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：**[**https://gettr.com/post/pl6k0218bf**](https://gettr.com/post/pl6k0218bf)**)**
+加拿大温哥华杨帆农场 枫叶快讯
 
-苏格兰公共卫生部宣布将不再发布与接种 Covid-19 疫苗相关的死亡及住院信息，官方给出的理由是，避免这些数据被反疫苗人士“滥用”。当局认为，应将注意力集中于发布更复杂的数据，以促进疫苗有效性的理念推广。
+采编：青青         编译撰稿：苦尽甜来 (文來）
+![](https://static.tnc.news/media/2022/02/website-jtisrael-696x365.jpg)图片来源：tnc.news
+据加拿大媒体【真北方】2月19日报道，数十名以色列医生和科学家近日联名公告，谴责总理特鲁多将参加自由车队的抗议者诬蔑为纳粹。
 
-一名苏格兰公共卫生部的官员坦言，做出这一决定的根本原因，是许多有心人，尤其是反疫苗人士，透过简单的数据分析，对疫苗的有效性作出推断性结论，令部分民众受到影响，开始抵制 Covid-19 疫苗，因此，他们不得不停止公布该国死亡人数的疫苗接种情况。
+报道称，该公告的许多签署者都是二战期间，德国纳粹对犹太人大屠杀幸存者的后裔，他们对特鲁多将加拿大反疫苗护照的卡车司机们称为纳粹表示强烈愤慨。
 
-**有评论认为，既然 Covid-19 疫苗对外宣称可防止染疫后重症及死亡的发生，并且这一理念，获得多国医学研究论文背书，称疫苗有效率高逾九成。那么****在这种情况下，根本毋需担忧数据被“滥用”，反而应该更大力的公布数据，以佐证疫苗有效性，因为“真的假不了”，除非反疫苗人士的推论正中靶心，毕竟****“假的也真不了”。**
+据悉，特鲁多此前在议会中公然妄言称，支持自由车队和平集会的保守党议员梅丽莎与挥舞纳粹标志的人站在一起。而该议员是纳粹大屠杀犹太人幸存者的后裔。
 
-來源｜[NewsPunch](https://newspunch.com/scotland-stops-publishing-covid-vaccine-death-statistics-blames-anti-vaxxers-for-raising-alarm/)
+目前，抗议行动已进入第30天，渥太华警方继续执行大规模逮捕行动，以试图清除市中心的和平集结。
+
+与此同时，下议院就特鲁多日前强施《紧急状态法》的辩论已重新开始，预计在2月21日将对该措施进行投票。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：青青
+
+新闻链接： [Israeli doctors scold Trudeau for comparing convoy protesters to Nazis | True North (tnc.news)](https://tnc.news/2022/02/19/israeli-doctors-scold-trudeau-for-comparing-convoy-protesters-to-nazis/)
 
  
 

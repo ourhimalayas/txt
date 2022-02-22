@@ -2,22 +2,28 @@
 ---
 
 
-## 特鲁多政府被世界经济论坛操控
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2045075/)
+## 紧急法案通过加拿大众议院投票
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2045123/)
 
-加拿大温哥华杨帆农场 枫叶快讯
+2022-02-21
 
-采编/编辑撰稿： 文明(添草灭共)            校对编辑：硫酸羟氯喹64
-![](https://cdn.discordapp.com/attachments/759954055299858513/945517010056531998/unknown.png)Image Credit:FABRICE COFFRINI/AFP via Getty Images
-据美国媒体【信息战】2月19日报道，加拿大保守党议员科林当天表示，由于【世界经济论坛】创始人施瓦布已公开承认该国政府内阁的大部分成员已被该组织渗透，因此特鲁多应该公布这些成员名单。 报道称，科林议员的言论完全有视频可查证。总理特鲁多本人曾与【世界经济论坛】头目施瓦布多次会面，并被后者赞扬其对该组织的忠诚度高于对加拿大联邦政府。此外，自由党内阁多名成员都与该组织有公开的联系。例如，财政部长弗里兰就担任【世界经济论坛】董事会的管理成员。
+翻译：Alan
+![](https://assets.gnews.org/wp-content/uploads/2022/02/ZC83FZ4@1FDA55M1RK4J.png)图片来源：https://www.cbc.ca
+快讯：针对渥太华以及全加拿大卡车司机“非法”游行的紧急法案于美东时间今日晚上8点在众议院以185：151通过。联邦自由党和联邦新民主党支持这项紧急法案，而联邦保守党和魁人政团则持反对态度，绿党投下赞成票。
 
-有评论认为，自由党政府禁止公开讨论特鲁多与【世界经济论坛】之间存在明显利益冲突关系之举，是典型的中共式“独裁”。
+此举意味着特鲁多政权可以合法滥用权力打压和平抗议的加拿大国民，甚至可以让八九六四的惨案于渥太华重演。
 
-校对编辑：硫酸羟氯喹64
+综合CBC News报道
 
-发稿：青青
+新闻链接：[Emergencies Act passes crucial House of Commons vote with NDP support](https://www.cbc.ca/news/politics/trudeau-emergencies-act-vote-1.6359243)
 
-原文链接： [https://www.infowars.com/posts/video-canadian-mp-accused-of-spreading-disinformation-for-pointing-out-wefs-corrupt-influence-over-trudeaus-govt/](https://www.infowars.com/posts/video-canadian-mp-accused-of-spreading-disinformation-for-pointing-out-wefs-corrupt-influence-over-trudeaus-govt/)
+编辑：LILY
+发布：肥鯮
+
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+
 
  
 
