@@ -2,27 +2,22 @@
 ---
 
 
-## 今日盖特大V推荐 — 詹姆斯·奥基夫（James O&#8217;Keefe）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2050178/)
+## 渥太华临时警长：即使抗议者现在 &#8220;撤退回家&#8221;，他们也会被追捕并受到惩罚
+` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/2050399/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/99aqp47-80ct9-4.jpg)
-**盖特链接：[https://gettr.com/user/JamesOKeefeIII](https://gettr.com/user/JamesOKeefeIII)**
+#### 加拿大温哥华扬帆农场 视频组
 
-**詹姆斯·奥基夫自述：**
+素材：杰尼龟
+翻译：Kent
+字幕：杰尼龟
 
-卧底记者，真相工程和真相工程行动。 内幕人吗？ 电邮[\[email protected\]](/cdn-cgi/l/email-protection) 或通过 914-653-3110向我们发送加密信息
-![](https://assets.gnews.org/wp-content/uploads/2022/02/mkl.jpg)**图片来源：网络**
-**詹姆斯·奥基夫简介：**
+2022年2月19日，面对记者的提问，渥太华临时警长说：
 
-詹姆斯·爱德华·奥基夫三世（James Edward O’Keefe III，1984 年 6 月 28 日出生）是一位勇敢寻求真相的记者，“真相工程”（Project Veritas）的创始人，他于2011年创立了“真相工程”，通过暗访秘密记录的音频和视频，揭露政商丑闻，遭到邪恶势力和主流媒体的攻击，以至受到生命危险，不得不公开宣布：“我没有自杀倾向!”
+记者：如果抗议者现在撤退并回家，他们是否会在未来的道路上受到某种影响？你们是否会主动追捕那些被记录和拍摄下的仍在外面抗议的人？在抗议活动结束后，你有什么计划？
 
-编撰：洛杉矶盘古农场 —郭友(文苏)
-校审：洛杉矶盘古农场 — 心照
-发布：洛杉矶盘古农场 —彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+警长：谢谢这是个很好的问题，简单来说会，如果你参与了这次抗议活动，我们将主动查找你的身份并采取后续的经济制裁和刑事指控，绝对的，这项调查将持续数月之久，会从各个角度和层面去追查，从联邦财政层面，从省级许可层面，从刑法层面，从市级违反法庭命令、禁令层面，这将是一个复杂和耗时的调查，将会持续一段时期。我可以向你承诺调查将继续进行，我们将继续追责那么些‘侵占’了我们街道的人。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+编辑/发文：Kent
 
  
 

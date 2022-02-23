@@ -2,18 +2,39 @@
 ---
 
 
-## 国际｜英国公布首轮制裁名单 普京密友季姆琴科榜上有名 195亿资产即遭冻结
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2048315/)
+## 加国省长杰森肯尼挑战特鲁多紧急法案
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2049068/)
 
-**撰文/ 港台前线｜发布日期/ 22/02/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/英國公布首輪制裁名單-普京密友季姆琴科榜上有名-195億資產即遭凍結.jpg)
-**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
+作者：日本东京方舟农场—Miyali7768(文玉)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月19日消息，针对联邦自由党实施”紧急情况法”以结束卡车司机对渥太华市中心的封锁，阿尔伯塔省省长杰森·肯尼在接受Postmedia独家采访时表示，联邦政府使用加拿大最强大的法律，在目前情况下是不合理的过度扩张，违反正当程序和”侵犯”省级管辖权。并表示对此深感厌恶，将在下周初，向渥太华联邦法院提出法律挑战，以结束总理特鲁多的任意和高压行动。
 
-英国首相约翰逊如期在伦敦时间的22日中午（香港时间约下午8时30分）公布对俄罗斯发起的第一轮经济制裁名单，包括俄罗斯寡头季姆琴科在内，一共三人及五间俄罗斯银行榜上有名，届时，被制裁对象在英国的所有资产将遭到冻结，同时，还会被禁止入境英国。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide10-3.jpeg)
 
-据悉，季姆琴科是俄罗斯著名亿万富翁，亦是总统普京的亲密挚友，从事对能源、交通和基础设施的投资，预计是次季姆琴科遭到冻结的资产将高达195亿美元。
+另外，联邦司法部长大卫·拉梅蒂此前在CTV上暗示，联邦调查局正在考虑冻结任何用信用卡向车队捐赠者账户。
 
-来源｜[金融時報](https://www.ft.com/content/b787a27f-78f4-411e-9435-bb9e980c2a7f)
+肯尼认为，如果特鲁多派冻结其政治对手的财政得逞而逍遥法外，允许联邦政府利用《紧急情况法》来履行普通警察职能骚扰对手，超越并篡夺加拿大各省执法的属地管辖权，这将为未来树立一个危险的先例。
+
+肯尼代理律师将要求法官暂停使用该紧急法案。
+
+参考链接：
+1.[https://gettr.com/comment/cow1g04ffb](https://gettr.com/comment/cow1g04ffb)
+2. [https://edmontonsun.com/opinion/columnists/gunter-alberta-premier-jason-kenney%E3%80%82](https://edmontonsun.com/opinion/columnists/gunter-alberta-premier-jason-kenney%E3%80%82)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+
+总编：Zion文恩
+编辑：静言
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 
  
 

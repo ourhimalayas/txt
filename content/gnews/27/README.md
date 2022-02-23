@@ -2,24 +2,37 @@
 ---
 
 
-## 德国暂停俄天然气管道验收 抗议其分裂乌克兰行为
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2049931/)
+## 加密货币法案在巴西进入参议院投票阶段
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2050041/)
 
-撰稿：东京樱花团/盖特第一批注册
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片6-2.jpg)
-周四，德国总理肖尔茨宣布，由于乌克兰局势日益紧张，暂停验收北溪2号天然气管道。
+作者：香草山健身部-正道新闻
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+2022年2月22日，巴西经济事务委员会召开会议就“巴西加密货币规则的替代法案”展开讨论以确立加密货币在巴西日常使用的基本规则。
 
-北溪2号管道，连接俄罗斯和德国，从俄罗斯输送天然气。施工已经完成正在等待德国当局的验收。
+当天，有14名参议员参与委员会讨论，在没有任何异议的情况下，法案将提交给参议院、下议院进行投票。最终由总统**博索纳罗**签署，成为法律。
 
-肖尔茨宣布俄罗斯总统普京承认乌克兰东部亲俄地区的独立是一个“单方面的、不可理解的和不合理的”行动，并强调国际社会必须作出回应。 他说：“情况需要重新审视”，包括北溪2号的有效性。
+![](http://5b0988e595225.cdn.sohucs.com/images/20171118/152e1db21b164a6b97405b0da6a8d57c.jpeg)
 
-信息源：
+该法案不仅定义了虚拟资产并对其服务提供商进行了分类，而且规定了对违法行为进行处罚的量刑标准。那些通过加密货币犯罪的嫌疑人可能面临4—8年的监禁。参议员Irajá评论说，这个法案得到了巴西中央银行、CVM、联邦税务局和私营公司的支持。法案要求虚拟资产服务提供商必须配合政府打击犯罪组织，恐怖主义融资，防止洗钱，隐藏资产等犯罪活动。
 
-[ドイツ、ロシア天然ガス管の承認作業停止　ウクライナ情勢緊迫で](https://news.yahoo.co.jp/articles/0ff3ebbd743c2940def29af6f216aeeafc2afd42)
+其中一位参议员表示，该项目对巴西未来发展至关重要。如果该法案获得批准，巴西将成为拉丁美洲监管加密货币的最大国家，从而减少洗钱的可能性和投资者的风险。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+目前巴西中央银行正在研究巴西法币的数字版本（CBDC）。该项目旨在促进投资而非商业用途，预计将在今年下半年进行试点。
+
+[https://thecryptobasic.com/2022/02/22/brazil-committee-on-economic-affairs-takes-first-measure-toward-regulating-crypto/](https://thecryptobasic.com/2022/02/22/brazil-committee-on-economic-affairs-takes-first-measure-toward-regulating-crypto/)
+
+校对/发稿：菩提树
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-6.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

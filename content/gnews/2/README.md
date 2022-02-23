@@ -2,11 +2,13 @@
 ---
 
 
-## 中共将没有准生证家庭的孩子没收后，转卖给境外机构
-` HA-Multilingual澳喜农场多语组` [轉載自GNews](https://gnews.org/zh-hans/2050362/)
+## 日本新增中共病毒感染减少 重症患者却创新高
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2050477/)
 
-中共将没有准生证家庭的孩子没收后，转卖给境外机构，还不能追究它的责任
-
+![](https://assets.gnews.org/wp-content/uploads/2022/02/20220223-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

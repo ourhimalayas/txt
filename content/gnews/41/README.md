@@ -2,29 +2,27 @@
 ---
 
 
-## 加国省长杰森肯尼挑战特鲁多紧急法案
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2049068/)
+## 香港大学研究表明 男性确诊中共病毒可致睪丸受损
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2049101/)
 
-作者：日本东京方舟农场—Miyali7768(文玉)
+作者：纽约香草山教育部 Naughty(文行)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月19日消息，针对联邦自由党实施”紧急情况法”以结束卡车司机对渥太华市中心的封锁，阿尔伯塔省省长杰森·肯尼在接受Postmedia独家采访时表示，联邦政府使用加拿大最强大的法律，在目前情况下是不合理的过度扩张，违反正当程序和”侵犯”省级管辖权。并表示对此深感厌恶，将在下周初，向渥太华联邦法院提出法律挑战，以结束总理特鲁多的任意和高压行动。
+2月20日，一家英文媒体披露了香港大学微生物学系的一项最新研究结果，该研究用两组仓鼠进行中共病毒实验，结果表明，感染中共病毒的后遗症除了肺功能、记忆力等可能不及以往，雄性生育能力也有可能降低。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide10-3.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide11-6.jpeg)
 
-另外，联邦司法部长大卫·拉梅蒂此前在CTV上暗示，联邦调查局正在考虑冻结任何用信用卡向车队捐赠者账户。
+研究人员发现，中共病毒病毒可导致仓鼠睾丸组织退化。感染冠状病毒的仓鼠出现慢性不对称睾丸萎缩，睾丸的大小和重量减少。
 
-肯尼认为，如果特鲁多派冻结其政治对手的财政得逞而逍遥法外，允许联邦政府利用《紧急情况法》来履行普通警察职能骚扰对手，超越并篡夺加拿大各省执法的属地管辖权，这将为未来树立一个危险的先例。
+在受感染的仓鼠中还观察到产生精子细胞的曲细精管的精子数量减少、炎症、出血和坏死。
 
-肯尼代理律师将要求法官暂停使用该紧急法案。
+在以往关于中共病毒患者的的研究报告中，也提到过患者出现睾丸疼痛的情况，而在对死于中共病毒的男性患者进行的尸检中，也曾发现睾丸有炎症和细胞损伤。
 
-参考链接：
-1.[https://gettr.com/comment/cow1g04ffb](https://gettr.com/comment/cow1g04ffb)
-2. [https://edmontonsun.com/opinion/columnists/gunter-alberta-premier-jason-kenney%E3%80%82](https://edmontonsun.com/opinion/columnists/gunter-alberta-premier-jason-kenney%E3%80%82)
+参考链接：[Covid-19 damages male reproductive function and lowers fertility: HKU](https://www.thestandard.com.hk/breaking-news/section/4/187358/Covid-19-damages-male-reproductive-function-and-lowers-fertility:-HKU)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
 总编：Zion文恩
-编辑：静言
+编辑：飞虹
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**
