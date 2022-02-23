@@ -2,38 +2,22 @@
 ---
 
 
-## 昨天的香港，今天的加拿大
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2045459/)
+## 拜登宣布对乌克兰东部独立地区实施制裁
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2045514/)
 
-作者：纽约磐石农场—在远方
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-盖特2月21日消息，郭文贵先生早在2020年，对全世界所发出的警告，现在正在变成悲惨的现实。而昨天的香港，就是今天的加拿大。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-49.jpg)
-2020年11月7日，郭先生在视频中说，香港有无数年轻人被共产党强奸、轮奸、自杀和被消失，但全世界却在保持沉默。同时，他一再强调，这一切将会在美国发生。
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-21.png)图片来自网站
+21日，美国总统拜登在白宫宣布，对普京批准独立的乌克兰东部亲俄派控制地区实施制裁。
 
-同年5月23日的视频中，郭先生表示，如果全世界不放弃短视利益，并被几个利益集团绑架，而不能下决心消灭中国共产党的话，人类将面临着生存的灾难。全世界都会变成香港，不论是美国还是欧洲。而这一切，正在今天的加拿大发生。
+普京与乌克兰总统泽连斯基进行了电话交谈，强烈谴责了普京的决定，坚决支持乌克兰捍卫主权和领土完整。拜登还与法国总统马克龙和德国总理肖尔茨进行了电话会谈，讨论了接下来的措施，确认了相互间的合作。
 
-参考链接：
-1. [昨天的香港，今天的加拿大](https://gettr.com/post/pvs4h4f362（视频1时长1’26’’)
-2. [昨天的香港，今天的加拿大](https://gettr.com/post/pvis6r9050)
-3. [昨天的香港，今天的加拿大](https://gettr.com/post/pvlxc7eff7（视频2时长1’40’’)
-4. [昨天的香港，今天的加拿大](https://gettr.com/post/pvq1ca9c6b)
+据白宫称，拜登签署了一项总统令，禁止美国人在亲俄派控制的东部省份顿涅茨克和卢甘斯克进行新的投资、贸易和金融交易。美国官员21日告诉记者，更多追加制裁措施将在22日宣布。
 
-![This image has an empty alt attribute; its file name is calendar.png](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
+[信息源](https://www.jiji.com/jc/article?k=2022022200171&amp;g=int#:~:text=%E5%A4%A7-,%E6%9D%B1%E9%83%A8%E7%8B%AC%E7%AB%8B%E6%89%BF%E8%AA%8D%E3%81%A7%E5%88%B6%E8%A3%81%E7%99%BA%E5%8B%95%E3%80%80%E3%83%97%E)
 
-总编：DM
-编辑：DM
-校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
+*校对：东京樱花团/麗子
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
