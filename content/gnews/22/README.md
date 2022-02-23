@@ -2,56 +2,71 @@
 ---
 
 
-## 英国宣布周四起解除所有防疫限制
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2053586/)
+## 有声|欧元稳定币正在DeFi生态系统中占据一席之地
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2053598/)
 
-作者：首尔天池农场 – 追着曙光跑，香草山教育部 Naughty(文行)
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+随着美元继续贬值，欧元支持的稳定币在加密货币和去中心化金融 (DeFi) 生态系统中的地位越来越重要。就像Tether（USDT）美元稳定币的小兄弟，我们今天聊聊Statis 的欧元稳定币 EURS 。
 
+**欧元稳定币在DeFi生态系统中的作用仍然很小**
 
+稳定币在加密货币世界中是众所周知的。这些[稳定的代币，](https://cryptoast-fr.translate.goog/stable-coin-crypto/?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN)其中大部分跟随[美元的价格](https://cryptoast-fr.translate.goog/fiche-tether-usdt/?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN)，提供了对市场波动的保护。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+仅该行业中最大的三个（USDT、USDC 和 DAI）就代表了 450 亿美元的市值。这一令人印象深刻的数字，在最近几个月仍在不断增加。但这些美元稳定币并不是市场上唯一的。
 
+几个月来，以欧元为后盾的稳定币不断出现：Stasis Euro (EURS) 和 sEUR的总市值为 7600 万欧元。与他们的大兄弟美元稳定币相比，这个数字要低得多，但每天都在增长。
 
+**两种代币垄断市场**
 
-英国首相约翰逊，当地时间21日公布「与中共病毒共存」计划，宣布周四起解除英格兰地区的剩余防疫措施，包括不再要求确诊者自我隔离，出入公共场所无需出示疫苗接种证明等等。
+让我们从介绍开始。两个最大的欧元稳定币是 EURS 和 sEUR。他们的价格稳定系统完全不同。sEUR 是[Synthetix](https://translate.google.com/website?sl=auto&amp;tl=zh-cn&amp;hl=zh-CN&amp;u=https://synthetix.io/)平台的欧元稳定币。它的市值在柜台上显示为 3500 万欧元。其操作类似于 Synthetix 平台上的所有资产；它是一种所谓的合成资产，其价格由协议的超额抵押担保，并且由于[Chainlink](https://cryptoast-fr.translate.goog/fiche-chainlink/?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN)的预言机，其价格跟随欧元的价格。
 
-另外，有关追踪确诊病人的密切接触者也将于周四起停止，届时，若密切接触者已完全接种疫苗，将不再需要连续七天进行检测，同时，自4月1日起，当局将不再向民众提供免费的病毒检测服务。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-13.jpg)
-约翰逊早前在国会表示，防疫限制对社会、经济以及民众的心理健康构成很大打击，鉴于中共病毒疫情不会在短时间内消失，继续实施限制是不正确，也是不必要的，因此，政府将鼓励民众自我约束，即使出现染疫症状，也要像对待流行性感冒一样冷静应对。
+另一个代币 EURS的资本化为 4100 万欧元，其中包括自 1 月 1 日以来的额外 2000 万欧元。其操作类似于USDT或USDC；市场上发行的每一欧元都由银行中的真实欧元担保。在这种情况下，是[Stasis](https://translate.google.com/website?sl=auto&amp;tl=zh-cn&amp;hl=zh-CN&amp;u=https://stasis.net/)公司的。因此，这为任何 EURS 持有人提供了用公司的代币收回真实欧元的可能性。并且在任何时候。
 
-在野工党领袖施纪贤批评约翰逊的做法是极度不负责任的，当地医学组织也指出，与病毒共存不等于无视病毒，取消免费病毒检测将令政府无从监察疫情动向，也难以实现民众自我约束，这样只会带来更多不利风险及社会焦虑。
+“每个代币都以 1:1 的比例与公司储备账户中持有的欧元挂钩。STASIS 的大部分储备都由持牌经纪人持有，这比使用商业银行更安全，因为这些账户是隔离的，”其首席执行官 Gregory Klumov 说。
 
-对此，郭文贵先生则有不同见解，在早前的直播中，郭先生认为，现在各国政府解除防疫限制的根本原因，无非是经济压力、政治压力以及即将爆发的疫苗灾难。
+那么持有欧元稳定币有什么意义呢？已经，就像美元稳定币一样，将您的交易收入转换为 sEUR 或 EURS 实际上不会[产生税收。](https://cryptoast-fr.translate.goog/fiscalite-crypto-2019/?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN)这使您可以确保您的收入，而无需在资产负债表中添加一行。
 
-视频链接：[2/18/2022 文贵直播: 欧美政府已经默认让奥米炕病毒集体感染民众，现在解除各种限制是因为经济和政治撑不住了；疫苗灾难造成的大规模死亡在5月份才会开始，请务必继续做好防疫措施](https://gettr.com/post/pvmifj8a40)
+**额外的多元化**
 
-参考链接：
-1. [俄承認烏東2共和國 美法英等要求安理會緊急會商](https://www.cna.com.tw/news/aopl/202202220023.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-2. [《早安世界》俄羅斯承認烏克蘭東部2共和國獨立 軍隊進駐](https://www.cna.com.tw/news/ahel/202202225001.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share%E3%80%81https://www.reuters.com/world/uk/uks-johnson-set-scrap-covid-restrictions-2022-02-20/)
+欧元稳定币也是多元化的机会。如果说自健康危机开始以来美国的货币政策似乎对其货币产生了重大影响，那么欧元似乎更具弹性。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+因此，许多欧洲人使用这些稳定的代币，以免它们的收益在几个月内减少（自 3 月危机开始以来，美元已经贬值了 10% 以上）。该资产也更容易进入越来越多地进入加密市场的公司和机构的资产负债表。
 
-总编/编辑：天滅中共
-校对/发稿：为真不破20
+Stasis 的 CEO 证实了多元化的趋势：
+
+“我们的大多数客户都在欧盟地区，并且在他们的资产负债表上更喜欢这种货币。但是，我们拥有多元化的投资者基础，其中包括机构。由于美元支持的稳定币在市场上占据主导地位，因此欧洲人/亚洲人经常被迫做出不受欢迎的货币选择，而链上对冲的选择很少。我们寻求挑战美元在全球金融市场的主导地位。”
+
+**DeFi 协议越来越多地接受欧元稳定币**
+
+面对后者的热潮，接受这种新稳定币的去中心化金融协议正在增加。
+
+旗舰 DeFi 交易所  [Curve](https://cryptoast-fr.translate.goog/curve-finance-depasse-uniswap-valeur-totale-verouillee/?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN)今年早些时候在其网站上显着增加了 EUR/sEUR 池，流动性提供者拥有 40% 的 CRV 和 SNX 权益。仅该池就汇集了 7000 万美元，或几乎所有的流通供应。
+
+欧元稳定币的出现也是向 DeFi 输出外汇的机会。这尤其是 Synthetix 提供的 sEUR 或 Jarvis 以及 jEUR。
+
+“欧洲中央银行鼓励私营公司启动稳定币项目计划。我们参加了欧洲央行在去年底发起的调查。随着加密货币市场的持续增长和它的高度普及（德意志银行预测到 2030 年数字资产将超过法定货币），它很有可能在不久的将来成为领先的基于现金的解决方案之一。” 格雷戈里·克鲁莫夫强调。
+
+确实，稳定币是进入加密货币世界的一个越来越重要的门户。因此，欧元在那里找到一席之地是正常和受欢迎的。但这一进展目前受到[以太坊区块链成本的阻碍。](https://cryptoast-fr.translate.goog/frais-transaction-ethereum-finissent-plus-grimper/?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN)
+
+“在 2021 年，最大的实验将是结算迁移到更便宜的区块链以离开以太坊。目前有几种区块链解决方案在竞争这项服务——例如 Algorand、Solana、Polkadot 和其他一些以太坊第二层扩展解决方案来解决这个问题。今年该领域的另一个趋势是稳定币空间从美元到其他货币的差异化。欧元显然是第二个候选者，但其他新兴市场货币也将尝试增加其市场份额”，Gregory Klumov 分析道。
+
+[因此，在MNBC（中央银行数字货币）](https://cryptoast-fr.translate.goog/euro-numerique-banque-centrale-banques-commerciales/?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN)到来之前，稳定币有着光明的未来。即使这些的到来可能也不会摧毁我们亲爱的稳定币。
+
+文字版原文：[欧元稳定币正在DeFi生态系统中占据一席之地](https://gnews.org/zh-hans/2045283/)
+
+音频处理：Fei797
+发稿：Fei797
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
 
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

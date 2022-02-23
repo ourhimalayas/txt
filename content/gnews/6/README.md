@@ -2,26 +2,25 @@
 ---
 
 
-## 习近平用金钱给予普京精神安慰
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2053764/)
+## 有声|台湾近日急症突增 三日猝死超百人
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2053770/)
 
-作者：纽约磐石农场—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生也在2月20日的大直播中揭秘了习近平对普京的金钱拉拢。
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+当地媒体2月21日报道，据全台各县市消防局的资料显示，台湾近两日急病救护事件竟累积达到了628起、猝死则高达101人，至于死因需要进一步了解相关信息。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide2-9.jpeg)
+报道称，自19日至21日午间，台湾各地的急症救护案件累积超过600起，猝死及到院无呼吸心跳患者高达101人，40-60岁年龄段的猝死患者则占到了整体死亡人数的将近一半，而其中年纪最小的一位男性死者仅有35岁。
 
-郭先生指出，财富的自由和体验是人生价值的重点，但中国劳动人民的血汗钱却全部被中共榨干了。因此，在中共国，钱只能被称做精神安慰剂。
+目前，台湾地区完整接种毒疫苗人数已经超过了总人数的3/4，第三剂接种人数也已超过1/3。
 
-至于普京，其作为世界第二大军事强国的总统，而今却因被西方社会冷落而倍感孤独。此时，习近平用剥削中国人民所得到的一万亿美元充当了普京的精神安慰剂。两人随即一拍即合，中共放出病毒打垮世界经济，俄罗斯则用石油和天然气控制欧洲，他们的最终目的即为普京计划称霸欧洲，习近平图谋统治亚洲。
+此前，郭文贵先生爆料，中共毒疫苗灾难将导致全球猝死人数在冬春季开始激增，“随地倒”现象将在疫苗接种率较高的地区频繁出现。同时，与普通高龄猝死患者所不同的是，毒疫苗引发的猝死人群将主要集中在中青年群体。
 
-参考链接：[https://www.gettr.com/post/pw3okc2a90](https://www.gettr.com/post/pw3okc2a90)
+文字版原文：[台湾近日急症突增 三日猝死超百人](https://gnews.org/zh-hans/2045985/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+音频处理：Fei797
+发稿：Fei797
 
-总编：Irene木木
-编辑：谐趣园
-校正/发稿：谐趣园
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
