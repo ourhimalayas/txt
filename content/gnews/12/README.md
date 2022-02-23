@@ -2,20 +2,25 @@
 ---
 
 
-## 日本岩国美军基地连续5天19人染疫
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2052536/)
+## 川普称赞普京为“天才” 因其承认亲俄地区独立
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2052557/)
 
-撰稿：东京樱花团/盖特第一批注册
+**翻译:zicoround**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip川普称赞普京为天才-因其承认亲俄地区独立.png)图片来源：news.yahoo.co.jp
+根据《华盛顿邮报》报道，美国前总统唐纳德・川普在一个美国广播节目中称赞俄罗斯总统普京承认乌克兰东部亲俄地区的独立是 “天才的”。 他还说，向该地区部署的俄罗斯军队 “将成为世界上最强的维和部队。 “
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/日本岩国美军基地连续5天19人染疫.jpg)图片来源于网络
+川普说普京是以攻入乌克兰维持和平，还指出普京 “是个很精明的人”。 他认为，如果他是美国总统，入侵行动就 “不会发生”。美国白宫发言人莎琪在周三的记者发布会上对此表示切割：”我们不会听取那些赞扬普京及其军事战略的人的意见”。
 
-位于日本岩国的美军空军基地23日宣布，在2月18日至22日的五天时间里，有19名基地人员感染了中共病毒。
+**新闻来源**：[news.yahoo.co.jp][トランプ氏、プーチン大統領称賛　親ロ派地域の独立承認「天才的」（共同通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/87117d86d5df57284f2a31146fb181ed9fc461a2)
 
-信息源：[【速報】米軍岩国基地で19人感染、18～22日合計　新型コロナ（中国新聞デジタル） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/9daf53b2470a25bc9064dd002de28bfd403832c9)
+* * *
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+***审核:zicoround
+校对:宫米叶
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-3.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

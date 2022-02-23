@@ -2,24 +2,29 @@
 ---
 
 
-## 中日财经爆┃俄乌危机加剧 虚拟币全面下跌
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2052542/)
+## 德国电视二台老将哈恩要求：新冠政策必须被判决！
+` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2052561/)
 
-撰稿：东京樱花团｜麗子
-![](https://lh3.googleusercontent.com/Etr5iihxxwuZaz8VdfmA7pdXoqGPGGarZpyi0ts-Q-AKPIF_rOfKLbj_paYzci645HjpD1SAZZm0vR-6eDlkgjOH6Y8RfQuAQuAhOjeeNUpIf72unkb-pV_EOPp6FsZR73B6YMbg)[*图片来源*](https://forbesjapan.com/articles/detail/45035)
-据CoinDesk数据显示，受乌克兰紧张局势影响，加密资产价格继续全面下跌，其中比特币在24小时内下跌了6.5%，22日跌至36,649美元。比特币在上周末跌破40000美元，此后持续下跌。
+**在接受 reitschuster.de 采访时给政府无情的算了一笔账**
 
-在去年11月创下68,990美元的高点后，在地缘政治紧张局势、美国加息和全球经济衰退等因素影响下，再加上主要国家对加密资产的监管，比特币价格已经下降了近一半。
+作者：br
 
-以太坊在过去24小时内也下跌了8%以上，跌至2520美元。
+翻译：JX/校对: 蔚蓝的天
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Bildschirmfoto-2022-02-21-um-00.23.11.png)图片：Mario Martin
+前德国电视二台（ZDF）记者彼得·哈恩（Peter Hahne）认为 “新冠叙事”是失败的（“游戏结束了”）。“没有一个宗教像新冠意识形态那样成功，让人们那么相信，“哈恩说。他要求进行司法复审：“我希望看到那些过去两年对新冠政策的有关负责人，至少被政治调查委员会，最好是通过法院程序明确起诉他们的责任。他们必须去面对。我要求对此作出非常明确的司法解释，关于在过去的两年里发生的事情，谁应该负责。并且无论是谁对此负责的，都必须追究责任人的责任。”
 
-专家表示，在可预见的未来，受乌克兰局势影响，比特币价格将继续波动。世界局势风云变幻，各种虚拟币跌跌不休，问风景哪边独好，唯[**喜币**](https://himalaya.exchange/)稳如泰山。
+哈恩进一步要求为那些“两年来一直在说真话的人”，那些来自学术界、新闻界和政界的人恢复名誉。还必须确保 “在气候问题上不会再次出现同样的痛苦，人们只听从宫廷理论家、宫廷的气候研究者、这些灾难者，目前的政府仍在把他们带入各部委”
 
-信息来源：[**ビットコイン続落、２４時間で６．５％安　ウクライナ緊迫で**](https://news.yahoo.co.jp/articles/fb32cd3135b1681c6e4db8b45f07d659f4ebb210)
+“政客和首都记者的平行社会不再对普通人、对每一分钱都很重要的公民有任何感情”，前 ZDF 记者彼得·哈恩痛惜道：“他们现在都被这所谓人为的全球变暖所折磨。”
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+哈恩还谈到了我在联邦新闻发布会上的角色。哈恩认为，如果他们尝试认真回答我的问题，并进行交流，我们就会免于很多痛苦。
+
+你可以一如既往地在没有审查的互联网上，而不是在审查平台上– 在我对哈恩的采访中，听到更多关于这个和其他话题的信息。
+
+原文链接：[https://reitschuster.de/post/zdf-urgestein-hahne-fordert-corona-politik-muss-vor-gericht/](https://reitschuster.de/post/zdf-urgestein-hahne-fordert-corona-politik-muss-vor-gericht/)
+
+发布：Luckycky
+![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

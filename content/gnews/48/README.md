@@ -2,32 +2,34 @@
 ---
 
 
-## 中日财经爆|金价触及九个月来高位 铂金类也大幅上涨
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2051004/)
+## NBC北京冬奥会转播收视率堪称“灾难”
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2051013/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片5-3.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.businessamlive.com%2Fwp-content%2Fuploads%2F2020%2F07%2Fgold-gain.jpg&amp;imgrefurl=https%3A%2F%2Fwww.businessamlive.com%2Fgold-heads-for-sixth-weekly-gain%2F&amp;tbnid=WtCzC_EEcLdpaM&amp;vet=12ahUKEwid49Gq_ZT2)
-金价周二（2月22日)触及近九个月来最高水平，但随后回落，投资者等待乌克兰危机进展，他们重新将金价定位在每盎司1,900美元的关键关口附近。
+作者：纽约香草山 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月21日，据外媒报道，拥有美国地区独家转播权的全国广播公司NBC，在北京冬奥会超低迷的收视率数据上，沦为一场彻底的 “灾难”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-22-下午11.32.43.png)
+NBC在2014年投资了77.5亿美元，获得了奥运会到2032年为止的独家美国媒体转播权。截至上周二，平均有1220万人在黄金时段观看了NBC、有线电视或其流媒体服务的奥运会，比2018年韩国首尔冬奥会下降了42%。NBC有1000万观众，比2018年下降了47%，在关键的25-54岁人群中，比首尔奥运会时下降了57%。这甚至还包括了NBC在2月13日播出奥运会后直接播出超级碗的收视率，而获得的一定提升。
 
-1906 GMT，现货金下跌0.2%，报每盎司1,902.71美元，此前触及6月1日以来最高1,913.89美元。美国黄金期货上涨0.4%，至1,907.40美元。
+观众的大幅流失让NBC感到震惊，不得不承认这届奥运会因严苛的中共病毒限制措施、多国外交抵制的政治紧张气氛，还有对参与者谴责人权暴行的言论施压而被载入史册。
 
-现货银上涨1.1%，至每盎司24.19美元，此前触及一个月高位24.35美元。
+分析人士称，北京冬奥会因中共政府践踏人权，犯下种族灭绝罪、反人类罪，而被观众厌恶，抵制观看。NBC标榜其为自由媒体，却屡屡其新闻语言进行伪装，通过引用中共国粉饰其罪行的言辞，为中共独裁的本质站台背书，这种“双标”手法，终于导致收视率滑坡，堪称因果报应。
 
-“鉴于与(主要生产国)俄罗斯的紧张关系加剧，有理由担心铂金类金属的供应链，” 投资管理公司High Ridge的Meger表示。
+参考链接：[NBC’s Beijing Olympic ratings called a ‘disaster’ for network: ‘I’m stunned … There is karma in the world’](https://www.foxnews.com/media/nbc-beijing-olympic-ratings-disaster)
 
-钯金跌0.8%，报2,368.84美元，稍早曾触及1月31日以来最高，报2,433美元。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-铂金上涨0.1%，报1,075.09美元。
+总编：Zion文恩
+编辑：Zion文恩
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-知情人士表示，如果俄罗斯进一步入侵乌克兰，美国政府可能会阻止俄罗斯获得大量低科技和高科技的美国和外国制造产品，涉及从商业电子产品和电脑到半导体和飞机零部件等一系列产品。
-
-消息来源:
-
-[金价触及九个月高位后回落 投资者关注乌克兰局势发展](https://cn.reuters.com/article/global-precious-metals-0222-tues-idCNKBS2KS009?il=0)
-
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,41 +2,37 @@
 ---
 
 
-## 英国取消所有的新冠病毒限制
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2052212/)
+## 短视频：探讨元宇宙和加密货币的未来
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2052257/)
 
-[![](https://express.adobe.com/page/meThKFieGGTuh/images/1a67a256-f184-44f5-917c-caaed74e6c29.png?asset_id=a44750bd-6101-42ab-b071-07912f4c4a01&amp;img_etag=%22b5587e9f763e00aae3c67eb39942547b%22&amp;size=2560)](https://express.adobe.com/page/meThKFieGGTuh/images/1a67a256-f184-44f5-917c-caaed74e6c29.png?asset_id=a44750bd-6101-42ab-b071-07912f4c4a01&amp;img_etag=%22b5587e9f763e00aae3c67eb39942547b%22&amp;size=1024)
-**简评：**
+翻译：不要代表我
+校对：枳实
+字幕：qingjing
+编辑：文泓
 
-由于政府无法继续负担经济成本和个人自由的损失，英国首相约翰逊宣布将取消国内所有的新冠病毒的法律限制，不再要求完全接种者、密切接触者和18岁以下的人进行为期七天的每日检测。约翰逊表示，新冠病毒不会马上消失，如果想等疫情完全结束再取消限制，英国人民将会被长期限制自由。英国解禁了，其他国家还要多久呢？
-
-[**GETTR视频链接**](https://gettr.com/post/pw4v708e1d)
-
-[**GTV视频链接**](https://gtv.org/video/id=6214ef3d1408ee3a03a36fce)
-
-**视频字幕：**
-
-**英国首相鲍里斯.约翰逊**：我们将取消所有国内现有的（新冠病毒）的法律限制。
-
-**画外音**：周一英国首相鲍里斯.约翰逊表示，他将取消英国的所有新冠病毒限制。
-
-**约翰逊**：我们将结束常规的接触追踪，不再要求完全接种者、密切接触者和18岁以下的人进行为期七天的每日检测。
-
-**画外音**：约翰逊终止健康限制的举措引起了一些科学家和政治反对派的怀疑。他们警告说，此举为时过早，将使国家容易受到新的病毒变种的影响。
-
-**约翰逊**：议长先生，新冠病毒不会马上消失，所以那些想等这场疫情完全消失才取消限制的人，将在未来很长一段时间限制英国人民的自由。
-
-**画外音**：首相说，由于经济成本和个人自由的损失太大，政府已无力再继续负担。取消现有的法律限制是约翰逊所在的保守党许多议员的首要任务。他们对其丑闻缠身、领导能力的不满已经威胁到他对权力的掌控。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image01.png)图片来源：视频截屏
 
 
-*编辑：【英国伦敦喜庄园编辑部】*
+图片来源：视频截屏
 
-*字幕：雨中漫步* *| 听写：云岭 | 翻译：Blue* *| PR：Roberts* *|简评/文字整理/编辑：胖丁 | Page：我是球大哥*
-[![](https://express.adobe.com/page/meThKFieGGTuh/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://express.adobe.com/page/meThKFieGGTuh/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
+正是这个广告，由拉里·戴维主演的FTX（全球领先数字资产衍生品交易平台）与其他三个加密货币公司的广告在昨晚的超级碗期间（播放），让观众称其为“加密货币碗”。Etoro、crypto.com和coin base分别购买了650万美元至1300万美元的广告位。
+
+在Crypto.com的超级碗广告中，年轻的勒布朗·詹姆斯（LeBron James）和年老的自己进行交谈。
+
+因此，这基本上超出了推动品牌意识的范围，让我们提出了一个问题，这些广告能否移动美国证券交易委员会的门柱，以最终批准灰度比特币信托基金转换为现货ETF？灰度——最大的加密货币资产管理公司正在等待美国证券交易委员会批准其现货比特币ETF的准入，它在本月早些时候刚刚成功推出其未来金融ETF。其最大的持股者包括Coinbase、PayPal、Robin Hood和bitfarms。
+
+下面是《福克斯财经》的独家报道，灰度的EFT的全球主管Dave Lavelle，Dave，请简明扼要的说明一下昨晚发生了什么？以及对数字货币世界的关注度如何，对比特币的未来接受度可能意味着什么？
+
+视频链接：[Super Bowl nicknamed the ‘Crypto Bowl’ after four crypto ads | On Air Videos | Fox Business](https://video.foxbusiness.com/v/6297503422001#sp=show-clips)
+
+发布：文泓
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
