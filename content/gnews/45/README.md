@@ -2,24 +2,23 @@
 ---
 
 
-## 中日财经爆|加拿大宣布对俄罗斯实施经济制裁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2051093/)
+## 中共官媒泄密：对俄不利消息不发
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2051122/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片11.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fimage.shutterstock.com%2Fz%2Fstock-photo-map-of-russia-canada-sanctions-against-russia-judge-hammer-canada-flag-and-emblem-d-667017838.jpg&amp;imgrefurl=https%3A%2F%2Fwww.shutterstock.com%2Fimage-illustrati)
-加拿大总理特鲁多2月22日在莫斯科承认乌克兰分离主义地区顿涅茨克和卢甘斯克为独立国家的第二天，宣布对俄罗斯实施第一轮经济制裁。
+**By:秘翻新闻**
 
-特鲁多说，他的政府将禁止加拿大人与所谓的“独立国家”卢甘斯克和顿涅茨克进行所有金融交易。还将禁止加拿大人参与购买俄罗斯主权债。
+**2022-02-23**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-14.jpg)图片源自:网络
+综合消息2月22日报道，乌克兰与俄罗斯紧张情势升高之际，亲俄的中共国也被外媒认为将会支援俄罗斯。中共国官媒《新京报》旗下国际频道《世面》，在22日的官方微博上贴文说：“即刻起，乌克兰相关发微博，都用世面首发，大号再发，推世面，对俄不利、亲西方的不发。首发前给我看文案。”还强调要对网友评论进行“精选控制”，只能释放出“合适的评论”，提醒每则新闻至少要盯2天，“要求谁发布谁负责”。
 
-加拿大政府将制裁那些投票赞成承认顿涅茨克和卢甘斯克独立决定的俄罗斯议会成员。加拿大将对两家国家支持的俄罗斯银行实施额外制裁，并阻止与它们进行任何金融交易。
+该内容疑是《世面》小编不慎将上级指令当文稿发布到微博，经查，目前《世面》官方微博已经看不到该则内容，最新发文则停留在2月14日。
 
-消息来源:
+( 秘翻新闻StevenZ编辑报道 )
 
-[加拿大宣布因乌克兰危机对俄罗斯实施第一轮经济制裁](https://cn.reuters.com/article/canada-trudeau-russia-sanction-0223-idCNKBS2KS03Z?il=0)
+发布:星星
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMAGE-2022-02-19-171240.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

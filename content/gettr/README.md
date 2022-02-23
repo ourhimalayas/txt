@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/23/2022 1:00 PM (UTC)`
+
+2022年2月23日 文贵大直播：普京群狼战术夺乌克兰；解封 英 澳 法 日 集体免疫；锁链女引人权安全恐慌；七哥何以掌握世界大事
+![img](https://media.gettr.com/group26/origin/2022/02/23/12/89d5992c-9c7f-6925-e10b-acc8e5c805fe/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 2/22/2022 11:44 PM (UTC)`
 
 2月22号：这美女美乐美滋滋的人生……棒极了👏👏👏👏👏来来来……来来来来！
@@ -152,13 +159,6 @@ New Release ✨                                              Shop Now at www.gfa
 
 2月21日：尊敬的战友们好中共国的化肥．农产品．以及粮食都在大涨价，这是为什么呢？所谓的最成功的北京冬奥会开完以后……中国人的生活有什么改变呢？世界形势巨变，为什么中国人又成了牺牲品呢？
 ![img](https://media.gettr.com/group46/getter/2022/02/21/14/9dbf241f-c2a8-fe5a-6289-b997be110062/out.jpg)
-
----
-
-`@miles 2/21/2022 10:23 AM (UTC)`
-
-2/20/2022 Miles Guo: Xi and Putin have joined forces to play their “hooligan politics”. Their ultimate goal is to destroy the US and Europe by taking over Ukraine and Taiwan. There is a shocking secret between Xi and Putin, who are intending to start a war and betting that the US will not dare to engage in it. The US needs to have a consistent long-term policy toward the CCP and Russia.<br/><br/>2/20/2022 文贵直播：习普联手上演痞子政治，最终目的是通过夺取乌克兰和台湾，干掉美国和欧洲；习普之间有惊天秘密，意图发动战争并赌美国不敢打；对中共国和俄罗斯，美国需要有长期一致的政策<br/>
-![img](https://media.gettr.com/group29/getter/2022/02/21/10/94862fac-92f2-cf79-49bc-90d9a7b34e9d/out.jpg)
 
 ---
 
