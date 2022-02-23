@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/23/2022 11:42 PM (UTC)`
+
+2/23/2022 Miles Guo: Putin has humiliated the West in an unprecedented way. After sending troops to Ukraine, Not only did Putin post on the Internet the secret agreement signed by the US, France and others promising Russia that NATO would not expand eastward, but he also recognized the independence of Donetsk and Luhansk as well.<br/><br/>2/23/2022 文贵直播：普京史无前例地羞辱了西方，派大军进入乌克兰后，普京把美法等国与之签署的保证北约不东扩的保密协议挂到了网上，并承认了顿涅茨克和卢甘斯克两地的独立<br/>
+![img](https://media.gettr.com/group34/getter/2022/02/23/23/b72194c2-6f5d-01cf-350e-098e47ea453f/out.jpg)
+
+---
+
 `@miles 2/23/2022 11:37 PM (UTC)`
 
 2/23/2022 Miles Guo: What kind of political game is behind the Western sanctions imposed on Russia? Sadly, the Chinese people will end up being the losers in this game. If the CCP is not taken down and its toxic ideologies are not eradicated, everyone will suffer the same fate as the chained woman! Chinese people, time to wake up!<br/><br/>2/23/2022 文贵直播：西方制裁俄罗斯的背后是一场什么样的政治游戏？可悲的是，最后的输家是中国人；若中共不灭，不除掉中共余毒，所有人都会变成锁链女！中国人，醒来吧！<br/>
@@ -150,13 +157,6 @@ New Release ✨                                              Shop Now at www.gfa
 
 2/20/2022 Miles Guo: Peng Liyuan (Xi Jinping’s wife) is in a bad shape. After the Winter Olympics, the CCP’s music industry and celebrity community will be changed drastically. The CCP does not allow the real estate to go bankrupt, nor is it allowed to report on the investigations into the singers and celebrities. The CCP’s financial sector will collapse, and the CCP’s Bouazizi incident in the financial sector will start from the music industry.<br/><br/>2/20/2022 文贵直播：彭丽媛状态非常不好；冬奥会后中共音乐界和演艺界将发生巨变；中共不准房地产破产、不许报道歌星和明星被查；中共金融会崩塌，金融布瓦吉吉事件会从音乐界开始<br/>
 ![img](https://media.gettr.com/group35/getter/2022/02/21/22/5b92156d-0864-11e3-7032-21240ca5f438/out.jpg)
-
----
-
-`@miles 2/21/2022 10:36 PM (UTC)`
-
-2/21/2022 Miles Guo’s GETTR: CCP officials are well-aware that CCP is doomed; The presidents of the US and Russia are going to have a talk. Will Putin abandon Xi and embrace the US and Europe?<br/><br/>2/21/2022 文贵盖特：中共体制内官员也知中共大势已去；俄美总统要会面，普京是否会弃习投美欧？
-![img](https://media.gettr.com/group18/getter/2022/02/21/22/0f552cb7-1d7a-6ff2-58c7-919ac68e0099/out.jpg)
 
 ---
 
