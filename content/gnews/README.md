@@ -15,95 +15,95 @@
 
 ---
 
-### [Gmall完全超出你想象](/content/gnews/1/README.md)
+### [学会放下](/content/gnews/1/README.md)
  ` MG FARM`
 
-### [文贵爆料 2.23：病毒+人毒，何处是我家](/content/gnews/2/README.md)
+### [GTV公告的时候吓死你们](/content/gnews/2/README.md)
+ ` MG FARM`
+
+### [要懂得如何投资](/content/gnews/3/README.md)
+ ` MG FARM`
+
+### [Gmall完全超出你想象](/content/gnews/4/README.md)
+ ` MG FARM`
+
+### [文贵爆料 2.23：病毒+人毒，何处是我家](/content/gnews/5/README.md)
  ` 秘密翻译组-原创组`
 
-### [七哥的破产律师是全美国第一大](/content/gnews/3/README.md)
+### [七哥的破产律师是全美国第一大](/content/gnews/6/README.md)
  ` MG FARM`
 
-### [美国的传奇故事当中一定有一篇曾经破过产](/content/gnews/4/README.md)
+### [美国的传奇故事当中一定有一篇曾经破过产](/content/gnews/7/README.md)
  ` MG FARM`
 
-### [有声|灭共路上战友们当争做爆料革命的盖特大V](/content/gnews/5/README.md)
+### [有声|灭共路上战友们当争做爆料革命的盖特大V](/content/gnews/8/README.md)
  ` MOSREC`
 
-### [以法灭共](/content/gnews/6/README.md)
+### [以法灭共](/content/gnews/9/README.md)
  ` MG FARM`
 
-### [有声|全球疫情、新加坡和中共都走到了十字路口](/content/gnews/7/README.md)
+### [有声|全球疫情、新加坡和中共都走到了十字路口](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [全世界人民团结起来，抵抗暴政，还我自由！](/content/gnews/8/README.md)
+### [全世界人民团结起来，抵抗暴政，还我自由！](/content/gnews/11/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [有声|达沃斯党利用科学主义危害人类](/content/gnews/9/README.md)
+### [有声|达沃斯党利用科学主义危害人类](/content/gnews/12/README.md)
  ` MOSREC`
 
-### [2022年2月23日文贵先生直播摘要及音频—银河系农场](/content/gnews/10/README.md)
+### [2022年2月23日文贵先生直播摘要及音频—银河系农场](/content/gnews/13/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [日本岸田首相宣布制裁俄罗斯](/content/gnews/11/README.md)
+### [日本岸田首相宣布制裁俄罗斯](/content/gnews/14/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [有声|中共打脸“奥运不谈政治”谎言 遭国际谴责](/content/gnews/12/README.md)
+### [有声|中共打脸“奥运不谈政治”谎言 遭国际谴责](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [欧盟宣布在资产冻结和旅行禁令等方面制裁俄罗斯](/content/gnews/13/README.md)
+### [欧盟宣布在资产冻结和旅行禁令等方面制裁俄罗斯](/content/gnews/16/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [在普京承认乌克兰分离地区后，华盛顿宣布制裁](/content/gnews/14/README.md)
+### [在普京承认乌克兰分离地区后，华盛顿宣布制裁](/content/gnews/17/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2022年2月23日，全球中共病毒疫情情况汇总](/content/gnews/15/README.md)
+### [2022年2月23日，全球中共病毒疫情情况汇总](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|中共国95后设计师猝死 每日工作超12小时](/content/gnews/16/README.md)
+### [有声|中共国95后设计师猝死 每日工作超12小时](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [美国及世界疫情简报（02-23-2022）](/content/gnews/17/README.md)
+### [美国及世界疫情简报（02-23-2022）](/content/gnews/20/README.md)
  ` 波士顿五月花农场`
 
-### [有声|英首相警告乌克兰或将危及台湾](/content/gnews/18/README.md)
+### [有声|英首相警告乌克兰或将危及台湾](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [医生和医学科学家国际联盟呼吁美国结束COVID国家紧急状态](/content/gnews/19/README.md)
+### [医生和医学科学家国际联盟呼吁美国结束COVID国家紧急状态](/content/gnews/22/README.md)
  ` 温哥华扬帆农场`
 
-### [国家媒体：俄罗斯和中共国就1亿吨煤炭供应达成新协议](/content/gnews/20/README.md)
+### [国家媒体：俄罗斯和中共国就1亿吨煤炭供应达成新协议](/content/gnews/23/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [数据显示接种Covid-19疫苗的妇女死产和流产的风险显著增高](/content/gnews/21/README.md)
+### [数据显示接种Covid-19疫苗的妇女死产和流产的风险显著增高](/content/gnews/24/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [文贵大直播要点（2022年2月23日）](/content/gnews/22/README.md)
+### [文贵大直播要点（2022年2月23日）](/content/gnews/25/README.md)
  ` 波士顿五月花农场`
 
-### [如何查看新冠疫苗批次有多坏？](/content/gnews/23/README.md)
+### [如何查看新冠疫苗批次有多坏？](/content/gnews/26/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [有声|日媒解析中共冬奥会所暴露的人权问题](/content/gnews/24/README.md)
+### [有声|日媒解析中共冬奥会所暴露的人权问题](/content/gnews/27/README.md)
  ` MOSREC`
 
-### [2022.2.23大直播 爆料革命用真相唤醒世界 郭文贵先生呼唤国人醒来](/content/gnews/25/README.md)
+### [2022.2.23大直播 爆料革命用真相唤醒世界 郭文贵先生呼唤国人醒来](/content/gnews/28/README.md)
  ` 秘密翻译组-原创组`
 
-### [有声|NBC北京冬奥会转播收视率堪称“灾难”](/content/gnews/26/README.md)
+### [有声|NBC北京冬奥会转播收视率堪称“灾难”](/content/gnews/29/README.md)
  ` MOSREC`
 
-### [文贵大直播 2/24 世界巨变已开始 美俄中欧鹿死谁手](/content/gnews/27/README.md)
+### [文贵大直播 2/24 世界巨变已开始 美俄中欧鹿死谁手](/content/gnews/30/README.md)
  ` 秘密翻译组-原创组`
-
-### [有声|香港大学研究表明 男性确诊中共病毒可致睪丸受损](/content/gnews/28/README.md)
- ` MOSREC`
-
-### [北京奥运会收视率惨不忍睹](/content/gnews/29/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [20220220文贵大直播：普京和习近平密谈了什么](/content/gnews/30/README.md)
- ` Tokyo Sakura Video Group`
 
 ### [继美英加欧盟之后，日本宣布制裁俄罗斯](/content/gnews/31/README.md)
  ` 首尔天池农场`

@@ -2,28 +2,49 @@
 ---
 
 
-## 有声|NBC北京冬奥会转播收视率堪称“灾难”
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2054008/)
+## 如何查看新冠疫苗批次有多坏？
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2054029/)
 
-配音：香草山巡管部– 文凯琳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月21日，据外媒报道，拥有美国地区独家转播权的全国广播公司NBC，在北京冬奥会超低迷的收视率数据上，沦为一场彻底的 “灾难”。
+**编译：逍遥小哥**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/33-2.jpg)
+数据显示一些新冠疫苗批次与过度死亡、残疾和不良反应有关。这种变化可能是由于 ：
 
-NBC在2014年投资了77.5亿美元，获得了奥运会到2032年为止的独家美国媒体转播权。截至上周二，平均有1220万人在黄金时段观看了NBC、有线电视或其流媒体服务的奥运会，比2018年韩国首尔冬奥会下降了42%。NBC有1000万观众，比2018年下降了47%，在关键的25-54岁人群中，比首尔奥运会时下降了57%。这甚至还包括了NBC在2月13日播出奥运会后直接播出超级碗的收视率，而获得的一定提升。
+1.批次数量的变化。某个批次分配的数量会比其他批次多或少
 
-文字版原文：[NBC北京冬奥会转播收视率堪称“灾难”](https://gnews.org/zh-hans/2051013/)
+2.剂量的毒性成分的变化
 
-音频处理/发稿：Daxia
+这两个因素都可能起作用，最好保持谨慎。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+您可以使用如下网站来查找与您的特定批次代码相关的死亡、残疾和疾病的数量。死亡和残疾的绝对数量令人担忧。远远超过与同等规模的流感疫苗批次相关的不良事件。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+查看您的批次（批号）：
+
+请根据您的疫苗厂家点击以下的链接。然后输入您的批次批号。您的疫苗批次产生的不良反应的数据会呈现 （数据来源[VAERS](https://vaers.hhs.gov/data.html) ，只供参考。数据不包含没被记录的案例。实际数量会更高。）
+
+[莫德纳COVID-19疫苗](https://howbad.info/moderna.html)
+
+https://howbad.info/moderna.html
+
+[辉瑞COVID-19疫苗](https://howbad.info/pfizer.html)
+
+https://howbad.info/pfizer.html
+
+[杨森COVID-19疫苗](https://howbad.info/janssen.html)
+
+https://howbad.info/janssen.html
+
+[莫德纳COVID-19疫苗 （美国境外）](https://howbad.info/modernaforeigndeaths.html)
+
+https://howbad.info/modernaforeigndeaths.html
+
+[辉瑞COVID-19疫苗 （美国境外）](https://howbad.info/pfizerforeigndeaths.html)
+
+https://howbad.info/pfizerforeigndeaths.html
+
+[杨森COVID-19疫苗（美国境外）](https://howbad.info/janssenforeigndeaths.html)
+
+https://howbad.info/janssenforeigndeaths.html
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

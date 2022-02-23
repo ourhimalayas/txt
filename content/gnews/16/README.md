@@ -2,28 +2,34 @@
 ---
 
 
-## 有声|中共国95后设计师猝死 每日工作超12小时
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2054099/)
+## 欧盟宣布在资产冻结和旅行禁令等方面制裁俄罗斯
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2054179/)
 
-配音：香草山巡管部– 文凯琳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-墙内媒体2月23日报道，中共国一位95后设计师赵磊猝死，据其生前聊天记录中表示，频繁性质的通宵加班疑为其猝死的外因。
+**编译：文舞两道**
 
-据了解，设计师赵磊生于1996年，毕业后三年间一直服务于上海尤安巨作建筑设计事务所有限公司。近期，该名设计师被曝出或因加班过度而在出租屋内发生猝死的悲剧新闻，该事件已引发墙内广泛关注。随后，该公司否认这名员工的猝死与过度工作相关。但关于建筑行业内非自愿签署加班协议、克扣年终提成、过度加班、低价中标、非良性竞争等质疑仍甚嚣尘上。
+据产经新闻住巴黎记者三井美奈报道，欧盟（EU）22日在巴黎举行了紧急外长会议，决定对俄罗斯实施一系列制裁，以回应俄罗斯承认乌克兰东部亲俄控制区的 “独立”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2C350E29-450F-4D92-8520-3CB1C2AD1C97.png)图片来源：https://www.sankei.com
+根据欧盟的公告，欧盟将切断与 “独立 “的两个东部地区的经济关系。对投票赞成票的351名俄罗斯议会议员，以及27个参与侵犯乌克兰主权的组织和个人实施限制。
 
-文字版原文：[中共国95后设计师猝死 每日工作超12小时](https://gnews.org/zh-hans/2052411/)
+制裁措施将在《欧盟官方公报》上公布，包括在欧盟范围内的旅行禁令和资产冻结。为了在外交上为解决问题留有余地，俄罗斯总统普京没有列入制裁范围。
 
-音频处理/发稿：Daxia
+德国总理肖尔茨22日宣布，将暂停批准来自俄罗斯的北溪2号天然气管道的工作。欧盟外交和安全事务高级代表博雷尔当天在巴黎举行的新闻发布会上赞扬了德国的决定，并警告说，”欧盟准备根据俄罗斯的行动实施进一步制裁”。他强调，这些制裁将与美国、英国、加拿大和其他有关国家协调实施。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+法国外交部长勒德里昂说，他取消了与俄罗斯外交部长拉夫罗夫原定于3月25日举行的会晤。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+**原文链接：**
+
+[https://www.sankei.com/article/20220223-UYIUPDS42ZPTNDI2KJJNU6ZOEE/](https://www.sankei.com/article/20220223-UYIUPDS42ZPTNDI2KJJNU6ZOEE/)
+
+**编辑：LILY**
+
+**发布：歪桑**
+
+20220223
+
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
