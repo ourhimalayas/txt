@@ -2,108 +2,47 @@
 ---
 
 
-## 比尔·盖茨：“可悲的是，病毒本身尤其是称为 Omicron 的变种是一种疫苗，可以产生 B 细胞和 T 细胞免疫，它在向世界人口传播方面做得比我们用疫苗做得更好”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2050291/)
+## 文•贵天成——文贵先生谈“孟建柱”（三）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2050410/)
 
-[https://gtv.org/video/id=621389a71408ee3a03a2fce7](https://gtv.org/video/id=621389a71408ee3a03a2fce7)
+整理 ：小儿
+编辑：Mohegayer K. Simon
 
-I’d like to kick off actually, and get a bit of a scene center from Mr. Gates
-我想真正开始，而且从盖茨先生那里得到一点实际中心的东西
-
-because this is, I know a topic that you’ve spoken on again and again
-因为这是，我知道一个你反复谈论的话题
-
-you were ahead of the curve prior to the beginning of this pandemic
-在这场大流行开始之前，你已经走在了前面
-
-where would you assess where we are today in beating COVID-19?
-你会评估我们今天在反击COVID-19方面的表现？
-
-Bill Gates
-比尔·盖茨
-
-Well, we, you know, sadly, the virus itself particularly
-好吧，我们，你知道，可悲的是，特别是病毒本身
-
-the, the variant called Omicron is the type of vaccine
-这个被称为 Omicron 的变体是疫苗的类型
-
-that is it creates both B cell and T cell immunity
-也就是说，它同时产生 B 细胞和 T 细胞免疫
-
-And it’s done a better job of getting out to the world population than we have with vaccines
-它在向世界人口传播方面做得比我们用疫苗做得更好
-
-if you do thorough surveys and African countries
-如果你做彻底调查和非洲国家
-
-you get well over 80% of people have been exposed either to the vaccine or to various variants
-有超过 80% 的人接触过疫苗或各种变种
-
-And so, you know, what that does is it means the chance of severe disease
-所以，你知道，这意味着患严重疾病的机会
-
-which is mainly associated with being elderly and having obesity or diabetes
-主要与年老、肥胖或糖尿病有关
-
-those risks are now dramatically reduced because of that infection exposure
-由于感染暴露，这些风险现在大大降低
-
-And, you know, it’s sad, we didn’t do a great job on therapeutics
-而且，你知道，很遗憾，我们在治疗方面做得不好
-
-you know, only here two years in
-你知道，在这两年里
-
-Do we have a good therapeutic
-我们有好的治疗方法吗？
-
-vaccines It took us two years to be an oversupply today
-疫苗花了我们两年时间才成为今天的供过于求
-
-There are more vaccines than there’s demand for vaccines
-疫苗的数量超过了对疫苗的需求
-
-And, you know, that wasn’t true
-而且，你知道，那不是真的
-
-And next time, we should try and make it instead of two years
-下一次，我们应该努力做到这一点，而不是两年
-
-we should make it more like six months, which certainly
-我们应该让它六个月内完成，这当然
-
-you know, some of the standardized platform approaches
-你知道，一些标准化的平台方法
-
-including mRNA would allow us to do that
-包括 mRNA将使我们能够做到这一点
-
-So, you know, it took us a lot longer this time then it should
-所以，你知道，这次我们比本应花的花了更长的时间
-
-* * *
-
-Date:02/20/2022
-原视频标题:Bill Gates: “Sadly the virus itself，particularly the variant called Omicron，is a type of vaccine, creates both B cell and T cell immunity and it’s done a better job of getting out to the world population than we have with vaccines”
-比尔·盖茨：“可悲的是，病毒本身尤其是称为 Omicron 的变种是一种疫苗，可以产生 B 细胞和 T 细胞免疫，它在向世界人口传播方面做得比我们用疫苗做得更好”
-原视频日期：2022/02/19
-原视频链接：[https://twitter.com/disclosetv/status/1494810193175195652?s=24](https://twitter.com/disclosetv/status/1494810193175195652?s=24)
-任务编号：KE412（3791）
-视频时间段 : 0:00-1:52
-
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/MCYELQI8FUQTJWB3KQD.png)图片来源：雅典娜设计组（614）
 
 
+我接着说晓夏女士。当时让我查,我是绝对不愿意查的。后来找了调查公司开始核查,确实很多资料。一会儿可以放我跟她的通话录音,我已经把很多资料给了傅政华的老弟,通过email挂在了收件箱里给了他。通过手机传给了他,而且他也收到了。
+
+那么在2016年12月份的时候，我在跟北京政法委,还有安全部的领导见面中,我已经将今天的爆料的部分信息给了他们,他们也报告给了孟建柱书记和王岐山书记。就这个事情,我今天所谓的爆料是叫公众知道,他们是应该知道的。
+
+所以昨天我回答你的问题,很多领导来给我打电话,有的真的是常委的领导啊。这个大领导都是非常慌张紧张啊,说这个事情你不要爆,这个如何如何的。后来我很纳闷,很多人就说国家的名义、国家形象、党的形象。我必须要先给晓夏女士和东方先生要说的事情:我不反中、不反共、不反政府。
+
+我要爆的料:他是贪污腐败分子,贪污腐败分子不能代表中国政府、不能代表中国人民。所以说我要把这个问题搞清楚,这是第一。第二个,他们说文贵,你证明了你是好人,你就不要再爆料了。我爆料,爆反贪和腐败分子,跟我是不是罪犯,跟他们贪不贪污,腐不腐败就完全没关系。
+
+今天东方先生你杀人了,我去举报你,我是杀人犯,我也有权举报你。所以说我们要把这两个问题搞清楚。我反的不是中国政府,不要给我戴高帽子。他们代表不了中国政府,代表不了中国人民。我恰恰的是爱中国,爱人民。我检举的是这些贪官、这些盗国贼。所以说这个傅政华让我查这个事情的时候呢,其中涉及到孟建柱书记,说孟建柱书记跟他的外甥,他的姐姐的孩子涉及到华润的宋林,涉及到几千亿的资产。包括孟建柱书记过去的几个情人,这都是他给我提供的信息呀。然后这个消息我也爆给孟建柱书记了。
+
+我要跟你们今天美国之音说的事情是,我刚才说的事情,我已经报给了中国政府。所以你们说外交部来找你们来阻止这个,我是很惊讶的。因为我是先报给他们的。我说这个事情,而且我把这东西都给了他们了。他们也都知道,跟我还有通话,谈到这个事情,当然就不需要我爆料了。可是你没有给我回复。因为是傅政华逼迫我做事情,绑架了我的所有的家人、虐待我的员工和几千个员工的边控、查封了我1200亿资产的情况下,我给你们,告诉这个原因是因为他威胁我,我没有犯罪。
+
+那么今天就在我们这个节目要爆出之前,突然外交部说,我要红色通报了。外交部语言叫红色通报。红色通报,这显然就是要阻止我们这个爆料。那么说明这个爆料是对他们有威胁的。那我本来爆的是说傅政华威胁我的过程,可今天看来不是傅政华本人要威胁我了。
+
+是很多涉及人士在威胁我,是要灭我这个口,那么我是很希望呢,你们可以说从语音上听一听,第一次,就傅政华打给我,傅老三打电话,他说我大哥就跟你通话。我先说说背景啊,我是用卫星电话通的,录音的时候呢,是把这个外音,我拿着手机录的,所以不是很清楚。这是为什么我们整理了一个语音版,但是那个文字版现在挂不出来。稍后呢,我希望大家上我的推,郭文贵的Twitter。我会挂在推特上,中英版的文字版。那么经过剪辑以后,大家可以看到傅老三的大哥,我不说叫傅政华。因为他说他大哥我不知道是谁,给我通过了语音,还变音。他说我的语音已经被监控了,他在通话当中还变音,我很惊讶。
+
+然后就给我下达命令,就说要查王岐山书记的外甥姚庆在海航持有的股份、吴明山和姚明端和王健和陈峰的关系、然后利用王岐山书记他们家里边人协调了这个上万亿的贷款、在海外以并购的名义向海外洗钱、然后包括这些男女关系、而涉及到几个投资公司的基金的事情。所以说我可以从语音,大家可以看一看,我的所作所为是傅政华绑架了我的家人的情况下逼迫我这么做的。
+
+资料来源：郭文贵2017年4月19日视频（续）
+
+往期回顾：
+[文•贵天成——文贵先生谈“孟建柱”（一）](https://gnews.org/zh-hans/1990454/)
+[文•贵天成——文贵先生谈“孟建柱”（二）](https://gnews.org/zh-hans/1992091/)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

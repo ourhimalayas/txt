@@ -2,29 +2,30 @@
 ---
 
 
-## 英国将制裁5家俄罗斯银行及3名寡头富豪
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2050758/)
+## 加拿大就俄罗斯入侵乌克兰 宣布第一轮经济制裁
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2050812/)
 
-**撰稿：日本东京方舟农场  海星**
+翻译：灭共文明
 
-2月22日，在俄罗斯承认乌克兰东部分离地区独立后，英国首相约翰逊宣布，英国政府将制裁俄罗斯银行及寡头富豪。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-344.jpg)（图片来源：法新社）
-据《自由时报》报导，英国首相约翰逊在国会上表示，英国政府将就俄罗斯承认乌克兰东部分离地区独立一事制裁其5家银行，包括俄罗斯银行（Bank Rossiya）、IS Bank、Joint Stock Company Genbank、Public Joint Stock Company Promsvyazbank和黑海贸易发展银行（Black Sea Bank for Development and Reconstruction），以及3名寡头富豪，包括普京的商业伙伴兼友人季姆琴科（Gennady Timchenko）、阿卡迪耶维奇（Igor Arkadievich）和罗腾伯格（Boris Romanovich Rotenberg）。
+编辑与校对：灭共文明、冰糖葫芦喵
 
-据悉，被制裁者在英国持有的所有财产将被冻结，并被禁止入境英国，同时不被允许与英国的企业或个人有任何商业往来。
+《路透社》2月22日报道，**在莫斯科承认乌克兰顿涅茨克和卢甘斯克独立一天后，加拿大总理特鲁多周二宣布对俄罗斯实施第一轮经济制裁。**
 
-约翰逊强调说，这只是制裁的第一部分，如果普京有进一步行动，英国和盟国将对其实施更严厉的制裁措施。
+周一，俄罗斯总统普京承认乌克兰东部两个由分裂分子控制的地区独立，并宣布俄罗斯将在那里部署所谓“维和”部队。特鲁多称此举是“对乌克兰主权的明显侵犯”。
 
-稍早前，俄罗斯总统普京承认了乌克兰东部地区顿涅茨克和卢甘斯克的“独立国家”地位，并派遣部队进驻。对此，美国多位议员表示，普京此举公然违反国际法，侵犯了乌克兰的主权与领土完整，应受到严厉制裁。
+**周二，美国、欧盟、德国和英国也宣布了对俄罗斯的经济制裁。**
 
-参考链接：
-1.[https://news.ltn.com.tw/news/world/breakingnews/3838104](https://news.ltn.com.tw/news/world/breakingnews/3838104)
-2.[https://finance.sina.com.cn/stock/usstock/c/2022-02-22/doc-imcwiwss2363586.shtm](https://finance.sina.com.cn/stock/usstock/c/2022-02-22/doc-imcwiwss2363586.shtm)
-3.[https://www.voachinese.com/a/us-congress-reax-russia-putin-ukraine-20220221/6453362.html](https://www.voachinese.com/a/us-congress-reax-russia-putin-ukraine-20220221/6453362.html)
+特鲁多周二说，**加拿大政府将禁止加拿大人与所谓的“独立国家”卢甘斯克和顿涅茨克进行任何金融交易。**他补充说，**加拿大还将禁止加拿大人购买俄罗斯主权债务。**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/EV5BRX64BZOK3EDXW7ECKC27W4-e1645586252964.jpg)加拿大总理特鲁多（图片来源：网络）
+特鲁多表示，**加拿大将对两家俄罗斯国有银行实施额外制裁，并阻止与它们进行任何金融交易。**加拿大也将制裁投票支持顿涅茨克和卢甘斯克独立的俄罗斯议会成员。
 
-素材采编：海星
-编辑：老孙
-发布：爱放飞
+报道称，特鲁多表示，他将授权向该地区增派460名加拿大军事人员。授权这包括向拉脱维亚派遣更多的军队，以及部署更多的护卫舰和海上巡逻机。
+
+此前，莫斯科要求提供安全保障，包括承诺其邻国乌克兰永远不会加入北约(NATO)，**数周紧张的外交努力迄今仍以失败告终。**
+
+**新闻链接：**
+
+[Canada announces first round of economic sanctions on Russia over Ukraine crisis | Reuters](https://www.reuters.com/world/europe/trudeau-announces-first-round-economic-sanctions-russia-over-ukraine-crisis-2022-02-22/)
 
  
 

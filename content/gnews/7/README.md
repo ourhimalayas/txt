@@ -2,39 +2,34 @@
 ---
 
 
-## 有声|加国省长杰森肯尼挑战特鲁多紧急法案
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2050721/)
+## 韩国最大银行将推出加密货币衍生产品和ETF
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2050773/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月19日消息，针对联邦自由党实施”紧急情况法”以结束卡车司机对渥太华市中心的封锁，阿尔伯塔省省长杰森·肯尼在接受Postmedia独家采访时表示，联邦政府使用加拿大最强大的法律，在目前情况下是不合理的过度扩张，违反正当程序和”侵犯”省级管辖权。并表示对此深感厌恶，将在下周初，向渥太华联邦法院提出法律挑战，以结束总理特鲁多的任意和高压行动。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide10-3.jpeg)
-另外，联邦司法部长大卫·拉梅蒂此前在CTV上暗示，联邦调查局正在考虑冻结任何用信用卡向车队捐赠者账户。
+翻译/编辑：小红帽
 
-肯尼认为，如果特鲁多派冻结其政治对手的财政得逞而逍遥法外，允许联邦政府利用《紧急情况法》来履行普通警察职能骚扰对手，超越并篡夺加拿大各省执法的属地管辖权，这将为未来树立一个危险的先例。
-
-肯尼代理律师将要求法官暂停使用该紧急法案。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/3-65.png)图片来源：online-kbcambodia.com
 
 
+根据Blockworks2月22日报道，韩国最大银行的资产管理部门周一宣布成立一个委员会，以帮助研究和开发加密货币衍生产品和ETF。
 
-文字版原文：[加国省长杰森肯尼挑战特鲁多紧急法案](https://gnews.org/zh-hans/2049068/)
+KB国民银行（KB Kookmin）的资产管理部门表示，其新的数字资产管理筹备委员会将计划准备推出其加密货币产品。总部位于该部门的指数量化操作（Index Quant Operation）部。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+KB希望在“韩国放松管制”之后，“尽快”通过其加密货币产品进入这个快速发展的行业。银行正计划通过国内和海外数字资产市场研究，为抢先推出相关产品做准备。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+除了加密货币指数基金，KB资产管理公司（KB Asset Management）表示，它将从退休养老金和OCIO市场的传统资产关联转向使用海外加密货币的保本资产配置基金。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+按净利润计算，KB国民银行是韩国最大的银行。根据其最新财报，到2021年第四季度，其管理的资产总额达到457.3万亿韩元（3827亿美元）。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+新闻链接：[South Korea’s Top Bank To Launch Crypto ETFs](https://blockworks.co/south-koreas-top-bank-to-launch-crypto-etfs/)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+发布：tianzhihuan
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

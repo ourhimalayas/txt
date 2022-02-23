@@ -2,22 +2,46 @@
 ---
 
 
-## 韩国新增确诊病例突破17万例 创历史新高
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2050468/)
+## 欧盟六国派专家帮助乌克兰应对网络威胁
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2050489/)
 
-撰稿：追着曙光跑
+作者：纽约香草山农场 – 四季
 
-据韩国KBS新闻2月23日的报道，韩国中央检疫对策本部宣布，截至今日（23日）零时，新增确诊病例17万1452例，首次突破17万大关，创历史新高。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-23-at-11.11.01.jpeg)图片来源：原新闻视频截图
-其中，韩国境内17万1271例，境外输入181例，全国累计232万9182例。单日新增较前一天增加了7万1879例，较上周16日的9万443例，增加了8万1009例。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-现有重症患者512例，较前一天增加32例。新增99例死亡病例，累计7607例。全国居家治疗患者人数52.1万人，较前一天增加了约3万人。
 
-另外，韩国的疫苗接种率，首针接种率为87.27%，完全接种率为86.30%，第三针加强针接种率59.65%。另外，从15日开始给免疫力低下人群接种第四针剂。
 
-完全接种率已经远超过群体免疫的70%，第三针加强针也快达60%，但感染人数却剧增。
 
-信息来源：**[코로나19 확진자 17만1,271만 명…첫 17만 명대 기록](https://news.kbs.co.kr/mobile/news/view.do?ncd=5401688)**
+
+据[ONA网站](https://www.oann.com/six-eu-countries-send-experts-to-help-ukraine-deal-with-cyber-threats/)2月22日援引路透社报道，立陶宛国防部副部长周二表示，在俄罗斯正式承认乌克兰东部的两个分离地区后，应乌克兰周一提出的请求，六个欧盟国家——立陶宛、荷兰、波兰、爱沙尼亚、罗马尼亚、克罗地亚将向乌克兰派出一个网络安全专家小组，帮助其应对网络威胁。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-22T142234Z_1_LYNXMPEI1L0NO_RTROPTP_0_UKRAINE-CRISIS-CYBER_1.jpg)在2022年2月15日拍摄的这幅插图中，在 “网络攻击”、二进制代码和乌克兰国旗的前面，可以看到带有电脑和智能手机的小雕像。（REUTERS/Dado Ruvic/Illustration/File Photo）
+
+美国和英国周五均表示，俄罗斯军事黑客是一连串分布式拒绝服务（DDoS）攻击的幕后黑手，这些攻击使乌克兰银行和政府网站短暂瘫痪。英国国防部长本·华莱士周一表示，英国的网络专家正在与乌克兰合作，以帮助保护其免受俄罗斯活动的影响。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2月.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 

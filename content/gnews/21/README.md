@@ -2,40 +2,39 @@
 ---
 
 
-## 拜登宣布对俄罗斯实施第一批制裁
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2050532/)
+## 专家称俄乌开战 中共不会在军事上予以支持
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2050652/)
 
-美国总统拜登：
+#### 【雅典娜快讯】紧贴时代脉搏
 
-今天，在与我们的盟友和伙伴的密切协调下，我宣布对俄罗斯实施第一批制裁，让俄罗斯为昨天的行动付出代价。 随着俄罗斯的升级，我们将继续加强制裁。我们正在对俄罗斯两家大型金融机构——俄罗斯国家开发银行和他们的军事银行——实施全面的封锁性制裁。我们正在对俄罗斯主权债务实施全面制裁。 这意味着我们已经切断了俄罗斯政府在西方的融资。 它再也无法从西方筹集资金，也无法在我们的市场或欧洲市场交易其新的债务。从明天开始——并在未来持续的日子里——我们还将对俄罗斯精英和他们的家人实施制裁。 他们分享了克里姆林宫政策的腐败收益，也应该分享痛苦。由于俄罗斯的行动，我们已经与德国合作，以确保北溪2号项目不会继续推进。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/bd.png)
+整理：围剿维尼熊
+编辑：小熊
 
-
-> Today, in close coordination with our Allies and partners, I am announcing the first tranche of sanctions to impose costs on Russia in response to yesterday’s actions. 
->  
-> We will continue to escalate sanctions as Russia escalates.
-> — President Biden (@POTUS) [February 22, 2022](https://twitter.com/POTUS/status/1496218939847847951?ref_src=twsrc%5Etfw)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/2-89.png)图片来源：雅典娜设计组
 
 
+据路透社报道，专家们表示，如果俄罗斯入侵乌克兰，中共将在外交或经济上支持俄罗斯，但绝不会提供军事支持。
 
-比尔·格茨： 中共国官方媒体对冲进乌克兰的俄罗斯坦克保持沉默。北京间接支持普京，外交部发言人称莫斯科对北约有“正当”担忧，尤其是没有谴责俄罗斯将两块地区宣布为独立国家。 【附华盛顿邮报文章：中共国说：莫斯科对北约有“正当”的安全担忧】
+美国总统拜登上周五表示，俄罗斯总统普京已决定在几天内入侵乌克兰，而俄罗斯否认这一说法。
 
+中共外交部一再谴责美国“散布虚假信息”并制造紧张气氛，敦促其尊重并呼应俄罗斯在安全保障方面的要求。
 
+为了显示团结，普京出席了2月4日北京冬奥会开幕式，与习近平共同宣布深化战略伙伴关系。中共国媒体宣称，两国将肩并肩“维护世界正义”。
 
-> China state media silent on Russian tanks rolling into Ukraine. Beijing indirectly backs Putin with Foreign Ministry spokesman saying Moscow has “legitimate” concerns on NATO and, notably, fails to condemn Russia declaring 2 enclaves independent states [https://t.co/mCoz9dUv30](https://t.co/mCoz9dUv30)
-> — Bill Gertz (@BillGertz) [February 22, 2022](https://twitter.com/BillGertz/status/1496245139299180546?ref_src=twsrc%5Etfw)
+如果俄罗斯入侵乌克兰，将考验中共经常声明的“不干涉外交政策原则”。熟悉北京当局思路的专家说，中共肯定不想在军事上介入。在国际社会如此两极分化的情况下，美国和西方有可能将俄罗斯及中共国同时孤立或制裁。
 
+北京也不希望为俄罗斯入侵乌克兰承担经济后果，特别是今年，习近平准备展开史无前例的第三个任期，他要把“稳定”放在首位。
 
+参考链接：[专家称如果俄罗斯对乌克兰采取行动 中国会在外交上予以支持](https://cn.reuters.com/article/russia-ukraine-crisis-china-dip-0221-idCNKBS2KQ08U)
 
-前国务卿蓬佩奥： 弗拉基米尔·普京还是我们执政期间的那个他。 唯一改变的是美国的领导地位。
+*发布：tianzhihuan*
 
-
-
-> Vladimir Putin is the same person he was during our administration.
-> The only thing that has changed is American leadership.
-> — Mike Pompeo (@mikepompeo) [February 22, 2022](https://twitter.com/mikepompeo/status/1496202661196140549?ref_src=twsrc%5Etfw)
-
-
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

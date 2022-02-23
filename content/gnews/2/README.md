@@ -2,35 +2,31 @@
 ---
 
 
-## 韩国最大银行将推出加密货币衍生产品和ETF
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2050773/)
+## 中国是用美元赢了与美国的冷战
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2050843/)
 
-翻译/编辑：小红帽
+撰稿：小湫
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/3-65.png)图片来源：online-kbcambodia.com
+佛罗里达州共和党众议员迈克尔·瓦尔兹（Michael Waltz），他在“威尔·凯恩播客”(The Will Cain Podcast)节目中概述了他认为的中国在与美国的冷战中进行经济战争的长期战略。
 
+Will Cain：中国国家主席和中央军事委员会主席习近平，他的目标是取代美国成为世界主导力量，以取代美元作为全球储备货币。在你看来，这是一种竞争，一种冷战，一种朝着动态战争方向发展的关系吗? 是为了制造炸弹，还是计划中的策略更具有颠覆性，更内化，更隐形力量，更腐败? 中国的战略是什么?
+![](https://assets.gnews.org/wp-content/uploads/2022/02/小秋-3.png)图片来自网络
+佛罗里达州共和党众议员迈克尔·瓦尔兹：他们确实如此做的，他们和我们处于冷战状态。你知道，冷战是指一个实体利用外交、信息和经济手段，以某种方式接管国际组织来胁迫他们的对手。而这正是中国共产党正在做的，其中最大的一个问题将是台湾。
 
-根据Blockworks2月22日报道，韩国最大银行的资产管理部门周一宣布成立一个委员会，以帮助研究和开发加密货币衍生产品和ETF。
+为什么台湾如此重要，为什么台湾对美国人民如此重要?如果你看看它坐落在地图上的位置，一旦中国控制台湾，共产主义独裁将接管一个繁荣的市场和民主制度。除此之外,CCP将控制贸易路线延伸到日本，韩国，澳大利亚，马来西亚，甚至包括印度，然后进入中东，CCP将控制大约一半的世界GDP和全球贸易。
 
-KB国民银行（KB Kookmin）的资产管理部门表示，其新的数字资产管理筹备委员会将计划准备推出其加密货币产品。总部位于该部门的指数量化操作（Index Quant Operation）部。
+如果你了解中国的军事理论，我认为经济战是最好的描述方式。他们想为一场战争做提前的准备，他们企图置美国于死地，就像前苏联解体前对待我们的策略一样。
 
-KB希望在“韩国放松管制”之后，“尽快”通过其加密货币产品进入这个快速发展的行业。银行正计划通过国内和海外数字资产市场研究，为抢先推出相关产品做准备。
+他们眼睁睁的看着我们在民众福利上破产，他们在新冠肺炎上惨败。 我们看到拜登数十亿美元从中国购买新冠病毒检测试剂盒，因为我们已经失去了制造它们的能力。 这就像从纵火犯那里买消防用品一样。
 
-除了加密货币指数基金，KB资产管理公司（KB Asset Management）表示，它将从退休养老金和OCIO市场的传统资产关联转向使用海外加密货币的保本资产配置基金。
+与此同时，他们在一些东西上垄断了市场，让我们的经济运转起来:我们90%的药品，我们90%的电脑芯片，我们90%的稀土矿，我们的基本经济功能需要这些东西，中国已经垄断了。 所以当我们说“美国制造”时，这不仅仅是一个人权问题，因为他们用现代奴隶制造了这些廉价的产品。
 
-按净利润计算，KB国民银行是韩国最大的银行。根据其最新财报，到2021年第四季度，其管理的资产总额达到457.3万亿韩元（3827亿美元）。
+这不仅是美国的就业问题，更重要的是国家安全问题。 我们不能依赖我们最大的对手来维持我们的社会运转——他们故意制造了这种依赖。 美国公司绝对是同谋。
 
-新闻链接：[South Korea’s Top Bank To Launch Crypto ETFs](https://blockworks.co/south-koreas-top-bank-to-launch-crypto-etfs/)
+参考信息：[How China may have already won its cold war with the US with American dollars](https://www.foxnews.com/media/china-cold-war-us-economic-warfare)
 
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+发稿：MG4
+![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

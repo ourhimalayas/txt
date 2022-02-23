@@ -2,21 +2,33 @@
 ---
 
 
-## 人类面临的一切灾难都是共产党试图要奴役这个世界造成的
-` DC政经` [轉載自GNews](https://gnews.org/zh-hans/2050631/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年2月22日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2050664/)
 
-《2022年02月20日文贵大直播》节选
+作者：香草山翻译部
 
-都是谁干的？是共产党在整个的极左的共产主义，试图要奴役这个世界。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO-3.jpg)
 
-从病毒到病毒真相，到疫苗、到强制打疫苗，到新型病毒，到全球96%都是打疫苗的感染，不让你吃伊维菌素，不让你吃青蒿素，不让你(溯)源，全球所有严肃媒体，被共产党的邪恶组织控制、达沃斯控制，然后让你待在家里边，不让你出去……
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-2-2.png)
+校对：Stay文苑
 
-素材，剪辑，字幕：小蜜蜂 | 发布：文零
+编辑：Stay文苑
 
-更多新闻咨讯请访问：[DC政经Gettr账号](https://gettr.com/user/dczhengjingquan)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/DCZJ_Gnews_960_160.png)
+发稿：Stay文苑
+
+新闻：[https://gtv.org/broadcast/watch/62158eaf08ba8a07b1a1a883](https://gtv.org/broadcast/watch/62158eaf08ba8a07b1a1a883)
+访谈：[https://gtv.org/broadcast/watch/6215989808ba8a07b1a1ad72](https://gtv.org/broadcast/watch/6215989808ba8a07b1a1ad72)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-4.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,22 +2,22 @@
 ---
 
 
-## 不惧镇压自由抗议在加拿大爆发
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2050645/)
+## 国际｜以“入侵”定调俄罗斯 美国出手制裁
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2050691/)
 
-采编：文莱         编译撰稿：苦尽甜来 (文來）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/01-image-2.png)
-据加拿大媒体【后千禧年】2月20日报道，在特鲁多政府暴力镇压渥太华长达数周的自由车队反疫苗护照运动后，支持卡车司机的浪潮在加拿大蔓延开来。无数市民走上卡尔加里和多伦多的街头，反对当局的各项强制性防疫措施。
+**撰文/ 港台前线｜发布日期/ 23/02/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/以「入侵」定調俄羅斯-美國出手制裁.jpg)
+**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
 
-报道称，特鲁多恣意妄为地打压和平集会之举触犯众怒。卡尔加里和多伦多等城市反政府疫苗政策的抗议者们日前冒着严寒走上街头，这些热爱和平和自由的民众继续抗争以支持在渥太华正被警察摧残的自由车队。
+继英国之后，美国总统拜登22日宣布首轮制裁俄罗斯的名单，包括俄罗斯主权债、两间主要银行及俄罗斯权贵及其家属。欧盟方面亦宣布制裁俄罗斯，对象包括俄罗斯国会杜马全体议员，以及27名个人及实体，涉及国防、金融以及银行界。
 
-此外，在美加边境地区也发生了相同的抗议活动。而最新民调显示，大多数美国人都支持加拿大自由车队，并认为有必要也在美国开展类似的运动。
+在美国本轮制裁措施当中，最严厉的相信就是针对俄罗斯主权债的这项，该措施禁止美国金融机构与俄主权债基金进行股票交易，或向后者贷款。
 
-校对编辑：硫酸羟氯喹64
+另外，负责俄罗斯国家项目的俄罗斯国有开发银行（VEB.RF）、为受制裁国防工业服务的军方银行Promsvyazbank，以及它们的42间子公司，也被悉数纳入本次的制裁名单。未来美国各金融机构禁止处理与被制裁银行进行交易，将两行排除在美元交易之外。拜登指出，上述两方面的制裁均可切断俄罗斯政府在西方融资，使俄罗斯无法从西方集资，或在欧美市场交易新债。
 
-发稿：苦尽甜来 (文来）
+不仅如此，Promsvyazbank行政总裁Petr Fradkov、第一副幕僚长Sergei Kiriyenko，以及普京挚友兼联邦安全局（FSB）局长Aleksandr Bortnikov 三人同时被制裁。拜登宣布制裁时，首次以“入侵”形容俄罗斯对乌东的行动，同时表示，若俄罗斯继续侵略乌克兰，美国不排除会祭出更多制裁措施。
 
-原文链接： [Freedom protests spread across Canada after Trudeau crackdown | The Post Millennial](https://thepostmillennial.com/freedom-protests-spread-across-canada)
+来源｜[AJ](https://www.aljazeera.com/news/2022/2/22/biden-imposes-new-russia-sanctions-decries-beginning-invasion)
 
  
 
