@@ -2,35 +2,164 @@
 ---
 
 
-## 瑞士信贷的敏感账户信息泄露
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2053496/)
+## 疫苗灾难过后，三件大事将改变世界格局
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2053670/)
 
-撰稿: kai奋斗
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2.23F.jpeg)网络图片
-超过 30,000 名瑞士信贷客户的秘密数据被泄露到 《南德意志报》，这些账户信息揭露了这家银行很多不为人知的秘密，目前世界各地的 48 家媒体公司正在参与数据的分析。
+[https://gtv.org/video/id=621504111408ee3a03a377f7](https://gtv.org/video/id=621504111408ee3a03a377f7)
 
-瑞士第二大银行瑞士信贷多年来一直为腐败的独裁者、战犯嫌疑人、人贩子、毒贩和其他犯罪分子提供服务，而该银行未能有效的审核其客户的背景。瑞士信贷否认这些指控，称很大一部分账户早已关闭。 根据泄露的数据，犯罪分子可以在瑞士信贷开设账户或保留他们的账户，即使银行早就应该清楚他们正在与犯罪分子打交道。按照法律规定，银行必须非常严格调查其客户的信息，特别是对于其他国家元首或政府首脑、部长、特工人员或商业行为可疑的企业家。如果他们发现来自刑事犯罪或可能服务于此类犯罪的不明资产来源，则应向当局报告，比如说避免洗钱。
+郭文贵
+Miles Guo
 
-这次瑞银泄露的数据范围从 1940 年代到过去十年，超过三分之二的可用账户是在 2000 年之后开设的，根据《南德意志报》的研究，其中许多账户至今仍然存在。 数据中还包括一名在菲律宾被定罪的人贩子，一名埃及杀人犯，涉嫌参与不正当交易的红衣主教和 2008 年被判犯有贿赂罪的西门子前经理Eduard Seidel。这位前西门子的尼日利亚分公司经理当时在瑞士信贷有六个账户，根据 2006 年的数据，其一人拥有价值超过 5400 万瑞士法郎的资产，以他在西门子的薪水，这个数额是难以解释的。 当时他被问到这笔资产时，这位前经理否认有不当行为，但并没有解释数百万美元的来源。瑞信拒绝回答有关此案或其他相关账户的具体问题，但表示它遵守“最高行为标准”，“在开展业务时，瑞信遵守适用的全球和当地法律法规。”
+卡车事件停止疫苗
+The Trucker Convoy Protest to stop the vaccine
 
-根据银行内部数据，众多国家元首和政府首脑、部长和情报部门负责人，以及寡头和红衣主教都是瑞信的客户。其中，约旦国王阿卜杜拉二世、伊拉克前副总理Ayad Allawi、阿尔及利亚独裁者Abdelaziz Bouteflika和亚美尼亚前总统相Armen Sarkissjan 都出现在泄露的文件中。 Armen Sarkissjan 于 今年1 月刚刚宣布辞职，此前不久，《南德意志报》向他发送了一份关于他在瑞士信贷账户的询问。这位政治家说，在他被要求申报资产之前，他已经关闭了所有账户，于此同时一个国家反腐败机构正在调查此事。
+全世界冬奥会结束
+and the world’s Winter Olympics ended
 
-《南德意志报》与有组织犯罪和腐败报告项目 (OCCRP) 以及来自世界各地的 46 家媒体合作伙伴（包括英国卫报、法国世界报和纽约时报）一起分析了瑞士信贷的泄露数据。在德国，NDR 和 WDR 参与了这项研究。结果将以“Suisse Secrets”为标题发表。瑞士信贷表示这是“旨在使瑞士金融中心…声名狼藉的联合行动”。没有来自瑞士的媒体参与这项研究，因为当地银行法可能会起诉记者研究泄露的银行数据。批评者认为这是对新闻自由的巨大限制，联合国言论自由问题特别报告员艾琳汗说：“起诉或惩罚发布符合公共利益的银行信息的记者将违反国际人权法。”她已经开始了调查。
+战争一起
+these war are going to happen
 
-瑞士被认为是世界上最不透明的金融中心之一。 任何泄露账户信息的行为都将受到法律制裁。 尽管近年来银行保密制度有所放松，随着瑞士与多个国家交换账户持有人的信息，但与一些最贫穷和最腐败的国家却没有。 这次泄露的数据中有大量客户来自委内瑞拉、埃及、乌克兰和塔吉克斯坦，这些国家的政治领导人一再被怀疑腐败。这次提供泄露信息的匿名者在一份声明中说道，“我认为瑞士银行保密是不道德的，保护金融隐私的幌子只是一块掩盖瑞士银行与逃税者合作的遮羞布。”
+你记住, 什么视线都转移不了
+Keep in mind that you won’t be able to divert whatever eyesight
 
-在过去的二十年里，瑞士信贷卷入了数十起丑闻，并在此期间支付了超过 100 亿美元的罚款，而且不得不第一次向瑞士的法院作出回应，因为据说它帮助了保加利亚的贩毒集团洗钱。瑞士信贷当然也是否认这一指控。
+你别以为就（只是）经济
+Don’t think it’s just the economy
 
-据《南德意志报》消息，美国参议院财政委员会目前正在调查该银行可能帮助美国公民逃税的嫌疑。 2014年，瑞士信贷被罚款26亿美元，创历史新高。 今年1 月中旬，董事会主席antónio Horta-Osório不得不辞职，因为据说他多次违反新冠检疫规定。 此后不久，该银行发布了盈利预警。
+大家都会干一件事儿——（质问）武汉实验室发生了什么！
+Everyone will do one thing, which is to question what happened to the Wuhan laboratory!
 
-从七哥的直播，我们开始了解瑞士银行的黑暗面。瑞士第一大银行UBS配合中共，强行变卖七哥的资产，从而在中国拿到第一家外国银行牌照。这次曝光的数据也只不过是冰山一角，很好奇为什么目前没有中国官员的信息曝光，应该是中共已经提前控制住了媒体。 其实瑞士银行从二战开始就一直充当犯罪分子的保护伞，由于瑞士既不属于欧盟也不依靠美国，而且拥有自己独立的货币和金融体系，使得瑞士银行一直处于国际监管之外，也正是这点，成为了各种犯罪分子藏钱的最佳地方，当然也包括中共盗国贼。
+只要是俄罗斯一开打
+As long as Russia starts fighting
 
-大量的黑钱成为瑞士银行业繁荣的重要支撑，一个小小瑞士的银行存款估计已经超过了整个中国。正如七哥所说，未来如果不把瑞士银行这个贼窝给端掉，把属于中国人民的钱给要回来，就算把共产党从中国赶走了，他们也可能随时换个马甲再次回来，世界也不可能得到真正的和平。
+习只要一动台湾, 只要一动或者不动台湾
+Xi Jinping wars on Taiwan, as long as he starts the war or not
 
-新闻参考链接：
+就是乌克兰（被）打了
+once Ukraine is attacked
 
-[https://www.sueddeutsche.de/wirtschaft/suisse-secrets-credit-suisse-bank-korruption-1.5532753](https://www.sueddeutsche.de/wirtschaft/suisse-secrets-credit-suisse-bank-korruption-1.5532753)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
+全世界这个就是乌克兰、苏联的事就结束了！
+all matters in the world about Ukraine and the Soviet Union (Russia) would be over!
+
+它动，动的开始就是结束，没有任何犹豫的
+War on Ukraine, its beginning would be its ending, without any hesitation
+
+不可能苏联把全世界都干掉
+It is impossible that letting the Soviet Union (Russia) destroy the whole world
+
+俄罗斯, 一定是把它干掉，只是干掉的代价有多大！
+Russia would definitely be taken down, it is just a matter of how big the cost would be
+
+经济大乱套，经济会重整。
+The economy would be in chaos, and the economy would recover
+
+不管哪样你说谁是赢家？
+Who would you say is the winner anyway?
+
+咱是最大赢家！
+We are the biggest winner!
+
+在这种情况下，你说那个时候就直灭共产党
+Under such circumstances, (the world) would directly go to the CCP and destroy them
+
+直灭共产党你找他干啥去啊？
+Why would they go to the CCP?
+
+说你支持了苏联
+say you supported the Soviet Union (Russia)
+
+俄国和美国、澳大利亚这都会站在一起
+Russia, Australia, and the United States would all stand together
+
+三件事会发生
+Three things would happen
+
+所有的向左这种极端政权（强推）打疫苗的，每个人都会上绞刑架
+(First) all the extreme leftist regimes who mandated vaccination would be hanged on the gallows
+
+只要让人家打（毒）疫苗的一定会上绞刑架, 你都想都不用想
+As long as you mandated people for vaccination would be executed, no excuse
+
+那么五月份以后这些官员上绞刑架了
+Then after these officials were hanged on the gallows and the month of May
+
+这个疫苗（导致）接下来大量的死亡
+this vaccine would lead to a mass of deaths
+
+这些社会的动乱会此起彼伏
+and these social turmoils would continue one after another
+
+这个大卡车事件你都会忽视掉
+this Trucker Convoy Protest incident would be ignored
+
+因为越死人越多谁能控制得了?
+Because who can control when there are more and more people die?
+
+你能受得了吗？
+Can you take it?
+
+就西方的文明世界的政治形势和媒体一切
+The next step would be everything about the political situation of the Western civilized world and the media
+
+包括医疗部门重新改写
+including the rewriting of the medical sector
+
+这就是天机啊！
+This is God’s chance!
+
+俄罗斯和乌克兰和中共对台湾的问题
+(Second) the issues of Russia and Ukraine, the issue of CCP and Taiwan
+
+（将导致）世界地球上的政治板块彻底改变
+would lead to a complete change in the political plate of the world on earth
+
+然后西方的文明运动改变了西方的、资本主义的、所有的、民主的、现在存在的独裁
+and then the movement of civilization in the West would change the Western, capitalist, all, democratic, now existing dictatorships
+
+和走向极左方向（的状态）彻底地纠正过来
+and the extreme leftist situation would get corrected completely
+
+第三世界经济印了那么多钱
+Third, the world economy has printed so much money
+
+现在已经印了快300亿（美元）了有
+It has printed nearly 300 trillion US dollars
+
+从过去200、官方226万亿到现在实际上260万亿
+From 200 trillion in the past, the official 226 trillion, now the actual 260 trillion
+
+到最近增加（到）将近300万亿美元的印刷的钞票
+and recently increased to nearly 300 trillion Trillions of dollars of printed banknotes
+
+都将给你打成泡沫，啥都没有
+all these would be blown into a bubble, nothing left
+
+然后世界上两种货币存在，数字货币和法币
+Then there would be two currencies that exist in the world, the digital currency and Fiat currency
+
+那咱又是赢家
+Then we are the winner again
+
+* * *
+
+Date: 02/15/2022
+原视频标题:
+疫苗灾难过后，三件大事将改变世界格局Three big things would change the world after the vaccine disaster
+
+原视频日期：2022/02/13
+原视频链接: [**https://gettr.com/post/pusoex2674**](https://gettr.com/post/pusoex2674)
+任务编号：KC460（3786）
+视频时间段 : 0:00-02:17
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译：洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-Jambo
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

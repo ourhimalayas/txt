@@ -2,36 +2,48 @@
 ---
 
 
-## 2022年北京冬奥会的收视率为历史最低
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2053345/)
+## 外媒发现辉瑞与中共军方存在某种可疑的紧密合作关系
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2053583/)
 
-作者: 首尔天池农场-zzballack
+作者：银河系农场 – 骄子
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-45.png)
-据《新闻极限》2月22日援引《华尔街日报》报道说，NBC环球自数十年前开始转播奥运会以来，北京冬奥会的观看人数是最少的，黄金时段的平均观众人数只有1140万人，比2018年的平昌冬奥会下降了42%。相较之下，NBC的超级碗直播吸引了1.12亿名观众。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/aa52bc8739856499e619c6e48a4f40d3_500x0.jpeg)图片来源: Gettr (@JeffS1)
-为了弥补观众少的问题，在为期两周多的时间里，NBC环球为广告商提供了额外的广告播放时间，这些广告通过NBC环球的电视、有线网络和流媒体平台播出。
 
-NBC体育集团总裁皮特·贝瓦茨夸将人们对比赛缺乏兴趣归因于中共国“异常严厉的”防疫协议、看台上几乎没有观众以及一些奥运选手戴着防护口罩等等。鉴于大流行病源自中共国，今年的广告商选择低调行事，回避文化或社会问题。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-新闻链接: [https://www.newsmax.com/streettalk/beijing-olympics-nbc-covid/2022/02/22/id/1057855/](https://www.newsmax.com/streettalk/beijing-olympics-nbc-covid/2022/02/22/id/1057855/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-44.jpg)
 
-编辑/校对/发稿: 卡夫卡的甲壳虫
+外媒21日报道，辉瑞被发现在2011年4月，与一间有中共军方背景的医药公司签署过一份备忘录，目的是为了利用两家公司各自的优势，在中国市场寻求潜在商机，并计划在分销、研发、制造、股权分配等方面进行深度合作。
+
+值得留意的是，除了与辉瑞达成合作协议外，这家位于上海的医药公司，还与中国人民解放军海军医科大学建立了合作伙伴关系，主攻新药及医疗器械的研发工作。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide6-6.jpg)
+另外，报导还指出，辉瑞早前被曝光与中共疫苗护照有密切合作关系，而被外界认为是 SARS-CoV-2 来源的武汉病毒研究所，也被发现与这家解放军海军医科大学有着隶属关系**。**
+
+简单来说，经调查发现，辉瑞、中共军方、中共病毒，这三者之间有着非常可疑且紧密的合作关系。
+
+参考链接：
+[Pfizer Partnered With Wuhan-Linked Chinese Company Supplying ‘Military Combat’ Efforts.](https://thenationalpulse.com/2022/02/21/pfizer-partnered-with-arm-of-chinas-military/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+
+总编/编辑：天滅中共
+校对/发稿：为真不破20
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
 
 

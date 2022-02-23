@@ -2,24 +2,26 @@
 ---
 
 
-## 俄军侵入乌克兰令欧洲局势骤然升级
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2053279/)
+## 行为学临床试验治疗“不打新冠疫苗症状”
+` Little c` [轉載自GNews](https://gnews.org/zh-hans/2053416/)
 
-采编： 风云小哥     编译撰稿：文明(添草灭共)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/04-image-6.png)
-据英国【每日邮报】2月21日报道，当天凌晨在乌克兰[顿涅茨克]地区出现了多辆没有任何国籍标志的装甲车。与此同时，乌克兰军方称在边界线附近遭到了俄方猛烈的炮击，造成两名士兵死亡、12人受伤。
+作者：波士顿五月花 Little c
 
-据悉，［顿涅茨克］和［卢甘斯克］地区位于乌克兰东部，并于2014年在俄罗斯支持的分离主义势力夺取控制权后宣布独立。但其合法性一直未被西方国家承认，多年来都处于一触即发的停火状态。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/vaccine-1200-by-675.jpg)图片来自网络https://greenerpathways.org/
 
-报道称，总统普京于2月21日签署法令，正式支持这两个地区的独立，同时要求俄军方进入该地区执行所谓的“维和任务”。 但欧美等国已明确表示，俄军对乌克兰领土任何形式的入侵都将引发前所未有的强烈制裁。
+在美国国家医学图书馆的临床试验官网上，可以检索到一项22年1月被加入，实际21年底就已经开始实施的项目，名为 “为推广新冠疫苗的信息传递（COVID-19 Messaging for Vaccination）”。
 
-评论指出，俄罗斯此前曾兵不血刃轻易拿下克里米亚。在西方国家对此次侵略的一致沉默和纵容之下，尝到甜头的普京如今再次挑起战争，意图通过占领乌克兰来霸权和掠夺欧洲，并幻想以此与美国分庭抗礼。
+此项目由三位麻省理工的教授主导，合作者包括脸书，斯坦福，哈佛，耶鲁，NIH等9个大公司或顶尖学院；主要目的是通过推送视频和朋友劝说等行为来治疗“不打新冠疫苗症状”，试验样本是新冠疫苗接种率低地区的脸书用户。。
 
-校对编辑：硫酸羟氯喹64
+试验设计了4个样本组。对照组1 用户不会收到任何视频，治疗组2会收到医护人员推广新冠疫苗的视频，治疗组3 会收到医护人员鼓励他们向朋友推广新冠疫苗的视频， 治疗组4 会收到医护人员鼓励他们向最有影响力的朋友推广新冠疫苗的视频。他们将测量不同地区不同年龄组的新冠疫苗及加强针接种率，同时收集新冠疫苗宣传视频在社交媒体上的分享数和观看数。治疗组3和4的用户还可注册成为“疫苗大使”，从而能接收查看最新研究数据的通知，和鼓励朋友接种的提醒，并且可以参加抽奖。
 
-发稿：苦尽甜来 (文来）
+现阶段此项目还在招募中。可见脸书，NIH和顶尖学府还在协力推广疫苗，并在这条路上越走越远。
 
-新闻来源： [https://www.dailymail.co.uk/news/article-10536711/Putin-despatches-armed-forces-two-rebel-held-territories-Ukraine.html?ito=social-twitter\_mailonline](https://www.dailymail.co.uk/news/article-10536711/Putin-despatches-armed-forces-two-rebel-held-territories-Ukraine.html?ito=social-twitter_mailonline)
+参考链接：[COVID-19 Messaging for Vaccination](https://clinicaltrials.gov/ct2/show/record/NCT05182554)
+
+—————————————
+
+编辑/发布：Little c
 
  
 
