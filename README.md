@@ -15,143 +15,143 @@
 
 ---
 
-### [除非特鲁多能够解释紧急情况是什么，否则他是在滥用职权](/content/gnews/1/README.md)
- ` 加拿大温哥华扬帆农场蓝枫法律`
-
-### [学会放下](/content/gnews/2/README.md)
+### [现在钱成了统治人类的工具](/content/gnews/1/README.md)
  ` MG FARM`
 
-### [放下，就是拥有](/content/gnews/3/README.md)
- ` MG FARM`
+### [2/23/2022日本快讯：日本对驻华使馆人员被扣留做出抗议 ;岸田首相与德国总理举行电话会议](/content/gnews/2/README.md)
+ ` 日本银河系农场-阿尔法星球`
 
-### [GTV公告的时候吓死你们](/content/gnews/4/README.md)
- ` MG FARM`
-
-### [要懂得如何投资](/content/gnews/5/README.md)
- ` MG FARM`
-
-### [Gmall完全超出你想象](/content/gnews/6/README.md)
- ` MG FARM`
-
-### [文贵爆料 2.23：病毒+人毒，何处是我家](/content/gnews/7/README.md)
- ` 秘密翻译组-原创组`
-
-### [七哥的破产律师是全美国第一大](/content/gnews/8/README.md)
- ` MG FARM`
-
-### [美国的传奇故事当中一定有一篇曾经破过产](/content/gnews/9/README.md)
- ` MG FARM`
-
-### [有声|灭共路上战友们当争做爆料革命的盖特大V](/content/gnews/10/README.md)
+### [有声|呼喊](/content/gnews/3/README.md)
  ` MOSREC`
 
-### [以法灭共](/content/gnews/11/README.md)
- ` MG FARM`
-
-### [有声|全球疫情、新加坡和中共都走到了十字路口](/content/gnews/12/README.md)
- ` MOSREC`
-
-### [全世界人民团结起来，抵抗暴政，还我自由！](/content/gnews/13/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [有声|达沃斯党利用科学主义危害人类](/content/gnews/14/README.md)
- ` MOSREC`
-
-### [2022年2月23日文贵先生直播摘要及音频—银河系农场](/content/gnews/15/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [日本岸田首相宣布制裁俄罗斯](/content/gnews/16/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [有声|中共打脸“奥运不谈政治”谎言 遭国际谴责](/content/gnews/17/README.md)
- ` MOSREC`
-
-### [欧盟宣布在资产冻结和旅行禁令等方面制裁俄罗斯](/content/gnews/18/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [在普京承认乌克兰分离地区后，华盛顿宣布制裁](/content/gnews/19/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [2022年2月23日，全球中共病毒疫情情况汇总](/content/gnews/20/README.md)
+### [“锁链女”——徐州八孩子事件（一）](/content/gnews/4/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|中共国95后设计师猝死 每日工作超12小时](/content/gnews/21/README.md)
+### [我们的一切一切都是灭掉共产党](/content/gnews/5/README.md)
+ ` MG FARM`
+
+### [放下就是最大的拥有](/content/gnews/6/README.md)
+ ` MG FARM`
+
+### [有声|中共决定制裁向台湾军售的美军工企业](/content/gnews/7/README.md)
  ` MOSREC`
 
-### [美国及世界疫情简报（02-23-2022）](/content/gnews/22/README.md)
- ` 波士顿五月花农场`
+### [除非特鲁多能够解释紧急情况是什么，否则他是在滥用职权](/content/gnews/8/README.md)
+ ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [有声|英首相警告乌克兰或将危及台湾](/content/gnews/23/README.md)
+### [学会放下](/content/gnews/9/README.md)
+ ` MG FARM`
+
+### [放下，就是拥有](/content/gnews/10/README.md)
+ ` MG FARM`
+
+### [GTV公告的时候吓死你们](/content/gnews/11/README.md)
+ ` MG FARM`
+
+### [要懂得如何投资](/content/gnews/12/README.md)
+ ` MG FARM`
+
+### [Gmall完全超出你想象](/content/gnews/13/README.md)
+ ` MG FARM`
+
+### [文贵爆料 2.23：病毒+人毒，何处是我家](/content/gnews/14/README.md)
+ ` 秘密翻译组-原创组`
+
+### [七哥的破产律师是全美国第一大](/content/gnews/15/README.md)
+ ` MG FARM`
+
+### [美国的传奇故事当中一定有一篇曾经破过产](/content/gnews/16/README.md)
+ ` MG FARM`
+
+### [有声|灭共路上战友们当争做爆料革命的盖特大V](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [医生和医学科学家国际联盟呼吁美国结束COVID国家紧急状态](/content/gnews/24/README.md)
- ` 温哥华扬帆农场`
+### [以法灭共](/content/gnews/18/README.md)
+ ` MG FARM`
 
-### [国家媒体：俄罗斯和中共国就1亿吨煤炭供应达成新协议](/content/gnews/25/README.md)
+### [有声|全球疫情、新加坡和中共都走到了十字路口](/content/gnews/19/README.md)
+ ` MOSREC`
+
+### [全世界人民团结起来，抵抗暴政，还我自由！](/content/gnews/20/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [有声|达沃斯党利用科学主义危害人类](/content/gnews/21/README.md)
+ ` MOSREC`
+
+### [2022年2月23日文贵先生直播摘要及音频—银河系农场](/content/gnews/22/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [日本岸田首相宣布制裁俄罗斯](/content/gnews/23/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [有声|中共打脸“奥运不谈政治”谎言 遭国际谴责](/content/gnews/24/README.md)
+ ` MOSREC`
+
+### [欧盟宣布在资产冻结和旅行禁令等方面制裁俄罗斯](/content/gnews/25/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [在普京承认乌克兰分离地区后，华盛顿宣布制裁](/content/gnews/26/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [数据显示接种Covid-19疫苗的妇女死产和流产的风险显著增高](/content/gnews/26/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [2022年2月23日，全球中共病毒疫情情况汇总](/content/gnews/27/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [文贵大直播要点（2022年2月23日）](/content/gnews/27/README.md)
+### [美国及世界疫情简报（02-23-2022）](/content/gnews/28/README.md)
  ` 波士顿五月花农场`
 
-### [如何查看新冠疫苗批次有多坏？](/content/gnews/28/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [有声|日媒解析中共冬奥会所暴露的人权问题](/content/gnews/29/README.md)
- ` MOSREC`
+### [数据显示接种Covid-19疫苗的妇女死产和流产的风险显著增高](/content/gnews/29/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [2022.2.23大直播 爆料革命用真相唤醒世界 郭文贵先生呼唤国人醒来](/content/gnews/30/README.md)
  ` 秘密翻译组-原创组`
 
-### [文贵大直播 2/24 世界巨变已开始 美俄中欧鹿死谁手](/content/gnews/31/README.md)
+### [疫 苗 二三事](/content/gnews/31/README.md)
+ ` XINYUAN`
+
+### [文贵大直播 2/24 世界巨变已开始 美俄中欧鹿死谁手](/content/gnews/32/README.md)
  ` 秘密翻译组-原创组`
 
-### [继美英加欧盟之后，日本宣布制裁俄罗斯](/content/gnews/32/README.md)
+### [继美英加欧盟之后，日本宣布制裁俄罗斯](/content/gnews/33/README.md)
  ` 首尔天池农场`
 
-### [新中国联邦的教育项目将由郭先生直接负责](/content/gnews/33/README.md)
+### [新中国联邦的教育项目将由郭先生直接负责](/content/gnews/34/README.md)
  ` NFSC News`
 
-### [习近平用金钱给予普京精神安慰](/content/gnews/34/README.md)
+### [习近平用金钱给予普京精神安慰](/content/gnews/35/README.md)
  ` NFSC News`
 
-### [郭先生谈乌克兰危机及其鲜为人知的背景](/content/gnews/35/README.md)
+### [郭先生谈乌克兰危机及其鲜为人知的背景](/content/gnews/36/README.md)
  ` NFSC News`
 
-### [疫苗灾难过后，三件大事将改变世界格局](/content/gnews/36/README.md)
+### [疫苗灾难过后，三件大事将改变世界格局](/content/gnews/37/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [有声|雷洋之死暴露中共公检法黑幕](/content/gnews/37/README.md)
+### [有声|雷洋之死暴露中共公检法黑幕](/content/gnews/38/README.md)
  ` MOSREC`
 
-### [美国的卡车司机也准备涌向华盛顿抗议](/content/gnews/38/README.md)
+### [美国的卡车司机也准备涌向华盛顿抗议](/content/gnews/39/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [2022/02/21 墙内世界](/content/gnews/39/README.md)
+### [2022/02/21 墙内世界](/content/gnews/40/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [英国宣布周四起解除所有防疫限制](/content/gnews/40/README.md)
+### [英国宣布周四起解除所有防疫限制](/content/gnews/41/README.md)
  ` NFSC News`
 
-### [先锋和黑石 与中共病毒及疫苗强制关系密切](/content/gnews/41/README.md)
+### [先锋和黑石 与中共病毒及疫苗强制关系密切](/content/gnews/42/README.md)
  ` NFSC News`
 
-### [外媒发现辉瑞与中共军方存在某种可疑的紧密合作关系](/content/gnews/42/README.md)
+### [外媒发现辉瑞与中共军方存在某种可疑的紧密合作关系](/content/gnews/43/README.md)
  ` NFSC News`
 
-### [2/23/2022 国际财经快讯：法国财长认为俄罗斯制裁对法国经济的影响有限；油价企稳，因俄乌供应担忧减弱](/content/gnews/43/README.md)
+### [2/23/2022 国际财经快讯：法国财长认为俄罗斯制裁对法国经济的影响有限；油价企稳，因俄乌供应担忧减弱](/content/gnews/44/README.md)
  ` 秘密翻译组金融团队`
 
-### [魔鬼契约：用少数人制造的资产泡沫“财富”来代替普遍的繁荣](/content/gnews/44/README.md)
+### [魔鬼契约：用少数人制造的资产泡沫“财富”来代替普遍的繁荣](/content/gnews/45/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [秘翻在线：中共国面临粮食不安全 规模性返贫的困境](/content/gnews/45/README.md)
+### [秘翻在线：中共国面临粮食不安全 规模性返贫的困境](/content/gnews/46/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [DC每日热点0223](/content/gnews/46/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 
 ### [普京出兵乌克兰东部引发世界经济动荡](/content/gnews/47/README.md)
  ` NFSC News`
