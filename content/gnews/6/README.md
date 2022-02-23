@@ -2,40 +2,29 @@
 ---
 
 
-## 来自地狱的宣言，“我就是地狱”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2051482/)
+## 受贿超9.795亿！中信银行原行长孙德顺受审
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2051522/)
 
-撰稿：东京樱花团/加一颗稻草
+![](https://assets.gnews.org/wp-content/uploads/2022/02/383b-56d01e8c08397bc4a66666bc8e19c6eb1.jpg)图片来源：中共国新闻网
+据中共国新闻网2月22日报道，山东省济南市中级人民法院22日一审公开开庭审理了中信银行原党委副书记、行长孙德顺受贿一案。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/来自地狱的声音，江苏省调查组的通报.jpg)[图片来源](https://bowenpress.com/news/bowen_334523.html)
+济南市人民检察院指控被告人孙德顺利用职务之便，在2003年至2019年期间，在贷款审批等事项上非法收受财物共计折合人民币9.795亿余元。孙德顺及其辩护人到庭进行了最后陈述，并当庭认罪。法庭宣布休庭，择期宣判。
 
-中共毫无廉耻的撒谎和欺骗，正如索尔仁尼琴所言：
+从中共的镰刀旗竖起来的那时起，镰刀所到之处，肥老鼠、瘦韭菜被连根割起。党旗是用无数人的鲜血染红的，只要这面魔旗不倒，人人不能幸免。贪污的钱要吐出来，老百姓的资产要交出来，利益都归党所有，有谁胆敢反抗，杀无赦。
 
-我们知道你们在撒谎，
+新闻参考链接：[https://finance.sina.cn/2022-02-22/detail-imcwiwss2367812.d.html?from=wap](https://finance.sina.cn/2022-02-22/detail-imcwiwss2367812.d.html?from=wap)
 
-你们知道自己在撒谎，
+* * *
 
-你们知道我们知道你们在撒谎，
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-我们知道你们知道我们知道你们在撒谎，
 
-但是你们依旧在撒谎。
+编辑：【英国伦敦喜庄园编辑部】
 
-用指鹿为马的手段制造白色恐怖，控制国内舆论。江苏省发布的“丰县生育八孩女子”事件通报，不啻于来自地狱的宣言，向世界宣告，“我就是地狱”。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-有人问莫言，人死了会见到地狱吗？
-
-莫言回答，你活着就可以见到地狱。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/来自地狱的声音，江苏省调查组的通报2.jpg)
-
-信息来源：
-
-[江苏省委省政府调查组发布“丰县生育八孩女子”事件调查处理情况通报](http://www.news.cn/politics/2022-02/23/c_1128407989.htm)
-
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

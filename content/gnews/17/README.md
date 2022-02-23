@@ -2,31 +2,32 @@
 ---
 
 
-## 部分两党国会议员提醒拜登遵循《战争权力法》
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2051381/)
+## 中共违反《维也纳公约》拘留日本驻北京大使馆人员
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2051421/)
 
-#### 撰稿：彩虹 
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/02/02234.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fp9-bk.byteimg.com%2Ftos-cn-i-mlhdmxsy5m%2F864cbb899d504df094be4a96a199fc1e~tplv-mlhdmxsy5m-q75%3A0%3A0.image&amp;imgrefurl=https%3A%2F%2Fwww.baike.com%2Fwikiid%2F2698824681327101943%3Ffrom%3Dwiki_content%26prd%3Dinnerlink&amp;tbnid=vrpBwCkONA3jeM&amp;vet=12ahUKEwicqOvzmJX2AhXeQfUHHb1GBH8QMygGegUIARCwAQ..i&amp;docid=hTzE1V46HQQD1M&amp;w=601&amp;h=400&amp;q=%E6%97%A5%E6%9C%AC%E9%A9%BB%E5%8C%97%E4%BA%AC%E5%A4%A7%E4%BD%BF%E9%A6%86&amp;ved=2ahUKEwicqOvzmJX2AhXeQfUHHb1GBH8QMygGegUIARCwAQ)
+日本驻北京大使馆一名馆员2月21日在从事一般外交活动时，突然遭到中共国当局拘留，随后在当天获释。日本外务大臣林芳正22日表示已透过外交管道向中共当局提出严正抗议，对此事“无论如何都不能忽视，绝对无法接受”。
 
-#### 责编：白夜 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/16455972771.png)图片来源：雅虎新闻
-2月22日，《国会山报》发表文章，报道乌克兰紧张局势升级之际，一群两党立法议员周二致函拜登总统，提醒他在出兵或发动军事攻击之前必须寻求国会的授权。
+日本外务省事务次官森健良22日晚间在位于东京的外务省召见中共国驻日临时代理大使杨宇，森建良对此表达严正抗议，认为中共国已明显违反《维也纳公约》，要求中共国道歉并防止再度发生类似事件；杨宇回应将转达给中共国政府。
 
-这个由43名立法者组成的两党小组承认，拜登此前曾表示不会向乌克兰派兵，但也提示说这一决定可能会改变。
+对于日方的抗议，中共国驻日本大使馆发言人23日表示，“我们不会接受日方的提议，日方应尊重中国法律。”
 
-信中写道：“如果目前的局势迫使你将我们军队中勇敢的男女派入乌克兰，那么如果俄罗斯选择入侵，他们的生命将必然面临危险。因此，我们要求你的决定符合宪法和我们国家的法律，在任何此类进展行动之前与国会协商以获得授权。”
+《维也纳公约》规定外交特权与豁免权等事项，包括外交官不受驻在国拘捕。
 
-该信由众议院议员南希·梅斯（Nancy Mace）签署。南希·梅斯、普拉米拉·贾亚帕尔（Pramila Jayapal）、伊尔汗·奥马尔（Ilhan Omar）、马特·盖茨（Matt Gaetz）和沃伦·戴维森（Warren Davidson）等人在信中签名。
+日本驻中共国大使垂秀夫在22日晚间也前往中共国外交部，向部长助理吴江浩表达严正抗议。
 
-众议员彼得·德法齐奥（Peter DeFazio）在推特上分享了这封信，他写道，拜登应该“遵循宪法和法律”，“ 在我们卷入另一场外国冲突之前，美国人民应该有发言权。”
+垂秀夫在馆员被逮捕的21日即安排并通知要赴中共国外交部抗议，因中共国方面的因素，于22日晚间进行。外务省相关人士说，这名馆员是在从事一般外交活动时，遭中共国当局以违反《维也纳公约》的形式拘留，此事可能对今后的外交活动造成深刻影响；至于该馆员进行的业务内容则不便透露。
 
-报道说，迄今为止，拜登一直抵制派兵进入乌克兰，但是宣布将美国士兵调入其他北约国家，包括爱沙尼亚、拉脱维亚和立陶宛。在本月早些时候，拜登将160名美军调离了乌克兰。
+消息来源:
 
-在周二的信中，议员们还写道，1973年的《战争权力法》（War Powerss Act）已经被前几任总统不尊重。该法案不仅限制拜登参战，而且还限制他发动“先发制人的打击”。
+[日本駐北京大使館外交官一度遭拘留 日外相嚴正抗議控中方違反維也納公約](https://tw.news.yahoo.com/%E6%97%A5%E6%9C%AC%E9%A7%90%E5%8C%97%E4%BA%AC%E5%A4%A7%E4%BD%BF%E9%A4%A8%E5%A4%96%E4%BA%A4%E5%AE%98%E4%B8%80%E5%BA%A6%E9%81%AD%E6%8B%98%E7%95%99-%E6%97%A5%E5%A4%96%E7%9B%B8%E5%9A%B4%E6%AD%A3%E6%8A%97%E8%AD%B0%E6%8E%A7%E4%B8%AD%E6%96%B9%E9%81%95%E5%8F%8D%E7%B6%AD%E4%B9%9F%E7%B4%8D%E5%85%AC%E7%B4%84-020410339.html)
 
-**新闻来源**
+[中国、日本大使館員を一時拘束「身分にそぐわぬ活動に従事」…日本は謝罪要求](https://www.yomiuri.co.jp/world/20220223-OYT1T50076/)
 
-[Lawmakers urge Biden to ask Congress before sending military to Ukraine](https://thehill.com/policy/international/595412-lawmakers-urge-biden-to-ask-congress-before-sending-troops-to-ukraine?rl=1)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

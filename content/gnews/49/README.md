@@ -2,40 +2,22 @@
 ---
 
 
-## 拜登宣布对俄罗斯实施第一批制裁
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2050532/)
+## 国际｜以“入侵”定调俄罗斯 美国出手制裁
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2050691/)
 
-美国总统拜登：
+**撰文/ 港台前线｜发布日期/ 23/02/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/以「入侵」定調俄羅斯-美國出手制裁.jpg)
+**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
 
-今天，在与我们的盟友和伙伴的密切协调下，我宣布对俄罗斯实施第一批制裁，让俄罗斯为昨天的行动付出代价。 随着俄罗斯的升级，我们将继续加强制裁。我们正在对俄罗斯两家大型金融机构——俄罗斯国家开发银行和他们的军事银行——实施全面的封锁性制裁。我们正在对俄罗斯主权债务实施全面制裁。 这意味着我们已经切断了俄罗斯政府在西方的融资。 它再也无法从西方筹集资金，也无法在我们的市场或欧洲市场交易其新的债务。从明天开始——并在未来持续的日子里——我们还将对俄罗斯精英和他们的家人实施制裁。 他们分享了克里姆林宫政策的腐败收益，也应该分享痛苦。由于俄罗斯的行动，我们已经与德国合作，以确保北溪2号项目不会继续推进。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/bd.png)
+继英国之后，美国总统拜登22日宣布首轮制裁俄罗斯的名单，包括俄罗斯主权债、两间主要银行及俄罗斯权贵及其家属。欧盟方面亦宣布制裁俄罗斯，对象包括俄罗斯国会杜马全体议员，以及27名个人及实体，涉及国防、金融以及银行界。
 
+在美国本轮制裁措施当中，最严厉的相信就是针对俄罗斯主权债的这项，该措施禁止美国金融机构与俄主权债基金进行股票交易，或向后者贷款。
 
-> Today, in close coordination with our Allies and partners, I am announcing the first tranche of sanctions to impose costs on Russia in response to yesterday’s actions. 
->  
-> We will continue to escalate sanctions as Russia escalates.
-> — President Biden (@POTUS) [February 22, 2022](https://twitter.com/POTUS/status/1496218939847847951?ref_src=twsrc%5Etfw)
+另外，负责俄罗斯国家项目的俄罗斯国有开发银行（VEB.RF）、为受制裁国防工业服务的军方银行Promsvyazbank，以及它们的42间子公司，也被悉数纳入本次的制裁名单。未来美国各金融机构禁止处理与被制裁银行进行交易，将两行排除在美元交易之外。拜登指出，上述两方面的制裁均可切断俄罗斯政府在西方融资，使俄罗斯无法从西方集资，或在欧美市场交易新债。
 
+不仅如此，Promsvyazbank行政总裁Petr Fradkov、第一副幕僚长Sergei Kiriyenko，以及普京挚友兼联邦安全局（FSB）局长Aleksandr Bortnikov 三人同时被制裁。拜登宣布制裁时，首次以“入侵”形容俄罗斯对乌东的行动，同时表示，若俄罗斯继续侵略乌克兰，美国不排除会祭出更多制裁措施。
 
-
-比尔·格茨： 中共国官方媒体对冲进乌克兰的俄罗斯坦克保持沉默。北京间接支持普京，外交部发言人称莫斯科对北约有“正当”担忧，尤其是没有谴责俄罗斯将两块地区宣布为独立国家。 【附华盛顿邮报文章：中共国说：莫斯科对北约有“正当”的安全担忧】
-
-
-
-> China state media silent on Russian tanks rolling into Ukraine. Beijing indirectly backs Putin with Foreign Ministry spokesman saying Moscow has “legitimate” concerns on NATO and, notably, fails to condemn Russia declaring 2 enclaves independent states [https://t.co/mCoz9dUv30](https://t.co/mCoz9dUv30)
-> — Bill Gertz (@BillGertz) [February 22, 2022](https://twitter.com/BillGertz/status/1496245139299180546?ref_src=twsrc%5Etfw)
-
-
-
-前国务卿蓬佩奥： 弗拉基米尔·普京还是我们执政期间的那个他。 唯一改变的是美国的领导地位。
-
-
-
-> Vladimir Putin is the same person he was during our administration.
-> The only thing that has changed is American leadership.
-> — Mike Pompeo (@mikepompeo) [February 22, 2022](https://twitter.com/mikepompeo/status/1496202661196140549?ref_src=twsrc%5Etfw)
-
-
+来源｜[AJ](https://www.aljazeera.com/news/2022/2/22/biden-imposes-new-russia-sanctions-decries-beginning-invasion)
 
  
 
