@@ -2,46 +2,46 @@
 ---
 
 
-## 在压制渥太华国会山自由和平抗议活动时，一些有良知的渥太华警察在将示威抗议者逮捕后做出了善意的举动
-` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/2050409/)
+## 欧盟六国派专家帮助乌克兰应对网络威胁
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2050489/)
 
-#### 加拿大温哥华扬帆农场 视频组
+作者：纽约香草山农场 – 四季
 
-素材：杰尼龟
-翻译：Kent
-字幕：路仁
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-2022年2月19日，一名被警察逮捕后迅速释放了的渥太华示威者对镜头讲述了这段经历：
 
-拍摄者：从队列里把你拉出来？
 
-抗议者：我们在队列中，警察推我们，我们站在那里坚持我们的和平抗议，他们最后把我拖了出来，并用手铐铐住我，让我站起来，然后走出队列。
 
-拍摄者：他们有没有对你说什么？
 
-抗议者：他们说：你将被指控妨碍司法。
+据[ONA网站](https://www.oann.com/six-eu-countries-send-experts-to-help-ukraine-deal-with-cyber-threats/)2月22日援引路透社报道，立陶宛国防部副部长周二表示，在俄罗斯正式承认乌克兰东部的两个分离地区后，应乌克兰周一提出的请求，六个欧盟国家——立陶宛、荷兰、波兰、爱沙尼亚、罗马尼亚、克罗地亚将向乌克兰派出一个网络安全专家小组，帮助其应对网络威胁。
 
-拍摄者：罚单是多少钱？
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-22T142234Z_1_LYNXMPEI1L0NO_RTROPTP_0_UKRAINE-CRISIS-CYBER_1.jpg)在2022年2月15日拍摄的这幅插图中，在 “网络攻击”、二进制代码和乌克兰国旗的前面，可以看到带有电脑和智能手机的小雕像。（REUTERS/Dado Ruvic/Illustration/File Photo）
 
-抗议者：没有罚单。
+美国和英国周五均表示，俄罗斯军事黑客是一连串分布式拒绝服务（DDoS）攻击的幕后黑手，这些攻击使乌克兰银行和政府网站短暂瘫痪。英国国防部长本·华莱士周一表示，英国的网络专家正在与乌克兰合作，以帮助保护其免受俄罗斯活动的影响。
 
-拍摄者：那么他们控告了你，然后发生了什么？
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2月.jpg)
 
-抗议者：他们在一个记事本上写了字。
+编辑/校对/发稿：小鹿
 
-拍摄者：然后呢，他们拿了你的身份证？
 
-抗议者：他们拿走了我口袋里的东西，放在一个袋子里，就是这个。
 
-拍摄者：我会把这段录像发出去，是的，所以他们逮捕了你，然后呢？
+**更多资讯，更多关注**
 
-抗议者：他们逮捕了我，把我塞进警车里然后在大街上开了大概20分钟，把我丢在商场门口的路边，只说了一句：回头见。
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-拍摄者：就这样吗？
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-抗议者：就是这样，所以不要害怕。
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-编辑/发文：Kent
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 

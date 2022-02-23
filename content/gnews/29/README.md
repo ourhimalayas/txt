@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：各扫门前雪有道理吗？
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2050047/)
+## 七哥金句：沟通是一种表态
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2050070/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句3-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句4-1.png)
 整理：雅典娜农场
 发布：枫叶红了
 
