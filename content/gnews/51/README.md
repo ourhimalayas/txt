@@ -2,32 +2,25 @@
 ---
 
 
-## 中日财经爆|金价触及九个月来高位 铂金类也大幅上涨
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2051004/)
+## COVID-19 最新情報｜英國31歲樂壇紅人突發心臟病去世 網民追究死亡真相
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2050870/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片5-3.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.businessamlive.com%2Fwp-content%2Fuploads%2F2020%2F07%2Fgold-gain.jpg&amp;imgrefurl=https%3A%2F%2Fwww.businessamlive.com%2Fgold-heads-for-sixth-weekly-gain%2F&amp;tbnid=WtCzC_EEcLdpaM&amp;vet=12ahUKEwid49Gq_ZT2)
-金价周二（2月22日)触及近九个月来最高水平，但随后回落，投资者等待乌克兰危机进展，他们重新将金价定位在每盎司1,900美元的关键关口附近。
+**撰文｜疫情關注組 / 發佈時間｜23/02/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/英國31歲樂壇紅人突發心臟病去世-網民追究死亡真相.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：**[**https://gettr.com/post/pl6k0218bf**](https://gettr.com/post/pl6k0218bf)**)**
 
-1906 GMT，现货金下跌0.2%，报每盎司1,902.71美元，此前触及6月1日以来最高1,913.89美元。美国黄金期货上涨0.4%，至1,907.40美元。
+英國樂壇紅人兼 YouTube 明星，今年31歲的賈馬爾·愛德華茲（Jamal Edwards）據報於上週日（20日）死於他位於倫敦西部的住所。
 
-现货银上涨1.1%，至每盎司24.19美元，此前触及一个月高位24.35美元。
+起初，外界都沈浸在對死者的惋惜之中，直到賈馬爾的母親，女星布倫達·愛德華茲（Brenda Edwards）在向公眾證實兒子死訊時，無意中透露，賈馬爾的死亡是「突然疾病」引起的，而他從小到大的親密好友德韋恩（Dwayne）則更具體指明，所謂的「突發疾病」是「突發心臟病」。
 
-“鉴于与(主要生产国)俄罗斯的紧张关系加剧，有理由担心铂金类金属的供应链，” 投资管理公司High Ridge的Meger表示。
+不僅如此，德韋恩還提到，就在離世的前一天晚上，賈馬爾還應邀去酒吧打碟，當時他的狀態相當好，而且相識多年，從未聽說他的心臟有問題。德韋恩向媒體表示：「賈馬爾是倫敦西部地區的傳奇人物，他的離世對我們所有人的打擊都很大，何況他正值壯年，為何會如此突然地走了，真是令人震驚。」
 
-钯金跌0.8%，报2,368.84美元，稍早曾触及1月31日以来最高，报2,433美元。
+賈爾馬死於「突發心臟病」的消息立即引起全球網民的注意，更將「賈馬爾死因（Jamal Edwards cause of death）」迅速頂上推特熱搜.
 
-铂金上涨0.1%，报1,075.09美元。
+有人質疑，為什麼搜遍全網都找不到賈馬爾的疫苗接種情況，但若賈馬爾沒有接種疫苗，他根本不可以在死前一天的晚上能夠出席酒吧演奏。另外還有網民斥責當局和媒體聯手掩蓋死因是不顧公眾利益的表現，倘若疫苗真的有問題，更應該公開，讓還未發病的人儘早得到治療，避免悲劇重演。
 
-知情人士表示，如果俄罗斯进一步入侵乌克兰，美国政府可能会阻止俄罗斯获得大量低科技和高科技的美国和外国制造产品，涉及从商业电子产品和电脑到半导体和飞机零部件等一系列产品。
+來源｜[MyLondon](https://www.mylondon.news/news/uk-world-news/jamal-edwards-died-sudden-heart-23175406)
 
-消息来源:
-
-[金价触及九个月高位后回落 投资者关注乌克兰局势发展](https://cn.reuters.com/article/global-precious-metals-0222-tues-idCNKBS2KS009?il=0)
-
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

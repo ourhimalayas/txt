@@ -2,36 +2,24 @@
 ---
 
 
-## 普京出兵乌克兰东部引发世界经济动荡
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2053271/)
+## 视频|英首相警告乌克兰或将危及台湾
+` MOSvideo` [轉載自GNews](https://gnews.org/zh-hans/2053354/)
 
-作者：纽约香草山农场 – Noemi
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月21日，据相关媒体消息显示，俄罗斯总统普京于此前一天承认了乌克兰东部的两个分离地区已经独立，随后，其立即下令俄罗斯国防部向它们派遣了所谓的“维和”部队。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/10-18.jpg)
-有目击者表示，俄罗斯的坦克等军事装备目前已经穿过了分离主义控制的城市——顿涅茨克。同时，普京的这些举动加剧了西方对于乌俄之间发生重大战争的担心。
+制作：香草山视频部
 
-另一方面，随着乌克兰军事危机的升级，世界经济也正在经历着巨大的动荡。据悉，全球的石油价格眼下已经跃升至七年以来的最高水平；而日元等避险货币则出现大幅反弹；此外，美、欧地区的股票和期货近期持续暴跌。数据表明，在普京发表讲话时，卢布的跌幅一度超过17%，滑落至每美元可兑换80卢布有余。
+2月19日，海外媒体报导，英国首相鲍里斯•约翰逊在慕尼黑安全会议上针对目前俄乌情势发表言论，他表示：在乌克兰受到入侵、威胁时，如果西方国家不能兑现支持乌克兰主权的承诺，无异于在对全球宣告，俄罗斯的行为可能是正确的。这将对包括台湾在内的民主国家造成破坏性的后果。美国众议院情报委员会主席、众议员亚当•希夫也有类似的看法，
 
-此前 ，郭文贵先生曾在盖特中评论称，无论俄乌局势怎样变化，俄、美、欧三方最终会达成合作协议。但在这场军事危机的背后，经济损失最惨重的一定会是中共国和全球所有的普通民众。
+当前，尽管俄罗斯否认准备入侵乌克兰，但由俄罗斯军队在乌克兰边境附近集结，总统普京已经启动战略核导弹部队演习的态势看来，普京的意图仍很难预测，俄乌危机仍很严峻。
 
-参考链接：
-1) .[Putin orders troops to Ukraine after recognizing breakaway regions](https://www.reuters.com/markets/europe/kremlin-says-no-concrete-plans-summit-with-biden-over-ukraine-2022-02-21/)
-2) . [2/21/2022 文贵盖特：中共体制内官员也知中共大势已去；俄美总统要会面，普京是否会弃习投美欧？](https://www.gettr.com/post/pw07zs2799)
+约翰逊认为，在中共一直将台湾视为其领土的一部分，并且不排除使用武力犯台的情况下，西方国家面对俄罗斯入侵乌克兰问题的态度，将会对后续台海情势发展或危机产生不可轻忽影响力。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
-
-总编: Irene木木
-编辑: 飞虹
-校正/发稿：Fei797
+发稿：谐趣园
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
