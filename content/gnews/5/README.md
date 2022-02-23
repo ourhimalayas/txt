@@ -2,8 +2,8 @@
 ---
 
 
-## 只要我们赢，共产党就疯狂黑七哥
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2054855/)
+## 根本不用理会共产党怎么说,只要看它怎么愚蠢的行动
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2054870/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
