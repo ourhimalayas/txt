@@ -2,24 +2,20 @@
 ---
 
 
-## 日媒斥责中共冬奥会是习和普京的政治勾兑
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2053254/)
+## 2022年北京冬奥会的收视率为历史最低
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2053345/)
 
-作者: 日本方舟农场 Andy5
+作者: 首尔天池农场-zzballack
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/good-45.png)
-当地时间2月18日，日媒从四个方面斥责本次中共冬奥会，就是习近平和普京上演的一场赤裸裸的政治勾兑。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-23-at-9.58.38-PM.png)图片来源: Gettr(@AndySaiKai)
-第一，普京是唯一一个在2月4日，就跟习近平会晤的国家元首。并且从下飞机到跟习近平的会晤，所有媒体拍摄到的影像中，普京均未佩戴口罩，这显示出习近平为首的中共政权在对墙内进行高压式动态清零的同时，给了普京一个特权。
+据《新闻极限》2月22日援引《华尔街日报》报道说，NBC环球自数十年前开始转播奥运会以来，北京冬奥会的观看人数是最少的，黄金时段的平均观众人数只有1140万人，比2018年的平昌冬奥会下降了42%。相较之下，NBC的超级碗直播吸引了1.12亿名观众。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/aa52bc8739856499e619c6e48a4f40d3_500x0.jpeg)图片来源: Gettr (@JeffS1)
+为了弥补观众少的问题，在为期两周多的时间里，NBC环球为广告商提供了额外的广告播放时间，这些广告通过NBC环球的电视、有线网络和流媒体平台播出。
 
-第二，尽管中共以免除债务、承诺继续扩大投资的方式，引诱很多国家领导人逗留了3天左右，但习近平用天然气大单和以卢布进行交易，仅换得普京逗留9小时的待遇。这凸显了普京的出场费极其昂贵，以及普京出席冬奥会开幕式的目的，仅仅是为了获取资金支持。
+NBC体育集团总裁皮特·贝瓦茨夸将人们对比赛缺乏兴趣归因于中共国“异常严厉的”防疫协议、看台上几乎没有观众以及一些奥运选手戴着防护口罩等等。鉴于大流行病源自中共国，今年的广告商选择低调行事，回避文化或社会问题。
 
-第三，虽然联合国明文规定，奥运前后各国应该暂停纷争，然而作为东道主的习近平，并没有阻止普京对乌克兰的威胁，还违背常理地将普京作为最高国宾进行礼遇。
-
-最后，因兴奋剂问题而被禁止以国家队名义参赛的俄罗斯，本就没有资格派出领导人参与开幕式。然而在此问题上，不仅是习近平，就连国际奥委会主席巴赫都默不作声，突显出本次冬奥会的政治操弄。嘉宾还特别指出，虽然在北京市内怎么会晤，属于习近平和普京的自由，但是邀请普京出席冬奥会开幕式，就不符合情理也不符合法理。
-
-参考链接: [https://www.gettr.com/post/pw3jzh830f](https://www.gettr.com/post/pw3jzh830f)
+新闻链接: [https://www.newsmax.com/streettalk/beijing-olympics-nbc-covid/2022/02/22/id/1057855/](https://www.newsmax.com/streettalk/beijing-olympics-nbc-covid/2022/02/22/id/1057855/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-44.jpg)
 
@@ -36,8 +32,6 @@
 [**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
-
-
 
 
 

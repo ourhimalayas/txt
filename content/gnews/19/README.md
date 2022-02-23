@@ -2,39 +2,34 @@
 ---
 
 
-## 欧盟理事会主席以环保为由继续与中共勾兑
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2053035/)
+## 疫情次生灾难给英格兰人带来心理健康问题
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2053214/)
 
-作者: 银河系农场—骄子
+作者：台灣寶島農場 – 尋文客
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月21日，据相关媒体消息显示，英格兰的卫生官员警告称，由于当地在中共病毒疫情中实行的封锁措施，英格兰预计有一千万人，包括150万儿童和青少年将因此遭受精神健康问题的困扰。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8-30.jpg)
+研究人员指出，自中共病毒开始以来，当地因心理健康问题而需要紧急治疗的儿童人数增加了52%，同期患有饮食失调的18岁以下儿童也增加了72%。另外，英格兰有160万人正在等待接受心理健康方面的专业治疗，其余还有八百万需要专业治疗的患者尚未进入等待名单。
 
+对此，分析人员表示，中共病毒疫情的封锁措施已经对大量英格兰人民的精神健康造成了不利的影响，同时，大量患者的积压已经让英格兰部分地区的精神健康专家不堪重负。至于许多缺乏足够护理的患者，他们的未来也令人担忧。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-45.png)
-2月20日在慕尼黑安全会议上，欧盟理事会主席米歇尔声称欧洲若想克服气候和数字隐私方面的障碍，就必须和中共合作，建立更深层的经济联系。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GettyImages-619435300-640x480-1.png)图片来源: Getty Images
-欧洲高层人士只是口头上表示会支持解决中共国迫害人权的行为，但1200亿欧元的投资协议并未涉及新疆、香港、西藏乃至整个中共国大陆的人权迫害行为，同样也并未要求中共在工厂和农田中解除现代奴隶制，并暗示中共可以继续执行强制劳工的政策。
+目前，英格兰的卫生官员已经将当地民众精神健康问题的现状称为“第二次大流行”。
 
-在过去一个月中，因立陶宛的坚持，欧盟开始对中共采取强硬的立场，但德国的一些派别仍不愿与中共对抗，他们害怕失去中共所谓的巨大市场。另外欧盟-中共投资条约的主导者正是德国的前总理默克尔，德国大众、Hugo boss、宝马等公司都从新疆强迫劳工中获利。德国一直要求立陶宛放弃与中共对抗，因立陶宛收到中共的制裁，影响到德国的整个供应链。欧盟理事会主席米歇尔一直支持与共产党深度勾兑。在中共支持的塔利班占领阿富汗美国无奈撤出之后，米歇尔表示既支持美国，也支持中共。
+参考链接：[‘Second Pandemic’ – 10 Million Britons Need Mental Health Care After Lockdowns](https://www.breitbart.com/europe/2022/02/21/second-pandemic-10-million-britons-in-need-mental-health-treatment/)
 
-新闻链接: [https://www.breitbart.com/europe/2022/02/21/eu-council-president-shills-for-trade-deal-with-communist-china/](https://www.breitbart.com/europe/2022/02/21/eu-council-president-shills-for-trade-deal-with-communist-china/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-43.jpg)
-
-编辑/校对/发稿: 卡夫卡的甲壳虫
+总编: Irene木木
+编辑: 谐趣园/静言 
+校正/发稿：Fei797
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
-
-
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

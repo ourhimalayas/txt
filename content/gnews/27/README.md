@@ -2,23 +2,36 @@
 ---
 
 
-## 视频｜中共决定制裁向台湾军售的美军工企业
-` MOSvideo` [轉載自GNews](https://gnews.org/zh-hans/2052820/)
+## 欧盟理事会主席以环保为由继续与中共勾兑
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2053035/)
 
-制作：香草山视频部
+作者: 银河系农场—骄子
 
-**2月21日，中共外交部发言人汪文斌在例行记者会上宣称，美国向台湾地区出售武器，严重违反一个中国的原则和中美联合公报817公报的规定，严重损害中国主权、中美关系和台海和平稳定，称中共政府决定对长期参与美国向台湾地区出售武器的美国军工企业——雷神技术公司和洛克希德·马丁公司——的行为实施反制。**
 
-**据悉，美国国务院2月7日批准了一项对台出售1亿美元的爱国者系统的计划，这是拜登政府执政以来第二次批准对台军售计划。**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-45.png)
+2月20日在慕尼黑安全会议上，欧盟理事会主席米歇尔声称欧洲若想克服气候和数字隐私方面的障碍，就必须和中共合作，建立更深层的经济联系。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GettyImages-619435300-640x480-1.png)图片来源: Getty Images
+欧洲高层人士只是口头上表示会支持解决中共国迫害人权的行为，但1200亿欧元的投资协议并未涉及新疆、香港、西藏乃至整个中共国大陆的人权迫害行为，同样也并未要求中共在工厂和农田中解除现代奴隶制，并暗示中共可以继续执行强制劳工的政策。
 
-**中共也不是第一次叫嚣对美国企业实施制裁了，2020年10月，中共就曾声称对雷神、波音等公司进行制裁。不过，有观察人士指出，始终没有看到有数据资料显示所谓“中共制裁”对美国企业产生何种影响。这种虚张声势的“制裁”恐怕最终只能沦为全球的笑柄。**
+在过去一个月中，因立陶宛的坚持，欧盟开始对中共采取强硬的立场，但德国的一些派别仍不愿与中共对抗，他们害怕失去中共所谓的巨大市场。另外欧盟-中共投资条约的主导者正是德国的前总理默克尔，德国大众、Hugo boss、宝马等公司都从新疆强迫劳工中获利。德国一直要求立陶宛放弃与中共对抗，因立陶宛收到中共的制裁，影响到德国的整个供应链。欧盟理事会主席米歇尔一直支持与共产党深度勾兑。在中共支持的塔利班占领阿富汗美国无奈撤出之后，米歇尔表示既支持美国，也支持中共。
 
-发稿：小野貓（文凱琳）
+新闻链接: [https://www.breitbart.com/europe/2022/02/21/eu-council-president-shills-for-trade-deal-with-communist-china/](https://www.breitbart.com/europe/2022/02/21/eu-council-president-shills-for-trade-deal-with-communist-china/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-43.jpg)
+
+编辑/校对/发稿: 卡夫卡的甲壳虫
 
 **更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
 
 

@@ -2,104 +2,32 @@
 ---
 
 
-## 当高盛严重错失收益时，这是一个不好的迹象 这比我们想象的还要糟糕——这就是股票下跌如此之多的原因
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1903019/)
+## 流氓媒体Vice不失时机地对班农和郭文贵先生进行负面报道
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2016475/)
 
-[https://gtv.org/video/id=61ec007c87664c47acd85060](https://gtv.org/video/id=61ec007c87664c47acd85060)
+#### 翻译：  Evalu
 
-**Steve Bannon
-史蒂夫·班农**
+#### 校对：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/02/16450421331.png)图片来源： www.dwnews.com
+**流氓媒体Vice，刚刚因该媒体妓者杨贝贝（Isobelyeung）颠倒黑白的扭曲报道被郭文贵先生拆穿而臭名昭著，同时也曝光了美国所谓主流媒体实则为中共帮凶的本质，就在郭先生再次受到CCP及黑暗势力的迫害在纽约法院判罚的第一时间，该媒体不顾满嘴大便还未来得及清洗之际，就再次奋不顾身地冲向下一陀大便，不失时机地丑化郭先生和班农先生。其流氓帮凶的面目再次展露无遗。**
 
-I want the people
-我希望人们
+以下是小编经过摘选的报道：
 
-also the here’s the more fundamental thing for people in the audience right now
-也对现在观众中的人们来说这是更基本的事情
+2月16日报道，周二晚，纽约法院判决流亡海外的中国商人郭文贵支付1.34亿美元给债权人，不允许他的游艇下水，以防进一步累积负债。
 
-other than capital markets
-除了资本市场，
-because capital markets are reactive to this
-因为资本市场对此有反应
+郭文贵又叫Miles Kwok,是一位房地产开发商，于2014年当知道与他有关连的国安官员涉贪腐调查之后随即逃离中国，北京后来试图将郭先生置于犯罪指控，郭先生否认所有指控。
 
-You’ve had these cheerleaders like Jim Cramer and others,
-你有像吉姆·克莱默和其他人这样的啦啦队员，
+自2014年以来，郭先生一直住在纽约，并拥有了大量的跟随者，尤其是华裔美国人，他以一个超级富豪和为自由而战的人物试图推翻中共在中国的统治，2015年时，他的个人资产估计有110亿美元，其中他住的曼哈顿第五大道的一套18楼公寓价值6千8百万美元。现在这套公寓以4千5百万美元出售，比2015年买入价跌了2千3万美元。
 
-Jamie Dimon up there,
-杰米·戴蒙在那里
+根据提交的11条文件显示，郭先生正在申请破产以寻求债务减免，并在他的财务重组之前停止所有针对他的追缴努力。他宣称自己现在拥有的资产不到10万美元，但欠了几十个债权人1亿到5亿美元。郭先生说他的债务来自“法律开销，包括申诉和判决” ，以及一系列与他作对的实体。
 
-cheerleading for Biden’s economic plan
-为拜登的经济计划做拉拉队，
+根据美国保守媒体披露，郭文贵与川普前总统的高级顾问史蒂夫·班农形成同盟后，已成为美国保守派媒体最有影响力的人物。他是盖特的投资者和活跃用户，盖特主张不能有“删除文化”，成为推特的备用选择。
 
-which we said is a disaster
-我们说这是一场灾难
+郭文贵先生的视频非常受欢迎，它们通常致力于揭露中共高官，他称新冠疫苗是中共阴谋的一部分。
 
-And Kramer was on TV said the greatest economy in his life in his life.
-克莱默在电视上说是他一生中最伟大的经济
+新闻来源： [Bannon-Allied Chinese Tycoon Files for Bankruptcy](https://www.vice.com/en/article/xgd5aq/guo-wengui-bannon-bankruptcy)
 
-Just a couple of weeks ago
-就在几周前
 
-This is right now getting oil at $85 a barrel. Right?
-现在的油价是每桶85美元，对吧？
-
-Yeah, they’re about to announce
-是的，他们即将宣布
-
-they’re going to redo the forecast for the first quarter slowing GDP
-他们将重做第一季度GDP放缓的预测
-
-There’s you could see that yesterday
-昨天你可以看到
-
-The reason Goldman Sachs is so important of missing the earnings
-高盛失去收益如此重要的原因
-
-Why is that important?
-为什么这很重要？
-
-Why do we focus on that?
-我们为什么要专注于此？
-
-Because in this complex financial capital market driven world
-因为在这个复杂的金融资本市场驱动的世界里
-
-who would have a better understanding of it than Goldman Sachs
-谁能比高盛更了解它
-
-when they miss earnings that badly that is bad
-当他们严重失去收入时，这很糟糕
-
-everybody in the world capital markets say
-世界资本市场上的每个人都说
-
-and hi the Goldman guys missed it this badly?
-嗨，高盛的人的损失这么的糟糕？
-
-It’s worse than we thought
-比我们想象的还要糟糕
-
-Okay, that’s why the stocks off so much.
-好吧，这就是为什么股票下跌这么多
-
-* * *
-
-Date:01/19/2022
-原视频标题: When Goldman Sachs miss earnings that badly, that is a bad sign. It’s worse than we thought — that’s why the stocks off so much
-当高盛严重错失收益时，这是一个不好的迹象。 这比我们想象的还要糟糕——这就是股票下跌如此之多的原因
-原视频日期：2022/01/18
-原视频链接: [**https://gettr.com/post/pp466w2f49**](https://gettr.com/post/pp466w2f49)
-任务编号：KE361(3538)
-视频时间段 : 0:00-0:59
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Freeearth
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -2,16 +2,24 @@
 ---
 
 
-## 人类大重启已经开始
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2052909/)
+## 加拿大律师敦促取消紧急状态法
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2053106/)
 
-文贵大直播 20220223
+采编/编译撰稿：苦尽甜来(文来）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/03-image-2.png)
+据【多伦多太阳报】2月21日报道，加拿大多名大律师近日联名致信给国会议员，反对特鲁多政府擅用《紧急状态法》来处理全国性和平抗议活动，并呼吁议会立即投票取消该法案的实施。
 
-撰稿：麦克阿sir（雅典娜）dingding（香草山）
+律师团在信中指出，实施《紧急状态法》的标准非常严格，联邦政府必须在国家安全明确遭受威胁的突发情况下，才能宣布公共秩序进入紧急状态。并将因此对加拿大公民自由形成重大挑战。
 
-美工：姐夫说说（雅典娜）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片1-33.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片2-35.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片3-31.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片4-32.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片5-31.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片6-32.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片7-22.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片8-7.png)
-*发布: Theodosia*
+目前，特鲁多已根据《紧急状态法》发布命令，要求金融机构向警方报告那些支持或参与抗议活动者的个人财务信息，并对违法者处以罚款和最高五年的监禁。
+
+律师函还强调，当局试图通过强推[紧急状态法]来证明其对民众的和平抗议活动，以及那些反独裁政府的抗议者所采取的暴力镇压方式是正当合法的。而这无疑是对加拿大民主制度最致命的打击。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：苦尽甜来 (文来）
+
+新闻来源: [OPINION: Canadian lawyers urge rejection of Emergencies Act | Toronto Sun](https://torontosun.com/opinion/columnists/opinion-canadian-lawyers-urge-rejection-of-emergencies-act)
 
  
 
