@@ -15,104 +15,104 @@
 
 ---
 
-### [【粤语配音】2022年2月23日：爆料革命5年来的预警一一应验](/content/gnews/1/README.md)
+### [美对俄事件的政治演戏](/content/gnews/1/README.md)
+ ` 雅典娜GNotes`
+
+### [多元文化的“移”与“融” 《分享时刻》教育篇：移民风雨路 多元文化说](/content/gnews/2/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [西方屈辱协议北约不东扩改变世界规则](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [西方屈辱协议北约不东扩](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [2月23日文贵大直播要点（图片1-4）](/content/gnews/5/README.md)
+ ` 波士顿五月花农场`
+
+### [普京玩的外交游戏](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [世界不灭共，我们就被灭了](/content/gnews/7/README.md)
+ ` 雅典娜GNotes`
+
+### [我们是唯一能灭共的](/content/gnews/8/README.md)
+ ` 雅典娜GNotes`
+
+### [爆料革命一次次被验证](/content/gnews/9/README.md)
+ ` 雅典娜GNotes`
+
+### [大直播后记：疫苗经济和造假](/content/gnews/10/README.md)
+ ` 雅典娜GNotes`
+
+### [世界大变，爆料革命不断被证实](/content/gnews/11/README.md)
+ ` 雅典娜GNotes`
+
+### [【粤语配音】2022年2月23日：爆料革命5年来的预警一一应验](/content/gnews/12/README.md)
  ` MOS香港部`
 
-### [西班牙人增强型疫苗的信心在一个月内下降了16个百分点](/content/gnews/2/README.md)
+### [西班牙人增强型疫苗的信心在一个月内下降了16个百分点](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [秘翻在线:人民银行要求实体银行必须办理现金业务](/content/gnews/3/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [乌克兰宣布进入紧急状态，从俄罗斯召集公民回家](/content/gnews/4/README.md)
- ` Shuizhuyu`
-
-### [Covid疫苗的三种新副作用](/content/gnews/5/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [西班牙谴责俄罗斯在乌克兰的行动，并承诺作出“响应反应”](/content/gnews/6/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [鲍里斯-约翰逊在最糟糕的时候加强了与中共国的关系](/content/gnews/7/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [是因为中国人的无知和懦弱，让共产党变得如此的强大](/content/gnews/8/README.md)
- ` MG FARM`
-
-### [中共国的快速军事崛起](/content/gnews/9/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [个人破产又算得了什么](/content/gnews/10/README.md)
- ` MG FARM`
-
-### [香港和台湾的影响力](/content/gnews/11/README.md)
- ` MG FARM`
-
-### [财富成了人类上最大的统治工具](/content/gnews/12/README.md)
- ` MG FARM`
-
-### [行善不问结果，这个最基本的常识](/content/gnews/13/README.md)
- ` MG FARM`
-
-### [2022年2月18日文贵大直播节选 （带视频）— 关于微信](/content/gnews/14/README.md)
+### [中国是纽约就业真正的威胁](/content/gnews/14/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [现在钱成了统治人类的工具](/content/gnews/15/README.md)
- ` MG FARM`
+### [秘翻在线:人民银行要求实体银行必须办理现金业务](/content/gnews/15/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [有声|对抗暴政](/content/gnews/16/README.md)
- ` MOSREC`
+### [乌克兰宣布进入紧急状态，从俄罗斯召集公民回家](/content/gnews/16/README.md)
+ ` Shuizhuyu`
 
-### [2/23/2022日本快讯：日本对驻华使馆人员被扣留做出抗议 ;岸田首相与德国总理举行电话会议](/content/gnews/17/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [有声|呼喊](/content/gnews/18/README.md)
- ` MOSREC`
-
-### [“锁链女”——徐州八孩子事件（一）](/content/gnews/19/README.md)
+### [Covid疫苗的三种新副作用](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [我们的一切一切都是灭掉共产党](/content/gnews/20/README.md)
- ` MG FARM`
+### [西班牙谴责俄罗斯在乌克兰的行动，并承诺作出“响应反应”](/content/gnews/18/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [放下就是最大的拥有](/content/gnews/21/README.md)
- ` MG FARM`
+### [鲍里斯-约翰逊在最糟糕的时候加强了与中共国的关系](/content/gnews/19/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|中共决定制裁向台湾军售的美军工企业](/content/gnews/22/README.md)
+### [中共国的快速军事崛起](/content/gnews/20/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [有声|对抗暴政](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [除非特鲁多能够解释紧急情况是什么，否则他是在滥用职权](/content/gnews/23/README.md)
+### [2/23/2022日本快讯：日本对驻华使馆人员被扣留做出抗议 ;岸田首相与德国总理举行电话会议](/content/gnews/22/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [有声|呼喊](/content/gnews/23/README.md)
+ ` MOSREC`
+
+### [有声|中共决定制裁向台湾军售的美军工企业](/content/gnews/24/README.md)
+ ` MOSREC`
+
+### [除非特鲁多能够解释紧急情况是什么，否则他是在滥用职权](/content/gnews/25/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [放下，就是拥有](/content/gnews/24/README.md)
- ` MG FARM`
-
-### [文贵爆料 2.23：病毒+人毒，何处是我家](/content/gnews/25/README.md)
+### [文贵爆料 2.23：病毒+人毒，何处是我家](/content/gnews/26/README.md)
  ` 秘密翻译组-原创组`
 
-### [有声|灭共路上战友们当争做爆料革命的盖特大V](/content/gnews/26/README.md)
+### [有声|灭共路上战友们当争做爆料革命的盖特大V](/content/gnews/27/README.md)
  ` MOSREC`
 
-### [有声|全球疫情、新加坡和中共都走到了十字路口](/content/gnews/27/README.md)
+### [有声|全球疫情、新加坡和中共都走到了十字路口](/content/gnews/28/README.md)
  ` MOSREC`
 
-### [全世界人民团结起来，抵抗暴政，还我自由！](/content/gnews/28/README.md)
+### [全世界人民团结起来，抵抗暴政，还我自由！](/content/gnews/29/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [日本岸田首相宣布制裁俄罗斯](/content/gnews/29/README.md)
+### [日本岸田首相宣布制裁俄罗斯](/content/gnews/30/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [欧盟宣布在资产冻结和旅行禁令等方面制裁俄罗斯](/content/gnews/30/README.md)
+### [欧盟宣布在资产冻结和旅行禁令等方面制裁俄罗斯](/content/gnews/31/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [数据显示接种Covid-19疫苗的妇女死产和流产的风险显著增高](/content/gnews/31/README.md)
+### [数据显示接种Covid-19疫苗的妇女死产和流产的风险显著增高](/content/gnews/32/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2022.2.23大直播 爆料革命用真相唤醒世界 郭文贵先生呼唤国人醒来](/content/gnews/32/README.md)
+### [2022.2.23大直播 爆料革命用真相唤醒世界 郭文贵先生呼唤国人醒来](/content/gnews/33/README.md)
  ` 秘密翻译组-原创组`
-
-### [疫 苗 二三事](/content/gnews/33/README.md)
- ` XINYUAN`
 
 ### [文贵大直播 2/24 世界巨变已开始 美俄中欧鹿死谁手](/content/gnews/34/README.md)
  ` 秘密翻译组-原创组`

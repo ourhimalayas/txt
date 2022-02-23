@@ -2,32 +2,71 @@
 ---
 
 
-## 放下就是最大的拥有
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2054359/)
+## 有声|对抗暴政
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2054434/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
 
-2022-02-16直播摘录11：06：34
 
-人生最大的哲学和快乐就是放得下，享受失去和得到。真正地破掉内心的执着，又能咋的呢？是不是？人生，你说就这三万多天，你执着那个十八楼干啥呢？十八楼不会因为七哥不在它那个楼上，楼就拆了，楼还在。真的战友现在就拥有七哥你几个人能来住呢？你真的有多少次能来十八楼呢？无非是心中的执着的执念而己，为什么为了一个执念而让自己痛苦呢？放下就是最大的拥有，放下就是快乐。
+母亲
+你流着血
+我流着泪
+共同对抗
+这暴政横行
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+母亲
+看
+一个人跌倒了
+马蹄踏上他的身
+皇家骑警
+为什么践踏人民
+为什么悲惨呼声
+他们无动于衷
 
-**关注我们**
+母亲
+你再看
+到处是
+血和泪的眼睛
+混合着声音异常悲愤
+何去何从
+何去何从
+我的未来
+是不是
+真的只是梦
 
-Discord 账号
+母亲
+告诉我实情
+这个世界魔鬼横行
+正义的声音微弱
+你为我撑起的温馨
+短暂如流星
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+母亲
+你流着血
+我流着泪
+和他们一起
+共同对抗
+这暴政横行
+让自由声音
+雷声轰鸣
+结束暴政
+结束魔鬼横行
 
-Gettr 账号
+文字版原文：[对抗暴政](https://gnews.org/zh-hans/2032528/)
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+音频处理：Fei797
+发稿：Fei797
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
