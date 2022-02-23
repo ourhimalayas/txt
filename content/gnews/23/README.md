@@ -2,27 +2,27 @@
 ---
 
 
-## 今日盖特大V推荐 — 詹姆斯·奥基夫（James O&#8217;Keefe）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2050178/)
+## 俄罗斯想入侵乌克兰并非虚张声势
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2050374/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/99aqp47-80ct9-4.jpg)
-**盖特链接：[https://gettr.com/user/JamesOKeefeIII](https://gettr.com/user/JamesOKeefeIII)**
+##### 素材：麦克阿sir
+翻译：精靈藍
+校对：Lish
+字幕：向上James
+编辑：幕纱公子
 
-**詹姆斯·奥基夫自述：**
+可能的俄乌军事冲突日益引发西方社会的担忧。福克斯新闻记者采访了美国驻乌克兰最高外交官。据该外交官称，没有看到俄罗斯军队从乌克兰边境撤走的任何迹象，反而可能在任何时候对乌发动全面入侵。当日，该记者也对一些乌克兰国民进行了采访。在被问及对局势前景的看法时，有人认为，普京并非在虚张声势。而且许多人也已经制定了针对战争一旦爆发的应急计划。
 
-卧底记者，真相工程和真相工程行动。 内幕人吗？ 电邮[\[email protected\]](/cdn-cgi/l/email-protection) 或通过 914-653-3110向我们发送加密信息
-![](https://assets.gnews.org/wp-content/uploads/2022/02/mkl.jpg)**图片来源：网络**
-**詹姆斯·奥基夫简介：**
+视频来源：福克斯新闻
 
-詹姆斯·爱德华·奥基夫三世（James Edward O’Keefe III，1984 年 6 月 28 日出生）是一位勇敢寻求真相的记者，“真相工程”（Project Veritas）的创始人，他于2011年创立了“真相工程”，通过暗访秘密记录的音频和视频，揭露政商丑闻，遭到邪恶势力和主流媒体的攻击，以至受到生命危险，不得不公开宣布：“我没有自杀倾向!”
+*发布：Mttfly*
 
-编撰：洛杉矶盘古农场 —郭友(文苏)
-校审：洛杉矶盘古农场 — 心照
-发布：洛杉矶盘古农场 —彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

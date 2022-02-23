@@ -2,22 +2,41 @@
 ---
 
 
-## 两个人民共和国的官宣
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2050490/)
+## 拜登宣布对俄罗斯实施第一批制裁
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2050532/)
 
-撰稿：东京樱花团/Garrettw
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-239.png)
-俄罗斯总统普京当地时间2月21日宣布，承认乌东民间武装自称的顿涅茨克人民共和国和卢甘斯克人民共和国为独立国家。随后，各方迅速做出反应。美国总统拜登、德国总理肖尔茨和法国总统马克龙通话，磋商如何协调对俄罗斯此举进行回应的下一步措施。白宫称，拜登与乌克兰总统泽连斯基通话重申美国对乌克兰“主权和领土完整”的承诺。美国当地时间21日宣布对俄罗斯实施金融制裁，并警告说如有必要，准备实施更多制裁。法国总统马克龙和英国首相约翰逊谴责俄罗斯总统做出的承认亲俄派控制的乌克兰东部地区独立的决定。
+美国总统拜登：
 
-乌克兰的真正危机是东部两个州闹独立，那里多数居民讲俄语，希望独立。拜登们不敢面对，因如让联合国主办公投，一定是多数要独立。如不能尊重民意、让其独立，也应给予高度自治等优惠地位，但乌克兰当局却派兵镇压，已死1.4万。两州有40万人是俄国籍。乌东两州多数居民说俄语，要求独立，俄国会通过议案要求普京承认乌东独立。普京宣布接受国会决议。
+今天，在与我们的盟友和伙伴的密切协调下，我宣布对俄罗斯实施第一批制裁，让俄罗斯为昨天的行动付出代价。 随着俄罗斯的升级，我们将继续加强制裁。我们正在对俄罗斯两家大型金融机构——俄罗斯国家开发银行和他们的军事银行——实施全面的封锁性制裁。我们正在对俄罗斯主权债务实施全面制裁。 这意味着我们已经切断了俄罗斯政府在西方的融资。 它再也无法从西方筹集资金，也无法在我们的市场或欧洲市场交易其新的债务。从明天开始——并在未来持续的日子里——我们还将对俄罗斯精英和他们的家人实施制裁。 他们分享了克里姆林宫政策的腐败收益，也应该分享痛苦。由于俄罗斯的行动，我们已经与德国合作，以确保北溪2号项目不会继续推进。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/bd.png)
 
-今乌克兰局势两大发展：一是普京已经承认独立的乌东两州；二是中共表态支持拜登，警告俄国不要入侵乌克兰。冬奥结束，北京需要普京出席的戏演完了。俄国已经承认乌东独立，俄国承认乌东地区2独立共和国，同时表示俄不会入侵乌克兰，俄没侵乌，仅承认乌东独立。同理美国是否也可承认台湾独立。那新疆、西藏也可以承认独立。中共在统一之间两难，武统台湾，普京没有动作，中共断然不敢，只能通过支持拜登，一方面继续和拜登政府勾兑，我还可以帮你继续赢得今年的选举;一方面在等待普京的“武力入乌”，为中共入台打好眼线。普京的明修暗道，暗度陈仓，争夺欧洲，下一步会走到哪里呢，欧洲定然不会坐视不理，习的兄弟齐心会实现吗？习普二人的秘密会议，最终究竟会以什么样的结尾收场呢，也许需要美国的表态。俄罗斯的双头鹰能否吃掉美国的白头海雕呢？郭文贵先生在直播中已经将这些全都告知世界，美国的正义和右翼及欧洲的中间绝对力量还有沼泽地相信都已经安排好了一切，我们NFSC就做好观众，拿起口袋和扫把，准备打扫战场吧。。。。。。
 
-消息来源: [郭文贵先生大直播20220220](https://baijiahao.baidu.com/s?id=1725415869683008156&amp;wfr=spider&amp;for=pc)
+> Today, in close coordination with our Allies and partners, I am announcing the first tranche of sanctions to impose costs on Russia in response to yesterday’s actions. 
+>  
+> We will continue to escalate sanctions as Russia escalates.
+> — President Biden (@POTUS) [February 22, 2022](https://twitter.com/POTUS/status/1496218939847847951?ref_src=twsrc%5Etfw)
 
-*校对：东京樱花团/麗子
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+
+
+比尔·格茨： 中共国官方媒体对冲进乌克兰的俄罗斯坦克保持沉默。北京间接支持普京，外交部发言人称莫斯科对北约有“正当”担忧，尤其是没有谴责俄罗斯将两块地区宣布为独立国家。 【附华盛顿邮报文章：中共国说：莫斯科对北约有“正当”的安全担忧】
+
+
+
+> China state media silent on Russian tanks rolling into Ukraine. Beijing indirectly backs Putin with Foreign Ministry spokesman saying Moscow has “legitimate” concerns on NATO and, notably, fails to condemn Russia declaring 2 enclaves independent states [https://t.co/mCoz9dUv30](https://t.co/mCoz9dUv30)
+> — Bill Gertz (@BillGertz) [February 22, 2022](https://twitter.com/BillGertz/status/1496245139299180546?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿蓬佩奥： 弗拉基米尔·普京还是我们执政期间的那个他。 唯一改变的是美国的领导地位。
+
+
+
+> Vladimir Putin is the same person he was during our administration.
+> The only thing that has changed is American leadership.
+> — Mike Pompeo (@mikepompeo) [February 22, 2022](https://twitter.com/mikepompeo/status/1496202661196140549?ref_src=twsrc%5Etfw)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

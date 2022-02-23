@@ -2,12 +2,10 @@
 ---
 
 
-## 七哥金句：看透生命的秘密
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2050088/)
+## 在中国生存的女人，连20只癞蛤蟆的价值都不如
+` HA-Multilingual澳喜农场多语组` [轉載自GNews](https://gnews.org/zh-hans/2050225/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句S3.jpg)
-整理：雅典娜农场
-发布：枫叶红了
+在中国生存的女人，连20只癞蛤蟆的价值都不如。这不是今天，也不是昨天，是一直以来都这样，我们都是女人生的，在这样的国家还有自信，还有人权，还有希望吗？
 
  
 
