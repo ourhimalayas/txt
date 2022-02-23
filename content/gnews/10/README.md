@@ -2,30 +2,45 @@
 ---
 
 
-## 加拿大就俄罗斯入侵乌克兰 宣布第一轮经济制裁
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2050812/)
+## 徐州铁链女之妖雾蔽日链莹心
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2050913/)
 
-翻译：灭共文明
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2088.png)图片来源：网络
+善众撑舟寻孱雏，魔起官雾蛊迷人。
+愚民手段嫌不够，铁挡连环闭锁村。
+勇女当头遭酷吏，时移势易渐全忘？
+同类之躯义共行，觅得曙光救莹心！
 
-编辑与校对：灭共文明、冰糖葫芦喵
 
-《路透社》2月22日报道，**在莫斯科承认乌克兰顿涅茨克和卢甘斯克独立一天后，加拿大总理特鲁多周二宣布对俄罗斯实施第一轮经济制裁。**
 
-周一，俄罗斯总统普京承认乌克兰东部两个由分裂分子控制的地区独立，并宣布俄罗斯将在那里部署所谓“维和”部队。特鲁多称此举是“对乌克兰主权的明显侵犯”。
+![officeArt object](https://lh3.googleusercontent.com/jkYHhwLisvPy3AdlrEAShepdSyp-gB1QidL0CpzsIoDd7jePx_phcVb-s4NnHJt5IwJpOM_ePomqUoEPyfTc9R3bR1xaxH0xO35HfK1Kg_Uh-fR7xun-3nLCCjcOf3eFDVHTpDsq2QzWBHA2WcQ)
+图片来源：网络
 
-**周二，美国、欧盟、德国和英国也宣布了对俄罗斯的经济制裁。**
 
-特鲁多周二说，**加拿大政府将禁止加拿大人与所谓的“独立国家”卢甘斯克和顿涅茨克进行任何金融交易。**他补充说，**加拿大还将禁止加拿大人购买俄罗斯主权债务。**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/EV5BRX64BZOK3EDXW7ECKC27W4-e1645586252964.jpg)加拿大总理特鲁多（图片来源：网络）
-特鲁多表示，**加拿大将对两家俄罗斯国有银行实施额外制裁，并阻止与它们进行任何金融交易。**加拿大也将制裁投票支持顿涅茨克和卢甘斯克独立的俄罗斯议会成员。
 
-报道称，特鲁多表示，他将授权向该地区增派460名加拿大军事人员。授权这包括向拉脱维亚派遣更多的军队，以及部署更多的护卫舰和海上巡逻机。
+![officeArt object](https://lh5.googleusercontent.com/fkdVtg2oN8cb4EzmuhQlVTjdJ8QTJhaCCMUUaI2S6nmU-f8qEcBUpgZfIX9hNFvujvzawEqGRjAEFKbKDy_-8jo2gvWxhvuVnVsQde6izPjaAWwsPIh9kScqXLnKFFMNFaLbPHtFYXaZ8tjKdqU)
+图片来源：网络
 
-此前，莫斯科要求提供安全保障，包括承诺其邻国乌克兰永远不会加入北约(NATO)，**数周紧张的外交努力迄今仍以失败告终。**
 
-**新闻链接：**
 
-[Canada announces first round of economic sanctions on Russia over Ukraine crisis | Reuters](https://www.reuters.com/world/europe/trudeau-announces-first-round-economic-sanctions-russia-over-ukraine-crisis-2022-02-22/)
+如果你不想看到铁链女事件这样的人间惨剧再发生，请你发出你正义的声音，每天花几分钟的时间，不怕重复地为这些被拐卖的中国妇女献出一点点身为人类同类的爱心。
+
+* * *
+
+【文章观点仅代表作者个人，与Gnews平台无关】
+
+新闻链接：
+[\[1\]：女义士遭警方虐待](https://www.aboluowang.com/2022/0221/1711389.html)
+[\[2\]：政府官方在董集村建立铁围墙封村](https://www.rfi.fr/cn/%25E4%25B8%25AD%25E5%259B%25BD/20220221-%25E5%25BE%2590%25E5%25B7%259E8%25E5%25AD%25A9%25E6%25A1%2588%25E6%259D%2591%25E5%25AD%2590%25E8%25A2%25AB%25E9%2593%2581%25E7%259A%25AE%25E5%259B%25B4%25E8%25B5%25B7%25E6%259D%25A5%25E4%25BA%2586)
+[\[3\]：铁链女事件近况](https://www.ntdtv.com/b5/2022/02/20/a103352934.html)
+
+作者：洛杉矶盘古农场 — Bc.S
+编审：洛杉矶盘古农场 — 心照
+发布：洛杉矶盘古农场 — Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

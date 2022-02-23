@@ -2,30 +2,20 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年2月22日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2049140/)
+## 秘翻在线: 中共反对美国将台湾纳入印太战略
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2049986/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-20-at-4.14.11-PM-1.png)
+撰稿：西枫westca
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-21.png)
-文章仅代表作者本人观点，与Gnews无关
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-13.jpg)图片来源：网络照片
+据新唐人2月21日报道， 拜登政府日前发表了任期内首份印太战略报告，计划在2022年初启动印太经济架构，向印太地区投入更多的外交、安全资源，以制衡中共，阻止它们在印太地区以及全球称霸。
 
-视频参看：
-[2022.02.22早 《NFSC新闻》](https://gtv.org/video/id=6214e52808ba8a07b1a16f59)
-[2022.02.22早 G|TV《新闻访谈》](https://gtv.org/video/id=6214ee4408ba8a07b1a1765d)
+报告明确指出，印太地区面临越来越多的挑战，尤其是来自中国的挑战。印太战略报告包括准备重开驻所罗门群岛的大使馆，以遏制中共在南太平洋岛的扩张；聚焦从南亚到太平洋诸岛的印太地区所有角落；未来两年内开展一些核心工作包括支持印度崛起、加强美日韩三边合作、启动“印太经济框架”、兑现对“四方安全对话”的承诺；在台湾问题上，报告说“中共一直宣称台湾是中共的一部分，但从来没有在历史上统治过台湾一天”，美国将与该地区同盟国和战略伙伴合作，维护台湾海峡的和平与稳定。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+中共外交部长王毅同日对此报告则称，美国将台湾纳入印太战略正在发出寻求遏制中国的”错误信号”，一些美国官员主张与中国进行长期的”激烈竞争”，这很可能演变成两国之间的”全面对抗”。他强调，中国再次敦促美国采取具体行动，反映拜登总统作出的一系列承诺。这份报告显然戳到了中共的痛处，但这也仅仅是刚刚开始，中共的好日子要来了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-3.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**新闻来源：**[【禁闻】拜登任内首份印太战略报告 专家解读 | 拜登政府 | 南太平洋岛 | 印度 | 新唐人中文电视台在线 (ntdtv.com)](https://www.ntdtv.com/gb/2022/02/20/a103352972.html)
 
  
 

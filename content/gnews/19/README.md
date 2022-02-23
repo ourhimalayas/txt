@@ -2,39 +2,30 @@
 ---
 
 
-## 有声|加国省长杰森肯尼挑战特鲁多紧急法案
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2050721/)
+## 加拿大就俄罗斯入侵乌克兰 宣布第一轮经济制裁
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2050812/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月19日消息，针对联邦自由党实施”紧急情况法”以结束卡车司机对渥太华市中心的封锁，阿尔伯塔省省长杰森·肯尼在接受Postmedia独家采访时表示，联邦政府使用加拿大最强大的法律，在目前情况下是不合理的过度扩张，违反正当程序和”侵犯”省级管辖权。并表示对此深感厌恶，将在下周初，向渥太华联邦法院提出法律挑战，以结束总理特鲁多的任意和高压行动。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide10-3.jpeg)
-另外，联邦司法部长大卫·拉梅蒂此前在CTV上暗示，联邦调查局正在考虑冻结任何用信用卡向车队捐赠者账户。
+翻译：灭共文明
 
-肯尼认为，如果特鲁多派冻结其政治对手的财政得逞而逍遥法外，允许联邦政府利用《紧急情况法》来履行普通警察职能骚扰对手，超越并篡夺加拿大各省执法的属地管辖权，这将为未来树立一个危险的先例。
+编辑与校对：灭共文明、冰糖葫芦喵
 
-肯尼代理律师将要求法官暂停使用该紧急法案。
+《路透社》2月22日报道，**在莫斯科承认乌克兰顿涅茨克和卢甘斯克独立一天后，加拿大总理特鲁多周二宣布对俄罗斯实施第一轮经济制裁。**
 
+周一，俄罗斯总统普京承认乌克兰东部两个由分裂分子控制的地区独立，并宣布俄罗斯将在那里部署所谓“维和”部队。特鲁多称此举是“对乌克兰主权的明显侵犯”。
 
+**周二，美国、欧盟、德国和英国也宣布了对俄罗斯的经济制裁。**
 
-文字版原文：[加国省长杰森肯尼挑战特鲁多紧急法案](https://gnews.org/zh-hans/2049068/)
+特鲁多周二说，**加拿大政府将禁止加拿大人与所谓的“独立国家”卢甘斯克和顿涅茨克进行任何金融交易。**他补充说，**加拿大还将禁止加拿大人购买俄罗斯主权债务。**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/EV5BRX64BZOK3EDXW7ECKC27W4-e1645586252964.jpg)加拿大总理特鲁多（图片来源：网络）
+特鲁多表示，**加拿大将对两家俄罗斯国有银行实施额外制裁，并阻止与它们进行任何金融交易。**加拿大也将制裁投票支持顿涅茨克和卢甘斯克独立的俄罗斯议会成员。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+报道称，特鲁多表示，他将授权向该地区增派460名加拿大军事人员。授权这包括向拉脱维亚派遣更多的军队，以及部署更多的护卫舰和海上巡逻机。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+此前，莫斯科要求提供安全保障，包括承诺其邻国乌克兰永远不会加入北约(NATO)，**数周紧张的外交努力迄今仍以失败告终。**
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+**新闻链接：**
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[Canada announces first round of economic sanctions on Russia over Ukraine crisis | Reuters](https://www.reuters.com/world/europe/trudeau-announces-first-round-economic-sanctions-russia-over-ukraine-crisis-2022-02-22/)
 
  
 

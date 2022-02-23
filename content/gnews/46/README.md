@@ -2,38 +2,26 @@
 ---
 
 
-## 港府效仿中共“清零”政策，预实施人人强制检测
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2049134/)
+## 中共国在美俄间走钢丝? 传微妙应对乌克兰问题
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2049939/)
 
-作者：纽约香草山农场 – Naughty（文行）
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据外媒综合报道，2月19日香港行政长官林郑月娥宣布，港府正在“非常认真地计划”对其750 万居民实施强制性中共病毒检测。
+撰稿/配图：东京樱花团/Ob
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片5-2.jpg)
+中共国近日就俄罗斯可能入侵乌克兰一事发出了较明确告诫，从中可以看出中方如何在把握微妙分寸，既试图加强中俄伙伴关系，同时又防止中美关系变为全然对立。在抗衡美国方面的共同利益已推动中俄关系达到自70年前冷战初期以来最密切的程度。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide12-3.jpeg)
+中共国国家主席习近平本月在俄罗斯与西方的对峙中给予俄总统迄今为止他最有力的支持，但是自那以来，北京方面一直呼吁通过外交渠道解决俄乌危机，由此使自身立场与美国及其盟友更加接近。这一基调的转变是在中共国政府最高层领导人进行为期数日的闭门商议之后发生的，中共国外交官和中共国政府顾问认为这反映出北京方面希望避免让中美关系变得更具对抗性。若中美对抗加剧，可能导致中共国被西方孤立并有损中共国的长期发展。
 
-虽然港府认为此举是为了应对本地疫情的快速传播，但却同时宣布了即将举行的特首选举，将从 3 月 27 日推迟到 5 月8 日。借口是为了使政府有时间集中精力应对不断上升的疫情传播。
+掌控话语权一直是中共玩弄人民操弄世界的重要抓手。中共的外交用语都是深思熟虑，别有用心的。中共从来最擅长真真假假，虚虚实实，看中共的外交辞令不能只看表面，还要多维度，多角度综合掂量。表面辞令往往只是挡人耳目，蛊惑人心的，中共明面一手往往暗藏着背后一手，表面上的中立未必代表中共真实的中立立场。明修栈道暗度陈仓，表面上话语只是说给外人听的，内心里的话才是与俄罗斯“好兄弟”讲的。不明白中共明暗两套话语体系，相当然地认为中共在走钢丝，是对中共政治的不了解罢了。
 
-外媒评论港府的这一决定，是根据中共隔离旅客、全面检测和实施全面封锁等“动态清零”政策而做出的。
+消息来源：
 
-令人费解的是，在世界范围内中共病毒疫情已经普遍下滑的情况下，香港反而出现了中共病毒感染和确诊人数激增的现象。香港上周报告的医院病房容量达到了 90%，每日新增确诊病例首次超过 2000 例，上周四报告了 6116 例新增确诊病例。
+[中国在美俄间走钢丝，微妙应对乌克兰问题](https://cn.wsj.com/articles/%E4%B8%AD%E5%9B%BD%E5%9C%A8%E7%BE%8E%E4%BF%84%E9%97%B4%E8%B5%B0%E9%92%A2%E4%B8%9D-%E5%BE%AE%E5%A6%99%E5%BA%94%E5%AF%B9%E4%B9%8C%E5%85%8B%E5%85%B0%E9%97%AE%E9%A2%98-11645412176)
 
-有分析人士指出，港府不但效仿中共的极端 “清零”政策，更借口疫情对选举做文章。实际上是利用疫情和人人强制检测的政策，把全香港变成一个人人被审查、人人被监控的大监狱。
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
 
-参考链接：[Hong Kong planning mandatory COVID testing for every resident](https://news.yahoo.com/hong-kong-planning-mandatory-covid-044355525.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
-
-总编：Zion文恩
-编辑：Delilah小胖
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

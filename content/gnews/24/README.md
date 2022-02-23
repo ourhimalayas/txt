@@ -2,37 +2,29 @@
 ---
 
 
-## 有声|郭先生揭密习普二人密谈内容
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2050690/)
+## 英国将制裁5家俄罗斯银行及3名寡头富豪
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2050758/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在2月18日的大直播中，郭文贵先生揭密了习近平与普京的密谈内容，指出他们发动战争的根本目的，是为其个人安全和政治利益服务。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-48.jpg)
-郭先生透露，习近平将中国人一万多亿美元的血汗钱交给普京，换来他们两个多小时的单独密谈。无非就是习近平在怂恿普京，二人同时发动侵略战争，其代价是美国的制裁，把中俄踢出SWIFT系统。但是二人的政治地位会得到空前的巩固，一切政治对手也都会被消灭。如果不发动战争，那么中俄内部的政治斗争，则会让二人丧命。因为一切对外战争，都是内部政治灾难的延续，对中共和俄罗斯来说尤其如此。这两场战争看似政治野心，实则是习近平和普京个人安全和政治安危所需。
+**撰稿：日本东京方舟农场  海星**
 
-郭先生进一步解密说，乌克兰其实是世界政治中的一枚棋子，美国和欧洲正在利用乌克兰人民的生命和安全，来消磨习普二人的意志。他们无论是否发动侵略战争，都无法避免灭亡的命运。
+2月22日，在俄罗斯承认乌克兰东部分离地区独立后，英国首相约翰逊宣布，英国政府将制裁俄罗斯银行及寡头富豪。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-344.jpg)（图片来源：法新社）
+据《自由时报》报导，英国首相约翰逊在国会上表示，英国政府将就俄罗斯承认乌克兰东部分离地区独立一事制裁其5家银行，包括俄罗斯银行（Bank Rossiya）、IS Bank、Joint Stock Company Genbank、Public Joint Stock Company Promsvyazbank和黑海贸易发展银行（Black Sea Bank for Development and Reconstruction），以及3名寡头富豪，包括普京的商业伙伴兼友人季姆琴科（Gennady Timchenko）、阿卡迪耶维奇（Igor Arkadievich）和罗腾伯格（Boris Romanovich Rotenberg）。
 
+据悉，被制裁者在英国持有的所有财产将被冻结，并被禁止入境英国，同时不被允许与英国的企业或个人有任何商业往来。
 
+约翰逊强调说，这只是制裁的第一部分，如果普京有进一步行动，英国和盟国将对其实施更严厉的制裁措施。
 
-文字版原文：[郭先生揭密习普二人密谈内容](https://gnews.org/zh-hans/2045456/)
+稍早前，俄罗斯总统普京承认了乌克兰东部地区顿涅茨克和卢甘斯克的“独立国家”地位，并派遣部队进驻。对此，美国多位议员表示，普京此举公然违反国际法，侵犯了乌克兰的主权与领土完整，应受到严厉制裁。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+参考链接：
+1.[https://news.ltn.com.tw/news/world/breakingnews/3838104](https://news.ltn.com.tw/news/world/breakingnews/3838104)
+2.[https://finance.sina.com.cn/stock/usstock/c/2022-02-22/doc-imcwiwss2363586.shtm](https://finance.sina.com.cn/stock/usstock/c/2022-02-22/doc-imcwiwss2363586.shtm)
+3.[https://www.voachinese.com/a/us-congress-reax-russia-putin-ukraine-20220221/6453362.html](https://www.voachinese.com/a/us-congress-reax-russia-putin-ukraine-20220221/6453362.html)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+素材采编：海星
+编辑：老孙
+发布：爱放飞
 
  
 

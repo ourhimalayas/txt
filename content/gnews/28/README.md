@@ -2,39 +2,39 @@
 ---
 
 
-## 专家称俄乌开战 中共不会在军事上予以支持
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2050652/)
+## 有声|加国省长杰森肯尼挑战特鲁多紧急法案
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2050721/)
 
-#### 【雅典娜快讯】紧贴时代脉搏
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月19日消息，针对联邦自由党实施”紧急情况法”以结束卡车司机对渥太华市中心的封锁，阿尔伯塔省省长杰森·肯尼在接受Postmedia独家采访时表示，联邦政府使用加拿大最强大的法律，在目前情况下是不合理的过度扩张，违反正当程序和”侵犯”省级管辖权。并表示对此深感厌恶，将在下周初，向渥太华联邦法院提出法律挑战，以结束总理特鲁多的任意和高压行动。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide10-3.jpeg)
+另外，联邦司法部长大卫·拉梅蒂此前在CTV上暗示，联邦调查局正在考虑冻结任何用信用卡向车队捐赠者账户。
 
-整理：围剿维尼熊
-编辑：小熊
+肯尼认为，如果特鲁多派冻结其政治对手的财政得逞而逍遥法外，允许联邦政府利用《紧急情况法》来履行普通警察职能骚扰对手，超越并篡夺加拿大各省执法的属地管辖权，这将为未来树立一个危险的先例。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/2-89.png)图片来源：雅典娜设计组
+肯尼代理律师将要求法官暂停使用该紧急法案。
 
 
-据路透社报道，专家们表示，如果俄罗斯入侵乌克兰，中共将在外交或经济上支持俄罗斯，但绝不会提供军事支持。
 
-美国总统拜登上周五表示，俄罗斯总统普京已决定在几天内入侵乌克兰，而俄罗斯否认这一说法。
+文字版原文：[加国省长杰森肯尼挑战特鲁多紧急法案](https://gnews.org/zh-hans/2049068/)
 
-中共外交部一再谴责美国“散布虚假信息”并制造紧张气氛，敦促其尊重并呼应俄罗斯在安全保障方面的要求。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-为了显示团结，普京出席了2月4日北京冬奥会开幕式，与习近平共同宣布深化战略伙伴关系。中共国媒体宣称，两国将肩并肩“维护世界正义”。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-如果俄罗斯入侵乌克兰，将考验中共经常声明的“不干涉外交政策原则”。熟悉北京当局思路的专家说，中共肯定不想在军事上介入。在国际社会如此两极分化的情况下，美国和西方有可能将俄罗斯及中共国同时孤立或制裁。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-北京也不希望为俄罗斯入侵乌克兰承担经济后果，特别是今年，习近平准备展开史无前例的第三个任期，他要把“稳定”放在首位。
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-参考链接：[专家称如果俄罗斯对乌克兰采取行动 中国会在外交上予以支持](https://cn.reuters.com/article/russia-ukraine-crisis-china-dip-0221-idCNKBS2KQ08U)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-*发布：tianzhihuan*
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

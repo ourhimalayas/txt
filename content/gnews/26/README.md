@@ -2,37 +2,21 @@
 ---
 
 
-## 有声|中共国音乐界将发生金融阿比比事件
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2050661/)
+## 雅典娜时报-第213期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2050732/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月20日，郭文贵先生在大直播节目中爆料，中共国内的音乐界、娱乐界即将发生颠覆性的大事，而中共国的金融、房地产将会开启新一轮的恶化和崩塌。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-46.jpg)
-郭先生表示，中共实际第二号政治人物彭丽媛的精神状况非常不好，原因是演艺界、音乐界在冬奥会后将会发生颠覆性质的剧变。此前，为了营造出“国泰民安”的冬奥氛围，中共是严禁本国的房地产业在此期间出现破产现象，而被中共一贯用于洗黑钱的娱乐界、歌星、明星们，他们背后链接的一系列经济丑闻也不容许在这一时期被媒体曝光。而目前，中共的经济崩塌已到了纸包不住火的程度。
+#### 《雅典娜时报》汇聚全球新闻时事
 
-同时，郭先生向世界预警，中共国将会迎来一场金融阿比比事件，届时，中共的房地产业会开启一个新的恶之轮回。而这次的金融阿比比事件，将从中共的音乐界开始。
+#### 编辑：精灵蓝
+排版：小蚂蚁614
+![圖片](https://media.discordapp.net/attachments/825592691433668612/945872660276056064/155_4.png?width=812&amp;height=1209)![圖片](https://media.discordapp.net/attachments/825592691433668612/945872660691308634/155_7.png)
+*发布：陶子*
 
-
-
-文字版原文：[中共国音乐界将发生金融阿比比事件](https://gnews.org/zh-hans/2045453/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,79 +2,35 @@
 ---
 
 
-## 币圈新闻动态：喜币（HCN）价格目前在43.043 HDO
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2050708/)
+## 韩国最大银行将推出加密货币衍生产品和ETF
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2050773/)
 
-*喜马拉雅华盛顿DC 编辑：aQ*
+翻译/编辑：小红帽
 
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/07/ScreenShot-2021-07-31-at-16.20.22@2x.png)
-
-
-
-## 每日一问
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/3-65.png)图片来源：online-kbcambodia.com
 
 
+根据Blockworks2月22日报道，韩国最大银行的资产管理部门周一宣布成立一个委员会，以帮助研究和开发加密货币衍生产品和ETF。
 
+KB国民银行（KB Kookmin）的资产管理部门表示，其新的数字资产管理筹备委员会将计划准备推出其加密货币产品。总部位于该部门的指数量化操作（Index Quant Operation）部。
 
+KB希望在“韩国放松管制”之后，“尽快”通过其加密货币产品进入这个快速发展的行业。银行正计划通过国内和海外数字资产市场研究，为抢先推出相关产品做准备。
 
-首先是病毒，其次是封锁，然后银行账户被锁，最后呢?
+除了加密货币指数基金，KB资产管理公司（KB Asset Management）表示，它将从退休养老金和OCIO市场的传统资产关联转向使用海外加密货币的保本资产配置基金。
 
+按净利润计算，KB国民银行是韩国最大的银行。根据其最新财报，到2021年第四季度，其管理的资产总额达到457.3万亿韩元（3827亿美元）。
 
+新闻链接：[South Korea’s Top Bank To Launch Crypto ETFs](https://blockworks.co/south-koreas-top-bank-to-launch-crypto-etfs/)
 
+发布：tianzhihuan
 
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-## 喜马拉雅交易所要闻
-
-
-
-
-
-- 喜交所网站行情显示，喜币（HCN）价格目前在43.043 HDO，24H最高价格为44.176 HDO，24H最低价格为42.500 HDO，24H成交量约为61986.883 HCN。
-
-
-
-
-
-
-## 新闻动态
-
-
-
-
-
-1. PRNewswire报道，奢侈品零售商Juliettes Interiors发文称，2021年期间奢侈品消费者的加密交易急剧增加，这种趋势一直持续到现在，加密领域对奢侈品行业及其消费者产生了重大影响。研究表明，超过56%的富裕客户目前正在投资加密货币，这表明未来几年富裕的投资者将会增加。与非加密用户相比，加密用户更有可能购买更高端的商品，因为典型的加密用户的平均订单价值（AOV）为450美元，而非加密用户为200美元。除此之外，近60%的高净值人士对加密投资感兴趣。结果导致主要奢侈品牌开始接受加密货币。换句话说，加密领域能够严重影响奢侈品行业富裕消费者的习惯和购物模式。因此，主要品牌正在加密领域争取一席之地，以吸引富有的消费者。
-2. 官方消息，USDT发行方Tether公布2021年第四季度综合储备金报告，并表示已经过会计事务所MHA Cayman认证确认。该报告显示，截至2021年12月31日，Tether合并总资产至少为78,675,642,677美元，合并总负债为78,538,305,451美元，其中78,480,852,949美元与发行的数字代币有关。具体而言，在Tether合并总资产786亿美元中，现金和现金等价物及其他短期存款和商业票据超过658亿美元，担保贷款（不提供给附属实体）超过41.1亿美元，公司债券、基金和贵金属超过36.2亿美元；其他投资（包括数字代币）超过50.2亿美元，占比6.3%。Tether称，表明该公司为其发行的数字代币持有的储备超过赎回所发行的数字代币所需的金额。最新报告还显示，该公司对货币市场基金和国库券的投资以及A-1+商业票据持有量较上一季度有所增加。
-3. TheBlock报道，巴西加密交易平台Foxbit完成2100万美元A轮融资，OK Group领投。Foxbit将把这笔资金用于招聘、技术和潜在的收购。
-4. 官方消息，Coinbase Wallet添加支持硬件钱包Ledger，并将支持更多硬件钱包。此外，Coinbase Wallet还将增加对在单个Ledger设备上拥有多个活动钱包地址的用户的支持，以选择他们想要与Coinbase Wallet一起使用的地址。
-5. PRNewsWire报道，绿色科技平台Nature’s Vault宣布完成种子轮融资，数据分析平台提供商CDI领投，连续创业者Irawan Mulyadi担任独立董事。
-6. 官方消息，Solana生态现金流协议Zebec Protocol宣布完成1500万美元私募融资，Distributed Global和Solana Ventures领投。融资用于扩展产品，以支持迅速增加的加密采用率。
-7. 2月23日消息，Zebec协议宣布宣布获得1500万美元融资，由Solana Ventures和Distributed Global领投。据悉，Zebec是Solana上的一个连续且可编程的现金流协议。
-8. TheBlock报道，Luna Foundation Guard(LFG)宣布完成10亿美元融资，本轮融资通过场外销售LUNA代币完成，由Jump Crypto和三箭资本领投。据悉，筹集资金将用于为Terra Stablecoin UST建立以比特币计价的外汇储备。LFG表示，通过10亿美元注资创造的储备金将有效地充当UST的赎回机制，以确保在加密市场大幅抛售期间，稳定币的价格仍与美元挂钩。
-9. 2月23日消息，跨链智能合约平台Clover Finance宣布，MMO RPG区块链游戏Tap Fantasy正在集成Clover Chain和钱包，以创建其Play-to-Earn NFT游戏。
-10. 2月23日消息，NATURE’S VAULT宣布推出新型区块链驱动平台，以利用地下矿产资产获利，避免环境破坏。NATURE’S VAULT创始人兼首席执行官Phil Rickard表示，“我们正在采用我们的突破性方法来标记ESG项目和自然资本资产，以通过分布式账本技术和可以复制和扩大规模以适应未来增长的平台，以透明的方式帮助缓解气候变化。”据悉，Nature’s Vault是一个绿色科技平台，旨在加快为应对气候变化和生态系统破坏的影响力投资提供资金。
-11. Crypto.news报道，英超冠军曼城计划在元界建造一个阿提哈德体育场的复制品。据报道，该运动队将与索尼公司合作建设该项目，为期三年。该项目将为俱乐部的球迷提供远程体育场访问权限。该项目将使用索尼公司子公司Hawk-EYE的图像分析和骨骼跟踪技术创建。该计划旨在为曼城球迷远程提供同样激动人心的体育场体验。
-12. 官方消息，跨链智能合约平台Clover Finance宣布，MMORPG区块链游戏Tap Fantasy将集成Clover区块链和钱包，以创建其P2ENFT游戏。
-13. Crypto.news报道，英超冠军曼城（Manchester City）计划在元宇宙建造一个阿提哈德体育场（Etihad Stadium）的复制品。据报道，该运动队将与索尼公司合作建设该项目，为期三年。该项目将为俱乐部的球迷提供远程体育场访问权限。该项目将使用索尼公司子公司Hawk-EYE的图像分析和骨骼跟踪技术创建。
-14. 官方消息，Secret Network核心开发团队SCRT Labs将推出“Mint to Earn”NFT平台Legendao，旨在为用户提供游戏化体验，并使他们能够获得Secret NFT。
-15. Cointelegraph报道，P2E游戏Chain Guardians开发商推出新元宇宙游戏Cryptoverse，其是一款基于虚幻引擎5并由以太坊区块链提供支持的沉浸式角色扮演游戏(RPG)，旨在将区块链游戏带入大规模采用。
-16. 官方消息，基于Polkadot的衍生品交易所Firefly最终测试网现在已开启注册，测试网申请将开放7天。
-17. Crypto.news报道，Chain Guardians(CGG)的创建者宣布推出Cryptoverse，这是一款基于虚幻引擎5并由以太坊区块链提供支持的沉浸式角色扮演游戏(RPG)。Cryptoverse旨在将区块链游戏带入大规模采用。据悉，Chain Guardians(CGG)是一款以玩家为导向的赚钱RPG区块链游戏，其制造商推出了The Cryptoverse。
-18. 2月23日消息，去中心化预测市场Polymarket近日宣布推出流动性挖矿和交易奖励活动，5万枚USDC和1万枚UMA将在第一个周期通过流动性供应、费用返还和社区赏金分配给用户，帮助催化一个更加可持续和有机的市场。
-19. PRNewswir报道，DApp游戏服务平台Stardust宣布集成Polygon，作为游戏发行商的最新区块链选项。据悉，Stardust为游戏开发者提供将NFT集成到其沉浸式游戏的解决方案。据此前报道，2021年9月，DApp游戏服务平台Stardust完成500万美元融资，Framework Ventures领投。
-20. PCGames报道，一种新的实用程序能够通过修改BIOS来解锁英伟达GeForce RTX显卡的全部算力容量。该工具由开发人员Sergei创建，它使这些显卡无法用于游戏，但矿工可以利用不受限制的性能。新引入的修改可能会改变GPU挖矿的游戏规则，因为它将能够将RTX3080Ti的挖矿能力提高115MH/s。矿工还需要安装开发者上传的显卡驱动。Nvidia去年5月推出其Light HashRate（LHR）技术，该技术使限制多个GPU的算力成为可能。如果某个GPU开始进行以太坊挖矿，其算力会自动减半。
-21. Decrypt报道，在加拿大正在进行的车队抗议活动中，安大略省证券委员会（OSC）已就加密货币交易所Coinbase和Kraken的首席执行官发布的有关渥太华正在进行的“自由车队”抗议活动的推文联系了加拿大皇家骑警（RCMP）。Coinbase首席执行官布莱恩•阿姆斯特朗（Brian Armstrong）和Kraken首席执行官杰西•鲍威尔（Jesse Powell）发布的推文似乎批评了加拿大政府援引《紧急情况法》作为对渥太华车队抗议的回应的一部分。
-22. 2月22日消息，美国贸易代表表示，对加拿大数字服务税计划感到担忧，希望加拿大遵守经合组织和G20的数字税收协议。
-23. Finextra报道，在完成第二阶段技术试验后，瑞典中央银行已将其与埃森哲作为其CBDC实验项目供应商的合同再延长一年。在第2阶段的技术测试中，瑞典央行检查了离线功能、性能和外部参与者（包括Handelsbanken和Tieto Evry）与e-krona网络的集成等问题。电子克朗部门负责人Mithra Sundberg表示，在第3阶段，如果决定发行电子克朗，我们将开始制定电子克朗要求的基础。进行的所有测试、分析和调查将为这项工作奠定基础。我们还将借鉴该领域目前正在发生的快速国际发展的经验。此外，该项目将与技术供应商进行对话，并将听取支付市场各方和公众的意见。我们还将在有限的范围内继续进行一些技术测试，以了解更多信息。因此，我们将与埃森哲作为技术供应商的协议从2022年2月起再延长一年。
-
-
-
-
-
-*编辑：aQ
-发布：文顾*
-
-
- 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
