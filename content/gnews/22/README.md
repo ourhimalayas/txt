@@ -2,31 +2,39 @@
 ---
 
 
-## 英国取消所有的新冠病毒限制
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2052212/)
+## 93%的死者接种过疫苗并且有血栓
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2052213/)
 
-[![](https://express.adobe.com/page/meThKFieGGTuh/images/1a67a256-f184-44f5-917c-caaed74e6c29.png?asset_id=a44750bd-6101-42ab-b071-07912f4c4a01&amp;img_etag=%22b5587e9f763e00aae3c67eb39942547b%22&amp;size=2560)](https://express.adobe.com/page/meThKFieGGTuh/images/1a67a256-f184-44f5-917c-caaed74e6c29.png?asset_id=a44750bd-6101-42ab-b071-07912f4c4a01&amp;img_etag=%22b5587e9f763e00aae3c67eb39942547b%22&amp;size=1024)
+[![](https://express.adobe.com/page/zOaESvzxKMh32/images/2f889841-1404-4cc1-b493-6f13d84bcaf0.png?asset_id=6e0464c8-4c36-42d1-bc79-00360f42b78a&amp;img_etag=%22f6dbf87fab4bbf91397cd14c2f204ffa%22&amp;size=2560)](https://express.adobe.com/page/zOaESvzxKMh32/images/2f889841-1404-4cc1-b493-6f13d84bcaf0.png?asset_id=6e0464c8-4c36-42d1-bc79-00360f42b78a&amp;img_etag=%22f6dbf87fab4bbf91397cd14c2f204ffa%22&amp;size=1024)
 **简评：**
 
-由于政府无法继续负担经济成本和个人自由的损失，英国首相约翰逊宣布将取消国内所有的新冠病毒的法律限制，不再要求完全接种者、密切接触者和18岁以下的人进行为期七天的每日检测。约翰逊表示，新冠病毒不会马上消失，如果想等疫情完全结束再取消限制，英国人民将会被长期限制自由。英国解禁了，其他国家还要多久呢？
+殡仪馆尸体防腐工作人员从去年年中开始就看到，每一个死者都接种过新冠疫苗。在过去30名死亡案例中，有28个有血栓，比例高达93%。在没有接种疫苗的死者中，没有看到有血栓。
 
-[**GETTR视频链接**](https://gettr.com/post/pw4v708e1d)
+[**GETTR视频链接**](https://gettr.com/post/pvj3fba407)
 
-[**GTV视频链接**](https://gtv.org/video/id=6214ef3d1408ee3a03a36fce)
+[**GTV视频链接**](https://gtv.org/video/id=6210ff952403672096ac68e3)
 
 **视频字幕：**
 
-**英国首相鲍里斯.约翰逊**：我们将取消所有国内现有的（新冠病毒）的法律限制。
+**Steve**：你提到，在过去30个病例中，28个病例中看到了这些奇怪的血栓。
 
-**画外音**：周一英国首相鲍里斯.约翰逊表示，他将取消英国的所有新冠病毒限制。
+**殡仪馆工作人员**：是的。
 
-**约翰逊**：我们将结束常规的接触追踪，不再要求完全接种者、密切接触者和18岁以下的人进行为期七天的每日检测。
+**Steve**：所以30个中有28个。听众们，那就是过去的30名死亡案例中，93%的人有血栓。你知道其中一些案例或所有这些案例的疫苗接种情况吗？
 
-**画外音**：约翰逊终止健康限制的举措引起了一些科学家和政治反对派的怀疑。他们警告说，此举为时过早，将使国家容易受到新的病毒变种的影响。
+**工作人员**：我知道大部分。有的是通过电话了解的，有的是我从殡仪馆主任那里得知的。那些在养老院的老人，他们大都已经接种了疫苗。
 
-**约翰逊**：议长先生，新冠病毒不会马上消失，所以那些想等这场疫情完全消失才取消限制的人，将在未来很长一段时间限制英国人民的自由。
+**Steve**：是的 ，你见过没有接种疫苗的人有血栓吗？
 
-**画外音**：首相说，由于经济成本和个人自由的损失太大，政府已无力再继续负担。取消现有的法律限制是约翰逊所在的保守党许多议员的首要任务。他们对其丑闻缠身、领导能力的不满已经威胁到他对权力的掌控。
+**工作人员**：沒有。
+
+**Steve**：好的。从你去年年中开始看到这种现象，比率是否有变化？从我当时看到的十分之一？
+
+**工作人员**：是的，现在更显著，大概我看到的每一个病例都是接种过疫苗的。
+
+**Steve**：你看到的情況是，所有死亡的人都是接种过疫苗的人？
+
+**工作人员**：是的，对上面那句陈述，毫无偏见地说，有些人在接种疫苗前得过新冠，但在接种之前没有（血栓）。我之前告诉你的那位先生，56岁，得过新冠，之后他接种了疫苗，在接种第二剂疫苗两天后死亡。
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
@@ -35,8 +43,8 @@
 
 *编辑：【英国伦敦喜庄园编辑部】*
 
-*字幕：雨中漫步* *| 听写：云岭 | 翻译：Blue* *| PR：Roberts* *|简评/文字整理/编辑：胖丁 | Page：我是球大哥*
-[![](https://express.adobe.com/page/meThKFieGGTuh/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://express.adobe.com/page/meThKFieGGTuh/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
+*字幕/**听写：云岭 | 翻译：致良知* *| PR：Blue**|简评/文字整理/编辑：胖丁 | Page：我是球大哥*
+[![](https://express.adobe.com/page/zOaESvzxKMh32/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://express.adobe.com/page/zOaESvzxKMh32/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

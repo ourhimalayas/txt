@@ -2,49 +2,37 @@
 ---
 
 
-## 93%的死者接种过疫苗并且有血栓
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2052213/)
+## 短视频：探讨元宇宙和加密货币的未来
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2052257/)
 
-[![](https://express.adobe.com/page/zOaESvzxKMh32/images/2f889841-1404-4cc1-b493-6f13d84bcaf0.png?asset_id=6e0464c8-4c36-42d1-bc79-00360f42b78a&amp;img_etag=%22f6dbf87fab4bbf91397cd14c2f204ffa%22&amp;size=2560)](https://express.adobe.com/page/zOaESvzxKMh32/images/2f889841-1404-4cc1-b493-6f13d84bcaf0.png?asset_id=6e0464c8-4c36-42d1-bc79-00360f42b78a&amp;img_etag=%22f6dbf87fab4bbf91397cd14c2f204ffa%22&amp;size=1024)
-**简评：**
+翻译：不要代表我
+校对：枳实
+字幕：qingjing
+编辑：文泓
 
-殡仪馆尸体防腐工作人员从去年年中开始就看到，每一个死者都接种过新冠疫苗。在过去30名死亡案例中，有28个有血栓，比例高达93%。在没有接种疫苗的死者中，没有看到有血栓。
-
-[**GETTR视频链接**](https://gettr.com/post/pvj3fba407)
-
-[**GTV视频链接**](https://gtv.org/video/id=6210ff952403672096ac68e3)
-
-**视频字幕：**
-
-**Steve**：你提到，在过去30个病例中，28个病例中看到了这些奇怪的血栓。
-
-**殡仪馆工作人员**：是的。
-
-**Steve**：所以30个中有28个。听众们，那就是过去的30名死亡案例中，93%的人有血栓。你知道其中一些案例或所有这些案例的疫苗接种情况吗？
-
-**工作人员**：我知道大部分。有的是通过电话了解的，有的是我从殡仪馆主任那里得知的。那些在养老院的老人，他们大都已经接种了疫苗。
-
-**Steve**：是的 ，你见过没有接种疫苗的人有血栓吗？
-
-**工作人员**：沒有。
-
-**Steve**：好的。从你去年年中开始看到这种现象，比率是否有变化？从我当时看到的十分之一？
-
-**工作人员**：是的，现在更显著，大概我看到的每一个病例都是接种过疫苗的。
-
-**Steve**：你看到的情況是，所有死亡的人都是接种过疫苗的人？
-
-**工作人员**：是的，对上面那句陈述，毫无偏见地说，有些人在接种疫苗前得过新冠，但在接种之前没有（血栓）。我之前告诉你的那位先生，56岁，得过新冠，之后他接种了疫苗，在接种第二剂疫苗两天后死亡。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image01.png)图片来源：视频截屏
 
 
-*编辑：【英国伦敦喜庄园编辑部】*
+图片来源：视频截屏
 
-*字幕/**听写：云岭 | 翻译：致良知* *| PR：Blue**|简评/文字整理/编辑：胖丁 | Page：我是球大哥*
-[![](https://express.adobe.com/page/zOaESvzxKMh32/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://express.adobe.com/page/zOaESvzxKMh32/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
+正是这个广告，由拉里·戴维主演的FTX（全球领先数字资产衍生品交易平台）与其他三个加密货币公司的广告在昨晚的超级碗期间（播放），让观众称其为“加密货币碗”。Etoro、crypto.com和coin base分别购买了650万美元至1300万美元的广告位。
+
+在Crypto.com的超级碗广告中，年轻的勒布朗·詹姆斯（LeBron James）和年老的自己进行交谈。
+
+因此，这基本上超出了推动品牌意识的范围，让我们提出了一个问题，这些广告能否移动美国证券交易委员会的门柱，以最终批准灰度比特币信托基金转换为现货ETF？灰度——最大的加密货币资产管理公司正在等待美国证券交易委员会批准其现货比特币ETF的准入，它在本月早些时候刚刚成功推出其未来金融ETF。其最大的持股者包括Coinbase、PayPal、Robin Hood和bitfarms。
+
+下面是《福克斯财经》的独家报道，灰度的EFT的全球主管Dave Lavelle，Dave，请简明扼要的说明一下昨晚发生了什么？以及对数字货币世界的关注度如何，对比特币的未来接受度可能意味着什么？
+
+视频链接：[Super Bowl nicknamed the ‘Crypto Bowl’ after four crypto ads | On Air Videos | Fox Business](https://video.foxbusiness.com/v/6297503422001#sp=show-clips)
+
+发布：文泓
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
