@@ -2,26 +2,42 @@
 ---
 
 
-## 中日财经爆|标普将海底捞评级列入负面信用观察名单
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2051599/)
+## 瑞士可能被列入欧盟洗钱国黑名单
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2051638/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2107.png)[图片来源](https://www.chinaz.com/2021/1106/1325721.shtml)
-信用评级机构–标普国际周三（2月23日）表示，将中国连锁火锅龙头–海底捞的长期主体信用评级“BBB”及其未到期的优先无抵押债券的长期债项评级“BBB”列入负面信用观察名单，标普质疑海底捞能否在2022年将财务杠杆降至1.5倍以下。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-标普新闻稿并称，在人力和原材料成本居高不下的背景下，盈利波动加剧可能导致海底捞的财务杠杆持续高于1.5倍–触发评级下调的临界值。
+翻译：Melody
+编辑：文泓
 
-“如果海底捞在改善现有门店的盈利能力方面面临困难，特别是翻台率和客流量指标，进而预示该公司2022年的杠杆水平仍将高于1.5倍，且表明业务增长和现金流生产水平不及我们预期，那么我们可能下调其评级。”标普称。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/6-41.png)图片来源：Business Insider Africa & 雅典娜设计组
 
-2026年1月4日到期的五年期海底捞美元债（票面利率2.15%）今年以来持续下跌，到期收益率目前已攀升至约6%。该笔美元债规模为6亿美元。
 
-海底捞周一发布盈利预警称，预计2021年录得净亏损约38-45亿元人民币，上年同期盈利3.1亿元。
+目前，瑞士这个国际金融中心正在应对瑞士信贷银行数据大规模泄露的影响。
 
-消息来源：[海底捞遭标普列入评级负面观察名单 因财务杠杆降至1.5倍以下不确定性增大](https://cn.reuters.com/article/haidilao-sp-aaa-negative-list-0223-idCNKBS2KS0AF?il=0)
+当地时间2月22日，据RT电视台报道，欧洲议会中最大的政治团体欧洲人民党(EPP)呼吁对瑞士的银行业务进行审查，并要求将瑞士列入欧盟的洗脏钱黑名单，因为泄露的瑞士信贷银行文件显示该银行与“恶棍”客户的交易。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+据报道，这家瑞士银行巨头几十年来一直为杂乱无章的客户名单提供服务，其中包括国家元首和间谍头目，以及侵犯人权者和受制裁的个人。
+
+根据有组织犯罪和腐败报告项目（OCCRP）“瑞士秘密”的调查结果，瑞士银行在防止洗钱方面存在巨大缺陷，调查也确定了这家瑞士银行的客户参与了酷刑、贩毒、洗钱、腐败和其他严重犯罪。
+
+EPP经济事务协调员马库斯·费伯补充道:“当瑞士银行未能恰当地应用国际反洗钱标准时，瑞士本身就会成为一个高风险的司法管辖区。”
+
+瑞士信贷强烈否认任何不法行为的指控，称媒体报道是基于“断章取义的选择性信息，导致对银行商业行为的倾向性解释”。
+
+如果瑞士被列入黑名单，它将面临适用于与伊朗、缅甸、叙利亚和朝鲜等国相关的交易的强化尽职调查。欧盟洗钱黑名单目前包括21个国家，目前其中没有一个是欧洲国家。
+
+新闻链接：[Switzerland could be blacklisted as money-laundering state — RT Business News](https://www.rt.com/business/550146-switzerland-money-laundering-state/)
+
+发布：tianzhihuan
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

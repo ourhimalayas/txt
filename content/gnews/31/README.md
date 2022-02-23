@@ -2,25 +2,31 @@
 ---
 
 
-## 由于没有接种加强针，法国政府停用了400万两针疫苗接种者的疫苗护照
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2051456/)
+## 有声|喜马拉雅币一周分析与总结（2月14日-2月20日）
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2051548/)
 
-#### 翻译/撰稿：zzballack
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+过去一周喜马拉雅币价格在45美元附近波动，平均日交易量约9万枚喜币。喜币上市以来总交易量约2870万枚 ，占今年总发行量的仅约2.87%。目前喜币交易在全球尚未完全开放，市场交易量较低，价格仍被严重低估。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-2-14.jpg)图片来源：美联社
-据《网关专家》（Gateway Pundit）2月22日报道，《法国新闻24》 (France News 24) 报道说，在过去一周，近400万已接种了两针新冠疫苗的法国公民由于没有接种加强针，他们的疫苗护照被法国政府停用。被收回护照的人实际上将被降格为未接种者，无法再参加社会的大部分活动。
+本周据郭文贵先生在大直播中透露，一个月内喜支付将推出新政策，包括喜贷款和喜抵押。喜交所也将发布重大的投资利好公告。喜交所还会很快会推出比特币和其它数字货币交易。即将推出的躺平币将独立于喜币运营，有自己独立的支付系统GettrPay（盖特支付），还会有自己独立的贷款系统。除此之外，躺平币可以在喜交所进行交易，喜币也可以在盖特平台上交易。
 
-自从宣布接种第三针以来，法国政府已多次改变加强针的接种时间。起初人们有6个月的时间接种，接着先后改为3个月和7个月。目前，人们必须在上次接种后的4个月内接种加强针，才能确保疫苗通行证有效。
+郭先生还在直播和盖特中透露，已故的三度夺取F1世界冠军的巴西赛车手埃尔顿·塞纳曾经驾驶的迈凯伦福特 MP4/8A赛车最近通过喜币完成了交易，这笔数字货币交易将是深远影响数字货币与现实生活生产力进行公平交易的一个里程碑事件。另外喜联储还在与多家线上线下商城商谈合作，未来将会有多个G-Mall出现，而且还会有很多地方接受喜币买房。喜币将在流通领域开创数字货币的传奇，使人类经济活动回归到物物交换的本源，实现高效率、去中介化、零成本，而且没有地域限制的货币全球流通。
 
-要求的频繁变化肯定部分导致了许多人错过了加强针的截止日期，但是有越来越多的人根本不愿意接种更多疫苗。一位妇女在接受France 24采访时解释说，当她发现自己的疫苗接种状况变为未接种时感到很震惊，但她说她不会再打针了，因为实在是太多了。
+文字版原文：[喜马拉雅币一周分析与总结（2月14日-2月20日）](https://gnews.org/zh-hans/2039449/)
 
-而另一些人则无法接受失去特权。一名妇女在发现自己的疫苗护照被取消后感到非常震惊，随即接种了加强针，这正是法国政府停用护照时所希望看到的。一位18岁的女大学生说，她以为自己的时间充裕，所以一直推迟接种加强针，但通行证被停用促使她最终遵从规定。
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-胁迫是一个强大的使公民变为顺民的工具。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-新闻来源：[France Deactivates 4 Million Vaccine Passports, Forcing Double-Jabbed Citizens to Decide Between Taking the Booster or Being Shunned From Society (VIDEO)](https://www.thegatewaypundit.com/2022/02/france-deactivates-4-million-vaccine-passports-forcing-double-jabbed-citizens-decide-taking-booster-shunned-society-video/)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

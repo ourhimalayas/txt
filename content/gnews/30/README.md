@@ -2,29 +2,33 @@
 ---
 
 
-## 受贿超9.795亿！中信银行原行长孙德顺受审
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2051522/)
+## 有声|在顿涅茨克市中心发生强烈爆炸
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2051551/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/383b-56d01e8c08397bc4a66666bc8e19c6eb1.jpg)图片来源：中共国新闻网
-据中共国新闻网2月22日报道，山东省济南市中级人民法院22日一审公开开庭审理了中信银行原党委副书记、行长孙德顺受贿一案。
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+2022年2月19日，据【俄卫星社通讯社】报道，顿涅茨克人民共和国政府大楼几十米远处发生爆炸。 据消息称，这发生在距离顿涅茨克人民共和国政府大楼几十米远的地方。在爆炸现场可以看到大火，附近的建筑物没有损坏。 目前还没有人员伤亡的消息。
 
-济南市人民检察院指控被告人孙德顺利用职务之便，在2003年至2019年期间，在贷款审批等事项上非法收受财物共计折合人民币9.795亿余元。孙德顺及其辩护人到庭进行了最后陈述，并当庭认罪。法庭宣布休庭，择期宣判。
+顿涅茨克人民共和国人民民兵武装部在官方Telegram频道上发布的消息中说：“莫斯科时间19点左右，在政府大楼附近的一个停车场一辆汽车被炸毁。整个城市都听到了爆炸声。”
 
-从中共的镰刀旗竖起来的那时起，镰刀所到之处，肥老鼠、瘦韭菜被连根割起。党旗是用无数人的鲜血染红的，只要这面魔旗不倒，人人不能幸免。贪污的钱要吐出来，老百姓的资产要交出来，利益都归党所有，有谁胆敢反抗，杀无赦。
+此前，顿涅茨克人民共和国和卢甘斯克人民共和国宣布开始把平民大规模撤往俄罗斯。卢甘斯克人民共和国和顿涅茨克人民共和国代表2月17日早表示，各自阵地均遭到乌克兰武装部队的大规模火力袭击。 乌克兰军方则表示，2月17日，顿巴斯地区违反停火事件骤增。
 
-新闻参考链接：[https://finance.sina.cn/2022-02-22/detail-imcwiwss2367812.d.html?from=wap](https://finance.sina.cn/2022-02-22/detail-imcwiwss2367812.d.html?from=wap)
+目前，俄乌边境局势紧张引发了西方世界对战争的担忧，乌克兰相关军事行动也都成为了当下极其敏感和引发关注的话题。而与此同时，乌克兰声称他们打算通过政治和外交途径解决问题。
 
-* * *
+文字版原文：[在顿涅茨克市中心发生强烈爆炸](https://gnews.org/zh-hans/2040136/)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

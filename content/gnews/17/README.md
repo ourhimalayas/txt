@@ -2,32 +2,26 @@
 ---
 
 
-## 美议员警告：特鲁多的暴虐紧急情况法可以在美国实施
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2051708/)
+## 北约秘书长警告 俄罗斯计划全面入侵
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2051765/)
 
-By:**秘翻新闻**
+撰稿：东京樱花团/百花李香
 
-**2022-02-23**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/13-17.png)图片来源 新闻战线
-据《新闻战线》 2月22日报道，美国共和党参议员兰德·保罗 （ Rand Paul ）警告说，特鲁多政权为镇压加拿大的抗议活动而行使的紧急权力在美国也存在，政府可以在任何时候实施。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/北约秘书长警告-俄罗斯计划全面入侵.jpg)[图片来源](https://gnews.org/wp-admin/post-new.php?lang=zh-hans#imgrc=lZFAsQqGXEmC7M)
 
-在BASED Politics播客节目中，保罗指出，加拿大总理使用的法规是 “非常危险的”，在美国 “也有同样的法规”，而他“长期以来一直是这些法规的反对者”。
+北大西洋公约组织（NATO）秘书长斯托尔滕贝格22日在布鲁塞尔举行的新闻发布会上，谴责俄罗斯承认乌克兰东部两个亲俄地区的 “独立”，明显违反了国际法。危机是由俄罗斯独自造成的，它破坏了和平解决冲突的努力。同时他警告，所有迹象表明，俄罗斯继续计划全面入侵乌克兰，对欧洲的安全来说这是最危险的一次。
 
-他补充说，在美国实际上有一个紧急法案，允许总统关闭互联网。
+斯托尔滕贝格强调北约的立场是坚定和团结的。北约最近几周增加了在东欧的兵力，有100多架战机和120艘舰船处于高度戒备状态。
 
-保罗强调称：在美国，有一些紧急情况已经持续了很多年，而总统可以每年更新它们。没有人真正阻止他。
+他对德国总理肖尔茨宣布暂停批准俄罗斯“北溪2号”天然气管道表示欢迎。强调，如果俄罗斯对乌克兰采取进一步的侵略性行动，将会付出高昂的代价。
 
-保罗还提到了加拿大总理特鲁多的镇压，并敦促说：“特鲁多在加拿大所做的紧急法令允许他做一些可怕的事情，允许他停止旅行，允许他不经审判就拘留人。现在我们不知道他是否会这样做，但他可能做的事情非常、非常令人担忧。”
+信息源：
 
-新闻来源
-[**https://www.newswars.com/rand-paul-warns-that-trudeaus-tyrannical-emergencies-act-can-be-implemented-in-u-s/**](https://www.newswars.com/rand-paul-warns-that-trudeaus-tyrannical-emergencies-act-can-be-implemented-in-u-s/)
+[「ロシア、本格侵攻の計画継続」ＮＡＴＯ事務総長が危機感](https://news.yahoo.co.jp/articles/9681724fb092e527d469ed0bbd8619f7f360329d#:~:text=)
 
-秘翻新闻 Grace 编译报道
-
-发布 : 恩典
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321.jpg)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
