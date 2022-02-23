@@ -2,22 +2,37 @@
 ---
 
 
-## 不惧镇压自由抗议在加拿大爆发
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2050645/)
+## 有声|郭先生揭密习普二人密谈内容
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2050690/)
 
-采编：文莱         编译撰稿：苦尽甜来 (文來）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/01-image-2.png)
-据加拿大媒体【后千禧年】2月20日报道，在特鲁多政府暴力镇压渥太华长达数周的自由车队反疫苗护照运动后，支持卡车司机的浪潮在加拿大蔓延开来。无数市民走上卡尔加里和多伦多的街头，反对当局的各项强制性防疫措施。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在2月18日的大直播中，郭文贵先生揭密了习近平与普京的密谈内容，指出他们发动战争的根本目的，是为其个人安全和政治利益服务。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-48.jpg)
+郭先生透露，习近平将中国人一万多亿美元的血汗钱交给普京，换来他们两个多小时的单独密谈。无非就是习近平在怂恿普京，二人同时发动侵略战争，其代价是美国的制裁，把中俄踢出SWIFT系统。但是二人的政治地位会得到空前的巩固，一切政治对手也都会被消灭。如果不发动战争，那么中俄内部的政治斗争，则会让二人丧命。因为一切对外战争，都是内部政治灾难的延续，对中共和俄罗斯来说尤其如此。这两场战争看似政治野心，实则是习近平和普京个人安全和政治安危所需。
 
-报道称，特鲁多恣意妄为地打压和平集会之举触犯众怒。卡尔加里和多伦多等城市反政府疫苗政策的抗议者们日前冒着严寒走上街头，这些热爱和平和自由的民众继续抗争以支持在渥太华正被警察摧残的自由车队。
+郭先生进一步解密说，乌克兰其实是世界政治中的一枚棋子，美国和欧洲正在利用乌克兰人民的生命和安全，来消磨习普二人的意志。他们无论是否发动侵略战争，都无法避免灭亡的命运。
 
-此外，在美加边境地区也发生了相同的抗议活动。而最新民调显示，大多数美国人都支持加拿大自由车队，并认为有必要也在美国开展类似的运动。
 
-校对编辑：硫酸羟氯喹64
 
-发稿：苦尽甜来 (文来）
+文字版原文：[郭先生揭密习普二人密谈内容](https://gnews.org/zh-hans/2045456/)
 
-原文链接： [Freedom protests spread across Canada after Trudeau crackdown | The Post Millennial](https://thepostmillennial.com/freedom-protests-spread-across-canada)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

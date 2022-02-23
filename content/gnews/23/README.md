@@ -2,46 +2,33 @@
 ---
 
 
-## 欧盟六国派专家帮助乌克兰应对网络威胁
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2050489/)
+## 不甩美国制裁！普京高调宣布与「乌东2国」建交
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2050528/)
 
-作者：纽约香草山农场 – 四季
+俄罗斯总统普京本周承认乌克兰境内亲俄分离主义分子控制地区顿内茨克、卢甘斯克为主权独立国家后，俄罗斯今天表示，已与这两个独立共和国建立外交关系。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+俄国外交部说：「俄罗斯与顿内茨克人民共和国（Donetsk People’s Republic）和卢甘斯克人民共和国（Lugansk People’s Republic）建立外交关系的协议，已与2月22日起草完毕。」
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3535064-PH_副本.jpg)图片来源：普京官方推特
 
+俄国外交部在声明中表示，外长拉夫罗夫（Sergey Lavrov）已向顿内茨克、卢甘斯克外长拍发贺电。
 
+声明还说：「俄罗斯的目标是全面发展与顿内茨克、卢甘斯克合作关係，包括透过外交单位促进我们3国国民利益，同时强化和平、地区稳定和安全。」
 
+俄罗斯总统普京今天稍早要求国会上议院联邦院批准对外用兵，以支持乌克兰分离主义人士，上议院随即表决通过，为普京在面临全球强烈反对下，仍派兵前往乌克兰敞开大门。
 
-据[ONA网站](https://www.oann.com/six-eu-countries-send-experts-to-help-ukraine-deal-with-cyber-threats/)2月22日援引路透社报道，立陶宛国防部副部长周二表示，在俄罗斯正式承认乌克兰东部的两个分离地区后，应乌克兰周一提出的请求，六个欧盟国家——立陶宛、荷兰、波兰、爱沙尼亚、罗马尼亚、克罗地亚将向乌克兰派出一个网络安全专家小组，帮助其应对网络威胁。
+俄罗斯上议院议员一致通过这项动议，允许普京在顿内茨克和卢甘斯克部署「维和部队」，而这些所谓的维和部队可能挺进乌克兰其他地区。（中央社莫斯科22日电）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-22T142234Z_1_LYNXMPEI1L0NO_RTROPTP_0_UKRAINE-CRISIS-CYBER_1.jpg)在2022年2月15日拍摄的这幅插图中，在 “网络攻击”、二进制代码和乌克兰国旗的前面，可以看到带有电脑和智能手机的小雕像。（REUTERS/Dado Ruvic/Illustration/File Photo）
+简评：冬眠会习普秘密会谈，穷困潦倒的俄罗斯有了中共国的财源支持，给极度自卑的普京打了强心针，准备在有生之年完成自己称霸的野心。惨烈的战争一触即发，这世界的战争都是由野心家挑起的，望世界各国以及热爱和平的人民起来共同阻止这邪恶的行径。
 
-美国和英国周五均表示，俄罗斯军事黑客是一连串分布式拒绝服务（DDoS）攻击的幕后黑手，这些攻击使乌克兰银行和政府网站短暂瘫痪。英国国防部长本·华莱士周一表示，英国的网络专家正在与乌克兰合作，以帮助保护其免受俄罗斯活动的影响。
+新闻来源：[三立新闻网](https://www.setn.com/News.aspx?NewsID=1075391)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2月.jpg)
+撰稿/发布：一叶知秋
 
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

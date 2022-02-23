@@ -2,39 +2,22 @@
 ---
 
 
-## 专家称俄乌开战 中共不会在军事上予以支持
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2050652/)
+## 国际｜以“入侵”定调俄罗斯 美国出手制裁
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2050691/)
 
-#### 【雅典娜快讯】紧贴时代脉搏
+**撰文/ 港台前线｜发布日期/ 23/02/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/以「入侵」定調俄羅斯-美國出手制裁.jpg)
+**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
 
-整理：围剿维尼熊
-编辑：小熊
+继英国之后，美国总统拜登22日宣布首轮制裁俄罗斯的名单，包括俄罗斯主权债、两间主要银行及俄罗斯权贵及其家属。欧盟方面亦宣布制裁俄罗斯，对象包括俄罗斯国会杜马全体议员，以及27名个人及实体，涉及国防、金融以及银行界。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/2-89.png)图片来源：雅典娜设计组
+在美国本轮制裁措施当中，最严厉的相信就是针对俄罗斯主权债的这项，该措施禁止美国金融机构与俄主权债基金进行股票交易，或向后者贷款。
 
+另外，负责俄罗斯国家项目的俄罗斯国有开发银行（VEB.RF）、为受制裁国防工业服务的军方银行Promsvyazbank，以及它们的42间子公司，也被悉数纳入本次的制裁名单。未来美国各金融机构禁止处理与被制裁银行进行交易，将两行排除在美元交易之外。拜登指出，上述两方面的制裁均可切断俄罗斯政府在西方融资，使俄罗斯无法从西方集资，或在欧美市场交易新债。
 
-据路透社报道，专家们表示，如果俄罗斯入侵乌克兰，中共将在外交或经济上支持俄罗斯，但绝不会提供军事支持。
+不仅如此，Promsvyazbank行政总裁Petr Fradkov、第一副幕僚长Sergei Kiriyenko，以及普京挚友兼联邦安全局（FSB）局长Aleksandr Bortnikov 三人同时被制裁。拜登宣布制裁时，首次以“入侵”形容俄罗斯对乌东的行动，同时表示，若俄罗斯继续侵略乌克兰，美国不排除会祭出更多制裁措施。
 
-美国总统拜登上周五表示，俄罗斯总统普京已决定在几天内入侵乌克兰，而俄罗斯否认这一说法。
-
-中共外交部一再谴责美国“散布虚假信息”并制造紧张气氛，敦促其尊重并呼应俄罗斯在安全保障方面的要求。
-
-为了显示团结，普京出席了2月4日北京冬奥会开幕式，与习近平共同宣布深化战略伙伴关系。中共国媒体宣称，两国将肩并肩“维护世界正义”。
-
-如果俄罗斯入侵乌克兰，将考验中共经常声明的“不干涉外交政策原则”。熟悉北京当局思路的专家说，中共肯定不想在军事上介入。在国际社会如此两极分化的情况下，美国和西方有可能将俄罗斯及中共国同时孤立或制裁。
-
-北京也不希望为俄罗斯入侵乌克兰承担经济后果，特别是今年，习近平准备展开史无前例的第三个任期，他要把“稳定”放在首位。
-
-参考链接：[专家称如果俄罗斯对乌克兰采取行动 中国会在外交上予以支持](https://cn.reuters.com/article/russia-ukraine-crisis-china-dip-0221-idCNKBS2KQ08U)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+来源｜[AJ](https://www.aljazeera.com/news/2022/2/22/biden-imposes-new-russia-sanctions-decries-beginning-invasion)
 
  
 
