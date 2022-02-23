@@ -2,71 +2,32 @@
 ---
 
 
-## 有声|对抗暴政
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2054434/)
+## 现在钱成了统治人类的工具
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2054436/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+文编：Hima
+听写：叮叮
+视频：七哥
 
+2022-02-16直播摘录11：10：37
 
-母亲
-你流着血
-我流着泪
-共同对抗
-这暴政横行
+我们现在所有的、我们人类，我们不想说任何过激的话，但是一定要记住，这次的整个的大病毒，还有共产党的邪恶的权力到达了顶峰，它几乎是我们人类上面对着一个叫什么？对过去这七十年的人类最长的和平时期、和科技发达时期、和财富暴涨时期、人口暴涨时期，所有的这一段是一场清算。这个清算是什么？没有信仰的人你会为没有信仰付出代价；你不相信人类和大自然之间关系的，就你毁掉大自然的、搞污染的、你完全视大自然不存在的，你将付出代价；让别人不健康、让自己活得很长寿的人，你记住，你也会付出代价！还有，这个人类上自从有了财富，它加速了人类的生产力和贸易和过剩生产力的平衡工具，现在钱成了统治人类的工具。你看看那个加拿大的“土豆”，他把大卡车司机干啥？我停你的信用卡，我停你的保险，我让你没有钱买饭吃，哇塞…这是多恐怖的事？兄弟你们想过吗！人类在石器时代没衣服，穿光着屁股的时候，我给你两块石头，我给你两块果子，你给我这个双休一次是吧，或者说你给我另外两个果子。那个时候人类都没有拿这个来威胁的，哪有这个威胁的？你都是用你自己的劳动力，这是劳动是剩余价值。
 
-母亲
-看
-一个人跌倒了
-马蹄踏上他的身
-皇家骑警
-为什么践踏人民
-为什么悲惨呼声
-他们无动于衷
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-母亲
-你再看
-到处是
-血和泪的眼睛
-混合着声音异常悲愤
-何去何从
-何去何从
-我的未来
-是不是
-真的只是梦
+**关注我们**
 
-母亲
-告诉我实情
-这个世界魔鬼横行
-正义的声音微弱
-你为我撑起的温馨
-短暂如流星
+Discord 账号
 
-母亲
-你流着血
-我流着泪
-和他们一起
-共同对抗
-这暴政横行
-让自由声音
-雷声轰鸣
-结束暴政
-结束魔鬼横行
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-文字版原文：[对抗暴政](https://gnews.org/zh-hans/2032528/)
+Gettr 账号
 
-音频处理：Fei797
-发稿：Fei797
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,32 +2,38 @@
 ---
 
 
-## 西班牙谴责俄罗斯在乌克兰的行动，并承诺作出“响应反应”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2054585/)
+## Covid疫苗的三种新副作用
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2054619/)
 
-翻译：七龙珠
+编译：七龙珠
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-23-203937.jpg)图片来源：elperiodico.com
+![](https://assets.gnews.org/wp-content/uploads/2022/02/coronavirus-covid-vaccine-zh-hero-edited-1.jpg)图片来源：allaboutvision.com
 
-西班牙首相佩德罗-桑切斯谴责了俄罗斯在与乌克兰冲突中的行动，此前俄罗斯承认并向亲俄的顿巴斯和卢甘斯克共和国派遣了军队，并承诺在北约框架内采取联合行动。
+欧洲药品管理局（EMA）在其最新报告中承认存在冠状病毒疫苗的三种新的副作用。这些不良反应是对那些已知的不良反应的补充，其中发烧、疲倦和头痛是最常见的，而偏瘫、脊髓炎和淋巴结的出现是一些最奇怪的情况，尽管在接受第三剂疫苗的人中也很常见，无论是辉瑞还是Moderna。
 
-此前，外交、欧盟和合作部长何塞-曼努埃尔-阿尔巴雷斯也谴责俄罗斯承认2014年在莫斯科支持下自封的乌克兰省份，并保证西班牙将与合作伙伴“密切配合”应对“公然违反”。
+Covid疫苗有三个新的副作用：
 
-“俄罗斯承认乌克兰东部的分离主义领土是对乌克兰的领土完整、明斯克协议和国际合法性的公然侵犯”。阿尔巴雷斯说：“我们将与我们的合作伙伴密切协调，作出回应”。
+—— 多形性红斑
 
-俄罗斯总统弗拉基米尔-普京周一宣布承认乌克兰顿涅茨克和卢甘斯克省的独立，这两个省在莫斯科的支持下于2014年自行宣布独立，尽管西方大国发出了相反的警告。
+—— 肾小球肾炎
 
-普京的宣布立即引起了参与乌克兰危机和支持基辅的主要国际行为者美国、北约和欧盟的拒绝和谴责。
+—— 肾病综合征
 
-新闻来源：[elperiodico.com][España condena la actuación de Rusia en Ucrania y promete “respuesta coordinada”](https://www.elperiodico.com/es/internacional/20220221/espana-condena-actuacion-rusia-ucrania-13271337)
+每种副作用包括什么？
+
+多形红斑是圆形的皮肤病变，可出现在皮肤甚至粘膜上，而肾小球肾炎是肾脏中过滤器的炎症，肾病综合征是一种肾脏疾病，导致肾脏在过滤废物时排除大量的蛋白质。
+
+目前，EMA仍在调查这些新的Covid疫苗副作用之间的关联，以查明这些影响是否是由因果关系造成的，或者是否是偶然的，是否归因于接种的毒剂。
+
+**参考资料：**[levante-emv][Los tres nuevos efectos secundarios de la vacuna del covid](https://www.levante-emv.com/vida-y-estilo/salud/2022/02/22/vacuna-covid-efectos-secundarios-eritema-multiforme-glomerulonefritis-63012338.html)
 
 * * *
 
 *审核：Aries的星
 校对：信心满满
-发布：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-3.jpeg)
+发稿：信心的选择*
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-3.jpeg)
 
  
 
