@@ -2,13 +2,37 @@
 ---
 
 
-## 2月23日勿忘香港（图片1-7）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2054977/)
+## 灭共小诗
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2055069/)
 
-设计 五月花农场 企鹅
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1C1DE4DD-F9C4-42DA-8DF1-BBEAE5207CE6.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/38005193-B177-48A7-A3E5-F45E0CC1AA13.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/0B261520-DBEF-43EB-A63D-81C4C6554545.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/D1B4B808-562D-4216-9F47-3C039A45A13C.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/1460F6B1-66F7-46A1-9CDA-54FDFFF6968E.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/1AF1D3E0-18C5-478B-B227-5384E7FDE641.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/24C1CD74-54FE-4824-9024-8B6C15CBE965.jpeg)
-发布：水涨船高
+撰稿：东京樱花团/匿名
+![](https://assets.gnews.org/wp-content/uploads/2022/02/樱花灭共诗.png)
+今天郭叔来直播，
 
+我把郭叔说一说。
+
+中共暴政遍全球，
+
+病毒波及千万家。
+
+幸有郭叔早预警，
+
+预备良药未打苗。
+
+全球正义齐协力，
+
+盘古相聚把言欢。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/灭共小诗1.png)
+
+消息来源：
+
+盖特：[https://gettr.com/post/puf1xq6932](https://gettr.com/post/puf1xq6932)
+
+*图片：东京樱花团/夏目&山竹
+编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

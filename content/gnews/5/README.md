@@ -2,47 +2,35 @@
 ---
 
 
-## 加拿大省长准备就特鲁多使用《紧急状态法》提起讼诉.
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2054929/)
+## 突发：加拿大总理特鲁多宣布结束《紧急状态法》
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2055068/)
 
-翻译：冰糖葫芦喵
+翻译：灭共文明
 
-编辑与校对：冰糖葫芦喵、灭共文明
+编辑与校对：灭共文明
 
-加拿大阿尔伯塔“Life Site News”2日23日报道，**加拿大阿尔伯塔省长杰森·肯尼（Jason Kenney）将准备就特鲁多使用《紧急状态法》，向法院提起诉讼。**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/阿尔伯塔省长1-e1645653437632.jpg)阿尔伯塔省长杰森.肯尼（图片来源：加拿大媒体）
-肯尼在周六发布的Twitter视频中说，**“联邦政府援引《紧急状态法》是一个不必要的、不相称的措施，会侵犯公民自由，侵犯省级管辖权，并为未来创造一个非常危险的先例。”**
-
-肯尼表示，卡车司机和抗议者的示威活动，是不需要紧急权力处理的。他补充说，该省还将考虑申请支持加拿大公民自由协会和加拿大宪法基金会，并采取行动来捍卫法律和秩序，捍卫公民自由和加拿大的宪法。
-
-就在上周，**加拿大公民自由协会也宣布，由于侵犯了公民自由，它将对加拿大联邦政府援引《紧急状态法》的行为提出起诉。**
+《网关专家》2月23日报道，**加拿大发生了令人震惊的逆转，当地时间周三下午，加拿大总理贾斯汀.特鲁多(Justin Trudeau)在新闻发布会上宣布，撤销《紧急状态法》。**
 
 
 
-> Alberta is filing a Court challenge to the unjustified use of the Emergencies Act.
-> 
-> We may also intervene in support of other Court challenges.
-> 
-> As Tommy Douglas said about the use of the War Measures Act in 1970, it’s like “using a sledgehammer to crack a peanut. [https://t.co/lx53TNcaJb](https://t.co/lx53TNcaJb) [pic.twitter.com/QD98vKgc32](https://t.co/QD98vKgc32)
-> — Jason Kenney (@jkenney) [February 19, 2022](https://twitter.com/jkenney/status/1495172077879369731?ref_src=twsrc%5Etfw)
+> Trudeau announces end of Emergencies Act. [pic.twitter.com/sHnrsZCDQN](https://t.co/sHnrsZCDQN)
+> — The Post Millennial (@TPostMillennial) [February 23, 2022](https://twitter.com/TPostMillennial/status/1496596174916182018?ref_src=twsrc%5Etfw)
 
 
+2月23日，加拿大特鲁多宣布取消紧急状态法。
+就在本周一，加拿大议会投票支持特鲁多政府史无前例地使用《紧急状态法》。仅仅两天后，特鲁多就宣布，他已经完全取消了该措施。
 
-**周三，阿尔伯塔省议会提出了一项动议，谴责加拿大政府不必要地援引《紧急状态法》，**称这 是对加拿大宪法规定的省级管辖权的不必要的侵犯。
+报道称，放弃紧急权力的突然决定是一个出人意料的决定。他的紧急权力至少将持续三周。毕竟，特鲁多在过去10天里使用了《紧急状态法》，并利用近乎无限的权力来恐吓和骚扰基层卡车司机车队的和平抗议活动。
 
+**今天，特鲁多表示，“紧急状态”已经结束。**
 
+特鲁多宣布了这一决定说：“**我们已经确认情况不再是紧急情况。因此，联邦政府将停止使用紧急状态法。”**
 
-此外，**萨斯喀彻温省长斯科特-莫尔说，他的政府也将就颁布《紧急状态法》起诉特鲁多联邦政府。**
-
-莫尔说：”萨斯喀彻温省正在仔细评估单方面援引《紧急状态法》的影响，尽管该省在协商期间明确反对在萨斯喀彻温省适用该法。目前，正在考虑采取法律手段反对这一紧急权力。
-
-据报道，**加拿大10位省长中有7位，反对特鲁多就《紧急状态法》的使用。**
+他还说：“我们相信现有的法律和规章制度已经足以保证人们的安全。当然，如果需要，我们将继续在那里支持省级和地方政府。”
 
 **新闻链接：**
 
-[Alberta premier to sue Trudeau gov’t for ‘unjustified’ use of Emergencies Act – LifeSite (lifesitenews.com)](https://www.lifesitenews.com/news/alberta-premier-to-sue-trudeau-govt-for-unjustified-use-of-emergencies-act/?utm_source=top_news&amp;utm_campaign=usa)
-
-[GUNTER: Kenney filing legal challenge to end Trudeau’s Emergencies Act | Edmonton Sun](https://edmontonsun.com/opinion/columnists/gunter-alberta-premier-jason-kenney-filing-legal-challenge-to-end-trudeaus-emergencies-act)
+[BREAKING: In a Shocking Reversal, Trudeau Revokes His Use of the Emergencies Act – (VIDEO) (thegatewaypundit.com)](https://www.thegatewaypundit.com/2022/02/breaking-shocking-reversal-trudeau-revokes-use-emergencies-act-video/)
 
  
 
