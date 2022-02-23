@@ -2,24 +2,39 @@
 ---
 
 
-## 由于没有接种加强针，法国政府停用了400万两针疫苗接种者的疫苗护照
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2051456/)
+## 美国宣布对俄罗斯金融制裁
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2051594/)
 
-#### 翻译/撰稿：zzballack
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-2-14.jpg)图片来源：美联社
-据《网关专家》（Gateway Pundit）2月22日报道，《法国新闻24》 (France News 24) 报道说，在过去一周，近400万已接种了两针新冠疫苗的法国公民由于没有接种加强针，他们的疫苗护照被法国政府停用。被收回护照的人实际上将被降格为未接种者，无法再参加社会的大部分活动。
+整理：围剿维尼熊
+编辑：朝花夕拾
 
-自从宣布接种第三针以来，法国政府已多次改变加强针的接种时间。起初人们有6个月的时间接种，接着先后改为3个月和7个月。目前，人们必须在上次接种后的4个月内接种加强针，才能确保疫苗通行证有效。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-02-下午10.11.59-17.png)
 
-要求的频繁变化肯定部分导致了许多人错过了加强针的截止日期，但是有越来越多的人根本不愿意接种更多疫苗。一位妇女在接受France 24采访时解释说，当她发现自己的疫苗接种状况变为未接种时感到很震惊，但她说她不会再打针了，因为实在是太多了。
 
-而另一些人则无法接受失去特权。一名妇女在发现自己的疫苗护照被取消后感到非常震惊，随即接种了加强针，这正是法国政府停用护照时所希望看到的。一位18岁的女大学生说，她以为自己的时间充裕，所以一直推迟接种加强针，但通行证被停用促使她最终遵从规定。
+根据德国之声中文网2月23日报道，美国总统拜登2月22日宣布对俄罗斯银行进行金融制裁，以回应美国认定俄罗斯入侵乌克兰的行动。
 
-胁迫是一个强大的使公民变为顺民的工具。
+美国对俄罗斯进行的第一批经济制裁，主要是针对俄罗斯的VEB和Promsvyazbank银行。拜登还说，对俄罗斯主权债务的制裁意味著美国已经切断了俄罗斯政府与西方国家的融资。
 
-新闻来源：[France Deactivates 4 Million Vaccine Passports, Forcing Double-Jabbed Citizens to Decide Between Taking the Booster or Being Shunned From Society (VIDEO)](https://www.thegatewaypundit.com/2022/02/france-deactivates-4-million-vaccine-passports-forcing-double-jabbed-citizens-decide-taking-booster-shunned-society-video/)
+此外，美国的制裁措施还将针对俄罗斯的“精英”和他们的家庭成员。拜登还警告说，如果俄罗斯继续其侵略行为，它们将付出更沉重的代价。
+
+此前，美国国务卿布林肯21日表示，俄罗斯已明确表示全面拒绝透过外交渠道解决争端，而他也已取消原订24日与俄罗斯外长拉夫罗夫在日内瓦的会晤。
+
+布林肯将俄罗斯在乌克兰的行动描述为“二战以来对欧洲的最大威胁”。不过，他仍未放弃与俄罗斯进行外交谈判。
+
+联合国秘书长古特雷斯22日表示，他对俄罗斯扭曲维和的概念感到担忧。
+
+参考链接：[华盛顿制裁俄银行 联合国批莫斯科“假维和”](https://www.dw.com/zh/%E8%8F%AF%E7%9B%9B%E9%A0%93%E5%88%B6%E8%A3%81%E4%BF%84%E9%8A%80%E8%A1%8C-%E8%81%AF%E5%90%88%E5%9C%8B%E6%89%B9%E8%8E%AB%E6%96%AF%E7%A7%91%E5%81%87%E7%B6%AD%E5%92%8C/a-60880157)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

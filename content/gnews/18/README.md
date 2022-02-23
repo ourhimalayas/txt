@@ -2,35 +2,49 @@
 ---
 
 
-## 有声|加密货币法案在巴西进入参议院投票阶段
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2051719/)
+## 俄乌局势：拜登宣布制裁 调动部队应对俄入侵
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2051844/)
 
-配音：香草山巡管部 – 格格
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-2022年2月22日，巴西经济事务委员会召开会议就“巴西加密货币规则的替代法案”展开讨论以确立加密货币在巴西日常使用的基本规则。
+翻译： Jenny Ball
 
-当天，有14名参议员参与委员会讨论，在没有任何异议的情况下，法案将提交给参议院、下议院进行投票。最终由总统**博索纳罗**签署，成为法律。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2115.png)图片来源：foxnews.com
 
-该法案不仅定义了虚拟资产并对其服务提供商进行了分类，而且规定了对违法行为进行处罚的量刑标准。那些通过加密货币犯罪的嫌疑人可能面临4—8年的监禁。参议员Irajá评论说，这个法案得到了巴西中央银行、CVM、联邦税务局和私营公司的支持。法案要求虚拟资产服务提供商必须配合政府打击犯罪组织，恐怖主义融资，防止洗钱，隐藏资产等犯罪活动。
+欧洲官员说，在普京（Vladimir Putin）宣布承认顿涅茨克（Donetsk）和卢甘斯克（Luhansk）这两个分离地区的独立后，俄罗斯军队已经抵达乌克兰东部。
 
-其中一位参议员表示，该项目对巴西未来发展至关重要。如果该法案获得批准，巴西将成为拉丁美洲监管加密货币的最大国家，从而减少洗钱的可能性和投资者的风险。
+一小时前：
 
-目前巴西中央银行正在研究巴西法币的数字版本（CBDC）。该项目旨在促进投资而非商业用途，预计将在今年下半年进行试点。
+拜登表示将增派美军协助北约国家
 
-文字版原文：[加密货币法案在巴西进入参议院投票阶段](https://gnews.org/zh-hans/2050041/)
+拜登总统宣布，在俄罗斯和乌克兰之间日益紧张的局势下，将增派美军，以帮助加强北约国家的安全。
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+拜登在周二的一次讲话中说：“我已授权已经驻扎在欧洲的美军和装备进一步调动，以增强我们的波罗的海盟友。” “让我明确一点，这些完全是我们的防御性举措。我们无意与俄罗斯作战。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+但拜登表示，美国希望传达一个“明确无误的信息”，即美国愿意“保卫北约的每一寸领土”。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+拜登指出俄罗斯在囤积血液，认为这是他们打算入侵的明显迹象
+
+拜登总统指出，俄罗斯政府正在向乌克兰边境附近的部队和船只运送血液，认为这是俄罗斯打算在乌克兰发动战争的明显迹象。
+
+“除非你打算发动战争，否则你不需要血液，”拜登总统谈到俄罗斯在乌克兰边境储存血液供应时说。
+
+总统还宣布对俄罗斯实施新的制裁，以回应他们承认乌克兰境内的分离地区独立，并警告说，如果俄罗斯进一步进入乌克兰领土，将会采取更多措施。
+
+拜登称俄罗斯正在**“**开始**”**入侵并宣布制裁
+
+拜登总统表示，俄罗斯周二开始“入侵”乌克兰，同时宣布新的制裁措施，旨在阻止俄罗斯进一步侵略。
+
+拜登称，制裁将“远远超出”俄罗斯在 2014 年吞并乌克兰克里米亚期间对俄罗斯实施的制裁，称美国正在从西方切断俄罗斯的主要金融机构。
+
+素材：Bryan
+
+素材链接：[foxnews.com][Russia-Ukraine: Biden announces sanctions, troop movements in response to invasion: LIVE UPDATES](LIVE%20UPDATES)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-7.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

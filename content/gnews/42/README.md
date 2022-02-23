@@ -2,25 +2,25 @@
 ---
 
 
-## NBC北京冬奥会转播收视率堪称“灾难”
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2051013/)
+## 英首相警告乌克兰或将危及台湾
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2051014/)
 
-作者：纽约香草山 – 宁文静
+作者：台湾宝岛农场dobi
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月21日，据外媒报道，拥有美国地区独家转播权的全国广播公司NBC，在北京冬奥会超低迷的收视率数据上，沦为一场彻底的 “灾难”。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-22-下午11.32.43.png)
-NBC在2014年投资了77.5亿美元，获得了奥运会到2032年为止的独家美国媒体转播权。截至上周二，平均有1220万人在黄金时段观看了NBC、有线电视或其流媒体服务的奥运会，比2018年韩国首尔冬奥会下降了42%。NBC有1000万观众，比2018年下降了47%，在关键的25-54岁人群中，比首尔奥运会时下降了57%。这甚至还包括了NBC在2月13日播出奥运会后直接播出超级碗的收视率，而获得的一定提升。
+2月19日，海外媒体报导，英国首相鲍里斯•约翰逊在慕尼黑安全会议上针对目前俄乌情势发表言论，他表示：在乌克兰受到入侵、威胁时，如果西方国家不能兑现支持乌克兰主权的承诺，无异于在对全球宣告，俄罗斯的行为可能是正确的。这将对包括台湾在内的民主国家造成破坏性的后果。美国众议院情报委员会主席、众议员亚当•希夫也有类似的看法，
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-22-下午11.32.48.png)
+当前，尽管俄罗斯否认准备入侵乌克兰，但由俄罗斯军队在乌克兰边境附近集结，总统普京已经启动战略核导弹部队演习的态势看来，普京的意图仍很难预测，俄乌危机仍很严峻。
 
-观众的大幅流失让NBC感到震惊，不得不承认这届奥运会因严苛的中共病毒限制措施、多国外交抵制的政治紧张气氛，还有对参与者谴责人权暴行的言论施压而被载入史册。
+约翰逊认为，在中共一直将台湾视为其领土的一部分，并且不排除使用武力犯台的情况下，西方国家面对俄罗斯入侵乌克兰问题的态度，将会对后续台海情势发展或危机产生不可轻忽影响力。
 
-分析人士称，北京冬奥会因中共政府践踏人权，犯下种族灭绝罪、反人类罪，而被观众厌恶，抵制观看。NBC标榜其为自由媒体，却屡屡其新闻语言进行伪装，通过引用中共国粉饰其罪行的言辞，为中共独裁的本质站台背书，这种“双标”手法，终于导致收视率滑坡，堪称因果报应。
-
-参考链接：[NBC’s Beijing Olympic ratings called a ‘disaster’ for network: ‘I’m stunned … There is karma in the world’](https://www.foxnews.com/media/nbc-beijing-olympic-ratings-disaster)
+参考链接：
+1）[英首相：若西方未能支持烏克蘭 將危及台灣](https://www.epochtimes.com/b5/22/2/19/n13590249.htm)
+2）[UK sees threat to Taiwan if West does not support Ukraine](https://english.alarabiya.net/News/world/2022/02/19/UK-sees-threat-to-Taiwan-if-West-does-not-support-Ukraine)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
 总编：Zion文恩
-编辑：Zion文恩
+编辑：飞虹
 校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**

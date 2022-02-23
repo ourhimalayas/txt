@@ -2,22 +2,20 @@
 ---
 
 
-## 中日财经爆|摩根大通下调罗斯股市评级
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2051088/)
+## 中日财经爆|加拿大宣布对俄罗斯实施经济制裁
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2051093/)
 
 撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片9.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fimage.cnbcfm.com%2Fapi%2Fv1%2Fimage%2F104856881-rts1jsik_r.jpg%3Fv%3D1544635239%26w%3D929%26h%3D523&amp;imgrefurl=https%3A%2F%2Fwww.cnbc.com%2F2018%2F05%2F29%2Fgoldman-jp-morgan-stocks-look-cheaper-but-its-)
-摩根大通分析师周二（2月22日）将俄罗斯股市评级从“增持”下调至“中性”，此前俄罗斯在承认乌克兰东部两个分离地区独立后，向这两个地区派兵。摩根大通分析师预计，俄罗斯股市近期将进一步下跌。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片11.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fimage.shutterstock.com%2Fz%2Fstock-photo-map-of-russia-canada-sanctions-against-russia-judge-hammer-canada-flag-and-emblem-d-667017838.jpg&amp;imgrefurl=https%3A%2F%2Fwww.shutterstock.com%2Fimage-illustrati)
+加拿大总理特鲁多2月22日在莫斯科承认乌克兰分离主义地区顿涅茨克和卢甘斯克为独立国家的第二天，宣布对俄罗斯实施第一轮经济制裁。
 
-俄罗斯以美元计价的RTS股指盘中稍早触及2020年以来最低，到1316 GMT时下跌1.7%。以卢布计价的MOEX指数下跌1.8%。
+特鲁多说，他的政府将禁止加拿大人与所谓的“独立国家”卢甘斯克和顿涅茨克进行所有金融交易。还将禁止加拿大人参与购买俄罗斯主权债。
 
-摩根大通分析师Elena Jouronova在一份报告中表示：“鉴于不确定性如此之高，估值如此之低，以及投资者接受俄罗斯风险的兴趣下降，无论是做多还是做空，我们在中欧、东欧、中东和非洲(CEEMEA)配置中对俄罗斯转向中性。”
-
-股息下降带来了进一步下行风险。摩根大通补充称，当美国的政策明确旨在将俄罗斯孤立于市场之外时，俄罗斯可能无法向外国股东支付股息。
+加拿大政府将制裁那些投票赞成承认顿涅茨克和卢甘斯克独立决定的俄罗斯议会成员。加拿大将对两家国家支持的俄罗斯银行实施额外制裁，并阻止与它们进行任何金融交易。
 
 消息来源:
 
-[乌克兰危机恶化之际 摩根大通将俄罗斯股市评级从“增持”下调至“中性”](https://cn.reuters.com/article/jpmorgan-chase-russia-aaa-0223-idCNKBS2KS035?il=0)
+[加拿大宣布因乌克兰危机对俄罗斯实施第一轮经济制裁](https://cn.reuters.com/article/canada-trudeau-russia-sanction-0223-idCNKBS2KS03Z?il=0)
 
 *校对：东京樱花团/喜马拉雅的微尘*
 *发布：东京樱花团/tdownc2p*
