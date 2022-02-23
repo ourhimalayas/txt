@@ -2,25 +2,16 @@
 ---
 
 
-## 《历史的今天》2022.02.23
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2052785/)
+## 中共治下人人都是「鎖鏈女」
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2053207/)
 
-作者：虎子哥
-![](https://assets.gnews.org/wp-content/uploads/2022/02/iso.png)
-1. 1893年：德国工程师鲁道夫•狄塞尔发明基于迪塞尔循环的压缩点火式柴油引擎，并取得专利。
-2. 1901年：日本民间军国主义团体黑龙会成立。
-3. 1918年：苏联红军建军。
-4. 1919年：意大利法西斯主义创始人贝尼托•墨索里尼成立战斗者法西斯，后改组为国家法西斯党。
-5. 1938年：为了纪念苏联红军节，国民政府与斯大林派往中国的苏联空军志愿队联手发起了针对台北松山机场的空袭行动，是为松山空袭。
-6. 1940年：中国东北抗日联军第一路军总司令杨靖宇在吉林濛江县和日军交战中阵亡。
-7. 1947年：国际标准化组织正式成立，总部设在瑞士日内瓦。
-8. 1991年：海湾战争：美军陆军跨越伊拉克边界。
-9. 1991年：泰国皇家军队发动军事政变，推翻时任总理差猜•春哈旺。
+文貴大直播 20220223
 
+撰稿：待命（文曉）（櫻花）
 
-* * *
-
-*发布：Theodosia*
+美工：卡西亞（雅典娜）健身建心（英喜）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片1-34.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片2-37.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片3-33.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片4-34.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片5-33.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片6-34.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片7-24.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片8-8.png)
+*發布: Theodosia*
 
  
 

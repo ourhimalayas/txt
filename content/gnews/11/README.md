@@ -2,71 +2,33 @@
 ---
 
 
-## 有声|欧元稳定币正在DeFi生态系统中占据一席之地
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2053598/)
+## 美国政府的最新报告评估中共军事能力对美的挑战
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2053671/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-随着美元继续贬值，欧元支持的稳定币在加密货币和去中心化金融 (DeFi) 生态系统中的地位越来越重要。就像Tether（USDT）美元稳定币的小兄弟，我们今天聊聊Statis 的欧元稳定币 EURS 。
+**编译：verifunny**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-23-233132.jpg)
+美国政府问责局（GAO）的报告指出，中共国 “在过去20年里大大加强了其军事能力”，并 “将原本陈旧的军队转变为能够在常规和非常规能力方面挑战美军的军队”。
 
-**欧元稳定币在DeFi生态系统中的作用仍然很小**
+这份三页的报告概述了中国国防部在2049年底前拥有一支 “世界一流 “军队的目标中的五个 “挑战领域”。
 
-稳定币在加密货币世界中是众所周知的。这些[稳定的代币，](https://cryptoast-fr.translate.goog/stable-coin-crypto/?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN)其中大部分跟随[美元的价格](https://cryptoast-fr.translate.goog/fiche-tether-usdt/?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN)，提供了对市场波动的保护。
+首先，它说中共国正在扩大其反介入/区域封锁（A2/AD）能力–或者说拒绝美国或其他国家在紧急情况下进行干预的能力，例如在中共国入侵台湾期间。
 
-仅该行业中最大的三个（USDT、USDC 和 DAI）就代表了 450 亿美元的市值。这一令人印象深刻的数字，在最近几个月仍在不断增加。但这些美元稳定币并不是市场上唯一的。
+这种反介入/区域封锁能力包括远程精确打击能力（弹道导弹和巡航导弹），能够达到美国在该地区的后勤和力量投射，包括关岛，以及强大的防空能力，距离其海岸线超过550公里。
 
-几个月来，以欧元为后盾的稳定币不断出现：Stasis Euro (EURS) 和 sEUR的总市值为 7600 万欧元。与他们的大兄弟美元稳定币相比，这个数字要低得多，但每天都在增长。
+第二，中共国拥有 “强大的 “进攻和防御能力，旨在获得第一岛链内或东亚大陆海岸到包括台湾在内的第一岛链之间区域的海军优势。除了拥有能够瞄准距离中国海岸1500公里的航空母舰的弹道导弹外，中共国还拥有世界上最大的海军和造船能力。
 
-**两种代币垄断市场**
+第三，报告说，中共国的网络能力正被用来损害对手对其进行军事行动的能力，并从美国国防工业基地窃取敏感信息。
 
-让我们从介绍开始。两个最大的欧元稳定币是 EURS 和 sEUR。他们的价格稳定系统完全不同。sEUR 是[Synthetix](https://translate.google.com/website?sl=auto&amp;tl=zh-cn&amp;hl=zh-CN&amp;u=https://synthetix.io/)平台的欧元稳定币。它的市值在柜台上显示为 3500 万欧元。其操作类似于 Synthetix 平台上的所有资产；它是一种所谓的合成资产，其价格由协议的超额抵押担保，并且由于[Chainlink](https://cryptoast-fr.translate.goog/fiche-chainlink/?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN)的预言机，其价格跟随欧元的价格。
+第四，报告引用了中共国的太空能力，它说中共国认为这是 “现代战争的核心”。中共国正在发展威胁国防部卫星通信系统的能力。
 
-另一个代币 EURS的资本化为 4100 万欧元，其中包括自 1 月 1 日以来的额外 2000 万欧元。其操作类似于USDT或USDC；市场上发行的每一欧元都由银行中的真实欧元担保。在这种情况下，是[Stasis](https://translate.google.com/website?sl=auto&amp;tl=zh-cn&amp;hl=zh-CN&amp;u=https://stasis.net/)公司的。因此，这为任何 EURS 持有人提供了用公司的代币收回真实欧元的可能性。并且在任何时候。
+最后，报告引用了中共国的人工智能能力。中共国认为人工智能（AI）对其未来的军事和工业力量至关重要，并正在实施计划，到2030年成为全球人工智能的领导者。
 
-“每个代币都以 1:1 的比例与公司储备账户中持有的欧元挂钩。STASIS 的大部分储备都由持牌经纪人持有，这比使用商业银行更安全，因为这些账户是隔离的，”其首席执行官 Gregory Klumov 说。
+报告的结论是，美国应继续努力提高美国的战斗信誉，并加强常规威慑。它还建议国防部着眼于维护供应链，收集情报，并 “负责任地利用空间、网络和人工智能技术来应对潜在威胁。
 
-那么持有欧元稳定币有什么意义呢？已经，就像美元稳定币一样，将您的交易收入转换为 sEUR 或 EURS 实际上不会[产生税收。](https://cryptoast-fr.translate.goog/fiscalite-crypto-2019/?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN)这使您可以确保您的收入，而无需在资产负债表中添加一行。
+中共国正面临着自己的重大挑战，包括容易受到国际和地区动荡、恐怖主义、海盗行为、严重自然灾害和流行病的影响，以及其军队的重大差距和缺陷。而且中共国还没有以其现有的能力打过一场战争。
 
-**额外的多元化**
+**新闻来源**： https://www.breitbart.com/politics/2022/02/22/gao-report-chinas-growing-power-poses-a-significant-challenge-to-the-u-s/
 
-欧元稳定币也是多元化的机会。如果说自健康危机开始以来美国的货币政策似乎对其货币产生了重大影响，那么欧元似乎更具弹性。
-
-因此，许多欧洲人使用这些稳定的代币，以免它们的收益在几个月内减少（自 3 月危机开始以来，美元已经贬值了 10% 以上）。该资产也更容易进入越来越多地进入加密市场的公司和机构的资产负债表。
-
-Stasis 的 CEO 证实了多元化的趋势：
-
-“我们的大多数客户都在欧盟地区，并且在他们的资产负债表上更喜欢这种货币。但是，我们拥有多元化的投资者基础，其中包括机构。由于美元支持的稳定币在市场上占据主导地位，因此欧洲人/亚洲人经常被迫做出不受欢迎的货币选择，而链上对冲的选择很少。我们寻求挑战美元在全球金融市场的主导地位。”
-
-**DeFi 协议越来越多地接受欧元稳定币**
-
-面对后者的热潮，接受这种新稳定币的去中心化金融协议正在增加。
-
-旗舰 DeFi 交易所  [Curve](https://cryptoast-fr.translate.goog/curve-finance-depasse-uniswap-valeur-totale-verouillee/?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN)今年早些时候在其网站上显着增加了 EUR/sEUR 池，流动性提供者拥有 40% 的 CRV 和 SNX 权益。仅该池就汇集了 7000 万美元，或几乎所有的流通供应。
-
-欧元稳定币的出现也是向 DeFi 输出外汇的机会。这尤其是 Synthetix 提供的 sEUR 或 Jarvis 以及 jEUR。
-
-“欧洲中央银行鼓励私营公司启动稳定币项目计划。我们参加了欧洲央行在去年底发起的调查。随着加密货币市场的持续增长和它的高度普及（德意志银行预测到 2030 年数字资产将超过法定货币），它很有可能在不久的将来成为领先的基于现金的解决方案之一。” 格雷戈里·克鲁莫夫强调。
-
-确实，稳定币是进入加密货币世界的一个越来越重要的门户。因此，欧元在那里找到一席之地是正常和受欢迎的。但这一进展目前受到[以太坊区块链成本的阻碍。](https://cryptoast-fr.translate.goog/frais-transaction-ethereum-finissent-plus-grimper/?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN)
-
-“在 2021 年，最大的实验将是结算迁移到更便宜的区块链以离开以太坊。目前有几种区块链解决方案在竞争这项服务——例如 Algorand、Solana、Polkadot 和其他一些以太坊第二层扩展解决方案来解决这个问题。今年该领域的另一个趋势是稳定币空间从美元到其他货币的差异化。欧元显然是第二个候选者，但其他新兴市场货币也将尝试增加其市场份额”，Gregory Klumov 分析道。
-
-[因此，在MNBC（中央银行数字货币）](https://cryptoast-fr.translate.goog/euro-numerique-banque-centrale-banques-commerciales/?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN)到来之前，稳定币有着光明的未来。即使这些的到来可能也不会摧毁我们亲爱的稳定币。
-
-文字版原文：[欧元稳定币正在DeFi生态系统中占据一席之地](https://gnews.org/zh-hans/2045283/)
-
-音频处理：Fei797
-发稿：Fei797
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

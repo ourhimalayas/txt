@@ -2,190 +2,50 @@
 ---
 
 
-## 新中国联邦今后的四大目标
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2053337/)
+## 外媒发现辉瑞与中共军方存在某种可疑的紧密合作关系
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2053583/)
 
-[https://gtv.org/video/id=62145aab1408ee3a03a343b0](https://gtv.org/video/id=62145aab1408ee3a03a343b0)
+作者：银河系农场 – 骄子
 
-今年最大的灾难是什么
-Cuál es es mayor desastre en este año
 
-最大的挑战是什么
-Cuál es el mayor reto
 
-最大的问题是什么
-Cuál es el mayor problema
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-就是排华
-Es la sinofobia
 
-新中国联邦面对的最大问题就是排华
-El mayor problema del Nuevo Estado Federal de China es la sinofobia
 
-我们怎么阻止排华
-Cómo detenemos a la sinofobia
+外媒21日报道，辉瑞被发现在2011年4月，与一间有中共军方背景的医药公司签署过一份备忘录，目的是为了利用两家公司各自的优势，在中国市场寻求潜在商机，并计划在分销、研发、制造、股权分配等方面进行深度合作。
 
-这是我们新中国联邦今年最最重要的
-Este es lo más importante de este año para nuestro Nuevo Estado Federal de China
+值得留意的是，除了与辉瑞达成合作协议外，这家位于上海的医药公司，还与中国人民解放军海军医科大学建立了合作伙伴关系，主攻新药及医疗器械的研发工作。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide6-6.jpg)
+另外，报导还指出，辉瑞早前被曝光与中共疫苗护照有密切合作关系，而被外界认为是 SARS-CoV-2 来源的武汉病毒研究所，也被发现与这家解放军海军医科大学有着隶属关系**。**
 
-我阻止不了西方的排华
-Si no logro detener a la sinofobia occidental
+简单来说，经调查发现，辉瑞、中共军方、中共病毒，这三者之间有着非常可疑且紧密的合作关系。
 
-我就没有任何能力可以灭共, 灭共也没用
-Entonces no tendré la capacidad para eliminar al Partido Comunista y no servirá de nada eliminarlo
+参考链接：
+[Pfizer Partnered With Wuhan-Linked Chinese Company Supplying ‘Military Combat’ Efforts.](https://thenationalpulse.com/2022/02/21/pfizer-partnered-with-arm-of-chinas-military/)
 
-除此之外, 我干什么
-A parte de esto, qué voy a hacer
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
 
-我要叫国内更多人加入爆料革命, 怎么办
-Voy a llamar a más personas de China para que se unan al Movimiento de Denunciantes, cómo hacerlo
+总编/编辑：天滅中共
+校对/发稿：为真不破20
 
-靠什么
-Depende de qué
+**更多资讯，更多关注**
 
-除了我们直播, 更多战友站出来
-Además de nuestra transmisión en vivo, más compañeros luchadores se levanten
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-我们就是要把这个币牌打好
-Debemos jugar bien esta carta de la moneda
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-让国内的音乐界, 教育界, 军界, 情报界, 地方政府企业界
-Para que la música nacional, la educación, el ejército, la inteligencia, el gobierno local y los círculos comerciales
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-让所有的人得到真正的喜币
-Para que todas las personas obtengan realmente la moneda de Himalaya
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-和未来的躺平币
-Y la moneda tangping del futuro
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-从东北的黑龙江的山沟到喜马拉雅山脉的下面
-Desde los barrancos de Heilongjiang en el noreste hasta el fondo del Himalaya
 
-到东部的福建武夷山下
-Al este de la montaña Fujian Wuyi
 
-到南部的深圳广东, 广州到香港
-Al sur de Shenzhen Guangdong, de Guangzhou a Hong Kong
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
-叫每个人早晨醒来都能闻到币的味道
-Todos puedan oler las monedas al despertarse por la mañana
 
-而且是喜币的味道
-Y es el olor de la moneda de Himalaya
-
-总有一天
-Algún día
-
-我会让这些人, 你来常常这个鲜
-Haré que estas personas vengan a probar su sabor
-
-第三个我们要做的事情
-El tercer asunto que vamos a hacer
-
-把中国人的未来和希望做好
-Construir el futuro y la esperanza del pueblo chino
-
-就是我们这个G教育GEDU
-Esta es nuestra Educación G, GEDU
-
-我们一定要做好
-Debemos hacerlo bien
-
-一定要做好
-Debemos hacerlo bien
-
-我们要做到什么
-Qué vamos a hacer
-
-让所有的(新)东方教育的所有失职员工
-Que todos los empleados abandonados de New Oriental
-
-尽量到我们这来
-Vengan con nosotros como sea posible
-
-我们提(供)大量的币
-Ofreceremos una gran cantidad de monedas
-
-现在我们可以公开的说
-Ahora podemos decirlo en público
-
-只要你参加GEDU的
-Mientras participes en GEDU
-
-原(新)东方教育的这些老师们
-Estos maestros de New Oriental
-
-参加到我们教育的
-Asistan a nuestra educación
-
-过去你是1块钱工资
-En el pasado, te pagaban 1 RMB
-
-我现在给你1块5
-Ahora te doy 1.5 RMB
-
-如果你有特殊贡献
-si tienes un aporte especial
-
-你可以拿到2块
-Podrás ganar 2 RMB
-
-付工资是用HDO付
-El salario se paga a través de HDO
-
-你也可以选择喜币
-También puedes elegir moneda de Himalaya
-
-而且按小时付, 按天付
-Y se puede pagar por hora, por día
-
-按周付都行
-O por semana
-
-我们走新东方的路
-Tomamos el camino de New Oriental
-
-让新东方无路可走
-Que New Oriental no tenga a dónde ir
-
-然后呢
-Luego
-
-我们再接着还要唱歌
-Vamos a cantar
-
-搞音乐, 以乐灭共
-Hacer música, eliminar al Partido Comunista con la música
-
-我们决定唱尽所有共产党的流行的歌
-Decidimos cantar todas las canciones populares del Partido Comunista
-
-我们决定走共产党唱歌的路
-Decidimos seguir el camino del canto del Partido Comunista
-
-让共产党无歌可唱
-Para que el Partido Comunista no tenga canción para cantar
-
-* * *
-
-日期：02/15/2022
-原视频标题：新中国联邦今后的四大目标
-Cuatro objetivos del Nuevo Estado Federal de China en el futuro
-
-原视频日期：02/10/2022
-原视频网址：[**https://gettr.com/post/ptk2fq20f6**](https://gettr.com/post/ptk2fq20f6)
-任务编号：KC457（3716）
-视频时间段：0:00-02:08
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场-文新
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

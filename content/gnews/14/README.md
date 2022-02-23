@@ -2,49 +2,28 @@
 ---
 
 
-## 先锋和黑石 与中共病毒及疫苗强制关系密切
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2053585/)
+## 为应对俄罗斯入侵 乌克兰即将宣布全国进入紧急状态
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2053662/)
 
-作者：银河系农场 – 骄子
+**撰稿：日本东京方舟农场 海星**
 
+2月23日，乌克兰国家安全委员会表示，为应对俄罗斯入侵，该国即将宣布全国进入紧急状态。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-350.jpg)（图片来源：Facebook）
+据《中央社》报导，乌克兰国安会秘书长丹尼洛夫（Oleksiy Danilov）在简报会上表示，为应对俄罗斯入侵，政府即将宣布全国进入紧急状态，该状态将持续30天，随后视情况可再延长30天。
 
+报导指出，在紧急状态下，乌克兰政府可以实施一些特殊限制措施，包括交通限制、宵禁以及禁止罢工等，甚至有部分议员提出实行戒严措施。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+目前，全国紧急状态政策尚未经过国会正式批准。
 
-
-
-外媒20日报道，在美国最高法上个月驳回拜登的中共病毒疫苗强制令后，波音、通用电气、星巴克等公司宣布不再为员工强制接种疫苗。但是，还有一些大公司仍然选择为其员工强制接种疫苗，如美国运通、花期银行、美国AT&T等，而这些公司被发现大多数由黑石和先锋两家投资公司拥有所有权。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-13.jpg)
-不仅如此，先锋和黑石还拥有拥有中共病毒疫苗制造商辉瑞、摩德纳和强生公司的大多数所有权，他们还持有开发疫苗护照和数字钱包的科技公司的大量股份，如苹果、万事达卡、甲骨文等。另外向人们宣传中共病毒疫苗的大媒体、大科技公司也同时属于这两家公司，如Facebook脸书、CNN、拥有美国250家日报的甘尼特公司等。
-
-据悉，黑石和先锋是目前全球最大的两家资产管理公司，共同管理者超过15万亿美元的资产，他们相互持有对方最多的股份，实际上的股权结构则被描述为“黑暗”。另据郭先生透露的一些信息，这两家公司与中共有着非常紧密的联系。
+2月22日，俄罗斯联邦委员会153名参议员一致通过了授权普京在境外使用军事武装部队的议案，普京即日起便可自行决定出动军队的数量、行动区域、任务和境外停留时间。此举意味着乌克兰遭俄罗斯入侵的概率进一步增加。
 
 参考链接：
-[Corporate Vaccine Mandates and Vaccine Passports — Brought to You by BlackRock and Vanguard?](https://www.sgtreport.com/2022/02/corporate-vaccine-mandates-and-vaccine-passports-brought-to-you-by-blackrock-and-vanguard/)
+1.[https://www.cna.com.tw/news/aopl/202202230306.aspx](https://www.cna.com.tw/news/aopl/202202230306.aspx)
+2.[https://news.ltn.com.tw/news/world/breakingnews/3838592](https://news.ltn.com.tw/news/world/breakingnews/3838592)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-
-总编：天滅中共
-编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+素材采编：海星
+编辑：老孙
+发布：爱放飞
 
  
 

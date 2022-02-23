@@ -2,36 +2,39 @@
 ---
 
 
-## 第五巡回法院再审对宗教航空人员的疫苗授权
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2053061/)
+## DC每日热点0223
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2053318/)
 
-作者：银河系农场 – 骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月21日，据当地媒体报道，由美国第五巡回法院的三名法官构成的小组要求下级法官重新审理关于美国联合航空公司强制员工接种中共病毒疫苗的案件。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/7-33.jpg)
-据悉，2021年10月，美国联合航空公司针对其六万七千名员工执行了联邦政府要求的中共病毒疫苗强制接种命令。随后，公司中那些未接种的员工要么已经被辞退，要么则是在宗教豁免下面临着无休止的无薪假期。
+编辑：楚门门
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8410F16C-3399-4758-9CA1-C4E0A54E4FDE-scaled.jpeg)
+道琼斯指数 33596.61 ▼1.42%
+纳斯达克指数 13381.52 ▼0.23%
+WTI纽约原油CFD 91.695▼0.21%
+布伦特原油CFD 93.813 ▼0.04%
+标普50指数 2,700.73▼56.31%
+美元兑人民币 1USD=6.312 RMB
+美元兑港币 1USD=7.803 HKD
+国际黄金 1901.80美元/盎司
+全球CCP病毒感染人数428,760,419例
 
-为此，该公司申请宗教豁免的18名飞行员向多个地方法院提起了诉讼，要求美联航延迟执行这一不合理的疫苗接种计划。但该诉讼随即遭到地方法院的驳回。
+1、 疫情危急香港推全民强检 成败或影响林郑连任
+2、美议员点名习明泽在美读研 提案禁止中共高官子女来美深造
+3、朝鲜正在利用全球对加密货币缺乏监管控制来窃取数字货币，为其核武器和导弹计划提供资金
+4、拜登宣布采取加强关键矿物质供应链的行动，终止对中共国的依赖
+5、美国总统拜登22日切断了俄罗斯政府的国际融资渠道并对两家大型银行实施制裁
+6、联合国人权专家：中共国与俄罗斯向缅甸军政府提供武器杀戮平民
+7、中共国今称拒绝将台湾与乌克兰局势相提并论
+8、超过6成台湾民众认定，北京不会在俄国入侵乌克兰之时侵占台湾
+9、欧盟将制裁俄国防部长和俄总统办公厅主任等个人和实体
+10、美国国务卿布林肯：已取消与俄罗斯外长会晤
+11、海牙国际法院审罗兴亚人种族灭绝案：今决定谁有权庭前应诉
+12、瑞信银外泄数据显示宋楚瑜曾存款1367万瑞士法郎遭宋否认
+13、日本首相岸田文雄宣布对俄罗斯的制裁措施
+14、英国制裁俄罗斯5银行3大亨 议员要求加大惩罚护台
+15、澳洲宣布首轮对俄制裁措施，确保与美国和英国等盟友对俄实施的制裁“同步”
+16、俄乌危机 德国宣布停止北溪2号天然气项目
+17、43议员致信拜登 要求他向乌派兵须获国会授权
 
-然而，本月17日，第五巡回法院裁定地方法院针对此案的审判存在错误结论，原告事实上持续因宗教信仰受到了胁迫，且该胁迫本身对原告造成了无法弥补的伤害。因此，第五巡回法院要求下级法院对该案件重新进行审理。
-
-该报道还提到，虽然第五巡回法院没有对强制疫苗令做出任何裁定，但此前共和党召开的有关中共病毒疫苗的听证会已经证实，大量的疫苗接种者正在遭受着严重不良反应的侵害。加之中共病毒疫苗开发速度如此之快，以及其缺乏正确医学实验流程的事实，越来越多的美国人已经开始对疫苗安全性持质疑态度。
-
-参考链接：[Federal court panel rebukes judge for disregarding vax mandate’s harm to religious airline workers](https://www.lifesitenews.com/news/federal-court-panel-rebukes-judge-for-disregarding-vax-mandates-harm-to-religious-airline-workers/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
-
-总编: Irene木木
-编辑: 谐趣园  
-校正/发稿：Fei797
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
