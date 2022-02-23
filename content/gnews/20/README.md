@@ -2,37 +2,36 @@
 ---
 
 
-## 将会有重大消息公布
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2050003/)
+## 加密货币法案在巴西进入参议院投票阶段
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2050041/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+作者：香草山健身部-正道新闻
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+2022年2月22日，巴西经济事务委员会召开会议就“巴西加密货币规则的替代法案”展开讨论以确立加密货币在巴西日常使用的基本规则。
 
-2022-02-16直播摘录10：29：20
+当天，有14名参议员参与委员会讨论，在没有任何异议的情况下，法案将提交给参议院、下议院进行投票。最终由总统**博索纳罗**签署，成为法律。
 
-我告诉你Bunny，你把你钱给你妈你影响谁呀？你妈把钱给你爸影响谁呀？我的腹肌把这钱给别人影响谁？ 我愿意给呀，老娘愿意呀是不是。我再脱一件儿，我叫我的腹肌，你给我100个币，我马上就收了。不伤害任何人的情况下，这种交易，货币的本性就体现出来了，而且它要升值。
+![](http://5b0988e595225.cdn.sohucs.com/images/20171118/152e1db21b164a6b97405b0da6a8d57c.jpeg)
 
-因为这个信用的累积你给我、我给你的累积，它的价值体现在货币上。这就是喜币本身上它就从交易，从44块可能涨到400 块，也可能跌到20块，它就起起伏伏。喜币是真是假，天知地知你知。你看七哥都个人破产了，你看看不影响半毛币，44块5毛4了现在。 哇塞…这币，我今天以为得跌到多少呢，结果还往上涨呢。 我再告诉大家一个，很快会有你们重大的消息，喜联储的重大投资和资源消息会公布，重大的，不会超过一个月。
+该法案不仅定义了虚拟资产并对其服务提供商进行了分类，而且规定了对违法行为进行处罚的量刑标准。那些通过加密货币犯罪的嫌疑人可能面临4—8年的监禁。参议员Irajá评论说，这个法案得到了巴西中央银行、CVM、联邦税务局和私营公司的支持。法案要求虚拟资产服务提供商必须配合政府打击犯罪组织，恐怖主义融资，防止洗钱，隐藏资产等犯罪活动。
 
-这是昨天下午在我签署个人破产那个文件前几个小时，我昨天下午就基本上前所未有，就期待着签个人破产那个文件。因为到今天的下午3点钟过效、失效。我就从来没有那么兴奋过 ，昨天下午就一直兴奋、焦急的等待着签这个破产文件，我真觉得跟过年似的。
+其中一位参议员表示，该项目对巴西未来发展至关重要。如果该法案获得批准，巴西将成为拉丁美洲监管加密货币的最大国家，从而减少洗钱的可能性和投资者的风险。
 
-另外一个我告诉大家，关于这几天所经历的七哥签署个人破产的过程，我现在不方便讲那么多，等哪天你们一定要记住啊Alice、Tiger，我要好好专门一个大直播给你们讲这个过程。绝对是七哥用血和命换来的你们在让自己安全的方式，一定要听七哥说，太重要了。这就是西方有法律的伟大，就我说了咱在中共国还有过去的官司就最好，五年了，从来是在红绿灯同样的起跑线上，对面的警察永远我是红灯，对方是绿灯。我只有憋在那等，只有最后一分钟我才知道，到另外一个路口中间还有黄灯。黄灯就是个人破产，黄灯！不管世界上多黑暗、多大的黑暗，你记住不要被黑暗所击倒，更重要的事情不要在黑暗面前你放弃。
+目前巴西中央银行正在研究巴西法币的数字版本（CBDC）。该项目旨在促进投资而非商业用途，预计将在今年下半年进行试点。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+[https://thecryptobasic.com/2022/02/22/brazil-committee-on-economic-affairs-takes-first-measure-toward-regulating-crypto/](https://thecryptobasic.com/2022/02/22/brazil-committee-on-economic-affairs-takes-first-measure-toward-regulating-crypto/)
 
-**关注我们**
+校对/发稿：菩提树
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-6.png)
+**更多资讯，更多关注**
 
-Discord 账号
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-Gettr 账号
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

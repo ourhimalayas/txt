@@ -15,107 +15,107 @@
 
 ---
 
-### [在中国生存的女人，连20只癞蛤蟆的价值都不如](/content/gnews/1/README.md)
+### [文•贵天成——文贵先生谈“孟建柱”（四）](/content/gnews/1/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [中共将没有准生证家庭的孩子没收后，转卖给境外机构](/content/gnews/2/README.md)
  ` HA-Multilingual澳喜农场多语组`
 
-### [今日盖特大V推荐 — 詹姆斯·奥基夫（James O&#8217;Keefe）](/content/gnews/2/README.md)
+### [徐州八孩铁链女撕下盛世强国的虚伪面纱](/content/gnews/3/README.md)
+ ` 澳喜农场`
+
+### [比尔·盖茨：“可悲的是，病毒本身尤其是称为 Omicron 的变种是一种疫苗，可以产生 B 细胞和 T 细胞免疫，它在向世界人口传播方面做得比我们用疫苗做得更好”](/content/gnews/4/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [英国宣布对俄罗斯实施经济制裁 冻结五家银行和三个人的资产](/content/gnews/3/README.md)
+### [北京冬奥会80%由中国军队管理，现场配备电击枪、催眠枪](/content/gnews/5/README.md)
+ ` HA-Multilingual澳喜农场多语组`
+
+### [在中国生存的女人，连20只癞蛤蟆的价值都不如](/content/gnews/6/README.md)
+ ` HA-Multilingual澳喜农场多语组`
+
+### [今日盖特大V推荐 — 詹姆斯·奥基夫（James O&#8217;Keefe）](/content/gnews/7/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [英国宣布对俄罗斯实施经济制裁 冻结五家银行和三个人的资产](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [数字货币交易进入美联储监管日程](/content/gnews/4/README.md)
+### [数字货币交易进入美联储监管日程](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [全球疫情更新（两则澳洲新闻，嗅出恐怖气息 ）](/content/gnews/5/README.md)
+### [全球疫情更新（两则澳洲新闻，嗅出恐怖气息 ）](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [习近平盼发动战争化解被剿灭的危机](/content/gnews/6/README.md)
+### [习近平盼发动战争化解被剿灭的危机](/content/gnews/11/README.md)
  ` 扬帆枫叶快讯`
 
-### [七哥金句：看透生命的秘密](/content/gnews/7/README.md)
+### [七哥金句：看透生命的秘密](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
 
-### [中共国锁链女灾难连印度都忍无可忍](/content/gnews/8/README.md)
+### [中共国锁链女灾难连印度都忍无可忍](/content/gnews/13/README.md)
  ` 扬帆枫叶快讯`
 
-### [七哥金句：沟通是一种表态](/content/gnews/9/README.md)
+### [七哥金句：沟通是一种表态](/content/gnews/14/README.md)
  ` 雅典娜GNotes`
 
-### [美疾控中心和辉瑞发布血栓紧急警告](/content/gnews/10/README.md)
+### [美疾控中心和辉瑞发布血栓紧急警告](/content/gnews/15/README.md)
  ` 扬帆枫叶快讯`
 
-### [美国将乌克兰大使馆人员调往波兰](/content/gnews/11/README.md)
+### [美国将乌克兰大使馆人员调往波兰](/content/gnews/16/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [加拿大父母对幼儿接种持怀疑态度](/content/gnews/12/README.md)
+### [加拿大父母对幼儿接种持怀疑态度](/content/gnews/17/README.md)
  ` 扬帆枫叶快讯`
 
-### [七哥金句：各扫门前雪有道理吗？](/content/gnews/13/README.md)
+### [七哥金句：各扫门前雪有道理吗？](/content/gnews/18/README.md)
  ` 雅典娜GNotes`
 
-### [特鲁多政府被世界经济论坛操控](/content/gnews/14/README.md)
+### [特鲁多政府被世界经济论坛操控](/content/gnews/19/README.md)
  ` 扬帆枫叶快讯`
 
-### [加密货币法案在巴西进入参议院投票阶段](/content/gnews/15/README.md)
+### [加密货币法案在巴西进入参议院投票阶段](/content/gnews/20/README.md)
  ` 纽约香草山MOS02`
 
-### [七哥金句：生命中有一样东西，让你获得痛快](/content/gnews/16/README.md)
+### [七哥金句：生命中有一样东西，让你获得痛快](/content/gnews/21/README.md)
  ` 雅典娜GNotes`
 
-### [以色列医生斥责特鲁多信口雌黄](/content/gnews/17/README.md)
+### [以色列医生斥责特鲁多信口雌黄](/content/gnews/22/README.md)
  ` 扬帆枫叶快讯`
 
-### [七哥金句：我们容易忘记痛苦](/content/gnews/18/README.md)
+### [七哥金句：我们容易忘记痛苦](/content/gnews/23/README.md)
  ` 雅典娜GNotes`
 
-### [放宽限制，东南亚诸国第四季度实现GDP增长](/content/gnews/19/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [将会有重大消息公布](/content/gnews/20/README.md)
- ` MG FARM`
-
-### [七哥金句：人类正义和邪恶的较量](/content/gnews/21/README.md)
+### [七哥金句：人类正义和邪恶的较量](/content/gnews/24/README.md)
  ` 雅典娜GNotes`
 
-### [秘翻在线: 中共反对美国将台湾纳入印太战略](/content/gnews/22/README.md)
+### [秘翻在线: 中共反对美国将台湾纳入印太战略](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中国人的善忘是灾难根源](/content/gnews/23/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [中共国在美俄间走钢丝? 传微妙应对乌克兰问题](/content/gnews/24/README.md)
+### [中共国在美俄间走钢丝? 传微妙应对乌克兰问题](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [德国暂停俄天然气管道验收 抗议其分裂乌克兰行为](/content/gnews/25/README.md)
+### [德国暂停俄天然气管道验收 抗议其分裂乌克兰行为](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [乌克兰总统表示 他正在考虑与俄罗斯断交](/content/gnews/26/README.md)
+### [乌克兰总统表示 他正在考虑与俄罗斯断交](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文贵视角：普习大密谋，世界要大变](/content/gnews/27/README.md)
+### [文贵视角：普习大密谋，世界要大变](/content/gnews/29/README.md)
  ` 秘密翻译组-原创组`
 
-### [乌克兰当前局势下台湾人是否担心北京武力攻台？](/content/gnews/28/README.md)
+### [乌克兰当前局势下台湾人是否担心北京武力攻台？](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [前辉瑞副总裁讲解疫苗如何危害女性生育](/content/gnews/29/README.md)
+### [前辉瑞副总裁讲解疫苗如何危害女性生育](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [疫苗灾难何时休 日本将着手生产冻干粉疫苗](/content/gnews/30/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [一起银行泄密事件，瑞信为世界“恶棍”打理资产](/content/gnews/31/README.md)
+### [一起银行泄密事件，瑞信为世界“恶棍”打理资产](/content/gnews/32/README.md)
  ` 墨尔本雅典娜农场`
 
-### [五月花简报（02/22/2022）](/content/gnews/32/README.md)
+### [五月花简报（02/22/2022）](/content/gnews/33/README.md)
  ` mayflowertranslate`
 
-### [瑞士信贷银行洗黑钱的证据被曝光](/content/gnews/33/README.md)
+### [瑞士信贷银行洗黑钱的证据被曝光](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [中共国的教育和信仰背景下，真话是他的毒药](/content/gnews/34/README.md)
- ` MG FARM`
 
 ### [希腊三月开始给未接种者准备了新款疫苗](/content/gnews/35/README.md)
  ` 西班牙巴塞罗那喜悦农场`
