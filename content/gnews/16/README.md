@@ -2,27 +2,42 @@
 ---
 
 
-## 俄乌危机！美续供乌防卫武器 调F-35、阿帕奇护北约东翼
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2051108/)
+## 英国表示俄罗斯入侵乌克兰已经开始
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2051125/)
 
-中央社华盛顿22日综合外电报导，美国总统拜登今天表示，美国会继续供应乌克兰「防卫」武器抵御俄罗斯入侵，也会部署美国部队增援东欧的北大西洋公约组织（NATO）盟邦。
+作者：纽约香草山教育部 Naughty(文行)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/160713-F-ZZ999-666_副本.jpg)
 
-拜登在白宫发表电视演说表示：「我已批准美国部队与装备进行额外行动，已经部署在欧洲，增援我们的波罗的海盟邦爱沙尼亚、拉脱维亚、立陶宛。」「让我说清楚，这些完全是我方的防卫举动。」拜登讲话后，美国国防部宣布相关细节。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-45.png)
+英国高级大臣周二表示，俄罗斯对乌克兰的入侵已经开始，因此英国将对俄罗斯实施制裁。英国首相约翰逊就乌克兰危机主持了政府紧急应对会议。
 
-美国国防部表示，将把800名步兵营特遣部队从义大利调至波罗的海地区，8架F-35战机从德国调往「北约东翼多个战斗位置」，20架AH-64阿帕契攻击直升机从德国调往波罗的海地区，另12架AH-64阿帕契则从希腊调至波兰。美国目前在欧洲临时或永久部署的军队超过9万人。
+俄罗斯总统普京周一承认乌克兰东部的两个分离地区独立后，下令向该地区部署军队，这加速了西方担心的可能引发一场大战的危机。
 
-简评：战争讲个师出有名，挑起战争者无一不给自己找一个行动的借口，哪怕做坏事也得找个充足的理由。既然俄罗斯有动作，拜登政府的援乌防御实乃北约应对危机自我防卫的恰当之举。若俄罗斯真的打火战，那么拜登政府支持的防御反击则是正义之举。
+在普京正式承认分离地区并下令部署俄罗斯军队以“维持和平”后，路透社报道有目击者看到坦克和其他军事装备穿过分裂分子控制的顿涅茨克市。
 
-新闻来源：[yahoo](https://tw.news.yahoo.com/%E7%BE%8E%E7%BA%8C%E4%BE%9B%E7%83%8F%E9%98%B2%E8%A1%9B%E6%AD%A6%E5%99%A8-%E8%AA%BFf-35-%E9%98%BF%E5%B8%95%E5%A5%91%E8%AD%B7%E5%8C%97%E7%B4%84%E6%9D%B1%E7%BF%BC-042629932.html)
+英国卫生部长贾维德表示英国将对俄罗斯的侵略行为实施制裁。
 
-撰稿/发布：一叶知秋
+英国政府威胁要切断俄罗斯公司获得美元和英镑的渠道，阻止他们在伦敦筹集资金，让俄罗斯寡头无处可藏，但英国增幅尚未说明谁将受到制裁，英国首相约翰逊曾表示，制裁目标可能包括俄罗斯银行。
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+贾维德表示，约翰逊将在向议会发表的一份声明中宣布制裁措施。
+
+新闻来源：[https://www.reuters.com/world/uk/uk-says-russian-invasion-ukraine-has-begun-2022-02-22/](https://www.reuters.com/world/uk/uk-says-russian-invasion-ukraine-has-begun-2022-02-22/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-305.jpeg)
+
+编辑/校对/发稿：滚滚长江都是水
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+
 
  
 

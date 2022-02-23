@@ -2,36 +2,22 @@
 ---
 
 
-## 5G辐射与中共病毒感染之间的联系
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2051092/)
+## 加拿大女星就卡车司机抗议向特鲁多喊话
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2051107/)
 
-作者：纽约香草山 信息部 6zero4
+作者：银河系农场—骄子
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/good-45.png)
-最近由鲁比克(Beverly Rubik)和布朗(Robert R. Brown)联合发表在《临床与转化医学研究杂志》上的一项最新研究论文，强调了中共病毒感染症状与5G无线辐射之间的联系。中共病毒疫情是在武汉全市范围内实施5G通信后不久出现的，这初步证实了中共病毒感染与5G网络的统计相关性。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-346.jpg)图片来源：Basedunderground.com
-透过生物物理学和病理生理学的交叉边界，他们确定了5G辐射作为一种有毒的环境因素促成了中共病毒感染机制，证据如下:
+近日加拿大著名好莱坞女明星Evangeline Lilly发布了视讯，她积极向特鲁多喊话，希望特鲁多能够和抗议中共病毒疫苗计划的卡车车队见面并友好交谈，而并不是将这些无辜的人归类为恐怖分子。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-96.jpg)图片来源：Theblaze.com
+据Lilly的视频，她认为真正的领导人应该尊重自己的选民，畅听选民关于强制中共病毒疫苗的意见。可以通过一起寻找解决方案来团结人民，而不是诽谤那些有更好的解决办法的人。在加拿大社会，上街抗议本来就是公民义务。但在中共病毒大流行期间，加拿大的政府和媒体都在撒谎，抗议强制疫苗的卡车车队非常友好和平，特鲁多却称他们为恐怖分子。
 
-1） 引起红细胞的形态学改变，包括棘状红细胞，以及可导致血栓的红细胞叠连；
+Lilly抨击那些撒谎的传统媒体，她认为媒体对人们洗脑，让分裂和仇恨以及偏见充斥社会，只有多增长知识，多看看周围的真实世界，不要听信大媒体的宣教。
 
-2） 损害微循环，降低红细胞和血红蛋白水平，加重缺氧；
+据悉Lilly参加过华盛顿的反抗中共病毒疫苗活动，她表示任何人的身体都不应该在任何强迫下被注射任何东西。
 
-3） 放大免疫系统功能障碍，包括免疫抑制、自身免疫紊乱和过度炎症反应；
-
-4） 增加细胞氧化应激和自由基的产生，导致血管损伤和脏器损伤；
-
-5） 增加细胞内对病毒进入、复制和释放至关重要的Ca2+(钙离子)，并促进感染途径；
-
-6） 加重心律失常和心脏疾病。
-
-尤其在导致中共病毒感染重疾方面，与暴露在5G环境下造成的这些不利影响密切相关！
-
-
-
-
-
-新闻来源：[https://basedunderground.com/2022/02/20/bombshell-study-confirms-link-between-5g-wireless-exposure-and-covid/](https://basedunderground.com/2022/02/20/bombshell-study-confirms-link-between-5g-wireless-exposure-and-covid/)
+新闻来源：[https://www.theblaze.com/news/evangeline-lilly-freedom-convoy-trudeau](https://www.theblaze.com/news/evangeline-lilly-freedom-convoy-trudeau)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-44.jpg)
 
@@ -46,6 +32,8 @@
 [**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
 [**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+
 
  
 
