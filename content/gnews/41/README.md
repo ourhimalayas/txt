@@ -2,8 +2,8 @@
 ---
 
 
-## 外媒发现辉瑞与中共军方存在某种可疑的紧密合作关系
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2053583/)
+## 先锋和黑石 与中共病毒及疫苗强制关系密切
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2053585/)
 
 作者：银河系农场 – 骄子
 
@@ -13,20 +13,19 @@
 
 
 
-外媒21日报道，辉瑞被发现在2011年4月，与一间有中共军方背景的医药公司签署过一份备忘录，目的是为了利用两家公司各自的优势，在中国市场寻求潜在商机，并计划在分销、研发、制造、股权分配等方面进行深度合作。
+外媒20日报道，在美国最高法上个月驳回拜登的中共病毒疫苗强制令后，波音、通用电气、星巴克等公司宣布不再为员工强制接种疫苗。但是，还有一些大公司仍然选择为其员工强制接种疫苗，如美国运通、花期银行、美国AT&T等，而这些公司被发现大多数由黑石和先锋两家投资公司拥有所有权。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-13.jpg)
+不仅如此，先锋和黑石还拥有拥有中共病毒疫苗制造商辉瑞、摩德纳和强生公司的大多数所有权，他们还持有开发疫苗护照和数字钱包的科技公司的大量股份，如苹果、万事达卡、甲骨文等。另外向人们宣传中共病毒疫苗的大媒体、大科技公司也同时属于这两家公司，如Facebook脸书、CNN、拥有美国250家日报的甘尼特公司等。
 
-值得留意的是，除了与辉瑞达成合作协议外，这家位于上海的医药公司，还与中国人民解放军海军医科大学建立了合作伙伴关系，主攻新药及医疗器械的研发工作。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide6-6.jpg)
-另外，报导还指出，辉瑞早前被曝光与中共疫苗护照有密切合作关系，而被外界认为是 SARS-CoV-2 来源的武汉病毒研究所，也被发现与这家解放军海军医科大学有着隶属关系**。**
-
-简单来说，经调查发现，辉瑞、中共军方、中共病毒，这三者之间有着非常可疑且紧密的合作关系。
+据悉，黑石和先锋是目前全球最大的两家资产管理公司，共同管理者超过15万亿美元的资产，他们相互持有对方最多的股份，实际上的股权结构则被描述为“黑暗”。另据郭先生透露的一些信息，这两家公司与中共有着非常紧密的联系。
 
 参考链接：
-[Pfizer Partnered With Wuhan-Linked Chinese Company Supplying ‘Military Combat’ Efforts.](https://thenationalpulse.com/2022/02/21/pfizer-partnered-with-arm-of-chinas-military/)
+[Corporate Vaccine Mandates and Vaccine Passports — Brought to You by BlackRock and Vanguard?](https://www.sgtreport.com/2022/02/corporate-vaccine-mandates-and-vaccine-passports-brought-to-you-by-blackrock-and-vanguard/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
 
-总编/编辑：天滅中共
+总编：天滅中共
+编辑：飞虹
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**

@@ -2,10 +2,10 @@
 ---
 
 
-## 先锋和黑石 与中共病毒及疫苗强制关系密切
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2053585/)
+## 英国宣布周四起解除所有防疫限制
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2053586/)
 
-作者：银河系农场 – 骄子
+作者：首尔天池农场 – 追着曙光跑，香草山教育部 Naughty(文行)
 
 
 
@@ -13,19 +13,25 @@
 
 
 
-外媒20日报道，在美国最高法上个月驳回拜登的中共病毒疫苗强制令后，波音、通用电气、星巴克等公司宣布不再为员工强制接种疫苗。但是，还有一些大公司仍然选择为其员工强制接种疫苗，如美国运通、花期银行、美国AT&T等，而这些公司被发现大多数由黑石和先锋两家投资公司拥有所有权。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-13.jpg)
-不仅如此，先锋和黑石还拥有拥有中共病毒疫苗制造商辉瑞、摩德纳和强生公司的大多数所有权，他们还持有开发疫苗护照和数字钱包的科技公司的大量股份，如苹果、万事达卡、甲骨文等。另外向人们宣传中共病毒疫苗的大媒体、大科技公司也同时属于这两家公司，如Facebook脸书、CNN、拥有美国250家日报的甘尼特公司等。
+英国首相约翰逊，当地时间21日公布「与中共病毒共存」计划，宣布周四起解除英格兰地区的剩余防疫措施，包括不再要求确诊者自我隔离，出入公共场所无需出示疫苗接种证明等等。
 
-据悉，黑石和先锋是目前全球最大的两家资产管理公司，共同管理者超过15万亿美元的资产，他们相互持有对方最多的股份，实际上的股权结构则被描述为“黑暗”。另据郭先生透露的一些信息，这两家公司与中共有着非常紧密的联系。
+另外，有关追踪确诊病人的密切接触者也将于周四起停止，届时，若密切接触者已完全接种疫苗，将不再需要连续七天进行检测，同时，自4月1日起，当局将不再向民众提供免费的病毒检测服务。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-13.jpg)
+约翰逊早前在国会表示，防疫限制对社会、经济以及民众的心理健康构成很大打击，鉴于中共病毒疫情不会在短时间内消失，继续实施限制是不正确，也是不必要的，因此，政府将鼓励民众自我约束，即使出现染疫症状，也要像对待流行性感冒一样冷静应对。
+
+在野工党领袖施纪贤批评约翰逊的做法是极度不负责任的，当地医学组织也指出，与病毒共存不等于无视病毒，取消免费病毒检测将令政府无从监察疫情动向，也难以实现民众自我约束，这样只会带来更多不利风险及社会焦虑。
+
+对此，郭文贵先生则有不同见解，在早前的直播中，郭先生认为，现在各国政府解除防疫限制的根本原因，无非是经济压力、政治压力以及即将爆发的疫苗灾难。
+
+视频链接：[2/18/2022 文贵直播: 欧美政府已经默认让奥米炕病毒集体感染民众，现在解除各种限制是因为经济和政治撑不住了；疫苗灾难造成的大规模死亡在5月份才会开始，请务必继续做好防疫措施](https://gettr.com/post/pvmifj8a40)
 
 参考链接：
-[Corporate Vaccine Mandates and Vaccine Passports — Brought to You by BlackRock and Vanguard?](https://www.sgtreport.com/2022/02/corporate-vaccine-mandates-and-vaccine-passports-brought-to-you-by-blackrock-and-vanguard/)
+1. [俄承認烏東2共和國 美法英等要求安理會緊急會商](https://www.cna.com.tw/news/aopl/202202220023.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+2. [《早安世界》俄羅斯承認烏克蘭東部2共和國獨立 軍隊進駐](https://www.cna.com.tw/news/ahel/202202225001.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share%E3%80%81https://www.reuters.com/world/uk/uks-johnson-set-scrap-covid-restrictions-2022-02-20/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
 
-总编：天滅中共
-编辑：飞虹
+总编/编辑：天滅中共
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**
