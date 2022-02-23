@@ -2,27 +2,24 @@
 ---
 
 
-## 2022年2月23日澳洲股市简报
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2051578/)
+## 中日财经爆┃EU对俄实施金融等制裁 俄351名议员榜上有名
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2051632/)
 
-**撰稿：云彩**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1-19.jpg)图片来自the Australian
-ASX 200 指数上涨0.6%，收盘7206点。科技板块上涨1%，工业板块上涨1.8% 。
+撰稿：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2109.png)[图片来源](https://www.jiji.com/sp/article?k=2022012001229&amp;g=int)
+欧盟（EU）22日在巴黎召开紧急外长会议，在俄罗斯批准乌克兰东部亲俄派控制地区“独立”后，欧盟决定对俄罗斯实施一系列制裁。 将限制俄罗斯政府进入欧盟金融市场。
 
-**Domino’s Pizza 暴跌 14%**
+根据欧盟公告，将切断乌克兰东部两“独立”地区的经济关系。同时，对在俄罗斯议会投票赞成“独立”的351名议员以及参与侵犯乌克兰主权的27个组织及个人将在欧盟内部实施旅行禁止及资产冻结措施。为了给外交努力留有余地，俄罗斯总统普京没在制裁对象之列。
 
-连锁披萨公司Domino’s Pizza 警告销售额增长放缓和利润下降5.3%后，股价跌至86.13澳元。
+德国总理肖尔茨22日宣布，将暂停对俄罗斯天然气管道“北溪2号”的审批工作。欧盟外交和安全事务高级代表博雷尔赞扬了德国的决定，并警告，欧盟将根据俄罗斯的行动实施进一步制裁，这些制裁将与美国、英国、加拿大和其他有关国家协调实施。
 
-**Woolworths 上涨 1.4%**
+法国外交部长勒德里昂表示，已取消与俄罗斯外交部长拉夫罗夫原定于25日举行的会晤。
 
-连锁超市Woolworths 尽管因利润大幅下降而削减中期股息，但股价让上涨至35.68澳元。
+信息源：[ＥＵがロシア制裁決定　金融市場アクセス制限、国会議員３５１人渡航禁止](https://news.yahoo.co.jp/articles/64a8e638dc58758797022d3e25ec9cf92c230884)
 
-参考资料：
-
-[ASX edges up,RBNZ raises rates, oil prices soar amid Russia-Ukraine tension](https://www.abc.net.au/news/2022-02-23/australian-share-market-asx-business-global-stock-covid/100852816)
-
-编辑：云彩
-![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

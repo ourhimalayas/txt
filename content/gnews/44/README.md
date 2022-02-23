@@ -2,35 +2,32 @@
 ---
 
 
-## HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-10
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2050942/)
+## 中日财经爆|金价触及九个月来高位 铂金类也大幅上涨
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2051004/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-5.png)
-**HBO-VICE 指鹿为马，对采访内容进行有目的性的剪辑，故意将郭先生关于疫苗真相、中共灭白计划的重要爆料内容，扭曲成未经证实、别有用心的虚假信息，意图彻底把郭先生杜撰成为疫苗阴谋论、以及各种谣言的推动者。对此，郭先生进行了严厉的反驳，他指出，自己的爆料从来不求回报，只为拯救更多无辜百姓的生命，所谓的未经证实，别有用心，根本是与魔共舞的主流媒体视而不见、刻意掩盖的结果，那些把公众利益、人民生命当作筹码，换取个人私利的少数财阀权贵才是真正意义上的用心险恶。**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2094.png)
-**现在，让我们一起还原事实真相的第10部分：反击HBO-VICE混乱剪辑，散布虚假信息：我们利用郭先生原视频进行回击**。
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片5-3.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.businessamlive.com%2Fwp-content%2Fuploads%2F2020%2F07%2Fgold-gain.jpg&amp;imgrefurl=https%3A%2F%2Fwww.businessamlive.com%2Fgold-heads-for-sixth-weekly-gain%2F&amp;tbnid=WtCzC_EEcLdpaM&amp;vet=12ahUKEwid49Gq_ZT2)
+金价周二（2月22日)触及近九个月来最高水平，但随后回落，投资者等待乌克兰危机进展，他们重新将金价定位在每盎司1,900美元的关键关口附近。
 
-**（播放视频 **[**https://www.gettr.com/post/pkg4fq761b**](https://www.gettr.com/post/pkg4fq761b)** 时长09:59）**
+1906 GMT，现货金下跌0.2%，报每盎司1,902.71美元，此前触及6月1日以来最高1,913.89美元。美国黄金期货上涨0.4%，至1,907.40美元。
 
-参考链接：[采访郭文贵先生背后的真相](https://www.gettr.com/post/pkg4fq761b)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-总编/编辑：天滅中共
-校对/发稿：小野貓（文凱琳）
+现货银上涨1.1%，至每盎司24.19美元，此前触及一个月高位24.35美元。
 
-**更多资讯，更多关注**
+“鉴于与(主要生产国)俄罗斯的紧张关系加剧，有理由担心铂金类金属的供应链，” 投资管理公司High Ridge的Meger表示。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+钯金跌0.8%，报2,368.84美元，稍早曾触及1月31日以来最高，报2,433美元。
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+铂金上涨0.1%，报1,075.09美元。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+知情人士表示，如果俄罗斯进一步入侵乌克兰，美国政府可能会阻止俄罗斯获得大量低科技和高科技的美国和外国制造产品，涉及从商业电子产品和电脑到半导体和飞机零部件等一系列产品。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+消息来源:
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-5.png)
+[金价触及九个月高位后回落 投资者关注乌克兰局势发展](https://cn.reuters.com/article/global-precious-metals-0222-tues-idCNKBS2KS009?il=0)
 
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

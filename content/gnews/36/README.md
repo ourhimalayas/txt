@@ -2,51 +2,24 @@
 ---
 
 
-## 5G辐射与中共病毒感染之间的联系
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2051092/)
+## 应对俄罗斯侵略 美决定增兵东欧
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2051190/)
 
-作者：纽约香草山 信息部 6zero4
+撰稿：东京樱花团/风翼
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2098.png)图片来源于网络
+据朝日新闻报道：美国国防部于2月23日宣布：，将从驻扎在欧洲的美军中派遣800名士兵和战斗机到东欧的北大西洋公约组织（NATO）盟国。此举旨在加强靠近乌克兰的东欧国家的防御，并遏制俄罗斯的进一步军事侵略。
 
+美国总统拜登在同一天的讲话中指出，“为了回应俄罗斯军队拒绝从白俄罗斯撤军，已经授权部署更多的美国军队和装备驻扎在欧洲，以加强我们的波罗的海盟友”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-45.png)
-最近由鲁比克(Beverly Rubik)和布朗(Robert R. Brown)联合发表在《临床与转化医学研究杂志》上的一项最新研究论文，强调了中共病毒感染症状与5G无线辐射之间的联系。中共病毒疫情是在武汉全市范围内实施5G通信后不久出现的，这初步证实了中共病毒感染与5G网络的统计相关性。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-346.jpg)图片来源：Basedunderground.com
-透过生物物理学和病理生理学的交叉边界，他们确定了5G辐射作为一种有毒的环境因素促成了中共病毒感染机制，证据如下:
+据五角大楼一位高级官员透露，大约800名步兵将从意大利的基地被派往波罗的海国家。多达8架最先进的F-35隐形战斗机将被部署到东欧的基地，32架AH64阿帕奇攻击直升机将被派往波罗的海国家和波兰。并指出美国军方已经从美国本土向波兰和其他国家增派了5000名士兵，这一部署是向盟国提供安全保证，阻止对北约成员的侵略。
 
-1） 引起红细胞的形态学改变，包括棘状红细胞，以及可导致血栓的红细胞叠连；
+从美国的部署来看，增加了与白俄罗斯和乌克兰相邻的北约各国家和海域的安全系数，但是否能够防范俄罗斯对北约国家和海域的侵犯，还待观察。
 
-2） 损害微循环，降低红细胞和血红蛋白水平，加重缺氧；
+信息来源：[米軍、バルト諸国に800人の部隊派遣へ　東欧への拠点に戦闘機配備](https://www.asahi.com/sp/articles/ASQ2R30XGQ2RUHBI00K.html?ref=gunosy)
 
-3） 放大免疫系统功能障碍，包括免疫抑制、自身免疫紊乱和过度炎症反应；
-
-4） 增加细胞氧化应激和自由基的产生，导致血管损伤和脏器损伤；
-
-5） 增加细胞内对病毒进入、复制和释放至关重要的Ca2+(钙离子)，并促进感染途径；
-
-6） 加重心律失常和心脏疾病。
-
-尤其在导致中共病毒感染重疾方面，与暴露在5G环境下造成的这些不利影响密切相关！
-
-
-
-
-
-新闻来源：[https://basedunderground.com/2022/02/20/bombshell-study-confirms-link-between-5g-wireless-exposure-and-covid/](https://basedunderground.com/2022/02/20/bombshell-study-confirms-link-between-5g-wireless-exposure-and-covid/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-44.jpg)
-
-编辑/校对/发稿：滚滚长江都是水
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

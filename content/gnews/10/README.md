@@ -2,27 +2,27 @@
 ---
 
 
-## 有声｜联合国报告: 中俄继续向缅甸军政府供应武器
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2051486/)
+## 2022年2月23日澳洲股市简报
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2051578/)
 
-**By:秘翻新闻**
+**撰稿：云彩**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1-19.jpg)图片来自the Australian
+ASX 200 指数上涨0.6%，收盘7206点。科技板块上涨1%，工业板块上涨1.8% 。
 
-**2022-02-23**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片8-1.jpg)图片源自:Free Asia
-联合国缅甸问题的特别报告员表示，尽管缅甸军政府枪杀平民，但中共国、俄罗斯和塞尔维亚仍继续向这个东南亚国家供应武器。
+**Domino’s Pizza 暴跌 14%**
 
-据德国之声中文网报道，联合国缅甸问题特别报告员安德鲁斯22日指出，尽管有确凿证据显示，自去年政变以来，缅甸军政府不受惩罚持续施暴，但联合国安理会常任理事国俄罗斯和中共国继续向其提供了大量战斗机和装甲车，塞尔维亚也在同一时期批准了向缅甸军队“出口火箭和大炮”。
+连锁披萨公司Domino’s Pizza 警告销售额增长放缓和利润下降5.3%后，股价跌至86.13澳元。
 
-自2021年2月初政变、时任政府实际首脑昂山素季被罢黜以来，缅甸军事统治者血腥镇压了一次又一次抗议活动。据当地一监察点称，迄今有 1500 多名平民丧生，另有 9000 人被关押，数十万人流离失所。
+**Woolworths 上涨 1.4%**
 
-针对有关村民遭屠杀、成百上千房屋被烧毁的报道，联合国已就可能的危害人类罪行实施调查。
+连锁超市Woolworths 尽管因利润大幅下降而削减中期股息，但股价让上涨至35.68澳元。
 
-（ 秘翻新闻vera编辑报道 ）
+参考资料：
 
-发布:星星
+[ASX edges up,RBNZ raises rates, oil prices soar amid Russia-Ukraine tension](https://www.abc.net.au/news/2022-02-23/australian-share-market-asx-business-global-stock-covid/100852816)
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321.jpg)
+编辑：云彩
+![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

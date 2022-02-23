@@ -2,34 +2,29 @@
 ---
 
 
-## 美国务院与拜登相继取消与俄罗斯的外交会晤
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2051318/)
+## 【秘翻在线】接种了三针疫苗的法国网球选手孟菲尔斯因健康问题退赛
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2051403/)
 
-#### 撰稿：彩虹 
+#### 翻译/撰稿：zzballack
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/16455963471.png)图片来源：阿拉伯新闻网
-《国会山报》2月22日报道，随着国务卿安东尼·布林肯（Antony Blinken）取消与俄罗斯外交部长谢尔盖·拉夫罗夫（Sergey Lavrov）的会面，拜登总统也取消了原定与普京的会晤。
+#### 校对：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2105.png)图片来源：Tennis World
+据《The Covid World》2月22日报道，目前世界排名第25位的法国头号男子网球选手盖尔·孟菲尔斯 (Gaël Monfils) 2月22日通过其个人推特帐户宣布，由于新冠疫苗加强针引发的健康问题，他将无法参加下周开始的戴维斯杯 (Davis Cup)网球赛。
 
-周二，国务卿布林肯表示，在俄罗斯向乌克兰东部派遣军队作为更全面入侵的开始后，他将不会与俄罗斯外交部长拉夫罗夫会面。
+孟菲尔斯在推特上写道：“我遇到了一个小的健康问题（可能是在我接种了第三针疫苗后），在医生的建议下，我决定花时间休息。因此很不幸，我将无法参加下周的戴维斯杯比赛。”
 
-布林肯在国务院的讲话中说：“现在我们看到入侵已开始，而俄罗斯已经明确表示它全面拒绝外交，在这个时候进行会面是没有意义的。”
 
-他说他给拉夫罗夫发了一封信，取消了这次会晤，但也为外交活动留有余地。
 
-他说：“如果俄罗斯准备采取可证明的行动，向国际社会提供任何程度的信心，表明它对缓和局势和寻找外交解决方案是认真的，我个人仍然致力于外交努力。”
+> [pic.twitter.com/JEG16vPhLj](https://t.co/JEG16vPhLj)
+> — Gael Monfils (@Gael\_Monfils) [February 22, 2022](https://twitter.com/Gael_Monfils/status/1496124356501590024?ref_src=twsrc%5Etfw)
 
-几乎与此同时，白宫新闻秘书珍·普萨基（Jen Psaki）周二告诉记者，拜登总统和俄罗斯总统普京之间的任何会晤计划暂时都不存在。
 
-普萨基没有明确排除未来发生会晤的可能性，但表示除非俄罗斯通过撤军来缓和乌克兰局势，否则拜登不会与普京会晤。
 
-报道指，周日，在普京派兵进入乌克兰东部之前，白宫曾表示，拜登已“原则上”同意在布林肯与拉夫罗夫会晤后与普京会面，条件是俄罗斯不入侵乌克兰。
+孟菲尔斯本赛季势头强劲，并获得了两年来的首个单打冠军。他是第二位因为疫苗副作用而不得不离开球场的法国网球运动员。之前，法国另一位网球明星杰瑞米·查迪 (Jeremy Chardy)在去年8月接种了辉瑞新冠疫苗后，9月份出现了严重的不良反应，不得不远离球场。自去年夏天的美网公开赛以来，查迪至今没有打过一场比赛，世界排名也从接种前的73位跌至第138位。
 
-**新闻来源**
+新闻来源：
 
-[Psaki confirms Biden-Putin meeting off the table](https://thehill.com/homenews/administration/595399-psaki-confirms-biden-putin-meeting-off-the-table?rl=1)
-
-[Blinken scraps meeting with top Russian diplomat over Ukraine](https://thehill.com/homenews/administration/595394-blinken-scraps-meeting-with-top-russian-diplomat-over-ukraine?rl=1)
+[Gael Monfils: French No. 1 Tennis Star Pulls Out After Health Problems Caused By COVID-19 Booster Shot](https://thecovidworld.com/gael-monfils-french-no-1-tennis-star-pulls-out-after-health-problems-caused-by-covid-19-booster-shot/)
 
  
 

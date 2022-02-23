@@ -2,38 +2,40 @@
 ---
 
 
-## 美国宣布对俄罗斯金融制裁
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2051594/)
+## 瑞士可能被列入欧盟洗钱国黑名单
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2051638/)
 
 #### 【雅典娜快讯】，紧贴时代脉搏
 
-整理：围剿维尼熊
-编辑：朝花夕拾
+翻译：Melody
+编辑：文泓
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-02-下午10.11.59-17.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/6-41.png)图片来源：Business Insider Africa & 雅典娜设计组
 
 
-根据德国之声中文网2月23日报道，美国总统拜登2月22日宣布对俄罗斯银行进行金融制裁，以回应美国认定俄罗斯入侵乌克兰的行动。
+目前，瑞士这个国际金融中心正在应对瑞士信贷银行数据大规模泄露的影响。
 
-美国对俄罗斯进行的第一批经济制裁，主要是针对俄罗斯的VEB和Promsvyazbank银行。拜登还说，对俄罗斯主权债务的制裁意味著美国已经切断了俄罗斯政府与西方国家的融资。
+当地时间2月22日，据RT电视台报道，欧洲议会中最大的政治团体欧洲人民党(EPP)呼吁对瑞士的银行业务进行审查，并要求将瑞士列入欧盟的洗脏钱黑名单，因为泄露的瑞士信贷银行文件显示该银行与“恶棍”客户的交易。
 
-此外，美国的制裁措施还将针对俄罗斯的“精英”和他们的家庭成员。拜登还警告说，如果俄罗斯继续其侵略行为，它们将付出更沉重的代价。
+据报道，这家瑞士银行巨头几十年来一直为杂乱无章的客户名单提供服务，其中包括国家元首和间谍头目，以及侵犯人权者和受制裁的个人。
 
-此前，美国国务卿布林肯21日表示，俄罗斯已明确表示全面拒绝透过外交渠道解决争端，而他也已取消原订24日与俄罗斯外长拉夫罗夫在日内瓦的会晤。
+根据有组织犯罪和腐败报告项目（OCCRP）“瑞士秘密”的调查结果，瑞士银行在防止洗钱方面存在巨大缺陷，调查也确定了这家瑞士银行的客户参与了酷刑、贩毒、洗钱、腐败和其他严重犯罪。
 
-布林肯将俄罗斯在乌克兰的行动描述为“二战以来对欧洲的最大威胁”。不过，他仍未放弃与俄罗斯进行外交谈判。
+EPP经济事务协调员马库斯·费伯补充道:“当瑞士银行未能恰当地应用国际反洗钱标准时，瑞士本身就会成为一个高风险的司法管辖区。”
 
-联合国秘书长古特雷斯22日表示，他对俄罗斯扭曲维和的概念感到担忧。
+瑞士信贷强烈否认任何不法行为的指控，称媒体报道是基于“断章取义的选择性信息，导致对银行商业行为的倾向性解释”。
 
-参考链接：[华盛顿制裁俄银行 联合国批莫斯科“假维和”](https://www.dw.com/zh/%E8%8F%AF%E7%9B%9B%E9%A0%93%E5%88%B6%E8%A3%81%E4%BF%84%E9%8A%80%E8%A1%8C-%E8%81%AF%E5%90%88%E5%9C%8B%E6%89%B9%E8%8E%AB%E6%96%AF%E7%A7%91%E5%81%87%E7%B6%AD%E5%92%8C/a-60880157)
+如果瑞士被列入黑名单，它将面临适用于与伊朗、缅甸、叙利亚和朝鲜等国相关的交易的强化尽职调查。欧盟洗钱黑名单目前包括21个国家，目前其中没有一个是欧洲国家。
 
-*发布：tianzhihuan*
+新闻链接：[Switzerland could be blacklisted as money-laundering state — RT Business News](https://www.rt.com/business/550146-switzerland-money-laundering-state/)
 
-**更多资讯，请关注：
+发布：tianzhihuan
+
+更多资讯，请关注：**
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  

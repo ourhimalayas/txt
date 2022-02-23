@@ -2,32 +2,33 @@
 ---
 
 
-## 有声｜加拿大宣布对俄罗斯实施第一轮经济制裁
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2051460/)
+## 有声|在顿涅茨克市中心发生强烈爆炸
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2051551/)
 
-By:**秘翻新闻**
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+2022年2月19日，据【俄卫星社通讯社】报道，顿涅茨克人民共和国政府大楼几十米远处发生爆炸。 据消息称，这发生在距离顿涅茨克人民共和国政府大楼几十米远的地方。在爆炸现场可以看到大火，附近的建筑物没有损坏。 目前还没有人员伤亡的消息。
 
-**2022-02-23**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/10-31.png)图片来源 路透社
-据路透社2月22日报道，在莫斯科承认乌克兰地区的顿涅茨克和卢甘斯克独立后，加拿大总理贾斯汀-特鲁多星期二宣布对俄罗斯实施第一轮经济制裁。
+顿涅茨克人民共和国人民民兵武装部在官方Telegram频道上发布的消息中说：“莫斯科时间19点左右，在政府大楼附近的一个停车场一辆汽车被炸毁。整个城市都听到了爆炸声。”
 
-此前，俄罗斯总统普京将该国部队进入乌克兰东部的行动称为维持和平。特鲁多则表示， 这是对乌克兰主权的入侵，是绝对不可接受的。
+此前，顿涅茨克人民共和国和卢甘斯克人民共和国宣布开始把平民大规模撤往俄罗斯。卢甘斯克人民共和国和顿涅茨克人民共和国代表2月17日早表示，各自阵地均遭到乌克兰武装部队的大规模火力袭击。 乌克兰军方则表示，2月17日，顿巴斯地区违反停火事件骤增。
 
-特鲁多称，将禁止加拿大人与卢甘斯克和顿涅茨克进行所有金融交易。还将禁止加拿大人参与购买俄罗斯的主权债务。并对两家俄罗斯银行实施额外制裁，阻止与它们进行任何金融交易。
+目前，俄乌边境局势紧张引发了西方世界对战争的担忧，乌克兰相关军事行动也都成为了当下极其敏感和引发关注的话题。而与此同时，乌克兰声称他们打算通过政治和外交途径解决问题。
 
-特鲁多还表示，将对投票承认顿涅茨克和卢甘斯克独立决定的俄罗斯议会成员实施制裁。同时正在授权多达460名加拿大武装部队成员向该地区增援。
+文字版原文：[在顿涅茨克市中心发生强烈爆炸](https://gnews.org/zh-hans/2040136/)
 
-美国、欧盟、德国和英国也宣布了他们将从经济上惩罚俄罗斯的方式，以防止俄罗斯的进一步入侵。
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-新闻来源
-[**https://www.reuters.com/world/europe/trudeau-announces-first-round-economic-sanctions-russia-over-ukraine-crisis-2022-02-22/**](https://www.reuters.com/world/europe/trudeau-announces-first-round-economic-sanctions-russia-over-ukraine-crisis-2022-02-22/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-秘翻新闻 文洋 编译报道
-
-发布 : 恩典
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMAGE-2022-02-19-171240.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

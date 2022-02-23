@@ -2,27 +2,27 @@
 ---
 
 
-## 有声｜欧盟即将开启首轮对俄制裁
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2051455/)
+## 有声|新中国联邦新闻、GTV新闻访谈简报|2022年2月20日晚
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2051549/)
 
-**By:秘翻新闻**
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-16.png)
 
-**2022-02-23**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8672C0F4-10C4-4280-A8FE-25BCDA873E83.jpeg)图片源自:网络
-当地时间2月22日下午，法国外长勒德里昂与欧盟外交与安全政策高级代表博雷利就当前乌克兰局势召开新闻发布会。
 
-勒德里昂表示，欧盟27国就当前俄乌危机的严重形势以及可能产生的后果进行了分析，并一致通过了欧盟对俄罗斯国家杜马议会351名议员实施制裁的首轮制裁措施。此外，制裁目标还包括了27个实体以及个人，其中包括政治决策者以及为这些人提供资金的银行。
+文字版原文：[新中国联邦新闻、GTV新闻访谈简报|2022年2月20日晚](https://gnews.org/zh-hans/2039287/)
 
-博雷利表示，欧盟将根据俄罗斯的进一步行动调整对其制裁措施的轻重。他同时也表示，俄罗斯总统普京暂时不在本次制裁名单之中。
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-此外，法国外长勒德里昂还宣布，原定于25日与俄罗斯外长拉夫罗夫在巴黎的会晤将被取消。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-（ 秘翻新闻vera 编译报道 ）
-
-发布:星星
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
