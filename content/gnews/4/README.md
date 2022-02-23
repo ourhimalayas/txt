@@ -2,20 +2,12 @@
 ---
 
 
-## 缺乏教育和信仰,导致中国人的愚昧
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2054879/)
+## 2月23日勿忘香港（图片1-7）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2054977/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
-
-*发布：陶子*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+设计 五月花农场 企鹅
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1C1DE4DD-F9C4-42DA-8DF1-BBEAE5207CE6.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/38005193-B177-48A7-A3E5-F45E0CC1AA13.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/0B261520-DBEF-43EB-A63D-81C4C6554545.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/D1B4B808-562D-4216-9F47-3C039A45A13C.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/1460F6B1-66F7-46A1-9CDA-54FDFFF6968E.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/1AF1D3E0-18C5-478B-B227-5384E7FDE641.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/24C1CD74-54FE-4824-9024-8B6C15CBE965.jpeg)
+发布：水涨船高
 
  
 
