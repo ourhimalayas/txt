@@ -2,8 +2,8 @@
 ---
 
 
-## 彭佩奥访台的原因
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2054851/)
+## 只要我们赢，共产党就疯狂黑七哥
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2054855/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

@@ -15,46 +15,46 @@
 
 ---
 
-### [2月23日锁链女（图片1-3）](/content/gnews/1/README.md)
+### [加拿大省长准备就特鲁多使用《紧急状态法》提起讼诉.](/content/gnews/1/README.md)
+ ` 蓝莲花农场`
+
+### [2月23日锁链女（图片1-3）](/content/gnews/2/README.md)
  ` 波士顿五月花农场`
 
-### [千年来最可怕是来自俄罗斯](/content/gnews/2/README.md)
+### [千年来最可怕是来自俄罗斯](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [缺乏教育和信仰,导致中国人的愚昧](/content/gnews/3/README.md)
+### [缺乏教育和信仰,导致中国人的愚昧](/content/gnews/4/README.md)
  ` 雅典娜GNotes`
 
-### [相信假话是因为脑子太空白,对PAG和欺民贼一定要行动](/content/gnews/4/README.md)
+### [相信假话是因为脑子太空白,对PAG和欺民贼一定要行动](/content/gnews/5/README.md)
  ` 雅典娜GNotes`
 
-### [根本不用理会共产党怎么说,只要看它怎么愚蠢的行动](/content/gnews/5/README.md)
+### [根本不用理会共产党怎么说,只要看它怎么愚蠢的行动](/content/gnews/6/README.md)
  ` 雅典娜GNotes`
 
-### [共产主义者是最善于出卖盟友的](/content/gnews/6/README.md)
+### [共产主义者是最善于出卖盟友的](/content/gnews/7/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [只要我们赢，共产党就疯狂黑七哥](/content/gnews/7/README.md)
+### [只要我们赢，共产党就疯狂黑七哥](/content/gnews/8/README.md)
  ` 雅典娜GNotes`
 
-### [彭佩奥访台的原因](/content/gnews/8/README.md)
+### [彭佩奥访台的原因](/content/gnews/9/README.md)
  ` 雅典娜GNotes`
 
-### [习想3小时拿下台湾](/content/gnews/9/README.md)
+### [习想3小时拿下台湾](/content/gnews/10/README.md)
  ` 雅典娜GNotes`
 
-### [普京玩的战争金融游戏](/content/gnews/10/README.md)
+### [普京玩的战争金融游戏](/content/gnews/11/README.md)
  ` 雅典娜GNotes`
 
-### [美国政府对北溪2号运营公司 实施制裁](/content/gnews/11/README.md)
+### [美国政府对北溪2号运营公司 实施制裁](/content/gnews/12/README.md)
  ` Shuizhuyu`
 
-### [美对俄事件的政治演戏](/content/gnews/12/README.md)
+### [美对俄事件的政治演戏](/content/gnews/13/README.md)
  ` 雅典娜GNotes`
 
-### [2022/02/23 文贵先生直播重点大纲](/content/gnews/13/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [多元文化的“移”与“融” 《分享时刻》教育篇：移民风雨路 多元文化说](/content/gnews/14/README.md)
+### [2022/02/23 文贵先生直播重点大纲](/content/gnews/14/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [大直播后记：疫苗经济和造假](/content/gnews/15/README.md)
