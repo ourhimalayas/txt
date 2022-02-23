@@ -2,41 +2,39 @@
 ---
 
 
-## 英国取消所有的新冠病毒限制
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2052212/)
+## 特朗普称俄乌冲突后，中共绝对会谋求台湾
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2052388/)
 
-[![](https://express.adobe.com/page/meThKFieGGTuh/images/1a67a256-f184-44f5-917c-caaed74e6c29.png?asset_id=a44750bd-6101-42ab-b071-07912f4c4a01&amp;img_etag=%22b5587e9f763e00aae3c67eb39942547b%22&amp;size=2560)](https://express.adobe.com/page/meThKFieGGTuh/images/1a67a256-f184-44f5-917c-caaed74e6c29.png?asset_id=a44750bd-6101-42ab-b071-07912f4c4a01&amp;img_etag=%22b5587e9f763e00aae3c67eb39942547b%22&amp;size=1024)
-**简评：**
+撰稿：玄鸟
+校对：Streamline
+上传：无明逆流
 
-由于政府无法继续负担经济成本和个人自由的损失，英国首相约翰逊宣布将取消国内所有的新冠病毒的法律限制，不再要求完全接种者、密切接触者和18岁以下的人进行为期七天的每日检测。约翰逊表示，新冠病毒不会马上消失，如果想等疫情完全结束再取消限制，英国人民将会被长期限制自由。英国解禁了，其他国家还要多久呢？
+据福克斯新闻（FOXNEWS）2月22日报道，前美国总统特朗普本周二表示，在俄罗斯总统弗拉基米尔·普京下令军队进驻乌克兰东部后，中国将是下一个“在世界上采取侵略行为的国家。”
 
-[**GETTR视频链接**](https://gettr.com/post/pw4v708e1d)
+特朗普出席在其马阿拉歌庄园（Mar-a-Lago）举行的 “克莱特拉维斯和巴克塞克斯顿秀”（The Clay Travis & Buck Sexton Show ）时说，中国国家主席习近平将把俄罗斯对乌克兰的行动作为一个支持他的信号，试图夺回台湾。
 
-[**GTV视频链接**](https://gtv.org/video/id=6214ef3d1408ee3a03a36fce)
+“中国将会是下一个出兵的国家，”他说。“哦，绝对的。没有我的干涉，他们不会停止。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2128.png)图片来源：Getty Images
+特朗普将乌克兰的 “灾难 ”归咎于拜登总统，并表示如果在他的政府领导下，“这种情况绝不会发生”。
+“他们在等待，直到奥运会之后，”他在谈到中国政府时说。”现在奥运会结束了，时间到了，习近平想行动了。”
 
-**视频字幕：**
+将习近平与普京进行比较时，他说，“这就像一对孪生姐妹，因为他们中有一个想要台湾（而另一个想要乌克兰），我认为他们是同样的糟糕”，有人问，“普京和习近平，他们谁的野心更强烈？我认为这也是同样的糟糕”。
 
-**英国首相鲍里斯.约翰逊**：我们将取消所有国内现有的（新冠病毒）的法律限制。
+川普补充说到：”如果在他的政府领导下，普京不敢这样干，习近平也不会这样干。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2129.png)图片来源：AP Photo/Ross D. Franklin
+普京本周一宣布，承认顿涅茨克人民共和国和卢甘斯克人民共和国从乌克兰独立出来，并紧接着部署了军队，白宫将其称为 “入侵”。
+“入侵已经开始，”一位白宫官员告诉福克斯新闻说，“所以我们的制裁也已经开始。”
 
-**画外音**：周一英国首相鲍里斯.约翰逊表示，他将取消英国的所有新冠病毒限制。
+拜登预计将宣布对俄罗斯实施新的经济制裁，此前，他在本周一签署了一项行政命令，对乌克兰境内搞分离主义地区实施制裁。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2130.png)图片来源：Alex Wong/Getty Images
+与此同时，美国和欧洲官员正在为可能出现的乌克兰难民潮做准备。这引发了人们对可能超过2015年叙利亚难民危机的担忧。
 
-**约翰逊**：我们将结束常规的接触追踪，不再要求完全接种者、密切接触者和18岁以下的人进行为期七天的每日检测。
+“如果俄罗斯进一步入侵乌克兰，我们将看到毁灭性的生命损失和难以想象的痛苦。数以百万计的流离失所者将在整个欧洲制造难民危机，”联合国大使琳达·托马斯-格林菲尔德（(Linda Thomas-Greenfield)）周一在联合国安理会上说。
 
-**画外音**：约翰逊终止健康限制的举措引起了一些科学家和政治反对派的怀疑。他们警告说，此举为时过早，将使国家容易受到新的病毒变种的影响。
+拜登政府的批评者说，拜登政府失败的外交政策从美国从阿富汗撤军开始，并为独裁国家领导人在全球范围内的侵略行为开了绿灯。
 
-**约翰逊**：议长先生，新冠病毒不会马上消失，所以那些想等这场疫情完全消失才取消限制的人，将在未来很长一段时间限制英国人民的自由。
+信息来源：[Trump says China ‘absolutely’ going after Taiwan after Russia-Ukraine ‘disaster’](https://www.foxnews.com/politics/trump-china-taiwan-russia-ukraine)
 
-**画外音**：首相说，由于经济成本和个人自由的损失太大，政府已无力再继续负担。取消现有的法律限制是约翰逊所在的保守党许多议员的首要任务。他们对其丑闻缠身、领导能力的不满已经威胁到他对权力的掌控。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
-
-
-*编辑：【英国伦敦喜庄园编辑部】*
-
-*字幕：雨中漫步* *| 听写：云岭 | 翻译：Blue* *| PR：Roberts* *|简评/文字整理/编辑：胖丁 | Page：我是球大哥*
-[![](https://express.adobe.com/page/meThKFieGGTuh/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://express.adobe.com/page/meThKFieGGTuh/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
