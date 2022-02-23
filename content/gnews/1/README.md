@@ -2,39 +2,32 @@
 ---
 
 
-## 是因为中国人的无知和懦弱，让共产党变得如此的强大
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2054523/)
+## 西班牙谴责俄罗斯在乌克兰的行动，并承诺作出“响应反应”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2054585/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+翻译：七龙珠
 
-2022-02-16直播摘录11：24：27
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-23-203937.jpg)图片来源：elperiodico.com
 
-你们发现那个谷爱凌头两天的赛为啥给取消了吗？以气候和风的原因，取消了谷爱凌的两场最重要的比赛。注意到了吗？你们没注意到，这战友爆的料，我就只爆一个小的。你知道多恐怖，兄弟姐妹们，她发现，她没有想到，在全世界面前玩弄全世界的媒体，说：“我在中国就是中国人，我在美国就是美国人”。她忘了中国政府颁布的全世界的法律，中国人只能拥有一个国籍。这瞪着眼欺骗国民，欺骗全世界。中国人内部人恨的咬牙根子。美国不愿意了，还有你纳税地在哪里啊？你可以呀，你在美国啊，你在哪纳的税啊？你在中国挣钱，在哪纳的税啊？现在人家很多国家已经说了，这个人是我们一定要研究透的。
+西班牙首相佩德罗-桑切斯谴责了俄罗斯在与乌克兰冲突中的行动，此前俄罗斯承认并向亲俄的顿巴斯和卢甘斯克共和国派遣了军队，并承诺在北约框架内采取联合行动。
 
-更夸张的事情，在现场的运动员被多次所谓的给……这叫台湾叫什么？叫猫步啊？叫什么？就是坏人……叫什么步啊，我的腹肌，台湾叫什么步？就害人那个。
+此前，外交、欧盟和合作部长何塞-曼努埃尔-阿尔巴雷斯也谴责俄罗斯承认2014年在莫斯科支持下自封的乌克兰省份，并保证西班牙将与合作伙伴“密切配合”应对“公然违反”。
 
-我的腹肌呢：偷吃步吗？
+“俄罗斯承认乌克兰东部的分离主义领土是对乌克兰的领土完整、明斯克协议和国际合法性的公然侵犯”。阿尔巴雷斯说：“我们将与我们的合作伙伴密切协调，作出回应”。
 
-郭文贵先生：黑人叫什么步啊？偷步啊？就是给人家下黑手。结果现在人家好几个运动员发现了一个很大的问题，很多屋里边全都是暗的录像头。哇，这运动员不干了，说你这偷录啊。现在正在给人家商量：你别爆，你别说。人家都拍下来了，人家把那摄像头都给拿了,你为啥有这种暗的摄像头？你可以明来你为啥有暗的？你男的女的都暗。而且发现中共和裁判之间的所谓的“猫腻”都被人家给发现了。这一堆的丑闻都出来。所以说最后谷爱凌这两场表演压不住了，赶快以风向为由给停下来。你说说共产党它真的很强大吗？一个谷爱凌就把它打了个半残废，它真没那么强大。是因为中国人的无知和懦弱，让共产党变得如此的强大。
+俄罗斯总统弗拉基米尔-普京周一宣布承认乌克兰顿涅茨克和卢甘斯克省的独立，这两个省在莫斯科的支持下于2014年自行宣布独立，尽管西方大国发出了相反的警告。
 
-但凡中国人只要知道辨明真假，识善恶，共产党分分秒秒——纸老虎完蛋！ 爱你们的喜币吧！爱你们的新中国联邦吧！爱你们的GTV、GNews、爱你们的盖特吧、GFashion、GClubs，前途无量，你们“无苗有币族”，还有控股权，兄弟姐妹们幸福吧！感恩一切！
+普京的宣布立即引起了参与乌克兰危机和支持基辅的主要国际行为者美国、北约和欧盟的拒绝和谴责。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+新闻来源：[elperiodico.com][España condena la actuación de Rusia en Ucrania y promete “respuesta coordinada”](https://www.elperiodico.com/es/internacional/20220221/espana-condena-actuacion-rusia-ucrania-13271337)
 
-**关注我们**
+* * *
 
-Discord 账号
+*审核：Aries的星
+校对：信心满满
+发布：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-3.jpeg)
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

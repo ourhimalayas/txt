@@ -15,61 +15,61 @@
 
 ---
 
-### [是因为中国人的无知和懦弱，让共产党变得如此的强大](/content/gnews/1/README.md)
- ` MG FARM`
-
-### [中共国的快速军事崛起](/content/gnews/2/README.md)
+### [西班牙谴责俄罗斯在乌克兰的行动，并承诺作出“响应反应”](/content/gnews/1/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [个人破产又算得了什么](/content/gnews/3/README.md)
+### [鲍里斯-约翰逊在最糟糕的时候加强了与中共国的关系](/content/gnews/2/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [是因为中国人的无知和懦弱，让共产党变得如此的强大](/content/gnews/3/README.md)
  ` MG FARM`
 
-### [香港和台湾的影响力](/content/gnews/4/README.md)
+### [中共国的快速军事崛起](/content/gnews/4/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [个人破产又算得了什么](/content/gnews/5/README.md)
  ` MG FARM`
 
-### [财富成了人类上最大的统治工具](/content/gnews/5/README.md)
+### [香港和台湾的影响力](/content/gnews/6/README.md)
  ` MG FARM`
 
-### [行善不问结果，这个最基本的常识](/content/gnews/6/README.md)
+### [财富成了人类上最大的统治工具](/content/gnews/7/README.md)
  ` MG FARM`
 
-### [2022年2月18日文贵大直播节选 （带视频）— 关于微信](/content/gnews/7/README.md)
+### [行善不问结果，这个最基本的常识](/content/gnews/8/README.md)
+ ` MG FARM`
+
+### [2022年2月18日文贵大直播节选 （带视频）— 关于微信](/content/gnews/9/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [现在钱成了统治人类的工具](/content/gnews/8/README.md)
+### [现在钱成了统治人类的工具](/content/gnews/10/README.md)
  ` MG FARM`
 
-### [有声|对抗暴政](/content/gnews/9/README.md)
+### [有声|对抗暴政](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [2/23/2022日本快讯：日本对驻华使馆人员被扣留做出抗议 ;岸田首相与德国总理举行电话会议](/content/gnews/10/README.md)
+### [2/23/2022日本快讯：日本对驻华使馆人员被扣留做出抗议 ;岸田首相与德国总理举行电话会议](/content/gnews/12/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [有声|呼喊](/content/gnews/11/README.md)
+### [有声|呼喊](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [“锁链女”——徐州八孩子事件（一）](/content/gnews/12/README.md)
+### [“锁链女”——徐州八孩子事件（一）](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [我们的一切一切都是灭掉共产党](/content/gnews/13/README.md)
+### [我们的一切一切都是灭掉共产党](/content/gnews/15/README.md)
  ` MG FARM`
 
-### [放下就是最大的拥有](/content/gnews/14/README.md)
+### [放下就是最大的拥有](/content/gnews/16/README.md)
  ` MG FARM`
 
-### [有声|中共决定制裁向台湾军售的美军工企业](/content/gnews/15/README.md)
+### [有声|中共决定制裁向台湾军售的美军工企业](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [除非特鲁多能够解释紧急情况是什么，否则他是在滥用职权](/content/gnews/16/README.md)
+### [除非特鲁多能够解释紧急情况是什么，否则他是在滥用职权](/content/gnews/18/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [学会放下](/content/gnews/17/README.md)
- ` MG FARM`
-
-### [放下，就是拥有](/content/gnews/18/README.md)
- ` MG FARM`
-
-### [GTV公告的时候吓死你们](/content/gnews/19/README.md)
+### [放下，就是拥有](/content/gnews/19/README.md)
  ` MG FARM`
 
 ### [文贵爆料 2.23：病毒+人毒，何处是我家](/content/gnews/20/README.md)
