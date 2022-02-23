@@ -2,34 +2,30 @@
 ---
 
 
-## 美国务院与拜登相继取消与俄罗斯的外交会晤
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2051318/)
+## 部分两党国会议员提醒拜登遵循《战争权力法》
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2051381/)
 
 #### 撰稿：彩虹 
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/16455963471.png)图片来源：阿拉伯新闻网
-《国会山报》2月22日报道，随着国务卿安东尼·布林肯（Antony Blinken）取消与俄罗斯外交部长谢尔盖·拉夫罗夫（Sergey Lavrov）的会面，拜登总统也取消了原定与普京的会晤。
+#### 责编：白夜 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/16455972771.png)图片来源：雅虎新闻
+2月22日，《国会山报》发表文章，报道乌克兰紧张局势升级之际，一群两党立法议员周二致函拜登总统，提醒他在出兵或发动军事攻击之前必须寻求国会的授权。
 
-周二，国务卿布林肯表示，在俄罗斯向乌克兰东部派遣军队作为更全面入侵的开始后，他将不会与俄罗斯外交部长拉夫罗夫会面。
+这个由43名立法者组成的两党小组承认，拜登此前曾表示不会向乌克兰派兵，但也提示说这一决定可能会改变。
 
-布林肯在国务院的讲话中说：“现在我们看到入侵已开始，而俄罗斯已经明确表示它全面拒绝外交，在这个时候进行会面是没有意义的。”
+信中写道：“如果目前的局势迫使你将我们军队中勇敢的男女派入乌克兰，那么如果俄罗斯选择入侵，他们的生命将必然面临危险。因此，我们要求你的决定符合宪法和我们国家的法律，在任何此类进展行动之前与国会协商以获得授权。”
 
-他说他给拉夫罗夫发了一封信，取消了这次会晤，但也为外交活动留有余地。
+该信由众议院议员南希·梅斯（Nancy Mace）签署。南希·梅斯、普拉米拉·贾亚帕尔（Pramila Jayapal）、伊尔汗·奥马尔（Ilhan Omar）、马特·盖茨（Matt Gaetz）和沃伦·戴维森（Warren Davidson）等人在信中签名。
 
-他说：“如果俄罗斯准备采取可证明的行动，向国际社会提供任何程度的信心，表明它对缓和局势和寻找外交解决方案是认真的，我个人仍然致力于外交努力。”
+众议员彼得·德法齐奥（Peter DeFazio）在推特上分享了这封信，他写道，拜登应该“遵循宪法和法律”，“ 在我们卷入另一场外国冲突之前，美国人民应该有发言权。”
 
-几乎与此同时，白宫新闻秘书珍·普萨基（Jen Psaki）周二告诉记者，拜登总统和俄罗斯总统普京之间的任何会晤计划暂时都不存在。
+报道说，迄今为止，拜登一直抵制派兵进入乌克兰，但是宣布将美国士兵调入其他北约国家，包括爱沙尼亚、拉脱维亚和立陶宛。在本月早些时候，拜登将160名美军调离了乌克兰。
 
-普萨基没有明确排除未来发生会晤的可能性，但表示除非俄罗斯通过撤军来缓和乌克兰局势，否则拜登不会与普京会晤。
-
-报道指，周日，在普京派兵进入乌克兰东部之前，白宫曾表示，拜登已“原则上”同意在布林肯与拉夫罗夫会晤后与普京会面，条件是俄罗斯不入侵乌克兰。
+在周二的信中，议员们还写道，1973年的《战争权力法》（War Powerss Act）已经被前几任总统不尊重。该法案不仅限制拜登参战，而且还限制他发动“先发制人的打击”。
 
 **新闻来源**
 
-[Psaki confirms Biden-Putin meeting off the table](https://thehill.com/homenews/administration/595399-psaki-confirms-biden-putin-meeting-off-the-table?rl=1)
-
-[Blinken scraps meeting with top Russian diplomat over Ukraine](https://thehill.com/homenews/administration/595394-blinken-scraps-meeting-with-top-russian-diplomat-over-ukraine?rl=1)
+[Lawmakers urge Biden to ask Congress before sending military to Ukraine](https://thehill.com/policy/international/595412-lawmakers-urge-biden-to-ask-congress-before-sending-troops-to-ukraine?rl=1)
 
  
 

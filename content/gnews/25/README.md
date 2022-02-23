@@ -2,22 +2,38 @@
 ---
 
 
-## 紧急报道！日本宣布对俄罗斯实施制裁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2051171/)
+## 新州工党领袖承认访华旅程曾受中共资助
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2051212/)
 
-撰稿：东京樱花团/风翼
+**整理：围剿维尼熊
+编辑：Candy**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/紧急报道！日本宣布对俄罗斯实施制裁.jpg)图片来源于网络
+【**雅****典娜快讯】，紧贴时代脉搏**
 
-据朝日电台紧急报道：东京时间2月23日11时，在俄罗斯总统普京承认乌克兰东部亲俄派控制地区独立后，岸田首相宣布了对俄罗斯实施的制裁措施。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/柯.png)图片来源：雅典娜设计组
 
-制裁具体内容为：对于俄方承认的两个“人民共和国”相关人士暂时停发签证并进行资产冻结；停止与两个“人民共和国”的进出口经济往来；禁止俄罗斯新的主权债务在日本国内发行和流通。
 
-信息来源：[【速報】岸田総理　対ロシア制裁措置発表　親ロ派2地域との輸出入禁止など](https://news.tv-asahi.co.jp/news_politics/articles/000245670.html)
+**根据大纪元2022年2月22日讯，澳大利亚新州工党领袖柯民思（Chris Minns）首次证实，他成为议员前的一次访华旅程完全由中共资助。**
 
-*编辑：东京樱花团/麗子
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+据《每日电讯报》报导，柯民思曾在2015年访问中国大陆和香港，而当时资助他访华旅程的是中共政权以及与中共有着密切联系的富商黄向墨的澳大利亚广东商会。在澳洲安全情报局（ASIO）的干预下，黄向墨的澳洲永居签证已经被取消，公民申请被拒。
+
+2月22日，柯民思对访华旅程一事回应说，他当时对可疑政治捐款的事情并不知情，直到廉政公署（ICAC）调查黄向墨是否亲自给新州工党总部送去10万澳元现金一事。
+
+柯民思承认自己在访华旅程中没有自己掏钱，但他称访问并非度假，而是关注中澳两国的贸易。
+
+为期五天的行程结束后，柯民思并没有申报这次旅程，因为他获得的建议是访华期间他还没有宣誓入职。但柯民思表示对当初的决定感到后悔。
+
+参考链接：[新州工党领袖承认访华旅程曾受黄向墨资助](https://www.epochtimes.com/gb/22/2/22/n13595868.htm)
+
+***发布：Candy***
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

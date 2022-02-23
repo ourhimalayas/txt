@@ -2,24 +2,22 @@
 ---
 
 
-## 中日财经爆|加拿大宣布对俄罗斯实施经济制裁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2051093/)
+## 紧急报道！日本宣布对俄罗斯实施制裁
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2051171/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片11.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fimage.shutterstock.com%2Fz%2Fstock-photo-map-of-russia-canada-sanctions-against-russia-judge-hammer-canada-flag-and-emblem-d-667017838.jpg&amp;imgrefurl=https%3A%2F%2Fwww.shutterstock.com%2Fimage-illustrati)
-加拿大总理特鲁多2月22日在莫斯科承认乌克兰分离主义地区顿涅茨克和卢甘斯克为独立国家的第二天，宣布对俄罗斯实施第一轮经济制裁。
+撰稿：东京樱花团/风翼
 
-特鲁多说，他的政府将禁止加拿大人与所谓的“独立国家”卢甘斯克和顿涅茨克进行所有金融交易。还将禁止加拿大人参与购买俄罗斯主权债。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/紧急报道！日本宣布对俄罗斯实施制裁.jpg)图片来源于网络
 
-加拿大政府将制裁那些投票赞成承认顿涅茨克和卢甘斯克独立决定的俄罗斯议会成员。加拿大将对两家国家支持的俄罗斯银行实施额外制裁，并阻止与它们进行任何金融交易。
+据朝日电台紧急报道：东京时间2月23日11时，在俄罗斯总统普京承认乌克兰东部亲俄派控制地区独立后，岸田首相宣布了对俄罗斯实施的制裁措施。
 
-消息来源:
+制裁具体内容为：对于俄方承认的两个“人民共和国”相关人士暂时停发签证并进行资产冻结；停止与两个“人民共和国”的进出口经济往来；禁止俄罗斯新的主权债务在日本国内发行和流通。
 
-[加拿大宣布因乌克兰危机对俄罗斯实施第一轮经济制裁](https://cn.reuters.com/article/canada-trudeau-russia-sanction-0223-idCNKBS2KS03Z?il=0)
+信息来源：[【速報】岸田総理　対ロシア制裁措置発表　親ロ派2地域との輸出入禁止など](https://news.tv-asahi.co.jp/news_politics/articles/000245670.html)
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+*编辑：东京樱花团/麗子
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

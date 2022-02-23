@@ -2,38 +2,26 @@
 ---
 
 
-## 新州工党领袖承认访华旅程曾受中共资助
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2051212/)
+## 中共的朝令夕改：个人收款码继续使用
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2051296/)
 
-**整理：围剿维尼熊
-编辑：Candy**
+撰稿：东京樱花团/加一根稻草
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2103.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg1.mydrivers.com%2Fimg%2F20211126%2F47b169d1-2ea2-4fc3-9a8b-ffdbe3d9a80b.png&amp;imgrefurl=https%3A%2F%2Fnews.mydrivers.com%2F1%2F798%2F798823.htm&amp;tbnid=3Iiewgc_Pwt7fM&amp;vet=12ahUKEwjj5NHX6pT2AhWgQGwGHaVPB4MQM)
+“微信派”微信公众号2月22日消息，根据人民银行相关政策和支付清算协会自律要求，微信支付按照优化支付服务、保护用户权益的原则，就相关事项公告如下：
 
-【**雅****典娜快讯】，紧贴时代脉搏**
+一、个人收款码可以继续正常使用 2022年3月1日之后，个人收款码可继续使用。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/柯.png)图片来源：雅典娜设计组
+二、个人经营收款码可以享受更多支付功能。
 
+2022年3月1日之后，结合用户收款情况，将陆续通过微信收款助手消息通知等方式发出邀请，在用户自愿情况下提供个人经营收款码，免费领取物料码牌，还能享受经营账本、经营分析等更多权益和服务。
 
-**根据大纪元2022年2月22日讯，澳大利亚新州工党领袖柯民思（Chris Minns）首次证实，他成为议员前的一次访华旅程完全由中共资助。**
+用户如果希望申请，“收款小账本”首页会逐步向用户开放申请入口，申请完成后可享受同等待遇。同时，用户原有个人收款码不停用、不关闭、功能不变。” 从这个通知可以看出中共的欺骗本性。所谓的“可以享受更多支付功能”居然是用“经营账本、经营分析”来实施监控手段。这里还有“免费领取物料码牌”的深坑等着老百姓，你买什么、卖什么都会在监控之下。
 
-据《每日电讯报》报导，柯民思曾在2015年访问中国大陆和香港，而当时资助他访华旅程的是中共政权以及与中共有着密切联系的富商黄向墨的澳大利亚广东商会。在澳洲安全情报局（ASIO）的干预下，黄向墨的澳洲永居签证已经被取消，公民申请被拒。
+物极必反。在如此严密的监控之下，其实施难度过大，必然会乱象丛生。中共在全世界舆论的压力之下已经乱了阵脚。
 
-2月22日，柯民思对访华旅程一事回应说，他当时对可疑政治捐款的事情并不知情，直到廉政公署（ICAC）调查黄向墨是否亲自给新州工党总部送去10万澳元现金一事。
-
-柯民思承认自己在访华旅程中没有自己掏钱，但他称访问并非度假，而是关注中澳两国的贸易。
-
-为期五天的行程结束后，柯民思并没有申报这次旅程，因为他获得的建议是访华期间他还没有宣誓入职。但柯民思表示对当初的决定感到后悔。
-
-参考链接：[新州工党领袖承认访华旅程曾受黄向墨资助](https://www.epochtimes.com/gb/22/2/22/n13595868.htm)
-
-***发布：Candy***
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
