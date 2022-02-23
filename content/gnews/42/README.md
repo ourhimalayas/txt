@@ -2,24 +2,34 @@
 ---
 
 
-## COVID-19 最新情報｜英國31歲樂壇紅人突發心臟病去世 網民追究死亡真相
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2050870/)
+## HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-10
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2050942/)
 
-**撰文｜疫情關注組 / 發佈時間｜23/02/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/英國31歲樂壇紅人突發心臟病去世-網民追究死亡真相.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：**[**https://gettr.com/post/pl6k0218bf**](https://gettr.com/post/pl6k0218bf)**)**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-5.png)
+**HBO-VICE 指鹿为马，对采访内容进行有目的性的剪辑，故意将郭先生关于疫苗真相、中共灭白计划的重要爆料内容，扭曲成未经证实、别有用心的虚假信息，意图彻底把郭先生杜撰成为疫苗阴谋论、以及各种谣言的推动者。对此，郭先生进行了严厉的反驳，他指出，自己的爆料从来不求回报，只为拯救更多无辜百姓的生命，所谓的未经证实，别有用心，根本是与魔共舞的主流媒体视而不见、刻意掩盖的结果，那些把公众利益、人民生命当作筹码，换取个人私利的少数财阀权贵才是真正意义上的用心险恶。**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2094.png)
+**现在，让我们一起还原事实真相的第10部分：反击HBO-VICE混乱剪辑，散布虚假信息：我们利用郭先生原视频进行回击**。
 
-英國樂壇紅人兼 YouTube 明星，今年31歲的賈馬爾·愛德華茲（Jamal Edwards）據報於上週日（20日）死於他位於倫敦西部的住所。
+**（播放视频 **[**https://www.gettr.com/post/pkg4fq761b**](https://www.gettr.com/post/pkg4fq761b)** 时长09:59）**
 
-起初，外界都沈浸在對死者的惋惜之中，直到賈馬爾的母親，女星布倫達·愛德華茲（Brenda Edwards）在向公眾證實兒子死訊時，無意中透露，賈馬爾的死亡是「突然疾病」引起的，而他從小到大的親密好友德韋恩（Dwayne）則更具體指明，所謂的「突發疾病」是「突發心臟病」。
+参考链接：[采访郭文贵先生背后的真相](https://www.gettr.com/post/pkg4fq761b)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+总编/编辑：天滅中共
+校对/发稿：小野貓（文凱琳）
 
-不僅如此，德韋恩還提到，就在離世的前一天晚上，賈馬爾還應邀去酒吧打碟，當時他的狀態相當好，而且相識多年，從未聽說他的心臟有問題。德韋恩向媒體表示：「賈馬爾是倫敦西部地區的傳奇人物，他的離世對我們所有人的打擊都很大，何況他正值壯年，為何會如此突然地走了，真是令人震驚。」
+**更多资讯，更多关注**
 
-賈爾馬死於「突發心臟病」的消息立即引起全球網民的注意，更將「賈馬爾死因（Jamal Edwards cause of death）」迅速頂上推特熱搜.
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-有人質疑，為什麼搜遍全網都找不到賈馬爾的疫苗接種情況，但若賈馬爾沒有接種疫苗，他根本不可以在死前一天的晚上能夠出席酒吧演奏。另外還有網民斥責當局和媒體聯手掩蓋死因是不顧公眾利益的表現，倘若疫苗真的有問題，更應該公開，讓還未發病的人儘早得到治療，避免悲劇重演。
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-來源｜[MyLondon](https://www.mylondon.news/news/uk-world-news/jamal-edwards-died-sudden-heart-23175406)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-5.png)
+
 
  
 

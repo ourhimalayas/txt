@@ -2,50 +2,42 @@
 ---
 
 
-## 5G辐射与中共病毒感染之间的联系
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2051092/)
+## 短视频：短视频：特鲁多“不配”担任总理
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2051189/)
 
-作者：纽约香草山 信息部 6zero4
+翻译：ATX1230 
+校对：枳实
+字幕：向上James 
+编辑：文泓
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-45.png)
-最近由鲁比克(Beverly Rubik)和布朗(Robert R. Brown)联合发表在《临床与转化医学研究杂志》上的一项最新研究论文，强调了中共病毒感染症状与5G无线辐射之间的联系。中共病毒疫情是在武汉全市范围内实施5G通信后不久出现的，这初步证实了中共病毒感染与5G网络的统计相关性。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-346.jpg)图片来源：Basedunderground.com
-透过生物物理学和病理生理学的交叉边界，他们确定了5G辐射作为一种有毒的环境因素促成了中共病毒感染机制，证据如下:
-
-1） 引起红细胞的形态学改变，包括棘状红细胞，以及可导致血栓的红细胞叠连；
-
-2） 损害微循环，降低红细胞和血红蛋白水平，加重缺氧；
-
-3） 放大免疫系统功能障碍，包括免疫抑制、自身免疫紊乱和过度炎症反应；
-
-4） 增加细胞氧化应激和自由基的产生，导致血管损伤和脏器损伤；
-
-5） 增加细胞内对病毒进入、复制和释放至关重要的Ca2+(钙离子)，并促进感染途径；
-
-6） 加重心律失常和心脏疾病。
-
-尤其在导致中共病毒感染重疾方面，与暴露在5G环境下造成的这些不利影响密切相关！
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image10-1.jpg)图片来源“视频截屏
 
 
+与此同时，现在在加拿大，警方威胁要在没有逮捕令的情况下逮捕自由车队抗议者。是的，听听这个，安大略省的一家法院冻结了超过800万美元的捐款。
 
+他们怎么、我们怎可做这种事？这次与吉布森（Gibson）连线的是杰夫·洛克（Jeff Locke），来自我们 Citrix Network，Fox Business从自由车队内部与我们一起在渥太华现场直播。杰夫!
 
+资金一直是一个关键，对这个车队而言是一件非常重要的事情。这里组织得非常有序，我站在这里的是托儿区，我们在这时间还早，孩子们还没来，但这里是他们所设置的，我的意思是这里什么都有。
 
-新闻来源：[https://basedunderground.com/2022/02/20/bombshell-study-confirms-link-between-5g-wireless-exposure-and-covid/](https://basedunderground.com/2022/02/20/bombshell-study-confirms-link-between-5g-wireless-exposure-and-covid/)
+他们在这边熏肉，而我们就站在议会前面。这里是很多人和议会成员的出口和入口。你知道，昨天我看到人们在辩论后出来，甚至一些赞成授权（疫苗强制）的议会成员也没有人找他们搭话。你知道，不会有人追着他们到浴室或其它任何地方。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-44.jpg)
+在我看来，这是一场非常和平的抗议活动，有时你会遇到一些人，你知道，（他们）开始找点麻烦，但总的来说，这是一场远远超出卡车司机（诉求）的和平运动。
 
-编辑/校对/发稿：滚滚长江都是水
+你经常听到法语的语调，因为这里有很多法裔加拿大人。是的，是这样的，（我就是）魁北克人。
 
-**更多资讯，更多关注**
+你为什么在这里？为了夺回我们的自由。我不想我的孩子在戴口罩和用二维码的生活方式中成长，这就是我们在这里的原因。你今天早餐在做什么？培根和鸡蛋。我刚刚开始做，我先煎培根，我们有很多鸡蛋。
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+这听起来你是打算在这里长住了？是的，我从第一天就在这里，已过15天了。我们现在在渥太华。我和我的妻子和孩子都在这，我们在这里坚持……
 
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+视频链接：[Canadian protester slams Trudeau: ‘Does not deserve’ to be prime minister – YouTube](https://www.youtube.com/watch?v=i8UCAVlb-uY)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+发布：文泓
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

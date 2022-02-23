@@ -2,22 +2,35 @@
 ---
 
 
-## 加拿大议员谴责特鲁多独裁施政
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2051072/)
+## 中信银行原行长孙德顺因受贿当庭认罪
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2051124/)
 
-采编：青青        编译撰稿：文莱
-![](https://assets.gnews.org/wp-content/uploads/2022/02/02-image-2.png)
-据加拿大媒体【后千禧年】2月21日报道，保守党议员皮埃尔日前指责特鲁多非法越权对卡车司机的和平抗议活动采取“分而治之”的暴力手段。
+**整理：围剿维尼熊
+编辑：Candy**
 
-该议员指出，特鲁多政权至始至终都在利用疫情控制着全国，其各项经济和人身的限制政策引发了被侵犯权利的人民奋起反抗。而当局则借机进一步妖魔化反对者的声音，试图以此制造社会分裂，激化群体矛盾，挑起种族斗争。
+【雅典娜快讯】，紧贴时代脉搏
 
-此外，特鲁多还非法动用国家权力以调查所谓“错误政治动机”的群体，并以封锁其个人银行账户作为惩罚。当局不仅冻结抗议者的个人财产，同时还利用警察等国家机器来攻击他们的人身安全。更严重的是，特鲁多还天真希望能永久执行其独裁治国的极权方案。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/孙.png)图片来源：雅典娜设计组
 
-校对编辑：硫酸羟氯喹64
 
-发稿：苦尽甜来 (文来）
+根据路透上海2月23日报道，山东省济南市中级人民法院日前一审审理了中信银行（601998.SS0998.HK）原行长孙德顺受贿一案，被控在贷款审批、获得授信额度等事项上为相关单位提供帮助，非法收受财物共计折合人民币9.795亿余元。
 
-原文链接： [WATCH: Poilievre SMASHES Trudeau over ‘unjustifiable power grab’ | The Post Millennial](https://thepostmillennial.com/watch-poilievre-smashes-trudeau-over-unjustifiable-power-grab)
+孙德顺曾在中国人民银行、中国工商银行、交通银行等单位工作，2011年10月出任中信银行党委副书记，相继担任副行长、常务副行长，2016年7月任行长。2020年3月，孙德顺被开除党籍。
+
+济南中院官方微信周二晚间刊登新闻稿公布，2003年至2019年，孙德顺利用担任中国工商银行北京市分行副行长，交通银行北京市分行行长，中信银行副行长、行长等职务上的便利，非法收受财物。
+
+孙德顺当庭表示认罪悔罪。此案将择期宣判。
+
+参考链接：[被控受贿近10亿元 中信银行原行长孙德顺在济南受审](http://xn--10%20-9n1h27ao0e5wef6gvwa9tla899i3yp96a787bbwq2i7bp22hba09ri80ch9n8k5a45cx22a/)
+
+***发布：Candy***
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

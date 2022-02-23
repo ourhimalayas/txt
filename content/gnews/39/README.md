@@ -2,35 +2,32 @@
 ---
 
 
-## HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-10
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2050942/)
+## 比尔·马赫抨击中共人权纪录
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2051012/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-5.png)
-**HBO-VICE 指鹿为马，对采访内容进行有目的性的剪辑，故意将郭先生关于疫苗真相、中共灭白计划的重要爆料内容，扭曲成未经证实、别有用心的虚假信息，意图彻底把郭先生杜撰成为疫苗阴谋论、以及各种谣言的推动者。对此，郭先生进行了严厉的反驳，他指出，自己的爆料从来不求回报，只为拯救更多无辜百姓的生命，所谓的未经证实，别有用心，根本是与魔共舞的主流媒体视而不见、刻意掩盖的结果，那些把公众利益、人民生命当作筹码，换取个人私利的少数财阀权贵才是真正意义上的用心险恶。**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2094.png)
-**现在，让我们一起还原事实真相的第10部分：反击HBO-VICE混乱剪辑，散布虚假信息：我们利用郭先生原视频进行回击**。
+作者：日本东京方舟农场—Miyali7768(文玉）
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月18日，比尔·马赫在”与比尔·马赫的实时”节目中，抨击中共骇人听闻的人权纪录。谈及在北京冬奥会为中共争夺金牌的美国滑雪运动员谷爱玲时，马赫毫不畏惧地告诉观众，选择一个代表极权主义的警察国家来统治美国，一点也不酷。他指出，作为美国公民的谷爱玲代表中国争夺冠军的可耻决定，成了中共国战胜西方的生动象征。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-22-下午11.32.37.png)
+马赫呼吁为彭帅的失踪，对维吾尔人的种族灭绝及可怕的待遇，对香港的压迫，中国拒绝承认台湾的事实，及中共在人权方面缺乏基本素养等进行追查。驳斥所谓中共国在某种程度上并不坏，因为美国也有自己的问题的谬论。
 
-**（播放视频 **[**https://www.gettr.com/post/pkg4fq761b**](https://www.gettr.com/post/pkg4fq761b)** 时长09:59）**
+希望马赫的实时节目能唤醒更多西方人，与世界正义联盟一起对抗中共。
 
-参考链接：[采访郭文贵先生背后的真相](https://www.gettr.com/post/pkg4fq761b)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-总编/编辑：天滅中共
-校对/发稿：小野貓（文凱琳）
+参考链接：[Bill Maher Nukes China’s Horrific Human Rights Record, Slams Americans Bowing Down To The CCP](https://dailycaller.com/2022/02/19/bill-maher-china-human-rights-record-video-eileen-gu/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+
+总编：Zion文恩
+编辑：静言
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-5.png)
-
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
