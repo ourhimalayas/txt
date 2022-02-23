@@ -2,29 +2,26 @@
 ---
 
 
-## 俄罗斯宣布与乌东两个所谓“共和国”建交
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2052955/)
+## 香港因奥密克戎疫情熔断八国航班
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2053088/)
 
-**撰稿：日本东京方舟农场  幽蘭自得**
+撰稿：东京樱花团｜Garrettw
 
-2月22日，俄罗斯表示，已与所谓的“顿涅茨克人民共和国”和“卢甘斯克人民共和国”建立外交关系。一日前，俄罗斯总统普京非法承认这两个乌克兰东部俄语地区的独立地位。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-243.png)（图片来自美联社）
-据《中央社》报道，俄国外交部声称，俄罗斯与所谓的“顿内茨克人民共和国”（Donetsk People’s Republic）和“卢甘斯克人民共和国”（Lugansk People’s Republic）建立外交关系的协议，已于22日起草完毕。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/香港因奥密克戎疫情熔断八国航班.png)[*图片来源*](https://images.7news.com.au/publication/C-5197408/29e45076be47f9612aa2dfc8490158a8a226b71a.jpg?imwidth=828&amp;impolicy=sevennews_v2)
 
-俄国外交部还在声明中表示，外长拉夫罗夫（Sergey Lavrov）已向顿内茨克、卢甘斯克外长拍发贺电。
+在中共病毒（Covid-19）奥密克戎（Omicron）疫情爆发后，香港已禁止来自八个国家航班，包括澳大利亚、加拿大、法国、印度、巴基斯坦、菲律宾、英国和美国。香港特区政府2月23日公布，将延长这些国家实施的地区性航班“熔断机制”至4月20日。
 
-一日前，俄罗斯总统普京非法宣布承认这两处乌克兰东部分离地区的“独立地位”，并宣布派遣部队进驻“维和”。
+由于对当地奥密克戎传播的担忧不断增加，林郑月娥星期二说，恢复该市与中国大陆之间的正常旅行“必须再等一段时间”。
 
-美、英、日等国强烈谴责，普京的这一系列行为严重违反了国际法与《明斯克协议》，侵害了乌克兰的主权与领土完整。目前，这些西方国家已对俄罗斯实施经济制裁。
+飞行禁令是在香港的奥密克戎在飞行人员中爆发后发布的，行政长官林郑月娥星期三告诉记者：“来自这些国家的客运航班将不允许在香港降落，在这些国家停留过的个人不允许登上飞往香港的航班，包括过境航班。”
 
-参考链接：
-1.[https://www.cna.com.tw/news/aopl/202202230067.aspx](https://www.cna.com.tw/news/aopl/202202230067.aspx)
-2.[https://www.cna.com.tw/news/aopl/202202230030.aspx](https://www.cna.com.tw/news/aopl/202202230030.aspx)
+香港当局已经出台了一些其他限制措施以打击中共病毒在这个城市的传播，这些限制措施包括取消大型公共活动和关闭15种不同类型的服务业，包括酒吧、健身房、夜总会和美容院。
 
-素材采编：幽蘭自得
-编辑：老孙
-发布：爱放飞
+消息来源：[**Hong Kong bans flights from eight countries, including Australia, amid Omicron outbreak**](https://7news.com.au/news/world/hong-kong-bans-flights-from-eight-countries-including-australia-amid-omicron-outbreak-c-5197408)
 
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
