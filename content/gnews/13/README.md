@@ -2,38 +2,31 @@
 ---
 
 
-## Gmall完全超出你想象
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2054301/)
+## 有声|中共决定制裁向台湾军售的美军工企业
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2054357/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+**2月21日，中共外交部发言人汪文斌在例行记者会上宣称，美国向台湾地区出售武器，严重违反一个中国的原则和中美联合公报817公报的规定，严重损害中国主权、中美关系和台海和平稳定，称中共政府决定对长期参与美国向台湾地区出售武器的美国军工企业——雷神技术公司和洛克希德·马丁公司——的行为实施反制。**
 
-2022-02-16直播摘录10:53:21
+**据悉，美国国务院2月7日批准了一项对台出售1亿美元的爱国者系统的计划，这是拜登政府执政以来第二次批准对台军售计划。**
 
-百分之百的啊…这是会的。GMall这个事情一定会来的，但是我们希望把今年的经历更多的把这些项目呢，特别是战友，战友们投资的GTV、战友们的喜联储、战友们的盖特、战友的GNews、还有整个的GFashion、GClubs这块经营的质量提高，功能完善。这个你们再谈GMall的时候，GMall过去你们以为是我们，保证我们商品流通的一个平台，是肯定的啊。但是从今天看，它远远超出了我们的想象。就我们总是发现自己，自己的今天比昨天超级伟大，我总是能发现我们原来过去的一个月，原来这么伟大，这是我现在生活的感受。
+**中共也不是第一次叫嚣对美国企业实施制裁了，2020年10月，中共就曾声称对雷神、波音等公司进行制裁。不过，有观察人士指出，始终没有看到有数据资料显示所谓“中共制裁”对美国企业产生何种影响。这种虚张声势的“制裁”恐怕最终只能沦为全球的笑柄。**
 
-就像我们个人破产一样，就今天我感觉到昨天签个人破产的事咋这么伟大呢是吧？是一样的。那么现在看，不是我们要不要GMall的问题，全世界任何的商家他以后不使用Hpay，他不使用喜币他不可能。就是我们就在空中有无数个GMall在等着我们。现在正在跟我们谈判的…现在我跟你说能把你们吓死。
+文字版原文：[中共决定制裁向台湾军售的美军工企业](https://gnews.org/zh-hans/2050845/)
 
-你们都没有注意看到，喜联储他们这个这帮人真的是不会宣传的。我心目中的“车神”，我心目中的“车神”啊，就是巴西的Senna，人们讲那巴西中的耶稣啊，是耶稣在世啊。Senna这个车竟然是接受了喜币卖给了喜联储，你们没看到吧？这是不可能的。你们去查查去，Senna，那真是大帅哥，我心中的“男神”啊，了不得！
+音频处理：Fei797
+发稿：Fei797
 
-你再看看现在正在谈的几大商场，网上、线下的商城都在跟喜联储谈。现在我再告诉大家，未来不仅在迪拜，原来在迪拜买房那个是不准确的，现在未来不仅迪拜，会很多地方接受买房子，很多地方。而且这个大家记住，就过去你不敢想象的事，现在你都是完全可以想象，你在想你GMall的时候是小事了！谢谢。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

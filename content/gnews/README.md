@@ -15,83 +15,83 @@
 
 ---
 
-### [现在钱成了统治人类的工具](/content/gnews/1/README.md)
+### [是因为中国人的无知和懦弱，让共产党变得如此的强大](/content/gnews/1/README.md)
  ` MG FARM`
 
-### [2/23/2022日本快讯：日本对驻华使馆人员被扣留做出抗议 ;岸田首相与德国总理举行电话会议](/content/gnews/2/README.md)
+### [个人破产又算得了什么](/content/gnews/2/README.md)
+ ` MG FARM`
+
+### [香港和台湾的影响力](/content/gnews/3/README.md)
+ ` MG FARM`
+
+### [财富成了人类上最大的统治工具](/content/gnews/4/README.md)
+ ` MG FARM`
+
+### [行善不问结果，这个最基本的常识](/content/gnews/5/README.md)
+ ` MG FARM`
+
+### [现在钱成了统治人类的工具](/content/gnews/6/README.md)
+ ` MG FARM`
+
+### [有声|对抗暴政](/content/gnews/7/README.md)
+ ` MOSREC`
+
+### [2/23/2022日本快讯：日本对驻华使馆人员被扣留做出抗议 ;岸田首相与德国总理举行电话会议](/content/gnews/8/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [有声|呼喊](/content/gnews/3/README.md)
+### [有声|呼喊](/content/gnews/9/README.md)
  ` MOSREC`
 
-### [“锁链女”——徐州八孩子事件（一）](/content/gnews/4/README.md)
+### [“锁链女”——徐州八孩子事件（一）](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [我们的一切一切都是灭掉共产党](/content/gnews/5/README.md)
+### [我们的一切一切都是灭掉共产党](/content/gnews/11/README.md)
  ` MG FARM`
 
-### [放下就是最大的拥有](/content/gnews/6/README.md)
+### [放下就是最大的拥有](/content/gnews/12/README.md)
  ` MG FARM`
 
-### [有声|中共决定制裁向台湾军售的美军工企业](/content/gnews/7/README.md)
+### [有声|中共决定制裁向台湾军售的美军工企业](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [除非特鲁多能够解释紧急情况是什么，否则他是在滥用职权](/content/gnews/8/README.md)
+### [除非特鲁多能够解释紧急情况是什么，否则他是在滥用职权](/content/gnews/14/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [学会放下](/content/gnews/9/README.md)
+### [学会放下](/content/gnews/15/README.md)
  ` MG FARM`
 
-### [放下，就是拥有](/content/gnews/10/README.md)
+### [放下，就是拥有](/content/gnews/16/README.md)
  ` MG FARM`
 
-### [GTV公告的时候吓死你们](/content/gnews/11/README.md)
+### [GTV公告的时候吓死你们](/content/gnews/17/README.md)
  ` MG FARM`
 
-### [要懂得如何投资](/content/gnews/12/README.md)
+### [要懂得如何投资](/content/gnews/18/README.md)
  ` MG FARM`
 
-### [Gmall完全超出你想象](/content/gnews/13/README.md)
+### [Gmall完全超出你想象](/content/gnews/19/README.md)
  ` MG FARM`
 
-### [文贵爆料 2.23：病毒+人毒，何处是我家](/content/gnews/14/README.md)
+### [文贵爆料 2.23：病毒+人毒，何处是我家](/content/gnews/20/README.md)
  ` 秘密翻译组-原创组`
 
-### [七哥的破产律师是全美国第一大](/content/gnews/15/README.md)
- ` MG FARM`
-
-### [美国的传奇故事当中一定有一篇曾经破过产](/content/gnews/16/README.md)
- ` MG FARM`
-
-### [有声|灭共路上战友们当争做爆料革命的盖特大V](/content/gnews/17/README.md)
+### [有声|灭共路上战友们当争做爆料革命的盖特大V](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [以法灭共](/content/gnews/18/README.md)
- ` MG FARM`
-
-### [有声|全球疫情、新加坡和中共都走到了十字路口](/content/gnews/19/README.md)
+### [有声|全球疫情、新加坡和中共都走到了十字路口](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [全世界人民团结起来，抵抗暴政，还我自由！](/content/gnews/20/README.md)
+### [全世界人民团结起来，抵抗暴政，还我自由！](/content/gnews/23/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [有声|达沃斯党利用科学主义危害人类](/content/gnews/21/README.md)
+### [有声|达沃斯党利用科学主义危害人类](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [2022年2月23日文贵先生直播摘要及音频—银河系农场](/content/gnews/22/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [日本岸田首相宣布制裁俄罗斯](/content/gnews/23/README.md)
+### [日本岸田首相宣布制裁俄罗斯](/content/gnews/25/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [有声|中共打脸“奥运不谈政治”谎言 遭国际谴责](/content/gnews/24/README.md)
- ` MOSREC`
-
-### [欧盟宣布在资产冻结和旅行禁令等方面制裁俄罗斯](/content/gnews/25/README.md)
+### [欧盟宣布在资产冻结和旅行禁令等方面制裁俄罗斯](/content/gnews/26/README.md)
  ` 温哥华圆成农场🇨🇦`
-
-### [在普京承认乌克兰分离地区后，华盛顿宣布制裁](/content/gnews/26/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [2022年2月23日，全球中共病毒疫情情况汇总](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`

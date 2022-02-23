@@ -2,32 +2,56 @@
 ---
 
 
-## 学会放下
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2054336/)
+## 有声|呼喊
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2054407/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+醒来，醒来
+我们声嘶力竭呼喊
+为何你
+沉默如石
+冷漠如铁
+听不到我们呼喊劝说
+病毒不是终极
+疫苗才是目的
+醒来、醒来
+认清他魔鬼面目
 
-2022-02-16直播摘录11：03：26
+乌云笼罩天地
+欲阻止阳光透出
+当天空有一丝缝隙
+伸出双手
+迎接日出
+努力，努力
+把缝隙裂成峡谷
+吞没黑暗沼泽
+光明普照大地
+魔鬼们送入地狱
+我们要欢呼胜利
+醒来，醒来
+莫做魔鬼陪葬悲泣
 
-你可以看到七哥的状态啊，我从来没有像现在感觉到我这么舒服过，全身心的轻松、愉悦。我特别，特别签署了个人破产之后，这个文件之后，我真的我觉得为什么要这么多钱？我要有钱干啥？你们看到了，千万别死在钱上，千万别死在床上，更不应该死在名和权力上，这些东西都不属于你的，早晚你都得放下。
+醒来，醒来
+听到我们呼喊
+青蒿素是救赎
+一切还来得及
+莫做魔鬼陪葬悲泣
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+文字版原文：[呼喊](https://gnews.org/zh-hans/2046836/)
 
-**关注我们**
+音频处理：Fei797
+发稿：Fei797
 
-Discord 账号
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
