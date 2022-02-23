@@ -2,26 +2,35 @@
 ---
 
 
-## 中日财经爆┃日本制裁俄罗斯禁止其政府债券的发行和流通
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2051651/)
+## 有声|港府效仿中共“清零”政策，预实施人人强制检测
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2051718/)
 
-撰稿：东京樱花团/盖特第一批注册
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2110.png)[图片来源](https://sustainablejapan.jp/2020/10/27/japan-2050-carbon-neutral/55203)
-日本政府23日宣布了对俄罗斯的第一轮制裁。
+配音：香草山巡管部 – 格格
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+据外媒综合报道，2月19日香港行政长官林郑月娥宣布，港府正在“非常认真地计划”对其750 万居民实施强制性中共病毒检测。
 
-制裁措施包括：禁止俄罗斯政府或其机构发行或担保的债券在日本发行和流通；暂停与顿涅茨克共和国（DPR）和卢甘斯克共和国（LPR）（顿巴斯东部的两个亲俄分离主义组织）相关人的签证，并冻结他们在日本的资产；禁止与这两个地区的贸易往来。
+虽然港府认为此举是为了应对本地疫情的快速传播，但却同时宣布了即将举行的特首选举，将从 3 月 27 日推迟到 5 月8 日。借口是为了使政府有时间集中精力应对不断上升的疫情传播。
 
-如果未来局势恶化，日本将与七国集团和国际社会其他成员合作，尽快采取进一步措施。
+外媒评论港府的这一决定，是根据中共隔离旅客、全面检测和实施全面封锁等“动态清零”政策而做出的。
 
-日本政府与七国集团保持一致，也在考虑限制半导体、人工智能（AI）和机器人等高科技产品出口俄罗斯。
+令人费解的是，在世界范围内中共病毒疫情已经普遍下滑的情况下，香港反而出现了中共病毒感染和确诊人数激增的现象。香港上周报告的医院病房容量达到了 90%，每日新增确诊病例首次超过 2000 例，上周四报告了 6116 例新增确诊病例。
 
-日本政府对制裁俄罗斯的能源产业，包括液化天然气（LNG）持谨慎态度。
+有分析人士指出，港府不但效仿中共的极端 “清零”政策，更借口疫情对选举做文章。实际上是利用疫情和人人强制检测的政策，把全香港变成一个人人被审查、人人被监控的大监狱。
 
-信息源：[米国と連携の日本もロシア制裁…国債発行・流通禁止](https://news.yahoo.co.jp/articles/d22a21963f97c5322e1be9df7e9471ce9ca983e0)
+文字版原文：[港府效仿中共“清零”政策，预实施人人强制检测](https://gnews.org/zh-hans/2049134/)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
