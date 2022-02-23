@@ -2,39 +2,37 @@
 ---
 
 
-## 专家称俄乌开战 中共不会在军事上予以支持
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2050652/)
+## 有声|中共国音乐界将发生金融阿比比事件
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2050661/)
 
-#### 【雅典娜快讯】紧贴时代脉搏
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月20日，郭文贵先生在大直播节目中爆料，中共国内的音乐界、娱乐界即将发生颠覆性的大事，而中共国的金融、房地产将会开启新一轮的恶化和崩塌。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-46.jpg)
+郭先生表示，中共实际第二号政治人物彭丽媛的精神状况非常不好，原因是演艺界、音乐界在冬奥会后将会发生颠覆性质的剧变。此前，为了营造出“国泰民安”的冬奥氛围，中共是严禁本国的房地产业在此期间出现破产现象，而被中共一贯用于洗黑钱的娱乐界、歌星、明星们，他们背后链接的一系列经济丑闻也不容许在这一时期被媒体曝光。而目前，中共的经济崩塌已到了纸包不住火的程度。
 
-整理：围剿维尼熊
-编辑：小熊
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/2-89.png)图片来源：雅典娜设计组
+同时，郭先生向世界预警，中共国将会迎来一场金融阿比比事件，届时，中共的房地产业会开启一个新的恶之轮回。而这次的金融阿比比事件，将从中共的音乐界开始。
 
 
-据路透社报道，专家们表示，如果俄罗斯入侵乌克兰，中共将在外交或经济上支持俄罗斯，但绝不会提供军事支持。
 
-美国总统拜登上周五表示，俄罗斯总统普京已决定在几天内入侵乌克兰，而俄罗斯否认这一说法。
+文字版原文：[中共国音乐界将发生金融阿比比事件](https://gnews.org/zh-hans/2045453/)
 
-中共外交部一再谴责美国“散布虚假信息”并制造紧张气氛，敦促其尊重并呼应俄罗斯在安全保障方面的要求。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-为了显示团结，普京出席了2月4日北京冬奥会开幕式，与习近平共同宣布深化战略伙伴关系。中共国媒体宣称，两国将肩并肩“维护世界正义”。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-如果俄罗斯入侵乌克兰，将考验中共经常声明的“不干涉外交政策原则”。熟悉北京当局思路的专家说，中共肯定不想在军事上介入。在国际社会如此两极分化的情况下，美国和西方有可能将俄罗斯及中共国同时孤立或制裁。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-北京也不希望为俄罗斯入侵乌克兰承担经济后果，特别是今年，习近平准备展开史无前例的第三个任期，他要把“稳定”放在首位。
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-参考链接：[专家称如果俄罗斯对乌克兰采取行动 中国会在外交上予以支持](https://cn.reuters.com/article/russia-ukraine-crisis-china-dip-0221-idCNKBS2KQ08U)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-*发布：tianzhihuan*
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

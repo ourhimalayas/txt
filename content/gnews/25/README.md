@@ -2,40 +2,31 @@
 ---
 
 
-## 拜登宣布对俄罗斯实施第一批制裁
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2050532/)
+## 谨防排华危险！战友自发组织学习枪牌
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2050615/)
 
-美国总统拜登：
+战友们好！如今海外排华的危险可能会随时爆发，为了战友们的自身安全，蓝莲花农场有几位战友还有多伦多本地的战友自发组织想一起学习枪牌，这样就可以有拥枪的权力。由于现在政府的疫苗强制令暂时还没有解除，所以我们战友之间如果可以凑上十到十二人的话，我们可以自己申请一个私人班级。
 
-今天，在与我们的盟友和伙伴的密切协调下，我宣布对俄罗斯实施第一批制裁，让俄罗斯为昨天的行动付出代价。 随着俄罗斯的升级，我们将继续加强制裁。我们正在对俄罗斯两家大型金融机构——俄罗斯国家开发银行和他们的军事银行——实施全面的封锁性制裁。我们正在对俄罗斯主权债务实施全面制裁。 这意味着我们已经切断了俄罗斯政府在西方的融资。 它再也无法从西方筹集资金，也无法在我们的市场或欧洲市场交易其新的债务。从明天开始——并在未来持续的日子里——我们还将对俄罗斯精英和他们的家人实施制裁。 他们分享了克里姆林宫政策的腐败收益，也应该分享痛苦。由于俄罗斯的行动，我们已经与德国合作，以确保北溪2号项目不会继续推进。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/bd.png)
+对自发组织学习枪牌有兴趣的战友，请私信蓝莲花农场：**小小酥（文凯）#2437**
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/20149113721372_副本.jpg)图片来源：travel.yorkbbs.ca
 
-> Today, in close coordination with our Allies and partners, I am announcing the first tranche of sanctions to impose costs on Russia in response to yesterday’s actions. 
->  
-> We will continue to escalate sanctions as Russia escalates.
-> — President Biden (@POTUS) [February 22, 2022](https://twitter.com/POTUS/status/1496218939847847951?ref_src=twsrc%5Etfw)
+**自发组织学习枪牌的事项如下：**
 
+**1，拥枪后可以对自己和家人起到一个保护作用。
+2，射击也是一项很好的运动，可以锻炼人的反应能力，平衡能力，耐力等等。
+3，也许以后农场可以组织线下射击活动。
+4，如果有多伦多本地战友，但非本农场战友也欢迎报名。
+5，特此声明，本次学习枪牌的活动非农场活动。**
 
+现在还差大概4位战友，如果有兴趣的战友请联系！谨防排华，用枪自卫！
 
-比尔·格茨： 中共国官方媒体对冲进乌克兰的俄罗斯坦克保持沉默。北京间接支持普京，外交部发言人称莫斯科对北约有“正当”担忧，尤其是没有谴责俄罗斯将两块地区宣布为独立国家。 【附华盛顿邮报文章：中共国说：莫斯科对北约有“正当”的安全担忧】
+撰稿/发布：一叶知秋
 
-
-
-> China state media silent on Russian tanks rolling into Ukraine. Beijing indirectly backs Putin with Foreign Ministry spokesman saying Moscow has “legitimate” concerns on NATO and, notably, fails to condemn Russia declaring 2 enclaves independent states [https://t.co/mCoz9dUv30](https://t.co/mCoz9dUv30)
-> — Bill Gertz (@BillGertz) [February 22, 2022](https://twitter.com/BillGertz/status/1496245139299180546?ref_src=twsrc%5Etfw)
-
-
-
-前国务卿蓬佩奥： 弗拉基米尔·普京还是我们执政期间的那个他。 唯一改变的是美国的领导地位。
-
-
-
-> Vladimir Putin is the same person he was during our administration.
-> The only thing that has changed is American leadership.
-> — Mike Pompeo (@mikepompeo) [February 22, 2022](https://twitter.com/mikepompeo/status/1496202661196140549?ref_src=twsrc%5Etfw)
-
-
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

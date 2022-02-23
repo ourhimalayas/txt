@@ -2,23 +2,21 @@
 ---
 
 
-## 秘翻在线：【速报】日本首相宣布对俄罗斯实施三项制裁
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2050719/)
+## 雅典娜时报-第213期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2050732/)
 
-撰稿：待命（文暁）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/画像1-32.png)（图片源自本文链接）
-日文雅虎网站２月２３日消息：日本首相岸田文雄，针对俄罗斯总统弗拉基米尔-普京承认乌克兰东部的亲俄武装势力为独立国家，宣布对其进行制裁．
+#### 《雅典娜时报》汇聚全球新闻时事
 
-23日，岸田首相告诉记者，他将对俄罗斯实施三项制裁：
+#### 编辑：精灵蓝
+排版：小蚂蚁614
+![圖片](https://media.discordapp.net/attachments/825592691433668612/945872660276056064/155_4.png?width=812&amp;height=1209)![圖片](https://media.discordapp.net/attachments/825592691433668612/945872660691308634/155_7.png)
+*发布：陶子*
 
-- 暂停发放签证并冻结两个所谓共和国官员的资产
-- 禁止与两个所谓共和国的进出口
-- 禁止俄罗斯政府在日本发行和流通新的主权债券
-
-
-他还表示，如果未来局势恶化，他将与国际社会合作采取进一步行动。
-
-信息源：[【速報】首相　ロシアへの3つの制裁措置を発表（FNNプライムオンライン） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/a6602215d21aa74794f8b48e9ffe8d48373dc5a5)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

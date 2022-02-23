@@ -2,34 +2,40 @@
 ---
 
 
-## 俄议会上院批准俄总统在境外动用武装力量，克里米亚重演？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2050716/)
+## 有声|加国省长杰森肯尼挑战特鲁多紧急法案
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2050721/)
 
-撰稿：东京樱花团/知了知了
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月19日消息，针对联邦自由党实施”紧急情况法”以结束卡车司机对渥太华市中心的封锁，阿尔伯塔省省长杰森·肯尼在接受Postmedia独家采访时表示，联邦政府使用加拿大最强大的法律，在目前情况下是不合理的过度扩张，违反正当程序和”侵犯”省级管辖权。并表示对此深感厌恶，将在下周初，向渥太华联邦法院提出法律挑战，以结束总理特鲁多的任意和高压行动。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide10-3.jpeg)
+另外，联邦司法部长大卫·拉梅蒂此前在CTV上暗示，联邦调查局正在考虑冻结任何用信用卡向车队捐赠者账户。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/俄议会上院批准俄总统在境外动用武装力量，克里米亚重演？.png)
+肯尼认为，如果特鲁多派冻结其政治对手的财政得逞而逍遥法外，允许联邦政府利用《紧急情况法》来履行普通警察职能骚扰对手，超越并篡夺加拿大各省执法的属地管辖权，这将为未来树立一个危险的先例。
 
-据央视新闻，当地时间22日，俄罗斯联邦委员会（议会上院）主席马特维延科表示，俄联邦委员会已收到总统关于在境外动用俄罗斯军队的申请。
+肯尼代理律师将要求法官暂停使用该紧急法案。
 
-俄罗斯联邦委员会（议会上院）当地时间22日通过相关决议，准许俄罗斯总统在俄境外动用联邦武装力量。
 
-会议公开进行，获得一致通过。联邦委员会的决定自通过之日起开始生效。出动军队的数量、行动区域、任务和在俄罗斯境外停留的时间将由俄罗斯总统决定。
 
-据2014年3月1日，俄罗斯议会上院一致通过俄罗斯总统的请求，批准可在乌克兰境内动用俄军，“直到乌克兰政治局势恢复正常”。俄罗斯于2014年3月18日占领国际承认为乌克兰领土的克里米亚。俄罗斯政府占领后旋即建立克里米亚联邦管区并下设两个联邦主体——克里米亚共和国和塞瓦斯托波尔。并引爆了更为血腥惨烈的顿巴斯战争。
+文字版原文：[加国省长杰森肯尼挑战特鲁多紧急法案](https://gnews.org/zh-hans/2049068/)
 
-克里米亚重演？随后又会引发别的战争吗？
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-信息来源：
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[俄总统在境外动用武装力量获批准！大逆转！从跌10%到涨1.6%，俄央行出手，俄罗斯RTS股指翻红](https://www.sohu.com/a/524736523_115362)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-[安理会再次就乌克兰及其克里米亚危机举行闭门磋商](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20140301-%E5%AE%89%E7%90%86%E4%BC%9A%E5%86%8D%E6%AC%A1%E5%B0%B1%E4%B9%8C%E5%85%8B%E5%85%B0%E5%8F%8A%E5%85%B6%E5%85%8B%E9%87%8C%E7%B1%B3%E4%BA%9A%E5%8D%B1%E6%9C%BA%E4%B8%BE%E8%A1%8C%E9%97%AD%E9%97%A8%E7%A3%8B%E5%95%86)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[2014年克里米亚危机](https://zh.wikipedia.org/wiki/2014%E5%B9%B4%E5%85%8B%E9%87%8C%E7%B1%B3%E4%BA%9E%E5%8D%B1%E6%A9%9F)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

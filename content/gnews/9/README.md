@@ -2,29 +2,34 @@
 ---
 
 
-## 英国将制裁5家俄罗斯银行及3名寡头富豪
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2050758/)
+## 韩国最大银行将推出加密货币衍生产品和ETF
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2050773/)
 
-**撰稿：日本东京方舟农场  海星**
+翻译/编辑：小红帽
 
-2月22日，在俄罗斯承认乌克兰东部分离地区独立后，英国首相约翰逊宣布，英国政府将制裁俄罗斯银行及寡头富豪。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-344.jpg)（图片来源：法新社）
-据《自由时报》报导，英国首相约翰逊在国会上表示，英国政府将就俄罗斯承认乌克兰东部分离地区独立一事制裁其5家银行，包括俄罗斯银行（Bank Rossiya）、IS Bank、Joint Stock Company Genbank、Public Joint Stock Company Promsvyazbank和黑海贸易发展银行（Black Sea Bank for Development and Reconstruction），以及3名寡头富豪，包括普京的商业伙伴兼友人季姆琴科（Gennady Timchenko）、阿卡迪耶维奇（Igor Arkadievich）和罗腾伯格（Boris Romanovich Rotenberg）。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/3-65.png)图片来源：online-kbcambodia.com
 
-据悉，被制裁者在英国持有的所有财产将被冻结，并被禁止入境英国，同时不被允许与英国的企业或个人有任何商业往来。
 
-约翰逊强调说，这只是制裁的第一部分，如果普京有进一步行动，英国和盟国将对其实施更严厉的制裁措施。
+根据Blockworks2月22日报道，韩国最大银行的资产管理部门周一宣布成立一个委员会，以帮助研究和开发加密货币衍生产品和ETF。
 
-稍早前，俄罗斯总统普京承认了乌克兰东部地区顿涅茨克和卢甘斯克的“独立国家”地位，并派遣部队进驻。对此，美国多位议员表示，普京此举公然违反国际法，侵犯了乌克兰的主权与领土完整，应受到严厉制裁。
+KB国民银行（KB Kookmin）的资产管理部门表示，其新的数字资产管理筹备委员会将计划准备推出其加密货币产品。总部位于该部门的指数量化操作（Index Quant Operation）部。
 
-参考链接：
-1.[https://news.ltn.com.tw/news/world/breakingnews/3838104](https://news.ltn.com.tw/news/world/breakingnews/3838104)
-2.[https://finance.sina.com.cn/stock/usstock/c/2022-02-22/doc-imcwiwss2363586.shtm](https://finance.sina.com.cn/stock/usstock/c/2022-02-22/doc-imcwiwss2363586.shtm)
-3.[https://www.voachinese.com/a/us-congress-reax-russia-putin-ukraine-20220221/6453362.html](https://www.voachinese.com/a/us-congress-reax-russia-putin-ukraine-20220221/6453362.html)
+KB希望在“韩国放松管制”之后，“尽快”通过其加密货币产品进入这个快速发展的行业。银行正计划通过国内和海外数字资产市场研究，为抢先推出相关产品做准备。
 
-素材采编：海星
-编辑：老孙
-发布：爱放飞
+除了加密货币指数基金，KB资产管理公司（KB Asset Management）表示，它将从退休养老金和OCIO市场的传统资产关联转向使用海外加密货币的保本资产配置基金。
+
+按净利润计算，KB国民银行是韩国最大的银行。根据其最新财报，到2021年第四季度，其管理的资产总额达到457.3万亿韩元（3827亿美元）。
+
+新闻链接：[South Korea’s Top Bank To Launch Crypto ETFs](https://blockworks.co/south-koreas-top-bank-to-launch-crypto-etfs/)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
