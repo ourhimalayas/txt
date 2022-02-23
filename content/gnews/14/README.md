@@ -2,44 +2,48 @@
 ---
 
 
-## 比尔-马赫指责中共国可怕的人权记录，抨击美国人向中共低头
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2053825/)
+## 如何查看新冠疫苗批次有多坏？
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2054029/)
 
-评论：***从维吾尔人的种族灭绝，到彭帅，再到谷爱凌，充分体现出了中共国内人权不平等现象，阶级是70年中共统治下不可逾越的障碍。***
+**编译：逍遥小哥**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/33-2.jpg)
+数据显示一些新冠疫苗批次与过度死亡、残疾和不良反应有关。这种变化可能是由于 ：
 
-据《dailycaller.com》作者：DAVID HOOKSTEAD，2022年2月19日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3797.png)
-比尔-马赫周五晚敲打了中共国的人权记录，每个人都应该听听他的评论。
+1.批次数量的变化。某个批次分配的数量会比其他批次多或少
 
-目前，共产主义独裁国家的奥运会正在进行，许多拥有大平台的人选择保持沉默，而不是揭露中共的罪行。
+2.剂量的毒性成分的变化
 
-好吧，马赫醒了，在最新一集的“与比尔-马赫的实时对话”中，他选择了对中共、中共国压迫性的人权标准、向中共政权低头的美国人以及更多的东西采取抨击。
+这两个因素都可能起作用，最好保持谨慎。
 
-当谈到金牌得主谷爱凌，这位美国滑雪运动员决定为中共而不是为热爱自由的美国竞争时，马赫没有隐瞒，并告诉他的粉丝：“很酷，嗯？是吗？现在选择代表一个极权主义警察国家而不是美国，这很酷吗？”
+您可以使用如下网站来查找与您的特定批次代码相关的死亡、残疾和疾病的数量。死亡和残疾的绝对数量令人担忧。远远超过与同等规模的流感疫苗批次相关的不良事件。
 
-他进一步补充说，谷爱凌为中共国竞争而不是为美国竞争的可耻决定“成为中共国战胜西方的一个活生生的象征”。然后他用猛烈地对独裁国家进行了抨击，“因为它是一个基于‘你想不想消失几个月’的专制监视国家”。
+查看您的批次（批号）：
 
-这只是马赫作为左派理性声音的最新例子。无论你的立场如何，你都不能否认马赫是真实的，而且不惧怕对任何人下手。
+请根据您的疫苗厂家点击以下的链接。然后输入您的批次批号。您的疫苗批次产生的不良反应的数据会呈现 （数据来源[VAERS](https://vaers.hhs.gov/data.html) ，只供参考。数据不包含没被记录的案例。实际数量会更高。）
 
-他对中国的彭帅失踪、对维吾尔人的种族灭绝和可怕的待遇、对香港的压迫、中共拒绝承认台湾、中共在人权方面缺乏任何基本的体面等问题进行了抨击，他还抨击了中共因为美国有自己的问题而不坏的想法。
+[莫德纳COVID-19疫苗](https://howbad.info/moderna.html)
 
-太糟糕了，没有更多的人有他这样的胆量，因为那是一个关于如何揭露暴政的大师级课程。他甚至抨击了NBA与中共的可悲关系。
+https://howbad.info/moderna.html
 
-从视频开始到结束，他绝对是火力全开。
+[辉瑞COVID-19疫苗](https://howbad.info/pfizer.html)
 
-这是对马赫的最大支持。希望有更多人学会站出来反对中共。
+https://howbad.info/pfizer.html
 
-原文连接：[**https://dailycaller.com/2022/02/19/bill-maher-china-human-rights-record-video-eileen-gu/**](https://dailycaller.com/2022/02/19/bill-maher-china-human-rights-record-video-eileen-gu/)
+[杨森COVID-19疫苗](https://howbad.info/janssen.html)
 
-翻译：洛杉矶盘古农场- TrueSky
-校对：洛杉矶盘古农场 – 轰炸机
-评论：洛杉矶盘古农场 -轰炸机
-编辑：洛杉矶盘古农场 –柯镇恶
-发布：洛杉矶盘古农场 –恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+https://howbad.info/janssen.html
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[莫德纳COVID-19疫苗 （美国境外）](https://howbad.info/modernaforeigndeaths.html)
+
+https://howbad.info/modernaforeigndeaths.html
+
+[辉瑞COVID-19疫苗 （美国境外）](https://howbad.info/pfizerforeigndeaths.html)
+
+https://howbad.info/pfizerforeigndeaths.html
+
+[杨森COVID-19疫苗（美国境外）](https://howbad.info/janssenforeigndeaths.html)
+
+https://howbad.info/janssenforeigndeaths.html
 
  
 

@@ -2,54 +2,36 @@
 ---
 
 
-## 英国宣布周四起解除所有防疫限制
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2053586/)
+## 郭先生谈乌克兰危机及其鲜为人知的背景
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2053720/)
 
-作者：首尔天池农场 – 追着曙光跑，香草山教育部 Naughty(文行)
+作者：纽约香草山农场-文鹰, 日本方舟农场-Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在2月20日的大直播中，郭文贵先生再次谈到了目前广受关注的俄乌危机事件并深入剖析了习近平与普京之间的关系。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1-11.jpeg)
 
+郭先生指出，习近平和普京都有各自称霸的野心和计划，即习近平妄图夺取台湾并问鼎亚洲，而普京则试图通过占领乌克兰，随即控制欧洲。其中，二者自信的来由是，普京此前不费一兵一卒地夺取了克里米亚。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+郭先生还爆料称，习近平和普京早先曾在没有翻译人员在场的情况下，单独会面了两个多小时。会上，习近平怂恿普京攻打乌克兰，而自己则可以趁机拿下台湾。对此，习近平声称，中共和俄罗斯的出兵可以缓解各自国家内部的政治和经济压力，同时，他们还能借机向二人的国内政敌大开杀戒；倘若不然，中俄将面临北约东扩和台湾独立的境况，而习、普二人也将被各自的党内势力除掉。
 
+最后，郭先生透露道，俄乌战争早在三天前就已经开始，其后，台湾也很可能马上出现动静。然而，乌克兰和台湾只是习、普二人的第一步计划，趁机打压欧洲和美国才是他们的真正目的。但郭先生也补充道，如果美、欧能够充分地与普京合作，使其放弃对乌克兰的计划，那乌克兰和台湾将仍有一线希望。
 
+参考链接：[2022年2月20日 文贵大直播：中俄欲改国际秩序；乌克兰成较量战场；锁链女事件政治化；国共斗争间谍下场](https://gtv.org/video/id=62123b3508ba8a07b19fce62)
 
-英国首相约翰逊，当地时间21日公布「与中共病毒共存」计划，宣布周四起解除英格兰地区的剩余防疫措施，包括不再要求确诊者自我隔离，出入公共场所无需出示疫苗接种证明等等。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-另外，有关追踪确诊病人的密切接触者也将于周四起停止，届时，若密切接触者已完全接种疫苗，将不再需要连续七天进行检测，同时，自4月1日起，当局将不再向民众提供免费的病毒检测服务。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-13.jpg)
-约翰逊早前在国会表示，防疫限制对社会、经济以及民众的心理健康构成很大打击，鉴于中共病毒疫情不会在短时间内消失，继续实施限制是不正确，也是不必要的，因此，政府将鼓励民众自我约束，即使出现染疫症状，也要像对待流行性感冒一样冷静应对。
-
-在野工党领袖施纪贤批评约翰逊的做法是极度不负责任的，当地医学组织也指出，与病毒共存不等于无视病毒，取消免费病毒检测将令政府无从监察疫情动向，也难以实现民众自我约束，这样只会带来更多不利风险及社会焦虑。
-
-对此，郭文贵先生则有不同见解，在早前的直播中，郭先生认为，现在各国政府解除防疫限制的根本原因，无非是经济压力、政治压力以及即将爆发的疫苗灾难。
-
-视频链接：[2/18/2022 文贵直播: 欧美政府已经默认让奥米炕病毒集体感染民众，现在解除各种限制是因为经济和政治撑不住了；疫苗灾难造成的大规模死亡在5月份才会开始，请务必继续做好防疫措施](https://gettr.com/post/pvmifj8a40)
-
-参考链接：
-1. [俄承認烏東2共和國 美法英等要求安理會緊急會商](https://www.cna.com.tw/news/aopl/202202220023.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-2. [《早安世界》俄羅斯承認烏克蘭東部2共和國獨立 軍隊進駐](https://www.cna.com.tw/news/ahel/202202225001.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share%E3%80%81https://www.reuters.com/world/uk/uks-johnson-set-scrap-covid-restrictions-2022-02-20/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-
-总编/编辑：天滅中共
-校对/发稿：为真不破20
+总编：Irene木木
+编辑：飞虹
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
  

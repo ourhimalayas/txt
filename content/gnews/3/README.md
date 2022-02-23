@@ -2,20 +2,23 @@
 ---
 
 
-## 有声|NBC北京冬奥会转播收视率堪称“灾难”
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2054008/)
+## 有声|中共打脸“奥运不谈政治”谎言 遭国际谴责
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2054189/)
 
-配音：香草山巡管部– 文凯琳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月21日，据外媒报道，拥有美国地区独家转播权的全国广播公司NBC，在北京冬奥会超低迷的收视率数据上，沦为一场彻底的 “灾难”。
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+2月18日，国外媒体报导，在2月17日举行的北京冬奥新闻发布会上，中共北京冬奥发言人严家蓉一面高喊“奥运只谈运动，不谈政治”，一面大谈台湾主权问题，宣称“世界只有一个中国”“台湾是中国不可分割的一部分”等言论，同时称饱受外界质疑的新疆问题很大程度建立在谎言之上。
 
-NBC在2014年投资了77.5亿美元，获得了奥运会到2032年为止的独家美国媒体转播权。截至上周二，平均有1220万人在黄金时段观看了NBC、有线电视或其流媒体服务的奥运会，比2018年韩国首尔冬奥会下降了42%。NBC有1000万观众，比2018年下降了47%，在关键的25-54岁人群中，比首尔奥运会时下降了57%。这甚至还包括了NBC在2月13日播出奥运会后直接播出超级碗的收视率，而获得的一定提升。
+这些言论不仅引发了国际热议和谴责，也让国际奥委会主席托马斯‧巴赫罕见发言，批评了中共的这一犯规行为，一反先前拒绝接受国际社会因中共恶劣人权记录建议抵制北京冬奥委的态度。
 
-文字版原文：[NBC北京冬奥会转播收视率堪称“灾难”](https://gnews.org/zh-hans/2051013/)
+台湾外交部严厉谴责中方发表的贬损台湾主权的不实言论，并表达了严正抗议，美国一些媒体也提出警告，认为严家蓉的言论似乎违反了《奥林匹克宪章》第50条，该条款禁止在奥运会上进行任何形式的“示威或政治、宗教或种族宣传”。
 
-音频处理/发稿：Daxia
+文字版原文：[中共打脸“奥运不谈政治”谎言 遭国际谴责](https://gnews.org/zh-hans/2048728/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+音频处理：Fei797
+发稿：Fei797
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -23,7 +26,7 @@ NBC在2014年投资了77.5亿美元，获得了奥运会到2032年为止的独�
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

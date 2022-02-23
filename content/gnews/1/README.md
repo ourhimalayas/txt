@@ -2,43 +2,77 @@
 ---
 
 
-## 国家媒体：俄罗斯和中共国就1亿吨煤炭供应达成新协议
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2054037/)
+## 2022年2月23日文贵先生直播摘要及音频—银河系农场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2054213/)
 
-据《福克斯新闻》作者：Peter Aitken，2022年2月20日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2141.png)图片来源：Li Xueren/Xinhua via Getty Images | Mikhail Svetlov/Getty Images
-俄罗斯和中共国已经就一项新的协议达成一致，俄罗斯将在“未来几年”向其南方邻国供应1亿吨煤炭。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/snapshot-8.jpg)
+盖特连接：[2022年2月23日 文贵大直播：普京群狼战术夺乌克兰；解封 英 澳 法 日 集体免疫；锁链女引人权安全恐慌；七哥何以掌握世界大事](https://gettr.com/streaming/pwbjub06c5)
 
-他说：“现在，与中华人民共和国的政府间协议正在制定中，数字是1亿吨，在未来几年，消费者应该收到他们所需要的煤炭。”
+G-TV连接：[2022年2月23日 文贵大直播：普京群狼战术夺乌克兰；解封 英 澳 法 日 集体免疫；锁链女引人权安全恐慌；七哥何以掌握世界大事；继2月18日大直播后 世界发生了哪些改变；喜币、喜贷款、喜抵押](https://gtv.org/video/id=62162fe908ba8a07b1a1ea8a)
 
-政府拥有的俄罗斯新闻机构塔斯社报道了这项交易，并补充说，自2010年以来，俄罗斯在亚太市场的煤炭份额增加了8%，目前俄罗斯控制了约12%的市场。
+1、带“维”字都是共产党的情报机构（多维）；
 
-莫查尔科夫补充说：“在2030年之前，我们有良好的前景，俄罗斯应该在这个不断增长的市场中占有自己的份额。”
+2、带“神”字都是共产党海外骗钱的机构（神华）；
 
-俄罗斯在其与乌克兰的西南边境集结了近15万军队，并在周末进行了军事演习。俄罗斯继续声称它无意入侵邻国乌克兰，但美国总统拜登周五表示，他相信俄罗斯总统弗拉基米尔-普京已经决定入侵乌克兰。
+3、48%的输往欧洲德国的气都是从云溪1号2号走。虽然法律上说停止供气，但实际并没少输送；
 
-美国威胁，如果俄罗斯着手入侵乌克兰，将对其进行制裁——既针对国家本身，也针对个人，包括总统普京。
+4、普京要求欧洲和美国必须法律承诺北约不东扩，可以商量打不打乌克兰；
 
-川普政府时期负责人事和战备的前国防部副部长、传统基金会的访问学者罗伯特-威尔基(Robert L. Wilkie) 此前告诉福克斯新闻数字频道，如果普京授权在乌克兰采取任何军事行动，中共国将在减轻美国对俄罗斯的任何制裁方面发挥作用。
+5、西方签署了“北约不东扩”协议被普京一下子公开到外交部网站上；
 
-威尔基说：“很多关于经济制裁的说法其实是空中楼阁，因为中共国现在是俄罗斯的银行家，如果西方的制裁到来，习近平将支持普京。”
+6、俄罗斯会“帮助”我们消灭共产党，但是中国人要付出沉重的代价；
 
-威尔基将他的论点集中在北京增加从俄罗斯购买石油上，俄罗斯已经是中共国的第二大石油出口国，但能源市场似乎是中共国向莫斯科提供经济救济的最容易的途径。
+7、路德（王腚肛）要用30万建设自己的音乐间，要股份，要地位；
 
-威尔基解释说：“[中国]将开始从俄罗斯购买更多的能源，如果我们在让俄罗斯获得西方资本的SWIFT贷款系统上采取行动，中共国就会以此来填补空白。”
+8、火鸡龚 在法制基金要求拍电影一集30万美元；
 
-他说：“即使德国人在北溪2号项目上做了改变，中共国也会捡起这个便宜——他们对能源的需求甚至比欧洲还要多。这就是我看到的结果。”
+9、疫苗灾难：45亿人打了疫苗，20亿人会受到疫苗伤害，5-10亿会直接面临死亡和伤残；
 
-原文连接：**[https://www.foxnews.com/world/russia-china-new-coal-deal-state-media](https://www.foxnews.com/world/russia-china-new-coal-deal-state-media)**
+10、造病毒的，造疫苗的，造解药都是一拨人（共产党）；
 
-翻译：洛杉矶盘古农场 – TrueSky
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+11、OMICRON 带来最大危害是病毒会进入大脑，会诱发窒息，血栓，失忆；
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+12、中共国的绑架、拐卖妇女案件在全国范围都是常态；
+
+13、彭副主席彭丽媛在山东彭泽的亲表哥也是买的”拐卖女”；
+
+14、文贵先生准备的歌曲“锁链梦”，这就是中国人的锁链梦；
+
+15、共产党最近爆赵本山丑闻，为了掩盖锁链女的事件；
+
+16、在俄罗斯和其他国家有多个战友场外交易买卖喜币，价格分别80、100、210美元一个；
+
+17、爆料革命今年会爆出，中共国无数个锁链女事件；会有很多个授权撤离；甜蜜蜜运动，不止2环内，会响遍世界；
+
+18、新中国联邦的所有利好，都在今年年底，钱！哗哗地流；
+
+19、喜贷款：喜币10%抵押率；
+
+**注：大直播音频正在制作和上传中，敬请关注****——**
+
+**（大直播音频位置）**
+
+编辑整理：文俊；
+
+发布：黎明之前；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

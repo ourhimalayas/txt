@@ -15,146 +15,146 @@
 
 ---
 
-### [国家媒体：俄罗斯和中共国就1亿吨煤炭供应达成新协议](/content/gnews/1/README.md)
+### [2022年2月23日文贵先生直播摘要及音频—银河系农场](/content/gnews/1/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [日本岸田首相宣布制裁俄罗斯](/content/gnews/2/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [有声|中共打脸“奥运不谈政治”谎言 遭国际谴责](/content/gnews/3/README.md)
+ ` MOSREC`
+
+### [欧盟宣布在资产冻结和旅行禁令等方面制裁俄罗斯](/content/gnews/4/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [在普京承认乌克兰分离地区后，华盛顿宣布制裁](/content/gnews/5/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2022.2.23大直播 爆料革命用真相唤醒世界 郭文贵先生呼唤国人醒来](/content/gnews/2/README.md)
- ` 秘密翻译组-原创组`
+### [2022年2月23日，全球中共病毒疫情情况汇总](/content/gnews/6/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|NBC北京冬奥会转播收视率堪称“灾难”](/content/gnews/3/README.md)
+### [有声|中共国95后设计师猝死 每日工作超12小时](/content/gnews/7/README.md)
  ` MOSREC`
 
-### [文贵大直播 2/24 世界巨变已开始 美俄中欧鹿死谁手](/content/gnews/4/README.md)
- ` 秘密翻译组-原创组`
+### [美国及世界疫情简报（02-23-2022）](/content/gnews/8/README.md)
+ ` 波士顿五月花农场`
 
-### [有声|香港大学研究表明 男性确诊中共病毒可致睪丸受损](/content/gnews/5/README.md)
+### [有声|英首相警告乌克兰或将危及台湾](/content/gnews/9/README.md)
  ` MOSREC`
 
-### [北京奥运会收视率惨不忍睹](/content/gnews/6/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [沙特阿拉伯外交部长表示，计划与伊朗进行新一轮会谈](/content/gnews/7/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [20220220文贵大直播：普京和习近平密谈了什么](/content/gnews/8/README.md)
- ` Tokyo Sakura Video Group`
-
-### [有声|昨天的香港，今天的加拿大](/content/gnews/9/README.md)
- ` MOSREC`
-
-### [有声|习普政治联盟的历史由来](/content/gnews/10/README.md)
- ` MOSREC`
-
-### [有声|美国前国务卿蓬佩奥排定三月初将访问台湾](/content/gnews/11/README.md)
- ` MOSREC`
-
-### [继美英加欧盟之后，日本宣布制裁俄罗斯](/content/gnews/12/README.md)
- ` 首尔天池农场`
-
-### [参加北京冬奥会的外国运动员都受到威胁而保持沉默](/content/gnews/13/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [比尔-马赫指责中共国可怕的人权记录，抨击美国人向中共低头](/content/gnews/14/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [有声|法国外长表示已做好准备维护台海稳定](/content/gnews/15/README.md)
- ` MOSREC`
-
-### [中共的北京冬奥会是种族屠杀运动会（视频新闻）](/content/gnews/16/README.md)
- ` MOSvideo`
-
-### [新中国联邦的教育项目将由郭先生直接负责](/content/gnews/17/README.md)
- ` NFSC News`
-
-### [视频|NBC北京冬奥会转播收视率堪称“灾难”](/content/gnews/18/README.md)
- ` MOSvideo`
-
-### [有声|台湾近日急症突增 三日猝死超百人](/content/gnews/19/README.md)
- ` MOSREC`
-
-### [加当局威胁扣押卡车司机的“弃养”宠物](/content/gnews/20/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [习近平用金钱给予普京精神安慰](/content/gnews/21/README.md)
- ` NFSC News`
-
-### [视频|比尔·马赫抨击中共人权纪录](/content/gnews/22/README.md)
- ` MOSvideo`
-
-### [中共国还有多少张三，敢想吗](/content/gnews/23/README.md)
- ` XINYUAN`
-
-### [《环球时报》要求乌克兰支持中共对台行动](/content/gnews/24/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [郭先生谈乌克兰危机及其鲜为人知的背景](/content/gnews/25/README.md)
- ` NFSC News`
-
-### [疫苗灾难过后，三件大事将改变世界格局](/content/gnews/26/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [有声|雷洋之死暴露中共公检法黑幕](/content/gnews/27/README.md)
- ` MOSREC`
-
-### [美国的卡车司机也准备涌向华盛顿抗议](/content/gnews/28/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [2022/02/21 墙内世界](/content/gnews/29/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [英国宣布周四起解除所有防疫限制](/content/gnews/30/README.md)
- ` NFSC News`
-
-### [先锋和黑石 与中共病毒及疫苗强制关系密切](/content/gnews/31/README.md)
- ` NFSC News`
-
-### [外媒发现辉瑞与中共军方存在某种可疑的紧密合作关系](/content/gnews/32/README.md)
- ` NFSC News`
-
-### [2/23/2022 国际财经快讯：法国财长认为俄罗斯制裁对法国经济的影响有限；油价企稳，因俄乌供应担忧减弱](/content/gnews/33/README.md)
- ` 秘密翻译组金融团队`
-
-### [魔鬼契约：用少数人制造的资产泡沫“财富”来代替普遍的繁荣](/content/gnews/34/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [行为学临床试验治疗“不打新冠疫苗症状”](/content/gnews/35/README.md)
- ` Little c`
-
-### [秘翻在线：中共国面临粮食不安全 规模性返贫的困境](/content/gnews/36/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [日本报告94例BA.2毒株，占Omicron毒株的0.6%](/content/gnews/37/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [2022/02/23英喜时事速递](/content/gnews/38/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [DC每日热点0223](/content/gnews/39/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [普京出兵乌克兰东部引发世界经济动荡](/content/gnews/40/README.md)
- ` NFSC News`
-
-### [研究表明：中共病毒感染者将长期面临心血管疾病风险](/content/gnews/41/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [02/23/22 香港快讯 增8,671宗本地确诊再创新高 至今累计1,200医护染疫](/content/gnews/42/README.md)
- ` 英喜-粵語組`
-
-### [樱花数据分析┃日本医院统计：新生儿并发症骤增至4.9倍](/content/gnews/43/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [48位顶尖科学家呼吁停止对人类潜在灭绝威胁的功能增强研究](/content/gnews/44/README.md)
+### [医生和医学科学家国际联盟呼吁美国结束COVID国家紧急状态](/content/gnews/10/README.md)
  ` 温哥华扬帆农场`
 
-### [紧随西方盟国，莫里森总理宣布制裁俄罗斯措施](/content/gnews/45/README.md)
- ` 走进澳洲`
+### [国家媒体：俄罗斯和中共国就1亿吨煤炭供应达成新协议](/content/gnews/11/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [乌克兰宣布进入紧急状态 开始征召预备役](/content/gnews/46/README.md)
+### [数据显示接种Covid-19疫苗的妇女死产和流产的风险显著增高](/content/gnews/12/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [文贵大直播要点（2022年2月23日）](/content/gnews/13/README.md)
+ ` 波士顿五月花农场`
+
+### [如何查看新冠疫苗批次有多坏？](/content/gnews/14/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [有声|日媒解析中共冬奥会所暴露的人权问题](/content/gnews/15/README.md)
+ ` MOSREC`
+
+### [2022.2.23大直播 爆料革命用真相唤醒世界 郭文贵先生呼唤国人醒来](/content/gnews/16/README.md)
+ ` 秘密翻译组-原创组`
+
+### [有声|NBC北京冬奥会转播收视率堪称“灾难”](/content/gnews/17/README.md)
+ ` MOSREC`
+
+### [文贵大直播 2/24 世界巨变已开始 美俄中欧鹿死谁手](/content/gnews/18/README.md)
+ ` 秘密翻译组-原创组`
+
+### [有声|香港大学研究表明 男性确诊中共病毒可致睪丸受损](/content/gnews/19/README.md)
+ ` MOSREC`
+
+### [北京奥运会收视率惨不忍睹](/content/gnews/20/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [沙特阿拉伯外交部长表示，计划与伊朗进行新一轮会谈](/content/gnews/21/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [20220220文贵大直播：普京和习近平密谈了什么](/content/gnews/22/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [有声|昨天的香港，今天的加拿大](/content/gnews/23/README.md)
+ ` MOSREC`
+
+### [有声|美国前国务卿蓬佩奥排定三月初将访问台湾](/content/gnews/24/README.md)
+ ` MOSREC`
+
+### [继美英加欧盟之后，日本宣布制裁俄罗斯](/content/gnews/25/README.md)
+ ` 首尔天池农场`
+
+### [参加北京冬奥会的外国运动员都受到威胁而保持沉默](/content/gnews/26/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [新中国联邦的教育项目将由郭先生直接负责](/content/gnews/27/README.md)
+ ` NFSC News`
+
+### [习近平用金钱给予普京精神安慰](/content/gnews/28/README.md)
+ ` NFSC News`
+
+### [中共国还有多少张三，敢想吗](/content/gnews/29/README.md)
+ ` XINYUAN`
+
+### [郭先生谈乌克兰危机及其鲜为人知的背景](/content/gnews/30/README.md)
+ ` NFSC News`
+
+### [疫苗灾难过后，三件大事将改变世界格局](/content/gnews/31/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [有声|雷洋之死暴露中共公检法黑幕](/content/gnews/32/README.md)
+ ` MOSREC`
+
+### [美国的卡车司机也准备涌向华盛顿抗议](/content/gnews/33/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [2022/02/21 墙内世界](/content/gnews/34/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [英国宣布周四起解除所有防疫限制](/content/gnews/35/README.md)
+ ` NFSC News`
+
+### [先锋和黑石 与中共病毒及疫苗强制关系密切](/content/gnews/36/README.md)
+ ` NFSC News`
+
+### [外媒发现辉瑞与中共军方存在某种可疑的紧密合作关系](/content/gnews/37/README.md)
+ ` NFSC News`
+
+### [2/23/2022 国际财经快讯：法国财长认为俄罗斯制裁对法国经济的影响有限；油价企稳，因俄乌供应担忧减弱](/content/gnews/38/README.md)
+ ` 秘密翻译组金融团队`
+
+### [魔鬼契约：用少数人制造的资产泡沫“财富”来代替普遍的繁荣](/content/gnews/39/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [秘翻在线：中共国面临粮食不安全 规模性返贫的困境](/content/gnews/40/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [2022/02/23英喜时事速递](/content/gnews/41/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [DC每日热点0223](/content/gnews/42/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [普京出兵乌克兰东部引发世界经济动荡](/content/gnews/43/README.md)
+ ` NFSC News`
+
+### [研究表明：中共病毒感染者将长期面临心血管疾病风险](/content/gnews/44/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [《历史的今天》2022.02.23](/content/gnews/47/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [02/23/22 香港快讯 增8,671宗本地确诊再创新高 至今累计1,200医护染疫](/content/gnews/45/README.md)
+ ` 英喜-粵語組`
+
+### [48位顶尖科学家呼吁停止对人类潜在灭绝威胁的功能增强研究](/content/gnews/46/README.md)
+ ` 温哥华扬帆农场`
+
+### [紧随西方盟国，莫里森总理宣布制裁俄罗斯措施](/content/gnews/47/README.md)
+ ` 走进澳洲`
 
 ### [新西兰财经G乐部2022年2月23日:财经新闻整理](/content/gnews/48/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`

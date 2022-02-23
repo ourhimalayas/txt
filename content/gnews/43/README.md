@@ -2,38 +2,36 @@
 ---
 
 
-## 樱花数据分析┃日本医院统计：新生儿并发症骤增至4.9倍
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2053134/)
+## 普京出兵乌克兰东部引发世界经济动荡
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2053271/)
 
-撰稿：东京樱花团/TV
+作者：纽约香草山农场 – Noemi
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月21日，据相关媒体消息显示，俄罗斯总统普京于此前一天承认了乌克兰东部的两个分离地区已经独立，随后，其立即下令俄罗斯国防部向它们派遣了所谓的“维和”部队。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/10-18.jpg)
+有目击者表示，俄罗斯的坦克等军事装备目前已经穿过了分离主义控制的城市——顿涅茨克。同时，普京的这些举动加剧了西方对于乌俄之间发生重大战争的担心。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/樱花数据分析┃日本医院统计：新生儿并发症骤增至4.9倍.jpg)
+另一方面，随着乌克兰军事危机的升级，世界经济也正在经历着巨大的动荡。据悉，全球的石油价格眼下已经跃升至七年以来的最高水平；而日元等避险货币则出现大幅反弹；此外，美、欧地区的股票和期货近期持续暴跌。数据表明，在普京发表讲话时，卢布的跌幅一度超过17%，滑落至每美元可兑换80卢布有余。
 
-日本岩手医科大学附属医院，在其2022年1月的宣传手册中，公开了妇产科的业绩。[1]
+此前 ，郭文贵先生曾在盖特中评论称，无论俄乌局势怎样变化，俄、美、欧三方最终会达成合作协议。但在这场军事危机的背后，经济损失最惨重的一定会是中共国和全球所有的普通民众。
 
-在其第一版的宣传手册中，2021年新生儿并发症发病率达到了54.7%，为2013～2020年平均的31.8倍。这令人吃惊的结果引起了广泛的注意。
+参考链接：
+1) .[Putin orders troops to Ukraine after recognizing breakaway regions](https://www.reuters.com/markets/europe/kremlin-says-no-concrete-plans-summit-with-biden-over-ukraine-2022-02-21/)
+2) . [2/21/2022 文贵盖特：中共体制内官员也知中共大势已去；俄美总统要会面，普京是否会弃习投美欧？](https://www.gettr.com/post/pw07zs2799)
 
-但该医院随后表明数字有误，更新数字后，2021新生儿并发症发病率达到8.5%，为2013～2020年平均的4.9倍。4.9倍也仍是一个令人吃惊的结果。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/樱花数据分析┃日本医院统计：新生儿并发症骤增至4.9倍2.png)
+总编: Irene木木
+编辑: 飞虹
+校正/发稿：Fei797
 
-制图：chuansang
-
-去年11月，加拿大医生Nagase曾经爆料，在滑铁卢一家医院，半年产出了86名死胎，而历年的数字应为每年5、6名。即为历年的30倍左右。其中所有母亲均为疫苗接种者。据报道同时期，温哥华一家医院，一天内出现13名死胎。[2]
-
-天各一边的日本和加拿大，同时出现呈数倍的新生儿健康事件，不太可能是偶然。与疫苗接种有巨大的相关性。
-
-数据来源：
-
-- [岩手医科大学附属医院宣传手册](/www.hosp.iwate-med.ac.jp/wp/wp-content/uploads/2020/11/202201-3.pdf)
-- [Nagase医生爆料](/rairfoundation.com/doctor-sounds-alarm-stillbirths-explode-in-canada-video/)
-
-
-（注：本文为《樱花数据分析》第十五期）
-
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
