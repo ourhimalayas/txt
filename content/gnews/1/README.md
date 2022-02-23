@@ -2,24 +2,28 @@
 ---
 
 
-## 英国宣布对俄罗斯实施经济制裁 冻结五家银行和三个人的资产
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2050153/)
+## 今日盖特大V推荐 — 詹姆斯·奥基夫（James O&#8217;Keefe）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2050178/)
 
-撰稿：东京樱花团/盖特第一批注册
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-238.png)[图片链接](https://www.tokyo-np.co.jp/article_photo/list?article_id=161686&amp;pid=598918)
-伦敦：在俄罗斯承认乌克兰东部亲俄控制地区的独立后，英国首相约翰逊22日在下议院宣布对五家俄罗斯银行和三名个人实施经济制裁，包括资产冻结。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/99aqp47-80ct9-4.jpg)
+**盖特链接：[https://gettr.com/user/JamesOKeefeIII](https://gettr.com/user/JamesOKeefeIII)**
 
-约翰逊遣责俄罗斯“侵犯了乌克兰的主权并违反了国际法”，称这是一个“邪恶的预兆”。
+**詹姆斯·奥基夫自述：**
 
-他相信普京决心对乌克兰发动全面入侵，并强调他将继续支持乌克兰。
+卧底记者，真相工程和真相工程行动。 内幕人吗？ 电邮[\[email protected\]](/cdn-cgi/l/email-protection) 或通过 914-653-3110向我们发送加密信息
+![](https://assets.gnews.org/wp-content/uploads/2022/02/mkl.jpg)**图片来源：网络**
+**詹姆斯·奥基夫简介：**
 
-信息源：
+詹姆斯·爱德华·奥基夫三世（James Edward O’Keefe III，1984 年 6 月 28 日出生）是一位勇敢寻求真相的记者，“真相工程”（Project Veritas）的创始人，他于2011年创立了“真相工程”，通过暗访秘密记录的音频和视频，揭露政商丑闻，遭到邪恶势力和主流媒体的攻击，以至受到生命危险，不得不公开宣布：“我没有自杀倾向!”
 
-[英、対ロ経済制裁を発表　5銀行、3個人の資産凍結](https://news.yahoo.co.jp/articles/319a5559b7a1872f75b7939c680064f6df986398)
+编撰：洛杉矶盘古农场 —郭友(文苏)
+校审：洛杉矶盘古农场 — 心照
+发布：洛杉矶盘古农场 —彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

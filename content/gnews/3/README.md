@@ -2,82 +2,40 @@
 ---
 
 
-## 全球疫情更新（两则澳洲新闻，嗅出恐怖气息 ）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2050139/)
+## 数字货币交易进入美联储监管日程
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2050148/)
 
-**整理/编辑：枳实**
+翻译：Lovemiles
+编辑：守望黎明
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-1916.png)图片：雅典娜农场设计组 精灵蓝
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/18-3.png)图片来源：RT Intenational&雅典娜设计组
 
 
-雅典娜疫情更新（2022年 2月21日）
+美联储已批准一项经过修订规定，禁止美联储的高级官员进行股票、债券和加密货币的交易。该禁令将于2月25日正式公布。
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+根据该规定，美联储高级官员将不得购买、拥有或出售包括股票、债券、机构证券、衍生品、外币、商品期货、行业基金和加密货币在内的各类资产。
 
-**一，全球疫情基本数据**
+这些规定最初是在去年10月宣布的，但当时不包括加密货币。根据联邦公开市场委员会（FOMC）的说法，大部分限制措施将于今年5月1日生效。
 
-感染总数：424,157,929（日新增1,795,773人，14天增幅-38%）
+该禁令涵盖联邦公开市场委员会成员、地区银行行长和其他一些官员，包括顾问人员、债券服务经理和出席董事会会议的美联储雇员。它们还扩展到官员的配偶和子女。虽然这些规定目前仅适用于美联储的高级职员，但央行表示，预计它们最终将扩大到所有员工。公告称：“美联储预计，在进一步审查和分析完成后，会有更多工作人员受到这些规则的全部或部分约束。”
 
-死亡总数：5,885,445（日新增10,127人，14天增幅 -7%）
+这项禁令是在去年出现争议之后制定的。当时有报道称，就在美联储推出在新冠危机期间保持经济稳定的措施之前，有几名官员进行了个人股票和股票基金的交易。
 
-**二，全球“疫苗”毒针统计数据**
+因此，该法规的制定“旨在通过避免利益冲突，维护公众对美联储公正性和完整性的信心。”
 
-“疫苗”毒针注射总数：106亿
+根据该禁令，目前持有市场头寸的官员将有一年的时间来处置掉这些头寸。此外，新规则所涉及的官员在进行任何资产购买之前必须提前45天发出通知，并持有这些头寸不得少于一年时间。
 
-完全“接种”：43.2亿人
+另外，有报道称，美国国会也一直在准备采取一项措施，禁止其成员持有股票，但尚未公布官方规定。
 
-完全“接种”百分比：55.4%
+原文链接： [Federal Reserve bans crypto trading for top staff](https://www.rt.com/business/549975-us-fed-officials-crypto-banned/)
 
-**三，澳洲疫情和“疫苗”数据**
+发布：tianzhihuan
 
-感染总数：3,049,554（今日新增17,736人）
-
-死亡总数：3,049,554人（今日新增 16人）
-
-每万人感染人数：1182.2675人
-
-“疫苗”毒针注射总数：53,297,217 （今日新增41,619 针）
-
-完全“接种”：19,432,658人
-
-第二针“接种”百分比：79.4%
-
-16岁以上人口接种至少一剂疫苗的比例：&gt;95%
-
-16岁以上人口接种至少两剂疫苗的比例：94.2%
-
-加强针总数：10,821,136（日新增：34,419针） 16岁以上加强针接种率：53.1%
-
-5-11岁儿童 接种率 49.2%  接种数量  1,120,855
-
-**四，两则澳洲新闻，嗅出恐怖气息**
-
-今天两则澳洲“主流”媒体的消息合起来看相当耐人寻味。
-
-一则是澳大利亚广播公司的消息，标题是[《在防疫封锁之下，水痘发病率继续保持高位》](https://www.abc.net.au/news/2022-02-22/varicella-defies-covid-restrictions/100850390)。文章中引用了历年澳大利亚昆士兰州的疫苗可预防的传染病病例数字（如下图，从左到右依次为流感，麻疹，腮腺炎，百日咳，轮状病毒，水痘/带状疱疹病毒）。图中可见，所有其它疾病在社会防疫封锁的2020年和2021年的病例数都大幅下降，唯独水痘/带状疱疹病毒病例数反而增加。文章解释其原因是水痘/带状疱疹病毒的传播力特别强，R0值可达到3-13，比奥米克戎毒株的R0值还要高。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/17-6.png)昆士兰州的疫苗可预防的传染病病例数历年比较（来源：昆士兰卫生局）
-这篇文章的本来是借题发挥，呼吁人们继续补种水痘带状疱疹疫苗。但这个图表本身就暴露了中共病毒根本就无法用疫苗预防，所以都没有被列入这个疫苗“可预防”疾病的图表中。
-
-其实，水痘/带状疱疹病毒的发病率在封锁期间增加，并不是因为传染性强，而是因为它会潜伏，它的发病与人体免疫力密切相关。因为这种病毒感染经过急性期痊愈后病毒会潜伏在神经根，当人体的免疫力下降时，就会复发，表现为带状疱疹。这就是为什么带状疱疹会在年老或抵抗力下降时发作，也就是为什么带状疱疹是一个常见的疫苗副作用，因为疫苗会削弱一部分人群的免疫监视功能。而中共病毒“疫苗”与以往的任何疫苗不同，它们不仅不能预防疾病，但却能更加有效和持久的伤害人群的免疫力。这篇文章提出带状疱疹的问题，实际上很可能是统计数字看到了带状疱疹病例的增加，为了掩盖疫苗的副作用，指望通过让人多注射水痘疫苗来解决问题。殊不知“疫苗”毒针对免疫力的伤害如果没有有效治疗，只会随着时间的流逝，愈演愈烈。免疫力损伤所诱发的各种感染，不仅仅是水痘，其他各种传染病也将激增。
-
-这就引出了另一则新闻，澳洲宣布对接种2针疫苗毒针者完全开放，这就意味着，世界各地的疫苗接种者将因为受损的免疫力，将全球各处角落中以往闻所未闻的病原体带入澳洲，在16岁以上疫苗毒针接种率超过94%，第三针接种率超过50%，近一半5-11岁儿童已经打了毒针的澳洲人口中肆意传播。
-
-数据来源：
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-[covidlive.com.au](https://covidlive.com.au/)
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
