@@ -2,24 +2,45 @@
 ---
 
 
-## COVID-19 最新情報｜英國31歲樂壇紅人突發心臟病去世 網民追究死亡真相
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2050870/)
+## 徐州铁链女之妖雾蔽日链莹心
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2050913/)
 
-**撰文｜疫情關注組 / 發佈時間｜23/02/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/英國31歲樂壇紅人突發心臟病去世-網民追究死亡真相.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：**[**https://gettr.com/post/pl6k0218bf**](https://gettr.com/post/pl6k0218bf)**)**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2088.png)图片来源：网络
+善众撑舟寻孱雏，魔起官雾蛊迷人。
+愚民手段嫌不够，铁挡连环闭锁村。
+勇女当头遭酷吏，时移势易渐全忘？
+同类之躯义共行，觅得曙光救莹心！
 
-英國樂壇紅人兼 YouTube 明星，今年31歲的賈馬爾·愛德華茲（Jamal Edwards）據報於上週日（20日）死於他位於倫敦西部的住所。
 
-起初，外界都沈浸在對死者的惋惜之中，直到賈馬爾的母親，女星布倫達·愛德華茲（Brenda Edwards）在向公眾證實兒子死訊時，無意中透露，賈馬爾的死亡是「突然疾病」引起的，而他從小到大的親密好友德韋恩（Dwayne）則更具體指明，所謂的「突發疾病」是「突發心臟病」。
 
-不僅如此，德韋恩還提到，就在離世的前一天晚上，賈馬爾還應邀去酒吧打碟，當時他的狀態相當好，而且相識多年，從未聽說他的心臟有問題。德韋恩向媒體表示：「賈馬爾是倫敦西部地區的傳奇人物，他的離世對我們所有人的打擊都很大，何況他正值壯年，為何會如此突然地走了，真是令人震驚。」
+![officeArt object](https://lh3.googleusercontent.com/jkYHhwLisvPy3AdlrEAShepdSyp-gB1QidL0CpzsIoDd7jePx_phcVb-s4NnHJt5IwJpOM_ePomqUoEPyfTc9R3bR1xaxH0xO35HfK1Kg_Uh-fR7xun-3nLCCjcOf3eFDVHTpDsq2QzWBHA2WcQ)
+图片来源：网络
 
-賈爾馬死於「突發心臟病」的消息立即引起全球網民的注意，更將「賈馬爾死因（Jamal Edwards cause of death）」迅速頂上推特熱搜.
 
-有人質疑，為什麼搜遍全網都找不到賈馬爾的疫苗接種情況，但若賈馬爾沒有接種疫苗，他根本不可以在死前一天的晚上能夠出席酒吧演奏。另外還有網民斥責當局和媒體聯手掩蓋死因是不顧公眾利益的表現，倘若疫苗真的有問題，更應該公開，讓還未發病的人儘早得到治療，避免悲劇重演。
 
-來源｜[MyLondon](https://www.mylondon.news/news/uk-world-news/jamal-edwards-died-sudden-heart-23175406)
+![officeArt object](https://lh5.googleusercontent.com/fkdVtg2oN8cb4EzmuhQlVTjdJ8QTJhaCCMUUaI2S6nmU-f8qEcBUpgZfIX9hNFvujvzawEqGRjAEFKbKDy_-8jo2gvWxhvuVnVsQde6izPjaAWwsPIh9kScqXLnKFFMNFaLbPHtFYXaZ8tjKdqU)
+图片来源：网络
+
+
+
+如果你不想看到铁链女事件这样的人间惨剧再发生，请你发出你正义的声音，每天花几分钟的时间，不怕重复地为这些被拐卖的中国妇女献出一点点身为人类同类的爱心。
+
+* * *
+
+【文章观点仅代表作者个人，与Gnews平台无关】
+
+新闻链接：
+[\[1\]：女义士遭警方虐待](https://www.aboluowang.com/2022/0221/1711389.html)
+[\[2\]：政府官方在董集村建立铁围墙封村](https://www.rfi.fr/cn/%25E4%25B8%25AD%25E5%259B%25BD/20220221-%25E5%25BE%2590%25E5%25B7%259E8%25E5%25AD%25A9%25E6%25A1%2588%25E6%259D%2591%25E5%25AD%2590%25E8%25A2%25AB%25E9%2593%2581%25E7%259A%25AE%25E5%259B%25B4%25E8%25B5%25B7%25E6%259D%25A5%25E4%25BA%2586)
+[\[3\]：铁链女事件近况](https://www.ntdtv.com/b5/2022/02/20/a103352934.html)
+
+作者：洛杉矶盘古农场 — Bc.S
+编审：洛杉矶盘古农场 — 心照
+发布：洛杉矶盘古农场 — Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

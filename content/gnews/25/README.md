@@ -2,31 +2,32 @@
 ---
 
 
-## 谨防排华危险！战友自发组织学习枪牌
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2050615/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年2月22日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2050664/)
 
-战友们好！如今海外排华的危险可能会随时爆发，为了战友们的自身安全，蓝莲花农场有几位战友还有多伦多本地的战友自发组织想一起学习枪牌，这样就可以有拥枪的权力。由于现在政府的疫苗强制令暂时还没有解除，所以我们战友之间如果可以凑上十到十二人的话，我们可以自己申请一个私人班级。
+作者：香草山翻译部
 
-对自发组织学习枪牌有兴趣的战友，请私信蓝莲花农场：**小小酥（文凯）#2437**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO-3.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/20149113721372_副本.jpg)图片来源：travel.yorkbbs.ca
 
-**自发组织学习枪牌的事项如下：**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-2-2.png)
+校对：Stay文苑
 
-**1，拥枪后可以对自己和家人起到一个保护作用。
-2，射击也是一项很好的运动，可以锻炼人的反应能力，平衡能力，耐力等等。
-3，也许以后农场可以组织线下射击活动。
-4，如果有多伦多本地战友，但非本农场战友也欢迎报名。
-5，特此声明，本次学习枪牌的活动非农场活动。**
+编辑：Stay文苑
 
-现在还差大概4位战友，如果有兴趣的战友请联系！谨防排华，用枪自卫！
+发稿：Stay文苑
 
-撰稿/发布：一叶知秋
+新闻：[https://gtv.org/broadcast/watch/62158eaf08ba8a07b1a1a883](https://gtv.org/broadcast/watch/62158eaf08ba8a07b1a1a883)
+访谈：[https://gtv.org/broadcast/watch/6215989808ba8a07b1a1ad72](https://gtv.org/broadcast/watch/6215989808ba8a07b1a1ad72)
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-4.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

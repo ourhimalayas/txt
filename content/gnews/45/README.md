@@ -2,37 +2,30 @@
 ---
 
 
-## 香港大学研究表明 男性确诊中共病毒可致睪丸受损
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2049101/)
+## NFSC新闻、G|TV新闻访谈简报|2022年2月22日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2049140/)
 
-作者：纽约香草山教育部 Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月20日，一家英文媒体披露了香港大学微生物学系的一项最新研究结果，该研究用两组仓鼠进行中共病毒实验，结果表明，感染中共病毒的后遗症除了肺功能、记忆力等可能不及以往，雄性生育能力也有可能降低。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-20-at-4.14.11-PM-1.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide11-6.jpeg)
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-21.png)
+文章仅代表作者本人观点，与Gnews无关
 
-研究人员发现，中共病毒病毒可导致仓鼠睾丸组织退化。感染冠状病毒的仓鼠出现慢性不对称睾丸萎缩，睾丸的大小和重量减少。
+视频参看：
+[2022.02.22早 《NFSC新闻》](https://gtv.org/video/id=6214e52808ba8a07b1a16f59)
+[2022.02.22早 G|TV《新闻访谈》](https://gtv.org/video/id=6214ee4408ba8a07b1a1765d)
 
-在受感染的仓鼠中还观察到产生精子细胞的曲细精管的精子数量减少、炎症、出血和坏死。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-在以往关于中共病毒患者的的研究报告中，也提到过患者出现睾丸疼痛的情况，而在对死于中共病毒的男性患者进行的尸检中，也曾发现睾丸有炎症和细胞损伤。
-
-参考链接：[Covid-19 damages male reproductive function and lowers fertility: HKU](https://www.thestandard.com.hk/breaking-news/section/4/187358/Covid-19-damages-male-reproductive-function-and-lowers-fertility:-HKU)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
-
-总编：Zion文恩
-编辑：飞虹
-校正/发稿：谐趣园
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-3.png)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

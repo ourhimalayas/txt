@@ -2,40 +2,24 @@
 ---
 
 
-## 有声|加国省长杰森肯尼挑战特鲁多紧急法案
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2050721/)
+## 日本政府将宣布对俄制裁 七国集团强烈谴责俄罗斯
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2050769/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月19日消息，针对联邦自由党实施”紧急情况法”以结束卡车司机对渥太华市中心的封锁，阿尔伯塔省省长杰森·肯尼在接受Postmedia独家采访时表示，联邦政府使用加拿大最强大的法律，在目前情况下是不合理的过度扩张，违反正当程序和”侵犯”省级管辖权。并表示对此深感厌恶，将在下周初，向渥太华联邦法院提出法律挑战，以结束总理特鲁多的任意和高压行动。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide10-3.jpeg)
-另外，联邦司法部长大卫·拉梅蒂此前在CTV上暗示，联邦调查局正在考虑冻结任何用信用卡向车队捐赠者账户。
+撰稿：东京樱花团/百花李香
 
-肯尼认为，如果特鲁多派冻结其政治对手的财政得逞而逍遥法外，允许联邦政府利用《紧急情况法》来履行普通警察职能骚扰对手，超越并篡夺加拿大各省执法的属地管辖权，这将为未来树立一个危险的先例。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/日本政府将宣布对俄制裁-七国集团强烈谴责俄罗斯.png)[图片来源](https://www3.nhk.or.jp/news/html/20220223/k10013497431000.html)
 
-肯尼代理律师将要求法官暂停使用该紧急法案。
+七国集团外长就乌克兰局势举行了紧急电话会议，一致谴责俄罗斯承认乌克兰东部地区独立。预计日本政府将在23日宣布对俄制裁措施。
 
+外务大臣林芳正表示，所谓的承认独立是对乌克兰主权和领土完整的侵犯，也是对国际法的亵渎。七国集团立场一致，对此表示强烈谴责。
 
+在普京承认乌克兰东部部分地区的独立后，七国集团外长举行了45分钟紧急电话会议。会议上，林外务大臣强调了日方立场，表示日本将与国际社会合作，尽快协调包括制裁在内的强硬对策。日本政府将与西方态度保持一致。
 
-文字版原文：[加国省长杰森肯尼挑战特鲁多紧急法案](https://gnews.org/zh-hans/2049068/)
+信息源：[G7、ロシアを強く非難　政府が対ロ制裁を発表へ](https://news.yahoo.co.jp/articles/7df7848b448e0e5a25a63116e826aa1e64cf1bfb#:~:text=G)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+*编辑：东京樱花团/麗子
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

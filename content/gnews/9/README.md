@@ -2,34 +2,27 @@
 ---
 
 
-## 韩国最大银行将推出加密货币衍生产品和ETF
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2050773/)
+## 俄乌危机！全球粮仓若陷战火，粮食通胀来袭！
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2050816/)
 
-翻译/编辑：小红帽
+俄乌情势加速全球通膨上扬，台湾今年万物皆涨的情况恐难避免。中央大学台经中心执行长吴大任表示，接下来两星期的发展是影响全球的关键，若「维和」执行任务成功，影响不大；现在最怕新仇加旧恨，真的打起来，俄罗斯甚至打进乌克兰首都，由於春天将进入玉米、小麦等粮食产季，全球主要粮仓失火，恐将进一步推升通膨压力。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/3-65.png)图片来源：online-kbcambodia.com
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1030346321_0-113-1201-792_600x0_80_0_0_4efe62788c19c205b5378b006baf0533_副本.jpg)图片来源：俄罗斯卫星通讯社
 
+吴大任据统计指出，乌克兰是全球第5大小麦出口国，市占率10%，玉米出口也超过10%，葵花籽油、大麦也占有一席之地，俄罗斯出口小麦在全球市场占20％，更跃居第一名，两国在春天、农产品产季打仗，不只影响生产，也阻碍出口，全球最主要的粮仓发生战火，对粮食供应、价格将会产生重大冲击。
 
-根据Blockworks2月22日报道，韩国最大银行的资产管理部门周一宣布成立一个委员会，以帮助研究和开发加密货币衍生产品和ETF。
+简评：郭文贵先生的爆料中，曾多次建议战友们根据自身的情况合理的储备些粮食，饥饿才是重大的灾难，不要在未来的危机中没有吃的！如今俄乌局势紧张，大战一触即发，全球两大粮食供应国春季若打仗，未来的粮食危机指日可待！
 
-KB国民银行（KB Kookmin）的资产管理部门表示，其新的数字资产管理筹备委员会将计划准备推出其加密货币产品。总部位于该部门的指数量化操作（Index Quant Operation）部。
+寒冷的“冬季”将要来了，准好一切准备才能顺利“过冬”，“春天”的曙光需要我们一同努力来度过这场灾难！愿一切安好，和平止战！
 
-KB希望在“韩国放松管制”之后，“尽快”通过其加密货币产品进入这个快速发展的行业。银行正计划通过国内和海外数字资产市场研究，为抢先推出相关产品做准备。
+新闻来源：[中时新闻网](https://www.chinatimes.com/newspapers/20220223000369-260102?chdtv)
 
-除了加密货币指数基金，KB资产管理公司（KB Asset Management）表示，它将从退休养老金和OCIO市场的传统资产关联转向使用海外加密货币的保本资产配置基金。
+撰稿/发布：一叶知秋
 
-按净利润计算，KB国民银行是韩国最大的银行。根据其最新财报，到2021年第四季度，其管理的资产总额达到457.3万亿韩元（3827亿美元）。
-
-新闻链接：[South Korea’s Top Bank To Launch Crypto ETFs](https://blockworks.co/south-koreas-top-bank-to-launch-crypto-etfs/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 
