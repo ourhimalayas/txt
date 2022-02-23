@@ -2,42 +2,36 @@
 ---
 
 
-## 瑞士可能被列入欧盟洗钱国黑名单
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2051638/)
+## 新冠病毒政策的罪行应被调查和起诉
+` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2051791/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+**新冠病毒封锁措施的政治专制行为对整个社会造成了损害。因此，ZAAVV基金会希望致力于重新评估和澄清因新冠病毒封锁措施而导致的危害人类罪。**
 
-翻译：Melody
-编辑：文泓
+翻译：Luckycky/校对: 蔚蓝的天
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image1-5.jpeg)图片：网络截图
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/6-41.png)图片来源：Business Insider Africa & 雅典娜设计组
+2021年11月21日，ZAAVV基金会（审查、澄清、法律起诉和预防因新冠病毒措施造成的反人类罪中心）在马洛卡（Mallorca）成立。它涉及社会各领域中，因新冠病毒造成不公正的总体方面。
+
+审查、澄清、追究、预防 — ZAAVV基金会是第一个将系统地归档和审查有关新冠病毒措施后果的文件，作为其业务的组织。所获得的科学发现将向广大公众开放。
+
+与其他已经存在的组织相比，该基金会不参与处理个人客户关系中的个案，而是通过政治家、制药企业家、公务员、警察、法官和其他犯罪者的行为，选择出危害人类罪的最重要方面。ZAAVV的工作将为在法庭上确定肇事者的责任奠定基础，并使其有可能为受害者索要赔偿资金。
+
+基金会正在建立一个数字档案，用于记录有关新冠病毒措施的相关书面、视觉和音频文件。这些文件通过数据库提供给用户使用，例如，用于科学目的或支持法律证据。同时，还有一个包含原始文件和展品的实物档案。
+
+这些档案可用于组织虚拟和实体展览。此外，还收集、编目有关该主题的书籍和其他形式的出版物，并提供给附属专业学术图书馆使用。
+
+Ralf Ludwig律师是该基金会的共同创始人之一。他早在2020年就为结束新冠病毒措施而呼吁，他与Bodo Schiffmann医生以及企业家Samuel Eckert先生和Wolfgang Greulich先生一起，在德国各地“新冠病毒信息之旅”中而广为人知。这位敬业的律师从根本上批评了新冠病毒政策：
 
 
-目前，瑞士这个国际金融中心正在应对瑞士信贷银行数据大规模泄露的影响。
+> *“综合来看，我认为这些措施不仅是非法的，甚至是违反人权的。我认为这是反人类的罪行”。*
 
-当地时间2月22日，据RT电视台报道，欧洲议会中最大的政治团体欧洲人民党(EPP)呼吁对瑞士的银行业务进行审查，并要求将瑞士列入欧盟的洗脏钱黑名单，因为泄露的瑞士信贷银行文件显示该银行与“恶棍”客户的交易。
 
-据报道，这家瑞士银行巨头几十年来一直为杂乱无章的客户名单提供服务，其中包括国家元首和间谍头目，以及侵犯人权者和受制裁的个人。
+通过简报，感兴趣的人士可以关注基金会的发展动态新闻。基金会还欢迎捐款，并为志愿者提供活动场地。
 
-根据有组织犯罪和腐败报告项目（OCCRP）“瑞士秘密”的调查结果，瑞士银行在防止洗钱方面存在巨大缺陷，调查也确定了这家瑞士银行的客户参与了酷刑、贩毒、洗钱、腐败和其他严重犯罪。
+原文链接：[https://corona-transition.org/verbrechen-der-corona-politik-sollen-aufgeklart-und-verfolgt-werden](https://corona-transition.org/verbrechen-der-corona-politik-sollen-aufgeklart-und-verfolgt-werden)
 
-EPP经济事务协调员马库斯·费伯补充道:“当瑞士银行未能恰当地应用国际反洗钱标准时，瑞士本身就会成为一个高风险的司法管辖区。”
-
-瑞士信贷强烈否认任何不法行为的指控，称媒体报道是基于“断章取义的选择性信息，导致对银行商业行为的倾向性解释”。
-
-如果瑞士被列入黑名单，它将面临适用于与伊朗、缅甸、叙利亚和朝鲜等国相关的交易的强化尽职调查。欧盟洗钱黑名单目前包括21个国家，目前其中没有一个是欧洲国家。
-
-新闻链接：[Switzerland could be blacklisted as money-laundering state — RT Business News](https://www.rt.com/business/550146-switzerland-money-laundering-state/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+发布：Luckycky
+![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

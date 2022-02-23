@@ -2,26 +2,35 @@
 ---
 
 
-## 中日财经爆|标普将海底捞评级列入负面信用观察名单
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2051599/)
+## 有声|港府效仿中共“清零”政策，预实施人人强制检测
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2051718/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2107.png)[图片来源](https://www.chinaz.com/2021/1106/1325721.shtml)
-信用评级机构–标普国际周三（2月23日）表示，将中国连锁火锅龙头–海底捞的长期主体信用评级“BBB”及其未到期的优先无抵押债券的长期债项评级“BBB”列入负面信用观察名单，标普质疑海底捞能否在2022年将财务杠杆降至1.5倍以下。
+配音：香草山巡管部 – 格格
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+据外媒综合报道，2月19日香港行政长官林郑月娥宣布，港府正在“非常认真地计划”对其750 万居民实施强制性中共病毒检测。
 
-标普新闻稿并称，在人力和原材料成本居高不下的背景下，盈利波动加剧可能导致海底捞的财务杠杆持续高于1.5倍–触发评级下调的临界值。
+虽然港府认为此举是为了应对本地疫情的快速传播，但却同时宣布了即将举行的特首选举，将从 3 月 27 日推迟到 5 月8 日。借口是为了使政府有时间集中精力应对不断上升的疫情传播。
 
-“如果海底捞在改善现有门店的盈利能力方面面临困难，特别是翻台率和客流量指标，进而预示该公司2022年的杠杆水平仍将高于1.5倍，且表明业务增长和现金流生产水平不及我们预期，那么我们可能下调其评级。”标普称。
+外媒评论港府的这一决定，是根据中共隔离旅客、全面检测和实施全面封锁等“动态清零”政策而做出的。
 
-2026年1月4日到期的五年期海底捞美元债（票面利率2.15%）今年以来持续下跌，到期收益率目前已攀升至约6%。该笔美元债规模为6亿美元。
+令人费解的是，在世界范围内中共病毒疫情已经普遍下滑的情况下，香港反而出现了中共病毒感染和确诊人数激增的现象。香港上周报告的医院病房容量达到了 90%，每日新增确诊病例首次超过 2000 例，上周四报告了 6116 例新增确诊病例。
 
-海底捞周一发布盈利预警称，预计2021年录得净亏损约38-45亿元人民币，上年同期盈利3.1亿元。
+有分析人士指出，港府不但效仿中共的极端 “清零”政策，更借口疫情对选举做文章。实际上是利用疫情和人人强制检测的政策，把全香港变成一个人人被审查、人人被监控的大监狱。
 
-消息来源：[海底捞遭标普列入评级负面观察名单 因财务杠杆降至1.5倍以下不确定性增大](https://cn.reuters.com/article/haidilao-sp-aaa-negative-list-0223-idCNKBS2KS0AF?il=0)
+文字版原文：[港府效仿中共“清零”政策，预实施人人强制检测](https://gnews.org/zh-hans/2049134/)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

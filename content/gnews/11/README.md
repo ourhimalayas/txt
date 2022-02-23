@@ -2,27 +2,32 @@
 ---
 
 
-## 2022年2月23日澳洲股市简报
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2051578/)
+## 美议员警告：特鲁多的暴虐紧急情况法可以在美国实施
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2051708/)
 
-**撰稿：云彩**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1-19.jpg)图片来自the Australian
-ASX 200 指数上涨0.6%，收盘7206点。科技板块上涨1%，工业板块上涨1.8% 。
+By:**秘翻新闻**
 
-**Domino’s Pizza 暴跌 14%**
+**2022-02-23**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/13-17.png)图片来源 新闻战线
+据《新闻战线》 2月22日报道，美国共和党参议员兰德·保罗 （ Rand Paul ）警告说，特鲁多政权为镇压加拿大的抗议活动而行使的紧急权力在美国也存在，政府可以在任何时候实施。
 
-连锁披萨公司Domino’s Pizza 警告销售额增长放缓和利润下降5.3%后，股价跌至86.13澳元。
+在BASED Politics播客节目中，保罗指出，加拿大总理使用的法规是 “非常危险的”，在美国 “也有同样的法规”，而他“长期以来一直是这些法规的反对者”。
 
-**Woolworths 上涨 1.4%**
+他补充说，在美国实际上有一个紧急法案，允许总统关闭互联网。
 
-连锁超市Woolworths 尽管因利润大幅下降而削减中期股息，但股价让上涨至35.68澳元。
+保罗强调称：在美国，有一些紧急情况已经持续了很多年，而总统可以每年更新它们。没有人真正阻止他。
 
-参考资料：
+保罗还提到了加拿大总理特鲁多的镇压，并敦促说：“特鲁多在加拿大所做的紧急法令允许他做一些可怕的事情，允许他停止旅行，允许他不经审判就拘留人。现在我们不知道他是否会这样做，但他可能做的事情非常、非常令人担忧。”
 
-[ASX edges up,RBNZ raises rates, oil prices soar amid Russia-Ukraine tension](https://www.abc.net.au/news/2022-02-23/australian-share-market-asx-business-global-stock-covid/100852816)
+新闻来源
+[**https://www.newswars.com/rand-paul-warns-that-trudeaus-tyrannical-emergencies-act-can-be-implemented-in-u-s/**](https://www.newswars.com/rand-paul-warns-that-trudeaus-tyrannical-emergencies-act-can-be-implemented-in-u-s/)
 
-编辑：云彩
-![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
+秘翻新闻 Grace 编译报道
+
+发布 : 恩典
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

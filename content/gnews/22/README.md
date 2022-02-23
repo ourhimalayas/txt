@@ -2,32 +2,27 @@
 ---
 
 
-## 有声｜乌克兰东部已开始组织学生进行逃生演习
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2051521/)
+## 有声|新中国联邦新闻、GTV新闻访谈简报|2022年2月20日晚
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2051549/)
 
-By:**秘翻新闻**
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-16.png)
 
-**2022-02-23**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/11-31.png)图片来源 路透社
-据路透社2月22日报道，乌克兰正在为俄罗斯军队可能的大举进攻做准备，东部城市哈尔科夫的学生正在学习穿防弹衣和应对爆炸物，同时进行疏散演习和急救训练。
 
-民防专家奥列克桑德·谢夫克表示，目前已经开始更加频繁地给孩子们进行这些安全演习，以防止他们受伤或者死亡等情况。
+文字版原文：[新中国联邦新闻、GTV新闻访谈简报|2022年2月20日晚](https://gnews.org/zh-hans/2039287/)
 
-学生纳扎尔表示，鉴于乌克兰和俄罗斯之间的局势发展，预期发生的事将非常可怕，所以这些培训是很有意义的。
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-哈尔科夫地区在乌克兰政府控制之下，是坦克、飞机和拖拉机工厂的所在地，距离俄罗斯边境仅40公里。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-乌克兰总统沃洛基米尔·泽伦斯基已将此城市确定为俄罗斯的攻击目标之一。
-
-新闻来源
-[**https://www.reuters.com/world/europe/students-try-bulletproof-vests-escape-drills-east-ukraine-2022-02-22/**](https://www.reuters.com/world/europe/students-try-bulletproof-vests-escape-drills-east-ukraine-2022-02-22/)
-
-秘翻新闻 文洋 编译报道
-
-发布 : 恩典
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
