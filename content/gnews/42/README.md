@@ -2,49 +2,31 @@
 ---
 
 
-## 先锋和黑石 与中共病毒及疫苗强制关系密切
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2053585/)
+## 2022/02/21 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2053589/)
 
-作者：银河系农场 – 骄子
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-外媒20日报道，在美国最高法上个月驳回拜登的中共病毒疫苗强制令后，波音、通用电气、星巴克等公司宣布不再为员工强制接种疫苗。但是，还有一些大公司仍然选择为其员工强制接种疫苗，如美国运通、花期银行、美国AT&T等，而这些公司被发现大多数由黑石和先锋两家投资公司拥有所有权。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-13.jpg)
-不仅如此，先锋和黑石还拥有拥有中共病毒疫苗制造商辉瑞、摩德纳和强生公司的大多数所有权，他们还持有开发疫苗护照和数字钱包的科技公司的大量股份，如苹果、万事达卡、甲骨文等。另外向人们宣传中共病毒疫苗的大媒体、大科技公司也同时属于这两家公司，如Facebook脸书、CNN、拥有美国250家日报的甘尼特公司等。
-
-据悉，黑石和先锋是目前全球最大的两家资产管理公司，共同管理者超过15万亿美元的资产，他们相互持有对方最多的股份，实际上的股权结构则被描述为“黑暗”。另据郭先生透露的一些信息，这两家公司与中共有着非常紧密的联系。
-
-参考链接：
-[Corporate Vaccine Mandates and Vaccine Passports — Brought to You by BlackRock and Vanguard?](https://www.sgtreport.com/2022/02/corporate-vaccine-mandates-and-vaccine-passports-brought-to-you-by-blackrock-and-vanguard/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-
-总编：天滅中共
-编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+1. 中共政府通报江苏苏州7天内新增了81例新冠病毒确诊病例，苏州人挤人核酸检测现场。
+2. 江苏苏州进行了多轮核酸检测，各地不断的将隔离人员运往集中隔离点，被封道路和小区每日都在不断新增。
+3. 2月18日晚，江苏苏州国泰新村，小朋友跟家人因为都是确诊病例的密接者，被中共政府要求前往集中隔离点。
+4. 云南文山自治州的集中隔离点。
+5. 2月17日，广东广州。中共的疫情防控人员在为猪做核酸检测。
+6. 2月16日，湖北咸宁。一男子在政府服务机构办事时突然倒地昏迷，幸被工作人员施救。
+7. 2月18日，福建福州。轿车司机猝死致车辆失控撞击闸门和电动车，电动车驾驶员被撞身亡。
+8. 2月15日，湖南株洲。驾驶员突然发病不省人事，行驶中出租车失控翻车。
+9. 2月20日，贵州贵阳。轿车冲向公交站台撞飞等车女子，警方通报为酒后驾驶。
+10. 2月21日，广东东莞。一商场天桥发生坍塌 ，桥下数辆汽车被砸。
 
 
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

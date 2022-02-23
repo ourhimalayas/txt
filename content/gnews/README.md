@@ -15,169 +15,169 @@
 
 ---
 
-### [Covid疫苗的三种新副作用](/content/gnews/1/README.md)
+### [【粤语配音】2022年2月23日：爆料革命5年来的预警一一应验](/content/gnews/1/README.md)
+ ` MOS香港部`
+
+### [西班牙人增强型疫苗的信心在一个月内下降了16个百分点](/content/gnews/2/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [西班牙谴责俄罗斯在乌克兰的行动，并承诺作出“响应反应”](/content/gnews/2/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [鲍里斯-约翰逊在最糟糕的时候加强了与中共国的关系](/content/gnews/3/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [是因为中国人的无知和懦弱，让共产党变得如此的强大](/content/gnews/4/README.md)
- ` MG FARM`
-
-### [中共国的快速军事崛起](/content/gnews/5/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [个人破产又算得了什么](/content/gnews/6/README.md)
- ` MG FARM`
-
-### [香港和台湾的影响力](/content/gnews/7/README.md)
- ` MG FARM`
-
-### [财富成了人类上最大的统治工具](/content/gnews/8/README.md)
- ` MG FARM`
-
-### [行善不问结果，这个最基本的常识](/content/gnews/9/README.md)
- ` MG FARM`
-
-### [2022年2月18日文贵大直播节选 （带视频）— 关于微信](/content/gnews/10/README.md)
- ` 喜马拉雅德国纽伦堡正义农场`
-
-### [现在钱成了统治人类的工具](/content/gnews/11/README.md)
- ` MG FARM`
-
-### [有声|对抗暴政](/content/gnews/12/README.md)
- ` MOSREC`
-
-### [2/23/2022日本快讯：日本对驻华使馆人员被扣留做出抗议 ;岸田首相与德国总理举行电话会议](/content/gnews/13/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [有声|呼喊](/content/gnews/14/README.md)
- ` MOSREC`
-
-### [“锁链女”——徐州八孩子事件（一）](/content/gnews/15/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [我们的一切一切都是灭掉共产党](/content/gnews/16/README.md)
- ` MG FARM`
-
-### [放下就是最大的拥有](/content/gnews/17/README.md)
- ` MG FARM`
-
-### [有声|中共决定制裁向台湾军售的美军工企业](/content/gnews/18/README.md)
- ` MOSREC`
-
-### [除非特鲁多能够解释紧急情况是什么，否则他是在滥用职权](/content/gnews/19/README.md)
- ` 加拿大温哥华扬帆农场蓝枫法律`
-
-### [放下，就是拥有](/content/gnews/20/README.md)
- ` MG FARM`
-
-### [文贵爆料 2.23：病毒+人毒，何处是我家](/content/gnews/21/README.md)
- ` 秘密翻译组-原创组`
-
-### [有声|灭共路上战友们当争做爆料革命的盖特大V](/content/gnews/22/README.md)
- ` MOSREC`
-
-### [有声|全球疫情、新加坡和中共都走到了十字路口](/content/gnews/23/README.md)
- ` MOSREC`
-
-### [全世界人民团结起来，抵抗暴政，还我自由！](/content/gnews/24/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [有声|达沃斯党利用科学主义危害人类](/content/gnews/25/README.md)
- ` MOSREC`
-
-### [日本岸田首相宣布制裁俄罗斯](/content/gnews/26/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [欧盟宣布在资产冻结和旅行禁令等方面制裁俄罗斯](/content/gnews/27/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [美国及世界疫情简报（02-23-2022）](/content/gnews/28/README.md)
- ` 波士顿五月花农场`
-
-### [数据显示接种Covid-19疫苗的妇女死产和流产的风险显著增高](/content/gnews/29/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [2022.2.23大直播 爆料革命用真相唤醒世界 郭文贵先生呼唤国人醒来](/content/gnews/30/README.md)
- ` 秘密翻译组-原创组`
-
-### [疫 苗 二三事](/content/gnews/31/README.md)
- ` XINYUAN`
-
-### [文贵大直播 2/24 世界巨变已开始 美俄中欧鹿死谁手](/content/gnews/32/README.md)
- ` 秘密翻译组-原创组`
-
-### [继美英加欧盟之后，日本宣布制裁俄罗斯](/content/gnews/33/README.md)
- ` 首尔天池农场`
-
-### [新中国联邦的教育项目将由郭先生直接负责](/content/gnews/34/README.md)
- ` NFSC News`
-
-### [习近平用金钱给予普京精神安慰](/content/gnews/35/README.md)
- ` NFSC News`
-
-### [郭先生谈乌克兰危机及其鲜为人知的背景](/content/gnews/36/README.md)
- ` NFSC News`
-
-### [疫苗灾难过后，三件大事将改变世界格局](/content/gnews/37/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [有声|雷洋之死暴露中共公检法黑幕](/content/gnews/38/README.md)
- ` MOSREC`
-
-### [美国的卡车司机也准备涌向华盛顿抗议](/content/gnews/39/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [2022/02/21 墙内世界](/content/gnews/40/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [英国宣布周四起解除所有防疫限制](/content/gnews/41/README.md)
- ` NFSC News`
-
-### [先锋和黑石 与中共病毒及疫苗强制关系密切](/content/gnews/42/README.md)
- ` NFSC News`
-
-### [外媒发现辉瑞与中共军方存在某种可疑的紧密合作关系](/content/gnews/43/README.md)
- ` NFSC News`
-
-### [2/23/2022 国际财经快讯：法国财长认为俄罗斯制裁对法国经济的影响有限；油价企稳，因俄乌供应担忧减弱](/content/gnews/44/README.md)
- ` 秘密翻译组金融团队`
-
-### [魔鬼契约：用少数人制造的资产泡沫“财富”来代替普遍的繁荣](/content/gnews/45/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [秘翻在线：中共国面临粮食不安全 规模性返贫的困境](/content/gnews/46/README.md)
+### [秘翻在线:人民银行要求实体银行必须办理现金业务](/content/gnews/3/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [普京出兵乌克兰东部引发世界经济动荡](/content/gnews/47/README.md)
+### [乌克兰宣布进入紧急状态，从俄罗斯召集公民回家](/content/gnews/4/README.md)
+ ` Shuizhuyu`
+
+### [Covid疫苗的三种新副作用](/content/gnews/5/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [西班牙谴责俄罗斯在乌克兰的行动，并承诺作出“响应反应”](/content/gnews/6/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [鲍里斯-约翰逊在最糟糕的时候加强了与中共国的关系](/content/gnews/7/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [是因为中国人的无知和懦弱，让共产党变得如此的强大](/content/gnews/8/README.md)
+ ` MG FARM`
+
+### [中共国的快速军事崛起](/content/gnews/9/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [个人破产又算得了什么](/content/gnews/10/README.md)
+ ` MG FARM`
+
+### [香港和台湾的影响力](/content/gnews/11/README.md)
+ ` MG FARM`
+
+### [财富成了人类上最大的统治工具](/content/gnews/12/README.md)
+ ` MG FARM`
+
+### [行善不问结果，这个最基本的常识](/content/gnews/13/README.md)
+ ` MG FARM`
+
+### [2022年2月18日文贵大直播节选 （带视频）— 关于微信](/content/gnews/14/README.md)
+ ` 喜马拉雅德国纽伦堡正义农场`
+
+### [现在钱成了统治人类的工具](/content/gnews/15/README.md)
+ ` MG FARM`
+
+### [有声|对抗暴政](/content/gnews/16/README.md)
+ ` MOSREC`
+
+### [2/23/2022日本快讯：日本对驻华使馆人员被扣留做出抗议 ;岸田首相与德国总理举行电话会议](/content/gnews/17/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [有声|呼喊](/content/gnews/18/README.md)
+ ` MOSREC`
+
+### [“锁链女”——徐州八孩子事件（一）](/content/gnews/19/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [我们的一切一切都是灭掉共产党](/content/gnews/20/README.md)
+ ` MG FARM`
+
+### [放下就是最大的拥有](/content/gnews/21/README.md)
+ ` MG FARM`
+
+### [有声|中共决定制裁向台湾军售的美军工企业](/content/gnews/22/README.md)
+ ` MOSREC`
+
+### [除非特鲁多能够解释紧急情况是什么，否则他是在滥用职权](/content/gnews/23/README.md)
+ ` 加拿大温哥华扬帆农场蓝枫法律`
+
+### [放下，就是拥有](/content/gnews/24/README.md)
+ ` MG FARM`
+
+### [文贵爆料 2.23：病毒+人毒，何处是我家](/content/gnews/25/README.md)
+ ` 秘密翻译组-原创组`
+
+### [有声|灭共路上战友们当争做爆料革命的盖特大V](/content/gnews/26/README.md)
+ ` MOSREC`
+
+### [有声|全球疫情、新加坡和中共都走到了十字路口](/content/gnews/27/README.md)
+ ` MOSREC`
+
+### [全世界人民团结起来，抵抗暴政，还我自由！](/content/gnews/28/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [日本岸田首相宣布制裁俄罗斯](/content/gnews/29/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [欧盟宣布在资产冻结和旅行禁令等方面制裁俄罗斯](/content/gnews/30/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [数据显示接种Covid-19疫苗的妇女死产和流产的风险显著增高](/content/gnews/31/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [2022.2.23大直播 爆料革命用真相唤醒世界 郭文贵先生呼唤国人醒来](/content/gnews/32/README.md)
+ ` 秘密翻译组-原创组`
+
+### [疫 苗 二三事](/content/gnews/33/README.md)
+ ` XINYUAN`
+
+### [文贵大直播 2/24 世界巨变已开始 美俄中欧鹿死谁手](/content/gnews/34/README.md)
+ ` 秘密翻译组-原创组`
+
+### [继美英加欧盟之后，日本宣布制裁俄罗斯](/content/gnews/35/README.md)
+ ` 首尔天池农场`
+
+### [新中国联邦的教育项目将由郭先生直接负责](/content/gnews/36/README.md)
  ` NFSC News`
 
-### [新西兰财经G乐部2022年2月23日:财经新闻整理](/content/gnews/48/README.md)
+### [习近平用金钱给予普京精神安慰](/content/gnews/37/README.md)
+ ` NFSC News`
+
+### [郭先生谈乌克兰危机及其鲜为人知的背景](/content/gnews/38/README.md)
+ ` NFSC News`
+
+### [疫苗灾难过后，三件大事将改变世界格局](/content/gnews/39/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [有声|雷洋之死暴露中共公检法黑幕](/content/gnews/40/README.md)
+ ` MOSREC`
+
+### [美国的卡车司机也准备涌向华盛顿抗议](/content/gnews/41/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [2022/02/21 墙内世界](/content/gnews/42/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [英国宣布周四起解除所有防疫限制](/content/gnews/43/README.md)
+ ` NFSC News`
+
+### [先锋和黑石 与中共病毒及疫苗强制关系密切](/content/gnews/44/README.md)
+ ` NFSC News`
+
+### [外媒发现辉瑞与中共军方存在某种可疑的紧密合作关系](/content/gnews/45/README.md)
+ ` NFSC News`
+
+### [2/23/2022 国际财经快讯：法国财长认为俄罗斯制裁对法国经济的影响有限；油价企稳，因俄乌供应担忧减弱](/content/gnews/46/README.md)
+ ` 秘密翻译组金融团队`
+
+### [魔鬼契约：用少数人制造的资产泡沫“财富”来代替普遍的繁荣](/content/gnews/47/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [普京出兵乌克兰东部引发世界经济动荡](/content/gnews/48/README.md)
+ ` NFSC News`
+
+### [新西兰财经G乐部2022年2月23日:财经新闻整理](/content/gnews/49/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [美频提法案禁止中共高层子女赴美](/content/gnews/49/README.md)
+### [美频提法案禁止中共高层子女赴美](/content/gnews/50/README.md)
  ` 波士顿五月花农场金融部`
 
-### [台湾｜对乌“感同身受” 蔡英文要求强化军备 国台办批评自作多情](/content/gnews/50/README.md)
+### [台湾｜对乌“感同身受” 蔡英文要求强化军备 国台办批评自作多情](/content/gnews/51/README.md)
  ` 關注組`
 
-### [秘翻新闻｜加拿大和欧盟对俄制裁已开始](/content/gnews/51/README.md)
+### [秘翻新闻｜加拿大和欧盟对俄制裁已开始](/content/gnews/52/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [中日财经爆┃EU对俄实施金融等制裁 俄351名议员榜上有名](/content/gnews/52/README.md)
+### [中日财经爆┃EU对俄实施金融等制裁 俄351名议员榜上有名](/content/gnews/53/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆┃欧美启动制裁 俄罗斯的贸易流转向中共国](/content/gnews/53/README.md)
+### [中日财经爆┃欧美启动制裁 俄罗斯的贸易流转向中共国](/content/gnews/54/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声｜中共“制裁”美国公司 无具体措施](/content/gnews/54/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [有声｜培训班群聚感染 北京武汉青岛爆病例](/content/gnews/55/README.md)
+### [有声｜中共“制裁”美国公司 无具体措施](/content/gnews/55/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
 ### [应对俄罗斯侵略 美决定增兵东欧](/content/gnews/56/README.md)

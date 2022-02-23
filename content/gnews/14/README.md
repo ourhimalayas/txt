@@ -2,56 +2,18 @@
 ---
 
 
-## 有声|呼喊
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2054407/)
+## 2022年2月18日文贵大直播节选 （带视频）— 关于微信
+` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2054459/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-醒来，醒来
-我们声嘶力竭呼喊
-为何你
-沉默如石
-冷漠如铁
-听不到我们呼喊劝说
-病毒不是终极
-疫苗才是目的
-醒来、醒来
-认清他魔鬼面目
+供稿：聪宁
+发稿：am夏天
+喜马拉雅纽伦堡正义农场
 
-乌云笼罩天地
-欲阻止阳光透出
-当天空有一丝缝隙
-伸出双手
-迎接日出
-努力，努力
-把缝隙裂成峡谷
-吞没黑暗沼泽
-光明普照大地
-魔鬼们送入地狱
-我们要欢呼胜利
-醒来，醒来
-莫做魔鬼陪葬悲泣
+马化腾的这个微信能在西方开通、流行，你真的觉得西方让人大跌眼镜。是个人都知道，微信是共产党的情报软件。你只要下载了微信，下载了知乎这种软件，你只要上中国百度或者香港凤凰网站，手机就废了，你走到天涯海角，你开机、关机他都知道，你在哪儿，而且是自然报告。
 
-醒来，醒来
-听到我们呼喊
-青蒿素是救赎
-一切还来得及
-莫做魔鬼陪葬悲泣
-
-文字版原文：[呼喊](https://gnews.org/zh-hans/2046836/)
-
-音频处理：Fei797
-发稿：Fei797
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在北京的西山那里的凤凰岭，那里有几十万人就盯着美国的手机，美国的所有手机它都能监听，一点秘密都没有。共产党这么邪恶的独裁者，把整个人类的手机都监听了。全西方白人手机都使用微信、还有抖音。抖音是百分之百的，为啥它的总部不在美国？象多维，那个网站就是共产党的间谍网站，他做假证，总部在北京。你为什么要看的它的东西，它百分之百是有毒，你为啥要去用呢？
+微信是一个技术的武器，叫技术网络核武器，谁沾，就是自找死亡。现在只要是共产党的软件，美国、印度各国已经公告过了，所有中国软件都不安全。那你要用，啥都知道了，那你觉得个人信息还重要吗?
+![](https://assets.gnews.org/wp-content/uploads/2022/02/德农二维码-30.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

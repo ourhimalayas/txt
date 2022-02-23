@@ -2,71 +2,32 @@
 ---
 
 
-## 有声|对抗暴政
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2054434/)
+## 财富成了人类上最大的统治工具
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2054463/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+文编：Hima
+听写：叮叮
+视频：七哥
 
+2022-02-16直播摘录11：12：24
 
-母亲
-你流着血
-我流着泪
-共同对抗
-这暴政横行
+今天大家去看看共产党威胁我们是什么？把数字货币绝对中心化，你只能用我人民币的所谓数字人民币。所有中国银行控制中国老百姓，我不让你存多少钱，我不让你取多少钱，我不让你汇外汇到外国去，你花钱也不行，你挣多了也不行。然后你拿税平衡你，你当网红也不行，当明星也不行。财富和财富存在的方式成了人类上最大的统治工具，包括你孩子上学。孩子上学的权利成为了利用的工具，我不行我不让你孩子上学。你说“小土豆”是很可怕的，他不让大卡车司机用信用卡，没有买保险，孩子上学都是个大问题，你孩子谁给他付钱啊？告诉我怎么付钱，这几乎不如杀了他呢。
 
-母亲
-看
-一个人跌倒了
-马蹄踏上他的身
-皇家骑警
-为什么践踏人民
-为什么悲惨呼声
-他们无动于衷
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-母亲
-你再看
-到处是
-血和泪的眼睛
-混合着声音异常悲愤
-何去何从
-何去何从
-我的未来
-是不是
-真的只是梦
+**关注我们**
 
-母亲
-告诉我实情
-这个世界魔鬼横行
-正义的声音微弱
-你为我撑起的温馨
-短暂如流星
+Discord 账号
 
-母亲
-你流着血
-我流着泪
-和他们一起
-共同对抗
-这暴政横行
-让自由声音
-雷声轰鸣
-结束暴政
-结束魔鬼横行
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-文字版原文：[对抗暴政](https://gnews.org/zh-hans/2032528/)
+Gettr 账号
 
-音频处理：Fei797
-发稿：Fei797
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

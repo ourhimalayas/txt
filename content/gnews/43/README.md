@@ -2,10 +2,10 @@
 ---
 
 
-## 外媒发现辉瑞与中共军方存在某种可疑的紧密合作关系
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2053583/)
+## 英国宣布周四起解除所有防疫限制
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2053586/)
 
-作者：银河系农场 – 骄子
+作者：首尔天池农场 – 追着曙光跑，香草山教育部 Naughty(文行)
 
 
 
@@ -13,16 +13,21 @@
 
 
 
-外媒21日报道，辉瑞被发现在2011年4月，与一间有中共军方背景的医药公司签署过一份备忘录，目的是为了利用两家公司各自的优势，在中国市场寻求潜在商机，并计划在分销、研发、制造、股权分配等方面进行深度合作。
+英国首相约翰逊，当地时间21日公布「与中共病毒共存」计划，宣布周四起解除英格兰地区的剩余防疫措施，包括不再要求确诊者自我隔离，出入公共场所无需出示疫苗接种证明等等。
 
-值得留意的是，除了与辉瑞达成合作协议外，这家位于上海的医药公司，还与中国人民解放军海军医科大学建立了合作伙伴关系，主攻新药及医疗器械的研发工作。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide6-6.jpg)
-另外，报导还指出，辉瑞早前被曝光与中共疫苗护照有密切合作关系，而被外界认为是 SARS-CoV-2 来源的武汉病毒研究所，也被发现与这家解放军海军医科大学有着隶属关系**。**
+另外，有关追踪确诊病人的密切接触者也将于周四起停止，届时，若密切接触者已完全接种疫苗，将不再需要连续七天进行检测，同时，自4月1日起，当局将不再向民众提供免费的病毒检测服务。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-13.jpg)
+约翰逊早前在国会表示，防疫限制对社会、经济以及民众的心理健康构成很大打击，鉴于中共病毒疫情不会在短时间内消失，继续实施限制是不正确，也是不必要的，因此，政府将鼓励民众自我约束，即使出现染疫症状，也要像对待流行性感冒一样冷静应对。
 
-简单来说，经调查发现，辉瑞、中共军方、中共病毒，这三者之间有着非常可疑且紧密的合作关系。
+在野工党领袖施纪贤批评约翰逊的做法是极度不负责任的，当地医学组织也指出，与病毒共存不等于无视病毒，取消免费病毒检测将令政府无从监察疫情动向，也难以实现民众自我约束，这样只会带来更多不利风险及社会焦虑。
+
+对此，郭文贵先生则有不同见解，在早前的直播中，郭先生认为，现在各国政府解除防疫限制的根本原因，无非是经济压力、政治压力以及即将爆发的疫苗灾难。
+
+视频链接：[2/18/2022 文贵直播: 欧美政府已经默认让奥米炕病毒集体感染民众，现在解除各种限制是因为经济和政治撑不住了；疫苗灾难造成的大规模死亡在5月份才会开始，请务必继续做好防疫措施](https://gettr.com/post/pvmifj8a40)
 
 参考链接：
-[Pfizer Partnered With Wuhan-Linked Chinese Company Supplying ‘Military Combat’ Efforts.](https://thenationalpulse.com/2022/02/21/pfizer-partnered-with-arm-of-chinas-military/)
+1. [俄承認烏東2共和國 美法英等要求安理會緊急會商](https://www.cna.com.tw/news/aopl/202202220023.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+2. [《早安世界》俄羅斯承認烏克蘭東部2共和國獨立 軍隊進駐](https://www.cna.com.tw/news/ahel/202202225001.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share%E3%80%81https://www.reuters.com/world/uk/uks-johnson-set-scrap-covid-restrictions-2022-02-20/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
 
