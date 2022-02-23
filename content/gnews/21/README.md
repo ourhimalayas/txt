@@ -2,32 +2,29 @@
 ---
 
 
-## 有声｜乌克兰东部已开始组织学生进行逃生演习
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2051521/)
+## 受贿超9.795亿！中信银行原行长孙德顺受审
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2051522/)
 
-By:**秘翻新闻**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/383b-56d01e8c08397bc4a66666bc8e19c6eb1.jpg)图片来源：中共国新闻网
+据中共国新闻网2月22日报道，山东省济南市中级人民法院22日一审公开开庭审理了中信银行原党委副书记、行长孙德顺受贿一案。
 
-**2022-02-23**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/11-31.png)图片来源 路透社
-据路透社2月22日报道，乌克兰正在为俄罗斯军队可能的大举进攻做准备，东部城市哈尔科夫的学生正在学习穿防弹衣和应对爆炸物，同时进行疏散演习和急救训练。
+济南市人民检察院指控被告人孙德顺利用职务之便，在2003年至2019年期间，在贷款审批等事项上非法收受财物共计折合人民币9.795亿余元。孙德顺及其辩护人到庭进行了最后陈述，并当庭认罪。法庭宣布休庭，择期宣判。
 
-民防专家奥列克桑德·谢夫克表示，目前已经开始更加频繁地给孩子们进行这些安全演习，以防止他们受伤或者死亡等情况。
+从中共的镰刀旗竖起来的那时起，镰刀所到之处，肥老鼠、瘦韭菜被连根割起。党旗是用无数人的鲜血染红的，只要这面魔旗不倒，人人不能幸免。贪污的钱要吐出来，老百姓的资产要交出来，利益都归党所有，有谁胆敢反抗，杀无赦。
 
-学生纳扎尔表示，鉴于乌克兰和俄罗斯之间的局势发展，预期发生的事将非常可怕，所以这些培训是很有意义的。
-
-哈尔科夫地区在乌克兰政府控制之下，是坦克、飞机和拖拉机工厂的所在地，距离俄罗斯边境仅40公里。
-
-乌克兰总统沃洛基米尔·泽伦斯基已将此城市确定为俄罗斯的攻击目标之一。
-
-新闻来源
-[**https://www.reuters.com/world/europe/students-try-bulletproof-vests-escape-drills-east-ukraine-2022-02-22/**](https://www.reuters.com/world/europe/students-try-bulletproof-vests-escape-drills-east-ukraine-2022-02-22/)
-
-秘翻新闻 文洋 编译报道
-
-发布 : 恩典
+新闻参考链接：[https://finance.sina.cn/2022-02-22/detail-imcwiwss2367812.d.html?from=wap](https://finance.sina.cn/2022-02-22/detail-imcwiwss2367812.d.html?from=wap)
 
 * * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321.jpg)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,26 +2,27 @@
 ---
 
 
-## 中日财经爆|澳大利亚宣布对俄罗斯实施经济制裁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2051570/)
+## 2022年2月23日澳洲股市简报
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2051578/)
 
-撰稿：东京樱花团/peterwong
+**撰稿：云彩**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1-19.jpg)图片来自the Australian
+ASX 200 指数上涨0.6%，收盘7206点。科技板块上涨1%，工业板块上涨1.8% 。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/澳大利亚宣布对俄罗斯实施经济制裁.jpg)[图片来源](https://sputniknews.cn/20220223/1039514895.html)
+**Domino’s Pizza 暴跌 14%**
 
-在俄罗斯命令军队进入乌克兰的分离地区并承认这些地区独立后，澳洲周三（2月23日）加入了美国、欧盟、加拿大、德国、英国和日本的行列，宣布对俄罗斯实施制裁。
+连锁披萨公司Domino’s Pizza 警告销售额增长放缓和利润下降5.3%后，股价跌至86.13澳元。
 
-澳洲总理莫里森说，澳洲将立即开始对其认为对俄罗斯在乌克兰的行动负有责任的俄罗斯个人实施制裁。
+**Woolworths 上涨 1.4%**
 
-“澳洲人总能挺身而出对付霸凌，我们将和我们所有的伙伴一起，挺身而出对付俄罗斯，”他说，“我预计随后还会有一系列制裁，这只是这个过程的开始。”
+连锁超市Woolworths 尽管因利润大幅下降而削减中期股息，但股价让上涨至35.68澳元。
 
-消息来源:
+参考资料：
 
-[澳洲宣布因乌克兰危机对俄罗斯实施的首批制裁](https://cn.reuters.com/article/australia-sanctions-0223-wedn-idCNKBS2KS06R?il=0)
+[ASX edges up,RBNZ raises rates, oil prices soar amid Russia-Ukraine tension](https://www.abc.net.au/news/2022-02-23/australian-share-market-asx-business-global-stock-covid/100852816)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+编辑：云彩
+![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

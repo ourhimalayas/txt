@@ -2,26 +2,32 @@
 ---
 
 
-## 中日财经爆┃日本制裁俄罗斯禁止其政府债券的发行和流通
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2051651/)
+## 美议员警告：特鲁多的暴虐紧急情况法可以在美国实施
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2051708/)
 
-撰稿：东京樱花团/盖特第一批注册
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2110.png)[图片来源](https://sustainablejapan.jp/2020/10/27/japan-2050-carbon-neutral/55203)
-日本政府23日宣布了对俄罗斯的第一轮制裁。
+By:**秘翻新闻**
 
-制裁措施包括：禁止俄罗斯政府或其机构发行或担保的债券在日本发行和流通；暂停与顿涅茨克共和国（DPR）和卢甘斯克共和国（LPR）（顿巴斯东部的两个亲俄分离主义组织）相关人的签证，并冻结他们在日本的资产；禁止与这两个地区的贸易往来。
+**2022-02-23**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/13-17.png)图片来源 新闻战线
+据《新闻战线》 2月22日报道，美国共和党参议员兰德·保罗 （ Rand Paul ）警告说，特鲁多政权为镇压加拿大的抗议活动而行使的紧急权力在美国也存在，政府可以在任何时候实施。
 
-如果未来局势恶化，日本将与七国集团和国际社会其他成员合作，尽快采取进一步措施。
+在BASED Politics播客节目中，保罗指出，加拿大总理使用的法规是 “非常危险的”，在美国 “也有同样的法规”，而他“长期以来一直是这些法规的反对者”。
 
-日本政府与七国集团保持一致，也在考虑限制半导体、人工智能（AI）和机器人等高科技产品出口俄罗斯。
+他补充说，在美国实际上有一个紧急法案，允许总统关闭互联网。
 
-日本政府对制裁俄罗斯的能源产业，包括液化天然气（LNG）持谨慎态度。
+保罗强调称：在美国，有一些紧急情况已经持续了很多年，而总统可以每年更新它们。没有人真正阻止他。
 
-信息源：[米国と連携の日本もロシア制裁…国債発行・流通禁止](https://news.yahoo.co.jp/articles/d22a21963f97c5322e1be9df7e9471ce9ca983e0)
+保罗还提到了加拿大总理特鲁多的镇压，并敦促说：“特鲁多在加拿大所做的紧急法令允许他做一些可怕的事情，允许他停止旅行，允许他不经审判就拘留人。现在我们不知道他是否会这样做，但他可能做的事情非常、非常令人担忧。”
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+新闻来源
+[**https://www.newswars.com/rand-paul-warns-that-trudeaus-tyrannical-emergencies-act-can-be-implemented-in-u-s/**](https://www.newswars.com/rand-paul-warns-that-trudeaus-tyrannical-emergencies-act-can-be-implemented-in-u-s/)
+
+秘翻新闻 Grace 编译报道
+
+发布 : 恩典
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

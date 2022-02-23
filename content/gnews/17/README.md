@@ -2,12 +2,12 @@
 ---
 
 
-## 有声|新中国联邦新闻、GTV新闻访谈简报|2022年2月19日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2051539/)
+## 有声|NFSC新闻、G|TV新闻访谈简报|2022年2月20日早
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2051547/)
 
 配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-15.png)
-文字版原文：[新中国联邦新闻、GTV新闻访谈简报|2022年2月19日晚](https://gnews.org/zh-hans/2034380/)
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-19.png)
+文字版原文：[NFSC新闻、G|TV新闻访谈简报|2022年2月20日早](https://gnews.org/zh-hans/2037827/)
 
 音频处理：呼吸的雾霾（文小呼吸）
 发稿：呼吸的雾霾（文小呼吸）
