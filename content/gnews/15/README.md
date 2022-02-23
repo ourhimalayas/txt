@@ -2,38 +2,24 @@
 ---
 
 
-## 欧盟理事会主席以环保为由继续与中共勾兑
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2053035/)
+## 加拿大律师敦促取消紧急状态法
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2053106/)
 
-作者: 银河系农场—骄子
+采编/编译撰稿：苦尽甜来(文来）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/03-image-2.png)
+据【多伦多太阳报】2月21日报道，加拿大多名大律师近日联名致信给国会议员，反对特鲁多政府擅用《紧急状态法》来处理全国性和平抗议活动，并呼吁议会立即投票取消该法案的实施。
 
+律师团在信中指出，实施《紧急状态法》的标准非常严格，联邦政府必须在国家安全明确遭受威胁的突发情况下，才能宣布公共秩序进入紧急状态。并将因此对加拿大公民自由形成重大挑战。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-45.png)
-2月20日在慕尼黑安全会议上，欧盟理事会主席米歇尔声称欧洲若想克服气候和数字隐私方面的障碍，就必须和中共合作，建立更深层的经济联系。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GettyImages-619435300-640x480-1.png)图片来源: Getty Images
-欧洲高层人士只是口头上表示会支持解决中共国迫害人权的行为，但1200亿欧元的投资协议并未涉及新疆、香港、西藏乃至整个中共国大陆的人权迫害行为，同样也并未要求中共在工厂和农田中解除现代奴隶制，并暗示中共可以继续执行强制劳工的政策。
+目前，特鲁多已根据《紧急状态法》发布命令，要求金融机构向警方报告那些支持或参与抗议活动者的个人财务信息，并对违法者处以罚款和最高五年的监禁。
 
-在过去一个月中，因立陶宛的坚持，欧盟开始对中共采取强硬的立场，但德国的一些派别仍不愿与中共对抗，他们害怕失去中共所谓的巨大市场。另外欧盟-中共投资条约的主导者正是德国的前总理默克尔，德国大众、Hugo boss、宝马等公司都从新疆强迫劳工中获利。德国一直要求立陶宛放弃与中共对抗，因立陶宛收到中共的制裁，影响到德国的整个供应链。欧盟理事会主席米歇尔一直支持与共产党深度勾兑。在中共支持的塔利班占领阿富汗美国无奈撤出之后，米歇尔表示既支持美国，也支持中共。
+律师函还强调，当局试图通过强推[紧急状态法]来证明其对民众的和平抗议活动，以及那些反独裁政府的抗议者所采取的暴力镇压方式是正当合法的。而这无疑是对加拿大民主制度最致命的打击。
 
-新闻链接: [https://www.breitbart.com/europe/2022/02/21/eu-council-president-shills-for-trade-deal-with-communist-china/](https://www.breitbart.com/europe/2022/02/21/eu-council-president-shills-for-trade-deal-with-communist-china/)
+校对编辑：硫酸羟氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-43.jpg)
+发稿：苦尽甜来 (文来）
 
-编辑/校对/发稿: 卡夫卡的甲壳虫
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
-
-
+新闻来源: [OPINION: Canadian lawyers urge rejection of Emergencies Act | Toronto Sun](https://torontosun.com/opinion/columnists/opinion-canadian-lawyers-urge-rejection-of-emergencies-act)
 
  
 

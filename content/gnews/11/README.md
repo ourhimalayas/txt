@@ -2,36 +2,56 @@
 ---
 
 
-## 第五巡回法院再审对宗教航空人员的疫苗授权
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2053061/)
+## 美国政府问责局：中共军力已对美国构成“重大”挑战
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2053205/)
 
-作者：银河系农场 – 骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月21日，据当地媒体报道，由美国第五巡回法院的三名法官构成的小组要求下级法官重新审理关于美国联合航空公司强制员工接种中共病毒疫苗的案件。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/7-33.jpg)
-据悉，2021年10月，美国联合航空公司针对其六万七千名员工执行了联邦政府要求的中共病毒疫苗强制接种命令。随后，公司中那些未接种的员工要么已经被辞退，要么则是在宗教豁免下面临着无休止的无薪假期。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Chinese-military-640x480-1.jpg)图片：Kevin Frayer摄/盖蒂图片社
+布赖特巴特新闻网2022年2月22日报道，
 
-为此，该公司申请宗教豁免的18名飞行员向多个地方法院提起了诉讼，要求美联航延迟执行这一不合理的疫苗接种计划。但该诉讼随即遭到地方法院的驳回。
+一份最近的美国政府监督机构的报告称，中共国不断增长的经济、外交、军事和技术力量，“以及行使这种力量的意愿”，对美国构成了“重大的长期挑战”。
 
-然而，本月17日，第五巡回法院裁定地方法院针对此案的审判存在错误结论，原告事实上持续因宗教信仰受到了胁迫，且该胁迫本身对原告造成了无法弥补的伤害。因此，第五巡回法院要求下级法院对该案件重新进行审理。
+美国政府问责局（GAO，是美国国会的下属机构，负责调查、监督联邦政府的规划和支出，其前身是美国总审计局）的报告指出，中共国“在过去20年里大大加强了其军事能力”，并且它“将原本过时的军队转变为能够在常规和非常规能力方面挑战美国军队的军队”。
 
-该报道还提到，虽然第五巡回法院没有对强制疫苗令做出任何裁定，但此前共和党召开的有关中共病毒疫苗的听证会已经证实，大量的疫苗接种者正在遭受着严重不良反应的侵害。加之中共病毒疫苗开发速度如此之快，以及其缺乏正确医学实验流程的事实，越来越多的美国人已经开始对疫苗安全性持质疑态度。
+这份三页的报告概述了中共国国防部在2049年底拥有一支“世界一流”军队的目标中的五个“挑战领域”。
 
-参考链接：[Federal court panel rebukes judge for disregarding vax mandate’s harm to religious airline workers](https://www.lifesitenews.com/news/federal-court-panel-rebukes-judge-for-disregarding-vax-mandates-harm-to-religious-airline-workers/)
+首先，报告称，中共国正在扩大其反介入/区域拒止（A2/AD）能力，或者说拒绝美国或其他国家在紧急情况下进行干预的能力，例如在中共国入侵台湾期间。报告提到：“这种反介入/区域拒止能力包括远程精确打击能力（弹道导弹和巡航导弹），能够打击到包括关岛在内的美国在该地区的后勤和武力投射的军事资产，以及强大的距离其海岸线超过550公里的防空能力。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+第二，中共国拥有“强大“的进攻和防御能力，旨在在第一岛链或在东亚大陆海岸与第一岛链之间的区域获得海军优势，其中包括台湾。除了拥有能够瞄准距离中共国海岸1500公里的航空母舰的弹道导弹外，“中共国还拥有世界上最大的海军和造船能力。”报告称。
 
-总编: Irene木木
-编辑: 谐趣园  
-校正/发稿：Fei797
+第三，该报告称，中共国的网络能力正被用来削减对手对中共国实施军事行动的能力，并被用来从美国国防工业基地窃取敏感信息。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+第四，报告引用了中共国的太空能力，它说中共国认为这是“现代战争的核心”。报告中提到：“中共国正在发展威胁国防部卫星通信系统的能力。”
+
+最后，报告引用了中共国的人工智能能力。该报告称，中共国认为人工智能对其未来的军事和工业力量至关重要，并正在实施到2030年成为全球人工智能领域领导者的计划。
+
+报告的结论是，美国应继续努力提高美国的战斗力，加强常规威慑力。它还建议国防部着眼于维护供应链，收集情报，并“负责任地利用空间、网络和人工智能技术来应对潜在的威胁”。
+
+**简评：**
+
+在全球关注乌克兰局势及非常有可能同时发生的台湾地区战争的时刻，美国国会的下属机构推出这样一份针对中共国军事力量的分析报告，引人深思。一方面，报告从中共国的反介入/区域拒止能力、进攻和防御能力、网络、太空及人工智能五大方面，阐述了中共国军事发展的重点及美国的应对方案，显示美国的情报能力和对中共国这一“对手”的了解和掌握。
+
+另一方面，文中多次提到“台湾”、“第一岛链”、“东亚大陆海岸”及“海军”，结合爆料革命、新中国联邦的情报，也让读者了解到台海局势的紧张，火战很可能迫在眉睫。
+
+我们迫切希望一切对中国共产党这个邪恶组织领导下的中共军事力量的了解，能够让正义力量成功阻止其对台湾的战争，使百姓免于灾难。对中共狼子野心和其对世界威胁的揭露，能够唤醒更多民众，支持推翻邪恶政权。
+
+新闻链接：[GAO Report: China’s Growing Power Poses a ‘Significant’ Challenge to the U.S.](https://www.breitbart.com/politics/2022/02/22/gao-report-chinas-growing-power-poses-a-significant-challenge-to-the-u-s/)
+
+*翻译/简评: Ying2064*
+*校对: Harvey（叶知秋）*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

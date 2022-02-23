@@ -2,34 +2,24 @@
 ---
 
 
-## 有声｜培训班群聚感染 北京武汉青岛爆病例
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2051330/)
+## 中日财经爆|加拿大宣布对俄罗斯实施经济制裁
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2051093/)
 
-By:**秘翻新闻**
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片11.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fimage.shutterstock.com%2Fz%2Fstock-photo-map-of-russia-canada-sanctions-against-russia-judge-hammer-canada-flag-and-emblem-d-667017838.jpg&amp;imgrefurl=https%3A%2F%2Fwww.shutterstock.com%2Fimage-illustrati)
+加拿大总理特鲁多2月22日在莫斯科承认乌克兰分离主义地区顿涅茨克和卢甘斯克为独立国家的第二天，宣布对俄罗斯实施第一轮经济制裁。
 
-**2022-02-23**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/7-32.png)图片来源 西瓜视频(新唐人)
-新唐人北京时间2月23日消息。2月22号，中共当局通报，北京、武汉、青岛都出现本土确诊病例，感染者都曾到访过武汉，参加了同一公司举办的培训活动。
+特鲁多说，他的政府将禁止加拿大人与所谓的“独立国家”卢甘斯克和顿涅茨克进行所有金融交易。还将禁止加拿大人参与购买俄罗斯主权债。
 
-官方通报称，北京新增4例本土病例，四名病例的轨迹涉及海淀、朝阳、西城、丰台等多个地方。
+加拿大政府将制裁那些投票赞成承认顿涅茨克和卢甘斯克独立决定的俄罗斯议会成员。加拿大将对两家国家支持的俄罗斯银行实施额外制裁，并阻止与它们进行任何金融交易。
 
-北京经开区某宾馆工作人员表示：该宾馆已被政府征用，不对外接待。他还推测，可能因为冬奥会的影响，现在北京疫情遍地开花。
+消息来源:
 
-在武汉，截至22号中午，官方通报，已有14人染疫，其中13例是培训班学员，另一名是家属。培训班的时间在18号到20号，共有66名学员参加，其中24人已经离开武汉。
+[加拿大宣布因乌克兰危机对俄罗斯实施第一轮经济制裁](https://cn.reuters.com/article/canada-trudeau-russia-sanction-0223-idCNKBS2KS03Z?il=0)
 
-另外，青岛市也通报一人染疫，病患所在小区已经拉起警戒线。
-
-目前已知引起武汉这起群聚感染的是奥米炕变异株，但是，感染源头还不清楚。
-
-新闻来源
-[**https://www.ntdtv.com/gb/2022/02/22/a103354649.html**](https://www.ntdtv.com/gb/2022/02/22/a103354649.html)
-
-秘翻新闻 二丫编辑报道
-
-发布 : 恩典
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321.jpg)
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

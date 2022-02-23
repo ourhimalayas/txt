@@ -2,25 +2,16 @@
 ---
 
 
-## 川普：俄乌“灾难“后 中共“绝对”会对台湾下手
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2053030/)
+## 群体免疫不可实现 疫苗真相解救人类
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2053090/)
 
-**撰稿：日本东京方舟农场 幽蘭自得**
+文贵大直播 20220223
 
-2月22日，美国前总统川普表示，在俄乌“灾难”发生后，中共 “绝对”会对台湾下手。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-349.jpg)（图片来自Getty Images）
-据《福克斯新闻》报道，美国前总统川普在他的海湖庄园参加“克莱特拉维斯和巴克赛克斯顿秀”时表示，在俄罗斯总统普京下令军队进入乌克兰东部后，“中（共）国将成为下一个”在世界舞台上大举进攻的国家。
+撰稿：Arthur（文徐）（DC）莲心不染 / MyWay / 坐看云起时（扬帆）Guocamole（文金欠）（香草山）
 
-川普指出，习近平和普京几乎就像“孪生姐妹“，一个想要台湾，一个想要乌克兰。习近平将把俄罗斯对乌克兰的行动作为试图夺回台湾的信号。
-
-此外，川普将乌克兰的“灾难”归咎于拜登总统，并表示在他的政府领导下“这永远不会发生”。 他说：“普京永远不会这样做，而习近平（在我的管理下）也永远不会这样做。”
-
-参考链接：
-[https://www.foxnews.com/politics/trump-china-taiwan-russia-ukraine](https://www.foxnews.com/politics/trump-china-taiwan-russia-ukraine)
-
-素材采编：幽蘭自得
-编辑：老孙
-发布：爱放飞
+美工：嘿虎（澳雅）Giraffe31 (澳雅)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-251.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片2-36.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片3-32.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片4-33.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片5-32.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片6-33.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片7-23.png)
+*发布: Theodosia*
 
  
 

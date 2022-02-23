@@ -2,35 +2,75 @@
 ---
 
 
-## 追求自由：加州卡车司机将组队前往DC
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2027573/)
+## 史蒂夫·班农: 全国每个主要法院都拒绝了强制疫苗授权，现在欧洲正在效仿
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1941476/)
 
-**撰稿：日本东京方舟农场 子辰**
+[https://gtv.org/video/id=61f80046d90bdd2085a32a15](https://gtv.org/video/id=61f80046d90bdd2085a32a15)
 
-据《大纪元》2月18日报道，加州卡车司机为了抗议紧急权力（强制戴口罩和接种疫苗），为了追求公民自由，正在为前往华盛顿特区做准备，他们计划将于2月23日从巴斯托（Barstow）出发，沿40号州际公路向东行驶。
+**Steve Bannon
+史蒂夫·班农**
 
-据美国公民自由基金会（American Foundation for Civil Liberties）主席克里斯‧马斯顿（Chris Marston）说，此次行动是一个名为“人民车队”（The People’s Convoy）的全国性团体发起并组织的，他们计划将前往美国首都，同时要求取消《紧急权力法》、结束强制规定。该基金会是一个倡导公民自由的非营利组织，正在协调卡车司机的抗议活动。
+the vaccine things have been rejected by every court
+每个法院都拒绝了疫苗的事情
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片-1-3-5.jpeg)（图片来自大纪元）
+every major court in the country, rejected out
+全国各大法院，都被拒之门外
 
-据悉，“人民车队”的组织者莫琳‧斯蒂尔（Maureen Steele）2月16日在班农“作战室”（War Room）中说，车队的预期路线将发布在其组织网站上。
+Now you’re a butcher, now we says six is always 60 to 90 days was
+现在你是个屠夫，现在我们说是60到90天
 
-班农“作战室”是一个流媒体政治谈话节目和播客，由川普前顾问史蒂夫‧班农（Steve Bannon）主持。
+guess what? they’re not going to do on next Tuesday on February 1st in Austria
+你猜怎么着？ 他们不会在2月1日的下周二在奥地利进行
 
-作为班农节目的常客，前川普经济顾问彼得‧纳瓦罗（Peter Navarro）在“作战室”称赞加拿大的卡车司机们领导了对政府暴政的反抗。称赞他们就像波士顿倾茶事件（美国革命导火线），称他们是全球运动的源头，我们必须感谢那些加拿大卡车司机。
+The mandatory vaccines is kind of getting wobbly
+强制性疫苗规定有点摇摇欲坠
 
-病毒学家、免疫学家和mRNA疫苗发明者罗伯特‧马龙（Robert Malone）博士也一直批评联邦政府对大流行病的处理，他在班农作战室节目中提到，华盛顿DC可能很快会看到一种新的“醒悟与觉醒”。马龙还说，当卡车司机到达国会山时，他们很可能会唤醒我们众多的众议员和参议员，他认为这些人现在有点睡着了。
+now people now that unvaccinated can come out of the house
+现在，未接种疫苗的人可以走出家门
 
-此外，现身班农作战室支持车队的还有来自美国自由飞行队的成员约书亚‧约德（Joshua Yoder），这个最近成立的团体由美国航空、铁路和卡车专业人士组成，他们主张“自由旅行的权利”。约德说，有很多普通人聚集在一起并团结起来，这是人们在发声，表达他们的不满，我认为政府会很好地听取我们的意见。
+We’re about to see if they still gotta pay the penalty
+我们要看看他们是否还要支付罚款
 
-参与此次行动的卡车司机们在“人民车队”网站发布视频说，这不仅仅关乎我们卡车司机，它关乎所有美国人。
+In England’s off, in Denmark’s off, it’s gonna be off others
+在英格兰取消了，在丹麦取消了，其他地方取消了
 
-参考链接：
-[https://www.epochtimes.com/b5/22/2/18/n13585790.htm](https://www.epochtimes.com/b5/22/2/18/n13585790.htm)
+Sweden just announced yesterday, Guess what?
+瑞典昨天刚刚宣布，你猜怎样？
 
-素材采编：子辰
-编辑：青城道姑
-发布：文曦
+The research and the data and the science shows
+研究、数据和科学表明
+
+that children, you know 5-12 kids don’t have to get the vaccine
+你知道5-12岁的孩子们不必接种疫苗
+
+because the dangers of it outweigh the benefits
+因为它的危害大于好处
+
+the dangers of it outweigh the benefits
+它的危害大于好处
+
+suck on that Tony Fauci
+想想吧托尼·福奇
+
+* * *
+
+Date:01/30/2022
+原视频标题: Steve Bannon: Vaccine mandates have been rejected by every major court in the country and now Europe is following suit
+史蒂夫·班农: 全国每个主要法院都拒绝了强制疫苗授权，现在欧洲正在效仿
+原视频日期：2022/01/30
+原视频链接: **[https://gettr.com/post/pr9zf63f2a](https://gettr.com/post/pr9zf63f2a)**
+任务编号：KE377（3637）
+视频时间段 : 0:00-0:45
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

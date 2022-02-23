@@ -2,26 +2,34 @@
 ---
 
 
-## 香港因奥密克戎疫情熔断八国航班
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2053088/)
+## 疫情次生灾难给英格兰人带来心理健康问题
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2053214/)
 
-撰稿：东京樱花团｜Garrettw
+作者：台灣寶島農場 – 尋文客
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月21日，据相关媒体消息显示，英格兰的卫生官员警告称，由于当地在中共病毒疫情中实行的封锁措施，英格兰预计有一千万人，包括150万儿童和青少年将因此遭受精神健康问题的困扰。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8-30.jpg)
+研究人员指出，自中共病毒开始以来，当地因心理健康问题而需要紧急治疗的儿童人数增加了52%，同期患有饮食失调的18岁以下儿童也增加了72%。另外，英格兰有160万人正在等待接受心理健康方面的专业治疗，其余还有八百万需要专业治疗的患者尚未进入等待名单。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/香港因奥密克戎疫情熔断八国航班.png)[*图片来源*](https://images.7news.com.au/publication/C-5197408/29e45076be47f9612aa2dfc8490158a8a226b71a.jpg?imwidth=828&amp;impolicy=sevennews_v2)
+对此，分析人员表示，中共病毒疫情的封锁措施已经对大量英格兰人民的精神健康造成了不利的影响，同时，大量患者的积压已经让英格兰部分地区的精神健康专家不堪重负。至于许多缺乏足够护理的患者，他们的未来也令人担忧。
 
-在中共病毒（Covid-19）奥密克戎（Omicron）疫情爆发后，香港已禁止来自八个国家航班，包括澳大利亚、加拿大、法国、印度、巴基斯坦、菲律宾、英国和美国。香港特区政府2月23日公布，将延长这些国家实施的地区性航班“熔断机制”至4月20日。
+目前，英格兰的卫生官员已经将当地民众精神健康问题的现状称为“第二次大流行”。
 
-由于对当地奥密克戎传播的担忧不断增加，林郑月娥星期二说，恢复该市与中国大陆之间的正常旅行“必须再等一段时间”。
+参考链接：[‘Second Pandemic’ – 10 Million Britons Need Mental Health Care After Lockdowns](https://www.breitbart.com/europe/2022/02/21/second-pandemic-10-million-britons-in-need-mental-health-treatment/)
 
-飞行禁令是在香港的奥密克戎在飞行人员中爆发后发布的，行政长官林郑月娥星期三告诉记者：“来自这些国家的客运航班将不允许在香港降落，在这些国家停留过的个人不允许登上飞往香港的航班，包括过境航班。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-香港当局已经出台了一些其他限制措施以打击中共病毒在这个城市的传播，这些限制措施包括取消大型公共活动和关闭15种不同类型的服务业，包括酒吧、健身房、夜总会和美容院。
+总编: Irene木木
+编辑: 谐趣园/静言 
+校正/发稿：Fei797
 
-消息来源：[**Hong Kong bans flights from eight countries, including Australia, amid Omicron outbreak**](https://7news.com.au/news/world/hong-kong-bans-flights-from-eight-countries-including-australia-amid-omicron-outbreak-c-5197408)
-
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
