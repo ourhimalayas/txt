@@ -2,55 +2,41 @@
 ---
 
 
-## 新西兰财经G乐部2022年2月23日:财经新闻整理
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2052143/)
+## 英国取消所有的新冠病毒限制
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2052212/)
 
-采集整理：蚂蚁的城堡
+[![](https://express.adobe.com/page/meThKFieGGTuh/images/1a67a256-f184-44f5-917c-caaed74e6c29.png?asset_id=a44750bd-6101-42ab-b071-07912f4c4a01&amp;img_etag=%22b5587e9f763e00aae3c67eb39942547b%22&amp;size=2560)](https://express.adobe.com/page/meThKFieGGTuh/images/1a67a256-f184-44f5-917c-caaed74e6c29.png?asset_id=a44750bd-6101-42ab-b071-07912f4c4a01&amp;img_etag=%22b5587e9f763e00aae3c67eb39942547b%22&amp;size=1024)
+**简评：**
 
-**提纲：**
+由于政府无法继续负担经济成本和个人自由的损失，英国首相约翰逊宣布将取消国内所有的新冠病毒的法律限制，不再要求完全接种者、密切接触者和18岁以下的人进行为期七天的每日检测。约翰逊表示，新冠病毒不会马上消失，如果想等疫情完全结束再取消限制，英国人民将会被长期限制自由。英国解禁了，其他国家还要多久呢？
 
-1、2022年中共一号文件公布，提出全面推进乡村振兴重点工作
+[**GETTR视频链接**](https://gettr.com/post/pw4v708e1d)
 
-2、20万股民懵了：“油茅”金龙鱼业绩暴跌超30%！
+[**GTV视频链接**](https://gtv.org/video/id=6214ef3d1408ee3a03a36fce)
 
-3、宝能系又出事！旗下1.4亿A股股份拟强制执行
+**视频字幕：**
 
-4、被控受贿近10亿元，中信银行原行长孙德顺济南受审
+**英国首相鲍里斯.约翰逊**：我们将取消所有国内现有的（新冠病毒）的法律限制。
 
-**正文**
+**画外音**：周一英国首相鲍里斯.约翰逊表示，他将取消英国的所有新冠病毒限制。
 
-**1、2022年中共一号文件公布，提出全面推进乡村振兴重点工作**
-![img](https://media.gettr.com/group36/origin/2022/02/23/02/b2540502-a223-8306-7e6e-bf42fa9a8317/591a9f4a190fa95690bed956f87589e4_500x0.png)
-中共国新华社2月22日：21世纪以来第19个指导“三农”工作的中央一号文件22日由新华社受权发布。这份文件题为《中共中央 国务院关于做好2022年全面推进乡村振兴重点工作的意见》，全文共8个部分，包括：全力抓好粮食生产和重要[农产品](https://finance.sina.com.cn/realstock/company/sz000061/nc.shtml)供给、强化现代农业基础支撑、坚决守住不发生规模性返贫底线、聚焦产业促进乡村发展、扎实稳妥推进乡村建设、突出实效改进乡村治理、加大政策保障和体制机制创新力度、坚持和加强党对“三农”工作的全面领导。
+**约翰逊**：我们将结束常规的接触追踪，不再要求完全接种者、密切接触者和18岁以下的人进行为期七天的每日检测。
 
-财经G评：我亲身经历十几年中共国每年发布的“一号文件”，所谓“一号文件”就是三农问题，每次文件中用华丽的词藻、改革的决心，欺骗农民！这些年农民的地了、进城当了农民工、农民和孩子在城市没有受教育的权利、不能享受城市医疗，却年年被拖欠工资、北京当局干脆把农民工给分类称“低端人口”！这几年中共产业链外移，地产过剩、大规模的失业的人口，中共转头就喊让农民返乡创业！当农民返乡发现没有地可耕种、耕地没有钱赚、老家的房价高涨、更甚者祖屋被强拆比比皆是！！！CCP是何等的邪恶！
+**画外音**：约翰逊终止健康限制的举措引起了一些科学家和政治反对派的怀疑。他们警告说，此举为时过早，将使国家容易受到新的病毒变种的影响。
 
-“三农问题”的核心就是一个问题：地的产权能不能给农民？中共不敢面对这个问题，绕着圈子扯淡！
+**约翰逊**：议长先生，新冠病毒不会马上消失，所以那些想等这场疫情完全消失才取消限制的人，将在未来很长一段时间限制英国人民的自由。
 
-参考链接：[https://finance.sina.com.cn/china/2022-02-22/doc-imcwipih4792765.shtml](https://finance.sina.com.cn/china/2022-02-22/doc-imcwipih4792765.shtml)
+**画外音**：首相说，由于经济成本和个人自由的损失太大，政府已无力再继续负担。取消现有的法律限制是约翰逊所在的保守党许多议员的首要任务。他们对其丑闻缠身、领导能力的不满已经威胁到他对权力的掌控。
 
-**2、20万股民懵了：“油茅”金龙鱼业绩暴跌超30%！**
-![img](https://media.gettr.com/group3/origin/2022/02/23/02/a2089a18-e608-e5b1-fefc-50dc10972132/a9932d4e078ec3ec3bca0c1fd688b8fb_500x0.png)
-2月22日晚，“油茅”[金龙鱼](https://finance.sina.com.cn/realstock/company/sz300999/nc.shtml)发布业绩快报，2021年全年净利润为41.32亿元，同比下降31.1%。消息出来后，20万股民懵了：纷纷认为业绩不达预期。值得注意的是，此前百亿私募林园投资多只产品进入金龙鱼的前十大股东名单。如若一直买入并持有，林园建仓后最惨已腰斩。值得注意的是，前三季度金龙鱼的净利润为36.81亿元，这个数据意味着，第四季度金龙鱼的净利润骤降至4.51亿元。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
 
-参考链接：[https://finance.sina.com.cn/stock/s/2022-02-23/doc-imcwipih4816927.shtml](https://finance.sina.com.cn/stock/s/2022-02-23/doc-imcwipih4816927.shtml)
 
-**3、宝能系又出事！旗下1.4亿A股股份拟强制执行**
-![img](https://media.gettr.com/group15/origin/2022/02/23/03/521e7e04-3559-e375-c7bb-64190c988c2e/9768133013bef322fae5475ed9f5e9f8_500x0.png)
-2月22日晚，[韶能股份](https://finance.sina.com.cn/realstock/company/sz000601/nc.shtml)公告，因合同纠纷信达金融租赁向深圳中院提出申请，拟强制执行公司第一大股东华利通持有的1.42亿股公司股份，占其持股比例65.69%，占公司总股本的13.11%。华利通为宝能集团二级子公司。
+*编辑：【英国伦敦喜庄园编辑部】*
 
-参考链接：[https://finance.sina.com.cn/stock/s/2022-02-23/doc-imcwipih4817379.shtml](https://finance.sina.com.cn/stock/s/2022-02-23/doc-imcwipih4817379.shtml)
-
-**4、被控受贿近10亿元，中信银行原行长孙德顺济南受审**
-![img](https://media.gettr.com/group8/origin/2022/02/23/03/2e377553-072b-aa09-e35d-b4e37462f23b/4f9cff1005f3906bdcbaf4f126e1ee30_500x0.png)
-山东省济南市中级人民法院日前一审审理了中信银行原行长孙德顺受贿一案，被控在贷款审批、获得授信额度等事项上为相关单位提供帮助，非法收受财物共计折合人民币9.795亿余元。济南中院官方微信周二晚间刊登新闻稿公布，2003年至2019年，孙德顺利用担任中国工商银行北京市分行副行长，交通银行北京市分行行长，中信银行副行长、行长等职务上的便利，非法收受财物。
-
-参考链接：[http://chinapeace.gov.cn/chinapeace/c100007/2022-02/22/content\_12598481.shtml](http://chinapeace.gov.cn/chinapeace/c100007/2022-02/22/content_12598481.shtml)
-
-审核校对：蚂蚁的城堡（一审）、文勇（二审）
-
-上传排版：文勇
-
+*字幕：雨中漫步* *| 听写：云岭 | 翻译：Blue* *| PR：Roberts* *|简评/文字整理/编辑：胖丁 | Page：我是球大哥*
+[![](https://express.adobe.com/page/meThKFieGGTuh/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://express.adobe.com/page/meThKFieGGTuh/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
