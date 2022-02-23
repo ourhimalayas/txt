@@ -2,34 +2,24 @@
 ---
 
 
-## 韩国最大银行将推出加密货币衍生产品和ETF
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2050773/)
+## COVID-19 最新情報｜英國31歲樂壇紅人突發心臟病去世 網民追究死亡真相
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2050870/)
 
-翻译/编辑：小红帽
+**撰文｜疫情關注組 / 發佈時間｜23/02/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/英國31歲樂壇紅人突發心臟病去世-網民追究死亡真相.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：**[**https://gettr.com/post/pl6k0218bf**](https://gettr.com/post/pl6k0218bf)**)**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/3-65.png)图片来源：online-kbcambodia.com
+英國樂壇紅人兼 YouTube 明星，今年31歲的賈馬爾·愛德華茲（Jamal Edwards）據報於上週日（20日）死於他位於倫敦西部的住所。
 
+起初，外界都沈浸在對死者的惋惜之中，直到賈馬爾的母親，女星布倫達·愛德華茲（Brenda Edwards）在向公眾證實兒子死訊時，無意中透露，賈馬爾的死亡是「突然疾病」引起的，而他從小到大的親密好友德韋恩（Dwayne）則更具體指明，所謂的「突發疾病」是「突發心臟病」。
 
-根据Blockworks2月22日报道，韩国最大银行的资产管理部门周一宣布成立一个委员会，以帮助研究和开发加密货币衍生产品和ETF。
+不僅如此，德韋恩還提到，就在離世的前一天晚上，賈馬爾還應邀去酒吧打碟，當時他的狀態相當好，而且相識多年，從未聽說他的心臟有問題。德韋恩向媒體表示：「賈馬爾是倫敦西部地區的傳奇人物，他的離世對我們所有人的打擊都很大，何況他正值壯年，為何會如此突然地走了，真是令人震驚。」
 
-KB国民银行（KB Kookmin）的资产管理部门表示，其新的数字资产管理筹备委员会将计划准备推出其加密货币产品。总部位于该部门的指数量化操作（Index Quant Operation）部。
+賈爾馬死於「突發心臟病」的消息立即引起全球網民的注意，更將「賈馬爾死因（Jamal Edwards cause of death）」迅速頂上推特熱搜.
 
-KB希望在“韩国放松管制”之后，“尽快”通过其加密货币产品进入这个快速发展的行业。银行正计划通过国内和海外数字资产市场研究，为抢先推出相关产品做准备。
+有人質疑，為什麼搜遍全網都找不到賈馬爾的疫苗接種情況，但若賈馬爾沒有接種疫苗，他根本不可以在死前一天的晚上能夠出席酒吧演奏。另外還有網民斥責當局和媒體聯手掩蓋死因是不顧公眾利益的表現，倘若疫苗真的有問題，更應該公開，讓還未發病的人儘早得到治療，避免悲劇重演。
 
-除了加密货币指数基金，KB资产管理公司（KB Asset Management）表示，它将从退休养老金和OCIO市场的传统资产关联转向使用海外加密货币的保本资产配置基金。
-
-按净利润计算，KB国民银行是韩国最大的银行。根据其最新财报，到2021年第四季度，其管理的资产总额达到457.3万亿韩元（3827亿美元）。
-
-新闻链接：[South Korea’s Top Bank To Launch Crypto ETFs](https://blockworks.co/south-koreas-top-bank-to-launch-crypto-etfs/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+來源｜[MyLondon](https://www.mylondon.news/news/uk-world-news/jamal-edwards-died-sudden-heart-23175406)
 
  
 

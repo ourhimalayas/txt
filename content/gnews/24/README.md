@@ -2,30 +2,31 @@
 ---
 
 
-## 英国将制裁5家俄罗斯银行及3名寡头富豪
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2050758/)
+## 中国是用美元赢了与美国的冷战
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2050843/)
 
-**撰稿：日本东京方舟农场  海星**
+撰稿：小湫
 
-2月22日，在俄罗斯承认乌克兰东部分离地区独立后，英国首相约翰逊宣布，英国政府将制裁俄罗斯银行及寡头富豪。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-344.jpg)（图片来源：法新社）
-据《自由时报》报导，英国首相约翰逊在国会上表示，英国政府将就俄罗斯承认乌克兰东部分离地区独立一事制裁其5家银行，包括俄罗斯银行（Bank Rossiya）、IS Bank、Joint Stock Company Genbank、Public Joint Stock Company Promsvyazbank和黑海贸易发展银行（Black Sea Bank for Development and Reconstruction），以及3名寡头富豪，包括普京的商业伙伴兼友人季姆琴科（Gennady Timchenko）、阿卡迪耶维奇（Igor Arkadievich）和罗腾伯格（Boris Romanovich Rotenberg）。
+佛罗里达州共和党众议员迈克尔·瓦尔兹（Michael Waltz），他在“威尔·凯恩播客”(The Will Cain Podcast)节目中概述了他认为的中国在与美国的冷战中进行经济战争的长期战略。
 
-据悉，被制裁者在英国持有的所有财产将被冻结，并被禁止入境英国，同时不被允许与英国的企业或个人有任何商业往来。
+Will Cain：中国国家主席和中央军事委员会主席习近平，他的目标是取代美国成为世界主导力量，以取代美元作为全球储备货币。在你看来，这是一种竞争，一种冷战，一种朝着动态战争方向发展的关系吗? 是为了制造炸弹，还是计划中的策略更具有颠覆性，更内化，更隐形力量，更腐败? 中国的战略是什么?
+![](https://assets.gnews.org/wp-content/uploads/2022/02/小秋-3.png)图片来自网络
+佛罗里达州共和党众议员迈克尔·瓦尔兹：他们确实如此做的，他们和我们处于冷战状态。你知道，冷战是指一个实体利用外交、信息和经济手段，以某种方式接管国际组织来胁迫他们的对手。而这正是中国共产党正在做的，其中最大的一个问题将是台湾。
 
-约翰逊强调说，这只是制裁的第一部分，如果普京有进一步行动，英国和盟国将对其实施更严厉的制裁措施。
+为什么台湾如此重要，为什么台湾对美国人民如此重要?如果你看看它坐落在地图上的位置，一旦中国控制台湾，共产主义独裁将接管一个繁荣的市场和民主制度。除此之外,CCP将控制贸易路线延伸到日本，韩国，澳大利亚，马来西亚，甚至包括印度，然后进入中东，CCP将控制大约一半的世界GDP和全球贸易。
 
-稍早前，俄罗斯总统普京承认了乌克兰东部地区顿涅茨克和卢甘斯克的“独立国家”地位，并派遣部队进驻。对此，美国多位议员表示，普京此举公然违反国际法，侵犯了乌克兰的主权与领土完整，应受到严厉制裁。
+如果你了解中国的军事理论，我认为经济战是最好的描述方式。他们想为一场战争做提前的准备，他们企图置美国于死地，就像前苏联解体前对待我们的策略一样。
 
-参考链接：
-1.[https://news.ltn.com.tw/news/world/breakingnews/3838104](https://news.ltn.com.tw/news/world/breakingnews/3838104)
-2.[https://finance.sina.com.cn/stock/usstock/c/2022-02-22/doc-imcwiwss2363586.shtm](https://finance.sina.com.cn/stock/usstock/c/2022-02-22/doc-imcwiwss2363586.shtm)
-3.[https://www.voachinese.com/a/us-congress-reax-russia-putin-ukraine-20220221/6453362.html](https://www.voachinese.com/a/us-congress-reax-russia-putin-ukraine-20220221/6453362.html)
+他们眼睁睁的看着我们在民众福利上破产，他们在新冠肺炎上惨败。 我们看到拜登数十亿美元从中国购买新冠病毒检测试剂盒，因为我们已经失去了制造它们的能力。 这就像从纵火犯那里买消防用品一样。
 
-素材采编：海星
-编辑：老孙
-发布：爱放飞
+与此同时，他们在一些东西上垄断了市场，让我们的经济运转起来:我们90%的药品，我们90%的电脑芯片，我们90%的稀土矿，我们的基本经济功能需要这些东西，中国已经垄断了。 所以当我们说“美国制造”时，这不仅仅是一个人权问题，因为他们用现代奴隶制造了这些廉价的产品。
 
+这不仅是美国的就业问题，更重要的是国家安全问题。 我们不能依赖我们最大的对手来维持我们的社会运转——他们故意制造了这种依赖。 美国公司绝对是同谋。
+
+参考信息：[How China may have already won its cold war with the US with American dollars](https://www.foxnews.com/media/china-cold-war-us-economic-warfare)
+
+发稿：MG4
+![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

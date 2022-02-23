@@ -2,32 +2,27 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年2月22日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2050664/)
+## 民调：超半数韩国人认为未来10年中共国是最大的威胁
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2050725/)
 
-作者：香草山翻译部
+撰稿：追着曙光跑
+校对：鱼子酱
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO-3.jpg)
+据韩国KBS新闻2月23日的报道，美国智库21日的一项民意调查显示，超七成韩国人支持自主发展核武器，超半数韩国人认为未来10年中共国是最大的威胁。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-23-at-12.33.27.jpeg)图片来源：芝加哥全球事务委员会报告截图
+美国智库芝加哥全球事务委员会（CCGA）委托韩国Research公司于去年12月1日至4日对韩国1500名成年人进行民意调查。
 
+调查显示，71%的受访者支持韩国发展自己的核武器，26%的受访者反对。56% 的人支持美国在韩国部署核武器，40% 的人反对。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-2-2.png)
-校对：Stay文苑
+当被问及他们是否有信心在韩朝冲突的情况下美国将保卫韩国时，61% 的人回答是肯定的，36% 的人回答是否定的。
 
-编辑：Stay文苑
+当被问及他们是否认为朝鲜会放弃核武器时，只有 12% 的人回答“我认为是”，而 82% 的人回答“我不这么认为”。
 
-发稿：Stay文苑
+问及哪个国家对韩国安全构成最大威胁时，朝鲜（46%）被视为最大威胁，随后依次是中共国（33%）、日本（10%）、美国（9%）。问及10年后威胁最大的国家时，56%的人选择中共国，远高于22%的朝鲜。
 
-新闻：[https://gtv.org/broadcast/watch/62158eaf08ba8a07b1a1a883](https://gtv.org/broadcast/watch/62158eaf08ba8a07b1a1a883)
-访谈：[https://gtv.org/broadcast/watch/6215989808ba8a07b1a1ad72](https://gtv.org/broadcast/watch/6215989808ba8a07b1a1ad72)
+CCGA 表示，过去十年的民意调查显示，韩国始终有多数人支持核武器。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-4.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+信息来源：**[“한국인 71%, 자체 핵무기 개발 지지…10년 후 최대위협은 중국”](https://news.kbs.co.kr/mobile/news/view.do?ncd=5401437)**
 
  
 

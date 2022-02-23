@@ -2,42 +2,28 @@
 ---
 
 
-## 美参议员警告美国不要采取特鲁多式紧急权力
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2050901/)
+## 欧盟力推对俄一揽子制裁 德国暂停天然气管道项目
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2050957/)
 
-翻译：冰糖葫芦喵
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-43.jpg)[图片来源](https://www.eu-logos.org/2019/02/06/european-union-russia-a-two-level-relationship/)
+因乌克兰局势激化，欧盟在周一（2月21）日宣布将对俄罗斯采取制裁之后，周二继续密集磋商具体的制裁措施。而德国也与之呼应，宣布停止审批与俄罗斯之间的北溪2号天然气管道项目程序。
 
-编辑与校对：冰糖葫芦喵、灭共文明
+欧盟国家外交部长周二（2月22日）在巴黎举行特别会议，就欧盟委员会拟定的一份对俄罗斯的一揽子制裁计划进行磋商。
 
-美国《独立哨兵》（Independent Sentinel）2月22日报道，**在加拿大总理特鲁多启动《紧急状态法》将加拿大变成法西斯噩梦后，美国肯塔基州参议员兰德·保罗(Rand Paul)向美国人发出警告。特鲁多**开创了一个历史上很少人使用**的紧急权力**的先例，**这非常危险。**
+据悉，第一阶段的制裁包括四部分：一是对在表决中投票支持承认乌东分离地区的数百名俄罗斯杜马议员实施制裁，包括禁止入境欧盟国家、冻结其在欧盟的银行账户。二是对参与向分离主义分子的活动提供资金支持的企业和银行实施制裁。此外，宣布独立的地区或被排除在欧盟与乌克兰的自由贸易协定之外；最后，欧盟还将禁止俄罗斯国债在欧盟金融市场的交易。
 
-保罗在《基于政治》节目中说道：“我认为允许总统或国家元首启动《紧急状态法》是非常非常危险的。我们这里也有类似的法规，我长期以来一直反对这些法规。美国实际上有一项紧急法案，允许总统关闭互联网。”
+第二阶段制裁将针对整体的俄罗斯经济和垄断该国经济的寡头，但前提是普京下令俄罗斯军队全线越过分离武装实际控制区的”停火线”，届时这将被视为俄罗斯全面入侵乌克兰。
 
-保罗接着指出，**加拿大已经把自己变成了埃及。**埃及总统阿卜杜勒·法塔赫·塞西(Abdel Fattah Al-Sisi)一直在延长他的**紧急状态权力**，这样他就**可以任意拘留或针对政治反对派。**
+乌克兰形势急转直下，德国政府也做出更明确反应，宣布停止对备受争议的北溪2号天然气管道的运营审批。
 
+信息来源：
 
+[欧盟推动对俄制裁 德国叫停北溪2号](https://www.dw.com/zh/%E6%AC%A7%E7%9B%9F%E6%8E%A8%E5%8A%A8%E5%AF%B9%E4%BF%84%E5%88%B6%E8%A3%81-%E5%BE%B7%E5%9B%BD%E5%8F%AB%E5%81%9C%E5%8C%97%E6%BA%AA2%E5%8F%B7/a-60877034)
 
-> When Canada became Egypt . . . ruled by emergency edict that allows prohibition of public assembly, travel, and the commandeering of private companies without your day in court.[https://t.co/wvX2BydS4x](https://t.co/wvX2BydS4x)
-> — Rand Paul (@RandPaul) [February 16, 2022](https://twitter.com/RandPaul/status/1493946605942325250?ref_src=twsrc%5Etfw)
-
-
-特鲁多让加拿大成为埃及一样的独裁国家
-保罗补充说：“因此特鲁多在加拿大颁布的**紧急法令允许他做一些可怕的事情，允许他停止旅行，允许他不经审判拘留民众**。现在我们不知道他会不会这么做，但他可能会做的事情非常令人担忧。”
-
-保罗还强调，这很可能发生在纽约。未经选举的州长胡赫尔正在将她的封锁、隔离、戴口罩的权力和迫使企业服从她命令的权力编成法典。
-
-文章指出，**极左翼民主党人喜欢利用现有的法律，并将其转变成一些他们从未想过或做过的事情，比如奥巴马的医改政策。**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/兰德保罗2.jpg)美国肯塔基州参议员兰德.保罗（图片来源：维基百科）
-加拿大团体也对特鲁多的紧急状态声明进行了回击。加拿大公民自由协会(Canadian Civil Liberties Association)表示，卡车司机的干扰没有达到总理援引《紧急情况法》(Emergencies Act)所需的标准。
-
-周一，加拿大议会投票通过了《紧急状态法》的残暴使用，将用于监禁和平抗议者并在经济上打击和摧毁他们。
-
-**可以肯定地是，一个暴君一旦掌握了超越宪法赋予的权力，他就不会轻易放弃，这就是独裁者的特点。**
-
-**新闻链接：**
-
-[Rand Paul Warns Against Trudeau-Like Emergency Acts in the US (independentsentinel.com)](https://www.independentsentinel.com/rand-paul-warns-against-trudeau-like-emergency-acts-in-the-us/)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
