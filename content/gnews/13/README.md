@@ -2,24 +2,43 @@
 ---
 
 
-## 中日财经爆|加拿大宣布对俄罗斯实施经济制裁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2051093/)
+## 英国表示俄罗斯入侵乌克兰已经开始
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2051125/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片11.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fimage.shutterstock.com%2Fz%2Fstock-photo-map-of-russia-canada-sanctions-against-russia-judge-hammer-canada-flag-and-emblem-d-667017838.jpg&amp;imgrefurl=https%3A%2F%2Fwww.shutterstock.com%2Fimage-illustrati)
-加拿大总理特鲁多2月22日在莫斯科承认乌克兰分离主义地区顿涅茨克和卢甘斯克为独立国家的第二天，宣布对俄罗斯实施第一轮经济制裁。
+作者：纽约香草山教育部 Naughty(文行)
 
-特鲁多说，他的政府将禁止加拿大人与所谓的“独立国家”卢甘斯克和顿涅茨克进行所有金融交易。还将禁止加拿大人参与购买俄罗斯主权债。
 
-加拿大政府将制裁那些投票赞成承认顿涅茨克和卢甘斯克独立决定的俄罗斯议会成员。加拿大将对两家国家支持的俄罗斯银行实施额外制裁，并阻止与它们进行任何金融交易。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-45.png)
+英国高级大臣周二表示，俄罗斯对乌克兰的入侵已经开始，因此英国将对俄罗斯实施制裁。英国首相约翰逊就乌克兰危机主持了政府紧急应对会议。
 
-消息来源:
+俄罗斯总统普京周一承认乌克兰东部的两个分离地区独立后，下令向该地区部署军队，这加速了西方担心的可能引发一场大战的危机。
 
-[加拿大宣布因乌克兰危机对俄罗斯实施第一轮经济制裁](https://cn.reuters.com/article/canada-trudeau-russia-sanction-0223-idCNKBS2KS03Z?il=0)
+在普京正式承认分离地区并下令部署俄罗斯军队以“维持和平”后，路透社报道有目击者看到坦克和其他军事装备穿过分裂分子控制的顿涅茨克市。
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+英国卫生部长贾维德表示英国将对俄罗斯的侵略行为实施制裁。
+
+英国政府威胁要切断俄罗斯公司获得美元和英镑的渠道，阻止他们在伦敦筹集资金，让俄罗斯寡头无处可藏，但英国增幅尚未说明谁将受到制裁，英国首相约翰逊曾表示，制裁目标可能包括俄罗斯银行。
+
+贾维德表示，约翰逊将在向议会发表的一份声明中宣布制裁措施。
+
+新闻来源：[https://www.reuters.com/world/uk/uk-says-russian-invasion-ukraine-has-begun-2022-02-22/](https://www.reuters.com/world/uk/uk-says-russian-invasion-ukraine-has-begun-2022-02-22/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-305.jpeg)
+
+编辑/校对/发稿：滚滚长江都是水
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

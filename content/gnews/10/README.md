@@ -2,27 +2,36 @@
 ---
 
 
-## 俄乌危机！美续供乌防卫武器 调F-35、阿帕奇护北约东翼
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2051108/)
+## 中共国务院：老人赡养是个人义务，拒不赡养将违法
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2051153/)
 
-中央社华盛顿22日综合外电报导，美国总统拜登今天表示，美国会继续供应乌克兰「防卫」武器抵御俄罗斯入侵，也会部署美国部队增援东欧的北大西洋公约组织（NATO）盟邦。
+作者：台灣寶島農場—尋文客
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/160713-F-ZZ999-666_副本.jpg)
 
-拜登在白宫发表电视演说表示：「我已批准美国部队与装备进行额外行动，已经部署在欧洲，增援我们的波罗的海盟邦爱沙尼亚、拉脱维亚、立陶宛。」「让我说清楚，这些完全是我方的防卫举动。」拜登讲话后，美国国防部宣布相关细节。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-41.png)
+21日，中共国务院关于国家老龄事业发展和养老服务体系的规划正式发布。规划中提到，要建立常态化指导监督机制，督促赡养人履行赡养义务，并将能力赡养而拒不赡养老年人的违法行为纳入个人社会信用记录。
 
-美国国防部表示，将把800名步兵营特遣部队从义大利调至波罗的海地区，8架F-35战机从德国调往「北约东翼多个战斗位置」，20架AH-64阿帕契攻击直升机从德国调往波罗的海地区，另12架AH-64阿帕契则从希腊调至波兰。美国目前在欧洲临时或永久部署的军队超过9万人。
+如以上规划所描述，中共将赡养老人的责任完全推给个人。在西方文明国家，政府普遍具有完善的养老制度提供给老人，这也是政府的基本义务之一。而中共不仅将自身的义务转嫁给人民，还以执法者的身份维护其无责任底线的邪恶制度。
 
-简评：战争讲个师出有名，挑起战争者无一不给自己找一个行动的借口，哪怕做坏事也得找个充足的理由。既然俄罗斯有动作，拜登政府的援乌防御实乃北约应对危机自我防卫的恰当之举。若俄罗斯真的打火战，那么拜登政府支持的防御反击则是正义之举。
+郭文贵先生多次在大直播中强调，新中国联邦下的中国必须实行免费养老、免费教育、免费医疗等制度，将中国人的财富用于中国人民。
 
-新闻来源：[yahoo](https://tw.news.yahoo.com/%E7%BE%8E%E7%BA%8C%E4%BE%9B%E7%83%8F%E9%98%B2%E8%A1%9B%E6%AD%A6%E5%99%A8-%E8%AA%BFf-35-%E9%98%BF%E5%B8%95%E5%A5%91%E8%AD%B7%E5%8C%97%E7%B4%84%E6%9D%B1%E7%BF%BC-042629932.html)
+新闻来源：https://t.m.china.com.cn/convert/c\_SbQOlz44.html
 
-撰稿/发布：一叶知秋
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-42.jpg)
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+
+
+编辑/校对/发稿：滚滚长江都是水
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 

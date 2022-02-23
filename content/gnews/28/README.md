@@ -2,34 +2,71 @@
 ---
 
 
-## NBC北京冬奥会转播收视率堪称“灾难”
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2051013/)
+## 文•贵天成——文贵先生谈“G币、喜币、喜联储”（二十六）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2051058/)
 
-作者：纽约香草山 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月21日，据外媒报道，拥有美国地区独家转播权的全国广播公司NBC，在北京冬奥会超低迷的收视率数据上，沦为一场彻底的 “灾难”。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-22-下午11.32.43.png)
-NBC在2014年投资了77.5亿美元，获得了奥运会到2032年为止的独家美国媒体转播权。截至上周二，平均有1220万人在黄金时段观看了NBC、有线电视或其流媒体服务的奥运会，比2018年韩国首尔冬奥会下降了42%。NBC有1000万观众，比2018年下降了47%，在关键的25-54岁人群中，比首尔奥运会时下降了57%。这甚至还包括了NBC在2月13日播出奥运会后直接播出超级碗的收视率，而获得的一定提升。
+整理：BENJ1
+编辑：Kelly
 
-观众的大幅流失让NBC感到震惊，不得不承认这届奥运会因严苛的中共病毒限制措施、多国外交抵制的政治紧张气氛，还有对参与者谴责人权暴行的言论施压而被载入史册。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/5-40.png)图片来源：雅典娜农场设计组（614）
 
-分析人士称，北京冬奥会因中共政府践踏人权，犯下种族灭绝罪、反人类罪，而被观众厌恶，抵制观看。NBC标榜其为自由媒体，却屡屡其新闻语言进行伪装，通过引用中共国粉饰其罪行的言辞，为中共独裁的本质站台背书，这种“双标”手法，终于导致收视率滑坡，堪称因果报应。
 
-参考链接：[NBC’s Beijing Olympic ratings called a ‘disaster’ for network: ‘I’m stunned … There is karma in the world’](https://www.foxnews.com/media/nbc-beijing-olympic-ratings-disaster)
+郭文贵先生**2021**年**10**月**21**日盖特
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+尊敬的战友们好，这几天找我要喜币的，买喜币的，我真没办法一一回复了，兄弟姐妹们，很多给我发的信息没法回，请千万见谅。我手机里的信息有5%，甚至3%能回复都不错了，这是一个事。第二个， 要拯救的人太多太多了！还是那句话，不灭共产党都是没有用的，喜币也好，什么币也好都没用。最关键是灭掉共产党！
 
-总编：Zion文恩
-编辑：Zion文恩
-校正/发稿：呼吸的雾霾（文小呼吸）
+喜币七哥真的没有了，喜币的配额完全基于灭共你过去的参与度、法治基金的捐款，还有G系列的投资 ， 这是最关键的。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+不超过十天喜币就要上市了，这帮家伙也不告诉我具体哪一天，喜币到底哪一天上市你们到底知道不知道？上市后会是什么情况？什么价格呀？我都不知道。听说在暗网，还有在币圈都有买赌喜币上市多少钱的，涨到多少钱的，还有现在大量的人准备接受喜币。
+
+郭文贵先生**2021**年**10**月**22**日直播
+
+新中国联邦人有全世界独立发行的货币，人家会抢着让新中国联邦人（上太空）说：“来坐我的发射器去太空吧，我免费让你们去。”咱们的G-Club，还有喜币、喜联储、G-Fashion，所有的都是干这个的。2025年以后你来谈台湾、谈习，你谈什么香港还有什么马云，别人会问：“这是谁呀？” 咱们的下一代就会问：“这是谁呀？” 都忘了这些是谁了。
+
+谁都想要喜币，“七哥能不能给弄点喜币，几百个都行？” 没人敢相信，喜币现在是牛到啥程度？
+
+我告诉大家，如果有一个人能找出世界上任何一个新的金融系统，一个金融机构，包括虚拟货币，区块链的虚拟货币，像喜币、喜马拉雅KYC这么专业、拥有这么高级的团队、拥有这么完美的白皮书、拥有这么好的期待和未来的，而且它开门第一天就可以打破自己的范围性、区域性的，升值空间这么高的，你能给我找一个出来吗？
+
+日本的银行、瑞士的银行、圣彼得堡银行、曼彻斯顿的银行，所有的这些银行都是抢着来说，就凭你这个KYC，你整个的系统，佩服得五体投地。澳大利亚的两大银行说，你们不强大是不可能的！没有这样的金融系统，你能跟人家上太空玩去？你能跟世界大佬玩去？全靠共产党的垄断，像马云、像马化腾那种赚钱法？那最终会被帮你垄断者消灭，共产党现在就在消灭他们。
+
+资料来源：郭先生GTV和盖特直播视频
+
+往期回顾：
+[文·贵天成——文贵先生谈“G币-喜币”（一）](https://gnews.org/zh-hans/1582391/)
+[文·贵天成——文贵先生谈“G币-喜币”（二）](https://gnews.org/zh-hans/1584666/)
+[文·贵天成——文贵先生谈“G币-喜币”（三）](https://gnews.org/zh-hans/1586436/)
+[文·贵天成——文贵先生谈“G币-喜币”（四）](https://gnews.org/zh-hans/1588934/)
+[文·贵天成——文贵先生谈“G币、喜币、喜联储”（五）](https://gnews.org/zh-hans/1590581/)
+[文·贵天成——文贵先生谈“G币、喜币、喜联储”（六）](https://gnews.org/zh-hans/1590945/)
+[文·贵天成——文贵先生谈“G币、喜币、喜联储”（七）](https://gnews.org/zh-hans/1592917/)
+[文·贵天成——文贵先生谈“G币、喜币、喜联储”（八）](https://gnews.org/zh-hans/1593871/)
+[文·贵天成——文贵先生谈“G币、喜币、喜联储”（九）](https://gnews.org/zh-hans/1594977/)
+[文·贵天成——文贵先生谈“G币、喜币、喜联储”（十）](https://gnews.org/zh-hans/1596019/)
+[文·贵天成——文贵先生谈“G币、喜币、喜联储”（十一）](https://gnews.org/zh-hans/1596044/)
+[文·贵天成——文贵先生谈“G币、喜币、喜联储”（十二）](https://gnews.org/zh-hans/1597070/)
+[文·贵天成——文贵先生谈“G币、喜币、喜联储”（十三）](https://gnews.org/zh-hans/1598679/)
+[文·贵天成——文贵先生谈“G币、喜币、喜联储”（十四）](https://gnews.org/zh-hans/1599089/)
+[文·贵天成——文贵先生谈“G币、喜币、喜联储”（十五）](https://gnews.org/zh-hans/1599433/)
+[文·贵天成——文贵先生谈“G币、喜币、喜联储”（十六）](https://gnews.org/zh-hans/1599453/)
+[文·贵天成——文贵先生谈“G币、喜币、喜联储”（十七）](https://gnews.org/zh-hans/1601053/)
+[文·贵天成——文贵先生谈“G币、喜币、喜联储”（十八）](https://gnews.org/zh-hans/1620575/)
+[文·贵天成——文贵先生谈“G币、喜币、喜联储”（十九）](https://gnews.org/zh-hans/1620634/)
+[文·贵天成——文贵先生谈“G币、喜币、喜联储”（二十）](https://gnews.org/zh-hans/1620672/)
+[文·贵天成——文贵先生谈“G币、喜币、喜联储”（二十一）](https://gnews.org/zh-hans/1620864/)
+[文·贵天成——文贵先生谈“G币、喜币、喜联储”（二十二）](https://gnews.org/zh-hans/1622396/)
+[文·贵天成——文贵先生谈“G币、喜币、喜联储”（二十三）](https://gnews.org/zh-hans/1622425/)
+[文·贵天成——文贵先生谈“G币、喜币、喜联储”（二十四）](https://gnews.org/zh-hans/1622755/)
+[文·贵天成——文贵先生谈“G币、喜币、喜联储”（二十五）](https://gnews.org/zh-hans/1623166/)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

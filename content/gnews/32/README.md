@@ -2,28 +2,34 @@
 ---
 
 
-## 中日财经爆|俄乌冲突将油价推升至近八年来新高
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2050997/)
+## NBC北京冬奥会转播收视率堪称“灾难”
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2051013/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片4-5.jpg)
-国际石油价格周二（2月22日）一度逼近每桶100美元，此前俄罗斯下令军队进入乌克兰东部两个分离地区，但在西方国家试图阻止俄罗斯全面入侵的努力下，油价缩减涨幅，结算价接近2014年高点。
+作者：纽约香草山 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月21日，据外媒报道，拥有美国地区独家转播权的全国广播公司NBC，在北京冬奥会超低迷的收视率数据上，沦为一场彻底的 “灾难”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-22-下午11.32.43.png)
+NBC在2014年投资了77.5亿美元，获得了奥运会到2032年为止的独家美国媒体转播权。截至上周二，平均有1220万人在黄金时段观看了NBC、有线电视或其流媒体服务的奥运会，比2018年韩国首尔冬奥会下降了42%。NBC有1000万观众，比2018年下降了47%，在关键的25-54岁人群中，比首尔奥运会时下降了57%。这甚至还包括了NBC在2月13日播出奥运会后直接播出超级碗的收视率，而获得的一定提升。
 
-美国和英国宣布了针对俄罗斯银行的制裁，欧盟将更多政界人士列入黑名单，德国叫停了110亿美元的北溪二号天然气管道项目。
+观众的大幅流失让NBC感到震惊，不得不承认这届奥运会因严苛的中共病毒限制措施、多国外交抵制的政治紧张气氛，还有对参与者谴责人权暴行的言论施压而被载入史册。
 
-全球指标布兰特原油期货价格一度达到每桶99.50美元，为2014年9月以来的最高水平，最终收于每桶96.84美元，上涨1.52美元，涨幅1.5%。
+分析人士称，北京冬奥会因中共政府践踏人权，犯下种族灭绝罪、反人类罪，而被观众厌恶，抵制观看。NBC标榜其为自由媒体，却屡屡其新闻语言进行伪装，通过引用中共国粉饰其罪行的言辞，为中共独裁的本质站台背书，这种“双标”手法，终于导致收视率滑坡，堪称因果报应。
 
-美国原油期货也创下了七年来的新高，达到每桶96美元，收盘于每桶92.35美元，比上周五上涨1.28美元，涨幅1.4%。美国市场周一因公共假日休市。
+参考链接：[NBC’s Beijing Olympic ratings called a ‘disaster’ for network: ‘I’m stunned … There is karma in the world’](https://www.foxnews.com/media/nbc-beijing-olympic-ratings-disaster)
 
-美国总统拜登宣布了对俄罗斯的第一波制裁，目标是俄罗斯的银行和主权债务，并誓言如果俄罗斯继续侵略，将采取更严厉的惩罚措施。制裁未包括能源供应。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-消息来源:
+总编：Zion文恩
+编辑：Zion文恩
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-[油价收于近2014年高位 因俄乌冲突升级](https://cn.reuters.com/article/global-oil-0222-tues-idCNKBS2KS00B?il=0)
-
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
