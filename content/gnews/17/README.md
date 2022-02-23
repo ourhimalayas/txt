@@ -2,27 +2,40 @@
 ---
 
 
-## 郭文贵精品视频-是什么原因助长了习普的战争野心
-` cindy` [轉載自GNews](https://gnews.org/zh-hans/2050415/)
+## 拜登宣布对俄罗斯实施第一批制裁
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2050532/)
 
-撰稿：澳喜cindy
+美国总统拜登：
 
-郭先生很早之前就曾经告诉大家：习近平、普京二人有这个双计划。习要拿下台湾、香港即“双龙计划”，普京要拿下乌克兰。
+今天，在与我们的盟友和伙伴的密切协调下，我宣布对俄罗斯实施第一批制裁，让俄罗斯为昨天的行动付出代价。 随着俄罗斯的升级，我们将继续加强制裁。我们正在对俄罗斯两家大型金融机构——俄罗斯国家开发银行和他们的军事银行——实施全面的封锁性制裁。我们正在对俄罗斯主权债务实施全面制裁。 这意味着我们已经切断了俄罗斯政府在西方的融资。 它再也无法从西方筹集资金，也无法在我们的市场或欧洲市场交易其新的债务。从明天开始——并在未来持续的日子里——我们还将对俄罗斯精英和他们的家人实施制裁。 他们分享了克里姆林宫政策的腐败收益，也应该分享痛苦。由于俄罗斯的行动，我们已经与德国合作，以确保北溪2号项目不会继续推进。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/bd.png)
 
-几年前当时普京利用克里米亚内部造反，直接策反，克里米亚内部投票，直接回到了俄罗斯。一枪没发就拿下了克里米亚。此事发生后国际社会并没有任何人对此反对及惩罚普京。这件事让普京非常得意忘形，习近平对此事也大加赞赏“普京这一票干的漂亮，名垂青史！世界上哪有几个这样的政治家呀？”一弹不发，一子不花，就让克里米亚内部一个投票直接回俄罗斯了。这个事情极大地鼓舞了习和普京的士气，助长了他们称霸的野心。
 
-普京过去是国际大师级的政治家，跟美国闹僵、跟欧洲和英国由于投毒的案子几乎断交。而习近平给了孤独的普大帝精神安慰剂-上万亿的经济利益，并愿意跟他平分天下以共同对付美国 。
+> Today, in close coordination with our Allies and partners, I am announcing the first tranche of sanctions to impose costs on Russia in response to yesterday’s actions. 
+>  
+> We will continue to escalate sanctions as Russia escalates.
+> — President Biden (@POTUS) [February 22, 2022](https://twitter.com/POTUS/status/1496218939847847951?ref_src=twsrc%5Etfw)
 
-俄罗斯和中国合作后其军事力量是世界上的一半之多。普京和“习太阳”的合作，助长了他们俩更看不上美国和欧洲了。经过这几年的深思熟虑，周密计划，一边多次两国军演一边在美国、欧洲大肆蓝金黄各层官员，用偷技术、倾销低劣产品打垮美国经济，通过各种途径灌输中共邪恶的意识形态，使美国和西方终于呈现出了他们想要的半死不活的这种混乱的社会状态。中共终于于2019年底放出了生化武器，打响了他们大战略的第一枪，也致使美国、欧洲死伤惨重，经济陷入低谷，史诗级的金融危机即将来临，更加自顾不暇。
 
-普大帝和“习太阳”几天前在北京的密谈认为：此时是动手拿下乌克兰和台湾的最佳时机。
 
-大家接下来将看到的是两个集权的战争狂人的疯狂表演，但愿上天保佑那些无辜的人免于战争的摧残。
+比尔·格茨： 中共国官方媒体对冲进乌克兰的俄罗斯坦克保持沉默。北京间接支持普京，外交部发言人称莫斯科对北约有“正当”担忧，尤其是没有谴责俄罗斯将两块地区宣布为独立国家。 【附华盛顿邮报文章：中共国说：莫斯科对北约有“正当”的安全担忧】
 
-*编辑：cindy*
 
-【[澳喜文章1](https://gnews.org/zh-hans/author/aujenny/)】
-【[澳喜文章2](https://gnews.org/zh-hans/author/himalaya-australia/)】
+
+> China state media silent on Russian tanks rolling into Ukraine. Beijing indirectly backs Putin with Foreign Ministry spokesman saying Moscow has “legitimate” concerns on NATO and, notably, fails to condemn Russia declaring 2 enclaves independent states [https://t.co/mCoz9dUv30](https://t.co/mCoz9dUv30)
+> — Bill Gertz (@BillGertz) [February 22, 2022](https://twitter.com/BillGertz/status/1496245139299180546?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿蓬佩奥： 弗拉基米尔·普京还是我们执政期间的那个他。 唯一改变的是美国的领导地位。
+
+
+
+> Vladimir Putin is the same person he was during our administration.
+> The only thing that has changed is American leadership.
+> — Mike Pompeo (@mikepompeo) [February 22, 2022](https://twitter.com/mikepompeo/status/1496202661196140549?ref_src=twsrc%5Etfw)
+
+
 
  
 

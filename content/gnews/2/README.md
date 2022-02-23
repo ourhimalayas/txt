@@ -2,23 +2,18 @@
 ---
 
 
-## 不惧镇压自由抗议在加拿大爆发
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2050645/)
+## 樱花头条｜巴黎数千人悼念诺贝尔医学奖获得者吕克-蒙塔尼耶
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2050746/)
 
-采编：文莱         编译撰稿：苦尽甜来 (文來）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/01-image-2.png)
-据加拿大媒体【后千禧年】2月20日报道，在特鲁多政府暴力镇压渥太华长达数周的自由车队反疫苗护照运动后，支持卡车司机的浪潮在加拿大蔓延开来。无数市民走上卡尔加里和多伦多的街头，反对当局的各项强制性防疫措施。
+撰稿：东京樱花团/樱花传媒
 
-报道称，特鲁多恣意妄为地打压和平集会之举触犯众怒。卡尔加里和多伦多等城市反政府疫苗政策的抗议者们日前冒着严寒走上街头，这些热爱和平和自由的民众继续抗争以支持在渥太华正被警察摧残的自由车队。
+信息来源：
 
-此外，在美加边境地区也发生了相同的抗议活动。而最新民调显示，大多数美国人都支持加拿大自由车队，并认为有必要也在美国开展类似的运动。
+[https://gettr.com/post/pw80rj6bc3](https://gettr.com/post/pw80rj6bc3)
 
-校对编辑：硫酸羟氯喹64
-
-发稿：苦尽甜来 (文来）
-
-原文链接： [Freedom protests spread across Canada after Trudeau crackdown | The Post Millennial](https://thepostmillennial.com/freedom-protests-spread-across-canada)
-
+*编辑：东京樱花团/唯真不破小蜜蜂
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

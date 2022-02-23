@@ -2,28 +2,40 @@
 ---
 
 
-## 美方宣布取消与俄外长会谈
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2050501/)
+## 专家称俄乌开战 中共不会在军事上予以支持
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2050652/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2022/02/4-48.jpg)[图片源](https://www.dwnews.com/%E5%85%A8%E7%90%83/60277374/%E4%B9%8C%E5%85%8B%E5%85%B0%E5%B1%80%E5%8A%BF%E5%B8%83%E6%9E%97%E8%82%AF%E4%B8%8E%E6%8B%89%E5%A4%AB%E7%BD%97%E5%A4%AB%E9%80%9A%E8%AF%9D%E4%BF%83%E4%BF%84%E7%AB%8B%E5%8D%B3%E4%B8%BA%E5%B1%80%E5%8A%BF%E9%99%8D%E6%B8%A9)
-22日，美国国务卿布林肯宣布，取消原定于本周与俄罗斯外长拉夫罗夫举行的会谈。
+#### 【雅典娜快讯】紧贴时代脉搏
 
-这一决定表明，通过外交途径解决乌克兰问题的通道即将关闭。
+整理：围剿维尼熊
+编辑：小熊
 
-布林肯解释说，已与盟国达成一致，目前举行会谈没有意义，因为俄罗斯对乌克兰的入侵已经开始，俄罗斯已经明确表示了拒绝所有外交手段。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/2-89.png)图片来源：雅典娜设计组
 
-同一天，布林肯也给俄外长拉夫罗夫发了信函，告知了取消会谈。
 
-然而，布林肯强调，如果俄罗斯向国际社会作出任何表示，表明其对缓和局势和寻求外交解决方案的态度，美方也将考虑继续外交努力。
+据路透社报道，专家们表示，如果俄罗斯入侵乌克兰，中共将在外交或经济上支持俄罗斯，但绝不会提供军事支持。
 
-布林肯也参加了与到访的乌克兰外长库列巴的会晤。库列巴外长今天在华盛顿会见了拜登总统和国防部长奥斯汀。
+美国总统拜登上周五表示，俄罗斯总统普京已决定在几天内入侵乌克兰，而俄罗斯否认这一说法。
 
-[信息源](https://news.yahoo.co.jp/articles/c147e139f5e1d1baa72374bed87086a3e6f509f7)
+中共外交部一再谴责美国“散布虚假信息”并制造紧张气氛，敦促其尊重并呼应俄罗斯在安全保障方面的要求。
 
-*校对：东京樱花团/百花李香
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+为了显示团结，普京出席了2月4日北京冬奥会开幕式，与习近平共同宣布深化战略伙伴关系。中共国媒体宣称，两国将肩并肩“维护世界正义”。
+
+如果俄罗斯入侵乌克兰，将考验中共经常声明的“不干涉外交政策原则”。熟悉北京当局思路的专家说，中共肯定不想在军事上介入。在国际社会如此两极分化的情况下，美国和西方有可能将俄罗斯及中共国同时孤立或制裁。
+
+北京也不希望为俄罗斯入侵乌克兰承担经济后果，特别是今年，习近平准备展开史无前例的第三个任期，他要把“稳定”放在首位。
+
+参考链接：[专家称如果俄罗斯对乌克兰采取行动 中国会在外交上予以支持](https://cn.reuters.com/article/russia-ukraine-crisis-china-dip-0221-idCNKBS2KQ08U)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
