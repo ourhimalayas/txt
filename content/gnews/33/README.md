@@ -2,25 +2,26 @@
 ---
 
 
-## 由于没有接种加强针，法国政府停用了400万两针疫苗接种者的疫苗护照
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2051456/)
+## 中日财经爆|标普将海底捞评级列入负面信用观察名单
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2051599/)
 
-#### 翻译/撰稿：zzballack
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2107.png)[图片来源](https://www.chinaz.com/2021/1106/1325721.shtml)
+信用评级机构–标普国际周三（2月23日）表示，将中国连锁火锅龙头–海底捞的长期主体信用评级“BBB”及其未到期的优先无抵押债券的长期债项评级“BBB”列入负面信用观察名单，标普质疑海底捞能否在2022年将财务杠杆降至1.5倍以下。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-2-14.jpg)图片来源：美联社
-据《网关专家》（Gateway Pundit）2月22日报道，《法国新闻24》 (France News 24) 报道说，在过去一周，近400万已接种了两针新冠疫苗的法国公民由于没有接种加强针，他们的疫苗护照被法国政府停用。被收回护照的人实际上将被降格为未接种者，无法再参加社会的大部分活动。
+标普新闻稿并称，在人力和原材料成本居高不下的背景下，盈利波动加剧可能导致海底捞的财务杠杆持续高于1.5倍–触发评级下调的临界值。
 
-自从宣布接种第三针以来，法国政府已多次改变加强针的接种时间。起初人们有6个月的时间接种，接着先后改为3个月和7个月。目前，人们必须在上次接种后的4个月内接种加强针，才能确保疫苗通行证有效。
+“如果海底捞在改善现有门店的盈利能力方面面临困难，特别是翻台率和客流量指标，进而预示该公司2022年的杠杆水平仍将高于1.5倍，且表明业务增长和现金流生产水平不及我们预期，那么我们可能下调其评级。”标普称。
 
-要求的频繁变化肯定部分导致了许多人错过了加强针的截止日期，但是有越来越多的人根本不愿意接种更多疫苗。一位妇女在接受France 24采访时解释说，当她发现自己的疫苗接种状况变为未接种时感到很震惊，但她说她不会再打针了，因为实在是太多了。
+2026年1月4日到期的五年期海底捞美元债（票面利率2.15%）今年以来持续下跌，到期收益率目前已攀升至约6%。该笔美元债规模为6亿美元。
 
-而另一些人则无法接受失去特权。一名妇女在发现自己的疫苗护照被取消后感到非常震惊，随即接种了加强针，这正是法国政府停用护照时所希望看到的。一位18岁的女大学生说，她以为自己的时间充裕，所以一直推迟接种加强针，但通行证被停用促使她最终遵从规定。
+海底捞周一发布盈利预警称，预计2021年录得净亏损约38-45亿元人民币，上年同期盈利3.1亿元。
 
-胁迫是一个强大的使公民变为顺民的工具。
+消息来源：[海底捞遭标普列入评级负面观察名单 因财务杠杆降至1.5倍以下不确定性增大](https://cn.reuters.com/article/haidilao-sp-aaa-negative-list-0223-idCNKBS2KS0AF?il=0)
 
-新闻来源：[France Deactivates 4 Million Vaccine Passports, Forcing Double-Jabbed Citizens to Decide Between Taking the Booster or Being Shunned From Society (VIDEO)](https://www.thegatewaypundit.com/2022/02/france-deactivates-4-million-vaccine-passports-forcing-double-jabbed-citizens-decide-taking-booster-shunned-society-video/)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

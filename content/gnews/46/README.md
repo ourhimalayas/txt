@@ -2,26 +2,28 @@
 ---
 
 
-## 中日财经爆|欧盟禁止投资者交易俄罗斯政府债券
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2050983/)
+## 中日财经爆|金价触及九个月来高位 铂金类也大幅上涨
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2051004/)
 
 撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片3-8.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fstatic.themoscowtimes.com%2Fimage%2F1360%2Fb7%2F5D2765FE-556F-4D82-84A5-C18CC5DEAA81.jpeg&amp;imgrefurl=https%3A%2F%2Fwww.themoscowtimes.com%2F2021%2F05%2F21%2Frussia-sells-first-foreign-bonds-since-new-us-)
-欧盟成员国2月22日一致通过对俄罗斯实施新的制裁，将把更多政客、议员和官员列入黑名单，禁止欧盟投资者交易俄罗斯政府债券，并将与分离主义实体的进出口列为制裁目标。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片5-3.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.businessamlive.com%2Fwp-content%2Fuploads%2F2020%2F07%2Fgold-gain.jpg&amp;imgrefurl=https%3A%2F%2Fwww.businessamlive.com%2Fgold-heads-for-sixth-weekly-gain%2F&amp;tbnid=WtCzC_EEcLdpaM&amp;vet=12ahUKEwid49Gq_ZT2)
+金价周二（2月22日)触及近九个月来最高水平，但随后回落，投资者等待乌克兰危机进展，他们重新将金价定位在每盎司1,900美元的关键关口附近。
 
-然而，欧盟执委会外交及安全政策高级代表博雷利(Josep Borrell)周二在巴黎会议后表示，欧盟各国外长选择不制裁俄罗斯总统普京。
+1906 GMT，现货金下跌0.2%，报每盎司1,902.71美元，此前触及6月1日以来最高1,913.89美元。美国黄金期货上涨0.4%，至1,907.40美元。
 
-博雷利指出，俄罗斯正式承认乌克兰东部两个分离地区独立，对乌克兰主权构成不可接受的侵犯。欧盟声明称，欧盟和乌克兰的自由贸易协议也可能排除这两个分离地区。
+现货银上涨1.1%，至每盎司24.19美元，此前触及一个月高位24.35美元。
 
-周二通过的制裁措施涵盖所有投票赞成承认分离地区的俄罗斯议会下院成员，冻结他们在欧盟的任何资产，并禁止他们前往欧盟。
+“鉴于与(主要生产国)俄罗斯的紧张关系加剧，有理由担心铂金类金属的供应链，” 投资管理公司High Ridge的Meger表示。
 
-目前还不清楚制裁何时生效，但外交人士预计最快几小时、最晚几天内就将公布名单和细节。
+钯金跌0.8%，报2,368.84美元，稍早曾触及1月31日以来最高，报2,433美元。
 
-博雷利说，这些个人和实体都在俄罗斯的国防、银行和金融部门，欧盟将打击俄罗斯官方进入欧盟资本金融市场及服务的能力。参与资助乌东分离主义活动的银行也将成为目标。
+铂金上涨0.1%，报1,075.09美元。
+
+知情人士表示，如果俄罗斯进一步入侵乌克兰，美国政府可能会阻止俄罗斯获得大量低科技和高科技的美国和外国制造产品，涉及从商业电子产品和电脑到半导体和飞机零部件等一系列产品。
 
 消息来源:
 
-[欧盟各国一致同意实施新制裁以“伤害俄罗斯”](https://cn.reuters.com/article/eu-consensus-sanctions-russia-0222-tues-idCNKBS2KS00V?il=0)
+[金价触及九个月高位后回落 投资者关注乌克兰局势发展](https://cn.reuters.com/article/global-precious-metals-0222-tues-idCNKBS2KS009?il=0)
 
 *校对：东京樱花团/喜马拉雅的微尘*
 *发布：东京樱花团/tdownc2p*
