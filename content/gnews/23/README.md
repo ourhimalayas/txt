@@ -2,30 +2,38 @@
 ---
 
 
-## 中日财经爆|欧盟禁止投资者交易俄罗斯政府债券
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2050983/)
+## 欧盟推动对俄制裁，德国叫停“北溪2号”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2051024/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片3-8.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fstatic.themoscowtimes.com%2Fimage%2F1360%2Fb7%2F5D2765FE-556F-4D82-84A5-C18CC5DEAA81.jpeg&amp;imgrefurl=https%3A%2F%2Fwww.themoscowtimes.com%2F2021%2F05%2F21%2Frussia-sells-first-foreign-bonds-since-new-us-)
-欧盟成员国2月22日一致通过对俄罗斯实施新的制裁，将把更多政客、议员和官员列入黑名单，禁止欧盟投资者交易俄罗斯政府债券，并将与分离主义实体的进出口列为制裁目标。
+#### 【雅典娜快讯】紧贴时代脉搏
 
-然而，欧盟执委会外交及安全政策高级代表博雷利(Josep Borrell)周二在巴黎会议后表示，欧盟各国外长选择不制裁俄罗斯总统普京。
+整理：围剿维尼熊
+编辑：文泓
 
-博雷利指出，俄罗斯正式承认乌克兰东部两个分离地区独立，对乌克兰主权构成不可接受的侵犯。欧盟声明称，欧盟和乌克兰的自由贸易协议也可能排除这两个分离地区。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/4-50.png)图片来源：Politico EU & 雅典娜设计组
 
-周二通过的制裁措施涵盖所有投票赞成承认分离地区的俄罗斯议会下院成员，冻结他们在欧盟的任何资产，并禁止他们前往欧盟。
 
-目前还不清楚制裁何时生效，但外交人士预计最快几小时、最晚几天内就将公布名单和细节。
+据德国之声2月22日报道，因俄乌紧张局势激化，针对普京宣布承认乌东分离地区并派遣“维和部队”，当日欧盟国家外交部长在巴黎举行特别会议，就欧盟委员会拟定的一份对俄罗斯的制裁计划进行磋商。
 
-博雷利说，这些个人和实体都在俄罗斯的国防、银行和金融部门，欧盟将打击俄罗斯官方进入欧盟资本金融市场及服务的能力。参与资助乌东分离主义活动的银行也将成为目标。
+消息人士透露，第一阶段的制裁包括四部分，一是对在表决中投票支持承认乌东分离地区的数百名俄罗斯杜马议员实施制裁，包括禁止入境欧盟国家、冻结其在欧盟的银行账户；二是对参与向分离主义分子的活动提供资金支持的企业和银行实施制裁；此外，宣布独立的地区或被排除在欧盟与乌克兰的自由贸易协定之外；最后，欧盟将禁止俄罗斯国债在欧盟金融市场的交易。
 
-消息来源:
+第二阶段制裁将针对整体的俄罗斯经济和垄断该国经济的寡头，前提是普京下令俄罗斯军队全线越过分离武装实际控制区的“停火线”。
 
-[欧盟各国一致同意实施新制裁以“伤害俄罗斯”](https://cn.reuters.com/article/eu-consensus-sanctions-russia-0222-tues-idCNKBS2KS00V?il=0)
+2月21日普京签署命令，承认乌克兰东部两个分离共和国为“独立实体”后，他已下令俄罗斯军队进入乌克兰东部分离份子控制的地区进行“维和”。
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+目前乌克兰形势急转直下，德国政府宣布停止对“北溪2号”天然气管道的运营审批。德国总理肖尔茨表示，他已请求联邦经济部采取必要的行政步骤，暂不对“北溪2号”项目给予批准认证，并在对涉及“北溪2号”的问题上，也将重新予以评估。
+
+参考链接：[欧盟推动对俄制裁 德国叫停北溪2号](https://www.dw.com/zh/%E6%AC%A7%E7%9B%9F%E6%8E%A8%E5%8A%A8%E5%AF%B9%E4%BF%84%E5%88%B6%E8%A3%81-%E5%BE%B7%E5%9B%BD%E5%8F%AB%E5%81%9C%E5%8C%97%E6%BA%AA2%E5%8F%B7/a-60877034)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

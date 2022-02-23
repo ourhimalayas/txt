@@ -2,39 +2,27 @@
 ---
 
 
-## 有声|加国省长杰森肯尼挑战特鲁多紧急法案
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2050721/)
+## 民调：超半数韩国人认为未来10年中共国是最大的威胁
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2050725/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月19日消息，针对联邦自由党实施”紧急情况法”以结束卡车司机对渥太华市中心的封锁，阿尔伯塔省省长杰森·肯尼在接受Postmedia独家采访时表示，联邦政府使用加拿大最强大的法律，在目前情况下是不合理的过度扩张，违反正当程序和”侵犯”省级管辖权。并表示对此深感厌恶，将在下周初，向渥太华联邦法院提出法律挑战，以结束总理特鲁多的任意和高压行动。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide10-3.jpeg)
-另外，联邦司法部长大卫·拉梅蒂此前在CTV上暗示，联邦调查局正在考虑冻结任何用信用卡向车队捐赠者账户。
+撰稿：追着曙光跑
+校对：鱼子酱
 
-肯尼认为，如果特鲁多派冻结其政治对手的财政得逞而逍遥法外，允许联邦政府利用《紧急情况法》来履行普通警察职能骚扰对手，超越并篡夺加拿大各省执法的属地管辖权，这将为未来树立一个危险的先例。
+据韩国KBS新闻2月23日的报道，美国智库21日的一项民意调查显示，超七成韩国人支持自主发展核武器，超半数韩国人认为未来10年中共国是最大的威胁。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-23-at-12.33.27.jpeg)图片来源：芝加哥全球事务委员会报告截图
+美国智库芝加哥全球事务委员会（CCGA）委托韩国Research公司于去年12月1日至4日对韩国1500名成年人进行民意调查。
 
-肯尼代理律师将要求法官暂停使用该紧急法案。
+调查显示，71%的受访者支持韩国发展自己的核武器，26%的受访者反对。56% 的人支持美国在韩国部署核武器，40% 的人反对。
 
+当被问及他们是否有信心在韩朝冲突的情况下美国将保卫韩国时，61% 的人回答是肯定的，36% 的人回答是否定的。
 
+当被问及他们是否认为朝鲜会放弃核武器时，只有 12% 的人回答“我认为是”，而 82% 的人回答“我不这么认为”。
 
-文字版原文：[加国省长杰森肯尼挑战特鲁多紧急法案](https://gnews.org/zh-hans/2049068/)
+问及哪个国家对韩国安全构成最大威胁时，朝鲜（46%）被视为最大威胁，随后依次是中共国（33%）、日本（10%）、美国（9%）。问及10年后威胁最大的国家时，56%的人选择中共国，远高于22%的朝鲜。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+CCGA 表示，过去十年的民意调查显示，韩国始终有多数人支持核武器。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+信息来源：**[“한국인 71%, 자체 핵무기 개발 지지…10년 후 최대위협은 중국”](https://news.kbs.co.kr/mobile/news/view.do?ncd=5401437)**
 
  
 

@@ -2,35 +2,50 @@
 ---
 
 
-## 中共对蚂蚁金服展开新一轮整改
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2051023/)
+## 5G辐射与中共病毒感染之间的联系
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2051092/)
 
-整理：围剿维尼熊
-编辑：Candy
-
-**【雅典娜快讯】，紧贴时代脉搏**
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/蚂蚁.png)图片来源：雅典娜设计组
+作者：纽约香草山 信息部 6zero4
 
 
-根据德国之声中文网2月22日报道，中国的监管部门要求对和阿里巴巴旗下蚂蚁金服相关业务的投资风险展开新一轮评估。内幕人士对路透社表示，被要求重新评估风险的机构中包括国有银行及其他金融机构。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-45.png)
+最近由鲁比克(Beverly Rubik)和布朗(Robert R. Brown)联合发表在《临床与转化医学研究杂志》上的一项最新研究论文，强调了中共病毒感染症状与5G无线辐射之间的联系。中共病毒疫情是在武汉全市范围内实施5G通信后不久出现的，这初步证实了中共病毒感染与5G网络的统计相关性。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-346.jpg)图片来源：Basedunderground.com
+透过生物物理学和病理生理学的交叉边界，他们确定了5G辐射作为一种有毒的环境因素促成了中共病毒感染机制，证据如下:
 
-阿里巴巴旗下的蚂蚁金服正在按照政府要求进行大规模整改。2020年底，蚂蚁金服价值370亿美元的史上最大规模公开募股计划（IPO）被临时叫停。依照政府制定的整改计划，蚂蚁金服将被改造成一家金融控股企业。
+1） 引起红细胞的形态学改变，包括棘状红细胞，以及可导致血栓的红细胞叠连；
 
-中共已经对高科技领域颁布了一系列管控措施。由于担心中共国政府会在今年继续强化对高科技企业的管控，中共国的科技类股票周二再度下跌。阿里巴巴股票下滑了5.3%, 政府新近采取的行动要求国有企业提供同蚂蚁金服在股票投资、理财以及借贷方面各项合作的详细信息。蚂蚁金服迄今拒绝对政府的新措施发表评论。
+2） 损害微循环，降低红细胞和血红蛋白水平，加重缺氧；
 
-上月，中共国四大国有资产公司中国信达资产管理股份有限公司宣布取消了一项对蚂蚁金服的投资计划。迫于政府压力，信达公司已经放弃了在蚂蚁金服消费贷款领域投资9亿440万美元参股20%的计划。
+3） 放大免疫系统功能障碍，包括免疫抑制、自身免疫紊乱和过度炎症反应；
 
-参考链接：[http://中国政府展开针对蚂蚁金服的新一轮整改](http://中国政府展开针对蚂蚁金服的新一轮整改)
+4） 增加细胞氧化应激和自由基的产生，导致血管损伤和脏器损伤；
 
-***发布：Candy***
+5） 增加细胞内对病毒进入、复制和释放至关重要的Ca2+(钙离子)，并促进感染途径；
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+6） 加重心律失常和心脏疾病。
+
+尤其在导致中共病毒感染重疾方面，与暴露在5G环境下造成的这些不利影响密切相关！
+
+
+
+
+
+新闻来源：[https://basedunderground.com/2022/02/20/bombshell-study-confirms-link-between-5g-wireless-exposure-and-covid/](https://basedunderground.com/2022/02/20/bombshell-study-confirms-link-between-5g-wireless-exposure-and-covid/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-44.jpg)
+
+编辑/校对/发稿：滚滚长江都是水
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 

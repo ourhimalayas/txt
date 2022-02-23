@@ -2,30 +2,39 @@
 ---
 
 
-## 中日财经爆|“双减”至新东方2022上半财年亏损9亿美元
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2051070/)
+## 加拿大女星就卡车司机抗议向特鲁多喊话
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2051107/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片7-1.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fp7.itc.cn%2Fq_70%2Fimages03%2F20211028%2F8b27316e4318417cabe2bac44500e013.jpeg&amp;imgrefurl=http%3A%2F%2Fwww.sohu.com%2Fa%2F497761386_116237&amp;tbnid=DKiFv6jr43zDgM&amp;vet=12ahUKEwjNzY_KgZX2AhUqIqYKHfCgBwIQMygEe)
-中共国教培机构–新东方周二（2月22日）公布半年报显示，停止K-9学科类培训服务对总营收构成重大不利影响，截至2021年11月30日止六个月净亏损9.08亿美元，上年同期净利1.79亿美元。
+作者：银河系农场—骄子
 
-新东方刊登在港交所的2022财年上半年度报告显示，报告期内营收约19.7亿美元，去年同期为18.74亿美元；公司每股亏损0.52美元，上年同期为盈利0.14美元。
 
-公告称，除停止K-9学科类培训服务的影响外，公司终止多个学习中心租赁协议、实行裁员计划，相关支出也令报告期内成本和费用增加。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-45.png)
+近日加拿大著名好莱坞女明星Evangeline Lilly发布了视讯，她积极向特鲁多喊话，希望特鲁多能够和抗议中共病毒疫苗计划的卡车车队见面并友好交谈，而并不是将这些无辜的人归类为恐怖分子。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-96.jpg)图片来源：Theblaze.com
+据Lilly的视频，她认为真正的领导人应该尊重自己的选民，畅听选民关于强制中共病毒疫苗的意见。可以通过一起寻找解决方案来团结人民，而不是诽谤那些有更好的解决办法的人。在加拿大社会，上街抗议本来就是公民义务。但在中共病毒大流行期间，加拿大的政府和媒体都在撒谎，抗议强制疫苗的卡车车队非常友好和平，特鲁多却称他们为恐怖分子。
 
-新东方港股周二收跌约4.5%，报11.1港元，过去一年该股跌幅超过九成；其美股上周五跌约3.2%，周二盘前则一度跌逾8%。
+Lilly抨击那些撒谎的传统媒体，她认为媒体对人们洗脑，让分裂和仇恨以及偏见充斥社会，只有多增长知识，多看看周围的真实世界，不要听信大媒体的宣教。
 
-中共国去年7月底发布《关于进一步减轻义务教育阶段学生作业负担和校外培训负担的意见》，即“双减”，连续出台重拳整治校外培训机构，从课程治理到培训机构背后的资本整治不一，各地亦纷纷跟进。
+据悉Lilly参加过华盛顿的反抗中共病毒疫苗活动，她表示任何人的身体都不应该在任何强迫下被注射任何东西。
 
-中共国教育部办公厅此前印发通知，对加强教育App管理，推动与“双减”政策衔接提出明确要求，称在各地教育行政部门完成中小学线上学科类培训机构审批前，暂停中小学线上学科类培训App的备案工作；已备案的相关教育App暂时从平台下线。
+新闻来源：[https://www.theblaze.com/news/evangeline-lilly-freedom-convoy-trudeau](https://www.theblaze.com/news/evangeline-lilly-freedom-convoy-trudeau)
 
-消息来源:
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-44.jpg)
 
-[新东方2022上半财年转亏逾9亿美元 停止K-9学科培训带来重大不利影响](https://cn.reuters.com/article/new-oriental-loss-0222-tues-idCNKBS2KS00N?il=0)
+编辑/校对/发稿：滚滚长江都是水
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

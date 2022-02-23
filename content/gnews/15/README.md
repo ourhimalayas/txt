@@ -2,22 +2,22 @@
 ---
 
 
-## 中日财经爆|中共要求国企自查对蚂蚁集团的投资
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2051019/)
+## 中日财经爆|摩根大通下调罗斯股市评级
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2051088/)
 
 撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片6-3.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fs.wsj.net%2Fpublic%2Fresources%2Fimages%2FS1-IA583_ANTSUM_M_20201102091251.jpg&amp;imgrefurl=https%3A%2F%2Fcn.wsj.com%2Farticles%2F%25E4%25B8%25AD%25E5%259B%25BD%25E7%259B%2591%25E7%25AE%25A1%25E9%2583%25A8)
-路透社周二（2月22日）报道 ，三位知情人士称，中共国监管部门已要求国有企业启动新一轮检查，以查明它们对亿万富翁马云的蚂蚁集团的投资以及与该公司的其他关联。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片9.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fimage.cnbcfm.com%2Fapi%2Fv1%2Fimage%2F104856881-rts1jsik_r.jpg%3Fv%3D1544635239%26w%3D929%26h%3D523&amp;imgrefurl=https%3A%2F%2Fwww.cnbc.com%2F2018%2F05%2F29%2Fgoldman-jp-morgan-stocks-look-cheaper-but-its-)
+摩根大通分析师周二（2月22日）将俄罗斯股市评级从“增持”下调至“中性”，此前俄罗斯在承认乌克兰东部两个分离地区独立后，向这两个地区派兵。摩根大通分析师预计，俄罗斯股市近期将进一步下跌。
 
-消息人士说，监管当局要求进行检查的实体包括国有银行和非银行企业。
+俄罗斯以美元计价的RTS股指盘中稍早触及2020年以来最低，到1316 GMT时下跌1.7%。以卢布计价的MOEX指数下跌1.8%。
 
-监管当局要求这些国有企业提交与蚂蚁集团有关的股票投资、资产支持证券风险敞口以及贷款的细节。这一要求是上周提出的。目前尚不清楚这些企业是否有提交信息的最后期限，也不清楚之后是否有进一步行动。
+摩根大通分析师Elena Jouronova在一份报告中表示：“鉴于不确定性如此之高，估值如此之低，以及投资者接受俄罗斯风险的兴趣下降，无论是做多还是做空，我们在中欧、东欧、中东和非洲(CEEMEA)配置中对俄罗斯转向中性。”
 
-此举加剧了投资者对中共国政府今年继续整顿科技平台企业的担忧，引发周二科技板块继续遭到抛售。阿里巴巴股价最多下跌5.3%，至1月28日以来最低。
+股息下降带来了进一步下行风险。摩根大通补充称，当美国的政策明确旨在将俄罗斯孤立于市场之外时，俄罗斯可能无法向外国股东支付股息。
 
 消息来源:
 
-[中国监管部门要求国有企业检查对蚂蚁集团的投资–消息人士](https://cn.reuters.com/article/china-ant-group-soe-sources-0222-tues-idCNKBS2KR0S5?il=0)
+[乌克兰危机恶化之际 摩根大通将俄罗斯股市评级从“增持”下调至“中性”](https://cn.reuters.com/article/jpmorgan-chase-russia-aaa-0223-idCNKBS2KS035?il=0)
 
 *校对：东京樱花团/喜马拉雅的微尘*
 *发布：东京樱花团/tdownc2p*

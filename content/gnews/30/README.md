@@ -2,35 +2,29 @@
 ---
 
 
-## HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言 Part-10
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2050942/)
+## 有声｜中共国产科寒冬将至 人口福利不再
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2051008/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-5.png)
-**HBO-VICE 指鹿为马，对采访内容进行有目的性的剪辑，故意将郭先生关于疫苗真相、中共灭白计划的重要爆料内容，扭曲成未经证实、别有用心的虚假信息，意图彻底把郭先生杜撰成为疫苗阴谋论、以及各种谣言的推动者。对此，郭先生进行了严厉的反驳，他指出，自己的爆料从来不求回报，只为拯救更多无辜百姓的生命，所谓的未经证实，别有用心，根本是与魔共舞的主流媒体视而不见、刻意掩盖的结果，那些把公众利益、人民生命当作筹码，换取个人私利的少数财阀权贵才是真正意义上的用心险恶。**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2094.png)
-**现在，让我们一起还原事实真相的第10部分：反击HBO-VICE混乱剪辑，散布虚假信息：我们利用郭先生原视频进行回击**。
+**By:秘翻新闻**
 
-**（播放视频 **[**https://www.gettr.com/post/pkg4fq761b**](https://www.gettr.com/post/pkg4fq761b)** 时长09:59）**
+**2022-02-23**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-44.jpg)图片源自:网络
+据中共国[网易新闻](https://www.163.com/dy/article/H0Q2OEB305457FUK.html)2月22日的一则消息，根据中共国最新的卫生健康事业发展统计公报，2020年全国住院分娩的活产数约为1203万人，较2016年的1846万减少了近35%。
 
-参考链接：[采访郭文贵先生背后的真相](https://www.gettr.com/post/pkg4fq761b)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-总编/编辑：天滅中共
-校对/发稿：小野貓（文凱琳）
+2015年中共国二胎政策放开后，累积的生育需求一度集中释放，孕妇们挤爆了三甲医院产科病房。
 
-**更多资讯，更多关注**
+然而到了2016年下半年，某三甲医院妇产科的建卡量很难继续增长。第二年，科室里住院分娩量开始走低，收入下滑。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+根据国家统计局统计结果，中共国2016年出生人口数，即全面二胎政策出生人口峰值为1786万，2017年为1723万，此后连年下滑，到2021年已降到了1062万。
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+新生人口的变化，宏观上反映了这个时代最具代表性的特征——人口红利消失，存量经济到来，人口老龄化社会正式到来。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+（ 秘翻新闻 编辑/撰稿 vera ）
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+发布:星星
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-5.png)
-
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
