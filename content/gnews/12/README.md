@@ -2,34 +2,32 @@
 ---
 
 
-## 致先生
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2051359/)
+## 中共违反《维也纳公约》拘留日本驻北京大使馆人员
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2051421/)
 
-作者：喜修至真
-编辑：翼族
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/02/02234.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fp9-bk.byteimg.com%2Ftos-cn-i-mlhdmxsy5m%2F864cbb899d504df094be4a96a199fc1e~tplv-mlhdmxsy5m-q75%3A0%3A0.image&amp;imgrefurl=https%3A%2F%2Fwww.baike.com%2Fwikiid%2F2698824681327101943%3Ffrom%3Dwiki_content%26prd%3Dinnerlink&amp;tbnid=vrpBwCkONA3jeM&amp;vet=12ahUKEwicqOvzmJX2AhXeQfUHHb1GBH8QMygGegUIARCwAQ..i&amp;docid=hTzE1V46HQQD1M&amp;w=601&amp;h=400&amp;q=%E6%97%A5%E6%9C%AC%E9%A9%BB%E5%8C%97%E4%BA%AC%E5%A4%A7%E4%BD%BF%E9%A6%86&amp;ved=2ahUKEwicqOvzmJX2AhXeQfUHHb1GBH8QMygGegUIARCwAQ)
+日本驻北京大使馆一名馆员2月21日在从事一般外交活动时，突然遭到中共国当局拘留，随后在当天获释。日本外务大臣林芳正22日表示已透过外交管道向中共当局提出严正抗议，对此事“无论如何都不能忽视，绝对无法接受”。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/c59d7babfcd3c81a-scaled.jpg)图片来源：雅典娜设计组（Mr.Robot）
+日本外务省事务次官森健良22日晚间在位于东京的外务省召见中共国驻日临时代理大使杨宇，森建良对此表达严正抗议，认为中共国已明显违反《维也纳公约》，要求中共国道歉并防止再度发生类似事件；杨宇回应将转达给中共国政府。
 
+对于日方的抗议，中共国驻日本大使馆发言人23日表示，“我们不会接受日方的提议，日方应尊重中国法律。”
 
-天天提郭文贵，提Miles Guo，自然都知道是谁。现在提郭先生，自然也都知道谁是郭先生。如果只提先生，还是有很多人知道谁是先生。我没有查过先生到底字义如何，单从字义理解，“先”应是遥遥领先，先生所言、所行、所果，哪一样不是遥遥领先？“生”应是之前没有，现在有了，先生所言、所行、所果，请问之前有过吗？想到此，眼泪刷一下就下来了。之前称的“先生”其实言过其实，名不副实；唯有先生，才是真正的先生。没有比较，还真是难辨真假。
+《维也纳公约》规定外交特权与豁免权等事项，包括外交官不受驻在国拘捕。
 
-先生已是最黑暗势力的目标和对手，而先生根本没把这些黑暗势力视作对手，它们还不配。先生的目标和对手，是被忽悠被奴役的全球七十亿人民，只要先生拯救了我们，黑暗自然烟消云散。我们怎么感激先生，都不为过！
+日本驻中共国大使垂秀夫在22日晚间也前往中共国外交部，向部长助理吴江浩表达严正抗议。
 
-郭先生早是得道者，早已水火不侵，故也遭受了世界最猛烈炮火的攻击，不但遭受中共举国之力的黔驴技穷，也遭受了无数虾兵蟹将的自作聪明，先生实际上为我们挡了无数的子弹，假如没有先生，我们早已尸骨无存也是未必。
+垂秀夫在馆员被逮捕的21日即安排并通知要赴中共国外交部抗议，因中共国方面的因素，于22日晚间进行。外务省相关人士说，这名馆员是在从事一般外交活动时，遭中共国当局以违反《维也纳公约》的形式拘留，此事可能对今后的外交活动造成深刻影响；至于该馆员进行的业务内容则不便透露。
 
-没有金刚钻不揽瓷器活，先生没有金刚钻也揽不了灭“粪”的活【**注：**“粪”特指当年据说小米加步枪的共产党，又称“米共”】。数十年来，中国人头上顶着这一坨贻害万年的“粪”，毒害越来越重。其实排粪之事每个人每一天都在做，排出体内的粪便，先生当然也做，然积粪不排，粪便成了毒，所以粪的价值在于排出，方不至于毒害全身，身体若死了，哪还有粪？先生有信心让所有人，包括让粪本身，都有绝对的信心离开身体，所以先生常说“以粪灭粪”——先生的招，一定是我们做梦也想不到的，大道无形，但招招致命。瓷器国盛产“敏感瓷”，最流行的罪是“寻衅滋事”，可为每个人量身定做，先生的金刚钻，就是专干这瓷的活。
+消息来源:
 
-以上有感而发，全由心生，特以致先生！
+[日本駐北京大使館外交官一度遭拘留 日外相嚴正抗議控中方違反維也納公約](https://tw.news.yahoo.com/%E6%97%A5%E6%9C%AC%E9%A7%90%E5%8C%97%E4%BA%AC%E5%A4%A7%E4%BD%BF%E9%A4%A8%E5%A4%96%E4%BA%A4%E5%AE%98%E4%B8%80%E5%BA%A6%E9%81%AD%E6%8B%98%E7%95%99-%E6%97%A5%E5%A4%96%E7%9B%B8%E5%9A%B4%E6%AD%A3%E6%8A%97%E8%AD%B0%E6%8E%A7%E4%B8%AD%E6%96%B9%E9%81%95%E5%8F%8D%E7%B6%AD%E4%B9%9F%E7%B4%8D%E5%85%AC%E7%B4%84-020410339.html)
 
-*发布：tianzhihuan*
+[中国、日本大使館員を一時拘束「身分にそぐわぬ活動に従事」…日本は謝罪要求](https://www.yomiuri.co.jp/world/20220223-OYT1T50076/)
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,29 +2,29 @@
 ---
 
 
-## 郭文贵精品视频-中俄联手发动战争的真正目的
-` cindy` [轉載自GNews](https://gnews.org/zh-hans/2051331/)
+## 【秘翻在线】接种了三针疫苗的法国网球选手孟菲尔斯因健康问题退赛
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2051403/)
 
-撰稿：澳喜cindy
+#### 翻译/撰稿：zzballack
 
-普京和习近平从来没像今天那么需要一场战争来解决自己内部的巨大压力和经济压力。看似政治野心实则是习太阳、普大帝的个人政治安危、个人安全所需。
+#### 校对：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2105.png)图片来源：Tennis World
+据《The Covid World》2月22日报道，目前世界排名第25位的法国头号男子网球选手盖尔·孟菲尔斯 (Gaël Monfils) 2月22日通过其个人推特帐户宣布，由于新冠疫苗加强针引发的健康问题，他将无法参加下周开始的戴维斯杯 (Davis Cup)网球赛。
 
-普京这次诉求的不仅仅是打乌克兰，他是要彻底拿下欧洲。他的计策就是拖刀计——我就不打，不死不活，把欧洲人的经济拖死、吓死你。最后俄罗斯实施西输“北溪2号”能源天然气政策和俄罗斯整个能源政策。他要占据整个欧洲，长期让欧洲的肝上插上俄罗斯天然气和能源这个吸血管。而且欧洲必须要站在俄罗斯这边。美国要么有理由让他不打乌克兰，要么美国撤出欧洲，欧洲是他普京的。
+孟菲尔斯在推特上写道：“我遇到了一个小的健康问题（可能是在我接种了第三针疫苗后），在医生的建议下，我决定花时间休息。因此很不幸，我将无法参加下周的戴维斯杯比赛。”
 
-而习近平，他要拿下台湾，把亚洲划为他的势力范围。这个世界习要跟美国平分江山或者习说了算。
 
-所以习普联手上演了痞子政治。最终目的干乌克兰、台湾是假，用乌克兰和台湾干掉美国、干掉欧洲是真。习普之间有惊天秘密，意图发动战争并赌美国不敢打，把乌克兰和台湾作为一个牺牲品。
 
-习普二人抱团取暖，打台湾和乌克兰是为了他俩的政治利益、个人政治安全的野心的需要，跟所谓的国家利益、民族利益、恩怨，一点关系没有。
+> [pic.twitter.com/JEG16vPhLj](https://t.co/JEG16vPhLj)
+> — Gael Monfils (@Gael\_Monfils) [February 22, 2022](https://twitter.com/Gael_Monfils/status/1496124356501590024?ref_src=twsrc%5Etfw)
 
-郭先生认为：乌克兰的事不只在普京手里，是在普京和习、和美国总统、和欧联盟的手里。大家都在玩乌克兰。恐怕乌克兰这张牌非被玩烂了不可。
 
-西方正在借乌克兰消磨习、普的意志，也就是对他们超限战。不论他们是否打台湾或乌克兰，他们都将覆灭。
 
-*编辑：cindy*
+孟菲尔斯本赛季势头强劲，并获得了两年来的首个单打冠军。他是第二位因为疫苗副作用而不得不离开球场的法国网球运动员。之前，法国另一位网球明星杰瑞米·查迪 (Jeremy Chardy)在去年8月接种了辉瑞新冠疫苗后，9月份出现了严重的不良反应，不得不远离球场。自去年夏天的美网公开赛以来，查迪至今没有打过一场比赛，世界排名也从接种前的73位跌至第138位。
 
-【[澳喜文章1](https://gnews.org/zh-hans/author/aujenny/)】
-【[澳喜文章2](https://gnews.org/zh-hans/author/himalaya-australia/)】
+新闻来源：
+
+[Gael Monfils: French No. 1 Tennis Star Pulls Out After Health Problems Caused By COVID-19 Booster Shot](https://thecovidworld.com/gael-monfils-french-no-1-tennis-star-pulls-out-after-health-problems-caused-by-covid-19-booster-shot/)
 
  
 
