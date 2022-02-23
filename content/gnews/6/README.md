@@ -2,12 +2,20 @@
 ---
 
 
-## 2月23日文贵大直播摘要（图片1-7）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2055036/)
+## 中文世界的专家
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2055139/)
 
-设计：五月花农场 水涨船高
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3A4250CA-2FD2-4BED-91C5-2CD1A9348176.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/FDE010E7-BC93-4438-AA51-17DFF0F9AF74.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/21324534-384D-4CA9-93C7-8218FE906B83.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/FD0AC2CA-E6E8-444C-B70D-51F37AA0B0C1.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/46661453-A615-45DE-929A-2E36A61EB7FC.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/5AD85E7A-FB9B-4BD0-9AD8-019C814D36BC.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/503F5045-BC1B-49D6-B385-C30558487DB0.jpeg)
-发布：水涨船高
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
+
+*发布：陶子*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

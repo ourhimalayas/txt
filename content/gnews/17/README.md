@@ -2,30 +2,48 @@
 ---
 
 
-## 大直播后记：疫苗经济和造假
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2054747/)
+## 中共下令对所有香港居民进行强制性中共病毒测试
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2055010/)
 
-整理：清水冷香、Lucy Liu
-编辑：lili112333
+作者：纽约香草山农场 – 四季
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2163.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
 
-华为现在内部的一个高管跟我说的:“七哥，华为有5G吗？根本扯犊子的事情”。我和大家讲过，5G一个长波段短波段的问题，它根本不是武器，它能把整个习太阳忽悠到以一国之力对抗美国,胡扯的就是！他说中国这个造假，包括最近华为要把一系列的、过去并购的技术赔钱全卖掉。这是一个华为，芯片全都是造的假。
 
-那你这回疫苗来了，这个疫苗经济习到处喊：我们要共享疫苗经济，疫苗后经济！这是啥概念？这是有人给习太阳说了，这未来马上疫苗就赚大钱啊，咱们就搞这个，习太阳说：“对呀，就拿这个威胁西方去，你看我这造药市场有卖药的多，十几亿人，一人一针，十几亿针是吧，你是卖给我药啊，我也可以造药啊”。这就来了，这就是所谓的疫苗后经济。 现在黑龙江哈药一厂、二厂、四厂，还有做那个猪流感的，也开始做人类疫苗了。所有厂子发现这都可以做疫苗，但他知道那里边有没有用。只要我不给你放敌敌畏，那就可以是吧。这就是整个中国的悲剧，全世界有什么事，它先复制，利用流行来欺骗大众。
 
-东北黑龙江一个战士给我发信息，就是那天我说了这个抓虱子的事情。战友说:“你看看啊七哥，这是我的一个表嫂，一搂头，你看到虱子在那里动”。他手机放大，能吓死你。一头都是虱子，一拨拉都往炕上掉,然后掀开那炕上的被子,他说：“你看了七哥能恶心死你，白虱子、黑虱子，白虱子是没吃饱的，黑虱子是吃饱了的，这被子没人用，都是那白皮虱子”。所以说，你看中国人，他可怜到什么程度呢？ 你知道他告诉我说：七哥看化肥（价格），他说是170块钱，去年是90块钱，今年是170，他说那叫什么安化肥，已经270了。他说:“你说这农民怎么活呀？”就这老百姓，他给我录的那个——“坚决听党的，党要打疫苗就打疫苗，打了两针不管用，三针才好使”。用东北话说：我真想削你啊。无知的程度你没办法。
 
-资料来源：2022年2月24日文贵大直播
+据[网管专家](https://www.thegatewaypundit.com/2022/02/china-strengthens-hold-hong-kong-ordering-compulsory-covid-tests-citizens/)2月22日报道，周二，香港行政长官林郑月娥下令所有香港居民在下个月进行强制性中共病毒测试。香港将设立数百个检测站，检测顺序将根据出生年份决定。
 
-发布：Lish
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Hong-Kong-1.jpg)[图片来源](https://www.thegatewaypundit.com/2022/02/china-strengthens-hold-hong-kong-ordering-compulsory-covid-tests-citizens/)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+所有香港居民都必须接受强制性的Covid-19测试，并将进行三轮测试。全港每天将进行多达100万次测试，而测试结果将被转发到中共国。这表明，中共可能会将香港居民加入到他们迄今为止收集的DNA的报告清单中。
+
+疫情期间，严苛的强制措施和对商业活动的遏制已经让香港恢复正常的可能性越来越小，香港的繁荣将不复存在。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2月.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 

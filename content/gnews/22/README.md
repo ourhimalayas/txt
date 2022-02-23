@@ -2,38 +2,20 @@
 ---
 
 
-## Covid疫苗的三种新副作用
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2054619/)
+## 秘翻在线:人民银行要求实体银行必须办理现金业务
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2054661/)
 
-编译：七龙珠
+撰稿：西枫westca
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/coronavirus-covid-vaccine-zh-hero-edited-1.jpg)图片来源：allaboutvision.com
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-14.jpg)图片来源：网络照片
+据人民网2月22日报道，人民银行、银保监会要求，凡设有实体网点的商业银行、农信社等机构必须办理人民币存取业务。
 
-欧洲药品管理局（EMA）在其最新报告中承认存在冠状病毒疫苗的三种新的副作用。这些不良反应是对那些已知的不良反应的补充，其中发烧、疲倦和头痛是最常见的，而偏瘫、脊髓炎和淋巴结的出现是一些最奇怪的情况，尽管在接受第三剂疫苗的人中也很常见，无论是辉瑞还是Moderna。
+近期银行金融机构在现金服务方面意愿下降，部分网点如北京中关村银行、辽宁振兴银行等已宣布停止办理人民币现金业务，此外有些农信社、外资银行网点、个别大行网点也停办现金存取业务。2021年第4季度人民银行还对32家拒收现金单位进行过经济处罚。因此此次金融机构人民币现金服务工作座谈会要求，人民币现金是国家法定货币，现金服务是最基础的金融服务，要认识到人民币现金服务的重要性，不断提升现金服务能力和水平。
 
-Covid疫苗有三个新的副作用：
+当天，中共央行发出公告，央行存取5万说明来源用途的规定因技术问题暂缓实施。 此规定如果实施，对中共国的经济将是一场灾难。
 
-—— 多形性红斑
-
-—— 肾小球肾炎
-
-—— 肾病综合征
-
-每种副作用包括什么？
-
-多形红斑是圆形的皮肤病变，可出现在皮肤甚至粘膜上，而肾小球肾炎是肾脏中过滤器的炎症，肾病综合征是一种肾脏疾病，导致肾脏在过滤废物时排除大量的蛋白质。
-
-目前，EMA仍在调查这些新的Covid疫苗副作用之间的关联，以查明这些影响是否是由因果关系造成的，或者是否是偶然的，是否归因于接种的毒剂。
-
-**参考资料：**[levante-emv][Los tres nuevos efectos secundarios de la vacuna del covid](https://www.levante-emv.com/vida-y-estilo/salud/2022/02/22/vacuna-covid-efectos-secundarios-eritema-multiforme-glomerulonefritis-63012338.html)
-
-* * *
-
-*审核：Aries的星
-校对：信心满满
-发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-3.jpeg)
+**新闻来源：**[两部门：设有实体网点的商业银行必须办理现金存取业务–经济·科技–人民网 (people.com.cn)](http://finance.people.com.cn/n1/2022/0222/c1004-32357197.html)
 
  
 
