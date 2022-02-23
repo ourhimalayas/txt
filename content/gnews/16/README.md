@@ -2,24 +2,44 @@
 ---
 
 
-## 中日财经爆┃俄乌危机加剧 虚拟币全面下跌
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2052542/)
+## 有声|美国优化能源公司首发便携式“无人机灭霸”
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2052774/)
 
-撰稿：东京樱花团｜麗子
-![](https://lh3.googleusercontent.com/Etr5iihxxwuZaz8VdfmA7pdXoqGPGGarZpyi0ts-Q-AKPIF_rOfKLbj_paYzci645HjpD1SAZZm0vR-6eDlkgjOH6Y8RfQuAQuAhOjeeNUpIf72unkb-pV_EOPp6FsZR73B6YMbg)[*图片来源*](https://forbesjapan.com/articles/detail/45035)
-据CoinDesk数据显示，受乌克兰紧张局势影响，加密资产价格继续全面下跌，其中比特币在24小时内下跌了6.5%，22日跌至36,649美元。比特币在上周末跌破40000美元，此后持续下跌。
+配音：香草山农场 – 信念7
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+美国加利福尼亚州洛杉矶，当地时间2022年2月14 日，一家先进电子化战争解决方案提供商，宣布推出一款率先上市的固态、移动和紧凑型多发射高功率微波 (HPM) 系统。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%BE%AE%E6%B3%A2%E6%AD%A6%E5%99%A8.jpg)
+该公司的系列产品利用固态、软件定义的高功率微波 (HPM) 技术，为一系列用户案例提供无与伦比的电子化武器作战效果。 破坏和摧毁无人机系统 (UAS) 中的关键电子元件。 通过精确和区域火力消灭单个无人机或整群无人机。
+新推出产品可实现一系列任务能力，并通过多种挂载选项最大限度地提高便携性，可直接进入威胁环境，从而完成多层防御系统。
+无人机战争始于 1973 年的赎罪日战争，当时以色列成功地使用有针对性的无人机引诱埃及发射防空导弹并耗尽其防空系统。
+无人机打击是由一架或多架无人作战飞行器或武器化商用无人机进行的空袭。目前，众所周知，美国、以色列、中国共产党、伊朗、意大利、印度、巴基斯坦、俄罗斯、土耳其和波兰可生产制造可操作的 UCAV（无人作战飞行器）。
+美国军用无人机因斩首塔利班领导人和伊朗革命卫队指挥官苏莱曼尼而闻名于世。
+近年来，中国共产党军方的无人机被用来在干预其他国家的地区政治冲突中，进行发动攻击使用。
+据新中国联邦爆料革命，郭文贵先生在此前直播中爆料称，中共军方在阿富汗、哈萨克斯坦等国政局混乱期间，曾在阿富汗、哈萨克斯坦等地进行无人机袭击，并策划无人机袭击拉美国家和台湾。
+在阿富汗，中共特种部队潜入阿富汗，部署进攻型无人机部队，为塔利班武装人员提供空中火力支援，这也是阿富汗政府士兵最终向塔利班投降的主要原因之一。
+美国便携式“无人机灭霸”的首次亮相，必将加强美国在未来区域战争中的空中防御能力，尤其可以更有效有力的消灭中共军方部署的大批无人机群。
 
-在去年11月创下68,990美元的高点后，在地缘政治紧张局势、美国加息和全球经济衰退等因素影响下，再加上主要国家对加密资产的监管，比特币价格已经下降了近一半。
 
-以太坊在过去24小时内也下跌了8%以上，跌至2520美元。
 
-专家表示，在可预见的未来，受乌克兰局势影响，比特币价格将继续波动。世界局势风云变幻，各种虚拟币跌跌不休，问风景哪边独好，唯[**喜币**](https://himalaya.exchange/)稳如泰山。
+文字版原文：[美国优化能源公司首发便携式“无人机灭霸”](https://gnews.org/zh-hans/2044927/)
 
-信息来源：[**ビットコイン続落、２４時間で６．５％安　ウクライナ緊迫で**](https://news.yahoo.co.jp/articles/fb32cd3135b1681c6e4db8b45f07d659f4ebb210)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
