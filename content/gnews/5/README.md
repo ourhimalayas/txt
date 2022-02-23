@@ -2,29 +2,26 @@
 ---
 
 
-## 有声｜中共国产科寒冬将至 人口福利不再
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2051008/)
+## 中日财经爆|摩根大通下调罗斯股市评级
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2051088/)
 
-**By:秘翻新闻**
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片9.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fimage.cnbcfm.com%2Fapi%2Fv1%2Fimage%2F104856881-rts1jsik_r.jpg%3Fv%3D1544635239%26w%3D929%26h%3D523&amp;imgrefurl=https%3A%2F%2Fwww.cnbc.com%2F2018%2F05%2F29%2Fgoldman-jp-morgan-stocks-look-cheaper-but-its-)
+摩根大通分析师周二（2月22日）将俄罗斯股市评级从“增持”下调至“中性”，此前俄罗斯在承认乌克兰东部两个分离地区独立后，向这两个地区派兵。摩根大通分析师预计，俄罗斯股市近期将进一步下跌。
 
-**2022-02-23**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-44.jpg)图片源自:网络
-据中共国[网易新闻](https://www.163.com/dy/article/H0Q2OEB305457FUK.html)2月22日的一则消息，根据中共国最新的卫生健康事业发展统计公报，2020年全国住院分娩的活产数约为1203万人，较2016年的1846万减少了近35%。
+俄罗斯以美元计价的RTS股指盘中稍早触及2020年以来最低，到1316 GMT时下跌1.7%。以卢布计价的MOEX指数下跌1.8%。
 
-2015年中共国二胎政策放开后，累积的生育需求一度集中释放，孕妇们挤爆了三甲医院产科病房。
+摩根大通分析师Elena Jouronova在一份报告中表示：“鉴于不确定性如此之高，估值如此之低，以及投资者接受俄罗斯风险的兴趣下降，无论是做多还是做空，我们在中欧、东欧、中东和非洲(CEEMEA)配置中对俄罗斯转向中性。”
 
-然而到了2016年下半年，某三甲医院妇产科的建卡量很难继续增长。第二年，科室里住院分娩量开始走低，收入下滑。
+股息下降带来了进一步下行风险。摩根大通补充称，当美国的政策明确旨在将俄罗斯孤立于市场之外时，俄罗斯可能无法向外国股东支付股息。
 
-根据国家统计局统计结果，中共国2016年出生人口数，即全面二胎政策出生人口峰值为1786万，2017年为1723万，此后连年下滑，到2021年已降到了1062万。
+消息来源:
 
-新生人口的变化，宏观上反映了这个时代最具代表性的特征——人口红利消失，存量经济到来，人口老龄化社会正式到来。
+[乌克兰危机恶化之际 摩根大通将俄罗斯股市评级从“增持”下调至“中性”](https://cn.reuters.com/article/jpmorgan-chase-russia-aaa-0223-idCNKBS2KS035?il=0)
 
-（ 秘翻新闻 编辑/撰稿 vera ）
-
-发布:星星
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321.jpg)
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,37 +2,27 @@
 ---
 
 
-## 有声|中共国音乐界将发生金融阿比比事件
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2050661/)
+## 俄乌危机！全球粮仓若陷战火，粮食通胀来袭！
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2050816/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月20日，郭文贵先生在大直播节目中爆料，中共国内的音乐界、娱乐界即将发生颠覆性的大事，而中共国的金融、房地产将会开启新一轮的恶化和崩塌。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-46.jpg)
-郭先生表示，中共实际第二号政治人物彭丽媛的精神状况非常不好，原因是演艺界、音乐界在冬奥会后将会发生颠覆性质的剧变。此前，为了营造出“国泰民安”的冬奥氛围，中共是严禁本国的房地产业在此期间出现破产现象，而被中共一贯用于洗黑钱的娱乐界、歌星、明星们，他们背后链接的一系列经济丑闻也不容许在这一时期被媒体曝光。而目前，中共的经济崩塌已到了纸包不住火的程度。
+俄乌情势加速全球通膨上扬，台湾今年万物皆涨的情况恐难避免。中央大学台经中心执行长吴大任表示，接下来两星期的发展是影响全球的关键，若「维和」执行任务成功，影响不大；现在最怕新仇加旧恨，真的打起来，俄罗斯甚至打进乌克兰首都，由於春天将进入玉米、小麦等粮食产季，全球主要粮仓失火，恐将进一步推升通膨压力。
 
-同时，郭先生向世界预警，中共国将会迎来一场金融阿比比事件，届时，中共的房地产业会开启一个新的恶之轮回。而这次的金融阿比比事件，将从中共的音乐界开始。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1030346321_0-113-1201-792_600x0_80_0_0_4efe62788c19c205b5378b006baf0533_副本.jpg)图片来源：俄罗斯卫星通讯社
 
+吴大任据统计指出，乌克兰是全球第5大小麦出口国，市占率10%，玉米出口也超过10%，葵花籽油、大麦也占有一席之地，俄罗斯出口小麦在全球市场占20％，更跃居第一名，两国在春天、农产品产季打仗，不只影响生产，也阻碍出口，全球最主要的粮仓发生战火，对粮食供应、价格将会产生重大冲击。
 
+简评：郭文贵先生的爆料中，曾多次建议战友们根据自身的情况合理的储备些粮食，饥饿才是重大的灾难，不要在未来的危机中没有吃的！如今俄乌局势紧张，大战一触即发，全球两大粮食供应国春季若打仗，未来的粮食危机指日可待！
 
-文字版原文：[中共国音乐界将发生金融阿比比事件](https://gnews.org/zh-hans/2045453/)
+寒冷的“冬季”将要来了，准好一切准备才能顺利“过冬”，“春天”的曙光需要我们一同努力来度过这场灾难！愿一切安好，和平止战！
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+新闻来源：[中时新闻网](https://www.chinatimes.com/newspapers/20220223000369-260102?chdtv)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+撰稿/发布：一叶知秋
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

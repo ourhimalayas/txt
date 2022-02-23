@@ -2,39 +2,41 @@
 ---
 
 
-## 有声|加国省长杰森肯尼挑战特鲁多紧急法案
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2050721/)
+## 美参议员警告美国不要采取特鲁多式紧急权力
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2050901/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月19日消息，针对联邦自由党实施”紧急情况法”以结束卡车司机对渥太华市中心的封锁，阿尔伯塔省省长杰森·肯尼在接受Postmedia独家采访时表示，联邦政府使用加拿大最强大的法律，在目前情况下是不合理的过度扩张，违反正当程序和”侵犯”省级管辖权。并表示对此深感厌恶，将在下周初，向渥太华联邦法院提出法律挑战，以结束总理特鲁多的任意和高压行动。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide10-3.jpeg)
-另外，联邦司法部长大卫·拉梅蒂此前在CTV上暗示，联邦调查局正在考虑冻结任何用信用卡向车队捐赠者账户。
+翻译：冰糖葫芦喵
 
-肯尼认为，如果特鲁多派冻结其政治对手的财政得逞而逍遥法外，允许联邦政府利用《紧急情况法》来履行普通警察职能骚扰对手，超越并篡夺加拿大各省执法的属地管辖权，这将为未来树立一个危险的先例。
+编辑与校对：冰糖葫芦喵、灭共文明
 
-肯尼代理律师将要求法官暂停使用该紧急法案。
+美国《独立哨兵》（Independent Sentinel）2月22日报道，**在加拿大总理特鲁多启动《紧急状态法》将加拿大变成法西斯噩梦后，美国肯塔基州参议员兰德·保罗(Rand Paul)向美国人发出警告。特鲁多**开创了一个历史上很少人使用**的紧急权力**的先例，**这非常危险。**
+
+保罗在《基于政治》节目中说道：“我认为允许总统或国家元首启动《紧急状态法》是非常非常危险的。我们这里也有类似的法规，我长期以来一直反对这些法规。美国实际上有一项紧急法案，允许总统关闭互联网。”
+
+保罗接着指出，**加拿大已经把自己变成了埃及。**埃及总统阿卜杜勒·法塔赫·塞西(Abdel Fattah Al-Sisi)一直在延长他的**紧急状态权力**，这样他就**可以任意拘留或针对政治反对派。**
 
 
 
-文字版原文：[加国省长杰森肯尼挑战特鲁多紧急法案](https://gnews.org/zh-hans/2049068/)
+> When Canada became Egypt . . . ruled by emergency edict that allows prohibition of public assembly, travel, and the commandeering of private companies without your day in court.[https://t.co/wvX2BydS4x](https://t.co/wvX2BydS4x)
+> — Rand Paul (@RandPaul) [February 16, 2022](https://twitter.com/RandPaul/status/1493946605942325250?ref_src=twsrc%5Etfw)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+特鲁多让加拿大成为埃及一样的独裁国家
+保罗补充说：“因此特鲁多在加拿大颁布的**紧急法令允许他做一些可怕的事情，允许他停止旅行，允许他不经审判拘留民众**。现在我们不知道他会不会这么做，但他可能会做的事情非常令人担忧。”
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+保罗还强调，这很可能发生在纽约。未经选举的州长胡赫尔正在将她的封锁、隔离、戴口罩的权力和迫使企业服从她命令的权力编成法典。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+文章指出，**极左翼民主党人喜欢利用现有的法律，并将其转变成一些他们从未想过或做过的事情，比如奥巴马的医改政策。**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/兰德保罗2.jpg)美国肯塔基州参议员兰德.保罗（图片来源：维基百科）
+加拿大团体也对特鲁多的紧急状态声明进行了回击。加拿大公民自由协会(Canadian Civil Liberties Association)表示，卡车司机的干扰没有达到总理援引《紧急情况法》(Emergencies Act)所需的标准。
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+周一，加拿大议会投票通过了《紧急状态法》的残暴使用，将用于监禁和平抗议者并在经济上打击和摧毁他们。
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+**可以肯定地是，一个暴君一旦掌握了超越宪法赋予的权力，他就不会轻易放弃，这就是独裁者的特点。**
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**新闻链接：**
+
+[Rand Paul Warns Against Trudeau-Like Emergency Acts in the US (independentsentinel.com)](https://www.independentsentinel.com/rand-paul-warns-against-trudeau-like-emergency-acts-in-the-us/)
 
  
 

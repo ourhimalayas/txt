@@ -2,23 +2,32 @@
 ---
 
 
-## 港闻｜林郑盼3岁以上幼童疫苗接种率达九成 港人怒斥“为求连任丧心病狂 ”
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2050896/)
+## 比尔·马赫抨击中共人权纪录
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2051012/)
 
-**撰文/ 港台前线｜发布日期/ 23/02/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/林鄭盼3歲以上幼童疫苗接種率達九成-港人怒斥「為求連任喪心病狂-」.jpg)
-**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
+作者：日本东京方舟农场—Miyali7768(文玉）
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月18日，比尔·马赫在”与比尔·马赫的实时”节目中，抨击中共骇人听闻的人权纪录。谈及在北京冬奥会为中共争夺金牌的美国滑雪运动员谷爱玲时，马赫毫不畏惧地告诉观众，选择一个代表极权主义的警察国家来统治美国，一点也不酷。他指出，作为美国公民的谷爱玲代表中国争夺冠军的可耻决定，成了中共国战胜西方的生动象征。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-22-下午11.32.37.png)
+马赫呼吁为彭帅的失踪，对维吾尔人的种族灭绝及可怕的待遇，对香港的压迫，中国拒绝承认台湾的事实，及中共在人权方面缺乏基本素养等进行追查。驳斥所谓中共国在某种程度上并不坏，因为美国也有自己的问题的谬论。
 
-特首林郑月娥在22日傍晚的例行记者会上表示，为了应对近期不断攀升的疫情确诊率，政府打算缩短第二及第三针新冠疫苗的接种间隔，令更多市民可在短期内接种两剂疫苗，另外，她期盼至今年4月㡳前，本港 3至11 岁幼童以及60岁以上居于安老院舍的长者，均达至九成接种率。
+希望马赫的实时节目能唤醒更多西方人，与世界正义联盟一起对抗中共。
 
-林郑月娥强调，她本人真诚鼓励各位家长尽快携子女接种疫苗，因为“打疫苗是爱护孩子的表现，带他们去打针，让他们愉快的成长。”
+参考链接：[Bill Maher Nukes China’s Horrific Human Rights Record, Slams Americans Bowing Down To The CCP](https://dailycaller.com/2022/02/19/bill-maher-china-human-rights-record-video-eileen-gu/)
 
-林郑的这番言论，引起一众愤怒的市民刷爆在线记者会的实时评论区，有网友指出“所幸香港还可以看到境外新闻，外国许多儿童在接种疫苗后患上心脏疾病，严重者甚至死亡，也就是说，带孩子打针等同送孩子去死。”；亦有网友质问林郑“为了讨好中共，毁了香港还嫌不够，是否想灭了所有香港儿童才肯罢休，为了连任，泯灭良知都不觉羞耻，非要去到丧心病狂的程度吗？”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-有评论人士担忧，林郑政府可能会在未来短期内释出更严厉的“谷针”措施，若有市民继续坚持不打针，接下来可能寸步难行。
+总编：Zion文恩
+编辑：静言
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-来源｜[特首例行記者會](https://www.youtube.com/watch?v=VTH1JLgTcaU)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

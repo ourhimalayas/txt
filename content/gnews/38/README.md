@@ -2,37 +2,24 @@
 ---
 
 
-## 有声|郭先生揭密习普二人密谈内容
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2050690/)
+## COVID-19 最新情報｜英國31歲樂壇紅人突發心臟病去世 網民追究死亡真相
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2050870/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在2月18日的大直播中，郭文贵先生揭密了习近平与普京的密谈内容，指出他们发动战争的根本目的，是为其个人安全和政治利益服务。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-48.jpg)
-郭先生透露，习近平将中国人一万多亿美元的血汗钱交给普京，换来他们两个多小时的单独密谈。无非就是习近平在怂恿普京，二人同时发动侵略战争，其代价是美国的制裁，把中俄踢出SWIFT系统。但是二人的政治地位会得到空前的巩固，一切政治对手也都会被消灭。如果不发动战争，那么中俄内部的政治斗争，则会让二人丧命。因为一切对外战争，都是内部政治灾难的延续，对中共和俄罗斯来说尤其如此。这两场战争看似政治野心，实则是习近平和普京个人安全和政治安危所需。
+**撰文｜疫情關注組 / 發佈時間｜23/02/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/英國31歲樂壇紅人突發心臟病去世-網民追究死亡真相.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：**[**https://gettr.com/post/pl6k0218bf**](https://gettr.com/post/pl6k0218bf)**)**
 
-郭先生进一步解密说，乌克兰其实是世界政治中的一枚棋子，美国和欧洲正在利用乌克兰人民的生命和安全，来消磨习普二人的意志。他们无论是否发动侵略战争，都无法避免灭亡的命运。
+英國樂壇紅人兼 YouTube 明星，今年31歲的賈馬爾·愛德華茲（Jamal Edwards）據報於上週日（20日）死於他位於倫敦西部的住所。
 
+起初，外界都沈浸在對死者的惋惜之中，直到賈馬爾的母親，女星布倫達·愛德華茲（Brenda Edwards）在向公眾證實兒子死訊時，無意中透露，賈馬爾的死亡是「突然疾病」引起的，而他從小到大的親密好友德韋恩（Dwayne）則更具體指明，所謂的「突發疾病」是「突發心臟病」。
 
+不僅如此，德韋恩還提到，就在離世的前一天晚上，賈馬爾還應邀去酒吧打碟，當時他的狀態相當好，而且相識多年，從未聽說他的心臟有問題。德韋恩向媒體表示：「賈馬爾是倫敦西部地區的傳奇人物，他的離世對我們所有人的打擊都很大，何況他正值壯年，為何會如此突然地走了，真是令人震驚。」
 
-文字版原文：[郭先生揭密习普二人密谈内容](https://gnews.org/zh-hans/2045456/)
+賈爾馬死於「突發心臟病」的消息立即引起全球網民的注意，更將「賈馬爾死因（Jamal Edwards cause of death）」迅速頂上推特熱搜.
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+有人質疑，為什麼搜遍全網都找不到賈馬爾的疫苗接種情況，但若賈馬爾沒有接種疫苗，他根本不可以在死前一天的晚上能夠出席酒吧演奏。另外還有網民斥責當局和媒體聯手掩蓋死因是不顧公眾利益的表現，倘若疫苗真的有問題，更應該公開，讓還未發病的人儘早得到治療，避免悲劇重演。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+來源｜[MyLondon](https://www.mylondon.news/news/uk-world-news/jamal-edwards-died-sudden-heart-23175406)
 
  
 

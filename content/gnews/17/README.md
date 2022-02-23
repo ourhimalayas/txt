@@ -2,35 +2,34 @@
 ---
 
 
-## 瑞士信贷银行泄漏的资料显示其为犯罪洗钱间谍活动提供温床
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2050911/)
+## 英首相警告乌克兰或将危及台湾
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2051014/)
 
-作者：**银河系农场-骄子**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-5.png)
-**2月20日，有媒体披露，最近，瑞士信贷银行的数据发生异常泄漏，一位不愿暴露身份的人士向一家德国媒体泄露了18000多个该银行的账户信息，共持有1000多亿美元。这些账户显示，该银行为一些国家元首、情报官员、受制裁的商人和侵犯人权的罪犯持有大量资金，他们中有的人曾向恐怖分子提供援助，有的人则卷进了一些旷日持久的腐败丑闻。**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2092.png)
-**据悉，尽管瑞士的银行长期被法律禁止不得参与和犯罪活动相关的资金转移，但执法并不到位。并且瑞士银行强烈反对法律对自身的指控。瑞士的两家银行巨头，瑞士信贷以及前段时间郭文贵先生终于上诉成功的瑞银UBS，他们所谓的银行保密法，为那些想要藏匿黑钱或者要为犯罪洗钱、逃税的人提供了巨大的便利。**
+作者：台湾宝岛农场dobi
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月19日，海外媒体报导，英国首相鲍里斯•约翰逊在慕尼黑安全会议上针对目前俄乌情势发表言论，他表示：在乌克兰受到入侵、威胁时，如果西方国家不能兑现支持乌克兰主权的承诺，无异于在对全球宣告，俄罗斯的行为可能是正确的。这将对包括台湾在内的民主国家造成破坏性的后果。美国众议院情报委员会主席、众议员亚当•希夫也有类似的看法，
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-22-下午11.32.48.png)
+当前，尽管俄罗斯否认准备入侵乌克兰，但由俄罗斯军队在乌克兰边境附近集结，总统普京已经启动战略核导弹部队演习的态势看来，普京的意图仍很难预测，俄乌危机仍很严峻。
 
-**美国和其他国家一直在试图打击这些银行。消息人士称，保护金融隐私的借口让瑞士银行肆无忌惮地从事了更多犯罪活动。**
+约翰逊认为，在中共一直将台湾视为其领土的一部分，并且不排除使用武力犯台的情况下，西方国家面对俄罗斯入侵乌克兰问题的态度，将会对后续台海情势发展或危机产生不可轻忽影响力。
 
-参考链接：[大量洩密事件暴露了瑞士信貸如何為強人和間諜服務](https://gnews.org/wp-admin/post.php?post=2050911&amp;action=edit)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-总编：**飞虹**
-编辑：**天滅中共 **
-校对/发稿：小野貓（文凱琳）
+参考链接：
+1）[英首相：若西方未能支持烏克蘭 將危及台灣](https://www.epochtimes.com/b5/22/2/19/n13590249.htm)
+2）[UK sees threat to Taiwan if West does not support Ukraine](https://english.alarabiya.net/News/world/2022/02/19/UK-sees-threat-to-Taiwan-if-West-does-not-support-Ukraine)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+
+总编：Zion文恩
+编辑：飞虹
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-5.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,29 +2,32 @@
 ---
 
 
-## 俄克拉荷马州宣布不能惩罚开伊维菌素的医生
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2050884/)
+## 中日财经爆|金价触及九个月来高位 铂金类也大幅上涨
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2051004/)
 
-2022-02-22
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片5-3.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.businessamlive.com%2Fwp-content%2Fuploads%2F2020%2F07%2Fgold-gain.jpg&amp;imgrefurl=https%3A%2F%2Fwww.businessamlive.com%2Fgold-heads-for-sixth-weekly-gain%2F&amp;tbnid=WtCzC_EEcLdpaM&amp;vet=12ahUKEwid49Gq_ZT2)
+金价周二（2月22日)触及近九个月来最高水平，但随后回落，投资者等待乌克兰危机进展，他们重新将金价定位在每盎司1,900美元的关键关口附近。
 
-翻译：武松
-![](https://assets.gnews.org/wp-content/uploads/2022/02/4PS4P2UQYFYNMW_6Q8EO.png)图片来源：https://www.naturalnews.com
-尽管联邦政府的官僚们已经武断地决定美国人不应该使用伊维菌素，但是俄克拉荷马州总检察长约翰·奥康纳说，至少他所在州的医生在他们的专业权力范围内可以为治疗中共冠状病毒而开伊维菌素。众所周知羟氯喹 (HCQ) 也是如此，这是联邦腐朽的官僚下令禁止美国人使用的另一种列入黑名单的药物，因为它实际上可能有助于预防中共病毒的严重感染。
+1906 GMT，现货金下跌0.2%，报每盎司1,902.71美元，此前触及6月1日以来最高1,913.89美元。美国黄金期货上涨0.4%，至1,907.40美元。
 
-总检察长办公室认为，州医疗执照委员会没有法律依据来惩戒有执照的医生做出正确的判断并安全地开出 FDA 批准的药物，如伊维菌素或羟氯喹用于治疗中共病毒患者，总检察长办公室既不宽恕，也不谴责针对中共病毒的特定治疗方案，而是应该在患者和医生之间做出适当的医疗保健决定，政府不应干涉。伊维菌素和羟氯喹都已获得美国食品药品监督管理局 (FDA) 的批准数十年，直到最近这两种药才被妖魔化为“驱马剂”和“水族清洁剂”，这两种药也都被列入世界卫生组织 (WHO) 的基本药物标准清单，因为它们在治疗包括流感在内的一系列疾病方面非常有效，伊维菌素和羟氯喹是安全有效的药物，副作用风险极小。尽管伊维菌素和羟氯喹已经被证明是安全的，全国各地的家庭不得不上法庭迫使医院让他们为亲人开具该处方药物，而医生们的医疗执照却会因此受到吊销的威胁。
+现货银上涨1.1%，至每盎司24.19美元，此前触及一个月高位24.35美元。
 
-**评：**伊维菌素和羟氯喹多年以来都被证明是绝对安全的药物，但是黑暗势力却极力阻止人们为了防控和治疗中共病毒而开具该类药物，甚至威胁吊销开具此类药物医生的执照，因为他们的阻止导致千万人得不到及时的预防和治疗，从而命丧黄泉。在新中国联邦的引领下，全世界正快速醒来，必将邪恶黑暗势力击垮，扫进历史的垃圾堆里。
+“鉴于与(主要生产国)俄罗斯的紧张关系加剧，有理由担心铂金类金属的供应链，” 投资管理公司High Ridge的Meger表示。
 
-原文链接：
+钯金跌0.8%，报2,368.84美元，稍早曾触及1月31日以来最高，报2,433美元。
 
-[Oklahoma AG declares medical boards cannot punish doctors for prescribing ivermectin](https://www.naturalnews.com/2022-02-22-oklahoma-ag-medical-boards-cannot-punish-ivermectin.html)
+铂金上涨0.1%，报1,075.09美元。
 
-编辑：LILY
-发布：肥鯮
+知情人士表示，如果俄罗斯进一步入侵乌克兰，美国政府可能会阻止俄罗斯获得大量低科技和高科技的美国和外国制造产品，涉及从商业电子产品和电脑到半导体和飞机零部件等一系列产品。
 
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+消息来源:
+
+[金价触及九个月高位后回落 投资者关注乌克兰局势发展](https://cn.reuters.com/article/global-precious-metals-0222-tues-idCNKBS2KS009?il=0)
+
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

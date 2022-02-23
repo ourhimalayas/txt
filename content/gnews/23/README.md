@@ -2,35 +2,30 @@
 ---
 
 
-## 中共决定制裁向台湾军售的美军工企业
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2050845/)
+## 中日财经爆|欧盟禁止投资者交易俄罗斯政府债券
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2050983/)
 
-作者：**首尔天池农场-八木**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-5.png)
-**2月21日，中共外交部发言人汪文斌在例行记者会上宣称，美国向台湾地区出售武器，严重违反一个中国的原则和中美联合公报817公报的规定，严重损害中国主权、中美关系和台海和平稳定，称中共政府决定对长期参与美国向台湾地区出售武器的美国军工企业——雷神技术公司和洛克希德·马丁公司——的行为实施反制。**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2090.png)
-**据悉，美国国务院2月7日批准了一项对台出售1亿美元的爱国者系统的计划，这是拜登政府执政以来第二次批准对台军售计划。**
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片3-8.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fstatic.themoscowtimes.com%2Fimage%2F1360%2Fb7%2F5D2765FE-556F-4D82-84A5-C18CC5DEAA81.jpeg&amp;imgrefurl=https%3A%2F%2Fwww.themoscowtimes.com%2F2021%2F05%2F21%2Frussia-sells-first-foreign-bonds-since-new-us-)
+欧盟成员国2月22日一致通过对俄罗斯实施新的制裁，将把更多政客、议员和官员列入黑名单，禁止欧盟投资者交易俄罗斯政府债券，并将与分离主义实体的进出口列为制裁目标。
 
-**中共也不是第一次叫嚣对美国企业实施制裁了，****2020****年****10****月，中共就曾声称对雷神、波音等公司进行制裁。不过，有观察人士指出，始终没有看到有数据资料显示所谓****“****中共制裁****”****对美国企业产生何种影响。这种虚张声势的****“****制裁****”****恐怕最终只能沦为全球的笑柄。**
+然而，欧盟执委会外交及安全政策高级代表博雷利(Josep Borrell)周二在巴黎会议后表示，欧盟各国外长选择不制裁俄罗斯总统普京。
 
-参考链接：[「反制」對台軍售 中國「又」嚷著制裁洛馬、雷神](https://newtalk.tw/news/view/amp/2022-02-21/712990)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-总编: **飞虹**
-编辑:**天滅中共**
-校对/发稿：小野貓（文凱琳）
+博雷利指出，俄罗斯正式承认乌克兰东部两个分离地区独立，对乌克兰主权构成不可接受的侵犯。欧盟声明称，欧盟和乌克兰的自由贸易协议也可能排除这两个分离地区。
 
-**更多资讯，更多关注**
+周二通过的制裁措施涵盖所有投票赞成承认分离地区的俄罗斯议会下院成员，冻结他们在欧盟的任何资产，并禁止他们前往欧盟。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+目前还不清楚制裁何时生效，但外交人士预计最快几小时、最晚几天内就将公布名单和细节。
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+博雷利说，这些个人和实体都在俄罗斯的国防、银行和金融部门，欧盟将打击俄罗斯官方进入欧盟资本金融市场及服务的能力。参与资助乌东分离主义活动的银行也将成为目标。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+消息来源:
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[欧盟各国一致同意实施新制裁以“伤害俄罗斯”](https://cn.reuters.com/article/eu-consensus-sanctions-russia-0222-tues-idCNKBS2KS00V?il=0)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-11.png)
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

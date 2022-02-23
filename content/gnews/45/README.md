@@ -2,27 +2,32 @@
 ---
 
 
-## 郭文贵精品视频-是什么原因助长了习普的战争野心
-` cindy` [轉載自GNews](https://gnews.org/zh-hans/2050415/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年2月22日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2050664/)
 
-撰稿：澳喜cindy
+作者：香草山翻译部
 
-郭先生很早之前就曾经告诉大家：习近平、普京二人有这个双计划。习要拿下台湾、香港即“双龙计划”，普京要拿下乌克兰。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-GNEW-GTV-MOS-LOGO-3.jpg)
 
-几年前当时普京利用克里米亚内部造反，直接策反，克里米亚内部投票，直接回到了俄罗斯。一枪没发就拿下了克里米亚。此事发生后国际社会并没有任何人对此反对及惩罚普京。这件事让普京非常得意忘形，习近平对此事也大加赞赏“普京这一票干的漂亮，名垂青史！世界上哪有几个这样的政治家呀？”一弹不发，一子不花，就让克里米亚内部一个投票直接回俄罗斯了。这个事情极大地鼓舞了习和普京的士气，助长了他们称霸的野心。
 
-普京过去是国际大师级的政治家，跟美国闹僵、跟欧洲和英国由于投毒的案子几乎断交。而习近平给了孤独的普大帝精神安慰剂-上万亿的经济利益，并愿意跟他平分天下以共同对付美国 。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-2-2.png)
+校对：Stay文苑
 
-俄罗斯和中国合作后其军事力量是世界上的一半之多。普京和“习太阳”的合作，助长了他们俩更看不上美国和欧洲了。经过这几年的深思熟虑，周密计划，一边多次两国军演一边在美国、欧洲大肆蓝金黄各层官员，用偷技术、倾销低劣产品打垮美国经济，通过各种途径灌输中共邪恶的意识形态，使美国和西方终于呈现出了他们想要的半死不活的这种混乱的社会状态。中共终于于2019年底放出了生化武器，打响了他们大战略的第一枪，也致使美国、欧洲死伤惨重，经济陷入低谷，史诗级的金融危机即将来临，更加自顾不暇。
+编辑：Stay文苑
 
-普大帝和“习太阳”几天前在北京的密谈认为：此时是动手拿下乌克兰和台湾的最佳时机。
+发稿：Stay文苑
 
-大家接下来将看到的是两个集权的战争狂人的疯狂表演，但愿上天保佑那些无辜的人免于战争的摧残。
+新闻：[https://gtv.org/broadcast/watch/62158eaf08ba8a07b1a1a883](https://gtv.org/broadcast/watch/62158eaf08ba8a07b1a1a883)
+访谈：[https://gtv.org/broadcast/watch/6215989808ba8a07b1a1ad72](https://gtv.org/broadcast/watch/6215989808ba8a07b1a1ad72)
 
-*编辑：cindy*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-4.png)
 
-【[澳喜文章1](https://gnews.org/zh-hans/author/aujenny/)】
-【[澳喜文章2](https://gnews.org/zh-hans/author/himalaya-australia/)】
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
