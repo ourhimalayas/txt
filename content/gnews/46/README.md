@@ -2,36 +2,39 @@
 ---
 
 
-## 普京出兵乌克兰东部引发世界经济动荡
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2053271/)
+## DC每日热点0223
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2053318/)
 
-作者：纽约香草山农场 – Noemi
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月21日，据相关媒体消息显示，俄罗斯总统普京于此前一天承认了乌克兰东部的两个分离地区已经独立，随后，其立即下令俄罗斯国防部向它们派遣了所谓的“维和”部队。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/10-18.jpg)
-有目击者表示，俄罗斯的坦克等军事装备目前已经穿过了分离主义控制的城市——顿涅茨克。同时，普京的这些举动加剧了西方对于乌俄之间发生重大战争的担心。
+编辑：楚门门
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8410F16C-3399-4758-9CA1-C4E0A54E4FDE-scaled.jpeg)
+道琼斯指数 33596.61 ▼1.42%
+纳斯达克指数 13381.52 ▼0.23%
+WTI纽约原油CFD 91.695▼0.21%
+布伦特原油CFD 93.813 ▼0.04%
+标普50指数 2,700.73▼56.31%
+美元兑人民币 1USD=6.312 RMB
+美元兑港币 1USD=7.803 HKD
+国际黄金 1901.80美元/盎司
+全球CCP病毒感染人数428,760,419例
 
-另一方面，随着乌克兰军事危机的升级，世界经济也正在经历着巨大的动荡。据悉，全球的石油价格眼下已经跃升至七年以来的最高水平；而日元等避险货币则出现大幅反弹；此外，美、欧地区的股票和期货近期持续暴跌。数据表明，在普京发表讲话时，卢布的跌幅一度超过17%，滑落至每美元可兑换80卢布有余。
+1、 疫情危急香港推全民强检 成败或影响林郑连任
+2、美议员点名习明泽在美读研 提案禁止中共高官子女来美深造
+3、朝鲜正在利用全球对加密货币缺乏监管控制来窃取数字货币，为其核武器和导弹计划提供资金
+4、拜登宣布采取加强关键矿物质供应链的行动，终止对中共国的依赖
+5、美国总统拜登22日切断了俄罗斯政府的国际融资渠道并对两家大型银行实施制裁
+6、联合国人权专家：中共国与俄罗斯向缅甸军政府提供武器杀戮平民
+7、中共国今称拒绝将台湾与乌克兰局势相提并论
+8、超过6成台湾民众认定，北京不会在俄国入侵乌克兰之时侵占台湾
+9、欧盟将制裁俄国防部长和俄总统办公厅主任等个人和实体
+10、美国国务卿布林肯：已取消与俄罗斯外长会晤
+11、海牙国际法院审罗兴亚人种族灭绝案：今决定谁有权庭前应诉
+12、瑞信银外泄数据显示宋楚瑜曾存款1367万瑞士法郎遭宋否认
+13、日本首相岸田文雄宣布对俄罗斯的制裁措施
+14、英国制裁俄罗斯5银行3大亨 议员要求加大惩罚护台
+15、澳洲宣布首轮对俄制裁措施，确保与美国和英国等盟友对俄实施的制裁“同步”
+16、俄乌危机 德国宣布停止北溪2号天然气项目
+17、43议员致信拜登 要求他向乌派兵须获国会授权
 
-此前 ，郭文贵先生曾在盖特中评论称，无论俄乌局势怎样变化，俄、美、欧三方最终会达成合作协议。但在这场军事危机的背后，经济损失最惨重的一定会是中共国和全球所有的普通民众。
-
-参考链接：
-1) .[Putin orders troops to Ukraine after recognizing breakaway regions](https://www.reuters.com/markets/europe/kremlin-says-no-concrete-plans-summit-with-biden-over-ukraine-2022-02-21/)
-2) . [2/21/2022 文贵盖特：中共体制内官员也知中共大势已去；俄美总统要会面，普京是否会弃习投美欧？](https://www.gettr.com/post/pw07zs2799)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
-
-总编: Irene木木
-编辑: 飞虹
-校正/发稿：Fei797
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

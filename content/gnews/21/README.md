@@ -2,28 +2,41 @@
 ---
 
 
-## 有声|香港大学研究表明 男性确诊中共病毒可致睪丸受损
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2053947/)
+## 数据显示接种Covid-19疫苗的妇女死产和流产的风险显著增高
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2054033/)
 
-配音：香草山巡管部– 文凯琳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月20日，一家英文媒体披露了香港大学微生物学系的一项最新研究结果，该研究用两组仓鼠进行中共病毒实验，结果表明，感染中共病毒的后遗症除了肺功能、记忆力等可能不及以往，雄性生育能力也有可能降低。
+**评论：***疫苗没有起到任何免疫作用，文中显示的胎儿致死率是震撼人心的，不要打疫苗，能救一个是一个。*
 
-研究人员发现，中共病毒病毒可导致仓鼠睾丸组织退化。感染冠状病毒的仓鼠出现慢性不对称睾丸萎缩，睾丸的大小和重量减少。
+据《dailyexpose.uk》 作者：[Josh Guetzkow](https://jackanapes.substack.com/?utm_source=substack&amp;utm_medium=web&amp;utm_campaign=substack_profile)，2022年2月19日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2142-e1645633922886.png)图片来源：PAHO.ORG
+以色列Rambam医院的数据显示，在从未接种过COVID-19疫苗的妇女中，死胎、流产和堕胎（SBMA）比率为6%，而在至少接种过一剂疫苗（且从未感染过SARS-Cov-2）的妇女中则为8%。
 
-文字版原文：[香港大学研究表明 男性确诊中共病毒可致睪丸受损](https://gnews.org/zh-hans/2049101/)
+归纳起来：在2家不同的以色列医院，2021年见证了明显高于前两年的死胎、流产和堕胎率，与2019年和2020年相比，有些月份的SBMA数量创下了记录。对于我们有数据比较接种疫苗和未接种疫苗的妇女的一家医院来说，接种疫苗的妇女的SBMAs比率比未接种疫苗的妇女高34%。
 
-音频处理/发稿：Daxia
+如果不讨论一下数据中关于怀孕期间感染SARS-CoV-2的妇女的情况，那是不对的。有7名这样的妇女在这一时期分娩，其中2人出现死胎或流产。这是一个6.2%（CI 1.2-32.3）比率。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+虽然这个几率比远高于接种疫苗妇女群体的比率，但该医院所有妇女在怀孕期间感染SARS-CoV-2的比例极低（0.17%）。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+在一个理智的世界里，这些数据将是震撼人心的。以色列卫生部将立即停止为孕妇接种COVID-19疫苗，并展开彻底调查。我们能肯定地说，疫苗是这些模式的原因吗？不，就这些数据而言不能。
+
+但没有人可以肯定地说，疫苗没有起到任何作用。但预防原则以及‘首先，不伤害的誓言’要求我们采取行动。
+
+文章有删减。
+
+文章来源: [https://dailyexpose.uk/2022/02/19/covid-jab-increases-risk-of-miscarriage-stillbirth/](https://dailyexpose.uk/2022/02/19/covid-jab-increases-risk-of-miscarriage-stillbirth/)
+
+翻译：洛杉矶盘古农场 – Mike Li
+校对：洛杉矶盘古农场 – 轰炸机
+评论：洛杉矶盘古农场 – 轰炸机
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – 子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

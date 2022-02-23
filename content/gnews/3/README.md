@@ -2,77 +2,35 @@
 ---
 
 
-## 2022年2月23日文贵先生直播摘要及音频—银河系农场
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2054213/)
+## 七哥的破产律师是全美国第一大
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2054282/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/snapshot-8.jpg)
-盖特连接：[2022年2月23日 文贵大直播：普京群狼战术夺乌克兰；解封 英 澳 法 日 集体免疫；锁链女引人权安全恐慌；七哥何以掌握世界大事](https://gettr.com/streaming/pwbjub06c5)
+文编：Hima
+听写：叮叮
+视频：七哥
 
-G-TV连接：[2022年2月23日 文贵大直播：普京群狼战术夺乌克兰；解封 英 澳 法 日 集体免疫；锁链女引人权安全恐慌；七哥何以掌握世界大事；继2月18日大直播后 世界发生了哪些改变；喜币、喜贷款、喜抵押](https://gtv.org/video/id=62162fe908ba8a07b1a1ea8a)
+2022-02-16直播摘录10：41：02
 
-1、带“维”字都是共产党的情报机构（多维）；
+七哥的破产律师是全美国第一大，全美国第一，记住啊，帮七哥破产的律师是全美国第一大。在10年前主张了一个高盛和美林的那个600亿破产也是他做的，你去查查他，非常大的，叫Bill, William Bill,非常非常棒的那个律师啊。他就…他们真的是看出案子简直都是，没有一个律师看我这个案子不觉得这是不可思议的，是吧？所以说七哥这个个人破产的案子，来了个美国全第一的，全天下第一的破产律师。然后七哥个人破产，七哥各人破产以后最重要的事情，他说：“不可思议！” 所有的就昨天咱们那个大卫的姐夫说，他说：“就在你个人宣布破产的时候，喜币还在涨钱，所有跟随你的穷战友全都赚钱，而且GTV每天每时每刻都是涨钱。”GFashion、GClubs、GNews、盖特是何其伟大啊！盖特是刚刚那个好像通过安卓的叫GVision版，还有这个可能有今天就可能是APP版上线了。
 
-2、带“神”字都是共产党海外骗钱的机构（神华）；
+我不想拥有财富，就像新中国联邦要干掉共产党，我不想拥有权力一样。我真的，我觉得兄弟姐妹们，昨天你七嫂子说句话，“以后就吃饭啥的”，我跟你七嫂说：“你想想咱就是有钱，咱俩能吃啥？” 七哥每天只吃一顿饭，我每天只吃一顿饭，你说我现在就吃个馒头能多少钱呢？吃包子、饺子、馒头，吃这点东西是七哥最爱吃的饭，你告诉我能花多少钱？穿西装我可以天天换一套西装，我可以一年就穿一套西装，他又能值多少钱？就你七哥这长相，穿啥衣裳不好看呢？是不是？我穿着要丐服的衣服，都能穿出世界时尚出来是不是？衣服算啥？又能花几个钱？车，你说我上哪去，美国弄个好车，那就像真的是个人到那儿就租个车，是个人都弄车，太容易了。而且你说这些车那么多在那儿你不用买新的，车又那么简单，是不是？你说现在连飞机，上哪飞去啊？你飞哪儿去啊？是不是？美国就这么大，是吧？你还不能现在，现在不能去英国，也不能去日本，又没有飞机。坐船船票一样坐，你不坐私人游船，你怎么都一样，坐火车票价一样，你告诉我在美国，你告诉我用什么花钱？我什么需要花钱？兄弟姐妹们，是不是啊？
 
-3、48%的输往欧洲德国的气都是从云溪1号2号走。虽然法律上说停止供气，但实际并没少输送；
+律师费，唯一的就是律师费，律师费是由家族来支付，是不是？非常幸运，我有个自己完全独立的儿子和女儿，他们经济上独立，生活上独立，完全可以。过去在中国最多的是什么，叫啃爹族，专门啃爹的，现在七哥挺幸运的，是养爹族，我有一个儿子、闺女可以养着爹啊，没问题啊，他们就这一个爹，能养得非常好，是不是？这些问题都是不存在任何问题的。所以说在这个时候你去想到，兄弟，老天爷是公平的，给你七哥一个养爹的儿女，不是啃爹的儿女。还有一个过去七哥做过这么多善事，有这么多人愿意资助七哥，任何人请七哥吃多少饭、买多少礼物，你买飞机大炮，只要送给我的，这没有人不受任何破产的这个约束。
 
-4、普京要求欧洲和美国必须法律承诺北约不东扩，可以商量打不打乌克兰；
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-5、西方签署了“北约不东扩”协议被普京一下子公开到外交部网站上；
+**关注我们**
 
-6、俄罗斯会“帮助”我们消灭共产党，但是中国人要付出沉重的代价；
+Discord 账号
 
-7、路德（王腚肛）要用30万建设自己的音乐间，要股份，要地位；
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-8、火鸡龚 在法制基金要求拍电影一集30万美元；
+Gettr 账号
 
-9、疫苗灾难：45亿人打了疫苗，20亿人会受到疫苗伤害，5-10亿会直接面临死亡和伤残；
-
-10、造病毒的，造疫苗的，造解药都是一拨人（共产党）；
-
-11、OMICRON 带来最大危害是病毒会进入大脑，会诱发窒息，血栓，失忆；
-
-12、中共国的绑架、拐卖妇女案件在全国范围都是常态；
-
-13、彭副主席彭丽媛在山东彭泽的亲表哥也是买的”拐卖女”；
-
-14、文贵先生准备的歌曲“锁链梦”，这就是中国人的锁链梦；
-
-15、共产党最近爆赵本山丑闻，为了掩盖锁链女的事件；
-
-16、在俄罗斯和其他国家有多个战友场外交易买卖喜币，价格分别80、100、210美元一个；
-
-17、爆料革命今年会爆出，中共国无数个锁链女事件；会有很多个授权撤离；甜蜜蜜运动，不止2环内，会响遍世界；
-
-18、新中国联邦的所有利好，都在今年年底，钱！哗哗地流；
-
-19、喜贷款：喜币10%抵押率；
-
-**注：大直播音频正在制作和上传中，敬请关注****——**
-
-**（大直播音频位置）**
-
-编辑整理：文俊；
-
-发布：黎明之前；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
