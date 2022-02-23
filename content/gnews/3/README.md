@@ -2,26 +2,25 @@
 ---
 
 
-## 香港因奥密克戎疫情熔断八国航班
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2053088/)
+## 加拿大律师敦促取消紧急状态法
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2053106/)
 
-撰稿：东京樱花团｜Garrettw
+采编/编译撰稿：苦尽甜来(文来）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/03-image-2.png)
+据【多伦多太阳报】2月21日报道，加拿大多名大律师近日联名致信给国会议员，反对特鲁多政府擅用《紧急状态法》来处理全国性和平抗议活动，并呼吁议会立即投票取消该法案的实施。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/香港因奥密克戎疫情熔断八国航班.png)[*图片来源*](https://images.7news.com.au/publication/C-5197408/29e45076be47f9612aa2dfc8490158a8a226b71a.jpg?imwidth=828&amp;impolicy=sevennews_v2)
+律师团在信中指出，实施《紧急状态法》的标准非常严格，联邦政府必须在国家安全明确遭受威胁的突发情况下，才能宣布公共秩序进入紧急状态。并将因此对加拿大公民自由形成重大挑战。
 
-在中共病毒（Covid-19）奥密克戎（Omicron）疫情爆发后，香港已禁止来自八个国家航班，包括澳大利亚、加拿大、法国、印度、巴基斯坦、菲律宾、英国和美国。香港特区政府2月23日公布，将延长这些国家实施的地区性航班“熔断机制”至4月20日。
+目前，特鲁多已根据《紧急状态法》发布命令，要求金融机构向警方报告那些支持或参与抗议活动者的个人财务信息，并对违法者处以罚款和最高五年的监禁。
 
-由于对当地奥密克戎传播的担忧不断增加，林郑月娥星期二说，恢复该市与中国大陆之间的正常旅行“必须再等一段时间”。
+律师函还强调，当局试图通过强推[紧急状态法]来证明其对民众的和平抗议活动，以及那些反独裁政府的抗议者所采取的暴力镇压方式是正当合法的。而这无疑是对加拿大民主制度最致命的打击。
 
-飞行禁令是在香港的奥密克戎在飞行人员中爆发后发布的，行政长官林郑月娥星期三告诉记者：“来自这些国家的客运航班将不允许在香港降落，在这些国家停留过的个人不允许登上飞往香港的航班，包括过境航班。”
+校对编辑：硫酸羟氯喹64
 
-香港当局已经出台了一些其他限制措施以打击中共病毒在这个城市的传播，这些限制措施包括取消大型公共活动和关闭15种不同类型的服务业，包括酒吧、健身房、夜总会和美容院。
+发稿：苦尽甜来 (文来）
 
-消息来源：[**Hong Kong bans flights from eight countries, including Australia, amid Omicron outbreak**](https://7news.com.au/news/world/hong-kong-bans-flights-from-eight-countries-including-australia-amid-omicron-outbreak-c-5197408)
+新闻来源: [OPINION: Canadian lawyers urge rejection of Emergencies Act | Toronto Sun](https://torontosun.com/opinion/columnists/opinion-canadian-lawyers-urge-rejection-of-emergencies-act)
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

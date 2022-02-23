@@ -2,54 +2,79 @@
 ---
 
 
-## 48位顶尖科学家呼吁停止对人类潜在灭绝威胁的功能增强研究
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2053045/)
+## 文·贵天成——文贵先生谈“G币、喜币、喜联储”（三十一）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2053053/)
 
-作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
+整理：BENJ1**
+**编辑：Sadhu
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/dfdf-1.png)
 
-2月22日，48位世界顶尖科学家共同签署纽伦堡宣言《HAMBURG DECLARATION Call for a Global End to High-Risk “Gain-of-Function” Research on Potential Pandemic Pathogens》，呼吁全球终止对潜在大流行病原体的高风险“功能增强”研究。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Shi-Zhengli-4-in-Wuhan-Lab-600x292-1.jpg)
 
-这48位顶尖科学家分别来自美国、英国、法国、德国、意大利、澳大利亚、波多黎各、新西兰、比利时、葡萄牙、日本、印度、奥地利。
+图片来源：雅典娜农场设计组（614）
 
-功能增强，英文Gain-of-Function，是一种通过对生物体进行基因改造的方式，增加基因产物生物学功能的医学研究。包括，改变病毒的发病机理、传播能力或宿主范围（或可以感染的宿主类型）。
 
-例如，2013年5月2日，中科院院士、中共国农业科学院哈尔滨兽医研究所研究员、博士生导师陈化兰和于康震，邓国华，周继勇，李泽军等人在美国《Science》杂志发表了一篇题为《[Scientists create hybrid flu that can go airborne-H5N1 virus with genes from H1N1 can spread through the air between mammals](https://science.sciencemag.org/content/340/6139/1459)》的论文。文章称，中共国农业科学院哈尔滨兽医研究所与甘肃农业大学动物医学院合作，利用具有高度致命能力、但从未在人类传播的H5N1禽流感病毒，与极易感染人类H1N1流感病毒通过基因重配，制作成了5种超级病毒，这些超级病毒具有通过空气迅速在哺乳动物间传播的能力。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/chenhualan.jpg)
-中共病毒（COVID-19）就是由中共国生物战计划负责人、军事医学科学院院士魏晨少将指挥和控制下的，通过“功能增强”，最终由中科院武汉病毒研究所释放。
+**郭文贵先生2021****年10****月27****日直播**
 
-48位科学家共同签署的《纽伦堡宣言》中提到，科学研究的使命和责任是为人类福祉服务，追求真理，并将获得的知识传播给公众，声明的签署者希望提请注意，近年来，由于新的生物工程技术可以改变危险的病原体，对人类生存的重大威胁。
+今天已经还差几十个小时咱们就要上市了喜币，在一个月后就上支付系统了，战友们想想你在全世界各地，你有过这样的祖国的概念吗？你有过和你生命和你利益来相连接的这样的希望和这样的机会吗？这都是对你过去的所有的行为一个最好的回报。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_8975-600x374-1.jpg)
+战友们，喜币、喜联储上市，GTV、GClub，它所有的这一切，它不是一个单纯的存在。它是一个爆料革命、新中国联邦的信任，你的为人、你的判断力、你的信仰，你对人的一个相处的关系的综合存在。
 
-负责任的科学家和研究人员在过去十年中一再指出，通过“功能增强”的研究，天然存在的病毒被人为通过基因序列的改造，或者通过直接基因编辑，或者简单地通过加速传代进化，以促进它们更适合进入人体细胞，让这些病毒适应在人类大流行创造了巨大的潜力。近年来，在大部分是公共资金资助下，进行了诸如禽流感病毒、SARS冠状病毒等多种高危病原体病毒研究！
+竟然昨天有人在常委群说，我要退喜币，你这个人。唉，长岛哥还有谁，大卫啊，你可得统计好，昨天有任何表达倾向的，一定得让他推掉，天王老子不能让他回来，不管你是谁，就像投了那些有后悔的老椅子，我要回来，门儿都没有。我们新中国联邦什么都可以包容，就是不给后悔药。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-23_21-20-28-1.jpg)
+我再重申一遍，人很多穷是有原因的。我可以告诉大家，如果你在Gettr上打赏、GTV上打赏你不能赚钱的话，我不相信你还有多少这样的机会再发生你生命里。如果喜币你没有抓住机会的话、GTV你没有抓住机会的话、打赏你也都没抓住机会的话，我不相信你生命中还有多少次这样的机会。
 
-当前的冠状病毒大流行清楚地向人们警示，当病原体极易在人与人之间传播时会发生什么，意味着数百万人死亡，数十亿人的将失去生命或受到威胁。尽管SARS-CoV-2病毒（COVID-19的病原体）的致死率相对较低，仅为1%，但还是对人类产生了巨大的破坏。然而，目前世界各地的各种实验室正在类似的功能增强实验，其中更危险的病毒，如中东呼吸综合症（MERS）、埃博拉病毒（Ebola）或尼帕病毒（Nipah），正在被通过功能增强实验进行操纵。
+**郭文贵先生2021****年10****月29****日直播**
 
-不幸的是，世界上没有一个足够安全的生物技术实验室，可以保证这种被功能增强的病毒不会泄漏，特别是考虑到可能有意或无意获得的功能增加，而且这些功能往往难以预测。对世界上绝大部分人口来说，此类病毒的灾难性生物安全漏洞可能是致命的，尤其是通过基因改造或其他一些方式促进高度危险的病毒通过人类呼吸道传播。
+咱们过了下周一，我告诉你我会告诉你全世界上还有让共产党这些年体会到的，有一种死，你知道叫什么死你知道吗？叫后悔死！爆料革命会给你一个重新定义，叫后悔死!还一种死法你知道叫什么死吗？叫妒忌死!我会让你得妒忌病一辈子，比癌症还痛苦。我让你妒忌死。还一种死法，你知道是怎么死法，你知道吗？大家，知道吗？啊？小白我发现你知道，你说说。好像你比我厉害。小白现在那么老实人，一天不说话，现在要抢话了，Rachel 一来，美女面前要表现啊，是吧？哈哈。
 
-作为科学家，我们深知科学和研究自由的重要性，但我们仍然呼吁世界各国政府停止这种危险的“功能增强”实验。与这种极端类型的研究相关的全球大流行的风险以及世界上大部分人口灭绝的可能性是根本不能容忍的，也不应该容忍。此外，我们要求由独立的国际监管机构监督和持续监控此类终止。
+大家要记住，你们会看到，新中国联邦，让你看看真真正正的，让你患上一种让你不可思议的病，睁眼——你一睁眼就死，你不敢睁眼。你一睁眼一看手机，哇塞，全是发财的，你一睁眼一看电视机，全是喜币。睁眼死，啊，这三死，就让你患上。后悔不死你，我让你睁眼死。
 
-无论一个国家的宪法和政府的具体形式如何，每位领导人都必须负责任地行事，不仅要为本国人民的福祉做出贡献，还要为整个人类的福祉做出贡献。人类已经学会干预自然界的基本分子构件；这创造了许多保护生命的机会，但也创造了意外终止生命的新方法。让我们在为时已晚之前认真对待这一责任。
+这个喜币，有些没砸我的，就是绕着弯的想去要喜币。给我捎信，我一概不理，我一个喜币都不会给他。我也没有求过你，我也没有做过许诺。哎，开始砸郭了，为什么？看着喜币现在要上市了，开始砸了，就这种人是很可怕的，这也就是中国共产党最可怕的事情。
 
-这份宣言，也可能开启科学界严肃、认真的进行中共病毒溯源调查！
+资料来源：郭先生GTV和盖特直播视频
 
-参考数据：
+往期回顾：
+[**文·贵天成——文贵先生谈“G币-喜币”（一）**](https://gnews.org/zh-hans/1582391/)
+[**文·贵天成——文贵先生谈“G币-喜币”（二）**](https://gnews.org/zh-hans/1584666/)
+[**文·贵天成——文贵先生谈“G币-喜币”（三）**](https://gnews.org/zh-hans/1586436/)
+[**文·贵天成——文贵先生谈“G币-喜币”（四）**](https://gnews.org/zh-hans/1588934/)
+[**文·贵天成——文贵先生谈“G币、喜币、喜联储”（五）**](https://gnews.org/zh-hans/1590581/)
+[**文·贵天成——文贵先生谈“G币、喜币、喜联储”（六）**](https://gnews.org/zh-hans/1590945/)
+[**文·贵天成——文贵先生谈“G币、喜币、喜联储”（七）**](https://gnews.org/zh-hans/1592917/)
+[**文·贵天成——文贵先生谈“G币、喜币、喜联储”（八）**](https://gnews.org/zh-hans/1593871/)
+[**文·贵天成——文贵先生谈“G币、喜币、喜联储”（九）**](https://gnews.org/zh-hans/1594977/)
+[**文·贵天成——文贵先生谈“G币、喜币、喜联储”（十）**](https://gnews.org/zh-hans/1596019/)
+[**文·贵天成——文贵先生谈“G币、喜币、喜联储”（十一）**](https://gnews.org/zh-hans/1596044/)
+[**文·贵天成——文贵先生谈“G币、喜币、喜联储”（十二）**](https://gnews.org/zh-hans/1597070/)
+[**文·贵天成——文贵先生谈“G币、喜币、喜联储”（十三）**](https://gnews.org/zh-hans/1598679/)
+[**文·贵天成——文贵先生谈“G币、喜币、喜联储”（十四）**](https://gnews.org/zh-hans/1599089/)
+[**文·贵天成——文贵先生谈“G币、喜币、喜联储”（十五）**](https://gnews.org/zh-hans/1599433/)
+[**文·贵天成——文贵先生谈“G币、喜币、喜联储”（十六）**](https://gnews.org/zh-hans/1599453/)
+[**文·贵天成——文贵先生谈“G币、喜币、喜联储”（十七）**](https://gnews.org/zh-hans/1601053/)
+[**文·贵天成——文贵先生谈“G币、喜币、喜联储”（十八）**](https://gnews.org/zh-hans/1620575/)
+[**文·贵天成——文贵先生谈“G币、喜币、喜联储”（十九）**](https://gnews.org/zh-hans/1620634/)
+[**文·贵天成——文贵先生谈“G币、喜币、喜联储”（二十）**](https://gnews.org/zh-hans/1620672/)
+[**文·贵天成——文贵先生谈“G币、喜币、喜联储”（二十一）**](https://gnews.org/zh-hans/1620864/)
+[**文·贵天成——文贵先生谈“G币、喜币、喜联储”（二十二）**](https://gnews.org/zh-hans/1622396/)
+[**文·贵天成——文贵先生谈“G币、喜币、喜联储”（二十三）**](https://gnews.org/zh-hans/1622425/)
+[**文·贵天成——文贵先生谈“G币、喜币、喜联储”（二十四）**](https://gnews.org/zh-hans/1622755/)
+[**文·贵天成——文贵先生谈“G币、喜币、喜联储”（二十五）**](https://gnews.org/zh-hans/1623166/)
+[**文·贵天成——文贵先生谈“G币、喜币、喜联储”（二十六）**](https://gnews.org/zh-hans/2051058/)
+[**文·贵天成——文贵先生谈“G币、喜币、喜联储”（二十七） **](https://gnews.org/zh-hans/2051071/)
+[**文·贵天成——文贵先生谈“G币、喜币、喜联储”（二十八）**](https://gnews.org/zh-hans/2051058/)
+[**文·贵天成——文贵先生谈“G币、喜币、喜联储”（二十九） **](https://gnews.org/zh-hans/2051071/)
+**[文·贵天成——文贵先生谈“G币、喜币、喜联储”（三十）](https://gnews.org/zh-hans/2052999/)**[** **](https://gnews.org/zh-hans/2051071/)
 
-[陈化兰：H5N1与甲流病毒结合或可人际传播](https://paper.sciencenet.cn/htmlpaper/20135610205737828984.shtm)
+发布：星谕
 
-[“Potential Extinction”: 48 Top Global Scientists Sign Declaration – Demand Ban on Fauci’s “Gain of Function” Research](https://www.thegatewaypundit.com/2022/02/potential-extinction-48-top-global-scientists-sign-declaration-demand-ban-faucis-gain-function-research/)
-
-[“Potential Extinction”: 48 Top Global Scientists Sign Declaration](https://shopperlyf.org/potential-extinction-48-top-global-scientists-sign-declaration/)
-
-[Gain-of-function research](https://en.wikipedia.org/wiki/Gain-of-function_research)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
