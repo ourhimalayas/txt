@@ -2,34 +2,28 @@
 ---
 
 
-## 疫情次生灾难给英格兰人带来心理健康问题
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2053214/)
+## 日本报告94例BA.2毒株，占Omicron毒株的0.6%
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2053326/)
 
-作者：台灣寶島農場 – 尋文客
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月21日，据相关媒体消息显示，英格兰的卫生官员警告称，由于当地在中共病毒疫情中实行的封锁措施，英格兰预计有一千万人，包括150万儿童和青少年将因此遭受精神健康问题的困扰。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8-30.jpg)
-研究人员指出，自中共病毒开始以来，当地因心理健康问题而需要紧急治疗的儿童人数增加了52%，同期患有饮食失调的18岁以下儿童也增加了72%。另外，英格兰有160万人正在等待接受心理健康方面的专业治疗，其余还有八百万需要专业治疗的患者尚未进入等待名单。
+撰稿：东京樱花团/文小白
 
-对此，分析人员表示，中共病毒疫情的封锁措施已经对大量英格兰人民的精神健康造成了不利的影响，同时，大量患者的积压已经让英格兰部分地区的精神健康专家不堪重负。至于许多缺乏足够护理的患者，他们的未来也令人担忧。
+据2月23日NHK消息，根据日本国家传染病研究所等机构的调查，迄今为止，日本已经报告了至少94例BA.2病毒。BA.2是Omicron变异毒株的一种。
 
-目前，英格兰的卫生官员已经将当地民众精神健康问题的现状称为“第二次大流行”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/日本报告94例BA.2毒株，占Omicron毒株的0.6.jpg)照片来源于原文链接
 
-参考链接：[‘Second Pandemic’ – 10 Million Britons Need Mental Health Care After Lockdowns](https://www.breitbart.com/europe/2022/02/21/second-pandemic-10-million-britons-in-need-mental-health-treatment/)
+国家传染病研究所等机构一直在对中共病毒的基因分析进行调查，截至本月16日的数据，从去年年底到上个月30日，日本共报告了94例Omicron株BA.2病毒。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+在同一时期发现了约16,000例BA.1病毒，这是目前病毒的主流，BA.2病毒约占所有Omicron毒株的0.6%。
 
-总编: Irene木木
-编辑: 谐趣园/静言 
-校正/发稿：Fei797
+东京大学医学研究所副教授Yoshitaka Sato领导的小组的研究结果显示，BA.2病毒在感染时对周围细胞的破坏能力是BA.1病毒的1.5倍，比主流毒株BA.1更能引发感染，虽然它比delta病毒株要弱。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+此外，在仓鼠被感染的实验中，在仓鼠肺部没有检测到BA.1病毒，也没有观察到体重下降。而BA.2毒株病毒在肺部被检测到，并观察到了体重下降。
+
+信息来源：[「BA.2」国内で94件報告 オミクロン株全体の約0.6％に 感染研](https://www3.nhk.or.jp/news/html/20220223/k10013498261000.html?utm_int=news-culture_contents_list-items_002)
+
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

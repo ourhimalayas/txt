@@ -2,33 +2,25 @@
 ---
 
 
-## 有声|台湾近日急症突增 三日猝死超百人
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2053770/)
+## 北京奥运会收视率惨不忍睹
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2053934/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-当地媒体2月21日报道，据全台各县市消防局的资料显示，台湾近两日急病救护事件竟累积达到了628起、猝死则高达101人，至于死因需要进一步了解相关信息。
+**编译：verifunny**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-24-002325.jpg)
+据福克斯新闻报道，NBC在2014年投资了77.5亿美元，给予该电视台到2032年的奥运会独家权利，但却没有得到回报。
 
-报道称，自19日至21日午间，台湾各地的急症救护案件累积超过600起，猝死及到院无呼吸心跳患者高达101人，40-60岁年龄段的猝死患者则占到了整体死亡人数的将近一半，而其中年纪最小的一位男性死者仅有35岁。
+据美联社报道，截至周二，平均有1220万人在黄金时段通过NBC、有线电视或其孔雀流媒体服务观看奥运会，比2018年韩国平昌冬奥会下降了42%。仅NBC就有1000万观众，比2018年下降了47%，到上周初，在关键的25-54岁人群中，比平昌奥运会下降了57%。
 
-目前，台湾地区完整接种毒疫苗人数已经超过了总人数的3/4，第三剂接种人数也已超过1/3。
+美联社写道：”这届奥运会对电视网来说是一场灾难，观众离开的人数令人震惊，国家广播公司不得不怀疑这是否是特别糟糕的运气，还是数千万人曾经团结一致的活动的品牌被永久地玷污了。”
 
-此前，郭文贵先生爆料，中共毒疫苗灾难将导致全球猝死人数在冬春季开始激增，“随地倒”现象将在疫苗接种率较高的地区频繁出现。同时，与普通高龄猝死患者所不同的是，毒疫苗引发的猝死人群将主要集中在中青年群体。
+在美国的外交抵制下，习近平领导的中国共产党对世界竖起了大拇指，为北京成为第一个同时举办夏季和冬季奥运会的城市而感到高兴。
 
-文字版原文：[台湾近日急症突增 三日猝死超百人](https://gnews.org/zh-hans/2045985/)
+中共国利用一名维吾尔族运动员在开幕式上传递奥运圣火，这是对西方的 “当面回应”；中共还使用了一名曾在2020年与印度边境部队发生致命冲突的中国军事指挥官作为火炬手，此举激怒了印度。
 
-音频处理：Fei797
-发稿：Fei797
+对于这次收视率的惨败，只能说世界上有因果报应的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+**新闻来源**：[https://www.zerohedge.com/political/im-stunned-beijing-olympics-was-total-ratings-disaster](https://www.zerohedge.com/political/im-stunned-beijing-olympics-was-total-ratings-disaster)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

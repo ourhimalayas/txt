@@ -2,18 +2,18 @@
 ---
 
 
-## 视频|比尔·马赫抨击中共人权纪录
-` MOSvideo` [轉載自GNews](https://gnews.org/zh-hans/2053753/)
+## 有声|昨天的香港，今天的加拿大
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2053910/)
 
-制作：香草山视频部
+配音：香草山巡管部– 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+盖特2月21日消息，郭文贵先生早在2020年，对全世界所发出的警告，现在正在变成悲惨的现实。而昨天的香港，就是今天的加拿大。
 
-2月18日，比尔·马赫在”与比尔·马赫的实时”节目中，抨击中共骇人听闻的人权纪录。谈及在北京冬奥会为中共争夺金牌的美国滑雪运动员谷爱玲时，马赫毫不畏惧地告诉观众，选择一个代表极权主义的警察国家来统治美国，一点也不酷。他指出，作为美国公民的谷爱玲代表中国争夺冠军的可耻决定，成了中共国战胜西方的生动象征。
+2020年11月7日，郭先生在视频中说，香港有无数年轻人被共产党强奸、轮奸、自杀和被消失，但全世界却在保持沉默。同时，他一再强调，这一切将会在美国发生。
 
-马赫呼吁为彭帅的失踪，对维吾尔人的种族灭绝及可怕的待遇，对香港的压迫，中国拒绝承认台湾的事实，及中共在人权方面缺乏基本素养等进行追查。驳斥所谓中共国在某种程度上并不坏，因为美国也有自己的问题的谬论。
+文字版原文：[昨天的香港，今天的加拿大](https://gnews.org/zh-hans/2045459/)
 
-希望马赫的实时节目能唤醒更多西方人，与世界正义联盟一起对抗中共。
-
-发稿：Daxia
+音频处理/发稿：Daxia
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
@@ -23,7 +23,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
