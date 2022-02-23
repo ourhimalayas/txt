@@ -2,34 +2,45 @@
 ---
 
 
-## 习近平用金钱给予普京精神安慰
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2053764/)
+## 比尔-马赫指责中共国可怕的人权记录，抨击美国人向中共低头
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2053825/)
 
-作者：纽约磐石农场—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生也在2月20日的大直播中揭秘了习近平对普京的金钱拉拢。
+评论：***从维吾尔人的种族灭绝，到彭帅，再到谷爱凌，充分体现出了中共国内人权不平等现象，阶级是70年中共统治下不可逾越的障碍。***
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide2-9.jpeg)
+据《dailycaller.com》作者：DAVID HOOKSTEAD，2022年2月19日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3797.png)
+比尔-马赫周五晚敲打了中共国的人权记录，每个人都应该听听他的评论。
 
-郭先生指出，财富的自由和体验是人生价值的重点，但中国劳动人民的血汗钱却全部被中共榨干了。因此，在中共国，钱只能被称做精神安慰剂。
+目前，共产主义独裁国家的奥运会正在进行，许多拥有大平台的人选择保持沉默，而不是揭露中共的罪行。
 
-至于普京，其作为世界第二大军事强国的总统，而今却因被西方社会冷落而倍感孤独。此时，习近平用剥削中国人民所得到的一万亿美元充当了普京的精神安慰剂。两人随即一拍即合，中共放出病毒打垮世界经济，俄罗斯则用石油和天然气控制欧洲，他们的最终目的即为普京计划称霸欧洲，习近平图谋统治亚洲。
+好吧，马赫醒了，在最新一集的“与比尔-马赫的实时对话”中，他选择了对中共、中共国压迫性的人权标准、向中共政权低头的美国人以及更多的东西采取抨击。
 
-参考链接：[https://www.gettr.com/post/pw3okc2a90](https://www.gettr.com/post/pw3okc2a90)
+当谈到金牌得主谷爱凌，这位美国滑雪运动员决定为中共而不是为热爱自由的美国竞争时，马赫没有隐瞒，并告诉他的粉丝：“很酷，嗯？是吗？现在选择代表一个极权主义警察国家而不是美国，这很酷吗？”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+他进一步补充说，谷爱凌为中共国竞争而不是为美国竞争的可耻决定“成为中共国战胜西方的一个活生生的象征”。然后他用猛烈地对独裁国家进行了抨击，“因为它是一个基于‘你想不想消失几个月’的专制监视国家”。
 
-总编：Irene木木
-编辑：谐趣园
-校正/发稿：谐趣园
+这只是马赫作为左派理性声音的最新例子。无论你的立场如何，你都不能否认马赫是真实的，而且不惧怕对任何人下手。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+他对中国的彭帅失踪、对维吾尔人的种族灭绝和可怕的待遇、对香港的压迫、中共拒绝承认台湾、中共在人权方面缺乏任何基本的体面等问题进行了抨击，他还抨击了中共因为美国有自己的问题而不坏的想法。
+
+太糟糕了，没有更多的人有他这样的胆量，因为那是一个关于如何揭露暴政的大师级课程。他甚至抨击了NBA与中共的可悲关系。
+
+从视频开始到结束，他绝对是火力全开。
+
+这是对马赫的最大支持。希望有更多人学会站出来反对中共。
+
+原文连接：[**https://dailycaller.com/2022/02/19/bill-maher-china-human-rights-record-video-eileen-gu/**](https://dailycaller.com/2022/02/19/bill-maher-china-human-rights-record-video-eileen-gu/)
+
+翻译：洛杉矶盘古农场- TrueSky
+校对：洛杉矶盘古农场 – 轰炸机
+评论：洛杉矶盘古农场 -轰炸机
+编辑：洛杉矶盘古农场 –柯镇恶
+发布：洛杉矶盘古农场 –恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,163 +2,28 @@
 ---
 
 
-## 疫苗灾难过后，三件大事将改变世界格局
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2053670/)
+## 中共国还有多少张三，敢想吗
+` XINYUAN` [轉載自GNews](https://gnews.org/zh-hans/2053743/)
 
-[https://gtv.org/video/id=621504111408ee3a03a377f7](https://gtv.org/video/id=621504111408ee3a03a377f7)
+撰稿 : 澳喜农场 – Xinyuan
 
-郭文贵
-Miles Guo
+抖音的一个视频里，一个男孩子诉说着他的窘况，旁边有一个钢琴手在为他伴奏。俩人的搭配恰到好处，一个真诚的诉说着，另一个忘我的弹奏着，描绘出一幅发生在中共国的充满悲剧色彩的故事。下面是他的自述：
 
-卡车事件停止疫苗
-The Trucker Convoy Protest to stop the vaccine
+他叫张三，来自平顶山，是一个三流厨师，在一个小饭店打工，月收入6500，老婆在一个私人培训班当语文培训老师，工资4500，这两个对生活充满憧憬的年轻人，用打拼多年的积蓄充当首付，买了一个总价110万元的89平米的小三房，并留下每月的4800元月供。面对这小1万的收入，两人是这样安排的：
 
-全世界冬奥会结束
-and the world’s Winter Olympics ended
+小白的收入全部用来还月供，而自己的6500元里扣除各方面费用，每月还能剩4000元。但总体还可以，两人的日子过得虽然迷茫但还算幸福。到了2019年，终于拿到新房的他们回老家找亲戚朋友们借了6万元费用，用于装修房屋，并搬进了新房。同年底，小白怀孕了，幸福而卑微的他们没有看到地狱就在眼前等着。
 
-战争一起
-these war are going to happen
+2019年年底，郑州封城，我们也不能回老家过年了。这也罢了，但一直到2020年4月份，我们都闲在家里。而且两边单位都开不了张。手头积攒的2万元也快见底了。但由于担心疫情，饭馆附近的施工单位也不允许工人外出吃饭。强撑了几个月后，我所在的饭馆倒闭了，老板没钱了，工资也没发。我也是个重情重义的人，钱不要了。又去寻找其他工作。发现很多饭店都很艰难，摇摇欲坠。而大一点的饭店对我这个半吊子厨师也不想要。我只能当小工，工资低，路途又远。但生活总要继续，无奈之下，我去了一家中型饭店当小工，刷盘子削土豆，心里想着即将出生的孩子，感觉自己还能咬牙坚持。但这次还完房贷，扣除吃穿之外，剩下的只有1000多了。而这时小白已经怀孕5个月了，经常要吃一些滋补的东西，花费会大一些，但为了减轻我的压力，她依然去上班，2020年9月，孩子出生了，谢天谢地，是个女孩。我找老板请假，老板说:”没关系，反正这两个月，饭店就会关门。因为生意不好，想让房东便宜点房租，但房东不愿意，两家谈崩了。”
 
-你记住, 什么视线都转移不了
-Keep in mind that you won’t be able to divert whatever eyesight
+失业就失业吧，我正好回家陪陪家人。但回家后发现，小白已经没有收入了，而我也刚刚失业，而我们手上还只剩1万多元。人的崩溃往往都在一瞬间。我的就在此时此刻。我不想让家人看出我的落魄，尤其是小白。不想让她担心。于是我从2020年11月开始，一直都是刷信用卡度日。房贷像个魔鬼，每月从我的卡里吸走4800元。再加上全家人的吃穿用度，我的三种信用卡终于在2021年4月份的时候彻底空了。
 
-你别以为就（只是）经济
-Don’t think it’s just the economy
+家里的父母想帮我，但他们那几亩地种一年的收成都不够我还一个月的月供。我的母亲从老家出来，希望找个工作挣钱补贴我，她发现已经没有适合她的工作了，哪怕是最简单的保洁，平台上排单给他，她不知道怎样用地图导航去人家。哪怕是最简单的超市收银员，我小学文化的妈妈不知道怎么用电脑去打开收款箱，最后没办法，我母亲在家看孩子，小白去超市干收银员工作。不要问我为什么她不干辅导班了，因为整个郑州的辅导班全部关停了。辅导老师都失业了，包括小白。
 
-大家都会干一件事儿——（质问）武汉实验室发生了什么！
-Everyone will do one thing, which is to question what happened to the Wuhan laboratory!
+但我没想到的是，人生没有最悲催，只有更悲催，720的一场暴雨，小白所在的那个超市被大雨淹没了。我去接小白回家的时候，看见超市老板在门口号啕大哭。原来摆的满满当当的货架被冲的一干二净。我知道，小白现在连收银员的工作也失去了。现在，母亲小白和吃奶的孩子全要靠我每月的4000元工资过活。当时装修时借的钱，他们也开始催着还钱了。而我的信用卡也已经耗干了。我从8月初开始就已经没有钱还房贷了。他们打电话催我，我告诉他们等一阵子会还。下个月一定补上。我想尽了各种理由跟他们说，但2020年10月初的时候，我收到了一封信。拆开信的时候，他们告诉我，如果我再不还房贷，那么我的这个承载着一切希望的房子，这个托起我作为男人尊严的房子，将会被他们强行拍卖。看到这个消息我哭了，我还记得上学的时候被隔壁村七八个人围起来打我都没有哭。在饭店做大盘鸡时不小心切掉了左手的小拇指，我也没哭，炸丸子时被锅里溅出的油烫出了一排的水泡，我都没有哭。但银行的告知书里不痛不痒，毫无感情的文字却让我哭的像个傻子。我现在什么都愿意干，我愿意去削土豆，刷盘子，骑自行车去华南城给人家卸货。在没活可干的时候，我甚至愿意去饭店门口守着去当代驾。我什么都愿意干，只要能让我在郑州待下去。我知道自己是个废物，但只要他们不拍卖我的房子。多苦多累的活我都愿意去干。我只希望他们不要拍卖，月供我会竭尽全力的去还。这个房子虽然在南四环，城里人可能看不上这个地方，但这确实是我远在平顶山的老父亲和村里人聊天时唯一的骄傲。我知道我那吃苦受累的妻子小白心里唯一的港湾并不是我，而是这个小房子。
 
-只要是俄罗斯一开打
-As long as Russia starts fighting
+他的自述，让人有种深深的无力感。最近还看到一则新闻，国内有174万套房子处于断供状态，也就是说有174万个小白这样的家庭正活在这种挣扎中，这是有房族的悲哀，而那些没房族、啃老族，月光族们呢？又能好到哪里去？现在又都是什么情况，其实已经不言而喻了。对于地狱来说，没有最悲惨，只有更悲惨。我们要认清的是，张三不是个例，而且救一个小白也是解决不了问题的，想要解脱出来，只有彻底摧毁整个地狱。
 
-习只要一动台湾, 只要一动或者不动台湾
-Xi Jinping wars on Taiwan, as long as he starts the war or not
-
-就是乌克兰（被）打了
-once Ukraine is attacked
-
-全世界这个就是乌克兰、苏联的事就结束了！
-all matters in the world about Ukraine and the Soviet Union (Russia) would be over!
-
-它动，动的开始就是结束，没有任何犹豫的
-War on Ukraine, its beginning would be its ending, without any hesitation
-
-不可能苏联把全世界都干掉
-It is impossible that letting the Soviet Union (Russia) destroy the whole world
-
-俄罗斯, 一定是把它干掉，只是干掉的代价有多大！
-Russia would definitely be taken down, it is just a matter of how big the cost would be
-
-经济大乱套，经济会重整。
-The economy would be in chaos, and the economy would recover
-
-不管哪样你说谁是赢家？
-Who would you say is the winner anyway?
-
-咱是最大赢家！
-We are the biggest winner!
-
-在这种情况下，你说那个时候就直灭共产党
-Under such circumstances, (the world) would directly go to the CCP and destroy them
-
-直灭共产党你找他干啥去啊？
-Why would they go to the CCP?
-
-说你支持了苏联
-say you supported the Soviet Union (Russia)
-
-俄国和美国、澳大利亚这都会站在一起
-Russia, Australia, and the United States would all stand together
-
-三件事会发生
-Three things would happen
-
-所有的向左这种极端政权（强推）打疫苗的，每个人都会上绞刑架
-(First) all the extreme leftist regimes who mandated vaccination would be hanged on the gallows
-
-只要让人家打（毒）疫苗的一定会上绞刑架, 你都想都不用想
-As long as you mandated people for vaccination would be executed, no excuse
-
-那么五月份以后这些官员上绞刑架了
-Then after these officials were hanged on the gallows and the month of May
-
-这个疫苗（导致）接下来大量的死亡
-this vaccine would lead to a mass of deaths
-
-这些社会的动乱会此起彼伏
-and these social turmoils would continue one after another
-
-这个大卡车事件你都会忽视掉
-this Trucker Convoy Protest incident would be ignored
-
-因为越死人越多谁能控制得了?
-Because who can control when there are more and more people die?
-
-你能受得了吗？
-Can you take it?
-
-就西方的文明世界的政治形势和媒体一切
-The next step would be everything about the political situation of the Western civilized world and the media
-
-包括医疗部门重新改写
-including the rewriting of the medical sector
-
-这就是天机啊！
-This is God’s chance!
-
-俄罗斯和乌克兰和中共对台湾的问题
-(Second) the issues of Russia and Ukraine, the issue of CCP and Taiwan
-
-（将导致）世界地球上的政治板块彻底改变
-would lead to a complete change in the political plate of the world on earth
-
-然后西方的文明运动改变了西方的、资本主义的、所有的、民主的、现在存在的独裁
-and then the movement of civilization in the West would change the Western, capitalist, all, democratic, now existing dictatorships
-
-和走向极左方向（的状态）彻底地纠正过来
-and the extreme leftist situation would get corrected completely
-
-第三世界经济印了那么多钱
-Third, the world economy has printed so much money
-
-现在已经印了快300亿（美元）了有
-It has printed nearly 300 trillion US dollars
-
-从过去200、官方226万亿到现在实际上260万亿
-From 200 trillion in the past, the official 226 trillion, now the actual 260 trillion
-
-到最近增加（到）将近300万亿美元的印刷的钞票
-and recently increased to nearly 300 trillion Trillions of dollars of printed banknotes
-
-都将给你打成泡沫，啥都没有
-all these would be blown into a bubble, nothing left
-
-然后世界上两种货币存在，数字货币和法币
-Then there would be two currencies that exist in the world, the digital currency and Fiat currency
-
-那咱又是赢家
-Then we are the winner again
-
-* * *
-
-Date: 02/15/2022
-原视频标题:
-疫苗灾难过后，三件大事将改变世界格局Three big things would change the world after the vaccine disaster
-
-原视频日期：2022/02/13
-原视频链接: [**https://gettr.com/post/pusoex2674**](https://gettr.com/post/pusoex2674)
-任务编号：KC460（3786）
-视频时间段 : 0:00-02:17
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译：洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-Jambo
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+(仅代表个人观点)
 
  
 
