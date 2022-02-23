@@ -2,25 +2,27 @@
 ---
 
 
-## 疫情次生灾难给英格兰人带来心理健康问题
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2053214/)
+## 普京出兵乌克兰东部引发世界经济动荡
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2053271/)
 
-作者：台灣寶島農場 – 尋文客
+作者：纽约香草山农场 – Noemi
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月21日，据相关媒体消息显示，英格兰的卫生官员警告称，由于当地在中共病毒疫情中实行的封锁措施，英格兰预计有一千万人，包括150万儿童和青少年将因此遭受精神健康问题的困扰。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8-30.jpg)
-研究人员指出，自中共病毒开始以来，当地因心理健康问题而需要紧急治疗的儿童人数增加了52%，同期患有饮食失调的18岁以下儿童也增加了72%。另外，英格兰有160万人正在等待接受心理健康方面的专业治疗，其余还有八百万需要专业治疗的患者尚未进入等待名单。
+当地时间2月21日，据相关媒体消息显示，俄罗斯总统普京于此前一天承认了乌克兰东部的两个分离地区已经独立，随后，其立即下令俄罗斯国防部向它们派遣了所谓的“维和”部队。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/10-18.jpg)
+有目击者表示，俄罗斯的坦克等军事装备目前已经穿过了分离主义控制的城市——顿涅茨克。同时，普京的这些举动加剧了西方对于乌俄之间发生重大战争的担心。
 
-对此，分析人员表示，中共病毒疫情的封锁措施已经对大量英格兰人民的精神健康造成了不利的影响，同时，大量患者的积压已经让英格兰部分地区的精神健康专家不堪重负。至于许多缺乏足够护理的患者，他们的未来也令人担忧。
+另一方面，随着乌克兰军事危机的升级，世界经济也正在经历着巨大的动荡。据悉，全球的石油价格眼下已经跃升至七年以来的最高水平；而日元等避险货币则出现大幅反弹；此外，美、欧地区的股票和期货近期持续暴跌。数据表明，在普京发表讲话时，卢布的跌幅一度超过17%，滑落至每美元可兑换80卢布有余。
 
-目前，英格兰的卫生官员已经将当地民众精神健康问题的现状称为“第二次大流行”。
+此前 ，郭文贵先生曾在盖特中评论称，无论俄乌局势怎样变化，俄、美、欧三方最终会达成合作协议。但在这场军事危机的背后，经济损失最惨重的一定会是中共国和全球所有的普通民众。
 
-参考链接：[‘Second Pandemic’ – 10 Million Britons Need Mental Health Care After Lockdowns](https://www.breitbart.com/europe/2022/02/21/second-pandemic-10-million-britons-in-need-mental-health-treatment/)
+参考链接：
+1) .[Putin orders troops to Ukraine after recognizing breakaway regions](https://www.reuters.com/markets/europe/kremlin-says-no-concrete-plans-summit-with-biden-over-ukraine-2022-02-21/)
+2) . [2/21/2022 文贵盖特：中共体制内官员也知中共大势已去；俄美总统要会面，普京是否会弃习投美欧？](https://www.gettr.com/post/pw07zs2799)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
 总编: Irene木木
-编辑: 谐趣园/静言 
+编辑: 飞虹
 校正/发稿：Fei797
 
 **更多资讯，更多关注**

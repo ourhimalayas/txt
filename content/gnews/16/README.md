@@ -2,25 +2,48 @@
 ---
 
 
-## 2022.2.23大直播 爆料革命用真相唤醒世界 郭文贵先生呼唤国人醒来
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2054015/)
+## 如何查看新冠疫苗批次有多坏？
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2054029/)
 
-撰稿：大浪小水花
+**编译：逍遥小哥**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/33-2.jpg)
+数据显示一些新冠疫苗批次与过度死亡、残疾和不良反应有关。这种变化可能是由于 ：
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-20-at-9.45.42-PM-1.jpeg)
+1.批次数量的变化。某个批次分配的数量会比其他批次多或少
 
+2.剂量的毒性成分的变化
 
-郭文贵先生在2022年2月23日大直播中回顾了爆料革命一路走来向全世界传播的重大事件的真相:
+这两个因素都可能起作用，最好保持谨慎。
 
-2017年9月郭先生警告全世界黑暗即将到来；2019年5月郭先生断言香港返送中运动发生的灾难会传播到全世界；2019年底中共病毒爆发，郭先生揭露新冠病毒是中共制造的生化武器，警告全球做好最坏的准备；2020年9月郭先生忠告全世界疫苗是世界黑暗势力控制的杀人工具；2021年2月郭先生警告全世界接种疫苗会导致数亿人的死亡，直到爆料革命告诉向全世界中共病毒和疫苗的解药，伊维菌素，青蒿素。
+您可以使用如下网站来查找与您的特定批次代码相关的死亡、残疾和疾病的数量。死亡和残疾的绝对数量令人担忧。远远超过与同等规模的流感疫苗批次相关的不良事件。
 
-爆料革命还向全世界揭露了中共双龙计划，北京冬奥会，谷爱凌事件，台湾危机，乌克兰危机的真相，并持续跟踪报道彭帅事件，锁链女事件。
+查看您的批次（批号）：
 
-郭先生提到，爆料革命五年以来，向全世界传递的各种信息现在都已经变成了事实，得到了全世界正义力量的认可和尊重，但遗憾的是中共国内仍然还有无数人被中共的谎言蒙蔽，在中共的洗脑教育下丧失信仰丧失人性，导致各种人间灾难层出不穷。
+请根据您的疫苗厂家点击以下的链接。然后输入您的批次批号。您的疫苗批次产生的不良反应的数据会呈现 （数据来源[VAERS](https://vaers.hhs.gov/data.html) ，只供参考。数据不包含没被记录的案例。实际数量会更高。）
 
-郭先生深切盼望国人赶快醒来，当中国人认清中共假骗偷的真面目之时，就是中共灭亡之日。
+[莫德纳COVID-19疫苗](https://howbad.info/moderna.html)
 
-参考链接：[2022年2月23日文贵大直播](https://gtv.org/broadcast/watch/62162fe908ba8a07b1a1ea8b)
+https://howbad.info/moderna.html
+
+[辉瑞COVID-19疫苗](https://howbad.info/pfizer.html)
+
+https://howbad.info/pfizer.html
+
+[杨森COVID-19疫苗](https://howbad.info/janssen.html)
+
+https://howbad.info/janssen.html
+
+[莫德纳COVID-19疫苗 （美国境外）](https://howbad.info/modernaforeigndeaths.html)
+
+https://howbad.info/modernaforeigndeaths.html
+
+[辉瑞COVID-19疫苗 （美国境外）](https://howbad.info/pfizerforeigndeaths.html)
+
+https://howbad.info/pfizerforeigndeaths.html
+
+[杨森COVID-19疫苗（美国境外）](https://howbad.info/janssenforeigndeaths.html)
+
+https://howbad.info/janssenforeigndeaths.html
 
  
 

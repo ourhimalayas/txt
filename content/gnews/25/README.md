@@ -2,25 +2,20 @@
 ---
 
 
-## 有声|美国前国务卿蓬佩奥排定三月初将访问台湾
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2053873/)
+## 有声|昨天的香港，今天的加拿大
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2053910/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-2月21日，多家媒体报道，美国前国务卿蓬佩奥将于3月3～5日访问台湾，分别与台湾总统蔡英文和外长吴钊燮会面交谈，在智库发表演讲，还将与台积电及中钢等公司的负责人进行不公开会谈。
+配音：香草山巡管部– 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+盖特2月21日消息，郭文贵先生早在2020年，对全世界所发出的警告，现在正在变成悲惨的现实。而昨天的香港，就是今天的加拿大。
 
-过去两年，中共国加大了对台湾的军事和外交压力，试图迫使台湾接受其统治。台湾政府则坚持表示只有台湾人民有权决定台湾的未来，并称如果受到攻击，会奋起自卫。
+2020年11月7日，郭先生在视频中说，香港有无数年轻人被共产党强奸、轮奸、自杀和被消失，但全世界却在保持沉默。同时，他一再强调，这一切将会在美国发生。
 
-蓬佩奥在国务卿任内，积极支持台湾参与国际社会活动，并抨击中共军事威胁台湾。在卸任前还特别宣布取消行政部门与台湾接触的限制，确认美台关系，不需要、也不应该因为官僚体制的自我设限而受到束缚，此政策宣示在实质上大幅提升了台美往来的层级。
+文字版原文：[昨天的香港，今天的加拿大](https://gnews.org/zh-hans/2045459/)
 
-郭文贵先生20日爆料称，习近平与普京进行了绝密会谈，组成生死军事联盟，准备通过发动战争来保持个人的政治安全。而一贯对中共强硬的蓬佩奥此时出访台湾则意味深远。
+音频处理/发稿：Daxia
 
-文字版原文：[美国前国务卿蓬佩奥排定三月初将访问台湾](https://gnews.org/zh-hans/2046144/)
-
-音频处理：Fei797
-发稿：Fei797
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -28,7 +23,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

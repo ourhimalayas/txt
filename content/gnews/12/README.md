@@ -2,40 +2,48 @@
 ---
 
 
-## 数据显示接种Covid-19疫苗的妇女死产和流产的风险显著增高
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2054033/)
+## 医生和医学科学家国际联盟呼吁美国结束COVID国家紧急状态
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2054038/)
 
-**评论：***疫苗没有起到任何免疫作用，文中显示的胎儿致死率是震撼人心的，不要打疫苗，能救一个是一个。*
+作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
 
-据《dailyexpose.uk》 作者：[Josh Guetzkow](https://jackanapes.substack.com/?utm_source=substack&amp;utm_medium=web&amp;utm_campaign=substack_profile)，2022年2月19日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2142-e1645633922886.png)图片来源：PAHO.ORG
-以色列Rambam医院的数据显示，在从未接种过COVID-19疫苗的妇女中，死胎、流产和堕胎（SBMA）比率为6%，而在至少接种过一剂疫苗（且从未感染过SARS-Cov-2）的妇女中则为8%。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-归纳起来：在2家不同的以色列医院，2021年见证了明显高于前两年的死胎、流产和堕胎率，与2019年和2020年相比，有些月份的SBMA数量创下了记录。对于我们有数据比较接种疫苗和未接种疫苗的妇女的一家医院来说，接种疫苗的妇女的SBMAs比率比未接种疫苗的妇女高34%。
+来自[全球新冠肺炎峰会](https://globalcovidsummit.org/)（[global covid summit](https://globalcovidsummit.org/)）的消息，由17,000多名医生和医学科学家组成的国际联盟呼吁美国结束“COVID国家紧急状态”，并呼吁国会通过终止总统国家紧急状态权力来恢复美国的宪政民主。
 
-如果不讨论一下数据中关于怀孕期间感染SARS-CoV-2的妇女的情况，那是不对的。有7名这样的妇女在这一时期分娩，其中2人出现死胎或流产。这是一个6.2%（CI 1.2-32.3）比率。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1140-trump-coronavirus.jpg)
 
-虽然这个几率比远高于接种疫苗妇女群体的比率，但该医院所有妇女在怀孕期间感染SARS-CoV-2的比例极低（0.17%）。
+该呼吁称，2020年3月13日，上届美国总统Donald Trump根据《美国国家紧急状态法》，使用行政命令宣布美国进入COVID-19国家紧急状态。
 
-在一个理智的世界里，这些数据将是震撼人心的。以色列卫生部将立即停止为孕妇接种COVID-19疫苗，并展开彻底调查。我们能肯定地说，疫苗是这些模式的原因吗？不，就这些数据而言不能。
+2021年2月24日，拜登总统延长了该命令。从那时起，允许与制药公司结盟的政府剥削公民权利，从而践踏美国人的宪法权利。
 
-但没有人可以肯定地说，疫苗没有起到任何作用。但预防原则以及‘首先，不伤害的誓言’要求我们采取行动。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1202021JoeBiden.jpg)
 
-文章有删减。
+2022年2月18日，拜登无视大量医疗和科学数据，再次宣布延长国家紧急状态，证实了白宫并非从非医学角度考虑民众的利益。
 
-文章来源: [https://dailyexpose.uk/2022/02/19/covid-jab-increases-risk-of-miscarriage-stillbirth/](https://dailyexpose.uk/2022/02/19/covid-jab-increases-risk-of-miscarriage-stillbirth/)
+这些来自一线医疗专业人员和医学专家，公布了近两年来COVID-19相关的科学研究和对数十万患者的临床治疗数据和证据，包括，早期新冠病毒治疗实践中，各种药物的临床治疗效果研究论文25篇；证明为儿童接种疫苗意味着让儿童承担不必要的风险相关论文38篇和从感染COVID-19恢复后的人身体免疫力是持久的相关论文29篇。
 
-翻译：洛杉矶盘古农场 – Mike Li
-校对：洛杉矶盘古农场 – 轰炸机
-评论：洛杉矶盘古农场 – 轰炸机
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – 子萍
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-24_00-23-32.png)
 
+值得注意的是，在作为证据的25篇临床研究论文中，基本都是围绕伊维菌素（Ivermectin）和硫酸羟氯喹（Hydroxychloroquine）展开的治疗方案。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Ivermectin-Hydroxychloroquine-1.jpg)
+这些医生和医学科学家组成的国际联盟得出的结论是，COVID-19是高度可治疗的疾病，最好的治疗药物是用自然疗法解决免疫力和经过验证的药物，不再需要国家紧急状态。
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+儿童和健康成人的自然免疫力已被证明更有效，接种疫苗不能减少COVID-19的传播，还会带来多种健康风险（疫苗副作用和疫苗灾难）。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+此外，使用经过充分研究和临床实践的伊维菌素（Ivermectin）和硫酸羟氯喹相关的治疗方案已被证明可有效预防中共病毒导致的Covid-19严重疾病和死亡。
+
+随着各种治疗方案的成功和人体的自然免疫力，在 COVID-19 变体强度逐渐减弱的情况下，美国不再需要国家紧急状态。
+
+这些独立的一线医疗专业人员和医学专家，反对大型制药公司利用COVID-19病毒攫取企业利益，呼吁国会否定拜登总统延长川普总统宣布的国家紧急状态，以恢复美国的宪政民主，恢复医患关系，医疗隐私和个人医疗选择，并终止强制策略和授权。
+
+参考数据：
+
+[17,000 Physicians and Medical Scientists Declare “COVID National Emergency Over” and Call on Congress to Restore Constitutional Democracy by Ending Emergency Powers](https://globalcovidsummit.org/news/physicians-and-medical-scientists-declare-covid-national-emergency-over)
+
+[Supporting Evidence](https://doctorsandscientistsdeclaration.org/home/supporting-evidence/)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

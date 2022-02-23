@@ -2,20 +2,25 @@
 ---
 
 
-## 有声|NBC北京冬奥会转播收视率堪称“灾难”
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2054008/)
+## 有声|日媒解析中共冬奥会所暴露的人权问题
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2054016/)
 
-配音：香草山巡管部– 文凯琳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月21日，据外媒报道，拥有美国地区独家转播权的全国广播公司NBC，在北京冬奥会超低迷的收视率数据上，沦为一场彻底的 “灾难”。
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+当地时间2月18日，日媒从三个方面解析了中共冬奥会所暴露出来的人权现状。
 
-NBC在2014年投资了77.5亿美元，获得了奥运会到2032年为止的独家美国媒体转播权。截至上周二，平均有1220万人在黄金时段观看了NBC、有线电视或其流媒体服务的奥运会，比2018年韩国首尔冬奥会下降了42%。NBC有1000万观众，比2018年下降了47%，在关键的25-54岁人群中，比首尔奥运会时下降了57%。这甚至还包括了NBC在2月13日播出奥运会后直接播出超级碗的收视率，而获得的一定提升。
+首先，瑞典冠军回国后直言中共国不应该有资格承办奥运会，德国双金牌选手回国后表示未来再也不会去中共国，都已经表明，参加冬奥会的运动员们在当地受到了极大的压力。而人权观察组织无法保证为人权发声的运动员的安全，也表明北京是极其凶险之地。
 
-文字版原文：[NBC北京冬奥会转播收视率堪称“灾难”](https://gnews.org/zh-hans/2051013/)
+其次，中共手握国家安全法这一部万能的恶法，所有在中共国为新疆、西藏、香港、台湾发声的人，都会被中共定义为试图分裂国家的罪名，而运动员们是没有能力承担触碰国家安全法的风险的。
 
-音频处理/发稿：Daxia
+此外，国际奥委会也对这样的高压政策默不作声，不但撤销了在东京2020年奥运会上允许运动员为人权发声的所有行为，甚至将在本届冬奥会上为人权发声的行为列为禁忌事项。嘉宾特别指出，本届冬奥会不仅暴露出中共国让人担忧的人权现状，也突显出国际奥委会就是其自身规则的最大破坏者。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+文字版原文：[日媒解析中共冬奥会所暴露的人权问题](https://gnews.org/zh-hans/2048797/)
+
+音频处理：Fei797
+发稿：Fei797
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -23,7 +28,7 @@ NBC在2014年投资了77.5亿美元，获得了奥运会到2032年为止的独�
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
