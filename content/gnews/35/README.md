@@ -2,25 +2,24 @@
 ---
 
 
-## 由于没有接种加强针，法国政府停用了400万两针疫苗接种者的疫苗护照
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2051456/)
+## 中日财经爆┃EU对俄实施金融等制裁 俄351名议员榜上有名
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2051632/)
 
-#### 翻译/撰稿：zzballack
+撰稿：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2109.png)[图片来源](https://www.jiji.com/sp/article?k=2022012001229&amp;g=int)
+欧盟（EU）22日在巴黎召开紧急外长会议，在俄罗斯批准乌克兰东部亲俄派控制地区“独立”后，欧盟决定对俄罗斯实施一系列制裁。 将限制俄罗斯政府进入欧盟金融市场。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-2-14.jpg)图片来源：美联社
-据《网关专家》（Gateway Pundit）2月22日报道，《法国新闻24》 (France News 24) 报道说，在过去一周，近400万已接种了两针新冠疫苗的法国公民由于没有接种加强针，他们的疫苗护照被法国政府停用。被收回护照的人实际上将被降格为未接种者，无法再参加社会的大部分活动。
+根据欧盟公告，将切断乌克兰东部两“独立”地区的经济关系。同时，对在俄罗斯议会投票赞成“独立”的351名议员以及参与侵犯乌克兰主权的27个组织及个人将在欧盟内部实施旅行禁止及资产冻结措施。为了给外交努力留有余地，俄罗斯总统普京没在制裁对象之列。
 
-自从宣布接种第三针以来，法国政府已多次改变加强针的接种时间。起初人们有6个月的时间接种，接着先后改为3个月和7个月。目前，人们必须在上次接种后的4个月内接种加强针，才能确保疫苗通行证有效。
+德国总理肖尔茨22日宣布，将暂停对俄罗斯天然气管道“北溪2号”的审批工作。欧盟外交和安全事务高级代表博雷尔赞扬了德国的决定，并警告，欧盟将根据俄罗斯的行动实施进一步制裁，这些制裁将与美国、英国、加拿大和其他有关国家协调实施。
 
-要求的频繁变化肯定部分导致了许多人错过了加强针的截止日期，但是有越来越多的人根本不愿意接种更多疫苗。一位妇女在接受France 24采访时解释说，当她发现自己的疫苗接种状况变为未接种时感到很震惊，但她说她不会再打针了，因为实在是太多了。
+法国外交部长勒德里昂表示，已取消与俄罗斯外交部长拉夫罗夫原定于25日举行的会晤。
 
-而另一些人则无法接受失去特权。一名妇女在发现自己的疫苗护照被取消后感到非常震惊，随即接种了加强针，这正是法国政府停用护照时所希望看到的。一位18岁的女大学生说，她以为自己的时间充裕，所以一直推迟接种加强针，但通行证被停用促使她最终遵从规定。
+信息源：[ＥＵがロシア制裁決定　金融市場アクセス制限、国会議員３５１人渡航禁止](https://news.yahoo.co.jp/articles/64a8e638dc58758797022d3e25ec9cf92c230884)
 
-胁迫是一个强大的使公民变为顺民的工具。
-
-新闻来源：[France Deactivates 4 Million Vaccine Passports, Forcing Double-Jabbed Citizens to Decide Between Taking the Booster or Being Shunned From Society (VIDEO)](https://www.thegatewaypundit.com/2022/02/france-deactivates-4-million-vaccine-passports-forcing-double-jabbed-citizens-decide-taking-booster-shunned-society-video/)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

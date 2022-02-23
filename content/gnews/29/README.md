@@ -2,26 +2,27 @@
 ---
 
 
-## 中日财经爆┃日本制裁俄罗斯禁止其政府债券的发行和流通
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2051651/)
+## 有苗族住院人数超无苗族人数，医院不敢再公布相关数据
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2052023/)
 
-撰稿：东京樱花团/盖特第一批注册
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2110.png)[图片来源](https://sustainablejapan.jp/2020/10/27/japan-2050-carbon-neutral/55203)
-日本政府23日宣布了对俄罗斯的第一轮制裁。
+#### 编译/简评                    意大利达芬奇农场                    小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-23-alle-10.26.00.png)图片来源：ilmattinodifoggia.it
+我们看一下2月21日意大利 《Foggia 晨报》编辑部发表的一篇文章，最近几个星期打了新冠疫苗的人住院数据“神秘消失”。
 
-制裁措施包括：禁止俄罗斯政府或其机构发行或担保的债券在日本发行和流通；暂停与顿涅茨克共和国（DPR）和卢甘斯克共和国（LPR）（顿巴斯东部的两个亲俄分离主义组织）相关人的签证，并冻结他们在日本的资产；禁止与这两个地区的贸易往来。
+自1月20日起，整整一个月，Foggia 医院每周一次的 《再联合》报没有发表关于新冠病毒患者住院情况的详细报告，报告原来是将住院者划分为新冠疫苗接种者和新冠疫苗未接种者。
 
-如果未来局势恶化，日本将与七国集团和国际社会其他成员合作，尽快采取进一步措施。
+我们并不相信这是因为新闻办公室能干的领导及同事的疏忽；相反我们怀疑这一遗漏是为了回应上面的指令，他们不愿贬低总理德拉吉在七月说出的一句口头禅：“ 要是你不打新冠疫苗， 你就会病倒，就会死亡”。绿色护照给你保障，打疫苗会对新冠病毒有免疫力，你处在“不被感染的人群中。”
 
-日本政府与七国集团保持一致，也在考虑限制半导体、人工智能（AI）和机器人等高科技产品出口俄罗斯。
+事实上，从科学依据来看， 疫苗并不能使你对病毒产生免疫，打了疫苗的人也会被传染，生病甚至住院。持有绿色护照的人并不意味着被授予了有不染新冠病毒的超级权利。因为绿色护照的有效期比疫苗的有效期长。所以，持有有效绿色护照的人被感染了，但同时，如果他们没有责任感或是无症状感染者， 会到处走动去感染别人。
 
-日本政府对制裁俄罗斯的能源产业，包括液化天然气（LNG）持谨慎态度。
+但是德拉吉和斯帕兰察（卫生部长）他们唯一想宣传的是感染者是未接种疫苗的人，这种说法得到了大媒体的赞同。
 
-信息源：[米国と連携の日本もロシア制裁…国債発行・流通禁止](https://news.yahoo.co.jp/articles/d22a21963f97c5322e1be9df7e9471ce9ca983e0)
+简评： 现在很多主流媒体还在宣传新冠疫苗能减少感染率，减少住院率。意政府竭尽全力维护绿色护照，其目的便是尽可能多地促使民众接种疫苗。任何对他们宣传不利的消息，一律是禁声或封杀。媒体成了政府的代言人，人们听不到真相。爆料革命能有自己的媒体平台发声，向世界传播疫苗真相，在这黑暗时刻是何等重要。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+原文链接：[https://www.eventiavversinews.it/da-quando-i-vaccinati-ricoverati-per-covid-superano-quelli-non-vaccinati-lospedale-di-foggia-non-pubblica-piu-i-dati-dettagliati/](https://www.eventiavversinews.it/da-quando-i-vaccinati-ricoverati-per-covid-superano-quelli-non-vaccinati-lospedale-di-foggia-non-pubblica-piu-i-dati-dettagliati/)
+
+编辑、上传： Xiao  baige
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

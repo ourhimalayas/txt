@@ -2,34 +2,26 @@
 ---
 
 
-## NBC北京冬奥会转播收视率堪称“灾难”
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2051013/)
+## 中日财经爆|摩根大通下调罗斯股市评级
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2051088/)
 
-作者：纽约香草山 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月21日，据外媒报道，拥有美国地区独家转播权的全国广播公司NBC，在北京冬奥会超低迷的收视率数据上，沦为一场彻底的 “灾难”。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-22-下午11.32.43.png)
-NBC在2014年投资了77.5亿美元，获得了奥运会到2032年为止的独家美国媒体转播权。截至上周二，平均有1220万人在黄金时段观看了NBC、有线电视或其流媒体服务的奥运会，比2018年韩国首尔冬奥会下降了42%。NBC有1000万观众，比2018年下降了47%，在关键的25-54岁人群中，比首尔奥运会时下降了57%。这甚至还包括了NBC在2月13日播出奥运会后直接播出超级碗的收视率，而获得的一定提升。
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片9.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fimage.cnbcfm.com%2Fapi%2Fv1%2Fimage%2F104856881-rts1jsik_r.jpg%3Fv%3D1544635239%26w%3D929%26h%3D523&amp;imgrefurl=https%3A%2F%2Fwww.cnbc.com%2F2018%2F05%2F29%2Fgoldman-jp-morgan-stocks-look-cheaper-but-its-)
+摩根大通分析师周二（2月22日）将俄罗斯股市评级从“增持”下调至“中性”，此前俄罗斯在承认乌克兰东部两个分离地区独立后，向这两个地区派兵。摩根大通分析师预计，俄罗斯股市近期将进一步下跌。
 
-观众的大幅流失让NBC感到震惊，不得不承认这届奥运会因严苛的中共病毒限制措施、多国外交抵制的政治紧张气氛，还有对参与者谴责人权暴行的言论施压而被载入史册。
+俄罗斯以美元计价的RTS股指盘中稍早触及2020年以来最低，到1316 GMT时下跌1.7%。以卢布计价的MOEX指数下跌1.8%。
 
-分析人士称，北京冬奥会因中共政府践踏人权，犯下种族灭绝罪、反人类罪，而被观众厌恶，抵制观看。NBC标榜其为自由媒体，却屡屡其新闻语言进行伪装，通过引用中共国粉饰其罪行的言辞，为中共独裁的本质站台背书，这种“双标”手法，终于导致收视率滑坡，堪称因果报应。
+摩根大通分析师Elena Jouronova在一份报告中表示：“鉴于不确定性如此之高，估值如此之低，以及投资者接受俄罗斯风险的兴趣下降，无论是做多还是做空，我们在中欧、东欧、中东和非洲(CEEMEA)配置中对俄罗斯转向中性。”
 
-参考链接：[NBC’s Beijing Olympic ratings called a ‘disaster’ for network: ‘I’m stunned … There is karma in the world’](https://www.foxnews.com/media/nbc-beijing-olympic-ratings-disaster)
+股息下降带来了进一步下行风险。摩根大通补充称，当美国的政策明确旨在将俄罗斯孤立于市场之外时，俄罗斯可能无法向外国股东支付股息。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+消息来源:
 
-总编：Zion文恩
-编辑：Zion文恩
-校正/发稿：呼吸的雾霾（文小呼吸）
+[乌克兰危机恶化之际 摩根大通将俄罗斯股市评级从“增持”下调至“中性”](https://cn.reuters.com/article/jpmorgan-chase-russia-aaa-0223-idCNKBS2KS035?il=0)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
