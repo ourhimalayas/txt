@@ -2,31 +2,28 @@
 ---
 
 
-## &#8220;父亲和哥哥都离开了&#8221;……对于疫苗受害者家属是 &#8220;悲伤的节日&#8221;
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2059893/)
+## 有声|韩国单日新增确诊病例突破17万例 再创历史新高
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2059934/)
 
-韩国首尔天池农场
-翻译: 势在必行
-校对: 鱼子酱
-上传: QCFM
+配音：香草山巡管部– 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-5.png)
+据韩媒2月23日报道，韩国中央检疫对策本部宣布，截至今日（23日）零时，新增确诊病例17万1452例，首次突破17万大关，创历史新高。
 
-春节长假期间一直来”疫苗受害者联合焚香所”的 金贤真看到母亲遗像后哭了起来。
-金贤珍/遗属
-“都没有吃过好的，喜欢吃的也没有…”
-金某的母亲在去年8月第一次接种阿斯利康疫苗后,患了心肌炎,30多天后离开了人世。
-“活到现在，第一次看到爸爸哭。”
-上班族43岁的A某在接种疫苗后也接连送走了家人。
-父亲在去年6月接种辉瑞疫苗, 大哥在去年10月接种Moderna疫苗后突然去世。
+截至日前，韩国的疫苗首针接种率为87.27%，完全接种率为86.30%，第三针加强针接种率59.65%。从15日开始给免疫力低下人群接种第四针剂。
 
-过节了，空位显得更大。
-“没了解有多少人打了疫苗死亡，就接种了疫苗,父亲去世了，哥哥去世了……”
-像这样，全国共有1286件因疫苗副作用 导致家人死亡的举报。 遗属们要求政府积极查明疫苗副作用和后遗症。
-遗族
-“看到这么多人去世,却说没有因果性的政府，我感到非常生气。”
-但是到目前为止,疾病管理厅承认 疫苗副作用和死亡因果性的只有2人。
+文字版原文：[韩国单日新增确诊病例突破17万例 再创历史新高](https://gnews.org/zh-hans/2055901/)
 
-TV朝鲜:车顺宇报道
+音频处理/发稿：Daxia
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

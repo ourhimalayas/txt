@@ -2,23 +2,23 @@
 ---
 
 
-## 有声|习近平用金钱给予普京精神安慰
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2059822/)
+## 有声|欧盟六国派专家帮助乌克兰应对网络威胁
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2059783/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-郭文贵先生也在2月20日的大直播中揭秘了习近平对普京的金钱拉拢。
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+据[ONA网站](https://www.oann.com/six-eu-countries-send-experts-to-help-ukraine-deal-with-cyber-threats/)2月22日援引路透社报道，立陶宛国防部副部长周二表示，在俄罗斯正式承认乌克兰东部的两个分离地区后，应乌克兰周一提出的请求，六个欧盟国家——立陶宛、荷兰、波兰、爱沙尼亚、罗马尼亚、克罗地亚将向乌克兰派出一个网络安全专家小组，帮助其应对网络威胁。
 
-郭先生指出，财富的自由和体验是人生价值的重点，但中国劳动人民的血汗钱却全部被中共榨干了。因此，在中共国，钱只能被称做精神安慰剂。
+美国和英国周五均表示，俄罗斯军事黑客是一连串分布式拒绝服务（DDoS）攻击的幕后黑手，这些攻击使乌克兰银行和政府网站短暂瘫痪。英国国防部长本·华莱士周一表示，英国的网络专家正在与乌克兰合作，以帮助保护其免受俄罗斯活动的影响。
 
-至于普京，其作为世界第二大军事强国的总统，而今却因被西方社会冷落而倍感孤独。此时，习近平用剥削中国人民所得到的一万亿美元充当了普京的精神安慰剂。两人随即一拍即合，中共放出病毒打垮世界经济，俄罗斯则用石油和天然气控制欧洲，他们的最终目的即为普京计划称霸欧洲，习近平图谋统治亚洲。
 
-文字版原文：[习近平用金钱给予普京精神安慰](https://gnews.org/zh-hans/2053764/)
 
-音频处理：Fei797
-发稿：Fei797
+文字版原文：[欧盟六国派专家帮助乌克兰应对网络威胁](https://gnews.org/zh-hans/2050489/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -26,7 +26,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,8 +2,8 @@
 ---
 
 
-## 20220223文贵大直播：拥有财富 才能拥有正义的能力
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2059886/)
+## 20220223文贵大直播：各省各地联合抓G系列投资者，特别是HPAY，HCOIN使用者
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2059888/)
 
 作者：东京樱花团小视频组
 
