@@ -2,12 +2,25 @@
 ---
 
 
-## 2月23日文贵大直播摘要（图片8-15
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2060805/)
+## 渥太华示威者对Global News新闻记者说：我们在这里呆了那么久原因是没人与我们对话！
+` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/2060890/)
 
-设计 五月花农场 水涨船高
-![](https://assets.gnews.org/wp-content/uploads/2022/02/AD4CD3D0-75EE-4DFE-BB90-62E8B7D95F6C.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/28B2D3A7-FC5F-457F-8A69-D1202B741CF8.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/54203ACD-0FDC-4918-B558-56E869C8C7F8.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/C1228E66-617F-4E5A-BEF9-ED31D81697C5.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/68EDA3F7-104E-415A-937C-5E1EAF5122B7.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/90EACDDF-87F4-4129-AA1C-C104F0AD6368.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/67023337-8B56-4280-8F15-9684E36034CF.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/4408A82D-C8D8-4763-BE02-E670F943F677.jpeg)
-发布 水涨船高
+#### 加拿大温哥华扬帆农场 视频组
+
+素材：坐看云起时
+听写：蓝天梦灵
+翻译：Kent
+字幕：米小乐
+
+2022/2/19 EST， 一位渥太华的示威者对Global News新闻记者说：
+
+你告诉他们，人们是为了正确的理由而来，是为了解决问题而来，让我问你，你认为那边塔楼上的人是来帮助加拿大的还是来保护自己个人利益的？你怎么想？他们是为我而来的吗？我要告诉你，我们来到这里，在这里待了4周，你知道为什么我们待了4个星期吗？因为没有人愿意听我们说话，也没有人跟我们沟通，政府说和平抗议是一种占领，我们在这里呆了那么久，唯一的原因是没人与我们对话！我们不用催泪瓦斯说话，我们不说警棍说话，我们不骑着马践踏人群，我们说的英语和法语！
+
+而且我有孩子，这就是我来这里的理由，这不是为了我自己，是为了我们的孩子，他们要把我们的孩子与社会隔离开，就因为我无法提供一个二维码，你最好选择站在历史的某一边，先生，不要，不要攻击他，他已经清楚的收到了我们的信息。
+
+我等不及想看到CBC的关于此的新闻报道了！
+
+编辑/发文：Kent
 
  
 

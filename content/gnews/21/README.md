@@ -2,29 +2,24 @@
 ---
 
 
-## 【秘翻新视野】西方民主国家的执政独裁化
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2060856/)
+## 9架中共军机侵入台湾防空识别区
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2060939/)
 
-**By:[秘翻新视野](https://gtv.org/broadcast/watch/6216f42e08ba8a07b1a2740e)**
+撰稿：东京樱花团/向海
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-15.jpg)[图片来源](https://www.airrecognition.com/index.php/world-air-force-aircraft/asia-air-forces/china-air-force-pla/china-fighter-jet-aircraft/5980-shenyang-j-16-fighter-jet-data-pictures-video.html)
+台湾国防部24日晚间宣布，9架中共军机侵入防空识别区（ADIZ），台军机已紧急升空。
 
-**[2022-02-24](https://gtv.org/broadcast/watch/6216f42e08ba8a07b1a2740e)**
+据国防部消息，8架中共“歼16”战机和1架侦察机已经侵入防空识别区。 据称，它在台湾有效控制的南海东沙群岛（普拉塔斯群岛）的东北空域飞行。
 
-**今日主题：**
+台湾国防部说，已紧急派出一架台湾军机以警告中共军机，并启动防空导弹系统以“监视入侵行动”。
 
-[**西方民主国家的执政独裁化**](https://gtv.org/broadcast/watch/6216f42e08ba8a07b1a2740e)
+信息来源：
 
-**1.疫情管控凸显西方民主国家的执政独裁化**
+[中国軍用機9機が台湾防空識別圏に侵入](https://news.yahoo.co.jp/articles/6bce44f3f7e699cc37e4f8074060089f08b50b89)
 
-**2. 与中共蓝金黄的渗透关系**
-
-**3. 信用体系的坍塌会带来怎样的社会结构的变化**
-
-[🔗GTV链接：https://gtv.org/broadcast/watch/6216f42e08ba8a07b1a2740e](http://🔗GTV鏈接：https://gtv.org/broadcast/watch/6216f42e08ba8a07b1a2740e)
-
-发布:星星
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321.jpg)
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

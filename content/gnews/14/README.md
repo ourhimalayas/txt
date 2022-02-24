@@ -2,20 +2,32 @@
 ---
 
 
-## 俄军摧毁74处设施 乌居民区遭到袭击
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2060953/)
+## 普京再次暗示将使用核武器
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2061009/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-16.jpg)[图片来源](https://en.wikipedia.org/wiki/War_in_Donbas#:~:text=War%20in%20Donbas,-From%20Wikipedia%2C%20the)
-随着俄罗斯军队继续对乌克兰发动袭击，俄罗斯国防部表示，到目前为止，它已经摧毁了74个地面设施，包括11个机场。另一方面乌克兰警方称，俄罗斯一天内发动了204次军事袭击。
+撰稿：东京樱花团/黑猫
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片4-7.jpg)[图片来源](https://www.google.com.hk/search?q=Putin+nuclear+weapons&amp;newwindow=1&amp;sxsrf=APq-WBt62Cnkn6Me8106D7J2o0Uyr1lIBw:1645714781043&amp;source=lnms&amp;tbm=isch&amp;sa=X&amp;ved=2ahUKEwjHwrKnzZj2AhWqy4sBHachDYoQ_AUoAXoECAEQAw&amp;biw=1707&amp;bih=695&amp;dpr=1.13#imgrc=pq4TomQUAfDR6M)
+俄罗斯总统普京在莫斯科时间2月24日凌晨，”以保护民众”为理由，宣布他已决定在乌克兰东部开展特别军事行动。
 
-在乌克兰东部城市马里乌波尔，有居民区遭到袭击，已确认有多人死亡，今后伤亡人数有可能急剧上升。
+在一次电视讲话中他说，”任何试图从外部进行干预的人都将面临历史上前所未有的巨大后果”，并重申他准备使用核武器。
 
-信息源：[【速報】ロシア軍 74の施設破壊 住宅地攻撃情報も](https://news.yahoo.co.jp/articles/0fb64239998d412fbd57ebc3e039fb721ecb414d#:~:text=)
+「每日邮报」在提到这次演讲时报道说，”普京向拜登和北约发出令人毛骨悚然的警告”。
+
+同一天，美国新闻网站Politico Europe以 “普京：使用核武器的选择 “为题报道说，”普京正在把核武器推向前台，无视国际法，增加危险。 它警告说：”把我们的希望和信任寄托在少数好战的领导人身上，并不是防止核灾难危机的明确战略。
+
+2月7日，在与法国总统马克龙的会晤中普京说：”不要忘记俄罗斯是一个核所有国家”。 他在提到使用核武器的可能性时说：”在这场战争中没有赢家”。
+
+2月19日，俄罗斯进行了一次大规模的洲际弹道导弹（ICBM）和高超音速巡航导弹的发射演习，这两枚导弹都能携带核弹头，并宣布 “所有导弹都击中了目标。
+
+信息来源
+
+[プーチン大統領、核兵器の行使を再び示唆「邪魔する者は歴史上で類を見ないほど大きな結果に直面するだろう」](https://news.yahoo.co.jp/articles/8bc38fc1a57cfa230c56bcb8854876a252ff37c3/images/000)
 
 *校对：东京樱花团/喜马拉雅的微尘*
 *发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

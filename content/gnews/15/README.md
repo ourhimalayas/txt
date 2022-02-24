@@ -2,23 +2,25 @@
 ---
 
 
-## 9架中共军机侵入台湾防空识别区
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2060939/)
+## 中日财经爆┃日本外相会见英国贸易大臣 协商TPP关税问题
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2060989/)
 
-撰稿：东京樱花团/向海
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-15.jpg)[图片来源](https://www.airrecognition.com/index.php/world-air-force-aircraft/asia-air-forces/china-air-force-pla/china-fighter-jet-aircraft/5980-shenyang-j-16-fighter-jet-data-pictures-video.html)
-台湾国防部24日晚间宣布，9架中共军机侵入防空识别区（ADIZ），台军机已紧急升空。
+撰稿：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片3-10.jpg)[图片源](https://www.bookbang.jp/article/605149)
+24日，日本林芳正外相在外务省内会见了英国国际贸易大臣屈维里安，并就英国加入跨太平洋伙伴关系协定（TPP）进行了会谈。
 
-据国防部消息，8架中共“歼16”战机和1架侦察机已经侵入防空识别区。 据称，它在台湾有效控制的南海东沙群岛（普拉塔斯群岛）的东北空域飞行。
+双方确认，将就取消与英国的农产品和工业产品关税事宜进行讨论。
 
-台湾国防部说，已紧急派出一架台湾军机以警告中共军机，并启动防空导弹系统以“监视入侵行动”。
+在英国加入TPP的谈判中，日本等参与国已经一致认为，英国的国内制度符合TPP的知识产权保护等严格标准。知识产权领域谈判进展顺利，英国将于近期向与会国公布工农业产品关税取消率。
 
-信息来源：
+此外，日方希望英国尽快取消对福岛县食品的进口限制。
 
-[中国軍用機9機が台湾防空識別圏に侵入](https://news.yahoo.co.jp/articles/6bce44f3f7e699cc37e4f8074060089f08b50b89)
+信息源：
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
+[TPP関税協議へ移行確認　林外相、英貿易相と会談](https://news.yahoo.co.jp/articles/a09416ca1757118f54523eed70c0868849a49c3f)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 

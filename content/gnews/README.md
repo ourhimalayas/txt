@@ -15,119 +15,119 @@
 
 ---
 
-### [2/24/2022 文贵盖特：乌克兰阴云密布，所有战争都服务于极少数人的利益，而无辜的人们却沦为牺牲品](/content/gnews/1/README.md)
+### [2/23/2022 文贵直播：普京在乌克兰玩弄的招数将最终将导致欧美以中共支持俄罗斯为理由制裁中共国](/content/gnews/1/README.md)
  ` 秘密翻译组-北美组`
 
-### [新西兰财经G乐部2022年2月24日:财经新闻整理](/content/gnews/2/README.md)
+### [2/23/2022 文贵直播：中共科技发明造假、全是抄袭，华为5G都是忽悠人的；中共既制毒、放毒，又搞疫苗和治副作用的药](/content/gnews/2/README.md)
+ ` 秘密翻译组-北美组`
+
+### [2/24/2022 文贵盖特：乌克兰阴云密布，所有战争都服务于极少数人的利益，而无辜的人们却沦为牺牲品](/content/gnews/3/README.md)
+ ` 秘密翻译组-北美组`
+
+### [在纽约，有低收入者为了现金奖励卡去打了5、6次疫苗，但是政府却在发空卡，因为钱被挪用了](/content/gnews/4/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [徐州铁链女之春风不润母愁颜](/content/gnews/5/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [新西兰财经G乐部2022年2月24日:财经新闻整理](/content/gnews/6/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [铁链女只是代持？结婚证是假的](/content/gnews/3/README.md)
+### [短视频：夸大新冠病例数量，推广致命药物和“疫苗”](/content/gnews/7/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [铁链女只是代持？结婚证是假的](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [英国《每日电讯》：俄全面入侵乌克兰消息总览](/content/gnews/4/README.md)
+### [英国《每日电讯》：俄全面入侵乌克兰消息总览](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [乌俄断交 乌总统号召人民保卫国家](/content/gnews/5/README.md)
+### [五月花简报（02/24/2022）](/content/gnews/10/README.md)
+ ` mayflowertranslate`
+
+### [乌俄断交 乌总统号召人民保卫国家](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [谁是这个世界上最危险的人？贾斯汀-特鲁多现在应该可以光荣上榜](/content/gnews/6/README.md)
+### [谁是这个世界上最危险的人？贾斯汀-特鲁多现在应该可以光荣上榜](/content/gnews/12/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [2022报税季开始 截止时间不变有额外抵扣](/content/gnews/7/README.md)
+### [2022报税季开始 截止时间不变有额外抵扣](/content/gnews/13/README.md)
  ` MG FARM`
 
-### [普京再次暗示将使用核武器](/content/gnews/8/README.md)
+### [普京再次暗示将使用核武器](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆┃日本外相会见英国贸易大臣 协商TPP关税问题](/content/gnews/9/README.md)
+### [中日财经爆┃日本外相会见英国贸易大臣 协商TPP关税问题](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [民意调查发现超过 40% 的年轻房主从父母那里得到经济帮助，平均超过 7 万元](/content/gnews/10/README.md)
+### [民意调查发现超过 40% 的年轻房主从父母那里得到经济帮助，平均超过 7 万元](/content/gnews/16/README.md)
  ` MG FARM`
 
-### [纽约原油期货近8年来首次一度超过100美元每桶](/content/gnews/11/README.md)
+### [纽约原油期货近8年来首次一度超过100美元每桶](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【粤语配音】2022年2月24日：台湾同胞赶紧撤离](/content/gnews/12/README.md)
+### [【粤语配音】2022年2月24日：台湾同胞赶紧撤离](/content/gnews/18/README.md)
  ` MOS香港部`
 
-### [王岐山口中的百万党员之审讯篇](/content/gnews/13/README.md)
+### [王岐山口中的百万党员之审讯篇](/content/gnews/19/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [俄军摧毁74处设施 乌居民区遭到袭击](/content/gnews/14/README.md)
+### [俄军摧毁74处设施 乌居民区遭到袭击](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [9架中共军机侵入台湾防空识别区](/content/gnews/15/README.md)
+### [9架中共军机侵入台湾防空识别区](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [北约召开紧急峰会 讨论加强邻近东欧成员国防御](/content/gnews/16/README.md)
+### [北约召开紧急峰会 讨论加强邻近东欧成员国防御](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [短视频：维族人控诉冬奥会是种族灭绝奥运会](/content/gnews/17/README.md)
+### [短视频：维族人控诉冬奥会是种族灭绝奥运会](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [渥太华示威者对Global News新闻记者说：我们在这里呆了那么久原因是没人与我们对话！](/content/gnews/18/README.md)
+### [渥太华示威者对Global News新闻记者说：我们在这里呆了那么久原因是没人与我们对话！](/content/gnews/24/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [中国沪综指创四周最大跌幅源于俄乌战争](/content/gnews/19/README.md)
+### [中国沪综指创四周最大跌幅源于俄乌战争](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
-### [德国医疗保险有1100万用户：新冠疫苗的副作用远比政府报道的高得多](/content/gnews/20/README.md)
+### [德国医疗保险有1100万用户：新冠疫苗的副作用远比政府报道的高得多](/content/gnews/26/README.md)
  ` xiaobaige`
 
-### [【秘翻新视野】西方民主国家的执政独裁化](/content/gnews/21/README.md)
+### [【秘翻新视野】西方民主国家的执政独裁化](/content/gnews/27/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [中共推进杜撰党史洗脑常态化长效化凸显自由无望](/content/gnews/22/README.md)
+### [中共推进杜撰党史洗脑常态化长效化凸显自由无望](/content/gnews/28/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2022年2月24日，全球中共病毒疫情情况汇总](/content/gnews/23/README.md)
+### [2022年2月24日，全球中共病毒疫情情况汇总](/content/gnews/29/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2月23日文贵大直播摘要（图片8-15](/content/gnews/24/README.md)
+### [2月23日文贵大直播摘要（图片8-15](/content/gnews/30/README.md)
  ` 波士顿五月花农场`
 
-### [一些人利用退货政策，用完就退](/content/gnews/25/README.md)
+### [一些人利用退货政策，用完就退](/content/gnews/31/README.md)
  ` MG FARM`
 
-### [俄罗斯把乌克兰打成世界经济政治牺牲品，美国却将成为最大赢家](/content/gnews/26/README.md)
+### [俄罗斯把乌克兰打成世界经济政治牺牲品，美国却将成为最大赢家](/content/gnews/32/README.md)
  ` YALUN 亚伦`
 
-### [全世界只有新中国联邦最早告诉你真相](/content/gnews/27/README.md)
+### [全世界只有新中国联邦最早告诉你真相](/content/gnews/33/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2月24日俄罗斯入侵乌克兰德国媒体报道时间表](/content/gnews/28/README.md)
+### [2月24日俄罗斯入侵乌克兰德国媒体报道时间表](/content/gnews/34/README.md)
  ` Shuizhuyu`
 
-### [短视频：资助武毒所的NIH否认病毒来自实验室](/content/gnews/29/README.md)
- ` 墨尔本雅典娜农场`
-
-### [徐州铁链女之 —— 路漫漫天渐暗](/content/gnews/30/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [2月24日锁链女（图片1-7）](/content/gnews/31/README.md)
- ` 波士顿五月花农场`
-
-### [多伦多最便宜的独立屋吸引了29个报价，比要价高出512,000美元](/content/gnews/32/README.md)
- ` MG FARM`
-
-### [DC大中华时事：台陆委会重申中华民国是主权国家，不接受‘’一国两制‘’](/content/gnews/33/README.md)
+### [DC大中华时事：台陆委会重申中华民国是主权国家，不接受‘’一国两制‘’](/content/gnews/35/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [军事实力曾世界第三的乌克兰自废武功，惨遭侵占](/content/gnews/34/README.md)
+### [军事实力曾世界第三的乌克兰自废武功，惨遭侵占](/content/gnews/36/README.md)
  ` 秘密翻译组-原创组`
 
-### [文贵先生盖特精要2022/02/24](/content/gnews/35/README.md)
+### [文贵先生盖特精要2022/02/24](/content/gnews/37/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【信仰之声】不一样的生命](/content/gnews/36/README.md)
- ` 纽约香草山MOS03`
-
-### [中共建议乌克兰公民外出挂上中国国旗](/content/gnews/37/README.md)
+### [中共建议乌克兰公民外出挂上中国国旗](/content/gnews/38/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [2022年2月23日 《文贵大直播》全文字版](/content/gnews/38/README.md)
- ` 温哥华扬帆农场七哥直播全文听写组`
 
 ### [俄罗斯股市大跌,被25国制裁](/content/gnews/39/README.md)
  ` 秘密翻譯組G-Translators`

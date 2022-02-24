@@ -2,22 +2,36 @@
 ---
 
 
-## 乌俄断交 乌总统号召人民保卫国家
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2061024/)
+## 徐州铁链女之春风不润母愁颜
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2061060/)
 
-撰稿：东京樱花团/立正道
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片5-6.jpg)[图片来源](https://www.reuters.com/world/europe/ukraine-president-confirms-attendance-munich-conference-amid-war-jitters-2022-02-19/)
-据路透社报道，乌克兰总统泽连斯基24日表示，在俄罗斯开始袭击乌克兰后，他已与俄罗斯决裂。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/adugg-sbpba.jpg)
+***春风不润被拐妇，母亲愁颜万事悲。
+爱女之心人人有，铁链锁颈众生怒。
+丑角作秀欲掩恶，同类底线绝不容。
+尘世温情犹有善，誓斩妖邪净人间。***
 
-泽伦斯基总统表示，乌克兰政府将向人民提供武器，进行国防，保卫自己国家的土地。他还呼吁俄罗斯人民游行抗议战争的开始。
+**2022年2月23日**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/000000ak1-1.jpg)
+**（图片来源于网络）**
 
-信息来源：
+如果你不想看到铁链女事件这样的人间惨剧再发生，请你发出你不满的声音，每天花几分钟的时间，不怕重复地为这些被拐卖的中国妇女献出一点点身为人类同类的爱心。
 
-[ウクライナ大統領、ロシアと断交…国民に国土防衛求め武器供与へ](https://news.yahoo.co.jp/articles/119b75aa53c141d87d349537226a25faa8702401)
+***【文章仅代表作者观点，与Gnews平台无关）***
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+新闻链接：
+
+[1]：**上海地铁男子向百姓传播铁链女事件**
+[2]：**中共江苏省委调查组通告**
+
+作者：洛杉矶盘古农场 – Bc.S
+编辑：洛杉矶盘古农场 – 柯镇恶
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
