@@ -2,24 +2,24 @@
 ---
 
 
-## 加拿大爱德华王子岛将停止疫苗护照
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2056074/)
+## 特鲁多撤消了紧急法
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2056189/)
 
-加拿大温哥华杨帆农场 枫叶快讯
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-355.jpg)
+图片来源： ici.radio-canada.ca
 
-采编： 文莱             翻译编辑：文所未闻
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2201.png)Source：
-据加拿大媒体《CTV新闻》2月23日报道，爱德华王子岛省长当天宣布，该省将于2月28日废除“新冠病毒”疫苗护照系统。
+零对冲网2月23日报道，加拿大总理特鲁多今天说他认为目前的法律和规则足以保证人民的安全。
 
-对此，该省首席公共卫生官表示此举是一个积极的解禁信号，是对更持久地与该病毒和谐共处的及时调整。同时疫情监管和病毒检测等其他公共卫生措施仍将被继续执行。
+在加拿大立法机构投票延长紧急法以允许警察阻止骚乱后两天，现在总理特鲁多现在认为渥太华抗议已结束，他现在决定撤消紧急法。
 
-据悉，该省的疫苗接种率全国最高，近94%的人已接种了两剂疫苗。相信在经济发展和社会民生的双重压力下，其他各省也必将完全取消百害而无一利的疫苗护照政策。
+特鲁多上周首次启动紧急法，说需要警察的额外帮助以终止堵塞状况。
 
-校对编辑：硫酸羟氯喹6
+目前为自由护航的银行账号仍然处于被冻结状态。
 
-发稿：青青
+##### 新闻来源： [Trudeau Revokes Emergency Powers Act](https://www.zerohedge.com/geopolitical/trudeau-set-revoke-emergency-powers-report)
 
-原文链接： [https://atlantic.ctvnews.ca/p-e-i-to-end-covid-19-vaccine-passport-system-next-week-1.5792433](https://atlantic.ctvnews.ca/p-e-i-to-end-covid-19-vaccine-passport-system-next-week-1.5792433)
+#  
 
  
 

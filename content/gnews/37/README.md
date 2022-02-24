@@ -2,39 +2,25 @@
 ---
 
 
-## 新加坡确诊人数再创新高 医疗系统不堪重负
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2055632/)
+## 特鲁多强施紧急状态法遭起诉
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2055899/)
 
-作者：纽约香草山教育部 Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-5.png)
-新加坡今天新增2万6032例中共病毒确诊例，再度突破历史记录。卫生部指出，虽然需要输氧治疗及加护病房患者人数不算多，但近来病床需求大增，主要是为了收治患有慢性病的确诊者。
+加拿大温哥华杨帆农场 枫叶快讯
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2194.png)
+采编： 文莱      编译撰稿：文明(添草灭共)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2197.png)
+据加拿大媒体【真北方】2月22日报道，自由车队运动的抗议者近日将特鲁多政府告上法庭，要求其公布实施《紧急状态法》必要性的法律文件。
 
-卫生部表示，最近由于对抗原快速检测和开具医疗证明的需求剧增，导致原已面临沉重压力、负担的医疗系统不堪重负。 呼吁雇主勿坚持要求员工出示医疗证明或出示确诊后的康复证明；同时，也呼吁民众只有在紧急情况下，才到医院挂急诊；为保护当地医疗体系，将延长公共卫生防范诊所的服务时间，并在综合检测中心为有症状的确诊者提供远程医疗服务。
+报道称，［加拿大前线护士］组织日前向联邦法院提起诉讼，指控当局因非法动用国家紧急权力，而违反了《权利和自由宪章》以及《加拿大权利法案》，并要求议会停止执行特鲁多的各项违宪法规。
 
-据统计，今天新增4起死亡病例，累计956人病故。截至目前，新加坡累计62万2293人确诊。
+该组织的律师表示，当局一直未提供任何依据来支持特鲁多认为“抗议活动已构成公共秩序紧急情况”的论点。因此，其目的就是针对、威胁和惩罚那些反对疫苗强制措施的抗议者。 而自由车队的和平抗议活动提高了公众对政府实施不合理政策的认知，并不存在任何所谓的“国家紧急情况”。 据悉，尽管美加边境目前已重新开放，渥太华的示威者也已基本散去，但自由党和新民主党仍投票决定将[紧急状态法]延长30天。并授权特鲁多政府可以在此期间任意扣押抗议者的资产、取消其保险、甚至逮捕他们。
 
-参考链接：[新加坡確認26,032例新COVID病例創歷史新高，突破600,000大關](https://sg.news.yahoo.com/record-high-of-over-25000-new-covid-cases-in-singapore-crosses-600000-mark-151432235.html?guccounter=1)
+校对编辑：硫酸羟氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+发稿：青青
 
-总编：Lakeman文仁
-总编：zhong
-校对/发稿：小野貓（文凱琳）
+新闻链接：[https://tnc.news/2022/02/22/protester-group-takes-trudeau-government-to-court-over-emergencies-act/](https://tnc.news/2022/02/22/protester-group-takes-trudeau-government-to-court-over-emergencies-act/)
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-11.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

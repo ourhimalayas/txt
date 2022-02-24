@@ -2,36 +2,44 @@
 ---
 
 
-## 有声| 灭共后，新中国联邦当在全国普及《圣经》教育
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2056088/)
+## 在法律范围内以新中国联邦利益为主防止排华及个人灾难
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2056237/)
 
-配音：香草山福音部 – Daxia
+G-TV视频链接：[https://gtv.org/video/id=6212364e1408ee3a03a23037](https://gtv.org/video/id=6212364e1408ee3a03a23037)
 
-当今世界共产极权资本,控制全球90%以上的媒体和社交平台，从而使中共谎言欺骗充满全球，让全球多数人误信了中共病毒及毒疫苗的超限,误导宣传并注射了中共病毒疫苗，人们之间的互害模式到了登峰造极的地步，其根本原因是美国及西方发达国家,被无神论的共产国际全方位暗中破坏人民的信仰近百年，使人民越来越远离基督教和天主教及对上帝的信仰。近一个世纪以来,放纵中共作恶壮大，致使中共步入了灭美灭白灭人类的边缘。
+**郭文贵先生：**我现在最希望“黄河边”千万别打针，我希望他活下去。因为他是我逆增上缘的一个广播员，到处宣传我们，得让这个货活着才能证明我们多干净，多伟大。你看他那个长相就证明我们长得有多帅，多好。所以你想到“黄河边”的时候，你自己不爱自己是不可能的。你想到“蛇妖闫”、“九指妖”，的时候，你想想文真，小新你俩能怎么能不爱自己呢。天天对着自己亲自己的屁股，亲自己的脸，为啥不爱自己呢。
 
+亨利小哥、大石，咱不是自夸，七哥，你说你看个“路大脑袋”那个地儿，“咔，咔”的一口痰一口痰的，还有那个什么“鸡腿潘”，你说咱作为男人凭啥不爱自己啊，是不是！所以说对比之下，我们需要的时候，发现什么？原来我们人生做再正确的决定，你犯一次愚蠢，就把一切皆毁。疫苗就告诉了你。
 
+第二，我们对比世界的时候，我们是世界上最幸运儿、最幸运女，我们要珍惜、感恩。第三、疫苗问题到了今天，已经不是我们所控制，也不是我们所影响。没有人可以挡住，疫苗改变人类的这场整个世界政治、经济全面大冲击，它只是什么形式。我们就永远在法律范围内，以新中国联邦利益为主，阻止一个最根本的问题就是排华。绝对不能让共产党的疫苗和病毒，变成我们个人的灾难，排华是我现在最最担
 
-文字版原文：**[灭共后，新中国联邦当在全国普及《圣经》教育](https://gnews.org/zh-hans/2048517/)**
+字幕来源：[2022月2日6日 《文贵大直播》全文字版](https://gnews.org/zh-hans/1971450/)
 
+编辑整理：Davis；
 
+字幕文件制作：知津；
 
-发稿：雪梨
+视频制作及上传：Cindy；
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+G-News发布：小满；
 
-**更多资讯，更多关注**
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ)、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A)、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/)；
 
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

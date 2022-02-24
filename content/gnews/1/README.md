@@ -2,35 +2,58 @@
 ---
 
 
-## 大直播后记：火鸡龚和路大脑袋的谎言
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2056308/)
+## 以歌灭共要唱尽共产党所有流行的歌，让共产党无歌可唱
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2056378/)
 
-整理：清水冷香、Lucy Liu
-编辑：小红帽
+G-TV视频链接：[https://gtv.org/video/id=62123c421408ee3a03a2371b](https://gtv.org/video/id=62123c421408ee3a03a2371b)
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/02/1-213.png)图片来源：雅典娜设计组（614）
+**郭文贵先生：**然后我们再接着还要唱歌、搞音乐，以乐灭共。我们决定，唱尽共产党所有流行的歌，我们决定走共产党唱歌的路，让共产党无歌可唱。这就是咱们的战略，是吧！让他们无歌可唱，是吧！那我得唱一段，是吧！今天唱一段。我没给你们唱呢！看你们都快睡着了。我今天没开嗓子呢！我开开嗓子。咱唱《我爱你，灭共得雪》好吧！
 
+我爱你，灭共的雪
 
-**郭文贵****先生****2021年10月29日直播**
+轰轰烈烈漫山遍野
 
-火鸡龚（龚小夏）为什么离开法治基金？全人类都知道她要拍电影。她来了就要拍电影，作为董事要十万、二十万、三十万、五十万、三百万、五百万，一千万拍电影。
+你用自己那无暇的身躯
 
-路大脑袋（路德），申请了三十万自己建音乐间。路大脑袋，要房子、要股份，要地位。他讨厌长岛哥、老班长当这个联盟主席，不允许新中国联邦有联盟委员会。他要全部代表了。他申请了三十万买音乐间，给那个盲人强子制造成所谓音乐家。
+净化被谎言笼罩的世界
 
-你问问何频，龚小夏给何频出过什么价啊？ 我问过何频，我说，“何频你咋不用这个龚小夏呀？”他说，“她出的价钱很高啊。一开价都是一集几万，几十万美元”。就她那两下子，我那天看到那个报道，我特想笑。结果龚小夏说，“我为什么要离开法治基金呢？因为我不能说谎，我不能说那上面有几亿美元。”我们法治基金账上有多少钱，每月都是要公布的，大家都可以查的。谁说我有几亿美元了？龚小夏离开了法治基金，原因是她要拍电影，要占有战友的几千万美元–不是几百万，她才离开的。
+你把真相传递给了人间
 
-路大脑袋这个孙子是要花三十几万，要买他自己的所谓的音乐间。他什么音乐啊？万里约炮的音乐？跟蛇妖闫（闫丽梦）吐痰。这样的音乐？就这谎言，他也敢撒。
+要唤醒那无尽的黑夜
 
-资料来源：郭文贵先生2022年2月23日大直播
+沉睡的心田
 
-发布：tianzhihuan
+啊 我爱你
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+啊 灭共的雪
+
+字幕来源：[2022月2日6日 《文贵大直播》全文字版](https://gnews.org/zh-hans/1971450/)
+
+编辑整理：Davis；
+
+字幕文件制作：知津；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ)、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A)、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/)；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

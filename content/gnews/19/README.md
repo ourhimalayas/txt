@@ -2,32 +2,75 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年2月23日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2056076/)
+## 灭共者之郭氏情报站（29）2022/02/23 文贵大直播
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/2056208/)
 
-作者：香草山翻译部
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-4-1-e1645595411271.jpg)
+设计者：纽约香草山设计部 — 喜马拉雅大喵儿，天马星空J
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-17.png)
-校对：Stay文苑
 
-编辑：Stay文苑
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-发稿：Stay文苑
 
-新闻：[https://gtv.org/broadcast/watch/6216e14e08ba8a07b1a26849](https://gtv.org/broadcast/watch/6216e14e08ba8a07b1a26849)
-访谈：[https://gtv.org/broadcast/watch/6216e84908ba8a07b1a26deb](https://gtv.org/broadcast/watch/6216e84908ba8a07b1a26deb)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-4.png)
+
+
+
+
+
+
+**灭共者-郭氏情报站**
+**2022年2月23日 文贵大直播**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/dbff0fc2-8ca4-4bb2-9d4d-139f6dbd6ed0.jpg)
+
+1、水虎年，爆料革命会道出中共国无数个锁链女事件；会有很多个国家授权撤离；甜蜜蜜运动，不止2环内，会响遍世界。今年“六四”两周年，七哥将会解密：为什么2年前可以成立新中国联邦。告诉老杂毛们，共产党必须输了。
+
+2、Omicron病毒初期致死率没那么高，但是在中后期伤害严重，绝对致命。是会进大脑的，血栓很夸张，让很多人失忆，窒息。中共国Omicron传播很严重，公务员染上病毒不敢报告，怕被副手取代。西方政府解禁其实是没有办法的选择。没有打疫苗，或者只打了一针的，对于奥米抗抵抗力是打了2针以上的N倍。战友务必警惕，千万别染上。
+
+3、Hpay的提成。在瑞士，交税是可以申报议定的，是可商量的\_；日本按照单子来。不同的国家有不同的政策。七哥会针对Hpay有专门大直播，给战友解读。喜保险，贴现保险，无条件支付。喜贷款，计划做成战友控制的平台。贷款，目前设计喜币10%的抵押率，直接贷出HDO。存款，5%-10%的利息HCN支付。
+
+4、Gfashion会出大号哨子，哨子和七哥有缘分，曾经差点因为一个勺子破处。女战友们多准备哨子。
+
+5、拜登和布林肯是真正的政治玩家，大喊普京打乌克兰，让世界知道俄罗斯的威胁。一箭多雕：1习近平会沉船，2普京自绝于俄罗斯人民，3东欧国家会由于摆脱不了的欧洲，被威胁被经济拖垮。欧洲会100%迅速帮助美国，不再摇摆于中共国和美国之间。加拿大，澳大利亚还在愚蠢。美国哭诉联合国“这个世界需要我”，导致钱进美国，世界大变。玩乌克兰原本是习近平美国西方示好，但美国借力打力，习近平钱命两空！
+
+6、中共内部只有许其亮几个人知道，8小时拿下台湾，只是等待着时机。美国人等着狼狈为奸的那一刻，让他们一起崩灭。
+
+7、美国知道普京的舞步，陪着普京跳探戈，欧洲成了傻货。源于习，灭于习。最终是剪羊毛，中国人埋单。
+
+8、普京的前菜，就是要世界机构吆喝：先摆出阵势，让全世界看到。美国叫唤最多，欧洲宣布经济制裁。这就是外交的游戏。欧洲的天然气管道去年已经建好，目前已经开始供气，48%欧洲的外来油气都是来自俄罗斯。
+
+9、国际惯例：元首之间的通话，从来不公开。历史北约和俄罗斯的明斯克协议，俄罗斯称自己被骗。西方从来没有过的羞辱协议已经签署了，北约不东扩，秘密协议被普京一下子公开到外交部网站上。美国哭诉联合国都是演戏，就是告诉世界“这个世界不能没有我”。最大的赢家是美国，一分钱没出，只说了几句话，告诉世界风水我独好。
+
+**上一期：**
+
+**[灭共者之郭氏情报站（28）2022/02/20 文贵大直播 – GNEWS](https://gnews.org/zh-hans/2044872/)**
+
+
+
+**编辑/发稿：小鹿**
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-124.jpg)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
 
  
 

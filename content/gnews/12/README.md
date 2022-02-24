@@ -2,25 +2,28 @@
 ---
 
 
-## COVID-19 最新情报｜罗马尼亚最大足球具乐部宣布禁止接种疫苗的球员参赛及效力
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2056171/)
+## 中日财经爆|华为就雇佣诉讼案与南非劳工部谈判
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2056293/)
 
-**撰文｜疫情关注组 / 发布时间｜24/02/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/羅馬尼亞最大足球俱樂部宣佈禁止接種疫苗的球員參賽及效力.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：**[**https://gettr.com/post/pl6k0218bf**](https://gettr.com/post/pl6k0218bf)**)**
+撰稿：东京樱花团/peterwong
 
-罗马尼亚规模最大的足球具乐部 Steaua Bucharest 日前宣布，将全面禁止接种过 Covid-19 疫苗的球员再为球队效力，原因是接种过疫苗的球员已经“失去力量”并“开始倒在赛场或死在医院”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/华为就雇佣诉讼案与南非劳工部谈判.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fimg.superpyq.com%2F2022%2F02%2F14%2FFeb_14_2022_00_53_45_https___web_popo8_com_20220213_20220213222933_57066type_jpeg_size_800_150_end_jpg.jpeg&amp;imgrefurl=https%3A%2F%2Fsuperpyq.com%2Farticle%2F6209ee7d417f933edd0dce49&amp;tbnid=VLfiK597E3A7lM&amp;vet=12ahUKEwjB_fvJt5f2AhUEHqYKHUbUBoUQMygDegQIARAh..i&amp;docid=c1lUaVSmQFEyxM&amp;w=800&amp;h=534&amp;q=%E5%8D%8E%E4%B8%BA%20%E5%8D%97%E9%9D%9E%E5%8A%B3%E5%B7%A5%E7%BA%A0%E7%BA%B7&amp;ved=2ahUKEwjB_fvJt5f2AhUEHqYKHUbUBoUQMygDegQIARAh)
 
-该具乐部的老板，商人兼政治家吉吉·贝卡利（Gigi Becali）表示，他也不再允许接种疫苗的球员参加比赛，他不愿再看到原本伟大的球员渐渐的变得虚弱，他更不忍心再看到一个个年轻健康的球员死去。
+路透社2月23日报道，南非劳工部正在与中共国华为技术有限公司的南非子公司就可能的庭外和解进行谈判，劳工部指控华为没有遵守当地的招聘配额要求。
 
-贝卡利强调，接种过 COVID-19 疫苗的人会倒下，会死在医院里，而那些拒绝接种疫苗的人却不会。他指出，“有人可能会笑话我，但我是对的，如果你看到CFR（CFR Cluj）和 Rapid（Rapid Bucuresti ）的球员们倒在地上，呼吸困难，你就该知道所有接种疫苗的人都会失去力量！”
+南非正面临自1994年白人少数统治结束以来最高的失业率。南非当局本月将华为技术南非公司告上法庭，称该公司没有达到60%的员工必须是南非人的要求。
 
-贝卡利的这番言论不意外的引起了该国政府的强烈反感。当局在脸书官方页面 RO Vaccinare 上发布一份最新声明，反驳称“足球运动员在接种了 COVID-19 疫苗后不会失去力量。”并指出，“从医学和科学的角度来看，没有任何研究可以支持罗马尼亚某位人士的奇特观点。”
+劳工部的律师Fikiswa Mncanca-Bede告诉路透，该部官员周一会见了华为技术南非公司的代表，劳工部的目标是在周五之前完成谈判。
 
-不过，仍然有不少当地民众支持贝卡利对疫苗的看法，他们认为，政府的声明恰恰反映了他们很心虚。
+华为技术南非公司证实，它已经“进入谈判，以达成和解协议”，该案件在等待结果。
 
-来源｜[推特](https://twitter.com/Emishor/status/1496447904617312259?s=20&amp;t=_vOooKK2zDsQcuQM5gW2Pw)、[ESPN](https://www.google.com.hk/url?sa=t&amp;rct=j&amp;q=&amp;esrc=s&amp;source=newssearch&amp;cd=&amp;ved=2ahUKEwjLht_1sJf2AhXiD0QIHb9KAJoQxfQBKAB6BAgQEAI&amp;url=https%3A%2F%2Fwww.espn.com%2Fsoccer%2Ffcsb%2Fstory%2F4600728%2Fromanias-fcsb-deny-owners-suggestion-to-not-pick-vaccinated-players&amp;usg=AOvVaw2UZFvqTNUpQEbDKVhmEXsf)
+消息来源:
 
+[独家：南非劳工部与华为子公司谈判 以和解有关雇佣的诉讼](https://cn.reuters.com/article/south-africa-labor-huawei-talk-0223-idCNKBS2KS0UT?il=0)
+
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

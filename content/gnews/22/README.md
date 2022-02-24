@@ -2,31 +2,24 @@
 ---
 
 
-## 大直播后记：奥密克戎让人失忆，领导健康是国家机密
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2056053/)
+## COVID-19 最新情报｜罗马尼亚最大足球具乐部宣布禁止接种疫苗的球员参赛及效力
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2056171/)
 
-整理：Anita、Lucy Liu
-编辑：文泓
+**撰文｜疫情关注组 / 发布时间｜24/02/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/羅馬尼亞最大足球俱樂部宣佈禁止接種疫苗的球員參賽及效力.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：**[**https://gettr.com/post/pl6k0218bf**](https://gettr.com/post/pl6k0218bf)**)**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/2-94.png)图片来源：雅典娜设计组
+罗马尼亚规模最大的足球具乐部 Steaua Bucharest 日前宣布，将全面禁止接种过 Covid-19 疫苗的球员再为球队效力，原因是接种过疫苗的球员已经“失去力量”并“开始倒在赛场或死在医院”。
 
+该具乐部的老板，商人兼政治家吉吉·贝卡利（Gigi Becali）表示，他也不再允许接种疫苗的球员参加比赛，他不愿再看到原本伟大的球员渐渐的变得虚弱，他更不忍心再看到一个个年轻健康的球员死去。
 
-奥密克戎（变种病毒）不止进入咽部、不到肺部的，它是进入人大脑的。你一定要看到这个问题的严重性——进入大脑的，且（造成）窒息的人很多。奥密克戎致死率没那么高，但是它的这个副作用，让很多人大脑失忆。
+贝卡利强调，接种过 COVID-19 疫苗的人会倒下，会死在医院里，而那些拒绝接种疫苗的人却不会。他指出，“有人可能会笑话我，但我是对的，如果你看到CFR（CFR Cluj）和 Rapid（Rapid Bucuresti ）的球员们倒在地上，呼吸困难，你就该知道所有接种疫苗的人都会失去力量！”
 
-如同最早的冠状病毒，让你没味觉（嗅觉），然后（造成）肺部咳嗽。这个（病毒）不让你咳嗽，它（直接）进大脑。而且更重要的是，发现了一个很可怕的问题，就是（人体）血栓。这个血栓是很夸张，就像刚刚我们一个同事，她的父亲过世，她说是血管堵（塞），我相信一定是这个疫苗（副作用）。
+贝卡利的这番言论不意外的引起了该国政府的强烈反感。当局在脸书官方页面 RO Vaccinare 上发布一份最新声明，反驳称“足球运动员在接种了 COVID-19 疫苗后不会失去力量。”并指出，“从医学和科学的角度来看，没有任何研究可以支持罗马尼亚某位人士的奇特观点。”
 
-我有一个特别好的兄弟，就像我的亲兄弟一样，他原来做过手术，（已经）做了4、5年了。头两天（他）尿血，然后去（医院）看看好了，没事儿，他以为又是癌症复发呢。其实不是，就是这个疫苗的事啊，他没有常识。另外一个就是在西藏的一个战友，他是军人，身体很好的。头一段时间，组织上让打了两次疫苗，但是两次都打了假疫苗。他特别得意，七哥我毕竟有这个权利啊，我把我下边的几乎都打假的。
+不过，仍然有不少当地民众支持贝卡利对疫苗的看法，他们认为，政府的声明恰恰反映了他们很心虚。
 
-我说，你干了好事儿。结果他回去了染上了奥密克戎，但他不敢说。你们知道**共产党最大的官方秘密，个人身体****（健康）****是国家机密****；****所有人的肾能力、更换器官是国家机密****。**领导最高机密哪能让你知道？所有的高官领养孩子，是个人的最高机密，所有高官都干嘛你知道吗？都是在外面搞了女人以后，然后找人（生娃）。所以中国民政部的那个部长，我跟他很熟很熟，现在被抓个球的了，哪还有钱啊，叫李（立国）什么，前年被抓了。他管得最多的事情就是给部级和各省级领导养孩子（私生子）。
-
-资料来源：[2022年2月23日 文贵大直播](https://gettr.com/streaming/pwbjub06c5)
-
-发布：tianzhihuan
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+来源｜[推特](https://twitter.com/Emishor/status/1496447904617312259?s=20&amp;t=_vOooKK2zDsQcuQM5gW2Pw)、[ESPN](https://www.google.com.hk/url?sa=t&amp;rct=j&amp;q=&amp;esrc=s&amp;source=newssearch&amp;cd=&amp;ved=2ahUKEwjLht_1sJf2AhXiD0QIHb9KAJoQxfQBKAB6BAgQEAI&amp;url=https%3A%2F%2Fwww.espn.com%2Fsoccer%2Ffcsb%2Fstory%2F4600728%2Fromanias-fcsb-deny-owners-suggestion-to-not-pick-vaccinated-players&amp;usg=AOvVaw2UZFvqTNUpQEbDKVhmEXsf)
 
  
 

@@ -2,21 +2,36 @@
 ---
 
 
-## 雅典娜时报-第214期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2056032/)
+## 有声| 灭共后，新中国联邦当在全国普及《圣经》教育
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2056088/)
 
-#### 《雅典娜时报》汇聚全球新闻时事
+配音：香草山福音部 – Daxia
 
-#### 编辑：精灵蓝
-排版：小蚂蚁614
-![圖片](https://media.discordapp.net/attachments/825592691433668612/946208825684410378/155_8.png?width=812&amp;height=1209)![圖片](https://media.discordapp.net/attachments/825592691433668612/946208826154164264/155_11.png?width=812&amp;height=1209)
-*发布：陶子*
+当今世界共产极权资本,控制全球90%以上的媒体和社交平台，从而使中共谎言欺骗充满全球，让全球多数人误信了中共病毒及毒疫苗的超限,误导宣传并注射了中共病毒疫苗，人们之间的互害模式到了登峰造极的地步，其根本原因是美国及西方发达国家,被无神论的共产国际全方位暗中破坏人民的信仰近百年，使人民越来越远离基督教和天主教及对上帝的信仰。近一个世纪以来,放纵中共作恶壮大，致使中共步入了灭美灭白灭人类的边缘。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
+文字版原文：**[灭共后，新中国联邦当在全国普及《圣经》教育](https://gnews.org/zh-hans/2048517/)**
+
+
+
+发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
