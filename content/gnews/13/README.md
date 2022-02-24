@@ -2,22 +2,34 @@
 ---
 
 
-## 建制议员提议剥夺部分港人领取消费券的权利
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2059328/)
+## 澳大利亚宣布对俄罗斯实施制裁
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2059445/)
 
-作者：东京樱花团｜阿恩
+作者：新西兰伊甸农场-玫瑰
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月23日，据相关媒体报道，由于俄罗斯承认顿涅茨克和卢甘斯克人民共和国的独立，澳大利亚总理斯科特-莫里森当天宣布，澳洲政府将对俄罗斯提出制裁。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-24-上午10.28.54.png)
+莫里森总理在声明中指出，该制裁措施将包括对俄罗斯安全理事会八名成员实施的旅行禁令和有针对性的金融制裁。此外，与莫斯科有关的实体以及俄罗斯银行、交通、能源、电信、石油、天然气和矿产行业都将受到处罚。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/建制议员提议剥夺部分港人领取消费券的权利.png)
+莫里森表示，此举是为了回应俄罗斯对乌克兰的侵略，因为澳大利亚绝不会接受俄罗斯抱有入侵邻国的可能性。
 
-财政司司长陈茂波今日（24日）到立法会简介预算案，有建制议员提出将消费券与全民强制检测挂勾，接受3次强检的人才有资格领取。陈茂波不认同，指不守规本身已有罚则，没必要将系统和全民检测连在一起。有议员提出一些不在香港的消费、已经移民的人士都不能领取福利。财政预算案及税务政策组主任王学玲回应指，港府和入境处沟通过后，认为难以判断不在香港的人是否会再回港，现时有要求申请人确认是否符合资格。
+早先，美国总统乔-拜登和英国首相鲍里斯-约翰逊相继宣布了对俄罗斯所实施的制裁。美、英两国和欧洲部分国家认为，顿巴斯共和国已经侵犯了乌克兰的主权。
 
-纳税人的钱养活着香港的公职人员，在中共病毒肆虐，港府荒谬施政的结果下，香港经济衰败民间困苦，港府终于再度开仓放粮，向每位年满18岁的香港永久居民和新来港人士，分两期发放共1万元的消费券，两期间隔的时间长达6-7个月。取之于民却难用之于民，是当权者的特色之一。中共亲选的立法会建制派议员对消费券的派发提出各种质疑，要求港府耍流氓将消费券当成诱因，牵制港人为全民强检护航。财政司司长陈茂波没上钩，称不强检已有处罚。建制派议员不死心，提出要剔除移民海外港人领取消费券的资格，有人更炮轰移民港人抛弃国家，却留恋1万元。建制议员偷换概念的水平与中共如出一辙，他们忽略掉港府的财政储备全部是来自港人的辛勤汗水，这些饱食终日的蛀虫们在香港经济状况一塌糊涂的时候，还能每月按时享用超过十万港元的津贴，短了他们一分钱也会跳出来向港府抗议，他们有什么资格剥夺香港建设者拿回自己血汗钱的权利。港府高官口口声声要移民海外的港人回流，林郑也公开对离开香港的人表示惋惜，因为他们知道替代移民港人的将会是更穷凶极恶的中共走狗，他们绝不会像之前的港人视香港为家辛勤付出，只会令香港陷入更深重的黑暗中。
+参考链接：[‘This is Only the Start’: Australia Files Sanctions Against Russia Over Recognition of LPR, DPR](https://sputniknews.com/20220223/this-is-only-the-start-australia-files-sanctions-against-russia-over-recognition-of-lpr-dpr-1093286813.html)
 
-资料来源：[**消费券使用期至少半年  检视移民申领资格  议员倡拒强检者无得拎**](https://www.hk01.com/%E6%94%BF%E6%83%85/739759/%E6%B6%88%E8%B2%BB%E5%88%B8%E4%BD%BF%E7%94%A8%E6%9C%9F%E8%87%B3%E5%B0%91%E5%8D%8A%E5%B9%B4-%E6%AA%A2%E8%A6%96%E7%A7%BB%E6%B0%91%E7%94%B3%E9%A0%98%E8%B3%87%E6%A0%BC-%E8%AD%B0%E5%93%A1%E5%80%A1%E6%8B%92%E5%BC%B7%E6%AA%A2%E8%80%85%E7%84%A1%E5%BE%97%E6%8B%8E)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-*校对：东京樱花团 / 文小白*
-*发布：东京樱花团 / 老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
+总编：Irene木木
+编辑：Ivy001
+校正/发稿：呼吸的雾霾（文小呼吸）
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,31 +2,18 @@
 ---
 
 
-## 视频|俄罗斯入侵乌克兰 欧美出台对俄制裁措施
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2059389/)
+## 美国卡车司机华盛顿抗议活动是否会如加国一样被警察野蛮执法？
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2059518/)
 
-制作：香草山视频部
+**编译：verifunny**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/22-7.jpg)
+据《大纪元》2月23日报道，美国五角大楼官员说，国防部长劳埃德·奥斯汀已批准了华盛顿特区大都会警察局（MPD）和美国国会大厦警察（USCP）提出的部署要求。国民警卫队在一份声明中说，这项批准将使大约400名华盛顿特区国民警卫队成员能够 “在指定的交通站点提供支持，提供指挥和控制，并满足维持的要求”。
 
-普京21日宣布承认乌东2个分离主义共和国独立，并派俄军入境维和后，欧盟和美国一致认为俄罗斯该举动是入侵乌克兰的开始，纷纷推出台针对俄罗斯的制裁措施。
+最近在加拿大的紧急法令野蛮执行会不会在美国上演？执法过当，冻结银行账号，骇客泄漏捐款者的讯息，媒体恶魔化的报道等等。美国人的反应会是什么样的，无人知晓。
 
-法国外长勒德里安22日以欧盟轮值主席国身份表示，欧盟成员国一致同意对俄罗斯国家杜马351位议员以及27个实体及个人实施制裁，范围涵盖政治、军事、商业和媒体。
+美国卡车车队会在这个星期抵达预定的目的地，延续加拿大卡车车队所释放的捍卫自由的精神与决心。美国会不会是那个使到欧洲国家的卡车行动更大的推动力？ 大家需要做好准备，因为大家需要囤积食物，水和药物来渡过卡车抗议导致供应链缺货的局面。
 
-欧盟外长波瑞尔和欧盟执委会主席范德赖恩先后表示，欧盟一系列制裁方案除了锁定参与侵略行动的个人和企业外，还包括禁止乌东2个分离地区与欧盟进行贸易，以及欧盟限制俄罗斯政府在欧盟金融市场上筹资的能力。欧盟希望此措施尽可能遏制克里姆林宫推动侵略。
-
-美国总统拜登同一天宣布制裁俄罗斯2大金融机构。他宣布对俄罗斯国有开发银行（VEB）与军方银行2大金融机构全面封锁，对俄罗斯主权债务实施全面制裁，切断俄罗斯政府与西方金融体系的联系，使其无法再从西方筹募资金或在欧美市场交易新债。
-
-美国财政部随即公布制裁名单，包括VEB与Promsvyazbank（PSB）及其42家子公司。此外，也宣布制裁多位普京核心圈中具有影响力的人员及其家人。
-
-发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+**新闻来源**：[https://www.theepochtimes.com/pentagon-approves-deployment-of-national-guard-troops-for-dc-trucker-convoy-protest\_4296291.html](https://www.theepochtimes.com/pentagon-approves-deployment-of-national-guard-troops-for-dc-trucker-convoy-protest_4296291.html)
 
  
 

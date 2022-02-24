@@ -2,37 +2,42 @@
 ---
 
 
-## 有声|大直播——个人破产让郭先生轻装上阵灭共！
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2059212/)
+## 新西兰通过新建模显示两地单日新增病例可达9000例
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2059341/)
 
-配音：香草山农场 – 信念7
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-在签署了个人破产文件后，郭先生在2月16日的大直播中与战友们分享了自己的开心和幸福，因为这是用鲜血和生命换来的让自己更安全的灭共方式！加上当时直播所穿的西装和领带都是5年前第一次直播开启爆料革命时穿的，也昭示着郭先生开启了自己全身心奉献人类的新人生，同时进入轻装上阵全力灭共的新篇章！
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1dc036051d566f49a9b8ce4301364145.jpeg)图片来源: Gettr(@MilesGuoLive)
-郭先生不是用金钱和财富来运行爆料革命，而是用信仰、智慧、执行力和决绝来灭共！五年来，在同样的红绿灯起跑线上，“警察”只给郭先生亮红灯，却给共产党的代理人一路绿灯。郭先生好不容易在PAG这个路口逮住一次黄灯：个人破产！
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image011-4.jpg)RNZ / Simon Rogers
+据新西兰媒体RNZ报导，Counties Manukau地方医管局的人口健康主任Gary Jackson通过模型预测疫情发展情况，新的模型显示，在Omicron疫情中，如果传播率低，奥克兰和北地的病例数峰值可能达到每天4000例，如果传播率高，则可能达到9000例。
 
-击倒敌人的方式不仅仅是站着，躺下击倒敌人的致命性也许更强。势均力敌的拳击赛很难KO取胜，却往往从战略战术上让对方犯规犯错赢得点数取胜。郭先生的亲身经历让世界震惊：美国司法界的多个第一都出现在郭先生案子上，如罚款单日最高，取消陪审团等。在“以法灭共”的战略中，现在郭先生要以亲身受到的抹黑和迫害来唤醒世人，透过PAG案和自己的个人破产案，让美国看到中共已把自己的司法系统“蓝金黄”到何种程度！
+上个月，Jackson的模型显示，北部地区出现了1800个病例的高峰，其中约有190人住院。
+
+昨天，奥克兰有1802个新的小区病例，北地有36个。奥克兰的医院里有128名新冠患者。Jackson说，这与低度传播的情况相当吻合，预计在3月中旬达到高峰。 Jackson还表示，新西兰的新冠疫情模型有很多参考的是澳大利亚的情况，但新西兰过去的峰值都较低，这意味着实际数字可能比预测的要低。
 
 
 
-文字版原文：[大直播——个人破产让郭先生轻装上阵灭共！](https://gnews.org/zh-hans/2052767/)
+[援引连结](https://www.rnz.co.nz/news/national/462071/covid-19-omicron-outbreak-peak-could-reach-4000-cases-a-day-in-northern-areas-modelling)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+**推出问题，敲出真相，爆料在路上！**
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+**请关注和订阅我们的以下账号：**
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**玫瑰看新闻YOUTUBE账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**ROSE NEWS**
+
+**【玫瑰看新闻】推特账号**：
+
+**ROSE NEWS (@ROSENEWS4)A**
 
  
 

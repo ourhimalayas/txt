@@ -2,17 +2,41 @@
 ---
 
 
-## 新冠疫苗接种覆盖率近122国家没有“达标”
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2059358/)
+## 有声|德大陆集团无视中共施压，继续投资立陶宛
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2059461/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/11-17.jpg)
-2021年10月，世卫组织的独立分配疫苗小组（IAVG）概述了其在2022年中期实现全球COVID-19疫苗接种的战略。在该战略中，该小组呼吁进行国际协调的疫苗推广，以达到以下目标：在2021年9月底前实现所有国家10%的疫苗覆盖率，在12月底前实现所有国家40%的覆盖率，最终在2022年中期实现所有国家70%的疫苗覆盖。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+波罗的海国家立陶宛因欢迎台湾设立“台湾代表处”受到中共多方打压，中共甚至威胁德国跨国公司大陆集团断绝和立陶宛的联系。
+![Continental Automotive achieves respectable result in Q2, 2021 -  Manufacturing Today India](https://www.manufacturingtodayindia.com/cloud/2021/11/17/Gx1fZjvL-Continental-2.jpg)https://www.manufacturingtodayindia.com/
+大陆集团在立陶宛拥有多个生产出口零部件的生产设施，中国是大陆集团汽车零部件的最大进口国之一。
 
-除了预计将在2022年逐步缓解的供应限制外，国际疫苗小组还确定了到2022年中期实现70%覆盖率目标受到进一步挑战。数量的增加将给资源匮乏的国家带来困难。这包括接收、储存、分发、管理和记录疫苗使用（包括浪费）的能力，该组织警告说，普遍存在的“错误信息”助长了对疫苗的犹豫，这是实现免疫目标的另一个障碍。
+据路透社报导，在中共施压的情况下，德国大陆集团一名高管透露，公司仍将继续在立陶宛投资一家工厂。
 
-七哥在昨天的大直播提到疫苗灾难没有想象的那么糟糕，以上的数据也支持了七哥的直觉，很多国家一直没有推进疫苗接种覆盖目标，而即使已经完成目标的国家，也可能很多有良知的医生或护士是故意把疫苗浪费而完成接种任务的。这个数据也可以预估哪些国家是疫苗的重灾区，医疗和经济会过度负荷。
+外界普遍认为中共干预大陆集团等私营公司的业务是非法行为。中共此举不但将跨国公司拖入外交争端，还将自己置于与欧盟冲突的轨道上。
 
-**新闻来源**：https://www.statista.com/chart/26807/global-progress-towards-the-who-covid-19-vaccination-goal/
+欧盟于1月在美国、澳大利亚和台湾的支持下，就北京涉嫌限制立陶宛的贸易在世界贸易组织对中国提起了贸易诉讼。
+
+
+
+文字版原文：[德大陆集团无视中共施压，继续投资立陶宛](https://gnews.org/zh-hans/2056537/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/24/2022 4:02 PM (UTC)`
+
+2/23/2022 Miles Guo: Peng Liyuan's cousin bought a trafficked woman and made her his wife. Xi Jinping and Peng Liyuan know better than anyone else the miserable lives of the trafficked women in Communist China. All the world's most powerful and wealthy people envy the pleasure brought by the CCP’s highly centralized power. It is the CCP that has led the governments of various countries to go to extremes.<br/><br/>2/23/2022 文贵直播：彭丽媛的表哥买了拐卖女为妻，习近平和彭丽媛比任何人都清楚中国的被拐卖妇女的悲惨生活；世界有权有钱的人无不羡慕中共的高度集权带来的快乐，中共导致各国政府走向极端化<br/>
+![img](https://media.gettr.com/group11/getter/2022/02/24/16/ddf56a78-b134-7c5c-2e4a-96042390610b/out.jpg)
+
+---
+
 `@miles 2/24/2022 3:34 PM (UTC)`
 
 <br/>2月24号：尊敬的战友们好．世界被邪恶的共产党和魔鬼制造的战争所笼罩……7哥想说的话，都在下面的视频中了！😭😭😭😭😭😭😭😭😭😭
@@ -148,15 +155,6 @@ EP11: The Heroes. Let's tear down the monstrous lies of this despicable #HBO #VI
 
 2月22号：尊敬的战友们好，这个普通的一个微信对话证明了中国比地狱还悲惨的过去七十年！😭😭😭😭😭😭😭😭😭😭😭😭😭😭😭😭😭
 ![img](https://media.gettr.com/group19/getter/2022/02/22/16/2be3f9d7-aed3-343a-1f95-5a82529ff97f/3a2389fbd1f5275296b219952d1f762c.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@baoliaobaike 2/22/2022 12:06 PM (UTC)`
-
-🆙【爆料百科-13579计划】❤️‍🔥<br/><br/>迟浩田亲自设计规划，习近平签字的第一绝密㊙️文件！<br/>确保美国人可以大面积死亡💀，让美国政府彻底灭亡。<br/>从而保证中国共产党统治世界。<br/>#爆料百科 #爆料革命  #CCP #香草山 #香草山农场 #3F #13579计划 
-![img](https://media.gettr.com/group20/getter/2022/02/22/12/5c6501f2-c313-3404-b4c8-a8cd00bb7dc8/out.jpg)
 
 ---
 

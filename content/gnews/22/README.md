@@ -2,24 +2,33 @@
 ---
 
 
-## 视频|蓬佩奥解析当下中俄关系 习近平会破坏世界秩序
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2059247/)
+## 中共病毒疫苗的致死率是普通疫苗的50倍
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2059347/)
 
-制作：香草山视频部
+作者：银河系农场 – 骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月21日，据相关媒体消息显示，一项针对美国官方中共病毒疫苗不良反应数据的研究发现，中共病毒疫苗针剂的致死率至少是普通流感疫苗的50倍。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/7-36.jpg)
+据悉，美国疾病控制与预防中心CDC设立的疫苗不良事件报告系统VAERS包含了美国所有因疫苗造成的不良反应报告的历史数据。其中，在2020年12月至2022年1月28日期间，即自政府推进中共病毒疫苗接种工作后，该系统报告的不良反应事件超过74万例；然而，该系统在2008年到2020年间，一共只报告了13万余例疫苗不良反应事件。
 
-22日，美国前国务卿蓬佩奥在接受采访时，针对目前的乌克兰局势，分析了目前的中俄关系。
+基于对该系统中数据和疫苗接种剂量的分析，研究人员指出，与普通流感疫苗相比，中共病毒疫苗使接种者需要紧急护理的可能性高出了65倍，致残率增加了19倍，致死率提高了49倍，且造成接种者下一代先天缺陷的概率上升了57倍。综合数据表明，中共病毒疫苗注射剂造成的死亡人数至少是流感疫苗的49倍。
 
-蓬佩奥表示，中共和俄罗斯的同盟关系究竟如何，要取决于西方对他们的态度和行动。目前来看，二者在很大程度上还只是虚张声势，因为虽然双方都认为可以从合作中获得各自的利益和机会，但他们之间还有多方面的利益冲突。不过，他也警告说，美国需要立刻团结西方国家，阻止普京的进一步行动，否则，任由中俄继续下去，整个世界就可能演变成以俄罗斯、中共价值观为主导，人的尊严和安全被排在最后的社会模式。
+但有评论人士表示，海量的数据和证据已经证实了中共病毒疫苗的害处远远大于它有可能给接种者带来的防护性，但部分国家的政府仍旧一意孤行地试图推进在儿童群体中的中共病毒疫苗接种工作。这一举措带来的次生灾难或将难以估量。
 
-最后，蓬佩奥特别指出，将要破坏整个世界秩序的不是普京，普京充其量只是一个配角，真正会最终破坏世界秩序的一定是习近平。
+参考链接：[FACT: Covid-19 Vaccines are almost 50 times Deadlier than the Flu Vaccines per Number of Doses administered according to official USA data](https://dailyexpose.uk/2022/02/21/covid-vaccines-50-times-deadlier-than-flu-vaccines/)
 
-发稿：谐趣园
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+
+总编/编辑: Irene木木 
+校正/发稿：Fei797
 
 **更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
