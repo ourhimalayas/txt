@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/24/2022 3:34 PM (UTC)`
+
+<br/>2月24号：尊敬的战友们好．世界被邪恶的共产党和魔鬼制造的战争所笼罩……7哥想说的话，都在下面的视频中了！😭😭😭😭😭😭😭😭😭😭
+![img](https://media.gettr.com/group35/getter/2022/02/24/15/b7e522a4-8cdf-9203-a42d-c12b2b5da44c/out.jpg)
+
+---
+
+`@miles 2/24/2022 3:32 PM (UTC)`
+
+2/23/2022 Miles Guo: The less developed places are less suitable for people to live in Communist China! In county, township, village, and other low government levels, several local families have taken up all the key positions such as those in the public security organs, procuratorates, and courts. The shielding among these interest groups have led to the prevalence of the incidents such as that of the chained woman in Communist China.<br/><br/>2/23/2022 文贵直播: 中共国越是底层越不适合人居住！在县乡镇村等基层单位，常常是几个家族承包了公检法等重要部门，他们之间的利益保护使类似”锁链女”这样的事件在中共国层出不穷<br/>
+![img](https://media.gettr.com/group48/getter/2022/02/24/15/8de99f36-6768-64b5-a369-b8779f6be0bc/out.jpg)
+
+---
+
 `@miles 2/24/2022 2:19 PM (UTC)`
 
  2月24号：尊敬的战友们好．这个视频好恐怖啊，战魔再次打烂世界！这样的残酷的事实很快会在台湾发生……希望所有的台湾的战友们……朋友们……以最快的速度撤离！任何台湾的战友都应该受到全球的农场和战友的全力的协助和帮助。这是新中国联邦文贵发出的，👉👉👉对台湾同胞战友的呐喊……警告‼️
@@ -143,22 +157,6 @@ EP11: The Heroes. Let's tear down the monstrous lies of this despicable #HBO #VI
 
 🆙【爆料百科-13579计划】❤️‍🔥<br/><br/>迟浩田亲自设计规划，习近平签字的第一绝密㊙️文件！<br/>确保美国人可以大面积死亡💀，让美国政府彻底灭亡。<br/>从而保证中国共产党统治世界。<br/>#爆料百科 #爆料革命  #CCP #香草山 #香草山农场 #3F #13579计划 
 ![img](https://media.gettr.com/group20/getter/2022/02/22/12/5c6501f2-c313-3404-b4c8-a8cd00bb7dc8/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@gfashion 2/18/2022 3:57 PM (UTC)`
-
-New Release ✨                                              Shop Now at www.gfashion.com
-![img](https://media.gettr.com/group24/getter/2022/02/18/15/cd5391d2-4bb2-e839-9a2b-d73ab95c68bd/2d2e98576847fd49bce9f896884fc338.jpg)
-
----
-
-`@miles 2/22/2022 6:03 AM (UTC)`
-
-2/20/2022 Miles Guo: Because the Chinese are too selfish and indifferent, the Bouazizi incident will never occur in Communist China, which is also the result of the Chinese people's lack of faith and morality.<br/><br/>2/20/2022 文贵直播：因为中国人太过的自私和冷漠，在中共国永远不会出现布瓦吉吉事件，这也是中国人缺失信仰和人性道德的结果。<br/>
-![img](https://media.gettr.com/group50/getter/2022/02/22/06/99078f9d-4f41-0867-5175-0f7626cef795/out.jpg)
 
 ---
 
