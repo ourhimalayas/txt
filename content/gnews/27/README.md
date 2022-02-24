@@ -2,28 +2,25 @@
 ---
 
 
-## 有声|俄罗斯全面出兵攻乌 中共国民却成待宰羔羊
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2059943/)
+## 普京：入侵&#8212;是俄罗斯的唯一选择
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2059999/)
 
-配音：香草山巡管部– 文凯琳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-墙内媒体2月24日报道，乌克兰外长称，俄罗斯总统普京已“对乌克兰发动了全面入侵”。
+撰稿：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2022/02/lcimg-cdc3550c-bc16-47b0-9f97-d00fbe18b622.jpg)
+图片：Dr.
 
-据了解，当地时间24日凌晨5时，乌克兰的军事设施遭到导弹袭击，俄军登陆行动开始于黑海和亚速海。目前，俄军已突破哈尔科夫州界，哈尔科夫乌军指挥所遭到火箭弹袭击。目前，乌克兰管理部门宣布关闭全国领空，乌克兰基辅机场正在疏散。
+据路透社2月24号报道，俄罗斯总统弗拉基米尔-普京说，俄罗斯只能通过入侵乌克兰来保护自己。 路透社援引普京的话说，俄罗斯是 “被迫 “入侵的。
 
-文字版原文：[俄罗斯全面出兵攻乌 中共国民却成待宰羔羊](https://gnews.org/zh-hans/2056664/)
+– 乌克兰的事态发展使我们别无选择。普京说，我们没有别的出路。 目前还不清楚总统指的是什么，但他很早就指责乌克兰是纳粹统治，在乌克兰东部进行种族灭绝，完全没有证据。
 
-音频处理/发稿：Daxia
+同时，在与RSPP的会谈中，普京呼吁俄罗斯不要被排除在全球经济之外。 据路透社报道，普京说，俄罗斯仍然是全球经济的一部分，不会损害它所处的体系，世界必须理解这一点，不要把俄罗斯推开。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+世界上独裁战争贩子都一样，嘴巴上都是正义，行动上都是流氓！
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+来源：
+
+[Dr.dk](https://www.dr.dk/nyheder#!/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

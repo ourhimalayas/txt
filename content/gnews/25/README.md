@@ -2,63 +2,122 @@
 ---
 
 
-## 华人女子陈尸蓝莓田，家人声称被恶犬杀死
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2059954/)
+## 锁链女
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2060042/)
 
-作者：Colleen Flanagan
-翻译：Himasally
-![](https://assets.gnews.org/wp-content/uploads/2022/02/28254942_web1_Pitt-crime-4.jpg)
-温哥华枫树岭的一名华人女子，在蓝莓农场工作时突然死亡。之后家人在对该农场主和Pitt Meadows市提起诉讼，杀死该女子的凶手竟是一群恶狗。
+作者：香草山教育部 — 蓝之灵（Hortensia)
 
-去年在Doremi蓝莓农场有限公司的蓝莓地里，华人女子Ping Guo(Amy) 的尸体被发现。她的丈夫Peng和女儿Kelsey于2月11日向BC省最高法院提起了民事索赔。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-109-1280x172-1.jpg)
 
-索赔中列出了被告包括：Doremi蓝莓农场有限公司，蓝莓农场的注册所有人Kae-Chang Doong和Changling Zhong，Pitt Meadows市，以及Jane和/或John Doe——一只或多只”攻击性、恶性和危险”狗的主人。
 
-诉讼中家属表示，2021年8月15日上午10点，Guo前往农场摘蓝莓。当天晚些时候，她的尸体被发现，已经死亡。她是被一种动物杀死的，”可能是一条狗”。
 
-他们声称，对于Guo的死亡，诉讼里的每个被告都有疏忽。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-1-2.png)
 
-Peng家在诉讼中指责被告没有采取任何合理的谨慎措施，以确保农场游客的安全；他们没有警告Guo农场可能存在危险动物；他们没有足够的检查和维护系统来确保农场的安全，不会有危险动物或其他危险；而且他们没有遵守《占用者责任法》——该法规定场所拥有者在合理情况下，有责任确保在其财产场所内的人安全。
+沉重铁链
 
-关于对市政府的索赔，家属说Pitt Meadows市没有执行《养狗管理条例》，市政府知道或应该知道，农场附近有一只或多只攻击性或恶性狗。这家人在索赔中说，如果市府的执法官员工作得当，他们就会提早觉察到狗的攻击性行为，并向狗主人发出通知。
+挂在我脖颈
 
-诉讼中还提到了这些狗的主人，因为他们允许狗外出活动，即使这些狗有攻击性行为。狗主人的身份不明，他们在诉讼中被称为Jane和/或John Doe。
+二十四年到如今
 
-Peng家要求赔偿：特殊和一般损失，失去妻子和母亲的精神赔偿，丧葬费，遗产损失，其他费用，以及法院可能认为公正的进一步救济。
+一路路辗转
 
-他们的指控都没有在法庭上得到验证。
+从家乡到此处
 
-Ridge Meadows RCMP的Julie Klaussner说，由于调查还在进行中，她不能谈及该案件的具体细节。
+不记得
 
-她说：”这可能会影响到调查的完整性。”
+多少日夜
 
-Pitt Meadows市的Carolyn Baldridge也拒绝评论，因为调查还没有结束。
+多少男人
 
-她说：”据我们了解，加拿大皇家骑警仍在调查此事。鉴于此事已提交法院，我们不宜发表评论。”
+让我身体
 
-该农场的一位不愿透露姓名的负责人告诉《新闻报》，事件发生时，该农场没有营业。除了事件发生时公布的信息外，他没有新的信息。
+伤痕累累
 
-在Guo的尸体被发现的几天后，保护官员服务局被要求调查动物袭击的可能性，该机构在网上发布了关于该地区黑熊的警告。
+日日如此
 
-当《新闻报》问及Peng家为何指责恶犬袭击Guo时，代理律师Alexander C. McQuarrie说”不予置评”。
+夜夜如此
 
-BC省保护官员服务局拒绝发表评论，因为此事正在法院审理中。
+看见了吗
 
-来源：https://www.mapleridgenews.com/news/family-claims-viscious-dogs-killed-woman-found-dead-in-pitt-meadows-blueberry-field/
+那一屋子强奸犯
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+正欢声笑语数着钱
 
-**关注我们**
+小哥哥啊
 
-Discord 账号
+请不要走
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+帮帮我
 
-Gettr 账号
+放我离开
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+这个世界不要我了
+
+生在人间
+
+活在炼狱
+
+被剪去舌尖记忆
+
+如锥如炙
+
+痛与苦
+
+是每天必须的吃与喝
+
+这个世界不要我了
+
+生不如死 没有天理
+
+人贩子欢天喜地
+
+酷吏们茹毛饮血
+
+我的躯体
+
+是他们欢笑乐土
+
+家乡的路
+
+那么遥远
+
+只能在梦里
+
+一次次 呼唤
+
+亲人，亲人
+
+你们在哪里
+
+没有回音
+
+没有希望
+
+日复一日
+
+重复痛苦
+
+（本文仅代表作者个人观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-7.jpg)
+
+*编辑 /校对*：*Yuki*jiang
+
+*发稿：Yuki*jiang
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
