@@ -2,38 +2,24 @@
 ---
 
 
-## 五角大楼警告俄罗斯军队随时进攻，情报部门称48小时内全面入侵
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2056143/)
+## COVID-19 最新情报｜罗马尼亚最大足球具乐部宣布禁止接种疫苗的球员参赛及效力
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2056171/)
 
-#### 撰稿：彩虹       
+**撰文｜疫情关注组 / 发布时间｜24/02/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/羅馬尼亞最大足球俱樂部宣佈禁止接種疫苗的球員參賽及效力.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：**[**https://gettr.com/post/pl6k0218bf**](https://gettr.com/post/pl6k0218bf)**)**
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/16456735211.png)图片来源：卫报
-据《国会山报》2月23日报道，西方领导人周三表示，俄罗斯似乎正在向乌克兰东部转移更多军队，而五角大楼则警告说，俄罗斯军队“随时可能发动攻击”。
+罗马尼亚规模最大的足球具乐部 Steaua Bucharest 日前宣布，将全面禁止接种过 Covid-19 疫苗的球员再为球队效力，原因是接种过疫苗的球员已经“失去力量”并“开始倒在赛场或死在医院”。
 
-五角大楼新闻秘书约翰·柯比（John Kirby）在一次简报会上说：“我们当然相信，更多的俄罗斯军队正在进入[顿涅茨克和卢甘斯克地区]。我们不能非常具体地确认其数量和编制，所具有的能力是什么，但我们当然相信这正在发生。”
+该具乐部的老板，商人兼政治家吉吉·贝卡利（Gigi Becali）表示，他也不再允许接种疫苗的球员参加比赛，他不愿再看到原本伟大的球员渐渐的变得虚弱，他更不忍心再看到一个个年轻健康的球员死去。
 
-柯比强调：“我们相信，他们现在处于一种随时可能发动攻击的准备状态。”
+贝卡利强调，接种过 COVID-19 疫苗的人会倒下，会死在医院里，而那些拒绝接种疫苗的人却不会。他指出，“有人可能会笑话我，但我是对的，如果你看到CFR（CFR Cluj）和 Rapid（Rapid Bucuresti ）的球员们倒在地上，呼吸困难，你就该知道所有接种疫苗的人都会失去力量！”
 
-周三早些时候，拉脱维亚总理证实，俄罗斯军队已经进入了乌克兰东部的顿巴斯地区。
+贝卡利的这番言论不意外的引起了该国政府的强烈反感。当局在脸书官方页面 RO Vaccinare 上发布一份最新声明，反驳称“足球运动员在接种了 COVID-19 疫苗后不会失去力量。”并指出，“从医学和科学的角度来看，没有任何研究可以支持罗马尼亚某位人士的奇特观点。”
 
-拉脱维亚总理阿特尔斯‧克里斯亚尼斯‧卡林斯告诉CNN：“根据我掌握的信息，普京正在向被占领的顿巴斯领土增派部队和坦克，根据任何定义，这都是跨越主权领土进入邻国的行为。”
+不过，仍然有不少当地民众支持贝卡利对疫苗的看法，他们认为，政府的声明恰恰反映了他们很心虚。
 
-另据《新闻极限》2月23日报道，美国情报官员周三向《新闻周刊》（Newsweek）透露，俄罗斯正准备在未来48小时内对乌克兰实施全面入侵。
-
-这位美国官员说：“乌克兰总统已被警告，根据美国的情报，俄罗斯极有可能在48小时内开始入侵。来自飞机观察员的报告显示，俄罗斯今天早些时候侵犯了乌克兰的领空，疑似侦察机在乌克兰上空飞行了一小段时间。”
-
-一位接近乌克兰总统沃洛基米尔·泽伦斯基（Volodymyr Zelenskyy）政府的消息人士也证实，美国发出了这样的警告，尽管他指出，这是基辅在过去一个月内第三次被告知俄罗斯即将采取大规模军事行动。
-
-据《新闻周刊》报道，这位美国情报人士说，该入侵评估包括俄罗斯的空袭、巡航导弹和地面入侵，以及从北部与白俄罗斯的边境向首都基辅的推进。
-
-《新闻周刊》说，另一位参加了周二国家安全委员会电话会议的消息人士也向该出版物证实，白宫对克里姆林宫的军事行动仅限于俄罗斯支持的叛乱共和国感到“难以置信的不相信”，并认为入侵可能在24至48小时内发生。
-
-**新闻来源**
-
-[Pentagon says more Russian troops in Ukraine, ready to ‘attack at any time’](https://thehill.com/policy/defense/595562-pentagon-says-more-russian-troops-in-ukraine-ready-to-attack-at-any-time)
-
-[Report: US Intelligence Warns Ukraine Russia to Invade Within 48 Hours](https://www.newsmax.com/newsfront/russia-ukraine-invasion/2022/02/23/id/1058130/)
+来源｜[推特](https://twitter.com/Emishor/status/1496447904617312259?s=20&amp;t=_vOooKK2zDsQcuQM5gW2Pw)、[ESPN](https://www.google.com.hk/url?sa=t&amp;rct=j&amp;q=&amp;esrc=s&amp;source=newssearch&amp;cd=&amp;ved=2ahUKEwjLht_1sJf2AhXiD0QIHb9KAJoQxfQBKAB6BAgQEAI&amp;url=https%3A%2F%2Fwww.espn.com%2Fsoccer%2Ffcsb%2Fstory%2F4600728%2Fromanias-fcsb-deny-owners-suggestion-to-not-pick-vaccinated-players&amp;usg=AOvVaw2UZFvqTNUpQEbDKVhmEXsf)
 
  
 

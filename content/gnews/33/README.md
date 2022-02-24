@@ -2,32 +2,24 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年2月23日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2056076/)
+## 川普刑事调查案再掀波澜
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2056105/)
 
-作者：香草山翻译部
+#### 翻译：明澈
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-4-1-e1645595411271.jpg)
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1645672919.png)
+据《美国ABC新闻》2月24日消息，率领纽约检方对美国前总统川普商业行为进行刑事调查的两名曼哈顿地区检察官于今天请辞，引发各界对此案未来侦查发展的疑虑。
 
+去年七月，川普集团和集团财务总监怀索柏格（Allen Weisselberg）以涉15项诈欺和逃漏税重罪被起诉，但过程中他们拒不认罪，法院预定今年中开始审理怀索柏格案。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-17.png)
-校对：Stay文苑
+据悉，此案由曼哈顿区地方检察官范斯（Cyrus Vance）发起并负责监督调查，白艾荣（AlvinBragg）今年1月上任时接手此案。
 
-编辑：Stay文苑
+白艾荣办公室发言人证实邓恩和波莫兰兹已经请辞，并表示我們對他們的服務表示感謝，但未说明二人辭職原因。
 
-发稿：Stay文苑
+《纽约时报》引述匿名消息来源报导，两人请辞是由于白艾荣对是否应该继续调查此案存疑。报道指出，白艾荣办公室应向大陪审团提交证据，但已耽搁一个月之久。但这本该是检察官在决定起诉之前按应该走的程序。
 
-新闻：[https://gtv.org/broadcast/watch/6216e14e08ba8a07b1a26849](https://gtv.org/broadcast/watch/6216e14e08ba8a07b1a26849)
-访谈：[https://gtv.org/broadcast/watch/6216e84908ba8a07b1a26deb](https://gtv.org/broadcast/watch/6216e84908ba8a07b1a26deb)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-4.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+来源：[1](https://abc7ny.com/donald-trump-criminal-probe-manhattan-district-attorney-prosecutors-resign/11593141/https://www.nytimes.com/2022/02/23/nyregion/trump-ny-fraud-investigation.html) [2](https://abc7ny.com/donald-trump-criminal-probe-manhattan-district-attorney-prosecutors-resign/11593141/https://www.nytimes.com/2022/02/23/nyregion/trump-ny-fraud-investigation.html)
 
  
 

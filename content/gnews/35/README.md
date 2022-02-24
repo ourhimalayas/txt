@@ -2,37 +2,32 @@
 ---
 
 
-## 德国公立保险公司警告 疫苗的副作用远高于官方报告
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2056067/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年2月23日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2056076/)
 
-翻译：冰糖葫芦喵
+作者：香草山翻译部
 
-编辑与校对：灭共文明、冰糖葫芦喵
-
-《网关专家》2月23日报道，**德国一家大型公立医疗保险公司BKK的董事会成员警告，中共病毒疫苗副作用比官方机构报告的要严重得多，副作用案例数据也远高于官方的报告。**
-
-**德国公立医疗保险公司BKK董事会成员Andreas Schöfbeck在世界报的一份报告中说，**“根据我们的计算，到今天为止，我们的数据显示，保险公司保单持有人**因接种中共病毒疫苗而产生并发症去看医生**的人数有40万。在比例相同的情况下，**按总人口推算，这个数值应该是高达300万人。**”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-4-1-e1645595411271.jpg)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-17.png)
+校对：Stay文苑
 
-> JUST IN – Large German health insurance company analyzed data from 10.9 million insured individuals regarding vaccination complications.
-> 
-> The new data is "alarming," says BKK board member Schöfbeck in a report by WELT.[https://t.co/KV4orAjUCB](https://t.co/KV4orAjUCB)
-> — Disclose.tv (@disclosetv) [February 23, 2022](https://twitter.com/disclosetv/status/1496555793092685824?ref_src=twsrc%5Etfw)
+编辑：Stay文苑
 
+发稿：Stay文苑
 
-DiscloseTV在推特上贴出原文。
-报道指出，**根据健康保险公司BKK数据的分析得出，接种疫苗的副作用数字明显高于德国疫苗监管单位、保罗艾利希研究所的数据。**BKK的数字表明，2021年在德国报告的副作用总数可能达到数百万人。
+新闻：[https://gtv.org/broadcast/watch/6216e14e08ba8a07b1a26849](https://gtv.org/broadcast/watch/6216e14e08ba8a07b1a26849)
+访谈：[https://gtv.org/broadcast/watch/6216e84908ba8a07b1a26deb](https://gtv.org/broadcast/watch/6216e84908ba8a07b1a26deb)
 
-这家大型保险公司协会首次提供了关于毒疫苗副作用的数据。在周三的世界报报告视频通话中，Andreas Schöfbeck说，**这些最新统计的数据是一个 “警报信号”。**他还强调说，确定准确的数字很重要，而且我们迫切需要检查其后面的原因”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-4.png)
 
-报道指出，这些数字与美国的VAERS报告系统中看到的数字相似。**VAERS网站上报告的数字明显高于美国的所谓医学精英们告诉我们的数字。**
-
-**新闻链接：**
-
-[Board Member of Large German Health Insurance Company Sounds the Alarm: Side Effects of COVID Vaccines Much Higher Than Official Reports (thegatewaypundit.com)](https://www.thegatewaypundit.com/2022/02/board-member-large-german-health-insurance-company-sounds-alarm-side-effects-covid-vaccines-much-higher-official-reports/)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

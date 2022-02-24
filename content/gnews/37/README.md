@@ -2,37 +2,38 @@
 ---
 
 
-## CDC隐瞒加强针数据 FDA专家敦促“说实话”
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2056020/)
+## 德国公立保险公司警告 疫苗的副作用远高于官方报告
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2056067/)
 
-撰稿：纽约香草山 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-5.png)
-21日外媒報導，美国CDC於2月上旬公布的65岁以下成年人加强针有效性的第一批重要数据，該數據隐瞒了3300万名18-49岁族群的信息，而这族群通常被认为最不可能从加強疫苗中受益。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2200.png)
-爆出此爭議，CDC发言人回應道，担心这些数据会让人认为疫苗加强针无效，并且数据本身不完整，也没有经过核实，因此並未將該部分數據向公众公开。
+翻译：冰糖葫芦喵
 
-CDC操纵数据的行為引发了科学界的愤怒，FDA顾问、疫苗专家保罗·奥菲特博士指出，由于CDC隐瞒这些信息，美国科学家不得不依赖以色列的数据。他敦促CDC说出真相，提交数据，让科学家们分析和解释数据代表的意义。流行病学家里维拉博士则说，两年来科学界一直在寻求这些数据，CDC拥有它们却选择隐瞒，这降低了了公众对他们的信任感。
+编辑与校对：灭共文明、冰糖葫芦喵
 
-参考链接：[疾病預防控制中心拒絕公佈它收集的有關 3300 萬 18-49 歲美國人的增強效果數據，因為擔心這可能表明疫苗無效：FDA 專家告訴疾病預防控制中心“說實話”](https://www.dailymail.co.uk/news/article-10537161/CDC-refusing-publish-data-collected-booster-effectiveness-aged-18-49.html)
+《网关专家》2月23日报道，**德国一家大型公立医疗保险公司BKK的董事会成员警告，中共病毒疫苗副作用比官方机构报告的要严重得多，副作用案例数据也远高于官方的报告。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+**德国公立医疗保险公司BKK董事会成员Andreas Schöfbeck在世界报的一份报告中说，**“根据我们的计算，到今天为止，我们的数据显示，保险公司保单持有人**因接种中共病毒疫苗而产生并发症去看医生**的人数有40万。在比例相同的情况下，**按总人口推算，这个数值应该是高达300万人。**”
 
-总编：zhong
-编辑：飞虹 
-校对/发稿：小野貓（文凱琳）
 
-**更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+> JUST IN – Large German health insurance company analyzed data from 10.9 million insured individuals regarding vaccination complications.
+> 
+> The new data is "alarming," says BKK board member Schöfbeck in a report by WELT.[https://t.co/KV4orAjUCB](https://t.co/KV4orAjUCB)
+> — Disclose.tv (@disclosetv) [February 23, 2022](https://twitter.com/disclosetv/status/1496555793092685824?ref_src=twsrc%5Etfw)
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+DiscloseTV在推特上贴出原文。
+报道指出，**根据健康保险公司BKK数据的分析得出，接种疫苗的副作用数字明显高于德国疫苗监管单位、保罗艾利希研究所的数据。**BKK的数字表明，2021年在德国报告的副作用总数可能达到数百万人。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+这家大型保险公司协会首次提供了关于毒疫苗副作用的数据。在周三的世界报报告视频通话中，Andreas Schöfbeck说，**这些最新统计的数据是一个 “警报信号”。**他还强调说，确定准确的数字很重要，而且我们迫切需要检查其后面的原因”。
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-5.png)
+报道指出，这些数字与美国的VAERS报告系统中看到的数字相似。**VAERS网站上报告的数字明显高于美国的所谓医学精英们告诉我们的数字。**
+
+**新闻链接：**
+
+[Board Member of Large German Health Insurance Company Sounds the Alarm: Side Effects of COVID Vaccines Much Higher Than Official Reports (thegatewaypundit.com)](https://www.thegatewaypundit.com/2022/02/board-member-large-german-health-insurance-company-sounds-alarm-side-effects-covid-vaccines-much-higher-official-reports/)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

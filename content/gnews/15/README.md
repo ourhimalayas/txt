@@ -2,28 +2,30 @@
 ---
 
 
-## 中日财经爆|香港确诊再创新高 港共发消费券或增感染风险
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2056382/)
+## 澳大利亚计划在南极洲投资制约中共
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2056373/)
 
-撰稿：东京樱花团/peterwong
+作者：首尔天池农场-zzballack
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月21日，据有关媒体报道，为了制衡中共在南极洲的强势和咄咄逼人的行为，澳大利亚总理斯科特-莫里森发布声明表示，澳州联邦政府将在未来10年内耗资8.04亿美元强化和升级澳大利亚在南极洲的科研活动。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-23-下午11.15.01.png)
+据悉，早在1961年10月，包括澳大利亚和中共国在内的54个国家曾共同签署了《南极条约》及其他的相关协定，这些协议后来被称为《南极条约体系》。该体系旨在约束各国在南极洲大陆上的各类活动，包括将南极洲作为科学保护区，承认科学调查自由，但禁止在南极洲进行军事或采矿活动，同时限制捕鱼行为。然而，澳洲智库洛伊国际政策研究所在最近发表的一份报告中指出，中共政府正在试图推动“扩大解释《南极条约体系》的规定”。 对此，洛伊研究所解释道，中共近几年持续探测南极洲的渔业和旅游资源，其在《南极条约体系》内表现得越来越强势，并且极有可能在当地寻求获取西方技术的方法。另一方面，人们担心中共未来很有可能率领一些国家寻求南极洲上只有中共有能力开发的矿产资源，为自己谋取福利。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/香港确诊再创新高-港共发消费券或增感染风险.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fichef.bbci.co.uk%2Fimages%2Fic%2F512xn%2Fp0bqn7v1.jpg&amp;imgrefurl=https%3A%2F%2Fwww.bbc.com%2Fzhongwen%2Fsimp%2Fchinese-news-60490908&amp;tbnid=0_VA2-BEgl7wNM&amp;vet=12ahUKEwi6g5npu5f2AhWizIsBHaNjCrYQMygEegUIARCnAQ..i&amp;docid=Z6HSW0pStOlKQM&amp;w=512&amp;h=287&amp;itg=1&amp;q=%E9%A6%99%E6%B8%AF%E7%96%AB%E6%83%85&amp;ved=2ahUKEwi6g5npu5f2AhWizIsBHaNjCrYQMygEegUIARCnAQ)
+参考链接：[Australia makes a BIG move against China – in Antarctica: PM forks out $800MILLION to counter the Communist power’s growing influence on the icy continent](https://www.dailymail.co.uk/news/article-10534143/The-battle-Antarctica-Australian-PM-Scott-Morrison-spends-800million-counter-China.html)
 
-香港第五波疫情持续扩散，2月23日公布新增8674例中共病毒确诊，单日确诊数再创新高，港共当局进一步紧缩防疫措施的同时，又宣布向香港市民发放消费券，增加人员之间的接触，恐会再增加感染风险。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-根据香港媒体报导，卫生防护中心传染病处主任张竹君在疫情记者会通报，新增8674例确诊，其中3例为境外移入，其余为本土病例，另有7990例一采阳性的呈报个案。
+总编：Irene木木
+编辑：谐趣园
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-张竹君指出，过去24小时香港有24名病患染疫死亡，第五波疫情累计有153人病殁，其中90人为安老、残疾院舍院友，多为长者，第五波疫情至今的死亡率为0.3%，前四波是2.2%。
-
-另外，财政司司长陈茂波23日公布2022年财政预算案，将再发放消费券，符合资格的18岁或以上香港永久性居民及新移民，可获得1万港币（约3.6万元台币）的电子消费券，最快4月会先向630万名已经成功登记的市民发放5000元，剩下的5000元年中再分批发放。
-
-消息来源:
-
-[香港增8674例确诊创新高将再发1万港元消费券](https://tw.news.yahoo.com/%E9%A6%99%E6%B8%AF%E5%A2%9E8674%E4%BE%8B%E7%A2%BA%E8%A8%BA%E5%89%B5%E6%96%B0%E9%AB%98-%E5%B0%87%E5%86%8D%E7%99%BC1%E8%90%AC%E6%B8%AF%E5%85%83%E6%B6%88%E8%B2%BB%E5%88%B8-135337640.html)
-
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

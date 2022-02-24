@@ -2,36 +2,38 @@
 ---
 
 
-## 有声| 灭共后，新中国联邦当在全国普及《圣经》教育
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2056088/)
+## 五角大楼警告俄罗斯军队随时进攻，情报部门称48小时内全面入侵
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2056143/)
 
-配音：香草山福音部 – Daxia
+#### 撰稿：彩虹       
 
-当今世界共产极权资本,控制全球90%以上的媒体和社交平台，从而使中共谎言欺骗充满全球，让全球多数人误信了中共病毒及毒疫苗的超限,误导宣传并注射了中共病毒疫苗，人们之间的互害模式到了登峰造极的地步，其根本原因是美国及西方发达国家,被无神论的共产国际全方位暗中破坏人民的信仰近百年，使人民越来越远离基督教和天主教及对上帝的信仰。近一个世纪以来,放纵中共作恶壮大，致使中共步入了灭美灭白灭人类的边缘。
+#### 责编：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/02/16456735211.png)图片来源：卫报
+据《国会山报》2月23日报道，西方领导人周三表示，俄罗斯似乎正在向乌克兰东部转移更多军队，而五角大楼则警告说，俄罗斯军队“随时可能发动攻击”。
 
+五角大楼新闻秘书约翰·柯比（John Kirby）在一次简报会上说：“我们当然相信，更多的俄罗斯军队正在进入[顿涅茨克和卢甘斯克地区]。我们不能非常具体地确认其数量和编制，所具有的能力是什么，但我们当然相信这正在发生。”
 
+柯比强调：“我们相信，他们现在处于一种随时可能发动攻击的准备状态。”
 
-文字版原文：**[灭共后，新中国联邦当在全国普及《圣经》教育](https://gnews.org/zh-hans/2048517/)**
+周三早些时候，拉脱维亚总理证实，俄罗斯军队已经进入了乌克兰东部的顿巴斯地区。
 
+拉脱维亚总理阿特尔斯‧克里斯亚尼斯‧卡林斯告诉CNN：“根据我掌握的信息，普京正在向被占领的顿巴斯领土增派部队和坦克，根据任何定义，这都是跨越主权领土进入邻国的行为。”
 
+另据《新闻极限》2月23日报道，美国情报官员周三向《新闻周刊》（Newsweek）透露，俄罗斯正准备在未来48小时内对乌克兰实施全面入侵。
 
-发稿：雪梨
+这位美国官员说：“乌克兰总统已被警告，根据美国的情报，俄罗斯极有可能在48小时内开始入侵。来自飞机观察员的报告显示，俄罗斯今天早些时候侵犯了乌克兰的领空，疑似侦察机在乌克兰上空飞行了一小段时间。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+一位接近乌克兰总统沃洛基米尔·泽伦斯基（Volodymyr Zelenskyy）政府的消息人士也证实，美国发出了这样的警告，尽管他指出，这是基辅在过去一个月内第三次被告知俄罗斯即将采取大规模军事行动。
 
-**更多资讯，更多关注**
+据《新闻周刊》报道，这位美国情报人士说，该入侵评估包括俄罗斯的空袭、巡航导弹和地面入侵，以及从北部与白俄罗斯的边境向首都基辅的推进。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+《新闻周刊》说，另一位参加了周二国家安全委员会电话会议的消息人士也向该出版物证实，白宫对克里姆林宫的军事行动仅限于俄罗斯支持的叛乱共和国感到“难以置信的不相信”，并认为入侵可能在24至48小时内发生。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+**新闻来源**
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[Pentagon says more Russian troops in Ukraine, ready to ‘attack at any time’](https://thehill.com/policy/defense/595562-pentagon-says-more-russian-troops-in-ukraine-ready-to-attack-at-any-time)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[Report: US Intelligence Warns Ukraine Russia to Invade Within 48 Hours](https://www.newsmax.com/newsfront/russia-ukraine-invasion/2022/02/23/id/1058130/)
 
  
 
