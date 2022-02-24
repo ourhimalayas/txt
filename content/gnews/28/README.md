@@ -2,32 +2,20 @@
 ---
 
 
-## 有声｜受俄乌对峙影响 台湾对中共提高戒备
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2056805/)
+## 韩国批准辉瑞中共病毒疫苗用于5-11岁儿童
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2056856/)
 
-By:**秘翻新闻**
+撰稿：东京樱花团/asket
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2211.png)[**图片来源**](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fcimg.cnyes.cool%2Fprod%2Fnews%2F4674876%2Fl%2Fe92fe83bb0905d26b1315d4c3364b3ed.jpg&amp;imgrefurl=https%3A%2F%2Fm.cnyes.com%2Fnews%2Fid%2F4674876&amp;tbnid=Z9Cze4v1eCAmfM&amp;vet=12ahUKEwi3usv3zpf2AhUpEqYKHUS9Bc0QMygPegUIARCgAQ..i&amp;docid=iCOc8I0jCMiQOM&amp;w=640&amp;h=360&amp;q=%E8%BE%89%E7%91%9E%E7%97%85%E6%AF%92%E7%96%AB%E8%8B%97&amp;ved=2ahUKEwi3usv3zpf2AhUpEqYKHUS9Bc0QMygPegUIARCgAQ)
+** **路透社首尔消息，韩国食品药品部周三表示，韩国已经批准辉瑞公司的中共病毒（新冠病毒COVID-19）疫苗，用于5-11岁的儿童。
 
-**2022-02-24**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8-34.png)图片来源 Ritchie B. Tongo/EPA-EFE
-据合众国际社2 月 23 日报道，台湾总统蔡英文周三表示，受俄罗斯于乌克兰危机的影响，台湾可能将面临来自中共国的挑战，因此必须加强戒备。
+该部在一份声明中说，儿童应该接种常规剂量的三分之一，两次，间隔三周。免疫力明显下降的儿童可以在四周后接受强化治疗。
 
-蔡英文下令加强台湾的战备，并要求台湾武装部队加强对中共军事活动的监视和意识。
+信息来源：** **[**S.Korea approves Pfizer COVID-19 vaccine for children aged 5-11**](https://www.fijitimes.com/s-korea-approves-pfizer-covid-19-vaccine-for-children-aged-5-11/)
 
-在周三的会议上，蔡英文发表了四项指令，包括谴责俄罗斯“侵犯乌克兰主权”、加强台海战备、加强台湾对舆论战的反应以及继续应对相关经济发展。
-
-尽管蔡英文没有点名中共国，但台湾长期以来一直对中共保持警惕，因为中共国认为台湾是其分离的1个省份。而台湾自认为是一个独立的国家。
-
-蔡英文表示，台湾的情况与乌克兰的情况有根本不同，但随着东欧危机的展开，台湾必须努力稳定内部局势，预防外部压力。
-
-新闻来源
-[**https://www.upi.com/Top\_News/World-News/2022/02/23/taiwan-china-ukraine-crisis-readiness/8031645626511/**](https://www.upi.com/Top_News/World-News/2022/02/23/taiwan-china-ukraine-crisis-readiness/8031645626511/)
-
-秘翻新闻 文洋 编译报道
-
-发布 : 恩典
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321.jpg)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

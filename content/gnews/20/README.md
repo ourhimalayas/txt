@@ -2,51 +2,24 @@
 ---
 
 
-## 郭文贵直播摘要和音频 2022.02.23
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2056921/)
+## 日本宣布对俄罗斯进行制裁
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2056937/)
 
-摘要撰稿人：文俊
+撰稿：东京樱花团/龟龟
+![](https://assets.gnews.org/wp-content/uploads/2022/02/日本宣布对俄罗斯进行制裁.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fcdn.trt.net.tr%2Fimages%2Fxlarge%2Frectangle%2Fcdc0%2Fcb81%2Fe028%2F619e2cbbb75fb.jpg%3Ftime%3D1645668839&amp;imgrefurl=https%3A%2F%2Fwww.trt.net.tr%2Fchinese%2Fguo-ji%2F2022%2F02%2F23%2Fri-ben-he-jia-na-da-dui-e-luo-si-shi-shi-zhi-cai-1783840&amp;tbnid=-4rxSJqMmw0KQM&amp;vet=12ahUKEwj-nv63zJf2AhVFNqYKHZWHA-gQMygBegUIARC3AQ..i&amp;docid=WTxRh33_wkC2BM&amp;w=1220&amp;h=686&amp;q=%E6%97%A5%E6%9C%AC%E5%88%B6%E8%A3%81%E4%BF%84%E7%BD%97%E6%96%AF&amp;ved=2ahUKEwj-nv63zJf2AhVFNqYKHZWHA-gQMygBegUIARC3AQ)
+日本首相岸田文雄23日宣布对俄罗斯实施制裁。制裁措施包括暂停向“顿涅茨克人民共和国”和“卢甘斯克人民共和国”相关人员发放签证并冻结其资产、禁止日本个人或实体与上述地区进出口交易、禁止俄在日本发行和流通新的主权债券等。
 
-音频提供者：左媛
-![](https://assets.gnews.org/wp-content/uploads/2022/02/5b4cd4ac3eb1866b74362ba915335ae1.jpg)
+针对俄罗斯总统普京承认乌克兰两个地区独立，日本首相岸田文雄表示，这严重侵犯了乌克兰主权和领土完整。
 
+令据日本NHK报道，如果俄罗斯入侵乌克兰，日本将与G7国家联合应对。
 
-### 视频链接：
+消息链接：
 
-[https://gtv.org/video/id=62162fe908ba8a07b1a1ea8a](https://gtv.org/video/id=62162fe908ba8a07b1a1ea8a)
+[日本首相岸田文雄宣布对俄罗斯的制裁措施](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220223-%E6%97%A5%E6%9C%AC%E9%A6%96%E7%9B%B8%E5%B2%B8%E7%94%B0%E6%96%87%E9%9B%84%E5%AE%A3%E5%B8%83%E5%AF%B9%E4%BF%84%E7%BD%97%E6%96%AF%E7%9A%84%E5%88%B6%E8%A3%81%E6%8E%AA%E6%96%BD)
 
-### 音频链接：
-
-### 摘要：
-
-- 带“维”字都是共产党的情报机构（多维）
-- 带“神”字都是共产党海外骗钱的机构（神华）
-- 48%的输往欧洲德国的气都是从云溪1号2号走。虽然法律上说停止供气，但实际并没有少输送
-- 普京要求欧洲和美国必须法律承诺北约不东扩，可以商量打不打乌克兰
-- 西方签署了“北约不东扩”协议被普京一下子公开到外交部网站上
-- 俄罗斯会“帮助”我们消灭共产党，但是中国人要付出沉重代价
-- 缺德 要用30万建设自己的音乐间，要股份，要地位
-- 火鸡龚 在法制基金要求拍电影一集30万美元
-- 疫苗灾难：45亿人打了疫苗，20亿人会受到疫苗伤害，5-10亿会直接面临死亡和伤残
-- 造病毒的，造疫苗的，造解药都是一拨人（共产党）
-- OMICRON 带来最大危害是病毒会进入大脑，会诱发窒息，血栓，失忆
-- 中共国的绑架、拐卖妇女案件在全国范围都是常态
-- 彭副主席在山东彭泽的亲表哥也是买的”拐卖女”
-- 七哥准备的歌曲“锁链梦”，这就是中国人的锁链梦
-- 共产党最近爆赵本山丑闻，为了掩盖锁链女的事件
-- 在俄罗斯和其他国家有多个战友场外交易买卖喜币，价格分别80、100、210美元一个
-- 爆料革命今年会爆出，中共国无数个锁链女事件；会有很多个授权撤离；甜蜜蜜运动，不止2环内，会响遍世界
-- 新中国联邦的所有利好，都在今年年底，钱！哗哗地流
-- 喜贷款：喜币10%抵押率
-- 星期五直播
-
-
-
-
-
-
-编辑发布：闪电训练
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

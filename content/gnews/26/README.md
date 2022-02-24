@@ -2,20 +2,29 @@
 ---
 
 
-## 韩国批准辉瑞中共病毒疫苗用于5-11岁儿童
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2056856/)
+## 美国将制裁俄罗斯天然气管道北溪2号背后的公司
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2056877/)
 
-撰稿：东京樱花团/asket
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2211.png)[**图片来源**](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fcimg.cnyes.cool%2Fprod%2Fnews%2F4674876%2Fl%2Fe92fe83bb0905d26b1315d4c3364b3ed.jpg&amp;imgrefurl=https%3A%2F%2Fm.cnyes.com%2Fnews%2Fid%2F4674876&amp;tbnid=Z9Cze4v1eCAmfM&amp;vet=12ahUKEwi3usv3zpf2AhUpEqYKHUS9Bc0QMygPegUIARCgAQ..i&amp;docid=iCOc8I0jCMiQOM&amp;w=640&amp;h=360&amp;q=%E8%BE%89%E7%91%9E%E7%97%85%E6%AF%92%E7%96%AB%E8%8B%97&amp;ved=2ahUKEwi3usv3zpf2AhUpEqYKHUS9Bc0QMygPegUIARCgAQ)
-** **路透社首尔消息，韩国食品药品部周三表示，韩国已经批准辉瑞公司的中共病毒（新冠病毒COVID-19）疫苗，用于5-11岁的儿童。
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-99.jpg)
+图片来源：网络截图
 
-该部在一份声明中说，儿童应该接种常规剂量的三分之一，两次，间隔三周。免疫力明显下降的儿童可以在四周后接受强化治疗。
+据合众国际社2月23日报道，美国总统乔·拜登周三宣布，美国将对北溪2号天然气管道背后的公司及其首席执行官实施制裁，以应对俄罗斯在乌克兰不断升级的侵略行为。
 
-信息来源：** **[**S.Korea approves Pfizer COVID-19 vaccine for children aged 5-11**](https://www.fijitimes.com/s-korea-approves-pfizer-covid-19-vaccine-for-children-aged-5-11/)
+该管道旨在将天然气从俄罗斯运往波罗的海下的德国，已于9月完工，但仍在等待德国监管机构的最终认证。该管道由瑞士北溪2号公司拥有，其母公司是庞大的俄罗斯能源公司Gazprom。制裁还打击了该公司的首席执行官马蒂亚斯·沃宁（Matthias Warning）。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+拜登的宣布是美国及其盟国对俄罗斯实施的一系列经济处罚中的最新一项，“这些步骤是我们为回应俄罗斯在乌克兰的行动而采取的最初一批制裁措施的另一部分。正如我所表明的那样，如果俄罗斯继续升级，我们将毫不犹豫地采取进一步措施，”拜登在一份媒体新闻稿中说。他说，普京的行动加速世界远离俄罗斯天然气，转向其他形式的能源。
+
+此举是在德国总理奥拉夫·肖尔茨（Olaf Scholz）说他的国家将停止该管道的审批程序后的一天，该管道的完成成本超过110亿美元。几个月来，肖尔茨一直在为该项目辩护，因为他的国家面临着能源危机，但他在一次新闻发布会上说，现在是时候 “重新评估这个急剧变化的情况 ”了。他说没有这个认证，北溪2号就不能投入运营。
+
+美国国务卿安东尼·布林肯（Antony Blinken）周三对德国的决定表示赞赏，称在与柏林和欧盟协商后，他已经终止了去年春天实施的保护北溪2号股份公司和沃宁，以及其他公司官员免受制裁的豁免，他们在美国境内的所有财产和资产已被冻结。
+
+拉脱维亚总理阿塔斯（Arturs Krišjānis Kariņš）在周三接受CNN采访时说，德国决定取消该管道的国家安全豁免权，在功能上扼杀了该项目。
+
+“我们现在看到的是第一波的制裁。普京因向乌克兰派遣军事部队，民主世界立即作出反应，在一天之内，跨越所有时区，进行协调和非常深入的制裁，”阿塔斯说，如果俄罗斯有更多的动作，就会有更多的制裁，而且一次比一次更厉害。
+
+新闻来源：[U.S. to sanction company behind Russian gas pipeline Nord Stream 2](https://www.upi.com/Top_News/World-News/2022/02/23/Joe-Biden-sanctions-Russia-pipeline-Nord-Stream-2/2211645652724/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
