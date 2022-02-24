@@ -2,32 +2,28 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年2月23日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2056076/)
+## 喜贷款、喜存款蓄势待发，HPay（喜支付）是打开世界金融盒子的密码
+` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/2056193/)
 
-作者：香草山翻译部
+新西兰伊甸农场Gnews组 财经G乐部-亚伦
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-4-1-e1645595411271.jpg)
+2月23日，郭文贵先生于GTV和Gettr大直播中透露一定会发生的喜贷款业务正处于最后的法律研究阶段，同时喜存款业务也会上线，并表示，HPay（喜支付）是打开世界金融盒子的密码。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/ac1cabfe2643121df09f3bbb3b33afe0-1.jpg)图片来源Gettr
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-17.png)
-校对：Stay文苑
+喜贷款将是主要面向广大战友的贷款，未来要成为战友控制的贷款平台。具体操作方法是利用手中的HCoin（喜币）作为抵押物，抵押率不超过抵押HCoin（喜币）总价值的10%，贷款以HDO（喜美元）方式贷出。
 
-编辑：Stay文苑
+当然，喜贷款机制会规定可提现的HDO（喜美元）数额，也会限制喜贷款在HPay（喜支付）中的使用量。好消息是由于大量KYC喜账户的开通以及巨额的资金流入，以至于原本的部分锁币可能会提前释放出来，如果有必要的话可以卖掉HCoin（喜币）完成喜贷款的还款动作。
 
-发稿：Stay文苑
+同样，以战友为主导的喜存款也会上线。HDO（喜美元）的存款利率是每年5%-10%不等（根据存款锁定期），每年喜联储用等价值的HCoin（喜币）支付利息。这样做的好处，可以使得战友在第二年乃至以后不出资购买即可享有新的HCoin（喜币）。
 
-新闻：[https://gtv.org/broadcast/watch/6216e14e08ba8a07b1a26849](https://gtv.org/broadcast/watch/6216e14e08ba8a07b1a26849)
-访谈：[https://gtv.org/broadcast/watch/6216e84908ba8a07b1a26deb](https://gtv.org/broadcast/watch/6216e84908ba8a07b1a26deb)
+举例说明，假设存期10年的10万HDO（喜美元）存款，每年10%的利率，利息就是价值10000HDO（10万\*10%的喜美元）的HCoin（喜币）。假设发放利息时HCoin（喜币）100美元一个，即收到100个（10000/100）HCoin（喜币）作为利息。喜存款之后，还有可以直接贴现、无条件支付的喜保险。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-4.png)
+最后，所有HDO（喜美元）或HCoin（喜币）的流动都会以HPay（喜支付）来实现。值得一提的是，HPay（喜支付）是一个转账系统，而不是商务系统，所以HPay（喜支付）的流通不等同于商业交易。HPay（喜支付）是战略性的，将来不同的国家会有不同的政策，同样有不同的政策也会催生不同的对策。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+HPay（喜支付）是打开世界金融盒子的密码，是新中国联邦走向世界的财富钥匙，是解救肉体“锁链女”、思想“锁链女”的希望，这也是HPay（喜支付）的玄妙之处。
+
+新中国联邦人一定要拥有财富，只有真正的在财富上强大，才可以在庸俗的人面前有尊严，才可以更安全，才有资格具备维护正义的能力。
 
  
 

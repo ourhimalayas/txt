@@ -2,31 +2,30 @@
 ---
 
 
-## 俄罗斯普京宣布在乌克兰采取军事行动
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2056283/)
+## 澳大利亚计划在南极洲投资制约中共
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2056373/)
 
-撰稿：童媚
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3-1.jpeg)（图片来自美联社）
-普京动手了！
+作者：首尔天池农场-zzballack
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月21日，据有关媒体报道，为了制衡中共在南极洲的强势和咄咄逼人的行为，澳大利亚总理斯科特-莫里森发布声明表示，澳州联邦政府将在未来10年内耗资8.04亿美元强化和升级澳大利亚在南极洲的科研活动。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-23-下午11.15.01.png)
+据悉，早在1961年10月，包括澳大利亚和中共国在内的54个国家曾共同签署了《南极条约》及其他的相关协定，这些协议后来被称为《南极条约体系》。该体系旨在约束各国在南极洲大陆上的各类活动，包括将南极洲作为科学保护区，承认科学调查自由，但禁止在南极洲进行军事或采矿活动，同时限制捕鱼行为。然而，澳洲智库洛伊国际政策研究所在最近发表的一份报告中指出，中共政府正在试图推动“扩大解释《南极条约体系》的规定”。 对此，洛伊研究所解释道，中共近几年持续探测南极洲的渔业和旅游资源，其在《南极条约体系》内表现得越来越强势，并且极有可能在当地寻求获取西方技术的方法。另一方面，人们担心中共未来很有可能率领一些国家寻求南极洲上只有中共有能力开发的矿产资源，为自己谋取福利。
 
-俄罗斯总统普京周四宣布在乌克兰采取军事行动。这与文贵先生直播警告的：“普京一定会动手”的情报不谋而合。
+参考链接：[Australia makes a BIG move against China – in Antarctica: PM forks out $800MILLION to counter the Communist power’s growing influence on the icy continent](https://www.dailymail.co.uk/news/article-10534143/The-battle-Antarctica-Australian-PM-Scott-Morrison-spends-800million-counter-China.html)
 
-针对欧美日等国家发出的“制裁”通告，普京毫不畏惧，并警告其他国家，任何干扰俄罗斯行动的企图都将导致”他们从未见过的后果”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-自从2021年3月，普京派兵10万以后，这场战争就是在中共支持下蓄谋已久的计划。冬奥会习普二人的密谈，让该地区的局势逐日升级。而现在来看，这场战争的爆发就是以俄罗斯支持的乌东地区的独立。普京说，这次袭击是为了保护乌克兰东部的平民，他这个说法也用来证明其入侵的合理性。
+总编：Irene木木
+编辑：谐趣园
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-普京在电视讲话中一直坚持并指责美国及其盟国无视俄罗斯阻止乌克兰加入北约并向莫斯科提供安全保证的要求。
-
-虽然从昨天开始，欧美日等西方国家开始发布制裁俄罗斯银行以及财团的通告，但根据文贵先生的情报，这些制裁无法伤及普京的任何“私人利益”。
-
-当普京发表讲话时，在基辅，哈尔科夫和乌克兰其他地区均有目击者听到大爆炸的声音。
-
-俄罗斯的全面入侵可能会造成大规模伤亡，并推翻乌克兰的民选政府。冲突的后果以及由此产生的对俄罗斯的制裁可能会在全世界引起反响，影响欧洲的能源供应，震撼全球金融市场，并威胁到欧洲大陆的冷战后平衡，而最先有先行反应的就是股市、大宗商品市场和黄金走势。
-
-新闻来源：[俄罗斯普京宣布在乌克兰采取军事行动|美联社新闻 (apnews.com)](https://apnews.com/article/russia-ukraine-europe-russia-moscow-kyiv-626a8c5ec22217bacb24ece60fac4fe1)
-
-发稿：MG5
-![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

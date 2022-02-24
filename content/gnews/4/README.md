@@ -2,24 +2,35 @@
 ---
 
 
-## 普京电视讲话宣布对乌克兰开展军事入侵行动
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2056800/)
+## 俄罗斯正式对乌克兰全面开战！
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2056912/)
 
-#### 撰稿：彩虹
+**作者:  **青衣
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-357.jpg)
+图为 P-8A资料图（图片来自网络）
 
-#### 责编：白夜     
-![](https://assets.gnews.org/wp-content/uploads/2022/02/16456830231.png)图片来源：CNA
-据《新闻极限》2月24日报道，周四，俄罗斯总统弗拉基米尔·普京（Vladimir Putin）宣布在乌克兰开展军事行动，并警告其他国家，任何试图干涉俄罗斯行动的行为都将导致“他们从未见过的后果”。
+俄乌战争正式打响！克里姆林宫毫无预警地紧急直播，俄罗斯总统普京发表电视讲话，在全世界面前正式宣布对乌克兰政府开战。
 
-普京称，这次攻击是为了保护乌克兰东部的平民。针对此点，美国方面曾预言他将谎称是为了证明入侵的合理性。
+据《美国之音》2月24日报道，俄罗斯总统普京星期四下令（2月24日）对乌克兰开展“军事行动”。随后，包括乌克兰首都基辅在内的多个城市均有炮火声及爆炸声。普京还警告其他国家，任何干涉俄罗斯行动的企图都将导致“他们从未见过的后果”。
 
-在讲话中，普京说俄罗斯的军事行动旨在确保乌克兰的“非军事化”，并敦促乌克兰军人“立即放下武器，回家去”。
+普京在电视讲话中声称，军事行动是为了“应对来自乌克兰的威胁”，并“保护乌克兰东部的民众”。他同时声称，俄罗斯的目标不是要占领乌克兰，流血事件的责任在于乌克兰“政权”。普京还指责美国及其盟友无视俄罗斯阻止乌克兰加入北约的要求。
 
-就在普京说这些话的时侯，基辅（Kyiv）、哈尔科夫（Kharkiv）和乌克兰其他地区已经传来了大爆炸的声音。
+美国总统拜登随即发表声明，指责普京选择了一场有预谋的战争，而这场战争将带来灾难性的生命损失和人类苦难。拜登称，俄罗斯要为这次攻击造成的死亡和破坏负责。美国及盟国将以团结果断的方式做出回应。世界将追究俄罗斯的责任。
 
-**新闻来源**
+新闻链接：
 
-[Russia’s Putin Announces Military Operation in Ukraine](https://www.newsmax.com/newsfront/ukraine-tensions/2022/02/23/id/1058218/)
+[https://www.voachinese.com/a/russia-military-operation-on-ukraine-20220223/6456751.html?utm\_source=twitter&utm\_medium=social&utm\_campaign=dlvr.it](https://www.voachinese.com/a/russia-military-operation-on-ukraine-20220223/6456751.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
+
+
+
+> 基辅响起了防空警报 [pic.twitter.com/x3z0llQZwO](https://t.co/x3z0llQZwO)
+> — 约翰 (@JohnDoe1284495) [February 24, 2022](https://twitter.com/JohnDoe1284495/status/1496715672289615874?ref_src=twsrc%5Etfw)
+
+
+
+* * *
+
+
 
  
 

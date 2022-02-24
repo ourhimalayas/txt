@@ -2,27 +2,44 @@
 ---
 
 
-## 新中国联邦将在今年底迎来各项重大利好
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2056480/)
+## 新中国联邦愿意以十万到百万付出救助被压迫被绑架妇女
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2056782/)
 
-加拿大温哥华扬帆农场  硫酸羟氯喹64
+G-TV视频链接：[https://gtv.org/video/id=621246421408ee3a03a23f96](https://gtv.org/video/id=621246421408ee3a03a23f96)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/a-15-edited.jpg)图片来源：GTV
+**郭文贵先生：**今天我们看到这些爆发出来的时候，我真的是很难受，我亲身经历过，我老家现在就这样，我这两天在想怎么救这个人呢？给每个人悬赏10万块钱把人救出来？我们有这个经济实力，但会不会共产党因为我们悬赏把人害了呢？第一。
 
+第二个，我们怎么阻止这种事情、绑架的发生呢？就是那个悬赏可能造成很多冤案假案。本来这人没想绑架文真，结果发现悬赏10万块钱，停止绑架，举报，我就绑下文真试试，把文真害了，顺便把小新也带走绑走了，会助长这种事。那会不会是悬赏出来，不是悬赏就有勇夫出来，也会有一些“鬼夫”就出来了呢？我在犹豫。
 
-据2月23日文贵大直播消息报道，随着中共政权及其虚空经济崩溃所导致的世界金融危机以及喜联储各项功能届时的日臻完善，[新中国联邦]将在今年底迎来自其成立后最大的利好时期。
+但是如果有任何办法能拯救这些被绑架的这些国内的女性，我们新中国联邦会拿钱一个十万到100万，只要能保证救出来，我们保证能给你钱，但我们没有统一的方案，如果你们谁有，我们愿意，跟新中国联邦联盟委员会一起来探讨拯救这些被压迫的被绑架的、跟人家生娃的已经失去了人性的这些混蛋的丈夫们，让他们放下屠刀，把这孩子，把这些女性解救出来。我真没有统一的方案，没统一的方案，希望你们有的话咱们一起来做这个事情。
 
-报道指出，乌克兰目前的局势不仅清晰表明欧元即将崩盘的脆弱性，也体现出美国最核心利益依然还在欧洲，并因此会逐渐将其大部分高端生产力转移致欧洲，其次才会是日本。而欧美联盟的深厚渊源必将把中俄两国剔除在外。
+字幕来源：[2022月2日6日 《文贵大直播》全文字版](https://gnews.org/zh-hans/1971450/)
 
-同时，欧美还掌控着世界银行货币组织，世贸组织和联合国等的话语权。而华尔街影子银行的本质就是极少数沼泽地参与的，兼具高风险性和高回报性的对冲基金。
+编辑整理：Davis；
 
-2022年底，中共政权及其经济全盘崩溃所造成的多米诺骨牌效应，必将祸及西方金融体系，并导致华尔街影子银行及其各大基金的彻底破产。届时，来自全球的财富和避险资金都将无毫无选择地汇入羽翼丰满的喜联储。因此，新中国联邦将在今年底喜迎各项前所未及的重大利好。
+字幕文件制作：神兵；
 
-* * *
+视频制作及上传：Cindy；
 
-消息来源：https://gettr.com/streaming/pwbjub06c5
+G-News发布：小满；
 
-编辑撰稿，发稿：硫酸羟氯喹64
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ)、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A)、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/)；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

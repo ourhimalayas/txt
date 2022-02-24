@@ -2,80 +2,32 @@
 ---
 
 
-## 参议员乔什·霍利:中共国 想要吞并台湾,乔拜登最好集中注意力
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2056667/)
+## 有声｜受俄乌对峙影响 台湾对中共提高戒备
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2056805/)
 
-参议员乔什·霍利： 乔拜登最好集中注意力。[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 想要吞并 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click)，然后再将其力量投射到世界各地——所有这些都是为了干掉美国。拜登还没有做好准备。差远了 【转环球时报：台湾急于引起乌克兰问题的关注。但尽管边界存在争议，但乌克兰主权没有争议。台湾主权从未存在过。还说台湾政权迟早会被废除】
+By:**秘翻新闻**
 
+**2022-02-24**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8-34.png)图片来源 Ritchie B. Tongo/EPA-EFE
+据合众国际社2 月 23 日报道，台湾总统蔡英文周三表示，受俄罗斯于乌克兰危机的影响，台湾可能将面临来自中共国的挑战，因此必须加强戒备。
 
+蔡英文下令加强台湾的战备，并要求台湾武装部队加强对中共军事活动的监视和意识。
 
-> Joe Biden better get focused. [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) wants to gobble up Taiwan and then project its power worldwide – all in an effort to take down the United States. And Biden isn’t ready. Not even close [https://t.co/Y489ThyWJ2](https://t.co/Y489ThyWJ2)
-> — Josh Hawley (@HawleyMO) [February 23, 2022](https://twitter.com/HawleyMO/status/1496523282358714374?ref_src=twsrc%5Etfw)
+在周三的会议上，蔡英文发表了四项指令，包括谴责俄罗斯“侵犯乌克兰主权”、加强台海战备、加强台湾对舆论战的反应以及继续应对相关经济发展。
 
+尽管蔡英文没有点名中共国，但台湾长期以来一直对中共保持警惕，因为中共国认为台湾是其分离的1个省份。而台湾自认为是一个独立的国家。
 
+蔡英文表示，台湾的情况与乌克兰的情况有根本不同，但随着东欧危机的展开，台湾必须努力稳定内部局势，预防外部压力。
 
-前国务卿迈克.蓬佩奥： 弗拉基米尔·普京没有改变。 美国领导层发生了变化。 只要美国处于不利地位，普京的侵略就会继续。 【附福克斯采访蓬佩奥：拜登未能兑现阻止俄罗斯扩张的竞选承诺】
+新闻来源
+[**https://www.upi.com/Top\_News/World-News/2022/02/23/taiwan-china-ukraine-crisis-readiness/8031645626511/**](https://www.upi.com/Top_News/World-News/2022/02/23/taiwan-china-ukraine-crisis-readiness/8031645626511/)
 
+秘翻新闻 文洋 编译报道
 
+发布 : 恩典
 
-> Vladimir Putin didn't change. American leadership changed. 
-> 
-> And Putin's aggression will continue so long as America is on its back foot. [pic.twitter.com/SLAaNwmag6](https://t.co/SLAaNwmag6)
-> — Mike Pompeo (@mikepompeo) [February 23, 2022](https://twitter.com/mikepompeo/status/1496567220821966849?ref_src=twsrc%5Etfw)
-
-
-
-参议员玛莎.布莱克本： 拜登政府在俄罗斯和共产主义中国问题上表现出无能。
-
-
-
-> The Biden administration has demonstrated incompetence when it comes to Russia and Communist China.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [February 23, 2022](https://twitter.com/MarshaBlackburn/status/1496559848489631747?ref_src=twsrc%5Etfw)
-
-
-
-参议员瑞克·斯科特： 乔·拜登的司法部更关心将父母和卡车司机错误地贴上国内恐怖分子的标签，而不是阻止 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 监视美国人和保护我们的国家安全。 【附福克斯新闻：拜登司法部在种族偏见的抱怨中取消对抗中共国的国家安全倡议】
-
-
-
-> Joe Biden’s [@TheJusticeDept](https://twitter.com/TheJusticeDept?ref_src=twsrc%5Etfw) is more concerned with wrongfully labeling parents & truckers as domestic terrorists than stopping Communist China from spying on Americans & protecting our national security. [https://t.co/8GnH94qUS1](https://t.co/8GnH94qUS1)
-> — Rick Scott (@SenRickScott) [February 23, 2022](https://twitter.com/SenRickScott/status/1496624725765808132?ref_src=twsrc%5Etfw)
-
-
-
-参议员汤姆·科顿： 中共盗窃美国数万亿知识产权，把在美留学生变成外国间谍。然而，拜登政府宣布取消负责打击这种破坏活动的倡议，因为他们声称这是种族主义。 【附科顿参议员官网就司法部结束“中共国倡议”的声明】
-
-
-
-> The CCP has stolen trillions in U.S. intellectual property & turned students studying in the U.S. into foreign spies. Yet the Biden administration announced it’s cancelling the initiative tasked with combatting this sabotage because they claim it’s racist.[https://t.co/76FaaYRUxu](https://t.co/76FaaYRUxu)
-> — Tom Cotton (@SenTomCotton) [February 23, 2022](https://twitter.com/SenTomCotton/status/1496624469179355140?ref_src=twsrc%5Etfw)
-
-
-
-参议员马可·卢比奥： 我希望我们能从 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click) 危机中学到宝贵的一课 我们需要自己生产的能源，重新靠自己制造，而不是依赖俄罗斯和 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)
-
-
-
-> I hope we are learning a valuable lesson with [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) 
-> 
-> We need to produce our own energy, make things again & not depend on [#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw) & [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/EnCmgVzL70](https://t.co/EnCmgVzL70)
-> — Marco Rubio (@marcorubio) [February 24, 2022](https://twitter.com/marcorubio/status/1496655883782270977?ref_src=twsrc%5Etfw)
-
-
-
-参议员马可.卢比奥：
-
-[#俄罗斯](https://twitter.com/hashtag/%E4%BF%84%E7%BD%97%E6%96%AF?src=hashtag_click) [#Russian](https://twitter.com/hashtag/Russian?src=hashtag_click) 入侵 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click) [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hashtag_click) 现在正在进行中
-
-在未来的几个小时内 [#俄罗斯](https://twitter.com/hashtag/%E4%BF%84%E7%BD%97%E6%96%AF?src=hashtag_click) [#Russia](https://twitter.com/hashtag/Russia?src=hashtag_click) 将 – 对防空系统进行打击 – 采取行动从 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click) 东部切断 [#基辅](https://twitter.com/hashtag/%E5%9F%BA%E8%BE%85?src=hashtag_click) [#Kyiv](https://twitter.com/hashtag/Kyiv?src=hashtag_click) – 采取行动切断东部接触线上的乌克兰军队，以防止他们后退保卫基辅
-
-
-
-> The [#Russian](https://twitter.com/hashtag/Russian?src=hash&amp;ref_src=twsrc%5Etfw) invasion of [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) is now underway
-> — Marco Rubio (@marcorubio) [February 24, 2022](https://twitter.com/marcorubio/status/1496667918490382343?ref_src=twsrc%5Etfw)
-
-
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

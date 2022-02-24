@@ -2,24 +2,45 @@
 ---
 
 
-## 美国总统拜登发表声明谴责俄罗斯选择了战争
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2056759/)
+## 在和七哥发生关系让七哥阳痿的战友们爆料前七哥先自爆
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2056859/)
 
-撰稿：东京樱花团/待命（文晓）
+G-TV视频链接：[https://gtv.org/video/id=621247021408ee3a03a2402c](https://gtv.org/video/id=621247021408ee3a03a2402c)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/美国总统拜登发表声明谴责俄罗斯选择了战争.jpg)（图片源自本文链接）
+**郭文贵先生：**就像我们现在，过去很多跟我发生了关系，有什么的战友，让七哥阳痿的战友都出来了，是吧。在她爆我料之前，我先把她爆了，是吧。我昨天开玩笑，我说我在你爆之前我先爆。她说七哥当时如果有一天方便我真想出来直播，你怎么整就怎么。我说我明天会有一个直播节目，就是中国女性被绑架，跟你跟七哥，就你正好成鲜明的对比。
 
-2月24日朝日新闻消息：美国总统拜登23日，就俄罗斯总统普京宣布在乌克兰东部开展军事行动，发表声明。
+他们绑架了女人，让他们生孩子，几家伙着一个女人，和七哥拯救一个当年要走上乐坛的一个神奇的漂亮的女性，我们新中的联邦，七哥不是今天就是好人，七哥过去就是好人。八九六四之前的七哥是本性的好人，但是不明是非，因为不懂的，就像戴了一个防弹眼镜，磨砂眼镜一样，根本不知道马路在前方。
 
-拜登强烈谴责俄罗斯：今晚，全世界都在为乌克兰人民祈祷，他们正遭受俄罗斯军队无端和无理的攻击，普京总统选择了一场蓄意的战争，将导致灾难性的生命损失和人民的痛苦。俄罗斯应该对这次袭击造成的死亡和破坏负全责。美国将和盟友以及朋友们站在一起，采取果断行动。全世界都将追究俄罗斯的责任。
+到了八九六四以后，我是蒙着我眼睛上的磨砂眼镜给拿下去了，让我开了天眼。那么我在之后，我真的是我没有做过任何坏良心的事情。我虽在茅屎坑里边的蛆出来的，但我没有觉得我干过任何一个坏良心的事情。而且我现在想我过去任何事情，我都我觉得都是人类上辉煌的篇章，我人生的骄傲。
 
-他还说：将在收集信息后， 24日上午与七国集团成员国协商，并宣布如何让俄罗斯为此付出更大代价。今晚，我会和吉尔（他的妻子）为勇敢和自豪的乌克兰人民祈祷！
+字幕来源：[2022月2日6日 《文贵大直播》全文字版](https://gnews.org/zh-hans/1971450/)
 
-信息来源：[バイデン大統領「破滅的な戦争選んだ」　ロシアの軍事作戦を強く非難（朝日新聞デジタル） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/80a7201a61a74ad801e555b1114faef091fa184d)
+编辑整理：Davis；
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+字幕文件制作：神兵；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ)、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A)、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/)；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
