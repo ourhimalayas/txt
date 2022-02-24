@@ -2,24 +2,16 @@
 ---
 
 
-## COVID-19 最新情报｜罗马尼亚最大足球具乐部宣布禁止接种疫苗的球员参赛及效力
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2056171/)
+## COVID-19 最新情报｜新西兰确诊住院数量12天内暴增 近8成为完全接种者
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2057091/)
 
 **撰文｜疫情关注组 / 发布时间｜24/02/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/羅馬尼亞最大足球俱樂部宣佈禁止接種疫苗的球員參賽及效力.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：**[**https://gettr.com/post/pl6k0218bf**](https://gettr.com/post/pl6k0218bf)**)**
-
-罗马尼亚规模最大的足球具乐部 Steaua Bucharest 日前宣布，将全面禁止接种过 Covid-19 疫苗的球员再为球队效力，原因是接种过疫苗的球员已经“失去力量”并“开始倒在赛场或死在医院”。
-
-该具乐部的老板，商人兼政治家吉吉·贝卡利（Gigi Becali）表示，他也不再允许接种疫苗的球员参加比赛，他不愿再看到原本伟大的球员渐渐的变得虚弱，他更不忍心再看到一个个年轻健康的球员死去。
-
-贝卡利强调，接种过 COVID-19 疫苗的人会倒下，会死在医院里，而那些拒绝接种疫苗的人却不会。他指出，“有人可能会笑话我，但我是对的，如果你看到CFR（CFR Cluj）和 Rapid（Rapid Bucuresti ）的球员们倒在地上，呼吸困难，你就该知道所有接种疫苗的人都会失去力量！”
-
-贝卡利的这番言论不意外的引起了该国政府的强烈反感。当局在脸书官方页面 RO Vaccinare 上发布一份最新声明，反驳称“足球运动员在接种了 COVID-19 疫苗后不会失去力量。”并指出，“从医学和科学的角度来看，没有任何研究可以支持罗马尼亚某位人士的奇特观点。”
-
-不过，仍然有不少当地民众支持贝卡利对疫苗的看法，他们认为，政府的声明恰恰反映了他们很心虚。
-
-来源｜[推特](https://twitter.com/Emishor/status/1496447904617312259?s=20&amp;t=_vOooKK2zDsQcuQM5gW2Pw)、[ESPN](https://www.google.com.hk/url?sa=t&amp;rct=j&amp;q=&amp;esrc=s&amp;source=newssearch&amp;cd=&amp;ved=2ahUKEwjLht_1sJf2AhXiD0QIHb9KAJoQxfQBKAB6BAgQEAI&amp;url=https%3A%2F%2Fwww.espn.com%2Fsoccer%2Ffcsb%2Fstory%2F4600728%2Fromanias-fcsb-deny-owners-suggestion-to-not-pick-vaccinated-players&amp;usg=AOvVaw2UZFvqTNUpQEbDKVhmEXsf)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Movie-Studio.png)**更多資訊請關注官方蓋特（Please follow our Gettr：**[**https://gettr.com/post/pl6k0218bf**](https://gettr.com/post/pl6k0218bf)**)**
+日前纽西兰卫生部公布相关统计数据，自2021/8/16至2022/2/22期间，官方记录在案的新冠确诊住院治疗病患共955人，其中有306人是发生在2022/2/11以后的12天内，占比高达三成。其中，此306名病患有82%为完全接种者。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/photo_2022-02-24-14.35.30.jpeg)[來源](https://www.health.govt.nz/covid-19-novel-coronavirus/covid-19-data-and-statistics/covid-19-case-demographics#vaccinations-details)
+新西兰卫生部于1月17日宣布，将第二剂与加强剂的接种间隔从原先的6个月缩短到4个月。亦即，从上个月17日起，所有18岁以上符合资格的完全接种者可以接种第三剂（加强剂）。然而，纽西兰的感染情形却在推动第三剂接种后，有着和预想完全相反的结果，确诊数量大爆发。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-24-下午2.34.28.png)來源/Our World in Data
+上图显示，日本确诊病例数也大幅增加，回顾日本政府的防疫规划，日本政府于2021年12月便推动第三剂接种计划，且日本政府同样将第二剂、第三剂接种间隔从原先的8个月缩短为1-2个月。同样的，日本在推行第三剂接种后，便发生了确诊率上升的情形。
 
  
 

@@ -2,23 +2,13 @@
 ---
 
 
-## 20220223郭文贵大直播 ：中共全世界放病毒 贩卖毒疫苗
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2058513/)
+## 乌克兰首都基辅防空警报长鸣
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2058813/)
 
-作者：东京樱花团小视频组
+02/24/2022 乌克兰首都基辅防空警报长鸣。
 
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-
-
-
-
-
-校对：东京樱花团小视频组
-
-编辑发布：东京樱花团小视频组
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,12 +2,25 @@
 ---
 
 
-## 乌克兰首都基辅防空警报长鸣
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2058813/)
+## 视频|中共党媒意外泄露俄乌报道审查指令
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2059057/)
 
-02/24/2022 乌克兰首都基辅防空警报长鸣。
+制作：香草山视频部
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+22日，一位在中共党媒新京报旗下的地平线新闻担任主管職的微博用户，在其微博页面上发布了“如何报道俄乌之间紧张局势升温”的相关指示。根据指示，在涉及俄乌局势相关的新闻时，要求使用人民日报、新华社以及央视话题来控制舆论导向，凡是对于俄罗斯不利或倾向西方民主立场的消息均不能发布，且设有专人负责审核、发布，精准控制评论话题，只放出合适、有利的评论，屏蔽掉所有不利的评论。
+
+对於网上流传的新闻发布指引，外国媒体认为是中共严格限制新闻自由和剥夺言论自由的证据。相关人士表示，中共国根本没有真正的新闻媒体，只有党的宣传工具和喉舌，所有对外宣传口径，都必须经过严密组织审查。从俄乌局势的发展，可以确信世界对中共已经逐渐不再纵容。
+
+发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

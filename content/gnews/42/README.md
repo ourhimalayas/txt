@@ -2,38 +2,27 @@
 ---
 
 
-## 拜登及联合国安理会多国代表谴责俄罗斯无端袭击乌克兰
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2057392/)
+## COVID-19 最新情报｜英格兰数据 8-10%儿童接种疫苗后缺课一次
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2057685/)
 
-**作者:  **青衣
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-363.jpg)
-美国总统拜登（图片来自网络）
+**撰文｜疫情关注组 / 发布时间｜24/02/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Movie-Studio-1.png)**更多资讯请关注官方盖特（Please follow our Gettr：**[**https://gettr.com/post/pl6k0218bf**](https://gettr.com/post/pl6k0218bf)**)**
+英媒[《THE EXPOSE》](https://dailyexpose.uk/2022/02/23/800k-kids-missed-school-adverse-reaction-covid-jab/)23日报导，英格兰政府在去年向12-15岁的儿童提供新冠疫苗接种，英格兰首席医疗官 Chris Whitty向JCVI\*(注1)表示，不建议让12岁以上的儿童接种新冠疫苗，其理由是统计数据显示，新冠疫苗不能预防感染或阻断传播。然而被以接种新冠疫苗的益处略大于已知的潜在危害为由驳回。Chris Whitty不建议12岁以上儿童接种疫苗的理由是，据统计数据，新冠疫苗不能预防感染或阻断传播。。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-24-下午4.12.08.png)UK Health Security Agency:[COVID-19 vaccine surveillance report Week 7](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1055620/Vaccine_surveillance_report_-_week_7.pdf)
+上图数据为2022年1月23日至2月13日期间，各年龄段每十万人中“未接种疫苗(蓝色)、接种三剂疫苗(红色)”新冠确诊的数量。由图表可知，接种三剂疫苗都是高于未接种疫苗的。
 
-俄罗斯2月24日发动对乌克兰的军事攻击。美国总统拜登以及正在联合国出席安理会紧急会议的多国代表，均对俄罗斯无端袭击乌克兰做出谴责。
+此外，JCVI在发表意见当中写道，5-11岁儿童在接种新冠疫苗后，大约有8-10%的儿童至少缺课一天。在美国，此年龄段接种新冠疫苗人数超过800万名，若依照JCVI的统计数据将会有近80万名儿童因疫苗不良反应而被迫缺课。
 
-据《大纪元》2月24日报道，在俄罗斯总统普京宣布于乌克兰东部顿巴斯地区（Donbas）采取军事行动后不久，美国总统拜登在周四清晨发布的一份声明中谴责了俄罗斯的行动。
+韩国，近日确诊人数快速增加，政府表示正在考虑将5-11岁儿童纳入接种对象，但尚未有定论。韩国政府统计数据显示，21日新增9万9573例确诊中，0-9岁与10-19岁合计占比达到三成，且每10万名确诊个案中0-9岁及10-19岁的比例高出其他年龄层许多。对比纽西兰官方统计数据（下图），0-19岁区间的确诊率总和约为33%，与韩国政府数据相近。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-24-下午4.46.38.png)[來源](https://www.health.govt.nz/covid-19-novel-coronavirus/covid-19-data-and-statistics/covid-19-case-demographics#vaccinations-details)
+**有趣的是，即便韩国政府统计上以0-9、10-19为区间段，但政府仍考虑开放5-11岁儿童接种新冠疫苗**。据报导，日本韩国皆是跟随美国政策，宣布开始为5-11岁儿童接种疫苗。
 
-拜登在声明中表示，当乌克兰人民遭受俄罗斯军队无端、无理的攻击时，全世界的人都在为他们祈祷。普京总统选择了一场有预谋的战争，将带来灾难性的生命损失和人们的苦难。俄罗斯必须为这次攻击所带来的死亡和破坏负上全责。美国和盟友及伙伴将会以一致的、果断的方式做出回应。全世界都将追究俄罗斯的责任。
+新加坡，早在去年便宣布预计12月底为5-11岁族群接种疫苗，预计涵盖30万名儿童，截至1月31日已经接种了23万8253剂。照JCVI的相关数据，可能会有3万名儿童接种后出现缺课情形。台湾政府则于1月13日宣布，5-11岁儿童有望在下半年接种新冠疫苗。
 
-拜登还补充称，他将在当日上午与七国集团（G7）领导人会面，并将于次日宣布美国及其盟友对俄罗斯施加的 “进一步后果”。
+- 註1（Joint Committee on Vaccination and Immunisation，可译为疫苗及免疫专家小组））
 
-俄罗斯总统普京此前表示，他已授权军队在乌克兰顿巴斯地区开展一项“特别军事行动”。许多分析人士认为，这是俄罗斯正式入侵乌克兰的开始。
 
-在普京宣布军事行动的同时，联合国安理会正准备召开紧急会议。消息传出后，各国代表纷纷谴责莫斯科，要求其恢复理性，停止战争。
-
-英国驻联合国大使芭芭拉·伍德沃德（Barbara Woodward）对莫斯科的行动予以谴责，并称“普京的手指已扣在扳机上”。
-
-美国驻联合国大使琳达·托马斯·格林菲尔德（Linda Thomas-Greenfield）则指责普京在联合国安理会开会寻求和平的同时，发出了战争的信息，完全不顾其安理会的责任。她呼吁安理会立即采取行动。
-
-乌克兰驻联合国大使谢尔盖·基斯利奇亚（Sergiy Kyslytsya）本周第二次在联合国安全理事会的紧急会议上敦促成员国们“停止战争”。
-
-极具讽刺的是，俄罗斯作为联合国安理会五大常任理事国之一，负责主持本月的所有安理会活动。基斯利奇亚引用联合国宪章中“只有爱好和平的国家才能进入安理会”的规定，要求俄罗斯大使放弃他作为安理会主席的角色。
-
-新闻链接：
-
-[https://www.epochtimes.com/gb/22/2/24/n13600901.htm](https://www.epochtimes.com/gb/22/2/24/n13600901.htm)
-
-* * *
+来源｜ [中央社](https://www.cna.com.tw/news/aopl/202202220259.aspx)、[光明日報](https://guangming.com.my/%E6%96%B0%E5%8A%A0%E5%9D%A110%E5%90%8D%E5%85%92%E7%AB%A5-%E6%89%93%E7%96%AB%E8%8B%97%E5%BE%8C%E7%8F%BE%E5%9A%B4%E9%87%8D%E4%B8%8D%E8%89%AF%E5%8F%8D%E6%87%89)、[《THE EXPOSE》](https://dailyexpose.uk/2022/02/23/800k-kids-missed-school-adverse-reaction-covid-jab/)、[New Zealand Ministry of Health](https://www.health.govt.nz/covid-19-novel-coronavirus/covid-19-data-and-statistics/covid-19-case-demographics#vaccinations-details)
 
  
 

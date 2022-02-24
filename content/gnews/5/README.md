@@ -2,26 +2,69 @@
 ---
 
 
-## 香港当局强推全民病毒检测
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2058889/)
+## 有声|怒
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2059092/)
 
-加拿大温哥华杨帆农场 枫叶快讯
+配音：香草山农场 – 信念7
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+序:（引用) 您好，这个链接我看了，但是我没有任何兴趣，我深爱着我的祖国，深爱着我们中国共产党，是我的祖国将我培养长大，虽然我现在没有办法做什么事情报答我的祖国、我们的党，但我会永远忠诚于我的祖国，永远忠诚于中国共产党。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_9272.jpg)
+这个操蛋社会
+真相被掩盖
+如同热带雨林之谜踪
+看见起始脚印
+再也不见踪影
+洗脑又洗脑
+输灌又输灌
+聪明人
+变成笨蛋
+智慧远离悲凉人生
 
-采编：文莱      翻译编辑：文所未闻
-![](https://cdn.discordapp.com/attachments/759954055299858513/946404703376388126/image.png)图片来源：www.ctvnews.ca
-据加拿大媒体《CTV新闻》2月22日报道，香港行政长官林郑月娥当天表示，由于疫情日趋严重，政府将在3月份内对所有香港居民进行至少三次“新冠病毒”检测。
+不
+这些哪里够
+仅仅迫害
+哪里能够满足他们贪婪成性
+于是
+在这个国度里
+普遍流行
+斯德哥尔摩综合症
 
-据悉，自2月15日以来，香港每天报告约5000个新增感染病例，当地医疗系统因此不堪重负。此外，学校已提前放假，以便将其变成测试、隔离和接种疫苗的场所。林郑月娥同时计划在3月初将疫苗接种率提高到90%。
+偷窃了你们的财富
+偷窃了你们的人生
+偷窃了你们的智慧
+偷窃了你们的爱情
 
-评论指出，随着疫苗的无效性已被广泛验证以及疫苗灾难的大量涌现，越来越多的国家政府目前正逐渐取消各项疫苗强制政策。香港政府在中共的控制之下，却仍然倒行逆施，继续利用疫苗残害民生，而最终使香港民众成为其暴政的牺牲品。
+魔鬼们狂欢盛宴
+酒杯里血浆翻滚
+人们哀嚎悲鸣
+是他们天籁之音
 
-校对编辑：硫酸羟氯喹64
+可是
+沉睡的人们
+依然爱着魔鬼
+奉献着
+肉体和爱情
 
-发稿：青青
-
-原文链接： https://www.ctvnews.ca/health/coronavirus/hong-kong-orders-mandatory-covid-19-tests-for-all-residents-1.5790929
 
 
+文字版原文：[怒](https://gnews.org/zh-hans/2030261/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

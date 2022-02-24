@@ -2,24 +2,27 @@
 ---
 
 
-## 美前国务卿蓬佩奥即将访台
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2058640/)
+## 视频|中共拘捕日本大使馆工作人员违反维也纳公约
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2058953/)
 
-加拿大温哥华杨帆农场 枫叶快讯
+制作：香草山视频部
 
-采编：风云小哥             编译撰稿：自由法兰西
-![A portrait of former US Secretary of State Mike Pompeo in a dark suit and white shirt](https://www.aljazeera.com/wp-content/uploads/2022/02/AP21308597883933-1.jpg?resize=770%2C513)
-据台湾媒体《半岛新闻》2月21日报道，台湾政府当天宣称，美前国务卿蓬佩奥将于3月3日至5日访问台湾。防台期间将与总统蔡英文会晤并发表演讲。报道同时盛赞蓬佩奥在任职期间为促进台美关系做出的杰出贡献。
+2月22日，日本外务省发布公告称，其驻中共国大使馆的工作人员，在21日遭到中共当局非法拘禁。虽然目前该名工作人员已经被释放，但是日本国政府的森健良事务次官在22日，表示这是近年没有发生过的，并指斥中共对日方工作人员进行了长时间的拘禁，这种行为已经违反了维也纳公约。他通知了驻日本的中共临时大使杨宇，表达了日本的严正抗议，并且要求中共的道歉。
 
-报道称，蓬佩奥因在任期间，不仅立法将中共定义为种族灭绝和反人类罪政权，而且还宣布结束已持续几十年的美台官方外交禁令，而遭到中共当局的强烈诋毁和攻击。
+截至发稿时，中共也没有道歉甚至没有报道此事，而临时大使杨宇仅向日方表示，需要向中共请示后才能做出答复。
 
-自总统蔡英文2016年上任以来，中共不断加大对台湾的军事和外交压力以及战争威胁力度。持续的战争挑衅使得台海局势一促即发。据悉，此次彭培奥的到访，除了明确表达美方将坚定支持台湾保卫自己不受中共涂炭的根本立场，同时也为将来参加总统竞选奠定外交基础。
+维也纳公约明确规定，所有外交人员享有不被逮捕、大使馆领地不可侵犯的特权，这些特权，是所有签署维也纳公约国必须尊重的规则。分析人士指出，中共在冬奥会和残奥会的间隙，拘捕外交人员会进一步让世界看清，中共不守规则、开展人质外交的丑陋嘴脸。
 
-校对编辑：硫酸羟氯喹64
+发稿：Daxia
 
-发稿：青青
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-新闻来源： [https://www.aljazeera.com/news/2022/2/21/former-us-secretary-of-state-mike-pompeo-to-visit-taiwan](https://www.aljazeera.com/news/2022/2/21/former-us-secretary-of-state-mike-pompeo-to-visit-taiwan)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

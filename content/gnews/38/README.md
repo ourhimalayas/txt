@@ -2,26 +2,45 @@
 ---
 
 
-## 英国大学讲师为了避免冒犯中共国学生进行自我审查
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2057587/)
+## 拜登政府详述美国对俄罗斯的进一步制裁措施
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2058129/)
 
-#### 翻译/撰稿：zzballack
+据《福克斯商业》作者：Breck Dumas，2022年2月22日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2258.png)2022年2月1日星期二，俄罗斯总统弗拉基米尔-普京在俄罗斯莫斯科克里姆林宫的新闻发布会上。 图片来源：Yuri Kochetkov/Pool Photo 通过AP Newsroom
+美国总统拜登在普京向乌克兰部署军队后宣布对俄罗斯采取更多制裁措施。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-50.jpg)图片来源：泰晤士报
-据英国《每日邮报》（Daily Mail）2月23日报道，英国大学的讲师们承认在讨论中共国时会进行自我审查，以免冒犯中国学生。学者们说，由于因其课堂有来自专制国家的学生，他们的教学受到了影响。大多数人警告说，英国高等教育中的学术自由和他们的公开教学权利受到了威胁。
+拜登政府周二提供了美国对俄罗斯实施制裁的细节，以回应俄罗斯总统弗拉基米尔-普京前一天对乌克兰的入侵。
 
-来自牛津大学、埃克塞特大学（University of Exete）和朴茨茅斯大学（University of Portsmouth）的学者们发表在《国际人权杂志》（International Journal of Human Rights）上的一份最新报告详细介绍了这一情况。这份报告对1500名来自全英各地机构社会科学部门的讲师进行了采访。回复者中，44%的人说他们对自己的在线课程进行了自我审查；三分之二的人认为学术自由受到威胁；超过五分之二的人认为他们选择教学内容的能力受到威胁；近四分之一的人承认学生背景影响到了他们的工作；对那些工作聚焦于中共国的讲师来说，超过五分之一的人工作受到限制；令人吃惊的是，在英国大学工作的人中，有60%认为他们的教学自由受到了威胁。
+在拜登总统发表讲话，宣布加强对俄罗斯制裁，以回应他所谓的“入侵乌克兰”的“开始”之后，美国财政部公布了通过其外国资产管制处（OFAC）实施的强化制裁措施。
 
-在一个学术自由受到威胁的案例中，罗素大学集团（Russell Group）的一位教授因所谓的冒犯了一名中国学生而道歉。《泰晤士报》报道说，在谈到增值税制度时，这位学者提到了中共国对其制度的改变。但在一周后的研讨会上，这位讲师说：“我感觉一些人并不完全接受我对中国宪法的评论，我当然没有任何不尊重的意思。”一位学生说，我会对任何人讨论中共国而不引起冒犯感到惊讶。我突然觉得不愿、甚至害怕以任何方式提及中共国。
+首先，政府已将克里姆林宫的两家主要国有银行从美国金融系统中切断，以努力打击俄罗斯资助进一步侵略的能力。
 
-报告作者之一、牛津大学的特纳·普雷勒克（Tena Prelec）博士说：“政治、国际关系专业的学者更有可能自我审查，因为他们在给来自专制国家的学生授课和进行研究时，更容易接触到敏感问题。”
+这两个机构，即国家发展和对外经济事务银行（Vnesheconombank）和Promsvyazbank公共股份公司（PSB），对于资助俄罗斯的国防工业至关重要。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2259.png)2022年2月22日，在华盛顿特区，拜登总统在白宫东厅就乌克兰和俄罗斯的事态发展发表讲话，并宣布对俄罗斯的制裁。 图片来源：Drew Angerer/Getty
+财政部还列出了被外国资产管制处盯上的“与普京关系密切的精英和家族”，称“受制裁的寡头利用家族成员转移资产，掩盖其巨大的财富”。
 
-根据英国大学统一学生申请机构（UCAS）的数据显示，近年来，申请来英国就学的中共国学生人数激增，从2013年的6900人，到去年的26000人，再到今年的28930人，这使得中共国成了继欧盟之后英国大学的第二大海外生源地。远东地区每年给英国大学带来了21亿英镑收入，平均每人每年高达3.8万英镑。
+这五个人的名字是Aleksandr Vasilievich Bortnikov和他的儿子Denis Aleksandrovich Bortnikov，Petr Mikhailovich Fradkov，Sergei Vladilenovich Kiriyenko，以及他的儿子Vladimir Sergeevich Kiriyenko。
 
-新闻来源：
+美国也在进一步限制俄罗斯管理其主权债务的能力。拜登在白宫的演讲中解释道，“这意味着我们已经切断了俄罗斯政府与西方国家的融资联系， 它不能再从西方筹集资金，也不能在我们的市场或欧洲市场上交易其新的债券。”
 
-[Lecturers at UK universities are self-censoring to avoid offending Chinese students: Up to 44% of tutors say they miss topics in online lessons with 66% fearing a threat to academic freedom](https://www.dailymail.co.uk/news/article-10542193/Lecturers-UK-universities-self-censoring-avoid-offending-Chinese-students.html)
+周一，普京向乌克兰的两个分离主义地区——顿涅茨克和卢甘斯克部署了部队，这两个地区位于该国东部一个名为顿巴斯的地区。俄罗斯总统称这一行动为维和任务，并承认这两个地区是独立的。
+
+入侵发生后，拜登发布行政命令，禁止美国人与顿涅茨克和卢甘斯克做生意。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2260.png)2022年2月22日，一名乌克兰军人在卢甘斯克地区Troitske定居点附近与分离主义分子的前线阵地上吸烟。图片来源：ANATOLII STEPANOV/AFP 通过Getty
+现在，白宫发誓，如果普京的军队超越这两个地区，深入乌克兰，将实施进一步制裁。
+
+拜登的一位高级官员星期二说，“这是入侵的开始，这是我们回应的开始，如果普京进一步升级，我们可利用的金融制裁和出口管制将进一步升级，我们还未公布。”
+
+原文连接：[**https://www.foxbusiness.com/politics/treasury-biden-unveils-details-us-sanctions-against-russia**](https://www.foxbusiness.com/politics/treasury-biden-unveils-details-us-sanctions-against-russia)
+
+翻译：洛杉矶盘古农场 – TrueSky
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
