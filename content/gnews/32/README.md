@@ -2,27 +2,59 @@
 ---
 
 
-## COVID-19 最新情报｜英格兰数据 8-10%儿童接种疫苗后缺课一次
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2057685/)
+## 美国移民局称本财年EB-1，EB-2再加14万个绿卡名额
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2057874/)
 
-**撰文｜疫情关注组 / 发布时间｜24/02/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Movie-Studio-1.png)**更多资讯请关注官方盖特（Please follow our Gettr：**[**https://gettr.com/post/pl6k0218bf**](https://gettr.com/post/pl6k0218bf)**)**
-英媒[《THE EXPOSE》](https://dailyexpose.uk/2022/02/23/800k-kids-missed-school-adverse-reaction-covid-jab/)23日报导，英格兰政府在去年向12-15岁的儿童提供新冠疫苗接种，英格兰首席医疗官 Chris Whitty向JCVI\*(注1)表示，不建议让12岁以上的儿童接种新冠疫苗，其理由是统计数据显示，新冠疫苗不能预防感染或阻断传播。然而被以接种新冠疫苗的益处略大于已知的潜在危害为由驳回。Chris Whitty不建议12岁以上儿童接种疫苗的理由是，据统计数据，新冠疫苗不能预防感染或阻断传播。。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-24-下午4.12.08.png)UK Health Security Agency:[COVID-19 vaccine surveillance report Week 7](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1055620/Vaccine_surveillance_report_-_week_7.pdf)
-上图数据为2022年1月23日至2月13日期间，各年龄段每十万人中“未接种疫苗(蓝色)、接种三剂疫苗(红色)”新冠确诊的数量。由图表可知，接种三剂疫苗都是高于未接种疫苗的。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/89701078-1.jpg)网络图片
 
-此外，JCVI在发表意见当中写道，5-11岁儿童在接种新冠疫苗后，大约有8-10%的儿童至少缺课一天。在美国，此年龄段接种新冠疫苗人数超过800万名，若依照JCVI的统计数据将会有近80万名儿童因疫苗不良反应而被迫缺课。
+摘要翻译：
+《印度时报》2月20日报道，
 
-韩国，近日确诊人数快速增加，政府表示正在考虑将5-11岁儿童纳入接种对象，但尚未有定论。韩国政府统计数据显示，21日新增9万9573例确诊中，0-9岁与10-19岁合计占比达到三成，且每10万名确诊个案中0-9岁及10-19岁的比例高出其他年龄层许多。对比纽西兰官方统计数据（下图），0-19岁区间的确诊率总和约为33%，与韩国政府数据相近。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-24-下午4.46.38.png)[來源](https://www.health.govt.nz/covid-19-novel-coronavirus/covid-19-data-and-statistics/covid-19-case-demographics#vaccinations-details)
-**有趣的是，即便韩国政府统计上以0-9、10-19为区间段，但政府仍考虑开放5-11岁儿童接种新冠疫苗**。据报导，日本韩国皆是跟随美国政策，宣布开始为5-11岁儿童接种疫苗。
+美国公民及移民局(USCIS)表示，在本财政年度（2021年10月至2022年9月），第一优先类别（EB-1或优先工人类别）和第二优先类别（EB-2或具有高级学位或特殊能力的专业人士类别）有“特別多”的基于就业的绿卡配额。
 
-新加坡，早在去年便宣布预计12月底为5-11岁族群接种疫苗，预计涵盖30万名儿童，截至1月31日已经接种了23万8253剂。照JCVI的相关数据，可能会有3万名儿童接种后出现缺课情形。台湾政府则于1月13日宣布，5-11岁儿童有望在下半年接种新冠疫苗。
+移民局在其声明中建议绿卡申请人考虑在符合条件的情况下申请EB-1或EB-2类别，并鼓励在可能的情况下（从EB-3）基础转移(Transfer of underlying basis)。“基础转移”是指USCIS将待处理的绿卡申请从一个类别重新分类到另一个类别的过程，例如从EB-3到EB-2。
 
-- 註1（Joint Committee on Vaccination and Immunisation，可译为疫苗及免疫专家小组））
+2022财年基于就业的总体年度限额大约是平时的两倍，因为该限额包括2021财年以来所有未使用的家庭担保签证号码，数量约为14万。
+
+此外，根据相关法规，第五就业优先类别(EB-5)中未用尽的任何签证都会分配给第一就业的优先类别(EB-1)，而在第一就业优先类别(EB-1)中未用尽的任何签证都会分配给第二就业优先类别(EB-2)，移民局解释道。
+
+移民局补充说，这些未用尽的数额不能提供给第三就业优先类别(EB-3)的申请人，因为鉴于在第二就业优先类别(EB-2)中等待签证的非公民人数众多，根据法律规定，这些签证必须用于第二优先类别。
+
+移民局创建了一个新的互换程序，允许EB-3申请人将其待处理的I-485转移到其他两个类别。
+
+移民律师预计会有很多人从EB-3类别转到EB-2类别，特别是那些来自印度和中国的员工。然而，他们警告说，担保雇主必须检查EB-2申请中描述的工作是否确实是该员工将实际担任的工作。
+
+总之：
+
+-EB-1签证是一种基于就业的绿卡，适用于在其领域表现出非凡能力的外籍人才——无论是科学，艺术，教育，商业还是体育；
+
+-EB-2签证是一种基于就业的绿卡，适用于具有高级学位（美国硕士学位或更高学历/外国同等学历）和/或具有特殊能力的外籍人士。拥有学士学位（或同等学历）和五年工作经验的人也可能有资格获得EB-2签证；
+
+-EB3签证是一种基于就业的绿卡，适用于专业人士，技术工人和非技术工人。专业人士是指具有学士学位或更高学历（或外国同等学历）的人。技术工人是指具有两年或两年以上相关工作经验的人员。非技术工人是指相关工作经验少于两年的人。
+
+上一个财年，大量的绿卡被浪费了。移民律师表示，根据类别转移，USCIS是否能够在2022年9月30日前的时间内处理更多数量的EB-2申请还有待观察。
+
+**简评：**
+
+相比美国移民局签证的透明高效和法律明确，中共的暗箱操作制度难以望其项背，但这并不能阻止他们整天幻想着超越美国和产生类似“制度优越性”的妄想，同时却对每年十几万中国人如同逃亡般移民到美国的事实视而不见。中共不仅没有引以为戒，还无耻地派遣大量的间谍通过签证欺诈的方式渗透入美国国境，以利用学术机构和偷窃商业机密。但是，如今情况发生了很大变化。2月9日，众议院的几位资深议员提出了《制裁中共法案》，议员们要求对中共全国代表大会的所有成员及其家庭成员实施签证封锁制裁；2月18日，美国国会议员提出《保护高等教育免受中共影响法》，新法案将禁止中共国官员及其家庭成员申请美国大学的学生或研究签证。可见，美国有关签证的利好消息，将与中共高官和家属无缘。中共政权及其高官，对新疆人维吾尔人实施种族灭绝政策，侵犯香港的人权和自由，军事威胁台湾并破坏亚太和平，凡此种种罪恶行径已经为国际社会所不容，未来必将面临更多的国际制裁和限制。
+
+新闻链接：[USCIS states higher number of employment-based green cards are available in advanced EB-2 category](https://timesofindia.indiatimes.com/world/us/uscis-states-higher-number-of-employment-based-green-cards-are-available-in-advanced-eb-2-category/articleshow/89700658.cms?utm_source=contentofinterest&amp;utm_medium=text&amp;utm_campaign=cppst&amp;from=mdr)
+
+*翻译/简评：Dlrow*
+*校对：Harvey（叶知秋）*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-来源｜ [中央社](https://www.cna.com.tw/news/aopl/202202220259.aspx)、[光明日報](https://guangming.com.my/%E6%96%B0%E5%8A%A0%E5%9D%A110%E5%90%8D%E5%85%92%E7%AB%A5-%E6%89%93%E7%96%AB%E8%8B%97%E5%BE%8C%E7%8F%BE%E5%9A%B4%E9%87%8D%E4%B8%8D%E8%89%AF%E5%8F%8D%E6%87%89)、[《THE EXPOSE》](https://dailyexpose.uk/2022/02/23/800k-kids-missed-school-adverse-reaction-covid-jab/)、[New Zealand Ministry of Health](https://www.health.govt.nz/covid-19-novel-coronavirus/covid-19-data-and-statistics/covid-19-case-demographics#vaccinations-details)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

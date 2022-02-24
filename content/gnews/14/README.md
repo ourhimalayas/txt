@@ -2,56 +2,62 @@
 ---
 
 
-## 尸检结果 青少年接种中共病毒疫苗简直让人 &#8220;心碎“ – 下半部
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/2058214/)
+## 俄罗斯入侵乌克兰 油价黄金军工大涨 股市下跌
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2058365/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Picture1-25.png)
+作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
 
-图片来自原文
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-疾病预防控制中心的免疫措施咨询委员会（ACIP）在2021年6月23日召开的会议上提出了这一令人不安的信息（见下图），该会议专门讨论了接受辉瑞公司中共病毒疫苗的12至15岁儿童的心肌/心包炎风险。
+随着普京宣布开始对乌克兰的军事行动，当地时间24日凌晨5时开始，俄罗斯军队开始向乌克兰多个城市的军事设施和军用机场发动导弹袭击。乌克兰哈尔科夫、首都基辅、鲍里斯波尔、楚古耶夫、克拉马托尔斯克等主要城市受到俄罗斯袭击，发生爆炸。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Picture2-7.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/putin-ukraine-.jpg)
 
-图片来自网络
+黑海舰队在亚速海和敖德萨海的已经开始登陆行动，目前，俄军已突破哈尔科夫州界，哈尔科夫乌军指挥所遭到火箭弹袭击。乌克兰总统泽连斯基表示，乌克兰全境将进入战时状态。乌克兰管理部门宣布关闭全境领空，乌克兰首都基辅响起空袭警报。
 
-首先，**表中****12****至****17****岁的男性发生心肌****/****心包炎的风险至少比预期高出****11****倍。**
+中共国《新民晚报》称，俄罗斯国防部发布消息，俄军在一小时之内就消灭了乌克兰海军和空军的作战能力。另一中共媒体《环球网》称，乌克兰紧急情况部发布消息，乌克兰国民卫队司令部被摧毁。
 
-与”预期 “相比，接种疫苗者（”观察 “栏）的这种潜在致命疾病的发病率明显较高，特别是在18至24岁年龄段的男性。
+白俄罗斯军队帮助俄罗斯，从乌克兰北部、东部进入乌克兰。
 
-第二，**CDC****分析报告依据****VAERS****的数据，****却仍然****敦促公众不****要****考虑出现在同一数据库中的所有不良事件（包括死亡）。**
+不管如何，俄罗斯对乌克兰的军事入侵显然会对乌克兰产生毁灭性的影响。同时，俄罗斯是世界上最大的石油和天然气生产国之一，占世界天然气的 17% 和石油的 12%，入侵也立即影响能源市场。
 
-CDC直接从疫苗不良事件报告系统（VAERS）中获取信息，该系统专门用于监测向公众注射疫苗时的安全信号。
+北海布仑特油价应声上涨，由昨天的94.28美元/桶飙升到101.69美元/桶，涨幅达7.86%。
 
-截至2月15日，CDC仍然继续向公众保证：”向VAERS报告接种疫苗后的不良事件，包括死亡，并不一定意味着疫苗导致了健康问题。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-24_19-46-41.png)
 
-从本质上讲，CDC承认VAERS中存在疫苗接种后死亡和其他不良事件的报告。截至2月4日，VAERS报告了495例12至17岁儿童的心肌/心包炎。VAERS数据显示，截至2月10日，有2239例30岁以下人群的心肌炎报告。
+布伦特原油，英文Brent oil，是指出产于欧洲北海布伦特和尼尼安油田在西欧提炼的轻质低硫原油，共15种原油综合而成，占全球原油交易量約50%，是油价的市场标杆。
 
-**第三， ****VAERS****系统中存在着严重的漏报现象**
+最近一个月来，布伦特油价一直在90美元以上。随着俄罗斯向乌克兰东部派遣军队后，布伦特原油价格昨天就飙升至 99.50 美元的高位。
 
-一项被广泛引用的CDC赞助的研究（Lazarus等人）认为，不良事件的发生率要比VAERS报告中的多10到100倍。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-24_19-41-31.png)
 
-最近的计算估计，因疫苗导致的**不良病例被低报了大约****41****倍。**
+俄罗斯股市（IMOEX）开盘下跌11.24%，至2737.91点，俄罗斯卢布和莫斯科证券交易所开始交易后不断下跌，目前已跌至熔断线，卢布和证券交易已暂停。目前，MOEX Russia Index(IMOEX.ME)指数已下跌至2,045.38点，下跌-1,018.06点，跌幅达34.00%。
 
-从这些估计中，我们可以得出结论，自辉瑞公司的中共病毒疫苗获得紧急使用授权并在这个年龄段推广以来，可能有大约20,000例12至17岁的心肌炎病例。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-24_20-06-12.png)
 
-上表中2021年6月11日的VAERS数据显示，在给12至17岁男性注射的2,039,000剂中观察到132例心肌/心包炎。这大约是100,000剂中有6.5例。
+亚太股市遭受重创。
 
-香港的这项研究发现，在使用辉瑞公司的Comirnaty疫苗两剂后，心肌/心包炎的发病率为10万分之37。这一发病率与这项使用疫苗安全数据链（VSD）系统的研究结果几乎完全吻合（每10万名12-17岁的青少年中，有37人在第二剂后患心肌/心包炎）。这更加证明了VAERS系统中存在着严重的漏报现象。
+中共国A股午后开盘快速跳水，港股恒生科技指数跌5%。沪指跌逾2%，创业板指跌近3%，两市超4000股下跌，黄金板块直线拉升，西部黄金、湖南黄金涨停。军工股午后大幅拉升，观想科技上涨9.17%、新余国科15.29%，航天机电2.73%、天海防务10.62%、西仪股份7.04%、晨曦航空11.17%、新劲钢、江龙船艇等纷纷大幅冲高。
 
-备注：
+黄金板块直线拉升，西部黄金10.02%、湖南黄金10.01%)涨停，现货黄金冲上1957美元。
 
-- 疫苗：是指新冠疫苗
-- 中共病毒：是指新冠病毒Covid-19
-- Covid疫苗本身就是随时爆发的病毒
-- 我们不反疫苗，只针对假疫苗
-- 我们不反科学，只针对反人类
+日经225指数、韩国KOSPI指数均跌超2%，印度BSE SENSEX指数跌近3%。
 
+美股三大股指狂跳水，大型科技股均收跌。
 
-新闻来源链接：[https://childrenshealthdefense.org/defender/autopsies-vaccinating-teens-covid-heartbreaking/](https://childrenshealthdefense.org/defender/autopsies-vaccinating-teens-covid-heartbreaking/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2202-81685869a3b222a0d7aa35f4dc2a7576.jpg)
 
-本文作者：Rebecca (一切心皆不可得！)
-上传排版：Hong
+参考数据：
+
+[BREAKING: Ukraine Shuts Down Its Airspace – Putin Declares Start of Military Operation against Ukraine — VIDEO](https://www.thegatewaypundit.com/2022/02/breaking-ukraine-shuts-airspace-putin-declares-start-military-operation-ukraine-video/)
+
+[Brent Crude Oil Continuous Contract](https://www.marketwatch.com/investing/future/brn00?countrycode=uk)
+
+[Oil prices are surging toward $100 a barrel. Here’s what that means for you](https://www.npr.org/2022/02/22/1081092765/oil-gas-prices-100-barrel-ukraine-russia)
+
+[MOEX Russia Index (IMOEX.ME)](https://finance.yahoo.com/quote/IMOEX.ME/?guccounter=1&amp;guce_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS8&amp;guce_referrer_sig=AQAAADEkkhDJV3O8Ds2p-NT4Xy9DIjntGGJ9kbesSmuEEYWTVqxy4FKgi0nNc0J_2B919g3rB3MtgfpUXcAUEXb8NHhPg9jrLvlQZH_tGAaDa1oCzsHhtukPQpS74dEcWLxRFaKBBBa64TFsh_PWCYWbXSv06EPMub_0SN6AXvkZdVSV)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

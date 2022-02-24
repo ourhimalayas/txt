@@ -2,32 +2,32 @@
 ---
 
 
-## 法国印太战略报告：台湾是关键伙伴
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2058031/)
+## 香港将允许大陆医生和护士进入香港执业
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2058180/)
 
-#### 【雅典娜快讯】紧贴时代脉搏
+素材整理：波士顿五月花 Vicky
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-24-at-9.16.31-PM.png)图片来源：Vincent Yu/AP
+港共政府已经援引紧急权力，允许来自中国大陆的医生和护士在这个金融中心执业，以应对不断飙升的冠状病毒的爆发。
 
-整理：围剿维尼熊
-编辑：小鱼儿
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-02-下午10.11.59-24.png)
-据大纪元2月24日报道，法国22日于巴黎，举办第一届印太地区合作![图像]()论坛。并在印太战略报告提及台湾，称台湾为经贸策略上的关键伙伴。
+早先中国大陆的医务人员如果没有通过香港当地的考试和许可条例，是不允许在香港工作的。
 
-60多个国家外长出席论坛，其目的为强化欧洲与重要经济战略地区各国的伙伴关系。但据世界报（Le Monde）等法媒分析，另一个秘而不宣的目的，则是制衡中共在此区的势力。世界报说，中国未受邀是因欧洲将其视为“体制上的对手”。
+政府在一份声明中说：”该条例将为中央政府（中央人民政府）提供一个法律框架，以更有效和迅速的方式向香港提供必要的紧急支持。”
 
-同时，法国外交部也于20日，公布最新印太地区战略报告，台湾数次被提及，且被视为“伙伴”。报告也指出，印太地区因为中共势力崛起造成的领土争议，改变了区域的平衡，也使得战略对等更加复杂，包括美中竞争激化、印中边界对峙、台湾海峡紧张局势等。
+香港目前正处于其有史以来最严重的Covid病毒疫情当中，每天都有成千上万的病例，使医院不堪重负，而且香港要求所有病人都被隔离在专用单元中。
 
-根据会议结束后的新闻稿，各国外长将遵循基于规范、民主价值、多元主义、法治的国际秩序，并遵守国际法与联合国海洋法公约中的航行自由。
+外籍家庭佣工在被解雇后被迫露宿街头，或者在检测出Covid-19呈阳性后被拒绝进入雇主的家。
 
-参考新闻：[印太合作会议巴黎落幕 称台湾为关键伙伴](https://www.epochtimes.com/gb/22/2/24/n13600498.htm)
+香港家庭佣工因感染Covid-19而被解雇后沦为无家可归。
 
-发布：tianzhihuan
+港共政府在宣布使用紧急权力的声明中说：”香港现在面临着非常可怕的疫情，而且继续迅速恶化。”
 
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+声明说，紧急权力 “豁免某些人或项目的所有相关法定要求”，以便 “提高香港的疫情控制能力，在短时间内控制第五波疫情”。
+
+参考链接：[Hong Kong to allow in doctors from mainland China as Covid cases overwhelm hospitals](https://www.theguardian.com/world/2022/feb/24/hong-kong-to-allow-in-doctors-from-mainland-china-as-covid-cases-overwhelm-hospitals)
+
+* * *
+
+*编辑&发布：Vicky*
 
  
 
