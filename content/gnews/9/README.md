@@ -2,24 +2,21 @@
 ---
 
 
-## 特鲁多强施紧急状态法遭起诉
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2055899/)
+## 雅典娜时报-第214期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2056032/)
 
-加拿大温哥华杨帆农场 枫叶快讯
+#### 《雅典娜时报》汇聚全球新闻时事
 
-采编： 文莱      编译撰稿：文明(添草灭共)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2197.png)
-据加拿大媒体【真北方】2月22日报道，自由车队运动的抗议者近日将特鲁多政府告上法庭，要求其公布实施《紧急状态法》必要性的法律文件。
+#### 编辑：精灵蓝
+排版：小蚂蚁614
+![圖片](https://media.discordapp.net/attachments/825592691433668612/946208825684410378/155_8.png?width=812&amp;height=1209)![圖片](https://media.discordapp.net/attachments/825592691433668612/946208826154164264/155_11.png?width=812&amp;height=1209)
+*发布：陶子*
 
-报道称，［加拿大前线护士］组织日前向联邦法院提起诉讼，指控当局因非法动用国家紧急权力，而违反了《权利和自由宪章》以及《加拿大权利法案》，并要求议会停止执行特鲁多的各项违宪法规。
-
-该组织的律师表示，当局一直未提供任何依据来支持特鲁多认为“抗议活动已构成公共秩序紧急情况”的论点。因此，其目的就是针对、威胁和惩罚那些反对疫苗强制措施的抗议者。 而自由车队的和平抗议活动提高了公众对政府实施不合理政策的认知，并不存在任何所谓的“国家紧急情况”。 据悉，尽管美加边境目前已重新开放，渥太华的示威者也已基本散去，但自由党和新民主党仍投票决定将[紧急状态法]延长30天。并授权特鲁多政府可以在此期间任意扣押抗议者的资产、取消其保险、甚至逮捕他们。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：青青
-
-新闻链接：[https://tnc.news/2022/02/22/protester-group-takes-trudeau-government-to-court-over-emergencies-act/](https://tnc.news/2022/02/22/protester-group-takes-trudeau-government-to-court-over-emergencies-act/)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

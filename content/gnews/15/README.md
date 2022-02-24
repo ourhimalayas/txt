@@ -2,20 +2,24 @@
 ---
 
 
-## 中国人没有信仰没有人性已经到了令人发指的程度
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2055792/)
+## 中国｜赤化佛教受肯定 班禅十一世两会前表决心：拥护以习为核心的党中央
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2055953/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+**撰文/ 港台前线｜发布日期/ 24/02/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/赤化佛教受肯定-班禪十一世兩會前表決心：擁護以習為核心的黨中央-1.jpg)
+**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
 
-*发布：陶子*
+中共党媒新华社报道，两会前夕，中共中央统战部部长尤权昨天（23日）在北京会见第十一世班禅额尔德尼·确吉杰布。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+尤权向班禅和藏传佛教界人士祝贺藏历水虎新年，并对班禅近年在各方面取得的进步予以肯定，希望他继续深入学习中国共产党百年奋斗的历史经验，爱国爱教、勤于实践，在推进藏传佛教中国化上发挥更大作用，同时严于律己、谦虚谨慎，不辜负党中央的培养、信众的拥护、宗教界的爱戴。
+
+班禅亦向尤权敬献哈达，表示将坚决拥护以中共总书记习近平为核心的党中央，坚持藏传佛教中国化方向，努力在促进藏传佛教与社会主义社会相适应上作出新成绩。
+
+十一世班禅颇受到中共历届领导人的重视与厚待，自1995年起，中共三任总书记江泽民、胡锦涛和习近平都接受过班禅拜见。
+
+根据外界普遍认知，**无论是藏传佛教抑或是其他佛教，佛教的基本教义应该是以践行并弘扬佛祖释迦牟尼佛训为修法核心。**
+
+来源｜[人民日报](http://cpc.people.com.cn/n1/2022/0224/c64094-32358635.html)
 
  
 

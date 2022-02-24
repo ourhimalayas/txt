@@ -2,69 +2,39 @@
 ---
 
 
-## 解释：COVID、HIV、疫苗和疫苗艾滋VAIDS（3/3）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2055603/)
+## 新加坡确诊人数再创新高 医疗系统不堪重负
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2055632/)
 
-上接：[解释：COVID、HIV、疫苗和疫苗艾滋VAIDS（2/3）](https://gnews.org/zh-hant/2055453/)
+作者：纽约香草山教育部 Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-5.png)
+新加坡今天新增2万6032例中共病毒确诊例，再度突破历史记录。卫生部指出，虽然需要输氧治疗及加护病房患者人数不算多，但近来病床需求大增，主要是为了收治患有慢性病的确诊者。
 
-翻译: Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2194.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2167-edited-1.png)thecovidworld.com
+卫生部表示，最近由于对抗原快速检测和开具医疗证明的需求剧增，导致原已面临沉重压力、负担的医疗系统不堪重负。 呼吁雇主勿坚持要求员工出示医疗证明或出示确诊后的康复证明；同时，也呼吁民众只有在紧急情况下，才到医院挂急诊；为保护当地医疗体系，将延长公共卫生防范诊所的服务时间，并在综合检测中心为有症状的确诊者提供远程医疗服务。
 
-HIV发现者和诺贝尔奖获得者卢克·蒙塔尼耶（Luc Montagnier）（本月神秘死亡）：
+据统计，今天新增4起死亡病例，累计956人病故。截至目前，新加坡累计62万2293人确诊。
 
-“有人在蝙蝠病毒上添加了 HIV 序列。”
+参考链接：[新加坡確認26,032例新COVID病例創歷史新高，突破600,000大關](https://sg.news.yahoo.com/record-high-of-over-25000-new-covid-cases-in-singapore-crosses-600000-mark-151432235.html?guccounter=1)
 
-**刺突蛋白对免疫的影响**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
 
-**Sars-Cov-2 ****病毒或 COVID****“****疫苗****”****的刺突蛋白**，**是已知的最具生物活性和潜在破坏性的物质之一**。 众所周知，**它可以穿透血脑屏障、细胞核并影响 DNA 复制**。它具有很强的免疫原性（1）。
+总编：Lakeman文仁
+总编：zhong
+校对/发稿：小野貓（文凱琳）
 
-（注释：是指某抗原或其表位能作用于T细胞、B细胞的抗原识别受体，进而诱导机体产生[体液](https://zh.wikipedia.org/wiki/%25E4%25BD%2593%25E6%25B6%25B2%25E5%2585%258D%25E7%2596%25AB)和/或[细胞介导](https://zh.wikipedia.org/wiki/%25E7%25BB%2586%25E8%2583%259E%25E4%25BB%258B%25E5%25AF%25BC%25E5%2585%258D%25E7%2596%25AB)[免疫应答](https://zh.wikipedia.org/wiki/%25E5%2585%258D%25E7%2596%25AB%25E5%25BA%2594%25E7%25AD%2594)的特性；此抗原则可称为**免疫原**immunogen）
+**更多资讯，更多关注**
 
-1. **刺突蛋白似乎以一种奇怪的方式重新编程免疫系统**：针对 SARS-CoV-2 的 BNT162b2 **mRNA ****疫苗重新编程了适应性和先天免疫反应。**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-2. 当穿透细胞核时，自由浮动的刺突蛋白会抑制 DNA 损伤修复：SARS-CoV-2 刺突蛋白会损害 DNA 损伤修复，并抑制 V(D)J 体外重组。这里描述的机制，既可用于形成任何未来疾病的免疫记忆，也可用于预防导致癌症的 DNA 突变。
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-接种疫苗后的免疫系统问题
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-很明显，接种疫苗的人在感染 COVID 后不会产生广泛的自然免疫力，**而是会产生更多的 S 抗体来对抗他们最初接种的刺突蛋白**。
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-VAIDS疫苗获得性（或辅助性）免疫缺陷综合征
-
-我不是第一个注意到这些问题的人，也绝对不是唯一的一个。人们开始用通俗的话来指**接种疫苗的人的免疫问题**，称其为 VAIDS——疫苗获得性（或辅助性）免疫缺陷综合征。到目前为止，该术语是一种口语化的常用语，尚未在任何科学文章中使用。
-
-然而，接种疫苗的人遇到的免疫问题是真实存在的。再感染也是如此情况。
-
-这里有一些头条新闻。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2176.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2179.png)thecovidworld.com
-
-有趣的是，我从COVID-19 阳性红迪网（ /r/COVID19Positive subreddit ）收集了关于 COVID 的故事，其中充满了接种疫苗者中无休止的 COVID 再感染的悲伤故事，有时甚至在一两个月内发生再次感染。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2180.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2182.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2184.png)thecovidworld.com
-
-所有这些报告都非常令人担忧。即使每个 COVID 实例看起来都很轻微，但它们的累积影响可能非常具有破坏性，用轻微是为了避免危言耸听。
-
-因此，虽然 VAIDS 不是一个科学术语，但我们需要开始关注接种疫苗的朋友和亲戚的免疫健康。
-
-评论：疫苗灾难即将爆发！不幸接种了疫苗的人们，需要尽快使用伊维菌素，青蒿素等药物进行排毒，详细药物指南，请在Gettr，GTV上查找。
-
-【完结】
-
-素材链接：【thecovidworld.com】
-
-* * *
-
-审核：文乐
-校对：信心满满
-发布：花羽
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-3.jpeg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-11.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

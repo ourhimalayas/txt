@@ -2,41 +2,32 @@
 ---
 
 
-## 有声|第五巡回法院再审对宗教航空人员的疫苗授权
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2055813/)
+## 【秘翻在线】调查川普总统案的两名纽约检察官辞职
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2055994/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月21日，据当地媒体报道，由美国第五巡回法院的三名法官构成的小组要求下级法官重新审理关于美国联合航空公司强制员工接种中共病毒疫苗的案件。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/7-33.jpg)
-据悉，2021年10月，美国联合航空公司针对其六万七千名员工执行了联邦政府要求的中共病毒疫苗强制接种命令。随后，公司中那些未接种的员工要么已经被辞退，要么则是在宗教豁免下面临着无休止的无薪假期。
+**撰稿：Grace**
 
-为此，该公司申请宗教豁免的18名飞行员向多个地方法院提起了诉讼，要求美联航延迟执行这一不合理的疫苗接种计划。但该诉讼随即遭到地方法院的驳回。
+**校对：Grace**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-23-at-9.37.05-PM.jpeg)图片来源：yourdecommisioningnews
+据《华尔街日报》 2月23日报道，两名对前总统川普及其企业进行调查的曼哈顿地区检察官周三辞职。这使人们对长达一年的刑事调查的未来产生了怀疑。
 
-然而，本月17日，第五巡回法院裁定地方法院针对此案的审判存在错误结论，原告事实上持续因宗教信仰受到了胁迫，且该胁迫本身对原告造成了无法弥补的伤害。因此，第五巡回法院要求下级法院对该案件重新进行审理。
+据报道，在检察官凯里·邓恩（Carey Dunne）和马克·波梅兰茨（Mark Pomerantz）辞职之前，大陪审团在最近几周似乎暂停了听证活动。大陪审团此前曾听取了包括川普总统的长期会计师在内的证人的证词。
 
-该报道还提到，虽然第五巡回法院没有对强制疫苗令做出任何裁定，但此前共和党召开的有关中共病毒疫苗的听证会已经证实，大量的疫苗接种者正在遭受着严重不良反应的侵害。加之中共病毒疫苗开发速度如此之快，以及其缺乏正确医学实验流程的事实，越来越多的美国人已经开始对疫苗安全性持质疑态度。
+曼哈顿地区检察官阿尔文·布拉格(Alvin Bragg)的一位女发言人表示，该办公室对检察官的服务表示感谢。她说，调查正在进行，并拒绝进一步评论。
 
+报道称，曼哈顿地区检察官办公室一直在调查川普总统和他的公司—川普组织是否为了经济利益而误导贷款人、银行和税务机关。川普总统和该公司否认了这些指控，而这些指控也是纽约总检察长莱蒂蒂亚·詹姆斯（Letitia James）领导的一项单独的民事欺诈调查的主题。詹姆斯女士的一位女发言人周三表示，刑事调查 “正在进行中，有一个强大的团队在进行调查”。
 
+据报道，川普总统多次声称，这两名检察官都是民主党人，他们的调查是出于政治动机。
 
-文字版原文：[第五巡回法院再审对宗教航空人员的疫苗授权](https://gnews.org/zh-hans/2053061/)
+报道称，刑事调查还审查了川普组织及其高管是否通过向公司员工提供账外付款和汽车、公寓等福利来进行税务欺诈。这一调查导致去年夏天对川普组织和该公司的长期财务主管艾伦·韦塞尔伯格(Allen Weisselberg)提出起诉。被告人不认罪，并寻求撤消指控。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+一名州法院法官表示，该案可能会在今年8月底或9月进行审判。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+报道称，调查始于布拉格先生（Mr. Bragg）的前任小塞勒斯·万斯（Cyrus Vance Jr.），他开始调查2016年支付给前成人电影明星斯托米·丹尼尔斯(Stormy Daniels)的13万美元，以及川普组织如何核算这笔款项。2019年，万斯传唤了财务记录，包括川普总统的会计师事务所玛泽美国会计师事务所的八年纳税申报单。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+据报道，川普总统曾经尝试在一直到最高法院的诉讼中阻止这一传票。但高等法院在2020年7月驳回了川普总统对州级大陪审团调查的豁免权要求，并在去年驳回了川普总统阻止检察官获得财务文件的另一个要求。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**新闻来源：****[Two Prosecutors in New York Investigation of Donald Trump Resign](https://www.wsj.com/articles/two-prosecutors-in-new-york-investigation-of-donald-trump-resign-11645650257?mod=djemalertNEWS)**
 
  
 

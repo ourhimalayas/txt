@@ -2,32 +2,36 @@
 ---
 
 
-## 【秘翻在线】调查川普总统案的两名纽约检察官辞职
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2055994/)
+## 有声| 灭共后，新中国联邦当在全国普及《圣经》教育
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2056088/)
 
-**撰稿：Grace**
+配音：香草山福音部 – Daxia
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-23-at-9.37.05-PM.jpeg)图片来源：yourdecommisioningnews
-据《华尔街日报》 2月23日报道，两名对前总统川普及其企业进行调查的曼哈顿地区检察官周三辞职。这使人们对长达一年的刑事调查的未来产生了怀疑。
+当今世界共产极权资本,控制全球90%以上的媒体和社交平台，从而使中共谎言欺骗充满全球，让全球多数人误信了中共病毒及毒疫苗的超限,误导宣传并注射了中共病毒疫苗，人们之间的互害模式到了登峰造极的地步，其根本原因是美国及西方发达国家,被无神论的共产国际全方位暗中破坏人民的信仰近百年，使人民越来越远离基督教和天主教及对上帝的信仰。近一个世纪以来,放纵中共作恶壮大，致使中共步入了灭美灭白灭人类的边缘。
 
-据报道，在检察官凯里·邓恩（Carey Dunne）和马克·波梅兰茨（Mark Pomerantz）辞职之前，大陪审团在最近几周似乎暂停了听证活动。大陪审团此前曾听取了包括川普总统的长期会计师在内的证人的证词。
 
-曼哈顿地区检察官阿尔文·布拉格(Alvin Bragg)的一位女发言人表示，该办公室对检察官的服务表示感谢。她说，调查正在进行，并拒绝进一步评论。
 
-报道称，曼哈顿地区检察官办公室一直在调查川普总统和他的公司—川普组织是否为了经济利益而误导贷款人、银行和税务机关。川普总统和该公司否认了这些指控，而这些指控也是纽约总检察长莱蒂蒂亚·詹姆斯（Letitia James）领导的一项单独的民事欺诈调查的主题。詹姆斯女士的一位女发言人周三表示，刑事调查 “正在进行中，有一个强大的团队在进行调查”。
+文字版原文：**[灭共后，新中国联邦当在全国普及《圣经》教育](https://gnews.org/zh-hans/2048517/)**
 
-据报道，川普总统多次声称，这两名检察官都是民主党人，他们的调查是出于政治动机。
 
-报道称，刑事调查还审查了川普组织及其高管是否通过向公司员工提供账外付款和汽车、公寓等福利来进行税务欺诈。这一调查导致去年夏天对川普组织和该公司的长期财务主管艾伦·韦塞尔伯格(Allen Weisselberg)提出起诉。被告人不认罪，并寻求撤消指控。
 
-一名州法院法官表示，该案可能会在今年8月底或9月进行审判。
+发稿：雪梨
 
-报道称，调查始于布拉格先生（Mr. Bragg）的前任小塞勒斯·万斯（Cyrus Vance Jr.），他开始调查2016年支付给前成人电影明星斯托米·丹尼尔斯(Stormy Daniels)的13万美元，以及川普组织如何核算这笔款项。2019年，万斯传唤了财务记录，包括川普总统的会计师事务所玛泽美国会计师事务所的八年纳税申报单。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
 
-据报道，川普总统曾经尝试在一直到最高法院的诉讼中阻止这一传票。但高等法院在2020年7月驳回了川普总统对州级大陪审团调查的豁免权要求，并在去年驳回了川普总统阻止检察官获得财务文件的另一个要求。
+**更多资讯，更多关注**
 
-**新闻来源：****[Two Prosecutors in New York Investigation of Donald Trump Resign](https://www.wsj.com/articles/two-prosecutors-in-new-york-investigation-of-donald-trump-resign-11645650257?mod=djemalertNEWS)**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
