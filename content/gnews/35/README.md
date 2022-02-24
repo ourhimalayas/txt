@@ -2,20 +2,40 @@
 ---
 
 
-## 加国政治记者将加拿大比作中共国
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2059444/)
+## 美国房价在12月份重新加速
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2060133/)
 
-**编译：verifunny**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-24-233103.jpg)
-一位加拿大保守派记者以斯“·“`拉黎凡特（Ezra Levant）强烈抨击加拿大政府以强腕的政策和粗暴的行为来对待卡车车队与示威者。加拿大的做法和中共的社会信用体系有很多相像点，比如： 在渥太华市中心设立了许多警察检查站， 人们出示身份证明，否则将面临逮捕。以斯指出，他所在的媒体的一名记者据称在近距离内被人用胡椒罐射击，然后胡椒罐破裂，烧伤了他的脸和眼睛。他警告说，”社会信用 “的威胁对那些不受欢迎的信仰更大。
+据《Zerohedge》记者：Taylor Durden, 2022年2月22日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2274-e1645727695206.png)图片来源：Forbes
+在美国最大的20个城市的房价涨幅连续4个月减速之后，12月份价格再次加速上涨（来自S&P CoreLogic的最新数据），同比上涨了惊人的18.56%（令人惊讶地高于11月和12月的18.35%，远高于预期的18.00%）……
 
-他随后指责加拿大总理贾斯汀· 特鲁多为了扼杀异议，完全没有延长紧急状态下的权力。他继续阐述了这种权力的危险性。”他说：”警方实际上是告诉银行要冻结哪些账户，他们就这么做。”
+全国房价指数同比上涨18.84%，高于11月的18.69%。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2275.png)
+在接受调查的20个城市中，凤凰城、坦帕和迈阿密的同比增幅最高。
 
-“所以这意味着，如果有人仅仅被指控支持卡车司机，也许你给他们的众筹基金捐了50美元，[或者]也许你有一天在他们的卡车旁边走过，你的整个家庭银行账户都被冻结了，”他说。”因此，不仅是你，还有你的妻子和孩子，都无法得到买菜、租房或加油的钱，而且没有法律上诉的全力。】
+标普道琼斯指数董事总经理克雷格·J·拉扎拉(Craig J. Lazzara) 在声明中说： “我们注意到，过去几个月来，房价一直在以非常高的速度上涨，但正在减速。”
 
-以斯指出这有中共文革批斗的感觉，他还警告说，这样的惩戒措施系统与中共国相同，美国人可能会发现自己迟早也面临同样的情况。
+“减速在12月停止，因为所有三个综合指数的同比变化都略高于11月的水平。12月全国综合指数上涨18.8%，是历史上第五高的读数。”
 
-**新闻来源**： https://www.breitbart.com/politics/2022/02/23/canadian-reporter-ezra-levant-compares-canada-to-communist-china-warns-america-may-be-next/
+但是，我们注意到这是在1月份抵押贷款利率真正开始起飞之前（这是在利率变动之前加速购买吗？）……
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2276.png)
+……这表明价格将更快地放缓涨幅（这与购房者和建筑商情绪的低迷相吻合）。不要指望美联储会拯救这个……
+
+文章来源：[https://www.zerohedge.com/personal-finance/us-home-prices-re-accelerated-december-ahead-mortgage-rate-surge](https://www.zerohedge.com/personal-finance/us-home-prices-re-accelerated-december-ahead-mortgage-rate-surge)
+
+翻译：洛杉矶盘古农场 – Raul
+
+校对：洛杉矶盘古农场 – 轰炸机
+
+编辑：洛杉矶盘古农场 – WenXiong
+
+发布：洛杉矶盘古农场 – 子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

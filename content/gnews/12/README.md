@@ -2,20 +2,12 @@
 ---
 
 
-## 俄罗斯悍然入侵乌克兰台湾危在旦夕
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2060586/)
+## 2月24日勿忘香港（图片5-8）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2060642/)
 
-加拿大温哥华扬帆农场    平民正道
-
-据2月24日盖特消息，文贵先生最新发布的盖特视频显示出，俄罗斯军队大量的战斗机和轰炸机以及坦克装甲车当天长驱直入，悍然进犯乌克兰领空和领土。低飞呼啸而过城市上空的俄军战机清晰可见。
-
-对此，文贵先生紧急呐喊警告道：战魔再次打烂世界！这样残酷的战争很快会在台湾发生！希望所有在台湾的战友们和朋友们能以最快的速度撤离！任何台湾的战友都应该受到[新中国联邦]全球农场和战友们的全力协助和支援。
-
-至此，在俄罗斯公然入侵乌克兰之后，台海之战将一触即发，中共党卫军将迅速攻占涌入台湾，人道主义灾难正迫在眉睫，消灭中共政权已刻不容缓。具体详细情况，我们将静待文贵先生的进一步警示。
-
-* * *
-
-编辑： 平民正道    发布：平民正道
+设计 五月花农场 企鹅
+![](https://assets.gnews.org/wp-content/uploads/2022/02/BA3EB169-5785-4C87-817C-1F4C83CCA972.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/CF1E6D0B-6DCF-4C44-9A9D-EFC5C1232101.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/41DB38E9-3A62-4821-A1CC-0343F01DB918.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/9F643969-507F-4ADB-8CB2-7831AB34156B.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/D6A5338D-2B3F-4907-9911-297BBAED02A7.jpeg)
+发布：水涨船高
 
  
 

@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/24/2022 10:51 PM (UTC)`
+
+2/23/2022 Miles Guo: The CCP's technology innovations are all fake and copied from the West. Huawei's 5G technology is completely a sham. The CCP is not only making and releasing the COVID virus, but also developing the COVID vaccine and drugs to treat its side effects. Xi Jinping is attempting to engage in a post-vaccine economy, which will result in numerous vaccine factories appearing in Communist China.<br/><br/>2/23/2022 文贵直播：中共科技发明造假、全是抄袭，华为5G都是忽悠人的；中共既制毒、放毒，又搞疫苗和治副作用的药；习太阳妄图大搞疫苗后经济，疫苗厂会如雨后春笋般出现在中共国<br/>
+![img](https://media.gettr.com/group35/getter/2022/02/24/22/3c0ff9f2-e1e1-a0e4-6cb7-b2bc87c78b5f/out.jpg)
+
+---
+
+`@miles 2/24/2022 10:45 PM (UTC)`
+
+2/24/2022 Miles Guo’s GETTR: Ukraine is shrouded in darkness. All wars serve the interests of only a handful of people, while the innocent people would end up as victims. The war in Ukraine has become the justification for the collapse of the global economy, and the ups and downs in the financial market are bound to destroy countless families.<br/><br/>2/24/2022 文贵盖特：乌克兰阴云密布，所有战争都服务于极少数人的利益，而无辜的人们却沦为牺牲品；乌克兰战争竟成为了全球经济崩溃的理由，金融市场的震荡会让多少人家破人亡？<br/>
+![img](https://media.gettr.com/group44/getter/2022/02/24/22/aef22370-569a-3f7a-d3ff-056212edaac7/out.jpg)
+
+---
+
 `@miles 2/24/2022 10:11 PM (UTC)`
 
 🆘🆘🆘为了集合全球战友资源救助台湾战友，联盟发放统一登记表格，请有可能提供救助资源的战友填写，表格链接：<br/><br/>https://forms.gle/pgVrayLJKqS7NMsN8<br/><br/><br/>联盟-身在台湾的战友撤离统计表单：<br/><br/>https://docs.google.com/forms/d/e/1FAIpQLScjccjoDUB3u-OhC-zeZDvvtiHqxXo1z4h6Ls_LkxxtLZEYJw/viewform
@@ -142,20 +156,6 @@ EP11: The Heroes. Let's tear down the monstrous lies of this despicable #HBO #VI
 
 2月23日：应战友们的要求……发几张今天的照片……🙏🙏🙏🙏🙏🙏🙏🙏🙏
 ![img](https://media.gettr.com/group3/getter/2022/02/23/17/c9e3e3a0-621e-effe-1b0c-a117a27a1c48/a0d5dd537dde035947b059f366165829.jpg)
-
----
-
-`@miles 2/23/2022 1:00 PM (UTC)`
-
-2022年2月23日 文贵大直播：普京群狼战术夺乌克兰；解封 英 澳 法 日 集体免疫；锁链女引人权安全恐慌；七哥何以掌握世界大事
-![img](https://media.gettr.com/group26/origin/2022/02/23/12/89d5992c-9c7f-6925-e10b-acc8e5c805fe/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 2/22/2022 11:44 PM (UTC)`
-
-2月22号：这美女美乐美滋滋的人生……棒极了👏👏👏👏👏来来来……来来来来！
-![img](https://media.gettr.com/group42/getter/2022/02/22/23/8b56ec2b-0dae-4506-337d-8107b4ad120a/out.jpg)
 
 ---
 
