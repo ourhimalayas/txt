@@ -2,20 +2,48 @@
 ---
 
 
-## 秘翻在线:人民银行要求实体银行必须办理现金业务
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2054661/)
+## 中共下令对所有香港居民进行强制性中共病毒测试
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2055010/)
 
-撰稿：西枫westca
+作者：纽约香草山农场 – 四季
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-14.jpg)图片来源：网络照片
-据人民网2月22日报道，人民银行、银保监会要求，凡设有实体网点的商业银行、农信社等机构必须办理人民币存取业务。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-近期银行金融机构在现金服务方面意愿下降，部分网点如北京中关村银行、辽宁振兴银行等已宣布停止办理人民币现金业务，此外有些农信社、外资银行网点、个别大行网点也停办现金存取业务。2021年第4季度人民银行还对32家拒收现金单位进行过经济处罚。因此此次金融机构人民币现金服务工作座谈会要求，人民币现金是国家法定货币，现金服务是最基础的金融服务，要认识到人民币现金服务的重要性，不断提升现金服务能力和水平。
 
-当天，中共央行发出公告，央行存取5万说明来源用途的规定因技术问题暂缓实施。 此规定如果实施，对中共国的经济将是一场灾难。
 
-**新闻来源：**[两部门：设有实体网点的商业银行必须办理现金存取业务–经济·科技–人民网 (people.com.cn)](http://finance.people.com.cn/n1/2022/0222/c1004-32357197.html)
+
+
+据[网管专家](https://www.thegatewaypundit.com/2022/02/china-strengthens-hold-hong-kong-ordering-compulsory-covid-tests-citizens/)2月22日报道，周二，香港行政长官林郑月娥下令所有香港居民在下个月进行强制性中共病毒测试。香港将设立数百个检测站，检测顺序将根据出生年份决定。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Hong-Kong-1.jpg)[图片来源](https://www.thegatewaypundit.com/2022/02/china-strengthens-hold-hong-kong-ordering-compulsory-covid-tests-citizens/)
+
+所有香港居民都必须接受强制性的Covid-19测试，并将进行三轮测试。全港每天将进行多达100万次测试，而测试结果将被转发到中共国。这表明，中共可能会将香港居民加入到他们迄今为止收集的DNA的报告清单中。
+
+疫情期间，严苛的强制措施和对商业活动的遏制已经让香港恢复正常的可能性越来越小，香港的繁荣将不复存在。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2月.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 

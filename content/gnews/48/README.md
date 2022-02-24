@@ -2,36 +2,27 @@
 ---
 
 
-## 普京出兵乌克兰东部引发世界经济动荡
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2053271/)
+## 魔鬼契约：用少数人制造的资产泡沫“财富”来代替普遍的繁荣
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2053423/)
 
-作者：纽约香草山农场 – Noemi
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月21日，据相关媒体消息显示，俄罗斯总统普京于此前一天承认了乌克兰东部的两个分离地区已经独立，随后，其立即下令俄罗斯国防部向它们派遣了所谓的“维和”部队。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/10-18.jpg)
-有目击者表示，俄罗斯的坦克等军事装备目前已经穿过了分离主义控制的城市——顿涅茨克。同时，普京的这些举动加剧了西方对于乌俄之间发生重大战争的担心。
+**编译：verifunny**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/48626238_15523202001797_rId8.jpg)图片来源：Seeking Alpha
+查尔斯·休·史密斯是美国一名经济社会专栏作家，他最近发表了一篇关于如何看待美国政府如何对待即将破灭的信贷泡沫的问题。以下是他的主要观点：
 
-另一方面，随着乌克兰军事危机的升级，世界经济也正在经历着巨大的动荡。据悉，全球的石油价格眼下已经跃升至七年以来的最高水平；而日元等避险货币则出现大幅反弹；此外，美、欧地区的股票和期货近期持续暴跌。数据表明，在普京发表讲话时，卢布的跌幅一度超过17%，滑落至每美元可兑换80卢布有余。
+当下美国的股票、债券和房地产前所未有的信贷泡沫正在破灭，美国的腐败领导人只能结结巴巴地找各种借口并作出空头承诺来应对这一切。
 
-此前 ，郭文贵先生曾在盖特中评论称，无论俄乌局势怎样变化，俄、美、欧三方最终会达成合作协议。但在这场军事危机的背后，经济损失最惨重的一定会是中共国和全球所有的普通民众。
+大多数人不知道的是，美国的领导层与魔鬼达成了一项协议：这些领导人不是直接面对经济金融体系的限制和不公正，对那些金融政治精英做出一些牺牲的清算，而是选择了魔鬼契约：用少数人手中创造的资产泡沫“财富”来代替普遍的繁荣。
 
-参考链接：
-1) .[Putin orders troops to Ukraine after recognizing breakaway regions](https://www.reuters.com/markets/europe/kremlin-says-no-concrete-plans-summit-with-biden-over-ukraine-2022-02-21/)
-2) . [2/21/2022 文贵盖特：中共体制内官员也知中共大势已去；俄美总统要会面，普京是否会弃习投美欧？](https://www.gettr.com/post/pw07zs2799)
+魔鬼的承诺：赋予少数人的数万亿美元中的一小部分会神奇地流向多数人。这显然与地球上永生的承诺一样愚蠢，但懦弱、贪婪的领导层迅速与魔鬼达成了交易，并迅速膨胀了人类历史上最大的信贷资产泡沫。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+美国的领导人交易了国家未来的安全和稳定。通过拒绝处理2008-2009年金融骗局所暴露的真正问题，政治家们，包括未经选举的美联储和选举产生的 “金钱可以买到的最好的美国政府，选择救助那些曾慷慨地给他们的手掌抹油的骗子，为此牺牲了许多普通人的繁荣。这或多或少相当于在众神祭坛上牺牲无辜民众，以确保领导人的统治继续成功。
 
-总编: Irene木木
-编辑: 飞虹
-校正/发稿：Fei797
+这一切如何结束？当然是毁灭。懦弱、自私自利的领导很可能会咩咩叫，“是魔鬼让我们这么做的！”但事实并非如此：他们为了快速解决泡沫和腐败的财富而出卖国家未来的稳定和安全。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**文章来源：** [http://charleshughsmith.blogspot.com/2022/02/our-leaders-made-pact-with-devil-and.html](https://charleshughsmith.blogspot.com/2022/02/our-leaders-made-pact-with-devil-and.html)
+
+**作者履历：** [https://www.oftwominds.com/bio11-17.html](https://www.oftwominds.com/bio11-17.html)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
