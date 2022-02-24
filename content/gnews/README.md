@@ -15,50 +15,50 @@
 
 ---
 
-### [因为老天与我们站在一起，否则世界不会出现七哥这种人](/content/gnews/1/README.md)
+### [七哥老家行情:女学生3000,结扎或不能生的500至1000](/content/gnews/1/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [七哥七嫂当年在圆山饭店总统套房亲历蒋介石宋美龄显灵](/content/gnews/2/README.md)
+### [因为老天与我们站在一起，否则世界不会出现七哥这种人](/content/gnews/2/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [大直播后记：各国背后的政治较量](/content/gnews/3/README.md)
+### [七哥七嫂当年在圆山饭店总统套房亲历蒋介石宋美龄显灵](/content/gnews/3/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [大直播后记：各国背后的政治较量](/content/gnews/4/README.md)
  ` 雅典娜GNotes`
 
-### [八九六四的痛苦记忆让七哥最欢愉时阳痿并一直痛到现在](/content/gnews/4/README.md)
+### [八九六四的痛苦记忆让七哥最欢愉时阳痿并一直痛到现在](/content/gnews/5/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [委内瑞拉和古巴表明支持俄罗斯](/content/gnews/5/README.md)
+### [委内瑞拉和古巴表明支持俄罗斯](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [七哥第三次ED:在梅地亚与最火港星因八九六四共鸣未果](/content/gnews/6/README.md)
+### [七哥第三次ED:在梅地亚与最火港星因八九六四共鸣未果](/content/gnews/7/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [新中国联邦将在今年底迎来各项重大利好](/content/gnews/7/README.md)
+### [新中国联邦将在今年底迎来各项重大利好](/content/gnews/8/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [樱花灭共诗——江山锁（新韵）](/content/gnews/8/README.md)
+### [樱花灭共诗——江山锁（新韵）](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [七哥第二次ED:与丽高影视签约最火女明星裸身相向未果](/content/gnews/9/README.md)
+### [七哥第二次ED:与丽高影视签约最火女明星裸身相向未果](/content/gnews/10/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [对话](/content/gnews/10/README.md)
+### [对话](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [七哥第一次ED:救走给七哥唱塞北的雪并以身相许的女孩](/content/gnews/11/README.md)
+### [七哥第一次ED:救走给七哥唱塞北的雪并以身相许的女孩](/content/gnews/12/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [七哥主笔侵占台湾大一统&amp;它毁香港圣城唱给香港和台湾](/content/gnews/12/README.md)
+### [七哥主笔侵占台湾大一统&amp;它毁香港圣城唱给香港和台湾](/content/gnews/13/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [中日财经爆| 不惧中共小粉红抵制 Hybe去年获利益大增31％](/content/gnews/13/README.md)
+### [中日财经爆| 不惧中共小粉红抵制 Hybe去年获利益大增31％](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆|香港确诊再创新高 港共发消费券或增感染风险](/content/gnews/14/README.md)
+### [中日财经爆|香港确诊再创新高 港共发消费券或增感染风险](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [以歌灭共要唱尽共产党所有流行的歌，让共产党无歌可唱](/content/gnews/15/README.md)
- ` 喜马拉雅日本银河系农场`
 
 ### [澳大利亚计划在南极洲投资制约中共](/content/gnews/16/README.md)
  ` NFSC News`
@@ -69,11 +69,11 @@
 ### [战斗室指责政府用权力和控制来掩盖错误](/content/gnews/18/README.md)
  ` NFSC News`
 
-### [俄罗斯关闭乌克兰边境领空 乌克兰宣布进入紧急状态](/content/gnews/19/README.md)
- ` 蓝莲花农场`
-
-### [突发｜战争爆发？普京授权出动轰炸机 乌克兰首都传出爆炸声 （持续更新）](/content/gnews/20/README.md)
+### [突发｜战争爆发？普京授权出动轰炸机 乌克兰首都传出爆炸声 （持续更新）](/content/gnews/19/README.md)
  ` 關注組`
+
+### [声援李莹之后的遭遇](/content/gnews/20/README.md)
+ ` 首尔天池农场`
 
 ### [秘翻在线：【速报】俄国媒体坐实普京下令发动战争](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
