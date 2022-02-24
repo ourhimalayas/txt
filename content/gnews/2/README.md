@@ -2,31 +2,34 @@
 ---
 
 
-## 今日盖特大V推荐 — 彼得·麦卡洛 (Peter McCullough）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2060154/)
+## 为应对人民车队 五角大楼在DC部署国民警卫队
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2060185/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/awo92-1vxx7.jpg)
-**盖特链接：**[https://gettr.com/user/P\_McCulloughMD](https://gettr.com/user/P_McCulloughMD)
+翻译：**Lulumi**
 
-**图片来源：网络**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1ak1-2.jpg)
-**彼得·麦卡洛简介：**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unknown-1-27.png)图片来源：mediaite.com
 
-彼得·安德鲁·麦卡洛(生于1962 年12月29日) 是美国心脏病专家。 他曾任贝勒大学医学中心(Baylor University Medical Center)内科副主任和德州农工大学(Texas A&M University)教授。
+国防部正在考虑部署华盛顿特区国民警卫队，以应对国家首都可能发生的与加拿大类似的卡车司机抗议活动。
 
-麦卡洛是美国心肾学会的创始人和现任主席，也是该学会期刊心肾医学的联合主编。
+五角大楼发言人约翰·柯比在周二对媒体发表的声明中说：“国防部正在分析美国国会大厦警察和华盛顿特区国土安全和应急管理机构的援助请求。”
 
-自新冠疫情以来，麦卡洛积极宣传有关病毒和疫苗的真相，提倡包括羟氯喹在内的早期治疗，反对疫苗和强制疫苗，这些被主流媒体说成是错误信息，他也受到贝勒医学中心打压，不得不离开。
+他说：“这些机构要求国民警卫队人员在该区及其周围的交通控制点提供支持，以帮助美国国会警察局和华盛顿特区政府应对关键交通干线可能出现的中断所带来的潜在挑战。”
 
-编撰：洛杉矶盘古农场 —郭友(文苏)
-校审：洛杉矶盘古农场 — 心照
-发布：洛杉矶盘古农场 —彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+据《军事时报》报道，该报首先报道了特区国土安全和紧急事务管理局对特区国民警卫队的请求。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+根据《军事时报》获得的内部指令， DC特区国民警卫队在2月22日至3月7日或更晚的时间里被通知可能被启动。根据DC特区国民警卫队陆地部分指挥部负责人罗伯特·K·瑞恩准将周五发布的消息，DC特区国民警卫队将在“43个关键封锁位置全天候提供车辆和人员”。
 
+部署DC国民警卫队的可能性是在卡车司机车队封锁加拿大道路以抗议该国中共冠状病毒规定（包括其疫苗规定）之后，卡车司机计划来到国家首都抗议。据报道，渥太华的卡车司机车队后来被清除了。
 
+**参考资料：**[mediaite][Pentagon ‘Analyzing’ Deploying DC National Guard Ahead of ‘Possible Disruptions’ by Truckers](https://www.mediaite.com/news/pentagon-analyzing-deploying-dc-national-guard-ahead-of-possible-disruptions-by-truckers/)
+
+* * *
+
+*审核：文乐
+校对：信心满满
+发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-4.jpeg)
 
  
 

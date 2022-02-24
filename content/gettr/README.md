@@ -17,6 +17,21 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/24/2022 7:22 PM (UTC)`
+
+2月24日：这世界就是如此的残酷无情……［女儿，爸爸要去战斗了］😭😭😭😭😭😭😭
+![img](https://media.gettr.com/group50/getter/2022/02/24/19/b390cf4e-924e-5881-93cd-f9097c495ea2/out.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@globalalliance 2/24/2022 6:08 PM (UTC)`
+
+为了集合全球战友资源救助台湾战友，联盟发放统一登记表格，请有可能提供救助资源的战友填写，请各农场转发，表格链接：https://forms.gle/pgVrayLJKqS7NMsN8
+
+---
+
 `@miles 2/24/2022 4:33 PM (UTC)`
 
 2/23/2022 Miles Guo: The judge went back to his hometown to deal with the women trafficking cases, but the local people offered him several kidnapped women. I will cry whenever I sing the song "The Nightmare in Chains". What the chained woman wants to say the most is "the world has abandoned me". The CCP sent people to Xuzhou to investigate and arrest anyone who is not local, but they couldn’t even find out about the identity of the chained woman. Only the CCP government is so cruel to its own people.<br/><br/>2/23/2022 文贵直播：法官回老家解决绑架女的问题反被当地人送上绑架女；文贵这首《锁链梦》唱一个字都想哭，“这个世界不要我”是锁链女最想说的话；中共派人到徐州查、抓外地人，而锁链女的身份却查不着，只有中共政府才对老百姓这么残忍！<br/>
@@ -142,19 +157,6 @@ EP11: The Heroes. Let's tear down the monstrous lies of this despicable #HBO #VI
 
 2月22号：这美女美乐美滋滋的人生……棒极了👏👏👏👏👏来来来……来来来来！
 ![img](https://media.gettr.com/group42/getter/2022/02/22/23/8b56ec2b-0dae-4506-337d-8107b4ad120a/out.jpg)
-
----
-
-`@miles 2/22/2022 10:09 PM (UTC)`
-
-2月20号这一刻即将到来……［川普刚刚进行了预测，在俄罗斯和乌克兰发生“灾难”后，中共“绝对”会谋求台湾<br/>川普形容中共的习近平、俄罗斯的普京是“孪生姐妹”。<br/>https://www.foxnews.com/politics/trump-china-taiwan-russia-ukraine］
-
----
-
-`@miles 2/22/2022 8:49 PM (UTC)`
-
-2月22日：共产党，这一群流氓开始自我毁灭……［徐州“铁链女”（八孩母）的悲惨遭遇引起全网关注。江苏成立调查组后开始删帖抓人。但网民表示：“堵不住的悠悠众口，压不下的词条热搜。”截至22日，八孩女的微博话题阅读量已高达48.8亿次。］冬奥会能结束吗？永远结束不了，直到共产党彻底被消灭为止……
-![img](https://media.gettr.com/group7/getter/2022/02/22/20/b5066022-1745-a249-a069-256d0dfc7d5c/out.jpg)
 
 ---
 
