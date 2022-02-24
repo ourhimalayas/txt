@@ -2,29 +2,22 @@
 ---
 
 
-## 今日盖特大V推荐 — 弗林将军（General Flynn）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2055389/)
+## 加拿大律师团敦促议会取消紧急状态法
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2055466/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/jkpk1.jpg)
-**盖特链接：**[https://gettr.com/user/realgenflynn](https://gettr.com/user/realgenflynn)
+加拿大温哥华扬帆农场    平民正道
 
-**弗林将军自述：**
+据【多伦多太阳报】2月21日报道，加拿大多名大律师近日联名致信给国会议员，反对特鲁多政府擅用《紧急状态法》来处理全国性和平抗议活动，并呼吁议会立即投票取消该法案的实施。
 
-**在此处与我的所有平台连接**：[https://linktr.ee/genflynn](https://linktr.ee/genflynn)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/lak1.jpg)**图片来源：网络**
-**弗林将军简介：**
+律师团在信中指出，实施《紧急状态法》的标准非常严格，联邦政府必须在国家安全明确遭受威胁的突发情况下，才能宣布公共秩序进入紧急状态。并将因此对加拿大公民自由形成重大挑战。
 
-弗林将军，全名迈克尔·托马斯·弗林（Michael Thomas Flynn，1958 年 12 月 24 日出生）是一位退役军人，前美国陆军中将，曾任川普时期的国家安全顾问。奥巴马时期的美国国防情报局局长。
+目前，特鲁多已根据《紧急状态法》发布命令，要求金融机构向警方报告那些支持或参与抗议活动者的个人财务信息，并对违法者处以罚款和最高五年的监禁。
 
-弗林将军的军事生涯包括在制定美国反恐战略和摧毁阿富汗和伊拉克战争中的叛乱网络方面发挥了关键作用。
+律师函还强调，当局试图通过强推[紧急状态法]来证明其对民众的和平抗议活动，以及那些反独裁政府的抗议者所采取的暴力镇压方式是正当合法的。而这无疑是对加拿大民主制度最致命的打击。
 
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 — 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+* * *
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+编辑： 平民正道    发布：平民正道
 
  
 

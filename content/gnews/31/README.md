@@ -2,32 +2,48 @@
 ---
 
 
-## 西班牙人增强型疫苗的信心在一个月内下降了16个百分点
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2054689/)
+## 中共下令对所有香港居民进行强制性中共病毒测试
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2055010/)
 
-编译：七龙珠
+作者：纽约香草山农场 – 四季
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/fe4bfd76e270e34c27bef87d7556635cc4e41a69d335492ec60dd73946525024.jpg)图片来源：Marian Vejcik/Public Domain Mark 1.0
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-超过16.2%的西班牙人不赞成接受这种“强化”剂量，与2022年一月相比，仅仅一个月的时间，民众接种强化剂量或第三剂量Covid-19疫苗的意愿下降了16.1分。这是社会学研究中心（CIS）本周二公布的2月份晴雨表的预先结果，该结果强调68.4%的公众愿意接受这一强化剂量，而去年1月为84.5%。
 
-同样，16.2%的西班牙人说他们不赞成接受这种“强化”的剂量，而8.2%的人对这个问题有疑问。至于他们不接受加强剂量的主要原因，28.3%的人说他们已经接种过疫苗，他们认为这应该是足够的，19.4%的人说是担心这一剂量的健康风险或副作用。8.7%的公众认识到对这种“强化”剂量缺乏保证和信心。
 
-**不接种Covid-19疫苗的原因**
 
-至于不接种任何SARS-CoV-2疫苗的主要原因，26.8%的人不信任这些疫苗，18.3%的人说是因为担心健康风险或副作用。
 
-9.9%的人认为这些疫苗无效，而9.1%的人说他们没有接种疫苗，因为他们曾经得过这种疾病。只有0.7%的人说他们因为过敏、其他疾病或治疗、母乳喂养或怀孕而没有接受这一过程。
+据[网管专家](https://www.thegatewaypundit.com/2022/02/china-strengthens-hold-hong-kong-ordering-compulsory-covid-tests-citizens/)2月22日报道，周二，香港行政长官林郑月娥下令所有香港居民在下个月进行强制性中共病毒测试。香港将设立数百个检测站，检测顺序将根据出生年份决定。
 
-参考资料：[redaccionmedica][CIS: la confianza en las vacunas covid de refuerzo cae 16 puntos en un mes](https://www.redaccionmedica.com/secciones/sanidad-hoy/cis-la-confianza-en-las-vacunas-covid-de-refuerzo-cae-16-puntos-en-un-mes-8457)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Hong-Kong-1.jpg)[图片来源](https://www.thegatewaypundit.com/2022/02/china-strengthens-hold-hong-kong-ordering-compulsory-covid-tests-citizens/)
 
-* * *
+所有香港居民都必须接受强制性的Covid-19测试，并将进行三轮测试。全港每天将进行多达100万次测试，而测试结果将被转发到中共国。这表明，中共可能会将香港居民加入到他们迄今为止收集的DNA的报告清单中。
 
-*审核：Aries的星
-校对：信心满满
-发稿：信心的选择*
+疫情期间，严苛的强制措施和对商业活动的遏制已经让香港恢复正常的可能性越来越小，香港的繁荣将不复存在。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-3.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2月.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 

@@ -2,8 +2,8 @@
 ---
 
 
-## 辨别善恶真假的能力，理智冷静是你生存下去的法宝
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2055486/)
+## Omicron病毒入侵大脑
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2055573/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

@@ -2,48 +2,27 @@
 ---
 
 
-## 中共下令对所有香港居民进行强制性中共病毒测试
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2055010/)
+## 特鲁多镇压自由车队掩盖疫苗真相
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2055182/)
 
-作者：纽约香草山农场 – 四季
+加拿大温哥华扬帆农场：Quitman
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/a-16-edited.png)图片来源：盖特
 
 
+据2月19日盖特消息，当天参加渥太华抗议活动的保罗.亚历山大医生，在现场接受班农作战室的采访时指出，特鲁多政府在制定防疫政策和处理疫情的过程中犯下了不可饶恕的错误。
 
-据[网管专家](https://www.thegatewaypundit.com/2022/02/china-strengthens-hold-hong-kong-ordering-compulsory-covid-tests-citizens/)2月22日报道，周二，香港行政长官林郑月娥下令所有香港居民在下个月进行强制性中共病毒测试。香港将设立数百个检测站，检测顺序将根据出生年份决定。
+该医生表示，大多数政府官僚根本不懂科学，不顾事实。在疫苗已被验证毫无防疫功效，甚至产生严重伤害的情况下，仍然强推疫苗接种和疫苗护照。这也是大卡车司机们基本诉求的根本原因。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Hong-Kong-1.jpg)[图片来源](https://www.thegatewaypundit.com/2022/02/china-strengthens-hold-hong-kong-ordering-compulsory-covid-tests-citizens/)
+对此，保罗医生称：42项研究表明疫苗已经失败，而特鲁多政府内部 早已知道这一事实，只是他们不想放弃手中的权力。因为一旦停止强制令，当局将面临大量的法律诉讼和追责。
 
-所有香港居民都必须接受强制性的Covid-19测试，并将进行三轮测试。全港每天将进行多达100万次测试，而测试结果将被转发到中共国。这表明，中共可能会将香港居民加入到他们迄今为止收集的DNA的报告清单中。
+同时，许多律师正在准备将相关的政府官员和公共卫生负责人告上法庭。并认为政府在这两年内一错再错，不仅不思悔改，甚至利用警察镇压和平抗议者，明目张胆地侵犯宪法赋予人民的权利。
 
-疫情期间，严苛的强制措施和对商业活动的遏制已经让香港恢复正常的可能性越来越小，香港的繁荣将不复存在。
+原文链接：[https://gettr.com/post/pw0dsnb0f1](https://gettr.com/post/pw0dsnb0f1)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2月.jpg)
+* * *
 
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+撰稿：Quitman 校对编辑，发稿：硫酸羟氯喹64
 
  
 

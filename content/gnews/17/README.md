@@ -2,27 +2,20 @@
 ---
 
 
-## 今日盖特大V推荐 — 参议院共和党人（Senate Republicans）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2055339/)
+## 不惧镇压自由抗议运动在加拿大爆发
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2055428/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/a5b9g-hc305.jpg)
-盖特链接：[https://gettr.com/user/senategop](https://gettr.com/user/senategop)
+加拿大温哥华扬帆农场    平民正道
 
-**参议院共和党人自述：**
+据加拿大媒体【后千禧年】2月20日报道，在特鲁多政府暴力镇压渥太华长达数周的自由车队反疫苗护照运动后，支持卡车司机的浪潮在加拿大蔓延开来。无数市民走上卡尔加里和多伦多的街头，反对当局的各项强制性防疫措施。
 
-来自美国参议院共和党人及其工作人员的新闻和最新消息。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1ak1-1.jpg)**图片来源：网络**
-**参议院共和党人简介：**
+报道称，特鲁多恣意妄为地打压和平集会之举触犯众怒。卡尔加里和多伦多等城市反政府疫苗政策的抗议者们日前冒着严寒走上街头，这些热爱和平和自由的民众继续抗争以支持在渥太华正被警察摧残的自由车队。
 
-“参议院共和党人”是美国参议院共和党人的集体盖特号，加入时间为2021年7月。用于发布国际及美国重大新闻及观点，以及参议院共和党人的新闻和最新消息。
+此外，在美加边境地区也发生了相同的抗议活动。而最新民调显示，大多数美国人都支持加拿大自由车队，并认为有必要也在美国开展类似的运动。
 
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 — 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+* * *
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+编辑： 平民正道    发布：平民正道
 
  
 
