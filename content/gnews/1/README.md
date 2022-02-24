@@ -2,24 +2,90 @@
 ---
 
 
-## 中共病毒疫苗接种剂次超31亿
-` 儒为` [轉載自GNews](https://gnews.org/zh-hans/2057717/)
+## 防火墙是中国人精神里的墙
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2057752/)
 
-作者：意大利罗马达芬奇农场-儒为
-![](https://assets.gnews.org/wp-content/uploads/2022/02/31亿剂.jpeg)封面来源：网络图片
-新华社微博2022年2月24日报道，中共国家卫健委通报，全国新冠疫苗接种剂次超31亿。近日，新冠疫苗序贯加强免疫接种启动。研究数据表明，同源加强免疫和序贯加强免疫，都能够进一步提高免疫效果。专家呼吁满足接种条件的人群主动接种、及早接种。
+[https://gtv.org/video/id=6215ee151408ee3a03a3b272](https://gtv.org/video/id=6215ee151408ee3a03a3b272)
 
-中共国疫苗接种剂次超31亿，这是个触目惊心的数字，但既讽刺又幸运的是，七哥在直播中说，其中仅一个认识的国人就做了6亿多的假疫苗，那么不知道的假疫苗又有多少？10亿肯定是挡不住的，没想到这个互骗的社会这次因为“假”反而会救很多人。
+共产党在就永远有防火墙
+El Partido Comunista siempre tendrá un cortafuegos
 
-全世界强制疫苗已经接近尾声，不管各国政府是否正式宣布结束疫苗强制令，但民间已经不再像之前面临这样那样的压力。我们也都清楚这背后的原因是什么，但不管怎样这是一个好的开始。但中共这个流氓永远都是与世界背道而驰，以此来体现自己的制度优越性，完全不顾百姓死活。
+防火墙不是物理化防火墙
+El cortafuegos no es un cortafuegos físico
 
-中共各个“骗子集团”为了把国库里的钱和医保里的钱变成自己钱包里的钱就不停的推动“疫苗经济”，另一方面还可以给世界贪婪的大药商及其背后黑暗力量展示一个香喷喷的大蛋糕，凡是选择支持中共的都可以来分享这个大蛋糕，因为中共有14亿的奴隶市场，打死了不偿命。
+它是一个是意识形态
+Es una ideología
 
-中共疫苗“换汤不换药”，只需要换个名字和换个说法就可以，再找个所谓专家写一堆老百姓看不懂的数字，就自己证明自己冠名的“同源加强免疫”和“序贯加强免疫”能够进一步提高免疫效果。中共安排的所谓的专家再站出来在中共媒体上呼吁满足接种条件的人群主动接种、及早接种，中共这一套杀人骗钱的游戏就继续循环下去。
+它是一个国家恐怖主义的防火墙
+Es un cortafuegos del terrorismo nacional
 
-新闻来源：🔗[权威快报|全国新冠疫苗接种剂次超31亿](http://www.news.cn/politics/2022-02/24/c_1128412154.htm)
+防火墙根本不存在
+El cortafuegos no existe en absoluto
 
-*编辑/校对/发稿：意大利罗马达芬奇农场-儒为*
+就像那个谷爱凌说的
+Así como dijo Gu Ailing
+
+你上谷歌, 上苹果上下载一个VPN就可以翻墙了嘛
+Vas a Google, Apple y descargas una VPN para eludir la censura
+
+这话都说了
+Está todo dicho
+
+你觉得她说的话不是真的吗? 是真的
+¿Tú crees lo que ella dijo no es cierto? Es verdad
+
+真要想翻墙不存在墙
+Si realmente quieres eludir el muro, esta cosa no existe
+
+是中国人心里边儿精神上那个墙
+Es el muro mental en el corazón del pueblo chino
+
+谷爱凌就在国内呢
+Gu Ailing está en China
+
+你都相信这种事情
+Si crees este tipo de cosas
+
+那有墙吗
+¿Realmente existe muro?
+
+墙在你心里边儿
+El muro está en tu corazón
+
+在你脑子里边儿
+En tu mente
+
+真正的墙就是共产党
+El verdadero muro es el Partido Comunista
+
+不把共产党灭了, 你灭什么墙
+Si no eliminas al Partido Comunista, qué tipo de muro estás destruyendo
+
+战友们别天真, 别天真, 别天真
+Compañeros luchadores, no sean tan inocentes, no sean inocentes
+
+我听到你问这问题的时候我就捉急
+Me pongo nervioso al escuchar que me haces esta pregunta
+
+* * *
+
+日期：02/21/2022
+原视频标题：防火墙是中国人精神里的墙
+El Cortafuegos es el muro que hay dentro del espíritu chino
+原视频日期：02/14/2022
+原视频网址：[**https://gettr.com/post/pucsbb2f1e**](https://gettr.com/post/pucsbb2f1e)
+任务编号：KC463（3747）
+视频时间段：0:00-01:01
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场- Jambo
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

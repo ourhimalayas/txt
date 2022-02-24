@@ -2,144 +2,36 @@
 ---
 
 
-## 疫苗灾难还没有开始，战友们务必耐心等到5月份
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2057610/)
+## 蔡英文總統指示加強台灣海峽周邊軍事動向監視與防禦
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2057667/)
 
-[https://gtv.org/video/id=6213b6e71408ee3a03a3100f](https://gtv.org/video/id=6213b6e71408ee3a03a3100f)
+翻譯:宮米葉
 
-现在的香港 新加坡 包括以色列
-所有的这些(病例的产生) 根本原因是打疫苗导致的
-跟任何病毒没什么大关系
-它基本上是正常人都懂的(道理)
-你都打了 平均2针到3针疫苗了
-新加坡都4针了 你怎么还得病呢
-多简单的道理吗
-那就是疫苗(导致的)死亡
-和疫苗导致你身体的免疫力低下
-不用说冠状病毒来
-双修一次你都嗝屁了
-你知道人一天是40亿细胞死亡
-咱一个身体是40万亿细胞
-40亿细胞每天都要换成新的
-不管你吃啥你都是换新的
-你吃点好的细胞就比较好
-所以咱得吃点好的吗 心情愉悦
-换的(过程)当中 (有)纠偏的机制
-如果你没有纠偏机制的话
-它可能换成死细胞 癌症(细胞) 坏细胞
-纠偏机制就叫防疫功能 或免疫功能
-那这个疫苗(植进去了)40万亿(mRNA刺突蛋白)
-这个剂给你打到身体里边
-在你身体里运转
-关键它还不死啊这40万(亿)
-有人打了120万亿(浓度的)
-你觉得你们家里边本来就住仨人
-突然来了20个人
-而且他们还不吃不喝 还不死不睡
-你还能活吗
-那么疫苗灾难 有没有开始 没开始
-疫苗灾难开始是什么情况
-不是政府的全面工作给你检测病(能解决得了的）
-这是免疫功能低下 染出来的
-我告诉你疫苗灾难到(爆发)周期时
-我问过科学家 她说
-我可以告诉你(接种过疫苗的会)怎么死
-会发现什么
-吐血 流鼻血 眼睛出血 耳朵出血
-女性以为月经来了
-今天来 明天突然又来了
-一直流血不止
-孩子突然倒地 就是这种爆发性的(症状)
-那么(疫苗灾难)前期 在去年我就告诉大家
-这一开始的时候就会发现
-打了疫苗的人 反而病毒再来再来再来
-就它(已经)破坏了你免疫力
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2248-edited-2.png)nhk.or.jp
 
-一旦有病毒风吹草动的 你就染上了
-然后有点感冒导致你发烧 你也认为是病毒
-就是叫误诊
-但(疫苗)真正的 就是破坏掉你身体以后
-(一旦有个风吹草动)就房倒屋塌
-瞬间就像海啸来一样
-所以我今天我特别认真 我求求战友们一定忍住5月份
-我求求战友们一定忍住(到)5月份
+鑒於圍繞烏克蘭局勢的緊張程度急速加劇，台灣總統蔡英文23日表示，考慮到中共國的威脅，指示軍方等加強對台灣海峽周邊軍事動向的監視和防禦。
+據台灣總統府報道，蔡總統23日收到了上月成立的研究烏克蘭局勢特別工作組的報告。
 
-The current state of Hong Kong Singapore, and Israel
-The root cause of all these (cases) is that it is caused by vaccination
-Not much to do with any virus
-It is basically what all normal people understand
-You’ve had an average of 2 to 3 shots of vaccine
-Singapore has 4 injections yet how do you still get sick?
-How easy to understand !
-It must be the vaccine that caused the death
-and vaccines cause your body to have a low immune system
-It doesn’t even take a coronavirus to infect you
-it only takes one time to have sex and you’re done
-As you know, 4 billion cells die in the human body every day
-Each of our bodies has 40 trillion cells
-4 billion cells are replaced with new ones every day
-No matter what you eat, they have to be replaced with new ones
-You eat something good, the cells will become better
-So we have to eat something good to become happy mood
-In the process of updating there is a correction mechanism
-If you don’t have the mechanism
-they might be replaced with dead cells cancer cells or bad cells
-The correction mechanism is just called the immune function
-Now the vaccine containing 40 trillion spike proteins
-is injected into your body
-Messing around in your body
-The scary thing is that these 40 trillion spike proteins won’t die !
-Some were even injected with a concentration of 120 trillion
-There were only three people living in your house
-Suddenly came 20 people
-they does not eat or drink does not die or sleep
-Can you still live?
-So did the vaccine disaster start? No, it didn’t
-What it will be like when the vaccine disaster begins?
-Disease detection is not a solution to this problem
-It’s a result of low immune function
-I’m telling you, when the vaccine disaster comes to the outbreak cycle
-I asked the scientist, and she said
-I can tell you in what way the vaccinated will die
-What you will see is
-Vomiting blood, nosebleeds bleeding eyes, bleeding ears
-Women think they are having their period
-Today it comes, tomorrow it suddenly comes again
-Keeps bleeding
-The child will suddenly fall to the ground Explosive symptoms
-The first stage of the vaccine disaster as I told you last year
-At the beginning you will find
-people who have been vaccinated are infected by the virus over and over again
-Just because it(vaccine) has destroyed your immunity
-Once a virus is present you will be infected
-Even a small cold causes you to have a fever, and then you think it’s a virus
-In fact, it’s a misdiagnosis
-After the vaccine really destroyed your body
-Even a little influence can collapse instantly like a house
-like a tsunami coming
-So today I am particularly serious
-I beg you all fellow soldiers to be patient until May
+在這其中，蔡英文譴責“俄羅斯侵犯烏克蘭的主權”，同時說：“台灣作為國際社會的一員，會敦促所有各方繼續通過和平與理性的手段解決爭端。”
+
+同時指示軍方加強高對台灣海峽周邊軍事動向的監視和防禦水平，並繼續加強對任何事態立即作出反應的防備工作。
+
+此外，蔡英文還說“台灣和烏克蘭在地緣戰略、地理環境和國際供應鏈的重要性方面有著根本的不同”，同時要求各機構加強對外國勢力企圖利用烏克蘭緊張局勢在台灣引發恐慌和不穩定的虛假信息努力保持高度警惕。
+
+蔡英文23日的講話雖然並未點名中共國，但她上月表示，“台灣長期面臨中共國的軍事威脅，我們對於烏克蘭的處境感同身受”，她對中國趁著烏克蘭局勢即將採取的行動表現出強烈的警戒感。
+
+中共國新聞發言人批評“台灣是在利用烏克蘭局勢”
+
+針對烏克蘭形勢下臺灣對中共國的警戒不斷增強，中共國政府負責對台政策的國務院台灣事務辦公室新聞發言人馬曉光在23日的新聞發布會上表示：“民進黨當局配合美西方輿論，借烏克蘭問題惡意炒作所謂大陸‘軍事威脅’。當前臺灣海峽緊張局勢的根本原因是民進黨當局和“台獨”勢力勾連外部勢力不斷進行謀‘獨’挑釁。“批評蔡英文政權。
+
+來源：【nhk.or.jp】[蔡英文総統 台湾海峡周辺の軍事動向 監視と警戒強化など指示](https://www3.nhk.or.jp/news/html/20220223/k10013497811000.html?utm_int=word_contents_list-items_001&amp;word_result=%E4%B8%AD%E5%9B%BD%E3%83%BB%E5%8F%B0%E6%B9%BE)
 
 * * *
 
-Date:2022/02/21
-原视频标题: The vaccine disaster has not yet begun.Dear fellow soldiers!Please be patient until May!
-疫苗灾难还没有开始，战友们务必耐心等到5月份
-原视频日期：2022/02/18
-原视频链接 [**https://gtv.org/video/id=6213b6e71408ee3a03a3100f**](https://gtv.org/video/id=6213b6e71408ee3a03a3100f)
-任务编号：LP007
-视频时间段 : 0:00-02:20
-英听校：洛杉矶盘古农场 – 庚子
-翻译：洛杉矶盘古农场 – 庚子
-翻译终校：洛杉矶盘古农场 – 银龙
-字幕+视频制作：洛杉矶盘古农场-庚子
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+審核: 宮米葉
+校對: 天天
+發布：花羽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-8.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,41 +2,20 @@
 ---
 
 
-## 乌克兰要求该国公民离开俄罗斯
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2057692/)
+## 罗马尼亚Steaua Bucarest队老板不愿让接种过疫苗的球员在其球队踢球
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2057695/)
 
-#### **【雅典娜快讯】，紧贴时代脉搏**
+#### 翻译                     意大利达芬奇农场                      小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-24-alle-09.42.12-1.png)图片来源：eventiavversinews.it
+布加勒斯特星队(Steaua Bucharest) 老板吉继•贝卡利(Gigi Becali)面对争议宣布，俱乐部将禁止所有接种过新冠疫苗的球员参加比赛。 这位备受争议的罗马尼亚商人和政治家做出了令人大跌眼镜的选择。他对自己的做法辩解道, 接种疫苗者“丧失力气”，打了疫苗的人会死在医院，而没打疫苗的人不会这样。
 
-翻译：文扬
-编辑：文泓
+贝卡利在接受本国记者埃马努埃尔•罗素( Emanuel Rosu) 的采访时为自己的立场辩护: “你没看见在克卢日的比赛吗？在与快速球队比赛时，球员像是晕了过去。他们睡在地上。所有接种疫苗的人都没有力气。不是所有人都会受到影响， 但对那些年龄大一些的影响会更大。”
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/8-35.png)图片来源：Valorizy & 雅典娜设计组
+这些声明引发了该国政府的强烈反应。国家疫苗接种信息平台的官方脸书页面对此强硬回答：“接种过疫苗的球员不会丧失力气。接种新冠疫苗不会影响足球运动员的表现。相反，有足够多的研究证明，新冠感染会留下长期后遗症， 这些会影响运动员的表现。”
 
+原文链接：[https://www.eventiavversinews.it/putiferio-in-romania-il-patron-della-steaua-bucarest-non-vuole-piu-far-giocare-i-calciatori-vaccinati-perdono-forze/](https://www.eventiavversinews.it/putiferio-in-romania-il-patron-della-steaua-bucarest-non-vuole-piu-far-giocare-i-calciatori-vaccinati-perdono-forze/)
 
-当地时间2月23日，据RT电视台报道，乌克兰外交部周三发布的咨询意见说，已建议乌克兰公民不要以任何理由“访问俄罗斯联邦，目前在该国的人应立即离开其领土”。声明说，那些不遵循指示的人，可能不会受到基辅的保护。
-
-外交部此前曾建议乌克兰应切断与俄罗斯的所有外交关系，以回应后者承认该国东部的两个分离地区为主权国家。
-
-周二，俄罗斯下令从乌克兰撤离其外交人员，理由是俄罗斯大使馆收到威胁（警告）。其他一些国家以俄罗斯和乌克兰之间的军事升级风险为由，将其外交官转移到乌克兰西部地区。
-
-上周末，美国也建议其在俄罗斯的公民为可能的疏散做准备，声称他们有可能成为那里不明确“攻击”的受害者。美国大使馆援引“媒体消息”作为发出警告的理由。
-
-在周一俄罗斯作出决定，承认顿涅茨克和卢甘斯克人民共和国为主权国家。它说这是必要的，因为基辅多年来一直未能推进2015年和平路线图的实施，即明斯克协议，俄罗斯曾帮助调解。
-
-莫斯科则称，乌克兰正在准备对叛乱省份进行新的攻击，因为其西方支持者一直对乌克兰针对乌东分离主义分子犯下的暴行视而不见。
-
-而乌克兰总统泽连斯基称俄罗斯此举为“司法侵略”，但没有宣布在其国家实施戒严。
-
-原文链接： [Ukraine tells citizens to leave Russia — RT Russia & Former Soviet Union](https://www.rt.com/russia/550323-ukraine-tells-citizens-to-leave/)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+编辑、上传：  Xiao  baige
 
  
 
