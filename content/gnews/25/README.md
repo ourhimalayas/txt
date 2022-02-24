@@ -2,22 +2,33 @@
 ---
 
 
-## 新中国联邦积极筹建国家教育体系
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2055506/)
+## 郭文贵担忧：若台海开战，辽宁或将成为重灾区
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2055610/)
 
-加拿大温哥华扬帆农场    平民正道
+作者：纽约磐石农场 – 在远方
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+郭文贵先生在直播中对中国辽宁省的民众表示担忧，他认为一旦台海战争爆发，尤其辽宁省的、大连市，会成为主要受灾害的地区。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-51.jpg)
+郭先生指出，大连市的南部设有多个中共军事重地，其中不乏导弹基地，包括核导弹基地和对日作战基地。如果中共对台湾发起武力侵略，凭藉着在东海的战略位置，大连势必将扮演重要的作战角色。更重要的是，美国、日本以及台湾的反击，也会令辽宁省陷入灾难，因此，郭先生呼吁身处辽宁的战友们，务必注意安全。
 
-据2月20日GTV大直播报道，鉴于教育是建立民族正道主义信仰的基石，也是开启智慧和人性的关键，[新中国联邦]的国家级教育系统正在积极筹建之中。
+参考链接：[郭文贵担忧：若台海开战，辽宁或将成为重灾区](https://www.gettr.com/post/pw3fj55e0e)
 
-报道指出，由于建立先进的教育系统与[新中国联邦]灭共事业相辅相成，因此必须首先形成针对教师队伍的丰厚工资和奖励机制，包括使用喜美元和喜支付等灵活，自由和安全的酬劳方式。而且未来喜联储和G系列都将成为国家教育的主要赞助者。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
-其次，文贵先生不仅直接管理该体系的建立，还将协调全球有实力的个人和企业，共同成立最大的教育基金。此外，对于加入了新中国联邦的学生，不仅所有的教育课程都免费，而且还会根据学习进展获得相应数量的躺平币。并在由教师，学生和第三方机构共同参与下，对教学质量进行评估和考核。
+总编：天滅中共
+编辑：天滅中共
+校对/发稿：Hetangyuese
 
-随着在全球通过区块链技术同步开展的线上和线下，并且涵盖各个领域知识的课程，[新中国联邦]教育体系的成功建立，必将开启民族正义，信仰，智慧和希望的大门。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-* * *
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
-编辑： 平民正道    发布：平民正道
+
 
  
 

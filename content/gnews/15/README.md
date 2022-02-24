@@ -2,33 +2,38 @@
 ---
 
 
-## 层层推进
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2055660/)
+## 有声|普京出兵乌克兰东部引发世界经济动荡
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2055701/)
 
-撰稿：东京樱花团/匿名
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2185.png)
-胡主编：叼盘哥，上头要我们写一篇疫苗的文章，该怎么写，我也不懂医学啊！
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月21日，据相关媒体消息显示，俄罗斯总统普京于此前一天承认了乌克兰东部的两个分离地区已经独立，随后，其立即下令俄罗斯国防部向它们派遣了所谓的“维和”部队。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/10-18.jpg)
+有目击者表示，俄罗斯的坦克等军事装备目前已经穿过了分离主义控制的城市——顿涅茨克。同时，普京的这些举动加剧了西方对于乌俄之间发生重大战争的担心。
 
-叼盘哥：这害人的事我拿手，要善于利用恐惧和矛盾，让人们互斗，你且听好了：
+另一方面，随着乌克兰军事危机的升级，世界经济也正在经历着巨大的动荡。据悉，全球的石油价格眼下已经跃升至七年以来的最高水平；而日元等避险货币则出现大幅反弹；此外，美、欧地区的股票和期货近期持续暴跌。数据表明，在普京发表讲话时，卢布的跌幅一度超过17%，滑落至每美元可兑换80卢布有余。
 
-“近日，某地发现多例本地和外来输入病例，各地发现该地归乡人员要及时报告。”，这就是先挑起地域族群的矛盾。
+此前 ，郭文贵先生曾在盖特中评论称，无论俄乌局势怎样变化，俄、美、欧三方最终会达成合作协议。但在这场军事危机的背后，经济损失最惨重的一定会是中共国和全球所有的普通民众。
 
-“非必要减少高风险地区出行”，这是限制人员流动。
+文字版原文：[普京出兵乌克兰东部引发世界经济动荡](https://gnews.org/zh-hans/2053271/)
 
-“接种疫苗是最经济最有效预防新冠的措施，是每个公民的义务责任”，这是利用人们害怕死亡还有保护亲友的责任心。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-“美死亡率居高不下，我国免费接种疫苗，体现了社会主义的优越性”，这是拉仇恨不忘拍马屁。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-胡主编：“您真是高啊，佩服佩服。”
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-叼盘哥：“废话，看了那么多狗屁通知，直接看最后一段都是变相心理暗示打毒苗，正所谓熟读唐诗三百首，不会写诗也能吟，另外咱们部门谁要打毒苗直接让他滚蛋，国内媒体都信的不适合跟我混！”
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-盖特链接：[https://gettr.com/post/ptvkvuaeca](https://gettr.com/post/ptvkvuaeca)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2186.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2187.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2188.png)
-*图片：东京樱花团/夏目&山竹
-编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

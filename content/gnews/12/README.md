@@ -2,42 +2,44 @@
 ---
 
 
-## 2/24/2022 日本快讯: 三菱UFJ暂停高速支付业务；首相宣布对俄罗斯承认独立的亲俄武装实施三项制裁措施
-` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/2055690/)
+## 冬奥会开幕式上的习近平和旁边的人将比齐奥塞斯库还惨
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2055753/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-23-at-7.40.55-PM.png)
-[图片资源](https://xtech.nikkei.com/atcl/nxt/column/18/00001/02031/)
+G-TV视频链接：[https://gtv.org/video/id=621232d71408ee3a03a22c6d](https://gtv.org/video/id=621232d71408ee3a03a22c6d)
 
-1. 三菱UFJ暂停高速支付业务，清理与美国IT的合资企业
+**郭文贵先生：**我告诉你们，你可以看到冬奥会开幕式上，你会看到未来比齐奥塞斯库还要惨的夫妇俩个，就是整个台上习和他旁边这人，哪个人都会比他们惨！你们没有感觉，七哥很有感觉，就是内部那些参加冬奥会的现在正在服务的，所谓义工们，那些恨、那些恼怒、那些没办法、绑在手上的脚镣强迫着做义工，我真感觉大地在颤抖，苍天在愤怒，魔鬼在呼啸，人类到了一个大重启的时候，邪恶必将被消灭，经济是世界更迭的必然发生的事件。
 
+今天直播在这儿你看着，再过5月份以后，就像小新在病前病后，她完全变了一个人，她对生命、对爱、对人性，只有她自己知道。你活着你是人，你是男是女；你死了，是男是女、长得好看不好看，跟你毛关系没有，你就是一堆灰。对待人类的经济和未来就这么简单，一样的，你有这个经济基础就有，没有你想装，装不出来。
 
-[据JIJI 2月22日报道，三菱UFJ金融集团（MUFG）宣布，它计划暂停其与美国IT巨头共同开发的高速支付服务业务。虽然该公司面对日益增长的数据流量和小额支付规模，希望通过区块链（分布式账本）技术来普及高速支付基础设施，但该公司表示经过长期观察看不见该业务的获利前景。](https://www.jiji.com/jc/article?k=2022022201149&amp;g=eco)
+共产党还能再回到以前吗？那是不可能的。昨天晚上某将军跟我说，他说：“如果他们下令让我打台湾开始，我们是第一波，我第一波干的事情我尽我所能我把这炮弹、导弹我都扔到北京去”，呵呵呵……， 我说：“哥儿们，你要这么干了，你就是人类的英雄。你死了，七哥也会让你成为英雄，你活着，七哥让你享受终生。”哈哈哈，是吧。他就是为什么？就是看咱们新中国联邦，他说：“我们要打台湾是为啥？我最后研究了研究，就是一帮疯子要打台湾，就这么简单道理呀。”这就是新中国联邦直播的力量，让你找到事情的真相，找到事情真正的真理，不被人家利用，还能有一个安全、健康的未来。谢谢！
 
-2. 日本经济产业省对网络攻击发出警告
+字幕来源：[2022月2日6日 《文贵大直播》全文字版](https://gnews.org/zh-hans/1971450/)
 
-[据产经新闻2月23日报道，经济产业省周四警告日本的公司，网络攻击的潜在风险正在增加，他们应该在管理层的领导下加强应对措施。 据信这是对政府在同一天宣布的因乌克兰局势而对俄罗斯实施的制裁的报复。经济产业省呼吁采取措施降低风险，如加强认证和检查信息资产的状态，通过检查服务器日志进行早期检测，以及备份数据，以防在发生攻击时丢失。 它还敦促人们在发现任何可疑活动时咨询该部门或安全机构。](https://news.yahoo.co.jp/articles/37bd311eba8d27a0d6a46e331edc8862d0168e0b)
+编辑整理：Davis；
 
-3. 首相宣布对俄罗斯承认独立的亲俄武装实施三项制裁措施
+字幕文件制作：知津；
 
-[据FNN 2月23日报道，岸田首相宣布对俄罗斯总统承认独立的乌克兰东部亲俄武装力量实施制裁。他将对俄罗斯实施三项制裁：”暂停两个所谓共和国官员的签证和冻结其资产”，”禁止与两个所谓共和国的进出口”，以及 “禁止俄罗斯政府在日本发行和流通新的主权债券。“他还表示，如果未来局势恶化，他打算与国际社会合作，采取进一步措施。](https://news.yahoo.co.jp/articles/a6602215d21aa74794f8b48e9ffe8d48373dc5a5)
+视频制作及上传：Cindy；
 
-4. 超过70%的人赞成女天皇
+G-News发布：小满；
 
-[据每日新闻 2月23日报道，在一项题为 “2021年日本的民意 “的时事民意调查中，关于皇位继承问题，超过70%的受访者赞成女天皇，其中41%的人说只有在没有男天皇的情况下才允许女天皇继承，35%的人说天皇的第一个孩子应该被优先考虑，无论性别如何。 只有10%的受访者说，继承人应该由男性来维持。](https://news.yahoo.co.jp/articles/69a33c05e8ed39dc2cec5373ec24a926f7cf3c38)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-5. 日本报告了94例BA.2，约占所有Omicron株系的0.6%
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-[据NHK 2月23日报道，根据国立传染病研究所和其他机构的调查，到目前为止，日本至少有94例BA.2的报告。 它约占所有Omicron株系的0.6%。另一方面，在同一时期发现了约16,000例BA.1病毒，这是目前流行病的主流，BA.2病毒约占所有Omicron毒株的0.6%。国立传染病研究所将继续通过基因研究监测BA.2的趋势。](https://www3.nhk.or.jp/news/html/20220223/k10013498261000.html?utm_int=news-culture_contents_list-items_003)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-6. 15.3%的日本人接种第三剂中共病毒（新冠病毒covid-19）疫苗
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-[据NHK 2月23日报道，根据日本政府周四公布的最新数据，日本有1,938,692人接种了第三针中共病毒（新冠病毒covid-19）疫苗，占总人口的15.3%。最高的日接种量是本月12日的799,875剂。共有116,264,424人接种了一剂疫苗，占总人口的80.2%。130,402人完成了第二剂接种，占总人口的79.1%。](https://www3.nhk.or.jp/news/html/20220223/k10013498281000.html?utm_int=news-social_contents_list-items_005)
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ)、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A)、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-【日本银河系农场-阿尔法星球】
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/)；
 
-作者：Totoro
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-校对：evermaxim
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

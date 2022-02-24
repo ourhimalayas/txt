@@ -2,8 +2,8 @@
 ---
 
 
-## 中国人没有信仰没有人性已经到了令人发指的程度
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2055792/)
+## 共产党邪恶到无法想象
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2055851/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
