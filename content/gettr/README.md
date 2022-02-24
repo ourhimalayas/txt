@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/24/2022 3:21 AM (UTC)`
+
+2/23/2022 Miles Guo: Why will the US be the biggest winner? Will Putin, who has taken trillions of dollars from the Chinese people, be able to realize his dream of the Russian Empire?<br/><br/>2/23/2022 文贵直播：为什么说美国才是最大的赢家？拿了中国人上万亿美元的普京能实现他的俄罗斯帝国梦吗？
+![img](https://media.gettr.com/group44/getter/2022/02/24/03/1871228e-2921-c4dd-385d-e10aec57f438/out.jpg)
+
+---
+
+`@miles 2/24/2022 2:53 AM (UTC)`
+
+2/23/2022 Miles Guo: China has been lacking faith and education for so long, leading to all kinds of bastards who lack spirituality and those in the cultural realm. It is not the US but the nomads in the north of China that has caused the Chinese people’s suffering. But now Russia is going to help us take down the CCP, and the Chinese people are going to pay a huge price for it.<br/><br/>2/23/2022 文贵直播：中国因为长期缺失信仰、教育，造成精神文化杂种丛生；给中国造成苦难的不是美国，而是北方游牧民族和苏俄，但这次俄罗斯要帮我们消灭共产党了，而中国人将付出巨大代价<br/>
+![img](https://media.gettr.com/group8/getter/2022/02/24/02/7b1bbec1-bc4e-2fd0-075b-a3f3a4b588c8/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@s7gril 2/24/2022 1:35 AM (UTC)`
@@ -145,20 +159,6 @@ New Release ✨                                              Shop Now at www.gfa
 
 2/21/2022 Miles Guo’s GETTR: The CCP is really over! There are hundreds of thousands of kidnapped women in Feng county, fertilizer prices have skyrocketed in northeast China, and the Winter Olympics, which cost the Chinese Lao Baixing tens of trillions of RMB, has changed nothing but worsened pollution. The CCP, however, is blaming the Americans for all these.<br/><br/>2/21/2022 文贵盖特：中共真没救了！在丰县有几十万被绑架的女性，东北化肥价格暴涨，中共花老百姓十几万亿人民币办冬奥会，除了污染环境啥都没改变，但中共却把一切都怪罪给美国人<br/>
 ![img](https://media.gettr.com/group18/getter/2022/02/22/02/5e725934-3c6c-7c8e-66ac-eb415dcbf396/out.jpg)
-
----
-
-`@miles 2/22/2022 1:09 AM (UTC)`
-
-⚠️⚠️Zeitleiste des Neuen Bundesstaates China Über das CCP-Virus und den COVID-Impfstoff<br/><br/>Der Neue Bundesstaat China (NBC) hat sich immer für die Wahrheit eingesetzt und Leben gerettet, indem er die böse Natur der CCP und die Tatsache aufgedeckt hat, dass die CCP das Virus geschaffen hat, das Millionen von Menschen auf der ganzen Welt getötet hat. Außerdem hat der NBC die COVID-Therapeutika in der Welt verbreitet. Alle Fakten beweisen, dass das, was die CCP getan hat, nichts mit dem chinesischen Volk zu tun hat. Die CCP kann nicht das chinesische Volk vertreten, da auch sie die Opfer sind.<br/><br/>⚠️⚠️关于新中国联邦爆料中共病毒和中共病毒疫苗灾难预警时间线（德语版）<br/><br/>新中国联邦一直致力于揭露中共邪恶本质，揭露他们制造中共病毒在全世界造成数百万人死亡的事实以及COVID疫苗的真实目的，揭示真相，拯救生命。中共的所作所为与中国人民无关，中共不代表中国人民，中国人民也是受害者。
-![img](https://media.gettr.com/group14/origin/2022/02/22/01/f47e8f8a-f548-5e1f-0530-cd27290af6f4/out.jpg)
-
----
-
-`@miles 2/21/2022 11:14 PM (UTC)`
-
-参加渥太华抗议，保罗·亚历山大博士被威胁噤声：他们毫无科学可言，而现在是为了权力和控制，为了掩盖他们做的错事。战斗室，2022年2月19日。<br/><br/>Dr. Paul Alexander on crackdown on Ottawa protesters: This now is about power and control, and this is about cover up of wrong things they've done. War Room, Feb. 19th, 2022.<br/>
-![img](https://media.gettr.com/group5/getter/2022/02/21/23/745ecd33-d104-43fe-a62c-6c70dd59b5b3/out.jpg)
 
 ---
 
