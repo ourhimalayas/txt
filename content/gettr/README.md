@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@s7gril 2/24/2022 1:35 AM (UTC)`
+
+EP11: The Heroes. Let's tear down the monstrous lies of this despicable #HBO #VICE production with TRUTH! 第11集：英雄。让我们用真相揭露这部卑鄙的，充满谎言的 #HBO #VICE 制作 ！ #isobelyeung #mediawarfare #unrestrictedwarfare #disinformation #propoganda #hbovice訪談真相 #UFWD #Unitedfrontworkdepartment #takedowntheccp #heroes
+![img](https://media.gettr.com/group4/origin/2022/02/24/01/61de19dc-1485-a5c2-81b0-b988cf320987/out.jpg)
+
+---
+
 `@woodgogogo 2/23/2022 11:43 PM (UTC)`
 
 
@@ -150,13 +159,6 @@ New Release ✨                                              Shop Now at www.gfa
 
 参加渥太华抗议，保罗·亚历山大博士被威胁噤声：他们毫无科学可言，而现在是为了权力和控制，为了掩盖他们做的错事。战斗室，2022年2月19日。<br/><br/>Dr. Paul Alexander on crackdown on Ottawa protesters: This now is about power and control, and this is about cover up of wrong things they've done. War Room, Feb. 19th, 2022.<br/>
 ![img](https://media.gettr.com/group5/getter/2022/02/21/23/745ecd33-d104-43fe-a62c-6c70dd59b5b3/out.jpg)
-
----
-
-`@miles 2/21/2022 11:08 PM (UTC)`
-
-锡克教库尔撒裔加拿大人从多伦多赶到渥太华支持卡车司机运动。他们非常爱国，希望能带回以前的加拿大，让后代生活在一个保护他们的自由和权利的社会。他们呼吁所有加拿大人都来渥太华支持卡车司机。<br/><br/>Canadian Sikh Khalsans arrive in Ottawa all the way from Toronto and voice out their support for the Freedom Convoy. They are patriotic and they want to bring back the nation for the children to live in a society that protects their freedom and rights. They call for every Canadian to come to Ottawa and support the truckers.<br/>
-![img](https://media.gettr.com/group24/getter/2022/02/21/23/6e23395c-87bd-b9f1-2710-466a7101da25/out.jpg)
 
 ---
 
