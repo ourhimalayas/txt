@@ -2,23 +2,20 @@
 ---
 
 
-## 突发｜战争爆发？普京授权出动轰炸机 乌克兰首都传出爆炸声 （持续更新）
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2056356/)
+## 韩国批准辉瑞中共病毒疫苗用于5-11岁儿童
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2056856/)
 
-**撰文/ 港台前线｜发布日期/ 24/02/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/普京授權出動轟炸機-烏克蘭首都傳出爆炸聲-1.jpg)
-**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
+撰稿：东京樱花团/asket
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2211.png)[**图片来源**](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fcimg.cnyes.cool%2Fprod%2Fnews%2F4674876%2Fl%2Fe92fe83bb0905d26b1315d4c3364b3ed.jpg&amp;imgrefurl=https%3A%2F%2Fm.cnyes.com%2Fnews%2Fid%2F4674876&amp;tbnid=Z9Cze4v1eCAmfM&amp;vet=12ahUKEwi3usv3zpf2AhUpEqYKHUS9Bc0QMygPegUIARCgAQ..i&amp;docid=iCOc8I0jCMiQOM&amp;w=640&amp;h=360&amp;q=%E8%BE%89%E7%91%9E%E7%97%85%E6%AF%92%E7%96%AB%E8%8B%97&amp;ved=2ahUKEwi3usv3zpf2AhUpEqYKHUS9Bc0QMygPegUIARCgAQ)
+** **路透社首尔消息，韩国食品药品部周三表示，韩国已经批准辉瑞公司的中共病毒（新冠病毒COVID-19）疫苗，用于5-11岁的儿童。
 
-**最新消息指，俄罗斯空军出动战略轰炸机已从克里米亚进入乌克兰，顿涅茨克地区北部发生至少4次巨大爆炸，首都基辅亦传出爆炸声。**
+该部在一份声明中说，儿童应该接种常规剂量的三分之一，两次，间隔三周。免疫力明显下降的儿童可以在四周后接受强化治疗。
 
-* * *
+信息来源：** **[**S.Korea approves Pfizer COVID-19 vaccine for children aged 5-11**](https://www.fijitimes.com/s-korea-approves-pfizer-covid-19-vaccine-for-children-aged-5-11/)
 
-俄罗斯总统普京今日（24日）发表电视讲话，宣布授权俄军在乌克兰展开军事行动。普京声称，俄罗斯的目的并非占领乌克兰，而只是保护乌克兰东部居民，又指攻击是为了“将乌克兰去军事化、去纳粹化”。他还警告企图干预俄罗斯行动的其他国家，会有前所未见的后果。
-
-美国总统拜登回应称，普京已经挥兵进入乌克兰东部地区，显示他选择要开始一场有预谋的战争，美国会对俄罗斯采取进一步措施。
-
-來源｜[CNBC](https://www.cnbc.com/2022/02/23/putin-says-russia-open-to-diplomacy-as-moscow-hit-with-fresh-sanctions.html)、[AJ](https://www.aljazeera.com/news/2022/2/23/ukraine-declares-state-of-emergency-amid-fears-of-invasion-liveblog)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

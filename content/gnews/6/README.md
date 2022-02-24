@@ -2,33 +2,24 @@
 ---
 
 
-## 若俄乌战争爆发 土耳其或将关闭黑海海峡
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2057308/)
+## 俄乌战争之际，中共进口俄粮食支持入侵
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2057534/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-48.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fd1e00ek4ebabms.cloudfront.net%2Fproduction%2F782a37b0-6769-4383-a324-4964a0351abb.jpg&amp;imgrefurl=https%3A%2F%2Fwww.ft.com%2Fcontent%2F4d925bae-fa89-4e64-9063-0c01e3b5690c&amp;tbnid=SH6PJbo4v_7DnM&amp;vet=12ahUKEwiq)
+2月24日财联社报道，中共海关总署批准，允许俄罗斯全境小麦进口。
 
-整理：围剿维尼熊
-编辑：朝花夕拾
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-02-下午10.11.59-22.png)
-根据路透社2月24日报道，乌克兰驻土耳其大使瓦西尔·博德纳（Vasyl Bodnar）周三表示，乌克兰认为俄罗斯军舰在其黑海边境附近的出没是一种威胁，如果莫斯科入侵，乌克兰将要求土耳其考虑对俄罗斯船只关闭两条水路。
+俄罗斯对乌克兰发动战争引发了全球对避险资产的热潮，国际石油基准布伦特原油价格每桶上涨逾4美元，自2014年9月以来首次超过每桶100美元，不仅仅是原油贵金属市场，受俄罗斯入侵乌克兰战争影响，此时中共国小麦期货已涨停，价格飞涨之际，中共此时允许全境进口俄罗斯小麦，
 
-博德纳（Bodnar）在接受路透采访时被问及俄罗斯军舰在乌克兰沿海附近出没时表示，这些船只对乌克兰构成巨大危险，俄罗斯海军在黑海的集结是“压倒性的”。
+2022年2月8日北京冬奥会期间，中俄两国签订了新的1份合同：10年1亿吨石油、30年480亿立方天然气的合同，使用欧元结算，不使用美元，每逢事件，中共都在用实际行动来表明自己对俄罗斯入侵在乌克兰的支持。
 
-根据1936年签订的《蒙特勒公约》，北约成员国土耳其对连接地中海与黑海的博斯普鲁斯海峡和达达尼尔海峡拥有控制权。该公约赋予安卡拉管理海军军舰过境的权力，并在战时或受到威胁时向外国军舰关闭海峡。
+由于CCP新冠病毒和战争持续，一旦出现运输生产中断，战争影响油价暴涨，必定回抬高粮食价格，中共国经济危机进一步扩大，而粮食危机也随之加剧。
 
-周三有媒体援引土耳其总统埃尔多安的话报导，土耳其与乌克兰和俄罗斯都有良好的关系，不能放弃同任何一国的关系，将采取措施确保现有关系不变。
+信息来源：[海关总署：允许俄罗斯全境小麦进口](https://mi.mbd.baidu.com/r/BQ2lanCExy?f=cp&amp;rs=3931255381&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=d445cfe682c6fccf&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
 
-参考链接：[如果战争爆发 乌克兰将要求土耳其关闭俄罗斯通往黑海的水道–乌大使](https://cn.reuters.com/article/ukraine-turkey-russia-blacksea-0223-wedn-idCNKBS2KT045)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,20 +2,21 @@
 ---
 
 
-## 韩国批准辉瑞中共病毒疫苗用于5-11岁儿童
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2056856/)
+## 2022年2月16日文贵大直播节选-新GTV投资 （带视频）
+` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2057031/)
 
-撰稿：东京樱花团/asket
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2211.png)[**图片来源**](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fcimg.cnyes.cool%2Fprod%2Fnews%2F4674876%2Fl%2Fe92fe83bb0905d26b1315d4c3364b3ed.jpg&amp;imgrefurl=https%3A%2F%2Fm.cnyes.com%2Fnews%2Fid%2F4674876&amp;tbnid=Z9Cze4v1eCAmfM&amp;vet=12ahUKEwi3usv3zpf2AhUpEqYKHUS9Bc0QMygPegUIARCgAQ..i&amp;docid=iCOc8I0jCMiQOM&amp;w=640&amp;h=360&amp;q=%E8%BE%89%E7%91%9E%E7%97%85%E6%AF%92%E7%96%AB%E8%8B%97&amp;ved=2ahUKEwi3usv3zpf2AhUpEqYKHUS9Bc0QMygPegUIARCgAQ)
-** **路透社首尔消息，韩国食品药品部周三表示，韩国已经批准辉瑞公司的中共病毒（新冠病毒COVID-19）疫苗，用于5-11岁的儿童。
+供稿：聪宁
+编辑发稿：am夏天
+德国纽伦堡正义农场
 
-该部在一份声明中说，儿童应该接种常规剂量的三分之一，两次，间隔三周。免疫力明显下降的儿童可以在四周后接受强化治疗。
+关于新GTV4月30号结束的问题。Hcoin 是不能投G-TV 的，HDO可以投GTV，它还是在联盟同意的统一协调下，没有任何问题的。那么这个情况下就HDO投寄GTV和Hcoin的价格没有什么关系。但是投GTV，我告诉你GTV是王，因为GTV本身就有喜联储的5%，什么概念啊？你今年只看到10亿的币，喜联储是1000亿的币，1000亿的5%是属于所有GTV的未来投资者。你不要搞错了，1000亿的5%和你今天10亿的5%还是个不同的概念好不好啊！还有个盖特的5%，还有这个Gclub的股份，这是都是属于它的，这是永远不可更改的，大家一定要去投，GTV的股份，千万别拉下。你知道对GTV他们这个大股东还有投资人，最好办法是你就别投，但凡有一点儿猪脑的人都会懂这个道理，他让你投干嘛，你加一起
+才4.5亿的美元，几个币的钱，他凭啥让你占百分之二三十？
+而且你占了二十三十的GTV的股，你还占盖特，你还占Gclub、你还占整个喜联储的股，他宁可给你现在说，你别投了我给你，我十倍回报给你，他都让你投。
 
-信息来源：** **[**S.Korea approves Pfizer COVID-19 vaccine for children aged 5-11**](https://www.fijitimes.com/s-korea-approves-pfizer-covid-19-vaccine-for-children-aged-5-11/)
+但是我们现在做的是任何情况都让战友投进去，这是我的权益，我们给你熬了两三年了，你必须得给我们。这就像谈恋爱一样，老娘跟你谈了两三年了，青春已经过两三年了，你不能说现在你当富豪、当官了让我再改嫁，那不行，你必须的你给我多少钱，我也得给你结婚。这必须要拿到这个东西。但是作为GTV投资者，他但凡有一点儿，你用一点儿逻辑想想，你们投的不是GTV，跟GTV半毛关系没有，GTV现在都关了跟你有啥关系呀？你要的是那个5%，得值多少钱！等过两天你们看到公告的时候，吓死你们，别说卖币了，卖血你都值！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/德农二维码-30.png)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

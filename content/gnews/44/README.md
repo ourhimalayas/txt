@@ -2,25 +2,43 @@
 ---
 
 
-## COVID-19 最新情报｜罗马尼亚最大足球具乐部宣布禁止接种疫苗的球员参赛及效力
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2056171/)
+## 普京启动战略威慑力量演习
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2056539/)
 
-**撰文｜疫情关注组 / 发布时间｜24/02/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/羅馬尼亞最大足球俱樂部宣佈禁止接種疫苗的球員參賽及效力.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：**[**https://gettr.com/post/pl6k0218bf**](https://gettr.com/post/pl6k0218bf)**)**
+作者：新西兰伊甸农场 米拉娅
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2022年2月19日，据【俄新社】报道，俄罗斯总统普京通过弹道导弹发射启动了战略威慑力量演习。俄国家元首新闻秘书德米特里佩斯科夫告诉俄新社，总统普京发起了涉及核三合力量的演习。
+![普京启动战略威慑力量演习- 2022年2月19日, 俄罗斯卫星通讯社](https://cdn.sputniknews.cn/img/102976/09/1029760931_0:70:2788:1638_1920x0_80_0_0_e33a4fd6d39a4b0cdcf01d83762d0560.jpg)© Sputnik / Aleksey Nikolskyi
+ 
+俄罗斯国防部门称，本次演习旨在测试军事指挥和控制机构、发射人员、军舰和战略导弹航母执行指定任务的准备情况，以及战略核武器和非核力量武器的可靠性。
 
-罗马尼亚规模最大的足球具乐部 Steaua Bucharest 日前宣布，将全面禁止接种过 Covid-19 疫苗的球员再为球队效力，原因是接种过疫苗的球员已经“失去力量”并“开始倒在赛场或死在医院”。
+俄罗斯目前正在采取大规模的部队和部队作战训练措施。几乎所有军区、舰队和空降部队都参与其中。俄国防部还在战略演习中展示了匕首导弹 (Kinzhal)、“口径”和“锆石”导弹的发射。
 
-该具乐部的老板，商人兼政治家吉吉·贝卡利（Gigi Becali）表示，他也不再允许接种疫苗的球员参加比赛，他不愿再看到原本伟大的球员渐渐的变得虚弱，他更不忍心再看到一个个年轻健康的球员死去。
+俄罗斯国防部公布了战略威慑力量演习的镜头，这些演习是在其最高指挥官俄总统普京的领导下进行的。
 
-贝卡利强调，接种过 COVID-19 疫苗的人会倒下，会死在医院里，而那些拒绝接种疫苗的人却不会。他指出，“有人可能会笑话我，但我是对的，如果你看到CFR（CFR Cluj）和 Rapid（Rapid Bucuresti ）的球员们倒在地上，呼吸困难，你就该知道所有接种疫苗的人都会失去力量！”
+俄罗斯航空航天部队发射的 匕首导弹 (Kinzhal) 高超音速空弹道导弹，以及伊斯坎德尔作战战术综合体的发射和导弹发射前的Tu-95MS战略轰炸机的出动都被视频捕捉到。
 
-贝卡利的这番言论不意外的引起了该国政府的强烈反感。当局在脸书官方页面 RO Vaccinare 上发布一份最新声明，反驳称“足球运动员在接种了 COVID-19 疫苗后不会失去力量。”并指出，“从医学和科学的角度来看，没有任何研究可以支持罗马尼亚某位人士的奇特观点。”
+这段视频还显示了北海和黑海舰队的船只和潜艇，它们发射了口径巡航导弹和锆石高超音速导弹。
 
-不过，仍然有不少当地民众支持贝卡利对疫苗的看法，他们认为，政府的声明恰恰反映了他们很心虚。
+此外，在演习期间，一枚洲际弹道导弹亚尔斯从普列谢茨克（航天发射场）发射到堪察加半岛的库拉试验场。 据俄罗斯国防部消息称，演习带有计划性。俄罗斯这次演习于当地时间19日在俄罗斯多地展开，他们的航空航天部队、战略导弹部队、南部军区、北部和黑海舰队均投入了演习。
 
-来源｜[推特](https://twitter.com/Emishor/status/1496447904617312259?s=20&amp;t=_vOooKK2zDsQcuQM5gW2Pw)、[ESPN](https://www.google.com.hk/url?sa=t&amp;rct=j&amp;q=&amp;esrc=s&amp;source=newssearch&amp;cd=&amp;ved=2ahUKEwjLht_1sJf2AhXiD0QIHb9KAJoQxfQBKAB6BAgQEAI&amp;url=https%3A%2F%2Fwww.espn.com%2Fsoccer%2Ffcsb%2Fstory%2F4600728%2Fromanias-fcsb-deny-owners-suggestion-to-not-pick-vaccinated-players&amp;usg=AOvVaw2UZFvqTNUpQEbDKVhmEXsf)
+演习期间，普京与白俄罗斯总统亚历山大·卢卡申科一起观看了导弹发射。
 
+目前正值俄乌边境局势紧张，俄罗斯进行的本次军事演习必然引起国际社会的密切关注。此前，俄总统普京曾表示不希望有战争，但是，根据目前事态可见，他并没有放弃随时开战的可能性和军事准备。俄乌局势是否就此升级还未可知。如果一旦俄乌边境发生战事对于世界局势及经济都会是一场巨大的动荡和威胁。
+
+参考链接：
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+
+编辑/校正/发稿：呼吸的雾霾（文小呼吸）
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

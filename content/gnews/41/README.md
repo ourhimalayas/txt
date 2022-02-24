@@ -2,32 +2,36 @@
 ---
 
 
-## 美国司法部任命国家加密货币执法团队负责人
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2056538/)
+## 俄罗斯正式对乌克兰全面开战！
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2056912/)
 
-作者：银河系农场—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月17日，美国司法部任命Eun Young Choi担任国家加密货币执法小组NCRET的第一位团队负责人。
-![美國司法部任命国家加密貨幣執法團隊負責人- 華爾街日報](https://images.wsj.net/im-488289?width=860&amp;height=573)WSJ
-据悉NCET成立的目的是应对非法滥用加密货币和数字资产带来的挑战，其团队成员包括具有加密货币、网络犯罪、洗钱和没收背景的检察官。NCET将特别关注数字货币兑换、基础设施提供商和便利数字货币犯罪的实体。
+**作者:  **青衣
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-357.jpg)
+图为 P-8A资料图（图片来自网络）
 
-Choi主任说，NCET一直站在调查和起诉涉及数字货币的犯罪的前列，不仅在数字资产技术的增长和发展方面发挥关键作用，又加快和扩大打击各种非法滥用数字资产的行为。
+俄乌战争正式打响！克里姆林宫毫无预警地紧急直播，俄罗斯总统普京发表电视讲话，在全世界面前正式宣布对乌克兰政府开战。
 
-据悉Choi主任曾起诉过复杂的欺诈和洗钱犯罪等，特别关注网络入侵、数字货币、暗网和国家安全调查。她曾成功地将暗网市场丝绸之路的创始人兼首席执行官Ross Ulbricht进行了上诉。
+据《美国之音》2月24日报道，俄罗斯总统普京星期四下令（2月24日）对乌克兰开展“军事行动”。随后，包括乌克兰首都基辅在内的多个城市均有炮火声及爆炸声。普京还警告其他国家，任何干涉俄罗斯行动的企图都将导致“他们从未见过的后果”。
 
-参考链接：[Justice Department Announces First Director of National Cryptocurrency Enforcement Team](https://www.justice.gov/opa/pr/justice-department-announces-first-director-national-cryptocurrency-enforcement-team)
+普京在电视讲话中声称，军事行动是为了“应对来自乌克兰的威胁”，并“保护乌克兰东部的民众”。他同时声称，俄罗斯的目标不是要占领乌克兰，流血事件的责任在于乌克兰“政权”。普京还指责美国及其盟友无视俄罗斯阻止乌克兰加入北约的要求。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+美国总统拜登随即发表声明，指责普京选择了一场有预谋的战争，而这场战争将带来灾难性的生命损失和人类苦难。拜登称，俄罗斯要为这次攻击造成的死亡和破坏负责。美国及盟国将以团结果断的方式做出回应。世界将追究俄罗斯的责任。
 
-编辑/校正/发稿：呼吸的雾霾（文小呼吸）
+新闻链接：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[https://www.voachinese.com/a/russia-military-operation-on-ukraine-20220223/6456751.html?utm\_source=twitter&utm\_medium=social&utm\_campaign=dlvr.it](https://www.voachinese.com/a/russia-military-operation-on-ukraine-20220223/6456751.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
+
+
+
+> 基辅响起了防空警报 [pic.twitter.com/x3z0llQZwO](https://t.co/x3z0llQZwO)
+> — 约翰 (@JohnDoe1284495) [February 24, 2022](https://twitter.com/JohnDoe1284495/status/1496715672289615874?ref_src=twsrc%5Etfw)
+
+
+
+* * *
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

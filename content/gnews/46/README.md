@@ -2,24 +2,23 @@
 ---
 
 
-## 乌克兰局势引发纽约股市下跌一度超过500美元
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2055731/)
+## 突发｜战争爆发？普京授权出动轰炸机 乌克兰首都传出爆炸声 （持续更新）
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2056356/)
 
-撰稿：东京樱花团 文小白
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-354.jpg)
-23日的纽约股市，受美国防部高级官员表示，俄罗斯对乌克兰的军事入侵可能随时开始，紧张局势正在加剧的影响，增加了对未来的担忧，因而在交易开始后卖单不断增加。
+**撰文/ 港台前线｜发布日期/ 24/02/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/普京授權出動轟炸機-烏克蘭首都傳出爆炸聲-1.jpg)
+**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
 
-受此影响，道琼斯工业平均指数一度暴跌逾500美元，收盘价最低至33,131.76美元，较前一交易日下跌464.85美元。道琼斯工业平均指数已连续五个交易日下跌，五天内跌幅超过了1800美元。
+**最新消息指，俄罗斯空军出动战略轰炸机已从克里米亚进入乌克兰，顿涅茨克地区北部发生至少4次巨大爆炸，首都基辅亦传出爆炸声。**
 
-拥有众多IT相关股票的纳斯达克股票指数也大幅下跌2.5%，为年内最低价格。
+* * *
 
-市场相关人士表示，“虽然有人对西方国家制裁俄罗斯的效果持怀疑态度，但乌克兰政府机构等官方网站遭到网络攻击的报道，使投资者作出卖出股票规避风险的决定。股价是否会继续下跌，还要看乌克兰的情况。”
+俄罗斯总统普京今日（24日）发表电视讲话，宣布授权俄军在乌克兰展开军事行动。普京声称，俄罗斯的目的并非占领乌克兰，而只是保护乌克兰东部居民，又指攻击是为了“将乌克兰去军事化、去纳粹化”。他还警告企图干预俄罗斯行动的其他国家，会有前所未见的后果。
 
-信息来源：[NY株式市場 一時500ドル超の値下がり ウクライナ情勢への懸念](https://www3.nhk.or.jp/news/html/20220224/k10013498581000.html?utm_int=news-business_contents_list-items_002)
+美国总统拜登回应称，普京已经挥兵进入乌克兰东部地区，显示他选择要开始一场有预谋的战争，美国会对俄罗斯采取进一步措施。
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+來源｜[CNBC](https://www.cnbc.com/2022/02/23/putin-says-russia-open-to-diplomacy-as-moscow-hit-with-fresh-sanctions.html)、[AJ](https://www.aljazeera.com/news/2022/2/23/ukraine-declares-state-of-emergency-amid-fears-of-invasion-liveblog)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
