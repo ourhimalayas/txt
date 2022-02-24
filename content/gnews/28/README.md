@@ -2,54 +2,50 @@
 ---
 
 
-## 澳大利亚宣布因俄罗斯承认顿涅茨克和卢甘斯克独立对其实施制裁
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2059262/)
+## 俄罗斯入侵乌克兰 欧美出台对俄制裁措施
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2059342/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image009-5.jpg)路透社 / 池
-在美国总统乔拜登和英国首相鲍里斯约翰逊宣布对俄罗斯实施制裁的几个小时后。
-
-澳大利亚总理斯科特·莫里森（Scott Morrison）在周三宣布，因莫斯科承认顿涅茨克和卢甘斯克人民共和国（DPR，LPR）的独立，澳大利亚将对俄罗斯提出制裁。
-
-澳大利亚总理还在详细说明，该举措将包括对俄罗斯安全理事会八名成员实施旅行禁令和有针对性的金融制裁。
-
-莫里森在ABC 新闻广播中说：
-
-“俄罗斯可能入侵其邻国是绝对不可接受的……澳大利亚政府将立即开始对俄罗斯个人实施制裁，以响应俄罗斯对乌克兰的侵略。”“最初，我们将对俄罗斯联邦安全理事会的八名成员实施旅行禁令和有针对性的金融制裁”。
-
-此外，与莫斯科有关的实体以及俄罗斯银行、交通、能源、电信、石油、天然气和矿产都将受到处罚。
-
-莫里森没有说出被制裁的人的名字，而是选择说他们就是被英国和美国列入黑名单的人。
-
-此外，莫里森还表示：“澳大利亚人总是勇敢地面对恶霸，我们将与我们所有的合作伙伴一起勇敢地面对俄罗斯。”“我预计会有后续的制裁，这只是这个（制裁）过程的开始。”
-
-作为响应，美国、英国和欧洲国家都宣布对莫斯科实施制裁，并且表示，承认顿巴斯共和国侵犯了乌克兰的主权。
-
-俄罗斯方面则一再否认其打算进行入侵的说法，还表示，如果西方承认俄罗斯对北约东扩的安全担忧，目前的紧张局势不会如此严重。普京还指责，北约扩张的同时，北约认为俄罗斯是主要对手和“主要威胁”
-
-[【援引连结】](https://sputniknews.com/20220223/this-is-only-the-start-australia-files-sanctions-against-russia-over-recognition-of-lpr-dpr-1093286813.html)
+作者：香草山教育部 – Naughty(文行)
 
 
 
-**推出问题，敲出真相，爆料在路上！**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-**请关注和订阅我们的以下账号：**
 
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
 
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+普京21日宣布承认乌东2个分离主义共和国独立，并派俄军入境维和后，欧盟和美国一致认为俄罗斯该举动是入侵乌克兰的开始，纷纷推出台针对俄罗斯的制裁措施。
 
-**玫瑰看新闻YOUTUBE账号**：
+法国外长勒德里安22日以欧盟轮值主席国身份表示，欧盟成员国一致同意对俄罗斯国家杜马351位议员以及27个实体及个人实施制裁，范围涵盖政治、军事、商业和媒体。
 
-**玫瑰看新闻**
+欧盟外长波瑞尔和欧盟执委会主席范德赖恩先后表示，欧盟一系列制裁方案除了锁定参与侵略行动的个人和企业外，还包括禁止乌东2个分离地区与欧盟进行贸易，以及欧盟限制俄罗斯政府在欧盟金融市场上筹资的能力。欧盟希望此措施尽可能遏制克里姆林宫推动侵略。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide6-7.jpg)
+美国总统拜登同一天宣布制裁俄罗斯2大金融机构。他宣布对俄罗斯国有开发银行（VEB）与军方银行2大金融机构全面封锁，对俄罗斯主权债务实施全面制裁，切断俄罗斯政府与西方金融体系的联系，使其无法再从西方筹募资金或在欧美市场交易新债。
 
-**黑森林的故事**
+美国财政部随即公布制裁名单，包括VEB与Promsvyazbank（PSB）及其42家子公司。此外，也宣布制裁多位普京核心圈中具有影响力的人员及其家人，包括PSB主席兼执行长。
 
-**ROSE NEWS**
+参考链接：
+1. [Europe Sanctions Russia Over Ukraine Crisis, Coordinating Squeeze With the U.S.](https://www.nytimes.com/2022/02/22/world/europe/eu-sanctions-russia-ukraine.html)
+2. [Biden imposes new Russia sanctions, decries ‘beginning invasion’](https://www.aljazeera.com/news/2022/2/22/biden-imposes-new-russia-sanctions-decries-beginning-invasion)
 
-**【玫瑰看新闻】推特账号**：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
 
-**ROSE NEWS (@ROSENEWS4)A**
+总编：zhong
+编辑：Lakeman文仁
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

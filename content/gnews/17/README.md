@@ -2,36 +2,37 @@
 ---
 
 
-## 有声|澳大利亚计划在南极洲投资制约中共
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2059430/)
+## 俄罗斯开始进攻乌克兰 提醒台湾战友预防中共突袭
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2059448/)
 
-配音：香草山佛教部 – 李傻
+作者：纽约香草山教育部 – Naughty(文行)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月21日，据有关媒体报道，为了制衡中共在南极洲的强势和咄咄逼人的行为，澳大利亚总理斯科特-莫里森发布声明表示，澳州联邦政府将在未来10年内耗资8.04亿美元强化和升级澳大利亚在南极洲的科研活动。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E6%88%AA%E5%B1%8F2022-02-23-%E4%B8%8B%E5%8D%8811.15.01.png)
-据悉，早在1961年10月，包括澳大利亚和中共国在内的54个国家曾共同签署了《南极条约》及其他的相关协定，这些协议后来被称为《南极条约体系》。该体系旨在约束各国在南极洲大陆上的各类活动，包括将南极洲作为科学保护区，承认科学调查自由，但禁止在南极洲进行军事或采矿活动，同时限制捕鱼行为。然而，澳洲智库洛伊国际政策研究所在最近发表的一份报告中指出，中共政府正在试图推动“扩大解释《南极条约体系》的规定”。 对此，洛伊研究所解释道，中共近几年持续探测南极洲的渔业和旅游资源，其在《南极条约体系》内表现得越来越强势，并且极有可能在当地寻求获取西方技术的方法。另一方面，人们担心中共未来很有可能率领一些国家寻求南极洲上只有中共有能力开发的矿产资源，为自己谋取福利。
+2月24日清晨，俄罗斯总统普京发表全国讲话，宣布在乌克兰东部顿巴斯地区发起“特别军事行动”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-374.jpg)
+之后不久，乌克兰外长推文表示，俄罗斯已经对乌克兰展开全面入侵，并用火箭和飞弹定点打击乌克兰城市目标。
 
+另据多家媒体报道，俄军先是登陆了乌克兰南部海港城市奥德萨、马里波。第一波袭击的目标是乌克兰多地的军事设施和军用机场。随后的消息称，乌克兰武装部队空军的军事基础设施已瘫痪，防空力量被完全压制。乌克兰首都基辅的鲍里斯波尔机场已经开始进行人员疏散。
 
+乌克兰外长呼吁世界各国必须拿出实际行动制止普京的疯狂举动。
 
-文字版原文：[澳大利亚计划在南极洲投资制约中共](https://gnews.org/zh-hans/2056373/)
+根据多方推测以及郭文贵先生多次透露的消息，中共极有可能趁国际焦点聚在乌克兰之际突袭台湾。本台郑重提醒目前在台湾的各位战友，一定注意与所在农场随时保持联系，注意相关新闻动向，做好各种预防措施，确保个人及家人安全。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+参考链接：
+1) .[Russia launches massive invasion of Ukraine — live updates](https://amp.dw.com/en/ukraine-says-russia-has-launched-full-scale-invasion-live-updates/a-60893588)
+2) . [【乌克兰直击】俄外交部谈军事行动：这不是战争的开始，而是在阻止全球战争](https://wallstreetcn.com/articles/3652716)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+
+总编/编辑: 飞虹
+校正/发稿：Fei797
+
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

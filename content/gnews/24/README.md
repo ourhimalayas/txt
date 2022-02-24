@@ -2,50 +2,35 @@
 ---
 
 
-## 俄罗斯入侵乌克兰 欧美出台对俄制裁措施
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2059342/)
+## 有声|澳大利亚计划在南极洲投资制约中共
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2059430/)
 
-作者：香草山教育部 – Naughty(文行)
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月21日，据有关媒体报道，为了制衡中共在南极洲的强势和咄咄逼人的行为，澳大利亚总理斯科特-莫里森发布声明表示，澳州联邦政府将在未来10年内耗资8.04亿美元强化和升级澳大利亚在南极洲的科研活动。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E6%88%AA%E5%B1%8F2022-02-23-%E4%B8%8B%E5%8D%8811.15.01.png)
+据悉，早在1961年10月，包括澳大利亚和中共国在内的54个国家曾共同签署了《南极条约》及其他的相关协定，这些协议后来被称为《南极条约体系》。该体系旨在约束各国在南极洲大陆上的各类活动，包括将南极洲作为科学保护区，承认科学调查自由，但禁止在南极洲进行军事或采矿活动，同时限制捕鱼行为。然而，澳洲智库洛伊国际政策研究所在最近发表的一份报告中指出，中共政府正在试图推动“扩大解释《南极条约体系》的规定”。 对此，洛伊研究所解释道，中共近几年持续探测南极洲的渔业和旅游资源，其在《南极条约体系》内表现得越来越强势，并且极有可能在当地寻求获取西方技术的方法。另一方面，人们担心中共未来很有可能率领一些国家寻求南极洲上只有中共有能力开发的矿产资源，为自己谋取福利。
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+文字版原文：[澳大利亚计划在南极洲投资制约中共](https://gnews.org/zh-hans/2056373/)
 
-
-
-普京21日宣布承认乌东2个分离主义共和国独立，并派俄军入境维和后，欧盟和美国一致认为俄罗斯该举动是入侵乌克兰的开始，纷纷推出台针对俄罗斯的制裁措施。
-
-法国外长勒德里安22日以欧盟轮值主席国身份表示，欧盟成员国一致同意对俄罗斯国家杜马351位议员以及27个实体及个人实施制裁，范围涵盖政治、军事、商业和媒体。
-
-欧盟外长波瑞尔和欧盟执委会主席范德赖恩先后表示，欧盟一系列制裁方案除了锁定参与侵略行动的个人和企业外，还包括禁止乌东2个分离地区与欧盟进行贸易，以及欧盟限制俄罗斯政府在欧盟金融市场上筹资的能力。欧盟希望此措施尽可能遏制克里姆林宫推动侵略。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide6-7.jpg)
-美国总统拜登同一天宣布制裁俄罗斯2大金融机构。他宣布对俄罗斯国有开发银行（VEB）与军方银行2大金融机构全面封锁，对俄罗斯主权债务实施全面制裁，切断俄罗斯政府与西方金融体系的联系，使其无法再从西方筹募资金或在欧美市场交易新债。
-
-美国财政部随即公布制裁名单，包括VEB与Promsvyazbank（PSB）及其42家子公司。此外，也宣布制裁多位普京核心圈中具有影响力的人员及其家人，包括PSB主席兼执行长。
-
-参考链接：
-1. [Europe Sanctions Russia Over Ukraine Crisis, Coordinating Squeeze With the U.S.](https://www.nytimes.com/2022/02/22/world/europe/eu-sanctions-russia-ukraine.html)
-2. [Biden imposes new Russia sanctions, decries ‘beginning invasion’](https://www.aljazeera.com/news/2022/2/22/biden-imposes-new-russia-sanctions-decries-beginning-invasion)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-
-总编：zhong
-编辑：Lakeman文仁
-校对/发稿：为真不破20
-
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
 **更多资讯，更多关注**
 
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

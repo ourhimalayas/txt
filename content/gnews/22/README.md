@@ -2,33 +2,49 @@
 ---
 
 
-## 中共病毒疫苗的致死率是普通疫苗的50倍
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2059347/)
+## 不满俄承认乌东两国独立 德中止北溪2号方案
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2059442/)
 
-作者：银河系农场 – 骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月21日，据相关媒体消息显示，一项针对美国官方中共病毒疫苗不良反应数据的研究发现，中共病毒疫苗针剂的致死率至少是普通流感疫苗的50倍。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/7-36.jpg)
-据悉，美国疾病控制与预防中心CDC设立的疫苗不良事件报告系统VAERS包含了美国所有因疫苗造成的不良反应报告的历史数据。其中，在2020年12月至2022年1月28日期间，即自政府推进中共病毒疫苗接种工作后，该系统报告的不良反应事件超过74万例；然而，该系统在2008年到2020年间，一共只报告了13万余例疫苗不良反应事件。
+作者：香草山教育部 – Naughty(文行)
 
-基于对该系统中数据和疫苗接种剂量的分析，研究人员指出，与普通流感疫苗相比，中共病毒疫苗使接种者需要紧急护理的可能性高出了65倍，致残率增加了19倍，致死率提高了49倍，且造成接种者下一代先天缺陷的概率上升了57倍。综合数据表明，中共病毒疫苗注射剂造成的死亡人数至少是流感疫苗的49倍。
 
-但有评论人士表示，海量的数据和证据已经证实了中共病毒疫苗的害处远远大于它有可能给接种者带来的防护性，但部分国家的政府仍旧一意孤行地试图推进在儿童群体中的中共病毒疫苗接种工作。这一举措带来的次生灾难或将难以估量。
 
-参考链接：[FACT: Covid-19 Vaccines are almost 50 times Deadlier than the Flu Vaccines per Number of Doses administered according to official USA data](https://dailyexpose.uk/2022/02/21/covid-vaccines-50-times-deadlier-than-flu-vaccines/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-总编/编辑: Irene木木 
-校正/发稿：Fei797
+
+德国总理萧兹22日表示，针对俄罗斯承认乌克兰东部两个分离主义地区独立，他将终止与俄国合作的北溪2号天然气管线案审核程序。在与俄罗斯的紧张对峙日益加剧之际，西方各国及乌克兰把这条管线视为跟俄罗斯博弈的一项筹码。
+
+北溪2号天然气管线计划向来是德国与盟友关系紧张的原因之一，俄罗斯预定经由这条取道波罗的海的管线，输送天然气给德国。德国的盟友声称这会导致德国对于能源仰赖益增，并大大增加俄罗斯对欧洲的影响力。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide5-6.jpg)
+乌克兰总统泽伦斯基今天稍早要求立即终止北溪2号天然气管线方案。萧兹上周访问基辅时，泽伦斯基表示，俄罗斯将把持这条管线作为地缘政治武器。
+
+萧兹今天还表示，终止这项方案的决定仅是具体行动之一，后续可能对俄罗斯实施进一步制裁。萧兹称，相信欧盟将同意德国针对俄罗斯采取重大而有力的制裁方案。
+
+参考链接：
+1. [German government halts certification of nord stream 2 gas pipeline](https://www.spiegel.de/international/europe/german-government-halts-certification-of-nord-stream-2-gas-pipeline-a-c2b987d1-2bb1-4ee5-b6e2-ad98b812a4a6)
+2. [Ukraine-Russia: Germany suspends Nord Stream 2 gas pipeline](https://www.todayville.com/ukraine-russia-germany-suspends-nord-stream-2-gas-pipeline/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+
+总编：zhong
+编辑：Lakeman文仁
+校对/发稿：为真不破20
 
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

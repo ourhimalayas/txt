@@ -15,131 +15,131 @@
 
 ---
 
-### [2/23/2022 文贵直播：彭丽媛的表哥买了拐卖女为妻，习近平和彭丽媛比任何人都清楚中国的被拐卖妇女的悲惨生活](/content/gnews/1/README.md)
- ` 秘密翻译组-北美组`
+### [秘翻在线：俄乌相争中国人民买单，能源波动或绷断供应链](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [中共必将用蓝金黄葬送自己](/content/gnews/2/README.md)
+### [美国前国务卿蓬佩奥谈台湾局势](/content/gnews/2/README.md)
  ` NFSC News`
 
-### [2/23/2022 文贵直播：在县乡镇村等基层单位，常常是几个家族承包了公检法等重要部门，他们之间的利益保护使类似”锁链女”这样的事件在中共国层出不穷](/content/gnews/3/README.md)
+### [秘翻在线： 频繁猝死的中共国老百姓](/content/gnews/3/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [川普：普京谋求乌克兰，中共一定打台湾](/content/gnews/4/README.md)
+ ` NFSC News`
+
+### [民调显示 多数美国选民支持军事保卫台湾](/content/gnews/5/README.md)
+ ` NFSC News`
+
+### [2/23/2022 文贵直播：彭丽媛的表哥买了拐卖女为妻，习近平和彭丽媛比任何人都清楚中国的被拐卖妇女的悲惨生活](/content/gnews/6/README.md)
  ` 秘密翻译组-北美组`
 
-### [英国政府非官方承认中共病毒来自武汉](/content/gnews/4/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [第224期 玫瑰看新闻](/content/gnews/5/README.md)
- ` 【🌹玫瑰新闻】`
-
-### [美国卡车司机华盛顿抗议活动是否会如加国一样被警察野蛮执法？](/content/gnews/6/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [2/23/2022 文贵直播：疫苗最终可能导致5到10亿人死亡或残疾，文贵相信很快会有针对疫苗的有效的办法](/content/gnews/7/README.md)
- ` 秘密翻译组-北美组`
-
-### [视频|HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言](/content/gnews/8/README.md)
- ` MOSVIDEO`
-
-### [有声|德大陆集团无视中共施压，继续投资立陶宛](/content/gnews/9/README.md)
+### [有声|魔鬼的圈套——评杨贝贝和她的所谓采访（七）（完结篇）](/content/gnews/7/README.md)
  ` MOSREC`
 
-### [俄罗斯开始进攻乌克兰 提醒台湾战友预防中共突袭](/content/gnews/10/README.md)
+### [中共必将用蓝金黄葬送自己](/content/gnews/8/README.md)
  ` NFSC News`
 
-### [文革受害者之中国近代文豪老舍](/content/gnews/11/README.md)
- ` NFSC News`
-
-### [中共“铁链女”最新调查结果再引众怒](/content/gnews/12/README.md)
- ` NFSC News`
-
-### [澳大利亚宣布对俄罗斯实施制裁](/content/gnews/13/README.md)
- ` NFSC News`
-
-### [加国政治记者将加拿大比作中共国](/content/gnews/14/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [不满俄承认乌东两国独立 德中止北溪2号方案](/content/gnews/15/README.md)
- ` NFSC News`
-
-### [新西兰小区病例新增首破3000例检测阳性率达12.2%](/content/gnews/16/README.md)
- ` 【🌹玫瑰新闻】`
-
-### [有声|澳大利亚计划在南极洲投资制约中共](/content/gnews/17/README.md)
- ` MOSREC`
-
-### [2/23/2022 文贵直播：中文世界所谓的国际军事专家、政治专家都是骗子、中共的走狗；普京和习玩的是突然袭击的双向战略](/content/gnews/18/README.md)
+### [2/23/2022 文贵直播：在县乡镇村等基层单位，常常是几个家族承包了公检法等重要部门，他们之间的利益保护使类似”锁链女”这样的事件在中共国层出不穷](/content/gnews/9/README.md)
  ` 秘密翻译组-北美组`
 
-### [视频|俄罗斯入侵乌克兰 欧美出台对俄制裁措施](/content/gnews/19/README.md)
- ` MOSVIDEO`
-
-### [蓬佩奥解析当下中俄关系 习近平会破坏世界秩序](/content/gnews/20/README.md)
- ` NFSC News`
-
-### [新冠疫苗接种覆盖率近122国家没有“达标”](/content/gnews/21/README.md)
+### [英国政府非官方承认中共病毒来自武汉](/content/gnews/10/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [中共病毒疫苗的致死率是普通疫苗的50倍](/content/gnews/22/README.md)
+### [有声|普京启动战略威慑力量演习](/content/gnews/11/README.md)
+ ` MOSREC`
+
+### [第224期 玫瑰看新闻](/content/gnews/12/README.md)
+ ` 【🌹玫瑰新闻】`
+
+### [美国卡车司机华盛顿抗议活动是否会如加国一样被警察野蛮执法？](/content/gnews/13/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [2/23/2022 文贵直播：疫苗最终可能导致5到10亿人死亡或残疾，文贵相信很快会有针对疫苗的有效的办法](/content/gnews/14/README.md)
+ ` 秘密翻译组-北美组`
+
+### [视频|HBO VICE 采访郭文贵先生背后的真相 &#8211; 揭露HBO VICE精心编织的谎言](/content/gnews/15/README.md)
+ ` MOSVIDEO`
+
+### [有声|德大陆集团无视中共施压，继续投资立陶宛](/content/gnews/16/README.md)
+ ` MOSREC`
+
+### [俄罗斯开始进攻乌克兰 提醒台湾战友预防中共突袭](/content/gnews/17/README.md)
  ` NFSC News`
 
-### [郭文贵先生发出警告中共侵台战争很快会发生](/content/gnews/23/README.md)
+### [文革受害者之中国近代文豪老舍](/content/gnews/18/README.md)
+ ` NFSC News`
+
+### [中共“铁链女”最新调查结果再引众怒](/content/gnews/19/README.md)
+ ` NFSC News`
+
+### [澳大利亚宣布对俄罗斯实施制裁](/content/gnews/20/README.md)
+ ` NFSC News`
+
+### [加国政治记者将加拿大比作中共国](/content/gnews/21/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [不满俄承认乌东两国独立 德中止北溪2号方案](/content/gnews/22/README.md)
+ ` NFSC News`
+
+### [新西兰小区病例新增首破3000例检测阳性率达12.2%](/content/gnews/23/README.md)
+ ` 【🌹玫瑰新闻】`
+
+### [有声|澳大利亚计划在南极洲投资制约中共](/content/gnews/24/README.md)
+ ` MOSREC`
+
+### [2/23/2022 文贵直播：中文世界所谓的国际军事专家、政治专家都是骗子、中共的走狗；普京和习玩的是突然袭击的双向战略](/content/gnews/25/README.md)
+ ` 秘密翻译组-北美组`
+
+### [蓬佩奥解析当下中俄关系 习近平会破坏世界秩序](/content/gnews/26/README.md)
+ ` NFSC News`
+
+### [郭文贵先生发出警告中共侵台战争很快会发生](/content/gnews/27/README.md)
  ` 全球G系列咨服群`
 
-### [俄罗斯入侵乌克兰 欧美出台对俄制裁措施](/content/gnews/24/README.md)
+### [俄罗斯入侵乌克兰 欧美出台对俄制裁措施](/content/gnews/28/README.md)
  ` NFSC News`
 
-### [新西兰通过新建模显示两地单日新增病例可达9000例](/content/gnews/25/README.md)
+### [新西兰通过新建模显示两地单日新增病例可达9000例](/content/gnews/29/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [2/23/2022 文贵直播：乌克兰事件反映出普京是个国际战略大家，冬奥会前制造开战声势，冬奥会见习攫取中共大量利益，会后佯装撤军并吸引各国与之勾兑，北溪2号实际上仍在输送天然气](/content/gnews/26/README.md)
+### [2/23/2022 文贵直播：乌克兰事件反映出普京是个国际战略大家，冬奥会前制造开战声势，冬奥会见习攫取中共大量利益，会后佯装撤军并吸引各国与之勾兑，北溪2号实际上仍在输送天然气](/content/gnews/30/README.md)
  ` 秘密翻译组-北美组`
 
-### [有声|先锋和贝莱德 与中共病毒及疫苗强制关系密切](/content/gnews/27/README.md)
+### [有声|先锋和贝莱德 与中共病毒及疫苗强制关系密切](/content/gnews/31/README.md)
  ` MOSREC`
 
-### [澳大利亚宣布因俄罗斯承认顿涅茨克和卢甘斯克独立对其实施制裁](/content/gnews/28/README.md)
+### [澳大利亚宣布因俄罗斯承认顿涅茨克和卢甘斯克独立对其实施制裁](/content/gnews/32/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [恩宠/恭顺](/content/gnews/29/README.md)
+### [恩宠/恭顺](/content/gnews/33/README.md)
  ` 纽约香草山MOS03`
 
-### [美国及世界疫情简报（02-24-2022）](/content/gnews/30/README.md)
+### [美国及世界疫情简报（02-24-2022）](/content/gnews/34/README.md)
  ` 波士顿五月花农场`
 
-### [【粤语配音】2022年2月23日：“甜蜜蜜运动”继续发酵到中南坑](/content/gnews/31/README.md)
- ` MOS香港部`
-
-### [卢甘斯克两名平民被乌克兰强力人员炮击身亡](/content/gnews/32/README.md)
+### [卢甘斯克两名平民被乌克兰强力人员炮击身亡](/content/gnews/35/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [中共欲趁俄入侵乌克兰之际武统台湾](/content/gnews/33/README.md)
+### [中共欲趁俄入侵乌克兰之际武统台湾](/content/gnews/36/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [新西兰政府计划对9年级以下国际学生进行限制招生](/content/gnews/34/README.md)
+### [新西兰政府计划对9年级以下国际学生进行限制招生](/content/gnews/37/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [DC每日热点0224](/content/gnews/35/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [打劫香港富人从差饷累进制开始](/content/gnews/36/README.md)
+### [打劫香港富人从差饷累进制开始](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [视频|中共拘捕日本大使馆工作人员违反维也纳公约](/content/gnews/37/README.md)
+### [视频|中共拘捕日本大使馆工作人员违反维也纳公约](/content/gnews/39/README.md)
  ` MOSVIDEO`
 
-### [北京奥运会令美国NBC黄金时段收视率创纪录下降 42%](/content/gnews/38/README.md)
- ` 【🌹玫瑰新闻】`
-
-### [加拿大解除对与抗议有关的银行账户的冻结](/content/gnews/39/README.md)
+### [加拿大解除对与抗议有关的银行账户的冻结](/content/gnews/40/README.md)
  ` 首尔天池农场`
 
-### [前苏联3个国家提出将俄罗斯提出SWIFT](/content/gnews/40/README.md)
+### [前苏联3个国家提出将俄罗斯提出SWIFT](/content/gnews/41/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [CDC失口承认新冠鼻拭子测试被用于基因组排序分析](/content/gnews/41/README.md)
+### [CDC失口承认新冠鼻拭子测试被用于基因组排序分析](/content/gnews/42/README.md)
  ` 墨尔本雅典娜农场`
-
-### [【秘翻北美时评】乌克兰又遭网攻 政府外交部网站全挂](/content/gnews/42/README.md)
- ` 秘密翻译组-即时新闻播报组`
 
 ### [为了给男孩输入含疫苗的血液，法庭剥夺了父母的监护权](/content/gnews/43/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
