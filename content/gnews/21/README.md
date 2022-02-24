@@ -2,27 +2,27 @@
 ---
 
 
-## 马歇尔参议员：是时候夺回我们对日常生活的掌控了
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2058860/)
+## 视频|中共拘捕日本大使馆工作人员违反维也纳公约
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2058953/)
 
-##### 素材：麦克阿sir
-翻译：圣地亚哥（文法）
-校对：枳实
-字幕：向上James
-编辑：Mttfly
+制作：香草山视频部
 
-堪萨斯州马歇尔参议员曾揭露了福奇的谎言。在接受福克斯新闻采访时，他表示现在的任务有二：一是停止拜登总统的紧急状态令，即冠状病毒紧急状态宣言；二是停止福奇博士的疫苗强制令，现在是我们从乔·拜登和福奇博士手中夺回我们对日常生活的掌控的时候了。
+2月22日，日本外务省发布公告称，其驻中共国大使馆的工作人员，在21日遭到中共当局非法拘禁。虽然目前该名工作人员已经被释放，但是日本国政府的森健良事务次官在22日，表示这是近年没有发生过的，并指斥中共对日方工作人员进行了长时间的拘禁，这种行为已经违反了维也纳公约。他通知了驻日本的中共临时大使杨宇，表达了日本的严正抗议，并且要求中共的道歉。
 
-视频链接：[Sen. Roger Marshall to introduce bill to end COVID-19 declaration: ‘It’s about power and control’](https://video.foxnews.com/v/6297299536001#sp=show-clips)
+截至发稿时，中共也没有道歉甚至没有报道此事，而临时大使杨宇仅向日方表示，需要向中共请示后才能做出答复。
 
-*发布：Mttfly*
+维也纳公约明确规定，所有外交人员享有不被逮捕、大使馆领地不可侵犯的特权，这些特权，是所有签署维也纳公约国必须尊重的规则。分析人士指出，中共在冬奥会和残奥会的间隙，拘捕外交人员会进一步让世界看清，中共不守规则、开展人质外交的丑陋嘴脸。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

@@ -2,30 +2,25 @@
 ---
 
 
-## 日媒指普京本没有资格出席中共冬奥会
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2059044/)
+## 中共欲趁俄入侵乌克兰之际武统台湾
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2059122/)
 
-作者：日本方舟农场 – Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月18日，据日本媒体指出，按照联合国规定，各国应该在奥运会前后暂停纷争，但作为北京冬奥会东道主的习近平却没有要求普京停止对乌克兰的威胁。另一方面，由于兴奋剂问题，俄罗斯被禁止在冬奥会上以国家队名义参赛，其国家领导人也不应出席中共冬奥会。因此，从各个层面上看，普京都没有资格参加此次中共冬奥会的开幕式。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/4-53.jpg)
-然而，在本届冬奥会上，不仅中共违背常理地将普京作为最高国宾，连国际奥林匹克委员会主席巴赫也对此默不作声。
+加拿大温哥华杨帆农场 枫叶快讯
 
-参考链接：[20220218日媒揭露CCP冬奧會上習近平給普京的特權](https://www.gettr.com/post/pw3jzh830f)
+采编：风云小哥     翻译：文莱
+![Chinese President Xi Jinping (C) arrives with Premier Li Keqiang (L) for a reception at the Great Hall of the People in Beijing on the eve of China's National Day on September 30, 2021. (Photo by GREG BAKER / AFP) (Photo by GREG BAKER/AFP via Getty Images)](https://media.breitbart.com/media/2021/12/GettyImages-1235598632-640x480.jpg)图片来源：[breitbart.com](https://www.breitbart.com/asia/2022/02/22/china-demands-unwavering-support-for-taiwan-invasion-from-defenders-of-ukraine/)
+据【布莱特巴特新闻】2月22日报道，中共《环球时报》日前竟将乌克兰东部分裂地区与主权国家台湾进行比较，并以此敦促G7成员国支持其即将发动的台海战争。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+报道称，中共当局以上言论是在普京日前宣布承认乌克兰[顿涅茨克]和[卢甘斯克]为主权国家，并命令俄军进入该地区后发表的。俄罗斯自2014年以来，就作为代理人一直在背后参与该地区分裂势力与乌克兰的战争行动。
 
-总编: Irene木木
-编辑: 飞虹 
-校正/发稿：Fei797
+据悉，尽管G7成员国都明确表示将支持乌克兰领土完整，但《环球时报》却将俄罗斯入侵乌克兰与中共计划武统台湾相提并论，企图以此完全否定台湾作为独立主权国家的合法性。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+校对编辑：硫酸羟氯喹64
+
+发稿：青青
+
+消息来源：[China Demands ‘Unwavering Support’ for Taiwan Invasion from Defenders of Ukraine (breitbart.com)](https://www.breitbart.com/asia/2022/02/22/china-demands-unwavering-support-for-taiwan-invasion-from-defenders-of-ukraine/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

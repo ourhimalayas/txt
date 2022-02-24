@@ -2,69 +2,23 @@
 ---
 
 
-## 有声|怒
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2059092/)
+## 日本前首相安倍晋三谴责俄罗斯对乌克兰的入侵
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2059187/)
 
-配音：香草山农场 – 信念7
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-序:（引用) 您好，这个链接我看了，但是我没有任何兴趣，我深爱着我的祖国，深爱着我们中国共产党，是我的祖国将我培养长大，虽然我现在没有办法做什么事情报答我的祖国、我们的党，但我会永远忠诚于我的祖国，永远忠诚于中国共产党。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_9272.jpg)
-这个操蛋社会
-真相被掩盖
-如同热带雨林之谜踪
-看见起始脚印
-再也不见踪影
-洗脑又洗脑
-输灌又输灌
-聪明人
-变成笨蛋
-智慧远离悲凉人生
+撰稿：东京樱花团/百花李香
 
-不
-这些哪里够
-仅仅迫害
-哪里能够满足他们贪婪成性
-于是
-在这个国度里
-普遍流行
-斯德哥尔摩综合症
+![](https://assets.gnews.org/wp-content/uploads/2022/02/日本前首相安倍晋三谴责俄罗斯对乌克兰的入侵.jpg)[图片来源](https://www.sohu.com/a/500510414_180220)
 
-偷窃了你们的财富
-偷窃了你们的人生
-偷窃了你们的智慧
-偷窃了你们的爱情
+日本前首相安倍晋三2月24日在自民党总部的会议上谴责了俄罗斯对乌克兰的入侵，他表示，这是俄罗斯对国际秩序的严重挑战，是无法原谅的。他希望俄罗斯拿出诚意来会谈协商来面对局势，并立即撤军。
 
-魔鬼们狂欢盛宴
-酒杯里血浆翻滚
-人们哀嚎悲鸣
-是他们天籁之音
+安倍晋三在他的第二个任期内，曾与普京进行了一系列首脑会议，就存在的北方领土争端和其它问题进行了谈判，建立了一种信任关系，两位领导人曾互相称呼对方的名字。今天对媒体开放的部分会议中没有直接提到普京的内容。
 
-可是
-沉睡的人们
-依然爱着魔鬼
-奉献着
-肉体和爱情
+信息源：[安倍元首相「断じて許すわけにはいかない」ロシア非難　ウクライナ侵攻に「ただちに兵を引いて」](text=)
 
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
 
-
-文字版原文：[怒](https://gnews.org/zh-hans/2030261/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
 
  
 

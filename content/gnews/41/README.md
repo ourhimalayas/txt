@@ -2,43 +2,45 @@
 ---
 
 
-## 加拿大法院判定中共国侨办为间谍组织
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2057862/)
+## 拜登政府详述美国对俄罗斯的进一步制裁措施
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2058129/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+据《福克斯商业》作者：Breck Dumas，2022年2月22日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2258.png)2022年2月1日星期二，俄罗斯总统弗拉基米尔-普京在俄罗斯莫斯科克里姆林宫的新闻发布会上。 图片来源：Yuri Kochetkov/Pool Photo 通过AP Newsroom
+美国总统拜登在普京向乌克兰部署军队后宣布对俄罗斯采取更多制裁措施。
 
-整理：Eileen（围剿维尼熊）
-编辑：Mttfly
+拜登政府周二提供了美国对俄罗斯实施制裁的细节，以回应俄罗斯总统弗拉基米尔-普京前一天对乌克兰的入侵。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/9-31.png)图片来源：雅典娜设计组&technadu
+在拜登总统发表讲话，宣布加强对俄罗斯制裁，以回应他所谓的“入侵乌克兰”的“开始”之后，美国财政部公布了通过其外国资产管制处（OFAC）实施的强化制裁措施。
 
+首先，政府已将克里姆林宫的两家主要国有银行从美国金融系统中切断，以努力打击俄罗斯资助进一步侵略的能力。
 
-根据大纪元2月24日讯，加拿大联邦法院今年1月以中共国国务院侨务办公室（OCAO）涉嫌从事间谍活动为由，驳回了2名中国公民的移民上诉。
+这两个机构，即国家发展和对外经济事务银行（Vnesheconombank）和Promsvyazbank公共股份公司（PSB），对于资助俄罗斯的国防工业至关重要。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2259.png)2022年2月22日，在华盛顿特区，拜登总统在白宫东厅就乌克兰和俄罗斯的事态发展发表讲话，并宣布对俄罗斯的制裁。 图片来源：Drew Angerer/Getty
+财政部还列出了被外国资产管制处盯上的“与普京关系密切的精英和家族”，称“受制裁的寡头利用家族成员转移资产，掩盖其巨大的财富”。
 
-根据法院的裁决书，联邦法官凡妮莎‧罗切斯特（Vanessa Rochester）认为，有合理的理由相信，侨办从事了“违背加拿大利益”的间谍活动。
+这五个人的名字是Aleksandr Vasilievich Bortnikov和他的儿子Denis Aleksandrovich Bortnikov，Petr Mikhailovich Fradkov，Sergei Vladilenovich Kiriyenko，以及他的儿子Vladimir Sergeevich Kiriyenko。
 
-据《国家邮报》报导，前加拿大驻北京外交官、麦克唐纳·劳里埃研究所（MLI）高级研究员伯顿（Charles Burton）说，加拿大安全情报局（CSIS）和加拿大骑警都曾就此类中共组织的干预活动向政府提出建议，但政客们倾向于压制这些信息，因为他们担心会损害加中贸易。
+美国也在进一步限制俄罗斯管理其主权债务的能力。拜登在白宫的演讲中解释道，“这意味着我们已经切断了俄罗斯政府与西方国家的融资联系， 它不能再从西方筹集资金，也不能在我们的市场或欧洲市场上交易其新的债券。”
 
-另外，被侨办针对的人往往都非常害怕，不但担心自己，也担心他们在中国的亲人。他们都不敢公开说话。
+周一，普京向乌克兰的两个分离主义地区——顿涅茨克和卢甘斯克部署了部队，这两个地区位于该国东部一个名为顿巴斯的地区。俄罗斯总统称这一行动为维和任务，并承认这两个地区是独立的。
 
-中共政权把所有居住在其它国家的华人都称为华侨，即使这些华人的家庭已经在中国境外延续了几代人。
+入侵发生后，拜登发布行政命令，禁止美国人与顿涅茨克和卢甘斯克做生意。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2260.png)2022年2月22日，一名乌克兰军人在卢甘斯克地区Troitske定居点附近与分离主义分子的前线阵地上吸烟。图片来源：ANATOLII STEPANOV/AFP 通过Getty
+现在，白宫发誓，如果普京的军队超越这两个地区，深入乌克兰，将实施进一步制裁。
 
-加拿大移民官员的决定及法官的裁决，在很大程度上是基于亚洲新西兰基金会（ANZF）高级顾问杜建华（James Jiann Hua To）的研究。
+拜登的一位高级官员星期二说，“这是入侵的开始，这是我们回应的开始，如果普京进一步升级，我们可利用的金融制裁和出口管制将进一步升级，我们还未公布。”
 
-杜建华在其研究报告中写道，虽然侨办表面上声称要为侨民提供支持，其目标实际上是为了“合法化及保护”中共的权力，提升其国际形象并发挥其影响力。为达到此目标，侨办收集海外华人的情报并试图影响他们。
+原文连接：[**https://www.foxbusiness.com/politics/treasury-biden-unveils-details-us-sanctions-against-russia**](https://www.foxbusiness.com/politics/treasury-biden-unveils-details-us-sanctions-against-russia)
 
-参考链接：[加拿大法院创先例 中共侨办定为间谍组织](https://www.epochtimes.com/gb/22/2/23/n13600139.htm)
+翻译：洛杉矶盘古农场 – TrueSky
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-关联阅读：[加拿大政府报告：中共国实施广泛的间谍和操纵活动](https://gnews.org/zh-hans/1926639/)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

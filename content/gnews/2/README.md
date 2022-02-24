@@ -2,25 +2,26 @@
 ---
 
 
-## 中共欲趁俄入侵乌克兰之际武统台湾
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2059122/)
+## 巴基斯坦总理与普京会面 不忌战火投奔“新东家”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2059228/)
 
-加拿大温哥华杨帆农场 枫叶快讯
+撰稿：东京樱花团/麗子
 
-采编：风云小哥     翻译：文莱
-![Chinese President Xi Jinping (C) arrives with Premier Li Keqiang (L) for a reception at the Great Hall of the People in Beijing on the eve of China's National Day on September 30, 2021. (Photo by GREG BAKER / AFP) (Photo by GREG BAKER/AFP via Getty Images)](https://media.breitbart.com/media/2021/12/GettyImages-1235598632-640x480.jpg)图片来源：[breitbart.com](https://www.breitbart.com/asia/2022/02/22/china-demands-unwavering-support-for-taiwan-invasion-from-defenders-of-ukraine/)
-据【布莱特巴特新闻】2月22日报道，中共《环球时报》日前竟将乌克兰东部分裂地区与主权国家台湾进行比较，并以此敦促G7成员国支持其即将发动的台海战争。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/巴基斯坦总理与普京会面-不忌战火投奔新东家.jpg)[图片来源](https://sunnews.cc/international/1028948/%E4%B9%8C%E5%85%8B%E5%85%B0%E5%B1%80%E5%8A%BF%E7%B4%A7%E5%BC%A0%E4%B9%8B%E9%99%85%EF%BC%8C%E5%B7%B4%E5%9F%BA%E6%96%AF%E5%9D%A6%E6%80%BB%E7%90%86%E5%B0%86%E8%AE%BF%E9%97%AE%E4%BF%84%E7%BD%97%E6%96%AF.html)
 
-报道称，中共当局以上言论是在普京日前宣布承认乌克兰[顿涅茨克]和[卢甘斯克]为主权国家，并命令俄军进入该地区后发表的。俄罗斯自2014年以来，就作为代理人一直在背后参与该地区分裂势力与乌克兰的战争行动。
+2月24日，正在俄罗斯访问的巴基斯坦总理伊姆兰·汗在莫斯科与普京总统进行了会面。
 
-据悉，尽管G7成员国都明确表示将支持乌克兰领土完整，但《环球时报》却将俄罗斯入侵乌克兰与中共计划武统台湾相提并论，企图以此完全否定台湾作为独立主权国家的合法性。
+这是自俄罗斯承认乌克兰东部亲俄派控制地区独立后，外国领导人对俄罗斯的首次访问。来自巴基斯坦的视频录像显示，普京在会晤开始时面带微笑，而巴基斯坦总理则一直表情僵硬。
 
-校对编辑：硫酸羟氯喹64
+这是巴基斯坦总理23年来对俄罗斯的首次访问。在冷战期间，巴基斯坦与美国关系密切，但近年来，由于反恐对策以及对邻国阿富汗伊斯兰组织塔利班的处理应对，与美国的关系有所恶化。据信这次会晤的目的是为了炫耀巴基斯坦与俄罗斯的关系。
 
-发稿：青青
+信息源：
 
-消息来源：[China Demands ‘Unwavering Support’ for Taiwan Invasion from Defenders of Ukraine (breitbart.com)](https://www.breitbart.com/asia/2022/02/22/china-demands-unwavering-support-for-taiwan-invasion-from-defenders-of-ukraine/)
+[パキスタン首相、プーチン氏と会談　独立承認後初の首脳訪ロ](https://news.yahoo.co.jp/articles/7e25671f30b607932ed744db20e8895c5e6c75c8)
 
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

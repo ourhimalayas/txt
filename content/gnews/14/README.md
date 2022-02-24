@@ -2,28 +2,22 @@
 ---
 
 
-## 视频|中共拘捕日本大使馆工作人员违反维也纳公约
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2058953/)
+## 与俄罗斯断交 乌克兰总统要求人民保卫国家并将提供武器
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2059073/)
 
-制作：香草山视频部
+撰稿：东京樱花团｜百花李香
 
-2月22日，日本外务省发布公告称，其驻中共国大使馆的工作人员，在21日遭到中共当局非法拘禁。虽然目前该名工作人员已经被释放，但是日本国政府的森健良事务次官在22日，表示这是近年没有发生过的，并指斥中共对日方工作人员进行了长时间的拘禁，这种行为已经违反了维也纳公约。他通知了驻日本的中共临时大使杨宇，表达了日本的严正抗议，并且要求中共的道歉。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/与俄罗斯断交-乌克兰总统要求人民保卫国家并将提供武器.png)[*图片来源*](https://www.aa.com.tr/en/africa/russia-building-military-bases-in-africa-report-/1931550#:~:text=Russia%20building%20military%20bases%20in%20Africa%3A%20Report)
 
-截至发稿时，中共也没有道歉甚至没有报道此事，而临时大使杨宇仅向日方表示，需要向中共请示后才能做出答复。
+据路透社等媒体报道，乌克兰总统泽连斯基24日表明，在俄罗斯开始对乌克兰发动进攻后，他已经与俄罗斯决裂。
 
-维也纳公约明确规定，所有外交人员享有不被逮捕、大使馆领地不可侵犯的特权，这些特权，是所有签署维也纳公约国必须尊重的规则。分析人士指出，中共在冬奥会和残奥会的间隙，拘捕外交人员会进一步让世界看清，中共不守规则、开展人质外交的丑陋嘴脸。
+泽连斯基表示，乌克兰政府计划向国民提供武器，保卫国家。并呼吁俄罗斯国民示威抗议战争的开始。
 
-发稿：Daxia
+信息来源：[**ウクライナ大統領、ロシアと断交…国民に国土防衛求め武器供与へ**](https://news.yahoo.co.jp/articles/119b75aa53c141d87d349537226a25faa8702401#:~:text=)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
