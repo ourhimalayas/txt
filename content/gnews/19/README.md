@@ -2,27 +2,34 @@
 ---
 
 
-## 紧急状态的宣布绝对是关于权力和控制
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2059007/)
+## 视频|孔子学院持续关闭，孔院实质不断被揭发
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2059227/)
 
-##### 素材：麦克阿sir
-翻译：圣地亚哥（文法）
-校对：枳实
-字幕：向上James
-编辑：Mttfly
+制作：香草山视频部
 
-马歇尔参议员表示，联邦政府真的以为他们知道什么对你和你的孩子最好。他们以为他们知道这种疫苗是否适合你的两岁孩子，你的四岁孩子，他们也想来给你规定对你孩子的教育应该是什么样的。但这绝对是关于权力和控制。国会可以夺回它，我们需要挺身而出，履行我们的职责，夺回这些权利。我们有能力做到这一点。
+截至2022年1月18日，全球至少11个国家关闭了高达122所的孔子学院、孔子课堂或者停止一切活动的孔院。而美国的孔子学院一直在持续关闭中，近期又关闭了3所。截至2022年2月9日，美国共关闭100所孔子学院，但还剩有21所。
 
-视频链接：[Sen. Roger Marshall to introduce bill to end COVID-19 declaration: ‘It’s about power and control’](https://video.foxnews.com/v/6297299536001#sp=show-clips)
+孔子学院在全球关闭迅猛，无论是官方报告还是学者协会，或者市民团体，在对孔子学院进行深度调查时都发现了孔子学院的另一面：
 
-*发布：Mttfly*
+1. 孔子学院干扰知识自由，宣传中共意识形态，避免涉及中共政治历史和侵犯人权行为的话题，如西藏、新疆、台湾、人权等话题；
+2. 孔子学院与海外合作大学的合同、协议等很少公开，缺乏透明度；
+3. 孔子学院由中共宣传部资助，而中共宣传部与统战部关系密切。孔子学院利用财政激励来达到目的，打击西方和其他外国关于中共国的言论，培养对中共有利的学生，传播对中共的正面看法，帮助中共合法化；
+4. 孔子学院是中共海外推行统战的手段，借助孔子的名声替中共行渗透之事，服务于中共的间碟任务以及其他任何中共需要的任务；
+5. 孔子学院是中共的延伸，基于政治理由审查课程材料中的某些主题和观点，并在招聘中考虑政治忠诚。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+从孔子学院建立的目的分析，是为达到大外宣的效果，借由汉语推广、传播文化的表象实行中共特色外交，实际上是执行中共海外统战的行为。
+
+发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

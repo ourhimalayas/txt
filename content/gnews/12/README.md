@@ -2,69 +2,29 @@
 ---
 
 
-## 有声|怒
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2059092/)
+## 视频|不满俄承认乌东两国独立 德中止北溪2号方案
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2059267/)
 
-配音：香草山农场 – 信念7
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-序:（引用) 您好，这个链接我看了，但是我没有任何兴趣，我深爱着我的祖国，深爱着我们中国共产党，是我的祖国将我培养长大，虽然我现在没有办法做什么事情报答我的祖国、我们的党，但我会永远忠诚于我的祖国，永远忠诚于中国共产党。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_9272.jpg)
-这个操蛋社会
-真相被掩盖
-如同热带雨林之谜踪
-看见起始脚印
-再也不见踪影
-洗脑又洗脑
-输灌又输灌
-聪明人
-变成笨蛋
-智慧远离悲凉人生
+制作：香草山视频部
 
-不
-这些哪里够
-仅仅迫害
-哪里能够满足他们贪婪成性
-于是
-在这个国度里
-普遍流行
-斯德哥尔摩综合症
+德国总理萧兹22日表示，针对俄罗斯承认乌克兰东部两个分离主义地区独立，他将终止与俄国合作的北溪2号天然气管线案审核程序。在与俄罗斯的紧张对峙日益加剧之际，西方各国及乌克兰把这条管线视为跟俄罗斯博弈的一项筹码。
 
-偷窃了你们的财富
-偷窃了你们的人生
-偷窃了你们的智慧
-偷窃了你们的爱情
+北溪2号天然气管线计划向来是德国与盟友关系紧张的原因之一，俄罗斯预定经由这条取道波罗的海的管线，输送天然气给德国。德国的盟友声称这会导致德国对于能源仰赖益增，并大大增加俄罗斯对欧洲的影响力。
 
-魔鬼们狂欢盛宴
-酒杯里血浆翻滚
-人们哀嚎悲鸣
-是他们天籁之音
+乌克兰总统泽伦斯基今天稍早要求立即终止北溪2号天然气管线方案。萧兹上周访问基辅时，泽伦斯基表示，俄罗斯将把持这条管线作为地缘政治武器。
 
-可是
-沉睡的人们
-依然爱着魔鬼
-奉献着
-肉体和爱情
+萧兹今天还表示，终止这项方案的决定仅是具体行动之一，后续可能对俄罗斯实施进一步制裁。萧兹称，相信欧盟将同意德国针对俄罗斯采取重大而有力的制裁方案。
 
+发稿：Daxia
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-文字版原文：[怒](https://gnews.org/zh-hans/2030261/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

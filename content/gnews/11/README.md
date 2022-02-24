@@ -2,49 +2,37 @@
 ---
 
 
-## 新西兰政府计划对9年级以下国际学生进行限制招生
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2059096/)
+## 有声|2022年北京冬奥会的收视率为历史最低
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2059271/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image005-13.jpg)
-据新西兰本地媒体综合报导据悉，新西兰政府计划限制中小学招收国际生，但这一计划遭到了校长们的反对。据RNZ报导，小学校长们对政府阻止他们招收国际学生的计划表示强烈反对。
+配音：香草山农场 – 信念7
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+据《新闻极限》2月22日援引《华尔街日报》报道说，NBC环球自数十年前开始转播奥运会以来，北京冬奥会的观看人数是最少的，黄金时段的平均观众人数只有1140万人，比2018年的平昌冬奥会下降了42%。相较之下，NBC的超级碗直播吸引了1.12亿名观众。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/aa52bc8739856499e619c6e48a4f40d3_500x0.jpeg)图片来源: Gettr (@JeffS1)
+为了弥补观众少的问题，在为期两周多的时间里，NBC环球为广告商提供了额外的广告播放时间，这些广告通过NBC环球的电视、有线网络和流媒体平台播出。
 
-新西兰教育部在一份咨询档中称，应限制学校招收9年级以下的国际生，因为这对不招收外国学生的学校不公平，而且增加了住房市场和教师供给压力，并可能减弱学校对新西兰儿童的关注。
-
-但校长们则表示，这个提议没有意义，而且在边境重开后，外国家庭正排队让他们的孩子入学。
-
-虽然该文件说明的是“限制入学”，但多位校长表示，该计划实际上将“完全禁止”国际学生的招生。
-
-新西兰国际教育商业协会（SIEBA）首席执行官John van der Zwan表示，由于政策的不确定性，学校无法开展明年的招生工作。 
-这项提案的咨询工作将于3月11日结束。
-
-低龄国际学生游学新西兰的大门是否就此关上，还需后续关注报导！
+NBC体育集团总裁皮特·贝瓦茨夸将人们对比赛缺乏兴趣归因于中共国“异常严厉的”防疫协议、看台上几乎没有观众以及一些奥运选手戴着防护口罩等等。鉴于大流行病源自中共国，今年的广告商选择低调行事，回避文化或社会问题。
 
 
 
-[【援引连结】](https://www.rnz.co.nz/news/national/461952/government-plans-to-restrict-enrolment-of-international-students)
+文字版原文：[2022年北京冬奥会的收视率为历史最低](https://gnews.org/zh-hans/2053345/)
 
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**推出问题，敲出真相，爆料在路上！**
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-**请关注和订阅我们的以下账号：**
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-**玫瑰看新闻YOUTUBE账号**：
-
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**ROSE NEWS**
-
-**【玫瑰看新闻】推特账号**：
-
-**ROSE NEWS (@ROSENEWS4)A**
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

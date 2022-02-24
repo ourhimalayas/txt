@@ -2,36 +2,22 @@
 ---
 
 
-## 四处乱象丛生 中共大厦将倾
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2058460/)
+## 前苏联3个国家提出将俄罗斯提出SWIFT
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2058584/)
 
-撰稿：纽约磐石农场—在远方
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-45.png)
-2月19日，郭文贵先生盖特发布视频称，当前各种乱象丛生，充分表明中共即将灭亡。 郭先生说，中共灭亡前到处弥漫着恐惧的情绪。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2261.png)
+撰稿：东京樱花团｜百花李香
+![](https://lh4.googleusercontent.com/FIqfcMuXeJrx-FzAdmiQIdFpqkh5J9-VzCAb08rgH84IK-RmdhLTK-oCi7IMJKJhZntZF47iVR0vwyNEuneWRpcFKMU5dhn9I-NAjAaqgRXr7QO_c4OzpeyXKWLO1MTePzU_wFYw)[*图片来源*](https://www.themoscowtimes.com/2019/05/24/russian-army-introduces-new-military-rank-a65742)
+前苏联的3个国家爱沙尼亚、拉脱维亚和立陶宛现24日发表了一份联合声明。
 
+在联合声明中，他们呼吁对俄罗斯实施制裁，将其排除在全球银行间支付系统SWIFT之外，并呼吁对乌克兰提供必要的支持，包括武器。
 
-还有许多被洗脑的，冷漠无知自私的看客，认为事不关己。如果一个国家和民族，对上天、自然、人类和真理全部亵渎，并与一切为敌的时候，自己也必然会沦落为与魔鬼为伍。
+俄罗斯的经济影响全球，将俄罗斯排除在SWIFT之外对西方国家会产生巨大影响，目前还不清楚这是否会被列入西方国家未来对俄罗斯的制裁中。
 
-针对美国即将对共产党采取的行动，中共急忙跪求美国，乞求美国能派遣一位亲共的大使，妄图再使用蓝金黄手段，推迟灭亡时刻的到来，这是中共一贯使用的卑鄙黑暗的行事风格。
+信息来源：[**旧ソ連のバルト3国 共同声明 “ロシアをスウィフトから排除”呼びかけ**](https://news.yahoo.co.jp/articles/447057b102e03261d959953c004cec634097621a#:~:text=)
 
-郭先生告诉国外友人，在发生锁链女惨剧的中共国江苏省徐州丰县，法院竟然有“被绑架的女性不能离婚”的荒唐决定。
-
-这就是邪恶的中共，却还告诉民众爹亲娘亲不如党亲。还有一些为共产党洗地和歌功颂德的无耻之徒，整个大陆已经完全没有天理存在。
-
-新闻链接：[2/19/2022 Miles Guo’s GETTR](https://www.gettr.com/post/pvm91w6dde)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-44.jpg)
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-45.png)
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
