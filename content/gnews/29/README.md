@@ -2,22 +2,22 @@
 ---
 
 
-## 中国就是越底层越不适合人居住
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2055309/)
+## 加拿大律师团敦促议会取消紧急状态法
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2055466/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+加拿大温哥华扬帆农场    平民正道
 
-*发布：陶子*
+据【多伦多太阳报】2月21日报道，加拿大多名大律师近日联名致信给国会议员，反对特鲁多政府擅用《紧急状态法》来处理全国性和平抗议活动，并呼吁议会立即投票取消该法案的实施。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+律师团在信中指出，实施《紧急状态法》的标准非常严格，联邦政府必须在国家安全明确遭受威胁的突发情况下，才能宣布公共秩序进入紧急状态。并将因此对加拿大公民自由形成重大挑战。
 
+目前，特鲁多已根据《紧急状态法》发布命令，要求金融机构向警方报告那些支持或参与抗议活动者的个人财务信息，并对违法者处以罚款和最高五年的监禁。
 
+律师函还强调，当局试图通过强推[紧急状态法]来证明其对民众的和平抗议活动，以及那些反独裁政府的抗议者所采取的暴力镇压方式是正当合法的。而这无疑是对加拿大民主制度最致命的打击。
+
+* * *
+
+编辑： 平民正道    发布：平民正道
 
  
 

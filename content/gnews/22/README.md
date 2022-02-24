@@ -2,20 +2,20 @@
 ---
 
 
-## 加拿大议员谴责特鲁多独裁施政
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2055455/)
+## 不打毒疫苗的人对Omicron抵抗力最好
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2055595/)
 
-加拿大温哥华扬帆农场    平民正道
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-据加拿大媒体【后千禧年】2月21日报道，保守党议员皮埃尔日前指责特鲁多非法越权对卡车司机的和平抗议活动采取“分而治之”的暴力手段。
+*发布：陶子*
 
-该议员指出，特鲁多政权至始至终都在利用疫情控制着全国，其各项经济和人身的限制政策引发了被侵犯权利的人民奋起反抗。而当局则借机进一步妖魔化反对者的声音，试图以此制造社会分裂，激化群体矛盾，挑起种族斗争。
-
-此外，特鲁多还非法动用国家权力以调查所谓“错误政治动机”的群体，并以封锁其个人银行账户作为惩罚。当局不仅冻结抗议者的个人财产，同时还利用警察等国家机器来攻击他们的人身安全。更严重的是，特鲁多还天真希望能永久执行其独裁治国的极权方案。
-
-* * *
-
-编辑： 平民正道    发布：平民正道
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

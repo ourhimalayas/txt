@@ -2,27 +2,26 @@
 ---
 
 
-## 文贵大直播：我们是唯一能灭共的！
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2055396/)
+## 负责川普刑事调查的检察官已辞职
+` Toronto Blue Lotus` [轉載自GNews](https://gnews.org/zh-hans/2055474/)
 
-我们中国人要懂得，新中国联邦要懂得，没有人帮我们灭共，只能有人利用我们灭共，我们是唯一能灭共的！
+翻译：蓝莲花农场 -文绮
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/qqq.jpg)
+纽约——在曼哈顿地区检察院负责对前总统川普进行刑事调查的两名检察官周三突然辞职，这使未来的调查充满不确定因素。
 
-只有让共产党流泪的战友，你才配拥有眼泪；只有消灭共产党的战友，你才配拥有眼泪！把每个眼泪变成力量，变成子弹射向老杂毛们！
+地方检察官阿尔文·布拉格（Bragg）的发言人证实了凯里·邓恩和曾起诉黑手党的检察官马克·波梅兰茨的辞职，他们两人都是在前地方检察官小赛勒斯·万斯的手下开始参与此项调查的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/asdf.jpg)
+“我们感谢他们的服务。”发言人拒绝进一步置评，称调查仍在进行中。
 
-G系列是战友的财产，是战友消灭共产党的力量，是灭共的枪！我们永远永远不会向别人伸手，我们永远永远不会向任何人妥协！我们在阳光中消灭邪恶，而不是用暴力和邪恶消灭邪恶！
+《纽约时报》援引消息人士的话说，在布拉格（Bragg）对起诉川普提出质疑后，邓恩和波梅兰茨辞职。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/zzzz.jpg)
+记者留言给了邓恩和波梅兰茨以获得更多消息。
 
-撰稿/发布：一叶知秋
+检察官办公室的调查导致了去年 7 月对川普的公司“川普集团”及长期担任其财务主管的艾伦·韦塞尔伯格的税务欺诈指控。
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+韦塞尔伯格被指控收取超过 170 万美元的账外补偿，包括公寓租金、汽车付款和学校学费。 他和公司均表示不认罪。
+
+原文链接：[https://abc7ny.com/donald-trump-criminal-probe-manhattan-district-attorney-prosecutors-resign/11593141/](https://abc7ny.com/donald-trump-criminal-probe-manhattan-district-attorney-prosecutors-resign/11593141/)
 
  
 
