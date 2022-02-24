@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/24/2022 10:11 PM (UTC)`
+
+🆘🆘🆘为了集合全球战友资源救助台湾战友，联盟发放统一登记表格，请有可能提供救助资源的战友填写，表格链接：<br/><br/>https://forms.gle/pgVrayLJKqS7NMsN8<br/><br/><br/>联盟-身在台湾的战友撤离统计表单：<br/><br/>https://docs.google.com/forms/d/e/1FAIpQLScjccjoDUB3u-OhC-zeZDvvtiHqxXo1z4h6Ls_LkxxtLZEYJw/viewform
+
+---
+
 `@miles 2/24/2022 7:22 PM (UTC)`
 
 2月24日：这世界就是如此的残酷无情……［女儿，爸爸要去战斗了］😭😭😭😭😭😭😭
@@ -150,12 +156,6 @@ EP11: The Heroes. Let's tear down the monstrous lies of this despicable #HBO #VI
 
 2月22号：这美女美乐美滋滋的人生……棒极了👏👏👏👏👏来来来……来来来来！
 ![img](https://media.gettr.com/group42/getter/2022/02/22/23/8b56ec2b-0dae-4506-337d-8107b4ad120a/out.jpg)
-
----
-
-`@miles 2/22/2022 10:09 PM (UTC)`
-
-2月20号这一刻即将到来……［川普刚刚进行了预测，在俄罗斯和乌克兰发生“灾难”后，中共“绝对”会谋求台湾<br/>川普形容中共的习近平、俄罗斯的普京是“孪生姐妹”。<br/>https://www.foxnews.com/politics/trump-china-taiwan-russia-ukraine］
 
 ---
 
