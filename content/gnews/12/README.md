@@ -2,36 +2,73 @@
 ---
 
 
-## 中日财经爆|正荣地产拟将更多境内外债展期
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2056363/)
+## 七哥主笔侵占台湾大一统&amp;它毁香港圣城唱给香港和台湾
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2056400/)
 
-撰稿：东京樱花团/peterwong
+G-TV视频链接：[https://gtv.org/video/id=62123db21408ee3a03a2386c](https://gtv.org/video/id=62123db21408ee3a03a2386c)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/正荣地产拟将更多境内外债展期.jpg)[图片来源](http://www.fzrhly.com/gpzx/98900.html)
+**郭文贵先生：**哎呀！这大早上起来你看这嗓子都是这样。这一发不可收拾，再来一段！
 
-路透社2月23日报道，中共国房企正荣地产周三举行投资者电话会议称，除周二公告披露的多只境外债外，还计划将2022年到期的其他境内外债务都协商达成类似展期安排；
+我有一帘幽梦，不知与谁能共，
 
-“公司计划将其他境内外债务, 包括ABS（资产证券）和银行债款等达成类似安排, 给公司一年时间, 让现金流得以改善。”一位消息人士称。
+多少秘密在其中，欲诉无人能懂，
 
-在官宣“跳票”2亿美元永续债赎回计划后，正荣地产周二在港交所公告称，提议置换五只2022年到期的美元和人民币债券以推迟到期时间，因公司可能没有足够的资源来履行即将到期的债务。
+谁能解我情衷，谁将柔情深种，
 
-此外，该公司还就另外八只美元票据征求债券持有人同步同意，交换要约和同意征求将于伦敦时间3月11日下午4点届满。这八只票据到期日分布在2023年-2026年。
+若能相知又相逢，共此一帘幽梦，
 
-根据路孚特（Refinitiv）数据，正荣地产在3月和4月份共有2.7亿的美元债到期；另外，2019年6月公司还发行过一笔金额2亿美元的浮息美元永续债。
+这段你们往下，我那天给你谦虚了。这就是战友们要学习的，这歌真是我改的。为何我要灭共，是我一个字不差改给唐平、威廉王。包括一个“侵占台湾大一统”，还有“它毁香港圣城”百分之百是我写的，但我把这功劳都给唐平、威廉王。你觉得中国有这样的人吗？你让“路大脑袋”——哎！这都是我干的！“九指妖”——这都是我干的。现在“九指妖”、”蛇妖闫”就没差出来说：就我郭文贵是她生的了。就差这一点没说了，啥都是她的。你这帮孙子，就不要脸的事情。
 
-1月4日，正荣地产曾发布公告称，将于3月5日悉数赎回所有发行在外的该笔永续债。
+但是我们新中国联邦是什么？把好处全给战友，我们不说是自己的。你说我少啥了呢？我少啥了？我非得说，哎！唐平不对，这是我改的。有啥意思？因为我说这个歌，我是要唱给台湾同胞、香港同胞的。所以当看到这一段的时候，战友，老天爷是公平的。
 
-正荣地产上周五发布公告，预计现有内部资源或不足以解决于2022年3月即将到期的债务，其中包括3月5日到期的2亿美元永续债；公司亦正考虑于不久的将来就其他未偿还的境外优先票据进行其他债务管理行动。
+我喝了咖啡，要不漱、不喝口水我就觉得张不开嘴。我就很纳闷，很多喝完咖啡的，满嘴喷“哇哇哇”讲话，我就受不了。所以现在我再唱这歌是真不得了。我这歌词基本要背下来，但我还得看，我再唱下一段。你看这改的我觉得绝了。
 
-受官宣无法偿付美元债影响，评级机构再度对正荣地产采取降级行动。惠誉周一表示，将正荣地产评级下调至“C”，并移出负面观察名单；穆迪则将正荣评级下调至Caa2/Caa3，展望仍为负面。
+为何我要灭共，是谁带来苦痛
 
-消息来源:
+多少愤恨在心中，唯有战友能懂
 
-[中国正荣地产拟将更多境内外债展期 并与国企洽谈股权转让以处置资产–消息（更新版）](https://cn.reuters.com/article/zhenro-bond-payment-extension-0223-idCNKBS2KS0NH?il=0)
+它毁香港圣城，犯下罪孽深重
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+欲占台湾大一统，必是黄粱一梦
+
+谁与七哥灭共，打破千年的牢笼，
+
+中华儿女多英雄，今朝盘古必相逢
+
+啦啦啦啦啦啦
+
+啦啦啦啦啦啦
+
+谁与七哥与共
+
+字幕来源：[2022月2日6日 《文贵大直播》全文字版](https://gnews.org/zh-hans/1971450/)
+
+编辑整理：Davis；
+
+字幕文件制作：知津；
+
+视频制作及上传：Cindy；
+
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ)、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A)、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/)；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

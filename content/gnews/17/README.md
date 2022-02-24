@@ -2,26 +2,34 @@
 ---
 
 
-## 中日财经爆| 伦敦希思罗机场乘客数创50年来新低
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2056345/)
+## 展望未来 光明必将战胜黑暗
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2056372/)
 
-撰稿：东京樱花团/peterwong
+作者：纽约磐石农场—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在2月20日的大直播中，郭文贵先生详细分析了加拿大特鲁多政府的结局以及美国未来的政治走向。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-23-下午11.14.33.png)
+鉴于对沼泽地有着深刻地了解，早在加拿大卡车游行开始之前，郭先生就曾预见，特鲁多一定会把卡车运动定义为暴乱并加以镇压。但郭先生也提到，虽然特鲁多忠于他背后的黑暗势力，但其政府最终一定会被黑暗势力消灭，因为黑暗势力只会忠诚于它自己，保护它自身利益。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/伦敦希思罗机场乘客数创50年来新低.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=http%3A%2F%2Fcdn.feeyo.com%2Fnews%2F200819%2F20081909212962.jpg&amp;imgrefurl=http%3A%2F%2Fnews.carnoc.com%2Flist%2F541%2F541689.html&amp;tbnid=bWWC7eSQPqA0uM&amp;vet=12ahUKEwixwffKuJf2AhVBYZQKHS-kBngQMygKegUIARCwAQ..i&amp;docid=Feb0h-H4bqVvPM&amp;w=692&amp;h=386&amp;q=%E5%B8%8C%E6%80%9D%E7%BD%97%E6%9C%BA%E5%9C%BA&amp;ved=2ahUKEwixwffKuJf2AhVBYZQKHS-kBngQMygKegUIARCwAQ)
+郭先生还展望道，在未来不超过三年的时间里，许多事情都会水落石出，但美国一定会大获全胜，并且将再次伟大。
 
-英国伦敦希思罗机场2月23日表示，受到中共病毒防疫旅行限制的影响，2021年的乘客人数下降到1,940万，创1972年以来最低。
+至于习近平和普京二人，郭先生指出，他们最担心的其实还是各自内部的反对力量。但郭先生也强调，中共国内的14亿人并不是都像“锁链女”一般被捆绑封口、无法反抗，还有许多像郭先生一样有实力、有勇气的战友正在默默地行动着。而在这场人类正义与邪恶的大较量中，光明必将战胜黑暗，且中共一定会被彻底消灭。
 
-这个英国最大的机场在2021年录得17.9亿英镑(24.3亿美元)的税前亏损，该机场周三表示，目前乘客人数比预测值落后23%，但预计夏季出境旅游会很强劲。
+参考链接：[2022年2月20日 《文贵大直播》全文字版](https://gnews.org/zh-hans/2045186/)
 
-希思罗机场（英语：Heathrow Airport；IATA代码：LHR；ICAO代码：EGLL），是英国首都伦敦的主要国际机场，中共病毒疫情之前为全英国乃至全世界最繁忙的机场之一。运营机构为希思罗机场控股公司。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-消息来源:
+总编：Irene木木
+编辑：静言
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-[伦敦希思罗机场2021年乘客人数创下自1972年以来新低](https://cn.reuters.com/article/uk-london-heathrow-passengers-0223-idCNKBS2KS0OY?il=0)
-
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

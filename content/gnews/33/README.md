@@ -2,24 +2,32 @@
 ---
 
 
-## 加拿大爱德华王子岛将停止疫苗护照
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2056074/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年2月23日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2056076/)
 
-加拿大温哥华杨帆农场 枫叶快讯
+作者：香草山翻译部
 
-采编： 文莱             翻译编辑：文所未闻
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2201.png)Source：
-据加拿大媒体《CTV新闻》2月23日报道，爱德华王子岛省长当天宣布，该省将于2月28日废除“新冠病毒”疫苗护照系统。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-4-1-e1645595411271.jpg)
 
-对此，该省首席公共卫生官表示此举是一个积极的解禁信号，是对更持久地与该病毒和谐共处的及时调整。同时疫情监管和病毒检测等其他公共卫生措施仍将被继续执行。
 
-据悉，该省的疫苗接种率全国最高，近94%的人已接种了两剂疫苗。相信在经济发展和社会民生的双重压力下，其他各省也必将完全取消百害而无一利的疫苗护照政策。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-17.png)
+校对：Stay文苑
 
-校对编辑：硫酸羟氯喹6
+编辑：Stay文苑
 
-发稿：青青
+发稿：Stay文苑
 
-原文链接： [https://atlantic.ctvnews.ca/p-e-i-to-end-covid-19-vaccine-passport-system-next-week-1.5792433](https://atlantic.ctvnews.ca/p-e-i-to-end-covid-19-vaccine-passport-system-next-week-1.5792433)
+新闻：[https://gtv.org/broadcast/watch/6216e14e08ba8a07b1a26849](https://gtv.org/broadcast/watch/6216e14e08ba8a07b1a26849)
+访谈：[https://gtv.org/broadcast/watch/6216e84908ba8a07b1a26deb](https://gtv.org/broadcast/watch/6216e84908ba8a07b1a26deb)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-4.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

@@ -2,24 +2,24 @@
 ---
 
 
-## COVID-19 最新情报｜罗马尼亚最大足球具乐部宣布禁止接种疫苗的球员参赛及效力
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2056171/)
+## 特鲁多撤消了紧急法
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2056189/)
 
-**撰文｜疫情关注组 / 发布时间｜24/02/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/羅馬尼亞最大足球俱樂部宣佈禁止接種疫苗的球員參賽及效力.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：**[**https://gettr.com/post/pl6k0218bf**](https://gettr.com/post/pl6k0218bf)**)**
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-355.jpg)
+图片来源： ici.radio-canada.ca
 
-罗马尼亚规模最大的足球具乐部 Steaua Bucharest 日前宣布，将全面禁止接种过 Covid-19 疫苗的球员再为球队效力，原因是接种过疫苗的球员已经“失去力量”并“开始倒在赛场或死在医院”。
+零对冲网2月23日报道，加拿大总理特鲁多今天说他认为目前的法律和规则足以保证人民的安全。
 
-该具乐部的老板，商人兼政治家吉吉·贝卡利（Gigi Becali）表示，他也不再允许接种疫苗的球员参加比赛，他不愿再看到原本伟大的球员渐渐的变得虚弱，他更不忍心再看到一个个年轻健康的球员死去。
+在加拿大立法机构投票延长紧急法以允许警察阻止骚乱后两天，现在总理特鲁多现在认为渥太华抗议已结束，他现在决定撤消紧急法。
 
-贝卡利强调，接种过 COVID-19 疫苗的人会倒下，会死在医院里，而那些拒绝接种疫苗的人却不会。他指出，“有人可能会笑话我，但我是对的，如果你看到CFR（CFR Cluj）和 Rapid（Rapid Bucuresti ）的球员们倒在地上，呼吸困难，你就该知道所有接种疫苗的人都会失去力量！”
+特鲁多上周首次启动紧急法，说需要警察的额外帮助以终止堵塞状况。
 
-贝卡利的这番言论不意外的引起了该国政府的强烈反感。当局在脸书官方页面 RO Vaccinare 上发布一份最新声明，反驳称“足球运动员在接种了 COVID-19 疫苗后不会失去力量。”并指出，“从医学和科学的角度来看，没有任何研究可以支持罗马尼亚某位人士的奇特观点。”
+目前为自由护航的银行账号仍然处于被冻结状态。
 
-不过，仍然有不少当地民众支持贝卡利对疫苗的看法，他们认为，政府的声明恰恰反映了他们很心虚。
+##### 新闻来源： [Trudeau Revokes Emergency Powers Act](https://www.zerohedge.com/geopolitical/trudeau-set-revoke-emergency-powers-report)
 
-来源｜[推特](https://twitter.com/Emishor/status/1496447904617312259?s=20&amp;t=_vOooKK2zDsQcuQM5gW2Pw)、[ESPN](https://www.google.com.hk/url?sa=t&amp;rct=j&amp;q=&amp;esrc=s&amp;source=newssearch&amp;cd=&amp;ved=2ahUKEwjLht_1sJf2AhXiD0QIHb9KAJoQxfQBKAB6BAgQEAI&amp;url=https%3A%2F%2Fwww.espn.com%2Fsoccer%2Ffcsb%2Fstory%2F4600728%2Fromanias-fcsb-deny-owners-suggestion-to-not-pick-vaccinated-players&amp;usg=AOvVaw2UZFvqTNUpQEbDKVhmEXsf)
+#  
 
  
 

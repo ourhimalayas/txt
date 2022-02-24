@@ -2,34 +2,38 @@
 ---
 
 
-## 展望未来 光明必将战胜黑暗
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2056372/)
+## 对话
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2056450/)
 
-作者：纽约磐石农场—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在2月20日的大直播中，郭文贵先生详细分析了加拿大特鲁多政府的结局以及美国未来的政治走向。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-23-下午11.14.33.png)
-鉴于对沼泽地有着深刻地了解，早在加拿大卡车游行开始之前，郭先生就曾预见，特鲁多一定会把卡车运动定义为暴乱并加以镇压。但郭先生也提到，虽然特鲁多忠于他背后的黑暗势力，但其政府最终一定会被黑暗势力消灭，因为黑暗势力只会忠诚于它自己，保护它自身利益。
+撰稿：东京樱花团/大炮
 
-郭先生还展望道，在未来不超过三年的时间里，许多事情都会水落石出，但美国一定会大获全胜，并且将再次伟大。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/对话.jpg)[图片来源](https://search.yahoo.co.jp/amp/s/amp.dw.com/zh/%E4%B9%A0%E8%BF%91%E5%B9%B3%E6%99%AE%E4%BA%AC%E4%BA%8E%E5%8C%97%E4%BA%AC%E4%BC%9A%E6%99%A4-%E5%AE%9E%E7%8E%B0-%E5%86%AC%E5%A5%A5%E4%B9%8B%E7%BA%A6/a-60665249%3Fusqp%3Dmq331AQIKAGwASCAAgM%253D)
 
-至于习近平和普京二人，郭先生指出，他们最担心的其实还是各自内部的反对力量。但郭先生也强调，中共国内的14亿人并不是都像“锁链女”一般被捆绑封口、无法反抗，还有许多像郭先生一样有实力、有勇气的战友正在默默地行动着。而在这场人类正义与邪恶的大较量中，光明必将战胜黑暗，且中共一定会被彻底消灭。
+共匪：普京啊，俺放点毒到世界，目的是搞乱美国、搞垮美国、搞死美国。
 
-参考链接：[2022年2月20日 《文贵大直播》全文字版](https://gnews.org/zh-hans/2045186/)
+俄罗斯：你随便，反正这事我就装不知道。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+郭文贵：爆料革命揭露病毒及解药真相，拯救美国和世界，新中国联邦人是有信仰的。
 
-总编：Irene木木
-编辑：静言
-校正/发稿：呼吸的雾霾（文小呼吸）
+美国：十分感谢文贵先生和爆料革命，这事既然我们知道了，那就和他们练练呗。 共匪：普京先生，毒放了，我还得弄点毒疫苗糊弄一下老美和西方世界，让他们死上一大片。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+爆料革命：全世界注意了，那疫苗有毒，千万不要打啊，青蒿素是解药。
+
+普京：习包子啊，你可悠着点，你看三胖都似乎明白点啥了，人家都不让他的国民打，你说美国会不知道吗？
+
+美国：流氓们，别太过分了啊，我先授权撤离驻中共大使馆，必须找出谁放的毒，再放毒就不客气了。
+
+共匪：普京啊，老美好像发现啥了？我们得想办法转移注意力啊，要不这样，我们联手，你趁机收复乌克兰，我同时把台湾干掉，这事成了，美国就不敢拿我们怎么样了。
+
+俄罗斯： 好，我同意，就这么干。私下却在想（包子这傻逼，跟美国玩还拉着我，这不是找死么，还好文贵先生提前给了我情报）。
+
+美国：普京啊，你我心里都明白该咋弄了吧？你自己掂量掂量吧。
+
+俄罗斯：明白，我佯攻引包子入翁，然后我们一起瓮中捉鳖！！！
+
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
