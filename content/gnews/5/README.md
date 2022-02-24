@@ -2,37 +2,122 @@
 ---
 
 
-## 飞往多伦多的航班被迫突然转出乌克兰领空
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2059958/)
+## 锁链女
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2060042/)
 
-作者：Michael Ranger
-翻译：Himasally
-![](https://assets.gnews.org/wp-content/uploads/2022/02/5_0T516449.jpg)
-周四，一架从以色列飞往多伦多的航班平安抵达多伦多皮尔逊机场，机上乘客终于一块石头落地，因为俄罗斯突然发动袭击，这架飞机不得不突然转弯以避开乌克兰领空。
+作者：香草山教育部 — 蓝之灵（Hortensia)
 
-根据flight track监控轨迹显示，这架飞机在进入乌克兰领空时突然急转弯，绕道罗马尼亚、匈牙利和斯洛伐克，然后返回波兰上空继续向多伦多方向飞行。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-109-1280x172-1.jpg)
 
-有惊无险，这架从以色列特拉维夫起飞的商业航班于周四早上6点44分平安降落在皮尔逊机场。
 
-在俄罗斯军队星期四入侵乌克兰之后，整个乌克兰的领空被关闭，禁止民用航班飞行。
 
-乌克兰领导人表示，到目前为止，至少有40人在针对该国的“全面战争”中丧生。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-1-2.png)
 
-来源：https://toronto.citynews.ca/2022/02/24/toronto-flight-ukraine/
+沉重铁链
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+挂在我脖颈
 
-**关注我们**
+二十四年到如今
 
-Discord 账号
+一路路辗转
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+从家乡到此处
 
-Gettr 账号
+不记得
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+多少日夜
+
+多少男人
+
+让我身体
+
+伤痕累累
+
+日日如此
+
+夜夜如此
+
+看见了吗
+
+那一屋子强奸犯
+
+正欢声笑语数着钱
+
+小哥哥啊
+
+请不要走
+
+帮帮我
+
+放我离开
+
+这个世界不要我了
+
+生在人间
+
+活在炼狱
+
+被剪去舌尖记忆
+
+如锥如炙
+
+痛与苦
+
+是每天必须的吃与喝
+
+这个世界不要我了
+
+生不如死 没有天理
+
+人贩子欢天喜地
+
+酷吏们茹毛饮血
+
+我的躯体
+
+是他们欢笑乐土
+
+家乡的路
+
+那么遥远
+
+只能在梦里
+
+一次次 呼唤
+
+亲人，亲人
+
+你们在哪里
+
+没有回音
+
+没有希望
+
+日复一日
+
+重复痛苦
+
+（本文仅代表作者个人观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-7.jpg)
+
+*编辑 /校对*：*Yuki*jiang
+
+*发稿：Yuki*jiang
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

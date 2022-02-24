@@ -2,28 +2,31 @@
 ---
 
 
-## 有声|韩国单日新增确诊病例突破17万例 再创历史新高
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2059934/)
+## 俄乌战事对半导体业的影响
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2059987/)
 
-配音：香草山巡管部– 文凯琳
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-5.png)
-据韩媒2月23日报道，韩国中央检疫对策本部宣布，截至今日（23日）零时，新增确诊病例17万1452例，首次突破17万大关，创历史新高。
+翻译播报：billwilliam
 
-截至日前，韩国的疫苗首针接种率为87.27%，完全接种率为86.30%，第三针加强针接种率59.65%。从15日开始给免疫力低下人群接种第四针剂。
+Proofread by: Ermat
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-20.png)图源：ksro.com
+据美国消费者新闻与商业频道（CNBC）报道，俄罗斯入侵乌克兰在短期内对半导体行业的冲击比较有限。大型芯片制造厂认为战事在短期对供应链的扰乱有限，因为它们已经囤积原材料并开展多元化采购，但是可能存在长期负面影响。在近一年的全球芯片供应短缺后，俄乌战事无疑对供应链断裂是雪上加霜，并对高科技股票造成压力。但是岁月静好的背后，完全忽视了中共同时攻打台湾的潜在冲击。
 
-文字版原文：[韩国单日新增确诊病例突破17万例 再创历史新高](https://gnews.org/zh-hans/2055901/)
+目前，美国半导体行业使用的氖气（neon）90%来自乌克兰，这种气体用于制造芯片的激光器。这种气体是俄罗斯炼钢业的副产品，并在乌克兰提纯。同时，俄罗斯供应美国35%的钯金（palladium），这种贵重金属用于制造传感器和存储器。
 
-音频处理/发稿：Daxia
+一位匿名的日本芯片行业消息人士称，虽然芯片厂家没有直接感受到影响，但是提供半导体制造设备的供应商需要从俄罗斯和乌克兰购买氖气和钯金。在原材料供应本身就很紧张的条件下，额外的压力会导致原材料价格飙升，进而导致芯片价格上涨。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+芯片制造商美光（Micron）称，它了解俄乌局势紧张对原材料供应的潜在影响，并致力于多元化采购。美国白宫要求芯片业多元化采购，如果俄罗斯对美国制裁进行报复。荷兰光刻机厂家ASML（它为台积电、三星，以及英特尔提供设备）周三说它在考虑氖气的替代来源。大多数芯片制造商处于观望态度，但在2014年俄罗斯吞并克里米亚导致氖气价格上涨后，许多公司已经开始多元化布局供应链。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+韩国芯片制造商SK海力士（SK Hynix）表示，它们确保很多芯片原材料，目前不着急。英特尔认为没有影响。格芯（GlobalFoundries）和台湾联华电子（Microelectronics Corp）称它们有灵活性在俄罗斯和乌克兰之外寻找供应源。全球最大的芯片外包制造商台积电（TSMC）目前不予置评。台湾芯片测试和封装公司ASE Technology说目前材料供应稳定。同时台湾经济部告诉路透社称，台湾的半导体供应链不会受到直接冲击。
+
+马来西亚芯片制造商Unisem也是苹果的供应商之一，该公司认为对芯片制造没有影响，因为它的原材料不来自俄罗斯，而它的设备主要来自美国、日本、南韩、新加坡、和马来西亚。全球芯片生产13%的测试和封装是在马来西亚进行的。而为芯片生产封装基板（packaging substrate）的日本公司Ibiden认为拥有足够原材料，但对氖气和其它来自俄罗斯的原料表示担忧。
+
+虽然大部分芯片制造商对供应链持乐观态度，但是它们完全忽视了中共同时攻打台湾对半导体行业的影响。如果台湾沦陷，很多关键的芯片会更加紧缺甚至断供。同时，虽然许多半导体制造商进行了供应链多元化布局，但是90%的氖气供应源来自乌克兰和俄罗斯，提供芯片制造设备的上游供货商还是从这两个地区购买原材料，长期不一定能绕过供应链断裂的风险。
+
+新闻来源：
+
+[https://www.cnbc.com/2022/02/24/chipmakers-see-limited-impact-russia-invasion-ukraine.html](https://www.cnbc.com/2022/02/24/chipmakers-see-limited-impact-russia-invasion-ukraine.html)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

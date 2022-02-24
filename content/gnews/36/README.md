@@ -2,42 +2,20 @@
 ---
 
 
-## 新西兰通过新建模显示两地单日新增病例可达9000例
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2059341/)
+## 加国政治记者将加拿大比作中共国
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2059444/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image011-4.jpg)RNZ / Simon Rogers
-据新西兰媒体RNZ报导，Counties Manukau地方医管局的人口健康主任Gary Jackson通过模型预测疫情发展情况，新的模型显示，在Omicron疫情中，如果传播率低，奥克兰和北地的病例数峰值可能达到每天4000例，如果传播率高，则可能达到9000例。
+**编译：verifunny**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-24-233103.jpg)
+一位加拿大保守派记者以斯“·“`拉黎凡特（Ezra Levant）强烈抨击加拿大政府以强腕的政策和粗暴的行为来对待卡车车队与示威者。加拿大的做法和中共的社会信用体系有很多相像点，比如： 在渥太华市中心设立了许多警察检查站， 人们出示身份证明，否则将面临逮捕。以斯指出，他所在的媒体的一名记者据称在近距离内被人用胡椒罐射击，然后胡椒罐破裂，烧伤了他的脸和眼睛。他警告说，”社会信用 “的威胁对那些不受欢迎的信仰更大。
 
-上个月，Jackson的模型显示，北部地区出现了1800个病例的高峰，其中约有190人住院。
+他随后指责加拿大总理贾斯汀· 特鲁多为了扼杀异议，完全没有延长紧急状态下的权力。他继续阐述了这种权力的危险性。”他说：”警方实际上是告诉银行要冻结哪些账户，他们就这么做。”
 
-昨天，奥克兰有1802个新的小区病例，北地有36个。奥克兰的医院里有128名新冠患者。Jackson说，这与低度传播的情况相当吻合，预计在3月中旬达到高峰。 Jackson还表示，新西兰的新冠疫情模型有很多参考的是澳大利亚的情况，但新西兰过去的峰值都较低，这意味着实际数字可能比预测的要低。
+“所以这意味着，如果有人仅仅被指控支持卡车司机，也许你给他们的众筹基金捐了50美元，[或者]也许你有一天在他们的卡车旁边走过，你的整个家庭银行账户都被冻结了，”他说。”因此，不仅是你，还有你的妻子和孩子，都无法得到买菜、租房或加油的钱，而且没有法律上诉的全力。】
 
+以斯指出这有中共文革批斗的感觉，他还警告说，这样的惩戒措施系统与中共国相同，美国人可能会发现自己迟早也面临同样的情况。
 
-
-[援引连结](https://www.rnz.co.nz/news/national/462071/covid-19-omicron-outbreak-peak-could-reach-4000-cases-a-day-in-northern-areas-modelling)
-
-
-
-**推出问题，敲出真相，爆料在路上！**
-
-**请关注和订阅我们的以下账号：**
-
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
-
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
-
-**玫瑰看新闻YOUTUBE账号**：
-
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**ROSE NEWS**
-
-**【玫瑰看新闻】推特账号**：
-
-**ROSE NEWS (@ROSENEWS4)A**
+**新闻来源**： https://www.breitbart.com/politics/2022/02/23/canadian-reporter-ezra-levant-compares-canada-to-communist-china-warns-america-may-be-next/
 
  
 

@@ -2,63 +2,42 @@
 ---
 
 
-## 华人女子陈尸蓝莓田，家人声称被恶犬杀死
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2059954/)
+## 德国暂停北溪二号天然气管道项目
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2060039/)
 
-作者：Colleen Flanagan
-翻译：Himasally
-![](https://assets.gnews.org/wp-content/uploads/2022/02/28254942_web1_Pitt-crime-4.jpg)
-温哥华枫树岭的一名华人女子，在蓝莓农场工作时突然死亡。之后家人在对该农场主和Pitt Meadows市提起诉讼，杀死该女子的凶手竟是一群恶狗。
+**评论：***德国早先已经与美国达成共识，如果俄罗斯将天然气作为武器或者进攻乌克兰，将采取行动阻止北溪2号管道的输送。随着乌克兰局势激化，欧盟在宣布对俄罗斯制裁并密集磋商具体措施之后，德国政府也相应做出了更明确的反应。*
 
-去年在Doremi蓝莓农场有限公司的蓝莓地里，华人女子Ping Guo(Amy) 的尸体被发现。她的丈夫Peng和女儿Kelsey于2月11日向BC省最高法院提起了民事索赔。
+据《新闻极限》2022年2月22日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2272-e1645725723912.png)图片来源：《法新社》
+德国总理奥拉夫·肖尔茨（Olaf Scholz）周二表示，随着西方开始就乌克兰危机对莫斯科采取制裁措施，德国已采取措施停止对俄罗斯北溪2号天然气管道项目（Nord Stream 2 gas pipeline）的认证程序。
 
-索赔中列出了被告包括：Doremi蓝莓农场有限公司，蓝莓农场的注册所有人Kae-Chang Doong和Changling Zhong，Pitt Meadows市，以及Jane和/或John Doe——一只或多只”攻击性、恶性和危险”狗的主人。
+肖尔茨在柏林表示，德国政府正在采取这一措施，以回应莫斯科在乌克兰的行动。
 
-诉讼中家属表示，2021年8月15日上午10点，Guo前往农场摘蓝莓。当天晚些时候，她的尸体被发现，已经死亡。她是被一种动物杀死的，”可能是一条狗”。
+这个决定对德国政府来说是一项重大举措，尽管美国和一些欧洲国家施加压力，德国政府长期以来一直拒绝取消该项目。多年来，华盛顿方面一直认为，修建另一条将天然气从俄罗斯输送到德国的管道，将增加欧洲对俄罗斯能源供应的依赖。
 
-他们声称，对于Guo的死亡，诉讼里的每个被告都有疏忽。
+肖尔茨表示，鉴于最新发展，德国政府已决定“重新评估”尚未开始运营的管道认证。
 
-Peng家在诉讼中指责被告没有采取任何合理的谨慎措施，以确保农场游客的安全；他们没有警告Guo农场可能存在危险动物；他们没有足够的检查和维护系统来确保农场的安全，不会有危险动物或其他危险；而且他们没有遵守《占用者责任法》——该法规定场所拥有者在合理情况下，有责任确保在其财产场所内的人安全。
+他说：“重新评估肯定需要时间。”
 
-关于对市政府的索赔，家属说Pitt Meadows市没有执行《养狗管理条例》，市政府知道或应该知道，农场附近有一只或多只攻击性或恶性狗。这家人在索赔中说，如果市府的执法官员工作得当，他们就会提早觉察到狗的攻击性行为，并向狗主人发出通知。
+德国用天然气来满足其约四分之一的能源需求，随着该国关闭其最后三个核电站并逐步淘汰煤炭的使用，这一比例将在未来几年增加。德国使用的天然气约有一半来自俄罗斯。
 
-诉讼中还提到了这些狗的主人，因为他们允许狗外出活动，即使这些狗有攻击性行为。狗主人的身份不明，他们在诉讼中被称为Jane和/或John Doe。
+文章来源：[https://www.newsmax.com/finance/streettalk/russia-ukraine-tensions-germany-nord-stream-2-pipeline-cancelled/2022/02/22/id/1057864/](https://www.newsmax.com/finance/streettalk/russia-ukraine-tensions-germany-nord-stream-2-pipeline-cancelled/2022/02/22/id/1057864/)
 
-Peng家要求赔偿：特殊和一般损失，失去妻子和母亲的精神赔偿，丧葬费，遗产损失，其他费用，以及法院可能认为公正的进一步救济。
+翻译：洛杉矶盘古农场 – maru
 
-他们的指控都没有在法庭上得到验证。
+校对：洛杉矶盘古农场 – 轰炸机
 
-Ridge Meadows RCMP的Julie Klaussner说，由于调查还在进行中，她不能谈及该案件的具体细节。
+评论：洛杉矶盘古农场 – maru
 
-她说：”这可能会影响到调查的完整性。”
+编辑：洛杉矶盘古农场 – Wendy
 
-Pitt Meadows市的Carolyn Baldridge也拒绝评论，因为调查还没有结束。
+发布：洛杉矶盘古农场 – 子萍
 
-她说：”据我们了解，加拿大皇家骑警仍在调查此事。鉴于此事已提交法院，我们不宜发表评论。”
 
-该农场的一位不愿透露姓名的负责人告诉《新闻报》，事件发生时，该农场没有营业。除了事件发生时公布的信息外，他没有新的信息。
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-在Guo的尸体被发现的几天后，保护官员服务局被要求调查动物袭击的可能性，该机构在网上发布了关于该地区黑熊的警告。
-
-当《新闻报》问及Peng家为何指责恶犬袭击Guo时，代理律师Alexander C. McQuarrie说”不予置评”。
-
-BC省保护官员服务局拒绝发表评论，因为此事正在法院审理中。
-
-来源：https://www.mapleridgenews.com/news/family-claims-viscious-dogs-killed-woman-found-dead-in-pitt-meadows-blueberry-field/
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

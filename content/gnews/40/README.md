@@ -2,28 +2,22 @@
 ---
 
 
-## 视频|中共拘捕日本大使馆工作人员违反维也纳公约
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2058953/)
+## 前苏联3个国家提出将俄罗斯提出SWIFT
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2058584/)
 
-制作：香草山视频部
+撰稿：东京樱花团｜百花李香
+![](https://lh4.googleusercontent.com/FIqfcMuXeJrx-FzAdmiQIdFpqkh5J9-VzCAb08rgH84IK-RmdhLTK-oCi7IMJKJhZntZF47iVR0vwyNEuneWRpcFKMU5dhn9I-NAjAaqgRXr7QO_c4OzpeyXKWLO1MTePzU_wFYw)[*图片来源*](https://www.themoscowtimes.com/2019/05/24/russian-army-introduces-new-military-rank-a65742)
+前苏联的3个国家爱沙尼亚、拉脱维亚和立陶宛现24日发表了一份联合声明。
 
-2月22日，日本外务省发布公告称，其驻中共国大使馆的工作人员，在21日遭到中共当局非法拘禁。虽然目前该名工作人员已经被释放，但是日本国政府的森健良事务次官在22日，表示这是近年没有发生过的，并指斥中共对日方工作人员进行了长时间的拘禁，这种行为已经违反了维也纳公约。他通知了驻日本的中共临时大使杨宇，表达了日本的严正抗议，并且要求中共的道歉。
+在联合声明中，他们呼吁对俄罗斯实施制裁，将其排除在全球银行间支付系统SWIFT之外，并呼吁对乌克兰提供必要的支持，包括武器。
 
-截至发稿时，中共也没有道歉甚至没有报道此事，而临时大使杨宇仅向日方表示，需要向中共请示后才能做出答复。
+俄罗斯的经济影响全球，将俄罗斯排除在SWIFT之外对西方国家会产生巨大影响，目前还不清楚这是否会被列入西方国家未来对俄罗斯的制裁中。
 
-维也纳公约明确规定，所有外交人员享有不被逮捕、大使馆领地不可侵犯的特权，这些特权，是所有签署维也纳公约国必须尊重的规则。分析人士指出，中共在冬奥会和残奥会的间隙，拘捕外交人员会进一步让世界看清，中共不守规则、开展人质外交的丑陋嘴脸。
+信息来源：[**旧ソ連のバルト3国 共同声明 “ロシアをスウィフトから排除”呼びかけ**](https://news.yahoo.co.jp/articles/447057b102e03261d959953c004cec634097621a#:~:text=)
 
-发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,17 +2,18 @@
 ---
 
 
-## 有声|NFSC新闻、G|TV新闻访谈简报|2022年2月22日早
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2059781/)
+## 有声|俄罗斯全面出兵攻乌 中共国民却成待宰羔羊
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2059943/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-21.png)
+配音：香草山巡管部– 文凯琳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+墙内媒体2月24日报道，乌克兰外长称，俄罗斯总统普京已“对乌克兰发动了全面入侵”。
 
+据了解，当地时间24日凌晨5时，乌克兰的军事设施遭到导弹袭击，俄军登陆行动开始于黑海和亚速海。目前，俄军已突破哈尔科夫州界，哈尔科夫乌军指挥所遭到火箭弹袭击。目前，乌克兰管理部门宣布关闭全国领空，乌克兰基辅机场正在疏散。
 
-文字版原文：[NFSC新闻、G|TV新闻访谈简报|2022年2月22日早](https://gnews.org/zh-hans/2049140/)
+文字版原文：[俄罗斯全面出兵攻乌 中共国民却成待宰羔羊](https://gnews.org/zh-hans/2056664/)
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+音频处理/发稿：Daxia
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
