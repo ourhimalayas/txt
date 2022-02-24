@@ -2,115 +2,58 @@
 ---
 
 
-## 新加坡、以色列、香港的疫情是疫苗后遗症，一定要忍到五月份
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2057830/)
+## 俄乌战争：普京下令攻打乌克兰 首都基辅危在旦夕
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2057979/)
 
-[https://gtv.org/video/id=6215fc0e1408ee3a03a3b644](https://gtv.org/video/id=6215fc0e1408ee3a03a3b644)
+作者：东京樱花团｜捆绑CCP一千年
 
-**郭文贵
-Miles Guo**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/俄乌战争：普京下令攻打乌克兰-首都基辅危在旦夕1.png)[*图片来源*](https://api.time.com/wp-content/uploads/2022/02/GettyImages-1237854921.jpg?w=1600&amp;quality=70)
 
-新加坡、以色列、香港是打疫苗导致的免疫功能低下, 各种病症齐发
-Singapore, Israel, and Hong Kong are immunocompromised caused by vaccines, and various complication have developed together
+**俄罗斯普京大帝终于向全面战争迈进了一步，乌克兰首都深陷危机。新中国联邦透露普京开战的剧本就是中共习近平蓄谋已久的侵台剧本——声称乌克兰东部人民需要俄军去拯救。对此，美国声称这是一场战争阴谋，要求普京将对此负全责。**
 
-现在只要一发烧，就刚才老马说的, 进去是阴，进去还是阴
-Now as long as you have a fever, as the Lao Ma just said, go in is negative, go in is still negative
+据中共国新华社24日快讯，“24日清晨，乌克兰首都基辅上空传来数次爆炸声” 。2个多小时后，援引外媒消息称，“乌克兰首都基辅响起[空袭警报](http://www.news.cn/mil/2022-02/24/c_1211586106.htm)”。随后称“乌克兰总统已动员所有军事力量和特种部队，准备迎接基辅保卫战”。从中共国官媒可见，俄罗斯侵略乌克兰的全面战争已经打响。
 
-但是他已经都手术了，腿差点被干掉，这是我全程跟着他
-But he has already had surgery and he was almost lost his leg, I was following him all the way
+根据 [TIME时事通讯社](https://time.com/6150679/russia-ukraine-war/)消息，“美国东部时间23日晚 ，俄罗斯总统弗拉基米尔·普京下令向乌克兰开展军事行动”。同时，普京警告其他国家，任何干涉俄罗斯行动的企图都将导致“他们从未见过的后果”。
 
-老马兄弟就特别听话，我说你一定让我知道你发生了什么
-The Lao Mao brother is very obedient, I said you must let me know what happened to you
+- ***延展阅读：***[***乌克兰国防部长奥列克西·列兹尼科夫称正在击退俄军，呼吁人民保持冷静***](https://www.mil.gov.ua/news/2022/02/24/zvernennya-ministra-oboroni-ukraini-oleksiya-reznikova/)
 
-他一定给我发信息，我就有点儿忍不住了
-He must have messaged me, I can’t bear it
 
-他真是够坚强，在全阴的情况下整个血脉膨胀
-He is really strong enough, the whole blood vessel swells under the circumstance of full negative
+普京在[克里姆林宫表示](https://time.com/6150679/russia-ukraine-war/)，乌克兰东部的叛军要求俄罗斯提供军事援助以帮助抵御乌克兰的‘侵略’。之后，普京宣布了军事行动。这一宣布立即引发了人们对台湾的担忧，莫斯科为战争寻找的借口，正如新中国联邦创始人MILES GUO在2021年10月10日讲话所警告的那样。“只要有台独，解放军就可以进去；只要有人欢迎我，我就可以进；只要台湾有外国势力加入我就可以去。”这也是普京的借口，乌克兰东部人民需要我去拯救。
 
-把大腿给豁开了，他因为听了七哥相信新中国联邦
-they opened his thighs, because he trusts Brother Seven and believes in the New Federal State of China
+这个时候，乌克兰总统弗拉基米尔·泽连斯基（Volodymyr Zelenskyy）在一个激动人心的夜间用俄语直接呼吁俄罗斯公民说，“乌克兰人民和乌克兰政府想要和平，但如果我们受到攻击，如果我们面临企图夺走我们的国家、我们的自由、我们的生命和我们孩子的生命，我们将捍卫自己。当你攻击我们时，你会看到我们的脸，而不是我们的背。”泽连斯基总统表示乌克兰将誓死捍卫国家和自由价值观。
 
-那要不相信他必死无疑的，那么疫苗灾难有没有开始，没开始
-If you don’t believe it that it’s sure he will die, well, has the vaccine disaster started yet? Not yet
+但普京在电视讲话中否认了“俄罗斯的目标不是占领乌克兰”，并敦促“乌克兰军人立即放下武器回家”。他还指责美国及其盟国无视俄罗斯阻止乌克兰加入北约并向莫斯科提供安全保证的要求。但是，就在普京下令时，基辅、哈尔科夫和乌克兰其他地区都听到了巨大的爆炸声。
 
-疫苗灾难开始是什么情况？不是政府的全面工作给你检测病
-How the vaccine disaster start? It’s not the government’s job to test you
+世界担心，俄罗斯的全面入侵可能会造成大量人员伤亡，并推翻乌克兰民选政府。冲突的后果引发对俄罗斯实施的制裁可能会在全世界产生影响。首先是欧洲的能源供应，震动全球金融市场，并威胁到冷战后非洲大陆的平衡和台湾地区的动荡。对此，MILES GUO于美东时间23日视频直播表示，“这次俄乌战争和大流行期间带来一个更大的转变是，世界货币将迅速向数字货币发展，你会发现大流行以来美元超发几十万亿，谁来买单？这回战争一响，美债有主了，世界将没有选择，所有的钱只能去美国。金融避险天堂还有其它地方吗？因此，最后，这个世界需要我喜联储”（[1:21.22时段了解更多](https://gettr.com/post/pwbjub06c5)）
 
-这是个免疫功能下染出来的，我告诉你疫苗灾难到周期时我问过科学家
-It comes from immune system, I told you that I asked the scientists about the vaccine disaster hits the cycle
+- ***延展阅读：***[***五角大楼-入侵开始，80%的俄罗斯军队正在“前沿阵地”***](https://www.airforcemag.com/pentagon-80-of-russian-forces-in-forward-position-to-invade-ukraine/)
+- ***延展阅读：***[***战争直播-莫斯科发动全面入侵乌克兰***](http://xn--mtqx4bia39jo3bd28c2p3aoqq7r4b/)
+- ***延展阅读：***[***CNN-日本首相称俄罗斯的入侵“动摇了国际秩序的基础***](https://www.cnn.com/europe/live-news/ukraine-russia-news-02-23-22/index.html)***”***
 
-他说我可以告诉你怎么死？会发现什么？
-He said I can tell you how to die? What will be found?
 
-吐血、流鼻血、眼睛出血、耳朵出血
-vomiting blood, nosebleeds, eye bleeding, ear bleeding
+接下来的世界格局的改变将是风云突变，真正引发担忧将是台湾。世界永远都不要相信美军回去拯救台湾，就像现在美军仍然按兵不动没有去拯救乌克兰一样。美国总统拜登对于乌克兰局势除了谴责“普京对乌克兰发动的是一场有预谋的战争”外就只剩下祈祷。
 
-女性月经来了，突然以为来月经了
-Women are menstruating, suddenly they think they are menstruating
+拜登总统23日晚在针对俄军侵略乌克兰的《[申明](https://www.whitehouse.gov/briefing-room/statements-releases/2022/02/23/statement-by-president-biden-on-russias-unprovoked-and-unjustified-attack-on-ukraine/)》中祈祷说，“今晚，祈祷全世界人民与乌克兰人同在，因为他们遭受了俄罗斯军队无端和无理的攻击，这将带来灾难性的生命损失和人类苦难，俄罗斯将独自应对这次袭击将带来的死亡和破坏负责。”注意，拜登总统没有提到西方会追究合谋者——习近平的责任。拜登继续祈祷说，“世界将追究俄罗斯的责任。我们还将确保俄军对北约的任何侵略。今晚，吉尔和我为乌克兰勇敢而自豪的人民祈祷。”
 
-今天来明天突然又来了，一直流血不止
-Today come, tomorrow and suddenly come again, bleeding all the time
+俄乌战争-[实时报告](https://www.mil.gov.ua/news/)
 
-孩子突然倒地，就是这种爆发性的
-The child suddenly fell to the ground, this is the explosive
+![](https://assets.gnews.org/wp-content/uploads/2022/02/俄乌战争：普京下令攻打乌克兰-首都基辅危在旦夕2.png)
 
-那么前期在我去年就告诉大家，就又开始的时候就会发现
-Well, I told you earlier last year, and you will find it out when it starts
+[乌克兰武装部队总参谋部的报告](https://www.mil.gov.ua/news/2022/02/24/povidomlennya-generalnogo-shtabu-zbrojnih-sil-ukraini/)：
 
-打了疫苗的人，反而病毒再来再来再来
-People who have been vaccinated will instead get the virus again and again
+*今天，2 月 24 日凌晨 5 点，俄罗斯联邦武装部队开始对我在东部的部队进行猛烈炮击，并对鲍里斯波尔、奥泽尔诺耶、库尔巴金、楚格耶夫、克拉马托尔斯克、乔尔诺巴耶夫卡等机场进行了火箭弹和炸弹袭击。就像袭击军事设施一样袭击乌克兰民用设施。与此同时，侵略者开始炮击乌克兰沿国界的领土和居民定居点。*
 
-就是它破坏你免疫力，一旦有病毒风吹草动你就染上了
-It means that the vaccine destroys your immunity, once there is a virus, you will be infected
+*乌克兰武装部队空军正在击退入侵者的空袭。国家国防军处于全面战备状态，已采取并保持防御阵地。局势已得到控制。*
 
-然后有点感冒导致你发烧，你也认为是病毒，就是叫误诊
-Then a little cold causes you to have a fever, and you also think it is a virus, which is called misdiagnosis
+*有关俄罗斯军队在敖德萨登陆的信息不属实。*
 
-但真正的就是破坏掉你全身体以后，就房倒屋塌，瞬间就像海啸来一样
-But the real thing is that after destroying your whole body, just like the house collapses, like a tsunami in an instant
+*让我们一起赢！*
 
-所以我今天我特别认真我求求战友们，一定忍住五月份
-So I am very serious today, I beg my comrades in arms, you must be held back until May
+2022年2月24日
 
-你别像现在三百年的飞飞，我昨天在群里没说她
-Don’t be like 300-year Feifei now, I didn’t talk about her in the group yesterday
-
-我说她我生一次气，我干嘛生两次气，我今天上直播上说去
-I told her that I was angry once, why did I get angry twice, I said it on the live broadcast today
-
-我一句都没搭理她，我看了要把孩子送出去了
-I didn’t pay any attention to her, I saw that she was going to send the child out
-
-你说这叫作当妈的吗？这不是作么，是吗？
-How could you be a mum? What it is？right？
-
-你把孩子送出去，你俩轻松了是吧
-You send the child out, you two are relax, right?
-
-给你老公双修，你送出去有你后悔的一天
-Cozy with your husband, you will regret it one day when you send the kids to the school
-
-* * *
-
-Date: 02/22/2022
-原视频标题: 新加坡、以色列、香港的疫情是疫苗后遗症，一定要忍到五月份
-The epidemics in Singapore, Israel and Hong Kong are the sequelae of vaccines and must be held back until May
-原视频日期：2022/02/18
-原视频链接 [https://gettr.com/post/pvwvwmf93a](https://gettr.com/post/pvwvwmf93a)
-任务编号：KC467（3819）
-视频时间段 : 0:00-2:08
-中听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 –青梅煮酒
-审片：洛杉矶盘古农场 –银龙
-发布：洛杉矶盘古农场 –恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

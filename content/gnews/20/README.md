@@ -2,36 +2,91 @@
 ---
 
 
-## 蔡英文总统指示加强台湾海峡周边军事动向监视与防御
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2057601/)
+## 防火墙是中国人精神里的墙
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2057752/)
 
-翻译:宫米叶
+[https://gtv.org/video/id=6215ee151408ee3a03a3b272](https://gtv.org/video/id=6215ee151408ee3a03a3b272)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2248-edited.png)www3.nhk.or.jp
+共产党在就永远有防火墙
+El Partido Comunista siempre tendrá un cortafuegos
 
-鉴于围绕乌克兰局势的紧张程度急速加剧，台湾总统蔡英文23日表示，考虑到中共国的威胁，指示军方等加强对台湾海峡周边军事动向的监视和防御。
-据台湾总统府报道，蔡总统23日收到了上月成立的研究乌克兰局势特别工作组的报告。
+防火墙不是物理化防火墙
+El cortafuegos no es un cortafuegos físico
 
-在这其中，蔡英文谴责“俄罗斯侵犯乌克兰的主权”，同时说：“台湾作为国际社会的一员，会敦促所有各方继续通过和平与理性的手段解决争端。”
+它是一个是意识形态
+Es una ideología
 
-同时指示军方加强高对台湾海峡周边军事动向的监视和防御水平，并继续加强对任何事态立即作出反应的防备工作。
+它是一个国家恐怖主义的防火墙
+Es un cortafuegos del terrorismo nacional
 
-此外，蔡英文还说“台湾和乌克兰在地缘战略、地理环境和国际供应链的重要性方面有着根本的不同”，同时要求各机构加强对外国势力企图利用乌克兰紧张局势在台湾引发恐慌和不稳定的虚假信息努力保持高度警惕。
+防火墙根本不存在
+El cortafuegos no existe en absoluto
 
-蔡英文23日的讲话虽然并未点名中共国，但她上月表示，“台湾长期面临中共国的军事威胁，我们对于乌克兰的处境感同身受”，她对中国趁着乌克兰局势即将采取的行动表现出强烈的警戒感。
+就像那个谷爱凌说的
+Así como dijo Gu Ailing
 
-中共国新闻发言人批评“台湾是在利用乌克兰局势”
+你上谷歌, 上苹果上下载一个VPN就可以翻墙了嘛
+Vas a Google, Apple y descargas una VPN para eludir la censura
 
-针对乌克兰形势下台湾对中共国的警戒不断增强，中共国政府负责对台政策的国务院台湾事务办公室新闻发言人马晓光在23日的新闻发布会上表示：“民进党当局配合美西方舆论，借乌克兰问题恶意炒作所谓大陆‘军事威胁’。当前台湾海峡紧张局势的根本原因是民进党当局和“台独”势力勾连外部势力不断进行谋‘独’挑衅。“批评蔡英文政权。
+这话都说了
+Está todo dicho
 
-来源：【www3.nhk.or.jp】[蔡英文総統 台湾海峡周辺の軍事動向 監視と警戒強化など指示](https://www3.nhk.or.jp/news/html/20220223/k10013497811000.html?utm_int=word_contents_list-items_001&amp;word_result=%E4%B8%AD%E5%9B%BD%E3%83%BB%E5%8F%B0%E6%B9%BE)
+你觉得她说的话不是真的吗? 是真的
+¿Tú crees lo que ella dijo no es cierto? Es verdad
+
+真要想翻墙不存在墙
+Si realmente quieres eludir el muro, esta cosa no existe
+
+是中国人心里边儿精神上那个墙
+Es el muro mental en el corazón del pueblo chino
+
+谷爱凌就在国内呢
+Gu Ailing está en China
+
+你都相信这种事情
+Si crees este tipo de cosas
+
+那有墙吗
+¿Realmente existe muro?
+
+墙在你心里边儿
+El muro está en tu corazón
+
+在你脑子里边儿
+En tu mente
+
+真正的墙就是共产党
+El verdadero muro es el Partido Comunista
+
+不把共产党灭了, 你灭什么墙
+Si no eliminas al Partido Comunista, qué tipo de muro estás destruyendo
+
+战友们别天真, 别天真, 别天真
+Compañeros luchadores, no sean tan inocentes, no sean inocentes
+
+我听到你问这问题的时候我就捉急
+Me pongo nervioso al escuchar que me haces esta pregunta
 
 * * *
 
-审核: 宫米叶
-校对: 天天
-发布：花羽
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-8.jpeg)
+日期：02/21/2022
+原视频标题：防火墙是中国人精神里的墙
+El Cortafuegos es el muro que hay dentro del espíritu chino
+原视频日期：02/14/2022
+原视频网址：[**https://gettr.com/post/pucsbb2f1e**](https://gettr.com/post/pucsbb2f1e)
+任务编号：KC463（3747）
+视频时间段：0:00-01:01
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场- Jambo
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

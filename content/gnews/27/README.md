@@ -2,31 +2,27 @@
 ---
 
 
-## 中日财经爆| 俄乌战争爆发推升油价飙破100美元 创8年来新高
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2057535/)
+## COVID-19 最新情报｜英格兰数据 8-10%儿童接种疫苗后缺课一次
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2057685/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-49.jpg)[图片来源](https://www.google.com/imgres?imgurl=http%3A%2F%2Fqqpublic.qpic.cn%2Fqq_public%2F0%2F0-1792972460-DC3A0EA59E04B7F1ABBB7DF1353C01C8%2F0%3Ffmt%3Djpg%26size%3D25%26h%3D412%26w%3D550%26ppv%3D1&amp;imgrefurl=https%3A%2F%2Fdaydaynews.cc%2Fen%2Fcar%2Ftoday-oil-prices)
-国际石油价格飙升，周四（2月24日）布兰特原油升破100美元大关，为2014年以来首见，因俄罗斯袭击乌克兰，加剧欧洲战争可能扰乱全球能源供应的担忧。
+**撰文｜疫情关注组 / 发布时间｜24/02/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Movie-Studio-1.png)**更多资讯请关注官方盖特（Please follow our Gettr：**[**https://gettr.com/post/pl6k0218bf**](https://gettr.com/post/pl6k0218bf)**)**
+英媒[《THE EXPOSE》](https://dailyexpose.uk/2022/02/23/800k-kids-missed-school-adverse-reaction-covid-jab/)23日报导，英格兰政府在去年向12-15岁的儿童提供新冠疫苗接种，英格兰首席医疗官 Chris Whitty向JCVI\*(注1)表示，不建议让12岁以上的儿童接种新冠疫苗，其理由是统计数据显示，新冠疫苗不能预防感染或阻断传播。然而被以接种新冠疫苗的益处略大于已知的潜在危害为由驳回。Chris Whitty不建议12岁以上儿童接种疫苗的理由是，据统计数据，新冠疫苗不能预防感染或阻断传播。。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-24-下午4.12.08.png)UK Health Security Agency:[COVID-19 vaccine surveillance report Week 7](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1055620/Vaccine_surveillance_report_-_week_7.pdf)
+上图数据为2022年1月23日至2月13日期间，各年龄段每十万人中“未接种疫苗(蓝色)、接种三剂疫苗(红色)”新冠确诊的数量。由图表可知，接种三剂疫苗都是高于未接种疫苗的。
 
-在俄罗斯总统普京授权他所谓的特别军事行动后，乌克兰外交部长库列巴(Dmytro Kuleba)在社交媒体发文说，俄罗斯已经对乌克兰发动了全面入侵，并瞄准各大城市进行武器攻击。
+此外，JCVI在发表意见当中写道，5-11岁儿童在接种新冠疫苗后，大约有8-10%的儿童至少缺课一天。在美国，此年龄段接种新冠疫苗人数超过800万名，若依照JCVI的统计数据将会有近80万名儿童因疫苗不良反应而被迫缺课。
 
-布兰特原油一度触及每桶102.48美元，创2014年9月以来新高，0547 GMT报每桶102.06美元，上涨5.22美元，或5.4%。
+韩国，近日确诊人数快速增加，政府表示正在考虑将5-11岁儿童纳入接种对象，但尚未有定论。韩国政府统计数据显示，21日新增9万9573例确诊中，0-9岁与10-19岁合计占比达到三成，且每10万名确诊个案中0-9岁及10-19岁的比例高出其他年龄层许多。对比纽西兰官方统计数据（下图），0-19岁区间的确诊率总和约为33%，与韩国政府数据相近。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-24-下午4.46.38.png)[來源](https://www.health.govt.nz/covid-19-novel-coronavirus/covid-19-data-and-statistics/covid-19-case-demographics#vaccinations-details)
+**有趣的是，即便韩国政府统计上以0-9、10-19为区间段，但政府仍考虑开放5-11岁儿童接种新冠疫苗**。据报导，日本韩国皆是跟随美国政策，宣布开始为5-11岁儿童接种疫苗。
 
-美国西德克萨斯中质原油(WTI)期货跳涨4.85美元，或5.3%，至每桶96.95美元，此前一度升至97.40美元，为2014年8月以来最高。
+新加坡，早在去年便宣布预计12月底为5-11岁族群接种疫苗，预计涵盖30万名儿童，截至1月31日已经接种了23万8253剂。照JCVI的相关数据，可能会有3万名儿童接种后出现缺课情形。台湾政府则于1月13日宣布，5-11岁儿童有望在下半年接种新冠疫苗。
 
-由于担心美国和欧洲将对俄罗斯的能源部门实施制裁，扰乱供应，自2022年年初以来，油价已飙升超过每桶20美元。
+- 註1（Joint Committee on Vaccination and Immunisation，可译为疫苗及免疫专家小组））
 
-俄罗斯是世界第二大石油生产国，主要向欧洲炼油厂出售原油，同时也是欧洲最大的天然气供应国，提供欧洲约35%的天然气供应。
 
-消息来源:
-
-[油价飙破100美元为2014年以来首见 因俄罗斯袭击乌克兰](https://cn.reuters.com/article/oil-rally-0224-thur-idCNKBS2KT0LS?il=0)
-
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
-
+来源｜ [中央社](https://www.cna.com.tw/news/aopl/202202220259.aspx)、[光明日報](https://guangming.com.my/%E6%96%B0%E5%8A%A0%E5%9D%A110%E5%90%8D%E5%85%92%E7%AB%A5-%E6%89%93%E7%96%AB%E8%8B%97%E5%BE%8C%E7%8F%BE%E5%9A%B4%E9%87%8D%E4%B8%8D%E8%89%AF%E5%8F%8D%E6%87%89)、[《THE EXPOSE》](https://dailyexpose.uk/2022/02/23/800k-kids-missed-school-adverse-reaction-covid-jab/)、[New Zealand Ministry of Health](https://www.health.govt.nz/covid-19-novel-coronavirus/covid-19-data-and-statistics/covid-19-case-demographics#vaccinations-details)
 
  
 

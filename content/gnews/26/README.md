@@ -2,34 +2,132 @@
 ---
 
 
-## 良言抵万金，新加坡华人小心了！
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2057544/)
+## 乌克兰东部的炮击升级
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2057689/)
 
-作者：ZERO (酷翻组文贵直播原创)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/酷翻组1-13.png)
-文贵先生在2月18日的大直播里，又为全球华人提供了保命信息，这次把脉的是曾经的亚洲四小龙-新加坡，以下是文贵先生对新加坡当前局势的看法：
+[https://gtv.org/video/id=6215ed481408ee3a03a3b245](https://gtv.org/video/id=6215ed481408ee3a03a3b245)
 
-郭先生曾经认为新加坡的威权民主模式适合中国民主化的初期阶段，但几年下来，新加坡的政局让郭先生极为失望。他认为，李家的执政风格非常丑陋，对待新加坡老百姓非常残酷。李氏家族的人都跟郭先生有接触，在郭先生眼中很多后辈都是从孩子看着长大的。李家崇拜美国，但教育模式，思维习惯，穿衣打扮，生活方式学的是欧洲英国，但是又非常现实，出于利益关系又跟着CCP走。郭先生认为，李家后继无人，一家人都很无知。
+Chuck Holton (Newsmax Foreign Correspondent)
+查克·霍尔顿（Newsmax 驻外记者）
 
-CCP藏钱最多的地方是卢森堡，卢森堡的每个角落都有CCP的渗透。然后是瑞士和新加坡。从美国撤出的钱大多撤往新加坡，小部分去了日本。新加坡的主要收入依赖码头、赌场和金融，票据业务新加坡第一，包括家族信托。新加坡帮CCP洗钱，习江孟王，都在新加坡有很多资产，新加坡摆脱不了被CCP控制。新加坡一直在CCP和美国之间周旋，最终一定跟美国走。几天前，李家人在欧洲听说疫苗会造成灾难，现在很慌张。李总理很倔犟，认为要把疫苗政策进行到底，但是最终会跟着美国走。郭先生认为，死亡率剧增，会逼迫新加坡停止强制疫苗政策。
+Now Russia boasts over 200,000 troops along Ukraine’s border
+现在俄罗斯在乌克兰边境拥有超过200,000名士兵
 
-郭先生认为，新加坡对华人来说不安全，希望战友离开，原因有三：
+And this just just out from the Ministry of Defense here
+这个刚刚从国防部出来
 
-1 李家江山争夺将会造成动乱，牺牲者一定是华人。马来人和其他东南亚移民想夺回新加坡。
+that Russian tanks and armor are taking up attack positions
+俄罗斯坦克和装甲部队正在占据攻击阵地
 
-2 美国和ccp较量会让新加坡毁灭。
+They’re no longer just driving in convoys
+他们不再只是在车队中驾驶
 
-3 李家后继无人，执政能力低下。
+but they’re actually spreading out into attack positions along that Southern southeastern border
+但他们实际上正在沿着东南边界展开攻击阵地
 
-爆料革命5年，给全世界提供多少深入的时事分析和准确的情报信息，多少人因此得以趋福避祸，保命，保财，保未来。这也是为什么每次文贵直播都能受到亿万观众瞩目，世界在剧烈的动荡中重生，唯有新中国联邦，如洪水中的诺亚方舟，为全球华人指明方向。
+They are deciding to continue their military drills up in Belarus today
+他们决定今天继续在白俄罗斯进行军事演习
 
-文贵直播链接：
+and yesterday they they filmed what I would call a Hollywood worthy training exercise
+而且昨天他们拍摄了我称之为好莱坞式的训练练习
 
-[https://gtv.org/video/id=621031e0b706176dd78cdd0e](https://gtv.org/video/id=621031e0b706176dd78cdd0e)
+firing off dozens and dozens of ground to air missiles
+发射了数十枚地对空导弹
 
-审核校对：sherryok
+that would have taken out Ukraine’s entire Air Force about four times over just in those exercises
+仅仅在那些演习中，这将把乌克兰的整个空军摧毁大约四倍
 
-上传排版：水云间
+And obviously, that’s a message meant to be sent to the west, not to Ukraine
+很明显，这是一条要发送给西方的信息，而不是给乌克兰
+
+and that’s the reason I think people here in Kiev are still going about their business
+这就是我认为基辅的人们仍在继续做他们的事情的原因
+
+and shopping and doing whatever they normally do
+购物和做他们通常做的事
+
+because they understand that this is a conflict between the West and between Russia
+因为他们明白这是西方与俄罗斯之间的冲突
+
+Unfortunately, they’re the political football in the middle
+不幸的是，他们是中间的政治足球
+
+Shaun Kraisman （Newsmax host)
+肖恩·克莱斯曼 (Newsmax 主持人）
+
+Yeah, again, there have been talks at the people you spoken to though again on the ground
+是的，再次与你交谈过的人进行了会谈，但又是在地面上
+
+and some you see and I continue to point out people just walking around as normal yet
+还有一些你看到的，我继续指出人们只是像往常一样四处走动
+
+you’ve got announcement of a potential kill list there and Ukraine
+已经宣布了一个潜在的杀戮名单，而在乌克兰
+
+Doesn’t seem like a lot of fear on the ground, at least in Kiev
+现场似乎没有太多恐惧，至少在基辅
+
+Chuck Holton
+查克·霍尔顿
+
+You know, there there have been so much disinformation
+你知道，有这么多的虚假信息
+
+that’s put out by the Russian media and Russian Foreign Service
+这是俄罗斯媒体和俄罗斯外交部发布的
+
+that they are saying that they’re capturing teams of Ukrainian terrorists inside the Donetsk region
+他们说他们正在顿涅茨克地区抓捕乌克兰恐怖分子小队
+
+actually, inside Russian territory on the other side of the occupied zone
+实际上，在占领区另一边的俄罗斯领土内
+
+and that they say they just captured some military infantry vehicles from Ukraine
+他们说他们刚刚俘获了一些来自乌克兰的军用步兵车辆
+
+that drove all the way across somehow that occupied zone
+以某种方式一路驶过被占领的区域
+
+and were captured as they were crossing into Russia
+而且在他们进入俄罗斯时被俘
+
+The people here in Kiev understand that there’s not one frame or one word
+在基辅这里的人明白，没有一个框架或一个词
+
+that comes out of that, the Russian media that is true
+由俄罗斯媒体而来的说的是真的
+
+And in talking with people who have been in contact with folks inside the occupied zones
+并与与占领区内的人有过接触的人交谈
+
+they know it too, and so, again
+他们也知道, 所以，再一次
+
+until the tanks are rolling and the bombs are falling
+直到坦克滚滚而来，炸弹落下时
+
+people here gonna keep on going
+这里的人会继续按平常做事
+
+* * *
+
+Date:02/21/2022
+原视频标题:Shelling in eastern Ukraine escalates
+乌克兰东部的炮击升级
+原视频日期：2022/02/21
+原视频链接[**https://twitter.com/newsmax/status/1495782265565110272?s=24**](https://twitter.com/newsmax/status/1495782265565110272?s=24)
+任务编号：KE413（379
+视频时间段 : 0:00-2:25
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-文新
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -2,41 +2,111 @@
 ---
 
 
-## 乌克兰要求该国公民离开俄罗斯
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2057692/)
+## 俄罗斯总统弗拉基米尔·普京承认乌克兰两个省为独立国家的法令与普京在 2008 年入侵格鲁吉亚之前签署的法令几乎相同
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2057864/)
 
-#### **【雅典娜快讯】，紧贴时代脉搏**
+[https://gtv.org/video/id=6215fe721408ee3a03a3b6bd](https://gtv.org/video/id=6215fe721408ee3a03a3b6bd)
 
-翻译：文扬
-编辑：文泓
+Alex Salvi (Newsmax foreign correspondent)
+亚历克斯·萨尔维（Newsmax 外国记者）
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/8-35.png)图片来源：Valorizy & 雅典娜设计组
+Russia’s incursion into Georgia almost 15 years ago
+大约 15 年前，俄罗斯入侵格鲁吉亚
 
+shows an uncanny trajectory that draws parallels to the current conflict in Ukraine
+显示出与乌克兰当前冲突相似的不可思议的轨迹
 
-当地时间2月23日，据RT电视台报道，乌克兰外交部周三发布的咨询意见说，已建议乌克兰公民不要以任何理由“访问俄罗斯联邦，目前在该国的人应立即离开其领土”。声明说，那些不遵循指示的人，可能不会受到基辅的保护。
+Shortly after the Summer Olympics in Beijing in 2008
+2008年北京夏季奥运会后不久
 
-外交部此前曾建议乌克兰应切断与俄罗斯的所有外交关系，以回应后者承认该国东部的两个分离地区为主权国家。
+Moscow recognized the independence of two breakaway regions of Georgia
+莫斯科承认格鲁吉亚两个分离地区的独立
 
-周二，俄罗斯下令从乌克兰撤离其外交人员，理由是俄罗斯大使馆收到威胁（警告）。其他一些国家以俄罗斯和乌克兰之间的军事升级风险为由，将其外交官转移到乌克兰西部地区。
+and properly executed a ground campaign under the disguise of liberation
+并以解放为幌子妥善开展地面战役
 
-上周末，美国也建议其在俄罗斯的公民为可能的疏散做准备，声称他们有可能成为那里不明确“攻击”的受害者。美国大使馆援引“媒体消息”作为发出警告的理由。
+That was location where pro Russian separatists were fighting with Georgian authorities
+那是亲俄罗斯分裂分子与格鲁吉亚当局交战的地方
 
-在周一俄罗斯作出决定，承认顿涅茨克和卢甘斯克人民共和国为主权国家。它说这是必要的，因为基辅多年来一直未能推进2015年和平路线图的实施，即明斯克协议，俄罗斯曾帮助调解。
+At a time where NATO was considering extending membership to both Georgia and Ukraine
+当时北约正在考虑将成员资格扩大到格鲁吉亚和乌克兰
 
-莫斯科则称，乌克兰正在准备对叛乱省份进行新的攻击，因为其西方支持者一直对乌克兰针对乌东分离主义分子犯下的暴行视而不见。
+now, Russia here in NATO expansion East launched a military incursion into Georgia
+当时，俄罗斯在北约向东扩张对格鲁吉亚发动军事入侵
 
-而乌克兰总统泽连斯基称俄罗斯此举为“司法侵略”，但没有宣布在其国家实施戒严。
+under the disguise of being peacekeepers
+伪装成维和人员
 
-原文链接： [Ukraine tells citizens to leave Russia — RT Russia & Former Soviet Union](https://www.rt.com/russia/550323-ukraine-tells-citizens-to-leave/)
+gaining the attention of world leaders who voiced support for Georgia’s territorial integrity
+引起对格鲁吉亚领土完整表示支持的世界领导人的关注
 
-发布：tianzhihuan
+But the United States reportedly concerned using military force
+但据报道，美国担心使用武力
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+to deter the invasion by Russia
+以阻止俄罗斯的入侵
+
+but opted instead for sending humanitarian aid
+但选择发送人道主义援助
+
+But a turning point was when Georgian President Mikheil Saakashvili engaged the separatists fighters
+但是，当格鲁吉亚总统米哈伊尔-萨卡什维利与分离主义战士
+
+and so called as so called peacekeepers
+和所谓的维持和平人员交战时，出现了转折点
+
+prompting a much larger military response from Russia
+促使俄罗斯做出更大的军事反应
+
+that overwhelmed the Georgian forces
+压倒了格鲁吉亚军队
+
+So this is likely an event known by Ukrainian President Volodymyr Zelenskyy
+所以这很可能是乌克兰总统弗拉基米尔·泽连斯基知道的事件
+
+who is showing restraint in the base of increased aggression
+他在侵略性增加的基础上表现出克制
+
+by Russian backed separatists in his country who may be trying to draw a response
+俄罗斯支持的乌克兰国内分离主义者可能正试图引来回应
+
+In fact, Russian President Vladimir Putin’s decree
+事实上，俄罗斯总统弗拉基米尔·普京的法令
+
+recognizing the independence of eastern Ukraine
+承认乌克兰东部的独立
+
+was nearly identical to the decree signed for the incursion into Georgia back in 2008
+几乎与 2008 年签署的入侵格鲁吉亚的法令相同
+
+So as for the outcome of the Russo Georgian War
+至于俄罗斯格鲁吉亚战争的结果
+
+Russia still maintains control over the two territories sees
+俄罗斯仍然保持对这两个领土的控制
+
+the fate that presidents Zelenskyy and the Ukrainian people are likely trying to avoid in this conflict
+泽伦斯基总统和乌克兰人民在这场冲突中可能试图避免的命运
+
+* * *
+
+Date:02/22/2022
+原视频标题:Russian President Vladimir Putin’s decree recognizing two provinces in Ukraine as independent states is nearly identical to the decree Putin signed before invading Georgia in 2008
+俄罗斯总统弗拉基米尔·普京承认乌克兰两个省为独立国家的法令与普京在 2008 年入侵格鲁吉亚之前签署的法令几乎相同
+原视频日期：2022/02/22
+原视频链接[**https://twitter.com/newsmax/status/1496126653445124099?s=24**](https://twitter.com/newsmax/status/1496126653445124099?s=24)
+任务编号：KE415（3822）
+视频时间段 : 0:00-1:27
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

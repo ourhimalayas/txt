@@ -2,38 +2,28 @@
 ---
 
 
-## 南非华为不遵守招聘配额，面临劳工部罚款
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2057321/)
+## 中日财经爆|中共国允许俄罗斯全境小麦进口 但俄运输港口关闭
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2057576/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片3-9.jpg)[图片来源](https://www.ft.com/content/7cbc024c-2998-11e2-a5ca-00144feabdc0)
+中共海关总署2月24日发布公告称，根据中国相关法律法规和中国海关总署与俄罗斯农业部关于《俄罗斯输华小麦植物检疫要求议定书》补充条款的规定，允许俄罗斯全境小麦进口。
 
-整理：围剿维尼熊
-编辑：文泓
+海关总署网站周四刊登这一公告。中国和俄罗斯两国元首本月初在北京会晤并签署一系列合作文件，其中包括名为《中华人民共和国海关总署与俄罗斯联邦农业部关于俄罗斯输华小麦植物检疫要求议定书补充条款》。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/6-44.png)图片来源：雅典娜设计组
+俄罗斯军队周四向乌克兰的几个城市发动了袭击。俄罗斯是全球最大的小麦出口国，其谷物主要从黑海的港口运输。俄罗斯已暂停亚速海上所有的商船往来，直到另行通知为止。
 
+亚速海是一个陆间海：西面有克里米亚半岛，北面为乌克兰，东面为俄罗斯。只有刻赤海峡与黑海相连。亚速海是大西洋水系之中最深入内陆的陆间海，以船只从直布罗陀海峡进入起计，需要经过地中海、马摩拉海和黑海三个陆间海才可进入亚速海。
 
-2月23日据路透社报道，一位南非政府官员表示，南非劳工部正在与中国华为技术有限公司的一家子公司就可能的庭外和解进行谈判，劳工部指控华为没有遵守当地的招聘配额要求。
+消息来源:
 
-劳工部引用2020年的一份查核报告称，南非华为近90%的员工是外籍人士。劳工部要求处以150万兰特(99,547美元)罚款，相当于南非华为2020年全年营收的2%。
+[中国海关总署：允许俄罗斯全境小麦进口](https://cn.reuters.com/article/china-russian-wheat-imports-0224-thur-idCNKBS2KT0P5?il=0)
 
-目前南非正面临自1994年白人少数族裔统治结束以来最高的失业率。南非当局本月将南非华为技术公司告上法庭，称该公司没有达到60%的员工必须是南非人的要求。
+[俄罗斯暂停亚速海上的商船往来–消息](https://cn.reuters.com/article/russia-suspends-azov-vessels-0224-thur-idCNKBS2KT0RG?il=0)
 
-劳工部的律师告诉路透社，该部官员周一会见了华为技术南非公司的代表。
-
-华为公司证实，它已经“进入谈判，以达成和解协议”，该案件在等待结果。该公司在回应询问的电邮中称，相关讨论持续进行中，华为承诺充分配合劳工部。该公司拒绝评论指控，称无法对进行中的法律事务置评。
-
-参考链接：[独家：南非劳工部与华为子公司谈判](https://cn.reuters.com/article/south-africa-labor-huawei-talk-0223-idCNKBS2KS0UT)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
