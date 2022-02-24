@@ -2,26 +2,33 @@
 ---
 
 
-## 俄罗斯悍然入侵乌克兰台湾危在旦夕
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2059676/)
+## 有声|中共使用机器人和虚假帐号影响冬奥会讨论
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2059775/)
 
-加拿大温哥华扬帆农场  硫酸羟氯喹64
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+美国媒体2月18日报导，中共使用机器人、虚假帐号等工具选择性编辑宣传故事，以影响有关冬奥会的讨论。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/a-17-edited.jpg)图片来源：盖特
+据报道，该媒体与非营利调查新闻编辑室ProPublica发现，推特上存在一个中共虚假帐号网络。该网络有超过3000个帐号，通过分享带有相同评论的中共外宣推文，以协调行动，影响有关冬奥会的讨论。这些帐号普遍创建不久，没有关注者，推文仅以转发中共外宣推文为主。
 
+目前推特已经通过电子邮件声明，确认数百个账户已被封禁，同时表示，将进一步调查这些帐户与国家支持的信息运营之间的联系。
 
-据2月24日盖特消息，文贵先生最新发布的盖特视频显示出，俄罗斯军队大量的战斗机和轰炸机以及坦克装甲车当天长驱直入，悍然进犯乌克兰领空和领土。低飞呼啸而过城市上空的俄军战机清晰可见。
+中共冬奥会的虚假不仅限于虚假帐号操纵舆论。根据郭文贵先生在大直播中的爆料，中共冬奥会场的雪为人造假雪，裁判被中共买通非公正判罚，中共参赛运动员国籍造假。中共冬奥会的呈现只有虚假和丑陋。
 
-对此，文贵先生紧急呐喊警告道：战魔再次打烂世界！这样残酷的战争很快会在台湾发生！希望所有在台湾的战友们和朋友们能以最快的速度撤离！任何台湾的战友都应该受到[新中国联邦]全球农场和战友们的全力协助和支援。
+文字版原文：[中共使用机器人和虚假帐号影响冬奥会讨论](https://gnews.org/zh-hans/2045293/)
 
-至此，在俄罗斯公然入侵乌克兰之后，台海之战将一触即发，中共党卫军将迅速攻占涌入台湾，人道主义灾难正迫在眉睫，消灭中共政权已刻不容缓。具体详细情况，我们将静待文贵先生的进一步警示。
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-消息来源：https://gettr.com/post/pwl3b20ef8
-
-编辑撰稿，发稿：硫酸羟氯喹64
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

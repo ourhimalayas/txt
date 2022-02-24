@@ -2,38 +2,122 @@
 ---
 
 
-## 负责川普刑事调查的检察官已辞职
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2059997/)
+## 锁链女
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2060042/)
 
-翻译：Jenny Ball
+作者：香草山教育部 — 蓝之灵（Hortensia)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/id12890341-GettyImages-1304610267-600x400-1.jpg)Joe Raedle/Getty Images
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-109-1280x172-1.jpg)
 
-纽约——负责曼哈顿地区检察官对前总统唐纳德·川普进行刑事调查的两名检察官周三突然辞职，这使调查的未来受到质疑。
 
-地方检察官阿尔文·布拉格（Alvin Bragg）的发言人证实了凯里·邓恩（Carey Dunne）和前黑手党检察官马克·波梅兰茨（Mark Pomerantz）的辞职，他们两人都是在前地方检察官小赛勒斯·万斯（Cyrus Vance Jr）领导下开始调查的。
 
-“我们感谢他们的服务，”发言人丹妮爱拉·菲尔森（Danielle Filson）说。她拒绝进一步置评，称调查仍在进行中。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-1-2.png)
 
-《纽约时报》援引消息人士的话说，在布拉格对起诉特朗普提出质疑后，邓恩和波梅兰茨辞职。
+沉重铁链
 
-已经给邓恩和波梅兰茨发短信要求置评。
+挂在我脖颈
 
-检察官办公室的调查，导致去年 7 月对川普的公司“川普集团”及其长期担任财务主管的艾伦·韦塞尔伯格（Allen Weisselberg）提出税务欺诈指控。
+二十四年到如今
 
-韦塞尔伯格被指控收取超过 170 万美元的账外补偿，包括公寓租金、汽车付款和学校学费。他和公司均表示不认罪。
+一路路辗转
 
-这是突发新闻。随着更多信息的更新。
+从家乡到此处
 
-**参考资料：**[abc7ny][Prosecutors in charge of Trump criminal probe have resigned](https://abc7ny.com/donald-trump-criminal-probe-manhattan-district-attorney-prosecutors-resign/11593141/)
+不记得
 
-* * *
+多少日夜
 
-*审核：文乐
-校对：阿伯塔
-发稿：信心的选择*
+多少男人
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-4.jpeg)
+让我身体
+
+伤痕累累
+
+日日如此
+
+夜夜如此
+
+看见了吗
+
+那一屋子强奸犯
+
+正欢声笑语数着钱
+
+小哥哥啊
+
+请不要走
+
+帮帮我
+
+放我离开
+
+这个世界不要我了
+
+生在人间
+
+活在炼狱
+
+被剪去舌尖记忆
+
+如锥如炙
+
+痛与苦
+
+是每天必须的吃与喝
+
+这个世界不要我了
+
+生不如死 没有天理
+
+人贩子欢天喜地
+
+酷吏们茹毛饮血
+
+我的躯体
+
+是他们欢笑乐土
+
+家乡的路
+
+那么遥远
+
+只能在梦里
+
+一次次 呼唤
+
+亲人，亲人
+
+你们在哪里
+
+没有回音
+
+没有希望
+
+日复一日
+
+重复痛苦
+
+（本文仅代表作者个人观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-7.jpg)
+
+*编辑 /校对*：*Yuki*jiang
+
+*发稿：Yuki*jiang
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

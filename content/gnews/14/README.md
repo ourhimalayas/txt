@@ -2,47 +2,38 @@
 ---
 
 
-## 由于俄罗斯对乌克兰的袭击影响油价，GTA下个月的天然气成本可能达到每升2美元
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2059985/)
+## 负责川普刑事调查的检察官已辞职
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2059997/)
 
-作者：Chris Fox
-翻译：Himasally
-![](https://assets.gnews.org/wp-content/uploads/2022/02/70_11364B43.png)
-一位行业分析师警告说，由于俄罗斯决定攻击乌克兰，并因此面临经济制裁，对石油成本造成压力，整个GTA地区的汽油价格可能会在下个月的某个时候超过每升2元大关。
+翻译：Jenny Ball
 
-Dan McTeague是加拿大可负担能源组织的主席，他周四告诉CP24，他预计本周末整个GTA的汽油价格将上涨8分，平均每升达到1.67元。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/id12890341-GettyImages-1304610267-600x400-1.jpg)Joe Raedle/Getty Images
 
-然而，这可能只是汽油成本持续上涨的开始。Mcteague说，这将最终推动其他商品的价格上涨，包括食品。
+纽约——负责曼哈顿地区检察官对前总统唐纳德·川普进行刑事调查的两名检察官周三突然辞职，这使调查的未来受到质疑。
 
-他说：”这将是一个由石油驱动的所有商品价格的长期增长，当然也是由世界所面临的最严重的地缘政治威胁所驱动的，至少是自20世纪40年代和50年代以来。考虑到这一点，石油很可能至少要涨到每桶135美元，我们现在的价格约为99美元。除此之外，它还会影响到包括食品在内的几乎所有其他商品。”
+地方检察官阿尔文·布拉格（Alvin Bragg）的发言人证实了凯里·邓恩（Carey Dunne）和前黑手党检察官马克·波梅兰茨（Mark Pomerantz）的辞职，他们两人都是在前地方检察官小赛勒斯·万斯（Cyrus Vance Jr）领导下开始调查的。
 
-俄罗斯是世界第三大石油生产国，约占全球供应量的11%。
+“我们感谢他们的服务，”发言人丹妮爱拉·菲尔森（Danielle Filson）说。她拒绝进一步置评，称调查仍在进行中。
 
-McTeaque说，如果全球国家发出的经济制裁包括封锁来自俄罗斯的石油，这可能意味着原油的价格上涨压力将成为”一个更长期的情况”。
+《纽约时报》援引消息人士的话说，在布拉格对起诉特朗普提出质疑后，邓恩和波梅兰茨辞职。
 
-为此，他呼吁联邦政府暂停目前定于4月1日提高碳税的计划，并尽其所能提高国内的石油产量。
+已经给邓恩和波梅兰茨发短信要求置评。
 
-他说：”事实是，我们将在更长的时间内看到更高的价格。但能源安全现在又回到了桌面上。如果说普京攻击乌克兰的行动，我认为也许已经导致我们现在重新思考我们的优先事项。这不是气候问题，当然也不是COVID问题，现在是能源安全和能源可负担性问题。”
+检察官办公室的调查，导致去年 7 月对川普的公司“川普集团”及其长期担任财务主管的艾伦·韦塞尔伯格（Allen Weisselberg）提出税务欺诈指控。
 
-GTA地区的汽油价格已经处于历史高位，上个月已经超过了之前的高水位线。
+韦塞尔伯格被指控收取超过 170 万美元的账外补偿，包括公寓租金、汽车付款和学校学费。他和公司均表示不认罪。
 
-当时McTeaque曾表示，到2022年底，价格将达到每升1.65元。然而，乌克兰的局势已经改变了计算方式，他现在说，价格最终将达到每升”远高于”2元的水平。
+这是突发新闻。随着更多信息的更新。
 
-来源：https://www.cp24.com/news/cost-of-gas-in-the-gta-could-hit-2-a-litre-next-month-as-russian-attack-on-ukraine-impacts-oil-prices-analyst-1.5794188
-**
-免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+**参考资料：**[abc7ny][Prosecutors in charge of Trump criminal probe have resigned](https://abc7ny.com/donald-trump-criminal-probe-manhattan-district-attorney-prosecutors-resign/11593141/)
 
-**关注我们**
+* * *
 
-Discord 账号
+*审核：文乐
+校对：阿伯塔
+发稿：信心的选择*
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-4.jpeg)
 
  
 
