@@ -2,37 +2,38 @@
 ---
 
 
-## 飞往多伦多的航班被迫突然转出乌克兰领空
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2059958/)
+## 负责川普刑事调查的检察官已辞职
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2059997/)
 
-作者：Michael Ranger
-翻译：Himasally
-![](https://assets.gnews.org/wp-content/uploads/2022/02/5_0T516449.jpg)
-周四，一架从以色列飞往多伦多的航班平安抵达多伦多皮尔逊机场，机上乘客终于一块石头落地，因为俄罗斯突然发动袭击，这架飞机不得不突然转弯以避开乌克兰领空。
+翻译：Jenny Ball
 
-根据flight track监控轨迹显示，这架飞机在进入乌克兰领空时突然急转弯，绕道罗马尼亚、匈牙利和斯洛伐克，然后返回波兰上空继续向多伦多方向飞行。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/id12890341-GettyImages-1304610267-600x400-1.jpg)Joe Raedle/Getty Images
 
-有惊无险，这架从以色列特拉维夫起飞的商业航班于周四早上6点44分平安降落在皮尔逊机场。
+纽约——负责曼哈顿地区检察官对前总统唐纳德·川普进行刑事调查的两名检察官周三突然辞职，这使调查的未来受到质疑。
 
-在俄罗斯军队星期四入侵乌克兰之后，整个乌克兰的领空被关闭，禁止民用航班飞行。
+地方检察官阿尔文·布拉格（Alvin Bragg）的发言人证实了凯里·邓恩（Carey Dunne）和前黑手党检察官马克·波梅兰茨（Mark Pomerantz）的辞职，他们两人都是在前地方检察官小赛勒斯·万斯（Cyrus Vance Jr）领导下开始调查的。
 
-乌克兰领导人表示，到目前为止，至少有40人在针对该国的“全面战争”中丧生。
+“我们感谢他们的服务，”发言人丹妮爱拉·菲尔森（Danielle Filson）说。她拒绝进一步置评，称调查仍在进行中。
 
-来源：https://toronto.citynews.ca/2022/02/24/toronto-flight-ukraine/
+《纽约时报》援引消息人士的话说，在布拉格对起诉特朗普提出质疑后，邓恩和波梅兰茨辞职。
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+已经给邓恩和波梅兰茨发短信要求置评。
 
-**关注我们**
+检察官办公室的调查，导致去年 7 月对川普的公司“川普集团”及其长期担任财务主管的艾伦·韦塞尔伯格（Allen Weisselberg）提出税务欺诈指控。
 
-Discord 账号
+韦塞尔伯格被指控收取超过 170 万美元的账外补偿，包括公寓租金、汽车付款和学校学费。他和公司均表示不认罪。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+这是突发新闻。随着更多信息的更新。
 
-Gettr 账号
+**参考资料：**[abc7ny][Prosecutors in charge of Trump criminal probe have resigned](https://abc7ny.com/donald-trump-criminal-probe-manhattan-district-attorney-prosecutors-resign/11593141/)
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-4.jpeg)
 
  
 
