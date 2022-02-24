@@ -2,31 +2,44 @@
 ---
 
 
-## 大直播后记：奥密克戎让人失忆，领导健康是国家机密
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2056053/)
+## 在法律范围内以新中国联邦利益为主防止排华及个人灾难
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2056237/)
 
-整理：Anita、Lucy Liu
-编辑：文泓
+G-TV视频链接：[https://gtv.org/video/id=6212364e1408ee3a03a23037](https://gtv.org/video/id=6212364e1408ee3a03a23037)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/2-94.png)图片来源：雅典娜设计组
+**郭文贵先生：**我现在最希望“黄河边”千万别打针，我希望他活下去。因为他是我逆增上缘的一个广播员，到处宣传我们，得让这个货活着才能证明我们多干净，多伟大。你看他那个长相就证明我们长得有多帅，多好。所以你想到“黄河边”的时候，你自己不爱自己是不可能的。你想到“蛇妖闫”、“九指妖”，的时候，你想想文真，小新你俩能怎么能不爱自己呢。天天对着自己亲自己的屁股，亲自己的脸，为啥不爱自己呢。
 
+亨利小哥、大石，咱不是自夸，七哥，你说你看个“路大脑袋”那个地儿，“咔，咔”的一口痰一口痰的，还有那个什么“鸡腿潘”，你说咱作为男人凭啥不爱自己啊，是不是！所以说对比之下，我们需要的时候，发现什么？原来我们人生做再正确的决定，你犯一次愚蠢，就把一切皆毁。疫苗就告诉了你。
 
-奥密克戎（变种病毒）不止进入咽部、不到肺部的，它是进入人大脑的。你一定要看到这个问题的严重性——进入大脑的，且（造成）窒息的人很多。奥密克戎致死率没那么高，但是它的这个副作用，让很多人大脑失忆。
+第二，我们对比世界的时候，我们是世界上最幸运儿、最幸运女，我们要珍惜、感恩。第三、疫苗问题到了今天，已经不是我们所控制，也不是我们所影响。没有人可以挡住，疫苗改变人类的这场整个世界政治、经济全面大冲击，它只是什么形式。我们就永远在法律范围内，以新中国联邦利益为主，阻止一个最根本的问题就是排华。绝对不能让共产党的疫苗和病毒，变成我们个人的灾难，排华是我现在最最担
 
-如同最早的冠状病毒，让你没味觉（嗅觉），然后（造成）肺部咳嗽。这个（病毒）不让你咳嗽，它（直接）进大脑。而且更重要的是，发现了一个很可怕的问题，就是（人体）血栓。这个血栓是很夸张，就像刚刚我们一个同事，她的父亲过世，她说是血管堵（塞），我相信一定是这个疫苗（副作用）。
+字幕来源：[2022月2日6日 《文贵大直播》全文字版](https://gnews.org/zh-hans/1971450/)
 
-我有一个特别好的兄弟，就像我的亲兄弟一样，他原来做过手术，（已经）做了4、5年了。头两天（他）尿血，然后去（医院）看看好了，没事儿，他以为又是癌症复发呢。其实不是，就是这个疫苗的事啊，他没有常识。另外一个就是在西藏的一个战友，他是军人，身体很好的。头一段时间，组织上让打了两次疫苗，但是两次都打了假疫苗。他特别得意，七哥我毕竟有这个权利啊，我把我下边的几乎都打假的。
+编辑整理：Davis；
 
-我说，你干了好事儿。结果他回去了染上了奥密克戎，但他不敢说。你们知道**共产党最大的官方秘密，个人身体****（健康）****是国家机密****；****所有人的肾能力、更换器官是国家机密****。**领导最高机密哪能让你知道？所有的高官领养孩子，是个人的最高机密，所有高官都干嘛你知道吗？都是在外面搞了女人以后，然后找人（生娃）。所以中国民政部的那个部长，我跟他很熟很熟，现在被抓个球的了，哪还有钱啊，叫李（立国）什么，前年被抓了。他管得最多的事情就是给部级和各省级领导养孩子（私生子）。
+字幕文件制作：知津；
 
-资料来源：[2022年2月23日 文贵大直播](https://gettr.com/streaming/pwbjub06c5)
+视频制作及上传：Cindy；
 
-发布：tianzhihuan
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ)、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A)、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/)；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

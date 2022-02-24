@@ -2,38 +2,24 @@
 ---
 
 
-## 《避风港HAVEN》直播内容精选（第十一集 上）
-` 喜马拉雅纽约磐石农场` [轉載自GNews](https://gnews.org/zh-hans/2032099/)
+## 中日财经爆|加拿大宣布对俄罗斯实施经济制裁
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2051093/)
 
-《避风港》（11）：新闻解读 儿童接种新冠疫苗后心肌炎比例加大
-[**2022-2-15《避风港》(11) 直播回放：如何拯救被疫苗残害的儿童？！**](https://gtv.org/video/id=620c0678432ae869226d30b4)
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片11.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fimage.shutterstock.com%2Fz%2Fstock-photo-map-of-russia-canada-sanctions-against-russia-judge-hammer-canada-flag-and-emblem-d-667017838.jpg&amp;imgrefurl=https%3A%2F%2Fwww.shutterstock.com%2Fimage-illustrati)
+加拿大总理特鲁多2月22日在莫斯科承认乌克兰分离主义地区顿涅茨克和卢甘斯克为独立国家的第二天，宣布对俄罗斯实施第一轮经济制裁。
 
-### **风起云涌**
+特鲁多说，他的政府将禁止加拿大人与所谓的“独立国家”卢甘斯克和顿涅茨克进行所有金融交易。还将禁止加拿大人参与购买俄罗斯主权债。
 
-英国国家统计局最近公布的令人震惊的数据显示，已接种新冠疫苗的儿童和未接种疫苗的儿童之间的死亡率存在着惊人的差异。**完全接种新冠疫苗的儿童因任何原因死亡的风险比未接种疫苗的儿童高5100%以上。**
+加拿大政府将制裁那些投票赞成承认顿涅茨克和卢甘斯克独立决定的俄罗斯议会成员。加拿大将对两家国家支持的俄罗斯银行实施额外制裁，并阻止与它们进行任何金融交易。
 
-对于15至19岁的儿童来说，第一次接种新冠疫苗后，各种原因的死亡风险都增加了82%，第二次接种后增加了226%。对于10至14岁的儿童来说，情况更糟，第一次接种后死亡风险增加了885%，第二次接种后增加了515%。至少接种过一次新冠疫苗的10至14岁的儿童死亡可能性是正常儿童的10倍，而接受过两针疫苗的儿童死亡可能性是52倍。科学家Mike Yeadon曾警告说，**新冠疫苗导致的儿童死亡是其能用于预防病毒的50倍。**
+消息来源:
 
-Peter McCulloug博士说，青春期之前的儿童极少可能罹患心肌炎，心包炎。根据美国官方CDC数据，15%以上接种新冠疫苗孩子的血液肌钙蛋白数值有异常升高。接种疫苗让心肌炎这样的疾病频频发生在年幼的孩子身上，伤害的预期是不可估量的。
+[加拿大宣布因乌克兰危机对俄罗斯实施第一轮经济制裁](https://cn.reuters.com/article/canada-trudeau-russia-sanction-0223-idCNKBS2KS03Z?il=0)
 
-Robert Kenndey 去年对辉瑞等疫苗公司发起来好多起法律诉讼，就是想停止疫苗公司对孩子的紧急授权的申请。因为**新冠疫苗的紧急授权是保护疫苗公司不受任何伤害/死亡起诉的**。一旦紧急授权过期，进入正式授权，疫苗公司不再受紧急授权法律的保护，将面对大量诉讼。所以疫苗公司将邪恶之手伸向孩子，一旦对孩子施打的紧急授权被批准，相当于他们又将躲在免遭诉讼的大伞之下了。
-
-
-《避风港》（11）：政府通过夸大疫情推广儿童打疫苗
-[**2022-2-15《避风港》(11) 直播回放：如何拯救被疫苗残害的儿童？！**](https://gtv.org/video/id=620c0678432ae869226d30b4)
-
-
-
-文案：Eglise医生/万物有灵
-
-听写：丹文
-
-视频：黑嫂子
-
-文稿整理：Gloria
-
-编辑发布：FoxRina
-![](https://assets.gnews.org/wp-content/uploads/2022/01/%E7%A3%90%E7%9F%B3discord.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/b3df4b36-df11-4361-a8f5-6c7e5f9da569.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/GTV.jpg)
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

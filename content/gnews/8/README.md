@@ -2,42 +2,75 @@
 ---
 
 
-## 西方因资本主义金钱至上导致信仰缺失法治摧毁败给中共
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2056033/)
+## 灭共者之郭氏情报站（29）2022/02/23 文贵大直播
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/2056208/)
 
-G-TV视频链接：[https://gtv.org/video/id=621234d81408ee3a03a22ead](https://gtv.org/video/id=621234d81408ee3a03a22ead)
+设计者：纽约香草山设计部 — 喜马拉雅大喵儿，天马星空J
 
-**郭文贵先生：**现在西方由于大量的新移民和来自不同，特别共产党这帮孙子来了以后，在美国大量的地销毁了美国立法的基础——信仰。一个九十六的国家，百分之九十六的信仰的国家逐渐在怀疑这种信仰，这就麻烦了。所以现在资本主义带来的腐败结果，导致官僚主义和腐败的结合。
 
-就这三份文件拿出来，它也不见得有什么效。它最终要等待着付出惨重的代价，它才能纠偏。这是西方输给中共国最根本的原因。资本主义，这个重商主义，还有这个金钱至上，导致信仰丢失，把自己的法律的系统彻底给摧毁，最后付出代价以后再来纠偏，这就是现在发生的。所以靠哪一个人想挡住美国在中共国面前这个必将惨败的“火车”的前面实在很渺小，很渺小，谢谢。
 
-字幕来源：[2022月2日6日 《文贵大直播》全文字版](https://gnews.org/zh-hans/1971450/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
 
-编辑整理：Davis；
 
-字幕文件制作：知津；
 
-视频制作及上传：Cindy；
 
-G-News发布：小满；
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ)、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A)、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+**灭共者-郭氏情报站**
+**2022年2月23日 文贵大直播**
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/)；
+![](https://assets.gnews.org/wp-content/uploads/2022/02/dbff0fc2-8ca4-4bb2-9d4d-139f6dbd6ed0.jpg)
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+1、水虎年，爆料革命会道出中共国无数个锁链女事件；会有很多个国家授权撤离；甜蜜蜜运动，不止2环内，会响遍世界。今年“六四”两周年，七哥将会解密：为什么2年前可以成立新中国联邦。告诉老杂毛们，共产党必须输了。
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+2、Omicron病毒初期致死率没那么高，但是在中后期伤害严重，绝对致命。是会进大脑的，血栓很夸张，让很多人失忆，窒息。中共国Omicron传播很严重，公务员染上病毒不敢报告，怕被副手取代。西方政府解禁其实是没有办法的选择。没有打疫苗，或者只打了一针的，对于奥米抗抵抗力是打了2针以上的N倍。战友务必警惕，千万别染上。
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+3、Hpay的提成。在瑞士，交税是可以申报议定的，是可商量的\_；日本按照单子来。不同的国家有不同的政策。七哥会针对Hpay有专门大直播，给战友解读。喜保险，贴现保险，无条件支付。喜贷款，计划做成战友控制的平台。贷款，目前设计喜币10%的抵押率，直接贷出HDO。存款，5%-10%的利息HCN支付。
+
+4、Gfashion会出大号哨子，哨子和七哥有缘分，曾经差点因为一个勺子破处。女战友们多准备哨子。
+
+5、拜登和布林肯是真正的政治玩家，大喊普京打乌克兰，让世界知道俄罗斯的威胁。一箭多雕：1习近平会沉船，2普京自绝于俄罗斯人民，3东欧国家会由于摆脱不了的欧洲，被威胁被经济拖垮。欧洲会100%迅速帮助美国，不再摇摆于中共国和美国之间。加拿大，澳大利亚还在愚蠢。美国哭诉联合国“这个世界需要我”，导致钱进美国，世界大变。玩乌克兰原本是习近平美国西方示好，但美国借力打力，习近平钱命两空！
+
+6、中共内部只有许其亮几个人知道，8小时拿下台湾，只是等待着时机。美国人等着狼狈为奸的那一刻，让他们一起崩灭。
+
+7、美国知道普京的舞步，陪着普京跳探戈，欧洲成了傻货。源于习，灭于习。最终是剪羊毛，中国人埋单。
+
+8、普京的前菜，就是要世界机构吆喝：先摆出阵势，让全世界看到。美国叫唤最多，欧洲宣布经济制裁。这就是外交的游戏。欧洲的天然气管道去年已经建好，目前已经开始供气，48%欧洲的外来油气都是来自俄罗斯。
+
+9、国际惯例：元首之间的通话，从来不公开。历史北约和俄罗斯的明斯克协议，俄罗斯称自己被骗。西方从来没有过的羞辱协议已经签署了，北约不东扩，秘密协议被普京一下子公开到外交部网站上。美国哭诉联合国都是演戏，就是告诉世界“这个世界不能没有我”。最大的赢家是美国，一分钱没出，只说了几句话，告诉世界风水我独好。
+
+**上一期：**
+
+**[灭共者之郭氏情报站（28）2022/02/20 文贵大直播 – GNEWS](https://gnews.org/zh-hans/2044872/)**
+
+
+
+**编辑/发稿：小鹿**
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/01/2-124.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
 
  
 

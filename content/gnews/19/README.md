@@ -2,24 +2,32 @@
 ---
 
 
-## 特鲁多强施紧急状态法遭起诉
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2055899/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年2月23日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2056076/)
 
-加拿大温哥华杨帆农场 枫叶快讯
+作者：香草山翻译部
 
-采编： 文莱      编译撰稿：文明(添草灭共)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2197.png)
-据加拿大媒体【真北方】2月22日报道，自由车队运动的抗议者近日将特鲁多政府告上法庭，要求其公布实施《紧急状态法》必要性的法律文件。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-4-1-e1645595411271.jpg)
 
-报道称，［加拿大前线护士］组织日前向联邦法院提起诉讼，指控当局因非法动用国家紧急权力，而违反了《权利和自由宪章》以及《加拿大权利法案》，并要求议会停止执行特鲁多的各项违宪法规。
 
-该组织的律师表示，当局一直未提供任何依据来支持特鲁多认为“抗议活动已构成公共秩序紧急情况”的论点。因此，其目的就是针对、威胁和惩罚那些反对疫苗强制措施的抗议者。 而自由车队的和平抗议活动提高了公众对政府实施不合理政策的认知，并不存在任何所谓的“国家紧急情况”。 据悉，尽管美加边境目前已重新开放，渥太华的示威者也已基本散去，但自由党和新民主党仍投票决定将[紧急状态法]延长30天。并授权特鲁多政府可以在此期间任意扣押抗议者的资产、取消其保险、甚至逮捕他们。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-17.png)
+校对：Stay文苑
 
-校对编辑：硫酸羟氯喹64
+编辑：Stay文苑
 
-发稿：青青
+发稿：Stay文苑
 
-新闻链接：[https://tnc.news/2022/02/22/protester-group-takes-trudeau-government-to-court-over-emergencies-act/](https://tnc.news/2022/02/22/protester-group-takes-trudeau-government-to-court-over-emergencies-act/)
+新闻：[https://gtv.org/broadcast/watch/6216e14e08ba8a07b1a26849](https://gtv.org/broadcast/watch/6216e14e08ba8a07b1a26849)
+访谈：[https://gtv.org/broadcast/watch/6216e84908ba8a07b1a26deb](https://gtv.org/broadcast/watch/6216e84908ba8a07b1a26deb)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-4.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
