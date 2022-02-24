@@ -2,45 +2,30 @@
 ---
 
 
-## 數百年來中國某些地區父子數人伙一個女人境況從未改變
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2056808/)
+## 台湾在乌克兰危机中对中共投以警惕的目光
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2056855/)
 
-G-TV視頻鏈接：[https://gtv.org/video/id=6212468c1408ee3a03a23fcf](https://gtv.org/video/id=6212468c1408ee3a03a23fcf)
+撰稿：东京樱花团/asket
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2210.png)[图片来源](https://rockawayadvocate.news/taiwan-casts-wary-eye-at-china-amid-ukraine-crisis-but-no-immediate-alarm/)
+路透社台北—台湾很紧张，因为北京可能会在乌克兰的灾难中利用分散注意力的西方，来加强对台湾的压力；但台北的官员说，最近几天中共国军队没有进行不寻常的演习。
 
-**郭文貴先生：**老大和老二，這是，那個女的生的小孩，老大和老二年齡差11歲，總共七個兒子，一個女兒，那中間11年不知玩什麼。哎呀，這個你們沒常識，你就不用猜了。我在老家看到的，就是哥仨買一個媳婦，然後就是那個我們老家，就在我們曹營村，你可以去查去，就現在還在，哥仨買一個媳婦。然後他爹，他媽媽早過世了，他爹就跟仨兒子和著一個女的。
+中共国将台湾视为自己的领土，并在过去两年中加强了在这个自治岛屿附近的海军演习。
 
-我到甘肅的某個地方的時候，不是叫什麼，乾脆的叫什麼地方？敦煌旁邊，這敦煌的旁邊的一個地方，就是這個地方就是所謂的那個貧困區，就是一家人和著一個女的，公開的，一家人一個媳婦。就是中國人，我最早說，楊改蘭的時候，中國絕大多數的農村山裡邊人畜不分。就是我在東北趙家溝的地方，晚上養著牛，養著驢，要牽到那個鍋台旁邊擱起來，養的雞、養的鵝、養的羊放到屋裡去，要不然它被怕被狼給叨走了，怕人給偷了。早上把這些牽出去，再開始做飯。人畜不分，今天是一點也沒改變。中國人多個男人和著一個，爹、兒子、侄子和著一個女人，今天中國大有，多了去了。
+蔡英文总统周三在工作组会议上表示，台湾应该加强对该地区海军行动的监控和应用，并应对国际上的错误信息，尽管她没有立即指出中共国。
 
-跟當年所謂的竇爾敦去這個大英帝國，看到當時乾隆皇帝在裡邊說，我是擁有天下一切美好的，給你這些洋人，是吧，做什麼夷人做什麼生意呀。實際上他是800年，或者500年的垃圾都沒清理過。他看到城牆外邊、故宮外邊死很多人，幾個哥們、幾個兄弟娶一個女人，她說這個是個破船爛鐵，砸，砸爛它，今天一模一樣。
+虽然台湾当局说该岛的状况和乌克兰的状况 “根本不同”，但蔡女士对乌克兰的状况表示 “同情”，因为该岛面临来自中共国的海军威胁。
 
-字幕來源：[2022月2日6日 《文貴大直播》全文字版](https://gnews.org/zh-hans/1971450/)
+台湾国际部长吴钊燮本月在两次国际媒体采访中警告说，他们一直在非常仔细地观察中共国是否会充分利用乌克兰的灾难进行攻击。
 
-編輯整理：Davis；
+“中共国可能随时想到对台湾使用军事行动，我们需要为此做好准备，”他向英国ITV资讯台建议。
 
-字幕文件製作：神兵；
+一位了解联邦政府安全规划的台湾高级官员向路透社表示，海军力量突然增强的可能性 “不高”，但台北一直在仔细观察任何不常见的中共国语言行动。该人士指出，中国人民解放军在台湾东北部和日本南部岛屿附近的宫古海峡地区进行了联合海军演习，这种演习在上个月变得更加频繁。这位官员说，这些演习包括战斗机、轰炸机和军舰，目的是扩大对日本的压力。日本防卫公司的一位发言人拒绝发表评论。
 
-視頻製作及上傳：Cindy；
+信息来源：** **[TAIWAN CASTS WARY EYE AT CHINA AMID UKRAINE CRISIS, BUT NO IMMEDIATE ALARM](https://rockawayadvocate.news/taiwan-casts-wary-eye-at-china-amid-ukraine-crisis-but-no-immediate-alarm/)
 
-G-News發佈：小滿；
-
-**廣而告之：尊敬的戰友，你的每一篇文字、每一段視頻、每一段社交媒體發文都是壓垮駱駝的一根稻草，歡迎加入我們****——**[**日本銀河系農場****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，歡迎訂閱我們的油管頻道：**[**郭文貴先生直播精選**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；歡迎關注蓋特獨家文貴先生大直播精選發佈賬號：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-聲明：文中內容根據郭文貴先生直播視頻整理，如果文字內容與視頻內容衝突則以原視頻為準，標題僅為概括，標題與視頻內容衝突之處僅代表作者個人觀點。
-
-歡迎喜聯盟進駐以及各農場兄弟姐妹們坐客串門，請通過以下方式關注及訂閱我們——
-
-Discord：[日本銀河系農場Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本銀河系農場](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民熱線](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ)、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[銀河系檔案放映館](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A)、[郭文貴先生直播精選](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、[喜馬拉雅日本銀河系農場 G-News](https://gnews.org/zh-hant/author/jgalaxy2021/)、[日本銀河系農場-阿爾法星球](https://gnews.org/zh-hant/author/galaxyalphaplanet/)、[銀河勇氣之星](https://gnews.org/zh-hant/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hant/author/newfoc/)；
-
-蓋特：[日本銀河系農場@himalayajgalaxy蓋特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本銀河系農場](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,24 +2,24 @@
 ---
 
 
-## 中国｜赤化佛教受肯定 班禅十一世两会前表决心：拥护以习为核心的党中央
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2055953/)
+## COVID-19 最新情报｜罗马尼亚最大足球具乐部宣布禁止接种疫苗的球员参赛及效力
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2056171/)
 
-**撰文/ 港台前线｜发布日期/ 24/02/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/赤化佛教受肯定-班禪十一世兩會前表決心：擁護以習為核心的黨中央-1.jpg)
-**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
+**撰文｜疫情关注组 / 发布时间｜24/02/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/羅馬尼亞最大足球俱樂部宣佈禁止接種疫苗的球員參賽及效力.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：**[**https://gettr.com/post/pl6k0218bf**](https://gettr.com/post/pl6k0218bf)**)**
 
-中共党媒新华社报道，两会前夕，中共中央统战部部长尤权昨天（23日）在北京会见第十一世班禅额尔德尼·确吉杰布。
+罗马尼亚规模最大的足球具乐部 Steaua Bucharest 日前宣布，将全面禁止接种过 Covid-19 疫苗的球员再为球队效力，原因是接种过疫苗的球员已经“失去力量”并“开始倒在赛场或死在医院”。
 
-尤权向班禅和藏传佛教界人士祝贺藏历水虎新年，并对班禅近年在各方面取得的进步予以肯定，希望他继续深入学习中国共产党百年奋斗的历史经验，爱国爱教、勤于实践，在推进藏传佛教中国化上发挥更大作用，同时严于律己、谦虚谨慎，不辜负党中央的培养、信众的拥护、宗教界的爱戴。
+该具乐部的老板，商人兼政治家吉吉·贝卡利（Gigi Becali）表示，他也不再允许接种疫苗的球员参加比赛，他不愿再看到原本伟大的球员渐渐的变得虚弱，他更不忍心再看到一个个年轻健康的球员死去。
 
-班禅亦向尤权敬献哈达，表示将坚决拥护以中共总书记习近平为核心的党中央，坚持藏传佛教中国化方向，努力在促进藏传佛教与社会主义社会相适应上作出新成绩。
+贝卡利强调，接种过 COVID-19 疫苗的人会倒下，会死在医院里，而那些拒绝接种疫苗的人却不会。他指出，“有人可能会笑话我，但我是对的，如果你看到CFR（CFR Cluj）和 Rapid（Rapid Bucuresti ）的球员们倒在地上，呼吸困难，你就该知道所有接种疫苗的人都会失去力量！”
 
-十一世班禅颇受到中共历届领导人的重视与厚待，自1995年起，中共三任总书记江泽民、胡锦涛和习近平都接受过班禅拜见。
+贝卡利的这番言论不意外的引起了该国政府的强烈反感。当局在脸书官方页面 RO Vaccinare 上发布一份最新声明，反驳称“足球运动员在接种了 COVID-19 疫苗后不会失去力量。”并指出，“从医学和科学的角度来看，没有任何研究可以支持罗马尼亚某位人士的奇特观点。”
 
-根据外界普遍认知，**无论是藏传佛教抑或是其他佛教，佛教的基本教义应该是以践行并弘扬佛祖释迦牟尼佛训为修法核心。**
+不过，仍然有不少当地民众支持贝卡利对疫苗的看法，他们认为，政府的声明恰恰反映了他们很心虚。
 
-来源｜[人民日报](http://cpc.people.com.cn/n1/2022/0224/c64094-32358635.html)
+来源｜[推特](https://twitter.com/Emishor/status/1496447904617312259?s=20&amp;t=_vOooKK2zDsQcuQM5gW2Pw)、[ESPN](https://www.google.com.hk/url?sa=t&amp;rct=j&amp;q=&amp;esrc=s&amp;source=newssearch&amp;cd=&amp;ved=2ahUKEwjLht_1sJf2AhXiD0QIHb9KAJoQxfQBKAB6BAgQEAI&amp;url=https%3A%2F%2Fwww.espn.com%2Fsoccer%2Ffcsb%2Fstory%2F4600728%2Fromanias-fcsb-deny-owners-suggestion-to-not-pick-vaccinated-players&amp;usg=AOvVaw2UZFvqTNUpQEbDKVhmEXsf)
 
  
 

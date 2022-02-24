@@ -2,30 +2,45 @@
 ---
 
 
-## 台湾在乌克兰危机中对中共投以警惕的目光
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2056855/)
+## 原定2.14的G-Clubs年会顺延,七哥将为中国女人唱首歌
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2056889/)
 
-撰稿：东京樱花团/asket
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2210.png)[图片来源](https://rockawayadvocate.news/taiwan-casts-wary-eye-at-china-amid-ukraine-crisis-but-no-immediate-alarm/)
-路透社台北—台湾很紧张，因为北京可能会在乌克兰的灾难中利用分散注意力的西方，来加强对台湾的压力；但台北的官员说，最近几天中共国军队没有进行不寻常的演习。
+G-TV视频链接：[https://gtv.org/video/id=621247641408ee3a03a24085](https://gtv.org/video/id=621247641408ee3a03a24085)
 
-中共国将台湾视为自己的领土，并在过去两年中加强了在这个自治岛屿附近的海军演习。
+**郭文贵先生：**咱们这个今年本来定在2月14号的G- Clubs的年会，我们要推迟大概十天八天。就是不要在这个情人节，这个大家都不知道。长岛哥还有雪冰兄，还有所有的兄弟姐妹们，我们要推迟个七天甚至十天，具体时间再定。因为七哥要准备两首歌，我要唱给中国女人一首歌，我要唱给天下的母亲一首歌，我要练两首歌。
 
-蔡英文总统周三在工作组会议上表示，台湾应该加强对该地区海军行动的监控和应用，并应对国际上的错误信息，尽管她没有立即指出中共国。
+我昨天晚上已经基本定局，我今天早上喊两嗓子感觉来了，感觉来了。我要在这个G-Clubs上还要唱两首歌，所以时间稍微推迟点。另外一个这个情人节，本来是情人节G-Clubs年会定得挺好，但是呢这个情人节我们真的是找到了一个让我们很重要的，类似于杨改兰的一家人的故事。包括当年告诉我杨改兰整个故事的当地的一个官员，他们家人也跑出来了。我想好好的把这个G-Clubs会，我们要过成一个为中国女性维权的会，不光抽奖。
 
-虽然台湾当局说该岛的状况和乌克兰的状况 “根本不同”，但蔡女士对乌克兰的状况表示 “同情”，因为该岛面临来自中共国的海军威胁。
+因为我们G-Clubs会员里面的70%都是女性，所以说大石亨利你属于少数，咱们所有节目绝大数倾向于女性。咱们在G-Clubs、G-TV、盖特和爆料革命当中，女性已经不是半边天，是大半天，是真的。所以说我七哥要唱给女性两首歌，你们准备好赵岩牌纸巾吧。
 
-台湾国际部长吴钊燮本月在两次国际媒体采访中警告说，他们一直在非常仔细地观察中共国是否会充分利用乌克兰的灾难进行攻击。
+字幕来源：[2022月2日6日 《文贵大直播》全文字版](https://gnews.org/zh-hans/1971450/)
 
-“中共国可能随时想到对台湾使用军事行动，我们需要为此做好准备，”他向英国ITV资讯台建议。
+编辑整理：Davis；
 
-一位了解联邦政府安全规划的台湾高级官员向路透社表示，海军力量突然增强的可能性 “不高”，但台北一直在仔细观察任何不常见的中共国语言行动。该人士指出，中国人民解放军在台湾东北部和日本南部岛屿附近的宫古海峡地区进行了联合海军演习，这种演习在上个月变得更加频繁。这位官员说，这些演习包括战斗机、轰炸机和军舰，目的是扩大对日本的压力。日本防卫公司的一位发言人拒绝发表评论。
+字幕文件制作：神兵；
 
-信息来源：** **[TAIWAN CASTS WARY EYE AT CHINA AMID UKRAINE CRISIS, BUT NO IMMEDIATE ALARM](https://rockawayadvocate.news/taiwan-casts-wary-eye-at-china-amid-ukraine-crisis-but-no-immediate-alarm/)
+视频制作及上传：Cindy；
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+G-News发布：小满；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ)、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A)、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/)；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

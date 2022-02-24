@@ -2,28 +2,20 @@
 ---
 
 
-## 随便抓人那五星红旗下的中共国，还有谁敢去？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2056809/)
+## 韩国批准辉瑞中共病毒疫苗用于5-11岁儿童
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2056856/)
 
-撰稿：东京樱花团/待命（文晓）
+撰稿：东京樱花团/asket
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2211.png)[**图片来源**](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fcimg.cnyes.cool%2Fprod%2Fnews%2F4674876%2Fl%2Fe92fe83bb0905d26b1315d4c3364b3ed.jpg&amp;imgrefurl=https%3A%2F%2Fm.cnyes.com%2Fnews%2Fid%2F4674876&amp;tbnid=Z9Cze4v1eCAmfM&amp;vet=12ahUKEwi3usv3zpf2AhUpEqYKHUS9Bc0QMygPegUIARCgAQ..i&amp;docid=iCOc8I0jCMiQOM&amp;w=640&amp;h=360&amp;q=%E8%BE%89%E7%91%9E%E7%97%85%E6%AF%92%E7%96%AB%E8%8B%97&amp;ved=2ahUKEwi3usv3zpf2AhUpEqYKHUS9Bc0QMygPegUIARCgAQ)
+** **路透社首尔消息，韩国食品药品部周三表示，韩国已经批准辉瑞公司的中共病毒（新冠病毒COVID-19）疫苗，用于5-11岁的儿童。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/随便抓人那五星红旗下的中共国，还有谁敢去？.jpg)（图片源自本文链接）
+该部在一份声明中说，儿童应该接种常规剂量的三分之一，两次，间隔三周。免疫力明显下降的儿童可以在四周后接受强化治疗。
 
-2月24日每日新闻消息：日本外务省在24日自民党总部举行的外交小组委员会和外交研究会联席会议上透露，自2015年5月以来，共有16名日本人在中共国被拘留。其中8人已经回国，7人还在中共国接受审判或监禁，1人因病死亡。
+信息来源：** **[**S.Korea approves Pfizer COVID-19 vaccine for children aged 5-11**](https://www.fijitimes.com/s-korea-approves-pfizer-covid-19-vaccine-for-children-aged-5-11/)
 
-外务省称，尚在中共国的七人中，有五人被判犯有危害国家安全罪，目前正在监狱服刑。其他人正在接受审判，或处于审前拘留中。
-
-至于那名因病去世的男性日本国民，日本政府出于人道主义考虑，曾要求中共国允许他尽快回国，但没有得到批准。他死后，日本政府向中共国方面提出抗议。同时，已返回日本的8人中，有5人在起诉前被释放，其余三人已刑满释放返回日本。
-
-2021年12月，一名50多岁的日本男子在中共国的上海被拘留。日本政府正做出努力，呼吁早日释放他，但至今连为此事的领事会面都没能实现。
-
-令笔者担心的是，这样随便抓人那五星红旗下的中共国，还有谁敢去？各国大使馆撤离，可能已成必然。人们，特别是记者们都不敢去了，那里在发生着怎样的，惨绝人寰的事情，世界就更难以知道了。
-
-信息来源：[中国国内で拘束の日本人は16人　2015年以降、5人は服役中（毎日新聞） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/245f132b91a4cee36a7ad28b5c2a4d1b4d864db0)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

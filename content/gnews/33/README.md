@@ -2,25 +2,21 @@
 ---
 
 
-## 展望未来 光明必将战胜黑暗
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2056372/)
+## 澳大利亚计划在南极洲投资制约中共
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2056373/)
 
-作者：纽约磐石农场—在远方
+作者：首尔天池农场-zzballack
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在2月20日的大直播中，郭文贵先生详细分析了加拿大特鲁多政府的结局以及美国未来的政治走向。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-23-下午11.14.33.png)
-鉴于对沼泽地有着深刻地了解，早在加拿大卡车游行开始之前，郭先生就曾预见，特鲁多一定会把卡车运动定义为暴乱并加以镇压。但郭先生也提到，虽然特鲁多忠于他背后的黑暗势力，但其政府最终一定会被黑暗势力消灭，因为黑暗势力只会忠诚于它自己，保护它自身利益。
+当地时间2月21日，据有关媒体报道，为了制衡中共在南极洲的强势和咄咄逼人的行为，澳大利亚总理斯科特-莫里森发布声明表示，澳州联邦政府将在未来10年内耗资8.04亿美元强化和升级澳大利亚在南极洲的科研活动。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-23-下午11.15.01.png)
+据悉，早在1961年10月，包括澳大利亚和中共国在内的54个国家曾共同签署了《南极条约》及其他的相关协定，这些协议后来被称为《南极条约体系》。该体系旨在约束各国在南极洲大陆上的各类活动，包括将南极洲作为科学保护区，承认科学调查自由，但禁止在南极洲进行军事或采矿活动，同时限制捕鱼行为。然而，澳洲智库洛伊国际政策研究所在最近发表的一份报告中指出，中共政府正在试图推动“扩大解释《南极条约体系》的规定”。 对此，洛伊研究所解释道，中共近几年持续探测南极洲的渔业和旅游资源，其在《南极条约体系》内表现得越来越强势，并且极有可能在当地寻求获取西方技术的方法。另一方面，人们担心中共未来很有可能率领一些国家寻求南极洲上只有中共有能力开发的矿产资源，为自己谋取福利。
 
-郭先生还展望道，在未来不超过三年的时间里，许多事情都会水落石出，但美国一定会大获全胜，并且将再次伟大。
-
-至于习近平和普京二人，郭先生指出，他们最担心的其实还是各自内部的反对力量。但郭先生也强调，中共国内的14亿人并不是都像“锁链女”一般被捆绑封口、无法反抗，还有许多像郭先生一样有实力、有勇气的战友正在默默地行动着。而在这场人类正义与邪恶的大较量中，光明必将战胜黑暗，且中共一定会被彻底消灭。
-
-参考链接：[2022年2月20日 《文贵大直播》全文字版](https://gnews.org/zh-hans/2045186/)
+参考链接：[Australia makes a BIG move against China – in Antarctica: PM forks out $800MILLION to counter the Communist power’s growing influence on the icy continent](https://www.dailymail.co.uk/news/article-10534143/The-battle-Antarctica-Australian-PM-Scott-Morrison-spends-800million-counter-China.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
 总编：Irene木木
-编辑：静言
+编辑：谐趣园
 校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**

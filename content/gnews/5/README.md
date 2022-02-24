@@ -2,44 +2,44 @@
 ---
 
 
-## 原定2.14的G-Clubs年会顺延,七哥将为中国女人唱首歌
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2056889/)
+## 新中國聯邦今年有三個大驚喜其中兩個走火運一個走土運
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2056948/)
 
-G-TV视频链接：[https://gtv.org/video/id=621247641408ee3a03a24085](https://gtv.org/video/id=621247641408ee3a03a24085)
+G-TV視頻鏈接：[https://gtv.org/video/id=621247ef1408ee3a03a240f4](https://gtv.org/video/id=621247ef1408ee3a03a240f4)
 
-**郭文贵先生：**咱们这个今年本来定在2月14号的G- Clubs的年会，我们要推迟大概十天八天。就是不要在这个情人节，这个大家都不知道。长岛哥还有雪冰兄，还有所有的兄弟姐妹们，我们要推迟个七天甚至十天，具体时间再定。因为七哥要准备两首歌，我要唱给中国女人一首歌，我要唱给天下的母亲一首歌，我要练两首歌。
+**郭文貴先生：**包括今年你看我這穿了多少紅套衣服了？十幾套都不止了吧？是吧？很多紅。這就是我們大師說的，新中國聯邦今年會有三個大驚喜，他說三個大驚喜里兩個都是要走火運，還有一個走土運，這兩個。第三個他沒告訴我，兩個我已經知道了。
 
-我昨天晚上已经基本定局，我今天早上喊两嗓子感觉来了，感觉来了。我要在这个G-Clubs上还要唱两首歌，所以时间稍微推迟点。另外一个这个情人节，本来是情人节G-Clubs年会定得挺好，但是呢这个情人节我们真的是找到了一个让我们很重要的，类似于杨改兰的一家人的故事。包括当年告诉我杨改兰整个故事的当地的一个官员，他们家人也跑出来了。我想好好的把这个G-Clubs会，我们要过成一个为中国女性维权的会，不光抽奖。
+所以說再一個我們金融啊，我們的金融是「土生金」，金融財啊，然後是「木生火，火生金，金生土，土生萬物」，北側為水，東側為木，南側為火，西側為金，中間為土」，大師一說，大師說得都是對的，他說讓我跳樓我都跳，我百分之百相信他。
 
-因为我们G-Clubs会员里面的70%都是女性，所以说大石亨利你属于少数，咱们所有节目绝大数倾向于女性。咱们在G-Clubs、G-TV、盖特和爆料革命当中，女性已经不是半边天，是大半天，是真的。所以说我七哥要唱给女性两首歌，你们准备好赵岩牌纸巾吧。
+所以說就今天改成了這個紅旗49色，大家儘管地去用，還有紅旗會帶信仰之星的顏色也會很快出來，謝謝！
 
-字幕来源：[2022月2日6日 《文贵大直播》全文字版](https://gnews.org/zh-hans/1971450/)
+字幕來源：[2022月2日6日 《文貴大直播》全文字版](https://gnews.org/zh-hans/1971450/)
 
-编辑整理：Davis；
+編輯整理：Davis；
 
-字幕文件制作：神兵；
+字幕文件製作：神兵；
 
-视频制作及上传：Cindy；
+視頻製作及上傳：Cindy；
 
-G-News发布：小满；
+G-News發佈：小滿；
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+**廣而告之：尊敬的戰友，你的每一篇文字、每一段視頻、每一段社交媒體發文都是壓垮駱駝的一根稻草，歡迎加入我們****——**[**日本銀河系農場****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，歡迎訂閱我們的油管頻道：**[**郭文貴先生直播精選**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；歡迎關注蓋特獨家文貴先生大直播精選發佈賬號：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+聲明：文中內容根據郭文貴先生直播視頻整理，如果文字內容與視頻內容衝突則以原視頻為準，標題僅為概括，標題與視頻內容衝突之處僅代表作者個人觀點。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+歡迎喜聯盟進駐以及各農場兄弟姐妹們坐客串門，請通過以下方式關注及訂閱我們——
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+Discord：[日本銀河系農場Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ)、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A)、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+YouTube：[日本銀河系農場](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民熱線](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ)、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[銀河系檔案放映館](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A)、[郭文貴先生直播精選](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/)；
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、[喜馬拉雅日本銀河系農場 G-News](https://gnews.org/zh-hant/author/jgalaxy2021/)、[日本銀河系農場-阿爾法星球](https://gnews.org/zh-hant/author/galaxyalphaplanet/)、[銀河勇氣之星](https://gnews.org/zh-hant/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hant/author/newfoc/)；
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+蓋特：[日本銀河系農場@himalayajgalaxy蓋特](https://www.gettr.com/user/himalayajgalaxy)；
 
 推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+G-TV：[日本銀河系農場](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

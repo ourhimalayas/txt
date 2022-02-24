@@ -2,46 +2,33 @@
 ---
 
 
-## 壬寅年属狗的七哥用新中国联邦红拿回中共崇拜的红和土
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2056926/)
+## 拜登宣布采取加强关键矿物质供应链的行动，终止对中国的依赖
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2056956/)
 
-G-TV视频链接：[https://gtv.org/video/id=621247901408ee3a03a240ab](https://gtv.org/video/id=621247901408ee3a03a240ab)
+**撰稿：日本东京方舟农场 老孙**
 
-**郭文贵先生：**这个就是因为原来，就是咱们这个武当山的大师说，文贵啊，我们给新中国联邦我这是算过命、寻过盾、解了密。他说：“你当时说这个蓝色海洋、星空还有这个49星，然后这个非常对的，包括红色是血液，但是你把红色不能把颜色给它概括了。”他说：“你可以灭共，不能灭颜色，它这个颜色是上天给的。七颜六色不是共产党发明的”他说：“是上天和人类发明的。”他说：“这个红色不仅代表血液，它是大自然密码中的一部分。你不能说共产党拿到一个这个钥匙，偷了人家钱，你这个所有的钥匙都是不对的，这是不可以的。”
+据美国之声报道，拜登政府2月22日宣布了联邦政府和私营企业将采取行动，以加强稀土和其他关键矿物供应链。拜登政府表示，这些措施将减少对这些矿物的主要生产国中共国的依赖。分析人士认为，拜登政府的目的是在这些关键的行业实现合理的自给自足，以保障美国的国家安全。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-358.jpg)（图片取自美国之声）
+拜登总统星期二下午在白宫与矿物供应链和清洁能源行业的企业高管、社区代表、劳工领袖、加州州长加文·纽森（Gavin Newsom）和能源部长格兰霍姆（Jennifer Granholm）等人举行的视频会议上宣布对关键矿物质和材料的国内生产进行重大投资，结束对中国的依赖，并确保这些资源可以造福于社区，并在可持续生产中创造高薪岗位。
 
-他说：“今年共产党他过去用的红，还有他的那个土，就咱说那个红星五星，对他们极不利。”他说“五星的所有的，就是天上赐予的神秘的力量，还有红旗的力量，特别共产党是镰刀斧子这些东西，包括习的属相，各方面算完，共产党已经完球蛋了。那么你现在为啥我建议你要用红旗呢？”他说：“今年是水火年，水火年先冲谁呢？我们新中联邦是蓝色的旗，水很多，但是我们49星呢，就是那个土星太少，他对咱爱出是非。”他说“你要记住，你也要用这个红。”
+“中共国控制着这些矿物质的全球大部分市场，如果我们自己依赖中共国来为今天和明天的产品提供动力，我们就无法建立一个在美国制造的未来，”拜登在讲话中表示。
 
-你用的红好在哪了呢？他说：“因为你是属狗的，今年是壬虎年，而且现在的爆料革命进入了关键时刻，你要拿到中共国的这个红——它崇拜的红，你要拿到这个土。”所以他给建议设计了两个旗出来，49星加红旗，还有一个信仰之星加红旗。我放下电话马上就找CC嗝屁(战友名字)，我说：“你赶快设计。” 这就出来了。
+根据白宫在会前公布的一份情况说明书，联邦政府将对拥有芒廷帕斯矿的稀土矿商MP材料（MP Materials）公司投资3500万美元用于分离和加工稀土元素，建立完整的端到端的国内永磁供应链。2020年，政府向这家美国唯一的稀土矿公司提供了960万美元的资金。
 
-就是说今年我们的水虎年对新中国联邦要有利的是“火”和“土”，水来土掩，水火不相容，但是水火交融。现在共产党咱们现在就是对着跟它干，我们要改变我们的思维——红色、火色不是共产党拥有的，我们也可以使用，所以就设计了红。
+去年2月，拜登总统曾签署了关于“美国的供应链”的一项行政命令，下令在一百天之内对美国在关键矿物质和材料的供应链上存在的脆弱性进行评估。去年6月，拜登政府在一份公布的评估报告中说，美国在关键矿物质和材料方面对外国和敌对国家的过度依赖威胁到美国的国家安全和经济安全。
 
-字幕来源：[2022月2日6日 《文贵大直播》全文字版](https://gnews.org/zh-hans/1971450/)
+上个月，议员们在美国参议院提出了一项两党法案，该法案可能会在2026年之前禁止国防承包商从中国采购稀土，并迫使五角大楼在2025年之前建立这些矿产的战略储备。
 
-编辑整理：Davis；
+“中国共产党控制着全球稀土元素的供应，稀土元素被用于从电池到战斗机的所有领域。结束美国对中共提取和加工这些元素的依赖，对于赢得与中国的战略竞争和保护我们的国家安全至关重要，”该法案的发起人之一、共和党参议员汤姆·科顿（Tom Cotton）说。
 
-字幕文件制作：神兵；
+目前，中共国控制着全球稀土开采能力的55%和其精炼的85%，但稀土的开采和提炼对环境的污染非常严重。
 
-视频制作及上传：Cindy；
+参考链接：
+[https://www.voachinese.com/a/us-critical-minerals-china-supply-chain-20220222/6454560.html](https://www.voachinese.com/a/us-critical-minerals-china-supply-chain-20220222/6454560.html)
 
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ)、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A)、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/)；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+素材采编：老孙
+编辑：青城道姑
+发布：爱放飞
 
  
 

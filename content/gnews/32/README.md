@@ -2,30 +2,28 @@
 ---
 
 
-## 澳大利亚计划在南极洲投资制约中共
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2056373/)
+## 新中国联邦将在今年底迎来各项重大利好
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2056480/)
 
-作者：首尔天池农场-zzballack
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月21日，据有关媒体报道，为了制衡中共在南极洲的强势和咄咄逼人的行为，澳大利亚总理斯科特-莫里森发布声明表示，澳州联邦政府将在未来10年内耗资8.04亿美元强化和升级澳大利亚在南极洲的科研活动。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-23-下午11.15.01.png)
-据悉，早在1961年10月，包括澳大利亚和中共国在内的54个国家曾共同签署了《南极条约》及其他的相关协定，这些协议后来被称为《南极条约体系》。该体系旨在约束各国在南极洲大陆上的各类活动，包括将南极洲作为科学保护区，承认科学调查自由，但禁止在南极洲进行军事或采矿活动，同时限制捕鱼行为。然而，澳洲智库洛伊国际政策研究所在最近发表的一份报告中指出，中共政府正在试图推动“扩大解释《南极条约体系》的规定”。 对此，洛伊研究所解释道，中共近几年持续探测南极洲的渔业和旅游资源，其在《南极条约体系》内表现得越来越强势，并且极有可能在当地寻求获取西方技术的方法。另一方面，人们担心中共未来很有可能率领一些国家寻求南极洲上只有中共有能力开发的矿产资源，为自己谋取福利。
+加拿大温哥华扬帆农场  硫酸羟氯喹64
 
-参考链接：[Australia makes a BIG move against China – in Antarctica: PM forks out $800MILLION to counter the Communist power’s growing influence on the icy continent](https://www.dailymail.co.uk/news/article-10534143/The-battle-Antarctica-Australian-PM-Scott-Morrison-spends-800million-counter-China.html)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/a-15-edited.jpg)图片来源：GTV
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-总编：Irene木木
-编辑：谐趣园
-校正/发稿：呼吸的雾霾（文小呼吸）
+据2月23日文贵大直播消息报道，随着中共政权及其虚空经济崩溃所导致的世界金融危机以及喜联储各项功能届时的日臻完善，[新中国联邦]将在今年底迎来自其成立后最大的利好时期。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+报道指出，乌克兰目前的局势不仅清晰表明欧元即将崩盘的脆弱性，也体现出美国最核心利益依然还在欧洲，并因此会逐渐将其大部分高端生产力转移致欧洲，其次才会是日本。而欧美联盟的深厚渊源必将把中俄两国剔除在外。
+
+同时，欧美还掌控着世界银行货币组织，世贸组织和联合国等的话语权。而华尔街影子银行的本质就是极少数沼泽地参与的，兼具高风险性和高回报性的对冲基金。
+
+2022年底，中共政权及其经济全盘崩溃所造成的多米诺骨牌效应，必将祸及西方金融体系，并导致华尔街影子银行及其各大基金的彻底破产。届时，来自全球的财富和避险资金都将无毫无选择地汇入羽翼丰满的喜联储。因此，新中国联邦将在今年底喜迎各项前所未及的重大利好。
+
+* * *
+
+消息来源：https://gettr.com/streaming/pwbjub06c5
+
+编辑撰稿，发稿：硫酸羟氯喹64
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

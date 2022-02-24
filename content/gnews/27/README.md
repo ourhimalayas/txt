@@ -2,30 +2,30 @@
 ---
 
 
-## 纽约市长宣布将尽快取消疫苗强制令与疫苗护照
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2056703/)
+## 英国政府相信新冠病毒（COVID-19）为武汉病毒研究所研制
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2056764/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+#### 撰稿：彩虹
 
-整理：围剿维尼熊
-编辑：Mohegayer K. Simon
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-02-下午10.11.59-20.png)
-根据大纪元2月24日讯，纽约市长埃里克‧亚当斯（Eric Adams）2月23日表示，纽约市计划在未来几周内逐步取消中共病毒疫苗接种强制令和疫苗护照系统等措施。
+#### 责编：白夜 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/16456825431.png)图片来源：印度快报
+2月23日，《国家脉动》调查记者娜塔莉·温特斯（Natalie Winters）发表文章，指根据一位前陆军上校的报告，英国政府认为新冠病毒（COVID-19）的起源是武汉病毒研究所“秘密研究”的结果。
 
-就具体何时取消疫苗护照系统等强制措施，市长没有提供明确的时间表。然而，亚当斯的这次发言是他关于取消这些措施的最明确的态度。几天前，当他回答关于布鲁克林篮网队超级明星凯里‧欧文（Kyrie Irving）的问题时，亚当斯就已经暗示，他想要取消疫苗护照系统。
+正值英国首相鲍里斯·约翰逊（Boris Johnson）修改英国的生物安全战略，以防范“自然人畜共患病和实验室泄露”的时候，该消息得以被披露。
 
-近日来，美国多个城市的市政当局都已决定取消疫苗护照措施。周三，芝加哥市长洛里‧莱特福特（Lori Lightfoot）宣布，从2月28日开始，该市某些地区的口罩令和疫苗强制令将被取消。在经过近两年的严格实施疫情强制措施之后，包括新泽西州、特拉华州、康涅狄格州和纽约州在内的多个由民主党人控制的州，都开始放宽疫苗接种强制令和强制戴口罩措施的实施。
+哈米什·德·布雷顿-戈登（Hamish de Bretton-Gordon）是化学和生物反恐专家，也是剑桥大学马格达林学院的生物安全研究员。针对政府的做法，他说：“将这个观点进行公开讨论有大量的担忧，但私底下的时候，大多数人都认为这（中共病毒）是实验室泄露的。”
 
-参考链接：纽约市长：几周内将取消疫苗强制令与疫苗护照https://www.epochtimes.com/gb/22/2/23/n13600219.htm
+这位前英国陆军上校解释说：“人畜共患病转移的理论不能说明问题。我认为[政府]的官方观点是除了（实验室泄露），没有其他任何东西可以造成这样的大流行病。”
 
-*发布：tianzhihuan*
+他指出：“很多人和我一样认为这种结论更有可能。我认为人们（对此）的态度已经发生了一些变化。”
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+文章说，为了支持起草一项新的生物安全战略，以应对“意外释放和令人担忧的双重用途研究，英国官员咨询了像布雷顿-戈登这样的专家，即生命科学研究会被错误地用来制造伤害”。
+
+布雷顿-戈登推断道：“我最担心的是，下一次可能不是意外，因为这很容易做到。如果你没有道德，无所忌惮，你肯定会用它来感染（攻击）你的敌人。”
+
+**新闻来源**
+
+[The British Government Believes COVID-19 Came From the Wuhan Lab: Report](https://thenationalpulse.com/2022/02/23/british-gov-backs-lab-leak-theory-behind-closed-doors/)
 
  
 
