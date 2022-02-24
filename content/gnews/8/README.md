@@ -2,65 +2,35 @@
 ---
 
 
-## 2月24日俄罗斯入侵乌克兰德国媒体报道时间表
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2060746/)
+## 短视频：维族人控诉冬奥会是种族灭绝奥运会
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2060921/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+翻译：George Yang
+校对：Lish
+字幕：向上James
+编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image01-2.png)
+中国共产党从不尊重维族人，从不尊重维族文化，从不尊重维族的人权。所以我觉得这个奥运会是种族灭绝奥运会，这不是正常的奥运会。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/GWIRC2FR6FMDFHXBLDI2424F2U.jpg)
+我失去了我的老公司和所有我在故土的生意，在这里从头开始。第一件事就是我要学英语去开启我在这个国家的新生活，2018年我开了我在华盛顿的第一家Dolan Uyghur餐厅。
 
+这个冬奥会和1936年的德国奥运会一模一样，因为共产党在对维族人进行种族灭绝，残杀维族人消灭维族文化。如果我亲眼看这个奥运会，我可以看到我的兄弟姐妹们在我的故土，看到他们在监狱、在集中营和在廉价劳动力的工厂过着艰苦非人道的生活。所以我不能看这个奥运会
 
-图片来源： 路透社
+我的兄弟跟我说了句，祝你好运，给你孩子们在美国好的教育。
 
-21:34 – 欧盟峰会同意对俄罗斯实施新制裁，惩罚性措施影响到能源、金融和交通等领域。 此外，应对某些产品实施出口管制，并限制签证政策。
+就这些，然后几个月后我兄弟第一次跟他老婆进了集中营，然后判了我兄弟10到20年的刑期，判给她老婆7年徒刑，没有人照顾他们的三个孩子，我妈妈照顾着三个孩子。
 
-21:15 – 匈牙利总理 欧尔班谴责俄罗斯在乌克兰的军事行动
+但这仅仅是一个家庭，在东塔克斯坦有数百万的人有同样的问题和遭遇，他们都被关进了集中营。
 
-20:55 – 乌克兰 – 俄罗斯袭击造成 57 人死亡 169 人受伤
+视频链接：[DC Uyghur restaurant owner: ‘This Olympic is genocide Olympics’ | Fox News](https://www.foxnews.com/world/dc-uyghur-restaurant-owner-this-olympic-is-genocide-olympics)
 
-20:46  – 五角大楼：俄罗斯希望在基辅推翻乌克兰政府
-
-20:30 – 美国政府驱逐了排名第二的俄罗斯外交官
-
-20:28 –  德国总理舒尔茨制裁方案Swift放在制裁后期
-
-20:17  –  俄罗斯近 1400 人被捕，因抗议俄罗斯入侵乌克兰
-
-19:49 – 欧安组织暂时从乌克兰撤出所有观察员
-
-19: 42 – 四分之三的德国人支持乌克兰难民
-
-19:29 – 比利时首相：欧盟制裁必须咬人而不是吠叫
-
-19:20 – 13 名平民在乌克兰南部赫尔松地区的袭击中丧生 19:08 – 基辅：俄罗斯控制了切尔诺贝利
-
-19:07 – 俄罗斯国防部：俄罗斯地面部队进入乌克兰
-
-19:01 – 拜登：G7 国家就“毁灭性”制裁方案达成一致
-
-18:54 – 俄罗斯：军方继续在乌克兰开展行动
-
-18:28 – 英国制裁俄罗斯公司和个人
-
-18:12 – 肖尔茨：普京不会赢
-
-18:04 – 草案：欧盟峰会也对白俄罗斯实施制裁
-
-17: 48  – 普京称对乌克兰的袭击是“必要措施”
-
-17:26 – 乌克兰要求将俄罗斯排除在支付系统 Swift 之外
-
-17:23 – 乌克兰军方：俄罗斯伞兵降落在基辅地区
-
-17:21 – G7 敦促俄罗斯结束在乌克兰的流血冲突
-
-17:16 – 政府：占领基辅附近的军用机场
-
-17:09 – 在莫斯科的反战示威中被捕
-
-🔗[2月24日乌克兰危机德国媒体报道时间表](https://www.welt.de/politik/ausland/article237133579/Ukraine-Aktuelle-News-im-Liveticker-Baerbock-wirft-Putin-menschenverachtende-Wahnvorstellungen-vor.html)
-
-编辑发表： Shuizhuyu
+发布：文泓
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

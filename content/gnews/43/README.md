@@ -2,42 +2,22 @@
 ---
 
 
-## 美制裁中共实体遏制中共军事野心
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2058413/)
+## 前苏联3个国家提出将俄罗斯提出SWIFT
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2058584/)
 
-撰稿：纽约香草山农场 – 文鹰
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-39.png)
-2月19日据外媒报道，美国商务部2021年底对中共34家实体实行制裁。指责中共研发产品用于侵犯人权及军事用途。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1000-3.jpeg)
-美商务部长吉娜.雷蒙多指责中共，违反了美国外交政策及国家安全利益，对中共用这些技术用来控制中国人民，迫害少数民族和宗教团体进行谴责。 美商务部工业和安全局指出，被制裁的中共军方医学科学院等研究机构，参与并支持了包括‘脑控武器’的生物技术研发。
+撰稿：东京樱花团｜百花李香
+![](https://lh4.googleusercontent.com/FIqfcMuXeJrx-FzAdmiQIdFpqkh5J9-VzCAb08rgH84IK-RmdhLTK-oCi7IMJKJhZntZF47iVR0vwyNEuneWRpcFKMU5dhn9I-NAjAaqgRXr7QO_c4OzpeyXKWLO1MTePzU_wFYw)[*图片来源*](https://www.themoscowtimes.com/2019/05/24/russian-army-introduces-new-military-rank-a65742)
+前苏联的3个国家爱沙尼亚、拉脱维亚和立陶宛现24日发表了一份联合声明。
 
-中共媒体间接承认“我国众多的生物公司和相关机构参与了基因编辑和脑机接口的研究中’’,但谎称技术用于残疾人用途，拒绝承认研发‘脑控武器’。 中共国防部曾刊文，把脑控武器比喻为‘潘多拉的魔盒’，不亚于新型核武器。
+在联合声明中，他们呼吁对俄罗斯实施制裁，将其排除在全球银行间支付系统SWIFT之外，并呼吁对乌克兰提供必要的支持，包括武器。
 
-分析人士谈到，美国政府对中共制裁实体的核心原因。是遏制中共在科技领域发展的军事野心。
+俄罗斯的经济影响全球，将俄罗斯排除在SWIFT之外对西方国家会产生巨大影响，目前还不清楚这是否会被列入西方国家未来对俄罗斯的制裁中。
 
-新闻链接:
+信息来源：[**旧ソ連のバルト3国 共同声明 “ロシアをスウィフトから排除”呼びかけ**](https://news.yahoo.co.jp/articles/447057b102e03261d959953c004cec634097621a#:~:text=)
 
-脑控武器：[亦真亦幻有点“玄”](http://www.81.cn/jfjbmap/content/2018-06/01/content_207604.htm)
-
-[中企研发脑控武器 促美紧盯中共军事研究](https://www.epochtimes.com/gb/22/2/18/n13588031.htm)
-
-[制造“脑控武器”？又一批中企上了实体清单，理由实在荒诞](https://new.qq.com/omn/20220119/20220119A04D2K00.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-44.jpg)
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-45.png)
-
-
-
-
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,29 +2,41 @@
 ---
 
 
-## 德州州长下令调查儿童变性医疗内幕
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2058192/)
+## 美制裁中共实体遏制中共军事野心
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2058413/)
 
-**撰稿：日本东京方舟农场 北极**
+撰稿：纽约香草山农场 – 文鹰
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-39.png)
+2月19日据外媒报道，美国商务部2021年底对中共34家实体实行制裁。指责中共研发产品用于侵犯人权及军事用途。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1000-3.jpeg)
+美商务部长吉娜.雷蒙多指责中共，违反了美国外交政策及国家安全利益，对中共用这些技术用来控制中国人民，迫害少数民族和宗教团体进行谴责。 美商务部工业和安全局指出，被制裁的中共军方医学科学院等研究机构，参与并支持了包括‘脑控武器’的生物技术研发。
 
-美国德克萨斯州州长格雷格‧阿伯特（Greg Abbott）本周二（2月22日）下令，调查儿童变性医疗内幕。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-257.png)美国得克萨斯州将调查儿童变性程序问题。图为2021年11月1日，帕克斯顿在位于华盛顿特区的美国最高法院外发表讲话。（图片来自大纪元）
-2月22日，阿伯特在给德州家庭和保护服务局（DFPS）局长杰米·马斯特斯（Jaime Masters）下达命令，指示DFPS对德州报告的儿童变性医疗内幕进行调查，包括涉嫌违法的父母和医疗机构。
+中共媒体间接承认“我国众多的生物公司和相关机构参与了基因编辑和脑机接口的研究中’’,但谎称技术用于残疾人用途，拒绝承认研发‘脑控武器’。 中共国防部曾刊文，把脑控武器比喻为‘潘多拉的魔盒’，不亚于新型核武器。
 
-阿伯特还规定，对德州境内其它可能进行这种程序的持牌设施，州政府机构应配合DFPS进行调查。
+分析人士谈到，美国政府对中共制裁实体的核心原因。是遏制中共在科技领域发展的军事野心。
 
-阿伯特的命令源于2月18日由该州共和党籍总检察长肯·帕克斯顿（Ken Paxton）提交的法律意见，该意见认为，根据州法律的几项规定，与变性相关的医疗程序和治疗在法律上可以构成虐待儿童罪。
+新闻链接:
 
-帕克斯顿表示，根据德州法律，父母试图代表他们的孩子同意这样的程序和治疗，也可能构成虐待儿童罪。
+脑控武器：[亦真亦幻有点“玄”](http://www.81.cn/jfjbmap/content/2018-06/01/content_207604.htm)
 
-他还指出，未能阻止医生或父母对未成年人进行与变性有关的护理可能也是非法的。
+[中企研发脑控武器 促美紧盯中共军事研究](https://www.epochtimes.com/gb/22/2/18/n13588031.htm)
 
-参考链接：
-[https://www.epochtimes.com/b5/22/2/24/n13600772.htm](https://www.epochtimes.com/b5/22/2/24/n13600772.htm)
+[制造“脑控武器”？又一批中企上了实体清单，理由实在荒诞](https://new.qq.com/omn/20220119/20220119A04D2K00.html)
 
-素材采编：北极
-编辑：老孙
-发布：爱放飞
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-44.jpg)
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-45.png)
+
+
+
 
  
 

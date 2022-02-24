@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/24/2022 11:04 PM (UTC)`
+
+2/23/2022 Miles Guo: Putin's tactics and tricks targeting Ukraine will eventually lead to sanctions against Communist China by Europe and the US citing the reason that the CCP supports Russia. This game was started by Putin and Xi, and it will end with them. The tragedy is that the Chinese people will pay for everything in the end.<br/><br/>2/23/2022 文贵直播：普京在乌克兰玩弄的招数将最终将导致欧美以中共支持俄罗斯为理由制裁中共国；这场游戏源于普京和习，也将亡于普京和习；悲剧的是，最后一切都将由中国人买单<br/>
+![img](https://media.gettr.com/group12/getter/2022/02/24/23/3f071a75-861b-a204-4f7c-1f1f619b1b20/out.jpg)
+
+---
+
 `@miles 2/24/2022 10:51 PM (UTC)`
 
 2/23/2022 Miles Guo: The CCP's technology innovations are all fake and copied from the West. Huawei's 5G technology is completely a sham. The CCP is not only making and releasing the COVID virus, but also developing the COVID vaccine and drugs to treat its side effects. Xi Jinping is attempting to engage in a post-vaccine economy, which will result in numerous vaccine factories appearing in Communist China.<br/><br/>2/23/2022 文贵直播：中共科技发明造假、全是抄袭，华为5G都是忽悠人的；中共既制毒、放毒，又搞疫苗和治副作用的药；习太阳妄图大搞疫苗后经济，疫苗厂会如雨后春笋般出现在中共国<br/>
@@ -149,13 +156,6 @@ EP11: The Heroes. Let's tear down the monstrous lies of this despicable #HBO #VI
 
 2/23/2022 Miles Guo: What kind of political game is behind the Western sanctions imposed on Russia? Sadly, the Chinese people will end up being the losers in this game. If the CCP is not taken down and its toxic ideologies are not eradicated, everyone will suffer the same fate as the chained woman! Chinese people, time to wake up!<br/><br/>2/23/2022 文贵直播：西方制裁俄罗斯的背后是一场什么样的政治游戏？可悲的是，最后的输家是中国人；若中共不灭，不除掉中共余毒，所有人都会变成锁链女！中国人，醒来吧！<br/>
 ![img](https://media.gettr.com/group9/getter/2022/02/23/23/131218b8-9951-8de0-61eb-de465580ff2c/out.jpg)
-
----
-
-`@miles 2/23/2022 5:18 PM (UTC)`
-
-2月23日：应战友们的要求……发几张今天的照片……🙏🙏🙏🙏🙏🙏🙏🙏🙏
-![img](https://media.gettr.com/group3/getter/2022/02/23/17/c9e3e3a0-621e-effe-1b0c-a117a27a1c48/a0d5dd537dde035947b059f366165829.jpg)
 
 ---
 

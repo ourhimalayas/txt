@@ -2,13 +2,29 @@
 ---
 
 
-## 2月24日勿忘香港（图片5-8）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2060642/)
+## 【秘翻新视野】西方民主国家的执政独裁化
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2060856/)
 
-设计 五月花农场 企鹅
-![](https://assets.gnews.org/wp-content/uploads/2022/02/BA3EB169-5785-4C87-817C-1F4C83CCA972.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/CF1E6D0B-6DCF-4C44-9A9D-EFC5C1232101.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/41DB38E9-3A62-4821-A1CC-0343F01DB918.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/9F643969-507F-4ADB-8CB2-7831AB34156B.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/D6A5338D-2B3F-4907-9911-297BBAED02A7.jpeg)
-发布：水涨船高
+**By:[秘翻新视野](https://gtv.org/broadcast/watch/6216f42e08ba8a07b1a2740e)**
 
+**[2022-02-24](https://gtv.org/broadcast/watch/6216f42e08ba8a07b1a2740e)**
+
+**今日主题：**
+
+[**西方民主国家的执政独裁化**](https://gtv.org/broadcast/watch/6216f42e08ba8a07b1a2740e)
+
+**1.疫情管控凸显西方民主国家的执政独裁化**
+
+**2. 与中共蓝金黄的渗透关系**
+
+**3. 信用体系的坍塌会带来怎样的社会结构的变化**
+
+[🔗GTV链接：https://gtv.org/broadcast/watch/6216f42e08ba8a07b1a2740e](http://🔗GTV鏈接：https://gtv.org/broadcast/watch/6216f42e08ba8a07b1a2740e)
+
+发布:星星
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

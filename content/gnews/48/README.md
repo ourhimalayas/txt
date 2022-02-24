@@ -2,31 +2,13 @@
 ---
 
 
-## 秘翻新闻｜俄罗斯总统普京宣传在乌克兰开展军事行动
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2058036/)
+## 参加渥太华抗议，保罗·亚历山大博士批失败疫苗
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2058362/)
 
-**By:[秘翻新闻](https://gtv.org/broadcast/watch/621725bf08ba8a07b1a28566)**
+02/19/2022 参加渥太华抗议，保罗·亚历山大博士被威胁噤声：他们毫无科学可言，而现在是为了权力和控制，为了掩盖他们做的错事。战斗室，2022年2月19日。
 
-**[2022-02-24](https://gtv.org/broadcast/watch/621725bf08ba8a07b1a28566)**
+By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-**今日主题:**
-
-**1. 铁链女最新报告激怒网民 8百校友要求公开信息**
-
-**2. 德国保险公司证实中共疫苗副作用远高于官方报告**
-
-**3. 英国官员报告中称 中共病毒来自武汉实验室**
-
-**4. 网传蚂蚁集团再遭彻查 中共党内二十大前厮杀激烈**
-
-**5. 美国对建设北溪 2 号管道的公司实施制裁**
-
-🔗GTV鏈接：[https://gtv.org/broadcast/watch/621725bf08ba8a07b1a28566](https://gtv.org/broadcast/watch/621725bf08ba8a07b1a28566)
-
-发布:星星
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMAGE-2022-02-19-171240.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
