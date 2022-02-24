@@ -2,110 +2,34 @@
 ---
 
 
-## 全球救助 （你是我牵挂的人）
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2060275/)
+## 普京命令俄军进攻后乌克兰报告导弹袭击事件
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2060332/)
 
-作者：香草山教育部 — 蓝之灵（Hortensia)
+翻译：**Lulumi**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-109-1280x172-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unknown-2-17.png)俄罗斯对乌克兰的攻击正在进行中。cnbc.com
 
+俄罗斯总统弗拉基米尔·普京周四凌晨在莫斯科发表讲话，宣布俄罗斯将在乌克兰发起军事行动。此后不久，美国全国广播公司新闻报道说，在乌克兰首都基辅听到了爆炸声。
 
+美国总统乔·拜登谴责了这次袭击。他说：“世界将追究俄罗斯的责任。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/战友心声2.jpeg)
+消息传出后，美国市场的股票期货暴跌。联合国安理会星期三晚上刚刚召开了一次紧急会议。
 
-你是我牵挂的人
+此前，欧洲和美国官员在周三争先恐后地惩罚俄罗斯，以一连串的经济制裁来回应其在乌克兰东部的军队部署。
 
-你是我的同胞
+由于担心俄罗斯的侵略会升级，乌克兰警告其公民避免前往俄罗斯，如果他们已经在那里，请立即离开该国。此举是在普京周三表示莫斯科对外交“永远开放”之后，在命令军队进入乌克兰东部并承认该地区两个自我宣布的共和国的独立后几天。
 
-灾难不必恐惧
+欧盟定于周四举行紧急会议，据说正在考虑对俄罗斯个人进行新一轮制裁。英国和美国的官员在本周公布了最初的几批制裁措施后，也宣布或威胁要采取更多报复措施。
 
-我们助你通行
+**参考资料：**[cnbc][U.S., allies gear up to hammer Russia’s economy after Putin launches attack on Ukraine](https://www.cnbc.com/2022/02/23/putin-says-russia-open-to-diplomacy-as-moscow-hit-with-fresh-sanctions.html)
 
-来吧，来吧
+* * *
 
-来到我家
+*审核：文乐
+校对：信心满满
+发稿：信心的选择*
 
-家里有沙发
-
-也有鲜花
-
-你是我牵挂的人
-
-你是我的战友
-
-伸出援助的手
-
-手心里
-
-是爱和温柔
-
-来吧，来吧
-
-来到我家
-
-家里有咖啡
-
-也有茶
-
-你是我牵挂的人
-
-并肩作战已经许久
-
-砍不断的情
-
-托起共同天空
-
-天空下
-
-是新联邦人们
-
-来吧，来吧
-
-
-
-来到我家
-
-家里有米饭
-
-也有菜花
-
-你是我牵挂的人
-
-来自同根同源华夏
-
-让信仰迎接自由
-
-在苦难时相互守候
-
-来吧，来吧
-
-来到我家
-
-家里有饭
-
-也有花
-
-（本文仅代表作者个人观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-7.jpg)
-
-*编辑 /校对*：*Yuki*jiang
-
-*发稿：Yuki*jiang
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-4.jpeg)
 
  
 

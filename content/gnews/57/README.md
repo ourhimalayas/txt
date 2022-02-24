@@ -2,23 +2,38 @@
 ---
 
 
-## 共产主义者是最善于出卖自己的盟友的
-` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2055274/)
+## 中共拘捕日本大使馆工作人员违反维也纳公约
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2055922/)
 
-作者：英喜文獾
-![](https://assets.gnews.org/wp-content/uploads/2022/02/CfxmC0_x1tPS-plRTliDs8YCh2tWYee6HQNQe01WSNtaRInS_iqc_7_sTVW_BoSw5u0W-zgBjug0ud3tk4K2yaJdZUG1IysjOUdWrhtk9j_OV7b_DX2pDtpiY80hxJEiIaMtanI9.jpeg)图片：网络
-“跟着共产党走进火葬场！”还有一句：共产主义者是最善于出卖自己盟友的，这话丘吉尔说的。抗日的时候毛泽东喊“坚决拥护蒋委员长抗战到底，是我们中国的唯一领袖”，抗战结束马上“打倒人民公敌蒋介石”。
+作者：日本方舟农场 – Andy5
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+2月22日，日本外务省发布公告称，其驻中共国大使馆的工作人员，在21日遭到中共当局非法拘禁。虽然目前该名工作人员已经被释放，但是日本国政府的森健良事务次官在22日，表示这是近年没有发生过的，并指斥中共对日方工作人员进行了长时间的拘禁，这种行为已经违反了维也纳公约。他通知了驻日本的中共临时大使杨宇，表达了日本的严正抗议，并且要求中共的道歉。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-52.jpg)
+截至发稿时，中共也没有道歉甚至没有报道此事，而临时大使杨宇仅向日方表示，需要向中共请示后才能做出答复。
 
-1958年中苏交恶那样，是必然会发生的事。当年赫鲁晓夫与毛发生冲突，赫鲁晓夫暴怒，回去就立马命令苏军将1000颗战略原子弹瞄准中国，若不是美国斡旋，第三次世界大战早就在共产阵营爆发了。
+维也纳公约明确规定，所有外交人员享有不被逮捕、大使馆领地不可侵犯的特权，这些特权，是所有签署维也纳公约国必须尊重的规则。分析人士指出，中共在冬奥会和残奥会的间隙，拘捕外交人员会进一步让世界看清，中共不守规则、开展人质外交的丑陋嘴脸。
 
-2020年9月12日郭文贵先生在班农战斗室爆料：在过去的50年里，美国没有一次赢过中共。这就是为什么，美国政府需要我们揭露中共的谎言，中共和美国在过去的70年里，签署了13000个协议，没有一个协议中共兑现过。
+参考链接：
+1. [中共拘捕日本大使馆工作人员违反维也纳公约](https://www.sankei.com/article/20220222-LGZCU32FOZI73EK3R5EVI53TPE/)
+2. [中共拘捕日本大使馆工作人员违反维也纳公约](https://www.sankei.com/article/20220222-UMQLE2ARJBMGXML4LKO3GUSM4Y/)
 
-共产主义者没有真正的朋友，因为他们把全世界都当做敌人，反人类、反文明。最善于当面一套背后一套，当面是人背面是鬼，好话说尽，坏事做绝。郭先生在他的几千次直播中无数次说过，“跟着共产党走进火葬场，共产党是绝不可信赖的，谎言是共产政权赖以生存的支柱，离开谎言他们一天都存在不了。共产党是最会‘挂羊头，卖狗肉’的，他们嘴上说是要给大多数人谋福利，要给人民谋幸福，其实只是用暴力和谎言取得政权，用暴力和谎言维持政权。在未取得政权之时，他们不恤用任何方法取得政权:既得政权之后，他们不恤用任何方法巩固政权，霸住政权。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
-中国共产党每分每秒都在给自己，给中国人拉仇恨，让世界讨厌、排斥甚至仇恨中国人，刻意在全世界制造排华情绪。中国共产党制造和释放了冠状病毒，又不允许病毒溯源，如果病毒一直不溯源，海外华人，亚裔都将背负病毒传播者的恶名。中共不等于中国人，中国人是共产党最大的受害者，是被绑架的奴隶！因此爆料革命一直在向全世界宣告，冠状病毒是共产党蓄谋已久的生化武器，病毒和疫苗都含有艾滋病病毒基因，因此是没有有效疫苗的。全世界应该齐心协力，帮助新中国联邦一起推翻中共政权，才能获得全部有关病毒和疫苗的真相。共产政权是不可能主动让世界知道他们的核心秘密的，只有推翻它打倒它，才能得到所有真相，终结病毒和疫苗灾难，否则世界永无宁日。
+总编：zhong
+编辑：谐趣园
+校对/发稿：Hetangyuese
 
-发布：Luckycky
-![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

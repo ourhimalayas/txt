@@ -2,24 +2,40 @@
 ---
 
 
-## 普京：入侵&#8212;是俄罗斯的唯一选择
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2059999/)
+## 美国房价在12月份重新加速
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2060133/)
 
-撰稿：Skagen
-![](https://assets.gnews.org/wp-content/uploads/2022/02/lcimg-cdc3550c-bc16-47b0-9f97-d00fbe18b622.jpg)
-图片：Dr.
+据《Zerohedge》记者：Taylor Durden, 2022年2月22日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2274-e1645727695206.png)图片来源：Forbes
+在美国最大的20个城市的房价涨幅连续4个月减速之后，12月份价格再次加速上涨（来自S&P CoreLogic的最新数据），同比上涨了惊人的18.56%（令人惊讶地高于11月和12月的18.35%，远高于预期的18.00%）……
 
-据路透社2月24号报道，俄罗斯总统弗拉基米尔-普京说，俄罗斯只能通过入侵乌克兰来保护自己。 路透社援引普京的话说，俄罗斯是 “被迫 “入侵的。
+全国房价指数同比上涨18.84%，高于11月的18.69%。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2275.png)
+在接受调查的20个城市中，凤凰城、坦帕和迈阿密的同比增幅最高。
 
-– 乌克兰的事态发展使我们别无选择。普京说，我们没有别的出路。 目前还不清楚总统指的是什么，但他很早就指责乌克兰是纳粹统治，在乌克兰东部进行种族灭绝，完全没有证据。
+标普道琼斯指数董事总经理克雷格·J·拉扎拉(Craig J. Lazzara) 在声明中说： “我们注意到，过去几个月来，房价一直在以非常高的速度上涨，但正在减速。”
 
-同时，在与RSPP的会谈中，普京呼吁俄罗斯不要被排除在全球经济之外。 据路透社报道，普京说，俄罗斯仍然是全球经济的一部分，不会损害它所处的体系，世界必须理解这一点，不要把俄罗斯推开。
+“减速在12月停止，因为所有三个综合指数的同比变化都略高于11月的水平。12月全国综合指数上涨18.8%，是历史上第五高的读数。”
 
-世界上独裁战争贩子都一样，嘴巴上都是正义，行动上都是流氓！
+但是，我们注意到这是在1月份抵押贷款利率真正开始起飞之前（这是在利率变动之前加速购买吗？）……
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2276.png)
+……这表明价格将更快地放缓涨幅（这与购房者和建筑商情绪的低迷相吻合）。不要指望美联储会拯救这个……
 
-来源：
+文章来源：[https://www.zerohedge.com/personal-finance/us-home-prices-re-accelerated-december-ahead-mortgage-rate-surge](https://www.zerohedge.com/personal-finance/us-home-prices-re-accelerated-december-ahead-mortgage-rate-surge)
 
-[Dr.dk](https://www.dr.dk/nyheder#!/)
+翻译：洛杉矶盘古农场 – Raul
+
+校对：洛杉矶盘古农场 – 轰炸机
+
+编辑：洛杉矶盘古农场 – WenXiong
+
+发布：洛杉矶盘古农场 – 子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

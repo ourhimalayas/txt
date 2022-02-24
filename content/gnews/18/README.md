@@ -2,34 +2,81 @@
 ---
 
 
-## 对“美国财政部确认加密矿工免于 IRS 报告规则”的解读
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2060343/)
+## 零售商与供货商之间成本负担的矛盾激化
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2060415/)
 
-撰稿：Shujia
-![](https://assets.gnews.org/wp-content/uploads/2022/02/28AC953C-ACDD-4996-85EC-A939A1197C07.jpeg)图片来自网络
-美国财政部确认，加密矿工和钱包运营商不受美国国税局报告规则的约束，并准备了适当的法规。总体解读：此次美国政策对澳洲数字货币方面的税务影响主要是在带风向，尚未对澳洲数字货币相关税务政策产生直接影响。
+作者：Brett Bundale
+翻译：Himasally
+![](https://assets.gnews.org/wp-content/uploads/2022/02/23_1025324T3_0.jpg)
+据加通社报道，在通货膨胀到处可见的今天，零售商与供货商之间成本负担的矛盾激化，以至于加国最大的食品制造商之一拒绝向最大的超市连锁商供货。
 
-**1.企业Good and Service Tax方面（商品及服务销售税，GST）**
+矛盾双方分别是Frito-Lay Canada和Loblaw Companies Ltd.。Frito生产众多知名品牌，如Cheetos，Doritos， Lays，Ruffles和Sunchips。为此，消费者可能无法在Loblaw超市买到之前最常见的一系列薯片产品。
 
-根据GST的定义，此税种是针对在澳洲销售或消费的大多数商品和服务所征收的，但凡是商家注册了GST，都需要按期缴税给澳洲税务局（ATO）。在澳洲，GST相当于增值税，即由最终消费者承担此税收，企业仅作为代缴方；若已注册GST的商家未向买家收取时，企业要从销售收入中扣除此部分GST上交。
+报道称，许多Loblaw超市的食品货架上，这些薯片和零食要么缺货，要么货不足，改卖Loblaw自有的品牌President’s Choice或No Name产品。
 
-GST定义强调了只要是在澳洲发生的商品和服务均需交税，那么与其收款方式无关，即与何种货币或支付方式无关。如果企业通过数字货币支付不透明来逃避其收入部分应缴纳的税收，只能建立在ATO无法监管其他货币的支付前提下，但是ATO一旦掌握信息就会罚款补税。另外，虽然ATO目前无法掌握海外货币账户信息，但澳洲相同行业收入成本指标都可通过大数据掌握，一旦其认为企业有问题会对其进行审计。
+Frito-Lay公司的发言人Sheri Morgan证实，有客户出现了“暂时断货”。
 
-目前来看，对于主权国家，税收收取具有国家强制性。企业是否可以避免GST，除非ATO已制定相关政策后才可行。
+“由于原料、包装和运输等成本不断上升，我们的业务面临着前所未有的压力，”她在一封电子邮件中说。“为了帮助抵消我们加拿大业务的这些压力……我们已经调整了我们的价格，使之与整个市场保持一致。”
 
-**2.个人或企业所得税方面**
+另一边，Loblaw公司的发言人Catherine Thomas说，该公司正“高度关注”将零售价格的涨幅降至最低。
 
-由于涉及资产增值，数字货币价值的增长主要涉及到对持有货币的个人或企业所得税的影响。根据澳洲Capital Gain Tax（资产收益税，CGT）的定义，只要资产通过Capital Gain Event（资产收益行为，比如买卖）被处理了就要交CGT。比如用喜币直接买东西，喜币持有过程中的增值部分就要交CGT。
+“当供应商要求提高成本时，我们会进行详细审查，以确保它们是合适的，”她在一封电子邮件中说。“这可能会导致艰难的对话，在极端情况下，供应商不会向我们发货。”
 
-个人持有资产超过一年增值部分有50%打折，个人纳入收入按照个人超额累进税率纳税（1万8以下部分：免税；18万及以上部分：加上medicare levy为47%）；企业即便长期持有也没有打折，但税率目前在25%（小企业）及30%，未来应可降低到25%。另外，如果往年有资产损失且已申报给ATO，可抵消相应金额的资产收益。如果不卖出喜币，增值部分属于未实现收益，不用纳税。由于澳大利亚和美国有双重征税条约，针对美国资产或需要先在美国交税，如果低于澳洲税率则需要按澳洲税率补税。
+**生产供货商和零售商”打架”**
 
-此次美国财政部确认加密矿工免于纳税报告规则主要涉及的税种应该就是CGT，但也并不是说免税，其声明已为加密货币准备了适当的法规。对喜币税收的影响可根据后期澳洲税务局的政策再进行解读。
+Frito和Loblaw之间的分歧暴露了加拿大食品行业日益加剧的紧张关系，许多专家说，随着供应链挑战和通胀持续，这种紧张关系可能恶化。
 
-税收建议：根据实务来看，由于未来喜币价值都不低，数额大会导致被税务局盯上，一旦被查，补税、滞纳金、罚款数量会交很多。目前的税收建议，个人可充分利用每年每人1万8的免税额度，且持有12个月以后再卖出，或利用信托、自营养老金等生意结构来提前规划税收，具体可咨询澳洲的税务师。
+一些人认为，超市只是想保持低价，并阻止供应商利用通胀进行不合理的涨价。
 
-**资料出处：**[https://cointelegraph.com/news/crypto-miners-exempt-from-irs-reporting-rules-us-treasury-affirms](https://cointelegraph.com/news/crypto-miners-exempt-from-irs-reporting-rules-us-treasury-affirms)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
-发稿：MG6
+其他人则认为，超市正在利用他们的市场优势欺负供应商，抬高自己的收益。
+
+加拿大食品、健康与消费产品协会首席执行官Michael Graydon说：“这是一个挑战，它已经演变成一种对抗性的关系。”Frito-Lay的母公司百事食品加拿大公司（PepsiCo Foods Canada）是该协会成员。
+
+他说，一些供应商希望零售商接受批发价格上涨，以助于缓解目前的通胀，但不会完全抵消成本上升的影响。
+
+Graydon说，消费者在商店里支付的最终价格是由零售商设定的，而不是食品制造商。
+
+不过，零售业的支持者说，有些食品制造商要求超过通胀的价格上涨。
+
+加拿大零售协会(Retail Council of Canada)发言人Michelle Wasylyshen表示，大型和小型杂货零售商已就供应商1月份的新一轮涨价潮与该行业协会进行了接触。
+
+她表示：“在此之前，上一季度的增幅已经令人震惊。在许多情况下，这种增长是前所未有的，远远超过了典型的食品通胀水平。”
+
+加拿大统计局(Statistics Canada)上周表示，1月份食品价格上涨6.5%，为10多年来食品杂货价格的最大同比涨幅，高于5.1%的总体年通胀率。
+
+**最终谁受影响?**
+
+Loblaw旗下有Zehrs、Atlantic Superstore和Provigo等传统连锁店，以及No friills和Maxi等折扣店，目前尚不清楚其销售下降会对Frito-Lay造成怎样的影响。
+
+Frito-Lay的产品在加拿大生产，主要使用本地农民种植的加拿大土豆。专家表示，长期销售下降最终可能会伤害到本地生产商。
+
+但专家表示，品牌忠诚度将有利于这家薯片生产商。
+
+市场调查公司Mintel的加拿大食品和饮料部门副主管Joel Gregoire说：“Frito-Lay是在打赌，消费者对其品牌的忠诚度会让他们有能力采取这一行动。”
+
+但他表示，从Loblaw撤出供应对这家食品生产商来说也有风险。Loblaw在加拿大食品杂货销售中占据最大份额。
+
+Gregoire表示，”无法向加拿大最大的食品商交付订单，无疑将对Frito-Lay近期的销售产生重大影响。”从更广泛的意义上说，这场纠纷似乎象征着食品商和制造商之间围绕定价杠杆展开的一场更广泛的斗争。
+
+他说：“这种紧张关系并不新鲜，但Frito的这一举动事关重大。在成本上升之际，这是一场维持利润率的战役。”
+
+事实上，食品专家，达尔豪斯大学的食品分配和政策教授Sylvain Charlebois说Frito-Lay和Loblaw之间的摩擦只是“冰山一角”。他说，零售商和制造商之间的敌意可能在未来几个月加剧。“这不仅仅是薯条的问题，我们也会在烘焙和乳制品等其他食品领域看到这种情况。”
+
+来源：https://www.ctvnews.ca/business/frito-lay-loblaw-dispute-over-price-increases-alters-some-grocery-store-chip-aisles-1.5791020
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

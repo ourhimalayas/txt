@@ -2,34 +2,106 @@
 ---
 
 
-## 为应对人民车队 五角大楼在DC部署国民警卫队
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2060185/)
+## 悲惨世界
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2060255/)
 
-翻译：**Lulumi**
+作者：香草山教育部 — 蓝之灵（Hortensia)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unknown-1-27.png)图片来源：mediaite.com
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-109-1280x172-1.jpg)
 
-国防部正在考虑部署华盛顿特区国民警卫队，以应对国家首都可能发生的与加拿大类似的卡车司机抗议活动。
 
-五角大楼发言人约翰·柯比在周二对媒体发表的声明中说：“国防部正在分析美国国会大厦警察和华盛顿特区国土安全和应急管理机构的援助请求。”
 
-他说：“这些机构要求国民警卫队人员在该区及其周围的交通控制点提供支持，以帮助美国国会警察局和华盛顿特区政府应对关键交通干线可能出现的中断所带来的潜在挑战。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-1-2.png)
 
-据《军事时报》报道，该报首先报道了特区国土安全和紧急事务管理局对特区国民警卫队的请求。
+谁家女儿不是宝
 
-根据《军事时报》获得的内部指令， DC特区国民警卫队在2月22日至3月7日或更晚的时间里被通知可能被启动。根据DC特区国民警卫队陆地部分指挥部负责人罗伯特·K·瑞恩准将周五发布的消息，DC特区国民警卫队将在“43个关键封锁位置全天候提供车辆和人员”。
+都是爹娘心头好
 
-部署DC国民警卫队的可能性是在卡车司机车队封锁加拿大道路以抗议该国中共冠状病毒规定（包括其疫苗规定）之后，卡车司机计划来到国家首都抗议。据报道，渥太华的卡车司机车队后来被清除了。
+冬有棉衣夏有纱
 
-**参考资料：**[mediaite][Pentagon ‘Analyzing’ Deploying DC National Guard Ahead of ‘Possible Disruptions’ by Truckers](https://www.mediaite.com/news/pentagon-analyzing-deploying-dc-national-guard-ahead-of-possible-disruptions-by-truckers/)
+娇娇软软养成花
 
-* * *
+厉害国里独奇葩
 
-*审核：文乐
-校对：信心满满
-发稿：信心的选择*
+命如草芥如泥沙
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-4.jpeg)
+杨氏女儿多不幸
+
+拐拐卖卖到董家
+
+酷吏贪官多爪牙
+
+董家父子凶性发
+
+贪婪钱财做奴才
+
+豪无人性做狗才
+
+二十四载锁铁链
+
+生孩一娃到八娃
+
+日日夜夜多糟蹋
+
+剪了舌头又拔牙
+
+青春女儿生华发
+
+生不如死解脱吧
+
+小哥哥，救救我
+
+离开地狱求求你
+
+好心换得解链锁
+
+出来虎窟入狼窝
+
+
+
+入狼窝，医院里
+
+白衣天使假面目
+
+本来没有神经病
+
+硬说神经深井冰
+
+深井冰，要治疗
+
+好药坏药往里倒
+
+管你有病没有病
+
+定要治出神经病
+
+救救我吧救救我
+
+何时何人来救赎
+
+来救赎呀 来救赎
+
+（本文仅代表作者个人观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-7.jpg)
+
+*编辑 /校对*：*Yuki*jiang
+
+*发稿：Yuki*jiang
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
