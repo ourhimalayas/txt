@@ -2,79 +2,28 @@
 ---
 
 
-## 参议员乔什·霍利:中共国 想要吞并台湾,乔拜登最好集中注意力
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2056667/)
+## 美国将制裁俄罗斯天然气管道北溪2号背后的公司
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2056877/)
 
-参议员乔什·霍利： 乔拜登最好集中注意力。[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 想要吞并 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click)，然后再将其力量投射到世界各地——所有这些都是为了干掉美国。拜登还没有做好准备。差远了 【转环球时报：台湾急于引起乌克兰问题的关注。但尽管边界存在争议，但乌克兰主权没有争议。台湾主权从未存在过。还说台湾政权迟早会被废除】
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-99.jpg)
+图片来源：网络截图
 
+据合众国际社2月23日报道，美国总统乔·拜登周三宣布，美国将对北溪2号天然气管道背后的公司及其首席执行官实施制裁，以应对俄罗斯在乌克兰不断升级的侵略行为。
 
+该管道旨在将天然气从俄罗斯运往波罗的海下的德国，已于9月完工，但仍在等待德国监管机构的最终认证。该管道由瑞士北溪2号公司拥有，其母公司是庞大的俄罗斯能源公司Gazprom。制裁还打击了该公司的首席执行官马蒂亚斯·沃宁（Matthias Warning）。
 
-> Joe Biden better get focused. [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) wants to gobble up Taiwan and then project its power worldwide – all in an effort to take down the United States. And Biden isn’t ready. Not even close [https://t.co/Y489ThyWJ2](https://t.co/Y489ThyWJ2)
-> — Josh Hawley (@HawleyMO) [February 23, 2022](https://twitter.com/HawleyMO/status/1496523282358714374?ref_src=twsrc%5Etfw)
+拜登的宣布是美国及其盟国对俄罗斯实施的一系列经济处罚中的最新一项，“这些步骤是我们为回应俄罗斯在乌克兰的行动而采取的最初一批制裁措施的另一部分。正如我所表明的那样，如果俄罗斯继续升级，我们将毫不犹豫地采取进一步措施，”拜登在一份媒体新闻稿中说。他说，普京的行动加速世界远离俄罗斯天然气，转向其他形式的能源。
 
+此举是在德国总理奥拉夫·肖尔茨（Olaf Scholz）说他的国家将停止该管道的审批程序后的一天，该管道的完成成本超过110亿美元。几个月来，肖尔茨一直在为该项目辩护，因为他的国家面临着能源危机，但他在一次新闻发布会上说，现在是时候 “重新评估这个急剧变化的情况 ”了。他说没有这个认证，北溪2号就不能投入运营。
 
+美国国务卿安东尼·布林肯（Antony Blinken）周三对德国的决定表示赞赏，称在与柏林和欧盟协商后，他已经终止了去年春天实施的保护北溪2号股份公司和沃宁，以及其他公司官员免受制裁的豁免，他们在美国境内的所有财产和资产已被冻结。
 
-前国务卿迈克.蓬佩奥： 弗拉基米尔·普京没有改变。 美国领导层发生了变化。 只要美国处于不利地位，普京的侵略就会继续。 【附福克斯采访蓬佩奥：拜登未能兑现阻止俄罗斯扩张的竞选承诺】
+拉脱维亚总理阿塔斯（Arturs Krišjānis Kariņš）在周三接受CNN采访时说，德国决定取消该管道的国家安全豁免权，在功能上扼杀了该项目。
 
+“我们现在看到的是第一波的制裁。普京因向乌克兰派遣军事部队，民主世界立即作出反应，在一天之内，跨越所有时区，进行协调和非常深入的制裁，”阿塔斯说，如果俄罗斯有更多的动作，就会有更多的制裁，而且一次比一次更厉害。
 
-
-> Vladimir Putin didn't change. American leadership changed. 
-> 
-> And Putin's aggression will continue so long as America is on its back foot. [pic.twitter.com/SLAaNwmag6](https://t.co/SLAaNwmag6)
-> — Mike Pompeo (@mikepompeo) [February 23, 2022](https://twitter.com/mikepompeo/status/1496567220821966849?ref_src=twsrc%5Etfw)
-
-
-
-参议员玛莎.布莱克本： 拜登政府在俄罗斯和共产主义中国问题上表现出无能。
-
-
-
-> The Biden administration has demonstrated incompetence when it comes to Russia and Communist China.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [February 23, 2022](https://twitter.com/MarshaBlackburn/status/1496559848489631747?ref_src=twsrc%5Etfw)
-
-
-
-参议员瑞克·斯科特： 乔·拜登的司法部更关心将父母和卡车司机错误地贴上国内恐怖分子的标签，而不是阻止 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 监视美国人和保护我们的国家安全。 【附福克斯新闻：拜登司法部在种族偏见的抱怨中取消对抗中共国的国家安全倡议】
-
-
-
-> Joe Biden’s [@TheJusticeDept](https://twitter.com/TheJusticeDept?ref_src=twsrc%5Etfw) is more concerned with wrongfully labeling parents & truckers as domestic terrorists than stopping Communist China from spying on Americans & protecting our national security. [https://t.co/8GnH94qUS1](https://t.co/8GnH94qUS1)
-> — Rick Scott (@SenRickScott) [February 23, 2022](https://twitter.com/SenRickScott/status/1496624725765808132?ref_src=twsrc%5Etfw)
-
-
-
-参议员汤姆·科顿： 中共盗窃美国数万亿知识产权，把在美留学生变成外国间谍。然而，拜登政府宣布取消负责打击这种破坏活动的倡议，因为他们声称这是种族主义。 【附科顿参议员官网就司法部结束“中共国倡议”的声明】
-
-
-
-> The CCP has stolen trillions in U.S. intellectual property & turned students studying in the U.S. into foreign spies. Yet the Biden administration announced it’s cancelling the initiative tasked with combatting this sabotage because they claim it’s racist.[https://t.co/76FaaYRUxu](https://t.co/76FaaYRUxu)
-> — Tom Cotton (@SenTomCotton) [February 23, 2022](https://twitter.com/SenTomCotton/status/1496624469179355140?ref_src=twsrc%5Etfw)
-
-
-
-参议员马可·卢比奥： 我希望我们能从 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click) 危机中学到宝贵的一课 我们需要自己生产的能源，重新靠自己制造，而不是依赖俄罗斯和 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)
-
-
-
-> I hope we are learning a valuable lesson with [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) 
-> 
-> We need to produce our own energy, make things again & not depend on [#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw) & [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/EnCmgVzL70](https://t.co/EnCmgVzL70)
-> — Marco Rubio (@marcorubio) [February 24, 2022](https://twitter.com/marcorubio/status/1496655883782270977?ref_src=twsrc%5Etfw)
-
-
-
-参议员马可.卢比奥：
-
-[#俄罗斯](https://twitter.com/hashtag/%E4%BF%84%E7%BD%97%E6%96%AF?src=hashtag_click) [#Russian](https://twitter.com/hashtag/Russian?src=hashtag_click) 入侵 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click) [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hashtag_click) 现在正在进行中
-
-在未来的几个小时内 [#俄罗斯](https://twitter.com/hashtag/%E4%BF%84%E7%BD%97%E6%96%AF?src=hashtag_click) [#Russia](https://twitter.com/hashtag/Russia?src=hashtag_click) 将 – 对防空系统进行打击 – 采取行动从 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click) 东部切断 [#基辅](https://twitter.com/hashtag/%E5%9F%BA%E8%BE%85?src=hashtag_click) [#Kyiv](https://twitter.com/hashtag/Kyiv?src=hashtag_click) – 采取行动切断东部接触线上的乌克兰军队，以防止他们后退保卫基辅
-
-
-
-> The [#Russian](https://twitter.com/hashtag/Russian?src=hash&amp;ref_src=twsrc%5Etfw) invasion of [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) is now underway
-> — Marco Rubio (@marcorubio) [February 24, 2022](https://twitter.com/marcorubio/status/1496667918490382343?ref_src=twsrc%5Etfw)
-
-
+新闻来源：[U.S. to sanction company behind Russian gas pipeline Nord Stream 2](https://www.upi.com/Top_News/World-News/2022/02/23/Joe-Biden-sanctions-Russia-pipeline-Nord-Stream-2/2211645652724/)
 
  
 

@@ -2,18 +2,18 @@
 ---
 
 
-## 中日财经爆|日经指数15个月来首次跌破26000点
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2057143/)
+## 中日财经爆|日本百货公司1月份销售额大涨15.6%
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2057180/)
 
 撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2218.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fd1e00ek4ebabms.cloudfront.net%2Fproduction%2F89831fe6-6449-4e6c-a656-67188092c712.jpg&amp;imgrefurl=https%3A%2F%2Fwww.ft.com%2Fcontent%2F5f5713e7-1dc1-4910-9385-03122d8c60d3&amp;tbnid=ZCePQwcUWkG3MM&amp;vet=12ahUKE)
-节后24日的东京证券交易所，日经225指数收于25970.82点，比前一个交易日（22日）下跌478.79点，自2020年11月以来约一年零三个月首次跌破26000点。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2220.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.japan-guide.com%2Fg20%2F2072_03.jpg&amp;imgrefurl=https%3A%2F%2Fwww.japan-guide.com%2Fe%2Fe2072.html&amp;tbnid=eKrL5_n6yeSCUM&amp;vet=12ahUKEwi0tv2G7pf2AhUoHKYKHUxCATUQMygCegUIARCxAQ..i&amp;docid=xwLgDB_QiZOwTM&amp;w=8)
+日本百货公司协会2月24日宣布，全国百货公司1月份的销售额比上年同期增长15.6%，达到约3751亿日元。
 
-24日当天俄罗斯总统弗拉基米尔-普京宣布在乌克兰东部发起军事行动，这促使投资者采取规避风险的立场，扩大卖盘。 日经225指数一度下跌超过600日元， 亚洲主要股指也全面大幅下跌。
+这是连续第四个月的同比增长，去年因紧急状态迫使百货公司缩短营业时间，致使营业额下降，由于气温下降，大衣等冬季服装的销售也很强劲。
 
-衡量东京证券交易所整个第一部分价格变动的东京股票价格指数（TOPIX）下跌23.50点，至1857.58点。
+但是与2020年1月相比，销售额还是下降了18.8%，并没有恢复到中共病毒（新冠）疫情前的水平。
 
-消息来源：[日経平均終値も２万６０００円割れ…１年３か月ぶり、リスク回避で売り膨らむ](https://www.yomiuri.co.jp/economy/20220224-OYT1T50165/)
+消息来源：[１月の百貨店売上高、冬物好調で１５・６％増…感染拡大前の水準には戻らず](https://www.yomiuri.co.jp/economy/20220224-OYT1T50159/)
 
 *编辑：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/平安卿卿*

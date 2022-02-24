@@ -2,28 +2,33 @@
 ---
 
 
-## 美国男子袭击亚裔家庭 误认为是中共国人需为中共国病毒流行负责
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2057054/)
+## 2022年2月24日澳洲股市简报
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2057115/)
 
-**撰稿：日本东京方舟农场  老孙**
+**撰稿：云彩**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1-19.jpg)图片来自the Australian
+ASX 200 指数下跌3%，6991点收盘，自2020年9月4日以来最大单日跌幅。工业和矿业板块领跌。原因俄罗斯入侵乌克兰。
 
-据美国之声2月23日报道，德克萨斯州的一名男子袭击了一个亚裔家庭，因为他认为他们是中共国人，要为中共病毒疫情负责，该男子已承认所犯下的三项仇恨犯罪。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-359.jpg)（图片取自美国之声）
-根据相关文件显示，现年21岁的何塞·戈麦斯三世（Jose Gomez III）2020年3月14日在德克萨斯州米德兰（Midland）的一家山姆会员店（Sam’s Club）试图用在店里找到的刀具杀害正在购物的一户亚裔家庭，伤害了一名两岁儿童和一名六岁儿童及孩子们的父亲。他行凶的原因是他认为他们来自传播这种疾病的中共国，是“威胁”。当他被一名白人店员阻止并按在地下的时候，他对这个亚裔家庭大喊：“滚出美国！”。
+**科技板块下跌 6.4%**
 
-司法部说，戈麦斯在袭击后承认，他认为这个亚裔家庭是中共国人。
+科技公司 Life360披露亏损翻倍，股价跌至4.68澳元。 AI公司Appen股价下跌28.7%，至6.11澳元。
 
-自中共病毒疫情爆发以来，在美国针对亚裔的暴力袭击事件急剧上升。根据一个亚裔美国人组织的记录，从2020年3月至2020年12月，有2800多起针对亚裔的种族主义和歧视事件，其中口头骚扰和拒斥行为占90％以上，身体攻击占了将近9％。
+**澳航Qantas股价下跌 5.1%**
 
-戈麦斯将面临的最高刑期是终身监禁，每项罪行将被处以25万美元的罚款。
+公司公布的半年亏损大于预期。在COVID-19的Omicron变体出现后，澳航不得不将国内和国际航线运力缩减1/3 。
 
-参考链接：
-[https://www.voachinese.com/a/doj-hate-crime-texas-asian-20220223/6456091.html](https://www.voachinese.com/a/doj-hate-crime-texas-asian-20220223/6456091.html)
+**黄金矿产公司股价上涨**
 
-素材采编：老孙
-编辑：青城道姑
-发布：爱放飞
+Perseus Mining 涨12.3%，Ramelius Resources 涨4.7%，Evolution Mining 涨4.8% 。
 
+点评：看着上市公司股价的升升跌跌，感受到什么是病毒灾难，疫苗灾难和战争灾难。期望将来的千年和平。
+
+参考资料：
+
+[Australian shares drop by $74 billion amid Russia’s Ukraine invasion,the worst fall in 18 months](https://www.abc.net.au/news/2022-02-24/australian-share-market-asx-business-global-stock-covid/100856304)
+
+编辑：云彩
+![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
