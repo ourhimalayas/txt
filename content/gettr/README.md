@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/24/2022 4:33 PM (UTC)`
+
+2/23/2022 Miles Guo: The judge went back to his hometown to deal with the women trafficking cases, but the local people offered him several kidnapped women. I will cry whenever I sing the song "The Nightmare in Chains". What the chained woman wants to say the most is "the world has abandoned me". The CCP sent people to Xuzhou to investigate and arrest anyone who is not local, but they couldn’t even find out about the identity of the chained woman. Only the CCP government is so cruel to its own people.<br/><br/>2/23/2022 文贵直播：法官回老家解决绑架女的问题反被当地人送上绑架女；文贵这首《锁链梦》唱一个字都想哭，“这个世界不要我”是锁链女最想说的话；中共派人到徐州查、抓外地人，而锁链女的身份却查不着，只有中共政府才对老百姓这么残忍！<br/>
+![img](https://media.gettr.com/group11/getter/2022/02/24/16/2dedada5-9300-99e3-e143-0df405ac9ba2/out.jpg)
+
+---
+
 `@miles 2/24/2022 4:02 PM (UTC)`
 
 2/23/2022 Miles Guo: Peng Liyuan's cousin bought a trafficked woman and made her his wife. Xi Jinping and Peng Liyuan know better than anyone else the miserable lives of the trafficked women in Communist China. All the world's most powerful and wealthy people envy the pleasure brought by the CCP’s highly centralized power. It is the CCP that has led the governments of various countries to go to extremes.<br/><br/>2/23/2022 文贵直播：彭丽媛的表哥买了拐卖女为妻，习近平和彭丽媛比任何人都清楚中国的被拐卖妇女的悲惨生活；世界有权有钱的人无不羡慕中共的高度集权带来的快乐，中共导致各国政府走向极端化<br/>
@@ -148,13 +155,6 @@ EP11: The Heroes. Let's tear down the monstrous lies of this despicable #HBO #VI
 
 2月22日：共产党，这一群流氓开始自我毁灭……［徐州“铁链女”（八孩母）的悲惨遭遇引起全网关注。江苏成立调查组后开始删帖抓人。但网民表示：“堵不住的悠悠众口，压不下的词条热搜。”截至22日，八孩女的微博话题阅读量已高达48.8亿次。］冬奥会能结束吗？永远结束不了，直到共产党彻底被消灭为止……
 ![img](https://media.gettr.com/group7/getter/2022/02/22/20/b5066022-1745-a249-a069-256d0dfc7d5c/out.jpg)
-
----
-
-`@miles 2/22/2022 4:29 PM (UTC)`
-
-2月22号：尊敬的战友们好，这个普通的一个微信对话证明了中国比地狱还悲惨的过去七十年！😭😭😭😭😭😭😭😭😭😭😭😭😭😭😭😭😭
-![img](https://media.gettr.com/group19/getter/2022/02/22/16/2be3f9d7-aed3-343a-1f95-5a82529ff97f/3a2389fbd1f5275296b219952d1f762c.jpg)
 
 ---
 
