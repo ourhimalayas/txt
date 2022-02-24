@@ -2,48 +2,10 @@
 ---
 
 
-## 中共下令对所有香港居民进行强制性中共病毒测试
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2055010/)
+## 2/23/2022 文贵直播：普京史无前例地羞辱了西方，派大军进入乌克兰后，普京把美法等国与之签署的保证北约不东扩的保密协议挂到了网上，并承认了顿涅茨克和卢甘斯克两地的独立
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2055122/)
 
-作者：纽约香草山农场 – 四季
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
-
-据[网管专家](https://www.thegatewaypundit.com/2022/02/china-strengthens-hold-hong-kong-ordering-compulsory-covid-tests-citizens/)2月22日报道，周二，香港行政长官林郑月娥下令所有香港居民在下个月进行强制性中共病毒测试。香港将设立数百个检测站，检测顺序将根据出生年份决定。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Hong-Kong-1.jpg)[图片来源](https://www.thegatewaypundit.com/2022/02/china-strengthens-hold-hong-kong-ordering-compulsory-covid-tests-citizens/)
-
-所有香港居民都必须接受强制性的Covid-19测试，并将进行三轮测试。全港每天将进行多达100万次测试，而测试结果将被转发到中共国。这表明，中共可能会将香港居民加入到他们迄今为止收集的DNA的报告清单中。
-
-疫情期间，严苛的强制措施和对商业活动的遏制已经让香港恢复正常的可能性越来越小，香港的繁荣将不复存在。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2月.jpg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+秘密翻译组-北美组
 
  
 

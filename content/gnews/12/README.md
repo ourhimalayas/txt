@@ -2,45 +2,20 @@
 ---
 
 
-## 德国雪橇冠军说她永远不会再来中共国
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2055140/)
+## 战友不要轻易外出，不要染上病毒
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2055183/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/e1f38897dcaf4e2ba2f1723a7c3cf652-1.jpg)德国奥运雪橇运动员娜塔莉·盖森伯格(Natalie Geisenberger)。美联社图片
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-台湾英文新闻 2022年02月21日台北报道，
-翻译：
+*发布：陶子*
 
-在安全返回她的祖国后，德国奥运雪橇运动员娜塔莉·盖森伯格(Natalie Geisenberger)说她永远不会再来中共国。
-
-12月，盖森伯格公开表示可能会放弃2022年冬奥会，因为她对本赛季初在北京训练期间运动员被对待的方式感到不满。她还抱怨到，因与中共病毒检测呈阳性的人在同一航班上而被隔离，尽管每天她的检测结果都是阴性的，以及放在她门外的食物质量都很差。
-
-尽管如此，她还是决定参加北京奥运会，并于2月8日在女子单人比赛中获得金牌。在第二天的新闻发布会上，当被问及她是否对中共国的人权记录问题没有在冬奥会上提出感到惊讶时，她表示，她将对该评论有所保留：“你必须小心你说的时间和地点。在我返回（德国）后，可能还会有一些话要说，但在这里我不打算说什么。”
-
-盖森伯格在2月10日的雪橇团体接力赛中再次夺得金牌，这是她的第六枚奥运金牌。《南德意志报》周五（2月18日）援引她在离开北京后的首次采访中的话说，她将永远不会再去北京。
-
-盖森博格说：“对我来说，这不是一个度假胜地，我也不会去中共国参加世界杯。”她接着补充说：“这与中共病毒大流行没有关系。我去那里不是因为我真的想去中共国，而是因为IOC（国际奥委会）决定在北京举行奥运会。”
-
-**简评：**
-中共一直通过收买世界上“主流媒体”和自己的大外宣占领海外舆论市场，洗脑各国人民。这次北京冬奥会为参赛运动员提供了一绝好的契机，让他们彻底看到中共的真面目，同事也感受下中共的铁拳。娜塔莉·盖森伯格还是聪明人，知道在中共国什么该说，什么不该说，短短的几天，就让她对中共有了一定的认识。如果某一天中共国的金融系统崩溃，不再有多余的资金贿赂国际“主流媒体”，失去媒体的宣传，“锁链女”、张高丽性侵彭帅、杨改兰女士及其孩子们的命运、郑州水灾等等一系列社会事件会将中共的本质很快暴露在世人面前。外国运动员仅仅在中共呆了两周就受够了中共国，想逃离，回到自己的祖国；反观14亿中共国人已被奴役70年，他们又能逃到哪里去。只有认清社会悲剧的真相，干灭共产党，14亿中国人民才能重获自由。
-
-新闻链接：[Germany’s luge champion says she will never return to China](https://www.taiwannews.com.tw/en/news/4450591)
-
-*翻译/简评: kkoto(芬兰大灰狼)*
-
-*校对: Harvey（叶知秋）*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

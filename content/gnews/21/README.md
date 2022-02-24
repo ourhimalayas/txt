@@ -2,35 +2,48 @@
 ---
 
 
-## 美国政府对北溪2号运营公司 实施制裁
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2054825/)
+## 中共下令对所有香港居民进行强制性中共病毒测试
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2055010/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+作者：纽约香草山农场 – 四季
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_1104.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
 
-资料来源：视频截图
 
-德国政府周二搁置了备受争议的北溪 2 号天然气管道。鉴于乌克兰危机的升级，美国现在正在对运营公司及其管理层实施制裁。
 
-在德国政府暂停了德俄天然气管道北溪2号线 的审批程序后，美国现在正在对该运营公司及其高层管理人员实施制裁。这是美国总统乔拜登周三在一份书面声明中宣布的。拜登此前曾出于对德国的考虑而避免采取这样的步骤。美国人的决定是对管道的又一次重大打击。
 
-鉴于俄罗斯在乌克兰冲突中的升级，德国政府周二暂停了该项目，暂时停止了北溪2的审批程序。柏林政府正在对莫斯科承认乌克兰东部的顿涅茨克和卢甘斯克的分离主义地区作出反应。总体而言，由于弗拉基米尔普京总统的行动，西方宣布了对俄罗斯的一系列制裁。这也包括美国的惩罚措施。
+据[网管专家](https://www.thegatewaypundit.com/2022/02/china-strengthens-hold-hong-kong-ordering-compulsory-covid-tests-citizens/)2月22日报道，周二，香港行政长官林郑月娥下令所有香港居民在下个月进行强制性中共病毒测试。香港将设立数百个检测站，检测顺序将根据出生年份决定。
 
-拜登表示，北溪2号 的决定是第一批制裁的另一部分。美国在这个问题上与德国政府密切协调。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Hong-Kong-1.jpg)[图片来源](https://www.thegatewaypundit.com/2022/02/china-strengthens-hold-hong-kong-ordering-compulsory-covid-tests-citizens/)
 
-管道运营公司隶属于俄罗斯国有公司 Gazprom。这条管道的建造是为了绕过乌克兰将天然气从俄罗斯输送到德国。该线路已建成，但尚未投入运营。随着德国政府的大转弯，营业许可已经被搁置。
+所有香港居民都必须接受强制性的Covid-19测试，并将进行三轮测试。全港每天将进行多达100万次测试，而测试结果将被转发到中共国。这表明，中共可能会将香港居民加入到他们迄今为止收集的DNA的报告清单中。
 
-拜登长期以来一直反对 北溪2号 。然而，去年 5 月，这位民主党人签发了特别许可（“总统豁免”），总部位于瑞士的北溪2号运营公司及其德国首席执行官 Matthias Warnig 得以免于美国制裁。 .明确放弃制裁是出于对德国作为盟友的考虑。当时，拜登还表示，美国将不再能够阻止管道建成。
+疫情期间，严苛的强制措施和对商业活动的遏制已经让香港恢复正常的可能性越来越小，香港的繁荣将不复存在。
 
-北溪二号的问题长期以来一直引起德国和美国之间的怨恨和愤怒。为了化解争端，德国在去年7月与美国的联合声明中承诺给予乌克兰更大的支持。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2月.jpg)
 
-鉴于乌克兰危机，局势再次发生根本变化。由于德国政府现在已经主动放弃了北溪 2，拜登不再需要考虑柏林。美国总统在声明中强调了最近与德国在这个问题上的密切协调。他感谢总理奥拉夫·舒尔茨（SPD）“与他密切合作，并继续致力于让俄罗斯对其行为负责。”
+编辑/校对/发稿：小鹿
 
-🔗[美国政府对北溪2号运营公司 实施制裁](https://www.welt.de/politik/ausland/article237085257/Ukraine-US-Regierung-bringt-Sanktionen-gegen-Nord-Stream-2-AG-auf-den-Weg.html)
 
-责任编辑/发布： Shuizhuyu
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 
