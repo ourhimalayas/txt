@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/24/2022 1:48 PM (UTC)`
+
+印媒WION：西方在俄乌问题上的软弱会鼓励中共侵占台湾<br/><br/>Indian WION: The West's weakness in Russia and Ukraine will encourage CCP to annex Taiwan.<br/>
+![img](https://media.gettr.com/group46/getter/2022/02/24/13/682f4384-af91-7888-7798-304004cfa62c/out.jpg)
+
+---
+
 `@miles 2/24/2022 7:23 AM (UTC)`
 
 2/23/2022 Miles Guo: The COVID vaccines may cause 500 million to 1 billion people to die or to have disabilities. I believe that the effective treatments for adverse effects of the COVID vaccines will soon be available. The COVID vaccine disasters have not started yet. Please don’t get the jab or catch the CCP virus. You should not be prevailed by fatigue in the face of the prolonged campaign against the CCP virus and its vaccines.<br/><br/>2/23/2022 文贵直播：疫苗最终可能导致5到10亿人死亡或残疾，文贵相信很快会有针对疫苗的有效的办法。疫苗灾难尚未开始，不要打疫苗也不要染上病毒，千万不要在疲劳战面前被疲劳征服！<br/>
@@ -152,13 +159,6 @@ New Release ✨                                              Shop Now at www.gfa
 
 
 ![img](https://media.gettr.com/group48/getter/2022/02/22/06/0c599c78-6a37-346d-b1e1-8d1930049a30/out.jpg)
-
----
-
-`@miles 2/22/2022 5:59 AM (UTC)`
-
-2/20/2022 Miles Guo: Does anyone in Communist China truly understand the joy of wealth? Money can bring you spiritual satisfaction, and Xi has spiritually satisfied the lonely “Putin the Great” and offered to divide the world with him to fight together against the US  - the CCP would drop the virus to destroy the world’s economy, while Russia would control Europe through oil and natural gas.<br/><br/>2/20/2022 文贵直播：中共国有谁知道钱的感觉吗？钱是精神安慰剂，习给了孤独的普大帝精神安慰剂、并愿意跟他平分天下以共同对付美国 - 中共放毒打垮世界经济，俄罗斯用油气控制欧洲<br/>
-![img](https://media.gettr.com/group36/getter/2022/02/22/05/54427ac4-66e8-696e-2de6-25860e80f903/out.jpg)
 
 ---
 

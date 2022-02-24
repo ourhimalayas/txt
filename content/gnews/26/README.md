@@ -2,33 +2,31 @@
 ---
 
 
-## 法国印太战略报告：台湾是关键伙伴
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2058031/)
+## 秘翻新闻｜俄罗斯总统普京宣传在乌克兰开展军事行动
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2058036/)
 
-#### 【雅典娜快讯】紧贴时代脉搏
+**By:[秘翻新闻](https://gtv.org/broadcast/watch/621725bf08ba8a07b1a28566)**
 
-整理：围剿维尼熊
-编辑：小鱼儿
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-02-下午10.11.59-24.png)
-据大纪元2月24日报道，法国22日于巴黎，举办第一届印太地区合作![图像]()论坛。并在印太战略报告提及台湾，称台湾为经贸策略上的关键伙伴。
+**[2022-02-24](https://gtv.org/broadcast/watch/621725bf08ba8a07b1a28566)**
 
-60多个国家外长出席论坛，其目的为强化欧洲与重要经济战略地区各国的伙伴关系。但据世界报（Le Monde）等法媒分析，另一个秘而不宣的目的，则是制衡中共在此区的势力。世界报说，中国未受邀是因欧洲将其视为“体制上的对手”。
+**今日主题:**
 
-同时，法国外交部也于20日，公布最新印太地区战略报告，台湾数次被提及，且被视为“伙伴”。报告也指出，印太地区因为中共势力崛起造成的领土争议，改变了区域的平衡，也使得战略对等更加复杂，包括美中竞争激化、印中边界对峙、台湾海峡紧张局势等。
+**1. 铁链女最新报告激怒网民 8百校友要求公开信息**
 
-根据会议结束后的新闻稿，各国外长将遵循基于规范、民主价值、多元主义、法治的国际秩序，并遵守国际法与联合国海洋法公约中的航行自由。
+**2. 德国保险公司证实中共疫苗副作用远高于官方报告**
 
-参考新闻：[印太合作会议巴黎落幕 称台湾为关键伙伴](https://www.epochtimes.com/gb/22/2/24/n13600498.htm)
+**3. 英国官员报告中称 中共病毒来自武汉实验室**
 
-发布：tianzhihuan
+**4. 网传蚂蚁集团再遭彻查 中共党内二十大前厮杀激烈**
 
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**5. 美国对建设北溪 2 号管道的公司实施制裁**
 
+🔗GTV鏈接：[https://gtv.org/broadcast/watch/621725bf08ba8a07b1a28566](https://gtv.org/broadcast/watch/621725bf08ba8a07b1a28566)
+
+发布:星星
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMAGE-2022-02-19-171240.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
