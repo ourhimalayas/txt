@@ -2,27 +2,22 @@
 ---
 
 
-## 日本东京樱花团 中文新闻播报第十期
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2058456/)
+## 前苏联3个国家提出将俄罗斯提出SWIFT
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2058584/)
 
-新闻内容摘要：
+撰稿：东京樱花团｜百花李香
+![](https://lh4.googleusercontent.com/FIqfcMuXeJrx-FzAdmiQIdFpqkh5J9-VzCAb08rgH84IK-RmdhLTK-oCi7IMJKJhZntZF47iVR0vwyNEuneWRpcFKMU5dhn9I-NAjAaqgRXr7QO_c4OzpeyXKWLO1MTePzU_wFYw)[*图片来源*](https://www.themoscowtimes.com/2019/05/24/russian-army-introduces-new-military-rank-a65742)
+前苏联的3个国家爱沙尼亚、拉脱维亚和立陶宛现24日发表了一份联合声明。
 
-- 1.美国将微信和阿里巴巴加入盗版市场名单
-- 2.日本国税局对加密资产交易的部分税务规定
-- 3.日本通过中共人权决议
-- 4.美国针对俄罗斯入侵乌克兰的最初制裁将不包括从SWIFT除名
-- 5.乌克兰总统泽连斯基要求制裁俄罗斯
-- 6.美方宣布取消与俄外长会谈
-- 7.日本外相林芳正在国际会议上表明将在台湾问题上与中共国竞争
-- 8.美国前国务卿蓬佩奥3月2日访台
+在联合声明中，他们呼吁对俄罗斯实施制裁，将其排除在全球银行间支付系统SWIFT之外，并呼吁对乌克兰提供必要的支持，包括武器。
 
+俄罗斯的经济影响全球，将俄罗斯排除在SWIFT之外对西方国家会产生巨大影响，目前还不清楚这是否会被列入西方国家未来对俄罗斯的制裁中。
 
-**播报：东京樱花团-嫣嫣123/优妃**/**战友520**/**理想国**
+信息来源：[**旧ソ連のバルト3国 共同声明 “ロシアをスウィフトから排除”呼びかけ**](https://news.yahoo.co.jp/articles/447057b102e03261d959953c004cec634097621a#:~:text=)
 
-**发布： 东京樱花团-eiei**
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/erweima.png)
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

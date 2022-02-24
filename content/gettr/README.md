@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/24/2022 2:19 PM (UTC)`
+
+ 2月24号：尊敬的战友们好．这个视频好恐怖啊，战魔再次打烂世界！这样的残酷的事实很快会在台湾发生……希望所有的台湾的战友们……朋友们……以最快的速度撤离！任何台湾的战友都应该受到全球的农场和战友的全力的协助和帮助。这是新中国联邦文贵发出的，👉👉👉对台湾同胞战友的呐喊……警告‼️
+![img](https://media.gettr.com/group43/getter/2022/02/24/14/b4463f76-051c-6d43-e782-0e94eb2ba8ae/out.jpg)
+
+---
+
 `@miles 2/24/2022 1:48 PM (UTC)`
 
 印媒WION：西方在俄乌问题上的软弱会鼓励中共侵占台湾<br/><br/>Indian WION: The West's weakness in Russia and Ukraine will encourage CCP to annex Taiwan.<br/>
@@ -152,13 +159,6 @@ New Release ✨                                              Shop Now at www.gfa
 
 2/20/2022 Miles Guo: Because the Chinese are too selfish and indifferent, the Bouazizi incident will never occur in Communist China, which is also the result of the Chinese people's lack of faith and morality.<br/><br/>2/20/2022 文贵直播：因为中国人太过的自私和冷漠，在中共国永远不会出现布瓦吉吉事件，这也是中国人缺失信仰和人性道德的结果。<br/>
 ![img](https://media.gettr.com/group50/getter/2022/02/22/06/99078f9d-4f41-0867-5175-0f7626cef795/out.jpg)
-
----
-
-`@miles 2/22/2022 6:01 AM (UTC)`
-
-
-![img](https://media.gettr.com/group48/getter/2022/02/22/06/0c599c78-6a37-346d-b1e1-8d1930049a30/out.jpg)
 
 ---
 

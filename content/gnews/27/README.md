@@ -2,33 +2,36 @@
 ---
 
 
-## 法国印太战略报告：台湾是关键伙伴
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2058031/)
+## 四处乱象丛生 中共大厦将倾
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2058460/)
 
-#### 【雅典娜快讯】紧贴时代脉搏
+撰稿：纽约磐石农场—在远方
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-45.png)
+2月19日，郭文贵先生盖特发布视频称，当前各种乱象丛生，充分表明中共即将灭亡。 郭先生说，中共灭亡前到处弥漫着恐惧的情绪。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2261.png)
 
-整理：围剿维尼熊
-编辑：小鱼儿
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-02-下午10.11.59-24.png)
-据大纪元2月24日报道，法国22日于巴黎，举办第一届印太地区合作![图像]()论坛。并在印太战略报告提及台湾，称台湾为经贸策略上的关键伙伴。
 
-60多个国家外长出席论坛，其目的为强化欧洲与重要经济战略地区各国的伙伴关系。但据世界报（Le Monde）等法媒分析，另一个秘而不宣的目的，则是制衡中共在此区的势力。世界报说，中国未受邀是因欧洲将其视为“体制上的对手”。
+还有许多被洗脑的，冷漠无知自私的看客，认为事不关己。如果一个国家和民族，对上天、自然、人类和真理全部亵渎，并与一切为敌的时候，自己也必然会沦落为与魔鬼为伍。
 
-同时，法国外交部也于20日，公布最新印太地区战略报告，台湾数次被提及，且被视为“伙伴”。报告也指出，印太地区因为中共势力崛起造成的领土争议，改变了区域的平衡，也使得战略对等更加复杂，包括美中竞争激化、印中边界对峙、台湾海峡紧张局势等。
+针对美国即将对共产党采取的行动，中共急忙跪求美国，乞求美国能派遣一位亲共的大使，妄图再使用蓝金黄手段，推迟灭亡时刻的到来，这是中共一贯使用的卑鄙黑暗的行事风格。
 
-根据会议结束后的新闻稿，各国外长将遵循基于规范、民主价值、多元主义、法治的国际秩序，并遵守国际法与联合国海洋法公约中的航行自由。
+郭先生告诉国外友人，在发生锁链女惨剧的中共国江苏省徐州丰县，法院竟然有“被绑架的女性不能离婚”的荒唐决定。
 
-参考新闻：[印太合作会议巴黎落幕 称台湾为关键伙伴](https://www.epochtimes.com/gb/22/2/24/n13600498.htm)
+这就是邪恶的中共，却还告诉民众爹亲娘亲不如党亲。还有一些为共产党洗地和歌功颂德的无耻之徒，整个大陆已经完全没有天理存在。
 
-发布：tianzhihuan
+新闻链接：[2/19/2022 Miles Guo’s GETTR](https://www.gettr.com/post/pvm91w6dde)
 
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-44.jpg)
 
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-45.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

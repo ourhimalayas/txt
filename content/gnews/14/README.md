@@ -2,12 +2,24 @@
 ---
 
 
-## 为了给男孩输入含疫苗的血液，法庭剥夺了父母的监护权
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2058497/)
+## 美前国务卿蓬佩奥即将访台
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2058640/)
 
-02/17/2022 战斗室：为了让孩子可以手术，可以输入含有疫苗的血液，意大利的行政法庭裁定：“取消小男孩父母的监护人资格，监护权转给其他人“。
+加拿大温哥华杨帆农场 枫叶快讯
 
-By:【秘密翻译组-精翻组 G-Translators/Elite Team】
+采编：风云小哥             编译撰稿：自由法兰西
+![A portrait of former US Secretary of State Mike Pompeo in a dark suit and white shirt](https://www.aljazeera.com/wp-content/uploads/2022/02/AP21308597883933-1.jpg?resize=770%2C513)
+据台湾媒体《半岛新闻》2月21日报道，台湾政府当天宣称，美前国务卿蓬佩奥将于3月3日至5日访问台湾。防台期间将与总统蔡英文会晤并发表演讲。报道同时盛赞蓬佩奥在任职期间为促进台美关系做出的杰出贡献。
+
+报道称，蓬佩奥因在任期间，不仅立法将中共定义为种族灭绝和反人类罪政权，而且还宣布结束已持续几十年的美台官方外交禁令，而遭到中共当局的强烈诋毁和攻击。
+
+自总统蔡英文2016年上任以来，中共不断加大对台湾的军事和外交压力以及战争威胁力度。持续的战争挑衅使得台海局势一促即发。据悉，此次彭培奥的到访，除了明确表达美方将坚定支持台湾保卫自己不受中共涂炭的根本立场，同时也为将来参加总统竞选奠定外交基础。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：青青
+
+新闻来源： [https://www.aljazeera.com/news/2022/2/21/former-us-secretary-of-state-mike-pompeo-to-visit-taiwan](https://www.aljazeera.com/news/2022/2/21/former-us-secretary-of-state-mike-pompeo-to-visit-taiwan)
 
  
 
