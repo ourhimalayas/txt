@@ -2,43 +2,27 @@
 ---
 
 
-## 加拿大法院判定中共国侨办为间谍组织
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2057862/)
+## COVID-19 最新情报｜英格兰数据 8-10%儿童接种疫苗后缺课一次
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2057685/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+**撰文｜疫情关注组 / 发布时间｜24/02/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Movie-Studio-1.png)**更多资讯请关注官方盖特（Please follow our Gettr：**[**https://gettr.com/post/pl6k0218bf**](https://gettr.com/post/pl6k0218bf)**)**
+英媒[《THE EXPOSE》](https://dailyexpose.uk/2022/02/23/800k-kids-missed-school-adverse-reaction-covid-jab/)23日报导，英格兰政府在去年向12-15岁的儿童提供新冠疫苗接种，英格兰首席医疗官 Chris Whitty向JCVI\*(注1)表示，不建议让12岁以上的儿童接种新冠疫苗，其理由是统计数据显示，新冠疫苗不能预防感染或阻断传播。然而被以接种新冠疫苗的益处略大于已知的潜在危害为由驳回。Chris Whitty不建议12岁以上儿童接种疫苗的理由是，据统计数据，新冠疫苗不能预防感染或阻断传播。。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-24-下午4.12.08.png)UK Health Security Agency:[COVID-19 vaccine surveillance report Week 7](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1055620/Vaccine_surveillance_report_-_week_7.pdf)
+上图数据为2022年1月23日至2月13日期间，各年龄段每十万人中“未接种疫苗(蓝色)、接种三剂疫苗(红色)”新冠确诊的数量。由图表可知，接种三剂疫苗都是高于未接种疫苗的。
 
-整理：Eileen（围剿维尼熊）
-编辑：Mttfly
+此外，JCVI在发表意见当中写道，5-11岁儿童在接种新冠疫苗后，大约有8-10%的儿童至少缺课一天。在美国，此年龄段接种新冠疫苗人数超过800万名，若依照JCVI的统计数据将会有近80万名儿童因疫苗不良反应而被迫缺课。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/9-31.png)图片来源：雅典娜设计组&technadu
+韩国，近日确诊人数快速增加，政府表示正在考虑将5-11岁儿童纳入接种对象，但尚未有定论。韩国政府统计数据显示，21日新增9万9573例确诊中，0-9岁与10-19岁合计占比达到三成，且每10万名确诊个案中0-9岁及10-19岁的比例高出其他年龄层许多。对比纽西兰官方统计数据（下图），0-19岁区间的确诊率总和约为33%，与韩国政府数据相近。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-24-下午4.46.38.png)[來源](https://www.health.govt.nz/covid-19-novel-coronavirus/covid-19-data-and-statistics/covid-19-case-demographics#vaccinations-details)
+**有趣的是，即便韩国政府统计上以0-9、10-19为区间段，但政府仍考虑开放5-11岁儿童接种新冠疫苗**。据报导，日本韩国皆是跟随美国政策，宣布开始为5-11岁儿童接种疫苗。
+
+新加坡，早在去年便宣布预计12月底为5-11岁族群接种疫苗，预计涵盖30万名儿童，截至1月31日已经接种了23万8253剂。照JCVI的相关数据，可能会有3万名儿童接种后出现缺课情形。台湾政府则于1月13日宣布，5-11岁儿童有望在下半年接种新冠疫苗。
+
+- 註1（Joint Committee on Vaccination and Immunisation，可译为疫苗及免疫专家小组））
 
 
-根据大纪元2月24日讯，加拿大联邦法院今年1月以中共国国务院侨务办公室（OCAO）涉嫌从事间谍活动为由，驳回了2名中国公民的移民上诉。
-
-根据法院的裁决书，联邦法官凡妮莎‧罗切斯特（Vanessa Rochester）认为，有合理的理由相信，侨办从事了“违背加拿大利益”的间谍活动。
-
-据《国家邮报》报导，前加拿大驻北京外交官、麦克唐纳·劳里埃研究所（MLI）高级研究员伯顿（Charles Burton）说，加拿大安全情报局（CSIS）和加拿大骑警都曾就此类中共组织的干预活动向政府提出建议，但政客们倾向于压制这些信息，因为他们担心会损害加中贸易。
-
-另外，被侨办针对的人往往都非常害怕，不但担心自己，也担心他们在中国的亲人。他们都不敢公开说话。
-
-中共政权把所有居住在其它国家的华人都称为华侨，即使这些华人的家庭已经在中国境外延续了几代人。
-
-加拿大移民官员的决定及法官的裁决，在很大程度上是基于亚洲新西兰基金会（ANZF）高级顾问杜建华（James Jiann Hua To）的研究。
-
-杜建华在其研究报告中写道，虽然侨办表面上声称要为侨民提供支持，其目标实际上是为了“合法化及保护”中共的权力，提升其国际形象并发挥其影响力。为达到此目标，侨办收集海外华人的情报并试图影响他们。
-
-参考链接：[加拿大法院创先例 中共侨办定为间谍组织](https://www.epochtimes.com/gb/22/2/23/n13600139.htm)
-
-关联阅读：[加拿大政府报告：中共国实施广泛的间谍和操纵活动](https://gnews.org/zh-hans/1926639/)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+来源｜ [中央社](https://www.cna.com.tw/news/aopl/202202220259.aspx)、[光明日報](https://guangming.com.my/%E6%96%B0%E5%8A%A0%E5%9D%A110%E5%90%8D%E5%85%92%E7%AB%A5-%E6%89%93%E7%96%AB%E8%8B%97%E5%BE%8C%E7%8F%BE%E5%9A%B4%E9%87%8D%E4%B8%8D%E8%89%AF%E5%8F%8D%E6%87%89)、[《THE EXPOSE》](https://dailyexpose.uk/2022/02/23/800k-kids-missed-school-adverse-reaction-covid-jab/)、[New Zealand Ministry of Health](https://www.health.govt.nz/covid-19-novel-coronavirus/covid-19-data-and-statistics/covid-19-case-demographics#vaccinations-details)
 
  
 
