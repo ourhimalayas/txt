@@ -2,31 +2,55 @@
 ---
 
 
-## 有声|欧盟六国派专家帮助乌克兰应对网络威胁
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2059783/)
+## 专家为不需要的第四针COVID疫苗做准备
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2060164/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-据[ONA网站](https://www.oann.com/six-eu-countries-send-experts-to-help-ukraine-deal-with-cyber-threats/)2月22日援引路透社报道，立陶宛国防部副部长周二表示，在俄罗斯正式承认乌克兰东部的两个分离地区后，应乌克兰周一提出的请求，六个欧盟国家——立陶宛、荷兰、波兰、爱沙尼亚、罗马尼亚、克罗地亚将向乌克兰派出一个网络安全专家小组，帮助其应对网络威胁。
+翻译：**Lulumi**
 
-美国和英国周五均表示，俄罗斯军事黑客是一连串分布式拒绝服务（DDoS）攻击的幕后黑手，这些攻击使乌克兰银行和政府网站短暂瘫痪。英国国防部长本·华莱士周一表示，英国的网络专家正在与乌克兰合作，以帮助保护其免受俄罗斯活动的影响。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/下载-6-edited.jpg)图片来源：bbc.com
 
+随着中共病毒omicron变体大流行病的感染人数不断下降，联邦卫生官员和医学专家正在为可能需要第四针COVID-19疫苗做准备，但许多人不同意是否需要再来一针强化剂。
 
+此外，拜登政府的一位高级官员告诉Axios，联邦政府正计划测试结合多种COVID毒株的新疫苗，以确定哪种疫苗能提供最广泛的覆盖面，希望能有一针准备好对抗未来毒株。
 
-文字版原文：[欧盟六国派专家帮助乌克兰应对网络威胁](https://gnews.org/zh-hans/2050489/)
+总统的首席医疗顾问兼国家过敏和传染病研究所所长安东尼·福奇博士最近告诉记者，对第四针辉瑞或莫德纳mRNA疫苗或第三针强生疫苗的要求，“正在非常仔细地进行实时监测，如果需要，将根据数据的发展情况更新建议。”
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+康奈尔大学病毒学家约翰·摩尔评论说，即使辉瑞公司和莫德纳公司正在测试专门针对高传染性的Omicron变体的疫苗，没有得过病或没有接种过疫苗的人也不可能打针，如果他们打了，“他们产生的抗体反应将相当狭窄”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+初步结果还显示，正在测试的Omicron疫苗并不像针对原始COVID菌株的疫苗那样有效，并且可能不会像原始疫苗那样对未来的变种提供更多好处。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+斯克里普斯研究公司执行副总裁埃里克·托波尔说，如果国家已经控制了COVID，那么第四次强化针的问题可能不会发生。
+
+然而，托波尔警告说，第三针对Omicron有效性是因为幸运，但如果有未来的毒株，这还不够好，并补充说：“这不是一个赌场。我们必须做得更好”。
+
+据NPR报道，以色列最近的一项研究表明，与三针相比，第四针疫苗不可能提高保护效果。
+
+第三针，也就是加强针，会使抗体迅速飙升，但在一个月后又开始下降，这意味着大约三个月后，保护力下降到50%左右。
+
+以色列的研究表明，与只打三针相比，第四针并没有提供多少额外的保护力。
+
+甚至从长远来看，“第三针、第四针、第五针都不能阻止感染”，该研究的主要作者、以色列特尔哈舒默区的Sheba医疗中心的传染病专家吉利·雷耶夫·约凯博士这样评论。
+
+在这项研究中，约凯博士和她的团队为300名医护人员注射了第四针辉瑞或莫德纳疫苗，然后比较他们的感染几率。
+
+测量了第四针之前和之后医护人员血液中的抗体水平，但是即使第四针将他们的抗体水平提高到第三针之后观察到的水平，额外的剂量也只能将感染风险降低10%到30%。
+
+此外，打了第四针的人中有20%感染了COVID，而没有打第四针的医院工作人员中只有25%感染了。
+
+该研究显示，额外的加强针似乎也没有激活清除未来感染所需的T细胞。
+
+同时，美国食品和药物管理局正在等待决定是否推荐另一针加强剂，因为“我们根本没有足够的数据知道这是一件好事，”美国食品和药物管理局的彼得·马科斯博士本月早些时候告诉《纽约时报》。
+
+**参考资料：**[newsmax][Experts Preparing for Fourth COVID Shot, Don’t Agree If It’s Needed](https://www.newsmax.com/newsfront/covid-19-booster-pandemic-israel/2022/02/23/id/1058079/)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-4.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

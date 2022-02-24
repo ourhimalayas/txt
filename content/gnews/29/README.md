@@ -2,28 +2,31 @@
 ---
 
 
-## 有声|俄罗斯全面出兵攻乌 中共国民却成待宰羔羊
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2059943/)
+## 文贵视角224：共军会瞬间到达台湾，台湾战友准备撤离
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2060174/)
 
-配音：香草山巡管部– 文凯琳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-墙内媒体2月24日报道，乌克兰外长称，俄罗斯总统普京已“对乌克兰发动了全面入侵”。
+撰稿：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-24-at-19.56.45-1.png)
+图片来源：直播截图
 
-据了解，当地时间24日凌晨5时，乌克兰的军事设施遭到导弹袭击，俄军登陆行动开始于黑海和亚速海。目前，俄军已突破哈尔科夫州界，哈尔科夫乌军指挥所遭到火箭弹袭击。目前，乌克兰管理部门宣布关闭全国领空，乌克兰基辅机场正在疏散。
+俄罗斯突然入侵乌克兰，全世界都看到了现代战争的迅猛和残酷。整个世界都在瑟瑟发抖。郭文贵先生就如我们的定海神针，他说：没有过不去的坎儿，没有跨不去的战争，人生中没有跨不过去的灾难，但是人不要跪下来，跪下来，即使你活着，还不如死了。
 
-文字版原文：[俄罗斯全面出兵攻乌 中共国民却成待宰羔羊](https://gnews.org/zh-hans/2056664/)
+世界经济一定会崩溃，但是世界却找了个崩溃的理由，不是共产党病毒病毒也不是疫苗，而是乌克兰战争。
 
-音频处理/发稿：Daxia
+郭先生说，2022年是人类上有史以来的，最黑暗的一年，经济将崩溃，人心会受到最大的煎熬，人类将受到上天的惩罚，因为人类太贪婪了，纵容了共产党，培养了五大邪恶帝国。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+他告诫战友们，发战争财的，发投机财的、发快钱的，发赌博财的，一定会死无葬身之地，因为老天爷会睁眼睛的，带着人血的馒头，带着人血的钻石，带着人血的金条，一定会带走你的鲜血。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+郭先生严肃警告：整个共产党的军队，会以无法想象的方式瞬间就会到达台湾！共产党疯狂到要拿台湾2300万人的命，来铸就习太阳和共产党再多活20年。
+
+他牵挂着所有的台湾的亲人们，希望他们能撤就撤，号召全球所有的农场的兄弟姐妹们要像对待兄弟姐妹一样对待我们的台湾战友同胞，危难之时，把心拿出来帮他们，今天联盟委员会招开大会，商讨一致的对策。
+
+任何情况下郭先生和战友们都会和台湾的战友同胞们坚决的站在一起，更加坚定的，尽快地消灭共产党。
+
+来源：
+
+[郭文贵先生2.24盖特直播](https://gettr.com/post/pwl3b20ef8)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
