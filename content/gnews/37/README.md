@@ -2,16 +2,18 @@
 ---
 
 
-## 中日财经爆|莫斯科证券交易所暂停所有交易
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2057130/)
+## 中日财经爆|日本百货公司1月份销售额大涨15.6%
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2057180/)
 
 撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2217.png)[图片来源](https://www.coindesk.com/markets/2018/06/08/moscow-stock-exchange-to-publish-ico-data/)
-俄罗斯莫斯科证券交易所周三（2月24日）宣布，在总统弗拉基米尔·普京宣布开始在乌克兰东部的军事行动后，该交易所已暂时停止所有金融产品的交易，包括股票。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2220.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.japan-guide.com%2Fg20%2F2072_03.jpg&amp;imgrefurl=https%3A%2F%2Fwww.japan-guide.com%2Fe%2Fe2072.html&amp;tbnid=eKrL5_n6yeSCUM&amp;vet=12ahUKEwi0tv2G7pf2AhUoHKYKHUxCATUQMygCegUIARCxAQ..i&amp;docid=xwLgDB_QiZOwTM&amp;w=8)
+日本百货公司协会2月24日宣布，全国百货公司1月份的销售额比上年同期增长15.6%，达到约3751亿日元。
 
-该交易所在其网站上说，它将暂停所有市场的交易，直到进一步通知。
+这是连续第四个月的同比增长，去年因紧急状态迫使百货公司缩短营业时间，致使营业额下降，由于气温下降，大衣等冬季服装的销售也很强劲。
 
-消息来源：[モスクワ証券取引所、全取引を一時停止](https://www.yomiuri.co.jp/economy/20220224-OYT1T50169/)
+但是与2020年1月相比，销售额还是下降了18.8%，并没有恢复到中共病毒（新冠）疫情前的水平。
+
+消息来源：[１月の百貨店売上高、冬物好調で１５・６％増…感染拡大前の水準には戻らず](https://www.yomiuri.co.jp/economy/20220224-OYT1T50159/)
 
 *编辑：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/平安卿卿*

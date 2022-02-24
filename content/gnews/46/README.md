@@ -2,23 +2,32 @@
 ---
 
 
-## 突发｜战争爆发？普京授权出动轰炸机 乌克兰首都传出爆炸声 （持续更新）
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2056356/)
+## 美国司法部任命国家加密货币执法团队负责人
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2056538/)
 
-**撰文/ 港台前线｜发布日期/ 24/02/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/普京授權出動轟炸機-烏克蘭首都傳出爆炸聲-1.jpg)
-**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
+作者：银河系农场—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月17日，美国司法部任命Eun Young Choi担任国家加密货币执法小组NCRET的第一位团队负责人。
+![美國司法部任命国家加密貨幣執法團隊負責人- 華爾街日報](https://images.wsj.net/im-488289?width=860&amp;height=573)WSJ
+据悉NCET成立的目的是应对非法滥用加密货币和数字资产带来的挑战，其团队成员包括具有加密货币、网络犯罪、洗钱和没收背景的检察官。NCET将特别关注数字货币兑换、基础设施提供商和便利数字货币犯罪的实体。
 
-**最新消息指，俄罗斯空军出动战略轰炸机已从克里米亚进入乌克兰，顿涅茨克地区北部发生至少4次巨大爆炸，首都基辅亦传出爆炸声。**
+Choi主任说，NCET一直站在调查和起诉涉及数字货币的犯罪的前列，不仅在数字资产技术的增长和发展方面发挥关键作用，又加快和扩大打击各种非法滥用数字资产的行为。
 
-* * *
+据悉Choi主任曾起诉过复杂的欺诈和洗钱犯罪等，特别关注网络入侵、数字货币、暗网和国家安全调查。她曾成功地将暗网市场丝绸之路的创始人兼首席执行官Ross Ulbricht进行了上诉。
 
-俄罗斯总统普京今日（24日）发表电视讲话，宣布授权俄军在乌克兰展开军事行动。普京声称，俄罗斯的目的并非占领乌克兰，而只是保护乌克兰东部居民，又指攻击是为了“将乌克兰去军事化、去纳粹化”。他还警告企图干预俄罗斯行动的其他国家，会有前所未见的后果。
+参考链接：[Justice Department Announces First Director of National Cryptocurrency Enforcement Team](https://www.justice.gov/opa/pr/justice-department-announces-first-director-national-cryptocurrency-enforcement-team)
 
-美国总统拜登回应称，普京已经挥兵进入乌克兰东部地区，显示他选择要开始一场有预谋的战争，美国会对俄罗斯采取进一步措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-來源｜[CNBC](https://www.cnbc.com/2022/02/23/putin-says-russia-open-to-diplomacy-as-moscow-hit-with-fresh-sanctions.html)、[AJ](https://www.aljazeera.com/news/2022/2/23/ukraine-declares-state-of-emergency-amid-fears-of-invasion-liveblog)
+编辑/校正/发稿：呼吸的雾霾（文小呼吸）
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

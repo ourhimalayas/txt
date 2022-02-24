@@ -2,22 +2,29 @@
 ---
 
 
-## 中日财经爆|日经指数15个月来首次跌破26000点
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2057143/)
+## 俄军已登陆乌克兰南部海港城市敖德萨
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2057234/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2218.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fd1e00ek4ebabms.cloudfront.net%2Fproduction%2F89831fe6-6449-4e6c-a656-67188092c712.jpg&amp;imgrefurl=https%3A%2F%2Fwww.ft.com%2Fcontent%2F5f5713e7-1dc1-4910-9385-03122d8c60d3&amp;tbnid=ZCePQwcUWkG3MM&amp;vet=12ahUKE)
-节后24日的东京证券交易所，日经225指数收于25970.82点，比前一个交易日（22日）下跌478.79点，自2020年11月以来约一年零三个月首次跌破26000点。
+**作者:  **青衣
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-100.jpg)
+图为 P-8A资料图（图片来自网络）
 
-24日当天俄罗斯总统弗拉基米尔-普京宣布在乌克兰东部发起军事行动，这促使投资者采取规避风险的立场，扩大卖盘。 日经225指数一度下跌超过600日元， 亚洲主要股指也全面大幅下跌。
+2月24日，俄乌战争全面打响。乌克兰政府证实，俄军已登陆乌克兰国境内的海港城市敖德萨。
 
-衡量东京证券交易所整个第一部分价格变动的东京股票价格指数（TOPIX）下跌23.50点，至1857.58点。
+据《阿波罗新闻网》2月24日报道，乌克兰与俄罗斯的战争正式拉开序幕。俄军目前已登陆乌克兰国境内南部海港城市敖德萨（Odessa）。
 
-消息来源：[日経平均終値も２万６０００円割れ…１年３か月ぶり、リスク回避で売り膨らむ](https://www.yomiuri.co.jp/economy/20220224-OYT1T50165/)
+乌克兰官方指出，俄军稍早时已长驱直入越过两国边境，登陆南方海港城市敖德萨（Odessa）。乌克兰内政部长格拉什琴科（Anton Gerashchenko）向媒体证实了此事，并指出俄军目前正越过哈尔科夫（Kharkiv）。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-1.png)
+格拉什琴科还表示，乌克兰聂伯城市长菲拉托夫（Borys Filatov）向他汇报称，该城市已听到数次爆炸声。
+
+乌克兰外长库列巴也透过推特向世界传达信息称：“普京稍早时已大规模派遣军力入侵乌克兰。平和的乌克兰城市遭到打击，这是侵略战争！”不过，库列巴强调，乌克兰会自卫并赢得胜利。他同时呼吁全世界立即采取行动阻止俄罗斯的侵略行动。
+
+新闻链接：
+
+[https://www.aboluowang.com/2022/0224/1712878.html?utm\_source=dlvr.it&utm\_medium=twitter](https://www.aboluowang.com/2022/0224/1712878.html?utm_source=dlvr.it&amp;utm_medium=twitter)
+
+* * *
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
