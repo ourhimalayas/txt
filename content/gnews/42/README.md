@@ -2,20 +2,25 @@
 ---
 
 
-## 韩国批准辉瑞中共病毒疫苗用于5-11岁儿童
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2056856/)
+## 有声｜乌克兰危机将影响全球经济
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2057002/)
 
-撰稿：东京樱花团/asket
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2211.png)[**图片来源**](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fcimg.cnyes.cool%2Fprod%2Fnews%2F4674876%2Fl%2Fe92fe83bb0905d26b1315d4c3364b3ed.jpg&amp;imgrefurl=https%3A%2F%2Fm.cnyes.com%2Fnews%2Fid%2F4674876&amp;tbnid=Z9Cze4v1eCAmfM&amp;vet=12ahUKEwi3usv3zpf2AhUpEqYKHUS9Bc0QMygPegUIARCgAQ..i&amp;docid=iCOc8I0jCMiQOM&amp;w=640&amp;h=360&amp;q=%E8%BE%89%E7%91%9E%E7%97%85%E6%AF%92%E7%96%AB%E8%8B%97&amp;ved=2ahUKEwi3usv3zpf2AhUpEqYKHUS9Bc0QMygPegUIARCgAQ)
-** **路透社首尔消息，韩国食品药品部周三表示，韩国已经批准辉瑞公司的中共病毒（新冠病毒COVID-19）疫苗，用于5-11岁的儿童。
+**By:秘翻新闻**
 
-该部在一份声明中说，儿童应该接种常规剂量的三分之一，两次，间隔三周。免疫力明显下降的儿童可以在四周后接受强化治疗。
+**2022-02-24**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-111.png)**图片源自:原文**
+[纽约时报中文网](https://cn.nytimes.com/business/20220223/ukraine-russia-economy/)于2月23日报道，全球经济将因俄乌之间的武装冲突走上一条不可预测的道路。俄罗斯军队的直接攻击可能会导致能源和粮食价格飙升，加剧通胀担忧。
 
-信息来源：** **[**S.Korea approves Pfizer COVID-19 vaccine for children aged 5-11**](https://www.fijitimes.com/s-korea-approves-pfizer-covid-19-vaccine-for-children-aged-5-11/)
+长期以来被称为欧洲粮仓的乌克兰，40%以上的小麦和玉米将出口到中东或非洲，现在人们担心战争会加剧粮食短缺和价格上涨，进而引发社会动荡。例如，黎巴嫩一半以上的小麦来自乌克兰，同时乌克兰也是世界上最大的葵花籽油和菜籽油等种子油的出口国。并且俄罗斯是能源出口大国，欧洲近40%的天然气和25%的石油都来自俄罗斯。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+若两国爆发全面战争很可能会再次冲击已经飙升的粮食和能源价格。
+
+（ 秘翻新闻 清风先生 编译报道 ）
+
+发布:星星
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
