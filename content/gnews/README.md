@@ -15,55 +15,55 @@
 
 ---
 
-### [七哥金句：战友们把眼泪都变成子弹](/content/gnews/1/README.md)
+### [七哥金句：世界的政治是利益第一](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [七哥金句：中国人的悲剧](/content/gnews/2/README.md)
+### [七哥金句：和敌人战斗的干粮](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [共产主义者是最善于出卖自己的盟友的](/content/gnews/3/README.md)
+### [七哥金句：战友们把眼泪都变成子弹](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥金句：中国人的悲剧](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [共产主义者是最善于出卖自己的盟友的](/content/gnews/5/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [解释：COVID、HIV、疫苗和疫苗艾滋VAIDS（1/3）](/content/gnews/4/README.md)
+### [解释：COVID、HIV、疫苗和疫苗艾滋VAIDS（1/3）](/content/gnews/6/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥金句：未来三，五年你待错地方就会是个灾难](/content/gnews/5/README.md)
+### [七哥金句：未来三，五年你待错地方就会是个灾难](/content/gnews/7/README.md)
  ` 雅典娜GNotes`
 
-### [美1.7万名医学专家呼吁结束国家紧急状态，恢复宪政民主](/content/gnews/6/README.md)
+### [美1.7万名医学专家呼吁结束国家紧急状态，恢复宪政民主](/content/gnews/8/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中国卖毒粉的和抓毒粉的都是一伙人](/content/gnews/7/README.md)
+### [中国卖毒粉的和抓毒粉的都是一伙人](/content/gnews/9/README.md)
  ` 雅典娜GNotes`
 
-### [今日盖特大V推荐 — 瑞安·福尼尔（Ryan Fournier）](/content/gnews/8/README.md)
+### [今日盖特大V推荐 — 瑞安·福尼尔（Ryan Fournier）](/content/gnews/10/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美前国务卿蓬佩奥下周访台会见台湾总统](/content/gnews/9/README.md)
+### [拜登谴责普京入侵乌克兰，宣布对俄罗斯实施严厉制裁](/content/gnews/11/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [美前国务卿蓬佩奥下周访台会见台湾总统](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [农民无法活](/content/gnews/10/README.md)
+### [农民无法活](/content/gnews/13/README.md)
  ` 雅典娜GNotes`
 
-### [中共全部造的假](/content/gnews/11/README.md)
+### [中共全部造的假](/content/gnews/14/README.md)
  ` 雅典娜GNotes`
 
-### [战友不要轻易外出，不要染上病毒](/content/gnews/12/README.md)
+### [战友不要轻易外出，不要染上病毒](/content/gnews/15/README.md)
  ` 雅典娜GNotes`
 
-### [特鲁多镇压自由车队掩盖疫苗真相](/content/gnews/13/README.md)
+### [特鲁多镇压自由车队掩盖疫苗真相](/content/gnews/16/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [鸡尾酒疗法，可能会出现奇迹](/content/gnews/14/README.md)
- ` 雅典娜GNotes`
-
-### [乌克兰事件背后的目的](/content/gnews/15/README.md)
- ` 雅典娜GNotes`
-
-### [数字经济时代，美国成最大赢家](/content/gnews/16/README.md)
- ` 雅典娜GNotes`
-
-### [澳大利亚的政治幼稚](/content/gnews/17/README.md)
+### [鸡尾酒疗法，可能会出现奇迹](/content/gnews/17/README.md)
  ` 雅典娜GNotes`
 
 ### [德国雪橇冠军说她永远不会再来中共国](/content/gnews/18/README.md)

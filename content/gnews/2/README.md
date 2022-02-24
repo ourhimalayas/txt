@@ -2,10 +2,10 @@
 ---
 
 
-## 七哥金句：中国人的悲剧
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2055291/)
+## 七哥金句：和敌人战斗的干粮
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2055329/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句-2--scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/七哥金句-4--scaled.jpg)
 整理：雅典娜农场
 发布：枫叶红了
 
