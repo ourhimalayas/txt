@@ -2,28 +2,37 @@
 ---
 
 
-## 新中国联邦将在今年底迎来各项重大利好
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2056480/)
+## 俄罗斯全面出兵攻乌 中共国民却成待宰羔羊
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2056664/)
 
-加拿大温哥华扬帆农场  硫酸羟氯喹64
+作者:纽约香草山教育部-Noemi
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+墙内媒体2月24日报道，乌克兰外长称，俄罗斯总统普京已“对乌克兰发动了全面入侵”。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/a-15-edited.jpg)图片来源：GTV
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot_3-6.png)
+
+据了解，当地时间24日凌晨5时，乌克兰的军事设施遭到导弹袭击，俄军登陆行动开始于黑海和亚速海。目前，俄军已突破哈尔科夫州界，哈尔科夫乌军指挥所遭到火箭弹袭击。目前，乌克兰管理部门宣布关闭全国领空，乌克兰基辅机场正在疏散。
+
+目前，全球股市皆因俄乌战争受到重挫，而黄金、原油均已暴涨。香港恒生指数已暴跌3%，日韩跌逾2%，美国三大股指期货均跌超2%，欧洲Stoxx 600指数期货亦跌超3%。10年期美债收益率下行跌破1.90%关口。黄金跳涨至20美元，布伦特原油8年来首次突破100美元。
+
+此前，郭文贵先生就曾在大直播中指出，俄乌战争将导致全球经济发生动荡，但最终受害最大的将会是中共国和无数中共民众。郭先生说，俄乌战争一旦全面开打，势必引起全球大宗商品价格暴增，这对于能源全靠进口的中共国经济来说无疑是雪上加霜。
+
+同时，一旦中共乘乱攻打台湾，与俄罗斯形成狼狈呼应之势，美国一定会从军事上出手拯救世界，并会对中共国出台最严厉的全面制裁。届时，中共必败，但中共国的所有无辜民众将彻底沦为邪恶共党的人质并为这一切买单。
+
+【新闻来源】[https://wallstreetcn.com/articles/3652716 https://wallstreetcn.com/articles/3652710](https://wallstreetcn.com/articles/3652716%20https://wallstreetcn.com/articles/3652710)
+
+- 审核/编辑/发稿:qiutian（邱甜）
 
 
-据2月23日文贵大直播消息报道，随着中共政权及其虚空经济崩溃所导致的世界金融危机以及喜联储各项功能届时的日臻完善，[新中国联邦]将在今年底迎来自其成立后最大的利好时期。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-7.png)
 
-报道指出，乌克兰目前的局势不仅清晰表明欧元即将崩盘的脆弱性，也体现出美国最核心利益依然还在欧洲，并因此会逐渐将其大部分高端生产力转移致欧洲，其次才会是日本。而欧美联盟的深厚渊源必将把中俄两国剔除在外。
-
-同时，欧美还掌控着世界银行货币组织，世贸组织和联合国等的话语权。而华尔街影子银行的本质就是极少数沼泽地参与的，兼具高风险性和高回报性的对冲基金。
-
-2022年底，中共政权及其经济全盘崩溃所造成的多米诺骨牌效应，必将祸及西方金融体系，并导致华尔街影子银行及其各大基金的彻底破产。届时，来自全球的财富和避险资金都将无毫无选择地汇入羽翼丰满的喜联储。因此，新中国联邦将在今年底喜迎各项前所未及的重大利好。
-
-* * *
-
-消息来源：https://gettr.com/streaming/pwbjub06c5
-
-编辑撰稿，发稿：硫酸羟氯喹64
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,36 +2,25 @@
 ---
 
 
-## 俄罗斯正式对乌克兰全面开战！
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2056912/)
+## 美国参议员警告：俄罗斯、中国和伊朗可能引发第三次世界大战
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2056985/)
 
-**作者:  **青衣
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-357.jpg)
-图为 P-8A资料图（图片来自网络）
+撰稿：小湫
 
-俄乌战争正式打响！克里姆林宫毫无预警地紧急直播，俄罗斯总统普京发表电视讲话，在全世界面前正式宣布对乌克兰政府开战。
+南卡罗来纳州共和党参议员林赛.格雷厄姆(Lindsey Graham)， 他周三在《杰西·沃特斯黄金时间》(Jesse Watters Primetime)节目上对主持人杰西•沃特斯(Jesse Watters)说，如果俄罗斯总统普京、中国和伊朗背离他们各自的目标，结果将是第三次世界大战。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/普京-2.png)图片来自网络
+格雷厄姆说，很明显普京想要的不仅仅是乌克兰，而是在肢解一个民主国家，并将接管这个国家。中国正在关注俄罗斯的举动，意图拿下台湾，台湾基本上生产了全世界所有的芯片。伊朗的哈梅内伊将拥有核武器，以实现他的宗教议程。我不知道作为一个国家，如果让坏人把这个国家踢个半死，失去对自己命运的控制，民众还得承受多少苦难。所以我不知道有什么好办法来对抗暴徒。”
 
-据《美国之音》2月24日报道，俄罗斯总统普京星期四下令（2月24日）对乌克兰开展“军事行动”。随后，包括乌克兰首都基辅在内的多个城市均有炮火声及爆炸声。普京还警告其他国家，任何干涉俄罗斯行动的企图都将导致“他们从未见过的后果”。
+他说，作为总统，普京是国际战犯，因为他违反了俄罗斯在1994年对乌克兰作出的不入侵承诺，普京需要付出个人代价。
 
-普京在电视讲话中声称，军事行动是为了“应对来自乌克兰的威胁”，并“保护乌克兰东部的民众”。他同时声称，俄罗斯的目标不是要占领乌克兰，流血事件的责任在于乌克兰“政权”。普京还指责美国及其盟友无视俄罗斯阻止乌克兰加入北约的要求。
+至于普京的伙伴们，那些金融寡头，他会把他们的豪华公寓从他们手中夺走，卖掉他们的游艇，并以战争暴利的罪名把他们关进监狱。”
 
-美国总统拜登随即发表声明，指责普京选择了一场有预谋的战争，而这场战争将带来灾难性的生命损失和人类苦难。拜登称，俄罗斯要为这次攻击造成的死亡和破坏负责。美国及盟国将以团结果断的方式做出回应。世界将追究俄罗斯的责任。
+参考信息：
 
-新闻链接：
+[Sen. Lindsey Graham warns of World War III if Putin, China and Iran ‘get away with it’](https://www.foxnews.com/media/sen-lindsey-graham-world-war-iii-putin-china-iran-get-away)
 
-[https://www.voachinese.com/a/russia-military-operation-on-ukraine-20220223/6456751.html?utm\_source=twitter&utm\_medium=social&utm\_campaign=dlvr.it](https://www.voachinese.com/a/russia-military-operation-on-ukraine-20220223/6456751.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
-
-
-
-> 基辅响起了防空警报 [pic.twitter.com/x3z0llQZwO](https://t.co/x3z0llQZwO)
-> — 约翰 (@JohnDoe1284495) [February 24, 2022](https://twitter.com/JohnDoe1284495/status/1496715672289615874?ref_src=twsrc%5Etfw)
-
-
-
-* * *
-
-
-
+发稿：MG4
+![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

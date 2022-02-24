@@ -2,45 +2,30 @@
 ---
 
 
-## 新中國聯邦今年有三個大驚喜其中兩個走火運一個走土運
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2056948/)
+## 重磅！俄罗斯总统普京大举进军乌克兰
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2057032/)
 
-G-TV視頻鏈接：[https://gtv.org/video/id=621247ef1408ee3a03a240f4](https://gtv.org/video/id=621247ef1408ee3a03a240f4)
+撰稿：东京樱花团/深藏不露
 
-**郭文貴先生：**包括今年你看我這穿了多少紅套衣服了？十幾套都不止了吧？是吧？很多紅。這就是我們大師說的，新中國聯邦今年會有三個大驚喜，他說三個大驚喜里兩個都是要走火運，還有一個走土運，這兩個。第三個他沒告訴我，兩個我已經知道了。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/重磅！俄罗斯总统普京大举进军乌克兰.jpg)（图片来源于本文链接）
 
-所以說再一個我們金融啊，我們的金融是「土生金」，金融財啊，然後是「木生火，火生金，金生土，土生萬物」，北側為水，東側為木，南側為火，西側為金，中間為土」，大師一說，大師說得都是對的，他說讓我跳樓我都跳，我百分之百相信他。
+乌克兰国家边防局表示，俄罗斯军队已经越过卢甘斯克、苏梅、哈尔科夫、切尔尼戈夫和日托米尔省的边界。从目前看，现在已不是大兵压境，而是俄罗斯大兵从不同方位侵略入境！乌克兰东部五十万人口城市马里乌波尔，已经落入俄罗斯军人手中，黑海西北岸百万人口大城市敖德萨，也即将被俄罗斯军队占领！现在乌克兰首都基辅的空袭警报正持续响起。
 
-所以說就今天改成了這個紅旗49色，大家儘管地去用，還有紅旗會帶信仰之星的顏色也會很快出來，謝謝！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/重磅！俄罗斯总统普京大举进军乌克兰2.jpg)
 
-字幕來源：[2022月2日6日 《文貴大直播》全文字版](https://gnews.org/zh-hans/1971450/)
+拜登总统就俄罗斯入侵乌克兰紧急发表声明 ：“只有俄罗斯应对这次袭击将带来的死亡和破坏负责，美国及其盟国和合作伙伴将以统一和果断的方式作出回应。世界将追究俄罗斯的责任。”
 
-編輯整理：Davis；
+我想说：“战友们，别看乌克兰了，台湾这边危险了，台湾同胞你们千万千万得认真戒备好啊！
 
-字幕文件製作：神兵；
+附：据报道，几艘中共国船只已经越过台湾海峡的中线。据传中共国海军正在台湾海峡集结！
 
-視頻製作及上傳：Cindy；
+信息来源：
 
-G-News發佈：小滿；
+[俄罗斯乌克兰危机：普京宣布在顿巴斯地区采取军事行动，基辅顿涅茨克听到枪炮声–持续更新](https://www.bbc.com/zhongwen/simp/world-60503017)
 
-**廣而告之：尊敬的戰友，你的每一篇文字、每一段視頻、每一段社交媒體發文都是壓垮駱駝的一根稻草，歡迎加入我們****——**[**日本銀河系農場****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，歡迎訂閱我們的油管頻道：**[**郭文貴先生直播精選**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；歡迎關注蓋特獨家文貴先生大直播精選發佈賬號：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-聲明：文中內容根據郭文貴先生直播視頻整理，如果文字內容與視頻內容衝突則以原視頻為準，標題僅為概括，標題與視頻內容衝突之處僅代表作者個人觀點。
-
-歡迎喜聯盟進駐以及各農場兄弟姐妹們坐客串門，請通過以下方式關注及訂閱我們——
-
-Discord：[日本銀河系農場Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本銀河系農場](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民熱線](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ)、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[銀河系檔案放映館](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A)、[郭文貴先生直播精選](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、[喜馬拉雅日本銀河系農場 G-News](https://gnews.org/zh-hant/author/jgalaxy2021/)、[日本銀河系農場-阿爾法星球](https://gnews.org/zh-hant/author/galaxyalphaplanet/)、[銀河勇氣之星](https://gnews.org/zh-hant/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hant/author/newfoc/)；
-
-蓋特：[日本銀河系農場@himalayajgalaxy蓋特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本銀河系農場](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

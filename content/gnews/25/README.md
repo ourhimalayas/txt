@@ -2,27 +2,29 @@
 ---
 
 
-## 有声｜受俄乌对峙影响 台湾对中共提高戒备
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2056805/)
+## 有声｜俄罗斯总统普京宣布在乌克兰开展军事行动
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2056864/)
 
 By:**秘翻新闻**
 
 **2022-02-24**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8-34.png)图片来源 Ritchie B. Tongo/EPA-EFE
-据合众国际社2 月 23 日报道，台湾总统蔡英文周三表示，受俄罗斯于乌克兰危机的影响，台湾可能将面临来自中共国的挑战，因此必须加强戒备。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/9-30.png)图片来源 网络
+据美联社2 月 24 日报道，俄罗斯总统普京周四宣布在乌克兰开展军事行动，普京警告其他国家，任何干涉俄罗斯行动的企图都将导致他们从未见过的后果。
 
-蔡英文下令加强台湾的战备，并要求台湾武装部队加强对中共军事活动的监视和意识。
+普京在电视讲话中指责美国及其盟友无视俄罗斯阻止乌克兰加入北约，并向莫斯科提供安全保证的要求。他说，俄罗斯的目标不是占领乌克兰。
 
-在周三的会议上，蔡英文发表了四项指令，包括谴责俄罗斯“侵犯乌克兰主权”、加强台海战备、加强台湾对舆论战的反应以及继续应对相关经济发展。
+就在普京讲话时，基辅、哈尔科夫和乌克兰其他地区都听到了巨大的爆炸声。
 
-尽管蔡英文没有点名中共国，但台湾长期以来一直对中共保持警惕，因为中共国认为台湾是其分离的1个省份。而台湾自认为是一个独立的国家。
+就此，联合国秘书长安东尼奥·古特雷斯告诉普京，不要派遣俄罗斯军队对抗乌克兰，并称应给和平一个机会。
 
-蔡英文表示，台湾的情况与乌克兰的情况有根本不同，但随着东欧危机的展开，台湾必须努力稳定内部局势，预防外部压力。
+根据周四消息，目前乌克兰全境的领空已被禁止民用空中交通。
+
+俄罗斯的全面入侵可能会造成大量人员伤亡，并且可能推翻乌克兰民选政府。冲突的后果以及对俄罗斯实施的制裁可能会在全世界产生影响，影响欧洲的能源供应，震动全球金融市场，并威胁到冷战后非洲大陆的平衡。
 
 新闻来源
-[**https://www.upi.com/Top\_News/World-News/2022/02/23/taiwan-china-ukraine-crisis-readiness/8031645626511/**](https://www.upi.com/Top_News/World-News/2022/02/23/taiwan-china-ukraine-crisis-readiness/8031645626511/)
+[**https://apnews.com/article/russia-ukraine-business-new-zealand-australia-europe-08ae29f98152817b1b503b4b957c63f1 https://apnews.com/article/russia-ukraine-europe-russia-moscow-kyiv-626a8c5ec22217bacb24ece60fac4fe1**](https://apnews.com/article/russia-ukraine-business-new-zealand-australia-europe-08ae29f98152817b1b503b4b957c63f1%20https://apnews.com/article/russia-ukraine-europe-russia-moscow-kyiv-626a8c5ec22217bacb24ece60fac4fe1)
 
-秘翻新闻 文洋 编译报道
+秘翻新闻 玫瑰 编译报道
 
 发布 : 恩典
 

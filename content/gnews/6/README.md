@@ -2,24 +2,21 @@
 ---
 
 
-## 日本宣布对俄罗斯进行制裁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2056937/)
+## 2022年2月16日文贵大直播节选-新GTV投资 （带视频）
+` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2057031/)
 
-撰稿：东京樱花团/龟龟
-![](https://assets.gnews.org/wp-content/uploads/2022/02/日本宣布对俄罗斯进行制裁.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fcdn.trt.net.tr%2Fimages%2Fxlarge%2Frectangle%2Fcdc0%2Fcb81%2Fe028%2F619e2cbbb75fb.jpg%3Ftime%3D1645668839&amp;imgrefurl=https%3A%2F%2Fwww.trt.net.tr%2Fchinese%2Fguo-ji%2F2022%2F02%2F23%2Fri-ben-he-jia-na-da-dui-e-luo-si-shi-shi-zhi-cai-1783840&amp;tbnid=-4rxSJqMmw0KQM&amp;vet=12ahUKEwj-nv63zJf2AhVFNqYKHZWHA-gQMygBegUIARC3AQ..i&amp;docid=WTxRh33_wkC2BM&amp;w=1220&amp;h=686&amp;q=%E6%97%A5%E6%9C%AC%E5%88%B6%E8%A3%81%E4%BF%84%E7%BD%97%E6%96%AF&amp;ved=2ahUKEwj-nv63zJf2AhVFNqYKHZWHA-gQMygBegUIARC3AQ)
-日本首相岸田文雄23日宣布对俄罗斯实施制裁。制裁措施包括暂停向“顿涅茨克人民共和国”和“卢甘斯克人民共和国”相关人员发放签证并冻结其资产、禁止日本个人或实体与上述地区进出口交易、禁止俄在日本发行和流通新的主权债券等。
+供稿：聪宁
+编辑发稿：am夏天
+德国纽伦堡正义农场
 
-针对俄罗斯总统普京承认乌克兰两个地区独立，日本首相岸田文雄表示，这严重侵犯了乌克兰主权和领土完整。
+关于新GTV4月30号结束的问题。Hcoin 是不能投G-TV 的，HDO可以投GTV，它还是在联盟同意的统一协调下，没有任何问题的。那么这个情况下就HDO投寄GTV和Hcoin的价格没有什么关系。但是投GTV，我告诉你GTV是王，因为GTV本身就有喜联储的5%，什么概念啊？你今年只看到10亿的币，喜联储是1000亿的币，1000亿的5%是属于所有GTV的未来投资者。你不要搞错了，1000亿的5%和你今天10亿的5%还是个不同的概念好不好啊！还有个盖特的5%，还有这个Gclub的股份，这是都是属于它的，这是永远不可更改的，大家一定要去投，GTV的股份，千万别拉下。你知道对GTV他们这个大股东还有投资人，最好办法是你就别投，但凡有一点儿猪脑的人都会懂这个道理，他让你投干嘛，你加一起
+才4.5亿的美元，几个币的钱，他凭啥让你占百分之二三十？
+而且你占了二十三十的GTV的股，你还占盖特，你还占Gclub、你还占整个喜联储的股，他宁可给你现在说，你别投了我给你，我十倍回报给你，他都让你投。
 
-令据日本NHK报道，如果俄罗斯入侵乌克兰，日本将与G7国家联合应对。
+但是我们现在做的是任何情况都让战友投进去，这是我的权益，我们给你熬了两三年了，你必须得给我们。这就像谈恋爱一样，老娘跟你谈了两三年了，青春已经过两三年了，你不能说现在你当富豪、当官了让我再改嫁，那不行，你必须的你给我多少钱，我也得给你结婚。这必须要拿到这个东西。但是作为GTV投资者，他但凡有一点儿，你用一点儿逻辑想想，你们投的不是GTV，跟GTV半毛关系没有，GTV现在都关了跟你有啥关系呀？你要的是那个5%，得值多少钱！等过两天你们看到公告的时候，吓死你们，别说卖币了，卖血你都值！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/德农二维码-30.png)
 
-消息链接：
 
-[日本首相岸田文雄宣布对俄罗斯的制裁措施](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220223-%E6%97%A5%E6%9C%AC%E9%A6%96%E7%9B%B8%E5%B2%B8%E7%94%B0%E6%96%87%E9%9B%84%E5%AE%A3%E5%B8%83%E5%AF%B9%E4%BF%84%E7%BD%97%E6%96%AF%E7%9A%84%E5%88%B6%E8%A3%81%E6%8E%AA%E6%96%BD)
-
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

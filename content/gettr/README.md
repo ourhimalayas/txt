@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/24/2022 7:23 AM (UTC)`
+
+2/23/2022 Miles Guo: The COVID vaccines may cause 500 million to 1 billion people to die or to have disabilities. I believe that the effective treatments for adverse effects of the COVID vaccines will soon be available. The COVID vaccine disasters have not started yet. Please don’t get the jab or catch the CCP virus. You should not be prevailed by fatigue in the face of the prolonged campaign against the CCP virus and its vaccines.<br/><br/>2/23/2022 文贵直播：疫苗最终可能导致5到10亿人死亡或残疾，文贵相信很快会有针对疫苗的有效的办法。疫苗灾难尚未开始，不要打疫苗也不要染上病毒，千万不要在疲劳战面前被疲劳征服！<br/>
+![img](https://media.gettr.com/group15/getter/2022/02/24/07/f09ff172-6118-66e2-571a-7aa29d07db72/out.jpg)
+
+---
+
+`@miles 2/24/2022 7:18 AM (UTC)`
+
+2/23/2022 Miles Guo: All the so-called international military experts and political experts are crooks and running dogs of the CCP. Putin and Xi are implementing a dual strategy targeting both Ukraine and Taiwan by using a surprise attack. The reason Xi had disappeared for seven days was that he had to have surgeries so that Putin was given time to make all sorts of deployments.<br/><br/>2/23/2022 文贵直播：中文世界所谓的国际军事专家、政治专家都是骗子、中共的走狗；普京和习玩的是突然袭击的双向战略；习神隐7天是因为他不得不做手术并让普京进行各种部署<br/>
+![img](https://media.gettr.com/group47/getter/2022/02/24/07/60d54811-8372-3ef9-0e89-25cb22d5b296/out.jpg)
+
+---
+
 `@miles 2/24/2022 6:28 AM (UTC)`
 
 2/23/2022 Miles Guo: The Ukraine incident reflects that Vladimir Putin is a brilliant international strategist. Before the Winter Olympics, he made lots of noises to get the world’s attention that he was going to wage a war against Ukraine, and then he met with Xi to get huge profits during the Olympics, after which he pretended to withdraw his troops while luring various countries to make deals with him. However, the Nord Stream 2 is actually still supplying natural gas.<br/><br/>2/23/2022 文贵直播：乌克兰事件反映出普京是个国际战略大家，冬奥会前制造开战声势，冬奥会见习攫取中共大量利益，会后佯装撤军并吸引各国与之勾兑，北溪2号实际上仍在输送天然气
@@ -145,20 +159,6 @@ New Release ✨                                              Shop Now at www.gfa
 
 2/20/2022 Miles Guo: Does anyone in Communist China truly understand the joy of wealth? Money can bring you spiritual satisfaction, and Xi has spiritually satisfied the lonely “Putin the Great” and offered to divide the world with him to fight together against the US  - the CCP would drop the virus to destroy the world’s economy, while Russia would control Europe through oil and natural gas.<br/><br/>2/20/2022 文贵直播：中共国有谁知道钱的感觉吗？钱是精神安慰剂，习给了孤独的普大帝精神安慰剂、并愿意跟他平分天下以共同对付美国 - 中共放毒打垮世界经济，俄罗斯用油气控制欧洲<br/>
 ![img](https://media.gettr.com/group36/getter/2022/02/22/05/54427ac4-66e8-696e-2de6-25860e80f903/out.jpg)
-
----
-
-`@miles 2/22/2022 5:54 AM (UTC)`
-
-2/20/2022 Miles Guo: The top priority of the New Federal State of China is to take down the CCP, and the second priority is to develop our education sector. The G-EDU is under my direct control, and competent teachers are welcomed to join. Whether the teachers are good or bad is up to the students, and the students' performance should be certified by an independent third party. There will be a grand live broadcast about G-EDU next week.<br/><br/>2/20/2022 文贵直播：新中国联邦的头等大事是灭共，第二件大事是搞教育；G-EDU归文贵管，欢迎有本事的老师加入；老师好坏学生说了算，学生成绩由第三方认证；下周有G-EDU大直播。
-![img](https://media.gettr.com/group29/getter/2022/02/22/05/0d7c00c3-fc18-4d5f-c3d0-2c96644cf2ca/out.jpg)
-
----
-
-`@miles 2/22/2022 5:50 AM (UTC)`
-
-2/20/2022 Miles Guo: Once the war starts, the city of Dalian and Liaoning province will suffer the most losses due to their strategic importance. Fellow fighters, please take care of yourselves! We must take down the CCP ASAP. Otherwise, anyone can become the cannon fodder.<br/><br/>2/20/2022 文贵直播：一旦开战，大连和辽宁因其关键的战略位置而将成为重灾区，请战友们多保重，我们要尽快灭共，不然谁都可能成炮灰！<br/>
-![img](https://media.gettr.com/group23/getter/2022/02/22/05/55df3c14-c16b-5f47-858c-d44bf1226e74/out.jpg)
 
 ---
 

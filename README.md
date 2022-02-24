@@ -15,122 +15,122 @@
 
 ---
 
-### [三道锦囊全打开:民心向郭习亡岐山&amp;利用病毒&amp;制造货币](/content/gnews/1/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [拜登宣布采取加强关键矿物质供应链的行动，终止对中国的依赖](/content/gnews/2/README.md)
- ` 日本东京方舟农场`
-
-### [大直播后记：七哥曾警告世界将面临的灾难，都已发生](/content/gnews/3/README.md)
- ` 雅典娜GNotes`
-
-### [普京宣布在乌克兰开展军事行动](/content/gnews/4/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [新中國聯邦今年有三個大驚喜其中兩個走火運一個走土運](/content/gnews/5/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [日本宣布对俄罗斯进行制裁](/content/gnews/6/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [新增8674例！香港感染新冠人数创新高](/content/gnews/7/README.md)
- ` 墨尔本雅典娜农场`
-
-### [壬寅年属狗的七哥用新中国联邦红拿回中共崇拜的红和土](/content/gnews/8/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [郭文贵直播摘要和音频 2022.02.23](/content/gnews/9/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [20220223郭文贵大直播 ：中共的邪恶洗脑令失去信仰的中国人面目全非 道德廉耻低到令人发指](/content/gnews/10/README.md)
- ` Tokyo Sakura Video Group`
-
-### [俄罗斯正式对乌克兰全面开战！](/content/gnews/11/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [原定2.14的G-Clubs年会顺延,七哥将为中国女人唱首歌](/content/gnews/12/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [俄罗斯-乌克兰【前线战事速递】](/content/gnews/13/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [美国将制裁俄罗斯天然气管道北溪2号背后的公司](/content/gnews/14/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [徐州锁链女再现荒唐公告](/content/gnews/15/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声｜俄罗斯总统普京宣布在乌克兰开展军事行动](/content/gnews/16/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [在和七哥发生关系让七哥阳痿的战友们爆料前七哥先自爆](/content/gnews/17/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [韩国批准辉瑞中共病毒疫苗用于5-11岁儿童](/content/gnews/18/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [台湾在乌克兰危机中对中共投以警惕的目光](/content/gnews/19/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [20220223郭文贵大直播 ：五银三寡的经济制裁纯粹是演戏，最后买单的是中国人](/content/gnews/20/README.md)
- ` Tokyo Sakura Video Group`
-
-### [铁链女让我回忆起无数女人的悲惨命运](/content/gnews/21/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [不铲除共产党所有中国女性都可能成为下一个被绑架的人](/content/gnews/22/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [武汉，重回2020？](/content/gnews/23/README.md)
- ` 澳喜农场`
-
-### [20220223郭文贵大直播 ：中共造假的疫苗经济](/content/gnews/24/README.md)
- ` Tokyo Sakura Video Group`
-
-### [有声｜受俄乌对峙影响 台湾对中共提高戒备](/content/gnews/25/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [普京电视讲话宣布对乌克兰开展军事入侵行动](/content/gnews/26/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [英国政府相信新冠病毒（COVID-19）为武汉病毒研究所研制](/content/gnews/27/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [纽约市长宣布将尽快取消疫苗强制令与疫苗护照](/content/gnews/28/README.md)
- ` 墨尔本雅典娜农场`
-
-### [参议员乔什·霍利:中共国 想要吞并台湾,乔拜登最好集中注意力](/content/gnews/29/README.md)
- ` 美国政要直译推`
-
-### [《避风港Haven》直播内容精选（第十二集·下）](/content/gnews/30/README.md)
- ` 喜马拉雅纽约磐石农场`
-
-### [俄罗斯对乌克兰发动全面军事行动，疼在中共](/content/gnews/31/README.md)
- ` 首尔天池农场`
-
-### [新中国联邦将在今年底迎来各项重大利好](/content/gnews/32/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [澳大利亚计划在南极洲投资制约中共](/content/gnews/33/README.md)
- ` NFSC News`
-
-### [展望未来 光明必将战胜黑暗](/content/gnews/34/README.md)
- ` NFSC News`
-
-### [战斗室指责政府用权力和控制来掩盖错误](/content/gnews/35/README.md)
- ` NFSC News`
-
-### [突发｜战争爆发？普京授权出动轰炸机 乌克兰首都传出爆炸声 （持续更新）](/content/gnews/36/README.md)
+### [COVID-19 最新情报｜新西兰确诊住院数量12天内暴增 近8成为完全接种者](/content/gnews/1/README.md)
  ` 關注組`
 
-### [秘翻在线：【速报】俄国媒体坐实普京下令发动战争](/content/gnews/37/README.md)
+### [中国人若不改变,不用世界排华中国人自己就把自己排死了](/content/gnews/2/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [美国男子袭击亚裔家庭 误认为是中共国人需为中共国病毒流行负责](/content/gnews/3/README.md)
+ ` 日本东京方舟农场`
+
+### [快讯┃乌克兰的防空系统已经被攻克](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [重磅！俄罗斯总统普京大举进军乌克兰](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [2022年2月16日文贵大直播节选-新GTV投资 （带视频）](/content/gnews/6/README.md)
+ ` 喜马拉雅德国纽伦堡正义农场`
+
+### [美国竞争法案虽删除几个重要条款但给台湾留下更多空间](/content/gnews/7/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [中日财经爆|养肥了开“杀” 一网红被中共罚款6200万](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [喜贷款 喜存款 喜保险来了](/content/gnews/9/README.md)
+ ` 喜马拉雅德国纽伦堡正义农场`
+
+### [三道锦囊全打开:民心向郭习亡岐山&amp;利用病毒&amp;制造货币](/content/gnews/10/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [美国参议员警告：俄罗斯、中国和伊朗可能引发第三次世界大战](/content/gnews/11/README.md)
+ ` 澳喜农场`
+
+### [20220223郭文贵大直播 ：疫苗灾难对人类的影响比预期更乐观](/content/gnews/12/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [爆料革命与修行](/content/gnews/13/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [俄称乌空军瘫痪，乌称击落俄飞机](/content/gnews/14/README.md)
+ ` 首尔天池农场`
+
+### [拜登宣布采取加强关键矿物质供应链的行动，终止对中国的依赖](/content/gnews/15/README.md)
+ ` 日本东京方舟农场`
+
+### [大直播后记：七哥曾警告世界将面临的灾难，都已发生](/content/gnews/16/README.md)
+ ` 雅典娜GNotes`
+
+### [普京宣布在乌克兰开展军事行动](/content/gnews/17/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [日本宣布对俄罗斯进行制裁](/content/gnews/18/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [新增8674例！香港感染新冠人数创新高](/content/gnews/19/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [郭文贵直播摘要和音频 2022.02.23](/content/gnews/20/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [20220223郭文贵大直播 ：中共的邪恶洗脑令失去信仰的中国人面目全非 道德廉耻低到令人发指](/content/gnews/21/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [俄罗斯正式对乌克兰全面开战！](/content/gnews/22/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [俄罗斯-乌克兰【前线战事速递】](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [CDC继续隐藏与中共病毒疫情有关的关键数据](/content/gnews/38/README.md)
+### [美国将制裁俄罗斯天然气管道北溪2号背后的公司](/content/gnews/24/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [有声｜俄罗斯总统普京宣布在乌克兰开展军事行动](/content/gnews/25/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [韩国批准辉瑞中共病毒疫苗用于5-11岁儿童](/content/gnews/26/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [20220223郭文贵大直播 ：五银三寡的经济制裁纯粹是演戏，最后买单的是中国人](/content/gnews/27/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [有声｜受俄乌对峙影响 台湾对中共提高戒备](/content/gnews/28/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [普京电视讲话宣布对乌克兰开展军事入侵行动](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国开始对俄罗斯执行经济制裁](/content/gnews/39/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
+### [纽约市长宣布将尽快取消疫苗强制令与疫苗护照](/content/gnews/30/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [参议员乔什·霍利:中共国 想要吞并台湾,乔拜登最好集中注意力](/content/gnews/31/README.md)
+ ` 美国政要直译推`
+
+### [俄罗斯全面出兵攻乌 中共国民却成待宰羔羊](/content/gnews/32/README.md)
+ ` 纽约香草山MOS02`
+
+### [《避风港Haven》直播内容精选（第十二集·下）](/content/gnews/33/README.md)
+ ` 喜马拉雅纽约磐石农场`
+
+### [俄罗斯对乌克兰发动全面军事行动，疼在中共](/content/gnews/34/README.md)
+ ` 首尔天池农场`
+
+### [新中国联邦将在今年底迎来各项重大利好](/content/gnews/35/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [澳大利亚计划在南极洲投资制约中共](/content/gnews/36/README.md)
+ ` NFSC News`
+
+### [展望未来 光明必将战胜黑暗](/content/gnews/37/README.md)
+ ` NFSC News`
+
+### [战斗室指责政府用权力和控制来掩盖错误](/content/gnews/38/README.md)
+ ` NFSC News`
+
+### [突发｜战争爆发？普京授权出动轰炸机 乌克兰首都传出爆炸声 （持续更新）](/content/gnews/39/README.md)
+ ` 關注組`
 
 ### [喜贷款、喜存款蓄势待发，HPay（喜支付）是打开世界金融盒子的密码](/content/gnews/40/README.md)
  ` YALUN 亚伦`

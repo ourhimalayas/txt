@@ -2,30 +2,38 @@
 ---
 
 
-## 台湾在乌克兰危机中对中共投以警惕的目光
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2056855/)
+## 新增8674例！香港感染新冠人数创新高
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2056930/)
 
-撰稿：东京樱花团/asket
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2210.png)[图片来源](https://rockawayadvocate.news/taiwan-casts-wary-eye-at-china-amid-ukraine-crisis-but-no-immediate-alarm/)
-路透社台北—台湾很紧张，因为北京可能会在乌克兰的灾难中利用分散注意力的西方，来加强对台湾的压力；但台北的官员说，最近几天中共国军队没有进行不寻常的演习。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-中共国将台湾视为自己的领土，并在过去两年中加强了在这个自治岛屿附近的海军演习。
+整理：围剿维尼熊
+编辑：文泓
 
-蔡英文总统周三在工作组会议上表示，台湾应该加强对该地区海军行动的监控和应用，并应对国际上的错误信息，尽管她没有立即指出中共国。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/5-43.png)图片来源：The New York Times & 雅典娜设计组
 
-虽然台湾当局说该岛的状况和乌克兰的状况 “根本不同”，但蔡女士对乌克兰的状况表示 “同情”，因为该岛面临来自中共国的海军威胁。
 
-台湾国际部长吴钊燮本月在两次国际媒体采访中警告说，他们一直在非常仔细地观察中共国是否会充分利用乌克兰的灾难进行攻击。
+因奥密克戎病毒肆虐，2月23日香港卫生防护中心公布新增8674例新冠确诊病例，其中3例为输入案例，其余8671例为本地新增案例，创下本地新高。目前累计1200医护人员感染新冠。
 
-“中共国可能随时想到对台湾使用军事行动，我们需要为此做好准备，”他向英国ITV资讯台建议。
+新增案例包括3365例确诊，968例无症状感染，以及4341例待确诊病例。截至22日，香港累计29173例确诊病例。
 
-一位了解联邦政府安全规划的台湾高级官员向路透社表示，海军力量突然增强的可能性 “不高”，但台北一直在仔细观察任何不常见的中共国语言行动。该人士指出，中国人民解放军在台湾东北部和日本南部岛屿附近的宫古海峡地区进行了联合海军演习，这种演习在上个月变得更加频繁。这位官员说，这些演习包括战斗机、轰炸机和军舰，目的是扩大对日本的压力。日本防卫公司的一位发言人拒绝发表评论。
+卫生防护中心传染病处主任张竹君表示，过去一日有24名患者病逝，年龄介乎52岁至97岁。当中21人是65岁以上，有6人已接种两剂疫苗，1人已接种一剂疫苗，其中15人来自养老院舍；当中有3名比较年轻的病人，其中1人已接种一剂疫苗。
 
-信息来源：** **[TAIWAN CASTS WARY EYE AT CHINA AMID UKRAINE CRISIS, BUT NO IMMEDIATE ALARM](https://rockawayadvocate.news/taiwan-casts-wary-eye-at-china-amid-ukraine-crisis-but-no-immediate-alarm/)
+张竹君宣称，至今累计超过300间养老院舍有人感染，涉及超过300名员工及逾930养老人员。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+港府当局推行中共“动态清零”政策，强制全民核酸检测，感染人员集中隔离，西安封城一幕是否会在香港上演？
+
+参考链接：[香港增8674宗个案再创新高](https://www.epochtimes.com/gb/22/2/24/n13600569.htm)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
