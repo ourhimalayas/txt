@@ -2,58 +2,63 @@
 ---
 
 
-## 俄乌战争：普京下令攻打乌克兰 首都基辅危在旦夕
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2057979/)
+## 俄罗斯入侵乌克兰 油价黄金军工大涨 股市下跌
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2058365/)
 
-作者：东京樱花团｜捆绑CCP一千年
+作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/俄乌战争：普京下令攻打乌克兰-首都基辅危在旦夕1.png)[*图片来源*](https://api.time.com/wp-content/uploads/2022/02/GettyImages-1237854921.jpg?w=1600&amp;quality=70)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-**俄罗斯普京大帝终于向全面战争迈进了一步，乌克兰首都深陷危机。新中国联邦透露普京开战的剧本就是中共习近平蓄谋已久的侵台剧本——声称乌克兰东部人民需要俄军去拯救。对此，美国声称这是一场战争阴谋，要求普京将对此负全责。**
+随着普京宣布开始对乌克兰的军事行动，当地时间24日凌晨5时开始，俄罗斯军队开始向乌克兰多个城市的军事设施和军用机场发动导弹袭击。乌克兰哈尔科夫、首都基辅、鲍里斯波尔、楚古耶夫、克拉马托尔斯克等主要城市受到俄罗斯袭击，发生爆炸。
 
-据中共国新华社24日快讯，“24日清晨，乌克兰首都基辅上空传来数次爆炸声” 。2个多小时后，援引外媒消息称，“乌克兰首都基辅响起[空袭警报](http://www.news.cn/mil/2022-02/24/c_1211586106.htm)”。随后称“乌克兰总统已动员所有军事力量和特种部队，准备迎接基辅保卫战”。从中共国官媒可见，俄罗斯侵略乌克兰的全面战争已经打响。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/putin-ukraine-.jpg)
 
-根据 [TIME时事通讯社](https://time.com/6150679/russia-ukraine-war/)消息，“美国东部时间23日晚 ，俄罗斯总统弗拉基米尔·普京下令向乌克兰开展军事行动”。同时，普京警告其他国家，任何干涉俄罗斯行动的企图都将导致“他们从未见过的后果”。
+黑海舰队在亚速海和敖德萨海的已经开始登陆行动，目前，俄军已突破哈尔科夫州界，哈尔科夫乌军指挥所遭到火箭弹袭击。乌克兰总统泽连斯基表示，乌克兰全境将进入战时状态。乌克兰管理部门宣布关闭全境领空，乌克兰首都基辅响起空袭警报。
 
-- ***延展阅读：***[***乌克兰国防部长奥列克西·列兹尼科夫称正在击退俄军，呼吁人民保持冷静***](https://www.mil.gov.ua/news/2022/02/24/zvernennya-ministra-oboroni-ukraini-oleksiya-reznikova/)
+中共国《新民晚报》称，俄罗斯国防部发布消息，俄军在一小时之内就消灭了乌克兰海军和空军的作战能力。另一中共媒体《环球网》称，乌克兰紧急情况部发布消息，乌克兰国民卫队司令部被摧毁。
 
+白俄罗斯军队帮助俄罗斯，从乌克兰北部、东部进入乌克兰。
 
-普京在[克里姆林宫表示](https://time.com/6150679/russia-ukraine-war/)，乌克兰东部的叛军要求俄罗斯提供军事援助以帮助抵御乌克兰的‘侵略’。之后，普京宣布了军事行动。这一宣布立即引发了人们对台湾的担忧，莫斯科为战争寻找的借口，正如新中国联邦创始人MILES GUO在2021年10月10日讲话所警告的那样。“只要有台独，解放军就可以进去；只要有人欢迎我，我就可以进；只要台湾有外国势力加入我就可以去。”这也是普京的借口，乌克兰东部人民需要我去拯救。
+不管如何，俄罗斯对乌克兰的军事入侵显然会对乌克兰产生毁灭性的影响。同时，俄罗斯是世界上最大的石油和天然气生产国之一，占世界天然气的 17% 和石油的 12%，入侵也立即影响能源市场。
 
-这个时候，乌克兰总统弗拉基米尔·泽连斯基（Volodymyr Zelenskyy）在一个激动人心的夜间用俄语直接呼吁俄罗斯公民说，“乌克兰人民和乌克兰政府想要和平，但如果我们受到攻击，如果我们面临企图夺走我们的国家、我们的自由、我们的生命和我们孩子的生命，我们将捍卫自己。当你攻击我们时，你会看到我们的脸，而不是我们的背。”泽连斯基总统表示乌克兰将誓死捍卫国家和自由价值观。
+北海布仑特油价应声上涨，由昨天的94.28美元/桶飙升到101.69美元/桶，涨幅达7.86%。
 
-但普京在电视讲话中否认了“俄罗斯的目标不是占领乌克兰”，并敦促“乌克兰军人立即放下武器回家”。他还指责美国及其盟国无视俄罗斯阻止乌克兰加入北约并向莫斯科提供安全保证的要求。但是，就在普京下令时，基辅、哈尔科夫和乌克兰其他地区都听到了巨大的爆炸声。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-24_19-46-41.png)
 
-世界担心，俄罗斯的全面入侵可能会造成大量人员伤亡，并推翻乌克兰民选政府。冲突的后果引发对俄罗斯实施的制裁可能会在全世界产生影响。首先是欧洲的能源供应，震动全球金融市场，并威胁到冷战后非洲大陆的平衡和台湾地区的动荡。对此，MILES GUO于美东时间23日视频直播表示，“这次俄乌战争和大流行期间带来一个更大的转变是，世界货币将迅速向数字货币发展，你会发现大流行以来美元超发几十万亿，谁来买单？这回战争一响，美债有主了，世界将没有选择，所有的钱只能去美国。金融避险天堂还有其它地方吗？因此，最后，这个世界需要我喜联储”（[1:21.22时段了解更多](https://gettr.com/post/pwbjub06c5)）
+布伦特原油，英文Brent oil，是指出产于欧洲北海布伦特和尼尼安油田在西欧提炼的轻质低硫原油，共15种原油综合而成，占全球原油交易量約50%，是油价的市场标杆。
 
-- ***延展阅读：***[***五角大楼-入侵开始，80%的俄罗斯军队正在“前沿阵地”***](https://www.airforcemag.com/pentagon-80-of-russian-forces-in-forward-position-to-invade-ukraine/)
-- ***延展阅读：***[***战争直播-莫斯科发动全面入侵乌克兰***](http://xn--mtqx4bia39jo3bd28c2p3aoqq7r4b/)
-- ***延展阅读：***[***CNN-日本首相称俄罗斯的入侵“动摇了国际秩序的基础***](https://www.cnn.com/europe/live-news/ukraine-russia-news-02-23-22/index.html)***”***
+最近一个月来，布伦特油价一直在90美元以上。随着俄罗斯向乌克兰东部派遣军队后，布伦特原油价格昨天就飙升至 99.50 美元的高位。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-24_19-41-31.png)
 
-接下来的世界格局的改变将是风云突变，真正引发担忧将是台湾。世界永远都不要相信美军回去拯救台湾，就像现在美军仍然按兵不动没有去拯救乌克兰一样。美国总统拜登对于乌克兰局势除了谴责“普京对乌克兰发动的是一场有预谋的战争”外就只剩下祈祷。
+俄罗斯股市（IMOEX）开盘下跌11.24%，至2737.91点，俄罗斯卢布和莫斯科证券交易所开始交易后不断下跌，目前已跌至熔断线，卢布和证券交易已暂停。目前，MOEX Russia Index(IMOEX.ME)指数已下跌至2,045.38点，下跌-1,018.06点，跌幅达34.00%。
 
-拜登总统23日晚在针对俄军侵略乌克兰的《[申明](https://www.whitehouse.gov/briefing-room/statements-releases/2022/02/23/statement-by-president-biden-on-russias-unprovoked-and-unjustified-attack-on-ukraine/)》中祈祷说，“今晚，祈祷全世界人民与乌克兰人同在，因为他们遭受了俄罗斯军队无端和无理的攻击，这将带来灾难性的生命损失和人类苦难，俄罗斯将独自应对这次袭击将带来的死亡和破坏负责。”注意，拜登总统没有提到西方会追究合谋者——习近平的责任。拜登继续祈祷说，“世界将追究俄罗斯的责任。我们还将确保俄军对北约的任何侵略。今晚，吉尔和我为乌克兰勇敢而自豪的人民祈祷。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-24_20-06-12.png)
 
-俄乌战争-[实时报告](https://www.mil.gov.ua/news/)
+亚太股市遭受重创。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/俄乌战争：普京下令攻打乌克兰-首都基辅危在旦夕2.png)
+中共国A股午后开盘快速跳水，港股恒生科技指数跌5%。沪指跌逾2%，创业板指跌近3%，两市超4000股下跌，黄金板块直线拉升，西部黄金、湖南黄金涨停。军工股午后大幅拉升，观想科技上涨9.17%、新余国科15.29%，航天机电2.73%、天海防务10.62%、西仪股份7.04%、晨曦航空11.17%、新劲钢、江龙船艇等纷纷大幅冲高。
 
-[乌克兰武装部队总参谋部的报告](https://www.mil.gov.ua/news/2022/02/24/povidomlennya-generalnogo-shtabu-zbrojnih-sil-ukraini/)：
+黄金板块直线拉升，西部黄金10.02%、湖南黄金10.01%)涨停，现货黄金冲上1957美元。
 
-*今天，2 月 24 日凌晨 5 点，俄罗斯联邦武装部队开始对我在东部的部队进行猛烈炮击，并对鲍里斯波尔、奥泽尔诺耶、库尔巴金、楚格耶夫、克拉马托尔斯克、乔尔诺巴耶夫卡等机场进行了火箭弹和炸弹袭击。就像袭击军事设施一样袭击乌克兰民用设施。与此同时，侵略者开始炮击乌克兰沿国界的领土和居民定居点。*
+日经225指数、韩国KOSPI指数均跌超2%，印度BSE SENSEX指数跌近3%。
 
-*乌克兰武装部队空军正在击退入侵者的空袭。国家国防军处于全面战备状态，已采取并保持防御阵地。局势已得到控制。*
+美股三大股指狂跳水，大型科技股均收跌。
 
-*有关俄罗斯军队在敖德萨登陆的信息不属实。*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2202-81685869a3b222a0d7aa35f4dc2a7576.jpg)
 
-*让我们一起赢！*
+参考数据：
 
-2022年2月24日
+[BREAKING: Ukraine Shuts Down Its Airspace – Putin Declares Start of Military Operation against Ukraine — VIDEO](https://www.thegatewaypundit.com/2022/02/breaking-ukraine-shuts-airspace-putin-declares-start-military-operation-ukraine-video/)
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+[Brent Crude Oil Continuous Contract](https://www.marketwatch.com/investing/future/brn00?countrycode=uk)
+
+[Oil prices are surging toward $100 a barrel. Here’s what that means for you](https://www.npr.org/2022/02/22/1081092765/oil-gas-prices-100-barrel-ukraine-russia)
+
+[MOEX Russia Index (IMOEX.ME)](https://finance.yahoo.com/quote/IMOEX.ME/?guccounter=1&amp;guce_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS8&amp;guce_referrer_sig=AQAAADEkkhDJV3O8Ds2p-NT4Xy9DIjntGGJ9kbesSmuEEYWTVqxy4FKgi0nNc0J_2B919g3rB3MtgfpUXcAUEXb8NHhPg9jrLvlQZH_tGAaDa1oCzsHhtukPQpS74dEcWLxRFaKBBBa64TFsh_PWCYWbXSv06EPMub_0SN6AXvkZdVSV)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

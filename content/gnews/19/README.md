@@ -2,96 +2,24 @@
 ---
 
 
-## 共产主义是所谓的乌托邦，社会主义把它们（这些国家）连接在一起，最终中共成了孤家寡人
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2057775/)
+## 高官劝港人慎移民 称香港发展机会仍然很好
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2058084/)
 
-[https://gtv.org/video/id=6215fa481408ee3a03a3b5e3](https://gtv.org/video/id=6215fa481408ee3a03a3b5e3)
+作者：东京樱花团｜阿恩
 
-郭文贵
-Miles Guo
+![](https://assets.gnews.org/wp-content/uploads/2022/02/高官劝港人慎移民-称香港发展机会仍然很好.jpg)
 
-爆料革命
-Whistleblowers movement
+财政司司长陈茂波称，见到有香港人移民的情况，他希望大家可以暂时放下不同意见，一同努力，又认为香港之后的发展机会仍然很好。陈茂波称，自己见证过97前的移民潮，有些朋友选择回港，有些朋友想回来也难回，因为已卖楼，以及原工作岗位已被人填补。他又说，本港人口高龄化、出生率不高，个别行业可能要输入外劳和专才。
 
-你不知不觉中你发展出了一个新中国联邦誓死跟随（的人）
-You has unwittingly developed lifetime followers to the New Federal State of China (NFSC)
+香港曾经富庶安逸，即使在97后中共的影响不断渗入，但仍有一定的言论、结社和游行的自由，香港的经济虽然单一，但繁荣依旧，港人谋生容易，当时确实有不少港人回流。但今时不同往日了，中共挥舞的镰刀和铁锤已将香港砸烂，港人赖以生存的民主法治已消失，社会经济陷入停顿，城市的管制手段倒退到奴隶社会。试问哪位香港人愿意甘心承受这样的失落，最先离开香港的就是前卫的中产精英们，接着社交平台上不断有海外港人分享移民心历，召唤更多有BN（O）护照的港人举家赴英，年轻人则倾向前往澳洲和加拿大，先进修再投入当地的工作，还有不少担心被中共国安法牵连的港人前往民主国家寻求政治庇护，等候签证期间有人弹尽粮绝，幸好很多人寻得当地港人组织的帮助能度过难关。许多移民海外的香港人能全然放下，融入当地环境做着基层工作，他们没有觉得卑贱，反而对工作中勤奋又高效的长者肃然起敬，成为他们坚持下去的动力。何况在海外的民主国家生活并非难事，租金和消费都较香港便宜许多，付出辛勤的劳动就能养活自己和家人，虽然没有香港曾经的高收入，但能呼吸清洁自由的空气，生活在蓝天白云下，可以享受做人的喜乐。
 
-是用金钱和生殖器睾丸换不来的这种结果和信任
-This kind of result and trust cannot be exchanged with money and sex
+陈茂波说移民海外的港人想回港也难，这是实话，现在的香港百物胜贵，高失业率，高楼价，高压管制，动之就会触犯国安红线受牢狱之灾，此时敢回流中共暴政下的香港可谓“勇夫”。陈茂波的话侧面在提醒海外的港人不要再回来，精英们走了，有中共的人才输入填补；劳动力少了，有中共的廉价劳工补充，留港不留人已是定局。
 
-那就是我们让大家不打疫苗而诞生的新中国联邦全世界的盟友
-Those are the NFSC’s allies around the world that were born by setting stop people from getting vaccinated
+资料来源：[**陈茂波称见到港人移民情况　吁暂放下不同意见一同努力**](https://news.rthk.hk/rthk/ch/component/k2/1635559-20220224.htm)
 
-这个没让他们打疫苗
-This having people unvaccinated
-
-他们活下来以后，跟我们之间的关系就会变成了什么？
-what have their relationship with us become after they survived?
-
-生死关系，不分种族、不分老少、不分男女、不分地域
-It’s the relationship of life and death, regardless of race, age, gender and region
-
-没有任何肤色的区别、没有任何宗教的隔离
-without any distinction of skin color and any religious segregation
-
-你们没有想到，新中国联邦这一票干大了
-You may not expected that the NFSC have done a huge on this matter
-
-共产主义是所谓的乌托邦社会主义把它们连在了一起
-Communism is the so-called utopian socialism that connects them together
-
-古巴、委内瑞拉、前苏联是吧，前老挝是吧，坦桑尼亚、乌干达是吧
-Cuba, Venezuela, the Soviet Union, the former Laos, Tanzania, Uganda, right?
-
-现在你看都怎么样了？
-Now, look what happened?
-
-剩余共产党了
-The CCP is left alone
-
-那我们新中国联邦没有要你一分钱
-Our NFSC has not asked you for a penny
-
-没杀任何人
-has not killed any one individual
-
-没像当年柬埔寨杀那么多人
-We are not like Cambodia back then which killed a mass of people
-
-没有红色高棉, 没有越南的社会主义
-We do not have the Khmer Rouge and the socialism in Vietnam
-
-但是我们救了你的命
-But we have saved your life
-
-救了你全家的命
-We have saved your whole family
-
-我们应该叫救命主义吧
-Shouldn’t we be called the lifesavinglism?
-
-* * *
-
-Date: 02/15/2022
-原视频标题:
-共产主义是所谓的乌托邦，社会主义把它们（这些国家）连接在一起，最终中共成了孤家寡人。新中国联邦因传播疫苗真相，在不知不觉中发展出了全世界的盟友，誓死跟随，称作“救命主义”也不为过。
-Communism is a so-called utopia, socialism connects some countries together, and in the end, the CCP is left alone. Because of the disseminating of the truth about vaccines, the New Federal State of China has unwittingly developed allies around the world who swear to follow. It would not be exaggerating if we called the lifesavinglism.
-
-原视频日期：2022/02/11
-原视频链接: [**https://gettr.com/post/purmth1c4e**](https://gettr.com/post/purmth1c4e)
-任务编号：KC466（3787）
-视频时间段 : 0:00-01:35
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译：洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-青梅煮酒
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

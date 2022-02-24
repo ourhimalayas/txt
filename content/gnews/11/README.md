@@ -2,112 +2,38 @@
 ---
 
 
-## 俄罗斯总统弗拉基米尔·普京承认乌克兰两个省为独立国家的法令与普京在 2008 年入侵格鲁吉亚之前签署的法令几乎相同
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2057864/)
+## 今天到底是谁的耻辱（二）
+` 骄子` [轉載自GNews](https://gnews.org/zh-hans/2058252/)
 
-[https://gtv.org/video/id=6215fe721408ee3a03a3b6bd](https://gtv.org/video/id=6215fe721408ee3a03a3b6bd)
+文：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-24-20.22.06.png)
+欧洲和美国戏耍普京，说什么北约不东扩，乌克兰不东扩，还拿出来国际上法律认证的《明斯克协定》，看这叫国际秩序，制订了条约不遵守。那些个条款写在纸上好像是一纸空文，既然是一纸空文那又写来干什么。普京被欧洲排斥在外将近十年了，是俄罗斯毒杀了那个富豪违背国际人道在先，如果这是一种不讲理，那欧洲和美国公然违背和俄罗斯的国际条约，这又怎么算呢。
 
-Alex Salvi (Newsmax foreign correspondent)
-亚历克斯·萨尔维（Newsmax 外国记者）
+老百姓有句话叫做天下乌鸦一般黑，就是别使劲儿揪住一个人的过错不放，人总是要成长，成长哪能不犯错呢，哪怕是上帝也是会犯错的呀。要不是上帝相信了犹大能被挂在十字架上死掉吗？犯错误几乎是最平常不过的一件事，过而能改，善莫大焉。普京让欧美给骗了，他这么一个所谓的国际政治大玩家，你们拿他当棒槌，还有这种欺骗，赤裸裸地刺激普金。普京当然会心存愤恨，不羞辱欧美那是不可能的，2021年普京在乌克兰驻扎军队，美国和法国怕他开火，那就签订了一个秘密协定，就叫做北约绝对不东扩，美国和法国都哭哭啼啼就签字了。这已经极具羞辱了，普京瞬间就把这份协议大大方方公开在网上，你们这些个见风使舵怕这怕那的嘴脸一清二楚就给明明白白了，把国际政治那些心照不宣拿不上台面的操作都给你放出来。这可是，欧洲和美国，全世界所谓最靠前的国家，就玩得这下三滥政治把戏。普京还宣布顿涅斯克和卢甘斯克独立，这更是把欧美那套光说不练假把式给狠狠揍了一把。美国国务卿布林肯还去联合国哭诉，普京要打人了，普京真得要打人了，然后，出台了一些不痛不痒的制裁，给国际社会一个交代，我们尽力了，普京真得要打乌克兰，我们制也制裁了，但你敢说那些制裁有用吗？这是一切旁观者的视角，如果身处乌克兰的老百姓，你让他心里这么想，你们世界上这些个流氓政治，就拿乌克兰跟耍猴一样，一会儿一阵大炮轰隆隆过来，乌克兰这颗璀璨的明珠黯然失色，老百姓流离失所，只不过是你们这些流氓政治家的烂游戏而已。凭什么呢，七哥前两天爆料还说乌克兰对美国说你们不能等到普京把炮弹都打到我头上了才来制裁啊，这不，今天那个炮弹都从头上落到地上了，轰隆隆炸掉了一堆残渣了，那些不痛不痒的制裁有个屁用吗？美国时间的深夜，乌克兰陨落了。布林肯昨天还大喊，俄罗斯估计就今天入侵乌克兰，是的说对了，但你光喊有什么用啊。
 
-Russia’s incursion into Georgia almost 15 years ago
-大约 15 年前，俄罗斯入侵格鲁吉亚
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-24-20.23.37.png)
 
-shows an uncanny trajectory that draws parallels to the current conflict in Ukraine
-显示出与乌克兰当前冲突相似的不可思议的轨迹
+俄罗斯打乌克兰，国内的各种大外宣媒体腿儿都跑得可勤快了，一会儿一个消息，啊乌克兰哪儿哪儿战火，炸了哪儿了，死掉几个人，给人感觉中共国派在乌克兰的记者是多发了三倍工资还是怎么着，个个就跟打了鸡血似的。那消息更新得比炮弹都快。俄罗斯打乌克兰，在习近平的视角下，这是一种联合，对啊，普京打乌克兰，共产党拿下台湾，习近平对这次战略部署还非常保密，几乎没啥人知道，除了许其亮那些军方的几个人。共产党向来就是这样的，党内要扳倒一个人，这个人被抓的前两个小时都在参加电视节目会谈呢，连他的警卫都不知道要抓他。打台湾的事情沿用了共产党党内整人的一整套保密方案，根本没几个人知道具体的战略部署和行动时间。一切都像往常一样平静，习近平甚至要求3个小时就拿下台湾。大家看到俄罗斯打乌克兰，大外宣所有的媒体兴奋的那个点也许来自共产党的千年大业终于要实现了，要打台湾了。国内那些被洗脑的小粉红，还有互联网上那些愚蠢的大师们，台湾就跟他们手里的玩物似的，拿下来台湾，好像自己就能比平时高潮多20秒了，还是能多几次高潮了，还是能还得起几十年的房贷车贷了，还是能有个漂亮媳妇了？根本不知道在兴奋啥。
 
-Shortly after the Summer Olympics in Beijing in 2008
-2008年北京夏季奥运会后不久
+此时的台湾就和乌克兰一样，你们这些所谓世界上的政治大国，都是为了彼此的利益，拿那些小国家当猴耍。欧美国家本质是妥协的，但有抹不开那些虚假的根本毫无用处的所谓的制裁，但凡是个人都能看到你们这些制裁都屁用没有，非要等到死伤一大片，轰炸了，楼塌了，股市跌死了，大宗贸易涨价涨疯，世界金融这么来一次大震荡，好了，这就是能够止损但是不出手的结果。他们这些国家这么玩，那些严重依赖进口的国家，尤其是中共国，你拿什么和人玩？还那么high，一旦世界军事局势开始，到处封路封港口，粮食怎么运进来，中共国虽然到处买粮食，存储了有大概两年的粮食，但谁说共产党能够熬过这段时间的？如果熬过去了，接下来怎么办？不活了吗？习近平在谋求全世界的独裁政治，但如果真到了那个时候，他的俄罗斯亲爹又应该位于怎样的境地？
 
-Moscow recognized the independence of two breakaway regions of Georgia
-莫斯科承认格鲁吉亚两个分离地区的独立
+![](https://assets.gnews.org/wp-content/uploads/2022/02/60257496_401.jpg)
 
-and properly executed a ground campaign under the disguise of liberation
-并以解放为幌子妥善开展地面战役
+乌克兰被入侵的今天，台湾瑟瑟发抖的每一天，这些国际政治流氓们，把全世界搅成一团浆糊。美国总有表态的那一天，到时候山姆大叔高歌一曲，这个世界不能没有我。但是这个世界在最黑暗的时候，不也照样有你吗？你不是时时刻刻都在的吗？这个世界离了谁都可以转，你充什么老大哥？人类历史上所有的战争，都是人类的耻辱，为那些妥协和怨恨，以及不能释怀的欺骗，干一杯，我们就在这样的龌龊人间。真像七哥说的，没用的眼泪，我认为是耻辱的。
 
-That was location where pro Russian separatists were fighting with Georgian authorities
-那是亲俄罗斯分裂分子与格鲁吉亚当局交战的地方
-
-At a time where NATO was considering extending membership to both Georgia and Ukraine
-当时北约正在考虑将成员资格扩大到格鲁吉亚和乌克兰
-
-now, Russia here in NATO expansion East launched a military incursion into Georgia
-当时，俄罗斯在北约向东扩张对格鲁吉亚发动军事入侵
-
-under the disguise of being peacekeepers
-伪装成维和人员
-
-gaining the attention of world leaders who voiced support for Georgia’s territorial integrity
-引起对格鲁吉亚领土完整表示支持的世界领导人的关注
-
-But the United States reportedly concerned using military force
-但据报道，美国担心使用武力
-
-to deter the invasion by Russia
-以阻止俄罗斯的入侵
-
-but opted instead for sending humanitarian aid
-但选择发送人道主义援助
-
-But a turning point was when Georgian President Mikheil Saakashvili engaged the separatists fighters
-但是，当格鲁吉亚总统米哈伊尔-萨卡什维利与分离主义战士
-
-and so called as so called peacekeepers
-和所谓的维持和平人员交战时，出现了转折点
-
-prompting a much larger military response from Russia
-促使俄罗斯做出更大的军事反应
-
-that overwhelmed the Georgian forces
-压倒了格鲁吉亚军队
-
-So this is likely an event known by Ukrainian President Volodymyr Zelenskyy
-所以这很可能是乌克兰总统弗拉基米尔·泽连斯基知道的事件
-
-who is showing restraint in the base of increased aggression
-他在侵略性增加的基础上表现出克制
-
-by Russian backed separatists in his country who may be trying to draw a response
-俄罗斯支持的乌克兰国内分离主义者可能正试图引来回应
-
-In fact, Russian President Vladimir Putin’s decree
-事实上，俄罗斯总统弗拉基米尔·普京的法令
-
-recognizing the independence of eastern Ukraine
-承认乌克兰东部的独立
-
-was nearly identical to the decree signed for the incursion into Georgia back in 2008
-几乎与 2008 年签署的入侵格鲁吉亚的法令相同
-
-So as for the outcome of the Russo Georgian War
-至于俄罗斯格鲁吉亚战争的结果
-
-Russia still maintains control over the two territories sees
-俄罗斯仍然保持对这两个领土的控制
-
-the fate that presidents Zelenskyy and the Ukrainian people are likely trying to avoid in this conflict
-泽伦斯基总统和乌克兰人民在这场冲突中可能试图避免的命运
+扩展阅读：[今天到底是谁的耻辱（一）](https://gnews.org/zh-hans/2058159/)
 
 * * *
 
-Date:02/22/2022
-原视频标题:Russian President Vladimir Putin’s decree recognizing two provinces in Ukraine as independent states is nearly identical to the decree Putin signed before invading Georgia in 2008
-俄罗斯总统弗拉基米尔·普京承认乌克兰两个省为独立国家的法令与普京在 2008 年入侵格鲁吉亚之前签署的法令几乎相同
-原视频日期：2022/02/22
-原视频链接[**https://twitter.com/newsmax/status/1496126653445124099?s=24**](https://twitter.com/newsmax/status/1496126653445124099?s=24)
-任务编号：KE415（3822）
-视频时间段 : 0:00-1:27
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+作者：骄子
+发布：骄子
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，欢迎加入银河系农场。欢迎各农场兄弟姐妹们坐客串门，欢迎订阅我们的我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)、[银河农场–勇气星球](https://gtv.org/user/5f0d36870cac397fcf00154c)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/345-1.jpg)
 
+ 
+
+ 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

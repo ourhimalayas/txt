@@ -2,132 +2,50 @@
 ---
 
 
-## 乌克兰东部的炮击升级
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2057689/)
+## 2/24/2022 国际财经快讯：日本考虑跟其他国家一起释放石油储备, 股市跳水，石油飙升
+` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/2057913/)
 
-[https://gtv.org/video/id=6215ed481408ee3a03a3b245](https://gtv.org/video/id=6215ed481408ee3a03a3b245)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/20220224-1.jpg)[图片来源](https://seekingalpha.com/article/4208695-how-high-can-oil-prices-rise)
+**1.股市跳水，石油飙升**
 
-Chuck Holton (Newsmax Foreign Correspondent)
-查克·霍尔顿（Newsmax 驻外记者）
+[2月24日（路透社） – 全球股市和美国债券收益率周四下跌，而美元，黄金和油价飙升，因为俄罗斯军队向乌克兰的几个城市发射导弹并在其南部海岸登陆。布伦特原油期货周四上涨超过3.5%，自2014年9月以来首次突破每桶100美元。亚洲股市的暴跌似乎在欧洲和美国将继续，大宗商品价格的大幅上涨加剧了对通胀和经济增长风险的担忧；欧洲斯托克50指数期货和德国DAX指数期货在早盘交易中下跌超过3.5%，而富时指数期货下跌2%；标准普尔500指数e-minis下跌2.3%，纳斯达克期货下跌2.8%，使美国指数有望确认其处于熊市。](https://www.reuters.com/markets/europe/global-markets-wrapup-1pix-2022-02-24/)
 
-Now Russia boasts over 200,000 troops along Ukraine’s border
-现在俄罗斯在乌克兰边境拥有超过200,000名士兵
+**2.沙特警告石油短缺冲击**
 
-And this just just out from the Ministry of Defense here
-这个刚刚从国防部出来
+[2020年中共病毒疫情下滑后经济的反弹表明，全球石油需求不仅没有下降，而且距离达到中共病毒大流行前的水平并超过它们只有几个月的时间。本周末，沙特阿拉伯再次对石油和天然气投资不足表示遗憾，并表示在反对石油和天然气的运动中只关注可再生能源是一个错误。对石油和天然气的投资不足有可能造成供应短缺，匆忙的过渡将导致波动性增加和能源价格上涨。”现在，世界正面临着越来越混乱的能源转型。关于能源未来的几个高度不切实际的场景和假设正在给这幅图景蒙上阴影。”能源安全、经济发展和可负担性方面的当务之急显然没有得到足够的重视。除非他们这样做，除非过渡战略中的明显差距得到解决，否则混乱只会加剧，”沙特阿美首席执行官指出。](https://www.zerohedge.com/markets/saudis-warn-oil-shortage-shock-blame-net-zero-underinvestment)
 
-that Russian tanks and armor are taking up attack positions
-俄罗斯坦克和装甲部队正在占据攻击阵地
+**3.日本考虑跟其他国家一起释放石油储备**
 
-They’re no longer just driving in convoys
-他们不再只是在车队中驾驶
+[由于乌克兰问题石油价格将进一步暴涨，日本政府考虑与美国等国一起追加释放石油储备。预计国际能源署（IEA）近期将与日美英等加盟国进行协商，目的是给石油行情降温。据日本经济产业省介绍，截至2021年12月底，日本的石油国家储备能满足146天的需求，石油批发商等的民间储备能满足92天的需求。如果IEA提出请求，日本考虑释放比国家储备更加灵活的民间储备。美国2021年11月决定与日本及韩国等国一起释放石油储备，当时IEA并未提出请求。日本通过把原定2022年出售石油储备（以更换成新石油）的时间提前，释放了储备。](https://cn.nikkei.com/politicsaeconomy/commodity/47743-2022-02-24-13-47-05.html)
 
-but they’re actually spreading out into attack positions along that Southern southeastern border
-但他们实际上正在沿着东南边界展开攻击阵地
+**4.美联储的问题：”一切都与钱有关”**
 
-They are deciding to continue their military drills up in Belarus today
-他们决定今天继续在白俄罗斯进行军事演习
+[美联储存在一个问题。 它从事的是创造货币的业务，但它制定货币政策而不考虑货币本身。因此，在其政策决定导致广义货币创纪录飙升的时代，政策制定者并没有注意到或警惕负面（通胀）后果。美联储公开说货币政策是”错误的”，但在一个月后的下一次政策会议之前却什么都不做，以致处境被动。MFF指数表明，在 dot.com 和房地产泡沫之前，流动性过度增长（即远高于GDP）。主要来源是私营部门信贷的爆炸性增长和流动资产的强劲增长。政策制定者必须将货币增长率限制在远低于名义GDP的水平。这将需要大幅提高官方利率，并大幅缩减资产负债表。](https://www.zerohedge.com/markets/feds-problem-its-all-about-money)
 
-and yesterday they they filmed what I would call a Hollywood worthy training exercise
-而且昨天他们拍摄了我称之为好莱坞式的训练练习
+**5.欧盟拟推新法案，科技巨头可能被迫分享更多数据**
 
-firing off dozens and dozens of ground to air missiles
-发射了数十枚地对空导弹
+[欧盟正在提议立法，强制欧洲的公司之间共享更多的数据，目的是削弱官员们所说的少数大型科技公司对一些商业和工业数据的控制。周三在一项名为《数据法》(Data Act)的议案中提出的新规则，目的是在从智能电器到汽车等联网产品产生的大量非个人数据中获利的竞赛中，帮助小公司跟上大公司的步伐。随着越来越多的设备产生用于控制和监测的数据，如智能家居和工厂的数据，这个问题变得越来越重要。随着5G技术的推广，这类数据量将呈爆炸式增长。](https://cn.wsj.com/articles/%E6%AC%A7%E7%9B%9F%E6%8B%9F%E6%8E%A8%E6%96%B0%E6%B3%95%E6%A1%88-%E7%A7%91%E6%8A%80%E5%B7%A8%E5%A4%B4%E5%8F%AF%E8%83%BD%E8%A2%AB%E8%BF%AB%E5%88%86%E4%BA%AB%E6%9B%B4%E5%A4%9A%E6%95%B0%E6%8D%AE-11645658436)
 
-that would have taken out Ukraine’s entire Air Force about four times over just in those exercises
-仅仅在那些演习中，这将把乌克兰的整个空军摧毁大约四倍
+**6.MFA发布Uni5G技术蓝图，指导企业部署5G专网**
 
-And obviously, that’s a message meant to be sent to the west, not to Ukraine
-很明显，这是一条要发送给西方的信息，而不是给乌克兰
+[致力于赋能垂直行业在全球部署专用蜂窝网络的国际组织MFA今天宣布已完成Uni5G 技术蓝图的制定。初始阶段包括三大蓝图系列，旨在指导垂直行业和企业依据3GPP Release 15规范实施关键功能，以满足其部署对覆盖范围、可靠性、连接密度和延迟的特定要求。通过专注和实施Uni5G蓝图系列中的精选功能，垂直行业可以简化迈向5G专用网络的路径。MFA总裁Mazen Chmaytelli表示：“在全球范围内，制造业、仓库和物流、港口等垂直行业越来越倾向于部署4G和5G专有网络，以获得更大的自动化和数字化优势。通过创建Uni5G技术蓝图并映射这些企业所需的3GPP功能，MFA为这些垂直行业提供了一个可以与装置和设备制造商共享的有价值工具，以获得实现其目标所需的功能。”](http://www.businesswirechina.com/zh/news/49688.html)
 
-and that’s the reason I think people here in Kiev are still going about their business
-这就是我认为基辅的人们仍在继续做他们的事情的原因
+**7.中国产红小豆在日本涨价至21年来高点**
 
-and shopping and doing whatever they normally do
-购物和做他们通常做的事
+[在日本，用于制作日式点心等的中国产红小豆的交易价格上涨约5％，达到约21年来的高点。由于中共病毒疫情下长期物流混乱，日本国内的红小豆库存日益减少。随着全球谷物价格暴涨，产地也坚持强势的定价。不得不高价采购红小豆的部分日式点心厂商开始提高大福（Daifuku，日式糯米团子）等的价格，零售价的上涨压力也越来越大。中国产红小豆在东京的流通价格（天津产，未挑选）保持在2.05万日元/60kg（约合人民币1132.2元），进入2月后上涨了1000日元左右（5％）。涨幅仅次于2021年6月，自2001年以来首次突破2万日元大关。2020年产红小豆因产地气候不正常造成减产，导致供应减少。现在2021年产红小豆刚上市，行情就不断上涨。](https://cn.nikkei.com/industry/agriculture/47715-2022-02-24-04-59-56.html)
 
-because they understand that this is a conflict between the West and between Russia
-因为他们明白这是西方与俄罗斯之间的冲突
+**8.全球债务首次超过300万亿美元**
 
-Unfortunately, they’re the political football in the middle
-不幸的是，他们是中间的政治足球
+[国际金融协会（IIF）2月23日发布的《全球债务监测》报告显示，2021年全球债务余额达到303万亿美元，创历史新高。这是全球债务总额首次超过300万亿美元。其背景在于，为了促进经济从新冠疫情中复苏，以新兴国家为中心，各国的借款增加。国际金融协会的数据显示，2021年全球债务比2020年增加10万亿美元。债务占世界国内生产总值（GDP）的比重为351％，比2020年的360％有所降低。该协会针对债务占GDP比重下降的原因分析称，“经济复苏和通货膨胀率上升发挥了作用”。](https://cn.nikkei.com/politicsaeconomy/epolitics/47731-2022-02-24-08-55-10.html)
 
-Shaun Kraisman （Newsmax host)
-肖恩·克莱斯曼 (Newsmax 主持人）
+**9.今天截止5：00喜币价格24小时变化-1.50%**
 
-Yeah, again, there have been talks at the people you spoken to though again on the ground
-是的，再次与你交谈过的人进行了会谈，但又是在地面上
+[密翻金融组2月24日5：00报道，喜币（HCN）最后价格为42.221美元，24小时变化-1.50%， 24小时最高值为43.497美元（HDO），24小时最低值为42.200美元(HDO)，24小时交易量为70,550.426HCN。](https://himalaya.exchange/trading?coinpair=HCN/HDO)
 
-and some you see and I continue to point out people just walking around as normal yet
-还有一些你看到的，我继续指出人们只是像往常一样四处走动
+评论： 今日HCN价格依旧处于调整之中，日交易量较昨天进步缩小。在喜抵押和贷款业务开展之前，都是购买的时机，相当于动荡的金融市场，喜联储一家风景独好。
 
-you’ve got announcement of a potential kill list there and Ukraine
-已经宣布了一个潜在的杀戮名单，而在乌克兰
-
-Doesn’t seem like a lot of fear on the ground, at least in Kiev
-现场似乎没有太多恐惧，至少在基辅
-
-Chuck Holton
-查克·霍尔顿
-
-You know, there there have been so much disinformation
-你知道，有这么多的虚假信息
-
-that’s put out by the Russian media and Russian Foreign Service
-这是俄罗斯媒体和俄罗斯外交部发布的
-
-that they are saying that they’re capturing teams of Ukrainian terrorists inside the Donetsk region
-他们说他们正在顿涅茨克地区抓捕乌克兰恐怖分子小队
-
-actually, inside Russian territory on the other side of the occupied zone
-实际上，在占领区另一边的俄罗斯领土内
-
-and that they say they just captured some military infantry vehicles from Ukraine
-他们说他们刚刚俘获了一些来自乌克兰的军用步兵车辆
-
-that drove all the way across somehow that occupied zone
-以某种方式一路驶过被占领的区域
-
-and were captured as they were crossing into Russia
-而且在他们进入俄罗斯时被俘
-
-The people here in Kiev understand that there’s not one frame or one word
-在基辅这里的人明白，没有一个框架或一个词
-
-that comes out of that, the Russian media that is true
-由俄罗斯媒体而来的说的是真的
-
-And in talking with people who have been in contact with folks inside the occupied zones
-并与与占领区内的人有过接触的人交谈
-
-they know it too, and so, again
-他们也知道, 所以，再一次
-
-until the tanks are rolling and the bombs are falling
-直到坦克滚滚而来，炸弹落下时
-
-people here gonna keep on going
-这里的人会继续按平常做事
-
-* * *
-
-Date:02/21/2022
-原视频标题:Shelling in eastern Ukraine escalates
-乌克兰东部的炮击升级
-原视频日期：2022/02/21
-原视频链接[**https://twitter.com/newsmax/status/1495782265565110272?s=24**](https://twitter.com/newsmax/status/1495782265565110272?s=24)
-任务编号：KE413（379
-视频时间段 : 0:00-2:25
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-文新
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+By 【秘密翻译组-金融组】
+作者：和理非
 
  
 
