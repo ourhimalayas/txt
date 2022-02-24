@@ -2,34 +2,27 @@
 ---
 
 
-## 德大陆集团无视中共施压，继续投资立陶宛
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2056537/)
+## 浅析中共以“功能性文盲”维护其罪恶统治
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2056674/)
 
-作者：纽约香草山教育部 Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-波罗的海国家立陶宛因欢迎台湾设立“台湾代表处”受到中共多方打压，中共甚至威胁德国跨国公司大陆集团断绝和立陶宛的联系。
-![Continental Automotive achieves respectable result in Q2, 2021 -  Manufacturing Today India](https://www.manufacturingtodayindia.com/cloud/2021/11/17/Gx1fZjvL-Continental-2.jpg)https://www.manufacturingtodayindia.com/
-大陆集团在立陶宛拥有多个生产出口零部件的生产设施，中国是大陆集团汽车零部件的最大进口国之一。
+撰稿：铁浮图
+![](https://assets.gnews.org/wp-content/uploads/2022/02/241-2.png)图片来源于网络
+最近几期文贵先生大直播谈到教育问题，相信列位看官也会注意到一个奇怪的现象：中共国凡是有本事的均表现在：别人发明我来改进，然后经过优化变成我的，也就是中共国人无论科研还是学术表现为“从0到1”不行，而“从1到99”则人才辈出。
 
-据路透社报导，在中共施压的情况下，德国大陆集团一名高管透露，公司仍将继续在立陶宛投资一家工厂。
+这源自中共式教育试图抑制或消灭国人的一个核心能力，即：培养学生发现有价值问题的能力。
 
-外界普遍认为中共干预大陆集团等私营公司的业务是非法行为。中共此举不但将跨国公司拖入外交争端，还将自己置于与欧盟冲突的轨道上。
+因为中共信仰马列邪教，奉唯物论和进化邪说为经典，并经过本土化改进之后，成为极其扭曲和漏洞百出的谎言。
 
-欧盟于1月在美国、澳大利亚和台湾的支持下，就北京涉嫌限制立陶宛的贸易在世界贸易组织对中国提起了贸易诉讼。
+所以中共为防止科教界戳破其谎言，中共教育部则以应试升学为牢笼、以标准答案为手段、以党政权威为胁迫，彻底消灭教师、学生、家长中但凡有点独立思考能力的人。
 
-参考链接：[Continental to keep investing in Lithuania despite China pressure](https://financialpost.com/pmn/business-pmn/continental-to-keep-investing-in-lithuania-despite-china-pressure/wcm/2fe68dec-11b5-48a0-b5d1-0379ec7e0be6/amp/)
+在教育界之外的社会文化领域，中共以推行功能性文盲来消除有独立思考能力的人，所谓功能性文盲即：受众被中共洗脑后，中共以另一种语音或者形式来印证大众已经接收的中共观点，具体手段有推行所谓畅销书籍、洗脑大片、砖家叫兽、弱民鸡汤等。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+功能性文盲对具有独立思考能力和社会生活经验的中青年大众杀伤力极大，会有“你看，果然不出我之所料”；“你看专家学者已经从科学角度证实了我的想法”；“你看国家就按我认同的想法实施”等，到此凡与之相左的皆被受众视为“异端邪说”，这就解释了为什么传播爆料革命时会遇到，越是有一定文化或越是有一定阅历的人，确越是冥顽不化的现象。
 
-编辑/校正/发稿：呼吸的雾霾（文小呼吸）
+因此，只有消灭中共，才能解放思想，才能唯真唯善，才能实现中华民族伟大复兴！
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,30 +2,28 @@
 ---
 
 
-## 澳大利亚计划在南极洲投资制约中共
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2056373/)
+## 法国将日本指定为战略伙伴国
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2056582/)
 
-作者：首尔天池农场-zzballack
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月21日，据有关媒体报道，为了制衡中共在南极洲的强势和咄咄逼人的行为，澳大利亚总理斯科特-莫里森发布声明表示，澳州联邦政府将在未来10年内耗资8.04亿美元强化和升级澳大利亚在南极洲的科研活动。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-23-下午11.15.01.png)
-据悉，早在1961年10月，包括澳大利亚和中共国在内的54个国家曾共同签署了《南极条约》及其他的相关协定，这些协议后来被称为《南极条约体系》。该体系旨在约束各国在南极洲大陆上的各类活动，包括将南极洲作为科学保护区，承认科学调查自由，但禁止在南极洲进行军事或采矿活动，同时限制捕鱼行为。然而，澳洲智库洛伊国际政策研究所在最近发表的一份报告中指出，中共政府正在试图推动“扩大解释《南极条约体系》的规定”。 对此，洛伊研究所解释道，中共近几年持续探测南极洲的渔业和旅游资源，其在《南极条约体系》内表现得越来越强势，并且极有可能在当地寻求获取西方技术的方法。另一方面，人们担心中共未来很有可能率领一些国家寻求南极洲上只有中共有能力开发的矿产资源，为自己谋取福利。
+撰稿：东京樱花团/百花李香
 
-参考链接：[Australia makes a BIG move against China – in Antarctica: PM forks out $800MILLION to counter the Communist power’s growing influence on the icy continent](https://www.dailymail.co.uk/news/article-10534143/The-battle-Antarctica-Australian-PM-Scott-Morrison-spends-800million-counter-China.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/法国将日本指定为战略伙伴国.jpg)[图片来源](https://gnews.org/wp-admin/post-new.php#:~:text=THE%20DEBATE-,Macron%20in%20Japan%3A%20Upgrading%20the%20Franco%2DJapanese%20Strategic%20Partnership%20in%20the%20Indo%2DPacific,-Japan%20stands%20out)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+法国外交部22日在其修订的印度-太平洋战略中，将澳大利亚从印度-太平洋战略中的“伙伴国家”降级为“其它双边伙伴国家”，这是因为在建立美英澳安全框架AUKUS的过程中，澳大利亚放弃了一项潜艇开发计划。
 
-总编：Irene木木
-编辑：谐趣园
-校正/发稿：呼吸的雾霾（文小呼吸）
+日本取代了澳大利亚，被指定为继印度之后的第二个战略伙伴国。根据修订版，澳大利亚在AUKUS上的问题，两国将在“个案”基础上继续保持双边关系。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+今年上半年担任欧盟议长主席国的法国22日在巴黎举行了部长级会议，旨在加强欧盟与印太地区的关系。法国在2018年先于欧盟推出了印太战略，为配合这次部长级会议，法国修改了自己的战略。2018年以来，澳大利亚一直是与印度并列的最重要伙伴国。
+
+信息源：
+
+[フランス、日本を戦略上パートナー国に　オーストラリアを格下げ](https://news.yahoo.co.jp/articles/69daa5b03f6e3311b77b371507d57d33ce044cc2#:~:text=)
+
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

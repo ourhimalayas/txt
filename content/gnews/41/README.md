@@ -2,38 +2,24 @@
 ---
 
 
-## 韩国单日新增确诊病例突破17万例 再创历史新高
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2055901/)
+## 中国｜赤化佛教受肯定 班禅十一世两会前表决心：拥护以习为核心的党中央
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2055953/)
 
-作者：首尔天池农场—追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-5.png)
-据韩媒2月23日报道，韩国中央检疫对策本部宣布，截至今日（23日）零时，新增确诊病例17万1452例，首次突破17万大关，创历史新高。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2198.png)
-截至日前，韩国的疫苗首针接种率为87.27%，完全接种率为86.30%，第三针加强针接种率59.65%。从15日开始给免疫力低下人群接种第四针剂。
+**撰文/ 港台前线｜发布日期/ 24/02/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/赤化佛教受肯定-班禪十一世兩會前表決心：擁護以習為核心的黨中央-1.jpg)
+**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
 
-完全接种率已经远超过群体免疫的70%，第三针加强针也快达60%，但感染人数却剧增。
+中共党媒新华社报道，两会前夕，中共中央统战部部长尤权昨天（23日）在北京会见第十一世班禅额尔德尼·确吉杰布。
 
-参考链接：[韓國日增新冠確診病例首破17萬例](http://news.cnwest.com/tianxia/a/2022/02/23/20332046.html)
+尤权向班禅和藏传佛教界人士祝贺藏历水虎新年，并对班禅近年在各方面取得的进步予以肯定，希望他继续深入学习中国共产党百年奋斗的历史经验，爱国爱教、勤于实践，在推进藏传佛教中国化上发挥更大作用，同时严于律己、谦虚谨慎，不辜负党中央的培养、信众的拥护、宗教界的爱戴。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+班禅亦向尤权敬献哈达，表示将坚决拥护以中共总书记习近平为核心的党中央，坚持藏传佛教中国化方向，努力在促进藏传佛教与社会主义社会相适应上作出新成绩。
 
-总编：zhong
-编辑：Lakeman文仁 
-校对/发稿：小野貓（文凱琳）
+十一世班禅颇受到中共历届领导人的重视与厚待，自1995年起，中共三任总书记江泽民、胡锦涛和习近平都接受过班禅拜见。
 
-**更多资讯，更多关注**
+根据外界普遍认知，**无论是藏传佛教抑或是其他佛教，佛教的基本教义应该是以践行并弘扬佛祖释迦牟尼佛训为修法核心。**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-5.png)
-
+来源｜[人民日报](http://cpc.people.com.cn/n1/2022/0224/c64094-32358635.html)
 
  
 

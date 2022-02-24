@@ -2,54 +2,79 @@
 ---
 
 
-## 八九六四的痛苦记忆让七哥最欢愉时阳痿并一直痛到现在
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2056532/)
+## 参议员乔什·霍利:中共国 想要吞并台湾,乔拜登最好集中注意力
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2056667/)
 
-G-TV视频链接：[https://gtv.org/video/id=62123f611408ee3a03a239de](https://gtv.org/video/id=62123f611408ee3a03a239de)
+参议员乔什·霍利： 乔拜登最好集中注意力。[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 想要吞并 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click)，然后再将其力量投射到世界各地——所有这些都是为了干掉美国。拜登还没有做好准备。差远了 【转环球时报：台湾急于引起乌克兰问题的关注。但尽管边界存在争议，但乌克兰主权没有争议。台湾主权从未存在过。还说台湾政权迟早会被废除】
 
-**郭文贵先生：**我今天说讲这个故事，我想说第一个我人生的秘密，我都告诉所有的战友，我也想战友们知道，人和畜生的不一样，因为你有情感。
 
-别忘掉你是个父亲的时候，你有女儿的时候，你做事情就不要过了那个线，真是这样的；另外一个，有的人她就不是你那道菜，他真的是就不行。
 
-就是说这个小孩太用心，太聪明了，让你感觉这个人的这种设计，把你变成个女的了，就我成了被设计这个人了，你整的屋，全屋这么设计了，是吧？布置那么多鲜花，那么认真是吧？虽然是我们花钱，我秘书花钱是吧？
+> Joe Biden better get focused. [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) wants to gobble up Taiwan and then project its power worldwide – all in an effort to take down the United States. And Biden isn’t ready. Not even close [https://t.co/Y489ThyWJ2](https://t.co/Y489ThyWJ2)
+> — Josh Hawley (@HawleyMO) [February 23, 2022](https://twitter.com/HawleyMO/status/1496523282358714374?ref_src=twsrc%5Etfw)
 
-但是你设计到我对你恐惧的程度了，不真实，所以说是感情有交易的，背后有目的的背后不会好的。除非你吃了李友牌什么“野狗丸”。
 
-第三，任何人在正义和良知、良心面前，就我说梅地亚宾馆，我可太知道那是什么地方了。你会发现“八九六四”这个东西一旦提起，你还有性的能力吗？你绝不可能。
 
-信仰、人性和人的本能，是一个人生存下来基本的东西，很多人都忽视了。在这个时候你知道七哥最想的是什么？疫苗灾难、病毒肆虐世界、美国经济危机。我总在想问这些人——王八蛋们一句话，你们打了疫苗之后，有没有想过当年“八九六四”；还有你们的经济危机这帮王八蛋，你们想过当年“八九六四”支持共产党给我们带来的痛苦是多少年吗？
+前国务卿迈克.蓬佩奥： 弗拉基米尔·普京没有改变。 美国领导层发生了变化。 只要美国处于不利地位，普京的侵略就会继续。 【附福克斯采访蓬佩奥：拜登未能兑现阻止俄罗斯扩张的竞选承诺】
 
-我们到今天都受残害，有家不能回，父母不能想见，亲人不能团聚。这难道我们只能是去灭共吗？没有西方资本主义和邪恶的沼泽地对共产党的支持，我们不可能在我最欢愉的时候能阳痿。
 
-没有“八九六四”这种痛苦的记忆，它让我成就了我，但是让我一直痛到现在，真的是《塞北的雪》里边，现在真的感觉搭配轰轰烈烈，满山遍野。我更加相信的是更多的死去的英灵和“八九六四”的这些，我绝对相信我们人世间是有鬼魂的。
 
-字幕来源：[2022月2日6日 《文贵大直播》全文字版](https://gnews.org/zh-hans/1971450/)
+> Vladimir Putin didn't change. American leadership changed. 
+> 
+> And Putin's aggression will continue so long as America is on its back foot. [pic.twitter.com/SLAaNwmag6](https://t.co/SLAaNwmag6)
+> — Mike Pompeo (@mikepompeo) [February 23, 2022](https://twitter.com/mikepompeo/status/1496567220821966849?ref_src=twsrc%5Etfw)
 
-编辑整理：Davis；
 
-字幕文件制作：大好河山；
 
-视频制作及上传：Cindy；
+参议员玛莎.布莱克本： 拜登政府在俄罗斯和共产主义中国问题上表现出无能。
 
-G-News发布：小满；
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+> The Biden administration has demonstrated incompetence when it comes to Russia and Communist China.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [February 23, 2022](https://twitter.com/MarshaBlackburn/status/1496559848489631747?ref_src=twsrc%5Etfw)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ)、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A)、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+参议员瑞克·斯科特： 乔·拜登的司法部更关心将父母和卡车司机错误地贴上国内恐怖分子的标签，而不是阻止 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 监视美国人和保护我们的国家安全。 【附福克斯新闻：拜登司法部在种族偏见的抱怨中取消对抗中共国的国家安全倡议】
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/)；
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+> Joe Biden’s [@TheJusticeDept](https://twitter.com/TheJusticeDept?ref_src=twsrc%5Etfw) is more concerned with wrongfully labeling parents & truckers as domestic terrorists than stopping Communist China from spying on Americans & protecting our national security. [https://t.co/8GnH94qUS1](https://t.co/8GnH94qUS1)
+> — Rick Scott (@SenRickScott) [February 23, 2022](https://twitter.com/SenRickScott/status/1496624725765808132?ref_src=twsrc%5Etfw)
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
+
+参议员汤姆·科顿： 中共盗窃美国数万亿知识产权，把在美留学生变成外国间谍。然而，拜登政府宣布取消负责打击这种破坏活动的倡议，因为他们声称这是种族主义。 【附科顿参议员官网就司法部结束“中共国倡议”的声明】
+
+
+
+> The CCP has stolen trillions in U.S. intellectual property & turned students studying in the U.S. into foreign spies. Yet the Biden administration announced it’s cancelling the initiative tasked with combatting this sabotage because they claim it’s racist.[https://t.co/76FaaYRUxu](https://t.co/76FaaYRUxu)
+> — Tom Cotton (@SenTomCotton) [February 23, 2022](https://twitter.com/SenTomCotton/status/1496624469179355140?ref_src=twsrc%5Etfw)
+
+
+
+参议员马可·卢比奥： 我希望我们能从 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click) 危机中学到宝贵的一课 我们需要自己生产的能源，重新靠自己制造，而不是依赖俄罗斯和 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)
+
+
+
+> I hope we are learning a valuable lesson with [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) 
+> 
+> We need to produce our own energy, make things again & not depend on [#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw) & [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/EnCmgVzL70](https://t.co/EnCmgVzL70)
+> — Marco Rubio (@marcorubio) [February 24, 2022](https://twitter.com/marcorubio/status/1496655883782270977?ref_src=twsrc%5Etfw)
+
+
+
+参议员马可.卢比奥：
+
+[#俄罗斯](https://twitter.com/hashtag/%E4%BF%84%E7%BD%97%E6%96%AF?src=hashtag_click) [#Russian](https://twitter.com/hashtag/Russian?src=hashtag_click) 入侵 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click) [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hashtag_click) 现在正在进行中
+
+在未来的几个小时内 [#俄罗斯](https://twitter.com/hashtag/%E4%BF%84%E7%BD%97%E6%96%AF?src=hashtag_click) [#Russia](https://twitter.com/hashtag/Russia?src=hashtag_click) 将 – 对防空系统进行打击 – 采取行动从 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click) 东部切断 [#基辅](https://twitter.com/hashtag/%E5%9F%BA%E8%BE%85?src=hashtag_click) [#Kyiv](https://twitter.com/hashtag/Kyiv?src=hashtag_click) – 采取行动切断东部接触线上的乌克兰军队，以防止他们后退保卫基辅
+
+
+
+> The [#Russian](https://twitter.com/hashtag/Russian?src=hash&amp;ref_src=twsrc%5Etfw) invasion of [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) is now underway
+> — Marco Rubio (@marcorubio) [February 24, 2022](https://twitter.com/marcorubio/status/1496667918490382343?ref_src=twsrc%5Etfw)
+
+
 
  
 

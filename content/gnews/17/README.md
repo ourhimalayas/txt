@@ -2,26 +2,26 @@
 ---
 
 
-## 战斗室指责政府用权力和控制来掩盖错误
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2056371/)
+## 德大陆集团无视中共施压，继续投资立陶宛
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2056537/)
 
-作者：纽约磐石农场—在远方
+作者：纽约香草山教育部 Naughty(文行)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月22日，郭文贵先生在盖特平台上转发班农战斗室的一则视频显示，参加了加拿大渥太华抗议活动的保罗-亚历山大博士指出，政府毫不讲求科学，其如今的所作所为只是为了权利和控制，为了掩盖他们所犯的错误。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-23-下午11.14.23.png)
-亚历山大博士解释道，美国和加拿大的公共卫生官员关于中共病毒疫情所采取的政策，从实施的第一天起，就是完全无效的。更甚者，这些措施，尤其是中共病毒疫苗，非但对防控中共病毒无用，还对民众有害。
+波罗的海国家立陶宛因欢迎台湾设立“台湾代表处”受到中共多方打压，中共甚至威胁德国跨国公司大陆集团断绝和立陶宛的联系。
+![Continental Automotive achieves respectable result in Q2, 2021 -  Manufacturing Today India](https://www.manufacturingtodayindia.com/cloud/2021/11/17/Gx1fZjvL-Continental-2.jpg)https://www.manufacturingtodayindia.com/
+大陆集团在立陶宛拥有多个生产出口零部件的生产设施，中国是大陆集团汽车零部件的最大进口国之一。
 
-然而，特鲁多政府虽然知道自己已经失败，但他并不想放弃权力。为此，政府只能派出警察镇压卡车司机与和平抗议者。在此过程中，他们不惜侵犯民众的权利，甚至大肆破坏践踏民主。
+据路透社报导，在中共施压的情况下，德国大陆集团一名高管透露，公司仍将继续在立陶宛投资一家工厂。
 
-亚历山大博士也公开表示，世界必须彻查包括辉瑞和莫德纳在内的制药公司，他们为了推行疫苗所采取的措施导致了人类即将面临的疫苗大灾难。
+外界普遍认为中共干预大陆集团等私营公司的业务是非法行为。中共此举不但将跨国公司拖入外交争端，还将自己置于与欧盟冲突的轨道上。
 
-参考链接：[https://www.gettr.com/post/pw0dsnb0f1](https://www.gettr.com/post/pw0dsnb0f1)
+欧盟于1月在美国、澳大利亚和台湾的支持下，就北京涉嫌限制立陶宛的贸易在世界贸易组织对中国提起了贸易诉讼。
+
+参考链接：[Continental to keep investing in Lithuania despite China pressure](https://financialpost.com/pmn/business-pmn/continental-to-keep-investing-in-lithuania-despite-china-pressure/wcm/2fe68dec-11b5-48a0-b5d1-0379ec7e0be6/amp/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-总编：Irene木木
-编辑：静言
-校正/发稿：呼吸的雾霾（文小呼吸）
+编辑/校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

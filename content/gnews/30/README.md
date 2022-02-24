@@ -2,24 +2,24 @@
 ---
 
 
-## COVID-19 最新情报｜罗马尼亚最大足球具乐部宣布禁止接种疫苗的球员参赛及效力
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2056171/)
+## 美国开始对俄罗斯执行经济制裁
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2056274/)
 
-**撰文｜疫情关注组 / 发布时间｜24/02/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/羅馬尼亞最大足球俱樂部宣佈禁止接種疫苗的球員參賽及效力.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：**[**https://gettr.com/post/pl6k0218bf**](https://gettr.com/post/pl6k0218bf)**)**
+加拿大温哥华杨帆农场 枫叶快讯
 
-罗马尼亚规模最大的足球具乐部 Steaua Bucharest 日前宣布，将全面禁止接种过 Covid-19 疫苗的球员再为球队效力，原因是接种过疫苗的球员已经“失去力量”并“开始倒在赛场或死在医院”。
+采编：风云小哥             编译撰稿：自由法兰西
+![拜登制裁亲俄地区](https://d.newsweek.com/en/full/1989207/biden-sanctions-pro-russia-regions.jpg?w=790&amp;f=b40ec619567d364c5febda1231b592e4)
+据美国媒体【每周要闻】2月21日报道，在总统普京承认乌克兰两个亲俄地区独立之后，美国总统拜登当天就宣布了对俄罗斯实施新的投资、贸易和金融制裁，以此剥夺其“从公然违反国际法中再获利”的机会。
 
-该具乐部的老板，商人兼政治家吉吉·贝卡利（Gigi Becali）表示，他也不再允许接种疫苗的球员参加比赛，他不愿再看到原本伟大的球员渐渐的变得虚弱，他更不忍心再看到一个个年轻健康的球员死去。
+报道称，普京对乌克兰东部［顿涅茨克］和［卢甘斯克］地区亲俄分裂势力的支持以及在该地区边境发起的军事冲突，不仅加剧了整个欧洲的紧张局势，也是对欧美联盟的挑衅。同时，英国政府当天也宣布，将联合美国对俄入侵乌克兰发起制裁。
 
-贝卡利强调，接种过 COVID-19 疫苗的人会倒下，会死在医院里，而那些拒绝接种疫苗的人却不会。他指出，“有人可能会笑话我，但我是对的，如果你看到CFR（CFR Cluj）和 Rapid（Rapid Bucuresti ）的球员们倒在地上，呼吸困难，你就该知道所有接种疫苗的人都会失去力量！”
+评论指出，俄罗斯近日对乌克兰的一系列军事入侵行动，是总统普京和中共党魁习近平此前在北京冬奥会期间，密谋共同发动战争计划的一部分。普习双方企图通过同时占领乌克兰和台湾，来对抗欧美制裁并延续各自在国内岌岌可危的政治生命。
 
-贝卡利的这番言论不意外的引起了该国政府的强烈反感。当局在脸书官方页面 RO Vaccinare 上发布一份最新声明，反驳称“足球运动员在接种了 COVID-19 疫苗后不会失去力量。”并指出，“从医学和科学的角度来看，没有任何研究可以支持罗马尼亚某位人士的奇特观点。”
+校对编辑：硫酸羟氯喹64
 
-不过，仍然有不少当地民众支持贝卡利对疫苗的看法，他们认为，政府的声明恰恰反映了他们很心虚。
+发稿：青青
 
-来源｜[推特](https://twitter.com/Emishor/status/1496447904617312259?s=20&amp;t=_vOooKK2zDsQcuQM5gW2Pw)、[ESPN](https://www.google.com.hk/url?sa=t&amp;rct=j&amp;q=&amp;esrc=s&amp;source=newssearch&amp;cd=&amp;ved=2ahUKEwjLht_1sJf2AhXiD0QIHb9KAJoQxfQBKAB6BAgQEAI&amp;url=https%3A%2F%2Fwww.espn.com%2Fsoccer%2Ffcsb%2Fstory%2F4600728%2Fromanias-fcsb-deny-owners-suggestion-to-not-pick-vaccinated-players&amp;usg=AOvVaw2UZFvqTNUpQEbDKVhmEXsf)
+新闻来源： [https://www.aljazeera.com/news/2022/2/21/former-us-secretary-of-state-mike-pompeo-to-visit-taiwan](https://www.aljazeera.com/news/2022/2/21/former-us-secretary-of-state-mike-pompeo-to-visit-taiwan)
 
  
 
