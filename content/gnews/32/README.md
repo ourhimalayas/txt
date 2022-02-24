@@ -2,44 +2,52 @@
 ---
 
 
-## 蓬佩奥解析当下中俄关系 习近平会破坏世界秩序
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2059361/)
+## 新西兰小区病例新增首破3000例检测阳性率达12.2%
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2059440/)
 
-作者：日本方舟农场 – Andy5
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image012-1.jpg)
+新西兰卫生部2月23日（周三）中共病毒疫情通报。2月23日）下午，卫生部发布通报称，新西兰小区新增3297例中共病毒病例。
 
+这是新西兰日增病例数首次超过3000例，再次创下疫情暴发以来的新高。
 
+过去24小时，全国共进行了27550次检测。新西兰卫生部对阳性率进行通报：过去24小时的检测阳性率为12.2%。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+新增病例中，奥克兰1729例，北地40例，怀卡托297例，丰盛湾157例，湖区54例，霍克湾18例，MidCentral 56例，旺格努伊5例，塔拉纳基（Taranaki）30例，Tairāwhiti 16例，Wairarapa 16例，首都和海岸地区（Capital and Coast）123例，Hutt Valley 28例，尼尔森/马尔堡85例，坎特伯雷176例，南坎特伯雷7例，南部地区455例，西海岸3例。
 
+新西兰现有住院病例179例，平均住院年龄51岁，1人在重症监护/加护病房。
 
+此外，新西兰今日边境新增输入型病例8例。
 
-22日，美国前国务卿蓬佩奥在接受采访时，针对目前的乌克兰局势，分析了目前的中俄关系。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-14.jpg)
-蓬佩奥表示，中共和俄罗斯的同盟关系究竟如何，要取决于西方对他们的态度和行动。目前来看，二者在很大程度上还只是虚张声势，因为虽然双方都认为可以从合作中获得各自的利益和机会，但他们之间还有多方面的利益冲突。不过，他也警告说，美国需要立刻团结西方国家，阻止普京的进一步行动，否则，任由中俄继续下去，整个世界就可能演变成以俄罗斯、中共价值观为主导，人的尊严和安全被排在最后的社会模式。
+过去21天，新西兰有活跃病例21648例，迄今全国累计确诊病例数为38951 例。
 
-最后，蓬佩奥特别指出，将要破坏整个世界秩序的不是普京，普京充其量只是一个配角，真正会最终破坏世界秩序的一定是习近平。
-
-参考链接：
-[20220222蓬佩奧國務卿接受採訪](https://www.gettr.com/post/pwae8d520d)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-
-总编/编辑：zhong
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+据报导，整个奥克兰的检测站都人满为患，全国许多地方的全科医生诊所也感受到了压力。奥克兰和北区接受检测的人中，约有10%的人等待超过5天才得到结果，中位数时间为2天。与此同时，在Middlemore医院急诊科就诊后检测呈阳性的人数激增，这其中包含两个月大的婴儿和90多岁的体弱病人。
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
 
+
+
+**推出问题，敲出真相，爆料在路上！**
+
+**请关注和订阅我们的以下账号：**
+
+**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+
+**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+
+**玫瑰看新闻YOUTUBE账号**：
+
+**玫瑰看新闻**
+
+**黑森林的故事**
+
+**ROSE NEWS**
+
+**【玫瑰看新闻】推特账号**：
+
+**ROSE NEWS (@ROSENEWS4)A**
 
  
 

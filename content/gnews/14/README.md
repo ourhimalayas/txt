@@ -2,77 +2,107 @@
 ---
 
 
-## 有声|魔鬼的圈套——评杨贝贝和她的所谓采访（七）（完结篇）
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2059590/)
+## 接种疫苗导致人体完全丧失免疫力 患上癌症或艾滋病
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2059669/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-欲了解之前内容，请参看：
+作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
 
-[魔鬼的圈套——评杨贝贝和她的所谓采访（一） – GNEWS](https://gnews.org/zh-hans/1935024/)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-[魔鬼的圈套——评杨贝贝和她的所谓采访（二） – GNEWS](https://gnews.org/zh-hans/1940251/)
+乌克兰裔美国医生，Zelenko博士最近在Thrive Time Show上接受Clay Clark的采访时说，完全接种疫苗的人正在经历免疫系统缺陷综合性疾病。
 
-[魔鬼的圈套——评杨贝贝和她的所谓采访（三） – GNEWS](https://gnews.org/zh-hans/1953518/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-24_23-48-39.png)
 
-[魔鬼的圈套——评杨贝贝和她的所谓采访（四） – GNEWS](https://gnews.org/zh-hans/1976661/)
+免疫系统缺陷综合性疾病，英文Acquired immunodeficiency syndrome，简称AIDS，俗称艾滋病。AIDS原本是由一种人类免疫缺陷病毒 (human immunodeficiency virus ，简称HIV病毒) 引起的慢性、可能危及生命的疾病。HIV病毒通过杀死人体淋巴系统的杀伤性T细胞，削弱和破坏人体免疫系统，使人最终完全失去抵抗感染和疾病的能力。
 
-[魔鬼的圈套——评杨贝贝和她的所谓采访（五） – GNEWS](https://gnews.org/zh-hans/2010678/)
+Zelenko博士说，打了COVID-19病毒疫苗的人，患有艾滋病，但患病途径又不是由HIV病毒引起，而是由于疫苗导致的免疫缺陷综合征。 这就是他和其他医生自疫苗接种以来看到，使人衰弱的疾病如癌症和自身免疫性疾病，以及其他“机会性感染”和心脏病发作和中风等疾病大量增加的原因。
 
-[魔鬼的圈套——评杨贝贝和她的所谓采访（六） – GNEWS](https://gnews.org/zh-hans/2022873/)
+2月21日，一篇题为《[Psst… The Covid-19 Vaccines cause AIDS… Pass it on…](Psst…%20The%20Covid-19%20Vaccines%20cause%20AIDS…%20Pass%20it%20on…)》的文章，利用英国健康安全机构（[UK Health Security Agency](https://www.gov.uk/government/organisations/uk-health-security-agency)）发布的2022年第3周、第5周和第7周，每周疫苗监测报告（COVID-19 vaccine surveillance report）很好的说明了，接种三剂或加强针的人群，与从未接种疫苗的人相比，身体免疫力持续下降。
 
-注意：本文中出现的《规范》指的是《美国职业新闻记者协会(SPJ)职业伦理规范》（SPJ Code of Ethics）。
+下图根据2022年第三周，[COVID-19 vaccine surveillance report: 20 January 2022 (week 3)](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1049160/Vaccine-surveillance-report-week-3-2022.pdf)第38页数据，绘制的21年12月26日至22年1月16日期间，英格兰接种三针或加强针疫苗和未接种疫苗人群中，每10万人的Covid-19感染确诊率。
 
-先看一段视频。这是Vice Media杨贝贝继21年12月抛出所谓对文贵先生的采访之后，22年1月国会事件一周年之际再次抛出的一个所谓采访视频。这个采访是一年前做的，但却选择在一年后播出、与采访文贵先生的视频成为呼应，用心险恶，用意深远啊！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-385-1.png)
 
-不仅如此，他们的计划还包括北京冬奥运。回看冬奥运，谷氏母女也好，彭帅事件也好，裁判黑哨也好，荒唐的隔离也好，所有这些最终汇聚到一个点上，就是引导全世界仇视华人。这与杨贝贝的两个采访视频是关联的。这两个采访是他们布下的天罗地网的一部分。
+下图根据2022年第五周，[COVID-19 vaccine surveillance report: 3 February 2022 (week 5)](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1052353/Vaccine_surveillance_report_-_week_5.pdf)第47页数据，绘制的22年1月9日至22年1月30日期间，英格兰接种三针或加强针疫苗和未接种疫苗人群中，每10万人的Covid-19感染确诊率。
 
-以下为方便起见，把这段采访视频简称为“一周年采访”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-386-1.png)
 
-如前文所述，Vice Media杨贝贝所做的虚假的文贵先生采访视频，使用了诸多手段：
+下图根据2022年第七周，[COVID-19 vaccine surveillance report: 17 February 2022 (week 7)](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1055620/Vaccine_surveillance_report_-_week_7.pdf)第44页数据，绘制的1月22日22日至2月13日期间，英格兰接种三针或加强针疫苗和未接种疫苗人群中，每10万人的Covid-19感染确诊率。
 
-（1）人身攻击（类似于HBO攻击迈克尔·杰克逊），试图给他贴上“奢侈荒淫”的标签。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-387-1.png)
 
-（2）政治攻击。用莫须有的所谓电脑公司数据等第三方言论把文贵先生和新中国联邦与极右翼捆绑在一起加以攻击，试图用来历不明者在镜头前的说辞作为借口把国会事件和文贵先生、新中国联邦扯上关系，贴上“暴力”的标签。
+根据这三个图可以看到，接种三针疫苗的人，COVID-19确诊率明显比未接种疫苗的人高。
 
-（3）经济攻击。以极少数伪装成投资者的中共特务挑起的事端，以及和投资完全无关的螃蟹的一面之词为由，硬是当众在摄像头前说出虚假的言辞、歪曲事实来诽谤抹黑文贵先生，要给他贴上“诈骗”的标签。
+根据2022年第三周，[COVID-19 vaccine surveillance report: 20 January 2022 (week 3)](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1049160/Vaccine-surveillance-report-week-3-2022.pdf)第19页，我们可以看到，在不到18岁的人中，很大一部分是在最近才打的三针疫苗。
 
-（4）个人崇拜攻击。试图把美国公民、新中国联邦成员的合法和平抗议与文贵先生联系起来，给他贴上“个人崇拜”的标签。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Dose-3-please-note-the-data-for-this-graph-is-shown-from-week-35-scaled.jpg)Health protection
 
-（5）“阴谋论”攻击。幸亏文贵先生高瞻远瞩，早就看破了所谓“Q”组织的阴谋，否则，一旦落入这个陷阱，爆料革命就完蛋了！尽管如此，杨贝贝还是在“一周年采访”中抛出了Q——这个令海外华人形象一败涂地的杀手锏。由此我们也可以知道，Q这个弥天大阴谋是早就展开了的，就等着海外华人和美国右翼落网，谋划何其深远！这个背景大了去了。
+因此，只研究年满18岁以上人群。下图是各年龄段未打疫苗和打了三针疫苗的人群在这三期报告中的感染率对比。
 
-（6）挑拨种族矛盾。杨贝贝几次三番要把华人和暴力扯上关系，而且用阴谋论来佐证华人的危险，并且在两次的视频里都谈到了华人是迅速增长的选举势力。这是公然挑拨种族矛盾，是对美籍华人政治权力的赤裸裸的挑衅。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-391-1.png)
 
-以上种种表明，他们的背后有两股势力，企图达到一石三鸟的目的。
+通过上图可以看到，尽管最近一期中，无论是否打疫苗，感染率都有所下降，但很明显，三针疫苗的感染率比不打疫苗的高很多。而且未打疫苗的人感染率下降快得多。
 
-（一）中共的目的：用这些标签给文贵先生和爆料革命贴上“邪教”的标签。一旦这个成功，就能把文贵先生和爆料革命一网打尽，遣返消灭不在话下。
+因此，可以分析疫苗对人体免疫力的影响。
 
-（二）国际黑暗势力的目的：攻击华人。把华人这个不利于他们的选举票仓打掉，从而在政治上大赚一票。同时把即将到来的病毒和疫苗灾难的栽赃到华人头上，以使他们自己能金蝉脱壳，逃脱罪责。
+可以用（未打疫苗的感染率-三针疫苗的感染率）÷未打疫苗的感染率×100%表示疫苗对人体免疫力的影响。
 
-（三）他们的共同目的：把海外华人和爆料革命打掉，把文贵先生辛苦建立的G系列瞬间吞并瓜分，并把文贵先生创造的巨额财富瓜分（由江泽民、王岐山、曾庆红等盗国贼家族和瑞银为代表的国际黑暗势力）。
+如果打了疫苗没有任何效果，既不能预防病毒，也没有副作用，也就是感染率一样，那疫苗对人体免疫力的影响为零。比如，根据2022年第7期数据，在30-39岁的人群中，未打疫苗的每10万人感染率为1652.1人，打了三针疫苗的每10万人感染率为4579.1人，可以计算出，疫苗对免疫系统的影响为（1652.1-4579.1）÷1652.1×100%=-177.17%。说明疫苗使人体免疫力下降177.17%。
 
-战友们，醒醒吧！敌人在行动，他们正在磨刀霍霍。
+下图为按三期数据得到的疫苗对人体免疫力影响
 
-他们为什么选择在这个时机呢？因为这个时间点和国会事件周年、冬奥运、撤馆，还有即将发生的台海战争，以及后续的疫苗灾难大爆发相关联，这些时间是一环紧扣一环的一个大阴谋的组成部分。他们要把海外华人变成全世界的出气筒，借刀杀人的同时打掉爆料革命，谋夺G系列的巨大财富。这也和早就展开的Q计划相关联。他们企图一步一步毁掉华人的形象口碑，然后把病毒和疫苗的锅顺势扣到华人头上，在全世界掀起排华反华浪潮。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-388-1.png)
 
-大家看看现在的世界，随着病毒和疫苗真相的逐渐显露，随着冬奥运在全世界面前出丑，随着可能发生的台海战争（但愿永远不要发生），世界已经变成了一个火药桶，可谓一触即发。想当年印尼排华事件，导火索只不过是当地一家地方性报纸的一则报道，最后演变成几十万华人惨遭屠戮的悲剧。而现在可不是什么地方小报，是HBO和Vice Media这样的大媒体出面报道，更别提背后还有巨大的利益集团策划的庞大阴谋为后盾了。魔鬼已经布好了圈套，正在一步一步收紧袋口。如果大家还不觉醒并加以反击，必遭反华排华的毒手。我们应该拿起法律的武器，对Vice Media和杨贝贝赤裸裸的、制造种族矛盾散布种族歧视的行为提起诉讼。我们更应该提高警惕，不要落入Q这样的陷阱，不要轻易卷入类似国会事件这样的活动中去。我们应该注意自己的言行，和平守法，不要一时冲动被人利用而被贴上“暴力”，“阴谋论”的标签。最重要的是，我们要大声疾呼，揭露病毒和疫苗真相，揭露中共的邪恶面目，把中国人和中共分开！传播病毒解药，疫苗解药，治病救人。当今世界，能树立海外华人良好形象，最大限度避免和抵制反华排华，粉碎魔鬼的圈套的，唯有文贵先生和爆料革命、新中国联邦人。这是我们的使命。
+根据官方的解释，+50%的疫苗有效性意味着完全接种疫苗的人对Covid-19的保护比未接种疫苗的人高50%。换句话说，完全接种疫苗的人的免疫系统在应对Covid-19方面要好50%。
 
-（全文完）
+疫苗有效性为0%意味着完全接种疫苗的人不会比未接种疫苗的人更能抵御Covid-19，这意味着疫苗无效。换句话说，在应对Covid-19时，完全接种疫苗的人的免疫系统与未接种疫苗的人相同。
 
-文字版原文：[魔鬼的圈套——评杨贝贝和她的所谓采访（七）（完结篇）](https://gnews.org/zh-hans/2055023/)
+但是，-50%的疫苗有效性意味着未接种疫苗的人对Covid-19的保护比完全接种疫苗的人高50%。换句话说，接种者的免疫系统性能比未接种者的自然免疫系统性能差50%。因此，Covid-19疫苗损害了免疫系统，即疫苗副作用或疫苗灾难。
 
-音频处理：Fei797
-发稿：Fei797
+-100%表示完全丧失免疫力，即AIDS状态！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
+因此，在计算疫苗对人体免疫力影响时，除数应当选用接种三针疫苗和未接种疫苗人群中，数据最大者。下图为依据除数调整后的数据得到的疫苗对人体免疫力影响
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-389-1.png)
+
+我们看到，随着时间的推移，人体免疫力一直在下降。同时可以看到，几乎在所有阶段，数值都为负数，说明打完疫苗，人体免疫力就开始下降。
+
+因此，可以按照这一趋势，去推测英国打了三针疫苗的人免疫力完全丧失的大概时间
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-390-1.png)
+
+根据这一趋势分析，到2022年2月，18至39岁接种过三剂Covid-19疫苗的人，可能超过表明艾滋病的负100%状态；而40至59岁和70和79岁的人，到3月22日，可能已经超过了表明艾滋病的负100%状态；60-69岁和80岁以上的人，预计到3月13日之前已经超过了表明艾滋病的负100%状态。
+
+难怪爱达荷州病理学家Ryan Cole博士2021年8月26日就说，自2021年1月1日以来，他在实验室中发现子宫内膜癌的发病率是过年每年看到的20倍，在开始COVID-19病毒疫苗以前，他从未见过这么多子宫内膜癌。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-25_00-00-41.png)
+
+在上个月17日，参加威斯康星州参议员Ron Johnson主持的 “COVID-19: A Second Opinion”讨论时，Ryan Cole博士说，他每年要进行大约 40,000 次活组织检查，并且他发现在通常不易患上他所看到的那种癌症的人身上出现了更多的癌症患者，而所有这些患上癌症的人之间，唯一的相似之处是他们都接种了疫苗。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-458-1.png)
+
+Cole 收集了他得到的所有数据，并试图联系其他实验室以收集更多的数据。有肿瘤学家、放射肿瘤学家告诉他，在疫苗接种后，癌症呈上升趋势，癌症正在像野火一样迅速蔓延。
+
+参考数据：
+
+[Psst… The Covid-19 Vaccines cause AIDS… Pass it on…](/文章/投稿文章/Psst…%20The%20Covid-19%20Vaccines%20cause%20AIDS…%20Pass%20it%20on…)
+
+[UK Health Security Agency](https://www.gov.uk/government/organisations/uk-health-security-agency)
+
+[COVID-19 vaccine surveillance report: 20 January 2022 (week 3)](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1049160/Vaccine-surveillance-report-week-3-2022.pdf)
+
+[COVID-19 vaccine surveillance report: 17 February 2022 (week 7)](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1055620/Vaccine_surveillance_report_-_week_7.pdf)
+
+[COVID-19 vaccine surveillance report: 3 February 2022 (week 5)](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1052353/Vaccine_surveillance_report_-_week_5.pdf)
+
+[Doctors testify that Covid-19 Vaccines cause Cancer and AIDS](https://dailyexpose.uk/2022/02/24/doctors-testify-that-covid-19-vaccines-cause-cancer-and-vaids/)
+
+[This doctor trained at the Mayo Clinic and runs the largest independent testing laboratory in Idaho.](https://twitter.com/ToTheLifeboats/status/1430589141344034816?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1430589141344034816%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fdailyexpose.uk%2F2022%2F02%2F24%2Fdoctors-testify-that-covid-19-vaccines-cause-cancer-and-vaids%2F)
+
+[Sen. Johnson To Hold Panel Discussion, COVID-19: A Second Opinion](https://www.ronjohnson.senate.gov/2022/1/media-advisory-sen-johnson-to-hold-panel-discussion-covid-19-a-second-opinion)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

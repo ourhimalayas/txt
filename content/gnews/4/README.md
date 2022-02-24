@@ -2,22 +2,30 @@
 ---
 
 
-## 十几岁青少年接种疫苗的死亡报告又增加一例……累计5例 韩国 庆北新闻TV
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2059793/)
+## 有声|一代佳人何处魂依
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2059889/)
 
-韩国首尔天池农场
-翻译: 恩真
-校对: 鱼子酱
-上传: QCFM
+配音：香草山巡管部– 文凯琳
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1964年隆冬，南京灵谷寺，一位女人从高塔一跃而下……
+当人们打开那张握在她手里已经沾上她血迹的纸条，写的是“我的死与司机无关”留下了世界上最善良的遗言，人们知道了是她，不禁发出惊呼，惊叹！
+这位以如此极端的方式了结自己的女人，就是著名的曾国藩的后裔——曾国藩的大弟曾国潢的长曾孙女，曾被与吴金鼎、夏鼐并称英伦三只著名“海龟”的曾昭燏。
 
-一名接种新冠疫苗的十几岁青少年死亡了。目前国内接种疫苗后死亡的十几岁青少年共有5人。
+曾昭燏，1909年1月27日，生于湖南荷叶镇万宜堂的一个官宦之家，就是大名鼎鼎的晚清明臣，曾国潘的家族，她是曾国藩的胞弟曾广祚的第四代第一个女婴。
 
-韩国疾病管理厅 新冠疫苗接种应对推进小组 在27日下午例行新闻发布会上表示“在20日我们收到了一名19岁青少年因新冠疫苗副作用而死亡的申报”。当局没有透露死者的性别，接种的疫苗类型，第一次和第二次接种的日期以及死亡日期等具体细节。
+文字版原文：[一代佳人何处魂依](https://gnews.org/zh-hans/2037391/)
 
-韩国疾病管理厅发言人高在渊（고재연）表示“疫苗接种与死亡之间的因果关系尚未查明”“目前处于地方自治团体把申报情况迅速，透明的公开出来的阶段”。他还表示“地方自治团体会进行流行病学调查，当我们接到受害组的信息时，会在确认后进行说明。”
+音频处理/发稿：Daxia
 
-到目前为止，十几岁的年龄层中，申报接种新冠疫苗后死亡的事例共有5名。这5名全部完成了两次接种，具体来说，19岁和18岁各有两名，16岁有一名。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

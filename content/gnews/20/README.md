@@ -2,19 +2,34 @@
 ---
 
 
-## 美国卡车司机华盛顿抗议活动是否会如加国一样被警察野蛮执法？
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2059518/)
+## 民调显示 多数美国选民支持军事保卫台湾
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2059603/)
 
-**编译：verifunny**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/22-7.jpg)
-据《大纪元》2月23日报道，美国五角大楼官员说，国防部长劳埃德·奥斯汀已批准了华盛顿特区大都会警察局（MPD）和美国国会大厦警察（USCP）提出的部署要求。国民警卫队在一份声明中说，这项批准将使大约400名华盛顿特区国民警卫队成员能够 “在指定的交通站点提供支持，提供指挥和控制，并满足维持的要求”。
+作者：纽约香草山农场 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月21日，据当地媒体报道，美国一家民意调查机构针对台湾危机的调查结果显示，美国大多数的选民赞成国家派遣地面部队保卫台湾。
 
-最近在加拿大的紧急法令野蛮执行会不会在美国上演？执法过当，冻结银行账号，骇客泄漏捐款者的讯息，媒体恶魔化的报道等等。美国人的反应会是什么样的，无人知晓。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide3-10.jpeg)
 
-美国卡车车队会在这个星期抵达预定的目的地，延续加拿大卡车车队所释放的捍卫自由的精神与决心。美国会不会是那个使到欧洲国家的卡车行动更大的推动力？ 大家需要做好准备，因为大家需要囤积食物，水和药物来渡过卡车抗议导致供应链缺货的局面。
+该民调数据指出，超过58.1%的美国人表示，如果台湾被中共国入侵，拜登政府应该使用美国的军事资源来保卫台湾。同时，该调查也分析称，在台湾主权问题上，美国民主党、共和党和独立人士都一边倒地展现出支持态度。
 
-**新闻来源**：[https://www.theepochtimes.com/pentagon-approves-deployment-of-national-guard-troops-for-dc-trucker-convoy-protest\_4296291.html](https://www.theepochtimes.com/pentagon-approves-deployment-of-national-guard-troops-for-dc-trucker-convoy-protest_4296291.html)
+另一方面，该调查机构的主席也在一份声明中强调，尽管这将伴随着巨大的风险，甚至可能为之付出高昂的代价，但美国所有党派的选民都坚定地认为，美国应该帮助自由和民主的台湾进行军事防御，用以应对来自中共国日益增长的威胁。
 
+参考链接：[Poll: Majority Opposes US Defending Ukraine, But OK With Taiwan](Majority%20Opposes%20US%20Defending%20Ukraine,%20But%20OK%20With%20Taiwan)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+
+总编：Irene木木
+编辑：百香果
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

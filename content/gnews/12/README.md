@@ -2,34 +2,22 @@
 ---
 
 
-## 民调显示 多数美国选民支持军事保卫台湾
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2059603/)
+## 十几岁青少年接种疫苗的死亡报告又增加一例……累计5例 韩国 庆北新闻TV
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2059793/)
 
-作者：纽约香草山农场 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月21日，据当地媒体报道，美国一家民意调查机构针对台湾危机的调查结果显示，美国大多数的选民赞成国家派遣地面部队保卫台湾。
+韩国首尔天池农场
+翻译: 恩真
+校对: 鱼子酱
+上传: QCFM
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide3-10.jpeg)
+一名接种新冠疫苗的十几岁青少年死亡了。目前国内接种疫苗后死亡的十几岁青少年共有5人。
 
-该民调数据指出，超过58.1%的美国人表示，如果台湾被中共国入侵，拜登政府应该使用美国的军事资源来保卫台湾。同时，该调查也分析称，在台湾主权问题上，美国民主党、共和党和独立人士都一边倒地展现出支持态度。
+韩国疾病管理厅 新冠疫苗接种应对推进小组 在27日下午例行新闻发布会上表示“在20日我们收到了一名19岁青少年因新冠疫苗副作用而死亡的申报”。当局没有透露死者的性别，接种的疫苗类型，第一次和第二次接种的日期以及死亡日期等具体细节。
 
-另一方面，该调查机构的主席也在一份声明中强调，尽管这将伴随着巨大的风险，甚至可能为之付出高昂的代价，但美国所有党派的选民都坚定地认为，美国应该帮助自由和民主的台湾进行军事防御，用以应对来自中共国日益增长的威胁。
+韩国疾病管理厅发言人高在渊（고재연）表示“疫苗接种与死亡之间的因果关系尚未查明”“目前处于地方自治团体把申报情况迅速，透明的公开出来的阶段”。他还表示“地方自治团体会进行流行病学调查，当我们接到受害组的信息时，会在确认后进行说明。”
 
-参考链接：[Poll: Majority Opposes US Defending Ukraine, But OK With Taiwan](Majority%20Opposes%20US%20Defending%20Ukraine,%20But%20OK%20With%20Taiwan)
+到目前为止，十几岁的年龄层中，申报接种新冠疫苗后死亡的事例共有5名。这5名全部完成了两次接种，具体来说，19岁和18岁各有两名，16岁有一名。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
-
-总编：Irene木木
-编辑：百香果
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

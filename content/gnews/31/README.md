@@ -2,35 +2,20 @@
 ---
 
 
-## 有声|澳大利亚计划在南极洲投资制约中共
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2059430/)
+## 加国政治记者将加拿大比作中共国
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2059444/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月21日，据有关媒体报道，为了制衡中共在南极洲的强势和咄咄逼人的行为，澳大利亚总理斯科特-莫里森发布声明表示，澳州联邦政府将在未来10年内耗资8.04亿美元强化和升级澳大利亚在南极洲的科研活动。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E6%88%AA%E5%B1%8F2022-02-23-%E4%B8%8B%E5%8D%8811.15.01.png)
-据悉，早在1961年10月，包括澳大利亚和中共国在内的54个国家曾共同签署了《南极条约》及其他的相关协定，这些协议后来被称为《南极条约体系》。该体系旨在约束各国在南极洲大陆上的各类活动，包括将南极洲作为科学保护区，承认科学调查自由，但禁止在南极洲进行军事或采矿活动，同时限制捕鱼行为。然而，澳洲智库洛伊国际政策研究所在最近发表的一份报告中指出，中共政府正在试图推动“扩大解释《南极条约体系》的规定”。 对此，洛伊研究所解释道，中共近几年持续探测南极洲的渔业和旅游资源，其在《南极条约体系》内表现得越来越强势，并且极有可能在当地寻求获取西方技术的方法。另一方面，人们担心中共未来很有可能率领一些国家寻求南极洲上只有中共有能力开发的矿产资源，为自己谋取福利。
+**编译：verifunny**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-24-233103.jpg)
+一位加拿大保守派记者以斯“·“`拉黎凡特（Ezra Levant）强烈抨击加拿大政府以强腕的政策和粗暴的行为来对待卡车车队与示威者。加拿大的做法和中共的社会信用体系有很多相像点，比如： 在渥太华市中心设立了许多警察检查站， 人们出示身份证明，否则将面临逮捕。以斯指出，他所在的媒体的一名记者据称在近距离内被人用胡椒罐射击，然后胡椒罐破裂，烧伤了他的脸和眼睛。他警告说，”社会信用 “的威胁对那些不受欢迎的信仰更大。
 
+他随后指责加拿大总理贾斯汀· 特鲁多为了扼杀异议，完全没有延长紧急状态下的权力。他继续阐述了这种权力的危险性。”他说：”警方实际上是告诉银行要冻结哪些账户，他们就这么做。”
 
+“所以这意味着，如果有人仅仅被指控支持卡车司机，也许你给他们的众筹基金捐了50美元，[或者]也许你有一天在他们的卡车旁边走过，你的整个家庭银行账户都被冻结了，”他说。”因此，不仅是你，还有你的妻子和孩子，都无法得到买菜、租房或加油的钱，而且没有法律上诉的全力。】
 
-文字版原文：[澳大利亚计划在南极洲投资制约中共](https://gnews.org/zh-hans/2056373/)
+以斯指出这有中共文革批斗的感觉，他还警告说，这样的惩戒措施系统与中共国相同，美国人可能会发现自己迟早也面临同样的情况。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**新闻来源**： https://www.breitbart.com/politics/2022/02/23/canadian-reporter-ezra-levant-compares-canada-to-communist-china-warns-america-may-be-next/
 
  
 

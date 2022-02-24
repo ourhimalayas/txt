@@ -2,10 +2,10 @@
 ---
 
 
-## 俄罗斯入侵乌克兰 欧美出台对俄制裁措施
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2059342/)
+## 蓬佩奥解析当下中俄关系 习近平会破坏世界秩序
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2059361/)
 
-作者：香草山教育部 – Naughty(文行)
+作者：日本方舟农场 – Andy5
 
 
 
@@ -13,24 +13,18 @@
 
 
 
-普京21日宣布承认乌东2个分离主义共和国独立，并派俄军入境维和后，欧盟和美国一致认为俄罗斯该举动是入侵乌克兰的开始，纷纷推出台针对俄罗斯的制裁措施。
+22日，美国前国务卿蓬佩奥在接受采访时，针对目前的乌克兰局势，分析了目前的中俄关系。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide7-14.jpg)
+蓬佩奥表示，中共和俄罗斯的同盟关系究竟如何，要取决于西方对他们的态度和行动。目前来看，二者在很大程度上还只是虚张声势，因为虽然双方都认为可以从合作中获得各自的利益和机会，但他们之间还有多方面的利益冲突。不过，他也警告说，美国需要立刻团结西方国家，阻止普京的进一步行动，否则，任由中俄继续下去，整个世界就可能演变成以俄罗斯、中共价值观为主导，人的尊严和安全被排在最后的社会模式。
 
-法国外长勒德里安22日以欧盟轮值主席国身份表示，欧盟成员国一致同意对俄罗斯国家杜马351位议员以及27个实体及个人实施制裁，范围涵盖政治、军事、商业和媒体。
-
-欧盟外长波瑞尔和欧盟执委会主席范德赖恩先后表示，欧盟一系列制裁方案除了锁定参与侵略行动的个人和企业外，还包括禁止乌东2个分离地区与欧盟进行贸易，以及欧盟限制俄罗斯政府在欧盟金融市场上筹资的能力。欧盟希望此措施尽可能遏制克里姆林宫推动侵略。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide6-7.jpg)
-美国总统拜登同一天宣布制裁俄罗斯2大金融机构。他宣布对俄罗斯国有开发银行（VEB）与军方银行2大金融机构全面封锁，对俄罗斯主权债务实施全面制裁，切断俄罗斯政府与西方金融体系的联系，使其无法再从西方筹募资金或在欧美市场交易新债。
-
-美国财政部随即公布制裁名单，包括VEB与Promsvyazbank（PSB）及其42家子公司。此外，也宣布制裁多位普京核心圈中具有影响力的人员及其家人，包括PSB主席兼执行长。
+最后，蓬佩奥特别指出，将要破坏整个世界秩序的不是普京，普京充其量只是一个配角，真正会最终破坏世界秩序的一定是习近平。
 
 参考链接：
-1. [Europe Sanctions Russia Over Ukraine Crisis, Coordinating Squeeze With the U.S.](https://www.nytimes.com/2022/02/22/world/europe/eu-sanctions-russia-ukraine.html)
-2. [Biden imposes new Russia sanctions, decries ‘beginning invasion’](https://www.aljazeera.com/news/2022/2/22/biden-imposes-new-russia-sanctions-decries-beginning-invasion)
+[20220222蓬佩奧國務卿接受採訪](https://www.gettr.com/post/pwae8d520d)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
 
-总编：zhong
-编辑：Lakeman文仁
+总编/编辑：zhong
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**
