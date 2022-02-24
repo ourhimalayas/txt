@@ -2,34 +2,44 @@
 ---
 
 
-## 普京命令俄军进攻后乌克兰报告导弹袭击事件
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2060332/)
+## 【信仰之声】不一样的生命
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2060397/)
 
-翻译：**Lulumi**
+作者：纽约香草山福音部 — Joy
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unknown-2-17.png)俄罗斯对乌克兰的攻击正在进行中。cnbc.com
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-3.jpg)
 
-俄罗斯总统弗拉基米尔·普京周四凌晨在莫斯科发表讲话，宣布俄罗斯将在乌克兰发起军事行动。此后不久，美国全国广播公司新闻报道说，在乌克兰首都基辅听到了爆炸声。
+耶稣基督借着十字架的大能给我们带来了新生命——复活的生命。这意味着我们活着不再是自己的生命，是基督在里面活出来的生命，是一定不一样的，不变都不可能的生命。因为神就是生命，他在我们里面，他为我活，我为他死。旧事已过，我们都是新造的人。就像是苹果树一定结出苹果来，葡萄树一定结出葡萄来，并不用自己努力，是自然而然就生长出来的。因为里面有基督的生命在流淌，在做工。
 
-美国总统乔·拜登谴责了这次袭击。他说：“世界将追究俄罗斯的责任。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/C28522BD-39CE-4F41-AFA9-1022E85B9082.jpg)
 
-消息传出后，美国市场的股票期货暴跌。联合国安理会星期三晚上刚刚召开了一次紧急会议。
+有了耶稣的生命，我们就可以管住自己的口，不再口出恶言，不再常常抱怨，我们说的话就会像是一股泉源，心里面如是甜水的井，流露出来的一定是甘甜、正面、积极的言语，充满力量和权柄，让听到的人可以得造就。
 
-此前，欧洲和美国官员在周三争先恐后地惩罚俄罗斯，以一连串的经济制裁来回应其在乌克兰东部的军队部署。
+求主活在我们里面，赐给我们不一样的、圣洁的生命，让我们和一切缠累我们的罪，如奸淫、酗酒、毒瘾、网络色情等等这样的瘾都可以除去，也把心中一切的骄傲、苦毒、嫉妒、纷争、恶毒、仇恨等等也都除掉，求主把我们从罪中释放出来，给我们一个自由、轻松、放飞的生命。
 
-由于担心俄罗斯的侵略会升级，乌克兰警告其公民避免前往俄罗斯，如果他们已经在那里，请立即离开该国。此举是在普京周三表示莫斯科对外交“永远开放”之后，在命令军队进入乌克兰东部并承认该地区两个自我宣布的共和国的独立后几天。
+2022年2月24日
 
-欧盟定于周四举行紧急会议，据说正在考虑对俄罗斯个人进行新一轮制裁。英国和美国的官员在本周公布了最初的几批制裁措施后，也宣布或威胁要采取更多报复措施。
+（本文仅代表作者个人观点）
 
-**参考资料：**[cnbc][U.S., allies gear up to hammer Russia’s economy after Putin launches attack on Ukraine](https://www.cnbc.com/2022/02/23/putin-says-russia-open-to-diplomacy-as-moscow-hit-with-fresh-sanctions.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-7.jpg)
 
-* * *
+*编辑 /校对*：德州牛仔
 
-*审核：文乐
-校对：信心满满
-发稿：信心的选择*
+*发稿：Yuki*jiang
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-4.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

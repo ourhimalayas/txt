@@ -2,106 +2,28 @@
 ---
 
 
-## 悲惨世界
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2060255/)
+## 俄罗斯股市大跌,被25国制裁
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2060261/)
 
-作者：香草山教育部 — 蓝之灵（Hortensia)
+#### 编译: Cran
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-109-1280x172-1.jpg)
+#### 责编: 白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/02/16457324291.png)Image Source: 美国之音- 聯合國安理會2月21日召開烏克蘭局勢緊急會議
+据《美国周刊》2月24日报道,对俄罗斯入侵乌克兰，俄罗斯股市周四上午做出了相应的反应, 其股票市场遭受了历史性的坍塌。
 
+俄罗斯市场的恐惧使莫斯科证券交易所（MOEX）周四暴跌45%，而以美元计价的RTS指数暴跌超过40%。崩盘使使其最大公司Sberbank的价值缩水750亿美元, 一度损失57%。俄罗斯石油巨头股票暴跌58% (英国持有20%股)， 卢布一度以85比1美元的汇率跌至历史新低。
 
+俄罗斯是世界第二大原油和最大的天然气出口国，世界能源市场为普京入侵乌克兰的决定带来的巨大影响做好了准备。因为军事侵略引起了华尔街和世界股市的大跌. 只有石油和黄金的股价上升。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-1-2.png)
+另据美国“Newsmax”今日报道, 已经有27个国家对俄罗斯的入侵进行了制裁，当俄罗斯军队袭击乌克兰时，世界各国领导人周四做出了愤怒的反应，称这是“野蛮行为”, 并将追究克里姆林宫的责任。
 
-谁家女儿不是宝
+联合国安理会21日曾举行了一次特别紧急会议，旨在劝阻俄罗斯向乌克兰派遣军队。秘书长安东尼奥·古特雷斯 (Antonio Guterres) 呼吁, “给和平一个机会”，与此同时, 俄罗斯总统弗拉基米尔·普京（Vladimir Putin）在俄罗斯电视台上宣布了一项军事行动，他坚称这项行动是为了保护乌克兰平民。当各国领导人争先恐后地谴责这次袭击时，基辅和乌克兰其他城市都听到了爆炸声。
 
-都是爹娘心头好
+2014年，俄罗斯占领了乌克兰的克里米亚，亲俄叛军此后一直在顿涅茨克和卢甘斯克东部地区与乌克兰军队作战。超过14000人在冲突中丧生。
 
-冬有棉衣夏有纱
+周一, 普京承认了乌克兰东部两个分裂地区的独立，并下令俄罗斯军队在那里执行他所说的 “维和行动”，联合国秘书长, 安东尼奥.古特雷(António Guterres)斯称, 俄罗斯军队未经其同意进入了另一个国家，这个27国集团已经实施了各项制裁，并正在讨论更多更严厉的惩罚措施。
 
-娇娇软软养成花
-
-厉害国里独奇葩
-
-命如草芥如泥沙
-
-杨氏女儿多不幸
-
-拐拐卖卖到董家
-
-酷吏贪官多爪牙
-
-董家父子凶性发
-
-贪婪钱财做奴才
-
-豪无人性做狗才
-
-二十四载锁铁链
-
-生孩一娃到八娃
-
-日日夜夜多糟蹋
-
-剪了舌头又拔牙
-
-青春女儿生华发
-
-生不如死解脱吧
-
-小哥哥，救救我
-
-离开地狱求求你
-
-好心换得解链锁
-
-出来虎窟入狼窝
-
-
-
-入狼窝，医院里
-
-白衣天使假面目
-
-本来没有神经病
-
-硬说神经深井冰
-
-深井冰，要治疗
-
-好药坏药往里倒
-
-管你有病没有病
-
-定要治出神经病
-
-救救我吧救救我
-
-何时何人来救赎
-
-来救赎呀 来救赎
-
-（本文仅代表作者个人观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-7.jpg)
-
-*编辑 /校对*：*Yuki*jiang
-
-*发稿：Yuki*jiang
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+Source: [1](https://www.newsweek.com/russia-ukraine-ruble-moex-stocks-markets-dollar-kyiv-moscow-putin-1682199) [2](https://www.newsmax.com/newsfront/ukraine-tensions-global-reaction/2022/02/24/id/1058246/)
 
  
 

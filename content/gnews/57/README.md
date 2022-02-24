@@ -2,25 +2,23 @@
 ---
 
 
-## 中共拘捕日本大使馆工作人员违反维也纳公约
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2055922/)
+## 中共党媒意外泄露俄乌报道审查指令
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2055923/)
 
-作者：日本方舟农场 – Andy5
+作者：纽约香草山 – 侠肝义胆
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-2月22日，日本外务省发布公告称，其驻中共国大使馆的工作人员，在21日遭到中共当局非法拘禁。虽然目前该名工作人员已经被释放，但是日本国政府的森健良事务次官在22日，表示这是近年没有发生过的，并指斥中共对日方工作人员进行了长时间的拘禁，这种行为已经违反了维也纳公约。他通知了驻日本的中共临时大使杨宇，表达了日本的严正抗议，并且要求中共的道歉。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-52.jpg)
-截至发稿时，中共也没有道歉甚至没有报道此事，而临时大使杨宇仅向日方表示，需要向中共请示后才能做出答复。
-
-维也纳公约明确规定，所有外交人员享有不被逮捕、大使馆领地不可侵犯的特权，这些特权，是所有签署维也纳公约国必须尊重的规则。分析人士指出，中共在冬奥会和残奥会的间隙，拘捕外交人员会进一步让世界看清，中共不守规则、开展人质外交的丑陋嘴脸。
+22日，一位在中共党媒新京报旗下的地平线新闻担任主管職的微博用户，在其微博页面上发布了“如何报道俄乌之间紧张局势升温”的相关指示。根据指示，在涉及俄乌局势相关的新闻时，要求使用人民日报、新华社以及央视话题来控制舆论导向，凡是对于俄罗斯不利或倾向西方民主立场的消息均不能发布，且设有专人负责审核、发布，精准控制评论话题，只放出合适、有利的评论，屏蔽掉所有不利的评论。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture1-24.jpg)
+对於网上流传的新闻发布指引，外国媒体认为是中共严格限制新闻自由和剥夺言论自由的证据。相关人士表示，中共国根本没有真正的新闻媒体，只有党的宣传工具和喉舌，所有对外宣传口径，都必须经过严密组织审查。从俄乌局势的发展，可以确信世界对中共已经逐渐不再纵容。
 
 参考链接：
-1. [中共拘捕日本大使馆工作人员违反维也纳公约](https://www.sankei.com/article/20220222-LGZCU32FOZI73EK3R5EVI53TPE/)
-2. [中共拘捕日本大使馆工作人员违反维也纳公约](https://www.sankei.com/article/20220222-UMQLE2ARJBMGXML4LKO3GUSM4Y/)
+1. [中共党媒意外泄露俄乌报道审查指令](https://www.businessinsider.com/china-news-outlet-ukraine-coverage-instructions-weibo-horizon-russia-2022-2)
+2. [中共党媒意外泄露俄乌报道审查指令](https://gettr.com/post/pw8jp43f00)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
 总编：zhong
-编辑：谐趣园
+编辑：zhong
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
@@ -31,8 +29,6 @@
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
 ![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
 
  
 

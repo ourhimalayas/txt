@@ -2,64 +2,34 @@
 ---
 
 
-## 俄罗斯入侵乌克兰 文贵先生对台湾发出强烈预警
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2060319/)
+## 普京命令俄军进攻后乌克兰报告导弹袭击事件
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2060332/)
 
-作者：香草山健身部 — Ivy001
+翻译：**Lulumi**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-109-1280x172-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unknown-2-17.png)俄罗斯对乌克兰的攻击正在进行中。cnbc.com
 
+俄罗斯总统弗拉基米尔·普京周四凌晨在莫斯科发表讲话，宣布俄罗斯将在乌克兰发起军事行动。此后不久，美国全国广播公司新闻报道说，在乌克兰首都基辅听到了爆炸声。
 
+美国总统乔·拜登谴责了这次袭击。他说：“世界将追究俄罗斯的责任。”
 
+消息传出后，美国市场的股票期货暴跌。联合国安理会星期三晚上刚刚召开了一次紧急会议。
 
+此前，欧洲和美国官员在周三争先恐后地惩罚俄罗斯，以一连串的经济制裁来回应其在乌克兰东部的军队部署。
 
+由于担心俄罗斯的侵略会升级，乌克兰警告其公民避免前往俄罗斯，如果他们已经在那里，请立即离开该国。此举是在普京周三表示莫斯科对外交“永远开放”之后，在命令军队进入乌克兰东部并承认该地区两个自我宣布的共和国的独立后几天。
 
+欧盟定于周四举行紧急会议，据说正在考虑对俄罗斯个人进行新一轮制裁。英国和美国的官员在本周公布了最初的几批制裁措施后，也宣布或威胁要采取更多报复措施。
 
-当地时间2月24日凌晨，俄罗斯从三个主要方向对乌克兰发起了大规模入侵。报告称，部队正从北部基辅方向推进；从东部通过顿涅茨克、卢甘斯克和哈尔科夫；以及从南部的克里米亚推进。袭击主要来自空袭和导弹。
+**参考资料：**[cnbc][U.S., allies gear up to hammer Russia’s economy after Putin launches attack on Ukraine](https://www.cnbc.com/2022/02/23/putin-says-russia-open-to-diplomacy-as-moscow-hit-with-fresh-sanctions.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_4436.jpg)
+* * *
 
-乌克兰总统顾问告诉记者，目前，乌克兰军方死亡人数已经超过40人，另有数十人受伤，还有大约10位平民丧生。面对俄军对乌克兰发起陆海空全面入侵，乌克兰总统泽连斯基，呼吁愿意保家卫国的乌克兰人民挺身而出，政府将配发武器。
+*审核：文乐
+校对：信心满满
+发稿：信心的选择*
 
-文贵先生第一时间在盖特发出强烈警告：“战魔再次打烂世界！这样的残酷的事实很快会在台湾发生……希望所有在台湾的战友们和朋友们，以最快的速度撤离台湾！任何台湾的战友都应该受到全球的农场和战友的全力的协助和帮助。这是新中国联邦文贵发出的，对台湾同胞和战友的呐喊，以及警告！”
-
-与此同时，联盟和全球农场马上为需要撤离台湾的战友展开登记，为下一步行动做好准备。
-
-为乌克兰祈祷，为乌克兰人民祈祷，为台湾祈祷，为台湾人民祈祷！
-
-
-
-新闻链接
-
-1.[https://gettr.com/post/pwm1d5ab4e](https://gettr.com/post/pwm1d5ab4e)
-
-2.[https://gettr.com/post/pwkzy17354](https://gettr.com/post/pwkzy17354)
-
-2022年2月24日
-
-（本文仅代表作者个人观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-7.jpg)
-
-*编辑 /校对*：*Yuki*jiang
-
-*编辑 /校对*：*Yuki*jiang
-
-*发稿：Yuki*jiang
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-4.jpeg)
 
  
 

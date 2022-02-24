@@ -2,16 +2,18 @@
 ---
 
 
-## 全世界只有新中国联邦最早告诉你真相
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2060756/)
+## 2022年2月24日，全球中共病毒疫情情况汇总
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2060842/)
 
-制作：wenwu
+制作：DT新闻组
+
+**中共的杀戮还在继续……**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/FC1D0502-715B-4F8B-8F18-6000AD4340FB.jpg)
 
 发稿：信心的选择
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/西喜-8.jpeg)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-4.jpeg)
 
  
 
