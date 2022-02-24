@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@woodgogogo 2/23/2022 11:43 PM (UTC)`
+
+
+![img](https://media.gettr.com/group4/getter/2022/02/22/01/b5743eb5-ee2c-3fe9-48bc-c9f8f6c97c46/out.jpg)
+
+---
+
 `@miles 2/23/2022 11:42 PM (UTC)`
 
 2/23/2022 Miles Guo: Putin has humiliated the West in an unprecedented way. After sending troops to Ukraine, Not only did Putin post on the Internet the secret agreement signed by the US, France and others promising Russia that NATO would not expand eastward, but he also recognized the independence of Donetsk and Luhansk as well.<br/><br/>2/23/2022 文贵直播：普京史无前例地羞辱了西方，派大军进入乌克兰后，普京把美法等国与之签署的保证北约不东扩的保密协议挂到了网上，并承认了顿涅茨克和卢甘斯克两地的独立<br/>
@@ -150,13 +157,6 @@ New Release ✨                                              Shop Now at www.gfa
 
 锡克教库尔撒裔加拿大人从多伦多赶到渥太华支持卡车司机运动。他们非常爱国，希望能带回以前的加拿大，让后代生活在一个保护他们的自由和权利的社会。他们呼吁所有加拿大人都来渥太华支持卡车司机。<br/><br/>Canadian Sikh Khalsans arrive in Ottawa all the way from Toronto and voice out their support for the Freedom Convoy. They are patriotic and they want to bring back the nation for the children to live in a society that protects their freedom and rights. They call for every Canadian to come to Ottawa and support the truckers.<br/>
 ![img](https://media.gettr.com/group24/getter/2022/02/21/23/6e23395c-87bd-b9f1-2710-466a7101da25/out.jpg)
-
----
-
-`@miles 2/21/2022 10:49 PM (UTC)`
-
-2/20/2022 Miles Guo: Peng Liyuan (Xi Jinping’s wife) is in a bad shape. After the Winter Olympics, the CCP’s music industry and celebrity community will be changed drastically. The CCP does not allow the real estate to go bankrupt, nor is it allowed to report on the investigations into the singers and celebrities. The CCP’s financial sector will collapse, and the CCP’s Bouazizi incident in the financial sector will start from the music industry.<br/><br/>2/20/2022 文贵直播：彭丽媛状态非常不好；冬奥会后中共音乐界和演艺界将发生巨变；中共不准房地产破产、不许报道歌星和明星被查；中共金融会崩塌，金融布瓦吉吉事件会从音乐界开始<br/>
-![img](https://media.gettr.com/group35/getter/2022/02/21/22/5b92156d-0864-11e3-7032-21240ca5f438/out.jpg)
 
 ---
 

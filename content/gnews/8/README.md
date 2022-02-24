@@ -2,8 +2,8 @@
 ---
 
 
-## 俄会灭掉共，中国人会付出巨大的代价
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2055123/)
+## 乌克兰事件背后的目的
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2055170/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

@@ -2,30 +2,24 @@
 ---
 
 
-## Covid疫苗的三种新副作用
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2054619/)
+## 西班牙人增强型疫苗的信心在一个月内下降了16个百分点
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2054689/)
 
 编译：七龙珠
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/coronavirus-covid-vaccine-zh-hero-edited-1.jpg)图片来源：allaboutvision.com
+![](https://assets.gnews.org/wp-content/uploads/2022/02/fe4bfd76e270e34c27bef87d7556635cc4e41a69d335492ec60dd73946525024.jpg)图片来源：Marian Vejcik/Public Domain Mark 1.0
 
-欧洲药品管理局（EMA）在其最新报告中承认存在冠状病毒疫苗的三种新的副作用。这些不良反应是对那些已知的不良反应的补充，其中发烧、疲倦和头痛是最常见的，而偏瘫、脊髓炎和淋巴结的出现是一些最奇怪的情况，尽管在接受第三剂疫苗的人中也很常见，无论是辉瑞还是Moderna。
+超过16.2%的西班牙人不赞成接受这种“强化”剂量，与2022年一月相比，仅仅一个月的时间，民众接种强化剂量或第三剂量Covid-19疫苗的意愿下降了16.1分。这是社会学研究中心（CIS）本周二公布的2月份晴雨表的预先结果，该结果强调68.4%的公众愿意接受这一强化剂量，而去年1月为84.5%。
 
-Covid疫苗有三个新的副作用：
+同样，16.2%的西班牙人说他们不赞成接受这种“强化”的剂量，而8.2%的人对这个问题有疑问。至于他们不接受加强剂量的主要原因，28.3%的人说他们已经接种过疫苗，他们认为这应该是足够的，19.4%的人说是担心这一剂量的健康风险或副作用。8.7%的公众认识到对这种“强化”剂量缺乏保证和信心。
 
-—— 多形性红斑
+**不接种Covid-19疫苗的原因**
 
-—— 肾小球肾炎
+至于不接种任何SARS-CoV-2疫苗的主要原因，26.8%的人不信任这些疫苗，18.3%的人说是因为担心健康风险或副作用。
 
-—— 肾病综合征
+9.9%的人认为这些疫苗无效，而9.1%的人说他们没有接种疫苗，因为他们曾经得过这种疾病。只有0.7%的人说他们因为过敏、其他疾病或治疗、母乳喂养或怀孕而没有接受这一过程。
 
-每种副作用包括什么？
-
-多形红斑是圆形的皮肤病变，可出现在皮肤甚至粘膜上，而肾小球肾炎是肾脏中过滤器的炎症，肾病综合征是一种肾脏疾病，导致肾脏在过滤废物时排除大量的蛋白质。
-
-目前，EMA仍在调查这些新的Covid疫苗副作用之间的关联，以查明这些影响是否是由因果关系造成的，或者是否是偶然的，是否归因于接种的毒剂。
-
-**参考资料：**[levante-emv][Los tres nuevos efectos secundarios de la vacuna del covid](https://www.levante-emv.com/vida-y-estilo/salud/2022/02/22/vacuna-covid-efectos-secundarios-eritema-multiforme-glomerulonefritis-63012338.html)
+参考资料：[redaccionmedica][CIS: la confianza en las vacunas covid de refuerzo cae 16 puntos en un mes](https://www.redaccionmedica.com/secciones/sanidad-hoy/cis-la-confianza-en-las-vacunas-covid-de-refuerzo-cae-16-puntos-en-un-mes-8457)
 
 * * *
 

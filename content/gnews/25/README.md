@@ -2,71 +2,21 @@
 ---
 
 
-## 有声|对抗暴政
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2054434/)
+## 秘翻在线:人民银行要求实体银行必须办理现金业务
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2054661/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+撰稿：西枫westca
 
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-14.jpg)图片来源：网络照片
+据人民网2月22日报道，人民银行、银保监会要求，凡设有实体网点的商业银行、农信社等机构必须办理人民币存取业务。
 
-母亲
-你流着血
-我流着泪
-共同对抗
-这暴政横行
+近期银行金融机构在现金服务方面意愿下降，部分网点如北京中关村银行、辽宁振兴银行等已宣布停止办理人民币现金业务，此外有些农信社、外资银行网点、个别大行网点也停办现金存取业务。2021年第4季度人民银行还对32家拒收现金单位进行过经济处罚。因此此次金融机构人民币现金服务工作座谈会要求，人民币现金是国家法定货币，现金服务是最基础的金融服务，要认识到人民币现金服务的重要性，不断提升现金服务能力和水平。
 
-母亲
-看
-一个人跌倒了
-马蹄踏上他的身
-皇家骑警
-为什么践踏人民
-为什么悲惨呼声
-他们无动于衷
+当天，中共央行发出公告，央行存取5万说明来源用途的规定因技术问题暂缓实施。 此规定如果实施，对中共国的经济将是一场灾难。
 
-母亲
-你再看
-到处是
-血和泪的眼睛
-混合着声音异常悲愤
-何去何从
-何去何从
-我的未来
-是不是
-真的只是梦
+**新闻来源：**[两部门：设有实体网点的商业银行必须办理现金存取业务–经济·科技–人民网 (people.com.cn)](http://finance.people.com.cn/n1/2022/0222/c1004-32357197.html)
 
-母亲
-告诉我实情
-这个世界魔鬼横行
-正义的声音微弱
-你为我撑起的温馨
-短暂如流星
-
-母亲
-你流着血
-我流着泪
-和他们一起
-共同对抗
-这暴政横行
-让自由声音
-雷声轰鸣
-结束暴政
-结束魔鬼横行
-
-文字版原文：[对抗暴政](https://gnews.org/zh-hans/2032528/)
-
-音频处理：Fei797
-发稿：Fei797
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
