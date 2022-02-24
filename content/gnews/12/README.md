@@ -2,24 +2,32 @@
 ---
 
 
-## 中日财经爆|华为就雇佣诉讼案与南非劳工部谈判
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2056293/)
+## 中日财经爆|正荣地产拟将更多境内外债展期
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2056363/)
 
 撰稿：东京樱花团/peterwong
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/华为就雇佣诉讼案与南非劳工部谈判.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fimg.superpyq.com%2F2022%2F02%2F14%2FFeb_14_2022_00_53_45_https___web_popo8_com_20220213_20220213222933_57066type_jpeg_size_800_150_end_jpg.jpeg&amp;imgrefurl=https%3A%2F%2Fsuperpyq.com%2Farticle%2F6209ee7d417f933edd0dce49&amp;tbnid=VLfiK597E3A7lM&amp;vet=12ahUKEwjB_fvJt5f2AhUEHqYKHUbUBoUQMygDegQIARAh..i&amp;docid=c1lUaVSmQFEyxM&amp;w=800&amp;h=534&amp;q=%E5%8D%8E%E4%B8%BA%20%E5%8D%97%E9%9D%9E%E5%8A%B3%E5%B7%A5%E7%BA%A0%E7%BA%B7&amp;ved=2ahUKEwjB_fvJt5f2AhUEHqYKHUbUBoUQMygDegQIARAh)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/正荣地产拟将更多境内外债展期.jpg)[图片来源](http://www.fzrhly.com/gpzx/98900.html)
 
-路透社2月23日报道，南非劳工部正在与中共国华为技术有限公司的南非子公司就可能的庭外和解进行谈判，劳工部指控华为没有遵守当地的招聘配额要求。
+路透社2月23日报道，中共国房企正荣地产周三举行投资者电话会议称，除周二公告披露的多只境外债外，还计划将2022年到期的其他境内外债务都协商达成类似展期安排；
 
-南非正面临自1994年白人少数统治结束以来最高的失业率。南非当局本月将华为技术南非公司告上法庭，称该公司没有达到60%的员工必须是南非人的要求。
+“公司计划将其他境内外债务, 包括ABS（资产证券）和银行债款等达成类似安排, 给公司一年时间, 让现金流得以改善。”一位消息人士称。
 
-劳工部的律师Fikiswa Mncanca-Bede告诉路透，该部官员周一会见了华为技术南非公司的代表，劳工部的目标是在周五之前完成谈判。
+在官宣“跳票”2亿美元永续债赎回计划后，正荣地产周二在港交所公告称，提议置换五只2022年到期的美元和人民币债券以推迟到期时间，因公司可能没有足够的资源来履行即将到期的债务。
 
-华为技术南非公司证实，它已经“进入谈判，以达成和解协议”，该案件在等待结果。
+此外，该公司还就另外八只美元票据征求债券持有人同步同意，交换要约和同意征求将于伦敦时间3月11日下午4点届满。这八只票据到期日分布在2023年-2026年。
+
+根据路孚特（Refinitiv）数据，正荣地产在3月和4月份共有2.7亿的美元债到期；另外，2019年6月公司还发行过一笔金额2亿美元的浮息美元永续债。
+
+1月4日，正荣地产曾发布公告称，将于3月5日悉数赎回所有发行在外的该笔永续债。
+
+正荣地产上周五发布公告，预计现有内部资源或不足以解决于2022年3月即将到期的债务，其中包括3月5日到期的2亿美元永续债；公司亦正考虑于不久的将来就其他未偿还的境外优先票据进行其他债务管理行动。
+
+受官宣无法偿付美元债影响，评级机构再度对正荣地产采取降级行动。惠誉周一表示，将正荣地产评级下调至“C”，并移出负面观察名单；穆迪则将正荣评级下调至Caa2/Caa3，展望仍为负面。
 
 消息来源:
 
-[独家：南非劳工部与华为子公司谈判 以和解有关雇佣的诉讼](https://cn.reuters.com/article/south-africa-labor-huawei-talk-0223-idCNKBS2KS0UT?il=0)
+[中国正荣地产拟将更多境内外债展期 并与国企洽谈股权转让以处置资产–消息（更新版）](https://cn.reuters.com/article/zhenro-bond-payment-extension-0223-idCNKBS2KS0NH?il=0)
 
 *编辑：东京樱花团/知了知了
 发布：东京樱花团/老黑*

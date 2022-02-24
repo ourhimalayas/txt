@@ -2,25 +2,23 @@
 ---
 
 
-## 新加坡确诊人数再创新高 医疗系统不堪重负
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2055632/)
+## 韩国单日新增确诊病例突破17万例 再创历史新高
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2055901/)
 
-作者：纽约香草山教育部 Naughty(文行)
+作者：首尔天池农场—追着曙光跑
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-5.png)
-新加坡今天新增2万6032例中共病毒确诊例，再度突破历史记录。卫生部指出，虽然需要输氧治疗及加护病房患者人数不算多，但近来病床需求大增，主要是为了收治患有慢性病的确诊者。
+据韩媒2月23日报道，韩国中央检疫对策本部宣布，截至今日（23日）零时，新增确诊病例17万1452例，首次突破17万大关，创历史新高。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2198.png)
+截至日前，韩国的疫苗首针接种率为87.27%，完全接种率为86.30%，第三针加强针接种率59.65%。从15日开始给免疫力低下人群接种第四针剂。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2194.png)
+完全接种率已经远超过群体免疫的70%，第三针加强针也快达60%，但感染人数却剧增。
 
-卫生部表示，最近由于对抗原快速检测和开具医疗证明的需求剧增，导致原已面临沉重压力、负担的医疗系统不堪重负。 呼吁雇主勿坚持要求员工出示医疗证明或出示确诊后的康复证明；同时，也呼吁民众只有在紧急情况下，才到医院挂急诊；为保护当地医疗体系，将延长公共卫生防范诊所的服务时间，并在综合检测中心为有症状的确诊者提供远程医疗服务。
-
-据统计，今天新增4起死亡病例，累计956人病故。截至目前，新加坡累计62万2293人确诊。
-
-参考链接：[新加坡確認26,032例新COVID病例創歷史新高，突破600,000大關](https://sg.news.yahoo.com/record-high-of-over-25000-new-covid-cases-in-singapore-crosses-600000-mark-151432235.html?guccounter=1)
+参考链接：[韓國日增新冠確診病例首破17萬例](http://news.cnwest.com/tianxia/a/2022/02/23/20332046.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
 
-总编：Lakeman文仁
 总编：zhong
+编辑：Lakeman文仁 
 校对/发稿：小野貓（文凱琳）
 
 **更多资讯，更多关注**
@@ -34,7 +32,9 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-11.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-5.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

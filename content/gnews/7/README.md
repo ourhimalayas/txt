@@ -2,22 +2,24 @@
 ---
 
 
-## 中日财经爆| 伦敦希思罗机场乘客数创50年来新低
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2056345/)
+## 中日财经爆|香港确诊再创新高 港共发消费券或增感染风险
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2056382/)
 
 撰稿：东京樱花团/peterwong
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/伦敦希思罗机场乘客数创50年来新低.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=http%3A%2F%2Fcdn.feeyo.com%2Fnews%2F200819%2F20081909212962.jpg&amp;imgrefurl=http%3A%2F%2Fnews.carnoc.com%2Flist%2F541%2F541689.html&amp;tbnid=bWWC7eSQPqA0uM&amp;vet=12ahUKEwixwffKuJf2AhVBYZQKHS-kBngQMygKegUIARCwAQ..i&amp;docid=Feb0h-H4bqVvPM&amp;w=692&amp;h=386&amp;q=%E5%B8%8C%E6%80%9D%E7%BD%97%E6%9C%BA%E5%9C%BA&amp;ved=2ahUKEwixwffKuJf2AhVBYZQKHS-kBngQMygKegUIARCwAQ)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/香港确诊再创新高-港共发消费券或增感染风险.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fichef.bbci.co.uk%2Fimages%2Fic%2F512xn%2Fp0bqn7v1.jpg&amp;imgrefurl=https%3A%2F%2Fwww.bbc.com%2Fzhongwen%2Fsimp%2Fchinese-news-60490908&amp;tbnid=0_VA2-BEgl7wNM&amp;vet=12ahUKEwi6g5npu5f2AhWizIsBHaNjCrYQMygEegUIARCnAQ..i&amp;docid=Z6HSW0pStOlKQM&amp;w=512&amp;h=287&amp;itg=1&amp;q=%E9%A6%99%E6%B8%AF%E7%96%AB%E6%83%85&amp;ved=2ahUKEwi6g5npu5f2AhWizIsBHaNjCrYQMygEegUIARCnAQ)
 
-英国伦敦希思罗机场2月23日表示，受到中共病毒防疫旅行限制的影响，2021年的乘客人数下降到1,940万，创1972年以来最低。
+香港第五波疫情持续扩散，2月23日公布新增8674例中共病毒确诊，单日确诊数再创新高，港共当局进一步紧缩防疫措施的同时，又宣布向香港市民发放消费券，增加人员之间的接触，恐会再增加感染风险。
 
-这个英国最大的机场在2021年录得17.9亿英镑(24.3亿美元)的税前亏损，该机场周三表示，目前乘客人数比预测值落后23%，但预计夏季出境旅游会很强劲。
+根据香港媒体报导，卫生防护中心传染病处主任张竹君在疫情记者会通报，新增8674例确诊，其中3例为境外移入，其余为本土病例，另有7990例一采阳性的呈报个案。
 
-希思罗机场（英语：Heathrow Airport；IATA代码：LHR；ICAO代码：EGLL），是英国首都伦敦的主要国际机场，中共病毒疫情之前为全英国乃至全世界最繁忙的机场之一。运营机构为希思罗机场控股公司。
+张竹君指出，过去24小时香港有24名病患染疫死亡，第五波疫情累计有153人病殁，其中90人为安老、残疾院舍院友，多为长者，第五波疫情至今的死亡率为0.3%，前四波是2.2%。
+
+另外，财政司司长陈茂波23日公布2022年财政预算案，将再发放消费券，符合资格的18岁或以上香港永久性居民及新移民，可获得1万港币（约3.6万元台币）的电子消费券，最快4月会先向630万名已经成功登记的市民发放5000元，剩下的5000元年中再分批发放。
 
 消息来源:
 
-[伦敦希思罗机场2021年乘客人数创下自1972年以来新低](https://cn.reuters.com/article/uk-london-heathrow-passengers-0223-idCNKBS2KS0OY?il=0)
+[香港增8674例确诊创新高将再发1万港元消费券](https://tw.news.yahoo.com/%E9%A6%99%E6%B8%AF%E5%A2%9E8674%E4%BE%8B%E7%A2%BA%E8%A8%BA%E5%89%B5%E6%96%B0%E9%AB%98-%E5%B0%87%E5%86%8D%E7%99%BC1%E8%90%AC%E6%B8%AF%E5%85%83%E6%B6%88%E8%B2%BB%E5%88%B8-135337640.html)
 
 *编辑：东京樱花团/知了知了
 发布：东京樱花团/老黑*

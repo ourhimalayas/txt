@@ -2,45 +2,26 @@
 ---
 
 
-## 在法律范围内以新中国联邦利益为主防止排华及个人灾难
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2056237/)
+## 中日财经爆| 伦敦希思罗机场乘客数创50年来新低
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2056345/)
 
-G-TV视频链接：[https://gtv.org/video/id=6212364e1408ee3a03a23037](https://gtv.org/video/id=6212364e1408ee3a03a23037)
+撰稿：东京樱花团/peterwong
 
-**郭文贵先生：**我现在最希望“黄河边”千万别打针，我希望他活下去。因为他是我逆增上缘的一个广播员，到处宣传我们，得让这个货活着才能证明我们多干净，多伟大。你看他那个长相就证明我们长得有多帅，多好。所以你想到“黄河边”的时候，你自己不爱自己是不可能的。你想到“蛇妖闫”、“九指妖”，的时候，你想想文真，小新你俩能怎么能不爱自己呢。天天对着自己亲自己的屁股，亲自己的脸，为啥不爱自己呢。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/伦敦希思罗机场乘客数创50年来新低.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=http%3A%2F%2Fcdn.feeyo.com%2Fnews%2F200819%2F20081909212962.jpg&amp;imgrefurl=http%3A%2F%2Fnews.carnoc.com%2Flist%2F541%2F541689.html&amp;tbnid=bWWC7eSQPqA0uM&amp;vet=12ahUKEwixwffKuJf2AhVBYZQKHS-kBngQMygKegUIARCwAQ..i&amp;docid=Feb0h-H4bqVvPM&amp;w=692&amp;h=386&amp;q=%E5%B8%8C%E6%80%9D%E7%BD%97%E6%9C%BA%E5%9C%BA&amp;ved=2ahUKEwixwffKuJf2AhVBYZQKHS-kBngQMygKegUIARCwAQ)
 
-亨利小哥、大石，咱不是自夸，七哥，你说你看个“路大脑袋”那个地儿，“咔，咔”的一口痰一口痰的，还有那个什么“鸡腿潘”，你说咱作为男人凭啥不爱自己啊，是不是！所以说对比之下，我们需要的时候，发现什么？原来我们人生做再正确的决定，你犯一次愚蠢，就把一切皆毁。疫苗就告诉了你。
+英国伦敦希思罗机场2月23日表示，受到中共病毒防疫旅行限制的影响，2021年的乘客人数下降到1,940万，创1972年以来最低。
 
-第二，我们对比世界的时候，我们是世界上最幸运儿、最幸运女，我们要珍惜、感恩。第三、疫苗问题到了今天，已经不是我们所控制，也不是我们所影响。没有人可以挡住，疫苗改变人类的这场整个世界政治、经济全面大冲击，它只是什么形式。我们就永远在法律范围内，以新中国联邦利益为主，阻止一个最根本的问题就是排华。绝对不能让共产党的疫苗和病毒，变成我们个人的灾难，排华是我现在最最担
+这个英国最大的机场在2021年录得17.9亿英镑(24.3亿美元)的税前亏损，该机场周三表示，目前乘客人数比预测值落后23%，但预计夏季出境旅游会很强劲。
 
-字幕来源：[2022月2日6日 《文贵大直播》全文字版](https://gnews.org/zh-hans/1971450/)
+希思罗机场（英语：Heathrow Airport；IATA代码：LHR；ICAO代码：EGLL），是英国首都伦敦的主要国际机场，中共病毒疫情之前为全英国乃至全世界最繁忙的机场之一。运营机构为希思罗机场控股公司。
 
-编辑整理：Davis；
+消息来源:
 
-字幕文件制作：知津；
+[伦敦希思罗机场2021年乘客人数创下自1972年以来新低](https://cn.reuters.com/article/uk-london-heathrow-passengers-0223-idCNKBS2KS0OY?il=0)
 
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ)、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A)、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/)；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

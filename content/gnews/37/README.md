@@ -2,25 +2,37 @@
 ---
 
 
-## 特鲁多强施紧急状态法遭起诉
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2055899/)
+## CDC隐瞒加强针数据 FDA专家敦促“说实话”
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2056020/)
 
-加拿大温哥华杨帆农场 枫叶快讯
+撰稿：纽约香草山 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-5.png)
+21日外媒報導，美国CDC於2月上旬公布的65岁以下成年人加强针有效性的第一批重要数据，該數據隐瞒了3300万名18-49岁族群的信息，而这族群通常被认为最不可能从加強疫苗中受益。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2200.png)
+爆出此爭議，CDC发言人回應道，担心这些数据会让人认为疫苗加强针无效，并且数据本身不完整，也没有经过核实，因此並未將該部分數據向公众公开。
 
-采编： 文莱      编译撰稿：文明(添草灭共)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2197.png)
-据加拿大媒体【真北方】2月22日报道，自由车队运动的抗议者近日将特鲁多政府告上法庭，要求其公布实施《紧急状态法》必要性的法律文件。
+CDC操纵数据的行為引发了科学界的愤怒，FDA顾问、疫苗专家保罗·奥菲特博士指出，由于CDC隐瞒这些信息，美国科学家不得不依赖以色列的数据。他敦促CDC说出真相，提交数据，让科学家们分析和解释数据代表的意义。流行病学家里维拉博士则说，两年来科学界一直在寻求这些数据，CDC拥有它们却选择隐瞒，这降低了了公众对他们的信任感。
 
-报道称，［加拿大前线护士］组织日前向联邦法院提起诉讼，指控当局因非法动用国家紧急权力，而违反了《权利和自由宪章》以及《加拿大权利法案》，并要求议会停止执行特鲁多的各项违宪法规。
+参考链接：[疾病預防控制中心拒絕公佈它收集的有關 3300 萬 18-49 歲美國人的增強效果數據，因為擔心這可能表明疫苗無效：FDA 專家告訴疾病預防控制中心“說實話”](https://www.dailymail.co.uk/news/article-10537161/CDC-refusing-publish-data-collected-booster-effectiveness-aged-18-49.html)
 
-该组织的律师表示，当局一直未提供任何依据来支持特鲁多认为“抗议活动已构成公共秩序紧急情况”的论点。因此，其目的就是针对、威胁和惩罚那些反对疫苗强制措施的抗议者。 而自由车队的和平抗议活动提高了公众对政府实施不合理政策的认知，并不存在任何所谓的“国家紧急情况”。 据悉，尽管美加边境目前已重新开放，渥太华的示威者也已基本散去，但自由党和新民主党仍投票决定将[紧急状态法]延长30天。并授权特鲁多政府可以在此期间任意扣押抗议者的资产、取消其保险、甚至逮捕他们。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
 
-校对编辑：硫酸羟氯喹64
+总编：zhong
+编辑：飞虹 
+校对/发稿：小野貓（文凱琳）
 
-发稿：青青
+**更多资讯，更多关注**
 
-新闻链接：[https://tnc.news/2022/02/22/protester-group-takes-trudeau-government-to-court-over-emergencies-act/](https://tnc.news/2022/02/22/protester-group-takes-trudeau-government-to-court-over-emergencies-act/)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-5.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

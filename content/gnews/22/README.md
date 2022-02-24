@@ -2,25 +2,31 @@
 ---
 
 
-## COVID-19 最新情报｜罗马尼亚最大足球具乐部宣布禁止接种疫苗的球员参赛及效力
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2056171/)
+## 俄罗斯普京宣布在乌克兰采取军事行动
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2056283/)
 
-**撰文｜疫情关注组 / 发布时间｜24/02/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/羅馬尼亞最大足球俱樂部宣佈禁止接種疫苗的球員參賽及效力.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：**[**https://gettr.com/post/pl6k0218bf**](https://gettr.com/post/pl6k0218bf)**)**
+撰稿：童媚
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3-1.jpeg)（图片来自美联社）
+普京动手了！
 
-罗马尼亚规模最大的足球具乐部 Steaua Bucharest 日前宣布，将全面禁止接种过 Covid-19 疫苗的球员再为球队效力，原因是接种过疫苗的球员已经“失去力量”并“开始倒在赛场或死在医院”。
+俄罗斯总统普京周四宣布在乌克兰采取军事行动。这与文贵先生直播警告的：“普京一定会动手”的情报不谋而合。
 
-该具乐部的老板，商人兼政治家吉吉·贝卡利（Gigi Becali）表示，他也不再允许接种疫苗的球员参加比赛，他不愿再看到原本伟大的球员渐渐的变得虚弱，他更不忍心再看到一个个年轻健康的球员死去。
+针对欧美日等国家发出的“制裁”通告，普京毫不畏惧，并警告其他国家，任何干扰俄罗斯行动的企图都将导致”他们从未见过的后果”。
 
-贝卡利强调，接种过 COVID-19 疫苗的人会倒下，会死在医院里，而那些拒绝接种疫苗的人却不会。他指出，“有人可能会笑话我，但我是对的，如果你看到CFR（CFR Cluj）和 Rapid（Rapid Bucuresti ）的球员们倒在地上，呼吸困难，你就该知道所有接种疫苗的人都会失去力量！”
+自从2021年3月，普京派兵10万以后，这场战争就是在中共支持下蓄谋已久的计划。冬奥会习普二人的密谈，让该地区的局势逐日升级。而现在来看，这场战争的爆发就是以俄罗斯支持的乌东地区的独立。普京说，这次袭击是为了保护乌克兰东部的平民，他这个说法也用来证明其入侵的合理性。
 
-贝卡利的这番言论不意外的引起了该国政府的强烈反感。当局在脸书官方页面 RO Vaccinare 上发布一份最新声明，反驳称“足球运动员在接种了 COVID-19 疫苗后不会失去力量。”并指出，“从医学和科学的角度来看，没有任何研究可以支持罗马尼亚某位人士的奇特观点。”
+普京在电视讲话中一直坚持并指责美国及其盟国无视俄罗斯阻止乌克兰加入北约并向莫斯科提供安全保证的要求。
 
-不过，仍然有不少当地民众支持贝卡利对疫苗的看法，他们认为，政府的声明恰恰反映了他们很心虚。
+虽然从昨天开始，欧美日等西方国家开始发布制裁俄罗斯银行以及财团的通告，但根据文贵先生的情报，这些制裁无法伤及普京的任何“私人利益”。
 
-来源｜[推特](https://twitter.com/Emishor/status/1496447904617312259?s=20&amp;t=_vOooKK2zDsQcuQM5gW2Pw)、[ESPN](https://www.google.com.hk/url?sa=t&amp;rct=j&amp;q=&amp;esrc=s&amp;source=newssearch&amp;cd=&amp;ved=2ahUKEwjLht_1sJf2AhXiD0QIHb9KAJoQxfQBKAB6BAgQEAI&amp;url=https%3A%2F%2Fwww.espn.com%2Fsoccer%2Ffcsb%2Fstory%2F4600728%2Fromanias-fcsb-deny-owners-suggestion-to-not-pick-vaccinated-players&amp;usg=AOvVaw2UZFvqTNUpQEbDKVhmEXsf)
+当普京发表讲话时，在基辅，哈尔科夫和乌克兰其他地区均有目击者听到大爆炸的声音。
 
+俄罗斯的全面入侵可能会造成大规模伤亡，并推翻乌克兰的民选政府。冲突的后果以及由此产生的对俄罗斯的制裁可能会在全世界引起反响，影响欧洲的能源供应，震撼全球金融市场，并威胁到欧洲大陆的冷战后平衡，而最先有先行反应的就是股市、大宗商品市场和黄金走势。
+
+新闻来源：[俄罗斯普京宣布在乌克兰采取军事行动|美联社新闻 (apnews.com)](https://apnews.com/article/russia-ukraine-europe-russia-moscow-kyiv-626a8c5ec22217bacb24ece60fac4fe1)
+
+发稿：MG5
+![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

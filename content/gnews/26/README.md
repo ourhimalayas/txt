@@ -2,36 +2,24 @@
 ---
 
 
-## 有声| 灭共后，新中国联邦当在全国普及《圣经》教育
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2056088/)
+## 特鲁多撤消了紧急法
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2056189/)
 
-配音：香草山福音部 – Daxia
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-355.jpg)
+图片来源： ici.radio-canada.ca
 
-当今世界共产极权资本,控制全球90%以上的媒体和社交平台，从而使中共谎言欺骗充满全球，让全球多数人误信了中共病毒及毒疫苗的超限,误导宣传并注射了中共病毒疫苗，人们之间的互害模式到了登峰造极的地步，其根本原因是美国及西方发达国家,被无神论的共产国际全方位暗中破坏人民的信仰近百年，使人民越来越远离基督教和天主教及对上帝的信仰。近一个世纪以来,放纵中共作恶壮大，致使中共步入了灭美灭白灭人类的边缘。
+零对冲网2月23日报道，加拿大总理特鲁多今天说他认为目前的法律和规则足以保证人民的安全。
 
+在加拿大立法机构投票延长紧急法以允许警察阻止骚乱后两天，现在总理特鲁多现在认为渥太华抗议已结束，他现在决定撤消紧急法。
 
+特鲁多上周首次启动紧急法，说需要警察的额外帮助以终止堵塞状况。
 
-文字版原文：**[灭共后，新中国联邦当在全国普及《圣经》教育](https://gnews.org/zh-hans/2048517/)**
+目前为自由护航的银行账号仍然处于被冻结状态。
 
+##### 新闻来源： [Trudeau Revokes Emergency Powers Act](https://www.zerohedge.com/geopolitical/trudeau-set-revoke-emergency-powers-report)
 
-
-发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+#  
 
  
 

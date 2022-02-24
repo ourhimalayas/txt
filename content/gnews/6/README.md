@@ -2,45 +2,40 @@
 ---
 
 
-## 加入G-EDU的中国老师工资将比俞敏洪的新东方高1.5倍
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2056352/)
+## 中日财经爆| 不惧中共小粉红抵制 Hybe去年获利益大增31％
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2056399/)
 
-G-TV视频链接：[https://gtv.org/video/id=62123b8a1408ee3a03a2364f](https://gtv.org/video/id=62123b8a1408ee3a03a2364f)
+撰稿：东京樱花团/peterwong
 
-**郭文贵先生：**第三个我们要做的事情，就是把中国人的未来和希望做好。就是我们G-教育、G-EDU，我们一定要做好，一定要做好。我们要做到什么？让所有东方教育的所有的失职员工，尽量到我们这来。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/不惧中共小粉红抵制-Hybe去年获利益大增31％.jpg)
 
-我们提供大量的币，现在我们可以公开的说。只要你参加G-EDU的原东方教育的这些老师们，参加到我们教育的。过去你是一块钱工资，我现在给你一块五。如果你有特殊的贡献，你可以拿到两块。付工资是用HDO付，你也可以选择喜币。有愿者请和磐石农场、唐平、Q May、青藤联系，吴老师联系，Happy老师也可以，Happy老师、Happy老师也可以。是吧！
+由于南韩男子天团“防弹少年BTS”线上音乐、周边商品热卖、代言广告收入成长，抵消了中共国抵制和演唱会收入下降的影响，BTS的娱乐经纪公司Hybe去年营业利益增长31％，达到1900亿韩元（1.59 亿美元），内容业务收入更是激增1.8倍。
 
-我们现在新的政策，加入G-EDU教育的所有中国老师。只要是加入进来的，你的工资要比原来东方高1.5倍。你还可以选择HDO付款，而且按小时付、按天付、按周付都行。所以说我们现在就是什么？在教育上，走东方的路。走东方叫东方海外是不是？就叫什么俞敏洪那个。是吧！叫做新东方。我们走新东方的路，让新东方无路可走。
+自从2020年10月中旬，BTS发表有关“朝鲜战争”言论，遭中共小粉红出征，已数次被围攻，最近一次发生在今年2月4日到20日北京冬奥期间。冬奥开幕式上，一名中共国表演者穿着韩服，引起中韩“网络论战”。
 
-字幕来源：[2022月2日6日 《文贵大直播》全文字版](https://gnews.org/zh-hans/1971450/)
+韩国一些议员指责中共国利用奥运舞台宣扬韩国文化，总统候选人抗议中共在“文化掠夺”。之后几天里，有关于韩服和谁可以穿韩服的紧张局势加剧，中国网友纷纷出征刊登穿韩服照片的韩国艺人。
 
-编辑整理：Davis；
+8日，防弹少年团成员SUGA（闵玧其）在IG帐户发布“D”的文字，并上传一张自己身穿韩服拍摄的旧照片，他身上穿的韩服类似韩国古代皇帝龙袍。
 
-字幕文件制作：知津；
+SUGA IG帐号马上引来一些微博用户叫嚣BTS“滚蛋”，一名中共小粉红：“这是不可原谅的，这个男人的粉丝根本不应该留在中国，粉丝你也是中国人吗？”另外2名韩国流行歌手也因发布自己穿传统服装的照片，收到微博用户大量负面评论。
 
-视频制作及上传：Cindy；
+2月7日，北京举行的短道竞速滑冰1000公尺的赛事中，代表韩国的黄大宪与李俊瑞选手都在小组竞赛中领先通过终点线，却同样在事后被判犯规而错失奖牌，最后该比赛被中国选手包揽金银牌，这起争议又引起中韩网友互撕。
 
-G-News发布：小满；
+2月10日，中共小粉红的炮火转向BTS队长RM，因为RM在自己IG帐号贴出比赛的画面，还搭配2个拍手与竖起大拇指的表情符号，为本国选手加油。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+这引来中共小粉红在RM和BTS的IG帐号留下了恶意评论、呕吐和比中指的表情符号，BTS粉丝随即反击，用紫心表情来洗版留言区，淹没中国网友仇恨的评论。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+在微博上，一些愤怒的用户还留言要求中共国禁止输入BTS音乐，但也有许多中国用户为BTS叫屈，BTS支持自己国家选手也有错吗？BTS在中国有无数粉丝，微博上有超过500万粉丝。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+就算BTS 屡屡遭中共小粉红出征，BTS母公司Hybe集团2021年营收依然大增58％至1.25兆韩元。音乐销售额增长18％，而代言广告收入增长1.2倍，内容业务（包括以BTS为特色的游戏和网络漫画）收入激增1.8倍。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+消息来源:
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ)、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A)、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+[不怕中國小粉紅出征 韓國防彈少年BTS母公司獲利仍大增31％](https://www.cmmedia.com.tw/home/articles/32420?utm_source=YH)
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/)；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

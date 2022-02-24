@@ -2,36 +2,34 @@
 ---
 
 
-## 大直播后记：火鸡龚和路大脑袋的谎言
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2056308/)
+## 战斗室指责政府用权力和控制来掩盖错误
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2056371/)
 
-整理：清水冷香、Lucy Liu
-编辑：小红帽
+作者：纽约磐石农场—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月22日，郭文贵先生在盖特平台上转发班农战斗室的一则视频显示，参加了加拿大渥太华抗议活动的保罗-亚历山大博士指出，政府毫不讲求科学，其如今的所作所为只是为了权利和控制，为了掩盖他们所犯的错误。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-23-下午11.14.23.png)
+亚历山大博士解释道，美国和加拿大的公共卫生官员关于中共病毒疫情所采取的政策，从实施的第一天起，就是完全无效的。更甚者，这些措施，尤其是中共病毒疫苗，非但对防控中共病毒无用，还对民众有害。
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/02/1-213.png)图片来源：雅典娜设计组（614）
+然而，特鲁多政府虽然知道自己已经失败，但他并不想放弃权力。为此，政府只能派出警察镇压卡车司机与和平抗议者。在此过程中，他们不惜侵犯民众的权利，甚至大肆破坏践踏民主。
 
+亚历山大博士也公开表示，世界必须彻查包括辉瑞和莫德纳在内的制药公司，他们为了推行疫苗所采取的措施导致了人类即将面临的疫苗大灾难。
 
-**郭文贵****先生****2021年10月29日直播**
+参考链接：[https://www.gettr.com/post/pw0dsnb0f1](https://www.gettr.com/post/pw0dsnb0f1)
 
-火鸡龚（龚小夏）为什么离开法治基金？全人类都知道她要拍电影。她来了就要拍电影，作为董事要十万、二十万、三十万、五十万、三百万、五百万，一千万拍电影。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
-路大脑袋（路德），申请了三十万自己建音乐间。路大脑袋，要房子、要股份，要地位。他讨厌长岛哥、老班长当这个联盟主席，不允许新中国联邦有联盟委员会。他要全部代表了。他申请了三十万买音乐间，给那个盲人强子制造成所谓音乐家。
+总编：Irene木木
+编辑：静言
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-你问问何频，龚小夏给何频出过什么价啊？ 我问过何频，我说，“何频你咋不用这个龚小夏呀？”他说，“她出的价钱很高啊。一开价都是一集几万，几十万美元”。就她那两下子，我那天看到那个报道，我特想笑。结果龚小夏说，“我为什么要离开法治基金呢？因为我不能说谎，我不能说那上面有几亿美元。”我们法治基金账上有多少钱，每月都是要公布的，大家都可以查的。谁说我有几亿美元了？龚小夏离开了法治基金，原因是她要拍电影，要占有战友的几千万美元–不是几百万，她才离开的。
-
-路大脑袋这个孙子是要花三十几万，要买他自己的所谓的音乐间。他什么音乐啊？万里约炮的音乐？跟蛇妖闫（闫丽梦）吐痰。这样的音乐？就这谎言，他也敢撒。
-
-资料来源：郭文贵先生2022年2月23日大直播
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

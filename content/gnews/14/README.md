@@ -2,28 +2,43 @@
 ---
 
 
-## CDC继续隐藏与中共病毒疫情有关的关键数据
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2056284/)
+## 俄罗斯关闭乌克兰边境领空 乌克兰宣布进入紧急状态
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2056358/)
 
-#### 撰稿：彩虹       
+《每日传讯》（Daily Wire）2月23日报道，**周三晚上，乌克兰政府宣布，由于局势迅速升级，为应对俄罗斯入侵，从午夜到早上关闭乌克兰东部的机场，进入紧急状态。**
 
-#### 责编：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/16456746161.png)图片来源：纽约时报
-2月23日，《新闻极限》报道，CDC（疾病控制和预防中心）一年多来一直在收集关于COVID-19疫苗接种和使用废水报告追踪该疾病激增的数据，但没有公布它所收集的大部分数据，声称由于担心这些细节被误读而被扣留。
+有报道指出，**在联合国安理会召开紧急会议之际，普京发表公开演讲，宣布入侵乌克兰。**
 
-CDC发言人克莉丝汀·诺德隆（Kristen Nordlund）告诉《纽约时报》，该联邦机构推迟发布它所收集的不同部分的信息，因为“到最后，它还没有准备好进入黄金时间”，而且因为CDC“在收集任何数据时，优先考虑的是确保它的准确性和可操作性”。
 
-例如，两周前，CDC关于65岁以下成年人加强注射的有效性的报告没有提到18至49岁的人的数字，或者说，在该年龄段群体的前两剂疫苗使他们受到COVID-19的保护之后，（数据表明该疫苗）被认为不太可能从另一针中受益。
 
-值得关注的是，在另一份报告中，该机构首次公布了有关废水数据的信息，这些数据每天更新，可能显示出中共病毒（COVID）激增的早期迹象。然而，自中共病毒疫情开始以来，一些州和地方已经与CDC分享了这些信息，但这是该机构第一次公布这些发现。
+> Wow – as the UNSC convenes for emergency session, [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw) gives a public address & declares an invasion of [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) to “de-nazify” and “demilitarise” the country.
+> 
+> The war has begun — very tough days ahead. [pic.twitter.com/T2mOYXwkyL](https://t.co/T2mOYXwkyL)
+> — Charles Lister (@Charles\_Lister) [February 24, 2022](https://twitter.com/Charles_Lister/status/1496681992297062401?ref_src=twsrc%5Etfw)
 
-但是，更为重要的是，几位熟悉被扣数据的人说，尽管这些数据的使用可以帮助地方和州的公共卫生官员有针对性地消除中共病毒，但已经收集的数据中只有一小部分被公布。
 
-据这些专家说，关于住院和死亡的全部信息，包括按年龄和疫苗接种状态分类的信息，可以帮助更好地确定健康的成年人是否需要加强注射，而且废水信息可以帮助更早地发现中共病毒变种和爆发情况。
 
-**新闻来源**
+本周，乌克兰总统泽伦斯基宣布，该国将开始招募18至60岁的预备役军人，以应对与俄罗斯爆发的战争。此前，他一直为避免战争做最后的努力。他说，入侵乌克兰可能“成为欧洲大陆一场大战的开始”。
 
-[CDC Withholds Key COVID Data, Citing Fears of Misinterpretation](https://www.newsmax.com/newsfront/covid-cdc-pandemic-vaccines/2022/02/23/id/1058159/)
+美联社(Associated Press)报道称，“俄罗斯禁止乌克兰东部空域的民用航空运输后，乌克兰采取了行动。”“周三晚上的声明为乌克兰当局控制的交通建立了缓冲区，以避免与俄罗斯当局控制的空中交通发生潜在的危险冲突。”
+
+据彭博新闻社(Bloomberg News)报道，美国总统拜登(Joe Biden)宣布对俄罗斯承认乌克兰两个分裂地区的独立进行制裁，试图表现出强硬的姿态，但这些制裁“对市场造成了轻微冲击，很快就被批评范围有限”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_2169.jpg)美国总统白登（图片来源：网络）
+美国及其盟友没有采取一揽子措施，使俄罗斯顶级银行陷入瘫痪，没有切断俄罗斯金融交易与全球经济的联系，也没有单独针对俄罗斯总统普京实施制裁，而是决定了规模不大的“首批”惩罚措施。
+
+报道称，俄罗斯在乌克兰边境附近集结了多达19万军队，以及数十辆坦克、重型火炮和海军舰艇。一名美国官员周三表示，大约80%的俄罗斯军队已经进入攻击位置，入侵随时可能开始。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/乌克兰入侵2.jpg)图片来源：网络。
+五角大楼最高政策官员米歇尔·弗卢努瓦(Michele Flournoy)说，“**我们知道俄罗斯会在灰色地带行动，普京会利用克格勃的策略在他的外围制造不稳定。**但对一个主权国家进行大规模入侵，以重新定位其政府，则是另一回事。”
+
+弗卢努瓦继续说:**“我们看到，虽然北京并不真的喜欢普京的策略，但他们愿意联合起来，成为一个威权国家，一起对抗西方民主国家。**
+
+**新闻链接：**
+
+[BREAKING: Ukraine Shuts Down Its Airspace – Putin Declares Start of Military Operation against Ukraine — VIDEO (thegatewaypundit.com)](https://www.thegatewaypundit.com/2022/02/breaking-ukraine-shuts-airspace-putin-declares-start-military-operation-ukraine-video/)
+
+[Russia Closes Airspace To Civilian Aircraft On Ukraine Border, Ukraine Declares State Of Emergency | The Daily Wire](https://www.dailywire.com/news/russia-closes-airspace-to-civilian-aircraft-on-ukraine-border-ukraine-declares-state-of-emergency)
+
+
 
  
 
