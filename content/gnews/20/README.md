@@ -2,18 +2,33 @@
 ---
 
 
-## 快讯┃乌克兰的防空系统已经被攻克
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2057042/)
+## 2022年2月24日澳洲股市简报
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2057115/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2215.png)[图片来源](https://www.fairplanet.org/editors-pick/hazing-is-still-common-and-deadly-in-the-russian-army/#:~:text=READ%2C%20DEBATE%3A%20ENGAGE.)
-TBS在线速报，据俄罗斯媒体报道，俄罗斯国防部刚刚宣布，乌克兰的防空系统已经被攻克。一个空军基地的军事设备也被摧毁。
+**撰稿：云彩**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1-19.jpg)图片来自the Australian
+ASX 200 指数下跌3%，6991点收盘，自2020年9月4日以来最大单日跌幅。工业和矿业板块领跌。原因俄罗斯入侵乌克兰。
 
-信息源：[【速報】ロシア国防省「ウクライナ軍の防空システムを制圧」](https://news.yahoo.co.jp/articles/d2563516d8028ca9464773b2da5679d21e6a61da#:~:text)
+**科技板块下跌 6.4%**
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
+科技公司 Life360披露亏损翻倍，股价跌至4.68澳元。 AI公司Appen股价下跌28.7%，至6.11澳元。
+
+**澳航Qantas股价下跌 5.1%**
+
+公司公布的半年亏损大于预期。在COVID-19的Omicron变体出现后，澳航不得不将国内和国际航线运力缩减1/3 。
+
+**黄金矿产公司股价上涨**
+
+Perseus Mining 涨12.3%，Ramelius Resources 涨4.7%，Evolution Mining 涨4.8% 。
+
+点评：看着上市公司股价的升升跌跌，感受到什么是病毒灾难，疫苗灾难和战争灾难。期望将来的千年和平。
+
+参考资料：
+
+[Australian shares drop by $74 billion amid Russia’s Ukraine invasion,the worst fall in 18 months](https://www.abc.net.au/news/2022-02-24/australian-share-market-asx-business-global-stock-covid/100856304)
+
+编辑：云彩
+![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
