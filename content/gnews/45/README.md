@@ -2,43 +2,20 @@
 ---
 
 
-## 普京启动战略威慑力量演习
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2056539/)
+## 中日财经爆|莫斯科证券交易所暂停所有交易
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2057130/)
 
-作者：新西兰伊甸农场 米拉娅
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2022年2月19日，据【俄新社】报道，俄罗斯总统普京通过弹道导弹发射启动了战略威慑力量演习。俄国家元首新闻秘书德米特里佩斯科夫告诉俄新社，总统普京发起了涉及核三合力量的演习。
-![普京启动战略威慑力量演习- 2022年2月19日, 俄罗斯卫星通讯社](https://cdn.sputniknews.cn/img/102976/09/1029760931_0:70:2788:1638_1920x0_80_0_0_e33a4fd6d39a4b0cdcf01d83762d0560.jpg)© Sputnik / Aleksey Nikolskyi
- 
-俄罗斯国防部门称，本次演习旨在测试军事指挥和控制机构、发射人员、军舰和战略导弹航母执行指定任务的准备情况，以及战略核武器和非核力量武器的可靠性。
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2217.png)[图片来源](https://www.coindesk.com/markets/2018/06/08/moscow-stock-exchange-to-publish-ico-data/)
+俄罗斯莫斯科证券交易所周三（2月24日）宣布，在总统弗拉基米尔·普京宣布开始在乌克兰东部的军事行动后，该交易所已暂时停止所有金融产品的交易，包括股票。
 
-俄罗斯目前正在采取大规模的部队和部队作战训练措施。几乎所有军区、舰队和空降部队都参与其中。俄国防部还在战略演习中展示了匕首导弹 (Kinzhal)、“口径”和“锆石”导弹的发射。
+该交易所在其网站上说，它将暂停所有市场的交易，直到进一步通知。
 
-俄罗斯国防部公布了战略威慑力量演习的镜头，这些演习是在其最高指挥官俄总统普京的领导下进行的。
+消息来源：[モスクワ証券取引所、全取引を一時停止](https://www.yomiuri.co.jp/economy/20220224-OYT1T50169/)
 
-俄罗斯航空航天部队发射的 匕首导弹 (Kinzhal) 高超音速空弹道导弹，以及伊斯坎德尔作战战术综合体的发射和导弹发射前的Tu-95MS战略轰炸机的出动都被视频捕捉到。
-
-这段视频还显示了北海和黑海舰队的船只和潜艇，它们发射了口径巡航导弹和锆石高超音速导弹。
-
-此外，在演习期间，一枚洲际弹道导弹亚尔斯从普列谢茨克（航天发射场）发射到堪察加半岛的库拉试验场。 据俄罗斯国防部消息称，演习带有计划性。俄罗斯这次演习于当地时间19日在俄罗斯多地展开，他们的航空航天部队、战略导弹部队、南部军区、北部和黑海舰队均投入了演习。
-
-演习期间，普京与白俄罗斯总统亚历山大·卢卡申科一起观看了导弹发射。
-
-目前正值俄乌边境局势紧张，俄罗斯进行的本次军事演习必然引起国际社会的密切关注。此前，俄总统普京曾表示不希望有战争，但是，根据目前事态可见，他并没有放弃随时开战的可能性和军事准备。俄乌局势是否就此升级还未可知。如果一旦俄乌边境发生战事对于世界局势及经济都会是一场巨大的动荡和威胁。
-
-参考链接：
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
-
-编辑/校正/发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

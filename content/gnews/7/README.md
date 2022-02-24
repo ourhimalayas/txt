@@ -2,126 +2,84 @@
 ---
 
 
-## 乌克兰东部的炮击升级
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2057689/)
+## 防火墙是中国人精神里的墙
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2057752/)
 
-[https://gtv.org/video/id=6215ed481408ee3a03a3b245](https://gtv.org/video/id=6215ed481408ee3a03a3b245)
+[https://gtv.org/video/id=6215ee151408ee3a03a3b272](https://gtv.org/video/id=6215ee151408ee3a03a3b272)
 
-Chuck Holton (Newsmax Foreign Correspondent)
-查克·霍尔顿（Newsmax 驻外记者）
+共产党在就永远有防火墙
+El Partido Comunista siempre tendrá un cortafuegos
 
-Now Russia boasts over 200,000 troops along Ukraine’s border
-现在俄罗斯在乌克兰边境拥有超过200,000名士兵
+防火墙不是物理化防火墙
+El cortafuegos no es un cortafuegos físico
 
-And this just just out from the Ministry of Defense here
-这个刚刚从国防部出来
+它是一个是意识形态
+Es una ideología
 
-that Russian tanks and armor are taking up attack positions
-俄罗斯坦克和装甲部队正在占据攻击阵地
+它是一个国家恐怖主义的防火墙
+Es un cortafuegos del terrorismo nacional
 
-They’re no longer just driving in convoys
-他们不再只是在车队中驾驶
+防火墙根本不存在
+El cortafuegos no existe en absoluto
 
-but they’re actually spreading out into attack positions along that Southern southeastern border
-但他们实际上正在沿着东南边界展开攻击阵地
+就像那个谷爱凌说的
+Así como dijo Gu Ailing
 
-They are deciding to continue their military drills up in Belarus today
-他们决定今天继续在白俄罗斯进行军事演习
+你上谷歌, 上苹果上下载一个VPN就可以翻墙了嘛
+Vas a Google, Apple y descargas una VPN para eludir la censura
 
-and yesterday they they filmed what I would call a Hollywood worthy training exercise
-而且昨天他们拍摄了我称之为好莱坞式的训练练习
+这话都说了
+Está todo dicho
 
-firing off dozens and dozens of ground to air missiles
-发射了数十枚地对空导弹
+你觉得她说的话不是真的吗? 是真的
+¿Tú crees lo que ella dijo no es cierto? Es verdad
 
-that would have taken out Ukraine’s entire Air Force about four times over just in those exercises
-仅仅在那些演习中，这将把乌克兰的整个空军摧毁大约四倍
+真要想翻墙不存在墙
+Si realmente quieres eludir el muro, esta cosa no existe
 
-And obviously, that’s a message meant to be sent to the west, not to Ukraine
-很明显，这是一条要发送给西方的信息，而不是给乌克兰
+是中国人心里边儿精神上那个墙
+Es el muro mental en el corazón del pueblo chino
 
-and that’s the reason I think people here in Kiev are still going about their business
-这就是我认为基辅的人们仍在继续做他们的事情的原因
+谷爱凌就在国内呢
+Gu Ailing está en China
 
-and shopping and doing whatever they normally do
-购物和做他们通常做的事
+你都相信这种事情
+Si crees este tipo de cosas
 
-because they understand that this is a conflict between the West and between Russia
-因为他们明白这是西方与俄罗斯之间的冲突
+那有墙吗
+¿Realmente existe muro?
 
-Unfortunately, they’re the political football in the middle
-不幸的是，他们是中间的政治足球
+墙在你心里边儿
+El muro está en tu corazón
 
-Shaun Kraisman （Newsmax host)
-肖恩·克莱斯曼 (Newsmax 主持人）
+在你脑子里边儿
+En tu mente
 
-Yeah, again, there have been talks at the people you spoken to though again on the ground
-是的，再次与你交谈过的人进行了会谈，但又是在地面上
+真正的墙就是共产党
+El verdadero muro es el Partido Comunista
 
-and some you see and I continue to point out people just walking around as normal yet
-还有一些你看到的，我继续指出人们只是像往常一样四处走动
+不把共产党灭了, 你灭什么墙
+Si no eliminas al Partido Comunista, qué tipo de muro estás destruyendo
 
-you’ve got announcement of a potential kill list there and Ukraine
-已经宣布了一个潜在的杀戮名单，而在乌克兰
+战友们别天真, 别天真, 别天真
+Compañeros luchadores, no sean tan inocentes, no sean inocentes
 
-Doesn’t seem like a lot of fear on the ground, at least in Kiev
-现场似乎没有太多恐惧，至少在基辅
-
-Chuck Holton
-查克·霍尔顿
-
-You know, there there have been so much disinformation
-你知道，有这么多的虚假信息
-
-that’s put out by the Russian media and Russian Foreign Service
-这是俄罗斯媒体和俄罗斯外交部发布的
-
-that they are saying that they’re capturing teams of Ukrainian terrorists inside the Donetsk region
-他们说他们正在顿涅茨克地区抓捕乌克兰恐怖分子小队
-
-actually, inside Russian territory on the other side of the occupied zone
-实际上，在占领区另一边的俄罗斯领土内
-
-and that they say they just captured some military infantry vehicles from Ukraine
-他们说他们刚刚俘获了一些来自乌克兰的军用步兵车辆
-
-that drove all the way across somehow that occupied zone
-以某种方式一路驶过被占领的区域
-
-and were captured as they were crossing into Russia
-而且在他们进入俄罗斯时被俘
-
-The people here in Kiev understand that there’s not one frame or one word
-在基辅这里的人明白，没有一个框架或一个词
-
-that comes out of that, the Russian media that is true
-由俄罗斯媒体而来的说的是真的
-
-And in talking with people who have been in contact with folks inside the occupied zones
-并与与占领区内的人有过接触的人交谈
-
-they know it too, and so, again
-他们也知道, 所以，再一次
-
-until the tanks are rolling and the bombs are falling
-直到坦克滚滚而来，炸弹落下时
-
-people here gonna keep on going
-这里的人会继续按平常做事
+我听到你问这问题的时候我就捉急
+Me pongo nervioso al escuchar que me haces esta pregunta
 
 * * *
 
-Date:02/21/2022
-原视频标题:Shelling in eastern Ukraine escalates
-乌克兰东部的炮击升级
-原视频日期：2022/02/21
-原视频链接[**https://twitter.com/newsmax/status/1495782265565110272?s=24**](https://twitter.com/newsmax/status/1495782265565110272?s=24)
-任务编号：KE413（379
-视频时间段 : 0:00-2:25
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-文新
+日期：02/21/2022
+原视频标题：防火墙是中国人精神里的墙
+El Cortafuegos es el muro que hay dentro del espíritu chino
+原视频日期：02/14/2022
+原视频网址：[**https://gettr.com/post/pucsbb2f1e**](https://gettr.com/post/pucsbb2f1e)
+任务编号：KC463（3747）
+视频时间段：0:00-01:01
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场- Jambo
 审片：洛杉矶盘古农场-银龙
 发布：洛杉矶盘古农场-恩典
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)

@@ -2,79 +2,40 @@
 ---
 
 
-## 参议员乔什·霍利:中共国 想要吞并台湾,乔拜登最好集中注意力
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2056667/)
+## 郭文贵：中国人将为习近平和共产党的必输买单
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2057139/)
 
-参议员乔什·霍利： 乔拜登最好集中注意力。[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 想要吞并 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click)，然后再将其力量投射到世界各地——所有这些都是为了干掉美国。拜登还没有做好准备。差远了 【转环球时报：台湾急于引起乌克兰问题的关注。但尽管边界存在争议，但乌克兰主权没有争议。台湾主权从未存在过。还说台湾政权迟早会被废除】
+整撰：奔跑吧黄小鸭
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-28.jpeg)图片来自：https://www.bing.com
+俄罗斯总统普京2月21日承认乌克兰东部顿涅茨克和卢甘斯克两个地区独立后，迅速向两地部署“维和”军队。普京还公开表示，2015年的明斯克停火协议已不再有效，解决乌克兰危机的“最佳”办法就是乌克兰放弃加入北约。
 
+中共习近平“不失时机”地出现在俄乌危机的风口浪尖。2022年北京奥运会开幕式上，习近平与普京高调会晤，普京的整个行程虽短短9个小时，但习、普两人之间形成的默契，已向全世界释放出一场更大的危机。美国公开表示，只要俄乌开打，将一并制裁中俄两国。显然，普京不为所动，继续向全世界极限施压。
 
+**从未消停的俄乌冲突**
 
-> Joe Biden better get focused. [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) wants to gobble up Taiwan and then project its power worldwide – all in an effort to take down the United States. And Biden isn’t ready. Not even close [https://t.co/Y489ThyWJ2](https://t.co/Y489ThyWJ2)
-> — Josh Hawley (@HawleyMO) [February 23, 2022](https://twitter.com/HawleyMO/status/1496523282358714374?ref_src=twsrc%5Etfw)
+前苏联解体之时，乌克兰坚持从俄罗斯联邦分离，最终宣布独立并获得美国及西方民主国家的支持。2014年，普京兵不血刃吞并乌克兰东南部的克里米亚地区，在美欧多国的外交谴责和经济制裁之下，克里米亚的独立最终生米煮成熟饭。
 
+而同年发生在乌克兰东部另外顿涅茨克和卢甘斯克两个地区，当地的亲俄分子效仿克里米亚与乌克兰爆发武装冲突，经德法两国紧急出面调和后，俄乌双方于2015年签署了明斯克协议。协议规定双方停火，在承认乌克兰主权的同时，保障两个地区的自治。遗憾的是，明斯克协议自签订之日起就未得到有效的履行，反而成为俄乌之间不曾消失的危机中随时引爆的火药桶。
 
+**习、普二人的北京密会**
 
-前国务卿迈克.蓬佩奥： 弗拉基米尔·普京没有改变。 美国领导层发生了变化。 只要美国处于不利地位，普京的侵略就会继续。 【附福克斯采访蓬佩奥：拜登未能兑现阻止俄罗斯扩张的竞选承诺】
+吞并克里米亚八年后的今天，普京故技重施。他首先制造舆论，让俄乌危机从2021年走到2022年成为全世界的焦点，然后又在全世界的眼皮底下与中共习近平高调互动，尽管美国和欧盟国家纷纷表示，只要俄对乌动手，就会对俄实施经济制裁。前有巧夺克里米亚的成功经验，后有与习近平两个半小时的单独密谈，深知美欧国家套路的普京，这一次不仅手握中共真金白银的强心剂，还获悉到习近平的真正意图，于是，他巧妙地迈出了密会后的第一步。
 
+普、习二人在冬奥会期间密谋“你取乌克兰，我取台湾”的情报，早已被郭文贵先生在直播中曝光。据郭先生披露，冬奥会开幕式后，习近平在短暂隐身的几天内，除了偷偷安排一系列对台湾的作战部署外，还不得已做了脾和肾的两个紧急手术。术后的习近平正等待着普京的动作，二人之间有巨大的秘密。
 
+“听普京身边人说，习、普在北京有两个半小时的单独无翻译秘密会谈。”郭先生揣测普京和习绝密会谈的其中内容之一，“不打台湾不打乌克兰，咱俩都得完蛋，因为党内政治斗争他俩都得死；开战，会被世界彻底制裁。”
 
-> Vladimir Putin didn't change. American leadership changed. 
-> 
-> And Putin's aggression will continue so long as America is on its back foot. [pic.twitter.com/SLAaNwmag6](https://t.co/SLAaNwmag6)
-> — Mike Pompeo (@mikepompeo) [February 23, 2022](https://twitter.com/mikepompeo/status/1496567220821966849?ref_src=twsrc%5Etfw)
+**国际政治游戏需要有人埋单**
 
+郭文贵先生称普京具有极高的政治手腕。一份1991年的机密文件近日被德国的《明镜》曝光，文件显示，英、美、法、德外交官曾在德国统一谈判期间向前苏联承诺，不会向东扩展北约。普京显然抓住了美欧国家的软肋，北约不东扩成了普京为实现吞并顿涅茨克和卢甘斯克两地区等等一系列扩张计划、与美欧多国继续谈判的筹码。不愧为2022年最大玩家的普京，已在北京奥运会上成功将这顶全世界唾弃的侵略者桂冠戴到“政治弱鸡”习近平的头上。
 
+郭先生在2月23日的直播中指出，全世界国家都在你来我往地耍着政治游戏，只有习近平一人被蒙在鼓里。 “习太阳以为跟普京勾兑得很好，普京为自己有效地争取了时间，他就想三小时内拿下台湾，军队只有许其亮几个人知道。他在憋大招，等全世界都乱套的时候立马上去。”
 
-参议员玛莎.布莱克本： 拜登政府在俄罗斯和共产主义中国问题上表现出无能。
+习有所不知，一个巨大的包围圈在等着收网。“美国就等着习、普二人狼和狈之间形成互咬的局面，等着全世界彻底崩溃的时候，最后由美国出场，拯救全人类、拯救地球。这场大戏，中国人将为习太阳、将为共产党一次性买单。”
 
+参考链接：
 
-
-> The Biden administration has demonstrated incompetence when it comes to Russia and Communist China.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [February 23, 2022](https://twitter.com/MarshaBlackburn/status/1496559848489631747?ref_src=twsrc%5Etfw)
-
-
-
-参议员瑞克·斯科特： 乔·拜登的司法部更关心将父母和卡车司机错误地贴上国内恐怖分子的标签，而不是阻止 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 监视美国人和保护我们的国家安全。 【附福克斯新闻：拜登司法部在种族偏见的抱怨中取消对抗中共国的国家安全倡议】
-
-
-
-> Joe Biden’s [@TheJusticeDept](https://twitter.com/TheJusticeDept?ref_src=twsrc%5Etfw) is more concerned with wrongfully labeling parents & truckers as domestic terrorists than stopping Communist China from spying on Americans & protecting our national security. [https://t.co/8GnH94qUS1](https://t.co/8GnH94qUS1)
-> — Rick Scott (@SenRickScott) [February 23, 2022](https://twitter.com/SenRickScott/status/1496624725765808132?ref_src=twsrc%5Etfw)
-
-
-
-参议员汤姆·科顿： 中共盗窃美国数万亿知识产权，把在美留学生变成外国间谍。然而，拜登政府宣布取消负责打击这种破坏活动的倡议，因为他们声称这是种族主义。 【附科顿参议员官网就司法部结束“中共国倡议”的声明】
-
-
-
-> The CCP has stolen trillions in U.S. intellectual property & turned students studying in the U.S. into foreign spies. Yet the Biden administration announced it’s cancelling the initiative tasked with combatting this sabotage because they claim it’s racist.[https://t.co/76FaaYRUxu](https://t.co/76FaaYRUxu)
-> — Tom Cotton (@SenTomCotton) [February 23, 2022](https://twitter.com/SenTomCotton/status/1496624469179355140?ref_src=twsrc%5Etfw)
-
-
-
-参议员马可·卢比奥： 我希望我们能从 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click) 危机中学到宝贵的一课 我们需要自己生产的能源，重新靠自己制造，而不是依赖俄罗斯和 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)
-
-
-
-> I hope we are learning a valuable lesson with [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) 
-> 
-> We need to produce our own energy, make things again & not depend on [#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw) & [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/EnCmgVzL70](https://t.co/EnCmgVzL70)
-> — Marco Rubio (@marcorubio) [February 24, 2022](https://twitter.com/marcorubio/status/1496655883782270977?ref_src=twsrc%5Etfw)
-
-
-
-参议员马可.卢比奥：
-
-[#俄罗斯](https://twitter.com/hashtag/%E4%BF%84%E7%BD%97%E6%96%AF?src=hashtag_click) [#Russian](https://twitter.com/hashtag/Russian?src=hashtag_click) 入侵 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click) [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hashtag_click) 现在正在进行中
-
-在未来的几个小时内 [#俄罗斯](https://twitter.com/hashtag/%E4%BF%84%E7%BD%97%E6%96%AF?src=hashtag_click) [#Russia](https://twitter.com/hashtag/Russia?src=hashtag_click) 将 – 对防空系统进行打击 – 采取行动从 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click) 东部切断 [#基辅](https://twitter.com/hashtag/%E5%9F%BA%E8%BE%85?src=hashtag_click) [#Kyiv](https://twitter.com/hashtag/Kyiv?src=hashtag_click) – 采取行动切断东部接触线上的乌克兰军队，以防止他们后退保卫基辅
-
-
-
-> The [#Russian](https://twitter.com/hashtag/Russian?src=hash&amp;ref_src=twsrc%5Etfw) invasion of [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) is now underway
-> — Marco Rubio (@marcorubio) [February 24, 2022](https://twitter.com/marcorubio/status/1496667918490382343?ref_src=twsrc%5Etfw)
-
-
+[2022年2月23日大直播速记精萃 – GNEWS](https://gnews.org/zh-hans/2055108/)[1991 Doc Proves the West Did Commit to Non-Expansion of NATO Eastwards, Broke the Promise — Report – 19.02.2022, Sputnik International (sputniknews.com)](https://sputniknews.com/20220219/1991-doc-proves-west-did-commit-to-non-expansion-of-nato-eastwards-broke-the-promise--report-1093161024.html)
 
  
 
