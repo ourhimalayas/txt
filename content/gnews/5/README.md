@@ -2,34 +2,26 @@
 ---
 
 
-## 民调显示 多数美国选民支持军事保卫台湾
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2059603/)
+## 俄罗斯悍然入侵乌克兰台湾危在旦夕
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2059676/)
 
-作者：纽约香草山农场 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月21日，据当地媒体报道，美国一家民意调查机构针对台湾危机的调查结果显示，美国大多数的选民赞成国家派遣地面部队保卫台湾。
+加拿大温哥华扬帆农场  硫酸羟氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide3-10.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/a-17-edited.jpg)图片来源：盖特
 
-该民调数据指出，超过58.1%的美国人表示，如果台湾被中共国入侵，拜登政府应该使用美国的军事资源来保卫台湾。同时，该调查也分析称，在台湾主权问题上，美国民主党、共和党和独立人士都一边倒地展现出支持态度。
 
-另一方面，该调查机构的主席也在一份声明中强调，尽管这将伴随着巨大的风险，甚至可能为之付出高昂的代价，但美国所有党派的选民都坚定地认为，美国应该帮助自由和民主的台湾进行军事防御，用以应对来自中共国日益增长的威胁。
+据2月24日盖特消息，文贵先生最新发布的盖特视频显示出，俄罗斯军队大量的战斗机和轰炸机以及坦克装甲车当天长驱直入，悍然进犯乌克兰领空和领土。低飞呼啸而过城市上空的俄军战机清晰可见。
 
-参考链接：[Poll: Majority Opposes US Defending Ukraine, But OK With Taiwan](Majority%20Opposes%20US%20Defending%20Ukraine,%20But%20OK%20With%20Taiwan)
+对此，文贵先生紧急呐喊警告道：战魔再次打烂世界！这样残酷的战争很快会在台湾发生！希望所有在台湾的战友们和朋友们能以最快的速度撤离！任何台湾的战友都应该受到[新中国联邦]全球农场和战友们的全力协助和支援。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+至此，在俄罗斯公然入侵乌克兰之后，台海之战将一触即发，中共党卫军将迅速攻占涌入台湾，人道主义灾难正迫在眉睫，消灭中共政权已刻不容缓。具体详细情况，我们将静待文贵先生的进一步警示。
 
-总编：Irene木木
-编辑：百香果
-校正/发稿：谐趣园
+* * *
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+消息来源：https://gettr.com/post/pwl3b20ef8
+
+编辑撰稿，发稿：硫酸羟氯喹64
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

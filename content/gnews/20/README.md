@@ -2,34 +2,19 @@
 ---
 
 
-## 澳大利亚宣布对俄罗斯实施制裁
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2059445/)
+## 美国卡车司机华盛顿抗议活动是否会如加国一样被警察野蛮执法？
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2059518/)
 
-作者：新西兰伊甸农场-玫瑰
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月23日，据相关媒体报道，由于俄罗斯承认顿涅茨克和卢甘斯克人民共和国的独立，澳大利亚总理斯科特-莫里森当天宣布，澳洲政府将对俄罗斯提出制裁。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-24-上午10.28.54.png)
-莫里森总理在声明中指出，该制裁措施将包括对俄罗斯安全理事会八名成员实施的旅行禁令和有针对性的金融制裁。此外，与莫斯科有关的实体以及俄罗斯银行、交通、能源、电信、石油、天然气和矿产行业都将受到处罚。
+**编译：verifunny**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/22-7.jpg)
+据《大纪元》2月23日报道，美国五角大楼官员说，国防部长劳埃德·奥斯汀已批准了华盛顿特区大都会警察局（MPD）和美国国会大厦警察（USCP）提出的部署要求。国民警卫队在一份声明中说，这项批准将使大约400名华盛顿特区国民警卫队成员能够 “在指定的交通站点提供支持，提供指挥和控制，并满足维持的要求”。
 
-莫里森表示，此举是为了回应俄罗斯对乌克兰的侵略，因为澳大利亚绝不会接受俄罗斯抱有入侵邻国的可能性。
+最近在加拿大的紧急法令野蛮执行会不会在美国上演？执法过当，冻结银行账号，骇客泄漏捐款者的讯息，媒体恶魔化的报道等等。美国人的反应会是什么样的，无人知晓。
 
-早先，美国总统乔-拜登和英国首相鲍里斯-约翰逊相继宣布了对俄罗斯所实施的制裁。美、英两国和欧洲部分国家认为，顿巴斯共和国已经侵犯了乌克兰的主权。
+美国卡车车队会在这个星期抵达预定的目的地，延续加拿大卡车车队所释放的捍卫自由的精神与决心。美国会不会是那个使到欧洲国家的卡车行动更大的推动力？ 大家需要做好准备，因为大家需要囤积食物，水和药物来渡过卡车抗议导致供应链缺货的局面。
 
-参考链接：[‘This is Only the Start’: Australia Files Sanctions Against Russia Over Recognition of LPR, DPR](https://sputniknews.com/20220223/this-is-only-the-start-australia-files-sanctions-against-russia-over-recognition-of-lpr-dpr-1093286813.html)
+**新闻来源**：[https://www.theepochtimes.com/pentagon-approves-deployment-of-national-guard-troops-for-dc-trucker-convoy-protest\_4296291.html](https://www.theepochtimes.com/pentagon-approves-deployment-of-national-guard-troops-for-dc-trucker-convoy-protest_4296291.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
-
-总编：Irene木木
-编辑：Ivy001
-校正/发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

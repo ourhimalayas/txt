@@ -2,42 +2,48 @@
 ---
 
 
-## 新西兰通过新建模显示两地单日新增病例可达9000例
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2059341/)
+## 不满俄承认乌东两国独立 德中止北溪2号方案
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2059442/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image011-4.jpg)RNZ / Simon Rogers
-据新西兰媒体RNZ报导，Counties Manukau地方医管局的人口健康主任Gary Jackson通过模型预测疫情发展情况，新的模型显示，在Omicron疫情中，如果传播率低，奥克兰和北地的病例数峰值可能达到每天4000例，如果传播率高，则可能达到9000例。
-
-上个月，Jackson的模型显示，北部地区出现了1800个病例的高峰，其中约有190人住院。
-
-昨天，奥克兰有1802个新的小区病例，北地有36个。奥克兰的医院里有128名新冠患者。Jackson说，这与低度传播的情况相当吻合，预计在3月中旬达到高峰。 Jackson还表示，新西兰的新冠疫情模型有很多参考的是澳大利亚的情况，但新西兰过去的峰值都较低，这意味着实际数字可能比预测的要低。
+作者：香草山教育部 – Naughty(文行)
 
 
 
-[援引连结](https://www.rnz.co.nz/news/national/462071/covid-19-omicron-outbreak-peak-could-reach-4000-cases-a-day-in-northern-areas-modelling)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
 
 
-**推出问题，敲出真相，爆料在路上！**
+德国总理萧兹22日表示，针对俄罗斯承认乌克兰东部两个分离主义地区独立，他将终止与俄国合作的北溪2号天然气管线案审核程序。在与俄罗斯的紧张对峙日益加剧之际，西方各国及乌克兰把这条管线视为跟俄罗斯博弈的一项筹码。
 
-**请关注和订阅我们的以下账号：**
+北溪2号天然气管线计划向来是德国与盟友关系紧张的原因之一，俄罗斯预定经由这条取道波罗的海的管线，输送天然气给德国。德国的盟友声称这会导致德国对于能源仰赖益增，并大大增加俄罗斯对欧洲的影响力。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide5-6.jpg)
+乌克兰总统泽伦斯基今天稍早要求立即终止北溪2号天然气管线方案。萧兹上周访问基辅时，泽伦斯基表示，俄罗斯将把持这条管线作为地缘政治武器。
 
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+萧兹今天还表示，终止这项方案的决定仅是具体行动之一，后续可能对俄罗斯实施进一步制裁。萧兹称，相信欧盟将同意德国针对俄罗斯采取重大而有力的制裁方案。
 
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+参考链接：
+1. [German government halts certification of nord stream 2 gas pipeline](https://www.spiegel.de/international/europe/german-government-halts-certification-of-nord-stream-2-gas-pipeline-a-c2b987d1-2bb1-4ee5-b6e2-ad98b812a4a6)
+2. [Ukraine-Russia: Germany suspends Nord Stream 2 gas pipeline](https://www.todayville.com/ukraine-russia-germany-suspends-nord-stream-2-gas-pipeline/)
 
-**玫瑰看新闻YOUTUBE账号**：
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
 
-**玫瑰看新闻**
+总编：zhong
+编辑：Lakeman文仁
+校对/发稿：为真不破20
 
-**黑森林的故事**
+**更多资讯，更多关注**
 
-**ROSE NEWS**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-**【玫瑰看新闻】推特账号**：
 
-**ROSE NEWS (@ROSENEWS4)A**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
