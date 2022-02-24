@@ -2,24 +2,28 @@
 ---
 
 
-## COVID-19 最新情报｜罗马尼亚最大足球具乐部宣布禁止接种疫苗的球员参赛及效力
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2056171/)
+## 喜贷款、喜存款蓄势待发，HPay（喜支付）是打开世界金融盒子的密码
+` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/2056193/)
 
-**撰文｜疫情关注组 / 发布时间｜24/02/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/羅馬尼亞最大足球俱樂部宣佈禁止接種疫苗的球員參賽及效力.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：**[**https://gettr.com/post/pl6k0218bf**](https://gettr.com/post/pl6k0218bf)**)**
+新西兰伊甸农场Gnews组 财经G乐部-亚伦
 
-罗马尼亚规模最大的足球具乐部 Steaua Bucharest 日前宣布，将全面禁止接种过 Covid-19 疫苗的球员再为球队效力，原因是接种过疫苗的球员已经“失去力量”并“开始倒在赛场或死在医院”。
+2月23日，郭文贵先生于GTV和Gettr大直播中透露一定会发生的喜贷款业务正处于最后的法律研究阶段，同时喜存款业务也会上线，并表示，HPay（喜支付）是打开世界金融盒子的密码。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/ac1cabfe2643121df09f3bbb3b33afe0-1.jpg)图片来源Gettr
 
-该具乐部的老板，商人兼政治家吉吉·贝卡利（Gigi Becali）表示，他也不再允许接种疫苗的球员参加比赛，他不愿再看到原本伟大的球员渐渐的变得虚弱，他更不忍心再看到一个个年轻健康的球员死去。
 
-贝卡利强调，接种过 COVID-19 疫苗的人会倒下，会死在医院里，而那些拒绝接种疫苗的人却不会。他指出，“有人可能会笑话我，但我是对的，如果你看到CFR（CFR Cluj）和 Rapid（Rapid Bucuresti ）的球员们倒在地上，呼吸困难，你就该知道所有接种疫苗的人都会失去力量！”
+喜贷款将是主要面向广大战友的贷款，未来要成为战友控制的贷款平台。具体操作方法是利用手中的HCoin（喜币）作为抵押物，抵押率不超过抵押HCoin（喜币）总价值的10%，贷款以HDO（喜美元）方式贷出。
 
-贝卡利的这番言论不意外的引起了该国政府的强烈反感。当局在脸书官方页面 RO Vaccinare 上发布一份最新声明，反驳称“足球运动员在接种了 COVID-19 疫苗后不会失去力量。”并指出，“从医学和科学的角度来看，没有任何研究可以支持罗马尼亚某位人士的奇特观点。”
+当然，喜贷款机制会规定可提现的HDO（喜美元）数额，也会限制喜贷款在HPay（喜支付）中的使用量。好消息是由于大量KYC喜账户的开通以及巨额的资金流入，以至于原本的部分锁币可能会提前释放出来，如果有必要的话可以卖掉HCoin（喜币）完成喜贷款的还款动作。
 
-不过，仍然有不少当地民众支持贝卡利对疫苗的看法，他们认为，政府的声明恰恰反映了他们很心虚。
+同样，以战友为主导的喜存款也会上线。HDO（喜美元）的存款利率是每年5%-10%不等（根据存款锁定期），每年喜联储用等价值的HCoin（喜币）支付利息。这样做的好处，可以使得战友在第二年乃至以后不出资购买即可享有新的HCoin（喜币）。
 
-来源｜[推特](https://twitter.com/Emishor/status/1496447904617312259?s=20&amp;t=_vOooKK2zDsQcuQM5gW2Pw)、[ESPN](https://www.google.com.hk/url?sa=t&amp;rct=j&amp;q=&amp;esrc=s&amp;source=newssearch&amp;cd=&amp;ved=2ahUKEwjLht_1sJf2AhXiD0QIHb9KAJoQxfQBKAB6BAgQEAI&amp;url=https%3A%2F%2Fwww.espn.com%2Fsoccer%2Ffcsb%2Fstory%2F4600728%2Fromanias-fcsb-deny-owners-suggestion-to-not-pick-vaccinated-players&amp;usg=AOvVaw2UZFvqTNUpQEbDKVhmEXsf)
+举例说明，假设存期10年的10万HDO（喜美元）存款，每年10%的利率，利息就是价值10000HDO（10万\*10%的喜美元）的HCoin（喜币）。假设发放利息时HCoin（喜币）100美元一个，即收到100个（10000/100）HCoin（喜币）作为利息。喜存款之后，还有可以直接贴现、无条件支付的喜保险。
+
+最后，所有HDO（喜美元）或HCoin（喜币）的流动都会以HPay（喜支付）来实现。值得一提的是，HPay（喜支付）是一个转账系统，而不是商务系统，所以HPay（喜支付）的流通不等同于商业交易。HPay（喜支付）是战略性的，将来不同的国家会有不同的政策，同样有不同的政策也会催生不同的对策。
+
+HPay（喜支付）是打开世界金融盒子的密码，是新中国联邦走向世界的财富钥匙，是解救肉体“锁链女”、思想“锁链女”的希望，这也是HPay（喜支付）的玄妙之处。
+
+新中国联邦人一定要拥有财富，只有真正的在财富上强大，才可以在庸俗的人面前有尊严，才可以更安全，才有资格具备维护正义的能力。
 
  
 

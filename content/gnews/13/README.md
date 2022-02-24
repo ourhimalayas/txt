@@ -2,39 +2,22 @@
 ---
 
 
-## 普京宣告展开军事行动，乌克兰多处遭轰炸
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2057150/)
+## 中日财经爆|日本百货公司1月份销售额大涨15.6%
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2057180/)
 
-撰稿：Sam Cho
-![](https://assets.gnews.org/wp-content/uploads/2022/02/244.jpg)图片来自网络
-普京正式宣告，将对乌克兰展开特殊军事行动，以保护过去八年来遭受乌克兰当局迫害的俄裔居民。
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2220.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.japan-guide.com%2Fg20%2F2072_03.jpg&amp;imgrefurl=https%3A%2F%2Fwww.japan-guide.com%2Fe%2Fe2072.html&amp;tbnid=eKrL5_n6yeSCUM&amp;vet=12ahUKEwi0tv2G7pf2AhUoHKYKHUxCATUQMygCegUIARCxAQ..i&amp;docid=xwLgDB_QiZOwTM&amp;w=8)
+日本百货公司协会2月24日宣布，全国百货公司1月份的销售额比上年同期增长15.6%，达到约3751亿日元。
 
-乌克兰各地传出爆炸巨响，在乌俄边界，可以见到俄军装甲部队越过边境，进入乌克兰。
+这是连续第四个月的同比增长，去年因紧急状态迫使百货公司缩短营业时间，致使营业额下降，由于气温下降，大衣等冬季服装的销售也很强劲。
 
-乌克兰外交部长表示，俄军已对乌克兰全面开战，多处军事设施及哨所遭到空袭。
+但是与2020年1月相比，销售额还是下降了18.8%，并没有恢复到中共病毒（新冠）疫情前的水平。
 
-据称，乌克兰遭受分别来自南方的克里米亚，东方的俄罗斯，及北方的白俄罗斯的袭击。目前已传出数以百计的伤亡。
+消息来源：[１月の百貨店売上高、冬物好調で１５・６％増…感染拡大前の水準には戻らず](https://www.yomiuri.co.jp/economy/20220224-OYT1T50159/)
 
-普京在宣布军事行动的同时，要求乌克兰部队放下武器回家，以免遭到俄军血洗；也警告任何意图干预的国家，都将面临难以承受的后果。
-
-德国驻联合国大使称，这是欧洲这个世代最濒临战争爆发的时刻。
-
-澳洲总理谴责俄方的军事行动，并迅速颁布制裁俄方的行动。
-
-俄罗斯驻澳洲大使批评澳方听信乌克兰一面之词的反应，显示仇外心态。
-
-乌克兰近日亦遭受多起网络攻击。澳洲总理也示警可能面临的网络攻击。
-
-该来的还是要来。一如七哥在大直播中所预示，普京除了收钱办事，心中始终不忘恢复俄罗斯昔日荣光，以报当年目睹帝国解体的国耻。
-
-收到习近平上万亿美元的经济支持，普京有足够底气指挥大军教训破坏明斯克协议的乌克兰。俄乌战端已全面开启，在欧亚大陆的另一端的台海，恐怕也将难保太平，七哥过去多次的示警，是否也将再次得到印证。
-
-新闻参考链接：
-
-[Russia Ukraine news: Putin orders ‘military operation’ in Ukraine](https://www.news.com.au/technology/innovation/military/russia-ukraine-news-invasion-coming-at-any-hour-now-us-source-claims/news-story/a99d8387326902d544b1ad0e92275d0f)
-
-*发稿：mgjxs*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,43 +2,80 @@
 ---
 
 
-## 普京启动战略威慑力量演习
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2056539/)
+## 参议员乔什·霍利:中共国 想要吞并台湾,乔拜登最好集中注意力
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2056667/)
 
-作者：新西兰伊甸农场 米拉娅
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2022年2月19日，据【俄新社】报道，俄罗斯总统普京通过弹道导弹发射启动了战略威慑力量演习。俄国家元首新闻秘书德米特里佩斯科夫告诉俄新社，总统普京发起了涉及核三合力量的演习。
-![普京启动战略威慑力量演习- 2022年2月19日, 俄罗斯卫星通讯社](https://cdn.sputniknews.cn/img/102976/09/1029760931_0:70:2788:1638_1920x0_80_0_0_e33a4fd6d39a4b0cdcf01d83762d0560.jpg)© Sputnik / Aleksey Nikolskyi
- 
-俄罗斯国防部门称，本次演习旨在测试军事指挥和控制机构、发射人员、军舰和战略导弹航母执行指定任务的准备情况，以及战略核武器和非核力量武器的可靠性。
+参议员乔什·霍利： 乔拜登最好集中注意力。[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 想要吞并 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click)，然后再将其力量投射到世界各地——所有这些都是为了干掉美国。拜登还没有做好准备。差远了 【转环球时报：台湾急于引起乌克兰问题的关注。但尽管边界存在争议，但乌克兰主权没有争议。台湾主权从未存在过。还说台湾政权迟早会被废除】
 
-俄罗斯目前正在采取大规模的部队和部队作战训练措施。几乎所有军区、舰队和空降部队都参与其中。俄国防部还在战略演习中展示了匕首导弹 (Kinzhal)、“口径”和“锆石”导弹的发射。
 
-俄罗斯国防部公布了战略威慑力量演习的镜头，这些演习是在其最高指挥官俄总统普京的领导下进行的。
 
-俄罗斯航空航天部队发射的 匕首导弹 (Kinzhal) 高超音速空弹道导弹，以及伊斯坎德尔作战战术综合体的发射和导弹发射前的Tu-95MS战略轰炸机的出动都被视频捕捉到。
+> Joe Biden better get focused. [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) wants to gobble up Taiwan and then project its power worldwide – all in an effort to take down the United States. And Biden isn’t ready. Not even close [https://t.co/Y489ThyWJ2](https://t.co/Y489ThyWJ2)
+> — Josh Hawley (@HawleyMO) [February 23, 2022](https://twitter.com/HawleyMO/status/1496523282358714374?ref_src=twsrc%5Etfw)
 
-这段视频还显示了北海和黑海舰队的船只和潜艇，它们发射了口径巡航导弹和锆石高超音速导弹。
 
-此外，在演习期间，一枚洲际弹道导弹亚尔斯从普列谢茨克（航天发射场）发射到堪察加半岛的库拉试验场。 据俄罗斯国防部消息称，演习带有计划性。俄罗斯这次演习于当地时间19日在俄罗斯多地展开，他们的航空航天部队、战略导弹部队、南部军区、北部和黑海舰队均投入了演习。
 
-演习期间，普京与白俄罗斯总统亚历山大·卢卡申科一起观看了导弹发射。
+前国务卿迈克.蓬佩奥： 弗拉基米尔·普京没有改变。 美国领导层发生了变化。 只要美国处于不利地位，普京的侵略就会继续。 【附福克斯采访蓬佩奥：拜登未能兑现阻止俄罗斯扩张的竞选承诺】
 
-目前正值俄乌边境局势紧张，俄罗斯进行的本次军事演习必然引起国际社会的密切关注。此前，俄总统普京曾表示不希望有战争，但是，根据目前事态可见，他并没有放弃随时开战的可能性和军事准备。俄乌局势是否就此升级还未可知。如果一旦俄乌边境发生战事对于世界局势及经济都会是一场巨大的动荡和威胁。
 
-参考链接：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+> Vladimir Putin didn't change. American leadership changed. 
+> 
+> And Putin's aggression will continue so long as America is on its back foot. [pic.twitter.com/SLAaNwmag6](https://t.co/SLAaNwmag6)
+> — Mike Pompeo (@mikepompeo) [February 23, 2022](https://twitter.com/mikepompeo/status/1496567220821966849?ref_src=twsrc%5Etfw)
 
-编辑/校正/发稿：呼吸的雾霾（文小呼吸）
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+参议员玛莎.布莱克本： 拜登政府在俄罗斯和共产主义中国问题上表现出无能。
+
+
+
+> The Biden administration has demonstrated incompetence when it comes to Russia and Communist China.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [February 23, 2022](https://twitter.com/MarshaBlackburn/status/1496559848489631747?ref_src=twsrc%5Etfw)
+
+
+
+参议员瑞克·斯科特： 乔·拜登的司法部更关心将父母和卡车司机错误地贴上国内恐怖分子的标签，而不是阻止 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 监视美国人和保护我们的国家安全。 【附福克斯新闻：拜登司法部在种族偏见的抱怨中取消对抗中共国的国家安全倡议】
+
+
+
+> Joe Biden’s [@TheJusticeDept](https://twitter.com/TheJusticeDept?ref_src=twsrc%5Etfw) is more concerned with wrongfully labeling parents & truckers as domestic terrorists than stopping Communist China from spying on Americans & protecting our national security. [https://t.co/8GnH94qUS1](https://t.co/8GnH94qUS1)
+> — Rick Scott (@SenRickScott) [February 23, 2022](https://twitter.com/SenRickScott/status/1496624725765808132?ref_src=twsrc%5Etfw)
+
+
+
+参议员汤姆·科顿： 中共盗窃美国数万亿知识产权，把在美留学生变成外国间谍。然而，拜登政府宣布取消负责打击这种破坏活动的倡议，因为他们声称这是种族主义。 【附科顿参议员官网就司法部结束“中共国倡议”的声明】
+
+
+
+> The CCP has stolen trillions in U.S. intellectual property & turned students studying in the U.S. into foreign spies. Yet the Biden administration announced it’s cancelling the initiative tasked with combatting this sabotage because they claim it’s racist.[https://t.co/76FaaYRUxu](https://t.co/76FaaYRUxu)
+> — Tom Cotton (@SenTomCotton) [February 23, 2022](https://twitter.com/SenTomCotton/status/1496624469179355140?ref_src=twsrc%5Etfw)
+
+
+
+参议员马可·卢比奥： 我希望我们能从 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click) 危机中学到宝贵的一课 我们需要自己生产的能源，重新靠自己制造，而不是依赖俄罗斯和 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)
+
+
+
+> I hope we are learning a valuable lesson with [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) 
+> 
+> We need to produce our own energy, make things again & not depend on [#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw) & [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/EnCmgVzL70](https://t.co/EnCmgVzL70)
+> — Marco Rubio (@marcorubio) [February 24, 2022](https://twitter.com/marcorubio/status/1496655883782270977?ref_src=twsrc%5Etfw)
+
+
+
+参议员马可.卢比奥：
+
+[#俄罗斯](https://twitter.com/hashtag/%E4%BF%84%E7%BD%97%E6%96%AF?src=hashtag_click) [#Russian](https://twitter.com/hashtag/Russian?src=hashtag_click) 入侵 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click) [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hashtag_click) 现在正在进行中
+
+在未来的几个小时内 [#俄罗斯](https://twitter.com/hashtag/%E4%BF%84%E7%BD%97%E6%96%AF?src=hashtag_click) [#Russia](https://twitter.com/hashtag/Russia?src=hashtag_click) 将 – 对防空系统进行打击 – 采取行动从 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click) 东部切断 [#基辅](https://twitter.com/hashtag/%E5%9F%BA%E8%BE%85?src=hashtag_click) [#Kyiv](https://twitter.com/hashtag/Kyiv?src=hashtag_click) – 采取行动切断东部接触线上的乌克兰军队，以防止他们后退保卫基辅
+
+
+
+> The [#Russian](https://twitter.com/hashtag/Russian?src=hash&amp;ref_src=twsrc%5Etfw) invasion of [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) is now underway
+> — Marco Rubio (@marcorubio) [February 24, 2022](https://twitter.com/marcorubio/status/1496667918490382343?ref_src=twsrc%5Etfw)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

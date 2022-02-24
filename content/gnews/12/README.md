@@ -2,18 +2,18 @@
 ---
 
 
-## NBA史上任职时间最长的裁判之一被赶走。原因是未接种新冠疫苗
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2057160/)
+## 文在寅对俄入侵乌深表遗憾，将参与国际制裁
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2057187/)
 
-翻译 意大利达芬奇农场 小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-23-alle-23.42.32-2.png)新闻来源：eventiavversinews.it
-肯•莫尔 (Ken Mauer)是NBA史上任职时间最长的裁判之一，他宣称他在新的赛季刚开始时被迫离开联盟，是出于宗教原因，他拒绝注射新冠疫苗。在一次长达两个小时的采访中， 他透露了他缺席整个赛季的原因。
+撰稿：追着曙光跑
 
-他说：“ 我没想到我信仰我们的主耶稣基督会阻碍我当NBA篮球比赛裁判……这就是所发生的事。不仅发生在我身上， 也发生在其他人身上。”
+据韩国KBS新闻2月24日的报道，文在寅总统对俄罗斯入侵乌克兰表示，在任何情况下，使用武力造成无辜生命的行为都是没有道理的。称韩国将会参与国际对俄罗斯的制裁。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-24-at-17.08.53.jpeg)图片来源：原新闻
+文在寅总统是在收到国家安全办公室主任徐勋（音译）关于乌克兰局势的报告后，作出上述表示。
 
-原文链接：[https://www.eventiavversinews.it/ken-mauer-uno-degli-arbitri-piu-longevi-nella-storia-della-nba-cacciato-il-motivo-il-solito-i-vaccini-covid/](https://www.eventiavversinews.it/ken-mauer-uno-degli-arbitri-piu-longevi-nella-storia-della-nba-cacciato-il-motivo-il-solito-i-vaccini-covid/)
+文在寅指出：尽管国际社会不断发出警告和作出外交努力，但不幸的是，令人恐惧的武装入侵还是发生在乌克兰。国家之间的冲突应该通过对话或谈判解决，而不是战争。
 
-编辑、上传：  Xiao  baige
+信息来源：**[\[속보\] 문 대통령 “우크라이나 침공 유감…경제 제재 등 동참해 나갈 것”](https://news.kbs.co.kr/mobile/news/view.do?ncd=5403115)**
 
  
 

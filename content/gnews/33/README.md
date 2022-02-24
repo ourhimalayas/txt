@@ -2,8 +2,8 @@
 ---
 
 
-## 20220223郭文贵大直播 ：中共的邪恶洗脑令失去信仰的中国人面目全非 道德廉耻低到令人发指
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2056920/)
+## 20220223郭文贵大直播 ：疫苗灾难对人类的影响比预期更乐观
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2056979/)
 
 作者：东京樱花团小视频组
 

@@ -2,22 +2,29 @@
 ---
 
 
-## 中日财经爆|日本百货公司1月份销售额大涨15.6%
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2057180/)
+## 俄军已登陆乌克兰南部海港城市敖德萨
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2057234/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2220.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.japan-guide.com%2Fg20%2F2072_03.jpg&amp;imgrefurl=https%3A%2F%2Fwww.japan-guide.com%2Fe%2Fe2072.html&amp;tbnid=eKrL5_n6yeSCUM&amp;vet=12ahUKEwi0tv2G7pf2AhUoHKYKHUxCATUQMygCegUIARCxAQ..i&amp;docid=xwLgDB_QiZOwTM&amp;w=8)
-日本百货公司协会2月24日宣布，全国百货公司1月份的销售额比上年同期增长15.6%，达到约3751亿日元。
+**作者:  **青衣
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-100.jpg)
+图为 P-8A资料图（图片来自网络）
 
-这是连续第四个月的同比增长，去年因紧急状态迫使百货公司缩短营业时间，致使营业额下降，由于气温下降，大衣等冬季服装的销售也很强劲。
+2月24日，俄乌战争全面打响。乌克兰政府证实，俄军已登陆乌克兰国境内的海港城市敖德萨。
 
-但是与2020年1月相比，销售额还是下降了18.8%，并没有恢复到中共病毒（新冠）疫情前的水平。
+据《阿波罗新闻网》2月24日报道，乌克兰与俄罗斯的战争正式拉开序幕。俄军目前已登陆乌克兰国境内南部海港城市敖德萨（Odessa）。
 
-消息来源：[１月の百貨店売上高、冬物好調で１５・６％増…感染拡大前の水準には戻らず](https://www.yomiuri.co.jp/economy/20220224-OYT1T50159/)
+乌克兰官方指出，俄军稍早时已长驱直入越过两国边境，登陆南方海港城市敖德萨（Odessa）。乌克兰内政部长格拉什琴科（Anton Gerashchenko）向媒体证实了此事，并指出俄军目前正越过哈尔科夫（Kharkiv）。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-1.png)
+格拉什琴科还表示，乌克兰聂伯城市长菲拉托夫（Borys Filatov）向他汇报称，该城市已听到数次爆炸声。
+
+乌克兰外长库列巴也透过推特向世界传达信息称：“普京稍早时已大规模派遣军力入侵乌克兰。平和的乌克兰城市遭到打击，这是侵略战争！”不过，库列巴强调，乌克兰会自卫并赢得胜利。他同时呼吁全世界立即采取行动阻止俄罗斯的侵略行动。
+
+新闻链接：
+
+[https://www.aboluowang.com/2022/0224/1712878.html?utm\_source=dlvr.it&utm\_medium=twitter](https://www.aboluowang.com/2022/0224/1712878.html?utm_source=dlvr.it&amp;utm_medium=twitter)
+
+* * *
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
