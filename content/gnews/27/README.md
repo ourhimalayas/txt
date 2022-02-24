@@ -2,24 +2,122 @@
 ---
 
 
-## 普京：入侵&#8212;是俄罗斯的唯一选择
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2059999/)
+## 锁链女
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2060042/)
 
-撰稿：Skagen
-![](https://assets.gnews.org/wp-content/uploads/2022/02/lcimg-cdc3550c-bc16-47b0-9f97-d00fbe18b622.jpg)
-图片：Dr.
+作者：香草山教育部 — 蓝之灵（Hortensia)
 
-据路透社2月24号报道，俄罗斯总统弗拉基米尔-普京说，俄罗斯只能通过入侵乌克兰来保护自己。 路透社援引普京的话说，俄罗斯是 “被迫 “入侵的。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-109-1280x172-1.jpg)
 
-– 乌克兰的事态发展使我们别无选择。普京说，我们没有别的出路。 目前还不清楚总统指的是什么，但他很早就指责乌克兰是纳粹统治，在乌克兰东部进行种族灭绝，完全没有证据。
 
-同时，在与RSPP的会谈中，普京呼吁俄罗斯不要被排除在全球经济之外。 据路透社报道，普京说，俄罗斯仍然是全球经济的一部分，不会损害它所处的体系，世界必须理解这一点，不要把俄罗斯推开。
 
-世界上独裁战争贩子都一样，嘴巴上都是正义，行动上都是流氓！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-1-2.png)
 
-来源：
+沉重铁链
 
-[Dr.dk](https://www.dr.dk/nyheder#!/)
+挂在我脖颈
+
+二十四年到如今
+
+一路路辗转
+
+从家乡到此处
+
+不记得
+
+多少日夜
+
+多少男人
+
+让我身体
+
+伤痕累累
+
+日日如此
+
+夜夜如此
+
+看见了吗
+
+那一屋子强奸犯
+
+正欢声笑语数着钱
+
+小哥哥啊
+
+请不要走
+
+帮帮我
+
+放我离开
+
+这个世界不要我了
+
+生在人间
+
+活在炼狱
+
+被剪去舌尖记忆
+
+如锥如炙
+
+痛与苦
+
+是每天必须的吃与喝
+
+这个世界不要我了
+
+生不如死 没有天理
+
+人贩子欢天喜地
+
+酷吏们茹毛饮血
+
+我的躯体
+
+是他们欢笑乐土
+
+家乡的路
+
+那么遥远
+
+只能在梦里
+
+一次次 呼唤
+
+亲人，亲人
+
+你们在哪里
+
+没有回音
+
+没有希望
+
+日复一日
+
+重复痛苦
+
+（本文仅代表作者个人观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-7.jpg)
+
+*编辑 /校对*：*Yuki*jiang
+
+*发稿：Yuki*jiang
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
