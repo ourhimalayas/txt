@@ -2,37 +2,24 @@
 ---
 
 
-## DC每日热点0224
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2059025/)
+## 中共欲趁俄入侵乌克兰之际武统台湾
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2059122/)
 
-编辑：楚门门
-![](https://assets.gnews.org/wp-content/uploads/2022/02/4AA5B101-BBAD-491B-984D-39ABE20E3A1C-scaled.jpeg)
-道琼斯指数 33131.76 ▼1.38%
-纳斯达克指数 13037.49 ▼2.57%
-WTI纽约原油CFD 99.604▲8.15%
-布伦特原油CFD 101.315 ▲7.70%
-标普50指数 2,632.64▼56.98%
-美元兑人民币 1USD=6.324 RMB
-美元兑港币 1USD=7.809 HKD
-国际黄金 1958.30美元/盎司
-全球CCP病毒感染人数430,713,792例
+加拿大温哥华杨帆农场 枫叶快讯
 
-1、 俄罗斯入侵乌克兰 多个城市遭到导弹袭击，打击防空设施和军事基础设施
-2、在要求美国采取更强有力措施的呼声中，拜登政府增加对俄罗斯的制裁
-3、美国司法部23日宣布结束前总统川普时期启动的“中国行动计划”，拜登许诺推出更有效防招
-4、欧盟推出法案 要求大公司审查供应商的人权与环保标准
-5、南非状告华为未能雇佣足够的当地劳工，双方谈判试图达成庭外和解
-6、民调: 疫情提升中共国人超美信心
-7、香港财政预算案推暂缓追租再派消费券 有中小企批作用不大将有结业潮
-8、乌克兰对守土民众配发武器
-9、阿联酋宣布将购买中共国 “猎鹰 “战机
-10、马克龙促开北约紧急峰会 法国称坚挺乌克兰
-11、联合国秘书长“以人类的名义”敦请莫斯科停止对乌克兰的攻击
-12、美国在台协会驳斥新华社‘美国反台独’的报道：美国对台政策没有改变
-13、中共国政府呼吁俄乌冲突各方克制，但否认有侵略行动
-14、俄乌开战时 中共国海关发文允许俄罗斯全境小麦进口
-15、韩国总统竞选人尹锡悦打算扩大部署萨德 重设与中共国关系
-16、日本驻北京大使馆一名外交人员21日一度遭中共国当局拘留， 称从事与身份不符活动
+采编：风云小哥     翻译：文莱
+![Chinese President Xi Jinping (C) arrives with Premier Li Keqiang (L) for a reception at the Great Hall of the People in Beijing on the eve of China's National Day on September 30, 2021. (Photo by GREG BAKER / AFP) (Photo by GREG BAKER/AFP via Getty Images)](https://media.breitbart.com/media/2021/12/GettyImages-1235598632-640x480.jpg)图片来源：[breitbart.com](https://www.breitbart.com/asia/2022/02/22/china-demands-unwavering-support-for-taiwan-invasion-from-defenders-of-ukraine/)
+据【布莱特巴特新闻】2月22日报道，中共《环球时报》日前竟将乌克兰东部分裂地区与主权国家台湾进行比较，并以此敦促G7成员国支持其即将发动的台海战争。
+
+报道称，中共当局以上言论是在普京日前宣布承认乌克兰[顿涅茨克]和[卢甘斯克]为主权国家，并命令俄军进入该地区后发表的。俄罗斯自2014年以来，就作为代理人一直在背后参与该地区分裂势力与乌克兰的战争行动。
+
+据悉，尽管G7成员国都明确表示将支持乌克兰领土完整，但《环球时报》却将俄罗斯入侵乌克兰与中共计划武统台湾相提并论，企图以此完全否定台湾作为独立主权国家的合法性。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：青青
+
+消息来源：[China Demands ‘Unwavering Support’ for Taiwan Invasion from Defenders of Ukraine (breitbart.com)](https://www.breitbart.com/asia/2022/02/22/china-demands-unwavering-support-for-taiwan-invasion-from-defenders-of-ukraine/)
 
  
 

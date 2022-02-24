@@ -2,21 +2,25 @@
 ---
 
 
-## 日媒指普京本没有资格出席中共冬奥会
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2059044/)
+## 美议员提案允许公民就疫苗强制令起诉政府
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2059147/)
 
-作者：日本方舟农场 – Andy5
+作者：银河系农场 – 骄子
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月18日，据日本媒体指出，按照联合国规定，各国应该在奥运会前后暂停纷争，但作为北京冬奥会东道主的习近平却没有要求普京停止对乌克兰的威胁。另一方面，由于兴奋剂问题，俄罗斯被禁止在冬奥会上以国家队名义参赛，其国家领导人也不应出席中共冬奥会。因此，从各个层面上看，普京都没有资格参加此次中共冬奥会的开幕式。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/4-53.jpg)
-然而，在本届冬奥会上，不仅中共违背常理地将普京作为最高国宾，连国际奥林匹克委员会主席巴赫也对此默不作声。
+2月22日，据当地媒体报道，美国共和党研究委员会成员、众议员哈什巴格当天提出的一项法案称，将允许美国公民就正在推行的中共病毒疫苗强制接种政策起诉联邦、州和地方政府。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/6-40.jpg)
+资料显示，在联邦政府强制推动的中共病毒疫苗接种计划中，很多美国人由于害怕失去工作而被迫接种了疫苗。但哈什巴格议员认为，政府这种做法事绝对错误且违宪的，美国民众不应该被强迫在疫苗和工作中做出选择。因此，这些人有充分的权利在因疫苗造成伤害时，采取法律行动。
 
-参考链接：[20220218日媒揭露CCP冬奧會上習近平給普京的特權](https://www.gettr.com/post/pw3jzh830f)
+此次哈什巴格议员提出的《保护美国人医疗权利法》法案将通过要求联邦、州和地方政府对过度侵犯民众自由的中共病毒疫苗强制计划负责，从而保护美国人为宪法所赋予的医疗权利。那些被迫接种中共病毒疫苗的民众可以向当地法院提起民事诉讼，要求政府赔偿其因接种疫苗所带来的损失，包括经济和非经济损失。
+
+据悉，目前有大量的美国人正在遭受中共病毒疫苗所带来的不良反应，但他们当中没有一个人得到过来自政府相关机构的赔偿。对此，哈什巴格议员的提案将为美国人提供实质性的法律追索权，从而当前法律层面上针对强制疫苗令的一些空白。
+
+参考链接：[Exclusive: Rep. Diana Harshbarger Bill to Allow Citizens to Sue over Vaccine Mandates](https://www.breitbart.com/politics/2022/02/22/exclusive-rep-diana-harshbarger-bill-to-allow-citizens-to-sue-over-vaccine-mandates/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
 总编: Irene木木
-编辑: 飞虹 
+编辑: Ivy001
 校正/发稿：Fei797
 
 **更多资讯，更多关注**

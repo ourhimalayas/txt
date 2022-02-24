@@ -2,41 +2,33 @@
 ---
 
 
-## 浅谈《新中国联邦》的一人一票投票制度(二)
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2059295/)
+## 中共病毒疫苗的致死率是普通疫苗的50倍
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2059347/)
 
-作者：香草山教育部–春草
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-62.png)
-a、首先要由全民投票通过宪法，这是国家的大法、是总纲。主要包括国家的性质、公民的权力(人权、自由权、言论权、抗议权、监督权、迁陟权、结社权、财产权、土地权、房屋权、持枪权、自卫权、工作权、休息权、免费受教育权、免费医疗权、免费养老权、选举与被选举权……)、公民的责任、公民的义务、军队的属性、政府的设置与权限以及医疗、养老、教育等，与国计民生、社会秩序、国家建设、国土安全、国防建设等有关的内容。宪法不是细则，是原则，一旦通过不能更改。如有遗漏或需修改，也必须通过全民投票决定，任何个人和机构都无权改动。强调：每一个团体(包括国家)、机构、个人的责、权、利都要通过投票决定并写入宪法。
+作者：银河系农场 – 骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月21日，据相关媒体消息显示，一项针对美国官方中共病毒疫苗不良反应数据的研究发现，中共病毒疫苗针剂的致死率至少是普通流感疫苗的50倍。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/7-36.jpg)
+据悉，美国疾病控制与预防中心CDC设立的疫苗不良事件报告系统VAERS包含了美国所有因疫苗造成的不良反应报告的历史数据。其中，在2020年12月至2022年1月28日期间，即自政府推进中共病毒疫苗接种工作后，该系统报告的不良反应事件超过74万例；然而，该系统在2008年到2020年间，一共只报告了13万余例疫苗不良反应事件。
 
-b、分类法律：监督法、教育法、医疗法、养老法、婚姻法、生育法、企业法、义工法、工资法、投资法、证券法、财产(资产)法、审判法、奖惩法、刑法、民法、军人法、赔偿法(国家、团体、机构、个人)、社团法、……等等，宪法中列入或未提及的，只要是社会管理涉及到的，尽量以法律的形式确定下来。同样必须要全民投票通过(知识产权、军事机密除外)。
+基于对该系统中数据和疫苗接种剂量的分析，研究人员指出，与普通流感疫苗相比，中共病毒疫苗使接种者需要紧急护理的可能性高出了65倍，致残率增加了19倍，致死率提高了49倍，且造成接种者下一代先天缺陷的概率上升了57倍。综合数据表明，中共病毒疫苗注射剂造成的死亡人数至少是流感疫苗的49倍。
 
-c、各类法律的实施细则：这类法律不只是对以上法律具体解释，还要有便于实施的更细的分类。如监督法应分为：国家监督法、社会监督法、企业监督法。再如教育法要细分为：社会教育(法治)、家庭教育(家长)、学校教育(基础文化、能力培养、专业技能、研究院校)以及公立和私立，……。又如医疗法要细分为：基础医疗(公立)、商业医疗(私立)、科研医疗(实验、患者自愿)，……。还如养老法应分为：基本养老(国家)、商业养老、功勋养老。等等，根据发展的需要可随时增减或调整，这些细则也要通过全民投票来决定。
+但有评论人士表示，海量的数据和证据已经证实了中共病毒疫苗的害处远远大于它有可能给接种者带来的防护性，但部分国家的政府仍旧一意孤行地试图推进在儿童群体中的中共病毒疫苗接种工作。这一举措带来的次生灾难或将难以估量。
 
-d、政令和规章：所有各级政政府的行政命令和企业的规章制度，其实施和取消必须由有关利害关系的公民投票决定。
+参考链接：[FACT: Covid-19 Vaccines are almost 50 times Deadlier than the Flu Vaccines per Number of Doses administered according to official USA data](https://dailyexpose.uk/2022/02/21/covid-vaccines-50-times-deadlier-than-flu-vaccines/)
 
-以上所有的法律、政令和规章制度均先由专业人员拟成草案，公开讨论后，再由公民投票决定。必须由有资格的公民的2/3以上的人数投赞成票为通过的标准。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-待续
-
-以上观点仅代表作者本人，与香草山农场和本发布平台无关。
-
-参考链接：[https://www.nfscdict.com/%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82% A6](https://www.nfscdict.com/%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%%20A6)
-
-编辑/审核/发稿：Bronx Bombers
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-53.jpg)
+总编/编辑: Irene木木 
+校正/发稿：Fei797
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,24 +2,37 @@
 ---
 
 
-## 中共欲趁俄入侵乌克兰之际武统台湾
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2059122/)
+## 有声|大直播——个人破产让郭先生轻装上阵灭共！
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2059212/)
 
-加拿大温哥华杨帆农场 枫叶快讯
+配音：香草山农场 – 信念7
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+在签署了个人破产文件后，郭先生在2月16日的大直播中与战友们分享了自己的开心和幸福，因为这是用鲜血和生命换来的让自己更安全的灭共方式！加上当时直播所穿的西装和领带都是5年前第一次直播开启爆料革命时穿的，也昭示着郭先生开启了自己全身心奉献人类的新人生，同时进入轻装上阵全力灭共的新篇章！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1dc036051d566f49a9b8ce4301364145.jpeg)图片来源: Gettr(@MilesGuoLive)
+郭先生不是用金钱和财富来运行爆料革命，而是用信仰、智慧、执行力和决绝来灭共！五年来，在同样的红绿灯起跑线上，“警察”只给郭先生亮红灯，却给共产党的代理人一路绿灯。郭先生好不容易在PAG这个路口逮住一次黄灯：个人破产！
 
-采编：风云小哥     翻译：文莱
-![Chinese President Xi Jinping (C) arrives with Premier Li Keqiang (L) for a reception at the Great Hall of the People in Beijing on the eve of China's National Day on September 30, 2021. (Photo by GREG BAKER / AFP) (Photo by GREG BAKER/AFP via Getty Images)](https://media.breitbart.com/media/2021/12/GettyImages-1235598632-640x480.jpg)图片来源：[breitbart.com](https://www.breitbart.com/asia/2022/02/22/china-demands-unwavering-support-for-taiwan-invasion-from-defenders-of-ukraine/)
-据【布莱特巴特新闻】2月22日报道，中共《环球时报》日前竟将乌克兰东部分裂地区与主权国家台湾进行比较，并以此敦促G7成员国支持其即将发动的台海战争。
+击倒敌人的方式不仅仅是站着，躺下击倒敌人的致命性也许更强。势均力敌的拳击赛很难KO取胜，却往往从战略战术上让对方犯规犯错赢得点数取胜。郭先生的亲身经历让世界震惊：美国司法界的多个第一都出现在郭先生案子上，如罚款单日最高，取消陪审团等。在“以法灭共”的战略中，现在郭先生要以亲身受到的抹黑和迫害来唤醒世人，透过PAG案和自己的个人破产案，让美国看到中共已把自己的司法系统“蓝金黄”到何种程度！
 
-报道称，中共当局以上言论是在普京日前宣布承认乌克兰[顿涅茨克]和[卢甘斯克]为主权国家，并命令俄军进入该地区后发表的。俄罗斯自2014年以来，就作为代理人一直在背后参与该地区分裂势力与乌克兰的战争行动。
 
-据悉，尽管G7成员国都明确表示将支持乌克兰领土完整，但《环球时报》却将俄罗斯入侵乌克兰与中共计划武统台湾相提并论，企图以此完全否定台湾作为独立主权国家的合法性。
 
-校对编辑：硫酸羟氯喹64
+文字版原文：[大直播——个人破产让郭先生轻装上阵灭共！](https://gnews.org/zh-hans/2052767/)
 
-发稿：青青
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-消息来源：[China Demands ‘Unwavering Support’ for Taiwan Invasion from Defenders of Ukraine (breitbart.com)](https://www.breitbart.com/asia/2022/02/22/china-demands-unwavering-support-for-taiwan-invasion-from-defenders-of-ukraine/)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

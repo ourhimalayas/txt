@@ -2,42 +2,31 @@
 ---
 
 
-## 新西兰通过新建模显示两地单日新增病例可达9000例
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2059341/)
+## 视频|俄罗斯入侵乌克兰 欧美出台对俄制裁措施
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2059389/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image011-4.jpg)RNZ / Simon Rogers
-据新西兰媒体RNZ报导，Counties Manukau地方医管局的人口健康主任Gary Jackson通过模型预测疫情发展情况，新的模型显示，在Omicron疫情中，如果传播率低，奥克兰和北地的病例数峰值可能达到每天4000例，如果传播率高，则可能达到9000例。
+制作：香草山视频部
 
-上个月，Jackson的模型显示，北部地区出现了1800个病例的高峰，其中约有190人住院。
+普京21日宣布承认乌东2个分离主义共和国独立，并派俄军入境维和后，欧盟和美国一致认为俄罗斯该举动是入侵乌克兰的开始，纷纷推出台针对俄罗斯的制裁措施。
 
-昨天，奥克兰有1802个新的小区病例，北地有36个。奥克兰的医院里有128名新冠患者。Jackson说，这与低度传播的情况相当吻合，预计在3月中旬达到高峰。 Jackson还表示，新西兰的新冠疫情模型有很多参考的是澳大利亚的情况，但新西兰过去的峰值都较低，这意味着实际数字可能比预测的要低。
+法国外长勒德里安22日以欧盟轮值主席国身份表示，欧盟成员国一致同意对俄罗斯国家杜马351位议员以及27个实体及个人实施制裁，范围涵盖政治、军事、商业和媒体。
 
+欧盟外长波瑞尔和欧盟执委会主席范德赖恩先后表示，欧盟一系列制裁方案除了锁定参与侵略行动的个人和企业外，还包括禁止乌东2个分离地区与欧盟进行贸易，以及欧盟限制俄罗斯政府在欧盟金融市场上筹资的能力。欧盟希望此措施尽可能遏制克里姆林宫推动侵略。
 
+美国总统拜登同一天宣布制裁俄罗斯2大金融机构。他宣布对俄罗斯国有开发银行（VEB）与军方银行2大金融机构全面封锁，对俄罗斯主权债务实施全面制裁，切断俄罗斯政府与西方金融体系的联系，使其无法再从西方筹募资金或在欧美市场交易新债。
 
-[援引连结](https://www.rnz.co.nz/news/national/462071/covid-19-omicron-outbreak-peak-could-reach-4000-cases-a-day-in-northern-areas-modelling)
+美国财政部随即公布制裁名单，包括VEB与Promsvyazbank（PSB）及其42家子公司。此外，也宣布制裁多位普京核心圈中具有影响力的人员及其家人。
 
+发稿：Daxia
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-**推出问题，敲出真相，爆料在路上！**
-
-**请关注和订阅我们的以下账号：**
-
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
-
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
-
-**玫瑰看新闻YOUTUBE账号**：
-
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**ROSE NEWS**
-
-**【玫瑰看新闻】推特账号**：
-
-**ROSE NEWS (@ROSENEWS4)A**
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
