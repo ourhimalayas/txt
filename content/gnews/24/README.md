@@ -2,34 +2,26 @@
 ---
 
 
-## 美国前国务卿蓬佩奥谈台湾局势
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2059620/)
+## 俄罗斯悍然入侵乌克兰台湾危在旦夕
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2059676/)
 
-作者：日本方舟农场-Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月22日，美国前国务卿蓬佩奥先生在接受采访时谈及了目前的台海局势。
+加拿大温哥华扬帆农场  硫酸羟氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide4-13.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/a-17-edited.jpg)图片来源：盖特
 
-蓬佩奥先生提到，俄罗斯、中共和伊朗抱团的原因在于他们缺乏盟友，但如果美国尽快不采取遏制行动，这三个国家就可能进一步蚕食世界其他国家的势力。
 
-尤其在台海问题上，蓬佩奥先生表示，美国拥有能够阻止台海局势生变的方法，比如与台湾发展经济关系，或对台湾提供武器系统并给予外交支持等。这也是他本人将于三月初访问台湾的原因所在。蓬佩奥先生强调，他希望通过这次访问告诉台湾，很多美国人都希望台湾免受中国共产党的铁腕统治。
+据2月24日盖特消息，文贵先生最新发布的盖特视频显示出，俄罗斯军队大量的战斗机和轰炸机以及坦克装甲车当天长驱直入，悍然进犯乌克兰领空和领土。低飞呼啸而过城市上空的俄军战机清晰可见。
 
-参考链接：[https://www.gettr.com/post/pwbq3mb740](https://www.gettr.com/post/pwbq3mb740)
+对此，文贵先生紧急呐喊警告道：战魔再次打烂世界！这样残酷的战争很快会在台湾发生！希望所有在台湾的战友们和朋友们能以最快的速度撤离！任何台湾的战友都应该受到[新中国联邦]全球农场和战友们的全力协助和支援。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+至此，在俄罗斯公然入侵乌克兰之后，台海之战将一触即发，中共党卫军将迅速攻占涌入台湾，人道主义灾难正迫在眉睫，消灭中共政权已刻不容缓。具体详细情况，我们将静待文贵先生的进一步警示。
 
-总编：Irene木木
-编辑：谐趣园
-校正/发稿：谐趣园
+* * *
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+消息来源：https://gettr.com/post/pwl3b20ef8
+
+编辑撰稿，发稿：硫酸羟氯喹64
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

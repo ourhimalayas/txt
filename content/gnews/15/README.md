@@ -2,20 +2,14 @@
 ---
 
 
-## 有声|中共使用机器人和虚假帐号影响冬奥会讨论
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2059775/)
+## 有声|新中国联邦新闻、GTV新闻访谈简报|2022年2月22日晚
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2059782/)
 
 配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-美国媒体2月18日报导，中共使用机器人、虚假帐号等工具选择性编辑宣传故事，以影响有关冬奥会的讨论。
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-2-2.png)
 
-据报道，该媒体与非营利调查新闻编辑室ProPublica发现，推特上存在一个中共虚假帐号网络。该网络有超过3000个帐号，通过分享带有相同评论的中共外宣推文，以协调行动，影响有关冬奥会的讨论。这些帐号普遍创建不久，没有关注者，推文仅以转发中共外宣推文为主。
 
-目前推特已经通过电子邮件声明，确认数百个账户已被封禁，同时表示，将进一步调查这些帐户与国家支持的信息运营之间的联系。
-
-中共冬奥会的虚假不仅限于虚假帐号操纵舆论。根据郭文贵先生在大直播中的爆料，中共冬奥会场的雪为人造假雪，裁判被中共买通非公正判罚，中共参赛运动员国籍造假。中共冬奥会的呈现只有虚假和丑陋。
-
-文字版原文：[中共使用机器人和虚假帐号影响冬奥会讨论](https://gnews.org/zh-hans/2045293/)
+文字版原文：[新中国联邦新闻、GTV新闻访谈简报|2022年2月22日晚](https://gnews.org/zh-hans/2050664/)
 
 音频处理：呼吸的雾霾（文小呼吸）
 发稿：呼吸的雾霾（文小呼吸）

@@ -2,42 +2,31 @@
 ---
 
 
-## 有声|正道主义取代不三不四的主义成历史必然！
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2059777/)
+## NFSC新闻、G|TV新闻访谈简报|2022年2月24日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2059820/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-郭先生在2月18日的大直播中谈到，一千多年的罗马时代后西方工业革命产生了科学，整个西方基督教世界从封建社会的宗教神权与皇权社会，走向了资本主义民权社会，从此西方人对科学的崇拜超过了宗教，科学主义成了资本主义社会运行的核心支撑。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-4-1-e1645595411271.jpg)
 
-当下强制推广疫苗的国家，尤其是科学主义的创始者犹太人集中的国家以色列，彻底被魔鬼化身的科学主义利用者如福奇、盖茨、扎克伯格、沃斯党、共产主义和沼泽地利用了一次，利用大家对科学的信任让人们打了CCP病毒真疫苗。越落后越无知的地方越没有盛行科学主义，如巴基斯坦和非洲这些地方基本上就是利用你对政府的信任大都用假疫苗骗点儿钱。因此越落后的地区，假疫苗越多，死的人越少，越文明的地区，真疫苗越多，死的人越多，这也挺荒诞的！
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-24.png)
+文章仅代表作者本人观点，与Gnews无关
 
-人类现在像断篇了一样，媒体和科学彻底被控制，科学主义和政府主义彻底勾结在一起，那人类就只能受伤害了。但这次人类付出了最大的代价，因此科学主义来到了人类生存问题的十字路口，人类不仅仅只能依靠科学主义来生存，应该有更多的路径作选择，不但司法和媒体要独立，科学也要独立，因此新中国联邦的正道主义应运而生！
+视频参看：
+[2022.02.24早 《NFSC新闻》](https://gtv.org/video/id=621787f708ba8a07b1a2a5e3)
+[2022.02.24早 G|TV《新闻访谈》](https://gtv.org/video/id=62178f2108ba8a07b1a2aa1c)
 
-受监督的独立发言是社会治理最好的利器，如此才能保证信仰自由和司法独立。新中国联邦人必须对自己所说的负法律责任，必须是对他人无害的，这是新中国联邦“正道主义”最关键的一环。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-郭先生的大直播就是新中国联邦的黄埔军校，新中国联邦人在这里成长和成熟，并将在这里产生深谙国际政治的未来为新中国联邦治国安邦的人物。同时，我们要抓住更多的机会，就像我们的直播对CCP病毒及其疫苗真相的揭露，积累了丰富的国际关系，获得了巨大的国际信用。尤其是咱们还是无苗有币族，且当他们都倒下时我们却越来越强大，这太了不起了。
-
-世界政治游戏中的大人物如各国总统和政治家一点都不高尚，他们从来没有认真为老百姓思考过而只在乎三件事：安全、利益和女人。即使全世界最牛的宗教领袖、政治家、哲学家、科学家，没有能在安全、女人、利益的诱惑面前不低头的。国际政治是利益第一，没有历史原罪且没有多大开支的新中国联邦将以千亿万亿的财富存着，未来世界都争着跟咱合作。
-
-不关心别人利益的皇权主义、神权主义、资本主义、社会主义这些不三不四的主义是不可能有人类安全的，新中国联邦人走的正道主义有利他之心，郭先生将让新中国联邦实现了真正的“藏富于民”，已在透明的法律面前藏富于战友手中。
-
-我们的正道主义是以善为本、唯真不破、利他主义，让人有绝对的尊严。新中国联邦为有良知、有善缘、有善根的14亿中国人而建立的，不仅会代表14亿中国人，还会代表世界上认同《新中国联邦宣言》价值主张的人！
-
-
-
-文字版原文：[正道主义取代不三不四的主义成历史必然！](https://gnews.org/zh-hans/2048927/)
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-4.png)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,22 +2,44 @@
 ---
 
 
-## 英国政府非官方承认中共病毒来自武汉
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2059545/)
+## 川普：普京谋求乌克兰，中共一定打台湾
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2059618/)
 
-**编译：verifunny**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/33-3.jpg)
-英国化学和生物反恐方面的主要专家前英国军官哈米什·德·布雷顿·登在接受《每日电讯报》（Daily Telegraph）采访时说：“ 我认为[政府内部]的官方观点是，造成这种大流行病的可能性与其他任何事情一样大。很多像我一样的人原本认为病毒更有可能来自动物。但是人们现在的态度已经发生了一些变化。”
+作者：银河系农场 – 骄子
 
-戈登上校补充说，”人畜共患病转移理论没有意义，”他所说的”人畜患病转移”是指中共病毒 （Covid-19）出现在人类身上之前是在动物体内发展变异的。
 
-在2020年3月出版的英国著名医学杂志《柳叶刀》的一封信中，实验室泄露理论的建议最初被否定。大约二十七位科学家 “强烈谴责阴谋论”，认为中共病毒不可能是从武汉实验室泄漏的。
 
-这封信是由英国动物学家Peter Daszak博士组织的，他后来承认有利益冲突，因为他担任美国生态健康联盟的主席。该非政府组织用福奇博士管理的美国国立卫生研究院（NIH）提供的资金资助武汉病毒学研究所的研究。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-英国（被中共严重蓝金黄的国家）政府公开了“病毒是源自于实验室”的态度，是否意味着西方国家“已经”有了具体的方案来问责中共？西方是否在等中共攻台，然后启动问责机制呢？
 
-**新闻来源**：[https://www.breitbart.com/europe/2022/02/23/uk-government-privately-believes-coronavirus-leaked-from-wuhan-lab-report/](https://www.breitbart.com/europe/2022/02/23/uk-government-privately-believes-coronavirus-leaked-from-wuhan-lab-report/)
+
+2月22日，美国前总统川普表示，普京对乌克兰的军事行动是中共习近平试图夺回台湾的信号，在国际政治角逐中，普京和习近平的关系像极了双胞胎姐妹。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-14.jpg)
+川普认为普京和习近平是心照不宣的全天候联盟关系，冬奥会结束后，普京马上对乌克兰采取了行动，紧接着，世界应该开始关注台湾的安危。尽管拜登政府在对俄罗斯入侵乌克兰的问题上已经采取了多种制裁，但美国和欧洲还要担心的是因为战争引发的难民潮问题。国际社会几经谴责俄罗斯对乌克兰的计划入侵，但普京未曾改变策略，而习近平也在对台湾蠢蠢欲动。一场火战迫在眉睫。
+
+此前郭文贵先生在直播中提到，乌克兰希望欧美等国能够在战争开始前做出有力阻止，不要等到乌克兰整个已经被毁掉了才开始有所动作，那已经为时已晚。欧美国家的妥协会让乌克兰陷入至暗时刻，包括台湾。
+
+参考链接：
+[Trump says China ‘absolutely’ going after Taiwan after Russia-Ukraine ‘disaster’](https://www.foxnews.com/politics/trump-china-taiwan-russia-ukraine)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+
+总编/编辑：天滅中共
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
