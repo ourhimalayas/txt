@@ -2,19 +2,20 @@
 ---
 
 
-## 2022年2月24日，全球中共病毒疫情情况汇总
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2060842/)
+## 俄军摧毁74处设施 乌居民区遭到袭击
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2060953/)
 
-制作：DT新闻组
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-16.jpg)[图片来源](https://en.wikipedia.org/wiki/War_in_Donbas#:~:text=War%20in%20Donbas,-From%20Wikipedia%2C%20the)
+随着俄罗斯军队继续对乌克兰发动袭击，俄罗斯国防部表示，到目前为止，它已经摧毁了74个地面设施，包括11个机场。另一方面乌克兰警方称，俄罗斯一天内发动了204次军事袭击。
 
-**中共的杀戮还在继续……**
+在乌克兰东部城市马里乌波尔，有居民区遭到袭击，已确认有多人死亡，今后伤亡人数有可能急剧上升。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/FC1D0502-715B-4F8B-8F18-6000AD4340FB.jpg)
+信息源：[【速報】ロシア軍 74の施設破壊 住宅地攻撃情報も](https://news.yahoo.co.jp/articles/0fb64239998d412fbd57ebc3e039fb721ecb414d#:~:text=)
 
-发稿：信心的选择
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-4.jpeg)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

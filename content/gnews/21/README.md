@@ -2,31 +2,29 @@
 ---
 
 
-## 徐州铁链女之 —— 路漫漫天渐暗
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2060728/)
+## 【秘翻新视野】西方民主国家的执政独裁化
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2060856/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/aq0yv-dvln7.jpg)
-***初生孩提熙光韶，十二岁前幸福耀。
-孽世残酷忽临身，女童被拐厄运肇。
-辗转异地多人污，人生路长天已暗。
-二十四载历性奴，七彩人间非我要！***
+**By:[秘翻新视野](https://gtv.org/broadcast/watch/6216f42e08ba8a07b1a2740e)**
 
-**2020年2月24日**
+**[2022-02-24](https://gtv.org/broadcast/watch/6216f42e08ba8a07b1a2740e)**
 
-连中共体制内军人的女儿都被拐卖，中国人谁能确定自己的女儿百分之百不遭遇像铁链女这样的人间惨剧呢？
+**今日主题：**
 
-如果你不想看到铁链女事件这样的人间惨剧再发生，请你发出你不满的声音，每天花几分钟的时间，不怕重复地为这些被拐卖的中国妇女献出一点点身为人类同类的爱心。
+[**西方民主国家的执政独裁化**](https://gtv.org/broadcast/watch/6216f42e08ba8a07b1a2740e)
 
-***文章观点仅代表作者个人，与Gnews平台无关***
+**1.疫情管控凸显西方民主国家的执政独裁化**
 
-作者：洛杉矶盘古农场 — Bc.S
-编审：洛杉矶盘古农场 — 心照
-发布：洛杉矶盘古农场 —彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+**2. 与中共蓝金黄的渗透关系**
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**3. 信用体系的坍塌会带来怎样的社会结构的变化**
 
+[🔗GTV链接：https://gtv.org/broadcast/watch/6216f42e08ba8a07b1a2740e](http://🔗GTV鏈接：https://gtv.org/broadcast/watch/6216f42e08ba8a07b1a2740e)
+
+发布:星星
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

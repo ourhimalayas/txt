@@ -2,37 +2,36 @@
 ---
 
 
-## 短视频：资助武毒所的NIH否认病毒来自实验室
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2060743/)
+## 德国医疗保险有1100万用户：新冠疫苗的副作用远比政府报道的高得多
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2060857/)
 
-翻译：俏如来
-校对：精靈藍
-字幕：蛮吉
-编辑：文泓
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image01-1.png)
-这场大流行使人们关注到阴暗的科学领域所进行的一种称作“功能增强实验”的研究。这是一个充满秘密、监督有限和目的不明的研究领域。国务院记者本杰明·霍尔今晚将为我们进行报道。
+#### 翻译                    意大利达芬奇农场                        小白鸽       
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-24-alle-23.18.22.png)图片来源：eventiavversinews.it
+#### 
 
-在武汉实验室进行的功能增强实验被广泛怀疑是此次大流行的源头。
+德国一家大型健康保险供应商表示，他分析了近1100万人的新冠疫苗并发症的数据，并透露这些数据远远超过了卫生当局的报告。
 
-他们在武汉病毒研究所所做的就是使危险的、可怕的病毒变得更加可怕。
+根据该公司的一封信， 保险公司BKK ProVita得出的结论是， 该疫苗的副作用比德国联邦机构保罗•埃利希研究所(Paul-Ehrlich Institute) 之前的报告高出数倍。
 
-目前对病毒进行功能增强实验的研究仍在世界各地继续进行，这些研究的经费来自美国纳税人,但却几乎没有受到任何监管。批准这些研究经费的美国国立卫生研究院认为,“虽然这样的研究本质上是有风险的，但不进行这类研究的话，不能为下一次大流行做好准备的风险也很高”。复指控和否认武汉的此类研究是美国资助的说法一直此起彼伏。
+BKK 董事会成员Andreas Schöfbeck 告诉“Die Welt”报纸，这些数据是一个“危险信号”，并补充说：“ 确定的数字非常重要，迫切需要检查其合理性。”
 
-你完全和彻底的是不正确的，美国国立卫生研究院从来没有，现在也没有资助武汉研究所的功能增强实验研究。
+这封由Schöfbeck撰写的信指出，BKK分析了1090万份保单持有人的医疗帐单数据， 发现在该数据中， 约有217，000人因疫苗副作用接受了治疗。 该公司指出， 总体而言， 在人口约8300万的德国， Paul-Ehrlich研究所在2021年报告了244，576例新冠疫苗接种副作用疑似病例。
 
-但（福奇的）辩论只是在语义上进行狡辩。美国国立卫生研究院试图淡化改变他们在过去十年来对功能增强实验的定义，他们现在称其为“涉及增强的潜在大流行病原体的研究”。这样在生态健康联盟狡辩这些特殊的蝙蝠病毒没有在人类中进行传播的能力之后，他们能够避免将在武汉进行的病毒研究归为“功能增强实验”，尽管这正是他们所计划的要对病毒做的事情。
+他在信中写道：“ 我们公司获得的数据让我们有理由相信， 在接受新冠疫苗后， 疑似疫苗副作用病例的登记是不足的。”
 
-有很多警告称，中共的科学研究对世界其他地区的威胁越来越大。
+Schöfbeck估计：“ 如果把这些数字放大，推算扩大到到整个德国人口，那么德国可能有两百五百万至三百万人因为接种了新冠疫苗产生了副作用而接受治疗。
 
-视频链接：[10 reasons why scientists believe coronavirus originated from lab in Wuhan, China | Fox News](https://www.foxnews.com/politics/reason-scientists-believe-coronavirus-originated-lab-wuhan-china)
+Schöfbeck随后得出结论， 根据他们的数据， 德国对“ 疫苗副作用的报道严重不足”。
 
-发布：文泓
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+Nordkurier 报纸周三报道， BKK发出的另一封信表明， 德国各地报告的疫苗接种副作用比PaulEhrlich研究所报告的数量至少高出10倍。
+
+Schöfbeck 的信也被发送到德国疫苗接种常务委员会和德国医学学会。
+
+这些信件没有详细说明副作用的严重程度，也没有提供症状的细节或者是哪些疫苗引起了副作用。德国药品监管机构已批准辉瑞、阿斯利康、强生、诺瓦瓦克斯和莫德纳。
+
+原文链接：[https://www.eventiavversinews.it/assicurazione-sanitaria-tedesca-con-11-milioni-di-utenti-gli-effetti-collaterali-del-vaccino-covid-19-sono-molto-maggiori-di-q](https://www.eventiavversinews.it/assicurazione-sanitaria-tedesca-con-11-milioni-di-utenti-gli-effetti-collaterali-del-vaccino-covid-19-sono-molto-maggiori-di-q)
+
+编辑、上传： Xiao  baige
 
  
 

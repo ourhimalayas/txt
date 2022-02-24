@@ -2,13 +2,24 @@
 ---
 
 
-## 2月23日文贵大直播摘要（图片8-15
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2060805/)
+## 9架中共军机侵入台湾防空识别区
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2060939/)
 
-设计 五月花农场 水涨船高
-![](https://assets.gnews.org/wp-content/uploads/2022/02/AD4CD3D0-75EE-4DFE-BB90-62E8B7D95F6C.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/28B2D3A7-FC5F-457F-8A69-D1202B741CF8.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/54203ACD-0FDC-4918-B558-56E869C8C7F8.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/C1228E66-617F-4E5A-BEF9-ED31D81697C5.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/68EDA3F7-104E-415A-937C-5E1EAF5122B7.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/90EACDDF-87F4-4129-AA1C-C104F0AD6368.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/67023337-8B56-4280-8F15-9684E36034CF.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/4408A82D-C8D8-4763-BE02-E670F943F677.jpeg)
-发布 水涨船高
+撰稿：东京樱花团/向海
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片2-15.jpg)[图片来源](https://www.airrecognition.com/index.php/world-air-force-aircraft/asia-air-forces/china-air-force-pla/china-fighter-jet-aircraft/5980-shenyang-j-16-fighter-jet-data-pictures-video.html)
+台湾国防部24日晚间宣布，9架中共军机侵入防空识别区（ADIZ），台军机已紧急升空。
 
+据国防部消息，8架中共“歼16”战机和1架侦察机已经侵入防空识别区。 据称，它在台湾有效控制的南海东沙群岛（普拉塔斯群岛）的东北空域飞行。
+
+台湾国防部说，已紧急派出一架台湾军机以警告中共军机，并启动防空导弹系统以“监视入侵行动”。
+
+信息来源：
+
+[中国軍用機9機が台湾防空識別圏に侵入](https://news.yahoo.co.jp/articles/6bce44f3f7e699cc37e4f8074060089f08b50b89)
+
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

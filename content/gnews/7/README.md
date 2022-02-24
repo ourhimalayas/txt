@@ -2,26 +2,40 @@
 ---
 
 
-## 北约召开紧急峰会 讨论加强邻近东欧成员国防御
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2060935/)
+## 2022报税季开始 截止时间不变有额外抵扣
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2061011/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-51.jpg)[图片来源](https://www.bbc.com/news/world-europe-18023383#:~:text=Ukraine%3A%20What%20is%20Nato%20and%20why%20doesn%27t%20Russia%20trust%20it%3F)
-北约秘书长斯托尔滕贝格24日表示，有关乌克兰局势的紧急峰会将于2月25日在线举行。
+作者：The Canadian Press
+翻译：Himasally
+![](https://assets.gnews.org/wp-content/uploads/2022/02/70_133IM23.jpg)
+加拿大税务局将从周一开始接受所得税申报，标志着2022年报税季节正式开始。
 
-在俄罗斯军队全面入侵乌克兰之后，北约将讨论如何加强在邻近的东欧成员国的防御。
+国税局警告说，今年仍然是一个”独特”的报税期，因为继续面临着COVID-19疫情带来的挑战。
 
-2月24日北约理事会大使级会议上，决定为其成员国启动一项防御计划，其中包括部署一支北约快速反应部队（NRF）。斯托尔滕贝格在会后的新闻发布会上表示，该计划是一项 “谨慎的防御性措施”，以防止危机蔓延到其它成员国。同时他还强调，鉴于以美国为首的成员国已经在东欧增兵，遵守《北约条约》第5条规定的集体防御义务的承诺是“铁墙”。制止俄罗斯对其成员国的袭击。
+但是CRA说今年不会延长报税最后期限，对大多数加拿大人来说，最后期限仍然是4月30日。
 
-关于乌克兰，斯托尔滕贝格指出，他支持该国的军事集结，但没有计划在那里部署北约部队。
+联邦税务局说，加拿大人需要申报所得税，以便能够获得的福利和退税。
 
-2月24日，安理会通过了一项声明，强烈谴责俄罗斯的军事攻击，认为其完全没有道理，并要求立即停止。
+在家工作的加拿大人，今年有资格使用一个临时的统一费率方法，报税时申请扣除最多500元的家庭办公费用。
 
-信息源：[NATO緊急首脳会議、25日開催　防衛計画発動、ロシア本格侵攻で](https://news.yahoo.co.jp/articles/abfe6e6250e34b0943e7787d7d322ee2b0c35924#:~:text=)
+国家税务部长Diane Lebouthillier说，她对CRA在大流行期间应对挑战的方式感到自豪，并指出该机构的员工在管理COVID-19福利方面”非常好”。
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+来源：https://www.cp24.com/news/another-unique-tax-filing-season-opens-in-canada-amid-pandemic-challenges-cra-1.5789814
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

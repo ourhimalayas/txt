@@ -2,40 +2,28 @@
 ---
 
 
-## 美国房价在12月份重新加速
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2060133/)
+## 俄罗斯股市大跌,被25国制裁
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2060261/)
 
-据《Zerohedge》记者：Taylor Durden, 2022年2月22日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2274-e1645727695206.png)图片来源：Forbes
-在美国最大的20个城市的房价涨幅连续4个月减速之后，12月份价格再次加速上涨（来自S&P CoreLogic的最新数据），同比上涨了惊人的18.56%（令人惊讶地高于11月和12月的18.35%，远高于预期的18.00%）……
+#### 编译: Cran
 
-全国房价指数同比上涨18.84%，高于11月的18.69%。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2275.png)
-在接受调查的20个城市中，凤凰城、坦帕和迈阿密的同比增幅最高。
+#### 责编: 白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/02/16457324291.png)Image Source: 美国之音- 聯合國安理會2月21日召開烏克蘭局勢緊急會議
+据《美国周刊》2月24日报道,对俄罗斯入侵乌克兰，俄罗斯股市周四上午做出了相应的反应, 其股票市场遭受了历史性的坍塌。
 
-标普道琼斯指数董事总经理克雷格·J·拉扎拉(Craig J. Lazzara) 在声明中说： “我们注意到，过去几个月来，房价一直在以非常高的速度上涨，但正在减速。”
+俄罗斯市场的恐惧使莫斯科证券交易所（MOEX）周四暴跌45%，而以美元计价的RTS指数暴跌超过40%。崩盘使使其最大公司Sberbank的价值缩水750亿美元, 一度损失57%。俄罗斯石油巨头股票暴跌58% (英国持有20%股)， 卢布一度以85比1美元的汇率跌至历史新低。
 
-“减速在12月停止，因为所有三个综合指数的同比变化都略高于11月的水平。12月全国综合指数上涨18.8%，是历史上第五高的读数。”
+俄罗斯是世界第二大原油和最大的天然气出口国，世界能源市场为普京入侵乌克兰的决定带来的巨大影响做好了准备。因为军事侵略引起了华尔街和世界股市的大跌. 只有石油和黄金的股价上升。
 
-但是，我们注意到这是在1月份抵押贷款利率真正开始起飞之前（这是在利率变动之前加速购买吗？）……
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2276.png)
-……这表明价格将更快地放缓涨幅（这与购房者和建筑商情绪的低迷相吻合）。不要指望美联储会拯救这个……
+另据美国“Newsmax”今日报道, 已经有27个国家对俄罗斯的入侵进行了制裁，当俄罗斯军队袭击乌克兰时，世界各国领导人周四做出了愤怒的反应，称这是“野蛮行为”, 并将追究克里姆林宫的责任。
 
-文章来源：[https://www.zerohedge.com/personal-finance/us-home-prices-re-accelerated-december-ahead-mortgage-rate-surge](https://www.zerohedge.com/personal-finance/us-home-prices-re-accelerated-december-ahead-mortgage-rate-surge)
+联合国安理会21日曾举行了一次特别紧急会议，旨在劝阻俄罗斯向乌克兰派遣军队。秘书长安东尼奥·古特雷斯 (Antonio Guterres) 呼吁, “给和平一个机会”，与此同时, 俄罗斯总统弗拉基米尔·普京（Vladimir Putin）在俄罗斯电视台上宣布了一项军事行动，他坚称这项行动是为了保护乌克兰平民。当各国领导人争先恐后地谴责这次袭击时，基辅和乌克兰其他城市都听到了爆炸声。
 
-翻译：洛杉矶盘古农场 – Raul
+2014年，俄罗斯占领了乌克兰的克里米亚，亲俄叛军此后一直在顿涅茨克和卢甘斯克东部地区与乌克兰军队作战。超过14000人在冲突中丧生。
 
-校对：洛杉矶盘古农场 – 轰炸机
+周一, 普京承认了乌克兰东部两个分裂地区的独立，并下令俄罗斯军队在那里执行他所说的 “维和行动”，联合国秘书长, 安东尼奥.古特雷(António Guterres)斯称, 俄罗斯军队未经其同意进入了另一个国家，这个27国集团已经实施了各项制裁，并正在讨论更多更严厉的惩罚措施。
 
-编辑：洛杉矶盘古农场 – WenXiong
-
-发布：洛杉矶盘古农场 – 子萍
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+Source: [1](https://www.newsweek.com/russia-ukraine-ruble-moex-stocks-markets-dollar-kyiv-moscow-putin-1682199) [2](https://www.newsmax.com/newsfront/ukraine-tensions-global-reaction/2022/02/24/id/1058246/)
 
  
 

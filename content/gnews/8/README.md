@@ -2,35 +2,31 @@
 ---
 
 
-## 短视频：维族人控诉冬奥会是种族灭绝奥运会
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2060921/)
+## 普京再次暗示将使用核武器
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2061009/)
 
-翻译：George Yang
-校对：Lish
-字幕：向上James
-编辑：文泓
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image01-2.png)
-中国共产党从不尊重维族人，从不尊重维族文化，从不尊重维族的人权。所以我觉得这个奥运会是种族灭绝奥运会，这不是正常的奥运会。
+撰稿：东京樱花团/黑猫
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片4-7.jpg)[图片来源](https://www.google.com.hk/search?q=Putin+nuclear+weapons&amp;newwindow=1&amp;sxsrf=APq-WBt62Cnkn6Me8106D7J2o0Uyr1lIBw:1645714781043&amp;source=lnms&amp;tbm=isch&amp;sa=X&amp;ved=2ahUKEwjHwrKnzZj2AhWqy4sBHachDYoQ_AUoAXoECAEQAw&amp;biw=1707&amp;bih=695&amp;dpr=1.13#imgrc=pq4TomQUAfDR6M)
+俄罗斯总统普京在莫斯科时间2月24日凌晨，”以保护民众”为理由，宣布他已决定在乌克兰东部开展特别军事行动。
 
-我失去了我的老公司和所有我在故土的生意，在这里从头开始。第一件事就是我要学英语去开启我在这个国家的新生活，2018年我开了我在华盛顿的第一家Dolan Uyghur餐厅。
+在一次电视讲话中他说，”任何试图从外部进行干预的人都将面临历史上前所未有的巨大后果”，并重申他准备使用核武器。
 
-这个冬奥会和1936年的德国奥运会一模一样，因为共产党在对维族人进行种族灭绝，残杀维族人消灭维族文化。如果我亲眼看这个奥运会，我可以看到我的兄弟姐妹们在我的故土，看到他们在监狱、在集中营和在廉价劳动力的工厂过着艰苦非人道的生活。所以我不能看这个奥运会
+「每日邮报」在提到这次演讲时报道说，”普京向拜登和北约发出令人毛骨悚然的警告”。
 
-我的兄弟跟我说了句，祝你好运，给你孩子们在美国好的教育。
+同一天，美国新闻网站Politico Europe以 “普京：使用核武器的选择 “为题报道说，”普京正在把核武器推向前台，无视国际法，增加危险。 它警告说：”把我们的希望和信任寄托在少数好战的领导人身上，并不是防止核灾难危机的明确战略。
 
-就这些，然后几个月后我兄弟第一次跟他老婆进了集中营，然后判了我兄弟10到20年的刑期，判给她老婆7年徒刑，没有人照顾他们的三个孩子，我妈妈照顾着三个孩子。
+2月7日，在与法国总统马克龙的会晤中普京说：”不要忘记俄罗斯是一个核所有国家”。 他在提到使用核武器的可能性时说：”在这场战争中没有赢家”。
 
-但这仅仅是一个家庭，在东塔克斯坦有数百万的人有同样的问题和遭遇，他们都被关进了集中营。
+2月19日，俄罗斯进行了一次大规模的洲际弹道导弹（ICBM）和高超音速巡航导弹的发射演习，这两枚导弹都能携带核弹头，并宣布 “所有导弹都击中了目标。
 
-视频链接：[DC Uyghur restaurant owner: ‘This Olympic is genocide Olympics’ | Fox News](https://www.foxnews.com/world/dc-uyghur-restaurant-owner-this-olympic-is-genocide-olympics)
+信息来源
 
-发布：文泓
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[プーチン大統領、核兵器の行使を再び示唆「邪魔する者は歴史上で類を見ないほど大きな結果に直面するだろう」](https://news.yahoo.co.jp/articles/8bc38fc1a57cfa230c56bcb8854876a252ff37c3/images/000)
+
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+
 
  
 
