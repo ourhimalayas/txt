@@ -2,26 +2,29 @@
 ---
 
 
-## 负责川普刑事调查的检察官已辞职
-` Toronto Blue Lotus` [轉載自GNews](https://gnews.org/zh-hans/2055474/)
+## 以色列医生谴责特鲁多把自由车队等同与纳粹
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2055532/)
 
-翻译：蓝莲花农场 -文绮
+加拿大温哥华扬帆农场：薇文viven
 
-纽约——在曼哈顿地区检察院负责对前总统川普进行刑事调查的两名检察官周三突然辞职，这使未来的调查充满不确定因素。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/a-edited.jpeg)图片来源：TNH
 
-地方检察官阿尔文·布拉格（Bragg）的发言人证实了凯里·邓恩和曾起诉黑手党的检察官马克·波梅兰茨的辞职，他们两人都是在前地方检察官小赛勒斯·万斯的手下开始参与此项调查的。
 
-“我们感谢他们的服务。”发言人拒绝进一步置评，称调查仍在进行中。
+美国[布莱巴特新闻]2月22日报道，上周五，以色列一个由医学界等知名人士组成的非政治团体致信特鲁多，谴责他把自由车队描绘成“纳粹同情者”，并与粹分子画等号。这23位人士中有大屠杀幸存者的第二、第三代。
 
-《纽约时报》援引消息人士的话说，在布拉格（Bragg）对起诉川普提出质疑后，邓恩和波梅兰茨辞职。
+信中说，大疫情以来各国政府采用严厉的限制措施来控制疫情，现在看来几乎无效。尽管各国已认识到这种做法带来的只有伤害没有好处，但仍有国家冥顽不化，加剧了国计民生和基本自由的损害。
 
-记者留言给了邓恩和波梅兰茨以获得更多消息。
+信中称特鲁多不是与抗议者作建设性对话，而是代之以污名化。他们谴责特鲁多，不应把反犹主义的斗争武器化，用于旨在恢复基本自由的合法抗议活动中。
 
-检察官办公室的调查导致了去年 7 月对川普的公司“川普集团”及长期担任其财务主管的艾伦·韦塞尔伯格的税务欺诈指控。
+报道还提到以色列数千辆加拿大式的 “自由车队”，集结议会敦促结束疫情限制和紧急状态；英国脱欧领导人和欧盟议员更是把特鲁多的行为与中共国相提并论，称他用马蹄清场是在效仿中共政府，而不是西方的民主国家。
 
-韦塞尔伯格被指控收取超过 170 万美元的账外补偿，包括公寓租金、汽车付款和学校学费。 他和公司均表示不认罪。
+新闻链接：
 
-原文链接：[https://abc7ny.com/donald-trump-criminal-probe-manhattan-district-attorney-prosecutors-resign/11593141/](https://abc7ny.com/donald-trump-criminal-probe-manhattan-district-attorney-prosecutors-resign/11593141/)
+[Leading Israeli Doctors Slam Trudeau for Equating Freedom Convoy Protesters with Nazis](https://www.breitbart.com/politics/2022/02/22/leading-israeli-doctors-slam-trudeau-for-equating-freedom-convoy-protesters-with-nazis/)
+
+* * *
+
+编译撰稿：薇文viven 编辑发稿：硫酸羟氯喹64
 
  
 

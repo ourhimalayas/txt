@@ -2,20 +2,30 @@
 ---
 
 
-## 秘翻在线:人民银行要求实体银行必须办理现金业务
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2054661/)
+## NFSC新闻、G|TV新闻访谈简报|2022年2月23日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2054669/)
 
-撰稿：西枫westca
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-4-removebg-preview.png)
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-14.jpg)图片来源：网络照片
-据人民网2月22日报道，人民银行、银保监会要求，凡设有实体网点的商业银行、农信社等机构必须办理人民币存取业务。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-23.png)
+文章仅代表作者本人观点，与Gnews无关
 
-近期银行金融机构在现金服务方面意愿下降，部分网点如北京中关村银行、辽宁振兴银行等已宣布停止办理人民币现金业务，此外有些农信社、外资银行网点、个别大行网点也停办现金存取业务。2021年第4季度人民银行还对32家拒收现金单位进行过经济处罚。因此此次金融机构人民币现金服务工作座谈会要求，人民币现金是国家法定货币，现金服务是最基础的金融服务，要认识到人民币现金服务的重要性，不断提升现金服务能力和水平。
+视频参看：
+[2022.02.23早 《NFSC新闻》](https://gtv.org/video/id=621636a108ba8a07b1a1fee3)
+[2022.02.23早 G|TV《新闻访谈》](https://gtv.org/video/id=62163ea808ba8a07b1a20c34)
 
-当天，中共央行发出公告，央行存取5万说明来源用途的规定因技术问题暂缓实施。 此规定如果实施，对中共国的经济将是一场灾难。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-**新闻来源：**[两部门：设有实体网点的商业银行必须办理现金存取业务–经济·科技–人民网 (people.com.cn)](http://finance.people.com.cn/n1/2022/0222/c1004-32357197.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-4.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -2,39 +2,69 @@
 ---
 
 
-## Facebook改名Meta后市值已蒸发5000亿美元
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2055507/)
+## 解释：COVID、HIV、疫苗和疫苗艾滋VAIDS（3/3）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2055603/)
 
-作者：纽约香草山 – 宁文静
+上接：[解释：COVID、HIV、疫苗和疫苗艾滋VAIDS（2/3）](https://gnews.org/zh-hant/2055453/)
 
+翻译: Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-45.png)
-据2月18日的外媒报道，自从去年10月底，马克·扎克伯格把facebook改名为Meta之后，其股票市值已经从8月份的高峰坠落，迄今已经损失了超过5000亿美元，其中约一半在一天之内蒸发，创造了有史以来最大的市值跌幅。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2167-edited-1.png)thecovidworld.com
 
-曾经是世界上市值第六大公司的Meta公司已经跌出了前十名。它的用户群开始萎缩，因为层出不穷的言论审查和泄密事件，使这些人涌向其它竞争对手。同时，其引以为豪的广告追踪系统已经被苹果等公司所取代，苹果允许用户禁用在互联网上追踪历史记录的代码，而谷歌将在未来两年内开始为其用户提供类似的隐私保护。
+HIV发现者和诺贝尔奖获得者卢克·蒙塔尼耶（Luc Montagnier）（本月神秘死亡）：
 
-扎克伯格显然对18年前创立的公司缺乏信心，而将工作重心转向了沉浸式的互联网，为“元宇宙”配备了头盔和数字身份。它的竞争对手不再是与另一家硅谷公司，而是现实本身。分析人士认为，在Meta单日股票市值蒸发2400亿美元之后，股价并没有如人们想象的低位回调，而是一路深跌。投资者可能正在见证扎克伯格帝国衰落的早期阶段。
+“有人在蝙蝠病毒上添加了 HIV 序列。”
 
-新闻来源：[https://nymag.com/intelligencer/2022/02/zuckerberg-has-burned-usd500-billion-turning-facebook-to-meta.html?utm\_source=tw](https://nymag.com/intelligencer/2022/02/zuckerberg-has-burned-usd500-billion-turning-facebook-to-meta.html?utm_source=tw)
+**刺突蛋白对免疫的影响**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-305.jpeg)
+**Sars-Cov-2 ****病毒或 COVID****“****疫苗****”****的刺突蛋白**，**是已知的最具生物活性和潜在破坏性的物质之一**。 众所周知，**它可以穿透血脑屏障、细胞核并影响 DNA 复制**。它具有很强的免疫原性（1）。
 
-编辑/校对/发稿：滚滚长江都是水
+（注释：是指某抗原或其表位能作用于T细胞、B细胞的抗原识别受体，进而诱导机体产生[体液](https://zh.wikipedia.org/wiki/%25E4%25BD%2593%25E6%25B6%25B2%25E5%2585%258D%25E7%2596%25AB)和/或[细胞介导](https://zh.wikipedia.org/wiki/%25E7%25BB%2586%25E8%2583%259E%25E4%25BB%258B%25E5%25AF%25BC%25E5%2585%258D%25E7%2596%25AB)[免疫应答](https://zh.wikipedia.org/wiki/%25E5%2585%258D%25E7%2596%25AB%25E5%25BA%2594%25E7%25AD%2594)的特性；此抗原则可称为**免疫原**immunogen）
 
-**更多资讯，更多关注**
+1. **刺突蛋白似乎以一种奇怪的方式重新编程免疫系统**：针对 SARS-CoV-2 的 BNT162b2 **mRNA ****疫苗重新编程了适应性和先天免疫反应。**
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+2. 当穿透细胞核时，自由浮动的刺突蛋白会抑制 DNA 损伤修复：SARS-CoV-2 刺突蛋白会损害 DNA 损伤修复，并抑制 V(D)J 体外重组。这里描述的机制，既可用于形成任何未来疾病的免疫记忆，也可用于预防导致癌症的 DNA 突变。
 
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+接种疫苗后的免疫系统问题
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+很明显，接种疫苗的人在感染 COVID 后不会产生广泛的自然免疫力，**而是会产生更多的 S 抗体来对抗他们最初接种的刺突蛋白**。
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+VAIDS疫苗获得性（或辅助性）免疫缺陷综合征
 
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+我不是第一个注意到这些问题的人，也绝对不是唯一的一个。人们开始用通俗的话来指**接种疫苗的人的免疫问题**，称其为 VAIDS——疫苗获得性（或辅助性）免疫缺陷综合征。到目前为止，该术语是一种口语化的常用语，尚未在任何科学文章中使用。
 
+然而，接种疫苗的人遇到的免疫问题是真实存在的。再感染也是如此情况。
 
+这里有一些头条新闻。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2176.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2179.png)thecovidworld.com
+
+有趣的是，我从COVID-19 阳性红迪网（ /r/COVID19Positive subreddit ）收集了关于 COVID 的故事，其中充满了接种疫苗者中无休止的 COVID 再感染的悲伤故事，有时甚至在一两个月内发生再次感染。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2180.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2182.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2184.png)thecovidworld.com
+
+所有这些报告都非常令人担忧。即使每个 COVID 实例看起来都很轻微，但它们的累积影响可能非常具有破坏性，用轻微是为了避免危言耸听。
+
+因此，虽然 VAIDS 不是一个科学术语，但我们需要开始关注接种疫苗的朋友和亲戚的免疫健康。
+
+评论：疫苗灾难即将爆发！不幸接种了疫苗的人们，需要尽快使用伊维菌素，青蒿素等药物进行排毒，详细药物指南，请在Gettr，GTV上查找。
+
+【完结】
+
+素材链接：【thecovidworld.com】
+
+* * *
+
+审核：文乐
+校对：信心满满
+发布：花羽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

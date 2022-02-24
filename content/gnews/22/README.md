@@ -2,29 +2,20 @@
 ---
 
 
-## 今日盖特大V推荐 — 弗林将军（General Flynn）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2055389/)
+## 加拿大议员谴责特鲁多独裁施政
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2055455/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/jkpk1.jpg)
-**盖特链接：**[https://gettr.com/user/realgenflynn](https://gettr.com/user/realgenflynn)
+加拿大温哥华扬帆农场    平民正道
 
-**弗林将军自述：**
+据加拿大媒体【后千禧年】2月21日报道，保守党议员皮埃尔日前指责特鲁多非法越权对卡车司机的和平抗议活动采取“分而治之”的暴力手段。
 
-**在此处与我的所有平台连接**：[https://linktr.ee/genflynn](https://linktr.ee/genflynn)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/lak1.jpg)**图片来源：网络**
-**弗林将军简介：**
+该议员指出，特鲁多政权至始至终都在利用疫情控制着全国，其各项经济和人身的限制政策引发了被侵犯权利的人民奋起反抗。而当局则借机进一步妖魔化反对者的声音，试图以此制造社会分裂，激化群体矛盾，挑起种族斗争。
 
-弗林将军，全名迈克尔·托马斯·弗林（Michael Thomas Flynn，1958 年 12 月 24 日出生）是一位退役军人，前美国陆军中将，曾任川普时期的国家安全顾问。奥巴马时期的美国国防情报局局长。
+此外，特鲁多还非法动用国家权力以调查所谓“错误政治动机”的群体，并以封锁其个人银行账户作为惩罚。当局不仅冻结抗议者的个人财产，同时还利用警察等国家机器来攻击他们的人身安全。更严重的是，特鲁多还天真希望能永久执行其独裁治国的极权方案。
 
-弗林将军的军事生涯包括在制定美国反恐战略和摧毁阿富汗和伊拉克战争中的叛乱网络方面发挥了关键作用。
+* * *
 
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 — 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+编辑： 平民正道    发布：平民正道
 
  
 

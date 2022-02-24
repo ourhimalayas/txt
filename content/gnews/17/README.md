@@ -2,20 +2,20 @@
 ---
 
 
-## 不惧镇压自由抗议运动在加拿大爆发
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2055428/)
+## 辨别善恶真假的能力，理智冷静是你生存下去的法宝
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2055486/)
 
-加拿大温哥华扬帆农场    平民正道
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-据加拿大媒体【后千禧年】2月20日报道，在特鲁多政府暴力镇压渥太华长达数周的自由车队反疫苗护照运动后，支持卡车司机的浪潮在加拿大蔓延开来。无数市民走上卡尔加里和多伦多的街头，反对当局的各项强制性防疫措施。
+*发布：陶子*
 
-报道称，特鲁多恣意妄为地打压和平集会之举触犯众怒。卡尔加里和多伦多等城市反政府疫苗政策的抗议者们日前冒着严寒走上街头，这些热爱和平和自由的民众继续抗争以支持在渥太华正被警察摧残的自由车队。
-
-此外，在美加边境地区也发生了相同的抗议活动。而最新民调显示，大多数美国人都支持加拿大自由车队，并认为有必要也在美国开展类似的运动。
-
-* * *
-
-编辑： 平民正道    发布：平民正道
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

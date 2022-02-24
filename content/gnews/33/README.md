@@ -2,30 +2,27 @@
 ---
 
 
-## NFSC新闻、G|TV新闻访谈简报|2022年2月23日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2054669/)
+## 特鲁多镇压自由车队掩盖疫苗真相
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2055182/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-4-removebg-preview.png)
+加拿大温哥华扬帆农场：Quitman
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-23.png)
-文章仅代表作者本人观点，与Gnews无关
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/a-16-edited.png)图片来源：盖特
 
-视频参看：
-[2022.02.23早 《NFSC新闻》](https://gtv.org/video/id=621636a108ba8a07b1a1fee3)
-[2022.02.23早 G|TV《新闻访谈》](https://gtv.org/video/id=62163ea808ba8a07b1a20c34)
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+据2月19日盖特消息，当天参加渥太华抗议活动的保罗.亚历山大医生，在现场接受班农作战室的采访时指出，特鲁多政府在制定防疫政策和处理疫情的过程中犯下了不可饶恕的错误。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-4.png)
+该医生表示，大多数政府官僚根本不懂科学，不顾事实。在疫苗已被验证毫无防疫功效，甚至产生严重伤害的情况下，仍然强推疫苗接种和疫苗护照。这也是大卡车司机们基本诉求的根本原因。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+对此，保罗医生称：42项研究表明疫苗已经失败，而特鲁多政府内部 早已知道这一事实，只是他们不想放弃手中的权力。因为一旦停止强制令，当局将面临大量的法律诉讼和追责。
+
+同时，许多律师正在准备将相关的政府官员和公共卫生负责人告上法庭。并认为政府在这两年内一错再错，不仅不思悔改，甚至利用警察镇压和平抗议者，明目张胆地侵犯宪法赋予人民的权利。
+
+原文链接：[https://gettr.com/post/pw0dsnb0f1](https://gettr.com/post/pw0dsnb0f1)
+
+* * *
+
+撰稿：Quitman 校对编辑，发稿：硫酸羟氯喹64
 
  
 
