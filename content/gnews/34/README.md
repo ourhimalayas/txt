@@ -2,27 +2,25 @@
 ---
 
 
-## 有声|新中国联邦新闻、GTV新闻访谈简报|2022年2月22日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2059782/)
+## 普京：入侵&#8212;是俄罗斯的唯一选择
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2059999/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-2-2.png)
+撰稿：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2022/02/lcimg-cdc3550c-bc16-47b0-9f97-d00fbe18b622.jpg)
+图片：Dr.
 
+据路透社2月24号报道，俄罗斯总统弗拉基米尔-普京说，俄罗斯只能通过入侵乌克兰来保护自己。 路透社援引普京的话说，俄罗斯是 “被迫 “入侵的。
 
-文字版原文：[新中国联邦新闻、GTV新闻访谈简报|2022年2月22日晚](https://gnews.org/zh-hans/2050664/)
+– 乌克兰的事态发展使我们别无选择。普京说，我们没有别的出路。 目前还不清楚总统指的是什么，但他很早就指责乌克兰是纳粹统治，在乌克兰东部进行种族灭绝，完全没有证据。
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+同时，在与RSPP的会谈中，普京呼吁俄罗斯不要被排除在全球经济之外。 据路透社报道，普京说，俄罗斯仍然是全球经济的一部分，不会损害它所处的体系，世界必须理解这一点，不要把俄罗斯推开。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+世界上独裁战争贩子都一样，嘴巴上都是正义，行动上都是流氓！
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+来源：
+
+[Dr.dk](https://www.dr.dk/nyheder#!/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,34 +2,20 @@
 ---
 
 
-## 为应对人民车队 五角大楼在DC部署国民警卫队
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2060185/)
+## 可能有 500 万乌克兰难民到欧洲
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2060238/)
 
-翻译：**Lulumi**
+翻译/整理: 萧亦
+![](https://assets.gnews.org/wp-content/uploads/2022/02/02242.jpg)图片来自repubblica.it
+欧洲正在应对乌克兰可能出现的难民紧急情况的计划。在欧洲理事会讨论了因为莫斯科和基辅之间的冲突可能会引发真正的移民潮。美国驻联合国大使琳达·托马斯-格林菲尔德谈到了 500 万难民。她表示，如果俄罗斯继续走这条路，根据我们的估计，它可能会造成新的难民危机，这是当今世界面临的最大危机之一。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/unknown-1-27.png)图片来源：mediaite.com
+巴尔干航线有可能再次被逃离的乌克兰人所淹没。他们都是难民，而不是经济移民，逃往欧盟不需要签证。
 
-国防部正在考虑部署华盛顿特区国民警卫队，以应对国家首都可能发生的与加拿大类似的卡车司机抗议活动。
+德国政府也在研究一项人道主义援助计划，德国内政部长南希·法瑟明确表示正准备通过人道主义支持帮助尤其是靠近乌克兰的国家。这次逃跑的可能目标是波兰、匈牙利和德国，还有意大利和法国。
 
-五角大楼发言人约翰·柯比在周二对媒体发表的声明中说：“国防部正在分析美国国会大厦警察和华盛顿特区国土安全和应急管理机构的援助请求。”
+原文链接: [https://www.repubblica.it/esteri/2022/02/23/news/ucraina\_russia\_ue\_allarme\_5\_milioni\_profughi\_migranti-338987598/?ref=RHTP-VS-I270681069-P22-S1-T1](https://www.repubblica.it/esteri/2022/02/23/news/ucraina_russia_ue_allarme_5_milioni_profughi_migranti-338987598/?ref=RHTP-VS-I270681069-P22-S1-T1)
 
-他说：“这些机构要求国民警卫队人员在该区及其周围的交通控制点提供支持，以帮助美国国会警察局和华盛顿特区政府应对关键交通干线可能出现的中断所带来的潜在挑战。”
-
-据《军事时报》报道，该报首先报道了特区国土安全和紧急事务管理局对特区国民警卫队的请求。
-
-根据《军事时报》获得的内部指令， DC特区国民警卫队在2月22日至3月7日或更晚的时间里被通知可能被启动。根据DC特区国民警卫队陆地部分指挥部负责人罗伯特·K·瑞恩准将周五发布的消息，DC特区国民警卫队将在“43个关键封锁位置全天候提供车辆和人员”。
-
-部署DC国民警卫队的可能性是在卡车司机车队封锁加拿大道路以抗议该国中共冠状病毒规定（包括其疫苗规定）之后，卡车司机计划来到国家首都抗议。据报道，渥太华的卡车司机车队后来被清除了。
-
-**参考资料：**[mediaite][Pentagon ‘Analyzing’ Deploying DC National Guard Ahead of ‘Possible Disruptions’ by Truckers](https://www.mediaite.com/news/pentagon-analyzing-deploying-dc-national-guard-ahead-of-possible-disruptions-by-truckers/)
-
-* * *
-
-*审核：文乐
-校对：信心满满
-发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-4.jpeg)
+责任编辑/发布:意大利达芬奇农场   萧亦
 
  
 
