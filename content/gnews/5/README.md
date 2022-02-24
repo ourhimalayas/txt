@@ -2,122 +2,43 @@
 ---
 
 
-## 锁链女
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2060042/)
+## 一名卡尔加里男子被指控参与涉及数十名妇女的“浪漫骗局”
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2060074/)
 
-作者：香草山教育部 — 蓝之灵（Hortensia)
+作者：Charlie Hart
+翻译：Himasally
+![](https://assets.gnews.org/wp-content/uploads/2022/02/22_19191O24.png)
+日前来自卡尔加里的一名男子因涉嫌利用团购电子产品为由诱骗多人被控罪，他还涉嫌用将诈骗来的钱再追求约会网站上的女子，以博取信任继续行骗。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEW-GTV-MOS-LOGO-2-109-1280x172-1.jpg)
+卡尔加里警方表示，2020年时，有多人向警方报案说，一位叫Bryan Christopher Syryda的男子自称在一家知名科技公司工作，还可以优惠价或团购价买到例如电视机这些电子产品。但是这些人在把钱给了该男子后，却始终没收到任何东西。当时警方已经就此向该男子提起控罪。
 
+2021年8月，警方又收到更多受害人报案，一些人来自BC省。他们也把钱给了该男子，希望他能帮忙买到打折的高端电子产品，但是付钱后从没收到过预订的东西。
 
+警方展开调查后发现，几个当地女子都在“约会网站认识了这同一名男子，而且她们都曾被邀请出游，并以奢华的方式款待。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-1-2.png)
+“这名男子还承诺帮这些女子的朋友们购买优惠价的电子产品，但拿到钱以后，从未给过东西，”警方表示。
 
-沉重铁链
+“警方认为用于追求这些女子的钱是该男子通过之前的诈骗活动拿到的，他这么做是为了获取这些女子的信任，让她们把钱交给他，” 警方补充说。
 
-挂在我脖颈
+在这些案例中，受害者还鼓励身边的家人朋友都来买这些优惠的电子产品。现在受害者已经遍及BC省的Langley、Surrey和Delta以及阿省的Cochrane和Calgary地区。
 
-二十四年到如今
+36岁的Syryda已从10多名受害者那里诈骗获得超过2万5000元，一些人给了他几百元，还有人给过数千元。目前该男子已被控两项诈骗超过5000元、持有犯罪所得超过5000元罪名。其他一些罪名还待定。
 
-一路路辗转
+来源：https://www.narcity.com/calgary/a-calgary-man-is-charged-in-a-fraud-romance-scam-involving-dozens-of-women
 
-从家乡到此处
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-不记得
+**关注我们**
 
-多少日夜
+Discord 账号
 
-多少男人
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-让我身体
+Gettr 账号
 
-伤痕累累
-
-日日如此
-
-夜夜如此
-
-看见了吗
-
-那一屋子强奸犯
-
-正欢声笑语数着钱
-
-小哥哥啊
-
-请不要走
-
-帮帮我
-
-放我离开
-
-这个世界不要我了
-
-生在人间
-
-活在炼狱
-
-被剪去舌尖记忆
-
-如锥如炙
-
-痛与苦
-
-是每天必须的吃与喝
-
-这个世界不要我了
-
-生不如死 没有天理
-
-人贩子欢天喜地
-
-酷吏们茹毛饮血
-
-我的躯体
-
-是他们欢笑乐土
-
-家乡的路
-
-那么遥远
-
-只能在梦里
-
-一次次 呼唤
-
-亲人，亲人
-
-你们在哪里
-
-没有回音
-
-没有希望
-
-日复一日
-
-重复痛苦
-
-（本文仅代表作者个人观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-7.jpg)
-
-*编辑 /校对*：*Yuki*jiang
-
-*发稿：Yuki*jiang
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

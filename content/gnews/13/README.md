@@ -2,37 +2,30 @@
 ---
 
 
-## 飞往多伦多的航班被迫突然转出乌克兰领空
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2059958/)
+## 俄乌战事对半导体业的影响
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2059987/)
 
-作者：Michael Ranger
-翻译：Himasally
-![](https://assets.gnews.org/wp-content/uploads/2022/02/5_0T516449.jpg)
-周四，一架从以色列飞往多伦多的航班平安抵达多伦多皮尔逊机场，机上乘客终于一块石头落地，因为俄罗斯突然发动袭击，这架飞机不得不突然转弯以避开乌克兰领空。
+翻译播报：billwilliam
 
-根据flight track监控轨迹显示，这架飞机在进入乌克兰领空时突然急转弯，绕道罗马尼亚、匈牙利和斯洛伐克，然后返回波兰上空继续向多伦多方向飞行。
+Proofread by: Ermat
+![](https://assets.gnews.org/wp-content/uploads/2022/02/unnamed-20.png)图源：ksro.com
+据美国消费者新闻与商业频道（CNBC）报道，俄罗斯入侵乌克兰在短期内对半导体行业的冲击比较有限。大型芯片制造厂认为战事在短期对供应链的扰乱有限，因为它们已经囤积原材料并开展多元化采购，但是可能存在长期负面影响。在近一年的全球芯片供应短缺后，俄乌战事无疑对供应链断裂是雪上加霜，并对高科技股票造成压力。但是岁月静好的背后，完全忽视了中共同时攻打台湾的潜在冲击。
 
-有惊无险，这架从以色列特拉维夫起飞的商业航班于周四早上6点44分平安降落在皮尔逊机场。
+目前，美国半导体行业使用的氖气（neon）90%来自乌克兰，这种气体用于制造芯片的激光器。这种气体是俄罗斯炼钢业的副产品，并在乌克兰提纯。同时，俄罗斯供应美国35%的钯金（palladium），这种贵重金属用于制造传感器和存储器。
 
-在俄罗斯军队星期四入侵乌克兰之后，整个乌克兰的领空被关闭，禁止民用航班飞行。
+一位匿名的日本芯片行业消息人士称，虽然芯片厂家没有直接感受到影响，但是提供半导体制造设备的供应商需要从俄罗斯和乌克兰购买氖气和钯金。在原材料供应本身就很紧张的条件下，额外的压力会导致原材料价格飙升，进而导致芯片价格上涨。
 
-乌克兰领导人表示，到目前为止，至少有40人在针对该国的“全面战争”中丧生。
+芯片制造商美光（Micron）称，它了解俄乌局势紧张对原材料供应的潜在影响，并致力于多元化采购。美国白宫要求芯片业多元化采购，如果俄罗斯对美国制裁进行报复。荷兰光刻机厂家ASML（它为台积电、三星，以及英特尔提供设备）周三说它在考虑氖气的替代来源。大多数芯片制造商处于观望态度，但在2014年俄罗斯吞并克里米亚导致氖气价格上涨后，许多公司已经开始多元化布局供应链。
 
-来源：https://toronto.citynews.ca/2022/02/24/toronto-flight-ukraine/
+韩国芯片制造商SK海力士（SK Hynix）表示，它们确保很多芯片原材料，目前不着急。英特尔认为没有影响。格芯（GlobalFoundries）和台湾联华电子（Microelectronics Corp）称它们有灵活性在俄罗斯和乌克兰之外寻找供应源。全球最大的芯片外包制造商台积电（TSMC）目前不予置评。台湾芯片测试和封装公司ASE Technology说目前材料供应稳定。同时台湾经济部告诉路透社称，台湾的半导体供应链不会受到直接冲击。
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+马来西亚芯片制造商Unisem也是苹果的供应商之一，该公司认为对芯片制造没有影响，因为它的原材料不来自俄罗斯，而它的设备主要来自美国、日本、南韩、新加坡、和马来西亚。全球芯片生产13%的测试和封装是在马来西亚进行的。而为芯片生产封装基板（packaging substrate）的日本公司Ibiden认为拥有足够原材料，但对氖气和其它来自俄罗斯的原料表示担忧。
 
-**关注我们**
+虽然大部分芯片制造商对供应链持乐观态度，但是它们完全忽视了中共同时攻打台湾对半导体行业的影响。如果台湾沦陷，很多关键的芯片会更加紧缺甚至断供。同时，虽然许多半导体制造商进行了供应链多元化布局，但是90%的氖气供应源来自乌克兰和俄罗斯，提供芯片制造设备的上游供货商还是从这两个地区购买原材料，长期不一定能绕过供应链断裂的风险。
 
-Discord 账号
+新闻来源：
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+[https://www.cnbc.com/2022/02/24/chipmakers-see-limited-impact-russia-invasion-ukraine.html](https://www.cnbc.com/2022/02/24/chipmakers-see-limited-impact-russia-invasion-ukraine.html)
 
  
 

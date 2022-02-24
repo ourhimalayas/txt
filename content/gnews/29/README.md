@@ -2,26 +2,30 @@
 ---
 
 
-## 俄罗斯悍然入侵乌克兰台湾危在旦夕
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2059676/)
+## 有声|HBO VICE 采访郭文贵先生背后的真相 – 揭露HBO VICE精心编织的谎言 Part-10
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2059774/)
 
-加拿大温哥华扬帆农场  硫酸羟氯喹64
+配音：香草山巡管部 – 格格
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+**HBO-VICE 指鹿为马，对采访内容进行有目的性的剪辑，故意将郭先生关于疫苗真相、中共灭白计划的重要爆料内容，扭曲成未经证实、别有用心的虚假信息，意图彻底把郭先生杜撰成为疫苗阴谋论、以及各种谣言的推动者。对此，郭先生进行了严厉的反驳，他指出，自己的爆料从来不求回报，只为拯救更多无辜百姓的生命，所谓的未经证实，别有用心，根本是与魔共舞的主流媒体视而不见、刻意掩盖的结果，那些把公众利益、人民生命当作筹码，换取个人私利的少数财阀权贵才是真正意义上的用心险恶。**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/a-17-edited.jpg)图片来源：盖特
+**现在，让我们一起还原事实真相的第10部分：反击HBO-VICE混乱剪辑，散布虚假信息：我们利用郭先生原视频进行回击**。
 
 
-据2月24日盖特消息，文贵先生最新发布的盖特视频显示出，俄罗斯军队大量的战斗机和轰炸机以及坦克装甲车当天长驱直入，悍然进犯乌克兰领空和领土。低飞呼啸而过城市上空的俄军战机清晰可见。
 
-对此，文贵先生紧急呐喊警告道：战魔再次打烂世界！这样残酷的战争很快会在台湾发生！希望所有在台湾的战友们和朋友们能以最快的速度撤离！任何台湾的战友都应该受到[新中国联邦]全球农场和战友们的全力协助和支援。
+文字版原文：[HBO VICE 采访郭文贵先生背后的真相 – 揭露HBO VICE精心编织的谎言 Part-10](https://gnews.org/zh-hans/2050942/)
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-至此，在俄罗斯公然入侵乌克兰之后，台海之战将一触即发，中共党卫军将迅速攻占涌入台湾，人道主义灾难正迫在眉睫，消灭中共政权已刻不容缓。具体详细情况，我们将静待文贵先生的进一步警示。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-* * *
-
-消息来源：https://gettr.com/post/pwl3b20ef8
-
-编辑撰稿，发稿：硫酸羟氯喹64
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

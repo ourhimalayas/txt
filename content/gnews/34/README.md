@@ -2,44 +2,26 @@
 ---
 
 
-## 川普：普京谋求乌克兰，中共一定打台湾
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2059618/)
+## 秘翻在线： 频繁猝死的中共国老百姓
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2059619/)
 
-作者：银河系农场 – 骄子
+**撰稿：葛大饼**
 
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-25-000458.jpg)图片来源：  新浪
+根据2022年2月23日  新浪报道，步入2022，猝死成为网络热搜词，国内知名公司如字节跳动，Bilibili等纷纷爆出年轻员工因过劳而猝死的事件。
 
+家人们在对这些突然逝去的生命感到痛心的同时，也不得不面临着现实问题： 28岁猝死的小吴留下怀有身孕的妻子和30年的高额房贷；连续五天从晚上9点加班到隔天早上9点而猝死的木心，是家里的独子，他的离去带走了家庭的希望，留下悲痛欲绝的的单身母亲和爷爷奶奶。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+频繁发生的猝死事件，让人惋惜也更令人恐慌。人们纷纷自嘲：40岁之前，拿命赚钱；40岁之后，拿钱买命，可是更残酷的现实是，你赚到的钱，最后压根买不回命。
 
+在中共国，最基本的衣食住行把每个人压得喘不过气，在中共国能平安活到老似乎成为了一种奢望，因为女孩子很有可能被绑架贩卖当性奴和生育机器，折磨致死，男人为了生活加班致死，加上中共病毒和疫苗的猎杀，很多人或许就是因为疫苗灾难发作而猝死。只有把中共灭了，才能解决普罗大众的苦难！
 
+**新闻来源：**
 
-2月22日，美国前总统川普表示，普京对乌克兰的军事行动是中共习近平试图夺回台湾的信号，在国际政治角逐中，普京和习近平的关系像极了双胞胎姐妹。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-14.jpg)
-川普认为普京和习近平是心照不宣的全天候联盟关系，冬奥会结束后，普京马上对乌克兰采取了行动，紧接着，世界应该开始关注台湾的安危。尽管拜登政府在对俄罗斯入侵乌克兰的问题上已经采取了多种制裁，但美国和欧洲还要担心的是因为战争引发的难民潮问题。国际社会几经谴责俄罗斯对乌克兰的计划入侵，但普京未曾改变策略，而习近平也在对台湾蠢蠢欲动。一场火战迫在眉睫。
+[https://k.sina.com.cn/article\_1682907187\_644f203301901cq95.html](https://k.sina.com.cn/article_1682907187_644f203301901cq95.html)
 
-此前郭文贵先生在直播中提到，乌克兰希望欧美等国能够在战争开始前做出有力阻止，不要等到乌克兰整个已经被毁掉了才开始有所动作，那已经为时已晚。欧美国家的妥协会让乌克兰陷入至暗时刻，包括台湾。
-
-参考链接：
-[Trump says China ‘absolutely’ going after Taiwan after Russia-Ukraine ‘disaster’](https://www.foxnews.com/politics/trump-china-taiwan-russia-ukraine)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
-
-总编/编辑：天滅中共
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+#  
 
  
 

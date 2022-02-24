@@ -2,27 +2,34 @@
 ---
 
 
-## 秘翻在线： 频繁猝死的中共国老百姓
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2059619/)
+## 美国前国务卿蓬佩奥谈台湾局势
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2059620/)
 
-**撰稿：葛大饼**
+作者：日本方舟农场-Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月22日，美国前国务卿蓬佩奥先生在接受采访时谈及了目前的台海局势。
 
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot-2022-02-25-000458.jpg)图片来源：  新浪
-根据2022年2月23日  新浪报道，步入2022，猝死成为网络热搜词，国内知名公司如字节跳动，Bilibili等纷纷爆出年轻员工因过劳而猝死的事件。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide4-13.jpeg)
 
-家人们在对这些突然逝去的生命感到痛心的同时，也不得不面临着现实问题： 28岁猝死的小吴留下怀有身孕的妻子和30年的高额房贷；连续五天从晚上9点加班到隔天早上9点而猝死的木心，是家里的独子，他的离去带走了家庭的希望，留下悲痛欲绝的的单身母亲和爷爷奶奶。
+蓬佩奥先生提到，俄罗斯、中共和伊朗抱团的原因在于他们缺乏盟友，但如果美国尽快不采取遏制行动，这三个国家就可能进一步蚕食世界其他国家的势力。
 
-频繁发生的猝死事件，让人惋惜也更令人恐慌。人们纷纷自嘲：40岁之前，拿命赚钱；40岁之后，拿钱买命，可是更残酷的现实是，你赚到的钱，最后压根买不回命。
+尤其在台海问题上，蓬佩奥先生表示，美国拥有能够阻止台海局势生变的方法，比如与台湾发展经济关系，或对台湾提供武器系统并给予外交支持等。这也是他本人将于三月初访问台湾的原因所在。蓬佩奥先生强调，他希望通过这次访问告诉台湾，很多美国人都希望台湾免受中国共产党的铁腕统治。
 
-在中共国，最基本的衣食住行把每个人压得喘不过气，在中共国能平安活到老似乎成为了一种奢望，因为女孩子很有可能被绑架贩卖当性奴和生育机器，折磨致死，男人为了生活加班致死，加上中共病毒和疫苗的猎杀，很多人或许就是因为疫苗灾难发作而猝死。只有把中共灭了，才能解决普罗大众的苦难！
+参考链接：[https://www.gettr.com/post/pwbq3mb740](https://www.gettr.com/post/pwbq3mb740)
 
-**新闻来源：**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-[https://k.sina.com.cn/article\_1682907187\_644f203301901cq95.html](https://k.sina.com.cn/article_1682907187_644f203301901cq95.html)
+总编：Irene木木
+编辑：谐趣园
+校正/发稿：谐趣园
 
-#  
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
