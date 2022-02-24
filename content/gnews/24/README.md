@@ -2,35 +2,18 @@
 ---
 
 
-## 俄罗斯正式对乌克兰全面开战！
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2056912/)
+## 俄称乌空军瘫痪，乌称击落俄飞机
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2056957/)
 
-**作者:  **青衣
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-357.jpg)
-图为 P-8A资料图（图片来自网络）
+据联合早报2月24日的报道，俄罗斯国防部声称，乌克兰的空军设施已经瘫痪。乌克兰则声称，已经击落五架俄罗斯的飞机和直升机，但俄罗斯否认有飞机在乌克兰上空被击落。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-24-at-16.02.55.jpeg)图片来源：网络
+俄罗斯总统普京授权对乌克兰展开军事行动后，乌克兰各地都传来爆炸声和枪声。
 
-俄乌战争正式打响！克里姆林宫毫无预警地紧急直播，俄罗斯总统普京发表电视讲话，在全世界面前正式宣布对乌克兰政府开战。
+继乌克兰首都基辅、东南部黑海港口奥德萨、马里乌波尔、南部边境城巿卡尔可夫、东部前线大城克拉马托尔斯克遭轰炸后，乌克兰西部城巿利沃夫也发出空袭警报。
 
-据《美国之音》2月24日报道，俄罗斯总统普京星期四下令（2月24日）对乌克兰开展“军事行动”。随后，包括乌克兰首都基辅在内的多个城市均有炮火声及爆炸声。普京还警告其他国家，任何干涉俄罗斯行动的企图都将导致“他们从未见过的后果”。
+此外，俄罗斯总统普京宣布在乌克兰发起“特别军事行动”，在当地时间早上6点左右的电视直播讲话中，普京誓言，将在乌克兰寻求去军事化，而非占领这个国家。
 
-普京在电视讲话中声称，军事行动是为了“应对来自乌克兰的威胁”，并“保护乌克兰东部的民众”。他同时声称，俄罗斯的目标不是要占领乌克兰，流血事件的责任在于乌克兰“政权”。普京还指责美国及其盟友无视俄罗斯阻止乌克兰加入北约的要求。
-
-美国总统拜登随即发表声明，指责普京选择了一场有预谋的战争，而这场战争将带来灾难性的生命损失和人类苦难。拜登称，俄罗斯要为这次攻击造成的死亡和破坏负责。美国及盟国将以团结果断的方式做出回应。世界将追究俄罗斯的责任。
-
-新闻链接：
-
-[https://www.voachinese.com/a/russia-military-operation-on-ukraine-20220223/6456751.html?utm\_source=twitter&utm\_medium=social&utm\_campaign=dlvr.it](https://www.voachinese.com/a/russia-military-operation-on-ukraine-20220223/6456751.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
-
-
-
-> 基辅响起了防空警报 [pic.twitter.com/x3z0llQZwO](https://t.co/x3z0llQZwO)
-> — 约翰 (@JohnDoe1284495) [February 24, 2022](https://twitter.com/JohnDoe1284495/status/1496715672289615874?ref_src=twsrc%5Etfw)
-
-
-
-* * *
-
-
+信息来源：[俄称乌空军设施瘫痪 乌军称击落俄飞机](https://www.zaobao.com.sg/realtime/world/story20220224-1246000)
 
  
 

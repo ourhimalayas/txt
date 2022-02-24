@@ -2,48 +2,27 @@
 ---
 
 
-## 三道锦囊全打开:民心向郭习亡岐山&amp;利用病毒&amp;制造货币
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2056986/)
+## 美国男子袭击亚裔家庭 误认为是中共国人需为中共国病毒流行负责
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2057054/)
 
-G-TV视频链接：[https://gtv.org/video/id=6212483a1408ee3a03a24132](https://gtv.org/video/id=6212483a1408ee3a03a24132)
+**撰稿：日本东京方舟农场  老孙**
 
-**郭文贵先生：**都已经打（开）完了，第二个就是病毒，就是利用病毒，所以说我对病毒这个事情利用得很好，病毒利用最重要；第三个就是制造货币，这个货币都出来了，这仨锦囊都出来了，大家都看到了，谢谢战友，咱们的玫瑰兄弟还记着。
+据美国之声2月23日报道，德克萨斯州的一名男子袭击了一个亚裔家庭，因为他认为他们是中共国人，要为中共病毒疫情负责，该男子已承认所犯下的三项仇恨犯罪。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-359.jpg)（图片取自美国之声）
+根据相关文件显示，现年21岁的何塞·戈麦斯三世（Jose Gomez III）2020年3月14日在德克萨斯州米德兰（Midland）的一家山姆会员店（Sam’s Club）试图用在店里找到的刀具杀害正在购物的一户亚裔家庭，伤害了一名两岁儿童和一名六岁儿童及孩子们的父亲。他行凶的原因是他认为他们来自传播这种疾病的中共国，是“威胁”。当他被一名白人店员阻止并按在地下的时候，他对这个亚裔家庭大喊：“滚出美国！”。
 
-但是这个我在无意中都说过，但大家都没说，就是《大直播》的魅力。就刚才亨利刚才说那块儿就说得我就浑身真的是浑身发抖，就真的是他的感受和我的感受跟你们真的不一样。想想过去那无知，我们自己就是那么无知，就觉得这是人家的事儿，人家抢来的、买来的，无知。
+司法部说，戈麦斯在袭击后承认，他认为这个亚裔家庭是中共国人。
 
-包括这个现在这锦囊的咱们的高人啊，特别是利用病毒这件事情上，让我感触这人世间一定要相信，不要因为你的无知局限了你对事情的正确的判断，太神了！就这个锦囊妙计就利用病毒这一件事儿，我就现在越想越恐怖啊。
+自中共病毒疫情爆发以来，在美国针对亚裔的暴力袭击事件急剧上升。根据一个亚裔美国人组织的记录，从2020年3月至2020年12月，有2800多起针对亚裔的种族主义和歧视事件，其中口头骚扰和拒斥行为占90％以上，身体攻击占了将近9％。
 
-第三个就是我们要制造货币，制造货币这件事情对我的触动太深刻了，兄弟姐妹，一步一步走过来。如果铸币那么容易能搞这个H-Pay，谁不去搞去啊？九指妖还搞傻币呢，太难了！就是中间所有需要的元素，你就忽然发现老天爷在过去的几十年都给你安排好了。你需要大量的现金，你需要钱买不来的人的关系——专业的银行家、专业的金融家，你没有这种比上床还要亲密的这种兄弟关系是不可能，没有这样的人，否则美国太多这样的人才找得着了。
+戈麦斯将面临的最高刑期是终身监禁，每项罪行将被处以25万美元的罚款。
 
-第三个就是你有国际关系，你没这国际关系你是，什么也做不到，就是你不可能，这些国家就把你给灭了，是吧？然后你要有最好的时机，然后老天还帮不帮你，这些都发生了，只要有时间，我可以好好跟大家说一说，谢谢！
+参考链接：
+[https://www.voachinese.com/a/doj-hate-crime-texas-asian-20220223/6456091.html](https://www.voachinese.com/a/doj-hate-crime-texas-asian-20220223/6456091.html)
 
-字幕来源：[2022月2日6日 《文贵大直播》全文字版](https://gnews.org/zh-hans/1971450/)
-
-编辑整理：Davis；
-
-字幕文件制作：神兵；
-
-视频制作及上传：Cindy；
-
-G-News发布：小满；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ)、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A)、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/)；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+素材采编：老孙
+编辑：青城道姑
+发布：爱放飞
 
  
 

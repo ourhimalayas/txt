@@ -2,29 +2,24 @@
 ---
 
 
-## 美国将制裁俄罗斯天然气管道北溪2号背后的公司
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2056877/)
+## 日本宣布对俄罗斯进行制裁
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2056937/)
 
-编译：花岗岩
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-99.jpg)
-图片来源：网络截图
+撰稿：东京樱花团/龟龟
+![](https://assets.gnews.org/wp-content/uploads/2022/02/日本宣布对俄罗斯进行制裁.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fcdn.trt.net.tr%2Fimages%2Fxlarge%2Frectangle%2Fcdc0%2Fcb81%2Fe028%2F619e2cbbb75fb.jpg%3Ftime%3D1645668839&amp;imgrefurl=https%3A%2F%2Fwww.trt.net.tr%2Fchinese%2Fguo-ji%2F2022%2F02%2F23%2Fri-ben-he-jia-na-da-dui-e-luo-si-shi-shi-zhi-cai-1783840&amp;tbnid=-4rxSJqMmw0KQM&amp;vet=12ahUKEwj-nv63zJf2AhVFNqYKHZWHA-gQMygBegUIARC3AQ..i&amp;docid=WTxRh33_wkC2BM&amp;w=1220&amp;h=686&amp;q=%E6%97%A5%E6%9C%AC%E5%88%B6%E8%A3%81%E4%BF%84%E7%BD%97%E6%96%AF&amp;ved=2ahUKEwj-nv63zJf2AhVFNqYKHZWHA-gQMygBegUIARC3AQ)
+日本首相岸田文雄23日宣布对俄罗斯实施制裁。制裁措施包括暂停向“顿涅茨克人民共和国”和“卢甘斯克人民共和国”相关人员发放签证并冻结其资产、禁止日本个人或实体与上述地区进出口交易、禁止俄在日本发行和流通新的主权债券等。
 
-据合众国际社2月23日报道，美国总统乔·拜登周三宣布，美国将对北溪2号天然气管道背后的公司及其首席执行官实施制裁，以应对俄罗斯在乌克兰不断升级的侵略行为。
+针对俄罗斯总统普京承认乌克兰两个地区独立，日本首相岸田文雄表示，这严重侵犯了乌克兰主权和领土完整。
 
-该管道旨在将天然气从俄罗斯运往波罗的海下的德国，已于9月完工，但仍在等待德国监管机构的最终认证。该管道由瑞士北溪2号公司拥有，其母公司是庞大的俄罗斯能源公司Gazprom。制裁还打击了该公司的首席执行官马蒂亚斯·沃宁（Matthias Warning）。
+令据日本NHK报道，如果俄罗斯入侵乌克兰，日本将与G7国家联合应对。
 
-拜登的宣布是美国及其盟国对俄罗斯实施的一系列经济处罚中的最新一项，“这些步骤是我们为回应俄罗斯在乌克兰的行动而采取的最初一批制裁措施的另一部分。正如我所表明的那样，如果俄罗斯继续升级，我们将毫不犹豫地采取进一步措施，”拜登在一份媒体新闻稿中说。他说，普京的行动加速世界远离俄罗斯天然气，转向其他形式的能源。
+消息链接：
 
-此举是在德国总理奥拉夫·肖尔茨（Olaf Scholz）说他的国家将停止该管道的审批程序后的一天，该管道的完成成本超过110亿美元。几个月来，肖尔茨一直在为该项目辩护，因为他的国家面临着能源危机，但他在一次新闻发布会上说，现在是时候 “重新评估这个急剧变化的情况 ”了。他说没有这个认证，北溪2号就不能投入运营。
+[日本首相岸田文雄宣布对俄罗斯的制裁措施](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220223-%E6%97%A5%E6%9C%AC%E9%A6%96%E7%9B%B8%E5%B2%B8%E7%94%B0%E6%96%87%E9%9B%84%E5%AE%A3%E5%B8%83%E5%AF%B9%E4%BF%84%E7%BD%97%E6%96%AF%E7%9A%84%E5%88%B6%E8%A3%81%E6%8E%AA%E6%96%BD)
 
-美国国务卿安东尼·布林肯（Antony Blinken）周三对德国的决定表示赞赏，称在与柏林和欧盟协商后，他已经终止了去年春天实施的保护北溪2号股份公司和沃宁，以及其他公司官员免受制裁的豁免，他们在美国境内的所有财产和资产已被冻结。
-
-拉脱维亚总理阿塔斯（Arturs Krišjānis Kariņš）在周三接受CNN采访时说，德国决定取消该管道的国家安全豁免权，在功能上扼杀了该项目。
-
-“我们现在看到的是第一波的制裁。普京因向乌克兰派遣军事部队，民主世界立即作出反应，在一天之内，跨越所有时区，进行协调和非常深入的制裁，”阿塔斯说，如果俄罗斯有更多的动作，就会有更多的制裁，而且一次比一次更厉害。
-
-新闻来源：[U.S. to sanction company behind Russian gas pipeline Nord Stream 2](https://www.upi.com/Top_News/World-News/2022/02/23/Joe-Biden-sanctions-Russia-pipeline-Nord-Stream-2/2211645652724/)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

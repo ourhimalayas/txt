@@ -2,25 +2,21 @@
 ---
 
 
-## 战斗室指责政府用权力和控制来掩盖错误
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2056371/)
+## 澳大利亚计划在南极洲投资制约中共
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2056373/)
 
-作者：纽约磐石农场—在远方
+作者：首尔天池农场-zzballack
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月22日，郭文贵先生在盖特平台上转发班农战斗室的一则视频显示，参加了加拿大渥太华抗议活动的保罗-亚历山大博士指出，政府毫不讲求科学，其如今的所作所为只是为了权利和控制，为了掩盖他们所犯的错误。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-23-下午11.14.23.png)
-亚历山大博士解释道，美国和加拿大的公共卫生官员关于中共病毒疫情所采取的政策，从实施的第一天起，就是完全无效的。更甚者，这些措施，尤其是中共病毒疫苗，非但对防控中共病毒无用，还对民众有害。
+当地时间2月21日，据有关媒体报道，为了制衡中共在南极洲的强势和咄咄逼人的行为，澳大利亚总理斯科特-莫里森发布声明表示，澳州联邦政府将在未来10年内耗资8.04亿美元强化和升级澳大利亚在南极洲的科研活动。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-23-下午11.15.01.png)
+据悉，早在1961年10月，包括澳大利亚和中共国在内的54个国家曾共同签署了《南极条约》及其他的相关协定，这些协议后来被称为《南极条约体系》。该体系旨在约束各国在南极洲大陆上的各类活动，包括将南极洲作为科学保护区，承认科学调查自由，但禁止在南极洲进行军事或采矿活动，同时限制捕鱼行为。然而，澳洲智库洛伊国际政策研究所在最近发表的一份报告中指出，中共政府正在试图推动“扩大解释《南极条约体系》的规定”。 对此，洛伊研究所解释道，中共近几年持续探测南极洲的渔业和旅游资源，其在《南极条约体系》内表现得越来越强势，并且极有可能在当地寻求获取西方技术的方法。另一方面，人们担心中共未来很有可能率领一些国家寻求南极洲上只有中共有能力开发的矿产资源，为自己谋取福利。
 
-然而，特鲁多政府虽然知道自己已经失败，但他并不想放弃权力。为此，政府只能派出警察镇压卡车司机与和平抗议者。在此过程中，他们不惜侵犯民众的权利，甚至大肆破坏践踏民主。
-
-亚历山大博士也公开表示，世界必须彻查包括辉瑞和莫德纳在内的制药公司，他们为了推行疫苗所采取的措施导致了人类即将面临的疫苗大灾难。
-
-参考链接：[https://www.gettr.com/post/pw0dsnb0f1](https://www.gettr.com/post/pw0dsnb0f1)
+参考链接：[Australia makes a BIG move against China – in Antarctica: PM forks out $800MILLION to counter the Communist power’s growing influence on the icy continent](https://www.dailymail.co.uk/news/article-10534143/The-battle-Antarctica-Australian-PM-Scott-Morrison-spends-800million-counter-China.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
 
 总编：Irene木木
-编辑：静言
+编辑：谐趣园
 校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
