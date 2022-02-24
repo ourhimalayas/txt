@@ -2,22 +2,27 @@
 ---
 
 
-## 突发｜战争爆发？普京授权出动轰炸机 乌克兰首都传出爆炸声 （持续更新）
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2056356/)
+## 法国将日本指定为战略伙伴国
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2056582/)
 
-**撰文/ 港台前线｜发布日期/ 24/02/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/普京授權出動轟炸機-烏克蘭首都傳出爆炸聲-1.jpg)
-**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
+撰稿：东京樱花团/百花李香
 
-**最新消息指，俄罗斯空军出动战略轰炸机已从克里米亚进入乌克兰，顿涅茨克地区北部发生至少4次巨大爆炸，首都基辅亦传出爆炸声。**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/法国将日本指定为战略伙伴国.jpg)[图片来源](https://gnews.org/wp-admin/post-new.php#:~:text=THE%20DEBATE-,Macron%20in%20Japan%3A%20Upgrading%20the%20Franco%2DJapanese%20Strategic%20Partnership%20in%20the%20Indo%2DPacific,-Japan%20stands%20out)
 
-* * *
+法国外交部22日在其修订的印度-太平洋战略中，将澳大利亚从印度-太平洋战略中的“伙伴国家”降级为“其它双边伙伴国家”，这是因为在建立美英澳安全框架AUKUS的过程中，澳大利亚放弃了一项潜艇开发计划。
 
-俄罗斯总统普京今日（24日）发表电视讲话，宣布授权俄军在乌克兰展开军事行动。普京声称，俄罗斯的目的并非占领乌克兰，而只是保护乌克兰东部居民，又指攻击是为了“将乌克兰去军事化、去纳粹化”。他还警告企图干预俄罗斯行动的其他国家，会有前所未见的后果。
+日本取代了澳大利亚，被指定为继印度之后的第二个战略伙伴国。根据修订版，澳大利亚在AUKUS上的问题，两国将在“个案”基础上继续保持双边关系。
 
-美国总统拜登回应称，普京已经挥兵进入乌克兰东部地区，显示他选择要开始一场有预谋的战争，美国会对俄罗斯采取进一步措施。
+今年上半年担任欧盟议长主席国的法国22日在巴黎举行了部长级会议，旨在加强欧盟与印太地区的关系。法国在2018年先于欧盟推出了印太战略，为配合这次部长级会议，法国修改了自己的战略。2018年以来，澳大利亚一直是与印度并列的最重要伙伴国。
 
-來源｜[CNBC](https://www.cnbc.com/2022/02/23/putin-says-russia-open-to-diplomacy-as-moscow-hit-with-fresh-sanctions.html)、[AJ](https://www.aljazeera.com/news/2022/2/23/ukraine-declares-state-of-emergency-amid-fears-of-invasion-liveblog)
+信息源：
+
+[フランス、日本を戦略上パートナー国に　オーストラリアを格下げ](https://news.yahoo.co.jp/articles/69daa5b03f6e3311b77b371507d57d33ce044cc2#:~:text=)
+
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码.jpg)
 
  
 

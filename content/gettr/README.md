@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/24/2022 6:28 AM (UTC)`
+
+2/23/2022 Miles Guo: The Ukraine incident reflects that Vladimir Putin is a brilliant international strategist. Before the Winter Olympics, he made lots of noises to get the world’s attention that he was going to wage a war against Ukraine, and then he met with Xi to get huge profits during the Olympics, after which he pretended to withdraw his troops while luring various countries to make deals with him. However, the Nord Stream 2 is actually still supplying natural gas.<br/><br/>2/23/2022 文贵直播：乌克兰事件反映出普京是个国际战略大家，冬奥会前制造开战声势，冬奥会见习攫取中共大量利益，会后佯装撤军并吸引各国与之勾兑，北溪2号实际上仍在输送天然气
+![img](https://media.gettr.com/group44/getter/2022/02/24/06/827eb003-cb13-847e-8392-89d83da91344/out.jpg)
+
+---
+
 `@miles 2/24/2022 3:21 AM (UTC)`
 
 2/23/2022 Miles Guo: Why will the US be the biggest winner? Will Putin, who has taken trillions of dollars from the Chinese people, be able to realize his dream of the Russian Empire?<br/><br/>2/23/2022 文贵直播：为什么说美国才是最大的赢家？拿了中国人上万亿美元的普京能实现他的俄罗斯帝国梦吗？
@@ -152,13 +159,6 @@ New Release ✨                                              Shop Now at www.gfa
 
 2/20/2022 Miles Guo: Once the war starts, the city of Dalian and Liaoning province will suffer the most losses due to their strategic importance. Fellow fighters, please take care of yourselves! We must take down the CCP ASAP. Otherwise, anyone can become the cannon fodder.<br/><br/>2/20/2022 文贵直播：一旦开战，大连和辽宁因其关键的战略位置而将成为重灾区，请战友们多保重，我们要尽快灭共，不然谁都可能成炮灰！<br/>
 ![img](https://media.gettr.com/group23/getter/2022/02/22/05/55df3c14-c16b-5f47-858c-d44bf1226e74/out.jpg)
-
----
-
-`@miles 2/22/2022 2:28 AM (UTC)`
-
-2/21/2022 Miles Guo’s GETTR: The CCP is really over! There are hundreds of thousands of kidnapped women in Feng county, fertilizer prices have skyrocketed in northeast China, and the Winter Olympics, which cost the Chinese Lao Baixing tens of trillions of RMB, has changed nothing but worsened pollution. The CCP, however, is blaming the Americans for all these.<br/><br/>2/21/2022 文贵盖特：中共真没救了！在丰县有几十万被绑架的女性，东北化肥价格暴涨，中共花老百姓十几万亿人民币办冬奥会，除了污染环境啥都没改变，但中共却把一切都怪罪给美国人<br/>
-![img](https://media.gettr.com/group18/getter/2022/02/22/02/5e725934-3c6c-7c8e-66ac-eb415dcbf396/out.jpg)
 
 ---
 

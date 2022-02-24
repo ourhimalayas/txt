@@ -2,34 +2,21 @@
 ---
 
 
-## 战斗室指责政府用权力和控制来掩盖错误
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2056371/)
+## 俄罗斯对乌克兰发动全面军事行动，疼在中共
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2056629/)
 
-作者：纽约磐石农场—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月22日，郭文贵先生在盖特平台上转发班农战斗室的一则视频显示，参加了加拿大渥太华抗议活动的保罗-亚历山大博士指出，政府毫不讲求科学，其如今的所作所为只是为了权利和控制，为了掩盖他们所犯的错误。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-23-下午11.14.23.png)
-亚历山大博士解释道，美国和加拿大的公共卫生官员关于中共病毒疫情所采取的政策，从实施的第一天起，就是完全无效的。更甚者，这些措施，尤其是中共病毒疫苗，非但对防控中共病毒无用，还对民众有害。
+撰稿：追着曙光跑
 
-然而，特鲁多政府虽然知道自己已经失败，但他并不想放弃权力。为此，政府只能派出警察镇压卡车司机与和平抗议者。在此过程中，他们不惜侵犯民众的权利，甚至大肆破坏践踏民主。
+据联合早报2月24日的报道，乌克兰外长库列巴称，乌克兰各地的军事设施都遭到俄罗斯的火箭炮的袭击。对于俄罗斯侵略性的攻击，乌克兰将捍卫国土安全直到胜利。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-24-at-14.11.48.jpeg)图片来源：原新闻
+美、英、法等国驻联合国大使都谴责俄罗斯，在联合国寻求和平之际，俄罗斯却选择了战争。
 
-亚历山大博士也公开表示，世界必须彻查包括辉瑞和莫德纳在内的制药公司，他们为了推行疫苗所采取的措施导致了人类即将面临的疫苗大灾难。
+不过俄罗斯驻联合国大使内本齐亚称，俄罗斯并不是对乌克兰人民采取侵略性行动，而是要对付在基辅执政的军人政府。
 
-参考链接：[https://www.gettr.com/post/pw0dsnb0f1](https://www.gettr.com/post/pw0dsnb0f1)
+郭文贵先生在2月23日的大直播中指出，普京会又打又不打，美国知道普京的战术，欧洲和美国到最后都会认为这场战争的幕后凶手是中共。之后会对中共进行政治、经济和金融等一系列制裁。这场源于习太阳和普大帝，灭于习太阳和普大帝的战争，最后都会由中国人买单！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+信息来源：[乌克兰外长：普京发动全面军事行动](https://www.zaobao.com.sg/realtime/world/story20220224-1245983)
 
-总编：Irene木木
-编辑：静言
-校正/发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

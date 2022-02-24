@@ -2,34 +2,27 @@
 ---
 
 
-## 德大陆集团无视中共施压，继续投资立陶宛
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2056537/)
+## 有声｜加拿大总理特鲁多宣布结束《紧急状态法》
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2056683/)
 
-作者：纽约香草山教育部 Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-波罗的海国家立陶宛因欢迎台湾设立“台湾代表处”受到中共多方打压，中共甚至威胁德国跨国公司大陆集团断绝和立陶宛的联系。
-![Continental Automotive achieves respectable result in Q2, 2021 -  Manufacturing Today India](https://www.manufacturingtodayindia.com/cloud/2021/11/17/Gx1fZjvL-Continental-2.jpg)https://www.manufacturingtodayindia.com/
-大陆集团在立陶宛拥有多个生产出口零部件的生产设施，中国是大陆集团汽车零部件的最大进口国之一。
+**By:秘翻新闻**
 
-据路透社报导，在中共施压的情况下，德国大陆集团一名高管透露，公司仍将继续在立陶宛投资一家工厂。
+**2022-02-24**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-355.jpg)图片源自:网络
+据《网关专家》2月23日报道，加拿大发生了惊人的逆转，当地时间周三下午，加拿大总理贾斯汀.特鲁多在新闻发布会上宣布，将停止使用《紧急状态法》。
 
-外界普遍认为中共干预大陆集团等私营公司的业务是非法行为。中共此举不但将跨国公司拖入外交争端，还将自己置于与欧盟冲突的轨道上。
+特鲁多称，局势已经不再是紧急情况。并表示，现有的法律和章程目前足以保证人们的安全。同时特鲁多还表示，将在几小时内正式签署撤销令，结束紧急状态。
 
-欧盟于1月在美国、澳大利亚和台湾的支持下，就北京涉嫌限制立陶宛的贸易在世界贸易组织对中国提起了贸易诉讼。
+特鲁多于 2 月 14日宣布启动《紧急状态法》，本周一，加拿大众议院的议员投票确认继续使用这一法案。但仅仅两天后，特鲁多就宣布取消使用。
 
-参考链接：[Continental to keep investing in Lithuania despite China pressure](https://financialpost.com/pmn/business-pmn/continental-to-keep-investing-in-lithuania-despite-china-pressure/wcm/2fe68dec-11b5-48a0-b5d1-0379ec7e0be6/amp/)
+报道称，突然放弃使用《紧急状态法》是一个出人意料的决定。特鲁多在过去10天里一直利用《紧急状态法》，利用近乎无限的权力来恐吓和骚扰卡车司机车队的和平抗议活动。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+（ 秘翻新闻  冰糖葫芦喵编译报导 ）
 
-编辑/校正/发稿：呼吸的雾霾（文小呼吸）
+发布:星星
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

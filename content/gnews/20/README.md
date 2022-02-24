@@ -2,30 +2,27 @@
 ---
 
 
-## 澳大利亚计划在南极洲投资制约中共
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2056373/)
+## 浅析中共以“功能性文盲”维护其罪恶统治
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2056674/)
 
-作者：首尔天池农场-zzballack
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月21日，据有关媒体报道，为了制衡中共在南极洲的强势和咄咄逼人的行为，澳大利亚总理斯科特-莫里森发布声明表示，澳州联邦政府将在未来10年内耗资8.04亿美元强化和升级澳大利亚在南极洲的科研活动。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截屏2022-02-23-下午11.15.01.png)
-据悉，早在1961年10月，包括澳大利亚和中共国在内的54个国家曾共同签署了《南极条约》及其他的相关协定，这些协议后来被称为《南极条约体系》。该体系旨在约束各国在南极洲大陆上的各类活动，包括将南极洲作为科学保护区，承认科学调查自由，但禁止在南极洲进行军事或采矿活动，同时限制捕鱼行为。然而，澳洲智库洛伊国际政策研究所在最近发表的一份报告中指出，中共政府正在试图推动“扩大解释《南极条约体系》的规定”。 对此，洛伊研究所解释道，中共近几年持续探测南极洲的渔业和旅游资源，其在《南极条约体系》内表现得越来越强势，并且极有可能在当地寻求获取西方技术的方法。另一方面，人们担心中共未来很有可能率领一些国家寻求南极洲上只有中共有能力开发的矿产资源，为自己谋取福利。
+撰稿：铁浮图
+![](https://assets.gnews.org/wp-content/uploads/2022/02/241-2.png)图片来源于网络
+最近几期文贵先生大直播谈到教育问题，相信列位看官也会注意到一个奇怪的现象：中共国凡是有本事的均表现在：别人发明我来改进，然后经过优化变成我的，也就是中共国人无论科研还是学术表现为“从0到1”不行，而“从1到99”则人才辈出。
 
-参考链接：[Australia makes a BIG move against China – in Antarctica: PM forks out $800MILLION to counter the Communist power’s growing influence on the icy continent](https://www.dailymail.co.uk/news/article-10534143/The-battle-Antarctica-Australian-PM-Scott-Morrison-spends-800million-counter-China.html)
+这源自中共式教育试图抑制或消灭国人的一个核心能力，即：培养学生发现有价值问题的能力。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1.png)
+因为中共信仰马列邪教，奉唯物论和进化邪说为经典，并经过本土化改进之后，成为极其扭曲和漏洞百出的谎言。
 
-总编：Irene木木
-编辑：谐趣园
-校正/发稿：呼吸的雾霾（文小呼吸）
+所以中共为防止科教界戳破其谎言，中共教育部则以应试升学为牢笼、以标准答案为手段、以党政权威为胁迫，彻底消灭教师、学生、家长中但凡有点独立思考能力的人。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在教育界之外的社会文化领域，中共以推行功能性文盲来消除有独立思考能力的人，所谓功能性文盲即：受众被中共洗脑后，中共以另一种语音或者形式来印证大众已经接收的中共观点，具体手段有推行所谓畅销书籍、洗脑大片、砖家叫兽、弱民鸡汤等。
+
+功能性文盲对具有独立思考能力和社会生活经验的中青年大众杀伤力极大，会有“你看，果然不出我之所料”；“你看专家学者已经从科学角度证实了我的想法”；“你看国家就按我认同的想法实施”等，到此凡与之相左的皆被受众视为“异端邪说”，这就解释了为什么传播爆料革命时会遇到，越是有一定文化或越是有一定阅历的人，确越是冥顽不化的现象。
+
+因此，只有消灭中共，才能解放思想，才能唯真唯善，才能实现中华民族伟大复兴！
+
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
