@@ -2,17 +2,33 @@
 ---
 
 
-## COVID-19 最新情报｜新西兰确诊住院数量12天内暴增 近8成为完全接种者
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2057091/)
+## 2022年2月24日澳洲股市简报
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2057115/)
 
-**撰文｜疫情关注组 / 发布时间｜24/02/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Movie-Studio.png)**更多資訊請關注官方蓋特（Please follow our Gettr：**[**https://gettr.com/post/pl6k0218bf**](https://gettr.com/post/pl6k0218bf)**)**
-日前纽西兰卫生部公布相关统计数据，自2021/8/16至2022/2/22期间，官方记录在案的新冠确诊住院治疗病患共955人，其中有306人是发生在2022/2/11以后的12天内，占比高达三成。其中，此306名病患有82%为完全接种者。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/photo_2022-02-24-14.35.30.jpeg)[來源](https://www.health.govt.nz/covid-19-novel-coronavirus/covid-19-data-and-statistics/covid-19-case-demographics#vaccinations-details)
-新西兰卫生部于1月17日宣布，将第二剂与加强剂的接种间隔从原先的6个月缩短到4个月。亦即，从上个月17日起，所有18岁以上符合资格的完全接种者可以接种第三剂（加强剂）。然而，纽西兰的感染情形却在推动第三剂接种后，有着和预想完全相反的结果，确诊数量大爆发。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-24-下午2.34.28.png)來源/Our World in Data
-上图显示，日本确诊病例数也大幅增加，回顾日本政府的防疫规划，日本政府于2021年12月便推动第三剂接种计划，且日本政府同样将第二剂、第三剂接种间隔从原先的8个月缩短为1-2个月。同样的，日本在推行第三剂接种后，便发生了确诊率上升的情形。
+**撰稿：云彩**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide1-19.jpg)图片来自the Australian
+ASX 200 指数下跌3%，6991点收盘，自2020年9月4日以来最大单日跌幅。工业和矿业板块领跌。原因俄罗斯入侵乌克兰。
 
+**科技板块下跌 6.4%**
+
+科技公司 Life360披露亏损翻倍，股价跌至4.68澳元。 AI公司Appen股价下跌28.7%，至6.11澳元。
+
+**澳航Qantas股价下跌 5.1%**
+
+公司公布的半年亏损大于预期。在COVID-19的Omicron变体出现后，澳航不得不将国内和国际航线运力缩减1/3 。
+
+**黄金矿产公司股价上涨**
+
+Perseus Mining 涨12.3%，Ramelius Resources 涨4.7%，Evolution Mining 涨4.8% 。
+
+点评：看着上市公司股价的升升跌跌，感受到什么是病毒灾难，疫苗灾难和战争灾难。期望将来的千年和平。
+
+参考资料：
+
+[Australian shares drop by $74 billion amid Russia’s Ukraine invasion,the worst fall in 18 months](https://www.abc.net.au/news/2022-02-24/australian-share-market-asx-business-global-stock-covid/100856304)
+
+编辑：云彩
+![](https://assets.gnews.org/wp-content/uploads/2022/02/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

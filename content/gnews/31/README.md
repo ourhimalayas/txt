@@ -2,34 +2,20 @@
 ---
 
 
-## 有声｜俄罗斯总统普京宣布在乌克兰开展军事行动
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2056864/)
+## 韩国批准辉瑞中共病毒疫苗用于5-11岁儿童
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2056856/)
 
-By:**秘翻新闻**
+撰稿：东京樱花团/asket
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2211.png)[**图片来源**](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fcimg.cnyes.cool%2Fprod%2Fnews%2F4674876%2Fl%2Fe92fe83bb0905d26b1315d4c3364b3ed.jpg&amp;imgrefurl=https%3A%2F%2Fm.cnyes.com%2Fnews%2Fid%2F4674876&amp;tbnid=Z9Cze4v1eCAmfM&amp;vet=12ahUKEwi3usv3zpf2AhUpEqYKHUS9Bc0QMygPegUIARCgAQ..i&amp;docid=iCOc8I0jCMiQOM&amp;w=640&amp;h=360&amp;q=%E8%BE%89%E7%91%9E%E7%97%85%E6%AF%92%E7%96%AB%E8%8B%97&amp;ved=2ahUKEwi3usv3zpf2AhUpEqYKHUS9Bc0QMygPegUIARCgAQ)
+** **路透社首尔消息，韩国食品药品部周三表示，韩国已经批准辉瑞公司的中共病毒（新冠病毒COVID-19）疫苗，用于5-11岁的儿童。
 
-**2022-02-24**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/9-30.png)图片来源 网络
-据美联社2 月 24 日报道，俄罗斯总统普京周四宣布在乌克兰开展军事行动，普京警告其他国家，任何干涉俄罗斯行动的企图都将导致他们从未见过的后果。
+该部在一份声明中说，儿童应该接种常规剂量的三分之一，两次，间隔三周。免疫力明显下降的儿童可以在四周后接受强化治疗。
 
-普京在电视讲话中指责美国及其盟友无视俄罗斯阻止乌克兰加入北约，并向莫斯科提供安全保证的要求。他说，俄罗斯的目标不是占领乌克兰。
+信息来源：** **[**S.Korea approves Pfizer COVID-19 vaccine for children aged 5-11**](https://www.fijitimes.com/s-korea-approves-pfizer-covid-19-vaccine-for-children-aged-5-11/)
 
-就在普京讲话时，基辅、哈尔科夫和乌克兰其他地区都听到了巨大的爆炸声。
-
-就此，联合国秘书长安东尼奥·古特雷斯告诉普京，不要派遣俄罗斯军队对抗乌克兰，并称应给和平一个机会。
-
-根据周四消息，目前乌克兰全境的领空已被禁止民用空中交通。
-
-俄罗斯的全面入侵可能会造成大量人员伤亡，并且可能推翻乌克兰民选政府。冲突的后果以及对俄罗斯实施的制裁可能会在全世界产生影响，影响欧洲的能源供应，震动全球金融市场，并威胁到冷战后非洲大陆的平衡。
-
-新闻来源
-[**https://apnews.com/article/russia-ukraine-business-new-zealand-australia-europe-08ae29f98152817b1b503b4b957c63f1 https://apnews.com/article/russia-ukraine-europe-russia-moscow-kyiv-626a8c5ec22217bacb24ece60fac4fe1**](https://apnews.com/article/russia-ukraine-business-new-zealand-australia-europe-08ae29f98152817b1b503b4b957c63f1%20https://apnews.com/article/russia-ukraine-europe-russia-moscow-kyiv-626a8c5ec22217bacb24ece60fac4fe1)
-
-秘翻新闻 玫瑰 编译报道
-
-发布 : 恩典
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321.jpg)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
