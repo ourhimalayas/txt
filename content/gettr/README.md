@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/24/2022 11:54 PM (UTC)`
+
+2022年02月24日 文贵紧急直播： 🆘 🆘 🆘 台湾危机，请台湾同胞们尽快撤离，能够提供帮助的战友请与联盟委员会联系。为台湾同胞，乌克兰人民祈福🙏🙏🙏
+![img](https://media.gettr.com/group26/origin/2022/02/24/23/8b3ff603-269f-a5f2-ba8d-2e8145918334/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 2/24/2022 11:27 PM (UTC)`
 
 2/23/2022 Miles Guo: The US is the big strategic winner, letting the world know they can't live without the US. Putin has brought down the world's finance and economy at a minimal cost, and Xi the Sun thinks he can take this opportunity to invade Taiwan. However, it is the Chinese people who will unfortunately have to pay a huge price.<br/><br/>2/23/2022 文贵直播：美国是战略大赢家，让全世界知道他们离不开美国；普京用极小的成本便征服了全球的金融和经济，习太阳自以为能借此机会打台湾，但中国人却将不幸为此付出巨大代价<br/>
@@ -149,13 +156,6 @@ EP11: The Heroes. Let's tear down the monstrous lies of this despicable #HBO #VI
 
 
 ![img](https://media.gettr.com/group4/getter/2022/02/22/01/b5743eb5-ee2c-3fe9-48bc-c9f8f6c97c46/out.jpg)
-
----
-
-`@miles 2/23/2022 11:42 PM (UTC)`
-
-2/23/2022 Miles Guo: Putin has humiliated the West in an unprecedented way. After sending troops to Ukraine, Not only did Putin post on the Internet the secret agreement signed by the US, France and others promising Russia that NATO would not expand eastward, but he also recognized the independence of Donetsk and Luhansk as well.<br/><br/>2/23/2022 文贵直播：普京史无前例地羞辱了西方，派大军进入乌克兰后，普京把美法等国与之签署的保证北约不东扩的保密协议挂到了网上，并承认了顿涅茨克和卢甘斯克两地的独立<br/>
-![img](https://media.gettr.com/group34/getter/2022/02/23/23/b72194c2-6f5d-01cf-350e-098e47ea453f/out.jpg)
 
 ---
 

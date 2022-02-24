@@ -2,25 +2,21 @@
 ---
 
 
-## 中日财经爆┃日本外相会见英国贸易大臣 协商TPP关税问题
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2060989/)
+## 乌俄断交 乌总统号召人民保卫国家
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2061024/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片3-10.jpg)[图片源](https://www.bookbang.jp/article/605149)
-24日，日本林芳正外相在外务省内会见了英国国际贸易大臣屈维里安，并就英国加入跨太平洋伙伴关系协定（TPP）进行了会谈。
+撰稿：东京樱花团/立正道
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片5-6.jpg)[图片来源](https://www.reuters.com/world/europe/ukraine-president-confirms-attendance-munich-conference-amid-war-jitters-2022-02-19/)
+据路透社报道，乌克兰总统泽连斯基24日表示，在俄罗斯开始袭击乌克兰后，他已与俄罗斯决裂。
 
-双方确认，将就取消与英国的农产品和工业产品关税事宜进行讨论。
+泽伦斯基总统表示，乌克兰政府将向人民提供武器，进行国防，保卫自己国家的土地。他还呼吁俄罗斯人民游行抗议战争的开始。
 
-在英国加入TPP的谈判中，日本等参与国已经一致认为，英国的国内制度符合TPP的知识产权保护等严格标准。知识产权领域谈判进展顺利，英国将于近期向与会国公布工农业产品关税取消率。
+信息来源：
 
-此外，日方希望英国尽快取消对福岛县食品的进口限制。
+[ウクライナ大統領、ロシアと断交…国民に国土防衛求め武器供与へ](https://news.yahoo.co.jp/articles/119b75aa53c141d87d349537226a25faa8702401)
 
-信息源：
-
-[TPP関税協議へ移行確認　林外相、英貿易相と会談](https://news.yahoo.co.jp/articles/a09416ca1757118f54523eed70c0868849a49c3f)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 

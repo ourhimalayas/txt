@@ -2,30 +2,40 @@
 ---
 
 
-## 纽约原油期货近8年来首次一度超过100美元每桶
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2060968/)
+## 2022报税季开始 截止时间不变有额外抵扣
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2061011/)
 
-撰稿：东京樱花团/盖特第一批注册
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-52.jpg)图片来源
-在24日的纽约原油市场上，由于担心对乌克兰的军事入侵会使俄罗斯石油生产减少，原油期货价格大幅上涨。
+作者：The Canadian Press
+翻译：Himasally
+![](https://assets.gnews.org/wp-content/uploads/2022/02/70_133IM23.jpg)
+加拿大税务局将从周一开始接受所得税申报，标志着2022年报税季节正式开始。
 
-作为国际原油价格基准的WTI期货价格一度上升到每桶100美元的水平。
+国税局警告说，今年仍然是一个”独特”的报税期，因为继续面临着COVID-19疫情带来的挑战。
 
-原油价格的 “100美元时代 “从2011年持续到2014年中期，当时中东和北非的 “阿拉伯之春 “民主运动如火如荼。 然而，在页岩油产量增加的同时，特别是在美国，中国经济放缓，出现了供应过剩，石油市场在2014年下半年突然崩溃。
+但是CRA说今年不会延长报税最后期限，对大多数加拿大人来说，最后期限仍然是4月30日。
 
-这是自2014年7月以来七年零七个月中的第一次。
+联邦税务局说，加拿大人需要申报所得税，以便能够获得的福利和退税。
 
-在伦敦市场交易的北海布伦特原油期货达到了七年半的高点，每桶105美元。
+在家工作的加拿大人，今年有资格使用一个临时的统一费率方法，报税时申请扣除最多500元的家庭办公费用。
 
-美国是世界上最大的石油生产国，受俄罗斯石油出口停滞的影响比欧洲小，所以价格上涨的势头相对较弱。
+国家税务部长Diane Lebouthillier说，她对CRA在大流行期间应对挑战的方式感到自豪，并指出该机构的员工在管理COVID-19福利方面”非常好”。
 
-高价格最终将对全球经济和石油需求产生不利影响。 然而，目前，对供应的担忧仍在推动油价上涨。
+来源：https://www.cp24.com/news/another-unique-tax-filing-season-opens-in-canada-amid-pandemic-challenges-cra-1.5789814
 
-信息源：[NY原油市場 WTI先物価格 一時1バレル＝100ドル超 7年7か月ぶり](https://www3.nhk.or.jp/news/html/20220224/k10013500211000.html?utm_int=all_contents_just-in_001)
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
