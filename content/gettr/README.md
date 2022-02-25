@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/25/2022 1:02 PM (UTC)`
+
+2022年2月25日 文贵大直播：乌克兰形势与第三次世界大战；加停止紧急状态法与疫苗灾难；中共攻台进入即时戰备状态；世界经济如何面对战争与病毒
+![img](https://media.gettr.com/group24/origin/2022/02/25/12/e050aab1-2303-1b62-ffc1-a063efd8605b/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 2/25/2022 1:44 AM (UTC)`
 
 2/24/2022 Miles Guo’s Urgent Livestream: Numerous people will die in Communist China next year regardless of whether the CCP invades Taiwan, and the Chinese people may have to rummage through garbage for food. If the CCP invaded Taiwan, it would suffer worse economic sanctions than Russia. The CCP’s economic centers and military bases will also be devastated. Fellow fighters in Communist China should prepare for that. The New Federal State of China is the only one in the world that has revealed the evil plan of Putin and Xi Jinping to invade Ukraine and Taiwan, respectively.<br/><br/>2/24/2022 文贵紧急直播：不论打不打台湾，明年的中共国都将尸横遍野，人们可能要吃垃圾；若打了台湾，中共将遭受比俄罗斯更惨的制裁，中共经济中心和有军事基地将遭毁灭性打击请请国内战友做好准备；全人类只有新中国联邦揭露了习普的邪恶计划<br/>
@@ -146,13 +153,6 @@
 
 2/23/2022 Miles Guo: All the so-called international military experts and political experts are crooks and running dogs of the CCP. Putin and Xi are implementing a dual strategy targeting both Ukraine and Taiwan by using a surprise attack. The reason Xi had disappeared for seven days was that he had to have surgeries so that Putin was given time to make all sorts of deployments.<br/><br/>2/23/2022 文贵直播：中文世界所谓的国际军事专家、政治专家都是骗子、中共的走狗；普京和习玩的是突然袭击的双向战略；习神隐7天是因为他不得不做手术并让普京进行各种部署<br/>
 ![img](https://media.gettr.com/group47/getter/2022/02/24/07/60d54811-8372-3ef9-0e89-25cb22d5b296/out.jpg)
-
----
-
-`@miles 2/24/2022 6:28 AM (UTC)`
-
-2/23/2022 Miles Guo: The Ukraine incident reflects that Vladimir Putin is a brilliant international strategist. Before the Winter Olympics, he made lots of noises to get the world’s attention that he was going to wage a war against Ukraine, and then he met with Xi to get huge profits during the Olympics, after which he pretended to withdraw his troops while luring various countries to make deals with him. However, the Nord Stream 2 is actually still supplying natural gas.<br/><br/>2/23/2022 文贵直播：乌克兰事件反映出普京是个国际战略大家，冬奥会前制造开战声势，冬奥会见习攫取中共大量利益，会后佯装撤军并吸引各国与之勾兑，北溪2号实际上仍在输送天然气
-![img](https://media.gettr.com/group44/getter/2022/02/24/06/827eb003-cb13-847e-8392-89d83da91344/out.jpg)
 
 ---
 
