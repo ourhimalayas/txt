@@ -2,34 +2,38 @@
 ---
 
 
-## 普京发动新一轮空袭，基辅遭受攻击
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2062982/)
+## 欧盟成员国同意对俄实施一定程度的新制裁
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2063020/)
 
-**翻译/编辑：文泓**
+##### 整理：围剿维尼熊
+编辑：Mttfly
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/5-44.png)图片来源：Esquire & 雅典娜设计组
+**【雅典娜快讯】，紧贴时代脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/欧盟成员国对俄实施新的经济制裁.jpg)2022年2月24日，俄罗斯入侵后乌克兰后，欧盟领导人在欧盟首脑会议之前谈话。图片：Olivier HoSlet / Pool / AFP|雅典娜设计组
+据路透社报道，欧盟领导人周四同意对俄罗斯实施新的经济制裁，惩罚俄罗斯总统普京及其盟友对乌克兰发动的全面攻击。
 
+不过欧盟并没有采取乌克兰所要求的最严厉的措施，各成员国在制裁程度方面的看法出现分歧。
 
-2月25日，据《独立报》报道，在周五凌晨，基辅听到爆炸声，乌克兰总统泽连斯基证实，当地时间凌晨4点俄罗斯军队恢复袭击。
+欧盟将冻结境内的俄罗斯资产，并阻止俄罗斯银行进入欧洲金融市场。
 
-乌克兰外交部长表示，首都基辅正在遭遇新一轮的“可怕”火箭弹袭击，并将这次袭击与1941年纳粹德国入侵进行了比较。
+制裁还将针对俄罗斯的能源和运输等部门，并寻求通过出口管制来扼杀其贸易和制造业。
 
-一名美国高级国防官员警告说，俄罗斯军队正在向基辅靠拢，在首都郊外的霍斯托梅尔机场已发生战斗，周四晚间在基辅以北100公里处的切尔诺贝利核电站已被弗拉基米尔·普京的军队占领。
+欧盟内部对制裁力度存在分歧，那些将面临最严重经济冲击的国家渴望保留最严厉的措施。
 
-早些时候泽连斯基总统表示，他的国家正在独自抵抗俄罗斯，因为莫斯科发动了全面的军事攻势，第一天就有超过137名乌克兰人丧生，其中包括士兵。
+一位欧盟外交官说，欧盟不会采取措施切断俄罗斯与环球银行金融电信协会(SWIFT)全球银行间支付系统的联系。但乌克兰和欧盟的波罗的海成员国一直在推动将俄罗斯从该系统中移除。
 
-[乌克兰](https://www.independent.co.uk/topic/ukraine)军方表示，莫斯科已经将60多个营级战术小组转移到边境，每个营约有700至900名士兵。
+德国已经搁置俄罗斯的北溪二号天然气管道的审批程序。
 
-早些时候，监视器镜头捕捉到俄罗斯地面部队的军车越过克里米亚边境进入乌克兰时通过了边境部队检查站。
+一位欧盟外交官表示，意大利、德国和塞浦路斯等国倾向于采取循序渐进的手段，而最接近俄罗斯的中欧和波罗的海国家，则希望采取更强硬的立场。
 
-美国总统乔·拜登宣布与英国和欧盟的盟友协调实施严厉的新制裁，拜登先生说：“普京是侵略者。普京选择了这场战争。现在他和他的国家将承担后果。”
+欧盟还将为乌克兰准备一个新的援助计划，并对白俄罗斯实施新的制裁，因为一些俄罗斯入侵者从白俄罗斯进入乌克兰。
 
-参考链接：[Ukraine invasion latest: Kiev under attack as Putin unleashes ‘horrific’ new wave of airstrikes | The Independent](https://www.independent.co.uk/news/world/europe/ukraine-russia-putin-war-kiev-invasion-latest-b2022971.html)
+参考链接：[欧盟领导人同意对俄实施新的经济制裁 但对力度尚存分歧](https://cn.reuters.com/article/eu-summit-russia-sanctions-0225-idCNKBS2KU04D)
 
-*发布：tianzhihuan*
+*发布：Mttfly*
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)

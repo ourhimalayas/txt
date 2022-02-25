@@ -2,39 +2,35 @@
 ---
 
 
-## 英国政府报告：COVID-19来自武汉实验室
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2063407/)
+## 台湾谴责俄罗斯，加强防护应对中共威胁
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2063523/)
 
-编译：wenwu
+作者：纽约香草山 – Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+台湾总统蔡英文于2月23日表示，谴责俄罗斯侵犯乌克兰主权，并呼吁以和平方式解决争端。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2358-edited.png)thenationalpulse.com
+![](https://assets.gnews.org/wp-content/uploads/2022/02/7-37.jpg)
 
-根据一位前陆军上校的报告，英国政府认为COVID-19 的起源正是来自故意阻挡病毒调查的武汉病毒研究所。
+在密切关注俄乌局势的同时，蔡英文总统要求所有政府机构警惕中共，企图利用乌克兰局势影响台湾舆论的潜在行动，并要求政府为乌克兰局势对全球和国内经济的潜在短期和长期影响做好准备，并制定计划以确保战略物资供应，稳定商品价格和金融市场。她还指示国家安全部门和武装部队，加强对台海局势的监测，并继续完善防务准备工作。
 
-这一消息是在英国首相鲍里斯·约翰逊（Boris Johnson）修改英国的生物安全战略以防范”自然人畜共患病和实验室泄密”的情况下[披露](https://www.telegraph.co.uk/news/2022/02/22/wuhan-lab-leak-believed-behind-closed-doors-likeliest-origin/)的。
+参考链接：
 
-化学和生物反恐专家、剑桥大学马格达林学院的生物安全研究员哈米什·德·布雷顿-戈登（Hamish de Bretton-Gordon）在谈到政府时说：“由于中共阻挡各国政府调查武汉研究所，这导致多数人认为中共病毒源于中共实验室的泄漏。”
+- [Taiwan condemns Russia for violation of Ukraine’s sovereignty](https://focustaiwan.tw/politics/202202230009)
 
-这位前英国陆军上校解释说：“人畜共患病转移的理论没有意义；我认为官方观点是，它和其他任何东西一样有可能导致中共病毒大流行；很多人像我一样认为这（实验室泄漏理论）更有可能。我认为人们的态度已经发生了一些变化”。
 
-英国官员咨询了像布雷顿-戈登这样的专家，以支持起草一项新的生物安全战略，以应对“意外释放和令人担忧的双重用途研究，即生命科学研究能够被误用来造成伤害”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
 
-“我最担心的是，下一次可能不是意外，因为这很容易做到。如果你没有道德，没有顾忌，为什么不感染你的敌人呢？”布雷顿-戈登推断道。
+总编：雪梨
+编辑：Ivy001
+校正/发稿：海阔天空1
 
-这一承认是在美国的 COVID-19 沙皇安东尼·福奇（Anthony Fauci）在武汉资助属于”令人担忧的双重用途研究”类别的研究，包括关于“杀手”蝙蝠冠状病毒。这位美国国家卫生研究院的官员还为这种研究做法辩护——包括操纵病原体使其对人类更致命——是“不可或缺的”，尽管它有可能导致大流行病。
-
-《国家脉动》之前[报道](https://thenationalpulse.com/2021/06/02/nih-hosted-wuhan-lab-director-asserting-no-regulation/)说，武汉病毒研究所的副所长正在从事类似于“没有监管”的令人担忧的双重用途研究。
-
-（文章仅代表作者观点与GNEWS无关）
-
-素材来源：[thenationalpulse.com] [The British Government Believes COVID-19 Came From the Wuhan Lab: Report.](https://thenationalpulse.com/2022/02/23/british-gov-backs-lab-leak-theory-behind-closed-doors/)
-
-* * *
-
-审核：文乐
-校对：信心满满
-发布：花羽
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-4.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
