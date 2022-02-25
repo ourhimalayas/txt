@@ -2,27 +2,46 @@
 ---
 
 
-## 澳洲护士在社区演讲中问到人们是否认识因疫苗而受到伤害的人时，看看有多少人举起了手
-` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/2066164/)
+## 疫苗次生灾害加剧，美小型飞机坠落事故频发
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2066171/)
 
-#### 加拿大温哥华扬帆农场 视频组
+作者：香草山佛教部 – 文一
 
-素材：坐看云起时
-听写：Ucool
-翻译：Kent
-字幕：路仁
 
-2022/2/23 EST
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-65.png)
+近日据外媒报道，某外媒网站将近期在美发生的一系列小型飞机坠毁的新闻报道或片段编辑成视频，用短短的4分钟的视频记录了数十个惨烈时刻和死亡案例。
 
-我今天再次呼吁理事会，请对我们的志愿者心怀感恩，他们牺牲了自己的时间，不为金钱利益，无私地维护我们社区的安全，请允许他们继续志愿工作，照顾我们的社区，而不是去胁迫他们接种有可能造成伤害的疫苗，我不想带来反疫苗情绪，我只想说，像任何药物一样，疫苗可能会带来不良反应，因此人们应该有选择权。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-25-3.jpg)图片来源网络
 
-作为一名护士我目睹了疫苗带来的药物反应，副作用确实发生了，且他们绝不会把所有的疫苗都从市场上撤下，我们中的很多人都有一个共识，今晚在座的大多数人，都认识被疫苗或疫苗副作用所伤的人，即便不是在座的各位，也会是我们的亲朋或好友，我确信我们都认识某人，或我们社区中的某个亲近的人，所以如果我所说的是事实，请各位举起你的手。
+年初据路透社报道，同样的， 对于大型商务飞机而言，2020年尽管全球航空运输量因疫情锐减了42%，但因大型商业飞机坠毁的死亡人数却增加了。 我们在震惊痛心之余，这样的结果却更引人质疑：为什么自推打疫苗以来，飞行作为安全性最高的出行方式，机毁人亡事故却屡见不鲜？答案只有一个，那就是郭文贵先生早在几个月前预警的因疫苗副作用而产生的次生灾害已逐一显现出来，在交通运输系统，由于疫苗副作用可能导致驾驶员身体出现的突发状况将成为广大民众出行安全的一大隐患。
 
-那么，疫苗伤害正在发生，人们正在受到伤害，这可能是一个小的比例，我不知道具体是多少，但它的确在发生，有风险的地方就应该有选择，伤害可能是轻微的，但它也可能会使人衰弱，它可能令父母无法带回晚餐。发烧、脑损伤、胃腹痛、或严重到癫痫发作、神经系统损伤、心肌炎、心包炎、血栓，以及悲惨的死亡。这些都毫无必要，也是可以避免的。
 
-很多人已经死于新冠，还有人死于新冠疫苗，我对所有这些人都感到心痛。我恳求各位议员，请在人们的个人背景下，在他们的病史中，在他们个人风险和年龄范围内，更多地考虑什么是对个人最好的，并有同情心和风度，不要继续强迫人们接受某种药物，根据某些人的情况，疫苗可能构成的伤害比疾病本身风险更大。
 
-编辑/发文：Kent
+相关链接：
+
+[https://www.brighteon.com/7d8609c6-2271-4abf-88a4-c801befdb4e1](https://www.brighteon.com/7d8609c6-2271-4abf-88a4-c801befdb4e1)
+
+[https://www.reuters.com/business/aerospace-defense/aviation-deaths-rise-worldwide-2020-even-fatal-incidents-flights-fall-2021-01-01/](https://www.reuters.com/business/aerospace-defense/aviation-deaths-rise-worldwide-2020-even-fatal-incidents-flights-fall-2021-01-01/)
+
+![This image has an empty alt attribute; its file name is Feb-55.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-55.jpg)
+
+编辑/校对/发稿：Petite abeille
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is good-66.png](https://assets.gnews.org/wp-content/uploads/2022/02/good-66.png)
+
+
+
 
  
 
