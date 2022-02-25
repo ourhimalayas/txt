@@ -2,45 +2,42 @@
 ---
 
 
-## 澳大利亚新洲反对党领袖为参与中共资助的中国之行道歉
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2063557/)
+## 中共暗示支持俄罗斯侵略乌克兰
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2063568/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/grafik-9.png)图片来源：www.dailymail.co.uk
-澳大利亚新南威尔士州反对党领袖柯民思(Chris Minns)为七年前参与由中国共产党资助的中共国之行辩护。
+作者：日本方舟农场 – Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月24日，俄罗斯借道白俄罗斯，正式入侵乌克兰。
 
-那次旅行是由现已被驱逐出澳洲的中共国亿万富翁黄向墨资助。黄是一名房地产开发商，曾任澳大利亚-广东商会的负责人，并积极参与澳大利亚政治，后来成为反腐败独立委员会调查的对象。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/adab2177bcc4439282007c4d4012f0e6.png)
 
-黄向墨与当时的工党参议员邓森(Sam Dastyari)之间的关系导致其政治生涯在2018年结束，同时黄的公民身份和永久居留权于2019年被澳大利亚安全情报局取消。
+而在此之前，中共外交部华春莹，则暗示中共支持俄罗斯对乌克兰的入侵行为。她表示，俄罗斯入侵乌克兰是基于俄罗斯自身判断。同时华春莹还借此污蔑美国，说美国损害了中共的领土完整，尤其提到了新疆、香港、台湾。
 
-这位工党领袖表示，那次的香港和中共国之行“几乎完全是为了贸易”，此后他“绝对没有”与黄先生有过任何接触。在访问中共国后不久，柯民思在新南威尔士州议会发表的首次演讲中呼吁向所有学生教授普通话。现在，他为此事道歉，他说：“这是我犯的一个错误，我很后悔。”
+同日，中共海关总署发布2022年第21号公告，允许俄罗斯全境地小麦进口至中共国。而背景除了中共面临今年夏天粮食困难以外，还有普京在中共冬奥会前签署协议，也有涉及到进口小麦的部分。（参考资料4，第7项）
 
-那次旅行就发生在习近平掌权一年之后，在香港的抗议活动和“维吾尔族人强迫劳工”之前。柯民思表示，当他建议新南威尔士州学校应该强制学习普通话时，他正在研究中共国的经济规模和经济增长。
+分析人士指出，在国际上文明国家指责俄罗斯侵略行径的同时，仅有委内瑞拉、古巴以及无法代表中国人民的中共，在公开发声支持俄罗斯。随着乌克兰局势的恶化，世界上的邪恶轴心也已经显现。
 
-联邦影子财长克里斯·鲍文(Chris Bowen)也参加了这次旅行，并在2015年完成了利益申报。柯明斯先生并没有申报此次旅行，原因是一位州政府立法委员会的人员告诉他由于是他是刚刚当选而无需申报。他补充说，其他政界人士，包括执政的联盟党中的一些人，当时也曾到过中共国。
+参考链接：
 
-**简评：**
-
-通过本文，我们可以深入地体会到中共对澳洲政界渗透的之深、之久、之广。柯明斯在2015年接受中共赞助去中共国旅游的时候刚刚36岁，可以说他的的政治生涯刚开始崭露头角就立刻被中共盯上了。时至今日，他已经成为新洲的反对党领袖，并有很大的可能会在下一次的选举中成为州长。
-
-郭文贵先生曾经多次透露中共国安人员会对来访的各国政要进行各种方式的蓝、金、黄，并会留下证据做为今后要挟的筹码。而柯明斯在那次旅行归来后就即刻呼吁澳洲普及中文教育，为以孔子学院为代表的中共宣传和间谍机构在澳洲的发展壮大提供帮助则无疑再一次证明了郭先生所揭露中共卑鄙行为的准确性。
-
-在这个全球开始追缴中共病毒真相，围剿中共的时刻，通过本文我们还可以深切地体会到那些和中共有着深深浅浅、各种各样关联的政客纷纷开始反水，或对曾经与中共的关系表示悔恨并迅速切割、或利用与中共的关系来攻击自己的对手。总之，中共病毒和疫苗灾难之后，反共和灭共毫无疑问会成为各国政客转移国内各种矛盾和逃避自身在强制疫苗错误一棵救命稻草。
-
-新闻链接：
-
-[https://www.dailymail.co.uk/news/article-10537605/NSW-Labor-leader-Chris-Minns-apologises-calling-mandatory-Mandarin-lessons-schools.html](https://www.dailymail.co.uk/news/article-10537605/NSW-Labor-leader-Chris-Minns-apologises-calling-mandatory-Mandarin-lessons-schools.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- [华春莹：美方暗示俄有中国背后支持才行动，相信俄方很不高兴这种说法](https://news.sina.com.cn/c/2022-02-24/doc-imcwiwss2700263.shtml)
+- [古巴外交部：北約和美國應傾聽俄羅斯在安全方面的要求](https://big5.sputniknews.cn/20220223/1039517914.html)
+- [海关总署：允许俄罗斯全境小麦进口](https://finance.sina.com.cn/money/future/fmnews/2022-02-24/doc-imcwiwss2680319.shtml)
+- [中俄签署一系列合作文件](http://politics.people.com.cn/n1/2022/0204/c1001-32345503.html)
+- [农业农村部：夺取夏粮丰收面临空前的挑战和困难](https://www.sohu.com/a/524920396_114988)
+- [32个国家宣布“惩罚”俄后，委内瑞拉挺身而出称：全力支持俄罗斯](https://www.sohu.com/a/524870764_334198)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+编辑/校对/发稿：海阔天空1
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,10 +2,10 @@
 ---
 
 
-## 帕洛夫斯基牧师支持自由车队后遭囚禁已两周
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2063673/)
+## 医生认为伊维菌素有助于英女王康复
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2063697/)
 
-02/21/2022 阿图尔·帕洛夫斯基牧师2月3日在美加边境对自由车队演讲。8日遭加拿大当局逮捕，囚禁已两周。这是他中共病毒大疫情以来第5次被捕。
+02/22/2022 澳大利亚医生认为，服用伊维菌素可以有助于英女王康复
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

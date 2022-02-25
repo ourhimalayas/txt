@@ -2,30 +2,24 @@
 ---
 
 
-## 樱花FM|中日财经爆|索罗斯警告：中共国正面临经济危机
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2063696/)
+## 俄罗斯入侵乌克兰与共产党扮演的角色
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2063824/)
 
-音频：东京樱花团/战友520
-![](https://lh3.googleusercontent.com/PZZKb2tE8UHvmWPWyeKa9HCk8LwOb-t_Y9qO9D75u0FQ-jJqh86njr0a2ZBzY4ZU-DZ2fz57Xai5nS8Sn72h-4QEVpfYHIy_wGj56ryomRg0aGxdc7bxzEwk2pc5j7QuJolq3BGk)
-投资名人乔治·索罗斯（GeorgeSoros）指出，中共国房地产热潮去年告终后，目前正面临经济危机，习近平可能无法重振房地产业的信心。
+撰稿：东京樱花团/然乌湖
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3-72.png)
+[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fassets.gnews.org%2Fwp-content%2Fuploads%2F2021%2F06%2F%25E5%259B%25BE%25E7%2589%2587-1-11.png&amp;imgrefurl=https%3A%2F%2Fgnews.org%2Fzh-hans%2F1362614%2F&amp;tbnid=rpMHeErVbFOObM&amp;vet=12ahUKEwjjr6u4zpr2AhWPZWwGHREaB4UQMygHegUIARC8AQ..i&amp;docid=rpyNK9LmCX35LM&amp;w=862&amp;h=485&amp;q=%E5%85%B1%E4%BA%A7%E6%81%B6%E5%8A%BF%E5%8A%9B&amp;ved=2ahUKEwjjr6u4zpr2AhWPZWwGHREaB4UQMygHegUIARC8AQ)
 
-美国有线电视新闻网（CNN）报导，索罗斯1月31日在斯坦福大学胡佛研究所的演说中表示，中共国国家主席习近平可能无法重振这个陷入困境产业的信心。中共国房地产业因一连串开发商债务违约及土地和公寓价格下跌而深受打击。
+冬奥会期间习近平与普京秘谈二个小时的时间所达成的交易背后就有一万多亿美元与普京的交易，但是这些都是用中国老百姓为代价的，全是中国人民的钱。中国有多少人在生存线上挣扎，多少人有病看不起在家里等死，如果这些钱用在老百姓身上也可以解决很多问题，但共产党不会这么做的，因为共产党想到的就是它的政权的延续。
 
-索罗斯说，中共国房地产热潮是基于一种“竭泽而渔”模式，这种模式让地方政府尝到好处，并鼓励人民将主要积蓄投资于房地产。
+从乌克兰局势不难看出，习近平与普京的狼狈为奸，普京得到习近平1万多亿美元，马上就对乌克兰发动大规模侵略战争。大楼一栋栋摧毁尸体遍野，乌克兰的人民在哭泣，乌克兰的人民到现在还不知道是谁让你们活在灾难与痛苦中，背后真凶就中国共产党。如果没有共产党用中国人民的钱与普京交易就不会有今天乌克兰的灾难。
 
-他还表示，旨在抑制这种热潮的政府政策，让负债累累的房地产巨擘恒大集团难以偿还债务。恒大集团背负债务超过3000亿美元，恒大集团有数个月时间难以筹集现金偿还借款者。
+有时候我都在怀疑这个世界还有没有正义，共产党在摧毁中国人民的同时给世界制造灾难，这恶魔到现在还在世界横冲直撞，还要打台湾到时又是一个大灾难，到时中国内地又是尸横遍地，也只有郭文贵先生为代表的正义力量一定会把这个恶魔消灭。
 
-政府官员派至恒大集团监督企业重整，不过未来会如何发展仍相当不明朗。恒大集团请求债权人给予更多时间，但部分借款者似乎不想等。
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/樱花-2022-2.jpg)
 
-索罗斯指出，中共政府推迟处理这个危机的时间可能太久了，因为民众的信心已受到打击。
 
-索罗斯去年9月表示，资产管理公司贝莱德集团（BlackRock）在中共国扩大生意规模是犯了“悲惨的错误”，他一直批评中共的监控政策及对民营企业的整顿作法。
-
-文字版原文：[中日财经爆|索罗斯警告：中共国正面临经济危机 – GNEWS](https://gnews.org/zh-hans/1941305/)
-
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,37 +2,19 @@
 ---
 
 
-## 英国政府私下相信中共病毒来源武汉实验室泄漏
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2063567/)
+## 俄乌战争｜俄罗斯首轮反制裁出炉 禁英国民航机飞越领空
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2063603/)
 
-作者：台灣寶島農場 – 尋文客
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据外媒23日报导，英国政府私下认为，中共病毒最可能的来源是武汉实验室泄漏。
+**撰文/ 港台前线｜发布日期/ 25/02/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/俄羅斯首輪反制裁出爐-禁英國民航機飛越領空-1.jpg)
+**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GettyImages-1230937718-640x480-1.png)
+西方国家相继对俄罗斯祭出加强制裁后，俄罗斯当局在侵略战进入第二日后终于抽空还击，禁止所有英国航空公司航班使用俄罗斯领空，不论是降落俄罗斯领土抑或是横越一律不予放行。
 
-报导指出，早在2020年6月已有英国知名人士根据病毒的非自然演化特征，推断病毒很可能来源于武汉实验室。而曾联名谴责中共病毒武汉实验室泄漏是“阴谋论”的27位科学家，经调查有26位存在相关利益冲突。
+值得留意的是，该反制措施生效后，预计伦敦往来亚洲的航班会受到最大影响。
 
-目前，英国首相约翰逊以及英国化学和生物反恐专家德-布雷顿-戈登上校承认了中共病毒实验室泄漏的相关风险，并对生物武器被无道德顾忌人士恶意使用的风险表示担忧。
+来源｜[skynews](https://news.sky.com/story/ukraine-invasion-uk-flights-banned-from-russian-airspace-and-airports-after-aeroflot-not-allowed-to-fly-to-britain-12551000)
 
-根据郭文贵先生的情报，中共病毒是中共从武汉病毒实验室有计划地释放而非泄漏。尽快对中共病毒溯源是调查清楚中共病毒真相的关键。
-
-参考链接：
-
-- [UK Government Privately Believes Chinese Coronavirus Likely Leaked from Wuhan Lab: Report](https://www.breitbart.com/europe/2022/02/23/uk-government-privately-believes-coronavirus-leaked-from-wuhan-lab-report/)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
-
-编辑/校对/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
