@@ -15,89 +15,89 @@
 
 ---
 
-### [新中国联邦要实现中国人的信仰 自由 法制 要让中国人有干干净净的思想和未来](/content/gnews/1/README.md)
- ` 焦點20分`
-
-### [新曲“锁链梦” 唱的就是中国人的锁链梦 不灭共 中国人没有希望 没有未来](/content/gnews/2/README.md)
- ` 焦點20分`
-
-### [奥米抗病毒会侵入大脑 会造成严重的大脑损伤 血栓 窒息 失忆等问题](/content/gnews/3/README.md)
- ` 焦點20分`
-
-### [西站出品 （之）&#8211; 七哥咋又蒙对啦](/content/gnews/4/README.md)
+### [《共产党统治中国的150个家族》之“习近平”篇（一）](/content/gnews/1/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [文贵爆料 2.25：乱世佳人——喜币](/content/gnews/5/README.md)
+### [SWIFT如何切断普京的金融翅膀](/content/gnews/2/README.md)
+ ` 华盛顿DC-Russian`
+
+### [新中国联邦要实现中国人的信仰 自由 法制 要让中国人有干干净净的思想和未来](/content/gnews/3/README.md)
+ ` 焦點20分`
+
+### [新曲“锁链梦” 唱的就是中国人的锁链梦 不灭共 中国人没有希望 没有未来](/content/gnews/4/README.md)
+ ` 焦點20分`
+
+### [奥米抗病毒会侵入大脑 会造成严重的大脑损伤 血栓 窒息 失忆等问题](/content/gnews/5/README.md)
+ ` 焦點20分`
+
+### [西站出品 （之）&#8211; 七哥咋又蒙对啦](/content/gnews/6/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [文贵爆料 2.25：乱世佳人——喜币](/content/gnews/7/README.md)
  ` 秘密翻译组-原创组`
 
-### [拜登和布林肯是真正的政治玩家 乌克兰问题上 一箭多雕](/content/gnews/6/README.md)
+### [拜登和布林肯是真正的政治玩家 乌克兰问题上 一箭多雕](/content/gnews/8/README.md)
  ` 焦點20分`
 
-### [世界政治大戏 美俄起舞 欧洲助威 可最终全由中国人买单](/content/gnews/7/README.md)
+### [世界政治大戏 美俄起舞 欧洲助威 可最终全由中国人买单](/content/gnews/9/README.md)
  ` 焦點20分`
 
-### [新中国联邦将在今年底迎来各项重大利好](/content/gnews/8/README.md)
+### [新中国联邦将在今年底迎来各项重大利好](/content/gnews/10/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [阿奎罗因心脏出了问题不能再踢球——是由新冠疫苗还是新冠病毒引起的？](/content/gnews/9/README.md)
+### [阿奎罗因心脏出了问题不能再踢球——是由新冠疫苗还是新冠病毒引起的？](/content/gnews/11/README.md)
  ` xiaobaige`
 
-### [北京冬奥会观众有史以来最少](/content/gnews/10/README.md)
+### [北京冬奥会观众有史以来最少](/content/gnews/12/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [2022年2月25日，全球中共病毒疫情情况汇总](/content/gnews/11/README.md)
+### [2022年2月25日，全球中共病毒疫情情况汇总](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [明斯克协议是骗了俄罗斯的局 普京意图借乌克兰翻盘 习近平原打算乘乱攻台](/content/gnews/12/README.md)
+### [明斯克协议是骗了俄罗斯的局 普京意图借乌克兰翻盘 习近平原打算乘乱攻台](/content/gnews/14/README.md)
  ` 焦點20分`
 
-### [中国强行扣留日本外交官](/content/gnews/13/README.md)
+### [中国强行扣留日本外交官](/content/gnews/15/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [郭文贵直播摘要和音频 2022.02.25](/content/gnews/14/README.md)
+### [郭文贵直播摘要和音频 2022.02.25](/content/gnews/16/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [俄罗斯驻日大使称将对日采取反制措施 乌克兰大使寄期望于中共国](/content/gnews/15/README.md)
+### [俄罗斯驻日大使称将对日采取反制措施 乌克兰大使寄期望于中共国](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [历史上的今天：习近平修宪为终身连任铺路](/content/gnews/16/README.md)
+### [历史上的今天：习近平修宪为终身连任铺路](/content/gnews/18/README.md)
  ` NFSC News`
 
-### [本庶佑教授断言中共病毒并非源于自然](/content/gnews/17/README.md)
+### [本庶佑教授断言中共病毒并非源于自然](/content/gnews/19/README.md)
  ` NFSC News`
 
-### [12-15岁男性接种辉瑞mRNA疫苗后心肌炎风险增加132倍](/content/gnews/18/README.md)
+### [12-15岁男性接种辉瑞mRNA疫苗后心肌炎风险增加132倍](/content/gnews/20/README.md)
  ` 温哥华扬帆农场`
 
-### [俄乌危机致全球粮食价格大幅上涨](/content/gnews/19/README.md)
+### [俄乌危机致全球粮食价格大幅上涨](/content/gnews/21/README.md)
  ` NFSC News`
 
-### [有声|【信仰之声】不一样的生命](/content/gnews/20/README.md)
+### [有声|【信仰之声】不一样的生命](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [视频|HBO VICE 采访郭文贵先生背后的真相Part-12](/content/gnews/21/README.md)
+### [视频|HBO VICE 采访郭文贵先生背后的真相Part-12](/content/gnews/23/README.md)
  ` MOSVIDEO`
 
-### [中共即将入侵台湾](/content/gnews/22/README.md)
+### [中共即将入侵台湾](/content/gnews/24/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [有声|英国政府私下相信中共病毒来源武汉实验室泄漏](/content/gnews/23/README.md)
+### [有声|英国政府私下相信中共病毒来源武汉实验室泄漏](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [俄入侵乌克兰，中共骑虎难下](/content/gnews/24/README.md)
+### [俄入侵乌克兰，中共骑虎难下](/content/gnews/26/README.md)
  ` 波士顿五月花农场`
 
-### [视频|回顾乌克兰的民族独特性及危机来源](/content/gnews/25/README.md)
- ` MOSVIDEO`
-
-### [这个世界从此再没有大佬（一）](/content/gnews/26/README.md)
+### [这个世界从此再没有大佬（一）](/content/gnews/27/README.md)
  ` 骄子`
 
-### [西喜时事新闻简报 — “乌台”时事篇](/content/gnews/27/README.md)
+### [西喜时事新闻简报 — “乌台”时事篇](/content/gnews/28/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [有声|俄罗斯入侵乌克兰 文贵先生对台湾发出强烈预警](/content/gnews/28/README.md)
- ` MOSREC`
 
 ### [文贵大直播要点（2022年2月25日）](/content/gnews/29/README.md)
  ` 波士顿五月花农场`

@@ -2,36 +2,33 @@
 ---
 
 
-## 本庶佑教授断言中共病毒并非源于自然
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2065512/)
+## 俄罗斯驻日大使称将对日采取反制措施 乌克兰大使寄期望于中共国
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2065582/)
 
-作者：日本方舟农场 – Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间1月15日，据日本媒体报道，诺贝尔奖得主、日本生理学及医学教授本庶佑先生在接受采访时谈及了有关中共病毒起源的问题。
+翻译：zicoround
+![](https://assets.gnews.org/wp-content/uploads/2022/02/20220225-00000081-jij-000-26-view-edited.jpg)俄罗斯驻日本大使加卢津（法新社）
+由于日本政府在俄罗斯入侵乌克兰后宣布对其实施追加制裁，俄罗斯驻日本大使加卢津周二警告说，将对日本政府采取 “重大反制措施”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-9.jpeg)
+他在东京的日本外国特派员协会举行了一次记者会。
 
-本庶佑教授指出，自然病毒基本上都遵循在气温低的地区感染性扩大，但在高温地区失去活性的特征，但中共病毒是他从事病毒研究工作40年来，唯一发现的一种违背这种特性的病毒。因此，中共病毒绝不是自然的产物，而是人工合成的结果。
+加卢津说，”制裁既无助于发展互利友好的关系，也无助于为讨论包括和平条约在内的广泛问题创造积极气氛。 他说：”非常遗憾的是，日本政府采取了对俄罗斯和日俄关系具有负面作用的措施”，暗示这将对北方领土问题产生影响。
 
-本庶佑教授还提到，他早先在中共武汉病毒研究所工作过4年，为此，中共病毒疫情爆发后，他曾尝试通过电话联系在那里工作的前同事，但后来经由其他途径得知，他此前认识的相关技术人员大多数都已经死亡了。
+他重申了官方的立场，即军事行动 “目的在于保护（亲俄控制区的）人民，八年来他们一直受到乌克兰政府的压迫和种族灭绝。“
 
-至于中共病毒疫苗方面，本庶佑教授也表示，欧盟药品监管机构已经宣布，多次接种中共病毒疫苗会损害人体的免疫系统，甚至使接种者失去免疫力。但目前没有一个主流媒体将这一情况公之于众。
+此前，乌克兰驻日大使克尔森松斯基（Sergiy Korsunsky）也在该协会举行了记者会。 他反驳说，俄罗斯的目标”不仅是东部的顿巴斯地区，而是拿下整个乌克兰”，并透露，入侵之前，”乌克兰遭到了极其广泛的网络攻击”。
 
-参考链接：[【極私的妄想小話】 50年前の警鐘「成長の限界」](https://note.com/sexywave/n/n2f450cfa8642)
+他说，如果乌加入了北大西洋公约组织（NATO），”就不会有战争了”，并表示加盟方针政策是坚定不移的。他期待与乌克兰贸易等方面有着密切关系的中共国，在促使俄罗斯保持克制方面”能够发挥更积极的作用”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+**参考资料：**[news.yahoo.co.jp][ロシア大使、日本に対抗措置　ウクライナ大使は中国に期待](https://news.yahoo.co.jp/articles/235c68e41191e0b2eda95cc810ac0c92ee5db97a)
 
-总编：Irene木木
-编辑：飞虹
-校正/发稿：谐趣园
+* * *
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*审核：zicoround*
+*校对：宫米叶*
+*发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-4.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
