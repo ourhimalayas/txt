@@ -2,37 +2,42 @@
 ---
 
 
-## 特鲁多撤销“紧急法” 抗议相关账户逐步解冻
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2061753/)
+## 大直播后记：影子银行倒塌是中共灭亡必要的前兆
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2061838/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-5.png)
-作者：纽约香草山 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2300.png)
-周三，加拿大总理贾斯汀·特鲁多在新闻发布会上，宣布撤销“紧急状态法”。与此同时，与卡车司机抗议活动相关的、被冻结的200多个银行账户，正在逐步解封，总额约800万美元。
+整理：馨馨、铁血丹心
+编辑：Mttfly
 
-针对加拿大各地的抗议示威活动，2月14日，特鲁多政府启动“紧急状态法”，而参加抗议活动公民的银行账户因此被冻结。该法案实施以来，受到来自国内外的诸多指责。
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/02/1-213.png)图片来源：雅典娜设计组（614）
 
-据悉，加拿大公民自由协会指出，加拿大公民和平抗议，而政府援引”紧急状态法”涉嫌违宪，并表示将起诉特鲁多政府。
 
-参考链接：[Trudeau to revoke Emergencies Act after convoy blockades end](https://globalnews.ca/news/8639534/justin-trudeau-emergencies-act-announcement/?utm_source=%40globalnews&amp;utm_medium=Twitter)
+雷蒙：之前七哥也提到了，就是HPay可能在未来每一个国家都会是一个影子银行，七哥方便能够给我们再详细解读一下吗？
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
+七哥：雷蒙我告诉你影子银行的事情，这回美国在乌克兰事件你可以看出来，美国跟欧洲，早晚一天欧元是肯定要垮的，这是百分之百的！但是它垮了有另外一个代替它，会再诞生的。
 
-总编/编辑：雪梨
-校对/发稿：小野貓（文凱琳）
+那么这次我们看到美国最核心的利益在哪里呢？在欧洲。那么欧洲的利益呢？大家也看到了，还是它的生产力。高端的生产力美国现在逐渐往欧洲转，然后中端的都是在东南亚。因此你可以感受到，美国和欧洲人家是亲兄弟，再怎么折腾就是两家，不会像咱中国人为了一分地，哥俩都拿锄头干死对方去了。不会的，掐掐闹闹，人家是近的。俄罗斯老想成为这一部分，但是它是不被认可。咱们中国人永远要记住：美欧人家是亲兄弟，日本也进不来，你只是利益兄弟、拜把子兄弟。所以你对世界要有个基本的认知。
 
-**更多资讯，更多关注**
+影子银行这事儿就看出来，世界货币组织、世界银行、WTO、联合国是美欧一起玩的。在西方世界，中共国看到美国玩，就是华尔街的影子银行，就是今天所谓的基金——银行之外的、宽监管的、另外规则的、极少数人玩的、所谓高回报的、高风险的对冲基金。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+中国搞的是假的影子银行，完全是腐败的，这和西方的影子银行是两回事。
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+那么现在中共的影子银行是，你看冬奥会开幕式完了以后，下边就是房地产破产、就业问题、大量的破产。然后就是中国200多家银行等着破产，然后影子银行就到了票据……这个时候就共产党最可怕的，倒霉在哪儿去了？共产党这个东西，它整个是一个骨牌效应，这个效应一旦发展下去，就会延伸到西方来。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+这个时候对咱们新中国联邦，咱就等这一刻，新中国联邦所有的利好，都会在今年年底！今年年前的所有利好，你都是有点儿不过瘾的感觉。当你感觉到你最后要开始坚持20秒的时候是今年年底。在最后20秒的时候，七哥开始喊了：“1！”大家等可能一个月，不会那么快；“2！”轮到2的时候，共产党就灭了！咱们是大家的钱就哗哗的流，比你水还多……
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+这个时候你会看到无数个郝海东叶钊颖、无数个科学家、无数个锁链女、无数个有良知的人都会站出来。共产党那就不只是过街的老鼠了，是到处人家喊着打的那种人！所以说兄弟姐妹们，整个影子银行和它擀面杖的经济和共产党的整个房地产的倒塌，它是共产党灭亡的必须的前兆。不到这时候，别数这20秒，到那时候再数这20秒，谢谢。
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-5.png)
+资料来源：[2022年2月23日文贵大直播EST11:00-11:10](https://gtv.org/video/id=62162fe908ba8a07b1a1ea8a)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,26 +2,36 @@
 ---
 
 
-## 樱花FM|部分俄罗斯军队在乌克兰边境演习后开始返回基地
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2061572/)
+## 有声|日媒指普京本没有资格出席中共冬奥会
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2061722/)
 
-音频：东京樱花团/战友520
-![](https://lh5.googleusercontent.com/HxlJxlB6X1_LDjiNRqC4tBQbdahZCQHL4P5hiDOybqTSjhpyCcfSZTnT2tGbd3UxJ22zBQEDWXlSGUJswyJCqHi9DwbtI2b-9p8RxhAhb_54tETXA5zamWDBVNJguZE8Cpg9GG6-)
-2月15日路透社报道，俄罗斯国防部声称，一些部队在完成与乌克兰边境附近的军事演习后正在返回基地。乌克兰外交部长库列巴表示，在他亲眼看到俄罗斯军队撤出之前，他不相信紧张局势会缓解。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月18日，据日本媒体指出，按照联合国规定，各国应该在奥运会前后暂停纷争，但作为北京冬奥会东道主的习近平却没有要求普京停止对乌克兰的威胁。另一方面，由于兴奋剂问题，俄罗斯被禁止在冬奥会上以国家队名义参赛，其国家领导人也不应出席中共冬奥会。因此，从各个层面上看，普京都没有资格参加此次中共冬奥会的开幕式。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/4-53.jpg)
+然而，在本届冬奥会上，不仅中共违背常理地将普京作为最高国宾，连国际奥林匹克委员会主席巴赫也对此默不作声。
 
-俄罗斯国防部发言人称，网上公开的一段视频中，大规模演习仍在继续中，但南区和西区的部分部队已经完成训练，正在返回基地。国防部提供的视频显示，坦克等装甲车辆被装上了铁路货车。
 
-英国外交大臣特拉斯表示，在看到俄罗斯军队完全撤出乌克兰边境之前，他无法相信没有入侵乌克兰的意图。
 
-据媒体报道，乌克兰外交部长库列巴表示，俄罗斯方面有各种声明。我们相信我们看到的东西，当我们看到俄罗斯军队撤出时，相信紧张局势会得到缓和。
+文字版原文：[日媒指普京本没有资格出席中共冬奥会](https://gnews.org/zh-hans/2059044/)
 
-俄罗斯军队在乌克兰边境周围部署了10多万人的部队，从10日开始至20日与白俄罗斯举行联合演习。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-文字版原文：[部分俄罗斯军队在乌克兰边境演习后开始返回基地 – GNEWS](https://gnews.org/zh-hans/2011269/)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-2.png)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

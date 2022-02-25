@@ -2,35 +2,26 @@
 ---
 
 
-## 短视频：贿赂医院做出虚假新冠诊断，从而推广致命药物
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2061131/)
+## 樱花FM|部分俄罗斯军队在乌克兰边境演习后开始返回基地
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2061572/)
 
-#### 翻译：Frank
-校对：枳实
-字幕：小强
-编辑：文泓
+音频：东京樱花团/战友520
+![](https://lh5.googleusercontent.com/HxlJxlB6X1_LDjiNRqC4tBQbdahZCQHL4P5hiDOybqTSjhpyCcfSZTnT2tGbd3UxJ22zBQEDWXlSGUJswyJCqHi9DwbtI2b-9p8RxhAhb_54tETXA5zamWDBVNJguZE8Cpg9GG6-)
+2月15日路透社报道，俄罗斯国防部声称，一些部队在完成与乌克兰边境附近的军事演习后正在返回基地。乌克兰外交部长库列巴表示，在他亲眼看到俄罗斯军队撤出之前，他不相信紧张局势会缓解。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image01-5.png)图片来源：视频截屏
+俄罗斯国防部发言人称，网上公开的一段视频中，大规模演习仍在继续中，但南区和西区的部分部队已经完成训练，正在返回基地。国防部提供的视频显示，坦克等装甲车辆被装上了铁路货车。
 
+英国外交大臣特拉斯表示，在看到俄罗斯军队完全撤出乌克兰边境之前，他无法相信没有入侵乌克兰的意图。
 
-因此，从2020年3月开始，他们开始激励医院和临床医生给出给出错误的新冠诊断，即使他们的核酸检测并没有阳性。而且他们奖励这种行为。因此，是的，这是一个假象，由我们的联邦卫生机构精心策划，夸大了新冠的病例，夸大了新冠导致的死亡。而且他们把它们称为新冠的并发症。而且我肯定会呼吁尽可能多的原告（加入诉讼），他们的亲人在世界各地的医院中接受了瑞德西韦治疗而死亡。
+据媒体报道，乌克兰外交部长库列巴表示，俄罗斯方面有各种声明。我们相信我们看到的东西，当我们看到俄罗斯军队撤出时，相信紧张局势会得到缓和。
 
-实际上，我已经鼓励，请求，而且我已经收到了来自世界各地的数千份（加入诉讼的申请）。我要求他们看一下死亡证书，你会看到他们死于新冠的并发症。第二诊断是，死于急性肾衰竭，他们死于再次发作的新冠肺炎的并发症。
+俄罗斯军队在乌克兰边境周围部署了10多万人的部队，从10日开始至20日与白俄罗斯举行联合演习。
 
-这不是新冠肺炎的再次发作，当你关闭了肾脏，然后用一个静脉注射袋，把液体漫灌到某人的静脉中，他们无法从他们的肾脏排泄，你会造成液体充满他们的腹部，然后灌满他们的心脏，然后渗透到肺中，他们就这样被淹死了。而这就叫做肺水肿。
+文字版原文：[部分俄罗斯军队在乌克兰边境演习后开始返回基地 – GNEWS](https://gnews.org/zh-hans/2011269/)
 
-因此，我呼吁大家尽可能多地让这些人参与进来，提供更多这些实际信息。我们知道这就是药物的作用。是的，他们是死于病毒是一种假象。他们是被不明智的治疗方案毒死的。绝对是这样。他们还被要求和被奖励以做出更多（新冠）诊断，以人为地夸大阳性病例数量。
-
-视频链接：[The Vigilant Fox 🦊 在 Twitter: “Dr. Bryan Ardis explains the “illusion” of the current world sickness, in which doctors are incentivized to make COVID diagnoses even if patients don’t test positive. https://t.co/efwepl9Hha” / Twitter](https://twitter.com/vigilantfox/status/1493328770039783424?s=21)
-
-发布：文泓
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
