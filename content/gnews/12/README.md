@@ -2,28 +2,32 @@
 ---
 
 
-## 俄罗斯用千岛群岛反制裁威胁日本
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2063798/)
+## 俄罗斯威胁毁灭国际空间站
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2063963/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3-83.jpg)
-[图片来源](https://www.google.com.hk/imgres?imgurl=http%3A%2F%2Fimage.yjcf360.com%2Fu%2Fcms%2Fwww%2F202102%2F08101251fja7.jpg&amp;imgrefurl=http%3A%2F%2Fwww.yjcf360.com%2Flicaijj%2F780420.htm&amp;tbnid=eXGY_yheJ4PvUM&amp;vet=12ahUKEwiHk8-szJr2AhWFgGMGHXxzCLQQMygCegUIARCrAQ..i&amp;docid=DoN_3OJ1TC_eBM&amp;w=632&amp;h=407&amp;q=%E5%8D%83%E5%B2%9B%E7%BE%A4%E5%B2%9B&amp;ved=2ahUKEwiHk8-szJr2AhWFgGMGHXxzCLQQMygCegUIARCrAQ#imgrc=eXGY_yheJ4PvUM&amp;imgdii=_hg5arNgOXxMbM)
+撰稿：东京樱花团/asket
+![](https://assets.gnews.org/wp-content/uploads/2022/02/7-38.jpg)N
+[**图片来源**](https://edition.cnn.com/2022/02/24/politics/russian-space-agency-us-sanctions-international-space-station/index.html)
 
-2月25日每日经济报报道，当地时间25日下午，俄罗斯驻日本大使加卢津在记者会上表示，对于日本追加对俄制裁一事，俄方将采取重大反制裁措施，并称日方态度将损害两国关系，以及对千岛群岛（日本称北方四岛）问题的解决产生影响。
+据CNN报道，俄罗斯航天局局长说，美国的新制裁有可能“破坏我们在国际空间站的合作”。目前有四名美国国家航空航天局的宇航员、两名俄罗斯宇航员和一名欧洲宇航员在这个轨道前哨站上生活和工作。
 
-在2月24日，日本东京，G7就俄乌局势召开会议，日本首相岸田文雄出席线上会议报道称，岸田公布了新的对俄追加制裁措施：包括停止向俄罗斯个人和团体发放签证；冻结俄金融机构资产；进一步限制面向俄罗斯军队相关机构的出口和包括半导体在内的通用产品出口。
+在美国总统乔·拜登周四宣布，“将削弱他们（俄罗斯）的航天工业，包括他们的太空计划”的新制裁措施后，俄罗斯航天局局长德米特里·罗戈津在推特上说，空间站的轨道和在太空中的位置是由俄罗斯发动机控制的。
 
-2月24日，美国总统拜登也宣布对俄罗斯在美国的所有资产都将被冻结。受到制裁的俄罗斯大型银行共持有约1万亿美元的资产，金融制裁还包括切断俄罗斯最大的金融机构俄罗斯联邦储蓄银行及其25家子公司与美国金融体系的联系，宣布制裁不仅有日本和美国，欧洲诸多国也宣布制裁俄罗斯。
+“如果你阻止与我们的合作，谁来拯救国际空间站，使其不至于不受控制地脱离轨道并落入美国或……欧洲？”罗戈津说，“还有一种可能性是，一个500吨的结构会落在印度和中国。你想用这样的前景来威胁他们吗？国际空间站不在俄罗斯上空飞行，因此所有的风险都是你的。你准备好迎接它们了吗？”
 
-孤军作战的俄罗斯，此时表示对于日本追加对俄制裁一事，称将采取重大反制裁措施，只能用对其侵占的千岛群岛来威胁日本，千岛群岛（日本称“北方四岛”）是位于太平洋西北部的千岛群岛向南延伸部分，总面积5038.33平方千米，南千岛群岛位于千岛群岛南端，日俄就此问题纠缠了七十多年，到现在也没有解决的迹象。不得不说，日本人在这件事上体现出他们特有的执着，实际控制权也俄罗斯手中的岛屿，日本也非常清楚想让俄罗斯归还这几个岛无异于与虎谋皮，此次迅速制裁，也表明了日本对于俄罗斯入侵乌克兰战争的态度，日本定不会因俄罗斯的反制裁而对于俄的妥协。
+国际空间站是美国、俄罗斯、日本、加拿大和欧洲航天局之间的合作，分为两个部分–俄罗斯轨道部分和美国轨道部分。
 
-信息来源：
+前美国宇航局宇航员加勒特·雷斯曼告诉CNN：“如果没有美国一侧的电力，俄罗斯部分就无法运作，而如果没有俄罗斯一侧的推进系统，美国部分就无法运作。所以你不能做一个友好的‘离婚’。你不能做一个有意识的脱钩。”
 
-[【俄驻日大使：将对日本采取重大反制裁措施】](https://ml.mbd.baidu.com/r/BTv3eLMoE0?f=cp&amp;rs=3242241225&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=96dc4f1e09220b4c&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
+美国国家航空航天局没有直接回应罗戈津的言论，但它指出，美国航天局“继续与俄罗斯航天局和我们在加拿大、欧洲和日本的其他国际伙伴合作，以保持国际空间站的安全和持续运作。”
+
+[信息来源](\Users\Administrator\Downloads\Russia's%20space%20agency%20warns%20US%20sanctions%20could%20'destroy'%20cooperation%20on%20the%20International%20Space%20Station)：
 
 编辑：东京樱花团/知了知了
 发布：东京樱花团/yuxingcao01
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/樱花-2022-2.jpg)
+
+
 
 
  

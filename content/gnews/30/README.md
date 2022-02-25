@@ -2,37 +2,26 @@
 ---
 
 
-## Richard Gere因批评中共而被好莱坞列入黑名单
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2063566/)
+## 樱花FM|中共国《海警法》实施一周年，157天侵入日本领海
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2063699/)
 
-作者：银河系农场 – 骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-好莱坞著名影星Richard Gere因长期批判中共人权问题而被好莱坞列入了黑名单。
+音频：东京樱花团/战友520
+![](https://lh4.googleusercontent.com/oq292UGS4XcmwdXBgaVGoYQ2ZdMA6EYygTmw7Pe86QFJKmEn8YacxPLwX0cO6UUNLhTd4y4KngAvy2IL3gExzVGMP7m2JcAZ9kAVQAghgHJnKxWqiEwGzpc4pwKhvNDOJDYWlnWB)
+中共国自2021年2月1日起施行《海警法》已经一周年，中共海警船一年内157天侵入日本领海。《海警法》规定了海警局的权限，包括可以在管辖海域对拒不服从停船指令等的外国船舶使用武器。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/richardgereprettywoman1-640x480-1.jpg)
+另一方面，中共国海警局公务船接连侵入尖阁诸岛（中共国称为钓鱼岛）周边的日本领海，活动趋于频繁，仅去年一年，就确认到连续在日本毗连区水域航行157天，是迄今为止持续时间最长的。
 
-20世纪90年代末至21世纪初，美国的好莱坞市场大规模扩张中共国市场，在利益驱使下， 对中共不满情绪的人或者作品出现，这势必会影响中共国市场的盈利。Richard Gere曾经在1993年的奥斯卡颁奖典礼上怒斥中共可怕的人权状况，呼吁解放西藏。显而易见的，这位影星的生涯慢慢结束了。在Richard Gere的履历上，他只获得了很少的工作与演出机会，按照他的才能，这样的年纪，他本应该拥有非常广阔的演艺事业和获得极高的名誉。
+有鉴于此，日本防卫大臣岸信夫去年12月向中共国国防部部长魏凤和表示出严重关切，并强烈要求中方保持自制。
 
-好莱坞和中共的勾兑已经让艺术失去了完整性和基本的人类精神，有大量记录证实，好莱坞的多数艺术家愿意贬低自我为中共进行虚假宣传。
+据日本海上保安厅第11管区海上保安本部消息，2022年1月31日6时30分前，在日本领海外侧的毗连区水域航行的2艘中共国海警局公务船在尖阁诸岛南小岛近海海域相继侵入日本领海，并有靠近日本船舶的动向。这是今年第二次在尖阁诸岛附近海域确认到中共国海警船侵入日本领海，上一次是在1月15日。
 
-目前好莱坞正在承受与中共亲密无间带来的恶果，金融与艺术灾难并存。中共不讲任何规则用完即扔的态度同样适用于好莱坞，尽管好莱坞尝试继续安抚中共，但无济于事。
+日本防卫省计划与海上保安厅携手合作，以万全的体制进行警戒监视，并收集相关信息。此外，还将利用与相关各国举行防长会议的机会，分享日方的关切等，强烈反对中方单方面试图改变现状的做法，进一步深化国际社会对日方立场的理解。
 
-参考链接：
+文字版原文：[中共国《海警法》实施一周年，157天侵入日本领海 – GNEWS](https://gnews.org/zh-hans/1941279/)
 
-- [Nolte: Hollywood Blacklists Richard Gere over China Criticism](https://www.breitbart.com/entertainment/2022/02/23/nolte-hollywood-blacklists-richard-gere-over-china-criticism/)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
-
-编辑/校对/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
