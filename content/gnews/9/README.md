@@ -2,14 +2,39 @@
 ---
 
 
-## 秘翻在线：联合国难民署预测将有10万人因乌克兰入侵沦为难民
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2061732/)
+## 有声|中共必将用蓝金黄葬送自己
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2061771/)
 
-撰稿：待命（文暁）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/画像1-33.png)（图片源自本文链接）
-2月25日来自每日新闻记者川上珠实的消息：路透社报道，联合国难民事务高级专员办事处(UNHCR)24日估计，俄罗斯入侵后，有10万名流离失所者被迫逃离他们在乌克兰的家园。据信还有数千名流离失所者逃往以摩尔多瓦和罗马尼亚为主的邻国沦为难民。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月20日，郭文贵先生在大直播中提到，中共的卑鄙手段大多可以用“利益”、“把柄”和“色情”这三个词来概括。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide2-10.jpeg)
+郭先生解释，“利益”其实是中共收卖人心的首要方法。而那些被中共收买的人既不可能是朋友，更不可能是兄弟。至于“把柄”，则是中共控制人心的常用套路，而这也是中共邪恶的体现：中共党内彼此抓住对方的把柄并相互威逼利诱，党员间互不信任导致中共党内斗争严重。最后， “色情”就是中共腐化人心的惯用手段。近年来，中共用此种方式操控国际机构、各国政要、金融界大老、宗教领袖、教育界精英、科学界权威人士和主流媒体等。这其中，但凡中共想要，它都会以“色情”占领。
 
-信息源：[ウクライナ侵攻で「避難民10万人」 UNHCRが推計 (msn.com)](https://www.msn.com/ja-jp/news/world/%E3%82%A6%E3%82%AF%E3%83%A9%E3%82%A4%E3%83%8A%E4%BE%B5%E6%94%BB%E3%81%A7-%E9%81%BF%E9%9B%A3%E6%B0%9110%E4%B8%87%E4%BA%BA-unhcr%E3%81%8C%E6%8E%A8%E8%A8%88/ar-AAUgZ2r?ocid=msedgntp)
+郭先生还补充道，中共不但“蓝金黄”全世界，还“蓝金黄”自己的内部。然而，中共的假骗偷早已被暴露在阳光之下，全球正义之士必睹其行而灭其政。
+
+最后，郭先生也提醒国人早日醒悟，不要再跟随共产党执迷不悟。相反的，中国人应该理性并勇敢地跟随新中国联邦，一起迎接新时代。
+
+
+
+文字版原文：[中共必将用蓝金黄葬送自己](https://gnews.org/zh-hans/2059564/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

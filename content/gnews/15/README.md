@@ -2,73 +2,14 @@
 ---
 
 
-## 有声|恩宠/恭顺
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2061680/)
+## 秘翻在线：联合国难民署预测将有10万人因乌克兰入侵沦为难民
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2061732/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-馒头有毒
-饼也不干净
-地沟油做的点心
-大家伙儿放心使用
-特供，特供
-没有你们的份
-吃点儿毒食品
-是我对你们恩宠
-感恩戴德
-是你该有恭顺
-恩宠恩宠
-你该恭顺
+撰稿：待命（文暁）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/画像1-33.png)（图片源自本文链接）
+2月25日来自每日新闻记者川上珠实的消息：路透社报道，联合国难民事务高级专员办事处(UNHCR)24日估计，俄罗斯入侵后，有10万名流离失所者被迫逃离他们在乌克兰的家园。据信还有数千名流离失所者逃往以摩尔多瓦和罗马尼亚为主的邻国沦为难民。
 
-送女儿上门
-年纪大的别送
-小小孩儿最可心
-供我无尽享用
-扔一块儿狗粮
-你尽管放心
-天塌不下来
-有高个给咱顶
-中南海的祖宗
-多送多送
-金子女子
-再多再送
-再扔一块狗粮
-送来老婆母亲
-
-人间地狱
-谁会关心
-无尽的金钱女子
-都归我享用
-特供特供
-没有你们份
-狗粮和毒食品
-都是我对你恩宠
-恩宠恩宠
-你该恭顺
-
-- **审稿/校对/发稿：**qiutian（邱甜）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-1-2.png)
-
-
-文字版原文：[恩宠/恭顺](https://gnews.org/zh-hans/2059256/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+信息源：[ウクライナ侵攻で「避難民10万人」 UNHCRが推計 (msn.com)](https://www.msn.com/ja-jp/news/world/%E3%82%A6%E3%82%AF%E3%83%A9%E3%82%A4%E3%83%8A%E4%BE%B5%E6%94%BB%E3%81%A7-%E9%81%BF%E9%9B%A3%E6%B0%9110%E4%B8%87%E4%BA%BA-unhcr%E3%81%8C%E6%8E%A8%E8%A8%88/ar-AAUgZ2r?ocid=msedgntp)
 
  
 

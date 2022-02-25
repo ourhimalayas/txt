@@ -2,25 +2,27 @@
 ---
 
 
-## 中共拘捕日本大使馆工作人员违反维也纳公约
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2055922/)
+## 民调显示 韩国逐渐正视中共威胁 逾7成支持研发核武
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2055924/)
 
-作者：日本方舟农场 – Andy5
+作者：首尔天池农场—追着曙光跑
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-2月22日，日本外务省发布公告称，其驻中共国大使馆的工作人员，在21日遭到中共当局非法拘禁。虽然目前该名工作人员已经被释放，但是日本国政府的森健良事务次官在22日，表示这是近年没有发生过的，并指斥中共对日方工作人员进行了长时间的拘禁，这种行为已经违反了维也纳公约。他通知了驻日本的中共临时大使杨宇，表达了日本的严正抗议，并且要求中共的道歉。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture0-52.jpg)
-截至发稿时，中共也没有道歉甚至没有报道此事，而临时大使杨宇仅向日方表示，需要向中共请示后才能做出答复。
+美国智库芝加哥全球事务委员会於去年委托韩国Research公司對1500名18岁以上的国民进行民意调查，调查问题包括“是否支持韩国自主研发核武器、韩朝发生冲突时美国是否会保护韩国以及朝鲜是否会放起核武器发展”等。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Capture11-3.jpg)
+该民意调查结果于21日公布，调查数据显示71%认为韩国应自主发展核武器，略高于之前的67%。关于朝鲜是否无核化，仅12%认为朝鲜可能无核化，而82%认为朝鲜不会无核化。韩国社会长期面对朝鲜的核攻击威胁，将发展核武视为对抗敌对国家的一指标。
 
-维也纳公约明确规定，所有外交人员享有不被逮捕、大使馆领地不可侵犯的特权，这些特权，是所有签署维也纳公约国必须尊重的规则。分析人士指出，中共在冬奥会和残奥会的间隙，拘捕外交人员会进一步让世界看清，中共不守规则、开展人质外交的丑陋嘴脸。
+对于民调结果，有不同意见者。某韩国前军官认为，民调的问题设计复杂性和措辞选择，可重大影响民调结果。虽然民调结果显示，韩国人民压倒性支持自主发展核武器，他仍认为应该更加慎重的看待此类问题。
+
+不论民调结果为何，韩国已经将中共及朝鲜等共产势力视为主要敌人，但仍应关注韩国社会是否兴起敌对中国人的声音，避免排华的发生。
 
 参考链接：
-1. [中共拘捕日本大使馆工作人员违反维也纳公约](https://www.sankei.com/article/20220222-LGZCU32FOZI73EK3R5EVI53TPE/)
-2. [中共拘捕日本大使馆工作人员违反维也纳公约](https://www.sankei.com/article/20220222-UMQLE2ARJBMGXML4LKO3GUSM4Y/)
+1. [民调显示 韩国逐渐正视中共威胁 逾7成支持研发核武](https://news.kbs.co.kr/mobile/news/view.do?ncd=5401437)
+2. [民调显示 韩国逐渐正视中共威胁 逾7成支持研发核武](https://www.washingtonpost.com/world/2022/02/21/south-korea-nuclear-weapons/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/calendar.png)
 
 总编：zhong
-编辑：谐趣园
+编辑：zhong
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
@@ -31,8 +33,6 @@
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
 ![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
 
  
 

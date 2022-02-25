@@ -2,37 +2,35 @@
 ---
 
 
-## 大直播后记：只有消灭共产党的战友才配拥有眼泪
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2061663/)
+## 有声|日媒指普京本没有资格出席中共冬奥会
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2061722/)
 
-整理：Popeye、GHope
-编辑：文泓
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间2月18日，据日本媒体指出，按照联合国规定，各国应该在奥运会前后暂停纷争，但作为北京冬奥会东道主的习近平却没有要求普京停止对乌克兰的威胁。另一方面，由于兴奋剂问题，俄罗斯被禁止在冬奥会上以国家队名义参赛，其国家领导人也不应出席中共冬奥会。因此，从各个层面上看，普京都没有资格参加此次中共冬奥会的开幕式。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/4-53.jpg)
+然而，在本届冬奥会上，不仅中共违背常理地将普京作为最高国宾，连国际奥林匹克委员会主席巴赫也对此默不作声。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/2-99.png)图片来源：雅典娜设计组
 
 
-战友们从身心到精神、再到钱包都要强大起来。不要相信眼泪，掉眼泪是最懦弱的。我母亲流了一辈子的泪，眼泪什么都帮不了你，我最怕女人流泪，我最怕女人抱怨。
+文字版原文：[日媒指普京本没有资格出席中共冬奥会](https://gnews.org/zh-hans/2059044/)
 
-战友们，如果你强大起来，你就要用你的财富、智慧、勇气来拯救更多的女人，然后，你再抱着七哥哭。战友们，首先要好好灭共，然后再抱着七哥哭，告诉七哥你干了多少事儿、灭了多少共。那个时候，你可以尽情地哭，七哥愿意看到你们哭。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-兄弟姐妹们，**只有让共产党流泪的战友才配拥有眼泪！只有消灭共产党的战友才配拥有眼泪！**世界上，没有谁能比我们流这么多的眼泪，七哥这几天流的眼泪已经比这杯咖啡还多。但是，我必须要唱出这个歌。你们流泪能有什么结果？有用吗？如果有用，咱就放开了哭，咱今天就不播了。可是，流泪是没有用的。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-当你的眼泪有用的时候，你马上就流。**没有用的时候一定要收着，把眼泪变成力量，把每滴眼泪都变成子弹，射向这些老杂毛们！让他们万倍亿倍地承受这种痛苦，一个都不会放过他们！**
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-相信我，H-PAY、HCN、G系列，是你冲向前方并和敌人战斗的干粮，是你与敌人作战必须穿的衣裳，是你和魔鬼作战的必须佩戴的那个枪，是你与恶魔奋斗的武器，是消灭中共不可或缺的力量。H-PAY、HDO、HCN、GTV、GNews、盖特、GFashion是战友的财产，是战友消灭共产党的力量，是我们灭共的枪。
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-你们会懂的，我们永远永远不会向别人伸手，我们永远永远不会向任何人妥协。更重要的，**我们是在阳光中消灭邪恶，而不是用暴力或邪恶消灭邪恶。**这就是你看到的乌克兰事件、今天的疫苗灾难、世界上的经济危机以及在世界上所有的主流媒体消失后，新中国联邦是崛起的新生的力量。
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-爆料革命，新中国联邦，**未来，新中国联邦人在消灭共产党以后将拥有信仰的自由、独立的法治、一人一票选举出来的政府、负责任的媒体监督力量。**我们将彻彻底底地改变封建社会、皇权社会、民主的资本主义社会和邪恶的社会主义社会。在几千年人类文明总结下来一切的优缺点之后，**我们把正道主义贡献给全人类，让中国人真正的成为****世界公民****，而不是像现在一样，这种邪恶的、被洗脑的族类。**让中国人与世界有千年的和平，让中国人有干干净净的钱、干干净净的脑子、干干净净的未来。
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-资料来源：[2022年2月23日 文贵大直播](https://gettr.com/streaming/pwbjub06c5)
-
-发布：tianzhihuan
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

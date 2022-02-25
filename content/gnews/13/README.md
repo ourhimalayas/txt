@@ -2,31 +2,37 @@
 ---
 
 
-## 秘翻在线：岸田首相宣布三项对俄罗斯制裁的加强措施
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2061686/)
+## 特鲁多撤销“紧急法” 抗议相关账户逐步解冻
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2061753/)
 
-撰稿：待命（文暁）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-376.jpg)（图片源自本文链接）
-２月２５日TBS新闻消息：岸田首相宣布了包括对半导体出口的限制的三项加强制裁的新措施，以抵制俄罗斯对乌克兰的入侵。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-5.png)
+作者：纽约香草山 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2300.png)
+周三，加拿大总理贾斯汀·特鲁多在新闻发布会上，宣布撤销“紧急状态法”。与此同时，与卡车司机抗议活动相关的、被冻结的200多个银行账户，正在逐步解封，总额约800万美元。
 
-岸田首相表示：我们强烈敦促俄罗斯立即撤军并遵守国际法，我们将与七国集团和国际社会密切合作，强化制裁。
+针对加拿大各地的抗议示威活动，2月14日，特鲁多政府启动“紧急状态法”，而参加抗议活动公民的银行账户因此被冻结。该法案实施以来，受到来自国内外的诸多指责。
 
-岸田首相宣布了以下新的追加制裁措施：
+据悉，加拿大公民自由协会指出，加拿大公民和平抗议，而政府援引”紧急状态法”涉嫌违宪，并表示将起诉特鲁多政府。
 
-▼暂停对俄罗斯个人和组织的签证
+参考链接：[Trudeau to revoke Emergencies Act after convoy blockades end](https://globalnews.ca/news/8639534/justin-trudeau-emergencies-act-announcement/?utm_source=%40globalnews&amp;utm_medium=Twitter)
 
-▼针对金融机构的资产冻结
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
 
-▼进一步限制对俄罗斯军事附属组织的出口和对半导体等商品的出口
+总编/编辑：雪梨
+校对/发稿：小野貓（文凱琳）
 
-另外，为保护日本国民，日本政府已经安排了一架包机，从邻国波兰前往另一个国家。
+**更多资讯，更多关注**
 
-同时，考虑到能源价格急剧上升状态恐怕会持续下去，作为对策，政府宣布暂时通过加大和加强缓解剧烈变化的措施，来遏制零售价格的急剧上升，如增加对汽油价格的补贴。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-信息源：[岸田首相 ロシアへの3項目の制裁強化策を発表 ハイテク輸出規制など（TBS系（JNN）） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/eebd310843e465e297046e2b4674de26dba201ec)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-校对：Eric Kim
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-5.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

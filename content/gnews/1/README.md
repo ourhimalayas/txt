@@ -2,22 +2,20 @@
 ---
 
 
-## 捷克总统呼吁俄罗斯需从SWIFT 国际支付系统剔除
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2061821/)
+## 俄军事入侵 乌克兰引爆难民潮
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2061873/)
 
-**撰稿: 东京方舟农场 JIHO**
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2302.png)[图片来源](https://news.yahoo.co.jp/articles/9c33b5e058c1d86c9a7ecf82579198ddaf2ba914)
+据法新社报道，联合国难民办事处(UNHCR)发言人24日表示，在俄罗斯入侵乌克兰的过程中被迫逃离家园的人数已上升至近10万人次。
 
-根据布拉格，2 月 24 日路透社消息——曾与莫斯科建立友好关系的捷克总统米洛斯·泽曼（Milos Zeman）周四表示，俄罗斯对乌克兰的袭击是“对和平的犯罪”，需要通过严厉的制裁来回应，包括将该国切断SWIFT 国际支付系统。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-261.png)（图片来自互联网）
-“现在是实施比原计划更严厉的制裁的时候了，”现在是时候采取比原计划更严厉的制裁了，我的意思是最重要的是在所谓的SWIFT领域实施制裁，”泽曼在一次演讲中说:“需要孤立一个疯子，不能只用言语来反击，而是要采取具体措施。”
+在同一天发布的一份声明中，联合国难民署宣布，正准备向乌克兰提供人道主义援助。并呼吁邻近的欧洲国家保持边界开放，接受避难人群。
 
-参考链接：
-[http://reut.rs/3M1Ivf8](https://reut.rs/3M1Ivf8)
+信息源：[ウクライナ、国内避難10万人　数千人は国外脱出　UNHCR](https://news.yahoo.co.jp/articles/9c33b5e058c1d86c9a7ecf82579198ddaf2ba914)
 
-素材采编：JIHO
-编辑：青城道姑
-发布：爱放飞
-
+*编辑：东京樱花团/麗子
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
