@@ -2,30 +2,20 @@
 ---
 
 
-## 中日财经爆|美宣布对俄新制裁后美股由跌转升
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2061946/)
+## 俄罗斯爆发全国反战抗议 1700多人已被拘留
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2062000/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2308.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fcdnuploads.aa.com.tr%2Fuploads%2FContents%2F2021%2F11%2F09%2Fthumbs_b_c_9d75d62b76bd17cdecfb404a5c3c3747.jpg%3Fv%3D023847&amp;imgrefurl=https%3A%2F%2Fwww.aa.com.tr%2Fen%2Feconomy%2Fsp-500-nasdaq-extend-stre)
-美国股市周四（2月24日）大幅收高，市场出现大幅逆转，因在莫斯科开始全面入侵乌克兰后，美国总统拜登公布了对俄罗斯的严厉新制裁。
+撰稿：东京樱花团/盖特第一批注册
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2315.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fcdn.theatlantic.com%2Fthumbor%2FfDRek8S-7AyygM672V1hT4_1I4g%3D%2F900x600%2Fmedia%2Fimg%2Fphoto%2F2022%2F02%2Frussia-protests%2Fa01_AP22055639533912%2Foriginal.jpg&amp;imgrefurl=https%3A%2F%2Fwww.theatlantic)
+2月24日，在首都莫斯科和俄罗斯其他地区发生了反对俄罗斯入侵乌克兰的抗议活动。 据一俄罗斯人权监督组织称，截至24日晚（25日清晨），至少有956人被莫斯科的安全当局拘留。 此外，在全国44个城市有超过1745人被拘留。
 
-纳斯达克指数领涨3%，标普500指数上涨超过1%，结束了因危机升级担忧所造成的连四日跌势。道琼斯指数亦收高。
+参加抗议活动的一名20多岁的女性说：”我为站在乌克兰人面前感到羞耻。 我想道歉，经济制裁、国际孤立….。 我认为这就是俄罗斯的末日。”
 
-在与七国集团(G7)国家商量后，美国总统拜登公布了对俄罗斯的严厉新制裁措施，除对银行和国有企业实施制裁外，还采取了阻止俄罗斯使用主要货币做生意的措施。
+一位三十多岁的男性上班族愤怒地说，”为什么克里姆林宫里没有人阻止普京总统？ 与乌克兰的战争不是俄罗斯人民的意愿。”
 
-在俄罗斯入侵乌克兰的消息影响下，三大指数在当天早些时候都出现了抛售，纳斯达克指数在开盘时下跌超过3%。在拜登发表评论后，创下了盘中高点，并在收盘时反弹。
+对普京来说，这种国内反弹比国际经济制裁更具破坏性。我们希望，俄罗斯人民的抗议将能够促使军事行动的停止。
 
-俄罗斯从陆地、海洋和空中发动攻击后，乌克兰军队与俄罗斯入侵者周四在三面作战。俄罗斯的攻击是第二次世界大战以来对一个欧洲国家的最大攻击。
-
-被称为华尔街恐惧指数的CBOE波动性指数日内收低。
-
-纽约证交所涨跌股家数比为1.14:1；纳斯达克市场为1.53:1。
-
-标普500指数中有两只成分股创下52周新高，64只创下新低；纳斯达克指数成分股分别有19只和974只。
-
-美国各证交所累计成交175.2亿股，过去20个交易日的日均成交量为121亿股。
-
-消息来源：[美股三大指数由跌转升 因西方对俄罗斯祭出新的制裁](https://cn.reuters.com/article/usa-stocks-0224-thur-idCNKBS2KU032?il=0)
+信息源：[「ウクライナ人に謝りたい」　ロシア各地で反戦デモ　１７００人超拘束](https://news.yahoo.co.jp/articles/3297c221f7c6a42ec0e744a4254b96c10c1a2305)
 
 *编辑：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/平安卿卿*
