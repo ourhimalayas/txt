@@ -2,27 +2,39 @@
 ---
 
 
-## 俄罗斯在基辅大规模轰炸
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2063325/)
+## 英国政府报告：COVID-19来自武汉实验室
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2063407/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-105.jpg)
-图片来源： chinese.aljazeera.net
+编译：wenwu
 
-零对冲网2月24日报道，乌克兰总统泽连斯基凌晨1点在基辅宣布：“ 俄罗斯的破坏力量已经进入首都，我和我的家人还在。我们需要与俄罗斯谈判停火。”  尽管华盛顿与西方国家近年来口头上同意乌克兰加入北约组织，但现在已被残酷的现实所打破，乌克兰的同盟者和支持者均不会去乌克兰帮忙。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2358-edited.png)thenationalpulse.com
 
-针对先前俄罗斯要求乌克兰作为投降的条件开展谈判，泽连斯基回应说：“ 我们不怕与俄罗斯谈，也不怕谈判以保证我国的安全，甚至不怕谈关于中立状态，但我们会有什么样的安全保证？我们现在要靠我们自己保卫自己的国家，我看不到有谁会帮我们打，谁能保证乌克兰能加入北约？每个人都害怕，我问了27个欧洲国家领导人乌克兰是否可以加入北约，每个人都很害怕，但我们不害怕。”
+根据一位前陆军上校的报告，英国政府认为COVID-19 的起源正是来自故意阻挡病毒调查的武汉病毒研究所。
 
-泽连斯基在拜登说美国部队不会在乌克兰打后发表评论，表示非常受挫析和绝望，要求西方国家推出新的制裁措施，重点是能源出口的制裁。
+这一消息是在英国首相鲍里斯·约翰逊（Boris Johnson）修改英国的生物安全战略以防范”自然人畜共患病和实验室泄密”的情况下[披露](https://www.telegraph.co.uk/news/2022/02/22/wuhan-lab-leak-believed-behind-closed-doors-likeliest-origin/)的。
 
-经过1天的战斗，乌克兰武装部队总司令说有30辆俄罗斯坦克，130辆装甲车，5架战机和6架直升机被乌克兰打掉，当然，乌克兰损失也惨重。
+化学和生物反恐专家、剑桥大学马格达林学院的生物安全研究员哈米什·德·布雷顿-戈登（Hamish de Bretton-Gordon）在谈到政府时说：“由于中共阻挡各国政府调查武汉研究所，这导致多数人认为中共病毒源于中共实验室的泄漏。”
 
-乌克兰国防部发誓要继续保卫国家，泽连斯基要求该国18-60岁的男子不要逃离本国。
+这位前英国陆军上校解释说：“人畜共患病转移的理论没有意义；我认为官方观点是，它和其他任何东西一样有可能导致中共病毒大流行；很多人像我一样认为这（实验室泄漏理论）更有可能。我认为人们的态度已经发生了一些变化”。
 
-##### 新闻来源： [Large-Scale Bombardment Of Kiev Deemed Imminent As Zelensky Admits “We Are Left Alone” As NATO “Afraid”](https://www.zerohedge.com/geopolitical/putins-shock-awe-war-ukraine-unfolds-dark-day-europe-many-hundreds-killed)
+英国官员咨询了像布雷顿-戈登这样的专家，以支持起草一项新的生物安全战略，以应对“意外释放和令人担忧的双重用途研究，即生命科学研究能够被误用来造成伤害”。
 
-#  
+“我最担心的是，下一次可能不是意外，因为这很容易做到。如果你没有道德，没有顾忌，为什么不感染你的敌人呢？”布雷顿-戈登推断道。
 
+这一承认是在美国的 COVID-19 沙皇安东尼·福奇（Anthony Fauci）在武汉资助属于”令人担忧的双重用途研究”类别的研究，包括关于“杀手”蝙蝠冠状病毒。这位美国国家卫生研究院的官员还为这种研究做法辩护——包括操纵病原体使其对人类更致命——是“不可或缺的”，尽管它有可能导致大流行病。
+
+《国家脉动》之前[报道](https://thenationalpulse.com/2021/06/02/nih-hosted-wuhan-lab-director-asserting-no-regulation/)说，武汉病毒研究所的副所长正在从事类似于“没有监管”的令人担忧的双重用途研究。
+
+（文章仅代表作者观点与GNEWS无关）
+
+素材来源：[thenationalpulse.com] [The British Government Believes COVID-19 Came From the Wuhan Lab: Report.](https://thenationalpulse.com/2022/02/23/british-gov-backs-lab-leak-theory-behind-closed-doors/)
+
+* * *
+
+审核：文乐
+校对：信心满满
+发布：花羽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-4.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
