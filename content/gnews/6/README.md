@@ -2,41 +2,20 @@
 ---
 
 
-## 加拿大授权以植物为原料所制造的疫苗
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2066234/)
+## 各国对俄乌事件的软弱
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2066311/)
 
-加拿大温哥华扬帆农场: Cran
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/a-17.png)图片来源：CBC
+*发布：陶子*
 
-
-在新冠病毒尚未被确认来源之时, 加拿大政府授权了另类由植物为宿主而产生的疫苗. 它的有效性如何? 经济疫苗?
-
-据2月24日CTV报道，加拿大卫生部周四批准了一项新的冠状病毒疫苗开发。被称为Covifenz的疫苗是由加拿大公司首次开发。这种以植物为原料的疫苗由位于魁北克市的生物技术公司Medicago开发，该公司利用植物宿主来制造病毒样颗粒，帮助人体免疫系统制造抗体。
-
-加拿大卫生部医学科学署长, 马克·伯蒂奥姆(Marc Berthiaume) 博士表示，Medicago疫苗预计将于5月中旬上市，目前“疫苗的接种时间和剂量仍在讨论中.
-
-加拿大卫生署的首席医学顾问，苏普里亚，夏尔马（Supriya Sharma）博士说，该疫苗的活性成分，是由“模拟病毒引起冠状病毒的刺突蛋白粒子组成的。”这使身体能够识别它们并激发免疫反应。“类似病毒的颗粒生长在类似烟草的植物中，从而它可以在短时间内产生大量病毒颗粒，”夏尔马周在周四的一次视频新闻发布会上说。“一旦这些颗粒被注射到体内，它们就会触发免疫系统产生针对病毒的抗体”。
-
-夏尔马补充说，这种类似病毒的颗粒模拟了病毒的自然结构，但不包含任何遗传物质——“这使人的免疫系统能够识别这些颗粒，而不会引起感染。”
-
-夏尔马说，其他疫苗，包括保护HPV和乙型肝炎的疫苗，使用类似病毒颗粒,Medicago的疫苗是第一个使用基于植物的技术。
-
-作为授权的条件, 该公司必须即时提供有关当前和新出现的变异毒株的保护数据. 疫苗的临床试验表明，在间隔21天连续注射2次的实验中，有71%的有效率来预防感染新冠。夏尔马说，这试验涉及3万名参与者，有效率为100%来预防严重的疾病。她说，初步实验室数据表明 Medicago 的疫苗确实产生了中和奥密克戎病毒的抗体.
-
-Medicago与英国制药公司葛兰素史克 (GlaxoSmithKline) 于12月向加拿大卫生部提交了三期数据。夏尔马说，Medicago试验中发现了所有疫苗典型的轻微副作用，疫苗组和安慰剂组之间所报告的严重副作用没有差异。
-
-Medicago的疫苗是由加拿大卫生署授权的第六种疫苗. Novavax的产品上周获得了加拿大卫生部的授权，国家免疫咨询委员会在2月17日的指导意见中将其描述为无法或不愿意接种mRNA疫苗的人的“新选择”。
-
-加拿大卫生网络疫苗覆盖率跟踪显示, 截止2月13日以前, 超过88%的合格人群接受了至少一剂CVID-19疫苗，其中84%人全部接种了疫苗.
-
-夏尔马说，Medicago的疫苗为加拿大提供了“抗击大流行的额外选择”。
-
-* * *
-
-新闻来源: https://www.ctvnews.ca/health/coronavirus/health-canada-authorizes-made-in-canada-medicago-vaccine-1.5794165
-
-编译撰稿：Cran 编辑发稿：硫酸羟氯喹64
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

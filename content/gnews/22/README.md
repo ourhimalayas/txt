@@ -2,33 +2,42 @@
 ---
 
 
-## 斯托尔滕贝格称北约盟国将向乌克兰提供更多武器
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2066023/)
+## 中共锁链国八孩女事件结果再次强奸民意
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2066055/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/VPNCR7GZGZJDBAOICEBWD4SJOQ.jpg)
+作者：香草山健身部 – 文鹰
 
 
-图片来源： 路透社
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-65.png)
+当地时间2月23日，中共媒体发表‘丰县锁链女事件调查’一文，对江苏省委省政府调查组，处理该事件通报结论表示认可。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-13.jpg)图片来源网络
+自该事件被网友1月17日，发布自媒体引起民众关注以来。中共为保北京冬奥会，放任地方政府造假不作为，导致舆论沸腾民意愤慨，要求真相声音高涨。 中共政府不是去解决问题，而是持续掩盖事实，打压民众了解真相压制批评声音。甚至用铁皮封锁整个事件发生地，让警察抓捕爆料人并威胁采访声援人士。 有分析人士指出：该事件是中共篡政以来最大的舆情危机，捅破了中共盛世的一个大脓包。中共党媒的宣传，是一切为了邪党的利益，在继续欺骗强奸民众民意。
 
-北约秘书长延斯·斯托尔滕贝格周五表示，该联盟正在部署其部分战备反应部队，并将继续向乌克兰运送包括防空系统在内的武器，同时表示俄罗斯正试图推翻乌克兰政府。
 
-他在北约领导人虚拟会议后的新闻发布会上说：“我们看到了言辞和信息，这些信息强烈表明其目的是推翻基辅民选政府。”
 
-他说，30个北约盟国中的一些宣布了他们将向乌克兰供应的武器类型，包括防空系统，但没有提供细节。 “盟国非常致力于继续提供支持，”他说。
+相关链接：
 
-斯托尔滕贝格说，北约正在盟国领土上部署其快速反应部队，该部队由陆地、空中、海上和特种作战部队组成。
+[https://new.qq.com/omn/20220223/20220223A05NQE00.html](https://new.qq.com/omn/20220223/20220223A05NQE00.html)
 
-“我们现在首次在集体防御的背景下部署北约反应部队，”他说。
+![This image has an empty alt attribute; its file name is Feb-55.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-55.jpg)
 
-另外，德国宣布将向斯洛伐克部署一个连队部队，士兵们将在那里建立一个新的北约战斗群的一部分。
+编辑/校对/发稿：Petite abeille
 
-德国还将向北约东翼派遣一个爱国者导弹防御系统，并配备大约300名士兵来操作它。目前尚不清楚该系统的确切位置。
+**更多资讯，更多关注**
 
-🔗 [斯托尔滕贝格称北约盟国将向乌克兰提供更多武器](https://www.reuters.com/world/europe/nato-allies-provide-more-weapons-ukraine-stoltenberg-says-2022-02-25/)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-编辑发表： Shuizhuyu
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is good-66.png](https://assets.gnews.org/wp-content/uploads/2022/02/good-66.png)
+
+
+
 
  
 
