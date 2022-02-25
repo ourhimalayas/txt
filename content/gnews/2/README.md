@@ -2,10 +2,10 @@
 ---
 
 
-## 川普：中共国会是下一个行动者，绝对会谋求台湾
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2063659/)
+## 医生认为伊维菌素有助于英女王康复
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2063697/)
 
-02/22/2022 川普：中共国会是下一个行动者，绝对会谋求台湾。习近平和普京就像双胞胎姐妹一样，对自己的目标极端渴望。
+02/22/2022 澳大利亚医生认为，服用伊维菌素可以有助于英女王康复
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

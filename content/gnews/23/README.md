@@ -2,39 +2,27 @@
 ---
 
 
-## 英国政府报告：COVID-19来自武汉实验室
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2063407/)
+## 俄乌战争｜多国加强制裁俄罗 未见“杀手锏选项”SWIFT
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2063546/)
 
-编译：wenwu
+**撰文/ 港台前线｜发布日期/ 25/02/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/多國加強制裁俄羅斯-未見「殺手鐧選項」SWIFT-.jpg)
+**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2358-edited.png)thenationalpulse.com
+美国总统拜登于美东时间周四（24日）下午在白宫宣布对俄罗斯实施的第二轮金融制裁，包括限制俄罗斯使用美元、欧元、日圆及英镑在全球进行贸易，限制高科技产品出口到俄罗斯，以及切断俄罗斯五大主要银行与美国金融系统的连系，冻结它们在美资产，同时还包括对多名俄罗斯官员实施制裁。
 
-根据一位前陆军上校的报告，英国政府认为COVID-19 的起源正是来自故意阻挡病毒调查的武汉病毒研究所。
+俄罗斯正式进攻乌克兰之后，拜登曾指责普京选择战争令美俄关系彻底破裂，要普京为之承担严重后果。可惜，在新一轮的制裁措施中，美国仍未有使出“撒手锏”，将俄罗斯剔出SWIFT全球支付系统，令俄罗斯无法参与绝大部分国际金融交易，惹来外界批评拜登过度软弱。另外，有消息指，欧盟成员国对该选项也有所保留。
 
-这一消息是在英国首相鲍里斯·约翰逊（Boris Johnson）修改英国的生物安全战略以防范”自然人畜共患病和实验室泄密”的情况下[披露](https://www.telegraph.co.uk/news/2022/02/22/wuhan-lab-leak-believed-behind-closed-doors-likeliest-origin/)的。
+乌克兰外长库列巴对此表示愤怒，形容若未能对俄罗斯实施最严厉制裁，欧美政客双手将会沾满鲜血。
 
-化学和生物反恐专家、剑桥大学马格达林学院的生物安全研究员哈米什·德·布雷顿-戈登（Hamish de Bretton-Gordon）在谈到政府时说：“由于中共阻挡各国政府调查武汉研究所，这导致多数人认为中共病毒源于中共实验室的泄漏。”
+与此同时，欧盟成员国领袖同意向俄罗斯金融界、能源及运输业实施新一轮制裁措施及出口管制，欧盟委员会主席冯德莱恩指，措施将涵盖七成俄罗斯银行市场，及包括国防公司的国营企业。
 
-这位前英国陆军上校解释说：“人畜共患病转移的理论没有意义；我认为官方观点是，它和其他任何东西一样有可能导致中共病毒大流行；很多人像我一样认为这（实验室泄漏理论）更有可能。我认为人们的态度已经发生了一些变化”。
+英国首相约翰逊宣布一系列制裁措施，包括冻结多间俄罗斯银行在英国的资产，并制裁超过100个俄罗斯个人及实体。
 
-英国官员咨询了像布雷顿-戈登这样的专家，以支持起草一项新的生物安全战略，以应对“意外释放和令人担忧的双重用途研究，即生命科学研究能够被误用来造成伤害”。
+日本首相岸田文雄亦宣布，在金融及军事装备出口等领域向俄罗斯实施制裁，他同时宣布政府会协助在乌克兰的日本公民离开当地。
 
-“我最担心的是，下一次可能不是意外，因为这很容易做到。如果你没有道德，没有顾忌，为什么不感染你的敌人呢？”布雷顿-戈登推断道。
+来源｜[AJ](https://www.aljazeera.com/news/2022/2/24/biden-unveils-new-russia-sanctions-over-ukraine-invasion)
 
-这一承认是在美国的 COVID-19 沙皇安东尼·福奇（Anthony Fauci）在武汉资助属于”令人担忧的双重用途研究”类别的研究，包括关于“杀手”蝙蝠冠状病毒。这位美国国家卫生研究院的官员还为这种研究做法辩护——包括操纵病原体使其对人类更致命——是“不可或缺的”，尽管它有可能导致大流行病。
-
-《国家脉动》之前[报道](https://thenationalpulse.com/2021/06/02/nih-hosted-wuhan-lab-director-asserting-no-regulation/)说，武汉病毒研究所的副所长正在从事类似于“没有监管”的令人担忧的双重用途研究。
-
-（文章仅代表作者观点与GNEWS无关）
-
-素材来源：[thenationalpulse.com] [The British Government Believes COVID-19 Came From the Wuhan Lab: Report.](https://thenationalpulse.com/2022/02/23/british-gov-backs-lab-leak-theory-behind-closed-doors/)
-
-* * *
-
-审核：文乐
-校对：信心满满
-发布：花羽
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-4.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
