@@ -2,26 +2,33 @@
 ---
 
 
-## 快速抗原检测试剂盒和危险物质的潜在接触
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2066056/)
+## 加拿大将向乌克兰捐款捐物
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2066079/)
 
+作者：Mike Blanchfield
 翻译：Himaboy
-![](https://assets.gnews.org/wp-content/uploads/2022/02/23_0959202922_0.jpg)
-加拿大卫生部周四就COVID-19快速检测试剂发出一项重要警告，原因是使用时可能接触到有害物质，以及不正确使用检测溶剂有关的风险。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/23_153H3V0.png)
+随着俄罗斯军队逼近乌克兰首都，加拿大联邦政府表示计划将个人向加拿大红十字会的捐款匹配，帮助将人道主义救援物资送到乌克兰。
 
-2月24日，卫生部表示，中毒控制中心接到的报告病例增加，为此对COVID-19快速抗原检测试剂盒发出了警报。
+一名不愿透露姓名的政府高级官员说，这项计划定于周五开始，一直持续到3月18日，政府的捐款将一对一匹配民间的捐款，最高可达1000万元。
 
-警告旨在提醒加拿大人有关试剂溶液误用、意外摄入或溅到皮肤上的潜在风险，提醒民众注意防范。
+联邦国际开发部的一名女发言人周五表示，部长Harjit Sajjan周四与美国部长Samantha Power举行了会谈，讨论了为遭受重创的乌克兰人提供合作的问题。
 
-据卫生部了解，加拿大中毒控制中心接到了大约50个与意外接触有关的电话，这些接触导致了轻微的健康问题。
+Power表示，美国正在向该地区部署灾难援助反应队(简称DART)。USAID已经调整发展规划，“以加强对网络攻击、虚假信息、能源部门面临的威胁、基本卫生需求以及地方和国家政府实体持续运作的应对”。
 
-卫生部认为这些测试盒按要求使用是安全有效的，但测试盒带有含化学防腐剂的液体溶液，包括Sodium Azide和Proclin，如果吞食或经皮肤吸收，可能有毒，尤其是儿童和宠物。
+截至周五，俄罗斯军队正在向首都基辅推进。此前，俄罗斯军队已通过地面部队、空中轰炸和从亚速海发动的海上攻击三面攻入侵乌克兰。
 
-小剂量的Sodium Azide可以降血压，而大剂量会导致更严重的健康影响。Proclin含有的化学物质会刺激皮肤和眼睛以及过敏反应。
+加拿大救助儿童会（Save the Children Canada）的负责人敦促加拿大人参与1900万美元的全球援助资金，以帮助乌克兰各地的人道主义救援工作。
 
-意外摄入或皮肤接触少量的液体溶液并不会像大剂量那样造成严重的影响，但即使是少量的液体溶液也会对小孩和宠物造成影响。
+该组织主席Danny Glenwright说，至少有三名儿童在俄罗斯入侵乌克兰期间丧生，他呼吁双方停止战斗。
 
-来源：https://recalls-rappels.canada.ca/en/alert-recall/rapid-antigen-test-kits-and-potential-exposure-hazardous-substances
+“我们知道，任何战争都是针对儿童的战争。”
+
+Glenwright说，他的组织已经证实，两名儿童在乌克兰东部的炮击中丧生，一名17岁的男孩在乌克兰南部地区一个村庄的袭击中丧生。但他补充说，儿童的死亡人数可能更高。
+
+联合国人权事务高级专员说，其工作人员已证实，炮击和空袭造成25名平民死亡，102人受伤。
+
+来源：https://www.cp24.com/news/canada-plans-to-match-individual-donations-to-red-cross-for-ukraine-dollar-for-dollar-1.5796393
 
 **免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 ![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)

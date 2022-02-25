@@ -2,53 +2,27 @@
 ---
 
 
-## 魁北克男子承认用斧头谋杀了他认识的两名男子
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2066121/)
+## 澳洲护士在社区演讲中问到人们是否认识因疫苗而受到伤害的人时，看看有多少人举起了手
+` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/2066164/)
 
-作者：Paul Cherry
-翻译：Himaboy
-![](https://assets.gnews.org/wp-content/uploads/2022/02/5_13051B39.jpg)
-两年前一名魁省男子先后在Ahuntsic-Cartierville区杀死了一名男子，在Notre-Dame-de-Grace杀死了另外一名男子，他周四在蒙特利尔法院对这两起凶杀案表示认罪。他在此前一次庭审中说：我今年61岁，我很清醒。我用斧头砍死了他们两个。他说自己为这次杀人谋划了整整10年。
+#### 加拿大温哥华扬帆农场 视频组
 
-据报道，现年62岁的Claude Charbonneau出现在魁北克高等法院法官Hélène Di Salvo面前认罪，承认对68岁的Pierre Phaneuf犯有二级谋杀罪和对80岁的Theodros Debeyiotis犯有一级谋杀罪。
+素材：坐看云起时
+听写：Ucool
+翻译：Kent
+字幕：路仁
 
-根据Charbonneau的律师在法庭记录中宣读的一份事实陈述，他于2020年8月4日在 Ahuntsic-Cartierville的公寓内用斧头杀死了Phaneuf。之后他偷走了Phaneuf口袋里的所有钱，并将其手机放在装满水的碗里。他还锁上了Phaneuf公寓的门，然后偷走了他的汽车。
+2022/2/23 EST
 
-Phaneuf 一个人住，没有人报告他失踪。
+我今天再次呼吁理事会，请对我们的志愿者心怀感恩，他们牺牲了自己的时间，不为金钱利益，无私地维护我们社区的安全，请允许他们继续志愿工作，照顾我们的社区，而不是去胁迫他们接种有可能造成伤害的疫苗，我不想带来反疫苗情绪，我只想说，像任何药物一样，疫苗可能会带来不良反应，因此人们应该有选择权。
 
-杀人第二天，Charbonneau又出现在Benny Ave的一栋公寓楼里。他的老板Theodros Debeyiotis经营一家物业管理公司，在那里设有办公室。那天他计划杀死老板，但没有机会下手。一台监控录像记录了他在等待杀人的过程中如何换掉了偷来的汽车车牌。
+作为一名护士我目睹了疫苗带来的药物反应，副作用确实发生了，且他们绝不会把所有的疫苗都从市场上撤下，我们中的很多人都有一个共识，今晚在座的大多数人，都认识被疫苗或疫苗副作用所伤的人，即便不是在座的各位，也会是我们的亲朋或好友，我确信我们都认识某人，或我们社区中的某个亲近的人，所以如果我所说的是事实，请各位举起你的手。
 
-他当晚睡在Phaneuf的车里，第二天返回并使用密码进入了Debeyiotis的办公室。录像显示他进入大楼时戴着一副手套，手里拿着一把裹着布的斧头。当Debeyiotis上午9点42分到达办公室时，他用斧头砍了他的头部和背部。
+那么，疫苗伤害正在发生，人们正在受到伤害，这可能是一个小的比例，我不知道具体是多少，但它的确在发生，有风险的地方就应该有选择，伤害可能是轻微的，但它也可能会使人衰弱，它可能令父母无法带回晚餐。发烧、脑损伤、胃腹痛、或严重到癫痫发作、神经系统损伤、心肌炎、心包炎、血栓，以及悲惨的死亡。这些都毫无必要，也是可以避免的。
 
-10分钟后一位来办公室付租金的租客发现了受伤的房东。他被送往医院，但数小时后死亡。
+很多人已经死于新冠，还有人死于新冠疫苗，我对所有这些人都感到心痛。我恳求各位议员，请在人们的个人背景下，在他们的病史中，在他们个人风险和年龄范围内，更多地考虑什么是对个人最好的，并有同情心和风度，不要继续强迫人们接受某种药物，根据某些人的情况，疫苗可能构成的伤害比疾病本身风险更大。
 
-警方根据监控录像很快确认Charbonneau就是杀死Debeyiotis的人。警方随后又发现了Phaneuf的尸体。
-
-法庭文件显示，Charbonneau在Debeyiotis的公司担任看门人已有20年。他和Phaneuf住在同一栋公寓里。Phaneuf曾在Debeyiotis公司里任水管工。
-
-逃亡半个月后，因为一名警察注意到了Phaneuf被盗的汽车，Charbonneau于8月19日在Trois-Rivières被捕，被捕时他身上有800元现金。
-
-在谈到杀人动机时，Charbonneau说他杀了Debeyiotis是因为他不喜欢他的老板，他形容老板吝啬、小气，而他杀了Phaneuf是因为他“对女性缺乏尊重”。他承认自己为杀人谋划了10年。
-
-法庭上Charbonneau还承认他计划杀死老板的儿子，但是因为死老板的儿子那天不在蒙特利尔逃过一劫。
-
-而且Charbonneau多次重申他并不后悔。
-
-来源：https://torontosun.com/news/man-pleads-guilty-to-murdering-men-he-knew-in-n-d-g-and-ahuntsic-cartierville/wcm/85739541-539c-4bdc-9eb2-0f60c5bcd06d
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+编辑/发文：Kent
 
  
 

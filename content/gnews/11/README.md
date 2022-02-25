@@ -2,33 +2,37 @@
 ---
 
 
-## 加拿大将向乌克兰捐款捐物
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2066079/)
+## “多么罪恶”：约克地区警察工会在纽马克特拆除“棚屋”为开发让路
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2066119/)
 
-作者：Mike Blanchfield
+作者：Newmarket Era
 翻译：Himaboy
-![](https://assets.gnews.org/wp-content/uploads/2022/02/23_153H3V0.png)
-随着俄罗斯军队逼近乌克兰首都，加拿大联邦政府表示计划将个人向加拿大红十字会的捐款匹配，帮助将人道主义救援物资送到乌克兰。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/22_1U3003Y.png)
+日前位于Newmarket、有着20年历史的原约克区警察工会（York Region Police Association）总部大楼被拆除，开发商买下这块土地后，计划在这里盖起60栋独立屋和142栋镇屋。
 
-一名不愿透露姓名的政府高级官员说，这项计划定于周五开始，一直持续到3月18日，政府的捐款将一对一匹配民间的捐款，最高可达1000万元。
+Marianneville Stonehaven Limited公司此前从约克区警队买下这片40英亩的土地，并向新市政府递交过两次开发申请。
 
-联邦国际开发部的一名女发言人周五表示，部长Harjit Sajjan周四与美国部长Samantha Power举行了会谈，讨论了为遭受重创的乌克兰人提供合作的问题。
+在递交了第一次申请后，该计划受到许多附近居民的反对。后来开发商修改了方案，再次递交申请。该公司副主席Joanne Barnett表示，开发商已经响应了居民的意见并做了相应修改，包括让民众更能够使用这片物业土地的自然区域。
 
-Power表示，美国正在向该地区部署灾难援助反应队(简称DART)。USAID已经调整发展规划，“以加强对网络攻击、虚假信息、能源部门面临的威胁、基本卫生需求以及地方和国家政府实体持续运作的应对”。
+“他们仍然可以使用公共区，这些地方不会作新的开发。”我们一直在努力确保尽可能少地给现在的社区造成影响。”
 
-截至周五，俄罗斯军队正在向首都基辅推进。此前，俄罗斯军队已通过地面部队、空中轰炸和从亚速海发动的海上攻击三面攻入侵乌克兰。
+这个地点位于Newmarket的Bayview与Stonehaven附近。原大楼周围有一片未开发的土地。周边有居民区和餐饮、超市等商店。当时当地居民就表达出多方面的顾虑，包括开发密度、环境影响和绿化用地损失等。
 
-加拿大救助儿童会（Save the Children Canada）的负责人敦促加拿大人参与1900万美元的全球援助资金，以帮助乌克兰各地的人道主义救援工作。
+2月14日，这栋有着20年历史的警察工会总部大楼拆除工程正式动工。
 
-该组织主席Danny Glenwright说，至少有三名儿童在俄罗斯入侵乌克兰期间丧生，他呼吁双方停止战斗。
+一些居民在社交媒体上对此表示失望。
 
-“我们知道，任何战争都是针对儿童的战争。”
+“多罪恶啊，”有人说道。
 
-Glenwright说，他的组织已经证实，两名儿童在乌克兰东部的炮击中丧生，一名17岁的男孩在乌克兰南部地区一个村庄的袭击中丧生。但他补充说，儿童的死亡人数可能更高。
+另一位居民问：“为什么这栋楼不能
 
-联合国人权事务高级专员说，其工作人员已证实，炮击和空袭造成25名平民死亡，102人受伤。
+改作社区用途呢？”
 
-来源：https://www.cp24.com/news/canada-plans-to-match-individual-donations-to-red-cross-for-ukraine-dollar-for-dollar-1.5796393
+还有人说，开发商太“贪钱了。”
+
+这栋旧大楼被拆除前，约克区警队总部已经搬到Aurora市内63 Eric T. Smith Way的一栋双层新办公大楼。这个办公地点更靠近位于Aorura市Wellington和Leslie streets附近的Don Hillock Drive上的约克区警察总部。
+
+来源：https://www.yorkregion.com/news-story/10574609–what-a-sin-york-regional-police-union-shed-demolished-in-newmarket-to-make-way-for-houses/
 
 **免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 ![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)

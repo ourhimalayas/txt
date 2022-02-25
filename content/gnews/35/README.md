@@ -2,22 +2,24 @@
 ---
 
 
-## 俄乌危机致全球粮食价格大幅上涨
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2065480/)
+## 历史上的今天：习近平修宪为终身连任铺路
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2065531/)
 
-作者：银河系农场—骄子
+作者：纽约香草山农场-马克文、朱丽叶
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月23日，据相关媒体消息显示，俄罗斯与乌克兰、美国和欧盟之间日渐加剧的危机可能会给全球粮食供应带来更大的压力。目前，小麦、玉米、葵花油等基础作物的价格正在一路攀升。
+2018年2月25日，中共中央委员会提议，从中共国宪法中删除国家主席和副主席“连续任期不得超过两届”的规定，用以为习近平终身执政铺平道路。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-8.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide10-4.jpeg)
 
-数据表明，俄罗斯和乌克兰拥有全世界80%的葵花油出口、29%的小麦出口和19%的玉米出口，中东很多国家的粮食供应都依赖于此。然而，由于近期双方战争局势的恶化，黑海的运输港口眼下已经被切断，从而导致了俄乌粮食出口的中断。
+资料显示，中共宪法原本规定，中共国家主席任期不得超过两届，每届任期五年，国家主席任期最长不得超过十年。邓小平掌权时，为了杜绝江泽民无限期连任的可能性，其不仅亲点江泽民的接班人胡锦涛，还严控二者的接替周期，从而确保江泽民在任期10年后必须将党内外的重要职位向继任者移交。
 
-另一方面，自俄罗斯向顿涅茨克和卢甘茨克派遣军队之后，各国对其的经济制裁不断加码，这严重破坏了世界粮食供应的稳定性，而美国的粮食期货价格也因此不断飙升。另外，重度依赖粮食进口的北非、亚洲和中东地区同样被大范围影响。
+据悉，中共宣布修改宪法的当天，世界震惊于习近平的野心，外媒也将此举评价为在邓小平政权后中共最大的政治倒退。
 
-当前，乌克兰所处的黑海地区是军事冲突的聚焦点，平常繁忙的商业运输如今因军事升级而被中断。经济学家表示，该地区的粮食供应中断将会导致全球粮食价格的飞涨。
+分析人士则指出，中共和习近平这一决定明确地向世界宣告，中共国历史已经再次拐入个人崇拜和家族独裁的死路。而如今的中共国也正在展现出这种景象，在中共政府的反复洗脑之下，墙内民众丧失了判别真伪的能力，世界或将看到毛泽东的时代再次归来。
 
-参考链接：[Russia-Ukraine crisis will put even more strain on the global food supply, driving up prices of wheat and corn around the world](https://newstarget.com/2022-02-23-russia-ukraine-crisis-more-strain-global-food-supply.html)
+参考链接：
+1. [中共提议修宪，取消国家主席任期限制](https://cn.nytimes.com/china/20180225/china-xi-jinping/)
+2. [https://zh.wikipedia.org/wiki/2%E6%9C%8825%E6%97%A5](https://zh.wikipedia.org/wiki/2%E6%9C%8825%E6%97%A5)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 

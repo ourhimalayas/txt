@@ -2,42 +2,53 @@
 ---
 
 
-## 中共锁链国八孩女事件结果再次强奸民意
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2066055/)
+## 经济学家称加拿大央行3月加息已成定局
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2066077/)
 
-作者：香草山健身部 – 文鹰
+作者：Shrutee Sarkar
+翻译：Himaboy
+![](https://assets.gnews.org/wp-content/uploads/2022/02/70_113503G0.jpg)
+在路透社的一项调查中，经济学家们称，加拿大央行将在3月2日加息25个基点（1码），这比之前预估的要早，而且比美国联邦储备局要早。该调查还显示，预计到今年年底，利率将比之前预估的更高。
 
+就在一个月前，经济学家们预测央行将等到第二季度才加息。但持续走高的通胀率，在1月份加速至30年来的峰值，促使他们将预期提前。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-65.png)
-当地时间2月23日，中共媒体发表‘丰县锁链女事件调查’一文，对江苏省委省政府调查组，处理该事件通报结论表示认可。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2-13.jpg)图片来源网络
-自该事件被网友1月17日，发布自媒体引起民众关注以来。中共为保北京冬奥会，放任地方政府造假不作为，导致舆论沸腾民意愤慨，要求真相声音高涨。 中共政府不是去解决问题，而是持续掩盖事实，打压民众了解真相压制批评声音。甚至用铁皮封锁整个事件发生地，让警察抓捕爆料人并威胁采访声援人士。 有分析人士指出：该事件是中共篡政以来最大的舆情危机，捅破了中共盛世的一个大脓包。中共党媒的宣传，是一切为了邪党的利益，在继续欺骗强奸民众民意。
+全球其他主要央行，包括美联储和英国央行，预计也将在3月份加息，以应对处于几十年来历史高位的通货膨胀，一些经济学家呼吁美联储采取激进措施，一次性加息50个基点。
 
+2月17-23日进行的调查发现，英国央行3月会议上加息50个基点的概率中值只有20%，所有25位经济学家都预测加息25个基点至0.50%。
 
+加拿大央行副行长Timothy Lane上周表示，通胀有可能持续，而且比预测的更持久。他补充说央行将灵活地、可能”有力地”解决这个问题。这将为可能的激进加息政策奠定基础。
 
-相关链接：
+调查的中值预测显示，加拿大央行将在下个季度把关键利率提高50个基点至1.00%，并在年底把利率提高到1.25%，高于1月份调查中对年底利率1.00%的预测，但低于目前金融市场的预期。
 
-[https://new.qq.com/omn/20220223/20220223A05NQE00.html](https://new.qq.com/omn/20220223/20220223A05NQE00.html)
+预测中值显示，央行将在第二季度把利率再提高50个基点，然后在第三季度再提高25个基点，但经济学家们的观点存在分歧。
 
-![This image has an empty alt attribute; its file name is Feb-55.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-55.jpg)
+对于第二季度，24位经济学家中有11位预测利率将上升25个基点，其余的人预计利率将上升至少50个基点。同样数量的人说，第三季度的利率将攀升至1.00%，而7位预测利率将达到1.25%，6位说1.50%。
 
-编辑/校对/发稿：Petite abeille
+所有14位回答额外问题的经济学家都表示，央行将在今年开始缩减其资产负债表的规模。其中大多数人说是在4月份。其他经济学家则在3月和6月之间意见不一。
 
-**更多资讯，更多关注**
+与美联储不同，加拿大央行拥有加拿大约42%的主权债务，此前从未尝试过缩减其资产负债表，这一过程被称为量化紧缩（QT）。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+牛津经济研究院加拿大经济部主任Tony Stillo说：”在3月份开始升息后，央行将在4月开始QT，允许到期的债券滚动，而不进行再投资。”
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+近55%的受访者——13名经济学家中的7人，在回答另一个问题时说，通胀率直到明年下半年或更晚才会降至加拿大央行的2%目标。有六个人说通膨率将在2023年上半年下降。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+劳伦森银行的经济学家Dominique Lapointe说：”紧缩周期正在快速上演，市场预期加息的次数会越来越多，而且是前置性的。”
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+来源：https://financialpost.com/news/economy/bank-of-canada-march-interest-rate-hike-a-done-deal-say-economists
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is good-66.png](https://assets.gnews.org/wp-content/uploads/2022/02/good-66.png)
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
+**关注我们**
 
+Discord 账号
 
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
