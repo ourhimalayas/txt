@@ -2,91 +2,19 @@
 ---
 
 
-## 有声|悲惨世界
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2065037/)
+## 文贵大直播 2/25 热战危机和疫苗灾难是什么关系
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2065192/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-谁家女儿不是宝
+撰稿：回响 【秘翻Gnews原创组】
+![](https://assets.gnews.org/wp-content/uploads/2022/02/snapshot-9.jpg)图片来源 GTV
+无论是俄乌还是台海，无论是战火纷飞还是战云密布，无非都是内部危机的极端反映，甚至独裁者打着国家民族名义，只为满足一己变态私欲。
 
-都是爹娘心头好
+世界原本一直在CCP病毒和疫苗灾难真相探寻与强制令的冲突中挣扎，突然全球目光陡然被吸引到战争的生死劫上，可惜没有人去思考这两者间的关系。
 
-冬有棉衣夏有纱
+2月25日新中国联邦创始人郭文贵先生在美国现场引发上千万公众的深度思考。病毒真相始终迷局，疫苗灾难即将迸发，全球经济面临崩塌，何止一个俄罗斯，很多政客都需要一场战争。
 
-娇娇软软养成花
+【来源链接】https://gtv.org/broadcast/watch/6218d34708ba8a07b1a341e8
 
-厉害国里独奇葩
-
-命如草芥如泥沙
-
-杨氏女儿多不幸
-
-拐拐卖卖到董家
-
-酷吏贪官多爪牙
-
-董家父子凶性发
-
-贪婪钱财做奴才
-
-豪无人性做狗才
-
-二十四载锁铁链
-
-生孩一娃到八娃
-
-日日夜夜多糟蹋
-
-剪了舌头又拔牙
-
-青春女儿生华发
-
-生不如死解脱吧
-
-小哥哥，救救我
-
-离开地狱求求你
-
-好心换得解链锁
-
-出来虎窟入狼窝
-
-入狼窝，医院里
-
-白衣天使假面目
-
-本来没有神经病
-
-硬说神经深井冰
-
-深井冰，要治疗
-
-好药坏药往里倒
-
-管你有病没有病
-
-定要治出神经病
-
-救救我吧救救我
-
-何时何人来救赎
-
-来救赎呀 来救赎
-
-文字版原文：[悲惨世界](https://gnews.org/zh-hans/2060255/)
-
-音频处理：Fei797
-发稿：Fei797
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

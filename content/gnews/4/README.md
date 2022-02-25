@@ -2,56 +2,29 @@
 ---
 
 
-## 有声|哀叹
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2065023/)
+## 2022.2.25大直播 特鲁多成为弃子 加拿大将欲火重生
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2065183/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)当蜘蛛哀叹
-结网不再安全
-蝼蚁命如草芥
-你期望的昌盛
-可还有期待
-当她无助悲泣
-被锁二十四年
-全村人共同作恶
-你期望的良知
-可还在
-他们
-对尊严予取予夺
-对生命予死予杀
-你只是韭菜
-血已流干
-难以醒来
-在梦里
-你过得欢快
-多少次呼唤
-只换来白眼
-在梦里
-你过得欢快
-我们
-只好
-哀叹
-哀叹
+撰稿：大浪小水花
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-25-at-9.29.27-PM.jpeg)
 
 
-文字版原文：[哀叹](https://gnews.org/zh-hans/2062808/)
+郭文贵先生在2022年2月25日大直播中谈到了加拿大总理特鲁多推出紧急法的影响。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
-**更多资讯，更多关注**
+郭先生提到，加拿大拥有西方的英式的立法系统，还有一个真正的司法系统和决策系统。但加拿大没有独立的金融，加拿大是美国一个跟班的角色，加拿大跟美国一个州没有什么区别，加拿大总理特鲁多，就相当于共产党的香港一特区行政特首。特鲁多推出紧急法，实际是美国和达沃斯党为了保护美国的经济利益授意他推出的，紧急法推出后特鲁多就被达沃斯党和美国抛弃了。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+郭先生指出，加拿大是世界上包容性最强的地方之一，加拿大人是最听话的国民。在加拿大底层人占了将近百分之七十，是这个国家稳定的基石。加拿大的紧急法触动了加拿大底层人的利益，让底层人没有了安全感。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+特鲁多把加拿大社会的基石给毁了，金融系统被彻底破坏，媒体被百分之百控制，更夸张的是，特鲁多把香港政府那一套全搬来加拿大对付加拿大人。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+紧急法的推出让加拿大人彻底看清了加拿大和美国的可悲关系，而且加拿大大卡车运动开启了永远的街头政治的噩梦。
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+郭先生表示，经过这次危机，加拿大一定会置之死地而后生，成为一个新兴的帝国。
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+参考链接：[2022年2月25日文贵大直播](https://gtv.org/broadcast/watch/6218d34708ba8a07b1a341e8)
 
  
 
