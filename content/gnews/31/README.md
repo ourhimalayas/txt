@@ -2,23 +2,37 @@
 ---
 
 
-## 特鲁多撤销“紧急法” 抗议相关账户逐步解冻
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2061753/)
+## 回顾乌克兰的民族独特性及危机来源
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2061879/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-5.png)
-作者：纽约香草山 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2300.png)
-周三，加拿大总理贾斯汀·特鲁多在新闻发布会上，宣布撤销“紧急状态法”。与此同时，与卡车司机抗议活动相关的、被冻结的200多个银行账户，正在逐步解封，总额约800万美元。
+作者：纽约香草山农场-静言
+![](https://assets.gnews.org/wp-content/uploads/2022/02/gtv-best-9.png)
+乌克兰地处欧亚大草原的断层线，属东西方相交之地，自古以来被看作是欧洲的门户，或在战争中成为阻挡敌人的屏障，或在和平时作为连接欧亚或东西方的枢纽。
 
-针对加拿大各地的抗议示威活动，2月14日，特鲁多政府启动“紧急状态法”，而参加抗议活动公民的银行账户因此被冻结。该法案实施以来，受到来自国内外的诸多指责。
+自希罗多德时代起，乌克兰经历了两千多年起起落落。这期间，世界秩序多次变更，不同文化和种族在这里碰撞，塑造出乌克兰独特的边境身份。时至今日，作为多民族的聚居地，乌克兰仍然是东西方力量冲突的焦点，甚至是在夹缝中求生。
 
-据悉，加拿大公民自由协会指出，加拿大公民和平抗议，而政府援引”紧急状态法”涉嫌违宪，并表示将起诉特鲁多政府。
+19世纪，乌克兰民族的缔造者们终结了当地长时期的混乱局势，将当地人与其他居民，尤其是俄罗斯人区别开来，当时，该国的公民不分种族，被统一称为“乌克兰人”。1991年，乌克兰独立建国。
 
-参考链接：[Trudeau to revoke Emergencies Act after convoy blockades end](https://globalnews.ca/news/8639534/justin-trudeau-emergencies-act-announcement/?utm_source=%40globalnews&amp;utm_medium=Twitter)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2303.png)
+
+随后，在近现代的几次世界历史巨变中，乌克兰人起到了举足轻重的作用。
+
+1991年12月，乌克兰公民选择独立建国，历史因此改变了走向：苏联在乌克兰公投后的一个星期里解体，美国获得了冷战的胜利，乌克兰成为冷战宣告落幕之地。
+
+2004年，身着橙色衣衫的乌克兰群众挤满了基辅的广场与街道，他们要求得到公平的选举并最终达成了这一目的。这一被称为“橙色革命”的运动，也带动了诸多国家随后发生的、撼动当地威权统治的“颜色革命”。
+
+2013年年底，乌克兰人再次走上基辅大街，支持国家与欧盟建立更紧密的联系。然而，2014年年初，乌克兰国内的形势出现了意外而悲剧性的转折：当地防暴警察和狙击手向抗议者开枪，造成数十名亲欧盟抗议者的伤亡。
+
+同年，俄罗斯对克里米亚的吞并企图以及乌克兰东部顿巴斯地区策动的混合战，让亲俄分离主义者，将这场俄乌冲突变成了一场真正的国际冲突。
+
+而今，被世界所关注的乌克兰危机再度被俄罗斯和中共两个独裁政权利用，成为威胁美国与欧洲的抓手。
+
+参考链接：[回顾乌克兰的民族独特性及危机来源](https://zh.wikipedia.org/wiki/%E4%B9%8C%E5%85%8B%E5%85%B0)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
 
-总编/编辑：雪梨
+总编：雪梨
+编辑：Irene木木
 校对/发稿：小野貓（文凱琳）
 
 **更多资讯，更多关注**
@@ -30,6 +44,8 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-5.png)

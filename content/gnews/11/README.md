@@ -2,24 +2,19 @@
 ---
 
 
-## 2月25日起日本开放网上入境申请
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2062058/)
+## 星链 &#8220;重新连接汤加与世界&#8221;
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2062120/)
 
-撰稿：东京樱花团/盖特第一批注册
+**编译：verifunny**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/33-3.png)
+据路透社近日报道，SpaceX公司的一个工程师团队为太平洋小岛国汤加的偏远村庄恢复了高速互联网服务，这些村庄在上个月一座大火山爆发后，与附近斐济的海底通信线路被切断。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2月25日起日本开放网上入境申请.jpg)[图片来源](https://www.cnn.co.jp/travel/35164445.html)
+埃隆·马斯克的星链运用之广泛，自动化科技可以利用星链来输送讯息，无论什么地点，什么时候。再加上Meta的Metaverse，人类是否创造了一个全球的虚拟世界？
 
-2月25日起，日本政府将重新开始接受外国人入境的网上申请，3月1日开始放宽对中共病毒（新冠病毒Covid-19）的防范措施。
+科技如此的日新月异，我个人在想地球的统治者会如何对待我们这些老百姓。
 
-自25日上午10点开始，将通过厚生劳动省的在日外国人跟进系统接受在线申请。 希望入境日本的外国人申请签证时需要向日本驻外外交使团出示通过该系统签发的证书。
+**新闻来源**：[https://www.reuters.com/world/asia-pacific/musks-starlink-connects-remote-tonga-villages-still-cut-off-after-tsunami-2022-02-23/](https://www.reuters.com/world/asia-pacific/musks-starlink-connects-remote-tonga-villages-still-cut-off-after-tsunami-2022-02-23/)
 
-信息源：
-
-[外国人入国、申請受付２５日開始　政府](https://www.jiji.com/jc/article?k=2022022401448&amp;g=soc)
-
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

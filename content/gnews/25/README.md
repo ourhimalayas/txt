@@ -2,20 +2,22 @@
 ---
 
 
-## 日本新增感染者6万1259人，死亡206人
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2061971/)
+## 乌克兰10万人流离失所、数千人逃离
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2062026/)
 
-撰稿：东京樱花团/向海
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2311.png)
-据NNN总结，24日新增6万1259人感染新冠病毒，206人死亡。
+撰稿：东京樱花团/风翼
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片8-4.png)图片来源于网络
+据JIJI.COM媒体转发法新社报道，联合国难民事务高级专员办事处(UNHCR)发言官2月24日表示，俄罗斯入侵后乌克兰流离失所者人数已达到10万人以上，数千人以逃离国外。
 
-截至23日，重症人数较前一日减少15人至1474人。
+联合国难民事务高级专员办事处在同一天发表的声明表示，以准备向乌克兰提供人道主义援助，并呼吁邻近的欧洲国家保持其边界开放，并接收流离失所者。
 
-信息来源：[国の新規感染者6万1259人、死者206人（24日）](https://news.yahoo.co.jp/articles/678d167eee9398d015cc704d951b22bb191c4901)
+信息来源
 
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
+[ウクライナ、国内避難１０万人　数千人は国外脱出―ＵＮＨＣＲ](https://www.jiji.com/sp/article?k=2022022500344&amp;g=int)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

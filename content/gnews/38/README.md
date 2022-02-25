@@ -2,39 +2,74 @@
 ---
 
 
-## 樱花FM|失败的冬奥促习侵台决心 同时中共释放乌白军演烟雾弹
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2061569/)
+## 有声|恩宠/恭顺
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2061680/)
 
-音频：东京樱花团/战友520
-![](https://lh3.googleusercontent.com/fGHUIGJPfFSETHdntusZDHuXdZMpQs8WfliRYiKS7mtzXJ57o6-MTwVLSIEVL9YIk6stGxFbfxW24PIoKutYYRNpdZ4CjY9sXOWE5pHSQn9ehktnt5gyjYtLQOJwQJDuQdZBXJdj)
-- **习近平正在酝酿对台湾战争的整个作战计划；**
-- **世界大战一触即发，俄军发动乌克兰战争将是一场历史转折点；**
-- **正乌克兰国防部：迎接敌人的方式不是鲜花，将是“毒刺”。**
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+馒头有毒
+饼也不干净
+地沟油做的点心
+大家伙儿放心使用
+特供，特供
+没有你们的份
+吃点儿毒食品
+是我对你们恩宠
+感恩戴德
+是你该有恭顺
+恩宠恩宠
+你该恭顺
+
+送女儿上门
+年纪大的别送
+小小孩儿最可心
+供我无尽享用
+扔一块儿狗粮
+你尽管放心
+天塌不下来
+有高个给咱顶
+中南海的祖宗
+多送多送
+金子女子
+再多再送
+再扔一块狗粮
+送来老婆母亲
+
+人间地狱
+谁会关心
+无尽的金钱女子
+都归我享用
+特供特供
+没有你们份
+狗粮和毒食品
+都是我对你恩宠
+恩宠恩宠
+你该恭顺
+
+- **审稿/校对/发稿：**qiutian（邱甜）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-1-2.png)
 
 
-据中共国新华社15日消息，[乌克兰国防部](https://www.mil.gov.ua/)长列兹尼科夫14日与白俄罗斯国防部长赫列宁通电话，双方同意互派武官观摩对方演习。据说，此次通话旨在恢复对话、降低风险水平、确保地区安全，以排除突发情况，并相互通报紧急情况。
+文字版原文：[恩宠/恭顺](https://gnews.org/zh-hans/2059256/)
 
-问题是，突发情况已经在酝酿中，始作俑者中共国习近平正在为酝酿“突发情况”做准备。据郭文贵先生美国当地时间14日透露，冬奥会开幕式后8天没见习近平露面，习和他的团队所有人在处心积虑地酝酿一场对台湾战争的整个作战计划。这就是爆料革命一直在向世界发出战争预警，因为“只有爆料革命告诉全世界，普京和习近平在2020年和2021年都已经密谋好，你（中共）取台湾，我（俄罗斯）取乌克兰，而这一天就要来了。”（[见 7:21分时段](https://gettr.com/post/puh5sv8f69)）
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-- ***延展阅读：***[***欧盟-挪威敦促其公民避免前往乌克兰、白俄罗斯和俄罗斯***](https://www.schengenvisainfo.com/news/norway-urges-its-citizens-to-avoid-travel-to-ukraine-belarus-russia/)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-狼真的来了！中共国新华社的“乌白军演”讯息旨在释放的战前烟雾弹。乌克兰和白俄罗斯在2013年前曾有军事互动，之后两国因为俄罗斯的缘故处于敌对状态，新华社此举旨在进一步安抚国内强大的俄中同盟关系的又一次洗脑而已。
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-俄乌剑拔弩张，问题严峻，在强敌面前，乌克兰国防部长誓言军方绝对准备好反击，而不是去白俄罗斯观摩所谓军演。不过，发生在白俄罗斯的军事演习是真的，据称，俄军已于 1 月中旬开始抵达白俄罗斯，预计约有 30,000 名作战部队将参加被称为“联合决心”的演习。因为，[俄罗斯在白俄罗斯的军事演习旨在向乌克兰“传达信息](https://www.aljazeera.com/news/2022/2/9/russian-war-games-in-belarus-designed-to-send-ukraine-a-message)”，而不是邀请乌克兰观摩“俄白联盟”如何侵吞乌克兰。
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-- ***延展阅读：***[***不只是乌克兰 – 俄罗斯与白俄罗斯的联合被忽视了***](https://www.forbes.com/sites/craighooper/2022/02/14/its-not-just-ukraine-russias-anschluss-in-belarus-has-gone-unnoticed/)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-乌克兰在被俄军包围下仍未选择屈服，而是背靠强大的北约和美军的坚定支持准备与俄军决一死战。根据美国[国会山](https://thehill.com/policy/defense/594001-ukrainian-defense-minister-vows-military-is-absolutely-ready-to-fight-back?rl=1)消息，面对俄军随时入侵的可能，乌克兰军方誓言绝地反击，称“乌克兰武装部队准备用“毒刺”而不是“鲜花”来迎接俄罗斯军队。”
-
-乌克兰态度明确，乌克兰国防部长表示，“自2014年俄罗斯吞并乌克兰的克里米亚半岛以来。当‘兄弟’明目张胆地在背后捅刀时，军队和志愿者们设法站稳了脚跟。那个时候，很多人还没有做好抗拒昨天同桌的心理准备。”雷兹尼科夫说，“克里姆林宫很清楚这一点，这是一个重要的威慑，今天，我们拥有过去 15 年来乌克兰最强大的军队和欧洲最强大的军队。”
-
-文字版原文：[失败的冬奥促习侵台决心 同时中共释放乌白军演烟雾弹 – GNEWS](https://gnews.org/zh-hans/2011305/)
-
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,18 +2,20 @@
 ---
 
 
-## 中日财经爆| 蚂蚁集团去年第三季净利润大跌10%
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2061949/)
+## 俄罗斯爆发全国反战抗议 1700多人已被拘留
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2062000/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2310.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fi3.wp.com%2Fwww.alkhaleej.ae%2Fsites%2Fdefault%2Ffiles%2Fstyles%2Fsocial_large%2Fpublic%2F2021-11%2F3839419.jpeg&amp;imgrefurl=https%3A%2F%2Fwww.archyde.com%2Falibabas-profits-fall-81-on-the-impact-of-the-c)
-阿里巴巴（2月24日）周四晚间发布最新财报称，公司在2021年第三季，从蚂蚁集团录得投资收益58.11亿元人民币；据此测算，蚂蚁集团同期录得净利润176.1亿元，较第二季下降10.7%。
+撰稿：东京樱花团/盖特第一批注册
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2315.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fcdn.theatlantic.com%2Fthumbor%2FfDRek8S-7AyygM672V1hT4_1I4g%3D%2F900x600%2Fmedia%2Fimg%2Fphoto%2F2022%2F02%2Frussia-protests%2Fa01_AP22055639533912%2Foriginal.jpg&amp;imgrefurl=https%3A%2F%2Fwww.theatlantic)
+2月24日，在首都莫斯科和俄罗斯其他地区发生了反对俄罗斯入侵乌克兰的抗议活动。 据一俄罗斯人权监督组织称，截至24日晚（25日清晨），至少有956人被莫斯科的安全当局拘留。 此外，在全国44个城市有超过1745人被拘留。
 
-阿里巴巴延后一个季度计入所有权益法核算的投资损益，据其此前披露的财报数据测算，蚂蚁集团去年第二季录得的净利润为197.1亿元，环比增约45%。
+参加抗议活动的一名20多岁的女性说：”我为站在乌克兰人面前感到羞耻。 我想道歉，经济制裁、国际孤立….。 我认为这就是俄罗斯的末日。”
 
-在IPO临门遭叫停后，蚂蚁集团陷入漫长的整改期，目前尚未出现重启IPO的曙光。其最新相关动态为：中共国监管部门近期要求国有企业启动新一轮检查，监管当局要求这些国有企业提交与蚂蚁集团有关的股票投资、资产支持证券风险敞口以及贷款的细节。
+一位三十多岁的男性上班族愤怒地说，”为什么克里姆林宫里没有人阻止普京总统？ 与乌克兰的战争不是俄罗斯人民的意愿。”
 
-消息来源：[蚂蚁集团去年9月底止的三个月净利润176亿元，环比下降逾10%–路透测算](https://cn.reuters.com/article/ant-group-profit-0225-idCNKBS2KU057?il=0)
+对普京来说，这种国内反弹比国际经济制裁更具破坏性。我们希望，俄罗斯人民的抗议将能够促使军事行动的停止。
+
+信息源：[「ウクライナ人に謝りたい」　ロシア各地で反戦デモ　１７００人超拘束](https://news.yahoo.co.jp/articles/3297c221f7c6a42ec0e744a4254b96c10c1a2305)
 
 *编辑：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/平安卿卿*
