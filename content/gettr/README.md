@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/25/2022 1:30 AM (UTC)`
+
+🆘🆘🆘为了集合全球战友资源救助台湾战友，联盟发放统一登记表格，请有可能提供救助资源的战友填写，表格链接：<br/><br/>https://forms.gle/pgVrayLJKqS7NMsN8<br/><br/><br/>联盟-身在台湾的战友撤离统计表单：<br/><br/>https://docs.google.com/forms/d/e/1FAIpQLScjccjoDUB3u-OhC-zeZDvvtiHqxXo1z4h6Ls_LkxxtLZEYJw/viewform<br/><br/>考虑到目前紧张局势，针对墙内战友和香港战友撤离需要寻求协助，联盟发出统一的登记表格，表格链接：<br/><br/>https://forms.gle/Xaiofs6eKWvbhLTf7 
+
+---
+
 `@miles 2/25/2022 1:18 AM (UTC)`
 
 2/24/2022 Miles Guo’s Urgent Livestream: The CCP will definitely invade Taiwan! Fellow fighters, please do not take any chance. Stay away from the CCP’s military bases ASAP, and Communist China will sustain huge casualties. The CCP’s NO. 1 document means that the Lao Baixing will suffer, the CCP will return to the era of the People's Commune, and the CCP’s real estate will collapse.<br/><br/>2/24/2022 文贵紧急直播：中共一定打台湾！战友们不要投机、在军事基地周围的赶快跑，中共国将血流成河；中共1号文件意味着老百姓要遭殃、中共将回到人民公社时代、房地产会崩塌<br/>
@@ -147,13 +153,6 @@
 
 2/23/2022 Miles Guo: Why will the US be the biggest winner? Will Putin, who has taken trillions of dollars from the Chinese people, be able to realize his dream of the Russian Empire?<br/><br/>2/23/2022 文贵直播：为什么说美国才是最大的赢家？拿了中国人上万亿美元的普京能实现他的俄罗斯帝国梦吗？
 ![img](https://media.gettr.com/group44/getter/2022/02/24/03/1871228e-2921-c4dd-385d-e10aec57f438/out.jpg)
-
----
-
-`@miles 2/24/2022 2:53 AM (UTC)`
-
-2/23/2022 Miles Guo: China has been lacking faith and education for so long, leading to all kinds of bastards who lack spirituality and those in the cultural realm. It is not the US but the nomads in the north of China that has caused the Chinese people’s suffering. But now Russia is going to help us take down the CCP, and the Chinese people are going to pay a huge price for it.<br/><br/>2/23/2022 文贵直播：中国因为长期缺失信仰、教育，造成精神文化杂种丛生；给中国造成苦难的不是美国，而是北方游牧民族和苏俄，但这次俄罗斯要帮我们消灭共产党了，而中国人将付出巨大代价<br/>
-![img](https://media.gettr.com/group8/getter/2022/02/24/02/7b1bbec1-bc4e-2fd0-075b-a3f3a4b588c8/out.jpg)
 
 ---
 

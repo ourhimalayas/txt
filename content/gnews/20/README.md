@@ -2,34 +2,31 @@
 ---
 
 
-## 短视频：贿赂医院做出虚假新冠诊断，从而推广致命药物
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2061131/)
+## 七哥谈中共军事基地
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2061224/)
 
-#### 翻译：Frank
-校对：枳实
-字幕：小强
-编辑：文泓
+文编：Hima
+听写：叮叮
+视频：七哥
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image01-5.png)图片来源：视频截屏
+2022-02-24直播摘录
 
+陕西基地啊，三亚亚龙湾基地肯定完了肯定是。香港的军事基地也都会给他砸掉，一定砸掉的，一定给他铲平的。广东很不安全，不好打的时候广东、深圳、东莞、上海啊，广州、北京、大连、沈阳、哈尔冰啊，这些所谓的经济中心，一定给你铲平了，一定给你铲平了，全给你炸毁了。然后，所有的有导弹基地的地方都会给你炸。四川的几个导弹基地，还有什么卫星发射中心，海南三亚的木兰岛都给你铲平。重庆会很惨，因为重庆那个地方有很多基地，就像江西一样。共产党几乎过去和平时期绑定农民，战争时绑定城市。大家要记住啊，海外就绑定海外华人，让你排华。青岛的基地会很惨，我很多家人在青岛会很惨。河北会好一些，河北有几个地理会好一些。再一个就是山西，山西还好。广西，哎，不行，广西有很多基地啊。
 
-因此，从2020年3月开始，他们开始激励医院和临床医生给出给出错误的新冠诊断，即使他们的核酸检测并没有阳性。而且他们奖励这种行为。因此，是的，这是一个假象，由我们的联邦卫生机构精心策划，夸大了新冠的病例，夸大了新冠导致的死亡。而且他们把它们称为新冠的并发症。而且我肯定会呼吁尽可能多的原告（加入诉讼），他们的亲人在世界各地的医院中接受了瑞德西韦治疗而死亡。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-实际上，我已经鼓励，请求，而且我已经收到了来自世界各地的数千份（加入诉讼的申请）。我要求他们看一下死亡证书，你会看到他们死于新冠的并发症。第二诊断是，死于急性肾衰竭，他们死于再次发作的新冠肺炎的并发症。
+**关注我们**
 
-这不是新冠肺炎的再次发作，当你关闭了肾脏，然后用一个静脉注射袋，把液体漫灌到某人的静脉中，他们无法从他们的肾脏排泄，你会造成液体充满他们的腹部，然后灌满他们的心脏，然后渗透到肺中，他们就这样被淹死了。而这就叫做肺水肿。
+Discord 账号
 
-因此，我呼吁大家尽可能多地让这些人参与进来，提供更多这些实际信息。我们知道这就是药物的作用。是的，他们是死于病毒是一种假象。他们是被不明智的治疗方案毒死的。绝对是这样。他们还被要求和被奖励以做出更多（新冠）诊断，以人为地夸大阳性病例数量。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-视频链接：[The Vigilant Fox 🦊 在 Twitter: “Dr. Bryan Ardis explains the “illusion” of the current world sickness, in which doctors are incentivized to make COVID diagnoses even if patients don’t test positive. https://t.co/efwepl9Hha” / Twitter](https://twitter.com/vigilantfox/status/1493328770039783424?s=21)
+Gettr 账号
 
-发布：文泓
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
