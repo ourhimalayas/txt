@@ -2,29 +2,36 @@
 ---
 
 
-## 俄入侵乌克兰，中共骑虎难下
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2065411/)
+## 俄乌危机致全球粮食价格大幅上涨
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2065480/)
 
-作者：波士顿五月花  2020灭共必胜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/0B9.jpg)
-2.24日，俄罗斯正式大举入侵乌克兰，这验证了郭文贵先生在大直播中的判断和情报，同时也验证了此前郭文贵先生在大直播中所说，习近平和普京在北京冬奥会开幕式前那场两个多小时，只有翻译器和他们两个人之间的单独秘密会谈。
+作者：银河系农场—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月23日，据相关媒体消息显示，俄罗斯与乌克兰、美国和欧盟之间日渐加剧的危机可能会给全球粮食供应带来更大的压力。目前，小麦、玉米、葵花油等基础作物的价格正在一路攀升。
 
-在2.24日晚，人们都在纷纷议论着中共会不会这个时候打台湾，因为郭文贵先生一直在警告全世界，拿下香港后习近平一直对台湾垂涎欲滴，同时也和普京商量好你取你的乌克兰，我取我的台湾。随后文贵先生在半夜发布盖特和直播，提醒台湾战友能走的走，因为共产党有很大机率打台湾。万幸上天庇佑，又或者火候还没到，共匪的军队当晚没有入侵台湾。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-8.jpeg)
 
-为何习敢拿下台湾？因为从习被奥巴马和党内高层玩弄后，已经选择了“普”仲勋作为自己的爸爸，组成生死联盟，福祸相依，普爸爸要什么给什么，每年石油天然气贸易金额不断升高，冬奥会前更是送给普京上万亿美元的大礼，普爸爸笑开了怀，在一番秘密商议后，他们笃定美国不敢打仗。有了中共大撒币的输血，于是冬奥会后普京先进攻了乌克兰。
+数据表明，俄罗斯和乌克兰拥有全世界80%的葵花油出口、29%的小麦出口和19%的玉米出口，中东很多国家的粮食供应都依赖于此。然而，由于近期双方战争局势的恶化，黑海的运输港口眼下已经被切断，从而导致了俄乌粮食出口的中断。
 
-为何习要拿下台湾？首先20大选举即将到来，为了自己能够连任主席，巩固自己的势力，习只能效仿邓小平发动战争，同时能够削弱自己政治对手的实力。其次在美国授权撤离使馆，并暗示习和中共必须为病毒和疫苗背锅的情况下，与其坐以待毙，何不拼死一搏，搞不好单车变摩托，拿下台湾，消灭欧美，让自己成为一个比中共创始人毛贼东还牛的存在，甚至超越秦始皇。
+另一方面，自俄罗斯向顿涅茨克和卢甘茨克派遣军队之后，各国对其的经济制裁不断加码，这严重破坏了世界粮食供应的稳定性，而美国的粮食期货价格也因此不断飙升。另外，重度依赖粮食进口的北非、亚洲和中东地区同样被大范围影响。
 
-最后无论习打不打台湾，美国都会成为赢家，新中国联邦成为最大的赢家。因为美国已经醒来，爆料革命已经唤醒了全世界，普京也有可能最后时刻戏耍一把中共，因为世界可以原谅俄罗斯，但不会原谅中共。
+当前，乌克兰所处的黑海地区是军事冲突的聚焦点，平常繁忙的商业运输如今因军事升级而被中断。经济学家表示，该地区的粮食供应中断将会导致全球粮食价格的飞涨。
 
-* * *
+参考链接：[Russia-Ukraine crisis will put even more strain on the global food supply, driving up prices of wheat and corn around the world](https://newstarget.com/2022-02-23-russia-ukraine-crisis-more-strain-global-food-supply.html)
 
-*编辑：文合*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-*封面：水涨船高*
+总编：Irene木木
+编辑：静言
+校正/发稿：谐趣园
 
-*发布：吐纳*
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
