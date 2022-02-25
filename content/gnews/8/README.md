@@ -2,33 +2,37 @@
 ---
 
 
-## 有声｜英首相公布有史以来对俄最严厉制裁计划
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2063484/)
+## Richard Gere因批评中共而被好莱坞列入黑名单
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2063566/)
 
-**By:秘翻新闻**
+作者：银河系农场 – 骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+好莱坞著名影星Richard Gere因长期批判中共人权问题而被好莱坞列入了黑名单。
 
-**2022-02-25**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/richardgereprettywoman1-640x480-1.jpg)
 
-《路透社》伦敦2月24日报道，周四，英国首相约翰逊公布了英国有史以来最大规模的对俄制裁计划，制裁对象包括银行、俄罗斯总统普京最亲密的圈子成员，以及享受伦敦奢华生活的俄罗斯富人。
+20世纪90年代末至21世纪初，美国的好莱坞市场大规模扩张中共国市场，在利益驱使下， 对中共不满情绪的人或者作品出现，这势必会影响中共国市场的盈利。Richard Gere曾经在1993年的奥斯卡颁奖典礼上怒斥中共可怕的人权状况，呼吁解放西藏。显而易见的，这位影星的生涯慢慢结束了。在Richard Gere的履历上，他只获得了很少的工作与演出机会，按照他的才能，这样的年纪，他本应该拥有非常广阔的演艺事业和获得极高的名誉。
 
-报道指出，在普京对乌克兰宣战几个小时后，西方国家正在协调行动，对俄罗斯实施严厉制裁，以回应对乌克兰的全面军事入侵。
+好莱坞和中共的勾兑已经让艺术失去了完整性和基本的人类精神，有大量记录证实，好莱坞的多数艺术家愿意贬低自我为中共进行虚假宣传。
 
-约翰逊表示，各国领导人已经同意共同努力，让普京付出最大的经济代价。英国的第二轮制裁措施包括对100多名俄罗斯个人和实体实施制裁，而且还包括普京曾经的女婿基里尔·沙马洛夫。
+目前好莱坞正在承受与中共亲密无间带来的恶果，金融与艺术灾难并存。中共不讲任何规则用完即扔的态度同样适用于好莱坞，尽管好莱坞尝试继续安抚中共，但无济于事。
 
-据报道，英国还将禁止俄罗斯航空公司的飞机在英国降落，暂停对俄罗斯的双重出口许可证，并禁止一些高科技出口产品和部分采掘行业的出口。
+参考链接：
 
-此外，约翰逊还呼吁将俄罗斯排除在SWIFT支付系统之外。
+- [Nolte: Hollywood Blacklists Richard Gere over China Criticism](https://www.breitbart.com/entertainment/2022/02/23/nolte-hollywood-blacklists-richard-gere-over-china-criticism/)
 
-(秘翻新闻  冰糖葫芦喵编译报道)
 
-新闻来源
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-[https://www.reuters.com/world/west-will-slap-unprecedented-sanctions-russia-britain-says-2022-02-24/](https://www.reuters.com/world/west-will-slap-unprecedented-sanctions-russia-britain-says-2022-02-24/)
+编辑/校对/发稿：海阔天空1
 
-发布 : 文橙
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
