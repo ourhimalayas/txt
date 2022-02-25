@@ -2,45 +2,32 @@
 ---
 
 
-## 大直播&#8211;为灭共什么都可以失去！
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2064530/)
+## 邪恶共产主义试图奴役世界
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2064679/)
 
-作者：纽约香草山 信息部—6zero4
+作者：纽约磐石农场 – 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生在2月20日的大直播中解读了当今世界的局势，即以中共为代表的国际共产主义正试图奴役全人类，这直接导致世界陷入黑暗之中。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3-85.jpg)
+郭先生解释道，在一个缺乏法制的社会中，当地民众只会人人自危。尤其在中共独裁统治下，其通过一党专政来践踏中国的法律、道德和信仰，还以洗脑剥夺了人们分析和思考问题的能力。如今，中共国内巨大的贫富差距和即将崩溃的经济已经让中国人的生存变得日益艰难。
 
+郭先生还补充道，从2019年香港民主的殒落，到眼下祸害全球的中共病毒及其疫苗，再加上目前几乎所有国家陷入的政治和经济动荡，这一切都是由邪恶中共和达沃斯党奉行的极左共产主义试图奴役整个世界而造成的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-63.png)
-郭先生在2022年2月16日的大直播中谈到，自己不想拥有财富，就像灭共后郭先生不想拥有政治权力一样坚决！想到爆料革命和新中国联邦的队伍越来越强大，郭先生哪有个人破产的恐惧？唯有破产后轻装上阵加快灭共的轻松和喜悦！
-![](https://assets.gnews.org/wp-content/uploads/2022/02/mz28.1.jpg)
-郭先生推崇的是遇难呈祥，在危机中找到生机。虽然这个过程是痛苦和无奈的，但只要你不放弃，就能实现人生的伟大目标。塞翁失马，焉知非福？天下道路不只一条！一切苦难都是走向甘甜和幸福的开始与基础。
+参考链接：[人类面临的一切灾难都是共产党试图要奴役这个世界造成的](https://gnews.org/zh-hans/2050631/)
 
-放下是另一种方式的拥有，放下才能拥有更多，放下得到的是快乐！郭先生用自己的生命和智慧打造的，装满自己爱情和孩子成长乐趣的盘古、裕达都放下了，一个十八楼算事儿吗？何况拥有了天下所有兄弟姐妹的爱和信任，比拥有财富本身好得多得多！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-人生最大的哲学和快乐就是放得下，享受失去和珍惜得到，破掉内心的执着！人生就三万多天，不值得为心中的执着和执念让自己痛苦！不要因失去而痛苦，只为得到太多而担心，这才是真正的修行成功。我们的一切修行都是为了灭共，灭共过程是修行，灭共成功是得道，为灭共什么都可以失去！
-
-参考来源：
-
-[https://gtv.org/video/id=620cf40c432ae869226d8db5](https://gtv.org/video/id=620cf40c432ae869226d8db5)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-54.jpg)
-
-
-
-编辑/校对/发稿：兰兰
+总编: Irene木木
+编辑: 宁文静
+校正/发稿：Fei797
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-64.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
  

@@ -2,40 +2,47 @@
 ---
 
 
-## 喜马拉雅联盟委员会统一整合资源营救战友
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2064281/)
+## 前美国国务卿蓬佩奥下月访问台湾
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2064630/)
 
-作者：纽约香草山农场 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在2月24日的紧急直播中，郭文贵先生要求喜马拉雅联盟委员会统一协调、立即行动，整合所有资源准备营救台湾、香港、乌克兰以及内地愿意离开战争高风险地区的战友及其家人。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-388.jpg)
-郭先生指出，全球长时间的和平期导致很多人丧失了对战争的警惕，因此，俄罗斯突然对乌克兰发动军事袭击震撼了世界。然而，美国和欧盟不会出兵增援乌克兰，只能在经济、金融和政治上制裁俄罗斯。在此情况下，战友们只能组织自救。
+作者：首尔天池农场—追着曙光跑
 
-郭先生强调，在俄乌战争乱局中，中共一定会趁机突袭台湾。而台海战争一旦打响，内地的军事基地、导弹基地，还有香港的军事基地都可能遭到联军的轰炸。为此，身处台湾、香港和内地战争区的战友们在心理上要做最坏的打算，也要抓住短暂的时间窗口尽快离开风险之地。
 
-郭先生表示，如果战友及其家人们下定决定离开故土，新中国联邦将提供一切帮助。目前，此项营救行动已经交由联盟委员会负责协调，其后会在盖特上统一发布信息。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-65.png)
+据台湾外交部官网2022年2月21日的消息，美国前国务卿蓬佩奥（Mike Pompeo）夫妇将于3月2日至5日访问台湾，期间会见蔡英文总统。同时也会接受副总统赖清德款宴，拜会立法院长游锡堃、外交部长吴釗燮，并接受吴部长款宴。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2_.jpg)
+此外，蓬佩奥前国务卿也会应远景基金会邀请於3月4日出席演讲活动，也将与台湾政、商、学等各界人士交流互动，强化台美间的紧密友好关係。
 
-当天下午，联盟委员会也在直播中宣布，联盟已经成立了紧急应对小组，并统一发放了全球战友资源登记表、台湾战友撤离统计表和香港、内地战友协助撤离统计表。联盟委员会声明，这项行动以全球农场为主要组织者，不提倡战友个人之间联系，也建议战友不要只为表达关心和示好而占用宝贵的信息资源。
+台湾外交部称，蓬佩奥在任内促成特朗普政府多次对台军售、解密美国对台湾的“六项保证”相关文件、宣布撤销台美交往限制等。 蓬佩奥来访充分展现美国两党一致对台湾坚若磐石的支持，以及台美全方位伙伴关系的紧密友好。
 
-战争是残酷的，而新中国联邦将用务实的行动，为战友提供迅捷、安全和温暖的援助。
+现年58岁的蓬佩奥曾任美国陆军军官、联邦众议员和中情局局长等职，他在2018年4月至2021年1月担任特朗普政府的国务卿。在任期间的最后一天2021年1月19日，宣布中共政府在新疆对维吾尔族及其他穆斯林少数民族犯下种族清洗与反人类罪。特朗普下台后，蓬佩奥在哈德逊研究所担任高级研究员。
 
-参考链接：
-1) . [2022-02-24文贵紧急直播： 🆘 🆘 🆘 台湾危机，请台湾同胞们尽快撤离，能够提供帮助的战友请与联盟委员会联系。为台湾同胞，乌克兰人民祈福🙏🙏🙏](https://gtv.org/video/id=6217c08608ba8a07b1a2c0fb)
-2) . [联盟救助台湾战友紧急直播](https://gtv.org/video/id=6217d8d508ba8a07b1a2d69b)
+参考来源：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+[外交部誠摯歡迎美國前國務卿龐培歐伉儷訪問台灣](https://www.mofa.gov.tw/News_Content.aspx?n=95&amp;sms=73&amp;s=97387)
 
-总编: Irene木木
-编辑: 文真
-校正/发稿：Fei797
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-55.jpg)
+
+编辑/校对/发稿：兰兰
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-66.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

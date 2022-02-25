@@ -2,24 +2,47 @@
 ---
 
 
-## 樱花FM|中日财经爆:英特尔54亿美元收购高塔半导体
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2064212/)
+## 大直播&#8211;为灭共什么都可以失去！
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2064530/)
 
-音频：东京樱花团/战友520
-![](https://lh4.googleusercontent.com/ZyZWLjMB48Sbq8nBKAEP33IKajQ5v61lFWbrr2jbk4zf0jhNPRfU-0Aenug9BgR776itBx9TveSeEzfNO7UT1n9kJEGjo3qNS7WEs5daCR06tWabAHjivTTkJqICvsvRHM8a0R0R)
-英特尔周二（2月15日）宣布以54亿美元收购以色列芯片制造商高塔半导体（Tower Semiconductor），以取得更多专业化生产能力。
+作者：纽约香草山 信息部—6zero4
 
-英特尔对Tower Semiconductor的收购价为每股53美元，远高于周一收盘价33.13美元。高塔半导体专门生产用于汽车、医疗传感器和电源管理的模拟芯片。
 
-这项收购案将加强英特尔在全球晶圆代工产业中的地位。台积电目前是全球晶圆代工龙头。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-63.png)
+郭先生在2022年2月16日的大直播中谈到，自己不想拥有财富，就像灭共后郭先生不想拥有政治权力一样坚决！想到爆料革命和新中国联邦的队伍越来越强大，郭先生哪有个人破产的恐惧？唯有破产后轻装上阵加快灭共的轻松和喜悦！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/mz28.1.jpg)
+郭先生推崇的是遇难呈祥，在危机中找到生机。虽然这个过程是痛苦和无奈的，但只要你不放弃，就能实现人生的伟大目标。塞翁失马，焉知非福？天下道路不只一条！一切苦难都是走向甘甜和幸福的开始与基础。
 
-英特尔首席执行官Pat Gelsinger表示，英特尔和Tower的技术是互补的，目前晶圆代工市场的规模为1,000亿美元，预计在2030年之前将会急剧增长。
+放下是另一种方式的拥有，放下才能拥有更多，放下得到的是快乐！郭先生用自己的生命和智慧打造的，装满自己爱情和孩子成长乐趣的盘古、裕达都放下了，一个十八楼算事儿吗？何况拥有了天下所有兄弟姐妹的爱和信任，比拥有财富本身好得多得多！
 
-文字版原文：[中日财经爆|英特尔54亿美元收购高塔半导体 – GNEWS](https://gnews.org/zh-hans/2012726/)
+人生最大的哲学和快乐就是放得下，享受失去和珍惜得到，破掉内心的执着！人生就三万多天，不值得为心中的执着和执念让自己痛苦！不要因失去而痛苦，只为得到太多而担心，这才是真正的修行成功。我们的一切修行都是为了灭共，灭共过程是修行，灭共成功是得道，为灭共什么都可以失去！
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
+参考来源：
+
+[https://gtv.org/video/id=620cf40c432ae869226d8db5](https://gtv.org/video/id=620cf40c432ae869226d8db5)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-54.jpg)
+
+
+
+编辑/校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-64.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,37 +2,27 @@
 ---
 
 
-## 有声|川普：普京谋求乌克兰，中共一定打台湾
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2064673/)
+## 视频|美国更新“未经核实名单” 中共生物制药业恐慌
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2064833/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-2月22日，美国前总统川普表示，普京对乌克兰的军事行动是中共习近平试图夺回台湾的信号，在国际政治角逐中，普京和习近平的关系像极了双胞胎姐妹。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-14.jpg)
-川普认为普京和习近平是心照不宣的全天候联盟关系，冬奥会结束后，普京马上对乌克兰采取了行动，紧接着，世界应该开始关注台湾的安危。尽管拜登政府在对俄罗斯入侵乌克兰的问题上已经采取了多种制裁，但美国和欧洲还要担心的是因为战争引发的难民潮问题。国际社会几经谴责俄罗斯对乌克兰的计划入侵，但普京未曾改变策略，而习近平也在对台湾蠢蠢欲动。一场火战迫在眉睫。
+制作：香草山视频部
 
-此前郭文贵先生在直播中提到，乌克兰希望欧美等国能够在战争开始前做出有力阻止，不要等到乌克兰整个已经被毁掉了才开始有所动作，那已经为时已晚。欧美国家的妥协会让乌克兰陷入至暗时刻，包括台湾。
+尽管中共海关宣称2021年进出口总额达到6.05万亿美元，同比增长约30%，贸易顺差达6,764.3亿美元。但面对美国的贸易管制，稍有风吹草动，中共国的出口型企业和资本市场就如“惊弓之鸟”，不堪一击。
 
+美国商务部工业与安全局2月发布了更新的“未经核实名单”，增加了33家中共公司和机构，生物制剂服务商药明生物被列入其中。尽管“未经核实名单”管制相对较弱，但药明生物股价当天从前一天收盘价格的80.6港币一度最低跌至55港币，最大跌幅超过30%，同时引发中共国CXO医药外包板块整体大跌。“未经核实名单”的贸易管制力度远低于“实体清单”，却引发了资本市场对中共国生物制药行业的恐慌，凸显了中共国出口贸易数据和相关产业链的脆弱性。
 
+中共国宣传的6万亿美元的“强劲”贸易数据，是在海外市场需求强劲、全球产业链被中共病毒疫情严重破坏，加上中共国企业能提前顺利大量进口海外技术和设备的多重背景下达成的。从贸易结构细分领域来看，此次美国更新的“未经核实名单”涉及的生物医药生产设备，如生物反应器等上游核心生产设备和耗材，仍掌握在在美国和欧洲龙头企业手里。一旦欧美贸易管制加码，将对中共国缺乏核心技术的产业链，乃至贸易进出口的虚假繁荣带来重大打击。
 
-文字版原文：[川普：普京谋求乌克兰，中共一定打台湾](https://gnews.org/zh-hans/2059618/)
+发稿：Daxia
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

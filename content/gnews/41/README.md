@@ -2,35 +2,26 @@
 ---
 
 
-## 台湾谴责俄罗斯，加强防护应对中共威胁
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2063523/)
+## 中日财经爆┃对抗中俄 日本通过经济安全促进法案
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2063922/)
 
-作者：纽约香草山 – Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-台湾总统蔡英文于2月23日表示，谴责俄罗斯侵犯乌克兰主权，并呼吁以和平方式解决争端。
+撰稿：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2022/02/6-43.jpg)
+[图片源](https://www.kantei.go.jp/jp/101_kishida/actions/202111/19keizaianpo.html)：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/7-37.jpg)
+25日，日本政府在内阁会议上通过了一项关于经济安全促进法案的决议。来自中俄两国网络攻击及技术崛起的威胁，日方决定将加强半导体等重要材料的供应网络，官民合作，促进先进技术的发展，同时还应防止重要信息的泄露，并将其置于岸田政府经济安全政策的核心，力争在国会会议上尽早通过。
 
-在密切关注俄乌局势的同时，蔡英文总统要求所有政府机构警惕中共，企图利用乌克兰局势影响台湾舆论的潜在行动，并要求政府为乌克兰局势对全球和国内经济的潜在短期和长期影响做好准备，并制定计划以确保战略物资供应，稳定商品价格和金融市场。她还指示国家安全部门和武装部队，加强对台海局势的监测，并继续完善防务准备工作。
+美国和欧洲在经济安全政策方面领先于日本。政府认为，为了与欧美合作，有必要通过立法建立一个保障官民顺利协作的完备体系。该法案包括对民营企业机构等技术开发方面的国家支援，同时也规定了对企业泄露重要信息的惩罚措施。
 
-参考链接：
+信息源:
 
-- [Taiwan condemns Russia for violation of Ukraine’s sovereignty](https://focustaiwan.tw/politics/202202230009)
+[経済安保推進法案を閣議決定　官民連携で供給網強化、中ロ念頭](https://news.yahoo.co.jp/articles/4cab69727e9b28be98a675c07d5e6a579cc01a17)
+
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/樱花-2022-2.jpg)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
-
-总编：雪梨
-编辑：Ivy001
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
