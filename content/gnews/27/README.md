@@ -2,34 +2,38 @@
 ---
 
 
-## 樱花FM|部分国际赞助商不愿抵制北京冬奥会
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2064663/)
+## 有声|川普：普京谋求乌克兰，中共一定打台湾
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2064673/)
 
-音频：东京樱花团/战友520
-![](https://lh5.googleusercontent.com/XGh_HeVY27XoJQGUfcZPEKdkBAUZ5pLI9XwLkThWOkn-QJgpgdkawh3_tNlR-hf7zLQ5oO3TBEMOvzAWJ2COBi7mq1Efz0vNVM2BMXpeGof1lb5eBk2lvIGYLf0j9Kic_MYGPK5Q)
-据《纽约时报中文版》1月28日消息。拜登总统和其他西方国家领导人或许宣布了对冬奥会的“外交抵制”，但全球最著名的一些品牌仍将出现在赛事现场。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+2月22日，美国前总统川普表示，普京对乌克兰的军事行动是中共习近平试图夺回台湾的信号，在国际政治角逐中，普京和习近平的关系像极了双胞胎姐妹。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-14.jpg)
+川普认为普京和习近平是心照不宣的全天候联盟关系，冬奥会结束后，普京马上对乌克兰采取了行动，紧接着，世界应该开始关注台湾的安危。尽管拜登政府在对俄罗斯入侵乌克兰的问题上已经采取了多种制裁，但美国和欧洲还要担心的是因为战争引发的难民潮问题。国际社会几经谴责俄罗斯对乌克兰的计划入侵，但普京未曾改变策略，而习近平也在对台湾蠢蠢欲动。一场火战迫在眉睫。
 
-比如在滑雪选手将即将于2022年北京冬奥会竞逐的赛道底部，一块电子标牌循环播放着三星和奥迪等企业的广告。可口可乐易拉罐上装饰着奥运五环。宝洁在奥运村开了一家美容沙龙。Visa则是本届赛事的官方信用卡合作伙伴。
+此前郭文贵先生在直播中提到，乌克兰希望欧美等国能够在战争开始前做出有力阻止，不要等到乌克兰整个已经被毁掉了才开始有所动作，那已经为时已晚。欧美国家的妥协会让乌克兰陷入至暗时刻，包括台湾。
 
-这些举足轻重的跨国企业（其中许多来自美国）减轻了拜登等领导人惩罚中国侵犯人权行为造成的政治上的不愉快，这些侵犯行为包括在西部地区新疆的镇压运动，美国国务院将其称为种族灭绝。
 
-对冬奥会的赞助反映出在华跨国企业所面临的艰难抉择：要么可能被赶出日益敏感的中国，要么就得应对在华开展业务在声誉上造成的风险。对于这届北京冬奥会，他们的选择已经很明确了。
 
-虽然在多个国家都面临人权活动人士的抗议，但各家赞助商基本不为所动，而是选择继续让中国及其新兴的民族主义消费者群体满意。这些企业提出奥运会与政治无关，并且表示它们已在持续多届奥运的赞助合约上投入了数亿美元，不是只有北京冬奥会。最主要的13家奥运赞助商与国际奥委会签订的合同总额超过了10亿美元。
+文字版原文：[川普：普京谋求乌克兰，中共一定打台湾](https://gnews.org/zh-hans/2059618/)
 
-但对于企业而言，批评中国的政策很可能[激怒中国的消费者](https://cn.nytimes.com/business/20210407/xinjiang-china-cotton-brands/)。中国社交媒体上的爱国者大军已经对他们眼里的外国品牌辱华行为作出过严辞谴责，而政府和官媒也经常放大这些恶言恶语。在对新疆强迫劳动的报道[表达关切](https://www.nytimes.com/2021/03/29/style/china-cotton-uyghur-hm-nike.html?action=click&amp;module=RelatedLinks&amp;pgtype=Article)后，阿迪达斯、耐克和一些时装品牌在中国遭遇了全国性的抵制。中共在新疆地区强行将数百万维吾尔族穆斯林关进了大规模拘禁营和再教育营。当时装零售商H&M承诺停止购买新疆棉后，中国消费者的[抵制](https://cn.nytimes.com/business/20210325/handm-boycott-china-uyghurs/)使其一个季度[损失了约7400万美元销售额](https://www.wsj.com/articles/h-m-pays-price-of-upsetting-beijing-as-china-sales-drop-11625136844)。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+**更多资讯，更多关注**
 
-就连奥运会主要赞助商之一的英特尔，上个月也[面临抵制呼声](https://cn.nytimes.com/business/20211224/intel-apology-china-xinjiang/)，因为该公司发布了一封呼吁国际供应商避免从新疆采购产品的信函。面对愤怒，英特尔在几天内[重写了这封信](https://www.intel.com/content/www/us/en/supplier/governance/forms/documents/annual-supplier-letter-english.html)，删除了提及新疆的内容。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-关于这样的支持是否有效粉饰了中共的威权统治，主要赞助商均回避了相关问题，[有时方式还很笨拙](https://www.youtube.com/watch?v=NpkOD_jlJT0)。这些企业的高管认为，奥运会不应被政治化，并援引了[《奥林匹克宪章》](https://olympics.com/athlete365/app/uploads/2021/07/Rule-50.2-Guidelines-Olympic-Games-Tokyo-2020-Final.pdf)的相关内容，尽管有关奥运会的政治阴谋由来已久。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-在全球共同抵制北京冬奥会大趋势下，部分奥运会国际赞助商，对腐朽邪恶的中共政权还抱有幻想，以扶持中共助其成功举办冬奥会，这种变相的“利益输送”方式贿赂中共高层，妄图进一步扩大自己品牌在中共国市场占有率，在中共国的市场多分一杯羹。但是在现在中共国经济即将“崩盘”，“全球化”经济危机即将爆发的大趋势下，这些国际赞助商攫取利益的图谋将化为“泡影”，自身的丑行也会被钉在历史的耻辱柱上。
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-文字版原文：[部分国际赞助商不愿抵制北京冬奥会 – GNEWS](https://gnews.org/zh-hans/1936821/)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
