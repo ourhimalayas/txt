@@ -2,62 +2,34 @@
 ---
 
 
-## 新西兰财经G乐部2022年2月24日:财经新闻整理
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2061059/)
+## 短视频：贿赂医院做出虚假新冠诊断，从而推广致命药物
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2061131/)
 
-采集整理：蚂蚁的城堡
+#### 翻译：Frank
+校对：枳实
+字幕：小强
+编辑：文泓
 
-**提纲：**
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image01-5.png)图片来源：视频截屏
 
-1、中国人寿：王滨因无法继续履行董事职务辞任董事长
 
-2、港股恒指大跌3.15%失守23000点，恒生科技指数重挫4%
+因此，从2020年3月开始，他们开始激励医院和临床医生给出给出错误的新冠诊断，即使他们的核酸检测并没有阳性。而且他们奖励这种行为。因此，是的，这是一个假象，由我们的联邦卫生机构精心策划，夸大了新冠的病例，夸大了新冠导致的死亡。而且他们把它们称为新冠的并发症。而且我肯定会呼吁尽可能多的原告（加入诉讼），他们的亲人在世界各地的医院中接受了瑞德西韦治疗而死亡。
 
-3、獐子岛控股股东数亿股权将被拍卖，公司或将易主
+实际上，我已经鼓励，请求，而且我已经收到了来自世界各地的数千份（加入诉讼的申请）。我要求他们看一下死亡证书，你会看到他们死于新冠的并发症。第二诊断是，死于急性肾衰竭，他们死于再次发作的新冠肺炎的并发症。
 
-4、民生银行大连分行联保贷款骗贷3.56亿，四高管未尽职审查均获刑五年
+这不是新冠肺炎的再次发作，当你关闭了肾脏，然后用一个静脉注射袋，把液体漫灌到某人的静脉中，他们无法从他们的肾脏排泄，你会造成液体充满他们的腹部，然后灌满他们的心脏，然后渗透到肺中，他们就这样被淹死了。而这就叫做肺水肿。
 
-5、报告：稳定币总供应量达到1800亿美元
+因此，我呼吁大家尽可能多地让这些人参与进来，提供更多这些实际信息。我们知道这就是药物的作用。是的，他们是死于病毒是一种假象。他们是被不明智的治疗方案毒死的。绝对是这样。他们还被要求和被奖励以做出更多（新冠）诊断，以人为地夸大阳性病例数量。
 
-**正文**
+视频链接：[The Vigilant Fox 🦊 在 Twitter: “Dr. Bryan Ardis explains the “illusion” of the current world sickness, in which doctors are incentivized to make COVID diagnoses even if patients don’t test positive. https://t.co/efwepl9Hha” / Twitter](https://twitter.com/vigilantfox/status/1493328770039783424?s=21)
 
-**1、中国人寿：王滨因无法继续履行董事职务辞任董事长**
-![img](https://media.gettr.com/group32/origin/2022/02/24/04/1beb4066-d2c9-8b86-f0ce-72147185e717/63a165c5e41362a24f8aa53b944c3d71_500x0.png)
-中国人寿2月23日发布公告称，公司董事会于2022年2月23日收到辞任函，王滨因无法继续履行董事职务，辞任公司董事长、执行董事职务，该辞任于同日起生效。今年1月8日，中共纪委国家监委网站发布消息，时任中国人寿保险公司党委书记、董事长王滨涉嫌严重违纪违法，正接受中央纪委国家监委纪律审查和监察调查。
-
-财经G评：郭文贵先生在2022年1月9日大直播节目中指出，王滨是王岐山手下最关键的将帅之一，其重要程度仅排在康典、 田国立、田惠宇之后。郭先生表示，王岐山的势力主要分布在中共国的金融方面。如果中共不动王滨、马明哲、董文标、范一飞等11个人，王岐山不会有事。而现在，在决定习（习近平）、王（王岐山）权力之争最关键的中共二十大之前，王滨被中纪委审查，意味着王岐山的命运已成定局。
-
-参考链接：[https://finance.sina.com.cn/wm/2022-02-23/doc-imcwipih4987153.shtml](https://finance.sina.com.cn/wm/2022-02-23/doc-imcwipih4987153.shtml)
-
-**2、港股恒指大跌3.15%失守23000点，恒生科技指数重挫4%**
-![img](https://media.gettr.com/group30/origin/2022/02/24/04/10695ede-42c2-c0d3-9088-b54bb9a01d1a/5012582bde3c8e6672f57b205d8b1718.png)
-2月24日消息，美股三大期指持续下跌，标普500指数期货跌逾2%，纳指期货跌2.64%，道指期货跌2%。港股恒指跌幅不断扩大，截至发稿，恒指跌3.15%，失守23000点，报22916.99点，恒生科技指数重挫4%。微盟集团跌超8%，哔哩哔哩、阿里巴巴跌超7%，网易、京东、百度跌超5%。
-
-参考链接：[https://finance.sina.com.cn/stock/hkstock/marketalerts/2022-02-24/doc-imcwipih5088037.shtml](https://finance.sina.com.cn/stock/hkstock/marketalerts/2022-02-24/doc-imcwipih5088037.shtml)
-
-**3、獐子岛控股股东数亿股权将被拍卖，公司或将易主**
-![img](https://media.gettr.com/group12/origin/2022/02/24/04/b55802ef-92aa-1ece-9f27-f0e609f54afc/c5e0558cf8f321ce01e87a1c3cfe46fd_500x0.png)
-2月23日晚，獐子岛发布公告称，控股股东长海县獐子岛投资发展中心所持1.09亿股股权将被公开拍卖。获悉其所持公司1.1亿股股权将于3月25日10时至3月26日10时止（延时的除外）在北京产权交易所网络司法拍卖平台上进行公开拍卖活动，起拍价为34291.03万元，保证金为3500万元。
-
-参考链接：[https://finance.sina.com.cn/wm/2022-02-24/doc-imcwipih5041335.shtml](https://finance.sina.com.cn/wm/2022-02-24/doc-imcwipih5041335.shtml)
-
-**4、民生银行大连分行联保贷款骗贷3.56亿，四高管未尽职审查均获刑五年**
-![img](https://media.gettr.com/group28/origin/2022/02/24/05/96fa1d7f-c15c-6dff-611b-6e42f8be835e/796f3b8587659c7f04e92fe140092006_500x0.png)
-近日，裁判文书网披露的一则文书显示，民生银行大连分行及其越秀支行的四名高管因未对联保贷款材料真实性进行审查，违法发放联保贷款3.56亿元，在部分贷款逾期后仍为借款人办理倒贷，造成巨额资金无法收回，四人以违法发放贷款罪被法院判刑。公开资料显示，联保贷是民生银行开发的标准化融资产品，是指民生银行为三户（含）以上相互熟悉、自愿组成联保体的企业提供的短期融资业务，授信担保方式为联保体成员为其他成员授信提供连带责任保证。
-
-财经G评：中共国银行最大的风险是监守自盗！民生银行北京航天桥大家还记得吗？监守自盗后让前台经理背锅！
-
-参考链接 [http://finance.sina.com.cn/jinrong/yh/2022-02-23/doc-imcwiwss2522840.shtml](http://finance.sina.com.cn/jinrong/yh/2022-02-23/doc-imcwiwss2522840.shtml)
-
-**5、报告：稳定币总供应量达到1800亿美元**
-
-尽管整个加密行业处于看跌背景，但稳定币供应总量已达到 1800 亿美元，在过去30天内激增了95亿美元。抛开比特币 (BTC) 不谈，稳定币正成为人们关注的焦点。加密研究机构 Arcane Research 和 CryptoRank 证实，稳定币供应量达到了 1800 亿美元的里程碑。稳定币的增长继续超过其他市场，在过去 30 天内增长了 6%。在市场波动时期，稳定币可以提供价格稳定性，并由特定资产或算法提供支持。
-
-参考链接： [https://cointelegraphcn.com/news/total-stablecoin-supply-hits-180-billion-report](https://cointelegraphcn.com/news/total-stablecoin-supply-hits-180-billion-report)
-
-审核校对：蚂蚁的城堡（一审）、文勇（二审）
-
-上传排版：文勇
+发布：文泓
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
