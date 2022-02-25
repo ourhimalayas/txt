@@ -2,36 +2,33 @@
 ---
 
 
-## 俄乌危机致全球粮食价格大幅上涨
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2065480/)
+## 俄罗斯驻日大使称将对日采取反制措施 乌克兰大使寄期望于中共国
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2065582/)
 
-作者：银河系农场—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月23日，据相关媒体消息显示，俄罗斯与乌克兰、美国和欧盟之间日渐加剧的危机可能会给全球粮食供应带来更大的压力。目前，小麦、玉米、葵花油等基础作物的价格正在一路攀升。
+翻译：zicoround
+![](https://assets.gnews.org/wp-content/uploads/2022/02/20220225-00000081-jij-000-26-view-edited.jpg)俄罗斯驻日本大使加卢津（法新社）
+由于日本政府在俄罗斯入侵乌克兰后宣布对其实施追加制裁，俄罗斯驻日本大使加卢津周二警告说，将对日本政府采取 “重大反制措施”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-8.jpeg)
+他在东京的日本外国特派员协会举行了一次记者会。
 
-数据表明，俄罗斯和乌克兰拥有全世界80%的葵花油出口、29%的小麦出口和19%的玉米出口，中东很多国家的粮食供应都依赖于此。然而，由于近期双方战争局势的恶化，黑海的运输港口眼下已经被切断，从而导致了俄乌粮食出口的中断。
+加卢津说，”制裁既无助于发展互利友好的关系，也无助于为讨论包括和平条约在内的广泛问题创造积极气氛。 他说：”非常遗憾的是，日本政府采取了对俄罗斯和日俄关系具有负面作用的措施”，暗示这将对北方领土问题产生影响。
 
-另一方面，自俄罗斯向顿涅茨克和卢甘茨克派遣军队之后，各国对其的经济制裁不断加码，这严重破坏了世界粮食供应的稳定性，而美国的粮食期货价格也因此不断飙升。另外，重度依赖粮食进口的北非、亚洲和中东地区同样被大范围影响。
+他重申了官方的立场，即军事行动 “目的在于保护（亲俄控制区的）人民，八年来他们一直受到乌克兰政府的压迫和种族灭绝。“
 
-当前，乌克兰所处的黑海地区是军事冲突的聚焦点，平常繁忙的商业运输如今因军事升级而被中断。经济学家表示，该地区的粮食供应中断将会导致全球粮食价格的飞涨。
+此前，乌克兰驻日大使克尔森松斯基（Sergiy Korsunsky）也在该协会举行了记者会。 他反驳说，俄罗斯的目标”不仅是东部的顿巴斯地区，而是拿下整个乌克兰”，并透露，入侵之前，”乌克兰遭到了极其广泛的网络攻击”。
 
-参考链接：[Russia-Ukraine crisis will put even more strain on the global food supply, driving up prices of wheat and corn around the world](https://newstarget.com/2022-02-23-russia-ukraine-crisis-more-strain-global-food-supply.html)
+他说，如果乌加入了北大西洋公约组织（NATO），”就不会有战争了”，并表示加盟方针政策是坚定不移的。他期待与乌克兰贸易等方面有着密切关系的中共国，在促使俄罗斯保持克制方面”能够发挥更积极的作用”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
+**参考资料：**[news.yahoo.co.jp][ロシア大使、日本に対抗措置　ウクライナ大使は中国に期待](https://news.yahoo.co.jp/articles/235c68e41191e0b2eda95cc810ac0c92ee5db97a)
 
-总编：Irene木木
-编辑：静言
-校正/发稿：谐趣园
+* * *
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*审核：zicoround*
+*校对：宫米叶*
+*发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-4.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

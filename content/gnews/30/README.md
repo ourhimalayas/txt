@@ -2,60 +2,54 @@
 ---
 
 
-## 俄罗斯-乌克兰危机：血腥照片显示入侵后平民的苦难
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2065223/)
+## 西喜时事新闻简报 — “乌台”时事篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2065385/)
 
-**评论：***当地时间2月24日晚，乌克兰卫生部公布的信息表示，在24日的冲突中已有57名乌克兰人死亡，169人受伤。*
+编译：文舞
 
-据《福克斯新闻》作者：[Jessica Chasmar](https://www.foxnews.com/person/c/jessica-chasmar)，2022年2月24日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2365-e1645806919376.png)图片来源：BBC
-据称至少有10名平民在俄罗斯入侵乌克兰的行动中死亡。
+1 [美参议员：随着乌克兰的衰落，新的“邪恶轴心”正在崛起](https://freebeacon.com/national-security/as-ukraine-falls-new-axis-of-evil-rises-senator-says/)
 
-俄罗斯军队周四对乌克兰发动了全面入侵，用空袭和炮击打击城市和基地，而平民则拼命逃离该国或在地铁站避难。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2399.png) 图片来源: freebeacon.com
 
-由于俄罗斯继续入侵该国，据称至少有40名乌克兰军人和10名平民死亡，而且这一数字预计还会上升。
+据《自由灯塔》2022年2月22日电，一位共和党参议员玛莎·布莱克本（Marsha Blackburn）说，随着俄罗斯军队进入乌克兰，一个新的“邪恶轴心”（俄罗斯、中共国、伊朗和朝鲜）正在崛起，拜登政府的软弱领导使其胆子更大。
 
-警告：血腥的图片图像，可能引起不适。
+2 [台湾将采取“适当行动”应对俄罗斯对乌克兰的入侵](https://www.taiwannews.com.tw/en/news/4453933)
 
-下面是对乌克兰人民所遭受的死亡和破坏的一瞥。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2366-e1645807086743.png)2022年2月24日，乌克兰哈尔科夫州Chuhuiv市的一座公寓楼被空袭破坏，一名受伤的妇女。
-图片来源：Wolfgang Schwan/Anadolu Agency 通过 Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2367-e1645807133411.png)2022年2月24日，乌克兰东部城镇丘吉夫被炸后，一名受伤的妇女站在医院外。
-图片来源：Aris Messinis/AFP 通过 Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2368.png)2022年2月24日，乌克兰哈尔科夫州Chuhuiv的一座公寓楼遭到空袭后，乌克兰安全部队陪同一名受伤的男子。
-图片来源：Wolfgang Schwan/Anadolu Agency 通过 Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2369.png)2022年2月24日星期四，在乌克兰马里乌波尔，一名妇女走过俄罗斯炮击后的废墟。
-图片来源：AP Photo/Evgeniy Maloletka![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2370.png)2022年2月24日，在乌克兰基辅，一位当地居民在一个基督教东正教教堂里祈祷。
-图片来源：Pierre Crom/Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2371.png)2022年2月24日，俄罗斯武装部队从多个方向入侵乌克兰，在乌克兰东部城镇楚戈夫发生爆炸后，急救单位工作人员对一名受伤男子进行了治疗。
-图片来源：Aris Messinis/AFP via Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2372.png)2022年2月24日星期四，在乌克兰基辅，警察在一次明显的俄罗斯袭击后检查该地区。
-图片来源：AP Photo/Emilio Morenatti![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2373.png)2022年2月23日，平民从亲俄分离主义分子控制下的顿涅茨克地区撤离。图片来源：Stringer/Anadolu Agency 通过 Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2374.png)2022年2月24日上午，一名宗教人士在基辅独立广场上手持十字架祈祷。图片来源：Daniel Leal/AFP 通过 Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2375.png)2022年2月24日，Lia（左）和Jasmine在基辅市中心的一个车站与他们的父母一起避难时使用电话。
-图片来源：Daniel Leal/AFP 通过 Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2376.png)2022年2月24日星期四，在乌克兰马里乌波尔市外的一个乌克兰军事设施中，可以看到被损坏的雷达、一辆车和设备。
-图片来源：AP Photo/Sergei Grits![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2377.png)2022年2月24日，乌克兰东部城镇丘吉夫发生爆炸后，一名男子在一栋被摧毁的建筑外对一具亲属的尸体悲痛不已。
-图片来源：Aris Messinis/AFP 通过 Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2378.png)2022年2月24日，乌克兰军人准备在乌克兰卢甘斯克地区击退一次攻击。图片来源：Anatolii Stepanov/AFP 通过 Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2379.png)2022年2月24日星期四，乌克兰马里乌波尔发生明显的俄罗斯袭击事件后，乌克兰军事设施在一个防空基地烧毁。
-图片来源：AP Photo/Evgeniy Maloletka![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2380.png)2022年2月24日星期四，在乌克兰基辅市外的俄罗斯炮击事件后，火焰和烟雾从一栋民房的残骸中升起。
-图片来源：AP Photo/Efrem Lukatsky![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2381.png)2022年2月24日星期四，据称是俄罗斯的军用直升机飞越乌克兰基辅郊区。
-图片来源：Ukrainian Police Department Press Service 通过 AP![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2382.png)2022年2月24日星期四，乌克兰哈尔科夫发生明显的俄罗斯袭击事件后，人们站在街上的军事装备碎片旁。
-图片来源：AP Andrew Marienko![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2383.png)2022年2月24日，妇女在逃离轰炸后哭泣着进入波兰的梅迪卡。
-图片来源：Dominika Zarzycka/NurPhoto 通过 Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2384.png)2022年2月24日星期四，在乌克兰基辅，人们逃离时看到交通堵塞。
-图片来源：AP![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2385.png)2022年2月24日星期四，在乌克兰马里乌波尔，人们排队从一台自动取款机上取钱。
-图片来源：AP Photo/Sergei Grits![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2386.png)在乌克兰首都基辅的一个当地加油站，汽车排队等候。
-图片来源：Yevhen Kotenko/ Ukrinform/Future Publishing 通过 Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2387.png)2022年2月24日，在乌克兰克拉马托尔斯克，俄罗斯的军事行动开始后，看到人们带着行李箱离开。
-图片来源：Aytac Unal/Anadolu Agency 通过 Getty Images
-原文连接：[https://www.foxnews.com/world/russia-ukraine-crisis-graphic-photos-bloodied-civilians-invasion](https://www.foxnews.com/world/russia-ukraine-crisis-graphic-photos-bloodied-civilians-invasion)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2395.png)
 
-翻译：洛杉矶盘古农场 – TrueSky
+据《台湾英文新闻》2022年2月24日电，台湾谴责俄罗斯入侵乌克兰，指责其违反了《联合国宪章》第二条第四款，而且还破坏了国际社会积极寻求通过外交手段和平解决俄、乌危机的努力；台湾承诺与美国和其他志同道合的伙伴协调，采取“适当行动”维护和平稳定…
 
-校对：洛杉矶盘古农场 – Mike Li
+3. [切尔诺贝利核电站被俄罗斯军队攻占](https://freebeacon.com/national-security/chernobyl-power-plant-captured-by-russian-forces/)
 
-评论：洛杉矶盘古农场 – Mike Li
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2405.png)图片来源: freebeacon.com
 
-编辑：洛杉矶盘古农场 – WenXiong
-
-发布：洛杉矶盘古农场–子萍
+据《自由灯塔》2022年2月24日电，乌克兰总统办公室顾问多利亚克（Mykhailo Podolyak）周四表示，切尔诺贝利核电站已经被俄罗斯军队占领。他说：“在俄罗斯人完全无意义的攻击之后，不可能说切尔诺贝利核电站是安全的；这是当今欧洲最严重的威胁之一。”
 
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+4. [川普：中共国将在奥运会结束后“绝对”入侵台湾](https://www.taiwannews.com.tw/en/news/4454192)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2403.png)
 
+据《台湾英文新闻》2022年2月24日电，美国前总统唐纳德·川普周二（22日）在The Clay Travis and Buck Sexton Show上说，他相信中共国会步俄罗斯的后尘，对台湾“下手”。最近一项调查显示，27%的台湾受访者认为俄罗斯对乌克兰的侵略性行动将导致中共国攻击台湾。值得一提的是，中共国正在资助并帮助俄罗斯对乌克兰的入侵。
+
+5. [解放军8架战机侵占台湾防空识别区](https://www.taiwannews.com.tw/en/news/4454487)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2401.png)
+
+据《台湾英文新闻》2022年2月25日电，八架中共国沈阳J-16战斗机和一架Y-8战术侦察机（Y-8 RECCE）于周四（24日）侵入了台湾的防空识别区；台湾空军的反应是出动战斗机驱赶这些飞机，广播警告，并以陆基防空导弹追踪这些飞机；这次入侵是本月第13次，发生在俄罗斯对乌克兰发动全面入侵的同一天。
+
+6. [两架中共国战机进入台湾防空识别区](https://www.taiwannews.com.tw/en/news/4453495)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2398.png)图片来源: taiwannews.com.tw
+
+据《台湾英文新闻》2022年2月24日电，两架中共国人民解放军空军（PLAAF）的沈阳J-16战斗机于周三（23日）进入台湾防空识别区的西南角，这是本月的第12次入侵；作为回应，台湾派出飞机，发出无线电警告，并部署防空导弹系统，监测解放军空军的飞机；在2021年，中共国军机在239天内有961次进入台湾的ADIZ。
+
+* * *
+
+*审核：Aries的星
+校对：信心满满
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-4.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,22 +2,30 @@
 ---
 
 
-## 新曲“锁链梦” 唱的就是中国人的锁链梦 不灭共 中国人没有希望 没有未来
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2065695/)
+## NFSC新闻、G|TV新闻访谈简报|2022年2月25日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2065844/)
 
-在中共国有成千上万的锁链女，普通百姓说一句中共高官的坏话，祖宗八代都能拔得一干二净，锁链女们却查不出来！锁链女牙全被拔了，舌头被割了，从性奴，变成了共产党的政治奴隶。二十多年的血泪唱出 “这个世界不要我”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-20-at-4.14.11-PM-4.png)
 
-彭丽媛表哥可以买拐卖女，法院的干部可以玩弄拐卖女，张高丽玩弄小女孩，孟建柱玩人一家三代，孙立军让名犬玩明星，中共国人却能容忍共产党统治70多年，整个民族没有信仰，没有教育，没有人性，没有道德，已经到了令人发指的地步。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-25.png)
+文章仅代表作者本人观点，与Gnews无关
 
-新曲“锁链梦”，唱的就是中国人的锁链梦，不灭共，中国人没有希望，没有未来！
+视频参看：
+[2022.02.25早 《NFSC新闻》](https://gtv.org/video/id=6218d99a08ba8a07b1a354e1)
+[2022.02.25早 G|TV《新闻访谈》](https://gtv.org/video/id=6218e22b08ba8a07b1a36480)
 
-彭丽媛表哥可以买拐卖女，法院的干部可以玩弄拐卖女，张高丽玩弄小女孩，孟建柱玩人一家三代，孙立军让名犬玩明星，中共国人却能容忍共产党统治70多年，整个民族没有信仰，没有教育，没有人性，没有道德，已经到了令人发指的地步。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-新曲“锁链梦”，唱的就是中国人的锁链梦，不灭共，中国人没有希望，没有未来！
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-5.png)
 
-视频来源: 20220223—郭先生大直播
-视频制作: 文星光，梦田
-文案:文星光
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
