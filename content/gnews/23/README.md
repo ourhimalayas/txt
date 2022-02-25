@@ -2,26 +2,21 @@
 ---
 
 
-## 俄军控制切尔诺贝利核电站 欧洲面临新的安全隐患
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2062071/)
+## 胡锡进: 要习惯解放军进入台湾
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2062077/)
 
-撰稿：东京樱花团/盖特第一批注册
+**编译：verifunny**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/俄军控制切尔诺贝利核电站-欧洲面临新的安全隐患.jpg)[图片来源](https://www.google.com/maps/uv?pb=!1s0x472a7da75fb49db3%3A0xbdc209edda2b9bc0!3m1!7e115!4shttps%3A%2F%2Flh5.googleusercontent.com%2Fp%2FAF1QipN4Jhyc0PXKWdH7uSIrMQS3eYTZ1HyuQ4Us6TO8%3Dw252-h160-k-no!5z5paw5a6J5YWo6ZaJ44GY6L6844KB5qeL6YCg54mpIC0gR29vZ2xlIOakn)
+臭名昭著的胡锡进刚刚发了一个推文说“大家要习惯，明天会有更多解放军的战机会进入台湾领空。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/11-33.png)
+虽然这位著名的中共宣传机器代表以嘲弄西方和广泛谴责华盛顿在台湾和南海的政策而闻名，但他也通常呼应了中共高层官员的想法。
 
-乌克兰总统府顾问24日透露，切尔诺贝利核电站已被俄罗斯军队占领。
+他是否刚刚警告西方，中共国即将对台湾采取行动——在所有目光都集中在乌克兰战争的 “完美风暴 “时刻？普京是否刚刚为中共国近期的军事行动树立了榜样？
 
-俄罗斯的军事攻击发生之后，谁不能保证切尔诺贝利核电站是安全的，一旦发生意外将是欧洲最严重的威胁之一”。
+七哥说了，中共一定打台湾。胡锡进的推文是不是铺垫？还有，中共是有神论（迷信），他们是不是近期在等一个好日子开打？
 
-除此之外，俄罗斯军队还控制了赫尔松南部地区的部分地区，并部署了伞兵部队，以攻克基辅附近的霍斯托梅尔机场。
+**新闻来源：**https://www.zerohedge.com/geopolitical/chinese-jets-come-near-taiwan-beijing-blasts-us-fueling-fires-lead-ukraine-invasion
 
-首都基辅附近的霍斯托梅尔机场也已被封锁。
-
-信息源：[ウクライナ各地で戦闘続く、大統領が総動員令　ロシア軍は首都標的か](https://www.asahi.com/international/reuters/CRWKBN2KU00T.html)
-
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

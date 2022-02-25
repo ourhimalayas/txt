@@ -2,60 +2,25 @@
 ---
 
 
-## 【信仰之声】战火硝烟中的祷告
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2062182/)
+## 普京住手！俄国人塞爆大街怒喊「停战」
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2062238/)
 
-作者：纽约香草山福音部 — Joy
+乌俄冲突一触即发，昨日24日普京派兵入侵乌克兰，乌克兰首都基辅与第二大城卡尔可夫纷纷惊传爆炸。今日早上在台乌克兰正妹佳娜转发了俄罗斯街上情况，不仅全世界反对这场战役，连俄罗斯人都上街抗议，要求普京停手，佳娜还发文感谢台湾给予一个安全的家。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-3.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-262.png)
 
-
-
-
-
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/2-100.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/3-71.png)图／翻摄自佳娜IG
 
 
-主啊，昨夜忽闻普京宣布对乌克兰开战，内心很久不可安静。主啊，我愿跪拜在你面前，向你祷告。
+新闻来源：[yahoo](https://tw.news.yahoo.com/%E6%99%AE%E4%B8%81%E4%BD%8F%E6%89%8B-%E4%BF%84%E5%9C%8B%E4%BA%BA%E6%80%92%E5%96%8A-%E5%81%9C%E6%88%B0-%E5%A1%9E%E7%88%86%E5%A4%A7%E8%A1%97%E9%9C%87%E6%92%BC%E7%95%AB%E9%9D%A2%E6%9B%9D%E5%85%89-041300176.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/018822D9-4414-4F1F-B3FA-67429D80F7F4-1.jpg)
+撰稿/发布：一叶知秋
 
-主啊，看那战争的硝烟又起，炮火轰鸣中多少个家庭要受伤害，多少个生命要失去。现代战争武器那巨大的杀伤力要造成多少生灵涂炭，多少家庭流离失所。
-
-俄罗斯打乌克兰，CCP对台湾蠢蠢欲动， 有人要用平民百姓的鲜血成就自己的帝王梦，只可怜了天下苍生百姓。
-
-主啊，你借着启示录告诉我们，在末世的时候会有各样苦难、灾害、逼迫临到。主你让我们预先知道将要发生的事情，是为让我们心里有准备，知道基督徒生命中会遇到各样的难处，当我们遇到难处时，可以因你的应许而有盼望，知道当这一切灾难发生的时候，你依然掌控一切，你的审判也必将临到。
-
-主啊，洪水泛滥的时候你依然坐着为王，求你给我们这样属天的眼光，我们就可以透过眼下发生的一切，看到神你的宝座和权柄，知道黑夜已深，黎明将至，神荣耀旨意实现的那一刻已经不远。
-
-主啊，求你给乌克兰和宝岛台湾那里无辜和善良的百姓提供保护，你为他们开辟一条出路就如你领埃及人出红海一样。主啊，求你在战火与硝烟之中把你的子民救出来。主啊，也求你让CCP的铁蹄不会践踏到宝岛台湾。主啊，求你保守台湾同胞，保守香港同胞，和在海外华人的安全。主啊，求你亲自为你子民做四围的盾牌，你的保护和引领不离他们左右。
-
-主啊，也求你在这黑暗混乱的时代，让更多的人转身悔改向你，寻求你的名。也求你保守你的儿女们四面受敌，却不被困住；心里作难，却不至失望；不管夜有多黑，心里依然有盼望，因为我们知道谁掌管明天。
-
-“但我依靠你的慈爱，我的心因你的救恩快乐。我要向耶和华歌唱，因他用厚恩待我”——诗篇13:5-6
-
-2022年2月24日
-
-（本文仅代表作者个人观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-7.jpg)
-
-*编辑 /校对*：德州牛仔
-
-*发稿：Yuki*jiang
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

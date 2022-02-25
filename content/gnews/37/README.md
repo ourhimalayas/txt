@@ -2,35 +2,32 @@
 ---
 
 
-## 有声|日媒指普京本没有资格出席中共冬奥会
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2061722/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年2月24日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2061728/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间2月18日，据日本媒体指出，按照联合国规定，各国应该在奥运会前后暂停纷争，但作为北京冬奥会东道主的习近平却没有要求普京停止对乌克兰的威胁。另一方面，由于兴奋剂问题，俄罗斯被禁止在冬奥会上以国家队名义参赛，其国家领导人也不应出席中共冬奥会。因此，从各个层面上看，普京都没有资格参加此次中共冬奥会的开幕式。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/4-53.jpg)
-然而，在本届冬奥会上，不仅中共违背常理地将普京作为最高国宾，连国际奥林匹克委员会主席巴赫也对此默不作声。
+作者：香草山翻译部
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-20-at-4.14.11-PM-3.png)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-2-3.png)
+校对：Stay文苑
 
-文字版原文：[日媒指普京本没有资格出席中共冬奥会](https://gnews.org/zh-hans/2059044/)
+编辑：Stay文苑
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
+发稿：Stay文苑
+
+新闻：[https://gtv.org/broadcast/watch/6218322908ba8a07b1a302ab](https://gtv.org/broadcast/watch/6218322908ba8a07b1a302ab)
+访谈：[https://gtv.org/broadcast/watch/62183bb508ba8a07b1a308bd](https://gtv.org/broadcast/watch/62183bb508ba8a07b1a308bd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-4.png)
+
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

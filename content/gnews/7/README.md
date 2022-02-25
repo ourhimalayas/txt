@@ -2,22 +2,22 @@
 ---
 
 
-## 俄罗斯镇压反战示威 拘留1700多人
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2062175/)
+## 俄军控制切尔诺贝利核电站 欧洲面临新的安全隐患
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2062224/)
 
-撰稿：东京樱花团/龟龟
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2320.png)
-据日本MBS新闻网报道，俄罗斯对乌克兰进行军事入侵，随后俄罗斯国内举行了反战示威，有1700多人被拘留。包括莫斯科和圣彼得堡在内的俄罗斯全境40多个地方举行了反战。
+撰稿：东京樱花团/盖特第一批注册
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2321.png)[图片来源](https://www.google.com/maps/uv?pb=!1s0x472a7da75fb49db3%3A0xbdc209edda2b9bc0!3m1!7e115!4shttps%3A%2F%2Flh5.googleusercontent.com%2Fp%2FAF1QipN4Jhyc0PXKWdH7uSIrMQS3eYTZ1HyuQ4Us6TO8%3Dw252-h160-k-no!5z5paw5a6J5YWo6ZaJ44GY6L6844KB5qeL6YCg54mpIC0gR29vZ2xlIOakn)
+乌克兰总统府顾问24日透露，切尔诺贝利核电站已被俄罗斯军队占领。
 
-在莫斯科，约2000人聚集在中央广场，举着“反对战争”等标语，抗议对乌克兰的军事入侵。安全官员对这些反战示威进行了镇压，迄今全国已有1700多人被拘留。
+俄罗斯的军事攻击发生之后，谁不能保证切尔诺贝利核电站是安全的，一旦发生意外将是欧洲最严重的威胁之一”。
 
-尽管国家电视台几乎没有报道乌克兰方面的受灾情况，但乌克兰各地的影像正在通过SNS等播放战争情绪正在俄罗斯蔓延。
+除此之外，俄罗斯军队还控制了赫尔松南部地区的部分地区，并部署了伞兵部队，以攻克基辅附近的霍斯托梅尔机场。
 
-获得诺贝尔和平奖的独立媒体总编辑穆拉托夫在抗议军事入侵的记者和学者的签名下表示，他“感到悲伤和尴尬”。普京政府已表现出镇压抗议和其他示威活动的立场，称如果这种情况持续存在，可能会导致对政府的强烈反对。
+首都基辅附近的霍斯托梅尔机场也已被封锁。
 
-消息链接：[ロシア国内でも反戦デモ 治安当局は厳しく取り締まり 1700人以上が拘束](https://www.mbs.jp/news/zenkokunews/20220225/6004643.shtml)
+信息源：[ウクライナ各地で戦闘続く、大統領が総動員令　ロシア軍は首都標的か](https://www.asahi.com/international/reuters/CRWKBN2KU00T.html)
 
-*编辑：东京樱花团/知了知了
+*编辑：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/平安卿卿*
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
