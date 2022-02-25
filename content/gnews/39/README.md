@@ -2,45 +2,46 @@
 ---
 
 
-## 美国更新“未经核实名单” 中共生物制药业恐慌
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2064467/)
+## 美国最近几周CDC 数据表明：接种疫苗的人更有可能感染 COVID-19和去医院
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2064680/)
 
-撰稿: 香草山金融部-箐苹（Apple2020）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-6.png)
-尽管中共海关宣称2021年进出口总额达到6.05万亿美元，同比增长约30%，贸易顺差达6,764.3亿美元。但面对美国的贸易管制，稍有风吹草动，中共国的出口型企业和资本市场就如“惊弓之鸟”，不堪一击。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2362.png)图片来自：http://5b0988e595225.cdn.sohucs.com
-美国商务部工业与安全局2月发布了更新的“未经核实名单”，增加了33家中共公司和机构，生物制剂服务商药明生物被列入其中。尽管“未经核实名单”管制相对较弱，但药明生物股价当天从前一天收盘价格的80.6港币一度最低跌至55港币，最大跌幅超过30%，同时引发中共国CXO医药外包板块整体大跌。“未经核实名单”的贸易管制力度远低于“实体清单”，却引发了资本市场对中共国生物制药行业的恐慌，凸显了中共国出口贸易数据和相关产业链的脆弱性。
+编译: 真北007
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片3-19.png)图片来源：[https://www.theepochtimes.com](https://www.theepochtimes.com)
+来自THE EPOCH TIMES  二月二十四日的新闻报道:
 
-中共国宣传的6万亿美元的“强劲”贸易数据，是在海外市场需求强劲、全球产业链被中共病毒疫情严重破坏，加上中共国企业能提前顺利大量进口海外技术和设备的多重背景下达成的。从贸易结构细分领域来看，此次美国更新的“未经核实名单”涉及的生物医药生产设备，如生物反应器等上游核心生产设备和耗材，仍掌握在在美国和欧洲龙头企业手里。一旦欧美贸易管制加码，将对中共国缺乏核心技术的产业链，乃至贸易进出口的虚假繁荣带来重大打击。
+根据疾病控制和预防中心 (CDC) 最新公布的数据，在 Omicron 病毒变种出现后，接种 COVID-19 疫苗的人群中 COVID-19 病例和住院率增加。
 
-参考链接：
+根据全国卫生部门提交给 CDC 的数据，在 2021 年 12 月 11 日至 2022 年 1 月 8 日期间，完全接种疫苗的人群中的 COVID-19 病例率上升了 1000% 以上。
 
-[Revisions to the Unverified List](https://www.federalregister.gov/documents/2022/02/08/2022-02536/revisions-to-the-unverified-list)
+完全接种疫苗是指接种了两剂 Moderna 或 Pfizer COVID-19 疫苗或单剂强生疫苗的人。
 
-[內幕消息 — 被美國商務部列入未經核實名單
-及恢復買賣](https://www1.hkexnews.hk/listedco/listconews/sehk/2022/0208/2022020801848_c.pdf)
+那些也接受了加强剂量的人的病例率也猛增，在同一时间段内上升了约 2,400%。
 
-[生物制药上游头部企业金仪盛世完成数亿元B+轮融资](https://www.jyssbio.com/site/news_details/213)
+虽然未接种疫苗的病例也有所增加，但接种疫苗的感染人数激增导致了两者之间的差距在缩小。
 
-[乐纯生物完成B轮融资](https://www.lepurechina.com/news-information-52)
+根据CDC管理的监控系统的数据，接种疫苗的人中与 COVID-19 相关的住院人数也有所增加，从截至 2021 年 12 月 18 日当周完全接种疫苗的每 100,000 人中增加 1.4 人，到截至 1 月 8 日当周的每 100,000 人中 35.2 人。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-266.png)
+接受加强剂的人不太可能需要住院治疗，但从 2021 年 12 月到 1 月，接受三针的人的住院率也有所上升。
 
+在同一时间段内，因 COVID-19 导致的死亡人数在接种疫苗者中有所增加，包括在加强剂接种者中。
 
+其他数据来源也指出疫苗在 Omicron 之后表现更差，包括 CDC 在 1 月份发表的研究，该研究表明未接种疫苗和已接种疫苗的病例和住院人数之间的差距在缩小。
 
-编辑: 飞虹
+疾病预防控制中心的数据还显示，未接种疫苗者的病例、住院率和死亡率都有所上升，但与接种疫苗者相比，增幅并不显着。
 
-总编: 雪梨
+最近几周，未接种疫苗和接种疫苗的病例、住院人数和死亡人数均急剧下降，促使许多州取消了 COVID-19 限制。
 
-校正/发稿：浪迹天涯
+原文链接：[https://www.theepochtimes.com/mkt\_app/vaccinated-people-more-likely-to-contract-covid-19-go-to-hospital-in-recent-weeks-cdc-data\_4300048.html](https://www.theepochtimes.com/mkt_app/vaccinated-people-more-likely-to-contract-covid-19-go-to-hospital-in-recent-weeks-cdc-data_4300048.html)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-6.png)
+编辑：LILY
+
+发布：面包飞上天
+
+20220225
+
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/DA2FFC16-CFD3-4CBE-A6EF-8D83D11E5A70.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

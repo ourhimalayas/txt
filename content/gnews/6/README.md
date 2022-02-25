@@ -2,30 +2,36 @@
 ---
 
 
-## 中共即将入侵台湾
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2065431/)
+## 俄乌危机致全球粮食价格大幅上涨
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2065480/)
 
-加拿大温哥华扬帆农场｜Noah诺亚
+作者：银河系农场—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月23日，据相关媒体消息显示，俄罗斯与乌克兰、美国和欧盟之间日渐加剧的危机可能会给全球粮食供应带来更大的压力。目前，小麦、玉米、葵花油等基础作物的价格正在一路攀升。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/a-18.jpg)图片来源：GNEWS
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-8.jpeg)
 
+数据表明，俄罗斯和乌克兰拥有全世界80%的葵花油出口、29%的小麦出口和19%的玉米出口，中东很多国家的粮食供应都依赖于此。然而，由于近期双方战争局势的恶化，黑海的运输港口眼下已经被切断，从而导致了俄乌粮食出口的中断。
 
-在2022年2月24日俄罗斯军事入侵乌克兰后，文贵先生在当天的盖特中指出，整个中共军队会以常人无法想象的方式瞬间占领台湾，并提醒台湾同胞能撤则撤、能躲则躲。
+另一方面，自俄罗斯向顿涅茨克和卢甘茨克派遣军队之后，各国对其的经济制裁不断加码，这严重破坏了世界粮食供应的稳定性，而美国的粮食期货价格也因此不断飙升。另外，重度依赖粮食进口的北非、亚洲和中东地区同样被大范围影响。
 
-党魁习近平为了让现在的共产党再多活二十年，和普京私下里勾兑双头鹰计划：俄罗斯取乌克兰，而中共则拿下台湾，豪赌美国和西方世界没有胆量也没有能力同时应付两场战争。而这两位结盟密谋者的更深目标是：弱化美国，掌控欧洲，进而控制世界。
+当前，乌克兰所处的黑海地区是军事冲突的聚焦点，平常繁忙的商业运输如今因军事升级而被中断。经济学家表示，该地区的粮食供应中断将会导致全球粮食价格的飞涨。
 
-目前美国和西方对俄罗斯入侵乌克兰的反应，符合普习之前的预期，习近平不攻打台湾的可能性微乎其微，他要用台湾2300万的人命来筑牢自己的统治，再给中共20年的续命期。
+参考链接：[Russia-Ukraine crisis will put even more strain on the global food supply, driving up prices of wheat and corn around the world](https://newstarget.com/2022-02-23-russia-ukraine-crisis-more-strain-global-food-supply.html)
 
-在俄军入侵乌克兰的视频里我们看到了战争的残酷，战争现在离我们如此之近。战争从来都是独裁掌权者们最好的工具，他们借此得到更大的权势、女人、财富，避免被推翻的命运；而对于永远伤害最大的平民百姓草根阶层，战争带来的只有无尽的痛苦。所以，台湾同胞们能撤离的尽快撤离，能躲避的尽快躲避，战争不相信眼泪，导弹不怜惜人命。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-乌克兰、台湾不幸地沦为世界政治操弄下的牺牲品，文明世界的力量会醒来并给予中共雷霆一击，只是这中间的过程又会带走多少无辜的生命，只希望能少些再少些。和平的时期太久了，对于人类，有些苦难必须要承受，有些惨剧必须要面对，正如文贵先生所言：“2022年是人类有史以来最黑暗的一年，经济将崩溃，人心会受到最大的检验，会受到上天的惩罚，因为人类太贪婪了！纵容怂恿了共产党，培养了邪恶的五大邪恶帝国！”
+总编：Irene木木
+编辑：静言
+校正/发稿：谐趣园
 
-* * *
-
-消息来源：https://gettr.com/post/pwor5t5077
-
-撰稿：Noah诺亚 编辑校对，发稿：硫酸羟氯喹64
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

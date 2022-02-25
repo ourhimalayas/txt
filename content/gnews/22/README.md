@@ -2,59 +2,40 @@
 ---
 
 
-## 俄罗斯-乌克兰危机：血腥照片显示入侵后平民的苦难
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2065223/)
+## 文·贵天成——文贵先生谈“正道主义”（四）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2065291/)
 
-**评论：***当地时间2月24日晚，乌克兰卫生部公布的信息表示，在24日的冲突中已有57名乌克兰人死亡，169人受伤。*
+整理：**BENJ1**
+编辑：**Kelly**
 
-据《福克斯新闻》作者：[Jessica Chasmar](https://www.foxnews.com/person/c/jessica-chasmar)，2022年2月24日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2365-e1645806919376.png)图片来源：BBC
-据称至少有10名平民在俄罗斯入侵乌克兰的行动中死亡。
-
-俄罗斯军队周四对乌克兰发动了全面入侵，用空袭和炮击打击城市和基地，而平民则拼命逃离该国或在地铁站避难。
-
-由于俄罗斯继续入侵该国，据称至少有40名乌克兰军人和10名平民死亡，而且这一数字预计还会上升。
-
-警告：血腥的图片图像，可能引起不适。
-
-下面是对乌克兰人民所遭受的死亡和破坏的一瞥。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2366-e1645807086743.png)2022年2月24日，乌克兰哈尔科夫州Chuhuiv市的一座公寓楼被空袭破坏，一名受伤的妇女。
-图片来源：Wolfgang Schwan/Anadolu Agency 通过 Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2367-e1645807133411.png)2022年2月24日，乌克兰东部城镇丘吉夫被炸后，一名受伤的妇女站在医院外。
-图片来源：Aris Messinis/AFP 通过 Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2368.png)2022年2月24日，乌克兰哈尔科夫州Chuhuiv的一座公寓楼遭到空袭后，乌克兰安全部队陪同一名受伤的男子。
-图片来源：Wolfgang Schwan/Anadolu Agency 通过 Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2369.png)2022年2月24日星期四，在乌克兰马里乌波尔，一名妇女走过俄罗斯炮击后的废墟。
-图片来源：AP Photo/Evgeniy Maloletka![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2370.png)2022年2月24日，在乌克兰基辅，一位当地居民在一个基督教东正教教堂里祈祷。
-图片来源：Pierre Crom/Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2371.png)2022年2月24日，俄罗斯武装部队从多个方向入侵乌克兰，在乌克兰东部城镇楚戈夫发生爆炸后，急救单位工作人员对一名受伤男子进行了治疗。
-图片来源：Aris Messinis/AFP via Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2372.png)2022年2月24日星期四，在乌克兰基辅，警察在一次明显的俄罗斯袭击后检查该地区。
-图片来源：AP Photo/Emilio Morenatti![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2373.png)2022年2月23日，平民从亲俄分离主义分子控制下的顿涅茨克地区撤离。图片来源：Stringer/Anadolu Agency 通过 Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2374.png)2022年2月24日上午，一名宗教人士在基辅独立广场上手持十字架祈祷。图片来源：Daniel Leal/AFP 通过 Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2375.png)2022年2月24日，Lia（左）和Jasmine在基辅市中心的一个车站与他们的父母一起避难时使用电话。
-图片来源：Daniel Leal/AFP 通过 Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2376.png)2022年2月24日星期四，在乌克兰马里乌波尔市外的一个乌克兰军事设施中，可以看到被损坏的雷达、一辆车和设备。
-图片来源：AP Photo/Sergei Grits![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2377.png)2022年2月24日，乌克兰东部城镇丘吉夫发生爆炸后，一名男子在一栋被摧毁的建筑外对一具亲属的尸体悲痛不已。
-图片来源：Aris Messinis/AFP 通过 Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2378.png)2022年2月24日，乌克兰军人准备在乌克兰卢甘斯克地区击退一次攻击。图片来源：Anatolii Stepanov/AFP 通过 Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2379.png)2022年2月24日星期四，乌克兰马里乌波尔发生明显的俄罗斯袭击事件后，乌克兰军事设施在一个防空基地烧毁。
-图片来源：AP Photo/Evgeniy Maloletka![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2380.png)2022年2月24日星期四，在乌克兰基辅市外的俄罗斯炮击事件后，火焰和烟雾从一栋民房的残骸中升起。
-图片来源：AP Photo/Efrem Lukatsky![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2381.png)2022年2月24日星期四，据称是俄罗斯的军用直升机飞越乌克兰基辅郊区。
-图片来源：Ukrainian Police Department Press Service 通过 AP![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2382.png)2022年2月24日星期四，乌克兰哈尔科夫发生明显的俄罗斯袭击事件后，人们站在街上的军事装备碎片旁。
-图片来源：AP Andrew Marienko![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2383.png)2022年2月24日，妇女在逃离轰炸后哭泣着进入波兰的梅迪卡。
-图片来源：Dominika Zarzycka/NurPhoto 通过 Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2384.png)2022年2月24日星期四，在乌克兰基辅，人们逃离时看到交通堵塞。
-图片来源：AP![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2385.png)2022年2月24日星期四，在乌克兰马里乌波尔，人们排队从一台自动取款机上取钱。
-图片来源：AP Photo/Sergei Grits![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2386.png)在乌克兰首都基辅的一个当地加油站，汽车排队等候。
-图片来源：Yevhen Kotenko/ Ukrinform/Future Publishing 通过 Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2387.png)2022年2月24日，在乌克兰克拉马托尔斯克，俄罗斯的军事行动开始后，看到人们带着行李箱离开。
-图片来源：Aytac Unal/Anadolu Agency 通过 Getty Images
-原文连接：[https://www.foxnews.com/world/russia-ukraine-crisis-graphic-photos-bloodied-civilians-invasion](https://www.foxnews.com/world/russia-ukraine-crisis-graphic-photos-bloodied-civilians-invasion)
-
-翻译：洛杉矶盘古农场 – TrueSky
-
-校对：洛杉矶盘古农场 – Mike Li
-
-评论：洛杉矶盘古农场 – Mike Li
-
-编辑：洛杉矶盘古农场 – WenXiong
-
-发布：洛杉矶盘古农场–子萍
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/819f1e9e6501f175-2.png)配图 雅典娜设计组～614
 
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+郭文贵先生**2018**年**7**月**17**日直播
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+中国正道主义很简单，归根结底就是权力属民，财富私人化受尊重。信仰和言论自由在法律框架下，这就是文贵所理想的中国正道主义、追求的喜马拉雅。
+
+为什么法治中国在前面？因为没有法治，这一切都是胡扯，首先要法治。中国正道主义，我认为目前来看，是解决中国所有问题最好的手段。
+
+绝大多数人认为对的情况下，还要接受媒体监督，所以说中国正道主义是让中国人不会像今天我们看到的这些：把活狗放到热锅里边儿，给退（毛）了，然后再给吃了；看到视频上打爹打娘、掐死孩子、虐待别人、除了年轻人炫耀生殖器，就是啃爷爷、啃奶奶、啃爹族、啃娘族；看到一堆的骗子谎言，全国上下都是谎言，因为谎言不受惩罚，没有佛教的妄语这种知识、没有耶稣基督教对大家的约束，也没有穆斯林告诉你说了谎以后受到惩罚上不了天堂，包括穆斯林教、基督教、佛教都是讲欺骗的结果将是受到下地狱的灾难，没有来世，这些约束没有是很可怕的。从我本人的成长来看，我小的时候如果没有我爹我娘信奉的佛教（的影响），我肯定是个大魔鬼，我也活不到今天。不是我打死别人，我被枪毙，就是别人把我打死了。我父母的朋友也都是信佛教的，后来非常荣幸，上天给了我一个最朴实的妻子，我妻子家也信佛教，非常朴实，让我一直很接地气。
+
+不管任何情况下回到家，我文贵就是一个最最最普通，一身毛病的人。我的妻子真正让我知道只有平实、善良才是最好的。然后就是说话、做事都要相信因缘轮回。后来我又接触了生活中的几个大师级的人生导师，这样的人物对我的人生带来的影响就是宗教、政治、文化、艺术、生意，我确确实实很荣幸地接触了世界上很多的高人。这些高人都很无私的把这些精神，还有他们的好东西给了我。我感悟了以后，得出综上所述的中国正道主义。这就是我对中国正道主义的理解，还有我为什么说是中国正道主义（的原因）。
+
+资料来源：郭先生GTV和盖特直播视频
+
+往期回顾：
+[文•贵天成——文贵先生谈“正道主义”（一）](https://gnews.org/zh-hans/2061785/)
+[文•贵天成——文贵先生谈“正道主义”（二）](https://gnews.org/zh-hans/2061810/)
+[文•贵天成——文贵先生谈“正道主义”（三）](https://gnews.org/zh-hans/2064565/)
+
+发布：星谕
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

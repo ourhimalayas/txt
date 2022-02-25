@@ -2,54 +2,32 @@
 ---
 
 
-## 12-15岁男性接种辉瑞mRNA疫苗后心肌炎风险增加132倍
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2065488/)
+## 俄罗斯驻日大使称将对日采取反制措施 乌克兰大使寄期望于中共国
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2065582/)
 
-作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
+翻译：zicoround
+![](https://assets.gnews.org/wp-content/uploads/2022/02/20220225-00000081-jij-000-26-view-edited.jpg)俄罗斯驻日本大使加卢津（法新社）
+由于日本政府在俄罗斯入侵乌克兰后宣布对其实施追加制裁，俄罗斯驻日本大使加卢津周二警告说，将对日本政府采取 “重大反制措施”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+他在东京的日本外国特派员协会举行了一次记者会。
 
-本文摘自美国食品和药物管理局（FDA）、疾病控制中心（CDC）的科学家Matthew E. Oster、David K. Shay、John R. Su等人1月25日发表在《[美国医学会杂志](https://jamanetwork.com/)》（JAMA）的研究论文《[Myocarditis Cases Reported After mRNA-Based COVID-19 Vaccination in the US From December 2020 to August 2021](https://jamanetwork.com/journals/jama/fullarticle/2788346)》。
+加卢津说，”制裁既无助于发展互利友好的关系，也无助于为讨论包括和平条约在内的广泛问题创造积极气氛。 他说：”非常遗憾的是，日本政府采取了对俄罗斯和日俄关系具有负面作用的措施”，暗示这将对北方领土问题产生影响。
 
-研究基于CDC的VAERS报告系统获得的数据，检查192,405,448名12岁以上的个体,在2020年12月至2021年8月31日期间，注射Pfizer-BioNTech的BNT162b2和Moderna的mRNA-1273两种mRNA COVID-19病毒疫苗后，7天风险区间内心肌炎的风险，并将接种这两种疫苗后的心肌炎风险与2017~2019年期间的正常心肌炎发病率进行对比。
+他重申了官方的立场，即军事行动 “目的在于保护（亲俄控制区的）人民，八年来他们一直受到乌克兰政府的压迫和种族灭绝。“
 
-在研究期间，192,405,448名12岁以上的个体共接种了354,100,845剂基于mRNA的COVID-19疫苗，VAERS系统共收到1991份心肌炎报告，其中1626份报告符合CDC对心肌炎的定义。
+此前，乌克兰驻日大使克尔森松斯基（Sergiy Korsunsky）也在该协会举行了记者会。 他反驳说，俄罗斯的目标”不仅是东部的顿巴斯地区，而是拿下整个乌克兰”，并透露，入侵之前，”乌克兰遭到了极其广泛的网络攻击”。
 
-心肌炎是一种导致心肌发炎并降低心脏泵血能力的疾病，可导致心脏过速或心律不齐。心肌炎最终会削弱心脏，使身体的其他部分无法获得足够的血液，然后会在心脏中形成凝块，导致心脏病发作。该病的其他并发症包括心源性猝死。
+他说，如果乌加入了北大西洋公约组织（NATO），”就不会有战争了”，并表示加盟方针政策是坚定不移的。他期待与乌克兰贸易等方面有着密切关系的中共国，在促使俄罗斯保持克制方面”能够发挥更积极的作用”。
 
-由于心肌无法再生，心肌损坏是不可修复的。因此心肌炎没有温和的版本，后果都会非常严重。
+**参考资料：**[news.yahoo.co.jp][ロシア大使、日本に対抗措置　ウクライナ大使は中国に期待](https://news.yahoo.co.jp/articles/235c68e41191e0b2eda95cc810ac0c92ee5db97a)
 
-在这1626份报告心肌炎患者中，中位年龄为21岁，出现症状的中位时间为2天，男性占82%。
+* * *
 
-下图为各年龄段接种两种mRNA疫苗后的心肌炎病例数，两针疫苗的发病率明显比一针疫苗的高。
+*审核：zicoround*
+*校对：宫米叶*
+*发稿：信心的选择*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/joi210145f1_1643643679.9698.png)
-
-下图为接种两种mRNA COVID-19病毒疫苗接种后，心肌炎病例从接种疫苗到出现症状的时间
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/joi210145f2_1643643679.98436.png)
-
-下表为2020年12月14日至2021年8月31日期间，接种mRNA疫苗后，符合CDC定义的心肌炎病例的性别、年龄、发病时间、种族特征
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/joi210145t1_1643643679.89339.png)
-
-下表为接种这两种 mRNA COVID-19病毒疫苗后，7天风险区间内向VAERS报告的、符合CDC对心肌炎的病例定义的，在每百万剂疫苗接种的后的报告病例，与根据FDA和CDC官方数据预计2017~2019年期间正常发生的心肌炎病例数对比
-![](https://assets.gnews.org/wp-content/uploads/2022/02/joi210145t2_1643643680.01435.png)
-根据上表数据，12至15岁男性，接种辉瑞疫苗后，每百万人的心肌炎病例数为70.73，而2017~2019年间为0.53，说明接种辉瑞疫苗后，患心肌炎的风险增加（70.73-0.53）÷0.53×100%=13,200%倍。
-
-16-17岁男性，接种辉瑞疫苗后，每百万人的心肌炎病例数为105.86，而2017~2019年间为1.34，说明接种辉瑞疫苗后，患心肌炎的风险增加（105.86-1.34）÷1.34×100%=7,800%倍。
-
-18至24岁的男性，接种辉瑞疫苗后，每百万人的心肌炎病例数为52.43，而2017~2019年间为1.76，说明接种辉瑞疫苗后，患心肌炎的风险增加（52.43-1.76）÷1.76×100%=2900%倍。
-
-16至24岁的男性，在接种Moderna疫苗后，每百万人的心肌炎病例数为56.31，而2017~2019年间为1.76，说明接种辉瑞疫苗后，患心肌炎的风险增加（56.31-1.76）÷1.76×100%=3100%倍。
-
-25至29岁的男性，在接种Moderna疫苗后，每百万人的心肌炎病例数为24.18，而2017~2019年间为1.45，说明接种辉瑞疫苗后，患心肌炎的风险增加（24.18-1.45）÷1.45×100%=1600%倍。
-
-参考数据：
-
-[Myocarditis Cases Reported After mRNA-Based COVID-19 Vaccination in the US From December 2020 to August 2021](https://jamanetwork.com/journals/jama/fullarticle/2788346)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-4.jpeg)
 
  
 
