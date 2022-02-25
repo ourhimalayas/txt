@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/25/2022 10:07 PM (UTC)`
+
+2/25/2022 Miles Guo: What does Putin attacking Ukraine at this time have to do with the CCP virus and COVID vaccines? How does that relate to Trudeau's implementing the Emergencies Act and hiring foreign mercenaries? Why are the Western countries bluffing when it comes to Russia’s invasion of Ukraine? International diplomatic relations are all about strength and self-interest.<br/><br/>2/25/2022 文贵直播：普京此时打乌克兰和病毒、疫苗有啥关系？这和加拿大土豆实施紧急状态法、使用雇佣军又有啥关系？西方各国为何咋呼？实力和自我利益是国际外交关系的核心<br/>
+![img](https://media.gettr.com/group38/getter/2022/02/25/22/5c8e33e6-8dfc-c13e-e3fb-2146abb969f8/out.jpg)
+
+---
+
 `@miles 2/25/2022 1:02 PM (UTC)`
 
 2022年2月25日 文贵大直播：乌克兰形势与第三次世界大战；加停止紧急状态法与疫苗灾难；中共攻台进入即时戰备状态；世界经济如何面对战争与病毒
@@ -146,13 +153,6 @@
 
 2/23/2022 Miles Guo: The COVID vaccines may cause 500 million to 1 billion people to die or to have disabilities. I believe that the effective treatments for adverse effects of the COVID vaccines will soon be available. The COVID vaccine disasters have not started yet. Please don’t get the jab or catch the CCP virus. You should not be prevailed by fatigue in the face of the prolonged campaign against the CCP virus and its vaccines.<br/><br/>2/23/2022 文贵直播：疫苗最终可能导致5到10亿人死亡或残疾，文贵相信很快会有针对疫苗的有效的办法。疫苗灾难尚未开始，不要打疫苗也不要染上病毒，千万不要在疲劳战面前被疲劳征服！<br/>
 ![img](https://media.gettr.com/group15/getter/2022/02/24/07/f09ff172-6118-66e2-571a-7aa29d07db72/out.jpg)
-
----
-
-`@miles 2/24/2022 7:18 AM (UTC)`
-
-2/23/2022 Miles Guo: All the so-called international military experts and political experts are crooks and running dogs of the CCP. Putin and Xi are implementing a dual strategy targeting both Ukraine and Taiwan by using a surprise attack. The reason Xi had disappeared for seven days was that he had to have surgeries so that Putin was given time to make all sorts of deployments.<br/><br/>2/23/2022 文贵直播：中文世界所谓的国际军事专家、政治专家都是骗子、中共的走狗；普京和习玩的是突然袭击的双向战略；习神隐7天是因为他不得不做手术并让普京进行各种部署<br/>
-![img](https://media.gettr.com/group47/getter/2022/02/24/07/60d54811-8372-3ef9-0e89-25cb22d5b296/out.jpg)
 
 ---
 
