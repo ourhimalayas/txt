@@ -2,20 +2,42 @@
 ---
 
 
-## 法国将有效疫苗护照定义为接种加强剂
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2066039/)
+## 中共锁链国八孩女事件结果再次强奸民意
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2066055/)
 
-加拿大温哥华扬帆农场    平民正道
+作者：香草山健身部 – 文鹰
 
-据美国媒体[网关专家]2月22日报道, 法国马克龙政府日前宣布，所有已接种二剂但尚未注射第三针的疫苗护照失效。而根据现行政策，在进入酒吧、餐厅等公共场所或乘坐跨区公交时，都必须出示疫苗护照。
 
-报道称，马克龙突然宣布原两针疫苗护照失效的做法令各界错愕。部分民众因无法接受通行证被作废后将失去行动自由的现实，而被迫接种了第三剂。而这正是法国政府推出本次新政策的初衷。但同时，越来越多的民众不愿再接种更多的疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-65.png)
+当地时间2月23日，中共媒体发表‘丰县锁链女事件调查’一文，对江苏省委省政府调查组，处理该事件通报结论表示认可。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-13.jpg)图片来源网络
+自该事件被网友1月17日，发布自媒体引起民众关注以来。中共为保北京冬奥会，放任地方政府造假不作为，导致舆论沸腾民意愤慨，要求真相声音高涨。 中共政府不是去解决问题，而是持续掩盖事实，打压民众了解真相压制批评声音。甚至用铁皮封锁整个事件发生地，让警察抓捕爆料人并威胁采访声援人士。 有分析人士指出：该事件是中共篡政以来最大的舆情危机，捅破了中共盛世的一个大脓包。中共党媒的宣传，是一切为了邪党的利益，在继续欺骗强奸民众民意。
 
-评论指出，在许多国家都已停止强制疫苗政策的今天，法国独裁者马克龙仍罔顾民意，逆天而行，并擅用强权威逼民众去打第三针。目前，随着民众日渐觉醒，疫苗之战不仅已进入到白热化阶段，同时也是人类历史上前所未有的一次正义与邪恶的殊死对决！
 
-* * *
 
-编辑： 平民正道    发布：平民正道
+相关链接：
+
+[https://new.qq.com/omn/20220223/20220223A05NQE00.html](https://new.qq.com/omn/20220223/20220223A05NQE00.html)
+
+![This image has an empty alt attribute; its file name is Feb-55.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-55.jpg)
+
+编辑/校对/发稿：Petite abeille
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is good-66.png](https://assets.gnews.org/wp-content/uploads/2022/02/good-66.png)
+
+
+
 
  
 
