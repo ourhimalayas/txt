@@ -2,37 +2,33 @@
 ---
 
 
-## 有声|川普：普京谋求乌克兰，中共一定打台湾
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2064673/)
+## 邪恶共产主义试图奴役世界
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2064679/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-2月22日，美国前总统川普表示，普京对乌克兰的军事行动是中共习近平试图夺回台湾的信号，在国际政治角逐中，普京和习近平的关系像极了双胞胎姐妹。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-14.jpg)
-川普认为普京和习近平是心照不宣的全天候联盟关系，冬奥会结束后，普京马上对乌克兰采取了行动，紧接着，世界应该开始关注台湾的安危。尽管拜登政府在对俄罗斯入侵乌克兰的问题上已经采取了多种制裁，但美国和欧洲还要担心的是因为战争引发的难民潮问题。国际社会几经谴责俄罗斯对乌克兰的计划入侵，但普京未曾改变策略，而习近平也在对台湾蠢蠢欲动。一场火战迫在眉睫。
+作者：纽约磐石农场 – 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生在2月20日的大直播中解读了当今世界的局势，即以中共为代表的国际共产主义正试图奴役全人类，这直接导致世界陷入黑暗之中。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/3-85.jpg)
+郭先生解释道，在一个缺乏法制的社会中，当地民众只会人人自危。尤其在中共独裁统治下，其通过一党专政来践踏中国的法律、道德和信仰，还以洗脑剥夺了人们分析和思考问题的能力。如今，中共国内巨大的贫富差距和即将崩溃的经济已经让中国人的生存变得日益艰难。
 
-此前郭文贵先生在直播中提到，乌克兰希望欧美等国能够在战争开始前做出有力阻止，不要等到乌克兰整个已经被毁掉了才开始有所动作，那已经为时已晚。欧美国家的妥协会让乌克兰陷入至暗时刻，包括台湾。
+郭先生还补充道，从2019年香港民主的殒落，到眼下祸害全球的中共病毒及其疫苗，再加上目前几乎所有国家陷入的政治和经济动荡，这一切都是由邪恶中共和达沃斯党奉行的极左共产主义试图奴役整个世界而造成的。
 
+参考链接：[人类面临的一切灾难都是共产党试图要奴役这个世界造成的](https://gnews.org/zh-hans/2050631/)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-文字版原文：[川普：普京谋求乌克兰，中共一定打台湾](https://gnews.org/zh-hans/2059618/)
+总编: Irene木木
+编辑: 宁文静
+校正/发稿：Fei797
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-3-524x720-1.jpg)
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
