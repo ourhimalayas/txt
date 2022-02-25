@@ -2,59 +2,74 @@
 ---
 
 
-## 俄罗斯-乌克兰危机：血腥照片显示入侵后平民的苦难
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2065223/)
+## 文贵大直播要点（2022年2月25日）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2065224/)
 
-**评论：***当地时间2月24日晚，乌克兰卫生部公布的信息表示，在24日的冲突中已有57名乌克兰人死亡，169人受伤。*
+整理：波士顿五月花 黄金时代
+![](https://assets.gnews.org/wp-content/uploads/2022/02/20220128.jpg)
+**一、关于疫苗灾难和加拿大紧急法案**
 
-据《福克斯新闻》作者：[Jessica Chasmar](https://www.foxnews.com/person/c/jessica-chasmar)，2022年2月24日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2365-e1645806919376.png)图片来源：BBC
-据称至少有10名平民在俄罗斯入侵乌克兰的行动中死亡。
+1.病毒和疫苗与普京进攻乌克兰、一触即发的第三次世界大战的关系：乌克兰是全世界最腐败的地方；普京进攻乌克兰有法理基础，是美国和欧洲抛弃了乌克兰；国际关系就是实力，现在已经跟黑社会差不多了；内部危机是习干台湾、普干乌克兰的根本原因；习普二人身体都不好，都随时有可能被内部人干掉；病毒和疫苗是这场战争开始的预谋和准备；
 
-俄罗斯军队周四对乌克兰发动了全面入侵，用空袭和炮击打击城市和基地，而平民则拼命逃离该国或在地铁站避难。
+2.关于乌克兰核电站的安危：切尔诺贝利核电站周围存在严重污染，有可能发生大灾难，但核电站还不是最可怕的，因为东欧人的性格是临死前要毁掉全世界；
 
-由于俄罗斯继续入侵该国，据称至少有40名乌克兰军人和10名平民死亡，而且这一数字预计还会上升。
+3.加拿大紧急法案的取消：因为紧急法案触动了两件事，一是威胁到了美国，加拿大没有独立的金融，而是控制在美国的手里，华尔街不允许卡车运动传到美国；二是让底层人没有安全感，这些人占加拿大70%人口，小土豆毁掉了加拿大的基石；
 
-警告：血腥的图片图像，可能引起不适。
+4.自由卡车运动的影响：加拿大人是最听话的国民，现在小土豆却把金融系统连根拔掉、把媒体全部控制，吓傻了所有人，从而让加拿大人看清了加拿大就是美国的擦脚布，因此也将置死地而后生，加拿大将是新崛起的大国之一；
 
-下面是对乌克兰人民所遭受的死亡和破坏的一瞥。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2366-e1645807086743.png)2022年2月24日，乌克兰哈尔科夫州Chuhuiv市的一座公寓楼被空袭破坏，一名受伤的妇女。
-图片来源：Wolfgang Schwan/Anadolu Agency 通过 Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2367-e1645807133411.png)2022年2月24日，乌克兰东部城镇丘吉夫被炸后，一名受伤的妇女站在医院外。
-图片来源：Aris Messinis/AFP 通过 Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2368.png)2022年2月24日，乌克兰哈尔科夫州Chuhuiv的一座公寓楼遭到空袭后，乌克兰安全部队陪同一名受伤的男子。
-图片来源：Wolfgang Schwan/Anadolu Agency 通过 Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2369.png)2022年2月24日星期四，在乌克兰马里乌波尔，一名妇女走过俄罗斯炮击后的废墟。
-图片来源：AP Photo/Evgeniy Maloletka![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2370.png)2022年2月24日，在乌克兰基辅，一位当地居民在一个基督教东正教教堂里祈祷。
-图片来源：Pierre Crom/Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2371.png)2022年2月24日，俄罗斯武装部队从多个方向入侵乌克兰，在乌克兰东部城镇楚戈夫发生爆炸后，急救单位工作人员对一名受伤男子进行了治疗。
-图片来源：Aris Messinis/AFP via Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2372.png)2022年2月24日星期四，在乌克兰基辅，警察在一次明显的俄罗斯袭击后检查该地区。
-图片来源：AP Photo/Emilio Morenatti![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2373.png)2022年2月23日，平民从亲俄分离主义分子控制下的顿涅茨克地区撤离。图片来源：Stringer/Anadolu Agency 通过 Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2374.png)2022年2月24日上午，一名宗教人士在基辅独立广场上手持十字架祈祷。图片来源：Daniel Leal/AFP 通过 Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2375.png)2022年2月24日，Lia（左）和Jasmine在基辅市中心的一个车站与他们的父母一起避难时使用电话。
-图片来源：Daniel Leal/AFP 通过 Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2376.png)2022年2月24日星期四，在乌克兰马里乌波尔市外的一个乌克兰军事设施中，可以看到被损坏的雷达、一辆车和设备。
-图片来源：AP Photo/Sergei Grits![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2377.png)2022年2月24日，乌克兰东部城镇丘吉夫发生爆炸后，一名男子在一栋被摧毁的建筑外对一具亲属的尸体悲痛不已。
-图片来源：Aris Messinis/AFP 通过 Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2378.png)2022年2月24日，乌克兰军人准备在乌克兰卢甘斯克地区击退一次攻击。图片来源：Anatolii Stepanov/AFP 通过 Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2379.png)2022年2月24日星期四，乌克兰马里乌波尔发生明显的俄罗斯袭击事件后，乌克兰军事设施在一个防空基地烧毁。
-图片来源：AP Photo/Evgeniy Maloletka![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2380.png)2022年2月24日星期四，在乌克兰基辅市外的俄罗斯炮击事件后，火焰和烟雾从一栋民房的残骸中升起。
-图片来源：AP Photo/Efrem Lukatsky![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2381.png)2022年2月24日星期四，据称是俄罗斯的军用直升机飞越乌克兰基辅郊区。
-图片来源：Ukrainian Police Department Press Service 通过 AP![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2382.png)2022年2月24日星期四，乌克兰哈尔科夫发生明显的俄罗斯袭击事件后，人们站在街上的军事装备碎片旁。
-图片来源：AP Andrew Marienko![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2383.png)2022年2月24日，妇女在逃离轰炸后哭泣着进入波兰的梅迪卡。
-图片来源：Dominika Zarzycka/NurPhoto 通过 Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2384.png)2022年2月24日星期四，在乌克兰基辅，人们逃离时看到交通堵塞。
-图片来源：AP![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2385.png)2022年2月24日星期四，在乌克兰马里乌波尔，人们排队从一台自动取款机上取钱。
-图片来源：AP Photo/Sergei Grits![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2386.png)在乌克兰首都基辅的一个当地加油站，汽车排队等候。
-图片来源：Yevhen Kotenko/ Ukrinform/Future Publishing 通过 Getty Images![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2387.png)2022年2月24日，在乌克兰克拉马托尔斯克，俄罗斯的军事行动开始后，看到人们带着行李箱离开。
-图片来源：Aytac Unal/Anadolu Agency 通过 Getty Images
-原文连接：[https://www.foxnews.com/world/russia-ukraine-crisis-graphic-photos-bloodied-civilians-invasion](https://www.foxnews.com/world/russia-ukraine-crisis-graphic-photos-bloodied-civilians-invasion)
+5.后病毒疫苗时代政府还会存在，但是我们将面临很长时间的乱世，人类从来没有像2022年这么危险，美俄中三国关系决定人类命运，习普代表的大陆文明国家要对抗西方的海洋文明国家，是独裁制度和民主制度的对决，我们一生可能都将处于不同文明的大冲突之中；
 
-翻译：洛杉矶盘古农场 – TrueSky
+**二、关于全球金融危机**
 
-校对：洛杉矶盘古农场 – Mike Li
+6.日本发展数字货币有利于喜币，但是日本的数字货币很难做大，因为战后日本就没有金融，屡次被西方轻松割韭菜；
 
-评论：洛杉矶盘古农场 – Mike Li
+7.与UBS的案子一定会发生，UBS与锁链女一样不能见媒体、不能见它不可控的法院，我们就是要让它上法院，这个案子是打开沼泽地与中共勾结的口子，可以引出它们所有的黑历史；
 
-编辑：洛杉矶盘古农场 – WenXiong
+8.人民银行副行长给UBS当说客，给郭先生打电话说：共产党都给UBS跪下了，世界上有几个人敢跟UBS斗？为了啥？算了吧，这事儿就算拉倒吧；
 
-发布：洛杉矶盘古农场–子萍
+9.买了美国养老基金的战友都可以起诉单伟建；
+
+10.受通胀影响，街头政治将来在美国、在全世界都会发生，供应链最重要的是海运，现在受动荡地区严重影响，疫苗灾难发生后会受到更大冲击，因为时间、人工等成本都会大幅上升；
+
+11.在接下来的大动荡中，喜币将体现出更大的意义，喜币的重要性不仅是让战友有钱、能享受物质生活，而且要让战友有能力帮助别人、找到觉悟的钥匙、找到在动荡中活下去的办法，法币在大动荡中必将被改写、新的法币将与数字货币共存，而喜币和Hpay将解决所有法币的不稳定性和不可控性；
+
+12.利用Hpay公开卖东西，必须有相关商品的经营牌照，否则违法，但是利用Hpay进行个人之间的互转则没有任何问题，所以Hpay将给战友提供乱世中不受监管、不被第三方停止、自由流通的支付手段；
+
+13.喜币提供了即时的、衡量生产力的、可交易的货币单位，喜币必须是代表正义的财富，决不能成为犯罪的工具；
+
+14.人民币限制取五万就是因为喜币，中共的小钱大钱郭先生都不要，是要人民币的命，因为钱是跟着人心走的，喜币就是人心币；
+
+15.喜币上线让沼泽地开始正视新中国联邦的实力，让他们意识到喜币可以将中国的钱全都洗出来；
+
+**三、关于乌克兰战争最新信息**
+
+16.在乌克兰危机中，新中国联邦人积极救助战友，表明中国人这个“竹子”是有心的；
+
+17.农场的联合救助行动一定要团结、高效、准确，这是新中国联邦运作的一次重要演习，将来的帮助对象不限于中国和台湾；
+
+18.乌克兰和台湾危机提高了新中国联邦的国际形象，已经成为各国不可忽视的力量；
+
+19.昨天习已将潜艇部队部署到台海，准备了三种攻台方式：第一是根据乌克兰形势，实行普京战略，由台湾卖台贼求援，中共派兵入台铲除台独分子，第二是围而不打，饿不死也饿半死，导致经济崩塌，第三是迅速占岛，因为俄军在乌克兰受到重创，所以更可能是第二种方式；
+
+20.英国对俄罗斯的杀手锏是swift，切断swift，俄罗斯一定完，但就是不切，另外就是驱逐俄罗斯人、查封资产，这样俄罗斯内部人就会把普京干掉，但是英国为了自己的利益也不会这样做；
+
+21.共产党的1号文件表明粮食要出大问题，已经准备了人民公社和大锅饭，再以疫情为名，把所有人都关在家里，五万金额的限制已经引起了破窗效应，导致资金外逃；
+
+22.西方对中共的制裁和军事行动都将发生，不会像对俄罗斯一样缓慢，而且将超出想象；
+
+23.中国人只有参加新中国联邦才能有安全、有财富，海外的排华一定会发生，唯一解决的方法就是跟随新中国联邦；
+
+24.台湾已到了结的时候，不可能再过去了。
 
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+（整理要点仅供参考，准确含义以郭先生原视频为准。）
+
+* * *
+
+*封面：霹雳鼠年*
+
+*编辑 /发布：吐纳*
 
  
 
