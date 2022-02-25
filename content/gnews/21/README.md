@@ -2,33 +2,49 @@
 ---
 
 
-## 大直播后记：靠啥灭共
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2062065/)
+## 《蓝莲花行动》首季一期
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2062075/)
 
-整理：HomeL、枫叶红了
-编辑：小红帽
-![文章配图](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-24-下午3.49.05.png)
-我就看了后想笑。火鸡龚（龚小夏），你不用准备两杆枪，你把这两个脚丫子从窗户伸出来，我们战友全都跑了跑。全跑哪里呀？跑到袋鼠袋子去了。你那两个脚丫子比枪管用。我笑晕了。我还准备两杆枪，他们来我就毙了他。我想告诉火鸡龚，你根本不需要，就弄一只火鸡，挂在你门口，我们的人都远远避之。飞机都不敢路过。这比北朝鲜的墙都管用。下来了，是吧？你那两只脚丫子，只要一露出来，挂个照片，我们都得抱头鼠窜，知道吗？就这谎，她也敢撒。
+**—[圣洁绽放蓝莲花  正道行动攀喜峰](https://gtv.org/broadcast/watch/6217a11308ba8a07b1a2b4ea)—**
 
-就像路大脑袋（路德），他要灭共，你靠啥灭共呢？你靠灭共呢？靠你老婆?靠那个给你生了孩子，你不养的这媳妇儿？靠你那个愚蠢的头和结结巴巴的嘴？靠你那个炒10个鸡蛋的蛇妖闫（闫丽梦）？鸡蛋闫，蛇妖闫？就这也有人信。为什么，你知道吗？我们很多人脑子太空白，太无知。就像这个普京搞乌克兰，国内有些体制内的战友说，“七哥，我刚参加晚会，看来没打台湾的意图。最近不止对台，特别是我们这个省，就是对台最重要的，还是让我们继续团结台湾，照顾好这些老兵，继续统战战略。对台湾要搞颜色革命，团结国民党，挑拨民进党”。这战友是一个省级干部。
+**🎙️主持：@ 澄道来了 🎙️嘉宾：@ Jimhu 吉姆湖｜@ 文聊**
+[![](https://assets.gnews.org/wp-content/uploads/2022/02/Unknown-1-7.jpeg)](https://gtv.org/broadcast/watch/6217a11308ba8a07b1a2b4ea)点击图片观看完整视频
+**🔷主题： [反华排华 灾难重演会有多远 ！](https://gtv.org/broadcast/watch/6217a11308ba8a07b1a2b4ea)**
 
-我告诉咱们的战友，这半个战友一句话，“如果你不知道共产党他有多假，你这一辈子就白活。就像刚刚你的小舅子打疫苗死了一样，打了三针才知道自己完了，结果嘎嘣嗝屁了”。
+**📜副题： 从仇恨种子酝酿到疫苗灾难溯责 从HBO造势嫁祸到华人惨遭一杀再杀  不可控 未雨绸 中共不等于中国人 正道宣告**
 
-火鸡龚，路大脑袋等这些人的行为都是犯罪。据我所知，美国司法部对PAG单伟建，还有火鸡龚这些人，周孝正，还有路大脑，蛇妖闫都在调查。所以美女主播，你们得行动，不能光靠嘴，得靠手，经常敲两下子键盘。或者像火鸡龚借用你的脚丫子，给美国司法部，国土部传传这些人的信息，加速这些人的调查。在猫本小哥带领下，咱们雅典娜做得非常好，最近行动比较多。但是希望我们做的更多一些，谢谢。
+**人各有命 新中国联邦人 之幸运 如肓龟浮木 富贵在天**
 
-猫本小哥：我们一定会行动，一定会有更多的行动，包括向这个美国政府，向澳洲政府不断地传播真相。这个事我们一定会做，也一直在做。
+**爆料革命 之璀璨 如动天换日**
 
-资料来源：郭文贵先生2022年2月23日大直播
+**澄清认知 灭共唯一**
 
-发布： tianzhihuan
+**＂秘翻响鼓秀埸＂之 @ 文聊 @ 小小酥@北极星 再聚 **
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**…… 娓娓道来**
 
+**了却宿愿 心同莲花圣绽放**
+
+**                           行似使徒洁身爱**
+
+**[@ 零距离车间 @ 澄道来了  @ 爱动爱爱码02171](https://gtv.org/broadcast/watch/6217a11308ba8a07b1a2b4ea)**
+
+**GTV链接：**[https://gtv.org/broadcast/watch/6217a11308ba8a07b1a2b4ea](https://gtv.org/broadcast/watch/6217a11308ba8a07b1a2b4ea)
+
+* * *
+
+
+
+2022年2月| 一 | 二 | 三 | 四 | 五 | 六 | 日 |
+| --- | --- | --- | --- | --- | --- | --- |
+|   | [1](https://gnews.org/zh-hans/date/2022/02/01/) | [2](https://gnews.org/zh-hans/date/2022/02/02/) | [3](https://gnews.org/zh-hans/date/2022/02/03/) | [4](https://gnews.org/zh-hans/date/2022/02/04/) | [5](https://gnews.org/zh-hans/date/2022/02/05/) | [6](https://gnews.org/zh-hans/date/2022/02/06/) |
+| [7](https://gnews.org/zh-hans/date/2022/02/07/) | [8](https://gnews.org/zh-hans/date/2022/02/08/) | [9](https://gnews.org/zh-hans/date/2022/02/09/) | [10](https://gnews.org/zh-hans/date/2022/02/10/) | [11](https://gnews.org/zh-hans/date/2022/02/11/) | [12](https://gnews.org/zh-hans/date/2022/02/12/) | [13](https://gnews.org/zh-hans/date/2022/02/13/) |
+| [14](https://gnews.org/zh-hans/date/2022/02/14/) | [15](https://gnews.org/zh-hans/date/2022/02/15/) | [16](https://gnews.org/zh-hans/date/2022/02/16/) | [17](https://gnews.org/zh-hans/date/2022/02/17/) | [18](https://gnews.org/zh-hans/date/2022/02/18/) | [19](https://gnews.org/zh-hans/date/2022/02/19/) | [20](https://gnews.org/zh-hans/date/2022/02/20/) |
+| [21](https://gnews.org/zh-hans/date/2022/02/21/) | [22](https://gnews.org/zh-hans/date/2022/02/22/) | [23](https://gnews.org/zh-hans/date/2022/02/23/) | [24](https://gnews.org/zh-hans/date/2022/02/24/) | 25 | 26 | 27 |
+| 28 |   |
+
+[« 1月](https://gnews.org/zh-hans/date/2022/01/)  
+ 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

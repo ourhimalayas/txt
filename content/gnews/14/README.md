@@ -2,83 +2,274 @@
 ---
 
 
-## 币圈新闻动态：喜币（HCN）价格目前在39.997 HDO
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2062101/)
+## 每日快报：台湾将对俄罗斯实施经济制裁
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2062119/)
 
-*喜马拉雅华盛顿DC 编辑：aQ*
+*作者：*映兰轩
 
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/07/ScreenShot-2021-07-31-at-16.20.22@2x.png)
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/每日快报.png)
 
+# ***今日摘要***
 
-
-## 每日一问
-
-
-
-
-
-俄罗斯如今乌克兰会如何影响币圈走向？
+1. ** [为什么政治观察家说俄罗斯的入侵可能预示着一个全球无序的时代](https://www.marketwatch.com/story/putins-war-in-ukraine-should-concern-every-person-on-earth-why-political-observers-say-the-russian-invasion-may-foretell-an-era-of-global-disorder-11645731455?link=sfmw_tw)**
+2. ** [俄乌战争：泽伦斯基下令全面动员军事力量应对入侵](https://www.republicworld.com/world-news/russia-ukraine-crisis/russia-ukraine-war-zelenskyy-orders-full-military-mobilisation-to-counter-invasion-articleshow.html)**
+3. ** [外交部：台湾将对俄罗斯实施经济制裁](https://www.cna.com.tw/news/aipl/202202255003.aspx)**
+4. ** [欧盟27国领导人同意进一步全面制裁俄罗斯，白俄罗斯也将受到制裁](https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20220224-%E6%AC%A7%E7%9B%9F27%E5%9B%BD%E9%A2%86%E5%AF%BC%E4%BA%BA%E5%90%8C%E6%84%8F%E8%BF%9B%E4%B8%80%E6%AD%A5%E5%85%A8%E9%9D%A2%E5%88%B6%E8%A3%81%E4%BF%84%E7%BD%97%E6%96%AF%EF%BC%8C%E7%99%BD%E4%BF%84%E7%BD%97%E6%96%AF%E4%B9%9F%E5%B0%86%E5%8F%97%E5%88%B0%E5%88%B6%E8%A3%81) **
+5. ** [CDC数据：接种疫苗的人中COVID-19病例和住院人数激增](https://www.theepochtimes.com/vaccinated-people-more-likely-to-contract-covid-19-go-to-hospital-in-recent-weeks-cdc-data_4300048.html)**
 
 
+# 重要事件
+
+- ** [02.24.Marketwatch：为什么政治观察家说俄罗斯的入侵可能预示着一个全球无序的时代Why political observers say the Russian invasion may foretell an era of global disorder](https://www.marketwatch.com/story/putins-war-in-ukraine-should-concern-every-person-on-earth-why-political-observers-say-the-russian-invasion-may-foretell-an-era-of-global-disorder-11645731455?link=sfmw_tw) **
+
+
+在二战后的时代，主要国家一直控制着武力的使用。但专家警告说，这可能正在发生变化。乌克兰战争是否标志着一个由全球动荡和权力争夺定义的新时代的开始？
+
+这就是一些政治观察家的看法。在俄罗斯入侵其邻国的前几天，评论员和官员们将一场潜在的战争描述为具有更大影响的战争–不仅仅是对东欧或整个欧洲，而是对整个世界。核心问题是，在二战后，各国，尤其是超级大国，很少通过军事手段将自己的意志强加于人，乌克兰战争可能预示着一种不同的–而且明显更危险的–方法。
+
+历史学家和哲学家尤瓦尔-诺亚-哈拉里(Yuval Noah Harari)在《经济学人》杂志上写道：”俄罗斯入侵乌克兰的威胁应该引起地球上每个人的关注。如果强国对弱国的狼性攻击再次成为常态，这将影响全世界人民的感受和行为方式。”全球秩序专家乌尔里希-斯佩克向卡内基国际和平基金会表达了类似的观点，尽管他主要关注乌克兰局势对欧洲的影响。他指出，欧洲大陆的公民已经习惯于生活在一个 “软实力取代硬实力，国际法创造了一个互利秩序的基础 “的时代。
+
+而现在呢？”所有这些假设都受到了质疑，”斯佩克说，”旧式的权力政治又回来了。”《纽约时报》白宫和国家安全记者大卫-E-桑格说，就乌克兰局势的更广泛影响而言，利害关系 “非常真实”。他指出，国际协议，例如自苏联解体以来通过北约达成的协议，一直保持着欧洲的安全。反过来，”大多数欧洲人，坦率地说，大多数美国人，已经开始认为（这就是）世界的组织方式。”
+
+但俄罗斯总统弗拉基米尔-普京正在颠覆这种假设，桑格说，”普京正在利用这个时刻并挟持乌克兰说，’不，不，不……这可能是过去25年的世界组织方式，但这不是我们愿意让世界在未来25年的组织方式。”泰晤士报的特约评论员弗兰克-布鲁尼说得更直白，他说我们中的许多人错误地认为我们已经进入了一个 “开明的”–而且基本上是没有战争的–时代。”我不知道这是潮人的事，还是现代人的事，还是精英的事，还是其他什么事，但在我的一生中，在这个国家，在我的许多同代人中，一直有一种感觉，即人们已经吸取了特别的教训，正在演变，超越了琐碎和野蛮的极端，当然是在全球被认为更开明的角落，” 布鲁尼写道。显然，情况并非如此，布鲁尼补充说，”尴尬、虚荣、恶毒。历史永远不会向前发展，也不会超越这些力量，这些力量在过去几个世纪推动了入侵和征服，并将在未来几年推动入侵和征服。”
+
+不仅仅是政治观察员在发出这样的警告。政治官员也是如此。美国国务卿安东尼-布林肯（Antony J. Blinken）1月在柏林的一次演讲中说，允许俄罗斯 “违反这些原则”，不使用武力来重塑政治边界，”将把我们所有人拖回到一个更加危险和不稳定的时代。”布林肯补充说，俄乌局势 “比两个国家之间的冲突更大….。这是一场具有全球后果的危机，它需要全球关注和行动”。
+
+- **[02.24.Republicworld：俄乌战争：泽伦斯基下令全面动员军事力量应对入侵Russia-Ukraine War: Zelenskyy Orders Full Military Mobilisation To Counter Invasion](https://www.republicworld.com/world-news/russia-ukraine-crisis/russia-ukraine-war-zelenskyy-orders-full-military-mobilisation-to-counter-invasion-articleshow.html) **
+
+
+乌克兰总统沃洛基米尔-泽伦斯基下令进行全面军事动员，因为他的国家面临俄罗斯军队的大规模入侵。在周四发布的一项法令中，他说动员将持续90天。所有地区的应征者和预备役人员都将被征召，军队的总参谋部将决定有资格服役的人数。总统内阁的任务是为动员工作分配资金。
+
+周四，入侵的俄罗斯军队对乌克兰发动了致命的攻击，战火烧到了基辅郊区，西方国家以迅速的制裁作为回应。俄罗斯的导弹和炮击雨点般落在乌克兰城市，迫使平民在地铁系统上避难，有10万人流离失所。俄罗斯此前只说它对乌克兰空军基地、防空炮台和其他军事设施进行了空袭和导弹袭击。莫斯科说它已经摧毁了83个乌克兰军事设施。
+
+在乌克兰继续威慑入侵部队的同时，总统沃洛基米尔-泽伦斯基告知，137名平民和军人在袭击和打击中丧生。他在周五早些时候发布的视频讲话中称他们是 “英雄”，他还说还有数百人受伤。
+
+- [** 02.24.Cna：外交部：台湾将对俄罗斯实施经济制裁**](https://www.cna.com.tw/news/aipl/202202255003.aspx)
+
+
+（中央社记者黄雅诗台北25日电）外交部今天发表声明指出，中华民国台湾政府严厉谴责俄罗斯违反联合国宪章发动战争，为敦促俄方停止对乌克兰的军事侵略，以及儘速恢复各方的和平对话，中华民国台湾政府宣布将参与国际社会对俄罗斯的经济制裁。
+
+外交部今天发布新闻稿指出，俄罗斯以武力入侵乌克兰并强占乌国领土，此举不仅破坏区域及全球和平与稳定，也是对以规则为基础的国际秩序，以及维护保障各国主权与领土完整的国际法体系，构成最为严峻的威胁及挑战。外交部指出，中华民国台湾作为国际社会民主阵营的成员，坚定捍卫民主自由及法治人权的普世核心价值，对俄罗斯不以外交协商的和平方式解决争议，却选择以强凌弱的武力威吓手段，至表遗憾。
+
+外交部指出，为敦促俄方停止对乌克兰的军事侵略，以及儘速恢复各方的和平对话，中华民国台湾政府宣布将参与国际社会对俄罗斯的经济制裁。外交部指出，中华民国台湾政府重申并再度呼吁尊重乌克兰主权独立及领土完整，反对以武力或胁迫方式片面改变现状，支持各方在国际法架构下，透过和平、理性的对话与协商解决歧见。台湾将持续与美国及其他理念相近国家紧密协调，採取适当的因应作为，协助乌克兰早日远离战祸，恢复区域及全球的和平与稳定。
+
+- [** **](https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20220224-%E6%AC%A7%E7%9B%9F27%E5%9B%BD%E9%A2%86%E5%AF%BC%E4%BA%BA%E5%90%8C%E6%84%8F%E8%BF%9B%E4%B8%80%E6%AD%A5%E5%85%A8%E9%9D%A2%E5%88%B6%E8%A3%81%E4%BF%84%E7%BD%97%E6%96%AF%EF%BC%8C%E7%99%BD%E4%BF%84%E7%BD%97%E6%96%AF%E4%B9%9F%E5%B0%86%E5%8F%97%E5%88%B0%E5%88%B6%E8%A3%81)**[02.24.Rfi：欧盟27国领导人同意进一步全面制裁俄罗斯，白俄罗斯也将受到制裁](https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20220224-%E6%AC%A7%E7%9B%9F27%E5%9B%BD%E9%A2%86%E5%AF%BC%E4%BA%BA%E5%90%8C%E6%84%8F%E8%BF%9B%E4%B8%80%E6%AD%A5%E5%85%A8%E9%9D%A2%E5%88%B6%E8%A3%81%E4%BF%84%E7%BD%97%E6%96%AF%EF%BC%8C%E7%99%BD%E4%BF%84%E7%BD%97%E6%96%AF%E4%B9%9F%E5%B0%86%E5%8F%97%E5%88%B0%E5%88%B6%E8%A3%81) **
+
+
+欧盟27国领导人2月24日晚间在布鲁塞尔举行的欧洲理事会紧急会议上同意通过对俄罗斯实施第二套全面的制裁计划。欧盟在一份声明中表示：“这些制裁涵盖了（俄罗斯的）金融部门、能源和运输部门、（军民）两用物品以及出口管制和出口融资、签证政策、俄罗斯个人的额外列名和新的列名标准。”
+
+作为欧盟最高决策机构，欧盟27国领导人在周四晚的欧洲理事会会议后发表了联合声明。乌克兰总统泽连斯基（Volodymyr Zelensky）以视频的方式向欧盟27国领导人进行了发言。欧洲理事会主席、比利时前首相米歇尔通过推特表示：“我们赞扬乌克兰人民的决心和勇气。欧盟团结一致，声援乌克兰。”
+
+欧盟27国领导人会后发表的联合声明说：“欧洲理事会最强烈地谴责俄罗斯联邦对乌克兰无端和无理的军事侵略。俄罗斯的非法军事行动严重违反了国际法和《联合国宪章》的原则，破坏了欧洲和全球安全与稳定。欧洲理事会强调，这包括乌克兰选择自己命运的权利。俄罗斯对这一侵略行为及其造成的所有破坏和生命损失负有全部责任。他将被追究其行为的责任。”
+
+声明说：“欧洲理事会要求俄罗斯立即停止其军事行动，无条件地从乌克兰全境撤出所有部队和军事装备，并充分尊重乌克兰在其国际公认边界内的领土完整、主权和独立。欧洲理事会呼吁俄罗斯和俄罗斯支持的武装编队尊重国际人道主义法，并停止其造谣运动和网络攻击。”
+
+声明说：“欧洲理事会对俄罗斯的侵略造成的悲惨的生命损失和人类痛苦表示遗憾。它声援那些生活受到这一无理和不合理攻击影响的妇女、男子和儿童。它呼吁俄罗斯和俄罗斯支持的武装编队允许安全和不受阻碍地提供人道主义援助，并向所有需要的人提供援助。”
+
+声明说：“欧洲理事会还强烈谴责白俄罗斯参与这次对乌克兰的侵略，并呼吁他不要采取这种行动，遵守其国际义务。”
+
+声明说：“欧盟对俄罗斯承认乌克兰自称的分离主义实体并部署其武装力量作出了迅速和果断的反应，采取了限制性措施作为回应。欧洲理事会今天与我们的伙伴和盟友密切协调，同意采取进一步的限制性措施，对俄罗斯的行动施加大规模和严重的后果。这些制裁措施涵盖了金融部门、能源和运输部门、（军民）两用物品以及出口管制和出口融资、签证政策、俄罗斯个人的额外名单和新的列名标准。欧洲理事会将毫不拖延地通过欧盟委员会和欧盟外交与安全政策高级代表编写的提案。”
+
+声明说：“欧洲理事会呼吁紧急准备和通过进一步的个人和经济制裁方案，其中也包括白俄罗斯。”
+
+声明说：“欧洲理事会重申，它坚定不移地支持乌克兰在其国际公认边界内的独立、主权和领土完整。它呼吁所有国家不承认两个自称的分离主义实体，不为其提供便利或任何形式的援助。”
+
+声明说：“欧盟团结一致声援乌克兰，并将继续与国际伙伴一起支持乌克兰及其人民，包括通过额外的政治、财政、人道主义和后勤支持以及国际捐助者会议。继2016年12月欧盟国家元首或政府首脑的决定后，欧洲理事会承认乌克兰的欧洲愿望和欧洲选择，正如结盟协议中所述。”
+
+声明表示：“欧洲理事会坚信，在21世纪，使用武力和胁迫来改变边界的做法是不可取的。紧张局势和冲突应该完全通过对话和外交手段解决。欧盟将继续与邻国密切合作，并重申其对格鲁吉亚和摩尔多瓦共和国的主权和领土完整的坚定支持和承诺。它将继续在联合国、欧安组织、北约和七国集团内与合作伙伴和盟友进行强有力的协调。”
+
+声明说：“欧洲理事会呼吁在各个层面推进准备工作，并特别邀请欧盟委员会提出应急措施，包括能源方面的措施。”
+
+声明指出：“欧洲理事会将继续处理这一问题。”
+
+- **[02.24.Theepochtimes：CDC数据：接种疫苗的人中COVID-19病例和住院人数激增](https://www.theepochtimes.com/vaccinated-people-more-likely-to-contract-covid-19-go-to-hospital-in-recent-weeks-cdc-data_4300048.html) [COVID-19 Cases, Hospitalizations Jump Among Vaccinated: CDC Data](https://www.theepochtimes.com/vaccinated-people-more-likely-to-contract-covid-19-go-to-hospital-in-recent-weeks-cdc-data_4300048.html?welcomeuser=1)**
+
+
+根据全国各地卫生部门提交给CDC的数据，在2021年12月11日至2022年1月8日期间，完全接种疫苗的人的COVID-19病例率上升了1000%以上。完全接种指的是接受了两剂Moderna或辉瑞COVID-19疫苗，或单剂强生疫苗的人。
+
+疾病预防控制中心认为，一个人在最后一针之后的14天内才算完全接种疫苗。那些也接受了加强剂量的人的病例率也急剧上升，在相同日期之间上升了约2400%。
+
+虽然未接种疫苗的人的病例也在增加，但接种疫苗的人的感染率跃升，缩小了人群之间的差距。因此，没有接种过疫苗的人在1月份对COVID-19检测呈阳性的可能性只是3.2倍。根据CDC管理的一个监测系统的数据，与COVID-19相关的住院人数在接种者中也有所增加，在截至2021年12月18日的一周内，完全接种疫苗的人的住院率为十万分之一，而在截至1月8日的一周内则为十万分之三十五。
+
+接受强化治疗的人需要住院治疗的可能性较小，但从2021年12月到1月，强化治疗者的住院率也在上升。而在同一时期，归因于COVID-19的死亡人数在接种疫苗的人中有所增加，包括在接受强化的人中。
+
+# 每日文贵说
+![img](https://media.gettr.com/group20/getter/2022/02/25/00/c56c6242-b624-e57d-6113-cc6124a9aa9d/5e770858f2e83f0055e245520fcb46fb.jpg)
+# 更多要闻链接
+
+1. **[联合国关于维吾尔人权的报告为何迟迟不公布?](https://www.voachinese.com/a/what-is-behind-the-delayed-un-human-rights-report-on-uyghurs-/6457853.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)**
+2. **[俄乌开战后 美专家分析中共是否入侵台湾](https://www.epochtimes.com/gb/22/2/24/n13602985.htm)**
+3. **[指责美国 暗助俄罗斯：国际专家解读乌克兰危机下的中国角色](https://www.voachinese.com/a/6458479.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)**
+4. ** [白宫发布关于俄罗斯入侵乌克兰的声明后，批评者指责乔-拜登](https://conservativebrief.com/white-house-3-60506/?utm_source=CB&amp;utm_medium=JE)**
+5. ** [美将领：美对台及一中政策核心是不接受以武力改变边界](https://www.voachinese.com/a/us-commander-said-not-changing-borders-by-force-is-the-heart-of-taiwan-policy-and-one-china-policy-20220224/6458043.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)**
+6. ** [乌克兰政府呼吁黑客帮助抵御俄罗斯Ukrainian government calls on hackers to help defend against Russia](https://www.theguardian.com/world/2022/feb/24/ukraine-hackers-defend-against-russia)**
+7. **[西方官员：俄军进逼基辅 拟斩首乌克兰政府](https://www.rfi.fr/cn/%E8%A5%BF%E6%96%B9%E5%AE%98%E5%91%98-%E4%BF%84%E5%86%9B%E8%BF%9B%E9%80%BC%E5%9F%BA%E8%BE%85-%E6%8B%9F%E6%96%A9%E9%A6%96%E4%B9%8C%E5%85%8B%E5%85%B0%E6%94%BF%E5%BA%9C)**
+
+
+# 每日推特文摘
 
 
 
-## 喜马拉雅交易所要闻
+2022年2月24日 [#郭文贵](https://twitter.com/hashtag/%E9%83%AD%E6%96%87%E8%B4%B5?src=hashtag_click) 先生GTV紧急直播要点 ：乌克兰开战；中共一定会打台湾；台湾撤离；国内远离军事基地； 详情下载盖特 [#Gettr](https://twitter.com/hashtag/Gettr?src=hashtag_click) 和 [#GTV](https://twitter.com/hashtag/GTV?src=hashtag_click) 并关注[@globalalliance](https://twitter.com/GlobalAlliance)全球喜马拉雅联盟委员会和[@miles](https://twitter.com/miles)郭先生 [#爆料革命](https://twitter.com/hashtag/%E7%88%86%E6%96%99%E9%9D%A9%E5%91%BD?src=hashtag_click)[#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click)[#俄罗斯](https://twitter.com/hashtag/%E4%BF%84%E7%BD%97%E6%96%AF?src=hashtag_click)[#香港](https://twitter.com/hashtag/%E9%A6%99%E6%B8%AF?src=hashtag_click)[#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click)[#普京](https://twitter.com/hashtag/%E6%99%AE%E4%BA%AC?src=hashtag_click)[#习近平](https://twitter.com/hashtag/%E4%B9%A0%E8%BF%91%E5%B9%B3?src=hashtag_click)[#台海战争](https://twitter.com/hashtag/%E5%8F%B0%E6%B5%B7%E6%88%98%E4%BA%89?src=hashtag_click)
 
 
 
 
 
-- 喜交所网站行情显示，喜币（HCN）价格目前在39.997 HDO，24H最高价格为43.211 HDO，24H最低价格为37.101 HDO，24H成交量约为215,497.481 HCN。
+> 2022年2月24日 [#郭文贵](https://twitter.com/hashtag/%E9%83%AD%E6%96%87%E8%B4%B5?src=hash&amp;ref_src=twsrc%5Etfw) 先生GTV紧急直播要点 ：乌克兰开战；中共一定会打台湾；台湾撤离；国内远离军事基地；
+> 
+> 详情下载盖特 [#Gettr](https://twitter.com/hashtag/Gettr?src=hash&amp;ref_src=twsrc%5Etfw) 和 [#GTV](https://twitter.com/hashtag/GTV?src=hash&amp;ref_src=twsrc%5Etfw) 并关注[@globalalliance](https://twitter.com/GlobalAlliance?ref_src=twsrc%5Etfw)全球喜马拉雅联盟委员会和[@miles](https://twitter.com/miles?ref_src=twsrc%5Etfw)郭先生
+> 
+>  [#爆料革命](https://twitter.com/hashtag/%E7%88%86%E6%96%99%E9%9D%A9%E5%91%BD?src=hash&amp;ref_src=twsrc%5Etfw) [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hash&amp;ref_src=twsrc%5Etfw) [#俄罗斯](https://twitter.com/hashtag/%E4%BF%84%E7%BD%97%E6%96%AF?src=hash&amp;ref_src=twsrc%5Etfw) [#香港](https://twitter.com/hashtag/%E9%A6%99%E6%B8%AF?src=hash&amp;ref_src=twsrc%5Etfw) [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hash&amp;ref_src=twsrc%5Etfw) [#普京](https://twitter.com/hashtag/%E6%99%AE%E4%BA%AC?src=hash&amp;ref_src=twsrc%5Etfw) [#习近平](https://twitter.com/hashtag/%E4%B9%A0%E8%BF%91%E5%B9%B3?src=hash&amp;ref_src=twsrc%5Etfw) [#台海战争](https://twitter.com/hashtag/%E5%8F%B0%E6%B5%B7%E6%88%98%E4%BA%89?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/VU1KruNMaG](https://t.co/VU1KruNMaG)
+> — 文扬四海 2 🐳🐳 (@sihaixiongdi) [February 25, 2022](https://twitter.com/sihaixiongdi/status/1497012940095983619?ref_src=twsrc%5Etfw)
 
 
 
 
 
 
-## 新闻动态
+
+【乌总统称西方完全放弃了乌克兰】 当地时间25日，乌克兰总统泽连斯基发布视频讲话。他表示西方完全放弃了乌克兰，“我问了27个欧洲国家领导人，乌克兰会加入北约吗？但所有人都害怕了，所有人都没有回答我。” 政客没有干净的， 只是世界是不是放弃了无辜的平民？ 这才是我们需要关切的问题！！
 
 
 
 
 
-1. 韩联社报道，市场咨询机构EY咨询21日发布称，近期以319名韩国内企业首席执行官(CEO)和高管为对象进行的问卷调查结果显示，关于今后两年数字转换集中投资领域，资产规模在5万亿韩元以上的大企业受访者中，66%选择了“人工智能(AI)”，46%选择了“元宇宙”，34%选择了“区块链和非同质化代币(NFT)”。EY咨询方面表示，大部分韩大企业已完成数字转换核心——云计算转换和安全构建，因此开始将投资关注点转移到元宇宙、区块链、NFT等新技术上。韩企应通过并购或选择适当的合作伙伴，确保相关技术力量，并基于现有项目扩大发展。
-2. 2月24日消息，据最新数据显示，美元Stablecoin USDC发行量已突破530亿美元，创下历史新高。目前USDC按链上发行量排名情况如下：以太坊链上发行量约为47,500,848,206美元、Solana链上发行量约为4,269,466,331美元、波场链上发行量约为511,013,220美元、Algorand链上发行量约为335,746,369美元、Avalanche链上发行量约为260,228,128美元、Stellar链上发行量约为144,755,676美元、Flow链上发行量约为12,089,908美元，Hedera链上发行量约为9,099,893美元。
-3. 2月25日消息，最新数据显示俄罗斯BTC开采并未受到影响，本地BTC开采也基本保持稳定。根据BTC.com数据，当前BTC全网算力依然维持在200EH/s左右，本文撰写时为195.09EH/s。剑桥另类金融中心数据，截至2021年7月，俄罗斯占全球比特币算力的11%以上，目前BTC网络一半以上的算力来自美国、哈萨克斯坦和俄罗斯三国。据Compass Mining公司的Will Foxley表示，俄罗斯大部分BTC开采都来自于西伯利亚天然气或水力发电能源，因此算力不太可能下线。
-4. Decrypt报道，DAO基础设施项目Squads已在Solana的主网上启动。该项目还完成新一轮500万美元融资。本轮融资由Multicoin Capital领投。据悉，Squads是一种可用于在Solana区块链上创建去中心化自治组织(DAO)的应用程序。
-5. Coindesk报道，区块链基础设施初创公司Infstones已完成来自包括Susquehanna International Group(SIG)和Dragonfly Capital在内的投资者3300万美元B轮融资。本轮其他投资者包括启明创投、DHVC、A&T等。Inf Stones旨在为Web3开发提供类似Amazon Web Services的灵活平台，用户可以在该平台上运行验证器节点、访问链上数据并在各种区块链网络（如以太坊、币安智能链、Cardano、Polygon、Polkadot、Solana、Chainlink等）上构建去中心化应用程序。
-6. 2月24日消息，边玩边赚NFT链游项目Zodium完成由Animoca Brands推动的400万美元私募轮融资。此轮融资后，Animoca Brands将成为Zodium的第二大股东。据了解，Zodium是一个基于NFT的边玩边赚区块链游戏，由前Line Friends联合创始人创建，投资方包括Animation Internationals和Polygon等。
-7. Cryptonewsbtc报道，周三，由Cathie Wooden领导的Ark Funding Administration再次增持了价值820万美元Coinbase的额外股份。截至周三，Ark投资在其所有ETF中的Coinbase股票价格为9.4387亿美元。COIN持仓是ARK在其所有资金中的第三大资金。
-8. 2月24日消息，区块链分析公司Bits Crunch今天宣布，在一轮私人融资中筹集了360万美元。这轮融资由Animoca Brands牵头，并见证了Coinbase Ventures、Crypto.com Capital和Polygon Studios等的参与。
-9. Decrypt报道，链游初创公司Worldspark Studios宣布完成300万美元种子轮融资，Animoca Brands与Shima Capital联合领投，Alameda Ventures、Jump Capital、AAG Ventures、Sfermion、YGGSEA参投。该公司将利用新融资招募资深全职开发者，以调整和完善游戏体验，并部署NFT元素，围绕《Edenbrawl》和相关游戏创造代币经济。据悉，《Edenbrawl》是Worldspark的第一款游戏，它借鉴了《英雄联盟》和《Dota2》等流行的MOBA游戏，不过更注重战斗。
-10. 官方消息，DeFi项目Plena Finance宣布集成The Graph协议。通过此次合作，Plena Finance将使用The Graph协议对平台上Plena Finance移动应用支持的多个区块链的用户数据进行索引和查询。
-11. Coindesk报道，加密货币借贷平台Celsius正式进军DeFi市场，他们将价值3000万美元的WETH委托到Maple Finance的流动性池。Maple资本市场负责人Daniel Kim透露，Maple Finance和Celsius在去年四季度接洽后达成合作伙伴关系，后续他们将会为Celsius之类的企业提供工具和智能合约套件，以及获得贷款发放、贷款管理和实时绩效报告解决方案。
-12. Prnewswire报道，欧洲最大的数字资产投资公司CoinShares宣布公司实物支持的PolkadotETP已在瑞士苏黎世的六家交易所上市。CoinShares Physical Stake Polkadot（代码：CDOT）的交叉上市表明了公司致力于通过受监管的方式为欧洲投资者提供进入数字资产市场的机会。管理费：减至每年0.0%；奖励：每年5.0%。
-13. Cryptonewsbtc报道，Codebase Ventures宣布推出DeFi投资组合，在DeFi生态系统中积累关键投资，因为与Code的区块链DeFi资金论点一致，与公司顾问进行了深入的分析和规划。
-14. 2月24日消息，Web3订阅NFT社交网络ShowMe宣布与Web3带宽交易市场Meson Network达成合作关系。目前，ShowMe已经广泛应用了Meson Network，以加快内容的读取和加载速度。ShowMe创始人Chess表示，Meson Network的出现，让ShowMe在文字、图片、音频以及视频等领域有了更多值得信赖的选择。ShowMe与Meson Network的合作也坚定地体现了Web3互操作性和可扩展性的强大。
-15. Theblock报道，Alan Howard旗下的Elwood Technologies宣布将于与彭博社进行战略整合，此次整合面向使用彭博社资产和管理投资管理器(AIM)的机构客户，AIM是一种买方订单管理系统。该整合将Elwood的机构加密货币交易能力与彭博社的数据、分析和工作流程工具相结合，使AIM平台上的金融机构和投资经理能够捕获和管理他们的加密投资以及其他投资组合，以实现统一的投资流程。整合将于2022年第二季度完成并可供Elwood和彭博社AIM的共同客户使用。
-16. Prnewswire报道，Fun Fair Technologies区块链技术公司宣布推出Fun Fair Ventures，这是一项支持早期区块链项目的新计划。FunFair Technologies在2021年开始了他们的第一笔投资，即成功的NFT营销平台Award Pool，他们的目标是在2022年为他们的投资组合增加更多。
-17. Cointelegraph报道，游戏研究公司Newzoo在一份报告中表示，该公司预测，随着游戏公司尝试采用区块链，P2E模式将在2022年变得更加可行：“发行商可能会使用区块链技术在一个中心化的游戏环境中促进更安全、更合法的玩家对玩家（player-to-player）交易。”同时，盈利流多样化的需求可能会导致电子竞技组织通过使用NFT转向基于区块链的盈利机制。正因为如此，涉及区块链的新电竞商业模式开始出现，并将在2022年有更多的发展。
-18. 2月24日消息，去中心化交易平台Hashflow宣布上线Avalanche，用户可以以更低的交易费用和更快的确认速度交易AVAX、USDT和USDC以及其他从以太坊跨链至Avalanche的相关资产。此外，Hashflow将同步举办Mount AVAX交易挑战赛。
-19. Coindesk报道，Aptos博客称，在Meta公司确认关闭其加密货币相关资产之后，Aptos正在将Diem区块链再次带入生活。据两位不愿透露姓名的消息人士称，该团队正以20亿美元的估值筹集2亿美元来实现这一目标。知情人士称，Andreessen Horowitz（a16z）和其他几家加密货币风险投资公司都参与了这项交易。
-20. 2月24日消息，自公司名称从“Square”改为“Block Inc.”以来，Block的价值已经损失了40%。此前消息，Block首席执行官Jack Dorsey)辞去了他在Twitter的双重首席执行官职务，现在将100%的注意力集中在Block，他的目标是将比特币整合到公司的核心产品线中。
-21. Cointelegraph报道，太平洋小国汤加可能在2023年第二季度将比特币作为法定货币，并在2023年第三季度开启比特币挖矿。
-22. Coindesk报道，经营加密交易所OSL的中国香港上市公司BC Group正在与英国首家FCA注册加密公司Archax、以及获得新加坡(MAS)许可的投资交易平台Investa X合作，共同组建国际安全代币发行联盟（ISTOA），旨在发展市场，并找到关键的互操作性和反洗钱原则，以便代币可以跨境交易。据悉，该财团成员还成立了一个工作小组，以确定基于区块链的数字证券的发行、上市、交易和结算的最佳技术和监管实践。
-23. Coindesk报道，根据财政部关于监管加密货币的拟议法案，俄罗斯居民将被限制通过许可的运营商进行数字货币交易，这一限制实际上使点对点交易成为非法。只允许使用经过认证的加密货币钱包。虽然这份名为“关于数字货币”的文件尚未在议会网站上发布，但获得该草案的法律专家分享了该文件。
-24. Coindesk报道，欧盟(EU)立法者正在准备就管理加密资产的拟议法规进行机构间讨论，并可能会禁止比特币等能源密集型加密货币。根据一份草案，待讨论的加密资产市场(MiCA)监管方案包括一项可能限制在联盟27个成员国中使用称为工作量证明(PoW)的共识机制的条款。
-25. ForesightNews报道，国际货币基金组织（IMF)在其金融稳定笔记中提到，数字资产作为一种资产类别，其实质规模已经不容小觑，足以对其他资产形成外溢风险，股票的波动与回报受到了比特币的影响。
-26. Coindesk报道，乌克兰加密企业Kuna的创始人Michael Chobanian周三在接受Coindesk TV采访时谈到了当地购买加密货币的困难，当地经济的不确定性，以及在当前地缘政治动荡中使用区块链的可能性。
-27. Forkast报道，由于监管的不确定性，印度的加密人才多年来一直在外流，政府最近对加密收入征税的决定加速了该国区块链人才的外流。据《纽约时报》消息，印度30至50个加密和区块链企业在迪拜和新加坡经营业务。此外，加密人才外流可以追溯到2018年，当时印度储备银行（RBI）对加密实施了禁令。Zebpay是当时最大的印度交易所之一，其关闭了业务并转移至新加坡。当地行业利益相关者告诉Forkast，新的税收规则加速了人才外流。30%的加密税负担可能不仅会使专业人才外流，一些投资者也在考虑搬迁至对加密行业友好的区域。
+> 【乌总统称西方完全放弃了乌克兰】
+> 
+> 当地时间25日，乌克兰总统泽连斯基发布视频讲话。他表示西方完全放弃了乌克兰，“我问了27个欧洲国家领导人，乌克兰会加入北约吗？但所有人都害怕了，所有人都没有回答我。”
+> 
+> 政客没有干净的，
+> 只是世界是不是放弃了无辜的平民？
+> 这才是我们需要关切的问题！！ [pic.twitter.com/93gbuypGxm](https://t.co/93gbuypGxm)
+> — 澳喜要闻（新号） (@ahnewspace) [February 25, 2022](https://twitter.com/ahnewspace/status/1497025448425177089?ref_src=twsrc%5Etfw)
 
 
 
 
 
-*编辑：aQ
-发布：文顾*
+
+
+中国人民解放军即将入侵台湾
+
+
+
+
+
+> 中国人民解放军即将入侵台湾 [pic.twitter.com/6B9tLqVJJ6](https://t.co/6B9tLqVJJ6)
+> — MGBS (@MGBS777) [February 24, 2022](https://twitter.com/MGBS777/status/1496899283617935361?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+当到了中国，开始参与‘奥运会.前预赛’时，一切都在上演
+
+
+
+
+
+> 當到了中國，開始參與『奧運會.前預賽』時，一切都在上演👇 [pic.twitter.com/u8SiLaaVx2](https://t.co/u8SiLaaVx2)
+> — 台灣｜Taiwan (NEW 2/19) (@TaiwanNo22) [February 24, 2022](https://twitter.com/TaiwanNo22/status/1496861883994816516?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+美对俄追加制裁，但不对普金本人有任何制裁。
+
+
+
+
+
+> 美对俄追加制裁，但不对普金本人有任何制裁。 [pic.twitter.com/nKwpcnEIFD](https://t.co/nKwpcnEIFD)
+> — 魔女peace🌟🌟🌟银河系。新号，https://discord.gg/Fwb3rRrddu (@peace86774949) [February 25, 2022](https://twitter.com/peace86774949/status/1497031086257229825?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+叙利亚公开挺俄后，以色列向叙利亚发动空袭，致3名叙士兵死亡
+
+
+
+
+
+> 叙利亚公开挺俄后，以色列向叙利亚发动空袭，致3名叙士兵死亡‼️⚠️ [pic.twitter.com/CzjZd89rLX](https://t.co/CzjZd89rLX)
+> — 银河系勇气之星🌟🛸🌟 (@COURAGESTARnew) [February 25, 2022](https://twitter.com/COURAGESTARnew/status/1497017724689874949?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+2/24/2022 文贵紧急直播：不论打不打台湾，明年的中共国都将尸横遍野，人们可能要吃垃圾；若打了台湾，中共将遭受比俄罗斯更惨的制裁，中共经济中心和有军事基地将遭毁灭性打击请请国内战友做好准备；全人类只有新中国联邦揭露了习普的邪恶计划
+
+
+
+
+
+> 2/24/2022 文贵紧急直播：不论打不打台湾，明年的中共国都将尸横遍野，人们可能要吃垃圾；若打了台湾，中共将遭受比俄罗斯更惨的制裁，中共经济中心和有军事基地将遭毁灭性打击请请国内战友做好准备；全人类只有新中国联邦揭露了习普的邪恶计划
+>  [https://t.co/nUCV9jjaei](https://t.co/nUCV9jjaei)
+> — 88jj（加拿大圆成农场特战队） (@2\_88jj) [February 25, 2022](https://twitter.com/2_88jj/status/1497026972421361664?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+请通知你的亲友：备些食物，以备不时之需。远离神秘地带，如海南、大连潜艇基地，樟州、福州、江西导弹基地，四川卫星中心，重庆导弹、广西、青岛等。
+
+神秘地带指：有军人把守，进出人员神秘的区域、大院、大楼等
+
+
+
+
+
+> 请通知你的亲友：备些食物，以备不时之需。远离神秘地带，如海南、大连潜艇基地，樟州、福州、江西导弹基地，四川卫星中心，重庆导弹、广西、青岛等。 [pic.twitter.com/n2nFyBMEnF](https://t.co/n2nFyBMEnF)
+> — Jersey17 (@Jersey1712) [February 24, 2022](https://twitter.com/Jersey1712/status/1496985143009021957?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+2/23/2022 文贵直播：中共科技发明造假、全是抄袭，华为5G都是忽悠人的；中共既制毒、放毒，又搞疫苗和治副作用的药；习太阳妄图大搞疫苗后经济，疫苗厂会如雨后春笋般出现在中共国
+
+
+
+
+
+> 2/23/2022 文贵直播：中共科技发明造假、全是抄袭，华为5G都是忽悠人的；中共既制毒、放毒，又搞疫苗和治副作用的药；习太阳妄图大搞疫苗后经济，疫苗厂会如雨后春笋般出现在中共国
+>  [https://t.co/QNpWoSK0m4](https://t.co/QNpWoSK0m4)
+> — wuwuwu (@wuwuwu6464) [February 25, 2022](https://twitter.com/wuwuwu6464/status/1497027370900869120?ref_src=twsrc%5Etfw)
+
+
+
+
 
 
  
+
+ 
+
+
+
+
+
+
+*编辑：映兰轩
+审核发布：文顾*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

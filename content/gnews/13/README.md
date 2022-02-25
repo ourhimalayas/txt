@@ -2,89 +2,18 @@
 ---
 
 
-## 坚决反对战争
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2062110/)
+## 星链 &#8220;重新连接汤加与世界&#8221;
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2062120/)
 
-作者：香草山健身部 – 新世界的一员
-![This image has an empty alt attribute; its file name is image0.jpg](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)![This image has an empty alt attribute; its file name is image1-5.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/image1-5.jpg)
-七哥直播爆料习普秘会俩小时，
-俩帝的秘谈会导致世界大变，
-灾难来临。
-话音刚落，
-乌克兰上空就出现炮火，
-霎那间人们失去了美好的生活，
-乌克兰的人民沉浸在战争的迷雾中挣扎求生。
-有人魔的世界灾难不断，
-俄罗斯就这样在世界都说不的时候，
-大摇大摆的海陆空全方位来了。
-多少人泪眼相对辞别亲人，
-泪戚戚兮不知可还有归期。
-多少平民百姓都在生死边缘恐惧，
-多少孩子茫然无措无助于世。
-二十一世纪的残酷战争就这样，
-突然走进了文明的现实生活。
-这是一场人为的政治战争，
-这是一场贪婪欲望导致的战争，
-这也是会给台湾带来危机的毒谋战争。
-除了反侵略战争，
-没有一场战争是具有必要性，
-更没有一场战争是正义的需要。
-俄罗斯的普大帝背信弃义于天下，
-他忘了1994的俄、美、英同时的保证，
-乌克兰国家安全领土完整，
-《布达佩斯备忘录》成了一推废纸。
-世界该认清俄罗斯的卑鄙和无耻，
-它的背信弃义，背后插刀、趁火打劫由来已久。
-1900年八国联军侵华，
-俄一面进攻北京一面趁满清政府无暇他顾，
-以保护侨民为由，调集重兵占领中国东北全境。
-制造骇人听闻的“庚子俄难”，
-“海兰泡惨案”，
-“江东六十四屯惨案”，
-大量无辜中国平民被屠杀。
-1901年又勒索中国赔款1.3亿两白银，
-1938年趁中国深陷抗日漩涡，
-对居住远东地区中国人进行惨无人道的种族清洗，
-几十万中国人被屠杀。
-没有一场战争的伤害离开过中国人民，
-习二不顾俄罗斯对中国人犯下的罪孽深重，
-无视俄罗斯侵占中国领土最多，
-为了个人霸权帝位不顾国恨家仇，
-与其几年狼狈为奸同床共枕，
-秘谋天下，
-以至于乌克兰开战，
-台湾危在旦夕，
-无辜的中国人再次被迫推上风口浪尖。
-旧伤挥之不去，
-新伤又近在眼前，
-万千白骨推成山的历史历历在目，
-新的伤亡又近在眼前，
-多少平民及平民孩子都将沦为习一尊前面的铜墙铁壁。
-只为了他的大一统。
-坚决反对所有反人类的战争，
-坚决反对这一场政治游戏，
-坚决反对任何借口制造的战争灾难，
-它是罪恶的、邪恶的，
-它不是生产平民帝王将相出处，
-它是上层的政治、权利、掠夺的需要，
-是平民的血流成河，
-任何破坏世界和平的人都是罪犯，
-是应该受到国际审判的战争犯，
-上天一定会做出最严厉的惩罚！
-![This image has an empty alt attribute; its file name is Feb-4.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-4.jpg)
-**审核/编辑/发稿：春草**
+**编译：verifunny**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/33-3.png)
+据路透社近日报道，SpaceX公司的一个工程师团队为太平洋小岛国汤加的偏远村庄恢复了高速互联网服务，这些村庄在上个月一座大火山爆发后，与附近斐济的海底通信线路被切断。
 
-**更多资讯，更多关注**
+埃隆·马斯克的星链运用之广泛，自动化科技可以利用星链来输送讯息，无论什么地点，什么时候。再加上Meta的Metaverse，人类是否创造了一个全球的虚拟世界？
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+科技如此的日新月异，我个人在想地球的统治者会如何对待我们这些老百姓。
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-![This image has an empty alt attribute; its file name is image0.jpg](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-
+**新闻来源**：[https://www.reuters.com/world/asia-pacific/musks-starlink-connects-remote-tonga-villages-still-cut-off-after-tsunami-2022-02-23/](https://www.reuters.com/world/asia-pacific/musks-starlink-connects-remote-tonga-villages-still-cut-off-after-tsunami-2022-02-23/)
 
  
 

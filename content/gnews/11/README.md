@@ -2,19 +2,25 @@
 ---
 
 
-## 星链 &#8220;重新连接汤加与世界&#8221;
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2062120/)
+## 有声｜乌俄开战股市崩 能源食品等供应链恐中断
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2062122/)
 
-**编译：verifunny**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/33-3.png)
-据路透社近日报道，SpaceX公司的一个工程师团队为太平洋小岛国汤加的偏远村庄恢复了高速互联网服务，这些村庄在上个月一座大火山爆发后，与附近斐济的海底通信线路被切断。
+**By:** **秘翻新闻**
 
-埃隆·马斯克的星链运用之广泛，自动化科技可以利用星链来输送讯息，无论什么地点，什么时候。再加上Meta的Metaverse，人类是否创造了一个全球的虚拟世界？
+**2022-02-25**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片21.jpg)图片源自:网络
+据台湾[Ettoday新闻网](https://www.ettoday.net/news/20220224/2196134.htm)2月24日报道，俄罗斯24日正式军事入侵乌克兰，引起国际关注。受到乌俄战事影响，美国道琼斯指数一度大跌超过800点。此外，标普500指数也跌将近90点、纳斯达克大跌超过300点、费城半导体指数跌幅也将近100点。
 
-科技如此的日新月异，我个人在想地球的统治者会如何对待我们这些老百姓。
+实际上乌克兰与俄罗斯局势升级以前，道琼指数、标普500指数与纳斯达克指数就已全面下跌，从去年12月31日至今年2月23日，纳斯达克指数下跌超过15％，标普500指数、道琼工业指数与2021年底相比，分别下跌11.3％、8.9％。
 
-**新闻来源**：[https://www.reuters.com/world/asia-pacific/musks-starlink-connects-remote-tonga-villages-still-cut-off-after-tsunami-2022-02-23/](https://www.reuters.com/world/asia-pacific/musks-starlink-connects-remote-tonga-villages-still-cut-off-after-tsunami-2022-02-23/)
+由于俄罗斯、乌克兰是石油、天然气、小麦等物品的最大出口国，若冲突持续发生，价格可能持续上扬、并加剧供应链中断的状况。
 
+（ 秘翻新闻 采集/编辑 vera）
+
+发布:星星
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

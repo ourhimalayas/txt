@@ -2,29 +2,24 @@
 ---
 
 
-## 美称中俄在寻求“极度不自由”的世界秩序
-` 华盛顿DC-Russian` [轉載自GNews](https://gnews.org/zh-hans/2062190/)
+## 俄军控制切尔诺贝利核电站 欧洲面临新的安全隐患
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2062224/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-25_08-15-01.jpg)[goldmoney.com](https://www.goldmoney.com/research/goldmoney-insights/trump-russia-and-china)
-华盛顿（路透社）- 美国周三指责中共和俄罗斯正在共同努力创造一个新的”极不自由”的世界秩序，莫斯科对乌克兰的行动只是其中的一部分。
+撰稿：东京樱花团/盖特第一批注册
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2321.png)[图片来源](https://www.google.com/maps/uv?pb=!1s0x472a7da75fb49db3%3A0xbdc209edda2b9bc0!3m1!7e115!4shttps%3A%2F%2Flh5.googleusercontent.com%2Fp%2FAF1QipN4Jhyc0PXKWdH7uSIrMQS3eYTZ1HyuQ4Us6TO8%3Dw252-h160-k-no!5z5paw5a6J5YWo6ZaJ44GY6L6844KB5qeL6YCg54mpIC0gR29vZ2xlIOakn)
+乌克兰总统府顾问24日透露，切尔诺贝利核电站已被俄罗斯军队占领。
 
-美国国务院发言人内德·普莱斯（Ned Price）说，世界上每个负责任的国家，包括中共国，都有义务敦促俄罗斯总统弗拉基米尔·普京（Vladimir Putin）让步，缓和乌克兰危机。
-“你将不得不问中共国，他们是否为此利用了自己对俄罗斯联邦的巨大影响力，”普莱斯在谈到中共国的例行新闻发布会上说。
-在谈到中共国和俄罗斯本月宣布的升级的”无限制”伙伴关系时，他们承诺加强合作，反对美国和西方，普莱斯说，中俄关系的发展方向”非常令人担忧”。
-“我们认为俄罗斯和中共国也想要一个世界秩序，”他说，”但这是一个现在和将来都是非常不自由的秩序，一个与世界各国的制度形成鲜明对比的秩序……（就像）在过去的七十年打造的那样。
-“这是一种在很多方面都是破坏性的秩序，而不是有益的元素。”
-普赖斯指出，中共国在其治国方略中一再强调主权原则是神圣不可侵犯的。
-（完）
+俄罗斯的军事攻击发生之后，谁不能保证切尔诺贝利核电站是安全的，一旦发生意外将是欧洲最严重的威胁之一”。
 
-听上去美国国务院有点天真，认为中共“有义务敦促普京让步，缓和乌克兰危机”。事实上这把火恰恰是中共点燃的。相信美国的情报机构也能得到习神与普京进行了“无翻译密谈”的情报，至少在文贵先生这里可以获取。这一套外交辞令只是在和稀泥。美国务院随后指出，“莫斯科对乌克兰的行动只是其中的一部分。”
+除此之外，俄罗斯军队还控制了赫尔松南部地区的部分地区，并部署了伞兵部队，以攻克基辅附近的霍斯托梅尔机场。
 
-如文贵先生呼吁的：中共侵台湾迫在眉睫！
+首都基辅附近的霍斯托梅尔机场也已被封锁。
 
-原文链接：https://www.msn.com/en-ca/news/world/u-s-says-china-and-russia-seek-profoundly-illiberal-world-order/ar-AAUdXMI?ocid=msedgntp
+信息源：[ウクライナ各地で戦闘続く、大統領が総動員令　ロシア軍は首都標的か](https://www.asahi.com/international/reuters/CRWKBN2KU00T.html)
 
-华盛顿DC 望七星
-编辑发布 银河
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
