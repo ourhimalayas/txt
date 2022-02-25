@@ -2,30 +2,42 @@
 ---
 
 
-## 中日财经爆|日本将对数字货币汇往海外加强监管
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2062522/)
+## 俄罗斯入侵乌克兰，全球股市跳水、卢布熔断
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2062579/)
 
-撰稿：东京樱花团/peterwong
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/日本将对数字货币汇往海外加强监管.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=http%3A%2F%2F5b0988e595225.cdn.sohucs.com%2Fimages%2F20180310%2F3338ff8db48c481b82285ed0433f71f9.jpeg&amp;imgrefurl=http%3A%2F%2Fwww.sohu.com%2Fa%2F225278095_100111931&amp;tbnid=y6V4MI0TVqBpJM&amp;vet=12ahUKEwj32Py2n5r2AhULh5QKHevaBVwQMygAegUIARCyAQ..i&amp;docid=xSZDGcz_SNcDFM&amp;w=1080&amp;h=608&amp;q=%E7%9B%91%E7%AE%A1%E6%95%B0%E5%AD%97%E8%B4%A7%E5%B8%81&amp;ved=2ahUKEwj32Py2n5r2AhULh5QKHevaBVwQMygAegUIARCyAQ)
+整理：围剿维尼熊
+编辑：文泓
 
-为防止数字货币流入恐怖组织等的手中，日本加密资产交易行业协会将对加密资产汇往海外的行为加强监管
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/6-46.png)图片来源：The Motley Fool & 雅典娜设计组
 
-日本加密资产交易行业协会就打击洗钱与恐怖主义融资汇总了新的规定，加入该协会的加密资产交易商在将加密资产汇往海外时，须彻底核实收款方的联系方式以及相当于银行账户的钱包地址等信息。
 
-另外，如汇款有可能涉及犯罪组织等的洗钱、非法汇款等行为，则须暂停汇款等采取妥善应对措施。
+当地时间24日，多家媒体报道，普京宣布，他已决定在顿巴斯地区进行军事行动。
 
-目前，加密资产在全球范围内逐步普及，同时，也有意见指出恐怖组织等或正在利用加密资产非法筹措资金。
+普京宣称，俄罗斯没有侵略乌克兰的计划，俄方致力于缓解乌克兰局势。鉴于北约的不断东扩，俄罗斯的安全环境不断恶化，俄罗斯不得已做出这个决定。乌克兰局势的发展导致俄罗斯无法得到安全保障，呼吁俄罗斯武装力量对威胁其国家的行为予以坚决回击。
 
-国际反洗钱监督机构金融行动特别工作组（FATF）要求日本政府也采取相关措施，对此日本财务省正在就强化监控进行探讨。
+随后，乌克兰总统泽连斯基表示，乌克兰全境将进入战时状态。
 
-消息来源:
+有报道称，乌克兰的军事设施遭到导弹袭击，俄军登陆行动开始于黑海和亚速海。
 
-[日本将加强加密资产汇款监督机制](https://www3.nhk.or.jp/nhkworld/zh/news/351239/)
+目前，俄军已突破哈尔科夫州界，哈尔科夫乌军指挥所遭到火箭弹袭击。乌克兰多个城市发生一系列爆炸事件。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
+随着普京宣布在顿巴斯地区进行特别军事行动，美国总统拜登宣布将和盟国一起向俄罗斯施加更严厉的制裁措施。
+
+因俄入侵乌克兰，当日全球股市出现大跳水。俄罗斯股市（IMOEX）开盘下跌11.24%，至2737.91点。俄罗斯卢布和莫斯科证券交易所开始交易后不断下跌，目前已跌至熔断线，卢布和证券交易已暂停。
+
+参考链接：[突发！乌克兰全境进入战时状态！俄罗斯卢布熔断](http://www.21jingji.com/article/20220224/herald/6c5ae23d0f02cc15cbaeaf5e7a13c1ba.html)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,16 +2,20 @@
 ---
 
 
-## 俄罗斯部队已接近基辅 美称可能推翻乌克兰政府
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2062282/)
+## 中日财经爆|俄罗斯称有足够资金确保宏观经济和金融稳定
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2062438/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2324.png)[图片来源](https://www.google.com/search?q=russian+army&amp;sxsrf=APq-WBvyMa0NgVeVIXN3SNCJkyfY6ulYmA:1645766524532&amp;tbm=isch&amp;source=iu&amp;ictx=1&amp;vet=1&amp;fir=M6KnbKvo2SjnDM%252C0iC2LYmFYGyM5M%252C_%253BRjWVxVPRioQ)
-CNN报道，据消息人士称，美国政府官员在向国会议员介绍情况时称，一支从白俄罗斯进入乌克兰的俄罗斯机械化军事部队已经到达距离首都基辅32公里的范围内。
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2328.png)[图片来源](https://www.google.com.hk/search?q=%E7%BE%8E%E5%85%83%E5%85%91%E4%BF%84%E7%BD%97%E6%96%AF%E5%8D%A2%E5%B8%83&amp;newwindow=1&amp;rlz=1C1YKST_enUS900US901&amp;ei=IHQYYu27E8f_hwOa-4O4CQ&amp;oq=%E7%BE%8E%E5%85%83%E5%85%91%E4%BF%84%E7%BD%97%E6%96%AF&amp;gs_lcp=Cgdnd3Mtd2l6EAMYADIFCAAQxAIyBQgAEIAEOgcIABBHELADOgQIABBDOgcIABCABBAMOgYIABAHEB5KBAhBGABKBAhGGABQvtkFWNmRBmCqnwZoCHABeACAAf0BiAG-CpIBBTAuNi4xmAEAoAEBoAECyAEKwAEB&amp;sclient=gws-wiz)
+俄罗斯政府周四（2月24日）表示，其拥有超过4.5万亿卢布(530亿美元)的可自由支配预算资金，有足够的资源确保宏观经济稳定，并支持受到制裁打击的企业。
 
-这些官员还解释说，另一支进入乌克兰的俄罗斯部队在稍远的地方。两者都在向基辅行进，目的是包围基辅，有可能推翻乌克兰政府。
+俄罗斯军队周四从陆地、空中和海上入侵乌克兰，引发俄罗斯资产大规模抛售。
 
-信息源：[ロシア軍がキエフから３２キロの距離に、米当局者が議員に伝える](https://news.yahoo.co.jp/articles/8c97050a4fb1a8a4899d532db85ea112d7ce1691#:~:text=)
+随着美国总统拜登宣布对包括银行在内的新的对俄制裁，俄罗斯卢布兑美元大跌4.51%，至84.96卢布，稍早创下89.986的纪录低位。
+
+政府在周四的声明中表示：“目前，俄罗斯有足够的财政资源来维持金融体系，以应对制裁和外部威胁。”
+
+消息来源：[俄罗斯称有超过530亿美元自由支配预算资金 可确保宏观经济和金融稳定](https://cn.reuters.com/article/russia-budget-fund-fin-stability-0225-idCNKBS2KU085?il=0)
 
 *编辑：东京樱花团/知了知了
 发布：东京樱花团/平安卿卿*

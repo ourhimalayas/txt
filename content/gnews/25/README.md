@@ -2,24 +2,30 @@
 ---
 
 
-## 中日财经爆|美国宣布10项强化供应链措施应对中共威胁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2062454/)
+## 中日财经爆|日本将对数字货币汇往海外加强监管
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2062522/)
 
 撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2329.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fi.ytimg.com%2Fvi%2F_HBbDXtxHOY%2Fmaxresdefault.jpg&amp;imgrefurl=https%3A%2F%2Fwww.youtube.com%2Fwatch%3Fv%3D_HBbDXtxHOY&amp;tbnid=FG-Nqs-KQUEWDM&amp;vet=12ahUKEwi55f64nJr2AhVJwWEKHapeBwsQMygcegUIARDaAQ..i&amp;docid=mk4XQc_iKi1pwM&amp;w=1280&amp;h=720&amp;q=%E6%96%AD%E5%BC%80%E4%BE%9B%E5%BA%94%E9%93%BE&amp;ved=2ahUKEwi55f64nJr2AhVJwWEKHapeBwsQMygcegUIARDaAQ)
-美国政府周四（2月24日）宣布了10项新措施，作为其一年来强化美国供应链努力的一部分，以应对气候冲击和地缘政治紧张局势，并确保中共国或其他国家不能利用供应链来对付美国。
 
-政府高级官员说，自从拜登总统一年前签署行政命令，开始加强国内半导体芯片、电动汽车电池、稀土矿物和药品生产的努力以来，美国已经取得了良好的进展。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/日本将对数字货币汇往海外加强监管.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=http%3A%2F%2F5b0988e595225.cdn.sohucs.com%2Fimages%2F20180310%2F3338ff8db48c481b82285ed0433f71f9.jpeg&amp;imgrefurl=http%3A%2F%2Fwww.sohu.com%2Fa%2F225278095_100111931&amp;tbnid=y6V4MI0TVqBpJM&amp;vet=12ahUKEwj32Py2n5r2AhULh5QKHevaBVwQMygAegUIARCyAQ..i&amp;docid=xSZDGcz_SNcDFM&amp;w=1080&amp;h=608&amp;q=%E7%9B%91%E7%AE%A1%E6%95%B0%E5%AD%97%E8%B4%A7%E5%B8%81&amp;ved=2ahUKEwj32Py2n5r2AhULh5QKHevaBVwQMygAegUIARCyAQ)
 
-其中一位官员说，虽然此举旨在将曾经由美国主导的技术和其他商品的生产从中共国拉回来，但也是为了使美国的供应链面对气候变化和其他自然或人为的破坏更具韧性。
+为防止数字货币流入恐怖组织等的手中，日本加密资产交易行业协会将对加密资产汇往海外的行为加强监管
 
-白宫表示，七个内阁机构将发布六份报告，制定计划解决美国一些最关键的供应链中的弱点，包括运输、医疗保健、国防和食品。
+日本加密资产交易行业协会就打击洗钱与恐怖主义融资汇总了新的规定，加入该协会的加密资产交易商在将加密资产汇往海外时，须彻底核实收款方的联系方式以及相当于银行账户的钱包地址等信息。
 
-消息来源：[白宫宣布10项措施 旨在加强美国供应链](https://cn.reuters.com/article/us-wh-supply-chains-0225-idCNKBS2KU0CQ?il=0)
+另外，如汇款有可能涉及犯罪组织等的洗钱、非法汇款等行为，则须暂停汇款等采取妥善应对措施。
+
+目前，加密资产在全球范围内逐步普及，同时，也有意见指出恐怖组织等或正在利用加密资产非法筹措资金。
+
+国际反洗钱监督机构金融行动特别工作组（FATF）要求日本政府也采取相关措施，对此日本财务省正在就强化监控进行探讨。
+
+消息来源:
+
+[日本将加强加密资产汇款监督机制](https://www3.nhk.or.jp/nhkworld/zh/news/351239/)
 
 *编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,28 +2,24 @@
 ---
 
 
-## 视频｜澳大利亚宣布对俄罗斯实施制裁
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2062335/)
+## 中日财经爆|美国宣布10项强化供应链措施应对中共威胁
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2062454/)
 
-制作：香草山视频
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2329.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fi.ytimg.com%2Fvi%2F_HBbDXtxHOY%2Fmaxresdefault.jpg&amp;imgrefurl=https%3A%2F%2Fwww.youtube.com%2Fwatch%3Fv%3D_HBbDXtxHOY&amp;tbnid=FG-Nqs-KQUEWDM&amp;vet=12ahUKEwi55f64nJr2AhVJwWEKHapeBwsQMygcegUIARDaAQ..i&amp;docid=mk4XQc_iKi1pwM&amp;w=1280&amp;h=720&amp;q=%E6%96%AD%E5%BC%80%E4%BE%9B%E5%BA%94%E9%93%BE&amp;ved=2ahUKEwi55f64nJr2AhVJwWEKHapeBwsQMygcegUIARDaAQ)
+美国政府周四（2月24日）宣布了10项新措施，作为其一年来强化美国供应链努力的一部分，以应对气候冲击和地缘政治紧张局势，并确保中共国或其他国家不能利用供应链来对付美国。
 
-当地时间2月23日，据相关媒体报道，由于俄罗斯承认顿涅茨克和卢甘斯克人民共和国的独立，澳大利亚总理斯科特-莫里森当天宣布，澳洲政府将对俄罗斯提出制裁。
+政府高级官员说，自从拜登总统一年前签署行政命令，开始加强国内半导体芯片、电动汽车电池、稀土矿物和药品生产的努力以来，美国已经取得了良好的进展。
 
-莫里森总理在声明中指出，该制裁措施将包括对俄罗斯安全理事会八名成员实施的旅行禁令和有针对性的金融制裁。此外，与莫斯科有关的实体以及俄罗斯银行、交通、能源、电信、石油、天然气和矿产行业都将受到处罚。
+其中一位官员说，虽然此举旨在将曾经由美国主导的技术和其他商品的生产从中共国拉回来，但也是为了使美国的供应链面对气候变化和其他自然或人为的破坏更具韧性。
 
-莫里森表示，此举是为了回应俄罗斯对乌克兰的侵略，因为澳大利亚绝不会接受俄罗斯抱有入侵邻国的可能性。
+白宫表示，七个内阁机构将发布六份报告，制定计划解决美国一些最关键的供应链中的弱点，包括运输、医疗保健、国防和食品。
 
-早先，美国总统乔-拜登和英国首相鲍里斯-约翰逊相继宣布了对俄罗斯所实施的制裁。美、英两国和欧洲部分国家认为，顿巴斯共和国已经侵犯了乌克兰的主权。
+消息来源：[白宫宣布10项措施 旨在加强美国供应链](https://cn.reuters.com/article/us-wh-supply-chains-0225-idCNKBS2KU0CQ?il=0)
 
-发稿：小野貓（文凱琳）
-
-**更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
-
-
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
