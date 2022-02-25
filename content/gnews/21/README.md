@@ -2,22 +2,28 @@
 ---
 
 
-## 中日财经爆| 蚂蚁集团去年第三季净利润大跌10%
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2061949/)
+## 波兰、瑞典、捷克反对在俄罗斯举行2022世界杯足球预选赛
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2061991/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2310.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fi3.wp.com%2Fwww.alkhaleej.ae%2Fsites%2Fdefault%2Ffiles%2Fstyles%2Fsocial_large%2Fpublic%2F2021-11%2F3839419.jpeg&amp;imgrefurl=https%3A%2F%2Fwww.archyde.com%2Falibabas-profits-fall-81-on-the-impact-of-the-c)
-阿里巴巴（2月24日）周四晚间发布最新财报称，公司在2021年第三季，从蚂蚁集团录得投资收益58.11亿元人民币；据此测算，蚂蚁集团同期录得净利润176.1亿元，较第二季下降10.7%。
+撰稿：东京樱花团/盖特第一批注册
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片3-11.jpg)[图片来源](https://sakanowa.jp/topics/21959)
+在俄罗斯军事入侵乌克兰之后，波兰、瑞典和捷克共和国的足球协会24日发表声明，称不应该允许俄罗斯举办2022年世界杯预选赛。
 
-阿里巴巴延后一个季度计入所有权益法核算的投资损益，据其此前披露的财报数据测算，蚂蚁集团去年第二季录得的净利润为197.1亿元，环比增约45%。
+他们在一份联合声明中说：”我们坚定地认为淘汰赛不应该在俄罗斯联邦境内进行。 军事升级将产生严重后果，并将大大降低我们国家足球队和代表团的安全。
 
-在IPO临门遭叫停后，蚂蚁集团陷入漫长的整改期，目前尚未出现重启IPO的曙光。其最新相关动态为：中共国监管部门近期要求国有企业启动新一轮检查，监管当局要求这些国有企业提交与蚂蚁集团有关的股票投资、资产支持证券风险敞口以及贷款的细节。
+希望国际足联和欧足联能够迅速做出反应，并提供一个替代的场地。
 
-消息来源：[蚂蚁集团去年9月底止的三个月净利润176亿元，环比下降逾10%–路透测算](https://cn.reuters.com/article/ant-group-profit-0225-idCNKBS2KU057?il=0)
+俄罗斯将在3月24日的世界杯附加赛中主场迎战波兰，如果他们获胜，将在3月29日主场对阵瑞典或捷克。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
+国际足联批评了俄罗斯，表示关注事态发展，并酌情提供关于资格赛的最新情况。
+
+国际足联主席詹尼-因凡蒂诺也在新闻发布会上说：”我们将把这个问题作为一个紧急事项来考虑。 第一场比赛将在一个月后进行。 他说：”我们希望并坚信，在这之前，整个局势将尽快得到解决。
+
+信息源：[サッカー＝ポーランドら3カ国、ロシアでのＷ杯予選開催に反対](https://jp.reuters.com/article/soccer-fifa-idJPKBN2KU05D)
+
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

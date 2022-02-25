@@ -2,20 +2,18 @@
 ---
 
 
-## 胡锡进: 要习惯解放军进入台湾
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2062077/)
+## 星链 &#8220;重新连接汤加与世界&#8221;
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2062120/)
 
 **编译：verifunny**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/33-3.png)
+据路透社近日报道，SpaceX公司的一个工程师团队为太平洋小岛国汤加的偏远村庄恢复了高速互联网服务，这些村庄在上个月一座大火山爆发后，与附近斐济的海底通信线路被切断。
 
-臭名昭著的胡锡进刚刚发了一个推文说“大家要习惯，明天会有更多解放军的战机会进入台湾领空。”
-![](https://assets.gnews.org/wp-content/uploads/2022/02/11-33.png)
-虽然这位著名的中共宣传机器代表以嘲弄西方和广泛谴责华盛顿在台湾和南海的政策而闻名，但他也通常呼应了中共高层官员的想法。
+埃隆·马斯克的星链运用之广泛，自动化科技可以利用星链来输送讯息，无论什么地点，什么时候。再加上Meta的Metaverse，人类是否创造了一个全球的虚拟世界？
 
-他是否刚刚警告西方，中共国即将对台湾采取行动——在所有目光都集中在乌克兰战争的 “完美风暴 “时刻？普京是否刚刚为中共国近期的军事行动树立了榜样？
+科技如此的日新月异，我个人在想地球的统治者会如何对待我们这些老百姓。
 
-七哥说了，中共一定打台湾。胡锡进的推文是不是铺垫？还有，中共是有神论（迷信），他们是不是近期在等一个好日子开打？
-
-**新闻来源：**https://www.zerohedge.com/geopolitical/chinese-jets-come-near-taiwan-beijing-blasts-us-fueling-fires-lead-ukraine-invasion
+**新闻来源**：[https://www.reuters.com/world/asia-pacific/musks-starlink-connects-remote-tonga-villages-still-cut-off-after-tsunami-2022-02-23/](https://www.reuters.com/world/asia-pacific/musks-starlink-connects-remote-tonga-villages-still-cut-off-after-tsunami-2022-02-23/)
 
  
 
