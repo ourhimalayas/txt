@@ -2,47 +2,40 @@
 ---
 
 
-## 前美国国务卿蓬佩奥下月访问台湾
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2064630/)
+## 俄罗斯全面出兵攻乌 中共国民恐成待宰羔羊
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2064757/)
 
-作者：首尔天池农场—追着曙光跑
+撰稿：纽约香草山部-Noemi
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-6.png)
+2月24日，乌克兰外长称，俄罗斯总统普京已“对乌克兰发动了全面入侵”。
 
+据悉，当地时间24日凌晨5时，乌克兰的军事设施遭到俄导弹袭击，俄军迅速于黑海和亚速海登陆，不久突破哈尔科夫州界，乌军指挥所遭到火箭弹袭击。之后，乌克兰管理部门宣布关闭全国领空，乌克兰基辅机场组织疏散。俄乌局势持续发酵，引发全球市场巨大的震荡，全球股市遭到重挫，黄金、原油暴涨。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2364.png)图片来自：https://static.timesofisrael.com/
+此前，郭先生在大直播中就分析道，俄乌战争一旦全面开展，全球大宗商品价格将会暴增，中共国经济遭受重挫。而中共一旦顺势攻打台湾，还将遭到来自西方世界的全面制裁。而最终受害的还是无辜的中国人民。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-65.png)
-据台湾外交部官网2022年2月21日的消息，美国前国务卿蓬佩奥（Mike Pompeo）夫妇将于3月2日至5日访问台湾，期间会见蔡英文总统。同时也会接受副总统赖清德款宴，拜会立法院长游锡堃、外交部长吴釗燮，并接受吴部长款宴。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2_.jpg)
-此外，蓬佩奥前国务卿也会应远景基金会邀请於3月4日出席演讲活动，也将与台湾政、商、学等各界人士交流互动，强化台美间的紧密友好关係。
+新闻来源：
 
-台湾外交部称，蓬佩奥在任内促成特朗普政府多次对台军售、解密美国对台湾的“六项保证”相关文件、宣布撤销台美交往限制等。 蓬佩奥来访充分展现美国两党一致对台湾坚若磐石的支持，以及台美全方位伙伴关系的紧密友好。
+[【2.24日乌克兰直击】切尔诺贝利核电站被俄军控制，普京称“莫斯科别无选择”，拜登宣布美俄关系几近决裂](https://wallstreetcn.com/articles/3652716)
 
-现年58岁的蓬佩奥曾任美国陆军军官、联邦众议员和中情局局长等职，他在2018年4月至2021年1月担任特朗普政府的国务卿。在任期间的最后一天2021年1月19日，宣布中共政府在新疆对维吾尔族及其他穆斯林少数民族犯下种族清洗与反人类罪。特朗普下台后，蓬佩奥在哈德逊研究所担任高级研究员。
-
-参考来源：
-
-[外交部誠摯歡迎美國前國務卿龐培歐伉儷訪問台灣](https://www.mofa.gov.tw/News_Content.aspx?n=95&amp;sms=73&amp;s=97387)
+[普京决定“出兵”！全球股市重挫 黄金暴涨 布油突破100美元大关](https://wallstreetcn.com/articles/3652710)
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-55.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-266.png)
 
-编辑/校对/发稿：兰兰
+编辑：飞虹
+
+总编：雪梨
+
+校正/发稿：浪迹天涯
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-66.png)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-6.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

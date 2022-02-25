@@ -2,55 +2,46 @@
 ---
 
 
-## 新西兰Covid-19 疫情爆炸式飙升引发民众焦虑及暴力情绪
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2064584/)
+## 美国最近几周CDC 数据表明：接种疫苗的人更有可能感染 COVID-19和去医院
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2064680/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image005-14.jpg)RNZ / Nate McKinnon
-当地时间2月24日，新西兰卫生部发布通告称，Covid-19 社区病例数飙升至超过6000 例，新增病例达到创纪录的6137 例。昨天，卫生部在社区宣布了3297 例新的Covid-19 病例。卫生部还证实，又有一名Covid-19 患者在医院死亡。
+编译: 真北007
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片3-19.png)图片来源：[https://www.theepochtimes.com](https://www.theepochtimes.com)
+来自THE EPOCH TIMES  二月二十四日的新闻报道:
 
-自大流行开始以来，新西兰目前已有42,469 例Covid-19 病例。
+根据疾病控制和预防中心 (CDC) 最新公布的数据，在 Omicron 病毒变种出现后，接种 COVID-19 疫苗的人群中 COVID-19 病例和住院率增加。
 
-疫情爆炸式发展引发了民众焦虑以及暴力情绪。新西兰大型连锁超市Countdown公司事务经理Kiri Hannafin 说，人们正在向超市的员工发泄与covid病毒相关的愤怒。人们不戴口罩，辱骂超市的团队，咒骂，随地吐痰，甚至威胁要杀人，目前为止每天如此。
+根据全国卫生部门提交给 CDC 的数据，在 2021 年 12 月 11 日至 2022 年 1 月 8 日期间，完全接种疫苗的人群中的 COVID-19 病例率上升了 1000% 以上。
 
-同时，他表示Countdown 的22,000 名员工令他感动，尽管“一些极少数人的行为绝对令人发指”，但员工们仍继续工作“继续前进”。但有350 名超市员工因Covid 隔离。超市预计本周末商店将出现肉类短缺。
+完全接种疫苗是指接种了两剂 Moderna 或 Pfizer COVID-19 疫苗或单剂强生疫苗的人。
 
-此外，新西兰本地因疫情飙升已经宣布幼教机构关闭。
+那些也接受了加强剂量的人的病例率也猛增，在同一时间段内上升了约 2,400%。
 
-疫情灾难正在越来越多的显现出来！
+虽然未接种疫苗的病例也有所增加，但接种疫苗的感染人数激增导致了两者之间的差距在缩小。
 
+根据CDC管理的监控系统的数据，接种疫苗的人中与 COVID-19 相关的住院人数也有所增加，从截至 2021 年 12 月 18 日当周完全接种疫苗的每 100,000 人中增加 1.4 人，到截至 1 月 8 日当周的每 100,000 人中 35.2 人。
 
+接受加强剂的人不太可能需要住院治疗，但从 2021 年 12 月到 1 月，接受三针的人的住院率也有所上升。
 
-[【援引链接】](https://www.rnz.co.nz/news/national/462112/covid-19-update-record-3297-new-community-cases-reported-in-new-zealand-today)
+在同一时间段内，因 COVID-19 导致的死亡人数在接种疫苗者中有所增加，包括在加强剂接种者中。
 
+其他数据来源也指出疫苗在 Omicron 之后表现更差，包括 CDC 在 1 月份发表的研究，该研究表明未接种疫苗和已接种疫苗的病例和住院人数之间的差距在缩小。
 
+疾病预防控制中心的数据还显示，未接种疫苗者的病例、住院率和死亡率都有所上升，但与接种疫苗者相比，增幅并不显着。
 
-**推出问题，敲出真相，爆料在路上！**
+最近几周，未接种疫苗和接种疫苗的病例、住院人数和死亡人数均急剧下降，促使许多州取消了 COVID-19 限制。
 
-**请关注和订阅我们的以下账号：**
+原文链接：[https://www.theepochtimes.com/mkt\_app/vaccinated-people-more-likely-to-contract-covid-19-go-to-hospital-in-recent-weeks-cdc-data\_4300048.html](https://www.theepochtimes.com/mkt_app/vaccinated-people-more-likely-to-contract-covid-19-go-to-hospital-in-recent-weeks-cdc-data_4300048.html)
 
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+编辑：LILY
 
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+发布：面包飞上天
 
-**玫瑰看新闻YOUTUBE账号**：
+20220225
 
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**ROSE NEWS**
-
-**【玫瑰看新闻】推特账号**：
-
-**ROSE NEWS (@ROSENEWS4)A**
-
-
-
-采集/撰稿: 玫瑰
-
-上传：漂流瓶
-
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/DA2FFC16-CFD3-4CBE-A6EF-8D83D11E5A70.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

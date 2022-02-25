@@ -2,28 +2,41 @@
 ---
 
 
-## 有声|美议员提案允许公民就疫苗强制令起诉政府
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2065153/)
+## 文·贵天成——文贵先生谈“正道主义”（四）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2065291/)
 
-配音：香草山巡管部– 文凯琳
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月22日，据当地媒体报道，美国共和党研究委员会成员、众议员哈什巴格当天提出的一项法案称，将允许美国公民就正在推行的中共病毒疫苗强制接种政策起诉联邦、州和地方政府。
+整理：**BENJ1**
+编辑：**Kelly**
 
-资料显示，在联邦政府强制推动的中共病毒疫苗接种计划中，很多美国人由于害怕失去工作而被迫接种了疫苗。但哈什巴格议员认为，政府这种做法事绝对错误且违宪的，美国民众不应该被强迫在疫苗和工作中做出选择。因此，这些人有充分的权利在因疫苗造成伤害时，采取法律行动。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/819f1e9e6501f175-2.png)配图 雅典娜设计组～614
 
-文字版原文：[美议员提案允许公民就疫苗强制令起诉政府](https://gnews.org/zh-hans/2059147/)
 
-音频处理/发稿：Daxia
+郭文贵先生**2018**年**7**月**17**日直播
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+中国正道主义很简单，归根结底就是权力属民，财富私人化受尊重。信仰和言论自由在法律框架下，这就是文贵所理想的中国正道主义、追求的喜马拉雅。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+为什么法治中国在前面？因为没有法治，这一切都是胡扯，首先要法治。中国正道主义，我认为目前来看，是解决中国所有问题最好的手段。
+
+绝大多数人认为对的情况下，还要接受媒体监督，所以说中国正道主义是让中国人不会像今天我们看到的这些：把活狗放到热锅里边儿，给退（毛）了，然后再给吃了；看到视频上打爹打娘、掐死孩子、虐待别人、除了年轻人炫耀生殖器，就是啃爷爷、啃奶奶、啃爹族、啃娘族；看到一堆的骗子谎言，全国上下都是谎言，因为谎言不受惩罚，没有佛教的妄语这种知识、没有耶稣基督教对大家的约束，也没有穆斯林告诉你说了谎以后受到惩罚上不了天堂，包括穆斯林教、基督教、佛教都是讲欺骗的结果将是受到下地狱的灾难，没有来世，这些约束没有是很可怕的。从我本人的成长来看，我小的时候如果没有我爹我娘信奉的佛教（的影响），我肯定是个大魔鬼，我也活不到今天。不是我打死别人，我被枪毙，就是别人把我打死了。我父母的朋友也都是信佛教的，后来非常荣幸，上天给了我一个最朴实的妻子，我妻子家也信佛教，非常朴实，让我一直很接地气。
+
+不管任何情况下回到家，我文贵就是一个最最最普通，一身毛病的人。我的妻子真正让我知道只有平实、善良才是最好的。然后就是说话、做事都要相信因缘轮回。后来我又接触了生活中的几个大师级的人生导师，这样的人物对我的人生带来的影响就是宗教、政治、文化、艺术、生意，我确确实实很荣幸地接触了世界上很多的高人。这些高人都很无私的把这些精神，还有他们的好东西给了我。我感悟了以后，得出综上所述的中国正道主义。这就是我对中国正道主义的理解，还有我为什么说是中国正道主义（的原因）。
+
+资料来源：郭先生GTV和盖特直播视频
+
+往期回顾：
+[文•贵天成——文贵先生谈“正道主义”（一）](https://gnews.org/zh-hans/2061785/)
+[文•贵天成——文贵先生谈“正道主义”（二）](https://gnews.org/zh-hans/2061810/)
+[文•贵天成——文贵先生谈“正道主义”（三）](https://gnews.org/zh-hans/2064565/)
+
+发布：星谕
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
