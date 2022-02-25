@@ -2,18 +2,18 @@
 ---
 
 
-## 网络战争！全球最大骇客组织「匿名者」向俄罗斯宣战
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2062142/)
+## 普京住手！俄国人塞爆大街怒喊「停战」
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2062238/)
 
-全球最大骇客组织匿名者（Anonymous）于25日表示将正式对俄罗斯政府进行「网路战争」更直接标记乌克兰Hashtag，同时声称已骇进俄罗斯媒体RT News（今日俄罗斯）网站，使网站关闭。
+乌俄冲突一触即发，昨日24日普京派兵入侵乌克兰，乌克兰首都基辅与第二大城卡尔可夫纷纷惊传爆炸。今日早上在台乌克兰正妹佳娜转发了俄罗斯街上情况，不仅全世界反对这场战役，连俄罗斯人都上街抗议，要求普京停手，佳娜还发文感谢台湾给予一个安全的家。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2345截图20220225125747_副本.png)图片来源：Getty
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-262.png)
 
-骇客组织「匿名者」转发多篇俄乌战争相关影音，文中多次提及普京，更指称将攻击俄罗斯媒体RT News的网站，且骇进了俄罗斯的网路服务供应商（ISP）Com2Com、PTT-Teleport Moscow、RELCOM和Sovam Teleport等，将以「网路战争」制裁俄罗斯对于乌克兰的入侵，甚至发文嘲讽「RT很努力在恢復页面」。据了解，RT News网站曾几度暂时关闭后，已恢复正常。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/2-100.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/3-71.png)图／翻摄自佳娜IG
 
-简评：现代化战争怎能少了网络战，骇客组织「匿名者」以「网路战争」制裁俄罗斯实乃正义者的自发行动，愿全球的正义者都能加入这场关乎人类命运的战争。骇客组织「匿名者」，新中国联邦是坚守正道主义的正义力量，欢迎你们加入！
 
-新闻来源：[yahoo](https://tw.news.yahoo.com/%E9%A7%AD%E5%AE%A2%E7%B5%84%E7%B9%94%E3%80%8C%E5%8C%BF%E5%90%8D%E8%80%85%E3%80%8D%E6%94%BB%E6%93%8A%E4%BF%84%E7%BE%85%E6%96%AF%E7%B6%B2%E7%AB%99-024050396.html)
+新闻来源：[yahoo](https://tw.news.yahoo.com/%E6%99%AE%E4%B8%81%E4%BD%8F%E6%89%8B-%E4%BF%84%E5%9C%8B%E4%BA%BA%E6%80%92%E5%96%8A-%E5%81%9C%E6%88%B0-%E5%A1%9E%E7%88%86%E5%A4%A7%E8%A1%97%E9%9C%87%E6%92%BC%E7%95%AB%E9%9D%A2%E6%9B%9D%E5%85%89-041300176.html)
 
 撰稿/发布：一叶知秋
 

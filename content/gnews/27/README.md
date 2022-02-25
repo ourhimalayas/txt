@@ -2,26 +2,13 @@
 ---
 
 
-## 俄军控制切尔诺贝利核电站 欧洲面临新的安全隐患
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2062071/)
+## 2月24日勿忘香港（图片1-5）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2062170/)
 
-撰稿：东京樱花团/盖特第一批注册
+设计 五月花农场 企鹅
+![](https://assets.gnews.org/wp-content/uploads/2022/02/CB5CA907-9797-4280-8627-989A60D1AC93.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/BB3A02EA-4C4B-4FB8-97B9-550FFD63F7E8.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/52DFC500-6AF9-4E3D-BFFC-0C9EAAEB2112.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/218BE001-C91E-470B-9591-EF47C5E72C6B.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/729EBB90-C5B3-400C-8637-1EF6BB0A1148.jpeg)
+发布：水涨船高
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/俄军控制切尔诺贝利核电站-欧洲面临新的安全隐患.jpg)[图片来源](https://www.google.com/maps/uv?pb=!1s0x472a7da75fb49db3%3A0xbdc209edda2b9bc0!3m1!7e115!4shttps%3A%2F%2Flh5.googleusercontent.com%2Fp%2FAF1QipN4Jhyc0PXKWdH7uSIrMQS3eYTZ1HyuQ4Us6TO8%3Dw252-h160-k-no!5z5paw5a6J5YWo6ZaJ44GY6L6844KB5qeL6YCg54mpIC0gR29vZ2xlIOakn)
-
-乌克兰总统府顾问24日透露，切尔诺贝利核电站已被俄罗斯军队占领。
-
-俄罗斯的军事攻击发生之后，谁不能保证切尔诺贝利核电站是安全的，一旦发生意外将是欧洲最严重的威胁之一”。
-
-除此之外，俄罗斯军队还控制了赫尔松南部地区的部分地区，并部署了伞兵部队，以攻克基辅附近的霍斯托梅尔机场。
-
-首都基辅附近的霍斯托梅尔机场也已被封锁。
-
-信息源：[ウクライナ各地で戦闘続く、大統領が総動員令　ロシア軍は首都標的か](https://www.asahi.com/international/reuters/CRWKBN2KU00T.html)
-
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
