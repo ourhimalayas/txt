@@ -2,55 +2,70 @@
 ---
 
 
-## 世界需要看到白宫的强有力政策,而不仅仅是口炮
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2061609/)
+## 聚焦：高贵的加拿大正在回归
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2061629/)
 
-众议员迈克.华尔兹： 这是一个历史性的黑暗时刻。 世界需要看到白宫的强有力政策，而不仅仅是口炮。 拜登的威慑手段失败了。 他必须制裁普京和他的寡头，并承诺支持乌克兰抵抗俄罗斯将其变为泥潭。
+作者：丁过
 
+编辑与校对：冰糖葫芦喵
 
+综合多家媒体报道，2月23日，**加拿大总理特鲁多在多名重要内阁成员的陪同下召开新闻发布会，宣布取消刚刚实行了10天的［紧急状态法］，特鲁多称，我们确认现在局势不再是紧急情况。**
 
-> This is a historic & dark moment. The world needs to see strong policies from the White House, not just rhetoric.
-> 
-> Biden's approach to deterrence has failed. He must sanction Putin & his oligarchs & commit support to Ukraine's resistance to turn this into a quagmire for Russia. [pic.twitter.com/YoP979Q7Af](https://t.co/YoP979Q7Af)
-> — Rep. Mike Waltz (@michaelgwaltz) [February 24, 2022](https://twitter.com/michaelgwaltz/status/1496897460530077698?ref_src=twsrc%5Etfw)
+这个从未被引用的法律在极左的加拿大新民主党支持下，在众议院以185:151票获得通过，引起了全世界的哗然。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/特鲁多紧急状态法-e1645655761285.jpg)图片来源：网络。
+一直以来，加拿大卡车司机的抗议活动是和平、正义的，他们要求取消强制疫苗、和政府对话以及要求特鲁多下台都是合法诉求。
 
+据悉，**加拿大骑警已经解冻与自由车队关连的大部分帐户，是否全部解冻，参议院仍在讨论。**
 
+但是，渥太华警察局长23日表示，将继续调查并追捕参加渥太华抗议活动的卡车司机，表明特鲁多政府并未停止利用公权力对自由车队的打击。
 
-白宫： 作为对普京总统无端侵略乌克兰的回应，美国以及盟国和合作伙伴正在让俄罗斯立即付出严重的经济代价。 （附白宫网站对俄制裁部分清单） 切断了俄罗斯最大的金融机构俄罗斯联邦储蓄银行与美国金融体系的联系，包括25家子公司 对俄罗斯第二大金融机构国家开发银行银行进行全面封锁性制裁，包括20家子公司 对俄罗斯其他三家主要金融机构的全面封锁制裁:Otkritie银行、Sovcombank OJSC和Novikombank——以及34家子公司。 对俄罗斯13家最关键的主要企业和实体实施新的债务和股权限制。 针对俄罗斯精英及其家族成员的全面制裁还包括:谢尔盖·伊万诺夫(和他的儿子谢尔盖)、安德烈·帕特鲁舍夫(和他的儿子尼古拉)、伊戈尔·谢钦(和他的儿子伊万)、安德烈·普切科夫、尤里·索尔维耶夫(和他拥有的两家房地产公司)、加林娜·乌柳蒂娜和亚历山大·维迪亚辛。 白俄罗斯为支持进一步入侵乌克兰而制裁24名白俄罗斯个人和实体的代价 对俄罗斯军队的全面限制打击了普京的军事和战略野心。
+以上自相矛盾的信息起码说明，特鲁多政府在处理自由车队上的混乱失序和无能。
 
+即使在渥太华的抗议活动已被清场，但**自由车队的抗议活动在加拿大其他地方并未停止，他们正在准备更有效的行动，不久就会卷土重来。**
 
+**他们敢于向集权政府发起挑战的勇气正在激励更多的加拿大人和美国、法国、澳大利亚，新西兰的的卡车司机。**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/加拿大军人1.jpg)加拿大卡车司机在国会山前和平抗议（图片来源：网络）
+既然［紧急状态法］因为自由车队而启动，但在自由车队的抗议并未停止的情况下，特鲁多政府为什么有所退缩了呢？
 
-> In response to President Putin's unprovoked aggression against Ukraine, the United States, along with Allies and partners, is imposing severe and immediate economic costs on Russia.
->  
-> Read more: [https://t.co/L83Q2uFwKx](https://t.co/L83Q2uFwKx) [pic.twitter.com/kpxfNmQvxM](https://t.co/kpxfNmQvxM)
-> — The White House (@WhiteHouse) [February 24, 2022](https://twitter.com/WhiteHouse/status/1496932207088259076?ref_src=twsrc%5Etfw)
+主要原因是：
 
+［紧急状态法］虽然在众议院获得通过，但在参议院获得通过的可能性很少，特鲁多为了避免被参院否决，所以主动宣布取消。
 
+显然，**特鲁多启用［紧急状态法］并未得到政客们的广泛支持，而民意调查显示，他对自由车队的处理方式引起了大多数民众的不满**。
 
-参议员乔石.霍利： 被 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) [#china](https://gettr.com/hashtag/%23china) 国家宣传者攻击总是一种特殊待遇。我只想说：不要把本届政府的软弱误认为美国的衰落。 美国很强大，而且还会变得更强大。 我们永远不会允许中国共产党主宰世界 （转环球时报推文：美国政界人士知道，美国没有信心，也没有决心在台海与另一个大国再次摊牌。 所以@SenToddYoung 和@HawleyMO 敦促美国采取更强硬的行动，这样他们就可以隐藏美国衰落带来的尴尬。）
+根据加拿大马鲁民意调查公司（Maru Public Opinion）**最新调查报告显示，有63%的人反对特鲁政府处理自由车队的方式，仅有16%的人支持。有约一半的人认为特鲁多不胜任总理，认为他软弱并激化了局势和矛盾。**
 
+特鲁多是民选总理，他当然知道当他失去大部分选民的支持时，他只能卷铺盖走人。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/丁过投稿.png)图片来源：网络。
+另外，**加拿大各省的几十名律师组成的法律小组，**在特鲁多启用［紧急状态法］时**向所有的议员发送信件，指出特鲁多启用［紧急状态法］的法律条件并未具备，从而侵犯了公民的自由权利。**
 
+同时，**不少民间组织认**为特鲁多政府动用该法律开启了一个滥用权力的危险先例，因此**发起挑战，将特鲁多政府告上法庭。**即使特鲁多已经宣布取消［紧急状态法］，这些民间组织也不打算结束他们的诉讼。
 
-> Always a privilege to be attacked by the [#china](https://twitter.com/hashtag/china?src=hash&amp;ref_src=twsrc%5Etfw) state propagandists. I’ll just say this: Don’t mistake this Administration’s weakness for American decline. America is strong and will grow stronger yet. And we will never permit the Chinese Communist Party to dominate the world [https://t.co/LwZ6COOO7J](https://t.co/LwZ6COOO7J)
-> — Josh Hawley (@HawleyMO) [February 24, 2022](https://twitter.com/HawleyMO/status/1496891513502318592?ref_src=twsrc%5Etfw)
+面临有理有据的法律挑战，应该也是特鲁多有所顾忌的原因之一。
 
+而**自由车队的抗议远未结束**，人们困惑于特鲁多为什么不与卡车司机直接对话，而是不断往他们身上泼脏水，用各种公权力非法剥夺他们的权利，这种暴政和中共极权统治者的做法何其相似！
 
+**特鲁多对中共病毒来源只字不提**，但却以遵重科学为名自始至终强推已被证实有巨大毒副反应的疫苗，以上种种迹象表明，特鲁多正在变成一个独裁者。尤其对于来自专制国家的我们而言，这是最值得警惕的现象。
 
-参议员瑞克·斯科特： 我赞赏欧洲议会支持台湾，加强两岸关系，呼吁台湾海峡和平稳定。随着共产主义中国继续加强对台湾的侵略和威胁，每一个热爱自由的国家都必须加入美国和欧盟支持台湾。 （转关注台湾网站：欧洲议会周四通过了两项安全政策。）
+**有学者认为，世界将迎来剧变期，不同文明背景的国家在政治制度上将出现严重分化，简单说就是民主的更民主，专制的更专制，借助现代科技，民主和专制都会被发展到极致**。
 
+加拿大是五眼联盟之一，五眼囯家使用相同的语言，这些海洋系国家都是由最虔诚的基督徒立法建国的，在宗教信仰和文化传统上都是同根同源的。
 
+我们从与卡车司机抗议活动同时发生的一系列社会事件看到，整体上加拿大是一个守法的文明社会，是一个多元、包容的社会，说明几百年来人权、自由和法律至上已经深入到加拿大人的骨髓。
 
-> I applaud [@Europarl\_EN](https://twitter.com/Europarl_EN?ref_src=twsrc%5Etfw) for standing up for Taiwan, strengthening ties & calling for peace & stability in the Taiwan Strait. As Communist China continues its heightened aggression & threats against Taiwan, every freedom-loving nation must join the U.S. & EU in support of Taiwan. [https://t.co/a66oQZPTFu](https://t.co/a66oQZPTFu)
-> — Rick Scott (@SenRickScott) [February 24, 2022](https://twitter.com/SenRickScott/status/1496935767083528205?ref_src=twsrc%5Etfw)
+**新中国联邦创始人郭文贵先生在最近的直播中指出，释放生化病毒、制造疫苗和推广疫苗的都是一伙人，这伙人的势力非常大。**
 
+欧洲自中世纪以来就有敢于亮剑的骑士精神，**加拿大卡车司机和所有参与反对暴政的人，实际上是对邪恶势力和独裁政府的挑战，他们都是令人敬佩的现代骑士。**
 
+**班农先生早前屡次指出，**由于冷战后拜金主义盛行，以及**中共的疯狂渗透和腐蚀，**以基督教为基础的西方文明遭到了严重削弱，**加拿大也成了中共蓝金黄的重灾区。**
 
-比尔.格茨： 迄今为止最明确的迹象表明，中共国支持俄罗斯对乌克兰的军事侵略。 也暗示北京将把俄罗斯从西方制裁中拯救出来 【附华盛顿时报报道：中共国指责美国 煽动乌克兰冲突】
+但是，**加拿大人灵魂里的骑士精神还在，加拿大的法律架构还健全，正是中共病毒和毒疫苗唤醒了更多的加拿大人，因此，一个高贵的加拿大正在回归。**
 
+新闻来源：
 
+[https://twitter.com/OzraeliAvi/status/1495163814412951552https://twitter.com/RebelNews\_CA/status/1496595154379096068?s=20&t=jpvmSnBNiGgx1SnSMNSR8A](https://twitter.com/OzraeliAvi/status/1495163814412951552https://twitter.com/RebelNews_CA/status/1496595154379096068?s=20&amp;t=jpvmSnBNiGgx1SnSMNSR8A)
 
-> Clearest indicator so far that China is backing Russian military aggression in Ukraine. Also signals Beijing is set bail out Russia from western sanctions [https://t.co/v7RAXvMtfe](https://t.co/v7RAXvMtfe)
-> — Bill Gertz (@BillGertz) [February 24, 2022](https://twitter.com/BillGertz/status/1496996365041168398?ref_src=twsrc%5Etfw)
+[(3) Rebel News Canada on Twitter: “BREAKING: Trudeau is ending the use of the Emergencies Act. https://t.co/Ku03mvgT40 https://t.co/I0ZXgSthXX” / Twitter](https://twitter.com/RebelNews_CA/status/1496595154379096068?s=20&amp;t=jpvmSnBNiGgx1SnSMNSR8A)
 
 
 
