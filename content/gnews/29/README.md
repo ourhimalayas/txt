@@ -2,27 +2,27 @@
 ---
 
 
-## 俄乌危机致全球粮食价格大幅上涨
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2065480/)
+## 本庶佑教授断言中共病毒并非源于自然
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2065512/)
 
-作者：银河系农场—骄子
+作者：日本方舟农场 – Andy5
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2月23日，据相关媒体消息显示，俄罗斯与乌克兰、美国和欧盟之间日渐加剧的危机可能会给全球粮食供应带来更大的压力。目前，小麦、玉米、葵花油等基础作物的价格正在一路攀升。
+当地时间1月15日，据日本媒体报道，诺贝尔奖得主、日本生理学及医学教授本庶佑先生在接受采访时谈及了有关中共病毒起源的问题。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-8.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide9-9.jpeg)
 
-数据表明，俄罗斯和乌克兰拥有全世界80%的葵花油出口、29%的小麦出口和19%的玉米出口，中东很多国家的粮食供应都依赖于此。然而，由于近期双方战争局势的恶化，黑海的运输港口眼下已经被切断，从而导致了俄乌粮食出口的中断。
+本庶佑教授指出，自然病毒基本上都遵循在气温低的地区感染性扩大，但在高温地区失去活性的特征，但中共病毒是他从事病毒研究工作40年来，唯一发现的一种违背这种特性的病毒。因此，中共病毒绝不是自然的产物，而是人工合成的结果。
 
-另一方面，自俄罗斯向顿涅茨克和卢甘茨克派遣军队之后，各国对其的经济制裁不断加码，这严重破坏了世界粮食供应的稳定性，而美国的粮食期货价格也因此不断飙升。另外，重度依赖粮食进口的北非、亚洲和中东地区同样被大范围影响。
+本庶佑教授还提到，他早先在中共武汉病毒研究所工作过4年，为此，中共病毒疫情爆发后，他曾尝试通过电话联系在那里工作的前同事，但后来经由其他途径得知，他此前认识的相关技术人员大多数都已经死亡了。
 
-当前，乌克兰所处的黑海地区是军事冲突的聚焦点，平常繁忙的商业运输如今因军事升级而被中断。经济学家表示，该地区的粮食供应中断将会导致全球粮食价格的飞涨。
+至于中共病毒疫苗方面，本庶佑教授也表示，欧盟药品监管机构已经宣布，多次接种中共病毒疫苗会损害人体的免疫系统，甚至使接种者失去免疫力。但目前没有一个主流媒体将这一情况公之于众。
 
-参考链接：[Russia-Ukraine crisis will put even more strain on the global food supply, driving up prices of wheat and corn around the world](https://newstarget.com/2022-02-23-russia-ukraine-crisis-more-strain-global-food-supply.html)
+参考链接：[【極私的妄想小話】 50年前の警鐘「成長の限界」](https://note.com/sexywave/n/n2f450cfa8642)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
 总编：Irene木木
-编辑：静言
+编辑：飞虹
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**

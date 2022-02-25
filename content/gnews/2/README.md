@@ -2,24 +2,24 @@
 ---
 
 
-## Facebook再次发生大规模宕机事件
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2065920/)
+## 乌克兰危机下,台湾正在严阵以待
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2065945/)
 
 作者：银河系农场 — 骄子
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/good-65.png)
+2月23日，台北官员表示，台湾担心中共利用乌克兰日益紧张的态势来侵略台湾，尽管目前中共军方并未采取不同寻常的举动。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-25-2.jpg)图片来源网络
+
+台湾在上个月成立了国家安全委员会下属的乌克兰工作组，蔡英文周三表示台湾必须加强军事活动监视，避免错误讯息。目前乌克兰与台湾问题已经被捆绑在一起，且中共近日举行了频繁的军事演习，乌克兰危机之时，中共极有可能对台湾不利。 自1949年以来，台湾一直处在中共的威胁之中。习近平与普京的军事联合使得这种威胁愈发加大，且习近平采取了和普京类似的战略。目前的乌克兰危机之下，西方欧美等国积极给予俄罗斯各种制裁，习近平虽未对台湾采取任何不同的举动，但台湾的危机犹如暴风雨前的宁静，一触即发。
 
 
-据外媒报道，2月22日美东时间下午5:08分左右，Facebook开始弹出服务停机报告，目前已经监测到大约4000起该事件。用户无法访问Facebook新闻提要，并且系统不断弹出程序出错的提示。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-25-1.jpg)图片来源网络
-
-然而Facebook的状态页面显示，该服务已经启动并运行，无任何已知问题。用户通过桌面浏览器访问个人资料时，同样显示无法连接。 据悉该停机事件只针对那些需要访问新闻提要的用户，大部分用户的此功能已经被关闭使用。发生宕机事件的时候，Facebook没有任何官方通知公布此事，大约在一个小时后，美东时间下午6:12分，该功能才被慢慢恢复过来。
 
 相关链接：
 
-[Facebook is down for people everywhere right now (updated)](https://knowtechie.com/yup-facebook-is-down/)
+[Taiwan casts wary eye at China amid Ukraine crisis, but no immediate alarm](https://www.reuters.com/world/asia-pacific/taiwan-casts-wary-eye-china-amid-ukraine-crisis-no-immediate-alarm-2022-02-23/)
 
 ![This image has an empty alt attribute; its file name is Feb-55.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-55.jpg)
 

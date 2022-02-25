@@ -2,30 +2,44 @@
 ---
 
 
-## 特鲁多为何疯狂镇压卡车司机的和平抗议活动
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2065876/)
+## Facebook再次发生大规模宕机事件
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2065920/)
 
-作者：波士顿五月花  OuterRim
+作者：银河系农场 — 骄子
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/特鲁多为何疯狂镇压卡车司机的和平抗议活动.jpg)https://www.bbc.com/zhongwen/simp/world-57595734
 
-在去年年底，特鲁多突然要求加拿大过境运输的大卡车司机必须强制接种两针疫苗，否则每次过境后需自行隔离14天。这个规定显然会令不愿接种疫苗的卡车司机陷入生活的困境，无法养家糊口。因此，疫苗强制令遭到不愿接种疫苗司机的抵制。同时，抵制活动迅速地获得了众多已接种了疫苗的卡车司机的支持。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-65.png)
 
-**
-**特鲁多为何非要让卡车司机全部接种疫苗呢？感染案例的不断增加可以证明这并非出于对公众健康的考虑，难道单纯是为了追逐金钱？笔者认为除了经济利益，更重要的是绝对的控制权——左派大政府理念的根本目标，也是蓄谋已久的大重启的新世界秩序治理模式的前提条件。而特鲁多正是大重启的忠诚信徒和积极参与者。
 
-大重启的最终目标正是“你什么都不拥有，但照样很快乐”。大政府可以最大程度地控制谁能工作，如何工作，谁能够有收入，收入是多少，如何分配等民生的具体事宜。要做到这些，政府必须拥有至高无上的权力和威严。而卡车司机所代表的民众抗议和所争取的，正是反控制权，即我的事情我做主。这是对大重启计划的迎头痛击，也是特鲁多疯狂镇压的根本原因。
+据外媒报道，2月22日美东时间下午5:08分左右，Facebook开始弹出服务停机报告，目前已经监测到大约4000起该事件。用户无法访问Facebook新闻提要，并且系统不断弹出程序出错的提示。
 
-大重启的理念实为是法西斯极权的一个变种。理念的追随者认为随着目前高科技的迅猛发展，人类的生产能力可以完全被少数精英领导的跨国公司主导。少数高科技跨国大企业就可以满足绝大多数的物质需求的供给。在他们看来，未来的挑战不是供给不足，而是分配不“合理”。大重启就是要解决分配的问题。他们需要全球性的超大政府拥有说一不二的绝对权力，需要与全球“精英”精诚合作。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-25-1.jpg)图片来源网络
 
-**
-**至此，不难解释和理解特鲁多令人难以置信的强硬和不惜动用全国紧急状态法来应对普通卡车司机的和平示威。站在大重启推行者的角度，这是特鲁多推进其治国理念的不能输掉的一场关键战役。他所做的一切是推进大重启新模式的必要一步。
+然而Facebook的状态页面显示，该服务已经启动并运行，无任何已知问题。用户通过桌面浏览器访问个人资料时，同样显示无法连接。 据悉该停机事件只针对那些需要访问新闻提要的用户，大部分用户的此功能已经被关闭使用。发生宕机事件的时候，Facebook没有任何官方通知公布此事，大约在一个小时后，美东时间下午6:12分，该功能才被慢慢恢复过来。
 
-任何崇尚自由的人民都应该清醒的认识到：除了全力反击，已别无选择。
+相关链接：
 
-* * *
+[Facebook is down for people everywhere right now (updated)](https://knowtechie.com/yup-facebook-is-down/)
 
-*编辑**& 发布：jamie(文胤)*
+![This image has an empty alt attribute; its file name is Feb-55.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-55.jpg)
+
+编辑/校对/发稿：Petite abeille
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is good-66.png](https://assets.gnews.org/wp-content/uploads/2022/02/good-66.png)
+
+
+
 
  
 
