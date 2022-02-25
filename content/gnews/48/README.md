@@ -2,35 +2,34 @@
 ---
 
 
-## 台湾谴责俄罗斯，加强防护应对中共威胁
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2063523/)
+## 2022/02/22 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2063803/)
 
-作者：纽约香草山 – Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-台湾总统蔡英文于2月23日表示，谴责俄罗斯侵犯乌克兰主权，并呼吁以和平方式解决争端。
+1. 2月22日，湖北武汉。中共累计通报武汉出现14例新冠肺炎确诊病例。有武汉出行轨迹的市民随即被要求做核酸检测。
+2. 2月22日，中共通报四川成都市内9个地区，因出现新冠病毒确诊病例成为中风险区域。中共的宣传让市民普遍惊慌，成都街头变得空空荡荡。
+3. 近日，中共国家发改委就业司司长在接受记者采访时谈共同富裕表示：中共政府雄厚的财力不能过多用在社会福利上。要防止落入“福利主义”，养懒汉陷阱。
+4. 2月20日，广东惠州大亚湾楼盘出现崩盘式降价。有业主一年亏损房款近60万。
+5. 2月20日，北京。市民惊讶发现城市中道路两旁树的树皮都是人为造假。
+6. 2月20日，安徽亳州。一电动车坠沟致6人死亡！其中含4名儿童！
+7. 2月15日，浙江嘉兴。送餐员为了生计，生病期间用树枝举吊瓶打点滴的同时继续外出送餐。
+8. 2月19日，广东深圳龙岗区坂田街道中心围村。疑因疫情封控店主被隔离，宠物店的猫无人照顾，被锁在店内挨饿。
+9. 近日，江苏南京，女子23楼家中着火，消防员到场发现小区消防栓没水，等待近一小时后，消防员用手提水方式才将火扑灭。
+10. 2月20日，长沙一业主烤棉被引发大火，忘关烤火炉烧毁2层复式房屋。
+11. 2月18日，广东广州，复工复产众生相。工厂抱怨招工难，工人感叹每天需工作长达十五个小时。
+12. 2月21日，河南周口。留守小男孩教室里因思念外地打工父母而大哭。老师感叹：孩子最好的礼物应该是陪伴。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/7-37.jpg)
 
-在密切关注俄乌局势的同时，蔡英文总统要求所有政府机构警惕中共，企图利用乌克兰局势影响台湾舆论的潜在行动，并要求政府为乌克兰局势对全球和国内经济的潜在短期和长期影响做好准备，并制定计划以确保战略物资供应，稳定商品价格和金融市场。她还指示国家安全部门和武装部队，加强对台海局势的监测，并继续完善防务准备工作。
+* * *
 
-参考链接：
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-- [Taiwan condemns Russia for violation of Ukraine’s sovereignty](https://focustaiwan.tw/politics/202202230009)
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-总编：雪梨
-编辑：Ivy001
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

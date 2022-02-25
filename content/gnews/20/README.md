@@ -2,28 +2,24 @@
 ---
 
 
-## 有声|中共拘捕日本大使馆工作人员违反维也纳公约
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2065221/)
+## 视频|英国议员呼吁对俄罗斯加大制裁，警示中共
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2065236/)
 
-配音：香草山巡管部– 文凯琳
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-2月22日，日本外务省发布公告称，其驻中共国大使馆的工作人员，在21日遭到中共当局非法拘禁。虽然目前该名工作人员已经被释放，但是日本国政府的森健良事务次官在22日，表示这是近年没有发生过的，并指斥中共对日方工作人员进行了长时间的拘禁，这种行为已经违反了维也纳公约。他通知了驻日本的中共临时大使杨宇，表达了日本的严正抗议，并且要求中共的道歉。
+制作：香草山视频部
 
-截至发稿时，中共也没有道歉甚至没有报道此事，而临时大使杨宇仅向日方表示，需要向中共请示后才能做出答复。
+当地时间2月22日，英国宣布制裁5家俄罗斯银行，以及3名与普京有密切联系的富豪，以此应对21日普京下令入侵乌克兰之举。
 
-文字版原文：[中共拘捕日本大使馆工作人员违反维也纳公约](https://gnews.org/zh-hans/2055922/)
+英国首相约翰逊表示，克里姆林宫正在为全面入侵乌克兰做准备，俄罗斯正朝向孤立状态前进，全世界必须警惕普京的接下来的行动。
 
-音频处理/发稿：Daxia
+此外，曾任保守党党魁的英国国会议员史密斯表示，针对俄罗斯入侵乌克兰，中共密切关注着西方的反应，而加大对俄罗斯的制裁，警示中共，以防中共对台湾做出相应的举动。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+发稿：谐趣园
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
