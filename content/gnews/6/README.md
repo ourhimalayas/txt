@@ -2,26 +2,55 @@
 ---
 
 
-## 樱花FM|乌国防部和两家银行疑遭俄黑客攻击
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2064211/)
+## 疫苗灾害案例：药剂师接种疫苗后去世
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2064402/)
 
-音频：东京樱花团/战友520
-![](https://lh6.googleusercontent.com/dvuL_oH1uangAuutQ_oFXr6uNZ5p6XAz0nPw47q7g7zGEFYHNoBz-r-q-x9ii3wJ8_k3QUDE2sdvJPadNaf5WcMcUtLhSmoQNTEWvwe4Jcm8dan2qitGCu21PDg3sO1fSxqCfjmx)
-乌克兰国防部和两家银行的网络周二（2月15日）瘫痪，乌克兰的信息安全中心将矛头指向大军逼境俄罗斯。
+[![](https://express.adobe.com/page/XwqaALVSrGoik/images/b5c1d84b-cc3e-4251-8c2f-72aabe72acf0.png?asset_id=678d394a-e9e7-41f3-82ad-f5a756f6715b&amp;img_etag=%22d87f2d3daf30ed27d04c695c6b8b5c91%22&amp;size=2560)](https://express.adobe.com/page/XwqaALVSrGoik/images/b5c1d84b-cc3e-4251-8c2f-72aabe72acf0.png?asset_id=678d394a-e9e7-41f3-82ad-f5a756f6715b&amp;img_etag=%22d87f2d3daf30ed27d04c695c6b8b5c91%22&amp;size=1024)
+**简评：**
 
-隶属于文化部的乌克兰战略通信和信息安全中心在一份声明中称，“不排除侵略者因为其大规模的侵略计划不奏效，就使出这些肮脏的小伎俩。”
+57岁的狄米特里·纳迪娜是一位药剂师。在接受了第一剂辉瑞疫苗后不久，身体下部出现血栓，并逐渐向上延伸。他在医院待了12天后因并发症去世。他的家人完全不能相信，因为他之前是个非常健康的人。
 
-基辅指责莫斯科在过去以及俄罗斯开始在俄乌边境附近集结超过10万兵力以来采取了类似的黑客行动。俄方的军事部署加剧了东西方的紧张关系，因为西方担心俄罗斯正计划攻击乌克兰。
+[**GETTR视频链接**](https://gettr.com/post/plq5yp45d0)
 
-乌克兰当局周二报告的网络破坏类型被称为分散式阻断服务攻击–通常缩写为DDoS–但尚不清楚其规模。这种手段通过将来自多个来源的互联网流量引向一组服务器，在互联网上很常见，这种攻击在乌克兰和其他国家经常发生。
+[**GTV视频链接**](https://gtv.org/video/id=61d305fadffab035958a4a46)
 
-美国和欧洲官员周二表示，美国及其盟友已经为俄罗斯在乌克兰紧张局势升级之际发动网络攻击做好了准备，报复行动或制裁的级别取决于黑客攻击的严重程度。
+**视频字幕：**
 
-文字版原文：[乌国防部和两家银行疑遭俄黑客攻击 – GNEWS](https://gnews.org/zh-hans/2012752/)
+**纳迪娜**：他是一个非常温和的人，话很少，但每次说话都是掷地有声。 所以尽管他的话很短很精致，话落之后都会产生影响。
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
+**画外音**：这是19岁的亚历克西斯·纳迪娜在怀念圣诞节前几天因新冠去世的父亲时所说的。狄米特里·纳迪娜是一位有爱心的田纳西州父亲、丈夫、祖父和医生药剂师。这位57岁的男人在接受了第一剂辉瑞疫苗后不久，就住进了纳什维尔的圣托马斯市医院。
+
+**纳迪娜**：打了第一针疫苗后，他不以为然。一般情況下他病了，第二天就好起來。(然而这一次)他12月7日开始住院。
+
+**画外音**：在医院待了12天后，他于12月20日因并发症去世。
+
+**纳迪娜**：他们发现他从身体下部开始出现血栓，从腿部开始逐渐向上。
+
+**画外音**：他的家人完全不能相信，说他是个非常健康的人。
+
+**纳迪娜**：我们在他的最后一天见到了他，那是非常痛苦和悲伤的，但是我们见到了他。
+
+**画外音**：亚历克西斯回忆她对她父亲说的最后一句话。
+
+**纳迪娜**：我想让他知道我爱他。他是个非常在意自己长相的人。我不停地告诉他，他是个非常英俊的男人，诸如此类。
+
+**画外音**：亚历克西斯想成为像他父亲一样的医生。
+
+**纳迪娜**：他教会了我生命中的一切，他影响了我。 我会继续让他骄傲。
+
+**画外音**：在给社区的信息中她说，她相信父亲想让每个人都知道：
+
+**纳迪娜**：我会继续他的职业，我希望每个人保持积极的态度、保持健康，因为这是他想要的。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+
+*编辑：【英国伦敦喜庄园编辑部】*
+
+*字幕/**听写：云岭 | 翻译：Roberts* *| PR：nights* *|简评/文字整理/编辑：胖丁 | Page：我是球大哥*
+[![](https://express.adobe.com/page/XwqaALVSrGoik/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://express.adobe.com/page/XwqaALVSrGoik/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

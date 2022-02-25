@@ -2,66 +2,68 @@
 ---
 
 
-## 证据表明Covid有一块DNA与莫德纳2016专利序列相匹配（2/2）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2064200/)
+## 基辅可能会在96小时内沦陷 乌克兰人独自与俄罗斯作战
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2064397/)
 
-**编译：Jenny Ball**
+作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2352-1.png)图片来源：dailymail.co.uk
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-共有 12 个字母构成了 Covid 弗林蛋白酶切割位点的结构，其余字母与基因组附近部分的核苷酸相匹配。
+当地时间2月24日凌晨5点左右，普京（Vladimir Putin）亲自下令对乌克兰发动军事袭击，包括100多枚短程和中程弹道导弹、巡航导弹和地对空导弹，以及75架轰炸机，同时向乌克兰军营、仓库和机场等军事设施进攻，试图摧毁该国的军事指挥系统。
 
-研究人员在俄勒冈大学的巴拉穆拉里·安巴蒂（Balamurali Ambati）博士领导的论文中写道，匹配代码最初可能是通过表达 MSH3 基因的受感染人类细胞被引入 Covid 基因组的。
+俄罗斯方面称，空袭摧毁了乌克兰74个地面军事设施、11个机场、3个指挥所和18个基辅防空炮台雷达站。
 
-雷丁大学的微生物学家西蒙·克拉克（Simon Clarke）博士质疑该发现是否像研究声称的那样罕见。
+随后，俄罗斯地面部队从南部的克里米亚向赫尔松市发起进攻，从白俄罗斯向北推进到基辅，从别尔哥罗德向哈尔科夫东部发起进攻。
 
-他告诉《每日邮报》：“弗林蛋白酶切割位点内只能有一定数量的[基因组合]。”
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-25_21-22-18.png)
 
-“它们的功能就像牢房里的锁和钥匙，两者只能以有限的组合组合在一起。”
+这只是俄罗斯侵略乌克兰的“初始阶段”，俄罗斯有19万前线士兵处于预备役状态。俄罗斯这次袭击的目标是占领乌克兰主要城市并推翻泽连斯基的乌克兰政府。
 
-“所以这是一个有趣的巧合，但这肯定完全是巧合。”
+乌克兰卫生部表示，冲突的第一天就已经有137人丧生，另有300人受伤。
 
-《每日邮报》已联系莫德纳置评。
+周五凌晨，乌克兰首都基辅遭到轰炸，乌克兰军队炸毁了哈尔科夫通往基辅的三座桥梁桥梁，试图减缓俄罗斯坦克的推进速度。
 
-长期以来，间接证据一直对 Covid 的起源及其与武汉病毒研究所（武毒所）的联系提出质疑。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-25_21-27-57.png)
 
-众所周知，该设施正在对与导致大流行的病毒株相似的蝙蝠冠状病毒株进行实验。
+乌克兰副国防部称，俄罗斯的一枚导弹被其反导弹防御系统拦截，另一枚导弹击中了该市的一栋住宅楼，一架俄罗斯SU-27 喷气式飞机在基辅上空被地对空导弹击落。
 
-中共国很早并一向坚持认为病毒没有从实验室泄漏，并声称，病毒传染给人类肯定发生在武汉一个出售活体动物的“海鲜市场”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-25_21-25-39.png)
 
-或许是出于对早期接受实验室泄漏理论的美国总统川普的敌意，西方主流媒体和学者对这种可能性嗤之以鼻，称其为精神错乱的阴谋论。
+目前，俄罗斯军队已经控制了具有战略意义的切尔诺贝利核电站，开始逼近乌克兰首都基辅，俄罗斯军队计划包围在基辅的乌克兰军队，迫使他们要么投降，要么被摧毁，乌克兰首都基辅可能会在96小时内沦陷。
 
-但泄露的电子邮件显示，为英国和美国政府提供建议的顶级科学家，私下表达了对官方叙述的担忧。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-25_21-29-16.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip证据表明Covid有一块DNA与莫德纳2016专利序列相匹配2.png)
+在俄罗斯入侵乌克兰后，拜登宣布对俄罗斯银行、金融寡头、国有企业和高科技行业实施更多制裁，但俄罗斯石油和天然气被豁免。
 
-本月早些时候的一项研究发现Covid样本的痕迹，其中包含来自人类、仓鼠和猴子的遗传物质，可能早于官方大流行时间表。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-25_21-30-24.png)
 
-英国著名专家杰里米·法拉尔爵士曾公开谴责该理论为“阴谋”，他在 2020 年 2 月的一封私人电子邮件中承认，“可能的解释”是该病毒是人为的。
+英国首相约翰逊发表讲话，称西方盟国正在准备对俄罗斯实施“大规模”制裁，并告诉乌克兰人民：“我们不能也不会只是把目光移开。”他永远不会“压制乌克兰人的民族感情”。
 
-当时的英国政府顾问表示，他“70:30或60:40”支持意外释放，而不是自然来源。
+尽管战争爆发，巴基斯坦总理伊姆兰·汗并没有取消对俄罗斯的访问，并在今天在克里姆林宫与弗拉基米尔·普京共进“工作午餐”。
 
-杰里米爵士在发给美国卫生负责人安东尼·福奇博士和弗朗西斯·柯林斯博士的电子邮件中说，新冠病毒可能是在实验室中，从类似非典的病毒进化而来的。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-25_21-32-09.png)
 
-他接着说，这个看似良性的过程，可能“意外地制造了一种病毒，为人类之间的快速传播做好了准备”。
+此前有报道，白俄罗部队据加入了对乌克兰的袭击，独裁统治者亚历山大·卢卡申科（Alexander Lukashenko）昨天上午与他的将军们召开紧急会议。
 
-但这位英国科学家被他在美国的同行禁言，他们警告说，关于病毒起源的进一步辩论可能会破坏“国际和谐”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-25_21-34-10.png)
 
-评论：中共就是用“和谐”屏蔽一切真相的。
+战争暴发后，乌克兰总统泽连斯基在基辅主持与政府领导层、国防部门和经济集团代表的紧急会议，昨天午夜后，泽连斯基向全国发表的视频讲话中说，他们在杀人，把和平的城市变成军事目标，这是犯规的，永远不会被原谅。在讲话中，泽连斯基甚至罕见地表达了对西方国家的愤怒，他没有看到任何人愿意与乌克兰并肩作战，每个人都害怕。“谁准备好与我们并肩作战？我没有看到任何人。”“谁准备给乌克兰加入北约一个保证？每个人都害怕。”“我们被留下来独自保卫我们的国家。”乌克兰人只好“独自”与俄罗斯作战。他将在第一天丧生的137名乌克兰同胞称为“英雄”，并坚称他将坚持到最后一刻。
 
-**新闻来源**：[www.dailymail.co.uk][More evidence Covid was tinkered with in a lab? Now scientists find virus contains tiny chunk of DNA that matches sequence patented by Moderna THREE YEARS before pandemic began](https://www.dailymail.co.uk/news/article-10542309/Fresh-lab-leak-fears-study-finds-genetic-code-Covids-spike-protein-linked-Moderna-patent.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-25_21-38-51.png)
 
-**相关文章阅读**：[证据表明Covid有一块DNA与莫德纳2016专利序列相匹配（1/2）](https://gnews.org/zh-hans/2063335/)
+泽连斯基敦促居民保持警惕并遵守宵禁规则，并承认他是“第一目标”，泽连斯基还签署了一项关于在90天内全面动员民众的法令，禁止18至60岁的男性离开该国。
 
-* * *
+参考数据：
 
-***审核：文乐
-校对：花羽
-发布：信心满满***
+[愤怒、忧郁与无奈！泽连斯基称无人与乌克兰并肩，只好独立作战](https://baijiahao.baidu.com/s?id=1725700727822986127&amp;wfr=spider&amp;for=pc)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-4.jpeg)
+[SAUDI-RUSSIA COLLUSION IS DRIVING UP GAS PRICES — AND WORSENING UKRAINE CRISIS](https://theintercept.com/2022/02/23/ukraine-russia-gas-prices-saudi-arabia-biden/)
 
+[Exclusive: U.S. Expects Kyiv to Fall in Days as Ukraine Source Warns of Encirclement](https://www.newsweek.com/us-expects-kyiv-fall-days-ukraine-source-warns-encirclement-1682326)
 
+[Ukrainian troops are engaged in fierce fighting with Putin’s tanks 20 MILES outside of Kyiv and blow up three bridges to halt their advance after Russian jet was shot down over capital: Zelensky rages at Biden for leaving the country ‘alone’](https://www.dailymail.co.uk/news/article-10549113/Kiev-fall-weekend-troops-encircle-capital-taking-Chernobyl-despite-EU-sanctions.html)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

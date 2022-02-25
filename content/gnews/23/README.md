@@ -2,35 +2,24 @@
 ---
 
 
-## 小土豆在全球激烈反击下撤销紧急状态法
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2064020/)
+## 樱花FM|中日财经爆:英特尔54亿美元收购高塔半导体
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2064212/)
 
-**翻译：Lulumi**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip小土豆在全球激烈反击下撤销紧急状态法.png)图片来源：截图/YouTube
-加拿大总理在援引事实上的戒严令10天后终于退缩了。
+音频：东京樱花团/战友520
+![](https://lh4.googleusercontent.com/ZyZWLjMB48Sbq8nBKAEP33IKajQ5v61lFWbrr2jbk4zf0jhNPRfU-0Aenug9BgR776itBx9TveSeEzfNO7UT1n9kJEGjo3qNS7WEs5daCR06tWabAHjivTTkJqICvsvRHM8a0R0R)
+英特尔周二（2月15日）宣布以54亿美元收购以色列芯片制造商高塔半导体（Tower Semiconductor），以取得更多专业化生产能力。
 
-在渥太华实施史无前例地粉碎自由车队的命令10天后，加拿大总理贾斯汀·特鲁多在周三撤销了《紧急状态法》。
+英特尔对Tower Semiconductor的收购价为每股53美元，远高于周一收盘价33.13美元。高塔半导体专门生产用于汽车、医疗传感器和电源管理的模拟芯片。
 
-“今天，经过仔细考虑，我们准备确认情况不再是紧急情况。因此，联邦政府将停止使用《紧急状态法》，”特鲁多在一次新闻发布会上说。
+这项收购案将加强英特尔在全球晶圆代工产业中的地位。台积电目前是全球晶圆代工龙头。
 
-他补充说：“我们相信，现有的法律和细则足以保证人们的安全。”
+英特尔首席执行官Pat Gelsinger表示，英特尔和Tower的技术是互补的，目前晶圆代工市场的规模为1,000亿美元，预计在2030年之前将会急剧增长。
 
-此前两天，下议院周一通过了一项动议，确认特鲁多政府拥有“有时限的”紧急权力，以驱散抗议压迫性COVID措施的自由车队。
+文字版原文：[中日财经爆|英特尔54亿美元收购高塔半导体 – GNEWS](https://gnews.org/zh-hans/2012726/)
 
-特鲁多的转变也是在美国、欧洲的政治家对他援引暴虐的紧急权力进行抨击之后发生的。
-
-他的严厉行动也在社交媒体上引发广泛的嘲笑，将他与他的“父亲”菲德尔·卡斯特罗和阿道夫·希特勒进行比较。
-
-**新闻来源**：[www.infowars.com][Breaking: Trudeau Revokes Emergencies Act After Fierce Global Backlash](https://www.infowars.com/posts/breaking-trudeau-revokes-emergencies-act-after-fierce-global-backlash/)
-
-* * *
-
-***审核：文乐
-校对：花羽
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-4.jpeg)
-
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

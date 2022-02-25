@@ -2,22 +2,32 @@
 ---
 
 
-## 俄罗斯入侵乌克兰与共产党扮演的角色
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2063824/)
+## 俄罗斯威胁毁灭国际空间站
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2063963/)
 
-撰稿：东京樱花团/然乌湖
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3-72.png)
-[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fassets.gnews.org%2Fwp-content%2Fuploads%2F2021%2F06%2F%25E5%259B%25BE%25E7%2589%2587-1-11.png&amp;imgrefurl=https%3A%2F%2Fgnews.org%2Fzh-hans%2F1362614%2F&amp;tbnid=rpMHeErVbFOObM&amp;vet=12ahUKEwjjr6u4zpr2AhWPZWwGHREaB4UQMygHegUIARC8AQ..i&amp;docid=rpyNK9LmCX35LM&amp;w=862&amp;h=485&amp;q=%E5%85%B1%E4%BA%A7%E6%81%B6%E5%8A%BF%E5%8A%9B&amp;ved=2ahUKEwjjr6u4zpr2AhWPZWwGHREaB4UQMygHegUIARC8AQ)
+撰稿：东京樱花团/asket
+![](https://assets.gnews.org/wp-content/uploads/2022/02/7-38.jpg)N
+[**图片来源**](https://edition.cnn.com/2022/02/24/politics/russian-space-agency-us-sanctions-international-space-station/index.html)
 
-冬奥会期间习近平与普京秘谈二个小时的时间所达成的交易背后就有一万多亿美元与普京的交易，但是这些都是用中国老百姓为代价的，全是中国人民的钱。中国有多少人在生存线上挣扎，多少人有病看不起在家里等死，如果这些钱用在老百姓身上也可以解决很多问题，但共产党不会这么做的，因为共产党想到的就是它的政权的延续。
+据CNN报道，俄罗斯航天局局长说，美国的新制裁有可能“破坏我们在国际空间站的合作”。目前有四名美国国家航空航天局的宇航员、两名俄罗斯宇航员和一名欧洲宇航员在这个轨道前哨站上生活和工作。
 
-从乌克兰局势不难看出，习近平与普京的狼狈为奸，普京得到习近平1万多亿美元，马上就对乌克兰发动大规模侵略战争。大楼一栋栋摧毁尸体遍野，乌克兰的人民在哭泣，乌克兰的人民到现在还不知道是谁让你们活在灾难与痛苦中，背后真凶就中国共产党。如果没有共产党用中国人民的钱与普京交易就不会有今天乌克兰的灾难。
+在美国总统乔·拜登周四宣布，“将削弱他们（俄罗斯）的航天工业，包括他们的太空计划”的新制裁措施后，俄罗斯航天局局长德米特里·罗戈津在推特上说，空间站的轨道和在太空中的位置是由俄罗斯发动机控制的。
 
-有时候我都在怀疑这个世界还有没有正义，共产党在摧毁中国人民的同时给世界制造灾难，这恶魔到现在还在世界横冲直撞，还要打台湾到时又是一个大灾难，到时中国内地又是尸横遍地，也只有郭文贵先生为代表的正义力量一定会把这个恶魔消灭。
+“如果你阻止与我们的合作，谁来拯救国际空间站，使其不至于不受控制地脱离轨道并落入美国或……欧洲？”罗戈津说，“还有一种可能性是，一个500吨的结构会落在印度和中国。你想用这样的前景来威胁他们吗？国际空间站不在俄罗斯上空飞行，因此所有的风险都是你的。你准备好迎接它们了吗？”
+
+国际空间站是美国、俄罗斯、日本、加拿大和欧洲航天局之间的合作，分为两个部分–俄罗斯轨道部分和美国轨道部分。
+
+前美国宇航局宇航员加勒特·雷斯曼告诉CNN：“如果没有美国一侧的电力，俄罗斯部分就无法运作，而如果没有俄罗斯一侧的推进系统，美国部分就无法运作。所以你不能做一个友好的‘离婚’。你不能做一个有意识的脱钩。”
+
+美国国家航空航天局没有直接回应罗戈津的言论，但它指出，美国航天局“继续与俄罗斯航天局和我们在加拿大、欧洲和日本的其他国际伙伴合作，以保持国际空间站的安全和持续运作。”
+
+[信息来源](\Users\Administrator\Downloads\Russia's%20space%20agency%20warns%20US%20sanctions%20could%20'destroy'%20cooperation%20on%20the%20International%20Space%20Station)：
 
 编辑：东京樱花团/知了知了
 发布：东京樱花团/yuxingcao01
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/樱花-2022-2.jpg)
+
+
 
 
  
