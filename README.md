@@ -15,176 +15,176 @@
 
 ---
 
-### [法国将有效疫苗护照定义为接种加强剂](/content/gnews/1/README.md)
+### [有声｜战争使部分俄罗斯人感到震惊、恐惧和忧虑](/content/gnews/1/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [中日财经爆|美国宣布10项强化供应链措施应对中共威胁](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中日财经爆|俄罗斯称有足够资金确保宏观经济和金融稳定](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [郭文贵盖特音频2022.02.24](/content/gnews/4/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [赫鲁晓夫的曾孙女：普京落入中共国的陷阱](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [文贵直播大事记——从哈萨克斯坦暴乱看世界四大势力（二）](/content/gnews/6/README.md)
+ ` GNotes真.贵.记.录`
+
+### [法国将有效疫苗护照定义为接种加强剂](/content/gnews/7/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [加拿大停止向俄罗斯出口航空零部件](/content/gnews/2/README.md)
+### [加拿大停止向俄罗斯出口航空零部件](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [俄罗斯部队已接近基辅 美称可能推翻乌克兰政府](/content/gnews/3/README.md)
+### [俄罗斯部队已接近基辅 美称可能推翻乌克兰政府](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [俄罗斯进攻基辅 乌克兰总统表示不会抛弃](/content/gnews/4/README.md)
+### [俄罗斯进攻基辅 乌克兰总统表示不会抛弃](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2018年8月5日 郭文贵先生船上第一次直播 全文字版](/content/gnews/5/README.md)
+### [2018年8月5日 郭文贵先生船上第一次直播 全文字版](/content/gnews/11/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [普京住手！俄国人塞爆大街怒喊「停战」](/content/gnews/6/README.md)
+### [普京住手！俄国人塞爆大街怒喊「停战」](/content/gnews/12/README.md)
  ` 蓝莲花农场`
 
-### [俄军控制切尔诺贝利核电站 欧洲面临新的安全隐患](/content/gnews/7/README.md)
+### [【秘翻北美时评】文贵先生建议台湾战友撤离台湾](/content/gnews/13/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [俄军控制切尔诺贝利核电站 欧洲面临新的安全隐患](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2月24日 勿忘香港（6-10）](/content/gnews/8/README.md)
+### [2月24日 勿忘香港（6-10）](/content/gnews/15/README.md)
  ` 波士顿五月花农场`
 
-### [美称中俄在寻求“极度不自由”的世界秩序](/content/gnews/9/README.md)
+### [美称中俄在寻求“极度不自由”的世界秩序](/content/gnews/16/README.md)
  ` 华盛顿DC-Russian`
 
-### [【信仰之声】战火硝烟中的祷告](/content/gnews/10/README.md)
+### [【信仰之声】战火硝烟中的祷告](/content/gnews/17/README.md)
  ` 纽约香草山MOS03`
 
-### [俄罗斯镇压反战示威 拘留1700多人](/content/gnews/11/README.md)
+### [俄罗斯镇压反战示威 拘留1700多人](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2月24日勿忘香港（图片1-5）](/content/gnews/12/README.md)
+### [2月24日勿忘香港（图片1-5）](/content/gnews/19/README.md)
  ` 波士顿五月花农场`
 
-### [网络战争！全球最大骇客组织「匿名者」向俄罗斯宣战](/content/gnews/13/README.md)
+### [网络战争！全球最大骇客组织「匿名者」向俄罗斯宣战](/content/gnews/20/README.md)
  ` 蓝莲花农场`
 
-### [坚决反对战争](/content/gnews/14/README.md)
+### [坚决反对战争](/content/gnews/21/README.md)
  ` 纽约香草山MOS03`
 
-### [有声｜乌俄开战股市崩 能源食品等供应链恐中断](/content/gnews/15/README.md)
+### [有声｜乌俄开战股市崩 能源食品等供应链恐中断](/content/gnews/22/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [2022-02-24 《文贵紧急直播》全文字版](/content/gnews/16/README.md)
+### [2022-02-24 《文贵紧急直播》全文字版](/content/gnews/23/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [星链 &#8220;重新连接汤加与世界&#8221;](/content/gnews/17/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [每日快报：台湾将对俄罗斯实施经济制裁](/content/gnews/18/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [坚决反对战争](/content/gnews/19/README.md)
+### [坚决反对战争](/content/gnews/24/README.md)
  ` 纽约香草山MOS02`
 
-### [币圈新闻动态：喜币（HCN）价格目前在39.997 HDO](/content/gnews/20/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [美国不参与俄乌战争，但会“严厉”制裁俄国](/content/gnews/21/README.md)
+### [美国不参与俄乌战争，但会“严厉”制裁俄国](/content/gnews/25/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [莫里森对中共可能在俄罗斯入侵乌克兰期间入侵台湾发出警告](/content/gnews/22/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [胡锡进: 要习惯解放军进入台湾](/content/gnews/23/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [战争是灾难](/content/gnews/24/README.md)
+### [战争是灾难](/content/gnews/26/README.md)
  ` 纽约香草山MOS03`
-
-### [《蓝莲花行动》首季一期](/content/gnews/25/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [大直播后记：HPAY的落地政策各地不同](/content/gnews/26/README.md)
- ` 雅典娜GNotes`
 
 ### [俄军控制切尔诺贝利核电站 欧洲面临新的安全隐患](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [大直播后记：靠啥灭共](/content/gnews/28/README.md)
- ` 雅典娜GNotes`
-
-### [日媒看台海局势┃许多日中友好人士被卷入了中共内斗而被以间谍罪抓捕](/content/gnews/29/README.md)
+### [日媒看台海局势┃许多日中友好人士被卷入了中共内斗而被以间谍罪抓捕](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [俄罗斯人民 如何看待普京的侵略行为](/content/gnews/30/README.md)
+### [俄罗斯人民 如何看待普京的侵略行为](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本新增感染者6万1259人，死亡206人](/content/gnews/31/README.md)
+### [日本新增感染者6万1259人，死亡206人](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [回顾乌克兰的民族独特性及危机来源](/content/gnews/32/README.md)
+### [回顾乌克兰的民族独特性及危机来源](/content/gnews/31/README.md)
  ` NFSC News`
 
-### [台湾宣布参与对俄罗斯经济制裁](/content/gnews/33/README.md)
+### [台湾宣布参与对俄罗斯经济制裁](/content/gnews/32/README.md)
  ` 首尔天池农场`
 
-### [有声|中共必将用蓝金黄葬送自己](/content/gnews/34/README.md)
- ` MOSREC`
-
-### [特鲁多撤销“紧急法” 抗议相关账户逐步解冻](/content/gnews/35/README.md)
+### [特鲁多撤销“紧急法” 抗议相关账户逐步解冻](/content/gnews/33/README.md)
  ` NFSC News`
 
-### [G7发表声明 普京以莫须有罪名进行无理入侵](/content/gnews/36/README.md)
+### [G7发表声明 普京以莫须有罪名进行无理入侵](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新中国联邦新闻、GTV新闻访谈简报|2022年2月24日晚](/content/gnews/37/README.md)
+### [新中国联邦新闻、GTV新闻访谈简报|2022年2月24日晚](/content/gnews/35/README.md)
  ` 纽约香草山MOS01`
 
-### [有声|日媒指普京本没有资格出席中共冬奥会](/content/gnews/38/README.md)
- ` MOSREC`
-
-### [俄罗斯入侵乌克兰 中共将乘机攻打台湾](/content/gnews/39/README.md)
+### [俄罗斯入侵乌克兰 中共将乘机攻打台湾](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花FM|中日财经爆:美国SEC正在调查币安与赵长鹏的两家关联公司](/content/gnews/40/README.md)
+### [樱花FM|中日财经爆:美国SEC正在调查币安与赵长鹏的两家关联公司](/content/gnews/37/README.md)
  ` 樱花FM`
 
-### [新西兰财经G乐部2022年2月24日:财经新闻整理](/content/gnews/41/README.md)
+### [新西兰财经G乐部2022年2月24日:财经新闻整理](/content/gnews/38/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [铁链女只是代持？结婚证是假的](/content/gnews/42/README.md)
+### [铁链女只是代持？结婚证是假的](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆┃日本外相会见英国贸易大臣 协商TPP关税问题](/content/gnews/43/README.md)
+### [中日财经爆┃日本外相会见英国贸易大臣 协商TPP关税问题](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [纽约原油期货近8年来首次一度超过100美元每桶](/content/gnews/44/README.md)
+### [纽约原油期货近8年来首次一度超过100美元每桶](/content/gnews/41/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [北约召开紧急峰会 讨论加强邻近东欧成员国防御](/content/gnews/45/README.md)
+### [北约召开紧急峰会 讨论加强邻近东欧成员国防御](/content/gnews/42/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【秘翻新视野】西方民主国家的执政独裁化](/content/gnews/46/README.md)
+### [【秘翻新视野】西方民主国家的执政独裁化](/content/gnews/43/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [俄罗斯把乌克兰打成世界经济政治牺牲品，美国却将成为最大赢家](/content/gnews/47/README.md)
+### [俄罗斯把乌克兰打成世界经济政治牺牲品，美国却将成为最大赢家](/content/gnews/44/README.md)
  ` YALUN 亚伦`
 
-### [军事实力曾世界第三的乌克兰自废武功，惨遭侵占](/content/gnews/48/README.md)
+### [军事实力曾世界第三的乌克兰自废武功，惨遭侵占](/content/gnews/45/README.md)
  ` 秘密翻译组-原创组`
 
-### [中共建议乌克兰公民外出挂上中国国旗](/content/gnews/49/README.md)
+### [中共建议乌克兰公民外出挂上中国国旗](/content/gnews/46/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [俄罗斯股市大跌,被25国制裁](/content/gnews/50/README.md)
+### [俄罗斯股市大跌,被25国制裁](/content/gnews/47/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [打劫香港富人从差饷累进制开始](/content/gnews/51/README.md)
+### [打劫香港富人从差饷累进制开始](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [视频|中共拘捕日本大使馆工作人员违反维也纳公约](/content/gnews/52/README.md)
+### [视频|中共拘捕日本大使馆工作人员违反维也纳公约](/content/gnews/49/README.md)
  ` MOSVIDEO`
 
-### [CDC失口承认新冠鼻拭子测试被用于基因组排序分析](/content/gnews/53/README.md)
+### [CDC失口承认新冠鼻拭子测试被用于基因组排序分析](/content/gnews/50/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美制裁中共实体遏制中共军事野心](/content/gnews/54/README.md)
+### [美制裁中共实体遏制中共军事野心](/content/gnews/51/README.md)
  ` GTV News Talk`
 
-### [【G时新闻】特鲁多政府被世界经济论坛操控](/content/gnews/55/README.md)
+### [【G时新闻】特鲁多政府被世界经济论坛操控](/content/gnews/52/README.md)
  ` G-时新闻`
 
-### [尸检结果 青少年接种中共病毒疫苗简直让人 &#8220;心碎“ – 下半部](/content/gnews/56/README.md)
+### [尸检结果 青少年接种中共病毒疫苗简直让人 &#8220;心碎“ – 下半部](/content/gnews/53/README.md)
  ` topnews`
 
-### [德州州长下令调查儿童变性医疗内幕](/content/gnews/57/README.md)
+### [德州州长下令调查儿童变性医疗内幕](/content/gnews/54/README.md)
  ` 日本东京方舟农场`
+
+### [尽管卡车车队离开了渥太华，特鲁多仍不撤销紧急状态](/content/gnews/55/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [塞耶博士评谷爱凌为中共国滑雪是“巨大的错误”](/content/gnews/56/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [疾控中心掩盖大量数据](/content/gnews/57/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [港共当局坚持中共病毒清零政策，加紧建造隔离设施](/content/gnews/58/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`

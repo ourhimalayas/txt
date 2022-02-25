@@ -2,29 +2,20 @@
 ---
 
 
-## 美称中俄在寻求“极度不自由”的世界秩序
-` 华盛顿DC-Russian` [轉載自GNews](https://gnews.org/zh-hans/2062190/)
+## 俄罗斯部队已接近基辅 美称可能推翻乌克兰政府
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2062282/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Snipaste_2022-02-25_08-15-01.jpg)[goldmoney.com](https://www.goldmoney.com/research/goldmoney-insights/trump-russia-and-china)
-华盛顿（路透社）- 美国周三指责中共和俄罗斯正在共同努力创造一个新的”极不自由”的世界秩序，莫斯科对乌克兰的行动只是其中的一部分。
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2324.png)[图片来源](https://www.google.com/search?q=russian+army&amp;sxsrf=APq-WBvyMa0NgVeVIXN3SNCJkyfY6ulYmA:1645766524532&amp;tbm=isch&amp;source=iu&amp;ictx=1&amp;vet=1&amp;fir=M6KnbKvo2SjnDM%252C0iC2LYmFYGyM5M%252C_%253BRjWVxVPRioQ)
+CNN报道，据消息人士称，美国政府官员在向国会议员介绍情况时称，一支从白俄罗斯进入乌克兰的俄罗斯机械化军事部队已经到达距离首都基辅32公里的范围内。
 
-美国国务院发言人内德·普莱斯（Ned Price）说，世界上每个负责任的国家，包括中共国，都有义务敦促俄罗斯总统弗拉基米尔·普京（Vladimir Putin）让步，缓和乌克兰危机。
-“你将不得不问中共国，他们是否为此利用了自己对俄罗斯联邦的巨大影响力，”普莱斯在谈到中共国的例行新闻发布会上说。
-在谈到中共国和俄罗斯本月宣布的升级的”无限制”伙伴关系时，他们承诺加强合作，反对美国和西方，普莱斯说，中俄关系的发展方向”非常令人担忧”。
-“我们认为俄罗斯和中共国也想要一个世界秩序，”他说，”但这是一个现在和将来都是非常不自由的秩序，一个与世界各国的制度形成鲜明对比的秩序……（就像）在过去的七十年打造的那样。
-“这是一种在很多方面都是破坏性的秩序，而不是有益的元素。”
-普赖斯指出，中共国在其治国方略中一再强调主权原则是神圣不可侵犯的。
-（完）
+这些官员还解释说，另一支进入乌克兰的俄罗斯部队在稍远的地方。两者都在向基辅行进，目的是包围基辅，有可能推翻乌克兰政府。
 
-听上去美国国务院有点天真，认为中共“有义务敦促普京让步，缓和乌克兰危机”。事实上这把火恰恰是中共点燃的。相信美国的情报机构也能得到习神与普京进行了“无翻译密谈”的情报，至少在文贵先生这里可以获取。这一套外交辞令只是在和稀泥。美国务院随后指出，“莫斯科对乌克兰的行动只是其中的一部分。”
+信息源：[ロシア軍がキエフから３２キロの距離に、米当局者が議員に伝える](https://news.yahoo.co.jp/articles/8c97050a4fb1a8a4899d532db85ea112d7ce1691#:~:text=)
 
-如文贵先生呼吁的：中共侵台湾迫在眉睫！
-
-原文链接：https://www.msn.com/en-ca/news/world/u-s-says-china-and-russia-seek-profoundly-illiberal-world-order/ar-AAUdXMI?ocid=msedgntp
-
-华盛顿DC 望七星
-编辑发布 银河
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

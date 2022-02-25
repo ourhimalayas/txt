@@ -2,12 +2,25 @@
 ---
 
 
-## 2月24日勿忘香港（图片1-5）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2062170/)
+## 普京住手！俄国人塞爆大街怒喊「停战」
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2062238/)
 
-设计 五月花农场 企鹅
-![](https://assets.gnews.org/wp-content/uploads/2022/02/CB5CA907-9797-4280-8627-989A60D1AC93.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/BB3A02EA-4C4B-4FB8-97B9-550FFD63F7E8.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/52DFC500-6AF9-4E3D-BFFC-0C9EAAEB2112.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/218BE001-C91E-470B-9591-EF47C5E72C6B.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/729EBB90-C5B3-400C-8637-1EF6BB0A1148.jpeg)
-发布：水涨船高
+乌俄冲突一触即发，昨日24日普京派兵入侵乌克兰，乌克兰首都基辅与第二大城卡尔可夫纷纷惊传爆炸。今日早上在台乌克兰正妹佳娜转发了俄罗斯街上情况，不仅全世界反对这场战役，连俄罗斯人都上街抗议，要求普京停手，佳娜还发文感谢台湾给予一个安全的家。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-262.png)
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/2-100.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/3-71.png)图／翻摄自佳娜IG
+
+
+新闻来源：[yahoo](https://tw.news.yahoo.com/%E6%99%AE%E4%B8%81%E4%BD%8F%E6%89%8B-%E4%BF%84%E5%9C%8B%E4%BA%BA%E6%80%92%E5%96%8A-%E5%81%9C%E6%88%B0-%E5%A1%9E%E7%88%86%E5%A4%A7%E8%A1%97%E9%9C%87%E6%92%BC%E7%95%AB%E9%9D%A2%E6%9B%9D%E5%85%89-041300176.html)
+
+撰稿/发布：一叶知秋
+
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

@@ -2,49 +2,56 @@
 ---
 
 
-## 《蓝莲花行动》首季一期
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2062075/)
+## 美国不参与俄乌战争，但会“严厉”制裁俄国
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2062082/)
 
-**—[圣洁绽放蓝莲花  正道行动攀喜峰](https://gtv.org/broadcast/watch/6217a11308ba8a07b1a2b4ea)—**
+**编译：verifunny**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/22-12.png)
+据《零对冲》报道，美国当地时间2月24日拜登讲话中最重要的部分是他发誓美国军队不会在乌克兰与俄罗斯交战，但同时也再次强调美国将保卫北约的领土，此时更多的美国军队正前往德国，更多的美国战斗机部署到盟国波罗的海国家以保护北约领土。
 
-**🎙️主持：@ 澄道来了 🎙️嘉宾：@ Jimhu 吉姆湖｜@ 文聊**
-[![](https://assets.gnews.org/wp-content/uploads/2022/02/Unknown-1-7.jpeg)](https://gtv.org/broadcast/watch/6217a11308ba8a07b1a2b4ea)点击图片观看完整视频
-**🔷主题： [反华排华 灾难重演会有多远 ！](https://gtv.org/broadcast/watch/6217a11308ba8a07b1a2b4ea)**
+至关重要的是，对普京本人的直接制裁目前还没有摆在桌面上，而且现在很清楚的是，将俄罗斯从SWIFT上断开连接也不是新措施的一部分。拜登说：”普京将成为国际舞台上的弃儿。
 
-**📜副题： 从仇恨种子酝酿到疫苗灾难溯责 从HBO造势嫁祸到华人惨遭一杀再杀  不可控 未雨绸 中共不等于中国人 正道宣告**
+拜登总统对俄国的总结：
 
-**人各有命 新中国联邦人 之幸运 如肓龟浮木 富贵在天**
-
-**爆料革命 之璀璨 如动天换日**
-
-**澄清认知 灭共唯一**
-
-**＂秘翻响鼓秀埸＂之 @ 文聊 @ 小小酥@北极星 再聚 **
-
-**…… 娓娓道来**
-
-**了却宿愿 心同莲花圣绽放**
-
-**                           行似使徒洁身爱**
-
-**[@ 零距离车间 @ 澄道来了  @ 爱动爱爱码02171](https://gtv.org/broadcast/watch/6217a11308ba8a07b1a2b4ea)**
-
-**GTV链接：**[https://gtv.org/broadcast/watch/6217a11308ba8a07b1a2b4ea](https://gtv.org/broadcast/watch/6217a11308ba8a07b1a2b4ea)
-
-* * *
+- 对俄罗斯实施强有力的制裁和新的限制
+- 对美国和盟国的影响将被降至最低
+- 普京是侵略者
+- 俄罗斯的日元、欧元交易能力将受到限制
+- 将封锁俄罗斯的四家主要银行
+- 增加对俄罗斯精英的制裁
+- 将切断俄罗斯的部分进口产品
+- 称估计制裁将切断俄罗斯一半以上的高科技产品进口
+- 称美国军队不会在乌克兰作战
+- 授权向德国增派部队
+- 迅雷总是一种选择，目前没有计划使用
+- 五角大楼下令向欧洲增派约7000人的部队
+- 乌克兰卫生部长称今天有57人死亡，169人受伤
 
 
+拜登也和七大工业组织的领袖谈了普京总统对乌克兰的无理攻击。根据突发新闻，英国在西方盟国中率先采取行动，推出了以下这些初步的严肃措施：
 
-2022年2月| 一 | 二 | 三 | 四 | 五 | 六 | 日 |
-| --- | --- | --- | --- | --- | --- | --- |
-|   | [1](https://gnews.org/zh-hans/date/2022/02/01/) | [2](https://gnews.org/zh-hans/date/2022/02/02/) | [3](https://gnews.org/zh-hans/date/2022/02/03/) | [4](https://gnews.org/zh-hans/date/2022/02/04/) | [5](https://gnews.org/zh-hans/date/2022/02/05/) | [6](https://gnews.org/zh-hans/date/2022/02/06/) |
-| [7](https://gnews.org/zh-hans/date/2022/02/07/) | [8](https://gnews.org/zh-hans/date/2022/02/08/) | [9](https://gnews.org/zh-hans/date/2022/02/09/) | [10](https://gnews.org/zh-hans/date/2022/02/10/) | [11](https://gnews.org/zh-hans/date/2022/02/11/) | [12](https://gnews.org/zh-hans/date/2022/02/12/) | [13](https://gnews.org/zh-hans/date/2022/02/13/) |
-| [14](https://gnews.org/zh-hans/date/2022/02/14/) | [15](https://gnews.org/zh-hans/date/2022/02/15/) | [16](https://gnews.org/zh-hans/date/2022/02/16/) | [17](https://gnews.org/zh-hans/date/2022/02/17/) | [18](https://gnews.org/zh-hans/date/2022/02/18/) | [19](https://gnews.org/zh-hans/date/2022/02/19/) | [20](https://gnews.org/zh-hans/date/2022/02/20/) |
-| [21](https://gnews.org/zh-hans/date/2022/02/21/) | [22](https://gnews.org/zh-hans/date/2022/02/22/) | [23](https://gnews.org/zh-hans/date/2022/02/23/) | [24](https://gnews.org/zh-hans/date/2022/02/24/) | 25 | 26 | 27 |
-| 28 |   |
+- 俄罗斯将被禁止在英国市场筹集主权债务
+- 英国将立即冻结俄罗斯VTB银行的资产
+- 英国阻止俄罗斯公司在伦敦进行融资
+- 英国禁止俄航飞机在英国降落
+- 英国对100多个俄罗斯个人和实体实施制裁
+- 约翰逊：禁止向俄罗斯出口高科技部件
 
-[« 1月](https://gnews.org/zh-hans/date/2022/01/)  
- 
+
+以上的报道是不是七哥说的“欧洲已经跪下了 （美国是大哥）”。
+
+美俄欧的一切行动会不会是一个套，让习认为俄国拿回乌克兰的举动可以效仿，以致发动对台的攻击。制裁是否是让俄乌战争看起来很真实？七哥也说过有些制裁是不痛不痒的。
+
+**新闻来源**：https://www.zerohedge.com/political/watch-live-president-biden-unleashes-toughest-sanctions-ever-russia
+
+**相关新闻**
+
+
+
+> [胡锡进: 要习惯解放军进入台湾](https://gnews.org/zh-hans/2062077/)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

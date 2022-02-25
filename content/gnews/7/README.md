@@ -2,24 +2,24 @@
 ---
 
 
-## 俄军控制切尔诺贝利核电站 欧洲面临新的安全隐患
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2062224/)
+## 法国将有效疫苗护照定义为接种加强剂
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2062302/)
 
-撰稿：东京樱花团/盖特第一批注册
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2321.png)[图片来源](https://www.google.com/maps/uv?pb=!1s0x472a7da75fb49db3%3A0xbdc209edda2b9bc0!3m1!7e115!4shttps%3A%2F%2Flh5.googleusercontent.com%2Fp%2FAF1QipN4Jhyc0PXKWdH7uSIrMQS3eYTZ1HyuQ4Us6TO8%3Dw252-h160-k-no!5z5paw5a6J5YWo6ZaJ44GY6L6844KB5qeL6YCg54mpIC0gR29vZ2xlIOakn)
-乌克兰总统府顾问24日透露，切尔诺贝利核电站已被俄罗斯军队占领。
+采编撰稿：自由法兰西 校对编辑：硫酸羟氯喹64
 
-俄罗斯的军事攻击发生之后，谁不能保证切尔诺贝利核电站是安全的，一旦发生意外将是欧洲最严重的威胁之一”。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot_20220222-134652_Twitter-913x479-1.jpg)图片来源：the gateway pundit
 
-除此之外，俄罗斯军队还控制了赫尔松南部地区的部分地区，并部署了伞兵部队，以攻克基辅附近的霍斯托梅尔机场。
 
-首都基辅附近的霍斯托梅尔机场也已被封锁。
+据美国媒体[网关专家]2月22日报道, 法国马克龙政府日前宣布，所有已接种二剂但尚未注射第三针的疫苗护照失效。而根据现行政策，在进入酒吧、餐厅等公共场所或乘坐跨区公交时，都必须出示疫苗护照。
 
-信息源：[ウクライナ各地で戦闘続く、大統領が総動員令　ロシア軍は首都標的か](https://www.asahi.com/international/reuters/CRWKBN2KU00T.html)
+报道称，马克龙突然宣布原两针疫苗护照失效的做法令各界错愕。部分民众因无法接受通行证被作废后将失去行动自由的现实，而被迫接种了第三剂。而这正是法国政府推出本次新政策的初衷。但同时，越来越多的民众不愿再接种更多的疫苗。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
+评论指出，在许多国家都已停止强制疫苗政策的今天，法国独裁者马克龙仍罔顾民意，逆天而行，并擅用强权威逼民众去打第三针。目前，随着民众日渐觉醒，疫苗之战不仅已进入到白热化阶段，同时也是人类历史上前所未有的一次正义与邪恶的殊死对决！
+
+发稿：文明(添草灭共)
+
+[新闻链接](https://www.thegatewaypundit.com/2022/02/france-deactivates-4-million-vaccine-passports-forcing-double-jabbed-citizens-decide-taking-booster-shunned-society-video/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
