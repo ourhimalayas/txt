@@ -2,50 +2,37 @@
 ---
 
 
-## 新西兰：新西兰总理杰辛达表示当这次的Omicron高峰值过去之后，政府将会考虑放宽中共病毒流行期间的各项限制
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2063492/)
+## Richard Gere因批评中共而被好莱坞列入黑名单
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2063566/)
 
-撰稿人：Lois
+作者：银河系农场 – 骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+好莱坞著名影星Richard Gere因长期批判中共人权问题而被好莱坞列入了黑名单。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2254.png)图片采自于RNZPool：新西兰总理杰辛达阿登
+![](https://assets.gnews.org/wp-content/uploads/2022/02/richardgereprettywoman1-640x480-1.jpg)
 
-二月二十一日周一，新西兰总理杰辛达阿登宣布政府在新西兰Omicron病例峰值过后，有可能放宽中共病毒流行期间的各种限制令和疫苗接种强制令。
+20世纪90年代末至21世纪初，美国的好莱坞市场大规模扩张中共国市场，在利益驱使下， 对中共不满情绪的人或者作品出现，这势必会影响中共国市场的盈利。Richard Gere曾经在1993年的奥斯卡颁奖典礼上怒斥中共可怕的人权状况，呼吁解放西藏。显而易见的，这位影星的生涯慢慢结束了。在Richard Gere的履历上，他只获得了很少的工作与演出机会，按照他的才能，这样的年纪，他本应该拥有非常广阔的演艺事业和获得极高的名誉。
 
-有报告显示新西兰Ormicron病例“有可能”会在三月中旬到月末达到峰值，然后会快速下降。
+好莱坞和中共的勾兑已经让艺术失去了完整性和基本的人类精神，有大量记录证实，好莱坞的多数艺术家愿意贬低自我为中共进行虚假宣传。
 
-“我们知道病例数会在三月中旬到三月底达到最高峰。距离现在只有三到六周时间”阿登说到。
+目前好莱坞正在承受与中共亲密无间带来的恶果，金融与艺术灾难并存。中共不讲任何规则用完即扔的态度同样适用于好莱坞，尽管好莱坞尝试继续安抚中共，但无济于事。
 
-“到了那个时候我们便可以采取一些不同的措施来对付病毒”
+参考链接：
 
-新闻是在自由车队在惠灵顿议会前的抗议活动进行到第二周时出现的。
+- [Nolte: Hollywood Blacklists Richard Gere over China Criticism](https://www.breitbart.com/entertainment/2022/02/23/nolte-hollywood-blacklists-richard-gere-over-china-criticism/)
 
-“每个人都对中共病毒感到厌倦。没有人愿意活在规则和限制下，但是如果我们所有的人都不愿意团结起来相互保护，那我们中的每个人都会变得更糟，包括失去我们最亲爱的人” 阿登在内阁会议后的发言中对自由车队表示。
 
-总理表示，政府的基本目标已经转向尽可能以最低的限制确保人们的安全，同时维护经济。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-“说到改变限制并不是一个简单的问题，在不可预计的病毒大流行期间”阿登继续说到。
+编辑/校对/发稿：海阔天空1
 
-阿登也提到了疫苗护照的问题，这是造成对未接种疫苗者歧视的原因。
-
-“疫苗护照是一种保障方式，让处于高风险场所人得到一定程度的保护。但是，当Ormicron的高峰期过后，这个等式将会改变，因为很多的并未接种疫苗的人们已经接触过病毒”总理说到。
-
-“所以它们（疫苗护照）是有必要的，同时也是暂时的一种手段” 她继续说到。“我们能取消疫苗护照和诸多强制令是因为将会有很多人感染中共病毒”。
-
-但是，阿登继续表示政府仍然在考虑对那些从事照顾和护理弱势群体（如医疗保健行业）的人员，强制接种疫苗。
-
-“我的期望值是当病毒的高峰期过去后，强制疫苗接种的范围真正地缩小，我们可以看到届时越来越多的未接种疫苗的人感染病毒”她说道。
-
-与此同时，周一早上，英国政府签署了与中共病毒共处的计划，同时取消了该国所有剩余的中共病毒流行期间的限制。
-
-**疫苗（新冠疫苗）
-中共病毒（新冠病毒covid-19）**
-
-**我们不反疫苗，只针对假疫苗
-我们不反科学，只针对反人类**
-
-**审核校对：玫瑰天空
-上传排版：V在途中**
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

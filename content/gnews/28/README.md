@@ -2,39 +2,45 @@
 ---
 
 
-## 英国政府报告：COVID-19来自武汉实验室
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2063407/)
+## 澳大利亚新洲反对党领袖为参与中共资助的中国之行道歉
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2063557/)
 
-编译：wenwu
+![](https://assets.gnews.org/wp-content/uploads/2022/02/grafik-9.png)图片来源：www.dailymail.co.uk
+澳大利亚新南威尔士州反对党领袖柯民思(Chris Minns)为七年前参与由中国共产党资助的中共国之行辩护。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2358-edited.png)thenationalpulse.com
+那次旅行是由现已被驱逐出澳洲的中共国亿万富翁黄向墨资助。黄是一名房地产开发商，曾任澳大利亚-广东商会的负责人，并积极参与澳大利亚政治，后来成为反腐败独立委员会调查的对象。
 
-根据一位前陆军上校的报告，英国政府认为COVID-19 的起源正是来自故意阻挡病毒调查的武汉病毒研究所。
+黄向墨与当时的工党参议员邓森(Sam Dastyari)之间的关系导致其政治生涯在2018年结束，同时黄的公民身份和永久居留权于2019年被澳大利亚安全情报局取消。
 
-这一消息是在英国首相鲍里斯·约翰逊（Boris Johnson）修改英国的生物安全战略以防范”自然人畜共患病和实验室泄密”的情况下[披露](https://www.telegraph.co.uk/news/2022/02/22/wuhan-lab-leak-believed-behind-closed-doors-likeliest-origin/)的。
+这位工党领袖表示，那次的香港和中共国之行“几乎完全是为了贸易”，此后他“绝对没有”与黄先生有过任何接触。在访问中共国后不久，柯民思在新南威尔士州议会发表的首次演讲中呼吁向所有学生教授普通话。现在，他为此事道歉，他说：“这是我犯的一个错误，我很后悔。”
 
-化学和生物反恐专家、剑桥大学马格达林学院的生物安全研究员哈米什·德·布雷顿-戈登（Hamish de Bretton-Gordon）在谈到政府时说：“由于中共阻挡各国政府调查武汉研究所，这导致多数人认为中共病毒源于中共实验室的泄漏。”
+那次旅行就发生在习近平掌权一年之后，在香港的抗议活动和“维吾尔族人强迫劳工”之前。柯民思表示，当他建议新南威尔士州学校应该强制学习普通话时，他正在研究中共国的经济规模和经济增长。
 
-这位前英国陆军上校解释说：“人畜共患病转移的理论没有意义；我认为官方观点是，它和其他任何东西一样有可能导致中共病毒大流行；很多人像我一样认为这（实验室泄漏理论）更有可能。我认为人们的态度已经发生了一些变化”。
+联邦影子财长克里斯·鲍文(Chris Bowen)也参加了这次旅行，并在2015年完成了利益申报。柯明斯先生并没有申报此次旅行，原因是一位州政府立法委员会的人员告诉他由于是他是刚刚当选而无需申报。他补充说，其他政界人士，包括执政的联盟党中的一些人，当时也曾到过中共国。
 
-英国官员咨询了像布雷顿-戈登这样的专家，以支持起草一项新的生物安全战略，以应对“意外释放和令人担忧的双重用途研究，即生命科学研究能够被误用来造成伤害”。
+**简评：**
 
-“我最担心的是，下一次可能不是意外，因为这很容易做到。如果你没有道德，没有顾忌，为什么不感染你的敌人呢？”布雷顿-戈登推断道。
+通过本文，我们可以深入地体会到中共对澳洲政界渗透的之深、之久、之广。柯明斯在2015年接受中共赞助去中共国旅游的时候刚刚36岁，可以说他的的政治生涯刚开始崭露头角就立刻被中共盯上了。时至今日，他已经成为新洲的反对党领袖，并有很大的可能会在下一次的选举中成为州长。
 
-这一承认是在美国的 COVID-19 沙皇安东尼·福奇（Anthony Fauci）在武汉资助属于”令人担忧的双重用途研究”类别的研究，包括关于“杀手”蝙蝠冠状病毒。这位美国国家卫生研究院的官员还为这种研究做法辩护——包括操纵病原体使其对人类更致命——是“不可或缺的”，尽管它有可能导致大流行病。
+郭文贵先生曾经多次透露中共国安人员会对来访的各国政要进行各种方式的蓝、金、黄，并会留下证据做为今后要挟的筹码。而柯明斯在那次旅行归来后就即刻呼吁澳洲普及中文教育，为以孔子学院为代表的中共宣传和间谍机构在澳洲的发展壮大提供帮助则无疑再一次证明了郭先生所揭露中共卑鄙行为的准确性。
 
-《国家脉动》之前[报道](https://thenationalpulse.com/2021/06/02/nih-hosted-wuhan-lab-director-asserting-no-regulation/)说，武汉病毒研究所的副所长正在从事类似于“没有监管”的令人担忧的双重用途研究。
+在这个全球开始追缴中共病毒真相，围剿中共的时刻，通过本文我们还可以深切地体会到那些和中共有着深深浅浅、各种各样关联的政客纷纷开始反水，或对曾经与中共的关系表示悔恨并迅速切割、或利用与中共的关系来攻击自己的对手。总之，中共病毒和疫苗灾难之后，反共和灭共毫无疑问会成为各国政客转移国内各种矛盾和逃避自身在强制疫苗错误一棵救命稻草。
 
-（文章仅代表作者观点与GNEWS无关）
+新闻链接：
 
-素材来源：[thenationalpulse.com] [The British Government Believes COVID-19 Came From the Wuhan Lab: Report.](https://thenationalpulse.com/2022/02/23/british-gov-backs-lab-leak-theory-behind-closed-doors/)
+[https://www.dailymail.co.uk/news/article-10537605/NSW-Labor-leader-Chris-Minns-apologises-calling-mandatory-Mandarin-lessons-schools.html](https://www.dailymail.co.uk/news/article-10537605/NSW-Labor-leader-Chris-Minns-apologises-calling-mandatory-Mandarin-lessons-schools.html)
 
 * * *
 
-审核：文乐
-校对：信心满满
-发布：花羽
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-4.jpeg)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
