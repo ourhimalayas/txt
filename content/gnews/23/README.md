@@ -2,22 +2,34 @@
 ---
 
 
-## 樱花FM|英国政府将取消强制对医护人员的疫苗接种
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2063854/)
+## 俄罗斯威胁毁灭国际空间站
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2063963/)
 
-音频：东京樱花团/战友520
-![](https://lh3.googleusercontent.com/9Fi7woeIa_eVyuWFZX3U2HymRkkg48K4Ai8MXK29VRkAsMsZ3ZhbixqdBPmmW6SYSYKzUN29LbrbwCb_pCCGWHf3WqYDRaOwIVNliqBNITfnWLkN-Ij73N4mwPK4NylWmzhpLBfN)
-伦敦，31 日，路透社，英国政府宣布了一项政策，撤销要求医务人员接种中共病毒（新冠病毒Covid-19）疫苗的决定。因为被警告说，在已经紧张的医疗中，会出现医务人员严重短缺的情况。
+撰稿：东京樱花团/asket
+![](https://assets.gnews.org/wp-content/uploads/2022/02/7-38.jpg)N
+[**图片来源**](https://edition.cnn.com/2022/02/24/politics/russian-space-agency-us-sanctions-international-space-station/index.html)
 
-该计划是针对英国民保健服务(NHS)要求医护人员在4月1日之前完成疫苗接种的政策。该政策于去年11月公布后，遭到部分职员反对，称解雇不愿接种疫苗的医护人员会导致医疗服务从业者严重短缺。许多执政党成员也表示反对。
+据CNN报道，俄罗斯航天局局长说，美国的新制裁有可能“破坏我们在国际空间站的合作”。目前有四名美国国家航空航天局的宇航员、两名俄罗斯宇航员和一名欧洲宇航员在这个轨道前哨站上生活和工作。
 
-现任卫生部长31日表示，他将考虑这项政策对于高传染性和轻度症状的Omicron毒株的出现是否仍然必要。他告诉国会：“政府将废除这条规定。虽然疫苗仍然是抵御新冠病毒的最佳手段，但我认为它们不再与工作条件相提并论。”
+在美国总统乔·拜登周四宣布，“将削弱他们（俄罗斯）的航天工业，包括他们的太空计划”的新制裁措施后，俄罗斯航天局局长德米特里·罗戈津在推特上说，空间站的轨道和在太空中的位置是由俄罗斯发动机控制的。
 
-文字版原文：[英国政府将取消强制对医护人员的疫苗接种 – GNEWS](https://gnews.org/zh-hans/1941244/)
+“如果你阻止与我们的合作，谁来拯救国际空间站，使其不至于不受控制地脱离轨道并落入美国或……欧洲？”罗戈津说，“还有一种可能性是，一个500吨的结构会落在印度和中国。你想用这样的前景来威胁他们吗？国际空间站不在俄罗斯上空飞行，因此所有的风险都是你的。你准备好迎接它们了吗？”
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
+国际空间站是美国、俄罗斯、日本、加拿大和欧洲航天局之间的合作，分为两个部分–俄罗斯轨道部分和美国轨道部分。
+
+前美国宇航局宇航员加勒特·雷斯曼告诉CNN：“如果没有美国一侧的电力，俄罗斯部分就无法运作，而如果没有俄罗斯一侧的推进系统，美国部分就无法运作。所以你不能做一个友好的‘离婚’。你不能做一个有意识的脱钩。”
+
+美国国家航空航天局没有直接回应罗戈津的言论，但它指出，美国航天局“继续与俄罗斯航天局和我们在加拿大、欧洲和日本的其他国际伙伴合作，以保持国际空间站的安全和持续运作。”
+
+[信息来源](\Users\Administrator\Downloads\Russia's%20space%20agency%20warns%20US%20sanctions%20could%20'destroy'%20cooperation%20on%20the%20International%20Space%20Station)：
+
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/樱花-2022-2.jpg)
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

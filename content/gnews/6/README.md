@@ -2,35 +2,24 @@
 ---
 
 
-## 小土豆在全球激烈反击下撤销紧急状态法
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2064020/)
+## 樱花FM|中日财经爆:失之东隅收之桑榆 澳洲红酒畅销东南亚
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2064123/)
 
-**翻译：Lulumi**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip小土豆在全球激烈反击下撤销紧急状态法.png)图片来源：截图/YouTube
-加拿大总理在援引事实上的戒严令10天后终于退缩了。
+音频：东京樱花团/战友520
+![](https://lh4.googleusercontent.com/iW36D7lUxfMGlMCEw5YatZ6gcnkPXVRUhzW1mi9_t7UxBlSaSxTBqRhqFsXxCFK4ww1YX_MwYhnT9-MaTpTdGN4Yl0JsrgtJjkypWlo0OsmCtO47T2bAVeukFdtbOMJOUFPWK2ym)
+15日，以奔富等品牌闻名的葡萄酒生产商澳洲富邑葡萄酒集团（TWE）表示，中共国对澳大利亚葡萄酒实施制裁导致对中共国的出口大幅下降，但东南亚和其他地区的需求增长避免了最坏的情况发生。
 
-在渥太华实施史无前例地粉碎自由车队的命令10天后，加拿大总理贾斯汀·特鲁多在周三撤销了《紧急状态法》。
+根据该集团2021年下半年的业绩统计，受中共国关税制裁和中共病毒（新冠病毒Covid-19）大流行的影响，净利润同比下降了7.5%。对华出口额从去年同期的7800万澳元（约合64亿日元）急剧下降到200万澳元（约合1.6亿日元）。首席执行官蒂姆福特表示，马来西亚、新加坡、泰国和其他地方的需求表现强劲，业绩方面会有所抵消。
 
-“今天，经过仔细考虑，我们准备确认情况不再是紧急情况。因此，联邦政府将停止使用《紧急状态法》，”特鲁多在一次新闻发布会上说。
+由于中共国占澳大利亚葡萄酒出口总额的41%，普遍认为中共国关税制裁可能对澳大利亚葡萄酒行业造成致命打击。但TWE表示，中共国不会在2022年取消制裁关税，但集团有信心度过难关。
 
-他补充说：“我们相信，现有的法律和细则足以保证人们的安全。”
+中共国不会又故技重施，高价回购澳洲出口到东南亚的红酒吧？！
 
-此前两天，下议院周一通过了一项动议，确认特鲁多政府拥有“有时限的”紧急权力，以驱散抗议压迫性COVID措施的自由车队。
+文字版原文：[中日财经爆|失之东隅收之桑榆 澳洲红酒畅销东南亚 – GNEWS](https://gnews.org/zh-hans/2012779/)
 
-特鲁多的转变也是在美国、欧洲的政治家对他援引暴虐的紧急权力进行抨击之后发生的。
-
-他的严厉行动也在社交媒体上引发广泛的嘲笑，将他与他的“父亲”菲德尔·卡斯特罗和阿道夫·希特勒进行比较。
-
-**新闻来源**：[www.infowars.com][Breaking: Trudeau Revokes Emergencies Act After Fierce Global Backlash](https://www.infowars.com/posts/breaking-trudeau-revokes-emergencies-act-after-fierce-global-backlash/)
-
-* * *
-
-***审核：文乐
-校对：花羽
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-4.jpeg)
-
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
