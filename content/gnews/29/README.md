@@ -2,30 +2,38 @@
 ---
 
 
-## 美国对台湾及一中政策核心是不接受以武力改变边界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2062910/)
+## 普京发动新一轮空袭，基辅遭受攻击
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2062982/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/C5C1540B-808C-4D99-B200-ADF9C72729E3_w1023_r1_s.jpg)图片来源：美国之音
-据美国之音2月25日报道，俄罗斯2月24日全面入侵乌克兰，全世界都在担忧北京可能对台湾采取武力行动。美军太平洋舰队司令帕帕罗中将表示，美国对台湾及一中政策的核心是任何国家都不能以武力改变边界，台湾是一个“拐点”。如果中华人民共和国以武力统一台湾，将在整个印太地区引发连锁反应。美国与盟友必须力阻中共国在第一岛链内以武力达到推翻国际秩序的目标，这并非只是出于道德原因，而是因为它符合所有人的直接利益。
+**翻译/编辑：文泓**
 
-全世界10个最大的军队有7个在印太地区，此地区的经济占全世界60%。美国与盟友必须阻止中共国在第一岛链内实现2个目标，第一是违背联合国公约，排除其他人在这个地区的国际空域和海域上飞行和航行；第二是强迫台湾支持中共国所谓的“伟大复兴”。
-
-在第一岛链外，美国与盟友要展现任何时候都能超越对手的强大优势，要让对手知道动武将面临的代价。美国与欧洲都致力于维持国际秩序，不会对以武力侵犯他国的情况默不作声，俄罗斯必定要为侵犯乌克兰承担后果，这也是中共国需要思考的问题。其他亚洲国家也在观察美欧对俄罗斯的反应，美国是否真的重返亚洲，台湾是一个信号。解放军有足够的导弹能够在战争的开始阶段就摧毁台湾的军事设施，不过解放军是否有足够的跨海能力还无法确定。
-
-过去20年，中共国的军事能力取得了重大进展，中共的目标是成为世界级军队，这对美国的国家安全造成了重大威胁。台湾的防御能力已经今非昔比，解放军攻台会很冒险，会为中共国带来非常大的代价。不过，狂妄自大、视人民生命如草芥的习近平是不会考虑这些因素的。为了个人野心，付出多大的代价都不能阻止他疯狂的步伐。俄罗斯和中共国遥相呼应，瞬间把整个世界拖入病毒和疫苗灾难后的战争时代，和平不再，民主不再，因为两大邪恶轴心国的行为。美国和西方世界的容忍让中共病毒在全世界畅通无阻，乌克兰已经开战，台湾危在旦夕，美国和西方世界还会继续容忍吗？
-
-新闻参考链接：[https://www.voachinese.com/a/us-commander-said-not-changing-borders-by-force-is-the-heart-of-taiwan-policy-and-one-china-policy-20220224/6458043.html](https://www.voachinese.com/a/us-commander-said-not-changing-borders-by-force-is-the-heart-of-taiwan-policy-and-one-china-policy-20220224/6458043.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/5-44.png)图片来源：Esquire & 雅典娜设计组
 
 
-编辑：【英国伦敦喜庄园编辑部】
+2月25日，据《独立报》报道，在周五凌晨，基辅听到爆炸声，乌克兰总统泽连斯基证实，当地时间凌晨4点俄罗斯军队恢复袭击。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+乌克兰外交部长表示，首都基辅正在遭遇新一轮的“可怕”火箭弹袭击，并将这次袭击与1941年纳粹德国入侵进行了比较。
+
+一名美国高级国防官员警告说，俄罗斯军队正在向基辅靠拢，在首都郊外的霍斯托梅尔机场已发生战斗，周四晚间在基辅以北100公里处的切尔诺贝利核电站已被弗拉基米尔·普京的军队占领。
+
+早些时候泽连斯基总统表示，他的国家正在独自抵抗俄罗斯，因为莫斯科发动了全面的军事攻势，第一天就有超过137名乌克兰人丧生，其中包括士兵。
+
+[乌克兰](https://www.independent.co.uk/topic/ukraine)军方表示，莫斯科已经将60多个营级战术小组转移到边境，每个营约有700至900名士兵。
+
+早些时候，监视器镜头捕捉到俄罗斯地面部队的军车越过克里米亚边境进入乌克兰时通过了边境部队检查站。
+
+美国总统乔·拜登宣布与英国和欧盟的盟友协调实施严厉的新制裁，拜登先生说：“普京是侵略者。普京选择了这场战争。现在他和他的国家将承担后果。”
+
+参考链接：[Ukraine invasion latest: Kiev under attack as Putin unleashes ‘horrific’ new wave of airstrikes | The Independent](https://www.independent.co.uk/news/world/europe/ukraine-russia-putin-war-kiev-invasion-latest-b2022971.html)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
