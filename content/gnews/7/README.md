@@ -2,24 +2,36 @@
 ---
 
 
-## 中日财经爆|日本保险公司将提高乌克兰周边水域船舶保费
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2062578/)
+## 有声｜切尔诺贝利核电站已被俄罗斯军队占领
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2062611/)
 
-撰稿：东京樱花团/peterwong
+By:**秘翻新闻**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/日本保险公司将提高乌克兰周边水域船舶保费.jpg)[图片来源](https://club.6parkbbs.com/military/index.php?app=forum&amp;act=threadview&amp;tid=16346209)
+**2022-02-25**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/7-35.png)图片来源 路透社
+据《路透社》2月24日报道，乌克兰总统办公室顾问米哈伊洛·波多利亚克周四表示，切尔诺贝利核电站已被俄罗斯军队占领。
 
-为应对乌克兰局势趋紧，东京海上日动、三井住友保险、日本松保三大保险（非寿险）公司决定，从3月起将乌克兰周边的黑海和亚速海宣布为高风险的 “禁水区”。
+他表示，在俄罗斯军队攻占了切尔诺贝利核电站后，该核电站不可能是安全的，这是当今欧洲最严重的威胁之一。
 
-经过这些水域的船只和运输的货物的海上保险费预计会上升。保险费的增加将增加航运公司的成本负担，并可能导致货物价格上涨。
+据报道，俄罗斯军队在周四早些时候侵占了切尔诺贝利 “禁区” 。报道称， 俄罗斯希望控制切尔诺贝利核反应堆，以示北约不要进行军事干预。
 
-**消息来源:**
+1986年，在当时的苏联乌克兰发生了切尔诺贝利核灾难，殃及欧洲大部分地区。几十年后，它成为一个旅游景点。
 
-[損保大手3社、海上保険料値上げへ　ウクライナ周辺海域を通行の船舶](https://news.yahoo.co.jp/articles/28c6fe545e84b3e925e28881e47db33b1781644f)
+在俄罗斯入侵的大约一周前，游客被禁止到切尔诺贝利区。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
+乌克兰总统沃洛基米尔·泽伦斯基在核电站被占领前不久在推特上说：“我们的保卫者正在付出他们的生命，以便1986年的悲剧不再重演。”
+
+泽伦斯基还指出，俄罗斯占领切尔诺贝利核电站“是对整个欧洲的宣战”。
+
+新闻来源
+[**https://www.reuters.com/world/europe/chernobyl-power-plant-captured-by-russian-forces-ukrainian-official-2022-02-24/**](https://www.reuters.com/world/europe/chernobyl-power-plant-captured-by-russian-forces-ukrainian-official-2022-02-24/)
+
+秘翻新闻 Grace 编译报道
+
+发布 : 恩典
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
