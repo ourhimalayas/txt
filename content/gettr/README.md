@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/25/2022 1:18 AM (UTC)`
+
+2/24/2022 Miles Guo’s Urgent Livestream: The CCP will definitely invade Taiwan! Fellow fighters, please do not take any chance. Stay away from the CCP’s military bases ASAP, and Communist China will sustain huge casualties. The CCP’s NO. 1 document means that the Lao Baixing will suffer, the CCP will return to the era of the People's Commune, and the CCP’s real estate will collapse.<br/><br/>2/24/2022 文贵紧急直播：中共一定打台湾！战友们不要投机、在军事基地周围的赶快跑，中共国将血流成河；中共1号文件意味着老百姓要遭殃、中共将回到人民公社时代、房地产会崩塌<br/>
+![img](https://media.gettr.com/group46/getter/2022/02/25/01/e2917333-4a00-257e-1ae1-ac53f605ad17/out.jpg)
+
+---
+
+`@miles 2/25/2022 1:11 AM (UTC)`
+
+2/24/2022 Miles Guo’s GETTR: don’t try to be a war profiteer; we must treat our Taiwan compatriots like our brothers and sisters, and try our best to help them get out of Taiwan as soon as possible，the global Farm Alliance will be having a meeting to discuss a plan; the year 2022 will be the darkest one in human history<br/><br/>2/24/2022 文贵盖特：大家千万不能发战争财；我们要像对待亲兄弟姐妹一样，尽可能帮助有需要的台湾同胞尽快撤离，全球农场联盟会开会商讨方案；2022年是人类历史上最黑暗的一年<br/>
+![img](https://media.gettr.com/group34/getter/2022/02/25/01/e9aa178f-1ae7-77ce-0838-2b1b080d6ff5/out.jpg)
+
+---
+
 `@miles 2/24/2022 11:54 PM (UTC)`
 
 2022年02月24日 文贵紧急直播： 🆘 🆘 🆘 台湾危机，请台湾同胞们尽快撤离，能够提供帮助的战友请与联盟委员会联系。为台湾同胞，乌克兰人民祈福🙏🙏🙏
@@ -140,22 +154,6 @@
 
 2/23/2022 Miles Guo: China has been lacking faith and education for so long, leading to all kinds of bastards who lack spirituality and those in the cultural realm. It is not the US but the nomads in the north of China that has caused the Chinese people’s suffering. But now Russia is going to help us take down the CCP, and the Chinese people are going to pay a huge price for it.<br/><br/>2/23/2022 文贵直播：中国因为长期缺失信仰、教育，造成精神文化杂种丛生；给中国造成苦难的不是美国，而是北方游牧民族和苏俄，但这次俄罗斯要帮我们消灭共产党了，而中国人将付出巨大代价<br/>
 ![img](https://media.gettr.com/group8/getter/2022/02/24/02/7b1bbec1-bc4e-2fd0-075b-a3f3a4b588c8/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@s7gril 2/24/2022 1:35 AM (UTC)`
-
-EP11: The Heroes. Let's tear down the monstrous lies of this despicable #HBO #VICE production with TRUTH! 第11集：英雄。让我们用真相揭露这部卑鄙的，充满谎言的 #HBO #VICE 制作 ！ #isobelyeung #mediawarfare #unrestrictedwarfare #disinformation #propoganda #hbovice訪談真相 #UFWD #Unitedfrontworkdepartment #takedowntheccp #heroes
-![img](https://media.gettr.com/group4/origin/2022/02/24/01/61de19dc-1485-a5c2-81b0-b988cf320987/out.jpg)
-
----
-
-`@woodgogogo 2/23/2022 11:43 PM (UTC)`
-
-
-![img](https://media.gettr.com/group4/getter/2022/02/22/01/b5743eb5-ee2c-3fe9-48bc-c9f8f6c97c46/out.jpg)
 
 ---
 
