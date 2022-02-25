@@ -2,20 +2,26 @@
 ---
 
 
-## 俄罗斯称 乌克兰的中立化和非军事化是谈判的前提条件
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2064605/)
+## 视频|俄乌危机 美国一箭多雕
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2064770/)
 
-撰稿：东京樱花团/百花李香
+制作：香草山视频部
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/俄罗斯称-乌克兰的中立化和非军事化是谈判的前提条件.jpg)[图片来源](https://www.aljazeera.com/gallery/2022/2/24/photos-protesters-rally-around-the-world-in-support-of-ukraine)
+在2月23日大直播中，针对当前俄乌局势，郭文贵先生分析，普京入侵乌克兰的举动，将导致俄罗斯受到国际社会的制裁，俄罗斯内部动荡；普习的政治联盟将使中共经济崩溃，彻底丧失国际信誉；欧洲、澳大利亚将和美国结盟；而在经济、货币转型的当下，美国将成为世界财富最安全的国家。（请播放视频，视频时长：2‘32“）
 
-俄罗斯总统发言人谢尔盖-佩斯科夫25表示，与乌克兰总统泽连斯基政府的谈判条件是乌克兰的中立化和非军事化。
+视频链接：https://gettr.com/post/pwg1ttfd19
 
-信息来源：[ウクライナ中立化と非軍事化が交渉条件](text=Follow%20us%20on-,%E3%82%A6%E3%82%AF%E3%83%A9%E3%82%A4%E3%83%8A%E4%B8%AD%E7%AB%8B%E5%8)
+发稿：Daxia
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/樱花-2022-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

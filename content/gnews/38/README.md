@@ -2,35 +2,25 @@
 ---
 
 
-## 台湾谴责俄罗斯，加强防护应对中共威胁
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2063523/)
+## 秘翻在线: 中国总领事发推文说：&#8221;不要与强者争斗&#8221;，是对台湾和日本牵制吗?
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2064038/)
 
-作者：纽约香草山 – Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-台湾总统蔡英文于2月23日表示，谴责俄罗斯侵犯乌克兰主权，并呼吁以和平方式解决争端。
+撰稿:沙莉
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-386.jpg)(图片源于https://news.tv-asahi.co.jp/news\_international/articles/000245946.html)
+针对俄罗斯对乌克兰的入侵，中国总领事在社交媒体上发布了一条推文，说：”弱者不应该挑衅强者”，中国总领事的目的是似乎想牵制台湾和日本。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/7-37.jpg)
+日本朝日新闻报道称24日，中国驻大阪总领事薛健先生在其推特账户上用日语发布了一条题为 “从乌克兰问题中应吸取的教训”的信息。
 
-在密切关注俄乌局势的同时，蔡英文总统要求所有政府机构警惕中共，企图利用乌克兰局势影响台湾舆论的潜在行动，并要求政府为乌克兰局势对全球和国内经济的潜在短期和长期影响做好准备，并制定计划以确保战略物资供应，稳定商品价格和金融市场。她还指示国家安全部门和武装部队，加强对台海局势的监测，并继续完善防务准备工作。
+他在帖子中写道：”弱者绝不应该做一些愚蠢的事情，比如挑衅强者。 即使有强者站在你身后并承诺支持你。”
 
-参考链接：
+报道称这是指台湾的蔡英文政权，因它正接近美国并加剧与中国的紧张关系。
 
-- [Taiwan condemns Russia for violation of Ukraine’s sovereignty](https://focustaiwan.tw/politics/202202230009)
+在一系列的帖子中，他还说，”不要被人诱惑,在火中捡栗子”，可能是指与美国步调一致的日本。
 
+信息来源: [https://news.tv-asahi.co.jp/news\_international/articles/000245946.html](https://news.tv-asahi.co.jp/news_international/articles/000245946.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
+责编:Eric Kim
 
-总编：雪梨
-编辑：Ivy001
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

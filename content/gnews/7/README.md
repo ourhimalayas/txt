@@ -2,54 +2,25 @@
 ---
 
 
-## 新西兰Covid-19 疫情爆炸式飙升引发民众焦虑及暴力情绪
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2064584/)
+## 视频|爆料革命向世界发出的预警逐一被验证
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2064741/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image005-14.jpg)RNZ / Nate McKinnon
-当地时间2月24日，新西兰卫生部发布通告称，Covid-19 社区病例数飙升至超过6000 例，新增病例达到创纪录的6137 例。昨天，卫生部在社区宣布了3297 例新的Covid-19 病例。卫生部还证实，又有一名Covid-19 患者在医院死亡。
+制作：香草山视频部
 
-自大流行开始以来，新西兰目前已有42,469 例Covid-19 病例。
+爆料革命五年来一直致力于向世界揭露中共的邪恶本质。从2017年，郭文贵先生在新闻发布会上向世界发出警告，黑暗即将来临，到2019年香港运动，2020年向世界宣告中共病毒是中国共产党制造的生化武器，预警人类即将面临疫苗灾难，向全世界分享中共病毒解药 – 青蒿素、伊维菌素等，直到俄乌危机、永不闭幕的“冬眠会”，爆料革命向世界发出的预警已经逐一被验证，世界正在觉醒。（请播放视频，视频时长：3‘42“）
 
-疫情爆炸式发展引发了民众焦虑以及暴力情绪。新西兰大型连锁超市Countdown公司事务经理Kiri Hannafin 说，人们正在向超市的员工发泄与covid病毒相关的愤怒。人们不戴口罩，辱骂超市的团队，咒骂，随地吐痰，甚至威胁要杀人，目前为止每天如此。
+视频链接：https://gettr.com/post/pwdbppb934
 
-同时，他表示Countdown 的22,000 名员工令他感动，尽管“一些极少数人的行为绝对令人发指”，但员工们仍继续工作“继续前进”。但有350 名超市员工因Covid 隔离。超市预计本周末商店将出现肉类短缺。
+发稿：Daxia
 
-此外，新西兰本地因疫情飙升已经宣布幼教机构关闭。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpg)
 
-疫情灾难正在越来越多的显现出来！
-
-
-
-[【援引链接】](https://www.rnz.co.nz/news/national/462112/covid-19-update-record-3297-new-community-cases-reported-in-new-zealand-today)
-
-
-
-**推出问题，敲出真相，爆料在路上！**
-
-**请关注和订阅我们的以下账号：**
-
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
-
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
-
-**玫瑰看新闻YOUTUBE账号**：
-
-**玫瑰看新闻**
-
-**黑森林的故事**
-
-**ROSE NEWS**
-
-**【玫瑰看新闻】推特账号**：
-
-**ROSE NEWS (@ROSENEWS4)A**
-
-
-
-采集/撰稿: 玫瑰
-
-上传：漂流瓶
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

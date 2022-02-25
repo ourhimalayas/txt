@@ -2,17 +2,26 @@
 ---
 
 
-## 多因素叠加 全球金融危机加速到来
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2064228/)
+## 樱花FM|驻华外国记者协会称中共当局严重阻碍媒体自由
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2064529/)
 
-文贵大直播20220225
+音频：东京樱花团/战友520
+![](https://lh6.googleusercontent.com/YYEx3V5jD6Ixwv_X7oap8NrK-5KtWzC61WsXt_tMD6tSWwH07J1zjpi5ixJCBUO2h6zzPQeY_wcvoOYl45iXUdaPJNKD_Jg86x6C3lbpJ9Vu191I13-X30tBczfQToktfC60vXdK)
+由驻京记者组成的驻华外国记者协会（FCCC）1月31日发布报告称，由于当局的严重干预，在中共国的采访“面临前所未有的阻碍”。
 
-撰稿：文徐（DC）文凡（香草山）Nine Lee（DC）
+回应协会调查的记者中92%表示，他们被拒绝采访因为需要获得当局的许可。此外，88%的记者回答说他们在新疆维吾尔自治区访问期间被当局跟踪。
 
-美工：姐夫说说（雅典娜）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片1-36.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片2-39.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片3-35.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片4-36.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片5-35.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片6-36.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片7-26.png)
-*发布：Theodosia*
+传统上，媒体控制的基础是剥夺记者的采访机会。但最近记者们纷纷表示担忧，在采访中需慎之又慎，生怕触碰中共当局所谓的“法律红线”。
 
+2021年，六名记者因担心自身生命安全而被迫离开中共国。
+
+记者一向是社会观察的“第三只眼”，如今却在中共处处受限。能蒙住世人双眼，但真能左右了人心？！
+
+文字版原文：[驻华外国记者协会称中共当局严重阻碍媒体自由 – GNEWS](https://gnews.org/zh-hans/1938317/)
+
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
