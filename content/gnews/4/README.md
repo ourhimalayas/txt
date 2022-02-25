@@ -2,179 +2,40 @@
 ---
 
 
-## H-PAY上线后，打通了十二经与六脉，俄罗斯，乌克兰流通最大，第二是日本
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2061120/)
+## 中共陷塔西佗陷阱 锁链女人权灾难停不了
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2061197/)
 
-[https://gtv.org/video/id=621810091408ee3a03a462e4](https://gtv.org/video/id=621810091408ee3a03a462e4)
+作者：波士顿五月花 Frankie背靠背
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-25-at-7.25.00-AM-1.png)图片来源：互联网
+2月23日，江苏省委省政府调查组关于丰县生育八孩女子事件调查处理情况的通报出炉。调查认定，2022年1月27日，社交网络平台流传“丰县生育八孩女子”的相关视频，经核查，视频中涉事女子现户籍登记名为杨某侠，其丈夫为董某民，家住江苏省丰县欢口镇董集村（后并入李庄行政村）。通过DNA检验比对、查阅小花梅云南户籍底册和调查走访，认定杨某侠即小花梅，户籍登记姓名为小花梅，出生日期为1977年5月13日，云南省福贡县亚谷村人，同时认定杨某侠与李莹不是同一人。
 
-现在我们安卓版的H-pay已经上线了
-Ahora nuestra versión Android de H-pay ya está en línea
+针对“董某民、杨某侠结婚证照片上的女子与杨某侠不是同一人”的问题，公安机关调查发现，杨某侠近照系从抖音视频中截取，经修图后流传到网上，与实际容貌有差异。同时，受年龄增长造成的皮肤老化、毛发退化、脂肪组织液化以及牙齿缺失等因素影响，杨某侠容貌也发生了变化。[【1】](https://news.cctv.com/2022/02/23/ARTI98Iruo1QzZY9Yu71ftbT220223.shtml?spm=C96370.PPDB2vhvSivD.EJHwg9t6FrM7.1)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-25-at-7.29.52-AM-1.png)图片来自互联网
+从丰县、徐州到江苏省，编造故事，封锁事发地信息和交通，阻止外界进入事发地探寻事情真相，网络删帖，控制言论，开始释放各种消息企图转移公众视野，中共非法政府完全塔西佗陷阱。只要中共暴政下，不可能有合法公正的独立调查包括DNA取样检验鉴定等，只要有点常识的中国人都知道一切都是假的，中共控制下的调查机构办案荒唐和疯狂，如雷洋死。
 
-苹果商店过两天就是苹果的iOS HDO了
-iOS HDO de Apple estará en la Apple Store en dos días
+从不存在拐卖行为到承认拐卖，出生日期从1969年变更到1977年，假结婚证，编造一个大的谎言去掩盖上一个谎言。
 
-今天的H-pay的上线
-El lanzamiento de hoy de H-pay
+人口贩卖是中共黑金大生意。各级政府在人口贩卖中深度控制并参与，其黑暗力量不仅在中共国内，还在国际贩卖人口。美国国务院2017年发布年度贩卖人口报告指出中共国是贩卖人口最严重国家之一[【2】](https://www.bbc.com/zhongwen/simp/chinese-news-40426957)
 
-等于什么, 喜联储, 喜币被打通了这个七通六脉
-En qué consiste esto, la Reserva Federal de Himalaya y su moneda se han abierto
+人口买卖非法交易在暗网非常普遍，中共控制绝大多数比特币，而比特币78-80%被使用在暗网。中共在暗网的布局很深，王岐山曾经号称暗网之王，据郭先生爆料，王岐山在整个暗网占到了至少半壁江山。
 
-今天就像通了天的天梯一样
-Así como la escalera que dirige hacia el cielo
+阿姆斯特丹苹果专卖店持枪掳人案，嫌犯挟持了一名保加利亚籍男子作为人质，要求支付价值2亿欧元（约新台币64亿元）的加密货币。[【3】](https://www.rfi.fr/cn/%E9%98%BF%E5%A7%86%E6%96%AF%E7%89%B9%E4%B8%B9%E8%8B%B9%E6%9E%9C%E4%B8%93%E5%8D%96%E5%BA%97%E6%8C%81%E6%9E%AA%E6%8E%B3%E4%BA%BA%E6%A1%88-%E5%AB%8C%E7%8A%AF%E4%BC%A4%E9%87%8D%E4%B8%8D%E6%B2%BB)
 
-他绝对不是H-coin to the moon
-Esto absolutamente no es H-Coin to the moon
+中共暴政下宣传的”女性半边天“，实际把女性当生育工具。“锁链女”现年45岁，在身心都不健康的状态下，被强迫生下八孩，于1999年7月生下长子董某港（22岁时），后在2011年至2020年又生育7个孩子（34-43岁）。
 
-这回的H-Coin
-El H-Coin de esta vez
+郭先生大直播指出，“锁链女”不是今天才有，而是中共执政70多年一直没有停止过的悲剧。1989年中共国出版的《古老的罪恶——全国妇女大拐卖纪实》一书（作者为谢致红和贾鲁生），书中引述官方数据指，从1986年到1989年，人贩子从中国各地拐卖到徐州市（即八孩母亲所在市）所属6个县的妇女共48,100名。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-25-at-7.30.54-AM-1.png)图片来自互联网
+“锁链女”曾经被中共的毒浸淫和洗脑的国人当作商品、生育工具、性奴，而现在被中共控制，作为政治奴隶被使用。新中国联邦最重视教育，G|EDU使命空前重要，是灭共后通过教育清洗被中共70多年来渗入中国人骨髓的思想病毒。
 
-梦想成真谁都挡不了
-Nadie puede detener este sueño hecho realidad
+参考链接：[【1】江苏省委省政府调查组关于丰县生育八孩女子事件调查处理情况的通报](https://news.cctv.com/2022/02/23/ARTI98Iruo1QzZY9Yu71ftbT220223.shtml?spm=C96370.PPDB2vhvSivD.EJHwg9t6FrM7.1)
 
-你们知道背后的交易就是H-pay
-Ustedes saben que detrás de las transacciones es el H-pay
+[【2】美国国务院：中国是贩卖人口最严重国家之一](https://www.bbc.com/zhongwen/simp/chinese-news-40426957)
 
-就是上线, 我就有些话我是不能说的
-Es lo que decimos que está en línea, hay palabras que no puedo decir
+[【3】阿姆斯特丹苹果专卖店持枪掳人案 嫌犯伤重不治](https://www.rfi.fr/cn/阿姆斯特丹苹果专卖店持枪掳人案-嫌犯伤重不治)
 
-你知道共产党开出的天价
-Saben el precio altísimo que cobra el Partido Comunista
+* * *
 
-就包括现在要去参加冬奥会开幕式的
-Incluyendo los que ahora van a asistir a la ceremonia inaugural de Los Juegos Olímpicos de Invierno
-
-前三号人物
-Los tres primeros personajes
-
-在中国的北方的
-En el norte de China
-
-团队当中有俩人
-Hay dos personas dentro del grupo
-
-就在上星期
-En la semana pasada
-
-告诉我说你H-pay, 你确定你31号能上线吗
-Me dijo que el H-pay, ¿estás seguro que puede estar en línea el 31?
-
-我说你什么意思
-Le dije, qué quieres decir con eso
-
-他说俺国老大要去你们(中共)那开冬奥会
-Dijo que, el jefe de nuestro país va para allá (PCCh) a realizar el Juego Olímpico de Invierno
-
-开完冬奥会世界大变
-Luego del Juego, habrá un gran cambio en el mundo
-
-他说俄罗斯会被美国严重制裁
-Dijo que Rusia será severamente sancionada por Estados Unidos
-
-俄罗斯会国家启用人民币
-Rusia permitirá el uso de renminbi en el país
-
-他说我现在就把我的钱捣腾出去
-Dijo que gastaré mi dinero ahora
-
-我美国去不了, 欧洲我也去不了
-No podré ir a EE. UU ni Europa
-
-我去哪啊, Miles
-A dónde voy Miles
-
-就现在, 就你这一个兄弟了
-En este momento, solamente te tengo a ti como hermano
-
-他说就现在关键你那不能支付啊
-Y dijo que ahora lo más importante es que todavía H-pay no se puede realizar pagos
-
-我这每天还得跟这些人之间什么油啊, 气啊, 对价啊
-Yo todos los días tengo que tratar con esta gente sobre petróleo, gas y precios
-
-天大的数啊
-Es una gran cantidad
-
-他说我可以让一个HDO
-Él dijo que él puede hacer que un HDO
-
-代表一个亿
-Represente cien millones
-
-他说
-Él dijo
-
-我们已经完成了N笔交易
-Ya logramos incontables transacciones
-
-你没想到吧
-No lo habías pensado, cierto
-
-我们的喜币最大的流通一定是俄罗斯还有乌克兰
-La mayor circulación de nuestra moneda de Himalaya seguro estará en Rusia y Ucrania
-
-我们不想发战争的财
-No queremos hacer riqueza de la guerra
-
-但是没有一次人类的财富转移
-Pero no hay ni una sola transferencia de la riqueza humana
-
-没有一次人类货币金融系统诞生跟战争没关系
-No hay una sola vez donde el nacimiento del sistema financiero de la moneda humana no tenga relación con la guerra
-
-没有一次
-Ni una sola vez
-
-日本是第2个最大的HDO的市场
-Japón es el segundo mercado más grande de HDO
-
-你去看看日本接下来会接受H币吗
-Verás si seguidamente Japón aceptará la moneda de Himalaya
-
-H-Coin, H-Dollar会买啥, 吓死你们
-Con qué se puede comprar el H-Coin y el H-Dollar, ustedes se asustarán
-
-你想想他从初级
-Piensas que él desde lo más básico
-
-从一个模型
-Desde un modelo
-
-现在只是个模型, 在你桌子上的模型
-Ahora es solamente un modelo, un modelo que está en tu mesa
-
-他变成有发动机
-Él se convertirá en un motor
-
-有引擎, 有燃料
-Tiene un motor con combustible
-
-开始运行听到声音开始开
-Empieza a funcionarse y se escucha el sonido
-
-意味着什么
-Qué significa esto
-
-**原视频网址**：[https://gettr.com/post/ptm5bz4e10](https://gettr.com/post/ptm5bz4e10)
-
-日期：02/21/2022
-原视频标题：H-PAY上线后，打通了十二经与六脉，俄罗斯，乌克兰流通最大，第二是日本
-Tras el lanzamiento de H-pay, se han abierto los caminos, Rusia y Ucrania tendrán la mayor circulación, el segundo será Japón
-
-原视频日期：02/10/2022
-**原视频网址**：[https://gettr.com/post/ptm5bz4e10](https://gettr.com/post/ptm5bz4e10)
-任务编号：KC461（3717）
-视频时间段：0:00-02:19
-
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场-文新
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+*编辑&发布：Vicky*
 
  
 

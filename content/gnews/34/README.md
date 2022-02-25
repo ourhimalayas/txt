@@ -2,53 +2,36 @@
 ---
 
 
-## 一些人利用退货政策，用完就退
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2060804/)
+## 德国医疗保险有1100万用户：新冠疫苗的副作用远比政府报道的高得多
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2060857/)
 
-作者：Pat Foran
-翻译：Himasally
-![](https://assets.gnews.org/wp-content/uploads/2022/02/22_163U3P3.png)
-近期加拿大楼市依旧火热，有研究表明房屋进行专业的售前软装（home staging）之后，售价可以提高10%以上。近期一些家居装饰店表示，有一部分人利用店内的退货政策，在卖房之后就把商品退回店里。
+#### 翻译                    意大利达芬奇农场                        小白鸽       
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-24-alle-23.18.22.png)图片来源：eventiavversinews.it
+#### 
 
-在士嘉堡一家家装店工作的Sylvia Loannou表示，“这种事经常发生，在我们这里很常见。”
+德国一家大型健康保险供应商表示，他分析了近1100万人的新冠疫苗并发症的数据，并透露这些数据远远超过了卫生当局的报告。
 
-不少卖家会请来做房屋售前装饰的专业人士来让房子看起来处于最佳状态，以提高售价。这些专业人士会带来家具、艺术品及灯具等来让房屋“改头换面”，通常这类服务的收费也要数千元。
+根据该公司的一封信， 保险公司BKK ProVita得出的结论是， 该疫苗的副作用比德国联邦机构保罗•埃利希研究所(Paul-Ehrlich Institute) 之前的报告高出数倍。
 
-Loannou表示，一些房屋售前装饰师会到店里买东西，几周之后再拿回来退掉。而她的顾虑是，这么做会给店家带来麻烦和困扰，因为商家必须对这些退回的商品进行清洁和重新包装，而她的老板一分钱也赚不到。
+BKK 董事会成员Andreas Schöfbeck 告诉“Die Welt”报纸，这些数据是一个“危险信号”，并补充说：“ 确定的数字非常重要，迫切需要检查其合理性。”
 
-“他们到店里买东西的时候告诉我他们是房屋售前软装师（home stager）。一两周之后，他们就会回到店里退回商品，然后又买一些别的，” Loannou说道。
+这封由Schöfbeck撰写的信指出，BKK分析了1090万份保单持有人的医疗帐单数据， 发现在该数据中， 约有217，000人因疫苗副作用接受了治疗。 该公司指出， 总体而言， 在人口约8300万的德国， Paul-Ehrlich研究所在2021年报告了244，576例新冠疫苗接种副作用疑似病例。
 
-她还表示，一些挂牌出售的房子里摆设的灯具、桌子或其他物品都还挂着价格标签。
+他在信中写道：“ 我们公司获得的数据让我们有理由相信， 在接受新冠疫苗后， 疑似疫苗副作用病例的登记是不足的。”
 
-对于这种做法，房屋售前软装的业界人士称，虽然它不违法，但这属于不道德行为。
+Schöfbeck估计：“ 如果把这些数字放大，推算扩大到到整个德国人口，那么德国可能有两百五百万至三百万人因为接种了新冠疫苗产生了副作用而接受治疗。
 
-“我们认为这是不道德的，如果你仔细想想，其实算是一种偷窃，” 安省地产售前装饰协会（Ontario’s Real Estate Staging Association）主席Nicole Schenk表示。
+Schöfbeck随后得出结论， 根据他们的数据， 德国对“ 疫苗副作用的报道严重不足”。
 
-Schenk还表示，她确实知道这类事情正在发生，不过她也认为，真正专业的房屋装饰师是不会经常利用店内的规定来退货的。
+Nordkurier 报纸周三报道， BKK发出的另一封信表明， 德国各地报告的疫苗接种副作用比PaulEhrlich研究所报告的数量至少高出10倍。
 
-“我所认识的专业房屋装饰师没有人这么做，坦白说，我们太忙了，根本没有时间这样。我们会从自己的存货中来挑选商品以服务卖家，或者从其他渠道来租家居装饰品。”
+Schöfbeck 的信也被发送到德国疫苗接种常务委员会和德国医学学会。
 
-商家表示，这种做法就和把商店当成“衣柜”一样，用完再放回去。
+这些信件没有详细说明副作用的严重程度，也没有提供症状的细节或者是哪些疫苗引起了副作用。德国药品监管机构已批准辉瑞、阿斯利康、强生、诺瓦瓦克斯和莫德纳。
 
-安省地产售前装饰协会表示，行业内尚未对这种行为进行规管，也许只能由商家来看看是否需要修改退货政策了。
+原文链接：[https://www.eventiavversinews.it/assicurazione-sanitaria-tedesca-con-11-milioni-di-utenti-gli-effetti-collaterali-del-vaccino-covid-19-sono-molto-maggiori-di-q](https://www.eventiavversinews.it/assicurazione-sanitaria-tedesca-con-11-milioni-di-utenti-gli-effetti-collaterali-del-vaccino-covid-19-sono-molto-maggiori-di-q)
 
-地产售前装饰协会的北美地区CEO Shell Brodnax在声明中表示，该协会不支持这种行为。“事实上，如果真的有这类事情发生，一般只会出现在把房屋售前装饰当作兴趣的新人身上。专业人士不会这样用完就退，他们会买下用作库存，并反复使用多年。”
-
-来源：https://toronto.ctvnews.ca/unethical-some-home-stagers-buy-items-only-to-return-them-later-1.5790458
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+编辑、上传： Xiao  baige
 
  
 

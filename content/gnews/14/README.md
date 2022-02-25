@@ -2,16 +2,10 @@
 ---
 
 
-## 五月花简报（02/24/2022）
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2061036/)
+## 2/24/2022 文贵盖特：乌克兰阴云密布，所有战争都服务于极少数人的利益，而无辜的人们却沦为牺牲品
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2061069/)
 
-编辑：波士顿五月花—冲天一怒
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/E1AF4526-F8C4-409E-8E1B-C111AF17EF08.jpeg)
-
-*发布：思澈*
-
-
+秘密翻译组-北美组
 
  
 

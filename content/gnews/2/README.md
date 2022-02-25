@@ -2,11 +2,23 @@
 ---
 
 
-## 2/23/2022 文贵直播：普京用极小的成本便征服了全球的金融和经济，习太阳自以为能借此机会打台湾，但中国人却将不幸为此付出巨大代价
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2061153/)
+## 20220223郭文贵大直播 ：中共法官当庭强奸律师
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2061237/)
 
-秘密翻译组-北美组
+作者：东京樱花团小视频组
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/20220224-13-中共法官当庭强奸律师.png)
+
+
+
+
+
+校对：东京樱花团小视频组
+
+编辑发布：东京樱花团小视频组
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

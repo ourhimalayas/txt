@@ -2,36 +2,30 @@
 ---
 
 
-## 短视频：维族人控诉冬奥会是种族灭绝奥运会
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2060921/)
+## 纽约原油期货近8年来首次一度超过100美元每桶
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2060968/)
 
-翻译：George Yang
-校对：Lish
-字幕：向上James
-编辑：文泓
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image01-2.png)
-中国共产党从不尊重维族人，从不尊重维族文化，从不尊重维族的人权。所以我觉得这个奥运会是种族灭绝奥运会，这不是正常的奥运会。
+撰稿：东京樱花团/盖特第一批注册
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片1-52.jpg)图片来源
+在24日的纽约原油市场上，由于担心对乌克兰的军事入侵会使俄罗斯石油生产减少，原油期货价格大幅上涨。
 
-我失去了我的老公司和所有我在故土的生意，在这里从头开始。第一件事就是我要学英语去开启我在这个国家的新生活，2018年我开了我在华盛顿的第一家Dolan Uyghur餐厅。
+作为国际原油价格基准的WTI期货价格一度上升到每桶100美元的水平。
 
-这个冬奥会和1936年的德国奥运会一模一样，因为共产党在对维族人进行种族灭绝，残杀维族人消灭维族文化。如果我亲眼看这个奥运会，我可以看到我的兄弟姐妹们在我的故土，看到他们在监狱、在集中营和在廉价劳动力的工厂过着艰苦非人道的生活。所以我不能看这个奥运会
+原油价格的 “100美元时代 “从2011年持续到2014年中期，当时中东和北非的 “阿拉伯之春 “民主运动如火如荼。 然而，在页岩油产量增加的同时，特别是在美国，中国经济放缓，出现了供应过剩，石油市场在2014年下半年突然崩溃。
 
-我的兄弟跟我说了句，祝你好运，给你孩子们在美国好的教育。
+这是自2014年7月以来七年零七个月中的第一次。
 
-就这些，然后几个月后我兄弟第一次跟他老婆进了集中营，然后判了我兄弟10到20年的刑期，判给她老婆7年徒刑，没有人照顾他们的三个孩子，我妈妈照顾着三个孩子。
+在伦敦市场交易的北海布伦特原油期货达到了七年半的高点，每桶105美元。
 
-但这仅仅是一个家庭，在东塔克斯坦有数百万的人有同样的问题和遭遇，他们都被关进了集中营。
+美国是世界上最大的石油生产国，受俄罗斯石油出口停滞的影响比欧洲小，所以价格上涨的势头相对较弱。
 
-视频链接：[DC Uyghur restaurant owner: ‘This Olympic is genocide Olympics’ | Fox News](https://www.foxnews.com/world/dc-uyghur-restaurant-owner-this-olympic-is-genocide-olympics)
+高价格最终将对全球经济和石油需求产生不利影响。 然而，目前，对供应的担忧仍在推动油价上涨。
 
-发布：文泓
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+信息源：[NY原油市場 WTI先物価格 一時1バレル＝100ドル超 7年7か月ぶり](https://www3.nhk.or.jp/news/html/20220224/k10013500211000.html?utm_int=all_contents_just-in_001)
 
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

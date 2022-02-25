@@ -2,62 +2,179 @@
 ---
 
 
-## 新西兰财经G乐部2022年2月24日:财经新闻整理
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2061059/)
+## H-PAY上线后，打通了十二经与六脉，俄罗斯，乌克兰流通最大，第二是日本
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2061120/)
 
-采集整理：蚂蚁的城堡
+[https://gtv.org/video/id=621810091408ee3a03a462e4](https://gtv.org/video/id=621810091408ee3a03a462e4)
 
-**提纲：**
+现在我们安卓版的H-pay已经上线了
+Ahora nuestra versión Android de H-pay ya está en línea
 
-1、中国人寿：王滨因无法继续履行董事职务辞任董事长
+苹果商店过两天就是苹果的iOS HDO了
+iOS HDO de Apple estará en la Apple Store en dos días
 
-2、港股恒指大跌3.15%失守23000点，恒生科技指数重挫4%
+今天的H-pay的上线
+El lanzamiento de hoy de H-pay
 
-3、獐子岛控股股东数亿股权将被拍卖，公司或将易主
+等于什么, 喜联储, 喜币被打通了这个七通六脉
+En qué consiste esto, la Reserva Federal de Himalaya y su moneda se han abierto
 
-4、民生银行大连分行联保贷款骗贷3.56亿，四高管未尽职审查均获刑五年
+今天就像通了天的天梯一样
+Así como la escalera que dirige hacia el cielo
 
-5、报告：稳定币总供应量达到1800亿美元
+他绝对不是H-coin to the moon
+Esto absolutamente no es H-Coin to the moon
 
-**正文**
+这回的H-Coin
+El H-Coin de esta vez
 
-**1、中国人寿：王滨因无法继续履行董事职务辞任董事长**
-![img](https://media.gettr.com/group32/origin/2022/02/24/04/1beb4066-d2c9-8b86-f0ce-72147185e717/63a165c5e41362a24f8aa53b944c3d71_500x0.png)
-中国人寿2月23日发布公告称，公司董事会于2022年2月23日收到辞任函，王滨因无法继续履行董事职务，辞任公司董事长、执行董事职务，该辞任于同日起生效。今年1月8日，中共纪委国家监委网站发布消息，时任中国人寿保险公司党委书记、董事长王滨涉嫌严重违纪违法，正接受中央纪委国家监委纪律审查和监察调查。
+梦想成真谁都挡不了
+Nadie puede detener este sueño hecho realidad
 
-财经G评：郭文贵先生在2022年1月9日大直播节目中指出，王滨是王岐山手下最关键的将帅之一，其重要程度仅排在康典、 田国立、田惠宇之后。郭先生表示，王岐山的势力主要分布在中共国的金融方面。如果中共不动王滨、马明哲、董文标、范一飞等11个人，王岐山不会有事。而现在，在决定习（习近平）、王（王岐山）权力之争最关键的中共二十大之前，王滨被中纪委审查，意味着王岐山的命运已成定局。
+你们知道背后的交易就是H-pay
+Ustedes saben que detrás de las transacciones es el H-pay
 
-参考链接：[https://finance.sina.com.cn/wm/2022-02-23/doc-imcwipih4987153.shtml](https://finance.sina.com.cn/wm/2022-02-23/doc-imcwipih4987153.shtml)
+就是上线, 我就有些话我是不能说的
+Es lo que decimos que está en línea, hay palabras que no puedo decir
 
-**2、港股恒指大跌3.15%失守23000点，恒生科技指数重挫4%**
-![img](https://media.gettr.com/group30/origin/2022/02/24/04/10695ede-42c2-c0d3-9088-b54bb9a01d1a/5012582bde3c8e6672f57b205d8b1718.png)
-2月24日消息，美股三大期指持续下跌，标普500指数期货跌逾2%，纳指期货跌2.64%，道指期货跌2%。港股恒指跌幅不断扩大，截至发稿，恒指跌3.15%，失守23000点，报22916.99点，恒生科技指数重挫4%。微盟集团跌超8%，哔哩哔哩、阿里巴巴跌超7%，网易、京东、百度跌超5%。
+你知道共产党开出的天价
+Saben el precio altísimo que cobra el Partido Comunista
 
-参考链接：[https://finance.sina.com.cn/stock/hkstock/marketalerts/2022-02-24/doc-imcwipih5088037.shtml](https://finance.sina.com.cn/stock/hkstock/marketalerts/2022-02-24/doc-imcwipih5088037.shtml)
+就包括现在要去参加冬奥会开幕式的
+Incluyendo los que ahora van a asistir a la ceremonia inaugural de Los Juegos Olímpicos de Invierno
 
-**3、獐子岛控股股东数亿股权将被拍卖，公司或将易主**
-![img](https://media.gettr.com/group12/origin/2022/02/24/04/b55802ef-92aa-1ece-9f27-f0e609f54afc/c5e0558cf8f321ce01e87a1c3cfe46fd_500x0.png)
-2月23日晚，獐子岛发布公告称，控股股东长海县獐子岛投资发展中心所持1.09亿股股权将被公开拍卖。获悉其所持公司1.1亿股股权将于3月25日10时至3月26日10时止（延时的除外）在北京产权交易所网络司法拍卖平台上进行公开拍卖活动，起拍价为34291.03万元，保证金为3500万元。
+前三号人物
+Los tres primeros personajes
 
-参考链接：[https://finance.sina.com.cn/wm/2022-02-24/doc-imcwipih5041335.shtml](https://finance.sina.com.cn/wm/2022-02-24/doc-imcwipih5041335.shtml)
+在中国的北方的
+En el norte de China
 
-**4、民生银行大连分行联保贷款骗贷3.56亿，四高管未尽职审查均获刑五年**
-![img](https://media.gettr.com/group28/origin/2022/02/24/05/96fa1d7f-c15c-6dff-611b-6e42f8be835e/796f3b8587659c7f04e92fe140092006_500x0.png)
-近日，裁判文书网披露的一则文书显示，民生银行大连分行及其越秀支行的四名高管因未对联保贷款材料真实性进行审查，违法发放联保贷款3.56亿元，在部分贷款逾期后仍为借款人办理倒贷，造成巨额资金无法收回，四人以违法发放贷款罪被法院判刑。公开资料显示，联保贷是民生银行开发的标准化融资产品，是指民生银行为三户（含）以上相互熟悉、自愿组成联保体的企业提供的短期融资业务，授信担保方式为联保体成员为其他成员授信提供连带责任保证。
+团队当中有俩人
+Hay dos personas dentro del grupo
 
-财经G评：中共国银行最大的风险是监守自盗！民生银行北京航天桥大家还记得吗？监守自盗后让前台经理背锅！
+就在上星期
+En la semana pasada
 
-参考链接 [http://finance.sina.com.cn/jinrong/yh/2022-02-23/doc-imcwiwss2522840.shtml](http://finance.sina.com.cn/jinrong/yh/2022-02-23/doc-imcwiwss2522840.shtml)
+告诉我说你H-pay, 你确定你31号能上线吗
+Me dijo que el H-pay, ¿estás seguro que puede estar en línea el 31?
 
-**5、报告：稳定币总供应量达到1800亿美元**
+我说你什么意思
+Le dije, qué quieres decir con eso
 
-尽管整个加密行业处于看跌背景，但稳定币供应总量已达到 1800 亿美元，在过去30天内激增了95亿美元。抛开比特币 (BTC) 不谈，稳定币正成为人们关注的焦点。加密研究机构 Arcane Research 和 CryptoRank 证实，稳定币供应量达到了 1800 亿美元的里程碑。稳定币的增长继续超过其他市场，在过去 30 天内增长了 6%。在市场波动时期，稳定币可以提供价格稳定性，并由特定资产或算法提供支持。
+他说俺国老大要去你们(中共)那开冬奥会
+Dijo que, el jefe de nuestro país va para allá (PCCh) a realizar el Juego Olímpico de Invierno
 
-参考链接： [https://cointelegraphcn.com/news/total-stablecoin-supply-hits-180-billion-report](https://cointelegraphcn.com/news/total-stablecoin-supply-hits-180-billion-report)
+开完冬奥会世界大变
+Luego del Juego, habrá un gran cambio en el mundo
 
-审核校对：蚂蚁的城堡（一审）、文勇（二审）
+他说俄罗斯会被美国严重制裁
+Dijo que Rusia será severamente sancionada por Estados Unidos
 
-上传排版：文勇
+俄罗斯会国家启用人民币
+Rusia permitirá el uso de renminbi en el país
+
+他说我现在就把我的钱捣腾出去
+Dijo que gastaré mi dinero ahora
+
+我美国去不了, 欧洲我也去不了
+No podré ir a EE. UU ni Europa
+
+我去哪啊, Miles
+A dónde voy Miles
+
+就现在, 就你这一个兄弟了
+En este momento, solamente te tengo a ti como hermano
+
+他说就现在关键你那不能支付啊
+Y dijo que ahora lo más importante es que todavía H-pay no se puede realizar pagos
+
+我这每天还得跟这些人之间什么油啊, 气啊, 对价啊
+Yo todos los días tengo que tratar con esta gente sobre petróleo, gas y precios
+
+天大的数啊
+Es una gran cantidad
+
+他说我可以让一个HDO
+Él dijo que él puede hacer que un HDO
+
+代表一个亿
+Represente cien millones
+
+他说
+Él dijo
+
+我们已经完成了N笔交易
+Ya logramos incontables transacciones
+
+你没想到吧
+No lo habías pensado, cierto
+
+我们的喜币最大的流通一定是俄罗斯还有乌克兰
+La mayor circulación de nuestra moneda de Himalaya seguro estará en Rusia y Ucrania
+
+我们不想发战争的财
+No queremos hacer riqueza de la guerra
+
+但是没有一次人类的财富转移
+Pero no hay ni una sola transferencia de la riqueza humana
+
+没有一次人类货币金融系统诞生跟战争没关系
+No hay una sola vez donde el nacimiento del sistema financiero de la moneda humana no tenga relación con la guerra
+
+没有一次
+Ni una sola vez
+
+日本是第2个最大的HDO的市场
+Japón es el segundo mercado más grande de HDO
+
+你去看看日本接下来会接受H币吗
+Verás si seguidamente Japón aceptará la moneda de Himalaya
+
+H-Coin, H-Dollar会买啥, 吓死你们
+Con qué se puede comprar el H-Coin y el H-Dollar, ustedes se asustarán
+
+你想想他从初级
+Piensas que él desde lo más básico
+
+从一个模型
+Desde un modelo
+
+现在只是个模型, 在你桌子上的模型
+Ahora es solamente un modelo, un modelo que está en tu mesa
+
+他变成有发动机
+Él se convertirá en un motor
+
+有引擎, 有燃料
+Tiene un motor con combustible
+
+开始运行听到声音开始开
+Empieza a funcionarse y se escucha el sonido
+
+意味着什么
+Qué significa esto
+
+**原视频网址**：[https://gettr.com/post/ptm5bz4e10](https://gettr.com/post/ptm5bz4e10)
+
+日期：02/21/2022
+原视频标题：H-PAY上线后，打通了十二经与六脉，俄罗斯，乌克兰流通最大，第二是日本
+Tras el lanzamiento de H-pay, se han abierto los caminos, Rusia y Ucrania tendrán la mayor circulación, el segundo será Japón
+
+原视频日期：02/10/2022
+**原视频网址**：[https://gettr.com/post/ptm5bz4e10](https://gettr.com/post/ptm5bz4e10)
+任务编号：KC461（3717）
+视频时间段：0:00-02:19
+
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-文新
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

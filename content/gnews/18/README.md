@@ -2,31 +2,34 @@
 ---
 
 
-## 普京再次暗示将使用核武器
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2061009/)
+## 短视频：夸大新冠病例数量，推广致命药物和“疫苗”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2061045/)
 
-撰稿：东京樱花团/黑猫
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片4-7.jpg)[图片来源](https://www.google.com.hk/search?q=Putin+nuclear+weapons&amp;newwindow=1&amp;sxsrf=APq-WBt62Cnkn6Me8106D7J2o0Uyr1lIBw:1645714781043&amp;source=lnms&amp;tbm=isch&amp;sa=X&amp;ved=2ahUKEwjHwrKnzZj2AhWqy4sBHachDYoQ_AUoAXoECAEQAw&amp;biw=1707&amp;bih=695&amp;dpr=1.13#imgrc=pq4TomQUAfDR6M)
-俄罗斯总统普京在莫斯科时间2月24日凌晨，”以保护民众”为理由，宣布他已决定在乌克兰东部开展特别军事行动。
+翻译：Frank
+校对：枳实
+字幕：小强
+编辑：文泓
 
-在一次电视讲话中他说，”任何试图从外部进行干预的人都将面临历史上前所未有的巨大后果”，并重申他准备使用核武器。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image01-3.png)图片来源：视频截屏
 
-「每日邮报」在提到这次演讲时报道说，”普京向拜登和北约发出令人毛骨悚然的警告”。
 
-同一天，美国新闻网站Politico Europe以 “普京：使用核武器的选择 “为题报道说，”普京正在把核武器推向前台，无视国际法，增加危险。 它警告说：”把我们的希望和信任寄托在少数好战的领导人身上，并不是防止核灾难危机的明确战略。
+在看了所有的东西，我们今晚听到的所有证据，包括你自己的证据，这是不是一个公平的结论？
 
-2月7日，在与法国总统马克龙的会晤中普京说：”不要忘记俄罗斯是一个核所有国家”。 他在提到使用核武器的可能性时说：”在这场战争中没有赢家”。
+第一，大流行病是一种假象，而这个假象是由一个错误的PCR测试造成的；第二，他们利用这种假象来使用致命的药物；然后第三，让人们相信这是病毒造成的；然后第四，使用疫苗，而它们与瑞德西韦等药物同样致命。
 
-2月19日，俄罗斯进行了一次大规模的洲际弹道导弹（ICBM）和高超音速巡航导弹的发射演习，这两枚导弹都能携带核弹头，并宣布 “所有导弹都击中了目标。
+这绝对是假象。但是，不能低估其中的腐败。皮埃尔·科里博士一直在说，这是一个不停地制造死亡和伤害的明显腐败企图。核酸检测不能确定你是否有新冠，或任何呼吸道病毒，这是一个有缺陷的测试，错误的循环次数的设置，其目的就是夸大新冠病毒感染的病例数量。
 
-信息来源
+2020年3月，我们的美国疾病控制与预防中心(CDC)向全国各地的医院发布了文件，托马斯·伦茨，就此事提起了诉讼，文件中说从2020年3月开始，所有医院，病人就诊时，如果你测试他们的甲型或乙型流感是阳性的，但他们测试肺炎是阴性的，新冠的核酸检测也是阴性的。他们自己的文件中就是这么说的，如果你查看病人的登记表，看看他们的家庭地址。如果在他的城市，媒体报道过有新冠的阳性病例，那么你就可以把这个病例称为新冠的阳性病例，记录在案，并且会因为这个诊断而给你20%的额外津贴，而非根据测试结果诊断为流感。然后他们对肺炎也做了同样的事情。
 
-[プーチン大統領、核兵器の行使を再び示唆「邪魔する者は歴史上で類を見ないほど大きな結果に直面するだろう」](https://news.yahoo.co.jp/articles/8bc38fc1a57cfa230c56bcb8854876a252ff37c3/images/000)
+视频链接：[The Vigilant Fox 🦊 在 Twitter: “Dr. Bryan Ardis explains the “illusion” of the current world sickness, in which doctors are incentivized to make COVID diagnoses even if patients don’t test positive. https://t.co/efwepl9Hha” / Twitter](https://twitter.com/vigilantfox/status/1493328770039783424?s=21)
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
-
+发布：文泓
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

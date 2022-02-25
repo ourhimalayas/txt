@@ -2,22 +2,22 @@
 ---
 
 
-## 乌俄断交 乌总统号召人民保卫国家
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2061024/)
+## 在纽约，有低收入者为了现金奖励卡去打了5、6次疫苗，但是政府却在发空卡，因为钱被挪用了
+` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/2061064/)
 
-撰稿：东京樱花团/立正道
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片5-6.jpg)[图片来源](https://www.reuters.com/world/europe/ukraine-president-confirms-attendance-munich-conference-amid-war-jitters-2022-02-19/)
-据路透社报道，乌克兰总统泽连斯基24日表示，在俄罗斯开始袭击乌克兰后，他已与俄罗斯决裂。
+#### 加拿大温哥华扬帆农场 视频组
 
-泽伦斯基总统表示，乌克兰政府将向人民提供武器，进行国防，保卫自己国家的土地。他还呼吁俄罗斯人民游行抗议战争的开始。
+听写：蓝天梦灵
+翻译：维京商人
+校对：仙姑
+字幕：路仁
 
-信息来源：
+2022年1月27日在ProjectVeritas的一期节目中：
 
-[ウクライナ大統領、ロシアと断交…国民に国土防衛求め武器供与へ](https://news.yahoo.co.jp/articles/119b75aa53c141d87d349537226a25faa8702401)
+我们向您展示了一段令人震惊的视频，该视频显示许多儿童接种了错误的冠状病毒疫苗混合物，这很明显是因为政府的疏忽导致这种情况发生的，我们将向您展示这个故事中更令人不安的细节，那些低收入和无家可归者为了获得经济奖励而多次接种疫苗。
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+编辑/发文：Kent
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
