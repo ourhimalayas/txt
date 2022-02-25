@@ -2,22 +2,20 @@
 ---
 
 
-## 英国议员呼吁对俄罗斯加大制裁，警示中共
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2063522/)
+## 台湾谴责俄罗斯，加强防护应对中共威胁
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2063523/)
 
-作者：纽约磐石农场 – 在远方
+作者：纽约香草山 – Naughty(文行)
 ![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
-当地时间2月22日，英国宣布制裁5家俄罗斯银行，以及3名与普京有密切联系的富豪，以此应对21日普京下令入侵乌克兰之举。
+台湾总统蔡英文于2月23日表示，谴责俄罗斯侵犯乌克兰主权，并呼吁以和平方式解决争端。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/6-42.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/7-37.jpg)
 
-英国首相约翰逊表示，克里姆林宫正在为全面入侵乌克兰做准备，俄罗斯正朝向孤立状态前进，全世界必须警惕普京的接下来的行动。
-
-此外，曾任保守党党魁的英国国会议员史密斯表示，针对俄罗斯入侵乌克兰，中共密切关注着西方的反应，而加大对俄罗斯的制裁，警示中共，以防中共对台湾做出相应的举动。
+在密切关注俄乌局势的同时，蔡英文总统要求所有政府机构警惕中共，企图利用乌克兰局势影响台湾舆论的潜在行动，并要求政府为乌克兰局势对全球和国内经济的潜在短期和长期影响做好准备，并制定计划以确保战略物资供应，稳定商品价格和金融市场。她还指示国家安全部门和武装部队，加强对台海局势的监测，并继续完善防务准备工作。
 
 参考链接：
 
-- [英國制裁俄羅斯5銀行3大亨 議員要求加大懲罰護台](https://cn.rti.org.tw/news/view/id/2125253)
+- [Taiwan condemns Russia for violation of Ukraine’s sovereignty](https://focustaiwan.tw/politics/202202230009)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)

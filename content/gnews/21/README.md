@@ -2,31 +2,33 @@
 ---
 
 
-## 拜登称将与伙伴合作释放更多石油储备
-` 全球G系列咨服群` [轉載自GNews](https://gnews.org/zh-hans/2063292/)
+## 消息人士：欧盟暂时不太可能切断俄罗斯的SWIFT
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2063318/)
 
-作者：背靠背
+编译：wenwu
 
-2022年2月24日，路透社报道美国总统乔·拜登周四表示，美国正在与其他国家合作，共同从全球战略原油储备中释放更多石油，一位了解谈判情况的消息人士称，该计划已列入“早期阶段。”【1】
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2348.png)
-拜登政府在 2 月 22 日表示，由于俄罗斯和乌克兰的紧张局势使油价保持在 90 美元/桶以上，因此他正在全球协调释放原油库存。同日，国际能源署表示，成员国“随时准备采取集体行动，确保全球石油市场供应充足”。
-截至 2021 年底，IEA 成员持有的石油总库存接近 41.6 亿桶，其中政府持有的 15 亿桶作为紧急储备。世界最大石油消费国集团要求成员在政府或商业储存中保留 90 天的净进口。
-美国 SPR为 2002 年 9 月以来的最低水平，截至 2022年2 月 11 日， 持有 5.848 亿桶【2】
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2350-edited.png)finance.yahoo.com
 
-俄罗斯总统弗拉基米尔·普京2月24日向俄罗斯民众发表紧急电视讲话宣布决定在顿巴斯开展特别军事行动。国家油价大涨，纽约商品期货交易所原油期货价格时隔8年突破100美元/桶，随后下跌当天低点价格91.53美元/桶左右。
+几位欧盟消息人士表示，欧盟在现阶段不太可能采取措施切断俄罗斯在 SWIFT 全球银行间支付系统中的通道，因为欧盟正在制定针对莫斯科针对乌克兰行动的新一揽子制裁措施。
 
-黄金，原油等大宗商品过山车般的升降中，多少人破产。郭先生直播指出，这场战争游戏，战争金融，战争经济分分钟都在改变世界。
+波罗的海国家曾经被莫斯科统治，但现在是北约和欧盟的成员，这些国家的外交部长周四（24日）呼吁阻止俄罗斯进入 SWIFT。
 
-参考链接：
+其他欧盟成员国不愿意采取这样的行动，因为虽然这将严重打击俄罗斯银行，但这将使欧洲债权人很难拿回他们的钱，而且俄罗斯无论如何都在建立一个替代的支付系统。
 
-【1】[拜登说美国，合作伙伴致力于释放全球石油储备](https://www.reuters.com/business/energy/us-working-global-release-oil-reserves-plan-is-early-stages-source-2022-02-24/)
+国际清算银行（BIS）的数据显示，在外国银行对俄罗斯近 300 亿美元的风险敞口中，欧洲贷款人占据了绝大部分份额。
 
-【2】[White House again contemplates SPR release as oil prices stay above $90/b](https://www.spglobal.com/platts/en/market-insights/latest-news/oil/022322-white-house-again-contemplates-spr-release-as-oil-prices-stay-above-90b)
+总部设在比利时的 SWIFT 是一个被银行广泛用于发送和接收汇款指令或信息的消息网络，由美国、日本和欧洲的中央银行监督。
+
+（文章仅代表作者观点与GNEWS无关）
+
+素材来源：[finance.yahoo.com] [EU unlikely to cut Russia off SWIFT for now, sources say](https://finance.yahoo.com/news/eu-unlikely-cut-russia-off-095732904.html?guccounter=1)
 
 * * *
 
-素材整理&编辑&发布：背靠背
-
+审核：文乐
+校对：信心满满
+发布：花羽
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-4.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
