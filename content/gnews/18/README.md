@@ -2,179 +2,49 @@
 ---
 
 
-## H-PAY上线后，打通了十二经与六脉，俄罗斯，乌克兰流通最大，第二是日本
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2061120/)
+## 锁链梦 &#8212; 中共摧残下的凄惨女人花
+` zuzu` [轉載自GNews](https://gnews.org/zh-hans/2061231/)
 
-[https://gtv.org/video/id=621810091408ee3a03a462e4](https://gtv.org/video/id=621810091408ee3a03a462e4)
+**作者：英国伦敦喜庄园 文名**
 
-现在我们安卓版的H-pay已经上线了
-Ahora nuestra versión Android de H-pay ya está en línea
+23日七哥大直播中哼了两句新歌“锁链梦”的歌词，当场我就跟着落泪了。
 
-苹果商店过两天就是苹果的iOS HDO了
-iOS HDO de Apple estará en la Apple Store en dos días
+新中国联邦的音乐大师们真的太顶了。继上次七哥连续三首现场live飙歌，这次又要创作出一首能震惊世界的歌曲，无比期待！尤其是七哥说的唐平老师演绎的被压抑之下的呐喊，估计能把战友们的眼泪榨干。
 
-今天的H-pay的上线
-El lanzamiento de hoy de H-pay
+无奈新歌还不到发布的时候，我也只能找来梅艳芳版的《女人花》预习一下解馋，没想到找来一听，又是哭得稀里哗啦。只能说《锁链梦》的选题太狠了，稳准狠。战友们可以先看我试水拼凑的剪辑来体会一下这其中的矛盾和情感：
 
-等于什么, 喜联储, 喜币被打通了这个七通六脉
-En qué consiste esto, la Reserva Federal de Himalaya y su moneda se han abierto
+[https://gettr.com/post/pwn3ho3673](https://gettr.com/post/pwn3ho3673)
 
-今天就像通了天的天梯一样
-Así como la escalera que dirige hacia el cielo
+*《女人花》歌词描述了多梦的季节，少女怀春，她在默默地等待着自己的梦中情人来带领她，启发她走出蒙昧，走向成熟。可是这些事又不能对人明言，更不好主动。她的那种渴望之情是多么强烈啊。“我怯怯地等候/有心的人来入梦”“只盼望/有一双温柔手/能抚慰/我内心的寂寞”，小小年纪，就已经饱尝了“寂寞”的苦味。*
 
-他绝对不是H-coin to the moon
-Esto absolutamente no es H-Coin to the moon
+本是诉说女性内心相思的音乐，由于锁链女的主题，却突然变得无比凄凉，风中满是她们对命运的控诉。曾经她们也是天真烂漫的年纪，也会有充满回忆的青春，也会碰上她的他，也会像我们一样结婚生子憧憬未来。这些本该去追求爱情和幸福的人啊，却被一道铁索拴住，一锁几十年，每日遭受身心的折磨。心中的光明，早已消逝不见。当被人们发现的时候，最好的年华已不再，人生只求解脱，发出灵魂感叹：这世界不要俺了！
 
-这回的H-Coin
-El H-Coin de esta vez
+这是生在中国的不幸。这不幸应该怪罪于人贩子一人吗？不应该。犯罪的是这个吃人的社会，这个中共一手培养出来的吃人社会。邪恶的计划生育强行打破了人口比例的自然平衡，导致大量女婴被杀害，人为创造了一个底层男性无法满足性欲的畸形社会。贫穷和闭塞使得这些男人根本无力经正常的途径繁衍后代，于是这样一个庞大的买方需求，再加上中共视人民为草芥以及贪赃枉法的施政纲领庇护之下，一个由人贩子、买家、当地政府组成的全产业系统性犯罪链条产生了。我们不知这个恐怖的大口每年要吞下多少人，我只知道，所有中国人的父母心中都知道得很清楚，孩子是不可以自己一个人在外面玩的，上下学都是必须有大人接送的。直到今天，小到县城大到北上广。人人心里有数。
 
-梦想成真谁都挡不了
-Nadie puede detener este sueño hecho realidad
+生而为人，对不起了。中共还在的每一天，我们都无法真正地解救这些在地狱煎熬的女人花。因为中共的邪恶机器永远在为罪恶充当保护伞。关于锁链女的一切已经随着江苏省政府的第五次通报坚决地盖棺定论了。整个村子一夜之间被铁皮与外界隔离；村口以疫情为由设上层层关卡；锁链女本人被关在精神病院强制治疗。这无不显示了中共镇压社会不稳定因素的坚定决心。
 
-你们知道背后的交易就是H-pay
-Ustedes saben que detrás de las transacciones es el H-pay
+如文贵先生所说，我们没办法救出锁链女，唯一能解救她们脱离苦海的方法，就是灭共！锁链下的同胞兄弟姐妹们，请一定要活着等到解放的那一天啊！
 
-就是上线, 我就有些话我是不能说的
-Es lo que decimos que está en línea, hay palabras que no puedo decir
+![](https://assets.gnews.org/wp-content/uploads/2022/02/4a67ac16f949a6f043121d3cc1cbf40d.jpg)圖片源自網絡
+![](https://assets.gnews.org/wp-content/uploads/2022/02/6083aab16a2b32026505a09b2cf8e612.png)
+【文章仅代表作者观点】
 
-你知道共产党开出的天价
-Saben el precio altísimo que cobra el Partido Comunista
+【参考资料】
+[➥2004十大传唱金曲–《女人花》](https://news.sohu.com/s2004/7101/s223327870.shtml)
+[➥鎖鏈女所在村被圍閉](https://gnews.org/zh-hant/2034555/)
 
-就包括现在要去参加冬奥会开幕式的
-Incluyendo los que ahora van a asistir a la ceremonia inaugural de Los Juegos Olímpicos de Invierno
-
-前三号人物
-Los tres primeros personajes
-
-在中国的北方的
-En el norte de China
-
-团队当中有俩人
-Hay dos personas dentro del grupo
-
-就在上星期
-En la semana pasada
-
-告诉我说你H-pay, 你确定你31号能上线吗
-Me dijo que el H-pay, ¿estás seguro que puede estar en línea el 31?
-
-我说你什么意思
-Le dije, qué quieres decir con eso
-
-他说俺国老大要去你们(中共)那开冬奥会
-Dijo que, el jefe de nuestro país va para allá (PCCh) a realizar el Juego Olímpico de Invierno
-
-开完冬奥会世界大变
-Luego del Juego, habrá un gran cambio en el mundo
-
-他说俄罗斯会被美国严重制裁
-Dijo que Rusia será severamente sancionada por Estados Unidos
-
-俄罗斯会国家启用人民币
-Rusia permitirá el uso de renminbi en el país
-
-他说我现在就把我的钱捣腾出去
-Dijo que gastaré mi dinero ahora
-
-我美国去不了, 欧洲我也去不了
-No podré ir a EE. UU ni Europa
-
-我去哪啊, Miles
-A dónde voy Miles
-
-就现在, 就你这一个兄弟了
-En este momento, solamente te tengo a ti como hermano
-
-他说就现在关键你那不能支付啊
-Y dijo que ahora lo más importante es que todavía H-pay no se puede realizar pagos
-
-我这每天还得跟这些人之间什么油啊, 气啊, 对价啊
-Yo todos los días tengo que tratar con esta gente sobre petróleo, gas y precios
-
-天大的数啊
-Es una gran cantidad
-
-他说我可以让一个HDO
-Él dijo que él puede hacer que un HDO
-
-代表一个亿
-Represente cien millones
-
-他说
-Él dijo
-
-我们已经完成了N笔交易
-Ya logramos incontables transacciones
-
-你没想到吧
-No lo habías pensado, cierto
-
-我们的喜币最大的流通一定是俄罗斯还有乌克兰
-La mayor circulación de nuestra moneda de Himalaya seguro estará en Rusia y Ucrania
-
-我们不想发战争的财
-No queremos hacer riqueza de la guerra
-
-但是没有一次人类的财富转移
-Pero no hay ni una sola transferencia de la riqueza humana
-
-没有一次人类货币金融系统诞生跟战争没关系
-No hay una sola vez donde el nacimiento del sistema financiero de la moneda humana no tenga relación con la guerra
-
-没有一次
-Ni una sola vez
-
-日本是第2个最大的HDO的市场
-Japón es el segundo mercado más grande de HDO
-
-你去看看日本接下来会接受H币吗
-Verás si seguidamente Japón aceptará la moneda de Himalaya
-
-H-Coin, H-Dollar会买啥, 吓死你们
-Con qué se puede comprar el H-Coin y el H-Dollar, ustedes se asustarán
-
-你想想他从初级
-Piensas que él desde lo más básico
-
-从一个模型
-Desde un modelo
-
-现在只是个模型, 在你桌子上的模型
-Ahora es solamente un modelo, un modelo que está en tu mesa
-
-他变成有发动机
-Él se convertirá en un motor
-
-有引擎, 有燃料
-Tiene un motor con combustible
-
-开始运行听到声音开始开
-Empieza a funcionarse y se escucha el sonido
-
-意味着什么
-Qué significa esto
-
-**原视频网址**：[https://gettr.com/post/ptm5bz4e10](https://gettr.com/post/ptm5bz4e10)
-
-日期：02/21/2022
-原视频标题：H-PAY上线后，打通了十二经与六脉，俄罗斯，乌克兰流通最大，第二是日本
-Tras el lanzamiento de H-pay, se han abierto los caminos, Rusia y Ucrania tendrán la mayor circulación, el segundo será Japón
-
-原视频日期：02/10/2022
-**原视频网址**：[https://gettr.com/post/ptm5bz4e10](https://gettr.com/post/ptm5bz4e10)
-任务编号：KC461（3717）
-视频时间段：0:00-02:19
-
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场-文新
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[【文名作品集】](https://gnews.org/zh-hans/author/zuzu/)
+[➥美国大选中Q预言现象的反思](https://gnews.org/zh-hans/804872/)
+[➥中共妖塔以假乱真的控心术](https://gnews.org/zh-hans/881662/)
+[➥打死不如打伤-浅论现代超限生化战](https://gnews.org/zh-hans/947979/)
+[➥新中国联邦人将受到全世界最大的尊敬](https://gnews.org/zh-hans/1203395/)
+[➥马拉松都能冻死人，冬奥会还是别办了吧](https://gnews.org/zh-hans/1269660/)
+[➥九层妖塔之磁力疫苗](https://gnews.org/zh-hans/1352162/)
+[➥盖特首发大捷，堪比以色列建国](https://gnews.org/zh-hans/1372506/)
+[➥盖特是互联网的废奴运动](https://gnews.org/zh-hans/1441238/)
+[➥磁力疫苗是来自九层妖塔的谣言](https://gnews.org/zh-hans/1469891/)
+[➥给岁月以文明—文贵先生要建立什么？](https://gnews.org/zh-hans/1496422/)
+[➥人类基因多样性已无必要，故而才有“大重启”](https://gnews.org/zh-hans/1498457/)
 
  
 

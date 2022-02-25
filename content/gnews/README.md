@@ -15,68 +15,68 @@
 
 ---
 
-### [樱花FM|中日财经爆:多名高管离职 小米虎年以裁员10%开局](/content/gnews/1/README.md)
+### [樱花FM|郭文贵先生2022年2月15日盖特视频（9分28秒）全文字版](/content/gnews/1/README.md)
  ` 樱花FM`
 
-### [樱花FM|中日财经爆:世茂集团欲22亿出售上海深坑酒店还债](/content/gnews/2/README.md)
+### [樱花FM|伊说:请给我们一个打疫苗的理由](/content/gnews/2/README.md)
  ` 樱花FM`
 
-### [乌克兰议员哈丽娜在接受CBS新闻采访时泣不成声：请拯救我们的人民，今晚可能有数百人会被杀害。&#8221;](/content/gnews/3/README.md)
- ` 加拿大温哥华扬帆农场视频组`
+### [樱花FM|中日财经爆:俄罗斯宣布部分撤军后纽约原油期货下跌](/content/gnews/3/README.md)
+ ` 樱花FM`
 
-### [病毒真相：他们不停的说你只是失去了一点点自由，而这将持续直到你一无有](/content/gnews/4/README.md)
- ` 加拿大温哥华扬帆农场视频组`
+### [樱花FM|中日财经爆:美国SEC正在调查币安与赵长鹏的两家关联公司](/content/gnews/4/README.md)
+ ` 樱花FM`
 
-### [有声|俄罗斯承认乌东独立并派军队进驻](/content/gnews/5/README.md)
+### [樱花FM|中日财经爆:多名高管离职 小米虎年以裁员10%开局](/content/gnews/5/README.md)
+ ` 樱花FM`
+
+### [拜登说：既然普京选择了这场战争，那他的国家将承担后果！](/content/gnews/6/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [文贵先生紧急直播 2022/02/24](/content/gnews/7/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [樱花FM|中日财经爆:世茂集团欲22亿出售上海深坑酒店还债](/content/gnews/8/README.md)
+ ` 樱花FM`
+
+### [有声|郭文贵担忧：若台海开战，辽宁或将成为重灾区](/content/gnews/9/README.md)
  ` MOSREC`
 
-### [工薪阶层的英雄](/content/gnews/6/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [乌克兰议员哈丽娜在接受CBS新闻采访时泣不成声：请拯救我们的人民，今晚可能有数百人会被杀害。&#8221;](/content/gnews/10/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
 
-### [20220223郭文贵大直播 ：中共法官当庭强奸律师](/content/gnews/7/README.md)
- ` Tokyo Sakura Video Group`
-
-### [有声|欧盟理事会主席以环保为由继续与中共勾兑](/content/gnews/8/README.md)
- ` MOSREC`
-
-### [20220223郭文贵大直播 ：中共法官当庭强奸律师](/content/gnews/9/README.md)
- ` Tokyo Sakura Video Group`
-
-### [锁链梦 &#8212; 中共摧残下的凄惨女人花](/content/gnews/10/README.md)
- ` zuzu`
-
-### [七哥谈中共军事基地](/content/gnews/11/README.md)
- ` MG FARM`
-
-### [中共陷塔西佗陷阱 锁链女人权灾难停不了](/content/gnews/12/README.md)
- ` 波士顿五月花农场金融部`
-
-### [七哥说“导弹从来不在乎眼泪”](/content/gnews/13/README.md)
- ` MG FARM`
-
-### [七哥呼吁呆在军事基地周围的赶快跑](/content/gnews/14/README.md)
- ` MG FARM`
-
-### [2/23/2022 文贵直播：普京用极小的成本便征服了全球的金融和经济，习太阳自以为能借此机会打台湾，但中国人却将不幸为此付出巨大代价](/content/gnews/15/README.md)
- ` 秘密翻译组-北美组`
-
-### [短视频：贿赂医院做出虚假新冠诊断，从而推广致命药物](/content/gnews/16/README.md)
+### [对中国农村沦陷的思索](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2/23/2022 文贵直播：普京在乌克兰玩弄的招数将最终将导致欧美以中共支持俄罗斯为理由制裁中共国](/content/gnews/17/README.md)
- ` 秘密翻译组-北美组`
+### [病毒真相：他们不停的说你只是失去了一点点自由，而这将持续直到你一无有](/content/gnews/12/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
 
-### [H-PAY上线后，打通了十二经与六脉，俄罗斯，乌克兰流通最大，第二是日本](/content/gnews/18/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [暴力只会招致更多的暴力！](/content/gnews/19/README.md)
- ` tongwandou`
-
-### [有声|外媒发现辉瑞与中共军方存在某种可疑的紧密合作关系](/content/gnews/20/README.md)
+### [有声|俄罗斯承认乌东独立并派军队进驻](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [在纽约，有低收入者为了现金奖励卡去打了5、6次疫苗，但是政府却在发空卡，因为钱被挪用了](/content/gnews/21/README.md)
- ` 加拿大温哥华扬帆农场视频组`
+### [工薪阶层的英雄](/content/gnews/14/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [20220223郭文贵大直播 ：中共法官当庭强奸律师](/content/gnews/15/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [有声|欧盟理事会主席以环保为由继续与中共勾兑](/content/gnews/16/README.md)
+ ` MOSREC`
+
+### [20220223郭文贵大直播 ：中共法官当庭强奸律师](/content/gnews/17/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [锁链梦 &#8212; 中共摧残下的凄惨女人花](/content/gnews/18/README.md)
+ ` zuzu`
+
+### [七哥谈中共军事基地](/content/gnews/19/README.md)
+ ` MG FARM`
+
+### [短视频：贿赂医院做出虚假新冠诊断，从而推广致命药物](/content/gnews/20/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [有声|外媒发现辉瑞与中共军方存在某种可疑的紧密合作关系](/content/gnews/21/README.md)
+ ` MOSREC`
 
 ### [新西兰财经G乐部2022年2月24日:财经新闻整理](/content/gnews/22/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
@@ -93,41 +93,41 @@
 ### [五月花简报（02/24/2022）](/content/gnews/26/README.md)
  ` mayflowertranslate`
 
-### [乌俄断交 乌总统号召人民保卫国家](/content/gnews/27/README.md)
+### [这个世界需要我们](/content/gnews/27/README.md)
+ ` 雅典娜GNotes`
+
+### [乌俄断交 乌总统号召人民保卫国家](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [普京再次暗示将使用核武器](/content/gnews/28/README.md)
+### [普京再次暗示将使用核武器](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆┃日本外相会见英国贸易大臣 协商TPP关税问题](/content/gnews/29/README.md)
+### [中日财经爆┃日本外相会见英国贸易大臣 协商TPP关税问题](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [纽约原油期货近8年来首次一度超过100美元每桶](/content/gnews/30/README.md)
+### [纽约原油期货近8年来首次一度超过100美元每桶](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [俄军摧毁74处设施 乌居民区遭到袭击](/content/gnews/31/README.md)
+### [俄军摧毁74处设施 乌居民区遭到袭击](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [9架中共军机侵入台湾防空识别区](/content/gnews/32/README.md)
+### [9架中共军机侵入台湾防空识别区](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [北约召开紧急峰会 讨论加强邻近东欧成员国防御](/content/gnews/33/README.md)
+### [北约召开紧急峰会 讨论加强邻近东欧成员国防御](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中国沪综指创四周最大跌幅源于俄乌战争](/content/gnews/34/README.md)
+### [中国沪综指创四周最大跌幅源于俄乌战争](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【秘翻新视野】西方民主国家的执政独裁化](/content/gnews/35/README.md)
+### [【秘翻新视野】西方民主国家的执政独裁化](/content/gnews/36/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [俄罗斯把乌克兰打成世界经济政治牺牲品，美国却将成为最大赢家](/content/gnews/36/README.md)
+### [俄罗斯把乌克兰打成世界经济政治牺牲品，美国却将成为最大赢家](/content/gnews/37/README.md)
  ` YALUN 亚伦`
 
-### [2月24日俄罗斯入侵乌克兰德国媒体报道时间表](/content/gnews/37/README.md)
+### [2月24日俄罗斯入侵乌克兰德国媒体报道时间表](/content/gnews/38/README.md)
  ` Shuizhuyu`
-
-### [DC大中华时事：台陆委会重申中华民国是主权国家，不接受‘’一国两制‘’](/content/gnews/38/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 
 ### [军事实力曾世界第三的乌克兰自废武功，惨遭侵占](/content/gnews/39/README.md)
  ` 秘密翻译组-原创组`
