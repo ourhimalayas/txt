@@ -2,34 +2,46 @@
 ---
 
 
-## 邪恶共产主义试图奴役世界
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2064679/)
+## 美国最近几周CDC 数据表明：接种疫苗的人更有可能感染 COVID-19和去医院
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2064680/)
 
-作者：纽约磐石农场 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生在2月20日的大直播中解读了当今世界的局势，即以中共为代表的国际共产主义正试图奴役全人类，这直接导致世界陷入黑暗之中。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/3-85.jpg)
-郭先生解释道，在一个缺乏法制的社会中，当地民众只会人人自危。尤其在中共独裁统治下，其通过一党专政来践踏中国的法律、道德和信仰，还以洗脑剥夺了人们分析和思考问题的能力。如今，中共国内巨大的贫富差距和即将崩溃的经济已经让中国人的生存变得日益艰难。
+编译: 真北007
+![](https://assets.gnews.org/wp-content/uploads/2022/02/图片3-19.png)图片来源：[https://www.theepochtimes.com](https://www.theepochtimes.com)
+来自THE EPOCH TIMES  二月二十四日的新闻报道:
 
-郭先生还补充道，从2019年香港民主的殒落，到眼下祸害全球的中共病毒及其疫苗，再加上目前几乎所有国家陷入的政治和经济动荡，这一切都是由邪恶中共和达沃斯党奉行的极左共产主义试图奴役整个世界而造成的。
+根据疾病控制和预防中心 (CDC) 最新公布的数据，在 Omicron 病毒变种出现后，接种 COVID-19 疫苗的人群中 COVID-19 病例和住院率增加。
 
-参考链接：[人类面临的一切灾难都是共产党试图要奴役这个世界造成的](https://gnews.org/zh-hans/2050631/)
+根据全国卫生部门提交给 CDC 的数据，在 2021 年 12 月 11 日至 2022 年 1 月 8 日期间，完全接种疫苗的人群中的 COVID-19 病例率上升了 1000% 以上。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
+完全接种疫苗是指接种了两剂 Moderna 或 Pfizer COVID-19 疫苗或单剂强生疫苗的人。
 
-总编: Irene木木
-编辑: 宁文静
-校正/发稿：Fei797
+那些也接受了加强剂量的人的病例率也猛增，在同一时间段内上升了约 2,400%。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+虽然未接种疫苗的病例也有所增加，但接种疫苗的感染人数激增导致了两者之间的差距在缩小。
 
+根据CDC管理的监控系统的数据，接种疫苗的人中与 COVID-19 相关的住院人数也有所增加，从截至 2021 年 12 月 18 日当周完全接种疫苗的每 100,000 人中增加 1.4 人，到截至 1 月 8 日当周的每 100,000 人中 35.2 人。
 
+接受加强剂的人不太可能需要住院治疗，但从 2021 年 12 月到 1 月，接受三针的人的住院率也有所上升。
+
+在同一时间段内，因 COVID-19 导致的死亡人数在接种疫苗者中有所增加，包括在加强剂接种者中。
+
+其他数据来源也指出疫苗在 Omicron 之后表现更差，包括 CDC 在 1 月份发表的研究，该研究表明未接种疫苗和已接种疫苗的病例和住院人数之间的差距在缩小。
+
+疾病预防控制中心的数据还显示，未接种疫苗者的病例、住院率和死亡率都有所上升，但与接种疫苗者相比，增幅并不显着。
+
+最近几周，未接种疫苗和接种疫苗的病例、住院人数和死亡人数均急剧下降，促使许多州取消了 COVID-19 限制。
+
+原文链接：[https://www.theepochtimes.com/mkt\_app/vaccinated-people-more-likely-to-contract-covid-19-go-to-hospital-in-recent-weeks-cdc-data\_4300048.html](https://www.theepochtimes.com/mkt_app/vaccinated-people-more-likely-to-contract-covid-19-go-to-hospital-in-recent-weeks-cdc-data_4300048.html)
+
+编辑：LILY
+
+发布：面包飞上天
+
+20220225
+
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/DA2FFC16-CFD3-4CBE-A6EF-8D83D11E5A70.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

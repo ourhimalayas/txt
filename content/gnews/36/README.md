@@ -2,15 +2,15 @@
 ---
 
 
-## 多因素叠加 全球金融危机加速到来
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2064228/)
+## 战争一触即发 世界将浴火重生
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2064229/)
 
 文贵大直播20220225
 
-撰稿：文徐（DC）文凡（香草山）Nine Lee（DC）
+撰稿：dingding（香草山）Lakeman文仁（77国际功成）BEN（雅典娜）大卫观星人（DC）
 
-美工：姐夫说说（雅典娜）
-![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片1-36.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片2-39.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片3-35.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片4-36.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片5-35.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片6-36.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片7-26.png)
+美工：青山（英喜）
+![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片1-38.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片2-41.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片3-37.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片4-38.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片5-37.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片6-38.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/幻灯片7-28.png)
 *发布：Theodosia*
 
  

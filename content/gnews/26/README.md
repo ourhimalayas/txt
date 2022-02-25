@@ -2,46 +2,40 @@
 ---
 
 
-## 美国最近几周CDC 数据表明：接种疫苗的人更有可能感染 COVID-19和去医院
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2064680/)
+## 俄罗斯全面出兵攻乌 中共国民恐成待宰羔羊
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2064757/)
 
-编译: 真北007
-![](https://assets.gnews.org/wp-content/uploads/2022/02/图片3-19.png)图片来源：[https://www.theepochtimes.com](https://www.theepochtimes.com)
-来自THE EPOCH TIMES  二月二十四日的新闻报道:
+撰稿：纽约香草山部-Noemi
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-6.png)
+2月24日，乌克兰外长称，俄罗斯总统普京已“对乌克兰发动了全面入侵”。
 
-根据疾病控制和预防中心 (CDC) 最新公布的数据，在 Omicron 病毒变种出现后，接种 COVID-19 疫苗的人群中 COVID-19 病例和住院率增加。
+据悉，当地时间24日凌晨5时，乌克兰的军事设施遭到俄导弹袭击，俄军迅速于黑海和亚速海登陆，不久突破哈尔科夫州界，乌军指挥所遭到火箭弹袭击。之后，乌克兰管理部门宣布关闭全国领空，乌克兰基辅机场组织疏散。俄乌局势持续发酵，引发全球市场巨大的震荡，全球股市遭到重挫，黄金、原油暴涨。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2364.png)图片来自：https://static.timesofisrael.com/
+此前，郭先生在大直播中就分析道，俄乌战争一旦全面开展，全球大宗商品价格将会暴增，中共国经济遭受重挫。而中共一旦顺势攻打台湾，还将遭到来自西方世界的全面制裁。而最终受害的还是无辜的中国人民。
 
-根据全国卫生部门提交给 CDC 的数据，在 2021 年 12 月 11 日至 2022 年 1 月 8 日期间，完全接种疫苗的人群中的 COVID-19 病例率上升了 1000% 以上。
+新闻来源：
 
-完全接种疫苗是指接种了两剂 Moderna 或 Pfizer COVID-19 疫苗或单剂强生疫苗的人。
+[【2.24日乌克兰直击】切尔诺贝利核电站被俄军控制，普京称“莫斯科别无选择”，拜登宣布美俄关系几近决裂](https://wallstreetcn.com/articles/3652716)
 
-那些也接受了加强剂量的人的病例率也猛增，在同一时间段内上升了约 2,400%。
+[普京决定“出兵”！全球股市重挫 黄金暴涨 布油突破100美元大关](https://wallstreetcn.com/articles/3652710)
 
-虽然未接种疫苗的病例也有所增加，但接种疫苗的感染人数激增导致了两者之间的差距在缩小。
 
-根据CDC管理的监控系统的数据，接种疫苗的人中与 COVID-19 相关的住院人数也有所增加，从截至 2021 年 12 月 18 日当周完全接种疫苗的每 100,000 人中增加 1.4 人，到截至 1 月 8 日当周的每 100,000 人中 35.2 人。
 
-接受加强剂的人不太可能需要住院治疗，但从 2021 年 12 月到 1 月，接受三针的人的住院率也有所上升。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-266.png)
 
-在同一时间段内，因 COVID-19 导致的死亡人数在接种疫苗者中有所增加，包括在加强剂接种者中。
+编辑：飞虹
 
-其他数据来源也指出疫苗在 Omicron 之后表现更差，包括 CDC 在 1 月份发表的研究，该研究表明未接种疫苗和已接种疫苗的病例和住院人数之间的差距在缩小。
+总编：雪梨
 
-疾病预防控制中心的数据还显示，未接种疫苗者的病例、住院率和死亡率都有所上升，但与接种疫苗者相比，增幅并不显着。
+校正/发稿：浪迹天涯
 
-最近几周，未接种疫苗和接种疫苗的病例、住院人数和死亡人数均急剧下降，促使许多州取消了 COVID-19 限制。
-
-原文链接：[https://www.theepochtimes.com/mkt\_app/vaccinated-people-more-likely-to-contract-covid-19-go-to-hospital-in-recent-weeks-cdc-data\_4300048.html](https://www.theepochtimes.com/mkt_app/vaccinated-people-more-likely-to-contract-covid-19-go-to-hospital-in-recent-weeks-cdc-data_4300048.html)
-
-编辑：LILY
-
-发布：面包飞上天
-
-20220225
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/DA2FFC16-CFD3-4CBE-A6EF-8D83D11E5A70.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-6.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
