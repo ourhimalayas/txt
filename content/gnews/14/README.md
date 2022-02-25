@@ -2,22 +2,30 @@
 ---
 
 
-## 中共国帮助俄罗斯并购买其粮食，澳大利亚抗议
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2063276/)
+## 拜登称将与伙伴合作释放更多石油储备
+` 全球G系列咨服群` [轉載自GNews](https://gnews.org/zh-hans/2063292/)
 
-翻译/整理: 萧亦
-![](https://assets.gnews.org/wp-content/uploads/2022/02/02251.jpg)图片来自L indro
-在普京开始入侵乌克兰几个小时后，中共国同意从俄罗斯所有地区进口小麦和大麦，从而为这位莫斯科朋友提供了一个替代西方市场的替代方案，因为俄罗可能很快因国际制裁而关闭，此时的中共成为了救恩之首。
+作者：背靠背
 
-该协议于 2 月 8 日签署，几天前，普京在冬奥会期间访问了北京，这似乎有助于习近平和普京在世界范围内巩固其友谊。但中共国海关总署的确认就在昨天，意义重大。
+2022年2月24日，路透社报道美国总统乔·拜登周四表示，美国正在与其他国家合作，共同从全球战略原油储备中释放更多石油，一位了解谈判情况的消息人士称，该计划已列入“早期阶段。”【1】
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2348.png)
+拜登政府在 2 月 22 日表示，由于俄罗斯和乌克兰的紧张局势使油价保持在 90 美元/桶以上，因此他正在全球协调释放原油库存。同日，国际能源署表示，成员国“随时准备采取集体行动，确保全球石油市场供应充足”。
+截至 2021 年底，IEA 成员持有的石油总库存接近 41.6 亿桶，其中政府持有的 15 亿桶作为紧急储备。世界最大石油消费国集团要求成员在政府或商业储存中保留 90 天的净进口。
+美国 SPR为 2002 年 9 月以来的最低水平，截至 2022年2 月 11 日， 持有 5.848 亿桶【2】
 
-俄罗斯是世界上最大的小麦生产国之一，但是直到去年 10 月，中共国才重新开始从俄罗斯远东进口小麦：第一批 667 吨被该国最大的农业食品公司国有巨头中粮集团收购.
+俄罗斯总统弗拉基米尔·普京2月24日向俄罗斯民众发表紧急电视讲话宣布决定在顿巴斯开展特别军事行动。国家油价大涨，纽约商品期货交易所原油期货价格时隔8年突破100美元/桶，随后下跌当天低点价格91.53美元/桶左右。
 
-关于放宽北京与莫斯科的贸易限制的第一批抗议来自澳大利亚。堪培拉总理斯科特·莫里森今天早上第一个批评中共国政府的举动。总理在新闻发布会上说：“当俄罗斯入侵另一个国家时，你不应向俄罗斯施以援助之手”。
+黄金，原油等大宗商品过山车般的升降中，多少人破产。郭先生直播指出，这场战争游戏，战争金融，战争经济分分钟都在改变世界。
 
-原文链接: [https://www.repubblica.it/esteri/2022/02/25/news/ucraina\_russia\_cina\_compra\_grano\_russo\_australia\_protesta-339173888/](https://www.repubblica.it/esteri/2022/02/25/news/ucraina_russia_cina_compra_grano_russo_australia_protesta-339173888/)
+参考链接：
 
-责任编辑/发布:意大利达芬奇农场   萧亦
+【1】[拜登说美国，合作伙伴致力于释放全球石油储备](https://www.reuters.com/business/energy/us-working-global-release-oil-reserves-plan-is-early-stages-source-2022-02-24/)
+
+【2】[White House again contemplates SPR release as oil prices stay above $90/b](https://www.spglobal.com/platts/en/market-insights/latest-news/oil/022322-white-house-again-contemplates-spr-release-as-oil-prices-stay-above-90b)
+
+* * *
+
+素材整理&编辑&发布：背靠背
 
  
 
