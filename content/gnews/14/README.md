@@ -2,36 +2,36 @@
 ---
 
 
-## 视频|回顾乌克兰的民族独特性及危机来源
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2065404/)
+## 俄乌危机致全球粮食价格大幅上涨
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2065480/)
 
-制作：香草山视频部
+作者：银河系农场—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月23日，据相关媒体消息显示，俄罗斯与乌克兰、美国和欧盟之间日渐加剧的危机可能会给全球粮食供应带来更大的压力。目前，小麦、玉米、葵花油等基础作物的价格正在一路攀升。
 
-乌克兰地处欧亚大草原的断层线，属东西方相交之地，自古以来被看作是欧洲的门户，或在战争中成为阻挡敌人的屏障，或在和平时作为连接欧亚或东西方的枢纽。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-8.jpeg)
 
-自希罗多德时代起，乌克兰经历了两千多年起起落落。这期间，世界秩序多次变更，不同文化和种族在这里碰撞，塑造出乌克兰独特的边境身份。时至今日，作为多民族的聚居地，乌克兰仍然是东西方力量冲突的焦点，甚至是在夹缝中求生。
+数据表明，俄罗斯和乌克兰拥有全世界80%的葵花油出口、29%的小麦出口和19%的玉米出口，中东很多国家的粮食供应都依赖于此。然而，由于近期双方战争局势的恶化，黑海的运输港口眼下已经被切断，从而导致了俄乌粮食出口的中断。
 
-19世纪，乌克兰民族的缔造者们终结了当地长时期的混乱局势，将当地人与其他居民，尤其是俄罗斯人区别开来，当时，该国的公民不分种族，被统一称为“乌克兰人”。1991年，乌克兰独立建国。
+另一方面，自俄罗斯向顿涅茨克和卢甘茨克派遣军队之后，各国对其的经济制裁不断加码，这严重破坏了世界粮食供应的稳定性，而美国的粮食期货价格也因此不断飙升。另外，重度依赖粮食进口的北非、亚洲和中东地区同样被大范围影响。
 
-随后，在近现代的几次世界历史巨变中，乌克兰人起到了举足轻重的作用。
+当前，乌克兰所处的黑海地区是军事冲突的聚焦点，平常繁忙的商业运输如今因军事升级而被中断。经济学家表示，该地区的粮食供应中断将会导致全球粮食价格的飞涨。
 
-1991年12月，乌克兰公民选择独立建国，历史因此改变了走向：苏联在乌克兰公投后的一个星期里解体，美国获得了冷战的胜利，乌克兰成为冷战宣告落幕之地。
+参考链接：[Russia-Ukraine crisis will put even more strain on the global food supply, driving up prices of wheat and corn around the world](https://newstarget.com/2022-02-23-russia-ukraine-crisis-more-strain-global-food-supply.html)
 
-2004年，身着橙色衣衫的乌克兰群众挤满了基辅的广场与街道，他们要求得到公平的选举并最终达成了这一目的。这一被称为“橙色革命”的运动，也带动了诸多国家随后发生的、撼动当地威权统治的“颜色革命”。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-2013年年底，乌克兰人再次走上基辅大街，支持国家与欧盟建立更紧密的联系。然而，2014年年初，乌克兰国内的形势出现了意外而悲剧性的转折：当地防暴警察和狙击手向抗议者开枪，造成数十名亲欧盟抗议者的伤亡。
-
-同年，俄罗斯对克里米亚的吞并企图以及乌克兰东部顿巴斯地区策动的混合战，让亲俄分离主义者，将这场俄乌冲突变成了一场真正的国际冲突。
-
-而今，被世界所关注的乌克兰危机再度被俄罗斯和中共两个独裁政权利用，成为威胁美国与欧洲的抓手。
-
-发稿：谐趣园
+总编：Irene木木
+编辑：静言
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
