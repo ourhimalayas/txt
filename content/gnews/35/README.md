@@ -2,24 +2,37 @@
 ---
 
 
-## G7发表声明 普京以莫须有罪名进行无理入侵
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2061752/)
+## 特鲁多撤销“紧急法” 抗议相关账户逐步解冻
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2061753/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2297.png)[图片来源](https://www.afpbb.com/articles/-/3380451)
-24日，七国集团首脑会议在网上举行，以最强烈的措辞谴责俄罗斯对乌克兰的军事入侵。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-5.png)
+作者：纽约香草山 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2300.png)
+周三，加拿大总理贾斯汀·特鲁多在新闻发布会上，宣布撤销“紧急状态法”。与此同时，与卡车司机抗议活动相关的、被冻结的200多个银行账户，正在逐步解封，总额约800万美元。
 
-联合声明严厉指出，普京推动的军事攻击是毫无根据、完全没有道理的，并将战争带回了欧洲大陆，同时也将自己置于历史错误一方。作为联合国常任理事国的俄罗斯，此举严重违反了《联合国宪章》以及各种国际承诺。
+针对加拿大各地的抗议示威活动，2月14日，特鲁多政府启动“紧急状态法”，而参加抗议活动公民的银行账户因此被冻结。该法案实施以来，受到来自国内外的诸多指责。
 
-声明指出，以武力改变国际公认的边界是不合常理，应该立即停止战斗并迅速撤军。同时谴责了白俄罗斯的共谋行为。
+据悉，加拿大公民自由协会指出，加拿大公民和平抗议，而政府援引”紧急状态法”涉嫌违宪，并表示将起诉特鲁多政府。
 
-联合声明中没有明确对俄罗斯个别制裁的细节。但表示，七国集团与北约和欧盟成员国、乌克兰及其他同盟伙伴国联合起来，将决心采取必要行动，来维护基于规则的国际秩序。
+参考链接：[Trudeau to revoke Emergencies Act after convoy blockades end](https://globalnews.ca/news/8639534/justin-trudeau-emergencies-act-announcement/?utm_source=%40globalnews&amp;utm_medium=Twitter)
 
-信息源：[「でっち上げの主張による不当攻撃」　G7声明、制裁の詳細は記さず](https://news.yahoo.co.jp/articles/1bd7d8c86aa120c7b25caf0cc0db90babac943dd#:~:text=)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e.jpeg)
 
-*编辑：东京樱花团/麗子
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
+总编/编辑：雪梨
+校对/发稿：小野貓（文凱琳）
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-5.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

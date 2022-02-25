@@ -2,24 +2,42 @@
 ---
 
 
-## 中日财经爆|美国宣布10项强化供应链措施应对中共威胁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2062454/)
+## 俄罗斯入侵乌克兰，全球股市跳水、卢布熔断
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2062579/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2329.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fi.ytimg.com%2Fvi%2F_HBbDXtxHOY%2Fmaxresdefault.jpg&amp;imgrefurl=https%3A%2F%2Fwww.youtube.com%2Fwatch%3Fv%3D_HBbDXtxHOY&amp;tbnid=FG-Nqs-KQUEWDM&amp;vet=12ahUKEwi55f64nJr2AhVJwWEKHapeBwsQMygcegUIARDaAQ..i&amp;docid=mk4XQc_iKi1pwM&amp;w=1280&amp;h=720&amp;q=%E6%96%AD%E5%BC%80%E4%BE%9B%E5%BA%94%E9%93%BE&amp;ved=2ahUKEwi55f64nJr2AhVJwWEKHapeBwsQMygcegUIARDaAQ)
-美国政府周四（2月24日）宣布了10项新措施，作为其一年来强化美国供应链努力的一部分，以应对气候冲击和地缘政治紧张局势，并确保中共国或其他国家不能利用供应链来对付美国。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-政府高级官员说，自从拜登总统一年前签署行政命令，开始加强国内半导体芯片、电动汽车电池、稀土矿物和药品生产的努力以来，美国已经取得了良好的进展。
+整理：围剿维尼熊
+编辑：文泓
 
-其中一位官员说，虽然此举旨在将曾经由美国主导的技术和其他商品的生产从中共国拉回来，但也是为了使美国的供应链面对气候变化和其他自然或人为的破坏更具韧性。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/6-46.png)图片来源：The Motley Fool & 雅典娜设计组
 
-白宫表示，七个内阁机构将发布六份报告，制定计划解决美国一些最关键的供应链中的弱点，包括运输、医疗保健、国防和食品。
 
-消息来源：[白宫宣布10项措施 旨在加强美国供应链](https://cn.reuters.com/article/us-wh-supply-chains-0225-idCNKBS2KU0CQ?il=0)
+当地时间24日，多家媒体报道，普京宣布，他已决定在顿巴斯地区进行军事行动。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
+普京宣称，俄罗斯没有侵略乌克兰的计划，俄方致力于缓解乌克兰局势。鉴于北约的不断东扩，俄罗斯的安全环境不断恶化，俄罗斯不得已做出这个决定。乌克兰局势的发展导致俄罗斯无法得到安全保障，呼吁俄罗斯武装力量对威胁其国家的行为予以坚决回击。
+
+随后，乌克兰总统泽连斯基表示，乌克兰全境将进入战时状态。
+
+有报道称，乌克兰的军事设施遭到导弹袭击，俄军登陆行动开始于黑海和亚速海。
+
+目前，俄军已突破哈尔科夫州界，哈尔科夫乌军指挥所遭到火箭弹袭击。乌克兰多个城市发生一系列爆炸事件。
+
+随着普京宣布在顿巴斯地区进行特别军事行动，美国总统拜登宣布将和盟国一起向俄罗斯施加更严厉的制裁措施。
+
+因俄入侵乌克兰，当日全球股市出现大跳水。俄罗斯股市（IMOEX）开盘下跌11.24%，至2737.91点。俄罗斯卢布和莫斯科证券交易所开始交易后不断下跌，目前已跌至熔断线，卢布和证券交易已暂停。
+
+参考链接：[突发！乌克兰全境进入战时状态！俄罗斯卢布熔断](http://www.21jingji.com/article/20220224/herald/6c5ae23d0f02cc15cbaeaf5e7a13c1ba.html)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
