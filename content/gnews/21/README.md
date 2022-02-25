@@ -2,25 +2,42 @@
 ---
 
 
-## 《历史的今天》2022.02.25
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2066022/)
+## 中共锁链国八孩女事件结果再次强奸民意
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2066055/)
 
-作者：superT3d (文扬)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/0225.jpeg)
-1. 2022年2月25日，文贵先生紧急直播， 中共一定攻打台湾，台湾同胞、大陆同胞保重，大陆会人道灾难严重。
-2. 2014年2月25日，比特币交易所Mt.Gox网站当机、创办人下落不明、东京办公室空荡无人，抗议民众因投资虚拟货币损失惨重。
-3. 2013年2月25日，南韩首位女总统、第18任总统朴槿惠就任。
-4. 2013年2月25日，连战会见习近平 互称“老朋友”。
-5. 2010年2月25日，乌克兰新任总统亚努科维奇宣誓就任。
-6. 2005年2月25日，玻利维亚飞机坠毁52人全幸运存活。
-7. 2004年2月25日，美国太平洋第七舰队旗舰蓝岭号访问中国，这是美中恢复交往的一项指标。
-8. 2000年2月25日，台湾陆委会正式做出措辞严厉的回应中共白皮书，白皮书内容企图影响台湾大选，暴露出中共黩武的本质和霸道思维。
-9. 2000年2月25日，民进党总统参选人陈水扁说明两岸政策，他当选总统后，两岸关係会正常化，不是恶化。
+作者：香草山健身部 – 文鹰
 
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-65.png)
+当地时间2月23日，中共媒体发表‘丰县锁链女事件调查’一文，对江苏省委省政府调查组，处理该事件通报结论表示认可。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-13.jpg)图片来源网络
+自该事件被网友1月17日，发布自媒体引起民众关注以来。中共为保北京冬奥会，放任地方政府造假不作为，导致舆论沸腾民意愤慨，要求真相声音高涨。 中共政府不是去解决问题，而是持续掩盖事实，打压民众了解真相压制批评声音。甚至用铁皮封锁整个事件发生地，让警察抓捕爆料人并威胁采访声援人士。 有分析人士指出：该事件是中共篡政以来最大的舆情危机，捅破了中共盛世的一个大脓包。中共党媒的宣传，是一切为了邪党的利益，在继续欺骗强奸民众民意。
 
-*发布：Theodosia*
+
+
+相关链接：
+
+[https://new.qq.com/omn/20220223/20220223A05NQE00.html](https://new.qq.com/omn/20220223/20220223A05NQE00.html)
+
+![This image has an empty alt attribute; its file name is Feb-55.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-55.jpg)
+
+编辑/校对/发稿：Petite abeille
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is good-66.png](https://assets.gnews.org/wp-content/uploads/2022/02/good-66.png)
+
+
+
 
  
 

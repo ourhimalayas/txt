@@ -2,51 +2,20 @@
 ---
 
 
-## “多么罪恶”：约克地区警察工会在纽马克特拆除“棚屋”为开发让路
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2066119/)
+## 北京冬奥会观众有史以来最少
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2066132/)
 
-作者：Newmarket Era
-翻译：Himaboy
-![](https://assets.gnews.org/wp-content/uploads/2022/02/22_1U3003Y.png)
-日前位于Newmarket、有着20年历史的原约克区警察工会（York Region Police Association）总部大楼被拆除，开发商买下这块土地后，计划在这里盖起60栋独立屋和142栋镇屋。
+加拿大温哥华扬帆农场    平民正道
 
-Marianneville Stonehaven Limited公司此前从约克区警队买下这片40英亩的土地，并向新市政府递交过两次开发申请。
+美国[布莱巴特新闻] 2月23日报道称，本次在中共国举行的种族灭绝冬奥会的观众数量是有史以来最少的。
 
-在递交了第一次申请后，该计划受到许多附近居民的反对。后来开发商修改了方案，再次递交申请。该公司副主席Joanne Barnett表示，开发商已经响应了居民的意见并做了相应修改，包括让民众更能够使用这片物业土地的自然区域。
+据[美国广播公司]的最新数据，比较黄金时段平均收视率，2018年韩国平昌冬奥会约为2000万，而北京冬奥会仅约1000万。去年因疫情被推迟的东京奥运会，其收视率也超过1500万。
 
-“他们仍然可以使用公共区，这些地方不会作新的开发。”我们一直在努力确保尽可能少地给现在的社区造成影响。”
+报道称，中共政权的种族灭绝和反人类罪行所导致各国政府的外交抵制，中共国内“新冠病毒”的肆虐，繁琐苛刻的防疫检测措施以及人身安全和自由的无保障等因素，都是本次冬奥会观众人数历史最低的主要原因。
 
-这个地点位于Newmarket的Bayview与Stonehaven附近。原大楼周围有一片未开发的土地。周边有居民区和餐饮、超市等商店。当时当地居民就表达出多方面的顾虑，包括开发密度、环境影响和绿化用地损失等。
+* * *
 
-2月14日，这栋有着20年历史的警察工会总部大楼拆除工程正式动工。
-
-一些居民在社交媒体上对此表示失望。
-
-“多罪恶啊，”有人说道。
-
-另一位居民问：“为什么这栋楼不能
-
-改作社区用途呢？”
-
-还有人说，开发商太“贪钱了。”
-
-这栋旧大楼被拆除前，约克区警队总部已经搬到Aurora市内63 Eric T. Smith Way的一栋双层新办公大楼。这个办公地点更靠近位于Aorura市Wellington和Leslie streets附近的Don Hillock Drive上的约克区警察总部。
-
-来源：https://www.yorkregion.com/news-story/10574609–what-a-sin-york-regional-police-union-shed-demolished-in-newmarket-to-make-way-for-houses/
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+编辑： 平民正道    发布：平民正道
 
  
 

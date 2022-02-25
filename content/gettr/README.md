@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 2/25/2022 10:45 PM (UTC)`
+
+2/25/2022 Miles Guo: Ukraine is one of the most corrupt countries on earth. The US and EU failed to fulfill their promises to protect Ukraine and have abandoned it, while also tearing up their promises made to Russia that NATO would not expand eastward and Ukraine would not join the EU. So, Putin’s war on Ukraine is not entirely unjustifiable.<br/><br/>2/25/2022 文贵直播：乌克兰是全球最腐败的国家之一，美欧没有兑现保护乌克兰的承诺并抛弃了它，同时撕毁了对俄罗斯做出的北约不东扩、乌克兰不入欧盟的承诺，普京打乌克兰并不输理<br/>
+![img](https://media.gettr.com/group9/getter/2022/02/25/22/036fff60-9285-67ee-a836-7ba8ef829373/out.jpg)
+
+---
+
 `@miles 2/25/2022 10:07 PM (UTC)`
 
 2/25/2022 Miles Guo: What does Putin attacking Ukraine at this time have to do with the CCP virus and COVID vaccines? How does that relate to Trudeau's implementing the Emergencies Act and hiring foreign mercenaries? Why are the Western countries bluffing when it comes to Russia’s invasion of Ukraine? International diplomatic relations are all about strength and self-interest.<br/><br/>2/25/2022 文贵直播：普京此时打乌克兰和病毒、疫苗有啥关系？这和加拿大土豆实施紧急状态法、使用雇佣军又有啥关系？西方各国为何咋呼？实力和自我利益是国际外交关系的核心<br/>
@@ -146,13 +153,6 @@
 
 印媒WION：西方在俄乌问题上的软弱会鼓励中共侵占台湾<br/><br/>Indian WION: The West's weakness in Russia and Ukraine will encourage CCP to annex Taiwan.<br/>
 ![img](https://media.gettr.com/group46/getter/2022/02/24/13/682f4384-af91-7888-7798-304004cfa62c/out.jpg)
-
----
-
-`@miles 2/24/2022 7:23 AM (UTC)`
-
-2/23/2022 Miles Guo: The COVID vaccines may cause 500 million to 1 billion people to die or to have disabilities. I believe that the effective treatments for adverse effects of the COVID vaccines will soon be available. The COVID vaccine disasters have not started yet. Please don’t get the jab or catch the CCP virus. You should not be prevailed by fatigue in the face of the prolonged campaign against the CCP virus and its vaccines.<br/><br/>2/23/2022 文贵直播：疫苗最终可能导致5到10亿人死亡或残疾，文贵相信很快会有针对疫苗的有效的办法。疫苗灾难尚未开始，不要打疫苗也不要染上病毒，千万不要在疲劳战面前被疲劳征服！<br/>
-![img](https://media.gettr.com/group15/getter/2022/02/24/07/f09ff172-6118-66e2-571a-7aa29d07db72/out.jpg)
 
 ---
 

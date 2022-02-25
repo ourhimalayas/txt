@@ -2,12 +2,18 @@
 ---
 
 
-## 2月25日文贵大直播要点（图片1-3）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2066175/)
+## 西媒头条 — 第180期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2066236/)
 
-设计 五月花农场 水涨船高
-![](https://assets.gnews.org/wp-content/uploads/2022/02/39D2A18D-391C-4B5D-8E65-2710A6C2C92C.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/0DD15F21-2A00-45A7-BB7F-07CF4C826A66.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/02/68F5484E-3D69-4957-AA8B-02850EF3CCA3.jpeg)
-发布：水涨船高
+制作：蚂蚁兄弟
+
+**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息**。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/xm220225.001.jpeg)
+
+发稿：信心的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-4.jpeg)
 
  
 
