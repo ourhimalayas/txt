@@ -2,25 +2,37 @@
 ---
 
 
-## 前女足球员孙颖颖加拿大遭枪击身亡
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2063370/)
+## 英国议员呼吁对俄罗斯加大制裁，警示中共
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2063522/)
 
-撰稿：葛大饼
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-380.jpg)
-图片来源：  搜狐
+作者：纽约磐石农场 – 在远方
+![](https://assets.gnews.org/wp-content/uploads/2021/12/条幅.png)
+当地时间2月22日，英国宣布制裁5家俄罗斯银行，以及3名与普京有密切联系的富豪，以此应对21日普京下令入侵乌克兰之举。
 
-##### 根据2022年2月25日 网易报道，加拿大时间2月20日早上，温哥华豪宅区一位住户在一辆宝马车内发现两位华人女性的尸体。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/6-42.jpg)
 
-据调查，被害的两位女性分别是50岁的吴某某(女)和39岁孙颖颖，这两位逝者在本地华人圈子赫赫有名，其中吴某某曾任温哥华福建省泉州市同乡会咨询顾问，仅在澳大利亚，他就有着超出1亿美金的资产，而39岁孙颖颖曾经是在职业足球运动员， 曾效力于大连队和天津汇森女足。
+英国首相约翰逊表示，克里姆林宫正在为全面入侵乌克兰做准备，俄罗斯正朝向孤立状态前进，全世界必须警惕普京的接下来的行动。
 
-附近邻居反应事发当天曾听到有类似放烟火的响声， 目前，警方正在收集与这起凶杀案有关的证据，案件还在进一步调查中，本地警察初步认定为一起预谋的杀人案件。
+此外，曾任保守党党魁的英国国会议员史密斯表示，针对俄罗斯入侵乌克兰，中共密切关注着西方的反应，而加大对俄罗斯的制裁，警示中共，以防中共对台湾做出相应的举动。
 
-**愿逝者安息！无论是何原因，海外华人都要注意安全！不要为中共这个犯罪组织呐喊和卖命，中国人不等于中共！**
+参考链接：
 
-**新闻来源：**
+- [英國制裁俄羅斯5銀行3大亨 議員要求加大懲罰護台](https://cn.rti.org.tw/news/view/id/2125253)
 
-[https://www.163.com/dy/article/H12B8QSE0549AX1X.html?f=post2020\_dy\_recommends](https://www.163.com/dy/article/H12B8QSE0549AX1X.html?f=post2020_dy_recommends)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/12-1-3.png)
+
+总编：雪梨
+编辑：Ivy001
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

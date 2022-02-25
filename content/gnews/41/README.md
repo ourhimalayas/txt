@@ -2,21 +2,26 @@
 ---
 
 
-## 台湾将对俄罗斯实施制裁 禁止半导体输出
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2063028/)
+## 俄罗斯在基辅大规模轰炸
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2063325/)
 
-撰稿：东京樱花团｜百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/02/pasted-image-0-12.png)[*图片来源*](https://www.aljazeera.com/economy/2022/2/25/taiwan-vows-to-join-democratic-countries-in-sanctioning-russia#:~:text=Taiwans%20sia)
-台湾外交部25日宣布，它将与国际社会合作，对俄罗斯武装入侵乌克兰的行为进行经济制裁。 台湾媒体报道说，制裁将包括对半导体出口的限制，台湾此方面拥有世界领先的技术。
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-105.jpg)
+图片来源： chinese.aljazeera.net
 
-在同一天发表的一份声明中，台湾外交部强调，反对以武力单方面改变现状，呼吁俄罗斯立即停止军事行动。表示将与美国和其它国家密切合作并采取适当措施，以恢复该地区的和平与稳定。
+零对冲网2月24日报道，乌克兰总统泽连斯基凌晨1点在基辅宣布：“ 俄罗斯的破坏力量已经进入首都，我和我的家人还在。我们需要与俄罗斯谈判停火。”  尽管华盛顿与西方国家近年来口头上同意乌克兰加入北约组织，但现在已被残酷的现实所打破，乌克兰的同盟者和支持者均不会去乌克兰帮忙。
 
-信息来源：[**台湾もロシアへ制裁表明  半導体の輸出を規制か  ウクライナ侵攻**](https://news.yahoo.co.jp/articles/a1630f925a58d1389cea342e53d28afe2ddeb4c1#:~:text=)
+针对先前俄罗斯要求乌克兰作为投降的条件开展谈判，泽连斯基回应说：“ 我们不怕与俄罗斯谈，也不怕谈判以保证我国的安全，甚至不怕谈关于中立状态，但我们会有什么样的安全保证？我们现在要靠我们自己保卫自己的国家，我看不到有谁会帮我们打，谁能保证乌克兰能加入北约？每个人都害怕，我问了27个欧洲国家领导人乌克兰是否可以加入北约，每个人都很害怕，但我们不害怕。”
 
-*校对：东京樱花团/東洋武士*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
+泽连斯基在拜登说美国部队不会在乌克兰打后发表评论，表示非常受挫析和绝望，要求西方国家推出新的制裁措施，重点是能源出口的制裁。
 
+经过1天的战斗，乌克兰武装部队总司令说有30辆俄罗斯坦克，130辆装甲车，5架战机和6架直升机被乌克兰打掉，当然，乌克兰损失也惨重。
+
+乌克兰国防部发誓要继续保卫国家，泽连斯基要求该国18-60岁的男子不要逃离本国。
+
+##### 新闻来源： [Large-Scale Bombardment Of Kiev Deemed Imminent As Zelensky Admits “We Are Left Alone” As NATO “Afraid”](https://www.zerohedge.com/geopolitical/putins-shock-awe-war-ukraine-unfolds-dark-day-europe-many-hundreds-killed)
+
+#  
 
  
 

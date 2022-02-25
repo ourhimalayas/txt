@@ -2,24 +2,25 @@
 ---
 
 
-## 樱花FM|中日财经爆:油价上涨 日本着手第二波释放油储
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2063967/)
+## 秘翻在线: 中国总领事发推文说：&#8221;不要与强者争斗&#8221;，是对台湾和日本牵制吗?
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2064038/)
 
-音频：东京樱花团/战友520
-![](https://lh6.googleusercontent.com/HXEmMZkWj8yAsXDzfvM2JINGtug7d9cHQ1cJLHNNzj6liIfTSyYheySRnPBxWPiF22GKPPwle0SVGR5hMCO48C_fLBvazoTOztr00wCz1loYegtUmmMWFmwrvLM_hamAxBdyvPpA)
-日本经济产业省16日宣布，将出售约0.6%的国家石油储备，即约26万千升（164万桶）。这是日本第二波释放国家储备石油，也是包括美国和印度在内的主要石油消费国协同释放油储计划的重要一环。其目的是在油价飙升的情况下，暂时增加供应，压低价格。
+撰稿:沙莉
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-386.jpg)(图片源于https://news.tv-asahi.co.jp/news\_international/articles/000245946.html)
+针对俄罗斯对乌克兰的入侵，中国总领事在社交媒体上发布了一条推文，说：”弱者不应该挑衅强者”，中国总领事的目的是似乎想牵制台湾和日本。
 
-此次释放将包括北海道苫小牧东部国家石油储存基地的约11万千升和鹿儿岛县ENEOS 喜入基地的约15万千升，将于3月9日进行招标，4月20日之后交付。
+日本朝日新闻报道称24日，中国驻大阪总领事薛健先生在其推特账户上用日语发布了一条题为 “从乌克兰问题中应吸取的教训”的信息。
 
-去年12月底统计预测，国家库存足以满足146天的国内需求（约4500万千升）。政府本月9日举行了约10万千升的第一次招标。
+他在帖子中写道：”弱者绝不应该做一些愚蠢的事情，比如挑衅强者。 即使有强者站在你身后并承诺支持你。”
 
-联合释放油储，又能压油价几何，我们拭目以待。灭火先得找火源，中共不灭，战火易燃，油价飙升，释放油储也是杯水车薪！
+报道称这是指台湾的蔡英文政权，因它正接近美国并加剧与中国的紧张关系。
 
-文字版原文：[中日财经爆┃油价上涨 日本着手第二波释放油储 – GNEWS](https://gnews.org/zh-hans/2013066/)
+在一系列的帖子中，他还说，”不要被人诱惑,在火中捡栗子”，可能是指与美国步调一致的日本。
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE-2022-02-24-151921-2.png)
+信息来源: [https://news.tv-asahi.co.jp/news\_international/articles/000245946.html](https://news.tv-asahi.co.jp/news_international/articles/000245946.html)
+
+责编:Eric Kim
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

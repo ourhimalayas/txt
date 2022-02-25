@@ -2,33 +2,34 @@
 ---
 
 
-## 俄罗斯威胁毁灭国际空间站
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2063963/)
+## 小土豆在全球激烈反击下撤销紧急状态法
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2064020/)
 
-撰稿：东京樱花团/asket
-![](https://assets.gnews.org/wp-content/uploads/2022/02/7-38.jpg)N
-[**图片来源**](https://edition.cnn.com/2022/02/24/politics/russian-space-agency-us-sanctions-international-space-station/index.html)
+**翻译：Lulumi**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/tempsnip小土豆在全球激烈反击下撤销紧急状态法.png)图片来源：截图/YouTube
+加拿大总理在援引事实上的戒严令10天后终于退缩了。
 
-据CNN报道，俄罗斯航天局局长说，美国的新制裁有可能“破坏我们在国际空间站的合作”。目前有四名美国国家航空航天局的宇航员、两名俄罗斯宇航员和一名欧洲宇航员在这个轨道前哨站上生活和工作。
+在渥太华实施史无前例地粉碎自由车队的命令10天后，加拿大总理贾斯汀·特鲁多在周三撤销了《紧急状态法》。
 
-在美国总统乔·拜登周四宣布，“将削弱他们（俄罗斯）的航天工业，包括他们的太空计划”的新制裁措施后，俄罗斯航天局局长德米特里·罗戈津在推特上说，空间站的轨道和在太空中的位置是由俄罗斯发动机控制的。
+“今天，经过仔细考虑，我们准备确认情况不再是紧急情况。因此，联邦政府将停止使用《紧急状态法》，”特鲁多在一次新闻发布会上说。
 
-“如果你阻止与我们的合作，谁来拯救国际空间站，使其不至于不受控制地脱离轨道并落入美国或……欧洲？”罗戈津说，“还有一种可能性是，一个500吨的结构会落在印度和中国。你想用这样的前景来威胁他们吗？国际空间站不在俄罗斯上空飞行，因此所有的风险都是你的。你准备好迎接它们了吗？”
+他补充说：“我们相信，现有的法律和细则足以保证人们的安全。”
 
-国际空间站是美国、俄罗斯、日本、加拿大和欧洲航天局之间的合作，分为两个部分–俄罗斯轨道部分和美国轨道部分。
+此前两天，下议院周一通过了一项动议，确认特鲁多政府拥有“有时限的”紧急权力，以驱散抗议压迫性COVID措施的自由车队。
 
-前美国宇航局宇航员加勒特·雷斯曼告诉CNN：“如果没有美国一侧的电力，俄罗斯部分就无法运作，而如果没有俄罗斯一侧的推进系统，美国部分就无法运作。所以你不能做一个友好的‘离婚’。你不能做一个有意识的脱钩。”
+特鲁多的转变也是在美国、欧洲的政治家对他援引暴虐的紧急权力进行抨击之后发生的。
 
-美国国家航空航天局没有直接回应罗戈津的言论，但它指出，美国航天局“继续与俄罗斯航天局和我们在加拿大、欧洲和日本的其他国际伙伴合作，以保持国际空间站的安全和持续运作。”
+他的严厉行动也在社交媒体上引发广泛的嘲笑，将他与他的“父亲”菲德尔·卡斯特罗和阿道夫·希特勒进行比较。
 
-[信息来源](\Users\Administrator\Downloads\Russia's%20space%20agency%20warns%20US%20sanctions%20could%20'destroy'%20cooperation%20on%20the%20International%20Space%20Station)：
+**新闻来源**：[www.infowars.com][Breaking: Trudeau Revokes Emergencies Act After Fierce Global Backlash](https://www.infowars.com/posts/breaking-trudeau-revokes-emergencies-act-after-fierce-global-backlash/)
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/樱花-2022-2.jpg)
+* * *
 
+***审核：文乐
+校对：花羽
+发布：信心满满***
 
-
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-4.jpeg)
 
  
 
