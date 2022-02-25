@@ -2,36 +2,37 @@
 ---
 
 
-## 德国医疗保险有1100万用户：新冠疫苗的副作用远比政府报道的高得多
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2060857/)
+## 中国沪综指创四周最大跌幅源于俄乌战争
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2060874/)
 
-#### 翻译                    意大利达芬奇农场                        小白鸽       
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Schermata-2022-02-24-alle-23.18.22.png)图片来源：eventiavversinews.it
-#### 
+**整理：围剿维尼熊
+编辑：Candy**
 
-德国一家大型健康保险供应商表示，他分析了近1100万人的新冠疫苗并发症的数据，并透露这些数据远远超过了卫生当局的报告。
+【雅典娜快讯】，紧贴时代脉搏
 
-根据该公司的一封信， 保险公司BKK ProVita得出的结论是， 该疫苗的副作用比德国联邦机构保罗•埃利希研究所(Paul-Ehrlich Institute) 之前的报告高出数倍。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/截圖-2022-02-02-下午10.11.59-18.png)
 
-BKK 董事会成员Andreas Schöfbeck 告诉“Die Welt”报纸，这些数据是一个“危险信号”，并补充说：“ 确定的数字非常重要，迫切需要检查其合理性。”
 
-这封由Schöfbeck撰写的信指出，BKK分析了1090万份保单持有人的医疗帐单数据， 发现在该数据中， 约有217，000人因疫苗副作用接受了治疗。 该公司指出， 总体而言， 在人口约8300万的德国， Paul-Ehrlich研究所在2021年报告了244，576例新冠疫苗接种副作用疑似病例。
+根据路透社2月24日报道，中国股市沪综指周四收挫1.7%，创四周最大单日跌幅。乌克兰局势急剧恶化引发全球市场震荡，战争阴云密布，市场避险情绪高涨，同时有关能源供应及铝、镍等金属供应的忧虑升温，资金流入黄金、军工、能源、有色等板块。
 
-他在信中写道：“ 我们公司获得的数据让我们有理由相信， 在接受新冠疫苗后， 疑似疫苗副作用病例的登记是不足的。”
+沪综指.SSEC收跌1.7%至3,429.96点，沪深300指数.CSI300收挫2%；深证创业板指数收挫2.1%，上证科创板50成份指数收跌1.3%。
 
-Schöfbeck估计：“ 如果把这些数字放大，推算扩大到到整个德国人口，那么德国可能有两百五百万至三百万人因为接种了新冠疫苗产生了副作用而接受治疗。
+光大证券国际证券策略师伍礼贤表示，虽然乌克兰的局势可能对中国股市影响并不是太大，但在环球股市出现比较大波动的情况之下，中国股市包括沪综指也不可避免出现比较明显的调整。市场开始担心地缘政治的局势可能进一步对金融市场带来另外的冲击，现在局势还是相对比较紧张。
 
-Schöfbeck随后得出结论， 根据他们的数据， 德国对“ 疫苗副作用的报道严重不足”。
+数据显示，A股国防军工板块劲扬，中证中航军工主题指数收涨0.8%。
 
-Nordkurier 报纸周三报道， BKK发出的另一封信表明， 德国各地报告的疫苗接种副作用比PaulEhrlich研究所报告的数量至少高出10倍。
+中信证券于报告中表示，目前煤价走势强于之前预期，俄乌冲突或进一步抬升国内煤价预期。
 
-Schöfbeck 的信也被发送到德国疫苗接种常务委员会和德国医学学会。
+参考链接：[沪综指收低1.7%创四周最大跌幅 俄乌战争阴云笼罩重挫风险情绪](https://cn.reuters.com/article/china-stock-market-close-ukraine-0224-idCNKBS2KT0U2?il=0)
 
-这些信件没有详细说明副作用的严重程度，也没有提供症状的细节或者是哪些疫苗引起了副作用。德国药品监管机构已批准辉瑞、阿斯利康、强生、诺瓦瓦克斯和莫德纳。
+***发布：******Candy***
 
-原文链接：[https://www.eventiavversinews.it/assicurazione-sanitaria-tedesca-con-11-milioni-di-utenti-gli-effetti-collaterali-del-vaccino-covid-19-sono-molto-maggiori-di-q](https://www.eventiavversinews.it/assicurazione-sanitaria-tedesca-con-11-milioni-di-utenti-gli-effetti-collaterali-del-vaccino-covid-19-sono-molto-maggiori-di-q)
-
-编辑、上传： Xiao  baige
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

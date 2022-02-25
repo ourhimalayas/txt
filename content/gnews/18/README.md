@@ -2,34 +2,179 @@
 ---
 
 
-## 短视频：夸大新冠病例数量，推广致命药物和“疫苗”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2061045/)
+## H-PAY上线后，打通了十二经与六脉，俄罗斯，乌克兰流通最大，第二是日本
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2061120/)
 
-翻译：Frank
-校对：枳实
-字幕：小强
-编辑：文泓
+[https://gtv.org/video/id=621810091408ee3a03a462e4](https://gtv.org/video/id=621810091408ee3a03a462e4)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image01-3.png)图片来源：视频截屏
+现在我们安卓版的H-pay已经上线了
+Ahora nuestra versión Android de H-pay ya está en línea
 
+苹果商店过两天就是苹果的iOS HDO了
+iOS HDO de Apple estará en la Apple Store en dos días
 
-在看了所有的东西，我们今晚听到的所有证据，包括你自己的证据，这是不是一个公平的结论？
+今天的H-pay的上线
+El lanzamiento de hoy de H-pay
 
-第一，大流行病是一种假象，而这个假象是由一个错误的PCR测试造成的；第二，他们利用这种假象来使用致命的药物；然后第三，让人们相信这是病毒造成的；然后第四，使用疫苗，而它们与瑞德西韦等药物同样致命。
+等于什么, 喜联储, 喜币被打通了这个七通六脉
+En qué consiste esto, la Reserva Federal de Himalaya y su moneda se han abierto
 
-这绝对是假象。但是，不能低估其中的腐败。皮埃尔·科里博士一直在说，这是一个不停地制造死亡和伤害的明显腐败企图。核酸检测不能确定你是否有新冠，或任何呼吸道病毒，这是一个有缺陷的测试，错误的循环次数的设置，其目的就是夸大新冠病毒感染的病例数量。
+今天就像通了天的天梯一样
+Así como la escalera que dirige hacia el cielo
 
-2020年3月，我们的美国疾病控制与预防中心(CDC)向全国各地的医院发布了文件，托马斯·伦茨，就此事提起了诉讼，文件中说从2020年3月开始，所有医院，病人就诊时，如果你测试他们的甲型或乙型流感是阳性的，但他们测试肺炎是阴性的，新冠的核酸检测也是阴性的。他们自己的文件中就是这么说的，如果你查看病人的登记表，看看他们的家庭地址。如果在他的城市，媒体报道过有新冠的阳性病例，那么你就可以把这个病例称为新冠的阳性病例，记录在案，并且会因为这个诊断而给你20%的额外津贴，而非根据测试结果诊断为流感。然后他们对肺炎也做了同样的事情。
+他绝对不是H-coin to the moon
+Esto absolutamente no es H-Coin to the moon
 
-视频链接：[The Vigilant Fox 🦊 在 Twitter: “Dr. Bryan Ardis explains the “illusion” of the current world sickness, in which doctors are incentivized to make COVID diagnoses even if patients don’t test positive. https://t.co/efwepl9Hha” / Twitter](https://twitter.com/vigilantfox/status/1493328770039783424?s=21)
+这回的H-Coin
+El H-Coin de esta vez
 
-发布：文泓
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+梦想成真谁都挡不了
+Nadie puede detener este sueño hecho realidad
+
+你们知道背后的交易就是H-pay
+Ustedes saben que detrás de las transacciones es el H-pay
+
+就是上线, 我就有些话我是不能说的
+Es lo que decimos que está en línea, hay palabras que no puedo decir
+
+你知道共产党开出的天价
+Saben el precio altísimo que cobra el Partido Comunista
+
+就包括现在要去参加冬奥会开幕式的
+Incluyendo los que ahora van a asistir a la ceremonia inaugural de Los Juegos Olímpicos de Invierno
+
+前三号人物
+Los tres primeros personajes
+
+在中国的北方的
+En el norte de China
+
+团队当中有俩人
+Hay dos personas dentro del grupo
+
+就在上星期
+En la semana pasada
+
+告诉我说你H-pay, 你确定你31号能上线吗
+Me dijo que el H-pay, ¿estás seguro que puede estar en línea el 31?
+
+我说你什么意思
+Le dije, qué quieres decir con eso
+
+他说俺国老大要去你们(中共)那开冬奥会
+Dijo que, el jefe de nuestro país va para allá (PCCh) a realizar el Juego Olímpico de Invierno
+
+开完冬奥会世界大变
+Luego del Juego, habrá un gran cambio en el mundo
+
+他说俄罗斯会被美国严重制裁
+Dijo que Rusia será severamente sancionada por Estados Unidos
+
+俄罗斯会国家启用人民币
+Rusia permitirá el uso de renminbi en el país
+
+他说我现在就把我的钱捣腾出去
+Dijo que gastaré mi dinero ahora
+
+我美国去不了, 欧洲我也去不了
+No podré ir a EE. UU ni Europa
+
+我去哪啊, Miles
+A dónde voy Miles
+
+就现在, 就你这一个兄弟了
+En este momento, solamente te tengo a ti como hermano
+
+他说就现在关键你那不能支付啊
+Y dijo que ahora lo más importante es que todavía H-pay no se puede realizar pagos
+
+我这每天还得跟这些人之间什么油啊, 气啊, 对价啊
+Yo todos los días tengo que tratar con esta gente sobre petróleo, gas y precios
+
+天大的数啊
+Es una gran cantidad
+
+他说我可以让一个HDO
+Él dijo que él puede hacer que un HDO
+
+代表一个亿
+Represente cien millones
+
+他说
+Él dijo
+
+我们已经完成了N笔交易
+Ya logramos incontables transacciones
+
+你没想到吧
+No lo habías pensado, cierto
+
+我们的喜币最大的流通一定是俄罗斯还有乌克兰
+La mayor circulación de nuestra moneda de Himalaya seguro estará en Rusia y Ucrania
+
+我们不想发战争的财
+No queremos hacer riqueza de la guerra
+
+但是没有一次人类的财富转移
+Pero no hay ni una sola transferencia de la riqueza humana
+
+没有一次人类货币金融系统诞生跟战争没关系
+No hay una sola vez donde el nacimiento del sistema financiero de la moneda humana no tenga relación con la guerra
+
+没有一次
+Ni una sola vez
+
+日本是第2个最大的HDO的市场
+Japón es el segundo mercado más grande de HDO
+
+你去看看日本接下来会接受H币吗
+Verás si seguidamente Japón aceptará la moneda de Himalaya
+
+H-Coin, H-Dollar会买啥, 吓死你们
+Con qué se puede comprar el H-Coin y el H-Dollar, ustedes se asustarán
+
+你想想他从初级
+Piensas que él desde lo más básico
+
+从一个模型
+Desde un modelo
+
+现在只是个模型, 在你桌子上的模型
+Ahora es solamente un modelo, un modelo que está en tu mesa
+
+他变成有发动机
+Él se convertirá en un motor
+
+有引擎, 有燃料
+Tiene un motor con combustible
+
+开始运行听到声音开始开
+Empieza a funcionarse y se escucha el sonido
+
+意味着什么
+Qué significa esto
+
+**原视频网址**：[https://gettr.com/post/ptm5bz4e10](https://gettr.com/post/ptm5bz4e10)
+
+日期：02/21/2022
+原视频标题：H-PAY上线后，打通了十二经与六脉，俄罗斯，乌克兰流通最大，第二是日本
+Tras el lanzamiento de H-pay, se han abierto los caminos, Rusia y Ucrania tendrán la mayor circulación, el segundo será Japón
+
+原视频日期：02/10/2022
+**原视频网址**：[https://gettr.com/post/ptm5bz4e10](https://gettr.com/post/ptm5bz4e10)
+任务编号：KC461（3717）
+视频时间段：0:00-02:19
+
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-文新
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

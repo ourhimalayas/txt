@@ -2,35 +2,31 @@
 ---
 
 
-## 短视频：贿赂医院做出虚假新冠诊断，从而推广致命药物
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2061131/)
+## 有声|欧盟理事会主席以环保为由继续与中共勾兑
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2061265/)
 
-#### 翻译：Frank
-校对：枳实
-字幕：小强
-编辑：文泓
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+2月20日在慕尼黑安全会议上，欧盟理事会主席米歇尔声称欧洲若想克服气候和数字隐私方面的障碍，就必须和中共合作，建立更深层的经济联系。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/image01-5.png)图片来源：视频截屏
+欧洲高层人士只是口头上表示会支持解决中共国迫害人权的行为，但1200亿欧元的投资协议并未涉及新疆、香港、西藏乃至整个中共国大陆的人权迫害行为，同样也并未要求中共在工厂和农田中解除现代奴隶制，并暗示中共可以继续执行强制劳工的政策。
 
+在过去一个月中，因立陶宛的坚持，欧盟开始对中共采取强硬的立场，但德国的一些派别仍不愿与中共对抗，他们害怕失去中共所谓的巨大市场。另外欧盟-中共投资条约的主导者正是德国的前总理默克尔，德国大众、Hugo boss、宝马等公司都从新疆强迫劳工中获利。德国一直要求立陶宛放弃与中共对抗，因立陶宛收到中共的制裁，影响到德国的整个供应链。欧盟理事会主席米歇尔一直支持与共产党深度勾兑。在中共支持的塔利班占领阿富汗美国无奈撤出之后，米歇尔表示既支持美国，也支持中共。
 
-因此，从2020年3月开始，他们开始激励医院和临床医生给出给出错误的新冠诊断，即使他们的核酸检测并没有阳性。而且他们奖励这种行为。因此，是的，这是一个假象，由我们的联邦卫生机构精心策划，夸大了新冠的病例，夸大了新冠导致的死亡。而且他们把它们称为新冠的并发症。而且我肯定会呼吁尽可能多的原告（加入诉讼），他们的亲人在世界各地的医院中接受了瑞德西韦治疗而死亡。
+文字版原文：[欧盟理事会主席以环保为由继续与中共勾兑](https://gnews.org/zh-hans/2053035/)
 
-实际上，我已经鼓励，请求，而且我已经收到了来自世界各地的数千份（加入诉讼的申请）。我要求他们看一下死亡证书，你会看到他们死于新冠的并发症。第二诊断是，死于急性肾衰竭，他们死于再次发作的新冠肺炎的并发症。
+音频处理：Fei797
+发稿：Fei797
 
-这不是新冠肺炎的再次发作，当你关闭了肾脏，然后用一个静脉注射袋，把液体漫灌到某人的静脉中，他们无法从他们的肾脏排泄，你会造成液体充满他们的腹部，然后灌满他们的心脏，然后渗透到肺中，他们就这样被淹死了。而这就叫做肺水肿。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-1.jpg)
 
-因此，我呼吁大家尽可能多地让这些人参与进来，提供更多这些实际信息。我们知道这就是药物的作用。是的，他们是死于病毒是一种假象。他们是被不明智的治疗方案毒死的。绝对是这样。他们还被要求和被奖励以做出更多（新冠）诊断，以人为地夸大阳性病例数量。
-
-视频链接：[The Vigilant Fox 🦊 在 Twitter: “Dr. Bryan Ardis explains the “illusion” of the current world sickness, in which doctors are incentivized to make COVID diagnoses even if patients don’t test positive. https://t.co/efwepl9Hha” / Twitter](https://twitter.com/vigilantfox/status/1493328770039783424?s=21)
-
-发布：文泓
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

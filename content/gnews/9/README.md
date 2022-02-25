@@ -2,11 +2,23 @@
 ---
 
 
-## 2/23/2022 文贵直播：普京在乌克兰玩弄的招数将最终将导致欧美以中共支持俄罗斯为理由制裁中共国
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2061124/)
+## 20220223郭文贵大直播 ：中共法官当庭强奸律师
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2061237/)
 
-秘密翻译组-北美组
+作者：东京樱花团小视频组
 
+![](https://assets.gnews.org/wp-content/uploads/2022/02/20220224-13-中共法官当庭强奸律师.png)
+
+
+
+
+
+校对：东京樱花团小视频组
+
+编辑发布：东京樱花团小视频组
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
