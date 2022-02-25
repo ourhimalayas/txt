@@ -2,29 +2,28 @@
 ---
 
 
-## 有声｜美抗议者聚集白宫门前敦促拜登采取行动制止战争
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2062729/)
+## 有声｜俄乌开战之际 9架共机扰台遭驱离
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2062766/)
 
 By:**秘翻新闻**
 
 **2022-02-25**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8-36.png)图片来源 华盛顿观察家报
-《华盛顿观察家报》2月24日报道，周四下午，美国大批抗议者冒着严寒聚集在白宫门口，敦促总统拜登对俄罗斯入侵乌克兰采取更严厉的措施，立即制止这场战争。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/9-32.png)图片来源 大纪元（国防部提供）
+大纪元2月24日消息，俄罗斯对乌克兰出兵开战之际，中共24日派遣9架共机侵扰台湾西南防空识别区，遭中华民国空军广播驱离。
 
-据报道，一位名叫凯特的乌克兰抗议者告诉记者，所有在乌克兰和在这里的乌克兰人都被吓坏了。他们感到非常愤怒，并希望拜登能采取行动，阻止这场战争。
+中华民国国防部昨天晚间在官网“即时军事动态”专区发布中共军机动态，称中共有8架歼16战机、1架运8技侦机侵扰台湾西南防空识别区，台空军派遣空中巡逻兵力应对，并施以广播驱离、防空飞弹追踪监控。
 
-凯特继续说道，入侵是突然的，发生在当地时间周四凌晨。当时没有人愿意相信这是真的。他们来到白宫前面是为了抗议这种侵略行为。
+中华民国外交部昨天就24日俄军对乌克兰境内展开军事行动一事表态。外交部严厉谴责俄罗斯对乌克兰的侵略行动。同时，外交部再次强烈呼吁仍留在乌克兰的所有国人应立即离境，尽快以陆路方式前往乌克兰西边地区及进入波兰境内避难。
 
-报道称，抗议者们高呼“站在乌克兰一边”、“立即支持乌克兰”、“立即停止战争”和“我们要求制裁”等口号。
+新闻来源
+[**https://www.epochtimes.com/gb/22/2/24/n13602643.htm**](https://www.epochtimes.com/gb/22/2/24/n13602643.htm)
 
-新闻来源[**https://www.washingtonexaminer.com/news/stand-with-ukraine-protesters-gather-at-white-house-and-call-on-biden-to-act**](https://www.washingtonexaminer.com/news/stand-with-ukraine-protesters-gather-at-white-house-and-call-on-biden-to-act)
-
-秘翻新闻  冰糖葫芦喵 编译报道
+秘翻新闻 二丫编辑报道
 
 发布 : 恩典
 
 * * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMAGE-2022-02-19-171240.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
