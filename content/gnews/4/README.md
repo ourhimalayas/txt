@@ -2,44 +2,33 @@
 ---
 
 
-## Facebook再次发生大规模宕机事件
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2065920/)
+## 斯托尔滕贝格称北约盟国将向乌克兰提供更多武器
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2066023/)
 
-作者：银河系农场 — 骄子
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-65.png)
-
-
-据外媒报道，2月22日美东时间下午5:08分左右，Facebook开始弹出服务停机报告，目前已经监测到大约4000起该事件。用户无法访问Facebook新闻提要，并且系统不断弹出程序出错的提示。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-25-1.jpg)图片来源网络
-
-然而Facebook的状态页面显示，该服务已经启动并运行，无任何已知问题。用户通过桌面浏览器访问个人资料时，同样显示无法连接。 据悉该停机事件只针对那些需要访问新闻提要的用户，大部分用户的此功能已经被关闭使用。发生宕机事件的时候，Facebook没有任何官方通知公布此事，大约在一个小时后，美东时间下午6:12分，该功能才被慢慢恢复过来。
-
-相关链接：
-
-[Facebook is down for people everywhere right now (updated)](https://knowtechie.com/yup-facebook-is-down/)
-
-![This image has an empty alt attribute; its file name is Feb-55.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-55.jpg)
-
-编辑/校对/发稿：Petite abeille
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is good-66.png](https://assets.gnews.org/wp-content/uploads/2022/02/good-66.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/02/VPNCR7GZGZJDBAOICEBWD4SJOQ.jpg)
 
 
+图片来源： 路透社
 
+北约秘书长延斯·斯托尔滕贝格周五表示，该联盟正在部署其部分战备反应部队，并将继续向乌克兰运送包括防空系统在内的武器，同时表示俄罗斯正试图推翻乌克兰政府。
+
+他在北约领导人虚拟会议后的新闻发布会上说：“我们看到了言辞和信息，这些信息强烈表明其目的是推翻基辅民选政府。”
+
+他说，30个北约盟国中的一些宣布了他们将向乌克兰供应的武器类型，包括防空系统，但没有提供细节。 “盟国非常致力于继续提供支持，”他说。
+
+斯托尔滕贝格说，北约正在盟国领土上部署其快速反应部队，该部队由陆地、空中、海上和特种作战部队组成。
+
+“我们现在首次在集体防御的背景下部署北约反应部队，”他说。
+
+另外，德国宣布将向斯洛伐克部署一个连队部队，士兵们将在那里建立一个新的北约战斗群的一部分。
+
+德国还将向北约东翼派遣一个爱国者导弹防御系统，并配备大约300名士兵来操作它。目前尚不清楚该系统的确切位置。
+
+🔗 [斯托尔滕贝格称北约盟国将向乌克兰提供更多武器](https://www.reuters.com/world/europe/nato-allies-provide-more-weapons-ukraine-stoltenberg-says-2022-02-25/)
+
+编辑发表： Shuizhuyu
 
  
 

@@ -2,30 +2,36 @@
 ---
 
 
-## 2022.2.25大直播 特鲁多成为弃子 加拿大将欲火重生
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2065183/)
+## 俄乌危机致全球粮食价格大幅上涨
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2065480/)
 
-撰稿：大浪小水花
+作者：银河系农场—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月23日，据相关媒体消息显示，俄罗斯与乌克兰、美国和欧盟之间日渐加剧的危机可能会给全球粮食供应带来更大的压力。目前，小麦、玉米、葵花油等基础作物的价格正在一路攀升。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-25-at-9.29.27-PM.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Slide8-8.jpeg)
 
+数据表明，俄罗斯和乌克兰拥有全世界80%的葵花油出口、29%的小麦出口和19%的玉米出口，中东很多国家的粮食供应都依赖于此。然而，由于近期双方战争局势的恶化，黑海的运输港口眼下已经被切断，从而导致了俄乌粮食出口的中断。
 
-郭文贵先生在2022年2月25日大直播中谈到了加拿大总理特鲁多推出紧急法的影响。
+另一方面，自俄罗斯向顿涅茨克和卢甘茨克派遣军队之后，各国对其的经济制裁不断加码，这严重破坏了世界粮食供应的稳定性，而美国的粮食期货价格也因此不断飙升。另外，重度依赖粮食进口的北非、亚洲和中东地区同样被大范围影响。
 
-郭先生提到，加拿大拥有西方的英式的立法系统，还有一个真正的司法系统和决策系统。但加拿大没有独立的金融，加拿大是美国一个跟班的角色，加拿大跟美国一个州没有什么区别，加拿大总理特鲁多，就相当于共产党的香港一特区行政特首。特鲁多推出紧急法，实际是美国和达沃斯党为了保护美国的经济利益授意他推出的，紧急法推出后特鲁多就被达沃斯党和美国抛弃了。
+当前，乌克兰所处的黑海地区是军事冲突的聚焦点，平常繁忙的商业运输如今因军事升级而被中断。经济学家表示，该地区的粮食供应中断将会导致全球粮食价格的飞涨。
 
-郭先生指出，加拿大是世界上包容性最强的地方之一，加拿大人是最听话的国民。在加拿大底层人占了将近百分之七十，是这个国家稳定的基石。加拿大的紧急法触动了加拿大底层人的利益，让底层人没有了安全感。
+参考链接：[Russia-Ukraine crisis will put even more strain on the global food supply, driving up prices of wheat and corn around the world](https://newstarget.com/2022-02-23-russia-ukraine-crisis-more-strain-global-food-supply.html)
 
-特鲁多把加拿大社会的基石给毁了，金融系统被彻底破坏，媒体被百分之百控制，更夸张的是，特鲁多把香港政府那一套全搬来加拿大对付加拿大人。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二月小图.tif)
 
-紧急法的推出让加拿大人彻底看清了加拿大和美国的可悲关系，而且加拿大大卡车运动开启了永远的街头政治的噩梦。
+总编：Irene木木
+编辑：静言
+校正/发稿：谐趣园
 
-郭先生表示，经过这次危机，加拿大一定会置之死地而后生，成为一个新兴的帝国。
-
-
-
-参考链接：[2022年2月25日文贵大直播](https://gtv.org/broadcast/watch/6218d34708ba8a07b1a341e8)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
