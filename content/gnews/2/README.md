@@ -2,28 +2,23 @@
 ---
 
 
-## 盐野义向日本政府报批中共病毒口服药物
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2063133/)
+## 中共国帮助俄罗斯并购买其粮食，澳大利亚抗议
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2063276/)
 
-撰稿：东京樱花团/asket
+翻译/整理: 萧亦
+![](https://assets.gnews.org/wp-content/uploads/2022/02/02251.jpg)图片来自L indro
+在普京开始入侵乌克兰几个小时后，中共国同意从俄罗斯所有地区进口小麦和大麦，从而为这位莫斯科朋友提供了一个替代西方市场的替代方案，因为俄罗可能很快因国际制裁而关闭，此时的中共成为了救恩之首。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/盐野义向日本政府报批中共病毒口服药物.jpg)[图片来源](https://www.nasdaq.com/articles/japans-shionogi-seeks-approval-for-covid-19-pill)
+该协议于 2 月 8 日签署，几天前，普京在冬奥会期间访问了北京，这似乎有助于习近平和普京在世界范围内巩固其友谊。但中共国海关总署的确认就在昨天，意义重大。
 
-东京，2月25日（路透社）–制药商盐野义Shionogi & Co Ltd周五表示，该公司已经申请批准在日本生产和销售其口服治疗中共病毒COVID-19的药物。
+俄罗斯是世界上最大的小麦生产国之一，但是直到去年 10 月，中共国才重新开始从俄罗斯远东进口小麦：第一批 667 吨被该国最大的农业食品公司国有巨头中粮集团收购.
 
-该药物被称为S-217622，将成为该国继辉瑞公司和默克公司开发的药物之后，第三个被批准用于中共病毒患者的抗病毒药。
+关于放宽北京与莫斯科的贸易限制的第一批抗议来自澳大利亚。堪培拉总理斯科特·莫里森今天早上第一个批评中共国政府的举动。总理在新闻发布会上说：“当俄罗斯入侵另一个国家时，你不应向俄罗斯施以援助之手”。
 
-盐野义公司在一份声明中说，在完成日本和韩国的II/III期临床试验的IIb阶段后，它正在寻求有条件地提前批准该药物。
+原文链接: [https://www.repubblica.it/esteri/2022/02/25/news/ucraina\_russia\_cina\_compra\_grano\_russo\_australia\_protesta-339173888/](https://www.repubblica.it/esteri/2022/02/25/news/ucraina_russia_cina_compra_grano_russo_australia_protesta-339173888/)
 
-该研究涉及428名患者，在减少病毒滴定浓度方面达到了主要终点；但在减少12种中共病毒症状方面，没有显示出明显的差异。
+责任编辑/发布:意大利达芬奇农场   萧亦
 
-本月，首席执行官Isao Teshirogi说盐野义公司可以在3月底前为一百万人提供足够的剂量。
-
-信息来源：[Japan’s Shionogi seeks approval for COVID-19 pill](https://www.nasdaq.com/articles/japans-shionogi-seeks-approval-for-covid-19-pill)
-
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

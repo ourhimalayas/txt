@@ -2,56 +2,26 @@
 ---
 
 
-## 哀叹
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2062808/)
+## 中日财经爆|受中共病毒影响 日本车企产量连续下降
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2062920/)
 
-作者：纽约香草山教育部—蓝之灵（Hortensia)
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-当蜘蛛哀叹
-结网不再安全
-蝼蚁命如草芥
-你期望的昌盛
-可还有期待
+撰稿：东京樱花团/peterwong
 
-当她无助悲泣
-被锁二十四年
-全村人共同作恶
-你期望的良知
-可还在
+![](https://assets.gnews.org/wp-content/uploads/2022/02/受中共病毒影响-日本车企产量连续下降.jpg)[图片来源](https://www.sohu.com/a/466454253_129829)
 
-他们
-对尊严予取予夺
-对生命予死予杀
-你只是韭菜
-血已流干
-难以醒来
-在梦里
-你过得欢快
+2月25日，日本8大汽车公司公布的1月份全球产量为191,651万辆，同比下降9.8%。这是三个月来首次跌破200万辆，连续七个月同比下降，因受芯片短缺和中共病毒（新冠病毒Covid-19）毒感染的影响。
 
-多少次呼唤
-只换来白眼
-在梦里
-你过得欢快
-我们
-只好
-哀叹
-哀叹
+丰田的产量下降了14.9%，约为63万辆。该公司曾预计在12月生产约80万台，但由于感染蔓延，被迫调整生产，例如关闭日本、中国和北美的工厂。日产汽车的产量下降了19.5%，至约29.9万辆，这是四个月来首次跌破30万辆。
 
-- **审稿/校对/发稿：**qiutian（邱甜）
+国内8家企业共生产51万6,605辆，同比下降20.9%，降幅更大，与他们有业务往来的零部件工厂确认感染者，整车工厂陆续停工。
 
+消息来源:
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1-2.png)
+[自動車主要８社、１月の世界生産台数９・８％減…７か月連続の前年割れ](https://www.yomiuri.co.jp/economy/20220225-OYT1T50205/)
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
