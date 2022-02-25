@@ -2,39 +2,58 @@
 ---
 
 
-## 樱花FM|失败的冬奥促习侵台决心 同时中共释放乌白军演烟雾弹
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2061569/)
+## 世界需要看到白宫的强有力政策,而不仅仅是口炮
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2061609/)
 
-音频：东京樱花团/战友520
-![](https://lh3.googleusercontent.com/fGHUIGJPfFSETHdntusZDHuXdZMpQs8WfliRYiKS7mtzXJ57o6-MTwVLSIEVL9YIk6stGxFbfxW24PIoKutYYRNpdZ4CjY9sXOWE5pHSQn9ehktnt5gyjYtLQOJwQJDuQdZBXJdj)
-- **习近平正在酝酿对台湾战争的整个作战计划；**
-- **世界大战一触即发，俄军发动乌克兰战争将是一场历史转折点；**
-- **正乌克兰国防部：迎接敌人的方式不是鲜花，将是“毒刺”。**
+众议员迈克.华尔兹： 这是一个历史性的黑暗时刻。 世界需要看到白宫的强有力政策，而不仅仅是口炮。 拜登的威慑手段失败了。 他必须制裁普京和他的寡头，并承诺支持乌克兰抵抗俄罗斯将其变为泥潭。
 
 
-据中共国新华社15日消息，[乌克兰国防部](https://www.mil.gov.ua/)长列兹尼科夫14日与白俄罗斯国防部长赫列宁通电话，双方同意互派武官观摩对方演习。据说，此次通话旨在恢复对话、降低风险水平、确保地区安全，以排除突发情况，并相互通报紧急情况。
 
-问题是，突发情况已经在酝酿中，始作俑者中共国习近平正在为酝酿“突发情况”做准备。据郭文贵先生美国当地时间14日透露，冬奥会开幕式后8天没见习近平露面，习和他的团队所有人在处心积虑地酝酿一场对台湾战争的整个作战计划。这就是爆料革命一直在向世界发出战争预警，因为“只有爆料革命告诉全世界，普京和习近平在2020年和2021年都已经密谋好，你（中共）取台湾，我（俄罗斯）取乌克兰，而这一天就要来了。”（[见 7:21分时段](https://gettr.com/post/puh5sv8f69)）
-
-- ***延展阅读：***[***欧盟-挪威敦促其公民避免前往乌克兰、白俄罗斯和俄罗斯***](https://www.schengenvisainfo.com/news/norway-urges-its-citizens-to-avoid-travel-to-ukraine-belarus-russia/)
-
-
-狼真的来了！中共国新华社的“乌白军演”讯息旨在释放的战前烟雾弹。乌克兰和白俄罗斯在2013年前曾有军事互动，之后两国因为俄罗斯的缘故处于敌对状态，新华社此举旨在进一步安抚国内强大的俄中同盟关系的又一次洗脑而已。
-
-俄乌剑拔弩张，问题严峻，在强敌面前，乌克兰国防部长誓言军方绝对准备好反击，而不是去白俄罗斯观摩所谓军演。不过，发生在白俄罗斯的军事演习是真的，据称，俄军已于 1 月中旬开始抵达白俄罗斯，预计约有 30,000 名作战部队将参加被称为“联合决心”的演习。因为，[俄罗斯在白俄罗斯的军事演习旨在向乌克兰“传达信息](https://www.aljazeera.com/news/2022/2/9/russian-war-games-in-belarus-designed-to-send-ukraine-a-message)”，而不是邀请乌克兰观摩“俄白联盟”如何侵吞乌克兰。
-
-- ***延展阅读：***[***不只是乌克兰 – 俄罗斯与白俄罗斯的联合被忽视了***](https://www.forbes.com/sites/craighooper/2022/02/14/its-not-just-ukraine-russias-anschluss-in-belarus-has-gone-unnoticed/)
+> This is a historic & dark moment. The world needs to see strong policies from the White House, not just rhetoric.
+> 
+> Biden's approach to deterrence has failed. He must sanction Putin & his oligarchs & commit support to Ukraine's resistance to turn this into a quagmire for Russia. [pic.twitter.com/YoP979Q7Af](https://t.co/YoP979Q7Af)
+> — Rep. Mike Waltz (@michaelgwaltz) [February 24, 2022](https://twitter.com/michaelgwaltz/status/1496897460530077698?ref_src=twsrc%5Etfw)
 
 
-乌克兰在被俄军包围下仍未选择屈服，而是背靠强大的北约和美军的坚定支持准备与俄军决一死战。根据美国[国会山](https://thehill.com/policy/defense/594001-ukrainian-defense-minister-vows-military-is-absolutely-ready-to-fight-back?rl=1)消息，面对俄军随时入侵的可能，乌克兰军方誓言绝地反击，称“乌克兰武装部队准备用“毒刺”而不是“鲜花”来迎接俄罗斯军队。”
 
-乌克兰态度明确，乌克兰国防部长表示，“自2014年俄罗斯吞并乌克兰的克里米亚半岛以来。当‘兄弟’明目张胆地在背后捅刀时，军队和志愿者们设法站稳了脚跟。那个时候，很多人还没有做好抗拒昨天同桌的心理准备。”雷兹尼科夫说，“克里姆林宫很清楚这一点，这是一个重要的威慑，今天，我们拥有过去 15 年来乌克兰最强大的军队和欧洲最强大的军队。”
+白宫： 作为对普京总统无端侵略乌克兰的回应，美国以及盟国和合作伙伴正在让俄罗斯立即付出严重的经济代价。 （附白宫网站对俄制裁部分清单） 切断了俄罗斯最大的金融机构俄罗斯联邦储蓄银行与美国金融体系的联系，包括25家子公司 对俄罗斯第二大金融机构国家开发银行银行进行全面封锁性制裁，包括20家子公司 对俄罗斯其他三家主要金融机构的全面封锁制裁:Otkritie银行、Sovcombank OJSC和Novikombank——以及34家子公司。 对俄罗斯13家最关键的主要企业和实体实施新的债务和股权限制。 针对俄罗斯精英及其家族成员的全面制裁还包括:谢尔盖·伊万诺夫(和他的儿子谢尔盖)、安德烈·帕特鲁舍夫(和他的儿子尼古拉)、伊戈尔·谢钦(和他的儿子伊万)、安德烈·普切科夫、尤里·索尔维耶夫(和他拥有的两家房地产公司)、加林娜·乌柳蒂娜和亚历山大·维迪亚辛。 白俄罗斯为支持进一步入侵乌克兰而制裁24名白俄罗斯个人和实体的代价 对俄罗斯军队的全面限制打击了普京的军事和战略野心。
 
-文字版原文：[失败的冬奥促习侵台决心 同时中共释放乌白军演烟雾弹 – GNEWS](https://gnews.org/zh-hans/2011305/)
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-2.png)
+
+> In response to President Putin's unprovoked aggression against Ukraine, the United States, along with Allies and partners, is imposing severe and immediate economic costs on Russia.
+>  
+> Read more: [https://t.co/L83Q2uFwKx](https://t.co/L83Q2uFwKx) [pic.twitter.com/kpxfNmQvxM](https://t.co/kpxfNmQvxM)
+> — The White House (@WhiteHouse) [February 24, 2022](https://twitter.com/WhiteHouse/status/1496932207088259076?ref_src=twsrc%5Etfw)
+
+
+
+参议员乔石.霍利： 被 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) [#china](https://gettr.com/hashtag/%23china) 国家宣传者攻击总是一种特殊待遇。我只想说：不要把本届政府的软弱误认为美国的衰落。 美国很强大，而且还会变得更强大。 我们永远不会允许中国共产党主宰世界 （转环球时报推文：美国政界人士知道，美国没有信心，也没有决心在台海与另一个大国再次摊牌。 所以@SenToddYoung 和@HawleyMO 敦促美国采取更强硬的行动，这样他们就可以隐藏美国衰落带来的尴尬。）
+
+
+
+> Always a privilege to be attacked by the [#china](https://twitter.com/hashtag/china?src=hash&amp;ref_src=twsrc%5Etfw) state propagandists. I’ll just say this: Don’t mistake this Administration’s weakness for American decline. America is strong and will grow stronger yet. And we will never permit the Chinese Communist Party to dominate the world [https://t.co/LwZ6COOO7J](https://t.co/LwZ6COOO7J)
+> — Josh Hawley (@HawleyMO) [February 24, 2022](https://twitter.com/HawleyMO/status/1496891513502318592?ref_src=twsrc%5Etfw)
+
+
+
+参议员瑞克·斯科特： 我赞赏欧洲议会支持台湾，加强两岸关系，呼吁台湾海峡和平稳定。随着共产主义中国继续加强对台湾的侵略和威胁，每一个热爱自由的国家都必须加入美国和欧盟支持台湾。 （转关注台湾网站：欧洲议会周四通过了两项安全政策。）
+
+
+
+> I applaud [@Europarl\_EN](https://twitter.com/Europarl_EN?ref_src=twsrc%5Etfw) for standing up for Taiwan, strengthening ties & calling for peace & stability in the Taiwan Strait. As Communist China continues its heightened aggression & threats against Taiwan, every freedom-loving nation must join the U.S. & EU in support of Taiwan. [https://t.co/a66oQZPTFu](https://t.co/a66oQZPTFu)
+> — Rick Scott (@SenRickScott) [February 24, 2022](https://twitter.com/SenRickScott/status/1496935767083528205?ref_src=twsrc%5Etfw)
+
+
+
+比尔.格茨： 迄今为止最明确的迹象表明，中共国支持俄罗斯对乌克兰的军事侵略。 也暗示北京将把俄罗斯从西方制裁中拯救出来 【附华盛顿时报报道：中共国指责美国 煽动乌克兰冲突】
+
+
+
+> Clearest indicator so far that China is backing Russian military aggression in Ukraine. Also signals Beijing is set bail out Russia from western sanctions [https://t.co/v7RAXvMtfe](https://t.co/v7RAXvMtfe)
+> — Bill Gertz (@BillGertz) [February 24, 2022](https://twitter.com/BillGertz/status/1496996365041168398?ref_src=twsrc%5Etfw)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

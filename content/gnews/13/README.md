@@ -2,11 +2,13 @@
 ---
 
 
-## 2/24/2022 文贵紧急直播：中共一定打台湾！战友们不要投机、在军事基地周围的赶快跑，中共国将血流成河
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2061540/)
+## 俄罗斯入侵乌克兰 中共将乘机攻打台湾
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2061568/)
 
-秘密翻译组-北美组
-
+![](https://assets.gnews.org/wp-content/uploads/2022/02/20220225-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/yht-9.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
