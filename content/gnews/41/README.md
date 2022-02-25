@@ -2,32 +2,18 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年2月24日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2061728/)
+## 台湾宣布参与对俄罗斯经济制裁
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/2061854/)
 
-作者：香草山翻译部
+撰稿：追着曙光跑
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-20-at-4.14.11-PM-3.png)
+据台湾中央通讯社2月25日的报道，台湾总统府发言人张惇涵今日（25日）宣布，关于俄罗斯入侵乌克兰的军事行动，将参与国际社会对俄罗斯的经济制裁。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/WhatsApp-Image-2022-02-25-at-12.17.45.jpeg)图片来源：原新闻
+台湾政府严正谴责俄罗斯对乌克兰主权的侵害，以及对于区域及全球和平稳定的破坏。
 
+张惇涵表示，台湾仍呼吁各方恢复和平对话，理性解决争端。而台湾作为国际社会的一员，对于有助于和平解决争议的努力，台湾都愿意参与。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/text-SC-2-3.png)
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-新闻：[https://gtv.org/broadcast/watch/6218322908ba8a07b1a302ab](https://gtv.org/broadcast/watch/6218322908ba8a07b1a302ab)
-访谈：[https://gtv.org/broadcast/watch/62183bb508ba8a07b1a308bd](https://gtv.org/broadcast/watch/62183bb508ba8a07b1a308bd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-4.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+信息来源：[總統府：譴責俄羅斯軍事行動 台灣參與對俄經濟制裁](https://www.cna.com.tw/news/aipl/202202250047.aspx)
 
  
 
