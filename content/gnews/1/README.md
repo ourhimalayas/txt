@@ -2,40 +2,22 @@
 ---
 
 
-## 快速抗原检测试剂盒和危险物质的潜在接触
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2066056/)
+## 新中国联邦将在今年底迎来各项重大利好
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2066143/)
 
-翻译：Himaboy
-![](https://assets.gnews.org/wp-content/uploads/2022/02/23_0959202922_0.jpg)
-加拿大卫生部周四就COVID-19快速检测试剂发出一项重要警告，原因是使用时可能接触到有害物质，以及不正确使用检测溶剂有关的风险。
+加拿大温哥华扬帆农场    平民正道
 
-2月24日，卫生部表示，中毒控制中心接到的报告病例增加，为此对COVID-19快速抗原检测试剂盒发出了警报。
+据2月23日文贵大直播消息报道，随着中共国虚空经济崩溃所导致的世界金融危机，以及喜联储各项功能的日臻完善，[新中国联邦]将在今年底迎来自其成立后最大的利好时期。
 
-警告旨在提醒加拿大人有关试剂溶液误用、意外摄入或溅到皮肤上的潜在风险，提醒民众注意防范。
+报道指出，乌克兰目前的局势不仅清晰表明欧元即将崩盘的脆弱性，也体现出美国最核心利益依然还在欧洲，并因此会逐渐将其大部分高端生产力转移致欧洲，其次才会是日本。而欧美联盟的深厚渊源必将把中俄两国剔除在外。
 
-据卫生部了解，加拿大中毒控制中心接到了大约50个与意外接触有关的电话，这些接触导致了轻微的健康问题。
+同时，欧美还掌控着世界银行货币组织，世贸组织和联合国等话语权。而华尔街影子银行的本质就是极少数沼泽地参与的，兼具高风险性和高回报性的对冲基金。
 
-卫生部认为这些测试盒按要求使用是安全有效的，但测试盒带有含化学防腐剂的液体溶液，包括Sodium Azide和Proclin，如果吞食或经皮肤吸收，可能有毒，尤其是儿童和宠物。
+2022年底，中共政权及其经济全盘崩溃所造成的多米诺骨牌效应，必将祸及西方金融体系，并导致华尔街影子银行及其各大基金的彻底破产。届时，来自全球的财富和避险资金都将无毫无选择地汇入羽翼丰满的喜联储。因此，新中国联邦将在今年底喜迎各项前所未及的重大利好
 
-小剂量的Sodium Azide可以降血压，而大剂量会导致更严重的健康影响。Proclin含有的化学物质会刺激皮肤和眼睛以及过敏反应。
+* * *
 
-意外摄入或皮肤接触少量的液体溶液并不会像大剂量那样造成严重的影响，但即使是少量的液体溶液也会对小孩和宠物造成影响。
-
-来源：https://recalls-rappels.canada.ca/en/alert-recall/rapid-antigen-test-kits-and-potential-exposure-hazardous-substances
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+编辑： 平民正道    发布：平民正道
 
  
 

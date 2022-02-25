@@ -2,27 +2,30 @@
 ---
 
 
-## 新中国联邦将在今年底迎来各项重大利好
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2065674/)
+## NFSC新闻、G|TV新闻访谈简报|2022年2月25日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2065844/)
 
-采编/编辑撰稿：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-20-at-4.14.11-PM-4.png)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/Screenshot_20220225-132339.jpg)图片来源：GTV
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/02/GTV_-_Google_-25.png)
+文章仅代表作者本人观点，与Gnews无关
 
+视频参看：
+[2022.02.25早 《NFSC新闻》](https://gtv.org/video/id=6218d99a08ba8a07b1a354e1)
+[2022.02.25早 G|TV《新闻访谈》](https://gtv.org/video/id=6218e22b08ba8a07b1a36480)
 
-据2月23日文贵大直播消息报道，随着中共国虚空经济崩溃所导致的世界金融危机，以及喜联储各项功能的日臻完善，[新中国联邦]将在今年底迎来自其成立后最大的利好时期。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-报道指出，乌克兰目前的局势不仅清晰表明欧元即将崩盘的脆弱性，也体现出美国最核心利益依然还在欧洲，并因此会逐渐将其大部分高端生产力转移致欧洲，其次才会是日本。而欧美联盟的深厚渊源必将把中俄两国剔除在外。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-calendar-5.png)
 
-同时，欧美还掌控着世界银行货币组织，世贸组织和联合国等话语权。而华尔街影子银行的本质就是极少数沼泽地参与的，兼具高风险性和高回报性的对冲基金。
-
-2022年底，中共政权及其经济全盘崩溃所造成的多米诺骨牌效应，必将祸及西方金融体系，并导致华尔街影子银行及其各大基金的彻底破产。届时，来自全球的财富和避险资金都将无毫无选择地汇入羽翼丰满的喜联储。因此，新中国联邦将在今年底喜迎各项前所未及的重大利好。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：文明(添草灭共)
-
-消息来源： [https://gettr.com/streaming/pwbjub06c5](https://gettr.com/streaming/pwbjub06c5)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

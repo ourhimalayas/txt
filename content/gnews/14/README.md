@@ -2,26 +2,42 @@
 ---
 
 
-## 文贵视角2.25: 这是一场改变世界秩序改变人类的第三次世界大战
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2065846/)
+## 中共锁链国八孩女事件结果再次强奸民意
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2066055/)
 
-撰稿：Skagen
-![](https://assets.gnews.org/wp-content/uploads/2022/02/22-01-05-sat..jpg)图片来源：Jens Hage
-普京进攻乌克兰，世界面临一触即发的热战。在2022.2.25日是大直播中，郭文贵先生第一次给这场战争下了定义，他说：**这是一场完美的有计划有预谋的世界种族大屠杀。是从生化武器战争开始，进行地缘经济和政治的大掠夺。这是一场要改变世界秩序，改变全人类的第三次世界大战！**疫苗和冠状病毒的操作，是这场战争开始的初衷和手段。
+作者：香草山健身部 – 文鹰
 
-战争的原因之一是习近平和普京两人都有内部的问题。
 
-习近平怕爆料革命，怕中共内部乱。内部很危急是习近平需要干台湾的根本的原因。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/good-65.png)
+当地时间2月23日，中共媒体发表‘丰县锁链女事件调查’一文，对江苏省委省政府调查组，处理该事件通报结论表示认可。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/2-13.jpg)图片来源网络
+自该事件被网友1月17日，发布自媒体引起民众关注以来。中共为保北京冬奥会，放任地方政府造假不作为，导致舆论沸腾民意愤慨，要求真相声音高涨。 中共政府不是去解决问题，而是持续掩盖事实，打压民众了解真相压制批评声音。甚至用铁皮封锁整个事件发生地，让警察抓捕爆料人并威胁采访声援人士。 有分析人士指出：该事件是中共篡政以来最大的舆情危机，捅破了中共盛世的一个大脓包。中共党媒的宣传，是一切为了邪党的利益，在继续欺骗强奸民众民意。
 
-普京打乌克兰不是为俄罗斯所谓报仇，不是要重建前苏联的辉煌。本质是这两个独裁者的身体都不好，都做过一两次手术，都隐隐约约感到了自己的未来不太妙。
 
-第二个原因是中俄内部的政治经济压力巨大，随时自己有被内部做掉的可能，而且习近平和普京都非常清楚，明后年疫苗灾难后的经济不会好，无论国际国内都会找他俩算账，这个时候这两个独裁者就打着国家的名义和民族的名义，干一票。
 
-郭先生感叹，人类所有的伟大的民族国家利益的战争，都是以个人的私欲开始的，这是人类的悲剧。
+相关链接：
 
-来源：
+[https://new.qq.com/omn/20220223/20220223A05NQE00.html](https://new.qq.com/omn/20220223/20220223A05NQE00.html)
 
-[2022.2.25文贵大直播](https://gettr.com/streaming/pwroklf1f7)
+![This image has an empty alt attribute; its file name is Feb-55.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-55.jpg)
+
+编辑/校对/发稿：Petite abeille
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is good-66.png](https://assets.gnews.org/wp-content/uploads/2022/02/good-66.png)
+
+
+
 
  
 

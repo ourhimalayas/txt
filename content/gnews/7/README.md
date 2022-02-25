@@ -2,44 +2,20 @@
 ---
 
 
-## 乌克兰危机下,台湾正在严阵以待
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2065945/)
+## 中国强行扣留日本外交官
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2066096/)
 
-作者：银河系农场 — 骄子
+加拿大温哥华扬帆农场    平民正道
 
+据日本【京都新闻】2月23日报道，一名在北京的日本外交官此前在执行外交任务时被中共当局拘留。中共外交部对此辩称，由于该名官员从事了非法收集信息的间谍活动而将其拘留的举措是正当的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/good-65.png)
-2月23日，台北官员表示，台湾担心中共利用乌克兰日益紧张的态势来侵略台湾，尽管目前中共军方并未采取不同寻常的举动。
+日本外相林义政当天对记者表示，日本政府已通过外交渠道向中共当局提出严正交涉。并称由于该事件违反了《维也纳外交关系公约》，因此将绝不接受中方的非法扣押。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/2022-02-25-2.jpg)图片来源网络
+此外，日本驻华大使樽海秀夫也向中国外交部提出了抗议。并要求中共停止其所有扰乱外交使团安宁和损害其尊严的行径。据悉，被拘留的外交官目前已获释，暂无任何人身伤害报道。
 
-台湾在上个月成立了国家安全委员会下属的乌克兰工作组，蔡英文周三表示台湾必须加强军事活动监视，避免错误讯息。目前乌克兰与台湾问题已经被捆绑在一起，且中共近日举行了频繁的军事演习，乌克兰危机之时，中共极有可能对台湾不利。 自1949年以来，台湾一直处在中共的威胁之中。习近平与普京的军事联合使得这种威胁愈发加大，且习近平采取了和普京类似的战略。目前的乌克兰危机之下，西方欧美等国积极给予俄罗斯各种制裁，习近平虽未对台湾采取任何不同的举动，但台湾的危机犹如暴风雨前的宁静，一触即发。
+* * *
 
-
-
-相关链接：
-
-[Taiwan casts wary eye at China amid Ukraine crisis, but no immediate alarm](https://www.reuters.com/world/asia-pacific/taiwan-casts-wary-eye-china-amid-ukraine-crisis-no-immediate-alarm-2022-02-23/)
-
-![This image has an empty alt attribute; its file name is Feb-55.jpg](https://assets.gnews.org/wp-content/uploads/2022/02/Feb-55.jpg)
-
-编辑/校对/发稿：Petite abeille
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is good-66.png](https://assets.gnews.org/wp-content/uploads/2022/02/good-66.png)
-
-
-
+编辑： 平民正道    发布：平民正道
 
  
 

@@ -2,25 +2,51 @@
 ---
 
 
-## 《历史的今天》2022.02.25
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2066022/)
+## “多么罪恶”：约克地区警察工会在纽马克特拆除“棚屋”为开发让路
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2066119/)
 
-作者：superT3d (文扬)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/0225.jpeg)
-1. 2022年2月25日，文贵先生紧急直播， 中共一定攻打台湾，台湾同胞、大陆同胞保重，大陆会人道灾难严重。
-2. 2014年2月25日，比特币交易所Mt.Gox网站当机、创办人下落不明、东京办公室空荡无人，抗议民众因投资虚拟货币损失惨重。
-3. 2013年2月25日，南韩首位女总统、第18任总统朴槿惠就任。
-4. 2013年2月25日，连战会见习近平 互称“老朋友”。
-5. 2010年2月25日，乌克兰新任总统亚努科维奇宣誓就任。
-6. 2005年2月25日，玻利维亚飞机坠毁52人全幸运存活。
-7. 2004年2月25日，美国太平洋第七舰队旗舰蓝岭号访问中国，这是美中恢复交往的一项指标。
-8. 2000年2月25日，台湾陆委会正式做出措辞严厉的回应中共白皮书，白皮书内容企图影响台湾大选，暴露出中共黩武的本质和霸道思维。
-9. 2000年2月25日，民进党总统参选人陈水扁说明两岸政策，他当选总统后，两岸关係会正常化，不是恶化。
+作者：Newmarket Era
+翻译：Himaboy
+![](https://assets.gnews.org/wp-content/uploads/2022/02/22_1U3003Y.png)
+日前位于Newmarket、有着20年历史的原约克区警察工会（York Region Police Association）总部大楼被拆除，开发商买下这块土地后，计划在这里盖起60栋独立屋和142栋镇屋。
 
+Marianneville Stonehaven Limited公司此前从约克区警队买下这片40英亩的土地，并向新市政府递交过两次开发申请。
 
-* * *
+在递交了第一次申请后，该计划受到许多附近居民的反对。后来开发商修改了方案，再次递交申请。该公司副主席Joanne Barnett表示，开发商已经响应了居民的意见并做了相应修改，包括让民众更能够使用这片物业土地的自然区域。
 
-*发布：Theodosia*
+“他们仍然可以使用公共区，这些地方不会作新的开发。”我们一直在努力确保尽可能少地给现在的社区造成影响。”
+
+这个地点位于Newmarket的Bayview与Stonehaven附近。原大楼周围有一片未开发的土地。周边有居民区和餐饮、超市等商店。当时当地居民就表达出多方面的顾虑，包括开发密度、环境影响和绿化用地损失等。
+
+2月14日，这栋有着20年历史的警察工会总部大楼拆除工程正式动工。
+
+一些居民在社交媒体上对此表示失望。
+
+“多罪恶啊，”有人说道。
+
+另一位居民问：“为什么这栋楼不能
+
+改作社区用途呢？”
+
+还有人说，开发商太“贪钱了。”
+
+这栋旧大楼被拆除前，约克区警队总部已经搬到Aurora市内63 Eric T. Smith Way的一栋双层新办公大楼。这个办公地点更靠近位于Aorura市Wellington和Leslie streets附近的Don Hillock Drive上的约克区警察总部。
+
+来源：https://www.yorkregion.com/news-story/10574609–what-a-sin-york-regional-police-union-shed-demolished-in-newmarket-to-make-way-for-houses/
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

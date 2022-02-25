@@ -2,44 +2,40 @@
 ---
 
 
-## 战斗到达基辅郊区
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2065863/)
+## 快速抗原检测试剂盒和危险物质的潜在接触
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2066056/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+翻译：Himaboy
+![](https://assets.gnews.org/wp-content/uploads/2022/02/23_0959202922_0.jpg)
+加拿大卫生部周四就COVID-19快速检测试剂发出一项重要警告，原因是使用时可能接触到有害物质，以及不正确使用检测溶剂有关的风险。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/QG7IKKXHG5GTBC64TUVJRH6YMQ.jpg)
+2月24日，卫生部表示，中毒控制中心接到的报告病例增加，为此对COVID-19快速抗原检测试剂盒发出了警报。
 
+警告旨在提醒加拿大人有关试剂溶液误用、意外摄入或溅到皮肤上的潜在风险，提醒民众注意防范。
 
-图片来源： 路透社
+据卫生部了解，加拿大中毒控制中心接到了大约50个与意外接触有关的电话，这些接触导致了轻微的健康问题。
 
-在西方领导人数周的警告之后，普京周四黎明前从北部、东部和南部发动了对乌克兰的三管齐下的入侵，这是自二战以来对欧洲国家的最大袭击。
+卫生部认为这些测试盒按要求使用是安全有效的，但测试盒带有含化学防腐剂的液体溶液，包括Sodium Azide和Proclin，如果吞食或经皮肤吸收，可能有毒，尤其是儿童和宠物。
 
-普京表示，他不打算进行军事占领，只是解除乌克兰的武装并罢免其领导人，暗指在第二次世界大战中与纳粹入侵者合作对抗苏俄的乌克兰极右翼民族主义者。但除非俄罗斯军队控制该国大部分地区，否则尚不清楚如何任命亲俄领导人。
+小剂量的Sodium Azide可以降血压，而大剂量会导致更严重的健康影响。Proclin含有的化学物质会刺激皮肤和眼睛以及过敏反应。
 
-莫斯科表示，它已经占领了首都西北部的霍斯托梅尔机场——这是一个潜在的进攻基辅的中转站，自从俄罗斯伞兵在战争的最初几个小时降落在那里之后，就一直在进行战斗。这无法得到证实，乌克兰当局报告说那里发生了激烈的战斗。
+意外摄入或皮肤接触少量的液体溶液并不会像大剂量那样造成严重的影响，但即使是少量的液体溶液也会对小孩和宠物造成影响。
 
-“枪声和爆炸声在一些街区响起。破坏者已经进入基辅，”这座拥有 300 万人口的城市市长、前世界重量级拳击冠军维塔利·克里琴科说。 “敌人想要让首都跪下，摧毁我们。”
+来源：https://recalls-rappels.canada.ca/en/alert-recall/rapid-antigen-test-kits-and-potential-exposure-hazardous-substances
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/6KFINLZORRNPPADW7MUEYFVBUM.jpg)
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
+**关注我们**
 
-在战争的混乱中，地面上发生的事情的画面慢慢浮现。
+Discord 账号
 
-泽连斯基总统在推特上表示，东部城市切尔尼戈夫和梅利托波尔以及霍斯托梅尔的入口处发生了激烈的战斗，有人被杀。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-英国国防部在最新情报中表示，俄罗斯装甲部队在未能占领切尔尼戈夫后开辟了一条新的进军路线，大多数部队距离基辅市中心仍有 50 多公里（30 英里）。
+Gettr 账号
 
-乌克兰表示，到目前为止，已有 1000 多名俄罗斯士兵丧生。俄罗斯没有公布伤亡数字。联合国表示，已有 25 名平民丧生，102 人受伤，这些数字可能“严重低估”。
-
-空袭警报连续第二天在基辅上空响起，一些居民躲在地下地铁站。
-
-主要机场附近一栋 10 层高的公寓楼的窗户被炸毁。一个两米长的陨石坑显示了一个炮弹在黎明前击中的地方。
-
-在收到空袭的电视警告后，数百人涌入一栋建筑物下方的狭窄防空洞。
-
-🔗 [战斗到达基辅郊区](https://www.reuters.com/world/europe/ukraines-president-stays-put-russian-invaders-advance-2022-02-25/)
-
-编辑发表： Shuizhuyu
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
