@@ -2,31 +2,24 @@
 ---
 
 
-## 秘翻新闻｜郭先生紧急预警:中共即将攻台
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2062864/)
+## 中日财经爆|日经指数2月25日上涨505点，收于26,476点
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2062876/)
 
-**By:[秘翻新闻](https://gtv.org/broadcast/watch/62186fb308ba8a07b1a31f69)**
+撰稿：东京樱花团/peterwong
 
-[**2022-02-2**4](https://gtv.org/broadcast/watch/62186fb308ba8a07b1a31f69)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/日经指数2月25日上涨505点，收于26476点.jpg)
 
-**今日主题:**
+2月25日在东京股市，受前一天俄罗斯入侵乌克兰的急剧下跌反应，买单扩散到被低估的股票。日经平均指数（225只成分股）较前一交易日收盘价上涨逾500点，回升至26,000点水平。收盘价为 26,476.50点，上涨505.68点。
 
-**1. 俄罗斯入侵乌克兰 多个城市遭到导弹袭击**
+东京证券交易所股价指数（TOPIX）显示了整个东京证券交易所第一部的价格走势，上涨了18.66点,收盘报1876.24点。
 
-**2. 俄罗斯：国际空间站或将因制裁失控脱轨**
+消息来源:
 
-**3. 俄乌开战之际 9架共机扰台遭驱离**
+[日経平均終値、５０５円高の２万６４７６円…割安感ある銘柄に買い注文](https://www.yomiuri.co.jp/economy/20220225-OYT1T50204/)
 
-**4. 乌俄开战股市崩 能源食品等供应链恐中断**
-
-**5. 哈尔滨现当街掳人 行人助10岁女童侥幸脱险**
-
-**🔗GTV链接：**[https://gtv.org/broadcast/watch/62186fb308ba8a07b1a31f69](https://gtv.org/broadcast/watch/62186fb308ba8a07b1a31f69)
-
-发布:星星
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321.jpg)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_0887.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

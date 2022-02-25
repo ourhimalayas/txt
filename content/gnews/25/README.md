@@ -2,56 +2,28 @@
 ---
 
 
-## 哀叹
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2062808/)
+## 有声｜全球国家债务升至303万亿美元 经济前景不容乐观
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2062813/)
 
-作者：纽约香草山教育部—蓝之灵（Hortensia)
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-当蜘蛛哀叹
-结网不再安全
-蝼蚁命如草芥
-你期望的昌盛
-可还有期待
+By:**秘翻新闻**
 
-当她无助悲泣
-被锁二十四年
-全村人共同作恶
-你期望的良知
-可还在
+**2022-02-25**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/10-33.png)图片来源 国际金融协会IIF（图:IIF官网）
+据《希望之声》2月24日报道，根据国际金融协会2月23日公布的年度债务报告，全球国家债务去年底升至创纪录的303万亿美元。2021年全球国家债务增加了10万亿元，其中新增的逾八成债务来自以中共国为首的新兴市场国家，新兴市场的债务总额升至近100万亿元。
 
-他们
-对尊严予取予夺
-对生命予死予杀
-你只是韭菜
-血已流干
-难以醒来
-在梦里
-你过得欢快
+报道称，欧美国家的经济复苏势头明显已经转弱。同时，全球通胀还在继续发展，而工资增长也在加速，当通胀上涨与工资上升形成螺旋式互相推动的模式时，就会形成永久性通胀。这意味著央行失去了对通胀的控制力。
 
-多少次呼唤
-只换来白眼
-在梦里
-你过得欢快
-我们
-只好
-哀叹
-哀叹
+如果央行长期纵容通胀，银行就会出现流动性危机，这是非常典型的经济灾难。如果供应链瓶颈未得到有效缓解，通胀居高不下，美联储等主要央行不断加息，全球经济会受到巨大伤害。
 
-- **审稿/校对/发稿：**qiutian（邱甜）
+新闻来源
+[**https://www.soundofhope.org/post/596833**](https://www.soundofhope.org/post/596833)
 
+秘翻新闻 巴拉克 编辑报道
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1-2.png)
+发布 : 恩典
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

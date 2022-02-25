@@ -2,31 +2,42 @@
 ---
 
 
-## 美国对台湾及一中政策核心是不接受以武力改变边界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2062910/)
+## 乌克兰战争之零星实况
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2062949/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/C5C1540B-808C-4D99-B200-ADF9C72729E3_w1023_r1_s.jpg)图片来源：美国之音
-据美国之音2月25日报道，俄罗斯2月24日全面入侵乌克兰，全世界都在担忧北京可能对台湾采取武力行动。美军太平洋舰队司令帕帕罗中将表示，美国对台湾及一中政策的核心是任何国家都不能以武力改变边界，台湾是一个“拐点”。如果中华人民共和国以武力统一台湾，将在整个印太地区引发连锁反应。美国与盟友必须力阻中共国在第一岛链内以武力达到推翻国际秩序的目标，这并非只是出于道德原因，而是因为它符合所有人的直接利益。
+作者:纽约香草山健身部-新世界的一员
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image0-46.jpg)
 
-全世界10个最大的军队有7个在印太地区，此地区的经济占全世界60%。美国与盟友必须阻止中共国在第一岛链内实现2个目标，第一是违背联合国公约，排除其他人在这个地区的国际空域和海域上飞行和航行；第二是强迫台湾支持中共国所谓的“伟大复兴”。
+目前 俄国已经向乌发射超过百枚导弹，乌克兰57人死亡，169人受伤，俄军伤亡类似。一架俄罗斯A26运输机坠毁。俄军74摩托化旅的一个排在乌克兰北部向整建制向乌克兰投降。
 
-在第一岛链外，美国与盟友要展现任何时候都能超越对手的强大优势，要让对手知道动武将面临的代价。美国与欧洲都致力于维持国际秩序，不会对以武力侵犯他国的情况默不作声，俄罗斯必定要为侵犯乌克兰承担后果，这也是中共国需要思考的问题。其他亚洲国家也在观察美欧对俄罗斯的反应，美国是否真的重返亚洲，台湾是一个信号。解放军有足够的导弹能够在战争的开始阶段就摧毁台湾的军事设施，不过解放军是否有足够的跨海能力还无法确定。
+莫斯科和圣彼得堡出现大量反战人士集会 根据视频目测应该是数万人，
+基辅的两个机场又被乌军夺回 ，目前俄军再次发动机降作战 后果未知 ，
+乌方再次夺回基辅附近的关键机场，基辅还在乌克兰手里，
+东部战线已经被乌军反推，
+北部战线 俄军夺取了切尔诺贝利核电站 ，但是乌军正在反击，战况未知。
 
-过去20年，中共国的军事能力取得了重大进展，中共的目标是成为世界级军队，这对美国的国家安全造成了重大威胁。台湾的防御能力已经今非昔比，解放军攻台会很冒险，会为中共国带来非常大的代价。不过，狂妄自大、视人民生命如草芥的习近平是不会考虑这些因素的。为了个人野心，付出多大的代价都不能阻止他疯狂的步伐。俄罗斯和中共国遥相呼应，瞬间把整个世界拖入病毒和疫苗灾难后的战争时代，和平不再，民主不再，因为两大邪恶轴心国的行为。美国和西方世界的容忍让中共病毒在全世界畅通无阻，乌克兰已经开战，台湾危在旦夕，美国和西方世界还会继续容忍吗？
+另外因为俄特使在联合国挑衅以色列，否认以色列对戈兰高地和耶路撒冷的地位 。目前以军方在媒体表示考虑教训俄军的小弟叙利亚，另俄军网络和指挥系统已被两位出于义愤的以色列前网络专家摧毁，至今没有恢复，俄军陷入混乱。
+目前俄军计划的三线地面战争与网络战争除南部外，基本遇挫。
 
-新闻参考链接：[https://www.voachinese.com/a/us-commander-said-not-changing-borders-by-force-is-the-heart-of-taiwan-policy-and-one-china-policy-20220224/6458043.html](https://www.voachinese.com/a/us-commander-said-not-changing-borders-by-force-is-the-heart-of-taiwan-policy-and-one-china-policy-20220224/6458043.html)
+一小时前欧盟宣布对俄国进行制裁，但是关于禁止swift银行转账系统的提议被德国总理舒尔茨否决。波兰，卢森堡和拉脱维亚三国总理对德国表示愤怒。
+乌克兰外长表示德国总理关于俄罗斯swift转账系统的支持，是让自己的手上沾满鲜血。
 
-* * *
+信息来源盖特推特墙文，笔者没有实地了解，本文只作参考。
+参考链接：[https://gettr.com/post/pwqfmvcc57](https://gettr.com/post/pwqfmvcc57)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- 审核/编辑/发稿:qiutian（邱甜）
 
 
-编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen-Shot-2022-02-12-at-10.08.22-PM-768x1076-7.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,53 +2,35 @@
 ---
 
 
-## 早期治疗和适当补水是预防长期COVID症状的关键（2/2）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2062809/)
+## 拜登制裁不及预期，油价冲高回落8%
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2062858/)
 
-上一篇：[早期治疗和适当补水是预防长期COVID症状的关键（1/2）](https://gnews.org/zh-hans/2062733/)
+##### 整理：Eileen（围剿维尼熊）
+编辑：Mttfly
 
-翻译： Jenny Ball
+**【雅典娜快讯】，紧贴时代脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2022/02/拜登制裁轻微，油价冲高回落.jpg)本月22日，美国总统乔·拜登就俄乌战争的发展发表讲话，并宣布对俄罗斯实施制裁。 图片：DREW ANGERER VIA GETTY IMAGES&雅典娜设计组
+根据英为财情2月25日报道，周四伦敦布伦特原油期货尾盘收涨2.65%，报收99.41美元/桶。受俄罗斯入侵乌克兰消息影响，油价一度直线飙升至105.79美元/桶。随着美国的最新制裁并不包括限制俄罗斯原油供应和拜登表示将从战略石油储备中释放原油，油价冲高回落。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2336-edited.png)theepochtimes.com
+EIA公布的数据显示，截至2月18日当周，原油库存增加451.4万桶；汽油库存减少58.2万桶，精炼油库存减少58.4万桶。上周原油出口增加41.5万桶/日至268.6万桶/日。美国原油产品四周平均供应量为2187.9万桶/日，较去年同期增加12.1%。
 
-发病率
+美国总统拜登周四公布了对俄罗斯的严厉新制裁措施，除对银行和国有企业实施制裁外，还采取了阻止俄罗斯使用主要货币做生意的措施。同时拜登称，美国正与其他国家合作，共同从全球战略原油储备中释放更多石油。
 
-目前尚不完全清楚：有多少人受到长期 COVID 的影响，或谁的风险最大。国会已向美国NIH提供了 11.5 亿美元的资金，用于研究 COVID-19 的长期影响，以及治疗或预防的方法。
+Oanda驻美洲高级市场分析师Ed Moya称，尽管在拜登周四的讲话后期货价格收窄涨幅，但油价大幅上涨的可能性依然存在。本轮制裁消息公布后原油价格的回落并没有改变油价后市大幅上涨的可能性。
 
-根据 FLCCC 的说法，患有这种综合症的个体的发病率，“从 10% 到高达 80% 不等”。
+消息人士透露，至少三家俄罗斯石油的主要买家周四无法从西方银行开出购买石油所需的信用证。同时部分买主和油轮公司担心对俄制裁风险，俄罗斯的乌拉尔原油较基准布伦特原油现货的贴水幅度达到史上最大。原油运输成本大涨。
 
-英国国家统计局 (ONS) 报告称，在初次感染 12 周后，有 3% 到 12% 的人出现长期 COVID 症状。这是基于对 2020 年 4 月至 2021 年 8 月期间 20,000 多名感染中共病毒的人的调查得出的。
+参考链接：[美国未将俄罗斯能源列为制裁对象，油价一度自日高回落8%](https://cn.investing.com/news/commodities-news/article-2084608)
 
-伯科维茨医生说，长期 COVID 可能被漏诊和漏报，医学界没有就该综合症的明确定义，也没有对持续时间达成一致，这使得医生难以诊断它。
+*发布：Mttfly*
 
-根据规模最大的全国性队列研究，在 18 岁以下的儿童中，长期 COVID“很少见，主要是短期的”，该研究涉及 37,522 名 COVID-19 儿童和超过 78,000 名儿童的对照组。
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-虽然 COVID-19 不成比例地影响 65 岁及以上的成年人，但一线医生发现，长期 COVID 并非如此，这种情况经常影响年轻人和轻度至中度** COVID-19 **病例，即使没有症状或无症状的人，也可能出现这种情况。
-
-伯科维茨医生说：“我最近看到了两名患者，他们不知道自己感染了新冠病毒，他们不记得实际上感染了新冠病毒一致的症状的新冠病毒。” “但是当我们测试他们的抗体时，很明显，他们在某个时候感染过。” 伯科维茨医生观察到长期 COVID的一些常见症状是：脑雾、头痛、疲劳、关节疼痛、睡眠困难、味觉和嗅觉障碍以及脱发。一些患者还报告了心跳加快，这是一种更严重的症状。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-2339-edited.png)FLCCC 联盟针对长期 COVID 的 I-RECOVER 治疗协议的前三部分的屏幕截图，该协议可能会随着收集更多临床数据而发展。 (flccc.net)
-
-伯科维茨医生说，FLCCC 联盟已经更新了其长期的 COVID 治疗，称为** I-RECOVER **协议，该协议是为了应对全球许多患有这种疾病的人缺乏可用的治疗方法而开发的。
-
-该协议“基于 COVID-19 和病毒后疾病的病理生理机制”，以及医生治疗长期 COVID 的临床经验。
-
-“许多病理已经变得更加清晰，许多治疗对于它们的工作方式更加清晰和明显……我们几乎完成了对什么是有用的处方方案或药物组，” 莫本（Mobeen）在线医学教育首席执行官赛义德在 2 月 2 日关于长期 COVID 的演讲中说。赛义德与 FLCCC 合作开发了长期 COVID 的治疗方案。
-
-选择用于长期 COVID 的重新利用药物，来治疗该疾病后和炎症后的症状。
-
-伯科维茨医生说，在被诊断出长期 COVID 后不久接受治疗的人，会看到快速的改善。即使是那些长期出现 COVID 症状数月至一年的患者，也已经“好转 80% 或更多，他们实际上能够恢复正常生活了”。
-
-【完结】
-
-素材链接：【theepochtimes.com】[Early Treatment and Proper Hydration Key to Preventing Long COVID Symptoms: Dr. Keith Berkowitz](https://www.theepochtimes.com/early-treatment-and-proper-hydration-key-to-preventing-long-covid-symptoms-dr-keith-berkowitz_4297412.html?utm_source=CCPVirusNewsletter&amp;utm_medium=email&amp;utm_campaign=2022-02-24)
-
-* * *
-
-审核：文乐
-校对：信心满满
-发布：花羽
-![](https://assets.gnews.org/wp-content/uploads/2022/02/GNEWS_CH.-1-3-4.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

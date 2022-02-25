@@ -2,29 +2,56 @@
 ---
 
 
-## 有声｜美抗议者聚集白宫门前敦促拜登采取行动制止战争
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2062729/)
+## 哀叹
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2062808/)
 
-By:**秘翻新闻**
+作者：纽约香草山教育部—蓝之灵（Hortensia)
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+当蜘蛛哀叹
+结网不再安全
+蝼蚁命如草芥
+你期望的昌盛
+可还有期待
 
-**2022-02-25**
-![](https://assets.gnews.org/wp-content/uploads/2022/02/8-36.png)图片来源 华盛顿观察家报
-《华盛顿观察家报》2月24日报道，周四下午，美国大批抗议者冒着严寒聚集在白宫门口，敦促总统拜登对俄罗斯入侵乌克兰采取更严厉的措施，立即制止这场战争。
+当她无助悲泣
+被锁二十四年
+全村人共同作恶
+你期望的良知
+可还在
 
-据报道，一位名叫凯特的乌克兰抗议者告诉记者，所有在乌克兰和在这里的乌克兰人都被吓坏了。他们感到非常愤怒，并希望拜登能采取行动，阻止这场战争。
+他们
+对尊严予取予夺
+对生命予死予杀
+你只是韭菜
+血已流干
+难以醒来
+在梦里
+你过得欢快
 
-凯特继续说道，入侵是突然的，发生在当地时间周四凌晨。当时没有人愿意相信这是真的。他们来到白宫前面是为了抗议这种侵略行为。
+多少次呼唤
+只换来白眼
+在梦里
+你过得欢快
+我们
+只好
+哀叹
+哀叹
 
-报道称，抗议者们高呼“站在乌克兰一边”、“立即支持乌克兰”、“立即停止战争”和“我们要求制裁”等口号。
+- **审稿/校对/发稿：**qiutian（邱甜）
 
-新闻来源[**https://www.washingtonexaminer.com/news/stand-with-ukraine-protesters-gather-at-white-house-and-call-on-biden-to-act**](https://www.washingtonexaminer.com/news/stand-with-ukraine-protesters-gather-at-white-house-and-call-on-biden-to-act)
 
-秘翻新闻  冰糖葫芦喵 编译报道
+![](https://assets.gnews.org/wp-content/uploads/2022/02/Screen_Shot_2022-02-01_at_11.29.09_PM-1-2.png)
 
-发布 : 恩典
+**更多资讯，更多关注**
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/02/1-321.jpg)
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
